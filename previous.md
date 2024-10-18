@@ -1,3 +1,15 @@
+**China’s Lackluster Growth Continues, Signaling Why Beijing Acted on Economy**\
+`Falling prices, weak consumer spending and a housing market crash help to explain why the Chinese government is taking steps to stimulate the economy.`\
+https://nytimes.com/2024/10/17/business/china-gdp-third-quarter.html
+
+**Former Olympic Snowboarder Wanted by F.B.I. on Murder and Drug Charges**\
+`Ryan Wedding, 43, was indicted with 15 others on charges of trafficking drugs into Canada and the U.S., the authorities said. He is believed to be living in Mexico.`\
+https://nytimes.com/2024/10/17/us/olympic-snowboarder-ryan-wedding-cocaine.html
+
+**That Explains It**\
+`Jesse Cohn introduces six lively entries to the New York Times Crossword.`\
+https://nytimes.com/2024/10/17/crosswords/daily-puzzle-2024-10-18.html
+
 **Corrections: Oct. 18, 2024**\
 `Corrections that appeared in print on Friday, Oct. 18, 2024.`\
 https://nytimes.com/2024/10/17/pageoneplus/corrections-oct-18-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5852195/2024/10/17/dodgers-shohei-ohtani-leadoff-nl
 **U.S. Charges Indian Official in New York Assassination Plot**\
 `The United States and Canada have worked together to investigate what they say is the Indian government’s campaign against Sikh separatists.`\
 https://nytimes.com/2024/10/17/us/politics/indian-intelligence-officer-assassination.html
-
-**Leonard to miss start of Clippers season, out indefinitely: Source**\
-`Leonard has not suffered a setback in his recovery, a team source said. But he has not been cleared to practice.`\
-https://nytimes.com/athletic/5851416/2024/10/17/kawhi-leonard-clippers-out-indefinitely/
-
-**Aaron Judge, Giancarlo Stanton hit back-to-back home runs off Emmanuel Clase**\
-`Whatever the postseason narrative about Judge might have been, he’s officially flipped it with one swing of the bat.`\
-https://nytimes.com/athletic/5852176/2024/10/17/aaron-judge-giancarlo-stanton-alcs-homers/
-
-**Art Adviser to the Elite Pleads Guilty to Wire Fraud**\
-`Lisa Schiff acknowledges stealing millions from major collectors who trusted her to buy them fashionable art.`\
-https://nytimes.com/2024/10/17/arts/design/art-adviser-wire-fraud-lisa-schiff.html
 

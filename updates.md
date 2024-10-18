@@ -1,3 +1,15 @@
+**China’s Lackluster Growth Continues, Signaling Why Beijing Acted on Economy**\
+`Falling prices, weak consumer spending and a housing market crash help to explain why the Chinese government is taking steps to stimulate the economy.`\
+https://nytimes.com/2024/10/17/business/china-gdp-third-quarter.html
+
+**Former Olympic Snowboarder Wanted by F.B.I. on Murder and Drug Charges**\
+`Ryan Wedding, 43, was indicted with 15 others on charges of trafficking drugs into Canada and the U.S., the authorities said. He is believed to be living in Mexico.`\
+https://nytimes.com/2024/10/17/us/olympic-snowboarder-ryan-wedding-cocaine.html
+
+**That Explains It**\
+`Jesse Cohn introduces six lively entries to the New York Times Crossword.`\
+https://nytimes.com/2024/10/17/crosswords/daily-puzzle-2024-10-18.html
+
 **Corrections: Oct. 18, 2024**\
 `Corrections that appeared in print on Friday, Oct. 18, 2024.`\
 https://nytimes.com/2024/10/17/pageoneplus/corrections-oct-18-2024.html
