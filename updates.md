@@ -1,3 +1,7 @@
+**Aaron Judge had his Yankees legacy moment in ALCS Game 3, until he didn't**\
+`With one swing, Judge cemented his legacy as a New York Yankee, but it was all for naught as the Guardians walked it off in Game 3. `\
+https://nytimes.com/athletic/5852215/2024/10/18/new-york-yankees-aaron-judge-legacy-alcs-game-3/
+
 **Teuvo Teräväinen, power play propel Blackhawks in home-opener victory: Observations**\
 `The Blackhawks might not be contenders just yet, but their power play could push them higher than people expect.`\
 https://nytimes.com/athletic/5852305/2024/10/18/blackhawks-home-opener-teravainen-power-play/

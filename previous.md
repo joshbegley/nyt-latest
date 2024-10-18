@@ -1,3 +1,7 @@
+**Aaron Judge had his Yankees legacy moment in ALCS Game 3, until he didn't**\
+`With one swing, Judge cemented his legacy as a New York Yankee, but it was all for naught as the Guardians walked it off in Game 3. `\
+https://nytimes.com/athletic/5852215/2024/10/18/new-york-yankees-aaron-judge-legacy-alcs-game-3/
+
 **After late-inning meltdown, should the Yankees worry about Luke Weaver's heavy workload?**\
 `Weaver and teammate Clay Holmes, who have pitched in every playoff game, had been stellar until Thursday's extra-inning loss.`\
 https://nytimes.com/athletic/5852564/2024/10/18/yankees-luke-weaver-guardians-alcs-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846914/2024/10/18/fantasy-premier-league-with-alis
 **Can Manchester United stop Brentford scoring at kick-off?**\
 `If anyone can stop Brentford's electric goalscoring starts it's Manchester United. Right?`\
 https://nytimes.com/athletic/5847993/2024/10/18/how-to-stop-brentford-scoring-at-kick-off/
-
-**Sarabia can impact games like few others at Wolves. Is he the spark O'Neil needs?**\
-`With crucial games to come in the next few weeks, it would be odd to overlook the claims of a man who can affect games like Sarabia`\
-https://nytimes.com/athletic/5850106/2024/10/18/pablo-sarabia-wolves-premier-league/
 
