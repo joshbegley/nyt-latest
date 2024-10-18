@@ -1,3 +1,7 @@
+**Mets manager Carlos Mendoza preached trust all year. Now it's time for urgency**\
+`The Mets have handed too many important at-bats to hitters in slumps and relied too often on lower-leverage relievers.`\
+https://nytimes.com/athletic/5852683/2024/10/18/mets-carlos-mendoza-dodgers-nlcs/
+
 **Using 'bunts, bombs and chaos', the Guardians make it a series with the Yankees**\
 `With two outs in the ninth, the Yankees were pushed from the verge of a pennant into an actual, competitive ALCS.`\
 https://nytimes.com/athletic/5852667/2024/10/18/yankees-guardians-alcs-october-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5833315/2024/10/18/rory-wilson-aston-villa-transfer
 **Niclas Fullkrug's ongoing injury absence is only exacerbating his slow start**\
 `The club's search for a consistent goalscorer led them to the German but his frustrating start to life at the club continues `\
 https://nytimes.com/athletic/5850370/2024/10/18/niklas-fullkrug-injury-concerns/
-
-**Liverpool have the best defence in the Premier League - can they maintain it?**\
-`While there has been talk about Slot's possession-based style, less remarked upon is that his side have conceded just two league goals`\
-https://nytimes.com/athletic/5849920/2024/10/18/liverpool-defence/
 

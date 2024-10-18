@@ -1,3 +1,7 @@
+**Using 'bunts, bombs and chaos', the Guardians make it a series with the Yankees**\
+`With two outs in the ninth, the Yankees were pushed from the verge of a pennant into an actual, competitive ALCS.`\
+https://nytimes.com/athletic/5852667/2024/10/18/yankees-guardians-alcs-october-playoffs/
+
 **Best, Worst and Most Awkward Lines at the Al Smith Dinner**\
 `Donald J. Trump and Kamala Harris both delivered remarks, Ms. Harris via taped video and Mr. Trump in person in a ballroom in Manhattan.`\
 https://nytimes.com/2024/10/18/us/politics/trump-harris-al-smith-dinner.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850370/2024/10/18/niklas-fullkrug-injury-concerns/
 **Liverpool have the best defence in the Premier League - can they maintain it?**\
 `While there has been talk about Slot's possession-based style, less remarked upon is that his side have conceded just two league goals`\
 https://nytimes.com/athletic/5849920/2024/10/18/liverpool-defence/
-
-**FPL: With Alisson injured, is it worth using a free transfer on a goalkeeper?**\
-`The best strategy for FPL goalkeepers and transfers explained`\
-https://nytimes.com/athletic/5846914/2024/10/18/fantasy-premier-league-with-alisson-injured-is-it-worth-using-a-free-transfer-on-a-goalkeeper/
 

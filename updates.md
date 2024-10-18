@@ -1,3 +1,7 @@
+**Using 'bunts, bombs and chaos', the Guardians make it a series with the Yankees**\
+`With two outs in the ninth, the Yankees were pushed from the verge of a pennant into an actual, competitive ALCS.`\
+https://nytimes.com/athletic/5852667/2024/10/18/yankees-guardians-alcs-october-playoffs/
+
 **Best, Worst and Most Awkward Lines at the Al Smith Dinner**\
 `Donald J. Trump and Kamala Harris both delivered remarks, Ms. Harris via taped video and Mr. Trump in person in a ballroom in Manhattan.`\
 https://nytimes.com/2024/10/18/us/politics/trump-harris-al-smith-dinner.html
