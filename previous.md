@@ -1,3 +1,7 @@
+**Sinwar’s Death Could Shake but Not Topple Hamas, Experts Say**\
+`Analysts call the killing of several Hamas leaders, including Yahya Sinwar, a deep blow to the Palestinian militant group, but expect it to keep fighting.`\
+https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-death-hamas.html
+
 **With Davante Adams gone, Tre Tucker aiming to step into bigger role with Raiders**\
 `Now that his mentor has been traded, it's time for Tucker to become a bigger part of the Raiders' passing game behind Aidan O'Connell.`\
 https://nytimes.com/athletic/5807316/2024/10/18/tre-tucker-raiders-davante-adams/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/arts/design/art-basel-paris.html
 **The Death of Hamas’s Leader**\
 `Yahya Sinwar is dead. Could this be a turning point?`\
 https://nytimes.com/2024/10/18/briefing/yahya-sinwar-hamas-israel.html
-
-**The Pulse: Last night's swing that made it a series**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5851427/2024/10/18/guardians-yankees-walkoff-the-pulse/
 
