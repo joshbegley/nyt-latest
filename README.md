@@ -1,3 +1,11 @@
+**How Quinn Hughes did it all in Canucks' first win, and why he shouldn't need to**\
+`If Hughes has to play this often and perform this well for Vancouver to win, what does that mean for the team over the rest of the season?`\
+https://nytimes.com/athletic/5852788/2024/10/18/canucks-victory-quinn-hughes/
+
+**For Trump, the ‘Enemies Within’ Are the Pelosis**\
+`He continues to fantasize about using the military to go after them.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-enemies-pelosis
+
 **Thomas Tuchel and the Moral Maze**\
 `An outcry over the hiring of a German to lead England’s national team was predictable. But don’t dismiss every objection out of hand.`\
 https://nytimes.com/2024/10/18/world/europe/thomas-tuchel-england.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/business/cvs-ceo-karen-lynch.html
 **Democrats’ Report Calls Trump Hotel Business Unethical and Unconstitutional**\
 `Democrats on the House Oversight Committee said the former president overcharged the Secret Service and accepted money from officials and people who were seeking pardons and appointments.`\
 https://nytimes.com/2024/10/18/us/politics/trump-hotel-report.html
-
-**Postecoglou reflects on Tottenham's Brighton loss as 'good lesson' in 'sticking to principles'**\
-`Ange Postecoglou says that Tottenham Hotspur’s defeat to Brighton &amp; Hove Albion before the October international break was a “good lesson” that they need to “stick to their core principles”.`\
-https://nytimes.com/athletic/5853292/2024/10/18/ange-postecoglou-tottenham-principles/
-
-**Luka Garza is leaving his mark, but will it translate to playing time for Wolves?**\
-`"Just watching him makes you want to play with him," rookie guard Rob Dillingham said on Garza.`\
-https://nytimes.com/athletic/5852302/2024/10/18/timberwolves-luka-garza-playing-time/
 
