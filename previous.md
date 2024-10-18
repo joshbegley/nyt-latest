@@ -1,3 +1,7 @@
+**James fit for Liverpool trip but will only play once a week, says Maresca**\
+`Enzo Maresca says he will only use Chelsea captain Reece James once a week in a bid to help him avoid another injury.`\
+https://nytimes.com/athletic/5853115/2024/10/18/reece-james-injury-chelsea-maresca/
+
 **Much of the Emerald Isle Is an Ecological Desert. He’s Trying to Change That.**\
 `Eoghan Daltun rewilded his land in West Cork and wants more of Ireland to do the same.`\
 https://nytimes.com/2024/10/18/climate/ireland-ecological-desert-rewilding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5852997/2024/10/18/mbappe-real-madrid-sweden-ancelo
 **Live Q&A: FPL Gameweek 8 advice from Ben Dinnery**\
 `We did it — and we did it together.`\
 https://nytimes.com/athletic/5847491/2024/10/18/fantasy-premier-league-advice-injury-news-gw8/
-
-**Arteta says he would have played for England: 'I feel very proud about it'**\
-`Arsenal manager Mikel Arteta says he would have changed his international allegiance from Spain to England during his playing career.`\
-https://nytimes.com/athletic/5852970/2024/10/18/mikel-arteta-england-tuchel/
 
