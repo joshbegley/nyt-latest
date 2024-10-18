@@ -1,3 +1,7 @@
+**Mets manager Carlos Mendoza preached trust all year. Now it's time for urgency**\
+`The Mets have handed too many important at-bats to hitters in slumps and relied too often on lower-leverage relievers.`\
+https://nytimes.com/athletic/5852683/2024/10/18/mets-carlos-mendoza-dodgers-nlcs/
+
 **Using 'bunts, bombs and chaos', the Guardians make it a series with the Yankees**\
 `With two outs in the ninth, the Yankees were pushed from the verge of a pennant into an actual, competitive ALCS.`\
 https://nytimes.com/athletic/5852667/2024/10/18/yankees-guardians-alcs-october-playoffs/
