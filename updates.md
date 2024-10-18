@@ -1,3 +1,15 @@
+**Wordle Review No. 1,218**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 19, 2024.`\
+https://nytimes.com/2024/10/18/crosswords/wordle-review-1218.html
+
+**The Connections Companion No. 496**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 19, 2024`\
+https://nytimes.com/2024/10/18/crosswords/connections-companion-496.html
+
+**Newcastle trigger option to extend Dan Burn's contract**\
+`Newcastle United have triggered an extension in Dan Burn&#8217;s contract, meaning the defender will remain on Tyneside beyond the end of the season.`\
+https://nytimes.com/athletic/5852887/2024/10/18/dan-burn-newcastle-contract-extension/
+
 **200 Years Later, Still Trying to Define the Midwest**\
 `From the geographic boundaries to the values and friendliness, people have debated what defines the region essentially since it was labeled the Midwest. It has taken on a renewed urgency this election year.`\
 https://nytimes.com/2024/10/18/us/midwest-states-harris-trump.html
