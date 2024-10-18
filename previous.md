@@ -1,3 +1,15 @@
+**When Opportunity Leaves, the Government Has Two Choices**\
+`Like people, places can fall on hard times. Do they also deserve help?`\
+https://nytimes.com/2024/10/18/opinion/economics-place-public-private-taxes.html
+
+**Is It OK to Name Our Dog for a God?**\
+`The magazine’s Ethicist columnist on canine naming conventions.`\
+https://nytimes.com/2024/10/18/magazine/dog-name-god-ethics.html
+
+**Giants WR Malik Nabers set to play vs. Eagles**\
+`Nabers is set to resume a historic start to his rookie campaign against the Eagles.`\
+https://nytimes.com/athletic/5853738/2024/10/18/giants-malik-nabers-injury-update/
+
 **Veterans Dept. Investigating Acadia Healthcare for Insurance Fraud**\
 `Several federal agencies are investigating whether the large chain of psychiatric hospitals held patients without medical justification.`\
 https://nytimes.com/2024/10/18/business/acadia-healthcare-veterans-affairs-investigation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/18/opinion/yahya-sinwar-hamas-death.html
 **Will Notre Dame avoid an upset trap against Georgia Tech? Irish keys and a prediction**\
 `Why Notre Dame's defensive line growth is key to a second-half run, plus more thoughts on Saturday's visit to Atlanta to meet Georgia Tech.`\
 https://nytimes.com/athletic/5853910/2024/10/18/notre-dame-georgia-tech-football-preview/
-
-**A Candidate for U.S. Senate Says He Was Shot in War. Was He?**\
-`Tim Sheehy, a Republican running for U.S. Senate in Montana, says he has a bullet in his arm from Afghanistan. But new questions have been raised about his account.`\
-https://nytimes.com/2024/10/18/us/tim-sheehy-gunshot-wound-montana-senate.html
-
-**‘A New Day’ at the Supreme Court? Justices Decline to Block an E.P.A. Rule.**\
-`The court’s decision was the third recent victory for regulators.`\
-https://nytimes.com/2024/10/18/climate/supreme-court-shadow-docket-environment.html
-
-**Sinwar’s Death Embodies Israel’s Long Quest for Deterrence**\
-`Israel’s killing of the Hamas leader Yahya Sinwar is the latest expression of Israel’s belief that regional acceptance will be achieved only through strength.`\
-https://nytimes.com/2024/10/18/world/middleeast/israel-military-sinwar-killing.html
 

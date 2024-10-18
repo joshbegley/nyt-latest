@@ -1,3 +1,15 @@
+**When Opportunity Leaves, the Government Has Two Choices**\
+`Like people, places can fall on hard times. Do they also deserve help?`\
+https://nytimes.com/2024/10/18/opinion/economics-place-public-private-taxes.html
+
+**Is It OK to Name Our Dog for a God?**\
+`The magazine’s Ethicist columnist on canine naming conventions.`\
+https://nytimes.com/2024/10/18/magazine/dog-name-god-ethics.html
+
+**Giants WR Malik Nabers set to play vs. Eagles**\
+`Nabers is set to resume a historic start to his rookie campaign against the Eagles.`\
+https://nytimes.com/athletic/5853738/2024/10/18/giants-malik-nabers-injury-update/
+
 **Veterans Dept. Investigating Acadia Healthcare for Insurance Fraud**\
 `Several federal agencies are investigating whether the large chain of psychiatric hospitals held patients without medical justification.`\
 https://nytimes.com/2024/10/18/business/acadia-healthcare-veterans-affairs-investigation.html
