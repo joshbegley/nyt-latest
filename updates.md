@@ -1,3 +1,7 @@
+**Tennessee comes alive to spark SEC hope, put Alabama Playoff chances in peril: Takeaways**\
+`No. 11 Tennessee topped No. 7 Alabama 24-17 behind a second-half surge that puts Alabama on the College Football Playoff bubble already.`\
+https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
+
 **Early in-person voting begins in Nevada, with Obama set to rally Democrats.**\
 `Republicans TKTKTK`\
 https://nytimes.com/live/2024/10/19/us/harris-trump-election/nevada-early-voting

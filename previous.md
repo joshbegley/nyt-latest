@@ -1,3 +1,7 @@
+**Tennessee comes alive to spark SEC hope, put Alabama Playoff chances in peril: Takeaways**\
+`No. 11 Tennessee topped No. 7 Alabama 24-17 behind a second-half surge that puts Alabama on the College Football Playoff bubble already.`\
+https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
+
 **Early in-person voting begins in Nevada, with Obama set to rally Democrats.**\
 `Republicans TKTKTK`\
 https://nytimes.com/live/2024/10/19/us/harris-trump-election/nevada-early-voting
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855518/2024/10/19/will-levis-mason-rudolph-titans-
 **Fighting Rages in Gaza and Lebanon, Despite Killing of Hamas Leader**\
 `Peace talks were nowhere in sight and, despite Yahya Sinwar’s death, the violence seemed only to increase, as Israel struck northern Gaza and Hezbollah fired dozens of projectiles.`\
 https://nytimes.com/2024/10/19/world/middleeast/gaza-lebanon-hamas-hezbollah-israel-netanyahu.html
-
-**O'Neil: 'Everything that happens on the football pitch is my fault'**\
-`Wolverhampton Wanderers head coach Gary O’Neil says he wants to “carry the can” for the club’s form as they prepare to face champions Manchester City on the back of just one point from their opening seven games.`\
-https://nytimes.com/athletic/5853709/2024/10/19/gary-oneil-wolves-responsibility/
 
