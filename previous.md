@@ -1,3 +1,23 @@
+**Manchester City have a specific defensive flaw - but will their rivals be able to take advantage?**\
+`City have conceded as many goals as Liverpool and Arsenal combined this season, and Pep Guardiola is aware of the reason why`\
+https://nytimes.com/athletic/5851207/2024/10/19/manchester-city-weakness-counters/
+
+**13 insights fantasy football managers need to know ahead of Week 7**\
+`Theo Gremminger is dismayed by the lack of interest in Tampa Bay running back Sean Tucker as he shares 13 insights ahead of Week 7.`\
+https://nytimes.com/athletic/5853911/2024/10/19/13-insights-fantasy-football-week-7/
+
+**‘Life Is Complicated’: How a Scourge of Oligarchs Fell in Love With One**\
+`Natalia Morari once reported on corrupt business in Moldova. Now she has upset many by having a son with a tycoon accused of corruption, and running against the pro-West president in elections.`\
+https://nytimes.com/2024/10/19/world/europe/natalia-morari-moldova-corrupt-business.html
+
+**Bournemouth vs Arsenal preview, odds, prediction as Gunners try to keep pace with leaders**\
+`Arsenal can go top of the league with a win at Bournemouth before Liverpool and Manchester City play later this weekend.`\
+https://nytimes.com/athletic/5851479/2024/10/19/bournemouth-arsenal-preview-odds-prediction/
+
+**Alabama at Tennessee picks, odds, how to watch: One-loss playoff contenders meet**\
+`Alabama and Tennessee have both been disappointing in recent weeks. Which team will right the ship and gain a quality win?`\
+https://nytimes.com/athletic/5850724/2024/10/19/alabama-tennessee-picks-odds-how-to-watch/
+
 **Man United vs Brentford preview: Storylines, odds, prediction as Red Devils are favored**\
 `Erik ten Hag is hoping to avoid the sack for a struggling Manchester United side. Can the Red Devils end a winless run against Brentford?`\
 https://nytimes.com/athletic/5851440/2024/10/19/manchester-united-brentford-preview-odds-prediction/
@@ -7,7 +27,7 @@ https://nytimes.com/athletic/5851440/2024/10/19/manchester-united-brentford-prev
 https://nytimes.com/2024/10/18/pageoneplus/quote-of-the-day-a-gnarly-free-for-all-that-is-finally-for-all.html
 
 **Yankees survive another late-inning thriller, lead Guardians 3-1 in ALCS: Takeaways**\
-`New York rallied against Cleveland closer Emmanuel Clase in the top of the ninth and now find themselves one win away from the World Series`\
+`New York rallied against Cleveland closer Emmanuel Clase in the top of the ninth and now find themselves one win away from the World Series.`\
 https://nytimes.com/athletic/5854446/2024/10/18/yankees-guardians-score-mlb-playoffs-alcs/
 
 **Man Arrested in Japan After Attack on Governing Party Headquarters**\
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/18/world/asia/japan-party-attack.html
 **Goaltending wasn't the story — for once — in Penguins' loss to Hurricanes**\
 `Friday's loss proved it doesn't matter which goalie is between the pipes until the Penguins improve their play in front of the net.`\
 https://nytimes.com/athletic/5854514/2024/10/18/penguins-hurricanes-loss-goaltending/
-
-**Obama makes another pitch for Harris in battleground Arizona.**\
-`By Jack Healy`\
-https://nytimes.com/live/2024/10/18/us/harris-trump-election/obama-makes-another-pitch-for-harris-in-battleground-arizona
-
-**After More Than 2 Years, Guatemalan Journalist Will Leave Prison**\
-`The case against José Rubén Zamora became a sign of crumbling democracy in Guatemala and a symbol of threats against press freedom across Latin America.`\
-https://nytimes.com/2024/10/18/world/americas/guatemala-journalist-prison-democracy.html
-
-**Tottenham vs West Ham preview: Storylines, odds, prediction as Spurs try to climb table**\
-`Tottenham had a loss to forget before the international break and have been stewing on it since. Can Spurs get right against West Ham?`\
-https://nytimes.com/athletic/5851409/2024/10/18/tottenham-west-ham-preview-odds-prediction/
-
-**Duke downs FSU for Blue Devils' first win over Seminoles in program history**\
-`The loss continued the Seminoles’ stunning slide from 13-0 last year to their first 1-6 start since 1975.`\
-https://nytimes.com/athletic/5854490/2024/10/18/florida-state-duke-result-takeaways/
-
-**Mets played 'loose and focused' in Game 5 and it saved their season**\
-`The Mets remain capable of explosive offensive games because of the depth of their lineup.`\
-https://nytimes.com/athletic/5854484/2024/10/18/mets-dodgers-nlcs-mood/
 
