@@ -1,3 +1,7 @@
+**U.S. Defense Secretary Urges Israel to Scale Back Attacks in Beirut Area**\
+`Lloyd J. Austin lamented that civilian casualties during Israel’s war in Lebanon are “far too high.”`\
+https://nytimes.com/2024/10/19/world/middleeast/us-defense-secretary-urges-israel-to-scale-back-attacks-in-beirut-area.html
+
 **Tensions Spike in Mozambique After Killing of 2 Political Activists**\
 `Leading supporters of the top opposition presidential candidate, Venâncio Mondlane, were fatally shot in their car following an election marred by allegations of fraud.`\
 https://nytimes.com/2024/10/19/world/africa/mozambique-election-activists-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane/heres
 **Hurricane Oscar Moves Toward the Bahamas and Cuba**\
 `The storm intensified quickly on Saturday. It is expected to bring heavy rain through the weekend.`\
 https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane
-
-**Thompson: Quincy Olivari's emotional Steph Curry moment shows how NBA's stars still deliver**\
-`In the era of brand saturation, self-proclaimed influencers and fabricated auras, real superstars still have real impact.`\
-https://nytimes.com/athletic/5855225/2024/10/19/quincy-olivari-stephen-curry-warriors-lakers-nba-stars/
 
