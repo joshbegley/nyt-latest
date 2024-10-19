@@ -1,3 +1,7 @@
+**In Michigan, Trade Policies and the Water Crisis Loom Large for Voters**\
+`After years of challenges, voters in this crucial swing state say they feel let down by their leaders.`\
+https://nytimes.com/interactive/2024/10/19/us/elections/flint-michigan-voters.html
+
 **The Briefing: Bournemouth 2 Arsenal 0 - Saliba sent off, unbeaten start over and hosts' set-piece magic**\
 `Jordan Campbell and Anantaajith Raghuraman analyse the main talking points from Arsenal's loss at Bournemouth`\
 https://nytimes.com/athletic/5844803/2024/10/19/bournemouth-arsenal-briefing-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855225/2024/10/19/quincy-olivari-stephen-curry-war
 **Lopetegui sorry, confident of 'better moments' for West Ham after Spurs defeat**\
 `West Ham United manager Julen Lopetegui has apologised to supporters following their 4-1 loss to Tottenham Hotspur, but is confident there will be “better moments” in the future.`\
 https://nytimes.com/athletic/5855246/2024/10/19/west-ham-julen-lopetegui-fans/
-
-**Brighton to wait on scan for Welbeck injury**\
-`Brighton &amp; Hove Albion will await the results of a scan after Danny Welbeck was taken off on a stretcher with what appeared to be a back injury during the win over Newcastle United.`\
-https://nytimes.com/athletic/5855206/2024/10/19/danny-welbeck-injury-brighton-newcastle/
 
