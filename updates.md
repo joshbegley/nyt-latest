@@ -1,3 +1,7 @@
+**Toni Vaz, Stuntwoman and Founder of N.A.A.C.P. Image Awards, Dies at 101**\
+`She created a program to honor Black artistic success in the 1960s. But she spent decades trying to get its organizers to recognize her role.`\
+https://nytimes.com/2024/10/19/arts/television/toni-vaz-dead.html
+
 **Sammy Basso, Advocate for Progeria Research, Is Dead at 28**\
 `One of only about 150 people known to have the rare fatal condition, he traveled internationally to raise awareness and participated in the search for a cure.`\
 https://nytimes.com/2024/10/19/health/sammy-basso-dead.html
