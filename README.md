@@ -1,3 +1,7 @@
+**After a few days of relative calm, Israel steps up attacks in Lebanon, killing at least two.**\
+`The aerial attack targeted an SUV traveling south on a busy highway between Jounieh and Beirut`\
+https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/after-a-few-days-of-relative-calm-israel-steps-up-attacks-in-lebanon-killing-at-least-two
+
 **Israel’s offensive in northern Gaza imperils area hospitals, health officials say.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/israels-offensive-in-northern-gaza-imperils-area-hospitals-health-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855020/2024/10/19/bukayo-saka-arsenal-bournemouth/
 **Dolphins' Tagovailoa expected to practice Wednesday, return in Week 8**\
 `Tagovailoa was placed on the injured list after sustaining a concussion in Week 2. The Dolphins have struggled mightily without him.`\
 https://nytimes.com/athletic/5854898/2024/10/19/tua-tagovailoa-return-dolphins-concussion/
-
-**Libby Titus, Introspective Singer and Songwriter, Dies at 77**\
-`Her “Love Has No Pride” was widely recorded, and she had high-profile relationships with Levon Helm and Donald Fagen. But she was uneasy with life in the spotlight.`\
-https://nytimes.com/2024/10/19/arts/music/libby-titus-dead.html
 
