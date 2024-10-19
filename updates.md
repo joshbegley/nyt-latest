@@ -1,3 +1,11 @@
+**The Blowout Series: Mets-Dodgers is bonkers baseball, an NLCS filled with runaway wins**\
+`Weird and Wild: Welcome to one of the strangest postseason baseball series ever played. Can we just call it The Blowout Series?`\
+https://nytimes.com/athletic/5854708/2024/10/19/nlcs-blowouts-score-mets-dodgers/
+
+**Small-er ball: How the Rockets and Spurs are chasing the next offensive trend**\
+`Teams are always looking to improve their offensive efficiency, though not every coach goes about it the same way. `\
+https://nytimes.com/athletic/5853707/2024/10/19/spurs-rockets-nba-offense-small-ball/
+
 **NFL Week 7 roundtable: Davante Adams' Jets debut, Chiefs-49ers and Lions-Vikings**\
 `League happenings suddenly make Week 7 one to look forward to. Between Chiefs-49ers and Davante Adams' Jets debut, our NFL writers discuss.`\
 https://nytimes.com/athletic/5854044/2024/10/19/davante-adams-jets-debut-superbowl-rematch-week-7-nfl/
