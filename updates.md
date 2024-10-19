@@ -1,3 +1,7 @@
+**Libby Titus, Introspective Singer and Songwriter, Dies at 77**\
+`Her “Love Has No Pride” was widely recorded, and she had high-profile relationships with Levon Helm and Donald Fagen. But she was uneasy with life in the spotlight.`\
+https://nytimes.com/2024/10/19/arts/music/libby-titus-dead.html
+
 **What to Make When You Have Lots of Apples But Absolutely No Energy**\
 `Enter: Genevieve Ko’s apple crisp.`\
 https://nytimes.com/2024/10/19/dining/what-to-make-when-you-have-lots-of-apples-but-absolutely-no-energy.html
