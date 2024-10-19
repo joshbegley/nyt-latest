@@ -1,3 +1,7 @@
+**Israel’s offensive in northern Gaza imperils area hospitals, health officials say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/israels-offensive-in-northern-gaza-imperils-area-hospitals-health-officials-say
+
 **The Briefing: Newcastle 0 Brighton 1 - scoring issues persist as unbeaten home run ended**\
 `Chris Waugh analyses the main talking points from Newcastle's home defeat by Brighton`\
 https://nytimes.com/athletic/5844373/2024/10/19/newcastle-brighton-briefing-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854898/2024/10/19/tua-tagovailoa-return-dolphins-c
 **Libby Titus, Introspective Singer and Songwriter, Dies at 77**\
 `Her “Love Has No Pride” was widely recorded, and she had high-profile relationships with Levon Helm and Donald Fagen. But she was uneasy with life in the spotlight.`\
 https://nytimes.com/2024/10/19/arts/music/libby-titus-dead.html
-
-**What to Make When You Have Lots of Apples But Absolutely No Energy**\
-`Enter: Genevieve Ko’s apple crisp.`\
-https://nytimes.com/2024/10/19/dining/what-to-make-when-you-have-lots-of-apples-but-absolutely-no-energy.html
 
