@@ -1,40 +1,40 @@
-**Despite Sinwar’s Death, Mideast Peace May Still Be Elusive**\
-`Just about all of the actors in the region are looking for an “offramp” to the conflict, many analysts say. But Hezbollah and Hamas are talking tough, and Israel is not backing down.`\
-https://nytimes.com/2024/10/19/world/middleeast/mideast-peace-israel-sinwar-iran.html
+**In an era of short starts, the ’pen is running out in MLB's LCS**\
+`Both series, though, have something in common: neither has featured a game where both starters lasted five innings and the 'pens are spent. `\
+https://nytimes.com/athletic/5854697/2024/10/19/mlb-bullpen-usage-nlcs-alcs/
 
-**Novelty Acts**\
-`We’re so accustomed to researching, planning and curating every millisecond of our lives that we rarely stop to consider the mental cost.`\
-https://nytimes.com/2024/10/19/briefing/finding-novelty.html
+**There Is No Safe Way to Turn Teenagers Into Megastars**\
+`How many more boy band tragedies do we need to see before we connect the dots?`\
+https://nytimes.com/2024/10/19/opinion/liam-payne-death-boy-band.html
 
-**A drone hits a building near Netanyahu’s home in coastal Israel.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/a-drone-hits-a-building-near-netanyahus-home-in-coastal-israel
+**Trump’s Charity Toward None**\
+`The Catholic Church’s latest scandal: fawning over Donald.`\
+https://nytimes.com/2024/10/19/opinion/trump-catholic-al-smith-dinner.html
 
-**The Blowout Series: Mets-Dodgers is bonkers baseball, an NLCS filled with runaway wins**\
-`Weird and Wild: Welcome to one of the strangest postseason series ever played. Can we just call it The Blowout Series?`\
-https://nytimes.com/athletic/5854708/2024/10/19/nlcs-blowouts-score-mets-dodgers/
+**Is the World Ready for a Religious Comeback?**\
+`The world seems primed for religious arguments in the same way it was primed for new atheists 20 years ago.`\
+https://nytimes.com/2024/10/19/opinion/religion-atheism-books.html
 
-**Small-er ball: How the Rockets and Spurs are chasing the next offensive trend**\
-`Teams are always looking to improve their offensive efficiency, though not every coach goes about it the same way. `\
-https://nytimes.com/athletic/5853707/2024/10/19/spurs-rockets-nba-offense-small-ball/
+**Minnesota Vikings Week 7 playbook: What to know ahead of Lions matchup**\
+`Catch up on all the latest Vikings news before they play the Lions on Sunday,`\
+https://nytimes.com/athletic/5842675/2024/10/19/minnesota-vikings-week-7-news-projections-preview/
 
-**NFL Week 7 roundtable: Davante Adams' Jets debut, Chiefs-49ers and Lions-Vikings**\
-`League happenings suddenly make Week 7 one to look forward to. Between Chiefs-49ers and Davante Adams' Jets debut, our NFL writers discuss.`\
-https://nytimes.com/athletic/5854044/2024/10/19/davante-adams-jets-debut-superbowl-rematch-week-7-nfl/
+**Detroit Lions Week 7 playbook: What to know ahead of Vikings matchup**\
+`Catch up on all the latest Lions news before Sunday's game.`\
+https://nytimes.com/athletic/5852234/2024/10/19/detroit-lions-week-7-news-projections-preview/
 
-**Vikings-Lions: What to expect from Brian Flores' defense vs. Ben Johnson's offense**\
-`What should you expect when the Vikings’ defense meets the Lions’ offense in Week 7? We break it down.`\
-https://nytimes.com/athletic/5854019/2024/10/19/vikings-lions-preview-predictions-brian-flores-defense-ben-johnson-offense/
+**Biden Has an Opportunity Now in Gaza, but Only if He Pushes**\
+`Even with Sinwar gone, I’m doubtful Hamas will fold or that Israel will easily embrace Biden’s ideas for a peace deal.`\
+https://nytimes.com/2024/10/19/opinion/sinwar-gaza-biden-netanyahu.html
 
-**CHSN's negotiations, Landon Slaggert's extension, Connor Bedard's possession: Blackhawks thoughts**\
-`Saturday's game will mark the Blackhawks' fifth regular-season game on CHSN without carriage on Comcast, and a deal doesn't sound imminent.`\
-https://nytimes.com/athletic/5854348/2024/10/19/chsn-blackhawks-landon-slaggert-connor-bedard/
+**American Business Cannot Afford to Risk Another Trump Presidency**\
+`Donald Trump is not running as a champion of business. He is running as a tribune of populist grievance.`\
+https://nytimes.com/2024/10/19/opinion/trump-business-economy.html
 
-**The Connections Companion No. 497**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 20, 2024.`\
-https://nytimes.com/2024/10/19/crosswords/connections-companion-497.html
+**The Oliver Sacks I Knew and Loved Once Saw Himself as a Failure**\
+`My dearest Jenö:`\
+https://nytimes.com/2024/10/19/opinion/oliver-sacks-letters.html
 
-**With Unusually Forceful Words, Canada Charges India With a Criminal Conspiracy**\
-`Canada expelled six Indian diplomats after the police said they had evidence that India used intimidation and even murder to silence its critics in Canada.`\
-https://nytimes.com/2024/10/19/world/canada/with-unusually-forceful-words-canada-charges-india-with-a-criminal-conspiracy.html
+**The Marijuana Landscape**\
+`Readers respond to a front-page article about the growing use of marijuana after legalization.`\
+https://nytimes.com/2024/10/19/opinion/marijuana-effects.html
 
