@@ -1,3 +1,11 @@
+**Miami survives Louisville in yet another thrilling win**\
+`Miami’s run of surviving thrillers and late-game reviews by officials extended to three games Saturday.`\
+https://nytimes.com/athletic/5855331/2024/10/19/miami-hurricanes-louisville-football-score-results/
+
+**Arteta urges Arsenal to move forward after Saliba's red card vs Bournemouth**\
+`Mikel Arteta insists Arsenal &#8220;cannot feel sorry&#8221; for themselves after playing more than an hour with 10 men in their 2-0 defeat to Bournemouth, following William Saliba&#8217;s red card at the Vitality Stadium.`\
+https://nytimes.com/athletic/5855373/2024/10/19/arteta-saliba-red-card-arsenal/
+
 **Time to take Indiana seriously? Hoosiers make case as Nebraska’s misery vs. ranked teams continues**\
 `Indiana quarterback Kurtis Rourke did not play in the second half after suffering an injury to his throwing hand. `\
 https://nytimes.com/athletic/5855282/2024/10/19/indiana-nebraska-big-ten-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/world/africa/mozambique-election-activists-killed
 **In Michigan, Trade Policies and the Water Crisis Loom Large for Voters**\
 `After years of challenges, voters in this crucial swing state say they feel let down by their leaders.`\
 https://nytimes.com/interactive/2024/10/19/us/elections/flint-michigan-voters.html
-
-**The Briefing: Bournemouth 2 Arsenal 0 - Saliba sent off, unbeaten start over and hosts' set-piece magic**\
-`Jordan Campbell and Anantaajith Raghuraman analyse the main talking points from Arsenal's loss at Bournemouth`\
-https://nytimes.com/athletic/5844803/2024/10/19/bournemouth-arsenal-briefing-analysis/
-
-**Explained: Why was William Saliba sent off for Arsenal at Bournemouth?**\
-`Breaking down the moment the French defender was dismissed for a professional foul — and what was said about it`\
-https://nytimes.com/athletic/5855231/2024/10/19/william-saliba-arsenal-red-card-explained/
 
