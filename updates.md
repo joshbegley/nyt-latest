@@ -1,3 +1,11 @@
+**Novelty Acts**\
+`We’re so accustomed to researching, planning and curating every millisecond of our lives that we rarely stop to consider the mental cost.`\
+https://nytimes.com/2024/10/19/briefing/finding-novelty.html
+
+**A drone hits a building near Netanyahu’s home in coastal Israel.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/a-drone-hits-a-building-near-netanyahus-home-in-coastal-israel
+
 **The Blowout Series: Mets-Dodgers is bonkers baseball, an NLCS filled with runaway wins**\
 `Weird and Wild: Welcome to one of the strangest postseason baseball series ever played. Can we just call it The Blowout Series?`\
 https://nytimes.com/athletic/5854708/2024/10/19/nlcs-blowouts-score-mets-dodgers/
