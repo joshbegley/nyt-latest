@@ -1,3 +1,7 @@
+**Obama makes another pitch for Harris in battleground Arizona.**\
+`By Jack Healy`\
+https://nytimes.com/live/2024/10/18/us/harris-trump-election/obama-makes-another-pitch-for-harris-in-battleground-arizona
+
 **After More Than 2 Years, Guatemalan Journalist Will Leave Prison**\
 `The case against José Rubén Zamora became a sign of crumbling democracy in Guatemala and a symbol of threats against press freedom across Latin America.`\
 https://nytimes.com/2024/10/18/world/americas/guatemala-journalist-prison-democracy.html
