@@ -1,3 +1,7 @@
+**Rotherham 0 Wrexham 1: Mullin's scoring return and explaining the New York Stadium**\
+`Richard Sutcliffe analyses the key talking points from Wrexham's win at Rotherham — played at the New York Stadium`\
+https://nytimes.com/athletic/5842055/2024/10/19/rotherham-wrexham-mullin-parkinson/
+
 **Cuba Suffers Second Power Outage in 24 Hours, Realizing Years of Warnings**\
 `Fidel Castro once called Cuba’s power plants “prehistoric.” But the country still relies on them, contributing to the longest blackout since the collapse of its former patron, the Soviet Union.`\
 https://nytimes.com/2024/10/19/world/americas/cuba-power-outage.html
