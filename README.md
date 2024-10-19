@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5844373/2024/10/19/newcastle-brighton-briefing-anal
 `The main talking points from Old Trafford as under-pressure Dutch manager earns a precious victory`\
 https://nytimes.com/athletic/5844372/2024/10/19/manchester-united-brentford-result-analysis/
 
+**Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
+`Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
+https://nytimes.com/athletic/5846218/2024/10/19/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
+
 **Toni Vaz, Stuntwoman and Founder of N.A.A.C.P. Image Awards, Dies at 101**\
 `She created a program to honor Black artistic success in the 1960s. But she spent decades trying to get its organizers to recognize her role.`\
 https://nytimes.com/2024/10/19/arts/television/toni-vaz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
 **Arteta explains Saka absence: 'There was no point pushing him'**\
 `Bukayo Saka missed Arsenal&#8217;s trip to Bournemouth on Saturday with Mikel Arteta not wanting to take any risks with one of his key players.`\
 https://nytimes.com/athletic/5855020/2024/10/19/bukayo-saka-arsenal-bournemouth/
-
-**Dolphins' Tagovailoa expected to practice Wednesday, return in Week 8**\
-`Tagovailoa was placed on the injured list after sustaining a concussion in Week 2. The Dolphins have struggled mightily without him.`\
-https://nytimes.com/athletic/5854898/2024/10/19/tua-tagovailoa-return-dolphins-concussion/
 
