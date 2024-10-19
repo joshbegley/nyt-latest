@@ -1,3 +1,7 @@
+**Wisconsin shows off its toughness: Takeaways from Badgers' win at Northwestern**\
+`Wisconsin shows off its toughness in knocking off Northwestern for the Badgers' third straight win.`\
+https://nytimes.com/athletic/5854936/2024/10/19/wisconsin-northwestern-football-score-results-takeaways/
+
 **Pavlovic suffers suspected broken collarbone**\
 `Bayern Munich midfielder Aleksandar Pavlovic has suffered a suspected broken collarbone.`\
 https://nytimes.com/athletic/5855349/2024/10/19/aleksandar-pavlovic-bayern-munich-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/business/frozen-waffles-recall-listeria.html
 **Tracking Hurricane Oscar**\
 `See the likely path and wind arrival times for Oscar.`\
 https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html
-
-**Here’s the latest on the storm.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane/heres-the-latest-on-the-storm
 
