@@ -1,3 +1,7 @@
+**The Briefing: Tottenham Hotspur 4 West Ham 1 - Relentless Spurs, vintage Son and Udogie revival**\
+`Jack Pitt-Brooke and Jay Harris break down the main talking points from Tottenham Hotspur's 4-1 win over West Ham United`\
+https://nytimes.com/athletic/5844370/2024/10/19/tottenham-4-west-ham-1-son-udogie-kulusevski/
+
 **Russini’s what I’m hearing: Wilson over Fields? Steelers QB controversy shocker; Tua return date set**\
 `Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns, and more`\
 https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
