@@ -31,7 +31,7 @@ https://nytimes.com/2024/10/19/opinion/sinwar-gaza-biden-netanyahu.html
 https://nytimes.com/2024/10/19/opinion/trump-business-economy.html
 
 **The Oliver Sacks I Knew and Loved Once Saw Himself as a Failure**\
-`My dearest Jenö:`\
+`I was Oliver’s partner for the last six years of his life. What I learned from reading a forthcoming volume of his letter surprised even me. `\
 https://nytimes.com/2024/10/19/opinion/oliver-sacks-letters.html
 
 **The Marijuana Landscape**\
