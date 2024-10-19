@@ -1,3 +1,7 @@
+**Corrections: Oct. 19, 2024**\
+`Corrections that appeared in print on Saturday, Oct. 19, 2024.`\
+https://nytimes.com/2024/10/18/pageoneplus/corrections-oct-19-2024.html
+
 **Dodgers' Freddie Freeman might sit Game 6: 'His swing is not right'**\
 `Freeman recorded a pair of singles and scored a run in a Game 1 victory. Since then, he has gone cold.`\
 https://nytimes.com/athletic/5854407/2024/10/18/dodgers-nlcs-freddie-freeman-status/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/world/middleeast/hamas-sinwar-ceasefire-biden.htm
 **Sinwar’s Final Moments: On the Run, Hurt, Alone, but Still Defiant**\
 `Israeli forces had been steadily closing in on Yahya Sinwar, the Hamas leader, for weeks before he was cornered and killed in a ruined house in the Gaza Strip.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-final-moments-gaza.html
-
-**Fire in Oakland Hills Prompts Evacuations Under Gusty Conditions**\
-`Firefighters in Northern California were responding to a blaze that burned two homes and 15 acres.`\
-https://nytimes.com/2024/10/18/us/oakland-hills-fire-evacuation.html
 
