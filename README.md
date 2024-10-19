@@ -1,3 +1,11 @@
+**Yamal 'ready to play'; Fermin, Gavi, Olmo could feature vs Sevilla**\
+`Lamine Yamal is in line to play for Barcelona on Sunday despite being forced to leave international duty with Spain with a hamstring injury.`\
+https://nytimes.com/athletic/5842518/2024/10/19/barcelona-team-news-sevilla-lamine-yamal/
+
+**What worked and didn't work on the Kings' season-opening road trip**\
+`Here are three positives and three negatives from the Kings' 2-1-2 start.`\
+https://nytimes.com/athletic/5854465/2024/10/19/la-kings-home-opener-trip/
+
 **For Executives, ‘Defending Democracy’ Can Seem Risky**\
 `Even seemingly anodyne sentiments supporting fair elections have become politically charged.`\
 https://nytimes.com/2024/10/19/business/dealbook/for-executives-defending-democracy-can-seem-risky.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/opinion/liam-payne-death-boy-band.html
 **Trump’s Charity Toward None**\
 `The Catholic Church’s latest scandal: fawning over Donald.`\
 https://nytimes.com/2024/10/19/opinion/trump-catholic-al-smith-dinner.html
-
-**Is the World Ready for a Religious Comeback?**\
-`The world seems primed for religious arguments in the same way it was primed for new atheists 20 years ago.`\
-https://nytimes.com/2024/10/19/opinion/religion-atheism-books.html
-
-**Minnesota Vikings Week 7 playbook: What to know ahead of Lions matchup**\
-`Catch up on all the latest Vikings news before they play the Lions on Sunday,`\
-https://nytimes.com/athletic/5842675/2024/10/19/minnesota-vikings-week-7-news-projections-preview/
 
