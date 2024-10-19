@@ -1,3 +1,7 @@
+**Sammy Basso, Advocate for Progeria Research, Is Dead at 28**\
+`One of only about 150 people known to have the rare fatal condition, he traveled internationally to raise awareness and participated in the search for a cure.`\
+https://nytimes.com/2024/10/19/health/sammy-basso-dead.html
+
 **One Thing About Trump I Am Not Worried About**\
 `This time around, it would be much harder for Trump to try to steal the election.`\
 https://nytimes.com/2024/10/19/opinion/trump-election-steal-jan-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854887/2024/10/19/americas-cup-ineos-jim-ratcliffe
 **Russini's what I’m hearing: Wilson over Fields? Steelers QB shocker; Tua return date set**\
 `Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns and more.`\
 https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
-
-**The Briefing: Tottenham Hotspur 4 West Ham 1 - Relentless Spurs, vintage Son and Udogie revival**\
-`Jack Pitt-Brooke and Jay Harris break down the main talking points from Tottenham Hotspur's 4-1 win over West Ham United`\
-https://nytimes.com/athletic/5844370/2024/10/19/tottenham-4-west-ham-1-son-udogie-kulusevski/
 
