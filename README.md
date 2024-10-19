@@ -1,3 +1,7 @@
+**Cuba Suffers Second Power Outage in 24 Hours, Realizing Years of Warnings**\
+`Fidel Castro once called Cuba’s power plants “prehistoric.” But the country still relies on them, contributing to the longest blackout since the collapse of its former patron, the Soviet Union.`\
+https://nytimes.com/2024/10/19/world/americas/cuba-power-outage.html
+
 **Miami survives Louisville in yet another thrilling win**\
 `Miami’s run of surviving thrillers and late-game reviews by officials extended to three games Saturday.`\
 https://nytimes.com/athletic/5855331/2024/10/19/miami-hurricanes-louisville-football-score-results/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/world/middleeast/israel-lebanon-lloyd-austin.html
 **Tensions Spike in Mozambique After Killing of 2 Political Activists**\
 `Leading supporters of the top opposition presidential candidate, Venâncio Mondlane, were fatally shot in their car following an election marred by allegations of fraud.`\
 https://nytimes.com/2024/10/19/world/africa/mozambique-election-activists-killed.html
-
-**In Michigan, Trade Policies and the Water Crisis Loom Large for Voters**\
-`After years of challenges, voters in this crucial swing state say they feel let down by their leaders.`\
-https://nytimes.com/interactive/2024/10/19/us/elections/flint-michigan-voters.html
 
