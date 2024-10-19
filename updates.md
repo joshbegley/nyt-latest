@@ -1,3 +1,7 @@
+**The Blowout Series: Mets-Dodgers is bonkers baseball, an NLCS filled with runaway wins**\
+`Weird and Wild: Welcome to one of the strangest postseason series ever played. Can we just call it The Blowout Series?`\
+https://nytimes.com/athletic/5854708/2024/10/19/nlcs-blowouts-score-mets-dodgers/
+
 **Despite Sinwar’s Death, Mideast Peace May Still Be Elusive**\
 `Just about all of the actors in the region are looking for an “offramp” to the conflict, many analysts say. But Hezbollah and Hamas are talking tough, and Israel is not backing down.`\
 https://nytimes.com/2024/10/19/world/middleeast/mideast-peace-israel-sinwar-iran.html
