@@ -1,3 +1,11 @@
+**After More Than 2 Years, Guatemalan Journalist Will Leave Prison**\
+`The case against José Rubén Zamora became a sign of crumbling democracy in Guatemala and a symbol of threats against press freedom across Latin America.`\
+https://nytimes.com/2024/10/18/world/americas/guatemala-journalist-prison-democracy.html
+
+**Tottenham vs West Ham preview: Storylines, odds, prediction as Spurs try to climb table**\
+`Tottenham had a loss to forget before the international break and have been stewing on it since. Can Spurs get right against West Ham?`\
+https://nytimes.com/athletic/5851409/2024/10/18/tottenham-west-ham-preview-odds-prediction/
+
 **Duke downs FSU for Blue Devils' first win over Seminoles in program history**\
 `The loss continued the Seminoles’ stunning slide from 13-0 last year to their first 1-6 start since 1975.`\
 https://nytimes.com/athletic/5854490/2024/10/18/florida-state-duke-result-takeaways/

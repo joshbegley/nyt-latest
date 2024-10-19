@@ -1,3 +1,11 @@
+**After More Than 2 Years, Guatemalan Journalist Will Leave Prison**\
+`The case against José Rubén Zamora became a sign of crumbling democracy in Guatemala and a symbol of threats against press freedom across Latin America.`\
+https://nytimes.com/2024/10/18/world/americas/guatemala-journalist-prison-democracy.html
+
+**Tottenham vs West Ham preview: Storylines, odds, prediction as Spurs try to climb table**\
+`Tottenham had a loss to forget before the international break and have been stewing on it since. Can Spurs get right against West Ham?`\
+https://nytimes.com/athletic/5851409/2024/10/18/tottenham-west-ham-preview-odds-prediction/
+
 **Duke downs FSU for Blue Devils' first win over Seminoles in program history**\
 `The loss continued the Seminoles’ stunning slide from 13-0 last year to their first 1-6 start since 1975.`\
 https://nytimes.com/athletic/5854490/2024/10/18/florida-state-duke-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/crosswords/daily-puzzle-2024-10-19.html
 **Corrections: Oct. 19, 2024**\
 `Corrections that appeared in print on Saturday, Oct. 19, 2024.`\
 https://nytimes.com/2024/10/18/pageoneplus/corrections-oct-19-2024.html
-
-**Dodgers' Freddie Freeman might sit Game 6: 'His swing is not right'**\
-`Freeman recorded a pair of singles and scored a run in a Game 1 victory. Since then, he has gone cold.`\
-https://nytimes.com/athletic/5854407/2024/10/18/dodgers-nlcs-freddie-freeman-status/
-
-**Reject Bid by Adams to Dismiss Bribery Charge, Prosecutors Urge Judge**\
-`Within days of being criminally indicted, Mayor Eric Adams asked a judge to drop one of five counts against him. Prosecutors say a jury should get to hear their evidence.`\
-https://nytimes.com/2024/10/18/nyregion/eric-adams-bribery.html
 
