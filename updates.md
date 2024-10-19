@@ -1,3 +1,7 @@
+**Tensions Spike in Mozambique After Killing of 2 Political Activists**\
+`Leading supporters of the top opposition presidential candidate, Venâncio Mondlane, were fatally shot in their car following an election marred by allegations of fraud.`\
+https://nytimes.com/2024/10/19/world/africa/mozambique-election-activists-killed.html
+
 **In Michigan, Trade Policies and the Water Crisis Loom Large for Voters**\
 `After years of challenges, voters in this crucial swing state say they feel let down by their leaders.`\
 https://nytimes.com/interactive/2024/10/19/us/elections/flint-michigan-voters.html
