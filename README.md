@@ -11,7 +11,7 @@ https://nytimes.com/2024/10/19/briefing/finding-novelty.html
 https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/a-drone-hits-a-building-near-netanyahus-home-in-coastal-israel
 
 **The Blowout Series: Mets-Dodgers is bonkers baseball, an NLCS filled with runaway wins**\
-`Weird and Wild: Welcome to one of the strangest postseason baseball series ever played. Can we just call it The Blowout Series?`\
+`Weird and Wild: Welcome to one of the strangest postseason series ever played. Can we just call it The Blowout Series?`\
 https://nytimes.com/athletic/5854708/2024/10/19/nlcs-blowouts-score-mets-dodgers/
 
 **Small-er ball: How the Rockets and Spurs are chasing the next offensive trend**\
