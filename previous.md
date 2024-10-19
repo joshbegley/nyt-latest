@@ -1,3 +1,7 @@
+**Pete Alonso, Mets torch Dodgers early to stay alive in NLCS: Takeaways**\
+`NEW YORK — The New York Mets aren&#8217;t dead yet.`\
+https://nytimes.com/athletic/5854342/2024/10/18/dodgers-mets-game-nlcs-pete-alonso/
+
 **Montana Camper Was the Victim of a Brutal Homicide, Not a Bear, Sheriff Says**\
 `Dustin Kjersem, 35, was found dead in his tent with “chop wounds” on Saturday, the authorities said. No arrests have been made.`\
 https://nytimes.com/2024/10/18/us/montana-murder-bear-attack-homicide.html
@@ -19,7 +23,7 @@ https://nytimes.com/2024/10/18/world/middleeast/hamas-sinwar-ceasefire-biden.htm
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-final-moments-gaza.html
 
 **Fire in Oakland Hills Prompts Evacuations Under Gusty Conditions**\
-`Firefighters in Northern California were responding to a blaze that burned several buildings and 15 acres.`\
+`Firefighters in Northern California were responding to a blaze that burned two homes and 15 acres.`\
 https://nytimes.com/2024/10/18/us/oakland-hills-fire-evacuation.html
 
 **Mentos, an expired passport and a map were some of the items Israel said it found near the slain Hamas leader.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/business/media/nicholas-daniloff-dead.html
 **West Bank violence spills into Palestinians’ crucial olive harvest.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/west-bank-violence-spills-into-palestinians-crucial-olive-harvest
-
-**Why Israel Targeted Yahya Sinwar**\
-`What does the killing of Yahya Sinwar, mastermind of the Oct. 7 attack, mean for Israel and Gaza? Ronen Bergman, a staff writer for The New York Times Magazine who is based in Tel Aviv, explains.`\
-https://nytimes.com/video/world/middleeast/100000009768679/who-was-yahya-sinwar.html
 
