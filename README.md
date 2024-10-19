@@ -1,3 +1,7 @@
+**Halloween’s Mutation: From Humble Holiday to Retail Monstrosity**\
+`Americans once made their own costumes and candy. Now, the holiday has rapidly commercialized, transforming into an economic juggernaut.`\
+https://nytimes.com/2024/10/19/business/halloween-shopping-retail-costume-store-growth.html
+
 **Giancarlo Stanton isn't just the Yankees' playoff savior. He's their 'second captain'**\
 `Stanton's four postseason homers have given the Yankees a boost, but his teammates speak highly of what he does behind the scenes.`\
 https://nytimes.com/athletic/5854605/2024/10/19/giancarlo-stanton-yankees-second-captain-alcs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/world/americas/south-america-drought-amazon-river
 **Meet Me at the Sculpture of the Naked Guy**\
 `Artists, collectors and art lovers gathered at the Javits Center last month for the Armory Show, where the surprises abounded.`\
 https://nytimes.com/2024/10/19/arts/armory-show-sketchpad.html
-
-**A Fan Discovers a New Story by the Author of ‘Dracula’**\
-`The work by Bram Stoker, previously unknown to scholars, will be read and included in a book launched during Dublin’s annual Bram Stoker Festival.`\
-https://nytimes.com/2024/10/19/books/-new-story-by-bram-stoker.html
 
