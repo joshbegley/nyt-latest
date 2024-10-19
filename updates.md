@@ -1,3 +1,7 @@
+**Sammy Basso, Advocate for Progeria Research, Is Dead at 28**\
+`One of only about 150 people known to have the rare fatal condition, he traveled internationally to raise awareness and participated in the search for a cure.`\
+https://nytimes.com/2024/10/19/health/sammy-basso-dead.html
+
 **One Thing About Trump I Am Not Worried About**\
 `This time around, it would be much harder for Trump to try to steal the election.`\
 https://nytimes.com/2024/10/19/opinion/trump-election-steal-jan-6.html
