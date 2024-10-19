@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5851440/2024/10/19/manchester-united-brentford-prev
 https://nytimes.com/2024/10/18/pageoneplus/quote-of-the-day-a-gnarly-free-for-all-that-is-finally-for-all.html
 
 **Yankees survive another late-inning thriller, lead Guardians 3-1 in ALCS: Takeaways**\
-`New York rallied against Cleveland closer Emmanuel Clase in the top of the ninth and now find themselves one win away from the World Series`\
+`New York rallied against Cleveland closer Emmanuel Clase in the top of the ninth and now find themselves one win away from the World Series.`\
 https://nytimes.com/athletic/5854446/2024/10/18/yankees-guardians-score-mlb-playoffs-alcs/
 
 **Man Arrested in Japan After Attack on Governing Party Headquarters**\
