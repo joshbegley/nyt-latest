@@ -1,9 +1,13 @@
+**Yankees survive another late-inning thriller, lead Guardians 3-1 in ALCS: Takeaways**\
+`New York rallied against Cleveland closer Emmanuel Clase in the top of the ninth and now find themselves one win away from the World Series`\
+https://nytimes.com/athletic/5854446/2024/10/18/yankees-guardians-score-mlb-playoffs-alcs/
+
 **Man Arrested in Japan After Attack on Governing Party Headquarters**\
 `An assailant tried to breach security at the office of the new prime minister, Shigeru Ishiba, a public broadcaster reported.`\
 https://nytimes.com/2024/10/18/world/asia/japan-party-attack.html
 
 **Goaltending wasn't the story — for once — in Penguins' loss to Hurricanes**\
-`Friday's loss proved that it doesn't matter which goalie is between the pipes until the Penguins improve their play in front of the net.`\
+`Friday's loss proved it doesn't matter which goalie is between the pipes until the Penguins improve their play in front of the net.`\
 https://nytimes.com/athletic/5854514/2024/10/18/penguins-hurricanes-loss-goaltending/
 
 **Obama makes another pitch for Harris in battleground Arizona.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854430/2024/10/18/liberty-lynx-wnba-finals-game-4-
 **Ryne Stanek, Edwin Díaz deliver heroic bullpen performance to force Game 6**\
 `The Mets extended their season with a 12-6 win over the Dodgers that felt tenser than the margin, due in part to their bullpen.`\
 https://nytimes.com/athletic/5854438/2024/10/18/new-york-mets-bullpen-nlcs-game-5/
-
-**Dodgers and Jack Flaherty wear it after a poor start as Mets cruise in Game 5**\
-`The Dodgers used their key bullpen arms for a grand total of one batter as Dave Roberts considered the bigger picture.`\
-https://nytimes.com/athletic/5854420/2024/10/18/dodgers-mets-nlcs-jack-flaherty/
 
