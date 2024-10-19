@@ -23,7 +23,7 @@ https://nytimes.com/2024/10/19/health/sammy-basso-dead.html
 https://nytimes.com/2024/10/19/opinion/trump-election-steal-jan-6.html
 
 **Boeing Union Says It Will Vote on New Proposal to End Strike**\
-`The machinists union that represents more than 33,000 workers said that the deal includes raises of 35 percent over the four-year life of the contract.`\
+`The deal reached by the machinists union, which represents more than 33,000 workers, would cumulatively raise wages by nearly 40 percent over four years, according to details shared by the union.`\
 https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
 
 **Arteta explains Saka absence: 'There was no point pushing him'**\
