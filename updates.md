@@ -1,3 +1,7 @@
+**Man United vs Brentford preview: Storylines, odds, prediction as Red Devils are favored**\
+`Erik ten Hag is hoping to avoid the sack for a struggling Manchester United side. Can the Red Devils end a winless run against Brentford?`\
+https://nytimes.com/athletic/5851440/2024/10/19/manchester-united-brentford-preview-odds-prediction/
+
 **Quote of the Day: A Gnarly Free-for-All That Is, Finally, for All**\
 `Quotation of the Day for Saturday, October 19, 2024`\
 https://nytimes.com/2024/10/18/pageoneplus/quote-of-the-day-a-gnarly-free-for-all-that-is-finally-for-all.html

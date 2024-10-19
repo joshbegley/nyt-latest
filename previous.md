@@ -1,3 +1,7 @@
+**Man United vs Brentford preview: Storylines, odds, prediction as Red Devils are favored**\
+`Erik ten Hag is hoping to avoid the sack for a struggling Manchester United side. Can the Red Devils end a winless run against Brentford?`\
+https://nytimes.com/athletic/5851440/2024/10/19/manchester-united-brentford-preview-odds-prediction/
+
 **Quote of the Day: A Gnarly Free-for-All That Is, Finally, for All**\
 `Quotation of the Day for Saturday, October 19, 2024`\
 https://nytimes.com/2024/10/18/pageoneplus/quote-of-the-day-a-gnarly-free-for-all-that-is-finally-for-all.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854490/2024/10/18/florida-state-duke-result-takeaw
 **Mets played 'loose and focused' in Game 5 and it saved their season**\
 `The Mets remain capable of explosive offensive games because of the depth of their lineup.`\
 https://nytimes.com/athletic/5854484/2024/10/18/mets-dodgers-nlcs-mood/
-
-**Lynx force WNBA Finals Game 5 in nail-biting win over Liberty**\
-`Minnesota's Bridget Carleton sank two free throws to put the Lynx up two and secure the win.`\
-https://nytimes.com/athletic/5854430/2024/10/18/liberty-lynx-wnba-finals-game-4-result-takeaways/
 
