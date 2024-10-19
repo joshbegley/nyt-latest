@@ -22,8 +22,8 @@ https://nytimes.com/2024/10/19/opinion/trump-election-steal-jan-6.html
 `The machinists union that represents more than 33,000 workers said that the deal includes raises of 35 percent over the four-year life of the contract.`\
 https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
 
-**Saka out of Arsenal squad for Bournemouth match**\
-`Bukayo Saka has not travelled with Arsenal’s squad for their Premier League match against Bournemouth on Saturday evening.`\
+**Arteta explains Saka absence: 'There was no point pushing him'**\
+`Bukayo Saka missed Arsenal&#8217;s trip to Bournemouth on Saturday with Mikel Arteta not wanting to take any risks with one of his key players.`\
 https://nytimes.com/athletic/5855020/2024/10/19/bukayo-saka-arsenal-bournemouth/
 
 **Dolphins' Tagovailoa expected to practice Wednesday, return in Week 8**\

@@ -1,3 +1,7 @@
+**Arteta explains Saka absence: 'There was no point pushing him'**\
+`Bukayo Saka missed Arsenal&#8217;s trip to Bournemouth on Saturday with Mikel Arteta not wanting to take any risks with one of his key players.`\
+https://nytimes.com/athletic/5855020/2024/10/19/bukayo-saka-arsenal-bournemouth/
+
 **The Briefing: Man Utd 2 Brentford 1 - Ten Hag safe for now after De Ligt controversy**\
 `The main talking points from Old Trafford as under-pressure Dutch manager earns a precious victory`\
 https://nytimes.com/athletic/5844372/2024/10/19/manchester-united-brentford-result-analysis/
