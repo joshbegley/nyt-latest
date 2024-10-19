@@ -1,3 +1,19 @@
+**In appreciation of Luka Modric, the magician about to become Real Madrid's oldest-ever player**\
+`Modric will surpass the great Ferenc Puskas, who played for Madrid at 39 years and 38 days, the next time he appears for the Spanish club`\
+https://nytimes.com/athletic/5830617/2024/10/19/modric-real-madrid-croatia-dinamo-tottenham-chelsea/
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/10/19/nhl-standings-playoffs-projections-odds/
+
+**Ipswich and their latest U.S. investors: 'It’s been a rocket ship and we’re holding onto the wings'**\
+`Three of the key players in the Bright Path deal answer a Q&A on why they did it, how they want to grow the club, and Ed Sheeran's role`\
+https://nytimes.com/athletic/5847545/2024/10/19/ipswich-town-bright-path-investors-ed-sheeran/
+
+**"I quit football at 15 after so many rejections - I want to play in the Champions League"**\
+`The Bournemouth winger is catching the eye in the Premier League - he has come a long way since clubs continually turned their backs on him`\
+https://nytimes.com/athletic/5852874/2024/10/19/bournemouth-antoine-semenyo-interview/
+
 **Manchester City have a specific defensive flaw - but will their rivals be able to take advantage?**\
 `City have conceded as many goals as Liverpool and Arsenal combined this season, and Pep Guardiola is aware of the reason why`\
 https://nytimes.com/athletic/5851207/2024/10/19/manchester-city-weakness-counters/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5850724/2024/10/19/alabama-tennessee-picks-odds-how
 **Man United vs Brentford preview: Storylines, odds, prediction as Red Devils are favored**\
 `Erik ten Hag is hoping to avoid the sack for a struggling Manchester United side. Can the Red Devils end a winless run against Brentford?`\
 https://nytimes.com/athletic/5851440/2024/10/19/manchester-united-brentford-preview-odds-prediction/
-
-**Quote of the Day: A Gnarly Free-for-All That Is, Finally, for All**\
-`Quotation of the Day for Saturday, October 19, 2024`\
-https://nytimes.com/2024/10/18/pageoneplus/quote-of-the-day-a-gnarly-free-for-all-that-is-finally-for-all.html
-
-**Yankees survive another late-inning thriller, lead Guardians 3-1 in ALCS: Takeaways**\
-`New York rallied against Cleveland closer Emmanuel Clase in the top of the ninth and now find themselves one win away from the World Series.`\
-https://nytimes.com/athletic/5854446/2024/10/18/yankees-guardians-score-mlb-playoffs-alcs/
-
-**Man Arrested in Japan After Attack on Governing Party Headquarters**\
-`An assailant tried to breach security at the office of the new prime minister, Shigeru Ishiba, a public broadcaster reported.`\
-https://nytimes.com/2024/10/18/world/asia/japan-party-attack.html
-
-**Goaltending wasn't the story — for once — in Penguins' loss to Hurricanes**\
-`Friday's loss proved it doesn't matter which goalie is between the pipes until the Penguins improve their play in front of the net.`\
-https://nytimes.com/athletic/5854514/2024/10/18/penguins-hurricanes-loss-goaltending/
 
