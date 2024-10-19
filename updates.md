@@ -1,3 +1,7 @@
+**One Thing About Trump I Am Not Worried About**\
+`This time around, it would be much harder for Trump to try to steal the election.`\
+https://nytimes.com/2024/10/19/opinion/trump-election-steal-jan-6.html
+
 **Boeing Union Says It Will Vote on New Proposal to End Strike**\
 `The machinists union that represents more than 33,000 workers said that the deal includes raises of 35 percent over the four-year life of the contract.`\
 https://nytimes.com/2024/10/19/business/boeing-strike-deal.html

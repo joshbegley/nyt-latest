@@ -1,3 +1,7 @@
+**One Thing About Trump I Am Not Worried About**\
+`This time around, it would be much harder for Trump to try to steal the election.`\
+https://nytimes.com/2024/10/19/opinion/trump-election-steal-jan-6.html
+
 **Boeing Union Says It Will Vote on New Proposal to End Strike**\
 `The machinists union that represents more than 33,000 workers said that the deal includes raises of 35 percent over the four-year life of the contract.`\
 https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-
 **The Briefing: Tottenham Hotspur 4 West Ham 1 - Relentless Spurs, vintage Son and Udogie revival**\
 `Jack Pitt-Brooke and Jay Harris break down the main talking points from Tottenham Hotspur's 4-1 win over West Ham United`\
 https://nytimes.com/athletic/5844370/2024/10/19/tottenham-4-west-ham-1-son-udogie-kulusevski/
-
-**Bronny James scores 17 to end first preseason on a high note**\
-`Bronny James is headed toward history with momentum.`\
-https://nytimes.com/athletic/5854846/2024/10/19/bronny-james-preseason-scoring-high/
 
