@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/19/us/politics/harris-charlie-sykes-wisconsin.html
 `Some products were sold under the brands of major retailers like Kroger, Price Chopper and Walmart. No illnesses so far have been linked to the waffles.`\
 https://nytimes.com/2024/10/19/business/frozen-waffles-recall-listeria.html
 
-**Tracking Tropical Storm Oscar**\
+**Tracking Hurricane Oscar**\
 `See the likely path and wind arrival times for Oscar.`\
 https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html
 
