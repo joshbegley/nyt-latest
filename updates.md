@@ -1,3 +1,11 @@
+**Dodgers and Jack Flaherty wear it after a poor start as Mets cruise in Game 5**\
+`The Dodgers used their key bullpen arms for a grand total of one batter as Dave Roberts considered the bigger picture.`\
+https://nytimes.com/athletic/5854420/2024/10/18/dodgers-mets-nlcs-jack-flaherty/
+
+**Trump Tries to Rewrite History of Jan. 6 in Campaign’s Final Stretch**\
+`Donald J. Trump amplified a conspiracy theory that the federal government had staged the Capitol attack and compared jailed rioters to Japanese Americans in internment camps during World War II.`\
+https://nytimes.com/2024/10/18/us/politics/trump-jan-6.html
+
 **Impressively Respectful Types**\
 `August Miller makes an imposing Saturday debut.`\
 https://nytimes.com/2024/10/18/crosswords/daily-puzzle-2024-10-19.html

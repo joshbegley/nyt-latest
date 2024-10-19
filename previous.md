@@ -1,3 +1,11 @@
+**Dodgers and Jack Flaherty wear it after a poor start as Mets cruise in Game 5**\
+`The Dodgers used their key bullpen arms for a grand total of one batter as Dave Roberts considered the bigger picture.`\
+https://nytimes.com/athletic/5854420/2024/10/18/dodgers-mets-nlcs-jack-flaherty/
+
+**Trump Tries to Rewrite History of Jan. 6 in Campaign’s Final Stretch**\
+`Donald J. Trump amplified a conspiracy theory that the federal government had staged the Capitol attack and compared jailed rioters to Japanese Americans in internment camps during World War II.`\
+https://nytimes.com/2024/10/18/us/politics/trump-jan-6.html
+
 **Impressively Respectful Types**\
 `August Miller makes an imposing Saturday debut.`\
 https://nytimes.com/2024/10/18/crosswords/daily-puzzle-2024-10-19.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/us/montana-murder-bear-attack-homicide.html
 **What Will Become of Yahya Sinwar’s Body?**\
 `Uncertainty surrounds the fate of the Hamas leader’s corpse as experts say Israel will likely try to avoid having his resting place become a shrine.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-body.html
-
-**California Man Is Charged With Drugging and Sexually Assaulting 9 Women**\
-`The man, Michael DiGiorgio, is also charged with murdering one of the women, who died after being drugged, prosecutors said.`\
-https://nytimes.com/2024/10/18/us/redondo-beach-sexual-assault-drugging-women-california.html
-
-**Hamas Says Its Demands Are Unchanged as Biden Pushes for Gaza Cease-Fire**\
-`A top deputy to the killed Hamas leader Yahya Sinwar vowed that his “banner will not fall” and that the group would hold to its cease-fire conditions.`\
-https://nytimes.com/2024/10/18/world/middleeast/hamas-sinwar-ceasefire-biden.html
 
