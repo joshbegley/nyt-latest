@@ -1,3 +1,7 @@
+**Explained: Why was William Saliba sent off for Arsenal at Bournemouth?**\
+`Breaking down the moment when French defender was dismissed for a professional foul - and what was said about it`\
+https://nytimes.com/athletic/5855231/2024/10/19/william-saliba-arsenal-red-card-explained/
+
 **Harris to Court Moderates With a Onetime Right-Wing Provocateur**\
 `Charlie Sykes, the anti-Trump conservative commentator joining the vice president in Wisconsin on Monday, in the past amplified false claims of voter fraud and referred to Michelle Obama as “Mooch.”`\
 https://nytimes.com/2024/10/19/us/politics/harris-charlie-sykes-wisconsin.html
