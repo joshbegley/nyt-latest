@@ -1,3 +1,7 @@
+**F1 meets Georgia-Texas: Austin readies for one of its biggest sports weekends**\
+`For the first time, F1 is sharing a major American city with a huge college football game — and the collaboration is well underway. `\
+https://nytimes.com/athletic/5851143/2024/10/19/f1-georgia-texas-game-austin-us-gp/
+
 **Yamal 'ready to play'; Fermin, Gavi, Olmo could feature vs Sevilla**\
 `Lamine Yamal is in line to play for Barcelona on Sunday despite being forced to leave international duty with Spain with a hamstring injury.`\
 https://nytimes.com/athletic/5842518/2024/10/19/barcelona-team-news-sevilla-lamine-yamal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854697/2024/10/19/mlb-bullpen-usage-nlcs-alcs/
 **There Is No Safe Way to Turn Teenagers Into Megastars**\
 `How many more boy band tragedies do we need to see before we connect the dots?`\
 https://nytimes.com/2024/10/19/opinion/liam-payne-death-boy-band.html
-
-**Trump’s Charity Toward None**\
-`The Catholic Church’s latest scandal: fawning over Donald.`\
-https://nytimes.com/2024/10/19/opinion/trump-catholic-al-smith-dinner.html
 

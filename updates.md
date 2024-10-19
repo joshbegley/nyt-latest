@@ -1,3 +1,7 @@
+**F1 meets Georgia-Texas: Austin readies for one of its biggest sports weekends**\
+`For the first time, F1 is sharing a major American city with a huge college football game — and the collaboration is well underway. `\
+https://nytimes.com/athletic/5851143/2024/10/19/f1-georgia-texas-game-austin-us-gp/
+
 **Yamal 'ready to play'; Fermin, Gavi, Olmo could feature vs Sevilla**\
 `Lamine Yamal is in line to play for Barcelona on Sunday despite being forced to leave international duty with Spain with a hamstring injury.`\
 https://nytimes.com/athletic/5842518/2024/10/19/barcelona-team-news-sevilla-lamine-yamal/
