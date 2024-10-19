@@ -1,3 +1,7 @@
+**Pete Alonso, Mets torch Dodgers early to stay alive in NLCS: Takeaways**\
+`NEW YORK — The New York Mets aren&#8217;t dead yet.`\
+https://nytimes.com/athletic/5854342/2024/10/18/mets-dodgers-score-takeaways-mlb-playoffs-nlcs/
+
 **Reject Bid by Adams to Dismiss Bribery Charge, Prosecutors Urge Judge**\
 `Within days of being criminally indicted, Mayor Eric Adams asked a judge to drop one of five counts against him. Prosecutors say a jury should get to hear their evidence.`\
 https://nytimes.com/2024/10/18/nyregion/eric-adams-bribery.html
