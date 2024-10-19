@@ -1,3 +1,11 @@
+**The Briefing: Tottenham \3 West Ham 1 - Relentless Spurs, vintage Son and an Udogie revival**\
+`Jack Pitt-Brooke and Jay Harris break down the main talking points from Tottenham Hotspur's 4-1 win over West Ham United`\
+https://nytimes.com/athletic/5844370/2024/10/19/tottenham-4-west-ham-1-son-udogie-kulusevski/
+
+**Bronny James scores 17 to end first preseason on a high note**\
+`Bronny James is headed toward history with momentum.`\
+https://nytimes.com/athletic/5854846/2024/10/19/bronny-james-preseason-scoring-high/
+
 **F1 meets Georgia-Texas: Austin readies for one of its biggest sports weekends**\
 `For the first time, F1 is sharing a major American city with a huge college football game — and the collaboration is well underway. `\
 https://nytimes.com/athletic/5851143/2024/10/19/f1-georgia-texas-game-austin-us-gp/
