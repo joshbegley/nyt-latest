@@ -1,3 +1,7 @@
+**Why Israel Targeted Yahya Sinwar**\
+`What does the killing of Yahya Sinwar, mastermind of the Oct. 7 attack, mean for Israel and Gaza? Ronen Bergman, a staff writer for The New York Times Magazine who is based in Tel Aviv, explains.`\
+https://nytimes.com/video/world/middleeast/100000009768679/who-was-yahya-sinwar.html
+
 **Pete Alonso, Mets torch Dodgers early to stay alive in NLCS: Takeaways**\
 `NEW YORK — The New York Mets aren&#8217;t dead yet.`\
 https://nytimes.com/athletic/5854342/2024/10/18/dodgers-mets-game-nlcs-pete-alonso/
