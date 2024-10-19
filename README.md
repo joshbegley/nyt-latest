@@ -1,3 +1,7 @@
+**Lando Norris takes F1 United States GP pole**\
+`A late crash by George Russell ensured the two championship contenders start on the front row on Sunday.`\
+https://nytimes.com/athletic/5855618/2024/10/19/f1-lando-norris-pole-united-states-gp/
+
 **Leaked U.S. Intelligence Suggests Israel Is Preparing to Strike Iran**\
 `American officials are trying to determine the source of the leak, which describes military drills and weapons placement, and how damaging it might be.`\
 https://nytimes.com/2024/10/19/us/politics/us-intelligence-israel-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853709/2024/10/19/gary-oneil-wolves-responsibility
 **Families of Israeli Hostages Call on Netanyahu to Return Their Loved Ones**\
 `In a televised statement, family members of people held in Gaza said the death of Hamas’s leader, Yahya Sinwar, was the moment for a cease-fire and hostage deal.`\
 https://nytimes.com/2024/10/19/world/middleeast/israeli-hostages-netanyahu-gaza-ceasefire.html
-
-**Vulnerable Senate Democrat Promotes Trump Ties in New Ad**\
-`The spot, which says that Senator Bob Casey of Pennsylvania had “sided with Trump” on trade and tariffs, was quickly denounced by the Trump campaign.`\
-https://nytimes.com/2024/10/19/us/politics/casey-pennsylvania-senate-ad-trump.html
 
