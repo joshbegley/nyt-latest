@@ -1,3 +1,7 @@
+**BYU remains undefeated with stunning late TD vs. Oklahoma State**\
+`The Cougars won on a 35-yard touchdown pass from QB Jake Retzlaff to WR Darius Lassiter with ten seconds remaining in the game.`\
+https://nytimes.com/athletic/5854633/2024/10/19/byu-undefeated-oklahoma-state-score-result/
+
 **Tropical Storm Nadine Forms in the Caribbean**\
 `The storm is expected to bring heavy rain to Mexico, Belize and Guatemala this weekend.`\
 https://nytimes.com/2024/10/19/weather/tropical-storm-nadine.html
