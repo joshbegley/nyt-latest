@@ -1,3 +1,11 @@
+**The Briefing: Rotherham 0 Wrexham 1: Mullin's scoring return and explaining the New York Stadium**\
+`Richard Sutcliffe analyses the key talking points from Wrexham's win at Rotherham - played at the New York Stadium`\
+https://nytimes.com/athletic/5842055/2024/10/19/rotherham-wrexham-mullin-parkinson/
+
+**Wisconsin shows off its toughness: Takeaways from Badgers' win at Northwestern**\
+`Wisconsin shows off its toughness in knocking off Northwestern for the Badgers' third straight win.`\
+https://nytimes.com/athletic/5854936/2024/10/19/wisconsin-northwestern-football-score-results-takeaways/
+
 **Pavlovic suffers suspected broken collarbone**\
 `Bayern Munich midfielder Aleksandar Pavlovic has suffered a suspected broken collarbone.`\
 https://nytimes.com/athletic/5855349/2024/10/19/aleksandar-pavlovic-bayern-munich-injury/
