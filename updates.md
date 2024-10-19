@@ -1,3 +1,7 @@
+**Mets played 'loose and focused' in Game 5 and it saved their season**\
+`The Mets remain capable of explosive offensive games because of the depth of their lineup.`\
+https://nytimes.com/athletic/5854484/2024/10/18/mets-dodgers-nlcs-mood/
+
 **Lynx force WNBA Finals Game 5 in nail-biting win over Liberty**\
 `Minnesota's Bridget Carleton sank two free throws to put the Lynx up two and secure the win.`\
 https://nytimes.com/athletic/5854430/2024/10/18/liberty-lynx-wnba-finals-game-4-result-takeaways/

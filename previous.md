@@ -1,3 +1,7 @@
+**Mets played 'loose and focused' in Game 5 and it saved their season**\
+`The Mets remain capable of explosive offensive games because of the depth of their lineup.`\
+https://nytimes.com/athletic/5854484/2024/10/18/mets-dodgers-nlcs-mood/
+
 **Lynx force WNBA Finals Game 5 in nail-biting win over Liberty**\
 `Minnesota's Bridget Carleton sank two free throws to put the Lynx up two and secure the win.`\
 https://nytimes.com/athletic/5854430/2024/10/18/liberty-lynx-wnba-finals-game-4-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/nyregion/eric-adams-bribery.html
 **New York Man Who Brought Knife to Jan. 6 Riot Pleads Guilty to a Felony**\
 `Christopher D. Finney was charged after federal investigators found images of him during a search of a “militia” group chat, prosecutors said.`\
 https://nytimes.com/2024/10/18/nyregion/jan-6-guilty-plea-ny-man-christopher-finney.html
-
-**Pete Alonso, Mets torch Dodgers early to stay alive in NLCS: Takeaways**\
-`NEW YORK — The New York Mets aren&#8217;t dead yet.`\
-https://nytimes.com/athletic/5854342/2024/10/18/mets-dodgers-score-takeaways-mlb-playoffs-nlcs/
 
