@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris and Trump Keep Focus on Battlegrounds**\
+`Vice President Kamala Harris will start the day in Michigan and finish with an event in Georgia with the singer Usher. Former President Donald J. Trump will hold a rally outside Pittsburgh.`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election
+
+**2 Unexpected Books for Spooky Season**\
+`A haunted author; haunted dolls.`\
+https://nytimes.com/2024/10/19/books/read-like-wind-recommendations.html
+
 **The Oliver Sacks I Knew and Loved Once Saw Himself as a Failure**\
 `I was Oliver’s partner for the last six years of his life. What I learned from reading a forthcoming volume of his letter surprised even me. `\
 https://nytimes.com/2024/10/19/opinion/oliver-sacks-letters.html

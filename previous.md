@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris and Trump Keep Focus on Battlegrounds**\
+`Vice President Kamala Harris will start the day in Michigan and finish with an event in Georgia with the singer Usher. Former President Donald J. Trump will hold a rally outside Pittsburgh.`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election
+
+**2 Unexpected Books for Spooky Season**\
+`A haunted author; haunted dolls.`\
+https://nytimes.com/2024/10/19/books/read-like-wind-recommendations.html
+
 **In an era of short starts, the ’pen is running out in MLB's LCS**\
 `Both series, though, have something in common: neither has featured a game where both starters lasted five innings and the 'pens are spent. `\
 https://nytimes.com/athletic/5854697/2024/10/19/mlb-bullpen-usage-nlcs-alcs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5852234/2024/10/19/detroit-lions-week-7-news-projec
 **Biden Has an Opportunity Now in Gaza, but Only if He Pushes**\
 `Even with Sinwar gone, I’m doubtful Hamas will fold or that Israel will easily embrace Biden’s ideas for a peace deal.`\
 https://nytimes.com/2024/10/19/opinion/sinwar-gaza-biden-netanyahu.html
-
-**American Business Cannot Afford to Risk Another Trump Presidency**\
-`Donald Trump is not running as a champion of business. He is running as a tribune of populist grievance.`\
-https://nytimes.com/2024/10/19/opinion/trump-business-economy.html
-
-**The Oliver Sacks I Knew and Loved Once Saw Himself as a Failure**\
-`I was Oliver’s partner for the last six years of his life. What I learned from reading a forthcoming volume of his letter surprised even me. `\
-https://nytimes.com/2024/10/19/opinion/oliver-sacks-letters.html
-
-**The Marijuana Landscape**\
-`Readers respond to a front-page article about the growing use of marijuana after legalization.`\
-https://nytimes.com/2024/10/19/opinion/marijuana-effects.html
 
