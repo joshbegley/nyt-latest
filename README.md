@@ -1,3 +1,11 @@
+**Boeing Union Says It Will Vote on New Proposal to End Strike**\
+`The machinists union that represents more than 33,000 workers said that the deal includes raises of 35 percent over the four-year life of the contract.`\
+https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
+
+**Saka out of Arsenal squad for Bournemouth clash**\
+`Bukayo Saka has not travelled with Arsenal’s squad for their Premier League match against Bournemouth on Saturday evening.`\
+https://nytimes.com/athletic/5855020/2024/10/19/bukayo-saka-arsenal-bournemouth/
+
 **Dolphins' Tagovailoa expected to practice Wednesday, return in Week 8**\
 `Tagovailoa was placed on the injured list after sustaining a concussion in Week 2. The Dolphins have struggled mightily without him.`\
 https://nytimes.com/athletic/5854898/2024/10/19/tua-tagovailoa-return-dolphins-concussion/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5844370/2024/10/19/tottenham-4-west-ham-1-son-udogi
 **Bronny James scores 17 to end first preseason on a high note**\
 `Bronny James is headed toward history with momentum.`\
 https://nytimes.com/athletic/5854846/2024/10/19/bronny-james-preseason-scoring-high/
-
-**F1 meets Georgia-Texas: Austin readies for one of its biggest sports weekends**\
-`For the first time, F1 is sharing a major American city with a huge college football game — and the collaboration is well underway. `\
-https://nytimes.com/athletic/5851143/2024/10/19/f1-georgia-texas-game-austin-us-gp/
-
-**Yamal 'ready to play'; Fermin, Gavi, Olmo could feature vs Sevilla**\
-`Lamine Yamal is in line to play for Barcelona on Sunday despite being forced to leave international duty with Spain with a hamstring injury.`\
-https://nytimes.com/athletic/5842518/2024/10/19/barcelona-team-news-sevilla-lamine-yamal/
 
