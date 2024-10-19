@@ -1,3 +1,7 @@
+**Despite Sinwar’s Death, Mideast Peace May Still Be Elusive**\
+`Just about all of the actors in the region are looking for an “offramp” to the conflict, many analysts say. But Hezbollah and Hamas are talking tough, and Israel is not backing down.`\
+https://nytimes.com/2024/10/19/world/middleeast/mideast-peace-israel-sinwar-iran.html
+
 **Novelty Acts**\
 `We’re so accustomed to researching, planning and curating every millisecond of our lives that we rarely stop to consider the mental cost.`\
 https://nytimes.com/2024/10/19/briefing/finding-novelty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/crosswords/connections-companion-497.html
 **With Unusually Forceful Words, Canada Charges India With a Criminal Conspiracy**\
 `Canada expelled six Indian diplomats after the police said they had evidence that India used intimidation and even murder to silence its critics in Canada.`\
 https://nytimes.com/2024/10/19/world/canada/with-unusually-forceful-words-canada-charges-india-with-a-criminal-conspiracy.html
-
-**Wordle Review No. 1,219**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 20, 2024.`\
-https://nytimes.com/2024/10/19/crosswords/wordle-review-no-1219.html
 
