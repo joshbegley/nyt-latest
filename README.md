@@ -8,7 +8,7 @@ https://nytimes.com/2024/10/18/nyregion/jan-6-guilty-plea-ny-man-christopher-fin
 
 **Pete Alonso, Mets torch Dodgers early to stay alive in NLCS: Takeaways**\
 `NEW YORK — The New York Mets aren&#8217;t dead yet.`\
-https://nytimes.com/athletic/5854342/2024/10/18/ets-dodgers-score-takeaways-mlb-playoffs-nlcs/
+https://nytimes.com/athletic/5854342/2024/10/18/mets-dodgers-score-takeaways-mlb-playoffs-nlcs/
 
 **Montana Camper Was the Victim of a Brutal Homicide, Not a Bear, Sheriff Says**\
 `Dustin Kjersem, 35, was found dead in his tent with “chop wounds” on Saturday, the authorities said. No arrests have been made.`\
