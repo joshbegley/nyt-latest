@@ -1,40 +1,40 @@
-**Despite Israeli Bombs and Assassinations, Hezbollah Keeps Fighting**\
-`Extensive Israeli attacks have blown up Hezbollah munitions and killed many fighters and leaders, but the Lebanese militia is far from incapacitated, analysts say.`\
-https://nytimes.com/2024/10/19/world/middleeast/israel-hezbollah-lebanon-war.html
+**Harris and Liz Cheney Will Team Up for a Pitch to Blue-Wall Suburbs**\
+`The vice president and her top Republican surrogate will appear together for “moderated conversations” in the suburbs of Philadelphia, Detroit and Milwaukee.`\
+https://nytimes.com/2024/10/19/us/politics/harris-liz-cheney.html
 
-**Split-Ticket Voters Buoy Democrats in Key Senate Races**\
-`In the battleground state of Arizona and other important pockets of the country, polling suggests that voters backing the former president are eschewing Republican Senate candidates.`\
-https://nytimes.com/2024/10/19/us/politics/split-ticket-voters-trump-senate.html
+**U.S. ‘Fusion Cells’ Assist in Israel’s Hunt for Hamas Leaders**\
+`American commandos and intelligence officers began helping Israel soon after the Oct. 7 attacks last year.`\
+https://nytimes.com/2024/10/19/us/politics/us-military-intelligence-israel-hamas.html
 
-**Harris Has Championed Family Policies. Now Trump Likes Them, Too.**\
-`It’s unclear whether the longtime Democratic goals are a priority for Donald Trump. Yet the fact that he’s talking about them at all is part of a recent shift on the right.`\
-https://nytimes.com/2024/10/19/upshot/harris-trump-family-policies.html
+**An Alarming Glimpse Into a Future of Historic Droughts**\
+`Record dry conditions in South America have led to wildfires, power cuts and water rationing. The world’s largest river system, the Amazon, which sustains some 30 million people across eight countries, is drying up.`\
+https://nytimes.com/2024/10/19/world/americas/south-america-drought-amazon-river.html
 
-**Costco Has a Magazine and It’s Thriving**\
-`Each month, 15.4 million copies of Costco Connection are mailed out to members. Another 300,000 are distributed via Costco warehouses. It is now the nation’s third largest magazine.`\
-https://nytimes.com/2024/10/19/style/costco-has-a-magazine-and-its-thriving.html
+**Meet Me at the Sculpture of the Naked Guy**\
+`Artists, collectors and art lovers gathered at the Javits Center last month for the Armory Show, where the surprises abounded.`\
+https://nytimes.com/2024/10/19/arts/armory-show-sketchpad.html
 
-**How White Greed Destroyed a Bank for the Newly Freed**\
-`A book by the historian Justene Hill Edwards charts the rise and fall of the Freedman’s Bank, founded at the end of the Civil War for the formerly enslaved.`\
-https://nytimes.com/2024/10/19/books/review/savings-and-trust-justene-hill-edwards.html
+**A Fan Discovers a New Story by the Author of ‘Dracula’**\
+`The work by Bram Stoker, previously unknown to scholars, will be read and included in a book launched during Dublin’s annual Bram Stoker Festival.`\
+https://nytimes.com/2024/10/19/books/-new-story-by-bram-stoker.html
 
-**Mandatory Facade Repairs: What Does the Law Say, and What Can You Do?**\
-`Local Law 11 inspections and repairs are required every five years. But how much intrusion should building residents expect, and how much is too much?`\
-https://nytimes.com/2024/10/19/realestate/mandatory-facade-repairs-what-does-the-law-say-and-what-can-you-do.html
+**The Biggest Expansion Yet for a Designer of Tiny Bags**\
+`A just-opened New York store is the first of three that the French brand Jacquemus plans to open by next spring.`\
+https://nytimes.com/2024/10/19/style/jacquemus-bags-new-york-stores.html
 
-**A More Freewheeling Book Lives Inside Al Pacino’s Memoir**\
-`From Shakespeare to Strindberg to “Scarface”: The actor remembers all of it and talks about some of it in “Sonny Boy.”`\
-https://nytimes.com/2024/10/19/books/review/sonny-boy-al-pacino.html
+**Trump Thinks the Border Got Him Elected in 2016. He’s Convinced It Will Do So Again.**\
+`Voters rank the economy and high cost of living as their top issue. Donald J. Trump believes immigration “beats out the economy,” and he’s made it his closing message.`\
+https://nytimes.com/2024/10/19/us/politics/trump-immigration-closing-message.html
 
-**These Jobs Have Been an Economic Boon but a Political Bust**\
-`Warehouses in Lehigh Valley, Pa. have been an economic boon for blue collar workers. But they have been a political bust.`\
-https://nytimes.com/2024/10/19/opinion/pennsylvania-voters.html
+**Welcome to the Era of the $20,000 Family Car Insurance Bill**\
+`Have several children, a driveway full of cars and a few moving violations? Good luck to you. There are some ways to lessen the financial pain.`\
+https://nytimes.com/2024/10/19/your-money/car-insurance-family-plan-cost.html
 
-**The Fight Over Ballots Has Already Begun in Wisconsin**\
-`Drop boxes, which had been used for years in Wisconsin until they were mostly banned after Republicans mounted legal challenges, are back. They have become the subject of bitter debate.`\
-https://nytimes.com/2024/10/19/us/wisconsin-ballot-drop-boxes.html
+**Phony Times Call for Phony Jeans**\
+`Sales are thriving in the uncanny valley of fake denim.`\
+https://nytimes.com/2024/10/19/style/jeans-denim-print-acne-studios-rag-bone.html
 
-**A Soldier Chose a Radical Way to Publicize Troop Fatigue: He Deserted**\
-`Serhii Hnezdilov, a Ukrainian soldier, said he wanted to draw attention to the need to discharge worn-out soldiers and replace them with fresh conscripts.`\
-https://nytimes.com/2024/10/19/world/europe/ukraine-troop-fatigue.html
+**In a Bellwether Pennsylvania County, a Modest Loss Could Be a Win for Harris**\
+`In white, working-class places, Kamala Harris’s goal is simply to lose by less. Thirty interviews in Beaver County, Pa., offered signs that with some swing voters, she is holding the line.`\
+https://nytimes.com/2024/10/19/us/politics/harris-campaign-western-pennsylvania.html
 
