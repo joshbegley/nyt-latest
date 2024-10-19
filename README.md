@@ -1,3 +1,11 @@
+**Vulnerable Senate Democrat Promotes Trump Ties in New Ad**\
+`The spot, which says that Senator Bob Casey of Pennsylvania had “sided with Trump” on trade and tariffs, was quickly denounced by the Trump campaign.`\
+https://nytimes.com/2024/10/19/us/politics/casey-pennsylvania-senate-ad-trump.html
+
+**Arizona State to hold kicking tryouts after loss to Cincinnati, Dillingham says**\
+`“Our kicking game is atrocious. So if you can kick and you're at Arizona State, email me," Dillingham said postgame.`\
+https://nytimes.com/athletic/5855481/2024/10/19/kenny-dillingham-kicker-comments-arizona-state/
+
 **Michael Valentine, Who Helped Drivers Stay Under the Radar, Dies at 74**\
 `An engineer who loved to drive fast, he helped build an industry-altering device that made its debut after the national speed limit of 55 m.p.h. became law.`\
 https://nytimes.com/2024/10/19/technology/michael-valentine-dead.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5855282/2024/10/19/indiana-nebraska-big-ten-result-
 **Iraq Suspends License of Saudi-Owned Television Channel, MBC Media Group**\
 `The action came after the channel aired a report describing a number of leaders of Iranian backed armed groups as terrorists.`\
 https://nytimes.com/2024/10/19/world/middleeast/iraq-iran-mbc-media-group.html
-
-**Rotherham 0 Wrexham 1: Mullin's scoring return and explaining the New York Stadium**\
-`Richard Sutcliffe analyses the key talking points from Wrexham's win at Rotherham — played at the New York Stadium`\
-https://nytimes.com/athletic/5842055/2024/10/19/rotherham-wrexham-mullin-parkinson/
-
-**Wisconsin shows off its toughness: Takeaways from Badgers' win at Northwestern**\
-`Wisconsin shows off its toughness in knocking off Northwestern for the Badgers' third straight win.`\
-https://nytimes.com/athletic/5854936/2024/10/19/wisconsin-northwestern-football-score-results-takeaways/
 
