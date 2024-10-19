@@ -1,3 +1,20 @@
+**Triple Features**\
+`Jerry Miccolis’s blockbuster Sunday puzzle is actually a sequel.`\
+https://nytimes.com/2024/10/19/crosswords/daily-puzzle-2024-10-20.html
+
+**Titans' Rudolph to start vs. Bills as Levis is sidelined with injury**\
+`Levis injured his right throwing shoulder diving for a first down against the Dolphins on Sept. 30.`\
+https://nytimes.com/athletic/5855518/2024/10/19/will-levis-mason-rudolph-titans-quarterback-inactive/
+
+**Fighting Rages in Gaza and Lebanon, Despite Killing of Hamas Leader**\
+`Peace talks were nowhere in sight and violence seemed only to increase, as Israel struck northern Gaza and a drone from Lebanon hit near the Israeli prime minister’s home.`\
+https://nytimes.com/2024/10/19/world/middleeast/gaza-lebanon-hamas-hezbollah-israel-netanyahu.html
+
+**Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
+`Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
+`\
+https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
+
 **Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
 `Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
 `\
