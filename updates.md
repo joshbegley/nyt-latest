@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
+`Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
+https://nytimes.com/athletic/5846218/2024/10/19/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
+
 **After a few days of relative calm, Israel steps up attacks in Lebanon, killing at least two.**\
 `The aerial attack targeted an SUV traveling south on a busy highway between Jounieh and Beirut`\
 https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/after-a-few-days-of-relative-calm-israel-steps-up-attacks-in-lebanon-killing-at-least-two
