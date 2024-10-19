@@ -1,3 +1,7 @@
+**Man Arrested in Japan After Attack on Governing Party Headquarters**\
+`An assailant tried to breach security at the office of the new prime minister, Shigeru Ishiba, a public broadcaster reported.`\
+https://nytimes.com/2024/10/18/world/asia/japan-party-attack.html
+
 **Goaltending wasn't the story — for once — in Penguins' loss to Hurricanes**\
 `Friday's loss proved that it doesn't matter which goalie is between the pipes until the Penguins improve their play in front of the net.`\
 https://nytimes.com/athletic/5854514/2024/10/18/penguins-hurricanes-loss-goaltending/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854438/2024/10/18/new-york-mets-bullpen-nlcs-game-
 **Dodgers and Jack Flaherty wear it after a poor start as Mets cruise in Game 5**\
 `The Dodgers used their key bullpen arms for a grand total of one batter as Dave Roberts considered the bigger picture.`\
 https://nytimes.com/athletic/5854420/2024/10/18/dodgers-mets-nlcs-jack-flaherty/
-
-**Trump Tries to Rewrite History of Jan. 6 in Campaign’s Final Stretch**\
-`Donald J. Trump amplified a conspiracy theory that the federal government had staged the Capitol attack and compared jailed rioters to Japanese Americans in internment camps during World War II.`\
-https://nytimes.com/2024/10/18/us/politics/trump-jan-6.html
 

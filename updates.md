@@ -1,3 +1,7 @@
+**Man Arrested in Japan After Attack on Governing Party Headquarters**\
+`An assailant tried to breach security at the office of the new prime minister, Shigeru Ishiba, a public broadcaster reported.`\
+https://nytimes.com/2024/10/18/world/asia/japan-party-attack.html
+
 **Goaltending wasn't the story — for once — in Penguins' loss to Hurricanes**\
 `Friday's loss proved that it doesn't matter which goalie is between the pipes until the Penguins improve their play in front of the net.`\
 https://nytimes.com/athletic/5854514/2024/10/18/penguins-hurricanes-loss-goaltending/
