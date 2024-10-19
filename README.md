@@ -1,40 +1,40 @@
-**Here are the latest developments.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/here-are-the-latest-developments
+**Despite Israeli Bombs and Assassinations, Hezbollah Keeps Fighting**\
+`Extensive Israeli attacks have blown up Hezbollah munitions and killed many fighters and leaders, but the Lebanese militia is far from incapacitated, analysts say.`\
+https://nytimes.com/2024/10/19/world/middleeast/israel-hezbollah-lebanon-war.html
 
-**Live Updates: Hopes Dim for an Immediate Cease-Fire in Gaza**\
-`A top Hamas official said the death of the group’s leader, Yahya Sinwar, would not soften its demand for a full Israeli withdrawal, as President Biden pushed to restart talks.`\
-https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news
+**Split-Ticket Voters Buoy Democrats in Key Senate Races**\
+`In the battleground state of Arizona and other important pockets of the country, polling suggests that voters backing the former president are eschewing Republican Senate candidates.`\
+https://nytimes.com/2024/10/19/us/politics/split-ticket-voters-trump-senate.html
 
-**Leeds United 2 Sheffield United 0: Joseph makes his point and a set-piece goal at last**\
-`Nancy Froston breaks down the main talking points from Leeds' 2-0 win over Sheffield United on Friday night`\
-https://nytimes.com/athletic/5854222/2024/10/19/leeds-sheffield-united-joseph-struijk-farke/
+**Harris Has Championed Family Policies. Now Trump Likes Them, Too.**\
+`It’s unclear whether the longtime Democratic goals are a priority for Donald Trump. Yet the fact that he’s talking about them at all is part of a recent shift on the right.`\
+https://nytimes.com/2024/10/19/upshot/harris-trump-family-policies.html
 
-**How Chris Perfetti of ‘Abbott Elementary’ Spends His Sundays**\
-`On his weeks off from shooting the ABC sitcom, the actor unwinds by whipping up “the biggest salad ever” and seeking out a Sunday-night show.`\
-https://nytimes.com/2024/10/19/nyregion/chris-perfetti-abbott-elementary.html
+**Costco Has a Magazine and It’s Thriving**\
+`Each month, 15.4 million copies of Costco Connection are mailed out to members. Another 300,000 are distributed via Costco warehouses. It is now the nation’s third largest magazine.`\
+https://nytimes.com/2024/10/19/style/costco-has-a-magazine-and-its-thriving.html
 
-**Reinventing Concrete, the Ancient Roman Way**\
-`By learning the secrets of 2,000-year-old cement, researchers are trying to devise greener, more durable modern options.`\
-https://nytimes.com/2024/10/19/science/concrete-roman-construction.html
+**How White Greed Destroyed a Bank for the Newly Freed**\
+`A book by the historian Justene Hill Edwards charts the rise and fall of the Freedman’s Bank, founded at the end of the Civil War for the formerly enslaved.`\
+https://nytimes.com/2024/10/19/books/review/savings-and-trust-justene-hill-edwards.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/19/crosswords/spelling-bee-forum.html
+**Mandatory Facade Repairs: What Does the Law Say, and What Can You Do?**\
+`Local Law 11 inspections and repairs are required every five years. But how much intrusion should building residents expect, and how much is too much?`\
+https://nytimes.com/2024/10/19/realestate/mandatory-facade-repairs-what-does-the-law-say-and-what-can-you-do.html
 
-**A Mayor’s Crisis Stirs Hope for Delayed Street Projects**\
-`Mayor Eric Adams has stalled plans to build bus and bicycle lanes. With his leadership under threat, the projects’ supporters see an opening.`\
-https://nytimes.com/2024/10/19/nyregion/adams-nyc-transit-proposals.html
+**A More Freewheeling Book Lives Inside Al Pacino’s Memoir**\
+`From Shakespeare to Strindberg to “Scarface”: The actor remembers all of it and talks about some of it in “Sonny Boy.”`\
+https://nytimes.com/2024/10/19/books/review/sonny-boy-al-pacino.html
 
-**This Museum Is Old. But With $75 Million to Spend, Why Is It So Dingy?**\
-`Decades of mismanagement and financial neglect have turned the New York State Museum, a trove of national treasures, into a dreary place.`\
-https://nytimes.com/2024/10/19/nyregion/state-museum-ny-albany.html
+**These Jobs Have Been an Economic Boon but a Political Bust**\
+`Warehouses in Lehigh Valley, Pa. have been an economic boon for blue collar workers. But they have been a political bust.`\
+https://nytimes.com/2024/10/19/opinion/pennsylvania-voters.html
 
-**BYU remains undefeated with stunning late TD vs. Oklahoma State**\
-`The Cougars won on a 35-yard touchdown pass from QB Jake Retzlaff to WR Darius Lassiter with ten seconds remaining in the game.`\
-https://nytimes.com/athletic/5854633/2024/10/19/byu-undefeated-oklahoma-state-score-result/
+**The Fight Over Ballots Has Already Begun in Wisconsin**\
+`Drop boxes, which had been used for years in Wisconsin until they were mostly banned after Republicans mounted legal challenges, are back. They have become the subject of bitter debate.`\
+https://nytimes.com/2024/10/19/us/wisconsin-ballot-drop-boxes.html
 
-**Tropical Storm Nadine Forms in the Caribbean**\
-`The storm is expected to bring heavy rain to Mexico, Belize and Guatemala this weekend.`\
-https://nytimes.com/2024/10/19/weather/tropical-storm-nadine.html
+**A Soldier Chose a Radical Way to Publicize Troop Fatigue: He Deserted**\
+`Serhii Hnezdilov, a Ukrainian soldier, said he wanted to draw attention to the need to discharge worn-out soldiers and replace them with fresh conscripts.`\
+https://nytimes.com/2024/10/19/world/europe/ukraine-troop-fatigue.html
 
