@@ -1,3 +1,7 @@
+**The Briefing: Rotherham 0 Wrexham 1: Mullin's scoring return and explaining the New York Stadium**\
+`Richard Sutcliffe analyses the key talking points from Wrexham's win at Rotherham - played at the New York Stadium`\
+https://nytimes.com/athletic/5842055/2024/10/19/rotherham-wrexham-mullin-parkinson/
+
 **Wisconsin shows off its toughness: Takeaways from Badgers' win at Northwestern**\
 `Wisconsin shows off its toughness in knocking off Northwestern for the Badgers' third straight win.`\
 https://nytimes.com/athletic/5854936/2024/10/19/wisconsin-northwestern-football-score-results-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/us/politics/harris-charlie-sykes-wisconsin.html
 **Hundreds of Frozen Waffle Products Are Recalled Over Listeria Risk**\
 `Some products were sold under the brands of major retailers like Kroger, Price Chopper and Walmart. No illnesses so far have been linked to the waffles.`\
 https://nytimes.com/2024/10/19/business/frozen-waffles-recall-listeria.html
-
-**Tracking Hurricane Oscar**\
-`See the likely path and wind arrival times for Oscar.`\
-https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html
 
