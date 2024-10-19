@@ -1,3 +1,7 @@
+**The Briefing: Man Utd 2 Brentford 1 - Ten Hag safe for now after De Ligt controversy**\
+`The main talking points from Old Trafford as under-pressure Dutch manager earns a precious victory`\
+https://nytimes.com/athletic/5844372/2024/10/19/manchester-united-brentford-result-analysis/
+
 **The Briefing: Newcastle 0 Brighton 1 - scoring issues persist as unbeaten home run ended**\
 `Chris Waugh analyses the main talking points from Newcastle's home defeat by Brighton`\
 https://nytimes.com/athletic/5844373/2024/10/19/newcastle-brighton-briefing-analysis/
