@@ -1,3 +1,11 @@
+**Russini's what I’m hearing: Wilson over Fields? Steelers QB shocker; Tua return date set**\
+`Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns and more.`\
+https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
+
+**For Executives, ‘Defending Democracy’ Can Seem Risky**\
+`Even seemingly anodyne sentiments supporting fair elections have become politically charged.`\
+https://nytimes.com/2024/10/19/business/dealbook/executives-election-democracy.html
+
 **What I’m hearing: Wilson over Fields? Steelers QB controversy shocker; Tua return date set**\
 `Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns and more.`\
 https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/

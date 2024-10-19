@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/19/us/us-constitution-copy-sold.html
 `Sir Jim Ratcliffe&#8217;s INEOS missed out on a first America&#8217;s Cup as New Zealand clinched victory on Saturday.`\
 https://nytimes.com/athletic/5854887/2024/10/19/americas-cup-ineos-jim-ratcliffe/
 
-**What I’m hearing: Wilson over Fields? Steelers QB controversy shocker; Tua return date set**\
+**Russini's what I’m hearing: Wilson over Fields? Steelers QB shocker; Tua return date set**\
 `Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns and more.`\
 https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
 
@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5854465/2024/10/19/la-kings-home-opener-trip/
 
 **For Executives, ‘Defending Democracy’ Can Seem Risky**\
 `Even seemingly anodyne sentiments supporting fair elections have become politically charged.`\
-https://nytimes.com/2024/10/19/business/dealbook/for-executives-defending-democracy-can-seem-risky.html
+https://nytimes.com/2024/10/19/business/dealbook/executives-election-democracy.html
 
 **This Young Lawmaker in Lebanon Confronts Fears of a Spreading War**\
 `Amid the growing Israel-Hezbollah conflict, Firas Hamdan regularly visits his hometown, Hasbaya, near the border with Israel. As part of a new generation of Lebanese politicians, he is addressing rising fears as Israeli strikes hit the surrounding area.`\
