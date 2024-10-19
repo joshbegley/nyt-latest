@@ -1,3 +1,7 @@
+**Patriots vs. Jaguars odds, picks, how to watch: Is second time the charm for Jags in London?**\
+`The Jaguars face a new-look Patriots in London with Drake Maye starting his second game of the season. `\
+https://nytimes.com/athletic/5850846/2024/10/19/patriots-jaguars-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
 `Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
 `\
