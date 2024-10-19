@@ -1,3 +1,7 @@
+**At the worst time, the Guardians' elite bullpen is running on fumes**\
+`Emmanuel Clase has appeared in six of Cleveland’s nine postseason games while Cade Smith has pitched in all but one.`\
+https://nytimes.com/athletic/5854609/2024/10/19/cleveland-guardians-bullpen-concerns-alcs/
+
 **Where were the New York Liberty stars? The Lynx kept them quiet and forced a WNBA Finals Game 5**\
 `Breanna Stewart suffered the worst shooting performance of the WNBA Finals, making just 5 of 21.`\
 https://nytimes.com/athletic/5854602/2024/10/19/new-york-liberty-stars-quiet-lynx-wnba-finals/
