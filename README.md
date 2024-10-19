@@ -1,3 +1,11 @@
+**The Briefing: Tottenham \3 West Ham 1 - Relentless Spurs, vintage Son and an Udogie revival**\
+`Jack Pitt-Brooke and Jay Harris break down the main talking points from Tottenham Hotspur's 4-1 win over West Ham United`\
+https://nytimes.com/athletic/5844370/2024/10/19/tottenham-4-west-ham-1-son-udogie-kulusevski/
+
+**Bronny James scores 17 to end first preseason on a high note**\
+`Bronny James is headed toward history with momentum.`\
+https://nytimes.com/athletic/5854846/2024/10/19/bronny-james-preseason-scoring-high/
+
 **F1 meets Georgia-Texas: Austin readies for one of its biggest sports weekends**\
 `For the first time, F1 is sharing a major American city with a huge college football game — and the collaboration is well underway. `\
 https://nytimes.com/athletic/5851143/2024/10/19/f1-georgia-texas-game-austin-us-gp/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/19/us/harris-trump-election
 **2 Unexpected Books for Spooky Season**\
 `A haunted author; haunted dolls.`\
 https://nytimes.com/2024/10/19/books/read-like-wind-recommendations.html
-
-**In an era of short starts, the ’pen is running out in MLB's LCS**\
-`Both series, though, have something in common: neither has featured a game where both starters lasted five innings and the 'pens are spent. `\
-https://nytimes.com/athletic/5854697/2024/10/19/mlb-bullpen-usage-nlcs-alcs/
-
-**There Is No Safe Way to Turn Teenagers Into Megastars**\
-`How many more boy band tragedies do we need to see before we connect the dots?`\
-https://nytimes.com/2024/10/19/opinion/liam-payne-death-boy-band.html
 
