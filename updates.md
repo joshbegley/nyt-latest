@@ -1,3 +1,11 @@
+**Boeing Union Says It Will Vote on New Proposal to End Strike**\
+`The machinists union that represents more than 33,000 workers said that the deal includes raises of 35 percent over the four-year life of the contract.`\
+https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
+
+**Saka out of Arsenal squad for Bournemouth match**\
+`Bukayo Saka has not travelled with Arsenal’s squad for their Premier League match against Bournemouth on Saturday evening.`\
+https://nytimes.com/athletic/5855020/2024/10/19/bukayo-saka-arsenal-bournemouth/
+
 **Dolphins' Tagovailoa expected to practice Wednesday, return in Week 8**\
 `Tagovailoa was placed on the injured list after sustaining a concussion in Week 2. The Dolphins have struggled mightily without him.`\
 https://nytimes.com/athletic/5854898/2024/10/19/tua-tagovailoa-return-dolphins-concussion/
