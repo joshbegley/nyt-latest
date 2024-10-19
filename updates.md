@@ -1,3 +1,7 @@
+**Despite Sinwar’s Death, Mideast Peace May Still Be Elusive**\
+`Just about all of the actors in the region are looking for an “offramp” to the conflict, many analysts say. But Hezbollah and Hamas are talking tough, and Israel is not backing down.`\
+https://nytimes.com/2024/10/19/world/middleeast/mideast-peace-israel-sinwar-iran.html
+
 **Novelty Acts**\
 `We’re so accustomed to researching, planning and curating every millisecond of our lives that we rarely stop to consider the mental cost.`\
 https://nytimes.com/2024/10/19/briefing/finding-novelty.html
