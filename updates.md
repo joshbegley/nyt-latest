@@ -1,3 +1,7 @@
+**Iraq Suspends License of Saudi-Owned Television Channel, MBC Media Group**\
+`The action came after the channel aired a report describing a number of leaders of Iranian backed armed groups as terrorists.`\
+https://nytimes.com/2024/10/19/world/middleeast/iraq-iran-mbc-media-group.html
+
 **The Briefing: Rotherham 0 Wrexham 1: Mullin's scoring return and explaining the New York Stadium**\
 `Richard Sutcliffe analyses the key talking points from Wrexham's win at Rotherham - played at the New York Stadium`\
 https://nytimes.com/athletic/5842055/2024/10/19/rotherham-wrexham-mullin-parkinson/
