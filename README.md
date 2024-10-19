@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman might sit Game 6: 'His swing is not right'**\
+`Freeman recorded a pair of singles and scored a run in a Game 1 victory. Since then, he has gone cold.`\
+https://nytimes.com/athletic/5854407/2024/10/18/dodgers-nlcs-freddie-freeman-status/
+
 **Reject Bid by Adams to Dismiss Bribery Charge, Prosecutors Urge Judge**\
 `Within days of being criminally indicted, Mayor Eric Adams asked a judge to drop one of five counts against him. Prosecutors say a jury should get to hear their evidence.`\
 https://nytimes.com/2024/10/18/nyregion/eric-adams-bribery.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-final-moments-gaza.
 **Fire in Oakland Hills Prompts Evacuations Under Gusty Conditions**\
 `Firefighters in Northern California were responding to a blaze that burned two homes and 15 acres.`\
 https://nytimes.com/2024/10/18/us/oakland-hills-fire-evacuation.html
-
-**Mentos, an expired passport and a map were some of the items Israel said it found near the slain Hamas leader.**\
-`By Aric Toler, Riley Mellen and Ronen Bergman`\
-https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/sinwar-hamas-killed-passport
 
