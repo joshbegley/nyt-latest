@@ -1,3 +1,7 @@
+**The Briefing: Bournemouth 2 Arsenal 0 - Saliba sent off, unbeaten start over and hosts' set-piece magic**\
+`Jordan Campbell and Anantaajith Raghuraman analyse the main talking points from Arsenal's loss at Bournemouth`\
+https://nytimes.com/athletic/5844803/2024/10/19/bournemouth-arsenal-briefing-analysis/
+
 **Explained: Why was William Saliba sent off for Arsenal at Bournemouth?**\
 `Breaking down the moment the French defender was dismissed for a professional foul — and what was said about it`\
 https://nytimes.com/athletic/5855231/2024/10/19/william-saliba-arsenal-red-card-explained/

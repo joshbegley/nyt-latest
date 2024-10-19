@@ -1,3 +1,7 @@
+**The Briefing: Bournemouth 2 Arsenal 0 - Saliba sent off, unbeaten start over and hosts' set-piece magic**\
+`Jordan Campbell and Anantaajith Raghuraman analyse the main talking points from Arsenal's loss at Bournemouth`\
+https://nytimes.com/athletic/5844803/2024/10/19/bournemouth-arsenal-briefing-analysis/
+
 **Explained: Why was William Saliba sent off for Arsenal at Bournemouth?**\
 `Breaking down the moment the French defender was dismissed for a professional foul — and what was said about it`\
 https://nytimes.com/athletic/5855231/2024/10/19/william-saliba-arsenal-red-card-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855246/2024/10/19/west-ham-julen-lopetegui-fans/
 **Brighton to wait on scan for Welbeck injury**\
 `Brighton &amp; Hove Albion will await the results of a scan after Danny Welbeck was taken off on a stretcher with what appeared to be a back injury during the win over Newcastle United.`\
 https://nytimes.com/athletic/5855206/2024/10/19/danny-welbeck-injury-brighton-newcastle/
-
-**Man United were 'mad and angry' after De Ligt decision - Ten Hag**\
-`Erik ten Hag says Manchester United were left &#8220;mad and angry&#8221; at half-time after Matthijs de Ligt was forced to leave the pitch a second time for treatment following a head injury he sustained during their 2-1 victory over Brentford.`\
-https://nytimes.com/athletic/5855080/2024/10/19/ten-hag-de-ligt-manchester-united/
 
