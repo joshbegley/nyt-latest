@@ -1,3 +1,7 @@
+**Where were the New York Liberty stars? The Lynx kept them quiet and forced a WNBA Finals Game 5**\
+`Breanna Stewart suffered the worst shooting performance of the WNBA Finals, making just 5 of 21.`\
+https://nytimes.com/athletic/5854602/2024/10/19/new-york-liberty-stars-quiet-lynx-wnba-finals/
+
 **Liverpool vs Chelsea: Surprise starts? How have the head coaches settled? Predictions?**\
 `Two of the Premier League's in-form teams meet on Sunday. Our experts explain the rivalry, the key players and what to expect`\
 https://nytimes.com/athletic/5853206/2024/10/19/liverpool-chelsea-preview-analysis/
