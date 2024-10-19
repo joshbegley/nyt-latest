@@ -1,3 +1,11 @@
+**Leaked U.S. Intelligence Suggests Israel Is Preparing to Strike Iran**\
+`American officials are trying to determine the source of the leak, which describes military drills and weapons placement, and how damaging it might be.`\
+https://nytimes.com/2024/10/19/us/politics/us-intelligence-israel-iran.html
+
+**Another QB change couldn't fix Michigan at Illinois. Big Ten teams are getting payback: Takeaways**\
+`Getting to 6-6 and qualifying for a bowl game is no longer a given for the reigning national champions.`\
+https://nytimes.com/athletic/5855597/2024/10/19/michigan-illinois-big-ten-takeaways/
+
 **Patriots vs. Jaguars odds, picks, how to watch: Is second time the charm for Jags in London?**\
 `The Jaguars face a new-look Patriots in London with Drake Maye starting his second game of the season. `\
 https://nytimes.com/athletic/5850846/2024/10/19/patriots-jaguars-odds-expert-picks-how-to-watch-predictions-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/world/middleeast/israeli-hostages-netanyahu-gaza-
 **Vulnerable Senate Democrat Promotes Trump Ties in New Ad**\
 `The spot, which says that Senator Bob Casey of Pennsylvania had “sided with Trump” on trade and tariffs, was quickly denounced by the Trump campaign.`\
 https://nytimes.com/2024/10/19/us/politics/casey-pennsylvania-senate-ad-trump.html
-
-**Arizona State to hold kicking tryouts after loss to Cincinnati, Dillingham says**\
-`“Our kicking game is atrocious. So if you can kick and you're at Arizona State, email me," Dillingham said postgame.`\
-https://nytimes.com/athletic/5855481/2024/10/19/kenny-dillingham-kicker-comments-arizona-state/
-
-**Michael Valentine, Who Helped Drivers Stay Under the Radar, Dies at 74**\
-`An engineer who loved to drive fast, he helped build an industry-altering device that made its debut after the national speed limit of 55 m.p.h. became law.`\
-https://nytimes.com/2024/10/19/technology/michael-valentine-dead.html
 

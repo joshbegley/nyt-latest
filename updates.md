@@ -1,3 +1,11 @@
+**Leaked U.S. Intelligence Suggests Israel Is Preparing to Strike Iran**\
+`American officials are trying to determine the source of the leak, which describes military drills and weapons placement, and how damaging it might be.`\
+https://nytimes.com/2024/10/19/us/politics/us-intelligence-israel-iran.html
+
+**Another QB change couldn't fix Michigan at Illinois. Big Ten teams are getting payback: Takeaways**\
+`Getting to 6-6 and qualifying for a bowl game is no longer a given for the reigning national champions.`\
+https://nytimes.com/athletic/5855597/2024/10/19/michigan-illinois-big-ten-takeaways/
+
 **Patriots vs. Jaguars odds, picks, how to watch: Is second time the charm for Jags in London?**\
 `The Jaguars face a new-look Patriots in London with Drake Maye starting his second game of the season. `\
 https://nytimes.com/athletic/5850846/2024/10/19/patriots-jaguars-odds-expert-picks-how-to-watch-predictions-betting/
