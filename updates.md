@@ -1,3 +1,19 @@
+**In appreciation of Luka Modric, the magician about to become Real Madrid's oldest-ever player**\
+`Modric will surpass the great Ferenc Puskas, who played for Madrid at 39 years and 38 days, the next time he appears for the Spanish club`\
+https://nytimes.com/athletic/5830617/2024/10/19/modric-real-madrid-croatia-dinamo-tottenham-chelsea/
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/10/19/nhl-standings-playoffs-projections-odds/
+
+**Ipswich and their latest U.S. investors: 'It’s been a rocket ship and we’re holding onto the wings'**\
+`Three of the key players in the Bright Path deal answer a Q&A on why they did it, how they want to grow the club, and Ed Sheeran's role`\
+https://nytimes.com/athletic/5847545/2024/10/19/ipswich-town-bright-path-investors-ed-sheeran/
+
+**"I quit football at 15 after so many rejections - I want to play in the Champions League"**\
+`The Bournemouth winger is catching the eye in the Premier League - he has come a long way since clubs continually turned their backs on him`\
+https://nytimes.com/athletic/5852874/2024/10/19/bournemouth-antoine-semenyo-interview/
+
 **Manchester City have a specific defensive flaw - but will their rivals be able to take advantage?**\
 `City have conceded as many goals as Liverpool and Arsenal combined this season, and Pep Guardiola is aware of the reason why`\
 https://nytimes.com/athletic/5851207/2024/10/19/manchester-city-weakness-counters/
