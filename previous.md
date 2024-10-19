@@ -1,3 +1,7 @@
+**Man United were 'mad and angry' after De Ligt decision - Ten Hag**\
+`Erik ten Hag says Manchester United were left &#8220;mad and angry&#8221; at half-time after Matthijs de Ligt was forced to leave the pitch a second time for treatment following a head injury he sustained during their 2-1 victory over Brentford.`\
+https://nytimes.com/athletic/5855080/2024/10/19/ten-hag-de-ligt-manchester-united/
+
 **After a few days of relative calm, Israel steps up attacks in Lebanon, killing at least two.**\
 `The aerial attack targeted an SUV traveling south on a busy highway between Jounieh and Beirut`\
 https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/after-a-few-days-of-relative-calm-israel-steps-up-attacks-in-lebanon-killing-at-least-two
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/opinion/trump-election-steal-jan-6.html
 **Boeing Union Says It Will Vote on New Proposal to End Strike**\
 `The deal reached by the machinists union, which represents more than 33,000 workers, would cumulatively raise wages by nearly 40 percent over four years, according to details shared by the union.`\
 https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
-
-**Arteta explains Saka absence: 'There was no point pushing him'**\
-`Bukayo Saka missed Arsenal&#8217;s trip to Bournemouth on Saturday with Mikel Arteta not wanting to take any risks with one of his key players.`\
-https://nytimes.com/athletic/5855020/2024/10/19/bukayo-saka-arsenal-bournemouth/
 
