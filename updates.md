@@ -1,3 +1,7 @@
+**After a few days of relative calm, Israel steps up attacks in Lebanon, killing at least two.**\
+`The aerial attack targeted an SUV traveling south on a busy highway between Jounieh and Beirut`\
+https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/after-a-few-days-of-relative-calm-israel-steps-up-attacks-in-lebanon-killing-at-least-two
+
 **Boeing Union Says It Will Vote on New Proposal to End Strike**\
 `The deal reached by the machinists union, which represents more than 33,000 workers, would cumulatively raise wages by nearly 40 percent over four years, according to details shared by the union.`\
 https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
