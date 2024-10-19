@@ -1,3 +1,7 @@
+**Quote of the Day: A Gnarly Free-for-All That Is, Finally, for All**\
+`Quotation of the Day for Saturday, October 19, 2024`\
+https://nytimes.com/2024/10/18/pageoneplus/quote-of-the-day-a-gnarly-free-for-all-that-is-finally-for-all.html
+
 **Yankees survive another late-inning thriller, lead Guardians 3-1 in ALCS: Takeaways**\
 `New York rallied against Cleveland closer Emmanuel Clase in the top of the ninth and now find themselves one win away from the World Series`\
 https://nytimes.com/athletic/5854446/2024/10/18/yankees-guardians-score-mlb-playoffs-alcs/
