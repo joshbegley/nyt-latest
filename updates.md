@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovi
 `\
 https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
 
+**Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
+`Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
+`\
+https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
+
 **Harris, Armed With a T-shirt and a Message, Sticks Up for Detroit Against Trump**\
 `After former President Donald J. Trump disparaged the city, Vice President Kamala Harris said her campaign was seeking the kind of “grit” and “excellence” the city’s residents possessed.`\
 https://nytimes.com/2024/10/19/us/politics/harris-trump-detroit.html
