@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/here-are-the-latest-developments
+
+**Live Updates: Hopes Dim for an Immediate Cease-Fire in Gaza**\
+`A top Hamas official said the death of the group’s leader, Yahya Sinwar, would not soften its demand for a full Israeli withdrawal, as President Biden pushed to restart talks.`\
+https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news
+
 **Leeds United 2 Sheffield United 0: Joseph makes his point and a set-piece goal at last**\
 `Nancy Froston breaks down the main talking points from Leeds' 2-0 win over Sheffield United on Friday night`\
 https://nytimes.com/athletic/5854222/2024/10/19/leeds-sheffield-united-joseph-struijk-farke/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5854633/2024/10/19/byu-undefeated-oklahoma-state-sc
 **Tropical Storm Nadine Forms in the Caribbean**\
 `The storm is expected to bring heavy rain to Mexico, Belize and Guatemala this weekend.`\
 https://nytimes.com/2024/10/19/weather/tropical-storm-nadine.html
-
-**At the worst time, the Guardians' elite bullpen is running on fumes**\
-`Emmanuel Clase has appeared in six of Cleveland’s nine postseason games while Cade Smith has pitched in all but one.`\
-https://nytimes.com/athletic/5854609/2024/10/19/cleveland-guardians-bullpen-concerns-alcs/
-
-**Where were the New York Liberty stars? The Lynx kept them quiet and forced a WNBA Finals Game 5**\
-`Breanna Stewart suffered the worst shooting performance of the WNBA Finals, making just 5 of 21.`\
-https://nytimes.com/athletic/5854602/2024/10/19/new-york-liberty-stars-quiet-lynx-wnba-finals/
 
