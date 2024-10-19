@@ -1,3 +1,7 @@
+**Quote of the Day: A Gnarly Free-for-All That Is, Finally, for All**\
+`Quotation of the Day for Saturday, October 19, 2024`\
+https://nytimes.com/2024/10/18/pageoneplus/quote-of-the-day-a-gnarly-free-for-all-that-is-finally-for-all.html
+
 **Yankees survive another late-inning thriller, lead Guardians 3-1 in ALCS: Takeaways**\
 `New York rallied against Cleveland closer Emmanuel Clase in the top of the ninth and now find themselves one win away from the World Series`\
 https://nytimes.com/athletic/5854446/2024/10/18/yankees-guardians-score-mlb-playoffs-alcs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854484/2024/10/18/mets-dodgers-nlcs-mood/
 **Lynx force WNBA Finals Game 5 in nail-biting win over Liberty**\
 `Minnesota's Bridget Carleton sank two free throws to put the Lynx up two and secure the win.`\
 https://nytimes.com/athletic/5854430/2024/10/18/liberty-lynx-wnba-finals-game-4-result-takeaways/
-
-**Ryne Stanek, Edwin Díaz deliver heroic bullpen performance to force Game 6**\
-`The Mets extended their season with a 12-6 win over the Dodgers that felt tenser than the margin, due in part to their bullpen.`\
-https://nytimes.com/athletic/5854438/2024/10/18/new-york-mets-bullpen-nlcs-game-5/
 
