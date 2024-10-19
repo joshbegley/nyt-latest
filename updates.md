@@ -1,3 +1,11 @@
+**For Executives, ‘Defending Democracy’ Can Seem Risky**\
+`Even seemingly anodyne sentiments supporting fair elections have become politically charged.`\
+https://nytimes.com/2024/10/19/business/dealbook/for-executives-defending-democracy-can-seem-risky.html
+
+**This Young Lawmaker in Lebanon Confronts Fears of a Spreading War**\
+`Amid the growing Israel-Hezbollah conflict, Firas Hamdan regularly visits his hometown, Hasbaya, near the border with Israel. As part of a new generation of Lebanese politicians, he is addressing rising fears as Israeli strikes hit the surrounding area.`\
+https://nytimes.com/video/world/middleeast/100000009770593/hasbaya-lebanon-israel-hezbollahs.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/19/us/harris-trump-election/heres-the-latest-on-the-presidential-race
