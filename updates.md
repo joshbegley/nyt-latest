@@ -28,6 +28,11 @@ https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovi
 `\
 https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
 
+**Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
+`Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
+`\
+https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
+
 **Vulnerable Senate Democrat Promotes Trump Ties in New Ad**\
 `The spot, which says that Senator Bob Casey of Pennsylvania had “sided with Trump” on trade and tariffs, was quickly denounced by the Trump campaign.`\
 https://nytimes.com/2024/10/19/us/politics/casey-pennsylvania-senate-ad-trump.html
