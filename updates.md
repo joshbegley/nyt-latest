@@ -1,4 +1,12 @@
 **Explained: Why was William Saliba sent off for Arsenal at Bournemouth?**\
+`Breaking down the moment the French defender was dismissed for a professional foul — and what was said about it`\
+https://nytimes.com/athletic/5855231/2024/10/19/william-saliba-arsenal-red-card-explained/
+
+**Hurricane Oscar Moves Toward the Bahamas and Cuba**\
+`The storm intensified quickly on Saturday. It is expected to bring heavy rain through the weekend.`\
+https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane
+
+**Explained: Why was William Saliba sent off for Arsenal at Bournemouth?**\
 `Breaking down the moment when French defender was dismissed for a professional foul - and what was said about it`\
 https://nytimes.com/athletic/5855231/2024/10/19/william-saliba-arsenal-red-card-explained/
 
