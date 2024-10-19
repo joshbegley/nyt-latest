@@ -1,3 +1,7 @@
+**Notre Dame takeaways: Irish slow down Georgia Tech's rushing attack, cruise to easy win**\
+`The Jackets rushed for 616 yards in recent wins over Duke and North Carolina. They managed only 64 on Saturday afternoon.`\
+https://nytimes.com/athletic/5855499/2024/10/19/notre-dame-georgia-tech-riley-leonard-defense/
+
 **Triple Features**\
 `Jerry Miccolis’s blockbuster Sunday puzzle is actually a sequel.`\
 https://nytimes.com/2024/10/19/crosswords/daily-puzzle-2024-10-20.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/10/19/technology/michael-valentine-dead.html
 `Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
 `\
 https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
-
-**Harris, Armed With a T-shirt and a Message, Sticks Up for Detroit Against Trump**\
-`After former President Donald J. Trump disparaged the city, Vice President Kamala Harris said her campaign was seeking the kind of “grit” and “excellence” the city’s residents possessed.`\
-https://nytimes.com/2024/10/19/us/politics/harris-trump-detroit.html
 
