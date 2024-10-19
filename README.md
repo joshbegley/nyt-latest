@@ -1,3 +1,15 @@
+**Triple Features**\
+`Jerry Miccolis’s blockbuster Sunday puzzle is actually a sequel.`\
+https://nytimes.com/2024/10/19/crosswords/daily-puzzle-2024-10-20.html
+
+**Titans' Rudolph to start vs. Bills as Levis is sidelined with injury**\
+`Levis injured his right throwing shoulder diving for a first down against the Dolphins on Sept. 30.`\
+https://nytimes.com/athletic/5855518/2024/10/19/will-levis-mason-rudolph-titans-quarterback-inactive/
+
+**Fighting Rages in Gaza and Lebanon, Despite Killing of Hamas Leader**\
+`Peace talks were nowhere in sight and violence seemed only to increase, as Israel struck northern Gaza and a drone from Lebanon hit near the Israeli prime minister’s home.`\
+https://nytimes.com/2024/10/19/world/middleeast/gaza-lebanon-hamas-hezbollah-israel-netanyahu.html
+
 **O'Neil: 'Everything that happens on the football pitch is my fault'**\
 `Wolverhampton Wanderers head coach Gary O’Neil says he wants to “carry the can” for the club’s form as they prepare to face champions Manchester City on the back of just one point from their opening seven games.`\
 https://nytimes.com/athletic/5853709/2024/10/19/gary-oneil-wolves-responsibility/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovi
 **Harris, Armed With a T-shirt and a Message, Sticks Up for Detroit Against Trump**\
 `After former President Donald J. Trump disparaged the city, Vice President Kamala Harris said her campaign was seeking the kind of “grit” and “excellence” the city’s residents possessed.`\
 https://nytimes.com/2024/10/19/us/politics/harris-trump-detroit.html
-
-**Cuba Suffers Second Power Outage in 24 Hours, Realizing Years of Warnings**\
-`Fidel Castro once called Cuba’s power plants “prehistoric.” But the country still relies on them, contributing to the longest blackout since the collapse of its former patron, the Soviet Union.`\
-https://nytimes.com/2024/10/19/world/americas/cuba-power-outage.html
-
-**Miami survives Louisville in yet another thrilling win**\
-`Miami’s run of surviving thrillers and late-game reviews by officials extended to three games Saturday.`\
-https://nytimes.com/athletic/5855331/2024/10/19/miami-hurricanes-louisville-football-score-results/
-
-**Arteta urges Arsenal to move forward after Saliba's red card vs Bournemouth**\
-`Mikel Arteta insists Arsenal &#8220;cannot feel sorry&#8221; for themselves after playing more than an hour with 10 men in their 2-0 defeat to Bournemouth, following William Saliba&#8217;s red card at the Vitality Stadium.`\
-https://nytimes.com/athletic/5855373/2024/10/19/arteta-saliba-red-card-arsenal/
 
