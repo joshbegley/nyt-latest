@@ -1,3 +1,7 @@
+**Explained: Why was William Saliba sent off for Arsenal at Bournemouth?**\
+`Breaking down the moment when French defender was dismissed for a professional foul - and what was said about it`\
+https://nytimes.com/athletic/5855231/2024/10/19/william-saliba-arsenal-red-card-explained/
+
 **Harris to Court Moderates With a Onetime Right-Wing Provocateur**\
 `Charlie Sykes, the anti-Trump conservative commentator joining the vice president in Wisconsin on Monday, in the past amplified false claims of voter fraud and referred to Michelle Obama as “Mooch.”`\
 https://nytimes.com/2024/10/19/us/politics/harris-charlie-sykes-wisconsin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855206/2024/10/19/danny-welbeck-injury-brighton-ne
 **Man United were 'mad and angry' after De Ligt decision - Ten Hag**\
 `Erik ten Hag says Manchester United were left &#8220;mad and angry&#8221; at half-time after Matthijs de Ligt was forced to leave the pitch a second time for treatment following a head injury he sustained during their 2-1 victory over Brentford.`\
 https://nytimes.com/athletic/5855080/2024/10/19/ten-hag-de-ligt-manchester-united/
-
-**After a few days of relative calm, Israel steps up attacks in Lebanon, killing at least two.**\
-`The aerial attack targeted an SUV traveling south on a busy highway between Jounieh and Beirut`\
-https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/after-a-few-days-of-relative-calm-israel-steps-up-attacks-in-lebanon-killing-at-least-two
 
