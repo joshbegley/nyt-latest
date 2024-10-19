@@ -1,3 +1,7 @@
+**What to Make When You Have Lots of Apples But Absolutely No Energy**\
+`Enter: Genevieve Ko’s apple crisp.`\
+https://nytimes.com/2024/10/19/dining/what-to-make-when-you-have-lots-of-apples-but-absolutely-no-energy.html
+
 **Russini's what I’m hearing: Wilson over Fields? Steelers QB shocker; Tua return date set**\
 `Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns and more.`\
 https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
