@@ -1,3 +1,7 @@
+**BYU remains undefeated with stunning late TD vs. Oklahoma State**\
+`The Cougars won on a 35-yard touchdown pass from QB Jake Retzlaff to WR Darius Lassiter with ten seconds remaining in the game.`\
+https://nytimes.com/athletic/5854633/2024/10/19/byu-undefeated-oklahoma-state-score-result/
+
 **Tropical Storm Nadine Forms in the Caribbean**\
 `The storm is expected to bring heavy rain to Mexico, Belize and Guatemala this weekend.`\
 https://nytimes.com/2024/10/19/weather/tropical-storm-nadine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847545/2024/10/19/ipswich-town-bright-path-investo
 **"I quit football at 15 after so many rejections - I want to play in the Champions League"**\
 `The Bournemouth winger is catching the eye in the Premier League - he has come a long way since clubs continually turned their backs on him`\
 https://nytimes.com/athletic/5852874/2024/10/19/bournemouth-antoine-semenyo-interview/
-
-**Manchester City have a specific defensive flaw - but will their rivals be able to take advantage?**\
-`City have conceded as many goals as Liverpool and Arsenal combined this season, and Pep Guardiola is aware of the reason why`\
-https://nytimes.com/athletic/5851207/2024/10/19/manchester-city-weakness-counters/
 
