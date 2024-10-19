@@ -1,4 +1,4 @@
-**Leeds United 2 Sheffield United 0: Joseph makes his point and a goal from a set piece at long last**\
+**Leeds United 2 Sheffield United 0: Joseph makes his point and a set-piece goal at last**\
 `Nancy Froston breaks down the main talking points from Leeds' 2-0 win over Sheffield United on Friday night`\
 https://nytimes.com/athletic/5854222/2024/10/19/leeds-sheffield-united-joseph-struijk-farke/
 
