@@ -1,3 +1,7 @@
+**At the worst time, the Guardians' elite bullpen is running on fumes**\
+`Emmanuel Clase has appeared in six of Cleveland’s nine postseason games while Cade Smith has pitched in all but one.`\
+https://nytimes.com/athletic/5854609/2024/10/19/cleveland-guardians-bullpen-concerns-alcs/
+
 **Where were the New York Liberty stars? The Lynx kept them quiet and forced a WNBA Finals Game 5**\
 `Breanna Stewart suffered the worst shooting performance of the WNBA Finals, making just 5 of 21.`\
 https://nytimes.com/athletic/5854602/2024/10/19/new-york-liberty-stars-quiet-lynx-wnba-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5851207/2024/10/19/manchester-city-weakness-counter
 **13 insights fantasy football managers need to know ahead of Week 7**\
 `Theo Gremminger is dismayed by the lack of interest in Tampa Bay running back Sean Tucker as he shares 13 insights ahead of Week 7.`\
 https://nytimes.com/athletic/5853911/2024/10/19/13-insights-fantasy-football-week-7/
-
-**‘Life Is Complicated’: How a Scourge of Oligarchs Fell in Love With One**\
-`Natalia Morari once reported on corrupt business in Moldova. Now she has upset many by having a son with a tycoon accused of corruption, and running against the pro-West president in elections.`\
-https://nytimes.com/2024/10/19/world/europe/natalia-morari-moldova-corrupt-business.html
 
