@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman might sit Game 6: 'His swing is not right'**\
+`Freeman recorded a pair of singles and scored a run in a Game 1 victory. Since then, he has gone cold.`\
+https://nytimes.com/athletic/5854407/2024/10/18/dodgers-nlcs-freddie-freeman-status/
+
 **Pete Alonso, Mets torch Dodgers early to stay alive in NLCS: Takeaways**\
 `NEW YORK — The New York Mets aren&#8217;t dead yet.`\
 https://nytimes.com/athletic/5854342/2024/10/18/mets-dodgers-score-takeaways-mlb-playoffs-nlcs/
