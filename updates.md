@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovi
 `\
 https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
 
+**Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
+`Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
+`\
+https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
+
 **Fighting Rages in Gaza and Lebanon, Despite Killing of Hamas Leader**\
 `Peace talks were nowhere in sight and, despite Yahya Sinwar’s death, the violence seemed only to increase, as Israel struck northern Gaza and Hezbollah fired dozens of projectiles.`\
 https://nytimes.com/2024/10/19/world/middleeast/gaza-lebanon-hamas-hezbollah-israel-netanyahu.html
