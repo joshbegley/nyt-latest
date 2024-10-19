@@ -1,3 +1,11 @@
+**Liverpool vs Chelsea: Surprise starts? How have the head coaches settled? Predictions?**\
+`Two of the Premier League's in-form teams meet on Sunday. Our experts explain the rivalry, the key players and what to expect`\
+https://nytimes.com/athletic/5853206/2024/10/19/liverpool-chelsea-preview-analysis/
+
+**The tragic death of George Baldock in Greece: Loss and confusion after 'one of the darkest days'**\
+`‘I’ve never felt like this before’. In Greece, team-mates, colleagues and friends of George Baldock struggle to come to terms with a tragedy`\
+https://nytimes.com/athletic/5851291/2024/10/19/george-baldock-greece-death-panathinaikos/
+
 **In appreciation of Luka Modric, the magician about to become Real Madrid's oldest-ever player**\
 `Modric will surpass the great Ferenc Puskas, who played for Madrid at 39 years and 38 days, the next time he appears for the Spanish club`\
 https://nytimes.com/athletic/5830617/2024/10/19/modric-real-madrid-croatia-dinamo-tottenham-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/world/europe/natalia-morari-moldova-corrupt-busin
 **Bournemouth vs Arsenal preview, odds, prediction as Gunners try to keep pace with leaders**\
 `Arsenal can go top of the league with a win at Bournemouth before Liverpool and Manchester City play later this weekend.`\
 https://nytimes.com/athletic/5851479/2024/10/19/bournemouth-arsenal-preview-odds-prediction/
-
-**Alabama at Tennessee picks, odds, how to watch: One-loss playoff contenders meet**\
-`Alabama and Tennessee have both been disappointing in recent weeks. Which team will right the ship and gain a quality win?`\
-https://nytimes.com/athletic/5850724/2024/10/19/alabama-tennessee-picks-odds-how-to-watch/
-
-**Man United vs Brentford preview: Storylines, odds, prediction as Red Devils are favored**\
-`Erik ten Hag is hoping to avoid the sack for a struggling Manchester United side. Can the Red Devils end a winless run against Brentford?`\
-https://nytimes.com/athletic/5851440/2024/10/19/manchester-united-brentford-preview-odds-prediction/
 
