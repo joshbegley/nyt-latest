@@ -1,3 +1,7 @@
+**Libby Titus, Introspective Singer and Songwriter, Dies at 77**\
+`Her “Love Has No Pride” was widely recorded, and she had high-profile relationships with Levon Helm and Donald Fagen. But she was uneasy with life in the spotlight.`\
+https://nytimes.com/2024/10/19/arts/music/libby-titus-dead.html
+
 **What to Make When You Have Lots of Apples But Absolutely No Energy**\
 `Enter: Genevieve Ko’s apple crisp.`\
 https://nytimes.com/2024/10/19/dining/what-to-make-when-you-have-lots-of-apples-but-absolutely-no-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5842518/2024/10/19/barcelona-team-news-sevilla-lami
 **What worked and didn't work on the Kings' season-opening road trip**\
 `Here are three positives and three negatives from the Kings' 2-1-2 start.`\
 https://nytimes.com/athletic/5854465/2024/10/19/la-kings-home-opener-trip/
-
-**For Executives, ‘Defending Democracy’ Can Seem Risky**\
-`Even seemingly anodyne sentiments supporting fair elections have become politically charged.`\
-https://nytimes.com/2024/10/19/business/dealbook/executives-election-democracy.html
 
