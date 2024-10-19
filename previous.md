@@ -1,3 +1,7 @@
+**Goaltending wasn't the story — for once — in Penguins' loss to Hurricanes**\
+`Friday's loss proved that it doesn't matter which goalie is between the pipes until the Penguins improve their play in front of the net.`\
+https://nytimes.com/athletic/5854514/2024/10/18/penguins-hurricanes-loss-goaltending/
+
 **Obama makes another pitch for Harris in battleground Arizona.**\
 `By Jack Healy`\
 https://nytimes.com/live/2024/10/18/us/harris-trump-election/obama-makes-another-pitch-for-harris-in-battleground-arizona
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854420/2024/10/18/dodgers-mets-nlcs-jack-flaherty/
 **Trump Tries to Rewrite History of Jan. 6 in Campaign’s Final Stretch**\
 `Donald J. Trump amplified a conspiracy theory that the federal government had staged the Capitol attack and compared jailed rioters to Japanese Americans in internment camps during World War II.`\
 https://nytimes.com/2024/10/18/us/politics/trump-jan-6.html
-
-**Impressively Respectful Types**\
-`August Miller makes an imposing Saturday debut.`\
-https://nytimes.com/2024/10/18/crosswords/daily-puzzle-2024-10-19.html
 

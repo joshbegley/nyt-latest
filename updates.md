@@ -1,3 +1,7 @@
+**Goaltending wasn't the story — for once — in Penguins' loss to Hurricanes**\
+`Friday's loss proved that it doesn't matter which goalie is between the pipes until the Penguins improve their play in front of the net.`\
+https://nytimes.com/athletic/5854514/2024/10/18/penguins-hurricanes-loss-goaltending/
+
 **Obama makes another pitch for Harris in battleground Arizona.**\
 `By Jack Healy`\
 https://nytimes.com/live/2024/10/18/us/harris-trump-election/obama-makes-another-pitch-for-harris-in-battleground-arizona
