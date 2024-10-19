@@ -1,3 +1,7 @@
+**What to Make When You Have Lots of Apples But Absolutely No Energy**\
+`Enter: Genevieve Ko’s apple crisp.`\
+https://nytimes.com/2024/10/19/dining/what-to-make-when-you-have-lots-of-apples-but-absolutely-no-energy.html
+
 **Rare Copy of U.S. Constitution Sells for More Than $11 Million**\
 `The document, which was sold to an anonymous bidder at an auction in North Carolina, was among the first copies of the Constitution ever printed, experts said.`\
 https://nytimes.com/2024/10/19/us/us-constitution-copy-sold.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854465/2024/10/19/la-kings-home-opener-trip/
 **For Executives, ‘Defending Democracy’ Can Seem Risky**\
 `Even seemingly anodyne sentiments supporting fair elections have become politically charged.`\
 https://nytimes.com/2024/10/19/business/dealbook/executives-election-democracy.html
-
-**This Young Lawmaker in Lebanon Confronts Fears of a Spreading War**\
-`Amid the growing Israel-Hezbollah conflict, Firas Hamdan regularly visits his hometown, Hasbaya, near the border with Israel. As part of a new generation of Lebanese politicians, he is addressing rising fears as Israeli strikes hit the surrounding area.`\
-https://nytimes.com/video/world/middleeast/100000009770593/hasbaya-lebanon-israel-hezbollahs.html
 
