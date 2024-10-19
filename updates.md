@@ -1,3 +1,15 @@
+**Reject Bid by Adams to Dismiss Bribery Charge, Prosecutors Urge Judge**\
+`Within days of being criminally indicted, Mayor Eric Adams asked a judge to drop one of five counts against him. Prosecutors say a jury should get to hear their evidence.`\
+https://nytimes.com/2024/10/18/nyregion/eric-adams-bribery.html
+
+**New York Man Who Brought Knife to Jan. 6 Riot Pleads Guilty to a Felony**\
+`Christopher D. Finney was charged after federal investigators found images of him during a search of a “militia” group chat, prosecutors said.`\
+https://nytimes.com/2024/10/18/nyregion/jan-6-guilty-plea-ny-man-christopher-finney.html
+
+**Pete Alonso, Mets torch Dodgers early to stay alive in NLCS: Takeaways**\
+`NEW YORK — The New York Mets aren&#8217;t dead yet.`\
+https://nytimes.com/athletic/5854342/2024/10/18/ets-dodgers-score-takeaways-mlb-playoffs-nlcs/
+
 **Why Israel Targeted Yahya Sinwar**\
 `What does the killing of Yahya Sinwar, mastermind of the Oct. 7 attack, mean for Israel and Gaza? Ronen Bergman, a staff writer for The New York Times Magazine who is based in Tel Aviv, explains.`\
 https://nytimes.com/video/world/middleeast/100000009768679/who-was-yahya-sinwar.html
