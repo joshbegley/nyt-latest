@@ -1,3 +1,11 @@
+**For Executives, ‘Defending Democracy’ Can Seem Risky**\
+`Even seemingly anodyne sentiments supporting fair elections have become politically charged.`\
+https://nytimes.com/2024/10/19/business/dealbook/for-executives-defending-democracy-can-seem-risky.html
+
+**This Young Lawmaker in Lebanon Confronts Fears of a Spreading War**\
+`Amid the growing Israel-Hezbollah conflict, Firas Hamdan regularly visits his hometown, Hasbaya, near the border with Israel. As part of a new generation of Lebanese politicians, he is addressing rising fears as Israeli strikes hit the surrounding area.`\
+https://nytimes.com/video/world/middleeast/100000009770593/hasbaya-lebanon-israel-hezbollahs.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/19/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/opinion/religion-atheism-books.html
 **Minnesota Vikings Week 7 playbook: What to know ahead of Lions matchup**\
 `Catch up on all the latest Vikings news before they play the Lions on Sunday,`\
 https://nytimes.com/athletic/5842675/2024/10/19/minnesota-vikings-week-7-news-projections-preview/
-
-**Detroit Lions Week 7 playbook: What to know ahead of Vikings matchup**\
-`Catch up on all the latest Lions news before Sunday's game.`\
-https://nytimes.com/athletic/5852234/2024/10/19/detroit-lions-week-7-news-projections-preview/
-
-**Biden Has an Opportunity Now in Gaza, but Only if He Pushes**\
-`Even with Sinwar gone, I’m doubtful Hamas will fold or that Israel will easily embrace Biden’s ideas for a peace deal.`\
-https://nytimes.com/2024/10/19/opinion/sinwar-gaza-biden-netanyahu.html
 
