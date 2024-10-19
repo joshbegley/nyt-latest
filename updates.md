@@ -1,3 +1,7 @@
+**Israel’s offensive in northern Gaza imperils area hospitals, health officials say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/israels-offensive-in-northern-gaza-imperils-area-hospitals-health-officials-say
+
 **Arteta explains Saka absence: 'There was no point pushing him'**\
 `Bukayo Saka missed Arsenal&#8217;s trip to Bournemouth on Saturday with Mikel Arteta not wanting to take any risks with one of his key players.`\
 https://nytimes.com/athletic/5855020/2024/10/19/bukayo-saka-arsenal-bournemouth/
