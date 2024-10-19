@@ -1,3 +1,11 @@
+**Mia Khalifa’s Messy World of Money, Sex and Activism**\
+`For the OnlyFans star and influencer, navigating the internet is a full-time job.`\
+https://nytimes.com/2024/10/19/magazine/mia-khalifa-interview.html
+
+**‘The Interview’: Mia Khalifa**\
+`Mia Khalifa became infamous online for an adult film she made in her early 20s. She found she couldn’t go back to being anonymous, so she joined OnlyFans and became an influencer on TikTok, X and Instagram, using her story as a cautionary tale.`\
+https://nytimes.com/video/podcasts/100000009769909/mia-khalifa-interview.html
+
 **Harris and Liz Cheney Will Team Up for a Pitch to Blue-Wall Suburbs**\
 `The vice president and her top Republican surrogate will appear together for “moderated conversations” in the suburbs of Philadelphia, Detroit and Milwaukee.`\
 https://nytimes.com/2024/10/19/us/politics/harris-liz-cheney.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/us/politics/trump-immigration-closing-message.htm
 **Welcome to the Era of the $20,000 Family Car Insurance Bill**\
 `Have several children, a driveway full of cars and a few moving violations? Good luck to you. There are some ways to lessen the financial pain.`\
 https://nytimes.com/2024/10/19/your-money/car-insurance-family-plan-cost.html
-
-**Phony Times Call for Phony Jeans**\
-`Sales are thriving in the uncanny valley of fake denim.`\
-https://nytimes.com/2024/10/19/style/jeans-denim-print-acne-studios-rag-bone.html
-
-**In a Bellwether Pennsylvania County, a Modest Loss Could Be a Win for Harris**\
-`In white, working-class places, Kamala Harris’s goal is simply to lose by less. Thirty interviews in Beaver County, Pa., offered signs that with some swing voters, she is holding the line.`\
-https://nytimes.com/2024/10/19/us/politics/harris-campaign-western-pennsylvania.html
 
