@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovi
 `\
 https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
 
+**Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
+`Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
+`\
+https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
+
 **Michael Valentine, Who Helped Drivers Stay Under the Radar, Dies at 74**\
 `An engineer who loved to drive fast, he helped build an industry-altering device that made its debut after the national speed limit of 55 m.p.h. became law.`\
 https://nytimes.com/2024/10/19/technology/michael-valentine-dead.html
