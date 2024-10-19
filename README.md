@@ -6,8 +6,8 @@ https://nytimes.com/2024/10/19/us/us-constitution-copy-sold.html
 `Sir Jim Ratcliffe&#8217;s INEOS missed out on a first America&#8217;s Cup as New Zealand clinched victory on Saturday.`\
 https://nytimes.com/athletic/5854887/2024/10/19/americas-cup-ineos-jim-ratcliffe/
 
-**Russini’s what I’m hearing: Wilson over Fields? Steelers QB controversy shocker; Tua return date set**\
-`Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns, and more`\
+**What I’m hearing: Wilson over Fields? Steelers QB controversy shocker; Tua return date set**\
+`Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns and more.`\
 https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
 
 **The Briefing: Tottenham Hotspur 4 West Ham 1 - Relentless Spurs, vintage Son and Udogie revival**\
