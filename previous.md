@@ -1,3 +1,7 @@
+**Time to take Indiana seriously? Hoosiers make case as Nebraska’s misery vs. ranked teams continues**\
+`Indiana quarterback Kurtis Rourke did not play in the second half after suffering an injury to his throwing hand. `\
+https://nytimes.com/athletic/5855282/2024/10/19/indiana-nebraska-big-ten-result-takeaways/
+
 **Iraq Suspends License of Saudi-Owned Television Channel, MBC Media Group**\
 `The action came after the channel aired a report describing a number of leaders of Iranian backed armed groups as terrorists.`\
 https://nytimes.com/2024/10/19/world/middleeast/iraq-iran-mbc-media-group.html
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/5855349/2024/10/19/aleksandar-pavlovic-bayern-munic
 
 **U.S. Defense Secretary Urges Israel to Scale Back Attacks in Beirut Area**\
 `Lloyd J. Austin lamented that civilian casualties during Israel’s war in Lebanon are “far too high.”`\
-https://nytimes.com/2024/10/19/world/middleeast/us-defense-secretary-urges-israel-to-scale-back-attacks-in-beirut-area.html
+https://nytimes.com/2024/10/19/world/middleeast/israel-lebanon-lloyd-austin.html
 
 **Tensions Spike in Mozambique After Killing of 2 Political Activists**\
 `Leading supporters of the top opposition presidential candidate, Venâncio Mondlane, were fatally shot in their car following an election marred by allegations of fraud.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5844803/2024/10/19/bournemouth-arsenal-briefing-ana
 **Explained: Why was William Saliba sent off for Arsenal at Bournemouth?**\
 `Breaking down the moment the French defender was dismissed for a professional foul — and what was said about it`\
 https://nytimes.com/athletic/5855231/2024/10/19/william-saliba-arsenal-red-card-explained/
-
-**Harris to Court Moderates With a Onetime Right-Wing Provocateur**\
-`Charlie Sykes, the anti-Trump conservative commentator joining the vice president in Wisconsin on Monday, in the past amplified false claims of voter fraud and referred to Michelle Obama as “Mooch.”`\
-https://nytimes.com/2024/10/19/us/politics/harris-charlie-sykes-wisconsin.html
 

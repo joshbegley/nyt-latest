@@ -1,3 +1,11 @@
+**Time to take Indiana seriously? Hoosiers make case as Nebraska’s misery vs. ranked teams continues**\
+`Indiana quarterback Kurtis Rourke did not play in the second half after suffering an injury to his throwing hand. `\
+https://nytimes.com/athletic/5855282/2024/10/19/indiana-nebraska-big-ten-result-takeaways/
+
+**U.S. Defense Secretary Urges Israel to Scale Back Attacks in Beirut Area**\
+`Lloyd J. Austin lamented that civilian casualties during Israel’s war in Lebanon are “far too high.”`\
+https://nytimes.com/2024/10/19/world/middleeast/israel-lebanon-lloyd-austin.html
+
 **Iraq Suspends License of Saudi-Owned Television Channel, MBC Media Group**\
 `The action came after the channel aired a report describing a number of leaders of Iranian backed armed groups as terrorists.`\
 https://nytimes.com/2024/10/19/world/middleeast/iraq-iran-mbc-media-group.html
