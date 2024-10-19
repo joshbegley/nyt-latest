@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 0 Brighton 1 - scoring issues persist as unbeaten home run ended**\
+`Chris Waugh analyses the main talking points from Newcastle's home defeat by Brighton`\
+https://nytimes.com/athletic/5844373/2024/10/19/newcastle-brighton-briefing-analysis/
+
+**The Briefing: Man Utd 2 Brentford 1 - Ten Hag safe (for now) after De Ligt controversy**\
+`The main talking points from Old Trafford as under-pressure Dutch manager earns a precious victory`\
+https://nytimes.com/athletic/5844372/2024/10/19/manchester-united-brentford-result-analysis/
+
 **Toni Vaz, Stuntwoman and Founder of N.A.A.C.P. Image Awards, Dies at 101**\
 `She created a program to honor Black artistic success in the 1960s. But she spent decades trying to get its organizers to recognize her role.`\
 https://nytimes.com/2024/10/19/arts/television/toni-vaz-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/arts/music/libby-titus-dead.html
 **What to Make When You Have Lots of Apples But Absolutely No Energy**\
 `Enter: Genevieve Ko’s apple crisp.`\
 https://nytimes.com/2024/10/19/dining/what-to-make-when-you-have-lots-of-apples-but-absolutely-no-energy.html
-
-**Rare Copy of U.S. Constitution Sells for More Than $11 Million**\
-`The document, which was sold to an anonymous bidder at an auction in North Carolina, was among the first copies of the Constitution ever printed, experts said.`\
-https://nytimes.com/2024/10/19/us/us-constitution-copy-sold.html
-
-**Ratcliffe's INEOS lose America's Cup to New Zealand**\
-`Sir Jim Ratcliffe&#8217;s INEOS missed out on a first America&#8217;s Cup as New Zealand clinched victory on Saturday.`\
-https://nytimes.com/athletic/5854887/2024/10/19/americas-cup-ineos-jim-ratcliffe/
 
