@@ -1,3 +1,12 @@
+**Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
+`Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
+`\
+https://nytimes.com/athletic/5855324/2024/10/19/penguins-goalies-alex-nedeljkovic-tristan-jarry/
+
+**Harris, Armed With a T-shirt and a Message, Sticks Up for Detroit Against Trump**\
+`After former President Donald J. Trump disparaged the city, Vice President Kamala Harris said her campaign was seeking the kind of “grit” and “excellence” the city’s residents possessed.`\
+https://nytimes.com/2024/10/19/us/politics/harris-trump-detroit.html
+
 **Cuba Suffers Second Power Outage in 24 Hours, Realizing Years of Warnings**\
 `Fidel Castro once called Cuba’s power plants “prehistoric.” But the country still relies on them, contributing to the longest blackout since the collapse of its former patron, the Soviet Union.`\
 https://nytimes.com/2024/10/19/world/americas/cuba-power-outage.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5854936/2024/10/19/wisconsin-northwestern-football-
 **Pavlovic suffers suspected broken collarbone**\
 `Bayern Munich midfielder Aleksandar Pavlovic has suffered a suspected broken collarbone.`\
 https://nytimes.com/athletic/5855349/2024/10/19/aleksandar-pavlovic-bayern-munich-injury/
-
-**U.S. Defense Secretary Urges Israel to Scale Back Attacks in Beirut Area**\
-`Lloyd J. Austin lamented that civilian casualties during Israel’s war in Lebanon are “far too high.”`\
-https://nytimes.com/2024/10/19/world/middleeast/israel-lebanon-lloyd-austin.html
-
-**Tensions Spike in Mozambique After Killing of 2 Political Activists**\
-`Leading supporters of the top opposition presidential candidate, Venâncio Mondlane, were fatally shot in their car following an election marred by allegations of fraud.`\
-https://nytimes.com/2024/10/19/world/africa/mozambique-election-activists-killed.html
 
