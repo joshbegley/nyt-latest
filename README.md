@@ -1,7 +1,3 @@
-**Pavlovic suffers suspected broken collarbone**\
-`Bayern Munich midfielder Aleksandar Pavlovic has suffered a suspected broken collarbone.`\
-https://nytimes.com/athletic/5855349/2024/10/19/aleksandar-pavlovic-bayern-munich-injury/
-
 **U.S. Defense Secretary Urges Israel to Scale Back Attacks in Beirut Area**\
 `Lloyd J. Austin lamented that civilian casualties during Israel’s war in Lebanon are “far too high.”`\
 https://nytimes.com/2024/10/19/world/middleeast/us-defense-secretary-urges-israel-to-scale-back-attacks-in-beirut-area.html
@@ -37,4 +33,8 @@ https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html
 **Here’s the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane/heres-the-latest-on-the-storm
+
+**Hurricane Oscar Moves Toward the Bahamas and Cuba**\
+`The storm intensified quickly on Saturday. It is expected to bring heavy rain through the weekend.`\
+https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane
 
