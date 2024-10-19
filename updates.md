@@ -1,3 +1,7 @@
+**Impressively Respectful Types**\
+`August Miller makes an imposing Saturday debut.`\
+https://nytimes.com/2024/10/18/crosswords/daily-puzzle-2024-10-19.html
+
 **Corrections: Oct. 19, 2024**\
 `Corrections that appeared in print on Saturday, Oct. 19, 2024.`\
 https://nytimes.com/2024/10/18/pageoneplus/corrections-oct-19-2024.html
