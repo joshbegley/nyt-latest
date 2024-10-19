@@ -1,3 +1,11 @@
+**Rare Copy of U.S. Constitution Sells for More Than $11 Million**\
+`The document, which was sold to an anonymous bidder at an auction in North Carolina, was among the first copies of the Constitution ever printed, experts said.`\
+https://nytimes.com/2024/10/19/us/us-constitution-copy-sold.html
+
+**Ratcliffe's INEOS lose America's Cup to New Zealand**\
+`Sir Jim Ratcliffe&#8217;s INEOS missed out on a first America&#8217;s Cup as New Zealand clinched victory on Saturday.`\
+https://nytimes.com/athletic/5854887/2024/10/19/americas-cup-ineos-jim-ratcliffe/
+
 **The Briefing: Tottenham Hotspur 4 West Ham 1 - Relentless Spurs, vintage Son and Udogie revival**\
 `Jack Pitt-Brooke and Jay Harris break down the main talking points from Tottenham Hotspur's 4-1 win over West Ham United`\
 https://nytimes.com/athletic/5844370/2024/10/19/tottenham-4-west-ham-1-son-udogie-kulusevski/

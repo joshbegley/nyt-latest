@@ -1,3 +1,11 @@
+**Rare Copy of U.S. Constitution Sells for More Than $11 Million**\
+`The document, which was sold to an anonymous bidder at an auction in North Carolina, was among the first copies of the Constitution ever printed, experts said.`\
+https://nytimes.com/2024/10/19/us/us-constitution-copy-sold.html
+
+**Ratcliffe's INEOS lose America's Cup to New Zealand**\
+`Sir Jim Ratcliffe&#8217;s INEOS missed out on a first America&#8217;s Cup as New Zealand clinched victory on Saturday.`\
+https://nytimes.com/athletic/5854887/2024/10/19/americas-cup-ineos-jim-ratcliffe/
+
 **Russini’s what I’m hearing: Wilson over Fields? Steelers QB controversy shocker; Tua return date set**\
 `Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns, and more`\
 https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/business/dealbook/for-executives-defending-democr
 **This Young Lawmaker in Lebanon Confronts Fears of a Spreading War**\
 `Amid the growing Israel-Hezbollah conflict, Firas Hamdan regularly visits his hometown, Hasbaya, near the border with Israel. As part of a new generation of Lebanese politicians, he is addressing rising fears as Israeli strikes hit the surrounding area.`\
 https://nytimes.com/video/world/middleeast/100000009770593/hasbaya-lebanon-israel-hezbollahs.html
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/19/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris and Trump Keep Focus on Battlegrounds**\
-`Vice President Kamala Harris will start the day in Michigan and finish with an event in Georgia with the singer Usher. Former President Donald J. Trump will hold a rally outside Pittsburgh.`\
-https://nytimes.com/live/2024/10/19/us/harris-trump-election
 
