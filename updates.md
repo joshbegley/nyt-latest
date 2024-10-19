@@ -1,3 +1,7 @@
+**Duke downs FSU for Blue Devils' first win over Seminoles in program history**\
+`The loss continued the Seminoles’ stunning slide from 13-0 last year to their first 1-6 start since 1975.`\
+https://nytimes.com/athletic/5854490/2024/10/18/florida-state-duke-result-takeaways/
+
 **Mets played 'loose and focused' in Game 5 and it saved their season**\
 `The Mets remain capable of explosive offensive games because of the depth of their lineup.`\
 https://nytimes.com/athletic/5854484/2024/10/18/mets-dodgers-nlcs-mood/

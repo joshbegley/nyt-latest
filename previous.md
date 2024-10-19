@@ -1,3 +1,7 @@
+**Duke downs FSU for Blue Devils' first win over Seminoles in program history**\
+`The loss continued the Seminoles’ stunning slide from 13-0 last year to their first 1-6 start since 1975.`\
+https://nytimes.com/athletic/5854490/2024/10/18/florida-state-duke-result-takeaways/
+
 **Mets played 'loose and focused' in Game 5 and it saved their season**\
 `The Mets remain capable of explosive offensive games because of the depth of their lineup.`\
 https://nytimes.com/athletic/5854484/2024/10/18/mets-dodgers-nlcs-mood/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854407/2024/10/18/dodgers-nlcs-freddie-freeman-sta
 **Reject Bid by Adams to Dismiss Bribery Charge, Prosecutors Urge Judge**\
 `Within days of being criminally indicted, Mayor Eric Adams asked a judge to drop one of five counts against him. Prosecutors say a jury should get to hear their evidence.`\
 https://nytimes.com/2024/10/18/nyregion/eric-adams-bribery.html
-
-**New York Man Who Brought Knife to Jan. 6 Riot Pleads Guilty to a Felony**\
-`Christopher D. Finney was charged after federal investigators found images of him during a search of a “militia” group chat, prosecutors said.`\
-https://nytimes.com/2024/10/18/nyregion/jan-6-guilty-plea-ny-man-christopher-finney.html
 
