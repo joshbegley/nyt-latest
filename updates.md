@@ -1,3 +1,7 @@
+**Boeing Union Says It Will Vote on New Proposal to End Strike**\
+`The deal reached by the machinists union, which represents more than 33,000 workers, would cumulatively raise wages by nearly 40 percent over four years, according to details shared by the union.`\
+https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
+
 **Israel’s offensive in northern Gaza imperils area hospitals, health officials say.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/israels-offensive-in-northern-gaza-imperils-area-hospitals-health-officials-say
