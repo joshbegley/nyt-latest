@@ -1,3 +1,7 @@
+**In Michigan, Trade Policies and the Water Crisis Loom Large for Voters**\
+`After years of challenges, voters in this crucial swing state say they feel let down by their leaders.`\
+https://nytimes.com/interactive/2024/10/19/us/elections/flint-michigan-voters.html
+
 **The Briefing: Bournemouth 2 Arsenal 0 - Saliba sent off, unbeaten start over and hosts' set-piece magic**\
 `Jordan Campbell and Anantaajith Raghuraman analyse the main talking points from Arsenal's loss at Bournemouth`\
 https://nytimes.com/athletic/5844803/2024/10/19/bournemouth-arsenal-briefing-analysis/
