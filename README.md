@@ -18,8 +18,8 @@ https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane/heres-the-latest-on-the-storm
 
-**Tropical Storm Oscar Moves Toward the Bahamas and Cuba**\
-`The storm is expected to bring heavy rain through the weekend.`\
+**Hurricane Oscar Moves Toward the Bahamas and Cuba**\
+`The storm intensified quickly on Saturday. It is expected to bring heavy rain through the weekend.`\
 https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane
 
 **Thompson: Quincy Olivari's emotional Steph Curry moment shows how NBA's stars still deliver**\
