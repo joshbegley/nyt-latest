@@ -1,3 +1,7 @@
+**Where were the New York Liberty stars? The Lynx kept them quiet and forced a WNBA Finals Game 5**\
+`Breanna Stewart suffered the worst shooting performance of the WNBA Finals, making just 5 of 21.`\
+https://nytimes.com/athletic/5854602/2024/10/19/new-york-liberty-stars-quiet-lynx-wnba-finals/
+
 **Liverpool vs Chelsea: Surprise starts? How have the head coaches settled? Predictions?**\
 `Two of the Premier League's in-form teams meet on Sunday. Our experts explain the rivalry, the key players and what to expect`\
 https://nytimes.com/athletic/5853206/2024/10/19/liverpool-chelsea-preview-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853911/2024/10/19/13-insights-fantasy-football-wee
 **‘Life Is Complicated’: How a Scourge of Oligarchs Fell in Love With One**\
 `Natalia Morari once reported on corrupt business in Moldova. Now she has upset many by having a son with a tycoon accused of corruption, and running against the pro-West president in elections.`\
 https://nytimes.com/2024/10/19/world/europe/natalia-morari-moldova-corrupt-business.html
-
-**Bournemouth vs Arsenal preview, odds, prediction as Gunners try to keep pace with leaders**\
-`Arsenal can go top of the league with a win at Bournemouth before Liverpool and Manchester City play later this weekend.`\
-https://nytimes.com/athletic/5851479/2024/10/19/bournemouth-arsenal-preview-odds-prediction/
 
