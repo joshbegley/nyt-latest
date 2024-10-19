@@ -1,3 +1,7 @@
+**The Oliver Sacks I Knew and Loved Once Saw Himself as a Failure**\
+`I was Oliver’s partner for the last six years of his life. What I learned from reading a forthcoming volume of his letter surprised even me. `\
+https://nytimes.com/2024/10/19/opinion/oliver-sacks-letters.html
+
 **In an era of short starts, the ’pen is running out in MLB's LCS**\
 `Both series, though, have something in common: neither has featured a game where both starters lasted five innings and the 'pens are spent. `\
 https://nytimes.com/athletic/5854697/2024/10/19/mlb-bullpen-usage-nlcs-alcs/
