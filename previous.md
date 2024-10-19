@@ -1,3 +1,7 @@
+**Tropical Storm Nadine Forms in the Caribbean**\
+`The storm is expected to bring heavy rain to Mexico, Belize and Guatemala this weekend.`\
+https://nytimes.com/2024/10/19/weather/tropical-storm-nadine.html
+
 **At the worst time, the Guardians' elite bullpen is running on fumes**\
 `Emmanuel Clase has appeared in six of Cleveland’s nine postseason games while Cade Smith has pitched in all but one.`\
 https://nytimes.com/athletic/5854609/2024/10/19/cleveland-guardians-bullpen-concerns-alcs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5852874/2024/10/19/bournemouth-antoine-semenyo-inte
 **Manchester City have a specific defensive flaw - but will their rivals be able to take advantage?**\
 `City have conceded as many goals as Liverpool and Arsenal combined this season, and Pep Guardiola is aware of the reason why`\
 https://nytimes.com/athletic/5851207/2024/10/19/manchester-city-weakness-counters/
-
-**13 insights fantasy football managers need to know ahead of Week 7**\
-`Theo Gremminger is dismayed by the lack of interest in Tampa Bay running back Sean Tucker as he shares 13 insights ahead of Week 7.`\
-https://nytimes.com/athletic/5853911/2024/10/19/13-insights-fantasy-football-week-7/
 

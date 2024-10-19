@@ -1,3 +1,7 @@
+**Tropical Storm Nadine Forms in the Caribbean**\
+`The storm is expected to bring heavy rain to Mexico, Belize and Guatemala this weekend.`\
+https://nytimes.com/2024/10/19/weather/tropical-storm-nadine.html
+
 **At the worst time, the Guardians' elite bullpen is running on fumes**\
 `Emmanuel Clase has appeared in six of Cleveland’s nine postseason games while Cade Smith has pitched in all but one.`\
 https://nytimes.com/athletic/5854609/2024/10/19/cleveland-guardians-bullpen-concerns-alcs/
