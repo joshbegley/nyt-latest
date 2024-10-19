@@ -1,3 +1,7 @@
+**Early in-person voting begins in Nevada, with Obama set to rally Democrats.**\
+`Republicans TKTKTK`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election/nevada-early-voting
+
 **Lando Norris takes F1 United States GP pole**\
 `A late crash by George Russell ensured the two championship contenders start on the front row on Sunday.`\
 https://nytimes.com/athletic/5855618/2024/10/19/f1-lando-norris-pole-united-states-gp/

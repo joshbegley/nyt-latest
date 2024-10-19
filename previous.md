@@ -1,3 +1,7 @@
+**Early in-person voting begins in Nevada, with Obama set to rally Democrats.**\
+`Republicans TKTKTK`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election/nevada-early-voting
+
 **Lando Norris takes F1 United States GP pole**\
 `A late crash by George Russell ensured the two championship contenders start on the front row on Sunday.`\
 https://nytimes.com/athletic/5855618/2024/10/19/f1-lando-norris-pole-united-states-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/world/middleeast/gaza-lebanon-hamas-hezbollah-isr
 **O'Neil: 'Everything that happens on the football pitch is my fault'**\
 `Wolverhampton Wanderers head coach Gary O’Neil says he wants to “carry the can” for the club’s form as they prepare to face champions Manchester City on the back of just one point from their opening seven games.`\
 https://nytimes.com/athletic/5853709/2024/10/19/gary-oneil-wolves-responsibility/
-
-**Families of Israeli Hostages Call on Netanyahu to Return Their Loved Ones**\
-`In a televised statement, family members of people held in Gaza said the death of Hamas’s leader, Yahya Sinwar, was the moment for a cease-fire and hostage deal.`\
-https://nytimes.com/2024/10/19/world/middleeast/israeli-hostages-netanyahu-gaza-ceasefire.html
 
