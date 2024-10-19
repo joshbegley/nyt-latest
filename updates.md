@@ -1,3 +1,15 @@
+**Giancarlo Stanton isn't just the Yankees' playoff savior. He's their 'second captain'**\
+`Stanton's four postseason homers have given the Yankees a boost, but his teammates speak highly of what he does behind the scenes.`\
+https://nytimes.com/athletic/5854605/2024/10/19/giancarlo-stanton-yankees-second-captain-alcs/
+
+**Former Real and Man United defender Varane joins Como board following retirement**\
+`Former Real Madrid, Manchester United and France defender Raphael Varane has joined the board of Serie A club Como following his retirement from football.`\
+https://nytimes.com/athletic/5854719/2024/10/19/raphael-varane-retired-como-board/
+
+**The NBA preseason has ended. What were the best and worst moments? Who stood out?**\
+`Which rookies caught our eye? Which contending teams are in trouble? And which players will contend for the Most Improved Player Award?  `\
+https://nytimes.com/athletic/5851401/2024/10/19/nba-preseason-best-worst-knicks-timberwolves-trade/
+
 **Mia Khalifa’s Messy World of Money, Sex and Activism**\
 `For the OnlyFans star and influencer, navigating the internet is a full-time job.`\
 https://nytimes.com/2024/10/19/magazine/mia-khalifa-interview.html

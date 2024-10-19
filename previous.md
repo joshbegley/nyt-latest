@@ -1,3 +1,15 @@
+**Giancarlo Stanton isn't just the Yankees' playoff savior. He's their 'second captain'**\
+`Stanton's four postseason homers have given the Yankees a boost, but his teammates speak highly of what he does behind the scenes.`\
+https://nytimes.com/athletic/5854605/2024/10/19/giancarlo-stanton-yankees-second-captain-alcs/
+
+**Former Real and Man United defender Varane joins Como board following retirement**\
+`Former Real Madrid, Manchester United and France defender Raphael Varane has joined the board of Serie A club Como following his retirement from football.`\
+https://nytimes.com/athletic/5854719/2024/10/19/raphael-varane-retired-como-board/
+
+**The NBA preseason has ended. What were the best and worst moments? Who stood out?**\
+`Which rookies caught our eye? Which contending teams are in trouble? And which players will contend for the Most Improved Player Award?  `\
+https://nytimes.com/athletic/5851401/2024/10/19/nba-preseason-best-worst-knicks-timberwolves-trade/
+
 **Mia Khalifa’s Messy World of Money, Sex and Activism**\
 `For the OnlyFans star and influencer, navigating the internet is a full-time job.`\
 https://nytimes.com/2024/10/19/magazine/mia-khalifa-interview.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/19/arts/armory-show-sketchpad.html
 **A Fan Discovers a New Story by the Author of ‘Dracula’**\
 `The work by Bram Stoker, previously unknown to scholars, will be read and included in a book launched during Dublin’s annual Bram Stoker Festival.`\
 https://nytimes.com/2024/10/19/books/-new-story-by-bram-stoker.html
-
-**The Biggest Expansion Yet for a Designer of Tiny Bags**\
-`A just-opened New York store is the first of three that the French brand Jacquemus plans to open by next spring.`\
-https://nytimes.com/2024/10/19/style/jacquemus-bags-new-york-stores.html
-
-**Trump Thinks the Border Got Him Elected in 2016. He’s Convinced It Will Do So Again.**\
-`Voters rank the economy and high cost of living as their top issue. Donald J. Trump believes immigration “beats out the economy,” and he’s made it his closing message.`\
-https://nytimes.com/2024/10/19/us/politics/trump-immigration-closing-message.html
-
-**Welcome to the Era of the $20,000 Family Car Insurance Bill**\
-`Have several children, a driveway full of cars and a few moving violations? Good luck to you. There are some ways to lessen the financial pain.`\
-https://nytimes.com/2024/10/19/your-money/car-insurance-family-plan-cost.html
 
