@@ -1,3 +1,11 @@
+**Mia Khalifa’s Messy World of Money, Sex and Activism**\
+`For the OnlyFans star and influencer, navigating the internet is a full-time job.`\
+https://nytimes.com/2024/10/19/magazine/mia-khalifa-interview.html
+
+**‘The Interview’: Mia Khalifa**\
+`Mia Khalifa became infamous online for an adult film she made in her early 20s. She found she couldn’t go back to being anonymous, so she joined OnlyFans and became an influencer on TikTok, X and Instagram, using her story as a cautionary tale.`\
+https://nytimes.com/video/podcasts/100000009769909/mia-khalifa-interview.html
+
 **Harris and Liz Cheney Will Team Up for a Pitch to Blue-Wall Suburbs**\
 `The vice president and her top Republican surrogate will appear together for “moderated conversations” in the suburbs of Philadelphia, Detroit and Milwaukee.`\
 https://nytimes.com/2024/10/19/us/politics/harris-liz-cheney.html
