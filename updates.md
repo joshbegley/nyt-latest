@@ -1,3 +1,15 @@
+**Harris to Court Moderates With a Onetime Right-Wing Provocateur**\
+`Charlie Sykes, the anti-Trump conservative commentator joining the vice president in Wisconsin on Monday, in the past amplified false claims of voter fraud and referred to Michelle Obama as “Mooch.”`\
+https://nytimes.com/2024/10/19/us/politics/harris-charlie-sykes-wisconsin.html
+
+**Hundreds of Frozen Waffle Products Are Recalled Over Listeria Risk**\
+`Some products were sold under the brands of major retailers like Kroger, Price Chopper and Walmart. No illnesses so far have been linked to the waffles.`\
+https://nytimes.com/2024/10/19/business/frozen-waffles-recall-listeria.html
+
+**Tracking Hurricane Oscar**\
+`See the likely path and wind arrival times for Oscar.`\
+https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html
+
 **Tracking Tropical Storm Oscar**\
 `See the likely path and wind arrival times for Oscar.`\
 https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html

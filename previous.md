@@ -1,4 +1,12 @@
-**Tracking Tropical Storm Oscar**\
+**Harris to Court Moderates With a Onetime Right-Wing Provocateur**\
+`Charlie Sykes, the anti-Trump conservative commentator joining the vice president in Wisconsin on Monday, in the past amplified false claims of voter fraud and referred to Michelle Obama as “Mooch.”`\
+https://nytimes.com/2024/10/19/us/politics/harris-charlie-sykes-wisconsin.html
+
+**Hundreds of Frozen Waffle Products Are Recalled Over Listeria Risk**\
+`Some products were sold under the brands of major retailers like Kroger, Price Chopper and Walmart. No illnesses so far have been linked to the waffles.`\
+https://nytimes.com/2024/10/19/business/frozen-waffles-recall-listeria.html
+
+**Tracking Hurricane Oscar**\
 `See the likely path and wind arrival times for Oscar.`\
 https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5855080/2024/10/19/ten-hag-de-ligt-manchester-unite
 **After a few days of relative calm, Israel steps up attacks in Lebanon, killing at least two.**\
 `The aerial attack targeted an SUV traveling south on a busy highway between Jounieh and Beirut`\
 https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/after-a-few-days-of-relative-calm-israel-steps-up-attacks-in-lebanon-killing-at-least-two
-
-**Israel’s offensive in northern Gaza imperils area hospitals, health officials say.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/israels-offensive-in-northern-gaza-imperils-area-hospitals-health-officials-say
-
-**The Briefing: Newcastle 0 Brighton 1 - scoring issues persist as unbeaten home run ended**\
-`Chris Waugh analyses the main talking points from Newcastle's home defeat by Brighton`\
-https://nytimes.com/athletic/5844373/2024/10/19/newcastle-brighton-briefing-analysis/
 
