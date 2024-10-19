@@ -7,7 +7,7 @@ https://nytimes.com/2024/10/19/crosswords/daily-puzzle-2024-10-20.html
 https://nytimes.com/athletic/5855518/2024/10/19/will-levis-mason-rudolph-titans-quarterback-inactive/
 
 **Fighting Rages in Gaza and Lebanon, Despite Killing of Hamas Leader**\
-`Peace talks were nowhere in sight and violence seemed only to increase, as Israel struck northern Gaza and a drone from Lebanon hit near the Israeli prime minister’s home.`\
+`Peace talks were nowhere in sight and, despite Yahya Sinwar’s death, the violence seemed only to increase, as Israel struck northern Gaza and Hezbollah fired dozens of projectiles.`\
 https://nytimes.com/2024/10/19/world/middleeast/gaza-lebanon-hamas-hezbollah-israel-netanyahu.html
 
 **O'Neil: 'Everything that happens on the football pitch is my fault'**\
