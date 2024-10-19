@@ -1,3 +1,7 @@
+**What I’m hearing: Wilson over Fields? Steelers QB controversy shocker; Tua return date set**\
+`Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns and more.`\
+https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
+
 **Rare Copy of U.S. Constitution Sells for More Than $11 Million**\
 `The document, which was sold to an anonymous bidder at an auction in North Carolina, was among the first copies of the Constitution ever printed, experts said.`\
 https://nytimes.com/2024/10/19/us/us-constitution-copy-sold.html
