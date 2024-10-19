@@ -1,3 +1,11 @@
+**Lynx force WNBA Finals Game 5 in nail-biting win over Liberty**\
+`Minnesota's Bridget Carleton sank two free throws to put the Lynx up two and secure the win.`\
+https://nytimes.com/athletic/5854430/2024/10/18/liberty-lynx-wnba-finals-game-4-result-takeaways/
+
+**Ryne Stanek, Edwin Díaz deliver heroic bullpen performance to force Game 6**\
+`The Mets extended their season with a 12-6 win over the Dodgers that felt tenser than the margin, due in part to their bullpen.`\
+https://nytimes.com/athletic/5854438/2024/10/18/new-york-mets-bullpen-nlcs-game-5/
+
 **Dodgers and Jack Flaherty wear it after a poor start as Mets cruise in Game 5**\
 `The Dodgers used their key bullpen arms for a grand total of one batter as Dave Roberts considered the bigger picture.`\
 https://nytimes.com/athletic/5854420/2024/10/18/dodgers-mets-nlcs-jack-flaherty/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/nyregion/jan-6-guilty-plea-ny-man-christopher-fin
 **Pete Alonso, Mets torch Dodgers early to stay alive in NLCS: Takeaways**\
 `NEW YORK — The New York Mets aren&#8217;t dead yet.`\
 https://nytimes.com/athletic/5854342/2024/10/18/mets-dodgers-score-takeaways-mlb-playoffs-nlcs/
-
-**Montana Camper Was the Victim of a Brutal Homicide, Not a Bear, Sheriff Says**\
-`Dustin Kjersem, 35, was found dead in his tent with “chop wounds” on Saturday, the authorities said. No arrests have been made.`\
-https://nytimes.com/2024/10/18/us/montana-murder-bear-attack-homicide.html
-
-**What Will Become of Yahya Sinwar’s Body?**\
-`Uncertainty surrounds the fate of the Hamas leader’s corpse as experts say Israel will likely try to avoid having his resting place become a shrine.`\
-https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-body.html
 

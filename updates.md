@@ -1,3 +1,11 @@
+**Lynx force WNBA Finals Game 5 in nail-biting win over Liberty**\
+`Minnesota's Bridget Carleton sank two free throws to put the Lynx up two and secure the win.`\
+https://nytimes.com/athletic/5854430/2024/10/18/liberty-lynx-wnba-finals-game-4-result-takeaways/
+
+**Ryne Stanek, Edwin Díaz deliver heroic bullpen performance to force Game 6**\
+`The Mets extended their season with a 12-6 win over the Dodgers that felt tenser than the margin, due in part to their bullpen.`\
+https://nytimes.com/athletic/5854438/2024/10/18/new-york-mets-bullpen-nlcs-game-5/
+
 **Dodgers and Jack Flaherty wear it after a poor start as Mets cruise in Game 5**\
 `The Dodgers used their key bullpen arms for a grand total of one batter as Dave Roberts considered the bigger picture.`\
 https://nytimes.com/athletic/5854420/2024/10/18/dodgers-mets-nlcs-jack-flaherty/
