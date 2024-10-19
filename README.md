@@ -1,3 +1,11 @@
+**Novelty Acts**\
+`We’re so accustomed to researching, planning and curating every millisecond of our lives that we rarely stop to consider the mental cost.`\
+https://nytimes.com/2024/10/19/briefing/finding-novelty.html
+
+**A drone hits a building near Netanyahu’s home in coastal Israel.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/a-drone-hits-a-building-near-netanyahus-home-in-coastal-israel
+
 **The Blowout Series: Mets-Dodgers is bonkers baseball, an NLCS filled with runaway wins**\
 `Weird and Wild: Welcome to one of the strangest postseason baseball series ever played. Can we just call it The Blowout Series?`\
 https://nytimes.com/athletic/5854708/2024/10/19/nlcs-blowouts-score-mets-dodgers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/19/world/canada/with-unusually-forceful-words-canada
 **Wordle Review No. 1,219**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 20, 2024.`\
 https://nytimes.com/2024/10/19/crosswords/wordle-review-no-1219.html
-
-**First-and-10: Despite lofty rankings, Ravens say there's improvement to be made on offense**\
-`Baltimore's offense ranks first in yards per game, but Lamar Jackson and company believe they haven't played their best just yet. `\
-https://nytimes.com/athletic/5854209/2024/10/19/ravens-offense-buccaneers-monday-night-football/
-
-**Halloween’s Mutation: From Humble Holiday to Retail Monstrosity**\
-`Americans once made their own costumes and candy. Now, the holiday has rapidly commercialized, transforming into an economic juggernaut.`\
-https://nytimes.com/2024/10/19/business/halloween-shopping-retail-costume-store-growth.html
 
