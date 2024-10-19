@@ -1,3 +1,27 @@
+**Tracking Tropical Storm Oscar**\
+`See the likely path and wind arrival times for Oscar.`\
+https://nytimes.com/interactive/2024/10/19/weather/oscar-map-path-tracker.html
+
+**Here’s the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane/heres-the-latest-on-the-storm
+
+**Tropical Storm Oscar Moves Toward the Bahamas and Cuba**\
+`The storm is expected to bring heavy rain through the weekend.`\
+https://nytimes.com/live/2024/10/19/weather/tropical-storm-oscar-hurricane
+
+**Thompson: Quincy Olivari's emotional Steph Curry moment shows how NBA's stars still deliver**\
+`In the era of brand saturation, self-proclaimed influencers and fabricated auras, real superstars still have real impact.`\
+https://nytimes.com/athletic/5855225/2024/10/19/quincy-olivari-stephen-curry-warriors-lakers-nba-stars/
+
+**Lopetegui sorry, confident of 'better moments' for West Ham after Spurs defeat**\
+`West Ham United manager Julen Lopetegui has apologised to supporters following their 4-1 loss to Tottenham Hotspur, but is confident there will be “better moments” in the future.`\
+https://nytimes.com/athletic/5855246/2024/10/19/west-ham-julen-lopetegui-fans/
+
+**Brighton to wait on scan for Welbeck injury**\
+`Brighton &amp; Hove Albion will await the results of a scan after Danny Welbeck was taken off on a stretcher with what appeared to be a back injury during the win over Newcastle United.`\
+https://nytimes.com/athletic/5855206/2024/10/19/danny-welbeck-injury-brighton-newcastle/
+
 **Man United were 'mad and angry' after De Ligt decision - Ten Hag**\
 `Erik ten Hag says Manchester United were left &#8220;mad and angry&#8221; at half-time after Matthijs de Ligt was forced to leave the pitch a second time for treatment following a head injury he sustained during their 2-1 victory over Brentford.`\
 https://nytimes.com/athletic/5855080/2024/10/19/ten-hag-de-ligt-manchester-united/
@@ -13,28 +37,4 @@ https://nytimes.com/live/2024/10/19/world/israel-hamas-yahya-sinwar-news/israels
 **The Briefing: Newcastle 0 Brighton 1 - scoring issues persist as unbeaten home run ended**\
 `Chris Waugh analyses the main talking points from Newcastle's home defeat by Brighton`\
 https://nytimes.com/athletic/5844373/2024/10/19/newcastle-brighton-briefing-analysis/
-
-**The Briefing: Man Utd 2 Brentford 1 - Ten Hag safe for now after De Ligt controversy**\
-`The main talking points from Old Trafford as under-pressure Dutch manager earns a precious victory`\
-https://nytimes.com/athletic/5844372/2024/10/19/manchester-united-brentford-result-analysis/
-
-**Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
-`Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
-https://nytimes.com/athletic/5846218/2024/10/19/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
-
-**Toni Vaz, Stuntwoman and Founder of N.A.A.C.P. Image Awards, Dies at 101**\
-`She created a program to honor Black artistic success in the 1960s. But she spent decades trying to get its organizers to recognize her role.`\
-https://nytimes.com/2024/10/19/arts/television/toni-vaz-dead.html
-
-**Sammy Basso, Advocate for Progeria Research, Is Dead at 28**\
-`One of only about 150 people known to have the rare fatal condition, he traveled internationally to raise awareness and participated in the search for a cure.`\
-https://nytimes.com/2024/10/19/health/sammy-basso-dead.html
-
-**One Thing About Trump I Am Not Worried About**\
-`This time around, it would be much harder for Trump to try to steal the election.`\
-https://nytimes.com/2024/10/19/opinion/trump-election-steal-jan-6.html
-
-**Boeing Union Says It Will Vote on New Proposal to End Strike**\
-`The deal reached by the machinists union, which represents more than 33,000 workers, would cumulatively raise wages by nearly 40 percent over four years, according to details shared by the union.`\
-https://nytimes.com/2024/10/19/business/boeing-strike-deal.html
 
