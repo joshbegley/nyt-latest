@@ -1,3 +1,7 @@
+**Toni Vaz, Stuntwoman and Founder of N.A.A.C.P. Image Awards, Dies at 101**\
+`She created a program to honor Black artistic success in the 1960s. But she spent decades trying to get its organizers to recognize her role.`\
+https://nytimes.com/2024/10/19/arts/television/toni-vaz-dead.html
+
 **Sammy Basso, Advocate for Progeria Research, Is Dead at 28**\
 `One of only about 150 people known to have the rare fatal condition, he traveled internationally to raise awareness and participated in the search for a cure.`\
 https://nytimes.com/2024/10/19/health/sammy-basso-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/us/us-constitution-copy-sold.html
 **Ratcliffe's INEOS lose America's Cup to New Zealand**\
 `Sir Jim Ratcliffe&#8217;s INEOS missed out on a first America&#8217;s Cup as New Zealand clinched victory on Saturday.`\
 https://nytimes.com/athletic/5854887/2024/10/19/americas-cup-ineos-jim-ratcliffe/
-
-**Russini's what I’m hearing: Wilson over Fields? Steelers QB shocker; Tua return date set**\
-`Plus, Jerry Jones: master of deflection, trade deadline names to watch, interim coach conundrums, Saquon returns and more.`\
-https://nytimes.com/athletic/5854448/2024/10/19/justin-fields-russell-wilson-qb-controversy-tua-return-date/
 
