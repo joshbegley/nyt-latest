@@ -1,3 +1,7 @@
+**Michael Valentine, Who Helped Drivers Stay Under the Radar, Dies at 74**\
+`An engineer who loved to drive fast, he helped build an industry-altering device that made its debut after the national speed limit of 55 m.p.h. became law.`\
+https://nytimes.com/2024/10/19/technology/michael-valentine-dead.html
+
 **Penguins embark on western Canada road trip with 3 goalies: How will it work?**\
 `Making it work with three goalies on the active roster proves to be difficult in the NHL, but the Penguins seem determined to try it out. 
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5842055/2024/10/19/rotherham-wrexham-mullin-parkins
 **Wisconsin shows off its toughness: Takeaways from Badgers' win at Northwestern**\
 `Wisconsin shows off its toughness in knocking off Northwestern for the Badgers' third straight win.`\
 https://nytimes.com/athletic/5854936/2024/10/19/wisconsin-northwestern-football-score-results-takeaways/
-
-**Pavlovic suffers suspected broken collarbone**\
-`Bayern Munich midfielder Aleksandar Pavlovic has suffered a suspected broken collarbone.`\
-https://nytimes.com/athletic/5855349/2024/10/19/aleksandar-pavlovic-bayern-munich-injury/
 
