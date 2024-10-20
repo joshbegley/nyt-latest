@@ -1,3 +1,7 @@
+**Giants bench QB Daniel Jones, sub in Drew Lock vs. Eagles**\
+`Jones completed 14 of 21 passing attempts for 99 yards, averaging 4.7 yards per throw. He was sacked seven times.`\
+https://nytimes.com/athletic/5857602/2024/10/20/daniel-jones-benched-giants-eagles/
+
 **Starring in Kamala Harris’s Closing Argument: Donald Trump**\
 `Vice President Kamala Harris has made a notable shift in strategy to paint Donald Trump as unfit and dangerous as Democrats grow anxious about the closeness of the race just two weeks out.`\
 https://nytimes.com/2024/10/20/us/harris-trump-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/arts/music/gabriela-ortiz-carnegie-hall.html
 **James withdraws from England squad with calf injury**\
 `Lauren James has withdrawn from the England squad for the upcoming pair of October international friendlies.`\
 https://nytimes.com/athletic/5857388/2024/10/20/england-women-squad-lauren-james-injury/
-
-**Messi at the Club World Cup makes sense - but how he got there is ridiculous**\
-`It was inevitable the Argentine would be at FIFA's club jamboree next summer, but how he qualified feels unsatisfactory in the extreme`\
-https://nytimes.com/athletic/5856541/2024/10/20/lionel-messi-miami-club-world-cup/
 
