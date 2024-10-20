@@ -1,3 +1,7 @@
+**Morales: USC has invested heavily in Lincoln Riley and his staff. Where are the results?**\
+`It’s late October and USC already has nothing to play for but pride. That’s just not where things are supposed to be in Year 3 under Riley.`\
+https://nytimes.com/athletic/5856010/2024/10/19/usc-has-invested-heavily-in-lincoln-riley-and-his-staff-where-are-the-results/
+
 **At Least 7 Dead After Georgia Ferry Gangway Collapses**\
 `The circumstances of the accident in Sapelo Island, south of Savannah, were not immediately clear.`\
 https://nytimes.com/2024/10/19/us/sapelo-island-dock-collapse.html
