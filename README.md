@@ -1,3 +1,7 @@
+**Texans vs. Packers odds, expert picks, how to watch: Two top offenses collide**\
+`The Packers are slight home favorites in this cross-conference matchup of playoff contenders.`\
+https://nytimes.com/athletic/5851071/2024/10/20/texans-packers-odds-picks-how-to-watch-betting/
+
 **"My life was a mess, I was spiralling. I needed rehab - it's given me another chance"**\
 `Aaron Connolly has been given a new start by Sunderland - he speaks openly about his alcohol addiction in a bid to help others`\
 https://nytimes.com/athletic/5851446/2024/10/20/aaron-connolly-sunderland-brighton-hull-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/us/politics/trump-vulgarity-pennsylvania-rally.ht
 **How Igor Shesterkin, top-6 excellence led to Rangers' win: 4 takeaways**\
 `The Rangers won 4-1 in Toronto behind another stellar goaltending performance from their star goaltender.`\
 https://nytimes.com/athletic/5856020/2024/10/19/rangers-maple-leafs-igor-shesterkin-takeaways/
-
-**Titans vs. Bills odds, picks, how to watch: Buffalo is the week's biggest favorite**\
-`The Bills are the biggest favorites of the week when they take on the Titans, with the odds moving after the Amari Cooper trade.`\
-https://nytimes.com/athletic/5850984/2024/10/19/titans-bills-odds-picks-how-to-watch-betting/
 
