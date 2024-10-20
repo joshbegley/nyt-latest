@@ -1,3 +1,15 @@
+**Garrett, Winston scold Browns fans who cheered after Watson's injury**\
+`After the game, Browns players and coaches voiced their displeasure with the reaction, saying the fans "should be ashamed."`\
+https://nytimes.com/athletic/5857874/2024/10/20/myles-garrett-deshaun-watson-browns-fans-cheering-injury/
+
+**In the Future**\
+`Stick to your instincts as you solve Neil Padrick Wilson’s crossword puzzle.`\
+https://nytimes.com/2024/10/20/crosswords/daily-puzzle-2024-10-21.html
+
+**2 Who Went Missing After Crash Near Mount Rainier Are Dead, Navy Says**\
+`Two crew members were onboard a Navy aircraft when it crashed during a routine training flight on Oct. 15 in Washington State, officials said.`\
+https://nytimes.com/2024/10/20/us/navy-aviators-dead-jet-crash.html
+
 **Raiders' O'Connell sustains thumb injury; Minshew enters vs. Rams**\
 `The Raiders were abruptly forced into another QB change on Sunday.`\
 https://nytimes.com/athletic/5857807/2024/10/20/raiders-aidan-oconnell-thumb-injury-minshew/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5857864/2024/10/20/nfl-week-7-takeaways-nfc-north-g
 **Monday Briefing: Israel Escalates War Against Hezbollah**\
 `Plus, the French town shaken by a rape trial.`\
 https://nytimes.com/2024/10/20/briefing/israel-hezbollah-swing-states-indonesia.html
-
-**Trump, Slinging Fries and Smearing Harris, Takes Turn Behind a McDonald’s Counter**\
-`At a campaign photo op, the candidate worked the drive-through window, slammed his opponent and acknowledged a weakness. “I love salt,” he said.`\
-https://nytimes.com/2024/10/20/us/politics/trump-mcdonalds-fries.html
-
-**Hundreds Rescued From New Mexico Floods**\
-`At least two were killed and hundreds were rescued as torrential rains poured an “historic” amount on eastern New Mexico.`\
-https://nytimes.com/video/us/100000009772252/new-mexico-roswell-flooding.html
-
-**Texas fined $250,000 for delay caused by fans throwing debris on field**\
-`Texas will have to pay a fine and 'use all available resources' to identify and penalize the fans who threw objects on the field.`\
-https://nytimes.com/athletic/5857742/2024/10/20/texas-georgia-fans-debris-delay-fine/
 
