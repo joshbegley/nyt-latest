@@ -1,3 +1,7 @@
+**AP Top 25: Oregon new No. 1; Vandy ends poll drought**\
+`Oregon became the fourth team to ascend to No. 1 in the AP Top 25 poll this season, topping Georgia, Penn State, Ohio State and Texas.`\
+https://nytimes.com/athletic/5857295/2024/10/20/ap-top-25-rankings-oregon-georgia-alabama/
+
 **Review: A Choir Stands Out in a Multimedia Performance**\
 `The Crossing is one of many elements in “Can We Know the Sound of Forgiveness,” which links pieces by Gabriela Ortiz in a five-movement meditation.`\
 https://nytimes.com/2024/10/20/arts/music/gabriela-ortiz-carnegie-hall.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009772044/tel-aviv-protest-isra
 **O'Neil on Stones' late winner vs Wolves: 'It felt like a harsh one'**\
 `Wolverhampton Wanderers head coach Gary O&#8217;Neil stated that the decision to allow John Stones&#8217; goal in their 2-1 defeat against Manchester City &#8220;did feel like a harsh one&#8221;.`\
 https://nytimes.com/athletic/5857117/2024/10/20/gary-oneil-john-stones-wolves/
-
-**Jaguars beat Patriots 32-16 in London as New England falters: Takeaways**\
-`In a season of new rock bottoms, the Patriots found another one Sunday.`\
-https://nytimes.com/athletic/5856985/2024/10/20/patriots-jaguars-takeaways-result-london/
 
