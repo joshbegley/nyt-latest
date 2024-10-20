@@ -1,3 +1,11 @@
+**Lions vs. Vikings odds, expert picks, how to watch: A marquee NFC North matchup**\
+`The NFC North delivers a marquee matchup when the unbeaten Minnesota Vikings host the Detroit Lions.`\
+https://nytimes.com/athletic/5850975/2024/10/20/lions-vikings-odds-picks-how-to-watch-betting/
+
+**The Tottenham substitution that changed a match - and maybe their season**\
+`A bold switch from Ange Postecoglou sealed an emphatic win over West Ham but could have more long-term significance`\
+https://nytimes.com/athletic/5855288/2024/10/20/tottenham-substitution-west-ham/
+
 **Dolphins vs. Colts odds, picks, how to watch: Gritty Indy favored over rested Miami**\
 `The Colts have shown they can win ugly games. They're slight favored over the Dolphins, who are coming off a bye.`\
 https://nytimes.com/athletic/5851101/2024/10/20/dolphins-colts-odds-picks-how-to-watch-betting/
