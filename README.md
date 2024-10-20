@@ -26,8 +26,8 @@ https://nytimes.com/2024/10/20/arts/music/rock-hall-fame-induction-cher-foreigne
 `In the 1960s, she worked with priests to serve residents of housing projects in Brooklyn. Decades later, she learned that those priests had been abusing young boys.`\
 https://nytimes.com/2024/10/20/nyregion/sister-sally-butler-dead.html
 
-**Heavy Rainfall Leads to Flash Flood Emergency in New Mexico**\
-`Roswell, N.M., received nearly a third of its annual rainfall total in just a few hours on Sunday, sending swift floodwaters through the city and shutting down access into or out of Roswell.`\
+**1 Dead, Hundreds Rescued in New Mexico Floods**\
+`Roswell, N.M., received nearly a third of its annual rainfall total in just a few hours on Sunday. Rescue efforts were ongoing with more storms in the forecast.`\
 https://nytimes.com/2024/10/20/us/new-mexico-flooding.html
 
 **Wolves 1 Manchester City 2: Stones wins it, VAR drama and Gvardiol appreciation**\
