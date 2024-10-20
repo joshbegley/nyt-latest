@@ -1,3 +1,7 @@
+**West Ham self-destruct and expose deep-rooted issues**\
+`Julen Lopetegui has asked to be judged at the end of the season, but will the West Ham boss be given that time after a slow start? `\
+https://nytimes.com/athletic/5854771/2024/10/20/west-ham-self-destruct-tottenham/
+
 **Here’s the latest on the presidential race.**\
 `Former President Donald J. Trump is heading to Pennsylvania, while Vice President Kamala Harris will sit down with the Rev. Al Sharpton for an interview on MSNBC on her 60th birthday.`\
 https://nytimes.com/live/2024/10/20/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/podcasts/the-daily/tony-tulathimutte-feminist.htm
 **I Don’t Want to Live in a Monoculture, and Neither Do You**\
 `Few things can change your perspective for the better more than being attacked from both sides of America’s culture war.`\
 https://nytimes.com/2024/10/20/opinion/michigan-diversity-equity-inclusion.html
-
-**San Francisco 49ers Week 7 playbook: What to know ahead of Chiefs matchup**\
-`Catch up on the latest 49ers news before Sunday's game against the Chiefs.`\
-https://nytimes.com/athletic/5852219/2024/10/20/san-francisco-49ers-week-7-news-projections-preview/
 
