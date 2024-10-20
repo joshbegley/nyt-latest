@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
+`Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
+https://nytimes.com/athletic/5846218/2024/10/20/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
+
 **Haason Reddick ends holdout, agrees to restructured contract with Jets**\
 `The defensive end is expected to report to the team on Monday.`\
 https://nytimes.com/athletic/5856674/2024/10/20/haason-reddick-jets-contract-agreement/
