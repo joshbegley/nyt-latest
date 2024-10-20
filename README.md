@@ -1,3 +1,11 @@
+**Starring in Kamala Harris’s Closing Argument: Donald Trump**\
+`Vice President Kamala Harris has made a notable shift in strategy to paint Donald Trump as unfit and dangerous as Democrats grow anxious about the closeness of the race just two weeks out.`\
+https://nytimes.com/2024/10/20/us/harris-trump-strategy.html
+
+**Slot doubts Jota's availability for Liverpool's clash vs RB Leipzig**\
+`Liverpool head coach Arne Slot fears that attacker Diogo Jota will miss Wednesday’s Champions League trip to RB Leipzig due to injury.`\
+https://nytimes.com/athletic/5857546/2024/10/20/diogo-jota-liverpool-injury-latest/
+
 **Welbeck aiming for quick return after sustaining back injury**\
 `Brighton &amp; Hove Albion forward Danny Welbeck says he &#8220;should be back in training soon&#8221; after sustaining a back injury in his side&#8217;s 1-0 win over Newcastle United.`\
 https://nytimes.com/athletic/5856533/2024/10/20/danny-welbeck-injury-brighton-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5857388/2024/10/20/england-women-squad-lauren-james
 **Messi at the Club World Cup makes sense - but how he got there is ridiculous**\
 `It was inevitable the Argentine would be at FIFA's club jamboree next summer, but how he qualified feels unsatisfactory in the extreme`\
 https://nytimes.com/athletic/5856541/2024/10/20/lionel-messi-miami-club-world-cup/
-
-**Stewart Mandel's 12-team Playoff projections after Week 8**\
-`Undefeated Indiana, fresh off a 56-7 win over Nebraska, remains on the outside looking in despite being undefeated.`\
-https://nytimes.com/athletic/5857367/2024/10/20/college-football-playoff-bracket-projections-week-8/
-
-**Blue Jackets Sunday Gathering: David Jiricek was being tested before making season debut**\
-`Jiricek struggled in training camp and preseason, so why keep in Columbus? Coach Dean Evason speaks to what led to the defenseman's debut.`\
-https://nytimes.com/athletic/5856644/2024/10/20/blue-jackets-david-jiricek-season-debut/
 
