@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5857037/2024/10/20/colts-dolphins-takeaways-result/
 `The Lions put up 391 yards against Brian Flores' defense to take sole possession of the NFC North.`\
 https://nytimes.com/athletic/5857048/2024/10/20/lions-vikings-takeaways-result/
 
-**Commanders Jayden Daniels questionable to return with rib injury**\
+**Commanders' Jayden Daniels questionable to return with rib injury**\
 `The 23-year-old was tackled multiple times on the drive, including after a 46-yard rush in which he was tackled from behind.`\
 https://nytimes.com/athletic/5857751/2024/10/20/commanders-jayden-daniels-injury/
 
