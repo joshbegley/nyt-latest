@@ -1,3 +1,11 @@
+**Quotation of the Day: Ukrainian Soldier Says He Deserted To Help His Comrades**\
+`Quotation of the Day for Sunday, October 20, 2024.`\
+https://nytimes.com/2024/10/19/pageoneplus/quotation-of-the-day-ukrainian-soldier-says-he-deserted-to-help-his-comrades.html
+
+**Georgia knocks off Texas to restake claim to SEC front-runner status**\
+`Any thoughts of Texas waltzing into the SEC championship game go on hold for the moment.`\
+https://nytimes.com/athletic/5838711/2024/10/19/arch-manning-texas-georgia-quinn-ewers/
+
 **Tennessee proved against Alabama it's not a one-hit wonder under Josh Heupel**\
 `The Vols may be flawed, but so is everyone else in college football. The win against Alabama showed Tennessee should be Playoff-bound.`\
 https://nytimes.com/athletic/5856079/2024/10/19/tennessee-vols-alabama-playoff-heupel/
