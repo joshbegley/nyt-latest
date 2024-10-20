@@ -1,4 +1,4 @@
-**How Canucks' dominance made Tyler Myers' 1000th game a celebration: 3 takeaways**\
+**How Canucks' dominance made Tyler Myers' 1,000th game a celebration: 3 takeaways**\
 `The Canucks' 3-0 win over the Flyers on Saturday was far and away Vancouver's most convincing effort of the season.`\
 https://nytimes.com/athletic/5855596/2024/10/19/canucks-tyler-myers-1000-games-takeaways/
 

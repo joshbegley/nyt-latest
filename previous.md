@@ -1,3 +1,7 @@
+**How Canucks' dominance made Tyler Myers' 1000th game a celebration: 3 takeaways**\
+`The Canucks' 3-0 win over the Flyers on Saturday was far and away Vancouver's most convincing effort of the season.`\
+https://nytimes.com/athletic/5855596/2024/10/19/canucks-tyler-myers-1000-games-takeaways/
+
 **How Kirill Kaprizov thrilled, Filip Gustavsson stood tall in win: 3 Wild takeaways**\
 `The Wild improved to 3-0-2 on the season and have yet to trail in 300 minutes of regulation hockey.`\
 https://nytimes.com/athletic/5855661/2024/10/19/wild-kirill-kaprizov-filip-gustavsson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/19/us/sapelo-island-dock-collapse.html
 **Miami qualifies for Club World Cup, to host first game at Hard Rock**\
 `FIFA president Gianni Infantino announced Miami had qualified for the 2025 FIFA Club World Cup by virtue of their regular-season title.`\
 https://nytimes.com/athletic/5855746/2024/10/19/miami-club-world-cup-hard-rock-stadium/
-
-**Deion ribs Obama for his CU comments: 'I heard what he said'**\
-`"We have more than two good players," Colorado coach Deion Sanders said in response to former President Barack Obama's comments.`\
-https://nytimes.com/athletic/5855681/2024/10/19/deion-sanders-obama-colorado-comments/
 

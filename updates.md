@@ -1,3 +1,7 @@
+**How Canucks' dominance made Tyler Myers' 1000th game a celebration: 3 takeaways**\
+`The Canucks' 3-0 win over the Flyers on Saturday was far and away Vancouver's most convincing effort of the season.`\
+https://nytimes.com/athletic/5855596/2024/10/19/canucks-tyler-myers-1000-games-takeaways/
+
 **How Kirill Kaprizov thrilled, Filip Gustavsson stood tall in win: 3 Wild takeaways**\
 `The Wild improved to 3-0-2 on the season and have yet to trail in 300 minutes of regulation hockey.`\
 https://nytimes.com/athletic/5855661/2024/10/19/wild-kirill-kaprizov-filip-gustavsson/
