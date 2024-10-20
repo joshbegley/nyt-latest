@@ -1,3 +1,7 @@
+**For the Guardians, there are no guarantees, just more spring optimism**\
+`Playoff baseball is a frantic, anxiety-sponsored ride, and no one would have it any other way.`\
+https://nytimes.com/athletic/5856371/2024/10/20/2024-guardians-season/
+
 **Tugged Between East and West, Moldova Makes a Pivotal Choice**\
 `Moldovans are voting on whether to enshrine in their Constitution an “irreversible” commitment to abandon Russian influence and one day join the E.U.`\
 https://nytimes.com/2024/10/20/world/europe/moldova-election-russia-eu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/nyregion/metropolitan-diary.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/20/crosswords/spelling-bee-forum.html
-
-**What’s immediately next for Yankees as they await World Series: ‘Chance to reset’**\
-`The team will have a full off day Sunday before reopening the stadium to players on Monday.`\
-https://nytimes.com/athletic/5856373/2024/10/20/yankees-world-series-reset/
 
