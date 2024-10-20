@@ -1,3 +1,7 @@
+**Clock ticking on Oilers as they consider making changes to power play**\
+`After a 4-1 loss to the Stars on Saturday, it's clear the Oilers' best collective weapon can’t continue to look so inept for much longer.`\
+https://nytimes.com/athletic/5855714/2024/10/19/oilers-stars-power-play/
+
 **Dochterman: Indiana is no Cinderella. The Hoosiers look like they can crash the CFP and compete**\
 `The Hoosiers are as complete as any Big Ten team, save for Oregon and Ohio State.`\
 https://nytimes.com/athletic/5855708/2024/10/19/indiana-football-nebraska-cinderella-playoff/
