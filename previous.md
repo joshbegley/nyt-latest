@@ -1,3 +1,11 @@
+**Live Q&A: Week 7 fantasy football start/sit chat with Jay Felicio, Sunday 10/20 at 11 a.m. ET**\
+`Submit your Week 7 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5847673/2024/10/20/live-qa-week-7-fantasy-football-start-sit-chat-jay-felicio-sunday-10-20/
+
+**Indiana's Kurtis Rourke expected to miss Washington game**\
+`The No. 16 Hoosiers are 7-0 and host Washington on Saturday at noon ET.`\
+https://nytimes.com/athletic/5856756/2024/10/20/kurtis-rourke-injury-indiana/
+
 **For Trump, a Lifetime of Scandals Heads Toward a Moment of Judgment**\
 `No major party presidential candidate, much less president, in American history has been accused of wrongdoing so many times.`\
 https://nytimes.com/2024/10/20/us/politics/trump-scandals.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/20/us/harris-trump-election
 **How Elections Affect Our Shopping**\
 `We explore why consumers tend to get skittish about major purchases ahead of a general election.`\
 https://nytimes.com/2024/10/20/briefing/election-shopping-habits.html
-
-**Mandel's Final Thoughts: Georgia's defensive havoc takes down Texas and more from Week 8**\
-`Georgia's defense comes alive against No. 1 Texas, while Alabama is spiraling in coach Kalen DeBoer's first season.`\
-https://nytimes.com/athletic/5856542/2024/10/20/georgia-texas-alabama-tennessee-week-8-final-thoughts/
-
-**Who's the Yankees' best matchup in the World Series: Dodgers or Mets?**\
-`Both would be formidable opponents, but there are pros and cons to facing each team. `\
-https://nytimes.com/athletic/5855927/2024/10/20/yankees-world-series-dodgers-mets/
 

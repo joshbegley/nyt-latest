@@ -1,3 +1,11 @@
+**Live Q&A: Week 7 fantasy football start/sit chat with Jay Felicio, Sunday 10/20 at 11 a.m. ET**\
+`Submit your Week 7 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5847673/2024/10/20/live-qa-week-7-fantasy-football-start-sit-chat-jay-felicio-sunday-10-20/
+
+**Indiana's Kurtis Rourke expected to miss Washington game**\
+`The No. 16 Hoosiers are 7-0 and host Washington on Saturday at noon ET.`\
+https://nytimes.com/athletic/5856756/2024/10/20/kurtis-rourke-injury-indiana/
+
 **For Trump, a Lifetime of Scandals Heads Toward a Moment of Judgment**\
 `No major party presidential candidate, much less president, in American history has been accused of wrongdoing so many times.`\
 https://nytimes.com/2024/10/20/us/politics/trump-scandals.html
