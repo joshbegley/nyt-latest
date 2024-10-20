@@ -1,3 +1,7 @@
+**In Arsenal's quest for perfection, the small errors carry big consequences**\
+`Two lapses of concentration proved crucial in Arsenal's first defeat of the season. Their low points continue to be of their own making`\
+https://nytimes.com/athletic/5855342/2024/10/20/arsenal-bournemouth-saliba-kiwior-arteta/
+
 **Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
 `Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
 `\
