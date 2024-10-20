@@ -1,3 +1,7 @@
+**Sampson: Boring is just fine for Marcus Freeman, Notre Dame**\
+`Sometimes boring can be progress. And that’s exactly what Notre Dame accomplished on Saturday against Georgia Tech.`\
+https://nytimes.com/athletic/5856817/2024/10/20/notre-dame-georgia-tech-marcus-freeman/
+
 **Investigation launched into alleged homophobic chanting from PSG fans**\
 `The Ligue de Football Professionnel (LFP) say they have launched an investigation into alleged homophobic chanting from Paris Saint-Germain supporters during the Ligue 1 game with Strasbourg on Saturday.`\
 https://nytimes.com/athletic/5856649/2024/10/20/psg-strasbourg-chants-homophobic/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/dozens-
 **Haason Reddick ends holdout, agrees to restructured contract with Jets**\
 `The defensive end is expected to report to the team on Monday.`\
 https://nytimes.com/athletic/5856674/2024/10/20/haason-reddick-jets-contract-agreement/
-
-**West Ham self-destruct and expose deep-rooted issues**\
-`Julen Lopetegui has asked to be judged at the end of the season, but will the West Ham boss be given that time after a slow start? `\
-https://nytimes.com/athletic/5854771/2024/10/20/west-ham-self-destruct-tottenham/
 
