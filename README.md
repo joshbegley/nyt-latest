@@ -1,3 +1,15 @@
+**Rams survive Raiders 20-15 as Las Vegas' struggles at QB continue**\
+`Led by another hard-nosed effort from running back Kyren Williams, the Rams held on with timely plays on offense.`\
+https://nytimes.com/athletic/5857062/2024/10/20/rams-raiders-takeaways-result/
+
+**A Crack, a Shift, then Screams: Witnesses Describe Georgia Dock Collapse That Killed 7**\
+`Investigators have begun looking for reasons behind the failure at a ferry dock on Sapelo Island, the site of a festival celebrating the heritage of descendants of enslaved people.`\
+https://nytimes.com/2024/10/20/us/georgia-dock-collapse-gullah-geechee.html
+
+**Oklahoma fires OC Seth Littrell as offense spirals: Source**\
+`The Sooners have lost three of their last four games and are 132nd in the country in offense.`\
+https://nytimes.com/athletic/5858207/2024/10/20/oklahoma-football-offensive-coordinator-seth-littrell-fired/
+
 **Southern Miss fires head coach Will Hall after 1-6 start**\
 `Hall finishes with a 14-30 record in Hattiesburg, made worse by a 1-6 start to this season.`\
 https://nytimes.com/athletic/5858238/2024/10/20/will-hall-southern-miss-fired/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/20/world/middleeast/israel-strike-lebanon-hezbollah.
 **Garrett, Winston scold Browns fans who cheered after Watson's injury**\
 `After the game, Browns players and coaches voiced their displeasure with the reaction, saying the fans "should be ashamed."`\
 https://nytimes.com/athletic/5857874/2024/10/20/myles-garrett-deshaun-watson-browns-fans-cheering-injury/
-
-**In the Future**\
-`Stick to your instincts as you solve Neil Padrick Wilson’s crossword puzzle.`\
-https://nytimes.com/2024/10/20/crosswords/daily-puzzle-2024-10-21.html
-
-**2 Who Went Missing After Crash Near Mount Rainier Are Dead, Navy Says**\
-`Two crew members were onboard a Navy aircraft when it crashed during a routine training flight on Oct. 15 in Washington State, officials said.`\
-https://nytimes.com/2024/10/20/us/navy-aviators-dead-jet-crash.html
-
-**Raiders' O'Connell sustains thumb injury; Minshew enters vs. Rams**\
-`The Raiders were abruptly forced into another QB change on Sunday.`\
-https://nytimes.com/athletic/5857807/2024/10/20/raiders-aidan-oconnell-thumb-injury-minshew/
 
