@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
+`Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
+https://nytimes.com/athletic/5846218/2024/10/20/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
+
 **Dozens of Palestinians are dead or missing after an Israeli airstrike in northern Gaza, officials say.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/dozens-of-palestinians-are-dead-or-missing-after-an-israeli-airstrike-in-northern-gaza-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855927/2024/10/20/yankees-world-series-dodgers-met
 **Celta Vigo 1 Real Madrid 2: Mbappe scores again, Ancelotti's admission and Modric makes history**\
 `Mario Cortegana breaks down the main talking points from Real Madrid's 2-1 win over Celta Vigo`\
 https://nytimes.com/athletic/5855674/2024/10/20/celta-vigo-real-madrid-mbappe-ancelotti-modric/
-
-**Week 8's College Football Playoff lessons: Bama on the brink? Indiana in?**\
-`Alabama is in trouble, Indiana is for real and expansion is working exactly as hoped.`\
-https://nytimes.com/athletic/5856317/2024/10/20/alabama-indiana-college-football-playoff/
 
