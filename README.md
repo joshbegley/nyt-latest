@@ -1,6 +1,14 @@
+**Quotation of the Day: Ukrainian Soldier Says He Deserted To Help His Comrades**\
+`Quotation of the Day for Sunday, October 20, 2024.`\
+https://nytimes.com/2024/10/19/pageoneplus/quotation-of-the-day-ukrainian-soldier-says-he-deserted-to-help-his-comrades.html
+
 **Tennessee proved against Alabama it's not a one-hit wonder under Josh Heupel**\
 `The Vols may be flawed, but so is everyone else in college football. The win against Alabama showed Tennessee should be Playoff-bound.`\
 https://nytimes.com/athletic/5856079/2024/10/19/tennessee-vols-alabama-playoff-heupel/
+
+**Georgia knocks off Texas to restake claim to SEC front-runner status**\
+`Any thoughts of Texas waltzing into the SEC championship game go on hold for the moment.`\
+https://nytimes.com/athletic/5838711/2024/10/19/arch-manning-texas-georgia-quinn-ewers/
 
 **Seahawks at Falcons odds, picks, how to watch: Seattle aims to stop losing skid**\
 `Seattle has lost three games in a row. Atlanta has won three straight. Now Geno Smith and Kirk Cousins face off at Mercedes-Benz Stadium.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5856014/2024/10/19/texas-georgia-pass-interfence-ca
 **How Canucks' dominance made Tyler Myers' 1,000th game a celebration: 3 takeaways**\
 `The Canucks' 3-0 win over the Flyers on Saturday was far and away Vancouver's most convincing effort of the season.`\
 https://nytimes.com/athletic/5855596/2024/10/19/canucks-tyler-myers-1000-games-takeaways/
-
-**How Kirill Kaprizov thrilled, Filip Gustavsson stood tall in win: 3 Wild takeaways**\
-`The Wild improved to 3-0-2 on the season and have yet to trail in 300 minutes of regulation hockey.`\
-https://nytimes.com/athletic/5855661/2024/10/19/wild-kirill-kaprizov-filip-gustavsson/
-
-**How Indonesia’s Transformative Leader Tarnished His Legacy**\
-`Joko Widodo rose from a slum to the presidency. As his term ends, he is being accused of undermining the democracy that made that possible.`\
-https://nytimes.com/2024/10/19/world/asia/jokowi-legacy-gibran-dynasty.html
 
