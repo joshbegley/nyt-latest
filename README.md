@@ -1,3 +1,7 @@
+**Investigation launched into alleged homophobic chanting from PSG fans**\
+`The Ligue de Football Professionnel (LFP) say they have launched an investigation into alleged homophobic chanting from Paris Saint-Germain supporters during the Ligue 1 game with Strasbourg on Saturday.`\
+https://nytimes.com/athletic/5856649/2024/10/20/psg-strasbourg-chants-homophobic/
+
 **Kamala Harris and McDonald’s: A College Job, and a Trump Attack**\
 `Donald Trump has claimed without evidence that Ms. Harris never worked at the fast-food chain. Her campaign and a friend say she did.`\
 https://nytimes.com/2024/10/20/us/politics/kamala-harris-mcdonalds-work-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5856674/2024/10/20/haason-reddick-jets-contract-agr
 **West Ham self-destruct and expose deep-rooted issues**\
 `Julen Lopetegui has asked to be judged at the end of the season, but will the West Ham boss be given that time after a slow start? `\
 https://nytimes.com/athletic/5854771/2024/10/20/west-ham-self-destruct-tottenham/
-
-**Here’s the latest on the presidential race.**\
-`Former President Donald J. Trump is heading to Pennsylvania, while Vice President Kamala Harris will sit down with the Rev. Al Sharpton for an interview on MSNBC on her 60th birthday.`\
-https://nytimes.com/live/2024/10/20/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
