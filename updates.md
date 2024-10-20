@@ -1,3 +1,7 @@
+**Sherman: Question everything about the Huskers in Year 2 under Matt Rhule**\
+`For Nebraska, it was a dark day. Where do the Huskers go from here, with a team much more talented than Indiana looming?`\
+https://nytimes.com/athletic/5855739/2024/10/19/nebraska-indiana-loss-matt-rhule/
+
 **Clock ticking on Oilers as they consider making changes to power play**\
 `After a 4-1 loss to the Stars on Saturday, it's clear the Oilers' best collective weapon can’t continue to look so inept for much longer.`\
 https://nytimes.com/athletic/5855714/2024/10/19/oilers-stars-power-play/
