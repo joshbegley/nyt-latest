@@ -1,4 +1,8 @@
-**How Canucks' dominance made Tyler Myers' 1000th game a celebration: 3 takeaways**\
+**Texas-Georgia pass interference call overturned**\
+`The game stopped with 2:48 left in the third quarter as Texas students threw water bottles and garbage on the field.`\
+https://nytimes.com/athletic/5856014/2024/10/19/texas-georgia-pass-interfence-call/
+
+**How Canucks' dominance made Tyler Myers' 1,000th game a celebration: 3 takeaways**\
 `The Canucks' 3-0 win over the Flyers on Saturday was far and away Vancouver's most convincing effort of the season.`\
 https://nytimes.com/athletic/5855596/2024/10/19/canucks-tyler-myers-1000-games-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5838711/2024/10/19/arch-manning-texas-georgia-quinn
 **At Least 7 Dead After Georgia Ferry Dock Collapses**\
 `The circumstances of the accident in Sapelo Island, south of Savannah, were not immediately clear.`\
 https://nytimes.com/2024/10/19/us/sapelo-island-dock-collapse.html
-
-**Miami qualifies for Club World Cup, to host first game at Hard Rock**\
-`FIFA president Gianni Infantino announced Miami had qualified for the 2025 FIFA Club World Cup by virtue of their regular-season title.`\
-https://nytimes.com/athletic/5855746/2024/10/19/miami-club-world-cup-hard-rock-stadium/
 
