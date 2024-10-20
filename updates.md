@@ -1,3 +1,11 @@
+**Harris Says Trump’s Behavior ‘Demeans’ the Presidency After Vulgar Remarks**\
+`In an interview with the Rev. Al Sharpton on MSNBC, the vice president reacted to her opponent’s behavior at rallies, saying Americans “deserve so much better.”`\
+https://nytimes.com/2024/10/20/us/politics/trump-arnold-palmer-kamala-harris.html
+
+**Fans Mourn Liam Payne at Vigil in London**\
+`His death has been particularly profound in Britain, where Payne, a member of the boy band One Direction, first achieved fame. “We don’t know loss like this,” one fan said.`\
+https://nytimes.com/2024/10/20/arts/music/liam-payne-vigil-london.html
+
 **Buckley: Worst Patriots team ever? Jerod Mayo's bunch is well on its way**\
 `Nobody expected the Pats to win a lot of games. What most people did expect was renewed energy and a new vibe around Gillette Stadium. `\
 https://nytimes.com/athletic/5857691/2024/10/20/patriots-jaguars-drake-maye-london/
