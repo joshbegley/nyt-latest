@@ -1,3 +1,7 @@
+**Heavy Rainfall Leads to Flash Flood Emergency in New Mexico**\
+`Roswell, N.M., received nearly a third of its annual rainfall total in just a few hours on Sunday, sending swift floodwaters through the city and shutting down access into or out of Roswell.`\
+https://nytimes.com/2024/10/20/us/new-mexico-flooding.html
+
 **ECU fires football coach Mike Houston**\
 `Defensive coordinator Blake Harrell was named interim head coach for the remainder of the season.`\
 https://nytimes.com/athletic/5856966/2024/10/20/mike-houston-east-carolina-fired/
