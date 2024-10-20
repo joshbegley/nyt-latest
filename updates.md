@@ -1,3 +1,7 @@
+**Haason Reddick ends holdout, agrees to restructured contract with Jets**\
+`The defensive end is expected to report to the team on Monday.`\
+https://nytimes.com/athletic/5856674/2024/10/20/haason-reddick-jets-contract-agreement/
+
 **Dozens of Palestinians are dead or missing after an Israeli airstrike in northern Gaza, officials say.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/dozens-of-palestinians-are-dead-or-missing-after-an-israeli-airstrike-in-northern-gaza-officials-say
