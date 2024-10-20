@@ -1,3 +1,7 @@
+**Who's the Yankees' best matchup in the World Series: Dodgers or Mets?**\
+`Both would be formidable opponents, but there are pros and cons to facing each team. `\
+https://nytimes.com/athletic/5855927/2024/10/20/yankees-world-series-dodgers-mets/
+
 **Celta Vigo 1 Real Madrid 2: Mbappe scores again, Ancelotti's admission and Modric makes history**\
 `Mario Cortegana breaks down the main talking points from Real Madrid's 2-1 win over Celta Vigo`\
 https://nytimes.com/athletic/5855674/2024/10/20/celta-vigo-real-madrid-mbappe-ancelotti-modric/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850258/2024/10/20/kansas-city-chiefs-week-7-news-p
 **There Is No Leadership Without Risk**\
 `Those in positions of leadership fear they will say the wrong thing, or say what they believe to be the right thing in the wrong way.`\
 https://nytimes.com/2024/10/20/opinion/leadership-crisis.html
-
-**The Connections Companion No. 498**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 21, 2024.`\
-https://nytimes.com/2024/10/20/crosswords/connections-companion-498.html
 
