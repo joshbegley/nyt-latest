@@ -1,3 +1,7 @@
+**Israeli Airstrike in Northern Gaza Kills Dozens, Officials Say**\
+`Palestinians combed through rubble looking for survivors after an overnight Israeli airstrike hit a residential building in the town of Beit Lahia, in northern Gaza, killing dozens of people, according to Palestinian officials.`\
+https://nytimes.com/video/world/middleeast/100000009772039/beit-lahia-aftermath-israeli-strike-gaza.html
+
 **Protesters in Israel Demand a Cease-Fire and Hostage Deal**\
 `Thousands joined families of hostages held in Gaza during a protest in Tel Aviv to call on Prime Minister Benjamin Netanyahu’s government to reach a cease-fire deal and to push for the release of hostages.`\
 https://nytimes.com/video/world/middleeast/100000009772044/tel-aviv-protest-israeli-hostages-gaza-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/us/new-mexico-flooding.html
 **Wolves 1 Manchester City 2: Stones wins it, VAR drama and Gvardiol appreciation**\
 `Sam Lee breaks down the main talking points from Manchester City's dramatic 2-1 win over Wolves`\
 https://nytimes.com/athletic/5850554/2024/10/20/wolves-1-manchester-city-2-stones-var-gvardiol/
-
-**Lowetide: Oilers' young AHL players looking good in early days of 2024-25**\
-`Since 2011, 23 players aged 20 have enjoyed successful rookie seasons in the AHL with Edmonton Oilers affiliates.`\
-https://nytimes.com/athletic/5855181/2024/10/20/edmonton-oilers-2024-minors/
 
