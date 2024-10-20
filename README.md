@@ -1,3 +1,27 @@
+**Jill Stein Won’t Stop. No Matter Who Asks.**\
+`People in Stein’s life have implored her to abandon her bid for president, lest she throw the election to Donald Trump. She’s on the ballot in almost every critical state.`\
+https://nytimes.com/2024/10/20/us/politics/jill-stein-harris-trump.html
+
+**A Requiem for a Fictitious Congressman**\
+`Godfrey G. Gloom, who was frequently featured in The Times’s pages, met a colorful end in 1936.`\
+https://nytimes.com/2024/10/20/insider/a-requiem-for-a-fictitious-congressman.html
+
+**Number of Young People Accused of Serious Crimes Surges in New York City**\
+`A 37 percent rise in the number of young people accused in serious crimes mirrors a broader increase. But it has alarmed the police, who say young offenders could grow up to break the law again.`\
+https://nytimes.com/2024/10/20/nyregion/youth-crime-arrests-nyc.html
+
+**MLS Decision Day: Messi's hat trick history and the end of an era for Philly**\
+`How the final day of the MLS regular season played out`\
+https://nytimes.com/athletic/5855575/2024/10/20/mls-decision-day-messi-miami-galaxy-union/
+
+**‘Her Needles Pulled a Single String of Yarn From a Bag on the Floor’**\
+`A knitter’s practiced hands draw attention, a solo on a windy day and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/10/20/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/20/crosswords/spelling-bee-forum.html
+
 **What’s immediately next for Yankees as they await World Series: ‘Chance to reset’**\
 `The team will have a full off day Sunday before reopening the stadium to players on Monday.`\
 https://nytimes.com/athletic/5856373/2024/10/20/yankees-world-series-reset/
@@ -14,28 +38,4 @@ https://nytimes.com/athletic/5856238/2024/10/20/iowa-state-ucf-score-takeaways/
 `Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
 `\
 https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
-
-**Eagles at Giants odds, picks, how to watch: A Saquon Barkley revenge game?**\
-`Saquon Barkley travels back to New York to face his old team in a revenge game as the Eagles take on the Giants. `\
-https://nytimes.com/athletic/5850720/2024/10/20/eagles-giants-odds-picks-how-to-watch-betting/
-
-**Russo: For the Wild, this season's start feels different from last season's unraveling**\
-`The Wild seem better equipped to deal with adversity this season, whether that’s players out of the lineup, or simply in-game.`\
-https://nytimes.com/athletic/5856155/2024/10/20/russo-wild-early-start/
-
-**Lions vs. Vikings odds, expert picks, how to watch: A marquee NFC North matchup**\
-`The NFC North delivers a marquee matchup when the unbeaten Minnesota Vikings host the Detroit Lions.`\
-https://nytimes.com/athletic/5850975/2024/10/20/lions-vikings-odds-picks-how-to-watch-betting/
-
-**The Tottenham substitution that changed a match - and maybe their season**\
-`A bold switch from Ange Postecoglou sealed an emphatic win over West Ham but could have more long-term significance`\
-https://nytimes.com/athletic/5855288/2024/10/20/tottenham-substitution-west-ham/
-
-**Dolphins vs. Colts odds, picks, how to watch: Gritty Indy favored over rested Miami**\
-`The Colts have shown they can win ugly games. They're slight favored over the Dolphins, who are coming off a bye.`\
-https://nytimes.com/athletic/5851101/2024/10/20/dolphins-colts-odds-picks-how-to-watch-betting/
-
-**Modric is Real Madrid's oldest ever player: Best moments and place in club history**\
-`Luka Modric became Real Madrid's oldest player in history on Saturday. Here, we look at what makes him so special`\
-https://nytimes.com/athletic/5850723/2024/10/20/luka-modric-real-madrid-la-liga-record-oldest-player/
 
