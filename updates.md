@@ -1,3 +1,7 @@
+**Morales: USC has invested heavily in Lincoln Riley and his staff. Where are the results?**\
+`It’s late October and USC already has nothing to play for but pride. That’s just not where things are supposed to be in Year 3 under Riley.`\
+https://nytimes.com/athletic/5856010/2024/10/19/usc-lincoln-riley-results/
+
 **Maple Leafs report cards: Auston Matthews' lone goal not enough in loss to Rangers**\
 `The Maple Leafs weren't hard enough on goalie Igor Shesterkin for the full 60 minutes of a 4-1 loss to the Rangers.`\
 https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analysis/
