@@ -1,3 +1,7 @@
+**Heavy Rainfall Leads to Flash Flood Emergency in New Mexico**\
+`Roswell, N.M., received nearly a third of its annual rainfall total in just a few hours on Sunday, sending swift floodwaters through the city and shutting down access into or out of Roswell.`\
+https://nytimes.com/2024/10/20/us/new-mexico-flooding.html
+
 **Wolves 1 Manchester City 2: Stones wins it, VAR drama and Gvardiol appreciation**\
 `Sam Lee breaks down the main talking points from Manchester City's dramatic 2-1 win over Wolves`\
 https://nytimes.com/athletic/5850554/2024/10/20/wolves-1-manchester-city-2-stones-var-gvardiol/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5856649/2024/10/20/psg-strasbourg-chants-homophobic
 **Kamala Harris and McDonald’s: A College Job, and a Trump Attack**\
 `Donald Trump has claimed without evidence that Ms. Harris never worked at the fast-food chain. Her campaign and a friend say she did.`\
 https://nytimes.com/2024/10/20/us/politics/kamala-harris-mcdonalds-work-trump.html
-
-**Until Saturday: Who will be the new No. 1, what's going on in the Big 12?**\
-`Welcome to Until Saturday, the five-star college football newsletter: Who will be No. 1 this week? Can anyone predict the Big 12?`\
-https://nytimes.com/athletic/5854945/2024/10/20/college-football-no-1-georgia-texas-big-12-until-saturday/
 
