@@ -1,3 +1,7 @@
+**Patriots' Jerod Mayo calls team 'soft,' seems out of answers as losing streak continues**\
+`The Patriots didn't just lose their sixth straight game. Their head coach called the whole team soft after a bad 32-16 loss to the Jaguars.`\
+https://nytimes.com/athletic/5857481/2024/10/20/patriots-loss-mayo-soft-comments/
+
 **Musk’s $1 Million Offer Raises New Legal Questions**\
 `Some election lawyers said the giveaway may run into laws that prohibit paying people to register to vote.`\
 https://nytimes.com/2024/10/20/us/politics/elon-musk-million-dollar-petition.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857440/2024/10/20/browns-deshaun-watson-injury-upd
 **AP Top 25: Oregon new No. 1; Vandy ends poll drought**\
 `Oregon became the fourth team to ascend to No. 1 in the AP Top 25 poll this season, topping Georgia, Penn State, Ohio State and Texas.`\
 https://nytimes.com/athletic/5857295/2024/10/20/ap-top-25-rankings-oregon-georgia-alabama/
-
-**Review: A Choir Stands Out in a Multimedia Performance**\
-`The Crossing is one of many elements in “Can We Know the Sound of Forgiveness,” which links pieces by Gabriela Ortiz in a five-movement meditation.`\
-https://nytimes.com/2024/10/20/arts/music/gabriela-ortiz-carnegie-hall.html
 
