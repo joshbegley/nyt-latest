@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`Former President Donald J. Trump is heading to Pennsylvania, while Vice President Kamala Harris will sit down with the Rev. Al Sharpton for an interview on MSNBC on her 60th birthday.`\
+https://nytimes.com/live/2024/10/20/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Heads to McDonald’s, Hoping to Undercut Harris**\
+`Former President Donald J. Trump is expected to work at a McDonald’s on Sunday, aiming to attack Vice President Kamala Harris over unsubstantiated claims that she never worked at the fast-food chain.`\
+https://nytimes.com/live/2024/10/20/us/harris-trump-election
+
 **How Elections Affect Our Shopping**\
 `We explore why consumers why tend to get skittish about major purchases ahead of a general election.`\
 https://nytimes.com/2024/10/20/briefing/election-shopping-habits.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/20/opinion/michigan-diversity-equity-inclusion.html
 **San Francisco 49ers Week 7 playbook: What to know ahead of Chiefs matchup**\
 `Catch up on the latest 49ers news before Sunday's game against the Chiefs.`\
 https://nytimes.com/athletic/5852219/2024/10/20/san-francisco-49ers-week-7-news-projections-preview/
-
-**College Officials Must Condemn On-Campus Support for Hamas Violence**\
-`Would school administrators be silent if there was a Ku Klux Klan gathering on their campus celebrating white supremacist violence?`\
-https://nytimes.com/2024/10/20/opinion/hamas-colleges-free-speech.html
-
-**This Hollywood Horror Film Hit Close to Home**\
-`I’ve seen the ways that show business can warp a young woman’s self-perception. I’ve even fallen prey to some of them.`\
-https://nytimes.com/2024/10/20/opinion/hollywood-horror-the-substance.html
 
