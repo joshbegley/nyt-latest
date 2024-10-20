@@ -2,8 +2,8 @@
 `The 49ers are now down to their fourth, fifth and sixth wide receivers in their starting lineup. `\
 https://nytimes.com/athletic/5858015/2024/10/20/brandon-aiyuk-injury-deebo-samuel-49ers-chiefs/
 
-**Israel strikes Hezbollah-affiliated financial institution in Lebanon.**\
-`By Ephrat Livni and Euan Ward`\
+**Israel Strikes Hezbollah-Affiliated Financial Institution in Lebanon**\
+`Branches of Al-Qard al-Hasan, which functions as Hezbollah’s de facto banking arm but also operates as an alternative bank for Lebanese, were targeted around Beirut and across the country’s south and east.`\
 https://nytimes.com/2024/10/20/world/middleeast/israel-strike-lebanon-hezbollah.html
 
 **Garrett, Winston scold Browns fans who cheered after Watson's injury**\

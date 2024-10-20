@@ -1,3 +1,7 @@
+**Israel Strikes Hezbollah-Affiliated Financial Institution in Lebanon**\
+`Branches of Al-Qard al-Hasan, which functions as Hezbollah’s de facto banking arm but also operates as an alternative bank for Lebanese, were targeted around Beirut and across the country’s south and east.`\
+https://nytimes.com/2024/10/20/world/middleeast/israel-strike-lebanon-hezbollah.html
+
 **49ers' Aiyuk carted off, Samuel ruled out vs. Chiefs**\
 `The 49ers are now down to their fourth, fifth and sixth wide receivers in their starting lineup. `\
 https://nytimes.com/athletic/5858015/2024/10/20/brandon-aiyuk-injury-deebo-samuel-49ers-chiefs/
