@@ -218,6 +218,11 @@ https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thomp
 `\
 https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
 
+**Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
+`Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
+`\
+https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
+
 **‘Saturday Night Live’ Welcomes Back Alec Baldwin**\
 `The longtime friend of “S.N.L.” made his first appearance on the show since an involuntary manslaughter case against him was dismissed. Michael Keaton was the host.`\
 https://nytimes.com/2024/10/20/arts/television/saturday-night-live.html
