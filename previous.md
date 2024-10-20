@@ -1,3 +1,7 @@
+**Hundreds Rescued From New Mexico Floods**\
+`At least two were killed and hundreds were rescued as torrential rains poured an “historic” amount on eastern New Mexico.`\
+https://nytimes.com/video/us/100000009772252/new-mexico-roswell-flooding.html
+
 **Texas fined $250,000 for delay caused by fans throwing debris on field**\
 `Texas will have to pay a fine and 'use all available resources' to identify and penalize the fans who threw objects on the field.`\
 https://nytimes.com/athletic/5857742/2024/10/20/texas-georgia-fans-debris-delay-fine/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857014/2024/10/20/titans-bills-takeaways-result-am
 **Charles Leclerc wins F1 U.S. Grand Prix**\
 `Ferrari took advantage of Max Verstappen and Lando Norris, the title contenders, battling all race. `\
 https://nytimes.com/athletic/5857103/2024/10/20/charles-leclerc-f1-us-grand-prix-lando-norris-max-verstappen/
-
-**Saquon Barkley, Eagles' defense dominate Giants in 28-3 win: Takeaways**\
-`Philadelphia sacked Giants QB Daniel Jones seven times and held New York to only 119 yards on offense.`\
-https://nytimes.com/athletic/5857057/2024/10/20/eagles-giants-takeaways-result/
 

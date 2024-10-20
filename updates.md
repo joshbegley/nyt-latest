@@ -1,3 +1,7 @@
+**Hundreds Rescued From New Mexico Floods**\
+`At least two were killed and hundreds were rescued as torrential rains poured an “historic” amount on eastern New Mexico.`\
+https://nytimes.com/video/us/100000009772252/new-mexico-roswell-flooding.html
+
 **Texas fined $250,000 for delay caused by fans throwing debris on field**\
 `Texas will have to pay a fine and 'use all available resources' to identify and penalize the fans who threw objects on the field.`\
 https://nytimes.com/athletic/5857742/2024/10/20/texas-georgia-fans-debris-delay-fine/

@@ -1,3 +1,11 @@
+**Monday Briefing: Israel Escalates War Against Hezbollah**\
+`Plus, the French town shaken by a rape trial.`\
+https://nytimes.com/2024/10/20/briefing/israel-hezbollah-swing-states-indonesia.html
+
+**Trump, Slinging Fries and Smearing Harris, Takes Turn Behind a McDonald’s Counter**\
+`At a campaign photo op, the candidate worked the drive-through window, slammed his opponent and acknowledged a weakness. “I love salt,” he said.`\
+https://nytimes.com/2024/10/20/us/politics/trump-mcdonalds-fries.html
+
 **Hundreds Rescued From New Mexico Floods**\
 `At least two were killed and hundreds were rescued as torrential rains poured an “historic” amount on eastern New Mexico.`\
 https://nytimes.com/video/us/100000009772252/new-mexico-roswell-flooding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5857009/2024/10/20/falcons-seahawks-takeaways-resul
 **Jones' opening kickoff TD powers Bengals past Browns, 21-14: Takeaways**\
 `Cincinnati improves to 3-4 with second straight win, while Nick Chubb scores in return to action for Cleveland. `\
 https://nytimes.com/athletic/5857022/2024/10/20/bengals-browns-takeaways-result/
-
-**Cooper snags TD to help Bills roll past Titans 34-10: Takeaways**\
-`The Bills maintained their lead over the AFC East with a big win over the Titans.`\
-https://nytimes.com/athletic/5857014/2024/10/20/titans-bills-takeaways-result-amari-cooper/
-
-**Charles Leclerc wins F1 U.S. Grand Prix**\
-`Ferrari took advantage of Max Verstappen and Lando Norris, the title contenders, battling all race. `\
-https://nytimes.com/athletic/5857103/2024/10/20/charles-leclerc-f1-us-grand-prix-lando-norris-max-verstappen/
 
