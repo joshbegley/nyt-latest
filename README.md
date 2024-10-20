@@ -1,3 +1,7 @@
+**At a Pennsylvania Rally, Trump Descends to New Levels of Vulgarity**\
+`The G.O.P. nominee repeated crude insults, and his supporters relished each moment. But the display could alienate swing voters.`\
+https://nytimes.com/2024/10/19/us/politics/trump-vulgarity-pennsylvania-rally.html
+
 **How Igor Shesterkin, top-6 excellence led to Rangers' win: 4 takeaways**\
 `The Rangers won 4-1 in Toronto behind another stellar goaltending performance from their star goaltender.`\
 https://nytimes.com/athletic/5856020/2024/10/19/rangers-maple-leafs-igor-shesterkin-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5856027/2024/10/19/alabama-tennessee-kalen-deboer/
 **Maple Leafs report cards: Auston Matthews' lone goal not enough in loss to Rangers**\
 `The Maple Leafs weren't hard enough on goalie Igor Shesterkin for the full 60 minutes of a 4-1 loss to the Rangers.`\
 https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analysis/
-
-**Morales: USC has invested heavily in Lincoln Riley and his staff. Where are the results?**\
-`It’s late October and USC already has nothing to play for but pride. That’s just not where things are supposed to be in Year 3 under Riley.`\
-https://nytimes.com/athletic/5856010/2024/10/19/usc-lincoln-riley-results/
 
