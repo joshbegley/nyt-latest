@@ -1,3 +1,11 @@
+**Dolphins vs. Colts odds, picks, how to watch: Gritty Indy favored over rested Miami**\
+`The Colts have shown they can win ugly games. They're slight favored over the Dolphins, who are coming off a bye.`\
+https://nytimes.com/athletic/5851101/2024/10/20/dolphins-colts-odds-picks-how-to-watch-betting/
+
+**Modric is Real Madrid's oldest ever player: Best moments and place in club history**\
+`Luka Modric became Real Madrid's oldest player in history on Saturday. Here, we look at what makes him so special`\
+https://nytimes.com/athletic/5850723/2024/10/20/luka-modric-real-madrid-la-liga-record-oldest-player/
+
 **Texans vs. Packers odds, expert picks, how to watch: Two top offenses collide**\
 `The Packers are slight home favorites in this cross-conference matchup of playoff contenders.`\
 https://nytimes.com/athletic/5851071/2024/10/20/texans-packers-odds-picks-how-to-watch-betting/

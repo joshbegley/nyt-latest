@@ -1,3 +1,11 @@
+**Dolphins vs. Colts odds, picks, how to watch: Gritty Indy favored over rested Miami**\
+`The Colts have shown they can win ugly games. They're slight favored over the Dolphins, who are coming off a bye.`\
+https://nytimes.com/athletic/5851101/2024/10/20/dolphins-colts-odds-picks-how-to-watch-betting/
+
+**Modric is Real Madrid's oldest ever player: Best moments and place in club history**\
+`Luka Modric became Real Madrid's oldest player in history on Saturday. Here, we look at what makes him so special`\
+https://nytimes.com/athletic/5850723/2024/10/20/luka-modric-real-madrid-la-liga-record-oldest-player/
+
 **Texans vs. Packers odds, expert picks, how to watch: Two top offenses collide**\
 `The Packers are slight home favorites in this cross-conference matchup of playoff contenders.`\
 https://nytimes.com/athletic/5851071/2024/10/20/texans-packers-odds-picks-how-to-watch-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5851508/2024/10/20/liverpool-chelsea-preview-odds-p
 **Bengals vs. Browns odds, expert picks, how to watch: Cincinnati favored in Ohio battle**\
 `Without Amari Cooper, the Browns are looking even more dismal, but a strong defense has kept the spread around a touchdown.`\
 https://nytimes.com/athletic/5851046/2024/10/20/bengals-browns-odds-picks-how-to-watch-betting/
-
-**At a Pennsylvania Rally, Trump Descends to New Levels of Vulgarity**\
-`The G.O.P. nominee repeated crude insults, and his supporters relished each moment. But the display could alienate swing voters.`\
-https://nytimes.com/2024/10/19/us/politics/trump-vulgarity-pennsylvania-rally.html
-
-**How Igor Shesterkin, top-6 excellence led to Rangers' win: 4 takeaways**\
-`The Rangers won 4-1 in Toronto behind another stellar goaltending performance from their star goaltender.`\
-https://nytimes.com/athletic/5856020/2024/10/19/rangers-maple-leafs-igor-shesterkin-takeaways/
 
