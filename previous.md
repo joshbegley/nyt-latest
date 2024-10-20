@@ -1,3 +1,7 @@
+**Celta Vigo 1 Real Madrid 2: Mbappe scores again, Ancelotti's admission and Modric makes history**\
+`Mario Cortegana breaks down the main talking points from Real Madrid's 2-1 win over Celta Vigo`\
+https://nytimes.com/athletic/5855674/2024/10/20/celta-vigo-real-madrid-mbappe-ancelotti-modric/
+
 **Week 8's College Football Playoff lessons: Bama on the brink? Indiana in?**\
 `Alabama is in trouble, Indiana is for real and expansion is working exactly as hoped.`\
 https://nytimes.com/athletic/5856317/2024/10/20/alabama-indiana-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/opinion/leadership-crisis.html
 **The Connections Companion No. 498**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 21, 2024.`\
 https://nytimes.com/2024/10/20/crosswords/connections-companion-498.html
-
-**Wordle Review No. 1,220**\
-`Scroll down for hints and conversation about the puzzle for Mon., Oct. 21, 2024.`\
-https://nytimes.com/2024/10/20/crosswords/wordle-review-1220.html
 
