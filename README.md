@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analy
 
 **Morales: USC has invested heavily in Lincoln Riley and his staff. Where are the results?**\
 `It’s late October and USC already has nothing to play for but pride. That’s just not where things are supposed to be in Year 3 under Riley.`\
-https://nytimes.com/athletic/5856010/2024/10/19/usc-has-invested-heavily-in-lincoln-riley-and-his-staff-where-are-the-results/
+https://nytimes.com/athletic/5856010/2024/10/19/usc-lincoln-riley-results/
 
 **Texas-Georgia pass interference call overturned**\
 `The game stopped with 2:48 left in the third quarter as Texas students threw water bottles and garbage on the field.`\
