@@ -1,3 +1,11 @@
+**How Lando Norris' U.S. Grand Prix became a 'momentum killer' for his F1 title hopes**\
+`Verstappen and Norris went wheel-to-wheel in their most spirited fight since the Austrian GP — avoiding contact this time, but not drama.`\
+https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstappen/
+
+**Rams' Kupp expected to return Thursday, McVay says**\
+`Kupp has not played since the Rams' Week 2 loss to the Arizona Cardinals.`\
+https://nytimes.com/athletic/5858327/2024/10/20/rams-cooper-kupp-injury-update-vikings/
+
 **Penguins' defensive futility strikes again in loss to Jets: Yohe's 10 observations**\
 `The Penguins produced another defensive dud in a 6-3 loss to the Jets in Winnipeg on Sunday. `\
 https://nytimes.com/athletic/5857885/2024/10/20/penguins-defensive-futility-nedeljkovic-jets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5857062/2024/10/20/rams-raiders-takeaways-result/
 **A Crack, a Shift, then Screams: Witnesses Describe Georgia Dock Collapse That Killed 7**\
 `Investigators have begun looking for reasons behind the failure at a ferry dock on Sapelo Island, the site of a festival celebrating the heritage of descendants of enslaved people.`\
 https://nytimes.com/2024/10/20/us/georgia-dock-collapse-gullah-geechee.html
-
-**Oklahoma fires OC Seth Littrell as offense spirals: Source**\
-`The Sooners have lost three of their last four games and are 132nd in the country in offense.`\
-https://nytimes.com/athletic/5858207/2024/10/20/oklahoma-football-offensive-coordinator-seth-littrell-fired/
-
-**Southern Miss fires head coach Will Hall after 1-6 start**\
-`Hall finishes with a 14-30 record in Hattiesburg, made worse by a 1-6 start to this season.`\
-https://nytimes.com/athletic/5858238/2024/10/20/will-hall-southern-miss-fired/
 
