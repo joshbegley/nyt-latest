@@ -1,3 +1,11 @@
+**Review: A Choir Stands Out in a Multimedia Performance**\
+`The Crossing is one of many elements in “Can We Know the Sound of Forgiveness,” which links pieces by Gabriela Ortiz in a five-movement meditation.`\
+https://nytimes.com/2024/10/20/arts/music/gabriela-ortiz-carnegie-hall.html
+
+**James withdraws from England squad with calf injury**\
+`Lauren James has withdrawn from the England squad for the upcoming pair of October international friendlies.`\
+https://nytimes.com/athletic/5857388/2024/10/20/england-women-squad-lauren-james-injury/
+
 **Messi at the Club World Cup makes sense - but how he got there is ridiculous**\
 `It was inevitable the Argentine would be at FIFA's club jamboree next summer, but how he qualified feels unsatisfactory in the extreme`\
 https://nytimes.com/athletic/5856541/2024/10/20/lionel-messi-miami-club-world-cup/
