@@ -1,3 +1,11 @@
+**Buckley: Worst Patriots team ever? Jerod Mayo's bunch is well on its way**\
+`Nobody expected the Pats to win a lot of games. What most people did expect was renewed energy and a new vibe around Gillette Stadium. `\
+https://nytimes.com/athletic/5857691/2024/10/20/patriots-jaguars-drake-maye-london/
+
+**NFL Week 7 takeaways: Who are kings of the NFC North? Should Giants have Saquon regret?**\
+`Plus, is there any chance the Jaguars are back on the right track?`\
+https://nytimes.com/athletic/5857864/2024/10/20/nfl-week-7-takeaways-nfc-north-giants-saquon-barkley/
+
 **Monday Briefing: Israel Escalates War Against Hezbollah**\
 `Plus, the French town shaken by a rape trial.`\
 https://nytimes.com/2024/10/20/briefing/israel-hezbollah-swing-states-indonesia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5857048/2024/10/20/lions-vikings-takeaways-result/
 **Commanders' Jayden Daniels questionable to return with rib injury**\
 `The 23-year-old was tackled multiple times on the drive, including after a 46-yard rush in which he was tackled from behind.`\
 https://nytimes.com/athletic/5857751/2024/10/20/commanders-jayden-daniels-injury/
-
-**Seahawks end three-game skid with win over Falcons: Takeaways**\
-`Seattle’s defense ended three consecutive Falcons fourth-quarter drives with turnovers to secure their first win since September.`\
-https://nytimes.com/athletic/5857009/2024/10/20/falcons-seahawks-takeaways-result/
-
-**Jones' opening kickoff TD powers Bengals past Browns, 21-14: Takeaways**\
-`Cincinnati improves to 3-4 with second straight win, while Nick Chubb scores in return to action for Cleveland. `\
-https://nytimes.com/athletic/5857022/2024/10/20/bengals-browns-takeaways-result/
 
