@@ -1,3 +1,7 @@
+**Cher, A Tribe Called Quest and Dave Matthews Band Join the Rock Hall**\
+`Gratitude flowed at the 39th induction ceremony in Cleveland, where Mary J. Blige, Peter Frampton, Ozzy Osbourne and the bands Foreigner and Kool & the Gang were honored.`\
+https://nytimes.com/2024/10/20/arts/music/rock-hall-fame-induction-cher-ozzy-osbourne-dave-matthews.html
+
 **Sister Sally Butler, Nun Who Blew the Whistle on Sex Abuse, Dies at 93**\
 `In the 1960s, she worked with priests to serve residents of housing projects in Brooklyn. Decades later, she learned that those priests had been abusing young boys.`\
 https://nytimes.com/2024/10/20/nyregion/sister-sally-butler-dead.html
