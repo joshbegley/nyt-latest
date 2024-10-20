@@ -1,3 +1,11 @@
+**Lions vs. Vikings odds, expert picks, how to watch: A marquee NFC North matchup**\
+`The NFC North delivers a marquee matchup when the unbeaten Minnesota Vikings host the Detroit Lions.`\
+https://nytimes.com/athletic/5850975/2024/10/20/lions-vikings-odds-picks-how-to-watch-betting/
+
+**The Tottenham substitution that changed a match - and maybe their season**\
+`A bold switch from Ange Postecoglou sealed an emphatic win over West Ham but could have more long-term significance`\
+https://nytimes.com/athletic/5855288/2024/10/20/tottenham-substitution-west-ham/
+
 **Dolphins vs. Colts odds, picks, how to watch: Gritty Indy favored over rested Miami**\
 `The Colts have shown they can win ugly games. They're slight favored over the Dolphins, who are coming off a bye.`\
 https://nytimes.com/athletic/5851101/2024/10/20/dolphins-colts-odds-picks-how-to-watch-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5856031/2024/10/20/guardians-yankees-score-mlb-play
 **Zumba Teacher? ‘Anti-Woke’ Cleric? 38 Candidates Line Up to Head Oxford**\
 `The role of chancellor at the University of Oxford has been around for 800 years. This year, a particularly broad range of people have applied.`\
 https://nytimes.com/2024/10/20/world/europe/oxford-university-chancellor-zumba-anti-woke-cleric.html
-
-**Liverpool vs Chelsea preview: Storylines, odds, prediction as top-four sides meet**\
-`Chelsea and Liverpool meet in a big Premier League match on Sunday. Both teams are in the top four ahead of this clash.`\
-https://nytimes.com/athletic/5851508/2024/10/20/liverpool-chelsea-preview-odds-prediction/
-
-**Bengals vs. Browns odds, expert picks, how to watch: Cincinnati favored in Ohio battle**\
-`Without Amari Cooper, the Browns are looking even more dismal, but a strong defense has kept the spread around a touchdown.`\
-https://nytimes.com/athletic/5851046/2024/10/20/bengals-browns-odds-picks-how-to-watch-betting/
 
