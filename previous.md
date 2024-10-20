@@ -1,6 +1,6 @@
 **Musk’s $1 Million Offer Raises New Legal Questions**\
 `Some election lawyers said the giveaway may run into laws that prohibit paying people to register to vote.`\
-https://nytimes.com/live/2024/10/20/us/harris-trump-election/elon-musk-million-dollar-petition
+https://nytimes.com/2024/10/20/us/politics/elon-musk-million-dollar-petition.html
 
 **Giants bench QB Daniel Jones, sub in Drew Lock vs. Eagles**\
 `Jones completed 14 of 21 passing attempts for 99 yards, averaging 4.7 yards per throw. He was sacked seven times.`\
