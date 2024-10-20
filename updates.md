@@ -1,3 +1,7 @@
+**Deshaun Watson carted off after suffering non-contact leg injury**\
+`Watson, 29, is in his third season with Cleveland after signing a five-year, $230 million fully guaranteed deal with the Browns in 2022.`\
+https://nytimes.com/athletic/5857440/2024/10/20/browns-deshaun-watson-injury-update/
+
 **AP Top 25: Oregon new No. 1; Vandy ends poll drought**\
 `Oregon became the fourth team to ascend to No. 1 in the AP Top 25 poll this season, topping Georgia, Penn State, Ohio State and Texas.`\
 https://nytimes.com/athletic/5857295/2024/10/20/ap-top-25-rankings-oregon-georgia-alabama/
