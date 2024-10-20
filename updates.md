@@ -1,3 +1,11 @@
+**Titans vs. Bills odds, picks, how to watch: Buffalo is the week's biggest favorite**\
+`The Bills are the biggest favorites of the week when they take on the Titans, with the odds moving after the Amari Cooper trade.`\
+https://nytimes.com/athletic/5850984/2024/10/19/titans-bills-odds-picks-how-to-watch-betting/
+
+**Auston Matthews' lone goal not enough in Maple Leafs loss to Rangers:**\
+`The Maple Leafs weren't hard enough on goalie Igor Shesterkin for the full 60 minutes of a 4-1 loss to the Rangers.`\
+https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analysis/
+
 **Quotation of the Day: Ukrainian Soldier Says He Deserted To Help His Comrades**\
 `Quotation of the Day for Sunday, October 20, 2024.`\
 https://nytimes.com/2024/10/19/pageoneplus/quotation-of-the-day-ukrainian-soldier-says-he-deserted-to-help-his-comrades.html
