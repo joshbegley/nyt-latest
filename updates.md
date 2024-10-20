@@ -1,3 +1,15 @@
+**Rams survive Raiders 20-15 as Las Vegas' struggles at QB continue**\
+`Led by another hard-nosed effort from running back Kyren Williams, the Rams held on with timely plays on offense.`\
+https://nytimes.com/athletic/5857062/2024/10/20/rams-raiders-takeaways-result/
+
+**A Crack, a Shift, then Screams: Witnesses Describe Georgia Dock Collapse That Killed 7**\
+`Investigators have begun looking for reasons behind the failure at a ferry dock on Sapelo Island, the site of a festival celebrating the heritage of descendants of enslaved people.`\
+https://nytimes.com/2024/10/20/us/georgia-dock-collapse-gullah-geechee.html
+
+**Oklahoma fires OC Seth Littrell as offense spirals: Source**\
+`The Sooners have lost three of their last four games and are 132nd in the country in offense.`\
+https://nytimes.com/athletic/5858207/2024/10/20/oklahoma-football-offensive-coordinator-seth-littrell-fired/
+
 **Southern Miss fires head coach Will Hall after 1-6 start**\
 `Hall finishes with a 14-30 record in Hattiesburg, made worse by a 1-6 start to this season.`\
 https://nytimes.com/athletic/5858238/2024/10/20/will-hall-southern-miss-fired/
