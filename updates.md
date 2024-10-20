@@ -1,3 +1,7 @@
+**Will women's soccer count the cost of going global?**\
+`Gotham FC are a step closer to what is expected to be qualification for the Club World Cup — but they're already feeling the strain`\
+https://nytimes.com/athletic/5854213/2024/10/20/club-world-cup-champions-cup-nwsl-womens/
+
 **Here are the latest developments.**\
 `By Matthew Mpoke Bigg and Mike Ives`\
 https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/here-are-the-latest-developments
