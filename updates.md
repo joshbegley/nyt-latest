@@ -1,3 +1,11 @@
+**Harris, with Usher by her side, makes abortion rights the focus in Atlanta.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election/harris-with-usher-by-her-side-makes-abortion-rights-the-focus-in-atlanta
+
+**Early in-person voting begins in Nevada, with Obama set to rally Democrats.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election/nevada-early-voting
+
 **'We're not going to wait forever': CHSN boss says Comcast hasn't made any offers**\
 `Jason Coyle, president of CHSN, said on Saturday that there have been no offers from Comcast whatsoever.`\
 https://nytimes.com/athletic/5855700/2024/10/19/chsn-comcast-tv-blackhawks/
