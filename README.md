@@ -1,3 +1,11 @@
+**Abortion as an Issue in the Election**\
+`Readers respond to a column by David French. Also: Veterans as poll workers; an immigrant’s story; political messages.`\
+https://nytimes.com/2024/10/20/opinion/abortion-election.html
+
+**Help Yourself to Pancakes**\
+`Put a platter of sour cream pancakes with cardamom apples on the table and watch everyone happily dig in.`\
+https://nytimes.com/2024/10/20/dining/help-yourself-to-pancakes.html
+
 **Sampson: Boring is just fine for Marcus Freeman, Notre Dame**\
 `Sometimes boring can be progress. And that’s exactly what Notre Dame accomplished on Saturday against Georgia Tech.`\
 https://nytimes.com/athletic/5856817/2024/10/20/notre-dame-georgia-tech-marcus-freeman/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/20/us/politics/trump-scandals.html
 **Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
 `Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
 https://nytimes.com/athletic/5846218/2024/10/20/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
-
-**Dozens of Palestinians are dead or missing after an Israeli airstrike in northern Gaza, officials say.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/dozens-of-palestinians-are-dead-or-missing-after-an-israeli-airstrike-in-northern-gaza-officials-say
-
-**Haason Reddick ends holdout, agrees to restructured contract with Jets**\
-`The defensive end is expected to report to the team on Monday.`\
-https://nytimes.com/athletic/5856674/2024/10/20/haason-reddick-jets-contract-agreement/
 
