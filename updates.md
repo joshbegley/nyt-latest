@@ -1,3 +1,11 @@
+**A Must-Watch Night for New York Sports Fans: Here’s What to Know**\
+`The Mets and the Liberty will each look to secure a crucial championship win, while the Jets will bring together two stars in an effort to reverse a losing streak.`\
+https://nytimes.com/2024/10/20/nyregion/new-york-mets-liberty-jets-watch.html
+
+**1 Dead, Hundreds Rescued in New Mexico Floods**\
+`Roswell, N.M., received nearly a third of its annual rainfall total in just a few hours on Sunday. Rescue efforts were ongoing with more storms in the forecast.`\
+https://nytimes.com/2024/10/20/us/new-mexico-flooding.html
+
 **Protesters in Israel Demand a Cease-Fire and Hostage Deal**\
 `Thousands joined families of hostages held in Gaza during a protest in Tel Aviv to call on Prime Minister Benjamin Netanyahu’s government to reach a cease-fire deal and to push for the release of hostages.`\
 https://nytimes.com/video/world/middleeast/100000009772044/tel-aviv-protest-israeli-hostages-gaza-ceasefire.html
