@@ -1,3 +1,11 @@
+**Raiders' O'Connell sustains thumb injury; Minshew enters vs. Rams**\
+`The Raiders were abruptly forced into another QB change on Sunday.`\
+https://nytimes.com/athletic/5857807/2024/10/20/raiders-aidan-oconnell-thumb-injury-minshew/
+
+**The U.S. is investigating an intelligence leak on Israel’s plans to strike Iran.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/the-us-is-investigating-an-intelligence-leak-on-israels-plans-to-strike-iran
+
 **Harris Says Trump’s Behavior ‘Demeans’ the Presidency After Vulgar Remarks**\
 `In an interview with the Rev. Al Sharpton on MSNBC, the vice president reacted to her opponent’s behavior at rallies, saying Americans “deserve so much better.”`\
 https://nytimes.com/2024/10/20/us/politics/trump-arnold-palmer-kamala-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009772252/new-mexico-roswell-flooding.html
 **Texas fined $250,000 for delay caused by fans throwing debris on field**\
 `Texas will have to pay a fine and 'use all available resources' to identify and penalize the fans who threw objects on the field.`\
 https://nytimes.com/athletic/5857742/2024/10/20/texas-georgia-fans-debris-delay-fine/
-
-**Trump Cooks and Serves Fries at a McDonald’s in Pennsylvania**\
-`During his trip to the battleground state, former President Donald J. Trump repeated his unsubstantiated claim that Vice President Kamala Harris lied about working at a McDonald’s in her college days.`\
-https://nytimes.com/video/us/politics/100000009772210/trump-mcdonalds-fries-harris.html
-
-**Colts' defense dominates in 16-10 win vs. Dolphins: Takeaways**\
-`Only three Dolphins wide receivers caught a pass on Sunday as QB Tyler Huntley exited with an injury.`\
-https://nytimes.com/athletic/5857037/2024/10/20/colts-dolphins-takeaways-result/
 
