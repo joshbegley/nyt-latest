@@ -1,3 +1,11 @@
+**Dozens of Palestinians are dead or missing after an Israeli airstrike in northern Gaza, officials say.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/dozens-of-palestinians-are-dead-or-missing-after-an-israeli-airstrike-in-northern-gaza-officials-say
+
+**Haason Reddick ends holdout, agrees to restructured contract with Jets**\
+`Haason Reddick and the New York Jets reached agreement on an adjusted contract, per agent Drew Rosenhaus; Reddick plans to report to the team on Monday morning.`\
+https://nytimes.com/athletic/5856674/2024/10/20/haason-reddick-jets-contract-agreement/
+
 **West Ham self-destruct and expose deep-rooted issues**\
 `Julen Lopetegui has asked to be judged at the end of the season, but will the West Ham boss be given that time after a slow start? `\
 https://nytimes.com/athletic/5854771/2024/10/20/west-ham-self-destruct-tottenham/

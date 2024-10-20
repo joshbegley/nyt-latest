@@ -1,3 +1,11 @@
+**Dozens of Palestinians are dead or missing after an Israeli airstrike in northern Gaza, officials say.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/dozens-of-palestinians-are-dead-or-missing-after-an-israeli-airstrike-in-northern-gaza-officials-say
+
+**Haason Reddick ends holdout, agrees to restructured contract with Jets**\
+`Haason Reddick and the New York Jets reached agreement on an adjusted contract, per agent Drew Rosenhaus; Reddick plans to report to the team on Monday morning.`\
+https://nytimes.com/athletic/5856674/2024/10/20/haason-reddick-jets-contract-agreement/
+
 **West Ham self-destruct and expose deep-rooted issues**\
 `Julen Lopetegui has asked to be judged at the end of the season, but will the West Ham boss be given that time after a slow start? `\
 https://nytimes.com/athletic/5854771/2024/10/20/west-ham-self-destruct-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5855674/2024/10/20/celta-vigo-real-madrid-mbappe-an
 **Week 8's College Football Playoff lessons: Bama on the brink? Indiana in?**\
 `Alabama is in trouble, Indiana is for real and expansion is working exactly as hoped.`\
 https://nytimes.com/athletic/5856317/2024/10/20/alabama-indiana-college-football-playoff/
-
-**The Sunday Read: ‘An Acerbic Young Writer Takes Aim at the Identity Era’**\
-`Tony Tulathimutte is a master comedian whose original and highly disturbing new book skewers liberal pieties.`\
-https://nytimes.com/2024/10/20/podcasts/the-daily/tony-tulathimutte-feminist.html
-
-**I Don’t Want to Live in a Monoculture, and Neither Do You**\
-`Few things can change your perspective for the better more than being attacked from both sides of America’s culture war.`\
-https://nytimes.com/2024/10/20/opinion/michigan-diversity-equity-inclusion.html
 
