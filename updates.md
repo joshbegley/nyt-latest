@@ -1,3 +1,15 @@
+**Tennessee's wild rivalry win puts Alabama on an unfamiliar Playoff bubble**\
+`No. 11 Tennessee topped No. 7 Alabama 24-17 behind a second-half surge that puts Alabama on the College Football Playoff bubble already.`\
+https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
+
+**Titans' Rudolph to start vs. Bills as Levis is sidelined with injury**\
+`Levis injured his right throwing shoulder diving for a first down against the Dolphins on Sept. 30.`\
+https://nytimes.com/athletic/5855518/2024/10/19/will-levis-mason-rudolph-titans-quarterback-inactive/
+
+**Fighting Rages in Gaza and Lebanon, Despite Killing of Hamas Leader**\
+`Peace talks were nowhere in sight and, despite Yahya Sinwar’s death, the violence seemed only to increase, as Israel struck northern Gaza and Hezbollah fired dozens of projectiles.`\
+https://nytimes.com/2024/10/19/world/middleeast/gaza-lebanon-hamas-hezbollah-israel-netanyahu.html
+
 **'We're not going to wait forever': CHSN boss says Comcast hasn't made any offers**\
 `Jason Coyle, president of CHSN, said on Saturday that there have been no offers from Comcast whatsoever.`\
 https://nytimes.com/athletic/5855700/2024/10/19/chsn-comcast-tv-blackhawks/
