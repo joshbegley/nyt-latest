@@ -1,3 +1,7 @@
+**Panthers at Commanders odds, expert picks, how to watch: What does Daniels have next?**\
+`Jayden Daniels continues his quest for the Rookie of the Year award this week against the Carolina Panthers. `\
+https://nytimes.com/athletic/5851096/2024/10/20/panthers-commanders-odds-picks-how-to-watch-betting/
+
 **Six-time Olympic cycling champion Hoy reveals terminal cancer diagnosis**\
 `Sir Chris Hoy, the six-time Olympic cycling champion, has revealed his cancer is terminal
 Hoy, 48, was initially diagnosed with the disease in September of last year before he went public with the news back in February.`\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/10/20/insider/a-requiem-for-a-fictitious-congressman.ht
 **Number of Young People Accused of Serious Crimes Surges in New York City**\
 `A 37 percent rise in the number of young people accused in serious crimes mirrors a broader increase. But it has alarmed the police, who say young offenders could grow up to break the law again.`\
 https://nytimes.com/2024/10/20/nyregion/youth-crime-arrests-nyc.html
-
-**MLS Decision Day: Messi's hat trick history and the end of an era for Philly**\
-`How the final day of the MLS regular season played out`\
-https://nytimes.com/athletic/5855575/2024/10/20/mls-decision-day-messi-miami-galaxy-union/
 
