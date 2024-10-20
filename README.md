@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/10/20/us/harris-trump-election/heres-the-latest-on
 https://nytimes.com/live/2024/10/20/us/harris-trump-election
 
 **How Elections Affect Our Shopping**\
-`We explore why consumers why tend to get skittish about major purchases ahead of a general election.`\
+`We explore why consumers tend to get skittish about major purchases ahead of a general election.`\
 https://nytimes.com/2024/10/20/briefing/election-shopping-habits.html
 
 **Mandel's Final Thoughts: Georgia's defensive havoc takes down Texas and more from Week 8**\
