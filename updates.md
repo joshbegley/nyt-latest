@@ -1,3 +1,11 @@
+**Wolves 1 Manchester City 2 - Stones' wins it, VAR drama and Gvardiol appreciation**\
+`Sam Lee breaks down the main talking points from Manchester City's dramatic 2-1 win over Wolves`\
+https://nytimes.com/athletic/5850554/2024/10/20/wolves-1-manchester-city-2-stones-var-gvardiol/
+
+**Lowetide: Oilers' young AHL players looking good in early days of 2024-25**\
+`Since 2011, 23 players aged 20 have enjoyed successful rookie seasons in the AHL with Edmonton Oilers affiliates.`\
+https://nytimes.com/athletic/5855181/2024/10/20/edmonton-oilers-2024-minors/
+
 **ECU fires football coach Mike Houston**\
 `Defensive coordinator Blake Harrell was named the interim head coach for the remainder of the season.`\
 https://nytimes.com/athletic/5856966/2024/10/20/mike-houston-east-carolina-fired/

@@ -1,3 +1,11 @@
+**Wolves 1 Manchester City 2 - Stones' wins it, VAR drama and Gvardiol appreciation**\
+`Sam Lee breaks down the main talking points from Manchester City's dramatic 2-1 win over Wolves`\
+https://nytimes.com/athletic/5850554/2024/10/20/wolves-1-manchester-city-2-stones-var-gvardiol/
+
+**Lowetide: Oilers' young AHL players looking good in early days of 2024-25**\
+`Since 2011, 23 players aged 20 have enjoyed successful rookie seasons in the AHL with Edmonton Oilers affiliates.`\
+https://nytimes.com/athletic/5855181/2024/10/20/edmonton-oilers-2024-minors/
+
 **ECU fires football coach Mike Houston**\
 `Defensive coordinator Blake Harrell was named the interim head coach for the remainder of the season.`\
 https://nytimes.com/athletic/5856966/2024/10/20/mike-houston-east-carolina-fired/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/20/us/politics/kamala-harris-mcdonalds-work-trump.ht
 **Until Saturday: Who will be the new No. 1, what's going on in the Big 12?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Who will be No. 1 this week? Can anyone predict the Big 12?`\
 https://nytimes.com/athletic/5854945/2024/10/20/college-football-no-1-georgia-texas-big-12-until-saturday/
-
-**Live Q&A: Week 7 fantasy football start/sit chat with Jay Felicio, Sunday 10/20 at 11 a.m. ET**\
-`Submit your Week 7 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5847673/2024/10/20/live-qa-week-7-fantasy-football-start-sit-chat-jay-felicio-sunday-10-20/
-
-**Indiana's Kurtis Rourke expected to miss Washington game**\
-`The No. 16 Hoosiers are 7-0 and host Washington on Saturday at noon ET.`\
-https://nytimes.com/athletic/5856756/2024/10/20/kurtis-rourke-injury-indiana/
 
