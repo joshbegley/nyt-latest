@@ -1,3 +1,7 @@
+**Raiders vs. Rams odds, expert picks, how to watch: A duel between rebuilding squads**\
+`The Raiders travel to Los Angeles to face the Rams in a matchup between two teams with only one win. `\
+https://nytimes.com/athletic/5851052/2024/10/20/raiders-rams-odds-picks-how-to-watch-betting/
+
 **For the Guardians, there are no guarantees, just more spring optimism**\
 `Playoff baseball is a frantic, anxiety-sponsored ride, and no one would have it any other way.`\
 https://nytimes.com/athletic/5856371/2024/10/20/2024-guardians-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855575/2024/10/20/mls-decision-day-messi-miami-gal
 **‘Her Needles Pulled a Single String of Yarn From a Bag on the Floor’**\
 `A knitter’s practiced hands draw attention, a solo on a windy day and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/10/20/nyregion/metropolitan-diary.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/20/crosswords/spelling-bee-forum.html
 
