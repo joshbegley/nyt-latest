@@ -1,3 +1,7 @@
+**French Cuffs and French Fries at Donald Trump’s McDonald’s Gig**\
+`No hairnet in sight as the former president doled out meals at a campaign stop in Pennsylvania.`\
+https://nytimes.com/2024/10/20/style/donald-trump-mcdonalds.html
+
 **Israel Strikes Hezbollah-Affiliated Financial Institution in Lebanon**\
 `Branches of Al-Qard al-Hasan, which functions as Hezbollah’s de facto banking arm but also operates as an alternative bank for Lebanese, were targeted around Beirut and across the country’s south and east.`\
 https://nytimes.com/2024/10/20/world/middleeast/israel-strike-lebanon-hezbollah.html
