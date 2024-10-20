@@ -1,3 +1,7 @@
+**Bengals' 'beautiful' win over Browns masks bubbling issues with clunky offense**\
+`It wasn't pretty as Cincinnati's defense and special teams had to lead a 21-14 win over the Browns with the offense sputtering.`\
+https://nytimes.com/athletic/5858143/2024/10/20/bengals-win-browns-joe-burrow-offense/
+
 **French Cuffs and French Fries at Donald Trump’s McDonald’s Gig**\
 `No hairnet in sight as the former president doled out meals at a campaign stop in Pennsylvania.`\
 https://nytimes.com/2024/10/20/style/donald-trump-mcdonalds.html
