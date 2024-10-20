@@ -1,3 +1,7 @@
+**In Arsenal's quest for perfection, the small errors carry big consequences**\
+`Two lapses of concentration proved crucial in Arsenal's first defeat of the season. Their low points continue to be of their own making`\
+https://nytimes.com/athletic/5855342/2024/10/20/arsenal-bournemouth-saliba-kiwior-arteta/
+
 **Jill Stein Won’t Stop. No Matter Who Asks.**\
 `People in Stein’s life have implored her to abandon her bid for president, lest she throw the election to Donald Trump. She’s on the ballot in almost every critical state.`\
 https://nytimes.com/2024/10/20/us/politics/jill-stein-harris-trump.html
@@ -33,9 +37,4 @@ https://nytimes.com/2024/10/20/arts/television/saturday-night-live.html
 **No. 9 Iowa State rallies to beat UCF, remain undefeated**\
 `Iowa State quarterback Rocco Becht scored a game-winning one-yard run to cap an 11-play, 80-yard drive.`\
 https://nytimes.com/athletic/5856238/2024/10/20/iowa-state-ucf-score-takeaways/
-
-**Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
-`Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
-`\
-https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
 
