@@ -1,3 +1,7 @@
+**Why Lando Norris' U.S. Grand Prix penalty is an F1 title fight 'momentum killer'**\
+`Verstappen and Norris went wheel-to-wheel in their most spirited fight since the Austrian GP — avoiding contact this time, but not drama.`\
+https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstappen/
+
 **How Lando Norris' U.S. Grand Prix became a 'momentum killer' for his F1 title hopes**\
 `Verstappen and Norris went wheel-to-wheel in their most spirited fight since the Austrian GP — avoiding contact this time, but not drama.`\
 https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstappen/
