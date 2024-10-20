@@ -1,3 +1,7 @@
+**Jets vs. Steelers odds, expert picks, how to watch: A Rodgers-Adams reunion**\
+`Aaron Rodgers reunites with Davante Adams when the Jets head to Pittsburgh to take on the Steelers. `\
+https://nytimes.com/athletic/5851223/2024/10/20/jets-steelers-odds-picks-how-to-watch-betting/
+
 **Meek: For 'disappointed' Sherrone Moore, challenges of starting over at Michigan hitting hard**\
 `Moore entered this season with plenty of goodwill, but the Wolverines have burned a stunning amount of it in just seven games.`\
 https://nytimes.com/athletic/5856189/2024/10/20/michigan-sherrone-moore-illinois-quarterbacks/

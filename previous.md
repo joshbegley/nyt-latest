@@ -1,3 +1,7 @@
+**Jets vs. Steelers odds, expert picks, how to watch: A Rodgers-Adams reunion**\
+`Aaron Rodgers reunites with Davante Adams when the Jets head to Pittsburgh to take on the Steelers. `\
+https://nytimes.com/athletic/5851223/2024/10/20/jets-steelers-odds-picks-how-to-watch-betting/
+
 **Meek: For 'disappointed' Sherrone Moore, challenges of starting over at Michigan hitting hard**\
 `Moore entered this season with plenty of goodwill, but the Wolverines have burned a stunning amount of it in just seven games.`\
 https://nytimes.com/athletic/5856189/2024/10/20/michigan-sherrone-moore-illinois-quarterbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/arts/real-pain-eisenberg-holocaust-third-generati
 **A Mideast Shift Is Underway, Without Israel**\
 `Before Hamas’s Oct. 7 attacks, Saudi Arabia was open to forging stronger ties with the Israelis. Now, a year into the war in Gaza, it is warming up to its traditional enemy, Iran.`\
 https://nytimes.com/2024/10/20/world/middleeast/israel-saudi-arabia-iran-gulf.html
-
-**I Can’t Buy a House. I Can’t Shop. I’m Too Worried About the Election.**\
-`Election anxiety is causing many consumers to avoid big-ticket purchases like houses, weddings and cars. “Every four years this happens,” one former car dealer said.`\
-https://nytimes.com/2024/10/20/realestate/election-anxiety-home-car-sales.html
 
