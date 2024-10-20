@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thomp
 `Saquon Barkley travels back to New York to face his old team in a revenge game as the Eagles take on the Giants. `\
 https://nytimes.com/athletic/5850720/2024/10/20/eagles-giants-odds-picks-how-to-watch-betting/
 
-**For the Wild, this season's start feels different than last season's unraveling: Russo**\
+**Russo: For the Wild, this season's start feels different from last season's unraveling**\
 `The Wild seem better equipped to deal with adversity this season, whether that’s players out of the lineup, or simply in-game.`\
 https://nytimes.com/athletic/5856155/2024/10/20/russo-wild-early-start/
 
