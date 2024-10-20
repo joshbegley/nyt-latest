@@ -78,6 +78,11 @@ https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thomp
 `\
 https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
 
+**Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
+`Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
+`\
+https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
+
 **No. 9 Iowa State rallies to beat UCF, remain undefeated**\
 `Iowa State quarterback Rocco Becht scored a game-winning one-yard run to cap an 11-play, 80-yard drive.`\
 https://nytimes.com/athletic/5856238/2024/10/20/iowa-state-ucf-score-takeaways/
