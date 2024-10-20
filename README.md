@@ -1,3 +1,7 @@
+**Musk’s $1 Million Offer Raises New Legal Questions**\
+`Some election lawyers said the giveaway may run into laws that prohibit paying people to register to vote.`\
+https://nytimes.com/live/2024/10/20/us/harris-trump-election/elon-musk-million-dollar-petition
+
 **Giants bench QB Daniel Jones, sub in Drew Lock vs. Eagles**\
 `Jones completed 14 of 21 passing attempts for 99 yards, averaging 4.7 yards per throw. He was sacked seven times.`\
 https://nytimes.com/athletic/5857602/2024/10/20/daniel-jones-benched-giants-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857295/2024/10/20/ap-top-25-rankings-oregon-georgi
 **Review: A Choir Stands Out in a Multimedia Performance**\
 `The Crossing is one of many elements in “Can We Know the Sound of Forgiveness,” which links pieces by Gabriela Ortiz in a five-movement meditation.`\
 https://nytimes.com/2024/10/20/arts/music/gabriela-ortiz-carnegie-hall.html
-
-**James withdraws from England squad with calf injury**\
-`Lauren James has withdrawn from the England squad for the upcoming pair of October international friendlies.`\
-https://nytimes.com/athletic/5857388/2024/10/20/england-women-squad-lauren-james-injury/
 
