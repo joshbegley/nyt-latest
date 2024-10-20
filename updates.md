@@ -1,3 +1,15 @@
+**'We're not going to wait forever': CHSN boss says Comcast hasn't made any offers**\
+`Jason Coyle, president of CHSN, said on Saturday that there have been no offers from Comcast whatsoever.`\
+https://nytimes.com/athletic/5855700/2024/10/19/chsn-comcast-tv-blackhawks/
+
+**Should Jalen Milroe enter 2025 NFL Draft, or would he benefit from a return to Alabama?**\
+`Milroe's season of up-and-down performances continued Saturday in Alabama's loss at Tennessee`\
+https://nytimes.com/athletic/5855726/2024/10/19/jalen-milroe-nfl-draft-2025-scouting/
+
+**Tennessee comes alive to spark SEC hope, put Alabama Playoff chances in peril: Takeaways**\
+`No. 11 Tennessee topped No. 7 Alabama 24-17 behind a second-half surge that puts Alabama on the College Football Playoff bubble already.`\
+https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
+
 **Tennessee's wild rivalry win puts Alabama on an unfamiliar Playoff bubble**\
 `No. 11 Tennessee topped No. 7 Alabama 24-17 behind a second-half surge that puts Alabama on the College Football Playoff bubble already.`\
 https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
