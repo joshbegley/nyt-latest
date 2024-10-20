@@ -1,3 +1,7 @@
+**Israel strikes Hezbollah-affiliated financial institution in Lebanon.**\
+`By Ephrat Livni and Euan Ward`\
+https://nytimes.com/2024/10/20/world/middleeast/israel-strike-lebanon-hezbollah.html
+
 **Garrett, Winston scold Browns fans who cheered after Watson's injury**\
 `After the game, Browns players and coaches voiced their displeasure with the reaction, saying the fans "should be ashamed."`\
 https://nytimes.com/athletic/5857874/2024/10/20/myles-garrett-deshaun-watson-browns-fans-cheering-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857691/2024/10/20/patriots-jaguars-drake-maye-lond
 **NFL Week 7 takeaways: Who are kings of the NFC North? Should Giants have Saquon regret?**\
 `Plus, is there any chance the Jaguars are back on the right track?`\
 https://nytimes.com/athletic/5857864/2024/10/20/nfl-week-7-takeaways-nfc-north-giants-saquon-barkley/
-
-**Monday Briefing: Israel Escalates War Against Hezbollah**\
-`Plus, the French town shaken by a rape trial.`\
-https://nytimes.com/2024/10/20/briefing/israel-hezbollah-swing-states-indonesia.html
 
