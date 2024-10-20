@@ -1,3 +1,11 @@
+**ECU fires football coach Mike Houston**\
+`Defensive coordinator Blake Harrell was named the interim head coach for the remainder of the season.`\
+https://nytimes.com/athletic/5856966/2024/10/20/mike-houston-east-carolina-fired/
+
+**Guardians rookie manager's postseason decisions, and the line between courage and crazy**\
+`The Guardians needed to find a new manager after Terry Francona's departure. Vogt, in his rookie year, showed his worth.`\
+https://nytimes.com/athletic/5856425/2024/10/20/cleveland-guardians-stephen-vogts-mlb-postseason/
+
 **Abortion as an Issue in the Election**\
 `Readers respond to a column by David French. Also: Veterans as poll workers; an immigrant’s story; political messages.`\
 https://nytimes.com/2024/10/20/opinion/abortion-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5847673/2024/10/20/live-qa-week-7-fantasy-football-
 **Indiana's Kurtis Rourke expected to miss Washington game**\
 `The No. 16 Hoosiers are 7-0 and host Washington on Saturday at noon ET.`\
 https://nytimes.com/athletic/5856756/2024/10/20/kurtis-rourke-injury-indiana/
-
-**For Trump, a Lifetime of Scandals Heads Toward a Moment of Judgment**\
-`No major party presidential candidate, much less president, in American history has been accused of wrongdoing so many times.`\
-https://nytimes.com/2024/10/20/us/politics/trump-scandals.html
-
-**Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
-`Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
-https://nytimes.com/athletic/5846218/2024/10/20/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
 
