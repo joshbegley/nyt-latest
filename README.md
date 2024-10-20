@@ -1,7 +1,3 @@
-**Penguins' defensive futility strikes again in loss to Jets: Yohe's 10 observations**\
-`The Penguins produced another defensive dud in a 6-3 loss to the Jets in Winnipeg on Sunday. `\
-https://nytimes.com/athletic/5857885/2024/10/20/penguins-defensive-futility-nedeljkovic-jets/
-
 **This Is the Case of Henry Dee**\
 `Listening in on one case before a parole board.`\
 https://nytimes.com/2024/10/20/podcasts/this-is-the-case-of-henry-dee-this-american-life-nyt-audio.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5858207/2024/10/20/oklahoma-football-offensive-coor
 **Southern Miss fires head coach Will Hall after 1-6 start**\
 `Hall finishes with a 14-30 record in Hattiesburg, made worse by a 1-6 start to this season.`\
 https://nytimes.com/athletic/5858238/2024/10/20/will-hall-southern-miss-fired/
+
+**Commanders lose Daniels, still blow out Panthers 40-7**\
+`Marcus Mariota's 239 total yards and two touchdowns helped the Commanders overcome the loss of Jayden Daniels.`\
+https://nytimes.com/athletic/5857066/2024/10/20/commanders-panthers-takeaways-result/
 
