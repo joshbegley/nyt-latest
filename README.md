@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5850554/2024/10/20/wolves-1-manchester-city-2-stone
 https://nytimes.com/athletic/5855181/2024/10/20/edmonton-oilers-2024-minors/
 
 **ECU fires football coach Mike Houston**\
-`Defensive coordinator Blake Harrell was named the interim head coach for the remainder of the season.`\
+`Defensive coordinator Blake Harrell was named interim head coach for the remainder of the season.`\
 https://nytimes.com/athletic/5856966/2024/10/20/mike-houston-east-carolina-fired/
 
 **Guardians rookie manager's postseason decisions, and the line between courage and crazy**\
