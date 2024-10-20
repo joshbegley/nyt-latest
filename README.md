@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5856966/2024/10/20/mike-houston-east-carolina-fired
 
 **Guardians rookie manager's postseason decisions, and the line between courage and crazy**\
 `The Guardians needed to find a new manager after Terry Francona's departure. Vogt, in his rookie year, showed his worth.`\
-https://nytimes.com/athletic/5856425/2024/10/20/cleveland-guardians-stephen-vogts-mlb-postseason/
+https://nytimes.com/athletic/5856425/2024/10/20/cleveland-guardians-stephen-vogt-mlb-postseason/
 
 **Abortion as an Issue in the Election**\
 `Readers respond to a column by David French. Also: Veterans as poll workers; an immigrant’s story; political messages.`\
