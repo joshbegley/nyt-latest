@@ -10,7 +10,7 @@ https://nytimes.com/2024/10/20/books/booksupdate/how-aleksei-navalnys-prison-dia
 `The veteran's 45-yarder against the Texans gave the Packers a 24-22 walk-off win on Sunday at Lambeau Field.`\
 https://nytimes.com/athletic/5858284/2024/10/20/packers-brandon-mcmanus-kicker-game-winner/
 
-**Chiefs' defense, run game power 28-18 win over 49ers: Takeaways**\
+**Chiefs' defense, run game powers 28-18 win over 49ers: Takeaways**\
 `Off the heels of three interceptions and four rushing touchdowns, the Kansas City Chiefs are the last undefeated team in the league.`\
 https://nytimes.com/athletic/5857072/2024/10/20/chiefs-49ers-takeaways-result/
 
