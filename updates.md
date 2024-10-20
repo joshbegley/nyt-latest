@@ -1,3 +1,12 @@
+**What’s immediately next for Yankees as they await World Series: ‘Chance to reset’**\
+`The team will have a full off day Sunday before reopening the stadium to players on Monday.`\
+https://nytimes.com/athletic/5856373/2024/10/20/yankees-world-series-reset/
+
+**Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
+`Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
+`\
+https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
+
 **Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
 `Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
 `\
