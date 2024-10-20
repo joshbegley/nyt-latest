@@ -1,3 +1,7 @@
+**Protesters in Israel Demand a Cease-Fire and Hostage Deal**\
+`Thousands joined families of hostages held in Gaza during a protest in Tel Aviv to call on Prime Minister Benjamin Netanyahu’s government to reach a cease-fire deal and to push for the release of hostages.`\
+https://nytimes.com/video/world/middleeast/100000009772044/tel-aviv-protest-israeli-hostages-gaza-ceasefire.html
+
 **Cher, A Tribe Called Quest and Dave Matthews Band Join the Rock Hall**\
 `Gratitude flowed at the 39th induction ceremony in Cleveland, where Mary J. Blige, Peter Frampton, Ozzy Osbourne and the bands Foreigner and Kool & the Gang were honored.`\
 https://nytimes.com/2024/10/20/arts/music/rock-hall-fame-induction-cher-foreigner-dave-matthews.html
