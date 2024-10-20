@@ -1,3 +1,7 @@
+**Welbeck aiming for quick return after sustaining back injury**\
+`Brighton &amp; Hove Albion forward Danny Welbeck says he &#8220;should be back in training soon&#8221; after sustaining a back injury in his side&#8217;s 1-0 win over Newcastle United.`\
+https://nytimes.com/athletic/5856533/2024/10/20/danny-welbeck-injury-brighton-update/
+
 **Maresca states Chelsea 'not happy' after Liverpool defeat**\
 `Enzo Maresca says Chelsea &#8220;are not happy&#8221; with their 2-1 defeat to Liverpool at Anfield, emphasising that his side &#8220;don’t like losing games&#8221; and felt they controlled much of the match.`\
 https://nytimes.com/athletic/5857420/2024/10/20/enzo-maresca-chelsea-liverpool/
