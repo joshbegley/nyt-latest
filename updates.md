@@ -1,3 +1,7 @@
+**Messi at the Club World Cup makes sense - but how he got there is ridiculous**\
+`It was inevitable the Argentine would be at FIFA's club jamboree next summer, but how he qualified feels unsatisfactory in the extreme`\
+https://nytimes.com/athletic/5856541/2024/10/20/lionel-messi-miami-club-world-cup/
+
 **Stewart Mandel's 12-team Playoff projections after Week 8**\
 `Undefeated Indiana, fresh off a 56-7 win over Nebraska, remains on the outside looking in despite being undefeated.`\
 https://nytimes.com/athletic/5857367/2024/10/20/college-football-playoff-bracket-projections-week-8/
