@@ -1,3 +1,7 @@
+**Clock ticking on Oilers as they consider making changes to power play**\
+`After a 4-1 loss to the Stars on Saturday, it's clear the Oilers' best collective weapon can’t continue to look so inept for much longer.`\
+https://nytimes.com/athletic/5855714/2024/10/19/oilers-stars-power-play/
+
 **Dochterman: Indiana is no Cinderella. The Hoosiers look like they can crash the CFP and compete**\
 `The Hoosiers are as complete as any Big Ten team, save for Oregon and Ohio State.`\
 https://nytimes.com/athletic/5855708/2024/10/19/indiana-football-nebraska-cinderella-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855700/2024/10/19/chsn-comcast-tv-blackhawks/
 **Should Jalen Milroe enter 2025 NFL Draft, or would he benefit from a return to Alabama?**\
 `Milroe's season of up-and-down performances continued Saturday in Alabama's loss at Tennessee`\
 https://nytimes.com/athletic/5855726/2024/10/19/jalen-milroe-nfl-draft-2025-scouting/
-
-**Tennessee comes alive to spark SEC hope, put Alabama Playoff chances in peril: Takeaways**\
-`No. 11 Tennessee topped No. 7 Alabama 24-17 behind a second-half surge that puts Alabama on the College Football Playoff bubble already.`\
-https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
 
