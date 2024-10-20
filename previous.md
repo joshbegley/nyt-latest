@@ -1,3 +1,11 @@
+**Stewart Mandel's 12-team Playoff projections after Week 8**\
+`Undefeated Indiana, fresh off a 56-7 win over Nebraska, remains on the outside looking in despite being undefeated.`\
+https://nytimes.com/athletic/5857367/2024/10/20/college-football-playoff-bracket-projections-week-8/
+
+**Blue Jackets Sunday Gathering: David Jiricek was being tested before making season debut**\
+`Jiricek struggled in training camp and preseason, so why keep in Columbus? Coach Dean Evason speaks to what led to the defenseman's debut.`\
+https://nytimes.com/athletic/5856644/2024/10/20/blue-jackets-david-jiricek-season-debut/
+
 **The Briefing: Liverpool 2 Chelsea 1 - Slot passes first Big-Six test, Jones' influence and Palmer nullified**\
 `Our writers analyse the key talking points from Liverpool's victory over Chelsea`\
 https://nytimes.com/athletic/5850560/2024/10/20/liverpool-chelsea-briefing-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5857076/2024/10/20/explained-manchester-city-wolves
 **Cher, A Tribe Called Quest and Dave Matthews Band Join the Rock Hall**\
 `Gratitude flowed at the 39th induction ceremony in Cleveland, where Mary J. Blige, Peter Frampton, Ozzy Osbourne and the bands Foreigner and Kool & the Gang were honored.`\
 https://nytimes.com/2024/10/20/arts/music/rock-hall-fame-induction-cher-foreigner-dave-matthews.html
-
-**Sister Sally Butler, Nun Who Blew the Whistle on Sex Abuse, Dies at 93**\
-`In the 1960s, she worked with priests to serve residents of housing projects in Brooklyn. Decades later, she learned that those priests had been abusing young boys.`\
-https://nytimes.com/2024/10/20/nyregion/sister-sally-butler-dead.html
-
-**1 Dead, Hundreds Rescued in New Mexico Floods**\
-`Roswell, N.M., received nearly a third of its annual rainfall total in just a few hours on Sunday. Rescue efforts were ongoing with more storms in the forecast.`\
-https://nytimes.com/2024/10/20/us/new-mexico-flooding.html
 
