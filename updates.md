@@ -1,3 +1,7 @@
+**Commanders lose Daniels, still blow out Panthers 40-7**\
+`Marcus Mariota's 239 total yards and two touchdowns helped the Commanders overcome the loss of Jayden Daniels.`\
+https://nytimes.com/athletic/5857066/2024/10/20/commanders-panthers-takeaways-result/
+
 **Bengals' 'beautiful' win over Browns masks bubbling issues with clunky offense**\
 `It wasn't pretty as Cincinnati's defense and special teams had to lead a 21-14 win over the Browns with the offense sputtering.`\
 https://nytimes.com/athletic/5858143/2024/10/20/bengals-win-browns-joe-burrow-offense/

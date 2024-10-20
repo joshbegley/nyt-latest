@@ -1,3 +1,7 @@
+**Commanders lose Daniels, still blow out Panthers 40-7**\
+`Marcus Mariota's 239 total yards and two touchdowns helped the Commanders overcome the loss of Jayden Daniels.`\
+https://nytimes.com/athletic/5857066/2024/10/20/commanders-panthers-takeaways-result/
+
 **Bengals' 'beautiful' win over Browns masks bubbling issues with clunky offense**\
 `It wasn't pretty as Cincinnati's defense and special teams had to lead a 21-14 win over the Browns with the offense sputtering.`\
 https://nytimes.com/athletic/5858143/2024/10/20/bengals-win-browns-joe-burrow-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857807/2024/10/20/raiders-aidan-oconnell-thumb-inj
 **The U.S. is investigating an intelligence leak on Israel’s plans to strike Iran.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/the-us-is-investigating-an-intelligence-leak-on-israels-plans-to-strike-iran
-
-**Harris Says Trump’s Behavior ‘Demeans’ the Presidency After Vulgar Remarks**\
-`In an interview with the Rev. Al Sharpton on MSNBC, the vice president reacted to her opponent’s behavior at rallies, saying Americans “deserve so much better.”`\
-https://nytimes.com/2024/10/20/us/politics/trump-arnold-palmer-kamala-harris.html
 
