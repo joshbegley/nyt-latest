@@ -1,3 +1,7 @@
+**Titans vs. Bills odds, picks, how to watch: Buffalo is the week's biggest favorite**\
+`The Bills are the biggest favorites of the week when they take on the Titans, with the odds moving after the Amari Cooper trade.`\
+https://nytimes.com/athletic/5850984/2024/10/19/titans-bills-odds-picks-how-to-watch-betting/
+
 **Quotation of the Day: Ukrainian Soldier Says He Deserted To Help His Comrades**\
 `Quotation of the Day for Sunday, October 20, 2024.`\
 https://nytimes.com/2024/10/19/pageoneplus/quotation-of-the-day-ukrainian-soldier-says-he-deserted-to-help-his-comrades.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5855992/2024/10/19/blackhawks-lukas-reichel-develop
 `Welcome to life with everyone else, Crimson Tide fans. You’re still flying first class, of course. But you’re just another good team.`\
 https://nytimes.com/athletic/5856027/2024/10/19/alabama-tennessee-kalen-deboer/
 
-**Maple Leafs report cards: Auston Matthews' lone goal not enough in loss to Rangers**\
+**Auston Matthews' lone goal not enough in Maple Leafs loss to Rangers:**\
 `The Maple Leafs weren't hard enough on goalie Igor Shesterkin for the full 60 minutes of a 4-1 loss to the Rangers.`\
 https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5856010/2024/10/19/usc-lincoln-riley-results/
 **Texas-Georgia pass interference call overturned**\
 `The game stopped with 2:48 left in the third quarter as Texas students threw garbage on the field after the pass interference call.`\
 https://nytimes.com/athletic/5856014/2024/10/19/texas-georgia-pass-interfence-call/
-
-**How Canucks' dominance made Tyler Myers' 1,000th game a celebration: 3 takeaways**\
-`The Canucks' 3-0 win over the Flyers on Saturday was far and away Vancouver's most convincing effort of the season.`\
-https://nytimes.com/athletic/5855596/2024/10/19/canucks-tyler-myers-1000-games-takeaways/
 
