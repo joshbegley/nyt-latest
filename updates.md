@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Matthew Mpoke Bigg and Mike Ives`\
+https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/here-are-the-latest-developments
+
+**Live Updates: Israel Strikes Hezbollah Stronghold South of Beirut**\
+`The Israeli military attacked the Dahiya, a Hezbollah-dominated area south of the Lebanese capital, for a second straight day as it kept up an offensive in northern Gaza.`\
+https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news
+
 **Jets vs. Steelers odds, expert picks, how to watch: A Rodgers-Adams reunion**\
 `Aaron Rodgers reunites with Davante Adams when the Jets head to Pittsburgh to take on the Steelers. `\
 https://nytimes.com/athletic/5851223/2024/10/20/jets-steelers-odds-picks-how-to-watch-betting/
