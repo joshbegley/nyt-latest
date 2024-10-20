@@ -1,3 +1,15 @@
+**O'Neil on Stones' late winner vs Wolves: 'It felt like a harsh one'**\
+`Wolverhampton Wanderers head coach Gary O&#8217;Neil stated that the decision to allow John Stones&#8217; goal in their 2-1 defeat against Manchester City &#8220;did feel like a harsh one&#8221;.`\
+https://nytimes.com/athletic/5857117/2024/10/20/gary-oneil-john-stones-wolves/
+
+**Jaguars beat Patriots 32-16 in London as New England falters: Takeaways**\
+`In a season of new rock bottoms, the Patriots found another one Sunday.`\
+https://nytimes.com/athletic/5856985/2024/10/20/patriots-jaguars-takeaways-result-london/
+
+**A Must-Watch Night for New York Sports Fans: Here’s What to Know**\
+`The Mets and the Liberty will each look to secure a crucial championship win, while the Jets will bring together two stars to build momentum toward the playoffs.`\
+https://nytimes.com/2024/10/20/nyregion/new-york-mets-liberty-jets-watch.html
+
 **Explained: Why Manchester City's late winner at Wolves was allowed to stand**\
 `Breaking down why the decision to disallow John Stones' last-gasp goal was overturned `\
 https://nytimes.com/athletic/5857076/2024/10/20/explained-manchester-city-wolves-stones-var-goal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5855181/2024/10/20/edmonton-oilers-2024-minors/
 **ECU fires football coach Mike Houston**\
 `Defensive coordinator Blake Harrell was named interim head coach for the remainder of the season.`\
 https://nytimes.com/athletic/5856966/2024/10/20/mike-houston-east-carolina-fired/
-
-**Guardians rookie manager's postseason decisions, and the line between courage and crazy**\
-`The Guardians needed to find a new manager after Terry Francona's departure. Vogt, in his rookie year, showed his worth.`\
-https://nytimes.com/athletic/5856425/2024/10/20/cleveland-guardians-stephen-vogt-mlb-postseason/
-
-**Abortion as an Issue in the Election**\
-`Readers respond to a column by David French. Also: Veterans as poll workers; an immigrant’s story; political messages.`\
-https://nytimes.com/2024/10/20/opinion/abortion-election.html
-
-**Help Yourself to Pancakes**\
-`Put a platter of sour cream pancakes with cardamom apples on the table and watch everyone happily dig in.`\
-https://nytimes.com/2024/10/20/dining/help-yourself-to-pancakes.html
 
