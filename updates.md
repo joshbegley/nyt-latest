@@ -1,4 +1,8 @@
 **Explained: Why Manchester City's late winner at Wolves was allowed to stand**\
+`Breaking down why the decision to disallow John Stones' last-gasp goal was overturned `\
+https://nytimes.com/athletic/5857076/2024/10/20/explained-manchester-city-wolves-stones-var-goal/
+
+**Explained: Why Manchester City's late winner at Wolves was allowed to stand**\
 `Breaking down why the decision to disallow John Stones' last-gasp goal was overturned`\
 https://nytimes.com/athletic/5857076/2024/10/20/explained-why-manchester-citys-late-winner-at-wolves-was-allowed-to-stand/
 

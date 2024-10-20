@@ -1,6 +1,6 @@
 **Explained: Why Manchester City's late winner at Wolves was allowed to stand**\
-`Breaking down why the decision to disallow John Stones' last-gasp goal was overturned`\
-https://nytimes.com/athletic/5857076/2024/10/20/explained-why-manchester-citys-late-winner-at-wolves-was-allowed-to-stand/
+`Breaking down why the decision to disallow John Stones' last-gasp goal was overturned `\
+https://nytimes.com/athletic/5857076/2024/10/20/explained-manchester-city-wolves-stones-var-goal/
 
 **Cher, A Tribe Called Quest and Dave Matthews Band Join the Rock Hall**\
 `Gratitude flowed at the 39th induction ceremony in Cleveland, where Mary J. Blige, Peter Frampton, Ozzy Osbourne and the bands Foreigner and Kool & the Gang were honored.`\
