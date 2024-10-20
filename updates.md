@@ -1,3 +1,7 @@
+**At Least 7 Dead After Georgia Ferry Dock Collapses**\
+`The circumstances of the accident in Sapelo Island, south of Savannah, were not immediately clear.`\
+https://nytimes.com/2024/10/19/us/sapelo-island-dock-collapse.html
+
 **F1 United States GP preview: Norris and Verstappen’s title fight renews in Austin**\
 `The on-track rivalry that has defined the 2024 F1 season has been renewed in Austin. `\
 https://nytimes.com/athletic/5855392/2024/10/19/f1-united-states-gp-preview-lando-norris-max-verstappen/

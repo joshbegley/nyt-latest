@@ -1,3 +1,15 @@
+**How Kirill Kaprizov thrilled, Filip Gustavsson stood tall in win: 3 Wild takeaways**\
+`The Wild improved to 3-0-2 on the season and have yet to trail in 300 minutes of regulation hockey.`\
+https://nytimes.com/athletic/5855661/2024/10/19/wild-kirill-kaprizov-filip-gustavsson/
+
+**How Indonesia’s Transformative Leader Tarnished His Legacy**\
+`Joko Widodo rose from a slum to the presidency. As his term ends, he is being accused of undermining the democracy that made that possible.`\
+https://nytimes.com/2024/10/19/world/asia/jokowi-legacy-gibran-dynasty.html
+
+**The Scandal of the Indonesian Leader’s Son and the Private Jet**\
+`It was a major blow to the Everyman image cultivated by President Joko Widodo, who is stepping down on Sunday.`\
+https://nytimes.com/2024/10/19/world/asia/jokowi-sons-kaesang-jet.html
+
 **F1 United States GP preview: Norris and Verstappen’s title fight renews in Austin**\
 `The on-track rivalry that has defined the 2024 F1 season has been renewed in Austin. `\
 https://nytimes.com/athletic/5855392/2024/10/19/f1-united-states-gp-preview-lando-norris-max-verstappen/
@@ -10,7 +22,7 @@ https://nytimes.com/athletic/5855714/2024/10/19/oilers-stars-power-play/
 `The Hoosiers are as complete as any Big Ten team, save for Oregon and Ohio State.`\
 https://nytimes.com/athletic/5855708/2024/10/19/indiana-football-nebraska-cinderella-playoff/
 
-**Texas puts in Arch Manning at quarterback after slow start vs. Georgia**\
+**Texas inserts Arch Manning at QB for two drives after slow start vs. Georgia**\
 `Quinn Ewers returned for the first time since Week 3 against UTSA after missing two-plus games with an oblique injury.`\
 https://nytimes.com/athletic/5838711/2024/10/19/arch-manning-texas-georgia-quinn-ewers/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5855746/2024/10/19/miami-club-world-cup-hard-rock-s
 **Deion ribs Obama for his CU comments: 'I heard what he said'**\
 `"We have more than two good players," Colorado coach Deion Sanders said in response to former President Barack Obama's comments.`\
 https://nytimes.com/athletic/5855681/2024/10/19/deion-sanders-obama-colorado-comments/
-
-**Sherman: Question everything about the Huskers in Year 2 under Matt Rhule**\
-`For Nebraska, it was a dark day. Where do the Huskers go from here, with a team much more talented than Indiana looming?`\
-https://nytimes.com/athletic/5855739/2024/10/19/nebraska-indiana-loss-matt-rhule/
-
-**Harris, joined by Usher, makes abortion rights the focus in Atlanta.**\
-`By Alan Blinder`\
-https://nytimes.com/live/2024/10/19/us/harris-trump-election/harris-with-usher-by-her-side-makes-abortion-rights-the-focus-in-atlanta
-
-**'We're not going to wait forever': CHSN boss says Comcast hasn't made any offers**\
-`Jason Coyle, president of CHSN, said on Saturday that there have been no offers from Comcast whatsoever.`\
-https://nytimes.com/athletic/5855700/2024/10/19/chsn-comcast-tv-blackhawks/
 

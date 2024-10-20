@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5855708/2024/10/19/indiana-football-nebraska-cinder
 `Quinn Ewers returned for the first time since Week 3 against UTSA after missing two-plus games with an oblique injury.`\
 https://nytimes.com/athletic/5838711/2024/10/19/arch-manning-texas-georgia-quinn-ewers/
 
-**At Least 7 Dead at Georgia Ferry Dock, Official Says**\
-`The circumstances of the deaths at the dock in Sapelo Island, Ga., were not immediately clear.`\
+**At Least 7 Dead After Georgia Ferry Dock Collapses**\
+`The circumstances of the accident in Sapelo Island, south of Savannah, were not immediately clear.`\
 https://nytimes.com/2024/10/19/us/sapelo-island-dock-collapse.html
 
 **Miami qualifies for Club World Cup, to host first game at Hard Rock**\
