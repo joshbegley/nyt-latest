@@ -1,3 +1,11 @@
+**Monday Briefing: Israel Escalates War Against Hezbollah**\
+`Plus, the French town shaken by a rape trial.`\
+https://nytimes.com/2024/10/20/briefing/israel-hezbollah-swing-states-indonesia.html
+
+**Trump, Slinging Fries and Smearing Harris, Takes Turn Behind a McDonald’s Counter**\
+`At a campaign photo op, the candidate worked the drive-through window, slammed his opponent and acknowledged a weakness. “I love salt,” he said.`\
+https://nytimes.com/2024/10/20/us/politics/trump-mcdonalds-fries.html
+
 **Hundreds Rescued From New Mexico Floods**\
 `At least two were killed and hundreds were rescued as torrential rains poured an “historic” amount on eastern New Mexico.`\
 https://nytimes.com/video/us/100000009772252/new-mexico-roswell-flooding.html
