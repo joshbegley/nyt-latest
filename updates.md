@@ -1,3 +1,7 @@
+**How Manchester United got 'mad' - and back to winning ways**\
+`Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's Manchester United wrote their own tale`\
+https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
+
 **For the Guardians, there are no guarantees, just more spring optimism**\
 `Playoff baseball is a frantic, anxiety-sponsored ride, and no one would have it any other way.`\
 https://nytimes.com/athletic/5856371/2024/10/20/2024-guardians-season/
