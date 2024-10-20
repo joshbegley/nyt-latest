@@ -1,3 +1,19 @@
+**This Is the Case of Henry Dee**\
+`Listening in on one case before a parole board.`\
+https://nytimes.com/2024/10/20/podcasts/this-is-the-case-of-henry-dee-this-american-life-nyt-audio.html
+
+**How Aleksei Navalny’s Prison Diaries Got Published**\
+`In his posthumous memoir, compiled with help from his widow, Yulia Navalnaya, Navalny faced the fact that Vladimir Putin might succeed in silencing him. The book will keep “his legacy alive,” Navalnaya said.`\
+https://nytimes.com/2024/10/20/books/booksupdate/how-aleksei-navalnys-prison-diaries-got-published.html
+
+**Brandon McManus brings Packers needed stability at kicker with game-winning field goal**\
+`The veteran's 45-yarder against the Texans gave the Packers a 24-22 walk-off win on Sunday at Lambeau Field.`\
+https://nytimes.com/athletic/5858284/2024/10/20/packers-brandon-mcmanus-kicker-game-winner/
+
+**Chiefs' defense, run game powers 28-18 win over 49ers: Takeaways**\
+`Off the heels of three interceptions and four rushing touchdowns, the Kansas City Chiefs are the last undefeated team in the league.`\
+https://nytimes.com/athletic/5857072/2024/10/20/chiefs-49ers-takeaways-result/
+
 **Chiefs' defense, run game power 28-18 win over 49ers: Takeaways**\
 `Off the heels of three interceptions and four rushing touchdowns, the Kansas City Chiefs are the last undefeated team in the league.`\
 https://nytimes.com/athletic/5857072/2024/10/20/chiefs-49ers-takeaways-result/

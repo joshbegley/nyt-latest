@@ -1,4 +1,16 @@
-**Chiefs' defense, run game power 28-18 win over 49ers: Takeaways**\
+**This Is the Case of Henry Dee**\
+`Listening in on one case before a parole board.`\
+https://nytimes.com/2024/10/20/podcasts/this-is-the-case-of-henry-dee-this-american-life-nyt-audio.html
+
+**How Aleksei Navalny’s Prison Diaries Got Published**\
+`In his posthumous memoir, compiled with help from his widow, Yulia Navalnaya, Navalny faced the fact that Vladimir Putin might succeed in silencing him. The book will keep “his legacy alive,” Navalnaya said.`\
+https://nytimes.com/2024/10/20/books/booksupdate/how-aleksei-navalnys-prison-diaries-got-published.html
+
+**Brandon McManus brings Packers needed stability at kicker with game-winning field goal**\
+`The veteran's 45-yarder against the Texans gave the Packers a 24-22 walk-off win on Sunday at Lambeau Field.`\
+https://nytimes.com/athletic/5858284/2024/10/20/packers-brandon-mcmanus-kicker-game-winner/
+
+**Chiefs' defense, run game powers 28-18 win over 49ers: Takeaways**\
 `Off the heels of three interceptions and four rushing touchdowns, the Kansas City Chiefs are the last undefeated team in the league.`\
 https://nytimes.com/athletic/5857072/2024/10/20/chiefs-49ers-takeaways-result/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5858238/2024/10/20/will-hall-southern-miss-fired/
 **Commanders lose Daniels, still blow out Panthers 40-7**\
 `Marcus Mariota's 239 total yards and two touchdowns helped the Commanders overcome the loss of Jayden Daniels.`\
 https://nytimes.com/athletic/5857066/2024/10/20/commanders-panthers-takeaways-result/
-
-**Bengals' 'beautiful' win over Browns masks bubbling issues with clunky offense**\
-`It wasn't pretty as Cincinnati's defense and special teams had to lead a 21-14 win over the Browns with the offense sputtering.`\
-https://nytimes.com/athletic/5858143/2024/10/20/bengals-win-browns-joe-burrow-offense/
-
-**French Cuffs and French Fries at Donald Trump’s McDonald’s Gig**\
-`No hairnet in sight as the former president doled out meals at a campaign stop in Pennsylvania.`\
-https://nytimes.com/2024/10/20/style/donald-trump-mcdonalds.html
-
-**Brandon Aiyuk carted off, feared to have torn ACL as 49ers deal with WR depth**\
-`The 49ers are now down to their fourth, fifth and sixth wide receivers in their starting lineup. `\
-https://nytimes.com/athletic/5858015/2024/10/20/brandon-aiyuk-injury-acl-49ers/
 
