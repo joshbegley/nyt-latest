@@ -1,3 +1,7 @@
+**Southern Miss fires head coach Will Hall after 1-6 start**\
+`Hall finishes with a 14-30 record in Hattiesburg, made worse by a 1-6 start to this season.`\
+https://nytimes.com/athletic/5858238/2024/10/20/will-hall-southern-miss-fired/
+
 **Commanders lose Daniels, still blow out Panthers 40-7**\
 `Marcus Mariota's 239 total yards and two touchdowns helped the Commanders overcome the loss of Jayden Daniels.`\
 https://nytimes.com/athletic/5857066/2024/10/20/commanders-panthers-takeaways-result/
