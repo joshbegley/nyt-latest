@@ -1,41 +1,40 @@
-**Panthers at Commanders odds, expert picks, how to watch: What does Daniels have next?**\
-`Jayden Daniels continues his quest for the Rookie of the Year award this week against the Carolina Panthers. `\
-https://nytimes.com/athletic/5851096/2024/10/20/panthers-commanders-odds-picks-how-to-watch-betting/
+**A 50-Mile Art Road Trip Celebrates the Culture in Agriculture**\
+`In Wisconsin, the Farm/Art DTour brings artists and farmers together and each get a fresh perspective.`\
+https://nytimes.com/2024/10/20/arts/design/wisconsin-farm-art-dtour.html
 
-**Six-time Olympic cycling champion Hoy reveals terminal cancer diagnosis**\
-`Sir Chris Hoy, the six-time Olympic cycling champion, has revealed his cancer is terminal
-Hoy, 48, was initially diagnosed with the disease in September of last year before he went public with the news back in February.`\
-https://nytimes.com/athletic/5856493/2024/10/20/chris-hoy-cancer-terminal/
+**Four of Trump’s Most Meandering Remarks This Week**\
+`The former president says that his style is to “weave” from one subject to the next. Others see something more worrisome in his ramblings.`\
+https://nytimes.com/2024/10/20/us/politics/trump-meandering-remarks.html
 
-**Raiders vs. Rams odds, expert picks, how to watch: A duel between rebuilding squads**\
-`The Raiders travel to Los Angeles to face the Rams in a matchup between two teams with only one win. `\
-https://nytimes.com/athletic/5851052/2024/10/20/raiders-rams-odds-picks-how-to-watch-betting/
+**He Dreamed of Escaping Gaza. The World Watched Him Burned Alive.**\
+`A video of Shaaban al-Dalou burning to death after an Israeli strike at a hospital has stoked criticism from Israel’s allies and highlighted the plight of people trapped in Gaza.`\
+https://nytimes.com/2024/10/20/world/middleeast/gaza-escape-burned.html
 
-**For the Guardians, there are no guarantees, just more spring optimism**\
-`Playoff baseball is a frantic, anxiety-sponsored ride, and no one would have it any other way.`\
-https://nytimes.com/athletic/5856371/2024/10/20/2024-guardians-season/
+**Watch Parties, Clinics and Guinness: How the N.F.L. Builds a Fan Base in Ireland**\
+`The league is trying to ensure that sponsors, media partners and enthusiasm are in place before committing to playing a game in the country.`\
+https://nytimes.com/2024/10/20/business/pittsburgh-steelers-nfl-ireland.html
 
-**Tugged Between East and West, Moldova Makes a Pivotal Choice**\
-`Moldovans are voting on whether to enshrine in their Constitution an “irreversible” commitment to abandon Russian influence and one day join the E.U.`\
-https://nytimes.com/2024/10/20/world/europe/moldova-election-russia-eu.html
+**At Homecoming, Howard Alumni Are Excited and Anxious for Harris**\
+`The H.B.C.U. celebrated its centennial homecoming this weekend, with many partygoers holding their breath for the school’s famous alumna, Vice President Kamala Harris, in the election’s homestretch.`\
+https://nytimes.com/2024/10/20/us/politics/harris-howard-hbcus.html
 
-**How Manchester United got 'mad' - and back to winning ways**\
-`Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's United wrote their own tale`\
-https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
+**The ‘King of Weird Fiction’ Writes His Strangest Novel Yet**\
+`Jeff VanderMeer, known for his blockbuster Southern Reach series, talks about his eerie new installment, “Absolution,” keeping mysteries alive and what people get wrong about alligators.`\
+https://nytimes.com/2024/10/20/books/jeff-vandermeer-southern-reach-absolution.html
 
-**In Arsenal's quest for perfection, the small errors carry big consequences**\
-`Two lapses of concentration proved crucial in Arsenal's first defeat of the season. Their low points continue to be of their own making`\
-https://nytimes.com/athletic/5855342/2024/10/20/arsenal-bournemouth-saliba-kiwior-arteta/
+**The Holocaust’s Grandchildren Are Speaking Now**\
+`Three generations on, filmmakers, writers and artists are making new meaning from ancestral trauma.`\
+https://nytimes.com/2024/10/20/arts/real-pain-eisenberg-holocaust-third-generation.html
 
-**Jill Stein Won’t Stop. No Matter Who Asks.**\
-`People in Stein’s life have implored her to abandon her bid for president, lest she throw the election to Donald Trump. She’s on the ballot in almost every critical state.`\
-https://nytimes.com/2024/10/20/us/politics/jill-stein-harris-trump.html
+**A Mideast Shift Is Underway, Without Israel**\
+`Before Hamas’s Oct. 7 attacks, Saudi Arabia was open to forging stronger ties with the Israelis. Now, a year into the war in Gaza, it is warming up to its traditional enemy, Iran.`\
+https://nytimes.com/2024/10/20/world/middleeast/israel-saudi-arabia-iran-gulf.html
 
-**A Requiem for a Fictitious Congressman**\
-`Godfrey G. Gloom, who was frequently featured in The Times’s pages, met a colorful end in 1936.`\
-https://nytimes.com/2024/10/20/insider/a-requiem-for-a-fictitious-congressman.html
+**I Can’t Buy a House. I Can’t Shop. I’m Too Worried About the Election.**\
+`Election anxiety is causing many consumers to avoid big-ticket purchases like houses, weddings and cars. “Every four years this happens,” one former car dealer said.`\
+https://nytimes.com/2024/10/20/realestate/election-anxiety-home-car-sales.html
 
-**Number of Young People Accused of Serious Crimes Surges in New York City**\
-`A 37 percent rise in the number of young people accused in serious crimes mirrors a broader increase. But it has alarmed the police, who say young offenders could grow up to break the law again.`\
-https://nytimes.com/2024/10/20/nyregion/youth-crime-arrests-nyc.html
+**Harris May Be Catching Up on a Key Polling Question: Which Candidate Helps You?**\
+`Many voters believe Donald Trump’s policies have helped them, Times/Siena polls show. Kamala Harris has made up some lost ground on that question, though there are warning signs in the swing states.`\
+https://nytimes.com/2024/10/20/us/elections/trump-harris-policies-help-hurt.html
 
