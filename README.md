@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5855746/2024/10/19/miami-club-world-cup-hard-rock-s
 https://nytimes.com/athletic/5855681/2024/10/19/deion-sanders-obama-colorado-comments/
 
 **Sherman: Question everything about the Huskers in Year 2 under Matt Rhule**\
-`For Nebraska, it was a dark day. Where do the Huskers go from here, with team much more talented than Indiana looming?`\
+`For Nebraska, it was a dark day. Where do the Huskers go from here, with a team much more talented than Indiana looming?`\
 https://nytimes.com/athletic/5855739/2024/10/19/nebraska-indiana-loss-matt-rhule/
 
 **Harris, joined by Usher, makes abortion rights the focus in Atlanta.**\
