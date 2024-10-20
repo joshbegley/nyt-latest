@@ -1,3 +1,7 @@
+**How Igor Shesterkin, top-6 excellence led to Rangers' win: 4 takeaways**\
+`The Rangers won 4-1 in Toronto behind another stellar goaltending performance from their star goaltender.`\
+https://nytimes.com/athletic/5856020/2024/10/19/rangers-maple-leafs-igor-shesterkin-takeaways/
+
 **Titans vs. Bills odds, picks, how to watch: Buffalo is the week's biggest favorite**\
 `The Bills are the biggest favorites of the week when they take on the Titans, with the odds moving after the Amari Cooper trade.`\
 https://nytimes.com/athletic/5850984/2024/10/19/titans-bills-odds-picks-how-to-watch-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analy
 **Morales: USC has invested heavily in Lincoln Riley and his staff. Where are the results?**\
 `It’s late October and USC already has nothing to play for but pride. That’s just not where things are supposed to be in Year 3 under Riley.`\
 https://nytimes.com/athletic/5856010/2024/10/19/usc-lincoln-riley-results/
-
-**Texas-Georgia pass interference call overturned**\
-`The game stopped with 2:48 left in the third quarter as Texas students threw garbage on the field after the pass interference call.`\
-https://nytimes.com/athletic/5856014/2024/10/19/texas-georgia-pass-interfence-call/
 
