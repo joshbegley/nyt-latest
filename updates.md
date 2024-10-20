@@ -1,3 +1,20 @@
+**No. 9 Iowa State rallies to beat UCF, remain undefeated**\
+`Iowa State quarterback Rocco Becht scored a game-winning one-yard run to cap an 11-play, 80-yard drive.`\
+https://nytimes.com/athletic/5856238/2024/10/20/iowa-state-ucf-score-takeaways/
+
+**Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
+`Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
+`\
+https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
+
+**Eagles at Giants odds, picks, how to watch: A Saquon Barkley revenge game?**\
+`Saquon Barkley travels back to New York to face his old team in a revenge game as the Eagles take on the Giants. `\
+https://nytimes.com/athletic/5850720/2024/10/20/eagles-giants-odds-picks-how-to-watch-betting/
+
+**For the Wild, this season's start feels different than last season's unraveling: Russo**\
+`The Wild seem better equipped to deal with adversity this season, whether that’s players out of the lineup, or simply in-game.`\
+https://nytimes.com/athletic/5856155/2024/10/20/russo-wild-early-start/
+
 **Lions vs. Vikings odds, expert picks, how to watch: A marquee NFC North matchup**\
 `The NFC North delivers a marquee matchup when the unbeaten Minnesota Vikings host the Detroit Lions.`\
 https://nytimes.com/athletic/5850975/2024/10/20/lions-vikings-odds-picks-how-to-watch-betting/
