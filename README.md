@@ -1,3 +1,7 @@
+**Until Saturday: Who will be the new No. 1, what's going on in the Big 12?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who will be No. 1 this week? Can anyone predict the Big 12?`\
+https://nytimes.com/athletic/5854945/2024/10/20/college-football-no-1-georgia-texas-big-12-until-saturday/
+
 **Live Q&A: Week 7 fantasy football start/sit chat with Jay Felicio, Sunday 10/20 at 11 a.m. ET**\
 `Submit your Week 7 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5847673/2024/10/20/live-qa-week-7-fantasy-football-start-sit-chat-jay-felicio-sunday-10-20/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/20/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Trump Heads to McDonald’s, Hoping to Undercut Harris**\
 `Former President Donald J. Trump is expected to work at a McDonald’s on Sunday, aiming to attack Vice President Kamala Harris over unsubstantiated claims that she never worked at the fast-food chain.`\
 https://nytimes.com/live/2024/10/20/us/harris-trump-election
-
-**How Elections Affect Our Shopping**\
-`We explore why consumers tend to get skittish about major purchases ahead of a general election.`\
-https://nytimes.com/2024/10/20/briefing/election-shopping-habits.html
 
