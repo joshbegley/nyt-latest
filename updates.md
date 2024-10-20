@@ -1,3 +1,7 @@
+**Panthers at Commanders odds, expert picks, how to watch: What does Daniels have next?**\
+`Jayden Daniels continues his quest for the Rookie of the Year award this week against the Carolina Panthers. `\
+https://nytimes.com/athletic/5851096/2024/10/20/panthers-commanders-odds-picks-how-to-watch-betting/
+
 **Six-time Olympic cycling champion Hoy reveals terminal cancer diagnosis**\
 `Sir Chris Hoy, the six-time Olympic cycling champion, has revealed his cancer is terminal
 Hoy, 48, was initially diagnosed with the disease in September of last year before he went public with the news back in February.`\
