@@ -1,3 +1,7 @@
+**How Elections Affect Our Shopping**\
+`We explore why consumers why tend to get skittish about major purchases ahead of a general election.`\
+https://nytimes.com/2024/10/20/briefing/election-shopping-habits.html
+
 **Mandel's Final Thoughts: Georgia's defensive havoc takes down Texas and more from Week 8**\
 `Georgia's defense comes alive against No. 1 Texas, while Alabama is spiraling in coach Kalen DeBoer's first season.`\
 https://nytimes.com/athletic/5856542/2024/10/20/georgia-texas-alabama-tennessee-week-8-final-thoughts/
