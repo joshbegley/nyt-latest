@@ -1,3 +1,7 @@
+**Investigation launched into alleged homophobic chanting from PSG fans**\
+`The Ligue de Football Professionnel (LFP) say they have launched an investigation into alleged homophobic chanting from Paris Saint-Germain supporters during the Ligue 1 game with Strasbourg on Saturday.`\
+https://nytimes.com/athletic/5856649/2024/10/20/psg-strasbourg-chants-homophobic/
+
 **Kamala Harris and McDonald’s: A College Job, and a Trump Attack**\
 `Donald Trump has claimed without evidence that Ms. Harris never worked at the fast-food chain. Her campaign and a friend say she did.`\
 https://nytimes.com/2024/10/20/us/politics/kamala-harris-mcdonalds-work-trump.html
