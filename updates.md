@@ -1,3 +1,11 @@
+**Starring in Kamala Harris’s Closing Argument: Donald Trump**\
+`Vice President Kamala Harris has made a notable shift in strategy to paint Donald Trump as unfit and dangerous as Democrats grow anxious about the closeness of the race just two weeks out.`\
+https://nytimes.com/2024/10/20/us/harris-trump-strategy.html
+
+**Slot doubts Jota's availability for Liverpool's clash vs RB Leipzig**\
+`Liverpool head coach Arne Slot fears that attacker Diogo Jota will miss Wednesday’s Champions League trip to RB Leipzig due to injury.`\
+https://nytimes.com/athletic/5857546/2024/10/20/diogo-jota-liverpool-injury-latest/
+
 **Browns QB Deshaun Watson believed to have torn Achilles: Source**\
 `Watson, 29, is in his third season with Cleveland after signing a five-year, $230 million fully guaranteed deal with the Browns in 2022.`\
 https://nytimes.com/athletic/5857440/2024/10/20/browns-deshaun-watson-injury-update/
