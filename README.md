@@ -1,3 +1,7 @@
+**How Elections Affect Our Shopping**\
+`We explore why consumers why tend to get skittish about major purchases ahead of a general election.`\
+https://nytimes.com/2024/10/20/briefing/election-shopping-habits.html
+
 **Mandel's Final Thoughts: Georgia's defensive havoc takes down Texas and more from Week 8**\
 `Georgia's defense comes alive against No. 1 Texas, while Alabama is spiraling in coach Kalen DeBoer's first season.`\
 https://nytimes.com/athletic/5856542/2024/10/20/georgia-texas-alabama-tennessee-week-8-final-thoughts/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/opinion/hamas-colleges-free-speech.html
 **This Hollywood Horror Film Hit Close to Home**\
 `I’ve seen the ways that show business can warp a young woman’s self-perception. I’ve even fallen prey to some of them.`\
 https://nytimes.com/2024/10/20/opinion/hollywood-horror-the-substance.html
-
-**Kansas City Chiefs Week 7 playbook: What to know ahead of 49ers matchup**\
-`Catch up on all the latest on the Chiefs before they play the 49ers on Sunday.`\
-https://nytimes.com/athletic/5850258/2024/10/20/kansas-city-chiefs-week-7-news-projections-preview/
 
