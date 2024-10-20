@@ -10,7 +10,7 @@ https://nytimes.com/video/us/politics/100000009772210/trump-mcdonalds-fries-harr
 `Only three Dolphins wide receivers caught a pass on Sunday as QB Tyler Huntley exited with an injury.`\
 https://nytimes.com/athletic/5857037/2024/10/20/colts-dolphins-takeaways-result/
 
-**Jared Goff outduels Vikings, Sam Darnold as Lions win 31-29 with late field goal: Takeaways**\
+**Goff outduels Vikings, Darnold as Lions win 31-29: Takeaways**\
 `The Lions put up 391 yards against Brian Flores' defense to take sole possession of the NFC North.`\
 https://nytimes.com/athletic/5857048/2024/10/20/lions-vikings-takeaways-result/
 
