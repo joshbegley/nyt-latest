@@ -1,3 +1,8 @@
+**Six-time Olympic cycling champion Hoy reveals terminal cancer diagnosis**\
+`Sir Chris Hoy, the six-time Olympic cycling champion, has revealed his cancer is terminal
+Hoy, 48, was initially diagnosed with the disease in September of last year before he went public with the news back in February.`\
+https://nytimes.com/athletic/5856493/2024/10/20/chris-hoy-cancer-terminal/
+
 **Raiders vs. Rams odds, expert picks, how to watch: A duel between rebuilding squads**\
 `The Raiders travel to Los Angeles to face the Rams in a matchup between two teams with only one win. `\
 https://nytimes.com/athletic/5851052/2024/10/20/raiders-rams-odds-picks-how-to-watch-betting/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/10/20/nyregion/youth-crime-arrests-nyc.html
 **MLS Decision Day: Messi's hat trick history and the end of an era for Philly**\
 `How the final day of the MLS regular season played out`\
 https://nytimes.com/athletic/5855575/2024/10/20/mls-decision-day-messi-miami-galaxy-union/
-
-**‘Her Needles Pulled a Single String of Yarn From a Bag on the Floor’**\
-`A knitter’s practiced hands draw attention, a solo on a windy day and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/10/20/nyregion/metropolitan-diary.html
 

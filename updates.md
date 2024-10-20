@@ -1,3 +1,8 @@
+**Six-time Olympic cycling champion Hoy reveals terminal cancer diagnosis**\
+`Sir Chris Hoy, the six-time Olympic cycling champion, has revealed his cancer is terminal
+Hoy, 48, was initially diagnosed with the disease in September of last year before he went public with the news back in February.`\
+https://nytimes.com/athletic/5856493/2024/10/20/chris-hoy-cancer-terminal/
+
 **Raiders vs. Rams odds, expert picks, how to watch: A duel between rebuilding squads**\
 `The Raiders travel to Los Angeles to face the Rams in a matchup between two teams with only one win. `\
 https://nytimes.com/athletic/5851052/2024/10/20/raiders-rams-odds-picks-how-to-watch-betting/
