@@ -1,3 +1,16 @@
+**Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
+`Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
+`\
+https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
+
+**Eagles at Giants odds, picks, how to watch: A Saquon Barkley revenge game?**\
+`Saquon Barkley travels back to New York to face his old team in a revenge game as the Eagles take on the Giants. `\
+https://nytimes.com/athletic/5850720/2024/10/20/eagles-giants-odds-picks-how-to-watch-betting/
+
+**For the Wild, this season's start feels different than last season's unraveling: Russo**\
+`The Wild seem better equipped to deal with adversity this season, whether that’s players out of the lineup, or simply in-game.`\
+https://nytimes.com/athletic/5856155/2024/10/20/russo-wild-early-start/
+
 **Lions vs. Vikings odds, expert picks, how to watch: A marquee NFC North matchup**\
 `The NFC North delivers a marquee matchup when the unbeaten Minnesota Vikings host the Detroit Lions.`\
 https://nytimes.com/athletic/5850975/2024/10/20/lions-vikings-odds-picks-how-to-watch-betting/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5851446/2024/10/20/aaron-connolly-sunderland-bright
 **Pintxos, paella and much more besides: A gastronomic guide to La Liga**\
 `Spain is renowned for its football - and its food. These are the best places to eat if you're travelling to watch a game there this season`\
 https://nytimes.com/athletic/5846933/2024/10/20/la-liga-food-tour-pintxos-paella/
-
-**'We have to be better': Blue Jackets look slow, disjointed in loss to Wild**\
-`"It just wasn't there tonight," Blue Jackets defenseman Zach Werenski said after Columbus' 3-1 loss to Minnesota.`\
-https://nytimes.com/athletic/5855883/2024/10/20/blue-jackets-wild-loss/
-
-**Soto, Yankees blast way into World Series over Guardians: Takeaways**\
-`Soto broke a 2-2 tie in the top of the 10th when he launched a three-run shot to right-center. `\
-https://nytimes.com/athletic/5856031/2024/10/20/guardians-yankees-score-mlb-playoff-alcs/
-
-**Zumba Teacher? ‘Anti-Woke’ Cleric? 38 Candidates Line Up to Head Oxford**\
-`The role of chancellor at the University of Oxford has been around for 800 years. This year, a particularly broad range of people have applied.`\
-https://nytimes.com/2024/10/20/world/europe/oxford-university-chancellor-zumba-anti-woke-cleric.html
 
