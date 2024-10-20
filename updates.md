@@ -1,3 +1,7 @@
+**Sampson: Boring is just fine for Marcus Freeman, Notre Dame**\
+`Sometimes boring can be progress. And that’s exactly what Notre Dame accomplished on Saturday against Georgia Tech.`\
+https://nytimes.com/athletic/5856817/2024/10/20/notre-dame-georgia-tech-marcus-freeman/
+
 **Investigation launched into alleged homophobic chanting from PSG fans**\
 `The Ligue de Football Professionnel (LFP) say they have launched an investigation into alleged homophobic chanting from Paris Saint-Germain supporters during the Ligue 1 game with Strasbourg on Saturday.`\
 https://nytimes.com/athletic/5856649/2024/10/20/psg-strasbourg-chants-homophobic/
