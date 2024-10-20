@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`Former President Donald J. Trump is heading to Pennsylvania, while Vice President Kamala Harris will sit down with the Rev. Al Sharpton for an interview on MSNBC on her 60th birthday.`\
+https://nytimes.com/live/2024/10/20/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Heads to McDonald’s, Hoping to Undercut Harris**\
+`Former President Donald J. Trump is expected to work at a McDonald’s on Sunday, aiming to attack Vice President Kamala Harris over unsubstantiated claims that she never worked at the fast-food chain.`\
+https://nytimes.com/live/2024/10/20/us/harris-trump-election
+
+**How Elections Affect Our Shopping**\
+`We explore why consumers tend to get skittish about major purchases ahead of a general election.`\
+https://nytimes.com/2024/10/20/briefing/election-shopping-habits.html
+
 **How Elections Affect Our Shopping**\
 `We explore why consumers why tend to get skittish about major purchases ahead of a general election.`\
 https://nytimes.com/2024/10/20/briefing/election-shopping-habits.html
