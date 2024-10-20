@@ -1,3 +1,7 @@
+**Kamala Harris and McDonald’s: A College Job, and a Trump Attack**\
+`Donald Trump has claimed without evidence that Ms. Harris never worked at the fast-food chain. Her campaign and a friend say she did.`\
+https://nytimes.com/2024/10/20/us/politics/kamala-harris-mcdonalds-work-trump.html
+
 **Until Saturday: Who will be the new No. 1, what's going on in the Big 12?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Who will be No. 1 this week? Can anyone predict the Big 12?`\
 https://nytimes.com/athletic/5854945/2024/10/20/college-football-no-1-georgia-texas-big-12-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854771/2024/10/20/west-ham-self-destruct-tottenham
 **Here’s the latest on the presidential race.**\
 `Former President Donald J. Trump is heading to Pennsylvania, while Vice President Kamala Harris will sit down with the Rev. Al Sharpton for an interview on MSNBC on her 60th birthday.`\
 https://nytimes.com/live/2024/10/20/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump Heads to McDonald’s, Hoping to Undercut Harris**\
-`Former President Donald J. Trump is expected to work at a McDonald’s on Sunday, aiming to attack Vice President Kamala Harris over unsubstantiated claims that she never worked at the fast-food chain.`\
-https://nytimes.com/live/2024/10/20/us/harris-trump-election
 
