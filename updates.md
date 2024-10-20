@@ -1,3 +1,7 @@
+**Meek: For 'disappointed' Sherrone Moore, challenges of starting over at Michigan hitting hard**\
+`Moore entered this season with plenty of goodwill, but the Wolverines have burned a stunning amount of it in just seven games.`\
+https://nytimes.com/athletic/5856189/2024/10/20/michigan-sherrone-moore-illinois-quarterbacks/
+
 **A 50-Mile Art Road Trip Celebrates the Culture in Agriculture**\
 `In Wisconsin, the Farm/Art DTour brings artists and farmers together and each get a fresh perspective.`\
 https://nytimes.com/2024/10/20/arts/design/wisconsin-farm-art-dtour.html

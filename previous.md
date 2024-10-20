@@ -1,3 +1,7 @@
+**Meek: For 'disappointed' Sherrone Moore, challenges of starting over at Michigan hitting hard**\
+`Moore entered this season with plenty of goodwill, but the Wolverines have burned a stunning amount of it in just seven games.`\
+https://nytimes.com/athletic/5856189/2024/10/20/michigan-sherrone-moore-illinois-quarterbacks/
+
 **A 50-Mile Art Road Trip Celebrates the Culture in Agriculture**\
 `In Wisconsin, the Farm/Art DTour brings artists and farmers together and each get a fresh perspective.`\
 https://nytimes.com/2024/10/20/arts/design/wisconsin-farm-art-dtour.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/world/middleeast/israel-saudi-arabia-iran-gulf.ht
 **I Can’t Buy a House. I Can’t Shop. I’m Too Worried About the Election.**\
 `Election anxiety is causing many consumers to avoid big-ticket purchases like houses, weddings and cars. “Every four years this happens,” one former car dealer said.`\
 https://nytimes.com/2024/10/20/realestate/election-anxiety-home-car-sales.html
-
-**Harris May Be Catching Up on a Key Polling Question: Which Candidate Helps You?**\
-`Many voters believe Donald Trump’s policies have helped them, Times/Siena polls show. Kamala Harris has made up some lost ground on that question, though there are warning signs in the swing states.`\
-https://nytimes.com/2024/10/20/us/elections/trump-harris-policies-help-hurt.html
 
