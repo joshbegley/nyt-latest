@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Welcomes Back Alec Baldwin**\
+`The longtime friend of “S.N.L.” made his first appearance on the show since an involuntary manslaughter case against him was dismissed. Michael Keaton was the host.`\
+https://nytimes.com/2024/10/20/arts/television/saturday-night-live.html
+
 **No. 9 Iowa State rallies to beat UCF, remain undefeated**\
 `Iowa State quarterback Rocco Becht scored a game-winning one-yard run to cap an 11-play, 80-yard drive.`\
 https://nytimes.com/athletic/5856238/2024/10/20/iowa-state-ucf-score-takeaways/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5850723/2024/10/20/luka-modric-real-madrid-la-liga-
 **Texans vs. Packers odds, expert picks, how to watch: Two top offenses collide**\
 `The Packers are slight home favorites in this cross-conference matchup of playoff contenders.`\
 https://nytimes.com/athletic/5851071/2024/10/20/texans-packers-odds-picks-how-to-watch-betting/
-
-**"My life was a mess, I was spiralling. I needed rehab - it's given me another chance"**\
-`Aaron Connolly has been given a new start by Sunderland - he speaks openly about his alcohol addiction in a bid to help others`\
-https://nytimes.com/athletic/5851446/2024/10/20/aaron-connolly-sunderland-brighton-hull-interview/
 
