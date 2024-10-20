@@ -1,3 +1,7 @@
+**Penguins' defensive futility strikes again in loss to Jets: Yohe's 10 observations**\
+`The Penguins produced another defensive dud in a 6-3 loss to the Jets in Winnipeg on Sunday. `\
+https://nytimes.com/athletic/5857885/2024/10/20/penguins-defensive-futility-nedeljkovic-jets/
+
 **This Is the Case of Henry Dee**\
 `Listening in on one case before a parole board.`\
 https://nytimes.com/2024/10/20/podcasts/this-is-the-case-of-henry-dee-this-american-life-nyt-audio.html
