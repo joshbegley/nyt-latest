@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5855992/2024/10/19/blackhawks-lukas-reichel-develop
 `Welcome to life with everyone else, Crimson Tide fans. You’re still flying first class, of course. But you’re just another good team.`\
 https://nytimes.com/athletic/5856027/2024/10/19/alabama-tennessee-kalen-deboer/
 
-**Auston Matthews' lone goal not enough in Maple Leafs loss to Rangers:**\
+**Maple Leafs report cards: Auston Matthews' lone goal not enough in loss to Rangers**\
 `The Maple Leafs weren't hard enough on goalie Igor Shesterkin for the full 60 minutes of a 4-1 loss to the Rangers.`\
 https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analysis/
 
