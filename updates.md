@@ -38,6 +38,11 @@ https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thomp
 `\
 https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
 
+**Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
+`Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
+`\
+https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
+
 **Jill Stein Won’t Stop. No Matter Who Asks.**\
 `People in Stein’s life have implored her to abandon her bid for president, lest she throw the election to Donald Trump. She’s on the ballot in almost every critical state.`\
 https://nytimes.com/2024/10/20/us/politics/jill-stein-harris-trump.html
