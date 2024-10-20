@@ -1,3 +1,7 @@
+**F1 United States GP preview: Norris and Verstappen’s title fight renews in Austin**\
+`The on-track rivalry that has defined the 2024 F1 season has been renewed in Austin. `\
+https://nytimes.com/athletic/5855392/2024/10/19/f1-united-states-gp-preview-lando-norris-max-verstappen/
+
 **Sherman: Question everything about the Huskers in Year 2 under Matt Rhule**\
 `For Nebraska, it was a dark day. Where do the Huskers go from here, with a team much more talented than Indiana looming?`\
 https://nytimes.com/athletic/5855739/2024/10/19/nebraska-indiana-loss-matt-rhule/

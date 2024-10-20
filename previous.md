@@ -1,3 +1,7 @@
+**F1 United States GP preview: Norris and Verstappen’s title fight renews in Austin**\
+`The on-track rivalry that has defined the 2024 F1 season has been renewed in Austin. `\
+https://nytimes.com/athletic/5855392/2024/10/19/f1-united-states-gp-preview-lando-norris-max-verstappen/
+
 **Clock ticking on Oilers as they consider making changes to power play**\
 `After a 4-1 loss to the Stars on Saturday, it's clear the Oilers' best collective weapon can’t continue to look so inept for much longer.`\
 https://nytimes.com/athletic/5855714/2024/10/19/oilers-stars-power-play/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/19/us/harris-trump-election/harris-with-usher-b
 **'We're not going to wait forever': CHSN boss says Comcast hasn't made any offers**\
 `Jason Coyle, president of CHSN, said on Saturday that there have been no offers from Comcast whatsoever.`\
 https://nytimes.com/athletic/5855700/2024/10/19/chsn-comcast-tv-blackhawks/
-
-**Should Jalen Milroe enter 2025 NFL Draft, or would he benefit from a return to Alabama?**\
-`Milroe's season of up-and-down performances continued Saturday in Alabama's loss at Tennessee`\
-https://nytimes.com/athletic/5855726/2024/10/19/jalen-milroe-nfl-draft-2025-scouting/
 
