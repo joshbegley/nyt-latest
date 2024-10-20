@@ -1,3 +1,7 @@
+**French Cuffs and French Fries at Donald Trump’s McDonald’s Gig**\
+`No hairnet in sight as the former president doled out meals at a campaign stop in Pennsylvania.`\
+https://nytimes.com/2024/10/20/style/donald-trump-mcdonalds.html
+
 **49ers' Aiyuk carted off, Samuel ruled out vs. Chiefs**\
 `The 49ers are now down to their fourth, fifth and sixth wide receivers in their starting lineup. `\
 https://nytimes.com/athletic/5858015/2024/10/20/brandon-aiyuk-injury-deebo-samuel-49ers-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/us/politics/trump-arnold-palmer-kamala-harris.htm
 **Fans Mourn Liam Payne at Vigil in London**\
 `His death has been particularly profound in Britain, where Payne, a member of the boy band One Direction, first achieved fame. “We don’t know loss like this,” one fan said.`\
 https://nytimes.com/2024/10/20/arts/music/liam-payne-vigil-london.html
-
-**Buckley: Worst Patriots team ever? Jerod Mayo's bunch is well on its way**\
-`Nobody expected the Pats to win a lot of games. What most people did expect was renewed energy and a new vibe around Gillette Stadium. `\
-https://nytimes.com/athletic/5857691/2024/10/20/patriots-jaguars-drake-maye-london/
 
