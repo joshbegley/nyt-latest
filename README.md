@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Auston Matthews' lone goal not enough in loss to Rangers**\
+`The Maple Leafs weren't hard enough on goalie Igor Shesterkin for the full 60 minutes of a 4-1 loss to the Rangers.`\
+https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analysis/
+
 **Morales: USC has invested heavily in Lincoln Riley and his staff. Where are the results?**\
 `It’s late October and USC already has nothing to play for but pride. That’s just not where things are supposed to be in Year 3 under Riley.`\
 https://nytimes.com/athletic/5856010/2024/10/19/usc-has-invested-heavily-in-lincoln-riley-and-his-staff-where-are-the-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855714/2024/10/19/oilers-stars-power-play/
 **Dochterman: Indiana is no Cinderella. The Hoosiers look like they can crash the CFP and compete**\
 `The Hoosiers are as complete as any Big Ten team, save for Oregon and Ohio State.`\
 https://nytimes.com/athletic/5855708/2024/10/19/indiana-football-nebraska-cinderella-playoff/
-
-**Texas inserts Arch Manning at QB for two drives after slow start vs. Georgia**\
-`Quinn Ewers returned for the first time since Week 3 against UTSA after missing two-plus games with an oblique injury.`\
-https://nytimes.com/athletic/5838711/2024/10/19/arch-manning-texas-georgia-quinn-ewers/
 
