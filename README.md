@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5857117/2024/10/20/gary-oneil-john-stones-wolves/
 https://nytimes.com/athletic/5856985/2024/10/20/patriots-jaguars-takeaways-result-london/
 
 **A Must-Watch Night for New York Sports Fans: Here’s What to Know**\
-`The Mets and the Liberty will each look to secure a crucial championship win, while the Jets will bring together two stars to build momentum toward the playoffs.`\
+`The Mets and the Liberty will each look to secure a crucial championship win, while the Jets will bring together two stars in an effort to reverse a losing streak.`\
 https://nytimes.com/2024/10/20/nyregion/new-york-mets-liberty-jets-watch.html
 
 **Explained: Why Manchester City's late winner at Wolves was allowed to stand**\
