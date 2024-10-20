@@ -1,3 +1,7 @@
+**Week 8's College Football Playoff lessons: Bama on the brink? Indiana in?**\
+`Alabama is in trouble, Indiana is for real and expansion is working exactly as hoped.`\
+https://nytimes.com/athletic/5856317/2024/10/20/alabama-indiana-college-football-playoff/
+
 **The Sunday Read: ‘An Acerbic Young Writer Takes Aim at the Identity Era’**\
 `Tony Tulathimutte is a master comedian whose original and highly disturbing new book skewers liberal pieties.`\
 https://nytimes.com/2024/10/20/podcasts/the-daily/tony-tulathimutte-feminist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/crosswords/connections-companion-498.html
 **Wordle Review No. 1,220**\
 `Scroll down for hints and conversation about the puzzle for Mon., Oct. 21, 2024.`\
 https://nytimes.com/2024/10/20/crosswords/wordle-review-1220.html
-
-**Will women's soccer count the cost of going global?**\
-`Gotham FC are a step closer to what is expected to be qualification for the Club World Cup — but they're already feeling the strain`\
-https://nytimes.com/athletic/5854213/2024/10/20/club-world-cup-champions-cup-nwsl-womens/
 
