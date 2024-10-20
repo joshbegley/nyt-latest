@@ -1,3 +1,7 @@
+**Will women's soccer count the cost of going global?**\
+`Gotham FC are a step closer to what is expected to be qualification for the Club World Cup — but they're already feeling the strain`\
+https://nytimes.com/athletic/5854213/2024/10/20/club-world-cup-champions-cup-nwsl-womens/
+
 **Here are the latest developments.**\
 `By Matthew Mpoke Bigg and Mike Ives`\
 https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/business/pittsburgh-steelers-nfl-ireland.html
 **At Homecoming, Howard Alumni Are Excited and Anxious for Harris**\
 `The H.B.C.U. celebrated its centennial homecoming this weekend, with many partygoers holding their breath for the school’s famous alumna, Vice President Kamala Harris, in the election’s homestretch.`\
 https://nytimes.com/2024/10/20/us/politics/harris-howard-hbcus.html
-
-**The ‘King of Weird Fiction’ Writes His Strangest Novel Yet**\
-`Jeff VanderMeer, known for his blockbuster Southern Reach series, talks about his eerie new installment, “Absolution,” keeping mysteries alive and what people get wrong about alligators.`\
-https://nytimes.com/2024/10/20/books/jeff-vandermeer-southern-reach-absolution.html
 
