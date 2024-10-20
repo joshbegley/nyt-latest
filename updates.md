@@ -1,3 +1,7 @@
+**At a Pennsylvania Rally, Trump Descends to New Levels of Vulgarity**\
+`The G.O.P. nominee repeated crude insults, and his supporters relished each moment. But the display could alienate swing voters.`\
+https://nytimes.com/2024/10/19/us/politics/trump-vulgarity-pennsylvania-rally.html
+
 **How Igor Shesterkin, top-6 excellence led to Rangers' win: 4 takeaways**\
 `The Rangers won 4-1 in Toronto behind another stellar goaltending performance from their star goaltender.`\
 https://nytimes.com/athletic/5856020/2024/10/19/rangers-maple-leafs-igor-shesterkin-takeaways/
