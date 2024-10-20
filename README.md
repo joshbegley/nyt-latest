@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Matthew Mpoke Bigg and Mike Ives`\
+https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/here-are-the-latest-developments
+
+**Live Updates: Israel Strikes Hezbollah Stronghold South of Beirut**\
+`The Israeli military attacked the Dahiya, a Hezbollah-dominated area south of the Lebanese capital, for a second straight day as it kept up an offensive in northern Gaza.`\
+https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news
+
 **Jets vs. Steelers odds, expert picks, how to watch: A Rodgers-Adams reunion**\
 `Aaron Rodgers reunites with Davante Adams when the Jets head to Pittsburgh to take on the Steelers. `\
 https://nytimes.com/athletic/5851223/2024/10/20/jets-steelers-odds-picks-how-to-watch-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/20/us/politics/harris-howard-hbcus.html
 **The ‘King of Weird Fiction’ Writes His Strangest Novel Yet**\
 `Jeff VanderMeer, known for his blockbuster Southern Reach series, talks about his eerie new installment, “Absolution,” keeping mysteries alive and what people get wrong about alligators.`\
 https://nytimes.com/2024/10/20/books/jeff-vandermeer-southern-reach-absolution.html
-
-**The Holocaust’s Grandchildren Are Speaking Now**\
-`Three generations on, filmmakers, writers and artists are making new meaning from ancestral trauma.`\
-https://nytimes.com/2024/10/20/arts/real-pain-eisenberg-holocaust-third-generation.html
-
-**A Mideast Shift Is Underway, Without Israel**\
-`Before Hamas’s Oct. 7 attacks, Saudi Arabia was open to forging stronger ties with the Israelis. Now, a year into the war in Gaza, it is warming up to its traditional enemy, Iran.`\
-https://nytimes.com/2024/10/20/world/middleeast/israel-saudi-arabia-iran-gulf.html
 
