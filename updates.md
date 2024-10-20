@@ -1,3 +1,15 @@
+**For the Guardians, there are no guarantees, just more spring optimism**\
+`Playoff baseball is a frantic, anxiety-sponsored ride, and no one would have it any other way.`\
+https://nytimes.com/athletic/5856371/2024/10/20/2024-guardians-season/
+
+**Tugged Between East and West, Moldova Makes a Pivotal Choice**\
+`Moldovans are voting on whether to enshrine in their Constitution an “irreversible” commitment to abandon Russian influence and one day join the E.U.`\
+https://nytimes.com/2024/10/20/world/europe/moldova-election-russia-eu.html
+
+**How Manchester United got 'mad' and back to winning ways**\
+`Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's Manchester United wrote their own tale`\
+https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
+
 **In Arsenal's quest for perfection, the small errors carry big consequences**\
 `Two lapses of concentration proved crucial in Arsenal's first defeat of the season. Their low points continue to be of their own making`\
 https://nytimes.com/athletic/5855342/2024/10/20/arsenal-bournemouth-saliba-kiwior-arteta/
