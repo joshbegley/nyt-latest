@@ -1,3 +1,7 @@
+**Maresca states Chelsea 'not happy' after Liverpool defeat**\
+`Enzo Maresca says Chelsea &#8220;are not happy&#8221; with their 2-1 defeat to Liverpool at Anfield, emphasising that his side &#8220;don’t like losing games&#8221; and felt they controlled much of the match.`\
+https://nytimes.com/athletic/5857420/2024/10/20/enzo-maresca-chelsea-liverpool/
+
 **Confronted With Facts on Fox News, Trump Claims Ignorance**\
 `In an interview that aired Sunday, Donald Trump defended his recent falsehoods about immigrants and the Capitol riot by claiming, implausibly, that he did not know or had “not heard” the truth.`\
 https://nytimes.com/2024/10/20/us/politics/trump-fox-news-jan-6-haitians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5856644/2024/10/20/blue-jackets-david-jiricek-seaso
 **The Briefing: Liverpool 2 Chelsea 1 - Slot passes first Big-Six test, Jones' influence and Palmer nullified**\
 `Our writers analyse the key talking points from Liverpool's victory over Chelsea`\
 https://nytimes.com/athletic/5850560/2024/10/20/liverpool-chelsea-briefing-analysis/
-
-**Israeli Airstrike in Northern Gaza Kills Dozens, Officials Say**\
-`Palestinians combed through rubble looking for survivors after an overnight Israeli airstrike hit a residential building in the town of Beit Lahia, in northern Gaza, killing dozens of people, according to Palestinian officials.`\
-https://nytimes.com/video/world/middleeast/100000009772039/beit-lahia-aftermath-israeli-strike-gaza.html
 
