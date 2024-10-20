@@ -1,3 +1,7 @@
+**Harris, with Usher by her side, makes abortion rights the focus in Atlanta.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election/harris-with-usher-by-her-side-makes-abortion-rights-the-focus-in-atlanta
+
 **'We're not going to wait forever': CHSN boss says Comcast hasn't made any offers**\
 `Jason Coyle, president of CHSN, said on Saturday that there have been no offers from Comcast whatsoever.`\
 https://nytimes.com/athletic/5855700/2024/10/19/chsn-comcast-tv-blackhawks/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5855726/2024/10/19/jalen-milroe-nfl-draft-2025-scou
 https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
 
 **Early in-person voting begins in Nevada, with Obama set to rally Democrats.**\
-`Republicans TKTKTK`\
+`By Benjamin Oreskes`\
 https://nytimes.com/live/2024/10/19/us/harris-trump-election/nevada-early-voting
 
 **Lando Norris takes F1 United States GP pole**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850846/2024/10/19/patriots-jaguars-odds-expert-pic
 **Notre Dame takeaways: Irish slow down Georgia Tech's rushing attack, cruise to easy win**\
 `The Jackets rushed for 616 yards in recent wins over Duke and North Carolina. They managed only 64 on Saturday afternoon.`\
 https://nytimes.com/athletic/5855499/2024/10/19/notre-dame-georgia-tech-riley-leonard-defense/
-
-**Triple Features**\
-`Jerry Miccolis’s blockbuster Sunday puzzle is actually a sequel.`\
-https://nytimes.com/2024/10/19/crosswords/daily-puzzle-2024-10-20.html
 
