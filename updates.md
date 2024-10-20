@@ -1,3 +1,7 @@
+**Israel strikes Hezbollah-affiliated financial institution in Lebanon.**\
+`By Ephrat Livni and Euan Ward`\
+https://nytimes.com/2024/10/20/world/middleeast/israel-strike-lebanon-hezbollah.html
+
 **Garrett, Winston scold Browns fans who cheered after Watson's injury**\
 `After the game, Browns players and coaches voiced their displeasure with the reaction, saying the fans "should be ashamed."`\
 https://nytimes.com/athletic/5857874/2024/10/20/myles-garrett-deshaun-watson-browns-fans-cheering-injury/
