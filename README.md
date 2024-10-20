@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5856371/2024/10/20/2024-guardians-season/
 `Moldovans are voting on whether to enshrine in their Constitution an “irreversible” commitment to abandon Russian influence and one day join the E.U.`\
 https://nytimes.com/2024/10/20/world/europe/moldova-election-russia-eu.html
 
-**How Manchester United got 'mad' and back to winning ways**\
+**How Manchester United got 'mad' - and back to winning ways**\
 `Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's Manchester United wrote their own tale`\
 https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
 
