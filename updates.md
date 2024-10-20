@@ -1,3 +1,11 @@
+**Abortion as an Issue in the Election**\
+`Readers respond to a column by David French. Also: Veterans as poll workers; an immigrant’s story; political messages.`\
+https://nytimes.com/2024/10/20/opinion/abortion-election.html
+
+**Help Yourself to Pancakes**\
+`Put a platter of sour cream pancakes with cardamom apples on the table and watch everyone happily dig in.`\
+https://nytimes.com/2024/10/20/dining/help-yourself-to-pancakes.html
+
 **Sampson: Boring is just fine for Marcus Freeman, Notre Dame**\
 `Sometimes boring can be progress. And that’s exactly what Notre Dame accomplished on Saturday against Georgia Tech.`\
 https://nytimes.com/athletic/5856817/2024/10/20/notre-dame-georgia-tech-marcus-freeman/
