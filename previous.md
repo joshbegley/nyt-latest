@@ -1,3 +1,27 @@
+**The Sunday Read: ‘An Acerbic Young Writer Takes Aim at the Identity Era’**\
+`Tony Tulathimutte is a master comedian whose original and highly disturbing new book skewers liberal pieties.`\
+https://nytimes.com/2024/10/20/podcasts/the-daily/tony-tulathimutte-feminist.html
+
+**I Don’t Want to Live in a Monoculture, and Neither Do You**\
+`Few things can change your perspective for the better more than being attacked from both sides of America’s culture war.`\
+https://nytimes.com/2024/10/20/opinion/michigan-diversity-equity-inclusion.html
+
+**San Francisco 49ers Week 7 playbook: What to know ahead of Chiefs matchup**\
+`Catch up on the latest 49ers news before Sunday's game against the Chiefs.`\
+https://nytimes.com/athletic/5852219/2024/10/20/san-francisco-49ers-week-7-news-projections-preview/
+
+**College Officials Must Condemn On-Campus Support for Hamas Violence**\
+`Would school administrators be silent if there was a Ku Klux Klan gathering on their campus celebrating white supremacist violence?`\
+https://nytimes.com/2024/10/20/opinion/hamas-colleges-free-speech.html
+
+**This Hollywood Horror Film Hit Close to Home**\
+`I’ve seen the ways that show business can warp a young woman’s self-perception. I’ve even fallen prey to some of them.`\
+https://nytimes.com/2024/10/20/opinion/hollywood-horror-the-substance.html
+
+**Kansas City Chiefs Week 7 playbook: What to know ahead of 49ers matchup**\
+`Catch up on all the latest on the Chiefs before they play the 49ers on Sunday.`\
+https://nytimes.com/athletic/5850258/2024/10/20/kansas-city-chiefs-week-7-news-projections-preview/
+
 **There Is No Leadership Without Risk**\
 `Those in positions of leadership fear they will say the wrong thing, or say what they believe to be the right thing in the wrong way.`\
 https://nytimes.com/2024/10/20/opinion/leadership-crisis.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/20/crosswords/wordle-review-1220.html
 **Will women's soccer count the cost of going global?**\
 `Gotham FC are a step closer to what is expected to be qualification for the Club World Cup — but they're already feeling the strain`\
 https://nytimes.com/athletic/5854213/2024/10/20/club-world-cup-champions-cup-nwsl-womens/
-
-**Here are the latest developments.**\
-`By Matthew Mpoke Bigg and Mike Ives`\
-https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news/here-are-the-latest-developments
-
-**Live Updates: Israel Strikes Hezbollah Stronghold South of Beirut**\
-`The Israeli military attacked the Dahiya, a Hezbollah-dominated area south of the Lebanese capital, for a second straight day as it kept up an offensive in northern Gaza.`\
-https://nytimes.com/live/2024/10/20/world/israel-hamas-yahya-sinwar-news
-
-**Jets vs. Steelers odds, expert picks, how to watch: A Rodgers-Adams reunion**\
-`Aaron Rodgers reunites with Davante Adams when the Jets head to Pittsburgh to take on the Steelers. `\
-https://nytimes.com/athletic/5851223/2024/10/20/jets-steelers-odds-picks-how-to-watch-betting/
-
-**Meek: For 'disappointed' Sherrone Moore, challenges of starting over at Michigan hitting hard**\
-`Moore entered this season with plenty of goodwill, but the Wolverines have burned a stunning amount of it in just seven games.`\
-https://nytimes.com/athletic/5856189/2024/10/20/michigan-sherrone-moore-illinois-quarterbacks/
-
-**A 50-Mile Art Road Trip Celebrates the Culture in Agriculture**\
-`In Wisconsin, the Farm/Art DTour brings artists and farmers together and each get a fresh perspective.`\
-https://nytimes.com/2024/10/20/arts/design/wisconsin-farm-art-dtour.html
-
-**Four of Trump’s Most Meandering Remarks This Week**\
-`The former president says that his style is to “weave” from one subject to the next. Others see something more worrisome in his ramblings.`\
-https://nytimes.com/2024/10/20/us/politics/trump-meandering-remarks.html
 
