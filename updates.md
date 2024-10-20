@@ -1,3 +1,7 @@
+**AP Top 25: Oregon new No. 1; Vandy ends poll drought**\
+`Oregon became the fourth team to ascend to No. 1 in the AP Top 25 poll this season, topping Georgia, Penn State, Ohio State and Texas.`\
+https://nytimes.com/athletic/5857295/2024/10/20/ap-top-25-rankings-oregon-georgia-alabama/
+
 **Review: A Choir Stands Out in a Multimedia Performance**\
 `The Crossing is one of many elements in “Can We Know the Sound of Forgiveness,” which links pieces by Gabriela Ortiz in a five-movement meditation.`\
 https://nytimes.com/2024/10/20/arts/music/gabriela-ortiz-carnegie-hall.html
