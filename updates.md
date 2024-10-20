@@ -1,3 +1,7 @@
+**Sister Sally Butler, Nun Who Blew the Whistle on Sex Abuse, Dies at 93**\
+`In the 1960s, she worked with priests to serve residents of housing projects in Brooklyn. Decades later, she learned that those priests had been abusing young boys.`\
+https://nytimes.com/2024/10/20/nyregion/sister-sally-butler-dead.html
+
 **Heavy Rainfall Leads to Flash Flood Emergency in New Mexico**\
 `Roswell, N.M., received nearly a third of its annual rainfall total in just a few hours on Sunday, sending swift floodwaters through the city and shutting down access into or out of Roswell.`\
 https://nytimes.com/2024/10/20/us/new-mexico-flooding.html
