@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2 Chelsea 1 - Slot passes first Big-Six test, Jones' influence and Palmer nullified**\
+`Our writers analyse the key talking points from Liverpool's victory over Chelsea`\
+https://nytimes.com/athletic/5850560/2024/10/20/liverpool-chelsea-briefing-analysis/
+
 **Israeli Airstrike in Northern Gaza Kills Dozens, Officials Say**\
 `Palestinians combed through rubble looking for survivors after an overnight Israeli airstrike hit a residential building in the town of Beit Lahia, in northern Gaza, killing dozens of people, according to Palestinian officials.`\
 https://nytimes.com/video/world/middleeast/100000009772039/beit-lahia-aftermath-israeli-strike-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/nyregion/sister-sally-butler-dead.html
 **1 Dead, Hundreds Rescued in New Mexico Floods**\
 `Roswell, N.M., received nearly a third of its annual rainfall total in just a few hours on Sunday. Rescue efforts were ongoing with more storms in the forecast.`\
 https://nytimes.com/2024/10/20/us/new-mexico-flooding.html
-
-**Wolves 1 Manchester City 2: Stones wins it, VAR drama and Gvardiol appreciation**\
-`Sam Lee breaks down the main talking points from Manchester City's dramatic 2-1 win over Wolves`\
-https://nytimes.com/athletic/5850554/2024/10/20/wolves-1-manchester-city-2-stones-var-gvardiol/
 

@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2 Chelsea 1 - Slot passes first Big-Six test, Jones' influence and Palmer nullified**\
+`Our writers analyse the key talking points from Liverpool's victory over Chelsea`\
+https://nytimes.com/athletic/5850560/2024/10/20/liverpool-chelsea-briefing-analysis/
+
 **Israeli Airstrike in Northern Gaza Kills Dozens, Officials Say**\
 `Palestinians combed through rubble looking for survivors after an overnight Israeli airstrike hit a residential building in the town of Beit Lahia, in northern Gaza, killing dozens of people, according to Palestinian officials.`\
 https://nytimes.com/video/world/middleeast/100000009772039/beit-lahia-aftermath-israeli-strike-gaza.html
