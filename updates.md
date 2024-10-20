@@ -1,4 +1,8 @@
 **How Manchester United got 'mad' - and back to winning ways**\
+`Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's United wrote their own tale`\
+https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
+
+**How Manchester United got 'mad' - and back to winning ways**\
 `Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's Manchester United wrote their own tale`\
 https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
 

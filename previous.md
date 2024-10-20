@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5856371/2024/10/20/2024-guardians-season/
 https://nytimes.com/2024/10/20/world/europe/moldova-election-russia-eu.html
 
 **How Manchester United got 'mad' - and back to winning ways**\
-`Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's Manchester United wrote their own tale`\
+`Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's United wrote their own tale`\
 https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
 
 **In Arsenal's quest for perfection, the small errors carry big consequences**\
