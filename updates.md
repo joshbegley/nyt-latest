@@ -1,3 +1,7 @@
+**Week 8's College Football Playoff lessons: Bama on the brink? Indiana in?**\
+`Alabama is in trouble, Indiana is for real and expansion is working exactly as hoped.`\
+https://nytimes.com/athletic/5856317/2024/10/20/alabama-indiana-college-football-playoff/
+
 **The Sunday Read: ‘An Acerbic Young Writer Takes Aim at the Identity Era’**\
 `Tony Tulathimutte is a master comedian whose original and highly disturbing new book skewers liberal pieties.`\
 https://nytimes.com/2024/10/20/podcasts/the-daily/tony-tulathimutte-feminist.html
