@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: Georgia's defensive havoc takes down Texas and more from Week 8**\
+`Georgia's defense comes alive against No. 1 Texas, while Alabama is spiraling in coach Kalen DeBoer's first season.`\
+https://nytimes.com/athletic/5856542/2024/10/20/georgia-texas-alabama-tennessee-week-8-final-thoughts/
+
 **Who's the Yankees' best matchup in the World Series: Dodgers or Mets?**\
 `Both would be formidable opponents, but there are pros and cons to facing each team. `\
 https://nytimes.com/athletic/5855927/2024/10/20/yankees-world-series-dodgers-mets/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/opinion/hollywood-horror-the-substance.html
 **Kansas City Chiefs Week 7 playbook: What to know ahead of 49ers matchup**\
 `Catch up on all the latest on the Chiefs before they play the 49ers on Sunday.`\
 https://nytimes.com/athletic/5850258/2024/10/20/kansas-city-chiefs-week-7-news-projections-preview/
-
-**There Is No Leadership Without Risk**\
-`Those in positions of leadership fear they will say the wrong thing, or say what they believe to be the right thing in the wrong way.`\
-https://nytimes.com/2024/10/20/opinion/leadership-crisis.html
 
