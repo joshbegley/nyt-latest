@@ -1,3 +1,7 @@
+**Maresca states Chelsea 'not happy' after Liverpool defeat**\
+`Enzo Maresca says Chelsea &#8220;are not happy&#8221; with their 2-1 defeat to Liverpool at Anfield, emphasising that his side &#8220;don’t like losing games&#8221; and felt they controlled much of the match.`\
+https://nytimes.com/athletic/5857420/2024/10/20/enzo-maresca-chelsea-liverpool/
+
 **Confronted With Facts on Fox News, Trump Claims Ignorance**\
 `In an interview that aired Sunday, Donald Trump defended his recent falsehoods about immigrants and the Capitol riot by claiming, implausibly, that he did not know or had “not heard” the truth.`\
 https://nytimes.com/2024/10/20/us/politics/trump-fox-news-jan-6-haitians.html
