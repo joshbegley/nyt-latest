@@ -1,3 +1,7 @@
+**Confronted With Facts on Fox News, Trump Claims Ignorance**\
+`In an interview that aired Sunday, Donald Trump defended his recent falsehoods about immigrants and the Capitol riot by claiming, implausibly, that he did not know or had “not heard” the truth.`\
+https://nytimes.com/2024/10/20/us/politics/trump-fox-news-jan-6-haitians.html
+
 **Deshaun Watson carted off after suffering non-contact leg injury**\
 `Watson, 29, is in his third season with Cleveland after signing a five-year, $230 million fully guaranteed deal with the Browns in 2022.`\
 https://nytimes.com/athletic/5857440/2024/10/20/browns-deshaun-watson-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850560/2024/10/20/liverpool-chelsea-briefing-analy
 **Israeli Airstrike in Northern Gaza Kills Dozens, Officials Say**\
 `Palestinians combed through rubble looking for survivors after an overnight Israeli airstrike hit a residential building in the town of Beit Lahia, in northern Gaza, killing dozens of people, according to Palestinian officials.`\
 https://nytimes.com/video/world/middleeast/100000009772039/beit-lahia-aftermath-israeli-strike-gaza.html
-
-**Protesters in Israel Demand a Cease-Fire and Hostage Deal**\
-`Thousands joined families of hostages held in Gaza during a protest in Tel Aviv to call on Prime Minister Benjamin Netanyahu’s government to reach a cease-fire deal and to push for the release of hostages.`\
-https://nytimes.com/video/world/middleeast/100000009772044/tel-aviv-protest-israeli-hostages-gaza-ceasefire.html
 
