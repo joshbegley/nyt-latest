@@ -1,3 +1,7 @@
+**Cher, A Tribe Called Quest and Dave Matthews Band Join the Rock Hall**\
+`Gratitude flowed at the 39th induction ceremony in Cleveland, where Mary J. Blige, Peter Frampton, Ozzy Osbourne and the bands Foreigner and Kool & the Gang were honored.`\
+https://nytimes.com/2024/10/20/arts/music/rock-hall-fame-induction-cher-foreigner-dave-matthews.html
+
 **O'Neil on Stones' late winner vs Wolves: 'It felt like a harsh one'**\
 `Wolverhampton Wanderers head coach Gary O&#8217;Neil stated that the decision to allow John Stones&#8217; goal in their 2-1 defeat against Manchester City &#8220;did feel like a harsh one&#8221;.`\
 https://nytimes.com/athletic/5857117/2024/10/20/gary-oneil-john-stones-wolves/
