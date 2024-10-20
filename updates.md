@@ -1,3 +1,7 @@
+**Who's the Yankees' best matchup in the World Series: Dodgers or Mets?**\
+`Both would be formidable opponents, but there are pros and cons to facing each team. `\
+https://nytimes.com/athletic/5855927/2024/10/20/yankees-world-series-dodgers-mets/
+
 **Celta Vigo 1 Real Madrid 2: Mbappe scores again, Ancelotti's admission and Modric makes history**\
 `Mario Cortegana breaks down the main talking points from Real Madrid's 2-1 win over Celta Vigo`\
 https://nytimes.com/athletic/5855674/2024/10/20/celta-vigo-real-madrid-mbappe-ancelotti-modric/
