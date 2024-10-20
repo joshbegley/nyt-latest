@@ -10,7 +10,7 @@ https://nytimes.com/2024/10/19/world/asia/jokowi-legacy-gibran-dynasty.html
 `It was a major blow to the Everyman image cultivated by President Joko Widodo, who is stepping down on Sunday.`\
 https://nytimes.com/2024/10/19/world/asia/jokowi-sons-kaesang-jet.html
 
-**F1 United States GP preview: Norris and Verstappen’s title fight renews in Austin**\
+**F1 United States GP preview: Norris and Verstappen renew title fight in Austin**\
 `The on-track rivalry that has defined the 2024 F1 season has been renewed in Austin. `\
 https://nytimes.com/athletic/5855392/2024/10/19/f1-united-states-gp-preview-lando-norris-max-verstappen/
 
