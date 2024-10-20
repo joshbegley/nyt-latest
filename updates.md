@@ -1,3 +1,7 @@
+**Until Saturday: Who will be the new No. 1, what's going on in the Big 12?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who will be No. 1 this week? Can anyone predict the Big 12?`\
+https://nytimes.com/athletic/5854945/2024/10/20/college-football-no-1-georgia-texas-big-12-until-saturday/
+
 **Live Q&A: Week 7 fantasy football start/sit chat with Jay Felicio, Sunday 10/20 at 11 a.m. ET**\
 `Submit your Week 7 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5847673/2024/10/20/live-qa-week-7-fantasy-football-start-sit-chat-jay-felicio-sunday-10-20/
