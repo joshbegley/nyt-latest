@@ -1,3 +1,7 @@
+**Israeli Airstrike in Northern Gaza Kills Dozens, Officials Say**\
+`Palestinians combed through rubble looking for survivors after an overnight Israeli airstrike hit a residential building in the town of Beit Lahia, in northern Gaza, killing dozens of people, according to Palestinian officials.`\
+https://nytimes.com/video/world/middleeast/100000009772039/beit-lahia-aftermath-israeli-strike-gaza.html
+
 **A Must-Watch Night for New York Sports Fans: Here’s What to Know**\
 `The Mets and the Liberty will each look to secure a crucial championship win, while the Jets will bring together two stars in an effort to reverse a losing streak.`\
 https://nytimes.com/2024/10/20/nyregion/new-york-mets-liberty-jets-watch.html
