@@ -1,3 +1,7 @@
+**Harris Says Trump’s Behavior ‘Demeans’ the Presidency After Vulgar Remarks**\
+`In an interview with the Rev. Al Sharpton on MSNBC, the vice president reacted to her opponent’s behavior at rallies, saying Americans “deserve so much better.”`\
+https://nytimes.com/2024/10/20/us/politics/trump-arnold-palmer-kamala-harris.html
+
 **Fans Mourn Liam Payne at Vigil in London**\
 `His death has been particularly profound in Britain, where Payne, a member of the boy band One Direction, first achieved fame. “We don’t know loss like this,” one fan said.`\
 https://nytimes.com/2024/10/20/arts/music/liam-payne-vigil-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009772210/trump-mcdonalds-fries-harr
 **Colts' defense dominates in 16-10 win vs. Dolphins: Takeaways**\
 `Only three Dolphins wide receivers caught a pass on Sunday as QB Tyler Huntley exited with an injury.`\
 https://nytimes.com/athletic/5857037/2024/10/20/colts-dolphins-takeaways-result/
-
-**Goff outduels Vikings, Darnold as Lions win 31-29: Takeaways**\
-`The Lions put up 391 yards against Brian Flores' defense to take sole possession of the NFC North.`\
-https://nytimes.com/athletic/5857048/2024/10/20/lions-vikings-takeaways-result/
 
