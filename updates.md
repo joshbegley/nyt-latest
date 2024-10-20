@@ -1,3 +1,7 @@
+**Wolves 1 Manchester City 2: Stones wins it, VAR drama and Gvardiol appreciation**\
+`Sam Lee breaks down the main talking points from Manchester City's dramatic 2-1 win over Wolves`\
+https://nytimes.com/athletic/5850554/2024/10/20/wolves-1-manchester-city-2-stones-var-gvardiol/
+
 **Wolves 1 Manchester City 2 - Stones' wins it, VAR drama and Gvardiol appreciation**\
 `Sam Lee breaks down the main talking points from Manchester City's dramatic 2-1 win over Wolves`\
 https://nytimes.com/athletic/5850554/2024/10/20/wolves-1-manchester-city-2-stones-var-gvardiol/
