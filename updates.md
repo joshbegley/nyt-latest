@@ -108,6 +108,11 @@ https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thomp
 `\
 https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
 
+**Sabres get a badly needed, white-knuckle win over Blackhawks: 5 takeaways**\
+`Buffalo managed to grab an early 2-0 lead and hang on to win 4-2 over Chicago.
+`\
+https://nytimes.com/athletic/5856179/2024/10/20/sabres-win-blackhawks-tage-thompson-jj-peterka/
+
 **Russo: For the Wild, this season's start feels different from last season's unraveling**\
 `The Wild seem better equipped to deal with adversity this season, whether that’s players out of the lineup, or simply in-game.`\
 https://nytimes.com/athletic/5856155/2024/10/20/russo-wild-early-start/
