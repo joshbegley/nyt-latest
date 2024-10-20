@@ -1,3 +1,7 @@
+**How Igor Shesterkin, top-6 excellence led to Rangers' win: 4 takeaways**\
+`The Rangers won 4-1 in Toronto behind another stellar goaltending performance from their star goaltender.`\
+https://nytimes.com/athletic/5856020/2024/10/19/rangers-maple-leafs-igor-shesterkin-takeaways/
+
 **Maple Leafs report cards: Auston Matthews' lone goal not enough in loss to Rangers**\
 `The Maple Leafs weren't hard enough on goalie Igor Shesterkin for the full 60 minutes of a 4-1 loss to the Rangers.`\
 https://nytimes.com/athletic/5855911/2024/10/19/maple-leafs-rangers-grades-analysis/
