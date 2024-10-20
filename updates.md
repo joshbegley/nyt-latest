@@ -1,3 +1,7 @@
+**At Least 7 Dead After Georgia Ferry Gangway Collapses**\
+`The circumstances of the accident in Sapelo Island, south of Savannah, were not immediately clear.`\
+https://nytimes.com/2024/10/19/us/sapelo-island-dock-collapse.html
+
 **Texas-Georgia pass interference call overturned**\
 `The game stopped with 2:48 left in the third quarter as Texas students threw water bottles and garbage on the field.`\
 https://nytimes.com/athletic/5856014/2024/10/19/texas-georgia-pass-interfence-call/
