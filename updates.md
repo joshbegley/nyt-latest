@@ -1,3 +1,7 @@
+**Harris, joined by Usher, makes abortion rights the focus in Atlanta.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/10/19/us/harris-trump-election/harris-with-usher-by-her-side-makes-abortion-rights-the-focus-in-atlanta
+
 **Harris, with Usher by her side, makes abortion rights the focus in Atlanta.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/10/19/us/harris-trump-election/harris-with-usher-by-her-side-makes-abortion-rights-the-focus-in-atlanta

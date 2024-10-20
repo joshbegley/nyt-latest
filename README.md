@@ -1,3 +1,27 @@
+**Dochterman: Indiana is no Cinderella. The Hoosiers look like they can crash the CFP and compete**\
+`The Hoosiers are as complete as any Big Ten team, save for Oregon and Ohio State.`\
+https://nytimes.com/athletic/5855708/2024/10/19/indiana-football-nebraska-cinderella-playoff/
+
+**Texas puts in Arch Manning at quarterback after slow start vs. Georgia**\
+`Quinn Ewers returned for the first time since Week 3 against UTSA after missing two-plus games with an oblique injury.`\
+https://nytimes.com/athletic/5838711/2024/10/19/arch-manning-texas-georgia-quinn-ewers/
+
+**At Least 7 Dead at Georgia Ferry Dock, Official Says**\
+`The circumstances of the deaths at the dock in Sapelo Island, Ga., were not immediately clear.`\
+https://nytimes.com/2024/10/19/us/sapelo-island-dock-collapse.html
+
+**Miami qualifies for Club World Cup, to host first game at Hard Rock**\
+`FIFA president Gianni Infantino announced Miami had qualified for the 2025 FIFA Club World Cup by virtue of their regular-season title.`\
+https://nytimes.com/athletic/5855746/2024/10/19/miami-club-world-cup-hard-rock-stadium/
+
+**Deion ribs Obama for his CU comments: 'I heard what he said'**\
+`"We have more than two good players," Colorado coach Deion Sanders said in response to former President Barack Obama's comments.`\
+https://nytimes.com/athletic/5855681/2024/10/19/deion-sanders-obama-colorado-comments/
+
+**Sherman: Question everything about the Huskers in Year 2 under Matt Rhule**\
+`For Nebraska, it was a dark day. Where do the Huskers go from here, with team much more talented than Indiana looming?`\
+https://nytimes.com/athletic/5855739/2024/10/19/nebraska-indiana-loss-matt-rhule/
+
 **Harris, joined by Usher, makes abortion rights the focus in Atlanta.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/10/19/us/harris-trump-election/harris-with-usher-by-her-side-makes-abortion-rights-the-focus-in-atlanta
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5855726/2024/10/19/jalen-milroe-nfl-draft-2025-scou
 **Tennessee comes alive to spark SEC hope, put Alabama Playoff chances in peril: Takeaways**\
 `No. 11 Tennessee topped No. 7 Alabama 24-17 behind a second-half surge that puts Alabama on the College Football Playoff bubble already.`\
 https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
-
-**Early in-person voting begins in Nevada, with Obama set to rally Democrats.**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2024/10/19/us/harris-trump-election/nevada-early-voting
-
-**Lando Norris takes F1 United States GP pole**\
-`A late crash by George Russell ensured the two championship contenders start on the front row on Sunday.`\
-https://nytimes.com/athletic/5855618/2024/10/19/f1-lando-norris-pole-united-states-gp/
-
-**Leaked U.S. Intelligence Suggests Israel Is Preparing to Strike Iran**\
-`American officials are trying to determine the source of the leak, which describes military drills and weapons placement, and how damaging it might be.`\
-https://nytimes.com/2024/10/19/us/politics/us-intelligence-israel-iran.html
-
-**Another QB change couldn't fix Michigan at Illinois. Big Ten teams are getting payback: Takeaways**\
-`Getting to 6-6 and qualifying for a bowl game is no longer a given for the reigning national champions.`\
-https://nytimes.com/athletic/5855597/2024/10/19/michigan-illinois-big-ten-takeaways/
-
-**Patriots vs. Jaguars odds, picks, how to watch: Is second time the charm for Jags in London?**\
-`The Jaguars face a new-look Patriots in London with Drake Maye starting his second game of the season. `\
-https://nytimes.com/athletic/5850846/2024/10/19/patriots-jaguars-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Notre Dame takeaways: Irish slow down Georgia Tech's rushing attack, cruise to easy win**\
-`The Jackets rushed for 616 yards in recent wins over Duke and North Carolina. They managed only 64 on Saturday afternoon.`\
-https://nytimes.com/athletic/5855499/2024/10/19/notre-dame-georgia-tech-riley-leonard-defense/
 
