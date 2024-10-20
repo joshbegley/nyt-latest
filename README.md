@@ -1,3 +1,11 @@
+**'We're not going to wait forever': CHSN boss says Comcast hasn't made any offers**\
+`Jason Coyle, president of CHSN, said on Saturday that there have been no offers from Comcast whatsoever.`\
+https://nytimes.com/athletic/5855700/2024/10/19/chsn-comcast-tv-blackhawks/
+
+**Should Jalen Milroe enter 2025 NFL Draft, or would he benefit from a return to Alabama?**\
+`Milroe's season of up-and-down performances continued Saturday in Alabama's loss at Tennessee`\
+https://nytimes.com/athletic/5855726/2024/10/19/jalen-milroe-nfl-draft-2025-scouting/
+
 **Tennessee comes alive to spark SEC hope, put Alabama Playoff chances in peril: Takeaways**\
 `No. 11 Tennessee topped No. 7 Alabama 24-17 behind a second-half surge that puts Alabama on the College Football Playoff bubble already.`\
 https://nytimes.com/athletic/5855555/2024/10/19/alabama-tennessee-football-score-results-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5855499/2024/10/19/notre-dame-georgia-tech-riley-le
 **Triple Features**\
 `Jerry Miccolis’s blockbuster Sunday puzzle is actually a sequel.`\
 https://nytimes.com/2024/10/19/crosswords/daily-puzzle-2024-10-20.html
-
-**Titans' Rudolph to start vs. Bills as Levis is sidelined with injury**\
-`Levis injured his right throwing shoulder diving for a first down against the Dolphins on Sept. 30.`\
-https://nytimes.com/athletic/5855518/2024/10/19/will-levis-mason-rudolph-titans-quarterback-inactive/
-
-**Fighting Rages in Gaza and Lebanon, Despite Killing of Hamas Leader**\
-`Peace talks were nowhere in sight and, despite Yahya Sinwar’s death, the violence seemed only to increase, as Israel struck northern Gaza and Hezbollah fired dozens of projectiles.`\
-https://nytimes.com/2024/10/19/world/middleeast/gaza-lebanon-hamas-hezbollah-israel-netanyahu.html
 
