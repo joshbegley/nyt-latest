@@ -1,3 +1,7 @@
+**Browns QB Deshaun Watson believed to have torn Achilles: Source**\
+`Watson, 29, is in his third season with Cleveland after signing a five-year, $230 million fully guaranteed deal with the Browns in 2022.`\
+https://nytimes.com/athletic/5857440/2024/10/20/browns-deshaun-watson-injury-update/
+
 **Welbeck aiming for quick return after sustaining back injury**\
 `Brighton &amp; Hove Albion forward Danny Welbeck says he &#8220;should be back in training soon&#8221; after sustaining a back injury in his side&#8217;s 1-0 win over Newcastle United.`\
 https://nytimes.com/athletic/5856533/2024/10/20/danny-welbeck-injury-brighton-update/
