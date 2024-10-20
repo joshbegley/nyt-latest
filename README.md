@@ -1,3 +1,15 @@
+**Saquon Barkley, Eagles' defense dominate Giants in 28-3 win: Takeaways**\
+`Philadelphia sacked Giants QB Daniel Jones seven times and held New York to only 119 yards on offense.`\
+https://nytimes.com/athletic/5857057/2024/10/20/eagles-giants-takeaways-result/
+
+**Packers knock off Texans 24-22 on last second field goal: Takeaways**\
+`McManus' field goal came less than two minutes after Texans kicker Ka'imi Fairburn hit a go-ahead kick to put the Texans ahead 22-21.`\
+https://nytimes.com/athletic/5857026/2024/10/20/texans-packers-takeaways-result/
+
+**A Swing District in Red Nebraska Hosts a Hotly Contested House Race**\
+`Tony Vargas, a Democrat vying to become the state’s first Latino representative, lost to Don Bacon, the Republican incumbent, in 2022. But the presidential election could help him in his rematch.`\
+https://nytimes.com/2024/10/20/us/politics/nebraska-walz-tony-vargas.html
+
 **Patriots' Jerod Mayo calls team 'soft,' seems out of answers as losing streak continues**\
 `The Patriots didn't just lose their sixth straight game. Their head coach called the whole team soft after a bad 32-16 loss to the Jaguars.`\
 https://nytimes.com/athletic/5857481/2024/10/20/patriots-loss-mayo-soft-comments/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5856533/2024/10/20/danny-welbeck-injury-brighton-up
 **Maresca states Chelsea 'not happy' after Liverpool defeat**\
 `Enzo Maresca says Chelsea &#8220;are not happy&#8221; with their 2-1 defeat to Liverpool at Anfield, emphasising that his side &#8220;don’t like losing games&#8221; and felt they controlled much of the match.`\
 https://nytimes.com/athletic/5857420/2024/10/20/enzo-maresca-chelsea-liverpool/
-
-**Confronted With Facts on Fox News, Trump Claims Ignorance**\
-`In an interview that aired Sunday, Donald Trump defended his recent falsehoods about immigrants and the Capitol riot by claiming, implausibly, that he did not know or had “not heard” the truth.`\
-https://nytimes.com/2024/10/20/us/politics/trump-fox-news-jan-6-haitians.html
-
-**Browns QB Deshaun Watson believed to have torn Achilles: Source**\
-`Watson, 29, is in his third season with Cleveland after signing a five-year, $230 million fully guaranteed deal with the Browns in 2022.`\
-https://nytimes.com/athletic/5857440/2024/10/20/browns-deshaun-watson-injury-update/
-
-**AP Top 25: Oregon new No. 1; Vandy ends poll drought**\
-`Oregon became the fourth team to ascend to No. 1 in the AP Top 25 poll this season, topping Georgia, Penn State, Ohio State and Texas.`\
-https://nytimes.com/athletic/5857295/2024/10/20/ap-top-25-rankings-oregon-georgia-alabama/
 
