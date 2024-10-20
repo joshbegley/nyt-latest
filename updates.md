@@ -1,3 +1,7 @@
+**West Ham self-destruct and expose deep-rooted issues**\
+`Julen Lopetegui has asked to be judged at the end of the season, but will the West Ham boss be given that time after a slow start? `\
+https://nytimes.com/athletic/5854771/2024/10/20/west-ham-self-destruct-tottenham/
+
 **Here’s the latest on the presidential race.**\
 `Former President Donald J. Trump is heading to Pennsylvania, while Vice President Kamala Harris will sit down with the Rev. Al Sharpton for an interview on MSNBC on her 60th birthday.`\
 https://nytimes.com/live/2024/10/20/us/harris-trump-election/heres-the-latest-on-the-presidential-race
