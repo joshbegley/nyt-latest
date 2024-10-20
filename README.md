@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5850919/2024/10/19/seahawks-falcons-odds-picks-how-
 `It matters a lot how the Blackhawks develop their younger players. And they’re doing a terrible job of it with Reichel.`\
 https://nytimes.com/athletic/5855992/2024/10/19/blackhawks-lukas-reichel-development/
 
-**Kalen DeBoer's Alabama program lacks the discipline, mystique of the Nick Saban era**\
+**Rexrode: Kalen DeBoer's Alabama program lacks the discipline, mystique of Nick Saban era**\
 `Welcome to life with everyone else, Crimson Tide fans. You’re still flying first class, of course. But you’re just another good team.`\
 https://nytimes.com/athletic/5856027/2024/10/19/alabama-tennessee-kalen-deboer/
 
