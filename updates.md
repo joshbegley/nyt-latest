@@ -1,3 +1,7 @@
+**Raiders vs. Rams odds, expert picks, how to watch: A duel between rebuilding squads**\
+`The Raiders travel to Los Angeles to face the Rams in a matchup between two teams with only one win. `\
+https://nytimes.com/athletic/5851052/2024/10/20/raiders-rams-odds-picks-how-to-watch-betting/
+
 **How Manchester United got 'mad' - and back to winning ways**\
 `Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's United wrote their own tale`\
 https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
