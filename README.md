@@ -1,3 +1,11 @@
+**Tugged Between East and West, Moldova Makes a Pivotal Choice**\
+`Moldovans are voting on whether to enshrine in their Constitution an “irreversible” commitment to abandon Russian influence and one day join the E.U.`\
+https://nytimes.com/2024/10/20/world/europe/moldova-election-russia-eu.html
+
+**How Manchester United got 'mad' and back to winning ways**\
+`Using a perceived injustice over Brentford's opening goal as fuel, Erik ten Hag's Manchester United wrote their own tale`\
+https://nytimes.com/athletic/5855537/2024/10/20/manchester-united-ten-hag-brentford-de-ligt/
+
 **In Arsenal's quest for perfection, the small errors carry big consequences**\
 `Two lapses of concentration proved crucial in Arsenal's first defeat of the season. Their low points continue to be of their own making`\
 https://nytimes.com/athletic/5855342/2024/10/20/arsenal-bournemouth-saliba-kiwior-arteta/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/20/crosswords/spelling-bee-forum.html
 **What’s immediately next for Yankees as they await World Series: ‘Chance to reset’**\
 `The team will have a full off day Sunday before reopening the stadium to players on Monday.`\
 https://nytimes.com/athletic/5856373/2024/10/20/yankees-world-series-reset/
-
-**‘Saturday Night Live’ Welcomes Back Alec Baldwin**\
-`The longtime friend of “S.N.L.” made his first appearance on the show since an involuntary manslaughter case against him was dismissed. Michael Keaton was the host.`\
-https://nytimes.com/2024/10/20/arts/television/saturday-night-live.html
-
-**No. 9 Iowa State rallies to beat UCF, remain undefeated**\
-`Iowa State quarterback Rocco Becht scored a game-winning one-yard run to cap an 11-play, 80-yard drive.`\
-https://nytimes.com/athletic/5856238/2024/10/20/iowa-state-ucf-score-takeaways/
 
