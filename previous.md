@@ -1,3 +1,7 @@
+**For Trump, a Lifetime of Scandals Heads Toward a Moment of Judgment**\
+`No major party presidential candidate, much less president, in American history has been accused of wrongdoing so many times.`\
+https://nytimes.com/2024/10/20/us/politics/trump-scandals.html
+
 **Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
 `Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
 https://nytimes.com/athletic/5846218/2024/10/20/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5856542/2024/10/20/georgia-texas-alabama-tennessee-
 **Who's the Yankees' best matchup in the World Series: Dodgers or Mets?**\
 `Both would be formidable opponents, but there are pros and cons to facing each team. `\
 https://nytimes.com/athletic/5855927/2024/10/20/yankees-world-series-dodgers-mets/
-
-**Celta Vigo 1 Real Madrid 2: Mbappe scores again, Ancelotti's admission and Modric makes history**\
-`Mario Cortegana breaks down the main talking points from Real Madrid's 2-1 win over Celta Vigo`\
-https://nytimes.com/athletic/5855674/2024/10/20/celta-vigo-real-madrid-mbappe-ancelotti-modric/
 

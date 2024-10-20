@@ -1,3 +1,7 @@
+**For Trump, a Lifetime of Scandals Heads Toward a Moment of Judgment**\
+`No major party presidential candidate, much less president, in American history has been accused of wrongdoing so many times.`\
+https://nytimes.com/2024/10/20/us/politics/trump-scandals.html
+
 **Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
 `Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
 https://nytimes.com/athletic/5846218/2024/10/20/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
