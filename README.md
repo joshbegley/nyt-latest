@@ -1,3 +1,7 @@
+**Liz Cheney Campaigns for Harris**\
+`Appearing side by side at a campaign event in Michigan, the Republican former congresswoman expressed her support for Vice President Kamala Harris.`\
+https://nytimes.com/video/us/elections/100000009774584/liz-cheney-harris.html
+
 **Raiders sign QB Desmond Ridder: Could he be an option to start?**\
 `Raiders lost Aidan O'Connell to injury in Week 7 and Gardner Minshew has underwhelmed as the new QB1.`\
 https://nytimes.com/athletic/5862113/2024/10/21/raiders-sign-desmond-ridder/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/well/what-is-pink-cocaine.html
 **U.S. Tries to End War in Lebanon That Biden Envoy Calls ‘Out of Control’**\
 `Israel and Hezbollah say they will keep up attacks in an escalating conflict that has devastated Gaza, is causing misery in Lebanon and could draw Iran deeper into the fighting.`\
 https://nytimes.com/2024/10/21/world/middleeast/us-israel-hezbollah-lebanon.html
-
-**What Lincoln Can Tell Us About MAGA**\
-`It’s hard to compromise with those who consider any criticism a threat.`\
-https://nytimes.com/2024/10/21/opinion/trump-lincoln-arnold-palmer.html
 
