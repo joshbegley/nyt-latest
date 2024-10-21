@@ -1,7 +1,3 @@
-**Giants' lifeless effort vs. Eagles calls everything into question — QB, coach, all of it**\
-`The Giants have scored one touchdown in four home games this season. They’ve averaged 7.8 points in their four losses at MetLife Stadium.`\
-https://nytimes.com/athletic/5858198/2024/10/20/giants-lifeless-loss-eagles-daboll-daniel-jones/
-
 **The devil's in the details, and Vikings come up short vs. Lions as a result**\
 `The Vikings nearly came back to defeat a talented Lions team, but small, niggling mistakes ruined their chance at a signature win.`\
 https://nytimes.com/athletic/5858338/2024/10/20/vikings-loss-offense-mistakes-penalties/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5858327/2024/10/20/rams-cooper-kupp-injury-update-v
 **Yohe's 10 observations: Penguins' defensive futility strikes again in loss to Jets**\
 `The Penguins produced another defensive dud in a 6-3 loss to the Jets on Sunday in Winnipeg.`\
 https://nytimes.com/athletic/5857885/2024/10/20/penguins-defensive-futility-nedeljkovic-jets/
+
+**This Is the Case of Henry Dee**\
+`Listening in on one case before a parole board.`\
+https://nytimes.com/2024/10/20/podcasts/this-is-the-case-of-henry-dee-this-american-life-nyt-audio.html
 
