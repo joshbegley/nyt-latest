@@ -1,3 +1,7 @@
+**Dave Roberts kept the Dodgers' train on the tracks and got back to the World Series**\
+`Teoscar Hernández said said “one meeting changed everything" and symbolized Roberts' ability to press the right buttons.`\
+https://nytimes.com/athletic/5859549/2024/10/21/dodgers-dave-roberts-world-series/
+
 **Minnesota coach Cheryl Reeve says series 'stolen' after poor officiating in WNBA Finals loss to Liberty**\
 `Controversial calls that shaped the games were common throughout the finals, leaving both coaches crying foul. `\
 https://nytimes.com/athletic/5859561/2024/10/21/wnba-finals-officiating-lynx-liberty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5859438/2024/10/21/mets-season-ends-loss-dodgers-nl
 **Tommy Edman completes Dodgers roster, captures NLCS MVP: ‘The ultimate professional’**\
 `Before acquiring Tommy Edman at the trade deadline, the Dodgers had sought after him for years. That pursuit paid off big in the NLCS.`\
 https://nytimes.com/athletic/5859441/2024/10/21/tommy-edman-dodgers-nlcs-mvp/
-
-**Was this Pete Alonso's final game with Mets? 'We’d love to see him back'**\
-`Alonso’s free agency creates a fascinating situation for Mets president of baseball operations David Stearns.`\
-https://nytimes.com/athletic/5859464/2024/10/21/mets-pete-alonso-future-free-agency/
 

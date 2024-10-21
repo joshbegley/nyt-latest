@@ -1,3 +1,7 @@
+**Dave Roberts kept the Dodgers' train on the tracks and got back to the World Series**\
+`Teoscar Hernández said said “one meeting changed everything" and symbolized Roberts' ability to press the right buttons.`\
+https://nytimes.com/athletic/5859549/2024/10/21/dodgers-dave-roberts-world-series/
+
 **Minnesota coach Cheryl Reeve says series 'stolen' after poor officiating in WNBA Finals loss to Liberty**\
 `Controversial calls that shaped the games were common throughout the finals, leaving both coaches crying foul. `\
 https://nytimes.com/athletic/5859561/2024/10/21/wnba-finals-officiating-lynx-liberty/
