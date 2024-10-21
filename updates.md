@@ -1,3 +1,15 @@
+**The tragedy of Matija Sarkic - and what Millwall did next**\
+`The inside story of how the Championship club dealt with the trauma of their popular goalkeeper dying suddenly this summer at age 26`\
+https://nytimes.com/athletic/5849788/2024/10/21/matija-sarkic-millwall-legacy/
+
+**Charlie Williams: The Black footballer who became a comedian**\
+`Williams stood out as a Black footballer and a Black comedian. He broke barriers, but his race-based jokes were firmly of their time`\
+https://nytimes.com/athletic/5851965/2024/10/21/charlie-williams-doncaster-footballer-comedy/
+
+**Real Madrid, Borussia Dortmund and building on a Champions League final appearance**\
+`The Athletic looks at the Champions League finalists from 2019 to 2023 to gauge how their teams evolved over the campaign that followed`\
+https://nytimes.com/athletic/5852965/2024/10/21/real-madrid-borussia-dortmund-champions-league-finalists/
+
 **Fantasy football Week 7 takeaways: Brock Bowers is sitting pretty, Stefon Diggs is washed and more**\
 `Michael Salfino offers observations from Week 7, including a belief that life after the Davante Adams trade will be sweet for Brock Bowers.`\
 https://nytimes.com/athletic/5858680/2024/10/21/fantasy-football-week-7-takeaways-bowers-diggs/
