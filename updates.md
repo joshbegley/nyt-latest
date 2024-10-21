@@ -1,3 +1,15 @@
+**Weekend NHL rankings: Five early-season storylines I don’t believe in (yet)**\
+`Enough games to have narratives! But is it still too early in the season to believe them? Absolutely.`\
+https://nytimes.com/athletic/5858194/2024/10/21/nhl-weekend-rankings-early-season-storylines/
+
+**Indigenous Senator Heckles King Charles During Australia Visit**\
+`King Charles III and Queen Camilla of Britain were attending a parliamentary reception in Canberra on Monday when senator Lidia Thorpe, an activist for Aboriginal rights who has long campaigned against the British monarchy, disrupted the event.`\
+https://nytimes.com/video/world/australia/100000009772864/king-charles-australia-parliament-lidia-thorpe.html
+
+**Saka could return for Arsenal against Shakhtar Donetsk: 'Let's see how he feels'**\
+`Arsenal forward Bukayo Saka could be fit for Arsenal&#8217;s Champions League game against Shakhtar Donetsk on Tuesday.`\
+https://nytimes.com/athletic/5856804/2024/10/21/bukayo-saka-injury-arsenal-update/
+
 **Yankees vs. Dodgers: Get ready for an 'epic' World Series with so much to savor**\
 `They play a World Series every year. But a World Series like this one comes around about as often as Halley’s Comet.`\
 https://nytimes.com/athletic/5859658/2024/10/21/world-series-2024-yankees-dodgers/
