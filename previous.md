@@ -1,3 +1,7 @@
+**After 43 Years, Yankees and Dodgers Resume Their World Series Rivalry**\
+`Even as the sport and the country have changed, the rivalry has produced some of baseball’s most memorable moments.`\
+https://nytimes.com/2024/10/21/sports/baseball/yankees-dodgers-world-series.html
+
 **Here are the latest developments.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5851182/2024/10/21/chargers-cardinals-odds-picks-ho
 **Big 12, ACC should relish multiple bids if they get them: College Football Playoff Bubble Watch**\
 `Big 12 and ACC teams seeking at-large bids are likely going to have to leave no doubt.`\
 https://nytimes.com/athletic/5857752/2024/10/21/college-football-playoff-bubble-watch-big-12-acc/
-
-**Fethullah Gulen, Turkish Cleric and Erdogan Rival, Dies at 83**\
-`Mr. Gulen, who lived in self-imposed exile in the United States, was accused of plotting a failed coup against President Recep Tayyip Erdogan of Turkey in 2016.`\
-https://nytimes.com/2024/10/21/world/europe/fethullah-gulen-dead.html
 

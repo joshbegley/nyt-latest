@@ -1,3 +1,7 @@
+**After 43 Years, Yankees and Dodgers Resume Their World Series Rivalry**\
+`Even as the sport and the country have changed, the rivalry has produced some of baseball’s most memorable moments.`\
+https://nytimes.com/2024/10/21/sports/baseball/yankees-dodgers-world-series.html
+
 **Here are the latest developments.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/here-are-the-latest-developments
