@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5858730/2024/10/20/carolina-panthers-bad-loss-trade
 `A fascinating Broadway revival of the bombastic 1994 musical blows it up even further.`\
 https://nytimes.com/2024/10/20/theater/sunset-boulevard-review.html
 
-**Why Sunday's loss could lead to Raiders pushing the desperation button at QB**\
+**Why Sunday's loss could lead to Raiders' pushing the desperation button at QB**\
 `There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
 https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
 
