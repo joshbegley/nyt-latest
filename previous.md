@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: Guhle’s injury, Evans and Armia are PK perfect and more**\
+`Also in this week's notebook, Cole Caufield has found his sharp-angle touch, Lane Hutson lacks performance anxiety, and a look at Laval.`\
+https://nytimes.com/athletic/5859483/2024/10/21/canadiens-kaiden-guhle-injury/
+
 **Vietnam Revives Power-Sharing Arrangement With New President**\
 `The move restores a “four pillar” government structure that divides top-level duties to avoid the rise of a single strongman.`\
 https://nytimes.com/2024/10/21/world/asia/vietnam-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5859545/2024/10/21/steelers-russell-wilson-debut-wi
 **Size, skating and stick: Video breakdown of Broberg's fast start with Blues**\
 `New Blues defenseman Philip Broberg has a point in each of his first six games and hasn't been on the ice for an even-strength goal against.`\
 https://nytimes.com/athletic/5857188/2024/10/21/blues-philip-broberg-video-breakdown/
-
-**Inside the Chargers' run defense turnaround: Connecting the 'what' with the 'how'**\
-`The Chargers under Brandon Staley were among the NFL's worst run-defending teams. They've been the best so far this season.`\
-https://nytimes.com/athletic/5856400/2024/10/21/chargers-run-defense-turnaround-jesse-minter/
 

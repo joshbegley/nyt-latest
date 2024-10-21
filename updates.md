@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: Guhle’s injury, Evans and Armia are PK perfect and more**\
+`Also in this week's notebook, Cole Caufield has found his sharp-angle touch, Lane Hutson lacks performance anxiety, and a look at Laval.`\
+https://nytimes.com/athletic/5859483/2024/10/21/canadiens-kaiden-guhle-injury/
+
 **Vietnam Revives Power-Sharing Arrangement With New President**\
 `The move restores a “four pillar” government structure that divides top-level duties to avoid the rise of a single strongman.`\
 https://nytimes.com/2024/10/21/world/asia/vietnam-president.html
