@@ -2,7 +2,7 @@
 `Plus, what to expect from Dalton Kincaid and Ray Davis moving forward.`\
 https://nytimes.com/athletic/5858264/2024/10/20/bills-win-titans-amari-cooper-debut-observations/
 
-**What's Browns plan at QB after Deshaun Watson injury? Answers murky for present and future**\
+**What's Browns' plan at QB after Deshaun Watson injury? Answers murky for present and future**\
 `Cleveland must choose between Jameis Winston or Dorian Thompson-Robinson with Watson likely out for the season with an Achilles injury. `\
 https://nytimes.com/athletic/5858183/2024/10/20/browns-quarterbacks-deshaun-watson-injury-jameis-winston/
 
