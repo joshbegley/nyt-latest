@@ -1,3 +1,11 @@
+**Life Without Sickle Cell Beckons Boy Who Completed Gene Therapy**\
+`After 44 days, Kendric Cromer, 12, left the hospital. While his family feels fortunate that he was the first to receive a treatment, their difficult experiences hint at what others will be up against.`\
+https://nytimes.com/2024/10/21/health/sickle-cell-disease-gene-therapy-patient.html
+
+**D.C. mayor introduces bill to renovate Capital One Arena**\
+`The new agreement, if passed by the city council, would also extend the Capital One Arena lease until 2050. `\
+https://nytimes.com/athletic/5860200/2024/10/21/capital-one-arena-lease-leonsis-bowser/
+
 **Chappell Roan’s Rocket-Ship Year**\
 `The pop star’s ascent has tested the boundaries of contemporary pop, and may create a template for a next generation.`\
 https://nytimes.com/2024/10/21/arts/music/popcast-chappell-roan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/21/world/middleeast/sinwar-dead-palestinian-state.ht
 **Disney Says It Will Hire a New C.E.O. in ‘Early 2026’**\
 `In a board shake-up, James Gorman, a director in charge of planning for a successor to the chief executive, Robert A. Iger, will become chairman on Jan. 2, 2025.`\
 https://nytimes.com/2024/10/21/business/disney-ceo-succession-james-gorman-chairman.html
-
-**Asian football federation accused of 'unequal treatment' after moving games from Iran**\
-`The Asian Football Confederation (AFC) has rescheduled matches across its tournaments due to the security situation in Iran — weeks after Indian club Mohun Bagan Super Giants were “withdrawn” from AFC competitions after refusing to play in the nation.`\
-https://nytimes.com/athletic/5859770/2024/10/21/iran-security-travel-afc-champions-league/
-
-**Dodgers vs. Yankees World Series preview: Predictions, pitching matchups and more**\
-`Our writers preview a World Series matchup between two of baseball's most storied franchises, with no shortage of star power and storylines.`\
-https://nytimes.com/athletic/5858593/2024/10/21/dodgers-yankees-2024-world-series-preview-predictions/
 
