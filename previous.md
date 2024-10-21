@@ -1,40 +1,40 @@
-**Biden to Propose That Insurers Cover Over-the-Counter Birth Control**\
-`The new rules under the Affordable Care Act would include emergency contraception, a newly approved nonprescription birth control pill, spermicides and condoms.`\
-https://nytimes.com/2024/10/21/us/politics/biden-harris-birth-control-rules.html
+**Fethullah Gulen, Turkish Cleric and Erdogan Rival, Dies at 83**\
+`Mr. Gulen, who lived in self-imposed exile in the United States, was accused of plotting a failed coup against President Recep Tayyip Erdogan of Turkey in 2016.`\
+https://nytimes.com/2024/10/21/world/europe/fethullah-gulen-dead.html
 
-**Scientists Are Mapping Landslide Risk in Alaska. Some Homeowners Don’t Want to Know.**\
-`Deadly landslides are increasing around the world. But in parts of Alaska, maps of the hazards remain controversial.`\
-https://nytimes.com/2024/10/21/climate/landslide-risk-alaska-maps.html
+**Rodrigue: Rams defense is finding its identity while offense is losing its way**\
+`Sean McVay is pleased with the "trajectory" of the Rams' defense. It produced a touchdown for the second consecutive game.`\
+https://nytimes.com/athletic/5858710/2024/10/21/rams-defense-strong-offense-struggles/
 
-**Should We Be More Concerned About the Growing Use of Marijuana?**\
-`Cannabis is now legal in much of the United States. As its use increases, so do its harms. Is that a problem?`\
-https://nytimes.com/2024/10/21/learning/marijuana-use-concerns.html
+**Meet the Florida Billionaire Who Wants to Be a Newspaper Baron**\
+`David Hoffmann has already bought 5 percent of one of America’s largest newspaper companies. Now, he wants to control the whole thing.`\
+https://nytimes.com/2024/10/21/business/media/david-hoffmann-local-newspapers.html
 
-**5 Books to Help You Understand the Economy Before Voting**\
-`The brightest minds explore the issue at every level, from the levers that control inflation to the best way to achieve work-life balance.`\
-https://nytimes.com/2024/10/21/books/review/economics-business-books.html
+**Why Are Hospital Gowns So Ugly?**\
+`Curious why medical patient attire is so unflattering, a reader asks our fashion critic if it’s intentional.`\
+https://nytimes.com/2024/10/21/style/hospital-gown.html
 
-**Who’s Afraid of William Shakespeare?**\
-`We will always need the works of the Bard, especially in moments of conflict and unrest.`\
-https://nytimes.com/2024/10/21/opinion/william-shakespeare-bard-politics.html
+**Why Trump’s Chances Are Better Than They Look**\
+`For many undecided voters, the inflation issue isn’t going away.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-chances-tipsheet
 
-**An Exile Revisits the Squalor and Grandeur of 1960s Italy**\
-`Recounting the time his family spent in a former Italian brothel, André Aciman’s new memoir, “Roman Year,” picks up where 1994’s “Out of Egypt” left off.`\
-https://nytimes.com/2024/10/21/books/review/andre-aciman-roman-year.html
+**State of the Race: A Slight Shift Toward Trump but Still No Clear Favorite**\
+`The polls are not precise enough for a 0.2-point edge to convey meaningful information.`\
+https://nytimes.com/2024/10/21/upshot/trump-harris-polls-election.html
 
-**A Cheapskate in Manhattan**\
-`Pop-up art, cheap theater tickets, Chinese food and a well-situated, if noisy, hotel: How to see Manhattan (and a bit of Brooklyn) on a budget.`\
-https://nytimes.com/2024/10/21/travel/new-york-budget-travel.html
+**Events That Led to Close Call on Trump’s Life Were Preventable, Committee Finds**\
+`A House task force report included detailed accounts from law enforcement at the Butler, Pa., rally, including an officer who confronted the gunman.`\
+https://nytimes.com/2024/10/21/us/politics/secret-service-trump-butler-house-report.html
 
-**How Can I Slash Halloween Waste?**\
-`We’ve got tips to make the holiday more sustainable, and maybe more fun, too.`\
-https://nytimes.com/2024/10/21/climate/cut-halloween-waste-tips.html
+**Trump, Harris and the Enduring Symbolism of McDonald’s**\
+`McDonald’s tells a story about what both candidates think is possible for working people.`\
+https://nytimes.com/2024/10/21/opinion/trump-harris-mcdonalds.html
 
-**As Knicks start most anticipated season in decades, fans reflect on journey to this point**\
-`Three Knicks fans share their journey over the last 20-plus years.`\
-https://nytimes.com/athletic/5844737/2024/10/21/knicks-fans-nba-season-start/
+**A Writer Sees Leniency in the Supreme Court’s Approach to Public Corruption**\
+`A Georgetown law professor argues that five rulings by the justices in recent years have allowed behavior that is “sketchy as hell” and meant to make the judiciary look good by contrast.`\
+https://nytimes.com/2024/10/21/us/politics/supreme-court-public-corruption.html
 
-**Do Hair Growth Supplements Work?**\
-`Online, videos abound of people saying the supplements make hair thicker, healthier and shinier. Do they really?`\
-https://nytimes.com/2024/10/21/well/do-hair-growth-supplements-work.html
+**In ‘Smile 2’ and ‘Trap,’ Pop Stardom Looks Pretty Terrifying**\
+`At a time when the business of being Taylor Swift or Beyoncé is booming, these films examine toxic fandom and what can seem like mass hysteria.`\
+https://nytimes.com/2024/10/21/movies/smile-2-trap-horror-movie-fandom.html
 
