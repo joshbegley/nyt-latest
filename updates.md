@@ -1,3 +1,7 @@
+**Cardinals add Jon Jay to coaching staff as Willie McGee changes roles**\
+`The St.`\
+https://nytimes.com/athletic/5861502/2024/10/21/stl-cardinals-hire-jon-jay-coaching-staff/
+
 **Olivia Nuzzi and New York Magazine Part Ways**\
 `Ms. Nuzzi, a political writer for the magazine, had been on leave since she disclosed a personal relationship with Robert F. Kennedy Jr. last month.`\
 https://nytimes.com/2024/10/21/business/media/olivia-nuzzi-rfk-jr-new-york-magazine.html
