@@ -1,3 +1,11 @@
+**Barcelona 5 Sevilla 1: Lewandowski scores again, Gavi's emotional return, classy Cubarsi**\
+`Barcelona protected their three-point lead at the top of La Liga with another emphatic victory on Sunday night`\
+https://nytimes.com/athletic/5858173/2024/10/21/barcelona-lewandowski-gavi-flick-sevilla-cubarsi-la-liga/
+
+**Mets' magic runs out a pair of wins away from the World Series**\
+`The Mets surrendered 46 runs over six games — more than any other National League team has ever surrendered in a series.`\
+https://nytimes.com/athletic/5859438/2024/10/21/mets-season-ends-loss-dodgers-nlcs/
+
 **Tommy Edman completes Dodgers roster, captures NLCS MVP: ‘The ultimate professional’**\
 `Before acquiring Tommy Edman at the trade deadline, the Dodgers had sought after him for years. That pursuit paid off big in the NLCS.`\
 https://nytimes.com/athletic/5859441/2024/10/21/tommy-edman-dodgers-nlcs-mvp/
