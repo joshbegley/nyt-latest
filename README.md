@@ -1,3 +1,11 @@
+**The Captain Jack Sparrow of Baking**\
+`A breakout contestant on “The Great British Baking Show” is drawing style comparisons to characters from “Pirates of the Caribbean,” “The Princess Bride” and more.`\
+https://nytimes.com/2024/10/21/style/dylan-bachelet-great-british-baking-show.html
+
+**What We Know About the Gangway Collapse That Killed 7 in Georgia**\
+`Disaster struck at the end of an annual cultural celebration on Sapelo Island. Twenty people went into the water, including seven people over the age of 70 who died.`\
+https://nytimes.com/2024/10/21/us/gangway-collapse-georgia-sapelo-island.html
+
 **US Grand Prix: Submit your questions for our F1 mailbag**\
 `We're sure you've got plenty of questions for our F1 writers after an intriguing U.S. GP weekend. `\
 https://nytimes.com/athletic/5855753/2024/10/21/f1-mailbag-us-grand-prix/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/21/business/media/elon-musk-alcon-entertainment-robo
 **2025 WNBA power rankings: Who will be the best team next season? Liberty or Lynx?**\
 `Sabreena Merchant's WNBA power rankings for next season. `\
 https://nytimes.com/athletic/5860521/2024/10/21/wnba-power-rankings-2025-liberty/
-
-**College football Week 9 odds, schedule: Oregon, Texas, Penn State face quality opponents**\
-`College football teams are in the thick of conference play. There are five top-25 matchups in college football's Week 9 schedule.`\
-https://nytimes.com/athletic/5860433/2024/10/21/college-football-week-9-odds-schedule/
-
-**Why Severed Hands Are Haunting Contemporary Art**\
-`Painters and sculptors are exploring agency and femininity by depicting floating appendages.`\
-https://nytimes.com/2024/10/21/t-magazine/women-hands-art.html
 
