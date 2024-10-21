@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstapp
 `Kupp has not played since the Rams' Week 2 loss to the Arizona Cardinals.`\
 https://nytimes.com/athletic/5858327/2024/10/20/rams-cooper-kupp-injury-update-vikings/
 
-**Penguins' defensive futility strikes again in loss to Jets: Yohe's 10 observations**\
+**Yohe's 10 observations: Penguins' defensive futility strikes again in loss to Jets**\
 `The Penguins produced another defensive dud in a 6-3 loss to the Jets in Winnipeg on Sunday. `\
 https://nytimes.com/athletic/5857885/2024/10/20/penguins-defensive-futility-nedeljkovic-jets/
 
@@ -24,7 +24,7 @@ https://nytimes.com/2024/10/20/podcasts/this-is-the-case-of-henry-dee-this-ameri
 
 **How Aleksei Navalny’s Prison Diaries Got Published**\
 `In his posthumous memoir, compiled with help from his widow, Yulia Navalnaya, Navalny faced the fact that Vladimir Putin might succeed in silencing him. The book will keep “his legacy alive,” Navalnaya said.`\
-https://nytimes.com/2024/10/20/books/booksupdate/how-aleksei-navalnys-prison-diaries-got-published.html
+https://nytimes.com/2024/10/20/books/booksupdate/aleksei-navalny-memoir-prison-diaries.html
 
 **Brandon McManus brings Packers needed stability at kicker with game-winning field goal**\
 `The veteran's 45-yarder against the Texans gave the Packers a 24-22 walk-off win on Sunday at Lambeau Field.`\

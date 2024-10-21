@@ -1,3 +1,11 @@
+**Yohe's 10 observations: Penguins' defensive futility strikes again in loss to Jets**\
+`The Penguins produced another defensive dud in a 6-3 loss to the Jets in Winnipeg on Sunday. `\
+https://nytimes.com/athletic/5857885/2024/10/20/penguins-defensive-futility-nedeljkovic-jets/
+
+**How Aleksei Navalny’s Prison Diaries Got Published**\
+`In his posthumous memoir, compiled with help from his widow, Yulia Navalnaya, Navalny faced the fact that Vladimir Putin might succeed in silencing him. The book will keep “his legacy alive,” Navalnaya said.`\
+https://nytimes.com/2024/10/20/books/booksupdate/aleksei-navalny-memoir-prison-diaries.html
+
 **Welcome to John Mara's nightmare: Eagles' Saquon Barkley shreds Giants in return to MetLife**\
 `An embarrassing home loss to a hated rival spearheaded by the superstar his team let walk out the door — Mara just lived his nightmare.`\
 https://nytimes.com/athletic/5858214/2024/10/20/giants-nightmare-loss-saquon-barkley-eagles/
