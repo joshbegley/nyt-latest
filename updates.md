@@ -1,3 +1,7 @@
+**Giants CB Deonte Banks in crosshairs for lackluster effort yet again**\
+`Giants coach Brian Daboll said the team addressed the issue with Banks: “Obviously, we want maximum effort on every play."`\
+https://nytimes.com/athletic/5861195/2024/10/21/deonte-banks-giants-brian-daboll-effort/
+
 **Hawks sign Jalen Johnson to 5-year, $150 million rookie extension**\
 `One of Atlanta's big offseason decisions was whether or not to extend its best player nobody talks about, and that's Johnson.`\
 https://nytimes.com/athletic/5861956/2024/10/21/jalen-johnson-hawks-rookie-contract-extension/

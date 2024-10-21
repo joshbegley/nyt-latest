@@ -1,3 +1,7 @@
+**Giants CB Deonte Banks in crosshairs for lackluster effort yet again**\
+`Giants coach Brian Daboll said the team addressed the issue with Banks: “Obviously, we want maximum effort on every play."`\
+https://nytimes.com/athletic/5861195/2024/10/21/deonte-banks-giants-brian-daboll-effort/
+
 **Hawks sign Jalen Johnson to 5-year, $150 million rookie extension**\
 `One of Atlanta's big offseason decisions was whether or not to extend its best player nobody talks about, and that's Johnson.`\
 https://nytimes.com/athletic/5861956/2024/10/21/jalen-johnson-hawks-rookie-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5861500/2024/10/21/wnba-players-association-collect
 **Deaths of 3 Lebanese Soldiers Draw Apology From Israel and Show Complexity of Fight With Hezbollah**\
 `Lebanon’s army is not a party to the conflict between Israel and Hezbollah, but the fighting is taking place in its territory.`\
 https://nytimes.com/2024/10/21/world/middleeast/israel-kills-lebanese-army-soldiers.html
-
-**Wizards, Kispert agree to 4-year, $54 million extension: Source**\
-`The contract will include a team option for the fourth season, The Athletic learned from a league source.`\
-https://nytimes.com/athletic/5861734/2024/10/21/corey-kispert-wizards-contract-extension/
 
