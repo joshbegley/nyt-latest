@@ -1,3 +1,7 @@
+**Dock Collapse Kills Several in Georgia**\
+`Bystanders and rescue teams searched for victims after the gangway at a ferry dock in Sapelo Island collapsed into the water.`\
+https://nytimes.com/video/us/100000009772496/georgia-dock-collapse-sapelo-gulla-geechee.html
+
 **Dodgers topple Mets to capture pennant, Yankees up next: Takeaways**\
 `LOS ANGELES — Here are four takeaways from the Los Angeles Dodgers&#8217; 10-5 victory over the New York Mets in Game 6 of the NLCS.`\
 https://nytimes.com/athletic/5857309/2024/10/20/mets-dodgers-score-takeaways-mlb-playoffs-nlcs-2/

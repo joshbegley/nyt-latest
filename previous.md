@@ -1,3 +1,7 @@
+**Dock Collapse Kills Several in Georgia**\
+`Bystanders and rescue teams searched for victims after the gangway at a ferry dock in Sapelo Island collapsed into the water.`\
+https://nytimes.com/video/us/100000009772496/georgia-dock-collapse-sapelo-gulla-geechee.html
+
 **Dodgers topple Mets to capture pennant, Yankees up next: Takeaways**\
 `LOS ANGELES — Here are four takeaways from the Los Angeles Dodgers&#8217; 10-5 victory over the New York Mets in Game 6 of the NLCS.`\
 https://nytimes.com/athletic/5857309/2024/10/20/mets-dodgers-score-takeaways-mlb-playoffs-nlcs-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-wi
 **Liberty oust Lynx in OT of Game 5 to capture first-ever WNBA title**\
 `With the win, New York took home its first-ever title after having lost five prior appearances in the WNBA Finals.`\
 https://nytimes.com/athletic/5858357/2024/10/20/lynx-liberty-wnba-finals-game-5-results-takeaways/
-
-**Sunday's biggest play for the Commanders was keeping injured Jayden Daniels off the field**\
-`Unlike RGIII in 2013, Washington's coaches and management decided to keep the injured star QB on the bench.`\
-https://nytimes.com/athletic/5857524/2024/10/20/commanders-jayden-daniels-aldridge-column/
 
