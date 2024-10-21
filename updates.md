@@ -1,3 +1,15 @@
+**Japanese American leaders criticize Trump for Jan. 6 comparison.**\
+`By Amy Qin`\
+https://nytimes.com/live/2024/10/21/us/harris-trump-election/japanese-american-leaders-criticize-trump-for-jan-6-comparison
+
+**Harris Wants Moderate Republicans to Back Her. Are They Out There?**\
+`It’s an unusual effort that reflects just how close the race is.`\
+https://nytimes.com/2024/10/21/us/politics/harris-republican-voters.html
+
+**Settler activists, encouraged by Israel’s far right, meet at the Gaza border for the Jewish holiday of Sukkot.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/settler-activists-encouraged-by-israels-far-right-meet-at-the-gaza-border-for-the-jewish-holiday-of-sukkot
+
 **Full Time: A look at the NWSL playoff picture**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5862078/2024/10/21/kelley-ohara-nwsl-playoffs-full-time/
