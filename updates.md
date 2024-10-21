@@ -1,3 +1,7 @@
+**What Is Al-Qard al-Hasan, the Hezbollah-Linked Finance Group Targeted by Israel?**\
+`The de facto bank is the largest microcredit organization in a country where the traditional banking sector is in shambles.`\
+https://nytimes.com/2024/10/21/world/middleeast/israel-lebanon-hezbollah-bank.html
+
 **Could Barcelona really face Atletico Madrid in Miami this year?**\
 `Our team of writers from across the U.S. and Europe explain the likelihood of a La Liga match taking place in Miami this year`\
 https://nytimes.com/athletic/5861061/2024/10/21/barcelona-atletico-madrid-miami/

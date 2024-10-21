@@ -1,3 +1,7 @@
+**Bill Belichick 'kind of hurt' after Jerod Mayo calls Patriots 'soft'**\
+`Belichick pointed out on Monday that many members of this year's squad played for him last year and said that "they'll strap it up and go."`\
+https://nytimes.com/athletic/5861405/2024/10/21/bill-belichick-patriots-soft/
+
 **What Is Al-Qard al-Hasan, the Hezbollah-Linked Finance Group Targeted by Israel?**\
 `The de facto bank is the largest microcredit organization in a country where the traditional banking sector is in shambles.`\
 https://nytimes.com/2024/10/21/world/middleeast/israel-lebanon-hezbollah-bank.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5861295/2024/10/21/commanders-jayden-daniels-rib-in
 **Trump Says He Has Seen No Evidence of Cheating in the Election, but Nonetheless Sows Doubts**\
 `The former president, asked at a news conference in storm-damaged North Carolina if he had seen anything to suggest the election would be unfair, said, “I have not seen that.”`\
 https://nytimes.com/2024/10/21/us/politics/trump-north-carolina-presser.html
-
-**Neymar makes return after 12 months out injured: 'I'm so happy'**\
-`Neymar made his return after 12 months out through injury when he appeared as a substitute for Al Hilal in their AFC Champions League game against Al-Ain on Monday.`\
-https://nytimes.com/athletic/5861334/2024/10/21/neymar-injury-al-hilal-return/
 
