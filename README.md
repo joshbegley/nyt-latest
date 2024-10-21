@@ -1,3 +1,15 @@
+**With big tests coming, Wild hope their thumpers can get into more of a 'rhythm'**\
+`Marcus Foligno and Yakov Trenin were supposed to help the Wild regain a hard-nosed identity but have only 27 combined hits in five games.`\
+https://nytimes.com/athletic/5861723/2024/10/21/wild-marcus-foligno-yakov-trenin-rhythm/
+
+**Republican Official in Arizona Pleads Guilty in Election Certification Case**\
+`Peggy Judd, a county supervisor in Cochise County, a hotbed of election conspiracy theories, had tried to delay certifying the 2022 election results.`\
+https://nytimes.com/2024/10/21/us/politics/arizona-election-certification-guilty-plea.html
+
+**Bruce Feldman's Southern Miss coaching candidates: Who could be next for the Eagles?**\
+`Who's in the mix to be Southern Miss' next head coach? Where the Eagles turn from here will be interesting.`\
+https://nytimes.com/athletic/5861812/2024/10/21/southern-miss-coaching-search-candidates/
+
 **DK Metcalf 'week to week' with knee injury**\
 `The second-leading receiver in the NFL, Metcalf was carted to the locker room late in Sunday's win over the Falcons.`\
 https://nytimes.com/athletic/5861798/2024/10/21/dk-metcalf-injury-seahawks/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5861734/2024/10/21/corey-kispert-wizards-contract-e
 **A Nationwide Blackout, Now a Hurricane. How Much Can Cuba Endure?**\
 `The repeated failure of the power grid and a hurricane that has swamped the island’s eastern end has many Cubans fed up, posing a challenge to the Communist government.`\
 https://nytimes.com/2024/10/21/world/americas/cuba-blackout-hurricane-oscar.html
-
-**What does the Blues' multiyear deal with Diamond Sports mean for their TV future?**\
-`The Blues recently agreed to a new deal to appear on FanDuel Sports Network Midwest. CEO Chris Zimmerman explains the rebranding.`\
-https://nytimes.com/athletic/5820811/2024/10/21/blues-fanduel-sports-network/
-
-**Harris Is Searching for Precious Swing Voters**\
-`Also, the first sickle cell gene therapy patient left the hospital. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/10/21/briefing/harris-blue-wall-campaign-sickle-cell-therapy.html
-
-**Magic, Suggs agree to 5-year, $150.5 million extension: Sources**\
-`The entirety of the contract is fully guaranteed, according to a league source. Orlando locks up its 23-year-old defensive ace.`\
-https://nytimes.com/athletic/5861689/2024/10/21/jalen-suggs-magic-contract-extension/
 
