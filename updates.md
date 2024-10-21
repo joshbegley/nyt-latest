@@ -1,3 +1,11 @@
+**Could Barcelona really face Atletico Madrid in Miami this year?**\
+`Our team of writers from across the U.S. and Europe explain the likelihood of a La Liga match taking place in Miami this year`\
+https://nytimes.com/athletic/5861061/2024/10/21/barcelona-atletico-madrid-miami/
+
+**Bruce Feldman's East Carolina coaching candidates: Who will replace Mike Houston?**\
+`This vacancy will be pretty attractive: Houston was making $2.3 million, which is a big number for a non-Power 4 head coach.`\
+https://nytimes.com/athletic/5861151/2024/10/21/east-carolina-coaching-search-candidates-feldman/
+
 **A's to play on real grass in Sacramento**\
 `The A’s are going to play on natural grass in Sacramento, not turf as previously planned, a change preferred by the players and made out of concern for the heat.`\
 https://nytimes.com/athletic/5861182/2024/10/21/oakland-athletics-sacramento-grass-field/
