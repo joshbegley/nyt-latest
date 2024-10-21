@@ -1,3 +1,11 @@
+**The Pulse: The first title in franchise history**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5858622/2024/10/21/lynx-liberty-wnba-finals-the-pulse-2/
+
+**‘You Are Not Our King’: Charles III Heckled in Australia’s Parliament**\
+`King Charles, visiting the former British colony where he retains the ceremonial title of head of state, was shouted at by an Indigenous Australian senator.`\
+https://nytimes.com/2024/10/21/world/europe/king-charles-australia-parliament-lidia-thorpe.html
+
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5859811/2024/10/21/college-football-questions-mailbag-until-saturday-24/
