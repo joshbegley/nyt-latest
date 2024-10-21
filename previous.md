@@ -1,3 +1,7 @@
+**Trump Took a Turn at the Fryer. McDonald’s Workers Have Thoughts.**\
+`After Donald J. Trump served fast food during a campaign stop at a McDonald’s, several workers said the candidate showed a willingness to learn but should stick to his day job.`\
+https://nytimes.com/2024/10/21/nyregion/trump-mcdonalds-employees.html
+
 **Tuesday Briefing: Two Weeks Until Election Day**\
 `Plus, Aleksei Navalny’s memoir.`\
 https://nytimes.com/2024/10/21/briefing/election-polls-lebanon-brics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5861061/2024/10/21/barcelona-atletico-madrid-miami/
 **A's to play on real grass in Sacramento**\
 `The A’s are going to play on natural grass in Sacramento, not turf as previously planned, a change preferred by the players and made out of concern for the heat.`\
 https://nytimes.com/athletic/5861182/2024/10/21/oakland-athletics-sacramento-grass-field/
-
-**Nike to remain NBA's exclusive uniform provider on new contract**\
-`Nike will continue to be the exclusive partner of the WNBA and G League as well.`\
-https://nytimes.com/athletic/5860807/2024/10/21/nike-uniform-contract-nba-wnba-g-league/
 
