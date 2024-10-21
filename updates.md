@@ -1,3 +1,7 @@
+**Jonathan Kuminga, Warriors do not come to an extension agreement**\
+`Kuminga shot the 3 with more confidence and volume in the preseason, going 11 of 25 on mostly catch-and-shoot attempts in the halfcourt.`\
+https://nytimes.com/athletic/5861273/2024/10/21/jonathan-kuminga-warriors-no-extension/
+
 **All-LCS Team: Mookie Betts, Juan Soto, Tommy Edman deliver for pennant winners**\
 `The position players, starters and relievers who excelled for the Guardians, Mets, Dodgers and Yankees in the League Championship Series`\
 https://nytimes.com/athletic/5860352/2024/10/21/mlb-all-league-championship-series-team/
