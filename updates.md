@@ -1,3 +1,7 @@
+**What's Browns' plan at QB after Deshaun Watson injury? Answers murky for present and future**\
+`Cleveland must choose between Jameis Winston or Dorian Thompson-Robinson with Watson likely out for the season with an Achilles injury. `\
+https://nytimes.com/athletic/5858183/2024/10/20/browns-quarterbacks-deshaun-watson-injury-jameis-winston/
+
 **Seahawks deliver 'team win' over Falcons, validate Mike Macdonald's steady message**\
 `Seattle snapped a three-game losing streak by forcing three Kirk Cousins turnovers and taking control of the game late.`\
 https://nytimes.com/athletic/5858163/2024/10/20/seahawks-win-falcons-mike-macdonald/
