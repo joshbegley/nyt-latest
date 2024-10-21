@@ -1,3 +1,11 @@
+**Moldovans, Very Narrowly, Choose to Look Toward Europe, Not Russia**\
+`A referendum that constitutionally enshrines a national objective to join the E.U. passed by a thin margin. The incumbent pro-E.U. president won the most votes in a concurrent election, but faces a runoff.`\
+https://nytimes.com/2024/10/21/world/europe/moldova-eu-referendum-vote-result.html
+
+**The Bounce: Who is your pick for 2024-25 NBA MVP?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5859958/2024/10/21/luka-doncic-nba-mvp-liberty-lynx-wnba-the-bounce/
+
 **The new third pair, Boeser's faceoffs and more: 5 Canucks observations after 5 games**\
 `Also in the notebook, 'The Boys Have Been Talkin' Tour' and will the Canucks roll the hot hand in net with Kevin Lankinen?`\
 https://nytimes.com/athletic/5859602/2024/10/21/canucks-brock-boeser-tyler-myers/
