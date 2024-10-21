@@ -1,3 +1,23 @@
+**How the Jacksonville Jaguars secured their future at home and abroad**\
+`With investment in Florida and further afield, the Jaguars can look forward to a truly international future.`\
+https://nytimes.com/athletic/5859768/2024/10/21/jacksonville-jaguars-london-future/
+
+**Which 2025 NFL Draft prospects stood out during Georgia's upset of Texas?**\
+`Trevor Etienne scored three touchdowns, while Georgia's loaded front seven put in serious work. What's it all mean for the 2025 draft?`\
+https://nytimes.com/athletic/5858336/2024/10/21/nfl-draft-2025-georgia-texas/
+
+**Women's footballers call on FIFA to end Saudi oil partnership**\
+`A letter signed by over 100 professional women&#8217;s footballers has called on FIFA to drop its partnership with Saudi Arabian oil company Aramco.`\
+https://nytimes.com/athletic/5859639/2024/10/21/saudi-fifa-sponsor-protest/
+
+**Mental Illness Raises the Risk of Severe Covid. The Question Is: Why?**\
+`People with psychiatric conditions are more likely to be hospitalized or die of the virus. Scientists have ideas about why that might be the case.`\
+https://nytimes.com/2024/10/21/well/covid-mental-health-anxiety-depression.html
+
+**An Easy, Five-Star Salad to Convert the Lentil-Skeptical**\
+`Paired with roasted sweet potatoes, tossed in a brown butter vinaigrette and showered with tangy goat cheese, the humble lentil becomes “absolutely superb.”`\
+https://nytimes.com/2024/10/21/dining/an-easy-five-star-salad-to-convert-the-lentil-skeptical.html
+
 **Here they go again — the Ducks are making live difficult for Lukáš Dostál in goal**\
 `Filling in for John Gibson, Dostál is giving the Ducks what they need, but he's not getting support.`\
 https://nytimes.com/athletic/5859752/2024/10/21/lukas-dostal-ducks-goalie-gibson/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/21/world/europe/moldova-eu-referendum-vote-result.ht
 **The Bounce: Who is your pick for 2024-25 NBA MVP?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5859958/2024/10/21/luka-doncic-nba-mvp-liberty-lynx-wnba-the-bounce/
-
-**The new third pair, Boeser's faceoffs and more: 5 Canucks observations after 5 games**\
-`Also in the notebook, 'The Boys Have Been Talkin' Tour' and will the Canucks roll the hot hand in net with Kevin Lankinen?`\
-https://nytimes.com/athletic/5859602/2024/10/21/canucks-brock-boeser-tyler-myers/
-
-**College football best bets Week 9: Navy to cover vs. Notre Dame, and three more spread bets**\
-`Austin Mock uses his model to pick four spread bets for college football Week 9. More bets to come later this week.`\
-https://nytimes.com/athletic/5860188/2024/10/21/college-football-best-bets-week-9-penn-state-wisconsin-notre-dame/
-
-**Yohe: What I'm hearing about Penguins' goaltending circus**\
-`What happens next with the Penguins' goaltending? Not even Mike Sullivan knows.`\
-https://nytimes.com/athletic/5859471/2024/10/21/penguins-tristan-jarry-benched/
-
-**Tiger Woods' return highlights inaugural TGL schedule**\
-`Woods, who underwent back surgery last month, is being promoted as making his TGL debut in the nascent league’s second week of competition.`\
-https://nytimes.com/athletic/5860118/2024/10/21/tiger-woods-return-tgl-schedule/
-
-**How to Sell a Haunted House (or Not)**\
-`Even the most skeptical real estate agents say they think twice about the existence of ghosts, especially after unusual encounters.`\
-https://nytimes.com/2024/10/21/realestate/selling-haunted-houses.html
 
