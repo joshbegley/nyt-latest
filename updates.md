@@ -1,3 +1,7 @@
+**Dodgers topple Mets to capture pennant, Yankees up next: Takeaways**\
+`LOS ANGELES — Here are four takeaways from the Los Angeles Dodgers&#8217; 10-5 victory over the New York Mets in Game 6 of the NLCS.`\
+https://nytimes.com/athletic/5857309/2024/10/20/mets-dodgers-score-takeaways-mlb-playoffs-nlcs-2/
+
 **Yankees, Dodgers to square off in World Series: 5 storylines to watch**\
 `Shohei Ohtani and Aaron Judge will play starring roles as each superstar makes his World Series debut.`\
 https://nytimes.com/athletic/5858503/2024/10/20/yankees-dodgers-world-series-storylines-to-watch/

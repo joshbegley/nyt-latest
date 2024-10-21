@@ -1,3 +1,7 @@
+**Dodgers topple Mets to capture pennant, Yankees up next: Takeaways**\
+`LOS ANGELES — Here are four takeaways from the Los Angeles Dodgers&#8217; 10-5 victory over the New York Mets in Game 6 of the NLCS.`\
+https://nytimes.com/athletic/5857309/2024/10/20/mets-dodgers-score-takeaways-mlb-playoffs-nlcs-2/
+
 **Yankees, Dodgers to square off in World Series: 5 storylines to watch**\
 `Shohei Ohtani and Aaron Judge will play starring roles as each superstar makes his World Series debut.`\
 https://nytimes.com/athletic/5858503/2024/10/20/yankees-dodgers-world-series-storylines-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858357/2024/10/20/lynx-liberty-wnba-finals-game-5-
 **Sunday's biggest play for the Commanders was keeping injured Jayden Daniels off the field**\
 `Unlike RGIII in 2013, Washington's coaches and management decided to keep the injured star QB on the bench.`\
 https://nytimes.com/athletic/5857524/2024/10/20/commanders-jayden-daniels-aldridge-column/
-
-**Utah OC Andy Ludwig steps down after third consecutive loss**\
-`The preseason Big 12 favorites have struggled this season. The Utes are averaging 13.75 points per game in conference play.`\
-https://nytimes.com/athletic/5858866/2024/10/20/andy-ludwig-utah-football-offensive-coordinator-steps-down/
 
