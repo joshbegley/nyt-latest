@@ -1,3 +1,15 @@
+**A Nationwide Blackout, Now a Hurricane. How Much Can Cuba Endure?**\
+`The repeated failure of the power grid and a hurricane that has swamped the island’s eastern end has many Cubans fed up, posing a challenge to the Communist government.`\
+https://nytimes.com/2024/10/21/world/americas/cuba-blackout-hurricane-oscar.html
+
+**What does the Blues' multiyear deal with Diamond Sports Group mean for team's TV future?**\
+`The Blues recently agreed to a new deal to appear on FanDuel Sports Network Midwest. CEO Chris Zimmerman explains the rebranding.`\
+https://nytimes.com/athletic/5820811/2024/10/21/blues-fanduel-sports-network/
+
+**Harris Is Searching for Precious Swing Voters**\
+`Also, the first sickle cell gene therapy patient left the hospital. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/10/21/briefing/harris-blue-wall-campaign-sickle-cell-therapy.html
+
 **Magic, Suggs agree to 5-year, $150.5 million extension: Sources**\
 `The entirety of the contract is fully guaranteed, according to a league source. Orlando locks up its 23-year-old defensive ace.`\
 https://nytimes.com/athletic/5861689/2024/10/21/jalen-suggs-magic-contract-extension/

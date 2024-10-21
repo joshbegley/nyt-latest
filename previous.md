@@ -1,3 +1,15 @@
+**A Nationwide Blackout, Now a Hurricane. How Much Can Cuba Endure?**\
+`The repeated failure of the power grid and a hurricane that has swamped the island’s eastern end has many Cubans fed up, posing a challenge to the Communist government.`\
+https://nytimes.com/2024/10/21/world/americas/cuba-blackout-hurricane-oscar.html
+
+**What does the Blues' multiyear deal with Diamond Sports Group mean for team's TV future?**\
+`The Blues recently agreed to a new deal to appear on FanDuel Sports Network Midwest. CEO Chris Zimmerman explains the rebranding.`\
+https://nytimes.com/athletic/5820811/2024/10/21/blues-fanduel-sports-network/
+
+**Harris Is Searching for Precious Swing Voters**\
+`Also, the first sickle cell gene therapy patient left the hospital. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/10/21/briefing/harris-blue-wall-campaign-sickle-cell-therapy.html
+
 **Magic, Suggs agree to 5-year, $150.5 million extension: Sources**\
 `The entirety of the contract is fully guaranteed, according to a league source. Orlando locks up its 23-year-old defensive ace.`\
 https://nytimes.com/athletic/5861689/2024/10/21/jalen-suggs-magic-contract-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5861655/2024/10/21/blue-jays-david-popkins-hitting-
 **Arteta defends Arsenal's red card record: 'They are all different ones'**\
 `Mikel Arteta is not looking to put more attention than he feels is necessary on Arsenal’s red card record since he took charge.`\
 https://nytimes.com/athletic/5860139/2024/10/21/arsenal-red-cards-arteta/
-
-**Jameses, meet the Griffeys: Baseball father-son duo to attend Lakers opener**\
-`The Griffeys are part of a rare group of father-son duos to appear in the same major professional sporting game.`\
-https://nytimes.com/athletic/5861580/2024/10/21/bronny-james-lakers-opener-ken-griffey-jr/
-
-**Bruce Ames, 95, Dies; Biochemist Discovered Test for Toxic Chemicals**\
-`The Ames Test offered a fast and inexpensive way to identify carcinogens, leading to the banning of chemicals linked to cancer and birth defects.`\
-https://nytimes.com/2024/10/21/science/bruce-ames-dead.html
-
-**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
-`What's on your mind about the Irish? Submit your Notre Dame mailbag questions here.`\
-https://nytimes.com/athletic/5861674/2024/10/21/submit-your-questions-for-pete-sampsons-notre-dame-football-mailbag-2/
 
