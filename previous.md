@@ -1,3 +1,23 @@
+**This Bears fan has attended every home game for 60 years — and he lives in Colorado**\
+`Bears fan Scott Wilseck has attended every home game since the end of the 1962 season, and he has 60 years of stories to tell.`\
+https://nytimes.com/athletic/5855407/2024/10/21/bears-fan-home-game-streak/
+
+**Jerry Jones is no Al Davis (and that's a good thing)**\
+`The Cowboys haven't reached the NFC Championship in 28 years, but Jones' team has been much better than Davis' was in his later years.`\
+https://nytimes.com/athletic/5859511/2024/10/21/jerry-jones-cowboys-al-davis/
+
+**The 49ers' shrinking window and how Brock Purdy fits (or might not): Sando's Pick Six**\
+`The 49ers' star core is aging, and Purdy is nearing a massive payday. Should the Niners build around him? Would they consider trading him?`\
+https://nytimes.com/athletic/5854581/2024/10/21/brock-purdy-49ers-super-bowl-window/
+
+**'Heartbroken' after trade, Jake Walman starts anew with Sharks**\
+`Walman wishes his time in Detroit ended differently, but he's appreciative of the experience as he starts fresh in San Jose.`\
+https://nytimes.com/athletic/5847866/2024/10/21/red-wings-jake-walman-trade-sharks/
+
+**Silver: Why Patrick Mahomes and the Chiefs look capable of a three-peat**\
+`The Chiefs are the NFL's only unbeaten team at 6-0 and yet, "We’re gonna be so much better. There’s so much more we can do.”`\
+https://nytimes.com/athletic/5859174/2024/10/21/chiefs-mahomes-kelce-reid-three-peat-chase/
+
 **Five big questions facing the Mets and David Stearns in a compelling offseason**\
 `The Mets struggled to score in the NLCS and the bottom of the order looked looked especially vulnerable.`\
 https://nytimes.com/athletic/5858821/2024/10/21/mets-offseason-plan-free-agency/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/21/world/middleeast/blinken-israel-gaza-cease-fire.h
 **What Happens in Vegas Could Decide the Election**\
 `Exploring the impact of the housing crisis in Nevada, a swing state the Democrats have counted on for nearly two decades.`\
 https://nytimes.com/2024/10/21/podcasts/the-daily/vegas-nevada-election.html
-
-**A Final Hunt for Undecided Voters, and Israel Escalates Its War in Lebanon**\
-`Plus, New York Liberty are W.N.B.A. champions.`\
-https://nytimes.com/2024/10/21/podcasts/undecided-voter-israel-lebanon.html
-
-**Wordle Review No. 1,221**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 22, 2024.`\
-https://nytimes.com/2024/10/21/crosswords/wordle-review-1221.html
-
-**The Connections Companion No. 499**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 22, 2024.`\
-https://nytimes.com/2024/10/21/crosswords/connections-companion-499.html
-
-**Bold Pelicans predictions: Zion Williamson's postseason honors, a barrage of 3s and more**\
-`Beyond the Pelicans' core, Jordan Hawkins and Yves Missi could have big moments this season.`\
-https://nytimes.com/athletic/5858179/2024/10/21/pelicans-predictions-zion-williamsons-brandon-ingram-2024/
-
-**After 43 Years, Yankees and Dodgers Resume Their World Series Rivalry**\
-`Even as the sport and the country have changed, the rivalry has produced some of baseball’s most memorable moments.`\
-https://nytimes.com/2024/10/21/sports/baseball/yankees-dodgers-world-series.html
 
