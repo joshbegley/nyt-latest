@@ -1,3 +1,11 @@
+**Panthers have no answers right now. Could a staff shakeup or fire sale be in order?**\
+`The Panthers are allowing a staggering number of points and are in the middle of a seventh consecutive, non-playoff season. `\
+https://nytimes.com/athletic/5858730/2024/10/20/carolina-panthers-bad-loss-trade-deadline/
+
+**In ‘Sunset Boulevard,’ Nicole Scherzinger Is 23 Feet Tall**\
+`A fascinating Broadway revival of the bombastic 1994 musical blows it up even further.`\
+https://nytimes.com/2024/10/20/theater/sunset-boulevard-review.html
+
 **Why Sunday's loss could lead to Raiders pushing the desperation button at QB**\
 `There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
 https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/20/pageoneplus/quotation-of-the-day-how-halloween-re
 **Giants' lifeless effort vs. Eagles calls everything into question — QB, coach, all of it**\
 `The Giants have scored one touchdown in four home games this season. They’ve averaged 7.8 points in their four losses at MetLife Stadium.`\
 https://nytimes.com/athletic/5858198/2024/10/20/giants-lifeless-loss-eagles-daboll-daniel-jones/
-
-**The devil's in the details, and Vikings come up short vs. Lions as a result**\
-`The Vikings nearly came back to defeat a talented Lions team, but small, niggling mistakes ruined their chance at a signature win.`\
-https://nytimes.com/athletic/5858338/2024/10/20/vikings-loss-offense-mistakes-penalties/
-
-**Tom Brady, in his first Fox broadcast as Raiders owner, walks the tightrope**\
-`Sunday, Brady interviewed Patrick Mahomes at a hotel (not the team facility) and deferred to Mike Pereira as scrutiny intensified.`\
-https://nytimes.com/athletic/5858530/2024/10/20/tom-brady-fox-chiefs-49ers-raiders-owner/
 

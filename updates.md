@@ -1,3 +1,11 @@
+**Panthers have no answers right now. Could a staff shakeup or fire sale be in order?**\
+`The Panthers are allowing a staggering number of points and are in the middle of a seventh consecutive, non-playoff season. `\
+https://nytimes.com/athletic/5858730/2024/10/20/carolina-panthers-bad-loss-trade-deadline/
+
+**In ‘Sunset Boulevard,’ Nicole Scherzinger Is 23 Feet Tall**\
+`A fascinating Broadway revival of the bombastic 1994 musical blows it up even further.`\
+https://nytimes.com/2024/10/20/theater/sunset-boulevard-review.html
+
 **Why Sunday's loss could lead to Raiders pushing the desperation button at QB**\
 `There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
 https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
