@@ -1,3 +1,7 @@
+**Tom Brady, in his first Fox broadcast as Raiders owner, walks the tightrope**\
+`On Sunday, Tom Brady interviewed Patrick Mahomes at a hotel (not the team facility) and deferred to Mike Pereira as scrutiny intensified.`\
+https://nytimes.com/athletic/5858530/2024/10/20/tom-brady-fox-chiefs-49ers-raiders-owner/
+
 **Amari Cooper's impact, Greg Rousseau's big day: Bills observations from Titans win**\
 `Plus, what to expect from Dalton Kincaid and Ray Davis moving forward.`\
 https://nytimes.com/athletic/5858264/2024/10/20/bills-win-titans-amari-cooper-debut-observations/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/podcasts/this-is-the-case-of-henry-dee-this-ameri
 **How Aleksei Navalny’s Prison Diaries Got Published**\
 `In his posthumous memoir, compiled with help from his widow, Yulia Navalnaya, Navalny faced the fact that Vladimir Putin might succeed in silencing him. The book will keep “his legacy alive,” Navalnaya said.`\
 https://nytimes.com/2024/10/20/books/booksupdate/aleksei-navalny-memoir-prison-diaries.html
-
-**Brandon McManus brings Packers needed stability at kicker with game-winning field goal**\
-`The veteran's 45-yarder against the Texans gave the Packers a 24-22 walk-off win on Sunday at Lambeau Field.`\
-https://nytimes.com/athletic/5858284/2024/10/20/packers-brandon-mcmanus-kicker-game-winner/
 
