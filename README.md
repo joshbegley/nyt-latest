@@ -1,3 +1,11 @@
+**Here they go again — the Ducks are making live difficult for Lukáš Dostál in goal**\
+`Filling in for John Gibson, Dostál is giving the Ducks what they need, but he's not getting support.`\
+https://nytimes.com/athletic/5859752/2024/10/21/lukas-dostal-ducks-goalie-gibson/
+
+**Raiders QB Aidan O'Connell expected to miss 4-6 weeks**\
+`O'Connell exited Sunday’s game against the Los Angeles Rams and did not return.`\
+https://nytimes.com/athletic/5857807/2024/10/21/raiders-aidan-oconnell-thumb-injury-minshew/
+
 **Can You Find These 14 Hidden Book Titles in This Puzzle?**\
 `Look closely to uncover the recent memoirs lurking in this passage of text.`\
 https://nytimes.com/interactive/2024/10/21/books/review/memoirs-title-search.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5860118/2024/10/21/tiger-woods-return-tgl-schedule/
 **How to Sell a Haunted House (or Not)**\
 `Even the most skeptical real estate agents say they think twice about the existence of ghosts, especially after unusual encounters.`\
 https://nytimes.com/2024/10/21/realestate/selling-haunted-houses.html
-
-**Death Row Inmate in Shaken Baby Case Set to Testify in Texas House**\
-`Robert Roberson, whose execution was postponed last week, has been subpoenaed to appear on Monday before a committee of the State House.`\
-https://nytimes.com/2024/10/21/us/texas-robert-roberson-shaken-baby-case.html
-
-**Life Without Sickle Cell Beckons Boy Who Completed Gene Therapy**\
-`After 44 days, Kendric Cromer, 12, left the hospital. While his family feels fortunate that he was the first to receive a treatment, their difficult experiences hint at what others will be up against.`\
-https://nytimes.com/2024/10/21/health/sickle-cell-disease-gene-therapy-patient.html
 
