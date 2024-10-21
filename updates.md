@@ -1,3 +1,7 @@
+**Death Row Inmate in Shaken Baby Case Set to Testify in Texas House**\
+`Robert Roberson, whose execution was postponed last week, has been subpoenaed to appear on Monday before a committee of the State House.`\
+https://nytimes.com/2024/10/21/us/texas-robert-roberson-shaken-baby-case.html
+
 **Life Without Sickle Cell Beckons Boy Who Completed Gene Therapy**\
 `After 44 days, Kendric Cromer, 12, left the hospital. While his family feels fortunate that he was the first to receive a treatment, their difficult experiences hint at what others will be up against.`\
 https://nytimes.com/2024/10/21/health/sickle-cell-disease-gene-therapy-patient.html
