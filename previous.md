@@ -1,3 +1,15 @@
+**Read the Task Force’s Report**\
+`The House task force on the attempted assassinations of former President Donald J. Trump released its first preliminary report.`\
+https://nytimes.com/interactive/2024/10/21/us/task-force-interim-staff-report-10212024.html
+
+**'Best young prospect on the Wizards': What NBA scouts are saying about Bub Carrington**\
+`What do NBA talent evaluators think of the Wizards' point guard of the future?`\
+https://nytimes.com/athletic/5859085/2024/10/21/bub-carrington-nba-scouts-evaluation/
+
+**Why the Oil and Gas Industry Is So Afraid of Kamala Harris**\
+`The Democratic candidate’s agenda takes climate change seriously.`\
+https://nytimes.com/2024/10/21/opinion/oil-gas-exports-climate-change.html
+
 **Rosenthal: With Shohei Ohtani in his first World Series, a chance for greatness on the 'biggest of stages'**\
 `The Dodgers superstar's presence adds to one of the most anticipated Fall Classic showcases in a long time.`\
 https://nytimes.com/athletic/5859842/2024/10/21/shohei-ohtani-world-series-mlb-dodgers-yankees/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5858475/2024/10/21/raiders-loss-rams-gardner-minshe
 **WSL Briefing: Brighton are ready to push on, Kaneryd sparkles again for Chelsea**\
 `Brighton impressed against Manchester United in front of a record crowd, while Kaneryd scored twice in Chelsea's rout of Tottenham`\
 https://nytimes.com/athletic/5858414/2024/10/21/wsl-brighton-man-united-chelsea-kaneryd/
-
-**Tim Weah: My game in my words**\
-`From studying Cavani's work rate and runs at PSG to offering to play in any position and linking with McKennie, Tim Weah analyses his game`\
-https://nytimes.com/athletic/5854685/2024/10/21/tim-weah-juventus-usmnt-analysis-interview/
-
-**Van Dijk: 'Discussions are ongoing' over new Liverpool contract**\
-`Liverpool captain Virgil van Dijk has confirmed that &#8220;discussions are ongoing&#8221; over a new contract to keep him at Anfield.`\
-https://nytimes.com/athletic/5859814/2024/10/21/van-dijk-liverpool-contract-talks/
-
-**The Pulse: The first title in franchise history**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5858622/2024/10/21/lynx-liberty-wnba-finals-the-pulse-2/
 
