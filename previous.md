@@ -1,3 +1,7 @@
+**Trump’s Behavior at the Al Smith Dinner**\
+`Readers respond to a Maureen Dowd column and a Campaign Notebook. Also: The need to vote; the education crisis; dead trees; Juan Soto’s magic.`\
+https://nytimes.com/2024/10/21/opinion/trump-al-smith-dinner.html
+
 **Central Park 5 Sue Trump for Defamation Over Debate Comments**\
 `Donald J. Trump’s remarks during the presidential debate are part of a “continuing pattern” of false statements designed to “make the men suffer,” the lawsuit charged.`\
 https://nytimes.com/2024/10/21/nyregion/trump-central-park-five-defamation-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/us/politics/harris-liz-cheney-pennsylvania-michig
 **Cowboys' McCarthy on Aikman's WR comments: 'They don't carry any weight with me'**\
 `Coach responds after Dallas' Week 7 bye to Hall of Famer's criticism of team's wide receivers. `\
 https://nytimes.com/athletic/5860828/2024/10/21/mike-mccarthy-troy-aikman-cowboys-receivers-comments/
-
-**ASU coach Kenny Dillingham apologies after calling kicking game 'atrocious'**\
-`After losing to Cincinnati, Dillingham called Arizona State’s kicking game atrocious and invited students to a try out on Monday.`\
-https://nytimes.com/athletic/5860925/2024/10/21/kenny-dillingham-airzona-state-kicker-college-football/
 

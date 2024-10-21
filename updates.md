@@ -1,3 +1,7 @@
+**Trump’s Behavior at the Al Smith Dinner**\
+`Readers respond to a Maureen Dowd column and a Campaign Notebook. Also: The need to vote; the education crisis; dead trees; Juan Soto’s magic.`\
+https://nytimes.com/2024/10/21/opinion/trump-al-smith-dinner.html
+
 **Central Park 5 Sue Trump for Defamation Over Debate Comments**\
 `Donald J. Trump’s remarks during the presidential debate are part of a “continuing pattern” of false statements designed to “make the men suffer,” the lawsuit charged.`\
 https://nytimes.com/2024/10/21/nyregion/trump-central-park-five-defamation-lawsuit.html
