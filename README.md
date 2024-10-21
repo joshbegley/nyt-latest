@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5858963/2024/10/20/49ers-ricky-pearsall-returns-los
 https://nytimes.com/athletic/5858965/2024/10/20/xavier-newman-jets-steelers-injury/
 
 **Josh Allen has grown as a game manager, and Sunday's win shows why that's crucial for Bills**\
-`Josh Allen and the Bills didn't panic after a slow start against a bad team.`\
+`Allen and the Bills didn't panic after a slow start against a bad team.`\
 https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/
 
 **Liberty oust Lynx in OT of Game 5 to capture first-ever WNBA title**\
