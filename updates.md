@@ -1,3 +1,7 @@
+**DK Metcalf 'week-to-week' with knee injury**\
+`The second-leading receiver in the NFL, Metcalf was carted to the locker room late in Sunday's win over the Falcons.`\
+https://nytimes.com/athletic/5861798/2024/10/21/dk-metcalf-injury-seahawks/
+
 **The Lies Piling Up in Philadelphia Mailboxes**\
 `I took a look at some of the mail showing up in largely Black neighborhoods in southwest Philadelphia.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/philadelphia-mailers-trump

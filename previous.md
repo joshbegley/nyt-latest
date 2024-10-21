@@ -1,3 +1,7 @@
+**DK Metcalf 'week-to-week' with knee injury**\
+`The second-leading receiver in the NFL, Metcalf was carted to the locker room late in Sunday's win over the Falcons.`\
+https://nytimes.com/athletic/5861798/2024/10/21/dk-metcalf-injury-seahawks/
+
 **The Lies Piling Up in Philadelphia Mailboxes**\
 `I took a look at some of the mail showing up in largely Black neighborhoods in southwest Philadelphia.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/philadelphia-mailers-trump
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/briefing/harris-blue-wall-campaign-sickle-cell-th
 **Magic, Suggs agree to 5-year, $150.5 million extension: Sources**\
 `The entirety of the contract is fully guaranteed, according to a league source. Orlando locks up its 23-year-old defensive ace.`\
 https://nytimes.com/athletic/5861689/2024/10/21/jalen-suggs-magic-contract-extension/
-
-**What Matt Rhule said about his challenge to Nebraska and what that means**\
-`Nebraska is 5-2 after its blowout loss to Indiana with a trip to Ohio State next on the schedule.`\
-https://nytimes.com/athletic/5861589/2024/10/21/matt-rhule-nebraska-indiana-ohio-state/
 
