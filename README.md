@@ -1,3 +1,7 @@
+**How Media Outlets on the Left and Right Covered Trump’s Stop at McDonald’s**\
+`Former President Donald J. Trump’s campaign event at a McDonalds in Pennsylvania was described by right-leaning outlets as a brilliant move. Left-leaning publications called it weird.`\
+https://nytimes.com/2024/10/21/business/media/trump-mcdonalds-media-coverage.html
+
 **Jonathan Kuminga, Warriors do not come to an extension agreement**\
 `Kuminga shot the 3 with more confidence and volume in the preseason, going 11 of 25 on mostly catch-and-shoot attempts in the halfcourt.`\
 https://nytimes.com/athletic/5861273/2024/10/21/jonathan-kuminga-warriors-no-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5859843/2024/10/21/drake-maye-rookie-qb-patriots-ja
 **Trump’s Behavior at the Al Smith Dinner**\
 `Readers respond to a Maureen Dowd column and a Campaign Notebook. Also: The need to vote; the education crisis; dead trees; Juan Soto’s magic.`\
 https://nytimes.com/2024/10/21/opinion/trump-al-smith-dinner.html
-
-**Central Park 5 Sue Trump for Defamation Over Debate Comments**\
-`Donald J. Trump’s remarks during the presidential debate are part of a “continuing pattern” of false statements designed to “make the men suffer,” the lawsuit charged.`\
-https://nytimes.com/2024/10/21/nyregion/trump-central-park-five-defamation-lawsuit.html
 
