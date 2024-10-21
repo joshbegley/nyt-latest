@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Seth Meyers: Dad Man Walking’ and Spooky Movies**\
+`The comedian’s standup special airs on HBO. Various networks show horror films.`\
+https://nytimes.com/2024/10/21/arts/television/whats-on-tv-this-week-seth-meyers-dad-man-walking-and-spooky-movies.html
+
 **Monday Briefing**\
 `Israel escalates its attacks in Lebanon.`\
 https://nytimes.com/2024/10/21/briefing/donald-trump-israel-hezbollah-moldova-referendum.html
