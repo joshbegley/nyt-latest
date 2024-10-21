@@ -1,3 +1,7 @@
+**Vietnam Revives Power-Sharing Arrangement With New President**\
+`The move restores a “four pillar” government structure that divides top-level duties to avoid the rise of a single strongman.`\
+https://nytimes.com/2024/10/21/world/asia/vietnam-president.html
+
 **Tennis Briefing: Casper Ruud speaks on human rights; season limps to conclusion**\
 `Players speak out, injury withdrawals continue, and a new tour stop for the United States.`\
 https://nytimes.com/athletic/5857912/2024/10/21/ruud-saudi-arabia-china-tennis-human-rights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857188/2024/10/21/blues-philip-broberg-video-break
 **Inside the Chargers' run defense turnaround: Connecting the 'what' with the 'how'**\
 `The Chargers under Brandon Staley were among the NFL's worst run-defending teams. They've been the best so far this season.`\
 https://nytimes.com/athletic/5856400/2024/10/21/chargers-run-defense-turnaround-jesse-minter/
-
-**Liverpool's patience out of possession under Slot is working - but Chelsea showed the approach isn't flawless**\
-`Three goals conceded in eight games is excellent - but bigger tests await in Liverpool's next few games`\
-https://nytimes.com/athletic/5859701/2024/10/21/liverpool-slot-tactics-less-pressing/
 
