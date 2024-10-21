@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5858602/2024/10/20/gotham-uswnt-kelley-ohara-farewe
 
 **Lloyd: The Deshaun Watson era is over. Why Dorian Thompson-Robinson shoutd be QB for now**\
 `The most polarizing, divisive era in the history of the Cleveland Browns has mercifully ended. The damage is only beginning.`\
-https://nytimes.com/athletic/5858495/2024/10/20/the-browns-deshaun-watson-era-is-over-why-dorian-thompson-robinson-should-be-qb-for-now/
+https://nytimes.com/athletic/5858495/2024/10/20/deshaun-watson-browns-injury-dorian-thomspon-robinson/
 
 **As boos rained down, Saquon Barkley ran all over the Giants in his return**\
 `The star running back — and a suffocating pass rush — added up to a dominant Eagles victory.`\
