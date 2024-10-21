@@ -1,3 +1,11 @@
+**Sunday's biggest play for the Commanders was keeping injured Jayden Daniels off the field**\
+`Unlike RGIII in 2013, Washington's coaches and management decided to keep the injured star QB on the bench.`\
+https://nytimes.com/athletic/5857524/2024/10/20/commanders-jayden-daniels-aldridge-column/
+
+**Utah OC Andy Ludwig steps down after third consecutive loss**\
+`The preseason Big 12 favorites have struggled this season. The Utes are averaging 13.75 points per game in conference play.`\
+https://nytimes.com/athletic/5858866/2024/10/20/andy-ludwig-utah-football-offensive-coordinator-steps-down/
+
 **Gotham FC gives Kelley O'Hara memorable farewell: 'It has been the greatest joy'**\
 `Despite injury setbacks, O'Hara has played a crucial role in Gotham's locker room. `\
 https://nytimes.com/athletic/5858602/2024/10/20/gotham-uswnt-kelley-ohara-farewell-nwsl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5858329/2024/10/20/colts-win-anthony-richardson-gro
 **Warriors, Moody agree to 3-year, $39 million extension**\
 `The deal keeps Moody under team control at a reasonable price for the next four seasons.`\
 https://nytimes.com/athletic/5858648/2024/10/20/moses-moody-warriors-extension/
-
-**Trotter: Deshaun Watson injury is latest (final?) chapter in an awful story**\
-`My immediate action was empathy. Seeing Watson carted off, tears in his eyes, it was a powerful image. But there were other images.`\
-https://nytimes.com/athletic/5858328/2024/10/20/deshaun-watson-browns-injury/
-
-**If Lions had any doubters, Vikings win provided reassurance this team is among NFL's best**\
-`A week after losing one of their best players, the Lions took down the undefeated Vikings.`\
-https://nytimes.com/athletic/5858164/2024/10/20/lions-win-vikings-dan-campbell-doubters/
 

@@ -1,3 +1,11 @@
+**Sunday's biggest play for the Commanders was keeping injured Jayden Daniels off the field**\
+`Unlike RGIII in 2013, Washington's coaches and management decided to keep the injured star QB on the bench.`\
+https://nytimes.com/athletic/5857524/2024/10/20/commanders-jayden-daniels-aldridge-column/
+
+**Utah OC Andy Ludwig steps down after third consecutive loss**\
+`The preseason Big 12 favorites have struggled this season. The Utes are averaging 13.75 points per game in conference play.`\
+https://nytimes.com/athletic/5858866/2024/10/20/andy-ludwig-utah-football-offensive-coordinator-steps-down/
+
 **Gotham FC gives Kelley O'Hara memorable farewell: 'It has been the greatest joy'**\
 `Despite injury setbacks, O'Hara has played a crucial role in Gotham's locker room. `\
 https://nytimes.com/athletic/5858602/2024/10/20/gotham-uswnt-kelley-ohara-farewell-nwsl/
