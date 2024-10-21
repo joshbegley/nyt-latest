@@ -1,3 +1,7 @@
+**Growing pains are real for Colts' Anthony Richardson, but they're easier to endure in a win**\
+`These are the bumps in the road the Colts signed up for when they drafted someone so young and inexperienced fourth overall in 2023.`\
+https://nytimes.com/athletic/5858329/2024/10/20/colts-win-anthony-richardson-growing-pains/
+
 **Warriors, Moody agree to 3-year, $39 million extension**\
 `The deal keeps Moody under team control at a reasonable price for the next four seasons.`\
 https://nytimes.com/athletic/5858648/2024/10/20/moses-moody-warriors-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858530/2024/10/20/tom-brady-fox-chiefs-49ers-raide
 **Amari Cooper's impact, Greg Rousseau's big day: Bills observations from Titans win**\
 `Plus, what to expect from Dalton Kincaid and Ray Davis.`\
 https://nytimes.com/athletic/5858264/2024/10/20/bills-win-titans-amari-cooper-debut-observations/
-
-**What's Browns' plan at QB after Deshaun Watson injury? Answers murky for present and future**\
-`Cleveland must choose between Jameis Winston or Dorian Thompson-Robinson with Watson likely out for the season with an Achilles injury. `\
-https://nytimes.com/athletic/5858183/2024/10/20/browns-quarterbacks-deshaun-watson-injury-jameis-winston/
 
