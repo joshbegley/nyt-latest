@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/10/21/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris and Trump Campaign With 2 Weeks to Go**\
+`Former President Donald Trump was expected to hold events in North Carolina, while Vice President Kamala Harris planned to visit the three “blue wall” states.`\
+https://nytimes.com/live/2024/10/21/us/harris-trump-election
+
 **Thompson: The 49ers, in a world of hurt, need Brock Purdy to level up**\
 `A 49ers team with Super Bowl aspirations is now 3-4 and banged up. Now's the time for Brock Purdy to take his game to another level.`\
 https://nytimes.com/athletic/5859755/2024/10/21/brock-purdy-san-francisco-49ers-super-bowl-chiefs-mahomes/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/21/opinion/oil-gas-exports-climate-change.html
 **Rosenthal: With Shohei Ohtani in his first World Series, a chance for greatness on the 'biggest of stages'**\
 `The Dodgers superstar's presence adds to one of the most anticipated Fall Classic showcases in a long time.`\
 https://nytimes.com/athletic/5859842/2024/10/21/shohei-ohtani-world-series-mlb-dodgers-yankees/
-
-**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
-`Following Saturday’s damaging 1-0 home defeat to Brighton & Hove Albion, post your Newcastle-related questions to Chris`\
-https://nytimes.com/athletic/5859712/2024/10/21/inside-newcastle-qa-brighton-howe/
-
-**Introducing NBA Reliability Tiers: Which stars can be counted on the most in regular season?**\
-`The rankings observe the players who meet the NBA's "star" requirements by merging All-NBA and All-Star appearances of the last three years.`\
-https://nytimes.com/athletic/5852478/2024/10/21/nba-player-rankings-tiers-reliability-introduction/
 
