@@ -1,3 +1,11 @@
+**Life Without Sickle Cell Beckons Boy Who Completed Gene Therapy**\
+`After 44 days, Kendric Cromer, 12, left the hospital. While his family feels fortunate that he was the first to receive a treatment, their difficult experiences hint at what others will be up against.`\
+https://nytimes.com/2024/10/21/health/sickle-cell-disease-gene-therapy-patient.html
+
+**D.C. mayor introduces bill to renovate Capital One Arena**\
+`The new agreement, if passed by the city council, would also extend the Capital One Arena lease until 2050. `\
+https://nytimes.com/athletic/5860200/2024/10/21/capital-one-arena-lease-leonsis-bowser/
+
 **Chappell Roan’s Rocket-Ship Year**\
 `The pop star’s ascent has tested the boundaries of contemporary pop, and may create a template for a next generation.`\
 https://nytimes.com/2024/10/21/arts/music/popcast-chappell-roan.html
