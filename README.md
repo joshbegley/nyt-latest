@@ -26,13 +26,13 @@ https://nytimes.com/2024/10/21/world/europe/fethullah-gulen-dead.html
 `Sean McVay is pleased with the "trajectory" of the Rams' defense. It produced a touchdown for the second consecutive game.`\
 https://nytimes.com/athletic/5858710/2024/10/21/rams-defense-strong-offense-struggles/
 
-**Meet the Florida Billionaire Who Wants to Be a Newspaper Baron**\
-`David Hoffmann has already bought 5 percent of one of America’s largest newspaper companies. Now, he wants to control the whole thing.`\
-https://nytimes.com/2024/10/21/business/media/david-hoffmann-local-newspapers.html
-
 **Why Are Hospital Gowns So Ugly?**\
 `Curious why medical patient attire is so unflattering, a reader asks our fashion critic if it’s intentional.`\
 https://nytimes.com/2024/10/21/style/hospital-gown.html
+
+**Meet the Florida Billionaire Who Wants to Be a Newspaper Baron**\
+`David Hoffmann has already bought 5 percent of one of America’s largest newspaper companies. Now, he wants to control the whole thing.`\
+https://nytimes.com/2024/10/21/business/media/david-hoffmann-local-newspapers.html
 
 **Why Trump’s Chances Are Better Than They Look**\
 `For many undecided voters, the inflation issue isn’t going away.`\
