@@ -1,3 +1,19 @@
+**Magic, Suggs agree to 5-year, $150.5 million extension: Sources**\
+`The entirety of the contract is fully guaranteed, according to a league source. Orlando locks up its 23-year-old defensive ace.`\
+https://nytimes.com/athletic/5861689/2024/10/21/jalen-suggs-magic-contract-extension/
+
+**What Matt Rhule said about his challenge to Nebraska and what that means**\
+`Nebraska is 5-2 after its blowout loss to Indiana with a trip to Ohio State next on the schedule.`\
+https://nytimes.com/athletic/5861589/2024/10/21/matt-rhule-nebraska-indiana-ohio-state/
+
+**The Mets Gave My Son With Autism a Gift. Now Is a Good Time to Say Thank You.**\
+`This team had a lot going for it, in all the ways that matter.`\
+https://nytimes.com/2024/10/21/opinion/mets-son-autism-lindor.html
+
+**49ers WR Brandon Aiyuk out for year with torn ACL, MCL: Reports**\
+`The fifth-year wide receiver signed $120 million extension just before the start of the 2024 season. `\
+https://nytimes.com/athletic/5861663/2024/10/21/brandon-aiyuk-torn-acl-mcl-injury-update/
+
 **Ward Christensen, Early Visionary of Social Media, Dies at 78**\
 `Housebound during a 1978 blizzard, he and a friend began devising the first computer bulletin board, a forerunner of online services like Reddit, TikTok and Facebook.`\
 https://nytimes.com/2024/10/21/technology/ward-christensen-dead.html

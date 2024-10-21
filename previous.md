@@ -1,3 +1,19 @@
+**Magic, Suggs agree to 5-year, $150.5 million extension: Sources**\
+`The entirety of the contract is fully guaranteed, according to a league source. Orlando locks up its 23-year-old defensive ace.`\
+https://nytimes.com/athletic/5861689/2024/10/21/jalen-suggs-magic-contract-extension/
+
+**What Matt Rhule said about his challenge to Nebraska and what that means**\
+`Nebraska is 5-2 after its blowout loss to Indiana with a trip to Ohio State next on the schedule.`\
+https://nytimes.com/athletic/5861589/2024/10/21/matt-rhule-nebraska-indiana-ohio-state/
+
+**The Mets Gave My Son With Autism a Gift. Now Is a Good Time to Say Thank You.**\
+`This team had a lot going for it, in all the ways that matter.`\
+https://nytimes.com/2024/10/21/opinion/mets-son-autism-lindor.html
+
+**49ers WR Brandon Aiyuk out for year with torn ACL, MCL: Reports**\
+`The fifth-year wide receiver signed $120 million extension just before the start of the 2024 season. `\
+https://nytimes.com/athletic/5861663/2024/10/21/brandon-aiyuk-torn-acl-mcl-injury-update/
+
 **Ward Christensen, Early Visionary of Social Media, Dies at 78**\
 `Housebound during a 1978 blizzard, he and a friend began devising the first computer bulletin board, a forerunner of online services like Reddit, TikTok and Facebook.`\
 https://nytimes.com/2024/10/21/technology/ward-christensen-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/21/science/bruce-ames-dead.html
 **Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
 `What's on your mind about the Irish? Submit your Notre Dame mailbag questions here.`\
 https://nytimes.com/athletic/5861674/2024/10/21/submit-your-questions-for-pete-sampsons-notre-dame-football-mailbag-2/
-
-**F1 stewards are back in the spotlight after 'inexplicable’ U.S. Grand Prix penalties**\
-`Is it time for a change to F1's steward system? Some drivers and team principals left Austin confused about the racing rules.`\
-https://nytimes.com/athletic/5861105/2024/10/21/f1-us-grand-prix-stewards-penalty-lando-norris/
-
-**Trump Took a Turn at the Fryer. McDonald’s Workers Have Thoughts.**\
-`After Donald J. Trump served fast food during a campaign stop at a McDonald’s, several workers said the candidate showed a willingness to learn but should stick to his day job.`\
-https://nytimes.com/2024/10/21/nyregion/trump-mcdonalds-employees.html
-
-**Tuesday Briefing: Two Weeks Until Election Day**\
-`Plus, Aleksei Navalny’s memoir.`\
-https://nytimes.com/2024/10/21/briefing/election-polls-lebanon-brics.html
-
-**Paul Di’Anno, Early Iron Maiden Frontman, Dies at 66**\
-`The English singer played with the band in its early years. He later worked with other bands and pursued a solo career.`\
-https://nytimes.com/2024/10/21/arts/music/paul-dianno-iron-maiden-dead.html
 
