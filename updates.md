@@ -1,3 +1,7 @@
+**As boos rained down, Saquon Barkley ran all over the Giants in his return**\
+`The star running back — and a suffocating pass rush — added up to a dominant Eagles victory.`\
+https://nytimes.com/athletic/5857259/2024/10/20/eagles-win-saquon-barkley-giants-return/
+
 **Panthers have no answers right now. Could a staff shakeup or fire sale be in order?**\
 `The Panthers are allowing a staggering number of points and are in the middle of a seventh consecutive, non-playoff season. `\
 https://nytimes.com/athletic/5858730/2024/10/20/carolina-panthers-bad-loss-trade-deadline/
