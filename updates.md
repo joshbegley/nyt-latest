@@ -1,3 +1,11 @@
+**Submit your questions for Until Saturday's podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/5859811/2024/10/21/college-football-questions-mailbag-until-saturday-24/
+
+**Is Donald Trump an Isolationist?**\
+`We explore the stakes of another Trump presidency in terms of foreign policy.`\
+https://nytimes.com/2024/10/21/briefing/is-donald-trump-an-isolationist.html
+
 **Weekend NHL rankings: Five early-season storylines I don’t believe in (yet)**\
 `Enough games to have narratives! But is it still too early in the season to believe them? Absolutely.`\
 https://nytimes.com/athletic/5858194/2024/10/21/nhl-weekend-rankings-early-season-storylines/
