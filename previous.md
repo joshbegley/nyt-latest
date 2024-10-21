@@ -1,3 +1,7 @@
+**Ralph Jennings, 86, Dies; Built Up Fordham’s Public Radio Station**\
+`He transformed WFUV from “a sandbox” into a professional operation, increasing its listenership nearly tenfold.`\
+https://nytimes.com/2024/10/21/business/media/ralph-jennings-dead.html
+
 **The Menendez Brothers’ Case Is Under Review. Here’s What to Know.**\
 `Prosecutors are revisiting the brothers’ convictions in the killings of their parents. It could lead to their release from prison.`\
 https://nytimes.com/article/menendez-brothers-case.html
@@ -30,11 +34,7 @@ https://nytimes.com/2024/10/21/well/covid-mental-health-anxiety-depression.html
 `Paired with roasted sweet potatoes, tossed in a brown butter vinaigrette and showered with tangy goat cheese, the humble lentil becomes “absolutely superb.”`\
 https://nytimes.com/2024/10/21/dining/an-easy-five-star-salad-to-convert-the-lentil-skeptical.html
 
-**Here they go again — the Ducks are making live difficult for Lukáš Dostál in goal**\
+**Here they go again — the Ducks are making life difficult for Lukáš Dostál in goal**\
 `Filling in for John Gibson, Dostál is giving the Ducks what they need, but he's not getting support.`\
 https://nytimes.com/athletic/5859752/2024/10/21/lukas-dostal-ducks-goalie-gibson/
-
-**Raiders QB Aidan O'Connell expected to miss 4-6 weeks**\
-`O'Connell exited Sunday’s game against the Los Angeles Rams and did not return.`\
-https://nytimes.com/athletic/5857807/2024/10/21/raiders-aidan-oconnell-thumb-injury-minshew/
 
