@@ -1,3 +1,7 @@
+**Paul Di’Anno, Early Iron Maiden Frontman, Dies at 66**\
+`The English singer played with the band in its early years. He later worked with other bands and pursued a solo career.`\
+https://nytimes.com/2024/10/21/arts/music/paul-dianno-iron-maiden-dead.html
+
 **Cardinals add Jon Jay to coaching staff as Willie McGee changes roles**\
 `The St.`\
 https://nytimes.com/athletic/5861502/2024/10/21/stl-cardinals-hire-jon-jay-coaching-staff/
