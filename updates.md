@@ -1,3 +1,15 @@
+**Tennis Briefing: Casper Ruud speaks on human rights; season limps to conclusion**\
+`Players speak out, injury withdrawals continue, and a new tour stop for the United States.`\
+https://nytimes.com/athletic/5857912/2024/10/21/ruud-saudi-arabia-china-tennis-human-rights/
+
+**Sinwar Is Dead, but a Palestinian State Seems More Distant Than Ever**\
+`A two-state solution remains the goal of the United States and the West, but many in the region say the devastation in Gaza and the lack of effective Palestinian leadership make it a remote prospect.`\
+https://nytimes.com/2024/10/21/world/middleeast/sinwar-dead-palestinian-state.html
+
+**Disney Says It Will Hire a New C.E.O. in ‘Early 2026’**\
+`In a board shake-up, James Gorman, a director in charge of planning for a successor to the chief executive, Robert A. Iger, will become chairman on Jan. 2, 2025.`\
+https://nytimes.com/2024/10/21/business/disney-ceo-succession-james-gorman-chairman.html
+
 **Asian football federation accused of 'unequal treatment' after moving games from Iran**\
 `The Asian Football Confederation (AFC) has rescheduled matches across its tournaments due to the security situation in Iran — weeks after Indian club Mohun Bagan Super Giants were “withdrawn” from AFC competitions after refusing to play in the nation.`\
 https://nytimes.com/athletic/5859770/2024/10/21/iran-security-travel-afc-champions-league/
