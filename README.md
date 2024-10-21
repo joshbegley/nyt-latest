@@ -1,3 +1,7 @@
+**Arizona Fall League reports: Ethan Salas, Termarr Johnson, Colt Emerson and more**\
+`Notes on prospects, including Thomas Saggese, Moises Ballesteros, Edwin Arroyo, Jac Caglianone, Chase DeLauter and many more.`\
+https://nytimes.com/athletic/5860771/2024/10/21/arizona-fall-league-scouting-ethan-salas-termarr-johnson/
+
 **Dolphins designating Tua Tagovailoa to return from IR**\
 `Tagovailoa, who has been on IR since suffering a concussion in Week 2, is expected to practice Wednesday.`\
 https://nytimes.com/athletic/5860949/2024/10/21/tua-tagovailoa-return-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860925/2024/10/21/kenny-dillingham-airzona-state-k
 **Final thoughts and bold predictions as fantasy basketball 2024-25 is set for tipoff**\
 `Eric Wong shares his final preseason thoughts and predictions for the upcoming season as fantasy basketball 2024-25 is set to tipoff.`\
 https://nytimes.com/athletic/5858412/2024/10/21/fantasy-basketball-predictions-deep-sleepers-final-thoughts/
-
-**The Lawsuits Against Sean Combs**\
-`The music mogul, who faces federal sex trafficking and racketeering charges, has been accused in civil court of raping and drugging people. He has denied the allegations.`\
-https://nytimes.com/article/sean-combs-diddy-lawsuits-accusations.html
 
