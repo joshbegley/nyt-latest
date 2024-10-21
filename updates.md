@@ -1,3 +1,7 @@
+**Giants' lifeless effort vs. Eagles calls everything into question — QB, coach, all of it**\
+`The Giants have scored one touchdown in four home games this season. They’ve averaged 7.8 points in their four losses at MetLife Stadium.`\
+https://nytimes.com/athletic/5858198/2024/10/20/giants-lifeless-loss-eagles-daboll-daniel-jones/
+
 **The devil's in the details, and Vikings come up short vs. Lions as a result**\
 `The Vikings nearly came back to defeat a talented Lions team, but small, niggling mistakes ruined their chance at a signature win.`\
 https://nytimes.com/athletic/5858338/2024/10/20/vikings-loss-offense-mistakes-penalties/
