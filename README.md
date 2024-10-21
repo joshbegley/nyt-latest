@@ -1,3 +1,19 @@
+**When Critic vs. Choreographer Ignited a Cultural Firestorm**\
+`Thirty years ago, Bill T. Jones presented “Still/Here,” and the critic Arlene Croce responded with an explosive essay. Now the work is returning to the Brooklyn Academy.`\
+https://nytimes.com/2024/10/21/arts/dance/still-here-bill-t-jones-arlene-croce.html
+
+**Scoop City: Risers and fallers after Week 7**\
+`A quick look at the risers (Lions, Chiefs and Commanders), fallers (Anthony Richardson), and the two WR debuts after Sunday's games.  `\
+https://nytimes.com/athletic/5860497/2024/10/21/scoop-city-risers-and-fallers-after-week-7/
+
+**MRI confirms Deshaun Watson suffered season-ending Achilles rupture**\
+`Watson will need surgery and the next steps are still to be determined.`\
+https://nytimes.com/athletic/5860484/2024/10/21/deshaun-watson-injury-achilles-season-ending-browns/
+
+**Andrew V. Schally, 97, Dies; Scientist Shared Nobel Glory With Rival**\
+`His two-decade quest to find elusive brain hormones became a race against Roger Guillemin, a onetime colleague and an eventual fellow prizewinner.`\
+https://nytimes.com/2024/10/21/science/andrew-v-schally-dead.html
+
 **Ralph Jennings, 86, Dies; Built Up Fordham’s Public Radio Station**\
 `He transformed WFUV from “a sandbox” into a professional operation, increasing its listenership nearly tenfold.`\
 https://nytimes.com/2024/10/21/business/media/ralph-jennings-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5859768/2024/10/21/jacksonville-jaguars-london-futu
 **Which 2025 NFL Draft prospects stood out during Georgia's upset of Texas?**\
 `Trevor Etienne scored three touchdowns, while Georgia's loaded front seven put in serious work. What's it all mean for the 2025 draft?`\
 https://nytimes.com/athletic/5858336/2024/10/21/nfl-draft-2025-georgia-texas/
-
-**Women's footballers call on FIFA to end Saudi oil partnership**\
-`A letter signed by over 100 professional women&#8217;s footballers has called on FIFA to drop its partnership with Saudi Arabian oil company Aramco.`\
-https://nytimes.com/athletic/5859639/2024/10/21/saudi-fifa-sponsor-protest/
-
-**Mental Illness Raises the Risk of Severe Covid. The Question Is: Why?**\
-`People with psychiatric conditions are more likely to be hospitalized or die of the virus. Scientists have ideas about why that might be the case.`\
-https://nytimes.com/2024/10/21/well/covid-mental-health-anxiety-depression.html
-
-**An Easy, Five-Star Salad to Convert the Lentil-Skeptical**\
-`Paired with roasted sweet potatoes, tossed in a brown butter vinaigrette and showered with tangy goat cheese, the humble lentil becomes “absolutely superb.”`\
-https://nytimes.com/2024/10/21/dining/an-easy-five-star-salad-to-convert-the-lentil-skeptical.html
-
-**Here they go again — the Ducks are making life difficult for Lukáš Dostál in goal**\
-`Filling in for John Gibson, Dostál is giving the Ducks what they need, but he's not getting support.`\
-https://nytimes.com/athletic/5859752/2024/10/21/lukas-dostal-ducks-goalie-gibson/
 
