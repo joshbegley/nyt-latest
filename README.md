@@ -1,3 +1,11 @@
+**In His Memoir, Aleksei Navalny Speaks From the Grave**\
+`The Russian opposition leader, who died in an Arctic penal colony earlier this year, tells the story of his struggle to wrest his country back from President Vladimir Putin.`\
+https://nytimes.com/2024/10/21/books/review/patriot-alexei-navalny.html
+
+**How a TV Hit Sparked Debate About Having Too Many Babies**\
+`The Sani family in northern Nigeria has six children, more than the parents can afford but fewer than their own parents had. Birthrates, and the decisions couples make about family size, are changing across Africa.`\
+https://nytimes.com/2024/10/21/world/africa/africa-nigeria-birthrate-fertility.html
+
 **Steelers' Wilson elevates Pickens in victory over Jets: Takeaways**\
 `With Wilson under center, Pickens posted a season-best in receiving yards and caught his first touchdown pass of the season.`\
 https://nytimes.com/athletic/5858092/2024/10/20/jets-steelers-takeaways-result/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/20/us/helicopter-crash-radio-tower-houston.html
 **Helicopter Crash Reported in Houston**\
 `Police officers urged onlookers to clear the site of the accident as smoke and fire filled the air.`\
 https://nytimes.com/video/us/100000009772500/helicopter-crash-houston-texas.html
-
-**49ers’ Ricky Pearsall goes from feel-good story to needed target in loss to Chiefs**\
-`Pearsall, making his NFL debut, was the 49ers' most targeted receiver after Brandon Aiyuk and Deebo Samuel left the game at halftime.`\
-https://nytimes.com/athletic/5858963/2024/10/20/49ers-ricky-pearsall-returns-loss-chiefs/
-
-**Jets' Xavier Newman stretchered off field vs. Steelers**\
-`Newman, 25, was taken to the University of Pittsburgh Hospital and is currently able to move his limbs, per the NBC broadcast.`\
-https://nytimes.com/athletic/5858965/2024/10/20/xavier-newman-jets-steelers-injury/
 
