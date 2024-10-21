@@ -1,3 +1,11 @@
+**Tiger Woods' return highlights inaugural TGL schedule**\
+`Woods, who underwent back surgery last month, is being promoted as making his TGL debut in the nascent league’s second week of competition.`\
+https://nytimes.com/athletic/5860118/2024/10/21/tiger-woods-return-tgl-schedule/
+
+**How to Sell a Haunted House (or Not)**\
+`Even the most skeptical real estate agents say they think twice about the existence of ghosts, especially after unusual encounters.`\
+https://nytimes.com/2024/10/21/realestate/selling-haunted-houses.html
+
 **Death Row Inmate in Shaken Baby Case Set to Testify in Texas House**\
 `Robert Roberson, whose execution was postponed last week, has been subpoenaed to appear on Monday before a committee of the State House.`\
 https://nytimes.com/2024/10/21/us/texas-robert-roberson-shaken-baby-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5859483/2024/10/21/canadiens-kaiden-guhle-injury/
 **Vietnam Revives Power-Sharing Arrangement With New President**\
 `The move restores a “four pillar” government structure that divides top-level duties to avoid the rise of a single strongman.`\
 https://nytimes.com/2024/10/21/world/asia/vietnam-president.html
-
-**Tennis Briefing: Casper Ruud speaks on human rights; season limps to conclusion**\
-`Players speak out, injury withdrawals continue, and a new tour stop for the United States.`\
-https://nytimes.com/athletic/5857912/2024/10/21/ruud-saudi-arabia-china-tennis-human-rights/
-
-**Sinwar Is Dead, but a Palestinian State Seems More Distant Than Ever**\
-`A two-state solution remains the goal of the United States and the West, but many in the region say the devastation in Gaza and the lack of effective Palestinian leadership make it a remote prospect.`\
-https://nytimes.com/2024/10/21/world/middleeast/sinwar-dead-palestinian-state.html
 
