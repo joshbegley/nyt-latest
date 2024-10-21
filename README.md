@@ -1,3 +1,7 @@
+**Full Time: A look at the NWSL playoff picture**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5862078/2024/10/21/kelley-ohara-nwsl-playoffs-full-time/
+
 **Padres' A.J. Preller discusses payroll, Mike Shildt's status and more in end-of-season call**\
 `Preller discussed a wide variety of topics in his Zoom call, as the Padres look to build on their 2024 season. `\
 https://nytimes.com/athletic/5861954/2024/10/21/san-diego-padres-2024-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5861723/2024/10/21/wild-marcus-foligno-yakov-trenin
 **Republican Official in Arizona Pleads Guilty in Election Certification Case**\
 `Peggy Judd, a county supervisor in Cochise County, a hotbed of election conspiracy theories, had tried to delay certifying the 2022 election results.`\
 https://nytimes.com/2024/10/21/us/politics/arizona-election-certification-guilty-plea.html
-
-**Bruce Feldman's Southern Miss coaching candidates: Who could be next for the Eagles?**\
-`Who's in the mix to be Southern Miss' next coach? Where the Eagles turn from here will be interesting.`\
-https://nytimes.com/athletic/5861812/2024/10/21/southern-miss-coaching-search-candidates/
 
