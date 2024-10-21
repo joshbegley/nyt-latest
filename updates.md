@@ -1,3 +1,19 @@
+**US Grand Prix: Submit your questions for our F1 mailbag**\
+`We're sure you've got plenty of questions for our F1 writers after an intriguing U.S. GP weekend. `\
+https://nytimes.com/athletic/5855753/2024/10/21/f1-mailbag-us-grand-prix/
+
+**The Deeply Personal Price Women Must Pay for Abortion Bans**\
+`Exceptions to save a mother’s life don’t matter when doctors fear performing the procedure.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/florida-abortion-ban-health
+
+**Can a Synthetic Voice Be Taught to Sing Opera?**\
+`“The Other Side of Silence,” a new work in development, is experimenting with giving operatic voice to a text-to-speech synthesizer.`\
+https://nytimes.com/2024/10/21/arts/music/other-side-of-silence-opera.html
+
+**Harris’s Faith, In and Outside the Black Church**\
+`Her biography embodies the multifaith, pluralistic and increasingly secular America she is bidding to lead.`\
+https://nytimes.com/2024/10/21/us/kamala-harris-religious-church.html
+
 **Israel Dismantles Iranian Spy Network and Arrests Seven People, Authorities Say**\
 `The suspects, all Israeli citizens, conducted intelligence missions for two years under the direction of two Iranian agents, the authorities said.`\
 https://nytimes.com/2024/10/21/world/middleeast/israel-iran-spying-arrests.html

@@ -1,3 +1,19 @@
+**US Grand Prix: Submit your questions for our F1 mailbag**\
+`We're sure you've got plenty of questions for our F1 writers after an intriguing U.S. GP weekend. `\
+https://nytimes.com/athletic/5855753/2024/10/21/f1-mailbag-us-grand-prix/
+
+**The Deeply Personal Price Women Must Pay for Abortion Bans**\
+`Exceptions to save a mother’s life don’t matter when doctors fear performing the procedure.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/florida-abortion-ban-health
+
+**Can a Synthetic Voice Be Taught to Sing Opera?**\
+`“The Other Side of Silence,” a new work in development, is experimenting with giving operatic voice to a text-to-speech synthesizer.`\
+https://nytimes.com/2024/10/21/arts/music/other-side-of-silence-opera.html
+
+**Harris’s Faith, In and Outside the Black Church**\
+`Her biography embodies the multifaith, pluralistic and increasingly secular America she is bidding to lead.`\
+https://nytimes.com/2024/10/21/us/kamala-harris-religious-church.html
+
 **Israel Dismantles Iranian Spy Network and Arrests Seven People, Authorities Say**\
 `The suspects, all Israeli citizens, conducted intelligence missions for two years under the direction of two Iranian agents, the authorities said.`\
 https://nytimes.com/2024/10/21/world/middleeast/israel-iran-spying-arrests.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5860433/2024/10/21/college-football-week-9-odds-sch
 **Why Severed Hands Are Haunting Contemporary Art**\
 `Painters and sculptors are exploring agency and femininity by depicting floating appendages.`\
 https://nytimes.com/2024/10/21/t-magazine/women-hands-art.html
-
-**Trey Murphy, Pelicans agree to 4-year, $112 million extension**\
-`The 24-year-old secures his place as part of the Pelicans' core around Zion Williamson.`\
-https://nytimes.com/athletic/5854587/2024/10/21/trey-murphy-pelicans-contract/
-
-**Winnipeg Jets mailbag: Submit your questions for Murat Ates**\
-`Got a question about the Winnipeg Jets? Submit it here and The Athletic’s Murat Ates will answer a selection in an upcoming mailbag.`\
-https://nytimes.com/athletic/5860621/2024/10/21/winnipeg-jets-mailbag-october-2024/
-
-**Mark Proksch, of ‘What We Do in the Shadows,’ Gets Into the Swing of It**\
-`As an “energy vampire,” the comic actor has been the most relatable menace in the FX comedy, which begins its final season.`\
-https://nytimes.com/2024/10/21/arts/television/mark-proksch-what-we-do-in-the-shadows.html
-
-**FPL: What we learned from Gameweek 8 - Son assist controversy and an FPL 'cartel'**\
-`Abdul Rehman breaks down the main talking points from Gameweek 8 so far in Fantasy Premier League`\
-https://nytimes.com/athletic/5857700/2024/10/21/fantasy-premier-league-gameweek-8-son-saka/
 
