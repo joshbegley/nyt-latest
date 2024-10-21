@@ -1,3 +1,11 @@
+**Barcelona 5 Sevilla 1: Lewandowski scores again, Gavi's emotional return, classy Cubarsi**\
+`Barcelona protected their three-point lead at the top of La Liga with another emphatic victory on Sunday night`\
+https://nytimes.com/athletic/5858173/2024/10/21/barcelona-lewandowski-gavi-flick-sevilla-cubarsi-la-liga/
+
+**Mets' magic runs out a pair of wins away from the World Series**\
+`The Mets surrendered 46 runs over six games — more than any other National League team has ever surrendered in a series.`\
+https://nytimes.com/athletic/5859438/2024/10/21/mets-season-ends-loss-dodgers-nlcs/
+
 **Tommy Edman completes Dodgers roster, captures NLCS MVP: ‘The ultimate professional’**\
 `Before acquiring Tommy Edman at the trade deadline, the Dodgers had sought after him for years. That pursuit paid off big in the NLCS.`\
 https://nytimes.com/athletic/5859441/2024/10/21/tommy-edman-dodgers-nlcs-mvp/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5856408/2024/10/21/manchester-united-tactics-attack
 **Did someone say over/under? Best NBA win total bets for every team**\
 `Zach Harper predicts every NBA team's win total before the season kicks off. Read here for his bold predictions and best bets.`\
 https://nytimes.com/athletic/5852578/2024/10/21/nba-2024-2025-win-over-under-bets/
-
-**Keane is offering Everton a timely reminder of what he can do in both boxes**\
-`The defender has a useful knack of scoring goals and is showing he has plenty left to contribute at Goodison Park`\
-https://nytimes.com/athletic/5855381/2024/10/21/michael-keane-everton-sean-dyche/
-
-**Curtis Jones has become a father, kept Cole Palmer quiet and added some devil to his game**\
-`A show of resilience and grit against Chelsea helped Liverpool dig deep to regain top spot in the league. Jones epitomised those qualities`\
-https://nytimes.com/athletic/5857676/2024/10/21/curtis-jones-dad-liverpool-chelsea/
 
