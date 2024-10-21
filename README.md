@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5860922/2024/10/21/mlb-world-series-futures-props-o
 
 **Get the most out of The Athletic's NBA coverage**\
 `We know you're just as excited as us for this NBA season, and we promise to deliver.`\
-https://nytimes.com/athletic/5854139/2024/10/21/get-the-most-out-of-the-athletics-nba-coverage/
+https://nytimes.com/athletic/5854139/2024/10/21/nba-season-welcome/
 
 **College football national title odds: How Georgia and other contenders line up**\
 `Georgia has moved back into the top spot in the odds boards for national title favorite. How does the rest of the field stack up?`\
