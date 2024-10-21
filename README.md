@@ -26,6 +26,10 @@ https://nytimes.com/athletic/5852578/2024/10/21/nba-2024-2025-win-over-under-bet
 `The defender has a useful knack of scoring goals and is showing he has plenty left to contribute at Goodison Park`\
 https://nytimes.com/athletic/5855381/2024/10/21/michael-keane-everton-sean-dyche/
 
+**Curtis Jones has become a father, kept Cole Palmer quiet and added some devil to his game**\
+`A show of resilience and grit against Chelsea helped Liverpool dig deep to regain top spot in the league. Jones epitomised those qualities`\
+https://nytimes.com/athletic/5857676/2024/10/21/curtis-jones-dad-liverpool-chelsea/
+
 **Understanding why Manchester City are playing as they are - as explained by Guardiola**\
 `Manchester City are unbeaten in the Premier League and are just a point behind leaders Liverpool, but Pep Guardiola's side have an issue`\
 https://nytimes.com/athletic/5857316/2024/10/21/man-city-wolves-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857316/2024/10/21/man-city-wolves-analysis/
 **Spurs are becoming deadly on the break - maybe they should embrace counter-attacking**\
 `Ange Postecoglou is unlikely to make counter-attacking his primary approach but when Spurs are doing it, it's really working`\
 https://nytimes.com/athletic/5855519/2024/10/21/tottenham-fast-breaks-counter-attacks/
-
-**Attack has to be the best form of defence for Leicester City**\
-`Leicester defended woefully against Southampton but their attacking talent inspired them - Steve Cooper has to take the handbrake off`\
-https://nytimes.com/athletic/5856501/2024/10/21/leicester-city-steve-cooper-fatawu-attack/
 
