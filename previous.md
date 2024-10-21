@@ -1,3 +1,7 @@
+**John Kinsel Sr., Navajo Code Talker During World War II, Dies at 107**\
+`Mr. Kinsel, who served from October 1942 to January 1946, was part of the second group of Marines trained as code talkers at Camp Elliott, Calif., after the original 29 who developed the code for wartime use.`\
+https://nytimes.com/2024/10/20/us/navajo-code-talker-john-kinsel-dead.html
+
 **Quotation of the Day: How Halloween Retail Became Its Own Monster**\
 `Quotation of the Day for Monday, October 21, 2024.`\
 https://nytimes.com/2024/10/20/pageoneplus/quotation-of-the-day-how-halloween-retail-became-its-own-monster.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858163/2024/10/20/seahawks-win-falcons-mike-macdon
 **Why Lando Norris' U.S. Grand Prix penalty is an F1 title fight 'momentum killer'**\
 `Verstappen and Norris went wheel-to-wheel in their most spirited fight since the Austrian GP — avoiding contact this time, but not drama.`\
 https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstappen/
-
-**Rams' Kupp expected to return Thursday, McVay says**\
-`Kupp has not played since the Rams' Week 2 loss to the Arizona Cardinals.`\
-https://nytimes.com/athletic/5858327/2024/10/20/rams-cooper-kupp-injury-update-vikings/
 
