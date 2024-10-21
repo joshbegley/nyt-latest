@@ -1,3 +1,11 @@
+**The Windup: A classic (yet new) World Series**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5860579/2024/10/21/dodgers-yankees-world-series-shohei-ohtani-the-windup/
+
+**A Biden envoy says implementing a U.N. resolution is the only path to Israel-Hezbollah peace.**\
+`Amos Hochstein’s visit to Beirut is part of a renewed`\
+https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/a-biden-envoy-says-implementing-a-un-resolution-is-the-only-path-to-israel-hezbollah-peace
+
 **How Employee Wellbeing Became a Key Driver For Growth**\
 `Can improving employee wellbeing make a real difference to the bottom line?`\
 https://nytimes.com/paidpost/indeed/how-employee-wellbeing-became-a-key-driver-for-growth.html
