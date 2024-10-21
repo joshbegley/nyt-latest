@@ -1,3 +1,7 @@
+**Curtis Jones has become a father, kept Cole Palmer quiet and added some devil to his game**\
+`A show of resilience and grit against Chelsea helped Liverpool dig deep to regain top spot in the league. Jones epitomised those qualities`\
+https://nytimes.com/athletic/5857676/2024/10/21/curtis-jones-dad-liverpool-chelsea/
+
 **Austin Arrives in Kyiv in Support of Ukraine’s War Effort**\
 `The trip by the U.S. defense secretary comes as Russian forces steadily gain territory in eastern Ukraine.`\
 https://nytimes.com/2024/10/21/world/europe/austin-kyiv-ukraine.html
