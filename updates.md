@@ -1,3 +1,15 @@
+**The Briefing: Why we would all miss Salah and do Arsenal need to be braver?**\
+`Analysing the big Premier League weekend talking points — also featuring what to make of West Ham?`\
+https://nytimes.com/athletic/5857597/2024/10/21/mohamed-salah-future-arsenal-tactics/
+
+**Despite injury to Jayden Daniels, Commanders all smiles after throttling Panthers**\
+`The rookie QB suffered a rib injury in the first quarter against Carolina and didn't return, but the team continued to shine in his absence.`\
+https://nytimes.com/athletic/5858880/2024/10/21/commanders-win-panthers-jayden-daniels-injury/
+
+**Thomas Tuchel is a symptom, not a cause, of English football's coaching problems**\
+`English football has had an unprecedented decade of development but it needs time and a culture change for coaching to catch up`\
+https://nytimes.com/athletic/5853035/2024/10/21/thomas-tuchel-english-coaches-pathway/
+
 **The tragedy of Matija Sarkic - and what Millwall did next**\
 `The inside story of how the Championship club dealt with the trauma of their popular goalkeeper dying suddenly this summer at age 26`\
 https://nytimes.com/athletic/5849788/2024/10/21/matija-sarkic-millwall-legacy/
