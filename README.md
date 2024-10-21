@@ -1,3 +1,11 @@
+**Houston Authorities Respond to Report of Helicopter Crashing Into Radio Tower**\
+`The Houston fire and police departments said they were responding. Videos circulating on social media appeared to show the fiery aftermath.`\
+https://nytimes.com/2024/10/20/us/helicopter-crash-radio-tower-houston.html
+
+**Helicopter Crash Reported in Houston**\
+`Police officers urged onlookers to clear the site of the accident as smoke and fire filled the air.`\
+https://nytimes.com/video/us/100000009772500/helicopter-crash-houston-texas.html
+
 **49ers’ Ricky Pearsall goes from feel-good story to needed target in loss to Chiefs**\
 `Pearsall, making his NFL debut, was the 49ers' most targeted receiver after Brandon Aiyuk and Deebo Samuel left the game at halftime.`\
 https://nytimes.com/athletic/5858963/2024/10/20/49ers-ricky-pearsall-returns-loss-chiefs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5858602/2024/10/20/gotham-uswnt-kelley-ohara-farewe
 **Lloyd: The Deshaun Watson era is over. Why Dorian Thompson-Robinson should be QB for now**\
 `The most polarizing, divisive era in the history of the Cleveland Browns has mercifully ended. The damage is only beginning.`\
 https://nytimes.com/athletic/5858495/2024/10/20/deshaun-watson-browns-injury-dorian-thomspon-robinson/
-
-**As boos rained down, Saquon Barkley ran all over the Giants in his return**\
-`The star running back — and a suffocating pass rush — added up to a dominant Eagles victory.`\
-https://nytimes.com/athletic/5857259/2024/10/20/eagles-win-saquon-barkley-giants-return/
-
-**Panthers have no answers right now. Could a staff shakeup or fire sale be in order?**\
-`The Panthers are allowing a staggering number of points and are in the middle of a seventh consecutive, non-playoff season. `\
-https://nytimes.com/athletic/5858730/2024/10/20/carolina-panthers-bad-loss-trade-deadline/
 
