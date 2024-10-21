@@ -1,3 +1,7 @@
+**Vietnam Revives Power-Sharing Arrangement With New President**\
+`The move restores a “four pillar” government structure that divides top-level duties to avoid the rise of a single strongman.`\
+https://nytimes.com/2024/10/21/world/asia/vietnam-president.html
+
 **Tennis Briefing: Casper Ruud speaks on human rights; season limps to conclusion**\
 `Players speak out, injury withdrawals continue, and a new tour stop for the United States.`\
 https://nytimes.com/athletic/5857912/2024/10/21/ruud-saudi-arabia-china-tennis-human-rights/
