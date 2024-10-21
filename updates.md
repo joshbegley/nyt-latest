@@ -1,3 +1,7 @@
+**Rockets, Şengün agree to 5-year, $185 million extension: Sources**\
+`With this deal and one for fellow 2021 draft class member Jalen Green, the Rockets have committed to their young core.`\
+https://nytimes.com/athletic/5861249/2024/10/21/alperen-sengun-rockets-contract-news-free-agent/
+
 **DK Metcalf 'week to week' with knee injury**\
 `The second-leading receiver in the NFL, Metcalf was carted to the locker room late in Sunday's win over the Falcons.`\
 https://nytimes.com/athletic/5861798/2024/10/21/dk-metcalf-injury-seahawks/
