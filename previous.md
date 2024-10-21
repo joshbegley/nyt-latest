@@ -1,3 +1,7 @@
+**Chiefs defense rattles the 49ers again, this time with the help of 2 rookies**\
+`Each of the Chiefs’ three interceptions came when coordinator Steve Spagnuolo had his secondary play man coverage.`\
+https://nytimes.com/athletic/5858970/2024/10/20/chiefs-defense-49ers-jaden-hicks-chris-roland-wallace/
+
 **Dock Collapse Kills Several in Georgia**\
 `Bystanders and rescue teams searched for victims after the gangway at a ferry dock in Sapelo Island collapsed into the water.`\
 https://nytimes.com/video/us/100000009772496/georgia-dock-collapse-sapelo-gulla-geechee.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858965/2024/10/20/xavier-newman-jets-steelers-inju
 **Josh Allen has grown as a game manager, and Sunday's win shows why that's crucial for Bills**\
 `Allen and the Bills didn't panic after a slow start against a bad team.`\
 https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/
-
-**Liberty oust Lynx in OT of Game 5 to capture first-ever WNBA title**\
-`With the win, New York took home its first-ever title after having lost five prior appearances in the WNBA Finals.`\
-https://nytimes.com/athletic/5858357/2024/10/20/lynx-liberty-wnba-finals-game-5-results-takeaways/
 

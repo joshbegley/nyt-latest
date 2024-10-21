@@ -1,3 +1,7 @@
+**Chiefs defense rattles the 49ers again, this time with the help of 2 rookies**\
+`Each of the Chiefs’ three interceptions came when coordinator Steve Spagnuolo had his secondary play man coverage.`\
+https://nytimes.com/athletic/5858970/2024/10/20/chiefs-defense-49ers-jaden-hicks-chris-roland-wallace/
+
 **Dock Collapse Kills Several in Georgia**\
 `Bystanders and rescue teams searched for victims after the gangway at a ferry dock in Sapelo Island collapsed into the water.`\
 https://nytimes.com/video/us/100000009772496/georgia-dock-collapse-sapelo-gulla-geechee.html
