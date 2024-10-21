@@ -1,3 +1,7 @@
+**What does the Blues' multiyear deal with Diamond Sports mean for their TV future?**\
+`The Blues recently agreed to a new deal to appear on FanDuel Sports Network Midwest. CEO Chris Zimmerman explains the rebranding.`\
+https://nytimes.com/athletic/5820811/2024/10/21/blues-fanduel-sports-network/
+
 **DK Metcalf 'week-to-week' with knee injury**\
 `The second-leading receiver in the NFL, Metcalf was carted to the locker room late in Sunday's win over the Falcons.`\
 https://nytimes.com/athletic/5861798/2024/10/21/dk-metcalf-injury-seahawks/

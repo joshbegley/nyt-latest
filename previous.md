@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5861734/2024/10/21/corey-kispert-wizards-contract-e
 `The repeated failure of the power grid and a hurricane that has swamped the island’s eastern end has many Cubans fed up, posing a challenge to the Communist government.`\
 https://nytimes.com/2024/10/21/world/americas/cuba-blackout-hurricane-oscar.html
 
-**What does the Blues' multiyear deal with Diamond Sports Group mean for team's TV future?**\
+**What does the Blues' multiyear deal with Diamond Sports mean for their TV future?**\
 `The Blues recently agreed to a new deal to appear on FanDuel Sports Network Midwest. CEO Chris Zimmerman explains the rebranding.`\
 https://nytimes.com/athletic/5820811/2024/10/21/blues-fanduel-sports-network/
 
