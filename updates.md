@@ -1,3 +1,7 @@
+**Central Park 5 Sue Trump for Defamation Over Debate Comments**\
+`Donald J. Trump’s remarks during the presidential debate are part of a “continuing pattern” of false statements designed to “make the men suffer,” the lawsuit charged.`\
+https://nytimes.com/2024/10/21/nyregion/trump-central-park-five-defamation-lawsuit.html
+
 **MLB World Series odds: Will Dodgers or Yankees be crowned in Fall Classic?**\
 `With a monster World Series starting Friday, we're checking in on the odds for winner, MVP and player props for Dodgers vs. Yankees.`\
 https://nytimes.com/athletic/5860922/2024/10/21/mlb-world-series-futures-props-odds-dodgers-yankees/
