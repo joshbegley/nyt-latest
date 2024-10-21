@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Israel escalates its attacks in Lebanon.`\
+https://nytimes.com/2024/10/21/briefing/donald-trump-israel-hezbollah-moldova-referendum.html
+
 **Harris Sets Record for Biggest Fund-Raising Quarter Ever**\
 `Donald Trump is raising less money than he did during his run in 2020, building a far smaller campaign than Kamala Harris.`\
 https://nytimes.com/2024/10/21/us/elections/harris-trump-campaign-finance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854880/2024/10/21/welbeck-brighton-injury-newcastl
 **Chelsea will keep coming up short in big games due to defensive weakness**\
 `Who is going to step up to be Chelsea's new John Terry or William Gallas?`\
 https://nytimes.com/athletic/5857400/2024/10/21/chelsea-defence-liverpool/
-
-**Want to understand Aston Villa's transformation under Unai Emery? Then study Lucas Digne**\
-`Two years ago, Villa lost to Fulham and Steve Gerrard left the club. Digne shows how much has changed since`\
-https://nytimes.com/athletic/5855127/2024/10/21/lucas-digne-unai-emery-fulham/
 

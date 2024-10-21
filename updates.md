@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Israel escalates its attacks in Lebanon.`\
+https://nytimes.com/2024/10/21/briefing/donald-trump-israel-hezbollah-moldova-referendum.html
+
 **Harris Sets Record for Biggest Fund-Raising Quarter Ever**\
 `Donald Trump is raising less money than he did during his run in 2020, building a far smaller campaign than Kamala Harris.`\
 https://nytimes.com/2024/10/21/us/elections/harris-trump-campaign-finance.html
