@@ -1,3 +1,7 @@
+**Chappell Roan’s Rocket-Ship Year**\
+`The pop star’s ascent has tested the boundaries of contemporary pop, and may create a template for a next generation.`\
+https://nytimes.com/2024/10/21/arts/music/popcast-chappell-roan.html
+
 **Fantasy Week 7 recap: With Mahomes, Richardson failing managers, add these 4 QBs**\
 `With some highly drafted QBs struggling to produce fantasy points (Hi there, Patrick Mahomes!) here are four QBs who can help rosters now.`\
 https://nytimes.com/athletic/5860063/2024/10/21/fantasy-football-week-7-recap-with-mahomes-richardson-failing-managers-add-these-4-qbs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5859770/2024/10/21/iran-security-travel-afc-champio
 **Dodgers vs. Yankees World Series preview: Predictions, pitching matchups and more**\
 `Our writers preview a World Series matchup between two of baseball's most storied franchises, with no shortage of star power and storylines.`\
 https://nytimes.com/athletic/5858593/2024/10/21/dodgers-yankees-2024-world-series-preview-predictions/
-
-**Israeli Military Targets Hezbollah-Affiliated Financial Arm**\
-`Israel launched airstrikes on several branches of Al-Qard al-Hasan, a financial association which U.S., Israeli and other officials accuse of operating as the banking arm of Hezbollah.`\
-https://nytimes.com/video/world/middleeast/100000009772768/israel-strike-lebanon-hezbollah.html
 

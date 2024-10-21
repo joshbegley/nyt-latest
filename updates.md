@@ -1,3 +1,7 @@
+**Chappell Roan’s Rocket-Ship Year**\
+`The pop star’s ascent has tested the boundaries of contemporary pop, and may create a template for a next generation.`\
+https://nytimes.com/2024/10/21/arts/music/popcast-chappell-roan.html
+
 **Fantasy Week 7 recap: With Mahomes, Richardson failing managers, add these 4 QBs**\
 `With some highly drafted QBs struggling to produce fantasy points (Hi there, Patrick Mahomes!) here are four QBs who can help rosters now.`\
 https://nytimes.com/athletic/5860063/2024/10/21/fantasy-football-week-7-recap-with-mahomes-richardson-failing-managers-add-these-4-qbs/
