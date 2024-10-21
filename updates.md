@@ -1,3 +1,7 @@
+**Padres' A.J. Preller discusses payroll, Mike Shildt's status and more in end-of-season call**\
+`Preller discussed a wide variety of topics in his Zoom call, as the Padres look to build on their 2024 season. `\
+https://nytimes.com/athletic/5861954/2024/10/21/san-diego-padres-2024-takeaways/
+
 **What Is the U.N. Resolution That Tried and Failed to Keep the Peace in Lebanon?**\
 `U.N. Security Council Resolution 1701 was intended to create a buffer zone between Israel and Hezbollah. Here’s a look at why it didn’t and what lies ahead in efforts to end the conflict in Lebanon.`\
 https://nytimes.com/2024/10/21/world/middleeast/un-resolution-1701-explained.html

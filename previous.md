@@ -1,3 +1,7 @@
+**Padres' A.J. Preller discusses payroll, Mike Shildt's status and more in end-of-season call**\
+`Preller discussed a wide variety of topics in his Zoom call, as the Padres look to build on their 2024 season. `\
+https://nytimes.com/athletic/5861954/2024/10/21/san-diego-padres-2024-takeaways/
+
 **What Is the U.N. Resolution That Tried and Failed to Keep the Peace in Lebanon?**\
 `U.N. Security Council Resolution 1701 was intended to create a buffer zone between Israel and Hezbollah. Here’s a look at why it didn’t and what lies ahead in efforts to end the conflict in Lebanon.`\
 https://nytimes.com/2024/10/21/world/middleeast/un-resolution-1701-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/us/politics/arizona-election-certification-guilty
 **Bruce Feldman's Southern Miss coaching candidates: Who could be next for the Eagles?**\
 `Who's in the mix to be Southern Miss' next coach? Where the Eagles turn from here will be interesting.`\
 https://nytimes.com/athletic/5861812/2024/10/21/southern-miss-coaching-search-candidates/
-
-**DK Metcalf 'week to week' with knee injury**\
-`The second-leading receiver in the NFL, Metcalf was carted to the locker room late in Sunday's win over the Falcons.`\
-https://nytimes.com/athletic/5861798/2024/10/21/dk-metcalf-injury-seahawks/
 
