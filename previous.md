@@ -1,3 +1,7 @@
+**The Athletic 134: The unbeaten team that can no longer be ignored**\
+`If the Big 12 wants to get two teams into the College Football Playoff, BYU would likely be one of them.`\
+https://nytimes.com/athletic/5858678/2024/10/21/college-football-fbs-team-rankings-byu/
+
 **Why Sabalenka replaced Swiatek as world number one in the WTA rankings**\
 `The Belarusian has had a sterling season, but her official ascent to the top came about through a WTA rule.`\
 https://nytimes.com/athletic/5859606/2024/10/21/sabalenka-world-number-1-swiatek-wta-rules/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/learning/word-of-the-day-exodus.html
 **Barcelona 5 Sevilla 1: Lewandowski scores again, Gavi's emotional return, classy Cubarsi**\
 `Barcelona protected their three-point lead at the top of La Liga with another emphatic victory on Sunday night`\
 https://nytimes.com/athletic/5858173/2024/10/21/barcelona-lewandowski-gavi-flick-sevilla-cubarsi-la-liga/
-
-**Mets' magic runs out a pair of wins away from the World Series**\
-`The Mets surrendered 46 runs over six games — more than any other National League team has ever surrendered in a series.`\
-https://nytimes.com/athletic/5859438/2024/10/21/mets-season-ends-loss-dodgers-nlcs/
 

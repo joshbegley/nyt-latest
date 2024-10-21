@@ -1,3 +1,7 @@
+**The Athletic 134: The unbeaten team that can no longer be ignored**\
+`If the Big 12 wants to get two teams into the College Football Playoff, BYU would likely be one of them.`\
+https://nytimes.com/athletic/5858678/2024/10/21/college-football-fbs-team-rankings-byu/
+
 **Why Sabalenka replaced Swiatek as world number one in the WTA rankings**\
 `The Belarusian has had a sterling season, but her official ascent to the top came about through a WTA rule.`\
 https://nytimes.com/athletic/5859606/2024/10/21/sabalenka-world-number-1-swiatek-wta-rules/
