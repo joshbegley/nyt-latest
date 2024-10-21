@@ -1,3 +1,15 @@
+**Warriors, Moody agree to 3-year, $39 million extension**\
+`The deal keeps Moody under team control at a reasonable price for the next four seasons.`\
+https://nytimes.com/athletic/5858648/2024/10/20/moses-moody-warriors-extension/
+
+**Trotter: Deshaun Watson injury is latest (final?) chapter in an awful story**\
+`My immediate action was empathy. Seeing Watson carted off, tears in his eyes, it was a powerful image. But there were other images.`\
+https://nytimes.com/athletic/5858328/2024/10/20/deshaun-watson-browns-injury/
+
+**If Lions had any doubters, Vikings win provided reassurance this team is among NFL's best**\
+`A week after losing one of their best players, the Lions took down the undefeated Vikings.`\
+https://nytimes.com/athletic/5858164/2024/10/20/lions-win-vikings-dan-campbell-doubters/
+
 **John Kinsel Sr., Navajo Code Talker During World War II, Dies at 107**\
 `Mr. Kinsel, who served from October 1942 to January 1946, was part of the second group of Marines trained as code talkers at Camp Elliott, Calif., after the original 29 who developed the code for wartime use.`\
 https://nytimes.com/2024/10/20/us/navajo-code-talker-john-kinsel-dead.html
