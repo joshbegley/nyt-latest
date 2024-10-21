@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5860949/2024/10/21/tua-tagovailoa-return-dolphins/
 `Federal and state researchers said there might be five million to 19 million tons of lithium, more than enough to meet the world’s demand for the battery ingredient.`\
 https://nytimes.com/2024/10/21/business/energy-environment/arkansas-lithium-ev-batteries.html
 
-**MLB World Series futures odds: Will Dodgers or Yankees be crowned in Fall Classic?**\
+**MLB World Series odds: Will Dodgers or Yankees be crowned in Fall Classic?**\
 `With a monster World Series starting Friday, we're checking in on the odds for winner, MVP and player props for Dodgers vs. Yankees.`\
 https://nytimes.com/athletic/5860922/2024/10/21/mlb-world-series-futures-props-odds-dodgers-yankees/
 

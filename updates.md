@@ -1,3 +1,7 @@
+**MLB World Series odds: Will Dodgers or Yankees be crowned in Fall Classic?**\
+`With a monster World Series starting Friday, we're checking in on the odds for winner, MVP and player props for Dodgers vs. Yankees.`\
+https://nytimes.com/athletic/5860922/2024/10/21/mlb-world-series-futures-props-odds-dodgers-yankees/
+
 **Arizona Fall League reports: Ethan Salas, Termarr Johnson, Colt Emerson and more**\
 `Notes on prospects, including Thomas Saggese, Moises Ballesteros, Edwin Arroyo, Jac Caglianone, Chase DeLauter and many more.`\
 https://nytimes.com/athletic/5860771/2024/10/21/arizona-fall-league-scouting-ethan-salas-termarr-johnson/
