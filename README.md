@@ -1,3 +1,19 @@
+**Thompson: The 49ers, in a world of hurt, need Brock Purdy to level up**\
+`A 49ers team with Super Bowl aspirations is now 3-4 and banged up. Now's the time for Brock Purdy to take his game to another level.`\
+https://nytimes.com/athletic/5859755/2024/10/21/brock-purdy-san-francisco-49ers-super-bowl-chiefs-mahomes/
+
+**Elon Musk’s $1 Million Giveaways Test the Bounds of Election Law**\
+`Legal experts question the billionaire’s plan to hand out huge payments in battleground states as part of a get-out-the-vote drive.`\
+https://nytimes.com/2024/10/21/business/dealbook/elon-musk-voter-giveaway-trump.html
+
+**Five things we've learned about the Senators after 5 games**\
+`Five games do not dictate whether a team will make the playoffs, but here are some notes we've taken through the Sens' opening stretch.`\
+https://nytimes.com/athletic/5854029/2024/10/21/senators-linus-ullmark-tim-stutzle-jake-sanderson/
+
+**The Athletic FC: Were all the big VAR calls correct? Plus: MLS Decision Day fallout**\
+`Today in TAFC: Were all the big VAR calls correct in the EPL? Plus: Decision Day fallout and Messi's Miami get a pass to the Club World Cup.`\
+https://nytimes.com/athletic/5859790/2024/10/21/var-arsenal-man-city-messi-club-world-cup/
+
 **Read the Task Force’s Report**\
 `The House task force on the attempted assassinations of former President Donald J. Trump released its first preliminary report.`\
 https://nytimes.com/interactive/2024/10/21/us/task-force-interim-staff-report-10212024.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5859712/2024/10/21/inside-newcastle-qa-brighton-how
 **Introducing NBA Reliability Tiers: Which stars can be counted on the most in regular season?**\
 `The rankings observe the players who meet the NBA's "star" requirements by merging All-NBA and All-Star appearances of the last three years.`\
 https://nytimes.com/athletic/5852478/2024/10/21/nba-player-rankings-tiers-reliability-introduction/
-
-**U.S. Missile Defense System Arrives in Israel**\
-`The Terminal High Altitude Area Defense system was in place, Defense Secretary Lloyd J. Austin III said on Monday. The deployment comes as Israel prepares for retaliatory attacks against Iran.`\
-https://nytimes.com/2024/10/21/world/middleeast/israel-thaad-missile-defense.html
-
-**Lowetide: Is there reason for concern in Oilers winger Zach Hyman's slow start?**\
-`Hyman scored a career high 54 goals last season but through six games in 2024-25 he has none.`\
-https://nytimes.com/athletic/5857320/2024/10/21/edmonton-oilers-zach-hyman-stats-slow/
-
-**After sloppy loss to the Rams, it's clear these Raiders are headed nowhere**\
-`Between injuries and the lack of a bona fide starting quarterback, it's time for the Raiders to start thinking about the future.`\
-https://nytimes.com/athletic/5858475/2024/10/21/raiders-loss-rams-gardner-minshew-antonio-pierce/
-
-**WSL Briefing: Brighton are ready to push on, Kaneryd sparkles again for Chelsea**\
-`Brighton impressed against Manchester United in front of a record crowd, while Kaneryd scored twice in Chelsea's rout of Tottenham`\
-https://nytimes.com/athletic/5858414/2024/10/21/wsl-brighton-man-united-chelsea-kaneryd/
 
