@@ -1,3 +1,11 @@
+**Rockets, Jalen Green agree to 3-year, $106 million extension**\
+`Green, 22, cements his place as part of an exciting Rockets young core that is looking to get back to the postseason.`\
+https://nytimes.com/athletic/5861338/2024/10/21/jalen-green-rockets-extension/
+
+**Brazilian Fossil Hints at Older Origin for All Dinosaurs**\
+`The discovery may push back the emergence of the reptiles that once ruled the Earth, and clarify how dinosaurs like the Triceratops and Stegosaurus emerged.`\
+https://nytimes.com/2024/10/21/science/oldest-dinosaur-brazil-fossil.html
+
 **Commanders' Jayden Daniels considered 'week to week' with rib injury**\
 `The Commanders, and possibly Daniels, will face Caleb Williams and the Chicago Bears in Week 8.`\
 https://nytimes.com/athletic/5861295/2024/10/21/commanders-jayden-daniels-rib-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5861122/2024/10/21/colts-vikings-flex-schedule-week
 **Jeff Bezos and Jessica Chastain Toast a Daring ‘Sunset Boulevard’ on Broadway**\
 `A stripped-back revival of the classic musical, starring the singer Nicole Scherzinger, opened at the St. James Theater on Sunday night.`\
 https://nytimes.com/2024/10/21/style/sunset-boulevard-nicole-scherzinger-broadway.html
-
-**People Keep Making These Six Mistakes About Inflation**\
-`Thanks to human nature, we misunderstand the pain, and sometimes the purpose, of rising prices.`\
-https://nytimes.com/2024/10/21/opinion/inflation-mistakes.html
-
-**NASCAR Las Vegas takeaways: Joey Logano and the No. 22 team do it again**\
-`Given a second life in these playoffs, Joey Logano made it count with a win Sunday in Las Vegas, securing his spot in the Championship 4.`\
-https://nytimes.com/athletic/5860590/2024/10/21/nascar-las-vegas-takeaways-joey-logano/
 
