@@ -1,3 +1,15 @@
+**The Briefing: Why we would all miss Salah and do Arsenal need to be braver?**\
+`Analysing the big Premier League weekend talking points — also featuring what to make of West Ham?`\
+https://nytimes.com/athletic/5857597/2024/10/21/mohamed-salah-future-arsenal-tactics/
+
+**Despite injury to Jayden Daniels, Commanders all smiles after throttling Panthers**\
+`The rookie QB suffered a rib injury in the first quarter against Carolina and didn't return, but the team continued to shine in his absence.`\
+https://nytimes.com/athletic/5858880/2024/10/21/commanders-win-panthers-jayden-daniels-injury/
+
+**Thomas Tuchel is a symptom, not a cause, of English football's coaching problems**\
+`English football has had an unprecedented decade of development but it needs time and a culture change for coaching to catch up`\
+https://nytimes.com/athletic/5853035/2024/10/21/thomas-tuchel-english-coaches-pathway/
+
 **The tragedy of Matija Sarkic - and what Millwall did next**\
 `The inside story of how the Championship club dealt with the trauma of their popular goalkeeper dying suddenly this summer at age 26`\
 https://nytimes.com/athletic/5849788/2024/10/21/matija-sarkic-millwall-legacy/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/21/books/review/patriot-alexei-navalny.html
 **How a TV Hit Sparked Debate About Having Too Many Babies**\
 `The Sani family in northern Nigeria has six children, more than the parents can afford but fewer than their own parents had. Birthrates, and the decisions couples make about family size, are changing across Africa.`\
 https://nytimes.com/2024/10/21/world/africa/africa-nigeria-birthrate-fertility.html
-
-**Steelers' Wilson elevates Pickens in victory over Jets: Takeaways**\
-`With Wilson under center, Pickens posted a season-best in receiving yards and caught his first touchdown pass of the season.`\
-https://nytimes.com/athletic/5858092/2024/10/20/jets-steelers-takeaways-result/
-
-**Chiefs defense rattles the 49ers again, this time with the help of 2 rookies**\
-`Each of the Chiefs’ three interceptions came when coordinator Steve Spagnuolo had his secondary play man coverage.`\
-https://nytimes.com/athletic/5858970/2024/10/20/chiefs-defense-49ers-jaden-hicks-chris-roland-wallace/
-
-**Dock Collapse Kills Several in Georgia**\
-`Bystanders and rescue teams searched for victims after the gangway at a ferry dock in Sapelo Island collapsed into the water.`\
-https://nytimes.com/video/us/100000009772496/georgia-dock-collapse-sapelo-gulla-geechee.html
 
