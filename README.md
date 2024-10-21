@@ -1,3 +1,7 @@
+**Quotation of the Day: How Halloween Retail Became Its Own Monster**\
+`Quotation of the Day for Monday, October 21, 2024.`\
+https://nytimes.com/2024/10/20/pageoneplus/quotation-of-the-day-how-halloween-retail-became-its-own-monster.html
+
 **Giants' lifeless effort vs. Eagles calls everything into question — QB, coach, all of it**\
 `The Giants have scored one touchdown in four home games this season. They’ve averaged 7.8 points in their four losses at MetLife Stadium.`\
 https://nytimes.com/athletic/5858198/2024/10/20/giants-lifeless-loss-eagles-daboll-daniel-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstapp
 **Rams' Kupp expected to return Thursday, McVay says**\
 `Kupp has not played since the Rams' Week 2 loss to the Arizona Cardinals.`\
 https://nytimes.com/athletic/5858327/2024/10/20/rams-cooper-kupp-injury-update-vikings/
-
-**Yohe's 10 observations: Penguins' defensive futility strikes again in loss to Jets**\
-`The Penguins produced another defensive dud in a 6-3 loss to the Jets on Sunday in Winnipeg.`\
-https://nytimes.com/athletic/5857885/2024/10/20/penguins-defensive-futility-nedeljkovic-jets/
 
