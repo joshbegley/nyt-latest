@@ -1,3 +1,7 @@
+**Submit questions for our NFL Week 8 survivor mailbag**\
+`If you have a question about anything NFL survivor-related, submit it here for our survivor mailbag.`\
+https://nytimes.com/athletic/5860448/2024/10/21/questions-nfl-survivor-mailbag-week-8/
+
 **How the Jacksonville Jaguars secured their future at home and abroad**\
 `With investment in Florida and further afield, the Jaguars can look forward to a truly international future.`\
 https://nytimes.com/athletic/5859768/2024/10/21/jacksonville-jaguars-london-future/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/21/books/review/memoirs-title-search.htm
 **Moldovans, Very Narrowly, Choose to Look Toward Europe, Not Russia**\
 `A referendum that constitutionally enshrines a national objective to join the E.U. passed by a thin margin. The incumbent pro-E.U. president won the most votes in a concurrent election, but faces a runoff.`\
 https://nytimes.com/2024/10/21/world/europe/moldova-eu-referendum-vote-result.html
-
-**The Bounce: Who is your pick for 2024-25 NBA MVP?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5859958/2024/10/21/luka-doncic-nba-mvp-liberty-lynx-wnba-the-bounce/
 

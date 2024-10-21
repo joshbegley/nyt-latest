@@ -1,3 +1,7 @@
+**Submit questions for our NFL Week 8 survivor mailbag**\
+`If you have a question about anything NFL survivor-related, submit it here for our survivor mailbag.`\
+https://nytimes.com/athletic/5860448/2024/10/21/questions-nfl-survivor-mailbag-week-8/
+
 **How the Jacksonville Jaguars secured their future at home and abroad**\
 `With investment in Florida and further afield, the Jaguars can look forward to a truly international future.`\
 https://nytimes.com/athletic/5859768/2024/10/21/jacksonville-jaguars-london-future/
