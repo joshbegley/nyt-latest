@@ -1,3 +1,7 @@
+**Austin Arrives in Kyiv in Support of Ukraine’s War Effort**\
+`The trip by the U.S. defense secretary comes as Russian forces steadily gain territory in eastern Ukraine.`\
+https://nytimes.com/2024/10/21/world/europe/austin-kyiv-ukraine.html
+
 **What’s on TV This Week: ‘Seth Meyers: Dad Man Walking’ and Spooky Movies**\
 `The comedian’s standup special airs on HBO. Various networks show horror films.`\
 https://nytimes.com/2024/10/21/arts/television/whats-on-tv-this-week-seth-meyers-dad-man-walking-and-spooky-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855519/2024/10/21/tottenham-fast-breaks-counter-at
 **Attack has to be the best form of defence for Leicester City**\
 `Leicester defended woefully against Southampton but their attacking talent inspired them - Steve Cooper has to take the handbrake off`\
 https://nytimes.com/athletic/5856501/2024/10/21/leicester-city-steve-cooper-fatawu-attack/
-
-**Why Brighton will be hoping Danny Welbeck's injury isn't serious**\
-`Danny Welbeck is enjoying a purple patch and his goals have been instrumental in Brighton's promising start to the season`\
-https://nytimes.com/athletic/5854880/2024/10/21/welbeck-brighton-injury-newcastle/
 
