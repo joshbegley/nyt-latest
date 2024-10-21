@@ -1,3 +1,7 @@
+**Alabama football film study: Taking a closer look at what went wrong vs. Tennessee**\
+`The Crimson Tide lost 24-17 to Tennessee on Saturday. In the loss, glaring issues on the offense and defense surfaced.`\
+https://nytimes.com/athletic/5860066/2024/10/21/alabama-tennessee-college-football-review-film-study/
+
 **Canadiens weekly notebook: Guhle’s injury, Evans and Armia are PK perfect and more**\
 `Also in this week's notebook, Cole Caufield has found his sharp-angle touch, Lane Hutson lacks performance anxiety, and a look at Laval.`\
 https://nytimes.com/athletic/5859483/2024/10/21/canadiens-kaiden-guhle-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009772768/israel-strike-lebanon
 **Mike Tomlin vindicated, Russell Wilson 'excellent' in Steelers debut**\
 `Wilson got off to a slow start — there were even boos — but he knocked off the rust and the Steelers' offense found balance and efficiency.`\
 https://nytimes.com/athletic/5859545/2024/10/21/steelers-russell-wilson-debut-win-george-pickens/
-
-**Size, skating and stick: Video breakdown of Broberg's fast start with Blues**\
-`New Blues defenseman Philip Broberg has a point in each of his first six games and hasn't been on the ice for an even-strength goal against.`\
-https://nytimes.com/athletic/5857188/2024/10/21/blues-philip-broberg-video-breakdown/
 

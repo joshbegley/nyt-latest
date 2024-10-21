@@ -1,3 +1,7 @@
+**Alabama football film study: Taking a closer look at what went wrong vs. Tennessee**\
+`The Crimson Tide lost 24-17 to Tennessee on Saturday. In the loss, glaring issues on the offense and defense surfaced.`\
+https://nytimes.com/athletic/5860066/2024/10/21/alabama-tennessee-college-football-review-film-study/
+
 **Canadiens weekly notebook: Guhle’s injury, Evans and Armia are PK perfect and more**\
 `Also in this week's notebook, Cole Caufield has found his sharp-angle touch, Lane Hutson lacks performance anxiety, and a look at Laval.`\
 https://nytimes.com/athletic/5859483/2024/10/21/canadiens-kaiden-guhle-injury/
