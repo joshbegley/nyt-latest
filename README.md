@@ -1,3 +1,11 @@
+**All-LCS Team: Mookie Betts, Juan Soto, Tommy Edman deliver for pennant winners**\
+`The position players, starters and relievers who excelled for the Guardians, Mets, Dodgers and Yankees in the League Championship Series`\
+https://nytimes.com/athletic/5860352/2024/10/21/mlb-all-league-championship-series-team/
+
+**NFL flexes Colts-Vikings to 'Sunday Night Football' in Week 9**\
+`The Jaguars-Eagles matchup has been moved to 4:05 p.m. ET on Nov. 3.`\
+https://nytimes.com/athletic/5861122/2024/10/21/colts-vikings-flex-schedule-week-9/
+
 **Jeff Bezos and Jessica Chastain Toast a Daring ‘Sunset Boulevard’ on Broadway**\
 `A stripped-back revival of the classic musical, starring the singer Nicole Scherzinger, opened at the St. James Theater on Sunday night.`\
 https://nytimes.com/2024/10/21/style/sunset-boulevard-nicole-scherzinger-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/21/nyregion/trump-central-park-five-defamation-lawsu
 **Arizona Fall League reports: Ethan Salas, Termarr Johnson, Colt Emerson and more**\
 `Notes on prospects, including Thomas Saggese, Moises Ballesteros, Edwin Arroyo, Jac Caglianone, Chase DeLauter and many more.`\
 https://nytimes.com/athletic/5860771/2024/10/21/arizona-fall-league-scouting-ethan-salas-termarr-johnson/
-
-**Dolphins designating Tua Tagovailoa to return from IR**\
-`Tagovailoa, who has been on IR since suffering a concussion in Week 2, is expected to practice Wednesday.`\
-https://nytimes.com/athletic/5860949/2024/10/21/tua-tagovailoa-return-dolphins/
-
-**Arkansas May Have Vast Lithium Reserves, Researchers Say**\
-`Federal and state researchers said there might be five million to 19 million tons of lithium, more than enough to meet the world’s demand for the battery ingredient.`\
-https://nytimes.com/2024/10/21/business/energy-environment/arkansas-lithium-ev-batteries.html
 
