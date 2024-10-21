@@ -1,3 +1,7 @@
+**Liz Cheney Campaigns for Harris**\
+`Appearing side by side at a campaign event in Michigan, the Republican former congresswoman expressed her support for Vice President Kamala Harris.`\
+https://nytimes.com/video/us/elections/100000009774584/liz-cheney-harris.html
+
 **Raiders sign QB Desmond Ridder: Could he be an option to start?**\
 `Raiders lost Aidan O'Connell to injury in Week 7 and Gardner Minshew has underwhelmed as the new QB1.`\
 https://nytimes.com/athletic/5862113/2024/10/21/raiders-sign-desmond-ridder/
