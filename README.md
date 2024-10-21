@@ -1,3 +1,7 @@
+**What Is Al-Qard al-Hasan, the Hezbollah-Linked Finance Group Targeted by Israel?**\
+`The de facto bank is the largest microcredit organization in a country where the traditional banking sector is in shambles.`\
+https://nytimes.com/2024/10/21/world/middleeast/israel-lebanon-hezbollah-bank.html
+
 **Could Barcelona really face Atletico Madrid in Miami this year?**\
 `Our team of writers from across the U.S. and Europe explain the likelihood of a La Liga match taking place in Miami this year`\
 https://nytimes.com/athletic/5861061/2024/10/21/barcelona-atletico-madrid-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/us/politics/trump-north-carolina-presser.html
 **Neymar makes return after 12 months out injured: 'I'm so happy'**\
 `Neymar made his return after 12 months out through injury when he appeared as a substitute for Al Hilal in their AFC Champions League game against Al-Ain on Monday.`\
 https://nytimes.com/athletic/5861334/2024/10/21/neymar-injury-al-hilal-return/
-
-**How Media Outlets on the Left and Right Covered Trump’s Stop at McDonald’s**\
-`Former President Donald J. Trump’s campaign event at a McDonalds in Pennsylvania was described by right-leaning outlets as a brilliant move. Left-leaning publications called it weird.`\
-https://nytimes.com/2024/10/21/business/media/trump-mcdonalds-media-coverage.html
 
