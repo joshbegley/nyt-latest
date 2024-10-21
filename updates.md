@@ -1,3 +1,11 @@
+**College football national title odds: How Georgia and other contenders line up**\
+`Georgia has moved back into the top spot in the odds boards for national title favorite. How does the rest of the field stack up?`\
+https://nytimes.com/athletic/5860741/2024/10/21/college-football-national-title-odds-georgia/
+
+**Cheney, With Harris, Tells Anti-Abortion Women It’s OK to Back Her**\
+`The Republican former congresswoman, long opposed to abortion rights, suggested as she campaigned with Vice President Kamala Harris that G.O.P. restrictions had gone overboard.`\
+https://nytimes.com/2024/10/21/us/politics/harris-liz-cheney-pennsylvania-michigan-wisconsin.html
+
 **Cowboys' McCarthy on Aikman's WR comments: 'They don't carry any weight with me'**\
 `Coach responds after Dallas' Week 7 bye to Hall of Famer's criticism of team's wide receivers. `\
 https://nytimes.com/athletic/5860828/2024/10/21/mike-mccarthy-troy-aikman-cowboys-receivers-comments/

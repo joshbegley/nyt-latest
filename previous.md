@@ -1,3 +1,11 @@
+**College football national title odds: How Georgia and other contenders line up**\
+`Georgia has moved back into the top spot in the odds boards for national title favorite. How does the rest of the field stack up?`\
+https://nytimes.com/athletic/5860741/2024/10/21/college-football-national-title-odds-georgia/
+
+**Cheney, With Harris, Tells Anti-Abortion Women It’s OK to Back Her**\
+`The Republican former congresswoman, long opposed to abortion rights, suggested as she campaigned with Vice President Kamala Harris that G.O.P. restrictions had gone overboard.`\
+https://nytimes.com/2024/10/21/us/politics/harris-liz-cheney-pennsylvania-michigan-wisconsin.html
+
 **Cowboys' McCarthy on Aikman's WR comments: 'They don't carry any weight with me'**\
 `Coach responds after Dallas' Week 7 bye to Hall of Famer's criticism of team's wide receivers. `\
 https://nytimes.com/athletic/5860828/2024/10/21/mike-mccarthy-troy-aikman-cowboys-receivers-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/world/2024/10/21/plight-of-hostages-held-by-hamas
 **The Scale of Destruction in Gaza**\
 `Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
 https://nytimes.com/issue/world/2024/10/21/the-scale-of-destruction-in-gaza
-
-**The Oct. 7 Attacks**\
-`Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
-https://nytimes.com/issue/world/2024/10/21/the-oct-7-attacks
-
-**Diplomatic Efforts to End the Conflict**\
-`Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
-https://nytimes.com/issue/world/2024/10/21/negotiations-between-israel-and-hamas
 
