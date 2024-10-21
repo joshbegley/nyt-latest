@@ -1,3 +1,7 @@
+**Josh Allen has grown as a game manager and Sunday's win shows why that's crucial for Bills**\
+`Josh Allen and the Bills didn't panic after a slow start against a bad team.`\
+https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/
+
 **Liberty oust Lynx in OT of Game 5 to capture first-ever WNBA title**\
 `With the win, New York took home its first-ever title after having lost five prior appearances in the WNBA Finals.`\
 https://nytimes.com/athletic/5858357/2024/10/20/lynx-liberty-wnba-finals-game-5-results-takeaways/

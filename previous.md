@@ -1,3 +1,7 @@
+**Josh Allen has grown as a game manager and Sunday's win shows why that's crucial for Bills**\
+`Josh Allen and the Bills didn't panic after a slow start against a bad team.`\
+https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/
+
 **Liberty oust Lynx in OT of Game 5 to capture first-ever WNBA title**\
 `With the win, New York took home its first-ever title after having lost five prior appearances in the WNBA Finals.`\
 https://nytimes.com/athletic/5858357/2024/10/20/lynx-liberty-wnba-finals-game-5-results-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/theater/sunset-boulevard-review.html
 **Why Sunday's loss could lead to Raiders' pushing the desperation button at QB**\
 `There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
 https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
-
-**Growing pains are real for Colts' Anthony Richardson, but they're easier to endure in a win**\
-`These are the bumps in the road the Colts signed up for when they drafted someone so young and inexperienced fourth overall in 2023.`\
-https://nytimes.com/athletic/5858329/2024/10/20/colts-win-anthony-richardson-growing-pains/
 
