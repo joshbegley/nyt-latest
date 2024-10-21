@@ -1,3 +1,11 @@
+**Israel Dismantles Iranian Spy Network and Arrests Seven People, Authorities Say**\
+`The suspects, all Israeli citizens, conducted intelligence missions for two years under the direction of two Iranian agents, the authorities said.`\
+https://nytimes.com/2024/10/21/world/middleeast/israel-iran-spying-arrests.html
+
+**USMNT Player Tracker: The walking wounded return, Pulisic unstoppable and Sargent's sore head**\
+`Joe Scally wins his head-to-head with compatriot Lennard Maloney, while the Aaronson brothers had victories to savour in this week's roundup`\
+https://nytimes.com/athletic/5860357/2024/10/21/usmnt-pulisic-weah-adams-sargent-tracker/
+
 **‘Blade Runner 2049’ Producers Sue Elon Musk Over ‘Robotaxi’ Imagery**\
 `Alcon Entertainment, the Hollywood company behind “Blade Runner 2049,” said it had denied a request to use images from the movie but that Mr. Musk did so anyway.`\
 https://nytimes.com/2024/10/21/business/media/elon-musk-alcon-entertainment-robotaxi-lawsuit.html
@@ -30,8 +38,3 @@ https://nytimes.com/2024/10/21/arts/television/mark-proksch-what-we-do-in-the-sh
 `Abdul Rehman breaks down the main talking points from Gameweek 8 so far in Fantasy Premier League`\
 https://nytimes.com/athletic/5857700/2024/10/21/fantasy-premier-league-gameweek-8-son-saka/
 
-**‘Monotonous and Filthy’: Paul Whelan’s Life in a Russian Prison**\
-`The former U.S. Marine describes the moment of his arrest and the long years waiting for his release.`\
-https://nytimes.com/2024/10/21/world/europe/paul-whelan-russia-prisoner-swap.html
-
-**You Don’t Need a New Phone. Here’s How to Make the One You Have Last Longer. **\
