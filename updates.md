@@ -1,3 +1,11 @@
+**Welcome to John Mara's nightmare: Eagles' Saquon Barkley shreds Giants in return to MetLife**\
+`An embarrassing home loss to a hated rival spearheaded by the superstar his team let walk out the door — Mara just lived his nightmare.`\
+https://nytimes.com/athletic/5858214/2024/10/20/giants-nightmare-loss-saquon-barkley-eagles/
+
+**Seahawks deliver 'team win' over Falcons, validate Mike MacDonald's steady message**\
+`Seattle snapped a three-game losing streak by forcing three Kirk Cousins turnovers and taking control of the game late.`\
+https://nytimes.com/athletic/5858163/2024/10/20/seahawks-win-falcons-mike-macdonald/
+
 **Why Lando Norris' U.S. Grand Prix penalty is an F1 title fight 'momentum killer'**\
 `Verstappen and Norris went wheel-to-wheel in their most spirited fight since the Austrian GP — avoiding contact this time, but not drama.`\
 https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstappen/
