@@ -1,3 +1,23 @@
+**Plight of Hostages Held by Hamas**\
+`Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
+https://nytimes.com/issue/world/2024/10/21/plight-of-hostages-held-by-hamas
+
+**The Scale of Destruction in Gaza**\
+`Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
+https://nytimes.com/issue/world/2024/10/21/the-scale-of-destruction-in-gaza
+
+**The Oct. 7 Attacks**\
+`Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
+https://nytimes.com/issue/world/2024/10/21/the-oct-7-attacks
+
+**Diplomatic Efforts to End the Conflict**\
+`Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
+https://nytimes.com/issue/world/2024/10/21/negotiations-between-israel-and-hamas
+
+**As Harris Courts Sun Belt, Housing Costs Stand in Her Way**\
+`Shuttered factories and trade deals helped turn working-class Midwesterners against Democrats. Will the high cost of housing do the same in the Sun Belt?`\
+https://nytimes.com/2024/10/21/us/politics/2024-campaign-las-vegas-nevada-housing.html
+
 **The Captain Jack Sparrow of Baking**\
 `A breakout contestant on “The Great British Baking Show” is drawing style comparisons to characters from “Pirates of the Caribbean,” “The Princess Bride” and more.`\
 https://nytimes.com/2024/10/21/style/dylan-bachelet-great-british-baking-show.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/florida-abortion-ban-health
 **Can a Synthetic Voice Be Taught to Sing Opera?**\
 `“The Other Side of Silence,” a new work in development, is experimenting with giving operatic voice to a text-to-speech synthesizer.`\
 https://nytimes.com/2024/10/21/arts/music/other-side-of-silence-opera.html
-
-**Harris’s Faith, In and Outside the Black Church**\
-`Her biography embodies the multifaith, pluralistic and increasingly secular America she is bidding to lead.`\
-https://nytimes.com/2024/10/21/us/kamala-harris-religious-church.html
-
-**Israel Dismantles Iranian Spy Network and Arrests Seven People, Authorities Say**\
-`The suspects, all Israeli citizens, conducted intelligence missions for two years under the direction of two Iranian agents, the authorities said.`\
-https://nytimes.com/2024/10/21/world/middleeast/israel-iran-spying-arrests.html
-
-**USMNT Player Tracker: The walking wounded return, Pulisic unstoppable and Sargent's sore head**\
-`Joe Scally wins his head-to-head with compatriot Lennard Maloney, while the Aaronson brothers had victories to savour in this week's roundup`\
-https://nytimes.com/athletic/5860357/2024/10/21/usmnt-pulisic-weah-adams-sargent-tracker/
-
-**‘Blade Runner 2049’ Producers Sue Elon Musk Over ‘Robotaxi’ Imagery**\
-`Alcon Entertainment, the Hollywood company behind “Blade Runner 2049,” said it had denied a request to use images from the movie but that Mr. Musk did so anyway.`\
-https://nytimes.com/2024/10/21/business/media/elon-musk-alcon-entertainment-robotaxi-lawsuit.html
-
-**2025 WNBA power rankings: Who will be the best team next season? Liberty or Lynx?**\
-`Sabreena Merchant's WNBA power rankings for next season. `\
-https://nytimes.com/athletic/5860521/2024/10/21/wnba-power-rankings-2025-liberty/
 
