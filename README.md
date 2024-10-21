@@ -1,3 +1,7 @@
+**The Pulse: The first title in franchise history**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5858622/2024/10/21/lynx-liberty-wnba-finals-the-pulse-2/
+
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5859811/2024/10/21/college-football-questions-mailbag-until-saturday-24/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5856804/2024/10/21/bukayo-saka-injury-arsenal-updat
 `They play a World Series every year. But a World Series like this one comes around about as often as Halley’s Comet.`\
 https://nytimes.com/athletic/5859658/2024/10/21/world-series-2024-yankees-dodgers/
 
-**‘You Are Not My King’: Charles III Heckled in Australia’s Parliament**\
+**‘You Are Not Our King’: Charles III Heckled in Australia’s Parliament**\
 `King Charles, visiting the former British colony where he retains the ceremonial title of head of state, was shouted at by an Indigenous Australian senator.`\
 https://nytimes.com/2024/10/21/world/europe/king-charles-australia-parliament-lidia-thorpe.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855407/2024/10/21/bears-fan-home-game-streak/
 **Jerry Jones is no Al Davis (and that's a good thing)**\
 `The Cowboys haven't reached the NFC Championship in 28 years, but Jones' team has been much better than Davis' was in his later years.`\
 https://nytimes.com/athletic/5859511/2024/10/21/jerry-jones-cowboys-al-davis/
-
-**The 49ers' shrinking window and how Brock Purdy fits (or might not): Sando's Pick Six**\
-`The 49ers' star core is aging, and Purdy is nearing a massive payday. Should the Niners build around him? Would they consider trading him?`\
-https://nytimes.com/athletic/5854581/2024/10/21/brock-purdy-49ers-super-bowl-window/
 
