@@ -1,3 +1,11 @@
+**Why Severed Hands Are Haunting Contemporary Art**\
+`Painters and sculptors are exploring agency and femininity by depicting floating appendages.`\
+https://nytimes.com/2024/10/21/t-magazine/women-hands-art.html
+
+**Trey Murphy, Pelicans agree to 4-year, $112 million extension**\
+`The 24-year-old secures his place as part of the Pelicans' core around Zion Williamson.`\
+https://nytimes.com/athletic/5854587/2024/10/21/trey-murphy-pelicans-contract/
+
 **Winnipeg Jets mailbag: Submit your questions for Murat Ates**\
 `Got a question about the Winnipeg Jets? Submit it here and The Athletic’s Murat Ates will answer a selection in an upcoming mailbag.`\
 https://nytimes.com/athletic/5860621/2024/10/21/winnipeg-jets-mailbag-october-2024/
