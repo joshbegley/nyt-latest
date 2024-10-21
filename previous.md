@@ -1,3 +1,7 @@
+**Was this Pete Alonso's final game with Mets? 'We’d love to see him back'**\
+`Alonso’s free agency creates a fascinating situation for Mets president of baseball operations David Stearns.`\
+https://nytimes.com/athletic/5859464/2024/10/21/mets-pete-alonso-future-free-agency/
+
 **Austin Arrives in Kyiv in Support of Ukraine’s War Effort**\
 `The trip by the U.S. defense secretary comes as Russian forces steadily gain territory in eastern Ukraine.`\
 https://nytimes.com/2024/10/21/world/europe/austin-kyiv-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857676/2024/10/21/curtis-jones-dad-liverpool-chels
 **Understanding why Manchester City are playing as they are - as explained by Guardiola**\
 `Manchester City are unbeaten in the Premier League and are just a point behind leaders Liverpool, but Pep Guardiola's side have an issue`\
 https://nytimes.com/athletic/5857316/2024/10/21/man-city-wolves-analysis/
-
-**Spurs are becoming deadly on the break - maybe they should embrace counter-attacking**\
-`Ange Postecoglou is unlikely to make counter-attacking his primary approach but when Spurs are doing it, it's really working`\
-https://nytimes.com/athletic/5855519/2024/10/21/tottenham-fast-breaks-counter-attacks/
 

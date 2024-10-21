@@ -1,3 +1,7 @@
+**Was this Pete Alonso's final game with Mets? 'We’d love to see him back'**\
+`Alonso’s free agency creates a fascinating situation for Mets president of baseball operations David Stearns.`\
+https://nytimes.com/athletic/5859464/2024/10/21/mets-pete-alonso-future-free-agency/
+
 **Curtis Jones has become a father, kept Cole Palmer quiet and added some devil to his game**\
 `A show of resilience and grit against Chelsea helped Liverpool dig deep to regain top spot in the league. Jones epitomised those qualities`\
 https://nytimes.com/athletic/5857676/2024/10/21/curtis-jones-dad-liverpool-chelsea/
