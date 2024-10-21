@@ -1,3 +1,15 @@
+**Ward Christensen, Early Visionary of Social Media, Dies at 78**\
+`Housebound during a 1978 blizzard, he and a friend began devising the first computer bulletin board, a forerunner of online services like Reddit, TikTok and Facebook.`\
+https://nytimes.com/2024/10/21/technology/ward-christensen-dead.html
+
+**Blue Jays hire David Popkins as new hitting coach**\
+`Popkins spent the past three seasons overseeing the Twins' offence, and previously worked for the Dodgers in player development.`\
+https://nytimes.com/athletic/5861655/2024/10/21/blue-jays-david-popkins-hitting-coach/
+
+**Arteta defends Arsenal's red card record: 'They are all different ones'**\
+`Mikel Arteta is not looking to put more attention than he feels is necessary on Arsenal’s red card record since he took charge.`\
+https://nytimes.com/athletic/5860139/2024/10/21/arsenal-red-cards-arteta/
+
 **Jameses, meet the Griffeys: Baseball father-son duo to attend Lakers opener**\
 `The Griffeys are part of a rare group of father-son duos to appear in the same major professional sporting game.`\
 https://nytimes.com/athletic/5861580/2024/10/21/bronny-james-lakers-opener-ken-griffey-jr/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/21/briefing/election-polls-lebanon-brics.html
 **Paul Di’Anno, Early Iron Maiden Frontman, Dies at 66**\
 `The English singer played with the band in its early years. He later worked with other bands and pursued a solo career.`\
 https://nytimes.com/2024/10/21/arts/music/paul-dianno-iron-maiden-dead.html
-
-**Cardinals add Jon Jay to coaching staff as Willie McGee changes roles**\
-`The St.`\
-https://nytimes.com/athletic/5861502/2024/10/21/stl-cardinals-hire-jon-jay-coaching-staff/
-
-**Olivia Nuzzi and New York Magazine Part Ways**\
-`Ms. Nuzzi, a political writer for the magazine, had been on leave since she disclosed a personal relationship with Robert F. Kennedy Jr. last month.`\
-https://nytimes.com/2024/10/21/business/media/olivia-nuzzi-rfk-jr-new-york-magazine.html
-
-**Flyers' second-half issues from last season are surfacing again**\
-`After five games, the Flyers have the fewest points in the Eastern Conference.`\
-https://nytimes.com/athletic/5861349/2024/10/21/philadelphia-flyers-games-goalies/
 
