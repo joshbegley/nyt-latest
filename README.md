@@ -1,3 +1,7 @@
+**Jeff Bezos and Jessica Chastain Toast a Daring ‘Sunset Boulevard’ on Broadway**\
+`A stripped-back revival of the classic musical, starring the singer Nicole Scherzinger, opened at the St. James Theater on Sunday night.`\
+https://nytimes.com/2024/10/21/style/sunset-boulevard-nicole-scherzinger-broadway.html
+
 **People Keep Making These Six Mistakes About Inflation**\
 `Thanks to human nature, we misunderstand the pain, and sometimes the purpose, of rising prices.`\
 https://nytimes.com/2024/10/21/opinion/inflation-mistakes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860949/2024/10/21/tua-tagovailoa-return-dolphins/
 **Arkansas May Have Vast Lithium Reserves, Researchers Say**\
 `Federal and state researchers said there might be five million to 19 million tons of lithium, more than enough to meet the world’s demand for the battery ingredient.`\
 https://nytimes.com/2024/10/21/business/energy-environment/arkansas-lithium-ev-batteries.html
-
-**MLB World Series odds: Will Dodgers or Yankees be crowned in Fall Classic?**\
-`With a monster World Series starting Friday, we're checking in on the odds for winner, MVP and player props for Dodgers vs. Yankees.`\
-https://nytimes.com/athletic/5860922/2024/10/21/mlb-world-series-futures-props-odds-dodgers-yankees/
 
