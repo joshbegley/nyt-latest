@@ -1,3 +1,11 @@
+**Nike to remain NBA's exclusive uniform provider on new contract**\
+`Nike will continue to be the exclusive partner of the WNBA and G League as well.`\
+https://nytimes.com/athletic/5860807/2024/10/21/nike-uniform-contract-nba-wnba-g-league/
+
+**East Carolina coaching candidates: Who will replace Mike Houston?**\
+`This vacancy will be pretty attractive: Houston was making $2.3 million, which is a big number for a non-Power 4 head coach.`\
+https://nytimes.com/athletic/5861151/2024/10/21/east-carolina-coaching-search-candidates-feldman/
+
 **Rockets, Jalen Green agree to 3-year, $106 million extension**\
 `Green, 22, cements his place as part of an exciting Rockets young core that is looking to get back to the postseason.`\
 https://nytimes.com/athletic/5861338/2024/10/21/jalen-green-rockets-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5861273/2024/10/21/jonathan-kuminga-warriors-no-ext
 **All-LCS Team: Mookie Betts, Juan Soto, Tommy Edman deliver for pennant winners**\
 `The position players, starters and relievers who excelled for the Guardians, Mets, Dodgers and Yankees in the League Championship Series`\
 https://nytimes.com/athletic/5860352/2024/10/21/mlb-all-league-championship-series-team/
-
-**NFL flexes Colts-Vikings to 'Sunday Night Football' in Week 9**\
-`The Jaguars-Eagles matchup has been moved to 4:05 p.m. ET on Nov. 3.`\
-https://nytimes.com/athletic/5861122/2024/10/21/colts-vikings-flex-schedule-week-9/
-
-**Jeff Bezos and Jessica Chastain Toast a Daring ‘Sunset Boulevard’ on Broadway**\
-`A stripped-back revival of the classic musical, starring the singer Nicole Scherzinger, opened at the St. James Theater on Sunday night.`\
-https://nytimes.com/2024/10/21/style/sunset-boulevard-nicole-scherzinger-broadway.html
 
