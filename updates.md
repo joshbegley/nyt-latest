@@ -1,3 +1,11 @@
+**Arizona Fall League reports: Ethan Salas, Termarr Johnson, Colt Emerson and more**\
+`Notes on prospects, including Thomas Saggese, Moises Ballesteros, Edwin Arroyo, Jac Caglianone, Chase DeLauter and many more.`\
+https://nytimes.com/athletic/5860771/2024/10/21/arizona-fall-league-scouting-ethan-salas-termarr-johnson/
+
+**Get the most out of The Athletic's NBA coverage**\
+`We know you're just as excited as us for this NBA season, and we promise to deliver.`\
+https://nytimes.com/athletic/5854139/2024/10/21/nba-season-welcome/
+
 **Dolphins designating Tua Tagovailoa to return from IR**\
 `Tagovailoa, who has been on IR since suffering a concussion in Week 2, is expected to practice Wednesday.`\
 https://nytimes.com/athletic/5860949/2024/10/21/tua-tagovailoa-return-dolphins/
