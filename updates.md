@@ -1,3 +1,11 @@
+**Yankees vs. Dodgers: Get ready for an 'epic' World Series with so much to savor**\
+`They play a World Series every year. But a World Series like this one comes around about as often as Halley’s Comet.`\
+https://nytimes.com/athletic/5859658/2024/10/21/world-series-2024-yankees-dodgers/
+
+**‘You Are Not My King’: Charles III Heckled in Australia’s Parliament**\
+`King Charles, visiting the former British colony where he retains the ceremonial title of head of state, was shouted at by an Indigenous Australian senator.`\
+https://nytimes.com/2024/10/21/world/europe/king-charles-australia-parliament-lidia-thorpe.html
+
 **This Bears fan has attended every home game for 60 years — and he lives in Colorado**\
 `Bears fan Scott Wilseck has attended every home game since the end of the 1962 season, and he has 60 years of stories to tell.`\
 https://nytimes.com/athletic/5855407/2024/10/21/bears-fan-home-game-streak/
