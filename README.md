@@ -1,3 +1,11 @@
+**Warriors, Moody agree to 3-year, $39 million extension**\
+`The deal keeps Moody under team control at a reasonable price for the next four seasons.`\
+https://nytimes.com/athletic/5858648/2024/10/20/moses-moody-warriors-extension/
+
+**Trotter: Deshaun Watson injury is latest (final?) chapter in an awful story**\
+`My immediate action was empathy. Seeing Watson carted off, tears in his eyes, it was a powerful image. But there were other images.`\
+https://nytimes.com/athletic/5858328/2024/10/20/deshaun-watson-browns-injury/
+
 **If Lions had any doubters, Vikings win provided reassurance this team is among NFL's best**\
 `A week after losing one of their best players, the Lions took down the undefeated Vikings.`\
 https://nytimes.com/athletic/5858164/2024/10/20/lions-win-vikings-dan-campbell-doubters/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5858264/2024/10/20/bills-win-titans-amari-cooper-de
 **What's Browns' plan at QB after Deshaun Watson injury? Answers murky for present and future**\
 `Cleveland must choose between Jameis Winston or Dorian Thompson-Robinson with Watson likely out for the season with an Achilles injury. `\
 https://nytimes.com/athletic/5858183/2024/10/20/browns-quarterbacks-deshaun-watson-injury-jameis-winston/
-
-**Welcome to John Mara's nightmare: Eagles' Saquon Barkley shreds Giants in return to MetLife**\
-`An embarrassing home loss to a hated rival spearheaded by the superstar his team let walk out the door — Mara just lived his nightmare.`\
-https://nytimes.com/athletic/5858214/2024/10/20/giants-nightmare-loss-saquon-barkley-eagles/
-
-**Seahawks deliver 'team win' over Falcons, validate Mike Macdonald's steady message**\
-`Seattle snapped a three-game losing streak by forcing three Kirk Cousins turnovers and taking control of the game late.`\
-https://nytimes.com/athletic/5858163/2024/10/20/seahawks-win-falcons-mike-macdonald/
 
