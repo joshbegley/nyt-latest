@@ -1,3 +1,7 @@
+**Bruce Feldman's Southern Miss coaching candidates: Who could be next for the Eagles?**\
+`Who's in the mix to be Southern Miss' next coach? Where the Eagles turn from here will be interesting.`\
+https://nytimes.com/athletic/5861812/2024/10/21/southern-miss-coaching-search-candidates/
+
 **Giants CB Deonte Banks in crosshairs for lackluster effort yet again**\
 `Giants coach Brian Daboll said the team addressed the issue with Banks: “Obviously, we want maximum effort on every play."`\
 https://nytimes.com/athletic/5861195/2024/10/21/deonte-banks-giants-brian-daboll-effort/
