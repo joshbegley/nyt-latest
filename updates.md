@@ -1,3 +1,19 @@
+**What Is the U.N. Resolution That Tried and Failed to Keep the Peace in Lebanon?**\
+`U.N. Security Council Resolution 1701 was intended to create a buffer zone between Israel and Hezbollah. Here’s a look at why it didn’t and what lies ahead in efforts to end the conflict in Lebanon.`\
+https://nytimes.com/2024/10/21/world/middleeast/un-resolution-1701-explained.html
+
+**What Is ‘Pink Cocaine’?**\
+`The drug cocktail can contain ketamine, Ecstasy and meth — but rarely cocaine itself.`\
+https://nytimes.com/2024/10/21/well/what-is-pink-cocaine.html
+
+**U.S. Tries to End War in Lebanon That Biden Envoy Calls ‘Out of Control’**\
+`Israel and Hezbollah say they will keep up attacks in an escalating conflict that has devastated Gaza, is causing misery in Lebanon and could draw Iran deeper into the fighting.`\
+https://nytimes.com/2024/10/21/world/middleeast/us-israel-hezbollah-lebanon.html
+
+**What Lincoln Can Tell Us About MAGA**\
+`It’s hard to compromise with those who consider any criticism a threat.`\
+https://nytimes.com/2024/10/21/opinion/trump-lincoln-arnold-palmer.html
+
 **Bruce Feldman's Southern Miss coaching candidates: Who could be next for the Eagles?**\
 `Who's in the mix to be Southern Miss' next coach? Where the Eagles turn from here will be interesting.`\
 https://nytimes.com/athletic/5861812/2024/10/21/southern-miss-coaching-search-candidates/
