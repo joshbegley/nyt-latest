@@ -1,3 +1,23 @@
+**The Lies Piling Up in Philadelphia Mailboxes**\
+`I took a look at some of the mail showing up in largely Black neighborhoods in southwest Philadelphia.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/philadelphia-mailers-trump
+
+**Rockets, Şengün agree to five-year, $185 million extension: Sources**\
+`With this deal and one for fellow 2021 draft class member Jalen Green, the Rockets have committed to their young core.`\
+https://nytimes.com/athletic/5861249/2024/10/21/alperen-sengun-rockets-contract-news-free-agent/
+
+**WNBPA opts out of CBA, union prepared for potential work stoppage**\
+`The decision was no surprise and the union waited only a few hours after the conclusion of the WNBA Finals to make it official.`\
+https://nytimes.com/athletic/5861500/2024/10/21/wnba-players-association-collective-bargaining-agreement/
+
+**Deaths of 3 Lebanese Soldiers Draw Apology From Israel and Show Complexity of Fight With Hezbollah**\
+`Lebanon’s army is not a party to the conflict between Israel and Hezbollah, but the fighting is taking place in its territory.`\
+https://nytimes.com/2024/10/21/world/middleeast/israel-kills-lebanese-army-soldiers.html
+
+**Wizards, Kispert agree to 4-year, $54 million extension: Source**\
+`The contract will include a team option for the fourth season, The Athletic learned from a league source.`\
+https://nytimes.com/athletic/5861734/2024/10/21/corey-kispert-wizards-contract-extension/
+
 **A Nationwide Blackout, Now a Hurricane. How Much Can Cuba Endure?**\
 `The repeated failure of the power grid and a hurricane that has swamped the island’s eastern end has many Cubans fed up, posing a challenge to the Communist government.`\
 https://nytimes.com/2024/10/21/world/americas/cuba-blackout-hurricane-oscar.html
