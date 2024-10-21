@@ -1,3 +1,11 @@
+**Quotation of the Day: How Halloween Retail Became Its Own Monster**\
+`Quotation of the Day for Monday, October 21, 2024.`\
+https://nytimes.com/2024/10/20/pageoneplus/quotation-of-the-day-how-halloween-retail-became-its-own-monster.html
+
+**Tom Brady, in his first Fox broadcast as Raiders owner, walks the tightrope**\
+`Sunday, Brady interviewed Patrick Mahomes at a hotel (not the team facility) and deferred to Mike Pereira as scrutiny intensified.`\
+https://nytimes.com/athletic/5858530/2024/10/20/tom-brady-fox-chiefs-49ers-raiders-owner/
+
 **Giants' lifeless effort vs. Eagles calls everything into question — QB, coach, all of it**\
 `The Giants have scored one touchdown in four home games this season. They’ve averaged 7.8 points in their four losses at MetLife Stadium.`\
 https://nytimes.com/athletic/5858198/2024/10/20/giants-lifeless-loss-eagles-daboll-daniel-jones/
