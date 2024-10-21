@@ -1,3 +1,15 @@
+**Weekend NHL rankings: Five early-season storylines I don’t believe in (yet)**\
+`Enough games to have narratives! But is it still too early in the season to believe them? Absolutely.`\
+https://nytimes.com/athletic/5858194/2024/10/21/nhl-weekend-rankings-early-season-storylines/
+
+**Indigenous Senator Heckles King Charles During Australia Visit**\
+`King Charles III and Queen Camilla of Britain were attending a parliamentary reception in Canberra on Monday when senator Lidia Thorpe, an activist for Aboriginal rights who has long campaigned against the British monarchy, disrupted the event.`\
+https://nytimes.com/video/world/australia/100000009772864/king-charles-australia-parliament-lidia-thorpe.html
+
+**Saka could return for Arsenal against Shakhtar Donetsk: 'Let's see how he feels'**\
+`Arsenal forward Bukayo Saka could be fit for Arsenal&#8217;s Champions League game against Shakhtar Donetsk on Tuesday.`\
+https://nytimes.com/athletic/5856804/2024/10/21/bukayo-saka-injury-arsenal-update/
+
 **Yankees vs. Dodgers: Get ready for an 'epic' World Series with so much to savor**\
 `They play a World Series every year. But a World Series like this one comes around about as often as Halley’s Comet.`\
 https://nytimes.com/athletic/5859658/2024/10/21/world-series-2024-yankees-dodgers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5847866/2024/10/21/red-wings-jake-walman-trade-shar
 **Silver: Why Patrick Mahomes and the Chiefs look capable of a three-peat**\
 `The Chiefs are the NFL's only unbeaten team at 6-0 and yet, "We’re gonna be so much better. There’s so much more we can do.”`\
 https://nytimes.com/athletic/5859174/2024/10/21/chiefs-mahomes-kelce-reid-three-peat-chase/
-
-**Five big questions facing the Mets and David Stearns in a compelling offseason**\
-`The Mets struggled to score in the NLCS and the bottom of the order looked looked especially vulnerable.`\
-https://nytimes.com/athletic/5858821/2024/10/21/mets-offseason-plan-free-agency/
-
-**Winning games, building identity: 5 takeaways from Jets' perfect start to 2024-2025**\
-`The Jets honored Bryan Little's retirement by beating Pittsburgh for their fifth straight victory to start the season.`\
-https://nytimes.com/athletic/5855347/2024/10/21/jets-bryan-little-perfect-start-takeaways/
-
-**What the Cubs are looking for in free agents after signing Shota Imanaga, Jameson Taillon**\
-`Chicago has looked to add strong starting pitchers in past offseasons. Here are a few they might target when free agency begins in November.`\
-https://nytimes.com/athletic/5857550/2024/10/21/cubs-free-agents/
 
