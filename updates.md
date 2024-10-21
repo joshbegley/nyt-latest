@@ -1,3 +1,7 @@
+**Steelers' Wilson elevates Pickens in victory over Jets: Takeaways**\
+`With Wilson under center, Pickens posted a season-best in receiving yards and caught his first touchdown pass of the season.`\
+https://nytimes.com/athletic/5858092/2024/10/20/jets-steelers-takeaways-result/
+
 **Chiefs defense rattles the 49ers again, this time with the help of 2 rookies**\
 `Each of the Chiefs’ three interceptions came when coordinator Steve Spagnuolo had his secondary play man coverage.`\
 https://nytimes.com/athletic/5858970/2024/10/20/chiefs-defense-49ers-jaden-hicks-chris-roland-wallace/
