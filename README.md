@@ -1,3 +1,23 @@
+**The Lies Piling Up in Philadelphia Mailboxes**\
+`I took a look at some of the mail showing up in largely Black neighborhoods in southwest Philadelphia.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/philadelphia-mailers-trump
+
+**Rockets, Şengün agree to five-year, $185 million extension: Sources**\
+`With this deal and one for fellow 2021 draft class member Jalen Green, the Rockets have committed to their young core.`\
+https://nytimes.com/athletic/5861249/2024/10/21/alperen-sengun-rockets-contract-news-free-agent/
+
+**WNBPA opts out of CBA, union prepared for potential work stoppage**\
+`The decision was no surprise and the union waited only a few hours after the conclusion of the WNBA Finals to make it official.`\
+https://nytimes.com/athletic/5861500/2024/10/21/wnba-players-association-collective-bargaining-agreement/
+
+**Deaths of 3 Lebanese Soldiers Draw Apology From Israel and Show Complexity of Fight With Hezbollah**\
+`Lebanon’s army is not a party to the conflict between Israel and Hezbollah, but the fighting is taking place in its territory.`\
+https://nytimes.com/2024/10/21/world/middleeast/israel-kills-lebanese-army-soldiers.html
+
+**Wizards, Kispert agree to 4-year, $54 million extension: Source**\
+`The contract will include a team option for the fourth season, The Athletic learned from a league source.`\
+https://nytimes.com/athletic/5861734/2024/10/21/corey-kispert-wizards-contract-extension/
+
 **A Nationwide Blackout, Now a Hurricane. How Much Can Cuba Endure?**\
 `The repeated failure of the power grid and a hurricane that has swamped the island’s eastern end has many Cubans fed up, posing a challenge to the Communist government.`\
 https://nytimes.com/2024/10/21/world/americas/cuba-blackout-hurricane-oscar.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5861689/2024/10/21/jalen-suggs-magic-contract-exten
 **What Matt Rhule said about his challenge to Nebraska and what that means**\
 `Nebraska is 5-2 after its blowout loss to Indiana with a trip to Ohio State next on the schedule.`\
 https://nytimes.com/athletic/5861589/2024/10/21/matt-rhule-nebraska-indiana-ohio-state/
-
-**The Mets Gave My Son With Autism a Gift. Now Is a Good Time to Say Thank You.**\
-`This team had a lot going for it, in all the ways that matter.`\
-https://nytimes.com/2024/10/21/opinion/mets-son-autism-lindor.html
-
-**49ers WR Brandon Aiyuk out for year with torn ACL, MCL: Reports**\
-`The fifth-year wide receiver signed $120 million extension just before the start of the 2024 season. `\
-https://nytimes.com/athletic/5861663/2024/10/21/brandon-aiyuk-torn-acl-mcl-injury-update/
-
-**Ward Christensen, Early Visionary of Social Media, Dies at 78**\
-`Housebound during a 1978 blizzard, he and a friend began devising the first computer bulletin board, a forerunner of online services like Reddit, TikTok and Facebook.`\
-https://nytimes.com/2024/10/21/technology/ward-christensen-dead.html
-
-**Blue Jays hire David Popkins as new hitting coach**\
-`Popkins spent the past three seasons overseeing the Twins' offence, and previously worked for the Dodgers in player development.`\
-https://nytimes.com/athletic/5861655/2024/10/21/blue-jays-david-popkins-hitting-coach/
-
-**Arteta defends Arsenal's red card record: 'They are all different ones'**\
-`Mikel Arteta is not looking to put more attention than he feels is necessary on Arsenal’s red card record since he took charge.`\
-https://nytimes.com/athletic/5860139/2024/10/21/arsenal-red-cards-arteta/
 
