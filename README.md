@@ -1,3 +1,7 @@
+**Steelers' Wilson elevates Pickens in victory over Jets: Takeaways**\
+`With Wilson under center, Pickens posted a season-best in receiving yards and caught his first touchdown pass of the season.`\
+https://nytimes.com/athletic/5858092/2024/10/20/jets-steelers-takeaways-result/
+
 **Chiefs defense rattles the 49ers again, this time with the help of 2 rookies**\
 `Each of the Chiefs’ three interceptions came when coordinator Steve Spagnuolo had his secondary play man coverage.`\
 https://nytimes.com/athletic/5858970/2024/10/20/chiefs-defense-49ers-jaden-hicks-chris-roland-wallace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858963/2024/10/20/49ers-ricky-pearsall-returns-los
 **Jets' Xavier Newman stretchered off field vs. Steelers**\
 `Newman, 25, was taken to the University of Pittsburgh Hospital and is currently able to move his limbs, per the NBC broadcast.`\
 https://nytimes.com/athletic/5858965/2024/10/20/xavier-newman-jets-steelers-injury/
-
-**Josh Allen has grown as a game manager, and Sunday's win shows why that's crucial for Bills**\
-`Allen and the Bills didn't panic after a slow start against a bad team.`\
-https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/
 
