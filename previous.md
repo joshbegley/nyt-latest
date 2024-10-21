@@ -1,40 +1,40 @@
+**Five big questions facing the Mets and David Stearns in a compelling offseason**\
+`The Mets struggled to score in the NLCS and the bottom of the order looked looked especially vulnerable.`\
+https://nytimes.com/athletic/5858821/2024/10/21/mets-offseason-plan-free-agency/
+
+**Winning games, building identity: 5 takeaways from Jets' perfect start to 2024-2025**\
+`The Jets honored Bryan Little's retirement by beating Pittsburgh for their fifth straight victory to start the season.`\
+https://nytimes.com/athletic/5855347/2024/10/21/jets-bryan-little-perfect-start-takeaways/
+
+**What the Cubs are looking for in free agents after signing Shota Imanaga, Jameson Taillon**\
+`Chicago has looked to add strong starting pitchers in past offseasons. Here are a few they might target when free agency begins in November.`\
+https://nytimes.com/athletic/5857550/2024/10/21/cubs-free-agents/
+
+**Blinken to Visit Israel in Latest Push for Gaza Cease-Fire**\
+`Secretary of State Antony J. Blinken is expected to depart on Monday in a renewed effort to bring calm to the region. The State Department did not say which other countries he might stop in.`\
+https://nytimes.com/2024/10/21/world/middleeast/blinken-israel-gaza-cease-fire.html
+
+**What Happens in Vegas Could Decide the Election**\
+`Exploring the impact of the housing crisis in Nevada, a swing state the Democrats have counted on for nearly two decades.`\
+https://nytimes.com/2024/10/21/podcasts/the-daily/vegas-nevada-election.html
+
+**A Final Hunt for Undecided Voters, and Israel Escalates Its War in Lebanon**\
+`Plus, New York Liberty are W.N.B.A. champions.`\
+https://nytimes.com/2024/10/21/podcasts/undecided-voter-israel-lebanon.html
+
+**Wordle Review No. 1,221**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 22, 2024.`\
+https://nytimes.com/2024/10/21/crosswords/wordle-review-1221.html
+
+**The Connections Companion No. 499**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 22, 2024.`\
+https://nytimes.com/2024/10/21/crosswords/connections-companion-499.html
+
+**Bold Pelicans predictions: Zion Williamson's postseason honors, a barrage of 3s and more**\
+`Beyond the Pelicans' core, Jordan Hawkins and Yves Missi could have big moments this season.`\
+https://nytimes.com/athletic/5858179/2024/10/21/pelicans-predictions-zion-williamsons-brandon-ingram-2024/
+
 **After 43 Years, Yankees and Dodgers Resume Their World Series Rivalry**\
 `Even as the sport and the country have changed, the rivalry has produced some of baseball’s most memorable moments.`\
 https://nytimes.com/2024/10/21/sports/baseball/yankees-dodgers-world-series.html
-
-**Here are the latest developments.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/here-are-the-latest-developments
-
-**Live Updates: Israel Threatens More Strikes Against Hezbollah Finances**\
-`The Israeli military said it had conducted dozens of strikes overnight on the militia’s financial arm in Lebanon. A top Biden aide was in Beirut to advance efforts at a cease-fire.`\
-https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon
-
-**What we learned in the LCS round: Bullpen dominance, Soto significance, money talks**\
-`Here's what we gleaned from the four teams that played in the League Championship Series.`\
-https://nytimes.com/athletic/5858062/2024/10/21/what-we-learned-alcs-nlcs/
-
-**Adam Edström's emergence, third line progress, more: 15 Rangers observations**\
-`After two games against Detroit and another in Toronto, a conversation with Edström offered some insight on his journey.`\
-https://nytimes.com/athletic/5857894/2024/10/21/rangers-adam-edstrom-third-line-laviolette/
-
-**Brighton goalkeeper Rushworth set to be out until New Year with ankle injury**\
-`Brighton &amp; Hove Albion goalkeeper Carl Rushworth has suffered an ankle injury on loan to Hull City, which is likely to rule him out until the New Year.`\
-https://nytimes.com/athletic/5859689/2024/10/21/brighton-hull-rushworth-injury/
-
-**Tigers mailbag: What positions will Detroit seek to upgrade this winter?**\
-`Answering reader questions on free agency, potential trade targets and more. `\
-https://nytimes.com/athletic/5856291/2024/10/21/tigers-mailbag-offseason-upgrade-targets/
-
-**Judicial Overhaul Squeaks Through After High Political Drama in Pakistan**\
-`Supporters of the constitutional amendments said they would curb judicial activism. Critics said judicial independence had been damaged.`\
-https://nytimes.com/2024/10/21/world/asia/pakistan-judiciary-amendments.html
-
-**Chargers at Cardinals odds, expert picks, how to watch: LA favored in Monday night game**\
-`The Chargers are favored for a Monday night game at the Cardinals. Will Kyler Murray have some magic or will Justin Herbert shine?`\
-https://nytimes.com/athletic/5851182/2024/10/21/chargers-cardinals-odds-picks-how-to-watch-betting/
-
-**Big 12, ACC should relish multiple bids if they get them: College Football Playoff Bubble Watch**\
-`Big 12 and ACC teams seeking at-large bids are likely going to have to leave no doubt.`\
-https://nytimes.com/athletic/5857752/2024/10/21/college-football-playoff-bubble-watch-big-12-acc/
 
