@@ -1,3 +1,15 @@
+**Jets' Xaiver Newman stretchered off field vs. Steelers**\
+`Newman, 25, was taken to the University of Pittsburgh Hospital and is currently able to move his limbs, per the NBC broadcast.`\
+https://nytimes.com/athletic/5858965/2024/10/20/xavier-newman-jets-steelers-injury/
+
+**Josh Allen has grown as a game manager, and Sunday's win shows why that's crucial for Bills**\
+`Josh Allen and the Bills didn't panic after a slow start against a bad team.`\
+https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/
+
+**Lloyd: The Deshaun Watson era is over. Why Dorian Thompson-Robinson should be QB for now**\
+`The most polarizing, divisive era in the history of the Cleveland Browns has mercifully ended. The damage is only beginning.`\
+https://nytimes.com/athletic/5858495/2024/10/20/deshaun-watson-browns-injury-dorian-thomspon-robinson/
+
 **Josh Allen has grown as a game manager and Sunday's win shows why that's crucial for Bills**\
 `Josh Allen and the Bills didn't panic after a slow start against a bad team.`\
 https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/

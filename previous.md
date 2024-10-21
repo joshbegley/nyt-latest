@@ -1,4 +1,8 @@
-**Josh Allen has grown as a game manager and Sunday's win shows why that's crucial for Bills**\
+**Jets' Xaiver Newman stretchered off field vs. Steelers**\
+`Newman, 25, was taken to the University of Pittsburgh Hospital and is currently able to move his limbs, per the NBC broadcast.`\
+https://nytimes.com/athletic/5858965/2024/10/20/xavier-newman-jets-steelers-injury/
+
+**Josh Allen has grown as a game manager, and Sunday's win shows why that's crucial for Bills**\
 `Josh Allen and the Bills didn't panic after a slow start against a bad team.`\
 https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/
 
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5858866/2024/10/20/andy-ludwig-utah-football-offens
 `Despite injury setbacks, O'Hara has played a crucial role in Gotham's locker room. `\
 https://nytimes.com/athletic/5858602/2024/10/20/gotham-uswnt-kelley-ohara-farewell-nwsl/
 
-**Lloyd: The Deshaun Watson era is over. Why Dorian Thompson-Robinson shoutd be QB for now**\
+**Lloyd: The Deshaun Watson era is over. Why Dorian Thompson-Robinson should be QB for now**\
 `The most polarizing, divisive era in the history of the Cleveland Browns has mercifully ended. The damage is only beginning.`\
 https://nytimes.com/athletic/5858495/2024/10/20/deshaun-watson-browns-injury-dorian-thomspon-robinson/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858730/2024/10/20/carolina-panthers-bad-loss-trade
 **In ‘Sunset Boulevard,’ Nicole Scherzinger Is 23 Feet Tall**\
 `A fascinating Broadway revival of the bombastic 1994 musical blows it up even further.`\
 https://nytimes.com/2024/10/20/theater/sunset-boulevard-review.html
-
-**Why Sunday's loss could lead to Raiders' pushing the desperation button at QB**\
-`There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
-https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
 
