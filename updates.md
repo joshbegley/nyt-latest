@@ -1,3 +1,11 @@
+**The devil's in the details, and Vikings come up short vs. Lions as a result**\
+`The Vikings nearly came back to defeat a talented Lions team, but small, niggling mistakes ruined their chance at a signature win.`\
+https://nytimes.com/athletic/5858338/2024/10/20/vikings-loss-offense-mistakes-penalties/
+
+**Amari Cooper's impact, Greg Rousseau's big day: Bills observations from Titans win**\
+`Plus, what to expect from Dalton Kincaid and Ray Davis.`\
+https://nytimes.com/athletic/5858264/2024/10/20/bills-win-titans-amari-cooper-debut-observations/
+
 **Tom Brady, in his first Fox broadcast as Raiders owner, walks the tightrope**\
 `On Sunday, Tom Brady interviewed Patrick Mahomes at a hotel (not the team facility) and deferred to Mike Pereira as scrutiny intensified.`\
 https://nytimes.com/athletic/5858530/2024/10/20/tom-brady-fox-chiefs-49ers-raiders-owner/
