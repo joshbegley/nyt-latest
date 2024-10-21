@@ -1,3 +1,11 @@
+**Old School Glamour at the Met Gala of the West Coast**\
+`The Academy Museum Gala delivered what red carpets are made for.`\
+https://nytimes.com/2024/10/21/style/academy-museum-gala-best-dressed.html
+
+**In a season of disappointments, Drake Maye providing Patriots a rare bright spot**\
+`Seemingly everything with the Patriots is going poorly right now. Except for their rookie quarterback.`\
+https://nytimes.com/athletic/5859843/2024/10/21/drake-maye-rookie-qb-patriots-jaguars/
+
 **Trump’s Behavior at the Al Smith Dinner**\
 `Readers respond to a Maureen Dowd column and a Campaign Notebook. Also: The need to vote; the education crisis; dead trees; Juan Soto’s magic.`\
 https://nytimes.com/2024/10/21/opinion/trump-al-smith-dinner.html
