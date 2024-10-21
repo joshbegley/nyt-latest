@@ -1,3 +1,7 @@
+**Paul Di’Anno, Early Iron Maiden Frontman, Dies at 66**\
+`The English singer played with the band in its early years. He later worked with other bands and pursued a solo career.`\
+https://nytimes.com/2024/10/21/arts/music/paul-dianno-iron-maiden-dead.html
+
 **Cardinals add Jon Jay to coaching staff as Willie McGee changes roles**\
 `The St.`\
 https://nytimes.com/athletic/5861502/2024/10/21/stl-cardinals-hire-jon-jay-coaching-staff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860807/2024/10/21/nike-uniform-contract-nba-wnba-g
 **Bruce Feldman's East Carolina coaching candidates: Who will replace Mike Houston?**\
 `This vacancy will be pretty attractive: Houston was making $2.3 million, which is a big number for a non-Power 4 head coach.`\
 https://nytimes.com/athletic/5861151/2024/10/21/east-carolina-coaching-search-candidates-feldman/
-
-**Rockets, Jalen Green agree to 3-year, $106 million extension**\
-`Green, 22, cements his place as part of an exciting Rockets young core that is looking to get back to the postseason.`\
-https://nytimes.com/athletic/5861338/2024/10/21/jalen-green-rockets-extension/
 
