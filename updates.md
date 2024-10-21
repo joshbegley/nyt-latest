@@ -1,3 +1,15 @@
+**How Manchester United finally ignited their attack Brentford**\
+`Rasmum Hojlund's deeper role and switches of play to Alejandro Garnacho gave Erik ten Hag's another dimension`\
+https://nytimes.com/athletic/5856408/2024/10/21/manchester-united-tactics-attack/
+
+**Did someone say over/under? Best NBA win total bets for every team**\
+`Zach Harper predicts every NBA team's win total before the season kicks off. Read here for his bold predictions and best bets.`\
+https://nytimes.com/athletic/5852578/2024/10/21/nba-2024-2025-win-over-under-bets/
+
+**Keane is offering Everton a timely reminder of what he can do in both boxes**\
+`The defender has a useful knack of scoring goals and is showing he has plenty left to contribute at Goodison Park`\
+https://nytimes.com/athletic/5855381/2024/10/21/michael-keane-everton-sean-dyche/
+
 **Understanding why Manchester City are playing as they are - as explained by Guardiola**\
 `Manchester City are unbeaten in the Premier League and are just a point behind leaders Liverpool, but Pep Guardiola's side have an issue`\
 https://nytimes.com/athletic/5857316/2024/10/21/man-city-wolves-analysis/

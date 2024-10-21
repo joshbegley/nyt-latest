@@ -1,3 +1,15 @@
+**How Manchester United finally ignited their attack Brentford**\
+`Rasmum Hojlund's deeper role and switches of play to Alejandro Garnacho gave Erik ten Hag's another dimension`\
+https://nytimes.com/athletic/5856408/2024/10/21/manchester-united-tactics-attack/
+
+**Did someone say over/under? Best NBA win total bets for every team**\
+`Zach Harper predicts every NBA team's win total before the season kicks off. Read here for his bold predictions and best bets.`\
+https://nytimes.com/athletic/5852578/2024/10/21/nba-2024-2025-win-over-under-bets/
+
+**Keane is offering Everton a timely reminder of what he can do in both boxes**\
+`The defender has a useful knack of scoring goals and is showing he has plenty left to contribute at Goodison Park`\
+https://nytimes.com/athletic/5855381/2024/10/21/michael-keane-everton-sean-dyche/
+
 **Understanding why Manchester City are playing as they are - as explained by Guardiola**\
 `Manchester City are unbeaten in the Premier League and are just a point behind leaders Liverpool, but Pep Guardiola's side have an issue`\
 https://nytimes.com/athletic/5857316/2024/10/21/man-city-wolves-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5855127/2024/10/21/lucas-digne-unai-emery-fulham/
 **Once again, switch to a back three against City offers Wolves hope - reverting is unthinkable**\
 `Gary O'Neil finally changed defensive tactics against the champions and it went well. He wouldn't change back again, would he?`\
 https://nytimes.com/athletic/5857334/2024/10/21/wolves-with-a-back-three-against-man-city/
-
-**Howe's Newcastle have never had a problem scoring goals... until now**\
-`Newcastle failed to score from open play again at the weekend, a cause for concern given their attacking numbers are down in all key areas`\
-https://nytimes.com/athletic/5852826/2024/10/21/newcastle-scoring-goals-eddie-howe/
-
-**Nottingham Forest, their acrimony with the Premier League and a lingering sense of injustice**\
-`The club have received a spate of bans and fines after a series of contentious incidents`\
-https://nytimes.com/athletic/5854781/2024/10/21/nottingham-forest-premier-league-nuno-marinakis/
-
-**The Briefing: Why we would all miss Salah and do Arsenal need to be braver?**\
-`Analysing the big Premier League weekend talking points — also featuring what to make of West Ham?`\
-https://nytimes.com/athletic/5857597/2024/10/21/mohamed-salah-future-arsenal-tactics/
 
