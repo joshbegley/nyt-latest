@@ -1,3 +1,7 @@
+**Raiders sign QB Desmond Ridder: Could he be an option to start?**\
+`Raiders lost Aidan O'Connell to injury in Week 7 and Gardner Minshew has underwhelmed as the new QB1.`\
+https://nytimes.com/athletic/5862113/2024/10/21/raiders-sign-desmond-ridder/
+
 **Japanese American leaders criticize Trump for Jan. 6 comparison.**\
 `By Amy Qin`\
 https://nytimes.com/live/2024/10/21/us/harris-trump-election/japanese-american-leaders-criticize-trump-for-jan-6-comparison
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/world/middleeast/us-israel-hezbollah-lebanon.html
 **What Lincoln Can Tell Us About MAGA**\
 `It’s hard to compromise with those who consider any criticism a threat.`\
 https://nytimes.com/2024/10/21/opinion/trump-lincoln-arnold-palmer.html
-
-**Giants CB Deonte Banks in crosshairs for lackluster effort yet again**\
-`Giants coach Brian Daboll said the team addressed the issue with Banks: “Obviously, we want maximum effort on every play."`\
-https://nytimes.com/athletic/5861195/2024/10/21/deonte-banks-giants-brian-daboll-effort/
 

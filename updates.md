@@ -1,3 +1,7 @@
+**Raiders sign QB Desmond Ridder: Could he be an option to start?**\
+`Raiders lost Aidan O'Connell to injury in Week 7 and Gardner Minshew has underwhelmed as the new QB1.`\
+https://nytimes.com/athletic/5862113/2024/10/21/raiders-sign-desmond-ridder/
+
 **Japanese American leaders criticize Trump for Jan. 6 comparison.**\
 `By Amy Qin`\
 https://nytimes.com/live/2024/10/21/us/harris-trump-election/japanese-american-leaders-criticize-trump-for-jan-6-comparison
