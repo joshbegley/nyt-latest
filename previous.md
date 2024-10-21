@@ -1,3 +1,23 @@
+**Brighton goalkeeper Rushworth set to be out until New Year with ankle injury**\
+`Brighton &amp; Hove Albion goalkeeper Carl Rushworth has suffered an ankle injury on loan to Hull City, which is likely to rule him out until the New Year.`\
+https://nytimes.com/athletic/5859689/2024/10/21/brighton-hull-rushworth-injury/
+
+**Tigers mailbag: What positions will Detroit seek to upgrade this winter?**\
+`Answering reader questions on free agency, potential trade targets and more. `\
+https://nytimes.com/athletic/5856291/2024/10/21/tigers-mailbag-offseason-upgrade-targets/
+
+**Judicial Overhaul Squeaks Through After High Political Drama in Pakistan**\
+`Supporters of the constitutional amendments said they would curb judicial activism. Critics said judicial independence had been damaged.`\
+https://nytimes.com/2024/10/21/world/asia/pakistan-judiciary-amendments.html
+
+**Chargers at Cardinals odds, expert picks, how to watch: LA favored in Monday night game**\
+`The Chargers are favored for a Monday night game at the Cardinals. Will Kyler Murray have some magic or will Justin Herbert shine?`\
+https://nytimes.com/athletic/5851182/2024/10/21/chargers-cardinals-odds-picks-how-to-watch-betting/
+
+**Big 12, ACC should relish multiple bids if they get them: College Football Playoff Bubble Watch**\
+`Big 12 and ACC teams seeking at-large bids are likely going to have to leave no doubt.`\
+https://nytimes.com/athletic/5857752/2024/10/21/college-football-playoff-bubble-watch-big-12-acc/
+
 **Fethullah Gulen, Turkish Cleric and Erdogan Rival, Dies at 83**\
 `Mr. Gulen, who lived in self-imposed exile in the United States, was accused of plotting a failed coup against President Recep Tayyip Erdogan of Turkey in 2016.`\
 https://nytimes.com/2024/10/21/world/europe/fethullah-gulen-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/21/style/hospital-gown.html
 **Why Trump’s Chances Are Better Than They Look**\
 `For many undecided voters, the inflation issue isn’t going away.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-chances-tipsheet
-
-**State of the Race: A Slight Shift Toward Trump but Still No Clear Favorite**\
-`The polls are not precise enough for a 0.2-point edge to convey meaningful information.`\
-https://nytimes.com/2024/10/21/upshot/trump-harris-polls-election.html
-
-**Events That Led to Close Call on Trump’s Life Were Preventable, Committee Finds**\
-`A House task force report included detailed accounts from law enforcement at the Butler, Pa., rally, including an officer who confronted the gunman.`\
-https://nytimes.com/2024/10/21/us/politics/secret-service-trump-butler-house-report.html
-
-**Trump, Harris and the Enduring Symbolism of McDonald’s**\
-`McDonald’s tells a story about what both candidates think is possible for working people.`\
-https://nytimes.com/2024/10/21/opinion/trump-harris-mcdonalds.html
-
-**A Writer Sees Leniency in the Supreme Court’s Approach to Public Corruption**\
-`A Georgetown law professor argues that five rulings by the justices in recent years have allowed behavior that is “sketchy as hell” and meant to make the judiciary look good by contrast.`\
-https://nytimes.com/2024/10/21/us/politics/supreme-court-public-corruption.html
-
-**In ‘Smile 2’ and ‘Trap,’ Pop Stardom Looks Pretty Terrifying**\
-`At a time when the business of being Taylor Swift or Beyoncé is booming, these films examine toxic fandom and what can seem like mass hysteria.`\
-https://nytimes.com/2024/10/21/movies/smile-2-trap-horror-movie-fandom.html
 
