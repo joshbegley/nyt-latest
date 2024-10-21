@@ -1,3 +1,7 @@
+**Death Row Inmate in Shaken Baby Case Set to Testify in Texas House**\
+`Robert Roberson, whose execution was postponed last week, has been subpoenaed to appear on Monday before a committee of the State House.`\
+https://nytimes.com/2024/10/21/us/texas-robert-roberson-shaken-baby-case.html
+
 **Life Without Sickle Cell Beckons Boy Who Completed Gene Therapy**\
 `After 44 days, Kendric Cromer, 12, left the hospital. While his family feels fortunate that he was the first to receive a treatment, their difficult experiences hint at what others will be up against.`\
 https://nytimes.com/2024/10/21/health/sickle-cell-disease-gene-therapy-patient.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857912/2024/10/21/ruud-saudi-arabia-china-tennis-h
 **Sinwar Is Dead, but a Palestinian State Seems More Distant Than Ever**\
 `A two-state solution remains the goal of the United States and the West, but many in the region say the devastation in Gaza and the lack of effective Palestinian leadership make it a remote prospect.`\
 https://nytimes.com/2024/10/21/world/middleeast/sinwar-dead-palestinian-state.html
-
-**Disney Says It Will Hire a New C.E.O. in ‘Early 2026’**\
-`In a board shake-up, James Gorman, a director in charge of planning for a successor to the chief executive, Robert A. Iger, will become chairman on Jan. 2, 2025.`\
-https://nytimes.com/2024/10/21/business/disney-ceo-succession-james-gorman-chairman.html
 
