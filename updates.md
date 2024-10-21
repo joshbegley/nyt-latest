@@ -1,3 +1,19 @@
+**After sloppy loss to the Rams, it's clear these Raiders are headed nowhere**\
+`Between injuries and the lack of a bona fide starting quarterback, it's time for the Raiders to start thinking about the future.`\
+https://nytimes.com/athletic/5858475/2024/10/21/raiders-loss-rams-gardner-minshew-antonio-pierce/
+
+**WSL Briefing: Brighton are ready to push on, Kaneryd sparkles again for Chelsea**\
+`Brighton impressed against Manchester United in front of a record crowd, while Kaneryd scored twice in Chelsea's rout of Tottenham`\
+https://nytimes.com/athletic/5858414/2024/10/21/wsl-brighton-man-united-chelsea-kaneryd/
+
+**Tim Weah: My game in my words**\
+`From studying Cavani's work rate and runs at PSG to offering to play in any position and linking with McKennie, Tim Weah analyses his game`\
+https://nytimes.com/athletic/5854685/2024/10/21/tim-weah-juventus-usmnt-analysis-interview/
+
+**Van Dijk: 'Discussions are ongoing' over new Liverpool contract**\
+`Liverpool captain Virgil van Dijk has confirmed that &#8220;discussions are ongoing&#8221; over a new contract to keep him at Anfield.`\
+https://nytimes.com/athletic/5859814/2024/10/21/van-dijk-liverpool-contract-talks/
+
 **The Pulse: The first title in franchise history**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5858622/2024/10/21/lynx-liberty-wnba-finals-the-pulse-2/
