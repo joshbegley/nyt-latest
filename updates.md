@@ -1,3 +1,11 @@
+**Rockets, Jalen Green agree to 3-year, $106 million extension**\
+`Green, 22, cements his place as part of an exciting Rockets young core that is looking to get back to the postseason.`\
+https://nytimes.com/athletic/5861338/2024/10/21/jalen-green-rockets-extension/
+
+**Brazilian Fossil Hints at Older Origin for All Dinosaurs**\
+`The discovery may push back the emergence of the reptiles that once ruled the Earth, and clarify how dinosaurs like the Triceratops and Stegosaurus emerged.`\
+https://nytimes.com/2024/10/21/science/oldest-dinosaur-brazil-fossil.html
+
 **Commanders' Jayden Daniels considered 'week to week' with rib injury**\
 `The Commanders, and possibly Daniels, will face Caleb Williams and the Chicago Bears in Week 8.`\
 https://nytimes.com/athletic/5861295/2024/10/21/commanders-jayden-daniels-rib-injury-update/
