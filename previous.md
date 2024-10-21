@@ -1,3 +1,11 @@
+**The Menendez Brothers’ Case Is Under Review. Here’s What to Know.**\
+`Prosecutors are revisiting the brothers’ convictions in the killings of their parents. It could lead to their release from prison.`\
+https://nytimes.com/article/menendez-brothers-case.html
+
+**As Trump Served Up McDonald’s Fries, Vitriol Boiled Outside**\
+`In Pennsylvania, a critical swing state, supporters of Donald Trump and Kamala Harris, some in weird costumes, gathered along a roadside and screamed at one another.`\
+https://nytimes.com/2024/10/21/us/elections/donald-trump-mcdonalds-protesters.html
+
 **Submit questions for our NFL Week 8 survivor mailbag**\
 `If you have a question about anything NFL survivor-related, submit it here for our survivor mailbag.`\
 https://nytimes.com/athletic/5860448/2024/10/21/questions-nfl-survivor-mailbag-week-8/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5859752/2024/10/21/lukas-dostal-ducks-goalie-gibson
 **Raiders QB Aidan O'Connell expected to miss 4-6 weeks**\
 `O'Connell exited Sunday’s game against the Los Angeles Rams and did not return.`\
 https://nytimes.com/athletic/5857807/2024/10/21/raiders-aidan-oconnell-thumb-injury-minshew/
-
-**Can You Find These 14 Hidden Book Titles in This Puzzle?**\
-`Look closely to uncover the recent memoirs lurking in this passage of text.`\
-https://nytimes.com/interactive/2024/10/21/books/review/memoirs-title-search.html
-
-**Moldovans, Very Narrowly, Choose to Look Toward Europe, Not Russia**\
-`A referendum that constitutionally enshrines a national objective to join the E.U. passed by a thin margin. The incumbent pro-E.U. president won the most votes in a concurrent election, but faces a runoff.`\
-https://nytimes.com/2024/10/21/world/europe/moldova-eu-referendum-vote-result.html
 

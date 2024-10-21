@@ -1,3 +1,11 @@
+**The Menendez Brothers’ Case Is Under Review. Here’s What to Know.**\
+`Prosecutors are revisiting the brothers’ convictions in the killings of their parents. It could lead to their release from prison.`\
+https://nytimes.com/article/menendez-brothers-case.html
+
+**As Trump Served Up McDonald’s Fries, Vitriol Boiled Outside**\
+`In Pennsylvania, a critical swing state, supporters of Donald Trump and Kamala Harris, some in weird costumes, gathered along a roadside and screamed at one another.`\
+https://nytimes.com/2024/10/21/us/elections/donald-trump-mcdonalds-protesters.html
+
 **Submit questions for our NFL Week 8 survivor mailbag**\
 `If you have a question about anything NFL survivor-related, submit it here for our survivor mailbag.`\
 https://nytimes.com/athletic/5860448/2024/10/21/questions-nfl-survivor-mailbag-week-8/
