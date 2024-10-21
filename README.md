@@ -1,3 +1,19 @@
+**What Is the U.N. Resolution That Tried and Failed to Keep the Peace in Lebanon?**\
+`U.N. Security Council Resolution 1701 was intended to create a buffer zone between Israel and Hezbollah. Here’s a look at why it didn’t and what lies ahead in efforts to end the conflict in Lebanon.`\
+https://nytimes.com/2024/10/21/world/middleeast/un-resolution-1701-explained.html
+
+**What Is ‘Pink Cocaine’?**\
+`The drug cocktail can contain ketamine, Ecstasy and meth — but rarely cocaine itself.`\
+https://nytimes.com/2024/10/21/well/what-is-pink-cocaine.html
+
+**U.S. Tries to End War in Lebanon That Biden Envoy Calls ‘Out of Control’**\
+`Israel and Hezbollah say they will keep up attacks in an escalating conflict that has devastated Gaza, is causing misery in Lebanon and could draw Iran deeper into the fighting.`\
+https://nytimes.com/2024/10/21/world/middleeast/us-israel-hezbollah-lebanon.html
+
+**What Lincoln Can Tell Us About MAGA**\
+`It’s hard to compromise with those who consider any criticism a threat.`\
+https://nytimes.com/2024/10/21/opinion/trump-lincoln-arnold-palmer.html
+
 **Giants CB Deonte Banks in crosshairs for lackluster effort yet again**\
 `Giants coach Brian Daboll said the team addressed the issue with Banks: “Obviously, we want maximum effort on every play."`\
 https://nytimes.com/athletic/5861195/2024/10/21/deonte-banks-giants-brian-daboll-effort/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5861812/2024/10/21/southern-miss-coaching-search-ca
 **DK Metcalf 'week to week' with knee injury**\
 `The second-leading receiver in the NFL, Metcalf was carted to the locker room late in Sunday's win over the Falcons.`\
 https://nytimes.com/athletic/5861798/2024/10/21/dk-metcalf-injury-seahawks/
-
-**The Lies Piling Up in Philadelphia Mailboxes**\
-`I took a look at some of the mail showing up in largely Black neighborhoods in southwest Philadelphia.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/philadelphia-mailers-trump
-
-**Rockets, Şengün agree to 5-year, $185 million extension: Sources**\
-`With this deal and one for fellow 2021 draft class member Jalen Green, the Rockets have committed to their young core.`\
-https://nytimes.com/athletic/5861249/2024/10/21/alperen-sengun-rockets-contract-news-free-agent/
-
-**WNBPA opts out of CBA, union prepared for potential work stoppage**\
-`The decision was no surprise and the union waited only a few hours after the conclusion of the WNBA Finals to make it official.`\
-https://nytimes.com/athletic/5861500/2024/10/21/wnba-players-association-collective-bargaining-agreement/
-
-**Deaths of 3 Lebanese Soldiers Draw Apology From Israel and Show Complexity of Fight With Hezbollah**\
-`Lebanon’s army is not a party to the conflict between Israel and Hezbollah, but the fighting is taking place in its territory.`\
-https://nytimes.com/2024/10/21/world/middleeast/israel-kills-lebanese-army-soldiers.html
 
