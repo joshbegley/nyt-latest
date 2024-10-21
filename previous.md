@@ -1,3 +1,11 @@
+**Amari Cooper's impact, Greg Rousseau's big day: Bills observations from Titans win**\
+`Plus, what to expect from Dalton Kincaid and Ray Davis moving forward.`\
+https://nytimes.com/athletic/5858264/2024/10/20/bills-win-titans-amari-cooper-debut-observations/
+
+**What's Browns plan at QB after Deshaun Watson injury? Answers murky for present and future**\
+`Cleveland must choose between Jameis Winston or Dorian Thompson-Robinson with Watson likely out for the season with an Achilles injury. `\
+https://nytimes.com/athletic/5858183/2024/10/20/browns-quarterbacks-deshaun-watson-injury-jameis-winston/
+
 **Welcome to John Mara's nightmare: Eagles' Saquon Barkley shreds Giants in return to MetLife**\
 `An embarrassing home loss to a hated rival spearheaded by the superstar his team let walk out the door — Mara just lived his nightmare.`\
 https://nytimes.com/athletic/5858214/2024/10/20/giants-nightmare-loss-saquon-barkley-eagles/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/20/books/booksupdate/aleksei-navalny-memoir-prison-d
 **Brandon McManus brings Packers needed stability at kicker with game-winning field goal**\
 `The veteran's 45-yarder against the Texans gave the Packers a 24-22 walk-off win on Sunday at Lambeau Field.`\
 https://nytimes.com/athletic/5858284/2024/10/20/packers-brandon-mcmanus-kicker-game-winner/
-
-**Chiefs' defense, run game powers 28-18 win over 49ers: Takeaways**\
-`Off the heels of three interceptions and four rushing touchdowns, the Kansas City Chiefs are the last undefeated team in the league.`\
-https://nytimes.com/athletic/5857072/2024/10/20/chiefs-49ers-takeaways-result/
-
-**What went wrong to end the Falcons' winning streak? Almost everything**\
-`Kirk Cousins threw two interceptions and lost a fumble, the Falcons were flagged nine times and the defense had no answers for Seattle.`\
-https://nytimes.com/athletic/5858180/2024/10/20/falcons-loss-sloppy-play-kirk-cousins/
 
