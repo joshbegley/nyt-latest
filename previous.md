@@ -1,3 +1,11 @@
+**Yankees, Dodgers to square off in World Series: 5 storylines to watch**\
+`Shohei Ohtani and Aaron Judge will play starring roles as each superstar makes his World Series debut.`\
+https://nytimes.com/athletic/5858503/2024/10/20/yankees-dodgers-world-series-storylines-to-watch/
+
+**Dodgers finish off Mets to clinch NL pennant and World Series matchup against Yankees**\
+`After the plucky Mets forced a Game 6 in Los Angeles, the Dodgers demonstrated their postseason pedigree.`\
+https://nytimes.com/athletic/5858917/2024/10/20/dodgers-mets-yankees-world-series-pennant/
+
 **Houston Authorities Respond to Report of Helicopter Crashing Into Radio Tower**\
 `The Houston fire and police departments said they were responding. Videos circulating on social media appeared to show the fiery aftermath.`\
 https://nytimes.com/2024/10/20/us/helicopter-crash-radio-tower-houston.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5857524/2024/10/20/commanders-jayden-daniels-aldrid
 **Utah OC Andy Ludwig steps down after third consecutive loss**\
 `The preseason Big 12 favorites have struggled this season. The Utes are averaging 13.75 points per game in conference play.`\
 https://nytimes.com/athletic/5858866/2024/10/20/andy-ludwig-utah-football-offensive-coordinator-steps-down/
-
-**Gotham FC gives Kelley O'Hara memorable farewell: 'It has been the greatest joy'**\
-`Despite injury setbacks, O'Hara has played a crucial role in Gotham's locker room. `\
-https://nytimes.com/athletic/5858602/2024/10/20/gotham-uswnt-kelley-ohara-farewell-nwsl/
-
-**Lloyd: The Deshaun Watson era is over. Why Dorian Thompson-Robinson should be QB for now**\
-`The most polarizing, divisive era in the history of the Cleveland Browns has mercifully ended. The damage is only beginning.`\
-https://nytimes.com/athletic/5858495/2024/10/20/deshaun-watson-browns-injury-dorian-thomspon-robinson/
 

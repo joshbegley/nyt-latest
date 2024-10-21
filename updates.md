@@ -1,3 +1,11 @@
+**Yankees, Dodgers to square off in World Series: 5 storylines to watch**\
+`Shohei Ohtani and Aaron Judge will play starring roles as each superstar makes his World Series debut.`\
+https://nytimes.com/athletic/5858503/2024/10/20/yankees-dodgers-world-series-storylines-to-watch/
+
+**Dodgers finish off Mets to clinch NL pennant and World Series matchup against Yankees**\
+`After the plucky Mets forced a Game 6 in Los Angeles, the Dodgers demonstrated their postseason pedigree.`\
+https://nytimes.com/athletic/5858917/2024/10/20/dodgers-mets-yankees-world-series-pennant/
+
 **Houston Authorities Respond to Report of Helicopter Crashing Into Radio Tower**\
 `The Houston fire and police departments said they were responding. Videos circulating on social media appeared to show the fiery aftermath.`\
 https://nytimes.com/2024/10/20/us/helicopter-crash-radio-tower-houston.html
