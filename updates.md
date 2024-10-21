@@ -1,3 +1,7 @@
+**Why Sunday's loss could lead to Raiders' pushing the desperation button at QB**\
+`There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
+https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
+
 **Sunday's biggest play for the Commanders was keeping injured Jayden Daniels off the field**\
 `Unlike RGIII in 2013, Washington's coaches and management decided to keep the injured star QB on the bench.`\
 https://nytimes.com/athletic/5857524/2024/10/20/commanders-jayden-daniels-aldridge-column/
