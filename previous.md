@@ -1,3 +1,11 @@
+**People Keep Making These Six Mistakes About Inflation**\
+`Thanks to human nature, we misunderstand the pain, and sometimes the purpose, of rising prices.`\
+https://nytimes.com/2024/10/21/opinion/inflation-mistakes.html
+
+**NASCAR Las Vegas takeaways: Joey Logano and the No. 22 team do it again**\
+`Given a second life in these playoffs, Joey Logano made it count with a win Sunday in Las Vegas, securing his spot in the Championship 4.`\
+https://nytimes.com/athletic/5860590/2024/10/21/nascar-las-vegas-takeaways-joey-logano/
+
 **Old School Glamour at the Met Gala of the West Coast**\
 `The Academy Museum Gala delivered what red carpets are made for.`\
 https://nytimes.com/2024/10/21/style/academy-museum-gala-best-dressed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/21/business/energy-environment/arkansas-lithium-ev-b
 **MLB World Series odds: Will Dodgers or Yankees be crowned in Fall Classic?**\
 `With a monster World Series starting Friday, we're checking in on the odds for winner, MVP and player props for Dodgers vs. Yankees.`\
 https://nytimes.com/athletic/5860922/2024/10/21/mlb-world-series-futures-props-odds-dodgers-yankees/
-
-**Get the most out of The Athletic's NBA coverage**\
-`We know you're just as excited as us for this NBA season, and we promise to deliver.`\
-https://nytimes.com/athletic/5854139/2024/10/21/nba-season-welcome/
-
-**College football national title odds: How Georgia and other contenders line up**\
-`Georgia has moved back into the top spot in the odds boards for national title favorite. How does the rest of the field stack up?`\
-https://nytimes.com/athletic/5860741/2024/10/21/college-football-national-title-odds-georgia/
 

@@ -1,3 +1,11 @@
+**People Keep Making These Six Mistakes About Inflation**\
+`Thanks to human nature, we misunderstand the pain, and sometimes the purpose, of rising prices.`\
+https://nytimes.com/2024/10/21/opinion/inflation-mistakes.html
+
+**NASCAR Las Vegas takeaways: Joey Logano and the No. 22 team do it again**\
+`Given a second life in these playoffs, Joey Logano made it count with a win Sunday in Las Vegas, securing his spot in the Championship 4.`\
+https://nytimes.com/athletic/5860590/2024/10/21/nascar-las-vegas-takeaways-joey-logano/
+
 **Old School Glamour at the Met Gala of the West Coast**\
 `The Academy Museum Gala delivered what red carpets are made for.`\
 https://nytimes.com/2024/10/21/style/academy-museum-gala-best-dressed.html
