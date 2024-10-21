@@ -1,3 +1,11 @@
+**U.S. Missile Defense System Arrives in Israel**\
+`The Terminal High Altitude Area Defense system was in place, Defense Secretary Lloyd J. Austin III said on Monday. The deployment comes as Israel prepares for retaliatory attacks against Iran.`\
+https://nytimes.com/2024/10/21/world/middleeast/israel-thaad-missile-defense.html
+
+**Lowetide: Is there reason for concern in Oilers winger Zach Hyman's slow start?**\
+`Hyman scored a career high 54 goals last season but through six games in 2024-25 he has none.`\
+https://nytimes.com/athletic/5857320/2024/10/21/edmonton-oilers-zach-hyman-stats-slow/
+
 **After sloppy loss to the Rams, it's clear these Raiders are headed nowhere**\
 `Between injuries and the lack of a bona fide starting quarterback, it's time for the Raiders to start thinking about the future.`\
 https://nytimes.com/athletic/5858475/2024/10/21/raiders-loss-rams-gardner-minshew-antonio-pierce/

@@ -1,3 +1,11 @@
+**U.S. Missile Defense System Arrives in Israel**\
+`The Terminal High Altitude Area Defense system was in place, Defense Secretary Lloyd J. Austin III said on Monday. The deployment comes as Israel prepares for retaliatory attacks against Iran.`\
+https://nytimes.com/2024/10/21/world/middleeast/israel-thaad-missile-defense.html
+
+**Lowetide: Is there reason for concern in Oilers winger Zach Hyman's slow start?**\
+`Hyman scored a career high 54 goals last season but through six games in 2024-25 he has none.`\
+https://nytimes.com/athletic/5857320/2024/10/21/edmonton-oilers-zach-hyman-stats-slow/
+
 **After sloppy loss to the Rams, it's clear these Raiders are headed nowhere**\
 `Between injuries and the lack of a bona fide starting quarterback, it's time for the Raiders to start thinking about the future.`\
 https://nytimes.com/athletic/5858475/2024/10/21/raiders-loss-rams-gardner-minshew-antonio-pierce/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/21/briefing/is-donald-trump-an-isolationist.html
 **Weekend NHL rankings: Five early-season storylines I don’t believe in (yet)**\
 `Enough games to have narratives! But is it still too early in the season to believe them? Absolutely.`\
 https://nytimes.com/athletic/5858194/2024/10/21/nhl-weekend-rankings-early-season-storylines/
-
-**Indigenous Senator Heckles King Charles During Australia Visit**\
-`King Charles III and Queen Camilla of Britain were attending a parliamentary reception in Canberra on Monday when senator Lidia Thorpe, an activist for Aboriginal rights who has long campaigned against the British monarchy, disrupted the event.`\
-https://nytimes.com/video/world/australia/100000009772864/king-charles-australia-parliament-lidia-thorpe.html
-
-**Saka could return for Arsenal against Shakhtar Donetsk: 'Let's see how he feels'**\
-`Arsenal forward Bukayo Saka could be fit for Arsenal&#8217;s Champions League game against Shakhtar Donetsk on Tuesday.`\
-https://nytimes.com/athletic/5856804/2024/10/21/bukayo-saka-injury-arsenal-update/
 
