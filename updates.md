@@ -1,3 +1,11 @@
+**Houston Authorities Respond to Report of Helicopter Crashing Into Radio Tower**\
+`The Houston fire and police departments said they were responding. Videos circulating on social media appeared to show the fiery aftermath.`\
+https://nytimes.com/2024/10/20/us/helicopter-crash-radio-tower-houston.html
+
+**Helicopter Crash Reported in Houston**\
+`Police officers urged onlookers to clear the site of the accident as smoke and fire filled the air.`\
+https://nytimes.com/video/us/100000009772500/helicopter-crash-houston-texas.html
+
 **49ers’ Ricky Pearsall goes from feel-good story to needed target in loss to Chiefs**\
 `Pearsall, making his NFL debut, was the 49ers' most targeted receiver after Brandon Aiyuk and Deebo Samuel left the game at halftime.`\
 https://nytimes.com/athletic/5858963/2024/10/20/49ers-ricky-pearsall-returns-loss-chiefs/
