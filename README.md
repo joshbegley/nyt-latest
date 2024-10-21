@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5861723/2024/10/21/wild-marcus-foligno-yakov-trenin
 https://nytimes.com/2024/10/21/us/politics/arizona-election-certification-guilty-plea.html
 
 **Bruce Feldman's Southern Miss coaching candidates: Who could be next for the Eagles?**\
-`Who's in the mix to be Southern Miss' next head coach? Where the Eagles turn from here will be interesting.`\
+`Who's in the mix to be Southern Miss' next coach? Where the Eagles turn from here will be interesting.`\
 https://nytimes.com/athletic/5861812/2024/10/21/southern-miss-coaching-search-candidates/
 
 **DK Metcalf 'week to week' with knee injury**\
