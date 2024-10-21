@@ -1,3 +1,7 @@
+**Tommy Edman completes Dodgers roster, captures NLCS MVP: ‘The ultimate professional’**\
+`Before acquiring Tommy Edman at the trade deadline, the Dodgers had sought after him for years. That pursuit paid off big in the NLCS.`\
+https://nytimes.com/athletic/5859441/2024/10/21/tommy-edman-dodgers-nlcs-mvp/
+
 **Was this Pete Alonso's final game with Mets? 'We’d love to see him back'**\
 `Alonso’s free agency creates a fascinating situation for Mets president of baseball operations David Stearns.`\
 https://nytimes.com/athletic/5859464/2024/10/21/mets-pete-alonso-future-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855381/2024/10/21/michael-keane-everton-sean-dyche
 **Curtis Jones has become a father, kept Cole Palmer quiet and added some devil to his game**\
 `A show of resilience and grit against Chelsea helped Liverpool dig deep to regain top spot in the league. Jones epitomised those qualities`\
 https://nytimes.com/athletic/5857676/2024/10/21/curtis-jones-dad-liverpool-chelsea/
-
-**Understanding why Manchester City are playing as they are - as explained by Guardiola**\
-`Manchester City are unbeaten in the Premier League and are just a point behind leaders Liverpool, but Pep Guardiola's side have an issue`\
-https://nytimes.com/athletic/5857316/2024/10/21/man-city-wolves-analysis/
 

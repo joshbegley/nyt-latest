@@ -1,3 +1,7 @@
+**Tommy Edman completes Dodgers roster, captures NLCS MVP: ‘The ultimate professional’**\
+`Before acquiring Tommy Edman at the trade deadline, the Dodgers had sought after him for years. That pursuit paid off big in the NLCS.`\
+https://nytimes.com/athletic/5859441/2024/10/21/tommy-edman-dodgers-nlcs-mvp/
+
 **Was this Pete Alonso's final game with Mets? 'We’d love to see him back'**\
 `Alonso’s free agency creates a fascinating situation for Mets president of baseball operations David Stearns.`\
 https://nytimes.com/athletic/5859464/2024/10/21/mets-pete-alonso-future-free-agency/
