@@ -1,3 +1,7 @@
+**Tuesday Briefing: Two Weeks Until Election Day**\
+`Plus, Aleksei Navalny’s memoir.`\
+https://nytimes.com/2024/10/21/briefing/election-polls-lebanon-brics.html
+
 **Paul Di’Anno, Early Iron Maiden Frontman, Dies at 66**\
 `The English singer played with the band in its early years. He later worked with other bands and pursued a solo career.`\
 https://nytimes.com/2024/10/21/arts/music/paul-dianno-iron-maiden-dead.html
