@@ -1,3 +1,7 @@
+**Why Sabalenka replaced Swiatek as world number one in the WTA rankings**\
+`The Belarusian has had a sterling season, but her official ascent to the top came about through a WTA rule.`\
+https://nytimes.com/athletic/5859606/2024/10/21/sabalenka-world-number-1-swiatek-wta-rules/
+
 **Dave Roberts kept the Dodgers' train on the tracks and got back to the World Series**\
 `Teoscar Hernández said said “one meeting changed everything" and symbolized Roberts' ability to press the right buttons.`\
 https://nytimes.com/athletic/5859549/2024/10/21/dodgers-dave-roberts-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858173/2024/10/21/barcelona-lewandowski-gavi-flick
 **Mets' magic runs out a pair of wins away from the World Series**\
 `The Mets surrendered 46 runs over six games — more than any other National League team has ever surrendered in a series.`\
 https://nytimes.com/athletic/5859438/2024/10/21/mets-season-ends-loss-dodgers-nlcs/
-
-**Tommy Edman completes Dodgers roster, captures NLCS MVP: ‘The ultimate professional’**\
-`Before acquiring Tommy Edman at the trade deadline, the Dodgers had sought after him for years. That pursuit paid off big in the NLCS.`\
-https://nytimes.com/athletic/5859441/2024/10/21/tommy-edman-dodgers-nlcs-mvp/
 
