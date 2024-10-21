@@ -1,3 +1,7 @@
+**Charlie Williams: The Black footballer who became a comedian**\
+`Williams stood out as a Black footballer and a Black comedian. He broke barriers, but his race-based jokes were firmly of their time`\
+https://nytimes.com/athletic/5851965/2024/10/21/charlie-williams-doncaster-footballer-comedy/
+
 **Fantasy football Week 7 takeaways: Brock Bowers is sitting pretty, Stefon Diggs is washed and more**\
 `Michael Salfino offers observations from Week 7, including a belief that life after the Davante Adams trade will be sweet for Brock Bowers.`\
 https://nytimes.com/athletic/5858680/2024/10/21/fantasy-football-week-7-takeaways-bowers-diggs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5857309/2024/10/20/mets-dodgers-score-takeaways-mlb
 **Yankees, Dodgers to square off in World Series: 5 storylines to watch**\
 `Shohei Ohtani and Aaron Judge will play starring roles as each superstar makes his World Series debut.`\
 https://nytimes.com/athletic/5858503/2024/10/20/yankees-dodgers-world-series-storylines-to-watch/
-
-**Dodgers finish off Mets to clinch NL pennant and World Series matchup against Yankees**\
-`After the plucky Mets forced a Game 6 in Los Angeles, the Dodgers demonstrated their postseason pedigree.`\
-https://nytimes.com/athletic/5858917/2024/10/20/dodgers-mets-yankees-world-series-pennant/
 
