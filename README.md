@@ -1,3 +1,7 @@
+**A's to play on real grass in Sacramento**\
+`The A’s are going to play on natural grass in Sacramento, not turf as previously planned, a change preferred by the players and made out of concern for the heat.`\
+https://nytimes.com/athletic/5861182/2024/10/21/oakland-athletics-sacramento-grass-field/
+
 **Nike to remain NBA's exclusive uniform provider on new contract**\
 `Nike will continue to be the exclusive partner of the WNBA and G League as well.`\
 https://nytimes.com/athletic/5860807/2024/10/21/nike-uniform-contract-nba-wnba-g-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/business/media/trump-mcdonalds-media-coverage.htm
 **Jonathan Kuminga, Warriors do not come to an extension agreement**\
 `Kuminga shot the 3 with more confidence and volume in the preseason, going 11 of 25 on mostly catch-and-shoot attempts in the halfcourt.`\
 https://nytimes.com/athletic/5861273/2024/10/21/jonathan-kuminga-warriors-no-extension/
-
-**All-LCS Team: Mookie Betts, Juan Soto, Tommy Edman deliver for pennant winners**\
-`The position players, starters and relievers who excelled for the Guardians, Mets, Dodgers and Yankees in the League Championship Series`\
-https://nytimes.com/athletic/5860352/2024/10/21/mlb-all-league-championship-series-team/
 
