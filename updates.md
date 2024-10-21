@@ -1,3 +1,7 @@
+**A's to play on real grass in Sacramento**\
+`The A’s are going to play on natural grass in Sacramento, not turf as previously planned, a change preferred by the players and made out of concern for the heat.`\
+https://nytimes.com/athletic/5861182/2024/10/21/oakland-athletics-sacramento-grass-field/
+
 **Nike to remain NBA's exclusive uniform provider on new contract**\
 `Nike will continue to be the exclusive partner of the WNBA and G League as well.`\
 https://nytimes.com/athletic/5860807/2024/10/21/nike-uniform-contract-nba-wnba-g-league/
