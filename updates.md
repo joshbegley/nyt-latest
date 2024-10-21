@@ -1,3 +1,7 @@
+**Mike Tomlin vindicated, Russell Wilson 'excellent' in Steelers debut**\
+`Wilson got off to a slow start — there were even boos — but he knocked off the rust and the Steelers' offense found balance and efficiency.`\
+https://nytimes.com/athletic/5859545/2024/10/21/steelers-russell-wilson-debut-win-george-pickens/
+
 **Size, skating and stick: Video breakdown of Broberg's fast start with Blues**\
 `New Blues defenseman Philip Broberg has a point in each of his first six games and hasn't been on the ice for an even-strength goal against.`\
 https://nytimes.com/athletic/5857188/2024/10/21/blues-philip-broberg-video-breakdown/

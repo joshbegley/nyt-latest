@@ -1,3 +1,7 @@
+**Mike Tomlin vindicated, Russell Wilson 'excellent' in Steelers debut**\
+`Wilson got off to a slow start — there were even boos — but he knocked off the rust and the Steelers' offense found balance and efficiency.`\
+https://nytimes.com/athletic/5859545/2024/10/21/steelers-russell-wilson-debut-win-george-pickens/
+
 **Size, skating and stick: Video breakdown of Broberg's fast start with Blues**\
 `New Blues defenseman Philip Broberg has a point in each of his first six games and hasn't been on the ice for an even-strength goal against.`\
 https://nytimes.com/athletic/5857188/2024/10/21/blues-philip-broberg-video-breakdown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854029/2024/10/21/senators-linus-ullmark-tim-stutz
 **The Athletic FC: Were all the big VAR calls correct? Plus: MLS Decision Day fallout**\
 `Today in TAFC: Were all the big VAR calls correct in the EPL? Plus: Decision Day fallout and Messi's Miami get a pass to the Club World Cup.`\
 https://nytimes.com/athletic/5859790/2024/10/21/var-arsenal-man-city-messi-club-world-cup/
-
-**Read the Task Force’s Report**\
-`The House task force on the attempted assassinations of former President Donald J. Trump released its first preliminary report.`\
-https://nytimes.com/interactive/2024/10/21/us/task-force-interim-staff-report-10212024.html
 
