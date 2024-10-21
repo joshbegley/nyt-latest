@@ -1,3 +1,11 @@
+**Submit your questions for Until Saturday's podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/5859811/2024/10/21/college-football-questions-mailbag-until-saturday-24/
+
+**Is Donald Trump an Isolationist?**\
+`We explore the stakes of another Trump presidency in terms of foreign policy.`\
+https://nytimes.com/2024/10/21/briefing/is-donald-trump-an-isolationist.html
+
 **Weekend NHL rankings: Five early-season storylines I don’t believe in (yet)**\
 `Enough games to have narratives! But is it still too early in the season to believe them? Absolutely.`\
 https://nytimes.com/athletic/5858194/2024/10/21/nhl-weekend-rankings-early-season-storylines/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5859511/2024/10/21/jerry-jones-cowboys-al-davis/
 **The 49ers' shrinking window and how Brock Purdy fits (or might not): Sando's Pick Six**\
 `The 49ers' star core is aging, and Purdy is nearing a massive payday. Should the Niners build around him? Would they consider trading him?`\
 https://nytimes.com/athletic/5854581/2024/10/21/brock-purdy-49ers-super-bowl-window/
-
-**'Heartbroken' after trade, Jake Walman starts anew with Sharks**\
-`Walman wishes his time in Detroit ended differently, but he's appreciative of the experience as he starts fresh in San Jose.`\
-https://nytimes.com/athletic/5847866/2024/10/21/red-wings-jake-walman-trade-sharks/
-
-**Silver: Why Patrick Mahomes and the Chiefs look capable of a three-peat**\
-`The Chiefs are the NFL's only unbeaten team at 6-0 and yet, "We’re gonna be so much better. There’s so much more we can do.”`\
-https://nytimes.com/athletic/5859174/2024/10/21/chiefs-mahomes-kelce-reid-three-peat-chase/
 
