@@ -1,11 +1,3 @@
-**Welcome to John Mara's nightmare: Eagles' Saquon Barkley shreds Giants in return to MetLife**\
-`An embarrassing home loss to a hated rival spearheaded by the superstar his team let walk out the door — Mara just lived his nightmare.`\
-https://nytimes.com/athletic/5858214/2024/10/20/giants-nightmare-loss-saquon-barkley-eagles/
-
-**Seahawks deliver 'team win' over Falcons, validate Mike MacDonald's steady message**\
-`Seattle snapped a three-game losing streak by forcing three Kirk Cousins turnovers and taking control of the game late.`\
-https://nytimes.com/athletic/5858163/2024/10/20/seahawks-win-falcons-mike-macdonald/
-
 **Why Lando Norris' U.S. Grand Prix penalty is an F1 title fight 'momentum killer'**\
 `Verstappen and Norris went wheel-to-wheel in their most spirited fight since the Austrian GP — avoiding contact this time, but not drama.`\
 https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstappen/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5857072/2024/10/20/chiefs-49ers-takeaways-result/
 **What went wrong to end the Falcons' winning streak? Almost everything**\
 `Kirk Cousins threw two interceptions and lost a fumble, the Falcons were flagged nine times and the defense had no answers for Seattle.`\
 https://nytimes.com/athletic/5858180/2024/10/20/falcons-loss-sloppy-play-kirk-cousins/
+
+**Rams survive Raiders 20-15 as Las Vegas' struggles at QB continue**\
+`Led by another hard-nosed effort from running back Kyren Williams, the Rams held on with timely plays on offense.`\
+https://nytimes.com/athletic/5857062/2024/10/20/rams-raiders-takeaways-result/
+
+**A Crack, a Shift, then Screams: Witnesses Describe Georgia Dock Collapse That Killed 7**\
+`Investigators have begun looking for reasons behind the failure at a ferry dock on Sapelo Island, the site of a festival celebrating the heritage of descendants of enslaved people.`\
+https://nytimes.com/2024/10/20/us/georgia-dock-collapse-gullah-geechee.html
 
