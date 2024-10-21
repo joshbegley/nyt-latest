@@ -1,3 +1,15 @@
+**49ers’ Ricky Pearsall goes from feel-good story to needed target in loss to Chiefs**\
+`Pearsall, making his NFL debut, was the 49ers' most targeted receiver after Brandon Aiyuk and Deebo Samuel left the game at halftime.`\
+https://nytimes.com/athletic/5858963/2024/10/20/49ers-ricky-pearsall-returns-loss-chiefs/
+
+**Jets' Xavier Newman stretchered off field vs. Steelers**\
+`Newman, 25, was taken to the University of Pittsburgh Hospital and is currently able to move his limbs, per the NBC broadcast.`\
+https://nytimes.com/athletic/5858965/2024/10/20/xavier-newman-jets-steelers-injury/
+
+**Josh Allen has grown as a game manager, and Sunday's win shows why that's crucial for Bills**\
+`Allen and the Bills didn't panic after a slow start against a bad team.`\
+https://nytimes.com/athletic/5858601/2024/10/20/bills-josh-allen-game-manager-win/
+
 **Why Sunday's loss could lead to Raiders' pushing the desperation button at QB**\
 `There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
 https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
