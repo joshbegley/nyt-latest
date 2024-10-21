@@ -1,3 +1,15 @@
+**The new third pair, Boeser's faceoffs and more: 5 Canucks observations after 5 games**\
+`Also in the notebook, 'The Boys Have Been Talkin' Tour' and will the Canucks roll the hot hand in net with Kevin Lankinen?`\
+https://nytimes.com/athletic/5859602/2024/10/21/canucks-brock-boeser-tyler-myers/
+
+**College football best bets Week 9: Navy to cover vs. Notre Dame, and three more spread bets**\
+`Austin Mock uses his model to pick four spread bets for college football Week 9. More bets to come later this week.`\
+https://nytimes.com/athletic/5860188/2024/10/21/college-football-best-bets-week-9-penn-state-wisconsin-notre-dame/
+
+**Yohe: What I'm hearing about Penguins' goaltending circus**\
+`What happens next with the Penguins' goaltending? Not even Mike Sullivan knows.`\
+https://nytimes.com/athletic/5859471/2024/10/21/penguins-tristan-jarry-benched/
+
 **Tiger Woods' return highlights inaugural TGL schedule**\
 `Woods, who underwent back surgery last month, is being promoted as making his TGL debut in the nascent league’s second week of competition.`\
 https://nytimes.com/athletic/5860118/2024/10/21/tiger-woods-return-tgl-schedule/

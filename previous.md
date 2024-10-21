@@ -1,3 +1,15 @@
+**The new third pair, Boeser's faceoffs and more: 5 Canucks observations after 5 games**\
+`Also in the notebook, 'The Boys Have Been Talkin' Tour' and will the Canucks roll the hot hand in net with Kevin Lankinen?`\
+https://nytimes.com/athletic/5859602/2024/10/21/canucks-brock-boeser-tyler-myers/
+
+**College football best bets Week 9: Navy to cover vs. Notre Dame, and three more spread bets**\
+`Austin Mock uses his model to pick four spread bets for college football Week 9. More bets to come later this week.`\
+https://nytimes.com/athletic/5860188/2024/10/21/college-football-best-bets-week-9-penn-state-wisconsin-notre-dame/
+
+**Yohe: What I'm hearing about Penguins' goaltending circus**\
+`What happens next with the Penguins' goaltending? Not even Mike Sullivan knows.`\
+https://nytimes.com/athletic/5859471/2024/10/21/penguins-tristan-jarry-benched/
+
 **Tiger Woods' return highlights inaugural TGL schedule**\
 `Woods, who underwent back surgery last month, is being promoted as making his TGL debut in the nascent league’s second week of competition.`\
 https://nytimes.com/athletic/5860118/2024/10/21/tiger-woods-return-tgl-schedule/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/21/arts/music/popcast-chappell-roan.html
 **Fantasy Week 7 recap: With Mahomes, Richardson failing managers, add these 4 QBs**\
 `With some highly drafted QBs struggling to produce fantasy points (Hi there, Patrick Mahomes!) here are four QBs who can help rosters now.`\
 https://nytimes.com/athletic/5860063/2024/10/21/fantasy-football-week-7-recap-with-mahomes-richardson-failing-managers-add-these-4-qbs/
-
-**Alabama football film study: Taking a closer look at what went wrong vs. Tennessee**\
-`The Crimson Tide lost 24-17 to Tennessee on Saturday. In the loss, glaring issues on the offense and defense surfaced.`\
-https://nytimes.com/athletic/5860066/2024/10/21/alabama-tennessee-college-football-review-film-study/
-
-**Canadiens weekly notebook: Guhle’s injury, Evans and Armia are PK perfect and more**\
-`Also in this week's notebook, Cole Caufield has found his sharp-angle touch, Lane Hutson lacks performance anxiety, and a look at Laval.`\
-https://nytimes.com/athletic/5859483/2024/10/21/canadiens-kaiden-guhle-injury/
-
-**Vietnam Revives Power-Sharing Arrangement With New President**\
-`The move restores a “four pillar” government structure that divides top-level duties to avoid the rise of a single strongman.`\
-https://nytimes.com/2024/10/21/world/asia/vietnam-president.html
 

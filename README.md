@@ -1,3 +1,11 @@
+**Moldovans, Very Narrowly, Choose to Look Toward Europe, Not Russia**\
+`A referendum that constitutionally enshrines a national objective to join the E.U. passed by a thin margin. The incumbent pro-E.U. president won the most votes in a concurrent election, but faces a runoff.`\
+https://nytimes.com/2024/10/21/world/europe/moldova-eu-referendum-vote-result.html
+
+**The Bounce: Who is your pick for 2024-25 NBA MVP?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5859958/2024/10/21/luka-doncic-nba-mvp-liberty-lynx-wnba-the-bounce/
+
 **The new third pair, Boeser's faceoffs and more: 5 Canucks observations after 5 games**\
 `Also in the notebook, 'The Boys Have Been Talkin' Tour' and will the Canucks roll the hot hand in net with Kevin Lankinen?`\
 https://nytimes.com/athletic/5859602/2024/10/21/canucks-brock-boeser-tyler-myers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/21/health/sickle-cell-disease-gene-therapy-patient.h
 **D.C. mayor introduces bill to renovate Capital One Arena**\
 `The new agreement, if passed by the city council, would also extend the Capital One Arena lease until 2050. `\
 https://nytimes.com/athletic/5860200/2024/10/21/capital-one-arena-lease-leonsis-bowser/
-
-**Chappell Roan’s Rocket-Ship Year**\
-`The pop star’s ascent has tested the boundaries of contemporary pop, and may create a template for a next generation.`\
-https://nytimes.com/2024/10/21/arts/music/popcast-chappell-roan.html
-
-**Fantasy Week 7 recap: With Mahomes, Richardson failing managers, add these 4 QBs**\
-`With some highly drafted QBs struggling to produce fantasy points (Hi there, Patrick Mahomes!) here are four QBs who can help rosters now.`\
-https://nytimes.com/athletic/5860063/2024/10/21/fantasy-football-week-7-recap-with-mahomes-richardson-failing-managers-add-these-4-qbs/
 
