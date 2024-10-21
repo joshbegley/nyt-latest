@@ -1,3 +1,7 @@
+**The Deeply Personal Price Women Must Pay for Abortion Bans**\
+`Exceptions to save a mother’s life don’t matter when doctors fear performing the procedure.`\
+https://nytimes.com/2024/10/15/opinion/florida-abortion-ban-health.html
+
 **Plight of Hostages Held by Hamas**\
 `Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
 https://nytimes.com/issue/world/2024/10/21/plight-of-hostages-held-by-hamas

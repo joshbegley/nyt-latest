@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5855753/2024/10/21/f1-mailbag-us-grand-prix/
 
 **The Deeply Personal Price Women Must Pay for Abortion Bans**\
 `Exceptions to save a mother’s life don’t matter when doctors fear performing the procedure.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/florida-abortion-ban-health
+https://nytimes.com/2024/10/15/opinion/florida-abortion-ban-health.html
 
 **Can a Synthetic Voice Be Taught to Sing Opera?**\
 `“The Other Side of Silence,” a new work in development, is experimenting with giving operatic voice to a text-to-speech synthesizer.`\
