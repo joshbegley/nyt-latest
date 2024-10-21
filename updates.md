@@ -1,3 +1,15 @@
+**Understanding why Manchester City are playing as they are - as explained by Guardiola**\
+`Manchester City are unbeaten in the Premier League and are just a point behind leaders Liverpool, but Pep Guardiola's side have an issue`\
+https://nytimes.com/athletic/5857316/2024/10/21/man-city-wolves-analysis/
+
+**Spurs are becoming deadly on the break - maybe they should embrace counter-attacking**\
+`Ange Postecoglou is unlikely to make counter-attacking his primary approach but when Spurs are doing it, it's really working`\
+https://nytimes.com/athletic/5855519/2024/10/21/tottenham-fast-breaks-counter-attacks/
+
+**Once again, switch to a back three against City offers Wolves hope - reverting is unthinkable**\
+`Gary O'Neil finally changed defensive tactics against the champions and it went well. He wouldn't change back again, would he?`\
+https://nytimes.com/athletic/5857334/2024/10/21/wolves-with-a-back-three-against-man-city/
+
 **Attack has to be the best form of defence for Leicester City**\
 `Leicester defended woefully against Southampton but their attacking talent inspired them - Steve Cooper has to take the handbrake off`\
 https://nytimes.com/athletic/5856501/2024/10/21/leicester-city-steve-cooper-fatawu-attack/

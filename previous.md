@@ -1,3 +1,11 @@
+**Understanding why Manchester City are playing as they are - as explained by Guardiola**\
+`Manchester City are unbeaten in the Premier League and are just a point behind leaders Liverpool, but Pep Guardiola's side have an issue`\
+https://nytimes.com/athletic/5857316/2024/10/21/man-city-wolves-analysis/
+
+**Spurs are becoming deadly on the break - maybe they should embrace counter-attacking**\
+`Ange Postecoglou is unlikely to make counter-attacking his primary approach but when Spurs are doing it, it's really working`\
+https://nytimes.com/athletic/5855519/2024/10/21/tottenham-fast-breaks-counter-attacks/
+
 **Attack has to be the best form of defence for Leicester City**\
 `Leicester defended woefully against Southampton but their attacking talent inspired them - Steve Cooper has to take the handbrake off`\
 https://nytimes.com/athletic/5856501/2024/10/21/leicester-city-steve-cooper-fatawu-attack/
@@ -14,6 +22,10 @@ https://nytimes.com/athletic/5857400/2024/10/21/chelsea-defence-liverpool/
 `Two years ago, Villa lost to Fulham and Steve Gerrard left the club. Digne shows how much has changed since`\
 https://nytimes.com/athletic/5855127/2024/10/21/lucas-digne-unai-emery-fulham/
 
+**Once again, switch to a back three against City offers Wolves hope - reverting is unthinkable**\
+`Gary O'Neil finally changed defensive tactics against the champions and it went well. He wouldn't change back again, would he?`\
+https://nytimes.com/athletic/5857334/2024/10/21/wolves-with-a-back-three-against-man-city/
+
 **Howe's Newcastle have never had a problem scoring goals... until now**\
 `Newcastle failed to score from open play again at the weekend, a cause for concern given their attacking numbers are down in all key areas`\
 https://nytimes.com/athletic/5852826/2024/10/21/newcastle-scoring-goals-eddie-howe/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5854781/2024/10/21/nottingham-forest-premier-league
 **The Briefing: Why we would all miss Salah and do Arsenal need to be braver?**\
 `Analysing the big Premier League weekend talking points — also featuring what to make of West Ham?`\
 https://nytimes.com/athletic/5857597/2024/10/21/mohamed-salah-future-arsenal-tactics/
-
-**Despite injury to Jayden Daniels, Commanders all smiles after throttling Panthers**\
-`The rookie QB suffered a rib injury in the first quarter against Carolina and didn't return, but the team continued to shine in his absence.`\
-https://nytimes.com/athletic/5858880/2024/10/21/commanders-win-panthers-jayden-daniels-injury/
-
-**Thomas Tuchel is a symptom, not a cause, of English football's coaching problems**\
-`English football has had an unprecedented decade of development but it needs time and a culture change for coaching to catch up`\
-https://nytimes.com/athletic/5853035/2024/10/21/thomas-tuchel-english-coaches-pathway/
-
-**The tragedy of Matija Sarkic - and what Millwall did next**\
-`The inside story of how the Championship club dealt with the trauma of their popular goalkeeper dying suddenly this summer at age 26`\
-https://nytimes.com/athletic/5849788/2024/10/21/matija-sarkic-millwall-legacy/
 
