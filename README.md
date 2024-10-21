@@ -1,3 +1,19 @@
+**Dolphins designating Tua Tagovailoa to return from IR**\
+`Tagovailoa, who has been on IR since suffering a concussion in Week 2, is expected to practice Wednesday.`\
+https://nytimes.com/athletic/5860949/2024/10/21/tua-tagovailoa-return-dolphins/
+
+**Arkansas May Have Vast Lithium Reserves, Researchers Say**\
+`Federal and state researchers said there might be five million to 19 million tons of lithium, more than enough to meet the world’s demand for the battery ingredient.`\
+https://nytimes.com/2024/10/21/business/energy-environment/arkansas-lithium-ev-batteries.html
+
+**MLB World Series futures odds: Will Dodgers or Yankees be crowned in Fall Classic?**\
+`With a monster World Series starting Friday, we're checking in on the odds for winner, MVP and player props for Dodgers vs. Yankees.`\
+https://nytimes.com/athletic/5860922/2024/10/21/mlb-world-series-futures-props-odds-dodgers-yankees/
+
+**Get the most out of The Athletic's NBA coverage**\
+`We know you're just as excited as us for this NBA season, and we promise to deliver.`\
+https://nytimes.com/athletic/5854139/2024/10/21/get-the-most-out-of-the-athletics-nba-coverage/
+
 **College football national title odds: How Georgia and other contenders line up**\
 `Georgia has moved back into the top spot in the odds boards for national title favorite. How does the rest of the field stack up?`\
 https://nytimes.com/athletic/5860741/2024/10/21/college-football-national-title-odds-georgia/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5858412/2024/10/21/fantasy-basketball-predictions-d
 **The Lawsuits Against Sean Combs**\
 `The music mogul, who faces federal sex trafficking and racketeering charges, has been accused in civil court of raping and drugging people. He has denied the allegations.`\
 https://nytimes.com/article/sean-combs-diddy-lawsuits-accusations.html
-
-**NFL Week 8 odds, schedule: Chiefs should undefeated, plus potential rookie battle**\
-`All 32 teams are in action for NFL Week 8, with several lopsided matchups as the wheat and chaff start to separate.`\
-https://nytimes.com/athletic/5860580/2024/10/21/nfl-week-8-odds-spreads-schedule-chiefs-look-good-to-stay-undefeated-plus-potential-jayden-daniels-vs-caleb-williams-matchup/
-
-**On X, the Definition of ‘Blocking’ Is About to Change**\
-`A change in how the site works will allow people to see posts by users who have them blocked. The company claims it is for “transparency,” but some people are worried about abuse.`\
-https://nytimes.com/2024/10/21/style/x-twitter-blocking-elon-musk.html
-
-**Plight of Hostages Held by Hamas**\
-`Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
-https://nytimes.com/issue/world/2024/10/21/plight-of-hostages-held-by-hamas
-
-**The Scale of Destruction in Gaza**\
-`Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
-https://nytimes.com/issue/world/2024/10/21/the-scale-of-destruction-in-gaza
 
