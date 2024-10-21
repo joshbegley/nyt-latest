@@ -1,3 +1,15 @@
+**All-LCS Team: Mookie Betts, Juan Soto, Tommy Edman deliver for pennant winners**\
+`The position players, starters and relievers who excelled for the Guardians, Mets, Dodgers and Yankees in the League Championship Series`\
+https://nytimes.com/athletic/5860352/2024/10/21/mlb-all-league-championship-series-team/
+
+**NFL flexes Colts-Vikings to 'Sunday Night Football' in Week 9**\
+`The Jaguars-Eagles matchup has been moved to 4:05 p.m. ET on Nov. 3.`\
+https://nytimes.com/athletic/5861122/2024/10/21/colts-vikings-flex-schedule-week-9/
+
+**Jeff Bezos and Jessica Chastain Toast a Daring ‘Sunset Boulevard’ on Broadway**\
+`A stripped-back revival of the classic musical, starring the singer Nicole Scherzinger, opened at the St. James Theater on Sunday night.`\
+https://nytimes.com/2024/10/21/style/sunset-boulevard-nicole-scherzinger-broadway.html
+
 **People Keep Making These Six Mistakes About Inflation**\
 `Thanks to human nature, we misunderstand the pain, and sometimes the purpose, of rising prices.`\
 https://nytimes.com/2024/10/21/opinion/inflation-mistakes.html
