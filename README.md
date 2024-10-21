@@ -2,7 +2,7 @@
 `The Commanders, and possibly Daniels, will face Caleb Williams and the Chicago Bears in Week 8.`\
 https://nytimes.com/athletic/5861295/2024/10/21/commanders-jayden-daniels-rib-injury-update/
 
-**Trump Says He Has Seen No Evidence of Cheating in the Election, But Nonetheless Sows Doubts**\
+**Trump Says He Has Seen No Evidence of Cheating in the Election, but Nonetheless Sows Doubts**\
 `The former president, asked at a news conference in storm-damaged North Carolina if he had seen anything to suggest the election would be unfair, said, “I have not seen that.”`\
 https://nytimes.com/2024/10/21/us/politics/trump-north-carolina-presser.html
 
