@@ -1,4 +1,4 @@
-**DK Metcalf 'week-to-week' with knee injury**\
+**DK Metcalf 'week to week' with knee injury**\
 `The second-leading receiver in the NFL, Metcalf was carted to the locker room late in Sunday's win over the Falcons.`\
 https://nytimes.com/athletic/5861798/2024/10/21/dk-metcalf-injury-seahawks/
 
