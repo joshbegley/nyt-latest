@@ -1,3 +1,7 @@
+**The tragedy of Matija Sarkic - and what Millwall did next**\
+`The inside story of how the Championship club dealt with the trauma of their popular goalkeeper dying suddenly this summer at age 26`\
+https://nytimes.com/athletic/5849788/2024/10/21/matija-sarkic-millwall-legacy/
+
 **Charlie Williams: The Black footballer who became a comedian**\
 `Williams stood out as a Black footballer and a Black comedian. He broke barriers, but his race-based jokes were firmly of their time`\
 https://nytimes.com/athletic/5851965/2024/10/21/charlie-williams-doncaster-footballer-comedy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858970/2024/10/20/chiefs-defense-49ers-jaden-hicks
 **Dock Collapse Kills Several in Georgia**\
 `Bystanders and rescue teams searched for victims after the gangway at a ferry dock in Sapelo Island collapsed into the water.`\
 https://nytimes.com/video/us/100000009772496/georgia-dock-collapse-sapelo-gulla-geechee.html
-
-**Dodgers topple Mets to capture pennant, Yankees up next: Takeaways**\
-`LOS ANGELES — Here are four takeaways from the Los Angeles Dodgers&#8217; 10-5 victory over the New York Mets in Game 6 of the NLCS.`\
-https://nytimes.com/athletic/5857309/2024/10/20/mets-dodgers-score-takeaways-mlb-playoffs-nlcs-2/
 
