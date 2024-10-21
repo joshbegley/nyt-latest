@@ -1,3 +1,15 @@
+**Rosenthal: With Shohei Ohtani in his first World Series, a chance for greatness on the 'biggest of stages'**\
+`The Dodgers superstar's presence adds to one of the most anticipated Fall Classic showcases in a long time.`\
+https://nytimes.com/athletic/5859842/2024/10/21/shohei-ohtani-world-series-mlb-dodgers-yankees/
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Following Saturday’s damaging 1-0 home defeat to Brighton & Hove Albion, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5859712/2024/10/21/inside-newcastle-qa-brighton-howe/
+
+**Introducing NBA Reliability Tiers: Which stars can be counted on the most in regular season?**\
+`The rankings observe the players who meet the NBA's "star" requirements by merging All-NBA and All-Star appearances of the last three years.`\
+https://nytimes.com/athletic/5852478/2024/10/21/nba-player-rankings-tiers-reliability-introduction/
+
 **U.S. Missile Defense System Arrives in Israel**\
 `The Terminal High Altitude Area Defense system was in place, Defense Secretary Lloyd J. Austin III said on Monday. The deployment comes as Israel prepares for retaliatory attacks against Iran.`\
 https://nytimes.com/2024/10/21/world/middleeast/israel-thaad-missile-defense.html
