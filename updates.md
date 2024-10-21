@@ -1,3 +1,11 @@
+**Jameses, meet the Griffeys: Baseball father-son duo to attend Lakers opener**\
+`The Griffeys are part of a rare group of father-son duos to appear in the same major professional sporting game.`\
+https://nytimes.com/athletic/5861580/2024/10/21/bronny-james-lakers-opener-ken-griffey-jr/
+
+**Bruce Ames, 95, Dies; Biochemist Discovered Test for Toxic Chemicals**\
+`The Ames Test offered a fast and inexpensive way to identify carcinogens, leading to the banning of chemicals linked to cancer and birth defects.`\
+https://nytimes.com/2024/10/21/science/bruce-ames-dead.html
+
 **Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
 `What's on your mind about the Irish? Submit your Notre Dame mailbag questions here.`\
 https://nytimes.com/athletic/5861674/2024/10/21/submit-your-questions-for-pete-sampsons-notre-dame-football-mailbag-2/
