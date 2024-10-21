@@ -1,3 +1,7 @@
+**Why Sunday's loss could lead to Raiders' pushing the desperation button at QB**\
+`There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
+https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
+
 **Jets' Xaiver Newman stretchered off field vs. Steelers**\
 `Newman, 25, was taken to the University of Pittsburgh Hospital and is currently able to move his limbs, per the NBC broadcast.`\
 https://nytimes.com/athletic/5858965/2024/10/20/xavier-newman-jets-steelers-injury/
