@@ -1,3 +1,7 @@
+**On X, the Definition of ‘Blocking’ Is About to Change**\
+`A change in how the site works will allow people to see posts by users who have them blocked. The company claims it is for “transparency,” but some people are worried about abuse.`\
+https://nytimes.com/2024/10/21/style/on-x-the-definition-of-blocking-is-about-to-change.html
+
 **The Deeply Personal Price Women Must Pay for Abortion Bans**\
 `Exceptions to save a mother’s life don’t matter when doctors fear performing the procedure.`\
 https://nytimes.com/2024/10/15/opinion/florida-abortion-ban-health.html

@@ -1,3 +1,7 @@
+**On X, the Definition of ‘Blocking’ Is About to Change**\
+`A change in how the site works will allow people to see posts by users who have them blocked. The company claims it is for “transparency,” but some people are worried about abuse.`\
+https://nytimes.com/2024/10/21/style/on-x-the-definition-of-blocking-is-about-to-change.html
+
 **Plight of Hostages Held by Hamas**\
 `Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
 https://nytimes.com/issue/world/2024/10/21/plight-of-hostages-held-by-hamas
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5855753/2024/10/21/f1-mailbag-us-grand-prix/
 **The Deeply Personal Price Women Must Pay for Abortion Bans**\
 `Exceptions to save a mother’s life don’t matter when doctors fear performing the procedure.`\
 https://nytimes.com/2024/10/15/opinion/florida-abortion-ban-health.html
-
-**Can a Synthetic Voice Be Taught to Sing Opera?**\
-`“The Other Side of Silence,” a new work in development, is experimenting with giving operatic voice to a text-to-speech synthesizer.`\
-https://nytimes.com/2024/10/21/arts/music/other-side-of-silence-opera.html
 
