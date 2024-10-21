@@ -1,3 +1,7 @@
+**Tuesday Briefing: Two Weeks Until Election Day**\
+`Plus, Aleksei Navalny’s memoir.`\
+https://nytimes.com/2024/10/21/briefing/election-polls-lebanon-brics.html
+
 **Paul Di’Anno, Early Iron Maiden Frontman, Dies at 66**\
 `The English singer played with the band in its early years. He later worked with other bands and pursued a solo career.`\
 https://nytimes.com/2024/10/21/arts/music/paul-dianno-iron-maiden-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5861182/2024/10/21/oakland-athletics-sacramento-gra
 **Nike to remain NBA's exclusive uniform provider on new contract**\
 `Nike will continue to be the exclusive partner of the WNBA and G League as well.`\
 https://nytimes.com/athletic/5860807/2024/10/21/nike-uniform-contract-nba-wnba-g-league/
-
-**Bruce Feldman's East Carolina coaching candidates: Who will replace Mike Houston?**\
-`This vacancy will be pretty attractive: Houston was making $2.3 million, which is a big number for a non-Power 4 head coach.`\
-https://nytimes.com/athletic/5861151/2024/10/21/east-carolina-coaching-search-candidates-feldman/
 
