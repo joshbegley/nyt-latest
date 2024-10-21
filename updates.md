@@ -1,3 +1,7 @@
+**Why Sunday's loss could lead to Raiders pushing the desperation button at QB**\
+`There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
+https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
+
 **Growing pains are real for Colts' Anthony Richardson, but they're easier to endure in a win**\
 `These are the bumps in the road the Colts signed up for when they drafted someone so young and inexperienced fourth overall in 2023.`\
 https://nytimes.com/athletic/5858329/2024/10/20/colts-win-anthony-richardson-growing-pains/

@@ -1,3 +1,7 @@
+**Why Sunday's loss could lead to Raiders pushing the desperation button at QB**\
+`There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
+https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/
+
 **Growing pains are real for Colts' Anthony Richardson, but they're easier to endure in a win**\
 `These are the bumps in the road the Colts signed up for when they drafted someone so young and inexperienced fourth overall in 2023.`\
 https://nytimes.com/athletic/5858329/2024/10/20/colts-win-anthony-richardson-growing-pains/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858338/2024/10/20/vikings-loss-offense-mistakes-pe
 **Tom Brady, in his first Fox broadcast as Raiders owner, walks the tightrope**\
 `Sunday, Brady interviewed Patrick Mahomes at a hotel (not the team facility) and deferred to Mike Pereira as scrutiny intensified.`\
 https://nytimes.com/athletic/5858530/2024/10/20/tom-brady-fox-chiefs-49ers-raiders-owner/
-
-**Amari Cooper's impact, Greg Rousseau's big day: Bills observations from Titans win**\
-`Plus, what to expect from Dalton Kincaid and Ray Davis.`\
-https://nytimes.com/athletic/5858264/2024/10/20/bills-win-titans-amari-cooper-debut-observations/
 
