@@ -1,3 +1,7 @@
+**Harris Sets Record for Biggest Fund-Raising Quarter Ever**\
+`Donald Trump is raising less money than he did during his run in 2020, building a far smaller campaign than Kamala Harris.`\
+https://nytimes.com/2024/10/21/us/elections/harris-trump-campaign-finance.html
+
 **How Manchester United finally ignited their attack Brentford**\
 `Rasmum Hojlund's deeper role and switches of play to Alejandro Garnacho gave Erik ten Hag's another dimension`\
 https://nytimes.com/athletic/5856408/2024/10/21/manchester-united-tactics-attack/
