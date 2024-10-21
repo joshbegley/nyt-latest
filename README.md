@@ -1,3 +1,11 @@
+**The Windup: A classic (yet new) World Series**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5860579/2024/10/21/dodgers-yankees-world-series-shohei-ohtani-the-windup/
+
+**A Biden envoy says implementing a U.N. resolution is the only path to Israel-Hezbollah peace.**\
+`Amos Hochstein’s visit to Beirut is part of a renewed`\
+https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/a-biden-envoy-says-implementing-a-un-resolution-is-the-only-path-to-israel-hezbollah-peace
+
 **How Employee Wellbeing Became a Key Driver For Growth**\
 `Can improving employee wellbeing make a real difference to the bottom line?`\
 https://nytimes.com/paidpost/indeed/how-employee-wellbeing-became-a-key-driver-for-growth.html
@@ -29,12 +37,4 @@ https://nytimes.com/article/menendez-brothers-case.html
 **As Trump Served Up McDonald’s Fries, Vitriol Boiled Outside**\
 `In Pennsylvania, a critical swing state, supporters of Donald Trump and Kamala Harris, some in weird costumes, gathered along a roadside and screamed at one another.`\
 https://nytimes.com/2024/10/21/us/elections/donald-trump-mcdonalds-protesters.html
-
-**Submit questions for our NFL Week 8 survivor mailbag**\
-`If you have a question about anything NFL survivor-related, submit it here for our survivor mailbag.`\
-https://nytimes.com/athletic/5860448/2024/10/21/questions-nfl-survivor-mailbag-week-8/
-
-**How the Jacksonville Jaguars secured their future at home and abroad**\
-`With investment in Florida and further afield, the Jaguars can look forward to a truly international future.`\
-https://nytimes.com/athletic/5859768/2024/10/21/jacksonville-jaguars-london-future/
 
