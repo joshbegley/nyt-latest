@@ -1,3 +1,11 @@
+**Fantasy football Week 7 takeaways: Brock Bowers is sitting pretty, Stefon Diggs is washed and more**\
+`Michael Salfino offers observations from Week 7, including a belief that life after the Davante Adams trade will be sweet for Brock Bowers.`\
+https://nytimes.com/athletic/5858680/2024/10/21/fantasy-football-week-7-takeaways-bowers-diggs/
+
+**Jones: Don't be fooled by Chiefs' lack of offensive fireworks. Greatness is still there**\
+`The Chiefs have had to rely on their run game and defense to win games, but how can anyone discount the NFL's only undefeated team?`\
+https://nytimes.com/athletic/5858913/2024/10/21/chiefs-greatness-mahomes-reid/
+
 **In His Memoir, Aleksei Navalny Speaks From the Grave**\
 `The Russian opposition leader, who died in an Arctic penal colony earlier this year, tells the story of his struggle to wrest his country back from President Vladimir Putin.`\
 https://nytimes.com/2024/10/21/books/review/patriot-alexei-navalny.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5858503/2024/10/20/yankees-dodgers-world-series-sto
 **Dodgers finish off Mets to clinch NL pennant and World Series matchup against Yankees**\
 `After the plucky Mets forced a Game 6 in Los Angeles, the Dodgers demonstrated their postseason pedigree.`\
 https://nytimes.com/athletic/5858917/2024/10/20/dodgers-mets-yankees-world-series-pennant/
-
-**Houston Authorities Respond to Report of Helicopter Crashing Into Radio Tower**\
-`The Houston fire and police departments said they were responding. Videos circulating on social media appeared to show the fiery aftermath.`\
-https://nytimes.com/2024/10/20/us/helicopter-crash-radio-tower-houston.html
-
-**Helicopter Crash Reported in Houston**\
-`Police officers urged onlookers to clear the site of the accident as smoke and fire filled the air.`\
-https://nytimes.com/video/us/100000009772500/helicopter-crash-houston-texas.html
 
