@@ -1,3 +1,7 @@
+**How Employee Wellbeing Became a Key Driver For Growth**\
+`Can improving employee wellbeing make a real difference to the bottom line?`\
+https://nytimes.com/paidpost/indeed/how-employee-wellbeing-became-a-key-driver-for-growth.html
+
 **When Critic vs. Choreographer Ignited a Cultural Firestorm**\
 `Thirty years ago, Bill T. Jones presented “Still/Here,” and the critic Arlene Croce responded with an explosive essay. Now the work is returning to the Brooklyn Academy.`\
 https://nytimes.com/2024/10/21/arts/dance/still-here-bill-t-jones-arlene-croce.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860448/2024/10/21/questions-nfl-survivor-mailbag-w
 **How the Jacksonville Jaguars secured their future at home and abroad**\
 `With investment in Florida and further afield, the Jaguars can look forward to a truly international future.`\
 https://nytimes.com/athletic/5859768/2024/10/21/jacksonville-jaguars-london-future/
-
-**Which 2025 NFL Draft prospects stood out during Georgia's upset of Texas?**\
-`Trevor Etienne scored three touchdowns, while Georgia's loaded front seven put in serious work. What's it all mean for the 2025 draft?`\
-https://nytimes.com/athletic/5858336/2024/10/21/nfl-draft-2025-georgia-texas/
 
