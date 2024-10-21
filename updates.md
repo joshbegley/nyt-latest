@@ -1,3 +1,7 @@
+**Liberty oust Lynx in OT of Game 5 to capture first-ever WNBA title**\
+`With the win, New York took home its first-ever title after having lost five prior appearances in the WNBA Finals.`\
+https://nytimes.com/athletic/5858357/2024/10/20/lynx-liberty-wnba-finals-game-5-results-takeaways/
+
 **Why Sunday's loss could lead to Raiders' pushing the desperation button at QB**\
 `There's already been talk in the Raiders building about giving rookie Carter Bradley a look. And, really, why not? `\
 https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-desperation-carter-bradley-minshew-oconnell/

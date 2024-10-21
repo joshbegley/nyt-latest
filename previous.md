@@ -1,3 +1,7 @@
+**Liberty oust Lynx in OT of Game 5 to capture first-ever WNBA title**\
+`With the win, New York took home its first-ever title after having lost five prior appearances in the WNBA Finals.`\
+https://nytimes.com/athletic/5858357/2024/10/20/lynx-liberty-wnba-finals-game-5-results-takeaways/
+
 **Sunday's biggest play for the Commanders was keeping injured Jayden Daniels off the field**\
 `Unlike RGIII in 2013, Washington's coaches and management decided to keep the injured star QB on the bench.`\
 https://nytimes.com/athletic/5857524/2024/10/20/commanders-jayden-daniels-aldridge-column/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5858646/2024/10/20/raiders-loss-quarterback-despera
 **Growing pains are real for Colts' Anthony Richardson, but they're easier to endure in a win**\
 `These are the bumps in the road the Colts signed up for when they drafted someone so young and inexperienced fourth overall in 2023.`\
 https://nytimes.com/athletic/5858329/2024/10/20/colts-win-anthony-richardson-growing-pains/
-
-**Warriors, Moody agree to 3-year, $39 million extension**\
-`The deal keeps Moody under team control at a reasonable price for the next four seasons.`\
-https://nytimes.com/athletic/5858648/2024/10/20/moses-moody-warriors-extension/
 
