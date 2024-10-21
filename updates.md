@@ -1,3 +1,11 @@
+**Here they go again — the Ducks are making live difficult for Lukáš Dostál in goal**\
+`Filling in for John Gibson, Dostál is giving the Ducks what they need, but he's not getting support.`\
+https://nytimes.com/athletic/5859752/2024/10/21/lukas-dostal-ducks-goalie-gibson/
+
+**Raiders QB Aidan O'Connell expected to miss 4-6 weeks**\
+`O'Connell exited Sunday’s game against the Los Angeles Rams and did not return.`\
+https://nytimes.com/athletic/5857807/2024/10/21/raiders-aidan-oconnell-thumb-injury-minshew/
+
 **Can You Find These 14 Hidden Book Titles in This Puzzle?**\
 `Look closely to uncover the recent memoirs lurking in this passage of text.`\
 https://nytimes.com/interactive/2024/10/21/books/review/memoirs-title-search.html
