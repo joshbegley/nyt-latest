@@ -1,3 +1,15 @@
+**Size, skating and stick: Video breakdown of Broberg's fast start with Blues**\
+`New Blues defenseman Philip Broberg has a point in each of his first six games and hasn't been on the ice for an even-strength goal against.`\
+https://nytimes.com/athletic/5857188/2024/10/21/blues-philip-broberg-video-breakdown/
+
+**Inside the Chargers' run defense turnaround: Connecting the 'what' with the 'how'**\
+`The Chargers under Brandon Staley were among the NFL's worst run-defending teams. They've been the best so far this season.`\
+https://nytimes.com/athletic/5856400/2024/10/21/chargers-run-defense-turnaround-jesse-minter/
+
+**Liverpool's patience out of possession under Slot is working - but Chelsea showed the approach isn't flawless**\
+`Three goals conceded in eight games is excellent - but bigger tests await in Liverpool's next few games`\
+https://nytimes.com/athletic/5859701/2024/10/21/liverpool-slot-tactics-less-pressing/
+
 **Here’s the latest on the presidential race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/21/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5859790/2024/10/21/var-arsenal-man-city-messi-club-
 **Read the Task Force’s Report**\
 `The House task force on the attempted assassinations of former President Donald J. Trump released its first preliminary report.`\
 https://nytimes.com/interactive/2024/10/21/us/task-force-interim-staff-report-10212024.html
-
-**'Best young prospect on the Wizards': What NBA scouts are saying about Bub Carrington**\
-`What do NBA talent evaluators think of the Wizards' point guard of the future?`\
-https://nytimes.com/athletic/5859085/2024/10/21/bub-carrington-nba-scouts-evaluation/
-
-**Why the Oil and Gas Industry Is So Afraid of Kamala Harris**\
-`The Democratic candidate’s agenda takes climate change seriously.`\
-https://nytimes.com/2024/10/21/opinion/oil-gas-exports-climate-change.html
-
-**Rosenthal: With Shohei Ohtani in his first World Series, a chance for greatness on the 'biggest of stages'**\
-`The Dodgers superstar's presence adds to one of the most anticipated Fall Classic showcases in a long time.`\
-https://nytimes.com/athletic/5859842/2024/10/21/shohei-ohtani-world-series-mlb-dodgers-yankees/
 
