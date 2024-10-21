@@ -1,3 +1,15 @@
+**Cowboys' McCarthy on Aikman's WR comments: 'They don't carry any weight with me'**\
+`Coach responds after Dallas' Week 7 bye to Hall of Famer's criticism of team's wide receivers. `\
+https://nytimes.com/athletic/5860828/2024/10/21/mike-mccarthy-troy-aikman-cowboys-receivers-comments/
+
+**ASU coach Kenny Dillingham apologies after calling kicking game 'atrocious'**\
+`After losing to Cincinnati, Dillingham called Arizona State’s kicking game atrocious and invited students to a try out on Monday.`\
+https://nytimes.com/athletic/5860925/2024/10/21/kenny-dillingham-airzona-state-kicker-college-football/
+
+**Final thoughts and bold predictions as fantasy basketball 2024-25 is set for tipoff**\
+`Eric Wong shares his final preseason thoughts and predictions for the upcoming season as fantasy basketball 2024-25 is set to tipoff.`\
+https://nytimes.com/athletic/5858412/2024/10/21/fantasy-basketball-predictions-deep-sleepers-final-thoughts/
+
 **The Lawsuits Against Sean Combs**\
 `The music mogul, who faces federal sex trafficking and racketeering charges, has been accused in civil court of raping and drugging people. He has denied the allegations.`\
 https://nytimes.com/article/sean-combs-diddy-lawsuits-accusations.html

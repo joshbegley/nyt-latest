@@ -1,3 +1,15 @@
+**Cowboys' McCarthy on Aikman's WR comments: 'They don't carry any weight with me'**\
+`Coach responds after Dallas' Week 7 bye to Hall of Famer's criticism of team's wide receivers. `\
+https://nytimes.com/athletic/5860828/2024/10/21/mike-mccarthy-troy-aikman-cowboys-receivers-comments/
+
+**ASU coach Kenny Dillingham apologies after calling kicking game 'atrocious'**\
+`After losing to Cincinnati, Dillingham called Arizona State’s kicking game atrocious and invited students to a try out on Monday.`\
+https://nytimes.com/athletic/5860925/2024/10/21/kenny-dillingham-airzona-state-kicker-college-football/
+
+**Final thoughts and bold predictions as fantasy basketball 2024-25 is set for tipoff**\
+`Eric Wong shares his final preseason thoughts and predictions for the upcoming season as fantasy basketball 2024-25 is set to tipoff.`\
+https://nytimes.com/athletic/5858412/2024/10/21/fantasy-basketball-predictions-deep-sleepers-final-thoughts/
+
 **The Lawsuits Against Sean Combs**\
 `The music mogul, who faces federal sex trafficking and racketeering charges, has been accused in civil court of raping and drugging people. He has denied the allegations.`\
 https://nytimes.com/article/sean-combs-diddy-lawsuits-accusations.html
@@ -25,16 +37,4 @@ https://nytimes.com/issue/world/2024/10/21/the-oct-7-attacks
 **Diplomatic Efforts to End the Conflict**\
 `Since <a href="https://www.nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html" target="new">Israel and Hamas went to war</a>, reporters and editors at The New York Times have closely covered the conflict. Our coverage includes the Hamas-led attack on Israel, the plight of hostages, how the war in Gaza has devastated the territory and left thousands dead and the flurry of international diplomacy to bring about a cease-fire.`\
 https://nytimes.com/issue/world/2024/10/21/negotiations-between-israel-and-hamas
-
-**As Harris Courts Sun Belt, Housing Costs Stand in Her Way**\
-`Shuttered factories and trade deals helped turn working-class Midwesterners against Democrats. Will the high cost of housing do the same in the Sun Belt?`\
-https://nytimes.com/2024/10/21/us/politics/2024-campaign-las-vegas-nevada-housing.html
-
-**The Captain Jack Sparrow of Baking**\
-`A breakout contestant on “The Great British Baking Show” is drawing style comparisons to characters from “Pirates of the Caribbean,” “The Princess Bride” and more.`\
-https://nytimes.com/2024/10/21/style/dylan-bachelet-great-british-baking-show.html
-
-**What We Know About the Gangway Collapse That Killed 7 in Georgia**\
-`Disaster struck at the end of an annual cultural celebration on Sapelo Island. Twenty people went into the water, including seven people over the age of 70 who died.`\
-https://nytimes.com/2024/10/21/us/gangway-collapse-georgia-sapelo-island.html
 
