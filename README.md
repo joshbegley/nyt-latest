@@ -1,3 +1,15 @@
+**Tennis Briefing: Casper Ruud speaks on human rights; season limps to conclusion**\
+`Players speak out, injury withdrawals continue, and a new tour stop for the United States.`\
+https://nytimes.com/athletic/5857912/2024/10/21/ruud-saudi-arabia-china-tennis-human-rights/
+
+**Sinwar Is Dead, but a Palestinian State Seems More Distant Than Ever**\
+`A two-state solution remains the goal of the United States and the West, but many in the region say the devastation in Gaza and the lack of effective Palestinian leadership make it a remote prospect.`\
+https://nytimes.com/2024/10/21/world/middleeast/sinwar-dead-palestinian-state.html
+
+**Disney Says It Will Hire a New C.E.O. in ‘Early 2026’**\
+`In a board shake-up, James Gorman, a director in charge of planning for a successor to the chief executive, Robert A. Iger, will become chairman on Jan. 2, 2025.`\
+https://nytimes.com/2024/10/21/business/disney-ceo-succession-james-gorman-chairman.html
+
 **Asian football federation accused of 'unequal treatment' after moving games from Iran**\
 `The Asian Football Confederation (AFC) has rescheduled matches across its tournaments due to the security situation in Iran — weeks after Indian club Mohun Bagan Super Giants were “withdrawn” from AFC competitions after refusing to play in the nation.`\
 https://nytimes.com/athletic/5859770/2024/10/21/iran-security-travel-afc-champions-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5856400/2024/10/21/chargers-run-defense-turnaround-
 **Liverpool's patience out of possession under Slot is working - but Chelsea showed the approach isn't flawless**\
 `Three goals conceded in eight games is excellent - but bigger tests await in Liverpool's next few games`\
 https://nytimes.com/athletic/5859701/2024/10/21/liverpool-slot-tactics-less-pressing/
-
-**Here’s the latest on the presidential race.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/10/21/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris and Trump Campaign With 2 Weeks to Go**\
-`Former President Donald Trump was expected to hold events in North Carolina, while Vice President Kamala Harris planned to visit the three “blue wall” states.`\
-https://nytimes.com/live/2024/10/21/us/harris-trump-election
-
-**Thompson: The 49ers, in a world of hurt, need Brock Purdy to level up**\
-`A 49ers team with Super Bowl aspirations is now 3-4 and banged up. Now's the time for Brock Purdy to take his game to another level.`\
-https://nytimes.com/athletic/5859755/2024/10/21/brock-purdy-san-francisco-49ers-super-bowl-chiefs-mahomes/
 
