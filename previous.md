@@ -1,3 +1,15 @@
+**Commanders' Jayden Daniels considered 'week to week' with rib injury**\
+`The Commanders, and possibly Daniels, will face Caleb Williams and the Chicago Bears in Week 8.`\
+https://nytimes.com/athletic/5861295/2024/10/21/commanders-jayden-daniels-rib-injury-update/
+
+**Trump Says He Has Seen No Evidence of Cheating in the Election, but Nonetheless Sows Doubts**\
+`The former president, asked at a news conference in storm-damaged North Carolina if he had seen anything to suggest the election would be unfair, said, “I have not seen that.”`\
+https://nytimes.com/2024/10/21/us/politics/trump-north-carolina-presser.html
+
+**Neymar makes return after 12 months out injured: 'I'm so happy'**\
+`Neymar made his return after 12 months out through injury when he appeared as a substitute for Al Hilal in their AFC Champions League game against Al-Ain on Monday.`\
+https://nytimes.com/athletic/5861334/2024/10/21/neymar-injury-al-hilal-return/
+
 **How Media Outlets on the Left and Right Covered Trump’s Stop at McDonald’s**\
 `Former President Donald J. Trump’s campaign event at a McDonalds in Pennsylvania was described by right-leaning outlets as a brilliant move. Left-leaning publications called it weird.`\
 https://nytimes.com/2024/10/21/business/media/trump-mcdonalds-media-coverage.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/21/opinion/inflation-mistakes.html
 **NASCAR Las Vegas takeaways: Joey Logano and the No. 22 team do it again**\
 `Given a second life in these playoffs, Joey Logano made it count with a win Sunday in Las Vegas, securing his spot in the Championship 4.`\
 https://nytimes.com/athletic/5860590/2024/10/21/nascar-las-vegas-takeaways-joey-logano/
-
-**Old School Glamour at the Met Gala of the West Coast**\
-`The Academy Museum Gala delivered what red carpets are made for.`\
-https://nytimes.com/2024/10/21/style/academy-museum-gala-best-dressed.html
-
-**In a season of disappointments, Drake Maye providing Patriots a rare bright spot**\
-`Seemingly everything with the Patriots is going poorly right now. Except for their rookie quarterback.`\
-https://nytimes.com/athletic/5859843/2024/10/21/drake-maye-rookie-qb-patriots-jaguars/
-
-**Trump’s Behavior at the Al Smith Dinner**\
-`Readers respond to a Maureen Dowd column and a Campaign Notebook. Also: The need to vote; the education crisis; dead trees; Juan Soto’s magic.`\
-https://nytimes.com/2024/10/21/opinion/trump-al-smith-dinner.html
 
