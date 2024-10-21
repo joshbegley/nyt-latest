@@ -1,3 +1,7 @@
+**Hawks sign Jalen Johnson to 5-year, $150 million rookie extension**\
+`One of Atlanta's big offseason decisions was whether or not to extend its best player nobody talks about, and that's Johnson.`\
+https://nytimes.com/athletic/5861956/2024/10/21/jalen-johnson-hawks-rookie-contract-extension/
+
 **With big tests coming, Wild hope their thumpers can get into more of a 'rhythm'**\
 `Marcus Foligno and Yakov Trenin were supposed to help the Wild regain a hard-nosed identity but have only 27 combined hits in five games.`\
 https://nytimes.com/athletic/5861723/2024/10/21/wild-marcus-foligno-yakov-trenin-rhythm/
