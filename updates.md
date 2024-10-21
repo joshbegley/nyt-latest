@@ -1,3 +1,7 @@
+**Can You Find These 14 Hidden Book Titles in This Puzzle?**\
+`Look closely to uncover the recent memoirs lurking in this passage of text.`\
+https://nytimes.com/interactive/2024/10/21/books/review/memoirs-title-search.html
+
 **Moldovans, Very Narrowly, Choose to Look Toward Europe, Not Russia**\
 `A referendum that constitutionally enshrines a national objective to join the E.U. passed by a thin margin. The incumbent pro-E.U. president won the most votes in a concurrent election, but faces a runoff.`\
 https://nytimes.com/2024/10/21/world/europe/moldova-eu-referendum-vote-result.html
