@@ -1,3 +1,15 @@
+**With big tests coming, Wild hope their thumpers can get into more of a 'rhythm'**\
+`Marcus Foligno and Yakov Trenin were supposed to help the Wild regain a hard-nosed identity but have only 27 combined hits in five games.`\
+https://nytimes.com/athletic/5861723/2024/10/21/wild-marcus-foligno-yakov-trenin-rhythm/
+
+**Republican Official in Arizona Pleads Guilty in Election Certification Case**\
+`Peggy Judd, a county supervisor in Cochise County, a hotbed of election conspiracy theories, had tried to delay certifying the 2022 election results.`\
+https://nytimes.com/2024/10/21/us/politics/arizona-election-certification-guilty-plea.html
+
+**Bruce Feldman's Southern Miss coaching candidates: Who could be next for the Eagles?**\
+`Who's in the mix to be Southern Miss' next head coach? Where the Eagles turn from here will be interesting.`\
+https://nytimes.com/athletic/5861812/2024/10/21/southern-miss-coaching-search-candidates/
+
 **Rockets, Şengün agree to 5-year, $185 million extension: Sources**\
 `With this deal and one for fellow 2021 draft class member Jalen Green, the Rockets have committed to their young core.`\
 https://nytimes.com/athletic/5861249/2024/10/21/alperen-sengun-rockets-contract-news-free-agent/
