@@ -1,40 +1,40 @@
-**The Athletic 134: The unbeaten team that can no longer be ignored**\
-`If the Big 12 wants to get two teams into the College Football Playoff, BYU would likely be one of them.`\
-https://nytimes.com/athletic/5858678/2024/10/21/college-football-fbs-team-rankings-byu/
+**Biden to Propose That Insurers Cover Over-the-Counter Birth Control**\
+`The new rules under the Affordable Care Act would include emergency contraception, a newly approved nonprescription birth control pill, spermicides and condoms.`\
+https://nytimes.com/2024/10/21/us/politics/biden-harris-birth-control-rules.html
 
-**Why Sabalenka replaced Swiatek as world number one in the WTA rankings**\
-`The Belarusian has had a sterling season, but her official ascent to the top came about through a WTA rule.`\
-https://nytimes.com/athletic/5859606/2024/10/21/sabalenka-world-number-1-swiatek-wta-rules/
+**Scientists Are Mapping Landslide Risk in Alaska. Some Homeowners Don’t Want to Know.**\
+`Deadly landslides are increasing around the world. But in parts of Alaska, maps of the hazards remain controversial.`\
+https://nytimes.com/2024/10/21/climate/landslide-risk-alaska-maps.html
 
-**Dave Roberts kept the Dodgers' train on the tracks and got back to the World Series**\
-`Teoscar Hernández said said “one meeting changed everything" and symbolized Roberts' ability to press the right buttons.`\
-https://nytimes.com/athletic/5859549/2024/10/21/dodgers-dave-roberts-world-series/
+**Should We Be More Concerned About the Growing Use of Marijuana?**\
+`Cannabis is now legal in much of the United States. As its use increases, so do its harms. Is that a problem?`\
+https://nytimes.com/2024/10/21/learning/marijuana-use-concerns.html
 
-**Minnesota coach Cheryl Reeve says series 'stolen' after poor officiating in WNBA Finals loss to Liberty**\
-`Controversial calls that shaped the games were common throughout the finals, leaving both coaches crying foul. `\
-https://nytimes.com/athletic/5859561/2024/10/21/wnba-finals-officiating-lynx-liberty/
+**5 Books to Help You Understand the Economy Before Voting**\
+`The brightest minds explore the issue at every level, from the levers that control inflation to the best way to achieve work-life balance.`\
+https://nytimes.com/2024/10/21/books/review/economics-business-books.html
 
-**Liberty Finally Give New York City a Basketball Championship**\
-`New York got its first basketball championship in 48 years, as the New York Liberty beat the Minnesota Lynx in front of exuberant fans in Brooklyn.`\
-https://nytimes.com/2024/10/21/nyregion/new-york-liberty-champions.html
+**Who’s Afraid of William Shakespeare?**\
+`We will always need the works of the Bard, especially in moments of conflict and unrest.`\
+https://nytimes.com/2024/10/21/opinion/william-shakespeare-bard-politics.html
 
-**Trump Ratchets Up Threats on the Media**\
-`Presidents are not all-powerful, but, if elected, Donald Trump would have some influence with the federal regulators who oversee major television networks.`\
-https://nytimes.com/2024/10/21/business/media/trump-media-broadcast-licenses.html
+**An Exile Revisits the Squalor and Grandeur of 1960s Italy**\
+`Recounting the time his family spent in a former Italian brothel, André Aciman’s new memoir, “Roman Year,” picks up where 1994’s “Out of Egypt” left off.`\
+https://nytimes.com/2024/10/21/books/review/andre-aciman-roman-year.html
 
-**Trial Set to Begin in Fatal Choking of Homeless Man on Subway**\
-`Daniel Penny, who put the man, Jordan Neely, in a chokehold last year, told investigators that Mr. Neely posed a deadly threat. The killing polarized New York.`\
-https://nytimes.com/2024/10/21/nyregion/daniel-penny-subway-jordan-neely-trial.html
+**A Cheapskate in Manhattan**\
+`Pop-up art, cheap theater tickets, Chinese food and a well-situated, if noisy, hotel: How to see Manhattan (and a bit of Brooklyn) on a budget.`\
+https://nytimes.com/2024/10/21/travel/new-york-budget-travel.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/21/crosswords/spelling-bee-forum.html
+**How Can I Slash Halloween Waste?**\
+`We’ve got tips to make the holiday more sustainable, and maybe more fun, too.`\
+https://nytimes.com/2024/10/21/climate/cut-halloween-waste-tips.html
 
-**Word of the Day: exodus**\
-`This word has appeared in 281 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/21/learning/word-of-the-day-exodus.html
+**As Knicks start most anticipated season in decades, fans reflect on journey to this point**\
+`Three Knicks fans share their journey over the last 20-plus years.`\
+https://nytimes.com/athletic/5844737/2024/10/21/knicks-fans-nba-season-start/
 
-**Barcelona 5 Sevilla 1: Lewandowski scores again, Gavi's emotional return, classy Cubarsi**\
-`Barcelona protected their three-point lead at the top of La Liga with another emphatic victory on Sunday night`\
-https://nytimes.com/athletic/5858173/2024/10/21/barcelona-lewandowski-gavi-flick-sevilla-cubarsi-la-liga/
+**Do Hair Growth Supplements Work?**\
+`Online, videos abound of people saying the supplements make hair thicker, healthier and shinier. Do they really?`\
+https://nytimes.com/2024/10/21/well/do-hair-growth-supplements-work.html
 
