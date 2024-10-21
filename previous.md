@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5858183/2024/10/20/browns-quarterbacks-deshaun-wats
 `An embarrassing home loss to a hated rival spearheaded by the superstar his team let walk out the door — Mara just lived his nightmare.`\
 https://nytimes.com/athletic/5858214/2024/10/20/giants-nightmare-loss-saquon-barkley-eagles/
 
-**Seahawks deliver 'team win' over Falcons, validate Mike MacDonald's steady message**\
+**Seahawks deliver 'team win' over Falcons, validate Mike Macdonald's steady message**\
 `Seattle snapped a three-game losing streak by forcing three Kirk Cousins turnovers and taking control of the game late.`\
 https://nytimes.com/athletic/5858163/2024/10/20/seahawks-win-falcons-mike-macdonald/
 

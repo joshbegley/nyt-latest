@@ -1,3 +1,7 @@
+**Seahawks deliver 'team win' over Falcons, validate Mike Macdonald's steady message**\
+`Seattle snapped a three-game losing streak by forcing three Kirk Cousins turnovers and taking control of the game late.`\
+https://nytimes.com/athletic/5858163/2024/10/20/seahawks-win-falcons-mike-macdonald/
+
 **Amari Cooper's impact, Greg Rousseau's big day: Bills observations from Titans win**\
 `Plus, what to expect from Dalton Kincaid and Ray Davis moving forward.`\
 https://nytimes.com/athletic/5858264/2024/10/20/bills-win-titans-amari-cooper-debut-observations/
