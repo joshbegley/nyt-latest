@@ -1,3 +1,15 @@
+**The Lawsuits Against Sean Combs**\
+`The music mogul, who faces federal sex trafficking and racketeering charges, has been accused in civil court of raping and drugging people. He has denied the allegations.`\
+https://nytimes.com/article/sean-combs-diddy-lawsuits-accusations.html
+
+**NFL Week 8 odds, schedule: Chiefs should undefeated, plus potential rookie battle**\
+`All 32 teams are in action for NFL Week 8, with several lopsided matchups as the wheat and chaff start to separate.`\
+https://nytimes.com/athletic/5860580/2024/10/21/nfl-week-8-odds-spreads-schedule-chiefs-look-good-to-stay-undefeated-plus-potential-jayden-daniels-vs-caleb-williams-matchup/
+
+**On X, the Definition of ‘Blocking’ Is About to Change**\
+`A change in how the site works will allow people to see posts by users who have them blocked. The company claims it is for “transparency,” but some people are worried about abuse.`\
+https://nytimes.com/2024/10/21/style/x-twitter-blocking-elon-musk.html
+
 **On X, the Definition of ‘Blocking’ Is About to Change**\
 `A change in how the site works will allow people to see posts by users who have them blocked. The company claims it is for “transparency,” but some people are worried about abuse.`\
 https://nytimes.com/2024/10/21/style/on-x-the-definition-of-blocking-is-about-to-change.html
