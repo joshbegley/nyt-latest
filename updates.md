@@ -1,3 +1,7 @@
+**Why Sabalenka replaced Swiatek as world number one in the WTA rankings**\
+`The Belarusian has had a sterling season, but her official ascent to the top came about through a WTA rule.`\
+https://nytimes.com/athletic/5859606/2024/10/21/sabalenka-world-number-1-swiatek-wta-rules/
+
 **Dave Roberts kept the Dodgers' train on the tracks and got back to the World Series**\
 `Teoscar Hernández said said “one meeting changed everything" and symbolized Roberts' ability to press the right buttons.`\
 https://nytimes.com/athletic/5859549/2024/10/21/dodgers-dave-roberts-world-series/
