@@ -1,3 +1,7 @@
+**Central Park 5 Sue Trump for Defamation Over Debate Comments**\
+`Donald J. Trump’s remarks during the presidential debate are part of a “continuing pattern” of false statements designed to “make the men suffer,” the lawsuit charged.`\
+https://nytimes.com/2024/10/21/nyregion/trump-central-park-five-defamation-lawsuit.html
+
 **Arizona Fall League reports: Ethan Salas, Termarr Johnson, Colt Emerson and more**\
 `Notes on prospects, including Thomas Saggese, Moises Ballesteros, Edwin Arroyo, Jac Caglianone, Chase DeLauter and many more.`\
 https://nytimes.com/athletic/5860771/2024/10/21/arizona-fall-league-scouting-ethan-salas-termarr-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860828/2024/10/21/mike-mccarthy-troy-aikman-cowboy
 **ASU coach Kenny Dillingham apologies after calling kicking game 'atrocious'**\
 `After losing to Cincinnati, Dillingham called Arizona State’s kicking game atrocious and invited students to a try out on Monday.`\
 https://nytimes.com/athletic/5860925/2024/10/21/kenny-dillingham-airzona-state-kicker-college-football/
-
-**Final thoughts and bold predictions as fantasy basketball 2024-25 is set for tipoff**\
-`Eric Wong shares his final preseason thoughts and predictions for the upcoming season as fantasy basketball 2024-25 is set to tipoff.`\
-https://nytimes.com/athletic/5858412/2024/10/21/fantasy-basketball-predictions-deep-sleepers-final-thoughts/
 
