@@ -1,7 +1,3 @@
-**Lloyd: The Deshaun Watson era is over. Why Dorian Thompson-Robinson shoutd be QB for now**\
-`The most polarizing, divisive era in the history of the Cleveland Browns has mercifully ended. The damage is only beginning.`\
-https://nytimes.com/athletic/5858495/2024/10/20/the-browns-deshaun-watson-era-is-over-why-dorian-thompson-robinson-should-be-qb-for-now/
-
 **As boos rained down, Saquon Barkley ran all over the Giants in his return**\
 `The star running back — and a suffocating pass rush — added up to a dominant Eagles victory.`\
 https://nytimes.com/athletic/5857259/2024/10/20/eagles-win-saquon-barkley-giants-return/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5858164/2024/10/20/lions-win-vikings-dan-campbell-d
 **John Kinsel Sr., Navajo Code Talker During World War II, Dies at 107**\
 `Mr. Kinsel, who served from October 1942 to January 1946, was part of the second group of Marines trained as code talkers at Camp Elliott, Calif., after the original 29 who developed the code for wartime use.`\
 https://nytimes.com/2024/10/20/us/navajo-code-talker-john-kinsel-dead.html
+
+**Quotation of the Day: How Halloween Retail Became Its Own Monster**\
+`Quotation of the Day for Monday, October 21, 2024.`\
+https://nytimes.com/2024/10/20/pageoneplus/quotation-of-the-day-how-halloween-retail-became-its-own-monster.html
 
