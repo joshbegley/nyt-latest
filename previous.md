@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/here-are-the-latest-developments
+
+**Live Updates: Israel Threatens More Strikes Against Hezbollah Finances**\
+`The Israeli military said it had conducted dozens of strikes overnight on the militia’s financial arm in Lebanon. A top Biden aide was in Beirut to advance efforts at a cease-fire.`\
+https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon
+
 **What we learned in the LCS round: Bullpen dominance, Soto significance, money talks**\
 `Here's what we gleaned from the four teams that played in the League Championship Series.`\
 https://nytimes.com/athletic/5858062/2024/10/21/what-we-learned-alcs-nlcs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5857752/2024/10/21/college-football-playoff-bubble-
 **Fethullah Gulen, Turkish Cleric and Erdogan Rival, Dies at 83**\
 `Mr. Gulen, who lived in self-imposed exile in the United States, was accused of plotting a failed coup against President Recep Tayyip Erdogan of Turkey in 2016.`\
 https://nytimes.com/2024/10/21/world/europe/fethullah-gulen-dead.html
-
-**Rodrigue: Rams defense is finding its identity while offense is losing its way**\
-`Sean McVay is pleased with the "trajectory" of the Rams' defense. It produced a touchdown for the second consecutive game.`\
-https://nytimes.com/athletic/5858710/2024/10/21/rams-defense-strong-offense-struggles/
-
-**Why Are Hospital Gowns So Ugly?**\
-`Curious why medical patient attire is so unflattering, a reader asks our fashion critic if it’s intentional.`\
-https://nytimes.com/2024/10/21/style/hospital-gown.html
 

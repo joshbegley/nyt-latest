@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/here-are-the-latest-developments
+
+**Live Updates: Israel Threatens More Strikes Against Hezbollah Finances**\
+`The Israeli military said it had conducted dozens of strikes overnight on the militia’s financial arm in Lebanon. A top Biden aide was in Beirut to advance efforts at a cease-fire.`\
+https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon
+
 **What we learned in the LCS round: Bullpen dominance, Soto significance, money talks**\
 `Here's what we gleaned from the four teams that played in the League Championship Series.`\
 https://nytimes.com/athletic/5858062/2024/10/21/what-we-learned-alcs-nlcs/
