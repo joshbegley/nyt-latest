@@ -1,3 +1,7 @@
+**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
+`What's on your mind about the Irish? Submit your Notre Dame mailbag questions here.`\
+https://nytimes.com/athletic/5861674/2024/10/21/submit-your-questions-for-pete-sampsons-notre-dame-football-mailbag-2/
+
 **F1 stewards are back in the spotlight after 'inexplicable’ U.S. Grand Prix penalties**\
 `Is it time for a change to F1's steward system? Some drivers and team principals left Austin confused about the racing rules.`\
 https://nytimes.com/athletic/5861105/2024/10/21/f1-us-grand-prix-stewards-penalty-lando-norris/
