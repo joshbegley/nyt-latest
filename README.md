@@ -1,3 +1,7 @@
+**As boos rained down, Saquon Barkley ran all over the Giants in his return**\
+`The star running back — and a suffocating pass rush — added up to a dominant Eagles victory.`\
+https://nytimes.com/athletic/5857259/2024/10/20/eagles-win-saquon-barkley-giants-return/
+
 **Panthers have no answers right now. Could a staff shakeup or fire sale be in order?**\
 `The Panthers are allowing a staggering number of points and are in the middle of a seventh consecutive, non-playoff season. `\
 https://nytimes.com/athletic/5858730/2024/10/20/carolina-panthers-bad-loss-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/20/us/navajo-code-talker-john-kinsel-dead.html
 **Quotation of the Day: How Halloween Retail Became Its Own Monster**\
 `Quotation of the Day for Monday, October 21, 2024.`\
 https://nytimes.com/2024/10/20/pageoneplus/quotation-of-the-day-how-halloween-retail-became-its-own-monster.html
-
-**Giants' lifeless effort vs. Eagles calls everything into question — QB, coach, all of it**\
-`The Giants have scored one touchdown in four home games this season. They’ve averaged 7.8 points in their four losses at MetLife Stadium.`\
-https://nytimes.com/athletic/5858198/2024/10/20/giants-lifeless-loss-eagles-daboll-daniel-jones/
 
