@@ -1,3 +1,15 @@
+**‘Blade Runner 2049’ Producers Sue Elon Musk Over ‘Robotaxi’ Imagery**\
+`Alcon Entertainment, the Hollywood company behind “Blade Runner 2049,” said it had denied a request to use images from the movie but that Mr. Musk did so anyway.`\
+https://nytimes.com/2024/10/21/business/media/elon-musk-alcon-entertainment-robotaxi-lawsuit.html
+
+**2025 WNBA power rankings: Who will be the best team next season? Liberty or Lynx?**\
+`Sabreena Merchant's WNBA power rankings for next season. `\
+https://nytimes.com/athletic/5860521/2024/10/21/wnba-power-rankings-2025-liberty/
+
+**College football Week 9 odds, schedule: Oregon, Texas, Penn State face quality opponents**\
+`College football teams are in the thick of conference play. There are five top-25 matchups in college football's Week 9 schedule.`\
+https://nytimes.com/athletic/5860433/2024/10/21/college-football-week-9-odds-schedule/
+
 **Why Severed Hands Are Haunting Contemporary Art**\
 `Painters and sculptors are exploring agency and femininity by depicting floating appendages.`\
 https://nytimes.com/2024/10/21/t-magazine/women-hands-art.html
