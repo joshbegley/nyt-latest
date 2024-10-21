@@ -1,3 +1,11 @@
+**What we learned in the LCS round: Bullpen dominance, Soto significance, money talks**\
+`Here's what we gleaned from the four teams that played in the League Championship Series.`\
+https://nytimes.com/athletic/5858062/2024/10/21/what-we-learned-alcs-nlcs/
+
+**Adam Edström's emergence, third line progress, more: 15 Rangers observations**\
+`After two games against Detroit and another in Toronto, a conversation with Edström offered some insight on his journey.`\
+https://nytimes.com/athletic/5857894/2024/10/21/rangers-adam-edstrom-third-line-laviolette/
+
 **Brighton goalkeeper Rushworth set to be out until New Year with ankle injury**\
 `Brighton &amp; Hove Albion goalkeeper Carl Rushworth has suffered an ankle injury on loan to Hull City, which is likely to rule him out until the New Year.`\
 https://nytimes.com/athletic/5859689/2024/10/21/brighton-hull-rushworth-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5858710/2024/10/21/rams-defense-strong-offense-stru
 **Why Are Hospital Gowns So Ugly?**\
 `Curious why medical patient attire is so unflattering, a reader asks our fashion critic if it’s intentional.`\
 https://nytimes.com/2024/10/21/style/hospital-gown.html
-
-**Meet the Florida Billionaire Who Wants to Be a Newspaper Baron**\
-`David Hoffmann has already bought 5 percent of one of America’s largest newspaper companies. Now, he wants to control the whole thing.`\
-https://nytimes.com/2024/10/21/business/media/david-hoffmann-local-newspapers.html
-
-**Why Trump’s Chances Are Better Than They Look**\
-`For many undecided voters, the inflation issue isn’t going away.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-chances-tipsheet
 
