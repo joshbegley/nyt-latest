@@ -1,3 +1,7 @@
+**F1 stewards are back in the spotlight after 'inexplicable’ U.S. Grand Prix penalties**\
+`Is it time for a change to F1's steward system? Some drivers and team principals left Austin confused about the racing rules.`\
+https://nytimes.com/athletic/5861105/2024/10/21/f1-us-grand-prix-stewards-penalty-lando-norris/
+
 **Trump Took a Turn at the Fryer. McDonald’s Workers Have Thoughts.**\
 `After Donald J. Trump served fast food during a campaign stop at a McDonald’s, several workers said the candidate showed a willingness to learn but should stick to his day job.`\
 https://nytimes.com/2024/10/21/nyregion/trump-mcdonalds-employees.html

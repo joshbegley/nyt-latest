@@ -1,3 +1,7 @@
+**F1 stewards are back in the spotlight after 'inexplicable’ U.S. Grand Prix penalties**\
+`Is it time for a change to F1's steward system? Some drivers and team principals left Austin confused about the racing rules.`\
+https://nytimes.com/athletic/5861105/2024/10/21/f1-us-grand-prix-stewards-penalty-lando-norris/
+
 **Trump Took a Turn at the Fryer. McDonald’s Workers Have Thoughts.**\
 `After Donald J. Trump served fast food during a campaign stop at a McDonald’s, several workers said the candidate showed a willingness to learn but should stick to his day job.`\
 https://nytimes.com/2024/10/21/nyregion/trump-mcdonalds-employees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/world/middleeast/israel-lebanon-hezbollah-bank.ht
 **Could Barcelona really face Atletico Madrid in Miami this year?**\
 `Our team of writers from across the U.S. and Europe explain the likelihood of a La Liga match taking place in Miami this year`\
 https://nytimes.com/athletic/5861061/2024/10/21/barcelona-atletico-madrid-miami/
-
-**A's to play on real grass in Sacramento**\
-`The A’s are going to play on natural grass in Sacramento, not turf as previously planned, a change preferred by the players and made out of concern for the heat.`\
-https://nytimes.com/athletic/5861182/2024/10/21/oakland-athletics-sacramento-grass-field/
 
