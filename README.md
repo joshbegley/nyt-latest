@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5857083/2024/10/20/f1-us-grand-prix-norris-verstapp
 https://nytimes.com/athletic/5858327/2024/10/20/rams-cooper-kupp-injury-update-vikings/
 
 **Yohe's 10 observations: Penguins' defensive futility strikes again in loss to Jets**\
-`The Penguins produced another defensive dud in a 6-3 loss to the Jets in Winnipeg on Sunday. `\
+`The Penguins produced another defensive dud in a 6-3 loss to the Jets on Sunday in Winnipeg.`\
 https://nytimes.com/athletic/5857885/2024/10/20/penguins-defensive-futility-nedeljkovic-jets/
 
 **This Is the Case of Henry Dee**\
