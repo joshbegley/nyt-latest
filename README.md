@@ -1,3 +1,7 @@
+**Jonathan Kuminga, Warriors do not come to an extension agreement**\
+`Kuminga shot the 3 with more confidence and volume in the preseason, going 11 of 25 on mostly catch-and-shoot attempts in the halfcourt.`\
+https://nytimes.com/athletic/5861273/2024/10/21/jonathan-kuminga-warriors-no-extension/
+
 **All-LCS Team: Mookie Betts, Juan Soto, Tommy Edman deliver for pennant winners**\
 `The position players, starters and relievers who excelled for the Guardians, Mets, Dodgers and Yankees in the League Championship Series`\
 https://nytimes.com/athletic/5860352/2024/10/21/mlb-all-league-championship-series-team/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/opinion/trump-al-smith-dinner.html
 **Central Park 5 Sue Trump for Defamation Over Debate Comments**\
 `Donald J. Trump’s remarks during the presidential debate are part of a “continuing pattern” of false statements designed to “make the men suffer,” the lawsuit charged.`\
 https://nytimes.com/2024/10/21/nyregion/trump-central-park-five-defamation-lawsuit.html
-
-**Arizona Fall League reports: Ethan Salas, Termarr Johnson, Colt Emerson and more**\
-`Notes on prospects, including Thomas Saggese, Moises Ballesteros, Edwin Arroyo, Jac Caglianone, Chase DeLauter and many more.`\
-https://nytimes.com/athletic/5860771/2024/10/21/arizona-fall-league-scouting-ethan-salas-termarr-johnson/
 
