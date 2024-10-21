@@ -1,3 +1,15 @@
+**Attack has to be the best form of defence for Leicester City**\
+`Leicester defended woefully against Southampton but their attacking talent inspired them - Steve Cooper has to take the handbrake off`\
+https://nytimes.com/athletic/5856501/2024/10/21/leicester-city-steve-cooper-fatawu-attack/
+
+**Why Brighton will be hoping Danny Welbeck's injury isn't serious**\
+`Danny Welbeck is enjoying a purple patch and his goals have been instrumental in Brighton's promising start to the season`\
+https://nytimes.com/athletic/5854880/2024/10/21/welbeck-brighton-injury-newcastle/
+
+**Chelsea will keep coming up short in big games due to defensive weakness**\
+`Who is going to step up to be Chelsea's new John Terry or William Gallas?`\
+https://nytimes.com/athletic/5857400/2024/10/21/chelsea-defence-liverpool/
+
 **Want to understand Aston Villa's transformation under Unai Emery? Then study Lucas Digne**\
 `Two years ago, Villa lost to Fulham and Steve Gerrard left the club. Digne shows how much has changed since`\
 https://nytimes.com/athletic/5855127/2024/10/21/lucas-digne-unai-emery-fulham/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5853035/2024/10/21/thomas-tuchel-english-coaches-pa
 **The tragedy of Matija Sarkic - and what Millwall did next**\
 `The inside story of how the Championship club dealt with the trauma of their popular goalkeeper dying suddenly this summer at age 26`\
 https://nytimes.com/athletic/5849788/2024/10/21/matija-sarkic-millwall-legacy/
-
-**Charlie Williams: The Black footballer who became a comedian**\
-`Williams stood out as a Black footballer and a Black comedian. He broke barriers, but his race-based jokes were firmly of their time`\
-https://nytimes.com/athletic/5851965/2024/10/21/charlie-williams-doncaster-footballer-comedy/
-
-**Real Madrid, Borussia Dortmund and building on a Champions League final appearance**\
-`The Athletic looks at the Champions League finalists from 2019 to 2023 to gauge how their teams evolved over the campaign that followed`\
-https://nytimes.com/athletic/5852965/2024/10/21/real-madrid-borussia-dortmund-champions-league-finalists/
-
-**Fantasy football Week 7 takeaways: Brock Bowers is sitting pretty, Stefon Diggs is washed and more**\
-`Michael Salfino offers observations from Week 7, including a belief that life after the Davante Adams trade will be sweet for Brock Bowers.`\
-https://nytimes.com/athletic/5858680/2024/10/21/fantasy-football-week-7-takeaways-bowers-diggs/
 
