@@ -1,3 +1,16 @@
+**Yohe mailbag: Crosby and Malkin's greatest hits**\
+`In honor of their recent accomplishments, let's remember the best Crosby and Malkin moments on and off the ice.`\
+https://nytimes.com/athletic/5855706/2024/10/22/penguins-sidney-crosby-evgeni-malkin-career-highlights/
+
+**Scoop City: Who replaces Aiyuk, Godwin?**\
+`A look at seven running backs to add for your fantasy football team, plus who replaces Chris Godwin, Brandon Aiyuk`\
+https://nytimes.com/athletic/5863646/2024/10/22/scoop-city-week-8-fantasy-preview/
+
+**Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
+`Both Godwin and Evans left Monday night's loss to the Ravens with injuries
+`\
+https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
+
 **Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
 `Both Godwin and Evans left Monday night's loss to the Ravens with injuries
 `\

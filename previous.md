@@ -1,3 +1,11 @@
+**Yohe mailbag: Crosby and Malkin's greatest hits**\
+`In honor of their recent accomplishments, let's remember the best Crosby and Malkin moments on and off the ice.`\
+https://nytimes.com/athletic/5855706/2024/10/22/penguins-sidney-crosby-evgeni-malkin-career-highlights/
+
+**Scoop City: Who replaces Aiyuk, Godwin?**\
+`A look at seven running backs to add for your fantasy football team, plus who replaces Chris Godwin, Brandon Aiyuk`\
+https://nytimes.com/athletic/5863646/2024/10/22/scoop-city-week-8-fantasy-preview/
+
 **After extending Trey Murphy, will Pelicans commit to letting him reach potential?**\
 `Murphy signed a four-year, $112 million extension Monday, but he may not have a spot in the starting lineup.`\
 https://nytimes.com/athletic/5863006/2024/10/22/trey-murphy-pelicans-extension/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/10/22/us/politics/josh-shapiro-kamala-harris.html
 **Republicans Who Led 2020 Election Denial Now Sowing Doubt in 2024 Votes**\
 `The efforts could help lay the groundwork for what could become another push to undermine the results if former President Donald J. Trump loses again.`\
 https://nytimes.com/2024/10/22/us/politics/election-2024-denial-congress.html
-
-**Harris Will Campaign in Texas to Call Attention to Abortion Rights**\
-`The vice president will head to Houston on Friday, hoping to use the issue to peel moderate voters away from Donald J. Trump, who is almost certain to win the state.`\
-https://nytimes.com/2024/10/22/us/politics/harris-texas-abortion-trump.html
-
-**Astros to hire Tony Perezchica as new third-base coach: Source**\
-`Perezchica, 58, would replace Gary Pettis, who did not have his contract renewed after 10 years on Houston's staff.`\
-https://nytimes.com/athletic/5863436/2024/10/22/astros-hire-tony-perezchica-third-base-coach/
 
