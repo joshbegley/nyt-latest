@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/22/us/politics/vance-trump-legal-immigrants.html
 
 **Guardians postmortem: Notes on Shane Bieber, Josh Naylor, Stephen Vogt and more**\
-`“We need this to be a building block,” said Guardians president Chris Antonetti. “We want to take a step forward next year.”`\
+`“We need this to be a building block,” Guardians president Chris Antonetti said. “We want to take a step forward next year.”`\
 https://nytimes.com/athletic/5864558/2024/10/22/guardians-postmortem-shane-bieber-josh-naylor-stephen-vogt/
 
 **Nik Khamenia, No. 27 player in 2025 class, commits to Duke**\
