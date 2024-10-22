@@ -1,3 +1,7 @@
+**Dock Tragedy Strikes a Georgia Community Fighting to Protect Its Culture**\
+`The deaths of seven people on Sapelo Island have brought to the fore longstanding frustrations among its Gullah Geechee community.`\
+https://nytimes.com/2024/10/21/us/dock-collapse-sapelo-island-georgia.html
+
 **Nuggets re-sign 'heart and soul' Aaron Gordon to 4-year extension**\
 `"In many ways, Aaron is the heart and soul of the team," Nuggets general manager Calvin Booth told The Athletic after the agreement.`\
 https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extension/
@@ -33,10 +37,4 @@ https://nytimes.com/2024/10/21/us/politics/trump-ad-harris-biden.html
 **Taylor: Chiefs need to trade for a wide receiver now to help Patrick Mahomes**\
 `Without a trade, Mahomes’ receivers against the Raiders will be rookie Xavier Worthy, Justin Watson, Mecole Hardman and Skyy Moore.`\
 https://nytimes.com/athletic/5862069/2024/10/21/chiefs-wide-receiver-trade-patrick-mahomes/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Ready for your questions. If by chance I answer them wrong, please don&#8217;t throw water bottles at me.</p>
-<p>&nbsp;</p>
-`\
-https://nytimes.com/athletic/5862260/2024/10/21/submit-a-question-for-stewart-mandels-college-football-mailbag-278/
 
