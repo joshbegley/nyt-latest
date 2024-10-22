@@ -1,3 +1,7 @@
+**Cubs' Nico Hoerner underwent flexor tendon surgery**\
+`The Gold Glove second baseman dealt with pain in his right forearm for much of the 2024 season.`\
+https://nytimes.com/athletic/5862373/2024/10/21/cubs-nico-hoerner-flexor-tendon-surgery/
+
 **Tracking Tropical Storm Trami**\
 `See the likely path and wind arrival times for Trami.`\
 https://nytimes.com/interactive/2024/10/21/weather/trami-map-path-tracker.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5862260/2024/10/21/submit-a-question-for-stewart-ma
 **Liz Cheney Campaigns for Harris**\
 `Appearing side by side at a campaign event in Michigan, the Republican former congresswoman expressed her support for Vice President Kamala Harris.`\
 https://nytimes.com/video/us/elections/100000009774584/liz-cheney-harris.html
-
-**Raiders sign QB Desmond Ridder: Could he be an option to start?**\
-`Raiders lost Aidan O'Connell to injury in Week 7 and Gardner Minshew has underwhelmed as the new QB1.`\
-https://nytimes.com/athletic/5862113/2024/10/21/raiders-sign-desmond-ridder/
 

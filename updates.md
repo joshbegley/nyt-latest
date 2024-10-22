@@ -1,3 +1,7 @@
+**Cubs' Nico Hoerner underwent flexor tendon surgery**\
+`The Gold Glove second baseman dealt with pain in his right forearm for much of the 2024 season.`\
+https://nytimes.com/athletic/5862373/2024/10/21/cubs-nico-hoerner-flexor-tendon-surgery/
+
 **Tracking Tropical Storm Trami**\
 `See the likely path and wind arrival times for Trami.`\
 https://nytimes.com/interactive/2024/10/21/weather/trami-map-path-tracker.html
