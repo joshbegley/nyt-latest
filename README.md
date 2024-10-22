@@ -1,3 +1,7 @@
+**Abortions Have Increased, Even for Women in States With Near-Total Bans**\
+`A new analysis shows how many women in states with bans are seeking procedures or pills from out-of-state providers.`\
+https://nytimes.com/2024/10/22/upshot/abortions-rising-state-bans.html
+
 **NFL MVP odds: Lamar Jackson jumps Patrick Mahomes for top spot**\
 `Lamar Jackson has Baltimore on a five-game winning streak and took the top spot in the MVP odds from Patrick Mahomes.`\
 https://nytimes.com/athletic/5863796/2024/10/22/nfl-mvp-odds-week-8-lamar-jackson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863822/2024/10/22/smu-mustangs-football-acc-rj-mar
 **Leverkusen's Boniface to miss Brest game after car accident**\
 `Bayer Leverkusen forward Victor Boniface has been ruled out of the club’s visit to Brest in the Champions League having been injured in a car accident over the weekend.`\
 https://nytimes.com/athletic/5863821/2024/10/22/bayer-leverkusen-victor-boniface-car-accident/
-
-**Son of Singapore’s First Prime Minister Says He Is Granted Asylum in Britain**\
-`Lee Hsien Yang accused his brother, a former prime minister, of persecuting him politically, inflaming the feud in Singapore’s first family.`\
-https://nytimes.com/2024/10/22/world/asia/singapore-lee-hsien-yang-political-asylum-uk.html
 
