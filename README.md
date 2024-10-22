@@ -1,3 +1,7 @@
+**If Trump Wins, Who, or What, Will Liberals Blame?**\
+`They should look at themselves and the way they practice politics.`\
+https://nytimes.com/2024/10/22/opinion/trump-kamala-harris-democrats.html
+
 **Douglas Elliman C.E.O. Retires**\
 `Howard Lorber faced calls to reduce his compensation, amid allegations of sexual assault by agents and plummeting stock prices.`\
 https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/business/starbucks-earnings-sales.html
 **Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
 `Wrexham were were unable to mark the 160th anniversary of their first match with a win as Huddersfield earned a hard-fought goalless draw`\
 https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
-
-**Aid workers say they are encountering Israeli resistance in northern Gaza.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/aid-workers-say-they-are-encountering-israeli-resistance-in-northern-gaza
 
