@@ -1,3 +1,19 @@
+**Iling-Junior's journey from Chelsea to Serie A and Villa, by those who know him**\
+`Iling-Junior has come a long way from the park pitches of north London - he could face his parent club Aston Villa now he's at Bologna`\
+https://nytimes.com/athletic/5695445/2024/10/22/samuel-iling-juniors-journey-from-chelsea-to-serie-a-and-aston-villa-by-those-who-know-him/
+
+**Inside Newcastle Q&A: Guimaraes as captain, Longstaff's positive impact, and is Howe under pressure?**\
+`Chris Waugh answers subscribers questions about Newcastle - from their January transfer-window plans to what's going on with Joe Willock`\
+https://nytimes.com/athletic/5859635/2024/10/22/inside-newcastle-qa-guimaraes-longstaff-willock-howe-almiron-murphy/
+
+**Zinchenko, a Ukraine icon and his complex history with Russia**\
+`The Arsenal player is one of Ukraine's most influential sporting figures, 10 years after a controversial decision to play in Russia`\
+https://nytimes.com/athletic/5795957/2024/10/22/oleksandr-zinchenko-ukraine-shakhtar-russia/
+
+**Hugo Viana: 'Superstar' sporting director, killer negotiator, Manchester City's future**\
+`Sporting's recent success both on the pitch and in the transfer market has been shaped by the man now heading to Manchester City`\
+https://nytimes.com/athletic/5853571/2024/10/22/hugo-viana-superstar-sporting-director-killer-negotiator-manchester-citys-future/
+
 **'We're on a different planet': The grim reality of following a Champions League minnow**\
 `Teams who dominate their domestic league are finding life among Europe's elite to be anything but fun`\
 https://nytimes.com/athletic/5860527/2024/10/22/champions-league-minnows-grim-reality/
