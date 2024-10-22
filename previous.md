@@ -1,3 +1,19 @@
+**Bruce Springsteen Will Perform for Harris in Battleground States**\
+`The rocker will appear at a rally on Thursday in Atlanta alongside the vice president, and again at an event next week in Philadelphia with Barack Obama.`\
+https://nytimes.com/2024/10/22/us/politics/springsteen-harris-atlanta-obama-philly.html
+
+**Russia Could Stoke Unrest After U.S. Election, Officials Say**\
+`Foreign powers including Russia and Iran could move quickly right after the vote to undermine the democratic process, intelligence agencies warn.`\
+https://nytimes.com/2024/10/22/us/politics/election-warning-russia-iran.html
+
+**Gordon signs new long-term Newcastle contract**\
+`Anthony Gordon has signed a new long-term contract at Newcastle United.`\
+https://nytimes.com/athletic/5863869/2024/10/22/anthony-gordon-newcastle-contract-new/
+
+**New Stroke Recommendations Call Out Risks Unique to Women**\
+`In a first, the guidelines link poor pregnancy outcomes to stroke and call on doctors to exercise greater vigilance.`\
+https://nytimes.com/2024/10/22/health/stroke-women-pregnancy.html
+
 **Vatican and China Extend Contentious Agreement on Naming Catholic Bishops**\
 `Critics argue the pact legitimizes China’s control over church affairs, while defenders say it helps support Catholics faithful to the Vatican in the Communist country.`\
 https://nytimes.com/2024/10/22/world/europe/vatican-china-catholic-bishops.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/22/world/asia/singapore-lee-hsien-yang-political-asy
 **U.S. Charges Iranian Revolutionary Guards Official in Assassination Plot**\
 `The failed plot to kill Masih Alinejad, a human-rights activist, has already led to murder-for-hire charges against members of an Eastern European criminal organization with ties to Iran.`\
 https://nytimes.com/2024/10/22/nyregion/iran-assassination-plot-masih-alinejad.html
-
-**Time and Tide Sets Sail Near Madison Square Park**\
-`Soso’s offers New York-style tavern fare, Masa Madre bakes Latin American treats and more restaurant news.`\
-https://nytimes.com/2024/10/22/dining/time-and-tide-madison-square-park.html
-
-**In the Art Biennale’s Shadow, Venice Celebrates Music, Too**\
-`It may not be as big or run as long as its visual arts sibling, but the Music Biennale includes a wealth of commissions and premieres.`\
-https://nytimes.com/2024/10/22/arts/music/venice-music-biennale.html
-
-**Mike Jeffries, Former Abercrombie C.E.O., Arrested in Sex-Trafficking Case**\
-`Mr. Jeffries and two others were arrested in connection with a federal sex-trafficking and interstate prostitution investigation.`\
-https://nytimes.com/2024/10/22/business/mike-jeffries-arrested-sex-trafficking-abercrombie.html
-
-**Nearly 30 People Still Missing in North Carolina After Helene**\
-`The number is down from an estimate last week that there were 92 missing people after the storm hit western North Carolina in September.`\
-https://nytimes.com/2024/10/22/us/helene-north-carolina-missing.html
 
