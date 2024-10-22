@@ -1,3 +1,7 @@
+**Explained: What Staveley's 'MBS' WhatsApps mean for Newcastle**\
+`What do revelations around former Newcastle shareholder's correspondence mean for the Premier League - if anything?`\
+https://nytimes.com/athletic/5860879/2024/10/22/mohammed-bin-salman-amanda-staveley-newcastle/
+
 **Chargers' loss to Cardinals was about far more than late-game officiating**\
 `The Chargers had 395 yards of offense. Justin Herbert threw for 349, his most in more than a calendar year. The Chargers didn't score a TD.`\
 https://nytimes.com/athletic/5862777/2024/10/22/chargers-cardinals-loss-officiating-harbaugh-herbert/
