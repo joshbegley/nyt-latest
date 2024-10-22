@@ -1,3 +1,15 @@
+**Which Republican might join a Harris cabinet? We asked around.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election/which-republican-might-join-a-harris-cabinet-we-asked-around
+
+**Teenager Is in Custody After 5 Are Found Dead in Home Shooting**\
+`The teenager, a 15-year-old boy, was scheduled to appear in court on Tuesday after two adults and three juveniles were found dead at a home near Seattle.`\
+https://nytimes.com/2024/10/22/us/shooting-teen-custody-washington.html
+
+**Abortions Have Increased, Even for Women in States With Near-Total Bans**\
+`A new analysis shows how many women in states with bans are seeking procedures or pills from out-of-state providers.`\
+https://nytimes.com/2024/10/22/upshot/abortions-rising-state-bans.html
+
 **NFL MVP odds: Lamar Jackson jumps Patrick Mahomes for top spot**\
 `Lamar Jackson has Baltimore on a five-game winning streak and took the top spot in the MVP odds from Patrick Mahomes.`\
 https://nytimes.com/athletic/5863796/2024/10/22/nfl-mvp-odds-week-8-lamar-jackson/
@@ -23,18 +35,6 @@ https://nytimes.com/2024/10/22/health/stroke-women-pregnancy.html
 https://nytimes.com/2024/10/22/world/europe/vatican-china-catholic-bishops.html
 
 **Putin, Fighting Pariah Status, Welcomes Xi and Other Leaders to Russia**\
-`The Russian leader wants cast himself as a global statesman even as the U.S. and its Western allies try to isolate him.`\
+`The Russian leader wants to cast himself as a global statesman, even as the U.S. and its Western allies try to isolate him.`\
 https://nytimes.com/2024/10/22/world/asia/putin-brics-summit-xi-modi.html
-
-**SMU star tight end RJ Maryland out for season with knee injury**\
-`Maryland, who leads SMU in receptions, receiving yards and touchdown catches, has been a key part of the Mustangs hot start in the ACC.`\
-https://nytimes.com/athletic/5863822/2024/10/22/smu-mustangs-football-acc-rj-maryland-injury/
-
-**Leverkusen's Boniface to miss Brest game after car accident**\
-`Bayer Leverkusen forward Victor Boniface has been ruled out of the club’s visit to Brest in the Champions League having been injured in a car accident over the weekend.`\
-https://nytimes.com/athletic/5863821/2024/10/22/bayer-leverkusen-victor-boniface-car-accident/
-
-**Son of Singapore’s First Prime Minister Says He Is Granted Asylum in Britain**\
-`Lee Hsien Yang accused his brother, a former prime minister, of persecuting him politically, inflaming the feud in Singapore’s first family.`\
-https://nytimes.com/2024/10/22/world/asia/singapore-lee-hsien-yang-political-asylum-uk.html
 

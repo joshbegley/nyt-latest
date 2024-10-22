@@ -1,3 +1,19 @@
+**Which Republican might join a Harris cabinet? We asked around.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election/which-republican-might-join-a-harris-cabinet-we-asked-around
+
+**Teenager Is in Custody After 5 Are Found Dead in Home Shooting**\
+`The teenager, a 15-year-old boy, was scheduled to appear in court on Tuesday after two adults and three juveniles were found dead at a home near Seattle.`\
+https://nytimes.com/2024/10/22/us/shooting-teen-custody-washington.html
+
+**Abortions Have Increased, Even for Women in States With Near-Total Bans**\
+`A new analysis shows how many women in states with bans are seeking procedures or pills from out-of-state providers.`\
+https://nytimes.com/2024/10/22/upshot/abortions-rising-state-bans.html
+
+**Putin, Fighting Pariah Status, Welcomes Xi and Other Leaders to Russia**\
+`The Russian leader wants to cast himself as a global statesman, even as the U.S. and its Western allies try to isolate him.`\
+https://nytimes.com/2024/10/22/world/asia/putin-brics-summit-xi-modi.html
+
 **NFL MVP odds: Lamar Jackson jumps Patrick Mahomes for top spot**\
 `Lamar Jackson has Baltimore on a five-game winning streak and took the top spot in the MVP odds from Patrick Mahomes.`\
 https://nytimes.com/athletic/5863796/2024/10/22/nfl-mvp-odds-week-8-lamar-jackson/
