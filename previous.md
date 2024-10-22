@@ -1,3 +1,7 @@
+**Cardinals defeat Chargers on game-winning FG: Key takeaways**\
+`Kyler Murray led the Cardinals from their own 30-yard line to the Chargers' 14 to set Ryland up.`\
+https://nytimes.com/athletic/5862676/2024/10/22/chargers-cardinals-monday-night-football-score-takeaways/
+
 **Abdallah Sima could be another striker that Brighton regret not giving a chance**\
 `The Senegalese striker is scoring for Brest in the Champions League but his chances of making it at the Amex look slim`\
 https://nytimes.com/athletic/5853145/2024/10/22/abdallah-sima-gyokeres-undav-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853571/2024/10/22/hugo-viana-superstar-sporting-di
 **'We're on a different planet': The grim reality of following a Champions League minnow**\
 `Teams who dominate their domestic league are finding life among Europe's elite to be anything but fun`\
 https://nytimes.com/athletic/5860527/2024/10/22/champions-league-minnows-grim-reality/
-
-**Tuesday Briefing**\
-`Two weeks to the U.S. election.`\
-https://nytimes.com/2024/10/22/briefing/election-trump-harris-lebanon-israel-moldova.html
 

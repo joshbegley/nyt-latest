@@ -1,3 +1,7 @@
+**Cardinals defeat Chargers on game-winning FG: Key takeaways**\
+`Kyler Murray led the Cardinals from their own 30-yard line to the Chargers' 14 to set Ryland up.`\
+https://nytimes.com/athletic/5862676/2024/10/22/chargers-cardinals-monday-night-football-score-takeaways/
+
 **How Liverpool shrugged off 'mediocrity' and honed the art of closing out wins**\
 `After a nervous end to September's defeat of Wolves, Arne Slot's side have been clinical in managing the closing stages of victories`\
 https://nytimes.com/athletic/5859967/2024/10/22/liverpool-closing-out-games/
