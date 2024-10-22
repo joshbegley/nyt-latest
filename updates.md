@@ -1,3 +1,7 @@
+**Maple Leafs report cards: William Nylander's big night helps Toronto overwhelm Tampa Bay**\
+`The Maple Leafs took care of business in their first outing against a fellow Atlantic Division playoff threat.`\
+https://nytimes.com/athletic/5861357/2024/10/21/maple-leafs-report-cards-nylander-tampa-bay/
+
 **Maple Leafs report cards: Nylander's big night helps Toronto overwhelm Tampa Bay**\
 `The Maple Leafs took care of business in their first outing against a fellow Atlantic Division playoff threat.`\
 https://nytimes.com/athletic/5861357/2024/10/21/maple-leafs-report-cards-nylander-tampa-bay/
