@@ -28,7 +28,7 @@ https://nytimes.com/2024/10/21/us/politics/trump-ad-harris-biden.html
 
 **Taylor: Chiefs need to trade for a wide receiver now to help Patrick Mahomes**\
 `Without a trade, Mahomes’ receivers against the Raiders will be rookie Xavier Worthy, Justin Watson, Mecole Hardman and Skyy Moore.`\
-https://nytimes.com/athletic/5862069/2024/10/21/chiefs-wide-reciever-trade-patrick-mahomes/
+https://nytimes.com/athletic/5862069/2024/10/21/chiefs-wide-receiver-trade-patrick-mahomes/
 
 **Nuggets, Gordon agree to 4-year, $133 million max extension: Sources**\
 `Gordon, 29, averaged 14.5 points, 6.1 rebounds and 2.9 assists per game over four seasons with the Nuggets.`\
