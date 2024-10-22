@@ -1,3 +1,15 @@
+**The Quest to Save the ‘King’ of Japanese Rice From Rising Temperatures**\
+`Scientists in Japan are mining DNA to try to make the country’s famous Koshihikari rice resistant to heat, after a broiling summer ravaged the crop.`\
+https://nytimes.com/2024/10/22/business/japanese-rice-climate-change.html
+
+**What Life Looks Like for Israelis Living Near Lebanon’s Border**\
+`Homes in northern Israel along the Lebanon border have been under the constant threat of Hezbollah’s rocket attacks since October of last year. We look at life on the ground for the few Israelis who stayed behind.`\
+https://nytimes.com/2024/10/22/world/middleeast/northern-israel-lebanon-war.html
+
+**‘We Are Still Afraid’: Life Inside Northern Israel**\
+`Homes in northern Israel along the Lebanon border have been under the constant threat of Hezbollah’s rocket attacks since October of last year. We look at life on the ground for the few Israelis who stayed behind.`\
+https://nytimes.com/video/world/middleeast/100000009770604/northern-israel-lebanon-war.html
+
 **You’re Being Lied To About Voter Fraud. Here’s the Truth.**\
 `Widespread cheating at the polls is a myth. So what are election deniers really after?`\
 https://nytimes.com/video/opinion/100000009768157/election-fraud-voting-security.html
