@@ -1,3 +1,11 @@
+**The numbers behind Crystal Palace's joint-worst start to a Premier League season**\
+`Oliver Glasner tweaked his formation and tactics against Nottingham Forest but fixing his team's numerous problems is proving difficult`\
+https://nytimes.com/athletic/5862041/2024/10/22/crystal-palace-slow-start-premier-league/
+
+**Word of the Day: holistic**\
+`This word has appeared in 176 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/22/learning/word-of-the-day-holistic.html
+
 **China Turns Up the Heat on Taiwan With Live-Fire Drills**\
 `The drills were the latest show of force by China, which claims Taiwan as its territory and has protested Western support for the island.`\
 https://nytimes.com/2024/10/22/world/asia/china-taiwan-live-fire-drills.html
