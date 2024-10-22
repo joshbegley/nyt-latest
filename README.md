@@ -1,3 +1,15 @@
+**After a Deadly Strike Near Beirut, Ringtones Sound From Under Rubble**\
+`As search teams combed the ruins of residential buildings across from Rafik Hariri University Hospital just south of Lebanon’s capital, locals listened for signs of their loved ones in the wreckage.`\
+https://nytimes.com/2024/10/22/world/middleeast/israel-strike-beirut-hospital.html
+
+**Jamie Dimon Privately Supports Kamala Harris. He Just Won’t Say So.**\
+`JPMorgan’s chief executive has told associates of his support for the vice president, and his dislike of Donald Trump. But fearful of blowback, he won’t say it publicly.`\
+https://nytimes.com/2024/10/22/business/jamie-dimon-jpmorgan-harris-trump.html
+
+**Marinakis' ban was for 'spitting towards match officials', commission says**\
+`Nottingham Forest owner Evangelos Marinakis was given a five-match ban for spitting on the floor as the match officials walked past him following their 2-2 draw with Fulham last month.`\
+https://nytimes.com/athletic/5863715/2024/10/22/evangelos-marinakis-spit-forest/
+
 **Trump Media’s Soaring Share Price Masks Internal Strife**\
 `Employees have complained to the board about hiring and management practices at the parent company of Truth Social, which serves as the main online megaphone for former President Donald Trump.`\
 https://nytimes.com/2024/10/22/business/trump-media-truth-social-nunes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5862860/2024/10/22/darwin-nunez-liverpool-chelsea/
 **Exploring the Failures in the Mideast**\
 `Readers respond to a guest essay by Peter Beinart. Also: Donald Trump’s lewd comments at a rally; lessons from baseball; Queen Esther’s legacy.`\
 https://nytimes.com/2024/10/22/opinion/israel-gaza-war.html
-
-**Rest Days Are Good. Active Recovery Days Can Be Better.**\
-`Low-impact, easy workouts can offer relief for sore muscles.`\
-https://nytimes.com/2024/10/22/well/move/rest-day-workouts-active-recovery.html
-
-**I Can’t Pass Up Paneer**\
-`The firm, fresh Indian cheese is put to delicious use in this streamlined, kid-favorite mattar paneer.`\
-https://nytimes.com/2024/10/22/dining/mattar-paneer-dinner-recipes.html
-
-**The Hard-Shell Taco Deserves Your Respect**\
-`The version that once thrived at the midcentury fast food stands of Los Angeles is now a regional treasure.`\
-https://nytimes.com/2024/10/22/dining/hard-shell-tacos-los-angeles.html
 
