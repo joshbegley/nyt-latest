@@ -1,3 +1,11 @@
+**The Athletic FC: Top Euro leagues - a style guide, 'superstar' Viana, Liga match in Miami?**\
+`Today in TAFC: The contrasting styles of the top four European leagues, Manchester City's new boss and the prospect of a Liga match in Miami`\
+https://nytimes.com/athletic/5862947/2024/10/22/champions-league-style-barcelona-atletico/
+
+**The Era of Outsized Market Rallies Could Be Over**\
+`The S&P 500’s huge gains over the past two years won’t be duplicated some analysts say, as a series of economic challenges piles up.`\
+https://nytimes.com/2024/10/22/business/dealbook/sp-500-rally-markets.html
+
 **Wilshere leaving Arsenal to join Norwich as first-team coach**\
 `Jack Wilshere is leaving his role as Arsenal Under-18 head coach to take up a first-team coaching position at Norwich City.`\
 https://nytimes.com/athletic/5859680/2024/10/22/jack-wilshere-norwich-arsenal-leave/
