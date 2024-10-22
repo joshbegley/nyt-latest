@@ -1,10 +1,18 @@
+**Cardinals to hire Guardians’ Rob Cerfolio: Sources**\
+`In hiring Cerfolio, the Cardinals believe they’ve landed one of baseball’s up-and-coming talents in player development.`\
+https://nytimes.com/athletic/5863462/2024/10/22/cardinals-to-hire-guardians-rob-cerfolio-player-development/
+
+**Passed Up for the Ticket, Josh Shapiro Tries to Deliver Pennsylvania for Harris**\
+`Pennsylvania’s governor may not be on the verge of the vice presidency, but he says he has everything — including his “heart and soul” — riding on a Kamala Harris victory.`\
+https://nytimes.com/2024/10/22/us/politics/josh-shapiro-kamala-harris.html
+
 **Republicans Who Led 2020 Election Denial Now Sowing Doubt in 2024 Votes**\
 `The efforts could help lay the groundwork for what could become another push to undermine the results if former President Donald J. Trump loses again.`\
 https://nytimes.com/2024/10/22/us/politics/election-2024-denial-congress.html
 
-**Harris will campaign in Texas to call attention to abortion rights.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election/harris-texas-abortion-trump
+**Harris Will Campaign in Texas to Call Attention to Abortion Rights**\
+`The vice president will head to Houston on Friday, hoping to use the issue to peel moderate voters away from Donald J. Trump, who is almost certain to win the state.`\
+https://nytimes.com/2024/10/22/us/politics/harris-texas-abortion-trump.html
 
 **Astros to hire Tony Perezchica as new third-base coach: Source**\
 `Perezchica, 58, would replace Gary Pettis, who did not have his contract renewed after 10 years on Houston's staff.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5863237/2024/10/22/fantasy-football-who-to-drop-ahe
 **Blinken arrives in Israel in the latest U.S. push for a cease-fire in Gaza.**\
 `By Aaron Boxerman and Patrick Kingsley`\
 https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/blinken-israel-gaza-ceasefire
-
-**Raphinha addresses 'disrespectful' reaction following Williams saga**\
-`Raphinha has described some of the reaction he received following Barcelona&#8217;s summer pursuit of Nico Williams as &#8220;disrespectful&#8221;.`\
-https://nytimes.com/athletic/5863165/2024/10/22/raphinha-nico-williams-barcelona/
-
-**FIFA and FIFPro row escalates over player compensation shortfall**\
-`The row between FIFA and the global players’ union FIFPro over football’s congested calendar has caused what appears to be a complete breakdown in cooperation between the two organisations.`\
-https://nytimes.com/athletic/5863235/2024/10/22/fifa-fifpro-fund-for-football-players/
 
