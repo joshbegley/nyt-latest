@@ -1,9 +1,17 @@
+**The Briefing: Arsenal 1 Shakhtar 0: Martinelli finds form, Jesus' wait goes on, Calafiori concern**\
+`Arsenal recorded their second win in the Champions League this term - Art de Roche analyses the talking points`\
+https://nytimes.com/athletic/5854162/2024/10/22/arsenal-1-shakhtar-donetsk-0-martinelli-jesus-calafiori-champions-league/
+
+**Israel Says It Killed Hashem Safieddine, Considered a Successor to Hezbollah’s Leader**\
+`A cousin of Hassan Nasrallah, he joined Hezbollah soon after the group was formed and rose quickly in its ranks.`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/israel-hashem-safieddine-hezbollah-nasrallah
+
 **Lebanese Exuberance Meets Brooklyn Cool at Sawa**\
 `A new restaurant in Park Slope serves elegant Levantine classics with a dash of hipster style and some New York pluck.`\
 https://nytimes.com/2024/10/22/dining/sawa-brooklyn-restaurant-review.html
 
 **Yehuda Bauer, 98, Scholar Who Saw Jewish Resistance in Holocaust, Dies**\
-`A leading historian of antisemitism, he countered the prevailing narrative of Jewish victimhood and pushed back against efforts to diminish the Holocaust’s significance.`\
+`A leading historian of antisemitism, he countered the prevailing narrative of Jewish victimhood and later pushed back against efforts to diminish the Holocaust’s significance.`\
 https://nytimes.com/2024/10/22/world/middleeast/yehuda-bauer-dead.html
 
 **Stan Asofsky, Vociferous Courtside Superfan of the Knicks, Dies at 87**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/us/how-a-knack-for-provocation-fueled-mark-robins
 **Wordle Review No. 1,222**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 23, 2024.`\
 https://nytimes.com/2024/10/22/crosswords/wordle-review-1222.html
-
-**Marc Lore, Alex Rodriguez are positioning themselves for a full Timberwolves takeover**\
-`If they prevail in arbitration, their ownership group will be brought to the NBA's Board of Governors for final approval as owners.`\
-https://nytimes.com/athletic/5864229/2024/10/22/marc-lore-alex-rodriguez-full-ownership-timberwolves/
-
-**The drone launched toward Netanyahu’s home on Saturday damaged the property, Israel’s military says.**\
-`Prime Minister Benjamin Netanyahu has characterized the attack as an assassination attempt against him and his wife, Sara. Hezbollah claimed full responsibility for the strike.`\
-https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/the-drone-launched-toward-netanyahus-home-on-saturday-damaged-the-property-israels-military-says
 
