@@ -1,3 +1,7 @@
+**NFL MVP odds: Lamar Jackson jumps Patrick Mahomes for top spot**\
+`Lamar Jackson has Baltimore on a five-game winning streak and took the top spot in the MVP odds from Patrick Mahomes.`\
+https://nytimes.com/athletic/5863796/2024/10/22/nfl-mvp-odds-week-8-lamar-jackson/
+
 **Bruce Springsteen Will Perform for Harris in Battleground States**\
 `The rocker will appear at a rally on Thursday in Atlanta alongside the vice president, and again at an event next week in Philadelphia with Barack Obama.`\
 https://nytimes.com/2024/10/22/us/politics/springsteen-harris-atlanta-obama-philly.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863821/2024/10/22/bayer-leverkusen-victor-boniface
 **Son of Singapore’s First Prime Minister Says He Is Granted Asylum in Britain**\
 `Lee Hsien Yang accused his brother, a former prime minister, of persecuting him politically, inflaming the feud in Singapore’s first family.`\
 https://nytimes.com/2024/10/22/world/asia/singapore-lee-hsien-yang-political-asylum-uk.html
-
-**U.S. Charges Iranian Revolutionary Guards Official in Assassination Plot**\
-`The failed plot to kill Masih Alinejad, a human-rights activist, has already led to murder-for-hire charges against members of an Eastern European criminal organization with ties to Iran.`\
-https://nytimes.com/2024/10/22/nyregion/iran-assassination-plot-masih-alinejad.html
 
