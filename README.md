@@ -1,3 +1,7 @@
+**U.S. Charges Iranian Revolutionary Guards Official in Assassination Plot**\
+`The failed plot to kill Masih Alinejad, a human-rights activist, has already led to murder-for-hire charges against members of an Eastern European criminal organization with ties to Iran.`\
+https://nytimes.com/2024/10/22/nyregion/iran-assassination-plot-masih-alinejad.html
+
 **Time and Tide Sets Sail Near Madison Square Park**\
 `Soso’s offers New York-style tavern fare, Masa Madre bakes Latin American treats and more restaurant news.`\
 https://nytimes.com/2024/10/22/dining/time-and-tide-madison-square-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/business/jamie-dimon-jpmorgan-harris-trump.html
 **Marinakis' ban was for 'spitting towards match officials', commission says**\
 `Nottingham Forest owner Evangelos Marinakis was given a five-match ban for spitting on the floor as the match officials walked past him following their 2-2 draw with Fulham last month.`\
 https://nytimes.com/athletic/5863715/2024/10/22/evangelos-marinakis-spit-forest/
-
-**Trump Media’s Soaring Share Price Masks Internal Strife**\
-`Employees have complained to the board about hiring and management practices at the parent company of Truth Social, which serves as the main online megaphone for former President Donald Trump.`\
-https://nytimes.com/2024/10/22/business/trump-media-truth-social-nunes.html
 
