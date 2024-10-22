@@ -1,3 +1,7 @@
+**Champions League briefing: Did Vinicius Jr just seal the Ballon d'Or? Plus a Pulisic olimpico**\
+`The major talking points from a dramatic on matchweek 3 in the Champions League`\
+https://nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/
+
 **Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
 `Wrexham were were unable to mark the 160th anniversary of their first match with a win as Huddersfield earned a hard-fought goalless draw`\
 https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/

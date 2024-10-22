@@ -26,7 +26,7 @@ https://nytimes.com/2024/10/22/world/middleeast/blinken-netanyahu-cease-fire.htm
 `Seymour will not be eligible for reinstatement until Dec. 2, following Washington's Week 13 home game versus the Tennessee Titans.`\
 https://nytimes.com/athletic/5864738/2024/10/22/commanders-kevon-seymour-suspension/
 
-**Champions League briefing: Did Vinicius just seal Ballon d'Or? Plus a Pulisic olimpico**\
+**Champions League briefing: Did Vinicius Jr just seal the Ballon d'Or? Plus a Pulisic olimpico**\
 `The major talking points from a dramatic on matchweek 3 in the Champions League`\
 https://nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/
 
