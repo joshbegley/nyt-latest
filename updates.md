@@ -1,3 +1,11 @@
+**Lebanese Exuberance Meets Brooklyn Cool at Sawa**\
+`A new restaurant in Park Slope serves elegant Levantine classics with a dash of hipster style and some New York pluck.`\
+https://nytimes.com/2024/10/22/dining/sawa-brooklyn-restaurant-review.html
+
+**Yehuda Bauer, Leading Scholar of the Holocaust and Antisemitism, Dies at 98**\
+`He was among the first to show how Jews resisted the Nazis, and later pushed back against efforts to diminish the significance of the Holocaust.`\
+https://nytimes.com/2024/10/22/world/middleeast/yehuda-bauer-dead.html
+
 **Stan Asofsky, Vociferous Courtside Superfan of the Knicks, Dies at 87**\
 `For decades, beginning in 1959, he was a regular presence at Madison Square Garden (in two locations), befriending players and heckling opposing players and refs.`\
 https://nytimes.com/2024/10/22/sports/basketball/stan-asofsky-dead.html

@@ -15,7 +15,7 @@ https://nytimes.com/2024/10/22/sports/basketball/stan-asofsky-dead.html
 https://nytimes.com/card/2024/10/22/style/london-fashion-columbia-road-flower-market
 
 **How much does Jayden Daniels' injury shift the Bears-Commanders point spread?**\
-`We talked to a sportsbook director to understand how Jaden Daniels' injury impacts betting odds ahead of the Commanders Week 8 matchup.`\
+`We talked to a sportsbook director to understand how Jaden Daniels' injury impacts betting odds ahead of the Commanders' Week 8 matchup.`\
 https://nytimes.com/athletic/5863951/2024/10/22/jayden-daniels-injury-commanders-bears-spread-shift/
 
 **WNBA Finals Game 5 was most-watched Finals game in 25 years**\
