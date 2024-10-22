@@ -1,5 +1,5 @@
 **Time and Tide Sets Sail Near Madison Square Park**\
-`Soso’s offers New York-style tavern fare, Mesa Madra bakes Latin American treats and more restaurant news.`\
+`Soso’s offers New York-style tavern fare, Masa Madre bakes Latin American treats and more restaurant news.`\
 https://nytimes.com/2024/10/22/dining/time-and-tide-madison-square-park.html
 
 **In the Art Biennale’s Shadow, Venice Celebrates Music, Too**\
