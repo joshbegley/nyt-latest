@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-inj
 `\
 https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
 
+**Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
+`Both Godwin and Evans left Monday night's loss to the Ravens with injuries
+`\
+https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
+
 **Yohe mailbag: Crosby and Malkin's greatest hits**\
 `In honor of their recent accomplishments, let's remember the best Crosby and Malkin moments on and off the ice.`\
 https://nytimes.com/athletic/5855706/2024/10/22/penguins-sidney-crosby-evgeni-malkin-career-highlights/
