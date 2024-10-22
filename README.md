@@ -1,3 +1,7 @@
+**America’s Flooding Problem**\
+`We explain how the country is responding in three different ways to disasters.`\
+https://nytimes.com/2024/10/22/briefing/americas-flooding-problem.html
+
 **Mets exceeded all expectations in 2024. Now the bar is higher**\
 `Increased expectations mean the Mets must set themselves up to finish the job once they reach the postseason.`\
 https://nytimes.com/athletic/5861340/2024/10/22/mets-david-stearns-offseason-expectations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860623/2024/10/22/nfl-qb-stock-report-rankings-rus
 **Mets free-agent notes on Pete Alonso, Jesse Winker, Sean Manaea and more**\
 `Winker is among the looming free agents who carry positive vibes into the offseason: "I said it was a dream come true and it really was."`\
 https://nytimes.com/athletic/5861667/2024/10/22/mets-free-agent-pete-alonso-jesse-winker/
-
-**Ubben: Colorado and Deion Sanders are winning in a way few saw coming — quietly**\
-`Thanks largely to an improved defense, Colorado is playing its best under Sanders and closing in on bowl eligibility.`\
-https://nytimes.com/athletic/5862145/2024/10/22/deion-sanders-colorado-football-bowl/
 
