@@ -1,3 +1,11 @@
+**Trump calls Harris ‘lazy’ as the campaigns trade jabs about who is more tired.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election/trump-calls-harris-lazy-as-the-campaigns-trade-jabs-about-who-is-more-tired
+
+**Kurt Olsen Helped Trump Fight His 2020 Defeat. Trump Is Talking to Him Again.**\
+`Mr. Olsen, a lawyer, has spoken to the former president multiple times in recent weeks. He’s insisted it’s important to make legal demands concerning voting-machine data before Election Day.`\
+https://nytimes.com/2024/10/22/us/politics/kurt-olsen-trump-2020-lawyer.html
+
 **The Athletic MLB Reader Poll: Is a Dodgers-Yankees World Series good or bad for baseball?**\
 `Bring your nuanced debate or your pure spite, whatever works. Our poll will stay open until Thursday, Oct. 24.`\
 https://nytimes.com/athletic/5864360/2024/10/22/mlb-reader-poll-2024-world-series/
