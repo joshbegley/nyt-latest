@@ -1,3 +1,7 @@
+**Trump Media’s Soaring Share Price Masks Internal Strife**\
+`Employees have complained to the board about hiring and management practices at the parent company of Truth Social, which serves as the main online megaphone for former President Donald Trump.`\
+https://nytimes.com/2024/10/22/business/trump-media-truth-social-nunes.html
+
 **What Another Year of Hoping for the Mets Gave to Me**\
 `The Mets have always had some good players. This time, they have a good organization.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/mets-lose-world-series
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/dining/mattar-paneer-dinner-recipes.html
 **The Hard-Shell Taco Deserves Your Respect**\
 `The version that once thrived at the midcentury fast food stands of Los Angeles is now a regional treasure.`\
 https://nytimes.com/2024/10/22/dining/hard-shell-tacos-los-angeles.html
-
-**The Windup: Goliath vs. Goliath World Series**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5863632/2024/10/22/dodgers-yankees-world-series-juan-soto-the-windup/
 
