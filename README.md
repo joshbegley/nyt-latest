@@ -1,3 +1,7 @@
+**Nottingham Forest are thriving**\
+`Up to eighth in the Premier League after victory over Crystal Palace, Nuno Espirito Santo's side have rarely looked more accomplished`\
+https://nytimes.com/athletic/5862271/2024/10/22/nottingham-forest-crystal-palace-wood-henderson-anderson/
+
 **Late Night Mocks Trump for His McDonald’s Photo Op**\
 `The ex-president’s stint at the drive-through window was “blue-collar drag,” said Stephen Colbert. “But with more makeup.”`\
 https://nytimes.com/2024/10/22/arts/television/late-night-trump-mcdonalds.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5859967/2024/10/22/liverpool-closing-out-games/
 **Van Nistelrooy, Hake and the roles of Ten Hag's Manchester United coaching staff**\
 `A look at the coaches working with Erik ten Hag after a change of backroom staff in the summer - and what their roles are`\
 https://nytimes.com/athletic/5860510/2024/10/22/van-nistelrooy-hake-ten-hag-coaching-roles/
-
-**Arsenal Today: Shakhtar, Zinchenko, Wilshere and happy birthday Arsene!**\
-`Welcome to Arsenal Today, your morning digest of what's going on at the club and what is piqueing out writers' interests`\
-https://nytimes.com/athletic/5860959/2024/10/22/arsenal-today-october-22/
 
