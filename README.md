@@ -1,3 +1,11 @@
+**Could Polish American Voters Swing the Election?**\
+`Voters with Eastern European backgrounds could be crucial in Pennsylvania, Michigan and Wisconsin.`\
+https://nytimes.com/2024/10/22/us/politics/christine-baranski-harris-polish-american-voters.html
+
+**Biden Mocks Trump’s ‘Concept of a Plan’ to Replace Obamacare**\
+`During a visit to New Hampshire to discuss the cost of prescription drugs, President Biden warned that a second Trump presidency could lead millions of people to lose health care.`\
+https://nytimes.com/video/us/elections/100000009776814/biden-drug-costs.html
+
 **Artist Sues Town for Canceling Residency Over Her Views on Gaza War**\
 `The American Civil Liberties Union has sued Vail, Colo., on behalf of a Native American artist who painted a work entitled “G is for Genocide.”`\
 https://nytimes.com/2024/10/22/us/vail-artist-gaza-war.html
@@ -18,7 +26,7 @@ https://nytimes.com/live/2024/10/22/opinion/thepoint/dimon-gates-trump-harris
 `Wrexham were were unable to mark the 160th anniversary of their first ever match with a win as Huddersfield earned a hard-fought point`\
 https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
 
-**If Trump Wins, Who, or What, Will Liberals Blame?**\
+**There’s One Main Culprit if Donald Trump Wins**\
 `They should look at themselves and the way they practice politics.`\
 https://nytimes.com/2024/10/22/opinion/trump-kamala-harris-democrats.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
 **Nestor Cortes knows his likely role: Shohei Ohtani stopper**\
 `Cortes has been sidelined this postseason with a flexor strain. He could be activated for the World Series.`\
 https://nytimes.com/athletic/5864934/2024/10/22/yankees-nestor-cortes-shohei-ohtani-world-series-matchup/
-
-**Vance Vows an End to Programs for Legal Immigrants**\
-`Hundreds of thousands of immigrants live and work in the United States through programs that give them temporary legal status. In the border state of Arizona, JD Vance vowed they would stop.`\
-https://nytimes.com/2024/10/22/us/politics/vance-trump-legal-immigrants.html
-
-**Guardians postmortem: Notes on Shane Bieber, Josh Naylor, Stephen Vogt and more**\
-`“We need this to be a building block,” Guardians president Chris Antonetti said. “We want to take a step forward next year.”`\
-https://nytimes.com/athletic/5864558/2024/10/22/guardians-postmortem-shane-bieber-josh-naylor-stephen-vogt/
 
