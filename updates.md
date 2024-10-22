@@ -1,3 +1,15 @@
+**Thelma Mothershed Wair, Little Rock Nine Student, Dies at 83**\
+`In 1957, Mrs. Mothershed Wair and eight other Black students enrolled at Little Rock Central High School. They faced racist mobs and were escorted by federal troops.`\
+https://nytimes.com/2024/10/21/us/thelma-mothershed-wair-dead.html
+
+**End of the Line, Maybe**\
+`Barbara Lin finds a creative way to get to the bottom of things.`\
+https://nytimes.com/2024/10/21/crosswords/daily-puzzle-2024-10-22.html
+
+**Understanding the BRICS Summit**\
+`The group, which seeks to rebalance the global order away from the West, will meet on Tuesday. Here’s a primer.`\
+https://nytimes.com/2024/10/21/world/brics-summit-countries-goals.html
+
 **Dock Tragedy Strikes a Georgia Community Fighting to Protect Its Culture**\
 `The deaths of seven people on Sapelo Island have brought to the fore longstanding frustrations among its Gullah Geechee community.`\
 https://nytimes.com/2024/10/21/us/dock-collapse-sapelo-island-georgia.html
