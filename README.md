@@ -1,3 +1,7 @@
+**My game in my words: Dominic Thiem**\
+`The Austrian explains how he beat Rafael Nadal and his tactics against Novak Djokovic – and reveals his most underrated shot`\
+https://nytimes.com/athletic/5837024/2024/10/22/dominic-thiem-tennis-highlights-best-shots/
+
 **Raptors should have two missions for 2024-25 season — be bad and be fun: Koreen**\
 `The Raptors can have it all: a losing and successful season. `\
 https://nytimes.com/athletic/5861350/2024/10/22/toronto-raptors-nba-2024-2025-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/opinion/election-fraud-voting-security.html
 **Throwing, running and lead blocking: Lamar Jackson is once again the star of the show**\
 `The two-time MVP accounted for 333 total yards and five touchdown passes as Baltimore extended its win streak to five games.`\
 https://nytimes.com/athletic/5862755/2024/10/22/ravens-win-buccaneers-lamar-jackson/
-
-**Yellen Rebukes Chinese Lending Practices in Call for Debt Relief**\
-`In an interview, the Treasury secretary also highlighted progress at the World Bank and the International Monetary Fund ahead of annual meetings this week.`\
-https://nytimes.com/2024/10/22/us/politics/janet-yellen-china-lending.html
 
