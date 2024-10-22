@@ -1,3 +1,7 @@
+**Blinken arrives in Israel in the latest U.S. push for a cease-fire in Gaza.**\
+`By Aaron Boxerman and Patrick Kingsley`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/blinken-israel-gaza-ceasefire
+
 **Raphinha addresses 'disrespectful' reaction following Williams saga**\
 `Raphinha has described some of the reaction he received following Barcelona&#8217;s summer pursuit of Nico Williams as &#8220;disrespectful&#8221;.`\
 https://nytimes.com/athletic/5863165/2024/10/22/raphinha-nico-williams-barcelona/

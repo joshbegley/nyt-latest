@@ -1,3 +1,7 @@
+**Blinken arrives in Israel in the latest U.S. push for a cease-fire in Gaza.**\
+`By Aaron Boxerman and Patrick Kingsley`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/blinken-israel-gaza-ceasefire
+
 **Raphinha addresses 'disrespectful' reaction following Williams saga**\
 `Raphinha has described some of the reaction he received following Barcelona&#8217;s summer pursuit of Nico Williams as &#8220;disrespectful&#8221;.`\
 https://nytimes.com/athletic/5863165/2024/10/22/raphinha-nico-williams-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/christine-boisson-dead.html
 **Acheampong frozen out by Chelsea until he signs new contract**\
 `Chelsea’s highly-rated teenage defender Josh Acheampong has been told he will not play for the club&#8217;s first team or development squad until he signs a new contract.`\
 https://nytimes.com/athletic/5861051/2024/10/22/josh-acheampong-chelsea-contract/
-
-**NBA Reliability Tiers: Tyrese Maxey, Lauri Markkanen and the Kawhi Leonard irony**\
-`You can't count on the stars in Tier 4 to be the best player for a contender this upcoming season. Who are they? `\
-https://nytimes.com/athletic/5852497/2024/10/22/nba-kawhi-leonard-tyrese-maxey-lauri-markkanen/
 
