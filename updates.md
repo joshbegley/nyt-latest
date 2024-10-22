@@ -1,3 +1,7 @@
+**Raiders rookie Brock Bowers' YAC secret? 'I just catch the ball and run with it'**\
+`Bowers' 47 catches through his first seven career games are the most in Raiders history and the most in NFL history by a tight end.`\
+https://nytimes.com/athletic/5861805/2024/10/22/brock-bowers-raiders-tight-end-record-yac/
+
 **Acheampong frozen out by Chelsea until he signs new contract**\
 `Chelsea’s highly-rated teenage defender Josh Acheampong has been told he will not play for the club&#8217;s first team or development squad until he signs a new contract.`\
 https://nytimes.com/athletic/5861051/2024/10/22/josh-acheampong-chelsea-contract/
