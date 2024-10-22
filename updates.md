@@ -1,3 +1,7 @@
+**Mets exceeded all expectations in 2024. Now the bar is higher**\
+`Increased expectations mean the Mets must set themselves up to finish the job once they reach the postseason.`\
+https://nytimes.com/athletic/5861340/2024/10/22/mets-david-stearns-offseason-expectations/
+
 **Can the Celtics repeat as champions? They'll have to rewrite recent history to do it**\
 `"Winning it multiple times and creating almost a dynasty, that’s hard to do," says Payton Pritchard of a championship. "That’s greatness."`\
 https://nytimes.com/athletic/5860923/2024/10/22/celtics-repeat-championship-rewrite-history/

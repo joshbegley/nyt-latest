@@ -1,3 +1,7 @@
+**Mets exceeded all expectations in 2024. Now the bar is higher**\
+`Increased expectations mean the Mets must set themselves up to finish the job once they reach the postseason.`\
+https://nytimes.com/athletic/5861340/2024/10/22/mets-david-stearns-offseason-expectations/
+
 **Can the Celtics repeat as champions? They'll have to rewrite recent history to do it**\
 `"Winning it multiple times and creating almost a dynasty, that’s hard to do," says Payton Pritchard of a championship. "That’s greatness."`\
 https://nytimes.com/athletic/5860923/2024/10/22/celtics-repeat-championship-rewrite-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5861667/2024/10/22/mets-free-agent-pete-alonso-jess
 **Ubben: Colorado and Deion Sanders are winning in a way few saw coming — quietly**\
 `Thanks largely to an improved defense, Colorado is playing its best under Sanders and closing in on bowl eligibility.`\
 https://nytimes.com/athletic/5862145/2024/10/22/deion-sanders-colorado-football-bowl/
-
-**Packers new DC Jeff Hafley makes big impact, appears to be right choice by Matt LaFleur**\
-`LaFleur made the surprising decision to hire the Boston College head coach as his defensive coordinator, and it's looked good so far.`\
-https://nytimes.com/athletic/5861322/2024/10/22/packers-jeff-hafley-defensive-coordinator-impact/
 
