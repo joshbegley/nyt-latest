@@ -1,3 +1,11 @@
+**West Ham's Kudus charged by FA following red card**\
+`Mohammed Kudus faces the possibility of further punishment after the Football Association (FA) charged the West Ham United forward following his red card at Tottenham Hotspur.`\
+https://nytimes.com/athletic/5854961/2024/10/22/mohammed-kudus-red-card-ban-how-long/
+
+**Diego Forlan: Man Utd striker, Golden Ball winner, and pro tennis player - at 45**\
+`Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
+https://nytimes.com/athletic/5683356/2024/10/22/diego-forlan-interview-tennis-football-manchester-united-uruguay/
+
 **Ex-Man Utd and Uruguay footballer Diego Forlan to make professional tennis debut**\
 `Diego Forlan, the former Manchester United, Uruguay, and Atletico Madrid footballer, will make his professional tennis debut this November at the age of 45.`\
 https://nytimes.com/athletic/5863104/2024/10/22/diego-forlan-tennis-uruguay/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5861805/2024/10/22/brock-bowers-raiders-tight-end-r
 **A Giants fan's guide to rooting for the Yankees in the World Series**\
 `The Dodgers are four wins away from a title and the only thing standing in their way is every Giants fan's new favorite team, the Yankees.`\
 https://nytimes.com/athletic/5860839/2024/10/22/sf-giants-fans-yankees-world-series-guide/
-
-**Tell us your wackiest Fantasy Premier League sleuthing stories**\
-`We want to know the lengths you've gone to in order to gain an advantage in FPL`\
-https://nytimes.com/athletic/5863070/2024/10/22/fantasy-premier-league-fpl-research-investigation/
-
-**Weekly Student News Quiz: Peace Prize, Europa Clipper, W.N.B.A. Title**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/10/22/learning/22StudentNewsQuiz.html
 
