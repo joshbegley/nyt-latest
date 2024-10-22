@@ -1,3 +1,7 @@
+**You’re Being Lied To About Voter Fraud. Here’s the Truth.**\
+`Widespread cheating at the polls is a myth. So what are election deniers really after?`\
+https://nytimes.com/video/opinion/100000009768157/election-fraud-voting-security.html
+
 **Kyler Murray's TD romp leads Cardinals to MNF win over Chargers**\
 `Murray has done this before. Called his shot. Making it clear that he knows what is about to happen before everyone else.`\
 https://nytimes.com/athletic/5862741/2024/10/22/cardinals-kyler-murray-defeat-chargers/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah
 **Nottingham Forest are thriving**\
 `Up to eighth in the Premier League after victory over Crystal Palace, Nuno Espirito Santo's side have rarely looked more accomplished`\
 https://nytimes.com/athletic/5862271/2024/10/22/nottingham-forest-crystal-palace-wood-henderson-anderson/
-
-**Late Night Mocks Trump for His McDonald’s Photo Op**\
-`The ex-president’s stint at the drive-through window was “blue-collar drag,” said Stephen Colbert. “But with more makeup.”`\
-https://nytimes.com/2024/10/22/arts/television/late-night-trump-mcdonalds.html
 
