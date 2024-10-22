@@ -1,3 +1,7 @@
+**Northern Ireland vs Belarus set for Belfast as planned despite visa concerns**\
+`Uncertainty remains over the venue for Northern Ireland’s home game against Belarus next month but all parties are working towards the fixture being played in Belfast as planned.`\
+https://nytimes.com/athletic/5860312/2024/10/22/northern-ireland-belarus-nations-league/
+
 **The numbers behind Crystal Palace's joint-worst start to a Premier League season**\
 `Oliver Glasner tweaked his formation and tactics against Nottingham Forest but fixing his team's numerous problems is proving difficult`\
 https://nytimes.com/athletic/5862041/2024/10/22/crystal-palace-slow-start-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860959/2024/10/22/arsenal-today-october-22/
 **Iling-Junior's journey from Chelsea to Serie A and Villa, by those who know him**\
 `Iling-Junior has come a long way from the park pitches of north London - he could face his parent club Aston Villa now he's at Bologna`\
 https://nytimes.com/athletic/5695445/2024/10/22/samuel-iling-juniors-journey-from-chelsea-to-serie-a-and-aston-villa-by-those-who-know-him/
-
-**Inside Newcastle Q&A: Guimaraes as captain, Longstaff's positive impact, and is Howe under pressure?**\
-`Chris Waugh answers subscribers questions about Newcastle - from their January transfer-window plans to what's going on with Joe Willock`\
-https://nytimes.com/athletic/5859635/2024/10/22/inside-newcastle-qa-guimaraes-longstaff-willock-howe-almiron-murphy/
 
