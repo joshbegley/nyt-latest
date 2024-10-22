@@ -1,3 +1,19 @@
+**Embiid, George ruled out for 76ers' season opener vs. Bucks**\
+`Embiid has progressed well and is ramping up toward a return after missing much of the preseason with left knee maintenance.`\
+https://nytimes.com/athletic/5863906/2024/10/22/sixers-joel-embiid-paul-george-out-season-opener/
+
+**U.S. Agrees to Give Ukraine Millions to Build More Long-Range Drones**\
+`The move, confirmed by a Pentagon official, signifies a change in U.S. policy aimed at shoring up Ukraine’s ability to fight the war against Russia with its own weapons.`\
+https://nytimes.com/2024/10/22/world/europe/us-ukraine-aid-long-range-drones.html
+
+**Has Notre Dame found an identity? Final thoughts on Georgia Tech and what's next**\
+`Notre Dame is re-entering the national conversation at 6-1 before a ranked matchup with Navy. Have the Irish learned how to handle success?`\
+https://nytimes.com/athletic/5863956/2024/10/22/notre-dame-riley-leonard-georgia-tech/
+
+**Israel Says Seven People Planned to Carry Out Killings in Israel on Behalf of Iran**\
+`The suspects planned to assassinate two people, a senior Israeli scientist and the mayor of a large Israeli city, authorities said.`\
+https://nytimes.com/2024/10/22/world/middleeast/israel-arrests-iran-spying.html
+
 **OpenAI Hires Former White House Official as Its Chief Economist**\
 `Aaron Chatterji was chief economist at the Commerce Department under President Biden and served on President Obama’s Council of Economic Advisers.`\
 https://nytimes.com/2024/10/22/technology/openai-chief-economist.html
