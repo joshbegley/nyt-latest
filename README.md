@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5858023/2024/10/22/darrell-green-jersey-retirement-
 `Detroit OC Ben Johnson and Jared Goff were a step ahead of the Vikings' defensive maestro while Jim Schwartz's Browns slowed the Bengals.`\
 https://nytimes.com/athletic/5859622/2024/10/22/nfl-week-7-worst-best-coaching-decisions-nguyen/
 
-**India Says It Reached Border Deal With China That Could Ease Hostilities**\
+**India and China Reach Border Deal That Could Ease Hostilities**\
 `Four years ago, several soldiers from both sides were killed in a bloody melee. Any thaw between the countries could have global implications.`\
 https://nytimes.com/2024/10/22/world/asia/india-china-border.html
 
