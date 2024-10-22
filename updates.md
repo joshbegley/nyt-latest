@@ -1,3 +1,19 @@
+**Acheampong frozen out by Chelsea until he signs new contract**\
+`Chelsea’s highly-rated teenage defender Josh Acheampong has been told he will not play for the club&#8217;s first team or development squad until he signs a new contract.`\
+https://nytimes.com/athletic/5861051/2024/10/22/josh-acheampong-chelsea-contract/
+
+**NBA Reliability Tiers: Tyrese Maxey, Lauri Markkanen and the Kawhi Leonard irony**\
+`You can't count on the stars in Tier 4 to be the best player for a contender this upcoming season. Who are they? `\
+https://nytimes.com/athletic/5852497/2024/10/22/nba-kawhi-leonard-tyrese-maxey-lauri-markkanen/
+
+**Browns signing Zappe off Chiefs practice squad amid QB injuries**\
+`Whether the Browns need an emergency option or an immediate No. 2, Zappe makes sense given his experience and the lack of true free agents.`\
+https://nytimes.com/athletic/5863080/2024/10/22/bailey-zappe-browns-quarterback/
+
+**Guardiola 'never been so angry' as after Stones, Walker injuries for England**\
+`Pep Guardiola says he had “never been so angry” after John Stones and Kyle Walker returned from England duty injured during last season’s domestic run-in.`\
+https://nytimes.com/athletic/5863113/2024/10/22/pep-guardiola-manchester-city-injuries/
+
 **Tell us your wackiest Fantasy Premier League sleuthing stories**\
 `We want to know the lengths you've gone to in order to gain an advantage in FPL`\
 https://nytimes.com/athletic/5863070/2024/10/22/fantasy-premier-league-fpl-research-investigation/
