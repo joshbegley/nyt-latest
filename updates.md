@@ -1,3 +1,7 @@
+**Glasgow to host 2026 Commonwealth Games**\
+`Glasgow will host the 2026 Commonwealth Games after the Australian state of Victoria pulled out of its planned staging of the event.`\
+https://nytimes.com/athletic/5862764/2024/10/22/commonwealth-games-glasgow-2026/
+
 **People Pleasing**\
 `Do you tend to prioritize others’ needs ahead of your own? When have you been able to stand up for yourself, even if it was hard?`\
 https://nytimes.com/2024/10/22/learning/people-pleasing.html
