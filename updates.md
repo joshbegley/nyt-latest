@@ -1,3 +1,7 @@
+**How Liverpool shrugged off 'mediocrity' and honed the art of closing out wins**\
+`After a nervous end to September's defeat of Wolves, Arne Slot's side have been clinical in managing the closing stages of victories`\
+https://nytimes.com/athletic/5859967/2024/10/22/liverpool-closing-out-games/
+
 **Abdallah Sima could be another striker that Brighton regret not giving a chance**\
 `The Senegalese striker is scoring for Brest in the Champions League but his chances of making it at the Amex look slim`\
 https://nytimes.com/athletic/5853145/2024/10/22/abdallah-sima-gyokeres-undav-brighton/

@@ -2,6 +2,10 @@
 `The Senegalese striker is scoring for Brest in the Champions League but his chances of making it at the Amex look slim`\
 https://nytimes.com/athletic/5853145/2024/10/22/abdallah-sima-gyokeres-undav-brighton/
 
+**How Liverpool shrugged off 'mediocrity' and honed the art of closing out wins**\
+`After a nervous end to September's defeat of Wolves, Arne Slot's side have been clinical in managing the closing stages of victories`\
+https://nytimes.com/athletic/5859967/2024/10/22/liverpool-closing-out-games/
+
 **Van Nistelrooy, Hake and the roles of Ten Hag's Manchester United coaching staff**\
 `A look at the coaches working with Erik ten Hag after a change of backroom staff in the summer - and what their roles are`\
 https://nytimes.com/athletic/5860510/2024/10/22/van-nistelrooy-hake-ten-hag-coaching-roles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860527/2024/10/22/champions-league-minnows-grim-re
 **Tuesday Briefing**\
 `Two weeks to the U.S. election.`\
 https://nytimes.com/2024/10/22/briefing/election-trump-harris-lebanon-israel-moldova.html
-
-**Is Nuri Sahin the right coach to reestablish Borussia Dortmund's identity?**\
-`The new head coach has Dortmund in his DNA. But he's also inexperienced at a club experiencing great change. Is a happy ending likely?`\
-https://nytimes.com/athletic/5850751/2024/10/22/can-nuri-sahin-reestablish-borussia-dortmunds-identity/
 
