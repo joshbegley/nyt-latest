@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5861673/2024/10/22/oilers-penalty-kill-mattias-janm
 `Parker Finn, the film’s writer and director, narrates a scene in which a pop star is chased through her apartment by evil dancers.`\
 https://nytimes.com/2024/10/22/movies/smile-2-clip.html
 
+**The stat that shows Victor Wembanyama's current NBA trading card dominance**\
+`Even while Team USA basketball made headlines, NBA card collectors remained focused on Wembanyama `\
+https://nytimes.com/athletic/5861232/2024/10/22/victor-wembanyama-cards-psa/
+
 **‘Smile 2’ | Anatomy of a Scene**\
 `Parker Finn narrates a sequence from “Smile 2,” starring Naomi Scott.`\
 https://nytimes.com/video/movies/100000009774005/smile-2-anatomy-of-a-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860855/2024/10/22/ravens-buccaneers-lamar-jackson-
 **America’s Flooding Problem**\
 `We explain how the country is responding in three different ways to disasters.`\
 https://nytimes.com/2024/10/22/briefing/americas-flooding-problem.html
-
-**Mets exceeded all expectations in 2024. Now the bar is higher**\
-`Increased expectations mean the Mets must set themselves up to finish the job once they reach the postseason.`\
-https://nytimes.com/athletic/5861340/2024/10/22/mets-david-stearns-offseason-expectations/
 
