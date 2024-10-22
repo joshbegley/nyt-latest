@@ -1,3 +1,15 @@
+**Tell us your wackiest Fantasy Premier League sleuthing stories**\
+`We want to know the lengths you've gone to in order to gain an advantage in FPL`\
+https://nytimes.com/athletic/5863070/2024/10/22/fantasy-premier-league-fpl-research-investigation/
+
+**Weekly Student News Quiz: Peace Prize, Europa Clipper, W.N.B.A. Title**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/10/22/learning/22StudentNewsQuiz.html
+
+**Chargers' loss to Cardinals was about far more than late-game officiating**\
+`The Chargers had 395 yards of offense. Justin Herbert threw for 349, his most in more than a year. The Chargers didn't score a TD.`\
+https://nytimes.com/athletic/5862777/2024/10/22/chargers-cardinals-loss-officiating-harbaugh-herbert/
+
 **Here’s the latest in the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/heres-the-latest-in-the-presidential-race

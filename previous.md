@@ -1,3 +1,11 @@
+**Tell us your wackiest Fantasy Premier League sleuthing stories**\
+`We want to know the lengths you've gone to in order to gain an advantage in FPL`\
+https://nytimes.com/athletic/5863070/2024/10/22/fantasy-premier-league-fpl-research-investigation/
+
+**Weekly Student News Quiz: Peace Prize, Europa Clipper, W.N.B.A. Title**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/10/22/learning/22StudentNewsQuiz.html
+
 **Here’s the latest in the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/heres-the-latest-in-the-presidential-race
@@ -27,14 +35,6 @@ https://nytimes.com/2024/10/22/theater/connelly-theater-catholic-archdiocese.htm
 https://nytimes.com/athletic/5860879/2024/10/22/mohammed-bin-salman-amanda-staveley-newcastle/
 
 **Chargers' loss to Cardinals was about far more than late-game officiating**\
-`The Chargers had 395 yards of offense. Justin Herbert threw for 349, his most in more than a calendar year. The Chargers didn't score a TD.`\
+`The Chargers had 395 yards of offense. Justin Herbert threw for 349, his most in more than a year. The Chargers didn't score a TD.`\
 https://nytimes.com/athletic/5862777/2024/10/22/chargers-cardinals-loss-officiating-harbaugh-herbert/
-
-**49ers minutia minute: Jordan Mason facing loaded boxes; why Brock Purdy's hoofing it**\
-`At linebacker, Dee Winters had his best game of the season while Kyle Shanahan provided a rough timeline for Dre Greenlaw's return.`\
-https://nytimes.com/athletic/5861483/2024/10/22/49ers-chiefs-snap-counts-purdy-mason/
-
-**Bo Nix's feet have been an asset for the Broncos and a thorn in the pocket**\
-`Nix has rushed for 255 yards, fourth most among all NFL quarterbacks, but his footwork in the pocket has faltered at times.`\
-https://nytimes.com/athletic/5861214/2024/10/22/bo-nixs-broncos-feet-rookie/
 
