@@ -1,3 +1,7 @@
+**Stan Asofsky, Vociferous Courtside Superfan of the Knicks, Dies at 87**\
+`For decades, beginning in 1959, he was a regular presence at Madison Square Garden (in two locations), befriending players and heckling opposing players and refs.`\
+https://nytimes.com/2024/10/22/sports/basketball/stan-asofsky-dead.html
+
 **Fall Fashion in Full Bloom **\
 `Knits, layers and other trappings of the season blended with vibrant bouquets at a London flower market.`\
 https://nytimes.com/card/2024/10/22/style/london-fashion-columbia-road-flower-market
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863818/2024/10/22/fantasy-football-market-share-re
 **LeBron 'won't take it for granted' as year 22 begins with Bronny as teammate**\
 `If the Lakers play Bronny with LeBron, it will be the first time in NBA history a father and son appear together in a game that counts.`\
 https://nytimes.com/athletic/5864334/2024/10/22/bronny-james-lebron-lakers-timberwolves/
-
-**Bengals mailbag: Submit your questions for beat reporter Paul Dehner Jr.**\
-`Let us know what's on your mind ahead of Sunday's matchup with the Eagles.`\
-https://nytimes.com/athletic/5864378/2024/10/22/bengals-mailbag-submit-questions-week-8/
 

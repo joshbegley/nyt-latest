@@ -1,3 +1,7 @@
+**Stan Asofsky, Vociferous Courtside Superfan of the Knicks, Dies at 87**\
+`For decades, beginning in 1959, he was a regular presence at Madison Square Garden (in two locations), befriending players and heckling opposing players and refs.`\
+https://nytimes.com/2024/10/22/sports/basketball/stan-asofsky-dead.html
+
 **Fall Fashion in Full Bloom **\
 `Knits, layers and other trappings of the season blended with vibrant bouquets at a London flower market.`\
 https://nytimes.com/card/2024/10/22/style/london-fashion-columbia-road-flower-market
