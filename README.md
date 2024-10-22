@@ -1,3 +1,11 @@
+**Panthers extending coach Paul Maurice after championship season**\
+`The new contract will take effect starting in 2025-26 after Maurice's existing deal expires at the end of this season.`\
+https://nytimes.com/athletic/5864802/2024/10/22/paul-maurice-panthers-extension/
+
+**Blinken Urges Netanyahu to Seek Truces in Gaza and Lebanon**\
+`The U.S. secretary of state, visiting Israel, said the killing of Hamas’s leader last week could create an opening for peace, and he pushed the Israeli prime minister to allow more aid into Gaza.`\
+https://nytimes.com/2024/10/22/world/middleeast/blinken-netanyahu-cease-fire.html
+
 **Commanders CB Kevon Seymour suspended 6 games for PES violation**\
 `Seymour will not be eligible for reinstatement until Dec. 2, following Washington's Week 13 home game versus the Tennessee Titans.`\
 https://nytimes.com/athletic/5864738/2024/10/22/commanders-kevon-seymour-suspension/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/kurt-olsen-trump-2020-lawyer.html
 **Britain and Germany Agree on New Defense Pact as Russia Threat Rises**\
 `The two governments said they will coordinate more on defense, with British and German troops conducting joint military exercises on NATO’s eastern border.`\
 https://nytimes.com/2024/10/22/world/europe/britain-and-germany-agree-on-new-defense-pact-as-russia-threat-rises.html
-
-**Megan Thee Stallion and Sarah Jessica Parker Honored at Golden Heart Awards**\
-`God’s Love We Deliver drew comedians, fashion executives and restaurateurs to its annual benefit at the Cathedral Church of St. John the Divine on Monday.`\
-https://nytimes.com/2024/10/22/style/golden-heart-awards-megan-thee-stallion.html
-
-**Georgia Supreme Court rejects efforts to reinstate new state election rules.**\
-`By Nick Corasaniti`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election/georgia-supreme-court-rejects-efforts-to-reinstate-new-state-election-rules
 
