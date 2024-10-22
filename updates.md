@@ -1,3 +1,11 @@
+**Wilshere leaving Arsenal to join Norwich as first-team coach**\
+`Jack Wilshere is leaving his role as Arsenal Under-18 head coach to take up a first-team coaching position at Norwich City.`\
+https://nytimes.com/athletic/5859680/2024/10/22/jack-wilshere-norwich-arsenal-leave/
+
+**This Theater Was a Haven for Bold Art. Then the Archdiocese Intervened.**\
+`The Connelly Theater has suspended operations after its church landlord began more carefully scrutinizing show scripts and its general manager resigned.`\
+https://nytimes.com/2024/10/22/theater/connelly-theater-catholic-archdiocese.html
+
 **Explained: What Staveley's 'MBS' WhatsApps mean for Newcastle**\
 `What do revelations around former Newcastle shareholder's correspondence mean for the Premier League - if anything?`\
 https://nytimes.com/athletic/5860879/2024/10/22/mohammed-bin-salman-amanda-staveley-newcastle/
