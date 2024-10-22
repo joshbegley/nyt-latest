@@ -1,3 +1,7 @@
+**Calafiori injury 'not great news', Saka 'unlikely' to be fit for Liverpool**\
+`Mikel Arteta says the injury sustained by left-back Riccardo Calafiori during Arsenal&#8217;s victory over Shakhtar Donetsk is &#8220;not great news&#8221;, while Bukayo Saka is &#8220;unlikely&#8221; to be available against Liverpool on Sunday.`\
+https://nytimes.com/athletic/5864835/2024/10/22/calafiori-saka-arsenal-injury/
+
 **Trump calls Harris ‘lazy’ as the campaigns trade jabs about who is more tired.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/trump-calls-harris-lazy-as-the-campaigns-trade-jabs-about-who-is-more-tired
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864471/2024/10/22/ex-penn-state-players-jameial-ly
 **More Republicans Appear to Be Voting Early, Despite Trump’s Mixed Messages**\
 `In 2020, Donald Trump convinced his supporters that anything but a vote cast in person on Election Day could not be trusted — and lost. In response, Republicans shifted their stance.`\
 https://nytimes.com/2024/10/22/us/politics/trump-republicans-early-voting.html
-
-**E. Coli Outbreak Linked to McDonald’s Quarter Pounders**\
-`The C.D.C. said that nearly 50 people had become ill and one person had died from the deadly bacteria, which the agency tied to an ingredient in one of the fast food chain’s burger items.`\
-https://nytimes.com/2024/10/22/health/ecoli-outbreak-mcdonalds-hamburgers.html
 

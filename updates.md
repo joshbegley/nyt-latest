@@ -1,3 +1,7 @@
+**Calafiori injury 'not great news', Saka 'unlikely' to be fit for Liverpool**\
+`Mikel Arteta says the injury sustained by left-back Riccardo Calafiori during Arsenal&#8217;s victory over Shakhtar Donetsk is &#8220;not great news&#8221;, while Bukayo Saka is &#8220;unlikely&#8221; to be available against Liverpool on Sunday.`\
+https://nytimes.com/athletic/5864835/2024/10/22/calafiori-saka-arsenal-injury/
+
 **Trump calls Harris ‘lazy’ as the campaigns trade jabs about who is more tired.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/trump-calls-harris-lazy-as-the-campaigns-trade-jabs-about-who-is-more-tired
