@@ -1,3 +1,11 @@
+**Vatican and China Extend Contentious Agreement on Naming Catholic Bishops**\
+`Critics argue the pact legitimizes China’s control over church affairs, while defenders say it helps support Catholics faithful to the Vatican in the Communist country.`\
+https://nytimes.com/2024/10/22/world/europe/vatican-china-catholic-bishops.html
+
+**Putin, Fighting Pariah Status, Welcomes Xi and Other Leaders to Russia**\
+`The Russian leader wants cast himself as a global statesman even as the U.S. and its Western allies try to isolate him.`\
+https://nytimes.com/2024/10/22/world/asia/putin-brics-summit-xi-modi.html
+
 **SMU star tight end RJ Maryland out for season with knee injury**\
 `Maryland, who leads SMU in receptions, receiving yards and touchdown catches, has been a key part of the Mustangs hot start in the ACC.`\
 https://nytimes.com/athletic/5863822/2024/10/22/smu-mustangs-football-acc-rj-maryland-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/business/mike-jeffries-arrested-sex-trafficking-a
 **Nearly 30 People Still Missing in North Carolina After Helene**\
 `The number is down from an estimate last week that there were 92 missing people after the storm hit western North Carolina in September.`\
 https://nytimes.com/2024/10/22/us/helene-north-carolina-missing.html
-
-**Blues sign Jake Neighbours to 2-year, $7.5 million extension**\
-`Neighbours' new contract will begin at the start of the 2025-26 season, and he will remain an RFA when the deal expires.`\
-https://nytimes.com/athletic/5863735/2024/10/22/blues-jake-neighbours-extension-analysis/
-
-**The Harris Team Tries to Tether Trump to Project 2025**\
-`A television ad conveys a key part of Kamala Harris’s closing argument: that her rival is a right-wing authoritarian who will make life less affordable and threaten access to abortion.`\
-https://nytimes.com/2024/10/22/us/politics/harris-ad-trump-project-2025.html
 
