@@ -1,3 +1,11 @@
+**The Election Has Taken Over TikTok. Here’s What It Looks Like.**\
+`Tens of thousands of videos are posted to TikTok each week about the presidential election, including dances set to songs made from speech snippets, comedic impersonations, pranks and even news commentary.`\
+https://nytimes.com/interactive/2024/10/21/business/media/2024-election-tiktok-trump-harris.html
+
+**Tracking Tropical Storm Kristy**\
+`See the likely path and wind arrival times for Kristy.`\
+https://nytimes.com/interactive/2024/10/21/weather/kristy-map-path-tracker.html
+
 **Would Harris’s Expanded Child Tax Credit Be Worth the Cost?**\
 `Some Republicans, including JD Vance, are also on board.`\
 https://nytimes.com/interactive/2024/10/21/us/elections/harris-child-tax-credit.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5862113/2024/10/21/raiders-sign-desmond-ridder/
 **Japanese American leaders criticize Trump for Jan. 6 comparison.**\
 `By Amy Qin`\
 https://nytimes.com/live/2024/10/21/us/harris-trump-election/japanese-american-leaders-criticize-trump-for-jan-6-comparison
-
-**Harris Wants Moderate Republicans to Back Her. Are They Out There?**\
-`It’s an unusual effort that reflects just how close the race is.`\
-https://nytimes.com/2024/10/21/us/politics/harris-republican-voters.html
-
-**Settler activists, encouraged by Israel’s far right, meet at the Gaza border for the Jewish holiday of Sukkot.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2024/10/21/world/israel-hamas-iran-lebanon/settler-activists-encouraged-by-israels-far-right-meet-at-the-gaza-border-for-the-jewish-holiday-of-sukkot
 
