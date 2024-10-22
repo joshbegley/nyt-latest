@@ -1,3 +1,15 @@
+**Son of Singapore’s First Prime Minister Says He Is Granted Asylum in Britain**\
+`Lee Hsien Yang accused his brother, a former prime minister, of persecuting him politically, inflaming the feud in Singapore’s first family.`\
+https://nytimes.com/2024/10/22/world/asia/singapore-lee-hsien-yang-political-asylum-uk.html
+
+**U.S. Charges Iranian Revolutionary Guards Official in Assassination Plot**\
+`The failed plot to kill Masih Alinejad, a human-rights activist, has already led to murder-for-hire charges against members of an Eastern European criminal organization with ties to Iran.`\
+https://nytimes.com/2024/10/22/nyregion/iran-assassination-plot-masih-alinejad.html
+
+**Blues sign Jake Neighbours to 2-year, $7.5 million extension**\
+`Neighbours' new contract will begin at the start of the 2025-26 season, and he will remain an RFA when the deal expires.`\
+https://nytimes.com/athletic/5863735/2024/10/22/blues-jake-neighbours-extension-analysis/
+
 **Time and Tide Sets Sail Near Madison Square Park**\
 `Soso’s offers New York-style tavern fare, Masa Madre bakes Latin American treats and more restaurant news.`\
 https://nytimes.com/2024/10/22/dining/time-and-tide-madison-square-park.html
