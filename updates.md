@@ -1,3 +1,7 @@
+**C.E.O. of Real Estate Giant Douglas Elliman Retires Amid Mounting Criticism**\
+`Howard Lorber faced calls to reduce his compensation, amid allegations of sexual assault by agents and plummeting stock prices.`\
+https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
+
 **With Election Looming, John Kelly Speaks Out on Trump**\
 `The former White House chief of staff and retired Marine general explained in a series of interviews why Americans should consider a candidate’s character.`\
 https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.html
