@@ -1,3 +1,11 @@
+**The numbers behind Crystal Palace's joint-worst start to a Premier League season**\
+`Oliver Glasner tweaked his formation and tactics against Nottingham Forest but fixing his team's numerous problems is proving difficult`\
+https://nytimes.com/athletic/5862041/2024/10/22/crystal-palace-slow-start-premier-league/
+
+**Word of the Day: holistic**\
+`This word has appeared in 176 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/22/learning/word-of-the-day-holistic.html
+
 **China Turns Up the Heat on Taiwan With Live-Fire Drills**\
 `The drills were the latest show of force by China, which claims Taiwan as its territory and has protested Western support for the island.`\
 https://nytimes.com/2024/10/22/world/asia/china-taiwan-live-fire-drills.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5695445/2024/10/22/samuel-iling-juniors-journey-fro
 **Inside Newcastle Q&A: Guimaraes as captain, Longstaff's positive impact, and is Howe under pressure?**\
 `Chris Waugh answers subscribers questions about Newcastle - from their January transfer-window plans to what's going on with Joe Willock`\
 https://nytimes.com/athletic/5859635/2024/10/22/inside-newcastle-qa-guimaraes-longstaff-willock-howe-almiron-murphy/
-
-**Zinchenko, a Ukraine icon and his complex history with Russia**\
-`The Arsenal player is one of Ukraine's most influential sporting figures, 10 years after a controversial decision to play in Russia`\
-https://nytimes.com/athletic/5795957/2024/10/22/oleksandr-zinchenko-ukraine-shakhtar-russia/
-
-**Hugo Viana: 'Superstar' sporting director, killer negotiator, Manchester City's future**\
-`Sporting's recent success both on the pitch and in the transfer market has been shaped by the man now heading to Manchester City`\
-https://nytimes.com/athletic/5853571/2024/10/22/hugo-viana-superstar-sporting-director-killer-negotiator-manchester-citys-future/
 
