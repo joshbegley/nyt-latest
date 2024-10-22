@@ -1,3 +1,7 @@
+**HSBC Overhauls Bank, Seeking to Balance China and the West**\
+`The restructuring of Europe’s largest lender comes as it looks to cut costs and navigate a diplomatic minefield across its sprawling operations.`\
+https://nytimes.com/2024/10/22/business/dealbook/hsbc-restructuring-china-us.html
+
 **Julius Randle-Chris Finch connection could ease Randle's transition to Timberwolves**\
 `"When I got to New Orleans, Finchy just gave me a tremendous amount of more confidence and opportunity," Randle said.`\
 https://nytimes.com/athletic/5861765/2024/10/22/julius-randle-chris-finch-connection-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854961/2024/10/22/mohammed-kudus-red-card-ban-how-
 **Diego Forlan: Man Utd striker, Golden Ball winner, and pro tennis player - at 45**\
 `Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
 https://nytimes.com/athletic/5683356/2024/10/22/diego-forlan-interview-tennis-football-manchester-united-uruguay/
-
-**Ex-Man Utd and Uruguay footballer Diego Forlan to make professional tennis debut**\
-`Diego Forlan, the former Manchester United, Uruguay, and Atletico Madrid footballer, will make his professional tennis debut this November at the age of 45.`\
-https://nytimes.com/athletic/5863104/2024/10/22/diego-forlan-tennis-uruguay/
 
