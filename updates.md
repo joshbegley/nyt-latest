@@ -1,3 +1,7 @@
+**Late Night Mocks Trump for His McDonald’s Photo Op**\
+`The ex-president’s stint at the drive-through window was “blue-collar drag,” said Stephen Colbert. “But with more makeup.”`\
+https://nytimes.com/2024/10/22/arts/television/late-night-trump-mcdonalds.html
+
 **Northern Ireland vs Belarus set for Belfast as planned despite visa concerns**\
 `Uncertainty remains over the venue for Northern Ireland’s home game against Belarus next month but all parties are working towards the fixture being played in Belfast as planned.`\
 https://nytimes.com/athletic/5860312/2024/10/22/northern-ireland-belarus-nations-league/
