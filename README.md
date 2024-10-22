@@ -1,3 +1,19 @@
+**Acheampong frozen out by Chelsea until he signs new contract**\
+`Chelsea’s highly-rated teenage defender Josh Acheampong has been told he will not play for the club&#8217;s first team or development squad until he signs a new contract.`\
+https://nytimes.com/athletic/5861051/2024/10/22/josh-acheampong-chelsea-contract/
+
+**NBA Reliability Tiers: Tyrese Maxey, Lauri Markkanen and the Kawhi Leonard irony**\
+`You can't count on the stars in Tier 4 to be the best player for a contender this upcoming season. Who are they? `\
+https://nytimes.com/athletic/5852497/2024/10/22/nba-kawhi-leonard-tyrese-maxey-lauri-markkanen/
+
+**Browns signing Zappe off Chiefs practice squad amid QB injuries**\
+`Whether the Browns need an emergency option or an immediate No. 2, Zappe makes sense given his experience and the lack of true free agents.`\
+https://nytimes.com/athletic/5863080/2024/10/22/bailey-zappe-browns-quarterback/
+
+**Guardiola 'never been so angry' as after Stones, Walker injuries for England**\
+`Pep Guardiola says he had “never been so angry” after John Stones and Kyle Walker returned from England duty injured during last season’s domestic run-in.`\
+https://nytimes.com/athletic/5863113/2024/10/22/pep-guardiola-manchester-city-injuries/
+
 **Tell us your wackiest Fantasy Premier League sleuthing stories**\
 `We want to know the lengths you've gone to in order to gain an advantage in FPL`\
 https://nytimes.com/athletic/5863070/2024/10/22/fantasy-premier-league-fpl-research-investigation/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5862947/2024/10/22/champions-league-style-barcelona
 **The Era of Outsized Market Rallies Could Be Over**\
 `The S&P 500’s huge gains over the past two years won’t be duplicated some analysts say, as a series of economic challenges piles up.`\
 https://nytimes.com/2024/10/22/business/dealbook/sp-500-rally-markets.html
-
-**Wilshere leaving Arsenal to join Norwich as first-team coach**\
-`Jack Wilshere is leaving his role as Arsenal Under-18 head coach to take up a first-team coaching position at Norwich City.`\
-https://nytimes.com/athletic/5859680/2024/10/22/jack-wilshere-norwich-arsenal-leave/
-
-**This Theater Was a Haven for Bold Art. Then the Archdiocese Intervened.**\
-`The Connelly Theater has suspended operations after its church landlord began more carefully scrutinizing show scripts and its general manager resigned.`\
-https://nytimes.com/2024/10/22/theater/connelly-theater-catholic-archdiocese.html
-
-**Explained: What Staveley's 'MBS' WhatsApps mean for Newcastle**\
-`What do revelations around former Newcastle shareholder's correspondence mean for the Premier League - if anything?`\
-https://nytimes.com/athletic/5860879/2024/10/22/mohammed-bin-salman-amanda-staveley-newcastle/
-
-**Chargers' loss to Cardinals was about far more than late-game officiating**\
-`The Chargers had 395 yards of offense. Justin Herbert threw for 349, his most in more than a year. The Chargers didn't score a TD.`\
-https://nytimes.com/athletic/5862777/2024/10/22/chargers-cardinals-loss-officiating-harbaugh-herbert/
 
