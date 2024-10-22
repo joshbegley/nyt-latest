@@ -1,3 +1,11 @@
+**Trump Courts Christian Voters, Days After Vulgar Remarks at a Rally**\
+`In a nearly hourlong speech before a crowd that included evangelical leaders, he claimed that only he could protect Christian voters. He did not mention abortion once.`\
+https://nytimes.com/2024/10/21/us/politics/trump-christian-voters.html
+
+**What Andrew Babalola's commitment means for Michigan**\
+`Babalola committed to Michigan over Stanford, Oklahoma, Missouri and Auburn.`\
+https://nytimes.com/athletic/5862591/2024/10/21/andrew-babalola-michigan-football-recruiting/
+
 **Jayland Walker’s Family Settles With Akron for $4.8 Million Over Police Shooting**\
 `The family had filed a lawsuit against the Ohio city and its police department after Mr. Walker was fatally shot by eight police officers in 2022.`\
 https://nytimes.com/2024/10/21/us/jayland-walker-family-akron-ohio-settlement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/21/crosswords/daily-puzzle-2024-10-22.html
 **Understanding the BRICS Summit**\
 `The group, which seeks to rebalance the global order away from the West, will meet on Tuesday. Here’s a primer.`\
 https://nytimes.com/2024/10/21/world/brics-summit-countries-goals.html
-
-**Dock Tragedy Strikes a Georgia Community Fighting to Protect Its Culture**\
-`The deaths of seven people on Sapelo Island have brought to the fore longstanding frustrations among its Gullah Geechee community.`\
-https://nytimes.com/2024/10/21/us/dock-collapse-sapelo-island-georgia.html
-
-**Nuggets re-sign 'heart and soul' Aaron Gordon to 4-year extension**\
-`"In many ways, Aaron is the heart and soul of the team," Nuggets general manager Calvin Booth told The Athletic after the agreement.`\
-https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extension/
 

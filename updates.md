@@ -1,3 +1,11 @@
+**Trump Courts Christian Voters, Days After Vulgar Remarks at a Rally**\
+`In a nearly hourlong speech before a crowd that included evangelical leaders, he claimed that only he could protect Christian voters. He did not mention abortion once.`\
+https://nytimes.com/2024/10/21/us/politics/trump-christian-voters.html
+
+**What Andrew Babalola's commitment means for Michigan**\
+`Babalola committed to Michigan over Stanford, Oklahoma, Missouri and Auburn.`\
+https://nytimes.com/athletic/5862591/2024/10/21/andrew-babalola-michigan-football-recruiting/
+
 **Jayland Walker’s Family Settles With Akron for $4.8 Million Over Police Shooting**\
 `The family had filed a lawsuit against the Ohio city and its police department after Mr. Walker was fatally shot by eight police officers in 2022.`\
 https://nytimes.com/2024/10/21/us/jayland-walker-family-akron-ohio-settlement.html
