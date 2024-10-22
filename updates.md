@@ -1,3 +1,15 @@
+**Bill Gates Privately Says He Has Backed Harris With $50 Million Donation**\
+`Mr. Gates said in a statement to The Times that “this election is different,” reflecting a significant change in his political strategy.`\
+https://nytimes.com/2024/10/22/us/elections/bill-gates-future-forward-kamala-harris.html
+
+**Judge Orders Giuliani to Forfeit Millions in Assets to Election Workers He Defamed**\
+`The onetime personal attorney to former President Donald J. Trump has seven days to turn over his Manhattan condo, a vintage Mercedes-Benz and other possessions.`\
+https://nytimes.com/2024/10/22/us/politics/giuliani-defamation-forfeit-assets.html
+
+**Ex-Penn State football players charged with rape, other sex crimes**\
+`Jameial Lyons and Kaveion Keys were placed on interim suspension in the summer and were later dismissed from the university. `\
+https://nytimes.com/athletic/5864471/2024/10/22/ex-penn-state-players-jameial-lyons-kaveion-keys-charges/
+
 **More Republicans Appear to Be Voting Early, Despite Trump’s Mixed Messages**\
 `In 2020, Donald Trump convinced his supporters that anything but a vote cast in person on Election Day could not be trusted — and lost. In response, Republicans shifted their stance.`\
 https://nytimes.com/2024/10/22/us/politics/trump-republicans-early-voting.html
