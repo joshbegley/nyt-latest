@@ -1,3 +1,11 @@
+**Here’s the latest in the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election/heres-the-latest-in-the-presidential-race
+
+**Election Live Updates: No Time to Waste for Harris and Trump With 2 Weeks to Go**\
+`Former President Donald J. Trump has campaign events on Tuesday in Florida and North Carolina. Vice President Kamala Harris will sit for an interview with NBC News.`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election
+
 **The Athletic FC: Top Euro leagues - a style guide, 'superstar' Viana, Liga match in Miami?**\
 `Today in TAFC: The contrasting styles of the top four European leagues, Manchester City's new boss and the prospect of a Liga match in Miami`\
 https://nytimes.com/athletic/5862947/2024/10/22/champions-league-style-barcelona-atletico/
