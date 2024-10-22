@@ -1,3 +1,7 @@
+**Leverkusen's Boniface to miss Brest game after car accident**\
+`Bayer Leverkusen forward Victor Boniface has been ruled out of the club’s visit to Brest in the Champions League having been injured in a car accident over the weekend.`\
+https://nytimes.com/athletic/5863821/2024/10/22/bayer-leverkusen-victor-boniface-car-accident/
+
 **Son of Singapore’s First Prime Minister Says He Is Granted Asylum in Britain**\
 `Lee Hsien Yang accused his brother, a former prime minister, of persecuting him politically, inflaming the feud in Singapore’s first family.`\
 https://nytimes.com/2024/10/22/world/asia/singapore-lee-hsien-yang-political-asylum-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/harris-ad-trump-project-2025.html
 **After a Deadly Strike Near Beirut, Ringtones Sound From Under Rubble**\
 `As search teams combed the ruins of residential buildings across from Rafik Hariri University Hospital just south of Lebanon’s capital, locals listened for signs of their loved ones in the wreckage.`\
 https://nytimes.com/2024/10/22/world/middleeast/israel-strike-beirut-hospital.html
-
-**Jamie Dimon Privately Supports Kamala Harris. He Just Won’t Say So.**\
-`JPMorgan’s chief executive has told associates of his support for the vice president, and his dislike of Donald Trump. But fearful of blowback, he won’t say it publicly.`\
-https://nytimes.com/2024/10/22/business/jamie-dimon-jpmorgan-harris-trump.html
 
