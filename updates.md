@@ -1,3 +1,11 @@
+**Vatican and China Extend Contentious Agreement on Naming Catholic Bishops**\
+`Critics argue the pact legitimizes China’s control over church affairs, while defenders say it helps support Catholics faithful to the Vatican in the Communist country.`\
+https://nytimes.com/2024/10/22/world/europe/vatican-china-catholic-bishops.html
+
+**Putin, Fighting Pariah Status, Welcomes Xi and Other Leaders to Russia**\
+`The Russian leader wants cast himself as a global statesman even as the U.S. and its Western allies try to isolate him.`\
+https://nytimes.com/2024/10/22/world/asia/putin-brics-summit-xi-modi.html
+
 **SMU star tight end RJ Maryland out for season with knee injury**\
 `Maryland, who leads SMU in receptions, receiving yards and touchdown catches, has been a key part of the Mustangs hot start in the ACC.`\
 https://nytimes.com/athletic/5863822/2024/10/22/smu-mustangs-football-acc-rj-maryland-injury/
