@@ -4,7 +4,7 @@ https://nytimes.com/2024/10/22/us/politics/election-2024-denial-congress.html
 
 **Harris will campaign in Texas to call attention to abortion rights.**\
 `By Nicholas Nehamas`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election/harris-texas-abortion-trump
+https://nytimes.com/2024/10/22/us/politics/harris-texas-abortion-trump.html
 
 **Astros to hire Tony Perezchica as new third-base coach: Source**\
 `Perezchica, 58, would replace Gary Pettis, who did not have his contract renewed after 10 years on Houston's staff.`\
