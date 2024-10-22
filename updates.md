@@ -1,3 +1,15 @@
+**India Says It Reached Border Deal With China That Could Ease Hostilities**\
+`Four years ago, several soldiers from both sides were killed in a bloody melee. Any thaw between the countries could have global implications.`\
+https://nytimes.com/2024/10/22/world/asia/india-china-border.html
+
+**Hamas’s Guerrilla Tactics in North Gaza Make It Hard to Defeat**\
+`Israel has decimated Hamas’s military wing, along with much of Gaza. But the group’s small-scale, hit-and-run approach poses a threat in the enclave’s north.`\
+https://nytimes.com/2024/10/22/world/middleeast/hamas-israel-gaza-guerrilla.html
+
+**Toni Kroos interview: ‘Nobody at Real Madrid was happy, but I wanted to leave like this’**\
+`The 34-year-old German was at the very top of his game when he decided to step away from football `\
+https://nytimes.com/athletic/5862829/2024/10/22/toni-kroos-real-madrid-germany-champions-league-retire/
+
 **24 big questions for the NBA season: Celtics repeat? Knicks challenge? Wemby's ceiling?**\
 `From Rookie of the Year to the first player traded to which new coach will make the greatest impact, we have questions (and answers).`\
 https://nytimes.com/athletic/5843372/2024/10/22/nba-biggest-questions-season-start-celtics-knicks-wembanyama/
