@@ -1,3 +1,7 @@
+**Commanders CB Kevon Seymour suspended 6 games for PES violation**\
+`Seymour will not be eligible for reinstatement until Dec. 2, following Washington's Week 13 home game versus the Tennessee Titans.`\
+https://nytimes.com/athletic/5864738/2024/10/22/commanders-kevon-seymour-suspension/
+
 **Champions League briefing: Did Vinicius just seal Ballon d'Or? Plus a Pulisic olimpico**\
 `The major talking points from a dramatic on matchweek 3 in the Champions League`\
 https://nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/style/golden-heart-awards-megan-thee-stallion.htm
 **Georgia Supreme Court rejects efforts to reinstate new state election rules.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/georgia-supreme-court-rejects-efforts-to-reinstate-new-state-election-rules
-
-**Bill Gates Privately Says He Has Backed Harris With $50 Million Donation**\
-`Mr. Gates said in a statement to The Times that “this election is different,” reflecting a significant change in his political strategy.`\
-https://nytimes.com/2024/10/22/us/elections/bill-gates-future-forward-kamala-harris.html
 
