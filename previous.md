@@ -1,3 +1,7 @@
+**The Harris Team Tries to Tether Trump to Project 2025**\
+`A television ad conveys a key part of Kamala Harris’s closing argument: that her rival is a right-wing authoritarian who will make life less affordable and threaten access to abortion.`\
+https://nytimes.com/2024/10/22/us/politics/harris-ad-trump-project-2025.html
+
 **After a Deadly Strike Near Beirut, Ringtones Sound From Under Rubble**\
 `As search teams combed the ruins of residential buildings across from Rafik Hariri University Hospital just south of Lebanon’s capital, locals listened for signs of their loved ones in the wreckage.`\
 https://nytimes.com/2024/10/22/world/middleeast/israel-strike-beirut-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860935/2024/10/22/jack-wilshere-arsenal-exit-norwi
 **Analysing Darwin Nunez's 60 minutes of promise vs Chelsea: No shots but hold-up heroics**\
 `The Liverpool forward played his part in the victory over Chelsea on and off the ball — contesting the most duels of any player on the pitch`\
 https://nytimes.com/athletic/5862860/2024/10/22/darwin-nunez-liverpool-chelsea/
-
-**Exploring the Failures in the Mideast**\
-`Readers respond to a guest essay by Peter Beinart. Also: Donald Trump’s lewd comments at a rally; lessons from baseball; Queen Esther’s legacy.`\
-https://nytimes.com/2024/10/22/opinion/israel-gaza-war.html
 
