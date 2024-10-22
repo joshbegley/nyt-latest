@@ -1,3 +1,15 @@
+**F.D.A. Names a New Chief of Medical Devices**\
+`Patient advocates hope Dr. Michelle Tarver will lead the agency to focus more on safety and less on rapid approvals.`\
+https://nytimes.com/2024/10/22/health/fda-medical-devices.html
+
+**Dominic Thiem retires from tennis: My game in my words**\
+`The Austrian explains how he beat Rafael Nadal and his tactics against Novak Djokovic – and reveals his most underrated shot`\
+https://nytimes.com/athletic/5837024/2024/10/22/dominic-thiem-tennis-highlights-best-shots/
+
+**Pilot Killed in New Mexico Air Show Crash Instructed ‘Top Gun’ Actors**\
+`Charles Thomas “Chuck” Coleman was a flight instructor who prepared actors for the 2022 action movie “Top Gun: Maverick,” which starred Tom Cruise and Miles Teller.`\
+https://nytimes.com/2024/10/22/us/top-gun-instructor-dead-plane-crash.html
+
 **Embiid, George ruled out for 76ers' season opener vs. Bucks**\
 `Embiid has progressed well and is ramping up toward a return after missing much of the preseason with left knee maintenance.`\
 https://nytimes.com/athletic/5863906/2024/10/22/sixers-joel-embiid-paul-george-out-season-opener/
