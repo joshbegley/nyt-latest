@@ -1,3 +1,15 @@
+**Abdallah Sima could be another striker that Brighton regret not giving a chance**\
+`The Senegalese striker is scoring for Brest in the Champions League but his chances of making it at the Amex look slim`\
+https://nytimes.com/athletic/5853145/2024/10/22/abdallah-sima-gyokeres-undav-brighton/
+
+**Van Nistelrooy, Hake and the roles of Ten Hag's Manchester United coaching staff**\
+`A look at the coaches working with Erik ten Hag after a change of backroom staff in the summer - and what their roles are`\
+https://nytimes.com/athletic/5860510/2024/10/22/van-nistelrooy-hake-ten-hag-coaching-roles/
+
+**Arsenal Today: Shakhtar, Zinchenko, Wilshere and happy birthday Arsene!**\
+`Welcome to Arsenal Today, your morning digest of what's going on at the club and what is piqueing out writers' interests`\
+https://nytimes.com/athletic/5860959/2024/10/22/arsenal-today-october-22/
+
 **Iling-Junior's journey from Chelsea to Serie A and Villa, by those who know him**\
 `Iling-Junior has come a long way from the park pitches of north London - he could face his parent club Aston Villa now he's at Bologna`\
 https://nytimes.com/athletic/5695445/2024/10/22/samuel-iling-juniors-journey-from-chelsea-to-serie-a-and-aston-villa-by-those-who-know-him/
