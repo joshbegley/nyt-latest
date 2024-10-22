@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Nylander's big night helps Toronto overwhelm Tampa Bay**\
+`The Maple Leafs took care of business in their first outing against a fellow Atlantic Division playoff threat.`\
+https://nytimes.com/athletic/5861357/2024/10/21/maple-leafs-report-cards-nylander-tampa-bay/
+
+**With Election Day 2 Weeks Away, 15 Million Voters Have Already Cast a Ballot**\
+`Since the pandemic, early voting has become a broadly accepted part of American elections. But it is difficult to glean partisan advantage.`\
+https://nytimes.com/2024/10/21/us/politics/2024-early-voting.html
+
 **Thelma Mothershed Wair, Little Rock Nine Student, Dies at 83**\
 `In 1957, Mrs. Mothershed Wair and eight other Black students enrolled at Little Rock Central High School. They faced racist mobs and were escorted by federal troops.`\
 https://nytimes.com/2024/10/21/us/thelma-mothershed-wair-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5862373/2024/10/21/cubs-nico-hoerner-flexor-tendon-
 **Tracking Tropical Storm Trami**\
 `See the likely path and wind arrival times for Trami.`\
 https://nytimes.com/interactive/2024/10/21/weather/trami-map-path-tracker.html
-
-**The Election Has Taken Over TikTok. Here’s What It Looks Like.**\
-`Tens of thousands of videos are posted to TikTok each week about the presidential election, including dances set to songs made from speech snippets, comedic impersonations, pranks and even news commentary.`\
-https://nytimes.com/interactive/2024/10/21/business/media/2024-election-tiktok-trump-harris.html
-
-**Tracking Tropical Storm Kristy**\
-`See the likely path and wind arrival times for Kristy.`\
-https://nytimes.com/interactive/2024/10/21/weather/kristy-map-path-tracker.html
 
