@@ -1,3 +1,11 @@
+**The Hard-Shell Taco Deserves Your Respect**\
+`The version that once thrived at the midcentury fast food stands of Los Angeles is now a regional treasure.`\
+https://nytimes.com/2024/10/22/dining/hard-shell-tacos-los-angeles.html
+
+**The Windup: Goliath vs. Goliath World Series**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5863632/2024/10/22/dodgers-yankees-world-series-juan-soto-the-windup/
+
 **Yohe mailbag: Crosby and Malkin's greatest hits**\
 `In honor of their recent accomplishments, let's remember the best Crosby and Malkin moments on and off the ice.`\
 https://nytimes.com/athletic/5855706/2024/10/22/penguins-sidney-crosby-evgeni-malkin-career-highlights/
@@ -30,12 +38,4 @@ https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/fbi-isra
 **Cardinals to hire Guardians’ Rob Cerfolio: Sources**\
 `In hiring Cerfolio, the Cardinals believe they’ve landed one of baseball’s up-and-coming talents in player development.`\
 https://nytimes.com/athletic/5863462/2024/10/22/cardinals-to-hire-guardians-rob-cerfolio-player-development/
-
-**Passed Up for the Ticket, Josh Shapiro Tries to Deliver Pennsylvania for Harris**\
-`Pennsylvania’s governor may not be on the verge of the vice presidency, but he says he has everything — including his “heart and soul” — riding on a Kamala Harris victory.`\
-https://nytimes.com/2024/10/22/us/politics/josh-shapiro-kamala-harris.html
-
-**Republicans Who Led 2020 Election Denial Now Sowing Doubt in 2024 Votes**\
-`The efforts could help lay the groundwork for what could become another push to undermine the results if former President Donald J. Trump loses again.`\
-https://nytimes.com/2024/10/22/us/politics/election-2024-denial-congress.html
 

@@ -1,3 +1,16 @@
+**The Hard-Shell Taco Deserves Your Respect**\
+`The version that once thrived at the midcentury fast food stands of Los Angeles is now a regional treasure.`\
+https://nytimes.com/2024/10/22/dining/hard-shell-tacos-los-angeles.html
+
+**The Windup: Goliath vs. Goliath World Series**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5863632/2024/10/22/dodgers-yankees-world-series-juan-soto-the-windup/
+
+**Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
+`Both Godwin and Evans left Monday night's loss to the Ravens with injuries
+`\
+https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
+
 **Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
 `Both Godwin and Evans left Monday night's loss to the Ravens with injuries
 `\
