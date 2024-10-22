@@ -1,3 +1,7 @@
+**WNBA Finals Game 5 was most-watched Finals game in 25 years**\
+`Overall, there were 32 WNBA television windows between its media partners that topped one million viewers during the 2024 season.`\
+https://nytimes.com/athletic/5864477/2024/10/22/wnba-finals-viewership-espn-liberty-lynx/
+
 **How a Knack for Provocation Fueled Mark Robinson’s Rise**\
 `Recklessness has characterized Mr. Robinson’s online persona, his personal life and his rocky campaign for governor in North Carolina.`\
 https://nytimes.com/2024/10/22/us/how-a-knack-for-provocation-fueled-mark-robinsons-rise.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/trump-joe-rogan-podcast.html
 **Fantasy football stock watch: Hunter Henry looks like a Top 10 tight end, Josh Downs has a quarterback problem**\
 `Dane Martinez offers buy/sell advice on some of the biggest market movers of late, including emerging tight end Hunter Henry.`\
 https://nytimes.com/athletic/5863898/2024/10/22/fantasy-football-stock-watch-henry-top-te-downs-qb-problem/
-
-**Rams have spoken with teams about Cooper Kupp trade: Sources**\
-`Kupp’s base salary entering the season was $15 million with a cap number of $29 million. He is due a $7.5 million roster bonus in March.`\
-https://nytimes.com/athletic/5864141/2024/10/22/cooper-kupp-rams-trade-calls-price/
 
