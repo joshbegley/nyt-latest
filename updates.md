@@ -1,3 +1,11 @@
+**They Sued Juul and Now It’s Payday**\
+`Unexpected payments from a class-action lawsuit have some TikTok users feeling flush.`\
+https://nytimes.com/2024/10/22/style/juul-lawsuit-payments-tiktok.html
+
+**Copa America final chaos: 100 days on, what is the legal fall-out?**\
+`A slew of legal claims have been issued against event organisers in the wake of the chaos which engulfed July's showpiece final`\
+https://nytimes.com/athletic/5863488/2024/10/22/copa-america-final-chaos-legal/
+
 **The A.I. Power Grab**\
 `Big tech companies say A.I. can help solve climate change, even as it’s driving up their emissions and raising doubts about their climate goals.`\
 https://nytimes.com/2024/10/22/climate/ai-big-tech-emissions.html
