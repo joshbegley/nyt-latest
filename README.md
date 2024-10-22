@@ -1,3 +1,7 @@
+**Colorado WR/CB Travis Hunter expected to contribute more vs. Cincinnati**\
+`Hunter, who played more than 120 snaps in each of Colorado's first five games, has been limited to less than 50 in the last two weeks.`\
+https://nytimes.com/athletic/5864186/2024/10/22/colorado-buffaloes-football-travis-hunter-injury-deion-sanders/
+
 **NIT alters selection process, will give auto-bids to 2 ACC, SEC teams**\
 `The change comes as FOX is set to debut its own 16-team rival postseason tournament in partnership with the Big Ten, Big 12 and Big East.`\
 https://nytimes.com/athletic/5864192/2024/10/22/nit-selection-process-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864147/2024/10/22/federico-chiesa-liverpool-injury
 **Filipino American Voters Could Decide Key Races in Nevada**\
 `Democrats in particular have tried to reach voters who are now part of the largest Asian American group in Nevada.`\
 https://nytimes.com/2024/10/22/us/elections/filipino-american-voters-nevada.html
-
-**A New Effort to Counter Threats to Election Workers**\
-`American officials are highly concerned about the potential for violence against election workers on and around Nov. 5.`\
-https://nytimes.com/2024/10/22/us/politics/election-workers-threats.html
 
