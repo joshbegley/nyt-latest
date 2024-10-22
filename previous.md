@@ -1,3 +1,15 @@
+**What Another Year of Hoping for the Mets Gave to Me**\
+`The Mets have always had some good players. This time, they have a good organization.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/mets-lose-world-series
+
+**Jerry Jones says Cowboys didn't pursue Derrick Henry due to 'fit'**\
+`The Cowboys owner said  Derrick Henry didn’t fit mainly because of the team's salary cap situation.`\
+https://nytimes.com/athletic/5863333/2024/10/22/jerry-jones-comments-radio-derrick-henry/
+
+**‘No Smoking’ Signs on Planes Can Now Stay On Forever**\
+`The Federal Aviation Administration did away with a rule that had required an off switch for the sign even though smoking on U.S. flights ended years ago.`\
+https://nytimes.com/2024/10/22/business/no-smoking-sign-planes-faa.html
+
 **What Wilshere's exit means for Arsenal and the shock it caused inside the club**\
 `The U18s coach is held in extremely high regard by his players and there are concerns about what his decision to leave might mean`\
 https://nytimes.com/athletic/5860935/2024/10/22/jack-wilshere-arsenal-exit-norwich/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/22/dining/hard-shell-tacos-los-angeles.html
 **The Windup: Goliath vs. Goliath World Series**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5863632/2024/10/22/dodgers-yankees-world-series-juan-soto-the-windup/
-
-**Yohe mailbag: Crosby and Malkin's greatest hits**\
-`In honor of their recent accomplishments, let's remember the best Crosby and Malkin moments on and off the ice.`\
-https://nytimes.com/athletic/5855706/2024/10/22/penguins-sidney-crosby-evgeni-malkin-career-highlights/
-
-**Scoop City: Who replaces Aiyuk, Godwin?**\
-`A look at seven running backs to add for your fantasy football team, plus who replaces Chris Godwin, Brandon Aiyuk`\
-https://nytimes.com/athletic/5863646/2024/10/22/scoop-city-week-8-fantasy-preview/
-
-**After extending Trey Murphy, will Pelicans commit to letting him reach potential?**\
-`Murphy signed a four-year, $112 million extension Monday, but he may not have a spot in the starting lineup.`\
-https://nytimes.com/athletic/5863006/2024/10/22/trey-murphy-pelicans-extension/
 

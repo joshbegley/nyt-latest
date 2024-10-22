@@ -1,3 +1,15 @@
+**What Another Year of Hoping for the Mets Gave to Me**\
+`The Mets have always had some good players. This time, they have a good organization.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/mets-lose-world-series
+
+**Jerry Jones says Cowboys didn't pursue Derrick Henry due to 'fit'**\
+`The Cowboys owner said  Derrick Henry didn’t fit mainly because of the team's salary cap situation.`\
+https://nytimes.com/athletic/5863333/2024/10/22/jerry-jones-comments-radio-derrick-henry/
+
+**‘No Smoking’ Signs on Planes Can Now Stay On Forever**\
+`The Federal Aviation Administration did away with a rule that had required an off switch for the sign even though smoking on U.S. flights ended years ago.`\
+https://nytimes.com/2024/10/22/business/no-smoking-sign-planes-faa.html
+
 **What Wilshere's exit means for Arsenal and the shock it caused inside the club**\
 `The U18s coach is held in extremely high regard by his players and there are concerns about what his decision to leave might mean`\
 https://nytimes.com/athletic/5860935/2024/10/22/jack-wilshere-arsenal-exit-norwich/
