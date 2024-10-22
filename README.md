@@ -1,3 +1,27 @@
+**In a Malaysian Pop-Up City, Echoes of China’s Housing Crash**\
+`Forest City was an audacious $100 billion project by a top Chinese developer. Today, the project is a fraction of what had been planned and the developer is broke.`\
+https://nytimes.com/2024/10/22/business/forest-city-country-garden.html
+
+**The Coup Attempt That Set Turkey on a Path to Authoritarianism**\
+`President Recep Tayyip Erdogan and Fethullah Gulen, the powerful preacher who died this week, began as allies. But their falling out brought bloodshed and an Erdogan crackdown.`\
+https://nytimes.com/2024/10/22/world/europe/fethullah-gulen-erdogan-turkey.html
+
+**A Radical Approach to Flooding in England: Give Land Back to the Sea**\
+`When a huge tract of land on the Somerset coast was deliberately flooded, the project was slammed as “ridiculous” by a local lawmaker. But the results have been transformative.`\
+https://nytimes.com/2024/10/22/world/europe/uk-steart-marshes-carbon-climate-change-flooding.html
+
+**Four Years in Jail Without Trial: The Price of Dissent in Modi’s India**\
+`A Muslim protest leader has become a symbol of a wide-ranging clampdown on opponents of Prime Minister Narendra Modi’s government.`\
+https://nytimes.com/2024/10/22/world/asia/india-muslim-dissent.html
+
+**Real Madrid-Dortmund Champions League preview, odds, prediction for final rematch**\
+`Real Madrid and Borussia Dortmund meet in a rematch of last season's Champions League final. The hosts are favored to win.`\
+https://nytimes.com/athletic/5861428/2024/10/22/real-madrid-borussia-dortmund-champions-league-preview-odds-prediction/
+
+**Fantasy football Week 8 waiver wire: Streamers, Jauan Jennings is back**\
+`Jake Ciely runs through the best options on this week's waiver wire, including some 'next man up' receiver options in San Francisco.`\
+https://nytimes.com/athletic/5860726/2024/10/22/fantasy-football-week-8-waiver-wire-streamers-jauan-jennings-is-back-and-more/
+
 **Corrections: Oct. 22, 2024**\
 `Corrections that appeared in print on Tuesday, Oct. 22, 2024.`\
 https://nytimes.com/2024/10/21/pageoneplus/corrections-oct-22-2024.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/21/us/politics/trump-christian-voters.html
 **What Andrew Babalola's commitment means for Michigan**\
 `Babalola committed to Michigan over Stanford, Oklahoma, Missouri and Auburn.`\
 https://nytimes.com/athletic/5862591/2024/10/21/andrew-babalola-michigan-football-recruiting/
-
-**Jayland Walker’s Family Settles With Akron for $4.8 Million Over Police Shooting**\
-`The family had filed a lawsuit against the Ohio city and its police department after Mr. Walker was fatally shot by eight police officers in 2022.`\
-https://nytimes.com/2024/10/21/us/jayland-walker-family-akron-ohio-settlement.html
-
-**Elon Musk, a Trump megadonor, gives the legal maximum to the campaign after holding out.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/10/21/us/harris-trump-election/elon-musk-a-trump-megadonor-gives-the-legal-maximum-to-the-campaign-after-holding-out
-
-**Lions' Jameson Williams facing 2-game suspension for violating NFL's PES policy**\
-`Williams, 23, has caught 17 passes for 361 yards and three touchdowns through six games this season.`\
-https://nytimes.com/athletic/5862542/2024/10/21/jameson-williams-ped-suspension-lions/
-
-**Maple Leafs report cards: William Nylander's big night helps Toronto overwhelm Tampa Bay**\
-`The Maple Leafs took care of business in their first outing against a fellow Atlantic Division playoff threat.`\
-https://nytimes.com/athletic/5861357/2024/10/21/maple-leafs-report-cards-nylander-tampa-bay/
-
-**With Election Day 2 Weeks Away, 15 Million Voters Have Already Cast a Ballot**\
-`Since the pandemic, early voting has become a broadly accepted part of American elections. But it is difficult to glean partisan advantage.`\
-https://nytimes.com/2024/10/21/us/politics/2024-early-voting.html
-
-**Thelma Mothershed Wair, Little Rock Nine Student, Dies at 83**\
-`In 1957, Mrs. Mothershed Wair and eight other Black students enrolled at Little Rock Central High School. They faced racist mobs and were escorted by federal troops.`\
-https://nytimes.com/2024/10/21/us/thelma-mothershed-wair-dead.html
 
