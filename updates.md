@@ -1,3 +1,7 @@
+**Northern Ireland vs Belarus set for Belfast as planned despite visa concerns**\
+`Uncertainty remains over the venue for Northern Ireland’s home game against Belarus next month but all parties are working towards the fixture being played in Belfast as planned.`\
+https://nytimes.com/athletic/5860312/2024/10/22/northern-ireland-belarus-nations-league/
+
 **The numbers behind Crystal Palace's joint-worst start to a Premier League season**\
 `Oliver Glasner tweaked his formation and tactics against Nottingham Forest but fixing his team's numerous problems is proving difficult`\
 https://nytimes.com/athletic/5862041/2024/10/22/crystal-palace-slow-start-premier-league/
