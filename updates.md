@@ -1,3 +1,7 @@
+**SMU star tight end RJ Maryland out for season with knee injury**\
+`Maryland, who leads SMU in receptions, receiving yards and touchdown catches, has been a key part of the Mustangs hot start in the ACC.`\
+https://nytimes.com/athletic/5863822/2024/10/22/smu-mustangs-football-acc-rj-maryland-injury/
+
 **Leverkusen's Boniface to miss Brest game after car accident**\
 `Bayer Leverkusen forward Victor Boniface has been ruled out of the club’s visit to Brest in the Champions League having been injured in a car accident over the weekend.`\
 https://nytimes.com/athletic/5863821/2024/10/22/bayer-leverkusen-victor-boniface-car-accident/

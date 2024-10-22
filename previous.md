@@ -1,3 +1,7 @@
+**SMU star tight end RJ Maryland out for season with knee injury**\
+`Maryland, who leads SMU in receptions, receiving yards and touchdown catches, has been a key part of the Mustangs hot start in the ACC.`\
+https://nytimes.com/athletic/5863822/2024/10/22/smu-mustangs-football-acc-rj-maryland-injury/
+
 **Leverkusen's Boniface to miss Brest game after car accident**\
 `Bayer Leverkusen forward Victor Boniface has been ruled out of the club’s visit to Brest in the Champions League having been injured in a car accident over the weekend.`\
 https://nytimes.com/athletic/5863821/2024/10/22/bayer-leverkusen-victor-boniface-car-accident/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863735/2024/10/22/blues-jake-neighbours-extension-
 **The Harris Team Tries to Tether Trump to Project 2025**\
 `A television ad conveys a key part of Kamala Harris’s closing argument: that her rival is a right-wing authoritarian who will make life less affordable and threaten access to abortion.`\
 https://nytimes.com/2024/10/22/us/politics/harris-ad-trump-project-2025.html
-
-**After a Deadly Strike Near Beirut, Ringtones Sound From Under Rubble**\
-`As search teams combed the ruins of residential buildings across from Rafik Hariri University Hospital just south of Lebanon’s capital, locals listened for signs of their loved ones in the wreckage.`\
-https://nytimes.com/2024/10/22/world/middleeast/israel-strike-beirut-hospital.html
 
