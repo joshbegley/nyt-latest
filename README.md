@@ -2,7 +2,7 @@
 `Embiid has progressed well and is ramping up toward a return after missing much of the preseason with left knee maintenance.`\
 https://nytimes.com/athletic/5863906/2024/10/22/sixers-joel-embiid-paul-george-out-season-opener/
 
-**U.S. Agrees to Give Ukraine Millions to Build Long-Range Drones**\
+**U.S. Agrees to Give Ukraine Millions to Build More Long-Range Drones**\
 `The move, confirmed by a Pentagon official, signifies a change in U.S. policy aimed at shoring up Ukraine’s ability to fight the war against Russia with its own weapons.`\
 https://nytimes.com/2024/10/22/world/europe/us-ukraine-aid-long-range-drones.html
 
