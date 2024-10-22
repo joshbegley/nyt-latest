@@ -1,6 +1,10 @@
+**Britain and Germany Agree on New Defense Pact as Russia Threat Rises**\
+`The two governments said they will coordinate more on defense, with British and German troops conducting joint military exercises on NATO’s eastern border.`\
+https://nytimes.com/2024/10/22/world/europe/britain-and-germany-agree-on-new-defense-pact-as-russia-threat-rises.html
+
 **Megan Thee Stallion and Sarah Jessica Parker Honored at Golden Heart Awards**\
 `God’s Love We Deliver drew comedians, fashion executives and restaurateurs to its annual benefit at the Cathedral Church of St. John the Divine on Monday.`\
-https://nytimes.com/2024/10/22/style/megan-thee-stallion-and-sarah-jessica-parker-honored-at-golden-heart-awards.html
+https://nytimes.com/2024/10/22/style/golden-heart-awards-megan-thee-stallion.html
 
 **Georgia Supreme Court rejects efforts to reinstate new state election rules.**\
 `By Nick Corasaniti`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864360/2024/10/22/the-athletic-mlb-reader-poll-is-
 **An Australian Woman Trying to Rescue Her Phone Gets Stuck Between Boulders**\
 `And she was upside down.`\
 https://nytimes.com/2024/10/22/world/australia/australia-woman-stuck-upside-down-phone.html
-
-**The Briefing - Real Madrid 5 Borussia Dortmund 2: Vinicius Jr inspires yet another Champions League comeback**\
-`Real Madrid produced an incredible second-half comeback to thump Borussia Dortmund at the Bernabeu...`\
-https://nytimes.com/athletic/5854163/2024/10/22/real-madrid-5-borussia-dortmund-2-vinicius-jr-comeback/
 
