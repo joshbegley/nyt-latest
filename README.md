@@ -1,11 +1,3 @@
-**Trump calls Harris ‘lazy’ as the campaigns trade jabs about who is more tired.**\
-`By Michael Gold`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election/trump-calls-harris-lazy-as-the-campaigns-trade-jabs-about-who-is-more-tired
-
-**Kurt Olsen Helped Trump Fight His 2020 Defeat. Trump Is Talking to Him Again.**\
-`Mr. Olsen, a lawyer, has spoken to the former president multiple times in recent weeks. He’s insisted it’s important to make legal demands concerning voting-machine data before Election Day.`\
-https://nytimes.com/2024/10/22/us/politics/kurt-olsen-trump-2020-lawyer.html
-
 **Britain and Germany Agree on New Defense Pact as Russia Threat Rises**\
 `The two governments said they will coordinate more on defense, with British and German troops conducting joint military exercises on NATO’s eastern border.`\
 https://nytimes.com/2024/10/22/world/europe/britain-and-germany-agree-on-new-defense-pact-as-russia-threat-rises.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/10/22/us/politics/trump-republicans-early-voting.html
 **E. Coli Outbreak Linked to McDonald’s Quarter Pounders**\
 `The C.D.C. said that nearly 50 people had become ill and one person had died from the deadly bacteria, which the agency tied to an ingredient in one of the fast food chain’s burger items.`\
 https://nytimes.com/2024/10/22/health/ecoli-outbreak-mcdonalds-hamburgers.html
+
+**The Athletic MLB Reader Poll: Is a Dodgers-Yankees World Series good or bad for baseball?**\
+`Bring your nuanced debate or your pure spite, whatever works. Our poll will stay open until Thursday, Oct. 24.`\
+https://nytimes.com/athletic/5864360/2024/10/22/mlb-reader-poll-2024-world-series/
+
+**An Australian Woman Trying to Rescue Her Phone Gets Stuck Between Boulders**\
+`And she was upside down.`\
+https://nytimes.com/2024/10/22/world/australia/australia-woman-stuck-upside-down-phone.html
 
