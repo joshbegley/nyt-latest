@@ -1,3 +1,11 @@
+**The Athletic FC: Top Euro leagues - a style guide, 'superstar' Viana, Liga match in Miami?**\
+`Today in TAFC: The contrasting styles of the top four European leagues, Manchester City's new boss and the prospect of a Liga match in Miami`\
+https://nytimes.com/athletic/5862947/2024/10/22/champions-league-style-barcelona-atletico/
+
+**The Era of Outsized Market Rallies Could Be Over**\
+`The S&P 500’s huge gains over the past two years won’t be duplicated some analysts say, as a series of economic challenges piles up.`\
+https://nytimes.com/2024/10/22/business/dealbook/sp-500-rally-markets.html
+
 **Wilshere leaving Arsenal to join Norwich as first-team coach**\
 `Jack Wilshere is leaving his role as Arsenal Under-18 head coach to take up a first-team coaching position at Norwich City.`\
 https://nytimes.com/athletic/5859680/2024/10/22/jack-wilshere-norwich-arsenal-leave/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5860669/2024/10/22/the-athletic-player-dashboard-ex
 **'We’re certainly not there': What happened to Oilers' playoff-style penalty kill?**\
 `The Oilers rank at the bottom of the NHL on the PK, allowing a league-high nine goals.`\
 https://nytimes.com/athletic/5861673/2024/10/22/oilers-penalty-kill-mattias-janmark/
-
-**Watch Dancers Haunt Naomi Scott in ‘Smile 2’**\
-`Parker Finn, the film’s writer and director, narrates a scene in which a pop star is chased through her apartment by evil dancers.`\
-https://nytimes.com/2024/10/22/movies/smile-2-clip.html
-
-**The stat that shows Victor Wembanyama's current NBA trading card dominance**\
-`Even while Team USA basketball made headlines, NBA card collectors remained focused on Wembanyama `\
-https://nytimes.com/athletic/5861232/2024/10/22/victor-wembanyama-cards-psa/
 
