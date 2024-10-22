@@ -1,3 +1,7 @@
+**Megan Thee Stallion and Sarah Jessica Parker Honored at Golden Heart Awards**\
+`God’s Love We Deliver drew comedians, fashion executives and restaurateurs to its annual benefit at the Cathedral Church of St. John the Divine on Monday.`\
+https://nytimes.com/2024/10/22/style/megan-thee-stallion-and-sarah-jessica-parker-honored-at-golden-heart-awards.html
+
 **Georgia Supreme Court rejects efforts to reinstate new state election rules.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/georgia-supreme-court-rejects-efforts-to-reinstate-new-state-election-rules
