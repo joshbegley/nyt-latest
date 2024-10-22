@@ -1,3 +1,7 @@
+**The Princess and the Justice**\
+`Princess Gloria von Thurn und Taxis bonded with Justice Samuel A. Alito Jr. over Catholicism and ending abortion. She introduced him to her sumptuous world when he visited her Bavarian palace.`\
+https://nytimes.com/2024/10/22/us/politics/samuel-alito-princess-gloria.html
+
 **West Ham's Kudus charged by FA following red card**\
 `Mohammed Kudus faces the possibility of further punishment after the Football Association (FA) charged the West Ham United forward following his red card at Tottenham Hotspur.`\
 https://nytimes.com/athletic/5854961/2024/10/22/mohammed-kudus-red-card-ban-how-long/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863113/2024/10/22/pep-guardiola-manchester-city-in
 **Raiders rookie Brock Bowers' YAC secret? 'I just catch the ball and run with it'**\
 `Bowers' 47 catches through his first seven career games are the most in Raiders history and the most in NFL history by a tight end.`\
 https://nytimes.com/athletic/5861805/2024/10/22/brock-bowers-raiders-tight-end-record-yac/
-
-**A Giants fan's guide to rooting for the Yankees in the World Series**\
-`The Dodgers are four wins away from a title and the only thing standing in their way is every Giants fan's new favorite team, the Yankees.`\
-https://nytimes.com/athletic/5860839/2024/10/22/sf-giants-fans-yankees-world-series-guide/
 
