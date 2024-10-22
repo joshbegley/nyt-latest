@@ -1,3 +1,11 @@
+**Georgia Supreme Court rejects efforts to reinstate new state election rules.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election/georgia-supreme-court-rejects-efforts-to-reinstate-new-state-election-rules
+
+**The Briefing - Real Madrid 5 Borussia Dortmund 2: Vinicius Jr inspires yet another Champions League comeback**\
+`Real Madrid produced an incredible second-half comeback to thump Borussia Dortmund at the Bernabeu...`\
+https://nytimes.com/athletic/5854163/2024/10/22/real-madrid-5-borussia-dortmund-2-vinicius-jr-comeback/
+
 **Bill Gates Privately Says He Has Backed Harris With $50 Million Donation**\
 `Mr. Gates said in a statement to The Times that “this election is different,” reflecting a significant change in his political strategy.`\
 https://nytimes.com/2024/10/22/us/elections/bill-gates-future-forward-kamala-harris.html
