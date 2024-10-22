@@ -1,3 +1,7 @@
+**Nuggets re-sign 'heart and soul' Aaron Gordon to 4-year extension**\
+`"In many ways, Aaron is the heart and soul of the team," Nuggets general manager Calvin Booth told The Athletic after the agreement.`\
+https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extension/
+
 **Taylor: Chiefs need to trade for a wide receiver now to help Patrick Mahomes**\
 `Without a trade, Mahomes’ receivers against the Raiders will be rookie Xavier Worthy, Justin Watson, Mecole Hardman and Skyy Moore.`\
 https://nytimes.com/athletic/5862069/2024/10/21/chiefs-wide-receiver-trade-patrick-mahomes/
