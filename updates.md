@@ -1,3 +1,11 @@
+**WNBA Finals Game 5 was most-watched Finals game in 25 years**\
+`Overall, there were 32 WNBA television windows between its media partners that topped one million viewers during the 2024 season.`\
+https://nytimes.com/athletic/5864477/2024/10/22/wnba-finals-viewership-espn-liberty-lynx/
+
+**How a Knack for Provocation Fueled Mark Robinson’s Rise**\
+`Recklessness has characterized Mr. Robinson’s online persona, his personal life and his rocky campaign for governor in North Carolina.`\
+https://nytimes.com/2024/10/22/us/how-a-knack-for-provocation-fueled-mark-robinsons-rise.html
+
 **Wordle Review No. 1,222**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 23, 2024.`\
 https://nytimes.com/2024/10/22/crosswords/wordle-review-1222.html
