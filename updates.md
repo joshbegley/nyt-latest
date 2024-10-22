@@ -1,3 +1,11 @@
+**Astros to hire Tony Perezchica as new third-base coach: Source**\
+`Perezchica, 58, would replace Gary Pettis, who did not have his contract renewed after 10 years on Houston's staff.`\
+https://nytimes.com/athletic/5863436/2024/10/22/astros-hire-tony-perezchica-third-base-coach/
+
+**Giants hit breaking point with Daniel Jones; only a matter of time before he's benched again?**\
+`Unless Jones shows drastic improvement in generating explosive plays, Sunday’s benching likely won’t be the last of the season.`\
+https://nytimes.com/athletic/5862646/2024/10/22/giants-daniel-jones-benched-brian-daboll-drew-lock/
+
 **HSBC Overhauls Bank, Seeking to Balance China and the West**\
 `The restructuring of Europe’s largest lender comes as it looks to cut costs and navigate a diplomatic minefield across its sprawling operations.`\
 https://nytimes.com/2024/10/22/business/dealbook/hsbc-restructuring-china-us.html
