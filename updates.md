@@ -1,3 +1,7 @@
+**Taylor: Chiefs need to trade for a wide receiver now to help Patrick Mahomes**\
+`Without a trade, Mahomes’ receivers against the Raiders will be rookie Xavier Worthy, Justin Watson, Mecole Hardman and Skyy Moore.`\
+https://nytimes.com/athletic/5862069/2024/10/21/chiefs-wide-receiver-trade-patrick-mahomes/
+
 **Buccaneers' Mike Evans ruled out for MNF game with hamstring injury**\
 `After sustaining the injury, Evans walked off the field to the locker room on his own power.`\
 https://nytimes.com/athletic/5862374/2024/10/21/mike-evans-hamstring-injury-bucanneers/
