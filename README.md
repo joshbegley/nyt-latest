@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5862022/2024/10/22/knicks-starting-five-trust/
 
 **Early Voting Grows Among Republicans, and a Lithium Trove in Arkansas**\
 `Plus, the booming Halloween economy.`\
-https://nytimes.com/2024/10/22/podcasts/early-voting-grows-among-republicans-and-a-lithium-trove-in-arkansas.html
+https://nytimes.com/2024/10/22/podcasts/early-voting-lithium.html
 
 **Breaking down the Blackhawks: What tracking data tells us through 6 games**\
 `It's easy to see Connor Bedard is doing well. But just how well, and who are the sneakily effective players for Chicago so far?`\
