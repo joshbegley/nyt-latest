@@ -1,3 +1,7 @@
+**Biden Quickly Backtracks After Saying Trump Should Be Locked Up**\
+`The president appeared to slip by suggesting he wanted his predecessor put behind bars, but revised his comment to say he meant locked up “politically.”`\
+https://nytimes.com/2024/10/22/us/politics/biden-trump-lock-him-up.html
+
 **Could Polish American Voters Swing the Election?**\
 `Voters with Eastern European backgrounds could be crucial in Pennsylvania, Michigan and Wisconsin.`\
 https://nytimes.com/2024/10/22/us/politics/christine-baranski-harris-polish-american-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/opinion/trump-kamala-harris-democrats.html
 **C.E.O. of Real Estate Giant Douglas Elliman Retires Amid Mounting Criticism**\
 `Howard Lorber faced calls to reduce his compensation, amid allegations of sexual assault by agents and plummeting stock prices.`\
 https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
-
-**Nestor Cortes knows his likely role: Shohei Ohtani stopper**\
-`Cortes has been sidelined this postseason with a flexor strain. He could be activated for the World Series.`\
-https://nytimes.com/athletic/5864934/2024/10/22/yankees-nestor-cortes-shohei-ohtani-world-series-matchup/
 
