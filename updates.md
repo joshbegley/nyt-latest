@@ -1,3 +1,19 @@
+**Panthers extending coach Paul Maurice after championship season**\
+`The new contract will take effect starting in 2025-26 after Maurice's existing deal expires at the end of this season.`\
+https://nytimes.com/athletic/5864802/2024/10/22/paul-maurice-panthers-extension/
+
+**Blinken Urges Netanyahu to Seek Truces in Gaza and Lebanon**\
+`The U.S. secretary of state, visiting Israel, said the killing of Hamas’s leader last week could create an opening for peace, and he pushed the Israeli prime minister to allow more aid into Gaza.`\
+https://nytimes.com/2024/10/22/world/middleeast/blinken-netanyahu-cease-fire.html
+
+**Commanders CB Kevon Seymour suspended 6 games for PES violation**\
+`Seymour will not be eligible for reinstatement until Dec. 2, following Washington's Week 13 home game versus the Tennessee Titans.`\
+https://nytimes.com/athletic/5864738/2024/10/22/commanders-kevon-seymour-suspension/
+
+**Champions League briefing: Did Vinicius just seal Ballon d'Or? Plus a Pulisic olimpico**\
+`The major talking points from a dramatic on matchweek 3 in the Champions League`\
+https://nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/
+
 **In Michigan, a Queer Retreat With Dancing in the Woods**\
 `The editor Ryan Fitzgibbon invited collaborators to toast “A Great Gay Book,” a new collection of pieces from his influential, now-defunct magazine, Hello Mr.`\
 https://nytimes.com/2024/10/22/t-magazine/ox-bow-artists-residency-michigan.html
