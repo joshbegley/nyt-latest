@@ -1,3 +1,23 @@
+**What Wilshere's exit means for Arsenal and the shock it caused inside the club**\
+`The U18s coach is held in extremely high regard by his players and there are concerns about what his decision to leave might mean`\
+https://nytimes.com/athletic/5860935/2024/10/22/jack-wilshere-arsenal-exit-norwich/
+
+**Analysing Darwin Nunez's 60 minutes of promise vs Chelsea: No shots but hold-up heroics**\
+`The Liverpool forward played his part in the victory over Chelsea on and off the ball — contesting the most duels of any player on the pitch`\
+https://nytimes.com/athletic/5862860/2024/10/22/darwin-nunez-liverpool-chelsea/
+
+**Exploring the Failures in the Mideast**\
+`Readers respond to a guest essay by Peter Beinart. Also: Donald Trump’s lewd comments at a rally; lessons from baseball; Queen Esther’s legacy.`\
+https://nytimes.com/2024/10/22/opinion/israel-gaza-war.html
+
+**Rest Days Are Good. Active Recovery Days Can Be Better.**\
+`Low-impact, easy workouts can offer relief for sore muscles.`\
+https://nytimes.com/2024/10/22/well/move/rest-day-workouts-active-recovery.html
+
+**I Can’t Pass Up Paneer**\
+`The firm, fresh Indian cheese is put to delicious use in this streamlined, kid-favorite mattar paneer.`\
+https://nytimes.com/2024/10/22/dining/mattar-paneer-dinner-recipes.html
+
 **Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
 `Both Godwin and Evans left Monday night's loss to the Ravens with injuries
 `\
