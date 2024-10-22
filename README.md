@@ -1,3 +1,7 @@
+**Harris will campaign in Texas to call attention to abortion rights.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election/harris-texas-abortion-trump
+
 **Astros to hire Tony Perezchica as new third-base coach: Source**\
 `Perezchica, 58, would replace Gary Pettis, who did not have his contract renewed after 10 years on Houston's staff.`\
 https://nytimes.com/athletic/5863436/2024/10/22/astros-hire-tony-perezchica-third-base-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863235/2024/10/22/fifa-fifpro-fund-for-football-pl
 **I.M.F. Says Inflation Fight Is Largely Over but Warns of New Threats**\
 `The International Monetary Fund said protectionism and new trade wars could weigh on growth.`\
 https://nytimes.com/2024/10/22/business/economy/imf-says-inflation-fight-is-largely-over-but-warns-of-new-threats.html
-
-**The Princess and the Justice**\
-`Princess Gloria von Thurn und Taxis bonded with Justice Samuel A. Alito Jr. over Catholicism and ending abortion. She introduced him to her sumptuous world when he visited her Bavarian palace.`\
-https://nytimes.com/2024/10/22/us/politics/samuel-alito-princess-gloria.html
 
