@@ -1,3 +1,7 @@
+**Kyler Murray's TD romp leads Cardinals to MNF win over Chargers**\
+`Murray has done this before. Called his shot. Making it clear that he knows what is about to happen before everyone else.`\
+https://nytimes.com/athletic/5862741/2024/10/22/cardinals-kyler-murray-defeat-chargers/
+
 **Glasgow to host 2026 Commonwealth Games**\
 `Glasgow will host the 2026 Commonwealth Games after the Australian state of Victoria pulled out of its planned staging of the event.`\
 https://nytimes.com/athletic/5862764/2024/10/22/commonwealth-games-glasgow-2026/

@@ -1,3 +1,7 @@
+**Kyler Murray's TD romp leads Cardinals to MNF win over Chargers**\
+`Murray has done this before. Called his shot. Making it clear that he knows what is about to happen before everyone else.`\
+https://nytimes.com/athletic/5862741/2024/10/22/cardinals-kyler-murray-defeat-chargers/
+
 **Glasgow to host 2026 Commonwealth Games**\
 `Glasgow will host the 2026 Commonwealth Games after the Australian state of Victoria pulled out of its planned staging of the event.`\
 https://nytimes.com/athletic/5862764/2024/10/22/commonwealth-games-glasgow-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5862271/2024/10/22/nottingham-forest-crystal-palace
 **Late Night Mocks Trump for His McDonald’s Photo Op**\
 `The ex-president’s stint at the drive-through window was “blue-collar drag,” said Stephen Colbert. “But with more makeup.”`\
 https://nytimes.com/2024/10/22/arts/television/late-night-trump-mcdonalds.html
-
-**Northern Ireland vs Belarus set for Belfast as planned despite visa concerns**\
-`Uncertainty remains over the venue for Northern Ireland’s home game against Belarus next month but all parties are working towards the fixture being played in Belfast as planned.`\
-https://nytimes.com/athletic/5860312/2024/10/22/northern-ireland-belarus-nations-league/
 
