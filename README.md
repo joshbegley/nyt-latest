@@ -1,3 +1,11 @@
+**Fall Fashion in Full Bloom **\
+`Knits, layers and other trappings of the season blended with vibrant bouquets at a London flower market.`\
+https://nytimes.com/card/2024/10/22/style/london-fashion-columbia-road-flower-market
+
+**How much does Jayden Daniels' injury shift the Bears-Commanders point spread?**\
+`We talked to a sportsbook director to understand how Jaden Daniels' injury impacts betting odds ahead of the Commanders Week 8 matchup.`\
+https://nytimes.com/athletic/5863951/2024/10/22/jayden-daniels-injury-commanders-bears-spread-shift/
+
 **WNBA Finals Game 5 was most-watched Finals game in 25 years**\
 `Overall, there were 32 WNBA television windows between its media partners that topped one million viewers during the 2024 season.`\
 https://nytimes.com/athletic/5864477/2024/10/22/wnba-finals-viewership-espn-liberty-lynx/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5864334/2024/10/22/bronny-james-lebron-lakers-timbe
 **Bengals mailbag: Submit your questions for beat reporter Paul Dehner Jr.**\
 `Let us know what's on your mind ahead of Sunday's matchup with the Eagles.`\
 https://nytimes.com/athletic/5864378/2024/10/22/bengals-mailbag-submit-questions-week-8/
-
-**Trump to Go on Joe Rogan’s Podcast, a Play to Reach Less Likely Voters**\
-`Two campaign officials said former President Donald J. Trump will record an interview Friday with the podcast that is popular with young men, a demographic that likes him but might not vote.`\
-https://nytimes.com/2024/10/22/us/politics/trump-joe-rogan-podcast.html
-
-**Fantasy football stock watch: Hunter Henry looks like a Top 10 tight end, Josh Downs has a quarterback problem**\
-`Dane Martinez offers buy/sell advice on some of the biggest market movers of late, including emerging tight end Hunter Henry.`\
-https://nytimes.com/athletic/5863898/2024/10/22/fantasy-football-stock-watch-henry-top-te-downs-qb-problem/
 
