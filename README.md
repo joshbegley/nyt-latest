@@ -1,3 +1,27 @@
+**People Pleasing**\
+`Do you tend to prioritize others’ needs ahead of your own? When have you been able to stand up for yourself, even if it was hard?`\
+https://nytimes.com/2024/10/22/learning/people-pleasing.html
+
+**The Person Leading The Times’s Politics Team**\
+`That the election cycle has been turbulent may be the understatement of the century. And David Halbfinger is overseeing coverage of every twist and turn through Election Day and its aftermath.`\
+https://nytimes.com/2024/10/22/insider/halbfinger-nyt-politics-editor-election.html
+
+**Why New York’s Orthodox Jewish Voters Could Tip the Battle for the House**\
+`In three key swing districts in New York’s Hudson Valley, candidates are pressing for the support of ultra-Orthodox Jews, who tend to vote as a bloc.`\
+https://nytimes.com/2024/10/22/nyregion/orthodox-jewish-vote-ny.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/22/crosswords/spelling-bee-forum.html
+
+**Here are the latest developments.**\
+`By Victoria Kim and Gabby Sobelman`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Hezbollah Missiles Target Tel Aviv Area as Blinken Travels to Israel**\
+`The group said it had targeted a military base near the city, hours after Israeli attacks near Beirut. The U.S. secretary of state has meetings in Tel Aviv later on Tuesday.`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah
+
 **Nottingham Forest are thriving**\
 `Up to eighth in the Premier League after victory over Crystal Palace, Nuno Espirito Santo's side have rarely looked more accomplished`\
 https://nytimes.com/athletic/5862271/2024/10/22/nottingham-forest-crystal-palace-wood-henderson-anderson/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5860312/2024/10/22/northern-ireland-belarus-nations
 **The numbers behind Crystal Palace's joint-worst start to a Premier League season**\
 `Oliver Glasner tweaked his formation and tactics against Nottingham Forest but fixing his team's numerous problems is proving difficult`\
 https://nytimes.com/athletic/5862041/2024/10/22/crystal-palace-slow-start-premier-league/
-
-**Word of the Day: holistic**\
-`This word has appeared in 176 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/22/learning/word-of-the-day-holistic.html
-
-**China Turns Up the Heat on Taiwan With Live-Fire Drills**\
-`The drills were the latest show of force by China, which claims Taiwan as its territory and has protested Western support for the island.`\
-https://nytimes.com/2024/10/22/world/asia/china-taiwan-live-fire-drills.html
-
-**Cardinals defeat Chargers on game-winning FG: Key takeaways**\
-`Kyler Murray led the Cardinals from their own 30-yard line to the Chargers' 14 to set Ryland up.`\
-https://nytimes.com/athletic/5862676/2024/10/22/chargers-cardinals-monday-night-football-score-takeaways/
-
-**Abdallah Sima could be another striker that Brighton regret not giving a chance**\
-`The Senegalese striker is scoring for Brest in the Champions League but his chances of making it at the Amex look slim`\
-https://nytimes.com/athletic/5853145/2024/10/22/abdallah-sima-gyokeres-undav-brighton/
-
-**How Liverpool shrugged off 'mediocrity' and honed the art of closing out wins**\
-`After a nervous end to September's defeat of Wolves, Arne Slot's side have been clinical in managing the closing stages of victories`\
-https://nytimes.com/athletic/5859967/2024/10/22/liverpool-closing-out-games/
-
-**Van Nistelrooy, Hake and the roles of Ten Hag's Manchester United coaching staff**\
-`A look at the coaches working with Erik ten Hag after a change of backroom staff in the summer - and what their roles are`\
-https://nytimes.com/athletic/5860510/2024/10/22/van-nistelrooy-hake-ten-hag-coaching-roles/
 
