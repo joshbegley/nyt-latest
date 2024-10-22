@@ -1,3 +1,7 @@
+**Live Q&A: Week 8 fantasy football add/drop chat with Jay Felicio, Tuesday 10/22 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5862382/2024/10/22/live-qa-week-8-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-22-at-5-p-m-et/
+
 **Colorado WR/CB Travis Hunter expected to contribute more vs. Cincinnati**\
 `Hunter, who played more than 120 snaps in each of Colorado's first five games, has been limited to less than 50 in the last two weeks.`\
 https://nytimes.com/athletic/5864186/2024/10/22/colorado-buffaloes-football-travis-hunter-injury-deion-sanders/
