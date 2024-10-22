@@ -1,3 +1,7 @@
+**Elon Musk, a Trump megadonor, gives the legal maximum to the campaign after holding out.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/10/21/us/harris-trump-election/elon-musk-a-trump-megadonor-gives-the-legal-maximum-to-the-campaign-after-holding-out
+
 **Lions' Jameson Williams facing 2-game suspension for violating NFL's PES policy**\
 `Williams, 23, has caught 17 passes for 361 yards and three touchdowns through six games this season.`\
 https://nytimes.com/athletic/5862542/2024/10/21/jameson-williams-ped-suspension-lions/
