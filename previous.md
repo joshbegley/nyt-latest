@@ -1,40 +1,40 @@
-**Which Republican Might Join a Harris Cabinet? We Asked Around.**\
-`In a text message, Mitt Romney sounded down on the idea. John Bolton said his chances were “substantially less than zero.” Liz Cheney remained silent on the matter.`\
-https://nytimes.com/2024/10/22/us/politics/harris-republican-cabinet.html
+**Raptors should have two missions for 2024-25 season — be bad and be fun: Koreen**\
+`The Raptors can have it all: a losing and successful season. `\
+https://nytimes.com/athletic/5861350/2024/10/22/toronto-raptors-nba-2024-2025-season/
 
-**New York Was a Shopping Town. Is It Again?**\
-`Small, medium and large: There seem to be signs of life for brick-and-mortar operations of every size in the city … once again.`\
-https://nytimes.com/2024/10/22/style/new-york-was-a-shopping-town-is-it-again.html
+**At the Algonquin, a Reading Pays Homage to the Famous Round Table**\
+`At the hotel where literary celebrities gathered decades ago, tarot cards featuring Broadway stars will be unveiled.`\
+https://nytimes.com/2024/10/22/nyregion/newyorktoday/at-the-algonquin-a-reading-pays-homage-to-the-famous-round-table.html
 
-**The 17 Best Bagels in New York City Right Now**\
-`The age-old debate continues.`\
-https://nytimes.com/article/best-bagels-nyc.html
+**Attention Prosecutors: Elon Musk Is Breaking Federal Voting Law**\
+`You can’t pay people to register to vote.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/musk-breaking-voting-law
 
-**How Cheerleading Became So Acrobatic, Dangerous and Popular**\
-`For decades, the sport has been shaped in large part by one company — and one man.`\
-https://nytimes.com/2024/10/22/magazine/cheerleading-jeff-webb.html
+**The Many Links Between Project 2025 and Trump’s World**\
+`Former president Donald J. Trump has attempted to distance himself from Project 2025, the conservative policy initiative. But well over half of its contributors have worked for him, and many of its policies overlap with his.`\
+https://nytimes.com/interactive/2024/10/22/us/politics/project-2025-trump-heritage-foundation.html
 
-**A Reluctant Satirist Takes On the Bomb**\
-`Armando Iannucci, the mastermind behind “Veep,” has adapted “Dr. Strangelove” for the theater and insists that laughing at nuclear disaster couldn’t be more timely.`\
-https://nytimes.com/2024/10/22/theater/dr-strangelove-armando-iannucci-veep.html
+**Two Weeks to Go, but Only One Way to Stay Calm**\
+`The presidential race is close. For now, we have to live with that.`\
+https://nytimes.com/2024/10/22/opinion/harris-trump-polling-averages.html
 
-**Ducks Do More Than You Might Think to Help Save the Planet**\
-`At the Bruce Museum, an exhibition of duck stamp art tells a 90-year-old story about how paintings can contribute to land preservation.`\
-https://nytimes.com/2024/10/22/arts/duck-stamp-bruce-museum.html
+**Two Theories for Why the Polls Failed in 2020, and What It Means for 2024**\
+`To make polling better, you have to figure out what went wrong in the first place.`\
+https://nytimes.com/2024/10/22/upshot/polling-errors-2024-election.html
 
-**Sorry, Trump. The Issue of Abortion Is Not Going Away.**\
-`It resists all attempts at moderation and compromise.`\
-https://nytimes.com/2024/10/22/opinion/abortion-trump-republicans.html
+**New York’s Old Guard Meets a Sexy Newcomer**\
+`The literary establishment welcomes Feeld, a very sex-positive dating app, at a party on the Upper East Side.`\
+https://nytimes.com/2024/10/22/style/literary-new-york-feeld-dating-app.html
 
-**A Dinky Little Computer Program Is My Secret Weapon for Creativity**\
-`Remember Microsoft Paint? It’s more perfect than ever.`\
-https://nytimes.com/2024/10/22/magazine/a-dinky-little-computer-program-is-my-secret-weapon-for-creativity.html
+**You’re Being Lied To About Voter Fraud. Here’s the Truth.**\
+`Widespread cheating at the polls is a myth. So what are election deniers really after?`\
+https://nytimes.com/2024/10/22/opinion/election-fraud-voting-security.html
 
-**Bethany Joy Lenz Wanted Community. She Ended Up in a Cult.**\
-`The “One Tree Hill” actor has written a memoir of the decade she spent beholden to the Big House Family — and her escape.`\
-https://nytimes.com/2024/10/22/books/review/bethany-joy-lenz-dinner-for-vampires.html
+**Throwing, running and lead blocking: Lamar Jackson is once again the star of the show**\
+`The two-time MVP accounted for 333 total yards and five touchdown passes as Baltimore extended its win streak to five games.`\
+https://nytimes.com/athletic/5862755/2024/10/22/ravens-win-buccaneers-lamar-jackson/
 
-**Blending Reality With Fiction in Video Game Horror**\
-`Although it’s an expensive, arduous process, developers are experimenting with live-action footage to intensify terror.`\
-https://nytimes.com/2024/10/22/arts/alan-wake-2-the-lake-house-video-game-horror.html
+**Yellen Rebukes Chinese Lending Practices in Call for Debt Relief**\
+`In an interview, the Treasury secretary also highlighted progress at the World Bank and the International Monetary Fund ahead of annual meetings this week.`\
+https://nytimes.com/2024/10/22/us/politics/janet-yellen-china-lending.html
 
