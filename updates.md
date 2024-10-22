@@ -1,3 +1,11 @@
+**With Keon Sabb out, Alabama needs Bray Hubbard to step up: Alabama notebook**\
+`Sabb played against Tennessee with a broken foot, but will be out for a while. Also, Alabama flips a tight end commit from North Carolina.`\
+https://nytimes.com/athletic/5864672/2024/10/22/alabama-crimson-tide-keon-sabb-recruiting/
+
+**Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
+`Wrexham were were unable to mark the 160th anniversary of their first ever match with a win as Huddersfield earned a hard-fought point`\
+https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
+
 **C.E.O. of Real Estate Giant Douglas Elliman Retires Amid Mounting Criticism**\
 `Howard Lorber faced calls to reduce his compensation, amid allegations of sexual assault by agents and plummeting stock prices.`\
 https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
