@@ -1,3 +1,7 @@
+**America’s Flooding Problem**\
+`We explain how the country is responding in three different ways to disasters.`\
+https://nytimes.com/2024/10/22/briefing/americas-flooding-problem.html
+
 **Mets exceeded all expectations in 2024. Now the bar is higher**\
 `Increased expectations mean the Mets must set themselves up to finish the job once they reach the postseason.`\
 https://nytimes.com/athletic/5861340/2024/10/22/mets-david-stearns-offseason-expectations/
