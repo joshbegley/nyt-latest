@@ -1,3 +1,7 @@
+**In Nevada, Filipino Americans Could Be a Key Factor in Crucial Races**\
+`Democrats in particular have tried to reach Filipino American voters, who now make up the largest Asian American group in Nevada.`\
+https://nytimes.com/2024/10/22/world/asia/filipino-american-voters-nevada.html
+
 **Threats to Election Workers Are Focus of New Campaign**\
 `American officials are highly concerned about the potential for violence against election workers on and around Nov. 5.`\
 https://nytimes.com/2024/10/22/us/politics/election-workers-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/top-gun-instructor-dead-plane-crash.html
 **Embiid, George ruled out for 76ers' season opener vs. Bucks**\
 `Embiid has progressed well and is ramping up toward a return after missing much of the preseason with left knee maintenance.`\
 https://nytimes.com/athletic/5863906/2024/10/22/sixers-joel-embiid-paul-george-out-season-opener/
-
-**U.S. Agrees to Give Ukraine Millions to Build More Long-Range Drones**\
-`The move, confirmed by a Pentagon official, signifies a change in U.S. policy aimed at shoring up Ukraine’s ability to fight the war against Russia with its own weapons.`\
-https://nytimes.com/2024/10/22/world/europe/us-ukraine-aid-long-range-drones.html
 

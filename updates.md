@@ -1,3 +1,7 @@
+**Threats to Election Workers Are Focus of New Campaign**\
+`American officials are highly concerned about the potential for violence against election workers on and around Nov. 5.`\
+https://nytimes.com/2024/10/22/us/politics/election-workers-threats.html
+
 **Super Bowl odds: The Chiefs' top challenger is closing in**\
 `The Ravens decisive Week 7 win solidified their spot as the second-favorite to win the Super Bowl. But dark horse contenders lurk.`\
 https://nytimes.com/athletic/5861346/2024/10/22/super-bowl-odds-week-8-chiefs-ravens-lions-49ers/

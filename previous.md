@@ -1,3 +1,7 @@
+**Threats to Election Workers Are Focus of New Campaign**\
+`American officials are highly concerned about the potential for violence against election workers on and around Nov. 5.`\
+https://nytimes.com/2024/10/22/us/politics/election-workers-threats.html
+
 **Super Bowl odds: The Chiefs' top challenger is closing in**\
 `The Ravens decisive Week 7 win solidified their spot as the second-favorite to win the Super Bowl. But dark horse contenders lurk.`\
 https://nytimes.com/athletic/5861346/2024/10/22/super-bowl-odds-week-8-chiefs-ravens-lions-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863906/2024/10/22/sixers-joel-embiid-paul-george-o
 **U.S. Agrees to Give Ukraine Millions to Build More Long-Range Drones**\
 `The move, confirmed by a Pentagon official, signifies a change in U.S. policy aimed at shoring up Ukraine’s ability to fight the war against Russia with its own weapons.`\
 https://nytimes.com/2024/10/22/world/europe/us-ukraine-aid-long-range-drones.html
-
-**Has Notre Dame found an identity? Final thoughts on Georgia Tech and what's next**\
-`Notre Dame is re-entering the national conversation at 6-1 before a ranked matchup with Navy. Have the Irish learned how to handle success?`\
-https://nytimes.com/athletic/5863956/2024/10/22/notre-dame-riley-leonard-georgia-tech/
 
