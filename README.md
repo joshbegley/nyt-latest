@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5863080/2024/10/22/bailey-zappe-browns-quarterback/
 `Pep Guardiola says he had “never been so angry” after John Stones and Kyle Walker returned from England duty injured during last season’s domestic run-in.`\
 https://nytimes.com/athletic/5863113/2024/10/22/pep-guardiola-manchester-city-injuries/
 
+**Raiders rookie Brock Bowers' YAC secret? 'I just catch the ball and run with it'**\
+`Bowers' 47 catches through his first seven career games are the most in Raiders history and the most in NFL history by a tight end.`\
+https://nytimes.com/athletic/5861805/2024/10/22/brock-bowers-raiders-tight-end-record-yac/
+
 **Tell us your wackiest Fantasy Premier League sleuthing stories**\
 `We want to know the lengths you've gone to in order to gain an advantage in FPL`\
 https://nytimes.com/athletic/5863070/2024/10/22/fantasy-premier-league-fpl-research-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/22/us/harris-trump-election
 **The Athletic FC: Top Euro leagues - a style guide, 'superstar' Viana, Liga match in Miami?**\
 `Today in TAFC: The contrasting styles of the top four European leagues, Manchester City's new boss and the prospect of a Liga match in Miami`\
 https://nytimes.com/athletic/5862947/2024/10/22/champions-league-style-barcelona-atletico/
-
-**The Era of Outsized Market Rallies Could Be Over**\
-`The S&P 500’s huge gains over the past two years won’t be duplicated some analysts say, as a series of economic challenges piles up.`\
-https://nytimes.com/2024/10/22/business/dealbook/sp-500-rally-markets.html
 
