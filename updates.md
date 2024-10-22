@@ -1,3 +1,7 @@
+**Biden Quickly Backtracks After Saying Trump Should Be Locked Up**\
+`The president appeared to slip by suggesting he wanted his predecessor put behind bars, but revised his comment to say he meant locked up “politically.”`\
+https://nytimes.com/2024/10/22/us/politics/biden-trump-lock-him-up.html
+
 **As Election Nears, Kelly Warns Trump Would Rule Like a Dictator**\
 `John Kelly, the Trump White House’s longest-serving chief of staff, said that he believed that Donald Trump met the definition of a fascist.`\
 https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.html
