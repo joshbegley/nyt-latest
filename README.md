@@ -1,3 +1,7 @@
+**How a Knack for Provocation Fueled Mark Robinson’s Rise**\
+`Recklessness has characterized Mr. Robinson’s online persona, his personal life and his rocky campaign for governor in North Carolina.`\
+https://nytimes.com/2024/10/22/us/how-a-knack-for-provocation-fueled-mark-robinsons-rise.html
+
 **Wordle Review No. 1,222**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 23, 2024.`\
 https://nytimes.com/2024/10/22/crosswords/wordle-review-1222.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863898/2024/10/22/fantasy-football-stock-watch-hen
 **Rams have spoken with teams about Cooper Kupp trade: Sources**\
 `Kupp’s base salary entering the season was $15 million with a cap number of $29 million. He is due a $7.5 million roster bonus in March.`\
 https://nytimes.com/athletic/5864141/2024/10/22/cooper-kupp-rams-trade-calls-price/
-
-**They Sued Juul and Now It’s Payday**\
-`Unexpected payments from a class-action lawsuit have some TikTok users feeling flush.`\
-https://nytimes.com/2024/10/22/style/juul-lawsuit-payments-tiktok.html
 
