@@ -1,3 +1,11 @@
+**Owner of Frank Lloyd Wright Skyscraper Sues Preservation Group**\
+`The owner of Price Tower says the Frank Lloyd Wright Building Conservancy has interfered with the proposed sale of the building by claiming a preservation easement on the property.`\
+https://nytimes.com/2024/10/22/arts/design/frank-lloyd-wright-skyscraper-price-tower-lawsuit.html
+
+**Filipino American Voters Could Decide Key Races in Nevada**\
+`Democrats in particular have tried to reach voters who are now part of the largest Asian American group in Nevada.`\
+https://nytimes.com/2024/10/22/us/elections/filipino-american-voters-nevada.html
+
 **Evangelos Marinakis, the FA and phlegm: A case study in (disgusting) absurdity**\
 `Ludicrous language and arguments from both sides in the written explanation for Nottingham Forest owner's ban cheapen a serious issue`\
 https://nytimes.com/athletic/5863991/2024/10/22/marinakis-spitting-fa-report/
