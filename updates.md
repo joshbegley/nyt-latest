@@ -1,3 +1,7 @@
+**Dock Tragedy Strikes a Georgia Community Fighting to Protect Its Culture**\
+`The deaths of seven people on Sapelo Island have brought to the fore longstanding frustrations among its Gullah Geechee community.`\
+https://nytimes.com/2024/10/21/us/dock-collapse-sapelo-island-georgia.html
+
 **Nuggets re-sign 'heart and soul' Aaron Gordon to 4-year extension**\
 `"In many ways, Aaron is the heart and soul of the team," Nuggets general manager Calvin Booth told The Athletic after the agreement.`\
 https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extension/
