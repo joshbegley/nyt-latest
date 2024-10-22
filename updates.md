@@ -1,3 +1,7 @@
+**Nottingham Forest are thriving**\
+`Up to eighth in the Premier League after victory over Crystal Palace, Nuno Espirito Santo's side have rarely looked more accomplished`\
+https://nytimes.com/athletic/5862271/2024/10/22/nottingham-forest-crystal-palace-wood-henderson-anderson/
+
 **Late Night Mocks Trump for His McDonald’s Photo Op**\
 `The ex-president’s stint at the drive-through window was “blue-collar drag,” said Stephen Colbert. “But with more makeup.”`\
 https://nytimes.com/2024/10/22/arts/television/late-night-trump-mcdonalds.html
