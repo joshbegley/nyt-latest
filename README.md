@@ -1,3 +1,7 @@
+**Live Q&A: Week 8 fantasy football add/drop chat with Jay Felicio, Tuesday 10/22 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5862382/2024/10/22/live-qa-week-8-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-22-at-5-p-m-et/
+
 **Colorado WR/CB Travis Hunter expected to contribute more vs. Cincinnati**\
 `Hunter, who played more than 120 snaps in each of Colorado's first five games, has been limited to less than 50 in the last two weeks.`\
 https://nytimes.com/athletic/5864186/2024/10/22/colorado-buffaloes-football-travis-hunter-injury-deion-sanders/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/harris-muslim-arab-voters.html
 **Slot links Chiesa's injury issues to missed pre-season and intensity of English football**\
 `Liverpool head coach Arne Slot says Federico Chiesa’s injury issues are linked to missing pre-season and adjusting to the greater intensity of English football.`\
 https://nytimes.com/athletic/5864147/2024/10/22/federico-chiesa-liverpool-injury/
-
-**Filipino American Voters Could Decide Key Races in Nevada**\
-`Democrats in particular have tried to reach voters who are now part of the largest Asian American group in Nevada.`\
-https://nytimes.com/2024/10/22/us/elections/filipino-american-voters-nevada.html
 

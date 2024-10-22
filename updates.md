@@ -1,3 +1,7 @@
+**Colorado WR/CB Travis Hunter expected to contribute more vs. Cincinnati**\
+`Hunter, who played more than 120 snaps in each of Colorado's first five games, has been limited to less than 50 in the last two weeks.`\
+https://nytimes.com/athletic/5864186/2024/10/22/colorado-buffaloes-football-travis-hunter-injury-deion-sanders/
+
 **NIT alters selection process, will give auto-bids to 2 ACC, SEC teams**\
 `The change comes as FOX is set to debut its own 16-team rival postseason tournament in partnership with the Big Ten, Big 12 and Big East.`\
 https://nytimes.com/athletic/5864192/2024/10/22/nit-selection-process-2025/
