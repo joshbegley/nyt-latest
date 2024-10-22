@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-inj
 `\
 https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
 
+**Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
+`Both Godwin and Evans left Monday night's loss to the Ravens with injuries
+`\
+https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
+
 **The F.B.I. is investigating a leak of classified documents that appear to show Israel’s plans for retaliatory attacks on Iran.**\
 `By Adam Goldman`\
 https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/fbi-israel-iran-leak
