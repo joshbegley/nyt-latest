@@ -1,3 +1,7 @@
+**You’re Being Lied To About Voter Fraud. Here’s the Truth.**\
+`Widespread cheating at the polls is a myth. So what are election deniers really after?`\
+https://nytimes.com/video/opinion/100000009768157/election-fraud-voting-security.html
+
 **Kyler Murray's TD romp leads Cardinals to MNF win over Chargers**\
 `Murray has done this before. Called his shot. Making it clear that he knows what is about to happen before everyone else.`\
 https://nytimes.com/athletic/5862741/2024/10/22/cardinals-kyler-murray-defeat-chargers/
