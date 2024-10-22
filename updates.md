@@ -1,3 +1,11 @@
+**In Michigan, a Queer Retreat With Dancing in the Woods**\
+`The editor Ryan Fitzgibbon invited collaborators to toast “A Great Gay Book,” a new collection of pieces from his influential, now-defunct magazine, Hello Mr.`\
+https://nytimes.com/2024/10/22/t-magazine/ox-bow-artists-residency-michigan.html
+
+**More Republicans Appear to be Voting Early**\
+`Also, Israel said it killed a top Hezbollah leader. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/10/22/briefing/early-voting-republicans-global-inlfation-fight.html
+
 **Calafiori injury 'not great news', Saka 'unlikely' to be fit for Liverpool**\
 `Mikel Arteta says the injury sustained by left-back Riccardo Calafiori during Arsenal&#8217;s victory over Shakhtar Donetsk is &#8220;not great news&#8221;, while Bukayo Saka is &#8220;unlikely&#8221; to be available against Liverpool on Sunday.`\
 https://nytimes.com/athletic/5864835/2024/10/22/calafiori-saka-arsenal-injury/
