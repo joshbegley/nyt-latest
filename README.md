@@ -1,3 +1,11 @@
+**Raphinha addresses 'disrespectful' reaction following Williams saga**\
+`Raphinha has described some of the reaction he received following Barcelona&#8217;s summer pursuit of Nico Williams as &#8220;disrespectful&#8221;.`\
+https://nytimes.com/athletic/5863165/2024/10/22/raphinha-nico-williams-barcelona/
+
+**FIFA and FIFPro row escalates over player compensation shortfall**\
+`The row between FIFA and the global players’ union FIFPro over football’s congested calendar has caused what appears to be a complete breakdown in cooperation between the two organisations.`\
+https://nytimes.com/athletic/5863235/2024/10/22/fifa-fifpro-fund-for-football-players/
+
 **I.M.F. Says Inflation Fight Is Largely Over but Warns of New Threats**\
 `The International Monetary Fund said protectionism and new trade wars could weigh on growth.`\
 https://nytimes.com/2024/10/22/business/economy/imf-says-inflation-fight-is-largely-over-but-warns-of-new-threats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5861051/2024/10/22/josh-acheampong-chelsea-contract
 **NBA Reliability Tiers: Tyrese Maxey, Lauri Markkanen and the Kawhi Leonard irony**\
 `You can't count on the stars in Tier 4 to be the best player for a contender this upcoming season. Who are they? `\
 https://nytimes.com/athletic/5852497/2024/10/22/nba-kawhi-leonard-tyrese-maxey-lauri-markkanen/
-
-**Browns signing Zappe off Chiefs practice squad amid QB injuries**\
-`Whether the Browns need an emergency option or an immediate No. 2, Zappe makes sense given his experience and the lack of true free agents.`\
-https://nytimes.com/athletic/5863080/2024/10/22/bailey-zappe-browns-quarterback/
-
-**Guardiola 'never been so angry' as after Stones, Walker injuries for England**\
-`Pep Guardiola says he had “never been so angry” after John Stones and Kyle Walker returned from England duty injured during last season’s domestic run-in.`\
-https://nytimes.com/athletic/5863113/2024/10/22/pep-guardiola-manchester-city-injuries/
 
