@@ -1,3 +1,19 @@
+**Super Bowl odds: The Chiefs' top challenger is closing in**\
+`The Ravens decisive Week 7 win solidified their spot as the second-favorite to win the Super Bowl. But dark horse contenders lurk.`\
+https://nytimes.com/athletic/5861346/2024/10/22/super-bowl-odds-week-8-chiefs-ravens-lions-49ers/
+
+**Lukeba and Leipzig reach agreement over contract extension**\
+`RB Leipzig have reached an agreement with defender Castello Lukeba over a new one-year contract extension.`\
+https://nytimes.com/athletic/5864030/2024/10/22/castello-lukeba-rb-leipzig-contract/
+
+**6 Social Media Accounts That Changed How I Rediscover Music**\
+`Hear songs surfaced by Ryley Walker, Drumeo and other feeds from Bring Me the Horizon, Lil Tecca and more.`\
+https://nytimes.com/2024/10/22/arts/music/amplifier-newsletter-music-social-media-accounts.html
+
+**'I consider myself lucky': Dominic Thiem and the agonising what-ifs of tennis**\
+`When the Austrian collapsed to the ground in celebration on a silent Arthur Ashe in 2020, he had finally made it. He could have had more`\
+https://nytimes.com/athletic/5713759/2024/10/22/dominic-thiem-interview/
+
 **F.D.A. Names a New Chief of Medical Devices**\
 `Patient advocates hope Dr. Michelle Tarver will lead the agency to focus more on safety and less on rapid approvals.`\
 https://nytimes.com/2024/10/22/health/fda-medical-devices.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/22/world/europe/us-ukraine-aid-long-range-drones.htm
 **Has Notre Dame found an identity? Final thoughts on Georgia Tech and what's next**\
 `Notre Dame is re-entering the national conversation at 6-1 before a ranked matchup with Navy. Have the Irish learned how to handle success?`\
 https://nytimes.com/athletic/5863956/2024/10/22/notre-dame-riley-leonard-georgia-tech/
-
-**Israel Says Seven People Planned to Carry Out Killings in Israel on Behalf of Iran**\
-`The suspects planned to assassinate two people, a senior Israeli scientist and the mayor of a large Israeli city, authorities said.`\
-https://nytimes.com/2024/10/22/world/middleeast/israel-arrests-iran-spying.html
-
-**OpenAI Hires Former White House Official as Its Chief Economist**\
-`Aaron Chatterji was chief economist at the Commerce Department under President Biden and served on President Obama’s Council of Economic Advisers.`\
-https://nytimes.com/2024/10/22/technology/openai-chief-economist.html
-
-**Which Republican might join a Harris cabinet? We asked around.**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election/which-republican-might-join-a-harris-cabinet-we-asked-around
-
-**Teenager Is in Custody After 5 Are Found Dead in Home Shooting**\
-`The teenager, a 15-year-old boy, was scheduled to appear in court on Tuesday after two adults and three juveniles were found dead at a home near Seattle.`\
-https://nytimes.com/2024/10/22/us/shooting-teen-custody-washington.html
 
