@@ -1,3 +1,11 @@
+**Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
+`Wrexham were were unable to mark the 160th anniversary of their first match with a win as Huddersfield earned a hard-fought goalless draw`\
+https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
+
+**Aid workers say they are encountering Israeli resistance in northern Gaza.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/aid-workers-say-they-are-encountering-israeli-resistance-in-northern-gaza
+
 **49ers mailbag: Where have all the screen passes gone?**\
 `Among this week's questions: Why kind of compensatory picks are the 49ers expecting and should the team be sellers at the trade deadline?`\
 https://nytimes.com/athletic/5864511/2024/10/22/49ers-mailbag-screen-passes-special-teams-trade-deadline-sell/

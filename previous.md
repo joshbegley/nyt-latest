@@ -1,3 +1,11 @@
+**Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
+`Wrexham were were unable to mark the 160th anniversary of their first match with a win as Huddersfield earned a hard-fought goalless draw`\
+https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
+
+**Aid workers say they are encountering Israeli resistance in northern Gaza.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/aid-workers-say-they-are-encountering-israeli-resistance-in-northern-gaza
+
 **49ers mailbag: Where have all the screen passes gone?**\
 `Among this week's questions: Why kind of compensatory picks are the 49ers expecting and should the team be sellers at the trade deadline?`\
 https://nytimes.com/athletic/5864511/2024/10/22/49ers-mailbag-screen-passes-special-teams-trade-deadline-sell/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/t-magazine/ox-bow-artists-residency-michigan.html
 **More Republicans Appear to be Voting Early**\
 `Also, Israel said it killed a top Hezbollah leader. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/10/22/briefing/early-voting-republicans-global-inlfation-fight.html
-
-**Calafiori injury 'not great news', Saka 'unlikely' to be fit for Liverpool**\
-`Mikel Arteta says the injury sustained by left-back Riccardo Calafiori during Arsenal&#8217;s victory over Shakhtar Donetsk is &#8220;not great news&#8221;, while Bukayo Saka is &#8220;unlikely&#8221; to be available against Liverpool on Sunday.`\
-https://nytimes.com/athletic/5864835/2024/10/22/calafiori-saka-arsenal-injury/
-
-**Trump calls Harris ‘lazy’ as the campaigns trade jabs about who is more tired.**\
-`By Michael Gold`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election/trump-calls-harris-lazy-as-the-campaigns-trade-jabs-about-who-is-more-tired
 
