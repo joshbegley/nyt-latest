@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Trami**\
+`See the likely path and wind arrival times for Trami.`\
+https://nytimes.com/interactive/2024/10/21/weather/trami-map-path-tracker.html
+
 **The Election Has Taken Over TikTok. Here’s What It Looks Like.**\
 `Tens of thousands of videos are posted to TikTok each week about the presidential election, including dances set to songs made from speech snippets, comedic impersonations, pranks and even news commentary.`\
 https://nytimes.com/interactive/2024/10/21/business/media/2024-election-tiktok-trump-harris.html
@@ -35,8 +39,4 @@ https://nytimes.com/video/us/elections/100000009774584/liz-cheney-harris.html
 **Raiders sign QB Desmond Ridder: Could he be an option to start?**\
 `Raiders lost Aidan O'Connell to injury in Week 7 and Gardner Minshew has underwhelmed as the new QB1.`\
 https://nytimes.com/athletic/5862113/2024/10/21/raiders-sign-desmond-ridder/
-
-**Japanese American leaders criticize Trump for Jan. 6 comparison.**\
-`By Amy Qin`\
-https://nytimes.com/live/2024/10/21/us/harris-trump-election/japanese-american-leaders-criticize-trump-for-jan-6-comparison
 

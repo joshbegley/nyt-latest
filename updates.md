@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Trami**\
+`See the likely path and wind arrival times for Trami.`\
+https://nytimes.com/interactive/2024/10/21/weather/trami-map-path-tracker.html
+
 **The Election Has Taken Over TikTok. Here’s What It Looks Like.**\
 `Tens of thousands of videos are posted to TikTok each week about the presidential election, including dances set to songs made from speech snippets, comedic impersonations, pranks and even news commentary.`\
 https://nytimes.com/interactive/2024/10/21/business/media/2024-election-tiktok-trump-harris.html
