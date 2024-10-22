@@ -1,3 +1,7 @@
+**Late Night Mocks Trump for His McDonald’s Photo Op**\
+`The ex-president’s stint at the drive-through window was “blue-collar drag,” said Stephen Colbert. “But with more makeup.”`\
+https://nytimes.com/2024/10/22/arts/television/late-night-trump-mcdonalds.html
+
 **Northern Ireland vs Belarus set for Belfast as planned despite visa concerns**\
 `Uncertainty remains over the venue for Northern Ireland’s home game against Belarus next month but all parties are working towards the fixture being played in Belfast as planned.`\
 https://nytimes.com/athletic/5860312/2024/10/22/northern-ireland-belarus-nations-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860510/2024/10/22/van-nistelrooy-hake-ten-hag-coac
 **Arsenal Today: Shakhtar, Zinchenko, Wilshere and happy birthday Arsene!**\
 `Welcome to Arsenal Today, your morning digest of what's going on at the club and what is piqueing out writers' interests`\
 https://nytimes.com/athletic/5860959/2024/10/22/arsenal-today-october-22/
-
-**Iling-Junior's journey from Chelsea to Serie A and Villa, by those who know him**\
-`Iling-Junior has come a long way from the park pitches of north London - he could face his parent club Aston Villa now he's at Bologna`\
-https://nytimes.com/athletic/5695445/2024/10/22/samuel-iling-juniors-journey-from-chelsea-to-serie-a-and-aston-villa-by-those-who-know-him/
 
