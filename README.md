@@ -1,3 +1,11 @@
+**Astros to hire Tony Perezchica as new third-base coach: Source**\
+`Perezchica, 58, would replace Gary Pettis, who did not have his contract renewed after 10 years on Houston's staff.`\
+https://nytimes.com/athletic/5863436/2024/10/22/astros-hire-tony-perezchica-third-base-coach/
+
+**Giants hit breaking point with Daniel Jones; only a matter of time before he's benched again?**\
+`Unless Jones shows drastic improvement in generating explosive plays, Sunday’s benching likely won’t be the last of the season.`\
+https://nytimes.com/athletic/5862646/2024/10/22/giants-daniel-jones-benched-brian-daboll-drew-lock/
+
 **HSBC Overhauls Bank, Seeking to Balance China and the West**\
 `The restructuring of Europe’s largest lender comes as it looks to cut costs and navigate a diplomatic minefield across its sprawling operations.`\
 https://nytimes.com/2024/10/22/business/dealbook/hsbc-restructuring-china-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/business/economy/imf-says-inflation-fight-is-larg
 **The Princess and the Justice**\
 `Princess Gloria von Thurn und Taxis bonded with Justice Samuel A. Alito Jr. over Catholicism and ending abortion. She introduced him to her sumptuous world when he visited her Bavarian palace.`\
 https://nytimes.com/2024/10/22/us/politics/samuel-alito-princess-gloria.html
-
-**West Ham's Kudus charged by FA following red card**\
-`Mohammed Kudus faces the possibility of further punishment after the Football Association (FA) charged the West Ham United forward following his red card at Tottenham Hotspur.`\
-https://nytimes.com/athletic/5854961/2024/10/22/mohammed-kudus-red-card-ban-how-long/
-
-**Diego Forlan: Man Utd striker, Golden Ball winner, and pro tennis player - at 45**\
-`Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
-https://nytimes.com/athletic/5683356/2024/10/22/diego-forlan-interview-tennis-football-manchester-united-uruguay/
 
