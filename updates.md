@@ -1,3 +1,11 @@
+**Marc Lore, Alex Rodriguez are positioning themselves for a full Timberwolves takeover**\
+`If they prevail in arbitration, their ownership group will be brought to the NBA's Board of Governors for final approval as owners.`\
+https://nytimes.com/athletic/5864229/2024/10/22/marc-lore-alex-rodriguez-full-ownership-timberwolves/
+
+**The drone launched toward Netanyahu’s home on Saturday damaged the property, Israel’s military says.**\
+`Prime Minister Benjamin Netanyahu has characterized the attack as an assassination attempt against him and his wife, Sara. Hezbollah claimed full responsibility for the strike.`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/the-drone-launched-toward-netanyahus-home-on-saturday-damaged-the-property-israels-military-says
+
 **Fantasy football market share report: Romeo Doubs redemption, optimism for the TE position and more**\
 `Romeo Doubs has gone from the doghouse to the penthouse, and Michael Salfino says he has the most playable floor among Packers receivers.`\
 https://nytimes.com/athletic/5863818/2024/10/22/fantasy-football-market-share-report-week-7-romeo-doubs/
