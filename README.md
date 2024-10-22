@@ -1,3 +1,19 @@
+**Vance Vows an End to Programs for Legal Immigrants**\
+`Hundreds of thousands of immigrants live and work in the United States through programs that give them temporary legal status. In the border state of Arizona, JD Vance vowed they would stop.`\
+https://nytimes.com/2024/10/22/us/politics/vance-trump-legal-immigrants.html
+
+**Guardians postmortem: Notes on Shane Bieber, Josh Naylor, Stephen Vogt and more**\
+`“We need this to be a building block,” said Guardians president Chris Antonetti. “We want to take a step forward next year.”`\
+https://nytimes.com/athletic/5864558/2024/10/22/guardians-postmortem-shane-bieber-josh-naylor-stephen-vogt/
+
+**Nik Khamenia, No. 27 player in 2025 class, commits to Duke**\
+`Khamenia, the No. 27 recruit, gives the Blue Devils three top-30 commits and puts Jon Scheyer's team on pace for the No. 1 class in 2025.`\
+https://nytimes.com/athletic/5864849/2024/10/22/duke-blue-devils-basketball-nik-khamenia-jon-scheyer/
+
+**Biden Warns That Trump’s Election Could Jeopardize Health Care for Millions**\
+`The president mocked his predecessor for offering only “concepts of a plan” to replace the Affordable Care Act, which has grown more popular in recent years.`\
+https://nytimes.com/2024/10/22/us/politics/biden-trump-health-care.html
+
 **Modern Love Turns 20!**\
 `To celebrate the Modern Love column’s 20th anniversary this month, we put together a special package of articles exploring the column’s history and impact.`\
 https://nytimes.com/2024/10/22/style/modern-love-turns-20-newsletter.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5864511/2024/10/22/49ers-mailbag-screen-passes-spec
 **Commanders release 2021 first-round pick Jamin Davis**\
 `Davis had seven sacks and 282 tackles during his four seasons in Washington. `\
 https://nytimes.com/athletic/5864769/2024/10/22/commanders-release-jamin-davis/
-
-**Panthers extending coach Paul Maurice after championship season**\
-`The new contract will take effect starting in 2025-26 after Maurice's existing deal expires at the end of this season.`\
-https://nytimes.com/athletic/5864802/2024/10/22/paul-maurice-panthers-extension/
-
-**Blinken Urges Netanyahu to Seek Truces in Gaza and Lebanon**\
-`The U.S. secretary of state, visiting Israel, said the killing of Hamas’s leader last week could create an opening for peace, and he pushed the Israeli prime minister to allow more aid into Gaza.`\
-https://nytimes.com/2024/10/22/world/middleeast/blinken-netanyahu-cease-fire.html
-
-**Commanders CB Kevon Seymour suspended 6 games for PES violation**\
-`Seymour will not be eligible for reinstatement until Dec. 2, following Washington's Week 13 home game versus the Tennessee Titans.`\
-https://nytimes.com/athletic/5864738/2024/10/22/commanders-kevon-seymour-suspension/
-
-**Champions League briefing: Did Vinicius Jr just seal the Ballon d'Or? Plus a Pulisic olimpico**\
-`The major talking points from a dramatic night to begin matchweek three in the Champions League`\
-https://nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/
 
