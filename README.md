@@ -1,3 +1,7 @@
+**Son of Singapore’s First Prime Minister Says He Is Granted Asylum in Britain**\
+`Lee Hsien Yang accused his brother, a former prime minister, of persecuting him politically, inflaming the feud in Singapore’s first family.`\
+https://nytimes.com/2024/10/22/world/asia/singapore-lee-hsien-yang-political-asylum-uk.html
+
 **U.S. Charges Iranian Revolutionary Guards Official in Assassination Plot**\
 `The failed plot to kill Masih Alinejad, a human-rights activist, has already led to murder-for-hire charges against members of an Eastern European criminal organization with ties to Iran.`\
 https://nytimes.com/2024/10/22/nyregion/iran-assassination-plot-masih-alinejad.html
@@ -20,7 +24,7 @@ https://nytimes.com/2024/10/22/us/helene-north-carolina-missing.html
 
 **Blues sign Jake Neighbours to 2-year, $7.5 million extension**\
 `Neighbours' new contract will begin at the start of the 2025-26 season, and he will remain an RFA when the deal expires.`\
-https://nytimes.com/athletic/5863735/2024/10/22/blues-jake-neighbours-extension/
+https://nytimes.com/athletic/5863735/2024/10/22/blues-jake-neighbours-extension-analysis/
 
 **The Harris Team Tries to Tether Trump to Project 2025**\
 `A television ad conveys a key part of Kamala Harris’s closing argument: that her rival is a right-wing authoritarian who will make life less affordable and threaten access to abortion.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/world/middleeast/israel-strike-beirut-hospital.ht
 **Jamie Dimon Privately Supports Kamala Harris. He Just Won’t Say So.**\
 `JPMorgan’s chief executive has told associates of his support for the vice president, and his dislike of Donald Trump. But fearful of blowback, he won’t say it publicly.`\
 https://nytimes.com/2024/10/22/business/jamie-dimon-jpmorgan-harris-trump.html
-
-**Marinakis' ban was for 'spitting towards match officials', commission says**\
-`Nottingham Forest owner Evangelos Marinakis was given a five-match ban for spitting on the floor as the match officials walked past him following their 2-2 draw with Fulham last month.`\
-https://nytimes.com/athletic/5863715/2024/10/22/evangelos-marinakis-spit-forest/
 
