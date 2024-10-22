@@ -1,3 +1,7 @@
+**The A.I. Power Grab**\
+`Big tech companies say A.I. can help solve climate change, even as it’s driving up their emissions and raising doubts about their climate goals.`\
+https://nytimes.com/2024/10/22/climate/ai-big-tech-emissions.html
+
 **Live Q&A: Week 8 fantasy football add/drop chat with Jay Felicio, Tuesday 10/22 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5862382/2024/10/22/live-qa-week-8-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-22-at-5-p-m-et/
