@@ -1,3 +1,23 @@
+**LeBron 'won't take it for granted' as year 22 begins with Bronny as teammate**\
+`If the Lakers play Bronny with LeBron, it will be the first time in NBA history a father and son appear together in a game that counts.`\
+https://nytimes.com/athletic/5864334/2024/10/22/bronny-james-lebron-lakers-timberwolves/
+
+**Bengals mailbag: Submit your questions for beat reporter Paul Dehner Jr.**\
+`Let us know what's on your mind ahead of Sunday's matchup with the Eagles.`\
+https://nytimes.com/athletic/5864378/2024/10/22/bengals-mailbag-submit-questions-week-8/
+
+**Trump to Go on Joe Rogan’s Podcast, a Play to Reach Less Likely Voters**\
+`Two campaign officials said former President Donald J. Trump will record an interview Friday with the podcast that is popular with young men, a demographic that likes him but might not vote.`\
+https://nytimes.com/2024/10/22/us/politics/trump-joe-rogan-podcast.html
+
+**Fantasy football stock watch: Hunter Henry looks like a Top 10 tight end, Josh Downs has a quarterback problem**\
+`Dane Martinez offers buy/sell advice on some of the biggest market movers of late, including emerging tight end Hunter Henry.`\
+https://nytimes.com/athletic/5863898/2024/10/22/fantasy-football-stock-watch-henry-top-te-downs-qb-problem/
+
+**Rams have spoken with teams about Cooper Kupp trade: Sources**\
+`Kupp’s base salary entering the season was $15 million with a cap number of $29 million. He is due a $7.5 million roster bonus in March.`\
+https://nytimes.com/athletic/5864141/2024/10/22/cooper-kupp-rams-trade-calls-price/
+
 **They Sued Juul and Now It’s Payday**\
 `Unexpected payments from a class-action lawsuit have some TikTok users feeling flush.`\
 https://nytimes.com/2024/10/22/style/juul-lawsuit-payments-tiktok.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5862382/2024/10/22/live-qa-week-8-fantasy-football-
 **Colorado WR/CB Travis Hunter expected to contribute more vs. Cincinnati**\
 `Hunter, who played more than 120 snaps in each of Colorado's first five games, has been limited to less than 50 in the last two weeks.`\
 https://nytimes.com/athletic/5864186/2024/10/22/colorado-buffaloes-football-travis-hunter-injury-deion-sanders/
-
-**NIT alters selection process, will give auto-bids to 2 ACC, SEC teams**\
-`The change comes as FOX is set to debut its own 16-team rival postseason tournament in partnership with the Big Ten, Big 12 and Big East.`\
-https://nytimes.com/athletic/5864192/2024/10/22/nit-selection-process-2025/
-
-**Zohran Mamdani, a Democratic Socialist, Will Run Against Mayor Adams**\
-`Zohran Mamdani, a state lawmaker from Queens, has entered the Democratic primary for mayor of New York City, joining a crowded field hoping to unseat Eric Adams.`\
-https://nytimes.com/2024/10/22/nyregion/zohran-mamdani-mayor.html
-
-**Owner of Frank Lloyd Wright Skyscraper Sues Preservation Group**\
-`The owner of Price Tower says the Frank Lloyd Wright Building Conservancy has interfered with the proposed sale of the building by claiming a preservation easement on the property.`\
-https://nytimes.com/2024/10/22/arts/design/frank-lloyd-wright-skyscraper-price-tower-lawsuit.html
-
-**Evangelos Marinakis, the FA and phlegm: A case study in (disgusting) absurdity**\
-`Ludicrous language and arguments from both sides in the written explanation for Nottingham Forest owner's ban cheapen a serious issue`\
-https://nytimes.com/athletic/5863991/2024/10/22/marinakis-spitting-fa-report/
-
-**Why Harris Is Struggling With Blue-Collar Voters in Detroit**\
-`Not everyone is impressed by her background as a prosecutor.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/why-harris-is-struggling-with-blue-collar-voters-in-detroit
 
