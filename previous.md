@@ -1,3 +1,15 @@
+**With Election Looming, John Kelly Speaks Out on Trump**\
+`The former White House chief of staff and retired Marine general explained in a series of interviews why Americans should consider a candidate’s character.`\
+https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.html
+
+**The Difference Between Jamie Dimon and Bill Gates**\
+`Trump’s power of intimidation is usually effective, but some public figures are able to resist it.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/dimon-gates-trump-harris
+
+**If Trump Wins, Who, or What, Will Liberals Blame?**\
+`They should look at themselves and the way they practice politics.`\
+https://nytimes.com/2024/10/22/opinion/trump-kamala-harris-democrats.html
+
 **Douglas Elliman C.E.O. Retires**\
 `Howard Lorber faced calls to reduce his compensation, amid allegations of sexual assault by agents and plummeting stock prices.`\
 https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/biden-trump-health-care.html
 **Modern Love Turns 20!**\
 `To celebrate the Modern Love column’s 20th anniversary this month, we put together a special package of articles exploring the column’s history and impact.`\
 https://nytimes.com/2024/10/22/style/modern-love-turns-20-newsletter.html
-
-**Starbucks Reports a Slide in Sales and Traffic**\
-`“We need to fundamentally change our strategy,” the coffee giant’s new chief executive said.`\
-https://nytimes.com/2024/10/22/business/starbucks-earnings-sales.html
-
-**Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
-`Wrexham were were unable to mark the 160th anniversary of their first match with a win as Huddersfield earned a hard-fought goalless draw`\
-https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
-
-**Aid workers say they are encountering Israeli resistance in northern Gaza.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/aid-workers-say-they-are-encountering-israeli-resistance-in-northern-gaza
 

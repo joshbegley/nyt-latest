@@ -1,3 +1,15 @@
+**With Election Looming, John Kelly Speaks Out on Trump**\
+`The former White House chief of staff and retired Marine general explained in a series of interviews why Americans should consider a candidate’s character.`\
+https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.html
+
+**The Difference Between Jamie Dimon and Bill Gates**\
+`Trump’s power of intimidation is usually effective, but some public figures are able to resist it.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/dimon-gates-trump-harris
+
+**If Trump Wins, Who, or What, Will Liberals Blame?**\
+`They should look at themselves and the way they practice politics.`\
+https://nytimes.com/2024/10/22/opinion/trump-kamala-harris-democrats.html
+
 **Douglas Elliman C.E.O. Retires**\
 `Howard Lorber faced calls to reduce his compensation, amid allegations of sexual assault by agents and plummeting stock prices.`\
 https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
