@@ -1,7 +1,3 @@
-**Nestor Cortes knows his likely role: Shohei Ohtani stopper**\
-`Cortes has been sidelined this postseason with a flexor strain. He could be activated for the World Series.`\
-https://nytimes.com/athletic/5864934/2024/10/22/yankees-nestor-cortes-shohei-ohtani-world-series-matchup/
-
 **Vance Vows an End to Programs for Legal Immigrants**\
 `Hundreds of thousands of immigrants live and work in the United States through programs that give them temporary legal status. In the border state of Arizona, JD Vance vowed they would stop.`\
 https://nytimes.com/2024/10/22/us/politics/vance-trump-legal-immigrants.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/aid-work
 **49ers mailbag: Where have all the screen passes gone?**\
 `Among this week's questions: Why kind of compensatory picks are the 49ers expecting and should the team be sellers at the trade deadline?`\
 https://nytimes.com/athletic/5864511/2024/10/22/49ers-mailbag-screen-passes-special-teams-trade-deadline-sell/
+
+**Commanders release 2021 first-round pick Jamin Davis**\
+`Davis had seven sacks and 282 tackles during his four seasons in Washington. `\
+https://nytimes.com/athletic/5864769/2024/10/22/commanders-release-jamin-davis/
 
