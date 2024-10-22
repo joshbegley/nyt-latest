@@ -1,3 +1,11 @@
+**Republicans Who Led 2020 Election Denial Now Sowing Doubt in 2024 Votes**\
+`The efforts could help lay the groundwork for what could become another push to undermine the results if former President Donald J. Trump loses again.`\
+https://nytimes.com/2024/10/22/us/politics/election-2024-denial-congress.html
+
+**Harris will campaign in Texas to call attention to abortion rights.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election/harris-texas-abortion-trump
+
 **Astros to hire Tony Perezchica as new third-base coach: Source**\
 `Perezchica, 58, would replace Gary Pettis, who did not have his contract renewed after 10 years on Houston's staff.`\
 https://nytimes.com/athletic/5863436/2024/10/22/astros-hire-tony-perezchica-third-base-coach/
