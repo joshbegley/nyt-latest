@@ -1,3 +1,7 @@
+**NFL MVP odds: Lamar Jackson jumps Patrick Mahomes for top spot**\
+`Lamar Jackson has Baltimore on a five-game winning streak and took the top spot in the MVP odds from Patrick Mahomes.`\
+https://nytimes.com/athletic/5863796/2024/10/22/nfl-mvp-odds-week-8-lamar-jackson/
+
 **Bruce Springsteen Will Perform for Harris in Battleground States**\
 `The rocker will appear at a rally on Thursday in Atlanta alongside the vice president, and again at an event next week in Philadelphia with Barack Obama.`\
 https://nytimes.com/2024/10/22/us/politics/springsteen-harris-atlanta-obama-philly.html
