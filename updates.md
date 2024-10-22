@@ -1,3 +1,15 @@
+**Douglas Elliman C.E.O. Retires**\
+`Howard Lorber faced calls to reduce his compensation, amid allegations of sexual assault by agents and plummeting stock prices.`\
+https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
+
+**Nestor Cortes knows his likely role: Shohei Ohtani stopper**\
+`Cortes has been sidelined this postseason with a flexor strain. He could be activated for the World Series.`\
+https://nytimes.com/athletic/5864934/2024/10/22/yankees-nestor-cortes-shohei-ohtani-world-series-matchup/
+
+**Starbucks Reports a Slide in Sales and Traffic**\
+`“We need to fundamentally change our strategy,” the coffee giant’s new chief executive said.`\
+https://nytimes.com/2024/10/22/business/starbucks-earnings-sales.html
+
 **Guardians postmortem: Notes on Shane Bieber, Josh Naylor, Stephen Vogt and more**\
 `“We need this to be a building block,” Guardians president Chris Antonetti said. “We want to take a step forward next year.”`\
 https://nytimes.com/athletic/5864558/2024/10/22/guardians-postmortem-shane-bieber-josh-naylor-stephen-vogt/
