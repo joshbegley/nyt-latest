@@ -1,3 +1,7 @@
+**Lions' Jameson Williams facing 2-game suspension for violating NFL's PES policy**\
+`Williams, 23, has caught 17 passes for 361 yards and three touchdowns through six games this season.`\
+https://nytimes.com/athletic/5862542/2024/10/21/jameson-williams-ped-suspension-lions/
+
 **Lions' Jameson Williams suspended for violating NFL's PES policy**\
 `Williams, 23, has caught 17 passes for 361 yards and three touchdowns through six games this season.`\
 https://nytimes.com/athletic/5862542/2024/10/21/jameson-williams-ped-suspension-lions/
