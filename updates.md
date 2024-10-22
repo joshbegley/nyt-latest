@@ -1,3 +1,15 @@
+**Could Polish American Voters Swing the Election?**\
+`Voters with Eastern European backgrounds could be crucial in Pennsylvania, Michigan and Wisconsin.`\
+https://nytimes.com/2024/10/22/us/politics/christine-baranski-harris-polish-american-voters.html
+
+**Biden Mocks Trump’s ‘Concept of a Plan’ to Replace Obamacare**\
+`During a visit to New Hampshire to discuss the cost of prescription drugs, President Biden warned that a second Trump presidency could lead millions of people to lose health care.`\
+https://nytimes.com/video/us/elections/100000009776814/biden-drug-costs.html
+
+**There’s One Main Culprit if Donald Trump Wins**\
+`They should look at themselves and the way they practice politics.`\
+https://nytimes.com/2024/10/22/opinion/trump-kamala-harris-democrats.html
+
 **Artist Sues Town for Canceling Residency Over Her Views on Gaza War**\
 `The American Civil Liberties Union has sued Vail, Colo., on behalf of a Native American artist who painted a work entitled “G is for Genocide.”`\
 https://nytimes.com/2024/10/22/us/vail-artist-gaza-war.html
