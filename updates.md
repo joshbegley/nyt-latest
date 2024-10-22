@@ -1,3 +1,7 @@
+**China Turns Up the Heat on Taiwan With Live-Fire Drills**\
+`The drills were the latest show of force by China, which claims Taiwan as its territory and has protested Western support for the island.`\
+https://nytimes.com/2024/10/22/world/asia/china-taiwan-live-fire-drills.html
+
 **Cardinals defeat Chargers on game-winning FG: Key takeaways**\
 `Kyler Murray led the Cardinals from their own 30-yard line to the Chargers' 14 to set Ryland up.`\
 https://nytimes.com/athletic/5862676/2024/10/22/chargers-cardinals-monday-night-football-score-takeaways/
