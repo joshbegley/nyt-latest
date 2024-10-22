@@ -1,3 +1,7 @@
+**My game in my words: Dominic Thiem**\
+`The Austrian explains how he beat Rafael Nadal and his tactics against Novak Djokovic – and reveals his most underrated shot`\
+https://nytimes.com/athletic/5837024/2024/10/22/dominic-thiem-tennis-highlights-best-shots/
+
 **Raptors should have two missions for 2024-25 season — be bad and be fun: Koreen**\
 `The Raptors can have it all: a losing and successful season. `\
 https://nytimes.com/athletic/5861350/2024/10/22/toronto-raptors-nba-2024-2025-season/
