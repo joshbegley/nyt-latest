@@ -1,3 +1,11 @@
+**Modern Love Turns 20!**\
+`To celebrate the Modern Love column’s 20th anniversary this month, we put together a special package of articles exploring the column’s history and impact.`\
+https://nytimes.com/2024/10/22/style/modern-love-turns-20-newsletter.html
+
+**Starbucks Reports a Slide in Sales and Traffic**\
+`“We need to fundamentally change our strategy,” the coffee giant’s new chief executive said.`\
+https://nytimes.com/2024/10/22/business/starbucks-reports-a-slide-in-sales-and-traffic.html
+
 **Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
 `Wrexham were were unable to mark the 160th anniversary of their first match with a win as Huddersfield earned a hard-fought goalless draw`\
 https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
@@ -27,14 +35,6 @@ https://nytimes.com/2024/10/22/world/middleeast/blinken-netanyahu-cease-fire.htm
 https://nytimes.com/athletic/5864738/2024/10/22/commanders-kevon-seymour-suspension/
 
 **Champions League briefing: Did Vinicius Jr just seal the Ballon d'Or? Plus a Pulisic olimpico**\
-`The major talking points from a dramatic on matchweek 3 in the Champions League`\
+`The major talking points from a dramatic night to begin matchweek three in the Champions League`\
 https://nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/
-
-**In Michigan, a Queer Retreat With Dancing in the Woods**\
-`The editor Ryan Fitzgibbon invited collaborators to toast “A Great Gay Book,” a new collection of pieces from his influential, now-defunct magazine, Hello Mr.`\
-https://nytimes.com/2024/10/22/t-magazine/ox-bow-artists-residency-michigan.html
-
-**More Republicans Appear to be Voting Early**\
-`Also, Israel said it killed a top Hezbollah leader. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/10/22/briefing/early-voting-republicans-global-inlfation-fight.html
 

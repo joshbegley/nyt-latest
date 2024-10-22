@@ -1,3 +1,15 @@
+**Modern Love Turns 20!**\
+`To celebrate the Modern Love column’s 20th anniversary this month, we put together a special package of articles exploring the column’s history and impact.`\
+https://nytimes.com/2024/10/22/style/modern-love-turns-20-newsletter.html
+
+**Starbucks Reports a Slide in Sales and Traffic**\
+`“We need to fundamentally change our strategy,” the coffee giant’s new chief executive said.`\
+https://nytimes.com/2024/10/22/business/starbucks-reports-a-slide-in-sales-and-traffic.html
+
+**Champions League briefing: Did Vinicius Jr just seal the Ballon d'Or? Plus a Pulisic olimpico**\
+`The major talking points from a dramatic night to begin matchweek three in the Champions League`\
+https://nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/
+
 **Champions League briefing: Did Vinicius Jr just seal the Ballon d'Or? Plus a Pulisic olimpico**\
 `The major talking points from a dramatic on matchweek 3 in the Champions League`\
 https://nytimes.com/athletic/5864095/2024/10/22/vinicius-jr-ballon-dor-goal/
