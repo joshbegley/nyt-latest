@@ -1,40 +1,40 @@
-**The Quest to Save the ‘King’ of Japanese Rice From Rising Temperatures**\
-`Scientists in Japan are mining DNA to try to make the country’s famous Koshihikari rice resistant to heat, after a broiling summer ravaged the crop.`\
-https://nytimes.com/2024/10/22/business/japanese-rice-climate-change.html
+**Which Republican Might Join a Harris Cabinet? We Asked Around.**\
+`In a text message, Mitt Romney sounded down on the idea. John Bolton said his chances were “substantially less than zero.” Liz Cheney remained silent on the matter.`\
+https://nytimes.com/2024/10/22/us/politics/harris-republican-cabinet.html
 
-**What Life Looks Like for Israelis Living Near Lebanon’s Border**\
-`Homes in northern Israel along the Lebanon border have been under the constant threat of Hezbollah’s rocket attacks since October of last year. We look at life on the ground for the few Israelis who stayed behind.`\
-https://nytimes.com/2024/10/22/world/middleeast/northern-israel-lebanon-war.html
+**New York Was a Shopping Town. Is It Again?**\
+`Small, medium and large: There seem to be signs of life for brick-and-mortar operations of every size in the city … once again.`\
+https://nytimes.com/2024/10/22/style/new-york-was-a-shopping-town-is-it-again.html
 
-**‘We Are Still Afraid’: Life Inside Northern Israel**\
-`Homes in northern Israel along the Lebanon border have been under the constant threat of Hezbollah’s rocket attacks since October of last year. We look at life on the ground for the few Israelis who stayed behind.`\
-https://nytimes.com/video/world/middleeast/100000009770604/northern-israel-lebanon-war.html
+**The 17 Best Bagels in New York City Right Now**\
+`The age-old debate continues.`\
+https://nytimes.com/article/best-bagels-nyc.html
 
-**You’re Being Lied To About Voter Fraud. Here’s the Truth.**\
-`Widespread cheating at the polls is a myth. So what are election deniers really after?`\
-https://nytimes.com/video/opinion/100000009768157/election-fraud-voting-security.html
+**How Cheerleading Became So Acrobatic, Dangerous and Popular**\
+`For decades, the sport has been shaped in large part by one company — and one man.`\
+https://nytimes.com/2024/10/22/magazine/cheerleading-jeff-webb.html
 
-**Kyler Murray's TD romp leads Cardinals to MNF win over Chargers**\
-`Murray has done this before. Called his shot. Making it clear that he knows what is about to happen before everyone else.`\
-https://nytimes.com/athletic/5862741/2024/10/22/cardinals-kyler-murray-defeat-chargers/
+**A Reluctant Satirist Takes On the Bomb**\
+`Armando Iannucci, the mastermind behind “Veep,” has adapted “Dr. Strangelove” for the theater and insists that laughing at nuclear disaster couldn’t be more timely.`\
+https://nytimes.com/2024/10/22/theater/dr-strangelove-armando-iannucci-veep.html
 
-**Glasgow to host 2026 Commonwealth Games**\
-`Glasgow will host the 2026 Commonwealth Games after the Australian state of Victoria pulled out of its planned staging of the event.`\
-https://nytimes.com/athletic/5862764/2024/10/22/commonwealth-games-glasgow-2026/
+**Ducks Do More Than You Might Think to Help Save the Planet**\
+`At the Bruce Museum, an exhibition of duck stamp art tells a 90-year-old story about how paintings can contribute to land preservation.`\
+https://nytimes.com/2024/10/22/arts/duck-stamp-bruce-museum.html
 
-**People Pleasing**\
-`Do you tend to prioritize others’ needs ahead of your own? When have you been able to stand up for yourself, even if it was hard?`\
-https://nytimes.com/2024/10/22/learning/people-pleasing.html
+**Sorry, Trump. The Issue of Abortion Is Not Going Away.**\
+`It resists all attempts at moderation and compromise.`\
+https://nytimes.com/2024/10/22/opinion/abortion-trump-republicans.html
 
-**The Person Leading The Times’s Politics Team**\
-`That the election cycle has been turbulent may be the understatement of the century. And David Halbfinger is overseeing coverage of every twist and turn through Election Day and its aftermath.`\
-https://nytimes.com/2024/10/22/insider/halbfinger-nyt-politics-editor-election.html
+**A Dinky Little Computer Program Is My Secret Weapon for Creativity**\
+`Remember Microsoft Paint? It’s more perfect than ever.`\
+https://nytimes.com/2024/10/22/magazine/a-dinky-little-computer-program-is-my-secret-weapon-for-creativity.html
 
-**Why New York’s Orthodox Jewish Voters Could Tip the Battle for the House**\
-`In three key swing districts in New York’s Hudson Valley, candidates are pressing for the support of ultra-Orthodox Jews, who tend to vote as a bloc.`\
-https://nytimes.com/2024/10/22/nyregion/orthodox-jewish-vote-ny.html
+**Bethany Joy Lenz Wanted Community. She Ended Up in a Cult.**\
+`The “One Tree Hill” actor has written a memoir of the decade she spent beholden to the Big House Family — and her escape.`\
+https://nytimes.com/2024/10/22/books/review/bethany-joy-lenz-dinner-for-vampires.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/22/crosswords/spelling-bee-forum.html
+**Blending Reality With Fiction in Video Game Horror**\
+`Although it’s an expensive, arduous process, developers are experimenting with live-action footage to intensify terror.`\
+https://nytimes.com/2024/10/22/arts/alan-wake-2-the-lake-house-video-game-horror.html
 
