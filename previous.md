@@ -1,3 +1,7 @@
+**Zohran Mamdani, a Democratic Socialist, Will Run Against Mayor Adams**\
+`Zohran Mamdani, a state lawmaker from Queens, has entered the Democratic primary for mayor of New York City, joining a crowded field hoping to unseat Eric Adams.`\
+https://nytimes.com/2024/10/22/nyregion/zohran-mamdani-mayor.html
+
 **Owner of Frank Lloyd Wright Skyscraper Sues Preservation Group**\
 `The owner of Price Tower says the Frank Lloyd Wright Building Conservancy has interfered with the proposed sale of the building by claiming a preservation easement on the property.`\
 https://nytimes.com/2024/10/22/arts/design/frank-lloyd-wright-skyscraper-price-tower-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/election-workers-threats.html
 **Super Bowl odds: The Chiefs' top challenger is closing in**\
 `The Ravens decisive Week 7 win solidified their spot as the second-favorite to win the Super Bowl. But dark horse contenders lurk.`\
 https://nytimes.com/athletic/5861346/2024/10/22/super-bowl-odds-week-8-chiefs-ravens-lions-49ers/
-
-**Lukeba and Leipzig reach agreement over contract extension**\
-`RB Leipzig have reached an agreement with defender Castello Lukeba over a new one-year contract extension.`\
-https://nytimes.com/athletic/5864030/2024/10/22/castello-lukeba-rb-leipzig-contract/
 

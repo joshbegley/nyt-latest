@@ -1,3 +1,7 @@
+**Zohran Mamdani, a Democratic Socialist, Will Run Against Mayor Adams**\
+`Zohran Mamdani, a state lawmaker from Queens, has entered the Democratic primary for mayor of New York City, joining a crowded field hoping to unseat Eric Adams.`\
+https://nytimes.com/2024/10/22/nyregion/zohran-mamdani-mayor.html
+
 **Owner of Frank Lloyd Wright Skyscraper Sues Preservation Group**\
 `The owner of Price Tower says the Frank Lloyd Wright Building Conservancy has interfered with the proposed sale of the building by claiming a preservation easement on the property.`\
 https://nytimes.com/2024/10/22/arts/design/frank-lloyd-wright-skyscraper-price-tower-lawsuit.html
