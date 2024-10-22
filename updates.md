@@ -1,3 +1,11 @@
+**Britain and Germany Agree on New Defense Pact as Russia Threat Rises**\
+`The two governments said they will coordinate more on defense, with British and German troops conducting joint military exercises on NATO’s eastern border.`\
+https://nytimes.com/2024/10/22/world/europe/britain-and-germany-agree-on-new-defense-pact-as-russia-threat-rises.html
+
+**Megan Thee Stallion and Sarah Jessica Parker Honored at Golden Heart Awards**\
+`God’s Love We Deliver drew comedians, fashion executives and restaurateurs to its annual benefit at the Cathedral Church of St. John the Divine on Monday.`\
+https://nytimes.com/2024/10/22/style/golden-heart-awards-megan-thee-stallion.html
+
 **Megan Thee Stallion and Sarah Jessica Parker Honored at Golden Heart Awards**\
 `God’s Love We Deliver drew comedians, fashion executives and restaurateurs to its annual benefit at the Cathedral Church of St. John the Divine on Monday.`\
 https://nytimes.com/2024/10/22/style/megan-thee-stallion-and-sarah-jessica-parker-honored-at-golden-heart-awards.html
