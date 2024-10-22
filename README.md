@@ -1,3 +1,11 @@
+**Marc Lore, Alex Rodriguez are positioning themselves for a full Timberwolves takeover**\
+`If they prevail in arbitration, their ownership group will be brought to the NBA's Board of Governors for final approval as owners.`\
+https://nytimes.com/athletic/5864229/2024/10/22/marc-lore-alex-rodriguez-full-ownership-timberwolves/
+
+**The drone launched toward Netanyahu’s home on Saturday damaged the property, Israel’s military says.**\
+`Prime Minister Benjamin Netanyahu has characterized the attack as an assassination attempt against him and his wife, Sara. Hezbollah claimed full responsibility for the strike.`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/the-drone-launched-toward-netanyahus-home-on-saturday-damaged-the-property-israels-military-says
+
 **Fantasy football market share report: Romeo Doubs redemption, optimism for the TE position and more**\
 `Romeo Doubs has gone from the doghouse to the penthouse, and Michael Salfino says he has the most playable floor among Packers receivers.`\
 https://nytimes.com/athletic/5863818/2024/10/22/fantasy-football-market-share-report-week-7-romeo-doubs/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/style/juul-lawsuit-payments-tiktok.html
 **Copa America final chaos: 100 days on, what is the legal fall-out?**\
 `A slew of legal claims have been issued against event organisers in the wake of the chaos which engulfed July's showpiece final`\
 https://nytimes.com/athletic/5863488/2024/10/22/copa-america-final-chaos-legal/
-
-**The A.I. Power Grab**\
-`Big tech companies say A.I. can help solve climate change, even as it’s driving up their emissions and raising doubts about their climate goals.`\
-https://nytimes.com/2024/10/22/climate/ai-big-tech-emissions.html
-
-**Live Q&A: Week 8 fantasy football add/drop chat with Jay Felicio, Tuesday 10/22 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5862382/2024/10/22/live-qa-week-8-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-22-at-5-p-m-et/
 
