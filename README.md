@@ -1,3 +1,23 @@
+**What Wilshere's exit means for Arsenal and the shock it caused inside the club**\
+`The U18s coach is held in extremely high regard by his players and there are concerns about what his decision to leave might mean`\
+https://nytimes.com/athletic/5860935/2024/10/22/jack-wilshere-arsenal-exit-norwich/
+
+**Analysing Darwin Nunez's 60 minutes of promise vs Chelsea: No shots but hold-up heroics**\
+`The Liverpool forward played his part in the victory over Chelsea on and off the ball — contesting the most duels of any player on the pitch`\
+https://nytimes.com/athletic/5862860/2024/10/22/darwin-nunez-liverpool-chelsea/
+
+**Exploring the Failures in the Mideast**\
+`Readers respond to a guest essay by Peter Beinart. Also: Donald Trump’s lewd comments at a rally; lessons from baseball; Queen Esther’s legacy.`\
+https://nytimes.com/2024/10/22/opinion/israel-gaza-war.html
+
+**Rest Days Are Good. Active Recovery Days Can Be Better.**\
+`Low-impact, easy workouts can offer relief for sore muscles.`\
+https://nytimes.com/2024/10/22/well/move/rest-day-workouts-active-recovery.html
+
+**I Can’t Pass Up Paneer**\
+`The firm, fresh Indian cheese is put to delicious use in this streamlined, kid-favorite mattar paneer.`\
+https://nytimes.com/2024/10/22/dining/mattar-paneer-dinner-recipes.html
+
 **The Hard-Shell Taco Deserves Your Respect**\
 `The version that once thrived at the midcentury fast food stands of Los Angeles is now a regional treasure.`\
 https://nytimes.com/2024/10/22/dining/hard-shell-tacos-los-angeles.html
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/5863646/2024/10/22/scoop-city-week-8-fantasy-previe
 **After extending Trey Murphy, will Pelicans commit to letting him reach potential?**\
 `Murphy signed a four-year, $112 million extension Monday, but he may not have a spot in the starting lineup.`\
 https://nytimes.com/athletic/5863006/2024/10/22/trey-murphy-pelicans-extension/
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/10/22/opinion/thepoint
-
-**House Democratic candidates say voting rights bills would be their top priority.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election/house-democratic-candidates-say-voting-rights-bills-would-be-their-top-priority
-
-**Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
-`Both Godwin and Evans left Monday night's loss to the Ravens with injuries
-`\
-https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
-
-**The F.B.I. is investigating a leak of classified documents that appear to show Israel’s plans for retaliatory attacks on Iran.**\
-`By Adam Goldman`\
-https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/fbi-israel-iran-leak
-
-**Cardinals to hire Guardians’ Rob Cerfolio: Sources**\
-`In hiring Cerfolio, the Cardinals believe they’ve landed one of baseball’s up-and-coming talents in player development.`\
-https://nytimes.com/athletic/5863462/2024/10/22/cardinals-to-hire-guardians-rob-cerfolio-player-development/
 
