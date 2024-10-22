@@ -1,3 +1,11 @@
+**49ers mailbag: Where have all the screen passes gone?**\
+`Among this week's questions: Why kind of compensatory picks are the 49ers expecting and should the team be sellers at the trade deadline?`\
+https://nytimes.com/athletic/5864511/2024/10/22/49ers-mailbag-screen-passes-special-teams-trade-deadline-sell/
+
+**Commanders release 2021 first-round pick Jamin Davis**\
+`Davis had seven sacks and 282 tackles during his four seasons in Washington. `\
+https://nytimes.com/athletic/5864769/2024/10/22/commanders-release-jamin-davis/
+
 **Panthers extending coach Paul Maurice after championship season**\
 `The new contract will take effect starting in 2025-26 after Maurice's existing deal expires at the end of this season.`\
 https://nytimes.com/athletic/5864802/2024/10/22/paul-maurice-panthers-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5864835/2024/10/22/calafiori-saka-arsenal-injury/
 **Trump calls Harris ‘lazy’ as the campaigns trade jabs about who is more tired.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/trump-calls-harris-lazy-as-the-campaigns-trade-jabs-about-who-is-more-tired
-
-**Kurt Olsen Helped Trump Fight His 2020 Defeat. Trump Is Talking to Him Again.**\
-`Mr. Olsen, a lawyer, has spoken to the former president multiple times in recent weeks. He’s insisted it’s important to make legal demands concerning voting-machine data before Election Day.`\
-https://nytimes.com/2024/10/22/us/politics/kurt-olsen-trump-2020-lawyer.html
-
-**Britain and Germany Agree on New Defense Pact as Russia Threat Rises**\
-`The two governments said they will coordinate more on defense, with British and German troops conducting joint military exercises on NATO’s eastern border.`\
-https://nytimes.com/2024/10/22/world/europe/britain-and-germany-agree-on-new-defense-pact-as-russia-threat-rises.html
 
