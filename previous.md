@@ -1,4 +1,16 @@
-**India Says It Reached Border Deal With China That Could Ease Hostilities**\
+**NFL Power Rankings Week 8: Separating early contenders from pretenders; NFC North rules**\
+`There's a new No. 1 in The Athletic's Week 8 NFL Power Rankings as we take a closer look at everyone's resume.`\
+https://nytimes.com/athletic/5861492/2024/10/22/nfl-power-rankings-week-8-lions-vikings/
+
+**Darrell Green's journey brought the Hall of Famer back to his football home**\
+`Green, now the fifth player in franchise history to have his jersey retired, wants fans — old and new — to regain their love for the team. `\
+https://nytimes.com/athletic/5858023/2024/10/22/darrell-green-jersey-retirement-commanders-fans/
+
+**NFL Week 7 best and worst coaching decisions: Lions offense solves Brian Flores' puzzle**\
+`Detroit OC Ben Johnson and Jared Goff were a step ahead of the Vikings' defensive maestro while Jim Schwartz's Browns slowed the Bengals.`\
+https://nytimes.com/athletic/5859622/2024/10/22/nfl-week-7-worst-best-coaching-decisions-nguyen/
+
+**India and China Reach Border Deal That Could Ease Hostilities**\
 `Four years ago, several soldiers from both sides were killed in a bloody melee. Any thaw between the countries could have global implications.`\
 https://nytimes.com/2024/10/22/world/asia/india-china-border.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5861350/2024/10/22/toronto-raptors-nba-2024-2025-se
 **At the Algonquin, a Reading Pays Homage to the Famous Round Table**\
 `At the hotel where literary celebrities gathered decades ago, tarot cards featuring Broadway stars will be unveiled.`\
 https://nytimes.com/2024/10/22/nyregion/newyorktoday/at-the-algonquin-a-reading-pays-homage-to-the-famous-round-table.html
-
-**Attention Prosecutors: Elon Musk Is Breaking Federal Voting Law**\
-`You can’t pay people to register to vote.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/musk-breaking-voting-law
-
-**The Many Links Between Project 2025 and Trump’s World**\
-`Former president Donald J. Trump has attempted to distance himself from Project 2025, the conservative policy initiative. But well over half of its contributors have worked for him, and many of its policies overlap with his.`\
-https://nytimes.com/interactive/2024/10/22/us/politics/project-2025-trump-heritage-foundation.html
-
-**Two Weeks to Go, but Only One Way to Stay Calm**\
-`The presidential race is close. For now, we have to live with that.`\
-https://nytimes.com/2024/10/22/opinion/harris-trump-polling-averages.html
 
