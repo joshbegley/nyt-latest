@@ -1,7 +1,3 @@
-**Artist Sues Town for Canceling Residency Over Her Views on Gaza War**\
-`The American Civil Liberties Union has sued Vail, Colo., on behalf of a Native American artist who painted a work entitled “G is for Genocide.”`\
-https://nytimes.com/2024/10/22/us/vail-artist-gaza-war.html
-
 **With Keon Sabb out, Alabama needs Bray Hubbard to step up: Alabama notebook**\
 `Sabb played against Tennessee with a broken foot, but will be out for a while. Also, Alabama flips a tight end commit from North Carolina.`\
 https://nytimes.com/athletic/5864672/2024/10/22/alabama-crimson-tide-keon-sabb-recruiting/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/22/us/politics/vance-trump-legal-immigrants.html
 **Guardians postmortem: Notes on Shane Bieber, Josh Naylor, Stephen Vogt and more**\
 `“We need this to be a building block,” Guardians president Chris Antonetti said. “We want to take a step forward next year.”`\
 https://nytimes.com/athletic/5864558/2024/10/22/guardians-postmortem-shane-bieber-josh-naylor-stephen-vogt/
+
+**Nik Khamenia, No. 27 player in 2025 class, commits to Duke**\
+`Khamenia, the No. 27 recruit, gives the Blue Devils three top-30 commits and puts Jon Scheyer's team on pace for the No. 1 class in 2025.`\
+https://nytimes.com/athletic/5864849/2024/10/22/duke-blue-devils-basketball-nik-khamenia-jon-scheyer/
 
