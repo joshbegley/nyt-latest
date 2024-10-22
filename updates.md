@@ -1,3 +1,7 @@
+**In Nevada, Filipino Americans Could Be a Key Factor in Crucial Races**\
+`Democrats in particular have tried to reach Filipino American voters, who now make up the largest Asian American group in Nevada.`\
+https://nytimes.com/2024/10/22/world/asia/filipino-american-voters-nevada.html
+
 **Threats to Election Workers Are Focus of New Campaign**\
 `American officials are highly concerned about the potential for violence against election workers on and around Nov. 5.`\
 https://nytimes.com/2024/10/22/us/politics/election-workers-threats.html
