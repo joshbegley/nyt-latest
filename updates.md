@@ -1,3 +1,7 @@
+**OpenAI Hires Former White House Official as Its Chief Economist**\
+`Aaron Chatterji was chief economist at the Commerce Department under President Biden and served on President Obama’s Council of Economic Advisers.`\
+https://nytimes.com/2024/10/22/technology/openai-chief-economist.html
+
 **Which Republican might join a Harris cabinet? We asked around.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/which-republican-might-join-a-harris-cabinet-we-asked-around

@@ -1,3 +1,7 @@
+**OpenAI Hires Former White House Official as Its Chief Economist**\
+`Aaron Chatterji was chief economist at the Commerce Department under President Biden and served on President Obama’s Council of Economic Advisers.`\
+https://nytimes.com/2024/10/22/technology/openai-chief-economist.html
+
 **Which Republican might join a Harris cabinet? We asked around.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election/which-republican-might-join-a-harris-cabinet-we-asked-around
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/health/stroke-women-pregnancy.html
 **Vatican and China Extend Contentious Agreement on Naming Catholic Bishops**\
 `Critics argue the pact legitimizes China’s control over church affairs, while defenders say it helps support Catholics faithful to the Vatican in the Communist country.`\
 https://nytimes.com/2024/10/22/world/europe/vatican-china-catholic-bishops.html
-
-**Putin, Fighting Pariah Status, Welcomes Xi and Other Leaders to Russia**\
-`The Russian leader wants to cast himself as a global statesman, even as the U.S. and its Western allies try to isolate him.`\
-https://nytimes.com/2024/10/22/world/asia/putin-brics-summit-xi-modi.html
 
