@@ -1,3 +1,7 @@
+**Can the Celtics repeat as champions? They'll have to rewrite recent history to do it**\
+`"Winning it multiple times and creating almost a dynasty, that’s hard to do," says Payton Pritchard of a championship. "That’s greatness."`\
+https://nytimes.com/athletic/5860923/2024/10/22/celtics-repeat-championship-rewrite-history/
+
 **Why all is not lost for the Vikings after their Week 7 setback against the Lions**\
 `Yes, the Vikings lost Sunday, but their six-game start calls for some perspective. This is still a good team capable of success in 2024.`\
 https://nytimes.com/athletic/5861817/2024/10/22/vikings-lions-week-7-all-is-not-lost/

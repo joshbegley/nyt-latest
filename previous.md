@@ -1,3 +1,7 @@
+**Can the Celtics repeat as champions? They'll have to rewrite recent history to do it**\
+`"Winning it multiple times and creating almost a dynasty, that’s hard to do," says Payton Pritchard of a championship. "That’s greatness."`\
+https://nytimes.com/athletic/5860923/2024/10/22/celtics-repeat-championship-rewrite-history/
+
 **Why all is not lost for the Vikings after their Week 7 setback against the Lions**\
 `Yes, the Vikings lost Sunday, but their six-game start calls for some perspective. This is still a good team capable of success in 2024.`\
 https://nytimes.com/athletic/5861817/2024/10/22/vikings-lions-week-7-all-is-not-lost/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5862145/2024/10/22/deion-sanders-colorado-football-
 **Packers new DC Jeff Hafley makes big impact, appears to be right choice by Matt LaFleur**\
 `LaFleur made the surprising decision to hire the Boston College head coach as his defensive coordinator, and it's looked good so far.`\
 https://nytimes.com/athletic/5861322/2024/10/22/packers-jeff-hafley-defensive-coordinator-impact/
-
-**Damian Lillard's 'connected' offseason has his mind, body ready for Year 2 with Bucks**\
-`With intense training, better sleep and an unexpected boost from family, Lillard says his focus is renewed.`\
-https://nytimes.com/athletic/5857347/2024/10/22/damian-lillard-bucks-year-2/
 
