@@ -1,3 +1,11 @@
+**Wilshere leaving Arsenal to join Norwich as first-team coach**\
+`Jack Wilshere is leaving his role as Arsenal Under-18 head coach to take up a first-team coaching position at Norwich City.`\
+https://nytimes.com/athletic/5859680/2024/10/22/jack-wilshere-norwich-arsenal-leave/
+
+**This Theater Was a Haven for Bold Art. Then the Archdiocese Intervened.**\
+`The Connelly Theater has suspended operations after its church landlord began more carefully scrutinizing show scripts and its general manager resigned.`\
+https://nytimes.com/2024/10/22/theater/connelly-theater-catholic-archdiocese.html
+
 **Explained: What Staveley's 'MBS' WhatsApps mean for Newcastle**\
 `What do revelations around former Newcastle shareholder's correspondence mean for the Premier League - if anything?`\
 https://nytimes.com/athletic/5860879/2024/10/22/mohammed-bin-salman-amanda-staveley-newcastle/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/movies/smile-2-clip.html
 **The stat that shows Victor Wembanyama's current NBA trading card dominance**\
 `Even while Team USA basketball made headlines, NBA card collectors remained focused on Wembanyama `\
 https://nytimes.com/athletic/5861232/2024/10/22/victor-wembanyama-cards-psa/
-
-**‘Smile 2’ | Anatomy of a Scene**\
-`Parker Finn narrates a sequence from “Smile 2,” starring Naomi Scott.`\
-https://nytimes.com/video/movies/100000009774005/smile-2-anatomy-of-a-scene.html
-
-**The Pulse: Baltimore’s claim for No. 1**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5860855/2024/10/22/ravens-buccaneers-lamar-jackson-the-pulse/
 
