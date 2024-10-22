@@ -1,3 +1,7 @@
+**Christine Boisson, French Actress, Dies at 68**\
+`She got her start in an erotic film as a teenager and went on to star in dozens of other movies. She died in Paris from lung disease, her daughter said.`\
+https://nytimes.com/2024/10/22/us/christine-boisson-dead.html
+
 **Raiders rookie Brock Bowers' YAC secret? 'I just catch the ball and run with it'**\
 `Bowers' 47 catches through his first seven career games are the most in Raiders history and the most in NFL history by a tight end.`\
 https://nytimes.com/athletic/5861805/2024/10/22/brock-bowers-raiders-tight-end-record-yac/

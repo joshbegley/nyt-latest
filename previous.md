@@ -1,3 +1,7 @@
+**Christine Boisson, French Actress, Dies at 68**\
+`She got her start in an erotic film as a teenager and went on to star in dozens of other movies. She died in Paris from lung disease, her daughter said.`\
+https://nytimes.com/2024/10/22/us/christine-boisson-dead.html
+
 **Acheampong frozen out by Chelsea until he signs new contract**\
 `Chelsea’s highly-rated teenage defender Josh Acheampong has been told he will not play for the club&#8217;s first team or development squad until he signs a new contract.`\
 https://nytimes.com/athletic/5861051/2024/10/22/josh-acheampong-chelsea-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/22/us/harris-trump-election/heres-the-latest-in
 **Election Live Updates: No Time to Waste for Harris and Trump With 2 Weeks to Go**\
 `Former President Donald J. Trump has campaign events on Tuesday in Florida and North Carolina. Vice President Kamala Harris will sit for an interview with NBC News.`\
 https://nytimes.com/live/2024/10/22/us/harris-trump-election
-
-**The Athletic FC: Top Euro leagues - a style guide, 'superstar' Viana, Liga match in Miami?**\
-`Today in TAFC: The contrasting styles of the top four European leagues, Manchester City's new boss and the prospect of a Liga match in Miami`\
-https://nytimes.com/athletic/5862947/2024/10/22/champions-league-style-barcelona-atletico/
 
