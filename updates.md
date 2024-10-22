@@ -1,3 +1,7 @@
+**Evangelos Marinakis, the FA and phlegm: A case study in (disgusting) absurdity**\
+`Ludicrous language and arguments from both sides in the written explanation for Nottingham Forest owner's ban cheapen a serious issue`\
+https://nytimes.com/athletic/5863991/2024/10/22/marinakis-spitting-fa-report/
+
 **Why Harris Is Struggling With Blue-Collar Voters in Detroit**\
 `Not everyone is impressed by her background as a prosecutor.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/why-harris-is-struggling-with-blue-collar-voters-in-detroit
