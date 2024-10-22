@@ -1,3 +1,11 @@
+**Taylor: Chiefs need to trade for a wide receiver now to help Patrick Mahomes**\
+`Without a trade, Mahomes’ receivers against the Raiders will be rookie Xavier Worthy, Justin Watson, Mecole Hardman and Skyy Moore.`\
+https://nytimes.com/athletic/5862069/2024/10/21/chiefs-wide-reciever-trade-patrick-mahomes/
+
+**Nuggets, Gordon agree to 4-year, $133 million max extension: Sources**\
+`Gordon, 29, averaged 14.5 points, 6.1 rebounds and 2.9 assists per game over four seasons with the Nuggets.`\
+https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extension/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Ready for your questions. If by chance I answer them wrong, please don&#8217;t throw water bottles at me.</p>
 <p>&nbsp;</p>
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5862078/2024/10/21/kelley-ohara-nwsl-playoffs-full-
 **Padres' A.J. Preller discusses payroll, Mike Shildt's status and more in end-of-season call**\
 `Preller discussed a wide variety of topics in his Zoom call, as the Padres look to build on their 2024 season. `\
 https://nytimes.com/athletic/5861954/2024/10/21/san-diego-padres-2024-takeaways/
-
-**What Is the U.N. Resolution That Tried and Failed to Keep the Peace in Lebanon?**\
-`U.N. Security Council Resolution 1701 was intended to create a buffer zone between Israel and Hezbollah. Here’s a look at why it didn’t and what lies ahead in efforts to end the conflict in Lebanon.`\
-https://nytimes.com/2024/10/21/world/middleeast/un-resolution-1701-explained.html
-
-**What Is ‘Pink Cocaine’?**\
-`The drug cocktail can contain ketamine, Ecstasy and meth — but rarely cocaine itself.`\
-https://nytimes.com/2024/10/21/well/what-is-pink-cocaine.html
 
