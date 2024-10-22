@@ -1,3 +1,7 @@
+**Julius Randle-Chris Finch connection could ease Randle's transition to Timberwolves**\
+`"When I got to New Orleans, Finchy just gave me a tremendous amount of more confidence and opportunity," Randle said.`\
+https://nytimes.com/athletic/5861765/2024/10/22/julius-randle-chris-finch-connection-timberwolves/
+
 **Who to drop ahead of Week 8? You can bounce Bengals RB Zach Moss**\
 `Underutilized Zach Moss is gathering his namesake, while a "Motor" sits idling in the Meadowlands.`\
 https://nytimes.com/athletic/5863237/2024/10/22/fantasy-football-who-to-drop-ahead-of-week-8-you-can-bounce-bengals-rb-zach-moss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683356/2024/10/22/diego-forlan-interview-tennis-fo
 **Ex-Man Utd and Uruguay footballer Diego Forlan to make professional tennis debut**\
 `Diego Forlan, the former Manchester United, Uruguay, and Atletico Madrid footballer, will make his professional tennis debut this November at the age of 45.`\
 https://nytimes.com/athletic/5863104/2024/10/22/diego-forlan-tennis-uruguay/
-
-**Christine Boisson, French Actress, Dies at 68**\
-`She got her start in an erotic film as a teenager and went on to star in dozens of other movies. She died in Paris from lung disease, her daughter said.`\
-https://nytimes.com/2024/10/22/us/christine-boisson-dead.html
 
