@@ -2,8 +2,8 @@
 `A new restaurant in Park Slope serves elegant Levantine classics with a dash of hipster style and some New York pluck.`\
 https://nytimes.com/2024/10/22/dining/sawa-brooklyn-restaurant-review.html
 
-**Yehuda Bauer, Leading Scholar of the Holocaust and Antisemitism, Dies at 98**\
-`He was among the first to show how Jews resisted the Nazis, and later pushed back against efforts to diminish the significance of the Holocaust.`\
+**Yehuda Bauer, 98, Scholar Who Saw Jewish Resistance in Holocaust, Dies**\
+`A leading historian of antisemitism, he countered the prevailing narrative of Jewish victimhood and pushed back against efforts to diminish the Holocaust’s significance.`\
 https://nytimes.com/2024/10/22/world/middleeast/yehuda-bauer-dead.html
 
 **Stan Asofsky, Vociferous Courtside Superfan of the Knicks, Dies at 87**\
