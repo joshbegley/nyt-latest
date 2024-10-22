@@ -18,7 +18,7 @@ https://nytimes.com/2024/10/21/us/dock-collapse-sapelo-island-georgia.html
 `"In many ways, Aaron is the heart and soul of the team," Nuggets general manager Calvin Booth told The Athletic after the agreement.`\
 https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extension/
 
-**Buccaneers' Mike Evans ruled out for MNF game with hamstring injury**\
+**Bucs' Mike Evans, Ravens' Marlon Humphrey ruled out of 'MNF' with injuries**\
 `After sustaining the injury, Evans walked off the field to the locker room on his own power.`\
 https://nytimes.com/athletic/5862374/2024/10/21/mike-evans-hamstring-injury-bucanneers/
 

@@ -1,3 +1,7 @@
+**Bucs' Mike Evans, Ravens' Marlon Humphrey ruled out of 'MNF' with injuries**\
+`After sustaining the injury, Evans walked off the field to the locker room on his own power.`\
+https://nytimes.com/athletic/5862374/2024/10/21/mike-evans-hamstring-injury-bucanneers/
+
 **Thelma Mothershed Wair, Little Rock Nine Student, Dies at 83**\
 `In 1957, Mrs. Mothershed Wair and eight other Black students enrolled at Little Rock Central High School. They faced racist mobs and were escorted by federal troops.`\
 https://nytimes.com/2024/10/21/us/thelma-mothershed-wair-dead.html
