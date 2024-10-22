@@ -1,3 +1,12 @@
+**Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
+`Both Godwin and Evans left Monday night's loss to the Ravens with injuries
+`\
+https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
+
+**The F.B.I. is investigating a leak of classified documents that appear to show Israel’s plans for retaliatory attacks on Iran.**\
+`By Adam Goldman`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/fbi-israel-iran-leak
+
 **Cardinals to hire Guardians’ Rob Cerfolio: Sources**\
 `In hiring Cerfolio, the Cardinals believe they’ve landed one of baseball’s up-and-coming talents in player development.`\
 https://nytimes.com/athletic/5863462/2024/10/22/cardinals-to-hire-guardians-rob-cerfolio-player-development/
