@@ -1,3 +1,7 @@
+**Buccaneers' Mike Evans ruled out for MNF game with hamstring injury**\
+`After sustaining the injury, Evans walked off the field to the locker room on his own power.`\
+https://nytimes.com/athletic/5862374/2024/10/21/mike-evans-hamstring-injury-bucanneers/
+
 **Cubs' Nico Hoerner underwent flexor tendon surgery**\
 `The Gold Glove second baseman dealt with pain in his right forearm for much of the 2024 season.`\
 https://nytimes.com/athletic/5862373/2024/10/21/cubs-nico-hoerner-flexor-tendon-surgery/

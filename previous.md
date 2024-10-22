@@ -1,3 +1,7 @@
+**Buccaneers' Mike Evans ruled out for MNF game with hamstring injury**\
+`After sustaining the injury, Evans walked off the field to the locker room on his own power.`\
+https://nytimes.com/athletic/5862374/2024/10/21/mike-evans-hamstring-injury-bucanneers/
+
 **Cubs' Nico Hoerner underwent flexor tendon surgery**\
 `The Gold Glove second baseman dealt with pain in his right forearm for much of the 2024 season.`\
 https://nytimes.com/athletic/5862373/2024/10/21/cubs-nico-hoerner-flexor-tendon-surgery/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extensi
 <p>&nbsp;</p>
 `\
 https://nytimes.com/athletic/5862260/2024/10/21/submit-a-question-for-stewart-mandels-college-football-mailbag-278/
-
-**Liz Cheney Campaigns for Harris**\
-`Appearing side by side at a campaign event in Michigan, the Republican former congresswoman expressed her support for Vice President Kamala Harris.`\
-https://nytimes.com/video/us/elections/100000009774584/liz-cheney-harris.html
 
