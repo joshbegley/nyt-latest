@@ -1,3 +1,7 @@
+**Fantasy football market share report: Romeo Doubs redemption, optimism for the TE position and more**\
+`Romeo Doubs has gone from the doghouse to the penthouse, and Michael Salfino says he has the most playable floor among Packers receivers.`\
+https://nytimes.com/athletic/5863818/2024/10/22/fantasy-football-market-share-report-week-7-romeo-doubs/
+
 **LeBron 'won't take it for granted' as year 22 begins with Bronny as teammate**\
 `If the Lakers play Bronny with LeBron, it will be the first time in NBA history a father and son appear together in a game that counts.`\
 https://nytimes.com/athletic/5864334/2024/10/22/bronny-james-lebron-lakers-timberwolves/

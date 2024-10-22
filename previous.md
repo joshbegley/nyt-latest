@@ -1,3 +1,7 @@
+**Fantasy football market share report: Romeo Doubs redemption, optimism for the TE position and more**\
+`Romeo Doubs has gone from the doghouse to the penthouse, and Michael Salfino says he has the most playable floor among Packers receivers.`\
+https://nytimes.com/athletic/5863818/2024/10/22/fantasy-football-market-share-report-week-7-romeo-doubs/
+
 **LeBron 'won't take it for granted' as year 22 begins with Bronny as teammate**\
 `If the Lakers play Bronny with LeBron, it will be the first time in NBA history a father and son appear together in a game that counts.`\
 https://nytimes.com/athletic/5864334/2024/10/22/bronny-james-lebron-lakers-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/climate/ai-big-tech-emissions.html
 **Live Q&A: Week 8 fantasy football add/drop chat with Jay Felicio, Tuesday 10/22 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5862382/2024/10/22/live-qa-week-8-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-22-at-5-p-m-et/
-
-**Colorado WR/CB Travis Hunter expected to contribute more vs. Cincinnati**\
-`Hunter, who played more than 120 snaps in each of Colorado's first five games, has been limited to less than 50 in the last two weeks.`\
-https://nytimes.com/athletic/5864186/2024/10/22/colorado-buffaloes-football-travis-hunter-injury-deion-sanders/
 
