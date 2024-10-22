@@ -1,8 +1,32 @@
+**More Republicans Appear to Be Voting Early, Despite Trump’s Mixed Messages**\
+`In 2020, Donald Trump convinced his supporters that anything but a vote cast in person on Election Day could not be trusted — and lost. In response, Republicans shifted their stance.`\
+https://nytimes.com/2024/10/22/us/politics/trump-republicans-early-voting.html
+
+**E. Coli Outbreak Linked to McDonald’s Quarter Pounders**\
+`The C.D.C. said that nearly 50 people had become ill and one person had died from the deadly bacteria, which the agency tied to an ingredient in one of the fast food chain’s burger items.`\
+https://nytimes.com/2024/10/22/health/ecoli-outbreak-mcdonalds-hamburgers.html
+
+**The Athletic MLB Reader Poll: Is a Dodgers-Yankees World Series good or bad for baseball?**\
+`Bring your nuanced debate or your pure spite, whatever works. Our poll will stay open until Thursday, Oct. 24.`\
+https://nytimes.com/athletic/5864360/2024/10/22/the-athletic-mlb-reader-poll-is-a-dodgers-yankees-world-series-good-or-bad-for-baseball/
+
+**An Australian Woman Trying to Rescue Her Phone Gets Stuck Between Boulders**\
+`And she was upside down.`\
+https://nytimes.com/2024/10/22/world/australia/australia-woman-stuck-upside-down-phone.html
+
+**Real Madrid 5-2 Borussia Dortmund: Vinicius Jr inspires yet another Champions League comeback**\
+`Real Madrid produced an incredible second-half comeback to thump Borussia Dortmund at the Bernabeu...`\
+https://nytimes.com/athletic/5854163/2024/10/22/real-madrid-5-borussia-dortmund-2-vinicius-jr-comeback/
+
+**Wednesday Briefing: Casting Doubts on the U.S. Election**\
+`Plus, saving Japan’s most popular rice.`\
+https://nytimes.com/2024/10/22/briefing/election-doubts-hamas-guerrilla-ukraine.html
+
 **The Briefing: Arsenal 1 Shakhtar 0: Martinelli finds form, Jesus' wait goes on, Calafiori concern**\
 `Arsenal recorded their second win in the Champions League this term - Art de Roche analyses the talking points`\
 https://nytimes.com/athletic/5854162/2024/10/22/arsenal-1-shakhtar-donetsk-0-martinelli-jesus-calafiori-champions-league/
 
-**Israel Says It Killed Hashem Safieddine, Considered a Successor to Hezbollah’s Leader**\
+**Israel says it killed Hashem Safieddine, considered a successor to Hezbollah’s slain leader**\
 `A cousin of Hassan Nasrallah, he joined Hezbollah soon after the group was formed and rose quickly in its ranks.`\
 https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/israel-hashem-safieddine-hezbollah-nasrallah
 
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/22/dining/sawa-brooklyn-restaurant-review.html
 **Yehuda Bauer, 98, Scholar Who Saw Jewish Resistance in Holocaust, Dies**\
 `A leading historian of antisemitism, he countered the prevailing narrative of Jewish victimhood and later pushed back against efforts to diminish the Holocaust’s significance.`\
 https://nytimes.com/2024/10/22/world/middleeast/yehuda-bauer-dead.html
-
-**Stan Asofsky, Vociferous Courtside Superfan of the Knicks, Dies at 87**\
-`For decades, beginning in 1959, he was a regular presence at Madison Square Garden (in two locations), befriending players and heckling opposing players and refs.`\
-https://nytimes.com/2024/10/22/sports/basketball/stan-asofsky-dead.html
-
-**Fall Fashion in Full Bloom **\
-`Knits, layers and other trappings of the season blended with vibrant bouquets at a London flower market.`\
-https://nytimes.com/card/2024/10/22/style/london-fashion-columbia-road-flower-market
-
-**How much does Jayden Daniels' injury shift the Bears-Commanders point spread?**\
-`We talked to a sportsbook director to understand how Jaden Daniels' injury impacts betting odds ahead of the Commanders' Week 8 matchup.`\
-https://nytimes.com/athletic/5863951/2024/10/22/jayden-daniels-injury-commanders-bears-spread-shift/
-
-**WNBA Finals Game 5 was most-watched Finals game in 25 years**\
-`Overall, there were 32 WNBA television windows between its media partners that topped one million viewers during the 2024 season.`\
-https://nytimes.com/athletic/5864477/2024/10/22/wnba-finals-viewership-espn-liberty-lynx/
-
-**How a Knack for Provocation Fueled Mark Robinson’s Rise**\
-`Recklessness has characterized Mr. Robinson’s online persona, his personal life and his rocky campaign for governor in North Carolina.`\
-https://nytimes.com/2024/10/22/us/how-a-knack-for-provocation-fueled-mark-robinsons-rise.html
-
-**Wordle Review No. 1,222**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 23, 2024.`\
-https://nytimes.com/2024/10/22/crosswords/wordle-review-1222.html
 
