@@ -1,3 +1,19 @@
+**West Ham's Kudus charged by FA following red card**\
+`Mohammed Kudus faces the possibility of further punishment after the Football Association (FA) charged the West Ham United forward following his red card at Tottenham Hotspur.`\
+https://nytimes.com/athletic/5854961/2024/10/22/mohammed-kudus-red-card-ban-how-long/
+
+**Diego Forlan: Man Utd striker, Golden Ball winner, and pro tennis player - at 45**\
+`Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
+https://nytimes.com/athletic/5683356/2024/10/22/diego-forlan-interview-tennis-football-manchester-united-uruguay/
+
+**Ex-Man Utd and Uruguay footballer Diego Forlan to make professional tennis debut**\
+`Diego Forlan, the former Manchester United, Uruguay, and Atletico Madrid footballer, will make his professional tennis debut this November at the age of 45.`\
+https://nytimes.com/athletic/5863104/2024/10/22/diego-forlan-tennis-uruguay/
+
+**A Giants fan's guide to rooting for the Yankees in the World Series**\
+`The Dodgers are four wins away from a title and the only thing standing in their way is every Giants fan's new favorite team, the Yankees.`\
+https://nytimes.com/athletic/5860839/2024/10/22/sf-giants-fans-yankees-world-series-guide/
+
 **Christine Boisson, French Actress, Dies at 68**\
 `She got her start in an erotic film as a teenager and went on to star in dozens of other movies. She died in Paris from lung disease, her daughter said.`\
 https://nytimes.com/2024/10/22/us/christine-boisson-dead.html
