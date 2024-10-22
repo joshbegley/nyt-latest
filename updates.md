@@ -1,3 +1,7 @@
+**Leverkusen's Boniface to miss Brest game after car accident**\
+`Bayer Leverkusen forward Victor Boniface has been ruled out of the club’s visit to Brest in the Champions League having been injured in a car accident over the weekend.`\
+https://nytimes.com/athletic/5863821/2024/10/22/bayer-leverkusen-victor-boniface-car-accident/
+
 **Son of Singapore’s First Prime Minister Says He Is Granted Asylum in Britain**\
 `Lee Hsien Yang accused his brother, a former prime minister, of persecuting him politically, inflaming the feud in Singapore’s first family.`\
 https://nytimes.com/2024/10/22/world/asia/singapore-lee-hsien-yang-political-asylum-uk.html
