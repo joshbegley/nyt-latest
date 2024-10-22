@@ -1,3 +1,7 @@
+**24 big questions for the NBA season: Celtics repeat? Knicks challenge? Wemby's ceiling?**\
+`From Rookie of the Year to the first player traded to which new coach will make the greatest impact, we have questions (and answers).`\
+https://nytimes.com/athletic/5843372/2024/10/22/nba-biggest-questions-season-start-celtics-knicks-wembanyama/
+
 **My game in my words: Dominic Thiem**\
 `The Austrian explains how he beat Rafael Nadal and his tactics against Novak Djokovic – and reveals his most underrated shot`\
 https://nytimes.com/athletic/5837024/2024/10/22/dominic-thiem-tennis-highlights-best-shots/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/style/literary-new-york-feeld-dating-app.html
 **You’re Being Lied To About Voter Fraud. Here’s the Truth.**\
 `Widespread cheating at the polls is a myth. So what are election deniers really after?`\
 https://nytimes.com/2024/10/22/opinion/election-fraud-voting-security.html
-
-**Throwing, running and lead blocking: Lamar Jackson is once again the star of the show**\
-`The two-time MVP accounted for 333 total yards and five touchdown passes as Baltimore extended its win streak to five games.`\
-https://nytimes.com/athletic/5862755/2024/10/22/ravens-win-buccaneers-lamar-jackson/
 
