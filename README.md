@@ -1,3 +1,7 @@
+**Ex-Man Utd and Uruguay footballer Diego Forlan to make professional tennis debut**\
+`Diego Forlan, the former Manchester United, Uruguay, and Atletico Madrid footballer, will make his professional tennis debut this November at the age of 45.`\
+https://nytimes.com/athletic/5863104/2024/10/22/diego-forlan-tennis-uruguay/
+
 **Christine Boisson, French Actress, Dies at 68**\
 `She got her start in an erotic film as a teenager and went on to star in dozens of other movies. She died in Paris from lung disease, her daughter said.`\
 https://nytimes.com/2024/10/22/us/christine-boisson-dead.html
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/5863113/2024/10/22/pep-guardiola-manchester-city-in
 `Bowers' 47 catches through his first seven career games are the most in Raiders history and the most in NFL history by a tight end.`\
 https://nytimes.com/athletic/5861805/2024/10/22/brock-bowers-raiders-tight-end-record-yac/
 
+**A Giants fan's guide to rooting for the Yankees in the World Series**\
+`The Dodgers are four wins away from a title and the only thing standing in their way is every Giants fan's new favorite team, the Yankees.`\
+https://nytimes.com/athletic/5860839/2024/10/22/sf-giants-fans-yankees-world-series-guide/
+
 **Tell us your wackiest Fantasy Premier League sleuthing stories**\
 `We want to know the lengths you've gone to in order to gain an advantage in FPL`\
 https://nytimes.com/athletic/5863070/2024/10/22/fantasy-premier-league-fpl-research-investigation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5863070/2024/10/22/fantasy-premier-league-fpl-resea
 **Weekly Student News Quiz: Peace Prize, Europa Clipper, W.N.B.A. Title**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/10/22/learning/22StudentNewsQuiz.html
-
-**Here’s the latest in the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election/heres-the-latest-in-the-presidential-race
-
-**Election Live Updates: No Time to Waste for Harris and Trump With 2 Weeks to Go**\
-`Former President Donald J. Trump has campaign events on Tuesday in Florida and North Carolina. Vice President Kamala Harris will sit for an interview with NBC News.`\
-https://nytimes.com/live/2024/10/22/us/harris-trump-election
 
