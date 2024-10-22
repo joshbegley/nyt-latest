@@ -1,3 +1,7 @@
+**Wordle Review No. 1,222**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 23, 2024.`\
+https://nytimes.com/2024/10/22/crosswords/wordle-review-1222.html
+
 **Marc Lore, Alex Rodriguez are positioning themselves for a full Timberwolves takeover**\
 `If they prevail in arbitration, their ownership group will be brought to the NBA's Board of Governors for final approval as owners.`\
 https://nytimes.com/athletic/5864229/2024/10/22/marc-lore-alex-rodriguez-full-ownership-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864141/2024/10/22/cooper-kupp-rams-trade-calls-pri
 **They Sued Juul and Now It’s Payday**\
 `Unexpected payments from a class-action lawsuit have some TikTok users feeling flush.`\
 https://nytimes.com/2024/10/22/style/juul-lawsuit-payments-tiktok.html
-
-**Copa America final chaos: 100 days on, what is the legal fall-out?**\
-`A slew of legal claims have been issued against event organisers in the wake of the chaos which engulfed July's showpiece final`\
-https://nytimes.com/athletic/5863488/2024/10/22/copa-america-final-chaos-legal/
 

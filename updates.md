@@ -1,3 +1,7 @@
+**Wordle Review No. 1,222**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 23, 2024.`\
+https://nytimes.com/2024/10/22/crosswords/wordle-review-1222.html
+
 **Marc Lore, Alex Rodriguez are positioning themselves for a full Timberwolves takeover**\
 `If they prevail in arbitration, their ownership group will be brought to the NBA's Board of Governors for final approval as owners.`\
 https://nytimes.com/athletic/5864229/2024/10/22/marc-lore-alex-rodriguez-full-ownership-timberwolves/
