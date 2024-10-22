@@ -1,3 +1,7 @@
+**Jayland Walker’s Family Settles With Akron for $4.8 Million Over Police Shooting**\
+`The family had filed a lawsuit against the Ohio city and its police department after Mr. Walker was fatally shot by eight police officers in 2022.`\
+https://nytimes.com/2024/10/21/us/jayland-walker-family-akron-ohio-settlement.html
+
 **Elon Musk, a Trump megadonor, gives the legal maximum to the campaign after holding out.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/10/21/us/harris-trump-election/elon-musk-a-trump-megadonor-gives-the-legal-maximum-to-the-campaign-after-holding-out

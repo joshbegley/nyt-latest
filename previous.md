@@ -1,3 +1,7 @@
+**Jayland Walker’s Family Settles With Akron for $4.8 Million Over Police Shooting**\
+`The family had filed a lawsuit against the Ohio city and its police department after Mr. Walker was fatally shot by eight police officers in 2022.`\
+https://nytimes.com/2024/10/21/us/jayland-walker-family-akron-ohio-settlement.html
+
 **Elon Musk, a Trump megadonor, gives the legal maximum to the campaign after holding out.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/10/21/us/harris-trump-election/elon-musk-a-trump-megadonor-gives-the-legal-maximum-to-the-campaign-after-holding-out
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/21/us/dock-collapse-sapelo-island-georgia.html
 **Nuggets re-sign 'heart and soul' Aaron Gordon to 4-year extension**\
 `"In many ways, Aaron is the heart and soul of the team," Nuggets general manager Calvin Booth told The Athletic after the agreement.`\
 https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extension/
-
-**Bucs' Evans, Ravens' Humphrey ruled out of 'MNF' with injuries**\
-`After sustaining the injury, Evans walked off the field to the locker room on his own power.`\
-https://nytimes.com/athletic/5862374/2024/10/21/mike-evans-hamstring-injury-bucanneers/
 
