@@ -1,3 +1,7 @@
+**I.M.F. Says Inflation Fight Is Largely Over but Warns of New Threats**\
+`The International Monetary Fund said protectionism and new trade wars could weigh on growth.`\
+https://nytimes.com/2024/10/22/business/economy/imf-says-inflation-fight-is-largely-over-but-warns-of-new-threats.html
+
 **The Princess and the Justice**\
 `Princess Gloria von Thurn und Taxis bonded with Justice Samuel A. Alito Jr. over Catholicism and ending abortion. She introduced him to her sumptuous world when he visited her Bavarian palace.`\
 https://nytimes.com/2024/10/22/us/politics/samuel-alito-princess-gloria.html

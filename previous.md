@@ -1,3 +1,7 @@
+**I.M.F. Says Inflation Fight Is Largely Over but Warns of New Threats**\
+`The International Monetary Fund said protectionism and new trade wars could weigh on growth.`\
+https://nytimes.com/2024/10/22/business/economy/imf-says-inflation-fight-is-largely-over-but-warns-of-new-threats.html
+
 **The Princess and the Justice**\
 `Princess Gloria von Thurn und Taxis bonded with Justice Samuel A. Alito Jr. over Catholicism and ending abortion. She introduced him to her sumptuous world when he visited her Bavarian palace.`\
 https://nytimes.com/2024/10/22/us/politics/samuel-alito-princess-gloria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863080/2024/10/22/bailey-zappe-browns-quarterback/
 **Guardiola 'never been so angry' as after Stones, Walker injuries for England**\
 `Pep Guardiola says he had “never been so angry” after John Stones and Kyle Walker returned from England duty injured during last season’s domestic run-in.`\
 https://nytimes.com/athletic/5863113/2024/10/22/pep-guardiola-manchester-city-injuries/
-
-**Raiders rookie Brock Bowers' YAC secret? 'I just catch the ball and run with it'**\
-`Bowers' 47 catches through his first seven career games are the most in Raiders history and the most in NFL history by a tight end.`\
-https://nytimes.com/athletic/5861805/2024/10/22/brock-bowers-raiders-tight-end-record-yac/
 
