@@ -1,3 +1,7 @@
+**The Princess and the Justice**\
+`Princess Gloria von Thurn und Taxis bonded with Justice Samuel A. Alito Jr. over Catholicism and ending abortion. She introduced him to her sumptuous world when he visited her Bavarian palace.`\
+https://nytimes.com/2024/10/22/us/politics/samuel-alito-princess-gloria.html
+
 **West Ham's Kudus charged by FA following red card**\
 `Mohammed Kudus faces the possibility of further punishment after the Football Association (FA) charged the West Ham United forward following his red card at Tottenham Hotspur.`\
 https://nytimes.com/athletic/5854961/2024/10/22/mohammed-kudus-red-card-ban-how-long/
