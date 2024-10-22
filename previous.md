@@ -14,8 +14,8 @@ https://nytimes.com/2024/10/22/us/vail-artist-gaza-war.html
 `Sabb played against Tennessee with a broken foot, but will be out for a while. Also, Alabama flips a tight end commit from North Carolina.`\
 https://nytimes.com/athletic/5864672/2024/10/22/alabama-crimson-tide-keon-sabb-recruiting/
 
-**With Election Looming, John Kelly Speaks Out on Trump**\
-`The former White House chief of staff and retired Marine general explained in a series of interviews why Americans should consider a candidate’s character.`\
+**As Election Nears, Kelly Warns Trump Would Rule Like a Dictator**\
+`John Kelly, the Trump White House’s longest-serving chief of staff, said that he believed that Donald Trump met the definition of a fascist.`\
 https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.html
 
 **The Difference Between Jamie Dimon and Bill Gates**\

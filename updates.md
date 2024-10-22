@@ -1,3 +1,7 @@
+**As Election Nears, Kelly Warns Trump Would Rule Like a Dictator**\
+`John Kelly, the Trump White House’s longest-serving chief of staff, said that he believed that Donald Trump met the definition of a fascist.`\
+https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.html
+
 **Could Polish American Voters Swing the Election?**\
 `Voters with Eastern European backgrounds could be crucial in Pennsylvania, Michigan and Wisconsin.`\
 https://nytimes.com/2024/10/22/us/politics/christine-baranski-harris-polish-american-voters.html
