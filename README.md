@@ -1,7 +1,3 @@
-**Elon Musk, a Trump megadonor, gives the legal maximum to the campaign after holding out.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/10/21/us/harris-trump-election/elon-musk-a-trump-megadonor-gives-the-legal-maximum-to-the-campaign-after-holding-out
-
 **Lions' Jameson Williams facing 2-game suspension for violating NFL's PES policy**\
 `Williams, 23, has caught 17 passes for 361 yards and three touchdowns through six games this season.`\
 https://nytimes.com/athletic/5862542/2024/10/21/jameson-williams-ped-suspension-lions/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5862238/2024/10/21/aaron-gordon-nuggets-max-extensi
 **Bucs' Evans, Ravens' Humphrey ruled out of 'MNF' with injuries**\
 `After sustaining the injury, Evans walked off the field to the locker room on his own power.`\
 https://nytimes.com/athletic/5862374/2024/10/21/mike-evans-hamstring-injury-bucanneers/
+
+**Cubs' Nico Hoerner underwent flexor tendon surgery**\
+`The Gold Glove second baseman dealt with pain in his right forearm for much of the 2024 season.`\
+https://nytimes.com/athletic/5862373/2024/10/21/cubs-nico-hoerner-flexor-tendon-surgery/
 
