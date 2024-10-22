@@ -1,3 +1,7 @@
+**Dominic Thiem: My game in my words**\
+`The Austrian explains how he beat Rafael Nadal and his tactics against Novak Djokovic – and reveals his most underrated shot`\
+https://nytimes.com/athletic/5837024/2024/10/22/dominic-thiem-tennis-highlights-best-shots/
+
 **India Says It Reached Border Deal With China That Could Ease Hostilities**\
 `Four years ago, several soldiers from both sides were killed in a bloody melee. Any thaw between the countries could have global implications.`\
 https://nytimes.com/2024/10/22/world/asia/india-china-border.html

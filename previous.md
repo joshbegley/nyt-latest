@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5862829/2024/10/22/toni-kroos-real-madrid-germany-c
 `From Rookie of the Year to the first player traded to which new coach will make the greatest impact, we have questions (and answers).`\
 https://nytimes.com/athletic/5843372/2024/10/22/nba-biggest-questions-season-start-celtics-knicks-wembanyama/
 
-**My game in my words: Dominic Thiem**\
+**Dominic Thiem: My game in my words**\
 `The Austrian explains how he beat Rafael Nadal and his tactics against Novak Djokovic – and reveals his most underrated shot`\
 https://nytimes.com/athletic/5837024/2024/10/22/dominic-thiem-tennis-highlights-best-shots/
 
