@@ -32,7 +32,7 @@ https://nytimes.com/2024/10/22/health/ecoli-outbreak-mcdonalds-hamburgers.html
 
 **The Athletic MLB Reader Poll: Is a Dodgers-Yankees World Series good or bad for baseball?**\
 `Bring your nuanced debate or your pure spite, whatever works. Our poll will stay open until Thursday, Oct. 24.`\
-https://nytimes.com/athletic/5864360/2024/10/22/the-athletic-mlb-reader-poll-is-a-dodgers-yankees-world-series-good-or-bad-for-baseball/
+https://nytimes.com/athletic/5864360/2024/10/22/mlb-reader-poll-2024-world-series/
 
 **An Australian Woman Trying to Rescue Her Phone Gets Stuck Between Boulders**\
 `And she was upside down.`\

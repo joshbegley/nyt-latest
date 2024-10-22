@@ -1,3 +1,7 @@
+**The Athletic MLB Reader Poll: Is a Dodgers-Yankees World Series good or bad for baseball?**\
+`Bring your nuanced debate or your pure spite, whatever works. Our poll will stay open until Thursday, Oct. 24.`\
+https://nytimes.com/athletic/5864360/2024/10/22/mlb-reader-poll-2024-world-series/
+
 **Britain and Germany Agree on New Defense Pact as Russia Threat Rises**\
 `The two governments said they will coordinate more on defense, with British and German troops conducting joint military exercises on NATO’s eastern border.`\
 https://nytimes.com/2024/10/22/world/europe/britain-and-germany-agree-on-new-defense-pact-as-russia-threat-rises.html
