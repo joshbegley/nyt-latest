@@ -1,3 +1,7 @@
+**Lions' Jameson Williams suspended for violating NFL's PES policy**\
+`Williams, 23, has caught 17 passes for 361 yards and three touchdowns through six games this season.`\
+https://nytimes.com/athletic/5862542/2024/10/21/jameson-williams-ped-suspension-lions/
+
 **Maple Leafs report cards: William Nylander's big night helps Toronto overwhelm Tampa Bay**\
 `The Maple Leafs took care of business in their first outing against a fellow Atlantic Division playoff threat.`\
 https://nytimes.com/athletic/5861357/2024/10/21/maple-leafs-report-cards-nylander-tampa-bay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5862374/2024/10/21/mike-evans-hamstring-injury-buca
 **Cubs' Nico Hoerner underwent flexor tendon surgery**\
 `The Gold Glove second baseman dealt with pain in his right forearm for much of the 2024 season.`\
 https://nytimes.com/athletic/5862373/2024/10/21/cubs-nico-hoerner-flexor-tendon-surgery/
-
-**Tracking Tropical Storm Trami**\
-`See the likely path and wind arrival times for Trami.`\
-https://nytimes.com/interactive/2024/10/21/weather/trami-map-path-tracker.html
 

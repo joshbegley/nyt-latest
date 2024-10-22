@@ -1,3 +1,7 @@
+**Lions' Jameson Williams suspended for violating NFL's PES policy**\
+`Williams, 23, has caught 17 passes for 361 yards and three touchdowns through six games this season.`\
+https://nytimes.com/athletic/5862542/2024/10/21/jameson-williams-ped-suspension-lions/
+
 **Maple Leafs report cards: William Nylander's big night helps Toronto overwhelm Tampa Bay**\
 `The Maple Leafs took care of business in their first outing against a fellow Atlantic Division playoff threat.`\
 https://nytimes.com/athletic/5861357/2024/10/21/maple-leafs-report-cards-nylander-tampa-bay/
