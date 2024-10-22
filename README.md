@@ -1,3 +1,7 @@
+**The A.I. Power Grab**\
+`Big tech companies say A.I. can help solve climate change, even as it’s driving up their emissions and raising doubts about their climate goals.`\
+https://nytimes.com/2024/10/22/climate/ai-big-tech-emissions.html
+
 **Live Q&A: Week 8 fantasy football add/drop chat with Jay Felicio, Tuesday 10/22 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5862382/2024/10/22/live-qa-week-8-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-22-at-5-p-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/business/energy-environment/gas-prices-oil-trump-
 **Inside the Harris Campaign’s Push to Win Back Muslim and Arab Voters**\
 `The campaign is hoping Facebook ads, WhatsApp channels and small meetings with disillusioned voters will help turn the tide.`\
 https://nytimes.com/2024/10/22/us/politics/harris-muslim-arab-voters.html
-
-**Slot links Chiesa's injury issues to missed pre-season and intensity of English football**\
-`Liverpool head coach Arne Slot says Federico Chiesa’s injury issues are linked to missing pre-season and adjusting to the greater intensity of English football.`\
-https://nytimes.com/athletic/5864147/2024/10/22/federico-chiesa-liverpool-injury/
 
