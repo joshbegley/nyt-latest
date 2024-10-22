@@ -1,3 +1,7 @@
+**NIT alters selection process, will give auto-bids to 2 ACC, SEC teams**\
+`The change comes as FOX is set to debut its own 16-team rival postseason tournament in partnership with the Big Ten, Big 12 and Big East.`\
+https://nytimes.com/athletic/5864192/2024/10/22/nit-selection-process-2025/
+
 **Zohran Mamdani, a Democratic Socialist, Will Run Against Mayor Adams**\
 `Zohran Mamdani, a state lawmaker from Queens, has entered the Democratic primary for mayor of New York City, joining a crowded field hoping to unseat Eric Adams.`\
 https://nytimes.com/2024/10/22/nyregion/zohran-mamdani-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/elections/filipino-american-voters-nevada.html
 **A New Effort to Counter Threats to Election Workers**\
 `American officials are highly concerned about the potential for violence against election workers on and around Nov. 5.`\
 https://nytimes.com/2024/10/22/us/politics/election-workers-threats.html
-
-**Super Bowl odds: The Chiefs' top challenger is closing in**\
-`The Ravens decisive Week 7 win solidified their spot as the second-favorite to win the Super Bowl. But dark horse contenders lurk.`\
-https://nytimes.com/athletic/5861346/2024/10/22/super-bowl-odds-week-8-chiefs-ravens-lions-49ers/
 

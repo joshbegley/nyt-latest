@@ -1,3 +1,7 @@
+**NIT alters selection process, will give auto-bids to 2 ACC, SEC teams**\
+`The change comes as FOX is set to debut its own 16-team rival postseason tournament in partnership with the Big Ten, Big 12 and Big East.`\
+https://nytimes.com/athletic/5864192/2024/10/22/nit-selection-process-2025/
+
 **Zohran Mamdani, a Democratic Socialist, Will Run Against Mayor Adams**\
 `Zohran Mamdani, a state lawmaker from Queens, has entered the Democratic primary for mayor of New York City, joining a crowded field hoping to unseat Eric Adams.`\
 https://nytimes.com/2024/10/22/nyregion/zohran-mamdani-mayor.html
