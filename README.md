@@ -1,3 +1,7 @@
+**Who to drop ahead of Week 8? You can bounce Bengals RB Zach Moss**\
+`Underutilized Zach Moss is gathering his namesake, while a "Motor" sits idling in the Meadowlands.`\
+https://nytimes.com/athletic/5863237/2024/10/22/fantasy-football-who-to-drop-ahead-of-week-8-you-can-bounce-bengals-rb-zach-moss/
+
 **Blinken arrives in Israel in the latest U.S. push for a cease-fire in Gaza.**\
 `By Aaron Boxerman and Patrick Kingsley`\
 https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/blinken-israel-gaza-ceasefire
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863104/2024/10/22/diego-forlan-tennis-uruguay/
 **Christine Boisson, French Actress, Dies at 68**\
 `She got her start in an erotic film as a teenager and went on to star in dozens of other movies. She died in Paris from lung disease, her daughter said.`\
 https://nytimes.com/2024/10/22/us/christine-boisson-dead.html
-
-**Acheampong frozen out by Chelsea until he signs new contract**\
-`Chelsea’s highly-rated teenage defender Josh Acheampong has been told he will not play for the club&#8217;s first team or development squad until he signs a new contract.`\
-https://nytimes.com/athletic/5861051/2024/10/22/josh-acheampong-chelsea-contract/
 
