@@ -1,3 +1,11 @@
+**Time and Tide Sets Sail Near Madison Square Park**\
+`Soso’s offers New York-style tavern fare, Mesa Madra bakes Latin American treats and more restaurant news.`\
+https://nytimes.com/2024/10/22/dining/time-and-tide-madison-square-park.html
+
+**In the Art Biennale’s Shadow, Venice Celebrates Music, Too**\
+`It may not be as big or run as long as its visual arts sibling, but the Music Biennale includes a wealth of commissions and premieres.`\
+https://nytimes.com/2024/10/22/arts/music/venice-music-biennale.html
+
 **Mike Jeffries, Former Abercrombie C.E.O., Arrested in Sex-Trafficking Case**\
 `Mr. Jeffries and two others were arrested in connection with a federal sex-trafficking and interstate prostitution investigation.`\
 https://nytimes.com/2024/10/22/business/mike-jeffries-arrested-sex-trafficking-abercrombie.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5863715/2024/10/22/evangelos-marinakis-spit-forest/
 **Trump Media’s Soaring Share Price Masks Internal Strife**\
 `Employees have complained to the board about hiring and management practices at the parent company of Truth Social, which serves as the main online megaphone for former President Donald Trump.`\
 https://nytimes.com/2024/10/22/business/trump-media-truth-social-nunes.html
-
-**What Another Year of Hoping for the Mets Gave to Me**\
-`The Mets have always had some good players. This time, they have a good organization.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/mets-lose-world-series
-
-**Jerry Jones says Cowboys didn't pursue Derrick Henry due to 'fit'**\
-`The Cowboys owner said  Derrick Henry didn’t fit mainly because of the team's salary cap situation.`\
-https://nytimes.com/athletic/5863333/2024/10/22/jerry-jones-comments-radio-derrick-henry/
 
