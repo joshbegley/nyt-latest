@@ -1,3 +1,7 @@
+**Who to drop ahead of Week 8? You can bounce Bengals RB Zach Moss**\
+`Underutilized Zach Moss is gathering his namesake, while a "Motor" sits idling in the Meadowlands.`\
+https://nytimes.com/athletic/5863237/2024/10/22/fantasy-football-who-to-drop-ahead-of-week-8-you-can-bounce-bengals-rb-zach-moss/
+
 **Blinken arrives in Israel in the latest U.S. push for a cease-fire in Gaza.**\
 `By Aaron Boxerman and Patrick Kingsley`\
 https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/blinken-israel-gaza-ceasefire
