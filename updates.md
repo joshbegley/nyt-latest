@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Ready for your questions. If by chance I answer them wrong, please don&#8217;t throw water bottles at me.</p>
+<p>&nbsp;</p>
+`\
+https://nytimes.com/athletic/5862260/2024/10/21/submit-a-question-for-stewart-mandels-college-football-mailbag-278/
+
 **Liz Cheney Campaigns for Harris**\
 `Appearing side by side at a campaign event in Michigan, the Republican former congresswoman expressed her support for Vice President Kamala Harris.`\
 https://nytimes.com/video/us/elections/100000009774584/liz-cheney-harris.html

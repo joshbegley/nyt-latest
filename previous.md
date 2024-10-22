@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Ready for your questions. If by chance I answer them wrong, please don&#8217;t throw water bottles at me.</p>
+<p>&nbsp;</p>
+`\
+https://nytimes.com/athletic/5862260/2024/10/21/submit-a-question-for-stewart-mandels-college-football-mailbag-278/
+
 **Liz Cheney Campaigns for Harris**\
 `Appearing side by side at a campaign event in Michigan, the Republican former congresswoman expressed her support for Vice President Kamala Harris.`\
 https://nytimes.com/video/us/elections/100000009774584/liz-cheney-harris.html
@@ -33,8 +39,4 @@ https://nytimes.com/2024/10/21/world/middleeast/un-resolution-1701-explained.htm
 **What Is ‘Pink Cocaine’?**\
 `The drug cocktail can contain ketamine, Ecstasy and meth — but rarely cocaine itself.`\
 https://nytimes.com/2024/10/21/well/what-is-pink-cocaine.html
-
-**U.S. Tries to End War in Lebanon That Biden Envoy Calls ‘Out of Control’**\
-`Israel and Hezbollah say they will keep up attacks in an escalating conflict that has devastated Gaza, is causing misery in Lebanon and could draw Iran deeper into the fighting.`\
-https://nytimes.com/2024/10/21/world/middleeast/us-israel-hezbollah-lebanon.html
 
