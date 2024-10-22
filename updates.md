@@ -1,3 +1,11 @@
+**Corrections: Oct. 22, 2024**\
+`Corrections that appeared in print on Tuesday, Oct. 22, 2024.`\
+https://nytimes.com/2024/10/21/pageoneplus/corrections-oct-22-2024.html
+
+**Ravens offense shines in win as Bucs lose Evans, Godwin: Takeaways**\
+`The Ravens (5-2) continued their dominant start to the season while also losing CB Marlon Humphrey to a knee injury.`\
+https://nytimes.com/athletic/5862412/2024/10/21/ravens-buccaneers-score-takeaways/
+
 **Trump Courts Christian Voters, Days After Vulgar Remarks at a Rally**\
 `In a nearly hourlong speech before a crowd that included evangelical leaders, he claimed that only he could protect Christian voters. He did not mention abortion once.`\
 https://nytimes.com/2024/10/21/us/politics/trump-christian-voters.html
