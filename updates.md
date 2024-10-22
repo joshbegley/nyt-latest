@@ -1,3 +1,20 @@
+**After extending Trey Murphy, will Pelicans commit to letting him reach potential?**\
+`Murphy signed a four-year, $112 million extension Monday, but he may not have a spot in the starting lineup.`\
+https://nytimes.com/athletic/5863006/2024/10/22/trey-murphy-pelicans-extension/
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/10/22/opinion/thepoint
+
+**House Democratic candidates say voting rights bills would be their top priority.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/10/22/us/harris-trump-election/house-democratic-candidates-say-voting-rights-bills-would-be-their-top-priority
+
+**Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
+`Both Godwin and Evans left Monday night's loss to the Ravens with injuries
+`\
+https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
+
 **Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
 `Both Godwin and Evans left Monday night's loss to the Ravens with injuries
 `\
