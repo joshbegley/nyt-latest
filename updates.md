@@ -1,3 +1,11 @@
+**Time and Tide Sets Sail Near Madison Square Park**\
+`Soso’s offers New York-style tavern fare, Mesa Madra bakes Latin American treats and more restaurant news.`\
+https://nytimes.com/2024/10/22/dining/time-and-tide-madison-square-park.html
+
+**In the Art Biennale’s Shadow, Venice Celebrates Music, Too**\
+`It may not be as big or run as long as its visual arts sibling, but the Music Biennale includes a wealth of commissions and premieres.`\
+https://nytimes.com/2024/10/22/arts/music/venice-music-biennale.html
+
 **Mike Jeffries, Former Abercrombie C.E.O., Arrested in Sex-Trafficking Case**\
 `Mr. Jeffries and two others were arrested in connection with a federal sex-trafficking and interstate prostitution investigation.`\
 https://nytimes.com/2024/10/22/business/mike-jeffries-arrested-sex-trafficking-abercrombie.html
