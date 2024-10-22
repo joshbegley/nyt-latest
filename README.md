@@ -1,3 +1,7 @@
+**Evangelos Marinakis, the FA and phlegm: A case study in (disgusting) absurdity**\
+`Ludicrous language and arguments from both sides in the written explanation for Nottingham Forest owner's ban cheapen a serious issue`\
+https://nytimes.com/athletic/5863991/2024/10/22/marinakis-spitting-fa-report/
+
 **Why Harris Is Struggling With Blue-Collar Voters in Detroit**\
 `Not everyone is impressed by her background as a prosecutor.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/why-harris-is-struggling-with-blue-collar-voters-in-detroit
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864030/2024/10/22/castello-lukeba-rb-leipzig-contr
 **6 Social Media Accounts That Changed How I Rediscover Music**\
 `Hear songs surfaced by Ryley Walker, Drumeo and other feeds from Bring Me the Horizon, Lil Tecca and more.`\
 https://nytimes.com/2024/10/22/arts/music/amplifier-newsletter-music-social-media-accounts.html
-
-**'I consider myself lucky': Dominic Thiem and the agonising what-ifs of tennis**\
-`When the Austrian collapsed to the ground in celebration on a silent Arthur Ashe in 2020, he had finally made it. He could have had more`\
-https://nytimes.com/athletic/5713759/2024/10/22/dominic-thiem-interview/
 

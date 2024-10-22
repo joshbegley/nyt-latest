@@ -1,8 +1,24 @@
+**Why Harris Is Struggling With Blue-Collar Voters in Detroit**\
+`Not everyone is impressed by her background as a prosecutor.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/why-harris-is-struggling-with-blue-collar-voters-in-detroit
+
+**Despite Global Crises, Gas Prices Slide as U.S. Election Nears**\
+`Fuel prices, which had soared after Russia’s invasion of Ukraine, have dropped to their lowest level since February.`\
+https://nytimes.com/2024/10/22/business/energy-environment/gas-prices-oil-trump-harris.html
+
+**Inside the Harris Campaign’s Push to Win Back Muslim and Arab Voters**\
+`The campaign is hoping Facebook ads, WhatsApp channels and small meetings with disillusioned voters will help turn the tide.`\
+https://nytimes.com/2024/10/22/us/politics/harris-muslim-arab-voters.html
+
+**Slot links Chiesa's injury issues to missed pre-season and intensity of English football**\
+`Liverpool head coach Arne Slot says Federico Chiesa’s injury issues are linked to missing pre-season and adjusting to the greater intensity of English football.`\
+https://nytimes.com/athletic/5864147/2024/10/22/federico-chiesa-liverpool-injury/
+
 **In Nevada, Filipino Americans Could Be a Key Factor in Crucial Races**\
 `Democrats in particular have tried to reach Filipino American voters, who now make up the largest Asian American group in Nevada.`\
 https://nytimes.com/2024/10/22/world/asia/filipino-american-voters-nevada.html
 
-**Threats to Election Workers Are Focus of New Campaign**\
+**A New Effort to Counter Threats to Election Workers**\
 `American officials are highly concerned about the potential for violence against election workers on and around Nov. 5.`\
 https://nytimes.com/2024/10/22/us/politics/election-workers-threats.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/22/arts/music/amplifier-newsletter-music-social-medi
 **'I consider myself lucky': Dominic Thiem and the agonising what-ifs of tennis**\
 `When the Austrian collapsed to the ground in celebration on a silent Arthur Ashe in 2020, he had finally made it. He could have had more`\
 https://nytimes.com/athletic/5713759/2024/10/22/dominic-thiem-interview/
-
-**F.D.A. Names a New Chief of Medical Devices**\
-`Patient advocates hope Dr. Michelle Tarver will lead the agency to focus more on safety and less on rapid approvals.`\
-https://nytimes.com/2024/10/22/health/fda-medical-devices.html
-
-**Dominic Thiem retires from tennis: My game in my words**\
-`The Austrian explains how he beat Rafael Nadal and his tactics against Novak Djokovic – and reveals his most underrated shot`\
-https://nytimes.com/athletic/5837024/2024/10/22/dominic-thiem-tennis-highlights-best-shots/
-
-**Pilot Killed in New Mexico Air Show Crash Instructed ‘Top Gun’ Actors**\
-`Charles Thomas “Chuck” Coleman was a flight instructor who prepared actors for the 2022 action movie “Top Gun: Maverick,” which starred Tom Cruise and Miles Teller.`\
-https://nytimes.com/2024/10/22/us/top-gun-instructor-dead-plane-crash.html
-
-**Embiid, George ruled out for 76ers' season opener vs. Bucks**\
-`Embiid has progressed well and is ramping up toward a return after missing much of the preseason with left knee maintenance.`\
-https://nytimes.com/athletic/5863906/2024/10/22/sixers-joel-embiid-paul-george-out-season-opener/
 
