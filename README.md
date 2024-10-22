@@ -10,7 +10,7 @@ https://nytimes.com/live/2024/10/22/opinion/thepoint/dimon-gates-trump-harris
 `They should look at themselves and the way they practice politics.`\
 https://nytimes.com/2024/10/22/opinion/trump-kamala-harris-democrats.html
 
-**Douglas Elliman C.E.O. Retires**\
+**C.E.O. of Real Estate Giant Douglas Elliman Retires Amid Mounting Criticism**\
 `Howard Lorber faced calls to reduce his compensation, amid allegations of sexual assault by agents and plummeting stock prices.`\
 https://nytimes.com/2024/10/22/realestate/douglas-elliman-ceo-retires.html
 
