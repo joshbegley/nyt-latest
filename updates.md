@@ -1,3 +1,11 @@
+**‘Smile 2’ | Anatomy of a Scene**\
+`Parker Finn narrates a sequence from “Smile 2,” starring Naomi Scott.`\
+https://nytimes.com/video/movies/100000009774005/smile-2-anatomy-of-a-scene.html
+
+**The Pulse: Baltimore’s claim for No. 1**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5860855/2024/10/22/ravens-buccaneers-lamar-jackson-the-pulse/
+
 **America’s Flooding Problem**\
 `We explain how the country is responding in three different ways to disasters.`\
 https://nytimes.com/2024/10/22/briefing/americas-flooding-problem.html

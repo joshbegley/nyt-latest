@@ -1,3 +1,11 @@
+**‘Smile 2’ | Anatomy of a Scene**\
+`Parker Finn narrates a sequence from “Smile 2,” starring Naomi Scott.`\
+https://nytimes.com/video/movies/100000009774005/smile-2-anatomy-of-a-scene.html
+
+**The Pulse: Baltimore’s claim for No. 1**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5860855/2024/10/22/ravens-buccaneers-lamar-jackson-the-pulse/
+
 **America’s Flooding Problem**\
 `We explain how the country is responding in three different ways to disasters.`\
 https://nytimes.com/2024/10/22/briefing/americas-flooding-problem.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5861391/2024/10/22/blackhawks-tracking-data-sznajde
 **How has Rangers' Artemi Panarin elevated his game at age 32? Scouts break it down**\
 `The Athletic polled three pro scouts who see the Rangers often and asked a simple question: What's behind Panarin's incredible run?`\
 https://nytimes.com/athletic/5860778/2024/10/22/rangers-artemi-panarin-scouting/
-
-**NFL QB stock report, Week 8: Russell Wilson dazzles in debut; Patrick Mahomes still No. 1?**\
-`Mahomes' stats have never been worse, but the Chiefs are the only unbeaten team left in the NFL, which makes his case for No. 1 complicated.`\
-https://nytimes.com/athletic/5860623/2024/10/22/nfl-qb-stock-report-rankings-russell-wilson-steelers-mahomes/
-
-**Mets free-agent notes on Pete Alonso, Jesse Winker, Sean Manaea and more**\
-`Winker is among the looming free agents who carry positive vibes into the offseason: "I said it was a dream come true and it really was."`\
-https://nytimes.com/athletic/5861667/2024/10/22/mets-free-agent-pete-alonso-jesse-winker/
 
