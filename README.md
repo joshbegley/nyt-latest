@@ -1,3 +1,12 @@
+**Bucs' Chris Godwin to have surgery; Mike Evans to undergo MRI**\
+`Both Godwin and Evans left Monday night's loss to the Ravens with injuries
+`\
+https://nytimes.com/athletic/5863458/2024/10/22/bucs-chris-godwin-mike-evans-injuries/
+
+**The F.B.I. is investigating a leak of classified documents that appear to show Israel’s plans for retaliatory attacks on Iran.**\
+`By Adam Goldman`\
+https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/fbi-israel-iran-leak
+
 **Cardinals to hire Guardians’ Rob Cerfolio: Sources**\
 `In hiring Cerfolio, the Cardinals believe they’ve landed one of baseball’s up-and-coming talents in player development.`\
 https://nytimes.com/athletic/5863462/2024/10/22/cardinals-to-hire-guardians-rob-cerfolio-player-development/
@@ -29,12 +38,4 @@ https://nytimes.com/2024/10/22/business/dealbook/hsbc-restructuring-china-us.htm
 **Julius Randle-Chris Finch connection could ease Randle's transition to Timberwolves**\
 `"When I got to New Orleans, Finchy just gave me a tremendous amount of more confidence and opportunity," Randle said.`\
 https://nytimes.com/athletic/5861765/2024/10/22/julius-randle-chris-finch-connection-timberwolves/
-
-**Who to drop ahead of Week 8? You can bounce Bengals RB Zach Moss**\
-`Underutilized Zach Moss is gathering his namesake, while a "Motor" sits idling in the Meadowlands.`\
-https://nytimes.com/athletic/5863237/2024/10/22/fantasy-football-who-to-drop-ahead-of-week-8-you-can-bounce-bengals-rb-zach-moss/
-
-**Blinken arrives in Israel in the latest U.S. push for a cease-fire in Gaza.**\
-`By Aaron Boxerman and Patrick Kingsley`\
-https://nytimes.com/live/2024/10/22/world/israel-iran-lebanon-hezbollah/blinken-israel-gaza-ceasefire
 
