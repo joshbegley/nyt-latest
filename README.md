@@ -1,3 +1,7 @@
+**The Athletic FC: Vinicius Jr's Ballon d'Or reminder, Why Klopp joined Red Bull**\
+`Today in TAFC: Vinicius Jr's Ballon d'Or reminder, Pulisic's 'Olimpico', why Klopp joined Red Bull - and a footballer turned tennis player.`\
+https://nytimes.com/athletic/5866021/2024/10/23/vinicius-jrs-ballon-dor-reminder-why-klopp-joined-red-bull-flicks-fast-start/
+
 **Anton Forsberg quieted any Senators goaltending issues — at least for one night**\
 `The Senators scored four goals against Utah, but Forsberg emerged as Ottawa's best player.`\
 https://nytimes.com/athletic/5865456/2024/10/23/senators-anton-forsberg-goaltending-linus-ullmark/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781652/2024/10/23/ballon-dor-2024-voting-how-it-wo
 **Chiefs, Titans working on DeAndre Hopkins trade: Sources**\
 `Tennessee would receive a conditional draft pick — a fifth-rounder that could become a fourth — in the deal.`\
 https://nytimes.com/athletic/5866144/2024/10/23/deandre-hopkins-trade-chiefs-titans/
-
-**This Canadiens season is a paradox that will require patience that might not exist**\
-`The Canadiens should not get bogged down in one loss, but the modest expectations this team has set don't seem attainable right now.`\
-https://nytimes.com/athletic/5865830/2024/10/23/canadiens-new-york-rangers-loss/
 
