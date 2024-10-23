@@ -1,3 +1,11 @@
+**Buckley: Celtics’ 18th championship banner is symbolic in that it's all by itself**\
+`Will the banner help the Celtics repeat as NBA champions? Not one bit. But Tuesday night's ceremony reaffirmed Boston as the place to beat.`\
+https://nytimes.com/athletic/5865325/2024/10/22/boston-celtics-ring-banner-ceremony-knicks/
+
+**Bounce Off the Walls, Say**\
+`Are Matthew Stock and Brooke Husic just being diplomatic?`\
+https://nytimes.com/2024/10/22/crosswords/daily-puzzle-2024-10-23.html
+
 **Celtics tie single-game 3-point record in season opener vs. Knicks**\
 `The Milwaukee Bucks set the single-game 3-point record (29) in 2020.`\
 https://nytimes.com/athletic/5865096/2024/10/22/celtics-knicks-3-point-record-results-takeaways/
