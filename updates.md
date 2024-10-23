@@ -1,3 +1,7 @@
+**The Athletic FC: Vinicius Jr's Ballon d'Or reminder, Why Klopp joined Red Bull**\
+`Today in TAFC: Vinicius Jr's Ballon d'Or reminder, Pulisic's 'Olimpico', why Klopp joined Red Bull - and a footballer turned tennis player.`\
+https://nytimes.com/athletic/5866021/2024/10/23/vinicius-jrs-ballon-dor-reminder-why-klopp-joined-red-bull-flicks-fast-start/
+
 **Anton Forsberg quieted any Senators goaltending issues — at least for one night**\
 `The Senators scored four goals against Utah, but Forsberg emerged as Ottawa's best player.`\
 https://nytimes.com/athletic/5865456/2024/10/23/senators-anton-forsberg-goaltending-linus-ullmark/
