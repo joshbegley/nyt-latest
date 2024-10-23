@@ -1,3 +1,7 @@
+**Thursday Briefing: How the U.S. Election is Viewed Abroad**\
+`Plus, the dark side of A.I. companionship apps.`\
+https://nytimes.com/2024/10/23/briefing/us-election-world-north-korea.html
+
 **The Briefing: Manchester City 5 Sparta Prague 0 - Haaland's stunner and Guardiola's corner tweak**\
 `All the key moments and talking points from Pep Guardiola's team's victory in the Champions League analysed `\
 https://nytimes.com/athletic/5859926/2024/10/23/manchester-city-champions-league-haaland-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/world/middleeast/al-jazeera-journalists-hamas-pij
 **Mexican Troops Kill 19 Suspected Cartel Members in Sinaloa Shootout**\
 `The killings in the northwest state of Sinaloa raise questions as to whether Mexico’s new president, Claudia Sheinbaum, is taking a tougher approach to cartels.`\
 https://nytimes.com/2024/10/23/world/americas/mexico-sinaloa-cartel-19-killed.html
-
-**A 4-Year-Old Starved to Death at Home. How Were the Signs Missed?**\
-`Jahmeik Modlin was found emaciated in a Harlem apartment stocked with food. His family’s child-welfare case had been closed two years before.`\
-https://nytimes.com/2024/10/23/nyregion/jahmeik-modlin-dead-nyc-acs.html
 
