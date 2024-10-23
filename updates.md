@@ -1,3 +1,7 @@
+**Chicago Red Stars unveil new name and crest, ushering in next chapter**\
+`The NWSL team will complete this season with the current name and crest, before switching in time for 2025`\
+https://nytimes.com/athletic/5866012/2024/10/23/chicago-red-stars-new-name-logo/
+
 **From Grimace to grins: Counting down the 24 wildest moments for the 2024 Mets**\
 `Francisco Lindor, Pete Alonso and Luis Severino make this list, as do Seymour Weiner, bad cleats and a fainting outfielder.`\
 https://nytimes.com/athletic/5865118/2024/10/23/mets-season-in-review-countdown/

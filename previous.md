@@ -1,3 +1,7 @@
+**Chicago Red Stars unveil new name and crest, ushering in next chapter**\
+`The NWSL team will complete this season with the current name and crest, before switching in time for 2025`\
+https://nytimes.com/athletic/5866012/2024/10/23/chicago-red-stars-new-name-logo/
+
 **From Grimace to grins: Counting down the 24 wildest moments for the 2024 Mets**\
 `Francisco Lindor, Pete Alonso and Luis Severino make this list, as do Seymour Weiner, bad cleats and a fainting outfielder.`\
 https://nytimes.com/athletic/5865118/2024/10/23/mets-season-in-review-countdown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866290/2024/10/23/browns-deshaun-watson-quarterbac
 **A Modi-Xi Meeting Could Signal a Thaw Between India and China**\
 `A meeting between the two leaders comes just two days after they settled a tense border dispute in the Himalayas.`\
 https://nytimes.com/2024/10/23/world/asia/modi-xi-putin-brics.html
-
-**Binance Employee, in Custody for 8 Months in Nigeria, Will Be Released**\
-`Prosecutors have dropped the criminal case against Tigran Gambaryan so he can receive medical care, a government spokesman said.`\
-https://nytimes.com/2024/10/23/business/nigeria-binance-cryptocurrency-money-laundering.html
 
