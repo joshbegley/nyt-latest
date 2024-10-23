@@ -1,3 +1,7 @@
+**Oilers demote Hyman, Nugent-Hopkins to second power-play unit in search of scoring**\
+`The Oilers have converted just two power plays this season on 19 opportunities, despite an all-world group with the man advantage.`\
+https://nytimes.com/athletic/5868060/2024/10/23/oilers-power-play-changes-hyman/
+
 **Champions League briefing: Raphinha matches Vinicius - and what about Haaland's backheel?**\
 `Analysing the key talking points from Wednesday's action - from Raphinha's hat-trick to David mastering Madrid and English clubs flying high`\
 https://nytimes.com/athletic/5867574/2024/10/23/champions-league-raphinha-barcelona-haaland-backheel/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/us/politics/harris-ad-trump-voters.html
 **Teens, What Do You Expect From the 2024 Election?**\
 `The Headway Election Challenge looks to the future, asking teens about their expectations for voter turnout and election results.`\
 https://nytimes.com/2024/10/23/headway/teen-2024-election-expectation.html
-
-**Does Social Media Mean Teens Are Getting Heard? Sort of.**\
-`Teen respondents to the Headway Election Challenge said being represented in politics goes beyond identity — it’s rooted in the issues that affect their lives.`\
-https://nytimes.com/2024/10/23/headway/teens-2024-election-social-media-representation-answers.html
 
