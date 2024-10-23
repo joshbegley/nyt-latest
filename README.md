@@ -1,3 +1,19 @@
+**G7 Finalizes $50 Billion Ukraine Loan Backed by Russian Assets**\
+`The economic lifeline is expected to be disbursed by the end of the year.`\
+https://nytimes.com/2024/10/23/business/g7-ukraine-loan-russian-assets.html
+
+**Six NFL trades we'd like to see: Maxx Crosby to Lions, Nick Chubb to Cowboys**\
+`Should Detroit go all in for Crosby? He'd replace Aidan Hutchinson's production, and can you imagine the damage they'd do together in 2025?`\
+https://nytimes.com/athletic/5863623/2024/10/23/nfl-trades-best-fits-maxx-crosby-deandre-hopkins/
+
+**Ancient Cities Unearthed in Mountains of Central Asia**\
+`The discovery suggests that trade routes along the Silk Road were far more complex than previously understood.`\
+https://nytimes.com/2024/10/23/science/silk-road-mountain-cities.html
+
+**These Might Just Be the Best Beans**\
+`Lidey Heuck’s easy recipe for braised white beans and greens with Parmesan boasts five stars and more than 11,000 reviews.`\
+https://nytimes.com/2024/10/23/dining/best-beans-and-greens.html
+
 **Scoop City: Nine receiver trades that should happen**\
 `Two ideal landing spots for Cooper Kupp, plus who the Chargers, Saints, 49ers, Buccaneers and other WR-needy teams should target.`\
 https://nytimes.com/athletic/5866658/2024/10/23/nine-nfl-wr-trades-that-should-happen-including-the-latest-on-deandre-hopkins/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/23/world/asia/rohingya-muslim-refugees-indonesia-boa
 **In a Tight Presidential Race, Omaha Is Basking in Its Political Relevance**\
 `Reliably conservative Nebraska’s one small “blue dot” could make a difference to Vice President Kamala Harris’s campaign`\
 https://nytimes.com/2024/10/23/us/elections/omaha-nebraska-kamala-harris.html
-
-**A Groundbreaking Performance Ventures Into New Romantic Territory**\
-`The Australian Ballet’s premiere of “Oscar,” based on the life of Oscar Wilde, explores the love relationship between two men.`\
-https://nytimes.com/2024/10/23/arts/dance/australian-ballet-oscar-gay-love-story.html
-
-**Austin says U.S. has yet to see evidence of Hezbollah bunker under Beirut hospital.**\
-`By Aaron Boxerman and Eric Schmitt`\
-https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/austin-says-us-has-yet-to-see-evidence-of-hezbollah-bunker-under-beirut-hospital
-
-**Aid agencies postpone polio vaccinations in northern Gaza.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/aid-agencies-postpone-polio-vaccinations-in-northern-gaza
-
-**U.S. Study on Puberty Blockers Goes Unpublished Because of Politics, Doctor Says**\
-`The leader of the long-running study said that the drugs did not improve mental health in children with gender distress and that the finding might be weaponized by opponents of the care.`\
-https://nytimes.com/2024/10/23/science/puberty-blockers-olson-kennedy.html
 
