@@ -1,3 +1,7 @@
+**Hashim Safieddine is the latest Hezbollah leader Israel says it has killed.**\
+`By Aaron Boxerman and Lauren Leatherby`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/hashim-safieddine-is-the-latest-hezbollah-leader-israel-says-it-has-killed
+
 **What to expect from Rockets, Grizzlies and Spurs in the 2024-25 NBA season**\
 `The NBA season is finally underway and here's what to look for when play gets going in the Southwest Division. `\
 https://nytimes.com/athletic/5864497/2024/10/23/rockets-grizzlies-spurs-nba-2024-25-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864182/2024/10/23/bills-amari-cooper-trade-contrac
 **What does the NHL power play of the future look like? Bad angles, low plays and the return of the spread**\
 `Leon Draisaitl, Connor McDavid, Nikita Kucherov and Steven Stamkos have changed the way NHL teams look at the man advantage.`\
 https://nytimes.com/athletic/5847575/2024/10/23/nhl-power-play-future/
-
-**Three Browns thoughts as trade deadline nears: What would it take to deal Myles Garrett?**\
-`Also, what can we expect from the quarterback position in Week 8 against the Ravens? Will Jameis Winston get the start?`\
-https://nytimes.com/athletic/5864154/2024/10/23/browns-trade-deadline-myles-garrett/
 
