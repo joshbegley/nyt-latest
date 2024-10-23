@@ -1,3 +1,11 @@
+**For 53 years, this NASCAR race never listed a winner. Until now.**\
+`The victory moves Allison into sole possession of fourth place on NASCAR’s all-time wins list.`\
+https://nytimes.com/athletic/5867155/2024/10/23/for-53-years-this-nascar-race-never-listed-a-winner-until-now/
+
+**No, a Voting Machine Did Not ‘Flip’ a Vote in Georgia**\
+`One voter’s mistake has been transformed into a voter fraud conspiracy theory, catapulted into the national spotlight by Representative Marjorie Taylor Greene.`\
+https://nytimes.com/2024/10/23/technology/georgia-voter-fraud-machine-conspiracy-theory.html
+
 **Harris? Trump? Vance? Walz? It’s Campaign Quiz Time.**\
 `Time for your pre-election quiz.`\
 https://nytimes.com/interactive/2024/10/23/opinion/columnists/23collins-quiz-24-v2.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009778304/tyre-lebanon-israel-m
 **What Do You Give Someone Who Just Got Engaged?**\
 `Painterly blankets, bespoke jewelry and more gift recommendations from T Magazine.`\
 https://nytimes.com/2024/10/23/t-magazine/engagement-gifts.html
-
-**Seahawks acquire LB Ernest Jones IV in trade with Titans: Reports**\
-`Seattle will send linebacker Jerome Baker and a fourth-round pick to Tennessee in exchange for Jones IV. `\
-https://nytimes.com/athletic/5867009/2024/10/23/seahawks-titans-ernest-jones-trade/
-
-**Where's Steph Curry?! The NBA and WNBA stars generating the most collector interest**\
-`What basketball collectors can learn from recent eBay data.`\
-https://nytimes.com/athletic/5863720/2024/10/23/nba-wnba-cards-caitlin-clark-wembanyama/
 

@@ -1,3 +1,11 @@
+**For 53 years, this NASCAR race never listed a winner. Until now.**\
+`The victory moves Allison into sole possession of fourth place on NASCAR’s all-time wins list.`\
+https://nytimes.com/athletic/5867155/2024/10/23/for-53-years-this-nascar-race-never-listed-a-winner-until-now/
+
+**No, a Voting Machine Did Not ‘Flip’ a Vote in Georgia**\
+`One voter’s mistake has been transformed into a voter fraud conspiracy theory, catapulted into the national spotlight by Representative Marjorie Taylor Greene.`\
+https://nytimes.com/2024/10/23/technology/georgia-voter-fraud-machine-conspiracy-theory.html
+
 **Harris? Trump? Vance? Walz? It’s Campaign Quiz Time.**\
 `Time for your pre-election quiz.`\
 https://nytimes.com/interactive/2024/10/23/opinion/columnists/23collins-quiz-24-v2.html
