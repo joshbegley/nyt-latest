@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Could Barely Believe My Eyes’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/10/23/style/tiny-modern-love-stories-i-could-barely-believe-my-eyes.html
+
 **White House Says North Korea Sent Thousands of Soldiers to Russia**\
 `John F. Kirby, a national security spokesman at the White House, said that North Korea had sent at least 3,000 soldiers into training sites in eastern Russia.`\
 https://nytimes.com/video/world/asia/100000009778913/russia-north-korea-soldiers-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009778585/harris-trump-kelly-hitler.
 **Harris’s Broad Coalition is Battling Trump’s Narrow Movement**\
 `And every group in that coalition will have to give up something.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-coalition-trump-movement-cheney
-
-**How to Recreate the Season’s Biggest Beauty Trends at Home**\
-`By Zoe Ruffner`\
-https://nytimes.com/card/2024/10/23/t-magazine/fashion/beauty-makeup-ideas
 
