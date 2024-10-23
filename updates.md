@@ -1,3 +1,15 @@
+**L. A. Times Editorial Chief Quits After Owner Blocks Harris Endorsement**\
+`Mariel Garza said the editorial board was prepared to endorse Kamala Harris, but the paper’s owner, Patrick Soon-Shiong, decided not to make an endorsement in the presidential race.`\
+https://nytimes.com/2024/10/23/business/media/la-times-editor-quits-patrick-soon-shiong-endorsement.html
+
+**Five Dead After ‘Terrorist Attack’ on Turkish Aerospace Company**\
+`Gunmen armed with explosives and rifles assaulted the headquarters of a Turkish state-run aerospace company on Wednesday.`\
+https://nytimes.com/video/world/asia/100000009779360/turkey-aerospace-terrorist-attack.html
+
+**Person: Andy Dalton is OK. Bryce Young gets another start. Who knows what happens next?**\
+`Dalton sprained the thumb on his throwing hand in a car collision Tuesday. Young steps into the No. 1 role after being benched.`\
+https://nytimes.com/athletic/5868071/2024/10/23/bryce-young-starting-panthers-andy-dalton/
+
 **Rueter: Fans connect the Red Stars to Chicago, not the brand**\
 `Jeff Rueter writes that it's the Red Stars fans, not the brand, that connect the team to Chicago`\
 https://nytimes.com/athletic/5868028/2024/10/23/chicago-red-stars-rebrand-fans/
