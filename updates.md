@@ -1,3 +1,11 @@
+**Colts' Jonathan Taylor, DeForest Buckner to practice**\
+`Taylor has not practiced or played since sustaining a right high ankle injury in Week 4 against Pittsburgh.`\
+https://nytimes.com/athletic/5866816/2024/10/23/colts-jonathan-taylor-deforest-buckner/
+
+**The Windup: RIP to a Dodgers legend**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5866853/2024/10/23/fernando-valenzuela-dodgers-the-windup/
+
 **Why a Harris Victory Isn’t a Sure Thing**\
 `Responses to two columns by David Brooks. Also: Donald Trump’s disjointed speeches; an inmate with autism; the Eric Adams mess; mistreatment of women.`\
 https://nytimes.com/2024/10/23/opinion/kamala-harris-donald-trump.html
