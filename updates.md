@@ -1,3 +1,15 @@
+**U.S. Study on Puberty Blockers Goes Unpublished Because of Politics, Doctor Says**\
+`The leader of the long-running study said that the drugs did not improve mental health in children with gender distress and that the finding might be weaponized by opponents of the care.`\
+https://nytimes.com/2024/10/23/science/puberty-blockers-olson-kennedy.html
+
+**Gunmen in Turkey Launch Deadly Attack on Aerospace Company**\
+`Surveillance footage showed two attackers, a man and a woman, with backpacks and rifles and a body lying on the pavement outside.`\
+https://nytimes.com/2024/10/23/world/middleeast/turkey-attack.html
+
+**The Bounce: After raising 18th NBA title banner, Celtics make more history against Knicks**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5866169/2024/10/23/jayson-tatum-boston-celtics-lebron-james-lakers-bronny-james-nba-the-bounce/
+
 **Around 140 Rohingya Refugees Stranded at Sea for Over a Week**\
 `The refugees have been barred entry to an Indonesian town because of unrest in nearby towns that had welcomed others, according to a community leader in Aceh Province.`\
 https://nytimes.com/video/world/asia/100000009777482/rohingya-muslim-refugees-indonesia-boat.html
