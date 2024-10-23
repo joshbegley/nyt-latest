@@ -1,40 +1,40 @@
-**How Two of the Rarest Horses on Earth Got Lost**\
-`The entire world’s population of Przewalski’s horses once dwindled to a mere dozen. So how did a pair named Fiona and Shrek end up in livestock auctions in the West?`\
-https://nytimes.com/2024/10/23/nyregion/rare-horses-przewalski.html
+**How to Use Images From Your Phone to Search the Web**\
+`If you’re not sure how to describe what you want with keywords, use your camera or photo library to get those search results.`\
+https://nytimes.com/2024/10/23/technology/personaltech/phone-web-search-images.html
 
-**Tropical Storm Trami Brings Heavy Flooding to the Philippines**\
-`Thousands of people were evacuated from their homes as parts of the country experienced unprecedented flooding, the authorities said.`\
-https://nytimes.com/2024/10/23/world/asia/tropical-storm-trami-philippines-flood.html
+**America Is Playing With Fire**\
+`It’s both frightening and disturbing to think that American voters could once again make someone as unhinged and unbridled as Donald Trump the president.`\
+https://nytimes.com/2024/10/23/opinion/trump-agenda-deep-state.html
 
-**Celtics' season opener had a familiar ring to it, then they continued winning**\
-`After the NBA's kings were feted, Boston shifted its focus to playing basketball and dominated New York 132-109.`\
-https://nytimes.com/athletic/5865845/2024/10/23/celtics-win-opener-against-kinicks/
+**‘People Are Angry’: An Economics Brain Trust Debates How to Fix America**\
+`One set of writers on the left and another on the right lay out competing visions for what the next president should do.`\
+https://nytimes.com/2024/10/23/opinion/economy-trump-harris-america-president.html
 
-**Here are the latest developments.**\
-`By Victoria Kim, Michael Crowley and Gabby Sobelman`\
-https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+**Nate Silver: Here’s What My Gut Says About the Election. But Don’t Trust Anyone’s Gut, Even Mine.**\
+`A 50-50 forecast really does mean 50-50. And you should be open to the possibility that those forecasts are wrong.`\
+https://nytimes.com/2024/10/23/opinion/election-polls-results-trump-harris.html
 
-**Live Updates: Hezbollah Targets Tel Aviv Area With More Strikes**\
-`Secretary of State Antony J. Blinken was among the guests at a Tel Aviv hotel who were directed to shelter rooms as sirens went off after a Hezbollah missile launch.`\
-https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah
+**There Is No Normal**\
+`Everything that challenges the status quo shakes our idea of normal.`\
+https://nytimes.com/2024/10/23/opinion/gender-trans-republicans.html
 
-**Fluffy Feeling Ill? N.Y.C. Workers Might Get Sick Leave for Pet Care.**\
-`Councilman Shaun Abreu is introducing a bill that would require employers in New York City to let workers use their paid sick leave to care for pets and service animals.`\
-https://nytimes.com/2024/10/23/nyregion/new-york-sick-leave-pets.html
+**Should the Falcons make another trade to fix their pass rush? The deadline is near**\
+`The Falcons are last in the NFL with six sacks. Let's look at their trade options ahead of the Nov. 5 deadline.`\
+https://nytimes.com/athletic/5864216/2024/10/23/falcons-trade-deadline-pass-rush/
 
-**New Jersey House Race Narrows in Final Days**\
-`The campaign of the Democratic challenger, Sue Altman, has received a $4 million infusion after polls showed her closing in on the Republican incumbent, Thomas Kean Jr.`\
-https://nytimes.com/2024/10/23/nyregion/new-jersey-altman-kean-house-election.html
+**What Do Animals Know About Death?**\
+`“Playing Possum,” a new book by the philosopher Susana Monsó, explores the mysteries of grief and mourning in the animal world.`\
+https://nytimes.com/2024/10/23/books/review/playing-possum-susana-monso.html
 
-**Passenger Seat**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/10/23/learning/passenger-seat.html
+**Is It Fascism? A Leading Historian Changes His Mind.**\
+`Robert Paxton thought the label was overused. But now he’s alarmed by what he sees in global politics — including Trumpism.`\
+https://nytimes.com/2024/10/23/magazine/robert-paxton-facism.html
 
-**What’s It Like to Tail the Vice President?**\
-`Nicholas Nehamas is one of two Times reporters following Kamala Harris on the campaign trail — a job that comes with certain challenges for his health and diet.`\
-https://nytimes.com/2024/10/23/insider/kamala-harris-campaign.html
+**Patriots at the NFL trade deadline: 5 potential deals to stockpile draft picks**\
+`The Patriots will be sellers at the deadline without much to sell. Still, here are five potential trades for them to consider.`\
+https://nytimes.com/athletic/5863015/2024/10/23/patriots-nfl-trade-deadline-draft-picks/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/23/crosswords/spelling-bee-forum.html
+**White ‘Blobs’ Washing Up on Canada’s Shores Stump Residents and Scientists**\
+`Over a month after the substance began appearing on the southern shores of Newfoundland, a federal agency is still investigating.`\
+https://nytimes.com/2024/10/23/world/canada/newfoundland-canada-beach-blobs.html
 
