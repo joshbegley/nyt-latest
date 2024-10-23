@@ -1,3 +1,23 @@
+**A 4-Year-Old Starved to Death at Home. How Were the Signs Missed?**\
+`Jahmeik Modlin was found emaciated in a Harlem apartment stocked with food. His family’s child-welfare case had been closed two years before.`\
+https://nytimes.com/2024/10/23/nyregion/jahmeik-modlin-dead-nyc-acs.html
+
+**Trudeau Is Urged by Fellow Party Members to Step Down as Prime Minister**\
+`Liberal Party members fear Justin Trudeau has become so unpopular among voters in Canada that it could lead to the party’s defeat in the next election. Mr. Trudeau has said he has no plans to leave.`\
+https://nytimes.com/2024/10/23/world/canada/trudeau-voters-liberal-party.html
+
+**A Dance Trend That Comes With a Warning Label**\
+`Danny Amendola’s smooth lift on “Dancing With the Stars” spawned numerous imitators (with varying results). TikTok cautions users that it can be dangerous.`\
+https://nytimes.com/2024/10/23/style/danny-amendola-dancing-with-the-stars-tiktok.html
+
+**China May Chafe as North Korea Sends Soldiers to Fight Ukraine**\
+`North Korea’s decision to dispatch troops to help Russia subdue Ukraine may put another Kremlin ally, China, in a tough spot diplomatically.`\
+https://nytimes.com/2024/10/23/world/asia/north-korea-ukraine-russia-china.html
+
+**F1 mailbag: Lando Norris' penalty, track limits and Franco Colapinto’s future**\
+`Plus: What can Ferrari do the rest of the season, and into 2025? And how good were the COTA vibes last weekend?`\
+https://nytimes.com/athletic/5866455/2024/10/23/f1-lando-norris-penalty-us-grand-prix-mailbag/
+
 **This Election Is Also a Choice Between Two Visions of the Federal Courts**\
 `Judges have vast influence over the biggest political questions. An analysis of President Biden and Donald J. Trump’s nominees found stark differences that could emerge again after November.`\
 https://nytimes.com/2024/10/23/us/trump-biden-harris-federal-judges.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/23/us/politics/elon-musk-department-of-justice-givea
 **Tiny Love Stories: ‘I Could Barely Believe My Eyes’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/10/23/style/tiny-modern-love-stories-i-could-barely-believe-my-eyes.html
-
-**White House Says North Korea Sent Thousands of Soldiers to Russia**\
-`John F. Kirby, a national security spokesman at the White House, said that North Korea had sent at least 3,000 soldiers into training sites in eastern Russia.`\
-https://nytimes.com/video/world/asia/100000009778913/russia-north-korea-soldiers-ukraine.html
-
-**Bond set for ex-Penn State football players charged with rape, other sex crimes**\
-`A preliminary hearing for both Lyons and Keys has been scheduled for Oct. 30 at 8:30 a.m. ET.`\
-https://nytimes.com/athletic/5867127/2024/10/23/penn-state-rape-charges-bond-lyons-keys/
-
-**In New York, the Strongmen Step Outside**\
-`A new generation of fitness buffs is prioritizing mutual encouragement in the group workouts that have sprouted up in city playgrounds for years.`\
-https://nytimes.com/2024/10/23/style/outdoor-workouts-nyc-motivational-monday.html
-
-**Mets takeaways from David Stearns' end-of-season news conference**\
-`Stearns said of the Mets financial flexibility: 'I envision us taking advantage of that opportunity and being aggressive in certain spaces.'`\
-https://nytimes.com/athletic/5867337/2024/10/23/mets-david-stearns-offseason-free-agency/
-
-**Man City without Grealish out for at least a week, Doku 'a little longer'**\
-`Pep Guardiola says Jack Grealish is set to be sidelined for at least a week while Manchester City will be without Jeremy Doku for &#8220;a little bit longer&#8221;.`\
-https://nytimes.com/athletic/5867461/2024/10/23/grealish-doku-man-city-injury-update/
 
