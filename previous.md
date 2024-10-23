@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim and Michael Crowley`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Hezbollah Targets Tel Aviv Area With More Strikes**\
+`Secretary of State Antony J. Blinken was among the guests at a Tel Aviv hotel who were directed to shelter rooms as sirens went off after a Hezbollah missile launch.`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah
+
 **Fluffy Feeling Ill? N.Y.C. Workers Might Get Sick Leave for Pet Care.**\
 `Councilman Shaun Abreu is introducing a bill that would require employers in New York City to let workers use their paid sick leave to care for pets and service animals.`\
 https://nytimes.com/2024/10/23/nyregion/new-york-sick-leave-pets.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5865761/2024/10/23/dodgers-fernando-valenzuela-deat
 **Vinicius Junior: The match ball, the MVP trophy and a Ballon d'Or to follow on Monday?**\
 `Vinicius Junior was already the favourite for the Ballon d'Or - then he went and scored a superb hat-trick to underline his credentials`\
 https://nytimes.com/athletic/5865164/2024/10/23/vinicius-junior-real-madrid-dortmund-ballon-dor/
-
-**Michael Kosta Thinks He’s Found Elon Musk’s Next Failed Purchase**\
-`The “Daily Show” host said Musk “bought Twitter just to drive it into the ground” and is now considering doing the same for America.`\
-https://nytimes.com/2024/10/23/arts/television/michael-kosta-elon-musk.html
-
-**Penguins played better in loss to Flames; defensive errors remain: Yohe's 10 observations**\
-`Pittsburgh was still victim to defensive miscues in a 4-3 shootout loss in Calgary on Tuesday. `\
-https://nytimes.com/athletic/5862148/2024/10/23/penguins-flames-yohe-10-observations/
 

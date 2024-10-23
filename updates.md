@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim and Michael Crowley`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Hezbollah Targets Tel Aviv Area With More Strikes**\
+`Secretary of State Antony J. Blinken was among the guests at a Tel Aviv hotel who were directed to shelter rooms as sirens went off after a Hezbollah missile launch.`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah
+
 **Fluffy Feeling Ill? N.Y.C. Workers Might Get Sick Leave for Pet Care.**\
 `Councilman Shaun Abreu is introducing a bill that would require employers in New York City to let workers use their paid sick leave to care for pets and service animals.`\
 https://nytimes.com/2024/10/23/nyregion/new-york-sick-leave-pets.html
