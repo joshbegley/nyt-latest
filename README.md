@@ -1,3 +1,7 @@
+**Wild spank defending Stanley Cup champs amid best start in 16 years: 4 takeaways**\
+`The Wild extended their point streak to six games while beating the reigning champion Panthers 5-1 in their own barn.`\
+https://nytimes.com/athletic/5864935/2024/10/22/wild-best-start-in-16-years-panthers/
+
 **Submit your questions for The Athletic's Big Ten football mailbag**\
 `As the race to the postseason picks up, submit your Big Ten football questions here.`\
 https://nytimes.com/athletic/5861140/2024/10/22/submit-your-questions-for-the-athletics-big-ten-football-mailbag-2/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009776814/biden-drug-costs.html
 **Artist Sues Town for Canceling Residency Over Her Views on Gaza War**\
 `The American Civil Liberties Union has sued Vail, Colo., on behalf of a Native American artist who painted a work entitled “G is for Genocide.”`\
 https://nytimes.com/2024/10/22/us/vail-artist-gaza-war.html
-
-**With Keon Sabb out, Alabama needs Bray Hubbard to step up: Alabama notebook**\
-`Sabb played against Tennessee with a broken foot, but will be out for a while. Also, Alabama flips a tight end commit from North Carolina.`\
-https://nytimes.com/athletic/5864672/2024/10/22/alabama-crimson-tide-keon-sabb-recruiting/
 
