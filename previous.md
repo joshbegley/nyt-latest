@@ -1,3 +1,15 @@
+**Tesla Reports Robust Profit Increase**\
+`The electric car company said profits climbed 17 percent in the third quarter as strong sales of energy products helped to make up for relatively slow auto sales.`\
+https://nytimes.com/2024/10/23/business/tesla-elon-musk-earnings.html
+
+**Bots Linked to China Target Republican House and Senate Candidates, Microsoft Says**\
+`Chinese influence operations have focused less on this year’s presidential race and more on down-ballot races.`\
+https://nytimes.com/2024/10/23/us/politics/x-bots-china-republicans.html
+
+**Justice Department Warns Musk That His $1 Million Giveaway Might Be Illegal**\
+`Elon Musk’s super PAC, which supports Donald Trump’s presidential bid, is giving cash prizes to registered voters who sign a petition.`\
+https://nytimes.com/2024/10/23/us/politics/elon-musk-department-of-justice-giveaway.html
+
 **Tiny Love Stories: ‘I Could Barely Believe My Eyes’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/10/23/style/tiny-modern-love-stories-i-could-barely-believe-my-eyes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5867461/2024/10/23/grealish-doku-man-city-injury-up
 **A tribute to Fernando Valenzuela, the mystical lefty with the miracle screwball**\
 `Valenzuela wasn’t the best pitcher in baseball history. But he was one of the finest performers the game has ever seen.`\
 https://nytimes.com/athletic/5867329/2024/10/23/fernando-valenzuela-dodgers-death-tribute/
-
-**Who are the NBA's most valuable players toward the point spread?**\
-`Who is the most valuable player in the NBA toward the point spread on a nightly basis? Bookmakers chime in.`\
-https://nytimes.com/athletic/5867203/2024/10/23/nba-mvp-spread-giannis-jokic-curry-doncic/
-
-**Harris Says Trump Wants ‘Unchecked Power’**\
-`Vice President Kamala Harris, citing a New York Times interview with John Kelly, a former White House chief of staff, called former President Donald J. Trump “increasingly unhinged” in his pursuit for a second term in office.`\
-https://nytimes.com/video/us/politics/100000009778585/harris-trump-kelly-hitler.html
-
-**Harris’s Broad Coalition is Battling Trump’s Narrow Movement**\
-`And every group in that coalition will have to give up something.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-coalition-trump-movement-cheney
 
