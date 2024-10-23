@@ -1,3 +1,11 @@
+**Attention, Passengers: Someone Is Skipping the Line at Your Gate**\
+`American Airlines is testing a technology platform that will produce a sound when a passenger attempts to board a flight ahead of the assigned group.`\
+https://nytimes.com/2024/10/23/business/american-airlines-line-cutters.html
+
+**Slot 'proud' of record-breaking Liverpool start**\
+`Arne Slot says he’s proud of Liverpool’s record-breaking start to his reign — but insists winning trophies is what really matters to him.`\
+https://nytimes.com/athletic/5868006/2024/10/23/arne-slot-liverpool-start/
+
 **Harris Will Offer Closing Argument at Ellipse in Washington**\
 `The vice president will give a speech on Tuesday at the Ellipse, the park near the White House where Donald Trump encouraged supporters to march on the Capitol on Jan. 6, 2021.`\
 https://nytimes.com/2024/10/23/us/politics/harris-speech-washington-ellipse.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/headway/teens-2024-election-social-media-represen
 **Joe Buck on the call that presaged Chris Godwin's injury: 'You kind of feel sick'**\
 `On "Monday Night Football," Joe Buck had a bad feeling about the Buccaneers pushing for a rally. Moments later, Chris Godwin was injured.`\
 https://nytimes.com/athletic/5867422/2024/10/23/chris-godwin-joe-buck-injury-call/
-
-**Thursday Briefing: How the U.S. Election is Viewed Abroad**\
-`Plus, the dark side of A.I. companionship apps.`\
-https://nytimes.com/2024/10/23/briefing/us-election-world-north-korea.html
-
-**The Briefing: Manchester City 5 Sparta Prague 0 - Haaland's stunner and Guardiola's corner tweak**\
-`All the key moments and talking points from Pep Guardiola's team's victory in the Champions League analysed `\
-https://nytimes.com/athletic/5859926/2024/10/23/manchester-city-champions-league-haaland-briefing/
 
