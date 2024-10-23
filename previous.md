@@ -1,3 +1,7 @@
+**Trump Accuses U.K. Party of Election Meddling, Despite Links to Its Rivals**\
+`A complaint from the Trump campaign says that actions by members of Britain’s Labour Party were “blatant foreign interference.” Mr. Trump has previously voiced and received support from Labour’s rivals.`\
+https://nytimes.com/2024/10/23/world/europe/uk-labour-party-trump.html
+
 **The Pulse: NBA history, plus a surprising result**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5863535/2024/10/23/lebron-bronny-james-lakers-timberwolves-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854495/2024/10/23/lori-locust-titans-nfl-women-coa
 **How much will it cost to attend the Yankees-Dodgers World Series?**\
 `Sales on StubHub have already outpaced last year's World Series.`\
 https://nytimes.com/athletic/5864462/2024/10/23/world-series-yankees-dodgers-ticket-prices-stubhub/
-
-**Blinken Renews Push for Middle East Truce, and U.S. Abortions Increase**\
-`Plus, a radical approach to flooding in England.`\
-https://nytimes.com/2024/10/23/podcasts/blinken-truce-us-abortions.html
 
