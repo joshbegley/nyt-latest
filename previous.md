@@ -1,3 +1,7 @@
+**Walz Rallies Supporters on Wisconsin’s First Day of Voting, Alongside Obama**\
+`The two men railed against Donald Trump and urged voters to return their ballots early, as polls show a close race in the state.`\
+https://nytimes.com/2024/10/22/us/politics/walz-obama-wisconsin.html
+
 **Southern California Politician Resigns and Agrees to Plead Guilty in Bribery Scheme**\
 `Federal prosecutors said that Andrew Do, an Orange County supervisor, enriched himself and his family with federal pandemic aid meant for seniors.`\
 https://nytimes.com/2024/10/22/us/california-andrew-do-bribery-pandemic-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864672/2024/10/22/alabama-crimson-tide-keon-sabb-r
 **As Election Nears, Kelly Warns Trump Would Rule Like a Dictator**\
 `John Kelly, the Trump White House’s longest-serving chief of staff, said that he believed that Donald Trump met the definition of a fascist.`\
 https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.html
-
-**The Difference Between Jamie Dimon and Bill Gates**\
-`Trump’s power of intimidation is usually effective, but some public figures are able to resist it.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/dimon-gates-trump-harris
 

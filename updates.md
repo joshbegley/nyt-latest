@@ -1,3 +1,7 @@
+**Walz Rallies Supporters on Wisconsin’s First Day of Voting, Alongside Obama**\
+`The two men railed against Donald Trump and urged voters to return their ballots early, as polls show a close race in the state.`\
+https://nytimes.com/2024/10/22/us/politics/walz-obama-wisconsin.html
+
 **Southern California Politician Resigns and Agrees to Plead Guilty in Bribery Scheme**\
 `Federal prosecutors said that Andrew Do, an Orange County supervisor, enriched himself and his family with federal pandemic aid meant for seniors.`\
 https://nytimes.com/2024/10/22/us/california-andrew-do-bribery-pandemic-aid.html
