@@ -1,3 +1,7 @@
+**What to expect from Rockets, Grizzlies and Spurs in the 2024-25 NBA season**\
+`The NBA season is finally underway and here's what to look for when play gets going in the Southwest Division. `\
+https://nytimes.com/athletic/5864497/2024/10/23/rockets-grizzlies-spurs-nba-2024-25-season/
+
 **American Airlines Fined $50 Million for Treatment of Passengers Using Wheelchairs**\
 `The Transportation Department issued the fine after an investigation revealed “cases of unsafe physical assistance that at times resulted in injuries and undignified treatment of wheelchair users.”`\
 https://nytimes.com/2024/10/23/travel/american-airlines-fined-wheelchairs.html
