@@ -1,3 +1,7 @@
+**GE Vernova Finds Further Problems With Its Wind Turbine Blades**\
+`The company said other blades had a “manufacturing deviation” similar to a blade that shattered in July off the coast of Nantucket.`\
+https://nytimes.com/2024/10/23/business/ge-vernova-wind-turbine-blades.html
+
 **Calling all unanswerable college football questions!**\
 `Is there an aspect of college football that you've always wanted to know more about? Is there a myth you'd like to see busted or validated?`\
 https://nytimes.com/athletic/5866746/2024/10/23/unanswerable-college-football-questions/
