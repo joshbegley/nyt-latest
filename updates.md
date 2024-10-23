@@ -1,3 +1,15 @@
+**A Sleeper Senate Race Tightens in Nebraska as an Independent Gains**\
+`Dan Osborn, a labor leader and mechanic who is running as an independent, is making Republicans sweat with his dark horse bid to oust Senator Deb Fischer. Can he turn the buzz into votes?`\
+https://nytimes.com/2024/10/23/us/politics/nebraska-senate-osborn-fischer.html
+
+**This Giant Jam Bun Makes a Party Out of Teatime**\
+`A cross between a scone, cake and cinnamon bun, this giant jam bun is a swirly, almond-scented delight.`\
+https://nytimes.com/2024/10/23/dining/giant-jam-bun-teatime.html
+
+**Apple and Goldman Sachs Must Pay Nearly $90 Million in Credit-Card Inquiry**\
+`The penalties and customer refunds stem from an investigation by the Consumer Financial Protection Bureau into Apple Card, which Goldman issues.`\
+https://nytimes.com/2024/10/23/business/apple-goldman-sachs-fine-credit-cards.html
+
 **Colts' Jonathan Taylor, DeForest Buckner to practice**\
 `Taylor has not practiced or played since sustaining a right high ankle injury in Week 4 against Pittsburgh.`\
 https://nytimes.com/athletic/5866816/2024/10/23/colts-jonathan-taylor-deforest-buckner/

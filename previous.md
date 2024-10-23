@@ -1,3 +1,15 @@
+**A Sleeper Senate Race Tightens in Nebraska as an Independent Gains**\
+`Dan Osborn, a labor leader and mechanic who is running as an independent, is making Republicans sweat with his dark horse bid to oust Senator Deb Fischer. Can he turn the buzz into votes?`\
+https://nytimes.com/2024/10/23/us/politics/nebraska-senate-osborn-fischer.html
+
+**This Giant Jam Bun Makes a Party Out of Teatime**\
+`A cross between a scone, cake and cinnamon bun, this giant jam bun is a swirly, almond-scented delight.`\
+https://nytimes.com/2024/10/23/dining/giant-jam-bun-teatime.html
+
+**Apple and Goldman Sachs Must Pay Nearly $90 Million in Credit-Card Inquiry**\
+`The penalties and customer refunds stem from an investigation by the Consumer Financial Protection Bureau into Apple Card, which Goldman issues.`\
+https://nytimes.com/2024/10/23/business/apple-goldman-sachs-fine-credit-cards.html
+
 **Colts' Jonathan Taylor, DeForest Buckner to practice**\
 `Taylor has not practiced or played since sustaining a right high ankle injury in Week 4 against Pittsburgh.`\
 https://nytimes.com/athletic/5866816/2024/10/23/colts-jonathan-taylor-deforest-buckner/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5866787/2024/10/23/nascar-frankie-muniz-actor-drive
 **The Vikings will be buyers at the trade deadline, but how hard should they swing?**\
 `The Vikings have built a team that has proven to be not just competitive, but one of the league's best. Can they make it even better? `\
 https://nytimes.com/athletic/5864714/2024/10/23/vikings-trade-deadline-positions/
-
-**Former OpenAI Researcher Says the Company Broke Copyright Law**\
-`Suchir Balaji helped gather and organize the enormous amounts of internet data used to train the startup’s ChatGPT chatbot.`\
-https://nytimes.com/2024/10/23/technology/openai-copyright-law.html
-
-**Julia Hawkins, Centenarian Sprinter, Dies at 108**\
-`She took up running after her 100th birthday at the encouragement of her children, and went on to set two world records in the 100-meter dash.`\
-https://nytimes.com/2024/10/23/sports/julia-hawkins-dead.html
-
-**How a Dash Cam Revealed a Likely Car Insurance Fraud Scheme**\
-`A driver thought she was the victim of road rage until recorded videos showed what appeared to be a staged accident.`\
-https://nytimes.com/2024/10/23/us/queens-dash-cam-crash-belt-parkway-insurance.html
 
