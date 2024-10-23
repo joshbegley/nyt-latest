@@ -1,3 +1,7 @@
+**Dodgers legend Fernando Valenzuela dies at 63**\
+`As a 20-year-old, Valenzuela won the Rookie of the Year and Cy Young awards and created 'Fernandomania' en route to a World Series title.`\
+https://nytimes.com/athletic/5808180/2024/10/22/fernando-valenzuela-dead-mlb-dodgers/
+
 **Canadiens angered by Trouba hit, third line thrives, more: 4 Rangers takeaways**\
 `The Rangers got off to a hot start in Montreal, scoring four goals in the first 11:05 en route to a 7-2 victory.`\
 https://nytimes.com/athletic/5865510/2024/10/22/rangers-trouba-hit-canadiens-third-line/
