@@ -1,3 +1,11 @@
+**Postecoglou eases concerns over Son's fitness**\
+`Ange Postecoglou has eased concerns over Son Heung-min&#8217;s fitness after the Tottenham Hotspur captain missed training ahead of Thursday’s Europa League clash with AZ Alkmaar.`\
+https://nytimes.com/athletic/5866326/2024/10/23/ange-postecoglou-son-heung-min-tottenham/
+
+**Not Just Any Old Warehouse**\
+`Ricky Choi, a co-founder of Nice Laundry, was frustrated by how fulfillment centers handled his brand’s socks and underwear. So he started a new kind of packaging firm for chic labels.`\
+https://nytimes.com/2024/10/23/style/not-just-any-old-warehouse.html
+
 **Browns to start QB Jameis Winston vs. Ravens**\
 `Cleveland is 1-6 and dropped its last five straight games, including a 21-14 loss Sunday to the Cincinnati Bengals.`\
 https://nytimes.com/athletic/5866290/2024/10/23/browns-deshaun-watson-quarterback-jameis-winston/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5866021/2024/10/23/vinicius-jrs-ballon-dor-reminder
 **Anton Forsberg quieted any Senators goaltending issues — at least for one night**\
 `The Senators scored four goals against Utah, but Forsberg emerged as Ottawa's best player.`\
 https://nytimes.com/athletic/5865456/2024/10/23/senators-anton-forsberg-goaltending-linus-ullmark/
-
-**Donald Trump’s lifetime of scandals heads toward a moment of judgment.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/10/23/us/harris-trump-election/donald-trumps-lifetime-of-scandals-heads-toward-a-moment-of-judgment
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/10/23/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
