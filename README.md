@@ -1,3 +1,7 @@
+**This is Summerville's chance to shine. Can he make an impact?**\
+`With Mohammed Kudus suspended, the 22-year-old has the chance to show why West Ham's attack will be far richer with him in it`\
+https://nytimes.com/athletic/5860021/2024/10/23/crysencio-summerville-west-ham/
+
 **Same old story does Blackhawks in against Canucks: Observations**\
 `The Blackhawks struggled to find their footing defensively in a 6-3 loss to the Canucks.`\
 https://nytimes.com/athletic/5865406/2024/10/23/blackhawks-same-old-story-canucks-defense-foligno/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864113/2024/10/23/barcelona-flick-turnaround/
 **Wednesday Briefing**\
 `Early voting starts in all seven swing states.`\
 https://nytimes.com/2024/10/23/world/europe/voting-election-blinken-israel-yellen.html
-
-**Freshman Enrollment Appears to Decline for the First Time Since 2020**\
-`A projected 5 percent drop in this year’s freshman class follows a number of disruptions last year, including persistent failures with the FAFSA form.`\
-https://nytimes.com/2024/10/23/us/politics/freshman-enrollment-appears-to-decline-for-the-first-time-since-2020.html
 
