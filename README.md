@@ -1,3 +1,11 @@
+**Browns to start QB Jameis Winston vs. Ravens**\
+`Cleveland is 1-6 and dropped its last five straight games, including a 21-14 loss Sunday to the Cincinnati Bengals.`\
+https://nytimes.com/athletic/5866290/2024/10/23/browns-deshaun-watson-quarterback-jameis-winston/
+
+**A Modi-Xi Meeting Could Signal a Thaw Between India and China**\
+`A meeting between the two leaders comes just two days after they settled a tense border dispute in the Himalayas.`\
+https://nytimes.com/2024/10/23/world/asia/modi-xi-putin-brics.html
+
 **Binance Employee, in Custody for 8 Months in Nigeria, Will Be Released**\
 `Prosecutors have dropped the criminal case against Tigran Gambaryan so he can receive medical care, a government spokesman said.`\
 https://nytimes.com/2024/10/23/business/nigeria-binance-cryptocurrency-money-laundering.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/23/us/harris-trump-election/donald-trumps-lifet
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/23/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris and Trump to Face Voters at Town Halls**\
-`Donald J. Trump will appear at a faith-based event in Georgia, while Kamala Harris will be in Pennsylvania for a CNN broadcast.`\
-https://nytimes.com/live/2024/10/23/us/harris-trump-election
-
-**In JJ Redick's debut, Lakers show their potential to contend: 'We trust him'**\
-`Anthony Davis thrived in his role as offensive hub, and LA's shot selection and ball security were highlights in the win over Minnesota.  `\
-https://nytimes.com/athletic/5865764/2024/10/23/lakers-jj-redick-opener/
 
