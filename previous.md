@@ -1,3 +1,7 @@
+**How the 2024 Election Became a Battle Fought by Podcast**\
+`Harris and Trump turn to digital venues with niche audiences to sway tiny slivers of the electorate.`\
+https://nytimes.com/2024/10/23/us/politics/harris-trump-podcasts.html
+
 **Fernandomania Wasn’t a Fairy Tale. It Was Better Than That.**\
 `Fernando Valenzuela, who died on Tuesday at age 63, was a teenage phenomenon from Mexico who remade the Dodgers’ fan base and put his country on the baseball map.`\
 https://nytimes.com/2024/10/23/style/fernando-valenzuela-fernandomania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/business/american-airlines-line-cutters.html
 **Slot 'proud' of record-breaking Liverpool start**\
 `Arne Slot says he’s proud of Liverpool’s record-breaking start to his reign — but insists winning trophies is what really matters to him.`\
 https://nytimes.com/athletic/5868006/2024/10/23/arne-slot-liverpool-start/
-
-**Harris Will Offer Closing Argument at Ellipse in Washington**\
-`The vice president will give a speech on Tuesday at the Ellipse, the park near the White House where Donald Trump encouraged supporters to march on the Capitol on Jan. 6, 2021.`\
-https://nytimes.com/2024/10/23/us/politics/harris-speech-washington-ellipse.html
 

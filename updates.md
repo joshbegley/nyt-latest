@@ -1,3 +1,7 @@
+**How the 2024 Election Became a Battle Fought by Podcast**\
+`Harris and Trump turn to digital venues with niche audiences to sway tiny slivers of the electorate.`\
+https://nytimes.com/2024/10/23/us/politics/harris-trump-podcasts.html
+
 **Fernandomania Wasn’t a Fairy Tale. It Was Better Than That.**\
 `Fernando Valenzuela, who died on Tuesday at age 63, was a teenage phenomenon from Mexico who remade the Dodgers’ fan base and put his country on the baseball map.`\
 https://nytimes.com/2024/10/23/style/fernando-valenzuela-fernandomania.html
