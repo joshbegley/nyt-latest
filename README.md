@@ -14,9 +14,9 @@ https://nytimes.com/athletic/5867943/2024/10/23/robert-saleh-matt-lafleur-packer
 `Also, the U.S. said North Korea sent troops to aid Russia. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/23/briefing/harris-trump-campaign-attacks-north-korea-troops.html
 
-**A Pro-Harris Ad Aims to Onboard Trump Voters**\
-`A new commercial from the biggest super PAC in American politics makes a pitch for Trump-weary Republicans.`\
-https://nytimes.com/2024/10/23/us/politics/a-pro-harris-ad-aims-to-onboard-trump-voters.html
+**A Pro-Harris Ad Aims to Woo Trump-Weary Republicans**\
+`A new commercial from the biggest super PAC in American politics makes a pitch for Republicans in Arizona and North Carolina.`\
+https://nytimes.com/2024/10/23/us/politics/harris-ad-trump-voters.html
 
 **Teens, What Do You Expect From the 2024 Election?**\
 `The Headway Election Challenge looks to the future, asking teens about their expectations for voter turnout and election results.`\
