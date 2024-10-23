@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/23/business/media/la-times-editor-quits-patrick-soon-shiong-endorsement.html
 
 **Five Dead After ‘Terrorist Attack’ on Turkish Aerospace Company**\
-`Gunmen armed with explosives and rifles assaulted the headquarters of a Turkish state-run aerospace company on Wednesday.`\
+`Attackers armed with explosives and rifles assaulted the headquarters of a Turkish state-run aerospace company on Wednesday.`\
 https://nytimes.com/video/world/asia/100000009779360/turkey-aerospace-terrorist-attack.html
 
 **Rueter: Fans connect the Red Stars to Chicago, not the brand**\
