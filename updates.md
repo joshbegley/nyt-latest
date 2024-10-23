@@ -1,3 +1,7 @@
+**Former OpenAI Researcher Says the Company Broke Copyright Law**\
+`Suchir Balaji helped gather and organize the enormous amounts of internet data used to train the startup’s ChatGPT chatbot.`\
+https://nytimes.com/2024/10/23/technology/openai-copyright-law.html
+
 **Julia Hawkins, Centenarian Sprinter, Dies at 108**\
 `She took up running after her 100th birthday at the encouragement of her children, and went on to set two world records in the 100-meter dash.`\
 https://nytimes.com/2024/10/23/sports/julia-hawkins-dead.html

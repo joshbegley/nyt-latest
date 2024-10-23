@@ -1,3 +1,7 @@
+**Former OpenAI Researcher Says the Company Broke Copyright Law**\
+`Suchir Balaji helped gather and organize the enormous amounts of internet data used to train the startup’s ChatGPT chatbot.`\
+https://nytimes.com/2024/10/23/technology/openai-copyright-law.html
+
 **Julia Hawkins, Centenarian Sprinter, Dies at 108**\
 `She took up running after her 100th birthday at the encouragement of her children, and went on to set two world records in the 100-meter dash.`\
 https://nytimes.com/2024/10/23/sports/julia-hawkins-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/business/g7-ukraine-loan-russian-assets.html
 **Six NFL trades we'd like to see: Maxx Crosby to Lions, Nick Chubb to Cowboys**\
 `Should Detroit go all in for Crosby? He'd replace Aidan Hutchinson's production, and can you imagine the damage they'd do together in 2025?`\
 https://nytimes.com/athletic/5863623/2024/10/23/nfl-trades-best-fits-maxx-crosby-deandre-hopkins/
-
-**Ancient Cities Unearthed in Mountains of Central Asia**\
-`The discovery suggests that trade routes along the Silk Road were far more complex than previously understood.`\
-https://nytimes.com/2024/10/23/science/silk-road-mountain-cities.html
 
