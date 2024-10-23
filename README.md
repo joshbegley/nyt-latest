@@ -1,3 +1,11 @@
+**Rams open Nacua's practice window after IR stint**\
+`Puka Nacua has been out since being injured in the Rams' Week 1 game against the Lions.`\
+https://nytimes.com/athletic/5865101/2024/10/22/rams-puka-nacua-practice-window-ir/
+
+**Yelp Disables Comments for McDonald’s Where Trump Donned Apron**\
+`The consumer review site temporarily disabled comments on the franchise’s page after the former president’s appearance prompted a flurry of reviews.`\
+https://nytimes.com/2024/10/22/us/yelp-mcdonalds-trump-reviews.html
+
 **Wild spank defending Stanley Cup champs amid best start in 16 years: 4 takeaways**\
 `The Wild extended their point streak to six games while beating the reigning champion Panthers 5-1 in their own barn.`\
 https://nytimes.com/athletic/5864935/2024/10/22/wild-best-start-in-16-years-panthers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/biden-trump-lock-him-up.html
 **Could Polish American Voters Swing the Election?**\
 `Voters with Eastern European backgrounds could be crucial in Pennsylvania, Michigan and Wisconsin.`\
 https://nytimes.com/2024/10/22/us/politics/christine-baranski-harris-polish-american-voters.html
-
-**Biden Mocks Trump’s ‘Concept of a Plan’ to Replace Obamacare**\
-`During a visit to New Hampshire to discuss the cost of prescription drugs, President Biden warned that a second Trump presidency could lead millions of people to lose health care.`\
-https://nytimes.com/video/us/elections/100000009776814/biden-drug-costs.html
-
-**Artist Sues Town for Canceling Residency Over Her Views on Gaza War**\
-`The American Civil Liberties Union has sued Vail, Colo., on behalf of a Native American artist who painted a work entitled “G is for Genocide.”`\
-https://nytimes.com/2024/10/22/us/vail-artist-gaza-war.html
 
