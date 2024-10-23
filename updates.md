@@ -1,3 +1,7 @@
+**Word of the Day: biodiversity**\
+`This word has appeared in 212 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/23/learning/word-of-the-day-biodiversity.html
+
 **Aston Villa earn the right to dream as Unai Emery takes the Champions League by storm**\
 `Villa became the third side to win their first three games without conceding since the rebranding of Europe's elite club competition in 1992`\
 https://nytimes.com/athletic/5864793/2024/10/23/aston-villas-unai-emery-champions-league/

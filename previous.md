@@ -1,3 +1,7 @@
+**Word of the Day: biodiversity**\
+`This word has appeared in 212 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/23/learning/word-of-the-day-biodiversity.html
+
 **Aston Villa earn the right to dream as Unai Emery takes the Champions League by storm**\
 `Villa became the third side to win their first three games without conceding since the rebranding of Europe's elite club competition in 1992`\
 https://nytimes.com/athletic/5864793/2024/10/23/aston-villas-unai-emery-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/opinion/georgia-election-europe-west.html
 **Stuffed Into Trucks, 78 Thai Protesters Died. Their Killers Are Still Free.**\
 `Twenty years ago, a massacre in southern Thailand fueled an insurgency that has never stopped. If no one is prosecuted for it by Friday, no one ever will be.`\
 https://nytimes.com/2024/10/23/world/asia/thailand-tak-bai-massacre.html
-
-**Ohtani's 50th HR ball sells for record-setting $4.392 million**\
-`Dodgers star Shohei Ohtani is the first major leaguer to record 50 home runs and 50 stolen bases in the same season.`\
-https://nytimes.com/athletic/5865172/2024/10/23/shohei-ohtani-50-50-ball-auction-record/
 
