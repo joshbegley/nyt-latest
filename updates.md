@@ -1,3 +1,7 @@
+**Austin says U.S. has yet to see evidence of Hezbollah bunker under Beirut hospital.**\
+`By Aaron Boxerman and Eric Schmitt`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/austin-says-us-has-yet-to-see-evidence-of-hezbollah-bunker-under-beirut-hospital
+
 **Aid agencies postpone polio vaccinations in northern Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/aid-agencies-postpone-polio-vaccinations-in-northern-gaza
