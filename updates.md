@@ -1,3 +1,7 @@
+**Donald Trump’s lifetime of scandals heads toward a moment of judgment.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/10/23/us/harris-trump-election/donald-trumps-lifetime-of-scandals-heads-toward-a-moment-of-judgment
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/23/us/harris-trump-election/heres-the-latest-on-the-presidential-race
