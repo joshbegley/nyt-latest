@@ -1,3 +1,7 @@
+**Joe Buck on the call that presaged Chris Godwin's injury: 'You kind of feel sick'**\
+`On "Monday Night Football," Joe Buck had a bad feeling about the Buccaneers pushing for a rally. Moments later, Chris Godwin was injured.`\
+https://nytimes.com/athletic/5867422/2024/10/23/chris-godwin-joe-buck-injury-call/
+
 **Thursday Briefing: How the U.S. Election is Viewed Abroad**\
 `Plus, the dark side of A.I. companionship apps.`\
 https://nytimes.com/2024/10/23/briefing/us-election-world-north-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/nyregion/mta-subway-crichlow.html
 **Israel Accuses 6 Al Jazeera Reporters of Belonging to Militant Groups**\
 `The news organization strongly denied the accusations, which it said were based on “fabricated evidence” and followed a long history of Israeli hostility toward the network.`\
 https://nytimes.com/2024/10/23/world/middleeast/al-jazeera-journalists-hamas-pij.html
-
-**Mexican Troops Kill 19 Suspected Cartel Members in Sinaloa Shootout**\
-`The killings in the northwest state of Sinaloa raise questions as to whether Mexico’s new president, Claudia Sheinbaum, is taking a tougher approach to cartels.`\
-https://nytimes.com/2024/10/23/world/americas/mexico-sinaloa-cartel-19-killed.html
 

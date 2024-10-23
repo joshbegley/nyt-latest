@@ -1,3 +1,7 @@
+**Joe Buck on the call that presaged Chris Godwin's injury: 'You kind of feel sick'**\
+`On "Monday Night Football," Joe Buck had a bad feeling about the Buccaneers pushing for a rally. Moments later, Chris Godwin was injured.`\
+https://nytimes.com/athletic/5867422/2024/10/23/chris-godwin-joe-buck-injury-call/
+
 **Thursday Briefing: How the U.S. Election is Viewed Abroad**\
 `Plus, the dark side of A.I. companionship apps.`\
 https://nytimes.com/2024/10/23/briefing/us-election-world-north-korea.html
