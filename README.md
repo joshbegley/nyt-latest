@@ -1,3 +1,23 @@
+**The Briefing: Barcelona 4 Bayern Munich 1 - Raphinha hat-trick gives Hansi Flick a triumphant night against his former club**\
+`We analyse the key talking points from one of the most enticing matches from the initial stage of this season's Champions League`\
+https://nytimes.com/athletic/5859924/2024/10/23/barcelona-bayern-munich-result-analysis/
+
+**The Briefing: RB Leipzig 0 Liverpool 1 - Rampaging Nunez, Liverpool go three from three and Leipzig stutter**\
+`Andy Jones and Seb Stafford-Bloor break down the main talking points from Liverpool's 1-0 win over RB Leipzig in the Champions League`\
+https://nytimes.com/athletic/5859927/2024/10/23/rb-leipzig-0-liverpool-1-nunez-lukeba-kelleher/
+
+**M.T.A. Promotes New Subway Boss After 27 Years of Service**\
+`Demetrius Crichlow, who had been serving as the interim president of New York City Transit since the summer, has been given the job permanently.`\
+https://nytimes.com/2024/10/23/nyregion/mta-subway-crichlow.html
+
+**Israel Accuses 6 Al Jazeera Reporters of Belonging to Militant Groups**\
+`The news organization strongly denied the accusations, which it said were based on “fabricated evidence” and followed a long history of Israeli hostility toward the network.`\
+https://nytimes.com/2024/10/23/world/middleeast/al-jazeera-journalists-hamas-pij.html
+
+**Mexican Troops Kill 19 Suspected Cartel Members in Sinaloa Shootout**\
+`The killings in the northwest state of Sinaloa raise questions as to whether Mexico’s new president, Claudia Sheinbaum, is taking a tougher approach to cartels.`\
+https://nytimes.com/2024/10/23/world/americas/mexico-sinaloa-cartel-19-killed.html
+
 **A 4-Year-Old Starved to Death at Home. How Were the Signs Missed?**\
 `Jahmeik Modlin was found emaciated in a Harlem apartment stocked with food. His family’s child-welfare case had been closed two years before.`\
 https://nytimes.com/2024/10/23/nyregion/jahmeik-modlin-dead-nyc-acs.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/23/world/asia/north-korea-ukraine-russia-china.html
 **F1 mailbag: Lando Norris' penalty, track limits and Franco Colapinto’s future**\
 `Plus: What can Ferrari do the rest of the season, and into 2025? And how good were the COTA vibes last weekend?`\
 https://nytimes.com/athletic/5866455/2024/10/23/f1-lando-norris-penalty-us-grand-prix-mailbag/
-
-**This Election Is Also a Choice Between Two Visions of the Federal Courts**\
-`Judges have vast influence over the biggest political questions. An analysis of President Biden and Donald J. Trump’s nominees found stark differences that could emerge again after November.`\
-https://nytimes.com/2024/10/23/us/trump-biden-harris-federal-judges.html
-
-**Tesla Reports Robust Profit Increase**\
-`The electric car company said profits climbed 17 percent in the third quarter as strong sales of energy products helped to make up for relatively slow auto sales.`\
-https://nytimes.com/2024/10/23/business/tesla-elon-musk-earnings.html
-
-**Bots Linked to China Target Republican House and Senate Candidates, Microsoft Says**\
-`Chinese influence operations have focused less on this year’s presidential race and more on down-ballot races.`\
-https://nytimes.com/2024/10/23/us/politics/x-bots-china-republicans.html
-
-**Justice Department Warns Musk That His $1 Million Giveaway Might Be Illegal**\
-`Elon Musk’s super PAC, which supports Donald Trump’s presidential bid, is giving cash prizes to registered voters who sign a petition.`\
-https://nytimes.com/2024/10/23/us/politics/elon-musk-department-of-justice-giveaway.html
-
-**Tiny Love Stories: ‘I Could Barely Believe My Eyes’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/10/23/style/tiny-modern-love-stories-i-could-barely-believe-my-eyes.html
 
