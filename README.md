@@ -1,3 +1,7 @@
+**Bounce Off the Walls, Say**\
+`Are Matthew Stock and Brooke Husic just being diplomatic?`\
+https://nytimes.com/2024/10/22/crosswords/daily-puzzle-2024-10-23.html
+
 **Celtics tie single-game 3-point record in season opener vs. Knicks**\
 `The Milwaukee Bucks set the single-game 3-point record (29) in 2020.`\
 https://nytimes.com/athletic/5865096/2024/10/22/celtics-knicks-3-point-record-results-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/harris-nbc-interview.html
 **Saints, Alvin Kamara agree to 2-year, $24.5 million extension**\
 `The new deal will include $22.23 million guaranteed and a $15.5 million signing bonus, according to a team source.`\
 https://nytimes.com/athletic/5865083/2024/10/22/alvin-kamara-saints-extension/
-
-**Biden Quickly Backtracks After Saying Trump Should Be Locked Up**\
-`The president appeared to slip by suggesting he wanted his predecessor put behind bars, but revised his comment to say he meant locked up “politically.”`\
-https://nytimes.com/2024/10/22/us/politics/biden-trump-lock-him-up.html
 
