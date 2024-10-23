@@ -1,3 +1,11 @@
+**Dusty Baker on the passing of Fernando Valenzuela: 'He came like an angel to us'**\
+`Baker had a front-row seat to FernandoMania: "He made everybody, especially Latin Americans, made them proud."`\
+https://nytimes.com/athletic/5865761/2024/10/23/dodgers-fernando-valenzuela-death-dusty-baker/
+
+**Vinicius Junior: The match ball, the MVP trophy and a Ballon d'Or to follow on Monday?**\
+`Vinicius Junior was already the favourite for the Ballon d'Or - then he went and scored a superb hat-trick to underline his credentials`\
+https://nytimes.com/athletic/5865164/2024/10/23/vinicius-junior-real-madrid-dortmund-ballon-dor/
+
 **Penguins played better in loss to Flames; defensive errors remain: Yohe's 10 observations**\
 `Pittsburgh was still victim to defensive miscues in a 4-3 shootout loss in Calgary on Tuesday. `\
 https://nytimes.com/athletic/5862148/2024/10/23/penguins-flames-yohe-10-observations/
