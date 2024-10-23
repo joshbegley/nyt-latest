@@ -1,3 +1,7 @@
+**Calling all unanswerable college football questions!**\
+`Is there an aspect of college football that you've always wanted to know more about? Is there a myth you'd like to see busted or validated?`\
+https://nytimes.com/athletic/5866746/2024/10/23/unanswerable-college-football-questions/
+
 **Dodger Details: A roundup on where things stand ahead of the World Series**\
 `Freddie Freeman's status, how the rotation will line up, and updates on the rest of the roster ahead of Game 1.`\
 https://nytimes.com/athletic/5866867/2024/10/23/dodgers-injuries-starters-bullpen-world-series/
