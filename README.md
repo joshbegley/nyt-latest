@@ -1,3 +1,7 @@
+**Trump’s Attacks Again Turn Nasty in Campaign’s Waning Days**\
+`Donald Trump is escalating his attacks against Kamala Harris, turning more personal and derogatory, a pattern from his campaigns in 2016 and 2020.`\
+https://nytimes.com/2024/10/22/us/politics/trump-harris-attacks-personal.html
+
 **Dodgers legend Fernando Valenzuela dies at 63**\
 `As a 20-year-old, Valenzuela won the Rookie of the Year and Cy Young awards and created 'Fernandomania' en route to a World Series title.`\
 https://nytimes.com/athletic/5808180/2024/10/22/fernando-valenzuela-dead-mlb-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/22/us/elections/trump-deportation.html
 **Timberwolves, Gobert reach 3-year, $110 million extension**\
 `The deal gives the Timberwolves flexibility to continue building around a young core of Anthony Edwards, Jaden McDaniels and Naz Reid.`\
 https://nytimes.com/athletic/5865383/2024/10/22/rudy-gobert-contract-extension-timberwolves/
-
-**Buckley: Celtics’ 18th championship banner is symbolic in that it's all by itself**\
-`Will the banner help the Celtics repeat as NBA champions? Not one bit. But Tuesday night's ceremony reaffirmed Boston as the place to beat.`\
-https://nytimes.com/athletic/5865325/2024/10/22/boston-celtics-ring-banner-ceremony-knicks/
 
