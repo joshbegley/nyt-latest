@@ -1,3 +1,11 @@
+**The Kind of Moms Who Fall for ‘Make America Healthy Again’**\
+`They don’t trust the medical system, and they need understanding — not mockery.`\
+https://nytimes.com/2024/10/23/opinion/vaccines-rfk-mom.html
+
+**My Sister Chose My Birthday for Her Scheduled C-Section. I’m Annoyed!**\
+`After five years of sharing birthdays with her nephew, a reader is bristling at her sister’s decision to create a perennial scheduling conflict just for fun.`\
+https://nytimes.com/2024/10/23/style/shared-birthdays-family.html
+
 **Postecoglou eases concerns over Son's fitness**\
 `Ange Postecoglou has eased concerns over Son Heung-min&#8217;s fitness after the Tottenham Hotspur captain missed training ahead of Thursday’s Europa League clash with AZ Alkmaar.`\
 https://nytimes.com/athletic/5866326/2024/10/23/ange-postecoglou-son-heung-min-tottenham/

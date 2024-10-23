@@ -1,3 +1,11 @@
+**The Kind of Moms Who Fall for ‘Make America Healthy Again’**\
+`They don’t trust the medical system, and they need understanding — not mockery.`\
+https://nytimes.com/2024/10/23/opinion/vaccines-rfk-mom.html
+
+**My Sister Chose My Birthday for Her Scheduled C-Section. I’m Annoyed!**\
+`After five years of sharing birthdays with her nephew, a reader is bristling at her sister’s decision to create a perennial scheduling conflict just for fun.`\
+https://nytimes.com/2024/10/23/style/shared-birthdays-family.html
+
 **Postecoglou eases concerns over Son's fitness**\
 `Ange Postecoglou has eased concerns over Son Heung-min&#8217;s fitness after the Tottenham Hotspur captain missed training ahead of Thursday’s Europa League clash with AZ Alkmaar.`\
 https://nytimes.com/athletic/5866326/2024/10/23/ange-postecoglou-son-heung-min-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/business/dealbook/dimon-gates-harris-supporters.h
 **Tua Tagovailoa is returning from another concussion — it brings up an uncomfortable feeling**\
 `On the “Scoop City” podcast, a discussion about the situation from the perspective of a former quarterback and a media veteran.`\
 https://nytimes.com/athletic/5865126/2024/10/23/tua-tagovailoa-return-from-concussion/
-
-**The Athletic FC: Vinicius Jr's Ballon d'Or reminder, Why Klopp joined Red Bull**\
-`Today in TAFC: Vinicius Jr's Ballon d'Or reminder, Pulisic's 'Olimpico', why Klopp joined Red Bull - and a footballer turned tennis player.`\
-https://nytimes.com/athletic/5866021/2024/10/23/vinicius-jrs-ballon-dor-reminder-why-klopp-joined-red-bull-flicks-fast-start/
-
-**Anton Forsberg quieted any Senators goaltending issues — at least for one night**\
-`The Senators scored four goals against Utah, but Forsberg emerged as Ottawa's best player.`\
-https://nytimes.com/athletic/5865456/2024/10/23/senators-anton-forsberg-goaltending-linus-ullmark/
 
