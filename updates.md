@@ -1,3 +1,7 @@
+**Israeli Military Fires on Ancient City of Tyre in Lebanon**\
+`Hours after issuing evacuation orders, Israel took aim at Tyre, an ancient port city in Lebanon, in the military’s ongoing campaign against Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000009778304/tyre-lebanon-israel-military-strikes.html
+
 **What Do You Give Someone Who Just Got Engaged?**\
 `Painterly blankets, bespoke jewelry and more gift recommendations from T Magazine.`\
 https://nytimes.com/2024/10/23/t-magazine/engagement-gifts.html
