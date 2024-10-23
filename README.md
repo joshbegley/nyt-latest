@@ -1,3 +1,7 @@
+**Harris Sharpens her Message on Trump**\
+`Also, the U.S. said North Korea sent troops to aid Russia. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/23/briefing/harris-trump-campaign-attacks-north-korea-troops.html
+
 **A Pro-Harris Ad Aims to Onboard Trump Voters**\
 `A new commercial from the biggest super PAC in American politics makes a pitch for Trump-weary Republicans.`\
 https://nytimes.com/2024/10/23/us/politics/a-pro-harris-ad-aims-to-onboard-trump-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/us/politics/trump-assassination-attempt-judge.htm
 **Ron Ely, Who Played an Updated Tarzan in the 1960s, Dies at 86**\
 `He later built a career as a reliable TV guest star. His life turned tragic in 2019 when his son killed Mr. Ely’s wife and was then shot to death by the police.`\
 https://nytimes.com/2024/10/23/arts/television/ron-ely-dead.html
-
-**The Briefing: Barcelona 4 Bayern Munich 1 - Raphinha hat-trick gives Hansi Flick a triumphant night against his former club**\
-`We analyse the key talking points from one of the most enticing matches from the initial stage of this season's Champions League`\
-https://nytimes.com/athletic/5859924/2024/10/23/barcelona-bayern-munich-result-analysis/
 
