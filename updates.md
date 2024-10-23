@@ -1,3 +1,7 @@
+**Oilers demote Hyman, Nugent-Hopkins to second power-play unit in search of scoring**\
+`The Oilers have converted just two power plays this season on 19 opportunities, despite an all-world group with the man advantage.`\
+https://nytimes.com/athletic/5868060/2024/10/23/oilers-power-play-changes-hyman/
+
 **Champions League briefing: Raphinha matches Vinicius - and what about Haaland's backheel?**\
 `Analysing the key talking points from Wednesday's action - from Raphinha's hat-trick to David mastering Madrid and English clubs flying high`\
 https://nytimes.com/athletic/5867574/2024/10/23/champions-league-raphinha-barcelona-haaland-backheel/
