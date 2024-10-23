@@ -1,3 +1,7 @@
+**Submit your questions for Arthur Staple's New York Islanders mailbag**\
+`Have a question about the Islanders? Submit it here and The Athletic’s Arthur Staple will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5867033/2024/10/23/new-york-islanders-mailbag-october-2024/
+
 **Submit your questions for Peter Baugh and Arthur Staple's New York Rangers mailbag**\
 `Have a question about the Rangers? Submit it here and Peter Baugh and Arthur Staple will address a selection in their upcoming mailbag.`\
 https://nytimes.com/athletic/5867032/2024/10/23/new-york-rangers-mailbag-october-2024/
