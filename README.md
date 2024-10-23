@@ -1,3 +1,7 @@
+**Stuffed Into Trucks, 78 Thai Protesters Died. Their Killers Are Still Free.**\
+`Twenty years ago, a massacre in southern Thailand fueled an insurgency that has never stopped. If no one is prosecuted for it by Friday, no one ever will be.`\
+https://nytimes.com/2024/10/23/world/asia/thailand-tak-bai-massacre.html
+
 **Ohtani's 50th HR ball sells for record-setting $4.392 million**\
 `Dodgers star Shohei Ohtani is the first major leaguer to record 50 home runs and 50 stolen bases in the same season.`\
 https://nytimes.com/athletic/5865172/2024/10/23/shohei-ohtani-50-50-ball-auction-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863490/2024/10/23/staveley-spurs/
 **Why 'floppy ankles' make Kane the world's best striker, but also get him injured**\
 `Football biomechanist Archit Navandar explains how the same physiology that predisposes Kane to injury also aids his prolific goalscoring`\
 https://nytimes.com/athletic/5553272/2024/10/23/england-harry-kane-ankles-bayern/
-
-**Jose Mourinho at Fenerbahce - Laptop protest, disrespect ... and Manchester United next**\
-`Mourinho hire was a strong political move by the Turkish club's president but before his Man United reunion it isn't working out as hoped`\
-https://nytimes.com/athletic/5863270/2024/10/23/jose-mourinho-fenerbahce-man-united/
 
