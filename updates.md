@@ -1,3 +1,7 @@
+**Trump’s Allies Revive Voting Machine Conspiracy Theories With a Blitz of Lawsuits**\
+`The former president and his closest allies are returning to debunked claims about hacked machines as they prepare to contest the vote next month.`\
+https://nytimes.com/2024/10/23/us/politics/trump-voting-machine-conspiracy-theories.html
+
 **Andy Dalton sitting after car accident, Bryce Young to start**\
 `Dalton has completed 66.3 percent of his passes for 989 yards and seven touchdowns against six interceptions this season.`\
 https://nytimes.com/athletic/5865107/2024/10/23/andy-dalton-panthers-bryce-young-car-accident/

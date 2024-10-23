@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5865107/2024/10/23/andy-dalton-panthers-bryce-young
 
 **Trump’s Allies Revive Voting Machine Conspiracy Theories With a Blitz of Lawsuits**\
 `The former president and his closest allies are returning to debunked claims about hacked machines as they prepare to contest the vote next month.`\
-https://nytimes.com/2024/10/23/us/politics/trumps-allies-revive-voting-machine-conspiracy-theories-with-a-blitz-of-lawsuits.html
+https://nytimes.com/2024/10/23/us/politics/trump-voting-machine-conspiracy-theories.html
 
 **MLS is considering changing to a fall-spring calendar after the 2026 World Cup**\
 `The change would alleviate the postseason overlap during a busy portion of the American sports calendar`\
