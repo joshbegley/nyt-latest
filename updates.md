@@ -1,3 +1,7 @@
+**This Election Is Also a Choice Between Two Visions of the Federal Courts**\
+`Judges have vast influence over the biggest political questions. An analysis of President Biden and Donald J. Trump’s nominees found stark differences that could emerge again after November.`\
+https://nytimes.com/2024/10/23/us/trump-biden-harris-federal-judges.html
+
 **Tesla Reports Robust Profit Increase**\
 `The electric car company said profits climbed 17 percent in the third quarter as strong sales of energy products helped to make up for relatively slow auto sales.`\
 https://nytimes.com/2024/10/23/business/tesla-elon-musk-earnings.html
