@@ -1,3 +1,7 @@
+**When Dementia Changes a Loved One’s Personality**\
+`Shifts in behavior can be challenging to manage. Experts have five strategies that can help.`\
+https://nytimes.com/2024/10/23/well/mind/caregivers-dementia-mood-changes-management.html
+
 **G7 Finalizes $50 Billion Ukraine Loan Backed by Russian Assets**\
 `The economic lifeline is expected to be disbursed by the end of the year.`\
 https://nytimes.com/2024/10/23/business/g7-ukraine-loan-russian-assets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866568/2024/10/23/ohio-state-ryan-day-nick-saban-n
 **Rohingya Refugees Are Stranded at Sea for Days as Residents Reject Them**\
 `Residents of a town in western Indonesia shared food with the refugees but declined to host them, leaving them stuck on a boat miles from shore.`\
 https://nytimes.com/2024/10/23/world/asia/rohingya-muslim-refugees-indonesia-boat.html
-
-**In a Tight Presidential Race, Omaha Is Basking in Its Political Relevance**\
-`Reliably conservative Nebraska’s one small “blue dot” could make a difference to Vice President Kamala Harris’s campaign`\
-https://nytimes.com/2024/10/23/us/elections/omaha-nebraska-kamala-harris.html
 

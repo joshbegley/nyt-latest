@@ -1,3 +1,7 @@
+**When Dementia Changes a Loved One’s Personality**\
+`Shifts in behavior can be challenging to manage. Experts have five strategies that can help.`\
+https://nytimes.com/2024/10/23/well/mind/caregivers-dementia-mood-changes-management.html
+
 **G7 Finalizes $50 Billion Ukraine Loan Backed by Russian Assets**\
 `The economic lifeline is expected to be disbursed by the end of the year.`\
 https://nytimes.com/2024/10/23/business/g7-ukraine-loan-russian-assets.html
