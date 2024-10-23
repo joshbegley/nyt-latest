@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/blinken-raises-the-possibility-of-new-frameworks-for-a-cease-fire-deal
 
 **No Proof Yet of Hezbollah Bunker Under Beirut Hospital, Austin Says**\
-`Defense Secretary Lloyd J. Austin III said that Washington had not seen evidence to support Israel’s claim that Hezbollah was using a bunker complex embedded underneath a hospital in Beirut.`\
+`Defense Secretary Lloyd J. Austin III said that Washington had not seen evidence to support Israel’s claim that Hezbollah was using a bunker complex embedded underneath Al-Sahel hospital in Beirut.`\
 https://nytimes.com/video/world/middleeast/100000009777926/lebanon-hospital-hezbollah-austin.html
 
 **Actor Frankie Muniz secures full time spot in NASCAR's Truck Series**\
