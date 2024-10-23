@@ -1,3 +1,11 @@
+**Browns to start QB Jameis Winston vs. Ravens**\
+`Cleveland is 1-6 and dropped its last five straight games, including a 21-14 loss Sunday to the Cincinnati Bengals.`\
+https://nytimes.com/athletic/5866290/2024/10/23/browns-deshaun-watson-quarterback-jameis-winston/
+
+**A Modi-Xi Meeting Could Signal a Thaw Between India and China**\
+`A meeting between the two leaders comes just two days after they settled a tense border dispute in the Himalayas.`\
+https://nytimes.com/2024/10/23/world/asia/modi-xi-putin-brics.html
+
 **Binance Employee, in Custody for 8 Months in Nigeria, Will Be Released**\
 `Prosecutors have dropped the criminal case against Tigran Gambaryan so he can receive medical care, a government spokesman said.`\
 https://nytimes.com/2024/10/23/business/nigeria-binance-cryptocurrency-money-laundering.html
