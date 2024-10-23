@@ -1,3 +1,7 @@
+**A Pro-Harris Ad Aims to Woo Trump-Weary Republicans**\
+`A new commercial from the biggest super PAC in American politics makes a pitch for Republicans in Arizona and North Carolina.`\
+https://nytimes.com/2024/10/23/us/politics/harris-ad-trump-voters.html
+
 **Harris Will Offer Closing Argument at Ellipse in Washington**\
 `The vice president will give a speech on Tuesday at the Ellipse, the park near the White House where Donald Trump encouraged supporters to march on the Capitol on Jan. 6, 2021.`\
 https://nytimes.com/2024/10/23/us/politics/harris-speech-washington-ellipse.html
