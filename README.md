@@ -1,6 +1,14 @@
+**Boeing’s New C.E.O. Calls for ‘Culture Change’ as Strike Vote Looms**\
+`As Kelly Ortberg presented his strategic vision, more than 33,000 striking employees of the aerospace manufacturer were expected to vote on a new contract.`\
+https://nytimes.com/2024/10/23/business/boeing-earnings-strike-vote.html
+
 **Draft-Dodging Scandal in Ukraine Forces a Top Official to Quit**\
 `The prosecutor general stepped down after accusations that hundreds of officials obtained fake disability certificates. There have been no public allegations that he was involved in the scheme.`\
 https://nytimes.com/2024/10/23/world/europe/ukraine-draft-scandal-conscription.html
+
+**How is the Ballon d'Or 2024 winner decided?**\
+`The Ballon d'Or ceremony takes place later this week — this is how the award is decided`\
+https://nytimes.com/athletic/5781652/2024/10/23/ballon-dor-2024-voting-how-it-works/
 
 **Chiefs, Titans working on DeAndre Hopkins trade: Sources**\
 `Tennessee would receive a conditional draft pick — a fifth-rounder that could become a fourth — in the deal.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5864757/2024/10/23/maple-leafs-jake-mccabe-extensio
 **‘Franklinland’ Review: A Founding Father, but Not the Best Dad**\
 `Lloyd Suh’s nimble period comedy about Benjamin Franklin examines a timeless struggle: the unmet expectations that divide parents and children.`\
 https://nytimes.com/2024/10/23/theater/franklinland-review.html
-
-**‘Family Pack’ Review: Trapped in a Game**\
-`The beauty of a game of Werewolf lies in the treachery. In this film adaptation, the director focuses on mild comedy and tedious action instead.`\
-https://nytimes.com/2024/10/23/movies/family-pack-review.html
-
-**Lowetide: Do the Oilers have enough value contracts this season?**\
-`The Edmonton Oilers have made it to the Stanley Cup Final twice during the salary-cap era, and both times the club boasted impressive value contracts.`\
-https://nytimes.com/athletic/5862290/2024/10/23/edmonton-oilers-contracts-value-2024/
 
