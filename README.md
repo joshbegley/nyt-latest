@@ -1,3 +1,15 @@
+**U.S. Study on Puberty Blockers Goes Unpublished Because of Politics, Doctor Says**\
+`The leader of the long-running study said that the drugs did not improve mental health in children with gender distress and that the finding might be weaponized by opponents of the care.`\
+https://nytimes.com/2024/10/23/science/puberty-blockers-olson-kennedy.html
+
+**Gunmen in Turkey Launch Deadly Attack on Aerospace Company**\
+`Surveillance footage showed two attackers, a man and a woman, with backpacks and rifles and a body lying on the pavement outside.`\
+https://nytimes.com/2024/10/23/world/middleeast/turkey-attack.html
+
+**The Bounce: After raising 18th NBA title banner, Celtics make more history against Knicks**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5866169/2024/10/23/jayson-tatum-boston-celtics-lebron-james-lakers-bronny-james-nba-the-bounce/
+
 **Around 140 Rohingya Refugees Stranded at Sea for Over a Week**\
 `The refugees have been barred entry to an Indonesian town because of unrest in nearby towns that had welcomed others, according to a community leader in Aceh Province.`\
 https://nytimes.com/video/world/asia/100000009777482/rohingya-muslim-refugees-indonesia-boat.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5862738/2024/10/23/canucks-blackhawks-win/
 **It's only Game 1, but Julius Randle, new-look Timberwolves play a dud vs. Lakers**\
 `"We got to find another level of urgency right now," Wolves coach Chris Finch said. "Season’s started and we didn’t answer the bell."`\
 https://nytimes.com/athletic/5865378/2024/10/23/julius-randle-timberwolves-flop-lakers/
-
-**Nuno keen for Forest's off-field issues to not become a distraction**\
-`Nuno Espirito Santo says Nottingham Forest must not allow their off-field disciplinary issues to become a distraction.`\
-https://nytimes.com/athletic/5866437/2024/10/23/nuno-forest-discipline/
-
-**Chicago Red Stars unveil new name and crest, ushering in next chapter**\
-`The NWSL team will complete this season with the current name and crest, before switching in time for 2025`\
-https://nytimes.com/athletic/5866012/2024/10/23/chicago-red-stars-new-name-logo/
-
-**From Grimace to grins: Counting down the 24 wildest moments for the 2024 Mets**\
-`Francisco Lindor, Pete Alonso and Luis Severino make this list, as do Seymour Weiner, bad cleats and a fainting outfielder.`\
-https://nytimes.com/athletic/5865118/2024/10/23/mets-season-in-review-countdown/
 
