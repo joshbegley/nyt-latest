@@ -7,10 +7,10 @@ https://nytimes.com/2024/10/23/business/kroger-walmart-facial-recognition-prices
 https://nytimes.com/athletic/5866375/2024/10/23/heat-today-miami-magic-preview/
 
 **Djokovic will not defend Paris Masters title**\
-`The world No. 3 will drop 1000 ranking points as a result.`\
+`The world No. 4 will drop 1000 ranking points as a result.`\
 https://nytimes.com/athletic/5861013/2024/10/23/djokovic-paris-masters-atp-tour-finals/
 
-**How Utah H.C. plans to adjust after Sean Durzi, John Marino injuries**\
+**How Utah HC plans to adjust after Sean Durzi, John Marino injuries**\
 `Durzi and Marino underwent surgeries that will sideline them well into the new year, the team announced Wednesday.`\
 https://nytimes.com/athletic/5867133/2024/10/23/utah-nhl-durzi-marino-injuries/
 
