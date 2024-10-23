@@ -1,3 +1,7 @@
+**Arsenal Today: A win (but at a cost?), Zinchenko's gesture - and pizza to come**\
+`Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
+https://nytimes.com/athletic/5864875/2024/10/23/arsenal-today-october-23/
+
 **Between Knicks and Celtics, the gap is wide. That's OK … for now**\
 `New York and Boston are two different teams in two different stages, and it showed in the season opener.`\
 https://nytimes.com/athletic/5865520/2024/10/23/knicks-celtics-season-opener-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863041/2024/10/23/everton-and-the-dominic-calvert-
 **This is Summerville's chance to shine. Can he make an impact?**\
 `With Mohammed Kudus suspended, the 22-year-old has the chance to show why West Ham's attack will be far richer with him in it`\
 https://nytimes.com/athletic/5860021/2024/10/23/crysencio-summerville-west-ham/
-
-**Same old story does Blackhawks in against Canucks: Observations**\
-`The Blackhawks struggled to find their footing defensively in a 6-3 loss to the Canucks.`\
-https://nytimes.com/athletic/5865406/2024/10/23/blackhawks-same-old-story-canucks-defense-foligno/
 
