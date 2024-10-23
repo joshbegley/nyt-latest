@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Smiling Friends’ and More**\
+`I’m a photo editing resident at The New York Times, working in Culture on disciplines including fine arts, television and video games. Here are five things I’ve been enjoying.`\
+https://nytimes.com/interactive/2024/10/23/arts/editors-recommendations-smilingfriends.html
+
 **Israeli Military Fires on Ancient City of Tyre in Lebanon**\
 `Hours after issuing evacuation orders, Israel took aim at Tyre, an ancient port city in Lebanon, in the military’s ongoing campaign against Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000009778304/tyre-lebanon-israel-military-strikes.html
