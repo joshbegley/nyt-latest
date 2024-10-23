@@ -19,7 +19,7 @@ https://nytimes.com/2024/10/23/world/middleeast/turkey-attack.html
 https://nytimes.com/athletic/5866169/2024/10/23/jayson-tatum-boston-celtics-lebron-james-lakers-bronny-james-nba-the-bounce/
 
 **Around 140 Rohingya Refugees Stranded at Sea for Over a Week**\
-`The refugees have been barred entry to an Indonesian town because of unrest in nearby towns that had welcomed others, according to a community leader in Aceh Province.`\
+`Rohingya refugees have been barred entry to an Indonesian town because of unrest in other nearby towns that welcomed others, according to a community leader in Aceh Province.`\
 https://nytimes.com/video/world/asia/100000009777482/rohingya-muslim-refugees-indonesia-boat.html
 
 **These Places Have Democracy Watchdogs Bracing for Potential Election Discord**\
