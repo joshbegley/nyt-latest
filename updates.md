@@ -1,3 +1,7 @@
+**Mourinho defends Man United, jokes about 2017-18 Premier League win**\
+`Jose Mourinho believes Manchester United are a better team than their recent results suggest despite their struggles in both the Premier League and Europe.`\
+https://nytimes.com/athletic/5866206/2024/10/23/manchester-united-mourinho-europa-league/
+
 **Mourinho defends Man United, jokes about 2017-18 Premier League title**\
 `Jose Mourinho believes Manchester United are a better team than their recent results suggest despite their struggles in both the Premier League and Europe.`\
 https://nytimes.com/athletic/5866206/2024/10/23/manchester-united-mourinho-europa-league/
