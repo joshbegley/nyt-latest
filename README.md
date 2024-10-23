@@ -1,3 +1,7 @@
+**Why Some Outspoken C.E.O.s are Staying Silent About Backing Harris**\
+`Jamie Dimon and Bill Gates are quietly supporting the vice president rather than issuing a public endorsement, a sign of how polarized politics has become.`\
+https://nytimes.com/2024/10/23/business/dealbook/dimon-gates-harris-supporters.html
+
 **Tua Tagovailoa is returning from another concussion — it brings up an uncomfortable feeling**\
 `On the “Scoop City” podcast, a discussion about the situation from the perspective of a former quarterback and a media veteran.`\
 https://nytimes.com/athletic/5865126/2024/10/23/tua-tagovailoa-return-from-concussion/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/business/boeing-earnings-strike-vote.html
 **Draft-Dodging Scandal in Ukraine Forces a Top Official to Quit**\
 `The prosecutor general stepped down after accusations that hundreds of officials obtained fake disability certificates. There have been no public allegations that he was involved in the scheme.`\
 https://nytimes.com/2024/10/23/world/europe/ukraine-draft-scandal-conscription.html
-
-**How is the Ballon d'Or 2024 winner decided?**\
-`The Ballon d'Or ceremony takes place later this week — this is how the award is decided`\
-https://nytimes.com/athletic/5781652/2024/10/23/ballon-dor-2024-voting-how-it-works/
 
