@@ -1,3 +1,11 @@
+**Seahawks acquire LB Ernest Jones IV in trade with Titans: Reports**\
+`Seattle will send linebacker Jerome Baker and a fourth-round pick to Tennessee in exchange for Jones IV. `\
+https://nytimes.com/athletic/5867009/2024/10/23/seahawks-titans-ernest-jones-trade/
+
+**Where's Steph Curry?! The NBA and WNBA stars generating the most collector interest**\
+`What basketball collectors can learn from recent eBay data.`\
+https://nytimes.com/athletic/5863720/2024/10/23/nba-wnba-cards-caitlin-clark-wembanyama/
+
 **Digital Tags Come to Kroger and Walmart, but Chains Deny ‘Surge Pricing’**\
 `Some members of Congress have expressed concerns that stores will monitor customers and raise prices. Business experts say the tech has not raised customers’ grocery bills.`\
 https://nytimes.com/2024/10/23/business/kroger-walmart-facial-recognition-prices.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5867032/2024/10/23/new-york-rangers-mailbag-october
 **Blues place Robert Thomas on IR with fractured ankle**\
 `The team said Thomas will be re-evaluated in six weeks.`\
 https://nytimes.com/athletic/5867066/2024/10/23/blues-robert-thomas-injury/
-
-**Manchester Arena Bombing Survivors Win Lawsuit Against Conspiracy Theorist**\
-`A U.K. court found that a conspiracy theorist who claimed the 2017 bombing at an Ariana Grande concert was a hoax had harassed victims and abused media freedom.`\
-https://nytimes.com/2024/10/23/world/europe/manchester-bombing-conspiracy-theorist-lawsuit-verdict.html
-
-**The Legacy of Reagan’s Attack on the Education Department**\
-`Reagan failed, but Trump’s allies are still trying to sabotage public education.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/reagan-trump-education-department
 
