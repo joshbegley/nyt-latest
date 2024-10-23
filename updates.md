@@ -1,3 +1,7 @@
+**Harris Sharpens her Message on Trump**\
+`Also, the U.S. said North Korea sent troops to aid Russia. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/23/briefing/harris-trump-campaign-attacks-north-korea-troops.html
+
 **A Pro-Harris Ad Aims to Onboard Trump Voters**\
 `A new commercial from the biggest super PAC in American politics makes a pitch for Trump-weary Republicans.`\
 https://nytimes.com/2024/10/23/us/politics/a-pro-harris-ad-aims-to-onboard-trump-voters.html
