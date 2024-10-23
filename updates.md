@@ -1,3 +1,7 @@
+**This Country Turned Against the West, and It’s Not Coming Back**\
+`The romance between Georgia and the West is on the rocks.`\
+https://nytimes.com/2024/10/23/opinion/georgia-election-europe-west.html
+
 **Stuffed Into Trucks, 78 Thai Protesters Died. Their Killers Are Still Free.**\
 `Twenty years ago, a massacre in southern Thailand fueled an insurgency that has never stopped. If no one is prosecuted for it by Friday, no one ever will be.`\
 https://nytimes.com/2024/10/23/world/asia/thailand-tak-bai-massacre.html

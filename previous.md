@@ -1,3 +1,7 @@
+**This Country Turned Against the West, and It’s Not Coming Back**\
+`The romance between Georgia and the West is on the rocks.`\
+https://nytimes.com/2024/10/23/opinion/georgia-election-europe-west.html
+
 **Stuffed Into Trucks, 78 Thai Protesters Died. Their Killers Are Still Free.**\
 `Twenty years ago, a massacre in southern Thailand fueled an insurgency that has never stopped. If no one is prosecuted for it by Friday, no one ever will be.`\
 https://nytimes.com/2024/10/23/world/asia/thailand-tak-bai-massacre.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5863357/2024/10/23/jurgen-klopp-red-bull-origins/
 **Amanda Staveley and Tottenham Hotspur - what we're hearing**\
 `Spurs are searching for investment, and Staveley has been looking for a new project since she left Newcastle - could the stars align?`\
 https://nytimes.com/athletic/5863490/2024/10/23/staveley-spurs/
-
-**Why 'floppy ankles' make Kane the world's best striker, but also get him injured**\
-`Football biomechanist Archit Navandar explains how the same physiology that predisposes Kane to injury also aids his prolific goalscoring`\
-https://nytimes.com/athletic/5553272/2024/10/23/england-harry-kane-ankles-bayern/
 
