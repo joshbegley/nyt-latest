@@ -1,3 +1,11 @@
+**Rams open Nacua's practice window after IR stint**\
+`Puka Nacua has been out since being injured in the Rams' Week 1 game against the Lions.`\
+https://nytimes.com/athletic/5865101/2024/10/22/rams-puka-nacua-practice-window-ir/
+
+**Yelp Disables Comments for McDonald’s Where Trump Donned Apron**\
+`The consumer review site temporarily disabled comments on the franchise’s page after the former president’s appearance prompted a flurry of reviews.`\
+https://nytimes.com/2024/10/22/us/yelp-mcdonalds-trump-reviews.html
+
 **Wild spank defending Stanley Cup champs amid best start in 16 years: 4 takeaways**\
 `The Wild extended their point streak to six games while beating the reigning champion Panthers 5-1 in their own barn.`\
 https://nytimes.com/athletic/5864935/2024/10/22/wild-best-start-in-16-years-panthers/
