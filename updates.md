@@ -1,3 +1,15 @@
+**Around 140 Rohingya Refugees Stranded at Sea for Over a Week**\
+`The refugees have been barred entry to an Indonesian town because of unrest in nearby towns that had welcomed others, according to a community leader in Aceh Province.`\
+https://nytimes.com/video/world/asia/100000009777482/rohingya-muslim-refugees-indonesia-boat.html
+
+**These Places Have Democracy Watchdogs Bracing for Potential Election Discord**\
+`Some counties have a history of refusing to certify election results. Others have tried to disqualify voters or prevent them from casting absentee ballots.`\
+https://nytimes.com/2024/10/23/us/politics/election-voting-problems-lawsuits.html
+
+**Israel strikes a Lebanese port city after ordering a large-scale evacuation.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/israel-strikes-a-lebanese-port-city-after-ordering-a-large-scale-evacuation
+
 **Mourinho defends Man United, jokes about 2017-18 Premier League win**\
 `Jose Mourinho believes Manchester United are a better team than their recent results suggest despite their struggles in both the Premier League and Europe.`\
 https://nytimes.com/athletic/5866206/2024/10/23/manchester-united-mourinho-europa-league/

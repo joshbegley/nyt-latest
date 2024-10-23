@@ -1,3 +1,15 @@
+**Around 140 Rohingya Refugees Stranded at Sea for Over a Week**\
+`The refugees have been barred entry to an Indonesian town because of unrest in nearby towns that had welcomed others, according to a community leader in Aceh Province.`\
+https://nytimes.com/video/world/asia/100000009777482/rohingya-muslim-refugees-indonesia-boat.html
+
+**These Places Have Democracy Watchdogs Bracing for Potential Election Discord**\
+`Some counties have a history of refusing to certify election results. Others have tried to disqualify voters or prevent them from casting absentee ballots.`\
+https://nytimes.com/2024/10/23/us/politics/election-voting-problems-lawsuits.html
+
+**Israel strikes a Lebanese port city after ordering a large-scale evacuation.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/israel-strikes-a-lebanese-port-city-after-ordering-a-large-scale-evacuation
+
 **Mourinho defends Man United, jokes about 2017-18 Premier League win**\
 `Jose Mourinho believes Manchester United are a better team than their recent results suggest despite their struggles in both the Premier League and Europe.`\
 https://nytimes.com/athletic/5866206/2024/10/23/manchester-united-mourinho-europa-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5866012/2024/10/23/chicago-red-stars-new-name-logo/
 **From Grimace to grins: Counting down the 24 wildest moments for the 2024 Mets**\
 `Francisco Lindor, Pete Alonso and Luis Severino make this list, as do Seymour Weiner, bad cleats and a fainting outfielder.`\
 https://nytimes.com/athletic/5865118/2024/10/23/mets-season-in-review-countdown/
-
-**What Have You Seen Online Lately That Could Use Some Fact-Checking?**\
-`This Media Literacy Week, we challenge you to choose a news item that interests you — whether in politics, sports, entertainment or any other category — and find out how accurate it is.`\
-https://nytimes.com/2024/10/23/learning/what-have-you-seen-online-lately-that-could-use-some-fact-checking.html
-
-**Teenagers Tell Us About Their Relationship With News**\
-`Nearly 400 students wrote about where they get it, how they navigate it — and why they think adults are more likely to fall for misinformation than they are.`\
-https://nytimes.com/2024/10/23/learning/teenagers-tell-us-about-their-relationship-with-news.html
-
-**The Kind of Moms Who Fall for ‘Make America Healthy Again’**\
-`They don’t trust the medical system, and they need understanding — not mockery.`\
-https://nytimes.com/2024/10/23/opinion/vaccines-rfk-mom.html
 
