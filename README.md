@@ -1,3 +1,7 @@
+**Anton Forsberg quieted any Senators goaltending issues — at least for one night**\
+`The Senators scored four goals against Utah, but Forsberg emerged as Ottawa's best player.`\
+https://nytimes.com/athletic/5865456/2024/10/23/senators-anton-forsberg-goaltending-linus-ullmark/
+
 **Donald Trump’s lifetime of scandals heads toward a moment of judgment.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/10/23/us/harris-trump-election/donald-trumps-lifetime-of-scandals-heads-toward-a-moment-of-judgment
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866144/2024/10/23/deandre-hopkins-trade-chiefs-tit
 **This Canadiens season is a paradox that will require patience that might not exist**\
 `The Canadiens should not get bogged down in one loss, but the modest expectations this team has set don't seem attainable right now.`\
 https://nytimes.com/athletic/5865830/2024/10/23/canadiens-new-york-rangers-loss/
-
-**Gisèle Pelicot Returns to French Court to Testify in Rape Case**\
-`Her husband is accused of inviting strangers to sexually assault her while she was drugged and unconscious. The trial has transformed the way France discusses sexual violence.`\
-https://nytimes.com/2024/10/23/world/europe/gisele-pelicot-france-rape-case.html
 
