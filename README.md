@@ -1,3 +1,11 @@
+**The Pulse: NBA history, plus a surprising result**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5863535/2024/10/23/lebron-bronny-james-lakers-timberwolves-the-pulse/
+
+**What's driving Tyrese Maxey's rise to superstardom? 'I've always had that chip with me'**\
+`Joel Embiid and Paul George may be the best Sixers, but if Philadelphia wants to win an NBA title, Maxey may be the most important.`\
+https://nytimes.com/athletic/5859352/2024/10/23/sixers-tyrese-maxey-development-playoff-hopes/
+
 **Hashim Safieddine is the latest Hezbollah leader Israel says it has killed.**\
 `By Aaron Boxerman and Lauren Leatherby`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/hashim-safieddine-is-the-latest-hezbollah-leader-israel-says-it-has-killed
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5864462/2024/10/23/world-series-yankees-dodgers-tic
 **Blinken Renews Push for Middle East Truce, and U.S. Abortions Increase**\
 `Plus, a radical approach to flooding in England.`\
 https://nytimes.com/2024/10/23/podcasts/blinken-truce-us-abortions.html
-
-**How the Bills can make a lasting impression to keep Amari Cooper**\
-`The Bills have Amari Cooper under contract through the end of this season.`\
-https://nytimes.com/athletic/5864182/2024/10/23/bills-amari-cooper-trade-contract/
-
-**What does the NHL power play of the future look like? Bad angles, low plays and the return of the spread**\
-`Leon Draisaitl, Connor McDavid, Nikita Kucherov and Steven Stamkos have changed the way NHL teams look at the man advantage.`\
-https://nytimes.com/athletic/5847575/2024/10/23/nhl-power-play-future/
 
