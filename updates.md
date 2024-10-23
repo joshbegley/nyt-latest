@@ -1,3 +1,7 @@
+**Dodgers legend Fernando Valenzuela dies at 63**\
+`As a 20-year-old, Valenzuela won the Rookie of the Year and Cy Young awards and created 'Fernandomania' en route to a World Series title.`\
+https://nytimes.com/athletic/5808180/2024/10/22/fernando-valenzuela-dead-mlb-dodgers/
+
 **The cult of 'Cold Palmer' has reached America - can he become a global brand?**\
 `Cole Palmer is one of the Premier League's biggest stars but can the 22-year-old Chelsea and England forward take his name worldwide?`\
 https://nytimes.com/athletic/5850091/2024/10/23/cole-palmer-brand-america-celebration/
