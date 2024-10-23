@@ -1,3 +1,7 @@
+**Timberwolves, Gobert reach 3-year, $110 million extension**\
+`The deal gives the Timberwolves flexibility to continue building around a young core of Anthony Edwards, Jaden McDaniels and Naz Reid.`\
+https://nytimes.com/athletic/5865383/2024/10/22/rudy-gobert-contract-extension-timberwolves/
+
 **Buckley: Celtics’ 18th championship banner is symbolic in that it's all by itself**\
 `Will the banner help the Celtics repeat as NBA champions? Not one bit. But Tuesday night's ceremony reaffirmed Boston as the place to beat.`\
 https://nytimes.com/athletic/5865325/2024/10/22/boston-celtics-ring-banner-ceremony-knicks/
