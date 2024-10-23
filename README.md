@@ -1,3 +1,11 @@
+**Why teams held the line at the extension deadline, and which clubs made out best**\
+`A few teams discovered their spines and stuck to their guns at Monday’s deadline for rookie contract extensions.`\
+https://nytimes.com/athletic/5864628/2024/10/23/nba-contract-extension-deadline-deals/
+
+**Rodrygo out of El Clasico with right leg injury**\
+`Real Madrid forward Rodrygo will miss Saturday&#8217;s El Clasico against Barcelona with a right leg injury.`\
+https://nytimes.com/athletic/5865974/2024/10/23/rodrygo-injury-real-madrid-barcelona-clasico/
+
 **Tennis needs video review - but beware the VAR effect of football**\
 `Tennis has been slow to adopt video review, but its use at the U.S. Open also revealed the technology's insurmountable flaws`\
 https://nytimes.com/athletic/5738049/2024/10/23/tennis-video-review-var-football/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/opinion/hurricane-milton-florida-climate-change-a
 **Review: A Reverse Angle on Arthur Miller in ‘A Woman Among Women’**\
 `Julia May Jonas’s compelling play, opening the Bushwick Starr’s new theater, explores how a story written about men looks from the other side.`\
 https://nytimes.com/2024/10/23/theater/woman-among-women-review-bushwick-starr.html
-
-**In a Season of Political Impressions, Why Does Dana Carvey’s Biden Stand Out?**\
-`The answer has to do with going beyond a likeness, something Sebastian Stan and Jeremy Strong understand for their movie about Donald Trump and Roy Cohn.`\
-https://nytimes.com/2024/10/23/movies/dana-carvey-joe-biden-snl-trump.html
-
-**Seth Meyers Isn’t as Nice as You Think He Is**\
-`Meyers has crafted a comedically precise but genial persona over more than two decades on “Saturday Night Live” and “Late Night.” A new stand-up special finds him reveling in his more acerbic side.`\
-https://nytimes.com/2024/10/23/arts/television/seth-meyers-late-night.html
 
