@@ -1,3 +1,15 @@
+**Trump’s Allies Revive Voting Machine Conspiracy Theories With a Blitz of Lawsuits**\
+`The former president and his closest allies are returning to debunked claims about hacked machines as they prepare to contest the vote next month.`\
+https://nytimes.com/2024/10/23/us/politics/trumps-allies-revive-voting-machine-conspiracy-theories-with-a-blitz-of-lawsuits.html
+
+**MLS is considering changing to a fall-spring calendar after the 2026 World Cup**\
+`The change would alleviate the postseason overlap during a busy portion of the American sports calendar`\
+https://nytimes.com/athletic/5865369/2024/10/23/mls-calendar-fall-spring/
+
+**Why Harris and Trump Are Pandering to Crypto Plutocrats**\
+`Crypto corporations have increased their election spending tenfold from the last cycle.`\
+https://nytimes.com/2024/10/23/opinion/crypto-trump-election.html
+
 **For 53 years, this NASCAR race never listed a winner. Until now.**\
 `The victory moves Allison into sole possession of fourth place on NASCAR’s all-time wins list.`\
 https://nytimes.com/athletic/5867155/2024/10/23/for-53-years-this-nascar-race-never-listed-a-winner-until-now/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/23/us/politics/harris-insane-clown-posse.html
 **A Feathered Murder Mystery at 10,000 Feet**\
 `Scientists say they have observed one of the highest-altitude acts of bird predation ever recorded.`\
 https://nytimes.com/2024/10/23/science/birds-migration-10000-feet-predator.html
-
-**What’s in Our Queue? ‘Smiling Friends’ and More**\
-`I’m a photo editing resident at The New York Times, working in Culture on disciplines including fine arts, television and video games. Here are five things I’ve been enjoying.`\
-https://nytimes.com/interactive/2024/10/23/arts/editors-recommendations-smilingfriends.html
-
-**Israeli Military Fires on Ancient City of Tyre in Lebanon**\
-`Hours after issuing evacuation orders, Israel took aim at Tyre, an ancient port city in Lebanon, in the military’s ongoing campaign against Hezbollah.`\
-https://nytimes.com/video/world/middleeast/100000009778304/tyre-lebanon-israel-military-strikes.html
-
-**What Do You Give Someone Who Just Got Engaged?**\
-`Painterly blankets, bespoke jewelry and more gift recommendations from T Magazine.`\
-https://nytimes.com/2024/10/23/t-magazine/engagement-gifts.html
 
