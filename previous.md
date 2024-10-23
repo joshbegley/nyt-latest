@@ -1,3 +1,7 @@
+**Scoop City: Nine receiver trades that should happen**\
+`Two ideal landing spots for Cooper Kupp, plus who the Chargers, Saints, 49ers, Buccaneers and other WR-needy teams should target.`\
+https://nytimes.com/athletic/5866658/2024/10/23/nine-nfl-wr-trades-that-should-happen-including-the-latest-on-deandre-hopkins/
+
 **Modern Dance Takes Center Stage in South Korea**\
 `Thanks to government support — and a collaborative spirit among dance companies — the medium is thriving across the country.`\
 https://nytimes.com/2024/10/23/arts/dance/modern-dance-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/aid-agen
 **U.S. Study on Puberty Blockers Goes Unpublished Because of Politics, Doctor Says**\
 `The leader of the long-running study said that the drugs did not improve mental health in children with gender distress and that the finding might be weaponized by opponents of the care.`\
 https://nytimes.com/2024/10/23/science/puberty-blockers-olson-kennedy.html
-
-**Gunmen in Turkey Launch Deadly Attack on Aerospace Company**\
-`Surveillance footage showed two attackers, a man and a woman, with backpacks and rifles and a body lying on the pavement outside.`\
-https://nytimes.com/2024/10/23/world/middleeast/turkey-attack.html
 

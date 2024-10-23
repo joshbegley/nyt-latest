@@ -1,3 +1,7 @@
+**Scoop City: Nine receiver trades that should happen**\
+`Two ideal landing spots for Cooper Kupp, plus who the Chargers, Saints, 49ers, Buccaneers and other WR-needy teams should target.`\
+https://nytimes.com/athletic/5866658/2024/10/23/nine-nfl-wr-trades-that-should-happen-including-the-latest-on-deandre-hopkins/
+
 **Modern Dance Takes Center Stage in South Korea**\
 `Thanks to government support — and a collaborative spirit among dance companies — the medium is thriving across the country.`\
 https://nytimes.com/2024/10/23/arts/dance/modern-dance-south-korea.html
