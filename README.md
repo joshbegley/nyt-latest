@@ -1,3 +1,11 @@
+**Binance Employee, in Custody for 8 Months in Nigeria, Will Be Released**\
+`Prosecutors have dropped the criminal case against Tigran Gambaryan so he can receive medical care, a government spokesman said.`\
+https://nytimes.com/2024/10/23/business/nigeria-binance-cryptocurrency-money-laundering.html
+
+**The gambles, perils, payoffs (and fullback) within the Eagles' offensive identity**\
+`The film shows Eagles quarterback Jalen Hurts favors one-on-one matchups.`\
+https://nytimes.com/athletic/5864117/2024/10/23/eagles-offense-saquon-barkley-jalen-hurts/
+
 **Why Some Outspoken C.E.O.s are Staying Silent About Backing Harris**\
 `Jamie Dimon and Bill Gates are quietly supporting the vice president rather than issuing a public endorsement, a sign of how polarized politics has become.`\
 https://nytimes.com/2024/10/23/business/dealbook/dimon-gates-harris-supporters.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/23/us/harris-trump-election
 **In JJ Redick's debut, Lakers show their potential to contend: 'We trust him'**\
 `Anthony Davis thrived in his role as offensive hub, and LA's shot selection and ball security were highlights in the win over Minnesota.  `\
 https://nytimes.com/athletic/5865764/2024/10/23/lakers-jj-redick-opener/
-
-**Boeing’s New C.E.O. Calls for ‘Culture Change’ as Strike Vote Looms**\
-`As Kelly Ortberg presented his strategic vision, more than 33,000 striking employees of the aerospace manufacturer were expected to vote on a new contract.`\
-https://nytimes.com/2024/10/23/business/boeing-earnings-strike-vote.html
-
-**Draft-Dodging Scandal in Ukraine Forces a Top Official to Quit**\
-`The prosecutor general stepped down after accusations that hundreds of officials obtained fake disability certificates. There have been no public allegations that he was involved in the scheme.`\
-https://nytimes.com/2024/10/23/world/europe/ukraine-draft-scandal-conscription.html
 
