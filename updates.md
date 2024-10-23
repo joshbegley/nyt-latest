@@ -1,3 +1,15 @@
+**Fluffy Feeling Ill? N.Y.C. Workers Might Get Sick Leave for Pet Care.**\
+`Councilman Shaun Abreu is introducing a bill that would require employers in New York City to let workers use their paid sick leave to care for pets and service animals.`\
+https://nytimes.com/2024/10/23/nyregion/new-york-sick-leave-pets.html
+
+**New Jersey House Race Narrows in Final Days**\
+`The campaign of the Democratic challenger, Sue Altman, has received a $4 million infusion after polls showed her closing in on the Republican incumbent, Thomas Kean Jr.`\
+https://nytimes.com/2024/10/23/nyregion/new-jersey-altman-kean-house-election.html
+
+**'He came like an angel to us': Dusty Baker on the passing of Fernando Valenzuela**\
+`Baker had a front-row seat to FernandoMania: "He made everybody, especially Latin Americans, made them proud."`\
+https://nytimes.com/athletic/5865761/2024/10/23/dodgers-fernando-valenzuela-death-dusty-baker/
+
 **Passenger Seat**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/10/23/learning/passenger-seat.html
