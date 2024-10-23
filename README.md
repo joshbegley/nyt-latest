@@ -1,40 +1,40 @@
-**Why teams held the line at the extension deadline, and which clubs made out best**\
-`A few teams discovered their spines and stuck to their guns at Monday’s deadline for rookie contract extensions.`\
-https://nytimes.com/athletic/5864628/2024/10/23/nba-contract-extension-deadline-deals/
+**American Airlines Fined $50 Million for Treatment of Passengers Using Wheelchairs**\
+`The Transportation Department issued the fine after an investigation revealed “cases of unsafe physical assistance that at times resulted in injuries and undignified treatment of wheelchair users.”`\
+https://nytimes.com/2024/10/23/travel/american-airlines-fined-wheelchairs.html
 
-**Rodrygo out of El Clasico with right leg injury**\
-`Real Madrid forward Rodrygo will miss Saturday&#8217;s El Clasico against Barcelona with a right leg injury.`\
-https://nytimes.com/athletic/5865974/2024/10/23/rodrygo-injury-real-madrid-barcelona-clasico/
+**From expected goals to long throws, The Athletic's 2024 alternative MLS awards**\
+`The Athletic dives deep into the data to give praise to players that won't be recognized by year end awards, but deserve kudos`\
+https://nytimes.com/athletic/5862012/2024/10/23/the-athletics-2024-alternative-mls-awards-expected-goals-performers-long-throws-and-more/
 
-**Tennis needs video review - but beware the VAR effect of football**\
-`Tennis has been slow to adopt video review, but its use at the U.S. Open also revealed the technology's insurmountable flaws`\
-https://nytimes.com/athletic/5738049/2024/10/23/tennis-video-review-var-football/
+**Meet the 60-year-old mother of two breaking down doors for women coaches in the NFL**\
+`Lori Locust has taken a long and winding road to coaching success in the NFL. But she's far from the "token" female. She has earned it.`\
+https://nytimes.com/athletic/5854495/2024/10/23/lori-locust-titans-nfl-women-coaches-changemakers/
 
-**How Polls Have Changed to Try to Avoid a 2020 Repeat**\
-`Pollsters are constantly tinkering, but they have also made some substantial adjustments.`\
-https://nytimes.com/2024/10/23/upshot/poll-changes-2024-trump.html
+**NBA Reliability Tiers: Paul George, Karl-Anthony Towns and can Ja Morant get back to All-Stardom?**\
+`Players in this tier have been top options and could be eyeing an All-NBA appearance in 2025. That is if they can be available enough. `\
+https://nytimes.com/athletic/5852512/2024/10/23/nba-paul-george-karl-anthony-towns-ja-morant/
 
-**A Milestone for Organ Donations**\
-`More than half of eligible New York State residents have signed up to be organ donors, though the state’s health commissioner said that is still not enough.`\
-https://nytimes.com/2024/10/23/nyregion/a-milestone-for-organ-donations.html
+**How much will it cost to attend the Yankees-Dodgers World Series?**\
+`Sales on StubHub have already outpaced last year's World Series.`\
+https://nytimes.com/athletic/5864462/2024/10/23/world-series-yankees-dodgers-ticket-prices-stubhub/
 
-**The Problem With Biden’s Birth Control Plan**\
-`In America, good ideas too often get mired in the complexity and byzantine administrative burdens of our privatized health care behemoth.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/biden-birth-control
+**Blinken Renews Push for Middle East Truce, and U.S. Abortions Increase**\
+`Plus, a radical approach to flooding in England.`\
+https://nytimes.com/2024/10/23/podcasts/blinken-truce-us-abortions.html
 
-**As Election Looms, Disinformation ‘Has Never Been Worse’**\
-`A torrent of falsehoods, from home and abroad, have undermined what was once a shared faith in the honesty of America’s democracy.`\
-https://nytimes.com/2024/10/23/business/media/election-disinformation.html
+**How the Bills can make a lasting impression to keep Amari Cooper**\
+`The Bills have Amari Cooper under contract through the end of this season.`\
+https://nytimes.com/athletic/5864182/2024/10/23/bills-amari-cooper-trade-contract/
 
-**Why Gender May Be the Defining Issue of the Election**\
-`The issue is rarely directly addressed by either Vice President Kamala Harris or Donald Trump. But the 2024 contest is, in ways overt and subtle, a referendum on the role of women in American life.`\
-https://nytimes.com/2024/10/23/us/politics/harris-trump-election-gender.html
+**What does the NHL power play of the future look like? Bad angles, low plays and the return of the spread**\
+`Leon Draisaitl, Connor McDavid, Nikita Kucherov and Steven Stamkos have changed the way NHL teams look at the man advantage.`\
+https://nytimes.com/athletic/5847575/2024/10/23/nhl-power-play-future/
 
-**I Broke Down on Live TV About Hurricane Milton. I Didn’t Expect This Response.**\
-`My viral moment revealed a shared experience of climate anxiety across generations. It’s time that we channel it into action.`\
-https://nytimes.com/2024/10/23/opinion/hurricane-milton-florida-climate-change-anxiety.html
+**Three Browns thoughts as trade deadline nears: What would it take to deal Myles Garrett?**\
+`Also, what can we expect from the quarterback position in Week 8 against the Ravens? Will Jameis Winston get the start?`\
+https://nytimes.com/athletic/5864154/2024/10/23/browns-trade-deadline-myles-garrett/
 
-**Review: A Reverse Angle on Arthur Miller in ‘A Woman Among Women’**\
-`Julia May Jonas’s compelling play, opening the Bushwick Starr’s new theater, explores how a story written about men looks from the other side.`\
-https://nytimes.com/2024/10/23/theater/woman-among-women-review-bushwick-starr.html
+**The Gender Election**\
+`Men under 30 are much more likely to support Donald Trump than women their age. It’s a far bigger gender gap than in older generations.`\
+https://nytimes.com/2024/10/23/podcasts/the-daily/gender-election.html
 
