@@ -1,3 +1,7 @@
+**Tua Tagovailoa is returning from another concussion — it brings up an uncomfortable feeling**\
+`On the “Scoop City” podcast, a discussion about the situation from the perspective of a former quarterback and a media veteran.`\
+https://nytimes.com/athletic/5865126/2024/10/23/tua-tagovailoa-return-from-concussion/
+
 **The Athletic FC: Vinicius Jr's Ballon d'Or reminder, Why Klopp joined Red Bull**\
 `Today in TAFC: Vinicius Jr's Ballon d'Or reminder, Pulisic's 'Olimpico', why Klopp joined Red Bull - and a footballer turned tennis player.`\
 https://nytimes.com/athletic/5866021/2024/10/23/vinicius-jrs-ballon-dor-reminder-why-klopp-joined-red-bull-flicks-fast-start/
