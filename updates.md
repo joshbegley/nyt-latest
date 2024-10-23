@@ -1,3 +1,7 @@
+**A Devastating Dutch Love Story, in the Shadow of Anne Frank**\
+`In Yael van der Wouden’s debut novel, “The Safekeep,” the writer spins an erotic thriller out of the Netherlands’ failure to face up to the horrors of the Holocaust.`\
+https://nytimes.com/2024/10/23/books/yael-van-der-wouden-the-safekeep.html
+
 **When Dementia Changes a Loved One’s Personality**\
 `Shifts in behavior can be challenging to manage. Experts have five strategies that can help.`\
 https://nytimes.com/2024/10/23/well/mind/caregivers-dementia-mood-changes-management.html
