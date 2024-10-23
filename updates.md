@@ -1,3 +1,11 @@
+**Mourinho defends Man United, jokes about 2017-18 Premier League title**\
+`Jose Mourinho believes Manchester United are a better team than their recent results suggest despite their struggles in both the Premier League and Europe.`\
+https://nytimes.com/athletic/5866206/2024/10/23/manchester-united-mourinho-europa-league/
+
+**Broncos mailbag: Submit your questions to beat writer Nick Kosmider**\
+`Let us know what Broncos questions are on your mind.`\
+https://nytimes.com/athletic/5866333/2024/10/23/broncos-mailbag-questions-week-8/
+
 **Why the Canucks' offensive outburst in Chicago felt like progress**\
 `Vancouver's six goals on Tuesday were marvels of skill, persistence and team-level passing, and showed improvement from last season.`\
 https://nytimes.com/athletic/5862738/2024/10/23/canucks-blackhawks-win/
