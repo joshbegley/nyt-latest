@@ -1,3 +1,7 @@
+**Ron Ely, Who Played an Updated Tarzan in the 1960s, Dies at 86**\
+`He later built a career as a reliable TV guest star. His life turned tragic in 2019 when his son killed Mr. Ely’s wife and was then shot to death by the police.`\
+https://nytimes.com/2024/10/23/arts/television/ron-ely-dead.html
+
 **The Briefing: Barcelona 4 Bayern Munich 1 - Raphinha hat-trick gives Hansi Flick a triumphant night against his former club**\
 `We analyse the key talking points from one of the most enticing matches from the initial stage of this season's Champions League`\
 https://nytimes.com/athletic/5859924/2024/10/23/barcelona-bayern-munich-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/style/danny-amendola-dancing-with-the-stars-tikto
 **China May Chafe as North Korea Sends Soldiers to Fight Ukraine**\
 `North Korea’s decision to dispatch troops to help Russia subdue Ukraine may put another Kremlin ally, China, in a tough spot diplomatically.`\
 https://nytimes.com/2024/10/23/world/asia/north-korea-ukraine-russia-china.html
-
-**F1 mailbag: Lando Norris' penalty, track limits and Franco Colapinto’s future**\
-`Plus: What can Ferrari do the rest of the season, and into 2025? And how good were the COTA vibes last weekend?`\
-https://nytimes.com/athletic/5866455/2024/10/23/f1-lando-norris-penalty-us-grand-prix-mailbag/
 
