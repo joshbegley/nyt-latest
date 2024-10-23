@@ -1,3 +1,7 @@
+**Penguins played better in loss to Flames; defensive errors remain: Yohe's 10 observations**\
+`Pittsburgh was still victim to defensive miscues in a 4-3 shootout loss in Calgary on Tuesday. `\
+https://nytimes.com/athletic/5862148/2024/10/23/penguins-flames-yohe-10-observations/
+
 **Michael Kosta Thinks He’s Found Elon Musk’s Next Failed Purchase**\
 `The “Daily Show” host said Musk “bought Twitter just to drive it into the ground” and is now considering doing the same for America.`\
 https://nytimes.com/2024/10/23/arts/television/michael-kosta-elon-musk.html

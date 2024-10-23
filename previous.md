@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/23/arts/television/michael-kosta-elon-musk.html
 
 **Penguins played better in loss to Flames; defensive errors remain: Yohe's 10 observations**\
-`The Penguins played better but were still victim to defensive miscues in a 4-3 shootout loss in Calgary on Tuesday. `\
+`Pittsburgh was still victim to defensive miscues in a 4-3 shootout loss in Calgary on Tuesday. `\
 https://nytimes.com/athletic/5862148/2024/10/23/penguins-flames-yohe-10-observations/
 
 **Word of the Day: biodiversity**\
