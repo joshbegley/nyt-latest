@@ -1,3 +1,15 @@
+**Who are the NBA's most valuable players toward the point spread?**\
+`Who is the most valuable player in the NBA toward the point spread on a nightly basis? Bookmakers chime in.`\
+https://nytimes.com/athletic/5867203/2024/10/23/nba-mvp-spread-giannis-jokic-curry-doncic/
+
+**Harris Says Trump Wants ‘Unchecked Power’**\
+`Vice President Kamala Harris, citing a New York Times interview with John Kelly, a former White House chief of staff, called former President Donald J. Trump “increasingly unhinged” in his pursuit for a second term in office.`\
+https://nytimes.com/video/us/politics/100000009778585/harris-trump-kelly-hitler.html
+
+**Harris’s Broad Coalition is Battling Trump’s Narrow Movement**\
+`And every group in that coalition will have to give up something.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-coalition-trump-movement-cheney
+
 **How to Recreate the Season’s Biggest Beauty Trends at Home**\
 `By Zoe Ruffner`\
 https://nytimes.com/card/2024/10/23/t-magazine/fashion/beauty-makeup-ideas
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/23/opinion/crypto-trump-election.html
 **For 53 years, this NASCAR race never listed a winner. Until now.**\
 `The victory moves Allison into sole possession of fourth place on NASCAR’s all-time wins list.`\
 https://nytimes.com/athletic/5867155/2024/10/23/for-53-years-this-nascar-race-never-listed-a-winner-until-now/
-
-**No, a Voting Machine Did Not ‘Flip’ a Vote in Georgia**\
-`One voter’s mistake has been transformed into a voter fraud conspiracy theory, catapulted into the national spotlight by Representative Marjorie Taylor Greene.`\
-https://nytimes.com/2024/10/23/technology/georgia-voter-fraud-machine-conspiracy-theory.html
-
-**Harris? Trump? Vance? Walz? It’s Campaign Quiz Time.**\
-`Time for your pre-election quiz.`\
-https://nytimes.com/interactive/2024/10/23/opinion/harris-trump-election-quiz.html
-
-**Matthew Perry Home in Los Angeles Sells a Year After His Death**\
-`The 3,500-square-foot, midcentury modern house in Pacific Palisades, where the actor died last October, fetched $8.55 million.`\
-https://nytimes.com/2024/10/23/realestate/matthew-perry-friends-house.html
 

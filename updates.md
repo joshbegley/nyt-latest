@@ -1,3 +1,15 @@
+**Who are the NBA's most valuable players toward the point spread?**\
+`Who is the most valuable player in the NBA toward the point spread on a nightly basis? Bookmakers chime in.`\
+https://nytimes.com/athletic/5867203/2024/10/23/nba-mvp-spread-giannis-jokic-curry-doncic/
+
+**Harris Says Trump Wants ‘Unchecked Power’**\
+`Vice President Kamala Harris, citing a New York Times interview with John Kelly, a former White House chief of staff, called former President Donald J. Trump “increasingly unhinged” in his pursuit for a second term in office.`\
+https://nytimes.com/video/us/politics/100000009778585/harris-trump-kelly-hitler.html
+
+**Harris’s Broad Coalition is Battling Trump’s Narrow Movement**\
+`And every group in that coalition will have to give up something.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-coalition-trump-movement-cheney
+
 **How to Recreate the Season’s Biggest Beauty Trends at Home**\
 `By Zoe Ruffner`\
 https://nytimes.com/card/2024/10/23/t-magazine/fashion/beauty-makeup-ideas
