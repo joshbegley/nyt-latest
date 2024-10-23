@@ -1,3 +1,7 @@
+**Celtics' season opener had a familiar ring to it, then they continued winning**\
+`After the NBA's kings were feted, Boston shifted its focus to playing basketball and dominated New York 132-109.`\
+https://nytimes.com/athletic/5865845/2024/10/23/celtics-win-opener-against-kinicks/
+
 **Here are the latest developments.**\
 `By Victoria Kim and Michael Crowley`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments

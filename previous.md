@@ -1,3 +1,7 @@
+**Celtics' season opener had a familiar ring to it, then they continued winning**\
+`After the NBA's kings were feted, Boston shifted its focus to playing basketball and dominated New York 132-109.`\
+https://nytimes.com/athletic/5865845/2024/10/23/celtics-win-opener-against-kinicks/
+
 **Here are the latest developments.**\
 `By Victoria Kim and Michael Crowley`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/world/asia/north-korea-troops-russia-ukraine.html
 **'He came like an angel to us': Dusty Baker on the passing of Fernando Valenzuela**\
 `Baker had a front-row seat to FernandoMania: "He made everybody, especially Latin Americans, made them proud."`\
 https://nytimes.com/athletic/5865761/2024/10/23/dodgers-fernando-valenzuela-death-dusty-baker/
-
-**Vinicius Junior: The match ball, the MVP trophy and a Ballon d'Or to follow on Monday?**\
-`Vinicius Junior was already the favourite for the Ballon d'Or - then he went and scored a superb hat-trick to underline his credentials`\
-https://nytimes.com/athletic/5865164/2024/10/23/vinicius-junior-real-madrid-dortmund-ballon-dor/
 
