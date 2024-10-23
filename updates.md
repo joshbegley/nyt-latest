@@ -1,3 +1,7 @@
+**Meet the 60-year-old mother of two breaking down doors for female coaches in the NFL**\
+`Lori Locust has taken a long and winding road to coaching success in the NFL, and she has earned it.`\
+https://nytimes.com/athletic/5854495/2024/10/23/lori-locust-titans-nfl-women-coaches-changemakers/
+
 **Hashim Safieddine is the latest Hezbollah leader Israel says it has killed.**\
 `By Aaron Boxerman and Lauren Leatherby`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/hashim-safieddine-is-the-latest-hezbollah-leader-israel-says-it-has-killed
