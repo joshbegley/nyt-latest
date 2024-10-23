@@ -1,3 +1,19 @@
+**Aston Villa earn the right to dream as Unai Emery takes the Champions League by storm**\
+`Villa became the third side to win their first three games without conceding since the rebranding of Europe's elite club competition in 1992`\
+https://nytimes.com/athletic/5864793/2024/10/23/aston-villas-unai-emery-champions-league/
+
+**Martinelli, a game-defining moment and a longer-term trend**\
+`The Brazil winger has been steadily improving over the past month, just as Leandro Trossard has been struggling to hit top form`\
+https://nytimes.com/athletic/5865175/2024/10/23/gabriel-martinelli-arsenal-shakhtar/
+
+**Shares in Operator of Tokyo’s Subways Soar in First Day of Trading**\
+`Tokyo Metro had raised over $2 billion in one of Japan’s largest initial public offerings in years.`\
+https://nytimes.com/2024/10/23/business/tokyo-metro-shares.html
+
+**Leeds 2 Watford 1: Farke finds his 'James Bond' in Tanaka, some welcome grit, but Ramazani worry**\
+`Leeds moved to second with a deserved - and hard-fought - win over Watford. Nancy Froston analyses the talking points`\
+https://nytimes.com/athletic/5864536/2024/10/23/leeds-watford-farke-tanaka-ramazani/
+
 **'I'm a part of history': Inside the Celtics' ring ceremony as they lift Banner 18**\
 `The Celtics' ring ceremony was full of franchise legends and spectacle. The players opened up on what it meant to them.`\
 https://nytimes.com/athletic/5865675/2024/10/23/celtics-ring-ceremony-banner-18/
