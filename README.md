@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5865175/2024/10/23/gabriel-martinelli-arsenal-shakh
 `Tokyo Metro had raised over $2 billion in one of Japan’s largest initial public offerings in years.`\
 https://nytimes.com/2024/10/23/business/tokyo-metro-shares.html
 
-**Leeds 2 Watford 1: Farke finds his 'James Bond' in Tanaka, show of grit, Ramazani worry**\
+**Leeds 2 Watford 1: Farke finds his 'James Bond' in Tanaka, some welcome grit, but Ramazani worry**\
 `Leeds moved to second with a deserved - and hard-fought - win over Watford. Nancy Froston analyses the talking points`\
 https://nytimes.com/athletic/5864536/2024/10/23/leeds-watford-farke-tanaka-ramazani/
 
