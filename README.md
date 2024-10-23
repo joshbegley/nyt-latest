@@ -1,3 +1,7 @@
+**Why a Harris Victory Isn’t a Sure Thing**\
+`Responses to two columns by David Brooks. Also: Donald Trump’s disjointed speeches; an inmate with autism; the Eric Adams mess; mistreatment of women.`\
+https://nytimes.com/2024/10/23/opinion/kamala-harris-donald-trump.html
+
 **Blinken raises the possibility of ‘new frameworks’ for a cease-fire deal.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/blinken-raises-the-possibility-of-new-frameworks-for-a-cease-fire-deal
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866722/2024/10/23/mystics-parting-coach-thibault/
 **Leeds sign former France international Josuha Guilavogui**\
 `Leeds United have signed former France international midfielder Josuha Guilavogui on a short-term contract.`\
 https://nytimes.com/athletic/5850117/2024/10/23/josuha-guilavogui-leeds-transfer/
-
-**New York City Council Is Set to Approve Bill Regulating Hotel Safety**\
-`The bill will require hotels to have licenses, panic buttons for employees and 24-hour staffing at the front desk.`\
-https://nytimes.com/2024/10/23/nyregion/hotel-safety-license.html
 

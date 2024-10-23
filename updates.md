@@ -1,3 +1,19 @@
+**Blinken raises the possibility of ‘new frameworks’ for a cease-fire deal.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/blinken-raises-the-possibility-of-new-frameworks-for-a-cease-fire-deal
+
+**No Proof Yet of Hezbollah Bunker Under Beirut Hospital, Austin Says**\
+`Defense Secretary Lloyd J. Austin III said that Washington had not seen evidence to support Israel’s claim that Hezbollah was using a bunker complex embedded underneath Al-Sahel hospital in Beirut.`\
+https://nytimes.com/video/world/middleeast/100000009777926/lebanon-hospital-hezbollah-austin.html
+
+**Actor Frankie Muniz secures full time spot in NASCAR's Truck Series**\
+`Muniz, who previously starred in the television show “Malcolm in the Middle,” has signed to drive a Ford Truck for Reaume Brothers Racing.`\
+https://nytimes.com/athletic/5866787/2024/10/23/nascar-frankie-muniz-actor-driver-trucks/
+
+**Mystics part with GM Mike Thibault, coach Eric Thibault**\
+`Five of the league’s 12 teams have made coaching changes since the end of the regular season, not including the Golden State expansion team.`\
+https://nytimes.com/athletic/5866722/2024/10/23/mystics-parting-coach-thibault/
+
 **The Vikings will be buyers at the trade deadline, but how hard should they swing?**\
 `The Vikings have built a team that has proven to be not just competitive, but one of the league's best. Can they make it even better? `\
 https://nytimes.com/athletic/5864714/2024/10/23/vikings-trade-deadline-positions/
