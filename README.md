@@ -1,3 +1,11 @@
+**Colts' Jonathan Taylor, DeForest Buckner to practice**\
+`Taylor has not practiced or played since sustaining a right high ankle injury in Week 4 against Pittsburgh.`\
+https://nytimes.com/athletic/5866816/2024/10/23/colts-jonathan-taylor-deforest-buckner/
+
+**The Windup: RIP to a Dodgers legend**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5866853/2024/10/23/fernando-valenzuela-dodgers-the-windup/
+
 **Why a Harris Victory Isn’t a Sure Thing**\
 `Responses to two columns by David Brooks. Also: Donald Trump’s disjointed speeches; an inmate with autism; the Eric Adams mess; mistreatment of women.`\
 https://nytimes.com/2024/10/23/opinion/kamala-harris-donald-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/sports/julia-hawkins-dead.html
 **How a Dash Cam Revealed a Likely Car Insurance Fraud Scheme**\
 `A driver thought she was the victim of road rage until recorded videos showed what appeared to be a staged accident.`\
 https://nytimes.com/2024/10/23/us/queens-dash-cam-crash-belt-parkway-insurance.html
-
-**Mystics part with GM Mike Thibault, coach Eric Thibault**\
-`Five of the league’s 12 teams have made coaching changes since the end of the regular season, not including the Golden State expansion team.`\
-https://nytimes.com/athletic/5866722/2024/10/23/mystics-parting-coach-thibault/
-
-**Leeds sign former France international Josuha Guilavogui**\
-`Leeds United have signed former France international midfielder Josuha Guilavogui on a short-term contract.`\
-https://nytimes.com/athletic/5850117/2024/10/23/josuha-guilavogui-leeds-transfer/
 
