@@ -1,3 +1,11 @@
+**It's only Game 1, but Julius Randle, new-look Timberwolves play a dud vs. Lakers**\
+`"We got to find another level of urgency right now," Wolves coach Chris Finch said. "Season’s started and we didn’t answer the bell."`\
+https://nytimes.com/athletic/5865378/2024/10/23/julius-randle-timberwolves-flop-lakers/
+
+**Nuno keen for Forest's off-field issues to not become a distraction**\
+`Nuno Espirito Santo says Nottingham Forest must not allow their off-field disciplinary issues to become a distraction.`\
+https://nytimes.com/athletic/5866437/2024/10/23/nuno-forest-discipline/
+
 **Chicago Red Stars unveil new name and crest, ushering in next chapter**\
 `The NWSL team will complete this season with the current name and crest, before switching in time for 2025`\
 https://nytimes.com/athletic/5866012/2024/10/23/chicago-red-stars-new-name-logo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5866326/2024/10/23/ange-postecoglou-son-heung-min-t
 **Not Just Any Old Warehouse**\
 `Ricky Choi, a co-founder of Nice Laundry, was frustrated by how fulfillment centers handled his brand’s socks and underwear. So he started a new kind of packaging firm for chic labels.`\
 https://nytimes.com/2024/10/23/style/not-just-any-old-warehouse.html
-
-**Browns to start QB Jameis Winston vs. Ravens**\
-`Cleveland is 1-6 and dropped its last five straight games, including a 21-14 loss Sunday to the Cincinnati Bengals.`\
-https://nytimes.com/athletic/5866290/2024/10/23/browns-deshaun-watson-quarterback-jameis-winston/
-
-**A Modi-Xi Meeting Could Signal a Thaw Between India and China**\
-`A meeting between the two leaders comes just two days after they settled a tense border dispute in the Himalayas.`\
-https://nytimes.com/2024/10/23/world/asia/modi-xi-putin-brics.html
 

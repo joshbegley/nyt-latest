@@ -1,3 +1,11 @@
+**It's only Game 1, but Julius Randle, new-look Timberwolves play a dud vs. Lakers**\
+`"We got to find another level of urgency right now," Wolves coach Chris Finch said. "Season’s started and we didn’t answer the bell."`\
+https://nytimes.com/athletic/5865378/2024/10/23/julius-randle-timberwolves-flop-lakers/
+
+**Nuno keen for Forest's off-field issues to not become a distraction**\
+`Nuno Espirito Santo says Nottingham Forest must not allow their off-field disciplinary issues to become a distraction.`\
+https://nytimes.com/athletic/5866437/2024/10/23/nuno-forest-discipline/
+
 **Chicago Red Stars unveil new name and crest, ushering in next chapter**\
 `The NWSL team will complete this season with the current name and crest, before switching in time for 2025`\
 https://nytimes.com/athletic/5866012/2024/10/23/chicago-red-stars-new-name-logo/
