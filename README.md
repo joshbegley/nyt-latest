@@ -1,3 +1,7 @@
+**Court Convicts British Man of Harassing Manchester Bombing Victims**\
+`A U.K. court found that a conspiracy theorist who claimed the 2017 bombing at an Ariana Grande concert was a hoax had harassed victims and abused media freedom.`\
+https://nytimes.com/2024/10/23/world/europe/manchester-bombing-conspiracy-theorist-lawsuit-verdict.html
+
 **The Legacy of Reagan’s Attack on the Education Department**\
 `Reagan failed, but Trump’s allies are still trying to sabotage public education.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/reagan-trump-education-department
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866413/2024/10/23/deandre-hopkins-trade-grades-chi
 **GE Vernova Finds Further Problems With Its Wind Turbine Blades**\
 `The company said other blades had a “manufacturing deviation” similar to a blade that shattered in July off the coast of Nantucket.`\
 https://nytimes.com/2024/10/23/business/ge-vernova-wind-turbine-blades.html
-
-**Calling all unanswerable college football questions!**\
-`Is there an aspect of college football that you've always wanted to know more about? Is there a myth you'd like to see busted or validated?`\
-https://nytimes.com/athletic/5866746/2024/10/23/unanswerable-college-football-questions/
 
