@@ -1,3 +1,11 @@
+**Boeing’s New C.E.O. Calls for ‘Culture Change’ as Strike Vote Looms**\
+`As Kelly Ortberg presented his strategic vision, more than 33,000 striking employees of the aerospace manufacturer were expected to vote on a new contract.`\
+https://nytimes.com/2024/10/23/business/boeing-earnings-strike-vote.html
+
+**How is the Ballon d'Or 2024 winner decided?**\
+`The Ballon d'Or ceremony takes place later this week — this is how the award is decided`\
+https://nytimes.com/athletic/5781652/2024/10/23/ballon-dor-2024-voting-how-it-works/
+
 **Draft-Dodging Scandal in Ukraine Forces a Top Official to Quit**\
 `The prosecutor general stepped down after accusations that hundreds of officials obtained fake disability certificates. There have been no public allegations that he was involved in the scheme.`\
 https://nytimes.com/2024/10/23/world/europe/ukraine-draft-scandal-conscription.html
