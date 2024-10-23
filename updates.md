@@ -1,3 +1,11 @@
+**How to Recreate the Season’s Biggest Beauty Trends at Home**\
+`By Zoe Ruffner`\
+https://nytimes.com/card/2024/10/23/t-magazine/fashion/beauty-makeup-ideas
+
+**Lawsuit Accusing Roman Polanski of 1973 Rape Is Settled**\
+`The suit accused Mr. Polanski of giving a minor alcohol before sexually assaulting her. A lawyer for the director said on Wednesday that the case was settled over the summer but gave no details.`\
+https://nytimes.com/2024/10/23/arts/roman-polanski-rape-lawsuit-settlement.html
+
 **Trump’s Allies Revive Voting Machine Conspiracy Theories With a Blitz of Lawsuits**\
 `The former president and his closest allies are returning to debunked claims about hacked machines as they prepare to contest the vote next month.`\
 https://nytimes.com/2024/10/23/us/politics/trump-voting-machine-conspiracy-theories.html
