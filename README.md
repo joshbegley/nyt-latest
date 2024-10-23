@@ -1,3 +1,11 @@
+**How to Recreate the Season’s Biggest Beauty Trends at Home**\
+`By Zoe Ruffner`\
+https://nytimes.com/card/2024/10/23/t-magazine/fashion/beauty-makeup-ideas
+
+**Lawsuit Accusing Roman Polanski of 1973 Rape Is Settled**\
+`The suit accused Mr. Polanski of giving a minor alcohol before sexually assaulting her. A lawyer for the director said on Wednesday that the case was settled over the summer but gave no details.`\
+https://nytimes.com/2024/10/23/arts/roman-polanski-rape-lawsuit-settlement.html
+
 **Andy Dalton sitting after car accident, Bryce Young to start**\
 `Dalton has completed 66.3 percent of his passes for 989 yards and seven touchdowns against six interceptions this season.`\
 https://nytimes.com/athletic/5865107/2024/10/23/andy-dalton-panthers-bryce-young-car-accident/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/10/23/opinion/harris-trump-election-quiz.ht
 **Matthew Perry Home in Los Angeles Sells a Year After His Death**\
 `The 3,500-square-foot, midcentury modern house in Pacific Palisades, where the actor died last October, fetched $8.55 million.`\
 https://nytimes.com/2024/10/23/realestate/matthew-perry-friends-house.html
-
-**Harris Calls Trump’s Reported Remarks on Hitler and Nazis ‘Deeply Troubling’**\
-`The vice president seized on reports in which John Kelly, a former chief of staff to Donald J. Trump, recounted explosive comments by Mr. Trump and said he met the definition of a “fascist.”`\
-https://nytimes.com/2024/10/23/us/politics/harris-kelly-trump.html
-
-**Send in the Juggalos: Harris Gets a Little Help From Insane Clown Posse**\
-`Endorsements, how do they work?`\
-https://nytimes.com/2024/10/23/us/politics/harris-insane-clown-posse.html
 
