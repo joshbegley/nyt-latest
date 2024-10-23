@@ -1,3 +1,11 @@
+**The Pulse: NBA history, plus a surprising result**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5863535/2024/10/23/lebron-bronny-james-lakers-timberwolves-the-pulse/
+
+**What's driving Tyrese Maxey's rise to superstardom? 'I've always had that chip with me'**\
+`Joel Embiid and Paul George may be the best Sixers, but if Philadelphia wants to win an NBA title, Maxey may be the most important.`\
+https://nytimes.com/athletic/5859352/2024/10/23/sixers-tyrese-maxey-development-playoff-hopes/
+
 **Meet the 60-year-old mother of two breaking down doors for female coaches in the NFL**\
 `Lori Locust has taken a long and winding road to coaching success in the NFL, and she has earned it.`\
 https://nytimes.com/athletic/5854495/2024/10/23/lori-locust-titans-nfl-women-coaches-changemakers/
