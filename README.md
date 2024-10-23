@@ -1,3 +1,15 @@
+**Dodger Details: A roundup on where things stand ahead of the World Series**\
+`Freddie Freeman's status, how the rotation will line up, and updates on the rest of the roster ahead of Game 1.`\
+https://nytimes.com/athletic/5866867/2024/10/23/dodgers-injuries-starters-bullpen-world-series/
+
+**I’m Out of Work. Can I Take a Job in a Predatory Industry?**\
+`The magazine’s Ethicist columnist on what to do when your financial needs conflict with your scruples.`\
+https://nytimes.com/2024/10/23/magazine/unemployed-predatory-industry-ethics.html
+
+**Weinstein to Face Single Trial for 3 Separate Sex Crime Charges**\
+`A new accusation against Harvey Weinstein will be joined with previous charges that are being retried, a judge ruled on Wednesday. A jury will likely hear the New York case next spring.`\
+https://nytimes.com/2024/10/23/nyregion/weinstein-trial-combined-sex-assault-charges.html
+
 **A Sleeper Senate Race Tightens in Nebraska as an Independent Gains**\
 `Dan Osborn, a labor leader and mechanic who is running as an independent, is making Republicans sweat with his dark horse bid to oust Senator Deb Fischer. Can he turn the buzz into votes?`\
 https://nytimes.com/2024/10/23/us/politics/nebraska-senate-osborn-fischer.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/23/opinion/kamala-harris-donald-trump.html
 **Blinken raises the possibility of ‘new frameworks’ for a cease-fire deal.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/blinken-raises-the-possibility-of-new-frameworks-for-a-cease-fire-deal
-
-**No Proof Yet of Hezbollah Bunker Under Beirut Hospital, Austin Says**\
-`Defense Secretary Lloyd J. Austin III said that Washington had not seen evidence to support Israel’s claim that Hezbollah was using a bunker complex embedded underneath Al-Sahel hospital in Beirut.`\
-https://nytimes.com/video/world/middleeast/100000009777926/lebanon-hospital-hezbollah-austin.html
-
-**Actor Frankie Muniz secures full time spot in NASCAR's Truck Series**\
-`Muniz, who previously starred in the television show “Malcolm in the Middle,” has signed to drive a Ford Truck for Reaume Brothers Racing.`\
-https://nytimes.com/athletic/5866787/2024/10/23/nascar-frankie-muniz-actor-driver-trucks/
-
-**The Vikings will be buyers at the trade deadline, but how hard should they swing?**\
-`The Vikings have built a team that has proven to be not just competitive, but one of the league's best. Can they make it even better? `\
-https://nytimes.com/athletic/5864714/2024/10/23/vikings-trade-deadline-positions/
 
