@@ -1,3 +1,7 @@
+**Tennis needs video review - but beware the VAR effect of football**\
+`Tennis has been slow to adopt video review, but its use at the U.S. Open also revealed the technology's insurmountable flaws`\
+https://nytimes.com/athletic/5738049/2024/10/23/tennis-video-review-var-football/
+
 **How Polls Have Changed to Try to Avoid a 2020 Repeat**\
 `Pollsters are constantly tinkering, but they have also made some substantial adjustments.`\
 https://nytimes.com/2024/10/23/upshot/poll-changes-2024-trump.html

@@ -1,3 +1,7 @@
+**Tennis needs video review - but beware the VAR effect of football**\
+`Tennis has been slow to adopt video review, but its use at the U.S. Open also revealed the technology's insurmountable flaws`\
+https://nytimes.com/athletic/5738049/2024/10/23/tennis-video-review-var-football/
+
 **How Polls Have Changed to Try to Avoid a 2020 Repeat**\
 `Pollsters are constantly tinkering, but they have also made some substantial adjustments.`\
 https://nytimes.com/2024/10/23/upshot/poll-changes-2024-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/movies/dana-carvey-joe-biden-snl-trump.html
 **Seth Meyers Isn’t as Nice as You Think He Is**\
 `Meyers has crafted a comedically precise but genial persona over more than two decades on “Saturday Night Live” and “Late Night.” A new stand-up special finds him reveling in his more acerbic side.`\
 https://nytimes.com/2024/10/23/arts/television/seth-meyers-late-night.html
-
-**The Fight Over the Chrysler Building Escalates**\
-`Office tenants are caught in the middle and the building’s fate remains unclear.`\
-https://nytimes.com/2024/10/23/realestate/chrysler-building-lawsuits-cooper-union.html
 
