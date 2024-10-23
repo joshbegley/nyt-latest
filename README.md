@@ -1,15 +1,3 @@
-**The Briefing: Manchester City 5 Sparta Prague 0 - Haaland's stunner and Guardiola's corner tweak**\
-`All the key moments and talking points from Pep Guardiola's team's victory in the Champions League analysed `\
-https://nytimes.com/athletic/5859926/2024/10/23/manchester-city-champions-league-haaland-briefing/
-
-**One of Putin’s Guests Stood Out in the Crowd**\
-`President Vladimir V. Putin, hoping to prove he is not the pariah that the West has tried to make him, this week welcomed leaders from China, India and Iran, among other nations. Then, there was the NATO member.`\
-https://nytimes.com/2024/10/23/world/europe/putin-brics-summit-russia-nato-turkey.html
-
-**Man Charged in Attempted Trump Assassination Seeks Judge’s Recusal**\
-`Lawyers for Ryan Routh want Judge Aileen Cannon to remove herself from the case after a report that her name was among those who could be appointed to a top legal position if Donald Trump is elected.`\
-https://nytimes.com/2024/10/23/us/politics/trump-assassination-attempt-judge.html
-
 **Ron Ely, Who Played an Updated Tarzan in the 1960s, Dies at 86**\
 `He later built a career as a reliable TV guest star. His life turned tragic in 2019 when his son killed Mr. Ely’s wife and was then shot to death by the police.`\
 https://nytimes.com/2024/10/23/arts/television/ron-ely-dead.html
@@ -37,4 +25,16 @@ https://nytimes.com/2024/10/23/world/americas/mexico-sinaloa-cartel-19-killed.ht
 **A 4-Year-Old Starved to Death at Home. How Were the Signs Missed?**\
 `Jahmeik Modlin was found emaciated in a Harlem apartment stocked with food. His family’s child-welfare case had been closed two years before.`\
 https://nytimes.com/2024/10/23/nyregion/jahmeik-modlin-dead-nyc-acs.html
+
+**Trudeau Is Urged by Fellow Party Members to Step Down as Prime Minister**\
+`Liberal Party members fear Justin Trudeau has become so unpopular among voters in Canada that it could lead to the party’s defeat in the next election. Mr. Trudeau has said he has no plans to leave.`\
+https://nytimes.com/2024/10/23/world/canada/trudeau-voters-liberal-party.html
+
+**A Dance Trend That Comes With a Warning Label**\
+`Danny Amendola’s smooth lift on “Dancing With the Stars” spawned numerous imitators (with varying results). TikTok cautions users that it can be dangerous.`\
+https://nytimes.com/2024/10/23/style/danny-amendola-dancing-with-the-stars-tiktok.html
+
+**China May Chafe as North Korea Sends Soldiers to Fight Ukraine**\
+`North Korea’s decision to dispatch troops to help Russia subdue Ukraine may put another Kremlin ally, China, in a tough spot diplomatically.`\
+https://nytimes.com/2024/10/23/world/asia/north-korea-ukraine-russia-china.html
 
