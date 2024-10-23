@@ -1,3 +1,35 @@
+**Fernando Valenzuela, Dodgers Pitcher Who Enthralled Fans, Dies at 63**\
+`He won the Rookie of the Year and Cy Young Awards in 1981, when “Fernandomania” made him a household name and filled ballparks.`\
+https://nytimes.com/2024/10/23/sports/fernando-valenzuela-dead.html
+
+**Flick's fast start at Barcelona: Avoiding the 'entorno', discipline, a secret meeting with Xavi**\
+`Flick has galvanised an underachieving Barca squad and revitalised the mood among fans`\
+https://nytimes.com/athletic/5864113/2024/10/23/barcelona-flick-turnaround/
+
+**Wednesday Briefing**\
+`Early voting starts in all seven swing states.`\
+https://nytimes.com/2024/10/23/world/europe/voting-election-blinken-israel-yellen.html
+
+**Freshman Enrollment Appears to Decline for the First Time Since 2020**\
+`A projected 5 percent drop in this year’s freshman class follows a number of disruptions last year, including persistent failures with the FAFSA form.`\
+https://nytimes.com/2024/10/23/us/politics/freshman-enrollment-appears-to-decline-for-the-first-time-since-2020.html
+
+**Barcelona-Bayern Munich Champions League preview, odds, prediction for big clash**\
+`Two of the biggest clubs in Europe meet in the Champions League on Wednesday with Barcelona hosting Bayern Munich.`\
+https://nytimes.com/athletic/5864144/2024/10/23/barcelona-bayern-munich-champions-league-preview-odds-prediction/
+
+**Fantasy football rankings Week 8: Sleepers, projections, starts, Jalen McMillan, Troy Franklin and more**\
+`Jake Ciely helps you with your Week 8 fantasy lineup, highlighting sleepers and key stats, and also shares his Top 10 road trip artists.`\
+https://nytimes.com/athletic/5864780/2024/10/23/fantasy-football-rankings-week-8-sleepers-projections-starts-jalen-mcmillan-troy-franklin-and-more/
+
+**Tage Thompson shows signs of leadership as Sabres upend Stars: 6 takeaways**\
+`Thompson's goal vs. Dallas was the type of goal that made him one of the most captivating players in the NHL two seasons ago.`\
+https://nytimes.com/athletic/5865563/2024/10/22/sabres-stars-takeaways-tage-thompson/
+
+**Quote of the Day: Battling Floods and the Inexorable Sea, Britain Is Giving Back the Land**\
+`Quotation of the Day for Wednesday, October 23, 2024`\
+https://nytimes.com/2024/10/22/pageoneplus/quote-of-the-day-battling-floods-and-the-inexorable-sea-britain-is-giving-back-the-land.html
+
 **Trump’s Attacks Again Turn Nasty in Campaign’s Waning Days**\
 `Donald Trump is escalating his attacks against Kamala Harris, turning more personal and derogatory, a pattern from his campaigns in 2016 and 2020.`\
 https://nytimes.com/2024/10/22/us/politics/trump-harris-attacks-personal.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/trump-harris-attacks-personal.html
 **Dodgers legend Fernando Valenzuela dies at 63**\
 `As a 20-year-old, Valenzuela won the Rookie of the Year and Cy Young awards and created 'Fernandomania' en route to a World Series title.`\
 https://nytimes.com/athletic/5808180/2024/10/22/fernando-valenzuela-dead-mlb-dodgers/
-
-**Canadiens angered by Trouba hit, third line thrives, more: 4 Rangers takeaways**\
-`The Rangers got off to a hot start in Montreal, scoring four goals in the first 11:05 en route to a 7-2 victory.`\
-https://nytimes.com/athletic/5865510/2024/10/22/rangers-trouba-hit-canadiens-third-line/
-
-**How Canucks' third line fuelled a blowout victory vs. Blackhawks: 3 takeaways**\
-`Vancouver jumped ahead of Chicago early and set the tone for a comfortable, lopsided 6-3 Canucks victory.`\
-https://nytimes.com/athletic/5865140/2024/10/22/canucks-blackhawks-win-takeaways/
-
-**Changes are coming to Craig Counsell’s Cubs coaching staff: Sources**\
-`After a season in observation mode, Counsell identified where changes could be made.`\
-https://nytimes.com/athletic/5865539/2024/10/22/cubs-craig-counsell-coaching-staff-changes/
-
-**'About time': Kaprizov, Zuccarello seemingly switch roles for the surging Wild**\
-`The Wild's three-time 40-goal scorer and premier playmaker are lighting up the net. Just not in the ways you might expect.`\
-https://nytimes.com/athletic/5865478/2024/10/22/wild-kaprizov-zuccarello-offense-roles-panthers/
-
-**Red Wings overcoming quiet offense for 3-3 start: 3 takeaways**\
-`The Red Wings overcame a lopsided shot counter to beat the Islanders, and while they'll take it, they'll need to generate more offense.`\
-https://nytimes.com/athletic/5865337/2024/10/22/red-wings-islanders-takeaways/
-
-**Maple Leafs report cards: Defensive mistakes define ugly loss to Blue Jackets**\
-`The Leafs served up a dismal effort against one of the worst teams in the league in a 6-2 road loss.`\
-https://nytimes.com/athletic/5865437/2024/10/22/maple-leafs-report-cards-defensive-mistakes-columbus/
-
-**What if Trump Deported 11 Million Immigrants?**\
-`In Bentonville, Ark., the fast-growing economy depends on immigrant labor.`\
-https://nytimes.com/interactive/2024/10/22/us/elections/trump-deportation.html
-
-**Timberwolves, Gobert reach 3-year, $110 million extension**\
-`The deal gives the Timberwolves flexibility to continue building around a young core of Anthony Edwards, Jaden McDaniels and Naz Reid.`\
-https://nytimes.com/athletic/5865383/2024/10/22/rudy-gobert-contract-extension-timberwolves/
 
