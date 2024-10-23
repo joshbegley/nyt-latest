@@ -1,3 +1,7 @@
+**How Two of the Rarest Horses on Earth Got Lost**\
+`The entire world’s population of Przewalski’s horses once dwindled to a mere dozen. So how did a pair named Fiona and Shrek end up in livestock auctions in the West?`\
+https://nytimes.com/2024/10/23/nyregion/rare-horses-przewalski.html
+
 **Tropical Storm Trami Brings Heavy Flooding to the Philippines**\
 `Thousands of people were evacuated from their homes as parts of the country experienced unprecedented flooding, the authorities said.`\
 https://nytimes.com/2024/10/23/world/asia/tropical-storm-trami-philippines-flood.html
