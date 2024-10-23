@@ -1,3 +1,7 @@
+**White House Says North Korea Sent Thousands of Soldiers to Russia**\
+`John F. Kirby, a national security spokesman at the White House, said that North Korea had sent at least 3,000 soldiers into training sites in eastern Russia.`\
+https://nytimes.com/video/world/asia/100000009778913/russia-north-korea-soldiers-ukraine.html
+
 **Bond set for ex-Penn State football players charged with rape, other sex crimes**\
 `A preliminary hearing for both Lyons and Keys has been scheduled for Oct. 30 at 8:30 a.m. ET.`\
 https://nytimes.com/athletic/5867127/2024/10/23/penn-state-rape-charges-bond-lyons-keys/
