@@ -1,3 +1,7 @@
+**Chiefs, Titans working on DeAndre Hopkins trade: Sources**\
+`Tennessee would receive a conditional draft pick — a fifth-rounder that could become a fourth — in the deal.`\
+https://nytimes.com/athletic/5866144/2024/10/23/deandre-hopkins-trade-chiefs-titans/
+
 **This Canadiens season is a paradox that will require patience that might not exist**\
 `The Canadiens should not get bogged down in one loss, but the modest expectations this team has set don't seem attainable right now.`\
 https://nytimes.com/athletic/5865830/2024/10/23/canadiens-new-york-rangers-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5862290/2024/10/23/edmonton-oilers-contracts-value-
 **Threats to a Fair Election**\
 `We explain the risks to voting in November.`\
 https://nytimes.com/2024/10/23/briefing/threats-to-a-fair-election.html
-
-**U.S. Says North Korean Troops Are in Russia, Calling It ‘Very Serious’**\
-`What the soldiers are doing is “left to be seen,” the U.S. defense secretary said.`\
-https://nytimes.com/2024/10/23/us/politics/north-korea-russia-military-ukraine.html
 
