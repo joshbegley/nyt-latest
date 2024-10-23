@@ -1,3 +1,7 @@
+**DeAndre Hopkins trade grades: Chiefs get Patrick Mahomes the help he desperately needed**\
+`The Chiefs probably could have won another title without making a trade, but landing a talent like Hopkins shrinks the margin for error. `\
+https://nytimes.com/athletic/5866413/2024/10/23/deandre-hopkins-trade-grades-chiefs-titans/
+
 **GE Vernova Finds Further Problems With Its Wind Turbine Blades**\
 `The company said other blades had a “manufacturing deviation” similar to a blade that shattered in July off the coast of Nantucket.`\
 https://nytimes.com/2024/10/23/business/ge-vernova-wind-turbine-blades.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/business/apple-goldman-sachs-fine-credit-cards.ht
 **Colts' Jonathan Taylor, DeForest Buckner to practice**\
 `Taylor has not practiced or played since sustaining a right high ankle injury in Week 4 against Pittsburgh.`\
 https://nytimes.com/athletic/5866816/2024/10/23/colts-jonathan-taylor-deforest-buckner/
-
-**The Windup: RIP to a Dodgers legend**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5866853/2024/10/23/fernando-valenzuela-dodgers-the-windup/
 
