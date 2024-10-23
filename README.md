@@ -1,3 +1,7 @@
+**Southern California Politician Resigns and Agrees to Plead Guilty in Bribery Scheme**\
+`Federal prosecutors said that Andrew Do, an Orange County supervisor, enriched himself and his family with federal pandemic aid meant for seniors.`\
+https://nytimes.com/2024/10/22/us/california-andrew-do-bribery-pandemic-aid.html
+
 **5 Takeaways From Harris’s Interview With NBC News**\
 `The vice president parried persistent questioning on how she might separate herself from President Biden, whether she might pardon Donald Trump and where she stood on transgender rights.`\
 https://nytimes.com/2024/10/22/us/politics/harris-nbc-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.ht
 **The Difference Between Jamie Dimon and Bill Gates**\
 `Trump’s power of intimidation is usually effective, but some public figures are able to resist it.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/dimon-gates-trump-harris
-
-**Wrexham 0 Huddersfield 0: A cautionary tale, and Parkinson's awkward reunion**\
-`Wrexham were were unable to mark the 160th anniversary of their first ever match with a win as Huddersfield earned a hard-fought point`\
-https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
 
