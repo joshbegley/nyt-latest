@@ -1,3 +1,11 @@
+**Fluffy Feeling Ill? N.Y.C. Workers Might Get Sick Leave for Pet Care.**\
+`Councilman Shaun Abreu is introducing a bill that would require employers in New York City to let workers use their paid sick leave to care for pets and service animals.`\
+https://nytimes.com/2024/10/23/nyregion/new-york-sick-leave-pets.html
+
+**New Jersey House Race Narrows in Final Days**\
+`The campaign of the Democratic challenger, Sue Altman, has received a $4 million infusion after polls showed her closing in on the Republican incumbent, Thomas Kean Jr.`\
+https://nytimes.com/2024/10/23/nyregion/new-jersey-altman-kean-house-election.html
+
 **Passenger Seat**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/10/23/learning/passenger-seat.html
@@ -14,7 +22,7 @@ https://nytimes.com/2024/10/23/crosswords/spelling-bee-forum.html
 `North Korea’s supply of munitions has already been critical to the Russian war effort. Now, there are growing fears that it is sending troops as well.`\
 https://nytimes.com/2024/10/23/world/asia/north-korea-troops-russia-ukraine.html
 
-**Dusty Baker on the passing of Fernando Valenzuela: 'He came like an angel to us'**\
+**'He came like an angel to us': Dusty Baker on the passing of Fernando Valenzuela**\
 `Baker had a front-row seat to FernandoMania: "He made everybody, especially Latin Americans, made them proud."`\
 https://nytimes.com/athletic/5865761/2024/10/23/dodgers-fernando-valenzuela-death-dusty-baker/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/arts/television/michael-kosta-elon-musk.html
 **Penguins played better in loss to Flames; defensive errors remain: Yohe's 10 observations**\
 `Pittsburgh was still victim to defensive miscues in a 4-3 shootout loss in Calgary on Tuesday. `\
 https://nytimes.com/athletic/5862148/2024/10/23/penguins-flames-yohe-10-observations/
-
-**Word of the Day: biodiversity**\
-`This word has appeared in 212 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/23/learning/word-of-the-day-biodiversity.html
-
-**Aston Villa earn the right to dream as Unai Emery takes the Champions League by storm**\
-`Villa became the third side to win their first three games without conceding since the rebranding of Europe's elite club competition in 1992`\
-https://nytimes.com/athletic/5864793/2024/10/23/aston-villas-unai-emery-champions-league/
 
