@@ -1,11 +1,3 @@
-**China May Chafe as North Korea Sends Soldiers to Fight Ukraine**\
-`North Korea’s decision to dispatch troops to help Russia subdue Ukraine may put another Kremlin ally, China, in a tough spot diplomatically.`\
-https://nytimes.com/2024/10/23/world/asia/north-korea-ukraine-russia-china.html
-
-**F1 mailbag: Lando Norris' penalty, track limits and Franco Colapinto’s future**\
-`Plus: What can Ferrari do the rest of the season, and into 2025? And how good were the COTA vibes last weekend?`\
-https://nytimes.com/athletic/5866455/2024/10/23/f1-lando-norris-penalty-us-grand-prix-mailbag/
-
 **This Election Is Also a Choice Between Two Visions of the Federal Courts**\
 `Judges have vast influence over the biggest political questions. An analysis of President Biden and Donald J. Trump’s nominees found stark differences that could emerge again after November.`\
 https://nytimes.com/2024/10/23/us/trump-biden-harris-federal-judges.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5867127/2024/10/23/penn-state-rape-charges-bond-lyo
 **In New York, the Strongmen Step Outside**\
 `A new generation of fitness buffs is prioritizing mutual encouragement in the group workouts that have sprouted up in city playgrounds for years.`\
 https://nytimes.com/2024/10/23/style/outdoor-workouts-nyc-motivational-monday.html
+
+**Mets takeaways from David Stearns' end-of-season news conference**\
+`Stearns said of the Mets financial flexibility: 'I envision us taking advantage of that opportunity and being aggressive in certain spaces.'`\
+https://nytimes.com/athletic/5867337/2024/10/23/mets-david-stearns-offseason-free-agency/
+
+**Man City without Grealish out for at least a week, Doku 'a little longer'**\
+`Pep Guardiola says Jack Grealish is set to be sidelined for at least a week while Manchester City will be without Jeremy Doku for &#8220;a little bit longer&#8221;.`\
+https://nytimes.com/athletic/5867461/2024/10/23/grealish-doku-man-city-injury-update/
 
