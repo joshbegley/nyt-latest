@@ -1,3 +1,7 @@
+**Champions League briefing: Raphinha matches Vinicius - and what about Haaland's backheel?**\
+`Analysing the key talking points from Wednesday's action - from Raphinha's hat-trick to David mastering Madrid and English clubs flying high`\
+https://nytimes.com/athletic/5867574/2024/10/23/champions-league-raphinha-barcelona-haaland-backheel/
+
 **Attention, Passengers: Someone Is Skipping the Line at Your Gate**\
 `American Airlines is testing a technology platform that will produce a sound when a passenger attempts to board a flight ahead of the assigned group.`\
 https://nytimes.com/2024/10/23/business/american-airlines-line-cutters.html
