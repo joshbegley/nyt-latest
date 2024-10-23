@@ -1,3 +1,7 @@
+**Arsenal Today: A win (but at a cost?), Zinchenko's gesture - and pizza to come**\
+`Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
+https://nytimes.com/athletic/5864875/2024/10/23/arsenal-today-october-23/
+
 **Between Knicks and Celtics, the gap is wide. That's OK … for now**\
 `New York and Boston are two different teams in two different stages, and it showed in the season opener.`\
 https://nytimes.com/athletic/5865520/2024/10/23/knicks-celtics-season-opener-nba/
