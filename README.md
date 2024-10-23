@@ -1,3 +1,11 @@
+**The Legacy of Reagan’s Attack on the Education Department**\
+`Reagan failed, but Trump’s allies are still trying to sabotage public education.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/reagan-trump-education-department
+
+**‘What We Do in the Shadows’ Returns One Last Time**\
+`One of TV’s few great funny ha-ha comedies begins its sixth and final season this week on FX and Hulu.`\
+https://nytimes.com/2024/10/23/arts/television/what-we-do-in-the-shadows.html
+
 **Browns OC Ken Dorsey to take over play-calling duties**\
 `The Browns are the league's only team yet to score 20 points or reach 300 yards in a game.`\
 https://nytimes.com/athletic/5866934/2024/10/23/ken-dorsey-browns-play-calling-kevin-stefanski/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/business/ge-vernova-wind-turbine-blades.html
 **Calling all unanswerable college football questions!**\
 `Is there an aspect of college football that you've always wanted to know more about? Is there a myth you'd like to see busted or validated?`\
 https://nytimes.com/athletic/5866746/2024/10/23/unanswerable-college-football-questions/
-
-**Dodger Details: A roundup on where things stand ahead of the World Series**\
-`Freddie Freeman's status, how the rotation will line up, and updates on the rest of the roster ahead of Game 1.`\
-https://nytimes.com/athletic/5866867/2024/10/23/dodgers-injuries-starters-bullpen-world-series/
-
-**I’m Out of Work. Can I Take a Job in a Predatory Industry?**\
-`The magazine’s Ethicist columnist on what to do when your financial needs conflict with your scruples.`\
-https://nytimes.com/2024/10/23/magazine/unemployed-predatory-industry-ethics.html
 
