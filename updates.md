@@ -1,3 +1,7 @@
+**Why the Canucks' offensive outburst in Chicago felt like progress**\
+`Vancouver's six goals on Tuesday were marvels of skill, persistence and team-level passing, and showed improvement from last season.`\
+https://nytimes.com/athletic/5862738/2024/10/23/canucks-blackhawks-win/
+
 **It's only Game 1, but Julius Randle, new-look Timberwolves play a dud vs. Lakers**\
 `"We got to find another level of urgency right now," Wolves coach Chris Finch said. "Season’s started and we didn’t answer the bell."`\
 https://nytimes.com/athletic/5865378/2024/10/23/julius-randle-timberwolves-flop-lakers/
