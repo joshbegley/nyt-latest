@@ -1,3 +1,7 @@
+**Why a Harris Victory Isn’t a Sure Thing**\
+`Responses to two columns by David Brooks. Also: Donald Trump’s disjointed speeches; an inmate with autism; the Eric Adams mess; mistreatment of women.`\
+https://nytimes.com/2024/10/23/opinion/kamala-harris-donald-trump.html
+
 **Blinken raises the possibility of ‘new frameworks’ for a cease-fire deal.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/blinken-raises-the-possibility-of-new-frameworks-for-a-cease-fire-deal
