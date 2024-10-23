@@ -1,3 +1,7 @@
+**Person: Andy Dalton is OK. Bryce Young gets another start. Who knows what happens next?**\
+`Andy Dalton sprained the thumb on his throwing hand in a car collision Tuesday. Bryce Young steps into the No. 1 role after being benched.`\
+https://nytimes.com/athletic/5868071/2024/10/23/bryce-young-starting-panthers-andy-dalton/
+
 **Oilers demote Hyman, Nugent-Hopkins to second power-play unit in search of scoring**\
 `The Oilers have converted just two power plays this season on 19 opportunities, despite an all-world group with the man advantage.`\
 https://nytimes.com/athletic/5868060/2024/10/23/oilers-power-play-changes-hyman/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/briefing/harris-trump-campaign-attacks-north-kore
 **A Pro-Harris Ad Aims to Woo Trump-Weary Republicans**\
 `A new commercial from the biggest super PAC in American politics makes a pitch for Republicans in Arizona and North Carolina.`\
 https://nytimes.com/2024/10/23/us/politics/harris-ad-trump-voters.html
-
-**Teens, What Do You Expect From the 2024 Election?**\
-`The Headway Election Challenge looks to the future, asking teens about their expectations for voter turnout and election results.`\
-https://nytimes.com/2024/10/23/headway/teen-2024-election-expectation.html
 
