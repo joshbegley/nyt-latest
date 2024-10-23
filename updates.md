@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Defensive mistakes define ugly loss to Blue Jackets**\
+`The Leafs served up a dismal effort against one of the worst teams in the league in a 6-2 road loss.`\
+https://nytimes.com/athletic/5865437/2024/10/22/maple-leafs-report-cards-defensive-mistakes-columbus/
+
+**What if Trump Deported 11 Million Immigrants?**\
+`In Bentonville, Ark., the fast-growing economy depends on immigrant labor.`\
+https://nytimes.com/interactive/2024/10/22/us/elections/trump-deportation.html
+
 **Timberwolves, Gobert reach 3-year, $110 million extension**\
 `The deal gives the Timberwolves flexibility to continue building around a young core of Anthony Edwards, Jaden McDaniels and Naz Reid.`\
 https://nytimes.com/athletic/5865383/2024/10/22/rudy-gobert-contract-extension-timberwolves/

@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Defensive mistakes define ugly loss to Blue Jackets**\
+`The Leafs served up a dismal effort against one of the worst teams in the league in a 6-2 road loss.`\
+https://nytimes.com/athletic/5865437/2024/10/22/maple-leafs-report-cards-defensive-mistakes-columbus/
+
+**What if Trump Deported 11 Million Immigrants?**\
+`In Bentonville, Ark., the fast-growing economy depends on immigrant labor.`\
+https://nytimes.com/interactive/2024/10/22/us/elections/trump-deportation.html
+
 **Timberwolves, Gobert reach 3-year, $110 million extension**\
 `The deal gives the Timberwolves flexibility to continue building around a young core of Anthony Edwards, Jaden McDaniels and Naz Reid.`\
 https://nytimes.com/athletic/5865383/2024/10/22/rudy-gobert-contract-extension-timberwolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5864935/2024/10/22/wild-best-start-in-16-years-pant
 **Submit your questions for The Athletic's Big Ten football mailbag**\
 `As the race to the postseason picks up, submit your Big Ten football questions here.`\
 https://nytimes.com/athletic/5861140/2024/10/22/submit-your-questions-for-the-athletics-big-ten-football-mailbag-2/
-
-**Walz Rallies Supporters on Wisconsin’s First Day of Voting, Alongside Obama**\
-`The two men railed against Donald Trump and urged voters to return their ballots early, as polls show a close race in the state.`\
-https://nytimes.com/2024/10/22/us/politics/walz-obama-wisconsin.html
-
-**Southern California Politician Resigns and Agrees to Plead Guilty in Bribery Scheme**\
-`Federal prosecutors said that Andrew Do, an Orange County supervisor, enriched himself and his family with federal pandemic aid meant for seniors.`\
-https://nytimes.com/2024/10/22/us/california-andrew-do-bribery-pandemic-aid.html
 
