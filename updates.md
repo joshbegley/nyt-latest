@@ -1,3 +1,7 @@
+**Ohtani's 50th HR ball sells for record-setting $4.392 million**\
+`Dodgers star Shohei Ohtani is the first major leaguer to record 50 home runs and 50 stolen bases in the same season.`\
+https://nytimes.com/athletic/5865172/2024/10/23/shohei-ohtani-50-50-ball-auction-record/
+
 **Bilal El Khannouss: A Leicester City slow burner**\
 `Genk products have shone in the Premier League before and some of El Khannouss's ex-colleagues are tipping him to be a success in England`\
 https://nytimes.com/athletic/5862855/2024/10/23/bilal-el-khannouss-leicester-city-genk/
