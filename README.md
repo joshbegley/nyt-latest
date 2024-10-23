@@ -34,7 +34,7 @@ https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.ht
 `Trump’s power of intimidation is usually effective, but some public figures are able to resist it.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/dimon-gates-trump-harris
 
-**Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
+**Wrexham 0 Huddersfield 0: A cautionary tale, and Parkinson's awkward reunion**\
 `Wrexham were were unable to mark the 160th anniversary of their first ever match with a win as Huddersfield earned a hard-fought point`\
 https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
 
