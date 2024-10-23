@@ -1,3 +1,7 @@
+**Submit your questions for The Athletic's Big Ten football mailbag**\
+`As the race to the postseason picks up, submit your Big Ten football questions here.`\
+https://nytimes.com/athletic/5861140/2024/10/22/submit-your-questions-for-the-athletics-big-ten-football-mailbag-2/
+
 **Walz Rallies Supporters on Wisconsin’s First Day of Voting, Alongside Obama**\
 `The two men railed against Donald Trump and urged voters to return their ballots early, as polls show a close race in the state.`\
 https://nytimes.com/2024/10/22/us/politics/walz-obama-wisconsin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/us/vail-artist-gaza-war.html
 **With Keon Sabb out, Alabama needs Bray Hubbard to step up: Alabama notebook**\
 `Sabb played against Tennessee with a broken foot, but will be out for a while. Also, Alabama flips a tight end commit from North Carolina.`\
 https://nytimes.com/athletic/5864672/2024/10/22/alabama-crimson-tide-keon-sabb-recruiting/
-
-**As Election Nears, Kelly Warns Trump Would Rule Like a Dictator**\
-`John Kelly, the Trump White House’s longest-serving chief of staff, said that he believed that Donald Trump met the definition of a fascist.`\
-https://nytimes.com/2024/10/22/us/politics/john-kelly-trump-fitness-character.html
 

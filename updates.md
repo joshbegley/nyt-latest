@@ -1,3 +1,7 @@
+**Submit your questions for The Athletic's Big Ten football mailbag**\
+`As the race to the postseason picks up, submit your Big Ten football questions here.`\
+https://nytimes.com/athletic/5861140/2024/10/22/submit-your-questions-for-the-athletics-big-ten-football-mailbag-2/
+
 **Walz Rallies Supporters on Wisconsin’s First Day of Voting, Alongside Obama**\
 `The two men railed against Donald Trump and urged voters to return their ballots early, as polls show a close race in the state.`\
 https://nytimes.com/2024/10/22/us/politics/walz-obama-wisconsin.html
