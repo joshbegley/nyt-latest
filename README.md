@@ -1,3 +1,11 @@
+**Michael Kosta Thinks He’s Found Elon Musk’s Next Failed Purchase**\
+`The “Daily Show” host said Musk “bought Twitter just to drive it into the ground” and is now considering doing the same for America.`\
+https://nytimes.com/2024/10/23/arts/television/michael-kosta-elon-musk.html
+
+**Penguins played better in loss to Flames; defensive errors remain: Yohe's 10 observations**\
+`The Penguins played better but were still victim to defensive miscues in a 4-3 shootout loss in Calgary on Tuesday. `\
+https://nytimes.com/athletic/5862148/2024/10/23/penguins-flames-yohe-10-observations/
+
 **Word of the Day: biodiversity**\
 `This word has appeared in 212 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/23/learning/word-of-the-day-biodiversity.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5865520/2024/10/23/knicks-celtics-season-opener-nba
 **'I'm a part of history': Inside the Celtics' ring ceremony as they lift Banner 18**\
 `The Celtics' ring ceremony was full of franchise legends and spectacle. The players opened up on what it meant to them.`\
 https://nytimes.com/athletic/5865675/2024/10/23/celtics-ring-ceremony-banner-18/
-
-**This Country Turned Against the West, and It’s Not Coming Back**\
-`The romance between Georgia and the West is on the rocks.`\
-https://nytimes.com/2024/10/23/opinion/georgia-election-europe-west.html
-
-**Stuffed Into Trucks, 78 Thai Protesters Died. Their Killers Are Still Free.**\
-`Twenty years ago, a massacre in southern Thailand fueled an insurgency that has never stopped. If no one is prosecuted for it by Friday, no one ever will be.`\
-https://nytimes.com/2024/10/23/world/asia/thailand-tak-bai-massacre.html
 
