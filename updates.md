@@ -1,3 +1,7 @@
+**Courtois to miss El Clasico with groin injury**\
+`Real Madrid goalkeeper Thibaut Courtois is set to miss around two weeks of action with a groin injury.`\
+https://nytimes.com/athletic/5866063/2024/10/23/thibaut-courtois-injury-real-madrid-clasico/
+
 **Trump Accuses U.K. Party of Election Meddling, Despite Links to Its Rivals**\
 `A complaint from the Trump campaign says that actions by members of Britain’s Labour Party were “blatant foreign interference.” Mr. Trump has previously voiced and received support from Labour’s rivals.`\
 https://nytimes.com/2024/10/23/world/europe/uk-labour-party-trump.html

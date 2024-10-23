@@ -1,3 +1,7 @@
+**Courtois to miss El Clasico with groin injury**\
+`Real Madrid goalkeeper Thibaut Courtois is set to miss around two weeks of action with a groin injury.`\
+https://nytimes.com/athletic/5866063/2024/10/23/thibaut-courtois-injury-real-madrid-clasico/
+
 **Trump Accuses U.K. Party of Election Meddling, Despite Links to Its Rivals**\
 `A complaint from the Trump campaign says that actions by members of Britain’s Labour Party were “blatant foreign interference.” Mr. Trump has previously voiced and received support from Labour’s rivals.`\
 https://nytimes.com/2024/10/23/world/europe/uk-labour-party-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5852512/2024/10/23/nba-paul-george-karl-anthony-tow
 **Meet the 60-year-old mother of two breaking down doors for female coaches in the NFL**\
 `Lori Locust has taken a long and winding road to coaching success in the NFL, and she has earned it.`\
 https://nytimes.com/athletic/5854495/2024/10/23/lori-locust-titans-nfl-women-coaches-changemakers/
-
-**How much will it cost to attend the Yankees-Dodgers World Series?**\
-`Sales on StubHub have already outpaced last year's World Series.`\
-https://nytimes.com/athletic/5864462/2024/10/23/world-series-yankees-dodgers-ticket-prices-stubhub/
 
