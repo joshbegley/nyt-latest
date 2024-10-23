@@ -1,3 +1,15 @@
+**Dodger Details: A roundup on where things stand ahead of the World Series**\
+`Freddie Freeman's status, how the rotation will line up, and updates on the rest of the roster ahead of Game 1.`\
+https://nytimes.com/athletic/5866867/2024/10/23/dodgers-injuries-starters-bullpen-world-series/
+
+**I’m Out of Work. Can I Take a Job in a Predatory Industry?**\
+`The magazine’s Ethicist columnist on what to do when your financial needs conflict with your scruples.`\
+https://nytimes.com/2024/10/23/magazine/unemployed-predatory-industry-ethics.html
+
+**Weinstein to Face Single Trial for 3 Separate Sex Crime Charges**\
+`A new accusation against Harvey Weinstein will be joined with previous charges that are being retried, a judge ruled on Wednesday. A jury will likely hear the New York case next spring.`\
+https://nytimes.com/2024/10/23/nyregion/weinstein-trial-combined-sex-assault-charges.html
+
 **A Sleeper Senate Race Tightens in Nebraska as an Independent Gains**\
 `Dan Osborn, a labor leader and mechanic who is running as an independent, is making Republicans sweat with his dark horse bid to oust Senator Deb Fischer. Can he turn the buzz into votes?`\
 https://nytimes.com/2024/10/23/us/politics/nebraska-senate-osborn-fischer.html
