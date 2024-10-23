@@ -1,3 +1,7 @@
+**Aid agencies postpone polio vaccinations in northern Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/aid-agencies-postpone-polio-vaccinations-in-northern-gaza
+
 **U.S. Study on Puberty Blockers Goes Unpublished Because of Politics, Doctor Says**\
 `The leader of the long-running study said that the drugs did not improve mental health in children with gender distress and that the finding might be weaponized by opponents of the care.`\
 https://nytimes.com/2024/10/23/science/puberty-blockers-olson-kennedy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866333/2024/10/23/broncos-mailbag-questions-week-8
 **Why the Canucks' offensive outburst in Chicago felt like progress**\
 `Vancouver's six goals on Tuesday were marvels of skill, persistence and team-level passing, and showed improvement from last season.`\
 https://nytimes.com/athletic/5862738/2024/10/23/canucks-blackhawks-win/
-
-**It's only Game 1, but Julius Randle, new-look Timberwolves play a dud vs. Lakers**\
-`"We got to find another level of urgency right now," Wolves coach Chris Finch said. "Season’s started and we didn’t answer the bell."`\
-https://nytimes.com/athletic/5865378/2024/10/23/julius-randle-timberwolves-flop-lakers/
 

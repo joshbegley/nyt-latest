@@ -1,3 +1,7 @@
+**Aid agencies postpone polio vaccinations in northern Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/aid-agencies-postpone-polio-vaccinations-in-northern-gaza
+
 **U.S. Study on Puberty Blockers Goes Unpublished Because of Politics, Doctor Says**\
 `The leader of the long-running study said that the drugs did not improve mental health in children with gender distress and that the finding might be weaponized by opponents of the care.`\
 https://nytimes.com/2024/10/23/science/puberty-blockers-olson-kennedy.html
