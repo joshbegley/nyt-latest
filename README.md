@@ -1,3 +1,7 @@
+**Andy Dalton sitting after car accident, Bryce Young to start**\
+`Dalton has completed 66.3 percent of his passes for 989 yards and seven touchdowns against six interceptions this season.`\
+https://nytimes.com/athletic/5865107/2024/10/23/andy-dalton-panthers-bryce-young-car-accident/
+
 **Trump’s Allies Revive Voting Machine Conspiracy Theories With a Blitz of Lawsuits**\
 `The former president and his closest allies are returning to debunked claims about hacked machines as they prepare to contest the vote next month.`\
 https://nytimes.com/2024/10/23/us/politics/trumps-allies-revive-voting-machine-conspiracy-theories-with-a-blitz-of-lawsuits.html
@@ -20,7 +24,7 @@ https://nytimes.com/2024/10/23/technology/georgia-voter-fraud-machine-conspiracy
 
 **Harris? Trump? Vance? Walz? It’s Campaign Quiz Time.**\
 `Time for your pre-election quiz.`\
-https://nytimes.com/interactive/2024/10/23/opinion/columnists/23collins-quiz-24-v2.html
+https://nytimes.com/interactive/2024/10/23/opinion/harris-trump-election-quiz.html
 
 **Matthew Perry Home in Los Angeles Sells a Year After His Death**\
 `The 3,500-square-foot, midcentury modern house in Pacific Palisades, where the actor died last October, fetched $8.55 million.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/us/politics/harris-kelly-trump.html
 **Send in the Juggalos: Harris Gets a Little Help From Insane Clown Posse**\
 `Endorsements, how do they work?`\
 https://nytimes.com/2024/10/23/us/politics/harris-insane-clown-posse.html
-
-**A Feathered Murder Mystery at 10,000 Feet**\
-`Scientists say they have observed one of the highest-altitude acts of bird predation ever recorded.`\
-https://nytimes.com/2024/10/23/science/birds-migration-10000-feet-predator.html
 
