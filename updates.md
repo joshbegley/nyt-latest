@@ -1,3 +1,7 @@
+**Bryce Young to start after Andy Dalton car accident**\
+`Dalton has completed 66.3 percent of his passes for 989 yards and seven touchdowns against six interceptions this season.`\
+https://nytimes.com/athletic/5865107/2024/10/23/andy-dalton-panthers-bryce-young-car-accident/
+
 **Who are the NBA's most valuable players toward the point spread?**\
 `Who is the most valuable player in the NBA toward the point spread on a nightly basis? Bookmakers chime in.`\
 https://nytimes.com/athletic/5867203/2024/10/23/nba-mvp-spread-giannis-jokic-curry-doncic/
