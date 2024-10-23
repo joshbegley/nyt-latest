@@ -1,3 +1,7 @@
+**5 Takeaways From Harris’s Interview With NBC News**\
+`The vice president parried persistent questioning on how she might separate herself from President Biden, whether she might pardon Donald Trump and where she stood on transgender rights.`\
+https://nytimes.com/2024/10/22/us/politics/harris-nbc-interview.html
+
 **Saints, Alvin Kamara agree to 2-year, $24.5 million extension**\
 `The new deal will include $22.23 million guaranteed and a $15.5 million signing bonus, according to a team source.`\
 https://nytimes.com/athletic/5865083/2024/10/22/alvin-kamara-saints-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/22/opinion/thepoint/dimon-gates-trump-harris
 **Wrexham 0-0 Huddersfield: A cautionary tale, and Parkinson's awkward reunion**\
 `Wrexham were were unable to mark the 160th anniversary of their first ever match with a win as Huddersfield earned a hard-fought point`\
 https://nytimes.com/athletic/5862840/2024/10/22/wrexham-0-0-huddersfield-parkinson/
-
-**There’s One Main Culprit if Donald Trump Wins**\
-`They should look at themselves and the way they practice politics.`\
-https://nytimes.com/2024/10/22/opinion/trump-kamala-harris-democrats.html
 
