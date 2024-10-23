@@ -1,3 +1,7 @@
+**What Do You Give Someone Who Just Got Engaged?**\
+`Painterly blankets, bespoke jewelry and more gift recommendations from T Magazine.`\
+https://nytimes.com/2024/10/23/t-magazine/engagement-gifts.html
+
 **Seahawks acquire LB Ernest Jones IV in trade with Titans: Reports**\
 `Seattle will send linebacker Jerome Baker and a fourth-round pick to Tennessee in exchange for Jones IV. `\
 https://nytimes.com/athletic/5867009/2024/10/23/seahawks-titans-ernest-jones-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5867033/2024/10/23/new-york-islanders-mailbag-octob
 **Submit your questions for Peter Baugh and Arthur Staple's New York Rangers mailbag**\
 `Have a question about the Rangers? Submit it here and Peter Baugh and Arthur Staple will address a selection in their upcoming mailbag.`\
 https://nytimes.com/athletic/5867032/2024/10/23/new-york-rangers-mailbag-october-2024/
-
-**Blues place Robert Thomas on IR with fractured ankle**\
-`The team said Thomas will be re-evaluated in six weeks.`\
-https://nytimes.com/athletic/5867066/2024/10/23/blues-robert-thomas-injury/
 
