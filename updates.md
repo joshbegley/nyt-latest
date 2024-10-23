@@ -1,3 +1,7 @@
+**Celtics tie single-game 3-point record in season opener vs. Knicks**\
+`The Milwaukee Bucks set the single-game 3-point record (29) in 2020.`\
+https://nytimes.com/athletic/5865096/2024/10/22/celtics-knicks-3-point-record-results-takeaways/
+
 **Rams open Nacua's practice window after IR stint**\
 `Puka Nacua has been out since being injured in the Rams' Week 1 game against the Lions.`\
 https://nytimes.com/athletic/5865101/2024/10/22/rams-puka-nacua-practice-window-ir/
