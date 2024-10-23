@@ -1,3 +1,7 @@
+**Draft-Dodging Scandal in Ukraine Forces a Top Official to Quit**\
+`The prosecutor general stepped down after accusations that hundreds of officials obtained fake disability certificates. There have been no public allegations that he was involved in the scheme.`\
+https://nytimes.com/2024/10/23/world/europe/ukraine-draft-scandal-conscription.html
+
 **Chiefs, Titans working on DeAndre Hopkins trade: Sources**\
 `Tennessee would receive a conditional draft pick — a fifth-rounder that could become a fourth — in the deal.`\
 https://nytimes.com/athletic/5866144/2024/10/23/deandre-hopkins-trade-chiefs-titans/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/movies/family-pack-review.html
 **Lowetide: Do the Oilers have enough value contracts this season?**\
 `The Edmonton Oilers have made it to the Stanley Cup Final twice during the salary-cap era, and both times the club boasted impressive value contracts.`\
 https://nytimes.com/athletic/5862290/2024/10/23/edmonton-oilers-contracts-value-2024/
-
-**Threats to a Fair Election**\
-`We explain the risks to voting in November.`\
-https://nytimes.com/2024/10/23/briefing/threats-to-a-fair-election.html
 

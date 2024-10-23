@@ -1,3 +1,7 @@
+**Draft-Dodging Scandal in Ukraine Forces a Top Official to Quit**\
+`The prosecutor general stepped down after accusations that hundreds of officials obtained fake disability certificates. There have been no public allegations that he was involved in the scheme.`\
+https://nytimes.com/2024/10/23/world/europe/ukraine-draft-scandal-conscription.html
+
 **Chiefs, Titans working on DeAndre Hopkins trade: Sources**\
 `Tennessee would receive a conditional draft pick — a fifth-rounder that could become a fourth — in the deal.`\
 https://nytimes.com/athletic/5866144/2024/10/23/deandre-hopkins-trade-chiefs-titans/
