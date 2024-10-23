@@ -1,3 +1,7 @@
+**This Canadiens season is a paradox that will require patience that might not exist**\
+`The Canadiens should not get bogged down in one loss, but the modest expectations this team has set don't seem attainable right now.`\
+https://nytimes.com/athletic/5865830/2024/10/23/canadiens-new-york-rangers-loss/
+
 **Gisèle Pelicot Returns to French Court to Testify in Rape Case**\
 `Her husband is accused of inviting strangers to sexually assault her while she was drugged and unconscious. The trial has transformed the way France discusses sexual violence.`\
 https://nytimes.com/2024/10/23/world/europe/gisele-pelicot-france-rape-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/briefing/threats-to-a-fair-election.html
 **U.S. Says North Korean Troops Are in Russia, Calling It ‘Very Serious’**\
 `What the soldiers are doing is “left to be seen,” the U.S. defense secretary said.`\
 https://nytimes.com/2024/10/23/us/politics/north-korea-russia-military-ukraine.html
-
-**Courtois to miss El Clasico with groin injury**\
-`Real Madrid goalkeeper Thibaut Courtois is set to miss around two weeks of action with a groin injury.`\
-https://nytimes.com/athletic/5866063/2024/10/23/thibaut-courtois-injury-real-madrid-clasico/
 
