@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5864144/2024/10/23/barcelona-bayern-munich-champion
 https://nytimes.com/athletic/5864780/2024/10/23/fantasy-football-rankings-week-8-sleepers-projections-starts-jalen-mcmillan-troy-franklin-and-more/
 
 **Tage Thompson shows signs of leadership as Sabres upend Stars: 6 takeaways**\
-`Thompson's goal vs. Dallas was the type of goal that made him one of the most captivating players in the NHL two seasons ago.`\
+`Thompson's goal vs. Dallas was the type that made him one of the most captivating players in the NHL two seasons ago.`\
 https://nytimes.com/athletic/5865563/2024/10/22/sabres-stars-takeaways-tage-thompson/
 
 **Quote of the Day: Battling Floods and the Inexorable Sea, Britain Is Giving Back the Land**\
