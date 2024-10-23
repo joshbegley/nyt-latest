@@ -1,3 +1,7 @@
+**Tropical Storm Trami Brings Heavy Flooding to the Philippines**\
+`Thousands of people were evacuated from their homes as parts of the country experienced unprecedented flooding, the authorities said.`\
+https://nytimes.com/2024/10/23/world/asia/tropical-storm-trami-philippines-flood.html
+
 **Here are the latest developments.**\
 `By Victoria Kim, Michael Crowley and Gabby Sobelman`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments

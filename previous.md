@@ -1,3 +1,7 @@
+**Tropical Storm Trami Brings Heavy Flooding to the Philippines**\
+`Thousands of people were evacuated from their homes as parts of the country experienced unprecedented flooding, the authorities said.`\
+https://nytimes.com/2024/10/23/world/asia/tropical-storm-trami-philippines-flood.html
+
 **Celtics' season opener had a familiar ring to it, then they continued winning**\
 `After the NBA's kings were feted, Boston shifted its focus to playing basketball and dominated New York 132-109.`\
 https://nytimes.com/athletic/5865845/2024/10/23/celtics-win-opener-against-kinicks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/crosswords/spelling-bee-forum.html
 **What We Know About North Korea’s Role in the Ukraine War**\
 `North Korea’s supply of munitions has already been critical to the Russian war effort. Now, there are growing fears that it is sending troops as well.`\
 https://nytimes.com/2024/10/23/world/asia/north-korea-troops-russia-ukraine.html
-
-**'He came like an angel to us': Dusty Baker on the passing of Fernando Valenzuela**\
-`Baker had a front-row seat to FernandoMania: "He made everybody, especially Latin Americans, made them proud."`\
-https://nytimes.com/athletic/5865761/2024/10/23/dodgers-fernando-valenzuela-death-dusty-baker/
 
