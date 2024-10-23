@@ -1,3 +1,7 @@
+**White House Says North Korea Sent Thousands of Soldiers to Russia**\
+`John F. Kirby, a national security spokesman at the White House, said that North Korea had sent at least 3,000 soldiers into training sites in eastern Russia.`\
+https://nytimes.com/video/world/asia/100000009778913/russia-north-korea-soldiers-ukraine.html
+
 **Bond set for ex-Penn State football players charged with rape, other sex crimes**\
 `A preliminary hearing for both Lyons and Keys has been scheduled for Oct. 30 at 8:30 a.m. ET.`\
 https://nytimes.com/athletic/5867127/2024/10/23/penn-state-rape-charges-bond-lyons-keys/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-coalition-trump-move
 **How to Recreate the Season’s Biggest Beauty Trends at Home**\
 `By Zoe Ruffner`\
 https://nytimes.com/card/2024/10/23/t-magazine/fashion/beauty-makeup-ideas
-
-**Lawsuit Accusing Roman Polanski of 1973 Rape Is Settled**\
-`The suit accused Mr. Polanski of giving a minor alcohol before sexually assaulting her. A lawyer for the director said on Wednesday that the case was settled over the summer but gave no details.`\
-https://nytimes.com/2024/10/23/arts/roman-polanski-rape-lawsuit-settlement.html
 
