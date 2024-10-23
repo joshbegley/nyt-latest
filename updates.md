@@ -1,3 +1,15 @@
+**Harris? Trump? Vance? Walz? It’s Campaign Quiz Time.**\
+`Time for your pre-election quiz.`\
+https://nytimes.com/interactive/2024/10/23/opinion/columnists/23collins-quiz-24-v2.html
+
+**Matthew Perry Home in Los Angeles Sells a Year After His Death**\
+`The 3,500-square-foot, midcentury modern house in Pacific Palisades, where the actor died last October, fetched $8.55 million.`\
+https://nytimes.com/2024/10/23/realestate/matthew-perry-friends-house.html
+
+**Harris Calls Trump’s Reported Remarks on Hitler and Nazis ‘Deeply Troubling’**\
+`The vice president seized on reports in which John Kelly, a former chief of staff to Donald J. Trump, recounted explosive comments by Mr. Trump and said he met the definition of a “fascist.”`\
+https://nytimes.com/2024/10/23/us/politics/harris-kelly-trump.html
+
 **Send in the Juggalos: Harris Gets a Little Help From Insane Clown Posse**\
 `Endorsements, how do they work?`\
 https://nytimes.com/2024/10/23/us/politics/harris-insane-clown-posse.html
