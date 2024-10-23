@@ -1,3 +1,7 @@
+**Harris? Trump? Vance? Walz? It’s Campaign Quiz Time.**\
+`Time for your pre-election quiz.`\
+https://nytimes.com/interactive/2024/10/23/opinion/columnists/23collins-quiz-24-v2.html
+
 **Matthew Perry Home in Los Angeles Sells a Year After His Death**\
 `The 3,500-square-foot, midcentury modern house in Pacific Palisades, where the actor died last October, fetched $8.55 million.`\
 https://nytimes.com/2024/10/23/realestate/matthew-perry-friends-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5867009/2024/10/23/seahawks-titans-ernest-jones-tra
 **Where's Steph Curry?! The NBA and WNBA stars generating the most collector interest**\
 `What basketball collectors can learn from recent eBay data.`\
 https://nytimes.com/athletic/5863720/2024/10/23/nba-wnba-cards-caitlin-clark-wembanyama/
-
-**Digital Tags Come to Kroger and Walmart, but Chains Deny ‘Surge Pricing’**\
-`Some members of Congress have expressed concerns that stores will monitor customers and raise prices. Business experts say the tech has not raised customers’ grocery bills.`\
-https://nytimes.com/2024/10/23/business/kroger-walmart-facial-recognition-prices.html
 
