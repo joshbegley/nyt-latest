@@ -1,3 +1,7 @@
+**A Devastating Dutch Love Story, in the Shadow of Anne Frank**\
+`In Yael van der Wouden’s debut novel, “The Safekeep,” the writer spins an erotic thriller out of the Netherlands’ failure to face up to the horrors of the Holocaust.`\
+https://nytimes.com/2024/10/23/books/yael-van-der-wouden-the-safekeep.html
+
 **When Dementia Changes a Loved One’s Personality**\
 `Shifts in behavior can be challenging to manage. Experts have five strategies that can help.`\
 https://nytimes.com/2024/10/23/well/mind/caregivers-dementia-mood-changes-management.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/arts/dance/st-john-passion-sasha-waltz.html
 **Ryan Day agrees with Nick Saban, O-line adjustments: Ohio State thoughts**\
 `We've never seen an Ohio State team with Ryan Day so hands-on. That could make the difference.`\
 https://nytimes.com/athletic/5866568/2024/10/23/ohio-state-ryan-day-nick-saban-nebraska/
-
-**Rohingya Refugees Are Stranded at Sea for Days as Residents Reject Them**\
-`Residents of a town in western Indonesia shared food with the refugees but declined to host them, leaving them stuck on a boat miles from shore.`\
-https://nytimes.com/2024/10/23/world/asia/rohingya-muslim-refugees-indonesia-boat.html
 
