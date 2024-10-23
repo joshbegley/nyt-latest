@@ -1,3 +1,19 @@
+**Fernandomania Wasn’t a Fairy Tale. It Was Better Than That.**\
+`Fernando Valenzuela, who died on Tuesday at age 63, was a teenage phenomenon from Mexico who remade the Dodgers’ fan base and put his country on the baseball map.`\
+https://nytimes.com/2024/10/23/style/fernando-valenzuela-fernandomania.html
+
+**Israel Bombs Lebanese City as Blinken Hints at New Ideas for Gaza Cease-Fire**\
+`The Israeli military struck targets in the port city of Tyre on Wednesday, the latest phase of a bombardment campaign against the militant group Hezbollah.`\
+https://nytimes.com/2024/10/23/world/middleeast/israel-tyre-lebanon-blinken.html
+
+**Will This New U.S. Project Make the World’s Children Smarter?**\
+`Biden takes aim at a neurotoxin all around us that impedes brain development.`\
+https://nytimes.com/2024/10/23/opinion/lead-poisoning-children-smart-science.html
+
+**Why Trump’s Closing Argument Is Full of ‘Locker Room Talk’**\
+`By all appearances, he’s embracing vulgarity to exploit the voter gender gap.`\
+https://nytimes.com/2024/10/23/opinion/donald-trump-arnold-palmer.html
+
 **Why the Oilers are experimenting with tweaks to their power-play units**\
 `The Oilers have converted just two power plays this season on 19 opportunities, despite an all-world group with the man advantage.`\
 https://nytimes.com/athletic/5868060/2024/10/23/oilers-power-play-changes-hyman/
