@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/23/business/kroger-walmart-facial-recognition-prices
 `Welcome to the first edition of our up-close Heat coverage, beginning with a preview of Wednesday's opener against the Magic.`\
 https://nytimes.com/athletic/5866375/2024/10/23/heat-today-miami-magic-preview/
 
-**Djokovic will not defend Paris Masters, ATP Tour Finals participation in doubt**\
+**Djokovic will not defend Paris Masters title**\
 `The world No. 3 will drop 1000 ranking points as a result.`\
 https://nytimes.com/athletic/5861013/2024/10/23/djokovic-paris-masters-atp-tour-finals/
 
