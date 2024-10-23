@@ -1,3 +1,11 @@
+**How Utah H.C. plans to adjust after Sean Durzi, John Marino injuries**\
+`Durzi and Marino underwent surgeries that will sideline them well into the new year, the team announced Wednesday.`\
+https://nytimes.com/athletic/5867133/2024/10/23/utah-nhl-durzi-marino-injuries/
+
+**NFL best bets Week 8: Don't be afraid to fade Chiefs and Ravens**\
+`Austin Mock's NFL projection model gives us five bets that show real value — even if they're kind of ugly. `\
+https://nytimes.com/athletic/5866868/2024/10/23/nfl-best-bets-week-8-fade-chiefs-ravens/
+
 **Submit your questions for Arthur Staple's New York Islanders mailbag**\
 `Have a question about the Islanders? Submit it here and The Athletic’s Arthur Staple will address a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/5867033/2024/10/23/new-york-islanders-mailbag-october-2024/
