@@ -1,3 +1,7 @@
+**Anton Forsberg quieted any Senators goaltending issues — at least for one night**\
+`The Senators scored four goals against Utah, but Forsberg emerged as Ottawa's best player.`\
+https://nytimes.com/athletic/5865456/2024/10/23/senators-anton-forsberg-goaltending-linus-ullmark/
+
 **Donald Trump’s lifetime of scandals heads toward a moment of judgment.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/10/23/us/harris-trump-election/donald-trumps-lifetime-of-scandals-heads-toward-a-moment-of-judgment
