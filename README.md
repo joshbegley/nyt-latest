@@ -1,3 +1,7 @@
+**Send in the Juggalos: Harris Gets a Little Help From Insane Clown Posse**\
+`Endorsements, how do they work?`\
+https://nytimes.com/2024/10/23/us/politics/harris-insane-clown-posse.html
+
 **A Feathered Murder Mystery at 10,000 Feet**\
 `Scientists say they have observed one of the highest-altitude acts of bird predation ever recorded.`\
 https://nytimes.com/2024/10/23/science/birds-migration-10000-feet-predator.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866375/2024/10/23/heat-today-miami-magic-preview/
 **Djokovic will not defend Paris Masters title**\
 `The world No. 4 will drop 1000 ranking points as a result.`\
 https://nytimes.com/athletic/5861013/2024/10/23/djokovic-paris-masters-atp-tour-finals/
-
-**How Utah HC plans to adjust after Sean Durzi, John Marino injuries**\
-`Durzi and Marino underwent surgeries that will sideline them well into the new year, the team announced Wednesday.`\
-https://nytimes.com/athletic/5867133/2024/10/23/utah-nhl-durzi-marino-injuries/
 
