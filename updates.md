@@ -1,3 +1,15 @@
+**Mets takeaways from David Stearns' end-of-season news conference**\
+`Stearns said of the Mets financial flexibility: 'I envision us taking advantage of that opportunity and being aggressive in certain spaces.'`\
+https://nytimes.com/athletic/5867337/2024/10/23/mets-david-stearns-offseason-free-agency/
+
+**Man City without Grealish out for at least a week, Doku 'a little longer'**\
+`Pep Guardiola says Jack Grealish is set to be sidelined for at least a week while Manchester City will be without Jeremy Doku for &#8220;a little bit longer&#8221;.`\
+https://nytimes.com/athletic/5867461/2024/10/23/grealish-doku-man-city-injury-update/
+
+**A tribute to Fernando Valenzuela, the mystical lefty with the miracle screwball**\
+`Valenzuela wasn’t the best pitcher in baseball history. But he was one of the finest performers the game has ever seen.`\
+https://nytimes.com/athletic/5867329/2024/10/23/fernando-valenzuela-dodgers-death-tribute/
+
 **Bryce Young to start after Andy Dalton car accident**\
 `Dalton has completed 66.3 percent of his passes for 989 yards and seven touchdowns against six interceptions this season.`\
 https://nytimes.com/athletic/5865107/2024/10/23/andy-dalton-panthers-bryce-young-car-accident/
