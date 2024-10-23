@@ -1,3 +1,7 @@
+**Submit your questions for Peter Baugh and Arthur Staple's New York Rangers mailbag**\
+`Have a question about the Rangers? Submit it here and Peter Baugh and Arthur Staple will address a selection in their upcoming mailbag.`\
+https://nytimes.com/athletic/5867032/2024/10/23/new-york-rangers-mailbag-october-2024/
+
 **Blues place Robert Thomas on IR with fractured ankle**\
 `The team said Thomas will be re-evaluated in six weeks.`\
 https://nytimes.com/athletic/5867066/2024/10/23/blues-robert-thomas-injury/

@@ -1,7 +1,3 @@
-**Submit your questions for Peter Baugh and Arthur Staple's New York Rangers mailbag**\
-`Have a question about the Rangers? Submit it here and Peter Baugh and Arthur Staple will address a selection in their upcoming mailbag.`\
-https://nytimes.com/athletic/5867032/2024/10/23/new-york-rangers-mailbag-october-2024/
-
 **Blues place Robert Thomas on IR with fractured ankle**\
 `The team said Thomas will be re-evaluated in six weeks.`\
 https://nytimes.com/athletic/5867066/2024/10/23/blues-robert-thomas-injury/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5866890/2024/10/23/acheampong-chelsea-contract-mare
 **Chiefs trade for DeAndre Hopkins from Titans**\
 `Tennessee would receive a conditional draft pick — a fifth-rounder that could become a fourth — in the deal.`\
 https://nytimes.com/athletic/5866144/2024/10/23/deandre-hopkins-trade-chiefs-titans/
+
+**DeAndre Hopkins trade grades: Chiefs get Patrick Mahomes the help he desperately needed**\
+`The Chiefs probably could have won another title without making a trade, but landing a talent like Hopkins shrinks the margin for error. `\
+https://nytimes.com/athletic/5866413/2024/10/23/deandre-hopkins-trade-grades-chiefs-titans/
 
