@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5808180/2024/10/22/fernando-valenzuela-dead-mlb-dod
 `The Rangers got off to a hot start in Montreal, scoring four goals in the first 11:05 en route to a 7-2 victory.`\
 https://nytimes.com/athletic/5865510/2024/10/22/rangers-trouba-hit-canadiens-third-line/
 
-**How Canucks' third line fuelled blowout victory vs. Blackhawks: 3 takeaways**\
+**How Canucks' third line fuelled a blowout victory vs. Blackhawks: 3 takeaways**\
 `Vancouver jumped ahead of Chicago early and set the tone for a comfortable, lopsided 6-3 Canucks victory.`\
 https://nytimes.com/athletic/5865140/2024/10/22/canucks-blackhawks-win-takeaways/
 
