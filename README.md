@@ -1,3 +1,7 @@
+**The cult of 'Cold Palmer' has reached America - can he become a global brand?**\
+`Cole Palmer is one of the Premier League's biggest stars but can the 22-year-old Chelsea and England forward take his name worldwide?`\
+https://nytimes.com/athletic/5850091/2024/10/23/cole-palmer-brand-america-celebration/
+
 **Fernando Valenzuela, Dodgers Pitcher Who Enthralled Fans, Dies at 63**\
 `He won the Rookie of the Year and Cy Young Awards in 1981, when “Fernandomania” made him a household name and filled ballparks.`\
 https://nytimes.com/2024/10/23/sports/fernando-valenzuela-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/22/pageoneplus/quote-of-the-day-battling-floods-and-
 **Trump’s Attacks Again Turn Nasty in Campaign’s Waning Days**\
 `Donald Trump is escalating his attacks against Kamala Harris, turning more personal and derogatory, a pattern from his campaigns in 2016 and 2020.`\
 https://nytimes.com/2024/10/22/us/politics/trump-harris-attacks-personal.html
-
-**Dodgers legend Fernando Valenzuela dies at 63**\
-`As a 20-year-old, Valenzuela won the Rookie of the Year and Cy Young awards and created 'Fernandomania' en route to a World Series title.`\
-https://nytimes.com/athletic/5808180/2024/10/22/fernando-valenzuela-dead-mlb-dodgers/
 
