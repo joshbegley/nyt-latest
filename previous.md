@@ -1,3 +1,7 @@
+**A Feathered Murder Mystery at 10,000 Feet**\
+`Scientists say they have observed one of the highest-altitude acts of bird predation ever recorded.`\
+https://nytimes.com/2024/10/23/science/birds-migration-10000-feet-predator.html
+
 **What’s in Our Queue? ‘Smiling Friends’ and More**\
 `I’m a photo editing resident at The New York Times, working in Culture on disciplines including fine arts, television and video games. Here are five things I’ve been enjoying.`\
 https://nytimes.com/interactive/2024/10/23/arts/editors-recommendations-smilingfriends.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5861013/2024/10/23/djokovic-paris-masters-atp-tour-
 **How Utah HC plans to adjust after Sean Durzi, John Marino injuries**\
 `Durzi and Marino underwent surgeries that will sideline them well into the new year, the team announced Wednesday.`\
 https://nytimes.com/athletic/5867133/2024/10/23/utah-nhl-durzi-marino-injuries/
-
-**NFL best bets Week 8: Don't be afraid to fade Chiefs and Ravens**\
-`Austin Mock's NFL projection model gives us five bets that show real value — even if they're kind of ugly. `\
-https://nytimes.com/athletic/5866868/2024/10/23/nfl-best-bets-week-8-fade-chiefs-ravens/
 

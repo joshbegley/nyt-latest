@@ -1,3 +1,7 @@
+**A Feathered Murder Mystery at 10,000 Feet**\
+`Scientists say they have observed one of the highest-altitude acts of bird predation ever recorded.`\
+https://nytimes.com/2024/10/23/science/birds-migration-10000-feet-predator.html
+
 **What’s in Our Queue? ‘Smiling Friends’ and More**\
 `I’m a photo editing resident at The New York Times, working in Culture on disciplines including fine arts, television and video games. Here are five things I’ve been enjoying.`\
 https://nytimes.com/interactive/2024/10/23/arts/editors-recommendations-smilingfriends.html
