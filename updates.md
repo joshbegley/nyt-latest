@@ -1,3 +1,7 @@
+**What Do You Give Someone Who Just Got Engaged?**\
+`Painterly blankets, bespoke jewelry and more gift recommendations from T Magazine.`\
+https://nytimes.com/2024/10/23/t-magazine/engagement-gifts.html
+
 **Seahawks acquire LB Ernest Jones IV in trade with Titans: Reports**\
 `Seattle will send linebacker Jerome Baker and a fourth-round pick to Tennessee in exchange for Jones IV. `\
 https://nytimes.com/athletic/5867009/2024/10/23/seahawks-titans-ernest-jones-trade/
