@@ -1,3 +1,7 @@
+**Recovering from pneumonia, 49ers' Deebo Samuel has a chance to face the Cowboys**\
+`The 49ers have two main options to replace Brandon Aiyuk at split end: veteran Chris Conley and rookie Ricky Pearsall. Both spoke Wednesday.`\
+https://nytimes.com/athletic/5868279/2024/10/23/deebo-samuel-pneumonia-49ers-cowboys/
+
 **Five Dead After ‘Terrorist Attack’ on Turkish Aerospace Company**\
 `Attackers armed with explosives and rifles assaulted the headquarters of a Turkish state-run aerospace company on Wednesday.`\
 https://nytimes.com/video/world/asia/100000009779360/turkey-aerospace-terrorist-attack.html
