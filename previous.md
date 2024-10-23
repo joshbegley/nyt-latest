@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/23/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris and Trump to Face Voters at Town Halls**\
+`Donald J. Trump will appear at a faith-based event in Georgia, while Kamala Harris will be in Pennsylvania for a CNN broadcast.`\
+https://nytimes.com/live/2024/10/23/us/harris-trump-election
+
 **In JJ Redick's debut, Lakers show their potential to contend: 'We trust him'**\
 `Anthony Davis thrived in his role as offensive hub, and LA's shot selection and ball security were highlights in the win over Minnesota.  `\
 https://nytimes.com/athletic/5865764/2024/10/23/lakers-jj-redick-opener/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/world/europe/gisele-pelicot-france-rape-case.html
 **Another loss shows Oilers are making insufficient progress at both ends of the rink**\
 `The Oilers couldn't hold onto a two-goal lead entering the third period and lost in overtime to the Hurricanes.`\
 https://nytimes.com/athletic/5865776/2024/10/23/oilers-loss-insufficient-progress-hurricanes/
-
-**Why Is Israel Poised to Attack Iran?**\
-`The two countries have been fighting a shadow war for years. But direct attacks are bringing direct reprisals, or at least plans for them.`\
-https://nytimes.com/2024/10/23/world/middleeast/mideast-war-israel-iran-attack.html
-
-**Mirtle: Maple Leafs are close to re-signing Jake McCabe. But what's the right number?**\
-`McCabe and Ekman-Larsson have formed a surprisingly solid second pairing for the Leafs, even with McCabe on his off side.`\
-https://nytimes.com/athletic/5864757/2024/10/23/maple-leafs-jake-mccabe-extension/
 
