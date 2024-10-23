@@ -1,3 +1,7 @@
+**Chiefs, Titans working on DeAndre Hopkins trade: Sources**\
+`Tennessee would receive a conditional draft pick — a fifth-rounder that could become a fourth — in the deal.`\
+https://nytimes.com/athletic/5866144/2024/10/23/deandre-hopkins-trade-chiefs-titans/
+
 **This Canadiens season is a paradox that will require patience that might not exist**\
 `The Canadiens should not get bogged down in one loss, but the modest expectations this team has set don't seem attainable right now.`\
 https://nytimes.com/athletic/5865830/2024/10/23/canadiens-new-york-rangers-loss/
