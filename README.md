@@ -1,3 +1,11 @@
+**Matthew Perry Home in Los Angeles Sells a Year After His Death**\
+`The 3,500-square-foot, midcentury modern house in Pacific Palisades, where the actor died last October, fetched $8.55 million.`\
+https://nytimes.com/2024/10/23/realestate/matthew-perry-friends-house.html
+
+**Harris Calls Trump’s Reported Remarks on Hitler and Nazis ‘Deeply Troubling’**\
+`The vice president seized on reports in which John Kelly, a former chief of staff to Donald J. Trump, recounted explosive comments by Mr. Trump and said he met the definition of a “fascist.”`\
+https://nytimes.com/2024/10/23/us/politics/harris-kelly-trump.html
+
 **Send in the Juggalos: Harris Gets a Little Help From Insane Clown Posse**\
 `Endorsements, how do they work?`\
 https://nytimes.com/2024/10/23/us/politics/harris-insane-clown-posse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5863720/2024/10/23/nba-wnba-cards-caitlin-clark-wem
 **Digital Tags Come to Kroger and Walmart, but Chains Deny ‘Surge Pricing’**\
 `Some members of Congress have expressed concerns that stores will monitor customers and raise prices. Business experts say the tech has not raised customers’ grocery bills.`\
 https://nytimes.com/2024/10/23/business/kroger-walmart-facial-recognition-prices.html
-
-**Heat Today: Pat Riley to be honored as Miami opens season against Magic, eyes contention**\
-`Welcome to the first edition of our up-close Heat coverage, beginning with a preview of Wednesday's opener against the Magic.`\
-https://nytimes.com/athletic/5866375/2024/10/23/heat-today-miami-magic-preview/
-
-**Djokovic will not defend Paris Masters title**\
-`The world No. 4 will drop 1000 ranking points as a result.`\
-https://nytimes.com/athletic/5861013/2024/10/23/djokovic-paris-masters-atp-tour-finals/
 
