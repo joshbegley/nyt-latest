@@ -1,3 +1,15 @@
+**Harris Will Offer Closing Argument at Ellipse in Washington**\
+`The vice president will give a speech on Tuesday at the Ellipse, the park near the White House where Donald Trump encouraged supporters to march on the Capitol on Jan. 6, 2021.`\
+https://nytimes.com/2024/10/23/us/politics/harris-speech-washington-ellipse.html
+
+**Tulsi Gabbard’s Hazy Case for Trump as a Man of Peace**\
+`How would Trump end the wars in Europe and the Middle East? No one really knows.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/tulsi-gabbard-trump-peace
+
+**Packers bring Robert Saleh, former Jets coach, into practice**\
+`The Jets fired Saleh earlier this month after starting this season 2-3.`\
+https://nytimes.com/athletic/5867943/2024/10/23/robert-saleh-matt-lafleur-packers-jets/
+
 **Harris Sharpens her Message on Trump**\
 `Also, the U.S. said North Korea sent troops to aid Russia. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/23/briefing/harris-trump-campaign-attacks-north-korea-troops.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/23/briefing/us-election-world-north-korea.html
 **The Briefing: Manchester City 5 Sparta Prague 0 - Haaland's stunner and Guardiola's corner tweak**\
 `All the key moments and talking points from Pep Guardiola's team's victory in the Champions League analysed `\
 https://nytimes.com/athletic/5859926/2024/10/23/manchester-city-champions-league-haaland-briefing/
-
-**At Putin-Hosted Summit, One Guest Stood Out: Erdogan**\
-`President Vladimir V. Putin, hoping to prove he is not the pariah that the West has tried to make him, this week welcomed leaders from China, India and Iran, among other nations. Then, there was the NATO member.`\
-https://nytimes.com/2024/10/23/world/europe/putin-brics-summit-russia-nato-turkey.html
-
-**Man Charged in Attempted Trump Assassination Seeks Judge’s Recusal**\
-`Lawyers for Ryan Routh want Judge Aileen Cannon to remove herself from the case after a report that her name was among those who could be appointed to a top legal position if Donald Trump is elected.`\
-https://nytimes.com/2024/10/23/us/politics/trump-assassination-attempt-judge.html
-
-**Ron Ely, Who Played an Updated Tarzan in the 1960s, Dies at 86**\
-`He later built a career as a reliable TV guest star. His life turned tragic in 2019 when his son killed Mr. Ely’s wife and was then shot to death by the police.`\
-https://nytimes.com/2024/10/23/arts/television/ron-ely-dead.html
 

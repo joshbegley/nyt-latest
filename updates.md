@@ -1,3 +1,15 @@
+**Harris Will Offer Closing Argument at Ellipse in Washington**\
+`The vice president will give a speech on Tuesday at the Ellipse, the park near the White House where Donald Trump encouraged supporters to march on the Capitol on Jan. 6, 2021.`\
+https://nytimes.com/2024/10/23/us/politics/harris-speech-washington-ellipse.html
+
+**Tulsi Gabbard’s Hazy Case for Trump as a Man of Peace**\
+`How would Trump end the wars in Europe and the Middle East? No one really knows.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/tulsi-gabbard-trump-peace
+
+**Packers bring Robert Saleh, former Jets coach, into practice**\
+`The Jets fired Saleh earlier this month after starting this season 2-3.`\
+https://nytimes.com/athletic/5867943/2024/10/23/robert-saleh-matt-lafleur-packers-jets/
+
 **Harris Sharpens her Message on Trump**\
 `Also, the U.S. said North Korea sent troops to aid Russia. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/23/briefing/harris-trump-campaign-attacks-north-korea-troops.html
