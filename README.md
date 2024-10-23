@@ -1,3 +1,7 @@
+**In JJ Redick's debut, Lakers show their potential to contend: 'We trust him'**\
+`Anthony Davis thrived in his role as offensive hub, and LA's shot selection and ball security were highlights in the win over Minnesota.  `\
+https://nytimes.com/athletic/5865764/2024/10/23/lakers-jj-redick-opener/
+
 **Boeing’s New C.E.O. Calls for ‘Culture Change’ as Strike Vote Looms**\
 `As Kelly Ortberg presented his strategic vision, more than 33,000 striking employees of the aerospace manufacturer were expected to vote on a new contract.`\
 https://nytimes.com/2024/10/23/business/boeing-earnings-strike-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/world/middleeast/mideast-war-israel-iran-attack.h
 **Mirtle: Maple Leafs are close to re-signing Jake McCabe. But what's the right number?**\
 `McCabe and Ekman-Larsson have formed a surprisingly solid second pairing for the Leafs, even with McCabe on his off side.`\
 https://nytimes.com/athletic/5864757/2024/10/23/maple-leafs-jake-mccabe-extension/
-
-**‘Franklinland’ Review: A Founding Father, but Not the Best Dad**\
-`Lloyd Suh’s nimble period comedy about Benjamin Franklin examines a timeless struggle: the unmet expectations that divide parents and children.`\
-https://nytimes.com/2024/10/23/theater/franklinland-review.html
 
