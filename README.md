@@ -1,3 +1,7 @@
+**Austin says U.S. has yet to see evidence of Hezbollah bunker under Beirut hospital.**\
+`By Aaron Boxerman and Eric Schmitt`\
+https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/austin-says-us-has-yet-to-see-evidence-of-hezbollah-bunker-under-beirut-hospital
+
 **Aid agencies postpone polio vaccinations in northern Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/aid-agencies-postpone-polio-vaccinations-in-northern-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866206/2024/10/23/manchester-united-mourinho-europ
 **Broncos mailbag: Submit your questions to beat writer Nick Kosmider**\
 `Let us know what Broncos questions are on your mind.`\
 https://nytimes.com/athletic/5866333/2024/10/23/broncos-mailbag-questions-week-8/
-
-**Why the Canucks' offensive outburst in Chicago felt like progress**\
-`Vancouver's six goals on Tuesday were marvels of skill, persistence and team-level passing, and showed improvement from last season.`\
-https://nytimes.com/athletic/5862738/2024/10/23/canucks-blackhawks-win/
 
