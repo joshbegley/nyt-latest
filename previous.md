@@ -1,3 +1,11 @@
+**'About time': Kaprizov, Zuccarello seemingly switch roles for the surging Wild**\
+`The Wild's three-time 40-goal scorer and premier playmaker are lighting up the net. Just not in the ways you might expect.`\
+https://nytimes.com/athletic/5865478/2024/10/22/wild-kaprizov-zuccarello-offense-roles-panthers/
+
+**Red Wings overcoming quiet offense for 3-3 start: 3 takeaways**\
+`The Red Wings overcame a lopsided shot counter to beat the Islanders, and while they'll take it, they'll need to generate more offense.`\
+https://nytimes.com/athletic/5865337/2024/10/22/red-wings-islanders-takeaways/
+
 **Maple Leafs report cards: Defensive mistakes define ugly loss to Blue Jackets**\
 `The Leafs served up a dismal effort against one of the worst teams in the league in a 6-2 road loss.`\
 https://nytimes.com/athletic/5865437/2024/10/22/maple-leafs-report-cards-defensive-mistakes-columbus/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5865101/2024/10/22/rams-puka-nacua-practice-window-
 **Yelp Disables Comments for McDonald’s Where Trump Donned Apron**\
 `The consumer review site temporarily disabled comments on the franchise’s page after the former president’s appearance prompted a flurry of reviews.`\
 https://nytimes.com/2024/10/22/us/yelp-mcdonalds-trump-reviews.html
-
-**Wild spank defending Stanley Cup champs amid best start in 16 years: 4 takeaways**\
-`The Wild extended their point streak to six games while beating the reigning champion Panthers 5-1 in their own barn.`\
-https://nytimes.com/athletic/5864935/2024/10/22/wild-best-start-in-16-years-panthers/
-
-**Submit your questions for The Athletic's Big Ten football mailbag**\
-`As the race to the postseason picks up, submit your Big Ten football questions here.`\
-https://nytimes.com/athletic/5861140/2024/10/22/submit-your-questions-for-the-athletics-big-ten-football-mailbag-2/
 
