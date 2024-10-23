@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5865845/2024/10/23/celtics-win-opener-against-kinicks/
 
 **Here are the latest developments.**\
-`By Victoria Kim and Michael Crowley`\
+`By Victoria Kim, Michael Crowley and Gabby Sobelman`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
 
 **Live Updates: Hezbollah Targets Tel Aviv Area With More Strikes**\
