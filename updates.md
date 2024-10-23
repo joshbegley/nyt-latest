@@ -1,3 +1,11 @@
+**Andy Dalton sitting after car accident, Bryce Young to start**\
+`Dalton has completed 66.3 percent of his passes for 989 yards and seven touchdowns against six interceptions this season.`\
+https://nytimes.com/athletic/5865107/2024/10/23/andy-dalton-panthers-bryce-young-car-accident/
+
+**Harris? Trump? Vance? Walz? It’s Campaign Quiz Time.**\
+`Time for your pre-election quiz.`\
+https://nytimes.com/interactive/2024/10/23/opinion/harris-trump-election-quiz.html
+
 **Trump’s Allies Revive Voting Machine Conspiracy Theories With a Blitz of Lawsuits**\
 `The former president and his closest allies are returning to debunked claims about hacked machines as they prepare to contest the vote next month.`\
 https://nytimes.com/2024/10/23/us/politics/trumps-allies-revive-voting-machine-conspiracy-theories-with-a-blitz-of-lawsuits.html
