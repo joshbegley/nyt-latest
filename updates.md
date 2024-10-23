@@ -1,3 +1,7 @@
+**Bond set for ex-Penn State football players charged with rape, other sex crimes**\
+`A preliminary hearing for both Lyons and Keys has been scheduled for Oct. 30 at 8:30 a.m. ET.`\
+https://nytimes.com/athletic/5867127/2024/10/23/penn-state-rape-charges-bond-lyons-keys/
+
 **In New York, the Strongmen Step Outside**\
 `A new generation of fitness buffs is prioritizing mutual encouragement in the group workouts that have sprouted up in city playgrounds for years.`\
 https://nytimes.com/2024/10/23/style/outdoor-workouts-nyc-motivational-monday.html

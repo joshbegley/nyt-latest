@@ -1,3 +1,7 @@
+**Bond set for ex-Penn State football players charged with rape, other sex crimes**\
+`A preliminary hearing for both Lyons and Keys has been scheduled for Oct. 30 at 8:30 a.m. ET.`\
+https://nytimes.com/athletic/5867127/2024/10/23/penn-state-rape-charges-bond-lyons-keys/
+
 **In New York, the Strongmen Step Outside**\
 `A new generation of fitness buffs is prioritizing mutual encouragement in the group workouts that have sprouted up in city playgrounds for years.`\
 https://nytimes.com/2024/10/23/style/outdoor-workouts-nyc-motivational-monday.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/10/23/t-magazine/fashion/beauty-makeup-ideas
 **Lawsuit Accusing Roman Polanski of 1973 Rape Is Settled**\
 `The suit accused Mr. Polanski of giving a minor alcohol before sexually assaulting her. A lawyer for the director said on Wednesday that the case was settled over the summer but gave no details.`\
 https://nytimes.com/2024/10/23/arts/roman-polanski-rape-lawsuit-settlement.html
-
-**Bryce Young to start after Andy Dalton car accident**\
-`Dalton has completed 66.3 percent of his passes for 989 yards and seven touchdowns against six interceptions this season.`\
-https://nytimes.com/athletic/5865107/2024/10/23/andy-dalton-panthers-bryce-young-car-accident/
 
