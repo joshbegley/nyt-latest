@@ -1,3 +1,19 @@
+**Aston Villa earn the right to dream as Unai Emery takes the Champions League by storm**\
+`Villa became the third side to win their first three games without conceding since the rebranding of Europe's elite club competition in 1992`\
+https://nytimes.com/athletic/5864793/2024/10/23/aston-villas-unai-emery-champions-league/
+
+**Martinelli, a game-defining moment and a longer-term trend**\
+`The Brazil winger has been steadily improving over the past month, just as Leandro Trossard has been struggling to hit top form`\
+https://nytimes.com/athletic/5865175/2024/10/23/gabriel-martinelli-arsenal-shakhtar/
+
+**Shares in Operator of Tokyo’s Subways Soar in First Day of Trading**\
+`Tokyo Metro had raised over $2 billion in one of Japan’s largest initial public offerings in years.`\
+https://nytimes.com/2024/10/23/business/tokyo-metro-shares.html
+
+**Leeds 2 Watford 1: Farke finds his 'James Bond' in Tanaka, show of grit, Ramazani worry**\
+`Leeds moved to second with a deserved - and hard-fought - win over Watford. Nancy Froston analyses the talking points`\
+https://nytimes.com/athletic/5864536/2024/10/23/leeds-watford-farke-tanaka-ramazani/
+
 **Arsenal Today: A win (but at a cost?), Zinchenko's gesture - and pizza to come**\
 `Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
 https://nytimes.com/athletic/5864875/2024/10/23/arsenal-today-october-23/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/23/world/asia/thailand-tak-bai-massacre.html
 **Ohtani's 50th HR ball sells for record-setting $4.392 million**\
 `Dodgers star Shohei Ohtani is the first major leaguer to record 50 home runs and 50 stolen bases in the same season.`\
 https://nytimes.com/athletic/5865172/2024/10/23/shohei-ohtani-50-50-ball-auction-record/
-
-**Bilal El Khannouss: A Leicester City slow burner**\
-`Genk products have shone in the Premier League before and some of El Khannouss's ex-colleagues are tipping him to be a success in England`\
-https://nytimes.com/athletic/5862855/2024/10/23/bilal-el-khannouss-leicester-city-genk/
-
-**Does Lisandro Martinez at left-back work as more than a short-term fix for Manchester United?**\
-`With Shaw and Malacia still sidelined, Martinez appears to be United's best emergency option. He could even make the spot his own`\
-https://nytimes.com/athletic/5849741/2024/10/23/lisandro-martinez-manchester-united-left-back/
-
-**The Dominic Calvert-Lewin dilemma**\
-`The Everton striker remains absolutely crucial to Sean Dyche's setup - but is missing more chances than he should. He sparks fierce debate`\
-https://nytimes.com/athletic/5863041/2024/10/23/everton-and-the-dominic-calvert-lewin-dilemma/
-
-**This is Summerville's chance to shine. Can he make an impact?**\
-`With Mohammed Kudus suspended, the 22-year-old has the chance to show why West Ham's attack will be far richer with him in it`\
-https://nytimes.com/athletic/5860021/2024/10/23/crysencio-summerville-west-ham/
 
