@@ -1,3 +1,11 @@
+**Why teams held the line at the extension deadline, and which clubs made out best**\
+`A few teams discovered their spines and stuck to their guns at Monday’s deadline for rookie contract extensions.`\
+https://nytimes.com/athletic/5864628/2024/10/23/nba-contract-extension-deadline-deals/
+
+**Rodrygo out of El Clasico with right leg injury**\
+`Real Madrid forward Rodrygo will miss Saturday&#8217;s El Clasico against Barcelona with a right leg injury.`\
+https://nytimes.com/athletic/5865974/2024/10/23/rodrygo-injury-real-madrid-barcelona-clasico/
+
 **Tennis needs video review - but beware the VAR effect of football**\
 `Tennis has been slow to adopt video review, but its use at the U.S. Open also revealed the technology's insurmountable flaws`\
 https://nytimes.com/athletic/5738049/2024/10/23/tennis-video-review-var-football/
