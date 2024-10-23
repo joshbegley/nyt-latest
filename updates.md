@@ -1,3 +1,7 @@
+**Trump’s Attacks Again Turn Nasty in Campaign’s Waning Days**\
+`Donald Trump is escalating his attacks against Kamala Harris, turning more personal and derogatory, a pattern from his campaigns in 2016 and 2020.`\
+https://nytimes.com/2024/10/22/us/politics/trump-harris-attacks-personal.html
+
 **Dodgers legend Fernando Valenzuela dies at 63**\
 `As a 20-year-old, Valenzuela won the Rookie of the Year and Cy Young awards and created 'Fernandomania' en route to a World Series title.`\
 https://nytimes.com/athletic/5808180/2024/10/22/fernando-valenzuela-dead-mlb-dodgers/
