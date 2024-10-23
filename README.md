@@ -1,3 +1,23 @@
+**Why Is Israel Poised to Attack Iran?**\
+`The two countries have been fighting a shadow war for years. But direct attacks are bringing direct reprisals, or at least plans for them.`\
+https://nytimes.com/2024/10/23/world/middleeast/mideast-war-israel-iran-attack.html
+
+**‘Franklinland’ Review: A Founding Father, but Not the Best Dad**\
+`Lloyd Suh’s nimble period comedy about Benjamin Franklin examines a timeless struggle: the unmet expectations that divide parents and children.`\
+https://nytimes.com/2024/10/23/theater/franklinland-review.html
+
+**‘Family Pack’ Review: Trapped in a Game**\
+`The beauty of a game of Werewolf lies in the treachery. In this film adaptation, the director focuses on mild comedy and tedious action instead.`\
+https://nytimes.com/2024/10/23/movies/family-pack-review.html
+
+**Threats to a Fair Election**\
+`We explain the risks to voting in November.`\
+https://nytimes.com/2024/10/23/briefing/threats-to-a-fair-election.html
+
+**U.S. Says North Korean Troops Are in Russia, Calling It ‘Very Serious’**\
+`What the soldiers are doing is “left to be seen,” the U.S. defense secretary said.`\
+https://nytimes.com/2024/10/23/us/politics/north-korea-russia-military-ukraine.html
+
 **Courtois to miss El Clasico with groin injury**\
 `Real Madrid goalkeeper Thibaut Courtois is set to miss around two weeks of action with a groin injury.`\
 https://nytimes.com/athletic/5866063/2024/10/23/thibaut-courtois-injury-real-madrid-clasico/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5859352/2024/10/23/sixers-tyrese-maxey-development-
 **Hashim Safieddine is the latest Hezbollah leader Israel says it has killed.**\
 `By Aaron Boxerman and Lauren Leatherby`\
 https://nytimes.com/live/2024/10/23/world/israel-iran-lebanon-hezbollah/hashim-safieddine-is-the-latest-hezbollah-leader-israel-says-it-has-killed
-
-**What to expect from Rockets, Grizzlies and Spurs in the 2024-25 NBA season**\
-`The NBA season is finally underway and here's what to look for when play gets going in the Southwest Division. `\
-https://nytimes.com/athletic/5864497/2024/10/23/rockets-grizzlies-spurs-nba-2024-25-season/
-
-**American Airlines Fined $50 Million for Treatment of Passengers Using Wheelchairs**\
-`The Transportation Department issued the fine after an investigation revealed “cases of unsafe physical assistance that at times resulted in injuries and undignified treatment of wheelchair users.”`\
-https://nytimes.com/2024/10/23/travel/american-airlines-fined-wheelchairs.html
-
-**From expected goals to long throws, The Athletic's 2024 alternative MLS awards**\
-`The Athletic dives deep into the data to give praise to players that won't be recognized by year end awards, but deserve kudos`\
-https://nytimes.com/athletic/5862012/2024/10/23/the-athletics-2024-alternative-mls-awards-expected-goals-performers-long-throws-and-more/
-
-**NBA Reliability Tiers: Paul George, Karl-Anthony Towns and can Ja Morant get back to All-Stardom?**\
-`Players in this tier have been top options and could be eyeing an All-NBA appearance in 2025. That is if they can be available enough. `\
-https://nytimes.com/athletic/5852512/2024/10/23/nba-paul-george-karl-anthony-towns-ja-morant/
-
-**Meet the 60-year-old mother of two breaking down doors for female coaches in the NFL**\
-`Lori Locust has taken a long and winding road to coaching success in the NFL, and she has earned it.`\
-https://nytimes.com/athletic/5854495/2024/10/23/lori-locust-titans-nfl-women-coaches-changemakers/
 
