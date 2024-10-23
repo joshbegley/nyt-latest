@@ -1,3 +1,7 @@
+**Send in the Juggalos: Harris Gets a Little Help From Insane Clown Posse**\
+`Endorsements, how do they work?`\
+https://nytimes.com/2024/10/23/us/politics/harris-insane-clown-posse.html
+
 **A Feathered Murder Mystery at 10,000 Feet**\
 `Scientists say they have observed one of the highest-altitude acts of bird predation ever recorded.`\
 https://nytimes.com/2024/10/23/science/birds-migration-10000-feet-predator.html
