@@ -1,3 +1,7 @@
+**'I'm a part of history:' Inside the Celtics' ring ceremony as they lift Banner 18**\
+`The Celtics' ring ceremony was full of franchise legends and spectacle. The players opened up on what it meant to them.`\
+https://nytimes.com/athletic/5865675/2024/10/23/celtics-ring-ceremony-banner-18/
+
 **This Country Turned Against the West, and It’s Not Coming Back**\
 `The romance between Georgia and the West is on the rocks.`\
 https://nytimes.com/2024/10/23/opinion/georgia-election-europe-west.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5865406/2024/10/23/blackhawks-same-old-story-canuck
 **Klopp, Red Bull and the origins of an unlikely love affair**\
 `A meeting with energy drink firm's co-founder in the Swiss Alps helped set Klopp on the road to his new role`\
 https://nytimes.com/athletic/5863357/2024/10/23/jurgen-klopp-red-bull-origins/
-
-**Amanda Staveley and Tottenham Hotspur - what we're hearing**\
-`Spurs are searching for investment, and Staveley has been looking for a new project since she left Newcastle - could the stars align?`\
-https://nytimes.com/athletic/5863490/2024/10/23/staveley-spurs/
 
