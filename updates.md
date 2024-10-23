@@ -1,3 +1,7 @@
+**In New York, the Strongmen Step Outside**\
+`A new generation of fitness buffs is prioritizing mutual encouragement in the group workouts that have sprouted up in city playgrounds for years.`\
+https://nytimes.com/2024/10/23/style/outdoor-workouts-nyc-motivational-monday.html
+
 **Mets takeaways from David Stearns' end-of-season news conference**\
 `Stearns said of the Mets financial flexibility: 'I envision us taking advantage of that opportunity and being aggressive in certain spaces.'`\
 https://nytimes.com/athletic/5867337/2024/10/23/mets-david-stearns-offseason-free-agency/
