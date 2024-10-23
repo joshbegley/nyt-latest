@@ -1,3 +1,7 @@
+**Teenagers Tell Us About Their Relationship With News**\
+`Nearly 400 students told us where they get it, how they navigate it — and why they think adults are more likely to fall for misinformation than they are.`\
+https://nytimes.com/2024/10/23/learning/teenagers-tell-us-about-their-relationship-with-news.html
+
 **The Kind of Moms Who Fall for ‘Make America Healthy Again’**\
 `They don’t trust the medical system, and they need understanding — not mockery.`\
 https://nytimes.com/2024/10/23/opinion/vaccines-rfk-mom.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864117/2024/10/23/eagles-offense-saquon-barkley-ja
 **Why Some Outspoken C.E.O.s are Staying Silent About Backing Harris**\
 `Jamie Dimon and Bill Gates are quietly supporting the vice president rather than issuing a public endorsement, a sign of how polarized politics has become.`\
 https://nytimes.com/2024/10/23/business/dealbook/dimon-gates-harris-supporters.html
-
-**Tua Tagovailoa is returning from another concussion — it brings up an uncomfortable feeling**\
-`On the “Scoop City” podcast, a discussion about the situation from the perspective of a former quarterback and a media veteran.`\
-https://nytimes.com/athletic/5865126/2024/10/23/tua-tagovailoa-return-from-concussion/
 

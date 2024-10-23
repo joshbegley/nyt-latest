@@ -1,3 +1,7 @@
+**Teenagers Tell Us About Their Relationship With News**\
+`Nearly 400 students told us where they get it, how they navigate it — and why they think adults are more likely to fall for misinformation than they are.`\
+https://nytimes.com/2024/10/23/learning/teenagers-tell-us-about-their-relationship-with-news.html
+
 **The Kind of Moms Who Fall for ‘Make America Healthy Again’**\
 `They don’t trust the medical system, and they need understanding — not mockery.`\
 https://nytimes.com/2024/10/23/opinion/vaccines-rfk-mom.html
