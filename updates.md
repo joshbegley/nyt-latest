@@ -1,3 +1,19 @@
+**Thursday Briefing: How the U.S. Election is Viewed Abroad**\
+`Plus, the dark side of A.I. companionship apps.`\
+https://nytimes.com/2024/10/23/briefing/us-election-world-north-korea.html
+
+**The Briefing: Manchester City 5 Sparta Prague 0 - Haaland's stunner and Guardiola's corner tweak**\
+`All the key moments and talking points from Pep Guardiola's team's victory in the Champions League analysed `\
+https://nytimes.com/athletic/5859926/2024/10/23/manchester-city-champions-league-haaland-briefing/
+
+**One of Putin’s Guests Stood Out in the Crowd**\
+`President Vladimir V. Putin, hoping to prove he is not the pariah that the West has tried to make him, this week welcomed leaders from China, India and Iran, among other nations. Then, there was the NATO member.`\
+https://nytimes.com/2024/10/23/world/europe/putin-brics-summit-russia-nato-turkey.html
+
+**Man Charged in Attempted Trump Assassination Seeks Judge’s Recusal**\
+`Lawyers for Ryan Routh want Judge Aileen Cannon to remove herself from the case after a report that her name was among those who could be appointed to a top legal position if Donald Trump is elected.`\
+https://nytimes.com/2024/10/23/us/politics/trump-assassination-attempt-judge.html
+
 **Ron Ely, Who Played an Updated Tarzan in the 1960s, Dies at 86**\
 `He later built a career as a reliable TV guest star. His life turned tragic in 2019 when his son killed Mr. Ely’s wife and was then shot to death by the police.`\
 https://nytimes.com/2024/10/23/arts/television/ron-ely-dead.html
