@@ -1,3 +1,11 @@
+**Canadiens angered by Trouba hit, third line thrives, more: 4 Rangers takeaways**\
+`The Rangers got off to a hot start in Montreal, scoring four goals in the first 11:05 en route to a 7-2 victory.`\
+https://nytimes.com/athletic/5865510/2024/10/22/rangers-trouba-hit-canadiens-third-line/
+
+**How Canucks' third line fuelled blowout victory vs. Blackhawks: 3 takeaways**\
+`Vancouver jumped ahead of Chicago early and set the tone for a comfortable, lopsided 6-3 Canucks victory.`\
+https://nytimes.com/athletic/5865140/2024/10/22/canucks-blackhawks-win-takeaways/
+
 **Changes are coming to Craig Counsell’s Cubs coaching staff: Sources**\
 `After a season in observation mode, Counsell identified where changes could be made.`\
 https://nytimes.com/athletic/5865539/2024/10/22/cubs-craig-counsell-coaching-staff-changes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5865325/2024/10/22/boston-celtics-ring-banner-cerem
 **Bounce Off the Walls, Say**\
 `Are Matthew Stock and Brooke Husic just being diplomatic?`\
 https://nytimes.com/2024/10/22/crosswords/daily-puzzle-2024-10-23.html
-
-**Celtics tie single-game 3-point record in season opener vs. Knicks**\
-`The Milwaukee Bucks set the single-game 3-point record (29) in 2020.`\
-https://nytimes.com/athletic/5865096/2024/10/22/celtics-knicks-3-point-record-results-takeaways/
-
-**Rams open Nacua's practice window after IR stint**\
-`Puka Nacua has been out since being injured in the Rams' Week 1 game against the Lions.`\
-https://nytimes.com/athletic/5865101/2024/10/22/rams-puka-nacua-practice-window-ir/
 
