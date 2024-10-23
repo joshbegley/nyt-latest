@@ -1,3 +1,11 @@
+**Is There a Feud Between Martha Stewart and Ina Garten?**\
+`The lifestyle luminaries, who have been on the publicity circuit, were once close, but in a recent interview, Ms. Stewart doubled down on her contention that Ms. Garten abandoned her during a difficult period.`\
+https://nytimes.com/2024/10/23/style/martha-stewart-ina-garten-feud.html
+
+**Wizards' rebuild in Year 2 will have tough times but now there's a 'sense of purpose'**\
+`What should we expect from the Wizards this season? Lots of losses mixed with belief in a brighter future. `\
+https://nytimes.com/athletic/5868004/2024/10/23/washington-wizards-season-preview-purpose/
+
 **Recovering from pneumonia, 49ers' Deebo Samuel has a chance to face the Cowboys**\
 `The 49ers have two main options to replace Brandon Aiyuk at split end: veteran Chris Conley and rookie Ricky Pearsall. Both spoke Wednesday.`\
 https://nytimes.com/athletic/5868279/2024/10/23/deebo-samuel-pneumonia-49ers-cowboys/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/world/middleeast/israel-tyre-lebanon-blinken.html
 **Will This New U.S. Project Make the World’s Children Smarter?**\
 `Biden takes aim at a neurotoxin all around us that impedes brain development.`\
 https://nytimes.com/2024/10/23/opinion/lead-poisoning-children-smart-science.html
-
-**Why Trump’s Closing Argument Is Full of ‘Locker Room Talk’**\
-`By all appearances, he’s embracing vulgarity to exploit the voter gender gap.`\
-https://nytimes.com/2024/10/23/opinion/donald-trump-arnold-palmer.html
-
-**Person: Andy Dalton is OK. Bryce Young gets another start. Who knows what happens next?**\
-`Dalton sprained the thumb on his throwing hand in a car collision Tuesday. Young steps into the No. 1 role after being benched.`\
-https://nytimes.com/athletic/5868071/2024/10/23/bryce-young-starting-panthers-andy-dalton/
 
