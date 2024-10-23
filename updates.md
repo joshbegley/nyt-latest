@@ -1,3 +1,7 @@
+**L.A. Times Editorial Chief Quits After Owner Blocks Harris Endorsement**\
+`Mariel Garza said the editorial board was prepared to endorse Kamala Harris, but the paper’s owner, Patrick Soon-Shiong, decided not to make an endorsement in the presidential race.`\
+https://nytimes.com/2024/10/23/business/media/la-times-editor-quits-patrick-soon-shiong-endorsement.html
+
 **L. A. Times Editorial Chief Quits After Owner Blocks Harris Endorsement**\
 `Mariel Garza said the editorial board was prepared to endorse Kamala Harris, but the paper’s owner, Patrick Soon-Shiong, decided not to make an endorsement in the presidential race.`\
 https://nytimes.com/2024/10/23/business/media/la-times-editor-quits-patrick-soon-shiong-endorsement.html
