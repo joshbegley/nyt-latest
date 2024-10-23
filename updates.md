@@ -1,3 +1,7 @@
+**This is Summerville's chance to shine. Can he make an impact?**\
+`With Mohammed Kudus suspended, the 22-year-old has the chance to show why West Ham's attack will be far richer with him in it`\
+https://nytimes.com/athletic/5860021/2024/10/23/crysencio-summerville-west-ham/
+
 **Same old story does Blackhawks in against Canucks: Observations**\
 `The Blackhawks struggled to find their footing defensively in a 6-3 loss to the Canucks.`\
 https://nytimes.com/athletic/5865406/2024/10/23/blackhawks-same-old-story-canucks-defense-foligno/
