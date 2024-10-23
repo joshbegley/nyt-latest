@@ -1,3 +1,15 @@
+**Bilal El Khannouss: A Leicester City slow burner**\
+`Genk products have shone in the Premier League before and some of El Khannouss's ex-colleagues are tipping him to be a success in England`\
+https://nytimes.com/athletic/5862855/2024/10/23/bilal-el-khannouss-leicester-city-genk/
+
+**Does Lisandro Martinez at left-back work as more than a short-term fix for Manchester United?**\
+`With Shaw and Malacia still sidelined, Martinez appears to be United's best emergency option. He could even make the spot his own`\
+https://nytimes.com/athletic/5849741/2024/10/23/lisandro-martinez-manchester-united-left-back/
+
+**The Dominic Calvert-Lewin dilemma**\
+`The Everton striker remains absolutely crucial to Sean Dyche's setup - but is missing more chances than he should. He sparks fierce debate`\
+https://nytimes.com/athletic/5863041/2024/10/23/everton-and-the-dominic-calvert-lewin-dilemma/
+
 **This is Summerville's chance to shine. Can he make an impact?**\
 `With Mohammed Kudus suspended, the 22-year-old has the chance to show why West Ham's attack will be far richer with him in it`\
 https://nytimes.com/athletic/5860021/2024/10/23/crysencio-summerville-west-ham/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5863270/2024/10/23/jose-mourinho-fenerbahce-man-uni
 **The cult of 'Cold Palmer' has reached America - can he become a global brand?**\
 `Cole Palmer is one of the Premier League's biggest stars but can the 22-year-old Chelsea and England forward take his name worldwide?`\
 https://nytimes.com/athletic/5850091/2024/10/23/cole-palmer-brand-america-celebration/
-
-**Fernando Valenzuela, Dodgers Pitcher Who Enthralled Fans, Dies at 63**\
-`He won the Rookie of the Year and Cy Young Awards in 1981, when “Fernandomania” made him a household name and filled ballparks.`\
-https://nytimes.com/2024/10/23/sports/fernando-valenzuela-dead.html
-
-**Flick's fast start at Barcelona: Avoiding the 'entorno', discipline, a secret meeting with Xavi**\
-`Flick has galvanised an underachieving Barca squad and revitalised the mood among fans`\
-https://nytimes.com/athletic/5864113/2024/10/23/barcelona-flick-turnaround/
-
-**Wednesday Briefing**\
-`Early voting starts in all seven swing states.`\
-https://nytimes.com/2024/10/23/world/europe/voting-election-blinken-israel-yellen.html
 
