@@ -1,3 +1,7 @@
+**This Canadiens season is a paradox that will require patience that might not exist**\
+`The Canadiens should not get bogged down in one loss, but the modest expectations this team has set don't seem attainable right now.`\
+https://nytimes.com/athletic/5865830/2024/10/23/canadiens-new-york-rangers-loss/
+
 **Gisèle Pelicot Returns to French Court to Testify in Rape Case**\
 `Her husband is accused of inviting strangers to sexually assault her while she was drugged and unconscious. The trial has transformed the way France discusses sexual violence.`\
 https://nytimes.com/2024/10/23/world/europe/gisele-pelicot-france-rape-case.html
