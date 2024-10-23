@@ -1,3 +1,11 @@
+**Maresca: 'A shame' Acheampong out of Chelsea first team amid contract situation**\
+`Enzo Maresca admitted it is “a shame” that highly-rated Cobham graduate Josh Acheampong is not involved in Chelsea’s first-team squad due to the situation around his contract, and added that he hopes a resolution can be found between the defender and the club soon.`\
+https://nytimes.com/athletic/5866890/2024/10/23/acheampong-chelsea-contract-maresca/
+
+**Chiefs trade for DeAndre Hopkins from Titans**\
+`Tennessee would receive a conditional draft pick — a fifth-rounder that could become a fourth — in the deal.`\
+https://nytimes.com/athletic/5866144/2024/10/23/deandre-hopkins-trade-chiefs-titans/
+
 **DeAndre Hopkins trade grades: Chiefs get Patrick Mahomes the help he desperately needed**\
 `The Chiefs probably could have won another title without making a trade, but landing a talent like Hopkins shrinks the margin for error. `\
 https://nytimes.com/athletic/5866413/2024/10/23/deandre-hopkins-trade-grades-chiefs-titans/
