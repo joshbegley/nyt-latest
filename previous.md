@@ -2,7 +2,7 @@
 `Andy Dalton sprained the thumb on his throwing hand in a car collision Tuesday. Bryce Young steps into the No. 1 role after being benched.`\
 https://nytimes.com/athletic/5868071/2024/10/23/bryce-young-starting-panthers-andy-dalton/
 
-**Oilers demote Hyman, Nugent-Hopkins to second power-play unit in search of scoring**\
+**Why the Oilers are experimenting with tweaks to their power-play units**\
 `The Oilers have converted just two power plays this season on 19 opportunities, despite an all-world group with the man advantage.`\
 https://nytimes.com/athletic/5868060/2024/10/23/oilers-power-play-changes-hyman/
 
