@@ -1,3 +1,7 @@
+**Stuffed Into Trucks, 78 Thai Protesters Died. Their Killers Are Still Free.**\
+`Twenty years ago, a massacre in southern Thailand fueled an insurgency that has never stopped. If no one is prosecuted for it by Friday, no one ever will be.`\
+https://nytimes.com/2024/10/23/world/asia/thailand-tak-bai-massacre.html
+
 **Ohtani's 50th HR ball sells for record-setting $4.392 million**\
 `Dodgers star Shohei Ohtani is the first major leaguer to record 50 home runs and 50 stolen bases in the same season.`\
 https://nytimes.com/athletic/5865172/2024/10/23/shohei-ohtani-50-50-ball-auction-record/
