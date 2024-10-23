@@ -1,3 +1,7 @@
+**Dodgers legend Fernando Valenzuela dies at 63**\
+`As a 20-year-old, Valenzuela won the Rookie of the Year and Cy Young awards and created 'Fernandomania' en route to a World Series title.`\
+https://nytimes.com/athletic/5808180/2024/10/22/fernando-valenzuela-dead-mlb-dodgers/
+
 **Canadiens angered by Trouba hit, third line thrives, more: 4 Rangers takeaways**\
 `The Rangers got off to a hot start in Montreal, scoring four goals in the first 11:05 en route to a 7-2 victory.`\
 https://nytimes.com/athletic/5865510/2024/10/22/rangers-trouba-hit-canadiens-third-line/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5865383/2024/10/22/rudy-gobert-contract-extension-t
 **Buckley: Celtics’ 18th championship banner is symbolic in that it's all by itself**\
 `Will the banner help the Celtics repeat as NBA champions? Not one bit. But Tuesday night's ceremony reaffirmed Boston as the place to beat.`\
 https://nytimes.com/athletic/5865325/2024/10/22/boston-celtics-ring-banner-ceremony-knicks/
-
-**Bounce Off the Walls, Say**\
-`Are Matthew Stock and Brooke Husic just being diplomatic?`\
-https://nytimes.com/2024/10/22/crosswords/daily-puzzle-2024-10-23.html
 
