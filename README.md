@@ -1,3 +1,15 @@
+**Digital Tags Come to Kroger and Walmart, but Chains Deny ‘Surge Pricing’**\
+`Some members of Congress have expressed concerns that stores will monitor customers and raise prices. Business experts say the tech has not raised customers’ grocery bills.`\
+https://nytimes.com/2024/10/23/business/kroger-walmart-facial-recognition-prices.html
+
+**Heat Today: Pat Riley to be honored as Miami opens season against Magic, eyes contention**\
+`Welcome to the first edition of our up-close Heat coverage, beginning with a preview of Wednesday's opener against the Magic.`\
+https://nytimes.com/athletic/5866375/2024/10/23/heat-today-miami-magic-preview/
+
+**Djokovic will not defend Paris Masters, ATP Tour Finals participation in doubt**\
+`The world No. 3 will drop 1000 ranking points as a result.`\
+https://nytimes.com/athletic/5861013/2024/10/23/djokovic-paris-masters-atp-tour-finals/
+
 **How Utah H.C. plans to adjust after Sean Durzi, John Marino injuries**\
 `Durzi and Marino underwent surgeries that will sideline them well into the new year, the team announced Wednesday.`\
 https://nytimes.com/athletic/5867133/2024/10/23/utah-nhl-durzi-marino-injuries/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/23/world/europe/manchester-bombing-conspiracy-theori
 **The Legacy of Reagan’s Attack on the Education Department**\
 `Reagan failed, but Trump’s allies are still trying to sabotage public education.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/reagan-trump-education-department
-
-**‘What We Do in the Shadows’ Returns One Last Time**\
-`One of TV’s few great funny ha-ha comedies begins its sixth and final season this week on FX and Hulu.`\
-https://nytimes.com/2024/10/23/arts/television/what-we-do-in-the-shadows.html
-
-**Browns OC Ken Dorsey to take over play-calling duties**\
-`The Browns are the league's only team yet to score 20 points or reach 300 yards in a game.`\
-https://nytimes.com/athletic/5866934/2024/10/23/ken-dorsey-browns-play-calling-kevin-stefanski/
-
-**Arsenal Women make NYCFC's Cushing their primary head coach target**\
-`Arsenal have made New York City FC men’s head coach Nick Cushing their primary target to replace Jonas Eidevall as their new women’s team manager.`\
-https://nytimes.com/athletic/5866289/2024/10/23/nick-cushing-arsenal-women-nycfc/
 
