@@ -1,3 +1,15 @@
+**A Pro-Harris Ad Aims to Onboard Trump Voters**\
+`A new commercial from the biggest super PAC in American politics makes a pitch for Trump-weary Republicans.`\
+https://nytimes.com/2024/10/23/us/politics/a-pro-harris-ad-aims-to-onboard-trump-voters.html
+
+**Teens, What Do You Expect From the 2024 Election?**\
+`The Headway Election Challenge looks to the future, asking teens about their expectations for voter turnout and election results.`\
+https://nytimes.com/2024/10/23/headway/teen-2024-election-expectation.html
+
+**Does Social Media Mean Teens Are Getting Heard? Sort of.**\
+`Teen respondents to the Headway Election Challenge said being represented in politics goes beyond identity — it’s rooted in the issues that affect their lives.`\
+https://nytimes.com/2024/10/23/headway/teens-2024-election-social-media-representation-answers.html
+
 **Joe Buck on the call that presaged Chris Godwin's injury: 'You kind of feel sick'**\
 `On "Monday Night Football," Joe Buck had a bad feeling about the Buccaneers pushing for a rally. Moments later, Chris Godwin was injured.`\
 https://nytimes.com/athletic/5867422/2024/10/23/chris-godwin-joe-buck-injury-call/
@@ -10,7 +22,7 @@ https://nytimes.com/2024/10/23/briefing/us-election-world-north-korea.html
 `All the key moments and talking points from Pep Guardiola's team's victory in the Champions League analysed `\
 https://nytimes.com/athletic/5859926/2024/10/23/manchester-city-champions-league-haaland-briefing/
 
-**One of Putin’s Guests Stood Out in the Crowd**\
+**At Putin-Hosted Summit, One Guest Stood Out: Erdogan**\
 `President Vladimir V. Putin, hoping to prove he is not the pariah that the West has tried to make him, this week welcomed leaders from China, India and Iran, among other nations. Then, there was the NATO member.`\
 https://nytimes.com/2024/10/23/world/europe/putin-brics-summit-russia-nato-turkey.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/23/arts/television/ron-ely-dead.html
 **The Briefing: Barcelona 4 Bayern Munich 1 - Raphinha hat-trick gives Hansi Flick a triumphant night against his former club**\
 `We analyse the key talking points from one of the most enticing matches from the initial stage of this season's Champions League`\
 https://nytimes.com/athletic/5859924/2024/10/23/barcelona-bayern-munich-result-analysis/
-
-**The Briefing: RB Leipzig 0 Liverpool 1 - Rampaging Nunez, Liverpool go three from three and Leipzig stutter**\
-`Andy Jones and Seb Stafford-Bloor break down the main talking points from Liverpool's 1-0 win over RB Leipzig in the Champions League`\
-https://nytimes.com/athletic/5859927/2024/10/23/rb-leipzig-0-liverpool-1-nunez-lukeba-kelleher/
-
-**M.T.A. Promotes New Subway Boss After 27 Years of Service**\
-`Demetrius Crichlow, who had been serving as the interim president of New York City Transit since the summer, has been given the job permanently.`\
-https://nytimes.com/2024/10/23/nyregion/mta-subway-crichlow.html
-
-**Israel Accuses 6 Al Jazeera Reporters of Belonging to Militant Groups**\
-`The news organization strongly denied the accusations, which it said were based on “fabricated evidence” and followed a long history of Israeli hostility toward the network.`\
-https://nytimes.com/2024/10/23/world/middleeast/al-jazeera-journalists-hamas-pij.html
 

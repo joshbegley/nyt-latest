@@ -1,3 +1,19 @@
+**A Pro-Harris Ad Aims to Onboard Trump Voters**\
+`A new commercial from the biggest super PAC in American politics makes a pitch for Trump-weary Republicans.`\
+https://nytimes.com/2024/10/23/us/politics/a-pro-harris-ad-aims-to-onboard-trump-voters.html
+
+**Teens, What Do You Expect From the 2024 Election?**\
+`The Headway Election Challenge looks to the future, asking teens about their expectations for voter turnout and election results.`\
+https://nytimes.com/2024/10/23/headway/teen-2024-election-expectation.html
+
+**Does Social Media Mean Teens Are Getting Heard? Sort of.**\
+`Teen respondents to the Headway Election Challenge said being represented in politics goes beyond identity — it’s rooted in the issues that affect their lives.`\
+https://nytimes.com/2024/10/23/headway/teens-2024-election-social-media-representation-answers.html
+
+**At Putin-Hosted Summit, One Guest Stood Out: Erdogan**\
+`President Vladimir V. Putin, hoping to prove he is not the pariah that the West has tried to make him, this week welcomed leaders from China, India and Iran, among other nations. Then, there was the NATO member.`\
+https://nytimes.com/2024/10/23/world/europe/putin-brics-summit-russia-nato-turkey.html
+
 **Joe Buck on the call that presaged Chris Godwin's injury: 'You kind of feel sick'**\
 `On "Monday Night Football," Joe Buck had a bad feeling about the Buccaneers pushing for a rally. Moments later, Chris Godwin was injured.`\
 https://nytimes.com/athletic/5867422/2024/10/23/chris-godwin-joe-buck-injury-call/
