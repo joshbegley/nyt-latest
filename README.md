@@ -1,3 +1,7 @@
+**Changes are coming to Craig Counsell’s Cubs coaching staff: Sources**\
+`After a season in observation mode, Counsell identified where changes could be made.`\
+https://nytimes.com/athletic/5865539/2024/10/22/cubs-craig-counsell-coaching-staff-changes/
+
 **'About time': Kaprizov, Zuccarello seemingly switch roles for the surging Wild**\
 `The Wild's three-time 40-goal scorer and premier playmaker are lighting up the net. Just not in the ways you might expect.`\
 https://nytimes.com/athletic/5865478/2024/10/22/wild-kaprizov-zuccarello-offense-roles-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5865096/2024/10/22/celtics-knicks-3-point-record-re
 **Rams open Nacua's practice window after IR stint**\
 `Puka Nacua has been out since being injured in the Rams' Week 1 game against the Lions.`\
 https://nytimes.com/athletic/5865101/2024/10/22/rams-puka-nacua-practice-window-ir/
-
-**Yelp Disables Comments for McDonald’s Where Trump Donned Apron**\
-`The consumer review site temporarily disabled comments on the franchise’s page after the former president’s appearance prompted a flurry of reviews.`\
-https://nytimes.com/2024/10/22/us/yelp-mcdonalds-trump-reviews.html
 
