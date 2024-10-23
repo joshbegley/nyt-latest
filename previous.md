@@ -1,3 +1,7 @@
+**From Grimace to grins: Counting down the 24 wildest moments for the 2024 Mets**\
+`Francisco Lindor, Pete Alonso and Luis Severino make this list, as do Seymour Weiner, bad cleats and a fainting outfielder.`\
+https://nytimes.com/athletic/5865118/2024/10/23/mets-season-in-review-countdown/
+
 **What Have You Seen Online Lately That Could Use Some Fact-Checking?**\
 `This Media Literacy Week, we challenge you to choose a news item that interests you — whether in politics, sports, entertainment or any other category — and find out how accurate it is.`\
 https://nytimes.com/2024/10/23/learning/what-have-you-seen-online-lately-that-could-use-some-fact-checking.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/world/asia/modi-xi-putin-brics.html
 **Binance Employee, in Custody for 8 Months in Nigeria, Will Be Released**\
 `Prosecutors have dropped the criminal case against Tigran Gambaryan so he can receive medical care, a government spokesman said.`\
 https://nytimes.com/2024/10/23/business/nigeria-binance-cryptocurrency-money-laundering.html
-
-**The gambles, perils, payoffs (and fullback) within the Eagles' offensive identity**\
-`The film shows Eagles quarterback Jalen Hurts favors one-on-one matchups.`\
-https://nytimes.com/athletic/5864117/2024/10/23/eagles-offense-saquon-barkley-jalen-hurts/
 

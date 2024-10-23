@@ -1,3 +1,7 @@
+**From Grimace to grins: Counting down the 24 wildest moments for the 2024 Mets**\
+`Francisco Lindor, Pete Alonso and Luis Severino make this list, as do Seymour Weiner, bad cleats and a fainting outfielder.`\
+https://nytimes.com/athletic/5865118/2024/10/23/mets-season-in-review-countdown/
+
 **Teenagers Tell Us About Their Relationship With News**\
 `Nearly 400 students wrote about where they get it, how they navigate it — and why they think adults are more likely to fall for misinformation than they are.`\
 https://nytimes.com/2024/10/23/learning/teenagers-tell-us-about-their-relationship-with-news.html
