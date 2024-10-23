@@ -1,3 +1,7 @@
+**The Vikings will be buyers at the trade deadline, but how hard should they swing?**\
+`The Vikings have built a team that has proven to be not just competitive, but one of the league's best. Can they make it even better? `\
+https://nytimes.com/athletic/5864714/2024/10/23/vikings-trade-deadline-positions/
+
 **Former OpenAI Researcher Says the Company Broke Copyright Law**\
 `Suchir Balaji helped gather and organize the enormous amounts of internet data used to train the startup’s ChatGPT chatbot.`\
 https://nytimes.com/2024/10/23/technology/openai-copyright-law.html
