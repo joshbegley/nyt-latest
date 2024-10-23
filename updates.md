@@ -1,3 +1,7 @@
+**Blues place Robert Thomas on IR with fractured ankle**\
+`The team said Thomas will be re-evaluated in six weeks.`\
+https://nytimes.com/athletic/5867066/2024/10/23/blues-robert-thomas-injury/
+
 **Manchester Arena Bombing Survivors Win Lawsuit Against Conspiracy Theorist**\
 `A U.K. court found that a conspiracy theorist who claimed the 2017 bombing at an Ariana Grande concert was a hoax had harassed victims and abused media freedom.`\
 https://nytimes.com/2024/10/23/world/europe/manchester-bombing-conspiracy-theorist-lawsuit-verdict.html
