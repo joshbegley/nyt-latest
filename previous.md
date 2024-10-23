@@ -1,3 +1,7 @@
+**Rueter: Fans connect the Red Stars to Chicago, not the brand**\
+`Jeff Rueter writes that it's the Red Stars fans, not the brand, that connect the team to Chicago`\
+https://nytimes.com/athletic/5868028/2024/10/23/chicago-red-stars-rebrand-fans/
+
 **How the 2024 Election Became a Battle Fought by Podcast**\
 `Harris and Trump turn to digital venues with niche audiences to sway tiny slivers of the electorate.`\
 https://nytimes.com/2024/10/23/us/politics/harris-trump-podcasts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5867574/2024/10/23/champions-league-raphinha-barcel
 **Attention, Passengers: Someone Is Skipping the Line at Your Gate**\
 `American Airlines is testing a technology platform that will produce a sound when a passenger attempts to board a flight ahead of the assigned group.`\
 https://nytimes.com/2024/10/23/business/american-airlines-line-cutters.html
-
-**Slot 'proud' of record-breaking Liverpool start**\
-`Arne Slot says he’s proud of Liverpool’s record-breaking start to his reign — but insists winning trophies is what really matters to him.`\
-https://nytimes.com/athletic/5868006/2024/10/23/arne-slot-liverpool-start/
 

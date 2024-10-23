@@ -1,3 +1,7 @@
+**Rueter: Fans connect the Red Stars to Chicago, not the brand**\
+`Jeff Rueter writes that it's the Red Stars fans, not the brand, that connect the team to Chicago`\
+https://nytimes.com/athletic/5868028/2024/10/23/chicago-red-stars-rebrand-fans/
+
 **How the 2024 Election Became a Battle Fought by Podcast**\
 `Harris and Trump turn to digital venues with niche audiences to sway tiny slivers of the electorate.`\
 https://nytimes.com/2024/10/23/us/politics/harris-trump-podcasts.html
