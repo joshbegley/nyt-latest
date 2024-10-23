@@ -1,3 +1,7 @@
+**'I'm a part of history': Inside the Celtics' ring ceremony as they lift Banner 18**\
+`The Celtics' ring ceremony was full of franchise legends and spectacle. The players opened up on what it meant to them.`\
+https://nytimes.com/athletic/5865675/2024/10/23/celtics-ring-ceremony-banner-18/
+
 **Arsenal Today: A win (but at a cost?), Zinchenko's gesture - and pizza to come**\
 `Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
 https://nytimes.com/athletic/5864875/2024/10/23/arsenal-today-october-23/
