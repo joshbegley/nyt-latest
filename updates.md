@@ -1,3 +1,11 @@
+**Southern California Politician Resigns and Agrees to Plead Guilty in Bribery Scheme**\
+`Federal prosecutors said that Andrew Do, an Orange County supervisor, enriched himself and his family with federal pandemic aid meant for seniors.`\
+https://nytimes.com/2024/10/22/us/california-andrew-do-bribery-pandemic-aid.html
+
+**5 Takeaways From Harris’s Interview With NBC News**\
+`The vice president parried persistent questioning on how she might separate herself from President Biden, whether she might pardon Donald Trump and where she stood on transgender rights.`\
+https://nytimes.com/2024/10/22/us/politics/harris-nbc-interview.html
+
 **Saints, Alvin Kamara agree to 2-year, $24.5 million extension**\
 `The new deal will include $22.23 million guaranteed and a $15.5 million signing bonus, according to a team source.`\
 https://nytimes.com/athletic/5865083/2024/10/22/alvin-kamara-saints-extension/
