@@ -1,3 +1,11 @@
+**Binance Employee, in Custody for 8 Months in Nigeria, Will Be Released**\
+`Prosecutors have dropped the criminal case against Tigran Gambaryan so he can receive medical care, a government spokesman said.`\
+https://nytimes.com/2024/10/23/business/nigeria-binance-cryptocurrency-money-laundering.html
+
+**The gambles, perils, payoffs (and fullback) within the Eagles' offensive identity**\
+`The film shows Eagles quarterback Jalen Hurts favors one-on-one matchups.`\
+https://nytimes.com/athletic/5864117/2024/10/23/eagles-offense-saquon-barkley-jalen-hurts/
+
 **Why Some Outspoken C.E.O.s are Staying Silent About Backing Harris**\
 `Jamie Dimon and Bill Gates are quietly supporting the vice president rather than issuing a public endorsement, a sign of how polarized politics has become.`\
 https://nytimes.com/2024/10/23/business/dealbook/dimon-gates-harris-supporters.html
