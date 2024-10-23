@@ -1,3 +1,7 @@
+**Between Knicks and Celtics, the gap is wide. That's OK … for now**\
+`New York and Boston are two different teams in two different stages, and it showed in the season opener.`\
+https://nytimes.com/athletic/5865520/2024/10/23/knicks-celtics-season-opener-nba/
+
 **'I'm a part of history:' Inside the Celtics' ring ceremony as they lift Banner 18**\
 `The Celtics' ring ceremony was full of franchise legends and spectacle. The players opened up on what it meant to them.`\
 https://nytimes.com/athletic/5865675/2024/10/23/celtics-ring-ceremony-banner-18/

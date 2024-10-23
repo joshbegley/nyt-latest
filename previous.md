@@ -1,3 +1,7 @@
+**Between Knicks and Celtics, the gap is wide. That's OK … for now**\
+`New York and Boston are two different teams in two different stages, and it showed in the season opener.`\
+https://nytimes.com/athletic/5865520/2024/10/23/knicks-celtics-season-opener-nba/
+
 **'I'm a part of history:' Inside the Celtics' ring ceremony as they lift Banner 18**\
 `The Celtics' ring ceremony was full of franchise legends and spectacle. The players opened up on what it meant to them.`\
 https://nytimes.com/athletic/5865675/2024/10/23/celtics-ring-ceremony-banner-18/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5860021/2024/10/23/crysencio-summerville-west-ham/
 **Same old story does Blackhawks in against Canucks: Observations**\
 `The Blackhawks struggled to find their footing defensively in a 6-3 loss to the Canucks.`\
 https://nytimes.com/athletic/5865406/2024/10/23/blackhawks-same-old-story-canucks-defense-foligno/
-
-**Klopp, Red Bull and the origins of an unlikely love affair**\
-`A meeting with energy drink firm's co-founder in the Swiss Alps helped set Klopp on the road to his new role`\
-https://nytimes.com/athletic/5863357/2024/10/23/jurgen-klopp-red-bull-origins/
 
