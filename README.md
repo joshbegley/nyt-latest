@@ -1,3 +1,7 @@
+**Champions League briefing: Raphinha matches Vinicius - and what about Haaland's backheel?**\
+`Analysing the key talking points from Wednesday's action - from Raphinha's hat-trick to David mastering Madrid and English clubs flying high`\
+https://nytimes.com/athletic/5867574/2024/10/23/champions-league-raphinha-barcelona-haaland-backheel/
+
 **Attention, Passengers: Someone Is Skipping the Line at Your Gate**\
 `American Airlines is testing a technology platform that will produce a sound when a passenger attempts to board a flight ahead of the assigned group.`\
 https://nytimes.com/2024/10/23/business/american-airlines-line-cutters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/headway/teen-2024-election-expectation.html
 **Does Social Media Mean Teens Are Getting Heard? Sort of.**\
 `Teen respondents to the Headway Election Challenge said being represented in politics goes beyond identity — it’s rooted in the issues that affect their lives.`\
 https://nytimes.com/2024/10/23/headway/teens-2024-election-social-media-representation-answers.html
-
-**Joe Buck on the call that presaged Chris Godwin's injury: 'You kind of feel sick'**\
-`On "Monday Night Football," Joe Buck had a bad feeling about the Buccaneers pushing for a rally. Moments later, Chris Godwin was injured.`\
-https://nytimes.com/athletic/5867422/2024/10/23/chris-godwin-joe-buck-injury-call/
 
