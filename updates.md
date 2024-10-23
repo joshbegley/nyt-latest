@@ -1,3 +1,7 @@
+**What Have You Seen Online Lately That Could Use Some Fact-Checking?**\
+`This Media Literacy Week, we challenge you to choose a news item that interests you — whether in politics, sports, entertainment or any other category — and find out how accurate it is.`\
+https://nytimes.com/2024/10/23/learning/what-have-you-seen-online-lately-that-could-use-some-fact-checking.html
+
 **Teenagers Tell Us About Their Relationship With News**\
 `Nearly 400 students told us where they get it, how they navigate it — and why they think adults are more likely to fall for misinformation than they are.`\
 https://nytimes.com/2024/10/23/learning/teenagers-tell-us-about-their-relationship-with-news.html

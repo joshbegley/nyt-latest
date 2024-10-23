@@ -1,3 +1,7 @@
+**What Have You Seen Online Lately That Could Use Some Fact-Checking?**\
+`This Media Literacy Week, we challenge you to choose a news item that interests you — whether in politics, sports, entertainment or any other category — and find out how accurate it is.`\
+https://nytimes.com/2024/10/23/learning/what-have-you-seen-online-lately-that-could-use-some-fact-checking.html
+
 **Teenagers Tell Us About Their Relationship With News**\
 `Nearly 400 students told us where they get it, how they navigate it — and why they think adults are more likely to fall for misinformation than they are.`\
 https://nytimes.com/2024/10/23/learning/teenagers-tell-us-about-their-relationship-with-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/business/nigeria-binance-cryptocurrency-money-lau
 **The gambles, perils, payoffs (and fullback) within the Eagles' offensive identity**\
 `The film shows Eagles quarterback Jalen Hurts favors one-on-one matchups.`\
 https://nytimes.com/athletic/5864117/2024/10/23/eagles-offense-saquon-barkley-jalen-hurts/
-
-**Why Some Outspoken C.E.O.s are Staying Silent About Backing Harris**\
-`Jamie Dimon and Bill Gates are quietly supporting the vice president rather than issuing a public endorsement, a sign of how polarized politics has become.`\
-https://nytimes.com/2024/10/23/business/dealbook/dimon-gates-harris-supporters.html
 
