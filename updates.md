@@ -1,3 +1,7 @@
+**Gisèle Pelicot Returns to French Court to Testify in Rape Case**\
+`Her husband is accused of inviting strangers to sexually assault her while she was drugged and unconscious. The trial has transformed the way France discusses sexual violence.`\
+https://nytimes.com/2024/10/23/world/europe/gisele-pelicot-france-rape-case.html
+
 **Another loss shows Oilers are making insufficient progress at both ends of the rink**\
 `The Oilers couldn't hold onto a two-goal lead entering the third period and lost in overtime to the Hurricanes.`\
 https://nytimes.com/athletic/5865776/2024/10/23/oilers-loss-insufficient-progress-hurricanes/
