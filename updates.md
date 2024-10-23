@@ -1,3 +1,7 @@
+**How Canucks' third line fuelled a blowout victory vs. Blackhawks: 3 takeaways**\
+`Vancouver jumped ahead of Chicago early and set the tone for a comfortable, lopsided 6-3 Canucks victory.`\
+https://nytimes.com/athletic/5865140/2024/10/22/canucks-blackhawks-win-takeaways/
+
 **Trump’s Attacks Again Turn Nasty in Campaign’s Waning Days**\
 `Donald Trump is escalating his attacks against Kamala Harris, turning more personal and derogatory, a pattern from his campaigns in 2016 and 2020.`\
 https://nytimes.com/2024/10/22/us/politics/trump-harris-attacks-personal.html
