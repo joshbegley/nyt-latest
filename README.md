@@ -27,7 +27,7 @@ https://nytimes.com/2024/10/23/sports/julia-hawkins-dead.html
 https://nytimes.com/2024/10/23/us/queens-dash-cam-crash-belt-parkway-insurance.html
 
 **Mystics part with GM Mike Thibault, coach Eric Thibault**\
-`Five of the league’s 12 teams have made coaching changes since the end of the regular season.`\
+`Five of the league’s 12 teams have made coaching changes since the end of the regular season, not including the Golden State expansion team.`\
 https://nytimes.com/athletic/5866722/2024/10/23/mystics-parting-coach-thibault/
 
 **Leeds sign former France international Josuha Guilavogui**\
