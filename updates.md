@@ -1,3 +1,7 @@
+**DeAndre Hopkins trade grades: Chiefs get Patrick Mahomes the help he desperately needed**\
+`The Chiefs probably could have won another title without making a trade, but landing a talent like Hopkins shrinks the margin for error. `\
+https://nytimes.com/athletic/5866413/2024/10/23/deandre-hopkins-trade-grades-chiefs-titans/
+
 **GE Vernova Finds Further Problems With Its Wind Turbine Blades**\
 `The company said other blades had a “manufacturing deviation” similar to a blade that shattered in July off the coast of Nantucket.`\
 https://nytimes.com/2024/10/23/business/ge-vernova-wind-turbine-blades.html
