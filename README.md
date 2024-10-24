@@ -1,3 +1,7 @@
+**England's Williamson 'happy to be in different environment' after tough start with Arsenal**\
+`England captain Leah Williamson says she is happy to be back with her national team after a &#8220;different&#8221; start to the season with Arsenal.`\
+https://nytimes.com/athletic/5869331/2024/10/24/leah-williamson-arsenal-england/
+
 **Can Steve Kerr and the Warriors really keep deploying a 12-man rotation?**\
 `Wednesday's blowout win over the Blazers allowed Kerr to spread minutes deep into his roster. Can the strategy last?`\
 https://nytimes.com/athletic/5868651/2024/10/24/warriors-steve-kerr-12-man-rotation-depth/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/24/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Frenzy in Battlegrounds as Campaigns Urge Voters to Polls**\
 `Donald Trump is heading to Arizona and Las Vegas, while Kamala Harris holds a star-studded rally in Atlanta. Their running mates and surrogates will be in Michigan, North Carolina and Wisconsin.`\
 https://nytimes.com/live/2024/10/24/us/harris-trump-election
-
-**The Athletic FC: Raphinha - a symbol of Barca revival. Plus: Battle of the Buffet relived**\
-`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
-https://nytimes.com/athletic/5869124/2024/10/24/raphinha-barca-bayern-mls-season-switch/
 
