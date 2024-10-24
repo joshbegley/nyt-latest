@@ -1,3 +1,7 @@
+**Amid the glitz of Intuit Dome, Clippers know winning is what will really matter**\
+`It wasn’t a bad first night on their new stage, but the Clippers have work to do.`\
+https://nytimes.com/athletic/5868980/2024/10/24/clippers-intuit-dome-debut-winning/
+
 **Patti McGee, Skateboarding’s First Female Champion, Dies at 79**\
 `She was on the cover of Life magazine and performed for Johnny Carson. “She was a badass and a goody two shoes at the same time,” her daughter said.`\
 https://nytimes.com/2024/10/24/sports/patti-mcgee-dead.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/5862940/2024/10/24/fenerbahce-manchester-united-res
 **Angel Reese gets signature shoe with Reebok, set to debut in 2026**\
 `Ahead of her final collegiate season at LSU, Reese agreed to an NIL footwear and apparel partnership deal with Reebok.`\
 https://nytimes.com/athletic/5870593/2024/10/24/angel-reese-reebok-signature-shoe/
-
-**Connor McDavid wants Crosby as Team Canada captain**\
-`McDavid grew up idolizing Crosby, who’s nearly 10 years older.`\
-https://nytimes.com/athletic/5870445/2024/10/24/mcdavid-crosby-team-canada-captain/
 
