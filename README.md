@@ -1,3 +1,27 @@
+**An American in Paris, Honored Like Nobody Before**\
+`The artist Barbara Chase-Riboud hadn’t had a show in her adopted city since 1974. Now she is being celebrated in eight museums, including the Louvre.`\
+https://nytimes.com/2024/10/24/arts/design/barbara-chase-riboud-paris.html
+
+**What We Know About the Militant Attack in Turkey**\
+`After the assault on an aerospace complex in Ankara, Turkey struck sites of the Kurdistan Workers’ Party and its affiliates in Syria and Iraq.`\
+https://nytimes.com/2024/10/24/world/middleeast/turkey-attack-who-what.html
+
+**Quinn Hughes' defensive mastery, what I'm seeing from Elias Pettersson and more**\
+`The vibes around Vancouver are good after three consecutive wins, and the positive momentum is building.`\
+https://nytimes.com/athletic/5866976/2024/10/24/canucks-quinn-hughes-elias-pettersson/
+
+**Lebanon says an Israeli attack killed 3 more of its soldiers.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/lebanon-says-an-israeli-attack-killed-3-more-of-its-soldiers
+
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/24/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Frenzy in Battlegrounds as Campaigns Urge Voters to Polls**\
+`Donald Trump is heading to Arizona and Las Vegas, while Kamala Harris holds a star-studded rally in Atlanta. Their running mates and surrogates will be in Michigan, North Carolina and Wisconsin.`\
+https://nytimes.com/live/2024/10/24/us/harris-trump-election
+
 **The Athletic FC: Raphinha - a symbol of Barca revival. Plus: Battle of the Buffet relived**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5869124/2024/10/24/raphinha-barca-bayern-mls-season-switch/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/24/business/dealbook/polymarket-trump-trader.html
 **Gaza’s main emergency service says it has ‘completely ceased’ rescue operations in the north.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/gazas-main-emergency-service-says-it-has-completely-ceased-rescue-operations-in-the-north
-
-**India Evacuates 1 Million as Tropical Cyclone Dana Nears**\
-`With the storm forecast to make landfall by early Friday, residents in parts of West Bengal and Odisha States took shelter in thousands of camps.`\
-https://nytimes.com/2024/10/24/world/asia/india-tropical-cyclone-dana.html
-
-**Biden Administration Outlines Government ‘Guardrails’ for A.I. Tools**\
-`A national security memorandum detailed how agencies should streamline operations with artificial intelligence safely.`\
-https://nytimes.com/2024/10/24/us/politics/biden-government-guidelines-ai.html
-
-**What to Know About North Korea’s Military Capabilities**\
-`The North’s nuclear forces have been the focus of global concern. But its conventional military is vast and empowered — even if it is hobbled by shortages, corruption and isolation.`\
-https://nytimes.com/2024/10/24/world/asia/north-korea-military-capability.html
-
-**2025 NFL Draft order projections: Are any top-10 teams ready to take the QB leap?**\
-`How did Week 7 shake up the potential 2025 NFL Draft order?`\
-https://nytimes.com/athletic/5866677/2024/10/24/nfl-draft-order-2025-projections-week-7/
-
-**Key Twins players optimistic about working with new hitting coach Matt Borgschulte**\
-`Said Ryan Jeffers: "I think there's a lot of really good qualities about him that are going to play great in this role.”`\
-https://nytimes.com/athletic/5868418/2024/10/24/twins-optimism-new-hitting-coach-matt-borgschulte/
-
-**Craig Berube one-on-one: Ex-Blues coach on why it was 'time to move on' and life with the Leafs**\
-`"In this game, you have a certain time limit," said Berube, who won the Stanley Cup as Blues coach in 2019 and was fired last season.`\
-https://nytimes.com/athletic/5866892/2024/10/24/craig-berube-interview-blues-maple-leafs/
 
