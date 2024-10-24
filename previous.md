@@ -1,3 +1,11 @@
+**NBA Lookahead: Year 2 of Victor Wembanyama begins, and the best of the weekend**\
+`Zach Harper previews the upcoming NBA weekend as Victor Wembanyama's sophomore season highlights slate.`\
+https://nytimes.com/athletic/5867579/2024/10/24/victor-wembanyama-spurs-lebron-james-lakers-nba/
+
+**Branthwaite in line to return vs Fulham after recovering from quad injury**\
+`Jarrad Branthwaite is in line to return for Everton’s game against Fulham in the Premier League this weekend after overcoming a quad injury.`\
+https://nytimes.com/athletic/5869540/2024/10/24/jarrad-branthwaite-everton-fulham/
+
 **Penalty shootout defeats are still defeats - it's time to count them as such**\
 `It's not their fault but Manchester City's 'record' of 26-game unbeaten Champions League games is a nonsense`\
 https://nytimes.com/athletic/5869373/2024/10/24/penalty-shoot-out-defeats-record/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/science/math-documentary-voting-abeles.html
 **82 American Nobel Prize Winners Endorse Kamala Harris**\
 `The group of scientists and economists said they feared a Trump presidency would impede progress in science and technology and in fighting climate change.`\
 https://nytimes.com/2024/10/24/science/kamala-harris-nobel-winners.html
-
-**Read the Letter from Nobel Laureates Endorsing Kamala Harris for President**\
-`More than 80 American Nobel Prize winners in physics, chemistry, medicine and economics have signed an open letter endorsing Vice President Kamala Harris for president.`\
-https://nytimes.com/interactive/2024/10/24/us/sci-pol-nobel-winners-pdf.html
-
-**How Two Allies Wrestled Over a Crypto Giant and a Prisoner**\
-`The United States and Nigeria often collaborate. But the arrest of an American worker strained their diplomatic relations.`\
-https://nytimes.com/2024/10/24/us/politics/us-nigeria-binance-gambaryan.html
 
