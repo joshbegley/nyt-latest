@@ -1,3 +1,11 @@
+**Silver: 49ers have been here before — can Kyle Shanahan's crew deliver a second-half rally?**\
+`The 49ers believe in their culture and their plan is to get right by beating the Cowboys and mounting a second-half charge.`\
+https://nytimes.com/athletic/5870088/2024/10/24/49ers-second-half-rally-trade-deadline-shanahan/
+
+**Lions' Jameson Williams accepts 2-game suspension**\
+`Williams will be eligible for reinstatement after Detroit's Week 9 game against the Green Bay Packers.`\
+https://nytimes.com/athletic/5870188/2024/10/24/lions-jameson-williams-accepts-suspension/
+
 **Michael Jackson, British General Who Disobeyed U.S. Superior, Dies at 80**\
 `Labeled “the Prince of Darkness,” he refused to follow an order by NATO’s commander during the Balkans war, saying, “It’s not worth starting World War III.”`\
 https://nytimes.com/2024/10/24/world/europe/gen-sir-michael-jackson-dead.html
