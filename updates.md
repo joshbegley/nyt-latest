@@ -1,3 +1,7 @@
+**The French Connection to Online Bets on Trump**\
+`Polymarket said that it had linked a single trader to accounts that have wagered heavily on the Republican to win, pushing up his odds on the prediction market.`\
+https://nytimes.com/2024/10/24/business/dealbook/polymarket-trump-trader.html
+
 **Gaza’s main emergency service says it has ‘completely ceased’ rescue operations in the north.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/gazas-main-emergency-service-says-it-has-completely-ceased-rescue-operations-in-the-north
