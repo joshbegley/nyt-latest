@@ -1,3 +1,7 @@
+**Grizzly Bear 399, Mother of 18 Cubs, Is Killed by Driver**\
+`She lived to 28, roaming the Yellowstone area with her many offspring while becoming a favorite among both residents and visitors.`\
+https://nytimes.com/2024/10/24/science/grizzly-bear-399-killed.html
+
 **Food Supplier Recalls Onions Linked to E. Coli Outbreak and McDonald’s Quarter Pounders**\
 `Officials said the onions served atop the popular hamburger were the likely source of an E. coli outbreak that has killed one person and sickened many others.`\
 https://nytimes.com/2024/10/24/health/mcdonalds-ecoli-quarter-pounders-recall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/books/review/the-price-of-power-michael-tackett.h
 **NBA unveils 2024 NBA Cup court designs: What's new?**\
 `This year's NBA Cup courts will be slightly more subdued, and not quite as loud as the designs that the NBA debuted in 2023.`\
 https://nytimes.com/athletic/5869571/2024/10/24/nba-cup-court-designs-in-season-tournament-2025/
-
-**C.D.C. Expands Covid Vaccine Recommendations**\
-`The agency endorsed additional doses for people at high risk.`\
-https://nytimes.com/2024/10/24/well/cdc-expands-covid-vaccine-recommendations.html
 

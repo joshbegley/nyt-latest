@@ -1,3 +1,7 @@
+**Grizzly Bear 399, Mother of 18 Cubs, Is Killed by Driver**\
+`She lived to 28, roaming the Yellowstone area with her many offspring while becoming a favorite among both residents and visitors.`\
+https://nytimes.com/2024/10/24/science/grizzly-bear-399-killed.html
+
 **Food Supplier Recalls Onions Linked to E. Coli Outbreak and McDonald’s Quarter Pounders**\
 `Officials said the onions served atop the popular hamburger were the likely source of an E. coli outbreak that has killed one person and sickened many others.`\
 https://nytimes.com/2024/10/24/health/mcdonalds-ecoli-quarter-pounders-recall.html
