@@ -1,3 +1,15 @@
+**What We Saw at the Liberty Parade**\
+`By The New York Times`\
+https://nytimes.com/card/2024/10/24/nyregion/ny-liberty-parade-video
+
+**Commanders rookie scored first TD on 'Taylor Swift' play**\
+`Kliff Kingsbury confirmed the Commanders have a "bunch" of plays dedicated to pop stars, plus another named "Kelce."`\
+https://nytimes.com/athletic/5869891/2024/10/24/commanders-taylor-swift-touchdown-play-call/
+
+**Can Biological Engineering Change the World?**\
+`Altering the DNA of living organisms could be an early step in re-engineering the natural world to help curb climate change.`\
+https://nytimes.com/2024/10/24/climate/biological-engineering-climate-change.html
+
 **King to return to Arsenal as director of football operations**\
 `James King, a former Arsenal executive, is set to return to the club as director of football operations.`\
 https://nytimes.com/athletic/5869757/2024/10/24/arsenal-james-king-football-operations/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5849608/2024/10/24/roberto-mancini-saudi-arabia-hea
 **Bobby Zamora becomes striker consultant for Brighton**\
 `Former England international Bobby Zamora has become a striker consultant for Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5869962/2024/10/24/bobby-zamora-brighton-striker-consultant/
-
-**Easy Dinners That Don’t Cause a Mess**\
-`Creamy tomato beans and greens, maraq misir and golden potato soup won’t dirty all your dishes (or splatter your just-cleaned countertops).`\
-https://nytimes.com/2024/10/24/dining/easy-dinners-that-dont-cause-a-mess.html
-
-**Tucker Carlson Tells Crowd Trump Will Give Country a ‘Spanking’**\
-`The former Fox News host used a bizarre extended metaphor at a rally in Georgia where Donald J. Trump spoke.`\
-https://nytimes.com/2024/10/24/us/politics/tucker-carlson-trump-spanking.html
-
-**As Election Looms, Justice Dept. Tries to Steer Clear of Politics**\
-`A department memo seeks to formalize a pre-election “quiet period” in which senior officials should avoid unnecessary high-profile moves.`\
-https://nytimes.com/2024/10/24/us/politics/justice-department-election.html
 
