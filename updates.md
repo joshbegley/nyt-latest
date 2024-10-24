@@ -1,3 +1,11 @@
+**‘The Best Is Yet to Come’**\
+`You may not know which way you’re going when you solve Ella Dershowitz’s puzzle.`\
+https://nytimes.com/2024/10/23/crosswords/daily-puzzle-2024-10-24.html
+
+**Lana Del Rey Wed a Swamp Tour Guide, Joining Other Celebrities Who Married a Normie**\
+`The pop singer and songwriter married her longtime boyfriend, Jeremy Dunfre. Other celebrities have also wed someone who’s not rich or famous.`\
+https://nytimes.com/2024/10/23/arts/music/lana-del-rey-jeremy-dunfre-dolly-parton.html
+
 **Dodgers' Jerry Reuss remembers late Valenzuela, FernandoMania: 'A legend in the making'**\
 `Reuss was at the center of Fernandomania and he marvels at Valenzuela's brilliance to this day.`\
 https://nytimes.com/athletic/5868531/2024/10/23/jerry-reuss-remembers-fernando-valenzuela/
