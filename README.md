@@ -1,3 +1,7 @@
+**Word of the Day: detract**\
+`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/24/learning/word-of-the-day-detract.html
+
 **What We Learned Talking to the Taliban’s Most Fearsome Leader**\
 `Sirajuddin Haqqani, who has a $10 million American bounty on his head, is now positioning himself as a figure of relative moderation.`\
 https://nytimes.com/2024/10/24/world/asia/afghanistan-haqqani-what-we-learned.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866105/2024/10/24/daniel-farke-leeds-josuha-guilav
 **What can Oliver Glasner change to revive faltering Crystal Palace?**\
 `Onus is on the Austrian to instigate a recovery, with Palace having failed to win any of their eight league games and in the bottom three`\
 https://nytimes.com/athletic/5862048/2024/10/24/crystal-palace-glasner-eze-kamada/
-
-**Spurs score from one in every 36 corners - is this an area for improvement?**\
-`Spurs struggled with their set pieces against West Ham. Was it a bad day at the office or do they need to practice them more in training?`\
-https://nytimes.com/athletic/5866412/2024/10/24/tottenham-corner-analysis/
 
