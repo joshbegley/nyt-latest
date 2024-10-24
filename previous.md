@@ -1,3 +1,11 @@
+**Review: Delia Ephron’s ‘Left on Tenth’ Treads Lightly**\
+`Julianna Margulies and Peter Gallagher star in this quasi romantic comedy adapted from Ephron’s memoir, which went deeper into her illness and grief.`\
+https://nytimes.com/2024/10/23/theater/review-left-on-tenth-delia-ephron.html
+
+**NC State QB Grayson McCall retires from football**\
+`McCall was a three-time Sun Belt Conference Player of the Year who led Coastal Carolina to an 11-1 record in 2020.`\
+https://nytimes.com/athletic/5868404/2024/10/23/grayson-mccall-retires-concussion-nc-state/
+
 **Is There a Feud Between Martha Stewart and Ina Garten?**\
 `The lifestyle luminaries, who have been on the publicity circuit, were once close, but in a recent interview, Ms. Stewart doubled down on her contention that Ms. Garten abandoned her during a difficult period.`\
 https://nytimes.com/2024/10/23/style/martha-stewart-ina-garten-feud.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/us/politics/harris-trump-podcasts.html
 **Fernandomania Wasn’t a Fairy Tale. It Was Better Than That.**\
 `Fernando Valenzuela, who died on Tuesday at age 63, was a teenage phenomenon from Mexico who remade the Dodgers’ fan base and put his country on the baseball map.`\
 https://nytimes.com/2024/10/23/style/fernando-valenzuela-fernandomania.html
-
-**Israel Bombs Lebanese City as Blinken Hints at New Ideas for Gaza Cease-Fire**\
-`The Israeli military struck targets in the port city of Tyre on Wednesday, the latest phase of a bombardment campaign against the militant group Hezbollah.`\
-https://nytimes.com/2024/10/23/world/middleeast/israel-tyre-lebanon-blinken.html
-
-**Will This New U.S. Project Make the World’s Children Smarter?**\
-`Biden takes aim at a neurotoxin all around us that impedes brain development.`\
-https://nytimes.com/2024/10/23/opinion/lead-poisoning-children-smart-science.html
 
