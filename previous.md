@@ -1,3 +1,7 @@
+**America’s Embrace of Marijuana**\
+`Why public opinion has changed so quickly.`\
+https://nytimes.com/2024/10/24/briefing/americas-embrace-of-marijuana.html
+
 **Here are the latest developments.**\
 `By Michael Crowley and Cassandra Vinograd`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/the-daily/100000009775970/election-trump-john
 **Wait, NFL players eat how many Uncrustables?**\
 `Before practice, during training camp and in the halftime locker room, the sealed PB&J sandwiches are a favorite across the league.`\
 https://nytimes.com/athletic/5854102/2024/10/24/uncrustables-nfl/
-
-**NFL Draft watch: 4 rising prospects who deserve a shot on the playoff stage**\
-`Cam Ward and Ashton Jeanty are among the rising draft hopefuls who could benefit from a showcase playoff game against an elite opponent.`\
-https://nytimes.com/athletic/5866716/2024/10/24/nfl-draft-2025-ashton-jeanty-cam-ward/
 

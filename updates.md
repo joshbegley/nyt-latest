@@ -1,3 +1,7 @@
+**America’s Embrace of Marijuana**\
+`Why public opinion has changed so quickly.`\
+https://nytimes.com/2024/10/24/briefing/americas-embrace-of-marijuana.html
+
 **Here are the latest developments.**\
 `By Michael Crowley and Cassandra Vinograd`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/here-are-the-latest-developments
