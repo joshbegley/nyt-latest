@@ -1,3 +1,7 @@
+**Georgia Secretary of State Fends Off Cyberattack Targeting Absentee Ballot Website**\
+`The attack may have come from a foreign country, said a Georgia official.`\
+https://nytimes.com/2024/10/23/us/politics/georgia-secretary-of-state-cyberattack.html
+
 **A Wisconsin Mayor, a Former Republican, Endorses Harris**\
 `Shawn Reilly, the mayor of Waukesha, Wis., said he had never thrown his support behind a Democrat before.`\
 https://nytimes.com/2024/10/23/us/politics/shawn-reilly-wisconsin-mayor-kamala-harris-endorsement.html
