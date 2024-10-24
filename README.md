@@ -1,3 +1,15 @@
+**FPL: The three teams with positive fixture swings you should target**\
+`Spurs, Manchester United and Wolves are all on runs of enticing fixtures, so which of their players should you consider?`\
+https://nytimes.com/athletic/5859901/2024/10/24/fantasy-premier-league-manchester-united-tottenham-wolves/
+
+**Guilavogui will bring leadership and experience to Leeds' squad - when he's needed**\
+`Leeds have taken their time to bolster their squad - Guilavogui's versatility appears to be a shrewd move`\
+https://nytimes.com/athletic/5866105/2024/10/24/daniel-farke-leeds-josuha-guilavogui/
+
+**What can Oliver Glasner change to revive faltering Crystal Palace?**\
+`Onus is on the Austrian to instigate a recovery, with Palace having failed to win any of their eight league games and in the bottom three`\
+https://nytimes.com/athletic/5862048/2024/10/24/crystal-palace-glasner-eze-kamada/
+
 **Spurs score from one in every 36 corners - is this an area for improvement?**\
 `Spurs struggled with their set pieces against West Ham. Was it a bad day at the office or do they need to practice them more in training?`\
 https://nytimes.com/athletic/5866412/2024/10/24/tottenham-corner-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/24/us/politics/harris-town-hall-cnn-takeaways.html
 **Inside La Finca, Madrid's 'Beverly Hills' and home to Mbappe, Bellingham and more...**\
 `With properties worth €10m+, 17 artificial lakes, a brand new golf course and Yorkshire tea, La Finca is home to Madrid's rich and famous`\
 https://nytimes.com/athletic/5863112/2024/10/24/la-finca-madrid-mbappe-bellingham/
-
-**How Larne rose from the foot of Northern Ireland's second tier to the Conference League**\
-`Tiernan Lynch's side are the first from the country to compete in a European group stage - seven years after they propped up the second tier`\
-https://nytimes.com/athletic/5865794/2024/10/24/larne-uefa-conference-league/
-
-**'I was disgusted' - the story of the national team that ceased to exist after budget cuts**\
-`When funding was withdrawn in 2003, it was the latest bitter blow for a team who had long had little financial backing`\
-https://nytimes.com/athletic/5866158/2024/10/24/wales-womens-funding-remembered/
-
-**Who should win the men's Ballon d'Or - Rodri or Vinicius Junior?**\
-`With the winner of the men's 2024 Ballon d'Or being announced on Monday, two of our writers make the case for their preferred candidate.`\
-https://nytimes.com/athletic/5863166/2024/10/24/ballon-dor-rodri-vinicius-junior/
 
