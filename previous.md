@@ -1,3 +1,11 @@
+**Army Sergeant’s Body Was Found in a Dumpster at a Missouri Base**\
+`A person of interest was taken into custody after Sgt. Sarah Roque, 23, was found dead at Fort Leonard Wood, according to Army officials.`\
+https://nytimes.com/2024/10/24/us/army-homicide-fort-leonard-wood.html
+
+**Ex-LAC trainer sues, says Kawhi Leonard was subjected to illegal treatment**\
+`The suit also accuses the Clippers of tampering with Leonard leading up to his free agency in 2019.`\
+https://nytimes.com/athletic/5870732/2024/10/24/clippers-lawsuit-trainer-kawhi-leonard/
+
 **Biden to Apologize for Indian Boarding Schools Where Hundreds of Children Died**\
 `President Biden’s trip to the battleground state of Arizona will be the first time an American president has apologized for the abuses that happened at the schools over a period of 150 years.`\
 https://nytimes.com/2024/10/24/us/politics/biden-indian-boarding-schools-arizona.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/5870864/2024/10/24/amir-abdur-rahim-death-usf-coach
 **Braves' new hitting coach Tim Hyers brings World Series experience**\
 `Hyers replaces Kevin Seitzer, whose 10-year run with Atlanta was the longest in the majors before the Braves fired him two weeks ago.`\
 https://nytimes.com/athletic/5870306/2024/10/24/atlanta-braves-new-hitting-coach-tim-hyers/
-
-**The Briefing: Tottenham 1 AZ 0: Moore's Neymar impression, Werner struggles and Richarlison boost**\
-`Ange Postecoglu and James Maddison heaped praise on Moore, Spurs' rising 17-year-old superstar, as the team maintained fine European form`\
-https://nytimes.com/athletic/5862965/2024/10/24/tottenham-moore-werner-richarlison-dragusin-az/
-
-**Postecoglou says 'hard to keep a lid' on Tottenham's Moore**\
-`Ange Postecoglou has praised Mikey Moore’s maturity but admitted it will be “pretty hard to keep a lid” on the Tottenham Hotspur winger’s talent after he was compared to Neymar by James Maddison.`\
-https://nytimes.com/athletic/5870885/2024/10/24/mikey-moore-tottenham-ange-postecoglou/
 

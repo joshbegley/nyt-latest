@@ -1,3 +1,11 @@
+**Army Sergeant’s Body Was Found in a Dumpster at a Missouri Base**\
+`A person of interest was taken into custody after Sgt. Sarah Roque, 23, was found dead at Fort Leonard Wood, according to Army officials.`\
+https://nytimes.com/2024/10/24/us/army-homicide-fort-leonard-wood.html
+
+**Ex-LAC trainer sues, says Kawhi Leonard was subjected to illegal treatment**\
+`The suit also accuses the Clippers of tampering with Leonard leading up to his free agency in 2019.`\
+https://nytimes.com/athletic/5870732/2024/10/24/clippers-lawsuit-trainer-kawhi-leonard/
+
 **Braves' new hitting coach Tim Hyers brings World Series experience**\
 `Hyers replaces Kevin Seitzer, whose 10-year run with Atlanta was the longest in the majors before the Braves fired him two weeks ago.`\
 https://nytimes.com/athletic/5870306/2024/10/24/atlanta-braves-new-hitting-coach-tim-hyers/
