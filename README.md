@@ -1,3 +1,7 @@
+**Thursday Briefing: How Europe Sees the U.S. Election**\
+`Plus, the dark side of A.I. companionship apps.`\
+https://nytimes.com/2024/10/24/briefing/us-election-north-korea-russia.html
+
 **FPL: The three teams with positive fixture swings you should target**\
 `Spurs, Manchester United and Wolves are all on runs of enticing fixtures, so which of their players should you consider?`\
 https://nytimes.com/athletic/5859901/2024/10/24/fantasy-premier-league-manchester-united-tottenham-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/us/politics/trump-biden-election-interference.htm
 **Harris Calls Trump a Fascist: 6 Takeaways From Her CNN Town Hall**\
 `Entering new rhetorical territory, the vice president turned even unrelated questions into attacks on Donald Trump as she offered long, winding answers to questions from voters.`\
 https://nytimes.com/2024/10/24/us/politics/harris-town-hall-cnn-takeaways.html
-
-**Inside La Finca, Madrid's 'Beverly Hills' and home to Mbappe, Bellingham and more...**\
-`With properties worth €10m+, 17 artificial lakes, a brand new golf course and Yorkshire tea, La Finca is home to Madrid's rich and famous`\
-https://nytimes.com/athletic/5863112/2024/10/24/la-finca-madrid-mbappe-bellingham/
 
