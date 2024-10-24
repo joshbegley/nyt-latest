@@ -1,3 +1,7 @@
+**Broncos WR Josh Reynolds injured in shooting Friday, team says**\
+`Reynolds, currently on IR, has been working out on a side field Denver practices this week.`\
+https://nytimes.com/athletic/5870757/2024/10/24/broncos-josh-reynolds-shooting/
+
 **Making Masterpieces With Elmer’s Glue and Mustard Seeds **\
 `Crop artists create painstaking mosaics and portraits that can take hundreds of hours of work. And there’s no bigger showcase for them than the Minnesota State Fair.`\
 https://nytimes.com/card/2024/10/24/arts/crop-seed-art-minnesota
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/5870742/2024/10/24/golden-knights-shea-theodore-ext
 **Philip Zimbardo, 91, Whose Stanford Prison Experiment Studied Evil, Dies**\
 `His provocative research made him a popular figure on campus. But his exploration of how good people can turn evil raised ethical questions.`\
 https://nytimes.com/2024/10/24/science/philip-zimbardo-dead.html
-
-**There’s No One-Size-Fits-All Gift. But These Come Really Close. **\
-`By Hannah Morrill`\
-https://nytimes.com/card/2024/10/24/smarter-living/wirecutter/theres-no-one-size-fits-all-gift-but-these-come-really-close
 
