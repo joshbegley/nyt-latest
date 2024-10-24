@@ -1,3 +1,27 @@
+**Netflix Wanted ‘Wuthering Heights.’ Margot Robbie Wanted a Theatrical Release.**\
+`In the end, Ms. Robbie got what she wanted, signing a deal with Warner Bros.`\
+https://nytimes.com/2024/10/24/business/media/margot-robbie-wuthering-heights-warner-bros.html
+
+**District Attorney Expected to Ask Court to Resentence Menendez Brothers**\
+`A request from George Gascón, the district attorney for Los Angeles County, could lead to the brothers being released from prison, decades after they were convicted of murdering their parents.`\
+https://nytimes.com/2024/10/24/us/menendez-brothers-prison-sentence.html
+
+**Putin Appears to Say That North Korean Troops Are in Russia**\
+`‘If there are images they are a reflection of something,’ he said in a tongue-in-cheek answer to whether Pyongyang had sent troops to help with Russia’s war in Ukraine.`\
+https://nytimes.com/2024/10/24/world/europe/putin-north-korean-troops-russia.html
+
+**Betting for (by) dummies: Fading the public on Navy, split on the Battle for I-75 and more**\
+`Jon Greenberg and Zac Jackson place their football betting picks for the weekend and get in the weeds on Ohio high school football, again.`\
+https://nytimes.com/athletic/5869733/2024/10/24/betting-dummies-navy-toledo-bowling-green/
+
+**Why the World Fears a War Between Israel and Iran**\
+`An all-out war could entangle countries around the world and threaten the global economy.`\
+https://nytimes.com/2024/10/24/world/middleeast/israel-iran-war.html
+
+**Oy, This Ad: Jewish Stereotypes in Service of Trump as a Safer Option**\
+`A new commercial from the Republican Jewish Coalition tries to give Jewish voters a rationale for voting for the former president, based on fear.`\
+https://nytimes.com/2024/10/24/us/politics/trump-ad-jewish-voters.html
+
 **Review: The Miraculous Simplicity of Patti Smith’s Childhood**\
 `At the Baryshnikov Arts Center, an adaptation of Smith’s poem-memoir “Woolgathering” features Smith reciting, others dancing and a surprise guest.`\
 https://nytimes.com/2024/10/24/arts/dance/review-woolgathering-patti-smith-mikhail-baryshnikov.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/24/health/mcdonalds-ecoli-quarter-pounders-recall.ht
 **Champions League projections: All the talking points from Matchday 3**\
 `Aston Villa's perfect start continued - but how much did this week's results hurt the likes of Paris Saint-Germain and Atletico Madrid?`\
 https://nytimes.com/athletic/5869713/2024/10/24/champions-league-projections-matchday-3-talking-points/
-
-**How 7 Friends Testing a Metal Detector Made Britain’s Most Valuable Treasure Find**\
-`A pastime in a farmer’s field led to the discovery of Norman-era coins valued at more than $5 million.`\
-https://nytimes.com/2024/10/24/us/chew-valley-hoard.html
-
-**Two Students Created Face Recognition Glasses. It Wasn’t Hard.**\
-`A Boston man had a strange encounter at a subway station. A month later, he discovered he was the star of the students’ viral video.`\
-https://nytimes.com/2024/10/24/technology/facial-recognition-glasses-privacy-harvard.html
-
-**Finger-Pointing if Trump Beats Harris**\
-`Readers discuss a column by Bret Stephens. Also: A flood of election mailers in Pennsylvania; speech on campus; fighting malaria.`\
-https://nytimes.com/2024/10/24/opinion/trump-harris.html
-
-**Notre Dame mailbag: Why do Irish struggle with WR recruiting? How is CJ Carr viewed?**\
-`Where does Notre Dame fit in the narrative of college football? And more in the Irish mailbag.`\
-https://nytimes.com/athletic/5869401/2024/10/24/notre-dame-football-college-playoff-scheduling/
-
-**Scoop City: Six more trade proposals, ft. Myles Garrett, Maxx Crosby**\
-`Six potential trades that could shake up the NFL landscape before the deadline in two weeks — including a new edge rusher for the Bears.`\
-https://nytimes.com/athletic/5869843/2024/10/24/six-trade-proposals-including-myles-garrett-plus-healthy-star-returns-for-rams-vikings/
-
-**In This Biography, Mitch McConnell Hates Trump but Loves Power More**\
-`“The Price of Power,” by Michael Tackett, reveals a legislator for whom political survival has been a top priority — even when it means supporting a “sleazeball” for the presidency.`\
-https://nytimes.com/2024/10/24/books/review/the-price-of-power-michael-tackett.html
 
