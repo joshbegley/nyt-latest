@@ -1,3 +1,7 @@
+**Listen: ‘The Push to Ban Phones in School’**\
+`More and more states are cracking down on students’ use of cellphones. Is that a good thing?`\
+https://nytimes.com/2024/10/24/learning/listen-the-push-to-ban-phones-in-school.html
+
 **Anthony Davis gives Lakers an early dose of hope — and a long-awaited blueprint**\
 `In the Lakers' opening game, Anthony Davis looked like franchise centerpiece material as he extinguished Rudy Gobert's extension vibes.`\
 https://nytimes.com/athletic/5867923/2024/10/24/anthony-davis-rudy-gobert-lakers-wolves/
