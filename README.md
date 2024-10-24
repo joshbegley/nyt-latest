@@ -1,3 +1,11 @@
+**How tennis rankings actually work - points, races, and positions**\
+`The men's and women's tennis tours use similar methodologies when ranking players — here's how the rankings are put together`\
+https://nytimes.com/athletic/5847687/2024/10/24/tennis-rankings-how-players-ranked-atp-wta-explained/
+
+**Teens to Hollywood: Enough Sex, Already**\
+`At least that is what they told researchers at U.C.L.A. The high popularity of romance plots in movies and shows suggests otherwise.`\
+https://nytimes.com/2024/10/24/business/teens-movies-tv-sex.html
+
 **Healthy and happy, Alex Turcotte is making his mark with the Kings at last**\
 `After years of injury setbacks, Turcotte is off to an effective start to the NHL season in a regular role with increased responsibility.`\
 https://nytimes.com/athletic/5868953/2024/10/24/nhl-alex-turcotte-la-kings-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5868651/2024/10/24/warriors-steve-kerr-12-man-rotat
 **Checking in on Big Ten's first coast-to-coast season: Does conference have concerns?**\
 `In addition to the long flights and late nights, updates on Friday night games and a glimpse at the 2025 schedule. `\
 https://nytimes.com/athletic/5867880/2024/10/24/big-ten-football-scheduling-travel/
-
-**Putin Abandons Caution on North Korea in Pursuit of Victory in Ukraine**\
-`The invasion of Ukraine has led the Russian leader to jettison cooperation with the West over North Korea’s nuclear arsenal in favor of an ever-deepening military alliance with Pyongyang.`\
-https://nytimes.com/2024/10/24/world/europe/russia-north-korea.html
-
-**An American in Paris, Honored Like Nobody Before**\
-`The artist Barbara Chase-Riboud hadn’t had a show in her adopted city since 1974. Now she is being celebrated in eight museums, including the Louvre.`\
-https://nytimes.com/2024/10/24/arts/design/barbara-chase-riboud-paris.html
 
