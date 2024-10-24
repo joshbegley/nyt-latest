@@ -1,3 +1,7 @@
+**Broncos WR Josh Reynolds injured in shooting Friday, team says**\
+`Reynolds, currently on IR, has been working out on a side field at Denver practices this week.`\
+https://nytimes.com/athletic/5870757/2024/10/24/broncos-josh-reynolds-shooting/
+
 **Making Masterpieces With Elmer’s Glue and Mustard Seeds **\
 `Crop artists create painstaking mosaics and portraits that can take hundreds of hours of work. And there’s no bigger showcase for them than the Minnesota State Fair.`\
 https://nytimes.com/card/2024/10/24/arts/crop-seed-art-minnesota
