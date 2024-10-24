@@ -1,3 +1,7 @@
+**Giannis, Damian Lillard star in Bucks win as 'awesome' Gary Trent Jr. provides intense defense**\
+`While the Bucks' stars stuffed the stat sheet, Trent Jr. showed that he could furnish 'physical, tough' on-the-ball defense.`\
+https://nytimes.com/athletic/5868972/2024/10/24/giannis-damian-lillard-bucks-gary-trent-jr/
+
 **3 Arrested in Sri Lanka Over Possible Threats Against Israeli Tourists**\
 `The arrests, all of Sri Lankans, came a day after the U.S. and Israel issued warnings to its citizens to avoid a popular tourist area.`\
 https://nytimes.com/2024/10/24/world/middleeast/sri-lanka-israel-us-warning-arugam-bay.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866976/2024/10/24/canucks-quinn-hughes-elias-pette
 **Lebanon says an Israeli attack killed 3 more of its soldiers.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/lebanon-says-an-israeli-attack-killed-3-more-of-its-soldiers
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/10/24/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
