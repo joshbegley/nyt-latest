@@ -1,3 +1,11 @@
+**Southwest Strikes a Truce With the Activist Hedge Fund Elliott**\
+`The airline will appoint six new directors to its board, avoiding a proxy fight with the activist investor Elliott Investment Management, one of its largest shareholders.`\
+https://nytimes.com/2024/10/24/business/dealbook/southwest-airlines-elliott.html
+
+**Monique Knowlton, 1960s-Era Model and Bold Gallerist, Dies at 87**\
+`A Vogue cover girl in the early 1960s, she later pivoted to contemporary art, opening a gallery where being “outrageous counts as a plus,” one critic wrote.`\
+https://nytimes.com/2024/10/24/arts/monique-knowlton-dead.html
+
 **Monique Knowlton, ‘Mad Men’ Era Model and Bold Gallerist, Dies at 87**\
 `A Vogue cover girl in the early 1960s, she later pivoted to contemporary art, opening a gallery where being “outrageous counts as a plus,” one critic wrote.`\
 https://nytimes.com/2024/10/24/arts/monique-knowlton-dead.html

@@ -1,4 +1,8 @@
-**Monique Knowlton, ‘Mad Men’ Era Model and Bold Gallerist, Dies at 87**\
+**Southwest Strikes a Truce With the Activist Hedge Fund Elliott**\
+`The airline will appoint six new directors to its board, avoiding a proxy fight with the activist investor Elliott Investment Management, one of its largest shareholders.`\
+https://nytimes.com/2024/10/24/business/dealbook/southwest-airlines-elliott.html
+
+**Monique Knowlton, 1960s-Era Model and Bold Gallerist, Dies at 87**\
 `A Vogue cover girl in the early 1960s, she later pivoted to contemporary art, opening a gallery where being “outrageous counts as a plus,” one critic wrote.`\
 https://nytimes.com/2024/10/24/arts/monique-knowlton-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866643/2024/10/24/nhl-trade-board-provorov-fowler-
 **Blinken says Gaza talks will resume, but offers no sign Hamas has softened its position.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/blinken-says-gaza-talks-will-resume-but-offers-no-sign-hamas-has-softened-its-position
-
-**Cooper Kupp trade rumors: Ranking the best fantasy football fits**\
-`The 49ers could be a perfect scheme fit, but would L.A. send Kupp to rival San Francisco? What about the battered Bucs?`\
-https://nytimes.com/athletic/5867069/2024/10/24/cooper-kupp-trade-rumors-fantasy-football-fits/
 
