@@ -1,3 +1,7 @@
+**As Harris Courts Republicans, the Left Grows Wary and Alienated**\
+`The vice president’s tack to the right, support for Israel in the Gaza war and incremental policy proposals have alienated progressives and raised worries about waning liberal energy.`\
+https://nytimes.com/2024/10/24/us/politics/kamala-harris-progressives-democrats.html
+
 **A 20-Minute Workout to Keep Your Body Limber**\
 `Throwing your back out is often caused by stiffness in the upper spine. Here’s how to prevent future pain.`\
 https://nytimes.com/2024/10/24/well/move/back-workout-pain-injury-prevention.html
