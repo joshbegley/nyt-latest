@@ -1,3 +1,7 @@
+**Braves' new hitting coach Tim Hyers brings World Series experience**\
+`Hyers replaces Kevin Seitzer, whose 10-year run with Atlanta was the longest in the majors before the Braves fired him two weeks ago.`\
+https://nytimes.com/athletic/5870306/2024/10/24/atlanta-braves-new-hitting-coach-tim-hyers/
+
 **Biden to Apologize for Indian Boarding Schools Where Hundreds of Children Died**\
 `President Biden’s trip to the battleground state of Arizona will be the first time an American president has apologized for the abuses that happened at the schools over a period of 150 years.`\
 https://nytimes.com/2024/10/24/us/politics/biden-indian-boarding-schools-arizona.html
