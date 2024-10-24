@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Michael Crowley and Cassandra Vinograd`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/here-are-the-latest-developments
+
+**Live Updates: U.S. Pushes ‘New Frameworks’ for Gaza Cease-Fire**\
+`With talks stalled on a long-term truce between Israel and Hamas, Secretary of State Antony J. Blinken signaled U.S. willingness to support a shorter pause in fighting.`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran
+
 **Arsenal's Odegaard on track to return next month, says Norway coach**\
 `Norway head coach Stale Solbakken says Arsenal captain Martin Odegaard is on track to return for the November international break.`\
 https://nytimes.com/athletic/5869067/2024/10/24/martin-odegaard-injury-update-arsenal/
