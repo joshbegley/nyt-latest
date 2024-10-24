@@ -1,3 +1,15 @@
+**Early NHL trade candidates: 10 players to watch ahead of the deadline this season**\
+`It's too early for a full-blown NHL Trade Board but not to start identifying who could play a role in the upcoming trading season.`\
+https://nytimes.com/athletic/5866643/2024/10/24/nhl-trade-board-provorov-fowler-liljegren/
+
+**Blinken says Gaza talks will resume, but offers no sign Hamas has softened its position.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/blinken-says-gaza-talks-will-resume-but-offers-no-sign-hamas-has-softened-its-position
+
+**Cooper Kupp trade rumors: Ranking the best fantasy football fits**\
+`The 49ers could be a perfect scheme fit, but would L.A. send Kupp to rival San Francisco? What about the battered Bucs?`\
+https://nytimes.com/athletic/5867069/2024/10/24/cooper-kupp-trade-rumors-fantasy-football-fits/
+
 **Unexplained Enigmas in the Orion Nebula May Be Victims of Stellar Bullying**\
 `Astronomers offered a new hypothesis for what created pairs of objects nicknamed JuMBOs, while other scientists argue they may not really exist.`\
 https://nytimes.com/2024/10/24/science/james-webb-space-telescope-orion-nebula-jumbos.html
