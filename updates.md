@@ -1,3 +1,11 @@
+**How tennis rankings actually work - points, races, and positions**\
+`The men's and women's tennis tours use similar methodologies when ranking players — here's how the rankings are put together`\
+https://nytimes.com/athletic/5847687/2024/10/24/tennis-rankings-how-players-ranked-atp-wta-explained/
+
+**Teens to Hollywood: Enough Sex, Already**\
+`At least that is what they told researchers at U.C.L.A. The high popularity of romance plots in movies and shows suggests otherwise.`\
+https://nytimes.com/2024/10/24/business/teens-movies-tv-sex.html
+
 **Healthy and happy, Alex Turcotte is making his mark with the Kings at last**\
 `After years of injury setbacks, Turcotte is off to an effective start to the NHL season in a regular role with increased responsibility.`\
 https://nytimes.com/athletic/5868953/2024/10/24/nhl-alex-turcotte-la-kings-season/
