@@ -1,3 +1,11 @@
+**What ‘Chicken Shop Date’ Reminds Us About Flirting**\
+`Amelia Dimoldenberg and Andrew Garfield’s long-running flirtationship highlights what’s missing from dating (and dating content) today.`\
+https://nytimes.com/2024/10/24/style/chicken-shop-date.html
+
+**Companies to Pay $101.9 Million to Settle Baltimore Bridge Collapse Lawsuit**\
+`The suit by the Justice Department was filed last month and laid out what investigators had learned about the ship’s short and catastrophic journey.`\
+https://nytimes.com/2024/10/24/us/baltimore-bridge-collapse-lawsuit-settlement.html
+
 **Aunt of 4-Year-Old Who Starved to Death Is Suing Child-Welfare Agency**\
 `Jahmeik Modlin’s parents have been charged with manslaughter in his death. His aunt’s suit accuses the city of failing to monitor his safety.`\
 https://nytimes.com/2024/10/24/nyregion/child-death-harlem-acs-lawsuit.html

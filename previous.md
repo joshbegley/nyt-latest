@@ -1,3 +1,11 @@
+**What ‘Chicken Shop Date’ Reminds Us About Flirting**\
+`Amelia Dimoldenberg and Andrew Garfield’s long-running flirtationship highlights what’s missing from dating (and dating content) today.`\
+https://nytimes.com/2024/10/24/style/chicken-shop-date.html
+
+**Companies to Pay $101.9 Million to Settle Baltimore Bridge Collapse Lawsuit**\
+`The suit by the Justice Department was filed last month and laid out what investigators had learned about the ship’s short and catastrophic journey.`\
+https://nytimes.com/2024/10/24/us/baltimore-bridge-collapse-lawsuit-settlement.html
+
 **Aunt of 4-Year-Old Who Starved to Death Is Suing Child-Welfare Agency**\
 `Jahmeik Modlin’s parents have been charged with manslaughter in his death. His aunt’s suit accuses the city of failing to monitor his safety.`\
 https://nytimes.com/2024/10/24/nyregion/child-death-harlem-acs-lawsuit.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/5869328/2024/10/24/kennesaw-state-liberty-college-f
 **As Trump Campaigns, This Group Is Planning His Presidency**\
 `Also, the Los Angeles D.A. called for the Menendez Brothers to be resentenced. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/24/briefing/trump-campaign-planning-canada-immigration-rules.html
-
-**Mourinho wants PL return after Fenerbahce contract: 'I am ready to go'**\
-`Jose Mourinho said that he would be &#8220;ready to go&#8221; back to the Premier League at the end of his Fenerbahce contract in two years.`\
-https://nytimes.com/athletic/5870718/2024/10/24/jose-mourinho-premier-league-return/
-
-**Golden Knights sign Shea Theodore to 7-year extension**\
-`The deal carries an average annual value of $7.425 million.`\
-https://nytimes.com/athletic/5870742/2024/10/24/golden-knights-shea-theodore-extension/
 
