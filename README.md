@@ -1,3 +1,11 @@
+**Trump Flirts With the Ultimate Tax Cut: No Taxes at All**\
+`The former president has repeatedly praised a period in American history when there was no income tax, and the country relied on tariffs to fund the government.`\
+https://nytimes.com/2024/10/24/us/politics/donald-trump-tax-policy.html
+
+**France backs expansion of Lebanon’s army, and will give $100 million to aid displaced Lebanese, Macron says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/france-backs-expansion-of-lebanons-army-and-will-give-100-million-to-aid-displaced-lebanese-macron-says
+
 **Arab and Jewish Voters Both Need Kamala Harris**\
 `She’s the only one who can defuse the crisis in the Middle East.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/friedman-gaza-israel-harris-trump
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5868203/2024/10/24/utah-royals-hire-jimmy-coenraets
 **The U.N.’s Verdict on Climate Progress Over the Past Year: There Was None**\
 `An annual assessment by the world body tracks the gulf between what countries have vowed to do and what they’ve actually achieved.`\
 https://nytimes.com/2024/10/24/climate/un-climate-change-global-emissions-report.html
-
-**Xavi Simons sidelined for several weeks with ankle ligament injury**\
-`RB Leipzig midfielder Xavi Simons has suffered a ligament injury in his left ankle, ruling him out of action for several weeks.`\
-https://nytimes.com/athletic/5869510/2024/10/24/xavi-simons-rb-leipzig-injury/
-
-**Unrivaled reveals team names, branding ahead of inaugural season**\
-`The six clubs will be called the Laces, Mist, Rose, Lunar Owls, Phantom and Vinyl.`\
-https://nytimes.com/athletic/5869412/2024/10/24/unrivaled-basketball-teams-branding/
 
