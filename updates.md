@@ -1,3 +1,15 @@
+**King to return to Arsenal as director of football operations**\
+`James King, a former Arsenal executive, is set to return to the club as director of football operations.`\
+https://nytimes.com/athletic/5869757/2024/10/24/arsenal-james-king-football-operations/
+
+**Fly on The Wall! Opening night and opposing fans in LA Clippers' Intuit Dome experimental section**\
+`Make sure you're wearing Clippers gear if you want to experience the NBA's wildest new cheering area.`\
+https://nytimes.com/athletic/5868971/2024/10/24/clippers-the-wall-intuit-dome-opposing-fans/
+
+**‘Conclave’ Review: Serpents and Doves Amok in the Vatican**\
+`This film, based on Robert Harris’s 2016 thriller of the same title, centers on a British cardinal (a sensational Ralph Fiennes), and a campaign for a new pope.`\
+https://nytimes.com/2024/10/24/movies/conclave-review.html
+
 **Netflix Wanted ‘Wuthering Heights.’ Margot Robbie Wanted a Theatrical Release.**\
 `In the end, Ms. Robbie got what she wanted, signing a deal with Warner Bros.`\
 https://nytimes.com/2024/10/24/business/media/margot-robbie-wuthering-heights-warner-bros.html
