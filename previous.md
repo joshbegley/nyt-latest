@@ -1,3 +1,7 @@
+**Mourinho wants PL return after Fenerbahce contract: 'I am ready to go'**\
+`Jose Mourinho said that he would be &#8220;ready to go&#8221; back to the Premier League at the end of his Fenerbahce contract in two years.`\
+https://nytimes.com/athletic/5870718/2024/10/24/jose-mourinho-premier-league-return/
+
 **Golden Knights sign Shea Theodore to 7-year extension**\
 `The deal carries an average annual value of $7.425 million.`\
 https://nytimes.com/athletic/5870742/2024/10/24/golden-knights-shea-theodore-extension/
@@ -25,8 +29,4 @@ https://nytimes.com/2024/10/24/arts/true-crime-boom-menendez-brothers.html
 **DeAndre Hopkins ready to use ‘massive’ hands to uplift Patrick Mahomes, Chiefs offense**\
 `Hopkins, a 12-year player, is expected to play a small role in the Chiefs’ offense in Sunday’s game against the Raiders.`\
 https://nytimes.com/athletic/5870449/2024/10/24/deandre-hopkins-trade-chiefs-patrick-mahomes-impact/
-
-**Amid the glitz of Intuit Dome, Clippers know winning is what will really matter**\
-`It wasn’t a bad first night on their new stage, but the Clippers have work to do.`\
-https://nytimes.com/athletic/5868980/2024/10/24/clippers-intuit-dome-debut-winning/
 

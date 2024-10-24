@@ -1,3 +1,7 @@
+**Mourinho wants PL return after Fenerbahce contract: 'I am ready to go'**\
+`Jose Mourinho said that he would be &#8220;ready to go&#8221; back to the Premier League at the end of his Fenerbahce contract in two years.`\
+https://nytimes.com/athletic/5870718/2024/10/24/jose-mourinho-premier-league-return/
+
 **Golden Knights sign Shea Theodore to 7-year extension**\
 `The deal carries an average annual value of $7.425 million.`\
 https://nytimes.com/athletic/5870742/2024/10/24/golden-knights-shea-theodore-extension/
