@@ -1,3 +1,7 @@
+**‘Truly Just Divine’ Weeknight Tantanmen**\
+`Hetty Lui McKinnon’s hearty tantanmen with fried tofu is soothing, spicy and — crucially — doable after a busy day.`\
+https://nytimes.com/2024/10/24/dining/truly-just-divine-weeknight-tantanmen.html
+
 **The Bounce: Opening night of NBA League Pass was glorious.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5869610/2024/10/24/nba-league-pass-victor-wembanyama-spurs-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869373/2024/10/24/penalty-shoot-out-defeats-record
 **Take The Athletic’s 2024 college football TV survey**\
 `College football fans have as many opinions about how their games are covered on television as they do about the games themselves.`\
 https://nytimes.com/athletic/5869487/2024/10/24/college-football-tv-networks-survey/
-
-**Officially Utah Royals’ head coach, Jimmy Coenraets is already planning for the future**\
-`Coenraets led the Royals to five wins, two draws, and only three losses — he is now ready to build the side for a better 2025`\
-https://nytimes.com/athletic/5868203/2024/10/24/utah-royals-hire-jimmy-coenraets-2027/
 
