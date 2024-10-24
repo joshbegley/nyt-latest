@@ -1,3 +1,11 @@
+**A Wisconsin Mayor, a Former Republican, Endorses Harris**\
+`Shawn Reilly, the mayor of Waukesha, Wis., said he had never thrown his support behind a Democrat before.`\
+https://nytimes.com/2024/10/23/us/politics/shawn-reilly-wisconsin-mayor-kamala-harris-endorsement.html
+
+**Boeing Workers Resoundingly Reject New Contract and Extend Strike**\
+`The vote, hours after Boeing reported a $6.1 billion loss, will extend a nearly six-week-long strike at factories where the company makes its best-selling commercial plane.`\
+https://nytimes.com/2024/10/23/business/boeing-union-vote-strike.html
+
 **Can Donald Trump or Kamala Harris Bring Back Manufacturing Jobs?**\
 `Both candidates tout plans that promise to help the country make things again. Canton, Ohio, is an example of the steep challenge.`\
 https://nytimes.com/interactive/2024/10/23/us/elections/trump-harris-manufacturing-policy.html
