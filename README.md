@@ -1,3 +1,7 @@
+**RB Leipzig have bright young talents, an exemplary model and an existential crisis**\
+`A template of buying young and selling big is successful but is preventing Leipzig from challenging the elite`\
+https://nytimes.com/athletic/5868184/2024/10/24/red-bull-leipzig-champions-league/
+
 **Word of the Day: detract**\
 `This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/24/learning/word-of-the-day-detract.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5859901/2024/10/24/fantasy-premier-league-mancheste
 **Guilavogui will bring leadership and experience to Leeds' squad - when he's needed**\
 `Leeds have taken their time to bolster their squad - Guilavogui's versatility appears to be a shrewd move`\
 https://nytimes.com/athletic/5866105/2024/10/24/daniel-farke-leeds-josuha-guilavogui/
-
-**What can Oliver Glasner change to revive faltering Crystal Palace?**\
-`Onus is on the Austrian to instigate a recovery, with Palace having failed to win any of their eight league games and in the bottom three`\
-https://nytimes.com/athletic/5862048/2024/10/24/crystal-palace-glasner-eze-kamada/
 
