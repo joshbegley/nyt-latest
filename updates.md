@@ -1,3 +1,7 @@
+**Braves' new hitting coach Tim Hyers brings World Series experience**\
+`Hyers replaces Kevin Seitzer, whose 10-year run with Atlanta was the longest in the majors before the Braves fired him two weeks ago`\
+https://nytimes.com/athletic/5870306/2024/10/24/atlanta-braves-new-hitting-coach-tim-hyers/
+
 **The Briefing: Tottenham 1 AZ 0: Moore's Neymar impression, Werner struggles and Richarlison boost**\
 `Ange Postecoglu and James Maddison heaped praise on Moore, Spurs' rising 17-year-old superstar, as the team maintained fine European form`\
 https://nytimes.com/athletic/5862965/2024/10/24/tottenham-moore-werner-richarlison-dragusin-az/
