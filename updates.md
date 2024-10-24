@@ -1,3 +1,7 @@
+**Houston's hopes of speeding things up begin and end with Amen Thompson**\
+`Thompson's bread and butter is getting out in the open court and flying. Charlotte's rebounding edge Wednesday limited his opportunities.`\
+https://nytimes.com/athletic/5868751/2024/10/24/rockets-amen-thompson-fast-pace-season-opener/
+
 **RB Leipzig have bright young talents, an exemplary model and an existential crisis**\
 `A template of buying young and selling big is successful but is preventing Leipzig from challenging the elite`\
 https://nytimes.com/athletic/5868184/2024/10/24/red-bull-leipzig-champions-league/

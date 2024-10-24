@@ -1,3 +1,7 @@
+**Houston's hopes of speeding things up begin and end with Amen Thompson**\
+`Thompson's bread and butter is getting out in the open court and flying. Charlotte's rebounding edge Wednesday limited his opportunities.`\
+https://nytimes.com/athletic/5868751/2024/10/24/rockets-amen-thompson-fast-pace-season-opener/
+
 **RB Leipzig have bright young talents, an exemplary model and an existential crisis**\
 `A template of buying young and selling big is successful but is preventing Leipzig from challenging the elite`\
 https://nytimes.com/athletic/5868184/2024/10/24/red-bull-leipzig-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/briefing/us-election-north-korea-russia.html
 **FPL: The three teams with positive fixture swings you should target**\
 `Spurs, Manchester United and Wolves are all on runs of enticing fixtures, so which of their players should you consider?`\
 https://nytimes.com/athletic/5859901/2024/10/24/fantasy-premier-league-manchester-united-tottenham-wolves/
-
-**Guilavogui will bring leadership and experience to Leeds' squad - when he's needed**\
-`Leeds have taken their time to bolster their squad - Guilavogui's versatility appears to be a shrewd move`\
-https://nytimes.com/athletic/5866105/2024/10/24/daniel-farke-leeds-josuha-guilavogui/
 
