@@ -1,3 +1,7 @@
+**Review: The Miraculous Simplicity of Patti Smith’s Childhood**\
+`At the Baryshnikov Arts Center, an adaptation of Smith’s poem-memoir “Woolgathering” features Smith reciting, others dancing and a surprise guest.`\
+https://nytimes.com/2024/10/24/arts/dance/review-woolgathering-patti-smith-mikhail-baryshnikov.html
+
 **Grizzly Bear 399, Mother of 18 Cubs, Is Killed by Driver**\
 `She lived to 28, roaming the Yellowstone area with her many offspring while becoming a favorite among both residents and visitors.`\
 https://nytimes.com/2024/10/24/science/grizzly-bear-399-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869843/2024/10/24/six-trade-proposals-including-my
 **In This Biography, Mitch McConnell Hates Trump but Loves Power More**\
 `“The Price of Power,” by Michael Tackett, reveals a legislator for whom political survival has been a top priority — even when it means supporting a “sleazeball” for the presidency.`\
 https://nytimes.com/2024/10/24/books/review/the-price-of-power-michael-tackett.html
-
-**NBA unveils 2024 NBA Cup court designs: What's new?**\
-`This year's NBA Cup courts will be slightly more subdued, and not quite as loud as the designs that the NBA debuted in 2023.`\
-https://nytimes.com/athletic/5869571/2024/10/24/nba-cup-court-designs-in-season-tournament-2025/
 
