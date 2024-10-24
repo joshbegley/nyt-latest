@@ -1,3 +1,7 @@
+**Football Governance Bill: A step closer - but what is new and what has the reaction been?**\
+`Any lingering hopes the Premier League might have had of diluting the powers of English football’s proposed independent regulator have been dashed by the news the government is resuming the process to create the role on Thursday.`\
+https://nytimes.com/athletic/5867281/2024/10/24/football-governance-bill-independent-regulator-update/
+
 **The New York Liberty Will Be Celebrated With a Ticker-Tape Parade**\
 `The W.N.B.A.’s newest champions will be honored along the Canyon of Heroes on Broadway, the third time a women’s sports team has been granted that privilege.`\
 https://nytimes.com/2024/10/24/nyregion/new-york-liberty-win-wnba-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5868632/2024/10/24/raphinha-barcelona-bayern-hat-tr
 **Houston's hopes of speeding things up begin and end with Amen Thompson**\
 `Thompson's bread and butter is getting out in the open court and flying. Charlotte's rebounding edge Wednesday limited his opportunities.`\
 https://nytimes.com/athletic/5868751/2024/10/24/rockets-amen-thompson-fast-pace-season-opener/
-
-**RB Leipzig have bright young talents, an exemplary model and an existential crisis**\
-`A template of buying young and selling big is successful but is preventing Leipzig from challenging the elite`\
-https://nytimes.com/athletic/5868184/2024/10/24/red-bull-leipzig-champions-league/
 
