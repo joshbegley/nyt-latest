@@ -1,3 +1,7 @@
+**The Pulse: First NBA impressions**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5868591/2024/10/24/kennesaw-state-liberty-upset-the-pulse/
+
 **Ole Miss built a $10M roster to reach the 12-team Playoff. With 2 losses, now what?**\
 `The Rebels can still make the Playoff, though the odds are steeper. "This isn't a one-shot wonder," says the Ole Miss athletic director.`\
 https://nytimes.com/athletic/5867884/2024/10/24/ole-miss-college-football-playoff-nil/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5867825/2024/10/24/waddell-blue-jackets-fans/
 **How much would Maxx Crosby help Lions? Model analyzes impact of 4 fun NFL trade proposals**\
 `The Lions need pass rush help. Crosby gives them the bigger boost, but Haason Reddick would cost far less. Which deal makes more sense?`\
 https://nytimes.com/athletic/5866711/2024/10/24/nfl-trade-projections-maxx-crosby-lions/
-
-**12 Days to Go: French Fries and Fascism**\
-`Michael Barbaro sits down with the Times reporters Michael Schmidt, Lisa Lerer, Reid Epstein and Nate Cohn to discuss the latest developments in the presidential race.`\
-https://nytimes.com/video/podcasts/the-daily/100000009775970/election-trump-john-kelly.html
 
