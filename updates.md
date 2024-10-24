@@ -1,3 +1,7 @@
+**Dejounte Murray's fractured hand means Pelicans must again try to overcome injury adversity**\
+`The Pelicans will have to adjust again just one game into the regular season.`\
+https://nytimes.com/athletic/5868888/2024/10/24/dejounte-murray-hand-injury-pelicans-face-adversity-again/
+
 **Football Governance Bill: A step closer - but what is new and what has the reaction been?**\
 `Any lingering hopes the Premier League might have had of diluting the powers of English football’s proposed independent regulator have been dashed by the news the government is resuming the process to create the role on Thursday.`\
 https://nytimes.com/athletic/5867281/2024/10/24/football-governance-bill-independent-regulator-update/
