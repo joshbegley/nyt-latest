@@ -1,3 +1,15 @@
+**What We Saw at the Liberty Parade**\
+`By The New York Times`\
+https://nytimes.com/card/2024/10/24/nyregion/ny-liberty-parade-video
+
+**Commanders rookie scored first TD on 'Taylor Swift' play**\
+`Kliff Kingsbury confirmed the Commanders have a "bunch" of plays dedicated to pop stars, plus another named "Kelce."`\
+https://nytimes.com/athletic/5869891/2024/10/24/commanders-taylor-swift-touchdown-play-call/
+
+**Can Biological Engineering Change the World?**\
+`Altering the DNA of living organisms could be an early step in re-engineering the natural world to help curb climate change.`\
+https://nytimes.com/2024/10/24/climate/biological-engineering-climate-change.html
+
 **King to return to Arsenal as director of football operations**\
 `James King, a former Arsenal executive, is set to return to the club as director of football operations.`\
 https://nytimes.com/athletic/5869757/2024/10/24/arsenal-james-king-football-operations/
