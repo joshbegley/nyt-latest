@@ -1,3 +1,7 @@
+**Zach Frazier's college injury might have saved rookie season with Steelers**\
+`The plate in Frazier's leg from his surgery last year might have saved him from another season-ending injury.`\
+https://nytimes.com/athletic/5870342/2024/10/24/zach-frazier-injury-steelers-center/
+
 **The Israeli military strikes a school turned shelter in Gaza that it says was hiding a Hamas command center.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/the-israeli-military-strikes-a-school-turned-shelter-in-gaza-that-it-says-was-hiding-a-hamas-command-center
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/opinion/scott-joplin-george-gershwin-and-beyonce.
 **Tina S. Kaidanow, 59, Diplomatic Force in Kosovo and Guantánamo, Dies**\
 `She was the first U.S. ambassador to a newly independent Balkans nation and recently oversaw the transfer of cooperating Guantánamo prisoners to third countries.`\
 https://nytimes.com/2024/10/24/us/politics/tina-s-kaidanow-dead.html
-
-**A Sweet Diwali, New York Style**\
-`For many New Yorkers from the Caribbean, Diwali is marked with sweet treats like prasad.`\
-https://nytimes.com/2024/10/24/dining/indo-caribbean-diwali.html
 
