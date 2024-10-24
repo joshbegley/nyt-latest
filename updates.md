@@ -1,3 +1,15 @@
+**Bulls deal with 'worst-case scenario' in season-opening loss to Pelicans**\
+`Here are five early impressions from the Bulls’ season-opening loss to the New Orleans Pelicans on Wednesday.`\
+https://nytimes.com/athletic/5868781/2024/10/24/chicago-bulls-new-orleans-pelicans-nba-opener/
+
+**A Bazaar of Tamales, Arroz con Gandules and Fufu — on Facebook Marketplace**\
+`Facebook Marketplace, a platform often used for furniture and electronics, is an increasingly popular place to buy and sell home-cooked meals.`\
+https://nytimes.com/2024/10/24/us/facebook-marketplace-food.html
+
+**Is McDonald’s Quarter Pounder Too Big to Fail?**\
+`After an E. coli outbreak, McDonald’s stopped selling the Quarter Pounder in 12 states. The burger might take a hit for now, but its hold on customers will prevail, experts say.`\
+https://nytimes.com/2024/10/24/us/ecoli-mcdonalds-hamburgers-quarter-pounders-us-outbreak.html
+
 **Braves' Max Fried nearing free agency; catching prospect Drake Baldwin nearing MLB arrival**\
 `Fried's consistent performance and reputation as a tireless worker will factor into his price tag in free agency.`\
 https://nytimes.com/athletic/5868144/2024/10/24/braves-max-fried-drake-baldwin/
