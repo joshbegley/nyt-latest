@@ -1,3 +1,7 @@
+**Late Night Condemns Trump for Stanning Hitler**\
+`On Wednesday, Seth Meyers said he was “starting to think Trump doesn’t watch the ends of documentaries.”`\
+https://nytimes.com/2024/10/24/arts/television/late-night-trump-hitler.html
+
 **Dejounte Murray's fractured hand means Pelicans must again try to overcome injury adversity**\
 `The Pelicans will have to adjust again just one game into the regular season.`\
 https://nytimes.com/athletic/5868888/2024/10/24/dejounte-murray-hand-injury-pelicans-face-adversity-again/
