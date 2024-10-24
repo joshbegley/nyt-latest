@@ -1,3 +1,7 @@
+**A Very New York Party for New York Nico**\
+`At Astor Place Hairstylists, an old-school barbershop, small-business owners feted a social media star who spotlights the city’s gritty character.`\
+https://nytimes.com/2024/10/24/style/new-york-nico-book-party.html
+
 **Violence Surges in N.Y.C. Juvenile Jails After Influx of Older Teens**\
 `Since the Raise the Age law was passed, the number of older teenagers in juvenile centers has exploded, and workers have faced attacks, the Department of Investigation said.`\
 https://nytimes.com/2024/10/24/nyregion/nyc-crime-juvenile-jails-raise-the-age-law.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/5870478/2024/10/24/cincinnati-reds-pete-rose-visita
 **Mailbox Arson Damages Ballots in Phoenix**\
 `Arizona’s secretary of state said affected voters would be contacted, adding, “Any attack that strikes at our democratic process carries criminal consequences.”`\
 https://nytimes.com/2024/10/24/us/politics/mailbox-arson-phoenix-ballots.html
-
-**A Hurricane During Election Week? Don’t Worry Just Yet.**\
-`Maps spreading on social media show a storm hitting the United States the week of the election. But a lot more goes into a forecast than just one model run.`\
-https://nytimes.com/2024/10/24/weather/election-day-hurricane-east-coast.html
-
-**Abdelaziz Barrada, former Getafe and Marseille midfielder, dies aged 35**\
-`Former Morocco international Abdelaziz Barrada, best known for his time at Getafe and Marseille, has died at the age of 35.`\
-https://nytimes.com/athletic/5870422/2024/10/24/abdelaziz-barrada-death-morocco-getafe-marseille/
 
