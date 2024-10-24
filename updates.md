@@ -1,3 +1,7 @@
+**Scottie Barnes and Evan Mobley are worlds away from their past selves — and each other**\
+`Barnes has to try to carry the Raptors, while Mobley can merely support the Cavaliers. `\
+https://nytimes.com/athletic/5868642/2024/10/23/scottie-barnes-evan-mobley-raptors-cavaliers/
+
 **Georgia Secretary of State Fends Off Cyberattack Targeting Absentee Ballot Website**\
 `The attack may have come from a foreign country, said a Georgia official.`\
 https://nytimes.com/2024/10/23/us/politics/georgia-secretary-of-state-cyberattack.html
