@@ -1,6 +1,14 @@
+**DeAndre Hopkins ready to use ‘massive’ hands to uplift Patrick Mahomes, Chiefs offense**\
+`Hopkins, a 12-year player, is expected to play a small role in the Chiefs’ offense in Sunday’s game against the Raiders.`\
+https://nytimes.com/athletic/5870449/2024/10/24/deandre-hopkins-trade-chiefs-patrick-mahomes-impact/
+
 **Amid the glitz of Intuit Dome, Clippers know winning is what will really matter**\
 `It wasn’t a bad first night on their new stage, but the Clippers have work to do.`\
 https://nytimes.com/athletic/5868980/2024/10/24/clippers-intuit-dome-debut-winning/
+
+**NFL Week 8 fantasy football, betting cheat sheet: Puka Nacua, T.J. Hockenson out**\
+`Cooper Kupp, who has been surrounded by trade rumors, is expected to play Thursday night, too.`\
+https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-injuries-rankings-betting/
 
 **Patti McGee, Skateboarding’s First Female Champion, Dies at 79**\
 `She was on the cover of Life magazine and performed for Johnny Carson. “She was a badass and a goody two shoes at the same time,” her daughter said.`\
@@ -21,12 +29,4 @@ https://nytimes.com/2024/10/22/opinion/new-york-liberty-parade-win.html
 **Rams activate Nacua for TNF; Vikings wait another week for Hockenson**\
 `Vikings TE T.J. Hockenson is out vs. the Rams, but expected to be ready to play in Minnesota's Week 9 matchup against the Colts.`\
 https://nytimes.com/athletic/5870443/2024/10/24/puka-nacua-tj-hockenson-rams-vikings-tnf/
-
-**The Briefing: Fenerbahce 1 Manchester United 1 - Onana's double save and Mazraoui at No 10**\
-`Manchester United were held to a 1-1 draw away from home against Fenerbahce on Thursday night`\
-https://nytimes.com/athletic/5862940/2024/10/24/fenerbahce-manchester-united-result-report-analysis/
-
-**Angel Reese gets signature shoe with Reebok, set to debut in 2026**\
-`Ahead of her final collegiate season at LSU, Reese agreed to an NIL footwear and apparel partnership deal with Reebok.`\
-https://nytimes.com/athletic/5870593/2024/10/24/angel-reese-reebok-signature-shoe/
 

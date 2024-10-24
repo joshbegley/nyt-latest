@@ -1,3 +1,7 @@
+**Amid the glitz of Intuit Dome, Clippers know winning is what will really matter**\
+`It wasn’t a bad first night on their new stage, but the Clippers have work to do.`\
+https://nytimes.com/athletic/5868980/2024/10/24/clippers-intuit-dome-debut-winning/
+
 **Patti McGee, Skateboarding’s First Female Champion, Dies at 79**\
 `She was on the cover of Life magazine and performed for Johnny Carson. “She was a badass and a goody two shoes at the same time,” her daughter said.`\
 https://nytimes.com/2024/10/24/sports/patti-mcgee-dead.html
