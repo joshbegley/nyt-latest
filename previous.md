@@ -1,3 +1,7 @@
+**Trump Calls Out Biden Remark on ‘Lock Him Up’**\
+`While President Biden quickly said he was referring to his predecessor’s politics and not to jail time, Donald Trump said it was proof of his unfounded claim the president is behind his criminal cases.`\
+https://nytimes.com/2024/10/24/us/politics/trump-biden-election-interference.html
+
 **Harris Calls Trump a Fascist: 6 Takeaways From Her CNN Town Hall**\
 `Entering new rhetorical territory, the vice president turned even unrelated questions into attacks on Donald Trump as she offered long, winding answers to questions from voters.`\
 https://nytimes.com/2024/10/24/us/politics/harris-town-hall-cnn-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/world/asia/black-box-diaries-shiori-ito.html
 **Real Madrid have got by on moments of brilliance but concerns around defence persist**\
 `Ahead of this weekend’s table-topping Clasico, moments of individual quality have guided Madrid through a largely unconvincing start`\
 https://nytimes.com/athletic/5866325/2024/10/24/real-madrid-defensive-problems/
-
-**5 Key Questions Hanging Over the Lucy Letby ‘Killer Nurse’ Case**\
-`Ms. Letby, a neonatal nurse in England, was convicted of murdering seven babies last year. But a growing number of experts have raised concerns about the evidence.`\
-https://nytimes.com/2024/10/24/world/europe/lucy-letby-uk-trial-questions.html
 

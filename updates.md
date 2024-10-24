@@ -1,3 +1,7 @@
+**Trump Calls Out Biden Remark on ‘Lock Him Up’**\
+`While President Biden quickly said he was referring to his predecessor’s politics and not to jail time, Donald Trump said it was proof of his unfounded claim the president is behind his criminal cases.`\
+https://nytimes.com/2024/10/24/us/politics/trump-biden-election-interference.html
+
 **Harris Calls Trump a Fascist: 6 Takeaways From Her CNN Town Hall**\
 `Entering new rhetorical territory, the vice president turned even unrelated questions into attacks on Donald Trump as she offered long, winding answers to questions from voters.`\
 https://nytimes.com/2024/10/24/us/politics/harris-town-hall-cnn-takeaways.html
