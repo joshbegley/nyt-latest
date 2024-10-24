@@ -1,3 +1,15 @@
+**Anthony Davis gives Lakers an early dose of hope — and a long-awaited blueprint**\
+`In the Lakers' opening game, Anthony Davis looked like franchise centerpiece material as he extinguished Rudy Gobert's extension vibes.`\
+https://nytimes.com/athletic/5867923/2024/10/24/anthony-davis-rudy-gobert-lakers-wolves/
+
+**How Dodgers players drew inward and took control of their World Series quest**\
+`From watch parties during the division series to players-only plane rides, the Dodgers focused on learning how to trust each other.`\
+https://nytimes.com/athletic/5865429/2024/10/24/dodgers-world-series-players-only-meetings/
+
+**New York fans who grew up with Brooklyn Dodgers face a tough choice in this World Series**\
+`The team of their youth, or the team that represents the city they call home? It's a choice facing a select few this October. `\
+https://nytimes.com/athletic/5868377/2024/10/24/new-york-brooklyn-dodgers-fans-world-series/
+
 **What's next for Michigan with Playoff hopes gone? 5 things the Wolverines must do**\
 `Should freshman Jadyn Davis get a look at quarterback? Is Michigan ready for the portal? The Wolverines have a lot to figure out.`\
 https://nytimes.com/athletic/5867334/2024/10/24/michigans-college-football-playoff-hopes-are-dead-what-should-the-wolverines-do-now/
