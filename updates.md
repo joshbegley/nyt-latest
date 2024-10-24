@@ -1,3 +1,11 @@
+**Mancini leaves position as Saudi Arabia head coach**\
+`Roberto Mancini has left his position as Saudi Arabia head coach after 14 months in charge.`\
+https://nytimes.com/athletic/5849608/2024/10/24/roberto-mancini-saudi-arabia-head-coach-sacked/
+
+**Bobby Zamora becomes striker consultant for Brighton**\
+`Former England international Bobby Zamora has become a striker consultant for Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5869962/2024/10/24/bobby-zamora-brighton-striker-consultant/
+
 **Easy Dinners That Don’t Cause a Mess**\
 `Creamy tomato beans and greens, maraq misir and golden potato soup won’t dirty all your dishes (or splatter your just-cleaned countertops).`\
 https://nytimes.com/2024/10/24/dining/easy-dinners-that-dont-cause-a-mess.html
