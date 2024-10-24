@@ -1,3 +1,7 @@
+**Mexico City GP circuit breakdown: F1's highest altitude affects everything**\
+`Formula One has arrived at one of the highest circuits on its calendar: the Autódromo Hermanos Rodríguez.`\
+https://nytimes.com/athletic/5003029/2024/10/24/mexican-gp-f1-track-breakdown-autodromo-hermanos-rodriguez/
+
 **The French Connection to Online Bets on Trump**\
 `Polymarket said that it had linked a single trader to accounts that have wagered heavily on the Republican to win, pushing up his odds on the prediction market.`\
 https://nytimes.com/2024/10/24/business/dealbook/polymarket-trump-trader.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866892/2024/10/24/craig-berube-interview-blues-map
 **Phil Neville's finest hour? How Manchester United ended Arsenal's 49-game unbeaten run in 2004**\
 `Analysing the tactics that Sir Alex Ferguson employed to end the 'Invincibles' long unbeaten run`\
 https://nytimes.com/athletic/5846817/2024/10/24/manchester-united-arsenal-invincibles-defeated-2004/
-
-**Cushing swapped the WSL for MLS, so why are Arsenal keen to tempt him back?**\
-`Arsenal’s desire to recruit the New York City FC coach shows how difficult the managerial market is for elite women’s clubs`\
-https://nytimes.com/athletic/5869046/2024/10/24/nick-cushing-arsenal-new-york/
 
