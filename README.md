@@ -1,3 +1,7 @@
+**Reds hire Chris Valaika as hitting coach**\
+`Valaika, 39, comes from the Cleveland Guardians, where he had been the team’s hitting coach since 2022.`\
+https://nytimes.com/athletic/5870063/2024/10/24/reds-hire-chris-valaika-hitting-coach/
+
 **What We Saw at the Liberty Parade**\
 `By The New York Times`\
 https://nytimes.com/card/2024/10/24/nyregion/ny-liberty-parade-video
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/health/bird-flu-missouri.html
 **Mancini leaves position as Saudi Arabia head coach**\
 `Roberto Mancini has left his position as Saudi Arabia head coach after 14 months in charge.`\
 https://nytimes.com/athletic/5849608/2024/10/24/roberto-mancini-saudi-arabia-head-coach-sacked/
-
-**Bobby Zamora becomes striker consultant for Brighton**\
-`Former England international Bobby Zamora has become a striker consultant for Brighton &amp; Hove Albion.`\
-https://nytimes.com/athletic/5869962/2024/10/24/bobby-zamora-brighton-striker-consultant/
 
