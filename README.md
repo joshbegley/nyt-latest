@@ -1,3 +1,15 @@
+**In Georgia, Harris’s Muslim Backers Push Her as Better Than the Alternative**\
+`The Mideast war is threatening Vice President Kamala Harris’s support among Muslim and Arab American voters, a traditionally Democratic constituency, in critical swing states.`\
+https://nytimes.com/2024/10/24/us/politics/in-georgia-harriss-muslim-backers-push-her-as-better-than-the-alternative.html
+
+**Despite Deadly Attack, Turkey Seeks Opening With Kurdish Militants**\
+`Recent gestures by Turkish leaders suggest the possibility of new peace talks with the group fighting for Kurdish autonomy.`\
+https://nytimes.com/2024/10/24/world/middleeast/turkey-terrorist-attack-kurdish-peace-talks.html
+
+**The Summit in Russia Should Be a Wake-Up Call for the West**\
+`American-led institutions are losing the high ground.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/brics-summit-russia-china
+
 **This Library Book Was Due in 1923. It Was Returned Last Month.**\
 `A Colorado woman was decluttering, when she found something that had belonged to her grandmother: “Shakespeare’s Life of King Henry the Fifth.”`\
 https://nytimes.com/2024/10/24/nyregion/library-book-return-100-years-overdue.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5870188/2024/10/24/lions-jameson-williams-accepts-s
 **Michael Jackson, British General Who Disobeyed U.S. Superior, Dies at 80**\
 `Labeled “the Prince of Darkness,” he refused to follow an order by NATO’s commander during the Balkans war, saying, “It’s not worth starting World War III.”`\
 https://nytimes.com/2024/10/24/world/europe/gen-sir-michael-jackson-dead.html
-
-**Antonio Skármeta, Who Wrote of Chile’s Tears and Turmoil, Dies at 83**\
-`His literary career traced the arc of his country’s modern political journey in stories about ordinary citizens facing repression and arbitrary government.`\
-https://nytimes.com/2024/10/24/books/antonio-skarmeta-dead.html
-
-**Republicans challenged an Ohio Democrat’s residency as she faces a tough re-election race.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2024/10/24/us/harris-trump-election/republicans-challenged-an-ohio-democrats-residency-as-she-faces-a-tough-re-election-race
-
-**Bournemouth's Alex Scott out for X weeks after meniscus injury surgery**\
-`Bournemouth midfielder Alex Scott is set for a period on the sidelines after undergoing surgery on a meniscus injury.`\
-https://nytimes.com/athletic/5869927/2024/10/24/alex-scott-injury-bournemouth/
 
