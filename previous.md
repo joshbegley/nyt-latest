@@ -1,3 +1,7 @@
+**Aunt of 4-Year-Old Who Starved to Death Is Suing Child-Welfare Agency**\
+`Jahmeik Modlin’s parents have been charged with manslaughter in his death. His aunt’s suit accuses the city of failing to monitor his safety.`\
+https://nytimes.com/2024/10/24/nyregion/child-death-harlem-acs-lawsuit.html
+
 **Broncos WR Josh Reynolds injured in shooting Friday, team says**\
 `Reynolds, currently on IR, has been working out on a side field at Denver practices this week.`\
 https://nytimes.com/athletic/5870757/2024/10/24/broncos-josh-reynolds-shooting/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/5870718/2024/10/24/jose-mourinho-premier-league-ret
 **Golden Knights sign Shea Theodore to 7-year extension**\
 `The deal carries an average annual value of $7.425 million.`\
 https://nytimes.com/athletic/5870742/2024/10/24/golden-knights-shea-theodore-extension/
-
-**Philip Zimbardo, 91, Whose Stanford Prison Experiment Studied Evil, Dies**\
-`His provocative research made him a popular figure on campus. But his exploration of how good people can turn evil raised ethical questions.`\
-https://nytimes.com/2024/10/24/science/philip-zimbardo-dead.html
 
