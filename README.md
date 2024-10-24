@@ -1,3 +1,11 @@
+**There’s No One-Size-Fits-All Gift. But These Come Really Close. **\
+`By Hannah Morrill`\
+https://nytimes.com/card/2024/10/24/smarter-living/wirecutter/theres-no-one-size-fits-all-gift-but-these-come-really-close
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/10/24/books/review/new-books-recommendations.html
+
 **Jack Jones, a Suave, Hit-Making and Enduring Crooner, Dies at 86**\
 `With his smooth voice, he drew crowds to cabarets and music halls for six decades. He also sang the themes for films and TV shows, including “The Love Boat.”`\
 https://nytimes.com/2024/10/24/arts/music/jack-jones-dea.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-inju
 **Patti McGee, Skateboarding’s First Female Champion, Dies at 79**\
 `She was on the cover of Life magazine and performed for Johnny Carson. “She was a badass and a goody two shoes at the same time,” her daughter said.`\
 https://nytimes.com/2024/10/24/sports/patti-mcgee-dead.html
-
-**Iran Preparing for War With Israel, but Hoping to Avert It**\
-`Tehran has several plans for responding to a threatened retaliatory strike by Israel, depending on its severity, and might also do nothing, insiders say.`\
-https://nytimes.com/2024/10/24/world/middleeast/iran-israel-attack-plans.html
-
-**Friday Briefing: Stars Rally for Harris**\
-`Plus, an interview with the Taliban’s most fearsome leader.`\
-https://nytimes.com/2024/10/24/briefing/harris-ceasefire-gaza-afghanistan-taliban.html
 
