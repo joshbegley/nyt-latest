@@ -1,3 +1,11 @@
+**DeAndre Hopkins ready to use ‘massive’ hands to uplift Patrick Mahomes, Chiefs offense**\
+`Hopkins, a 12-year player, is expected to play a small role in the Chiefs’ offense in Sunday’s game against the Raiders.`\
+https://nytimes.com/athletic/5870449/2024/10/24/deandre-hopkins-trade-chiefs-patrick-mahomes-impact/
+
+**NFL Week 8 fantasy football, betting cheat sheet: Puka Nacua, T.J. Hockenson out**\
+`Cooper Kupp, who has been surrounded by trade rumors, is expected to play Thursday night, too.`\
+https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-injuries-rankings-betting/
+
 **Amid the glitz of Intuit Dome, Clippers know winning is what will really matter**\
 `It wasn’t a bad first night on their new stage, but the Clippers have work to do.`\
 https://nytimes.com/athletic/5868980/2024/10/24/clippers-intuit-dome-debut-winning/
