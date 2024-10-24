@@ -1,3 +1,19 @@
+**This Library Book Was Due in 1923. It Was Returned Last Month.**\
+`A Colorado woman was decluttering, when she found something that had belonged to her grandmother: “Shakespeare’s Life of King Henry the Fifth.”`\
+https://nytimes.com/2024/10/24/nyregion/library-book-return-100-years-overdue.html
+
+**The Dilemma Iran’s Leader Faces**\
+`Iran’s Supreme Leader now faces a critical choice: whether to pursue nuclear weapons.`\
+https://nytimes.com/2024/10/24/opinion/iran-israel-america.html
+
+**What’s Going On in This Graph? | Oct. 30, 2024**\
+`What issues are most important to U.S. voters? Who do you think swing voters are most likely to vote for?`\
+https://nytimes.com/2024/10/24/learning/whats-going-on-in-this-graph-oct-30-2024.html
+
+**What’s Going On in This Picture? | Oct. 28, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/10/24/learning/whats-going-on-in-this-picture-oct-28-2024.html
+
 **Silver: 49ers have been here before — can Kyle Shanahan's crew deliver a second-half rally?**\
 `The 49ers believe in their culture and their plan is to get right by beating the Cowboys and mounting a second-half charge.`\
 https://nytimes.com/athletic/5870088/2024/10/24/49ers-second-half-rally-trade-deadline-shanahan/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/10/24/us/harris-trump-election/republicans-challen
 **Bournemouth's Alex Scott out for X weeks after meniscus injury surgery**\
 `Bournemouth midfielder Alex Scott is set for a period on the sidelines after undergoing surgery on a meniscus injury.`\
 https://nytimes.com/athletic/5869927/2024/10/24/alex-scott-injury-bournemouth/
-
-**Canada Tightens Immigration After Years of Expansion**\
-`Saying that Canada had invited too many newcomers in, in too short a period of time, Prime Minister Justin Trudeau announced lower targets to slow population growth.`\
-https://nytimes.com/2024/10/24/world/canada/canada-immigration.html
-
-**Karch Kiraly named U.S. men's volleyball coach for 2028 Olympics**\
-`Kiraly is considered one of the sport's all-time greats who won two Olympic gold medals as an indoor men's player.`\
-https://nytimes.com/athletic/5870123/2024/10/24/karch-kiraly-usa-volleyball-men-olympics/
-
-**In High-Stakes Pennsylvania, Local Officials Have a Big Hand in Voting Rules**\
-`Since 2019, every Pennsylvanian has had a vote-by-mail option. But policies on drop boxes and mail-in ballot errors can vary across the state’s 67 counties.`\
-https://nytimes.com/2024/10/24/us/pennsylvania-voting-rules-mail-in-ballot-drop-boxes.html
-
-**Email From Boeing to Ethiopian Airlines Sheds Light on a Tragic Crash**\
-`Newly revealed correspondence indicates that a Boeing senior official counseled that the company could answer a pilot’s safety questions, but it did not.`\
-https://nytimes.com/2024/10/24/us/politics/boeing-email-ethiopian-airlines.html
 

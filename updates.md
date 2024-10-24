@@ -1,3 +1,19 @@
+**This Library Book Was Due in 1923. It Was Returned Last Month.**\
+`A Colorado woman was decluttering, when she found something that had belonged to her grandmother: “Shakespeare’s Life of King Henry the Fifth.”`\
+https://nytimes.com/2024/10/24/nyregion/library-book-return-100-years-overdue.html
+
+**The Dilemma Iran’s Leader Faces**\
+`Iran’s Supreme Leader now faces a critical choice: whether to pursue nuclear weapons.`\
+https://nytimes.com/2024/10/24/opinion/iran-israel-america.html
+
+**What’s Going On in This Graph? | Oct. 30, 2024**\
+`What issues are most important to U.S. voters? Who do you think swing voters are most likely to vote for?`\
+https://nytimes.com/2024/10/24/learning/whats-going-on-in-this-graph-oct-30-2024.html
+
+**What’s Going On in This Picture? | Oct. 28, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/10/24/learning/whats-going-on-in-this-picture-oct-28-2024.html
+
 **Silver: 49ers have been here before — can Kyle Shanahan's crew deliver a second-half rally?**\
 `The 49ers believe in their culture and their plan is to get right by beating the Cowboys and mounting a second-half charge.`\
 https://nytimes.com/athletic/5870088/2024/10/24/49ers-second-half-rally-trade-deadline-shanahan/
