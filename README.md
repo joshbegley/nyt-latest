@@ -1,3 +1,7 @@
+**Finger-Pointing if Trump Beats Harris**\
+`Readers discuss a column by Bret Stephens. Also: A flood of election mailers in Pennsylvania; speech on campus; fighting malaria.`\
+https://nytimes.com/2024/10/24/opinion/trump-harris.html
+
 **Notre Dame mailbag: Why do Irish struggle with WR recruiting? How is CJ Carr viewed?**\
 `Where does Notre Dame fit in the narrative of college football? And more in the Irish mailbag.`\
 https://nytimes.com/athletic/5869401/2024/10/24/notre-dame-football-college-playoff-scheduling/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/business/dealbook/southwest-airlines-elliott.html
 **Monique Knowlton, ’60s-Era Model and Provocative Gallerist, Dies at 87**\
 `A Vogue cover girl in the early 1960s, she later pivoted to contemporary art, opening a gallery where being “outrageous counts as a plus,” one critic wrote.`\
 https://nytimes.com/2024/10/24/arts/monique-knowlton-dead.html
-
-**As Harris Courts Republicans, the Left Grows Wary and Alienated**\
-`The vice president’s tack to the right, support for Israel in the Gaza war and incremental policy proposals have alienated progressives and raised worries about waning liberal energy.`\
-https://nytimes.com/2024/10/24/us/politics/kamala-harris-progressives-democrats.html
 
