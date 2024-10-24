@@ -1,3 +1,7 @@
+**NFL Week 8 fantasy football, betting cheat sheet: Puka Nacua might play Thursday**\
+`Cooper Kupp, who has been surrounded by trade rumors, is expected to play Thursday night. Could Puka Nacua join him?`\
+https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-injuries-rankings-betting/
+
 **Reds hire Chris Valaika as hitting coach**\
 `Valaika, 39, comes from the Cleveland Guardians, where he had been the team’s hitting coach since 2022.`\
 https://nytimes.com/athletic/5870063/2024/10/24/reds-hire-chris-valaika-hitting-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/us/politics/donald-trump-campaign-america-first-p
 **As Bird Flu Spreads, Additional Human Infection Is Reported in Missouri**\
 `Two people sharing a home caught the virus without known exposure to animals. More than 30 human cases have been reported in the United States.`\
 https://nytimes.com/2024/10/24/health/bird-flu-missouri.html
-
-**Mancini leaves position as Saudi Arabia head coach**\
-`Roberto Mancini has left his position as Saudi Arabia head coach after 14 months in charge.`\
-https://nytimes.com/athletic/5849608/2024/10/24/roberto-mancini-saudi-arabia-head-coach-sacked/
 
