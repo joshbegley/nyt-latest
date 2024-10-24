@@ -1,5 +1,5 @@
 **Army Sergeant’s Body Was Found in a Dumpster at a Missouri Base**\
-`A person of interest was taken into custody after Sergeant Sarah Roque, 23, was found dead at Fort Leonard Wood, according to Army officials.`\
+`A person of interest was taken into custody after Sgt. Sarah Roque, 23, was found dead at Fort Leonard Wood, according to Army officials.`\
 https://nytimes.com/2024/10/24/us/army-homicide-fort-leonard-wood.html
 
 **Ex-LAC trainer sues, says Kawhi Leonard was subjected to illegal treatment**\
