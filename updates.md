@@ -1,3 +1,7 @@
+**Word of the Day: detract**\
+`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/24/learning/word-of-the-day-detract.html
+
 **What We Learned Talking to the Taliban’s Most Fearsome Leader**\
 `Sirajuddin Haqqani, who has a $10 million American bounty on his head, is now positioning himself as a figure of relative moderation.`\
 https://nytimes.com/2024/10/24/world/asia/afghanistan-haqqani-what-we-learned.html
