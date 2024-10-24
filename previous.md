@@ -1,3 +1,11 @@
+**The Election Is Happening Too Soon**\
+`When we all think we’re right, we stay perennially stuck in place.`\
+https://nytimes.com/2024/10/24/opinion/polarization-harris-change.html
+
+**How Trump Could Bankrupt Social Security**\
+`Retirement benefits for millions of Americans are on the line.`\
+https://nytimes.com/2024/10/24/opinion/trump-social-security.html
+
 **Trump Seeks to Challenge Jack Smith’s Appointment in Election Case**\
 `The former president’s request to file a new motion contesting how the special counsel got his job came on the same day he vowed to fire him if re-elected.`\
 https://nytimes.com/2024/10/24/us/politics/trump-jack-smith-election-case.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/5870885/2024/10/24/mikey-moore-tottenham-ange-poste
 **Former Prep School Baseball Coach Charged With Sex Crimes Against Minors**\
 `Nicolas Morton, who worked for the Packer Collegiate Institute in Brooklyn, made boys run to exhaustion unless they exposed themselves to him, prosecutors said.`\
 https://nytimes.com/2024/10/24/nyregion/packer-baseball-coach-brooklyn-charges.html
-
-**What ‘Chicken Shop Date’ Reminds Us About Flirting**\
-`Amelia Dimoldenberg and Andrew Garfield’s long-running flirtationship highlights what’s missing from dating (and dating content) today.`\
-https://nytimes.com/2024/10/24/style/chicken-shop-date.html
-
-**Companies to Pay $101.9 Million to Settle Baltimore Bridge Collapse Lawsuit**\
-`The suit by the Justice Department was filed last month and laid out what investigators had learned about the ship’s short and catastrophic journey.`\
-https://nytimes.com/2024/10/24/us/baltimore-bridge-collapse-lawsuit-settlement.html
 

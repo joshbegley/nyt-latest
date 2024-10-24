@@ -1,3 +1,11 @@
+**The Election Is Happening Too Soon**\
+`When we all think we’re right, we stay perennially stuck in place.`\
+https://nytimes.com/2024/10/24/opinion/polarization-harris-change.html
+
+**How Trump Could Bankrupt Social Security**\
+`Retirement benefits for millions of Americans are on the line.`\
+https://nytimes.com/2024/10/24/opinion/trump-social-security.html
+
 **Trump Seeks to Challenge Jack Smith’s Appointment in Election Case**\
 `The former president’s request to file a new motion contesting how the special counsel got his job came on the same day he vowed to fire him if re-elected.`\
 https://nytimes.com/2024/10/24/us/politics/trump-jack-smith-election-case.html
