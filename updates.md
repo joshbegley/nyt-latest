@@ -1,3 +1,7 @@
+**Mexico City GP circuit breakdown: F1's highest altitude affects everything**\
+`Formula One has arrived at one of the highest circuits on its calendar: the Autódromo Hermanos Rodríguez.`\
+https://nytimes.com/athletic/5003029/2024/10/24/mexican-gp-f1-track-breakdown-autodromo-hermanos-rodriguez/
+
 **The French Connection to Online Bets on Trump**\
 `Polymarket said that it had linked a single trader to accounts that have wagered heavily on the Republican to win, pushing up his odds on the prediction market.`\
 https://nytimes.com/2024/10/24/business/dealbook/polymarket-trump-trader.html
