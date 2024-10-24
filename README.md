@@ -1,3 +1,7 @@
+**Oy, This Ad: Jewish Stereotypes in Service of Trump as a Safer Option**\
+`A new commercial from the Republican Jewish Coalition tries to give Jewish voters a rationale for voting for the former president, based on fear.`\
+https://nytimes.com/2024/10/24/us/politics/trump-ad-jewish-voters.html
+
 **Review: The Miraculous Simplicity of Patti Smith’s Childhood**\
 `At the Baryshnikov Arts Center, an adaptation of Smith’s poem-memoir “Woolgathering” features Smith reciting, others dancing and a surprise guest.`\
 https://nytimes.com/2024/10/24/arts/dance/review-woolgathering-patti-smith-mikhail-baryshnikov.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869401/2024/10/24/notre-dame-football-college-play
 **Scoop City: Six more trade proposals, ft. Myles Garrett, Maxx Crosby**\
 `Six potential trades that could shake up the NFL landscape before the deadline in two weeks — including a new edge rusher for the Bears.`\
 https://nytimes.com/athletic/5869843/2024/10/24/six-trade-proposals-including-myles-garrett-plus-healthy-star-returns-for-rams-vikings/
-
-**In This Biography, Mitch McConnell Hates Trump but Loves Power More**\
-`“The Price of Power,” by Michael Tackett, reveals a legislator for whom political survival has been a top priority — even when it means supporting a “sleazeball” for the presidency.`\
-https://nytimes.com/2024/10/24/books/review/the-price-of-power-michael-tackett.html
 
