@@ -1,3 +1,11 @@
+**Republicans challenged an Ohio Democrat’s residency as she faces a tough re-election race.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/10/24/us/harris-trump-election/republicans-challenged-an-ohio-democrats-residency-as-she-faces-a-tough-re-election-race
+
+**Bournemouth's Alex Scott out for X weeks after meniscus injury surgery**\
+`Bournemouth midfielder Alex Scott is set for a period on the sidelines after undergoing surgery on a meniscus injury.`\
+https://nytimes.com/athletic/5869927/2024/10/24/alex-scott-injury-bournemouth/
+
 **Canada Tightens Immigration After Years of Expansion**\
 `Saying that Canada had invited too many newcomers in, in too short a period of time, Prime Minister Justin Trudeau announced lower targets to slow population growth.`\
 https://nytimes.com/2024/10/24/world/canada/canada-immigration.html

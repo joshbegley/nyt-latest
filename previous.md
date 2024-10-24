@@ -1,3 +1,11 @@
+**Republicans challenged an Ohio Democrat’s residency as she faces a tough re-election race.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/10/24/us/harris-trump-election/republicans-challenged-an-ohio-democrats-residency-as-she-faces-a-tough-re-election-race
+
+**Bournemouth's Alex Scott out for X weeks after meniscus injury surgery**\
+`Bournemouth midfielder Alex Scott is set for a period on the sidelines after undergoing surgery on a meniscus injury.`\
+https://nytimes.com/athletic/5869927/2024/10/24/alex-scott-injury-bournemouth/
+
 **Canada Tightens Immigration After Years of Expansion**\
 `Saying that Canada had invited too many newcomers in, in too short a period of time, Prime Minister Justin Trudeau announced lower targets to slow population growth.`\
 https://nytimes.com/2024/10/24/world/canada/canada-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5869764/2024/10/24/miami-heat-jimmy-butler-magic-pa
 **College football Week 9 model-projected point differentials and totals for every game**\
 `Austin Mock's projection model has the predicted points differentials and totals for every FBS vs. FBS game in college football's Week 9.`\
 https://nytimes.com/athletic/5870080/2024/10/24/college-football-week-9-model-projections/
-
-**‘Back to the Future’ to Close on Broadway, Rerouting DeLorean to Germany**\
-`The musical, which opened in London three years ago, is still going strong there and touring North America, while productions are planned in Japan and on a cruise ship.`\
-https://nytimes.com/2024/10/24/theater/back-to-the-future-broadway-germany.html
-
-**Wildfires in the West Aren’t Just Getting Bigger. They’re Faster, Too.**\
-`In recent decades, fast-growing blazes were responsible for an outsize share of fire-related devastation, scientists found using satellite data.`\
-https://nytimes.com/2024/10/24/climate/western-wildfire-speed.html
 
