@@ -1,40 +1,40 @@
-**Bulls deal with 'worst-case scenario' in season-opening loss to Pelicans**\
-`Here are five early impressions from the Bulls’ season-opening loss to the New Orleans Pelicans on Wednesday.`\
-https://nytimes.com/athletic/5868781/2024/10/24/chicago-bulls-new-orleans-pelicans-nba-opener/
+**Vikings-Rams: Can Kevin O'Connell get the better of Sean McVay?**\
+`Thursday night's game marks the first matchup between McVay and O'Connell since they won a Super Bowl together with the Rams in early 2022.`\
+https://nytimes.com/athletic/5867310/2024/10/24/vikings-rams-preview-predictions-kevin-oconnell-sean-mcvay/
 
-**A Bazaar of Tamales, Arroz con Gandules and Fufu — on Facebook Marketplace**\
-`Facebook Marketplace, a platform often used for furniture and electronics, is an increasingly popular place to buy and sell home-cooked meals.`\
-https://nytimes.com/2024/10/24/us/facebook-marketplace-food.html
+**Fred Upton, Former G.O.P. Congressman Who Voted to Impeach Trump, Endorses Harris**\
+`The veteran Michigan Republican called the former president “unfit to serve,” and said Vice President Kamala Harris would work to bring people together.`\
+https://nytimes.com/2024/10/24/us/politics/fred-upton-endorses-harris.html
 
-**Is McDonald’s Quarter Pounder Too Big to Fail?**\
-`After an E. coli outbreak, McDonald’s stopped selling the Quarter Pounder in 12 states. The burger might take a hit for now, but its hold on customers will prevail, experts say.`\
-https://nytimes.com/2024/10/24/us/ecoli-mcdonalds-hamburgers-quarter-pounders-us-outbreak.html
+**At Blue Jackets intermission, grab a hot dog and nachos — and a word with the GM**\
+`Don Waddell makes himself available to chat with fans inside the arena and even gives out his email address.`\
+https://nytimes.com/athletic/5867825/2024/10/24/waddell-blue-jackets-fans/
 
-**Braves' Max Fried nearing free agency; catching prospect Drake Baldwin nearing MLB arrival**\
-`Fried's consistent performance and reputation as a tireless worker will factor into his price tag in free agency.`\
-https://nytimes.com/athletic/5868144/2024/10/24/braves-max-fried-drake-baldwin/
+**How much would Maxx Crosby help Lions? Model analyzes impact of 4 fun NFL trade proposals**\
+`The Lions need pass rush help. Crosby gives them the bigger boost, but Haason Reddick would cost far less. Which deal makes more sense?`\
+https://nytimes.com/athletic/5866711/2024/10/24/nfl-trade-projections-maxx-crosby-lions/
 
-**What can the Chiefs expect from DeAndre Hopkins, their new receiver?**\
-`Why the deal with the Titans made sense for the Chiefs, how Hopkins fits this season, and what it means for the future at receiver.`\
-https://nytimes.com/athletic/5867833/2024/10/24/chiefs-deandre-hopkins-trade-expectations/
+**12 Days to Go: French Fries and Fascism**\
+`Michael Barbaro sits down with the Times reporters Michael Schmidt, Lisa Lerer, Reid Epstein and Nate Cohn to discuss the latest developments in the presidential race.`\
+https://nytimes.com/video/podcasts/the-daily/100000009775970/election-trump-john-kelly.html
 
-**Listen: ‘The Push to Ban Phones in School’**\
-`More and more states are cracking down on students’ use of cellphones. Is that a good thing?`\
-https://nytimes.com/2024/10/24/learning/listen-the-push-to-ban-phones-in-school.html
+**Wait, NFL players eat how many Uncrustables?**\
+`Before practice, during training camp and in the halftime locker room, the sealed PB&J sandwiches are a favorite across the league.`\
+https://nytimes.com/athletic/5854102/2024/10/24/uncrustables-nfl/
 
-**Anthony Davis gives Lakers an early dose of hope — and a long-awaited blueprint**\
-`In the Lakers' opening game, Anthony Davis looked like franchise centerpiece material as he extinguished Rudy Gobert's extension vibes.`\
-https://nytimes.com/athletic/5867923/2024/10/24/anthony-davis-rudy-gobert-lakers-wolves/
+**NFL Draft watch: 4 rising prospects who deserve a shot on the playoff stage**\
+`Cam Ward and Ashton Jeanty are among the rising draft hopefuls who could benefit from a showcase playoff game against an elite opponent.`\
+https://nytimes.com/athletic/5866716/2024/10/24/nfl-draft-2025-ashton-jeanty-cam-ward/
 
-**How Dodgers players drew inward and took control of their World Series quest**\
-`From watch parties during the division series to players-only plane rides, the Dodgers focused on learning how to trust each other.`\
-https://nytimes.com/athletic/5865429/2024/10/24/dodgers-world-series-players-only-meetings/
+**Ravens All-Pro safety Kyle Hamilton is still chasing perfection**\
+`Now in his third season, Hamilton has already achieved first-team All-Pro status. But he's far from satisfied. Being good isn't good enough.`\
+https://nytimes.com/athletic/5865486/2024/10/24/ravens-kyle-hamilton-chasing-perfection/
 
-**New York fans who grew up with Brooklyn Dodgers face a tough choice in this World Series**\
-`The team of their youth, or the team that represents the city they call home? It's a choice facing a select few this October. `\
-https://nytimes.com/athletic/5868377/2024/10/24/new-york-brooklyn-dodgers-fans-world-series/
+**Return of the veteran RB? Derrick Henry, Saquon Barkley and early glimmers of a revival**\
+`It's early, but teams that splurged during RB musical chairs in March are getting what they paid for. So are teams that skimped.`\
+https://nytimes.com/athletic/5866834/2024/10/24/nfl-running-backs-derrick-henry-saquon-barkley/
 
-**What's next for Michigan with Playoff hopes gone? 5 things the Wolverines must do**\
-`Should freshman Jadyn Davis get a look at quarterback? Is Michigan ready for the portal? The Wolverines have a lot to figure out.`\
-https://nytimes.com/athletic/5867334/2024/10/24/michigans-college-football-playoff-hopes-are-dead-what-should-the-wolverines-do-now/
+**Maple Leafs prospect report: Reasons for optimism with Danford, Rifai and more**\
+`Early reasons for optimism, with particular attention paid to some of the newer additions to the Leafs' prospect pool.`\
+https://nytimes.com/athletic/5863918/2024/10/24/maple-leafs-prospect-report-reasons-for-optimism-with-danford-rifai-and-more/
 
