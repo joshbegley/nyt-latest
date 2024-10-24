@@ -1,3 +1,11 @@
+**Why Boeing Workers Rejected a New Contract: Retirement Benefits**\
+`A large majority of more than 33,000 striking union members voted against a contract that included big raises but not the restoration of a frozen pension plan.`\
+https://nytimes.com/2024/10/24/business/boeing-union-strike-pensions.html
+
+**Why Is North Korea Deploying Troops to Help Russia? Here’s What to Know.**\
+`The move gives Kim Jong-un, the leader of North Korea, leverage to ask President Vladimir V. Putin of Russia for a lot in return.`\
+https://nytimes.com/2024/10/24/us/politics/north-korea-russia-ukraine.html
+
 **Mideast Peace Talks to Resume, but No Sign Yet That Hamas Will Take Part**\
 `Israel and the United States plan to send envoys next week to negotiations in Qatar, as the related wars in Gaza and Lebanon rage on.`\
 https://nytimes.com/2024/10/24/world/middleeast/israel-hamas-talks-qatar.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5870422/2024/10/24/abdelaziz-barrada-death-morocco-
 **Zach Frazier's college injury might have saved rookie season with Steelers**\
 `The plate in Frazier's leg from his surgery last year might have saved him from another season-ending injury.`\
 https://nytimes.com/athletic/5870342/2024/10/24/zach-frazier-injury-steelers-center/
-
-**The Israeli military strikes a school turned shelter in Gaza that it says was hiding a Hamas command center.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/the-israeli-military-strikes-a-school-turned-shelter-in-gaza-that-it-says-was-hiding-a-hamas-command-center
-
-**‘Somebody Somewhere’ Is Back for Its Final Season**\
-`The HBO dramedy about a Kansas woman finding love and community after tragedy returns for its third and final season on Sunday.`\
-https://nytimes.com/2024/10/24/arts/television/somebody-somewhere.html
 

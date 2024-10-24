@@ -1,3 +1,11 @@
+**Why Boeing Workers Rejected a New Contract: Retirement Benefits**\
+`A large majority of more than 33,000 striking union members voted against a contract that included big raises but not the restoration of a frozen pension plan.`\
+https://nytimes.com/2024/10/24/business/boeing-union-strike-pensions.html
+
+**Why Is North Korea Deploying Troops to Help Russia? Here’s What to Know.**\
+`The move gives Kim Jong-un, the leader of North Korea, leverage to ask President Vladimir V. Putin of Russia for a lot in return.`\
+https://nytimes.com/2024/10/24/us/politics/north-korea-russia-ukraine.html
+
 **Mideast Peace Talks to Resume, but No Sign Yet That Hamas Will Take Part**\
 `Israel and the United States plan to send envoys next week to negotiations in Qatar, as the related wars in Gaza and Lebanon rage on.`\
 https://nytimes.com/2024/10/24/world/middleeast/israel-hamas-talks-qatar.html
