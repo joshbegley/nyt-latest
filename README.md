@@ -1,3 +1,7 @@
+**Pennsylvania Supreme Court Allows Provisional Votes After Mail Ballot Rejections**\
+`The decision is likely to affect thousands of mail-in ballots among the millions that will be cast in Pennsylvania, a pivotal 2024 swing state.`\
+https://nytimes.com/2024/10/23/us/politics/pennsylvania-provisional-votes.html
+
 **Review: Delia Ephron’s ‘Left on Tenth’ Treads Lightly**\
 `Julianna Margulies and Peter Gallagher star in this quasi romantic comedy adapted from Ephron’s memoir, which went deeper into her illness and grief.`\
 https://nytimes.com/2024/10/23/theater/review-left-on-tenth-delia-ephron.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5868028/2024/10/23/chicago-red-stars-rebrand-fans/
 **How the 2024 Election Became a Battle Fought by Podcast**\
 `Harris and Trump turn to digital venues with niche audiences to sway tiny slivers of the electorate.`\
 https://nytimes.com/2024/10/23/us/politics/harris-trump-podcasts.html
-
-**Fernandomania Wasn’t a Fairy Tale. It Was Better Than That.**\
-`Fernando Valenzuela, who died on Tuesday at age 63, was a teenage phenomenon from Mexico who remade the Dodgers’ fan base and put his country on the baseball map.`\
-https://nytimes.com/2024/10/23/style/fernando-valenzuela-fernandomania.html
 
