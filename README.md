@@ -1,3 +1,7 @@
+**Heat Today: Miami eyes Charlotte after offense fizzles in opening-night loss to Magic**\
+`Magic snap road losing streak to Heat as Miami regroups after opening-night blowout.`\
+https://nytimes.com/athletic/5869764/2024/10/24/miami-heat-jimmy-butler-magic-paolo-banchero-nba/
+
 **College football Week 9 model-projected point differentials and totals for every game**\
 `Austin Mock's projection model has the predicted points differentials and totals for every FBS vs. FBS game in college football's Week 9.`\
 https://nytimes.com/athletic/5870080/2024/10/24/college-football-week-9-model-projections/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-inju
 **Reds hire Chris Valaika as hitting coach**\
 `Valaika, 39, comes from the Cleveland Guardians, where he had been the team’s hitting coach since 2022.`\
 https://nytimes.com/athletic/5870063/2024/10/24/reds-hire-chris-valaika-hitting-coach/
-
-**What We Saw at the W.N.B.A. Championship Parade for the Liberty**\
-`By The New York Times`\
-https://nytimes.com/card/2024/10/24/nyregion/ny-liberty-parade-video
 

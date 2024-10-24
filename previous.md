@@ -1,3 +1,15 @@
+**College football Week 9 model-projected point differentials and totals for every game**\
+`Austin Mock's projection model has the predicted points differentials and totals for every FBS vs. FBS game in college football's Week 9.`\
+https://nytimes.com/athletic/5870080/2024/10/24/college-football-week-9-model-projections/
+
+**‘Back to the Future’ to Close on Broadway, Rerouting DeLorean to Germany**\
+`The musical, which opened in London three years ago, is still going strong there and touring North America, while productions are planned in Japan and on a cruise ship.`\
+https://nytimes.com/2024/10/24/theater/back-to-the-future-broadway-germany.html
+
+**Wildfires in the West Aren’t Just Getting Bigger. They’re Faster, Too.**\
+`In recent decades, fast-growing blazes were responsible for an outsize share of fire-related devastation, scientists found using satellite data.`\
+https://nytimes.com/2024/10/24/climate/western-wildfire-speed.html
+
 **In Mexico City, F1 Teams Must Cope With the Altitude**\
 `The thinner air affects the cars in many ways, including the performance of the turbo engines, brakes and tires. “It’s like driving in the wet,” the driver Lance Stroll of Aston Martin said.`\
 https://nytimes.com/2024/10/24/sports/autoracing/f1-mexico-city-altitude.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5870063/2024/10/24/reds-hire-chris-valaika-hitting-
 **What We Saw at the W.N.B.A. Championship Parade for the Liberty**\
 `By The New York Times`\
 https://nytimes.com/card/2024/10/24/nyregion/ny-liberty-parade-video
-
-**Commanders rookie scored first TD on 'Taylor Swift' play**\
-`Kliff Kingsbury confirmed the Commanders have a "bunch" of plays dedicated to pop stars, plus another named "Kelce."`\
-https://nytimes.com/athletic/5869891/2024/10/24/commanders-taylor-swift-touchdown-play-call/
-
-**Can Biological Engineering Change the World?**\
-`Altering the DNA of living organisms could be an early step in re-engineering the natural world to help curb climate change.`\
-https://nytimes.com/2024/10/24/climate/biological-engineering-climate-change.html
-
-**King to return to Arsenal as director of football operations**\
-`James King, a former Arsenal executive, is set to return to the club as director of football operations.`\
-https://nytimes.com/athletic/5869757/2024/10/24/arsenal-james-king-football-operations/
 
