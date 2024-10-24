@@ -1,10 +1,18 @@
+**Tina S. Kaidanow, 59, Diplomatic Force in Kosovo and Guantánamo, Dies**\
+`She was the first U.S. ambassador to a newly independent Balkans nation and recently oversaw the transfer of cooperating Guantánamo prisoners to third countries.`\
+https://nytimes.com/2024/10/24/us/politics/tina-s-kaidanow-dead.html
+
+**A Sweet Diwali, New York Style**\
+`For many New Yorkers from the Caribbean, Diwali is marked with sweet treats like prasad.`\
+https://nytimes.com/2024/10/24/dining/indo-caribbean-diwali.html
+
 **In Georgia, Harris Risks a Split in the Muslim and Arab Vote**\
 `Muslim and Arab voters were part of the coalition in Georgia who delivered victories to Democrats there in 2020 and in 2022. Maya King, a politics reporter for The New York Times covering the Southeast, describes how war in the Middle East is affecting their choice in 2024.`\
 https://nytimes.com/video/us/politics/100000009774269/in-georgia-harris-risks-a-split-in-the-muslim-and-arab-vote.html
 
 **In Georgia, Harris’s Muslim Backers Push Her as Better Than the Alternative**\
 `The Mideast war is threatening Vice President Kamala Harris’s support among Muslim and Arab American voters, a traditionally Democratic constituency, in critical swing states.`\
-https://nytimes.com/2024/10/24/us/politics/in-georgia-harriss-muslim-backers-push-her-as-better-than-the-alternative.html
+https://nytimes.com/2024/10/24/us/politics/harris-georgia-muslim-arab-voters.html
 
 **Despite Deadly Attack, Turkey Seeks Opening With Kurdish Militants**\
 `Recent gestures by Turkish leaders suggest the possibility of new peace talks with the group fighting for Kurdish autonomy.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/learning/whats-going-on-in-this-graph-oct-30-2024
 **What’s Going On in This Picture? | Oct. 28, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/10/24/learning/whats-going-on-in-this-picture-oct-28-2024.html
-
-**Silver: 49ers have been here before — can Kyle Shanahan's crew deliver a second-half rally?**\
-`The 49ers believe in their culture and their plan is to get right by beating the Cowboys and mounting a second-half charge.`\
-https://nytimes.com/athletic/5870088/2024/10/24/49ers-second-half-rally-trade-deadline-shanahan/
-
-**Lions' Jameson Williams accepts 2-game suspension**\
-`Williams will be eligible for reinstatement after Detroit's Week 9 game against the Green Bay Packers.`\
-https://nytimes.com/athletic/5870188/2024/10/24/lions-jameson-williams-accepts-suspension/
 
