@@ -1,3 +1,7 @@
+**3 Arrested in Sri Lanka Over Possible Threats Against Israeli Tourists**\
+`The arrests, all of Sri Lankans, came a day after the U.S. and Israel issued warnings to its citizens to avoid a popular tourist area.`\
+https://nytimes.com/2024/10/24/world/middleeast/sri-lanka-israel-us-warning-arugam-bay.html
+
 **England's Williamson 'happy to be in different environment' after tough start with Arsenal**\
 `England captain Leah Williamson says she is happy to be back with her national team after a &#8220;different&#8221; start to the season with Arsenal.`\
 https://nytimes.com/athletic/5869331/2024/10/24/leah-williamson-arsenal-england/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/lebanon-
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/24/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Frenzy in Battlegrounds as Campaigns Urge Voters to Polls**\
-`Donald Trump is heading to Arizona and Las Vegas, while Kamala Harris holds a star-studded rally in Atlanta. Their running mates and surrogates will be in Michigan, North Carolina and Wisconsin.`\
-https://nytimes.com/live/2024/10/24/us/harris-trump-election
 
