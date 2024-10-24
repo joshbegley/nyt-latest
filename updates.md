@@ -1,3 +1,11 @@
+**Braves' Max Fried nearing free agency; catching prospect Drake Baldwin nearing MLB arrival**\
+`Fried's consistent performance and reputation as a tireless worker will factor into his price tag in free agency.`\
+https://nytimes.com/athletic/5868144/2024/10/24/braves-max-fried-drake-baldwin/
+
+**What can the Chiefs expect from DeAndre Hopkins, their new receiver?**\
+`Why the deal with the Titans made sense for the Chiefs, how Hopkins fits this season, and what it means for the future at receiver.`\
+https://nytimes.com/athletic/5867833/2024/10/24/chiefs-deandre-hopkins-trade-expectations/
+
 **Listen: ‘The Push to Ban Phones in School’**\
 `More and more states are cracking down on students’ use of cellphones. Is that a good thing?`\
 https://nytimes.com/2024/10/24/learning/listen-the-push-to-ban-phones-in-school.html
