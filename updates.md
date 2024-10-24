@@ -1,3 +1,11 @@
+**Man Is Arrested After Shootings at Democratic Campaign Office in Arizona**\
+`The authorities said they believed the suspect was “preparing to commit an act of mass casualty.”`\
+https://nytimes.com/2024/10/23/us/politics/arizona-dnc-office-shootings-arrest.html
+
+**Liberty's CFP hopes all but over after stunning loss to Kennesaw State**\
+`It’s the first regular-season loss for Liberty under second-year coach Jamey Chadwell and the first FBS win for Kennesaw State's program.`\
+https://nytimes.com/athletic/5868644/2024/10/23/liberty-kennesaw-state-college-football-playoff/
+
 **Giants 'not making any changes this season,' John Mara says**\
 `Mara addressed the future of GM Joe Schoen and coach Brian Daboll, saying he still has “confidence in both of them."`\
 https://nytimes.com/athletic/5868612/2024/10/23/john-mara-giants-brian-daboll-change/
