@@ -1,3 +1,11 @@
+**Canada Tightens Immigration After Years of Expansion**\
+`Saying that Canada had invited too many newcomers in, in too short a period of time, Prime Minister Justin Trudeau announced lower targets to slow population growth.`\
+https://nytimes.com/2024/10/24/world/canada/canada-immigration.html
+
+**Karch Kiraly named U.S. men's volleyball coach for 2028 Olympics**\
+`Kiraly is considered one of the sport's all-time greats who won two Olympic gold medals as an indoor men's player.`\
+https://nytimes.com/athletic/5870123/2024/10/24/karch-kiraly-usa-volleyball-men-olympics/
+
 **In High-Stakes Pennsylvania, Local Officials Have a Big Hand in Voting Rules**\
 `Since 2019, every Pennsylvanian has had a vote-by-mail option. But policies on drop boxes and mail-in ballot errors can vary across the state’s 67 counties.`\
 https://nytimes.com/2024/10/24/us/pennsylvania-voting-rules-mail-in-ballot-drop-boxes.html

@@ -1,3 +1,11 @@
+**Canada Tightens Immigration After Years of Expansion**\
+`Saying that Canada had invited too many newcomers in, in too short a period of time, Prime Minister Justin Trudeau announced lower targets to slow population growth.`\
+https://nytimes.com/2024/10/24/world/canada/canada-immigration.html
+
+**Karch Kiraly named U.S. men's volleyball coach for 2028 Olympics**\
+`Kiraly is considered one of the sport's all-time greats who won two Olympic gold medals as an indoor men's player.`\
+https://nytimes.com/athletic/5870123/2024/10/24/karch-kiraly-usa-volleyball-men-olympics/
+
 **In High-Stakes Pennsylvania, Local Officials Have a Big Hand in Voting Rules**\
 `Since 2019, every Pennsylvanian has had a vote-by-mail option. But policies on drop boxes and mail-in ballot errors can vary across the state’s 67 counties.`\
 https://nytimes.com/2024/10/24/us/pennsylvania-voting-rules-mail-in-ballot-drop-boxes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/theater/back-to-the-future-broadway-germany.html
 **Wildfires in the West Aren’t Just Getting Bigger. They’re Faster, Too.**\
 `In recent decades, fast-growing blazes were responsible for an outsize share of fire-related devastation, scientists found using satellite data.`\
 https://nytimes.com/2024/10/24/climate/western-wildfire-speed.html
-
-**In Mexico City, F1 Teams Must Cope With the Altitude**\
-`The thinner air affects the cars in many ways, including the performance of the turbo engines, brakes and tires. “It’s like driving in the wet,” the driver Lance Stroll of Aston Martin said.`\
-https://nytimes.com/2024/10/24/sports/autoracing/f1-mexico-city-altitude.html
-
-**Union Votes to Reject Boeing Contract and Continue Strike**\
-`Workers in Boeing’s largest union voted by a wide margin to reject a second tentative contract and extend a nearly six-week-long strike.`\
-https://nytimes.com/video/us/100000009780270/boeing-strike-vote-machinists-union.html
 
