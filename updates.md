@@ -1,3 +1,11 @@
+**Iran Preparing for War With Israel, but Hoping to Avert It**\
+`Tehran has several plans for responding to a threatened retaliatory strike by Israel, depending on its severity, and might also do nothing, insiders say.`\
+https://nytimes.com/2024/10/24/world/middleeast/iran-israel-attack-plans.html
+
+**Friday Briefing: Stars Rally for Harris**\
+`Plus, an interview with the Taliban’s most fearsome leader.`\
+https://nytimes.com/2024/10/24/briefing/harris-ceasefire-gaza-afghanistan-taliban.html
+
 **Cheering for the New York Liberty’s Historic Victory**\
 `Why does women’s basketball feel so good?`\
 https://nytimes.com/2024/10/22/opinion/new-york-liberty-parade-win.html
