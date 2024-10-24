@@ -1,3 +1,15 @@
+**Tucker Carlson Tells Crowd Trump Will Give Country a ‘Spanking’**\
+`The former Fox News host used a bizarre extended metaphor at a rally in Georgia where Donald J. Trump spoke.`\
+https://nytimes.com/live/2024/10/24/us/harris-trump-election/tucker-carlson-trump-spanking
+
+**As Election Looms, Justice Dept. Tries to Steer Clear of Politics**\
+`A department memo seeks to formalize a pre-election “quiet period” in which senior officials should avoid unnecessary high-profile moves.`\
+https://nytimes.com/2024/10/24/us/politics/justice-department-election.html
+
+**Fantasy basketball roundup: Rui Hachimura, Dyson Daniels and more NBA opening night standouts**\
+`After watching the first two nights of NBA regular-season action, Stan Son shares his observations, including notable developments in LA.`\
+https://nytimes.com/athletic/5869698/2024/10/24/fantasy-basketball-roundup-ropening-night-standouts-sleepers/
+
 **Trump Says He’ll Fire Special Counsel Who Indicted Him if He Wins Again**\
 `The former president’s remarks to a conservative radio host were his most pointed about the special counsel, Jack Smith, if he returns to the White House.`\
 https://nytimes.com/2024/10/24/us/politics/trump-jack-smith.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/24/world/middleeast/israel-iran-war.html
 **Oy, This Ad: Jewish Stereotypes in Service of Trump as a Safer Option**\
 `A new commercial from the Republican Jewish Coalition tries to give Jewish voters a rationale for voting for the former president, based on fear.`\
 https://nytimes.com/2024/10/24/us/politics/trump-ad-jewish-voters.html
-
-**Review: The Miraculous Simplicity of Patti Smith’s Childhood**\
-`At the Baryshnikov Arts Center, an adaptation of Smith’s poem-memoir “Woolgathering” features Smith reciting, others dancing and a surprise guest.`\
-https://nytimes.com/2024/10/24/arts/dance/review-woolgathering-patti-smith-mikhail-baryshnikov.html
-
-**Grizzly Bear 399, Mother of 18 Cubs, Is Killed by Driver**\
-`She lived to 28, roaming the Yellowstone area with her many offspring while becoming a favorite among both residents and visitors.`\
-https://nytimes.com/2024/10/24/science/grizzly-bear-399-killed.html
-
-**Food Supplier Recalls Onions Linked to E. Coli Outbreak and McDonald’s Quarter Pounders**\
-`Officials said the onions served atop the popular hamburger were the likely source of an E. coli outbreak that has killed one person and sickened many others.`\
-https://nytimes.com/2024/10/24/health/mcdonalds-ecoli-quarter-pounders-recall.html
 

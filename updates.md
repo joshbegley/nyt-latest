@@ -1,3 +1,15 @@
+**Tucker Carlson Tells Crowd Trump Will Give Country a ‘Spanking’**\
+`The former Fox News host used a bizarre extended metaphor at a rally in Georgia where Donald J. Trump spoke.`\
+https://nytimes.com/live/2024/10/24/us/harris-trump-election/tucker-carlson-trump-spanking
+
+**As Election Looms, Justice Dept. Tries to Steer Clear of Politics**\
+`A department memo seeks to formalize a pre-election “quiet period” in which senior officials should avoid unnecessary high-profile moves.`\
+https://nytimes.com/2024/10/24/us/politics/justice-department-election.html
+
+**Fantasy basketball roundup: Rui Hachimura, Dyson Daniels and more NBA opening night standouts**\
+`After watching the first two nights of NBA regular-season action, Stan Son shares his observations, including notable developments in LA.`\
+https://nytimes.com/athletic/5869698/2024/10/24/fantasy-basketball-roundup-ropening-night-standouts-sleepers/
+
 **Trump Says He’ll Fire Special Counsel Who Indicted Him if He Wins Again**\
 `The former president’s remarks to a conservative radio host were his most pointed about the special counsel, Jack Smith, if he returns to the White House.`\
 https://nytimes.com/2024/10/24/us/politics/trump-jack-smith.html
