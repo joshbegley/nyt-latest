@@ -1,3 +1,7 @@
+**Man Is Arrested After Shootings at Democratic Campaign Office in Arizona**\
+`The authorities said they believed the suspect was “preparing to commit an act of mass casualty.”`\
+https://nytimes.com/2024/10/23/us/politics/arizona-dnc-office-shootings-arrest.html
+
 **Liberty's CFP hopes all but over after stunning loss to Kennesaw State**\
 `It’s the first regular-season loss for Liberty under second-year coach Jamey Chadwell and the first FBS win for Kennesaw State's program.`\
 https://nytimes.com/athletic/5868644/2024/10/23/liberty-kennesaw-state-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/pageoneplus/corrections-oct-24-2024.html
 **Therapist Is Charged With Distributing Child Sex Abuse Imagery**\
 `Renee Hoberman, a licensed social worker on Long Island, used messaging platforms to share graphic videos of infants being abused, prosecutors said.`\
 https://nytimes.com/2024/10/23/nyregion/renee-hoberman-long-island-child-therapist-pornography.html
-
-**Pennsylvania Supreme Court Allows Provisional Votes After Mail Ballot Rejections**\
-`The decision is likely to affect thousands of mail-in ballots among the millions that will be cast in Pennsylvania, a pivotal 2024 swing state.`\
-https://nytimes.com/2024/10/23/us/politics/pennsylvania-provisional-votes.html
 
