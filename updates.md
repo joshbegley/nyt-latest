@@ -1,3 +1,19 @@
+**‘Conclave’ Review: Serpents and Doves Amok in the Vatican**\
+`This film, based on Robert Harris’s 2016 thriller of the same title, centers on a British cardinal (a sensational Ralph Fiennes), and a campaign for a new pope.`\
+https://nytimes.com/2024/10/24/movies/conclave-review.html
+
+**The Group at the Center of Trump’s Planning for a Second Term Is One You Haven’t Heard of**\
+`America First Policy Institute didn’t even exist four years ago. But it is poised to be more influential than Project 2025.`\
+https://nytimes.com/2024/10/24/us/politics/donald-trump-campaign-america-first-policy-institute.html
+
+**As Bird Flu Spreads, Additional Human Infection Is Reported in Missouri**\
+`Two people sharing a home caught the virus without known exposure to animals. More than 30 human cases have been reported in the United States.`\
+https://nytimes.com/2024/10/24/health/bird-flu-missouri.html
+
+**Tucker Carlson Tells Crowd Trump Will Give Country a ‘Spanking’**\
+`The former Fox News host used a bizarre extended metaphor at a rally in Georgia where Donald J. Trump spoke.`\
+https://nytimes.com/2024/10/24/us/politics/tucker-carlson-trump-spanking.html
+
 **Mancini leaves position as Saudi Arabia head coach**\
 `Roberto Mancini has left his position as Saudi Arabia head coach after 14 months in charge.`\
 https://nytimes.com/athletic/5849608/2024/10/24/roberto-mancini-saudi-arabia-head-coach-sacked/
