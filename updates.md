@@ -1,3 +1,7 @@
+**Monique Knowlton, ‘Mad Men’ Era Model and Bold Gallerist, Dies at 87**\
+`A Vogue cover girl in the early 1960s, she later pivoted to contemporary art, opening a gallery where being “outrageous counts as a plus,” one critic wrote.`\
+https://nytimes.com/2024/10/24/arts/monique-knowlton-dead.html
+
 **As Harris Courts Republicans, the Left Grows Wary and Alienated**\
 `The vice president’s tack to the right, support for Israel in the Gaza war and incremental policy proposals have alienated progressives and raised worries about waning liberal energy.`\
 https://nytimes.com/2024/10/24/us/politics/kamala-harris-progressives-democrats.html

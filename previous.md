@@ -1,3 +1,7 @@
+**Monique Knowlton, ‘Mad Men’ Era Model and Bold Gallerist, Dies at 87**\
+`A Vogue cover girl in the early 1960s, she later pivoted to contemporary art, opening a gallery where being “outrageous counts as a plus,” one critic wrote.`\
+https://nytimes.com/2024/10/24/arts/monique-knowlton-dead.html
+
 **As Harris Courts Republicans, the Left Grows Wary and Alienated**\
 `The vice president’s tack to the right, support for Israel in the Gaza war and incremental policy proposals have alienated progressives and raised worries about waning liberal energy.`\
 https://nytimes.com/2024/10/24/us/politics/kamala-harris-progressives-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/blinken-
 **Cooper Kupp trade rumors: Ranking the best fantasy football fits**\
 `The 49ers could be a perfect scheme fit, but would L.A. send Kupp to rival San Francisco? What about the battered Bucs?`\
 https://nytimes.com/athletic/5867069/2024/10/24/cooper-kupp-trade-rumors-fantasy-football-fits/
-
-**Unexplained Enigmas in the Orion Nebula May Be Victims of Stellar Bullying**\
-`Astronomers offered a new hypothesis for what created pairs of objects nicknamed JuMBOs, while other scientists argue they may not really exist.`\
-https://nytimes.com/2024/10/24/science/james-webb-space-telescope-orion-nebula-jumbos.html
 
