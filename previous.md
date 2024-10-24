@@ -1,40 +1,40 @@
-**Four Atletico fans arrested over alleged hate campaign against Vinicius Jr**\
-`Four Atletico Madrid supporters allegedly responsible for coordinating a hate campaign against Vinicius Junior have been arrested.`\
-https://nytimes.com/athletic/5869043/2024/10/24/vinicius-junior-atletico-madrid-fans-campaign/
+**2025 NFL Draft order projections: Are any top-10 teams ready to take the QB leap?**\
+`How did Week 7 shake up the potential 2025 NFL Draft order?`\
+https://nytimes.com/athletic/5866677/2024/10/24/nfl-draft-order-2025-projections-week-7/
 
-**The Pulse: First NBA impressions**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5868591/2024/10/24/kennesaw-state-liberty-upset-the-pulse/
+**Key Twins players optimistic about working with new hitting coach Matt Borgschulte**\
+`Said Ryan Jeffers: "I think there's a lot of really good qualities about him that are going to play great in this role.”`\
+https://nytimes.com/athletic/5868418/2024/10/24/twins-optimism-new-hitting-coach-matt-borgschulte/
 
-**Ole Miss built a $10M roster to reach the 12-team Playoff. With 2 losses, now what?**\
-`The Rebels can still make the Playoff, though the odds are steeper. "This isn't a one-shot wonder," says the Ole Miss athletic director.`\
-https://nytimes.com/athletic/5867884/2024/10/24/ole-miss-college-football-playoff-nil/
+**Craig Berube one-on-one: Ex-Blues coach on why it was 'time to move on' and life with the Leafs**\
+`"In this game, you have a certain time limit," said Berube, who won the Stanley Cup as Blues coach in 2019 and was fired last season.`\
+https://nytimes.com/athletic/5866892/2024/10/24/craig-berube-interview-blues-maple-leafs/
 
-**America’s Embrace of Marijuana**\
-`Why public opinion has changed so quickly.`\
-https://nytimes.com/2024/10/24/briefing/americas-embrace-of-marijuana.html
+**Phil Neville's finest hour? How Manchester United ended Arsenal's 49-game unbeaten run in 2004**\
+`Analysing the tactics that Sir Alex Ferguson employed to end the 'Invincibles' long unbeaten run`\
+https://nytimes.com/athletic/5846817/2024/10/24/manchester-united-arsenal-invincibles-defeated-2004/
 
-**Here are the latest developments.**\
-`By Michael Crowley and Cassandra Vinograd`\
-https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/here-are-the-latest-developments
+**Cushing swapped the WSL for MLS, so why are Arsenal keen to tempt him back?**\
+`Arsenal’s desire to recruit the New York City FC coach shows how difficult the managerial market is for elite women’s clubs`\
+https://nytimes.com/athletic/5869046/2024/10/24/nick-cushing-arsenal-new-york/
 
-**Live Updates: U.S. Pushes ‘New Frameworks’ for Gaza Cease-Fire**\
-`With talks stalled on a long-term truce between Israel and Hamas, Secretary of State Antony J. Blinken signaled U.S. willingness to support a shorter pause in fighting.`\
-https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran
+**‘Road Diary: Bruce Springsteen and the E Street Band’ Review: A Mission**\
+`At 75, Springsteen is doggedly committed to live performance. This documentary chronicles how he keeps up on tour, and why.`\
+https://nytimes.com/2024/10/24/movies/road-diary-bruce-springsteen-and-the-e-street-band-review.html
 
-**Arsenal's Odegaard on track to return next month, says Norway coach**\
-`Norway head coach Stale Solbakken says Arsenal captain Martin Odegaard is on track to return for the November international break.`\
-https://nytimes.com/athletic/5869067/2024/10/24/martin-odegaard-injury-update-arsenal/
+**‘My Name Is Alfred Hitchcock’ Review: Director’s Commentary**\
+`A richly detailed essay film imagines Hitchcock commenting on his own oeuvre over a mesmerizing daisy chain of clips.`\
+https://nytimes.com/2024/10/24/movies/my-name-is-alfred-hitchcock-review-directors-commentary.html
 
-**Vikings-Rams: Can Kevin O'Connell get the better of Sean McVay?**\
-`Thursday night's game marks the first matchup between McVay and O'Connell since they won a Super Bowl together with the Rams in early 2022.`\
-https://nytimes.com/athletic/5867310/2024/10/24/vikings-rams-preview-predictions-kevin-oconnell-sean-mcvay/
+**Wild talking contract with Rossi? Trade to replace Spurgeon? Boldy for 4 Nations? Ask Russo, part 1**\
+`Also in the Wild mailbag: Already time to panic over Trenin? What free agents should they target next summer? And what now with the goalies?`\
+https://nytimes.com/athletic/5867327/2024/10/24/wild-rossi-spurgeon-boldy-kaprizov-mailbag/
 
-**Fred Upton, Former G.O.P. Congressman Who Voted to Impeach Trump, Endorses Harris**\
-`The veteran Michigan Republican called the former president “unfit to serve,” and said Vice President Kamala Harris would work to bring people together.`\
-https://nytimes.com/2024/10/24/us/politics/fred-upton-endorses-harris.html
+**‘Magpie’ Review: An Unhappily Married Woman**\
+`Daisy Ridley plays a time bomb with a simmering fuse in this slow yet gripping adultery thriller.`\
+https://nytimes.com/2024/10/24/movies/magpie-review.html
 
-**At Blue Jackets intermission, grab a hot dog and nachos — and a word with the GM**\
-`Don Waddell makes himself available to chat with fans inside the arena and even gives out his email address.`\
-https://nytimes.com/athletic/5867825/2024/10/24/waddell-blue-jackets-fans/
+**‘La Cocina’ Review: The Melting Pot Boils Over**\
+`This drama by Alonso Ruizpalacios takes a bitter look at the American dream from the perspective of the workers at a fast-paced diner.`\
+https://nytimes.com/2024/10/24/movies/la-cocina-review.html
 
