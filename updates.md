@@ -1,3 +1,7 @@
+**Take The Athletic’s 2024 college football TV survey**\
+`College football fans have as many opinions about how their games are covered on television as they do about the games themselves.`\
+https://nytimes.com/athletic/5869487/2024/10/24/college-football-tv-networks-survey/
+
 **Officially Utah Royals’ head coach, Jimmy Coenraets is already planning for the future**\
 `Coenraets led the Royals to five wins, two draws, and only three losses — he is now ready to build the side for a better 2025`\
 https://nytimes.com/athletic/5868203/2024/10/24/utah-royals-hire-jimmy-coenraets-2027/
