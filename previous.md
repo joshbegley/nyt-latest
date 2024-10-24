@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 AZ 0: Moore's Neymar impression, Werner struggles and Richarlison boost**\
+`Ange Postecoglu and James Maddison heaped praise on Moore, Spurs' rising 17-year-old superstar, as the team maintained fine European form`\
+https://nytimes.com/athletic/5862965/2024/10/24/tottenham-moore-werner-richarlison-dragusin-az/
+
+**Postecoglou says 'hard to keep a lid' on Tottenham's Moore**\
+`Ange Postecoglou has praised Mikey Moore’s maturity but admitted it will be “pretty hard to keep a lid” on the Tottenham Hotspur winger’s talent after he was compared to Neymar by James Maddison.`\
+https://nytimes.com/athletic/5870885/2024/10/24/mikey-moore-tottenham-ange-postecoglou/
+
 **Former Prep School Baseball Coach Charged With Sex Crimes Against Minors**\
 `Nicolas Morton, who worked for the Packer Collegiate Institute in Brooklyn, made boys run to exhaustion unless they exposed themselves to him, prosecutors said.`\
 https://nytimes.com/2024/10/24/nyregion/packer-baseball-coach-brooklyn-charges.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/5870757/2024/10/24/broncos-josh-reynolds-shooting/
 **Making Masterpieces With Elmer’s Glue and Mustard Seeds **\
 `Crop artists create painstaking mosaics and portraits that can take hundreds of hours of work. And there’s no bigger showcase for them than the Minnesota State Fair.`\
 https://nytimes.com/card/2024/10/24/arts/crop-seed-art-minnesota
-
-**As Election Day Nears, Democrats Test Just How Powerful Abortion Really Is**\
-`They hope the issue helps their candidates. But some voters may support Republican candidates as well as abortion-rights ballot measures.`\
-https://nytimes.com/2024/10/24/us/politics/trump-harris-abortion-rights.html
-
-**Until Saturday: Playoff hope crusher, plus Week 9 viewer guide**\
-`Welcome to Until Saturday, the five-star college football newsletter: Kennesaw State breaks through with its first FBS win.`\
-https://nytimes.com/athletic/5869328/2024/10/24/kennesaw-state-liberty-college-football-playoff-until-saturday/
 

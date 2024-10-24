@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 AZ 0: Moore's Neymar impression, Werner struggles and Richarlison boost**\
+`Ange Postecoglu and James Maddison heaped praise on Moore, Spurs' rising 17-year-old superstar, as the team maintained fine European form`\
+https://nytimes.com/athletic/5862965/2024/10/24/tottenham-moore-werner-richarlison-dragusin-az/
+
+**Postecoglou says 'hard to keep a lid' on Tottenham's Moore**\
+`Ange Postecoglou has praised Mikey Moore’s maturity but admitted it will be “pretty hard to keep a lid” on the Tottenham Hotspur winger’s talent after he was compared to Neymar by James Maddison.`\
+https://nytimes.com/athletic/5870885/2024/10/24/mikey-moore-tottenham-ange-postecoglou/
+
 **Former Prep School Baseball Coach Charged With Sex Crimes Against Minors**\
 `Nicolas Morton, who worked for the Packer Collegiate Institute in Brooklyn, made boys run to exhaustion unless they exposed themselves to him, prosecutors said.`\
 https://nytimes.com/2024/10/24/nyregion/packer-baseball-coach-brooklyn-charges.html
