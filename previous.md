@@ -1,3 +1,15 @@
+**Unexplained Enigmas in the Orion Nebula May Be Victims of Stellar Bullying**\
+`Astronomers offered a new hypothesis for what created pairs of objects nicknamed JuMBOs, while other scientists argue they may not really exist.`\
+https://nytimes.com/2024/10/24/science/james-webb-space-telescope-orion-nebula-jumbos.html
+
+**Hurricanes mailbag: Alexander Nikishin, the cap and LTIR, the Wolves mess and more**\
+`How well are the Hurricanes set up for future seasons?`\
+https://nytimes.com/athletic/5868954/2024/10/24/carolina-hurricanes-mailbag-alexander-nikishin-the-cap-the-wolves-mess-and-more/
+
+**‘Truly Just Divine’ Weeknight Tantanmen**\
+`Hetty Lui McKinnon’s hearty tantanmen with fried tofu is soothing, spicy and — crucially — doable after a busy day.`\
+https://nytimes.com/2024/10/24/dining/truly-just-divine-weeknight-tantanmen.html
+
 **The Bounce: Opening night of NBA League Pass was glorious.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5869610/2024/10/24/nba-league-pass-victor-wembanyama-spurs-nba-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5867579/2024/10/24/victor-wembanyama-spurs-lebron-j
 **Branthwaite in line to return vs Fulham after recovering from quad injury**\
 `Jarrad Branthwaite is in line to return for Everton’s game against Fulham in the Premier League this weekend after overcoming a quad injury.`\
 https://nytimes.com/athletic/5869540/2024/10/24/jarrad-branthwaite-everton-fulham/
-
-**Penalty shootout defeats are still defeats. It's time to count them as such**\
-`It's not their fault but Manchester City's 'record' of 26-game unbeaten Champions League games is a nonsense`\
-https://nytimes.com/athletic/5869373/2024/10/24/penalty-shoot-out-defeats-record/
-
-**Take The Athletic’s 2024 college football TV survey**\
-`College football fans have as many opinions about how their games are covered on television as they do about the games themselves.`\
-https://nytimes.com/athletic/5869487/2024/10/24/college-football-tv-networks-survey/
-
-**Officially Utah Royals’ head coach, Jimmy Coenraets is already planning for the future**\
-`Coenraets led the Royals to five wins, two draws, and only three losses — he is now ready to build the side for a better 2025`\
-https://nytimes.com/athletic/5868203/2024/10/24/utah-royals-hire-jimmy-coenraets-2027/
 

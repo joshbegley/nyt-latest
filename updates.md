@@ -1,3 +1,15 @@
+**Unexplained Enigmas in the Orion Nebula May Be Victims of Stellar Bullying**\
+`Astronomers offered a new hypothesis for what created pairs of objects nicknamed JuMBOs, while other scientists argue they may not really exist.`\
+https://nytimes.com/2024/10/24/science/james-webb-space-telescope-orion-nebula-jumbos.html
+
+**Hurricanes mailbag: Alexander Nikishin, the cap and LTIR, the Wolves mess and more**\
+`How well are the Hurricanes set up for future seasons?`\
+https://nytimes.com/athletic/5868954/2024/10/24/carolina-hurricanes-mailbag-alexander-nikishin-the-cap-the-wolves-mess-and-more/
+
+**‘Truly Just Divine’ Weeknight Tantanmen**\
+`Hetty Lui McKinnon’s hearty tantanmen with fried tofu is soothing, spicy and — crucially — doable after a busy day.`\
+https://nytimes.com/2024/10/24/dining/truly-just-divine-weeknight-tantanmen.html
+
 **The Bounce: Opening night of NBA League Pass was glorious.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5869610/2024/10/24/nba-league-pass-victor-wembanyama-spurs-nba-the-bounce/
