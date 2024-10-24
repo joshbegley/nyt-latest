@@ -1,3 +1,7 @@
+**Easy Dinners That Don’t Cause a Mess**\
+`Creamy tomato beans and greens, maraq misir and golden potato soup won’t dirty all your dishes (or splatter your just-cleaned countertops).`\
+https://nytimes.com/2024/10/24/dining/easy-dinners-that-dont-cause-a-mess.html
+
 **Tucker Carlson Tells Crowd Trump Will Give Country a ‘Spanking’**\
 `The former Fox News host used a bizarre extended metaphor at a rally in Georgia where Donald J. Trump spoke.`\
 https://nytimes.com/live/2024/10/24/us/harris-trump-election/tucker-carlson-trump-spanking
