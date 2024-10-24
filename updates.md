@@ -1,3 +1,7 @@
+**'Us winning cannot solely be on Joel Embiid': Sixers lose season opener without their MVP**\
+`Philadelphia struggled without the injured Embiid and Paul George, leaving the team with more questions to answer.`\
+https://nytimes.com/athletic/5868763/2024/10/24/joel-embiid-sixers-lose-season-opener/
+
 **Sixers lose season opener without their MVP: 'Us winning cannot solely be on Joel Embiid'**\
 `Philadelphia struggled without the injured Embiid and Paul George, leaving the team with more questions to answer.`\
 https://nytimes.com/athletic/5868763/2024/10/24/joel-embiid-sixers-lose-season-opener/
