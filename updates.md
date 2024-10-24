@@ -1,3 +1,11 @@
+**The Bounce: Opening night of NBA League Pass was glorious.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5869610/2024/10/24/nba-league-pass-victor-wembanyama-spurs-nba-the-bounce/
+
+**France backs expansion of Lebanon’s army, and will give €100 million to aid displaced Lebanese, Macron says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/france-backs-expansion-of-lebanons-army-and-will-give-100-million-to-aid-displaced-lebanese-macron-says
+
 **Trump Flirts With the Ultimate Tax Cut: No Taxes at All**\
 `The former president has repeatedly praised a period in American history when there was no income tax, and the country relied on tariffs to fund the government.`\
 https://nytimes.com/2024/10/24/us/politics/donald-trump-tax-policy.html
