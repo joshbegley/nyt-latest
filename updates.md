@@ -1,3 +1,7 @@
+**Four Atletico fans arrested over alleged hate campaign against Vinicius Jr**\
+`Four Atletico Madrid supporters allegedly responsible for coordinating a hate campaign against Vinicius Junior have been arrested.`\
+https://nytimes.com/athletic/5869043/2024/10/24/vinicius-junior-atletico-madrid-fans-campaign/
+
 **The Pulse: First NBA impressions**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5868591/2024/10/24/kennesaw-state-liberty-upset-the-pulse/
