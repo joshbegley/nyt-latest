@@ -1,3 +1,7 @@
+**The Menendez Brothers May Soon Be Free: The True Crime Boom and Changing Attitudes**\
+`A thriving genre built on podcasts and documentaries, coupled with younger generations’ more skeptical worldview, helped revitalize interest in this case and others like it.`\
+https://nytimes.com/2024/10/24/arts/true-crime-boom-menendez-brothers.html
+
 **DeAndre Hopkins ready to use ‘massive’ hands to uplift Patrick Mahomes, Chiefs offense**\
 `Hopkins, a 12-year player, is expected to play a small role in the Chiefs’ offense in Sunday’s game against the Raiders.`\
 https://nytimes.com/athletic/5870449/2024/10/24/deandre-hopkins-trade-chiefs-patrick-mahomes-impact/
@@ -25,8 +29,4 @@ https://nytimes.com/2024/10/24/briefing/harris-ceasefire-gaza-afghanistan-taliba
 **Cheering for the New York Liberty’s Historic Victory**\
 `Why does women’s basketball feel so good?`\
 https://nytimes.com/2024/10/22/opinion/new-york-liberty-parade-win.html
-
-**Rams activate Nacua for TNF; Vikings wait another week for Hockenson**\
-`Vikings TE T.J. Hockenson is out vs. the Rams, but expected to be ready to play in Minnesota's Week 9 matchup against the Colts.`\
-https://nytimes.com/athletic/5870443/2024/10/24/puka-nacua-tj-hockenson-rams-vikings-tnf/
 
