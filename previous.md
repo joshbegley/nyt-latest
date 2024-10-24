@@ -1,3 +1,11 @@
+**Healthy and happy, Alex Turcotte is making his mark with the Kings at last**\
+`After years of injury setbacks, Turcotte is off to an effective start to the NHL season in a regular role with increased responsibility.`\
+https://nytimes.com/athletic/5868953/2024/10/24/nhl-alex-turcotte-la-kings-season/
+
+**U.K. Plans to Ban Disposable Vapes Next Year**\
+`The measure in England, which the government said was likely to be matched in Scotland and Wales, aims to protect young people’s health and reduce environmental damage.`\
+https://nytimes.com/2024/10/24/world/europe/uk-disposable-vapes-ban.html
+
 **The Yankees and Dodgers are both in the World Series. No mascots will be there**\
 `Twenty-eight MLB teams have their own mascots. The only two that don't will face off in this year's Fall Classic. `\
 https://nytimes.com/athletic/5868748/2024/10/24/yankees-dodgers-mascots-world-series/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/world/europe/russia-north-korea.html
 **An American in Paris, Honored Like Nobody Before**\
 `The artist Barbara Chase-Riboud hadn’t had a show in her adopted city since 1974. Now she is being celebrated in eight museums, including the Louvre.`\
 https://nytimes.com/2024/10/24/arts/design/barbara-chase-riboud-paris.html
-
-**What We Know About the Militant Attack in Turkey**\
-`After the assault on an aerospace complex in Ankara, Turkey struck sites of the Kurdistan Workers’ Party and its affiliates in Syria and Iraq.`\
-https://nytimes.com/2024/10/24/world/middleeast/turkey-attack-who-what.html
-
-**Quinn Hughes' defensive mastery, what I'm seeing from Elias Pettersson and more**\
-`The vibes around Vancouver are good after three consecutive wins, and the positive momentum is building.`\
-https://nytimes.com/athletic/5866976/2024/10/24/canucks-quinn-hughes-elias-pettersson/
 

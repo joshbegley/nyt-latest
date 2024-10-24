@@ -1,3 +1,11 @@
+**Healthy and happy, Alex Turcotte is making his mark with the Kings at last**\
+`After years of injury setbacks, Turcotte is off to an effective start to the NHL season in a regular role with increased responsibility.`\
+https://nytimes.com/athletic/5868953/2024/10/24/nhl-alex-turcotte-la-kings-season/
+
+**U.K. Plans to Ban Disposable Vapes Next Year**\
+`The measure in England, which the government said was likely to be matched in Scotland and Wales, aims to protect young people’s health and reduce environmental damage.`\
+https://nytimes.com/2024/10/24/world/europe/uk-disposable-vapes-ban.html
+
 **The Yankees and Dodgers are both in the World Series. No mascots will be there**\
 `Twenty-eight MLB teams have their own mascots. The only two that don't will face off in this year's Fall Classic. `\
 https://nytimes.com/athletic/5868748/2024/10/24/yankees-dodgers-mascots-world-series/
