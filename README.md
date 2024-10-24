@@ -1,3 +1,7 @@
+**Arsenal's Odegaard on track to return next month, says Norway coach**\
+`Norway head coach Stale Solbakken says Arsenal captain Martin Odegaard is on track to return for the November international break.`\
+https://nytimes.com/athletic/5869067/2024/10/24/martin-odegaard-injury-update-arsenal/
+
 **Vikings-Rams: Can Kevin O'Connell get the better of Sean McVay?**\
 `Thursday night's game marks the first matchup between McVay and O'Connell since they won a Super Bowl together with the Rams in early 2022.`\
 https://nytimes.com/athletic/5867310/2024/10/24/vikings-rams-preview-predictions-kevin-oconnell-sean-mcvay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5865486/2024/10/24/ravens-kyle-hamilton-chasing-per
 **Return of the veteran RB? Derrick Henry, Saquon Barkley and early glimmers of a revival**\
 `It's early, but teams that splurged during RB musical chairs in March are getting what they paid for. So are teams that skimped.`\
 https://nytimes.com/athletic/5866834/2024/10/24/nfl-running-backs-derrick-henry-saquon-barkley/
-
-**Maple Leafs prospect report: Reasons for optimism with Danford, Rifai and more**\
-`Early reasons for optimism, with particular attention paid to some of the newer additions to the Leafs' prospect pool.`\
-https://nytimes.com/athletic/5863918/2024/10/24/maple-leafs-prospect-report-reasons-for-optimism-with-danford-rifai-and-more/
 
