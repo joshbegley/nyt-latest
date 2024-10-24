@@ -1,3 +1,7 @@
+**The Long, Syncopated Journey to Beyoncé’s Exaltation**\
+`It starts with Scott Joplin. And it’s got a beat you can’t resist. `\
+https://nytimes.com/2024/10/24/opinion/scott-joplin-george-gershwin-and-beyonce.html
+
 **Tina S. Kaidanow, 59, Diplomatic Force in Kosovo and Guantánamo, Dies**\
 `She was the first U.S. ambassador to a newly independent Balkans nation and recently oversaw the transfer of cooperating Guantánamo prisoners to third countries.`\
 https://nytimes.com/2024/10/24/us/politics/tina-s-kaidanow-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/opinion/iran-israel-america.html
 **What’s Going On in This Graph? | Oct. 30, 2024**\
 `What issues are most important to U.S. voters? Who do you think swing voters are most likely to vote for?`\
 https://nytimes.com/2024/10/24/learning/whats-going-on-in-this-graph-oct-30-2024.html
-
-**What’s Going On in This Picture? | Oct. 28, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/10/24/learning/whats-going-on-in-this-picture-oct-28-2024.html
 
