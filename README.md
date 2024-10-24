@@ -1,4 +1,4 @@
-**Jack Jones, a Sauve, Hit-Making and Enduring Crooner, Dies at 86**\
+**Jack Jones, a Suave, Hit-Making and Enduring Crooner, Dies at 86**\
 `With his smooth voice, he drew crowds to cabarets and music halls for six decades. He also sang the themes for films and TV shows, including “The Love Boat.”`\
 https://nytimes.com/2024/10/24/arts/music/jack-jones-dea.html
 
