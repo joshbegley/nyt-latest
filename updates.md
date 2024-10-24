@@ -1,3 +1,7 @@
+**Can Donald Trump or Kamala Harris Bring Back Manufacturing Jobs?**\
+`Both candidates tout plans that promise to help the country make things again. Canton, Ohio, is an example of the steep challenge.`\
+https://nytimes.com/interactive/2024/10/23/us/elections/trump-harris-manufacturing-policy.html
+
 **Man Is Arrested After Shootings at Democratic Campaign Office in Arizona**\
 `The authorities said they believed the suspect was “preparing to commit an act of mass casualty.”`\
 https://nytimes.com/2024/10/23/us/politics/arizona-dnc-office-shootings-arrest.html
