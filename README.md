@@ -1,3 +1,7 @@
+**Clippers pin hopes on James Harden to usher in new era: 'We need him to be special'**\
+`Harden couldn't deliver in the clutch in a loss to the Suns in the Intuit Dome opener, but he's the one healthy star the Clippers have left.`\
+https://nytimes.com/athletic/5868882/2024/10/24/clippers-james-harden-season-opener/
+
 **How tennis rankings actually work - points, races, and positions**\
 `The men's and women's tennis tours use similar methodologies when ranking players — here's how the rankings are put together`\
 https://nytimes.com/athletic/5847687/2024/10/24/tennis-rankings-how-players-ranked-atp-wta-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869331/2024/10/24/leah-williamson-arsenal-england/
 **Can Steve Kerr and the Warriors really keep deploying a 12-man rotation?**\
 `Wednesday's blowout win over the Blazers allowed Kerr to spread minutes deep into his roster. Can the strategy last?`\
 https://nytimes.com/athletic/5868651/2024/10/24/warriors-steve-kerr-12-man-rotation-depth/
-
-**Checking in on Big Ten's first coast-to-coast season: Does conference have concerns?**\
-`In addition to the long flights and late nights, updates on Friday night games and a glimpse at the 2025 schedule. `\
-https://nytimes.com/athletic/5867880/2024/10/24/big-ten-football-scheduling-travel/
 
