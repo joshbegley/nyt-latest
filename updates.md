@@ -1,3 +1,7 @@
+**In Georgia, Harris Risks a Split in the Muslim and Arab Vote**\
+`Muslim and Arab voters were part of the coalition in Georgia who delivered victories to Democrats there in 2020 and in 2022. Maya King, a politics reporter for The New York Times covering the Southeast, describes how war in the Middle East is affecting their choice in 2024.`\
+https://nytimes.com/video/us/politics/100000009774269/in-georgia-harris-risks-a-split-in-the-muslim-and-arab-vote.html
+
 **In Georgia, Harris’s Muslim Backers Push Her as Better Than the Alternative**\
 `The Mideast war is threatening Vice President Kamala Harris’s support among Muslim and Arab American voters, a traditionally Democratic constituency, in critical swing states.`\
 https://nytimes.com/2024/10/24/us/politics/in-georgia-harriss-muslim-backers-push-her-as-better-than-the-alternative.html
