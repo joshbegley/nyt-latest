@@ -1,3 +1,7 @@
+**Pennsylvania Supreme Court Allows Provisional Votes After Mail Ballot Rejections**\
+`The decision is likely to affect thousands of mail-in ballots among the millions that will be cast in Pennsylvania, a pivotal 2024 swing state.`\
+https://nytimes.com/2024/10/23/us/politics/pennsylvania-provisional-votes.html
+
 **Review: Delia Ephron’s ‘Left on Tenth’ Treads Lightly**\
 `Julianna Margulies and Peter Gallagher star in this quasi romantic comedy adapted from Ephron’s memoir, which went deeper into her illness and grief.`\
 https://nytimes.com/2024/10/23/theater/review-left-on-tenth-delia-ephron.html
