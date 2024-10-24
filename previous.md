@@ -1,3 +1,7 @@
+**The Israeli military strikes a school turned shelter in Gaza that it says was hiding a Hamas command center.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/the-israeli-military-strikes-a-school-turned-shelter-in-gaza-that-it-says-was-hiding-a-hamas-command-center
+
 **‘Somebody Somewhere’ Is Back for Its Final Season**\
 `The HBO dramedy about a Kansas woman finding love and community after tragedy returns for its third and final season on Sunday.`\
 https://nytimes.com/2024/10/24/arts/television/somebody-somewhere.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/us/politics/tina-s-kaidanow-dead.html
 **A Sweet Diwali, New York Style**\
 `For many New Yorkers from the Caribbean, Diwali is marked with sweet treats like prasad.`\
 https://nytimes.com/2024/10/24/dining/indo-caribbean-diwali.html
-
-**In Georgia, Harris Risks a Split in the Muslim and Arab Vote**\
-`Muslim and Arab voters were part of the coalition in Georgia who delivered victories to Democrats there in 2020 and in 2022. Maya King, a politics reporter for The New York Times covering the Southeast, describes how war in the Middle East is affecting their choice in 2024.`\
-https://nytimes.com/video/us/politics/100000009774269/in-georgia-harris-risks-a-split-in-the-muslim-and-arab-vote.html
 

@@ -1,3 +1,7 @@
+**The Israeli military strikes a school turned shelter in Gaza that it says was hiding a Hamas command center.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/the-israeli-military-strikes-a-school-turned-shelter-in-gaza-that-it-says-was-hiding-a-hamas-command-center
+
 **‘Somebody Somewhere’ Is Back for Its Final Season**\
 `The HBO dramedy about a Kansas woman finding love and community after tragedy returns for its third and final season on Sunday.`\
 https://nytimes.com/2024/10/24/arts/television/somebody-somewhere.html
