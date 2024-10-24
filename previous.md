@@ -1,3 +1,7 @@
+**Trump Says He’ll Fire Special Counsel Who Indicted Him if He Wins Again**\
+`The former president’s remarks to a conservative radio host were his most pointed about the special counsel, Jack Smith, if he returns to the White House.`\
+https://nytimes.com/2024/10/24/us/politics/trump-jack-smith.html
+
 **Netflix Wanted ‘Wuthering Heights.’ Margot Robbie Wanted a Theatrical Release.**\
 `In the end, Ms. Robbie got what she wanted, signing a deal with Warner Bros.`\
 https://nytimes.com/2024/10/24/business/media/margot-robbie-wuthering-heights-warner-bros.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/science/grizzly-bear-399-killed.html
 **Food Supplier Recalls Onions Linked to E. Coli Outbreak and McDonald’s Quarter Pounders**\
 `Officials said the onions served atop the popular hamburger were the likely source of an E. coli outbreak that has killed one person and sickened many others.`\
 https://nytimes.com/2024/10/24/health/mcdonalds-ecoli-quarter-pounders-recall.html
-
-**Champions League projections: All the talking points from Matchday 3**\
-`Aston Villa's perfect start continued - but how much did this week's results hurt the likes of Paris Saint-Germain and Atletico Madrid?`\
-https://nytimes.com/athletic/5869713/2024/10/24/champions-league-projections-matchday-3-talking-points/
 

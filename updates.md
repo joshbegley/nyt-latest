@@ -1,3 +1,7 @@
+**Trump Says He’ll Fire Special Counsel Who Indicted Him if He Wins Again**\
+`The former president’s remarks to a conservative radio host were his most pointed about the special counsel, Jack Smith, if he returns to the White House.`\
+https://nytimes.com/2024/10/24/us/politics/trump-jack-smith.html
+
 **Netflix Wanted ‘Wuthering Heights.’ Margot Robbie Wanted a Theatrical Release.**\
 `In the end, Ms. Robbie got what she wanted, signing a deal with Warner Bros.`\
 https://nytimes.com/2024/10/24/business/media/margot-robbie-wuthering-heights-warner-bros.html
