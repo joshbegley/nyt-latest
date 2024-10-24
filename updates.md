@@ -1,3 +1,7 @@
+**The Athletic FC: Raphinha - a symbol of Barca revival. Plus: Battle of the Buffet relived**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
+https://nytimes.com/athletic/5869124/2024/10/24/raphinha-barca-bayern-mls-season-switch/
+
 **Mexico City GP circuit breakdown: F1's highest altitude affects everything**\
 `Formula One has arrived at one of the highest circuits on its calendar: the Autódromo Hermanos Rodríguez.`\
 https://nytimes.com/athletic/5003029/2024/10/24/mexican-gp-f1-track-breakdown-autodromo-hermanos-rodriguez/
