@@ -1,4 +1,12 @@
-**The Briefing: Fenerbahce 1 Manchester United 1 — Onana's double save and Mazraoui at No 10**\
+**Cheering for the New York Liberty’s Historic Victory**\
+`Why does women’s basketball feel so good?`\
+https://nytimes.com/2024/10/22/opinion/new-york-liberty-parade-win.html
+
+**Rams activate Nacua for TNF; Vikings wait another week for Hockenson**\
+`Vikings TE T.J. Hockenson is out vs. the Rams, but expected to be ready to play in Minnesota's Week 9 matchup against the Colts.`\
+https://nytimes.com/athletic/5870443/2024/10/24/puka-nacua-tj-hockenson-rams-vikings-tnf/
+
+**The Briefing: Fenerbahce 1 Manchester United 1 - Onana's double save and Mazraoui at No 10**\
 `Manchester United were held to a 1-1 draw away from home against Fenerbahce on Thursday night`\
 https://nytimes.com/athletic/5862940/2024/10/24/fenerbahce-manchester-united-result-report-analysis/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/24/business/boeing-union-strike-pensions.html
 **Why Is North Korea Deploying Troops to Help Russia? Here’s What to Know.**\
 `The move gives Kim Jong-un, the leader of North Korea, leverage to ask President Vladimir V. Putin of Russia for a lot in return.`\
 https://nytimes.com/2024/10/24/us/politics/north-korea-russia-ukraine.html
-
-**Mideast Peace Talks to Resume, but No Sign Yet That Hamas Will Take Part**\
-`Israel and the United States plan to send envoys next week to negotiations in Qatar, as the related wars in Gaza and Lebanon rage on.`\
-https://nytimes.com/2024/10/24/world/middleeast/israel-hamas-talks-qatar.html
-
-**Asheville Has Tap Water, but No One Knows When It Will Be Drinkable**\
-`People in the storm-hit area can resume flushing toilets and taking showers, but the water is often yellow or brown. Officials are asking for patience with repair efforts.`\
-https://nytimes.com/2024/10/24/us/asheville-nc-drinking-water-helene.html
 

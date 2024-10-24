@@ -1,3 +1,15 @@
+**Cheering for the New York Liberty’s Historic Victory**\
+`Why does women’s basketball feel so good?`\
+https://nytimes.com/2024/10/22/opinion/new-york-liberty-parade-win.html
+
+**Rams activate Nacua for TNF; Vikings wait another week for Hockenson**\
+`Vikings TE T.J. Hockenson is out vs. the Rams, but expected to be ready to play in Minnesota's Week 9 matchup against the Colts.`\
+https://nytimes.com/athletic/5870443/2024/10/24/puka-nacua-tj-hockenson-rams-vikings-tnf/
+
+**The Briefing: Fenerbahce 1 Manchester United 1 - Onana's double save and Mazraoui at No 10**\
+`Manchester United were held to a 1-1 draw away from home against Fenerbahce on Thursday night`\
+https://nytimes.com/athletic/5862940/2024/10/24/fenerbahce-manchester-united-result-report-analysis/
+
 **The Briefing: Fenerbahce 1 Manchester United 1 — Onana's double save and Mazraoui at No 10**\
 `Manchester United were held to a 1-1 draw away from home against Fenerbahce on Thursday night`\
 https://nytimes.com/athletic/5862940/2024/10/24/fenerbahce-manchester-united-result-report-analysis/
