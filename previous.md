@@ -1,3 +1,7 @@
+**Luton call out 'cowardly' racist abuse of Adebayo: 'Is it ever going to stop?'**\
+`Luton Town have said they are &#8220;angry, upset and frustrated&#8221; after their striker Elijah Adebayo was subjected to &#8220;cowardly&#8221; racist abuse.`\
+https://nytimes.com/athletic/5870311/2024/10/24/elijah-adebayo-racism-luton-town/
+
 **Sam Brown, G.O.P. Senate Candidate in Nevada, Gets Late Support From His Party**\
 `A Republican group supporting Senate races says it will spend $6.2 million on TV, radio and digital ads beginning this weekend.`\
 https://nytimes.com/2024/10/24/us/politics/sam-brown-jacky-rosen-nevada-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/us/politics/harris-georgia-muslim-arab-voters.htm
 **Despite Deadly Attack, Turkey Seeks Opening With Kurdish Militants**\
 `Recent gestures by Turkish leaders suggest the possibility of new peace talks with the group fighting for Kurdish autonomy.`\
 https://nytimes.com/2024/10/24/world/middleeast/turkey-terrorist-attack-kurdish-peace-talks.html
-
-**The Summit in Russia Should Be a Wake-Up Call for the West**\
-`American-led institutions are losing the high ground.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/brics-summit-russia-china
 

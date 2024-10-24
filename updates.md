@@ -1,3 +1,7 @@
+**Luton call out 'cowardly' racist abuse of Adebayo: 'Is it ever going to stop?'**\
+`Luton Town have said they are &#8220;angry, upset and frustrated&#8221; after their striker Elijah Adebayo was subjected to &#8220;cowardly&#8221; racist abuse.`\
+https://nytimes.com/athletic/5870311/2024/10/24/elijah-adebayo-racism-luton-town/
+
 **Sam Brown, G.O.P. Senate Candidate in Nevada, Gets Late Support From His Party**\
 `A Republican group supporting Senate races says it will spend $6.2 million on TV, radio and digital ads beginning this weekend.`\
 https://nytimes.com/2024/10/24/us/politics/sam-brown-jacky-rosen-nevada-senate.html
