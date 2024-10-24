@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5868612/2024/10/23/john-mara-giants-brian-daboll-ch
 `By Simon J. Levien`\
 https://nytimes.com/2024/10/23/us/politics/georgia-secretary-of-state-cyberattack.html
 
-**Striking Boeing Workers Reject New Contract**\
-`The vote, hours after Boeing reported a $6.1 billion loss, will extend a monthlong strike at factories where the company makes its best-selling commercial plane.`\
+**Boeing Workers Resoundingly Reject New Contract and Extend Strike**\
+`The vote, hours after Boeing reported a $6.1 billion loss, will extend a nearly six-week-long strike at factories where the company makes its best-selling commercial plane.`\
 https://nytimes.com/2024/10/23/business/boeing-union-vote-strike.html
 
 **‘The Best Is Yet to Come’**\
