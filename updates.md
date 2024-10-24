@@ -1,3 +1,23 @@
+**A 20-Minute Workout to Keep Your Body Limber**\
+`Throwing your back out is often caused by stiffness in the upper spine. Here’s how to prevent future pain.`\
+https://nytimes.com/2024/10/24/well/move/back-workout-pain-injury-prevention.html
+
+**To Prevent Golfing Injuries, Loosen Up Your Spine**\
+`Whether the pain is in your elbows hips or shoulders, the solution is often in your upper back.`\
+https://nytimes.com/2024/10/24/well/back-pain-golf.html
+
+**Beyoncé Will Appear With Kamala Harris at Houston Rally**\
+`The pop superstar, whose song “Freedom” is already used by the Democratic nominee at her rallies, will appear with Ms. Harris at a Friday event focused on abortion rights.`\
+https://nytimes.com/2024/10/24/us/politics/kamala-harris-beyonce-houston-rally.html
+
+**The Windup: Four key World Series updates**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5869738/2024/10/24/dodgers-yankees-world-series-the-windup/
+
+**NBA investigating Joel Embiid's absence from 76ers**\
+`The NBA’s player participation policy requires healthy players to be available to play.`\
+https://nytimes.com/athletic/5869678/2024/10/24/nba-sixers-joel-embiid-investigation-participation-policy/
+
 **Early NHL trade candidates: 10 players to watch ahead of the deadline this season**\
 `It's too early for a full-blown NHL Trade Board but not to start identifying who could play a role in the upcoming trading season.`\
 https://nytimes.com/athletic/5866643/2024/10/24/nhl-trade-board-provorov-fowler-liljegren/

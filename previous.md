@@ -1,3 +1,23 @@
+**A 20-Minute Workout to Keep Your Body Limber**\
+`Throwing your back out is often caused by stiffness in the upper spine. Here’s how to prevent future pain.`\
+https://nytimes.com/2024/10/24/well/move/back-workout-pain-injury-prevention.html
+
+**To Prevent Golfing Injuries, Loosen Up Your Spine**\
+`Whether the pain is in your elbows hips or shoulders, the solution is often in your upper back.`\
+https://nytimes.com/2024/10/24/well/back-pain-golf.html
+
+**Beyoncé Will Appear With Kamala Harris at Houston Rally**\
+`The pop superstar, whose song “Freedom” is already used by the Democratic nominee at her rallies, will appear with Ms. Harris at a Friday event focused on abortion rights.`\
+https://nytimes.com/2024/10/24/us/politics/kamala-harris-beyonce-houston-rally.html
+
+**The Windup: Four key World Series updates**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5869738/2024/10/24/dodgers-yankees-world-series-the-windup/
+
+**NBA investigating Joel Embiid's absence from 76ers**\
+`The NBA’s player participation policy requires healthy players to be available to play.`\
+https://nytimes.com/athletic/5869678/2024/10/24/nba-sixers-joel-embiid-investigation-participation-policy/
+
 **Early NHL trade candidates: 10 players to watch ahead of the deadline this season**\
 `It's too early for a full-blown NHL Trade Board but not to start identifying who could play a role in the upcoming trading season.`\
 https://nytimes.com/athletic/5866643/2024/10/24/nhl-trade-board-provorov-fowler-liljegren/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/24/science/james-webb-space-telescope-orion-nebula-j
 **Hurricanes mailbag: Alexander Nikishin, the cap and LTIR, the Wolves mess and more**\
 `How well are the Hurricanes set up for future seasons?`\
 https://nytimes.com/athletic/5868954/2024/10/24/carolina-hurricanes-mailbag-alexander-nikishin-the-cap-the-wolves-mess-and-more/
-
-**‘Truly Just Divine’ Weeknight Tantanmen**\
-`Hetty Lui McKinnon’s hearty tantanmen with fried tofu is soothing, spicy and — crucially — doable after a busy day.`\
-https://nytimes.com/2024/10/24/dining/truly-just-divine-weeknight-tantanmen.html
-
-**The Bounce: Opening night of NBA League Pass was glorious.**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5869610/2024/10/24/nba-league-pass-victor-wembanyama-spurs-nba-the-bounce/
-
-**Trump Flirts With the Ultimate Tax Cut: No Taxes at All**\
-`The former president has repeatedly praised a period in American history when there was no income tax, and the country relied on tariffs to fund the government.`\
-https://nytimes.com/2024/10/24/us/politics/donald-trump-tax-policy.html
-
-**France backs expansion of Lebanon’s army, and will give €100 million to aid displaced Lebanese, Macron says.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/france-backs-expansion-of-lebanons-army-and-will-give-100-million-to-aid-displaced-lebanese-macron-says
-
-**Arab and Jewish Voters Both Need Kamala Harris**\
-`She’s the only one who can defuse the crisis in the Middle East.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/friedman-gaza-israel-harris-trump
 
