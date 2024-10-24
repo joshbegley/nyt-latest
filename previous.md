@@ -1,3 +1,7 @@
+**Judge Blocks Luxury Fashion Deal, Citing Risk of Higher Handbag Prices**\
+`The F.T.C. had sued to halt the merger of Tapestry, the parent of Coach and Kate Spade, and Capri, the owner of Versace and Michael Kors.`\
+https://nytimes.com/2024/10/24/business/tapestry-capri-merger-coach-versace.html
+
 **Army Sergeant’s Body Was Found in a Dumpster at a Missouri Base**\
 `A person of interest was taken into custody after Sgt. Sarah Roque, 23, was found dead at Fort Leonard Wood, according to Army officials.`\
 https://nytimes.com/2024/10/24/us/army-homicide-fort-leonard-wood.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/10/24/us/politics/trump-jack-smith-election-case.html
 **USF men's basketball coach Amir Abdur-Rahim dies at 43**\
 `USF said complications arose during Abdur-Rahim's treatment at a Tampa-area hospital.`\
 https://nytimes.com/athletic/5870864/2024/10/24/amir-abdur-rahim-death-usf-coach/
-
-**Braves' new hitting coach Tim Hyers brings World Series experience**\
-`Hyers replaces Kevin Seitzer, whose 10-year run with Atlanta was the longest in the majors before the Braves fired him two weeks ago.`\
-https://nytimes.com/athletic/5870306/2024/10/24/atlanta-braves-new-hitting-coach-tim-hyers/
 
