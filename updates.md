@@ -1,3 +1,7 @@
+**RB Leipzig have bright young talents, an exemplary model and an existential crisis**\
+`A template of buying young and selling big is successful but is preventing Leipzig from challenging the elite`\
+https://nytimes.com/athletic/5868184/2024/10/24/red-bull-leipzig-champions-league/
+
 **Word of the Day: detract**\
 `This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/24/learning/word-of-the-day-detract.html
