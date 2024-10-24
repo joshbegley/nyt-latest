@@ -1,3 +1,7 @@
+**Jazz defeat in season opener isn't so bad, as long as their losses continue to be close**\
+`Utah needs to come away from the 2025 NBA Draft with a potential star. The loss to Memphis points them in the right direction.`\
+https://nytimes.com/athletic/5868808/2024/10/24/jazz-lose-season-opener-grizzlies/
+
 **Late Night Condemns Trump for Stanning Hitler**\
 `On Wednesday, Seth Meyers said he was “starting to think Trump doesn’t watch the ends of documentaries.”`\
 https://nytimes.com/2024/10/24/arts/television/late-night-trump-hitler.html
