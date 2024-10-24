@@ -1,3 +1,7 @@
+**Therapist Is Charged With Distributing Child Sex Abuse Imagery**\
+`Renee Hoberman, a licensed social worker on Long Island, used messaging platforms to share graphic videos of infants being abused, prosecutors said.`\
+https://nytimes.com/2024/10/23/nyregion/renee-hoberman-long-island-child-therapist-pornography.html
+
 **Pennsylvania Supreme Court Allows Provisional Votes After Mail Ballot Rejections**\
 `The decision is likely to affect thousands of mail-in ballots among the millions that will be cast in Pennsylvania, a pivotal 2024 swing state.`\
 https://nytimes.com/2024/10/23/us/politics/pennsylvania-provisional-votes.html
