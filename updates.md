@@ -1,3 +1,7 @@
+**Sixers lose season opener without their MVP: 'Us winning cannot solely be on Joel Embiid'**\
+`Philadelphia struggled without the injured Embiid and Paul George, leaving the team with more questions to answer.`\
+https://nytimes.com/athletic/5868763/2024/10/24/joel-embiid-sixers-lose-season-opener/
+
 **Arsenal Today: Remembering 'pizzagate', Cushing targeted and left-back headaches**\
 `Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
 https://nytimes.com/athletic/5867288/2024/10/24/arsenal-today-october-24/

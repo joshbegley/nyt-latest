@@ -1,3 +1,7 @@
+**Sixers lose season opener without their MVP: 'Us winning cannot solely be on Joel Embiid'**\
+`Philadelphia struggled without the injured Embiid and Paul George, leaving the team with more questions to answer.`\
+https://nytimes.com/athletic/5868763/2024/10/24/joel-embiid-sixers-lose-season-opener/
+
 **Arsenal Today: Remembering 'pizzagate', Cushing targeted and left-back headaches**\
 `Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
 https://nytimes.com/athletic/5867288/2024/10/24/arsenal-today-october-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866412/2024/10/24/tottenham-corner-analysis/
 **The team who were unbeaten all season without conceding a goal. And finished second**\
 `Angelholms had an extraordinary season - having not conceded a goal but failing to win the league. They are now in the promotion play-offs`\
 https://nytimes.com/athletic/5866359/2024/10/24/invincible-season-angelholms/
-
-**Johnstone or Sa? Wolves' season could be defined by O'Neil's decision**\
-`The club's manager faces a tricky choice over who to pick in goal, with both men providing compelling arguments for their inclusion`\
-https://nytimes.com/athletic/5866408/2024/10/24/wolves-goalkeepers-johnstone-sa/
 
