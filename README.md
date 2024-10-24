@@ -1,3 +1,11 @@
+**Lucy Letby, Former U.K. Nurse, Tries to Appeal One Conviction for Attempted Murder**\
+`Ms. Letby is serving 15 life sentences after the deaths and collapses of babies in the neonatal unit where she worked. On Thursday judges will consider whether she can appeal one of her convictions.`\
+https://nytimes.com/2024/10/24/world/europe/lucy-letby-nurse-appeal-murder.html
+
+**Brighton's Welbeck a doubt for Wolves game**\
+`Brighton &amp; Hove Albion will make a late decision on top scorer Danny Welbeck for Saturday&#8217;s home game against Wolves.`\
+https://nytimes.com/athletic/5868998/2024/10/24/brighton-welbeck-injury-update-wolves/
+
 **Jazz defeat in season opener isn't so bad, as long as their losses continue to be close**\
 `Utah needs to come away from the 2025 NBA Draft with a potential star. The loss to Memphis points them in the right direction.`\
 https://nytimes.com/athletic/5868808/2024/10/24/jazz-lose-season-opener-grizzlies/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/insider/michael-gold-trump-campaign-trail.html
 **What Happened When a Barber Told Trump About His $15,000 Electric Bill**\
 `During the campaign stop, a barber made a complaint about his utility bill that was soon distorted online.`\
 https://nytimes.com/2024/10/24/nyregion/trump-barber-15k-utility-bill-con-ed.html
-
-**Democrats’ Best Shot at Flipping a House Seat Is in Upstate New York**\
-`After redistricting, Representative Brandon Williams of New York is the only House Republican whose race is considered “lean Democrat.”`\
-https://nytimes.com/2024/10/24/nyregion/williams-mannion-house-swing.html
-
-**A Radio Host Lost Her Words. Brain Surgery Put Her Back on the Air.**\
-`One day last winter, Alison Stewart, the host of “All of It” on WNYC, suddenly found herself speaking gibberish.`\
-https://nytimes.com/2024/10/24/nyregion/alison-stewart-brain-surgery.html
 
