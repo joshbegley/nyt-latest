@@ -1,3 +1,7 @@
+**How Two Allies Wrestled Over a Crypto Giant and a Prisoner**\
+`The United States and Nigeria often collaborate. But the arrest of an American worker strained their diplomatic relations.`\
+https://nytimes.com/2024/10/24/us/politics/us-nigeria-binance-gambaryan.html
+
 **Wrexham appoint new architect to redesign Kop stand, targeting 2026 completion**\
 `A new architect has been appointed by Wrexham to redesign the 5,500 capacity Kop stand that was originally scheduled to open in time for this season.`\
 https://nytimes.com/athletic/5869408/2024/10/24/wrexham-new-architect-kop-stand/
