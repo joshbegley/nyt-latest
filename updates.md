@@ -1,3 +1,15 @@
+**Sam Brown, G.O.P. Senate Candidate in Nevada, Gets Late Support From His Party**\
+`A Republican group supporting Senate races says it will spend $6.2 million on TV, radio and digital ads beginning this weekend.`\
+https://nytimes.com/2024/10/24/us/politics/sam-brown-jacky-rosen-nevada-senate.html
+
+**The Controversial World of Bagel Mods**\
+`The freaks come out at breakfast.`\
+https://nytimes.com/2024/10/24/dining/the-controversial-world-of-bagel-mods.html
+
+**With the Clock Ticking, Should Harris Define Herself or Her Opponent?**\
+`At a CNN town-hall meeting, Kamala Harris seemed more comfortable warning about the dangers of Donald J. Trump than describing her policies or continuing to introduce herself.`\
+https://nytimes.com/2024/10/24/us/politics/kamala-harris-cnn-town-hall.html
+
 **The Long, Syncopated Journey to Beyoncé’s Exaltation**\
 `It starts with Scott Joplin. And it’s got a beat you can’t resist. `\
 https://nytimes.com/2024/10/24/opinion/scott-joplin-george-gershwin-and-beyonce.html
