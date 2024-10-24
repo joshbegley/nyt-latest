@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Michael Crowley and Cassandra Vinograd`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/here-are-the-latest-developments
+
+**Live Updates: U.S. Pushes ‘New Frameworks’ for Gaza Cease-Fire**\
+`With talks stalled on a long-term truce between Israel and Hamas, Secretary of State Antony J. Blinken signaled U.S. willingness to support a shorter pause in fighting.`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran
+
 **Arsenal's Odegaard on track to return next month, says Norway coach**\
 `Norway head coach Stale Solbakken says Arsenal captain Martin Odegaard is on track to return for the November international break.`\
 https://nytimes.com/athletic/5869067/2024/10/24/martin-odegaard-injury-update-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5854102/2024/10/24/uncrustables-nfl/
 **NFL Draft watch: 4 rising prospects who deserve a shot on the playoff stage**\
 `Cam Ward and Ashton Jeanty are among the rising draft hopefuls who could benefit from a showcase playoff game against an elite opponent.`\
 https://nytimes.com/athletic/5866716/2024/10/24/nfl-draft-2025-ashton-jeanty-cam-ward/
-
-**Ravens All-Pro safety Kyle Hamilton is still chasing perfection**\
-`Now in his third season, Hamilton has already achieved first-team All-Pro status. But he's far from satisfied. Being good isn't good enough.`\
-https://nytimes.com/athletic/5865486/2024/10/24/ravens-kyle-hamilton-chasing-perfection/
-
-**Return of the veteran RB? Derrick Henry, Saquon Barkley and early glimmers of a revival**\
-`It's early, but teams that splurged during RB musical chairs in March are getting what they paid for. So are teams that skimped.`\
-https://nytimes.com/athletic/5866834/2024/10/24/nfl-running-backs-derrick-henry-saquon-barkley/
 
