@@ -1,3 +1,11 @@
+**Silver: 49ers have been here before — can Kyle Shanahan's crew deliver a second-half rally?**\
+`The 49ers believe in their culture and their plan is to get right by beating the Cowboys and mounting a second-half charge.`\
+https://nytimes.com/athletic/5870088/2024/10/24/49ers-second-half-rally-trade-deadline-shanahan/
+
+**Lions' Jameson Williams accepts 2-game suspension**\
+`Williams will be eligible for reinstatement after Detroit's Week 9 game against the Green Bay Packers.`\
+https://nytimes.com/athletic/5870188/2024/10/24/lions-jameson-williams-accepts-suspension/
+
 **Michael Jackson, British General Who Disobeyed U.S. Superior, Dies at 80**\
 `Labeled “the Prince of Darkness,” he refused to follow an order by NATO’s commander during the Balkans war, saying, “It’s not worth starting World War III.”`\
 https://nytimes.com/2024/10/24/world/europe/gen-sir-michael-jackson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/us/pennsylvania-voting-rules-mail-in-ballot-drop-
 **Email From Boeing to Ethiopian Airlines Sheds Light on a Tragic Crash**\
 `Newly revealed correspondence indicates that a Boeing senior official counseled that the company could answer a pilot’s safety questions, but it did not.`\
 https://nytimes.com/2024/10/24/us/politics/boeing-email-ethiopian-airlines.html
-
-**Lionel Messi still atop MLS salary spend, while five teams boast a new top earner**\
-`The Athletic provides the key takeaways from the latest MLS Players Association salary guide`\
-https://nytimes.com/athletic/5870076/2024/10/24/lionel-messi-mls-salary-guide-top-earners/
-
-**Investigation of Georgia Movie Set Crash Finds No Violations**\
-`Eight people were injured, three of them seriously, in a crash on the set of “The Pickup” in April. A federal investigation found no health or safety violations.`\
-https://nytimes.com/2024/10/24/movies/georgia-crash-eddie-murphy-movie-set.html
 
