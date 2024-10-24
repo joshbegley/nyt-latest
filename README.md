@@ -1,3 +1,7 @@
+**As Harris Courts Republicans, the Left Grows Wary and Alienated**\
+`The vice president’s tack to the right, support for Israel in the Gaza war and incremental policy proposals have alienated progressives and raised worries about waning liberal energy.`\
+https://nytimes.com/2024/10/24/us/politics/kamala-harris-progressives-democrats.html
+
 **A 20-Minute Workout to Keep Your Body Limber**\
 `Throwing your back out is often caused by stiffness in the upper spine. Here’s how to prevent future pain.`\
 https://nytimes.com/2024/10/24/well/move/back-workout-pain-injury-prevention.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5867069/2024/10/24/cooper-kupp-trade-rumors-fantasy
 **Unexplained Enigmas in the Orion Nebula May Be Victims of Stellar Bullying**\
 `Astronomers offered a new hypothesis for what created pairs of objects nicknamed JuMBOs, while other scientists argue they may not really exist.`\
 https://nytimes.com/2024/10/24/science/james-webb-space-telescope-orion-nebula-jumbos.html
-
-**Hurricanes mailbag: Alexander Nikishin, the cap and LTIR, the Wolves mess and more**\
-`How well are the Hurricanes set up for future seasons?`\
-https://nytimes.com/athletic/5868954/2024/10/24/carolina-hurricanes-mailbag-alexander-nikishin-the-cap-the-wolves-mess-and-more/
 
