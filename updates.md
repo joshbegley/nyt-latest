@@ -1,3 +1,11 @@
+**Mozambique’s Governing Party Candidate Wins Disputed Presidential Election**\
+`Daniel Chapo of the Frelimo party, which has governed the southern African nation for nearly 50 years, was declared the victor amid violence and widespread allegations of fraud.`\
+https://nytimes.com/2024/10/24/world/africa/mozambique-election-results-fraud.html
+
+**Penalty shootout defeats are still defeats. It's time to count them as such**\
+`It's not their fault but Manchester City's 'record' of 26-game unbeaten Champions League games is a nonsense`\
+https://nytimes.com/athletic/5869373/2024/10/24/penalty-shoot-out-defeats-record/
+
 **NBA Lookahead: Year 2 of Victor Wembanyama begins, and the best of the weekend**\
 `Zach Harper previews the upcoming NBA weekend as Victor Wembanyama's sophomore season highlights slate.`\
 https://nytimes.com/athletic/5867579/2024/10/24/victor-wembanyama-spurs-lebron-james-lakers-nba/
