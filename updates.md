@@ -1,3 +1,11 @@
+**There’s No One-Size-Fits-All Gift. But These Come Really Close. **\
+`By Hannah Morrill`\
+https://nytimes.com/card/2024/10/24/smarter-living/wirecutter/theres-no-one-size-fits-all-gift-but-these-come-really-close
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/10/24/books/review/new-books-recommendations.html
+
 **Jack Jones, a Suave, Hit-Making and Enduring Crooner, Dies at 86**\
 `With his smooth voice, he drew crowds to cabarets and music halls for six decades. He also sang the themes for films and TV shows, including “The Love Boat.”`\
 https://nytimes.com/2024/10/24/arts/music/jack-jones-dea.html

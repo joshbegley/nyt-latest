@@ -1,3 +1,11 @@
+**Golden Knights sign Shea Theodore to 7-year extension**\
+`The deal carries an average annual value of $7.425 million.`\
+https://nytimes.com/athletic/5870742/2024/10/24/golden-knights-shea-theodore-extension/
+
+**Philip Zimbardo, 91, Whose Stanford Prison Experiment Studied Evil, Dies**\
+`His provocative research made him a popular figure on campus. But his exploration of how good people can turn evil raised ethical questions.`\
+https://nytimes.com/2024/10/24/science/philip-zimbardo-dead.html
+
 **There’s No One-Size-Fits-All Gift. But These Come Really Close. **\
 `By Hannah Morrill`\
 https://nytimes.com/card/2024/10/24/smarter-living/wirecutter/theres-no-one-size-fits-all-gift-but-these-come-really-close
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/5870449/2024/10/24/deandre-hopkins-trade-chiefs-pat
 **Amid the glitz of Intuit Dome, Clippers know winning is what will really matter**\
 `It wasn’t a bad first night on their new stage, but the Clippers have work to do.`\
 https://nytimes.com/athletic/5868980/2024/10/24/clippers-intuit-dome-debut-winning/
-
-**NFL Week 8 fantasy football, betting cheat sheet: Puka Nacua, T.J. Hockenson out**\
-`Cooper Kupp, who has been surrounded by trade rumors, is expected to play Thursday night, too.`\
-https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-injuries-rankings-betting/
-
-**Patti McGee, Skateboarding’s First Female Champion, Dies at 79**\
-`She was on the cover of Life magazine and performed for Johnny Carson. “She was a badass and a goody two shoes at the same time,” her daughter said.`\
-https://nytimes.com/2024/10/24/sports/patti-mcgee-dead.html
 
