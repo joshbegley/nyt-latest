@@ -1,3 +1,19 @@
+**Real Madrid have got by on moments of brilliance but concerns around defence persist**\
+`Ahead of this weekend’s table-topping Clasico, moments of individual quality have guided Madrid through a largely unconvincing start`\
+https://nytimes.com/athletic/5866325/2024/10/24/real-madrid-defensive-problems/
+
+**5 Key Questions Hanging Over the Lucy Letby ‘Killer Nurse’ Case**\
+`Ms. Letby, a neonatal nurse in England, was convicted of murdering seven babies last year. But a growing number of experts have raised concerns about the evidence.`\
+https://nytimes.com/2024/10/24/world/europe/lucy-letby-uk-trial-questions.html
+
+**Quote of the Day: Building a Steel Curtain in Ireland**\
+`Quotation of the Day for Thursday, October 24, 2024.`\
+https://nytimes.com/2024/10/24/pageoneplus/quote-of-the-day-building-a-steel-curtain-in-ireland.html
+
+**Why It’s Getting Harder to Fly to China**\
+`European carriers are enduring higher costs because they have to avoid Russian airspace, while a sluggish economy and geopolitical tensions are hurting business travel to China.`\
+https://nytimes.com/2024/10/24/business/china-air-travel-flights.html
+
 **Scottie Barnes and Evan Mobley are worlds away from their past selves — and each other**\
 `Barnes has to try to carry the Raptors, while Mobley can merely support the Cavaliers. `\
 https://nytimes.com/athletic/5868642/2024/10/23/scottie-barnes-evan-mobley-raptors-cavaliers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5868644/2024/10/23/liberty-kennesaw-state-college-f
 **Giants 'not making any changes this season,' John Mara says**\
 `Mara addressed the future of GM Joe Schoen and coach Brian Daboll, saying he still has “confidence in both of them."`\
 https://nytimes.com/athletic/5868612/2024/10/23/john-mara-giants-brian-daboll-change/
-
-**Georgia Secretary of State Fends Off Cyberattack Targeting Absentee Ballot Website**\
-`The attack may have come from a foreign country, said a Georgia official.`\
-https://nytimes.com/2024/10/23/us/politics/georgia-secretary-of-state-cyberattack.html
-
-**Boeing Workers Resoundingly Reject New Contract and Extend Strike**\
-`The vote, hours after Boeing reported a $6.1 billion loss, will extend a nearly six-week-long strike at factories where the company makes its best-selling commercial plane.`\
-https://nytimes.com/2024/10/23/business/boeing-union-vote-strike.html
-
-**‘The Best Is Yet to Come’**\
-`You may not know which way you’re going when you solve Ella Dershowitz’s puzzle.`\
-https://nytimes.com/2024/10/23/crosswords/daily-puzzle-2024-10-24.html
-
-**Lana Del Rey Married a Normie. Other Celebrities Have Too.**\
-`The pop singer and songwriter married her longtime boyfriend, Jeremy Dunfre, a swamp tour guide. Other celebrities have also wed someone who’s not rich or famous.`\
-https://nytimes.com/2024/10/23/arts/music/lana-del-rey-jeremy-dunfre-dolly-parton.html
 
