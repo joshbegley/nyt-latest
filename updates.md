@@ -1,3 +1,7 @@
+**Clippers pin hopes on James Harden to usher in new era: 'We need him to be special'**\
+`Harden couldn't deliver in the clutch in a loss to the Suns in the Intuit Dome opener, but he's the one healthy star the Clippers have left.`\
+https://nytimes.com/athletic/5868882/2024/10/24/clippers-james-harden-season-opener/
+
 **England Plans to Ban Disposable Vapes Next Year**\
 `The measure, which echoes plans in Scotland and Wales, aims to protect young people’s health and reduce environmental damage.`\
 https://nytimes.com/2024/10/24/world/europe/uk-disposable-vapes-ban.html
