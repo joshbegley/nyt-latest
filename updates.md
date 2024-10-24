@@ -1,3 +1,7 @@
+**The Long, Syncopated Journey to Beyoncé’s Exaltation**\
+`It starts with Scott Joplin. And it’s got a beat you can’t resist. `\
+https://nytimes.com/2024/10/24/opinion/scott-joplin-george-gershwin-and-beyonce.html
+
 **Tina S. Kaidanow, 59, Diplomatic Force in Kosovo and Guantánamo, Dies**\
 `She was the first U.S. ambassador to a newly independent Balkans nation and recently oversaw the transfer of cooperating Guantánamo prisoners to third countries.`\
 https://nytimes.com/2024/10/24/us/politics/tina-s-kaidanow-dead.html
