@@ -1,3 +1,11 @@
+**World Opens to the Taliban Despite Their Shredding of Women’s Rights**\
+`Taliban officials have scored a series of diplomatic victories this year that have started a subtle shift toward normalizing their government.`\
+https://nytimes.com/2024/10/24/world/asia/afghanistan-taliban-diplomacy.html
+
+**Is Afghanistan’s Most-Wanted Militant Now Its Best Hope for Change?**\
+`Sirajuddin Haqqani has tried to remake himself from blood-soaked jihadist to pragmatic Taliban statesman. Western diplomats are shocked — and enticed.`\
+https://nytimes.com/2024/10/24/world/asia/afghanistan-sirajuddin-haqqani-taliban.html
+
 **Thursday Briefing: How Europe Sees the U.S. Election**\
 `Plus, the dark side of A.I. companionship apps.`\
 https://nytimes.com/2024/10/24/briefing/us-election-north-korea-russia.html

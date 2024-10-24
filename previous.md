@@ -1,3 +1,11 @@
+**World Opens to the Taliban Despite Their Shredding of Women’s Rights**\
+`Taliban officials have scored a series of diplomatic victories this year that have started a subtle shift toward normalizing their government.`\
+https://nytimes.com/2024/10/24/world/asia/afghanistan-taliban-diplomacy.html
+
+**Is Afghanistan’s Most-Wanted Militant Now Its Best Hope for Change?**\
+`Sirajuddin Haqqani has tried to remake himself from blood-soaked jihadist to pragmatic Taliban statesman. Western diplomats are shocked — and enticed.`\
+https://nytimes.com/2024/10/24/world/asia/afghanistan-sirajuddin-haqqani-taliban.html
+
 **Thursday Briefing: How Europe Sees the U.S. Election**\
 `Plus, the dark side of A.I. companionship apps.`\
 https://nytimes.com/2024/10/24/briefing/us-election-north-korea-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5866408/2024/10/24/wolves-goalkeepers-johnstone-sa/
 **Manchester United, Arsenal and the 'Battle of the Buffet' - told by those who were there**\
 `An oral history, 20 years on, of when United ended Arsenal's 49-game unbeaten run and punches and pizza were thrown in a brawl afterwards`\
 https://nytimes.com/athletic/5866613/2024/10/24/pizzagate-manchester-united-arsenal-battle-of-the-buffet/
-
-**Trump Calls Out Biden Remark on ‘Lock Him Up’**\
-`While President Biden quickly said he was referring to his predecessor’s politics and not to jail time, Donald Trump said it was proof of his unfounded claim the president is behind his criminal cases.`\
-https://nytimes.com/2024/10/24/us/politics/trump-biden-election-interference.html
-
-**Harris Calls Trump a Fascist: 6 Takeaways From Her CNN Town Hall**\
-`Entering new rhetorical territory, the vice president turned even unrelated questions into attacks on Donald Trump as she offered long, winding answers to questions from voters.`\
-https://nytimes.com/2024/10/24/us/politics/harris-town-hall-cnn-takeaways.html
 
