@@ -1,3 +1,15 @@
+**FPL: The three teams with positive fixture swings you should target**\
+`Spurs, Manchester United and Wolves are all on runs of enticing fixtures, so which of their players should you consider?`\
+https://nytimes.com/athletic/5859901/2024/10/24/fantasy-premier-league-manchester-united-tottenham-wolves/
+
+**Guilavogui will bring leadership and experience to Leeds' squad - when he's needed**\
+`Leeds have taken their time to bolster their squad - Guilavogui's versatility appears to be a shrewd move`\
+https://nytimes.com/athletic/5866105/2024/10/24/daniel-farke-leeds-josuha-guilavogui/
+
+**What can Oliver Glasner change to revive faltering Crystal Palace?**\
+`Onus is on the Austrian to instigate a recovery, with Palace having failed to win any of their eight league games and in the bottom three`\
+https://nytimes.com/athletic/5862048/2024/10/24/crystal-palace-glasner-eze-kamada/
+
 **Spurs score from one in every 36 corners - is this an area for improvement?**\
 `Spurs struggled with their set pieces against West Ham. Was it a bad day at the office or do they need to practice them more in training?`\
 https://nytimes.com/athletic/5866412/2024/10/24/tottenham-corner-analysis/
