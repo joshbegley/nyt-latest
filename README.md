@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5868644/2024/10/23/liberty-kennesaw-state-college-f
 `Mara addressed the future of GM Joe Schoen and coach Brian Daboll, saying he still has “confidence in both of them."`\
 https://nytimes.com/athletic/5868612/2024/10/23/john-mara-giants-brian-daboll-change/
 
-**Georgia secretary of state fends off cyberattack targeting absentee ballot website.**\
-`By Simon J. Levien`\
+**Georgia Secretary of State Fends Off Cyberattack Targeting Absentee Ballot Website**\
+`The attack may have come from a foreign country, said a Georgia official.`\
 https://nytimes.com/2024/10/23/us/politics/georgia-secretary-of-state-cyberattack.html
 
 **Boeing Workers Resoundingly Reject New Contract and Extend Strike**\
