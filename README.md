@@ -1,3 +1,11 @@
+**The Group at the Center of Trump’s Planning for a Second Term Is One You Haven’t Heard of**\
+`America First Policy Institute didn’t even exist four years ago. But it is poised to be more influential than Project 2025.`\
+https://nytimes.com/2024/10/24/us/politics/donald-trump-campaign-america-first-policy-institute.html
+
+**As Bird Flu Spreads, Additional Human Infection Is Reported in Missouri**\
+`Two household members caught the virus without known exposure to animals. More than 30 human cases have been reported in the United States.`\
+https://nytimes.com/2024/10/24/health/bird-flu-missouri.html
+
 **Mancini leaves position as Saudi Arabia head coach**\
 `Roberto Mancini has left his position as Saudi Arabia head coach after 14 months in charge.`\
 https://nytimes.com/athletic/5849608/2024/10/24/roberto-mancini-saudi-arabia-head-coach-sacked/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/us/politics/trump-jack-smith.html
 **Netflix Wanted ‘Wuthering Heights.’ Margot Robbie Wanted a Theatrical Release.**\
 `In the end, Ms. Robbie got what she wanted, signing a deal with Warner Bros.`\
 https://nytimes.com/2024/10/24/business/media/margot-robbie-wuthering-heights-warner-bros.html
-
-**District Attorney Expected to Ask Court to Resentence Menendez Brothers**\
-`A request from George Gascón, the district attorney for Los Angeles County, could lead to the brothers being released from prison, decades after they were convicted of murdering their parents.`\
-https://nytimes.com/2024/10/24/us/menendez-brothers-prison-sentence.html
-
-**Putin Appears to Say That North Korean Troops Are in Russia**\
-`‘If there are images they are a reflection of something,’ he said in a tongue-in-cheek answer to whether Pyongyang had sent troops to help with Russia’s war in Ukraine.`\
-https://nytimes.com/2024/10/24/world/europe/putin-north-korean-troops-russia.html
 
