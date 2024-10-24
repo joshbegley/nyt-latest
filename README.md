@@ -1,3 +1,15 @@
+**The Briefing: Fenerbahce 1 Manchester United 1 — Onana's double save and Mazraoui at No 10**\
+`Manchester United were held to a 1-1 draw away from home against Fenerbahce on Thursday night`\
+https://nytimes.com/athletic/5862940/2024/10/24/fenerbahce-manchester-united-result-report-analysis/
+
+**Angel Reese gets signature shoe with Reebok, set to debut in 2026**\
+`Ahead of her final collegiate season at LSU, Reese agreed to an NIL footwear and apparel partnership deal with Reebok.`\
+https://nytimes.com/athletic/5870593/2024/10/24/angel-reese-reebok-signature-shoe/
+
+**Connor McDavid wants Crosby as Team Canada captain**\
+`McDavid grew up idolizing Crosby, who’s nearly 10 years older.`\
+https://nytimes.com/athletic/5870445/2024/10/24/mcdavid-crosby-team-canada-captain/
+
 **A Very New York Party for New York Nico**\
 `At Astor Place Hairstylists, an old-school barbershop, small-business owners feted a social media star who spotlights the city’s gritty character.`\
 https://nytimes.com/2024/10/24/style/new-york-nico-book-party.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/24/world/middleeast/israel-hamas-talks-qatar.html
 **Asheville Has Tap Water, but No One Knows When It Will Be Drinkable**\
 `People in the storm-hit area can resume flushing toilets and taking showers, but the water is often yellow or brown. Officials are asking for patience with repair efforts.`\
 https://nytimes.com/2024/10/24/us/asheville-nc-drinking-water-helene.html
-
-**Lynda Obst, Producer Who Championed Women in Hollywood, Dies at 74**\
-`She helped make films like “Sleepless in Seattle” and “Contact.” She also wrote widely about the industry, for The Times and other publications.`\
-https://nytimes.com/2024/10/24/movies/lynda-obst-dead.html
-
-**Reds to host public Pete Rose visitation at Great American Ball Park**\
-`The 14-hour event will be open to all and will take place on Nov. 10. `\
-https://nytimes.com/athletic/5870478/2024/10/24/cincinnati-reds-pete-rose-visitation/
-
-**Mailbox Arson Damages Ballots in Phoenix**\
-`Arizona’s secretary of state said affected voters would be contacted, adding, “Any attack that strikes at our democratic process carries criminal consequences.”`\
-https://nytimes.com/2024/10/24/us/politics/mailbox-arson-phoenix-ballots.html
 
