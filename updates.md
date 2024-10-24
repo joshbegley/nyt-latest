@@ -1,3 +1,7 @@
+**Dodgers' Jerry Reuss remembers late Valenzuela, FernandoMania: 'A legend in the making'**\
+`Reuss was at the center of Fernandomania and he marvels at Valenzuela's brilliance to this day.`\
+https://nytimes.com/athletic/5868531/2024/10/23/jerry-reuss-remembers-fernando-valenzuela/
+
 **Corrections: Oct. 24, 2024**\
 `Corrections that appeared in print on Thursday, Oct. 24, 2024.`\
 https://nytimes.com/2024/10/23/pageoneplus/corrections-oct-24-2024.html

@@ -1,3 +1,7 @@
+**Dodgers' Jerry Reuss remembers late Valenzuela, FernandoMania: 'A legend in the making'**\
+`Reuss was at the center of Fernandomania and he marvels at Valenzuela's brilliance to this day.`\
+https://nytimes.com/athletic/5868531/2024/10/23/jerry-reuss-remembers-fernando-valenzuela/
+
 **Corrections: Oct. 24, 2024**\
 `Corrections that appeared in print on Thursday, Oct. 24, 2024.`\
 https://nytimes.com/2024/10/23/pageoneplus/corrections-oct-24-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5868279/2024/10/23/deebo-samuel-pneumonia-49ers-cow
 **L.A. Times Editorial Chief Quits After Owner Blocks Harris Endorsement**\
 `Mariel Garza said the editorial board was prepared to endorse Kamala Harris, but the paper’s owner, Patrick Soon-Shiong, decided not to make an endorsement in the presidential race.`\
 https://nytimes.com/2024/10/23/business/media/la-times-editor-quits-patrick-soon-shiong-endorsement.html
-
-**Five Dead After ‘Terrorist Attack’ on Turkish Aerospace Company**\
-`Attackers armed with explosives and rifles assaulted the headquarters of a Turkish state-run aerospace company on Wednesday.`\
-https://nytimes.com/video/world/asia/100000009779360/turkey-aerospace-terrorist-attack.html
 
