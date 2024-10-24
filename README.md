@@ -1,3 +1,7 @@
+**Ole Miss built a $10M roster to reach the 12-team Playoff. With 2 losses, now what?**\
+`The Rebels can still make the Playoff, though the odds are steeper. "This isn't a one-shot wonder," says the Ole Miss athletic director.`\
+https://nytimes.com/athletic/5867884/2024/10/24/ole-miss-college-football-playoff-nil/
+
 **America’s Embrace of Marijuana**\
 `Why public opinion has changed so quickly.`\
 https://nytimes.com/2024/10/24/briefing/americas-embrace-of-marijuana.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866711/2024/10/24/nfl-trade-projections-maxx-crosb
 **12 Days to Go: French Fries and Fascism**\
 `Michael Barbaro sits down with the Times reporters Michael Schmidt, Lisa Lerer, Reid Epstein and Nate Cohn to discuss the latest developments in the presidential race.`\
 https://nytimes.com/video/podcasts/the-daily/100000009775970/election-trump-john-kelly.html
-
-**Wait, NFL players eat how many Uncrustables?**\
-`Before practice, during training camp and in the halftime locker room, the sealed PB&J sandwiches are a favorite across the league.`\
-https://nytimes.com/athletic/5854102/2024/10/24/uncrustables-nfl/
 
