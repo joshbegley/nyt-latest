@@ -1,3 +1,11 @@
+**How 7 Friends Testing a Metal Detector Made Britain’s Most Valuable Treasure Find**\
+`A pastime in a farmer’s field led to the discovery of Norman-era coins valued at more than $5 million.`\
+https://nytimes.com/2024/10/24/us/chew-valley-hoard.html
+
+**Two Students Created Face Recognition Glasses. It Wasn’t Hard.**\
+`A Boston man had a strange encounter at a subway station. A month later, he discovered he was the star of the students’ viral video.`\
+https://nytimes.com/2024/10/24/technology/facial-recognition-glasses-privacy-harvard.html
+
 **Finger-Pointing if Trump Beats Harris**\
 `Readers discuss a column by Bret Stephens. Also: A flood of election mailers in Pennsylvania; speech on campus; fighting malaria.`\
 https://nytimes.com/2024/10/24/opinion/trump-harris.html

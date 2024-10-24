@@ -1,3 +1,11 @@
+**How 7 Friends Testing a Metal Detector Made Britain’s Most Valuable Treasure Find**\
+`A pastime in a farmer’s field led to the discovery of Norman-era coins valued at more than $5 million.`\
+https://nytimes.com/2024/10/24/us/chew-valley-hoard.html
+
+**Two Students Created Face Recognition Glasses. It Wasn’t Hard.**\
+`A Boston man had a strange encounter at a subway station. A month later, he discovered he was the star of the students’ viral video.`\
+https://nytimes.com/2024/10/24/technology/facial-recognition-glasses-privacy-harvard.html
+
 **Finger-Pointing if Trump Beats Harris**\
 `Readers discuss a column by Bret Stephens. Also: A flood of election mailers in Pennsylvania; speech on campus; fighting malaria.`\
 https://nytimes.com/2024/10/24/opinion/trump-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/arts/design/marian-goodman-tribeca-art-gallery.ht
 **Met Opera and Singer Injured in Onstage Fall Settle Decade-Old Lawsuit**\
 `Wendy White, a veteran mezzo-soprano, was performing when she fell in 2011. Her suit, which claimed negligence, had been one of the company’s longest-running court cases.`\
 https://nytimes.com/2024/10/24/arts/music/met-opera-singer-wendy-white-lawsuit-settled.html
-
-**Southwest Strikes a Truce With the Activist Hedge Fund Elliott**\
-`The airline will appoint six new directors to its board, avoiding a proxy fight with the activist investor Elliott Investment Management, one of its largest shareholders.`\
-https://nytimes.com/2024/10/24/business/dealbook/southwest-airlines-elliott.html
-
-**Monique Knowlton, ’60s-Era Model and Provocative Gallerist, Dies at 87**\
-`A Vogue cover girl in the early 1960s, she later pivoted to contemporary art, opening a gallery where being “outrageous counts as a plus,” one critic wrote.`\
-https://nytimes.com/2024/10/24/arts/monique-knowlton-dead.html
 
