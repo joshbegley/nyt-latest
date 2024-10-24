@@ -1,3 +1,7 @@
+**Ole Miss built a $10M roster to reach the 12-team Playoff. With 2 losses, now what?**\
+`The Rebels can still make the Playoff, though the odds are steeper. "This isn't a one-shot wonder," says the Ole Miss athletic director.`\
+https://nytimes.com/athletic/5867884/2024/10/24/ole-miss-college-football-playoff-nil/
+
 **America’s Embrace of Marijuana**\
 `Why public opinion has changed so quickly.`\
 https://nytimes.com/2024/10/24/briefing/americas-embrace-of-marijuana.html
