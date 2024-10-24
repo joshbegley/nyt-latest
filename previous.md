@@ -1,3 +1,11 @@
+**Biden Administration Outlines Government ‘Guardrails’ for A.I. Tools**\
+`A national security memorandum detailed how agencies should streamline operations with artificial intelligence safely.`\
+https://nytimes.com/2024/10/24/us/politics/biden-government-guidelines-ai.html
+
+**What to Know About North Korea’s Military Capabilities**\
+`The North’s nuclear forces have been the focus of global concern. But its conventional military is vast and politically empowered — even if it is hobbled by shortages, corruption and isolation.`\
+https://nytimes.com/2024/10/24/world/asia/north-korea-military-capability.html
+
 **2025 NFL Draft order projections: Are any top-10 teams ready to take the QB leap?**\
 `How did Week 7 shake up the potential 2025 NFL Draft order?`\
 https://nytimes.com/athletic/5866677/2024/10/24/nfl-draft-order-2025-projections-week-7/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/movies/my-name-is-alfred-hitchcock-review-directo
 **Wild talking contract with Rossi? Trade to replace Spurgeon? Boldy for 4 Nations? Ask Russo, part 1**\
 `Also in the Wild mailbag: Already time to panic over Trenin? What free agents should they target next summer? And what now with the goalies?`\
 https://nytimes.com/athletic/5867327/2024/10/24/wild-rossi-spurgeon-boldy-kaprizov-mailbag/
-
-**‘Magpie’ Review: An Unhappily Married Woman**\
-`Daisy Ridley plays a time bomb with a simmering fuse in this slow yet gripping adultery thriller.`\
-https://nytimes.com/2024/10/24/movies/magpie-review.html
-
-**‘La Cocina’ Review: The Melting Pot Boils Over**\
-`This drama by Alonso Ruizpalacios takes a bitter look at the American dream from the perspective of the workers at a fast-paced diner.`\
-https://nytimes.com/2024/10/24/movies/la-cocina-review.html
 
