@@ -1,3 +1,11 @@
+**Georgia secretary of state fends off cyberattack targeting absentee ballot website.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/23/us/harris-trump-election/georgia-secretary-of-state-cyberattack
+
+**Striking Boeing Workers Reject New Contract**\
+`The vote, hours after Boeing reported a $6.1 billion loss, will extend a monthlong strike at factories where the company makes its best-selling commercial plane.`\
+https://nytimes.com/2024/10/23/business/boeing-union-vote-strike.html
+
 **Striking Boeing Workers Reject New Contract**\
 `The vote will extend a monthlong strike at factories where the aerospace company makes its best-selling commercial airplane.`\
 https://nytimes.com/2024/10/23/business/boeing-union-vote-strike.html
