@@ -1,3 +1,7 @@
+**The Bounce: Opening night of NBA League Pass was glorious.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5869610/2024/10/24/nba-league-pass-victor-wembanyama-spurs-nba-the-bounce/
+
 **Trump Flirts With the Ultimate Tax Cut: No Taxes at All**\
 `The former president has repeatedly praised a period in American history when there was no income tax, and the country relied on tariffs to fund the government.`\
 https://nytimes.com/2024/10/24/us/politics/donald-trump-tax-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869487/2024/10/24/college-football-tv-networks-sur
 **Officially Utah Royals’ head coach, Jimmy Coenraets is already planning for the future**\
 `Coenraets led the Royals to five wins, two draws, and only three losses — he is now ready to build the side for a better 2025`\
 https://nytimes.com/athletic/5868203/2024/10/24/utah-royals-hire-jimmy-coenraets-2027/
-
-**The U.N.’s Verdict on Climate Progress Over the Past Year: There Was None**\
-`An annual assessment by the world body tracks the gulf between what countries have vowed to do and what they’ve actually achieved.`\
-https://nytimes.com/2024/10/24/climate/un-climate-change-global-emissions-report.html
 
