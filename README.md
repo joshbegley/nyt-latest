@@ -1,3 +1,11 @@
+**Trump Seeks to Challenge Jack Smith’s Appointment in Election Case**\
+`The former president’s request to file a new motion contesting how the special counsel got his job came on the same day he vowed to fire him if re-elected.`\
+https://nytimes.com/2024/10/24/us/politics/trump-jack-smith-election-case.html
+
+**USF men's basketball coach Amir Abdur-Rahim dies at 43**\
+`USF said complications arose during Abdur-Rahim's treatment at a Tampa-area hospital.`\
+https://nytimes.com/athletic/5870864/2024/10/24/amir-abdur-rahim-death-usf-coach/
+
 **Braves' new hitting coach Tim Hyers brings World Series experience**\
 `Hyers replaces Kevin Seitzer, whose 10-year run with Atlanta was the longest in the majors before the Braves fired him two weeks ago`\
 https://nytimes.com/athletic/5870306/2024/10/24/atlanta-braves-new-hitting-coach-tim-hyers/
@@ -21,12 +29,4 @@ https://nytimes.com/2024/10/24/style/chicken-shop-date.html
 **Companies to Pay $101.9 Million to Settle Baltimore Bridge Collapse Lawsuit**\
 `The suit by the Justice Department was filed last month and laid out what investigators had learned about the ship’s short and catastrophic journey.`\
 https://nytimes.com/2024/10/24/us/baltimore-bridge-collapse-lawsuit-settlement.html
-
-**Aunt of 4-Year-Old Who Starved to Death Is Suing Child-Welfare Agency**\
-`Jahmeik Modlin’s parents have been charged with manslaughter in his death. His aunt’s suit accuses the city of failing to monitor his safety.`\
-https://nytimes.com/2024/10/24/nyregion/child-death-harlem-acs-lawsuit.html
-
-**Broncos WR Josh Reynolds injured in shooting Friday, team says**\
-`Reynolds, currently on IR, has been working out on a side field at Denver practices this week.`\
-https://nytimes.com/athletic/5870757/2024/10/24/broncos-josh-reynolds-shooting/
 
