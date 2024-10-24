@@ -1,3 +1,11 @@
+**Checking in on Big Ten's first coast-to-coast season: Does conference have concerns?**\
+`In addition to the long flights and late nights, updates on Friday night games and a glimpse at the 2025 schedule. `\
+https://nytimes.com/athletic/5867880/2024/10/24/big-ten-football-scheduling-travel/
+
+**Putin Abandons Caution on North Korea in Pursuit of Victory in Ukraine**\
+`The invasion of Ukraine has led the Russian leader to jettison cooperation with the West over North Korea’s nuclear arsenal in favor of an ever-deepening military alliance with Pyongyang.`\
+https://nytimes.com/2024/10/24/world/europe/russia-north-korea.html
+
 **An American in Paris, Honored Like Nobody Before**\
 `The artist Barbara Chase-Riboud hadn’t had a show in her adopted city since 1974. Now she is being celebrated in eight museums, including the Louvre.`\
 https://nytimes.com/2024/10/24/arts/design/barbara-chase-riboud-paris.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5869124/2024/10/24/raphinha-barca-bayern-mls-season
 **Mexico City GP circuit breakdown: F1's highest altitude affects everything**\
 `Formula One has arrived at one of the highest circuits on its calendar: the Autódromo Hermanos Rodríguez.`\
 https://nytimes.com/athletic/5003029/2024/10/24/mexican-gp-f1-track-breakdown-autodromo-hermanos-rodriguez/
-
-**The French Connection to Online Bets on Trump**\
-`Polymarket said that it had linked a single trader to accounts that have wagered heavily on the Republican to win, pushing up his odds on the prediction market.`\
-https://nytimes.com/2024/10/24/business/dealbook/polymarket-trump-trader.html
-
-**Gaza’s main emergency service says it has ‘completely ceased’ rescue operations in the north.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/gazas-main-emergency-service-says-it-has-completely-ceased-rescue-operations-in-the-north
 
