@@ -1,3 +1,15 @@
+**King to return to Arsenal as director of football operations**\
+`James King, a former Arsenal executive, is set to return to the club as director of football operations.`\
+https://nytimes.com/athletic/5869757/2024/10/24/arsenal-james-king-football-operations/
+
+**Fly on The Wall! Opening night and opposing fans in LA Clippers' Intuit Dome experimental section**\
+`Make sure you're wearing Clippers gear if you want to experience the NBA's wildest new cheering area.`\
+https://nytimes.com/athletic/5868971/2024/10/24/clippers-the-wall-intuit-dome-opposing-fans/
+
+**‘Conclave’ Review: Serpents and Doves Amok in the Vatican**\
+`This film, based on Robert Harris’s 2016 thriller of the same title, centers on a British cardinal (a sensational Ralph Fiennes), and a campaign for a new pope.`\
+https://nytimes.com/2024/10/24/movies/conclave-review.html
+
 **The Group at the Center of Trump’s Planning for a Second Term Is One You Haven’t Heard of**\
 `America First Policy Institute didn’t even exist four years ago. But it is poised to be more influential than Project 2025.`\
 https://nytimes.com/2024/10/24/us/politics/donald-trump-campaign-america-first-policy-institute.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/24/us/politics/tucker-carlson-trump-spanking.html
 **As Election Looms, Justice Dept. Tries to Steer Clear of Politics**\
 `A department memo seeks to formalize a pre-election “quiet period” in which senior officials should avoid unnecessary high-profile moves.`\
 https://nytimes.com/2024/10/24/us/politics/justice-department-election.html
-
-**Fantasy basketball roundup: Rui Hachimura, Dyson Daniels and more NBA opening night standouts**\
-`After watching the first two nights of NBA regular-season action, Stan Son shares his observations, including notable developments in LA.`\
-https://nytimes.com/athletic/5869698/2024/10/24/fantasy-basketball-roundup-ropening-night-standouts-sleepers/
-
-**Trump Says He’ll Fire Special Counsel Who Indicted Him if He Wins Again**\
-`The former president’s remarks to a conservative radio host were his most pointed about the special counsel, Jack Smith, if he returns to the White House.`\
-https://nytimes.com/2024/10/24/us/politics/trump-jack-smith.html
-
-**Netflix Wanted ‘Wuthering Heights.’ Margot Robbie Wanted a Theatrical Release.**\
-`In the end, Ms. Robbie got what she wanted, signing a deal with Warner Bros.`\
-https://nytimes.com/2024/10/24/business/media/margot-robbie-wuthering-heights-warner-bros.html
 
