@@ -1,3 +1,7 @@
+**Arsenal Today: Remembering 'pizzagate', Cushing targeted and left-back headaches**\
+`Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
+https://nytimes.com/athletic/5867288/2024/10/24/arsenal-today-october-24/
+
 **World Opens to the Taliban Despite Their Shredding of Women’s Rights**\
 `Taliban officials have scored a series of diplomatic victories this year that have started a subtle shift toward normalizing their government.`\
 https://nytimes.com/2024/10/24/world/asia/afghanistan-taliban-diplomacy.html
