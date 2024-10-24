@@ -1,3 +1,7 @@
+**The Yankees and Dodgers are both in the World Series. No mascots will be there**\
+`Twenty-eight MLB teams have their own mascots. The only two that don't will face off in this year's Fall Classic. `\
+https://nytimes.com/athletic/5868748/2024/10/24/yankees-dodgers-mascots-world-series/
+
 **Giannis, Damian Lillard star in Bucks win as 'awesome' Gary Trent Jr. provides intense defense**\
 `While the Bucks' stars stuffed the stat sheet, Trent Jr. showed that he could furnish 'physical, tough' on-the-ball defense.`\
 https://nytimes.com/athletic/5868972/2024/10/24/giannis-damian-lillard-bucks-gary-trent-jr/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/world/middleeast/turkey-attack-who-what.html
 **Quinn Hughes' defensive mastery, what I'm seeing from Elias Pettersson and more**\
 `The vibes around Vancouver are good after three consecutive wins, and the positive momentum is building.`\
 https://nytimes.com/athletic/5866976/2024/10/24/canucks-quinn-hughes-elias-pettersson/
-
-**Lebanon says an Israeli attack killed 3 more of its soldiers.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/lebanon-says-an-israeli-attack-killed-3-more-of-its-soldiers
 
