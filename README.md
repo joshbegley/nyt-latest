@@ -1,5 +1,5 @@
 **Broncos WR Josh Reynolds injured in shooting Friday, team says**\
-`Reynolds, currently on IR, has been working out on a side field Denver practices this week.`\
+`Reynolds, currently on IR, has been working out on a side field at Denver practices this week.`\
 https://nytimes.com/athletic/5870757/2024/10/24/broncos-josh-reynolds-shooting/
 
 **Making Masterpieces With Elmer’s Glue and Mustard Seeds **\
