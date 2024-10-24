@@ -1,3 +1,7 @@
+**Zach Frazier's college injury might have saved rookie season with Steelers**\
+`The plate in Frazier's leg from his surgery last year might have saved him from another season-ending injury.`\
+https://nytimes.com/athletic/5870342/2024/10/24/zach-frazier-injury-steelers-center/
+
 **The Israeli military strikes a school turned shelter in Gaza that it says was hiding a Hamas command center.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/the-israeli-military-strikes-a-school-turned-shelter-in-gaza-that-it-says-was-hiding-a-hamas-command-center
