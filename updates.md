@@ -1,3 +1,7 @@
+**Arab and Jewish Voters Both Need Kamala Harris**\
+`She’s the only one who can defuse the crisis in the Middle East.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/friedman-gaza-israel-harris-trump
+
 **Mozambique’s Governing Party Candidate Wins Disputed Presidential Election**\
 `Daniel Chapo of the Frelimo party, which has governed the southern African nation for nearly 50 years, was declared the victor amid violence and widespread allegations of fraud.`\
 https://nytimes.com/2024/10/24/world/africa/mozambique-election-results-fraud.html
