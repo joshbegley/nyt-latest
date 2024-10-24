@@ -1,3 +1,7 @@
+**Biden to Apologize for Indian Boarding Schools Where Hundreds of Children Died**\
+`President Biden’s trip to the battleground state of Arizona will be the first time an American president has apologized for the abuses that happened at the schools over a period of 150 years.`\
+https://nytimes.com/2024/10/24/us/politics/biden-indian-boarding-schools-arizona.html
+
 **The Election Is Happening Too Soon**\
 `When we all think we’re right, we stay perennially stuck in place.`\
 https://nytimes.com/2024/10/24/opinion/polarization-harris-change.html
