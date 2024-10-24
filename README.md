@@ -1,3 +1,7 @@
+**In Georgia, Harris Risks a Split in the Muslim and Arab Vote**\
+`Muslim and Arab voters were part of the coalition in Georgia who delivered victories to Democrats there in 2020 and in 2022. Maya King, a politics reporter for The New York Times covering the Southeast, describes how war in the Middle East is affecting their choice in 2024.`\
+https://nytimes.com/video/us/politics/100000009774269/in-georgia-harris-risks-a-split-in-the-muslim-and-arab-vote.html
+
 **In Georgia, Harris’s Muslim Backers Push Her as Better Than the Alternative**\
 `The Mideast war is threatening Vice President Kamala Harris’s support among Muslim and Arab American voters, a traditionally Democratic constituency, in critical swing states.`\
 https://nytimes.com/2024/10/24/us/politics/in-georgia-harriss-muslim-backers-push-her-as-better-than-the-alternative.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5870088/2024/10/24/49ers-second-half-rally-trade-de
 **Lions' Jameson Williams accepts 2-game suspension**\
 `Williams will be eligible for reinstatement after Detroit's Week 9 game against the Green Bay Packers.`\
 https://nytimes.com/athletic/5870188/2024/10/24/lions-jameson-williams-accepts-suspension/
-
-**Michael Jackson, British General Who Disobeyed U.S. Superior, Dies at 80**\
-`Labeled “the Prince of Darkness,” he refused to follow an order by NATO’s commander during the Balkans war, saying, “It’s not worth starting World War III.”`\
-https://nytimes.com/2024/10/24/world/europe/gen-sir-michael-jackson-dead.html
 
