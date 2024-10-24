@@ -1,3 +1,7 @@
+**Scottie Barnes and Evan Mobley are worlds away from their past selves — and each other**\
+`Barnes has to try to carry the Raptors, while Mobley can merely support the Cavaliers. `\
+https://nytimes.com/athletic/5868642/2024/10/23/scottie-barnes-evan-mobley-raptors-cavaliers/
+
 **A Wisconsin Mayor, a Former Republican, Endorses Harris**\
 `Shawn Reilly, the mayor of Waukesha, Wis., said he had never thrown his support behind a Democrat before.`\
 https://nytimes.com/2024/10/23/us/politics/shawn-reilly-wisconsin-mayor-kamala-harris-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/crosswords/daily-puzzle-2024-10-24.html
 **Lana Del Rey Married a Normie. Other Celebrities Have Too.**\
 `The pop singer and songwriter married her longtime boyfriend, Jeremy Dunfre, a swamp tour guide. Other celebrities have also wed someone who’s not rich or famous.`\
 https://nytimes.com/2024/10/23/arts/music/lana-del-rey-jeremy-dunfre-dolly-parton.html
-
-**Dodgers' Jerry Reuss remembers late Valenzuela, FernandoMania: 'A legend in the making'**\
-`Reuss was at the center of Fernandomania and he marvels at Valenzuela's brilliance to this day.`\
-https://nytimes.com/athletic/5868531/2024/10/23/jerry-reuss-remembers-fernando-valenzuela/
 
