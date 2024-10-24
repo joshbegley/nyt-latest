@@ -1,3 +1,7 @@
+**Football Governance Bill: A step closer - but what is new and what has the reaction been?**\
+`Any lingering hopes the Premier League might have had of diluting the powers of English football’s proposed independent regulator have been dashed by the news the government is resuming the process to create the role on Thursday.`\
+https://nytimes.com/athletic/5867281/2024/10/24/football-governance-bill-independent-regulator-update/
+
 **The New York Liberty Will Be Celebrated With a Ticker-Tape Parade**\
 `The W.N.B.A.’s newest champions will be honored along the Canyon of Heroes on Broadway, the third time a women’s sports team has been granted that privilege.`\
 https://nytimes.com/2024/10/24/nyregion/new-york-liberty-win-wnba-parade.html
