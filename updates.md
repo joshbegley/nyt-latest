@@ -1,3 +1,7 @@
+**The Yankees and Dodgers are both in the World Series. No mascots will be there**\
+`Twenty-eight MLB teams have their own mascots. The only two that don't will face off in this year's Fall Classic. `\
+https://nytimes.com/athletic/5868748/2024/10/24/yankees-dodgers-mascots-world-series/
+
 **Giannis, Damian Lillard star in Bucks win as 'awesome' Gary Trent Jr. provides intense defense**\
 `While the Bucks' stars stuffed the stat sheet, Trent Jr. showed that he could furnish 'physical, tough' on-the-ball defense.`\
 https://nytimes.com/athletic/5868972/2024/10/24/giannis-damian-lillard-bucks-gary-trent-jr/
