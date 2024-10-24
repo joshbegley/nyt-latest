@@ -1,40 +1,40 @@
-**Richard McGuire Knows Fans Want a Drawing When He Signs Their Books**\
-`Ten years ago he published the graphic novel “Here,” an instant classic depicting one room in one house over generations. Now Tom Hanks is starring in the movie.`\
-https://nytimes.com/2024/10/24/books/review/richard-mcguire-here.html
+**Sudden change margin? The stat's importance just played out in Georgia's win at Texas**\
+`On offense, sudden change measures how good you are at taking advantage of mistakes. On defense, it measures composure. `\
+https://nytimes.com/athletic/5867064/2024/10/24/college-football-sec-sudden-change-margin/
 
-**A Game Designer Who Wants to See Ideas He’ll Hate**\
-`The founder of Giant Sparrow says creativity requires pushing boundaries. Its next game will explore “the strangeness of organic life.”`\
-https://nytimes.com/2024/10/24/arts/giant-sparrow-next-game-edith-finch.html
+**Harris Drops the F-Bomb on CNN’s Town Hall**\
+`But name-calling is less powerful than truth-telling.`\
+https://nytimes.com/2024/10/24/opinion/harris-trump-fascist-town-hall.html
 
-**Pets Are Part of the Family, and Part of New York City’s Fabric**\
-`The New-York Historical Society explores the relationships between New Yorkers and their pets.`\
-https://nytimes.com/2024/10/24/arts/design/pets-new-york-historical-society.html
+**What is with the drama surrounding Bill Belichick, Jerod Mayo and the Patriots?**\
+`Between the current and former coaches, Ja'Lynn Polk and more, the drama continues to swirl for the Patriots, losers of six straight games. `\
+https://nytimes.com/athletic/5867378/2024/10/24/patriots-bill-belichick-jerod-mayo-drama/
 
-**Vikings at Rams odds, expert picks, how to watch: Minnesota favored to bounce back**\
-`The Vikings are fresh off their first loss of the season but are favored on the road to beat the Rams, who are dealing with trade rumors.`\
-https://nytimes.com/athletic/5868018/2024/10/24/vikings-rams-odds-picks-how-to-watch/
+**Trump’s Election Reversal Dreams Are Dead**\
+`At least as far as the law goes.`\
+https://nytimes.com/2024/10/24/opinion/trump-election-outcome-law.html
 
-**How Rangers' Kaapo Kakko navigates Type 1 diabetes as an NHL player**\
-`Kakko has to maintain his diet but says, "When you’ve been living with it, you know what you’re going to eat. You know what you need to do.”`\
-https://nytimes.com/athletic/5862335/2024/10/24/kaapo-kakko-new-york-rangers-diabetes/
+**Elon Musk Plots His Final Moves for Trump**\
+`With less than two weeks until Election Day, the richest person in the world is throwing himself into the effort to elect the former president.`\
+https://nytimes.com/2024/10/24/us/elections/elon-musk-trump-campaign.html
 
-**Denmark appoint former Brentford assistant Riemer as new head coach**\
-`Denmark have appointed former Brentford assistant Brian Riemer as their new men’s head coach.`\
-https://nytimes.com/athletic/5869014/2024/10/24/denmark-appoint-former-brentford-assistant-brian-riemer-as-new-mens-head-coach/
+**Celtics' raining 3s could become a downpour if 'Mazzulla Ball' goes next level**\
+`“The goal is never to just shoot it,” coach Joe Mazzulla said. “The goal is to find the best shots.”`\
+https://nytimes.com/athletic/5867537/2024/10/24/celtics-3s-record-mazzulla-ball-video-review/
 
-**Cambodia Journalist Who Exposed Scams Is Released on Bail**\
-`Mech Dara spent three weeks in detention after he was charged for posts he made online. He still faces a charge of “incitement to provoke social chaos.”`\
-https://nytimes.com/2024/10/24/world/asia/cambodia-journalist-scams-bail.html
+**On the Upper East Side, Was $800,000 Enough for a Dog-Friendly Two-Bedroom?**\
+`A young couple searched Yorkville and Lenox Hill for a place with enough space to make their guests and their pets a little more comfortable. Here’s what they found.`\
+https://nytimes.com/interactive/2024/10/24/realestate/upper-east-side-co-op-condo.html
 
-**Lucy Letby, Former U.K. Nurse, Tries to Appeal One Conviction for Attempted Murder**\
-`Ms. Letby is serving 15 life sentences after the deaths and collapses of babies in the neonatal unit where she worked. On Thursday judges will consider whether she can appeal one of her convictions.`\
-https://nytimes.com/2024/10/24/world/europe/lucy-letby-nurse-appeal-murder.html
+**E.P.A. Toughens Requirements to Remove Lead Paint Dust Around Children**\
+`The new rules consider any detectable level of lead dust in a building a “lead hazard,” requiring property owners to pay for cleanup.`\
+https://nytimes.com/2024/10/24/climate/epa-lead-paint-dust-rules.html
 
-**Brighton's Welbeck a doubt for Wolves game**\
-`Brighton &amp; Hove Albion will make a late decision on top scorer Danny Welbeck for Saturday&#8217;s home game against Wolves.`\
-https://nytimes.com/athletic/5868998/2024/10/24/brighton-welbeck-injury-update-wolves/
+**Was that the real Nebraska? Huskers eager to prove Indiana debacle was an anomaly**\
+`The residual effects from last Saturday can be felt all around. Noise on the outside is booming. Anxiety is high among the fan base.`\
+https://nytimes.com/athletic/5868182/2024/10/24/nebraska-indiana-game-matt-rhule/
 
-**Jazz defeat in season opener isn't so bad, as long as their losses continue to be close**\
-`Utah needs to come away from the 2025 NBA Draft with a potential star. The loss to Memphis points them in the right direction.`\
-https://nytimes.com/athletic/5868808/2024/10/24/jazz-lose-season-opener-grizzlies/
+**I Went Viral for Crying Over Hurricane Milton. I Couldn’t Help It.**\
+`When it comes to the climate crisis, sometimes feelings are as important as facts, even for meteorologists.`\
+https://nytimes.com/2024/10/24/opinion/hurricane-milton-climate-change.html
 
