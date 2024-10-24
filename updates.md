@@ -1,3 +1,11 @@
+**Golden Knights sign Shea Theodore to 7-year extension**\
+`The deal carries an average annual value of $7.425 million.`\
+https://nytimes.com/athletic/5870742/2024/10/24/golden-knights-shea-theodore-extension/
+
+**Philip Zimbardo, 91, Whose Stanford Prison Experiment Studied Evil, Dies**\
+`His provocative research made him a popular figure on campus. But his exploration of how good people can turn evil raised ethical questions.`\
+https://nytimes.com/2024/10/24/science/philip-zimbardo-dead.html
+
 **There’s No One-Size-Fits-All Gift. But These Come Really Close. **\
 `By Hannah Morrill`\
 https://nytimes.com/card/2024/10/24/smarter-living/wirecutter/theres-no-one-size-fits-all-gift-but-these-come-really-close
