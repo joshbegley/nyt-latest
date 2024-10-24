@@ -1,3 +1,19 @@
+**In Mexico City, F1 Teams Must Cope With the Altitude**\
+`The thinner air affects the cars in many ways, including the performance of the turbo engines, brakes and tires. “It’s like driving in the wet,” the driver Lance Stroll of Aston Martin said.`\
+https://nytimes.com/2024/10/24/sports/autoracing/f1-mexico-city-altitude.html
+
+**Union Votes to Reject Boeing Contract and Continue Strike**\
+`Workers in Boeing’s largest union voted by a wide margin to reject a second tentative contract and extend a nearly six-week-long strike.`\
+https://nytimes.com/video/us/100000009780270/boeing-strike-vote-machinists-union.html
+
+**As Sergio Pérez Struggles, Questions Follow**\
+`He started the season strong, but his results have been mostly poor since. His team, Red Bull, has fallen to second place.`\
+https://nytimes.com/2024/10/24/sports/autoracing/sergio-perez-red-bull.html
+
+**Franco Colapinto Makes an Impression, but He May Not Have a Seat for 2025**\
+`He replaced Logan Sargeant after he was dropped by Williams, but Carlos Sainz will move to the team for next year.`\
+https://nytimes.com/2024/10/24/sports/autoracing/f1-franco-colapinto-williams.html
+
 **NFL Week 8 fantasy football, betting cheat sheet: Puka Nacua might play Thursday**\
 `Cooper Kupp, who has been surrounded by trade rumors, is expected to play Thursday night. Could Puka Nacua join him?`\
 https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-injuries-rankings-betting/
@@ -6,7 +22,7 @@ https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-inju
 `Valaika, 39, comes from the Cleveland Guardians, where he had been the team’s hitting coach since 2022.`\
 https://nytimes.com/athletic/5870063/2024/10/24/reds-hire-chris-valaika-hitting-coach/
 
-**What We Saw at the Liberty Parade**\
+**What We Saw at the W.N.B.A. Championship Parade for the Liberty**\
 `By The New York Times`\
 https://nytimes.com/card/2024/10/24/nyregion/ny-liberty-parade-video
 
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/24/climate/biological-engineering-climate-change.htm
 **King to return to Arsenal as director of football operations**\
 `James King, a former Arsenal executive, is set to return to the club as director of football operations.`\
 https://nytimes.com/athletic/5869757/2024/10/24/arsenal-james-king-football-operations/
-
-**Fly on The Wall! Opening night and opposing fans in LA Clippers' Intuit Dome experimental section**\
-`Make sure you're wearing Clippers gear if you want to experience the NBA's wildest new cheering area.`\
-https://nytimes.com/athletic/5868971/2024/10/24/clippers-the-wall-intuit-dome-opposing-fans/
-
-**‘Conclave’ Review: Serpents and Doves Amok in the Vatican**\
-`This film, based on Robert Harris’s 2016 thriller of the same title, centers on a British cardinal (a sensational Ralph Fiennes), and a campaign for a new pope.`\
-https://nytimes.com/2024/10/24/movies/conclave-review.html
-
-**The Group at the Center of Trump’s Planning for a Second Term Is One You Haven’t Heard of**\
-`America First Policy Institute didn’t even exist four years ago. But it is poised to be more influential than Project 2025.`\
-https://nytimes.com/2024/10/24/us/politics/donald-trump-campaign-america-first-policy-institute.html
-
-**As Bird Flu Spreads, Additional Human Infection Is Reported in Missouri**\
-`Two people sharing a home caught the virus without known exposure to animals. More than 30 human cases have been reported in the United States.`\
-https://nytimes.com/2024/10/24/health/bird-flu-missouri.html
 
