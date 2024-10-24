@@ -1,3 +1,7 @@
+**Arsenal's Odegaard on track to return next month, says Norway coach**\
+`Norway head coach Stale Solbakken says Arsenal captain Martin Odegaard is on track to return for the November international break.`\
+https://nytimes.com/athletic/5869067/2024/10/24/martin-odegaard-injury-update-arsenal/
+
 **Vikings-Rams: Can Kevin O'Connell get the better of Sean McVay?**\
 `Thursday night's game marks the first matchup between McVay and O'Connell since they won a Super Bowl together with the Rams in early 2022.`\
 https://nytimes.com/athletic/5867310/2024/10/24/vikings-rams-preview-predictions-kevin-oconnell-sean-mcvay/
