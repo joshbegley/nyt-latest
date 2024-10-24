@@ -1,5 +1,13 @@
 **Georgia secretary of state fends off cyberattack targeting absentee ballot website.**\
 `By Simon J. Levien`\
+https://nytimes.com/2024/10/23/us/politics/georgia-secretary-of-state-cyberattack.html
+
+**Lana Del Rey Married a Normie. Other Celebrities Have Too.**\
+`The pop singer and songwriter married her longtime boyfriend, Jeremy Dunfre, a swamp tour guide. Other celebrities have also wed someone who’s not rich or famous.`\
+https://nytimes.com/2024/10/23/arts/music/lana-del-rey-jeremy-dunfre-dolly-parton.html
+
+**Georgia secretary of state fends off cyberattack targeting absentee ballot website.**\
+`By Simon J. Levien`\
 https://nytimes.com/live/2024/10/23/us/harris-trump-election/georgia-secretary-of-state-cyberattack
 
 **Striking Boeing Workers Reject New Contract**\
