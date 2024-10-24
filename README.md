@@ -1,3 +1,15 @@
+**Early NHL trade candidates: 10 players to watch ahead of the deadline this season**\
+`It's too early for a full-blown NHL Trade Board but not to start identifying who could play a role in the upcoming trading season.`\
+https://nytimes.com/athletic/5866643/2024/10/24/nhl-trade-board-provorov-fowler-liljegren/
+
+**Blinken says Gaza talks will resume, but offers no sign Hamas has softened its position.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/blinken-says-gaza-talks-will-resume-but-offers-no-sign-hamas-has-softened-its-position
+
+**Cooper Kupp trade rumors: Ranking the best fantasy football fits**\
+`The 49ers could be a perfect scheme fit, but would L.A. send Kupp to rival San Francisco? What about the battered Bucs?`\
+https://nytimes.com/athletic/5867069/2024/10/24/cooper-kupp-trade-rumors-fantasy-football-fits/
+
 **Unexplained Enigmas in the Orion Nebula May Be Victims of Stellar Bullying**\
 `Astronomers offered a new hypothesis for what created pairs of objects nicknamed JuMBOs, while other scientists argue they may not really exist.`\
 https://nytimes.com/2024/10/24/science/james-webb-space-telescope-orion-nebula-jumbos.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/france-b
 **Arab and Jewish Voters Both Need Kamala Harris**\
 `She’s the only one who can defuse the crisis in the Middle East.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/friedman-gaza-israel-harris-trump
-
-**Mozambique’s Governing Party Candidate Wins Disputed Presidential Election**\
-`Daniel Chapo of the Frelimo party, which has governed the southern African nation for nearly 50 years, was declared the victor amid violence and widespread allegations of fraud.`\
-https://nytimes.com/2024/10/24/world/africa/mozambique-election-results-fraud.html
-
-**NBA Lookahead: Year 2 of Victor Wembanyama begins, and the best of the weekend**\
-`Zach Harper previews the upcoming NBA weekend as Victor Wembanyama's sophomore season highlights slate.`\
-https://nytimes.com/athletic/5867579/2024/10/24/victor-wembanyama-spurs-lebron-james-lakers-nba/
-
-**Branthwaite in line to return vs Fulham after recovering from quad injury**\
-`Jarrad Branthwaite is in line to return for Everton’s game against Fulham in the Premier League this weekend after overcoming a quad injury.`\
-https://nytimes.com/athletic/5869540/2024/10/24/jarrad-branthwaite-everton-fulham/
 
