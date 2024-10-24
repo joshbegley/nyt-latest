@@ -1,3 +1,15 @@
+**Why Democracy Lives and Dies by Math**\
+`A documentary filmmaker and a mathematician discuss our fear of numbers and its civic costs.`\
+https://nytimes.com/2024/10/24/science/math-documentary-voting-abeles.html
+
+**82 American Nobel Prize Winners Endorse Kamala Harris**\
+`The group of scientists and economists said they feared a Trump presidency would impede progress in science and technology and in fighting climate change.`\
+https://nytimes.com/2024/10/24/science/kamala-harris-nobel-winners.html
+
+**Read the Letter from Nobel Laureates Endorsing Kamala Harris for President**\
+`More than 80 American Nobel Prize winners in physics, chemistry, medicine and economics have signed an open letter endorsing Vice President Kamala Harris for president.`\
+https://nytimes.com/interactive/2024/10/24/us/sci-pol-nobel-winners-pdf.html
+
 **Giannis, Damian Lillard star in Bucks win as 'awesome' Gary Trent Jr. provides intense defense**\
 `While the Bucks' stars stuffed the stat sheet, Trent Jr. showed that he could furnish "physical, tough" on-the-ball defense.`\
 https://nytimes.com/athletic/5868972/2024/10/24/giannis-damian-lillard-bucks-gary-trent-jr/
