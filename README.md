@@ -1,3 +1,11 @@
+**Braves' Max Fried nearing free agency; catching prospect Drake Baldwin nearing MLB arrival**\
+`Fried's consistent performance and reputation as a tireless worker will factor into his price tag in free agency.`\
+https://nytimes.com/athletic/5868144/2024/10/24/braves-max-fried-drake-baldwin/
+
+**What can the Chiefs expect from DeAndre Hopkins, their new receiver?**\
+`Why the deal with the Titans made sense for the Chiefs, how Hopkins fits this season, and what it means for the future at receiver.`\
+https://nytimes.com/athletic/5867833/2024/10/24/chiefs-deandre-hopkins-trade-expectations/
+
 **Listen: ‘The Push to Ban Phones in School’**\
 `More and more states are cracking down on students’ use of cellphones. Is that a good thing?`\
 https://nytimes.com/2024/10/24/learning/listen-the-push-to-ban-phones-in-school.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5867873/2024/10/24/bengals-defense-explosive-plays-
 **Big Ten recruiting thoughts: Ohio State leads the way, Michigan adds a huge piece**\
 `Indiana has been the story of the 2024 season on the field. When will the Hoosiers see a bump on the recruiting trail?`\
 https://nytimes.com/athletic/5867823/2024/10/24/big-ten-football-recruiting-ohio-state-michigan-oregon/
-
-**Sudden change margin? The stat's importance just played out in Georgia's win at Texas**\
-`On offense, sudden change measures how good you are at taking advantage of mistakes. On defense, it measures composure. `\
-https://nytimes.com/athletic/5867064/2024/10/24/college-football-sec-sudden-change-margin/
-
-**Harris Drops the F-Bomb on CNN’s Town Hall**\
-`But name-calling is less powerful than truth-telling.`\
-https://nytimes.com/2024/10/24/opinion/harris-trump-fascist-town-hall.html
 
