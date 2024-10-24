@@ -1,3 +1,7 @@
+**Netflix Wanted ‘Wuthering Heights.’ Margot Robbie Wanted a Theatrical Release.**\
+`In the end, Ms. Robbie got what she wanted, signing a deal with Warner Bros.`\
+https://nytimes.com/2024/10/24/business/media/margot-robbie-wuthering-heights-warner-bros.html
+
 **‘Conclave’ Review: Serpents and Doves Amok in the Vatican**\
 `This film, based on Robert Harris’s 2016 thriller of the same title, centers on a British cardinal (a sensational Ralph Fiennes), and a campaign for a new pope.`\
 https://nytimes.com/2024/10/24/movies/conclave-review.html

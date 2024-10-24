@@ -1,7 +1,3 @@
-**‘Conclave’ Review: Serpents and Doves Amok in the Vatican**\
-`This film, based on Robert Harris’s 2016 thriller of the same title, centers on a British cardinal (a sensational Ralph Fiennes), and a campaign for a new pope.`\
-https://nytimes.com/2024/10/24/movies/conclave-review.html
-
 **The Group at the Center of Trump’s Planning for a Second Term Is One You Haven’t Heard of**\
 `America First Policy Institute didn’t even exist four years ago. But it is poised to be more influential than Project 2025.`\
 https://nytimes.com/2024/10/24/us/politics/donald-trump-campaign-america-first-policy-institute.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5869698/2024/10/24/fantasy-basketball-roundup-ropen
 **Trump Says He’ll Fire Special Counsel Who Indicted Him if He Wins Again**\
 `The former president’s remarks to a conservative radio host were his most pointed about the special counsel, Jack Smith, if he returns to the White House.`\
 https://nytimes.com/2024/10/24/us/politics/trump-jack-smith.html
+
+**Netflix Wanted ‘Wuthering Heights.’ Margot Robbie Wanted a Theatrical Release.**\
+`In the end, Ms. Robbie got what she wanted, signing a deal with Warner Bros.`\
+https://nytimes.com/2024/10/24/business/media/margot-robbie-wuthering-heights-warner-bros.html
 
