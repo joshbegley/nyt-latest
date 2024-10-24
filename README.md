@@ -1,3 +1,11 @@
+**Michael Jackson, British General Who Disobeyed U.S. Superior, Dies at 80**\
+`Labeled “the Prince of Darkness,” he refused to follow an order by NATO’s commander during the Balkans war, saying, “It’s not worth starting World War III.”`\
+https://nytimes.com/2024/10/24/world/europe/gen-sir-michael-jackson-dead.html
+
+**Antonio Skármeta, Who Wrote of Chile’s Tears and Turmoil, Dies at 83**\
+`His literary career traced the arc of his country’s modern political journey in stories about ordinary citizens facing repression and arbitrary government.`\
+https://nytimes.com/2024/10/24/books/antonio-skarmeta-dead.html
+
 **Republicans challenged an Ohio Democrat’s residency as she faces a tough re-election race.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/10/24/us/harris-trump-election/republicans-challenged-an-ohio-democrats-residency-as-she-faces-a-tough-re-election-race
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5870076/2024/10/24/lionel-messi-mls-salary-guide-to
 **Investigation of Georgia Movie Set Crash Finds No Violations**\
 `Eight people were injured, three of them seriously, in a crash on the set of “The Pickup” in April. A federal investigation found no health or safety violations.`\
 https://nytimes.com/2024/10/24/movies/georgia-crash-eddie-murphy-movie-set.html
-
-**Heat Today: Miami eyes Charlotte after offense fizzles in opening-night loss to Magic**\
-`Magic snap road losing streak to Heat as Miami regroups after opening-night blowout.`\
-https://nytimes.com/athletic/5869764/2024/10/24/miami-heat-jimmy-butler-magic-paolo-banchero-nba/
-
-**College football Week 9 model-projected point differentials and totals for every game**\
-`Austin Mock's projection model has the predicted points differentials and totals for every FBS vs. FBS game in college football's Week 9.`\
-https://nytimes.com/athletic/5870080/2024/10/24/college-football-week-9-model-projections/
 
