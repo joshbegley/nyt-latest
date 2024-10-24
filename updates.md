@@ -1,3 +1,7 @@
+**Patti McGee, Skateboarding’s First Female Champion, Dies at 79**\
+`She was on the cover of Life magazine and performed for Johnny Carson. “She was a badass and a goody two shoes at the same time,” her daughter said.`\
+https://nytimes.com/2024/10/24/sports/patti-mcgee-dead.html
+
 **Iran Preparing for War With Israel, but Hoping to Avert It**\
 `Tehran has several plans for responding to a threatened retaliatory strike by Israel, depending on its severity, and might also do nothing, insiders say.`\
 https://nytimes.com/2024/10/24/world/middleeast/iran-israel-attack-plans.html
