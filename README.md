@@ -10,8 +10,8 @@ https://nytimes.com/2024/10/24/business/teens-movies-tv-sex.html
 `After years of injury setbacks, Turcotte is off to an effective start to the NHL season in a regular role with increased responsibility.`\
 https://nytimes.com/athletic/5868953/2024/10/24/nhl-alex-turcotte-la-kings-season/
 
-**U.K. Plans to Ban Disposable Vapes Next Year**\
-`The measure in England, which the government said was likely to be matched in Scotland and Wales, aims to protect young people’s health and reduce environmental damage.`\
+**England Plans to Ban Disposable Vapes Next Year**\
+`The measure, which echoes plans in Scotland and Wales, aims to protect young people’s health and reduce environmental damage.`\
 https://nytimes.com/2024/10/24/world/europe/uk-disposable-vapes-ban.html
 
 **The Yankees and Dodgers are both in the World Series. No mascots will be there**\
