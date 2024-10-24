@@ -1,3 +1,7 @@
+**Violence Surges in N.Y.C. Juvenile Jails After Influx of Older Teens**\
+`Since the Raise the Age law was passed, the number of older teenagers in juvenile centers has exploded, and workers have faced attacks, the Department of Investigation said.`\
+https://nytimes.com/2024/10/24/nyregion/nyc-crime-juvenile-jails-raise-the-age-law.html
+
 **Why Boeing Workers Rejected a New Contract: Retirement Benefits**\
 `A large majority of more than 33,000 striking union members voted against a contract that included big raises but not the restoration of a frozen pension plan.`\
 https://nytimes.com/2024/10/24/business/boeing-union-strike-pensions.html
