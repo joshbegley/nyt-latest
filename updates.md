@@ -1,3 +1,7 @@
+**A Very New York Party for New York Nico**\
+`At Astor Place Hairstylists, an old-school barbershop, small-business owners feted a social media star who spotlights the city’s gritty character.`\
+https://nytimes.com/2024/10/24/style/new-york-nico-book-party.html
+
 **Violence Surges in N.Y.C. Juvenile Jails After Influx of Older Teens**\
 `Since the Raise the Age law was passed, the number of older teenagers in juvenile centers has exploded, and workers have faced attacks, the Department of Investigation said.`\
 https://nytimes.com/2024/10/24/nyregion/nyc-crime-juvenile-jails-raise-the-age-law.html
