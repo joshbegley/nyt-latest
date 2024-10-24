@@ -1,3 +1,7 @@
+**Arsenal Today: Remembering 'pizzagate', Cushing targeted and left-back headaches**\
+`Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
+https://nytimes.com/athletic/5867288/2024/10/24/arsenal-today-october-24/
+
 **World Opens to the Taliban Despite Their Shredding of Women’s Rights**\
 `Taliban officials have scored a series of diplomatic victories this year that have started a subtle shift toward normalizing their government.`\
 https://nytimes.com/2024/10/24/world/asia/afghanistan-taliban-diplomacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866359/2024/10/24/invincible-season-angelholms/
 **Johnstone or Sa? Wolves' season could be defined by O'Neil's decision**\
 `The club's manager faces a tricky choice over who to pick in goal, with both men providing compelling arguments for their inclusion`\
 https://nytimes.com/athletic/5866408/2024/10/24/wolves-goalkeepers-johnstone-sa/
-
-**Manchester United, Arsenal and the 'Battle of the Buffet' - told by those who were there**\
-`An oral history, 20 years on, of when United ended Arsenal's 49-game unbeaten run and punches and pizza were thrown in a brawl afterwards`\
-https://nytimes.com/athletic/5866613/2024/10/24/pizzagate-manchester-united-arsenal-battle-of-the-buffet/
 
