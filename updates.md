@@ -1,3 +1,7 @@
+**The Pulse: First NBA impressions**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5868591/2024/10/24/kennesaw-state-liberty-upset-the-pulse/
+
 **Ole Miss built a $10M roster to reach the 12-team Playoff. With 2 losses, now what?**\
 `The Rebels can still make the Playoff, though the odds are steeper. "This isn't a one-shot wonder," says the Ole Miss athletic director.`\
 https://nytimes.com/athletic/5867884/2024/10/24/ole-miss-college-football-playoff-nil/
