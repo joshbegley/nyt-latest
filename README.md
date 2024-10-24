@@ -1,3 +1,7 @@
+**Biden to Apologize for Indian Boarding Schools Where Hundreds of Children Died**\
+`President Biden’s trip to the battleground state of Arizona will be the first time an American president has apologized for the abuses that happened at the schools over a period of 150 years.`\
+https://nytimes.com/2024/10/24/us/politics/biden-indian-boarding-schools-arizona.html
+
 **The Election Is Happening Too Soon**\
 `When we all think we’re right, we stay perennially stuck in place.`\
 https://nytimes.com/2024/10/24/opinion/polarization-harris-change.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/5862965/2024/10/24/tottenham-moore-werner-richarlis
 **Postecoglou says 'hard to keep a lid' on Tottenham's Moore**\
 `Ange Postecoglou has praised Mikey Moore’s maturity but admitted it will be “pretty hard to keep a lid” on the Tottenham Hotspur winger’s talent after he was compared to Neymar by James Maddison.`\
 https://nytimes.com/athletic/5870885/2024/10/24/mikey-moore-tottenham-ange-postecoglou/
-
-**Former Prep School Baseball Coach Charged With Sex Crimes Against Minors**\
-`Nicolas Morton, who worked for the Packer Collegiate Institute in Brooklyn, made boys run to exhaustion unless they exposed themselves to him, prosecutors said.`\
-https://nytimes.com/2024/10/24/nyregion/packer-baseball-coach-brooklyn-charges.html
 
