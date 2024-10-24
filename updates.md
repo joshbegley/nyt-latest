@@ -1,3 +1,11 @@
+**Trump Seeks to Challenge Jack Smith’s Appointment in Election Case**\
+`The former president’s request to file a new motion contesting how the special counsel got his job came on the same day he vowed to fire him if re-elected.`\
+https://nytimes.com/2024/10/24/us/politics/trump-jack-smith-election-case.html
+
+**USF men's basketball coach Amir Abdur-Rahim dies at 43**\
+`USF said complications arose during Abdur-Rahim's treatment at a Tampa-area hospital.`\
+https://nytimes.com/athletic/5870864/2024/10/24/amir-abdur-rahim-death-usf-coach/
+
 **Braves' new hitting coach Tim Hyers brings World Series experience**\
 `Hyers replaces Kevin Seitzer, whose 10-year run with Atlanta was the longest in the majors before the Braves fired him two weeks ago`\
 https://nytimes.com/athletic/5870306/2024/10/24/atlanta-braves-new-hitting-coach-tim-hyers/
