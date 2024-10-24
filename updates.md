@@ -1,3 +1,7 @@
+**Giants 'not making any changes this season,' John Mara says**\
+`Mara addressed the future of GM Joe Schoen and coach Brian Daboll, saying he still has “confidence in both of them."`\
+https://nytimes.com/athletic/5868612/2024/10/23/john-mara-giants-brian-daboll-change/
+
 **Georgia secretary of state fends off cyberattack targeting absentee ballot website.**\
 `By Simon J. Levien`\
 https://nytimes.com/2024/10/23/us/politics/georgia-secretary-of-state-cyberattack.html
