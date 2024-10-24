@@ -1,3 +1,11 @@
+**‘Somebody Somewhere’ Is Back for Its Final Season**\
+`The HBO dramedy about a Kansas woman finding love and community after tragedy returns for its third and final season on Sunday.`\
+https://nytimes.com/2024/10/24/arts/television/somebody-somewhere.html
+
+**The French Singer Who Won Over Iggy Pop**\
+`Zaho de Sagazan went viral for her performances at the Cannes Film Festival and the Paris Olympics. Next, she’s coming to America.`\
+https://nytimes.com/2024/10/24/t-magazine/zaho-de-sagazan.html
+
 **Luton call out 'cowardly' racist abuse of Adebayo: 'Is it ever going to stop?'**\
 `Luton Town have said they are &#8220;angry, upset and frustrated&#8221; after their striker Elijah Adebayo was subjected to &#8220;cowardly&#8221; racist abuse.`\
 https://nytimes.com/athletic/5870311/2024/10/24/elijah-adebayo-racism-luton-town/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/dining/indo-caribbean-diwali.html
 **In Georgia, Harris Risks a Split in the Muslim and Arab Vote**\
 `Muslim and Arab voters were part of the coalition in Georgia who delivered victories to Democrats there in 2020 and in 2022. Maya King, a politics reporter for The New York Times covering the Southeast, describes how war in the Middle East is affecting their choice in 2024.`\
 https://nytimes.com/video/us/politics/100000009774269/in-georgia-harris-risks-a-split-in-the-muslim-and-arab-vote.html
-
-**In Georgia, Harris’s Muslim Backers Push Her as Better Than the Alternative**\
-`The Mideast war is threatening Vice President Kamala Harris’s support among Muslim and Arab American voters, a traditionally Democratic constituency, in critical swing states.`\
-https://nytimes.com/2024/10/24/us/politics/harris-georgia-muslim-arab-voters.html
-
-**Despite Deadly Attack, Turkey Seeks Opening With Kurdish Militants**\
-`Recent gestures by Turkish leaders suggest the possibility of new peace talks with the group fighting for Kurdish autonomy.`\
-https://nytimes.com/2024/10/24/world/middleeast/turkey-terrorist-attack-kurdish-peace-talks.html
 

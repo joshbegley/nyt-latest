@@ -1,3 +1,11 @@
+**‘Somebody Somewhere’ Is Back for Its Final Season**\
+`The HBO dramedy about a Kansas woman finding love and community after tragedy returns for its third and final season on Sunday.`\
+https://nytimes.com/2024/10/24/arts/television/somebody-somewhere.html
+
+**The French Singer Who Won Over Iggy Pop**\
+`Zaho de Sagazan went viral for her performances at the Cannes Film Festival and the Paris Olympics. Next, she’s coming to America.`\
+https://nytimes.com/2024/10/24/t-magazine/zaho-de-sagazan.html
+
 **Luton call out 'cowardly' racist abuse of Adebayo: 'Is it ever going to stop?'**\
 `Luton Town have said they are &#8220;angry, upset and frustrated&#8221; after their striker Elijah Adebayo was subjected to &#8220;cowardly&#8221; racist abuse.`\
 https://nytimes.com/athletic/5870311/2024/10/24/elijah-adebayo-racism-luton-town/
