@@ -1,3 +1,11 @@
+**Trump Flirts With the Ultimate Tax Cut: No Taxes at All**\
+`The former president has repeatedly praised a period in American history when there was no income tax, and the country relied on tariffs to fund the government.`\
+https://nytimes.com/2024/10/24/us/politics/donald-trump-tax-policy.html
+
+**France backs expansion of Lebanon’s army, and will give $100 million to aid displaced Lebanese, Macron says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/france-backs-expansion-of-lebanons-army-and-will-give-100-million-to-aid-displaced-lebanese-macron-says
+
 **Arab and Jewish Voters Both Need Kamala Harris**\
 `She’s the only one who can defuse the crisis in the Middle East.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/friedman-gaza-israel-harris-trump
