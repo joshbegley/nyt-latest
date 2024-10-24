@@ -1,3 +1,15 @@
+**Gaza’s main emergency service says it has ‘completely ceased’ rescue operations in the north.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/gazas-main-emergency-service-says-it-has-completely-ceased-rescue-operations-in-the-north
+
+**India Evacuates 1 Million as Tropical Cyclone Dana Nears**\
+`With the storm forecast to make landfall by early Friday, residents in parts of West Bengal and Odisha States took shelter in thousands of camps.`\
+https://nytimes.com/2024/10/24/world/asia/india-tropical-cyclone-dana.html
+
+**What to Know About North Korea’s Military Capabilities**\
+`The North’s nuclear forces have been the focus of global concern. But its conventional military is vast and empowered — even if it is hobbled by shortages, corruption and isolation.`\
+https://nytimes.com/2024/10/24/world/asia/north-korea-military-capability.html
+
 **Biden Administration Outlines Government ‘Guardrails’ for A.I. Tools**\
 `A national security memorandum detailed how agencies should streamline operations with artificial intelligence safely.`\
 https://nytimes.com/2024/10/24/us/politics/biden-government-guidelines-ai.html
