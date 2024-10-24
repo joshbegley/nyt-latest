@@ -1,3 +1,7 @@
+**Former Prep School Baseball Coach Charged With Sex Crimes Against Minors**\
+`Nicolas Morton, who worked for the Packer Collegiate Institute in Brooklyn, made boys run to exhaustion unless they exposed themselves to him, prosecutors said.`\
+https://nytimes.com/2024/10/24/nyregion/packer-baseball-coach-brooklyn-charges.html
+
 **What ‘Chicken Shop Date’ Reminds Us About Flirting**\
 `Amelia Dimoldenberg and Andrew Garfield’s long-running flirtationship highlights what’s missing from dating (and dating content) today.`\
 https://nytimes.com/2024/10/24/style/chicken-shop-date.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/10/24/us/politics/trump-harris-abortion-rights.html
 **Until Saturday: Playoff hope crusher, plus Week 9 viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Kennesaw State breaks through with its first FBS win.`\
 https://nytimes.com/athletic/5869328/2024/10/24/kennesaw-state-liberty-college-football-playoff-until-saturday/
-
-**As Trump Campaigns, This Group Is Planning His Presidency**\
-`Also, the Los Angeles D.A. called for the Menendez Brothers to be resentenced. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/10/24/briefing/trump-campaign-planning-canada-immigration-rules.html
 
