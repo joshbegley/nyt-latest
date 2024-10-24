@@ -1,3 +1,7 @@
+**McLaren submits right of review for Lando Norris’ U.S. Grand Prix penalty**\
+`A penalty on Sunday in Austin cost Norris crucial points and raised questions about F1's stewards and racing rules. `\
+https://nytimes.com/athletic/5871032/2024/10/24/lando-norris-f1-penalty-us-grand-prix-mclaren-right-of-review/
+
 **Judge Blocks Luxury Fashion Deal, Citing Risk of Higher Handbag Prices**\
 `The F.T.C. had sued to halt the merger of Tapestry, the parent of Coach and Kate Spade, and Capri, the owner of Versace and Michael Kors.`\
 https://nytimes.com/2024/10/24/business/tapestry-capri-merger-coach-versace.html
