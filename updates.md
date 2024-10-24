@@ -1,3 +1,7 @@
+**Thursday Briefing: How Europe Sees the U.S. Election**\
+`Plus, the dark side of A.I. companionship apps.`\
+https://nytimes.com/2024/10/24/briefing/us-election-north-korea-russia.html
+
 **FPL: The three teams with positive fixture swings you should target**\
 `Spurs, Manchester United and Wolves are all on runs of enticing fixtures, so which of their players should you consider?`\
 https://nytimes.com/athletic/5859901/2024/10/24/fantasy-premier-league-manchester-united-tottenham-wolves/
