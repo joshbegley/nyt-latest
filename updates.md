@@ -1,3 +1,15 @@
+**In High-Stakes Pennsylvania, Local Officials Have a Big Hand in Voting Rules**\
+`Since 2019, every Pennsylvanian has had a vote-by-mail option. But policies on drop boxes and mail-in ballot errors can vary across the state’s 67 counties.`\
+https://nytimes.com/2024/10/24/us/pennsylvania-voting-rules-mail-in-ballot-drop-boxes.html
+
+**Email From Boeing to Ethiopian Airlines Sheds Light on a Tragic Crash**\
+`Newly revealed correspondence indicates that a Boeing senior official counseled that the company could answer a pilot’s safety questions, but it did not.`\
+https://nytimes.com/2024/10/24/us/politics/boeing-email-ethiopian-airlines.html
+
+**Lionel Messi still atop MLS salary spend, while five teams boast a new top earner**\
+`The Athletic provides the key takeaways from the latest MLS Players Association salary guide`\
+https://nytimes.com/athletic/5870076/2024/10/24/lionel-messi-mls-salary-guide-top-earners/
+
 **Investigation of Georgia Movie Set Crash Finds No Violations**\
 `Eight people were injured, three of them seriously, in a crash on the set of “The Pickup” in April. A federal investigation found no health or safety violations.`\
 https://nytimes.com/2024/10/24/movies/georgia-crash-eddie-murphy-movie-set.html
