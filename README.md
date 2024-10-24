@@ -1,5 +1,9 @@
+**Georgia secretary of state fends off cyberattack targeting absentee ballot website.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/23/us/harris-trump-election/georgia-secretary-of-state-cyberattack
+
 **Striking Boeing Workers Reject New Contract**\
-`The vote will extend a monthlong strike at factories where the aerospace company makes its best-selling commercial airplane.`\
+`The vote, hours after Boeing reported a $6.1 billion loss, will extend a monthlong strike at factories where the company makes its best-selling commercial plane.`\
 https://nytimes.com/2024/10/23/business/boeing-union-vote-strike.html
 
 **‘The Best Is Yet to Come’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/theater/review-left-on-tenth-delia-ephron.html
 **NC State QB Grayson McCall retires from football**\
 `McCall was a three-time Sun Belt Conference Player of the Year who led Coastal Carolina to an 11-1 record in 2020.`\
 https://nytimes.com/athletic/5868404/2024/10/23/grayson-mccall-retires-concussion-nc-state/
-
-**Is There a Feud Between Martha Stewart and Ina Garten?**\
-`The lifestyle luminaries, who have been on the publicity circuit, were once close, but in a recent interview, Ms. Stewart doubled down on her contention that Ms. Garten abandoned her during a difficult period.`\
-https://nytimes.com/2024/10/23/style/martha-stewart-ina-garten-feud.html
 
