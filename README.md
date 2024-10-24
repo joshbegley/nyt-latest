@@ -1,3 +1,7 @@
+**A Wisconsin Mayor, a Former Republican, Endorses Harris**\
+`Shawn Reilly, the mayor of Waukesha, Wis., said he had never thrown his support behind a Democrat before.`\
+https://nytimes.com/2024/10/23/us/politics/shawn-reilly-wisconsin-mayor-kamala-harris-endorsement.html
+
 **Can Donald Trump or Kamala Harris Bring Back Manufacturing Jobs?**\
 `Both candidates tout plans that promise to help the country make things again. Canton, Ohio, is an example of the steep challenge.`\
 https://nytimes.com/interactive/2024/10/23/us/elections/trump-harris-manufacturing-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/arts/music/lana-del-rey-jeremy-dunfre-dolly-parto
 **Dodgers' Jerry Reuss remembers late Valenzuela, FernandoMania: 'A legend in the making'**\
 `Reuss was at the center of Fernandomania and he marvels at Valenzuela's brilliance to this day.`\
 https://nytimes.com/athletic/5868531/2024/10/23/jerry-reuss-remembers-fernando-valenzuela/
-
-**Corrections: Oct. 24, 2024**\
-`Corrections that appeared in print on Thursday, Oct. 24, 2024.`\
-https://nytimes.com/2024/10/23/pageoneplus/corrections-oct-24-2024.html
 
