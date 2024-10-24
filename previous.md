@@ -1,3 +1,11 @@
+**A Hurricane During Election Week? Don’t Worry Just Yet.**\
+`Maps spreading on social media show a storm hitting the United States the week of the election. But a lot more goes into a forecast than just one model run.`\
+https://nytimes.com/2024/10/24/weather/election-day-hurricane-east-coast.html
+
+**Abdelaziz Barrada, former Getafe and Marseille midfielder, dies aged 35**\
+`Former Morocco international Abdelaziz Barrada, best known for his time at Getafe and Marseille, has died at the age of 35.`\
+https://nytimes.com/athletic/5870422/2024/10/24/abdelaziz-barrada-death-morocco-getafe-marseille/
+
 **Zach Frazier's college injury might have saved rookie season with Steelers**\
 `The plate in Frazier's leg from his surgery last year might have saved him from another season-ending injury.`\
 https://nytimes.com/athletic/5870342/2024/10/24/zach-frazier-injury-steelers-center/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/dining/the-controversial-world-of-bagel-mods.html
 **With the Clock Ticking, Should Harris Define Herself or Her Opponent?**\
 `At a CNN town-hall meeting, Kamala Harris seemed more comfortable warning about the dangers of Donald J. Trump than describing her policies or continuing to introduce herself.`\
 https://nytimes.com/2024/10/24/us/politics/kamala-harris-cnn-town-hall.html
-
-**The Long, Syncopated Journey to Beyoncé’s Exaltation**\
-`It starts with Scott Joplin. And it’s got a beat you can’t resist. `\
-https://nytimes.com/2024/10/24/opinion/scott-joplin-george-gershwin-and-beyonce.html
-
-**Tina S. Kaidanow, 59, Diplomatic Force in Kosovo and Guantánamo, Dies**\
-`She was the first U.S. ambassador to a newly independent Balkans nation and recently oversaw the transfer of cooperating Guantánamo prisoners to third countries.`\
-https://nytimes.com/2024/10/24/us/politics/tina-s-kaidanow-dead.html
 
