@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5869408/2024/10/24/wrexham-new-architect-kop-stand/
 https://nytimes.com/athletic/5868882/2024/10/24/clippers-james-harden-season-opener/
 
 **How tennis rankings actually work - points, races, and positions**\
-`The men's and women's tennis tours use similar methodologies when ranking players — here's how the rankings are put together`\
+`The men's and women's tennis tours use similar methodologies when ranking players. Here's how the rankings are put together`\
 https://nytimes.com/athletic/5847687/2024/10/24/tennis-rankings-how-players-ranked-atp-wta-explained/
 
 **Teens to Hollywood: Enough Sex, Already**\
