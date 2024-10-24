@@ -1,3 +1,7 @@
+**Four Atletico fans arrested over alleged hate campaign against Vinicius Jr**\
+`Four Atletico Madrid supporters allegedly responsible for coordinating a hate campaign against Vinicius Junior have been arrested.`\
+https://nytimes.com/athletic/5869043/2024/10/24/vinicius-junior-atletico-madrid-fans-campaign/
+
 **The Pulse: First NBA impressions**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5868591/2024/10/24/kennesaw-state-liberty-upset-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/24/us/politics/fred-upton-endorses-harris.html
 **At Blue Jackets intermission, grab a hot dog and nachos — and a word with the GM**\
 `Don Waddell makes himself available to chat with fans inside the arena and even gives out his email address.`\
 https://nytimes.com/athletic/5867825/2024/10/24/waddell-blue-jackets-fans/
-
-**How much would Maxx Crosby help Lions? Model analyzes impact of 4 fun NFL trade proposals**\
-`The Lions need pass rush help. Crosby gives them the bigger boost, but Haason Reddick would cost far less. Which deal makes more sense?`\
-https://nytimes.com/athletic/5866711/2024/10/24/nfl-trade-projections-maxx-crosby-lions/
 
