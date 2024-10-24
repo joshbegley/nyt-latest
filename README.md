@@ -1,3 +1,7 @@
+**Listen: ‘The Push to Ban Phones in School’**\
+`More and more states are cracking down on students’ use of cellphones. Is that a good thing?`\
+https://nytimes.com/2024/10/24/learning/listen-the-push-to-ban-phones-in-school.html
+
 **Anthony Davis gives Lakers an early dose of hope — and a long-awaited blueprint**\
 `In the Lakers' opening game, Anthony Davis looked like franchise centerpiece material as he extinguished Rudy Gobert's extension vibes.`\
 https://nytimes.com/athletic/5867923/2024/10/24/anthony-davis-rudy-gobert-lakers-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5867064/2024/10/24/college-football-sec-sudden-chan
 **Harris Drops the F-Bomb on CNN’s Town Hall**\
 `But name-calling is less powerful than truth-telling.`\
 https://nytimes.com/2024/10/24/opinion/harris-trump-fascist-town-hall.html
-
-**What is with the drama surrounding Bill Belichick, Jerod Mayo and the Patriots?**\
-`Between the current and former coaches, Ja'Lynn Polk and more, the drama continues to swirl for the Patriots, losers of six straight games. `\
-https://nytimes.com/athletic/5867378/2024/10/24/patriots-bill-belichick-jerod-mayo-drama/
 
