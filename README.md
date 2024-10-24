@@ -1,3 +1,11 @@
+**‘The Best Is Yet to Come’**\
+`You may not know which way you’re going when you solve Ella Dershowitz’s puzzle.`\
+https://nytimes.com/2024/10/23/crosswords/daily-puzzle-2024-10-24.html
+
+**Lana Del Rey Wed a Swamp Tour Guide, Joining Other Celebrities Who Married a Normie**\
+`The pop singer and songwriter married her longtime boyfriend, Jeremy Dunfre. Other celebrities have also wed someone who’s not rich or famous.`\
+https://nytimes.com/2024/10/23/arts/music/lana-del-rey-jeremy-dunfre-dolly-parton.html
+
 **Dodgers' Jerry Reuss remembers late Valenzuela, FernandoMania: 'A legend in the making'**\
 `Reuss was at the center of Fernandomania and he marvels at Valenzuela's brilliance to this day.`\
 https://nytimes.com/athletic/5868531/2024/10/23/jerry-reuss-remembers-fernando-valenzuela/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/23/style/martha-stewart-ina-garten-feud.html
 **Wizards' rebuild in Year 2 will have tough times but now there's a 'sense of purpose'**\
 `What should we expect from the Wizards this season? Lots of losses mixed with belief in a brighter future. `\
 https://nytimes.com/athletic/5868004/2024/10/23/washington-wizards-season-preview-purpose/
-
-**Recovering from pneumonia, 49ers' Deebo Samuel has a chance to face the Cowboys**\
-`The 49ers have two main options to replace Brandon Aiyuk at split end: veteran Chris Conley and rookie Ricky Pearsall. Both spoke Wednesday.`\
-https://nytimes.com/athletic/5868279/2024/10/23/deebo-samuel-pneumonia-49ers-cowboys/
-
-**L.A. Times Editorial Chief Quits After Owner Blocks Harris Endorsement**\
-`Mariel Garza said the editorial board was prepared to endorse Kamala Harris, but the paper’s owner, Patrick Soon-Shiong, decided not to make an endorsement in the presidential race.`\
-https://nytimes.com/2024/10/23/business/media/la-times-editor-quits-patrick-soon-shiong-endorsement.html
 
