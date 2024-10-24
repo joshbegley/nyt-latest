@@ -1,3 +1,19 @@
+**Officially Utah Royals’ head coach, Jimmy Coenraets is already planning for the future**\
+`Coenraets led the Royals to five wins, two draws, and only three losses — he is now ready to build the side for a better 2025`\
+https://nytimes.com/athletic/5868203/2024/10/24/utah-royals-hire-jimmy-coenraets-2027/
+
+**The U.N.’s Verdict on Climate Progress Over the Past Year: There Was None**\
+`An annual assessment by the world body tracks the gulf between what countries have vowed to do and what they’ve actually achieved.`\
+https://nytimes.com/2024/10/24/climate/un-climate-change-global-emissions-report.html
+
+**Xavi Simons sidelined for several weeks with ankle ligament injury**\
+`RB Leipzig midfielder Xavi Simons has suffered a ligament injury in his left ankle, ruling him out of action for several weeks.`\
+https://nytimes.com/athletic/5869510/2024/10/24/xavi-simons-rb-leipzig-injury/
+
+**Unrivaled reveals team names, branding ahead of inaugural season**\
+`The six clubs will be called the Laces, Mist, Rose, Lunar Owls, Phantom and Vinyl.`\
+https://nytimes.com/athletic/5869412/2024/10/24/unrivaled-basketball-teams-branding/
+
 **Why Democracy Lives and Dies by Math**\
 `A documentary filmmaker and a mathematician discuss our fear of numbers and its civic costs.`\
 https://nytimes.com/2024/10/24/science/math-documentary-voting-abeles.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5869408/2024/10/24/wrexham-new-architect-kop-stand/
 **Clippers pin hopes on James Harden to usher in new era: 'We need him to be special'**\
 `Harden couldn't deliver in the clutch in a loss to the Suns in the Intuit Dome opener, but he's the one healthy star the Clippers have left.`\
 https://nytimes.com/athletic/5868882/2024/10/24/clippers-james-harden-season-opener/
-
-**How tennis rankings actually work - points, races, and positions**\
-`The men's and women's tennis tours use similar methodologies when ranking players. Here's how the rankings are put together`\
-https://nytimes.com/athletic/5847687/2024/10/24/tennis-rankings-how-players-ranked-atp-wta-explained/
-
-**Teens to Hollywood: Enough Sex, Already**\
-`At least that is what they told researchers at U.C.L.A. The high popularity of romance plots in movies and shows suggests otherwise.`\
-https://nytimes.com/2024/10/24/business/teens-movies-tv-sex.html
-
-**Healthy and happy, Alex Turcotte is making his mark with the Kings at last**\
-`After years of injury setbacks, Turcotte is off to an effective start to the NHL season in a regular role with increased responsibility.`\
-https://nytimes.com/athletic/5868953/2024/10/24/nhl-alex-turcotte-la-kings-season/
-
-**England Plans to Ban Disposable Vapes Next Year**\
-`The measure, which echoes plans in Scotland and Wales, aims to protect young people’s health and reduce environmental damage.`\
-https://nytimes.com/2024/10/24/world/europe/uk-disposable-vapes-ban.html
 
