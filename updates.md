@@ -1,3 +1,7 @@
+**Mailbox Arson Damages Ballots in Phoenix**\
+`Arizona’s secretary of state said affected voters would be contacted, adding, “Any attack that strikes at our democratic process carries criminal consequences.”`\
+https://nytimes.com/2024/10/24/us/politics/mailbox-arson-phoenix-ballots.html
+
 **A Hurricane During Election Week? Don’t Worry Just Yet.**\
 `Maps spreading on social media show a storm hitting the United States the week of the election. But a lot more goes into a forecast than just one model run.`\
 https://nytimes.com/2024/10/24/weather/election-day-hurricane-east-coast.html
