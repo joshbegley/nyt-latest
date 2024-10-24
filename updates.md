@@ -1,3 +1,11 @@
+**Will It All Come Down to Michigan?**\
+`Operatives from both parties see the race as deadlocked, and both insist they have a clearer path.`\
+https://nytimes.com/2024/10/24/us/politics/election-michigan-swing-states.html
+
+**Israeli authorities say the U.N. agency for Palestinians employed a Hamas commander they killed.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/israeli-authorities-say-the-un-agency-for-palestinians-employed-a-hamas-commander-they-killed
+
 **McLaren submits right of review for Lando Norris’ U.S. Grand Prix penalty**\
 `A penalty on Sunday in Austin cost Norris crucial points and raised questions about F1's stewards and racing rules. `\
 https://nytimes.com/athletic/5871032/2024/10/24/lando-norris-f1-penalty-us-grand-prix-mclaren-right-of-review/
