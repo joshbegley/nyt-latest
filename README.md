@@ -1,3 +1,7 @@
+**The French Connection to Online Bets on Trump**\
+`Polymarket said that it had linked a single trader to accounts that have wagered heavily on the Republican to win, pushing up his odds on the prediction market.`\
+https://nytimes.com/2024/10/24/business/dealbook/polymarket-trump-trader.html
+
 **Gaza’s main emergency service says it has ‘completely ceased’ rescue operations in the north.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/gazas-main-emergency-service-says-it-has-completely-ceased-rescue-operations-in-the-north
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846817/2024/10/24/manchester-united-arsenal-invinc
 **Cushing swapped the WSL for MLS, so why are Arsenal keen to tempt him back?**\
 `Arsenal’s desire to recruit the New York City FC coach shows how difficult the managerial market is for elite women’s clubs`\
 https://nytimes.com/athletic/5869046/2024/10/24/nick-cushing-arsenal-new-york/
-
-**‘Road Diary: Bruce Springsteen and the E Street Band’ Review: A Mission**\
-`At 75, Springsteen is doggedly committed to live performance. This documentary chronicles how he keeps up on tour, and why.`\
-https://nytimes.com/2024/10/24/movies/road-diary-bruce-springsteen-and-the-e-street-band-review.html
 
