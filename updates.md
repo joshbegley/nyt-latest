@@ -1,3 +1,15 @@
+**Finger-Pointing if Trump Beats Harris**\
+`Readers discuss a column by Bret Stephens. Also: A flood of election mailers in Pennsylvania; speech on campus; fighting malaria.`\
+https://nytimes.com/2024/10/24/opinion/trump-harris.html
+
+**Notre Dame mailbag: Why do Irish struggle with WR recruiting? How is CJ Carr viewed?**\
+`Where does Notre Dame fit in the narrative of college football? And more in the Irish mailbag.`\
+https://nytimes.com/athletic/5869401/2024/10/24/notre-dame-football-college-playoff-scheduling/
+
+**Scoop City: Six more trade proposals, ft. Myles Garrett, Maxx Crosby**\
+`Six potential trades that could shake up the NFL landscape before the deadline in two weeks — including a new edge rusher for the Bears.`\
+https://nytimes.com/athletic/5869843/2024/10/24/six-trade-proposals-including-myles-garrett-plus-healthy-star-returns-for-rams-vikings/
+
 **In This Biography, Mitch McConnell Hates Trump but Loves Power More**\
 `“The Price of Power,” by Michael Tackett, reveals a legislator for whom political survival has been a top priority — even when it means supporting a “sleazeball” for the presidency.`\
 https://nytimes.com/2024/10/24/books/review/the-price-of-power-michael-tackett.html

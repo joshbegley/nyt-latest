@@ -1,3 +1,15 @@
+**Finger-Pointing if Trump Beats Harris**\
+`Readers discuss a column by Bret Stephens. Also: A flood of election mailers in Pennsylvania; speech on campus; fighting malaria.`\
+https://nytimes.com/2024/10/24/opinion/trump-harris.html
+
+**Notre Dame mailbag: Why do Irish struggle with WR recruiting? How is CJ Carr viewed?**\
+`Where does Notre Dame fit in the narrative of college football? And more in the Irish mailbag.`\
+https://nytimes.com/athletic/5869401/2024/10/24/notre-dame-football-college-playoff-scheduling/
+
+**Scoop City: Six more trade proposals, ft. Myles Garrett, Maxx Crosby**\
+`Six potential trades that could shake up the NFL landscape before the deadline in two weeks — including a new edge rusher for the Bears.`\
+https://nytimes.com/athletic/5869843/2024/10/24/six-trade-proposals-including-myles-garrett-plus-healthy-star-returns-for-rams-vikings/
+
 **In This Biography, Mitch McConnell Hates Trump but Loves Power More**\
 `“The Price of Power,” by Michael Tackett, reveals a legislator for whom political survival has been a top priority — even when it means supporting a “sleazeball” for the presidency.`\
 https://nytimes.com/2024/10/24/books/review/the-price-of-power-michael-tackett.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/24/business/dealbook/southwest-airlines-elliott.html
 **Monique Knowlton, ’60s-Era Model and Provocative Gallerist, Dies at 87**\
 `A Vogue cover girl in the early 1960s, she later pivoted to contemporary art, opening a gallery where being “outrageous counts as a plus,” one critic wrote.`\
 https://nytimes.com/2024/10/24/arts/monique-knowlton-dead.html
-
-**As Harris Courts Republicans, the Left Grows Wary and Alienated**\
-`The vice president’s tack to the right, support for Israel in the Gaza war and incremental policy proposals have alienated progressives and raised worries about waning liberal energy.`\
-https://nytimes.com/2024/10/24/us/politics/kamala-harris-progressives-democrats.html
-
-**A 20-Minute Workout to Keep Your Body Limber**\
-`Throwing your back out is often caused by stiffness in the upper spine. Here’s how to prevent future pain.`\
-https://nytimes.com/2024/10/24/well/move/back-workout-pain-injury-prevention.html
-
-**To Prevent Golfing Injuries, Loosen Up Your Spine**\
-`Whether the pain is in your elbows hips or shoulders, the solution is often in your upper back.`\
-https://nytimes.com/2024/10/24/well/back-pain-golf.html
 
