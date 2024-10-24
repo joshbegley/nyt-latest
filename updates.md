@@ -1,3 +1,7 @@
+**Striking Boeing Workers Reject New Contract**\
+`The vote will extend a monthlong strike at factories where the aerospace company makes its best-selling commercial airplane.`\
+https://nytimes.com/2024/10/23/business/boeing-union-vote-strike.html
+
 **‘The Best Is Yet to Come’**\
 `You may not know which way you’re going when you solve Ella Dershowitz’s puzzle.`\
 https://nytimes.com/2024/10/23/crosswords/daily-puzzle-2024-10-24.html
