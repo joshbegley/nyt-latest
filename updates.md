@@ -1,3 +1,7 @@
+**Review: The Miraculous Simplicity of Patti Smith’s Childhood**\
+`At the Baryshnikov Arts Center, an adaptation of Smith’s poem-memoir “Woolgathering” features Smith reciting, others dancing and a surprise guest.`\
+https://nytimes.com/2024/10/24/arts/dance/review-woolgathering-patti-smith-mikhail-baryshnikov.html
+
 **Grizzly Bear 399, Mother of 18 Cubs, Is Killed by Driver**\
 `She lived to 28, roaming the Yellowstone area with her many offspring while becoming a favorite among both residents and visitors.`\
 https://nytimes.com/2024/10/24/science/grizzly-bear-399-killed.html
