@@ -1,3 +1,15 @@
+**The Briefing: Fenerbahce 1 Manchester United 1 — Onana's double save and Mazraoui at No 10**\
+`Manchester United were held to a 1-1 draw away from home against Fenerbahce on Thursday night`\
+https://nytimes.com/athletic/5862940/2024/10/24/fenerbahce-manchester-united-result-report-analysis/
+
+**Angel Reese gets signature shoe with Reebok, set to debut in 2026**\
+`Ahead of her final collegiate season at LSU, Reese agreed to an NIL footwear and apparel partnership deal with Reebok.`\
+https://nytimes.com/athletic/5870593/2024/10/24/angel-reese-reebok-signature-shoe/
+
+**Connor McDavid wants Crosby as Team Canada captain**\
+`McDavid grew up idolizing Crosby, who’s nearly 10 years older.`\
+https://nytimes.com/athletic/5870445/2024/10/24/mcdavid-crosby-team-canada-captain/
+
 **A Very New York Party for New York Nico**\
 `At Astor Place Hairstylists, an old-school barbershop, small-business owners feted a social media star who spotlights the city’s gritty character.`\
 https://nytimes.com/2024/10/24/style/new-york-nico-book-party.html
