@@ -1,9 +1,17 @@
+**Gaza’s main emergency service says it has ‘completely ceased’ rescue operations in the north.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/gazas-main-emergency-service-says-it-has-completely-ceased-rescue-operations-in-the-north
+
+**India Evacuates 1 Million as Tropical Cyclone Dana Nears**\
+`With the storm forecast to make landfall by early Friday, residents in parts of West Bengal and Odisha States took shelter in thousands of camps.`\
+https://nytimes.com/2024/10/24/world/asia/india-tropical-cyclone-dana.html
+
 **Biden Administration Outlines Government ‘Guardrails’ for A.I. Tools**\
 `A national security memorandum detailed how agencies should streamline operations with artificial intelligence safely.`\
 https://nytimes.com/2024/10/24/us/politics/biden-government-guidelines-ai.html
 
 **What to Know About North Korea’s Military Capabilities**\
-`The North’s nuclear forces have been the focus of global concern. But its conventional military is vast and politically empowered — even if it is hobbled by shortages, corruption and isolation.`\
+`The North’s nuclear forces have been the focus of global concern. But its conventional military is vast and empowered — even if it is hobbled by shortages, corruption and isolation.`\
 https://nytimes.com/2024/10/24/world/asia/north-korea-military-capability.html
 
 **2025 NFL Draft order projections: Are any top-10 teams ready to take the QB leap?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5869046/2024/10/24/nick-cushing-arsenal-new-york/
 **‘Road Diary: Bruce Springsteen and the E Street Band’ Review: A Mission**\
 `At 75, Springsteen is doggedly committed to live performance. This documentary chronicles how he keeps up on tour, and why.`\
 https://nytimes.com/2024/10/24/movies/road-diary-bruce-springsteen-and-the-e-street-band-review.html
-
-**‘My Name Is Alfred Hitchcock’ Review: Director’s Commentary**\
-`A richly detailed essay film imagines Hitchcock commenting on his own oeuvre over a mesmerizing daisy chain of clips.`\
-https://nytimes.com/2024/10/24/movies/my-name-is-alfred-hitchcock-review-directors-commentary.html
-
-**Wild talking contract with Rossi? Trade to replace Spurgeon? Boldy for 4 Nations? Ask Russo, part 1**\
-`Also in the Wild mailbag: Already time to panic over Trenin? What free agents should they target next summer? And what now with the goalies?`\
-https://nytimes.com/athletic/5867327/2024/10/24/wild-rossi-spurgeon-boldy-kaprizov-mailbag/
 
