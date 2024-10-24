@@ -1,3 +1,11 @@
+**Michael Jackson, British General Who Disobeyed U.S. Superior, Dies at 80**\
+`Labeled “the Prince of Darkness,” he refused to follow an order by NATO’s commander during the Balkans war, saying, “It’s not worth starting World War III.”`\
+https://nytimes.com/2024/10/24/world/europe/gen-sir-michael-jackson-dead.html
+
+**Antonio Skármeta, Who Wrote of Chile’s Tears and Turmoil, Dies at 83**\
+`His literary career traced the arc of his country’s modern political journey in stories about ordinary citizens facing repression and arbitrary government.`\
+https://nytimes.com/2024/10/24/books/antonio-skarmeta-dead.html
+
 **Republicans challenged an Ohio Democrat’s residency as she faces a tough re-election race.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/10/24/us/harris-trump-election/republicans-challenged-an-ohio-democrats-residency-as-she-faces-a-tough-re-election-race
