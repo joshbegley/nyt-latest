@@ -1,3 +1,11 @@
+**Food Supplier Recalls Onions Linked to E. Coli Outbreak and McDonald’s Quarter Pounders**\
+`Officials said the onions served atop the popular hamburger were the likely source of an E. coli outbreak that has killed one person and sickened many others.`\
+https://nytimes.com/2024/10/24/health/mcdonalds-ecoli-quarter-pounders-recall.html
+
+**Champions League projections: All the talking points from Matchday 3**\
+`Aston Villa's perfect start continued - but how much did this week's results hurt the likes of Paris Saint-Germain and Atletico Madrid?`\
+https://nytimes.com/athletic/5869713/2024/10/24/champions-league-projections-matchday-3-talking-points/
+
 **How 7 Friends Testing a Metal Detector Made Britain’s Most Valuable Treasure Find**\
 `A pastime in a farmer’s field led to the discovery of Norman-era coins valued at more than $5 million.`\
 https://nytimes.com/2024/10/24/us/chew-valley-hoard.html
