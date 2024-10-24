@@ -1,3 +1,7 @@
+**NFL Week 8 fantasy football, betting cheat sheet: Puka Nacua might play Thursday**\
+`Cooper Kupp, who has been surrounded by trade rumors, is expected to play Thursday night. Could Puka Nacua join him?`\
+https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-injuries-rankings-betting/
+
 **Reds hire Chris Valaika as hitting coach**\
 `Valaika, 39, comes from the Cleveland Guardians, where he had been the team’s hitting coach since 2022.`\
 https://nytimes.com/athletic/5870063/2024/10/24/reds-hire-chris-valaika-hitting-coach/
