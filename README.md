@@ -1,3 +1,7 @@
+**The Athletic FC: Raphinha - a symbol of Barca revival. Plus: Battle of the Buffet relived**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
+https://nytimes.com/athletic/5869124/2024/10/24/raphinha-barca-bayern-mls-season-switch/
+
 **Mexico City GP circuit breakdown: F1's highest altitude affects everything**\
 `Formula One has arrived at one of the highest circuits on its calendar: the Autódromo Hermanos Rodríguez.`\
 https://nytimes.com/athletic/5003029/2024/10/24/mexican-gp-f1-track-breakdown-autodromo-hermanos-rodriguez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5868418/2024/10/24/twins-optimism-new-hitting-coach
 **Craig Berube one-on-one: Ex-Blues coach on why it was 'time to move on' and life with the Leafs**\
 `"In this game, you have a certain time limit," said Berube, who won the Stanley Cup as Blues coach in 2019 and was fired last season.`\
 https://nytimes.com/athletic/5866892/2024/10/24/craig-berube-interview-blues-maple-leafs/
-
-**Phil Neville's finest hour? How Manchester United ended Arsenal's 49-game unbeaten run in 2004**\
-`Analysing the tactics that Sir Alex Ferguson employed to end the 'Invincibles' long unbeaten run`\
-https://nytimes.com/athletic/5846817/2024/10/24/manchester-united-arsenal-invincibles-defeated-2004/
 
