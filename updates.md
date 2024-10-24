@@ -1,3 +1,7 @@
+**What We Learned Talking to the Taliban’s Most Fearsome Leader**\
+`Sirajuddin Haqqani, who has a $10 million American bounty on his head, is now positioning himself as a figure of relative moderation.`\
+https://nytimes.com/2024/10/24/world/asia/afghanistan-haqqani-what-we-learned.html
+
 **'Us winning cannot solely be on Joel Embiid': Sixers lose season opener without their MVP**\
 `Philadelphia struggled without the injured Embiid and Paul George, leaving the team with more questions to answer.`\
 https://nytimes.com/athletic/5868763/2024/10/24/joel-embiid-sixers-lose-season-opener/

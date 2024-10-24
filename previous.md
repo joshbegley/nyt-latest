@@ -1,3 +1,7 @@
+**What We Learned Talking to the Taliban’s Most Fearsome Leader**\
+`Sirajuddin Haqqani, who has a $10 million American bounty on his head, is now positioning himself as a figure of relative moderation.`\
+https://nytimes.com/2024/10/24/world/asia/afghanistan-haqqani-what-we-learned.html
+
 **'Us winning cannot solely be on Joel Embiid': Sixers lose season opener without their MVP**\
 `Philadelphia struggled without the injured Embiid and Paul George, leaving the team with more questions to answer.`\
 https://nytimes.com/athletic/5868763/2024/10/24/joel-embiid-sixers-lose-season-opener/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5862048/2024/10/24/crystal-palace-glasner-eze-kamad
 **Spurs score from one in every 36 corners - is this an area for improvement?**\
 `Spurs struggled with their set pieces against West Ham. Was it a bad day at the office or do they need to practice them more in training?`\
 https://nytimes.com/athletic/5866412/2024/10/24/tottenham-corner-analysis/
-
-**The team who were unbeaten all season without conceding a goal. And finished second**\
-`Angelholms had an extraordinary season - having not conceded a goal but failing to win the league. They are now in the promotion play-offs`\
-https://nytimes.com/athletic/5866359/2024/10/24/invincible-season-angelholms/
 
