@@ -1,3 +1,7 @@
+**Penalty shootout defeats are still defeats - it's time to count them as such**\
+`It's not their fault but Manchester City's 'record' of 26-game unbeaten Champions League games is a nonsense`\
+https://nytimes.com/athletic/5869373/2024/10/24/penalty-shoot-out-defeats-record/
+
 **Take The Athletic’s 2024 college football TV survey**\
 `College football fans have as many opinions about how their games are covered on television as they do about the games themselves.`\
 https://nytimes.com/athletic/5869487/2024/10/24/college-football-tv-networks-survey/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/24/us/sci-pol-nobel-winners-pdf.html
 **How Two Allies Wrestled Over a Crypto Giant and a Prisoner**\
 `The United States and Nigeria often collaborate. But the arrest of an American worker strained their diplomatic relations.`\
 https://nytimes.com/2024/10/24/us/politics/us-nigeria-binance-gambaryan.html
-
-**Wrexham appoint new architect to redesign Kop stand, targeting 2026 completion**\
-`A new architect has been appointed by Wrexham to redesign the 5,500 capacity Kop stand that was originally scheduled to open in time for this season.`\
-https://nytimes.com/athletic/5869408/2024/10/24/wrexham-new-architect-kop-stand/
 

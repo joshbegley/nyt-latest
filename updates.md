@@ -1,3 +1,7 @@
+**Penalty shootout defeats are still defeats - it's time to count them as such**\
+`It's not their fault but Manchester City's 'record' of 26-game unbeaten Champions League games is a nonsense`\
+https://nytimes.com/athletic/5869373/2024/10/24/penalty-shoot-out-defeats-record/
+
 **Take The Athletic’s 2024 college football TV survey**\
 `College football fans have as many opinions about how their games are covered on television as they do about the games themselves.`\
 https://nytimes.com/athletic/5869487/2024/10/24/college-football-tv-networks-survey/
