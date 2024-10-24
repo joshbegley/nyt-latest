@@ -1,3 +1,7 @@
+**England Plans to Ban Disposable Vapes Next Year**\
+`The measure, which echoes plans in Scotland and Wales, aims to protect young people’s health and reduce environmental damage.`\
+https://nytimes.com/2024/10/24/world/europe/uk-disposable-vapes-ban.html
+
 **How tennis rankings actually work - points, races, and positions**\
 `The men's and women's tennis tours use similar methodologies when ranking players — here's how the rankings are put together`\
 https://nytimes.com/athletic/5847687/2024/10/24/tennis-rankings-how-players-ranked-atp-wta-explained/
