@@ -1,3 +1,7 @@
+**Corrections: Oct. 24, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 24, 2024.`\
+https://nytimes.com/2024/10/23/pageoneplus/corrections-oct-24-2024.html
+
 **Therapist Is Charged With Distributing Child Sex Abuse Imagery**\
 `Renee Hoberman, a licensed social worker on Long Island, used messaging platforms to share graphic videos of infants being abused, prosecutors said.`\
 https://nytimes.com/2024/10/23/nyregion/renee-hoberman-long-island-child-therapist-pornography.html

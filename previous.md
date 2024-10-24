@@ -1,3 +1,7 @@
+**Corrections: Oct. 24, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 24, 2024.`\
+https://nytimes.com/2024/10/23/pageoneplus/corrections-oct-24-2024.html
+
 **Therapist Is Charged With Distributing Child Sex Abuse Imagery**\
 `Renee Hoberman, a licensed social worker on Long Island, used messaging platforms to share graphic videos of infants being abused, prosecutors said.`\
 https://nytimes.com/2024/10/23/nyregion/renee-hoberman-long-island-child-therapist-pornography.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/23/business/media/la-times-editor-quits-patrick-soon
 **Five Dead After ‘Terrorist Attack’ on Turkish Aerospace Company**\
 `Attackers armed with explosives and rifles assaulted the headquarters of a Turkish state-run aerospace company on Wednesday.`\
 https://nytimes.com/video/world/asia/100000009779360/turkey-aerospace-terrorist-attack.html
-
-**Rueter: Fans connect the Red Stars to Chicago, not the brand**\
-`Jeff Rueter writes that it's the Red Stars fans, not the brand, that connect the team to Chicago`\
-https://nytimes.com/athletic/5868028/2024/10/23/chicago-red-stars-rebrand-fans/
 
