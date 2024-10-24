@@ -1,3 +1,7 @@
+**Raphinha's Bayern hat-trick is proof of his newfound confidence and Barca transformation**\
+`The Brazilian has dreamed of nights like these at Barca. Until recently, they didn't seem possible`\
+https://nytimes.com/athletic/5868632/2024/10/24/raphinha-barcelona-bayern-hat-trick/
+
 **Houston's hopes of speeding things up begin and end with Amen Thompson**\
 `Thompson's bread and butter is getting out in the open court and flying. Charlotte's rebounding edge Wednesday limited his opportunities.`\
 https://nytimes.com/athletic/5868751/2024/10/24/rockets-amen-thompson-fast-pace-season-opener/
