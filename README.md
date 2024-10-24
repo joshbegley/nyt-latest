@@ -1,3 +1,31 @@
+**The New York Liberty Will Be Celebrated With a Ticker-Tape Parade**\
+`The W.N.B.A.’s newest champions will be honored along the Canyon of Heroes on Broadway, the third time a women’s sports team has been granted that privilege.`\
+https://nytimes.com/2024/10/24/nyregion/new-york-liberty-win-wnba-parade.html
+
+**Beverage Order**\
+`Are there more and more coffee places in your area? Are the drink combinations growing? And, most important, what do you order?`\
+https://nytimes.com/2024/10/24/learning/beverage-order.html
+
+**From Swing States to Drive-Throughs: On the Campaign Trail with Trump**\
+`Since 2023, the political correspondent Michael Gold has followed the former president’s campaign, which has proved to be anything but predictable.`\
+https://nytimes.com/2024/10/24/insider/michael-gold-trump-campaign-trail.html
+
+**What Happened When a Barber Told Trump About His $15,000 Electric Bill**\
+`During the campaign stop, a barber made a complaint about his utility bill that was soon distorted online.`\
+https://nytimes.com/2024/10/24/nyregion/trump-barber-15k-utility-bill-con-ed.html
+
+**Democrats’ Best Shot at Flipping a House Seat Is in Upstate New York**\
+`After redistricting, Representative Brandon Williams of New York is the only House Republican whose race is considered “lean Democrat.”`\
+https://nytimes.com/2024/10/24/nyregion/williams-mannion-house-swing.html
+
+**A Radio Host Lost Her Words. Brain Surgery Put Her Back on the Air.**\
+`One day last winter, Alison Stewart, the host of “All of It” on WNYC, suddenly found herself speaking gibberish.`\
+https://nytimes.com/2024/10/24/nyregion/alison-stewart-brain-surgery.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/24/crosswords/spelling-bee-forum.html
+
 **Raphinha's Bayern hat-trick is proof of his newfound confidence and Barca transformation**\
 `The Brazilian has dreamed of nights like these at Barca. Until recently, they didn't seem possible`\
 https://nytimes.com/athletic/5868632/2024/10/24/raphinha-barcelona-bayern-hat-trick/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5868751/2024/10/24/rockets-amen-thompson-fast-pace-
 **RB Leipzig have bright young talents, an exemplary model and an existential crisis**\
 `A template of buying young and selling big is successful but is preventing Leipzig from challenging the elite`\
 https://nytimes.com/athletic/5868184/2024/10/24/red-bull-leipzig-champions-league/
-
-**Word of the Day: detract**\
-`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/24/learning/word-of-the-day-detract.html
-
-**What We Learned Talking to the Taliban’s Most Fearsome Leader**\
-`Sirajuddin Haqqani, who has a $10 million American bounty on his head, is now positioning himself as a figure of relative moderation.`\
-https://nytimes.com/2024/10/24/world/asia/afghanistan-haqqani-what-we-learned.html
-
-**'Us winning cannot solely be on Joel Embiid': Sixers lose season opener without their MVP**\
-`Philadelphia struggled without the injured Embiid and Paul George, leaving the team with more questions to answer.`\
-https://nytimes.com/athletic/5868763/2024/10/24/joel-embiid-sixers-lose-season-opener/
-
-**Arsenal Today: Remembering 'pizzagate', Cushing targeted and left-back headaches**\
-`Welcome to Arsenal Today, your morning digest of what's going on at the club and what we're looking at`\
-https://nytimes.com/athletic/5867288/2024/10/24/arsenal-today-october-24/
-
-**World Opens to the Taliban Despite Their Shredding of Women’s Rights**\
-`Taliban officials have scored a series of diplomatic victories this year that have started a subtle shift toward normalizing their government.`\
-https://nytimes.com/2024/10/24/world/asia/afghanistan-taliban-diplomacy.html
-
-**Is Afghanistan’s Most-Wanted Militant Now Its Best Hope for Change?**\
-`Sirajuddin Haqqani has tried to remake himself from blood-soaked jihadist to pragmatic Taliban statesman. Western diplomats are shocked — and enticed.`\
-https://nytimes.com/2024/10/24/world/asia/afghanistan-sirajuddin-haqqani-taliban.html
-
-**Thursday Briefing: How Europe Sees the U.S. Election**\
-`Plus, the dark side of A.I. companionship apps.`\
-https://nytimes.com/2024/10/24/briefing/us-election-north-korea-russia.html
 
