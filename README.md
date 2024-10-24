@@ -1,3 +1,15 @@
+**In High-Stakes Pennsylvania, Local Officials Have a Big Hand in Voting Rules**\
+`Since 2019, every Pennsylvanian has had a vote-by-mail option. But policies on drop boxes and mail-in ballot errors can vary across the state’s 67 counties.`\
+https://nytimes.com/2024/10/24/us/pennsylvania-voting-rules-mail-in-ballot-drop-boxes.html
+
+**Email From Boeing to Ethiopian Airlines Sheds Light on a Tragic Crash**\
+`Newly revealed correspondence indicates that a Boeing senior official counseled that the company could answer a pilot’s safety questions, but it did not.`\
+https://nytimes.com/2024/10/24/us/politics/boeing-email-ethiopian-airlines.html
+
+**Lionel Messi still atop MLS salary spend, while five teams boast a new top earner**\
+`The Athletic provides the key takeaways from the latest MLS Players Association salary guide`\
+https://nytimes.com/athletic/5870076/2024/10/24/lionel-messi-mls-salary-guide-top-earners/
+
 **Investigation of Georgia Movie Set Crash Finds No Violations**\
 `Eight people were injured, three of them seriously, in a crash on the set of “The Pickup” in April. A federal investigation found no health or safety violations.`\
 https://nytimes.com/2024/10/24/movies/georgia-crash-eddie-murphy-movie-set.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/24/sports/autoracing/f1-mexico-city-altitude.html
 **Union Votes to Reject Boeing Contract and Continue Strike**\
 `Workers in Boeing’s largest union voted by a wide margin to reject a second tentative contract and extend a nearly six-week-long strike.`\
 https://nytimes.com/video/us/100000009780270/boeing-strike-vote-machinists-union.html
-
-**As Sergio Pérez Struggles, Questions Follow**\
-`He started the season strong, but his results have been mostly poor since. His team, Red Bull, has fallen to second place.`\
-https://nytimes.com/2024/10/24/sports/autoracing/sergio-perez-red-bull.html
-
-**Franco Colapinto Makes an Impression, but He May Not Have a Seat for 2025**\
-`He replaced Logan Sargeant after he was dropped by Williams, but Carlos Sainz will move to the team for next year.`\
-https://nytimes.com/2024/10/24/sports/autoracing/f1-franco-colapinto-williams.html
-
-**NFL Week 8 fantasy football, betting cheat sheet: Puka Nacua might play Thursday**\
-`Cooper Kupp, who has been surrounded by trade rumors, is expected to play Thursday night. Could Puka Nacua join him?`\
-https://nytimes.com/athletic/5866715/2024/10/24/nfl-week-8-fantasy-football-injuries-rankings-betting/
 
