@@ -1,3 +1,7 @@
+**Israeli warplanes again strike Syria-Lebanon border crossings, the U.N. says.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-warplanes-again-strike-syria-lebanon-border-crossings-the-un-says
+
 **Jim Harbaugh's vision of a consistent Chargers running attack hasn't taken hold yet**\
 `The Chargers have shown flashes in the running game, but the loss to the Cardinals was a setback and shows where they must improve.`\
 https://nytimes.com/athletic/5871118/2024/10/25/chargers-running-game-jim-harbaugh-greg-roman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872086/2024/10/25/thunder-nuggets-takeaways-column
 **Giants leadership gets vote of confidence, but team's past proves how fast things can change**\
 `Team co-owner John Mara doesn't "anticipate" moving on from Joe Schoen and Brian Daboll, but that word gives him room to change his mind.`\
 https://nytimes.com/athletic/5871579/2024/10/25/giants-brian-daboll-joe-schoen-john-mara-vote-of-confidence/
-
-**Mikaela Shiffrin is back and hunting for the next milestone as a new season begins**\
-`Mikaela Shiffrin's 2024 started with an injury. Now a new season begins with her eyeing a big milestone — and the Olympics on the horizon. `\
-https://nytimes.com/athletic/5870548/2024/10/25/mikaela-shiffrin-olympics-skiing-world-cup-austria/
 

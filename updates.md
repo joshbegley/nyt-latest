@@ -1,3 +1,7 @@
+**Israeli warplanes again strike Syria-Lebanon border crossings, the U.N. says.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-warplanes-again-strike-syria-lebanon-border-crossings-the-un-says
+
 **Jim Harbaugh's vision of a consistent Chargers running attack hasn't taken hold yet**\
 `The Chargers have shown flashes in the running game, but the loss to the Cardinals was a setback and shows where they must improve.`\
 https://nytimes.com/athletic/5871118/2024/10/25/chargers-running-game-jim-harbaugh-greg-roman/
