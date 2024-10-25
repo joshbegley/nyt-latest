@@ -1,3 +1,11 @@
+**Autocracies Against Ukraine**\
+`We explain North Korea’s decision to send troops to help Russia.`\
+https://nytimes.com/2024/10/25/briefing/autocracies-against-ukraine.html
+
+**Tottenham captain Son 'unlikely' for Palace**\
+`Son Heung-min is unlikely to feature when Tottenham Hotspur face Crystal Palace this weekend.`\
+https://nytimes.com/athletic/5872098/2024/10/25/son-heung-min-tottenham-out/
+
 **Lazio's Tchaouna substituted after alleged racist abuse at Twente**\
 `Lazio winger Loum Tchaouna was substituted off after being subjected to alleged &#8220;monkey noises&#8221; against Twente in the Europa League, the Italian club&#8217;s head coach Marco Baroni has said.`\
 https://nytimes.com/athletic/5872080/2024/10/25/loum-tchaouna-lazio-racism/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5871968/2024/10/25/vikings-rams-defense-brian-flore
 **Poll Shows Dead Heat, and Biden to Apologize for Native American School Abuses**\
 `Plus, a World Series with baseball’s biggest stars.`\
 https://nytimes.com/2024/10/25/podcasts/election-poll-biden-apology.html
-
-**The United States of Pennsylvania**\
-`Kamala Harris and Donald Trump are pouring more money, time and energy into the state than anywhere else.`\
-https://nytimes.com/2024/10/25/podcasts/the-daily/pennsylvania-election.html
-
-**Army and Navy are in the College Football Playoff race. Which means they could meet twice**\
-`The annual Army-Navy game on Dec. 14 will not count toward the College Football Playoff race.`\
-https://nytimes.com/athletic/5871187/2024/10/25/army-navy-college-football-playoff-chances/
 
