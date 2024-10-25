@@ -1,3 +1,7 @@
+**Maggie Haberman on What an Unleashed Trump Might Do**\
+`The New York Times political correspondent discusses Donald Trump’s past, present and possible future.`\
+https://nytimes.com/video/opinion/100000009782324/maggie-haberman-on-what-an-unleashed-trump-might-do.html
+
 **Kit Connor and Rachel Zegler Make Puppy Love in the Puppy Pile**\
 `The Broadway revival of “Romeo + Juliet” plays to the TikTok crowd. But maybe that’s a good thing.`\
 https://nytimes.com/2024/10/24/theater/romeo-juliet-kit-carson-rachel-zegler.html

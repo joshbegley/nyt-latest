@@ -1,3 +1,7 @@
+**David Pastrnak is hurting the Bruins more than helping them**\
+`The Bruins are paying Pastrnak $11.25 million annually to score goals and chase wins. Not sit in the penalty box.`\
+https://nytimes.com/athletic/5871593/2024/10/24/bruins-stars-david-pastrnak/
+
 **Maggie Haberman on What an Unleashed Trump Might Do**\
 `The New York Times political correspondent discusses Donald Trump’s past, present and possible future.`\
 https://nytimes.com/video/opinion/100000009782324/maggie-haberman-on-what-an-unleashed-trump-might-do.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5870913/2024/10/24/wild-lightning-takeaways-analysi
 **Brent Honeywell, 'playoff perm' and all, is a hit with Dodgers' bullpen: 'He's one of one'**\
 `Honeywell's eccentric personality is a hit with his fellow relievers: “He's the glue that's holding people together down there."`\
 https://nytimes.com/athletic/5871372/2024/10/24/dodgers-brent-honeywell/
-
-**An Act of Congress**\
-`Alex Murphy makes his New York Times Crossword debut. Here are your smelling salts.`\
-https://nytimes.com/2024/10/24/crosswords/daily-puzzle-2024-10-25.html
 
