@@ -1,3 +1,15 @@
+**A Pivotal Election for Georgia, Explained**\
+`A parliamentary vote could decide whether the Caucasus nation will be oriented to the West or East for years to come. Here’s what to know.`\
+https://nytimes.com/2024/10/25/world/europe/georgia-election-explained.html
+
+**Media Personnel Killed in Airstrike on Lebanon**\
+`Lebanon’s health ministry blamed Israel for the attack. Camera crews filmed the damage to the area in Hasbaya, Lebanon, where the ministry said the journalists had been staying.`\
+https://nytimes.com/video/world/middleeast/100000009782555/hasbaya-lebanon-jouranlist-israel.html
+
+**Trump Is Telling Us What He Would Do. Believe Him.**\
+`The former president’s most disturbing statements are not bluster. They are a road map to what he will do if elected again.`\
+https://nytimes.com/interactive/2024/10/25/opinion/what-trump-says.html
+
 **Will Klay Thompson work in Dallas? The first look says yes**\
 `The embrace of Dallas might really be what Klay Thompson needed.`\
 https://nytimes.com/athletic/5867921/2024/10/25/will-klay-thompson-work-with-dallas-mavericks-first-look-indicates-yes/
