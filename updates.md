@@ -1,3 +1,7 @@
+**Fatal Drug Overdoses Are Dropping. Not Everyone Is Spared.**\
+`Federal officials have celebrated a striking drop in drug overdoses across the country. But state-level data shows that Black people are suffering significantly worse outcomes than white people.`\
+https://nytimes.com/2024/10/25/us/drug-overdoses-opioids-fentanyl.html
+
 **DeSantis Is Going All Out to Defeat Florida’s Abortion Ballot Question**\
 `Gov. Ron DeSantis, who signed a strict abortion ban, has become the face of a campaign against the referendum, which would allow abortions “before viability.”`\
 https://nytimes.com/2024/10/25/us/desantis-is-going-all-out-to-defeat-floridas-abortion-ballot-question.html

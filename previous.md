@@ -1,3 +1,7 @@
+**Fatal Drug Overdoses Are Dropping. Not Everyone Is Spared.**\
+`Federal officials have celebrated a striking drop in drug overdoses across the country. But state-level data shows that Black people are suffering significantly worse outcomes than white people.`\
+https://nytimes.com/2024/10/25/us/drug-overdoses-opioids-fentanyl.html
+
 **DeSantis Is Going All Out to Defeat Florida’s Abortion Ballot Question**\
 `Gov. Ron DeSantis, who signed a strict abortion ban, has become the face of a campaign against the referendum, which would allow abortions “before viability.”`\
 https://nytimes.com/2024/10/25/us/desantis-is-going-all-out-to-defeat-floridas-abortion-ballot-question.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/25/weather/kong-rey-map-path-tracker.htm
 **Nuggets learn some hard truths in opening loss to OKC Thunder**\
 `Denver needs to find its championship-level identity after "too many possessions that were not Nuggets basketball" against the Thunder.`\
 https://nytimes.com/athletic/5871871/2024/10/25/nuggets-loss-thunder-shooting-depth/
-
-**Emery says 'next dream' is to win a trophy with Villa**\
-`Unai Emery says his &#8220;next dream&#8221; is to win a trophy with Aston Villa after celebrating his two year anniversary at the club.`\
-https://nytimes.com/athletic/5872494/2024/10/25/unai-emery-aston-villa-trophy/
 
