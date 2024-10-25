@@ -1,3 +1,11 @@
+**Rangers, Alexis Lafrenière finalizing 7-year contract extension**\
+`Lafrenière broke out in 2023-24, scoring a career-high 28 goals and 57 points.`\
+https://nytimes.com/athletic/5873020/2024/10/25/alexis-lafreniere-rangers-extension/
+
+**The New York Times Is Looking for Flashback Contributors**\
+`The best clues for the weekly history quiz are tiny stories that combine the familiar with the surprising.`\
+https://nytimes.com/2024/10/25/upshot/flashback-contributors.html
+
 **Potentially Damaging Winds Expected to Return to Southern California**\
 `Northerly winds, slightly stronger than the most recent wind event earlier this month, will blow through Southern California in the days leading up to Halloween.`\
 https://nytimes.com/2024/10/25/weather/los-angeles-winds-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/kamala-harris-celebrities.html
 **Lady Gaga’s Dance-Floor Antidote, and 9 More New Songs**\
 `Hear Sade’s first new track since 2018, plus songs from Soccer Mommy, Tyler, the Creator and more.`\
 https://nytimes.com/2024/10/25/arts/music/playlist-lady-gaga-sade-tyler-the-creator.html
-
-**Dodgers' Evan Phillips left off World Series roster**\
-`Phillips has dealt with lat, biceps and triceps tightness for the past month.`\
-https://nytimes.com/athletic/5873114/2024/10/25/dodgers-world-series-roster-evan-phillips/
-
-**U.N. warns of ‘atrocity crimes’ in Gaza, and Jordan’s foreign minister accuses Israel of ‘ethnic cleansing.’**\
-`By Michael Crowley and Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/un-warns-of-atrocity-crimes-in-gaza-and-jordans-foreign-minister-accuses-israel-of-ethnic-cleansing
 
