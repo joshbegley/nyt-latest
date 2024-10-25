@@ -1,3 +1,11 @@
+**Tawanda Maswanhise on Jamie Vardy, playing in Scotland and facing his old boss Brendan Rodgers**\
+`An interview with the young Zimbabwe international who left Leicester City and is now at Motherwell`\
+https://nytimes.com/athletic/5869384/2024/10/25/tawanda-maswanhise-rodgers-motherwell-schmeichel/
+
+**Anna Patten and the granddad who inspired her switch from England to Ireland: 'He loved to see me play'**\
+`The Republic of Ireland defender on their Euro 2025 play-off, Aston Villa's early-season struggles and the advice her grandfather gave her`\
+https://nytimes.com/athletic/5865889/2024/10/25/anna-patten-ireland-interview/
+
 **Alexander-Arnold's (r)evolution under Arne Slot**\
 `Liverpool's in-demand full-back has had his role tweaked under his new head coach but is still thriving `\
 https://nytimes.com/athletic/5869689/2024/10/25/trent-alexander-arnold-arne-slot-liverpool/
