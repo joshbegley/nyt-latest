@@ -1,3 +1,7 @@
+**Lazio's Tchaouna substituted after alleged racist abuse at Twente**\
+`Lazio winger Loum Tchaouna was substituted off after being subjected to alleged &#8220;monkey noises&#8221; against Twente in the Europa League, the Italian club&#8217;s head coach Marco Baroni has said.`\
+https://nytimes.com/athletic/5872080/2024/10/25/loum-tchaouna-lazio-racism/
+
 **The Elon-ction + Can A.I. Be Blamed for a Teen’s Suicide?**\
 `The 2024 election has a new main character.`\
 https://nytimes.com/2024/10/25/podcasts/hardfork-musk-election-character-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/podcasts/the-daily/pennsylvania-election.html
 **Army and Navy are in the College Football Playoff race. Which means they could meet twice**\
 `The annual Army-Navy game on Dec. 14 will not count toward the College Football Playoff race.`\
 https://nytimes.com/athletic/5871187/2024/10/25/army-navy-college-football-playoff-chances/
-
-**The Connections Companion No. 503**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 26, 2024.`\
-https://nytimes.com/2024/10/25/crosswords/connections-companion-503.html
 
