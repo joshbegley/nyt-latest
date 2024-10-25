@@ -1,3 +1,11 @@
+**DeSantis Is Going All Out to Defeat Florida’s Abortion Ballot Question**\
+`Gov. Ron DeSantis, who signed a strict abortion ban, has become the face of a campaign against the referendum, which would allow abortions “before viability.”`\
+https://nytimes.com/2024/10/25/us/desantis-is-going-all-out-to-defeat-floridas-abortion-ballot-question.html
+
+**NHL Power Rankings: The wait for our first edition is over**\
+`For our first installment of the 2024-25 season, we included one bit about each team that's piquing our interest.`\
+https://nytimes.com/athletic/5871901/2024/10/25/nhl-power-rankings-23/
+
 **Philip Glass’s Musical Impression of an Artist Cut Down by AIDS**\
 `Glass’s Fourth String Quartet, written after the death of the artist Brian Buczak, will be performed at the New York City AIDS Memorial.`\
 https://nytimes.com/2024/10/25/arts/music/philip-glasss-quartet-brian-buczak.html
