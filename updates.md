@@ -1,3 +1,7 @@
+**USWNT defeats Iceland with goals from Thompson, Shaw and Smith**\
+`The U.S. won the first game of its Olympic victory tour.`\
+https://nytimes.com/athletic/5871370/2024/10/24/uswnt-iceland-alyssa-thompson-goal/
+
 **Panini sells out Caitlin Clark autographed memorabilia release in minutes**\
 `The release included autographed jerseys, basketballs and photographs of the WNBA Rookie of the Year`\
 https://nytimes.com/athletic/5870540/2024/10/24/caitlin-clark-panini-autograph-memorabilia/

@@ -1,3 +1,7 @@
+**USWNT defeats Iceland with goals from Thompson, Shaw and Smith**\
+`The U.S. won the first game of its Olympic victory tour.`\
+https://nytimes.com/athletic/5871370/2024/10/24/uswnt-iceland-alyssa-thompson-goal/
+
 **Panini sells out Caitlin Clark autographed memorabilia release in minutes**\
 `The release included autographed jerseys, basketballs and photographs of the WNBA Rookie of the Year`\
 https://nytimes.com/athletic/5870540/2024/10/24/caitlin-clark-panini-autograph-memorabilia/
@@ -25,8 +29,4 @@ https://nytimes.com/2024/10/24/us/politics/miriam-adelson-trump-donors.html
 **Harris Campaign Uses John Kelly’s Words in Stark New Ads**\
 `The ads are the latest attempt by Kamala Harris’s campaign to turn the 2024 race into a referendum on Donald Trump.`\
 https://nytimes.com/2024/10/24/us/politics/john-kelly-trump-fascist-harris-ads.html
-
-**Will It All Come Down to Michigan?**\
-`Operatives from both parties see the race as deadlocked, and both insist they have a clearer path.`\
-https://nytimes.com/2024/10/24/us/politics/election-michigan-swing-states.html
 
