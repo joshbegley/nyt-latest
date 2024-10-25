@@ -1,3 +1,11 @@
+**Heat Today: Miami prepares to honor Dwyane Wade, regroup against Hornets this weekend**\
+`This weekend, the Heat seek to honor Dwyane Wade at home and regroup on the road`\
+https://nytimes.com/athletic/5872753/2024/10/25/miami-heat-dwyane-wade-nba/
+
+**The Windup: Last-minute World Series reads**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5872838/2024/10/25/world-series-dodgers-yankees-the-windup/
+
 **Election 2024 Polls: New York**\
 `See the latest election polls and polling averages for New York.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-new-york.html
