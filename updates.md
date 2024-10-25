@@ -1,3 +1,7 @@
+**Doubting the Blues without Robert Thomas? They showed that a 'work-based' effort can win**\
+`The Blues beat the Maple Leafs 5-1 in their first game without their star center, who's out six weeks.`\
+https://nytimes.com/athletic/5870250/2024/10/24/blues-maple-leafs-robert-thomas-injury/
+
 **David Pastrnak is hurting the Bruins more than helping them**\
 `The Bruins are paying Pastrnak $11.25 million annually to score goals and chase wins. Not sit in the penalty box.`\
 https://nytimes.com/athletic/5871593/2024/10/24/bruins-stars-david-pastrnak/

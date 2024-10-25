@@ -1,3 +1,7 @@
+**Doubting the Blues without Robert Thomas? They showed that a 'work-based' effort can win**\
+`The Blues beat the Maple Leafs 5-1 in their first game without their star center, who's out six weeks.`\
+https://nytimes.com/athletic/5870250/2024/10/24/blues-maple-leafs-robert-thomas-injury/
+
 **David Pastrnak is hurting the Bruins more than helping them**\
 `The Bruins are paying Pastrnak $11.25 million annually to score goals and chase wins. Not sit in the penalty box.`\
 https://nytimes.com/athletic/5871593/2024/10/24/bruins-stars-david-pastrnak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5871450/2024/10/24/victor-wembanyama-klay-thompson-
 **How Wild responded to season's first deficit with comeback win vs. Lightning: 4 takeaways**\
 `After a come-from-behind 4-2 victory in Tampa, the Wild improved to 5-0-2 on the season.`\
 https://nytimes.com/athletic/5870913/2024/10/24/wild-lightning-takeaways-analysis/
-
-**Brent Honeywell, 'playoff perm' and all, is a hit with Dodgers' bullpen: 'He's one of one'**\
-`Honeywell's eccentric personality is a hit with his fellow relievers: “He's the glue that's holding people together down there."`\
-https://nytimes.com/athletic/5871372/2024/10/24/dodgers-brent-honeywell/
 
