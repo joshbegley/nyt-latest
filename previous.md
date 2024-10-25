@@ -1,3 +1,15 @@
+**Maresca urges Chelsea captain James to show more leadership**\
+`Enzo Maresca has urged Reece James to show more leadership as Chelsea’s captain and added that he believes his squad lacks a “proper leader”.`\
+https://nytimes.com/athletic/5872199/2024/10/25/reece-james-chelsea-captain-enzo-maresca/
+
+**Johnstone signing has sparked improvement in Sa - O'Neil**\
+`Wolverhampton Wanderers head coach Gary O’Neil says the summer signing of Sam Johnstone has sparked an improvement in fellow goalkeeper Jose Sa.`\
+https://nytimes.com/athletic/5872570/2024/10/25/jose-sa-sam-johnstone-wolves/
+
+**‘Good Omens’ Season 3 Cut Short Amid Allegations Against Gaiman**\
+`The series is the third production linked to the author to face turmoil after allegations made by five women surfaced this summer.`\
+https://nytimes.com/2024/10/25/arts/television/good-omens-neil-gaiman.html
+
 **Mississippi’s Absentee Ballot Law Is Overturned**\
 `The law required officials to count absentee ballots received by mail up to five days after Election Day. It’s unclear if the ruling will affect the current election.`\
 https://nytimes.com/2024/10/25/us/mississippi-absentee-ballot-law.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5873411/2024/10/25/dolphins-list-tyreek-hill-tua-ta
 **Election Officials Face Torrent of Threats as Nov. 5 Looms**\
 `Law enforcement’s task for Election Day this year goes far beyond providing physical security, to the essential mission of safeguarding democracy.`\
 https://nytimes.com/2024/10/25/us/politics/election-officials-workers-threats.html
-
-**Israel Pummels Gaza and Lebanon With Hundreds of Deadly Airstrikes**\
-`Gaza’s health ministry reported that dozens of people had been killed in a residential area of Khan Younis, as Israel launched a barrage of attacks across the region on Friday.`\
-https://nytimes.com/2024/10/25/world/middleeast/israel-strikes-gaza-lebanon.html
-
-**Aid into Gaza picks up slightly, but that is only part of the battle, relief groups say.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/aid-into-gaza-picks-up-slightly-but-that-is-only-part-of-the-battle-relief-groups-say
-
-**Biden Administration Floats Student Loan Relief for Borrowers Facing Hardship**\
-`The proposal, which faces tough legal prospects, would offer forgiveness to millions of borrowers who are unable to pay back their loans because of financial setbacks.`\
-https://nytimes.com/2024/10/25/us/politics/student-loan-debt-hardship-biden.html
 

@@ -1,3 +1,15 @@
+**Maresca urges Chelsea captain James to show more leadership**\
+`Enzo Maresca has urged Reece James to show more leadership as Chelsea’s captain and added that he believes his squad lacks a “proper leader”.`\
+https://nytimes.com/athletic/5872199/2024/10/25/reece-james-chelsea-captain-enzo-maresca/
+
+**Johnstone signing has sparked improvement in Sa - O'Neil**\
+`Wolverhampton Wanderers head coach Gary O’Neil says the summer signing of Sam Johnstone has sparked an improvement in fellow goalkeeper Jose Sa.`\
+https://nytimes.com/athletic/5872570/2024/10/25/jose-sa-sam-johnstone-wolves/
+
+**‘Good Omens’ Season 3 Cut Short Amid Allegations Against Gaiman**\
+`The series is the third production linked to the author to face turmoil after allegations made by five women surfaced this summer.`\
+https://nytimes.com/2024/10/25/arts/television/good-omens-neil-gaiman.html
+
 **Mississippi’s Absentee Ballot Law Is Overturned**\
 `The law required officials to count absentee ballots received by mail up to five days after Election Day. It’s unclear if the ruling will affect the current election.`\
 https://nytimes.com/2024/10/25/us/mississippi-absentee-ballot-law.html
