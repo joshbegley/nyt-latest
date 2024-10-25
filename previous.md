@@ -1,3 +1,7 @@
+**France’s Financial Morass Produces a Harsh Critique From Moody’s**\
+`The financial ratings agency, citing a “fiscal deterioration” with rising borrowing and a political logjam, downgraded its outlook for French debt.`\
+https://nytimes.com/2024/10/25/business/france-moodys-negative-outlook.html
+
 **49ers' Samuel, Kittle questionable; Jennings out vs. Cowboys**\
 `Samuel said Friday he’s feeling much better after a two-night hospital stay this week, but isn’t sure if he’ll play against the Cowboys.`\
 https://nytimes.com/athletic/5873373/2024/10/25/49ers-deebo-samuel-george-kittle-jauan-jennings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872199/2024/10/25/reece-james-chelsea-captain-enzo
 **Johnstone signing has sparked improvement in Sa - O'Neil**\
 `Wolverhampton Wanderers head coach Gary O’Neil says the summer signing of Sam Johnstone has sparked an improvement in fellow goalkeeper Jose Sa.`\
 https://nytimes.com/athletic/5872570/2024/10/25/jose-sa-sam-johnstone-wolves/
-
-**‘Good Omens’ Season 3 Cut Short Amid Allegations Against Gaiman**\
-`The series is the third production linked to the author to face turmoil after allegations made by five women surfaced this summer.`\
-https://nytimes.com/2024/10/25/arts/television/good-omens-neil-gaiman.html
 

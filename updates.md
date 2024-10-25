@@ -1,3 +1,7 @@
+**France’s Financial Morass Produces a Harsh Critique From Moody’s**\
+`The financial ratings agency, citing a “fiscal deterioration” with rising borrowing and a political logjam, downgraded its outlook for French debt.`\
+https://nytimes.com/2024/10/25/business/france-moodys-negative-outlook.html
+
 **49ers' Samuel, Kittle questionable; Jennings out vs. Cowboys**\
 `Samuel said Friday he’s feeling much better after a two-night hospital stay this week, but isn’t sure if he’ll play against the Cowboys.`\
 https://nytimes.com/athletic/5873373/2024/10/25/49ers-deebo-samuel-george-kittle-jauan-jennings/
