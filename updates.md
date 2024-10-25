@@ -1,3 +1,11 @@
+**Israeli Strike Kills 3 Journalists, Lebanon’s Health Ministry Says**\
+`The three worked for Lebanese news organizations, their employers said. The ministry said they had been staying in a residence housing journalists.`\
+https://nytimes.com/2024/10/25/world/middleeast/israel-strike-lebanon-journalists.html
+
+**Teenager Charged With Murder of 5 Relatives in Washington State**\
+`Prosecutors said a 15-year-old killed his parents and three siblings, then tried to convince the authorities his brother was responsible.`\
+https://nytimes.com/2024/10/25/us/washington-shooting-teen-charged.html
+
 **Top Law Firms Shrink From the Heat of the Mideast Conflict**\
 `When a Columbia professor needed a lawyer because of her comments about the actions of former Israeli soldiers on campus, tensions over the Israel-Hamas war got in the way.`\
 https://nytimes.com/2024/10/25/nyregion/columbia-university-kathleen-franke.html
