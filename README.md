@@ -1,3 +1,7 @@
+**Meet the New Home Kitchen Business**\
+`Starting in November, licensed home kitchens in Los Angeles County will be able to sell dine-in and to-go meals, as a 5-year-old state law expands.`\
+https://nytimes.com/2024/10/25/headway/meet-the-new-home-kitchen-business.html
+
 **Maresca urges Chelsea captain James to show more leadership**\
 `Enzo Maresca has urged Reece James to show more leadership as Chelsea’s captain and added that he believes his squad lacks a “proper leader”.`\
 https://nytimes.com/athletic/5872199/2024/10/25/reece-james-chelsea-captain-enzo-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/politics/whats-at-stake.html
 **Dolphins' Hill, Tagovailoa questionable for Week 8**\
 `Miami's lineup could be in for a major boost with the pending reunion of the dynamic duo.`\
 https://nytimes.com/athletic/5873411/2024/10/25/dolphins-list-tyreek-hill-tua-tagovailoa-as-questionable-entering-week-8/
-
-**Election Officials Face Torrent of Threats as Nov. 5 Looms**\
-`Law enforcement’s task for Election Day this year goes far beyond providing physical security, to the essential mission of safeguarding democracy.`\
-https://nytimes.com/2024/10/25/us/politics/election-officials-workers-threats.html
 
