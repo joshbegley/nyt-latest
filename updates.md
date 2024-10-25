@@ -1,3 +1,7 @@
+**Trump directs new threats at Jack Smith, the special counsel.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/10/25/us/harris-trump-election/trump-directs-new-threats-at-jack-smith-the-special-counsel
+
 **Washington Post Says It Will Stop Endorsing Presidential Candidates**\
 `Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not making endorsements for the office.`\
 https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html
