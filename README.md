@@ -1,3 +1,7 @@
+**Bengals WR Tee Higgins questionable vs. Eagles**\
+`Wide receiver Tee Higgins popped up at Friday practice as limited with a quad injury, and is listed as questionable for Sunday.`\
+https://nytimes.com/athletic/5873197/2024/10/25/bengals-tee-higgins-injury-update-eagles/
+
 **Sean McVay repeats: Cooper Kupp staying a Ram**\
 `Cooper Kupp returned Thursday night and Rams coach Sean McVay says dealing him is "not a move that we want to make."`\
 https://nytimes.com/athletic/5873186/2024/10/25/rams-cooper-kupp-no-trade-sean-mcvay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873020/2024/10/25/alexis-lafreniere-rangers-extens
 **The New York Times Is Looking for Flashback Contributors**\
 `The best clues for the weekly history quiz are tiny stories that combine the familiar with the surprising.`\
 https://nytimes.com/2024/10/25/upshot/flashback-contributors.html
-
-**Potentially Damaging Winds Expected to Return to Southern California**\
-`Northerly winds, slightly stronger than the most recent wind event earlier this month, will blow through Southern California in the days leading up to Halloween.`\
-https://nytimes.com/2024/10/25/weather/los-angeles-winds-california.html
 
