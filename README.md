@@ -1,3 +1,7 @@
+**Media Organizations Criticize Israeli Strike That Killed Three Journalists**\
+`Israel says it was bombing a structure associated with Hezbollah and says it is reviewing the strike.`\
+https://nytimes.com/2024/10/25/world/middleeast/israel-gaza-hamas-hezbollah-journalists.html
+
 **France’s Financial Morass Produces a Harsh Critique From Moody’s**\
 `The financial ratings agency, citing a “fiscal deterioration” with rising borrowing and a political logjam, downgraded its outlook for French debt.`\
 https://nytimes.com/2024/10/25/business/france-moodys-negative-outlook.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/headway/meet-the-new-home-kitchen-business.html
 **Maresca urges Chelsea captain James to show more leadership**\
 `Enzo Maresca has urged Reece James to show more leadership as Chelsea’s captain and added that he believes his squad lacks a “proper leader”.`\
 https://nytimes.com/athletic/5872199/2024/10/25/reece-james-chelsea-captain-enzo-maresca/
-
-**Johnstone signing has sparked improvement in Sa - O'Neil**\
-`Wolverhampton Wanderers head coach Gary O’Neil says the summer signing of Sam Johnstone has sparked an improvement in fellow goalkeeper Jose Sa.`\
-https://nytimes.com/athletic/5872570/2024/10/25/jose-sa-sam-johnstone-wolves/
 
