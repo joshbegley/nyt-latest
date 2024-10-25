@@ -1,3 +1,7 @@
+**No Corrections: Oct. 25, 2025**\
+`No corrections appeared in print on Friday, Oct. 25, 2025.`\
+https://nytimes.com/2024/10/24/pageoneplus/no-corrections-oct-25-2025.html
+
 **At a Town Hall in Detroit, Trump Asks Vance: ‘How Brilliant Is Donald Trump?’**\
 `Former President Donald J. Trump phoned in during a televised town hall with voters, surprising his running mate.`\
 https://nytimes.com/2024/10/24/us/politics/vance-detroit-trump-newsnation.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/10/24/us/politics/election-michigan-swing-states.html
 **Israeli authorities say the U.N. agency for Palestinians employed a Hamas commander they killed.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/24/world/israel-lebanon-hezbollah-iran/israeli-authorities-say-the-un-agency-for-palestinians-employed-a-hamas-commander-they-killed
-
-**McLaren submits right of review for Lando Norris’ U.S. Grand Prix penalty**\
-`A penalty on Sunday in Austin cost Norris crucial points and raised questions about F1's stewards and racing rules. `\
-https://nytimes.com/athletic/5871032/2024/10/24/lando-norris-f1-penalty-us-grand-prix-mclaren-right-of-review/
 
