@@ -1,3 +1,11 @@
+**Phil Lesh, Bassist Who Anchored the Grateful Dead, Dies at 84**\
+`One of the first rock bassists whose instrument regularly took a lead role, he also had a hand in writing some of the band’s best-known songs.`\
+https://nytimes.com/2024/10/25/arts/music/phil-lesh-dead.html
+
+**Airline Lost Your Bag? Here’s How to Reunite With Your Luggage.**\
+`Or at least be reimbursed if it’s gone for good.`\
+https://nytimes.com/2024/10/25/travel/lost-luggage-customer-service.html
+
 **NASA Astronaut Has ‘Medical Issue’ After SpaceX Splashdown**\
 `Three NASA astronauts and a fourth from the Russian space agency returned to Earth from the International Space Station on Friday morning after weather-related delays.`\
 https://nytimes.com/2024/10/25/science/nasa-spacex-astronaut-hospital.html
