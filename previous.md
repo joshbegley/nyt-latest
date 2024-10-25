@@ -1,3 +1,11 @@
+**Kit Connor and Rachel Zegler Make Puppy Love in the Puppy Pile**\
+`The Broadway revival of “Romeo + Juliet” plays to the TikTok crowd. But maybe that’s a good thing.`\
+https://nytimes.com/2024/10/24/theater/romeo-juliet-kit-carson-rachel-zegler.html
+
+**How Rangers' lack of 'pop' led to first regulation loss: 6 takeaways**\
+`The Rangers’ first matchup of the season against the Panthers resembled their playoff series five months ago. The result was also similar.`\
+https://nytimes.com/athletic/5871572/2024/10/24/rangers-panthers-takeaways-analysis/
+
 **Tyler Perry Blasts Trump in Passionate Speech at Harris’s Atlanta Rally**\
 `The actor and filmmaker, who built his career in the Georgia capital, said he had realized that in the former president’s America, “there is no dream that looks like me.”`\
 https://nytimes.com/2024/10/24/us/politics/tyler-perry-harris-atlanta.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/24/crosswords/daily-puzzle-2024-10-25.html
 **Obama Rallies With Harris for First Time, to the Chords of Bruce Springsteen**\
 `At a star-filled rally in Georgia that also featured Tyler Perry and Samuel L. Jackson, the former president tried to give a jolt of energy to the vice president often seen as a successor.`\
 https://nytimes.com/2024/10/24/us/politics/obama-harris-bruce-springsteen-georgia.html
-
-**USWNT defeats Iceland with goals from Thompson, Shaw, Smith**\
-`The U.S. won the first game of its Olympic victory tour.`\
-https://nytimes.com/athletic/5871370/2024/10/24/uswnt-iceland-alyssa-thompson-goal/
-
-**Panini sells out Caitlin Clark autographed memorabilia release in minutes**\
-`The release included autographed jerseys, basketballs and photographs of the WNBA Rookie of the Year`\
-https://nytimes.com/athletic/5870540/2024/10/24/caitlin-clark-panini-autograph-memorabilia/
 

@@ -1,3 +1,11 @@
+**Kit Connor and Rachel Zegler Make Puppy Love in the Puppy Pile**\
+`The Broadway revival of “Romeo + Juliet” plays to the TikTok crowd. But maybe that’s a good thing.`\
+https://nytimes.com/2024/10/24/theater/romeo-juliet-kit-carson-rachel-zegler.html
+
+**How Rangers' lack of 'pop' led to first regulation loss: 6 takeaways**\
+`The Rangers’ first matchup of the season against the Panthers resembled their playoff series five months ago. The result was also similar.`\
+https://nytimes.com/athletic/5871572/2024/10/24/rangers-panthers-takeaways-analysis/
+
 **Wemby struggles vs. Klay, new-look Mavs in Spurs loss**\
 `Victor Wembanyama shot just 5-of-18 for 17 points in San Antonio's 120-109 loss.`\
 https://nytimes.com/athletic/5871450/2024/10/24/victor-wembanyama-klay-thompson-mavericks-spurs-result/
