@@ -1,3 +1,11 @@
+**Election Officials Face Torrent of Threats as Nov. 5 Looms**\
+`Law enforcement’s task for Election Day this year goes far beyond providing physical security, to the essential mission of safeguarding democracy.`\
+https://nytimes.com/2024/10/25/us/politics/election-officials-workers-threats.html
+
+**Israel Pummels Gaza and Lebanon With Hundreds of Deadly Airstrikes**\
+`Gaza’s health ministry reported that dozens of people had been killed in a residential area of Khan Younis, as Israel launched a barrage of attacks across the region on Friday.`\
+https://nytimes.com/2024/10/25/world/middleeast/israel-strikes-gaza-lebanon.html
+
 **Aid into Gaza picks up slightly, but that is only part of the battle, relief groups say.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/aid-into-gaza-picks-up-slightly-but-that-is-only-part-of-the-battle-relief-groups-say

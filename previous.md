@@ -1,3 +1,11 @@
+**Election Officials Face Torrent of Threats as Nov. 5 Looms**\
+`Law enforcement’s task for Election Day this year goes far beyond providing physical security, to the essential mission of safeguarding democracy.`\
+https://nytimes.com/2024/10/25/us/politics/election-officials-workers-threats.html
+
+**Israel Pummels Gaza and Lebanon With Hundreds of Deadly Airstrikes**\
+`Gaza’s health ministry reported that dozens of people had been killed in a residential area of Khan Younis, as Israel launched a barrage of attacks across the region on Friday.`\
+https://nytimes.com/2024/10/25/world/middleeast/israel-strikes-gaza-lebanon.html
+
 **Aid into Gaza picks up slightly, but that is only part of the battle, relief groups say.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/aid-into-gaza-picks-up-slightly-but-that-is-only-part-of-the-battle-relief-groups-say
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5748718/2024/10/25/hip-drop-tackle-nfl-explainer/
 **25 Jump Scares That Still Make Us Jump**\
 `We ranked the most chilling, spine-tingling, utterly terrifying scenes that get us every time, and asked writers, filmmakers and stars to explain why.`\
 https://nytimes.com/interactive/2024/10/25/movies/scary-movie-it-alien-smile.html
-
-**In Gaza, the U.N.’s Polio Vaccine Campaign May Be Falling Apart**\
-`There is no military solution to a public health crisis.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/gaza-polio-vaccine-un
-
-**Phil Lesh, Bassist Who Anchored the Grateful Dead, Dies at 84**\
-`One of the first rock bassists whose instrument regularly took a lead role, he also had a hand in writing some of the band’s best-known songs.`\
-https://nytimes.com/2024/10/25/arts/music/phil-lesh-dead.html
 
