@@ -1,3 +1,7 @@
+**Milan chairman criticises 'incomprehensible' postponement of Bologna game**\
+`Milan chairman Paolo Scaroni has described Serie A&#8217;s decision to postpone his club&#8217;s match in Bologna after heavy rain and flooding in the area as &#8220;incomprehensible.`\
+https://nytimes.com/athletic/5872660/2024/10/25/milan-bologna-postponed-floods/
+
 **Hezbollah’s military remains resilient, even after heavy blows from Israel, experts say.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/hezbollah-military-capabilities
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/5872297/2024/10/25/real-madrid-barcelona-el-clasico
 https://nytimes.com/2024/10/25/dining/diwali-sweets-mithai.html
 
 **Heat Today: Miami prepares to honor Dwyane Wade, regroup against Hornets this weekend**\
-`This weekend, the Heat seek to honor Dwyane Wade at home and regroup on the road`\
+`Wade will get a statue, and the Heat hope to collect their first win.`\
 https://nytimes.com/athletic/5872753/2024/10/25/miami-heat-dwyane-wade-nba/
 
 **The Windup: Last-minute World Series reads**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/arts/music/new-york-philharmonic-payare-review.ht
 **Cornwall Is England’s Most Magical County. Here’s Where to Go.**\
 `Locals recommend the area’s best pies, wild gardens and coastal footpaths.`\
 https://nytimes.com/2024/10/25/t-magazine/cornwall-england-hotels-restaurants-guide.html
-
-**Stephens: The Sharks are still searching for a win — and their new identity**\
-`Eight games, eight losses. Frustration is setting in for the Sharks and new coach Ryan Warsofsky. `\
-https://nytimes.com/athletic/5872046/2024/10/25/san-jose-sharks-nhl-kings/
 
