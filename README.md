@@ -1,3 +1,19 @@
+**Friday Briefing: Stars Rally for Harris**\
+`Plus, an interview with the Taliban’s most fearsome leader.`\
+https://nytimes.com/2024/10/25/briefing/friday-briefing-stars-rally-for-harris.html
+
+**Forest fans remain thankful to Cooper, but club has evolved under Nuno**\
+`Leicester manager Cooper will receive a warm reception from Forest fans tonight, but his replacement at has taken the club the a new level`\
+https://nytimes.com/athletic/5869375/2024/10/25/nottingham-forest-fans-remain-thankful-to-steve-cooper-but-club-has-evolved-under-nuno-espirito-santo/
+
+**Tawanda Maswanhise on Jamie Vardy, playing in Scotland and facing his old boss Brendan Rodgers**\
+`An interview with the young Zimbabwe international who left Leicester City and is now at Motherwell`\
+https://nytimes.com/athletic/5869384/2024/10/25/tawanda-maswanhise-rodgers-motherwell-schmeichel/
+
+**Anna Patten and the granddad who inspired her switch from England to Ireland: 'He loved to see me play'**\
+`The Republic of Ireland defender on their Euro 2025 play-off, Aston Villa's early-season struggles and the advice her grandfather gave her`\
+https://nytimes.com/athletic/5865889/2024/10/25/anna-patten-ireland-interview/
+
 **Alexander-Arnold's (r)evolution under Arne Slot**\
 `Liverpool's in-demand full-back has had his role tweaked under his new head coach but is still thriving `\
 https://nytimes.com/athletic/5869689/2024/10/25/trent-alexander-arnold-arne-slot-liverpool/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5869651/2024/10/25/next-weeks-waiver-wire-kimani-vi
 **Five thoughts on the suddenly scuffling Maple Leafs**\
 `Two ugly back-to-back losses and it's suddenly a stormy season for the Maple Leafs.`\
 https://nytimes.com/athletic/5871401/2024/10/25/maple-leafs-blues-loss/
-
-**FPL: Is GW9 the time to triple captain Haaland?**\
-`Factors you should be weighing up if you're deciding whether to Triple Captain the Man City striker for their game against Southampton`\
-https://nytimes.com/athletic/5866517/2024/10/25/fpl-advice-triple-captain-erling-haaland/
-
-**In a Region of Majestic Beauty, Sunnis and Shiites Wage Bloody War**\
-`In Kurram, near the Afghan border, Pakistan has been helpless to stop the latest outbreaks of a sectarian conflict that goes back decades.`\
-https://nytimes.com/2024/10/25/world/asia/pakistan-kurram-sunni-shiite.html
-
-**Quote of the Day: His Mission: To Restore Wilderness of Ireland**\
-`Quotation of the Day for Friday, October 25, 2024.`\
-https://nytimes.com/2024/10/25/pageoneplus/quote-of-the-day-his-mission-to-restore-wilderness-of-ireland.html
-
-**Malaria Is Surging in Ethiopia, Reversing a Decade of Progress Against the Disease**\
-`Climate change, civil conflict and growing resistance to insecticides and treatments are all contributing to an alarming spread of cases.`\
-https://nytimes.com/2024/10/25/health/malaria-ethiopia-deaths-cases.html
 
