@@ -1,3 +1,7 @@
+**The Early Bird Got the Cicada, Then an Evolutionary Air War Started**\
+`Fossils reveal that prehistoric cicadas’ wings evolved to help them evade hungry predators with feathers and beaks, scientists say.`\
+https://nytimes.com/2024/10/25/science/cicadas-fossils-bird-evolution.html
+
 **History, Money and Glamour Define a New York vs. Los Angeles World Series**\
 `The two biggest cities in America have as many differences as similarities — including in public transportation, ballparks and payrolls`\
 https://nytimes.com/2024/10/25/us/world-series-los-angeles-new-york.html

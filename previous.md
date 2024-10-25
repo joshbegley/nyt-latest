@@ -1,3 +1,7 @@
+**The Early Bird Got the Cicada, Then an Evolutionary Air War Started**\
+`Fossils reveal that prehistoric cicadas’ wings evolved to help them evade hungry predators with feathers and beaks, scientists say.`\
+https://nytimes.com/2024/10/25/science/cicadas-fossils-bird-evolution.html
+
 **History, Money and Glamour Define a New York vs. Los Angeles World Series**\
 `The two biggest cities in America have as many differences as similarities — including in public transportation, ballparks and payrolls`\
 https://nytimes.com/2024/10/25/us/world-series-los-angeles-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/russia-houthis-weapons.html
 **Without Another Debate, the Campaign Became a Duel of TV Scenes**\
 `As the candidates raced to claim different corners of the national screen this week, it was “Undercover Boss” vs. “Roll the clip.”`\
 https://nytimes.com/2024/10/25/arts/television/donald-trump-kamala-harris.html
-
-**Review: Porcupines of Plastic and Other Provocations**\
-`The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
-https://nytimes.com/2024/10/25/arts/dance/review-nadia-beugre-quartier-libres-revisited.html
 
