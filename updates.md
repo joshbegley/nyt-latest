@@ -1,3 +1,11 @@
+**NASA Astronaut Has ‘Medical Issue’ After SpaceX Splashdown**\
+`Three NASA astronauts and a fourth from the Russian space agency returned to Earth from the International Space Station on Friday morning after weather-related delays.`\
+https://nytimes.com/2024/10/25/science/nasa-spacex-astronaut-hospital.html
+
+**Why the Maple Leafs are not in a rush to split up their power play units**\
+`Despite recent struggles, Craig Berube is preaching patience with the Maple Leafs' power play.`\
+https://nytimes.com/athletic/5873246/2024/10/25/maple-leafs-power-play/
+
 **Biden Apologizes for U.S. Abuse of Indian Children, Calling It ‘a Sin on Our Soul’**\
 `From the early 1800s to the late 1960s, the federal government forced Native American children into boarding schools where they faced abuse and neglect that led in some cases to death.`\
 https://nytimes.com/2024/10/25/us/politics/biden-apology-indian-abuse.html
