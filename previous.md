@@ -1,3 +1,7 @@
+**Mega-Donors Pour $8 Million Into Late Push Against N.Y. Abortion Measure**\
+`Opponents of the so-called Equal Rights Amendment have cast it as a broad attempt by Democrats to grant rights to transgender athletes and migrants.`\
+https://nytimes.com/2024/10/25/nyregion/proposition-one-ballot-abortion.html
+
 **North Korean Troops Assemble in Russia’s Kursk Region, U.S. Officials Say**\
 `Thousands of soldiers from an elite unit of the Korean People’s Army began arriving on Wednesday and are expected to try to help expel Ukrainian forces from Russian territory.`\
 https://nytimes.com/2024/10/25/world/europe/north-korean-troops-arrive-kursk-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/arts/gary-indiana-dead.html
 **These Videos Appear to Show North Korean Troops in Russia**\
 `Footage was filmed in the Russian Far East, which the United States says is hosting thousands of North Korean soldiers.`\
 https://nytimes.com/2024/10/25/world/asia/north-korea-russia-ukraine-video.html
-
-**Media Organizations Criticize Israeli Strike That Killed Three Journalists**\
-`Israel says it was bombing a structure associated with Hezbollah and says it is reviewing the strike.`\
-https://nytimes.com/2024/10/25/world/middleeast/israel-gaza-hamas-hezbollah-journalists.html
 
