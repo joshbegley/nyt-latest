@@ -1,3 +1,7 @@
+**Can the World Series beat the NFL on TV for one night?**\
+`With an epic matchup featuring the country's biggest media markets, MLB just might have a shot to unseat the TV ratings king for one night.`\
+https://nytimes.com/athletic/5860573/2024/10/25/world-series-nfl-tv-ratings-viewership-yankees-dodgers/
+
 **The Athletic’s Friday football quiz question #27**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5870446/2024/10/25/the-athletics-friday-football-quiz-question-27/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/world/middleeast/israel-soldiers-killed-hezbollah
 **Twins future value big board: Ranking the top 20 players based on long-term upside**\
 `Blending prospects, young major leaguers and veterans to assess the Twins' organizational strength and most desirable trade assets.`\
 https://nytimes.com/athletic/5864469/2024/10/25/minnesota-twins-players-future-value/
-
-**Improving results against top teams key for Liverpool's season - Slot**\
-`Arne Slot admits improving Liverpool’s record against the top teams could have a huge impact on their season.`\
-https://nytimes.com/athletic/5872101/2024/10/25/arne-slot-liverpool-results/
 
