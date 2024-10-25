@@ -1,3 +1,11 @@
+**Heat Today: Miami prepares to honor Dwyane Wade, regroup against Hornets this weekend**\
+`This weekend, the Heat seek to honor Dwyane Wade at home and regroup on the road`\
+https://nytimes.com/athletic/5872753/2024/10/25/miami-heat-dwyane-wade-nba/
+
+**The Windup: Last-minute World Series reads**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5872838/2024/10/25/world-series-dodgers-yankees-the-windup/
+
 **Fantasy Trends and Hidden Gems: Tyler Bertuzzi, Kirill Marchenko and slow starter worries**\
 `Shayna Goldman discusses NHL fantasy trends and possible roster additions to help you succeed this season. `\
 https://nytimes.com/athletic/5871627/2024/10/25/fantasy-trends-and-hidden-gems-week-4/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/opinion/kelly-trump-fascism-hitler.html
 **Late Lawsuit Could Shape Political Ad Wars in Final Days of Campaign**\
 `House Democrats are suing to stop Republicans from using a legal loophole to bolster their Senate candidates.`\
 https://nytimes.com/2024/10/25/us/politics/political-ad-lawsuit.html
-
-**Election 2024 Polls: New York**\
-`See the latest election polls and polling averages for New York.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-new-york.html
-
-**Election 2024 Polls: New Hampshire**\
-`See the latest election polls and polling averages for New Hampshire.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-new-hampshire.html
 
