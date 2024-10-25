@@ -1,3 +1,11 @@
+**Tyler Perry Blasts Trump in Passionate Speech at Harris’s Atlanta Rally**\
+`The actor and filmmaker, who built his career in the Georgia capital, said he had realized that in the former president’s America, “there is no dream that looks like me.”`\
+https://nytimes.com/2024/10/24/us/politics/tyler-perry-harris-atlanta.html
+
+**Maple Leafs report cards: Stars struggle in another disappointing loss**\
+`The Leafs outshot the Blues, but they still lost 5-1 to a mediocre team that was missing its star centre.`\
+https://nytimes.com/athletic/5871476/2024/10/24/maple-leafs-blues-stars-loss/
+
 **Syracuse QB Kyle McCord throws 3 pick sixes in disastrous first half**\
 `The Ohio State transfer is the first QB since 2015 to throw three pick sixes in a game.`\
 https://nytimes.com/athletic/5871430/2024/10/24/kyle-mccord-syracuse-3-pick-six-interceptions/
