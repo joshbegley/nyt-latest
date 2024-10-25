@@ -1,3 +1,15 @@
+**What are F1’s racing rules? A look at race stewards and drivers' battle for clarity**\
+`Multiple times during the 2024 season, drivers have faced questions — and raised their own — about what is and is not allowed on track.`\
+https://nytimes.com/athletic/5870747/2024/10/25/f1-racing-rules-explained-steward-driver/
+
+**Russia Could Expand Its Assistance to Houthis, U.S. Says**\
+`The group’s attacks in the Red Sea have driven up shipping costs and forced the United States and its allies to increase their naval presence in the region.`\
+https://nytimes.com/2024/10/25/us/politics/russia-houthis-weapons.html
+
+**Without Another Debate, the Campaign Became a Duel of TV Scenes**\
+`As the candidates raced to claim different corners of the national screen this week, it was “Undercover Boss” vs. “Roll the clip.”`\
+https://nytimes.com/2024/10/25/arts/television/donald-trump-kamala-harris.html
+
 **Review: Porcupines of Plastic and Other Provocations**\
 `The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
 https://nytimes.com/2024/10/25/arts/dance/review-nadia-breuge-quartier-libres-revisited.html

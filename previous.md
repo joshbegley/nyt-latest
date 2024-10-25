@@ -1,3 +1,15 @@
+**What are F1’s racing rules? A look at race stewards and drivers' battle for clarity**\
+`Multiple times during the 2024 season, drivers have faced questions — and raised their own — about what is and is not allowed on track.`\
+https://nytimes.com/athletic/5870747/2024/10/25/f1-racing-rules-explained-steward-driver/
+
+**Russia Could Expand Its Assistance to Houthis, U.S. Says**\
+`The group’s attacks in the Red Sea have driven up shipping costs and forced the United States and its allies to increase their naval presence in the region.`\
+https://nytimes.com/2024/10/25/us/politics/russia-houthis-weapons.html
+
+**Without Another Debate, the Campaign Became a Duel of TV Scenes**\
+`As the candidates raced to claim different corners of the national screen this week, it was “Undercover Boss” vs. “Roll the clip.”`\
+https://nytimes.com/2024/10/25/arts/television/donald-trump-kamala-harris.html
+
 **Review: Porcupines of Plastic and Other Provocations**\
 `The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
 https://nytimes.com/2024/10/25/arts/dance/review-nadia-breuge-quartier-libres-revisited.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5866319/2024/10/25/barcelona-centre-backs-key-passe
 **Washington Post Says It Won’t Endorse Anyone for President**\
 `Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not endorsing presidential candidates.`\
 https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html
-
-**Israeli air attack on southern Gaza came without warning, residents say.**\
-`By Abu Bakr Bashir, Aaron Boxerman and Ameera Harouda`\
-https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-air-attack-on-southern-gaza-came-without-warning-residents-say
-
-**The One Benefit of Harris Winning While Losing the Popular Vote**\
-`It might be a first step toward ending a hugely undemocratic institution.`\
-https://nytimes.com/2024/10/22/opinion/trump-harris-electoral-college.html
-
-**Scoop City: Dear NFL, please address the facemask rule.**\
-`Darnold No-Call: Maybe this one didn't matter. The next one might. Thankfully, it's an easy fix for the NFL.`\
-https://nytimes.com/athletic/5872922/2024/10/25/why-nfl-officials-couldnt-change-the-facemask-call-plus-an-easy-fix/
 
