@@ -1,3 +1,7 @@
+**Blasts reported around Tehran after a year of escalating confrontations.**\
+`Blasts reported around Tehran after a year of escalating confrontations. `\
+https://nytimes.com/2024/10/25/world/middleeast/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations.html
+
 **The Personal Plea Phil Lesh Made Every Time He Took the Stage**\
 `For the past 25 years, the founding member of the Grateful Dead made a nightly speech about a topic that helped him stay performing into his 80s.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-liver-transplant.html
