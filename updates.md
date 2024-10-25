@@ -1,3 +1,7 @@
+**In Georgia, Harris Relies on Superstar Passion**\
+`Not as fiery as her celebrity surrogates, she could use a bit of their heart and fervor.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-georgia-obama-perry
+
 **Miriam Adelson Goes Searching for More Trump Donors**\
 `After financing a super PAC with $100 million of her own money, she is asking other billionaires to help keep the group funded through Election Day.`\
 https://nytimes.com/2024/10/24/us/politics/miriam-adelson-trump-donors.html
