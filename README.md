@@ -1,3 +1,7 @@
+**Biden Apologizes for U.S. Abuse of Indian Children, Calling It ‘a Sin on Our Soul’**\
+`From the early 1800s to the late 1960s, the federal government forced Native American children into boarding schools where they faced abuse and neglect that led in some cases to death.`\
+https://nytimes.com/2024/10/25/us/politics/biden-apology-indian-abuse.html
+
 **Bengals WR Tee Higgins questionable vs. Eagles**\
 `Wide receiver Tee Higgins popped up at Friday practice as limited with a quad injury, and is listed as questionable for Sunday.`\
 https://nytimes.com/athletic/5873197/2024/10/25/bengals-tee-higgins-injury-update-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/us/menendez-brothers-los-angeles-da.html
 **Rangers, Alexis Lafrenière finalizing 7-year contract extension**\
 `Lafrenière broke out in 2023-24, scoring a career-high 28 goals and 57 points.`\
 https://nytimes.com/athletic/5873020/2024/10/25/alexis-lafreniere-rangers-extension/
-
-**The New York Times Is Looking for Flashback Contributors**\
-`The best clues for the weekly history quiz are tiny stories that combine the familiar with the surprising.`\
-https://nytimes.com/2024/10/25/upshot/flashback-contributors.html
 
