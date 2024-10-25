@@ -1,3 +1,11 @@
+**Duhatschek: 'Iron Mike' Keenan speaks, a Ducks' hypothetical and how Utah will manage injuries**\
+`A couple thoughts on Anaheim, one from the deep past and one from the present, as the team tries to muddle its way back to respectability. `\
+https://nytimes.com/athletic/5870372/2024/10/25/nhl-iron-mike-keenan-ducks-utah/
+
+**NFL injury report: DK Metcalf likely to sit in Week 8, but there's hope for Jayden Daniels**\
+`Greg Scholz of Inside Injuries weighs in on the most pressing injuries for Week 8, offering hope that Jayden Daniels could play on Sunday.`\
+https://nytimes.com/athletic/5871655/2024/10/25/nfl-injury-report-week-8-fantasy-football-daniels-metcalf/
+
 **Are Elon Musk and Vladimir Putin Talking?**\
 `The billionaire has reportedly been in regular contact with the Russian president, heaping more scrutiny on the power and influence the entrepreneur wields over the U.S. government.`\
 https://nytimes.com/2024/10/25/business/dealbook/musk-putin-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5871487/2024/10/25/thunder-caruso-holmgren-opener/
 **Guardiola in the dark over De Bruyne injury return**\
 `Pep Guardiola says he does not yet know when Kevin De Bruyne will be back in action.`\
 https://nytimes.com/athletic/5872365/2024/10/25/kevin-de-bruyne-injury-man-city-guardiola/
-
-**Israeli warplanes again strike Syria-Lebanon border crossings, the U.N. says.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-warplanes-again-strike-syria-lebanon-border-crossings-the-un-says
-
-**Jim Harbaugh's vision of a consistent Chargers running attack hasn't taken hold yet**\
-`The Chargers have shown flashes in the running game, but the loss to the Cardinals was a setback and shows where they must improve.`\
-https://nytimes.com/athletic/5871118/2024/10/25/chargers-running-game-jim-harbaugh-greg-roman/
 
