@@ -1,3 +1,7 @@
+**Panini sells out Caitlin Clark autographed memorabilia release in minutes**\
+`The release included autographed jerseys, basketballs and photographs of the WNBA Rookie of the Year`\
+https://nytimes.com/athletic/5870540/2024/10/24/caitlin-clark-panini-autograph-memorabilia/
+
 **No Corrections: Oct. 25, 2025**\
 `No corrections appeared in print on Friday, Oct. 25, 2025.`\
 https://nytimes.com/2024/10/24/pageoneplus/no-corrections-oct-25-2025.html
