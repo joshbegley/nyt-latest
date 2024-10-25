@@ -1,3 +1,7 @@
+**Overlooked No More: Margaret E. Knight, Innovator of the Flat-Bottomed Paper Bag**\
+`She came up with a method of automation so that workers would not have to make the bags by hand. Then she fought for credit for her work.`\
+https://nytimes.com/2024/10/25/obituaries/margaret-e-knight-overlooked.html
+
 **The three passes that can unlock El Clasico and the two Barcelona players who can make them**\
 `There will be focus on Real Madrid's big-name attackers - but it's the players marking them who may prove to be the game's decisive actors`\
 https://nytimes.com/athletic/5866319/2024/10/25/barcelona-centre-backs-key-passes/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/hezbollah-mil
 **Raphinha considered leaving Barcelona 'several times'**\
 `Raphinha says he has thought about leaving Barcelona &#8220;several times&#8221; since joining the club in 2022.`\
 https://nytimes.com/athletic/5872804/2024/10/25/raphinha-barcelona-transfer/
-
-**El Clasico preview: In-form Vinicius Jr, a test for Flick's revolution and dazzling Yamal**\
-`There will be plenty at stake when Madrid take on arch-rivals Barca at the Bernabeu on Saturday. Here's what to look out for`\
-https://nytimes.com/athletic/5872297/2024/10/25/real-madrid-barcelona-el-clasico-preview/
 
