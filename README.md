@@ -1,3 +1,11 @@
+**Will Klay Thompson work in Dallas? The first look says yes**\
+`The embrace of Dallas might really be what Klay Thompson needed.`\
+https://nytimes.com/athletic/5867921/2024/10/25/will-klay-thompson-work-with-dallas-mavericks-first-look-indicates-yes/
+
+**Live Q&A: FPL Gameweek 9 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live FPL Q&A from 2-3pm UK time for Gameweek 9`\
+https://nytimes.com/athletic/5863241/2024/10/25/fantasy-premier-league-advice-injury-news-gw9/
+
 **Israeli Strike Kills 3 Journalists, Lebanon’s Health Ministry Says**\
 `The three worked for Lebanese news organizations, their employers said. The ministry said they had been staying in a residence housing journalists.`\
 https://nytimes.com/2024/10/25/world/middleeast/israel-strike-lebanon-journalists.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/insider/carl-hulse-election.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/25/crosswords/spelling-bee-forum.html
-
-**Ten Hag provides injury update on Antony**\
-`Erik ten Hag says Manchester United will &#8220;need to wait 24 hours&#8221; to have a better understanding of Antony’s injury after the winger was stretchered off during Thursday’s 1-1 Europa League draw with Fenerbahce.`\
-https://nytimes.com/athletic/5871966/2024/10/25/erik-ten-hag-antony-manchester-united/
-
-**Chelsea in a UEFA Conference League class of their own - only complacency can stop them**\
-`Two minutes into the second half at Athens Olympic Stadium, a chasm suddenly opened in the middle of Chelsea’s defence and Panathinaikos winger Facundo Pellistri, a Uruguayan international on the books at Manchester United until last summer, charged purposefully into an ocean of space and directly towards Filip Jorgensen’s goal.`\
-https://nytimes.com/athletic/5869840/2024/10/25/panathinaikos-chelsea-conference-league/
 
