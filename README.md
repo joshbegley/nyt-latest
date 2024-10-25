@@ -1,3 +1,7 @@
+**Maggie Haberman on What an Unleashed Trump Might Do**\
+`The New York Times political correspondent discusses Donald Trump’s past, present and possible future.`\
+https://nytimes.com/video/opinion/100000009782324/maggie-haberman-on-what-an-unleashed-trump-might-do.html
+
 **Kit Connor and Rachel Zegler Make Puppy Love in the Puppy Pile**\
 `The Broadway revival of “Romeo + Juliet” plays to the TikTok crowd. But maybe that’s a good thing.`\
 https://nytimes.com/2024/10/24/theater/romeo-juliet-kit-carson-rachel-zegler.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5871372/2024/10/24/dodgers-brent-honeywell/
 **An Act of Congress**\
 `Alex Murphy makes his New York Times Crossword debut. Here are your smelling salts.`\
 https://nytimes.com/2024/10/24/crosswords/daily-puzzle-2024-10-25.html
-
-**Obama Rallies With Harris for First Time, to the Chords of Bruce Springsteen**\
-`At a star-filled rally in Georgia that also featured Tyler Perry and Samuel L. Jackson, the former president tried to give a jolt of energy to the vice president often seen as a successor.`\
-https://nytimes.com/2024/10/24/us/politics/obama-harris-bruce-springsteen-georgia.html
 
