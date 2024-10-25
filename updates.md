@@ -1,3 +1,7 @@
+**In Gaza, the U.N.’s Polio Vaccine Campaign May Be Falling Apart**\
+`There is no military solution to a public health crisis.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/gaza-polio-vaccine-un
+
 **Phil Lesh, Bassist Who Anchored the Grateful Dead, Dies at 84**\
 `One of the first rock bassists whose instrument regularly took a lead role, he also had a hand in writing some of the band’s best-known songs.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-dead.html
