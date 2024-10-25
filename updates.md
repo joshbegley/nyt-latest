@@ -1,3 +1,15 @@
+**Israeli attacks kill dozens in southern Gaza, health officials say.**\
+`By Raja Abdulrahim and Liam Stack`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-attacks-kill-dozens-in-southern-gaza-health-officials-say
+
+**Here are the latest developments.**\
+`By Raja Abdulrahim, Liam Stack and Euan Ward`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/here-are-the-latest-developments
+
+**Live Updates: Deadly Israeli Strike Hits Southern Gaza, Health Officials Say**\
+`Gaza’s health ministry reported that dozens of people had been killed in the airstrike in a residential area of Khan Younis, where Israel has said it is targeting Hamas.`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran
+
 **Whole new ballgame: 9 ways baseball has changed since Yankees, Dodgers last met in World Series**\
 `A lot has changed in the 43 years since the Yankees and Dodgers last met in the Fall Classic. But one surprising thing is still the same. `\
 https://nytimes.com/athletic/5870596/2024/10/25/baseball-changes-since-1981-world-series-yankees-dodgers/

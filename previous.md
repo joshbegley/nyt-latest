@@ -1,3 +1,15 @@
+**Israeli attacks kill dozens in southern Gaza, health officials say.**\
+`By Raja Abdulrahim and Liam Stack`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-attacks-kill-dozens-in-southern-gaza-health-officials-say
+
+**Here are the latest developments.**\
+`By Raja Abdulrahim, Liam Stack and Euan Ward`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/here-are-the-latest-developments
+
+**Live Updates: Deadly Israeli Strike Hits Southern Gaza, Health Officials Say**\
+`Gaza’s health ministry reported that dozens of people had been killed in the airstrike in a residential area of Khan Younis, where Israel has said it is targeting Hamas.`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran
+
 **Whole new ballgame: 9 ways baseball has changed since Yankees, Dodgers last met in World Series**\
 `A lot has changed in the 43 years since the Yankees and Dodgers last met in the Fall Classic. But one surprising thing is still the same. `\
 https://nytimes.com/athletic/5870596/2024/10/25/baseball-changes-since-1981-world-series-yankees-dodgers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5861394/2024/10/25/world-series-yankees-dodgers-pit
 **Could Trump Win the Popular Vote but Lose the Electoral College?**\
 `It’s not likely, but it’s not something that can be completely dismissed either, recent polling suggests.`\
 https://nytimes.com/2024/10/25/upshot/poll-trump-harris-election.html
-
-**The New York Times News Quiz, Oct. 25, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/10/25/briefing/quiz-trump-harris-north-korea-mcdonalds.html
-
-**Why Harris (With Beyoncé in Tow) Is Heading to Solidly Red Texas**\
-`Appearing alongside a pop superstar and talking about abortion rights in a state with a strict ban, the vice president is hoping to deliver viral moments that will resound in faraway battlegrounds.`\
-https://nytimes.com/2024/10/25/us/politics/harris-beyonce-houston-texas.html
-
-**3 Ways to Make Your Commute Actually Enjoyable**\
-`Traffic jams and train delays happen, but they don’t have to ruin your trip.`\
-https://nytimes.com/2024/10/25/well/commute-transit-traffic.html
 
