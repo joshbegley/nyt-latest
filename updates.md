@@ -1,3 +1,11 @@
+**Will Klay Thompson work in Dallas? The first look says yes**\
+`The embrace of Dallas might really be what Klay Thompson needed.`\
+https://nytimes.com/athletic/5867921/2024/10/25/will-klay-thompson-work-with-dallas-mavericks-first-look-indicates-yes/
+
+**Live Q&A: FPL Gameweek 9 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live FPL Q&A from 2-3pm UK time for Gameweek 9`\
+https://nytimes.com/athletic/5863241/2024/10/25/fantasy-premier-league-advice-injury-news-gw9/
+
 **Israeli Strike Kills 3 Journalists, Lebanon’s Health Ministry Says**\
 `The three worked for Lebanese news organizations, their employers said. The ministry said they had been staying in a residence housing journalists.`\
 https://nytimes.com/2024/10/25/world/middleeast/israel-strike-lebanon-journalists.html
