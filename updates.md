@@ -1,3 +1,11 @@
+**Yankees reveal World Series roster vs. Dodgers: Nestor Cortes back, Trent Grisham out**\
+`After missing the Yankees' first two rounds of the playoffs, Cortes will likely see his first postseason action in the World Series.`\
+https://nytimes.com/athletic/5871928/2024/10/25/yankees-reveal-world-series-roster-vs-dodgers-nestor-cortes-back-jon-berti-out/
+
+**Former Tech C.E.O. Dan Price Is Charged With Rape in California**\
+`The former chief of Gravity Payments rose to prominence with the introduction of his company’s $70,000 minimum salary and a splashy social media presence.`\
+https://nytimes.com/2024/10/25/technology/dan-price-gravity-payments-ceo-rape.html
+
 **Middle East War Hits Home in Michigan, Threatening Slotkin in Tight Senate Race**\
 `Anger among the battleground state’s sizable contingent of Arab American voters about violence in Gaza and Lebanon could hurt the Democratic congresswoman in a close contest.`\
 https://nytimes.com/2024/10/25/us/politics/michigan-slotkin-senate-gaza-lebanon-israel.html
