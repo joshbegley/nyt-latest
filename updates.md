@@ -1,3 +1,15 @@
+**What’s at Stake in the 2024 Election**\
+`A 14-day series highlighting our best coverage of the most important issues in this election.`\
+https://nytimes.com/interactive/2024/us/politics/whats-at-stake.html
+
+**Dolphins' Hill, Tagovailoa questionable for Week 8.**\
+`Miami's lineup could be in for a major boost with the pending reunion of the dynamic duo.`\
+https://nytimes.com/athletic/5873411/2024/10/25/dolphins-list-tyreek-hill-tua-tagovailoa-as-questionable-entering-week-8/
+
+**The Briefing: England Women 3 Germany Women 4 - Lionesses' attempted comeback arrives too late**\
+`Our writers analyse the key talking points from England's defeat to Germany`\
+https://nytimes.com/athletic/5869652/2024/10/25/england-women-germany-women-come-back-too-late/
+
 **Election Officials Face Torrent of Threats as Nov. 5 Looms**\
 `Law enforcement’s task for Election Day this year goes far beyond providing physical security, to the essential mission of safeguarding democracy.`\
 https://nytimes.com/2024/10/25/us/politics/election-officials-workers-threats.html
