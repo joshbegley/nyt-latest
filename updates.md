@@ -1,3 +1,11 @@
+**Business of Football: Everton expansion plans? Another NFL star heading to England? More Reading woe?**\
+`In his latest column, Matt Slater discusses Reading’s potential sale, a Las Vegas Raiders defensive end to… Tranmere, and the Club World Cup`\
+https://nytimes.com/athletic/5866053/2024/10/25/business-of-football-nfl-reading-inter-miami-everton-tranmere-fifa/
+
+**Next week’s waiver wire: Kimani Vidal, Troy Franklin and more players to add now — before the Week 9 rush**\
+`John Laghezza points you towards his top expected future waiver wire plays, including a couple options from the AFC West division.`\
+https://nytimes.com/athletic/5869651/2024/10/25/next-weeks-waiver-wire-kimani-vidal-troy-franklin-and-more-players-to-add-now-before-the-week-9-rush/
+
 **Five thoughts on the suddenly scuffling Maple Leafs**\
 `Two ugly back-to-back losses and it's suddenly a stormy season for the Maple Leafs.`\
 https://nytimes.com/athletic/5871401/2024/10/25/maple-leafs-blues-loss/
