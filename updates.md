@@ -1,3 +1,11 @@
+**Why Alex Caruso's mindset, Chet Holmgren's durability make these Thunder different**\
+`Oklahoma City's strong opening-night win at Denver proved all the offseason Thunder hype was justified.`\
+https://nytimes.com/athletic/5871487/2024/10/25/thunder-caruso-holmgren-opener/
+
+**Guardiola in the dark over De Bruyne injury return**\
+`Pep Guardiola says he does not yet know when Kevin De Bruyne will be back in action.`\
+https://nytimes.com/athletic/5872365/2024/10/25/kevin-de-bruyne-injury-man-city-guardiola/
+
 **Israeli warplanes again strike Syria-Lebanon border crossings, the U.N. says.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-warplanes-again-strike-syria-lebanon-border-crossings-the-un-says
