@@ -1,3 +1,7 @@
+**Lazio's Tchaouna substituted after alleged racist abuse at Twente**\
+`Lazio winger Loum Tchaouna was substituted off after being subjected to alleged &#8220;monkey noises&#8221; against Twente in the Europa League, the Italian club&#8217;s head coach Marco Baroni has said.`\
+https://nytimes.com/athletic/5872080/2024/10/25/loum-tchaouna-lazio-racism/
+
 **The Elon-ction + Can A.I. Be Blamed for a Teen’s Suicide?**\
 `The 2024 election has a new main character.`\
 https://nytimes.com/2024/10/25/podcasts/hardfork-musk-election-character-ai.html
