@@ -1,3 +1,23 @@
+**The Athletic’s Friday football quiz question #27**\
+`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5870446/2024/10/25/the-athletics-friday-football-quiz-question-27/
+
+**NBA Reliability Tiers: From LeBron to Luka, league's top stars populate our top 10**\
+`Which NBA All-Star and All-NBA player is the most reliable? We finish our series with the league's brightest stars.`\
+https://nytimes.com/athletic/5852538/2024/10/25/tatum-jokic-embiid-nba-reliability-tier-1/
+
+**MLS Cup Playoffs: Which series will be the most entertaining to watch?**\
+`The MLS Cup playoffs are here. The Athletic previews all eight series matchups`\
+https://nytimes.com/athletic/5871288/2024/10/25/mls-cup-playoff-series-ranked/
+
+**Lowetide: Which Oilers early-season trends are poised to improve?**\
+`Patience is the best plan for a team that's started the regular season in Edmonton's position.`\
+https://nytimes.com/athletic/5868717/2024/10/25/edmonton-oilers-stats-trends-2024/
+
+**Watch Ralph Fiennes Deliver a Startling Speech in ‘Conclave’**\
+`The actor plays a cardinal who expresses doubts about his faith and the church in this drama from the director Edward Berger.`\
+https://nytimes.com/2024/10/25/movies/conclave-clip-ralph-fiennes.html
+
 **‘Conclave’ | Anatomy of a Scene**\
 `The director Edward Berger narrates a sequence from his film, featuring Ralph Fiennes.`\
 https://nytimes.com/video/movies/100000009781467/conclave-scene.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5864469/2024/10/25/minnesota-twins-players-future-v
 **Improving results against top teams key for Liverpool's season - Slot**\
 `Arne Slot admits improving Liverpool’s record against the top teams could have a huge impact on their season.`\
 https://nytimes.com/athletic/5872101/2024/10/25/arne-slot-liverpool-results/
-
-**Autocracies Against Ukraine**\
-`We explain North Korea’s decision to send troops to help Russia.`\
-https://nytimes.com/2024/10/25/briefing/autocracies-against-ukraine.html
-
-**Tottenham captain Son 'unlikely' for Palace**\
-`Son Heung-min is unlikely to feature when Tottenham Hotspur face Crystal Palace this weekend.`\
-https://nytimes.com/athletic/5872098/2024/10/25/son-heung-min-tottenham-out/
-
-**Lazio's Tchaouna substituted after alleged racist abuse at Twente**\
-`Lazio winger Loum Tchaouna was substituted off after being subjected to alleged &#8220;monkey noises&#8221; against Twente in the Europa League, the Italian club&#8217;s head coach Marco Baroni has said.`\
-https://nytimes.com/athletic/5872080/2024/10/25/loum-tchaouna-lazio-racism/
-
-**The Elon-ction + Can A.I. Be Blamed for a Teen’s Suicide?**\
-`The 2024 election has a new main character.`\
-https://nytimes.com/2024/10/25/podcasts/hardfork-musk-election-character-ai.html
-
-**Tom Brady's Raiders to-do list: Help find a QB, recruit free agents, watch and learn**\
-`Signs point to Brady serving as a consultant to Mark Davis for the time being with potentially a larger role down the line.`\
-https://nytimes.com/athletic/5869775/2024/10/25/tom-brady-raiders-owner-mark-davis/
 
