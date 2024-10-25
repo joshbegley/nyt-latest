@@ -1,3 +1,7 @@
+**Arsenal's Calafiori, Saka, Timber 'very, very uncertain' for Liverpool game - Arteta**\
+`Mikel Arteta has said Arsenal trio Riccardo Calafiori, Bukayo Saka and Jurrien Timber are &#8220;very, very uncertain&#8221; to play against Liverpool.`\
+https://nytimes.com/athletic/5866173/2024/10/25/calafiori-saka-timber-injury-update-arsenal/
+
 **The Bounce: Klay Thompson's Mavericks debut was everything**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5872243/2024/10/25/klay-thompson-mavericks-nba-fiba-luka-doncic-the-bounce/
