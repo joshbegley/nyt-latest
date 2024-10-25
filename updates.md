@@ -1,3 +1,15 @@
+**Rob Manfred finally got his marquee World Series. Here’s how he plans to capitalize**\
+`Shohei Ohtani and Aaron Judge. The Dodgers and the Yankees. MLB has a four-part plan for taking advantage of this dream matchup. `\
+https://nytimes.com/athletic/5870233/2024/10/25/rob-manfred-world-series-ohtani-judge-plans/
+
+**For Dodgers and Yankees, discipline and damage fuel ‘lethal’ offenses**\
+`The Yankees and Dodgers both drew more than 600 walks this season while hitting more than 230 homers.`\
+https://nytimes.com/athletic/5871873/2024/10/25/dodgers-yankees-world-series-mlb-offense/
+
+**World Series pitching plans: A guide to the Yankees' and Dodgers' decision-making process**\
+`Here's how each team will try to navigate the series, with an eye toward limiting how often each pitcher faces the other team's sluggers.`\
+https://nytimes.com/athletic/5861394/2024/10/25/world-series-yankees-dodgers-pitching-plans/
+
 **Could Trump Win the Popular Vote but Lose the Electoral College?**\
 `It’s not likely, but it’s not something that can be completely dismissed either, recent polling suggests.`\
 https://nytimes.com/2024/10/25/upshot/poll-trump-harris-election.html
