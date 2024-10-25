@@ -1,3 +1,7 @@
+**Trump directs new threats at Jack Smith, the special counsel.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/10/25/us/harris-trump-election/trump-directs-new-threats-at-jack-smith-the-special-counsel
+
 **What are F1’s racing rules? A look at race stewards and drivers' battle for clarity**\
 `Multiple times during the 2024 season, drivers have faced questions — and raised their own — about what is and is not allowed on track.`\
 https://nytimes.com/athletic/5870747/2024/10/25/f1-racing-rules-explained-steward-driver/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/obituaries/margaret-e-knight-overlooked.html
 **The three passes that can unlock El Clasico and the two Barcelona players who can make them**\
 `There will be focus on Real Madrid's big-name attackers - but it's the players marking them who may prove to be the game's decisive actors`\
 https://nytimes.com/athletic/5866319/2024/10/25/barcelona-centre-backs-key-passes/
-
-**Washington Post Says It Will Stop Endorsing Presidential Candidates**\
-`Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not making endorsements for the office.`\
-https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html
 
