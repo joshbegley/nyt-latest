@@ -1,3 +1,7 @@
+**Nacua, Kupp return to boost Rams offense in win vs. Vikings**\
+`With Nacua and Kupp both in the lineup for the first time since Week 1, Matthew Stafford passed for a season-high four touchdowns.`\
+https://nytimes.com/athletic/5871457/2024/10/24/vikings-rams-score-takeaways-tnf-result/
+
 **Doubting the Blues without Robert Thomas? They showed that a 'work-based' effort can win**\
 `The Blues beat the Maple Leafs 5-1 in their first game without their star center, who's out six weeks.`\
 https://nytimes.com/athletic/5870250/2024/10/24/blues-maple-leafs-robert-thomas-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5871430/2024/10/24/kyle-mccord-syracuse-3-pick-six-
 **Wemby struggles vs. Klay, new-look Mavs in Spurs loss**\
 `Victor Wembanyama shot just 5-of-18 for 17 points in San Antonio's 120-109 loss.`\
 https://nytimes.com/athletic/5871450/2024/10/24/victor-wembanyama-klay-thompson-mavericks-spurs-result/
-
-**How Wild responded to season's first deficit with comeback win vs. Lightning: 4 takeaways**\
-`After a come-from-behind 4-2 victory in Tampa, the Wild improved to 5-0-2 on the season.`\
-https://nytimes.com/athletic/5870913/2024/10/24/wild-lightning-takeaways-analysis/
 
