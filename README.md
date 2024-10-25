@@ -1,3 +1,7 @@
+**In Gaza, the U.N.’s Polio Vaccine Campaign May Be Falling Apart**\
+`There is no military solution to a public health crisis.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/gaza-polio-vaccine-un
+
 **Phil Lesh, Bassist Who Anchored the Grateful Dead, Dies at 84**\
 `One of the first rock bassists whose instrument regularly took a lead role, he also had a hand in writing some of the band’s best-known songs.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/magazine/return-policy-ethics.html
 **‘The Economy, Stupid’? Not So Much Anymore.**\
 `Economic factors can tell us only so much about how presidential elections will turn out.`\
 https://nytimes.com/2024/10/25/opinion/economy-presidential-elections.html
-
-**Colts update status of Jonathan Taylor, DeForest Buckner**\
-`In Taylor's absence, the Colts have struggled to run the ball, as Trey Sermon and Tyler Goodson are averaging 3.7 yards per cary. `\
-https://nytimes.com/athletic/5873146/2024/10/25/colts-jonathan-taylor-deforest-buckner-injury-update/
 
