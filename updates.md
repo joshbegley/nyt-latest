@@ -1,3 +1,7 @@
+**No Filip Gustavsson, no problem as Marc-Andre Fleury helps Wild stay hot: 'I want to help'**\
+`For a guy who hadn’t played in 12 nights, he sure was tested during a 12-save first period.`\
+https://nytimes.com/athletic/5871732/2024/10/25/marc-andre-fleury-wild-stay-hot/
+
 **Harris, Trump and Allies Spend Over a Half-Billion Dollars in 16 Days**\
 `Donald Trump has now raised $1 billion since announcing his run for president. And he has Elon Musk’s $119 million. But Kamala Harris has a huge cash advantage.`\
 https://nytimes.com/2024/10/25/us/elections/kamala-harris-donald-trump-campaign-finance.html
