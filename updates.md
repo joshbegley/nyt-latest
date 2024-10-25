@@ -1,3 +1,7 @@
+**25 Jump Scares That Still Make Us Jump**\
+`We ranked the most chilling, spine-tingling, utterly terrifying scenes that get us every time, and asked writers, filmmakers and stars to explain why.`\
+https://nytimes.com/interactive/2024/10/25/movies/scary-movie-it-alien-smile.html
+
 **In Gaza, the U.N.’s Polio Vaccine Campaign May Be Falling Apart**\
 `There is no military solution to a public health crisis.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/gaza-polio-vaccine-un
