@@ -1,11 +1,3 @@
-**Friday Briefing: Stars Rally for Harris**\
-`Plus, an interview with the Taliban’s most fearsome leader.`\
-https://nytimes.com/2024/10/25/briefing/friday-briefing-stars-rally-for-harris.html
-
-**Forest fans remain thankful to Cooper, but club has evolved under Nuno**\
-`Leicester manager Cooper will receive a warm reception from Forest fans tonight, but his replacement at has taken the club the a new level`\
-https://nytimes.com/athletic/5869375/2024/10/25/nottingham-forest-fans-remain-thankful-to-steve-cooper-but-club-has-evolved-under-nuno-espirito-santo/
-
 **Tawanda Maswanhise on Jamie Vardy, playing in Scotland and facing his old boss Brendan Rodgers**\
 `An interview with the young Zimbabwe international who left Leicester City and is now at Motherwell`\
 https://nytimes.com/athletic/5869384/2024/10/25/tawanda-maswanhise-rodgers-motherwell-schmeichel/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5869651/2024/10/25/next-weeks-waiver-wire-kimani-vi
 **Five thoughts on the suddenly scuffling Maple Leafs**\
 `Two ugly back-to-back losses and it's suddenly a stormy season for the Maple Leafs.`\
 https://nytimes.com/athletic/5871401/2024/10/25/maple-leafs-blues-loss/
+
+**FPL: Is GW9 the time to triple captain Haaland?**\
+`Factors you should be weighing up if you're deciding whether to Triple Captain the Man City striker for their game against Southampton`\
+https://nytimes.com/athletic/5866517/2024/10/25/fpl-advice-triple-captain-erling-haaland/
+
+**In a Region of Majestic Beauty, Sunnis and Shiites Wage Bloody War**\
+`In Kurram, near the Afghan border, Pakistan has been helpless to stop the latest outbreaks of a sectarian conflict that goes back decades.`\
+https://nytimes.com/2024/10/25/world/asia/pakistan-kurram-sunni-shiite.html
 
