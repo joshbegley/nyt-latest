@@ -1,3 +1,15 @@
+**A Pivotal Election for Georgia, Explained**\
+`A parliamentary vote could decide whether the Caucasus nation will be oriented to the West or East for years to come. Here’s what to know.`\
+https://nytimes.com/2024/10/25/world/europe/georgia-election-explained.html
+
+**Media Personnel Killed in Airstrike on Lebanon**\
+`Lebanon’s health ministry blamed Israel for the attack. Camera crews filmed the damage to the area in Hasbaya, Lebanon, where the ministry said the journalists had been staying.`\
+https://nytimes.com/video/world/middleeast/100000009782555/hasbaya-lebanon-jouranlist-israel.html
+
+**Trump Is Telling Us What He Would Do. Believe Him.**\
+`The former president’s most disturbing statements are not bluster. They are a road map to what he will do if elected again.`\
+https://nytimes.com/interactive/2024/10/25/opinion/what-trump-says.html
+
 **Will Klay Thompson work in Dallas? The first look says yes**\
 `The embrace of Dallas might really be what Klay Thompson needed.`\
 https://nytimes.com/athletic/5867921/2024/10/25/will-klay-thompson-work-with-dallas-mavericks-first-look-indicates-yes/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/25/nyregion/new-york-ballot-measures-proposals-propo
 **New York’s 6 Pivotal House Races: Here’s What to Know**\
 `Six House seats, including five held by Republicans, may be the key in determining which party will control the chamber for the next two years.`\
 https://nytimes.com/2024/10/25/nyregion/ny-voter-guide-house-races.html
-
-**Kamala Harris Needs Young Voters. Her Envoy: Alexandria Ocasio-Cortez.**\
-`The New York congresswoman’s foray onto the presidential campaign trail may be a turning point for her and her party.`\
-https://nytimes.com/2024/10/25/nyregion/aoc-kamala-harris.html
-
-**Twenty Election Cycles and Counting**\
-`Carl Hulse has covered congressional campaigns for four decades. Much has changed, but one thing remains constant: Journalists must be ready for the unexpected.`\
-https://nytimes.com/2024/10/25/insider/carl-hulse-election.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/25/crosswords/spelling-bee-forum.html
 
