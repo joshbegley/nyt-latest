@@ -1,3 +1,11 @@
+**The Perfect Red Lipstick Doesn’t Exist … Or Does It?**\
+`The makeup artist and influential YouTuber Lisa Eldridge may have cracked the code.`\
+https://nytimes.com/2024/10/25/style/lisa-eldridge-lipstick.html
+
+**What Nolan Smith's emergence says about the Eagles defensive front**\
+`The 2023 first-round pick had a quiet rookie season but he's beginning to carve out his role in Vic Fangio's Eagles defense. `\
+https://nytimes.com/athletic/5870160/2024/10/25/nolan-smith-philadelphia-eagles-defense/
+
 **Renard emerges as serious candidate to become Saudi Arabia head coach**\
 `Herve Renard has emerged as a serious candidate to become the new Saudi Arabia men&#8217;s head coach.`\
 https://nytimes.com/athletic/5872138/2024/10/25/herve-renard-saudi-arabia-head-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5870736/2024/10/25/49ers-trade-deadline-best-fits/
 **Brandon Belt would have helped these teams reach the World Series**\
 `Brandon Belt had an .858 OPS in 2023 but didn’t receive any decent offers to play this season. These teams should regret that.`\
 https://nytimes.com/athletic/5870025/2024/10/25/brandon-belt-world-series-contenders/
-
-**What a Giant Hole Says About a Broad Parking Problem**\
-`There’s a powerful but obscure force operating in New York and elsewhere: the parking minimum.`\
-https://nytimes.com/2024/10/25/upshot/parking-mandates-new-york.html
-
-**Padres free-agent notes on Jurickson Profar, Ha-Seong Kim, Kyle Higashioka and more**\
-`Here's how things stand with eight impending free agents. Who are the likeliest to re-sign with the Padres?`\
-https://nytimes.com/athletic/5870973/2024/10/25/padres-free-agents-jurickson-profar-ha-seong-kim-kyle-higashioka/
 
