@@ -1,3 +1,11 @@
+**The three passes that can unlock El Clasico and the two Barcelona players who can make them**\
+`There will be focus on Real Madrid's big-name attackers - but it's the players marking them who may prove to be the game's decisive actors`\
+https://nytimes.com/athletic/5866319/2024/10/25/barcelona-centre-backs-key-passes/
+
+**The One Benefit of Harris Winning While Losing the Popular Vote**\
+`It might be a first step toward ending a hugely undemocratic institution.`\
+https://nytimes.com/2024/10/22/opinion/trump-harris-electoral-college.html
+
 **Washington Post Says It Won’t Endorse Anyone for President**\
 `Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not endorsing presidential candidates.`\
 https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html

@@ -1,3 +1,7 @@
+**The three passes that can unlock El Clasico and the two Barcelona players who can make them**\
+`There will be focus on Real Madrid's big-name attackers - but it's the players marking them who may prove to be the game's decisive actors`\
+https://nytimes.com/athletic/5866319/2024/10/25/barcelona-centre-backs-key-passes/
+
 **Washington Post Says It Won’t Endorse Anyone for President**\
 `Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not endorsing presidential candidates.`\
 https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html
@@ -8,7 +12,7 @@ https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-air-a
 
 **The One Benefit of Harris Winning While Losing the Popular Vote**\
 `It might be a first step toward ending a hugely undemocratic institution.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-harris-electoral-college
+https://nytimes.com/2024/10/22/opinion/trump-harris-electoral-college.html
 
 **Scoop City: Dear NFL, please address the facemask rule.**\
 `Darnold No-Call: Maybe this one didn't matter. The next one might. Thankfully, it's an easy fix for the NFL.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872804/2024/10/25/raphinha-barcelona-transfer/
 **El Clasico preview: In-form Vinicius Jr, a test for Flick's revolution and dazzling Yamal**\
 `There will be plenty at stake when Madrid take on arch-rivals Barca at the Bernabeu on Saturday. Here's what to look out for`\
 https://nytimes.com/athletic/5872297/2024/10/25/real-madrid-barcelona-el-clasico-preview/
-
-**Mithai Sheds Its Too-Sweet Reputation**\
-`Younger South Asian cooks are riffing on these classics, turning them into cookies, pies and ice cream, and (gasp!) adding salt.`\
-https://nytimes.com/2024/10/25/dining/diwali-sweets-mithai.html
 
