@@ -1,3 +1,15 @@
+**The One Benefit of Harris Winning While Losing the Popular Vote**\
+`It might be a first step toward ending a hugely undemocratic institution.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-harris-electoral-college
+
+**Scoop City: Dear NFL, please address the facemask rule.**\
+`Darnold No-Call: Maybe this one didn't matter. The next one might. Thankfully, it's an easy fix for the NFL.`\
+https://nytimes.com/athletic/5872922/2024/10/25/why-nfl-officials-couldnt-change-the-facemask-call-plus-an-easy-fix/
+
+**Why Heat Waves of the Future May Be Even Deadlier Than Believed**\
+`The body’s cooling defenses fail at lower “wet bulb” temperatures than scientists had estimated.`\
+https://nytimes.com/2024/10/25/health/heat-tolerance-climate-change.html
+
 **Milan chairman criticises 'incomprehensible' postponement of Bologna game**\
 `Milan chairman Paolo Scaroni has described Serie A&#8217;s decision to postpone his club&#8217;s match in Bologna after heavy rain and flooding in the area as &#8220;incomprehensible.`\
 https://nytimes.com/athletic/5872660/2024/10/25/milan-bologna-postponed-floods/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5872753/2024/10/25/miami-heat-dwyane-wade-nba/
 **The Windup: Last-minute World Series reads**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5872838/2024/10/25/world-series-dodgers-yankees-the-windup/
-
-**Fantasy Trends and Hidden Gems: Tyler Bertuzzi, Kirill Marchenko and slow starter worries**\
-`Shayna Goldman discusses NHL fantasy trends and possible roster additions to help you succeed this season. `\
-https://nytimes.com/athletic/5871627/2024/10/25/fantasy-trends-and-hidden-gems-week-4/
-
-**Review: A Standard Rushes Back to the Philharmonic**\
-`The New York Philharmonic has played Tchaikovsky’s “Pathétique” Symphony twice in two years. Rafael Payare led its latest outing.`\
-https://nytimes.com/2024/10/25/arts/music/new-york-philharmonic-payare-review.html
-
-**Cornwall Is England’s Most Magical County. Here’s Where to Go.**\
-`Locals recommend the area’s best pies, wild gardens and coastal footpaths.`\
-https://nytimes.com/2024/10/25/t-magazine/cornwall-england-hotels-restaurants-guide.html
 

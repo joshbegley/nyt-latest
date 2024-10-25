@@ -1,3 +1,15 @@
+**The One Benefit of Harris Winning While Losing the Popular Vote**\
+`It might be a first step toward ending a hugely undemocratic institution.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-harris-electoral-college
+
+**Scoop City: Dear NFL, please address the facemask rule.**\
+`Darnold No-Call: Maybe this one didn't matter. The next one might. Thankfully, it's an easy fix for the NFL.`\
+https://nytimes.com/athletic/5872922/2024/10/25/why-nfl-officials-couldnt-change-the-facemask-call-plus-an-easy-fix/
+
+**Why Heat Waves of the Future May Be Even Deadlier Than Believed**\
+`The body’s cooling defenses fail at lower “wet bulb” temperatures than scientists had estimated.`\
+https://nytimes.com/2024/10/25/health/heat-tolerance-climate-change.html
+
 **Milan chairman criticises 'incomprehensible' postponement of Bologna game**\
 `Milan chairman Paolo Scaroni has described Serie A&#8217;s decision to postpone his club&#8217;s match in Bologna after heavy rain and flooding in the area as &#8220;incomprehensible.`\
 https://nytimes.com/athletic/5872660/2024/10/25/milan-bologna-postponed-floods/
