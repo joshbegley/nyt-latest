@@ -1,3 +1,7 @@
+**The Personal Plea Phil Lesh Made Every Time He Took the Stage**\
+`For the past 25 years, the founding member of the Grateful Dead made a nightly speech about a topic that helped him stay performing into his 80s.`\
+https://nytimes.com/2024/10/25/arts/music/phil-lesh-liver-transplant.html
+
 **City Paves Over Bed-Stuy’s Hydrant ‘Aquarium’ and Puts Up a Sidewalk**\
 `The New York City Department of Environmental Protection poured concrete over a community-built goldfish pond, citing safety concerns, much to the disappointment of its Brooklyn neighborhood.`\
 https://nytimes.com/2024/10/25/nyregion/bed-stuy-aquarium-sidewalk-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/business/france-moodys-negative-outlook.html
 **49ers' Samuel, Kittle questionable; Jennings out vs. Cowboys**\
 `Samuel said Friday he’s feeling much better after a two-night hospital stay this week, but isn’t sure if he’ll play against the Cowboys.`\
 https://nytimes.com/athletic/5873373/2024/10/25/49ers-deebo-samuel-george-kittle-jauan-jennings/
-
-**Biden Apologizes for U.S. Mistreatment of Native American Children**\
-`President Biden offered a formal apology on Friday on behalf of the U.S. government for the abuse of Native American children from the early 1800s to the late 1960s.`\
-https://nytimes.com/video/us/100000009784291/biden-apology-native-american-children.html
 

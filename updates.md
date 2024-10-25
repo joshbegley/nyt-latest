@@ -1,3 +1,7 @@
+**The Personal Plea Phil Lesh Made Every Time He Took the Stage**\
+`For the past 25 years, the founding member of the Grateful Dead made a nightly speech about a topic that helped him stay performing into his 80s.`\
+https://nytimes.com/2024/10/25/arts/music/phil-lesh-liver-transplant.html
+
 **City Paves Over Bed-Stuy’s Hydrant ‘Aquarium’ and Puts Up a Sidewalk**\
 `The New York City Department of Environmental Protection poured concrete over a community-built goldfish pond, citing safety concerns, much to the disappointment of its Brooklyn neighborhood.`\
 https://nytimes.com/2024/10/25/nyregion/bed-stuy-aquarium-sidewalk-brooklyn.html
