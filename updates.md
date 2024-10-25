@@ -1,3 +1,7 @@
+**Washington Post Says It Will Stop Endorsing Presidential Candidates**\
+`Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not making endorsements for the office.`\
+https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html
+
 **What are F1’s racing rules? A look at race stewards and drivers' battle for clarity**\
 `Multiple times during the 2024 season, drivers have faced questions — and raised their own — about what is and is not allowed on track.`\
 https://nytimes.com/athletic/5870747/2024/10/25/f1-racing-rules-explained-steward-driver/
