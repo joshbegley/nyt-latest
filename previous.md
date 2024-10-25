@@ -1,3 +1,11 @@
+**Middle East War Hits Home in Michigan, Threatening Slotkin in Tight Senate Race**\
+`Anger among the battleground state’s sizable contingent of Arab American voters about violence in Gaza and Lebanon could hurt the Democratic congresswoman in a close contest.`\
+https://nytimes.com/2024/10/25/us/politics/michigan-slotkin-senate-gaza-lebanon-israel.html
+
+**Former Model Accuses Donald Trump of Groping Her in 1993**\
+`The swimsuit model Stacey Williams said Jeffrey Epstein brought her to Trump Tower, where the future president groped her. Mr. Trump’s campaign denied it.`\
+https://nytimes.com/2024/10/25/business/donald-trump-stacey-williams-jeffrey-epstein.html
+
 **It’s Springsteen Season Again. Can Celebrities Give Harris a Meaningful Boost?**\
 `Bruce Springsteen performed at a rally for Vice President Kamala Harris. Beyoncé will appear at an event on Friday. It is hard to say if such events actually motivate people to go to the polls.`\
 https://nytimes.com/2024/10/25/us/politics/kamala-harris-celebrities.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/trump-vance-hack.html
 **The Early Bird Got the Cicada, Then an Evolutionary Air War Started**\
 `Fossils reveal that prehistoric cicadas’ wings evolved to help them evade hungry predators with feathers and beaks, scientists say.`\
 https://nytimes.com/2024/10/25/science/cicadas-fossils-bird-evolution.html
-
-**History, Money and Glamour Define a New York vs. Los Angeles World Series**\
-`The two biggest cities in America have as many differences as similarities — including in public transportation, ballparks and payrolls`\
-https://nytimes.com/2024/10/25/us/world-series-los-angeles-new-york.html
-
-**Barbara Dane, Who Fought Injustice Through Song, Dies at 97**\
-`She was highly regarded as a folk, blues and jazz singer. She was also ardently left-wing and prioritized social change over commercial success.`\
-https://nytimes.com/2024/10/25/arts/music/barbara-dane-dead.html
 

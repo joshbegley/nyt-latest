@@ -1,3 +1,11 @@
+**Middle East War Hits Home in Michigan, Threatening Slotkin in Tight Senate Race**\
+`Anger among the battleground state’s sizable contingent of Arab American voters about violence in Gaza and Lebanon could hurt the Democratic congresswoman in a close contest.`\
+https://nytimes.com/2024/10/25/us/politics/michigan-slotkin-senate-gaza-lebanon-israel.html
+
+**Former Model Accuses Donald Trump of Groping Her in 1993**\
+`The swimsuit model Stacey Williams said Jeffrey Epstein brought her to Trump Tower, where the future president groped her. Mr. Trump’s campaign denied it.`\
+https://nytimes.com/2024/10/25/business/donald-trump-stacey-williams-jeffrey-epstein.html
+
 **It’s Springsteen Season Again. Can Celebrities Give Harris a Meaningful Boost?**\
 `Bruce Springsteen performed at a rally for Vice President Kamala Harris. Beyoncé will appear at an event on Friday. It is hard to say if such events actually motivate people to go to the polls.`\
 https://nytimes.com/2024/10/25/us/politics/kamala-harris-celebrities.html
