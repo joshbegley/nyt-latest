@@ -34,7 +34,7 @@ https://nytimes.com/2024/10/25/obituaries/margaret-e-knight-overlooked.html
 `There will be focus on Real Madrid's big-name attackers - but it's the players marking them who may prove to be the game's decisive actors`\
 https://nytimes.com/athletic/5866319/2024/10/25/barcelona-centre-backs-key-passes/
 
-**Washington Post Says It Won’t Endorse Anyone for President**\
-`Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not endorsing presidential candidates.`\
+**Washington Post Says It Will Stop Endorsing Presidential Candidates**\
+`Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not making endorsements for the office.`\
 https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html
 
