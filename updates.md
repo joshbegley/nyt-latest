@@ -1,3 +1,7 @@
+**These Videos Appear to Show North Korean Troops in Russia**\
+`Footage was filmed in the Russian Far East, which the United States says is hosting thousands of North Korean soldiers.`\
+https://nytimes.com/2024/10/25/world/asia/north-korea-russia-ukraine-video.html
+
 **Media Organizations Criticize Israeli Strike That Killed Three Journalists**\
 `Israel says it was bombing a structure associated with Hezbollah and says it is reviewing the strike.`\
 https://nytimes.com/2024/10/25/world/middleeast/israel-gaza-hamas-hezbollah-journalists.html
