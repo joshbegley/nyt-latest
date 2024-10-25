@@ -1,3 +1,7 @@
+**In Georgia, Harris Relies on Superstar Passion**\
+`Not as fiery as her celebrity surrogates, she could use a bit of their heart and fervor.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-georgia-obama-perry
+
 **Miriam Adelson Goes Searching for More Trump Donors**\
 `After financing a super PAC with $100 million of her own money, she is asking other billionaires to help keep the group funded through Election Day.`\
 https://nytimes.com/2024/10/24/us/politics/miriam-adelson-trump-donors.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/10/24/business/tapestry-capri-merger-coach-versace.html
 **Army Sergeant’s Body Was Found in a Dumpster at a Missouri Base**\
 `A person of interest was taken into custody after Sgt. Sarah Roque, 23, was found dead at Fort Leonard Wood, according to Army officials.`\
 https://nytimes.com/2024/10/24/us/army-homicide-fort-leonard-wood.html
-
-**Ex-LAC trainer sues, says Kawhi Leonard was subjected to illegal treatment**\
-`The suit also accuses the Clippers of tampering with Leonard leading up to his free agency in 2019.`\
-https://nytimes.com/athletic/5870732/2024/10/24/clippers-lawsuit-trainer-kawhi-leonard/
 
