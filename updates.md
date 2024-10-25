@@ -1,3 +1,7 @@
+**The Athletic FC: Tall vs technical debate, MLS salaries revealed, Mourinho vs United fallout**\
+`Today in TAFC: How important is height in football? Plus: Mourinho vs United and Onana's brilliant double save; MLS salaries revealed.`\
+https://nytimes.com/athletic/5872229/2024/10/25/height-in-football-mls-salaries-messi-onana-save/
+
 **Election Live Updates: Trump to Tape Joe Rogan’s Podcast as Harris Appears on Brené Brown’s Show**\
 `Both candidates are making campaign stops in Texas that are aimed at voters in battleground states.`\
 https://nytimes.com/live/2024/10/25/us/harris-trump-election
