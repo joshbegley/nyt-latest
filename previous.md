@@ -1,3 +1,15 @@
+**Alexander-Arnold's (r)evolution under Arne Slot**\
+`Liverpool's in-demand full-back has had his role tweaked under his new head coach but is still thriving `\
+https://nytimes.com/athletic/5869689/2024/10/25/trent-alexander-arnold-arne-slot-liverpool/
+
+**'You go into dark places' - Andy Carroll talks media glare, leaving England and life in France**\
+`The former England striker talks life in France, leaving England and not getting a phone call telling him his time at Newcastle was over`\
+https://nytimes.com/athletic/5865920/2024/10/25/andy-carroll-interview-bordeaux-newcastle/
+
+**Does height matter in football? Yes, but not in the way you might think**\
+`Football is a sport that increasingly suits tall players - but the best teams will always benefit from smaller technicians `\
+https://nytimes.com/athletic/5866730/2024/10/25/footballer-height-how-important-is-it/
+
 **Business of Football: Everton expansion plans? Another NFL star heading to England? More Reading woe?**\
 `In his latest column, Matt Slater discusses Reading’s potential sale, a Las Vegas Raiders defensive end to… Tranmere, and the Club World Cup`\
 https://nytimes.com/athletic/5866053/2024/10/25/business-of-football-nfl-reading-inter-miami-everton-tranmere-fifa/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/25/pageoneplus/quote-of-the-day-his-mission-to-resto
 **Malaria Is Surging in Ethiopia, Reversing a Decade of Progress Against the Disease**\
 `Climate change, civil conflict and growing resistance to insecticides and treatments are all contributing to an alarming spread of cases.`\
 https://nytimes.com/2024/10/25/health/malaria-ethiopia-deaths-cases.html
-
-**They Were Just What They Needed**\
-`Jonathan Otcasek and Erin Kim connected 10 years ago over a gravesite. They’ve had the kind of relationship even their parents admire since.`\
-https://nytimes.com/2024/10/25/style/jonathan-otcasek-erin-kim-wedding.html
-
-**Sometimes, It’s Not You, or the Math**\
-`In this 2011 essay, a 39-year-old woman who hasn’t had a boyfriend in eight years is asked by a date, “What’s wrong with you?”`\
-https://nytimes.com/2024/10/25/style/modern-love-classic-sometimes-its-not-you-or-the-math.html
-
-**Illinois at Oregon picks, odds, how to watch: Ducks favored to romp in top-25 matchup**\
-`Oregon is the newly-minted No. 1 team in the country. The Ducks get a test from No. 20 Illinois, but are favored by three scores.`\
-https://nytimes.com/athletic/5870349/2024/10/25/illinois-oregon-picks-odds-how-to-watch/
 

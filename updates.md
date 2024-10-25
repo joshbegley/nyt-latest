@@ -1,3 +1,15 @@
+**Alexander-Arnold's (r)evolution under Arne Slot**\
+`Liverpool's in-demand full-back has had his role tweaked under his new head coach but is still thriving `\
+https://nytimes.com/athletic/5869689/2024/10/25/trent-alexander-arnold-arne-slot-liverpool/
+
+**'You go into dark places' - Andy Carroll talks media glare, leaving England and life in France**\
+`The former England striker talks life in France, leaving England and not getting a phone call telling him his time at Newcastle was over`\
+https://nytimes.com/athletic/5865920/2024/10/25/andy-carroll-interview-bordeaux-newcastle/
+
+**Does height matter in football? Yes, but not in the way you might think**\
+`Football is a sport that increasingly suits tall players - but the best teams will always benefit from smaller technicians `\
+https://nytimes.com/athletic/5866730/2024/10/25/footballer-height-how-important-is-it/
+
 **Business of Football: Everton expansion plans? Another NFL star heading to England? More Reading woe?**\
 `In his latest column, Matt Slater discusses Reading’s potential sale, a Las Vegas Raiders defensive end to… Tranmere, and the Club World Cup`\
 https://nytimes.com/athletic/5866053/2024/10/25/business-of-football-nfl-reading-inter-miami-everton-tranmere-fifa/
