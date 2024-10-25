@@ -1,3 +1,11 @@
+**Giants leadership gets vote of confidence, but team's past proves how fast things can change**\
+`Team co-owner John Mara doesn't "anticipate" moving on from Joe Schoen and Brian Daboll, but that word gives him room to change his mind.`\
+https://nytimes.com/athletic/5871579/2024/10/25/giants-brian-daboll-joe-schoen-john-mara-vote-of-confidence/
+
+**Mikaela Shiffrin is back and hunting for the next milestone as a new season begins**\
+`Mikaela Shiffrin's 2024 started with an injury. Now a new season begins with her eyeing a big milestone — and the Olympics on the horizon. `\
+https://nytimes.com/athletic/5870548/2024/10/25/mikaela-shiffrin-olympics-skiing-world-cup-austria/
+
 **Scouting Martina Hingis and a duchy instead of six kings - inside the Luxembourg Ladies Masters**\
 `With entry criteria, a scouting system, and Grand Slam winners, this exhibition points to the need for pathways for tennis veterans`\
 https://nytimes.com/athletic/5860648/2024/10/25/luxembourg-ladies-masters-womens-tennis-hingis-ivanovic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5868717/2024/10/25/edmonton-oilers-stats-trends-202
 **Watch Ralph Fiennes Deliver a Startling Speech in ‘Conclave’**\
 `The actor plays a cardinal who expresses doubts about his faith and the church in this drama from the director Edward Berger.`\
 https://nytimes.com/2024/10/25/movies/conclave-clip-ralph-fiennes.html
-
-**Setien's Barcelona dream became a nightmare: 'Nobody called to say I was fired, I heard on TV'**\
-`Quique Setien lasted just months in his dream job as coach of Barcelona. Here he reflects on what went wrong`\
-https://nytimes.com/athletic/5852903/2024/10/25/quique-setien-barcelona-interview/
-
-**‘Conclave’ | Anatomy of a Scene**\
-`The director Edward Berger narrates a sequence from his film, featuring Ralph Fiennes.`\
-https://nytimes.com/video/movies/100000009781467/conclave-scene.html
 
