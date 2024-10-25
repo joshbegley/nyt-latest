@@ -1,3 +1,11 @@
+**Review: Porcupines of Plastic and Other Provocations**\
+`The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
+https://nytimes.com/2024/10/25/arts/dance/review-nadia-breuge-quartier-libres-revisited.html
+
+**Ravens LB Roquan Smith fined $16,833 for illegal tackle**\
+`Smith will have to pay $16,833 for the hit that resulted in Godwin dislocating his ankle. `\
+https://nytimes.com/athletic/5872897/2024/10/25/ravens-roquan-smith-fined-hip-drop-chris-godwin/
+
 **New ‘RBG PAC’ Spending $19 Million From Secret Donors to Aid Trump on Abortion**\
 `A new Republican super PAC is running ads invoking the name of Ruth Bader Ginsburg to help Donald Trump win over voters who favor abortion rights.`\
 https://nytimes.com/2024/10/25/us/politics/trump-ruth-bader-ginsberg-abortion-ad.html

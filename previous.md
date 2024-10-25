@@ -1,3 +1,11 @@
+**Review: Porcupines of Plastic and Other Provocations**\
+`The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
+https://nytimes.com/2024/10/25/arts/dance/review-nadia-breuge-quartier-libres-revisited.html
+
+**Ravens LB Roquan Smith fined $16,833 for illegal tackle**\
+`Smith will have to pay $16,833 for the hit that resulted in Godwin dislocating his ankle. `\
+https://nytimes.com/athletic/5872897/2024/10/25/ravens-roquan-smith-fined-hip-drop-chris-godwin/
+
 **New ‘RBG PAC’ Spending $19 Million From Secret Donors to Aid Trump on Abortion**\
 `A new Republican super PAC is running ads invoking the name of Ruth Bader Ginsburg to help Donald Trump win over voters who favor abortion rights.`\
 https://nytimes.com/2024/10/25/us/politics/trump-ruth-bader-ginsberg-abortion-ad.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/22/opinion/trump-harris-electoral-college.html
 **Scoop City: Dear NFL, please address the facemask rule.**\
 `Darnold No-Call: Maybe this one didn't matter. The next one might. Thankfully, it's an easy fix for the NFL.`\
 https://nytimes.com/athletic/5872922/2024/10/25/why-nfl-officials-couldnt-change-the-facemask-call-plus-an-easy-fix/
-
-**Why Heat Waves of the Future May Be Even Deadlier Than Believed**\
-`The body’s cooling defenses fail at lower “wet bulb” temperatures than scientists had estimated.`\
-https://nytimes.com/2024/10/25/health/heat-tolerance-climate-change.html
-
-**Milan chairman criticises 'incomprehensible' postponement of Bologna game**\
-`Milan chairman Paolo Scaroni has described Serie A&#8217;s decision to postpone his club&#8217;s match in Bologna after heavy rain and flooding in the area as &#8220;incomprehensible.`\
-https://nytimes.com/athletic/5872660/2024/10/25/milan-bologna-postponed-floods/
 
