@@ -1,3 +1,7 @@
+**Election Live Updates: Trump to Tape Joe Rogan’s Podcast as Harris Appears on Brené Brown’s Show**\
+`Both candidates are making campaign stops in Texas that are aimed at voters in battleground states.`\
+https://nytimes.com/live/2024/10/25/us/harris-trump-election
+
 **Why Alex Caruso's mindset, Chet Holmgren's durability make these Thunder different**\
 `Oklahoma City's strong opening-night win at Denver proved all the offseason Thunder hype was justified.`\
 https://nytimes.com/athletic/5871487/2024/10/25/thunder-caruso-holmgren-opener/

@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5870973/2024/10/25/padres-free-agents-jurickson-pro
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
-**Election Live Updates: In Last Leg of Dead-Heat Race, Rival Campaigns Both Stop in Texas**\
-`Vice President Kamala Harris is holding a rally in Houston to highlight abortion rights. Former President Donald Trump is visiting Austin to tape a podcast episode with Joe Rogan.`\
+**Election Live Updates: Trump to Tape Joe Rogan’s Podcast as Harris Appears on Brené Brown’s Show**\
+`Both candidates are making campaign stops in Texas that are aimed at voters in battleground states.`\
 https://nytimes.com/live/2024/10/25/us/harris-trump-election
 
