@@ -1,3 +1,7 @@
+**Gang Gunfire in Haiti Hits U.S. Embassy Vehicles and U.N. Aid Helicopter**\
+`The attacks this week point to an escalation of violence as the situation worsens and gangs overwhelm security forces, including a multinational force.`\
+https://nytimes.com/2024/10/25/world/americas/haiti-gang-violence-us-embassy-un-helicopter.html
+
 **Obama Campaigns in North Carolina as Democrats Hope for a 2008 Repeat**\
 `The former president has been drawing crowds for Kamala Harris in every battleground, but his presence looms particularly large in the state the party hasn’t won since his first presidential bid.`\
 https://nytimes.com/2024/10/25/us/politics/harris-north-carolina-obama.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872741/2024/10/25/world-series-celebrity-fan-power
 **New ads in a critical Montana Senate race focus on disputed war story.**\
 `By Mike Baker`\
 https://nytimes.com/live/2024/10/25/us/harris-trump-election/new-ads-in-a-critical-montana-senate-race-focus-on-disputed-war-story
-
-**‘Pure Hell’: The Painful Legacy of Boarding Schools for Native Americans.**\
-`President Biden apologized on Friday for the abuses children experienced at the government-run schools, which were designed to erase tribal ties and cultural practices.`\
-https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
 
