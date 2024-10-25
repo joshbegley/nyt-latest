@@ -1,3 +1,7 @@
+**Referees miss late face mask penalty in Rams win over Vikings**\
+`Officials missed linebacker Byron Young pulling Vikings quarterback Sam Darnold's face mask late in the fourth quarter.`\
+https://nytimes.com/athletic/5871889/2024/10/25/rams-vikings-missed-face-mask-penalty/
+
 **No Filip Gustavsson, no problem as Marc-Andre Fleury helps Wild stay hot: 'I want to help'**\
 `For a guy who hadn’t played in 12 nights, he sure was tested during a 12-save first period.`\
 https://nytimes.com/athletic/5871732/2024/10/25/marc-andre-fleury-wild-stay-hot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869375/2024/10/25/nottingham-forest-fans-remain-th
 **Tawanda Maswanhise on Jamie Vardy, playing in Scotland and facing his old boss Brendan Rodgers**\
 `An interview with the young Zimbabwe international who left Leicester City and is now at Motherwell`\
 https://nytimes.com/athletic/5869384/2024/10/25/tawanda-maswanhise-rodgers-motherwell-schmeichel/
-
-**Anna Patten and the granddad who inspired her switch from England to Ireland: 'He loved to see me play'**\
-`The Republic of Ireland defender on their Euro 2025 play-off, Aston Villa's early-season struggles and the advice her grandfather gave her`\
-https://nytimes.com/athletic/5865889/2024/10/25/anna-patten-ireland-interview/
 
