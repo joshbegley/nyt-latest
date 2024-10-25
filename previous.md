@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5871476/2024/10/24/maple-leafs-blues-stars-loss/
 https://nytimes.com/athletic/5871430/2024/10/24/kyle-mccord-syracuse-3-pick-six-interceptions/
 
 **Wemby struggles vs. Klay, new-look Mavs in Spurs loss**\
-`Victor Wembanyama shot just 5-of-18 for 17 points in the Spurs’ 120-109 loss.`\
+`Victor Wembanyama shot just 5-of-18 for 17 points in San Antonio's 120-109 loss.`\
 https://nytimes.com/athletic/5871450/2024/10/24/victor-wembanyama-klay-thompson-mavericks-spurs-result/
 
 **How Wild responded to season's first deficit with comeback win vs. Lightning: 4 takeaways**\

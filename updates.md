@@ -1,3 +1,7 @@
+**Wemby struggles vs. Klay, new-look Mavs in Spurs loss**\
+`Victor Wembanyama shot just 5-of-18 for 17 points in San Antonio's 120-109 loss.`\
+https://nytimes.com/athletic/5871450/2024/10/24/victor-wembanyama-klay-thompson-mavericks-spurs-result/
+
 **Tyler Perry Blasts Trump in Passionate Speech at Harris’s Atlanta Rally**\
 `The actor and filmmaker, who built his career in the Georgia capital, said he had realized that in the former president’s America, “there is no dream that looks like me.”`\
 https://nytimes.com/2024/10/24/us/politics/tyler-perry-harris-atlanta.html
