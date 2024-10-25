@@ -1,3 +1,7 @@
+**Setien's Barcelona dream became a nightmare: 'Nobody called to say I was fired, I heard on TV'**\
+`Quique Setien lasted just months in his dream job as coach of Barcelona. Here he reflects on what went wrong`\
+https://nytimes.com/athletic/5852903/2024/10/25/quique-setien-barcelona-interview/
+
 **Can the World Series beat the NFL on TV for one night?**\
 `With an epic matchup featuring the country's biggest media markets, MLB just might have a shot to unseat the TV ratings king for one night.`\
 https://nytimes.com/athletic/5860573/2024/10/25/world-series-nfl-tv-ratings-viewership-yankees-dodgers/

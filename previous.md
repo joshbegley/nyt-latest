@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5868717/2024/10/25/edmonton-oilers-stats-trends-202
 `The actor plays a cardinal who expresses doubts about his faith and the church in this drama from the director Edward Berger.`\
 https://nytimes.com/2024/10/25/movies/conclave-clip-ralph-fiennes.html
 
+**Setien's Barcelona dream became a nightmare: 'Nobody called to say I was fired, I heard on TV'**\
+`Quique Setien lasted just months in his dream job as coach of Barcelona. Here he reflects on what went wrong`\
+https://nytimes.com/athletic/5852903/2024/10/25/quique-setien-barcelona-interview/
+
 **‘Conclave’ | Anatomy of a Scene**\
 `The director Edward Berger narrates a sequence from his film, featuring Ralph Fiennes.`\
 https://nytimes.com/video/movies/100000009781467/conclave-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5870516/2024/10/25/vikings-rams-sam-darnold-facemas
 **Israel Says 5 Soldiers Were Killed in Southern Lebanon**\
 `As clashes with Hezbollah militants intensified, Israel’s public broadcaster reported that the soldiers had been killed when a rocket struck a building they were in.`\
 https://nytimes.com/2024/10/25/world/middleeast/israel-soldiers-killed-hezbollah-lebanon.html
-
-**Twins future value big board: Ranking the top 20 players based on long-term upside**\
-`Blending prospects, young major leaguers and veterans to assess the Twins' organizational strength and most desirable trade assets.`\
-https://nytimes.com/athletic/5864469/2024/10/25/minnesota-twins-players-future-value/
 
