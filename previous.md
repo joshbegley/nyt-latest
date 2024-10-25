@@ -1,3 +1,27 @@
+**Top Law Firms Shrink From the Heat of the Mideast Conflict**\
+`When a Columbia professor needed a lawyer because of her comments about the actions of former Israeli soldiers on campus, tensions over the Israel-Hamas war got in the way.`\
+https://nytimes.com/2024/10/25/nyregion/columbia-university-kathleen-franke.html
+
+**What to Know About New York’s Six Ballot Measures**\
+`The first, Proposition 1, is designed to enshrine abortion rights in the state Constitution. The rest would make changes to New York City’s governing charter.`\
+https://nytimes.com/2024/10/25/nyregion/new-york-ballot-measures-proposals-proposition-1.html
+
+**New York’s 6 Pivotal House Races: Here’s What to Know**\
+`Six House seats, including five held by Republicans, may be the key in determining which party will control the chamber for the next two years.`\
+https://nytimes.com/2024/10/25/nyregion/ny-voter-guide-house-races.html
+
+**Kamala Harris Needs Young Voters. Her Envoy: Alexandria Ocasio-Cortez.**\
+`The New York congresswoman’s foray onto the presidential campaign trail may be a turning point for her and her party.`\
+https://nytimes.com/2024/10/25/nyregion/aoc-kamala-harris.html
+
+**Twenty Election Cycles and Counting**\
+`Carl Hulse has covered congressional campaigns for four decades. Much has changed, but one thing remains constant: Journalists must be ready for the unexpected.`\
+https://nytimes.com/2024/10/25/insider/carl-hulse-election.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/25/crosswords/spelling-bee-forum.html
+
 **Ten Hag provides injury update on Antony**\
 `Erik ten Hag says Manchester United will &#8220;need to wait 24 hours&#8221; to have a better understanding of Antony’s injury after the winger was stretchered off during Thursday’s 1-1 Europa League draw with Fenerbahce.`\
 https://nytimes.com/athletic/5871966/2024/10/25/erik-ten-hag-antony-manchester-united/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/25/learning/word-of-the-day-exceedingly.html
 **Jimmy Fallon Rallies for Queen Bey**\
 `The “Tonight Show” host was excited about Beyoncé’s plans to appear with the vice president: “What a night — the most powerful woman in the world and Kamala Harris.”`\
 https://nytimes.com/2024/10/25/arts/television/jimmy-fallon-beyonce.html
-
-**At Las Vegas Rally, Trump Grumbles About Obama’s Nobel Prize**\
-`With 12 days until Election Day, former President Donald J. Trump campaigned in Nevada and Arizona and sharpened his attacks on Vice President Kamala Harris about immigration.`\
-https://nytimes.com/2024/10/25/us/politics/trump-rally-las-vegas.html
-
-**Referees miss late face mask penalty in Rams win over Vikings**\
-`Officials missed linebacker Byron Young pulling Vikings quarterback Sam Darnold's face mask late in the fourth quarter.`\
-https://nytimes.com/athletic/5871889/2024/10/25/rams-vikings-missed-face-mask-penalty/
-
-**No Filip Gustavsson, no problem as Marc-Andre Fleury helps Wild stay hot: 'I want to help'**\
-`For a guy who hadn’t played in 12 nights, he sure was tested during a 12-save first period.`\
-https://nytimes.com/athletic/5871732/2024/10/25/marc-andre-fleury-wild-stay-hot/
-
-**Harris, Trump and Allies Spend Over a Half-Billion Dollars in 16 Days**\
-`Donald Trump has now raised $1 billion since announcing his run for president. And he has Elon Musk’s $119 million. But Kamala Harris has a huge cash advantage.`\
-https://nytimes.com/2024/10/25/us/elections/kamala-harris-donald-trump-campaign-finance.html
-
-**Arsenal Today: Injury worries, a new appointment and whether height matters**\
-`Amy Lawrence talks you through what is interesting our Arsenal team of writers today`\
-https://nytimes.com/athletic/5869953/2024/10/25/arsenal-today-injuries-arteta-james-king/
-
-**Saliba is suspended, Calafiori and Timber are doubts - what will Arteta do against Liverpool??**\
-`The Arsenal manager has problems to solve, particularly at the back, before the visit of in-form Liverpool to the Emirates`\
-https://nytimes.com/athletic/5869027/2024/10/25/arsenal-defensive-issues-artera-liverpool/
 
