@@ -1,3 +1,7 @@
+**David Pastrnak is hurting the Bruins more than helping them**\
+`The Bruins are paying Pastrnak $11.25 million annually to score goals and chase wins. Not sit in the penalty box.`\
+https://nytimes.com/athletic/5871593/2024/10/24/bruins-stars-david-pastrnak/
+
 **Maggie Haberman on What an Unleashed Trump Might Do**\
 `The New York Times political correspondent discusses Donald Trump’s past, present and possible future.`\
 https://nytimes.com/video/opinion/100000009782324/maggie-haberman-on-what-an-unleashed-trump-might-do.html
