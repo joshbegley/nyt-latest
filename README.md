@@ -20,7 +20,7 @@ https://nytimes.com/2024/10/25/arts/television/donald-trump-kamala-harris.html
 
 **Review: Porcupines of Plastic and Other Provocations**\
 `The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
-https://nytimes.com/2024/10/25/arts/dance/review-nadia-breuge-quartier-libres-revisited.html
+https://nytimes.com/2024/10/25/arts/dance/review-nadia-beugre-quartier-libres-revisited.html
 
 **Ravens LB Roquan Smith fined $16,833 for illegal tackle**\
 `Smith will have to pay $16,833 for the hit that resulted in Godwin dislocating his ankle. `\
