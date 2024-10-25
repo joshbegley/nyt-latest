@@ -1,3 +1,15 @@
+**Mississippi’s Absentee Ballot Law Is Overturned**\
+`The law required officials to count absentee ballots received by mail up to five days after Election Day. It’s unclear if the ruling will affect the current election.`\
+https://nytimes.com/2024/10/25/us/mississippi-absentee-ballot-law.html
+
+**World Series celebrity Power Rankings: Yankees, Dodgers diehards from Jay-Z to Will Ferrell**\
+`The Yankees and Dodgers have the most celeb-filled fan bases in baseball. Who packs the most punch, and who cares about their team the most?`\
+https://nytimes.com/athletic/5872741/2024/10/25/world-series-celebrity-fan-power-rankings/
+
+**New ads in a critical Montana Senate race focus on disputed war story.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/10/25/us/harris-trump-election/new-ads-in-a-critical-montana-senate-race-focus-on-disputed-war-story
+
 **‘Pure Hell’: The Painful Legacy of Boarding Schools for Native Americans.**\
 `President Biden apologized on Friday for the abuses children experienced at the government-run schools, which were designed to erase tribal ties and cultural practices.`\
 https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
@@ -6,7 +18,7 @@ https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
 `A 14-day series highlighting our best coverage of the most important issues in this election.`\
 https://nytimes.com/interactive/2024/us/politics/whats-at-stake.html
 
-**Dolphins' Hill, Tagovailoa questionable for Week 8.**\
+**Dolphins' Hill, Tagovailoa questionable for Week 8**\
 `Miami's lineup could be in for a major boost with the pending reunion of the dynamic duo.`\
 https://nytimes.com/athletic/5873411/2024/10/25/dolphins-list-tyreek-hill-tua-tagovailoa-as-questionable-entering-week-8/
 
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/aid-into-gaza
 **Biden Administration Floats Student Loan Relief for Borrowers Facing Hardship**\
 `The proposal, which faces tough legal prospects, would offer forgiveness to millions of borrowers who are unable to pay back their loans because of financial setbacks.`\
 https://nytimes.com/2024/10/25/us/politics/student-loan-debt-hardship-biden.html
-
-**The Briefing: England Women 3 Germany Women 4 – Lionesses' attempted comeback arrives too late**\
-`Our writers analyse the key talking points from England's defeat to Germany`\
-https://nytimes.com/athletic/5869652/2024/10/25/england-women-germany-women-come-back-too-late/
-
-**Vikings' Darrisaw to undergo season-ending knee surgery**\
-`Christian Darrisaw, who started 46 of his first 48 appearances for the Vikings, suffered "significant" ACL and MCL injuries.`\
-https://nytimes.com/athletic/5873195/2024/10/25/vikings-christian-darrisaw-surgery/
-
-**Leon Cooper Dies at 94; Nobelist Unlocked Secrets of Superconductivity**\
-`He shared the 1972 physics prize for showing how some materials could convey electricity without resistance. He also did pioneering research in neuroscience.`\
-https://nytimes.com/2024/10/25/science/leon-cooper-dead.html
 

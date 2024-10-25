@@ -1,3 +1,19 @@
+**Mississippi’s Absentee Ballot Law Is Overturned**\
+`The law required officials to count absentee ballots received by mail up to five days after Election Day. It’s unclear if the ruling will affect the current election.`\
+https://nytimes.com/2024/10/25/us/mississippi-absentee-ballot-law.html
+
+**World Series celebrity Power Rankings: Yankees, Dodgers diehards from Jay-Z to Will Ferrell**\
+`The Yankees and Dodgers have the most celeb-filled fan bases in baseball. Who packs the most punch, and who cares about their team the most?`\
+https://nytimes.com/athletic/5872741/2024/10/25/world-series-celebrity-fan-power-rankings/
+
+**New ads in a critical Montana Senate race focus on disputed war story.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/10/25/us/harris-trump-election/new-ads-in-a-critical-montana-senate-race-focus-on-disputed-war-story
+
+**Dolphins' Hill, Tagovailoa questionable for Week 8**\
+`Miami's lineup could be in for a major boost with the pending reunion of the dynamic duo.`\
+https://nytimes.com/athletic/5873411/2024/10/25/dolphins-list-tyreek-hill-tua-tagovailoa-as-questionable-entering-week-8/
+
 **‘Pure Hell’: The Painful Legacy of Boarding Schools for Native Americans.**\
 `President Biden apologized on Friday for the abuses children experienced at the government-run schools, which were designed to erase tribal ties and cultural practices.`\
 https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
