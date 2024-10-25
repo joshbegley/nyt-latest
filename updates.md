@@ -1,3 +1,15 @@
+**Syracuse QB Kyle McCord throws 3 pick sixes in disastrous first half**\
+`The Ohio State transfer is the first QB since 2015 to throw three pick sixes in a game.`\
+https://nytimes.com/athletic/5871430/2024/10/24/kyle-mccord-syracuse-3-pick-six-interceptions/
+
+**Wemby struggles vs. Klay, new-look Mavs in Spurs loss**\
+`Victor Wembanyama shot just 5-of-18 for 17 points in the Spurs’ 120-109 loss.`\
+https://nytimes.com/athletic/5871450/2024/10/24/victor-wembanyama-klay-thompson-mavericks-spurs-result/
+
+**Brent Honeywell, 'playoff perm' and all, is a hit with Dodgers' bullpen: 'He's one of one'**\
+`Honeywell's eccentric personality is a hit with his fellow relievers: “He's the glue that's holding people together down there."`\
+https://nytimes.com/athletic/5871372/2024/10/24/dodgers-brent-honeywell/
+
 **USWNT defeats Iceland with goals from Thompson, Shaw, Smith**\
 `The U.S. won the first game of its Olympic victory tour.`\
 https://nytimes.com/athletic/5871370/2024/10/24/uswnt-iceland-alyssa-thompson-goal/
