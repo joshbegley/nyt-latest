@@ -1,4 +1,4 @@
-**Yankees reveal World Series roster vs. Dodgers: Nestor Cortes back, Trent Grisham out**\
+**Yankees reveal World Series roster vs. Dodgers: Cortes back, Berti out**\
 `After missing the Yankees' first two rounds of the playoffs, Cortes will likely see his first postseason action in the World Series.`\
 https://nytimes.com/athletic/5871928/2024/10/25/yankees-reveal-world-series-roster-vs-dodgers-nestor-cortes-back-jon-berti-out/
 
