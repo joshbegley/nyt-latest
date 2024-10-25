@@ -1,3 +1,11 @@
+**Cross-Tabs: Late October 2024 Times/Siena Poll of the Likely Electorate**\
+`Results of a nationwide New York Times/Siena College poll of 2,516 likely voters conducted from Oct. 20 to 23, 2024.`\
+https://nytimes.com/interactive/2024/10/25/us/elections/times-siena-poll-crosstabs.html
+
+**Toplines: Late October 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll of 2,516 registered voters conducted from Oct. 20 to 23, 2024.`\
+https://nytimes.com/interactive/2024/10/25/us/elections/times-siena-poll-toplines.html
+
 **Wilson ruled out of Newcastle's next three games due to 'tightness in body'**\
 `Callum Wilson will miss Newcastle United&#8217;s next three matches after feeling &#8220;some tightness in his body&#8221;, head coach Eddie Howe has confirmed.`\
 https://nytimes.com/athletic/5872025/2024/10/25/callum-wilson-newcastle-injury-latest/
