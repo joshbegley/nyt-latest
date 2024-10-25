@@ -1,3 +1,7 @@
+**Murals in Tehran Offer Tributes and Threats Against Israel**\
+`In the Iranian capital’s Palestine Square, a series of murals have telegraphed warnings to the country’s enemies.`\
+https://nytimes.com/2024/10/25/world/middleeast/iran-israel-war-tehran-murals.html
+
 **Gang Gunfire in Haiti Hits U.S. Embassy Vehicles and U.N. Aid Helicopter**\
 `The attacks this week point to an escalation of violence as the situation worsens and gangs overwhelm security forces, including a multinational force.`\
 https://nytimes.com/2024/10/25/world/americas/haiti-gang-violence-us-embassy-un-helicopter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/us/mississippi-absentee-ballot-law.html
 **World Series celebrity Power Rankings: Yankees, Dodgers diehards from Jay-Z to Will Ferrell**\
 `The Yankees and Dodgers have the most celeb-filled fan bases in baseball. Who packs the most punch, and who cares about their team the most?`\
 https://nytimes.com/athletic/5872741/2024/10/25/world-series-celebrity-fan-power-rankings/
-
-**New ads in a critical Montana Senate race focus on disputed war story.**\
-`By Mike Baker`\
-https://nytimes.com/live/2024/10/25/us/harris-trump-election/new-ads-in-a-critical-montana-senate-race-focus-on-disputed-war-story
 
