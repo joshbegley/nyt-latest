@@ -1,3 +1,7 @@
+**Harris, Trump and Allies Spend Over a Half-Billion Dollars in 16 Days**\
+`Donald Trump has now raised $1 billion since announcing his run for president. And he has Elon Musk’s $119 million. But Kamala Harris has a huge cash advantage.`\
+https://nytimes.com/2024/10/25/us/elections/kamala-harris-donald-trump-campaign-finance.html
+
 **Arsenal Today: Injury worries, a new appointment and whether height matters**\
 `Amy Lawrence talks you through what is interesting our Arsenal team of writers today`\
 https://nytimes.com/athletic/5869953/2024/10/25/arsenal-today-injuries-arteta-james-king/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5865889/2024/10/25/anna-patten-ireland-interview/
 **Alexander-Arnold's (r)evolution under Arne Slot**\
 `Liverpool's in-demand full-back has had his role tweaked under his new head coach but is still thriving `\
 https://nytimes.com/athletic/5869689/2024/10/25/trent-alexander-arnold-arne-slot-liverpool/
-
-**'You go into dark places' - Andy Carroll talks media glare, leaving England and life in France**\
-`The former England striker talks life in France, leaving England and not getting a phone call telling him his time at Newcastle was over`\
-https://nytimes.com/athletic/5865920/2024/10/25/andy-carroll-interview-bordeaux-newcastle/
 
