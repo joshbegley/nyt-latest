@@ -1,3 +1,7 @@
+**It’s Springsteen Season Again. Can Celebrities Give Harris a Meaningful Boost?**\
+`Bruce Springsteen performed at a rally for Vice President Kamala Harris. Beyoncé will appear at an event on Friday. It is hard to say if such events actually motivate people to go to the polls.`\
+https://nytimes.com/2024/10/25/us/politics/kamala-harris-celebrities.html
+
 **Lady Gaga’s Dance-Floor Antidote, and 9 More New Songs**\
 `Hear Sade’s first new track since 2018, plus songs from Soccer Mommy, Tyler, the Creator and more.`\
 https://nytimes.com/2024/10/25/arts/music/playlist-lady-gaga-sade-tyler-the-creator.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/us/world-series-los-angeles-new-york.html
 **Barbara Dane, Who Fought Injustice Through Song, Dies at 97**\
 `She was highly regarded as a folk, blues and jazz singer. She was also ardently left-wing and prioritized social change over commercial success.`\
 https://nytimes.com/2024/10/25/arts/music/barbara-dane-dead.html
-
-**Prime Tire: F1's racing rules drama, explained. Plus, the latest from the Mexico City GP**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
-https://nytimes.com/athletic/5853728/2024/10/25/f1-racing-rules-drama-mexico-city-gp-prime-tire/
 
