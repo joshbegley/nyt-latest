@@ -1,3 +1,7 @@
+**E. Coli Outbreak Tied to McDonald’s Widens to 75 People in 13 States**\
+`Health officials say that recalls of onions — the suspected source of the contamination — would help lessen the risk to consumers. Other major fast-food chains have also stopped offering onions.`\
+https://nytimes.com/2024/10/25/health/e-coli-mcdonalds-quarter-pounder-onions.html
+
 **Review: Porcupines of Plastic and Other Provocations**\
 `The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
 https://nytimes.com/2024/10/25/arts/dance/review-nadia-beugre-quartier-libres-revisited.html

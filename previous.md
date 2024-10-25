@@ -1,3 +1,7 @@
+**E. Coli Outbreak Tied to McDonald’s Widens to 75 People in 13 States**\
+`Health officials say that recalls of onions — the suspected source of the contamination — would help lessen the risk to consumers. Other major fast-food chains have also stopped offering onions.`\
+https://nytimes.com/2024/10/25/health/e-coli-mcdonalds-quarter-pounder-onions.html
+
 **Harris Has Been a Voice on Race and Gender. She Doesn’t Broadcast It.**\
 `As vice president, Kamala Harris often tried to use government to target racism and sexism.`\
 https://nytimes.com/2024/10/25/us/politics/harris-racism-sexism-policies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/trump-ruth-bader-ginsberg-abortion-ad
 **Abercrombie, Pushing a New Image, Confronts Accusations Against Ex-C.E.O.**\
 `Recent sex trafficking charges against Michael Jeffries could implicate the retailer, too, as it tries to close a tumultuous chapter in its history.`\
 https://nytimes.com/2024/10/25/business/abercrombie-mike-jeffries-sex-trafficking-charges.html
-
-**Overlooked No More: Margaret E. Knight, Innovator of the Flat-Bottomed Paper Bag**\
-`She came up with a method of automation so that workers would not have to make the bags by hand. Then she fought for credit for her work.`\
-https://nytimes.com/2024/10/25/obituaries/margaret-e-knight-overlooked.html
 
