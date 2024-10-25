@@ -1,3 +1,7 @@
+**Los Angeles D.A.’s Move in Menendez Case Comes Amid Tough Re-election Bid**\
+`The review of the high-profile murder case by George Gascón’s office began more than a year ago. But critics say the timing of the decision was political.`\
+https://nytimes.com/2024/10/25/us/menendez-brothers-los-angeles-da.html
+
 **Rangers, Alexis Lafrenière finalizing 7-year contract extension**\
 `Lafrenière broke out in 2023-24, scoring a career-high 28 goals and 57 points.`\
 https://nytimes.com/athletic/5873020/2024/10/25/alexis-lafreniere-rangers-extension/
