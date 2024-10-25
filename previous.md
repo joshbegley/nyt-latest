@@ -1,3 +1,11 @@
+**Washington Post Says It Won’t Endorse Anyone for President**\
+`Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not endorsing presidential candidates.`\
+https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html
+
+**Israeli air attack on southern Gaza came without warning, residents say.**\
+`By Abu Bakr Bashir, Aaron Boxerman and Ameera Harouda`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-air-attack-on-southern-gaza-came-without-warning-residents-say
+
 **The One Benefit of Harris Winning While Losing the Popular Vote**\
 `It might be a first step toward ending a hugely undemocratic institution.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-harris-electoral-college
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5872297/2024/10/25/real-madrid-barcelona-el-clasico
 **Mithai Sheds Its Too-Sweet Reputation**\
 `Younger South Asian cooks are riffing on these classics, turning them into cookies, pies and ice cream, and (gasp!) adding salt.`\
 https://nytimes.com/2024/10/25/dining/diwali-sweets-mithai.html
-
-**Heat Today: Miami prepares to honor Dwyane Wade, regroup against Hornets this weekend**\
-`Wade will get a statue, and the Heat hope to collect their first win.`\
-https://nytimes.com/athletic/5872753/2024/10/25/miami-heat-dwyane-wade-nba/
-
-**The Windup: Last-minute World Series reads**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5872838/2024/10/25/world-series-dodgers-yankees-the-windup/
 

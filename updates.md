@@ -1,3 +1,11 @@
+**Washington Post Says It Won’t Endorse Anyone for President**\
+`Will Lewis, the company’s chief executive, said the paper was “returning to our roots” of not endorsing presidential candidates.`\
+https://nytimes.com/2024/10/25/business/media/washington-post-presidential-endorsement.html
+
+**Israeli air attack on southern Gaza came without warning, residents say.**\
+`By Abu Bakr Bashir, Aaron Boxerman and Ameera Harouda`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-air-attack-on-southern-gaza-came-without-warning-residents-say
+
 **The One Benefit of Harris Winning While Losing the Popular Vote**\
 `It might be a first step toward ending a hugely undemocratic institution.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-harris-electoral-college
