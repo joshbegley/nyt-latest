@@ -1,3 +1,7 @@
+**25 Jump Scares That Still Make Us Jump**\
+`We ranked the most chilling, spine-tingling, utterly terrifying scenes that get us every time, and asked writers, filmmakers and stars to explain why.`\
+https://nytimes.com/interactive/2024/10/25/movies/scary-movie-it-alien-smile.html
+
 **In Gaza, the U.N.’s Polio Vaccine Campaign May Be Falling Apart**\
 `There is no military solution to a public health crisis.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/gaza-polio-vaccine-un
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873186/2024/10/25/rams-cooper-kupp-no-trade-sean-m
 **Is It OK to Keep Returning Purchases You’ve Worn for Months?**\
 `The magazine’s Ethicist columnist on whether to exploit a store’s return policy.`\
 https://nytimes.com/2024/10/25/magazine/return-policy-ethics.html
-
-**‘The Economy, Stupid’? Not So Much Anymore.**\
-`Economic factors can tell us only so much about how presidential elections will turn out.`\
-https://nytimes.com/2024/10/25/opinion/economy-presidential-elections.html
 
