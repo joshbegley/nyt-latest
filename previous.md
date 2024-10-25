@@ -1,3 +1,15 @@
+**Nuggets learn some hard truths in opening loss to OKC Thunder**\
+`Denver needs to find its championship-level identity after "too many possessions that were not Nuggets basketball" against the Thunder.`\
+https://nytimes.com/athletic/5871871/2024/10/25/nuggets-loss-thunder-shooting-depth/
+
+**Emery says 'next dream' is to win a trophy with Villa**\
+`Unai Emery says his &#8220;next dream&#8221; is to win a trophy with Aston Villa after celebrating his two year anniversary at the club.`\
+https://nytimes.com/athletic/5872494/2024/10/25/unai-emery-aston-villa-trophy/
+
+**Arsenal's Calafiori, Saka, Timber 'very, very uncertain' for Liverpool game - Arteta**\
+`Mikel Arteta has said Arsenal trio Riccardo Calafiori, Bukayo Saka and Jurrien Timber are &#8220;very, very uncertain&#8221; to play against Liverpool on Sunday.`\
+https://nytimes.com/athletic/5866173/2024/10/25/calafiori-saka-timber-injury-update-arsenal/
+
 **Duhatschek: 'Iron Mike' Keenan speaks, a Ducks' hypothetical and how Utah will manage injuries**\
 `A couple thoughts on Anaheim, one from the deep past and one from the present, as the team tries to muddle its way back to respectability. `\
 https://nytimes.com/athletic/5870372/2024/10/25/nhl-iron-mike-keenan-ducks-utah/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5870160/2024/10/25/nolan-smith-philadelphia-eagles-
 **Renard emerges as serious candidate to become Saudi Arabia head coach**\
 `Herve Renard has emerged as a serious candidate to become the new Saudi Arabia men&#8217;s head coach.`\
 https://nytimes.com/athletic/5872138/2024/10/25/herve-renard-saudi-arabia-head-coach/
-
-**The Athletic FC: Tall vs technical debate, MLS salaries revealed, Mourinho vs United fallout**\
-`Today in TAFC: How important is height in football? Plus: Mourinho vs United and Onana's brilliant double save; MLS salaries revealed.`\
-https://nytimes.com/athletic/5872229/2024/10/25/height-in-football-mls-salaries-messi-onana-save/
-
-**Why Alex Caruso's mindset, Chet Holmgren's durability make these Thunder different**\
-`Oklahoma City's strong opening-night win at Denver proved all the offseason Thunder hype was justified.`\
-https://nytimes.com/athletic/5871487/2024/10/25/thunder-caruso-holmgren-opener/
-
-**Guardiola in the dark over De Bruyne injury return**\
-`Pep Guardiola says he does not yet know when Kevin De Bruyne will be back in action.`\
-https://nytimes.com/athletic/5872365/2024/10/25/kevin-de-bruyne-injury-man-city-guardiola/
 

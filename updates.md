@@ -1,3 +1,15 @@
+**Nuggets learn some hard truths in opening loss to OKC Thunder**\
+`Denver needs to find its championship-level identity after "too many possessions that were not Nuggets basketball" against the Thunder.`\
+https://nytimes.com/athletic/5871871/2024/10/25/nuggets-loss-thunder-shooting-depth/
+
+**Emery says 'next dream' is to win a trophy with Villa**\
+`Unai Emery says his &#8220;next dream&#8221; is to win a trophy with Aston Villa after celebrating his two year anniversary at the club.`\
+https://nytimes.com/athletic/5872494/2024/10/25/unai-emery-aston-villa-trophy/
+
+**Arsenal's Calafiori, Saka, Timber 'very, very uncertain' for Liverpool game - Arteta**\
+`Mikel Arteta has said Arsenal trio Riccardo Calafiori, Bukayo Saka and Jurrien Timber are &#8220;very, very uncertain&#8221; to play against Liverpool on Sunday.`\
+https://nytimes.com/athletic/5866173/2024/10/25/calafiori-saka-timber-injury-update-arsenal/
+
 **Duhatschek: 'Iron Mike' Keenan speaks, a Ducks' hypothetical and how Utah will manage injuries**\
 `A couple thoughts on Anaheim, one from the deep past and one from the present, as the team tries to muddle its way back to respectability. `\
 https://nytimes.com/athletic/5870372/2024/10/25/nhl-iron-mike-keenan-ducks-utah/
