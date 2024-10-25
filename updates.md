@@ -1,3 +1,7 @@
+**Miriam Adelson Goes Searching for More Trump Donors**\
+`After financing a super PAC with $100 million of her own money, she is asking other billionaires to help keep the group funded through Election Day.`\
+https://nytimes.com/2024/10/24/us/politics/miriam-adelson-trump-donors.html
+
 **Harris Campaign Uses John Kelly’s Words in Stark New Ads**\
 `The ads are the latest attempt by Kamala Harris’s campaign to turn the 2024 race into a referendum on Donald Trump.`\
 https://nytimes.com/2024/10/24/us/politics/john-kelly-trump-fascist-harris-ads.html

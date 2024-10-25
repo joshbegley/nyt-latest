@@ -1,3 +1,7 @@
+**Miriam Adelson Goes Searching for More Trump Donors**\
+`After financing a super PAC with $100 million of her own money, she is asking other billionaires to help keep the group funded through Election Day.`\
+https://nytimes.com/2024/10/24/us/politics/miriam-adelson-trump-donors.html
+
 **Harris Campaign Uses John Kelly’s Words in Stark New Ads**\
 `The ads are the latest attempt by Kamala Harris’s campaign to turn the 2024 race into a referendum on Donald Trump.`\
 https://nytimes.com/2024/10/24/us/politics/john-kelly-trump-fascist-harris-ads.html
@@ -25,8 +29,4 @@ https://nytimes.com/2024/10/24/us/army-homicide-fort-leonard-wood.html
 **Ex-LAC trainer sues, says Kawhi Leonard was subjected to illegal treatment**\
 `The suit also accuses the Clippers of tampering with Leonard leading up to his free agency in 2019.`\
 https://nytimes.com/athletic/5870732/2024/10/24/clippers-lawsuit-trainer-kawhi-leonard/
-
-**Biden to Apologize for Indian Boarding Schools Where Hundreds of Children Died**\
-`President Biden’s trip to the battleground state of Arizona will be the first time an American president has apologized for the abuses that happened at the schools over a period of 150 years.`\
-https://nytimes.com/2024/10/24/us/politics/biden-indian-boarding-schools-arizona.html
 
