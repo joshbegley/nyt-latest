@@ -1,3 +1,7 @@
+**Referees miss late face mask penalty in Rams win over Vikings**\
+`Officials missed linebacker Byron Young pulling Vikings quarterback Sam Darnold's face mask late in the fourth quarter.`\
+https://nytimes.com/athletic/5871889/2024/10/25/rams-vikings-missed-face-mask-penalty/
+
 **No Filip Gustavsson, no problem as Marc-Andre Fleury helps Wild stay hot: 'I want to help'**\
 `For a guy who hadn’t played in 12 nights, he sure was tested during a 12-save first period.`\
 https://nytimes.com/athletic/5871732/2024/10/25/marc-andre-fleury-wild-stay-hot/
