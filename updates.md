@@ -1,3 +1,11 @@
+**Kelly’s Comments About Trump, Fascism and Hitler**\
+`Responses to the former Trump chief of staff’s comments. Also: Election disinformation; a voter paradox; Harris donations; biodiversity; pandas.`\
+https://nytimes.com/2024/10/25/opinion/kelly-trump-fascism-hitler.html
+
+**Late Lawsuit Could Shape Political Ad Wars in Final Days of Campaign**\
+`House Democrats are suing to stop Republicans from using a legal loophole to bolster their Senate candidates.`\
+https://nytimes.com/2024/10/25/us/politics/political-ad-lawsuit.html
+
 **Election 2024 Polls:New Hampshire**\
 `See the latest election polls and polling averages for New Hampshire.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-new-hampshire.html

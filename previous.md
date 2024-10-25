@@ -1,3 +1,11 @@
+**Kelly’s Comments About Trump, Fascism and Hitler**\
+`Responses to the former Trump chief of staff’s comments. Also: Election disinformation; a voter paradox; Harris donations; biodiversity; pandas.`\
+https://nytimes.com/2024/10/25/opinion/kelly-trump-fascism-hitler.html
+
+**Late Lawsuit Could Shape Political Ad Wars in Final Days of Campaign**\
+`House Democrats are suing to stop Republicans from using a legal loophole to bolster their Senate candidates.`\
+https://nytimes.com/2024/10/25/us/politics/political-ad-lawsuit.html
+
 **Election 2024 Polls:New Hampshire**\
 `See the latest election polls and polling averages for New Hampshire.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-new-hampshire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/world/europe/arsenal-liverpool-trent-alexander-ar
 **That 800-Year-Old Corpse in the Well? Early Biological Warfare.**\
 `Archaeologists in Norway have confirmed that an ancient set of human remains known as the Well Man were intended to make the locals unwell.`\
 https://nytimes.com/2024/10/25/science/archaeology-norway-sverresborg.html
-
-**You Don’t Have to Deep-Fry Your Wings**\
-`Use Eric Kim’s new recipe for Atlanta-style oven-fried hot wings, sharp and fiery, salty and crisp.`\
-https://nytimes.com/2024/10/25/dining/you-dont-have-to-deep-fry-your-wings.html
-
-**Five Science Fiction Movies to Stream Now**\
-`This month’s picks include a time-travel thriller with Dylan O’Brien and a dystopian comedy with Awkwafina and John Cena.`\
-https://nytimes.com/2024/10/25/movies/best-science-fiction-movies-streaming.html
 
