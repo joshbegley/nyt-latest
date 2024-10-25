@@ -1,40 +1,40 @@
-**Nacua, Kupp return to boost Rams offense in win vs. Vikings**\
-`With Nacua and Kupp both in the lineup for the first time since Week 1, Matthew Stafford passed for a season-high four touchdowns.`\
-https://nytimes.com/athletic/5871457/2024/10/24/vikings-rams-score-takeaways-tnf-result/
+**Five thoughts on the suddenly scuffling Maple Leafs**\
+`Two ugly back-to-back losses and it's suddenly a stormy season for the Maple Leafs.`\
+https://nytimes.com/athletic/5871401/2024/10/25/maple-leafs-blues-loss/
 
-**Doubting the Blues without Robert Thomas? They showed that a 'work-based' effort can win**\
-`The Blues beat the Maple Leafs 5-1 in their first game without their star center, who's out six weeks.`\
-https://nytimes.com/athletic/5870250/2024/10/24/blues-maple-leafs-robert-thomas-injury/
+**FPL: Is GW9 the time to triple captain Haaland?**\
+`Factors you should be weighing up if you're deciding whether to Triple Captain the Man City striker for their game against Southampton`\
+https://nytimes.com/athletic/5866517/2024/10/25/fpl-advice-triple-captain-erling-haaland/
 
-**David Pastrnak hurting Bruins more than helping them**\
-`The Bruins are paying Pastrnak $11.25 million annually to score goals and chase wins. Not sit in the penalty box.`\
-https://nytimes.com/athletic/5871593/2024/10/24/bruins-stars-david-pastrnak/
+**In a Region of Majestic Beauty, Sunnis and Shiites Wage Bloody War**\
+`In Kurram, near the Afghan border, Pakistan has been helpless to stop the latest outbreaks of a sectarian conflict that goes back decades.`\
+https://nytimes.com/2024/10/25/world/asia/pakistan-kurram-sunni-shiite.html
 
-**Maggie Haberman on What an Unleashed Trump Might Do**\
-`The New York Times political correspondent discusses Donald Trump’s past, present and possible future.`\
-https://nytimes.com/video/opinion/100000009782324/maggie-haberman-on-what-an-unleashed-trump-might-do.html
+**Quote of the Day: His Mission: To Restore Wilderness of Ireland**\
+`Quotation of the Day for Friday, October 25, 2024.`\
+https://nytimes.com/2024/10/25/pageoneplus/quote-of-the-day-his-mission-to-restore-wilderness-of-ireland.html
 
-**Kit Connor and Rachel Zegler Make Puppy Love in the Puppy Pile**\
-`The Broadway revival of “Romeo + Juliet” plays to the TikTok crowd. But maybe that’s a good thing.`\
-https://nytimes.com/2024/10/24/theater/romeo-juliet-kit-carson-rachel-zegler.html
+**Malaria Is Surging in Ethiopia, Reversing a Decade of Progress Against the Disease**\
+`Climate change, civil conflict and growing resistance to insecticides and treatments are all contributing to an alarming spread of cases.`\
+https://nytimes.com/2024/10/25/health/malaria-ethiopia-deaths-cases.html
 
-**How Rangers' lack of 'pop' led to first regulation loss: 6 takeaways**\
-`The Rangers’ first matchup of the season against the Panthers resembled their playoff series five months ago. The result was also similar.`\
-https://nytimes.com/athletic/5871572/2024/10/24/rangers-panthers-takeaways-analysis/
+**They Were Just What They Needed**\
+`Jonathan Otcasek and Erin Kim connected 10 years ago over a gravesite. They’ve had the kind of relationship even their parents admire since.`\
+https://nytimes.com/2024/10/25/style/jonathan-otcasek-erin-kim-wedding.html
 
-**Tyler Perry Blasts Trump in Passionate Speech at Harris’s Atlanta Rally**\
-`The actor and filmmaker, who built his career in the Georgia capital, said he had realized that in the former president’s America, “there is no dream that looks like me.”`\
-https://nytimes.com/2024/10/24/us/politics/tyler-perry-harris-atlanta.html
+**Sometimes, It’s Not You, or the Math**\
+`In this 2011 essay, a 39-year-old woman who hasn’t had a boyfriend in eight years is asked by a date, “What’s wrong with you?”`\
+https://nytimes.com/2024/10/25/style/modern-love-classic-sometimes-its-not-you-or-the-math.html
 
-**Maple Leafs report cards: Stars struggle in another disappointing loss**\
-`The Leafs outshot the Blues, but they still lost 5-1 to a mediocre team that was missing its star centre.`\
-https://nytimes.com/athletic/5871476/2024/10/24/maple-leafs-blues-stars-loss/
+**Illinois at Oregon picks, odds, how to watch: Ducks favored to romp in top-25 matchup**\
+`Oregon is the newly-minted No. 1 team in the country. The Ducks get a test from No. 20 Illinois, but are favored by three scores.`\
+https://nytimes.com/athletic/5870349/2024/10/25/illinois-oregon-picks-odds-how-to-watch/
 
-**Syracuse QB Kyle McCord throws 3 pick sixes in disastrous first half**\
-`The Ohio State transfer is the first QB since 2015 to throw three pick sixes in a game.`\
-https://nytimes.com/athletic/5871430/2024/10/24/kyle-mccord-syracuse-3-pick-six-interceptions/
+**No More ‘Single Girl’ Posts for This Comedic Writer**\
+`Sara Runnels was known for her humorous stories and social media shares about the single life, but her dating status quickly changed after meeting Adam Zack.`\
+https://nytimes.com/2024/10/25/style/sara-runnels-adam-zach-wedding.html
 
-**Wemby struggles vs. Klay, new-look Mavs in Spurs loss**\
-`Victor Wembanyama shot just 5-of-18 for 17 points in San Antonio's 120-109 loss.`\
-https://nytimes.com/athletic/5871450/2024/10/24/victor-wembanyama-klay-thompson-mavericks-spurs-result/
+**A Love for Service and Each Other**\
+`Ana Lejava and Nickolas Calbos had dates all over the world. “I was acting out of my gut, not out of my brain,” Ms. Levaja said.`\
+https://nytimes.com/2024/10/25/style/ana-lejava-nickolas-calbos-wedding.html
 
