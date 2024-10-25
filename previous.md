@@ -1,3 +1,11 @@
+**Philip Glass’s Musical Impression of an Artist Cut Down by AIDS**\
+`Glass’s Fourth String Quartet, written after the death of the artist Brian Buczak, will be performed at the New York City AIDS Memorial.`\
+https://nytimes.com/2024/10/25/arts/music/philip-glasss-quartet-brian-buczak.html
+
+**Inside Putin’s Alternate Reality: Warm Embraces and a Veneer of Normalcy**\
+`At a meeting of emerging economies, Vladimir Putin positioned himself as a respected and powerful leader, ignoring the condemnation he receives from the West.`\
+https://nytimes.com/2024/10/25/world/asia/brics-summit-putin-russia.html
+
 **Ramazani out for up to six weeks with ankle ligament injury**\
 `Leeds United winger Largie Ramazani is expected to be sidelined for up to six weeks due to an ankle ligament injury.`\
 https://nytimes.com/athletic/5872532/2024/10/25/largie-ramazani-leeds-injury/
@@ -10,7 +18,7 @@ https://nytimes.com/2024/10/25/arts/music/halsey-the-great-impersonator-review.h
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5872243/2024/10/25/klay-thompson-mavericks-nba-fiba-luka-doncic-the-bounce/
 
-**Tracking Tropical Depression Kong-rey**\
+**Tracking Tropical Storm Kong-rey**\
 `See the likely path and wind arrival times for Kong-rey.`\
 https://nytimes.com/interactive/2024/10/25/weather/kong-rey-map-path-tracker.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5866173/2024/10/25/calafiori-saka-timber-injury-upd
 **Duhatschek: 'Iron Mike' Keenan speaks, a Ducks' hypothetical and how Utah will manage injuries**\
 `A couple thoughts on Anaheim, one from the deep past and one from the present, as the team tries to muddle its way back to respectability. `\
 https://nytimes.com/athletic/5870372/2024/10/25/nhl-iron-mike-keenan-ducks-utah/
-
-**NFL injury report: DK Metcalf likely to sit in Week 8, but there's hope for Jayden Daniels**\
-`Greg Scholz of Inside Injuries weighs in on the most pressing injuries for Week 8, offering hope that Jayden Daniels could play on Sunday.`\
-https://nytimes.com/athletic/5871655/2024/10/25/nfl-injury-report-week-8-fantasy-football-daniels-metcalf/
-
-**Are Elon Musk and Vladimir Putin Talking?**\
-`The billionaire has reportedly been in regular contact with the Russian president, heaping more scrutiny on the power and influence the entrepreneur wields over the U.S. government.`\
-https://nytimes.com/2024/10/25/business/dealbook/musk-putin-trump.html
 

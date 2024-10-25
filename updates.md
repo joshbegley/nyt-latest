@@ -1,3 +1,15 @@
+**Philip Glass’s Musical Impression of an Artist Cut Down by AIDS**\
+`Glass’s Fourth String Quartet, written after the death of the artist Brian Buczak, will be performed at the New York City AIDS Memorial.`\
+https://nytimes.com/2024/10/25/arts/music/philip-glasss-quartet-brian-buczak.html
+
+**Inside Putin’s Alternate Reality: Warm Embraces and a Veneer of Normalcy**\
+`At a meeting of emerging economies, Vladimir Putin positioned himself as a respected and powerful leader, ignoring the condemnation he receives from the West.`\
+https://nytimes.com/2024/10/25/world/asia/brics-summit-putin-russia.html
+
+**Tracking Tropical Storm Kong-rey**\
+`See the likely path and wind arrival times for Kong-rey.`\
+https://nytimes.com/interactive/2024/10/25/weather/kong-rey-map-path-tracker.html
+
 **Ramazani out for up to six weeks with ankle ligament injury**\
 `Leeds United winger Largie Ramazani is expected to be sidelined for up to six weeks due to an ankle ligament injury.`\
 https://nytimes.com/athletic/5872532/2024/10/25/largie-ramazani-leeds-injury/
