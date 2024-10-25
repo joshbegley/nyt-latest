@@ -1,3 +1,11 @@
+**Dozens Reported Killed in Attacks on Khan Younis**\
+`Thirteen children and a woman from the same family were among several Palestinians killed in overnight Israeli strikes on Khan Younis in southern Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009783087/khan-younis-israeli-strikes.html
+
+**Hip-drop tackles explained: What are they? Why are they banned?**\
+`Hip drop tackles cause lower extremity injuries at a rate 20 times higher than other tackles.`\
+https://nytimes.com/athletic/5748718/2024/10/25/hip-drop-tackle-nfl-explainer/
+
 **25 Jump Scares That Still Make Us Jump**\
 `We ranked the most chilling, spine-tingling, utterly terrifying scenes that get us every time, and asked writers, filmmakers and stars to explain why.`\
 https://nytimes.com/interactive/2024/10/25/movies/scary-movie-it-alien-smile.html
