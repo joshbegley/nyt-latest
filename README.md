@@ -1,3 +1,7 @@
+**Safeya Binzagr, Pioneering Saudi Artist, Dies at 84**\
+`Despite the restrictions of Saudi society, she celebrated her heritage, claiming a place for herself, and other women, in the country’s art scene.`\
+https://nytimes.com/2024/10/25/arts/safeya-binzagr-dead.html
+
 **C.D.C. Lowers Age to Get Vaccine Against Pneumonia**\
 `Adults 50 and older can now get the shot, as rates of the illness climb.`\
 https://nytimes.com/2024/10/25/well/cdc-pneumonia-vaccine-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/world/asia/brics-summit-putin-russia.html
 **Ramazani out for up to six weeks with ankle ligament injury**\
 `Leeds United winger Largie Ramazani is expected to be sidelined for up to six weeks due to an ankle ligament injury.`\
 https://nytimes.com/athletic/5872532/2024/10/25/largie-ramazani-leeds-injury/
-
-**On ‘The Great Impersonator,’ Halsey Channels Pop’s Past**\
-`The singer and songwriter’s fifth album processes intense pain through a high-concept homage to role models including Stevie Nicks, Bruce Springsteen and Britney Spears.`\
-https://nytimes.com/2024/10/25/arts/music/halsey-the-great-impersonator-review.html
 
