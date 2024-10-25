@@ -1,3 +1,7 @@
+**At Las Vegas Rally, Trump Grumbles About Obama’s Nobel Prize**\
+`With 12 days until Election Day, former President Donald J. Trump campaigned in Nevada and Arizona and sharpened his attacks on Vice President Kamala Harris about immigration.`\
+https://nytimes.com/2024/10/25/us/politics/trump-rally-las-vegas.html
+
 **Referees miss late face mask penalty in Rams win over Vikings**\
 `Officials missed linebacker Byron Young pulling Vikings quarterback Sam Darnold's face mask late in the fourth quarter.`\
 https://nytimes.com/athletic/5871889/2024/10/25/rams-vikings-missed-face-mask-penalty/
