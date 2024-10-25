@@ -1,3 +1,11 @@
+**Israel Says 5 Soldiers Were Killed in Southern Lebanon**\
+`As clashes with Hezbollah militants intensified, Israel’s public broadcaster reported that the soldiers had been killed when a rocket struck a building they were in.`\
+https://nytimes.com/2024/10/25/world/middleeast/israel-soldiers-killed-hezbollah-lebanon.html
+
+**Twins future value big board: Ranking the top 20 players based on long-term upside**\
+`Blending prospects, young major leaguers and veterans to assess the Twins' organizational strength and most desirable trade assets.`\
+https://nytimes.com/athletic/5864469/2024/10/25/minnesota-twins-players-future-value/
+
 **Improving results against top teams key for Liverpool's season - Slot**\
 `Arne Slot admits improving Liverpool’s record against the top teams could have a huge impact on their season.`\
 https://nytimes.com/athletic/5872101/2024/10/25/arne-slot-liverpool-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5870615/2024/10/25/beanie-bishop-steelers-undrafted
 **Timothy Liljegren trade destinations: Which teams could be a fit?**\
 `The 25-year-old, puck-moving, right-shot defenseman has been languishing on the NHL trade market for months.`\
 https://nytimes.com/athletic/5870407/2024/10/25/maple-leafs-timothy-liljegren-trade/
-
-**Flipping its competitive calendar is the type of change MLS needs**\
-`MLS has talked about making changes before. There isn’t a perfect solution, but the league has to find a way to grow`\
-https://nytimes.com/athletic/5870477/2024/10/25/mls-calendar-flip-ready-change/
-
-**Vikings left reeling as Brian Flores' defense is again picked apart in loss to Rams**\
-`The Vikings defenders no longer feel bulletproof. That was apparent last week in a loss to Detroit and in Thursday night's loss in L.A.`\
-https://nytimes.com/athletic/5871968/2024/10/25/vikings-rams-defense-brian-flores-loss/
 

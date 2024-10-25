@@ -1,3 +1,11 @@
+**Israel Says 5 Soldiers Were Killed in Southern Lebanon**\
+`As clashes with Hezbollah militants intensified, Israel’s public broadcaster reported that the soldiers had been killed when a rocket struck a building they were in.`\
+https://nytimes.com/2024/10/25/world/middleeast/israel-soldiers-killed-hezbollah-lebanon.html
+
+**Twins future value big board: Ranking the top 20 players based on long-term upside**\
+`Blending prospects, young major leaguers and veterans to assess the Twins' organizational strength and most desirable trade assets.`\
+https://nytimes.com/athletic/5864469/2024/10/25/minnesota-twins-players-future-value/
+
 **Improving results against top teams key for Liverpool's season - Slot**\
 `Arne Slot admits improving Liverpool’s record against the top teams could have a huge impact on their season.`\
 https://nytimes.com/athletic/5872101/2024/10/25/arne-slot-liverpool-results/
