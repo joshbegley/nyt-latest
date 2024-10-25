@@ -1,3 +1,11 @@
+**Vikings' Darrisaw to undergo season-ending knee surgery**\
+`Christian Darrisaw, who started 46 of his first 48 appearances for the Vikings, suffered "significant" ACL and MCL injuries.`\
+https://nytimes.com/athletic/5873195/2024/10/25/vikings-christian-darrisaw-surgery/
+
+**Leon Cooper Dies at 94; Nobelist Unlocked Secrets of Superconductivity**\
+`He shared the 1972 physics prize for showing how some materials could convey electricity without resistance. He also did pioneering research in neuroscience.`\
+https://nytimes.com/2024/10/25/science/leon-cooper-dead.html
+
 **Dozens Reported Killed in Attacks on Khan Younis**\
 `Thirteen children and a woman from the same family were among several Palestinians killed in overnight Israeli strikes on Khan Younis in southern Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009783087/khan-younis-israeli-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/science/nasa-spacex-astronaut-hospital.html
 **Why the Maple Leafs are not in a rush to split up their power play units**\
 `Despite recent struggles, Craig Berube is preaching patience with the Maple Leafs' power play.`\
 https://nytimes.com/athletic/5873246/2024/10/25/maple-leafs-power-play/
-
-**Biden Apologizes for U.S. Abuse of Indian Children, Calling It ‘a Sin on Our Soul’**\
-`From the early 1800s to the late 1960s, the federal government forced Native American children into boarding schools where they faced abuse and neglect that led in some cases to death.`\
-https://nytimes.com/2024/10/25/us/politics/biden-apology-indian-abuse.html
-
-**Bengals WR Tee Higgins questionable vs. Eagles**\
-`Wide receiver Tee Higgins popped up at Friday practice as limited with a quad injury, and is listed as questionable for Sunday.`\
-https://nytimes.com/athletic/5873197/2024/10/25/bengals-tee-higgins-injury-update-eagles/
 
