@@ -1,3 +1,11 @@
+**‘Pure Hell’: The Painful Legacy of Boarding Schools for Native Americans.**\
+`President Biden apologized on Friday for the abuses children experienced at the government-run schools, which were designed to erase tribal ties and cultural practices.`\
+https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
+
+**The Briefing: England Women 3 Germany Women 4 – Lionesses' attempted comeback arrives too late**\
+`Our writers analyse the key talking points from England's defeat to Germany`\
+https://nytimes.com/athletic/5869652/2024/10/25/england-women-germany-women-come-back-too-late/
+
 **What’s at Stake in the 2024 Election**\
 `A 14-day series highlighting our best coverage of the most important issues in this election.`\
 https://nytimes.com/interactive/2024/us/politics/whats-at-stake.html

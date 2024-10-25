@@ -1,3 +1,7 @@
+**New ads in a critical Montana Senate race focus on disputed war story.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/10/25/us/harris-trump-election/new-ads-in-a-critical-montana-senate-race-focus-on-disputed-war-story
+
 **‘Pure Hell’: The Painful Legacy of Boarding Schools for Native Americans.**\
 `President Biden apologized on Friday for the abuses children experienced at the government-run schools, which were designed to erase tribal ties and cultural practices.`\
 https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
 `A 14-day series highlighting our best coverage of the most important issues in this election.`\
 https://nytimes.com/interactive/2024/us/politics/whats-at-stake.html
 
-**Dolphins' Hill, Tagovailoa questionable for Week 8.**\
+**Dolphins' Hill, Tagovailoa questionable for Week 8**\
 `Miami's lineup could be in for a major boost with the pending reunion of the dynamic duo.`\
 https://nytimes.com/athletic/5873411/2024/10/25/dolphins-list-tyreek-hill-tua-tagovailoa-as-questionable-entering-week-8/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869652/2024/10/25/england-women-germany-women-come
 **Vikings' Darrisaw to undergo season-ending knee surgery**\
 `Christian Darrisaw, who started 46 of his first 48 appearances for the Vikings, suffered "significant" ACL and MCL injuries.`\
 https://nytimes.com/athletic/5873195/2024/10/25/vikings-christian-darrisaw-surgery/
-
-**Leon Cooper Dies at 94; Nobelist Unlocked Secrets of Superconductivity**\
-`He shared the 1972 physics prize for showing how some materials could convey electricity without resistance. He also did pioneering research in neuroscience.`\
-https://nytimes.com/2024/10/25/science/leon-cooper-dead.html
 
