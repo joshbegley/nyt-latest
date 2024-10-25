@@ -1,3 +1,11 @@
+**Liverpool recruitment director Fallows to leave the club**\
+`Liverpool have announced director of scouting and recruitment Dave Fallows is to leave the club.`\
+https://nytimes.com/athletic/5872713/2024/10/25/liverpool-recruitment-director-fallows/
+
+**The W.H.O. says it has lost contact with a northern Gaza hospital.**\
+`By Liam Stack, Raja Abdulrahim and Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/the-who-says-it-has-lost-contact-with-a-northern-gaza-hospital
+
 **Kelly’s Comments About Trump, Fascism and Hitler**\
 `Responses to the former Trump chief of staff’s comments. Also: Election disinformation; a voter paradox; Harris donations; biodiversity; pandas.`\
 https://nytimes.com/2024/10/25/opinion/kelly-trump-fascism-hitler.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/books/susanna-clarke-strange-norrell-sequel-inter
 **Premier League predicted line-ups: Who do our writers think will start in GW9?**\
 `As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5864214/2024/10/25/premier-league-predicted-line-ups-gameweek-9/
-
-**Tackling the Trent Alexander-Arnold Conundrum With Facts**\
-`Is the Liverpool star a good defender? It depends on your evidence.`\
-https://nytimes.com/2024/10/25/world/europe/arsenal-liverpool-trent-alexander-arnold.html
-
-**That 800-Year-Old Corpse in the Well? Early Biological Warfare.**\
-`Archaeologists in Norway have confirmed that an ancient set of human remains known as the Well Man were intended to make the locals unwell.`\
-https://nytimes.com/2024/10/25/science/archaeology-norway-sverresborg.html
 
