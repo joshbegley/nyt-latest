@@ -1,3 +1,11 @@
+**Tyler Perry Blasts Trump in Passionate Speech at Harris’s Atlanta Rally**\
+`The actor and filmmaker, who built his career in the Georgia capital, said he had realized that in the former president’s America, “there is no dream that looks like me.”`\
+https://nytimes.com/2024/10/24/us/politics/tyler-perry-harris-atlanta.html
+
+**Maple Leafs report cards: Stars struggle in another disappointing loss**\
+`The Leafs outshot the Blues, but they still lost 5-1 to a mediocre team that was missing its star centre.`\
+https://nytimes.com/athletic/5871476/2024/10/24/maple-leafs-blues-stars-loss/
+
 **Syracuse QB Kyle McCord throws 3 pick sixes in disastrous first half**\
 `The Ohio State transfer is the first QB since 2015 to throw three pick sixes in a game.`\
 https://nytimes.com/athletic/5871430/2024/10/24/kyle-mccord-syracuse-3-pick-six-interceptions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5871370/2024/10/24/uswnt-iceland-alyssa-thompson-go
 **Panini sells out Caitlin Clark autographed memorabilia release in minutes**\
 `The release included autographed jerseys, basketballs and photographs of the WNBA Rookie of the Year`\
 https://nytimes.com/athletic/5870540/2024/10/24/caitlin-clark-panini-autograph-memorabilia/
-
-**No Corrections: Oct. 25, 2025**\
-`No corrections appeared in print on Friday, Oct. 25, 2025.`\
-https://nytimes.com/2024/10/24/pageoneplus/no-corrections-oct-25-2025.html
-
-**At a Town Hall in Detroit, Trump Asks Vance: ‘How Brilliant Is Donald Trump?’**\
-`Former President Donald J. Trump phoned in during a televised town hall with voters, surprising his running mate.`\
-https://nytimes.com/2024/10/24/us/politics/vance-detroit-trump-newsnation.html
 
