@@ -1,40 +1,40 @@
-**A 185-Year-Old Building in the South Street Seaport Is Listed for $14.95 Million**\
-`The owners of the wine store Pasanella & Son, Vintners, are selling their five-story building on South Street, which includes the store, a loft and six rental apartments.`\
-https://nytimes.com/2024/10/25/realestate/london-south-street-seaport-historic-building-for-sale.html
+**Could Trump Win the Popular Vote but Lose the Electoral College?**\
+`It’s not likely, but it’s not something that can be completely dismissed either, recent polling suggests.`\
+https://nytimes.com/2024/10/25/upshot/poll-trump-harris-election.html
 
-**Attacks on L.G.B.T.Q. People Shake Sense of Security in Ivory Coast**\
-`One of West Africa’s most tolerant societies has recently seen a string of assaults on L.G.B.T.Q. people after several social media influencers exhorted their followers to “hunt” gay men.`\
-https://nytimes.com/2024/10/25/world/africa/ivory-coast-lgbtq.html
+**The New York Times News Quiz, Oct. 25, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/10/25/briefing/quiz-trump-harris-north-korea-mcdonalds.html
 
-**A Detroit Museum Focuses on the Islamic Dining Experience**\
-`An exhibition at the Detroit Institute of Arts tries to connect with the area’s large, vibrant Arab American community through a show about food.`\
-https://nytimes.com/2024/10/25/arts/detroit-museum-islamic-dining.html
+**Why Harris (With Beyoncé in Tow) Is Heading to Solidly Red Texas**\
+`Appearing alongside a pop superstar and talking about abortion rights in a state with a strict ban, the vice president is hoping to deliver viral moments that will resound in faraway battlegrounds.`\
+https://nytimes.com/2024/10/25/us/politics/harris-beyonce-houston-texas.html
 
-**Poetry and a Lone Stag Help an Isolated Deaf Girl Connect**\
-`The young language-deprived protagonist of Ann Clare LeZotte’s novel “Deer Run Home” tells her own story, in verse.`\
-https://nytimes.com/2024/10/25/books/review/ann-clare-lezotte-deer-run-home.html
+**3 Ways to Make Your Commute Actually Enjoyable**\
+`Traffic jams and train delays happen, but they don’t have to ruin your trip.`\
+https://nytimes.com/2024/10/25/well/commute-transit-traffic.html
 
-**The Secret Ingredient Every Chili Needs Is Probably in Your Pantry**\
-`You can make an award-winning pot for Halloween parties, tailgates and dinner any night.`\
-https://nytimes.com/2024/10/25/dining/chili-secret-ingredient.html
+**Many Wells in North Carolina Remain Unsafe After Helene's Deluge**\
+`A third of state residents use private wells, and about four out of 10 wells tested after Hurricane Helene weren’t safe, highlighting the risks of extreme weather for millions of Americans.`\
+https://nytimes.com/interactive/2024/10/25/climate/private-wells-hurricane-flood.html
 
-**As A.I. Becomes Harder to Detect, Photography Is Having a Renaissance**\
-`Despite — or, perhaps, because of — the rise in artificially made images, photography is suddenly in the spotlight, in galleries in New York and beyond.`\
-https://nytimes.com/2024/10/25/arts/artificial-intelligence-photography-museums.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including the HBO dramedy “Somebody Somewhere.”`\
+https://nytimes.com/interactive/2024/10/25/arts/weekend-editors-picks-somebody-somewhere.html
 
-**18th-Century Perfume Bottles Come Up for Auction**\
-`The 100-piece collection has been praised for its size, variety and representation of all major European porcelain makers of the era.`\
-https://nytimes.com/2024/10/25/fashion/18th-century-perfume-bottles-auction.html
+**The Worst Tucker Carlson Metaphor of the Month. So Far.**\
+`A week’s worth of bad political behavior.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/bad-behavior-carlson-trump
 
-**An Italian Luxury House Takes Artisanship to New Heights**\
-`At Bottega Veneta, craftspeople are celebrated as much for their creativity as for the quality of their leather work.`\
-https://nytimes.com/2024/10/25/fashion/craftsmanship-bottega-veneta-leather-work-italy.html
+**For Sale: A Painting the Monuments Men Rescued From the Nazis**\
+`The portrait by a French court painter is one of three displayed in a photo that came to depict the efforts of a U.S. Army unit that tracked legions of looted art.`\
+https://nytimes.com/2024/10/25/arts/monuments-men-painting-wwii-auction.html
 
-**Lightbulbs and Cassette Tapes as Art**\
-`Joe Sheehan’s pieces, carved from stone, reflect his New Zealand heritage, as well as influences from around the world.`\
-https://nytimes.com/2024/10/25/fashion/craftsmanship-joe-sheehan-sculpture-new-zealand.html
+**The ‘Greenest Governor’ Fights to Save a Landmark Climate Law**\
+`Environmentalists and one of the world’s biggest oil companies support Washington State’s cap on carbon. But voters are deciding whether to repeal the law amid concerns about energy costs.`\
+https://nytimes.com/2024/10/25/us/washington-state-climate-initiative-2117.html
 
-**Traditional English Pottery Takes on a Modern Flair**\
-`Sophie Wilson’s 1690 collection of slipware reflects a variety of artistic and literary references.`\
-https://nytimes.com/2024/10/25/fashion/craftsmanship-1690-slipware-pottery-england.html
+**Can the Row Keep Its Cool?**\
+`The luxury brand has maintained its allure through an air of exclusivity. Associations with discount chains and reality stars have broadened its reach.`\
+https://nytimes.com/2024/10/25/style/the-row-olsen-sample-sale.html
 
