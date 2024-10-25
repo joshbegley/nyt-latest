@@ -1,3 +1,7 @@
+**City Paves Over Bed-Stuy’s Hydrant ‘Aquarium’ and Puts Up a Sidewalk**\
+`The New York City Department of Environmental Protection poured concrete over a community-built goldfish pond, citing safety concerns, much to the disappointment of its Brooklyn neighborhood.`\
+https://nytimes.com/2024/10/25/nyregion/bed-stuy-aquarium-sidewalk-brooklyn.html
+
 **The Culture Was Always Playing Catch-Up With Gary Indiana**\
 `From downtown New York, the writer both scrutinized and kept ahead of a turbulent world.`\
 https://nytimes.com/2024/10/25/books/review/gary-indiana-appraisal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873373/2024/10/25/49ers-deebo-samuel-george-kittle
 **Biden Apologizes for U.S. Mistreatment of Native American Children**\
 `President Biden offered a formal apology on Friday on behalf of the U.S. government for the abuse of Native American children from the early 1800s to the late 1960s.`\
 https://nytimes.com/video/us/100000009784291/biden-apology-native-american-children.html
-
-**Murals in Tehran Offer Tributes and Threats Against Israel**\
-`In the Iranian capital’s Palestine Square, a series of murals have telegraphed warnings to the country’s enemies.`\
-https://nytimes.com/2024/10/25/world/middleeast/iran-israel-war-tehran-murals.html
 

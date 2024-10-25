@@ -1,3 +1,7 @@
+**City Paves Over Bed-Stuy’s Hydrant ‘Aquarium’ and Puts Up a Sidewalk**\
+`The New York City Department of Environmental Protection poured concrete over a community-built goldfish pond, citing safety concerns, much to the disappointment of its Brooklyn neighborhood.`\
+https://nytimes.com/2024/10/25/nyregion/bed-stuy-aquarium-sidewalk-brooklyn.html
+
 **The Culture Was Always Playing Catch-Up With Gary Indiana**\
 `From downtown New York, the writer both scrutinized and kept ahead of a turbulent world.`\
 https://nytimes.com/2024/10/25/books/review/gary-indiana-appraisal.html
