@@ -1,3 +1,15 @@
+**Sean McVay repeats: Cooper Kupp staying a Ram**\
+`Cooper Kupp returned Thursday night and Rams coach Sean McVay says dealing him is "not a move that we want to make."`\
+https://nytimes.com/athletic/5873186/2024/10/25/rams-cooper-kupp-no-trade-sean-mcvay/
+
+**Is It OK to Keep Returning Purchases You’ve Worn for Months?**\
+`The magazine’s Ethicist columnist on whether to exploit a store’s return policy.`\
+https://nytimes.com/2024/10/25/magazine/return-policy-ethics.html
+
+**‘The Economy, Stupid’? Not So Much Anymore.**\
+`Economic factors can tell us only so much about how presidential elections will turn out.`\
+https://nytimes.com/2024/10/25/opinion/economy-presidential-elections.html
+
 **Colts update status of Jonathan Taylor, DeForest Buckner**\
 `In Taylor's absence, the Colts have struggled to run the ball, as Trey Sermon and Tyler Goodson are averaging 3.7 yards per cary. `\
 https://nytimes.com/athletic/5873146/2024/10/25/colts-jonathan-taylor-deforest-buckner-injury-update/
