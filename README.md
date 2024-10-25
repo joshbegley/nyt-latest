@@ -1,3 +1,11 @@
+**Obama Campaigns in North Carolina as Democrats Hope for a 2008 Repeat**\
+`The former president has been drawing crowds for Kamala Harris in every battleground, but his presence looms particularly large in the state the party hasn’t won since his first presidential bid.`\
+https://nytimes.com/2024/10/25/us/politics/harris-north-carolina-obama.html
+
+**Harris and Trump Hold Splashy Events Away From Swing States**\
+`Also, the C.D.C. lowered the age for the pneumonia vaccine. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/10/25/briefing/harris-trump-swing-states-native-american-boarding-schools.html
+
 **Meet the New Home Kitchen Business**\
 `Starting in November, licensed home kitchens in Los Angeles County will be able to sell dine-in and to-go meals, as a 5-year-old state law expands.`\
 https://nytimes.com/2024/10/25/headway/meet-the-new-home-kitchen-business.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/25/us/harris-trump-election/new-ads-in-a-critic
 **‘Pure Hell’: The Painful Legacy of Boarding Schools for Native Americans.**\
 `President Biden apologized on Friday for the abuses children experienced at the government-run schools, which were designed to erase tribal ties and cultural practices.`\
 https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
-
-**What’s at Stake in the 2024 Election**\
-`A 14-day series highlighting our best coverage of the most important issues in this election.`\
-https://nytimes.com/interactive/2024/us/politics/whats-at-stake.html
-
-**Dolphins' Hill, Tagovailoa questionable for Week 8**\
-`Miami's lineup could be in for a major boost with the pending reunion of the dynamic duo.`\
-https://nytimes.com/athletic/5873411/2024/10/25/dolphins-list-tyreek-hill-tua-tagovailoa-as-questionable-entering-week-8/
 
