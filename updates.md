@@ -1,3 +1,7 @@
+**Murals in Tehran Offer Tributes and Threats Against Israel**\
+`In the Iranian capital’s Palestine Square, a series of murals have telegraphed warnings to the country’s enemies.`\
+https://nytimes.com/2024/10/25/world/middleeast/iran-israel-war-tehran-murals.html
+
 **Gang Gunfire in Haiti Hits U.S. Embassy Vehicles and U.N. Aid Helicopter**\
 `The attacks this week point to an escalation of violence as the situation worsens and gangs overwhelm security forces, including a multinational force.`\
 https://nytimes.com/2024/10/25/world/americas/haiti-gang-violence-us-embassy-un-helicopter.html
