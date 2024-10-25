@@ -1,3 +1,7 @@
+**Scouting Martina Hingis and a duchy instead of six kings - inside the Luxembourg Ladies Masters**\
+`With entry criteria, a scouting system, and Grand Slam winners, this exhibition points to the need for pathways for tennis veterans`\
+https://nytimes.com/athletic/5860648/2024/10/25/luxembourg-ladies-masters-womens-tennis-hingis-ivanovic/
+
 **Can the World Series beat the NFL on TV for one night?**\
 `With an epic matchup featuring the country's biggest media markets, MLB just might have a shot to unseat the TV ratings king for one night.`\
 https://nytimes.com/athletic/5860573/2024/10/25/world-series-nfl-tv-ratings-viewership-yankees-dodgers/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/5870446/2024/10/25/the-athletics-friday-football-qu
 **NBA Reliability Tiers: From LeBron to Luka, league's top stars populate our top 10**\
 `Which NBA All-Star and All-NBA player is the most reliable? We finish our series with the league's brightest stars.`\
 https://nytimes.com/athletic/5852538/2024/10/25/tatum-jokic-embiid-nba-reliability-tier-1/
+
+**Bears mailbag: Trade candidates, Rome Odunze's usage and Week 8 picks**\
+`Are the Bears sellers? What can their offense do against a below-average Commanders defense? See the Week 8 picks in this week's mailbag.`\
+https://nytimes.com/athletic/5870455/2024/10/25/bears-mailbag-trade-deadline-rome-odunze-week-8-picks/
 
 **MLS Cup Playoffs: Which series will be the most entertaining to watch?**\
 `The MLS Cup playoffs are here. The Athletic previews all eight series matchups`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5852903/2024/10/25/quique-setien-barcelona-intervie
 **‘Conclave’ | Anatomy of a Scene**\
 `The director Edward Berger narrates a sequence from his film, featuring Ralph Fiennes.`\
 https://nytimes.com/video/movies/100000009781467/conclave-scene.html
-
-**The Pulse: How did they miss this call?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5870516/2024/10/25/vikings-rams-sam-darnold-facemask-the-pulse/
-
-**Israel Says 5 Soldiers Were Killed in Southern Lebanon**\
-`As clashes with Hezbollah militants intensified, Israel’s public broadcaster reported that the soldiers had been killed when a rocket struck a building they were in.`\
-https://nytimes.com/2024/10/25/world/middleeast/israel-soldiers-killed-hezbollah-lebanon.html
 
