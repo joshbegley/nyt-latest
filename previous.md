@@ -1,3 +1,27 @@
+**Election 2024 Polls:New Hampshire**\
+`See the latest election polls and polling averages for New Hampshire.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-new-hampshire.html
+
+**Election 2024 Polls:New York**\
+`See the latest election polls and polling averages for New York.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-new-york.html
+
+**Election 2024 Polls:Nebraska C.D. 2**\
+`See the latest election polls and polling averages for Nebraska C.D. 2.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-nebraska-2.html
+
+**Election 2024 Polls:Maine C.D. 2**\
+`See the latest election polls and polling averages for Maine C.D. 2.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-maine-2.html
+
+**Susanna Clarke Wrote a Hit Novel Set in a Magical Realm. Then She Disappeared.**\
+`Twenty years after the publication of her fantasy debut, “Jonathan Strange and Mr. Norrell,” Clarke is returning to her richly imagined world of magical England.`\
+https://nytimes.com/2024/10/25/books/susanna-clarke-strange-norrell-sequel-interview.html
+
+**Premier League predicted line-ups: Who do our writers think will start in GW9?**\
+`As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
+https://nytimes.com/athletic/5864214/2024/10/25/premier-league-predicted-line-ups-gameweek-9/
+
 **Tackling the Trent Alexander-Arnold Conundrum With Facts**\
 `Is the Liverpool star a good defender? It depends on your evidence.`\
 https://nytimes.com/2024/10/25/world/europe/arsenal-liverpool-trent-alexander-arnold.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/25/dining/you-dont-have-to-deep-fry-your-wings.html
 **Five Science Fiction Movies to Stream Now**\
 `This month’s picks include a time-travel thriller with Dylan O’Brien and a dystopian comedy with Awkwafina and John Cena.`\
 https://nytimes.com/2024/10/25/movies/best-science-fiction-movies-streaming.html
-
-**Canucks notebook: The Elias Pettersson noise and seeking a top-four upgrade**\
-`Plus, Nils Höglander's increased role this season and the Canucks' cap-motivated AHL loans.`\
-https://nytimes.com/athletic/5865789/2024/10/25/canucks-elias-pettersson-defence-trade/
-
-**Safeya Binzagr, Saudi Artist Both Celebrated and Unseen, Dies at 84**\
-`Despite the gender restrictions of Saudi society, she claimed a place for herself, and other women, in the country’s art scene.`\
-https://nytimes.com/2024/10/25/arts/safeya-binzagr-dead.html
-
-**C.D.C. Lowers Age to Get Vaccine Against Pneumonia**\
-`Adults 50 and older can now get the shot, as rates of the illness climb.`\
-https://nytimes.com/2024/10/25/well/cdc-pneumonia-vaccine-age.html
-
-**Russia Raises Interest Rate to 21 Percent, Its Highest in Decades**\
-`Military spending and recruitment are causing the country’s economy to overheat, leaving regulators in a struggle to rein in rising prices.`\
-https://nytimes.com/2024/10/25/world/europe/russia-interest-rate.html
-
-**'Unacceptable' handling of sexual assault claims linked to Fulham Football Club raises more questions for police**\
-`Reporting by The Athletic today raises concerns regarding the adequacy of a police investigation into sexual abuse of young women at Fulham`\
-https://nytimes.com/athletic/5864530/2024/10/25/mulcahey-fulham-allegations/
-
-**Fatal Drug Overdoses Are Dropping. Not Everyone Is Spared.**\
-`Federal officials have celebrated a striking drop in drug overdoses across the country. But state-level data shows that Black people are suffering significantly worse outcomes than white people.`\
-https://nytimes.com/2024/10/25/us/drug-overdoses-opioids-fentanyl.html
 
