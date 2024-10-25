@@ -1,3 +1,7 @@
+**‘Pure Hell’: The Painful Legacy of Boarding Schools for Native Americans.**\
+`President Biden apologized on Friday for the abuses children experienced at the government-run schools, which were designed to erase tribal ties and cultural practices.`\
+https://nytimes.com/2024/10/25/us/us-indian-boarding-schools-history.html
+
 **What’s at Stake in the 2024 Election**\
 `A 14-day series highlighting our best coverage of the most important issues in this election.`\
 https://nytimes.com/interactive/2024/us/politics/whats-at-stake.html
@@ -22,7 +26,7 @@ https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/aid-into-gaza
 `The proposal, which faces tough legal prospects, would offer forgiveness to millions of borrowers who are unable to pay back their loans because of financial setbacks.`\
 https://nytimes.com/2024/10/25/us/politics/student-loan-debt-hardship-biden.html
 
-**The Briefing: England Women 3 Germany Women 4 - Lionesses' attempted comeback arrives too late**\
+**The Briefing: England Women 3 Germany Women 4 – Lionesses' attempted comeback arrives too late**\
 `Our writers analyse the key talking points from England's defeat to Germany`\
 https://nytimes.com/athletic/5869652/2024/10/25/england-women-germany-women-come-back-too-late/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873195/2024/10/25/vikings-christian-darrisaw-surge
 **Leon Cooper Dies at 94; Nobelist Unlocked Secrets of Superconductivity**\
 `He shared the 1972 physics prize for showing how some materials could convey electricity without resistance. He also did pioneering research in neuroscience.`\
 https://nytimes.com/2024/10/25/science/leon-cooper-dead.html
-
-**Dozens Reported Killed in Attacks on Khan Younis**\
-`Thirteen children and a woman from the same family were among several Palestinians killed in overnight Israeli strikes on Khan Younis in southern Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009783087/khan-younis-israeli-strikes.html
 
