@@ -1,3 +1,7 @@
+**No Filip Gustavsson, no problem as Marc-Andre Fleury helps Wild stay hot: 'I want to help'**\
+`For a guy who hadn’t played in 12 nights, he sure was tested during a 12-save first period.`\
+https://nytimes.com/athletic/5871732/2024/10/25/marc-andre-fleury-wild-stay-hot/
+
 **Harris, Trump and Allies Spend Over a Half-Billion Dollars in 16 Days**\
 `Donald Trump has now raised $1 billion since announcing his run for president. And he has Elon Musk’s $119 million. But Kamala Harris has a huge cash advantage.`\
 https://nytimes.com/2024/10/25/us/elections/kamala-harris-donald-trump-campaign-finance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869384/2024/10/25/tawanda-maswanhise-rodgers-mothe
 **Anna Patten and the granddad who inspired her switch from England to Ireland: 'He loved to see me play'**\
 `The Republic of Ireland defender on their Euro 2025 play-off, Aston Villa's early-season struggles and the advice her grandfather gave her`\
 https://nytimes.com/athletic/5865889/2024/10/25/anna-patten-ireland-interview/
-
-**Alexander-Arnold's (r)evolution under Arne Slot**\
-`Liverpool's in-demand full-back has had his role tweaked under his new head coach but is still thriving `\
-https://nytimes.com/athletic/5869689/2024/10/25/trent-alexander-arnold-arne-slot-liverpool/
 
