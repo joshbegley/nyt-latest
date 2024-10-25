@@ -1,3 +1,7 @@
+**Safeya Binzagr, Saudi Artist Both Celebrated and Unseen, Dies at 84**\
+`Despite the gender restrictions of Saudi society, she claimed a place for herself, and other women, in the country’s art scene.`\
+https://nytimes.com/2024/10/25/arts/safeya-binzagr-dead.html
+
 **C.D.C. Lowers Age to Get Vaccine Against Pneumonia**\
 `Adults 50 and older can now get the shot, as rates of the illness climb.`\
 https://nytimes.com/2024/10/25/well/cdc-pneumonia-vaccine-age.html
