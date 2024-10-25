@@ -1,40 +1,40 @@
-**Cross-Tabs: Late October 2024 Times/Siena Poll of the Likely Electorate**\
-`Results of a nationwide New York Times/Siena College poll of 2,516 likely voters conducted from Oct. 20 to 23, 2024.`\
-https://nytimes.com/interactive/2024/10/25/us/elections/times-siena-poll-crosstabs.html
+**A 185-Year-Old Building in the South Street Seaport Is Listed for $14.95 Million**\
+`The owners of the wine store Pasanella & Son, Vintners, are selling their five-story building on South Street, which includes the store, a loft and six rental apartments.`\
+https://nytimes.com/2024/10/25/realestate/london-south-street-seaport-historic-building-for-sale.html
 
-**Toplines: Late October 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll of 2,516 registered voters conducted from Oct. 20 to 23, 2024.`\
-https://nytimes.com/interactive/2024/10/25/us/elections/times-siena-poll-toplines.html
+**Attacks on L.G.B.T.Q. People Shake Sense of Security in Ivory Coast**\
+`One of West Africa’s most tolerant societies has recently seen a string of assaults on L.G.B.T.Q. people after several social media influencers exhorted their followers to “hunt” gay men.`\
+https://nytimes.com/2024/10/25/world/africa/ivory-coast-lgbtq.html
 
-**Wilson ruled out of Newcastle's next three games due to 'tightness in body'**\
-`Callum Wilson will miss Newcastle United&#8217;s next three matches after feeling &#8220;some tightness in his body&#8221;, head coach Eddie Howe has confirmed.`\
-https://nytimes.com/athletic/5872025/2024/10/25/callum-wilson-newcastle-injury-latest/
+**A Detroit Museum Focuses on the Islamic Dining Experience**\
+`An exhibition at the Detroit Institute of Arts tries to connect with the area’s large, vibrant Arab American community through a show about food.`\
+https://nytimes.com/2024/10/25/arts/detroit-museum-islamic-dining.html
 
-**A Pivotal Election for Georgia, Explained**\
-`A parliamentary vote could decide whether the Caucasus nation will be oriented to the West or East for years to come. Here’s what to know.`\
-https://nytimes.com/2024/10/25/world/europe/georgia-election-explained.html
+**Poetry and a Lone Stag Help an Isolated Deaf Girl Connect**\
+`The young language-deprived protagonist of Ann Clare LeZotte’s novel “Deer Run Home” tells her own story, in verse.`\
+https://nytimes.com/2024/10/25/books/review/ann-clare-lezotte-deer-run-home.html
 
-**Media Personnel Killed in Airstrike on Lebanon**\
-`Lebanon’s health ministry blamed Israel for the attack. Camera crews filmed the damage to the area in Hasbaya, Lebanon, where the ministry said the journalists had been staying.`\
-https://nytimes.com/video/world/middleeast/100000009782555/hasbaya-lebanon-jouranlist-israel.html
+**The Secret Ingredient Every Chili Needs Is Probably in Your Pantry**\
+`You can make an award-winning pot for Halloween parties, tailgates and dinner any night.`\
+https://nytimes.com/2024/10/25/dining/chili-secret-ingredient.html
 
-**Trump Is Telling Us What He Would Do. Believe Him.**\
-`The former president’s most disturbing statements are not bluster. They are a road map to what he will do if elected again.`\
-https://nytimes.com/interactive/2024/10/25/opinion/what-trump-says.html
+**As A.I. Becomes Harder to Detect, Photography Is Having a Renaissance**\
+`Despite — or, perhaps, because of — the rise in artificially made images, photography is suddenly in the spotlight, in galleries in New York and beyond.`\
+https://nytimes.com/2024/10/25/arts/artificial-intelligence-photography-museums.html
 
-**Will Klay Thompson work in Dallas? The first look says yes**\
-`The embrace of Dallas might really be what Klay Thompson needed.`\
-https://nytimes.com/athletic/5867921/2024/10/25/will-klay-thompson-work-with-dallas-mavericks-first-look-indicates-yes/
+**18th-Century Perfume Bottles Come Up for Auction**\
+`The 100-piece collection has been praised for its size, variety and representation of all major European porcelain makers of the era.`\
+https://nytimes.com/2024/10/25/fashion/18th-century-perfume-bottles-auction.html
 
-**Live Q&A: FPL Gameweek 9 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live FPL Q&A from 2-3pm UK time for Gameweek 9`\
-https://nytimes.com/athletic/5863241/2024/10/25/fantasy-premier-league-advice-injury-news-gw9/
+**An Italian Luxury House Takes Artisanship to New Heights**\
+`At Bottega Veneta, craftspeople are celebrated as much for their creativity as for the quality of their leather work.`\
+https://nytimes.com/2024/10/25/fashion/craftsmanship-bottega-veneta-leather-work-italy.html
 
-**Israeli Strike Kills 3 Journalists, Lebanon’s Health Ministry Says**\
-`The three worked for Lebanese news organizations, their employers said. The ministry said they had been staying in a residence housing journalists.`\
-https://nytimes.com/2024/10/25/world/middleeast/israel-strike-lebanon-journalists.html
+**Lightbulbs and Cassette Tapes as Art**\
+`Joe Sheehan’s pieces, carved from stone, reflect his New Zealand heritage, as well as influences from around the world.`\
+https://nytimes.com/2024/10/25/fashion/craftsmanship-joe-sheehan-sculpture-new-zealand.html
 
-**Teenager Charged With Murder of 5 Relatives in Washington State**\
-`Prosecutors said a 15-year-old killed his parents and three siblings, then tried to convince the authorities his brother was responsible.`\
-https://nytimes.com/2024/10/25/us/washington-shooting-teen-charged.html
+**Traditional English Pottery Takes on a Modern Flair**\
+`Sophie Wilson’s 1690 collection of slipware reflects a variety of artistic and literary references.`\
+https://nytimes.com/2024/10/25/fashion/craftsmanship-1690-slipware-pottery-england.html
 
