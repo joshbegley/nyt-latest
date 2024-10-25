@@ -1,3 +1,11 @@
+**The Culture Was Always Playing Catch-Up With Gary Indiana**\
+`From downtown New York, the writer both scrutinized and kept ahead of a turbulent world.`\
+https://nytimes.com/2024/10/25/books/review/gary-indiana-appraisal.html
+
+**Dodgers, Lakers, USC play at home Friday. Is L.A. ready for the traffic?**\
+`Four games and one concert will overlap in one night. The Athletic has you covered on what to expect with the heavy traffic.`\
+https://nytimes.com/athletic/5873623/2024/10/25/dodgers-yankees-lakers-sun-usc-los-angeles-traffic/
+
 **How the Country’s Understanding of Abortion Could Change if Trump Wins**\
 `Activists on both sides say Trump could effectively ban abortion nationwide and establish fetal personhood, the longtime goal of the anti-abortion movement.`\
 https://nytimes.com/2024/10/25/us/trump-abortion.html
