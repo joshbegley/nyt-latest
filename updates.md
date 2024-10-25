@@ -1,3 +1,11 @@
+**Biden Apologizes for U.S. Abuse of Indian Children, Calling It ‘a Sin on Our Soul’**\
+`From the early 1800s to the late 1960s, the federal government forced Native American children into boarding schools where they faced abuse and neglect that led in some cases to death.`\
+https://nytimes.com/2024/10/25/us/politics/biden-apology-indian-abuse.html
+
+**Bengals WR Tee Higgins questionable vs. Eagles**\
+`Wide receiver Tee Higgins popped up at Friday practice as limited with a quad injury, and is listed as questionable for Sunday.`\
+https://nytimes.com/athletic/5873197/2024/10/25/bengals-tee-higgins-injury-update-eagles/
+
 **Sean McVay repeats: Cooper Kupp staying a Ram**\
 `Cooper Kupp returned Thursday night and Rams coach Sean McVay says dealing him is "not a move that we want to make."`\
 https://nytimes.com/athletic/5873186/2024/10/25/rams-cooper-kupp-no-trade-sean-mcvay/
