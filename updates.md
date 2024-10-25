@@ -1,3 +1,23 @@
+**The Athletic’s Friday football quiz question #27**\
+`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5870446/2024/10/25/the-athletics-friday-football-quiz-question-27/
+
+**NBA Reliability Tiers: From LeBron to Luka, league's top stars populate our top 10**\
+`Which NBA All-Star and All-NBA player is the most reliable? We finish our series with the league's brightest stars.`\
+https://nytimes.com/athletic/5852538/2024/10/25/tatum-jokic-embiid-nba-reliability-tier-1/
+
+**MLS Cup Playoffs: Which series will be the most entertaining to watch?**\
+`The MLS Cup playoffs are here. The Athletic previews all eight series matchups`\
+https://nytimes.com/athletic/5871288/2024/10/25/mls-cup-playoff-series-ranked/
+
+**Lowetide: Which Oilers early-season trends are poised to improve?**\
+`Patience is the best plan for a team that's started the regular season in Edmonton's position.`\
+https://nytimes.com/athletic/5868717/2024/10/25/edmonton-oilers-stats-trends-2024/
+
+**Watch Ralph Fiennes Deliver a Startling Speech in ‘Conclave’**\
+`The actor plays a cardinal who expresses doubts about his faith and the church in this drama from the director Edward Berger.`\
+https://nytimes.com/2024/10/25/movies/conclave-clip-ralph-fiennes.html
+
 **‘Conclave’ | Anatomy of a Scene**\
 `The director Edward Berger narrates a sequence from his film, featuring Ralph Fiennes.`\
 https://nytimes.com/video/movies/100000009781467/conclave-scene.html
