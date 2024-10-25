@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/25/nyregion/proposition-one-ballot-abortion.html
 `Thousands of soldiers from an elite unit of the Korean People’s Army began arriving on Wednesday and are expected to try to help expel Ukrainian forces from Russian territory.`\
 https://nytimes.com/2024/10/25/world/europe/north-korean-troops-arrive-kursk-russia.html
 
-**Blasts reported around Tehran after a year of escalating confrontations.**\
+**Israel announces strikes on military sites in Iran.**\
 `Blasts reported around Tehran after a year of escalating confrontations. `\
 https://nytimes.com/2024/10/25/world/middleeast/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations.html
 

@@ -1,3 +1,7 @@
+**Israel announces strikes on military sites in Iran.**\
+`Blasts reported around Tehran after a year of escalating confrontations. `\
+https://nytimes.com/2024/10/25/world/middleeast/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations.html
+
 **Mega-Donors Pour $8 Million Into Late Push Against N.Y. Abortion Measure**\
 `Opponents of the so-called Equal Rights Amendment have cast it as a broad attempt by Democrats to grant rights to transgender athletes and migrants.`\
 https://nytimes.com/2024/10/25/nyregion/proposition-one-ballot-abortion.html
