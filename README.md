@@ -1,3 +1,15 @@
+**C.D.C. Lowers Age to Get Vaccine Against Pneumonia**\
+`Adults 50 and older can now get the shot, as rates of the illness climb.`\
+https://nytimes.com/2024/10/25/well/cdc-pneumonia-vaccine-age.html
+
+**Russia Raises Interest Rate to 21 Percent, Its Highest in Decades**\
+`Military spending and recruitment are causing the country’s economy to overheat, leaving regulators in a struggle to rein in rising prices.`\
+https://nytimes.com/2024/10/25/world/europe/russia-interest-rate.html
+
+**'Unacceptable' handling of sexual assault claims linked to Fulham Football Club raises more questions for police**\
+`Reporting by The Athletic today raises concerns regarding the adequacy of a police investigation into sexual abuse of young women at Fulham`\
+https://nytimes.com/athletic/5864530/2024/10/25/mulcahey-fulham-allegations/
+
 **Fatal Drug Overdoses Are Dropping. Not Everyone Is Spared.**\
 `Federal officials have celebrated a striking drop in drug overdoses across the country. But state-level data shows that Black people are suffering significantly worse outcomes than white people.`\
 https://nytimes.com/2024/10/25/us/drug-overdoses-opioids-fentanyl.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5872532/2024/10/25/largie-ramazani-leeds-injury/
 **On ‘The Great Impersonator,’ Halsey Channels Pop’s Past**\
 `The singer and songwriter’s fifth album processes intense pain through a high-concept homage to role models including Stevie Nicks, Bruce Springsteen and Britney Spears.`\
 https://nytimes.com/2024/10/25/arts/music/halsey-the-great-impersonator-review.html
-
-**The Bounce: Klay Thompson's Mavericks debut was everything**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5872243/2024/10/25/klay-thompson-mavericks-nba-fiba-luka-doncic-the-bounce/
-
-**Tracking Tropical Storm Kong-rey**\
-`See the likely path and wind arrival times for Kong-rey.`\
-https://nytimes.com/interactive/2024/10/25/weather/kong-rey-map-path-tracker.html
-
-**Nuggets learn some hard truths in opening loss to OKC Thunder**\
-`Denver needs to find its championship-level identity after "too many possessions that were not Nuggets basketball" against the Thunder.`\
-https://nytimes.com/athletic/5871871/2024/10/25/nuggets-loss-thunder-shooting-depth/
 
