@@ -1,3 +1,11 @@
+**Scouting Martina Hingis and a duchy instead of six kings - inside the Luxembourg Ladies Masters**\
+`With entry criteria, a scouting system, and Grand Slam winners, this exhibition points to the need for pathways for tennis veterans`\
+https://nytimes.com/athletic/5860648/2024/10/25/luxembourg-ladies-masters-womens-tennis-hingis-ivanovic/
+
+**Bears mailbag: Trade candidates, Rome Odunze's usage and Week 8 picks**\
+`Are the Bears sellers? What can their offense do against a below-average Commanders defense? See the Week 8 picks in this week's mailbag.`\
+https://nytimes.com/athletic/5870455/2024/10/25/bears-mailbag-trade-deadline-rome-odunze-week-8-picks/
+
 **Setien's Barcelona dream became a nightmare: 'Nobody called to say I was fired, I heard on TV'**\
 `Quique Setien lasted just months in his dream job as coach of Barcelona. Here he reflects on what went wrong`\
 https://nytimes.com/athletic/5852903/2024/10/25/quique-setien-barcelona-interview/
