@@ -1,3 +1,11 @@
+**49ers' Samuel, Kittle questionable; Jennings out vs. Cowboys**\
+`Samuel said Friday he’s feeling much better after a two-night hospital stay this week, but isn’t sure if he’ll play against the Cowboys.`\
+https://nytimes.com/athletic/5873373/2024/10/25/49ers-deebo-samuel-george-kittle-jauan-jennings/
+
+**Biden Apologizes for U.S. Mistreatment of Native American Children**\
+`President Biden offered a formal apology on Friday on behalf of the U.S. government for the abuse of Native American children from the early 1800s to the late 1960s.`\
+https://nytimes.com/video/us/100000009784291/biden-apology-native-american-children.html
+
 **Murals in Tehran Offer Tributes and Threats Against Israel**\
 `In the Iranian capital’s Palestine Square, a series of murals have telegraphed warnings to the country’s enemies.`\
 https://nytimes.com/2024/10/25/world/middleeast/iran-israel-war-tehran-murals.html
