@@ -1,3 +1,11 @@
+**How Wild responded to season's first deficit with comeback win vs. Lightning: 4 takeaways**\
+`After a come-from-behind 4-2 victory in Tampa, the Wild improved to 5-0-2 on the season.`\
+https://nytimes.com/athletic/5870913/2024/10/24/wild-lightning-takeaways-analysis/
+
+**An Act of Congress**\
+`Alex Murphy makes his New York Times Crossword debut. Here are your smelling salts.`\
+https://nytimes.com/2024/10/24/crosswords/daily-puzzle-2024-10-25.html
+
 **Obama Rallies With Harris for First Time, to the Chords of Bruce Springsteen**\
 `At a star-filled rally in Georgia that also featured Tyler Perry and Samuel L. Jackson, the former president tried to give a jolt of energy to the vice president often seen as a successor.`\
 https://nytimes.com/2024/10/24/us/politics/obama-harris-bruce-springsteen-georgia.html

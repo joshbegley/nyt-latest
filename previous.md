@@ -1,3 +1,11 @@
+**How Wild responded to season's first deficit with comeback win vs. Lightning: 4 takeaways**\
+`After a come-from-behind 4-2 victory in Tampa, the Wild improved to 5-0-2 on the season.`\
+https://nytimes.com/athletic/5870913/2024/10/24/wild-lightning-takeaways-analysis/
+
+**An Act of Congress**\
+`Alex Murphy makes his New York Times Crossword debut. Here are your smelling salts.`\
+https://nytimes.com/2024/10/24/crosswords/daily-puzzle-2024-10-25.html
+
 **Obama Rallies With Harris for First Time, to the Chords of Bruce Springsteen**\
 `At a star-filled rally in Georgia that also featured Tyler Perry and Samuel L. Jackson, the former president tried to give a jolt of energy to the vice president often seen as a successor.`\
 https://nytimes.com/2024/10/24/us/politics/obama-harris-bruce-springsteen-georgia.html
@@ -29,8 +37,4 @@ https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-georgia-obama-perry
 **Miriam Adelson Goes Searching for More Trump Donors**\
 `After financing a super PAC with $100 million of her own money, she is asking other billionaires to help keep the group funded through Election Day.`\
 https://nytimes.com/2024/10/24/us/politics/miriam-adelson-trump-donors.html
-
-**Harris Campaign Uses John Kelly’s Words in Stark New Ads**\
-`The ads are the latest attempt by Kamala Harris’s campaign to turn the 2024 race into a referendum on Donald Trump.`\
-https://nytimes.com/2024/10/24/us/politics/john-kelly-trump-fascist-harris-ads.html
 
