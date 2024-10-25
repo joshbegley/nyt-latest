@@ -1,3 +1,23 @@
+**Tackling the Trent Alexander-Arnold Conundrum With Facts**\
+`Is the Liverpool star a good defender? It depends on your evidence.`\
+https://nytimes.com/2024/10/25/world/europe/arsenal-liverpool-trent-alexander-arnold.html
+
+**That 800-Year-Old Corpse in the Well? Early Biological Warfare.**\
+`Archaeologists in Norway have confirmed that an ancient set of human remains known as the Well Man were intended to make the locals unwell.`\
+https://nytimes.com/2024/10/25/science/archaeology-norway-sverresborg.html
+
+**You Don’t Have to Deep-Fry Your Wings**\
+`Use Eric Kim’s new recipe for Atlanta-style oven-fried hot wings, sharp and fiery, salty and crisp.`\
+https://nytimes.com/2024/10/25/dining/you-dont-have-to-deep-fry-your-wings.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s picks include a time-travel thriller with Dylan O’Brien and a dystopian comedy with Awkwafina and John Cena.`\
+https://nytimes.com/2024/10/25/movies/best-science-fiction-movies-streaming.html
+
+**Canucks notebook: The Elias Pettersson noise and seeking a top-four upgrade**\
+`Plus, Nils Höglander's increased role this season and the Canucks' cap-motivated AHL loans.`\
+https://nytimes.com/athletic/5865789/2024/10/25/canucks-elias-pettersson-defence-trade/
+
 **Safeya Binzagr, Saudi Artist Both Celebrated and Unseen, Dies at 84**\
 `Despite the gender restrictions of Saudi society, she claimed a place for herself, and other women, in the country’s art scene.`\
 https://nytimes.com/2024/10/25/arts/safeya-binzagr-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5864530/2024/10/25/mulcahey-fulham-allegations/
 **Fatal Drug Overdoses Are Dropping. Not Everyone Is Spared.**\
 `Federal officials have celebrated a striking drop in drug overdoses across the country. But state-level data shows that Black people are suffering significantly worse outcomes than white people.`\
 https://nytimes.com/2024/10/25/us/drug-overdoses-opioids-fentanyl.html
-
-**DeSantis Is Going All Out to Defeat Florida’s Abortion Ballot Question**\
-`Gov. Ron DeSantis, who signed a strict abortion ban, has become the face of a campaign against the referendum, which would allow abortions “before viability.”`\
-https://nytimes.com/2024/10/25/us/desantis-is-going-all-out-to-defeat-floridas-abortion-ballot-question.html
-
-**NHL Power Rankings: The wait for our first edition is over**\
-`For our first installment of the 2024-25 season, we included one bit about each team that's piquing our interest.`\
-https://nytimes.com/athletic/5871901/2024/10/25/nhl-power-rankings-23/
-
-**Philip Glass’s Musical Impression of an Artist Cut Down by AIDS**\
-`Glass’s Fourth String Quartet, written after the death of the artist Brian Buczak, will be performed at the New York City AIDS Memorial.`\
-https://nytimes.com/2024/10/25/arts/music/philip-glasss-quartet-brian-buczak.html
-
-**Inside Putin’s Alternate Reality: Warm Embraces and a Veneer of Normalcy**\
-`At a meeting of emerging economies, Vladimir Putin positioned himself as a respected and powerful leader, ignoring the condemnation he receives from the West.`\
-https://nytimes.com/2024/10/25/world/asia/brics-summit-putin-russia.html
-
-**Ramazani out for up to six weeks with ankle ligament injury**\
-`Leeds United winger Largie Ramazani is expected to be sidelined for up to six weeks due to an ankle ligament injury.`\
-https://nytimes.com/athletic/5872532/2024/10/25/largie-ramazani-leeds-injury/
 

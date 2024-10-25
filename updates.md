@@ -1,3 +1,23 @@
+**Tackling the Trent Alexander-Arnold Conundrum With Facts**\
+`Is the Liverpool star a good defender? It depends on your evidence.`\
+https://nytimes.com/2024/10/25/world/europe/arsenal-liverpool-trent-alexander-arnold.html
+
+**That 800-Year-Old Corpse in the Well? Early Biological Warfare.**\
+`Archaeologists in Norway have confirmed that an ancient set of human remains known as the Well Man were intended to make the locals unwell.`\
+https://nytimes.com/2024/10/25/science/archaeology-norway-sverresborg.html
+
+**You Don’t Have to Deep-Fry Your Wings**\
+`Use Eric Kim’s new recipe for Atlanta-style oven-fried hot wings, sharp and fiery, salty and crisp.`\
+https://nytimes.com/2024/10/25/dining/you-dont-have-to-deep-fry-your-wings.html
+
+**Five Science Fiction Movies to Stream Now**\
+`This month’s picks include a time-travel thriller with Dylan O’Brien and a dystopian comedy with Awkwafina and John Cena.`\
+https://nytimes.com/2024/10/25/movies/best-science-fiction-movies-streaming.html
+
+**Canucks notebook: The Elias Pettersson noise and seeking a top-four upgrade**\
+`Plus, Nils Höglander's increased role this season and the Canucks' cap-motivated AHL loans.`\
+https://nytimes.com/athletic/5865789/2024/10/25/canucks-elias-pettersson-defence-trade/
+
 **Safeya Binzagr, Saudi Artist Both Celebrated and Unseen, Dies at 84**\
 `Despite the gender restrictions of Saudi society, she claimed a place for herself, and other women, in the country’s art scene.`\
 https://nytimes.com/2024/10/25/arts/safeya-binzagr-dead.html
