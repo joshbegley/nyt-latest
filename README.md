@@ -1,3 +1,11 @@
+**49ers' Samuel, Kittle questionable; Jennings out vs. Cowboys**\
+`Samuel said Friday he’s feeling much better after a two-night hospital stay this week, but isn’t sure if he’ll play against the Cowboys.`\
+https://nytimes.com/athletic/5873373/2024/10/25/49ers-deebo-samuel-george-kittle-jauan-jennings/
+
+**Biden Apologizes for U.S. Mistreatment of Native American Children**\
+`President Biden offered a formal apology on Friday on behalf of the U.S. government for the abuse of Native American children from the early 1800s to the late 1960s.`\
+https://nytimes.com/video/us/100000009784291/biden-apology-native-american-children.html
+
 **Murals in Tehran Offer Tributes and Threats Against Israel**\
 `In the Iranian capital’s Palestine Square, a series of murals have telegraphed warnings to the country’s enemies.`\
 https://nytimes.com/2024/10/25/world/middleeast/iran-israel-war-tehran-murals.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5872570/2024/10/25/jose-sa-sam-johnstone-wolves/
 **‘Good Omens’ Season 3 Cut Short Amid Allegations Against Gaiman**\
 `The series is the third production linked to the author to face turmoil after allegations made by five women surfaced this summer.`\
 https://nytimes.com/2024/10/25/arts/television/good-omens-neil-gaiman.html
-
-**Mississippi’s Absentee Ballot Law Is Overturned**\
-`The law required officials to count absentee ballots received by mail up to five days after Election Day. It’s unclear if the ruling will affect the current election.`\
-https://nytimes.com/2024/10/25/us/mississippi-absentee-ballot-law.html
-
-**World Series celebrity Power Rankings: Yankees, Dodgers diehards from Jay-Z to Will Ferrell**\
-`The Yankees and Dodgers have the most celeb-filled fan bases in baseball. Who packs the most punch, and who cares about their team the most?`\
-https://nytimes.com/athletic/5872741/2024/10/25/world-series-celebrity-fan-power-rankings/
 
