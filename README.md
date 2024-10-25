@@ -1,3 +1,11 @@
+**The Culture Was Always Playing Catch-Up With Gary Indiana**\
+`From downtown New York, the writer both scrutinized and kept ahead of a turbulent world.`\
+https://nytimes.com/2024/10/25/books/review/gary-indiana-appraisal.html
+
+**Dodgers, Lakers, USC play at home Friday. Is L.A. ready for the traffic?**\
+`Four games and one concert will overlap in one night. The Athletic has you covered on what to expect with the heavy traffic.`\
+https://nytimes.com/athletic/5873623/2024/10/25/dodgers-yankees-lakers-sun-usc-los-angeles-traffic/
+
 **How the Country’s Understanding of Abortion Could Change if Trump Wins**\
 `Activists on both sides say Trump could effectively ban abortion nationwide and establish fetal personhood, the longtime goal of the anti-abortion movement.`\
 https://nytimes.com/2024/10/25/us/trump-abortion.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009784291/biden-apology-native-american-child
 **Murals in Tehran Offer Tributes and Threats Against Israel**\
 `In the Iranian capital’s Palestine Square, a series of murals have telegraphed warnings to the country’s enemies.`\
 https://nytimes.com/2024/10/25/world/middleeast/iran-israel-war-tehran-murals.html
-
-**Gang Gunfire in Haiti Hits U.S. Embassy Vehicles and U.N. Aid Helicopter**\
-`The attacks this week point to an escalation of violence as the situation worsens and gangs overwhelm security forces, including a multinational force.`\
-https://nytimes.com/2024/10/25/world/americas/haiti-gang-violence-us-embassy-un-helicopter.html
-
-**Obama Campaigns in North Carolina as Democrats Hope for a 2008 Repeat**\
-`The former president has been drawing crowds for Kamala Harris in every battleground, but his presence looms particularly large in the state the party hasn’t won since his first presidential bid.`\
-https://nytimes.com/2024/10/25/us/politics/harris-north-carolina-obama.html
 
