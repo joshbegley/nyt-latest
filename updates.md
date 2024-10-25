@@ -1,3 +1,7 @@
+**At a Town Hall in Detroit, Trump Asks Vance: ‘How Brilliant Is Donald Trump?’**\
+`Former President Donald J. Trump phoned in during a televised town hall with voters, surprising his running mate.`\
+https://nytimes.com/2024/10/24/us/politics/vance-detroit-trump-newsnation.html
+
 **Two Brothers Charged With Assaulting Officers in Jan. 6 Riot**\
 `Roger and Reynold Voisine, from upstate New York, used weapons that included a pipe, a police shield and a table leg studded with nails, prosecutors said.`\
 https://nytimes.com/2024/10/24/nyregion/jan-6-ny-brothers-charged.html
