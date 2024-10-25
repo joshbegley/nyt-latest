@@ -1,3 +1,7 @@
+**Blasts reported around Tehran after a year of escalating confrontations.**\
+`Blasts reported around Tehran after a year of escalating confrontations. `\
+https://nytimes.com/2024/10/25/world/middleeast/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations.html
+
 **The Personal Plea Phil Lesh Made Every Time He Took the Stage**\
 `For the past 25 years, the founding member of the Grateful Dead made a nightly speech about a topic that helped him stay performing into his 80s.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-liver-transplant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/world/middleeast/israel-gaza-hamas-hezbollah-jour
 **France’s Financial Morass Produces a Harsh Critique From Moody’s**\
 `The financial ratings agency, citing a “fiscal deterioration” with rising borrowing and a political logjam, downgraded its outlook for French debt.`\
 https://nytimes.com/2024/10/25/business/france-moodys-negative-outlook.html
-
-**49ers' Samuel, Kittle questionable; Jennings out vs. Cowboys**\
-`Samuel said Friday he’s feeling much better after a two-night hospital stay this week, but isn’t sure if he’ll play against the Cowboys.`\
-https://nytimes.com/athletic/5873373/2024/10/25/49ers-deebo-samuel-george-kittle-jauan-jennings/
 
