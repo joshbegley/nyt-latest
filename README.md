@@ -1,3 +1,11 @@
+**Business of Football: Everton expansion plans? Another NFL star heading to England? More Reading woe?**\
+`In his latest column, Matt Slater discusses Reading’s potential sale, a Las Vegas Raiders defensive end to… Tranmere, and the Club World Cup`\
+https://nytimes.com/athletic/5866053/2024/10/25/business-of-football-nfl-reading-inter-miami-everton-tranmere-fifa/
+
+**Next week’s waiver wire: Kimani Vidal, Troy Franklin and more players to add now — before the Week 9 rush**\
+`John Laghezza points you towards his top expected future waiver wire plays, including a couple options from the AFC West division.`\
+https://nytimes.com/athletic/5869651/2024/10/25/next-weeks-waiver-wire-kimani-vidal-troy-franklin-and-more-players-to-add-now-before-the-week-9-rush/
+
 **Five thoughts on the suddenly scuffling Maple Leafs**\
 `Two ugly back-to-back losses and it's suddenly a stormy season for the Maple Leafs.`\
 https://nytimes.com/athletic/5871401/2024/10/25/maple-leafs-blues-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/style/modern-love-classic-sometimes-its-not-you-o
 **Illinois at Oregon picks, odds, how to watch: Ducks favored to romp in top-25 matchup**\
 `Oregon is the newly-minted No. 1 team in the country. The Ducks get a test from No. 20 Illinois, but are favored by three scores.`\
 https://nytimes.com/athletic/5870349/2024/10/25/illinois-oregon-picks-odds-how-to-watch/
-
-**No More ‘Single Girl’ Posts for This Comedic Writer**\
-`Sara Runnels was known for her humorous stories and social media shares about the single life, but her dating status quickly changed after meeting Adam Zack.`\
-https://nytimes.com/2024/10/25/style/sara-runnels-adam-zach-wedding.html
-
-**A Love for Service and Each Other**\
-`Ana Lejava and Nickolas Calbos had dates all over the world. “I was acting out of my gut, not out of my brain,” Ms. Levaja said.`\
-https://nytimes.com/2024/10/25/style/ana-lejava-nickolas-calbos-wedding.html
 
