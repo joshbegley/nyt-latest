@@ -1,4 +1,12 @@
-**Yankees reveal World Series roster vs. Dodgers: Nestor Cortes back, Trent Grisham out**\
+**Flyers' John Tortorella reacts to line-combination criticisms; Jett Luchanko's status unclear**\
+`Why have the Flyers had so much change with the lines in the early part of the season?`\
+https://nytimes.com/athletic/5873118/2024/10/25/flyers-line-combinations-tortorella/
+
+**Our Robot Stories Haven’t Prepared Us for A.I.**\
+`‘The Wild Robot’ and Data from ‘Star Trek’ are very different from our chatbots.`\
+https://nytimes.com/2024/10/25/opinion/robot-artificial-intelligence.html
+
+**Yankees reveal World Series roster vs. Dodgers: Cortes back, Berti out**\
 `After missing the Yankees' first two rounds of the playoffs, Cortes will likely see his first postseason action in the World Series.`\
 https://nytimes.com/athletic/5871928/2024/10/25/yankees-reveal-world-series-roster-vs-dodgers-nestor-cortes-back-jon-berti-out/
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/un-warns-of-a
 **Commanders QB Jayden Daniels returns to practice Friday**\
 `Jayden Daniels returned to practice Friday, but the Commanders QB's game status is still to be determined for Sunday against the Bears.`\
 https://nytimes.com/athletic/5872848/2024/10/25/commanders-jayden-daniels-injury-update-bears/
-
-**Former Tech C.E.O. Dan Price Is Charged With Rape in California**\
-`The former chief of Gravity Payments rose to prominence with the introduction of his company’s $70,000 minimum salary and a splashy social media presence.`\
-https://nytimes.com/2024/10/25/technology/dan-price-gravity-payments-ceo-rape.html
-
-**Chinese Hackers Are Said to Have Targeted Phones Used by Trump and Vance**\
-`The Trump campaign was informed this week that hackers may have gained access to data from the phones through a breach of American telecommunications systems.`\
-https://nytimes.com/2024/10/25/us/politics/trump-vance-hack.html
 
