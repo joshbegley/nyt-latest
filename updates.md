@@ -1,3 +1,7 @@
+**Two Brothers Charged With Assaulting Officers in Jan. 6 Riot**\
+`Roger and Reynold Voisine, from upstate New York, used weapons that included a pipe, a police shield and a table leg studded with nails, prosecutors said.`\
+https://nytimes.com/2024/10/24/nyregion/jan-6-ny-brothers-charged.html
+
 **In Georgia, Harris Relies on Superstar Passion**\
 `Not as fiery as her celebrity surrogates, she could use a bit of their heart and fervor.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-georgia-obama-perry
