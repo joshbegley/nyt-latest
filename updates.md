@@ -1,3 +1,7 @@
+**Tracking Tropical Depression Kong-rey**\
+`See the likely path and wind arrival times for Kong-rey.`\
+https://nytimes.com/interactive/2024/10/25/weather/kong-rey-map-path-tracker.html
+
 **Nuggets learn some hard truths in opening loss to OKC Thunder**\
 `Denver needs to find its championship-level identity after "too many possessions that were not Nuggets basketball" against the Thunder.`\
 https://nytimes.com/athletic/5871871/2024/10/25/nuggets-loss-thunder-shooting-depth/

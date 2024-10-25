@@ -1,3 +1,7 @@
+**Tracking Tropical Depression Kong-rey**\
+`See the likely path and wind arrival times for Kong-rey.`\
+https://nytimes.com/interactive/2024/10/25/weather/kong-rey-map-path-tracker.html
+
 **Nuggets learn some hard truths in opening loss to OKC Thunder**\
 `Denver needs to find its championship-level identity after "too many possessions that were not Nuggets basketball" against the Thunder.`\
 https://nytimes.com/athletic/5871871/2024/10/25/nuggets-loss-thunder-shooting-depth/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/style/lisa-eldridge-lipstick.html
 **What Nolan Smith's emergence says about the Eagles defensive front**\
 `The 2023 first-round pick had a quiet rookie season but he's beginning to carve out his role in Vic Fangio's Eagles defense. `\
 https://nytimes.com/athletic/5870160/2024/10/25/nolan-smith-philadelphia-eagles-defense/
-
-**Renard emerges as serious candidate to become Saudi Arabia head coach**\
-`Herve Renard has emerged as a serious candidate to become the new Saudi Arabia men&#8217;s head coach.`\
-https://nytimes.com/athletic/5872138/2024/10/25/herve-renard-saudi-arabia-head-coach/
 
