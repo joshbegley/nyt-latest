@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5872297/2024/10/25/real-madrid-barcelona-el-clasico
 https://nytimes.com/2024/10/25/dining/diwali-sweets-mithai.html
 
 **Heat Today: Miami prepares to honor Dwyane Wade, regroup against Hornets this weekend**\
-`This weekend, the Heat seek to honor Dwyane Wade at home and regroup on the road`\
+`Wade will get a statue, and the Heat hope to collect their first win.`\
 https://nytimes.com/athletic/5872753/2024/10/25/miami-heat-dwyane-wade-nba/
 
 **The Windup: Last-minute World Series reads**\
