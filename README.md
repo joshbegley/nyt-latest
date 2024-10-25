@@ -1,3 +1,11 @@
+**NASA Astronaut Has ‘Medical Issue’ After SpaceX Splashdown**\
+`Three NASA astronauts and a fourth from the Russian space agency returned to Earth from the International Space Station on Friday morning after weather-related delays.`\
+https://nytimes.com/2024/10/25/science/nasa-spacex-astronaut-hospital.html
+
+**Why the Maple Leafs are not in a rush to split up their power play units**\
+`Despite recent struggles, Craig Berube is preaching patience with the Maple Leafs' power play.`\
+https://nytimes.com/athletic/5873246/2024/10/25/maple-leafs-power-play/
+
 **Biden Apologizes for U.S. Abuse of Indian Children, Calling It ‘a Sin on Our Soul’**\
 `From the early 1800s to the late 1960s, the federal government forced Native American children into boarding schools where they faced abuse and neglect that led in some cases to death.`\
 https://nytimes.com/2024/10/25/us/politics/biden-apology-indian-abuse.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/trump-officials-letter-fascist-john-k
 **In Wisconsin’s Senate Race, the Republican Highlights Baldwin’s Sexuality**\
 `Eric Hovde is closing out his challenge to Senator Tammy Baldwin, a low-key Midwesterner, with a new attack ad that appears to want to make sure voters know she’s gay.`\
 https://nytimes.com/2024/10/25/us/politics/wisconsin-senate-race-tammy-baldwin-sexuality.html
-
-**Los Angeles D.A.’s Move in Menendez Case Comes Amid Tough Re-election Bid**\
-`The review of the high-profile murder case by George Gascón’s office began more than a year ago. But critics say the timing of the decision was political.`\
-https://nytimes.com/2024/10/25/us/menendez-brothers-los-angeles-da.html
-
-**Rangers, Alexis Lafrenière finalizing 7-year contract extension**\
-`Lafrenière broke out in 2023-24, scoring a career-high 28 goals and 57 points.`\
-https://nytimes.com/athletic/5873020/2024/10/25/alexis-lafreniere-rangers-extension/
 
