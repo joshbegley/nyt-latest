@@ -1,3 +1,7 @@
+**Fantasy Trends and Hidden Gems: Tyler Bertuzzi, Kirill Marchenko and slow starter worries**\
+`Shayna Goldman discusses NHL fantasy trends and possible roster additions to help you succeed this season. `\
+https://nytimes.com/athletic/5871627/2024/10/25/fantasy-trends-and-hidden-gems-week-4/
+
 **Review: A Standard Rushes Back to the Philharmonic**\
 `The New York Philharmonic has played Tchaikovsky’s “Pathétique” Symphony twice in two years. Rafael Payare led its latest outing.`\
 https://nytimes.com/2024/10/25/arts/music/new-york-philharmonic-payare-review.html

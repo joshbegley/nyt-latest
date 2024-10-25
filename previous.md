@@ -1,3 +1,7 @@
+**Fantasy Trends and Hidden Gems: Tyler Bertuzzi, Kirill Marchenko and slow starter worries**\
+`Shayna Goldman discusses NHL fantasy trends and possible roster additions to help you succeed this season. `\
+https://nytimes.com/athletic/5871627/2024/10/25/fantasy-trends-and-hidden-gems-week-4/
+
 **Review: A Standard Rushes Back to the Philharmonic**\
 `The New York Philharmonic has played Tchaikovsky’s “Pathétique” Symphony twice in two years. Rafael Payare led its latest outing.`\
 https://nytimes.com/2024/10/25/arts/music/new-york-philharmonic-payare-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-president-new-york.html
 **Election 2024 Polls:New Hampshire**\
 `See the latest election polls and polling averages for New Hampshire.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-new-hampshire.html
-
-**Election 2024 Polls:Nebraska C.D. 2**\
-`See the latest election polls and polling averages for Nebraska C.D. 2.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-nebraska-2.html
 
