@@ -1,3 +1,11 @@
+**Election 2024 Polls: New York**\
+`See the latest election polls and polling averages for New York.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-new-york.html
+
+**Election 2024 Polls: New Hampshire**\
+`See the latest election polls and polling averages for New Hampshire.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-new-hampshire.html
+
 **Fantasy Trends and Hidden Gems: Tyler Bertuzzi, Kirill Marchenko and slow starter worries**\
 `Shayna Goldman discusses NHL fantasy trends and possible roster additions to help you succeed this season. `\
 https://nytimes.com/athletic/5871627/2024/10/25/fantasy-trends-and-hidden-gems-week-4/
