@@ -1,3 +1,7 @@
+**Hezbollah’s military remains resilient, even after heavy blows from Israel, experts say.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/hezbollah-military-capabilities
+
 **Raphinha considered leaving Barcelona 'several times'**\
 `Raphinha says he has thought about leaving Barcelona &#8220;several times&#8221; since joining the club in 2022.`\
 https://nytimes.com/athletic/5872804/2024/10/25/raphinha-barcelona-transfer/
