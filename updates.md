@@ -1,3 +1,7 @@
+**The Briefing: England Women 3 Germany Women 4 - Lionesses attempted comeback arrives too late**\
+`Our writers analyse the key talking points from England's defeat to Germany`\
+https://nytimes.com/athletic/5869652/2024/10/25/england-women-germany-women-come-back-too-late/
+
 **Vikings' Darrisaw to undergo season-ending knee surgery**\
 `Christian Darrisaw, who started 46 of his first 48 appearances for the Vikings, suffered "significant" ACL and MCL injuries.`\
 https://nytimes.com/athletic/5873195/2024/10/25/vikings-christian-darrisaw-surgery/

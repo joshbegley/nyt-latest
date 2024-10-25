@@ -1,3 +1,7 @@
+**The Briefing: England Women 3 Germany Women 4 - Lionesses attempted comeback arrives too late**\
+`Our writers analyse the key talking points from England's defeat to Germany`\
+https://nytimes.com/athletic/5869652/2024/10/25/england-women-germany-women-come-back-too-late/
+
 **Vikings' Darrisaw to undergo season-ending knee surgery**\
 `Christian Darrisaw, who started 46 of his first 48 appearances for the Vikings, suffered "significant" ACL and MCL injuries.`\
 https://nytimes.com/athletic/5873195/2024/10/25/vikings-christian-darrisaw-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/travel/lost-luggage-customer-service.html
 **NASA Astronaut Has ‘Medical Issue’ After SpaceX Splashdown**\
 `Three NASA astronauts and a fourth from the Russian space agency returned to Earth from the International Space Station on Friday morning after weather-related delays.`\
 https://nytimes.com/2024/10/25/science/nasa-spacex-astronaut-hospital.html
-
-**Why the Maple Leafs are not in a rush to split up their power play units**\
-`Despite recent struggles, Craig Berube is preaching patience with the Maple Leafs' power play.`\
-https://nytimes.com/athletic/5873246/2024/10/25/maple-leafs-power-play/
 
