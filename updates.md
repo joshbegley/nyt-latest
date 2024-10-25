@@ -1,3 +1,7 @@
+**Renard emerges as serious candidate to become Saudi Arabia head coach**\
+`Herve Renard has emerged as a serious candidate to become the new Saudi Arabia men&#8217;s head coach.`\
+https://nytimes.com/athletic/5872138/2024/10/25/herve-renard-saudi-arabia-head-coach/
+
 **The Athletic FC: Tall vs technical debate, MLS salaries revealed, Mourinho vs United fallout**\
 `Today in TAFC: How important is height in football? Plus: Mourinho vs United and Onana's brilliant double save; MLS salaries revealed.`\
 https://nytimes.com/athletic/5872229/2024/10/25/height-in-football-mls-salaries-messi-onana-save/
