@@ -1,3 +1,15 @@
+**Raphinha considered leaving Barcelona 'several times'**\
+`Raphinha says he has thought about leaving Barcelona &#8220;several times&#8221; since joining the club in 2022.`\
+https://nytimes.com/athletic/5872804/2024/10/25/raphinha-barcelona-transfer/
+
+**El Clasico preview: In-form Vinicius Jr, a test for Flick's revolution and dazzling Yamal**\
+`There will be plenty at stake when Madrid take on arch-rivals Barca at the Bernabeu on Saturday. Here's what to look out for`\
+https://nytimes.com/athletic/5872297/2024/10/25/real-madrid-barcelona-el-clasico-preview/
+
+**Mithai Sheds Its Too-Sweet Reputation**\
+`Younger South Asian cooks are riffing on these classics, turning them into cookies, pies and ice cream, and (gasp!) adding salt.`\
+https://nytimes.com/2024/10/25/dining/diwali-sweets-mithai.html
+
 **Heat Today: Miami prepares to honor Dwyane Wade, regroup against Hornets this weekend**\
 `This weekend, the Heat seek to honor Dwyane Wade at home and regroup on the road`\
 https://nytimes.com/athletic/5872753/2024/10/25/miami-heat-dwyane-wade-nba/
