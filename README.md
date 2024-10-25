@@ -1,3 +1,11 @@
+**Why Alex Caruso's mindset, Chet Holmgren's durability make these Thunder different**\
+`Oklahoma City's strong opening-night win at Denver proved all the offseason Thunder hype was justified.`\
+https://nytimes.com/athletic/5871487/2024/10/25/thunder-caruso-holmgren-opener/
+
+**Guardiola in the dark over De Bruyne injury return**\
+`Pep Guardiola says he does not yet know when Kevin De Bruyne will be back in action.`\
+https://nytimes.com/athletic/5872365/2024/10/25/kevin-de-bruyne-injury-man-city-guardiola/
+
 **Israeli warplanes again strike Syria-Lebanon border crossings, the U.N. says.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-warplanes-again-strike-syria-lebanon-border-crossings-the-un-says
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/25/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: In Last Leg of Dead-Heat Race, Rival Campaigns Both Stop in Texas**\
 `Vice President Kamala Harris is holding a rally in Houston to highlight abortion rights. Former President Donald Trump is visiting Austin to tape a podcast episode with Joe Rogan.`\
 https://nytimes.com/live/2024/10/25/us/harris-trump-election
-
-**Amick: Nuggets' opening-night dud against Thunder adds to team's internal angst**\
-`It was just the opener, but Denver saw how formidable Oklahoma City will be in the West this season.`\
-https://nytimes.com/athletic/5872086/2024/10/25/thunder-nuggets-takeaways-column/
-
-**Giants leadership gets vote of confidence, but team's past proves how fast things can change**\
-`Team co-owner John Mara doesn't "anticipate" moving on from Joe Schoen and Brian Daboll, but that word gives him room to change his mind.`\
-https://nytimes.com/athletic/5871579/2024/10/25/giants-brian-daboll-joe-schoen-john-mara-vote-of-confidence/
 
