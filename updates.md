@@ -1,3 +1,7 @@
+**Ten Hag provides injury update on Antony**\
+`Erik ten Hag says Manchester United will &#8220;need to wait 24 hours&#8221; to have a better understanding of Antony’s injury after the winger was stretchered off during Thursday’s 1-1 Europa League draw with Fenerbahce.`\
+https://nytimes.com/athletic/5871966/2024/10/25/erik-ten-hag-antony-manchester-united/
+
 **Chelsea in a UEFA Conference League class of their own - only complacency can stop them**\
 `Two minutes into the second half at Athens Olympic Stadium, a chasm suddenly opened in the middle of Chelsea’s defence and Panathinaikos winger Facundo Pellistri, a Uruguayan international on the books at Manchester United until last summer, charged purposefully into an ocean of space and directly towards Filip Jorgensen’s goal.`\
 https://nytimes.com/athletic/5869840/2024/10/25/panathinaikos-chelsea-conference-league/
