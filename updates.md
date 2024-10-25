@@ -1,3 +1,11 @@
+**Are Elon Musk and Vladimir Putin Talking?**\
+`The billionaire has reportedly been in regular contact with the Russian president, heaping more scrutiny on the power and influence the entrepreneur wields over the U.S. government.`\
+https://nytimes.com/2024/10/25/business/dealbook/musk-putin-trump.html
+
+**Julius Randle answers the call, Anthony Edwards closes the door for Wolves**\
+`Edwards and Randle combined for 65 points, 10 3-pointers and eight assists, and they're not even in sync yet.`\
+https://nytimes.com/athletic/5871410/2024/10/25/julius-randle-anthony-edwards-timberwolves-kings/
+
 **The Perfect Red Lipstick Doesn’t Exist … Or Does It?**\
 `The makeup artist and influential YouTuber Lisa Eldridge may have cracked the code.`\
 https://nytimes.com/2024/10/25/style/lisa-eldridge-lipstick.html
