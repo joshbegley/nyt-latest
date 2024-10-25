@@ -1,3 +1,7 @@
+**Media Organizations Criticize Israeli Strike That Killed Three Journalists**\
+`Israel says it was bombing a structure associated with Hezbollah and says it is reviewing the strike.`\
+https://nytimes.com/2024/10/25/world/middleeast/israel-gaza-hamas-hezbollah-journalists.html
+
 **France’s Financial Morass Produces a Harsh Critique From Moody’s**\
 `The financial ratings agency, citing a “fiscal deterioration” with rising borrowing and a political logjam, downgraded its outlook for French debt.`\
 https://nytimes.com/2024/10/25/business/france-moodys-negative-outlook.html
