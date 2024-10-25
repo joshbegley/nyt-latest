@@ -1,3 +1,11 @@
+**Giants leadership gets vote of confidence, but team's past proves how fast things can change**\
+`Team co-owner John Mara doesn't "anticipate" moving on from Joe Schoen and Brian Daboll, but that word gives him room to change his mind.`\
+https://nytimes.com/athletic/5871579/2024/10/25/giants-brian-daboll-joe-schoen-john-mara-vote-of-confidence/
+
+**Mikaela Shiffrin is back and hunting for the next milestone as a new season begins**\
+`Mikaela Shiffrin's 2024 started with an injury. Now a new season begins with her eyeing a big milestone — and the Olympics on the horizon. `\
+https://nytimes.com/athletic/5870548/2024/10/25/mikaela-shiffrin-olympics-skiing-world-cup-austria/
+
 **Scouting Martina Hingis and a duchy instead of six kings - inside the Luxembourg Ladies Masters**\
 `With entry criteria, a scouting system, and Grand Slam winners, this exhibition points to the need for pathways for tennis veterans`\
 https://nytimes.com/athletic/5860648/2024/10/25/luxembourg-ladies-masters-womens-tennis-hingis-ivanovic/
