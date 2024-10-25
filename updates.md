@@ -1,3 +1,11 @@
+**Rangers, Alexis Lafrenière finalizing 7-year contract extension**\
+`Lafrenière broke out in 2023-24, scoring a career-high 28 goals and 57 points.`\
+https://nytimes.com/athletic/5873020/2024/10/25/alexis-lafreniere-rangers-extension/
+
+**The New York Times Is Looking for Flashback Contributors**\
+`The best clues for the weekly history quiz are tiny stories that combine the familiar with the surprising.`\
+https://nytimes.com/2024/10/25/upshot/flashback-contributors.html
+
 **Potentially Damaging Winds Expected to Return to Southern California**\
 `Northerly winds, slightly stronger than the most recent wind event earlier this month, will blow through Southern California in the days leading up to Halloween.`\
 https://nytimes.com/2024/10/25/weather/los-angeles-winds-california.html
