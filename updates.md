@@ -1,3 +1,7 @@
+**Wilson ruled out of Newcastle's next three games due to 'tightness in body'**\
+`Callum Wilson will miss Newcastle United&#8217;s next three matches after feeling &#8220;some tightness in his body&#8221;, head coach Eddie Howe has confirmed.`\
+https://nytimes.com/athletic/5872025/2024/10/25/callum-wilson-newcastle-injury-latest/
+
 **A Pivotal Election for Georgia, Explained**\
 `A parliamentary vote could decide whether the Caucasus nation will be oriented to the West or East for years to come. Here’s what to know.`\
 https://nytimes.com/2024/10/25/world/europe/georgia-election-explained.html

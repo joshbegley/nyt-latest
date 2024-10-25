@@ -1,3 +1,7 @@
+**Wilson ruled out of Newcastle's next three games due to 'tightness in body'**\
+`Callum Wilson will miss Newcastle United&#8217;s next three matches after feeling &#8220;some tightness in his body&#8221;, head coach Eddie Howe has confirmed.`\
+https://nytimes.com/athletic/5872025/2024/10/25/callum-wilson-newcastle-injury-latest/
+
 **A Pivotal Election for Georgia, Explained**\
 `A parliamentary vote could decide whether the Caucasus nation will be oriented to the West or East for years to come. Here’s what to know.`\
 https://nytimes.com/2024/10/25/world/europe/georgia-election-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/nyregion/columbia-university-kathleen-franke.html
 **What to Know About New York’s Six Ballot Measures**\
 `The first, Proposition 1, is designed to enshrine abortion rights in the state Constitution. The rest would make changes to New York City’s governing charter.`\
 https://nytimes.com/2024/10/25/nyregion/new-york-ballot-measures-proposals-proposition-1.html
-
-**New York’s 6 Pivotal House Races: Here’s What to Know**\
-`Six House seats, including five held by Republicans, may be the key in determining which party will control the chamber for the next two years.`\
-https://nytimes.com/2024/10/25/nyregion/ny-voter-guide-house-races.html
 
