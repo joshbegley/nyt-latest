@@ -1,3 +1,7 @@
+**The Pulse: How did they miss this call?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5870516/2024/10/25/vikings-rams-sam-darnold-facemask-the-pulse/
+
 **Israel Says 5 Soldiers Were Killed in Southern Lebanon**\
 `As clashes with Hezbollah militants intensified, Israel’s public broadcaster reported that the soldiers had been killed when a rocket struck a building they were in.`\
 https://nytimes.com/2024/10/25/world/middleeast/israel-soldiers-killed-hezbollah-lebanon.html
