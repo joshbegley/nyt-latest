@@ -1,3 +1,15 @@
+**History, Money and Glamour Define a New York vs. Los Angeles World Series**\
+`The two biggest cities in America have as many differences as similarities — including in public transportation, ballparks and payrolls`\
+https://nytimes.com/2024/10/25/us/world-series-los-angeles-new-york.html
+
+**Barbara Dane, Who Fought Injustice Through Song, Dies at 97**\
+`She was highly regarded as a folk, blues and jazz singer. She was also ardently left-wing and prioritized social change over commercial success.`\
+https://nytimes.com/2024/10/25/arts/music/barbara-dane-dead.html
+
+**Prime Tire: F1's racing rules drama, explained. Plus, the latest from the Mexico City GP**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
+https://nytimes.com/athletic/5853728/2024/10/25/f1-racing-rules-drama-mexico-city-gp-prime-tire/
+
 **E. Coli Outbreak Tied to McDonald’s Widens to 75 People in 13 States**\
 `Health officials say that recalls of onions — the suspected source of the contamination — would help lessen the risk to consumers. Other major fast-food chains have also stopped offering onions.`\
 https://nytimes.com/2024/10/25/health/e-coli-mcdonalds-quarter-pounder-onions.html

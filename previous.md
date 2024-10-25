@@ -1,3 +1,15 @@
+**History, Money and Glamour Define a New York vs. Los Angeles World Series**\
+`The two biggest cities in America have as many differences as similarities — including in public transportation, ballparks and payrolls`\
+https://nytimes.com/2024/10/25/us/world-series-los-angeles-new-york.html
+
+**Barbara Dane, Who Fought Injustice Through Song, Dies at 97**\
+`She was highly regarded as a folk, blues and jazz singer. She was also ardently left-wing and prioritized social change over commercial success.`\
+https://nytimes.com/2024/10/25/arts/music/barbara-dane-dead.html
+
+**Prime Tire: F1's racing rules drama, explained. Plus, the latest from the Mexico City GP**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
+https://nytimes.com/athletic/5853728/2024/10/25/f1-racing-rules-drama-mexico-city-gp-prime-tire/
+
 **E. Coli Outbreak Tied to McDonald’s Widens to 75 People in 13 States**\
 `Health officials say that recalls of onions — the suspected source of the contamination — would help lessen the risk to consumers. Other major fast-food chains have also stopped offering onions.`\
 https://nytimes.com/2024/10/25/health/e-coli-mcdonalds-quarter-pounder-onions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/25/arts/television/donald-trump-kamala-harris.html
 **Review: Porcupines of Plastic and Other Provocations**\
 `The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
 https://nytimes.com/2024/10/25/arts/dance/review-nadia-beugre-quartier-libres-revisited.html
-
-**Ravens LB Roquan Smith fined $16,833 for illegal tackle**\
-`Smith will have to pay $16,833 for the hit that resulted in Godwin dislocating his ankle. `\
-https://nytimes.com/athletic/5872897/2024/10/25/ravens-roquan-smith-fined-hip-drop-chris-godwin/
-
-**New ‘RBG PAC’ Spending $19 Million From Secret Donors to Aid Trump on Abortion**\
-`A new Republican super PAC is running ads invoking the name of Ruth Bader Ginsburg to help Donald Trump win over voters who favor abortion rights.`\
-https://nytimes.com/2024/10/25/us/politics/trump-ruth-bader-ginsberg-abortion-ad.html
-
-**Abercrombie, Pushing a New Image, Confronts Accusations Against Ex-C.E.O.**\
-`Recent sex trafficking charges against Michael Jeffries could implicate the retailer, too, as it tries to close a tumultuous chapter in its history.`\
-https://nytimes.com/2024/10/25/business/abercrombie-mike-jeffries-sex-trafficking-charges.html
 
