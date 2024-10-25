@@ -1,3 +1,23 @@
+**Jim Harbaugh's vision of a consistent Chargers running attack hasn't taken hold yet**\
+`The Chargers have shown flashes in the running game, but the loss to the Cardinals was a setback and shows where they must improve.`\
+https://nytimes.com/athletic/5871118/2024/10/25/chargers-running-game-jim-harbaugh-greg-roman/
+
+**49ers’ best fits at trade deadline: Ranking positions from chock-full to needs help**\
+`Za'Darius Smith? Azeez Ojulari? Arden Key? There seems to be an intersection of need and availability at defensive end.`\
+https://nytimes.com/athletic/5870736/2024/10/25/49ers-trade-deadline-best-fits/
+
+**Brandon Belt would have helped these teams reach the World Series**\
+`Brandon Belt had an .858 OPS in 2023 but didn’t receive any decent offers to play this season. These teams should regret that.`\
+https://nytimes.com/athletic/5870025/2024/10/25/brandon-belt-world-series-contenders/
+
+**What a Giant Hole Says About a Broad Parking Problem**\
+`There’s a powerful but obscure force operating in New York and elsewhere: the parking minimum.`\
+https://nytimes.com/2024/10/25/upshot/parking-mandates-new-york.html
+
+**Padres free-agent notes on Jurickson Profar, Ha-Seong Kim, Kyle Higashioka and more**\
+`Here's how things stand with eight impending free agents. Who are the likeliest to re-sign with the Padres?`\
+https://nytimes.com/athletic/5870973/2024/10/25/padres-free-agents-jurickson-profar-ha-seong-kim-kyle-higashioka/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5871579/2024/10/25/giants-brian-daboll-joe-schoen-j
 **Mikaela Shiffrin is back and hunting for the next milestone as a new season begins**\
 `Mikaela Shiffrin's 2024 started with an injury. Now a new season begins with her eyeing a big milestone — and the Olympics on the horizon. `\
 https://nytimes.com/athletic/5870548/2024/10/25/mikaela-shiffrin-olympics-skiing-world-cup-austria/
-
-**Scouting Martina Hingis and a duchy instead of six kings - inside the Luxembourg Ladies Masters**\
-`With entry criteria, a scouting system and Grand Slam winners, this exhibition points to the need for pathways for tennis veterans`\
-https://nytimes.com/athletic/5860648/2024/10/25/luxembourg-ladies-masters-womens-tennis-hingis-ivanovic/
-
-**Can the World Series beat the NFL on TV for one night?**\
-`With an epic matchup featuring the country's biggest media markets, MLB just might have a shot to unseat the TV ratings king for one night.`\
-https://nytimes.com/athletic/5860573/2024/10/25/world-series-nfl-tv-ratings-viewership-yankees-dodgers/
-
-**The Athletic’s Friday football quiz question #27**\
-`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/5870446/2024/10/25/the-athletics-friday-football-quiz-question-27/
-
-**NBA Reliability Tiers: From LeBron to Luka, league's top stars populate our top 10**\
-`Which NBA All-Star and All-NBA player is the most reliable? We finish our series with the league's brightest stars.`\
-https://nytimes.com/athletic/5852538/2024/10/25/tatum-jokic-embiid-nba-reliability-tier-1/
-
-**Bears mailbag: Trade candidates, Rome Odunze's usage and Week 8 picks**\
-`Are the Bears sellers? What can their offense do against a below-average Commanders defense? See the Week 8 picks in this week's mailbag.`\
-https://nytimes.com/athletic/5870455/2024/10/25/bears-mailbag-trade-deadline-rome-odunze-week-8-picks/
 

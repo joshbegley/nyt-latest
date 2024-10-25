@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: In Last Leg of Dead-Heat Race, Rival Campaigns Both Stop in Texas**\
+`Vice President Kamala Harris is holding a rally in Houston to highlight abortion rights. Former President Donald Trump is visiting Austin to tape a podcast episode with Joe Rogan.`\
+https://nytimes.com/live/2024/10/25/us/harris-trump-election
+
+**Amick: Nuggets' opening-night dud against Thunder adds to team's internal angst**\
+`It was just the opener, but Denver saw how formidable Oklahoma City will be in the West this season.`\
+https://nytimes.com/athletic/5872086/2024/10/25/thunder-nuggets-takeaways-column/
+
+**Scouting Martina Hingis and a duchy instead of six kings - inside the Luxembourg Ladies Masters**\
+`With entry criteria, a scouting system and Grand Slam winners, this exhibition points to the need for pathways for tennis veterans`\
+https://nytimes.com/athletic/5860648/2024/10/25/luxembourg-ladies-masters-womens-tennis-hingis-ivanovic/
+
 **Giants leadership gets vote of confidence, but team's past proves how fast things can change**\
 `Team co-owner John Mara doesn't "anticipate" moving on from Joe Schoen and Brian Daboll, but that word gives him room to change his mind.`\
 https://nytimes.com/athletic/5871579/2024/10/25/giants-brian-daboll-joe-schoen-john-mara-vote-of-confidence/
