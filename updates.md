@@ -1,3 +1,19 @@
+**Cornwall Is England’s Most Magical County. Here’s Where to Go.**\
+`Locals recommend the area’s best pies, wild gardens and coastal footpaths.`\
+https://nytimes.com/2024/10/25/t-magazine/cornwall-england-hotels-restaurants-guide.html
+
+**Stephens: The Sharks are still searching for a win — and their new identity**\
+`Eight games, eight losses. Frustration is setting in for the Sharks and new coach Ryan Warsofsky. `\
+https://nytimes.com/athletic/5872046/2024/10/25/san-jose-sharks-nhl-kings/
+
+**Liverpool recruitment director Fallows to leave the club**\
+`Liverpool have announced director of scouting and recruitment Dave Fallows is to leave the club at the end of the year.`\
+https://nytimes.com/athletic/5872713/2024/10/25/liverpool-recruitment-director-fallows/
+
+**The W.H.O. says it has lost contact with a northern Gaza hospital.**\
+`By Liam Stack, Raja Abdulrahim and Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/the-who-says-it-has-lost-contact-with-a-northern-gaza-hospital
+
 **Kelly’s Comments About Trump, Fascism and Hitler**\
 `Responses to the former Trump chief of staff’s comments. Also: Election disinformation; a voter paradox; Harris donations; biodiversity; pandas.`\
 https://nytimes.com/2024/10/25/opinion/kelly-trump-fascism-hitler.html
