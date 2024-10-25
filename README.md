@@ -1,3 +1,11 @@
+**Are Elon Musk and Vladimir Putin Talking?**\
+`The billionaire has reportedly been in regular contact with the Russian president, heaping more scrutiny on the power and influence the entrepreneur wields over the U.S. government.`\
+https://nytimes.com/2024/10/25/business/dealbook/musk-putin-trump.html
+
+**Julius Randle answers the call, Anthony Edwards closes the door for Wolves**\
+`Edwards and Randle combined for 65 points, 10 3-pointers and eight assists, and they're not even in sync yet.`\
+https://nytimes.com/athletic/5871410/2024/10/25/julius-randle-anthony-edwards-timberwolves-kings/
+
 **The Perfect Red Lipstick Doesn’t Exist … Or Does It?**\
 `The makeup artist and influential YouTuber Lisa Eldridge may have cracked the code.`\
 https://nytimes.com/2024/10/25/style/lisa-eldridge-lipstick.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-warpl
 **Jim Harbaugh's vision of a consistent Chargers running attack hasn't taken hold yet**\
 `The Chargers have shown flashes in the running game, but the loss to the Cardinals was a setback and shows where they must improve.`\
 https://nytimes.com/athletic/5871118/2024/10/25/chargers-running-game-jim-harbaugh-greg-roman/
-
-**49ers’ best fits at trade deadline: Ranking positions from chock-full to needs help**\
-`Za'Darius Smith? Azeez Ojulari? Arden Key? There seems to be an intersection of need and availability at defensive end.`\
-https://nytimes.com/athletic/5870736/2024/10/25/49ers-trade-deadline-best-fits/
-
-**Brandon Belt would have helped these teams reach the World Series**\
-`Brandon Belt had an .858 OPS in 2023 but didn’t receive any decent offers to play this season. These teams should regret that.`\
-https://nytimes.com/athletic/5870025/2024/10/25/brandon-belt-world-series-contenders/
 
