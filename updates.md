@@ -1,3 +1,7 @@
+**Review: A Standard Rushes Back to the Philharmonic**\
+`The New York Philharmonic has played Tchaikovsky’s “Pathétique” Symphony twice in two years. Rafael Payare led its latest outing.`\
+https://nytimes.com/2024/10/25/arts/music/new-york-philharmonic-payare-review.html
+
 **Cornwall Is England’s Most Magical County. Here’s Where to Go.**\
 `Locals recommend the area’s best pies, wild gardens and coastal footpaths.`\
 https://nytimes.com/2024/10/25/t-magazine/cornwall-england-hotels-restaurants-guide.html
