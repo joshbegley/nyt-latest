@@ -1,3 +1,11 @@
+**Aid into Gaza picks up slightly, but that is only part of the battle, relief groups say.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/aid-into-gaza-picks-up-slightly-but-that-is-only-part-of-the-battle-relief-groups-say
+
+**Biden Administration Floats Student Loan Relief for Borrowers Facing Hardship**\
+`The proposal, which faces tough legal prospects, would offer forgiveness to millions of borrowers who are unable to pay back their loans because of financial setbacks.`\
+https://nytimes.com/2024/10/25/us/politics/student-loan-debt-hardship-biden.html
+
 **The Briefing: England Women 3 Germany Women 4 - Lionesses attempted comeback arrives too late**\
 `Our writers analyse the key talking points from England's defeat to Germany`\
 https://nytimes.com/athletic/5869652/2024/10/25/england-women-germany-women-come-back-too-late/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/22/opinion/thepoint/gaza-polio-vaccine-un
 **Phil Lesh, Bassist Who Anchored the Grateful Dead, Dies at 84**\
 `One of the first rock bassists whose instrument regularly took a lead role, he also had a hand in writing some of the band’s best-known songs.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-dead.html
-
-**Airline Lost Your Bag? Here’s How to Reunite With Your Luggage.**\
-`Or at least be reimbursed if it’s gone for good.`\
-https://nytimes.com/2024/10/25/travel/lost-luggage-customer-service.html
-
-**NASA Astronaut Has ‘Medical Issue’ After SpaceX Splashdown**\
-`Three NASA astronauts and a fourth from the Russian space agency returned to Earth from the International Space Station on Friday morning after weather-related delays.`\
-https://nytimes.com/2024/10/25/science/nasa-spacex-astronaut-hospital.html
 
