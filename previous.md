@@ -1,3 +1,7 @@
+**Harris Has Been a Voice on Race and Gender. She Doesn’t Broadcast It.**\
+`As vice president, Kamala Harris often tried to use government to target racism and sexism.`\
+https://nytimes.com/2024/10/25/us/politics/harris-racism-sexism-policies.html
+
 **Trump directs new threats at Jack Smith, the special counsel.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/10/25/us/harris-trump-election/trump-directs-new-threats-at-jack-smith-the-special-counsel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/business/abercrombie-mike-jeffries-sex-traffickin
 **Overlooked No More: Margaret E. Knight, Innovator of the Flat-Bottomed Paper Bag**\
 `She came up with a method of automation so that workers would not have to make the bags by hand. Then she fought for credit for her work.`\
 https://nytimes.com/2024/10/25/obituaries/margaret-e-knight-overlooked.html
-
-**The three passes that can unlock El Clasico and the two Barcelona players who can make them**\
-`There will be focus on Real Madrid's big-name attackers - but it's the players marking them who may prove to be the game's decisive actors`\
-https://nytimes.com/athletic/5866319/2024/10/25/barcelona-centre-backs-key-passes/
 

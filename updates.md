@@ -1,3 +1,7 @@
+**Harris Has Been a Voice on Race and Gender. She Doesn’t Broadcast It.**\
+`As vice president, Kamala Harris often tried to use government to target racism and sexism.`\
+https://nytimes.com/2024/10/25/us/politics/harris-racism-sexism-policies.html
+
 **Trump directs new threats at Jack Smith, the special counsel.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/10/25/us/harris-trump-election/trump-directs-new-threats-at-jack-smith-the-special-counsel
