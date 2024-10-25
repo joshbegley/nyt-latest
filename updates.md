@@ -1,3 +1,15 @@
+**C.D.C. Lowers Age to Get Vaccine Against Pneumonia**\
+`Adults 50 and older can now get the shot, as rates of the illness climb.`\
+https://nytimes.com/2024/10/25/well/cdc-pneumonia-vaccine-age.html
+
+**Russia Raises Interest Rate to 21 Percent, Its Highest in Decades**\
+`Military spending and recruitment are causing the country’s economy to overheat, leaving regulators in a struggle to rein in rising prices.`\
+https://nytimes.com/2024/10/25/world/europe/russia-interest-rate.html
+
+**'Unacceptable' handling of sexual assault claims linked to Fulham Football Club raises more questions for police**\
+`Reporting by The Athletic today raises concerns regarding the adequacy of a police investigation into sexual abuse of young women at Fulham`\
+https://nytimes.com/athletic/5864530/2024/10/25/mulcahey-fulham-allegations/
+
 **Fatal Drug Overdoses Are Dropping. Not Everyone Is Spared.**\
 `Federal officials have celebrated a striking drop in drug overdoses across the country. But state-level data shows that Black people are suffering significantly worse outcomes than white people.`\
 https://nytimes.com/2024/10/25/us/drug-overdoses-opioids-fentanyl.html
