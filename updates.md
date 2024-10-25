@@ -1,3 +1,7 @@
+**Improving results against top teams key for Liverpool's season - Slot**\
+`Arne Slot admits improving Liverpool’s record against the top teams could have a huge impact on their season.`\
+https://nytimes.com/athletic/5872101/2024/10/25/arne-slot-liverpool-results/
+
 **Autocracies Against Ukraine**\
 `We explain North Korea’s decision to send troops to help Russia.`\
 https://nytimes.com/2024/10/25/briefing/autocracies-against-ukraine.html

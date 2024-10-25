@@ -1,3 +1,7 @@
+**Improving results against top teams key for Liverpool's season - Slot**\
+`Arne Slot admits improving Liverpool’s record against the top teams could have a huge impact on their season.`\
+https://nytimes.com/athletic/5872101/2024/10/25/arne-slot-liverpool-results/
+
 **Autocracies Against Ukraine**\
 `We explain North Korea’s decision to send troops to help Russia.`\
 https://nytimes.com/2024/10/25/briefing/autocracies-against-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5870477/2024/10/25/mls-calendar-flip-ready-change/
 **Vikings left reeling as Brian Flores' defense is again picked apart in loss to Rams**\
 `The Vikings defenders no longer feel bulletproof. That was apparent last week in a loss to Detroit and in Thursday night's loss in L.A.`\
 https://nytimes.com/athletic/5871968/2024/10/25/vikings-rams-defense-brian-flores-loss/
-
-**Poll Shows Dead Heat, and Biden to Apologize for Native American School Abuses**\
-`Plus, a World Series with baseball’s biggest stars.`\
-https://nytimes.com/2024/10/25/podcasts/election-poll-biden-apology.html
 
