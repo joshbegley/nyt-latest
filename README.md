@@ -1,3 +1,11 @@
+**What’s at Stake in the 2024 Election**\
+`A 14-day series highlighting our best coverage of the most important issues in this election.`\
+https://nytimes.com/interactive/2024/us/politics/whats-at-stake.html
+
+**Dolphins' Hill, Tagovailoa questionable for Week 8.**\
+`Miami's lineup could be in for a major boost with the pending reunion of the dynamic duo.`\
+https://nytimes.com/athletic/5873411/2024/10/25/dolphins-list-tyreek-hill-tua-tagovailoa-as-questionable-entering-week-8/
+
 **Election Officials Face Torrent of Threats as Nov. 5 Looms**\
 `Law enforcement’s task for Election Day this year goes far beyond providing physical security, to the essential mission of safeguarding democracy.`\
 https://nytimes.com/2024/10/25/us/politics/election-officials-workers-threats.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/25/science/leon-cooper-dead.html
 **Dozens Reported Killed in Attacks on Khan Younis**\
 `Thirteen children and a woman from the same family were among several Palestinians killed in overnight Israeli strikes on Khan Younis in southern Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009783087/khan-younis-israeli-strikes.html
-
-**Hip-drop tackles explained: What are they? Why are they banned?**\
-`Hip drop tackles cause lower extremity injuries at a rate 20 times higher than other tackles.`\
-https://nytimes.com/athletic/5748718/2024/10/25/hip-drop-tackle-nfl-explainer/
-
-**25 Jump Scares That Still Make Us Jump**\
-`We ranked the most chilling, spine-tingling, utterly terrifying scenes that get us every time, and asked writers, filmmakers and stars to explain why.`\
-https://nytimes.com/interactive/2024/10/25/movies/scary-movie-it-alien-smile.html
 
