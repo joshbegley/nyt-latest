@@ -10,7 +10,7 @@ https://nytimes.com/2024/10/24/crosswords/daily-puzzle-2024-10-25.html
 `At a star-filled rally in Georgia that also featured Tyler Perry and Samuel L. Jackson, the former president tried to give a jolt of energy to the vice president often seen as a successor.`\
 https://nytimes.com/2024/10/24/us/politics/obama-harris-bruce-springsteen-georgia.html
 
-**USWNT defeats Iceland with goals from Thompson, Shaw and Smith**\
+**USWNT defeats Iceland with goals from Thompson, Shaw, Smith**\
 `The U.S. won the first game of its Olympic victory tour.`\
 https://nytimes.com/athletic/5871370/2024/10/24/uswnt-iceland-alyssa-thompson-goal/
 

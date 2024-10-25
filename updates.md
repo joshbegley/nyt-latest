@@ -1,3 +1,7 @@
+**USWNT defeats Iceland with goals from Thompson, Shaw, Smith**\
+`The U.S. won the first game of its Olympic victory tour.`\
+https://nytimes.com/athletic/5871370/2024/10/24/uswnt-iceland-alyssa-thompson-goal/
+
 **How Wild responded to season's first deficit with comeback win vs. Lightning: 4 takeaways**\
 `After a come-from-behind 4-2 victory in Tampa, the Wild improved to 5-0-2 on the season.`\
 https://nytimes.com/athletic/5870913/2024/10/24/wild-lightning-takeaways-analysis/
