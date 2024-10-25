@@ -1,3 +1,7 @@
+**North Korean Troops Assemble in Russia’s Kursk Region, U.S. Officials Say**\
+`Thousands of soldiers from an elite unit of the Korean People’s Army began arriving on Wednesday and are expected to try to help expel Ukrainian forces from Russian territory.`\
+https://nytimes.com/2024/10/25/world/europe/north-korean-troops-arrive-kursk-russia.html
+
 **Blasts reported around Tehran after a year of escalating confrontations.**\
 `Blasts reported around Tehran after a year of escalating confrontations. `\
 https://nytimes.com/2024/10/25/world/middleeast/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/world/asia/north-korea-russia-ukraine-video.html
 **Media Organizations Criticize Israeli Strike That Killed Three Journalists**\
 `Israel says it was bombing a structure associated with Hezbollah and says it is reviewing the strike.`\
 https://nytimes.com/2024/10/25/world/middleeast/israel-gaza-hamas-hezbollah-journalists.html
-
-**France’s Financial Morass Produces a Harsh Critique From Moody’s**\
-`The financial ratings agency, citing a “fiscal deterioration” with rising borrowing and a political logjam, downgraded its outlook for French debt.`\
-https://nytimes.com/2024/10/25/business/france-moodys-negative-outlook.html
 
