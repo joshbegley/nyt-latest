@@ -1,3 +1,7 @@
+**Meet the New Home Kitchen Business**\
+`Starting in November, licensed home kitchens in Los Angeles County will be able to sell dine-in and to-go meals, as a 5-year-old state law expands.`\
+https://nytimes.com/2024/10/25/headway/meet-the-new-home-kitchen-business.html
+
 **Maresca urges Chelsea captain James to show more leadership**\
 `Enzo Maresca has urged Reece James to show more leadership as Chelsea’s captain and added that he believes his squad lacks a “proper leader”.`\
 https://nytimes.com/athletic/5872199/2024/10/25/reece-james-chelsea-captain-enzo-maresca/
