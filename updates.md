@@ -1,3 +1,7 @@
+**The Bounce: Klay Thompson's Mavericks debut was everything**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5872243/2024/10/25/klay-thompson-mavericks-nba-fiba-luka-doncic-the-bounce/
+
 **Tracking Tropical Depression Kong-rey**\
 `See the likely path and wind arrival times for Kong-rey.`\
 https://nytimes.com/interactive/2024/10/25/weather/kong-rey-map-path-tracker.html

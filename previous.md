@@ -1,3 +1,7 @@
+**The Bounce: Klay Thompson's Mavericks debut was everything**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5872243/2024/10/25/klay-thompson-mavericks-nba-fiba-luka-doncic-the-bounce/
+
 **Tracking Tropical Depression Kong-rey**\
 `See the likely path and wind arrival times for Kong-rey.`\
 https://nytimes.com/interactive/2024/10/25/weather/kong-rey-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5871410/2024/10/25/julius-randle-anthony-edwards-ti
 **The Perfect Red Lipstick Doesn’t Exist … Or Does It?**\
 `The makeup artist and influential YouTuber Lisa Eldridge may have cracked the code.`\
 https://nytimes.com/2024/10/25/style/lisa-eldridge-lipstick.html
-
-**What Nolan Smith's emergence says about the Eagles defensive front**\
-`The 2023 first-round pick had a quiet rookie season but he's beginning to carve out his role in Vic Fangio's Eagles defense. `\
-https://nytimes.com/athletic/5870160/2024/10/25/nolan-smith-philadelphia-eagles-defense/
 
