@@ -1,40 +1,40 @@
-**Israeli attacks kill dozens in southern Gaza, health officials say.**\
-`By Raja Abdulrahim and Liam Stack`\
-https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/israeli-attacks-kill-dozens-in-southern-gaza-health-officials-say
+**The Elon-ction + Can A.I. Be Blamed for a Teen’s Suicide?**\
+`The 2024 election has a new main character.`\
+https://nytimes.com/2024/10/25/podcasts/hardfork-musk-election-character-ai.html
 
-**Here are the latest developments.**\
-`By Raja Abdulrahim, Liam Stack and Euan Ward`\
-https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/here-are-the-latest-developments
+**Tom Brady's Raiders to-do list: Help find a QB, recruit free agents, watch and learn**\
+`Signs point to Brady serving as a consultant to Mark Davis for the time being with potentially a larger role down the line.`\
+https://nytimes.com/athletic/5869775/2024/10/25/tom-brady-raiders-owner-mark-davis/
 
-**Live Updates: Deadly Israeli Strike Hits Southern Gaza, Health Officials Say**\
-`Gaza’s health ministry reported that dozens of people had been killed in the airstrike in a residential area of Khan Younis, where Israel has said it is targeting Hamas.`\
-https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran
+**Rookie Beanie Bishop's path from 'overlooked and undervalued' to Steelers playmaker**\
+`After a winding path from three colleges to the NFL, the undersized Bishop is making a name for himself with the Steelers.`\
+https://nytimes.com/athletic/5870615/2024/10/25/beanie-bishop-steelers-undrafted-rookie/
 
-**Whole new ballgame: 9 ways baseball has changed since Yankees, Dodgers last met in World Series**\
-`A lot has changed in the 43 years since the Yankees and Dodgers last met in the Fall Classic. But one surprising thing is still the same. `\
-https://nytimes.com/athletic/5870596/2024/10/25/baseball-changes-since-1981-world-series-yankees-dodgers/
+**Timothy Liljegren trade destinations: Which teams could be a fit?**\
+`The 25-year-old, puck-moving, right-shot defenseman has been languishing on the NHL trade market for months.`\
+https://nytimes.com/athletic/5870407/2024/10/25/maple-leafs-timothy-liljegren-trade/
 
-**Is a Dodgers-Yankees World Series good or bad for baseball? Here's what our readers think**\
-`More than 2,000 of our readers — haters and die-hards alike — responded, and the majority believe this series is beneficial to the sport.`\
-https://nytimes.com/athletic/5869839/2024/10/25/dodgers-yankees-world-series-readers-poll/
+**Flipping its competitive calendar is the type of change MLS needs**\
+`MLS has talked about making changes before. There isn’t a perfect solution, but the league has to find a way to grow`\
+https://nytimes.com/athletic/5870477/2024/10/25/mls-calendar-flip-ready-change/
 
-**Man United coach Fletcher charged by FA after Brentford game**\
-`Manchester United first-team coach Darren Fletcher has been charged with misconduct by the Football Association (FA).`\
-https://nytimes.com/athletic/5872052/2024/10/25/darren-fletcher-manchester-united-charged/
+**Vikings left reeling as Brian Flores' defense is again picked apart in loss to Rams**\
+`The Vikings defenders no longer feel bulletproof. That was apparent last week in a loss to Detroit and in Thursday night's loss in L.A.`\
+https://nytimes.com/athletic/5871968/2024/10/25/vikings-rams-defense-brian-flores-loss/
 
-**Rob Manfred finally got his marquee World Series. Here’s how he plans to capitalize**\
-`Shohei Ohtani and Aaron Judge. The Dodgers and the Yankees. MLB has a four-part plan for taking advantage of this dream matchup. `\
-https://nytimes.com/athletic/5870233/2024/10/25/rob-manfred-world-series-ohtani-judge-plans/
+**Poll Shows Dead Heat, and Biden to Apologize for Native American School Abuses**\
+`Plus, a World Series with baseball’s biggest stars.`\
+https://nytimes.com/2024/10/25/podcasts/election-poll-biden-apology.html
 
-**For Dodgers and Yankees, discipline and damage fuel ‘lethal’ offenses**\
-`The Yankees and Dodgers both drew more than 600 walks this season while hitting more than 230 homers.`\
-https://nytimes.com/athletic/5871873/2024/10/25/dodgers-yankees-world-series-mlb-offense/
+**The United States of Pennsylvania**\
+`Kamala Harris and Donald Trump are pouring more money, time and energy into the state than anywhere else.`\
+https://nytimes.com/2024/10/25/podcasts/the-daily/pennsylvania-election.html
 
-**World Series pitching plans: A guide to the Yankees' and Dodgers' decision-making process**\
-`Here's how each team will try to navigate the series, with an eye toward limiting how often each pitcher faces the other team's sluggers.`\
-https://nytimes.com/athletic/5861394/2024/10/25/world-series-yankees-dodgers-pitching-plans/
+**Army and Navy are in the College Football Playoff race. Which means they could meet twice**\
+`The annual Army-Navy game on Dec. 14 will not count toward the College Football Playoff race.`\
+https://nytimes.com/athletic/5871187/2024/10/25/army-navy-college-football-playoff-chances/
 
-**Could Trump Win the Popular Vote but Lose the Electoral College?**\
-`It’s not likely, but it’s not something that can be completely dismissed either, recent polling suggests.`\
-https://nytimes.com/2024/10/25/upshot/poll-trump-harris-election.html
+**The Connections Companion No. 503**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 26, 2024.`\
+https://nytimes.com/2024/10/25/crosswords/connections-companion-503.html
 
