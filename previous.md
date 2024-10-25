@@ -1,3 +1,7 @@
+**Chelsea in a UEFA Conference League class of their own - only complacency can stop them**\
+`Two minutes into the second half at Athens Olympic Stadium, a chasm suddenly opened in the middle of Chelsea’s defence and Panathinaikos winger Facundo Pellistri, a Uruguayan international on the books at Manchester United until last summer, charged purposefully into an ocean of space and directly towards Filip Jorgensen’s goal.`\
+https://nytimes.com/athletic/5869840/2024/10/25/panathinaikos-chelsea-conference-league/
+
 **Word of the Day: exceedingly**\
 `This word has appeared in 293 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/25/learning/word-of-the-day-exceedingly.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869027/2024/10/25/arsenal-defensive-issues-artera-
 **Marco Silva has bounced back**\
 `Silva is rarely linked with the bigger jobs - and has not received the credit he deserves for his work at Fulham, after abrupt Everton end`\
 https://nytimes.com/athletic/5869202/2024/10/25/marco-silva-everton-fulham-manager/
-
-**Is Igor the answer as Hurzeler searches for defensive solidity?**\
-`The 26-year-old has found a place in the Brighton defence as Hurzeler searches for a consistent backline`\
-https://nytimes.com/athletic/5860383/2024/10/25/brighton-igor-julio-wolves/
 

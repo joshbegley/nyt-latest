@@ -1,3 +1,7 @@
+**Chelsea in a UEFA Conference League class of their own - only complacency can stop them**\
+`Two minutes into the second half at Athens Olympic Stadium, a chasm suddenly opened in the middle of Chelsea’s defence and Panathinaikos winger Facundo Pellistri, a Uruguayan international on the books at Manchester United until last summer, charged purposefully into an ocean of space and directly towards Filip Jorgensen’s goal.`\
+https://nytimes.com/athletic/5869840/2024/10/25/panathinaikos-chelsea-conference-league/
+
 **Word of the Day: exceedingly**\
 `This word has appeared in 293 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/25/learning/word-of-the-day-exceedingly.html
