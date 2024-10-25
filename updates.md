@@ -1,3 +1,7 @@
+**Review: Porcupines of Plastic and Other Provocations**\
+`The choreographer Nadia Beugré, who brought her “Quartiers Libres Revisited” to New York Live Arts, likes to keep her audience close. And involved.`\
+https://nytimes.com/2024/10/25/arts/dance/review-nadia-beugre-quartier-libres-revisited.html
+
 **Harris Has Been a Voice on Race and Gender. She Doesn’t Broadcast It.**\
 `As vice president, Kamala Harris often tried to use government to target racism and sexism.`\
 https://nytimes.com/2024/10/25/us/politics/harris-racism-sexism-policies.html
