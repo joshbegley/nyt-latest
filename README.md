@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5871871/2024/10/25/nuggets-loss-thunder-shooting-de
 https://nytimes.com/athletic/5872494/2024/10/25/unai-emery-aston-villa-trophy/
 
 **Arsenal's Calafiori, Saka, Timber 'very, very uncertain' for Liverpool game - Arteta**\
-`Mikel Arteta has said Arsenal trio Riccardo Calafiori, Bukayo Saka and Jurrien Timber are &#8220;very, very uncertain&#8221; to play against Liverpool on Sunday.`\
+`Mikel Arteta has said Arsenal trio Riccardo Calafiori, Bukayo Saka and Jurrien Timber are &#8220;very, very uncertain&#8221; to play against Liverpool.`\
 https://nytimes.com/athletic/5866173/2024/10/25/calafiori-saka-timber-injury-update-arsenal/
 
 **Duhatschek: 'Iron Mike' Keenan speaks, a Ducks' hypothetical and how Utah will manage injuries**\
