@@ -1,3 +1,11 @@
+**Autocracies Against Ukraine**\
+`We explain North Korea’s decision to send troops to help Russia.`\
+https://nytimes.com/2024/10/25/briefing/autocracies-against-ukraine.html
+
+**Tottenham captain Son 'unlikely' for Palace**\
+`Son Heung-min is unlikely to feature when Tottenham Hotspur face Crystal Palace this weekend.`\
+https://nytimes.com/athletic/5872098/2024/10/25/son-heung-min-tottenham-out/
+
 **Lazio's Tchaouna substituted after alleged racist abuse at Twente**\
 `Lazio winger Loum Tchaouna was substituted off after being subjected to alleged &#8220;monkey noises&#8221; against Twente in the Europa League, the Italian club&#8217;s head coach Marco Baroni has said.`\
 https://nytimes.com/athletic/5872080/2024/10/25/loum-tchaouna-lazio-racism/
