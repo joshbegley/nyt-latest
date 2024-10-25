@@ -1,3 +1,7 @@
+**‘Conclave’ | Anatomy of a Scene**\
+`The director Edward Berger narrates a sequence from his film, featuring Ralph Fiennes.`\
+https://nytimes.com/video/movies/100000009781467/conclave-scene.html
+
 **The Pulse: How did they miss this call?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5870516/2024/10/25/vikings-rams-sam-darnold-facemask-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/podcasts/hardfork-musk-election-character-ai.html
 **Tom Brady's Raiders to-do list: Help find a QB, recruit free agents, watch and learn**\
 `Signs point to Brady serving as a consultant to Mark Davis for the time being with potentially a larger role down the line.`\
 https://nytimes.com/athletic/5869775/2024/10/25/tom-brady-raiders-owner-mark-davis/
-
-**Rookie Beanie Bishop's path from 'overlooked and undervalued' to Steelers playmaker**\
-`After a winding path from three colleges to the NFL, the undersized Bishop is making a name for himself with the Steelers.`\
-https://nytimes.com/athletic/5870615/2024/10/25/beanie-bishop-steelers-undrafted-rookie/
 

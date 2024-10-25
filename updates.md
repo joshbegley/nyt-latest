@@ -1,3 +1,7 @@
+**‘Conclave’ | Anatomy of a Scene**\
+`The director Edward Berger narrates a sequence from his film, featuring Ralph Fiennes.`\
+https://nytimes.com/video/movies/100000009781467/conclave-scene.html
+
 **The Pulse: How did they miss this call?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5870516/2024/10/25/vikings-rams-sam-darnold-facemask-the-pulse/
