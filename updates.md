@@ -1,3 +1,11 @@
+**New ‘RBG PAC’ Spending $19 Million From Secret Donors to Aid Trump on Abortion**\
+`A new Republican super PAC is running ads invoking the name of Ruth Bader Ginsburg to help Donald Trump win over voters who favor abortion rights.`\
+https://nytimes.com/2024/10/25/us/politics/trump-ruth-bader-ginsberg-abortion-ad.html
+
+**Abercrombie, Pushing a New Image, Confronts Accusations Against Ex-C.E.O.**\
+`Recent sex trafficking charges against Michael Jeffries could implicate the retailer, too, as it tries to close a tumultuous chapter in its history.`\
+https://nytimes.com/2024/10/25/business/abercrombie-mike-jeffries-sex-trafficking-charges.html
+
 **Overlooked No More: Margaret E. Knight, Innovator of the Flat-Bottomed Paper Bag**\
 `She came up with a method of automation so that workers would not have to make the bags by hand. Then she fought for credit for her work.`\
 https://nytimes.com/2024/10/25/obituaries/margaret-e-knight-overlooked.html
