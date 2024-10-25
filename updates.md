@@ -1,3 +1,11 @@
+**How the Country’s Understanding of Abortion Could Change if Trump Wins**\
+`Activists on both sides say Trump could effectively ban abortion nationwide and establish fetal personhood, the longtime goal of the anti-abortion movement.`\
+https://nytimes.com/2024/10/25/us/trump-abortion.html
+
+**Gary Indiana, Acerbic Cultural Critic and Novelist, Dies at 74**\
+`He made films, video art and photographs, but was best known as a pioneering art critic and mordant novelist.`\
+https://nytimes.com/2024/10/25/arts/gary-indiana-dead.html
+
 **These Videos Appear to Show North Korean Troops in Russia**\
 `Footage was filmed in the Russian Far East, which the United States says is hosting thousands of North Korean soldiers.`\
 https://nytimes.com/2024/10/25/world/asia/north-korea-russia-ukraine-video.html
