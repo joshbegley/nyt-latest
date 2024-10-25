@@ -1,3 +1,11 @@
+**Word of the Day: exceedingly**\
+`This word has appeared in 293 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/25/learning/word-of-the-day-exceedingly.html
+
+**Jimmy Fallon Rallies for Queen Bey**\
+`The “Tonight Show” host was excited about Beyoncé’s plans to appear with the vice president: “What a night — the most powerful woman in the world and Kamala Harris.”`\
+https://nytimes.com/2024/10/25/arts/television/jimmy-fallon-beyonce.html
+
 **At Las Vegas Rally, Trump Grumbles About Obama’s Nobel Prize**\
 `With 12 days until Election Day, former President Donald J. Trump campaigned in Nevada and Arizona and sharpened his attacks on Vice President Kamala Harris about immigration.`\
 https://nytimes.com/2024/10/25/us/politics/trump-rally-las-vegas.html

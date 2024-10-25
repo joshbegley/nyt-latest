@@ -1,3 +1,11 @@
+**Word of the Day: exceedingly**\
+`This word has appeared in 293 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/25/learning/word-of-the-day-exceedingly.html
+
+**Jimmy Fallon Rallies for Queen Bey**\
+`The “Tonight Show” host was excited about Beyoncé’s plans to appear with the vice president: “What a night — the most powerful woman in the world and Kamala Harris.”`\
+https://nytimes.com/2024/10/25/arts/television/jimmy-fallon-beyonce.html
+
 **At Las Vegas Rally, Trump Grumbles About Obama’s Nobel Prize**\
 `With 12 days until Election Day, former President Donald J. Trump campaigned in Nevada and Arizona and sharpened his attacks on Vice President Kamala Harris about immigration.`\
 https://nytimes.com/2024/10/25/us/politics/trump-rally-las-vegas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5869202/2024/10/25/marco-silva-everton-fulham-manag
 **Is Igor the answer as Hurzeler searches for defensive solidity?**\
 `The 26-year-old has found a place in the Brighton defence as Hurzeler searches for a consistent backline`\
 https://nytimes.com/athletic/5860383/2024/10/25/brighton-igor-julio-wolves/
-
-**Friday Briefing: Stars Rally for Harris**\
-`Plus, an interview with the Taliban’s most fearsome leader.`\
-https://nytimes.com/2024/10/25/briefing/harris-obama-gaza-talks-taliban.html
-
-**Forest fans remain thankful to Cooper, but club has evolved under Nuno**\
-`Leicester manager Cooper will receive a warm reception from Forest fans tonight, but his replacement at has taken the club the a new level`\
-https://nytimes.com/athletic/5869375/2024/10/25/nottingham-forest-fans-remain-thankful-to-steve-cooper-but-club-has-evolved-under-nuno-espirito-santo/
 
