@@ -1,3 +1,7 @@
+**The Pulse: How did they miss this call?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5870516/2024/10/25/vikings-rams-sam-darnold-facemask-the-pulse/
+
 **Israel Says 5 Soldiers Were Killed in Southern Lebanon**\
 `As clashes with Hezbollah militants intensified, Israel’s public broadcaster reported that the soldiers had been killed when a rocket struck a building they were in.`\
 https://nytimes.com/2024/10/25/world/middleeast/israel-soldiers-killed-hezbollah-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869775/2024/10/25/tom-brady-raiders-owner-mark-dav
 **Rookie Beanie Bishop's path from 'overlooked and undervalued' to Steelers playmaker**\
 `After a winding path from three colleges to the NFL, the undersized Bishop is making a name for himself with the Steelers.`\
 https://nytimes.com/athletic/5870615/2024/10/25/beanie-bishop-steelers-undrafted-rookie/
-
-**Timothy Liljegren trade destinations: Which teams could be a fit?**\
-`The 25-year-old, puck-moving, right-shot defenseman has been languishing on the NHL trade market for months.`\
-https://nytimes.com/athletic/5870407/2024/10/25/maple-leafs-timothy-liljegren-trade/
 
