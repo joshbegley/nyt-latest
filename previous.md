@@ -1,3 +1,7 @@
+**Potentially Damaging Winds Expected to Return to Southern California**\
+`Northerly winds, slightly stronger than the most recent wind event earlier this month, will blow through Southern California in the days leading up to Halloween.`\
+https://nytimes.com/2024/10/25/weather/los-angeles-winds-california.html
+
 **Flyers' John Tortorella reacts to line-combination criticisms; Jett Luchanko's status unclear**\
 `Why have the Flyers had so much change with the lines in the early part of the season?`\
 https://nytimes.com/athletic/5873118/2024/10/25/flyers-line-combinations-tortorella/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873114/2024/10/25/dodgers-world-series-roster-evan
 **U.N. warns of ‘atrocity crimes’ in Gaza, and Jordan’s foreign minister accuses Israel of ‘ethnic cleansing.’**\
 `By Michael Crowley and Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/un-warns-of-atrocity-crimes-in-gaza-and-jordans-foreign-minister-accuses-israel-of-ethnic-cleansing
-
-**Commanders QB Jayden Daniels returns to practice Friday**\
-`Jayden Daniels returned to practice Friday, but the Commanders QB's game status is still to be determined for Sunday against the Bears.`\
-https://nytimes.com/athletic/5872848/2024/10/25/commanders-jayden-daniels-injury-update-bears/
 

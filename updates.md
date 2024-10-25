@@ -1,3 +1,7 @@
+**Potentially Damaging Winds Expected to Return to Southern California**\
+`Northerly winds, slightly stronger than the most recent wind event earlier this month, will blow through Southern California in the days leading up to Halloween.`\
+https://nytimes.com/2024/10/25/weather/los-angeles-winds-california.html
+
 **Flyers' John Tortorella reacts to line-combination criticisms; Jett Luchanko's status unclear**\
 `Why have the Flyers had so much change with the lines in the early part of the season?`\
 https://nytimes.com/athletic/5873118/2024/10/25/flyers-line-combinations-tortorella/
