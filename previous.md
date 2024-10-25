@@ -1,3 +1,15 @@
+**Colts update status of Jonathan Taylor, DeForest Buckner**\
+`In Taylor's absence, the Colts have struggled to run the ball, as Trey Sermon and Tyler Goodson are averaging 3.7 yards per cary. `\
+https://nytimes.com/athletic/5873146/2024/10/25/colts-jonathan-taylor-deforest-buckner-injury-update/
+
+**13 Ex-Trump Aides Back Kelly’s ‘Dictator’ Warning, Saying Trump Seeks ‘Absolute, Unchecked Power’**\
+`In a letter, the former aides wrote, “For the good of our country, our democracy, and our Constitution, we are asking you to listen closely and carefully to General Kelly’s warning.”`\
+https://nytimes.com/2024/10/25/us/politics/trump-officials-letter-fascist-john-kelly.html
+
+**In Wisconsin’s Senate Race, the Republican Highlights Baldwin’s Sexuality**\
+`Eric Hovde is closing out his challenge to Senator Tammy Baldwin, a low-key Midwesterner, with a new attack ad that appears to want to make sure voters know she’s gay.`\
+https://nytimes.com/2024/10/25/us/politics/wisconsin-senate-race-tammy-baldwin-sexuality.html
+
 **Los Angeles D.A.’s Move in Menendez Case Comes Amid Tough Re-election Bid**\
 `The review of the high-profile murder case by George Gascón’s office began more than a year ago. But critics say the timing of the decision was political.`\
 https://nytimes.com/2024/10/25/us/menendez-brothers-los-angeles-da.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/25/opinion/robot-artificial-intelligence.html
 **Yankees reveal World Series roster vs. Dodgers: Cortes back, Berti out**\
 `After missing the Yankees' first two rounds of the playoffs, Cortes will likely see his first postseason action in the World Series.`\
 https://nytimes.com/athletic/5871928/2024/10/25/yankees-reveal-world-series-roster-vs-dodgers-nestor-cortes-back-jon-berti-out/
-
-**Middle East War Hits Home in Michigan, Threatening Slotkin in Tight Senate Race**\
-`Anger among the battleground state’s sizable contingent of Arab American voters about violence in Gaza and Lebanon could hurt the Democratic congresswoman in a close contest.`\
-https://nytimes.com/2024/10/25/us/politics/michigan-slotkin-senate-gaza-lebanon-israel.html
-
-**Former Model Accuses Donald Trump of Groping Her in 1993**\
-`The swimsuit model Stacey Williams said Jeffrey Epstein brought her to Trump Tower, where the future president groped her. Mr. Trump’s campaign denied it.`\
-https://nytimes.com/2024/10/25/business/donald-trump-stacey-williams-jeffrey-epstein.html
-
-**It’s Springsteen Season Again. Can Celebrities Give Harris a Meaningful Boost?**\
-`Bruce Springsteen performed at a rally for Vice President Kamala Harris. Beyoncé will appear at an event on Friday. It is hard to say if such events actually motivate people to go to the polls.`\
-https://nytimes.com/2024/10/25/us/politics/kamala-harris-celebrities.html
 
