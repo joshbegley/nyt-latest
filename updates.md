@@ -1,3 +1,15 @@
+**Gang Gunfire in Haiti Hits U.S. Embassy Vehicles and U.N. Aid Helicopter**\
+`The attacks this week point to an escalation of violence as the situation worsens and gangs overwhelm security forces, including a multinational force.`\
+https://nytimes.com/2024/10/25/world/americas/haiti-gang-violence-us-embassy-un-helicopter.html
+
+**Obama Campaigns in North Carolina as Democrats Hope for a 2008 Repeat**\
+`The former president has been drawing crowds for Kamala Harris in every battleground, but his presence looms particularly large in the state the party hasn’t won since his first presidential bid.`\
+https://nytimes.com/2024/10/25/us/politics/harris-north-carolina-obama.html
+
+**Harris and Trump Hold Splashy Events Away From Swing States**\
+`Also, the C.D.C. lowered the age for the pneumonia vaccine. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/10/25/briefing/harris-trump-swing-states-native-american-boarding-schools.html
+
 **Meet the New Home Kitchen Business**\
 `Starting in November, licensed home kitchens in Los Angeles County will be able to sell dine-in and to-go meals, as a 5-year-old state law expands.`\
 https://nytimes.com/2024/10/25/headway/meet-the-new-home-kitchen-business.html
