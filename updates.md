@@ -1,3 +1,11 @@
+**Ramazani out for up to six weeks with ankle ligament injury**\
+`Leeds United winger Largie Ramazani is expected to be sidelined for up to six weeks due to an ankle ligament injury.`\
+https://nytimes.com/athletic/5872532/2024/10/25/largie-ramazani-leeds-injury/
+
+**On ‘The Great Impersonator,’ Halsey Channels Pop’s Past**\
+`The singer and songwriter’s fifth album processes intense pain through a high-concept homage to role models including Stevie Nicks, Bruce Springsteen and Britney Spears.`\
+https://nytimes.com/2024/10/25/arts/music/halsey-the-great-impersonator-review.html
+
 **Arsenal's Calafiori, Saka, Timber 'very, very uncertain' for Liverpool game - Arteta**\
 `Mikel Arteta has said Arsenal trio Riccardo Calafiori, Bukayo Saka and Jurrien Timber are &#8220;very, very uncertain&#8221; to play against Liverpool.`\
 https://nytimes.com/athletic/5866173/2024/10/25/calafiori-saka-timber-injury-update-arsenal/
