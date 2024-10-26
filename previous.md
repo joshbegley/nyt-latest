@@ -1,3 +1,11 @@
+**Penny Hires Jury Consultant Who Aided O.J. Simpson and Kyle Rittenhouse**\
+`The courtroom presence of Jo-Ellan Dimitrius illustrates the pressure on the 12 people who will decide if Daniel Penny is guilty of manslaughter for choking a man on a New York subway train.`\
+https://nytimes.com/2024/10/26/nyregion/daniel-penny-jury-consultant-ny-subway-choking.html
+
+**Longtime Cleveland Browns broadcaster Jim Donovan dies at 68**\
+`Donovan spent nearly 40 years as a broadcaster in Cleveland and was the Browns' play-by-play man since their return in 1999 until this year.`\
+https://nytimes.com/athletic/5874604/2024/10/26/jim-donovan-cleveland-browns-announcer-dies/
+
 **Emery refuses to blame VAR after McGinn goal disallowed**\
 `Unai Emery refused to blame the video assistant referee (VAR) decision to rule out John McGinn&#8217;s goal for Aston Villa against Bournemouth.`\
 https://nytimes.com/athletic/5874591/2024/10/26/aston-villa-john-mcginn-goal-var/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5874504/2024/10/26/cole-campbell-dortmund-usmnt/
 **Bristol City 0-0 Leeds United: Full-back conundrum and a familiar problem re-emerges**\
 `Nancy Froston analyses Leeds' game at Bristol City...`\
 https://nytimes.com/athletic/5874260/2024/10/26/bristol-city-0-0-leeds-united/
-
-**The World According to Kamala Harris**\
-`The rise of Kamala Harris, the tenacious child of high-achieving immigrants, is atypical. But her story is also distinctly American.`\
-https://nytimes.com/2024/10/26/us/politics/kamala-harris-bio.html
-
-**'We helped them': Bucks lack defensive intensity in home-opening loss to Bulls**\
-`Rotational breakdowns, bad closeouts and lack of focus on defense doomed the Bucks against the Bulls: "Defensively, our IQ has to go up."`\
-https://nytimes.com/athletic/5873873/2024/10/26/bucks-bulls-damian-lillard-giannis/
 
