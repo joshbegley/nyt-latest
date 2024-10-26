@@ -1,3 +1,23 @@
+**These Japanese Baseball Fans Love Ohtani. They Love the Yankees More.**\
+`The best World Series outcome for one particular subset of fans? The Dodgers slugger hits four home runs a game, and the Yankees win four straight, 5-4.`\
+https://nytimes.com/2024/10/26/nyregion/dodgers-yankees-ohtani-fans-japan.html
+
+**Presidents, Conventions and Nazis: A Political History of ‘The Garden’**\
+`Madison Square Garden, where former President Donald J. Trump will hold a rally on Sunday, has hosted many political events, some of them notorious.`\
+https://nytimes.com/2024/10/26/nyregion/trump-rally-msg-protest-nazi.html
+
+**As U.S. Election Looms, Biden Aides Struggle With Middle East Wars**\
+`Secretary of State Antony J. Blinken tried to get Prime Minister Benjamin Netanyahu of Israel to envision a U.S.-backed plan for ending the war in Gaza, but there was no sign of progress.`\
+https://nytimes.com/2024/10/26/us/politics/election-biden-middle-east.html
+
+**How Tom Llamas, an NBC Anchor, Spends His Sundays**\
+`Mr. Llamas, who has been racing between hurricanes and election coverage, makes time for baseball with his children and not-so-scary movies with his wife.`\
+https://nytimes.com/2024/10/26/nyregion/tom-llamas-nbc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/26/crosswords/spelling-bee-forum.html
+
 **Yankees' Boone explains ill-fated decision to use Cortes against Dodger lefties**\
 `The Yankee pitcher was able to get Shohei Ohtani out, but gave up a walk-off grand slam to Freddie Freeman. `\
 https://nytimes.com/athletic/5874017/2024/10/26/yankees-world-series-aaron-boone-nestor-cortes-decision/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5873962/2024/10/26/lakers-suns-comeback-result-take
 **6 Takeaways From Donald Trump’s 3-Hour Podcast With Joe Rogan**\
 `The former president repeated his debunked claims of election fraud and speculated that there could be life on Mars in an interview aimed at young male voters.`\
 https://nytimes.com/2024/10/25/us/politics/trump-joe-rogan-podcast.html
-
-**England 3-4 Germany: Leah Williamson's defensive struggles raise questions ahead of Euros**\
-`Defence was a clear issue for England, conceding three goals in the first half hour against Germany`\
-https://nytimes.com/athletic/5873596/2024/10/26/england-defence-leah-williamson/
-
-**Yohe's 10 observations: Oilers toy with humbled Penguins in blowout**\
-`The Penguins, outshot 50-27, were simply ambushed from the opening draw until the final few minutes in a 4-0 loss.`\
-https://nytimes.com/athletic/5873753/2024/10/26/penguins-oilers-shutout-joel-blomqvist/
-
-**Blackhawks squander strong start in loss to Predators: Observations**\
-`"It's a 60-minute game," Alex Vlasic said. "I feel like we slept for five to 10 minutes of that game, and they took it away from us."`\
-https://nytimes.com/athletic/5873945/2024/10/26/blackhawks-squander-strong-start-lose-to-predators/
-
-**Beyoncé Rallies for Harris in Houston With a Message for the Battlegrounds**\
-`Kamala Harris used Texas’ strict abortion ban as a cautionary tale as she sought to lay out the stakes of a deadlocked election.`\
-https://nytimes.com/2024/10/26/us/politics/harris-beyonce-rally-houston.html
-
-**Why Lopetegui’s use of Jarrod Bowen out wide could pay dividends against Manchester United**\
-`Sunday's visitors have a specific weakness at left-back that the England international should be able to exploit`\
-https://nytimes.com/athletic/5872747/2024/10/26/jarrod-bowen-role-west-ham-manchester-united/
 
