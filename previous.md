@@ -1,3 +1,7 @@
+**Freddie Freeman's walkoff grand slam lifts Dodgers past Yankees in Game 1 of World Series**\
+`This marquee matchup in the World Series was 43 years — and it did not disappoint.`\
+https://nytimes.com/athletic/5873828/2024/10/25/freddie-freemans-walkoff-grand-slam-lifts-dodgers-past-yankees-in-game-1-of-world-series/
+
 **MLS Cup Playoff takeaways: Suarez, Alba score and Messi records an assist in win over Atlanta**\
 `Our writers analyze the key talking points from Inter Miami's MLS playoff win over Atlanta United.`\
 https://nytimes.com/athletic/5873540/2024/10/25/inter-miami-atlanta-united-mls-playoff-first-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/pageoneplus/corrections-oct-26-2024.html
 **Phil Lesh’s Life in Pictures**\
 `Looking back at the career of the Grateful Dead bassist, starting with when the band was clean cut and called the Warlocks.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-photos.html
-
-**Phil Lesh Didn’t Hold Songs Down. He Lifted Them Higher.**\
-`The Grateful Dead bassist found new melodic byways through every song.`\
-https://nytimes.com/2024/10/25/arts/music/phil-lesh-grateful-dead-bassist.html
 

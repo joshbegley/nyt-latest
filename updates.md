@@ -1,3 +1,7 @@
+**Freddie Freeman's walkoff grand slam lifts Dodgers past Yankees in Game 1 of World Series**\
+`This marquee matchup in the World Series was 43 years — and it did not disappoint.`\
+https://nytimes.com/athletic/5873828/2024/10/25/freddie-freemans-walkoff-grand-slam-lifts-dodgers-past-yankees-in-game-1-of-world-series/
+
 **MLS Cup Playoff takeaways: Suarez, Alba score and Messi records an assist in win over Atlanta**\
 `Our writers analyze the key talking points from Inter Miami's MLS playoff win over Atlanta United.`\
 https://nytimes.com/athletic/5873540/2024/10/25/inter-miami-atlanta-united-mls-playoff-first-game/
