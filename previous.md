@@ -1,3 +1,12 @@
+**Oliver Glasner analysis: The Crystal Palace manager talks pressure, transfers and stats**\
+`The Austrian's team will attempt once again to break their season's Premier League duck against Tottenham Hotspur at Selhurst Park on Sunday`\
+https://nytimes.com/athletic/5866449/2024/10/26/crystal-palace-glasner-analysis/
+
+**Lowetide: Who will be the first Oilers recall from the farm?**\
+`A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
+`\
+https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
+
 **Trump Escalates Threats as Campaign Enters Dark Final Stretch**\
 `Top military leaders and high-ranking former officials from his administration have issued warning after warning that Donald J. Trump would rule as a dictator if given the chance.`\
 https://nytimes.com/2024/10/26/us/politics/trump-democracy-threats.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola
 **Notre Dame took full advantage of Navy fumbling away its biggest opportunity**\
 `With the help of six Navy turnovers, Notre Dame rolled to a 51-14 win Saturday, handing the Midshipmen their first loss of the season.`\
 https://nytimes.com/athletic/5874736/2024/10/26/notre-dame-navy-football-score-recap/
-
-**Israeli lawmakers say the country’s attack on Iran didn’t go far enough.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-lawmakers-say-the-countrys-attack-on-iran-didnt-go-far-enough
-
-**Why Are North Korean Troops in Russia?**\
-`Over the last month, North Korea’s role aiding Russia in its war in Ukraine has significantly escalated.`\
-https://nytimes.com/video/world/asia/100000009782894/why-north-korean-soldiers-are-in-russia.html
 

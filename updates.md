@@ -1,3 +1,12 @@
+**Oliver Glasner analysis: The Crystal Palace manager talks pressure, transfers and stats**\
+`The Austrian's team will attempt once again to break their season's Premier League duck against Tottenham Hotspur at Selhurst Park on Sunday`\
+https://nytimes.com/athletic/5866449/2024/10/26/crystal-palace-glasner-analysis/
+
+**Lowetide: Who will be the first Oilers recall from the farm?**\
+`A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
+`\
+https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
+
 **Trump Escalates Threats as Campaign Enters Dark Final Stretch**\
 `Top military leaders and high-ranking former officials from his administration have issued warning after warning that Donald J. Trump would rule as a dictator if given the chance.`\
 https://nytimes.com/2024/10/26/us/politics/trump-democracy-threats.html
