@@ -1,3 +1,7 @@
+**In a Tight Election, Can the Weather Cast a Deciding Vote?**\
+`It tends to play a minor role in voter turnout, affecting only close elections — like the one coming up on Nov. 5.`\
+https://nytimes.com/2024/10/26/weather/election-day-weather.html
+
 **Israel’s Strike Marks New Phase of Conflict, but Stops Short of All-Out War**\
 `Iran’s initial reaction suggested that the sides had once again averted an uncontrolled war, even if the prospect looms larger than ever.`\
 https://nytimes.com/2024/10/26/world/middleeast/israel-iran-attack-war.html
