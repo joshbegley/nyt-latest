@@ -1,3 +1,7 @@
+**Israel’s Strike Marks New Phase of Conflict, but Stops Short of All-Out War**\
+`Iran’s initial reaction suggested that the sides had once again averted an uncontrolled war, even if the prospect looms larger than ever.`\
+https://nytimes.com/2024/10/26/world/middleeast/israel-iran-attack-war.html
+
 **John Fetterman Fears Trump Is Stronger Than Ever**\
 `The senator discusses the “astonishing” support for the former president in Pennsylvania, his rift with progressives over Israel and his own position in the Democratic Party.`\
 https://nytimes.com/2024/10/26/magazine/john-fetterman-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/your-money/cheap-car-insurance-teen-drivers.html
 **Lamar Jackson's handling of the blitz has fueled Ravens' surge. Another test comes Sunday**\
 `Jackson's passer rating against the blitz this year is 119.9, and he ranks second in the NFL in success rate behind Patrick Mahomes.`\
 https://nytimes.com/athletic/5873322/2024/10/26/lamar-jacksons-blitz-ravens-browns/
-
-**As the World Turns, So Do These Cameras**\
-`Whirling 360-degree photo booths have gone from red carpets to bat mitzvahs to tourist sites like the Cradle of Humankind.`\
-https://nytimes.com/2024/10/26/style/360-photo-booth-red-carpet-tourism.html
 
