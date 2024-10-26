@@ -38,6 +38,11 @@ https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfiel
 `\
 https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
 
+**Lowetide: Who will be the first Oilers recall from the farm?**\
+`A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
+`\
+https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
+
 **Liz Cheney Is Certain That Kamala Harris Will Win**\
 `And it’s not because of democracy issues.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/liz-cheney-kamala-harris
