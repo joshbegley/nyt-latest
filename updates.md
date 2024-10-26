@@ -1,3 +1,7 @@
+**McLaren’s Right of Review over Norris-Verstappen incident dismissed**\
+`The FIA stewards determined “there is no relevant new element.”`\
+https://nytimes.com/athletic/5873792/2024/10/25/mclaren-right-of-review-norris-verstappen/
+
 **Why Did Israel Attack Iran?**\
 `The two countries have been fighting a shadow war for years. Now, their conflict has burst into the open.`\
 https://nytimes.com/2024/10/25/world/middleeast/why-did-israel-attack-iran.html
