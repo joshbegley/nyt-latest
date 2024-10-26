@@ -1,3 +1,11 @@
+**6 Takeaways From Donald Trump’s 3-Hour Podcast With Joe Rogan**\
+`The former president repeated his debunked claims of election fraud and speculated that there could be life on Mars in an interview aimed at young male voters.`\
+https://nytimes.com/2024/10/25/us/politics/trump-joe-rogan-podcast.html
+
+**England 3-4 Germany: Leah Williamson's defensive struggles raise questions ahead of Euros**\
+`Defence was a clear issue for England, conceding three goals in the first half hour against Germany`\
+https://nytimes.com/athletic/5873596/2024/10/26/england-defence-leah-williamson/
+
 **Yohe's 10 observations: Oilers toy with humbled Penguins in blowout**\
 `The Penguins, outshot 50-27, were simply ambushed from the opening draw until the final few minutes in a 4-0 loss.`\
 https://nytimes.com/athletic/5873753/2024/10/26/penguins-oilers-shutout-joel-blomqvist/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009784933/beyonce-harris-houston-vi
 **Barcelona's Coldplay shirt partnership - and why it was 'meant to be'**\
 `Barca will wear the Coldplay logo during tonight's Clasico. It's a connection that stretches back to Pep Guardiola's reign`\
 https://nytimes.com/athletic/5872673/2024/10/26/barcelona-coldplay-el-clasico-shirt/
-
-**Explained: Real Madrid's Bernabeu stadium dispute with residents that could cost club**\
-`Concerts at the Bernabeu have promoted complaints from local residents over noise. But the club is relying on the income. So what now?`\
-https://nytimes.com/athletic/5865938/2024/10/26/bernabeu-real-madrid-resident-dispute/
-
-**13 insights fantasy football managers need to know ahead of Week 8**\
-`Theo Gremminger gets hyperbolic in talking about rookie tight end Brock Bowers as he shares 13 insights ahead of Week 8.`\
-https://nytimes.com/athletic/5872917/2024/10/26/13-insights-fantasy-football-week-8/
 
