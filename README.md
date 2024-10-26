@@ -1,3 +1,7 @@
+**Two referees banned by UEFA after 'improper behaviour' before Champions League qualifier**\
+`Two referees have been banned from UEFA competitions after violating &#8220;basic rules of decent conduct&#8221; with &#8220;improper behaviour&#8221; before a Champions League qualifying tie.`\
+https://nytimes.com/athletic/5874101/2024/10/26/uefa-polish-referees-banned/
+
 **In a Tight Election, Can the Weather Cast a Deciding Vote?**\
 `It tends to play a minor role in voter turnout, affecting only close elections — like the one coming up on Nov. 5.`\
 https://nytimes.com/2024/10/26/weather/election-day-weather.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/26/upshot/census-relative-income.html
 **Michelle Obama, a Reluctant Campaigner, Hits the Trail With Harris**\
 `The former first lady, who is viewed warmly among some of the voters whom the Harris campaign is trying to reach, will appear alongside the vice president on Saturday in Michigan.`\
 https://nytimes.com/2024/10/26/us/politics/michelle-obama-harris-michigan.html
-
-**Readers Shared Hacks for Cheaper Teen Car Insurance. Do They Work?**\
-`Here’s what could happen if you don’t tell your insurer about any teenage drivers in your family — or try to get a separate policy for them altogether.`\
-https://nytimes.com/2024/10/26/your-money/cheap-car-insurance-teen-drivers.html
 
