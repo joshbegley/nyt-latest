@@ -1,3 +1,7 @@
+**At First N.Y.C. Mayoral Forum, Five Democratic Candidates Attack Adams**\
+`The event, hosted at a church in the Bronx, served as the unofficial start of the city’s 2025 mayoral race.`\
+https://nytimes.com/2024/10/26/nyregion/mayor-democrats-adams-forum.html
+
 **Ohio State survives: What does this mean for Buckeyes, Huskers?**\
 `It wasn't easy, but Ohio State made the plays when it need to — on both sides of the ball — to escape with a 21-17 win over Nebraska. `\
 https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola-ryan-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874604/2024/10/26/jim-donovan-cleveland-browns-ann
 **Emery refuses to blame VAR after McGinn goal disallowed**\
 `Unai Emery refused to blame the video assistant referee (VAR) decision to rule out John McGinn&#8217;s goal for Aston Villa against Bournemouth.`\
 https://nytimes.com/athletic/5874591/2024/10/26/aston-villa-john-mcginn-goal-var/
-
-**U.K. Man Who Posed as a Girl to Extort Teens Online Gets 20 Years in Prison**\
-`The Northern Ireland resident sought explicit images from thousands of girls he had groomed and blackmailed, leading to the death of a 12-year-old girl in the United States.`\
-https://nytimes.com/2024/10/26/world/europe/catfish-northern-ireland-manslaughter.html
 
