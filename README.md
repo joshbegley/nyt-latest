@@ -1,3 +1,27 @@
+**The Man Who Shaped China’s Strongman Rule Has a New Job: Winning Taiwan**\
+`Xi Jinping’s top adviser, Wang Huning, is credited with shaping the authoritarianism that steered China’s rise. But can he influence Taiwan?`\
+https://nytimes.com/2024/10/26/world/asia/china-xi-jinping-adviser-taiwan.html
+
+**Quote of the Day: Sure, You Can Go to the World Series. Just Ditch the Anthropomorphic Suit.**\
+`Quotation of the Day for Saturday, October 26, 2024.`\
+https://nytimes.com/2024/10/26/pageoneplus/quote-of-the-day-sure-you-can-go-to-the-world-series-just-ditch-the-anthropomorphic-suit.html
+
+**Manchester City vs Southampton preview, odds, prediction: City hopes to retake top spot**\
+`Manchester City have a chance to go top of the league before Arsenal and Liverpool square off later in the weekend.`\
+https://nytimes.com/athletic/5873044/2024/10/26/manchester-city-southampton-preview-odds-prediction/
+
+**Who Is Tommy Robinson, the Activist Behind a Far-Right London Rally?**\
+`The founder of the English Defence League, whose real name is Stephen Yaxley-Lennon, is at the forefront of a growing movement that was behind anti-immigrant riots this summer.`\
+https://nytimes.com/2024/10/26/world/europe/who-is-tommy-robinson-the-activist-behind-a-far-right-london-rally.html
+
+**Nick Nurse and Kyle Lowry trying to be as patient in Philadelphia as they were in Toronto**\
+`As the Philadelphia 76ers get off to a rocky start, all Lowry and Nurse can do is wait and hope.`\
+https://nytimes.com/athletic/5873820/2024/10/25/sixers-raptors-nick-nurse-kyle-lowry-patience/
+
+**Freeman's grand statement lifts Dodgers over Yankees in Game 1: Takeaways**\
+`The Dodgers first baseman hit the first walk-off grand slam in World Series history to give his team a 6-3 victory. `\
+https://nytimes.com/athletic/5873794/2024/10/25/dodgers-yankees-world-series-score-takeaways/
+
 **Freddie Freeman's walk-off grand slam lifts Dodgers past Yankees in Game 1 of World Series**\
 `This marquee matchup in the World Series was 43 years in the making — and it did not disappoint.`\
 https://nytimes.com/athletic/5873828/2024/10/25/freddie-freemans-walkoff-grand-slam-lifts-dodgers-past-yankees-in-game-1-of-world-series/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/pennsylvania-ballots-video-russia.htm
 **Tampa Bay Rays' 2025 stadium unclear, but unlikely to be Nashville or Salt Lake City: Source**\
 `The many spring training facilities across Florida stand out as possible homes for the Rays in 2025 and perhaps beyond. `\
 https://nytimes.com/athletic/5873806/2024/10/25/tampa-bay-rays-2025-stadium-nashville-salt-lake-city/
-
-**McLaren’s Right of Review over Norris-Verstappen incident dismissed**\
-`The FIA stewards determined “there is no relevant new element.”`\
-https://nytimes.com/athletic/5873792/2024/10/25/mclaren-right-of-review-norris-verstappen/
-
-**Why Did Israel Attack Iran?**\
-`The two countries have been fighting a shadow war for years. Now, their conflict has burst into the open.`\
-https://nytimes.com/2024/10/25/world/middleeast/why-did-israel-attack-iran.html
-
-**Masters of Bad Impersonations?**\
-`Peter A. Collins puts solvers on with a witty Saturday challenge.`\
-https://nytimes.com/2024/10/25/crosswords/daily-puzzle-2024-10-26.html
-
-**Musk Wins Appeal Over Tweet He Had to Delete About Union Push**\
-`The Fifth Circuit court ruled that the 2018 post was protected speech. It also vacated an order to reinstate a pro-union Tesla worker who was fired.`\
-https://nytimes.com/2024/10/25/business/musk-nlrb-appeal.html
-
-**Corrections: Oct. 26, 2024**\
-`Corrections that appeared in print on Saturday, Oct. 26, 2024.`\
-https://nytimes.com/2024/10/25/pageoneplus/corrections-oct-26-2024.html
-
-**Phil Lesh’s Life in Pictures**\
-`Looking back at the career of the Grateful Dead bassist, starting with when the band was clean cut and called the Warlocks.`\
-https://nytimes.com/2024/10/25/arts/music/phil-lesh-photos.html
 
