@@ -1,3 +1,7 @@
+**AD, Lakers overcome 22-point deficit to defeat Durant, Suns**\
+`Anthony Davis has scored 35-plus points in back-to-back games to start the season.`\
+https://nytimes.com/athletic/5873962/2024/10/26/lakers-suns-comeback-result-takeaways/
+
 **6 Takeaways From Donald Trump’s 3-Hour Podcast With Joe Rogan**\
 `The former president repeated his debunked claims of election fraud and speculated that there could be life on Mars in an interview aimed at young male voters.`\
 https://nytimes.com/2024/10/25/us/politics/trump-joe-rogan-podcast.html
