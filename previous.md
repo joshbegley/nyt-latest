@@ -1,3 +1,7 @@
+**Ohio State survives: What the Buckeyes' narrow win means for both teams**\
+`It wasn't easy, but Ohio State made the plays when it need to — on both sides of the ball — to escape with a 21-17 win over Nebraska. `\
+https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola-ryan-day/
+
 **Notre Dame took full advantage of Navy fumbling away its biggest opportunity**\
 `With the help of six Navy turnovers, Notre Dame rolled to a 51-14 win Saturday, handing the Midshipmen their first loss of the season.`\
 https://nytimes.com/athletic/5874736/2024/10/26/notre-dame-navy-football-score-recap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874591/2024/10/26/aston-villa-john-mcginn-goal-var
 **U.K. Man Who Posed as a Girl to Extort Teens Online Gets 20 Years in Prison**\
 `The Northern Ireland resident sought explicit images from thousands of girls he had groomed and blackmailed, leading to the death of a 12-year-old girl in the United States.`\
 https://nytimes.com/2024/10/26/world/europe/catfish-northern-ireland-manslaughter.html
-
-**Daughter of L.A. Times Owner Says Endorsement Decision Stemmed From Harris Stance on Gaza War**\
-`The decision by the owner, Patrick Soon-Shiong, to cancel the paper’s planned endorsement of Kamala Harris sent shock waves through the organization. It was not the first time he had gotten involved in newsroom affairs.`\
-https://nytimes.com/2024/10/26/us/los-angeles-times-endorsement-soon-shiong.html
 
