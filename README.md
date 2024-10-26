@@ -1,3 +1,11 @@
+**Why Is Trump Holding a Rally at Madison Square Garden?**\
+`New York is not exactly a battleground state. Here are five reasons Donald J. Trump is holding a rally there in the final days of the presidential campaign.`\
+https://nytimes.com/2024/10/26/us/politics/trump-rally-madison-square-garden.html
+
+**Russini’s what I’m hearing: Trade buzz on Kupp, 49ers and big-name defensive players**\
+`Plus, the latest on Jayden Daniels, what to expect in DeAndre Hopkins’ Chiefs debut, a change for the Cowboys and more.`\
+https://nytimes.com/athletic/5873722/2024/10/26/trade-deadline-news-cooper-kupp-rams-49ers/
+
 **Lil Durk Is Accused of Conspiring to Kill a Rival. What We Know About the Case.**\
 `The rapper Lil Durk was arrested at the airport in Miami this week after he had been booked on flights to three international destinations, federal prosecutors said.`\
 https://nytimes.com/2024/10/26/arts/music/lil-dirk-murder-for-hire-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/26/us/harris-trump-election/heres-the-latest-on
 **Hundreds Killed in Days as War in Sudan Surges**\
 `Paramilitary forces ransacked villages and killed hundreds of people, activists said, hastening calls for the United Nations to deploy a mission to protect civilians.`\
 https://nytimes.com/2024/10/26/world/africa/sudan-war-killings.html
-
-**Kansas City Chiefs Week 8 playbook: What to know ahead of Raiders matchup**\
-`Catch up on what you need to know from this week on the Chiefs`\
-https://nytimes.com/athletic/5871177/2024/10/26/kansas-city-chiefs-week-8-news-projections-preview/
-
-**Chicago Bears Week 8 playbook: What to know ahead of Commanders matchup**\
-`Catch up on what you need to know from this week on the Bears.`\
-https://nytimes.com/athletic/5871145/2024/10/26/chicago-bears-week-8-news-projections-preview/
 
