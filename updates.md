@@ -1,3 +1,7 @@
+**Beyoncé Rallies for Harris in Houston With a Message for the Battlegrounds**\
+`Kamala Harris used Texas’ strict abortion ban as a cautionary tale as she sought to lay out the stakes of a deadlocked election.`\
+https://nytimes.com/2024/10/26/us/politics/harris-beyonce-rally-houston.html
+
 **Why Lopetegui’s use of Jarrod Bowen out wide could pay dividends against Manchester United**\
 `Sunday's visitors have a specific weakness at left-back that the England international should be able to exploit`\
 https://nytimes.com/athletic/5872747/2024/10/26/jarrod-bowen-role-west-ham-manchester-united/
