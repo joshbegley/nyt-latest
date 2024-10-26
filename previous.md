@@ -1,3 +1,7 @@
+**Trump, Who Once Proposed a Muslim Registry, Now Courts Their Votes**\
+`The former president is reaching out to Muslim and Arab American voters in Michigan, a key battleground state.`\
+https://nytimes.com/2024/10/26/us/politics/trump-muslim-arab-american-voters-michigan.html
+
 **New York Mayor Says Trump Should Not Be Called ‘Fascist,’ Breaking With Harris and Party**\
 `Mayor Eric Adams of New York, an embattled Democrat who has been indicted on federal corruption charges, has been careful in what he says about the former president.`\
 https://nytimes.com/2024/10/26/us/politics/trump-fascist-mayor-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/crosswords/daily-puzzle-2024-10-27.html
 **Liz Cheney Is Certain That Kamala Harris Will Win**\
 `And it’s not because of democracy issues.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/liz-cheney-kamala-harris
-
-**Oliver Glasner analysis: The Crystal Palace manager talks pressure, transfers and stats**\
-`The Austrian's team will attempt once again to break their season's Premier League duck against Tottenham Hotspur at Selhurst Park on Sunday`\
-https://nytimes.com/athletic/5866449/2024/10/26/crystal-palace-glasner-analysis/
 

@@ -1,3 +1,7 @@
+**Trump, Who Once Proposed a Muslim Registry, Now Courts Their Votes**\
+`The former president is reaching out to Muslim and Arab American voters in Michigan, a key battleground state.`\
+https://nytimes.com/2024/10/26/us/politics/trump-muslim-arab-american-voters-michigan.html
+
 **New York Mayor Says Trump Should Not Be Called ‘Fascist,’ Breaking With Harris and Party**\
 `Mayor Eric Adams of New York, an embattled Democrat who has been indicted on federal corruption charges, has been careful in what he says about the former president.`\
 https://nytimes.com/2024/10/26/us/politics/trump-fascist-mayor-adams.html
