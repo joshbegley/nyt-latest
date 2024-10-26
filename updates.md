@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Patrick Kingsley, Farnaz Fassihi and Ronen Bergman`\
+https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/here-are-the-latest-developments
+
 **Live Updates: Israel’s Retaliatory Attack on Iran Hits Military Bases**\
 `Iran’s national air defense force said that Israel had struck sites in three provinces, including Tehran, causing “limited damage.”`\
 https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza
