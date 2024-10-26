@@ -1,3 +1,11 @@
+**Lil Durk Is Accused of Conspiring to Kill a Rival. What We Know About the Case.**\
+`The rapper Lil Durk was arrested at the airport in Miami this week after he had been booked on flights to three international destinations, federal prosecutors said.`\
+https://nytimes.com/2024/10/26/arts/music/lil-dirk-murder-for-hire-arrest.html
+
+**NFL Week 8 fantasy football, betting cheat sheet: Tua Tagovailoa cleared, DK Metcalf doubtful**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5866715/2024/10/26/nfl-week-8-fantasy-football-injuries-rankings-betting/
+
 **Israeli Attack Puts Iranians on Edge: ‘The Vibe Is Not Normal’**\
 `A sense of uncertainty prevailed in Iran after an Israeli retaliatory strike. Explosions kept some awake, while others hoped life would go back to normal.`\
 https://nytimes.com/2024/10/26/world/middleeast/iran-israel-attack-public.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5871177/2024/10/26/kansas-city-chiefs-week-8-news-p
 **Chicago Bears Week 8 playbook: What to know ahead of Commanders matchup**\
 `Catch up on what you need to know from this week on the Bears.`\
 https://nytimes.com/athletic/5871145/2024/10/26/chicago-bears-week-8-news-projections-preview/
-
-**San Francisco 49ers Week 8 playbook: What to know ahead of Cowboys matchup**\
-`Catch up on what you need to know from this week on the 49ers.`\
-https://nytimes.com/athletic/5871060/2024/10/26/san-francisco-49ers-week-8-news-projections-preview/
-
-**A New Business on Wall Street: Defending Against D.E.I. Backlash**\
-`Companies are conducting vulnerability assessments, compiling research reports and writing plans for what to do if their diversity efforts come under attack.`\
-https://nytimes.com/2024/10/26/business/dealbook/dei-backlash-advisers.html
 
