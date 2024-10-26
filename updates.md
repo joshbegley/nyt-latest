@@ -1,3 +1,7 @@
+**In Maine Battleground, Democrat Golden Grasps to Win Over Trump Voters**\
+`To win his toughest re-election bid yet, Representative Jared Golden needs Trump voters to back him over a young Republican prospect, a former NASCAR driver.`\
+https://nytimes.com/2024/10/26/us/elections/jared-golden-maine.html
+
 **Penguins' Tristan Jarry loaned to AHL on conditioning assignment**\
 `Jarry has not played for the Penguins since allowing three goals on five shots against the Buffalo Sabres on Oct. 16.`\
 https://nytimes.com/athletic/5874273/2024/10/26/penguins-tristan-jarry-ahl-assignment/
