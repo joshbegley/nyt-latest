@@ -1,3 +1,7 @@
+**The World According to Kamala Harris**\
+`The rise of Kamala Harris, the tenacious child of high-achieving immigrants, is atypical. But her story is also distinctly American.`\
+https://nytimes.com/2024/10/26/us/politics/kamala-harris-bio.html
+
 **'We helped them': Bucks lack defensive intensity in home-opening loss to Bulls**\
 `Rotational breakdowns, bad closeouts and lack of focus on defense doomed the Bucks against the Bulls: "Defensively, our IQ has to go up."`\
 https://nytimes.com/athletic/5873873/2024/10/26/bucks-bulls-damian-lillard-giannis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/elections/election-security-luzerne-county.htm
 **In Maine Battleground, Democrat Golden Grasps to Win Over Trump Voters**\
 `To win his toughest re-election bid yet, Representative Jared Golden needs Trump voters to back him over a young Republican prospect, a former NASCAR driver.`\
 https://nytimes.com/2024/10/26/us/elections/jared-golden-maine.html
-
-**Penguins' Tristan Jarry loaned to AHL on conditioning assignment**\
-`Jarry has not played for the Penguins since allowing three goals on five shots against the Buffalo Sabres on Oct. 16.`\
-https://nytimes.com/athletic/5874273/2024/10/26/penguins-tristan-jarry-ahl-assignment/
 
