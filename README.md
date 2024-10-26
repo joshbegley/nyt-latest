@@ -1,3 +1,11 @@
+**Wild look to put sloppy loss behind them and end long road trip on a 'high note'**\
+`Filip Gustavsson had his first off night of the season and the Wild were handed their first regulation loss by the Flyers. `\
+https://nytimes.com/athletic/5874992/2024/10/26/wild-flyers-loss-filip-gustavsson/
+
+**The Curious Case of a Temple Sweet: How Food Increasingly Divides India**\
+`A Hindu politician has accused his Christian predecessor of allowing a temple’s sanctity to be violated with an animal product.`\
+https://nytimes.com/2024/10/26/world/asia/india-temple-laddu.html
+
 **Trump, Who Once Proposed a Muslim Registry, Now Courts Their Votes**\
 `The former president is reaching out to Muslim and Arab American voters in Michigan, a key battleground state.`\
 https://nytimes.com/2024/10/26/us/politics/trump-muslim-arab-american-voters-michigan.html
@@ -7,7 +15,7 @@ https://nytimes.com/2024/10/26/us/politics/trump-muslim-arab-american-voters-mic
 https://nytimes.com/2024/10/26/us/politics/trump-fascist-mayor-adams.html
 
 **Ryan Day, Ohio State face pressing question that threatens to derail title hopes**\
-`Injuries have exposed Ohio State's lack of offensive line depth, which nearly cost it vs. Nebraska and could prove pivotal going forward.`\
+`Injuries have exposed Ohio State's lack of offensive line depth, which nearly cost it vs. Nebraska and could prove pivotal in the future.`\
 https://nytimes.com/athletic/5874989/2024/10/26/ohio-state-nebraska-offensive-line-injuries/
 
 **What We Know About Israel’s Strikes On Iran**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5874967/2024/10/26/holden-trent-philadelphia-union-
 **Trump Attacks Bipartisan Semiconductor Law, a Key Policy Achievement for Biden**\
 `Former President Donald J. Trump’s comments came during a nearly three-hour episode of “The Joe Rogan Experience.”`\
 https://nytimes.com/2024/10/26/us/politics/trump-joe-rogan-chips-science-act.html
-
-**Working the Night Shift**\
-`Jeffrey Martinovic and Jeff Chen’s Sunday puzzle will have you beaming.`\
-https://nytimes.com/2024/10/26/crosswords/daily-puzzle-2024-10-27.html
-
-**Liz Cheney Is Certain That Kamala Harris Will Win**\
-`And it’s not because of democracy issues.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/liz-cheney-kamala-harris
 
