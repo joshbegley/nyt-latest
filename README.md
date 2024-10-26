@@ -1,3 +1,7 @@
+**A New Business on Wall Street: Defending Against D.E.I. Backlash**\
+`Companies are conducting vulnerability assessments, compiling research reports and writing plans for what to do if their diversity efforts come under attack.`\
+https://nytimes.com/2024/10/26/business/dealbook/dei-backlash-advisers.html
+
 **2 Novels About Complicated Nuns**\
 `An atheist in a convent; a bloodthirsty reality show hostess.`\
 https://nytimes.com/2024/10/26/books/read-like-wind-recommendations-nuns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/opinion/trump-age-decline-behavior.html
 **Go Ahead, Embrace Sober October. I Will Be Drinking Wine.**\
 `People are turning away from drinking. But a glass of wine offers transcendent benefits that, for me, far outweigh the risks.`\
 https://nytimes.com/2024/10/26/opinion/wine-sober-october.html
-
-**Silicon Valley Turns on the F.T.C. That’s Not a Good Thing.**\
-`Prominent venture capitalists’ bashing of the F.T.C.’s chair is evidence of a troubled tech market.`\
-https://nytimes.com/2024/10/26/opinion/lina-khan-ftc-venture-capital-silicon-valley.html
 
