@@ -1,3 +1,11 @@
+**The best Shohei Ohtani cards to collect after his historic 50/50 season**\
+`Ohtani cards are in big demand as he continues to add to his already historic resume`\
+https://nytimes.com/athletic/5873683/2024/10/25/shohei-ohtani-rookie-cards-dodgers/
+
+**G.O.P. Lawmaker Voices Support for Giving North Carolina’s Electors to Trump**\
+`Representative Andy Harris walked back his remarks, later saying his rationale that Hurricane Helene disenfranchised some voters was “theoretical.”`\
+https://nytimes.com/2024/10/25/us/politics/andy-harris-north-carolina-electors-trump.html
+
 **Your Guide to the Drama-Filled Race for Senate Control**\
 `The chamber had seemed like Republicans’ to lose, but a few surprises are playing out.`\
 https://nytimes.com/2024/10/25/us/politics/senate-election-republicans-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/blasts-report
 **The Personal Plea Phil Lesh Made Every Time He Took the Stage**\
 `For the past 25 years, the founding member of the Grateful Dead made a nightly speech about a topic that helped him stay performing into his 80s.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-liver-transplant.html
-
-**City Paves Over Bed-Stuy’s Hydrant ‘Aquarium’ and Puts Up a Sidewalk**\
-`The New York City Department of Environmental Protection poured concrete over a community-built goldfish pond, citing safety concerns, much to the disappointment of its Brooklyn neighborhood.`\
-https://nytimes.com/2024/10/25/nyregion/bed-stuy-aquarium-sidewalk-brooklyn.html
-
-**The Culture Was Always Playing Catch-Up With Gary Indiana**\
-`From downtown New York, the writer both scrutinized and kept ahead of a turbulent world.`\
-https://nytimes.com/2024/10/25/books/review/gary-indiana-appraisal.html
 
