@@ -1,3 +1,7 @@
+**Masters of Bad Impersonations?**\
+`Peter A. Collins puts solvers on with a witty Saturday challenge.`\
+https://nytimes.com/2024/10/25/crosswords/daily-puzzle-2024-10-26.html
+
 **Musk Wins Appeal Over Tweet He Had to Delete About Union Push**\
 `The Fifth Circuit court ruled that the 2018 post was protected speech. It also vacated an order to reinstate a pro-union Tesla worker who was fired.`\
 https://nytimes.com/2024/10/25/business/musk-nlrb-appeal.html
