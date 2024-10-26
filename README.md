@@ -1,3 +1,7 @@
+**USYNT international Campbell makes Bundesliga debut for Dortmund**\
+`Cole Campbell, a USYNT international, made his Bundesliga debut for Borussia Dortmund on Saturday.`\
+https://nytimes.com/athletic/5874504/2024/10/26/cole-campbell-dortmund-usmnt/
+
 **The World According to Kamala Harris**\
 `The rise of Kamala Harris, the tenacious child of high-achieving immigrants, is atypical. But her story is also distinctly American.`\
 https://nytimes.com/2024/10/26/us/politics/kamala-harris-bio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/dining/peanut-butter-walks-into-a-chocolate-cooki
 **Barricades and Bulletproof Glass: A County Prepares for Election Day**\
 `With the specter of political violence looming, the Department of Homeland Security has advised hundreds of communities on election safety. Luzerne County, Pa., is at the center of the unrest.`\
 https://nytimes.com/2024/10/26/us/elections/election-security-luzerne-county.html
-
-**In Maine Battleground, Democrat Golden Grasps to Win Over Trump Voters**\
-`To win his toughest re-election bid yet, Representative Jared Golden needs Trump voters to back him over a young Republican prospect, a former NASCAR driver.`\
-https://nytimes.com/2024/10/26/us/elections/jared-golden-maine.html
 
