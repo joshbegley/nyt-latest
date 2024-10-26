@@ -1,3 +1,7 @@
+**Israel’s Response to Iran**\
+`We’ve got an update on the fighting in the Middle East.`\
+https://nytimes.com/2024/10/26/briefing/israel-iran-strikes.html
+
 **Nestor Cortes wanted the ball. And all that came with it**\
 `When Cortes entered Game 1 in the 10th inning, it was his first time pitching in extra innings in his major-league career. `\
 https://nytimes.com/athletic/5874096/2024/10/26/nestor-cortes-yankees-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/crosswords/connections-companion-504.html
 **Here’s how the Israeli attack on Iran unfolded.**\
 `By Ronen Bergman`\
 https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/heres-how-the-israeli-attack-on-iran-unfolded
-
-**Israel presses on with fighting in Lebanon and Gaza.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israel-presses-on-with-fighting-in-lebanon-and-gaza
 
