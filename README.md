@@ -1,3 +1,7 @@
+**Phil Lesh’s Life in Pictures**\
+`Looking back at the career of the Grateful Dead bassist, starting when the band was clean cut and called the Warlocks.`\
+https://nytimes.com/2024/10/25/arts/phil-lesh-photos.html
+
 **Phil Lesh Didn’t Hold Songs Down. He Lifted Them Higher.**\
 `The Grateful Dead bassist found new melodic byways through every song.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-grateful-dead-bassist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/nyregion/proposition-one-ballot-abortion.html
 **North Korean Troops Assemble in Russia’s Kursk Region, U.S. Officials Say**\
 `Thousands of soldiers from an elite unit of the Korean People’s Army began arriving on Wednesday and are expected to try to help expel Ukrainian forces from Russian territory.`\
 https://nytimes.com/2024/10/25/world/europe/north-korean-troops-arrive-kursk-russia.html
-
-**Israel announces strikes on military sites in Iran.**\
-`Blasts reported around Tehran after a year of escalating confrontations. `\
-https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations
 
