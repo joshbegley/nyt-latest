@@ -1,3 +1,7 @@
+**Israel Struck Air Defenses Around Critical Iranian Energy Sites, Officials Say**\
+`Israeli attacks hit air-defense systems around important energy sites but avoided the facilities themselves, Iranian and Israeli officials said. The United States had urged Israel not to strike energy and oil facilities.`\
+https://nytimes.com/2024/10/26/world/middleeast/israel-air-defenses-iran-energy-sites.html
+
 **Takeaways from Alabama's shutout of Missouri after slow start**\
 `Jalen Milroe and the Alabama offense stepped up after a spark from the defense in the Tide's most complete game of the season.`\
 https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-kalen-deboer/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009785277/what-we-know-about-is
 **Tage Thompson's dominance and 4 other thoughts on Sabres' 3-game win streak**\
 `Thompson scored two goals and recorded the hardest shot in the league since 2021 in Buffalo's 5-3 win over Detroit.`\
 https://nytimes.com/athletic/5874986/2024/10/26/sabres-red-wings-tage-thompson/
-
-**Carlos Sainz takes Mexico City GP pole in qualifying**\
-`It's Sainz's first pole in 2024 and potentially last as a Ferrari driver. `\
-https://nytimes.com/athletic/5875009/2024/10/26/carlos-sainz-pole-f1-mexico-city-gp/
 

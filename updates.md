@@ -1,3 +1,7 @@
+**Israel Struck Air Defenses Around Critical Iranian Energy Sites, Officials Say**\
+`Israeli attacks hit air-defense systems around important energy sites but avoided the facilities themselves, Iranian and Israeli officials said. The United States had urged Israel not to strike energy and oil facilities.`\
+https://nytimes.com/2024/10/26/world/middleeast/israel-air-defenses-iran-energy-sites.html
+
 **Takeaways from Alabama's shutout of Missouri after slow start**\
 `Jalen Milroe and the Alabama offense stepped up after a spark from the defense in the Tide's most complete game of the season.`\
 https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-kalen-deboer/
