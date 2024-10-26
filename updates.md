@@ -1,3 +1,7 @@
+**Why Did Israel Attack Iran?**\
+`The two countries have been fighting a shadow war for years. Now, their conflict has burst into the open.`\
+https://nytimes.com/2024/10/25/world/middleeast/why-did-israel-attack-iran.html
+
 **Masters of Bad Impersonations?**\
 `Peter A. Collins puts solvers on with a witty Saturday challenge.`\
 https://nytimes.com/2024/10/25/crosswords/daily-puzzle-2024-10-26.html
