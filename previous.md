@@ -1,3 +1,7 @@
+**Joe Davis on 'Gibby, meet Freddie' World Series call: 'That's the dream'**\
+`Davis on honoring Vin Scully: “I’d always thought that it would be neat to someday be able to pay homage to Vin somehow."`\
+https://nytimes.com/athletic/5874893/2024/10/26/dodgers-world-series-freddie-freeman-walk-off/
+
 **Just When You Thought Sneakers Couldn’t Get Any Weirder**\
 `Puffy, pricey, and strangely perfect for the moment, the $455 ERLs are billed as skateboard shoes — but maybe don’t try to skate in them.`\
 https://nytimes.com/2024/10/26/style/erl-vamps-skate-shoe.html
@@ -31,10 +35,6 @@ https://nytimes.com/video/world/asia/100000009782894/why-north-korean-soldiers-a
 https://nytimes.com/athletic/5874714/2024/10/26/indycar-mexico-race-2026-pato-oward/
 
 **What to Know About the Chinese Hackers Who Targeted the 2024 Campaigns**\
-`A group experts call Salt Typhoon is believed to be behind a sophisticated breach into major telecommunication companies that has taken aim at American leaders.`\
+`A group experts call Salt Typhoon is believed to be behind a sophisticated breach of major telecommunication companies that has taken aim at American leaders.`\
 https://nytimes.com/2024/10/26/us/politics/salt-typhoon-hack-what-we-know.html
-
-**Penny Hires Jury Consultant Who Aided O.J. Simpson and Kyle Rittenhouse**\
-`The courtroom presence of Jo-Ellan Dimitrius illustrates the pressure on the 12 people who will decide if Daniel Penny is guilty of manslaughter for choking a man on a New York subway train.`\
-https://nytimes.com/2024/10/26/nyregion/daniel-penny-jury-consultant-ny-subway-choking.html
 

@@ -1,3 +1,11 @@
+**Joe Davis on 'Gibby, meet Freddie' World Series call: 'That's the dream'**\
+`Davis on honoring Vin Scully: “I’d always thought that it would be neat to someday be able to pay homage to Vin somehow."`\
+https://nytimes.com/athletic/5874893/2024/10/26/dodgers-world-series-freddie-freeman-walk-off/
+
+**What to Know About the Chinese Hackers Who Targeted the 2024 Campaigns**\
+`A group experts call Salt Typhoon is believed to be behind a sophisticated breach of major telecommunication companies that has taken aim at American leaders.`\
+https://nytimes.com/2024/10/26/us/politics/salt-typhoon-hack-what-we-know.html
+
 **Just When You Thought Sneakers Couldn’t Get Any Weirder**\
 `Puffy, pricey, and strangely perfect for the moment, the $455 ERLs are billed as skateboard shoes — but maybe don’t try to skate in them.`\
 https://nytimes.com/2024/10/26/style/erl-vamps-skate-shoe.html
