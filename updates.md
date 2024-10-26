@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
 
+**Lowetide: Who will be the first Oilers recall from the farm?**\
+`A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
+`\
+https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
+
 **Carlos Sainz takes Mexico City GP pole in qualifying**\
 `It's Sainz' first pole in 2024 and potentially last as a Ferrari driver. `\
 https://nytimes.com/athletic/5875009/2024/10/26/carlos-sainz-pole-f1-mexico-city-gp/
