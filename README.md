@@ -1,3 +1,7 @@
+**Why Did Israel Attack Iran?**\
+`The two countries have been fighting a shadow war for years. Now, their conflict has burst into the open.`\
+https://nytimes.com/2024/10/25/world/middleeast/why-did-israel-attack-iran.html
+
 **Masters of Bad Impersonations?**\
 `Peter A. Collins puts solvers on with a witty Saturday challenge.`\
 https://nytimes.com/2024/10/25/crosswords/daily-puzzle-2024-10-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/senate-election-republicans-democrats
 **Sydney Leroux calls for NWSL to its reevaluate childcare policies**\
 `"The NWSL should not force a mother to choose between chasing her dreams or having children," Leroux said on X.`\
 https://nytimes.com/athletic/5873685/2024/10/25/angel-city-fc-nwsl-sydney-leroux/
-
-**Trump Fumes Over Magazine Report at Rally With Slain Soldier’s Family**\
-`Relatives of Specialist Vanessa Guillén, who was murdered in 2020, joined Donald J. Trump at a rally days after The Atlantic reported he had made a racist remark about her.`\
-https://nytimes.com/2024/10/25/us/politics/trump-atlantic-magazine.html
 
