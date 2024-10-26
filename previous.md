@@ -1,3 +1,15 @@
+**Explained: Real Madrid's Bernabeu stadium dispute with residents that could cost club**\
+`Concerts at the Bernabeu have promoted complaints from local residents over noise. But the club is relying on the income. So what now?`\
+https://nytimes.com/athletic/5865938/2024/10/26/bernabeu-real-madrid-resident-dispute/
+
+**13 insights fantasy football managers need to know ahead of Week 8**\
+`Theo Gremminger gets hyperbolic in talking about rookie tight end Brock Bowers as he shares 13 insights ahead of Week 8.`\
+https://nytimes.com/athletic/5872917/2024/10/26/13-insights-fantasy-football-week-8/
+
+**Breaking down Onana's remarkable double save (and how it compares to Raya's)**\
+`Andre Onana pulled off an exceptional double save in Manchester United's match against Fenerbahce`\
+https://nytimes.com/athletic/5872448/2024/10/26/andre-onana-manchester-united-david-raya/
+
 **The Man Who Shaped China’s Strongman Rule Has a New Job: Winning Taiwan**\
 `Xi Jinping’s top adviser, Wang Huning, is credited with shaping the authoritarianism that steered China’s rise. But can he influence Taiwan?`\
 https://nytimes.com/2024/10/26/world/asia/china-xi-jinping-adviser-taiwan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5873794/2024/10/25/dodgers-yankees-world-series-sco
 **Freddie Freeman's walk-off grand slam lifts Dodgers past Yankees in Game 1 of World Series**\
 `This marquee matchup in the World Series was 43 years in the making — and it did not disappoint.`\
 https://nytimes.com/athletic/5873828/2024/10/25/freddie-freemans-walkoff-grand-slam-lifts-dodgers-past-yankees-in-game-1-of-world-series/
-
-**MLS Cup Playoff takeaways: Suarez, Alba score and Messi records an assist in win over Atlanta**\
-`Our writers analyze the key talking points from Inter Miami's MLS playoff win over Atlanta United.`\
-https://nytimes.com/athletic/5873540/2024/10/25/inter-miami-atlanta-united-mls-playoff-first-game/
-
-**Video of Ballots Being Destroyed Was Faked by Russia, Federal Officials Say**\
-`The video, which purported to show mailed-in ballots in Pennsylvania being ripped up, was part of Moscow’s efforts to influence the U.S. presidential election, the officials said.`\
-https://nytimes.com/2024/10/25/us/politics/pennsylvania-ballots-video-russia.html
-
-**Tampa Bay Rays' 2025 stadium unclear, but unlikely to be Nashville or Salt Lake City: Source**\
-`The many spring training facilities across Florida stand out as possible homes for the Rays in 2025 and perhaps beyond. `\
-https://nytimes.com/athletic/5873806/2024/10/25/tampa-bay-rays-2025-stadium-nashville-salt-lake-city/
 

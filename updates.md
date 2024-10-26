@@ -1,3 +1,15 @@
+**Explained: Real Madrid's Bernabeu stadium dispute with residents that could cost club**\
+`Concerts at the Bernabeu have promoted complaints from local residents over noise. But the club is relying on the income. So what now?`\
+https://nytimes.com/athletic/5865938/2024/10/26/bernabeu-real-madrid-resident-dispute/
+
+**13 insights fantasy football managers need to know ahead of Week 8**\
+`Theo Gremminger gets hyperbolic in talking about rookie tight end Brock Bowers as he shares 13 insights ahead of Week 8.`\
+https://nytimes.com/athletic/5872917/2024/10/26/13-insights-fantasy-football-week-8/
+
+**Breaking down Onana's remarkable double save (and how it compares to Raya's)**\
+`Andre Onana pulled off an exceptional double save in Manchester United's match against Fenerbahce`\
+https://nytimes.com/athletic/5872448/2024/10/26/andre-onana-manchester-united-david-raya/
+
 **The Man Who Shaped China’s Strongman Rule Has a New Job: Winning Taiwan**\
 `Xi Jinping’s top adviser, Wang Huning, is credited with shaping the authoritarianism that steered China’s rise. But can he influence Taiwan?`\
 https://nytimes.com/2024/10/26/world/asia/china-xi-jinping-adviser-taiwan.html
