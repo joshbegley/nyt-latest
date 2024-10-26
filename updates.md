@@ -1,3 +1,7 @@
+**Notre Dame took full advantage of Navy fumbling away its biggest opportunity**\
+`With the help of six Navy turnovers, Notre Dame rolled to a 51-14 win Saturday, handing the Midshipmen their first loss of the season.`\
+https://nytimes.com/athletic/5874736/2024/10/26/notre-dame-navy-football-score-recap/
+
 **Israeli lawmakers say the country’s attack on Iran didn’t go far enough.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-lawmakers-say-the-countrys-attack-on-iran-didnt-go-far-enough
