@@ -1,3 +1,11 @@
+**Russia or the West? Elections Put Republic of Georgia at a Crossroads.**\
+`Voters cast ballots on Saturday in a parliamentary election that could derail the country’s pro-Western course.`\
+https://nytimes.com/2024/10/26/world/europe/georgia-elections-russia-china-west.html
+
+**How Freddie Freeman delivered an iconic swing on a bad ankle: 'You dream about those moments'**\
+`Chris Taylor watched Freeman regain his swing a few days ago and told a teammate: “I think Freddie’s about to go off."`\
+https://nytimes.com/athletic/5874049/2024/10/26/freddie-freeman-world-series-grand-slam-ankle/
+
 **How Freddie Freeman delivered an iconic swing on a bad ankle: 'You dream about those moments'**\
 `Chris Taylor watched Freeman regain his swing a few days ago and told a teammate: “I think Freddie’s about to go off."`\
 https://nytimes.com/athletic/5874049/2024/10/26/freddie-freeman-grand-slam-ankle/
