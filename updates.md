@@ -1,3 +1,7 @@
+**Two referees banned by UEFA after 'improper behaviour' before Champions League qualifier**\
+`Two referees have been banned from UEFA competitions after violating &#8220;basic rules of decent conduct&#8221; with &#8220;improper behaviour&#8221; before a Champions League qualifying tie.`\
+https://nytimes.com/athletic/5874101/2024/10/26/uefa-polish-referees-banned/
+
 **In a Tight Election, Can the Weather Cast a Deciding Vote?**\
 `It tends to play a minor role in voter turnout, affecting only close elections — like the one coming up on Nov. 5.`\
 https://nytimes.com/2024/10/26/weather/election-day-weather.html
