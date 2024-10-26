@@ -1,3 +1,7 @@
+**Hurzeler blames Brighton's lack of maturity, professionalism for Wolves draw**\
+`Head coach Fabian Hurzeler has blamed Brighton &amp; Hove Albion&#8217;s late slip up against Wolverhampton Wanderers on immaturity and a lack of professionalism.`\
+https://nytimes.com/athletic/5874597/2024/10/26/brighton-wolves-result-fabian-hurzeler/
+
 **Flyers reassign rookie center Jett Luchanko to his junior team**\
 `Luchanko, who turned 18 on August 21, became the youngest player in Flyers franchise history when he dressed for the season opener.`\
 https://nytimes.com/athletic/5874563/2024/10/26/flyers-jett-luchanko-reassigned-guelph/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/opinion/gender-election-voting-men-women-young.ht
 **Erykah Badu’s Fearless Evolution Has Made Her an Icon**\
 `A look at the singer and songwriter’s signature moments as she is set to receive one of fashion’s highest honors: the Council of Fashion Designers of America’s icon award.`\
 https://nytimes.com/2024/10/26/style/erykah-badu-icon-award.html
-
-**Nigeria awarded match, Libya fined after AFCON qualifying airport incident**\
-`Nigeria have been awarded the victory after they forfeited their game against Libya earlier this month after being stranded at an airport in the North African country.`\
-https://nytimes.com/athletic/5874360/2024/10/26/nigeria-libya-forfeit-afcon-qualifying/
 
