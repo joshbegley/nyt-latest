@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-ka
 `Barcelona thrashed Real Madrid in the first Clasico of the season and they play with confidence and joy under Flick. That had been missing`\
 https://nytimes.com/athletic/5872054/2024/10/26/barcelona-clasico-real-madrid-victory/
 
-**Wild look to put sloppy loss behind them and end long road trip on a 'high note'**\
-`Filip Gustavsson had his first off night of the season and the Wild were handed their first regulation loss by the Flyers. `\
+**Wild look to put sloppy loss behind them and end long trip on a 'high note'**\
+`Filip Gustavsson had his first off night of the season, and the Wild were handed their first regulation loss by the Flyers. `\
 https://nytimes.com/athletic/5874992/2024/10/26/wild-flyers-loss-filip-gustavsson/
 
 **The Curious Case of a Temple Sweet: How Food Increasingly Divides India**\

@@ -1,3 +1,7 @@
+**Wild look to put sloppy loss behind them and end long trip on a 'high note'**\
+`Filip Gustavsson had his first off night of the season, and the Wild were handed their first regulation loss by the Flyers. `\
+https://nytimes.com/athletic/5874992/2024/10/26/wild-flyers-loss-filip-gustavsson/
+
 **Michelle Obama Makes Abortion Rights Plea to Male Voters**\
 `Michelle Obama, the former first lady, made the case during a rally for Vice President Kamala Harris that a vote for former President Donald J. Trump would be a vote against women’s reproductive rights and health.`\
 https://nytimes.com/video/us/politics/100000009785492/michelle-obama-trump-harris.html
