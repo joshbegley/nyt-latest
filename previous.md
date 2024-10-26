@@ -1,3 +1,7 @@
+**Makai Lemon breaks out, defense responds: Takeaways from the USC's win over Rutgers**\
+`The Trojans snapped a three-game losing streak with a 42-20 win over Rutgers on Friday night. `\
+https://nytimes.com/athletic/5874194/2024/10/26/usc-rutgers-makai-lemson-lincoln-riley/
+
 **Obi-Martin scores 15-minute hat-trick on Man United under-18s debut**\
 `Chido Obi-Martin scored a hat-trick within 15 minutes of his debut for Manchester United&#8217;s under-18s against Nottingham Forest on Saturday.`\
 https://nytimes.com/athletic/5874184/2024/10/26/manchester-united-chido-obi-martin-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/business/dealbook/dei-backlash-advisers.html
 **Detroit Lions Week 8 playbook: What to know ahead of Titans matchup**\
 `Catch up on what you need to know from this week on the Lions.`\
 https://nytimes.com/athletic/5870322/2024/10/26/detroit-lions-week-8-news-projections-preview/
-
-**2 Novels About Complicated Nuns**\
-`An atheist in a convent; a bloodthirsty reality show hostess.`\
-https://nytimes.com/2024/10/26/books/read-like-wind-recommendations-nuns.html
 
