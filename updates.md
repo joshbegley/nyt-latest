@@ -1,3 +1,15 @@
+**Mohamed Salah is even better for Liverpool under Arne Slot: An analysis of what's changed**\
+`The Liverpool winger turned 32 in the summer, yet looks better than ever under their new head coach - how?`\
+https://nytimes.com/athletic/5862931/2024/10/26/salah-even-better-slot-liverpool/
+
+**Beyoncé Campaigns With Harris in Texas**\
+`Beyoncé and Kelly Rowland expressed support for Vice President Kamala Harris at a campaign event focused on abortion rights in Houston on Friday night.`\
+https://nytimes.com/video/us/elections/100000009784933/beyonce-harris-houston-video.html
+
+**Barcelona's Coldplay shirt partnership - and why it was 'meant to be'**\
+`Barca will wear the Coldplay logo during tonight's Clasico. It's a connection that stretches back to Pep Guardiola's reign`\
+https://nytimes.com/athletic/5872673/2024/10/26/barcelona-coldplay-el-clasico-shirt/
+
 **Explained: Real Madrid's Bernabeu stadium dispute with residents that could cost club**\
 `Concerts at the Bernabeu have promoted complaints from local residents over noise. But the club is relying on the income. So what now?`\
 https://nytimes.com/athletic/5865938/2024/10/26/bernabeu-real-madrid-resident-dispute/
