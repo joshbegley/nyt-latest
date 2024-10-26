@@ -1,3 +1,7 @@
+**Yankees' Boone explains ill-fated decision to use Cortes against Dodger lefties**\
+`The Yankee pitcher was able to get Shohei Ohtani out, but gave up a walk-off grand slam to Freddie Freeman. `\
+https://nytimes.com/athletic/5874017/2024/10/26/yankees-world-series-aaron-boone-nestor-cortes-decision/
+
 **Boise State beats UNLV to strengthen its case for CFP berth**\
 `Boise State took sole possession of first place in the Mountain West with Friday's 29-24 win at UNLV.`\
 https://nytimes.com/athletic/5874009/2024/10/26/boise-state-unlv-ashton-jeanty-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/politics/harris-beyonce-rally-houston.html
 **Why Lopetegui’s use of Jarrod Bowen out wide could pay dividends against Manchester United**\
 `Sunday's visitors have a specific weakness at left-back that the England international should be able to exploit`\
 https://nytimes.com/athletic/5872747/2024/10/26/jarrod-bowen-role-west-ham-manchester-united/
-
-**Slot, Flick, Motta and De Zerbi: Four blockbuster matches present new coaches' biggest tests yet**\
-`Liverpool, Barcelona, Juventus and Marseille face elite teams (including three reigning champions) who have established coaches and styles `\
-https://nytimes.com/athletic/5872155/2024/10/26/barcelona-liverpool-juventus-marseille-coaches/
 
