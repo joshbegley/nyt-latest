@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 0 Barcelona 4 - Mbappe's Clasico to forget as Flick's team stun European champions**\
+`Barca demolished Madrid to strike a huge early blow in the La Liga title race`\
+https://nytimes.com/athletic/5866056/2024/10/26/real-madrid-0-barcelona-4-mbappe-flick-lewandowski/
+
 **Ohio State survives: What does this mean for Buckeyes, Huskers?**\
 `It wasn't easy, but Ohio State made the plays when it needed to — on both sides of the ball — to escape with a 21-17 win over Nebraska. `\
 https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola-ryan-day/
