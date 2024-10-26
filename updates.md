@@ -1,3 +1,7 @@
+**Corrections: Oct. 26, 2024**\
+`Corrections that appeared in print on Saturday, Oct. 26, 2024.`\
+https://nytimes.com/2024/10/25/pageoneplus/corrections-oct-26-2024.html
+
 **Phil Lesh’s Life in Pictures**\
 `Looking back at the career of the Grateful Dead bassist, starting with when the band was clean cut and called the Warlocks.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-photos.html
