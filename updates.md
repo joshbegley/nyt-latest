@@ -1,3 +1,7 @@
+**Trump Escalates Threats as Campaign Enters Dark Final Stretch**\
+`Top military leaders and high-ranking former officials from his administration have issued warning after warning that Donald J. Trump would rule as a dictator if given the chance.`\
+https://nytimes.com/2024/10/26/us/politics/trump-democracy-threats.html
+
 **The Briefing: Real Madrid 0 Barcelona 4 - Mbappe's Clasico to forget as Flick's team stun European champions**\
 `Barca demolished Madrid to strike a huge early blow in the La Liga title race`\
 https://nytimes.com/athletic/5866056/2024/10/26/real-madrid-0-barcelona-4-mbappe-flick-lewandowski/
