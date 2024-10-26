@@ -1,3 +1,7 @@
+**Israel announces strikes on military sites in Iran.**\
+`Blasts reported around Tehran after a year of escalating confrontations. `\
+https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations
+
 **Your Guide to the Drama-Filled Race for Senate Control**\
 `The chamber had seemed like Republicans’ to lose, but a few surprises are playing out.`\
 https://nytimes.com/2024/10/25/us/politics/senate-election-republicans-democrats.html
