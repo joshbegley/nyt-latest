@@ -1,3 +1,7 @@
+**How Bad Do You Want It, Ladies?**\
+`Donald, your insecurity is showing.`\
+https://nytimes.com/2024/10/26/opinion/donald-trump-gender-election.html
+
 **Freddie Freeman wallops his way into World Series history with walk-off slam that'll float forever**\
 `Freeman's breathtaking blast was the first walk-off, lead-flipping, extra-inning World Series grand slam ever – and so much more. `\
 https://nytimes.com/athletic/5874127/2024/10/26/freddie-freeman-grand-slam-world-series-history/
