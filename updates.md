@@ -1,3 +1,19 @@
+**Kansas City Chiefs Week 8 playbook: What to know ahead of Raiders matchup**\
+`Catch up on what you need to know from this week on the Chiefs`\
+https://nytimes.com/athletic/5871177/2024/10/26/kansas-city-chiefs-week-8-news-projections-preview/
+
+**Chicago Bears Week 8 playbook: What to know ahead of Commanders matchup**\
+`Catch up on what you need to know from this week on the Bears.`\
+https://nytimes.com/athletic/5871145/2024/10/26/chicago-bears-week-8-news-projections-preview/
+
+**San Francisco 49ers Week 8 playbook: What to know ahead of Cowboys matchup**\
+`Catch up on what you need to know from this week on the 49ers.`\
+https://nytimes.com/athletic/5871060/2024/10/26/san-francisco-49ers-week-8-news-projections-preview/
+
+**Detroit Lions Week 8 playbook: What to know ahead of Titans matchup**\
+`Catch up on what you need to know from this week on the Lions.`\
+https://nytimes.com/athletic/5870322/2024/10/26/detroit-lions-week-8-news-projections-preview/
+
 **A New Business on Wall Street: Defending Against D.E.I. Backlash**\
 `Companies are conducting vulnerability assessments, compiling research reports and writing plans for what to do if their diversity efforts come under attack.`\
 https://nytimes.com/2024/10/26/business/dealbook/dei-backlash-advisers.html
