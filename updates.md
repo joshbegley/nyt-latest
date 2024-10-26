@@ -1,3 +1,7 @@
+**Michelle Obama Makes Abortion Rights Plea to Male Voters**\
+`Michelle Obama, the former first lady, made the case during a rally for Vice President Kamala Harris that a vote for former President Donald J. Trump would be a vote against women’s reproductive rights and health.`\
+https://nytimes.com/video/us/politics/100000009785492/michelle-obama-trump-harris.html
+
 **Israel Struck Air Defenses Around Critical Iranian Energy Sites, Officials Say**\
 `Israeli attacks hit air-defense systems around important energy sites but avoided the facilities themselves, Iranian and Israeli officials said. The United States had urged Israel not to strike energy and oil facilities.`\
 https://nytimes.com/2024/10/26/world/middleeast/israel-air-defenses-iran-energy-sites.html

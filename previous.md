@@ -1,3 +1,7 @@
+**Michelle Obama Makes Abortion Rights Plea to Male Voters**\
+`Michelle Obama, the former first lady, made the case during a rally for Vice President Kamala Harris that a vote for former President Donald J. Trump would be a vote against women’s reproductive rights and health.`\
+https://nytimes.com/video/us/politics/100000009785492/michelle-obama-trump-harris.html
+
 **Israel Struck Air Defenses Around Critical Iranian Energy Sites, Officials Say**\
 `Israeli attacks hit air-defense systems around important energy sites but avoided the facilities themselves, Iranian and Israeli officials said. The United States had urged Israel not to strike energy and oil facilities.`\
 https://nytimes.com/2024/10/26/world/middleeast/israel-air-defenses-iran-energy-sites.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874989/2024/10/26/ohio-state-nebraska-offensive-li
 **What We Know About Israel’s Strikes On Iran**\
 `After military-on-military attacks, will Israel and Iran be able to contain their conflict? Maria Abi-Habib, an investigative correspondent for The New York Times, looks at an unprecedented new chapter in the Middle East.`\
 https://nytimes.com/video/world/middleeast/100000009785277/what-we-know-about-israels-strikes-on-iran.html
-
-**Tage Thompson's dominance and 4 other thoughts on Sabres' 3-game win streak**\
-`Thompson scored two goals and recorded the hardest shot in the league since 2021 in Buffalo's 5-3 win over Detroit.`\
-https://nytimes.com/athletic/5874986/2024/10/26/sabres-red-wings-tage-thompson/
 
