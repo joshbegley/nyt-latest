@@ -1,3 +1,7 @@
+**Obi-Martin scores 15-minute hat-trick on Man United under-18s debut**\
+`Chido Obi-Martin scored a hat-trick within 15 minutes of his debut for Manchester United&#8217;s under-18s against Nottingham Forest on Saturday.`\
+https://nytimes.com/athletic/5874184/2024/10/26/manchester-united-chido-obi-martin-goals/
+
 **Election Live Updates: Michigan in Spotlight as Michelle Obama Stumps With Harris**\
 `The former first lady will join Kamala Harris at a rally in Kalamazoo, Mich., as Donald J. Trump campaigns in a Detroit suburb.`\
 https://nytimes.com/live/2024/10/26/us/harris-trump-election
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5870322/2024/10/26/detroit-lions-week-8-news-projec
 **2 Novels About Complicated Nuns**\
 `An atheist in a convent; a bloodthirsty reality show hostess.`\
 https://nytimes.com/2024/10/26/books/read-like-wind-recommendations-nuns.html
-
-**In Deciding Whether to Retaliate, Iran Faces a Dilemma**\
-`If Iran strikes back at Israel, it risks further escalation at a time when its economy is struggling and its military is vulnerable. If it doesn’t, it risks looking weak.`\
-https://nytimes.com/2024/10/26/world/middleeast/iran-israel-retaliation.html
 
