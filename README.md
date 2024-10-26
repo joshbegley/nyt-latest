@@ -1,3 +1,7 @@
+**John Fetterman Fears Trump Is Stronger Than Ever**\
+`The senator discusses the “astonishing” support for the former president in Pennsylvania, his rift with progressives over Israel and his own position in the Democratic Party.`\
+https://nytimes.com/2024/10/26/magazine/john-fetterman-interview.html
+
 **Rosenthal: For Freddie Freeman, his family and Dodgers fans, a grand moment on the biggest stage**\
 `Surrounded by his father, wife, kids and teammates, the Dodgers star relished the biggest at-bat of his 15-year major-league career.`\
 https://nytimes.com/athletic/5874104/2024/10/26/freddie-freeman-world-series-dodgers-grand-slam/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873322/2024/10/26/lamar-jacksons-blitz-ravens-brow
 **As the World Turns, So Do These Cameras**\
 `Whirling 360-degree photo booths have gone from red carpets to bat mitzvahs to tourist sites like the Cradle of Humankind.`\
 https://nytimes.com/2024/10/26/style/360-photo-booth-red-carpet-tourism.html
-
-**Anime on Broadway May Be a Perfect Match**\
-`“Attack on Titan: The Musical” showed what a crossover between two seemingly different types of fans could look like.`\
-https://nytimes.com/2024/10/26/theater/attack-on-titan-anime-broadway.html
 
