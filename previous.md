@@ -1,3 +1,7 @@
+**We’re Looking at the Wrong Gender Gap in Voting**\
+`Young women support Harris more than young men support Trump. That might make the difference.`\
+https://nytimes.com/2024/10/26/opinion/gender-election-voting-men-women-young.html
+
 **Erykah Badu’s Fearless Evolution Has Made Her an Icon**\
 `A look at the singer and songwriter’s signature moments as she is set to receive one of fashion’s highest honors: the Council of Fashion Designers of America’s icon award.`\
 https://nytimes.com/2024/10/26/style/erykah-badu-icon-award.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873722/2024/10/26/trade-deadline-news-cooper-kupp-
 **Lil Durk Is Accused of Conspiring to Kill a Rival. What We Know About the Case.**\
 `The rapper Lil Durk was arrested at the airport in Miami this week after he had been booked on flights to three international destinations, federal prosecutors said.`\
 https://nytimes.com/2024/10/26/arts/music/lil-dirk-murder-for-hire-arrest.html
-
-**NFL Week 8 fantasy football, betting cheat sheet: Tua Tagovailoa cleared, DK Metcalf doubtful**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
-https://nytimes.com/athletic/5866715/2024/10/26/nfl-week-8-fantasy-football-injuries-rankings-betting/
 

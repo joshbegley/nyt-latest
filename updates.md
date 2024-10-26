@@ -1,3 +1,7 @@
+**We’re Looking at the Wrong Gender Gap in Voting**\
+`Young women support Harris more than young men support Trump. That might make the difference.`\
+https://nytimes.com/2024/10/26/opinion/gender-election-voting-men-women-young.html
+
 **Erykah Badu’s Fearless Evolution Has Made Her an Icon**\
 `A look at the singer and songwriter’s signature moments as she is set to receive one of fashion’s highest honors: the Council of Fashion Designers of America’s icon award.`\
 https://nytimes.com/2024/10/26/style/erykah-badu-icon-award.html
