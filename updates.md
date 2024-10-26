@@ -1,3 +1,7 @@
+**At First N.Y.C. Mayoral Forum, Five Democratic Candidates Attack Adams**\
+`The event, hosted at a church in the Bronx, served as the unofficial start of the city’s 2025 mayoral race.`\
+https://nytimes.com/2024/10/26/nyregion/mayor-democrats-adams-forum.html
+
 **Ohio State survives: What does this mean for Buckeyes, Huskers?**\
 `It wasn't easy, but Ohio State made the plays when it need to — on both sides of the ball — to escape with a 21-17 win over Nebraska. `\
 https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola-ryan-day/
