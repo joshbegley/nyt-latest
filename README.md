@@ -1,3 +1,7 @@
+**In a Tight Election, Can the Weather Cast a Deciding Vote?**\
+`It tends to play a minor role in voter turnout, affecting only close elections — like the one coming up on Nov. 5.`\
+https://nytimes.com/2024/10/26/weather/election-day-weather.html
+
 **Israel’s Strike Marks New Phase of Conflict, but Stops Short of All-Out War**\
 `Iran’s initial reaction suggested that the sides had once again averted an uncontrolled war, even if the prospect looms larger than ever.`\
 https://nytimes.com/2024/10/26/world/middleeast/israel-iran-attack-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/politics/michelle-obama-harris-michigan.html
 **Readers Shared Hacks for Cheaper Teen Car Insurance. Do They Work?**\
 `Here’s what could happen if you don’t tell your insurer about any teenage drivers in your family — or try to get a separate policy for them altogether.`\
 https://nytimes.com/2024/10/26/your-money/cheap-car-insurance-teen-drivers.html
-
-**Lamar Jackson's handling of the blitz has fueled Ravens' surge. Another test comes Sunday**\
-`Jackson's passer rating against the blitz this year is 119.9, and he ranks second in the NFL in success rate behind Patrick Mahomes.`\
-https://nytimes.com/athletic/5873322/2024/10/26/lamar-jacksons-blitz-ravens-browns/
 
