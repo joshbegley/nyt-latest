@@ -1,3 +1,7 @@
+**In Deciding Whether to Retaliate, Iran Faces a Dilemma**\
+`If Iran strikes back at Israel, it risks further escalation at a time when its economy is struggling and its military is vulnerable. If it doesn’t, it risks looking weak.`\
+https://nytimes.com/2024/10/26/world/middleeast/iran-israel-retaliation.html
+
 **How Bad Do You Want It, Ladies?**\
 `Donald, your insecurity is showing.`\
 https://nytimes.com/2024/10/26/opinion/donald-trump-gender-election.html

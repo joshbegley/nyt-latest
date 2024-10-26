@@ -1,3 +1,7 @@
+**In Deciding Whether to Retaliate, Iran Faces a Dilemma**\
+`If Iran strikes back at Israel, it risks further escalation at a time when its economy is struggling and its military is vulnerable. If it doesn’t, it risks looking weak.`\
+https://nytimes.com/2024/10/26/world/middleeast/iran-israel-retaliation.html
+
 **How Bad Do You Want It, Ladies?**\
 `Donald, your insecurity is showing.`\
 https://nytimes.com/2024/10/26/opinion/donald-trump-gender-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/opinion/lina-khan-ftc-venture-capital-silicon-val
 **Can Sherrod Brown Survive in a State That’s Turning Against Him?**\
 `Why Democrats in the Midwest are losing ground.`\
 https://nytimes.com/2024/10/26/opinion/sherrod-brown-ohio-election.html
-
-**Israeli forces arrest dozens of health care workers in Gaza.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-forces-arrest-dozens-of-health-care-workers-in-gaza
 
