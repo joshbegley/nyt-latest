@@ -1,3 +1,19 @@
+**Your Guide to the Drama-Filled Race for Senate Control**\
+`The chamber had seemed like Republicans’ to lose, but a few surprises are playing out.`\
+https://nytimes.com/2024/10/25/us/politics/senate-election-republicans-democrats.html
+
+**Sydney Leroux calls for NWSL to its reevaluate childcare policies**\
+`"The NWSL should not force a mother to choose between chasing her dreams or having children," Leroux said on X.`\
+https://nytimes.com/athletic/5873685/2024/10/25/angel-city-fc-nwsl-sydney-leroux/
+
+**Trump Fumes Over Magazine Report at Rally With Slain Soldier’s Family**\
+`Relatives of Specialist Vanessa Guillén, who was murdered in 2020, joined Donald J. Trump at a rally days after The Atlantic reported he had made a racist remark about her.`\
+https://nytimes.com/2024/10/25/us/politics/trump-atlantic-magazine.html
+
+**Republican Legal Challenges to Voting Rules Hit a Rough Patch**\
+`With voters already casting ballots, the two parties are still battling over the requirements for who gets to vote and which votes count.`\
+https://nytimes.com/2024/10/25/us/2024-election-voting-rules-trump-republicans.html
+
 **Israel announces strikes on military sites in Iran.**\
 `Blasts reported around Tehran after a year of escalating confrontations. `\
 https://nytimes.com/2024/10/25/world/middleeast/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations.html
