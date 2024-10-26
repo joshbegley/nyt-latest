@@ -1,4 +1,8 @@
 **Israel’s Response to Iran**\
+`An update on the fighting in the Middle East.`\
+https://nytimes.com/2024/10/26/briefing/israel-iran-strikes.html
+
+**Israel’s Response to Iran**\
 `We’ve got an update on the fighting in the Middle East.`\
 https://nytimes.com/2024/10/26/briefing/israel-iran-strikes.html
 
