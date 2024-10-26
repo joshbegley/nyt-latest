@@ -1,3 +1,7 @@
+**John Fetterman Fears Trump Is Stronger Than Ever**\
+`The senator discusses the “astonishing” support for the former president in Pennsylvania, his rift with progressives over Israel and his own position in the Democratic Party.`\
+https://nytimes.com/2024/10/26/magazine/john-fetterman-interview.html
+
 **Rosenthal: For Freddie Freeman, his family and Dodgers fans, a grand moment on the biggest stage**\
 `Surrounded by his father, wife, kids and teammates, the Dodgers star relished the biggest at-bat of his 15-year major-league career.`\
 https://nytimes.com/athletic/5874104/2024/10/26/freddie-freeman-world-series-dodgers-grand-slam/
