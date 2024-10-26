@@ -1,3 +1,7 @@
+**Israeli Attack Puts Iranians on Edge: ‘The Vibe Is Not Normal’**\
+`A sense of uncertainty prevailed in Iran after an Israeli retaliatory strike. Explosions kept some awake, while others hoped life would go back to normal.`\
+https://nytimes.com/2024/10/26/world/middleeast/iran-israel-attack-public.html
+
 **Makai Lemon breaks out, defense responds: Takeaways from the USC's win over Rutgers**\
 `The Trojans snapped a three-game losing streak with a 42-20 win over Rutgers on Friday night. `\
 https://nytimes.com/athletic/5874194/2024/10/26/usc-rutgers-makai-lemson-lincoln-riley/
