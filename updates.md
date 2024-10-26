@@ -1,3 +1,7 @@
+**Barricades and Bulletproof Glass: A County Prepares for Election Day**\
+`With the specter of political violence looming, the Department of Homeland Security has advised hundreds of communities on election safety. Luzerne County, Pa., is at the center of the unrest.`\
+https://nytimes.com/2024/10/26/us/elections/election-security-luzerne-county.html
+
 **In Maine Battleground, Democrat Golden Grasps to Win Over Trump Voters**\
 `To win his toughest re-election bid yet, Representative Jared Golden needs Trump voters to back him over a young Republican prospect, a former NASCAR driver.`\
 https://nytimes.com/2024/10/26/us/elections/jared-golden-maine.html

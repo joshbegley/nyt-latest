@@ -1,3 +1,7 @@
+**Barricades and Bulletproof Glass: A County Prepares for Election Day**\
+`With the specter of political violence looming, the Department of Homeland Security has advised hundreds of communities on election safety. Luzerne County, Pa., is at the center of the unrest.`\
+https://nytimes.com/2024/10/26/us/elections/election-security-luzerne-county.html
+
 **In Maine Battleground, Democrat Golden Grasps to Win Over Trump Voters**\
 `To win his toughest re-election bid yet, Representative Jared Golden needs Trump voters to back him over a young Republican prospect, a former NASCAR driver.`\
 https://nytimes.com/2024/10/26/us/elections/jared-golden-maine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874194/2024/10/26/usc-rutgers-makai-lemson-lincoln
 **Obi-Martin scores 15-minute hat-trick on Man United under-18s debut**\
 `Chido Obi-Martin scored a hat-trick within 15 minutes of his debut for Manchester United&#8217;s under-18s against Nottingham Forest on Saturday.`\
 https://nytimes.com/athletic/5874184/2024/10/26/manchester-united-chido-obi-martin-goals/
-
-**Election Live Updates: Michigan in Spotlight as Michelle Obama Stumps With Harris**\
-`The former first lady will join Kamala Harris at a rally in Kalamazoo, Mich., as Donald J. Trump campaigns in a Detroit suburb.`\
-https://nytimes.com/live/2024/10/26/us/harris-trump-election
 
