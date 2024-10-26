@@ -1,3 +1,7 @@
+**Beyoncé Rallies for Harris in Houston With a Message for the Battlegrounds**\
+`Kamala Harris used Texas’ strict abortion ban as a cautionary tale as she sought to lay out the stakes of a deadlocked election.`\
+https://nytimes.com/2024/10/26/us/politics/harris-beyonce-rally-houston.html
+
 **Why Lopetegui’s use of Jarrod Bowen out wide could pay dividends against Manchester United**\
 `Sunday's visitors have a specific weakness at left-back that the England international should be able to exploit`\
 https://nytimes.com/athletic/5872747/2024/10/26/jarrod-bowen-role-west-ham-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872448/2024/10/26/andre-onana-manchester-united-da
 **The Man Who Shaped China’s Strongman Rule Has a New Job: Winning Taiwan**\
 `Xi Jinping’s top adviser, Wang Huning, is credited with shaping the authoritarianism that steered China’s rise. But can he influence Taiwan?`\
 https://nytimes.com/2024/10/26/world/asia/china-xi-jinping-adviser-taiwan.html
-
-**Quote of the Day: Sure, You Can Go to the World Series. Just Ditch the Anthropomorphic Suit.**\
-`Quotation of the Day for Saturday, October 26, 2024.`\
-https://nytimes.com/2024/10/26/pageoneplus/quote-of-the-day-sure-you-can-go-to-the-world-series-just-ditch-the-anthropomorphic-suit.html
 
