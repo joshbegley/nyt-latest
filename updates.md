@@ -1,3 +1,7 @@
+**Phil Lesh Didn’t Hold Songs Down. He Lifted Them Higher.**\
+`The Grateful Dead bassist found new melodic byways through every song.`\
+https://nytimes.com/2024/10/25/arts/music/phil-lesh-grateful-dead-bassist.html
+
 **The best Shohei Ohtani cards to collect after his historic 50/50 season**\
 `Ohtani cards are in big demand as he continues to add to his already historic resume`\
 https://nytimes.com/athletic/5873683/2024/10/25/shohei-ohtani-rookie-cards-dodgers/

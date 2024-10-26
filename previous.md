@@ -1,3 +1,7 @@
+**Phil Lesh Didn’t Hold Songs Down. He Lifted Them Higher.**\
+`The Grateful Dead bassist found new melodic byways through every song.`\
+https://nytimes.com/2024/10/25/arts/music/phil-lesh-grateful-dead-bassist.html
+
 **The best Shohei Ohtani cards to collect after his historic 50/50 season**\
 `Ohtani cards are in big demand as he continues to add to his already historic resume`\
 https://nytimes.com/athletic/5873683/2024/10/25/shohei-ohtani-rookie-cards-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/world/europe/north-korean-troops-arrive-kursk-rus
 **Israel announces strikes on military sites in Iran.**\
 `Blasts reported around Tehran after a year of escalating confrontations. `\
 https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations
-
-**The Personal Plea Phil Lesh Made Every Time He Took the Stage**\
-`For the past 25 years, the founding member of the Grateful Dead made a nightly speech about a topic that helped him stay performing into his 80s.`\
-https://nytimes.com/2024/10/25/arts/music/phil-lesh-liver-transplant.html
 
