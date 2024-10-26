@@ -1,3 +1,7 @@
+**MLS Cup Playoff takeaways: Suarez, Alba score and Messi records an assist in win over Atlanta**\
+`Our writers analyze the key talking points from Inter Miami's MLS playoff win over Atlanta United`\
+https://nytimes.com/athletic/5873540/2024/10/25/inter-miami-atlanta-united-mls-playoff-first-game/
+
 **Video of Ballots Being Destroyed Was Faked by Russia, Federal Officials Say**\
 `The video, which purported to show mailed-in ballots in Pennsylvania being ripped up, was part of Moscow’s efforts to influence the U.S. presidential election, the officials said.`\
 https://nytimes.com/2024/10/25/us/politics/pennsylvania-ballots-video-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/arts/music/phil-lesh-photos.html
 **Phil Lesh Didn’t Hold Songs Down. He Lifted Them Higher.**\
 `The Grateful Dead bassist found new melodic byways through every song.`\
 https://nytimes.com/2024/10/25/arts/music/phil-lesh-grateful-dead-bassist.html
-
-**The best Shohei Ohtani cards to collect after his historic 50/50 season**\
-`Ohtani cards are in big demand as he continues to add to his already historic resume`\
-https://nytimes.com/athletic/5873683/2024/10/25/shohei-ohtani-rookie-cards-dodgers/
 
