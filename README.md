@@ -1,3 +1,11 @@
+**Philadelphia Union goalkeeper Holden Trent dies at 25 years old**\
+`"He embodied the true meaning of determination, dedication and perseverance, and he will be deeply missed," the MLS club said.`\
+https://nytimes.com/athletic/5874967/2024/10/26/holden-trent-philadelphia-union-death/
+
+**Trump Attacks Bipartisan Semiconductor Law, a Key Policy Achievement for Biden**\
+`Former President Donald J. Trump’s comments came during a nearly three-hour episode of “The Joe Rogan Experience.”`\
+https://nytimes.com/2024/10/26/us/politics/trump-joe-rogan-chips-science-act.html
+
 **Working the Night Shift**\
 `Jeffrey Martinovic and Jeff Chen’s Sunday puzzle will have you beaming.`\
 https://nytimes.com/2024/10/26/crosswords/daily-puzzle-2024-10-27.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5874893/2024/10/26/dodgers-world-series-freddie-fre
 **Just When You Thought Sneakers Couldn’t Get Any Weirder**\
 `Puffy, pricey, and strangely perfect for the moment, the $455 ERLs are billed as skateboard shoes — but maybe don’t try to skate in them.`\
 https://nytimes.com/2024/10/26/style/erl-vamps-skate-shoe.html
-
-**How Wild rallied, then blew late lead in first regulation loss: 3 takeaways**\
-`Wild goalie Filip Gustavsson gave up two goals on the first three shots he faced in the Flyers' 7-5 win.`\
-https://nytimes.com/athletic/5874674/2024/10/26/wild-flyers-takeaways-analysis/
-
-**At First N.Y.C. Mayoral Forum, Five Democratic Candidates Attack Adams**\
-`The event, hosted at a church in the Bronx, served as the unofficial start of the city’s 2025 mayoral race.`\
-https://nytimes.com/2024/10/26/nyregion/mayor-democrats-adams-forum.html
 
