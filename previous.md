@@ -1,3 +1,7 @@
+**2 Novels About Complicated Nuns**\
+`An atheist in a convent; a bloodthirsty reality show hostess.`\
+https://nytimes.com/2024/10/26/books/read-like-wind-recommendations-nuns.html
+
 **In Deciding Whether to Retaliate, Iran Faces a Dilemma**\
 `If Iran strikes back at Israel, it risks further escalation at a time when its economy is struggling and its military is vulnerable. If it doesn’t, it risks looking weak.`\
 https://nytimes.com/2024/10/26/world/middleeast/iran-israel-retaliation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/opinion/wine-sober-october.html
 **Silicon Valley Turns on the F.T.C. That’s Not a Good Thing.**\
 `Prominent venture capitalists’ bashing of the F.T.C.’s chair is evidence of a troubled tech market.`\
 https://nytimes.com/2024/10/26/opinion/lina-khan-ftc-venture-capital-silicon-valley.html
-
-**Can Sherrod Brown Survive in a State That’s Turning Against Him?**\
-`Why Democrats in the Midwest are losing ground.`\
-https://nytimes.com/2024/10/26/opinion/sherrod-brown-ohio-election.html
 
