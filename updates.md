@@ -1,3 +1,7 @@
+**Juan Soto owns defensive shortcomings in Game 1, as sloppy play stifles Yankees**\
+`The Yankees star's struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
+https://nytimes.com/athletic/5873704/2024/10/26/yankees-world-series-sloppy-defense-soto/
+
 **These Japanese Baseball Fans Love Ohtani. They Love the Yankees More.**\
 `The best World Series outcome for one particular subset of fans? The Dodgers slugger hits four home runs a game, and the Yankees win four straight, 5-4.`\
 https://nytimes.com/2024/10/26/nyregion/dodgers-yankees-ohtani-fans-japan.html

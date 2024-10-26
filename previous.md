@@ -1,3 +1,7 @@
+**Juan Soto owns defensive shortcomings in Game 1, as sloppy play stifles Yankees**\
+`The Yankees star's struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
+https://nytimes.com/athletic/5873704/2024/10/26/yankees-world-series-sloppy-defense-soto/
+
 **These Japanese Baseball Fans Love Ohtani. They Love the Yankees More.**\
 `The best World Series outcome for one particular subset of fans? The Dodgers slugger hits four home runs a game, and the Yankees win four straight, 5-4.`\
 https://nytimes.com/2024/10/26/nyregion/dodgers-yankees-ohtani-fans-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873696/2024/10/26/leicester-nottingham-forest-derb
 **AD, Lakers overcome 22-point deficit to defeat Durant, Suns**\
 `Anthony Davis has scored 35-plus points in back-to-back games to start the season.`\
 https://nytimes.com/athletic/5873962/2024/10/26/lakers-suns-comeback-result-takeaways/
-
-**6 Takeaways From Donald Trump’s 3-Hour Podcast With Joe Rogan**\
-`The former president repeated his debunked claims of election fraud and speculated that there could be life on Mars in an interview aimed at young male voters.`\
-https://nytimes.com/2024/10/25/us/politics/trump-joe-rogan-podcast.html
 
