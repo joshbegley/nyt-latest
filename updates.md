@@ -1,3 +1,7 @@
+**Leicester are failing at fundamentals - what are the options to fix defensive frailties?**\
+`There is some fight in this Leicester side, but they cannot keep having to overcome seemingly insurmountable odds.`\
+https://nytimes.com/athletic/5873696/2024/10/26/leicester-nottingham-forest-derby-defeat/
+
 **AD, Lakers overcome 22-point deficit to defeat Durant, Suns**\
 `Anthony Davis has scored 35-plus points in back-to-back games to start the season.`\
 https://nytimes.com/athletic/5873962/2024/10/26/lakers-suns-comeback-result-takeaways/
