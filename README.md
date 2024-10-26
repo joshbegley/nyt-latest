@@ -1,5 +1,5 @@
 **MLS Cup Playoff takeaways: Suarez, Alba score and Messi records an assist in win over Atlanta**\
-`Our writers analyze the key talking points from Inter Miami's MLS playoff win over Atlanta United`\
+`Our writers analyze the key talking points from Inter Miami's MLS playoff win over Atlanta United.`\
 https://nytimes.com/athletic/5873540/2024/10/25/inter-miami-atlanta-united-mls-playoff-first-game/
 
 **Video of Ballots Being Destroyed Was Faked by Russia, Federal Officials Say**\
