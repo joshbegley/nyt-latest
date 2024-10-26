@@ -1,3 +1,7 @@
+**How Wild rallied, then blew late lead in first regulation loss: 3 takeaways**\
+`Wild goalie Filip Gustavsson gave up two goals on the first three shots he faced in the Flyers' 7-5 win.`\
+https://nytimes.com/athletic/5874674/2024/10/26/wild-flyers-takeaways-analysis/
+
 **At First N.Y.C. Mayoral Forum, Five Democratic Candidates Attack Adams**\
 `The event, hosted at a church in the Bronx, served as the unofficial start of the city’s 2025 mayoral race.`\
 https://nytimes.com/2024/10/26/nyregion/mayor-democrats-adams-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/nyregion/daniel-penny-jury-consultant-ny-subway-c
 **Longtime Cleveland Browns broadcaster Jim Donovan dies at 68**\
 `Donovan spent nearly 40 years as a broadcaster in Cleveland and was the Browns' play-by-play man since their return in 1999 until this year.`\
 https://nytimes.com/athletic/5874604/2024/10/26/jim-donovan-cleveland-browns-announcer-dies/
-
-**Emery refuses to blame VAR after McGinn goal disallowed**\
-`Unai Emery refused to blame the video assistant referee (VAR) decision to rule out John McGinn&#8217;s goal for Aston Villa against Bournemouth.`\
-https://nytimes.com/athletic/5874591/2024/10/26/aston-villa-john-mcginn-goal-var/
 
