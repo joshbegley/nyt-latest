@@ -1,3 +1,11 @@
+**The best Shohei Ohtani cards to collect after his historic 50/50 season**\
+`Ohtani cards are in big demand as he continues to add to his already historic resume`\
+https://nytimes.com/athletic/5873683/2024/10/25/shohei-ohtani-rookie-cards-dodgers/
+
+**G.O.P. Lawmaker Voices Support for Giving North Carolina’s Electors to Trump**\
+`Representative Andy Harris walked back his remarks, later saying his rationale that Hurricane Helene disenfranchised some voters was “theoretical.”`\
+https://nytimes.com/2024/10/25/us/politics/andy-harris-north-carolina-electors-trump.html
+
 **Israel announces strikes on military sites in Iran.**\
 `Blasts reported around Tehran after a year of escalating confrontations. `\
 https://nytimes.com/live/2024/10/25/world/israel-lebanon-gaza-iran/blasts-reported-around-tehran-after-a-year-of-escalating-confrontations
