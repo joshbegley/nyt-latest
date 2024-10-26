@@ -1,6 +1,6 @@
 **Liz Cheney Is Certain That Kamala Harris Will Win**\
 `And it’s not because of democracy issues.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/liz-cheney-is-certain-that-kamala-harris-will-win
+https://nytimes.com/live/2024/10/22/opinion/thepoint/liz-cheney-kamala-harris
 
 **Oliver Glasner analysis: The Crystal Palace manager talks pressure, transfers and stats**\
 `The Austrian's team will attempt once again to break their season's Premier League duck against Tottenham Hotspur at Selhurst Park on Sunday`\
