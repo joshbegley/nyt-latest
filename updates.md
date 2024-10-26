@@ -1,3 +1,11 @@
+**New York Mayor Says Trump Should Not Be Called ‘Fascist,’ Breaking With Harris and Party**\
+`Mayor Eric Adams of New York, an embattled Democrat who has been indicted on federal corruption charges, has been careful in what he says about the former president.`\
+https://nytimes.com/2024/10/26/us/politics/trump-fascist-mayor-adams.html
+
+**Ryan Day, Ohio State face pressing question that threatens to derail title hopes**\
+`Injuries have exposed Ohio State's lack of offensive line depth, which nearly cost it vs. Nebraska and could prove pivotal going forward.`\
+https://nytimes.com/athletic/5874989/2024/10/26/ohio-state-nebraska-offensive-line-injuries/
+
 **Lowetide: Who will be the first Oilers recall from the farm?**\
 `A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
 `\
