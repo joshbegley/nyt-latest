@@ -1,3 +1,7 @@
+**McLaren’s Right of Review over Norris-Verstappen incident dismissed**\
+`The FIA stewards determined “there is no relevant new element.”`\
+https://nytimes.com/athletic/5873792/2024/10/25/mclaren-right-of-review-norris-verstappen/
+
 **Why Did Israel Attack Iran?**\
 `The two countries have been fighting a shadow war for years. Now, their conflict has burst into the open.`\
 https://nytimes.com/2024/10/25/world/middleeast/why-did-israel-attack-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/andy-harris-north-carolina-electors-t
 **Your Guide to the Drama-Filled Race for Senate Control**\
 `The chamber had seemed like Republicans’ to lose, but a few surprises are playing out.`\
 https://nytimes.com/2024/10/25/us/politics/senate-election-republicans-democrats.html
-
-**Sydney Leroux calls for NWSL to its reevaluate childcare policies**\
-`"The NWSL should not force a mother to choose between chasing her dreams or having children," Leroux said on X.`\
-https://nytimes.com/athletic/5873685/2024/10/25/angel-city-fc-nwsl-sydney-leroux/
 
