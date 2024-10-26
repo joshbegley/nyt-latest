@@ -1,3 +1,16 @@
+**What We Know About Israel’s Strikes On Iran**\
+`After military-on-military attacks, will Israel and Iran be able to contain their conflict? Maria Abi-Habib, an investigative correspondent for The New York Times, looks at an unprecedented new chapter in the Middle East.`\
+https://nytimes.com/video/world/middleeast/100000009785277/what-we-know-about-israels-strikes-on-iran.html
+
+**Tage Thompson's dominance and 4 other thoughts on Sabres' 3-game win streak**\
+`Thompson scored two goals and recorded the hardest shot in the league since 2021 in Buffalo's 5-3 win over Detroit.`\
+https://nytimes.com/athletic/5874986/2024/10/26/sabres-red-wings-tage-thompson/
+
+**Lowetide: Who will be the first Oilers recall from the farm?**\
+`A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
+`\
+https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
+
 **Lowetide: Who will be the first Oilers recall from the farm?**\
 `A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
 `\
