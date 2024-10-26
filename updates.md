@@ -1,3 +1,7 @@
+**What to Know About the Chinese Hackers Who Targeted the 2024 Campaigns**\
+`A group experts call Salt Typhoon is believed to be behind a sophisticated breach into major telecommunication companies that has taken aim at American leaders.`\
+https://nytimes.com/2024/10/26/us/politics/salt-typhoon-hack-what-we-know.html
+
 **Penny Hires Jury Consultant Who Aided O.J. Simpson and Kyle Rittenhouse**\
 `The courtroom presence of Jo-Ellan Dimitrius illustrates the pressure on the 12 people who will decide if Daniel Penny is guilty of manslaughter for choking a man on a New York subway train.`\
 https://nytimes.com/2024/10/26/nyregion/daniel-penny-jury-consultant-ny-subway-choking.html
