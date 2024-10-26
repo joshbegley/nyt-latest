@@ -1,3 +1,7 @@
+**So... Barcelona are good again?**\
+`Barcelona thrashed Real Madrid in the first Clasico of the season and they play with confidence and joy under Flick. That had been missing`\
+https://nytimes.com/athletic/5872054/2024/10/26/barcelona-clasico-real-madrid-victory/
+
 **Wild look to put sloppy loss behind them and end long road trip on a 'high note'**\
 `Filip Gustavsson had his first off night of the season and the Wild were handed their first regulation loss by the Flyers. `\
 https://nytimes.com/athletic/5874992/2024/10/26/wild-flyers-loss-filip-gustavsson/
@@ -27,14 +31,10 @@ https://nytimes.com/video/world/middleeast/100000009785277/what-we-know-about-is
 https://nytimes.com/athletic/5874986/2024/10/26/sabres-red-wings-tage-thompson/
 
 **Carlos Sainz takes Mexico City GP pole in qualifying**\
-`It's Sainz' first pole in 2024 and potentially last as a Ferrari driver. `\
+`It's Sainz's first pole in 2024 and potentially last as a Ferrari driver. `\
 https://nytimes.com/athletic/5875009/2024/10/26/carlos-sainz-pole-f1-mexico-city-gp/
 
 **Philadelphia Union goalkeeper Holden Trent dies at 25 years old**\
 `"He embodied the true meaning of determination, dedication and perseverance, and he will be deeply missed," the MLS club said.`\
 https://nytimes.com/athletic/5874967/2024/10/26/holden-trent-philadelphia-union-death/
-
-**Trump Attacks Bipartisan Semiconductor Law, a Key Policy Achievement for Biden**\
-`Former President Donald J. Trump’s comments came during a nearly three-hour episode of “The Joe Rogan Experience.”`\
-https://nytimes.com/2024/10/26/us/politics/trump-joe-rogan-chips-science-act.html
 
