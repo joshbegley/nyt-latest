@@ -1,3 +1,7 @@
+**U.K. Man Who Posed as a Girl to Extort Teens Online Gets 20 Years in Prison**\
+`The Northern Ireland resident sought explicit images from thousands of girls he had groomed and blackmailed, leading to the death of a 12-year-old girl in the United States.`\
+https://nytimes.com/2024/10/26/world/europe/catfish-northern-ireland-manslaughter.html
+
 **Daughter of L.A. Times Owner Says Endorsement Decision Stemmed From Harris Stance on Gaza War**\
 `The decision by the owner, Patrick Soon-Shiong, to cancel the paper’s planned endorsement of Kamala Harris sent shock waves through the organization. It was not the first time he had gotten involved in newsroom affairs.`\
 https://nytimes.com/2024/10/26/us/los-angeles-times-endorsement-soon-shiong.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873873/2024/10/26/bucks-bulls-damian-lillard-giann
 **Man United hope Antony has avoided serious injury, will miss West Ham game**\
 `Manchester United hope Antony has avoided serious injury but the winger will miss the trip to West Ham United in the Premier League on Sunday.`\
 https://nytimes.com/athletic/5874446/2024/10/26/manchester-united-antony-injury-latest/
-
-**Man City 1 Southampton 0 - City go top but made to sweat; Haaland sublime and ridiculous**\
-`Haaland's early goal was surprisingly the only one of the game as City did enough to go top - Sam Lee breaks down the action.`\
-https://nytimes.com/athletic/5866054/2024/10/26/manchester-city-erling-haaland-southampton/
 
