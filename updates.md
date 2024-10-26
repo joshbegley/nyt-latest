@@ -1,3 +1,15 @@
+**'We helped them': Bucks lack defensive intensity in home-opening loss to Bulls**\
+`Rotational breakdowns, bad closeouts and lack of focus on defense doomed the Bucks against the Bulls: "Defensively, our IQ has to go up."`\
+https://nytimes.com/athletic/5873873/2024/10/26/bucks-bulls-damian-lillard-giannis/
+
+**Man United hope Antony has avoided serious injury, will miss West Ham game**\
+`Manchester United hope Antony has avoided serious injury but the winger will miss the trip to West Ham United in the Premier League on Sunday.`\
+https://nytimes.com/athletic/5874446/2024/10/26/manchester-united-antony-injury-latest/
+
+**Man City 1 Southampton 0 - City go top but made to sweat; Haaland sublime and ridiculous**\
+`Haaland's early goal was surprisingly the only one of the game as City did enough to go top - Sam Lee breaks down the action.`\
+https://nytimes.com/athletic/5866054/2024/10/26/manchester-city-erling-haaland-southampton/
+
 **We’re Looking at the Wrong Gender Gap in Voting**\
 `Young women support Harris more than young men support Trump. That might make the difference.`\
 https://nytimes.com/2024/10/26/opinion/gender-election-voting-men-women-young.html
