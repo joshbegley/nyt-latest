@@ -1,3 +1,7 @@
+**Israeli Attack Puts Iranians on Edge: ‘The Vibe Is Not Normal’**\
+`A sense of uncertainty prevailed in Iran after an Israeli retaliatory strike. Explosions kept some awake, while others hoped life would go back to normal.`\
+https://nytimes.com/2024/10/26/world/middleeast/iran-israel-attack-public.html
+
 **Makai Lemon breaks out, defense responds: Takeaways from the USC's win over Rutgers**\
 `The Trojans snapped a three-game losing streak with a 42-20 win over Rutgers on Friday night. `\
 https://nytimes.com/athletic/5874194/2024/10/26/usc-rutgers-makai-lemson-lincoln-riley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5871060/2024/10/26/san-francisco-49ers-week-8-news-
 **A New Business on Wall Street: Defending Against D.E.I. Backlash**\
 `Companies are conducting vulnerability assessments, compiling research reports and writing plans for what to do if their diversity efforts come under attack.`\
 https://nytimes.com/2024/10/26/business/dealbook/dei-backlash-advisers.html
-
-**Detroit Lions Week 8 playbook: What to know ahead of Titans matchup**\
-`Catch up on what you need to know from this week on the Lions.`\
-https://nytimes.com/athletic/5870322/2024/10/26/detroit-lions-week-8-news-projections-preview/
 
