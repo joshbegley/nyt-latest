@@ -1,3 +1,11 @@
+**Election Live Updates: Michigan in Spotlight as Michelle Obama Stumps With Harris**\
+`The former first lady will join Kamala Harris at a rally in Kalamazoo, Mich., as Donald J. Trump campaigns in a Detroit suburb.`\
+https://nytimes.com/live/2024/10/26/us/harris-trump-election
+
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/26/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **Hundreds Killed in Days as War in Sudan Surges**\
 `Paramilitary forces ransacked villages and killed hundreds of people, activists said, hastening calls for the United Nations to deploy a mission to protect civilians.`\
 https://nytimes.com/2024/10/26/world/africa/sudan-war-killings.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/26/books/read-like-wind-recommendations-nuns.html
 **In Deciding Whether to Retaliate, Iran Faces a Dilemma**\
 `If Iran strikes back at Israel, it risks further escalation at a time when its economy is struggling and its military is vulnerable. If it doesn’t, it risks looking weak.`\
 https://nytimes.com/2024/10/26/world/middleeast/iran-israel-retaliation.html
-
-**How Bad Do You Want It, Ladies?**\
-`Donald, your insecurity is showing.`\
-https://nytimes.com/2024/10/26/opinion/donald-trump-gender-election.html
-
-**Freddie Freeman wallops his way into World Series history with walk-off slam that'll float forever**\
-`Freeman's breathtaking blast was the first walk-off, lead-flipping, extra-inning World Series grand slam ever – and so much more. `\
-https://nytimes.com/athletic/5874127/2024/10/26/freddie-freeman-grand-slam-world-series-history/
 
