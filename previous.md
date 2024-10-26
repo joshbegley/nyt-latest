@@ -1,3 +1,7 @@
+**Erykah Badu’s Fearless Evolution Has Made Her an Icon**\
+`A look at the singer and songwriter’s signature moments as she is set to receive one of fashion’s highest honors: the Council of Fashion Designers of America’s icon award.`\
+https://nytimes.com/2024/10/26/style/erykah-badu-icon-award.html
+
 **Nigeria awarded match, Libya fined after AFCON qualifying airport incident**\
 `Nigeria have been awarded the victory after they forfeited their game against Libya earlier this month after being stranded at an airport in the North African country.`\
 https://nytimes.com/athletic/5874360/2024/10/26/nigeria-libya-forfeit-afcon-qualifying/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/arts/music/lil-dirk-murder-for-hire-arrest.html
 **NFL Week 8 fantasy football, betting cheat sheet: Tua Tagovailoa cleared, DK Metcalf doubtful**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more.`\
 https://nytimes.com/athletic/5866715/2024/10/26/nfl-week-8-fantasy-football-injuries-rankings-betting/
-
-**Israeli Attack Puts Iranians on Edge: ‘The Vibe Is Not Normal’**\
-`A sense of uncertainty prevailed in Iran after an Israeli retaliatory strike. Explosions kept some awake, while others hoped life would go back to normal.`\
-https://nytimes.com/2024/10/26/world/middleeast/iran-israel-attack-public.html
 

@@ -1,3 +1,7 @@
+**Erykah Badu’s Fearless Evolution Has Made Her an Icon**\
+`A look at the singer and songwriter’s signature moments as she is set to receive one of fashion’s highest honors: the Council of Fashion Designers of America’s icon award.`\
+https://nytimes.com/2024/10/26/style/erykah-badu-icon-award.html
+
 **Nigeria awarded match, Libya fined after AFCON qualifying airport incident**\
 `Nigeria have been awarded the victory after they forfeited their game against Libya earlier this month after being stranded at an airport in the North African country.`\
 https://nytimes.com/athletic/5874360/2024/10/26/nigeria-libya-forfeit-afcon-qualifying/
