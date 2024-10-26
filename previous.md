@@ -1,4 +1,4 @@
-**Manfred: Rays need to have stadium situation figured out by Christmas**\
+**Manfred: Rays expected to have stadium situation figured out by Christmas**\
 `Plus notes on ratings for Game 1 of the World Series and why MLB is fine with the A's and River Cats playing on grass in Sacramento. `\
 https://nytimes.com/athletic/5875136/2024/10/26/rob-manfred-tampa-bay-rays-stadium-christmas/
 
