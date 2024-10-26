@@ -1,6 +1,10 @@
+**How Freddie Freeman delivered an iconic swing on a bad ankle: 'You dream about those moments'**\
+`Chris Taylor watched Freeman regain his swing a few days ago and told a teammate: “I think Freddie’s about to go off."`\
+https://nytimes.com/athletic/5874049/2024/10/26/freddie-freeman-grand-slam-ankle/
+
 **Juan Soto owns defensive shortcomings in Game 1, as sloppy play stifles Yankees**\
-`The Yankees star's struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
-https://nytimes.com/athletic/5873704/2024/10/26/yankees-world-series-sloppy-defense-soto/
+`Soto's defensive struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
+https://nytimes.com/athletic/5873704/2024/10/26/yankees-world-series-sloppy-defense-juan-soto/
 
 **These Japanese Baseball Fans Love Ohtani. They Love the Yankees More.**\
 `The best World Series outcome for one particular subset of fans? The Dodgers slugger hits four home runs a game, and the Yankees win four straight, 5-4.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874009/2024/10/26/boise-state-unlv-ashton-jeanty-r
 **Leicester are failing at fundamentals - what are the options to fix defensive frailties?**\
 `There is some fight in this Leicester side, but they cannot keep having to overcome seemingly insurmountable odds.`\
 https://nytimes.com/athletic/5873696/2024/10/26/leicester-nottingham-forest-derby-defeat/
-
-**AD, Lakers overcome 22-point deficit to defeat Durant, Suns**\
-`Anthony Davis has scored 35-plus points in back-to-back games to start the season.`\
-https://nytimes.com/athletic/5873962/2024/10/26/lakers-suns-comeback-result-takeaways/
 
