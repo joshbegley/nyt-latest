@@ -1,3 +1,7 @@
+**Live Updates: Israel’s Retaliatory Attack on Iran Hits Military Bases**\
+`Iran’s national air defense force said that Israel had struck sites in three provinces, including Tehran, causing “limited damage.”`\
+https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza
+
 **At Major Vatican Meeting, Women’s Issues Are Relegated to a Side Group**\
 `Pope Francis has made clear that contentious issues like the ordination of women are not on his agenda, but that hasn’t stopped the demand for greater equality.`\
 https://nytimes.com/2024/10/26/world/europe/vatican-bishops-synod-women-pope.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/nyregion/tom-llamas-nbc.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/26/crosswords/spelling-bee-forum.html
-
-**Yankees' Boone explains ill-fated decision to use Cortes against Dodger lefties**\
-`The Yankee pitcher was able to get Shohei Ohtani out, but gave up a walk-off grand slam to Freddie Freeman. `\
-https://nytimes.com/athletic/5874017/2024/10/26/yankees-world-series-aaron-boone-nestor-cortes-decision/
 
