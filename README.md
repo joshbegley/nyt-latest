@@ -1,3 +1,7 @@
+**Trump Escalates Threats as Campaign Enters Dark Final Stretch**\
+`Top military leaders and high-ranking former officials from his administration have issued warning after warning that Donald J. Trump would rule as a dictator if given the chance.`\
+https://nytimes.com/2024/10/26/us/politics/trump-democracy-threats.html
+
 **The Briefing: Real Madrid 0 Barcelona 4 - Mbappe's Clasico to forget as Flick's team stun European champions**\
 `Barca demolished Madrid to strike a huge early blow in the La Liga title race`\
 https://nytimes.com/athletic/5866056/2024/10/26/real-madrid-0-barcelona-4-mbappe-flick-lewandowski/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-lawma
 **Why Are North Korean Troops in Russia?**\
 `Over the last month, North Korea’s role aiding Russia in its war in Ukraine has significantly escalated.`\
 https://nytimes.com/video/world/asia/100000009782894/why-north-korean-soldiers-are-in-russia.html
-
-**Mexico set for 2026 IndyCar race talks amid surging Pato O’Ward interest**\
-`Talks are set to continue in January to bring IndyCar to the Autódromo Hermanos Rodríguez. `\
-https://nytimes.com/athletic/5874714/2024/10/26/indycar-mexico-race-2026-pato-oward/
 
