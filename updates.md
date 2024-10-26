@@ -1,3 +1,15 @@
+**Cross-Tabs: October 2024 Times/Siena Poll of Registered Voters in New York City**\
+`Results of a New York Times/Siena College poll conducted among 853 registered voters in New York City from Oct. 20 to 23, 2024.`\
+https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-registered-voter-crosstabs.html
+
+**Cross-Tabs: October 2024 Times/Siena Poll of the Likely Electorate in New York City**\
+`Results of a New York Times/Siena College poll conducted among 853 likely voters in New York City from Oct. 20 to 23, 2024.`\
+https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-crosstabs.html
+
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in New York City**\
+`Results of a New York Times/Siena College poll conducted among 853 registered voters in New York City from Oct. 20 to 23, 2024.`\
+https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-toplines.html
+
 **Iran’s State Media Plays Down Israeli Attacks**\
 `Explosions woke Iranians up and rattled their windows as strikes targeted sites in at least three provinces.`\
 https://nytimes.com/2024/10/26/world/middleeast/irans-state-media-plays-down-israeli-attacks.html
