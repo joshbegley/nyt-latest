@@ -1,3 +1,7 @@
+**MLS Cup Playoff takeaways: Suarez, Alba score and Messi records an assist in win over Atlanta**\
+`Our writers analyze the key talking points from Inter Miami's MLS playoff win over Atlanta United`\
+https://nytimes.com/athletic/5873540/2024/10/25/inter-miami-atlanta-united-mls-playoff-first-game/
+
 **Video of Ballots Being Destroyed Was Faked by Russia, Federal Officials Say**\
 `The video, which purported to show mailed-in ballots in Pennsylvania being ripped up, was part of Moscow’s efforts to influence the U.S. presidential election, the officials said.`\
 https://nytimes.com/2024/10/25/us/politics/pennsylvania-ballots-video-russia.html
