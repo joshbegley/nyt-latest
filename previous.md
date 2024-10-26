@@ -1,3 +1,7 @@
+**Emery refuses to blame VAR after McGinn goal disallowed**\
+`Unai Emery refused to blame the video assistant referee (VAR) decision to rule out John McGinn&#8217;s goal for Aston Villa against Bournemouth.`\
+https://nytimes.com/athletic/5874591/2024/10/26/aston-villa-john-mcginn-goal-var/
+
 **U.K. Man Who Posed as a Girl to Extort Teens Online Gets 20 Years in Prison**\
 `The Northern Ireland resident sought explicit images from thousands of girls he had groomed and blackmailed, leading to the death of a 12-year-old girl in the United States.`\
 https://nytimes.com/2024/10/26/world/europe/catfish-northern-ireland-manslaughter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/politics/kamala-harris-bio.html
 **'We helped them': Bucks lack defensive intensity in home-opening loss to Bulls**\
 `Rotational breakdowns, bad closeouts and lack of focus on defense doomed the Bucks against the Bulls: "Defensively, our IQ has to go up."`\
 https://nytimes.com/athletic/5873873/2024/10/26/bucks-bulls-damian-lillard-giannis/
-
-**Man United hope Antony has avoided serious injury, will miss West Ham game**\
-`Manchester United hope Antony has avoided serious injury but the winger will miss the trip to West Ham United in the Premier League on Sunday.`\
-https://nytimes.com/athletic/5874446/2024/10/26/manchester-united-antony-injury-latest/
 
