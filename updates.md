@@ -1,3 +1,7 @@
+**How Wild rallied, then blew late lead in first regulation loss: 3 takeaways**\
+`Wild goalie Filip Gustavsson gave up two goals on the first three shots he faced in the Flyers' 7-5 win.`\
+https://nytimes.com/athletic/5874674/2024/10/26/wild-flyers-takeaways-analysis/
+
 **At First N.Y.C. Mayoral Forum, Five Democratic Candidates Attack Adams**\
 `The event, hosted at a church in the Bronx, served as the unofficial start of the city’s 2025 mayoral race.`\
 https://nytimes.com/2024/10/26/nyregion/mayor-democrats-adams-forum.html
