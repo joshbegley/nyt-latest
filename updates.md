@@ -1,3 +1,7 @@
+**Israeli forces arrest dozens of health care workers in Gaza.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-forces-arrest-dozens-of-health-care-workers-in-gaza
+
 **Israel’s Response to Iran**\
 `An update on the fighting in the Middle East.`\
 https://nytimes.com/2024/10/26/briefing/israel-iran-strikes.html
