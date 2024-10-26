@@ -1,3 +1,8 @@
+**Lowetide: Who will be the first Oilers recall from the farm?**\
+`A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
+`\
+https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
+
 **Working the Night Shift**\
 `Jeffrey Martinovic and Jeff Chen’s Sunday puzzle will have you beaming.`\
 https://nytimes.com/2024/10/26/crosswords/daily-puzzle-2024-10-27.html
