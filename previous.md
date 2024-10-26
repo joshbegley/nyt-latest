@@ -1,3 +1,7 @@
+**Mexico set for 2026 IndyCar race talks amid surging Pato O’Ward interest**\
+`Talks are set to continue in January to bring IndyCar to the Autódromo Hermanos Rodríguez. `\
+https://nytimes.com/athletic/5874714/2024/10/26/indycar-mexico-race-2026-pato-oward/
+
 **What to Know About the Chinese Hackers Who Targeted the 2024 Campaigns**\
 `A group experts call Salt Typhoon is believed to be behind a sophisticated breach into major telecommunication companies that has taken aim at American leaders.`\
 https://nytimes.com/2024/10/26/us/politics/salt-typhoon-hack-what-we-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874563/2024/10/26/flyers-jett-luchanko-reassigned-
 **Warriors continue to emanate positive vibes, blast Jazz by 41 points**\
 `Golden State is giving off the early impression that this team's chemistry is at an all-time high. `\
 https://nytimes.com/athletic/5873767/2024/10/26/warriors-jazz-good-vibes/
-
-**USYNT international Campbell makes Bundesliga debut for Dortmund**\
-`Cole Campbell, a USYNT international, made his Bundesliga debut for Borussia Dortmund on Saturday.`\
-https://nytimes.com/athletic/5874504/2024/10/26/cole-campbell-dortmund-usmnt/
 

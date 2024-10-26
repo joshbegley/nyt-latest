@@ -1,3 +1,7 @@
+**Mexico set for 2026 IndyCar race talks amid surging Pato O’Ward interest**\
+`Talks are set to continue in January to bring IndyCar to the Autódromo Hermanos Rodríguez. `\
+https://nytimes.com/athletic/5874714/2024/10/26/indycar-mexico-race-2026-pato-oward/
+
 **What to Know About the Chinese Hackers Who Targeted the 2024 Campaigns**\
 `A group experts call Salt Typhoon is believed to be behind a sophisticated breach into major telecommunication companies that has taken aim at American leaders.`\
 https://nytimes.com/2024/10/26/us/politics/salt-typhoon-hack-what-we-know.html
