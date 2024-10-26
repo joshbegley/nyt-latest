@@ -1,3 +1,7 @@
+**Why Lopetegui’s use of Jarrod Bowen out wide could pay dividends against Manchester United**\
+`Sunday's visitors have a specific weakness at left-back that the England international should be able to exploit`\
+https://nytimes.com/athletic/5872747/2024/10/26/jarrod-bowen-role-west-ham-manchester-united/
+
 **Slot, Flick, Motta and De Zerbi: Four blockbuster matches present new coaches' biggest tests yet**\
 `Liverpool, Barcelona, Juventus and Marseille face elite teams (including three reigning champions) who have established coaches and styles `\
 https://nytimes.com/athletic/5872155/2024/10/26/barcelona-liverpool-juventus-marseille-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/world/asia/china-xi-jinping-adviser-taiwan.html
 **Quote of the Day: Sure, You Can Go to the World Series. Just Ditch the Anthropomorphic Suit.**\
 `Quotation of the Day for Saturday, October 26, 2024.`\
 https://nytimes.com/2024/10/26/pageoneplus/quote-of-the-day-sure-you-can-go-to-the-world-series-just-ditch-the-anthropomorphic-suit.html
-
-**Manchester City vs Southampton preview, odds, prediction: City hopes to retake top spot**\
-`Manchester City have a chance to go top of the league before Arsenal and Liverpool square off later in the weekend.`\
-https://nytimes.com/athletic/5873044/2024/10/26/manchester-city-southampton-preview-odds-prediction/
 
