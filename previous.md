@@ -1,3 +1,7 @@
+**Peanut Butter Walks Into a Chocolate Cookie Bar**\
+`And the result is a rich, fudgy-centered treat that’s somewhere between a cookie and a brownie.`\
+https://nytimes.com/2024/10/26/dining/peanut-butter-walks-into-a-chocolate-cookie-bar.html
+
 **Barricades and Bulletproof Glass: A County Prepares for Election Day**\
 `With the specter of political violence looming, the Department of Homeland Security has advised hundreds of communities on election safety. Luzerne County, Pa., is at the center of the unrest.`\
 https://nytimes.com/2024/10/26/us/elections/election-security-luzerne-county.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/world/middleeast/iran-israel-attack-public.html
 **Makai Lemon breaks out, defense responds: Takeaways from the USC's win over Rutgers**\
 `The Trojans snapped a three-game losing streak with a 42-20 win over Rutgers on Friday night. `\
 https://nytimes.com/athletic/5874194/2024/10/26/usc-rutgers-makai-lemson-lincoln-riley/
-
-**Obi-Martin scores 15-minute hat-trick on Man United under-18s debut**\
-`Chido Obi-Martin scored a hat-trick within 15 minutes of his debut for Manchester United&#8217;s under-18s against Nottingham Forest on Saturday.`\
-https://nytimes.com/athletic/5874184/2024/10/26/manchester-united-chido-obi-martin-goals/
 
