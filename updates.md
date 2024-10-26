@@ -1,3 +1,7 @@
+**Blackhawks squander strong start in loss to Predators: Observations**\
+`"It's a 60-minute game," Alex Vlasic said. "I feel like we slept for five to 10 minutes of that game, and they took it away from us."`\
+https://nytimes.com/athletic/5873945/2024/10/26/blackhawks-squander-strong-start-lose-to-predators/
+
 **Beyoncé Rallies for Harris in Houston With a Message for the Battlegrounds**\
 `Kamala Harris used Texas’ strict abortion ban as a cautionary tale as she sought to lay out the stakes of a deadlocked election.`\
 https://nytimes.com/2024/10/26/us/politics/harris-beyonce-rally-houston.html
