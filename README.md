@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 0 Barcelona 4 - Mbappe's Clasico to forget as Flick's team stun European champions**\
+`Barca demolished Madrid to strike a huge early blow in the La Liga title race`\
+https://nytimes.com/athletic/5866056/2024/10/26/real-madrid-0-barcelona-4-mbappe-flick-lewandowski/
+
 **Joe Davis on 'Gibby, meet Freddie' World Series call: 'That's the dream'**\
 `Davis on honoring Vin Scully: “I’d always thought that it would be neat to someday be able to pay homage to Vin somehow."`\
 https://nytimes.com/athletic/5874893/2024/10/26/dodgers-world-series-freddie-freeman-walk-off/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009782894/why-north-korean-soldiers-a
 **Mexico set for 2026 IndyCar race talks amid surging Pato O’Ward interest**\
 `Talks are set to continue in January to bring IndyCar to the Autódromo Hermanos Rodríguez. `\
 https://nytimes.com/athletic/5874714/2024/10/26/indycar-mexico-race-2026-pato-oward/
-
-**What to Know About the Chinese Hackers Who Targeted the 2024 Campaigns**\
-`A group experts call Salt Typhoon is believed to be behind a sophisticated breach of major telecommunication companies that has taken aim at American leaders.`\
-https://nytimes.com/2024/10/26/us/politics/salt-typhoon-hack-what-we-know.html
 
