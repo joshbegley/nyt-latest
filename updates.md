@@ -1,3 +1,7 @@
+**Ohio State survives: What does this mean for Buckeyes, Huskers?**\
+`It wasn't easy, but Ohio State made the plays when it needed to — on both sides of the ball — to escape with a 21-17 win over Nebraska. `\
+https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola-ryan-day/
+
 **Joe Davis on 'Gibby, meet Freddie' World Series call: 'That's the dream'**\
 `Davis on honoring Vin Scully: “I’d always thought that it would be neat to someday be able to pay homage to Vin somehow."`\
 https://nytimes.com/athletic/5874893/2024/10/26/dodgers-world-series-freddie-freeman-walk-off/
