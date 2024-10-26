@@ -1,3 +1,7 @@
+**Why Are North Korean Troops in Russia?**\
+`Over the last month, North Korea’s role aiding Russia in its war in Ukraine has significantly escalated.`\
+https://nytimes.com/video/world/asia/100000009782894/why-north-korean-soldiers-are-in-russia.html
+
 **Mexico set for 2026 IndyCar race talks amid surging Pato O’Ward interest**\
 `Talks are set to continue in January to bring IndyCar to the Autódromo Hermanos Rodríguez. `\
 https://nytimes.com/athletic/5874714/2024/10/26/indycar-mexico-race-2026-pato-oward/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874597/2024/10/26/brighton-wolves-result-fabian-hu
 **Flyers reassign rookie center Jett Luchanko to his junior team**\
 `Luchanko, who turned 18 on August 21, became the youngest player in Flyers franchise history when he dressed for the season opener.`\
 https://nytimes.com/athletic/5874563/2024/10/26/flyers-jett-luchanko-reassigned-guelph/
-
-**Warriors continue to emanate positive vibes, blast Jazz by 41 points**\
-`Golden State is giving off the early impression that this team's chemistry is at an all-time high. `\
-https://nytimes.com/athletic/5873767/2024/10/26/warriors-jazz-good-vibes/
 

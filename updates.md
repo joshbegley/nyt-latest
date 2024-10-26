@@ -1,3 +1,7 @@
+**Why Are North Korean Troops in Russia?**\
+`Over the last month, North Korea’s role aiding Russia in its war in Ukraine has significantly escalated.`\
+https://nytimes.com/video/world/asia/100000009782894/why-north-korean-soldiers-are-in-russia.html
+
 **Mexico set for 2026 IndyCar race talks amid surging Pato O’Ward interest**\
 `Talks are set to continue in January to bring IndyCar to the Autódromo Hermanos Rodríguez. `\
 https://nytimes.com/athletic/5874714/2024/10/26/indycar-mexico-race-2026-pato-oward/
