@@ -1,3 +1,7 @@
+**AD, Lakers overcome 22-point deficit to defeat Durant, Suns**\
+`Anthony Davis has scored 35-plus points in back-to-back games to start the season.`\
+https://nytimes.com/athletic/5873962/2024/10/26/lakers-suns-comeback-result-takeaways/
+
 **6 Takeaways From Donald Trump’s 3-Hour Podcast With Joe Rogan**\
 `The former president repeated his debunked claims of election fraud and speculated that there could be life on Mars in an interview aimed at young male voters.`\
 https://nytimes.com/2024/10/25/us/politics/trump-joe-rogan-podcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5862931/2024/10/26/salah-even-better-slot-liverpool
 **Beyoncé Campaigns With Harris in Texas**\
 `Beyoncé and Kelly Rowland expressed support for Vice President Kamala Harris at a campaign event focused on abortion rights in Houston on Friday night.`\
 https://nytimes.com/video/us/elections/100000009784933/beyonce-harris-houston-video.html
-
-**Barcelona's Coldplay shirt partnership - and why it was 'meant to be'**\
-`Barca will wear the Coldplay logo during tonight's Clasico. It's a connection that stretches back to Pep Guardiola's reign`\
-https://nytimes.com/athletic/5872673/2024/10/26/barcelona-coldplay-el-clasico-shirt/
 
