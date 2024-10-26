@@ -1,4 +1,8 @@
-**Warriors continue to emanate positive vibes. And Buddy Hield is at the center of it.**\
+**Flyers reassign rookie center Jett Luchanko to his junior team**\
+`Luchanko, who turned 18 on August 21, became the youngest player in Flyers franchise history when he dressed for the season opener.`\
+https://nytimes.com/athletic/5874563/2024/10/26/flyers-jett-luchanko-reassigned-guelph/
+
+**Warriors continue to emanate positive vibes, blast Jazz by 41 points**\
 `Golden State is giving off the early impression that this team's chemistry is at an all-time high. `\
 https://nytimes.com/athletic/5873767/2024/10/26/warriors-jazz-good-vibes/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/style/erykah-badu-icon-award.html
 **Nigeria awarded match, Libya fined after AFCON qualifying airport incident**\
 `Nigeria have been awarded the victory after they forfeited their game against Libya earlier this month after being stranded at an airport in the North African country.`\
 https://nytimes.com/athletic/5874360/2024/10/26/nigeria-libya-forfeit-afcon-qualifying/
-
-**Peanut Butter Walks Into a Chocolate Cookie Bar**\
-`And the result is a rich, fudgy-centered treat that’s somewhere between a cookie and a brownie.`\
-https://nytimes.com/2024/10/26/dining/peanut-butter-walks-into-a-chocolate-cookie-bar.html
 
