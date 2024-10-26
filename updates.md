@@ -1,3 +1,7 @@
+**Ohio State survives: What does this mean for Buckeyes, Huskers?**\
+`It wasn't easy, but Ohio State made the plays when it need to — on both sides of the ball — to escape with a 21-17 win over Nebraska. `\
+https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola-ryan-day/
+
 **Ohio State survives: What the Buckeyes' narrow win means for both teams**\
 `It wasn't easy, but Ohio State made the plays when it need to — on both sides of the ball — to escape with a 21-17 win over Nebraska. `\
 https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola-ryan-day/
