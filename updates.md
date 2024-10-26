@@ -1,3 +1,7 @@
+**Hurzeler blames Brighton's lack of maturity, professionalism for Wolves draw**\
+`Head coach Fabian Hurzeler has blamed Brighton &amp; Hove Albion&#8217;s late slip up against Wolverhampton Wanderers on immaturity and a lack of professionalism.`\
+https://nytimes.com/athletic/5874597/2024/10/26/brighton-wolves-result-fabian-hurzeler/
+
 **Flyers reassign rookie center Jett Luchanko to his junior team**\
 `Luchanko, who turned 18 on August 21, became the youngest player in Flyers franchise history when he dressed for the season opener.`\
 https://nytimes.com/athletic/5874563/2024/10/26/flyers-jett-luchanko-reassigned-guelph/
