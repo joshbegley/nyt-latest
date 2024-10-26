@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfiel
 `\
 https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
 
+**Lowetide: Who will be the first Oilers recall from the farm?**\
+`A recall from the farm team can have a major, positive impact on an NHL club. Here's a look at the several candidates.
+`\
+https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfield-condors/
+
 **Philadelphia Union goalkeeper Holden Trent dies at 25 years old**\
 `"He embodied the true meaning of determination, dedication and perseverance, and he will be deeply missed," the MLS club said.`\
 https://nytimes.com/athletic/5874967/2024/10/26/holden-trent-philadelphia-union-death/
