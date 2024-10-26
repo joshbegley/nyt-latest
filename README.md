@@ -1,3 +1,7 @@
+**How Bad Do You Want It, Ladies?**\
+`Donald, your insecurity is showing.`\
+https://nytimes.com/2024/10/26/opinion/donald-trump-gender-election.html
+
 **Freddie Freeman wallops his way into World Series history with walk-off slam that'll float forever**\
 `Freeman's breathtaking blast was the first walk-off, lead-flipping, extra-inning World Series grand slam ever – and so much more. `\
 https://nytimes.com/athletic/5874127/2024/10/26/freddie-freeman-grand-slam-world-series-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/opinion/sherrod-brown-ohio-election.html
 **Israeli forces arrest dozens of health care workers in Gaza.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-forces-arrest-dozens-of-health-care-workers-in-gaza
-
-**Israel’s Response to Iran**\
-`An update on the fighting in the Middle East.`\
-https://nytimes.com/2024/10/26/briefing/israel-iran-strikes.html
 
