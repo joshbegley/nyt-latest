@@ -1,3 +1,7 @@
+**Israeli lawmakers say the country’s attack on Iran didn’t go far enough.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-lawmakers-say-the-countrys-attack-on-iran-didnt-go-far-enough
+
 **Why Are North Korean Troops in Russia?**\
 `Over the last month, North Korea’s role aiding Russia in its war in Ukraine has significantly escalated.`\
 https://nytimes.com/video/world/asia/100000009782894/why-north-korean-soldiers-are-in-russia.html
