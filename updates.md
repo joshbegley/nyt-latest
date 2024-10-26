@@ -1,3 +1,11 @@
+**How Freddie Freeman delivered an iconic swing on a bad ankle: 'You dream about those moments'**\
+`Chris Taylor watched Freeman regain his swing a few days ago and told a teammate: “I think Freddie’s about to go off."`\
+https://nytimes.com/athletic/5874049/2024/10/26/freddie-freeman-grand-slam-ankle/
+
+**Juan Soto owns defensive shortcomings in Game 1, as sloppy play stifles Yankees**\
+`Soto's defensive struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
+https://nytimes.com/athletic/5873704/2024/10/26/yankees-world-series-sloppy-defense-juan-soto/
+
 **Juan Soto owns defensive shortcomings in Game 1, as sloppy play stifles Yankees**\
 `The Yankees star's struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
 https://nytimes.com/athletic/5873704/2024/10/26/yankees-world-series-sloppy-defense-soto/
