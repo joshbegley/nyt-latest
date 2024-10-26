@@ -1,3 +1,7 @@
+**Manfred: Rays need to have stadium situation figured out by Christmas**\
+`Plus notes on ratings for Game 1 of the World Series and why MLB is fine with the A's and River Cats playing on grass in Sacramento. `\
+https://nytimes.com/athletic/5875136/2024/10/26/rob-manfred-tampa-bay-rays-stadium-christmas/
+
 **Michelle Obama Makes Abortion Rights Plea to Male Voters**\
 `Michelle Obama, the former first lady, made the case during a rally for Vice President Kamala Harris that a vote for former President Donald J. Trump would be a vote against women’s reproductive rights and health.`\
 https://nytimes.com/video/us/politics/100000009785492/michelle-obama-trump-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/politics/trump-fascist-mayor-adams.html
 **Ryan Day, Ohio State face pressing question that threatens to derail title hopes**\
 `Injuries have exposed Ohio State's lack of offensive line depth, which nearly cost it vs. Nebraska and could prove pivotal in the future.`\
 https://nytimes.com/athletic/5874989/2024/10/26/ohio-state-nebraska-offensive-line-injuries/
-
-**What We Know About Israel’s Strikes On Iran**\
-`After military-on-military attacks, will Israel and Iran be able to contain their conflict? Maria Abi-Habib, an investigative correspondent for The New York Times, looks at an unprecedented new chapter in the Middle East.`\
-https://nytimes.com/video/world/middleeast/100000009785277/what-we-know-about-israels-strikes-on-iran.html
 
