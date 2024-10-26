@@ -1,3 +1,15 @@
+**Cross-Tabs: October 2024 Times/Siena Poll of Registered Voters in New York City**\
+`Results of a New York Times/Siena College poll conducted among 853 registered voters in New York City from Oct. 20 to 23, 2024.`\
+https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-registered-voter-crosstabs.html
+
+**Cross-Tabs: October 2024 Times/Siena Poll of the Likely Electorate in New York City**\
+`Results of a New York Times/Siena College poll conducted among 853 likely voters in New York City from Oct. 20 to 23, 2024.`\
+https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-crosstabs.html
+
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in New York City**\
+`Results of a New York Times/Siena College poll conducted among 853 registered voters in New York City from Oct. 20 to 23, 2024.`\
+https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-toplines.html
+
 **Iran’s State Media Plays Down Israeli Attacks**\
 `Explosions woke Iranians up and rattled their windows as strikes targeted sites in at least three provinces.`\
 https://nytimes.com/2024/10/26/world/middleeast/irans-state-media-plays-down-israeli-attacks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5874049/2024/10/26/freddie-freeman-world-series-gra
 **Juan Soto owns defensive shortcomings in Game 1, as sloppy play stifles Yankees**\
 `Soto's defensive struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
 https://nytimes.com/athletic/5873704/2024/10/26/yankees-world-series-sloppy-defense-juan-soto/
-
-**These Japanese Baseball Fans Love Ohtani. They Love the Yankees More.**\
-`The best World Series outcome for one particular subset of fans? The Dodgers slugger hits four home runs a game, and the Yankees win four straight, 5-4.`\
-https://nytimes.com/2024/10/26/nyregion/dodgers-yankees-ohtani-fans-japan.html
-
-**Presidents, Conventions and Nazis: A Political History of ‘The Garden’**\
-`Madison Square Garden, where former President Donald J. Trump will hold a rally on Sunday, has hosted many political events, some of them notorious.`\
-https://nytimes.com/2024/10/26/nyregion/trump-rally-msg-protest-nazi.html
-
-**As U.S. Election Looms, Biden Aides Struggle With Middle East Wars**\
-`Secretary of State Antony J. Blinken tried to get Prime Minister Benjamin Netanyahu of Israel to envision a U.S.-backed plan for ending the war in Gaza, but there was no sign of progress.`\
-https://nytimes.com/2024/10/26/us/politics/election-biden-middle-east.html
 
