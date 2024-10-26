@@ -1,3 +1,7 @@
+**Israel’s Strike Marks New Phase of Conflict, but Stops Short of All-Out War**\
+`Iran’s initial reaction suggested that the sides had once again averted an uncontrolled war, even if the prospect looms larger than ever.`\
+https://nytimes.com/2024/10/26/world/middleeast/israel-iran-attack-war.html
+
 **John Fetterman Fears Trump Is Stronger Than Ever**\
 `The senator discusses the “astonishing” support for the former president in Pennsylvania, his rift with progressives over Israel and his own position in the Democratic Party.`\
 https://nytimes.com/2024/10/26/magazine/john-fetterman-interview.html
