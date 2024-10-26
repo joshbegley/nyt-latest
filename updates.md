@@ -1,3 +1,7 @@
+**Takeaways from Alabama's shutout of Missouri after slow start**\
+`Jalen Milroe and the Alabama offense stepped up after a spark from the defense in the Tide's most complete game of the season.`\
+https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-kalen-deboer/
+
 **So... Barcelona are good again?**\
 `Barcelona thrashed Real Madrid in the first Clasico of the season and they play with confidence and joy under Flick. That had been missing`\
 https://nytimes.com/athletic/5872054/2024/10/26/barcelona-clasico-real-madrid-victory/

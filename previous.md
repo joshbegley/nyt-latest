@@ -1,3 +1,7 @@
+**Takeaways from Alabama's shutout of Missouri after slow start**\
+`Jalen Milroe and the Alabama offense stepped up after a spark from the defense in the Tide's most complete game of the season.`\
+https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-kalen-deboer/
+
 **So... Barcelona are good again?**\
 `Barcelona thrashed Real Madrid in the first Clasico of the season and they play with confidence and joy under Flick. That had been missing`\
 https://nytimes.com/athletic/5872054/2024/10/26/barcelona-clasico-real-madrid-victory/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874986/2024/10/26/sabres-red-wings-tage-thompson/
 **Carlos Sainz takes Mexico City GP pole in qualifying**\
 `It's Sainz's first pole in 2024 and potentially last as a Ferrari driver. `\
 https://nytimes.com/athletic/5875009/2024/10/26/carlos-sainz-pole-f1-mexico-city-gp/
-
-**Philadelphia Union goalkeeper Holden Trent dies at 25 years old**\
-`"He embodied the true meaning of determination, dedication and perseverance, and he will be deeply missed," the MLS club said.`\
-https://nytimes.com/athletic/5874967/2024/10/26/holden-trent-philadelphia-union-death/
 
