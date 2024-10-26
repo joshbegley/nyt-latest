@@ -1,4 +1,8 @@
 **Freddie Freeman's walk-off grand slam lifts Dodgers past Yankees in Game 1 of World Series**\
+`This marquee matchup in the World Series was 43 years in the making — and it did not disappoint.`\
+https://nytimes.com/athletic/5873828/2024/10/25/freddie-freemans-walkoff-grand-slam-lifts-dodgers-past-yankees-in-game-1-of-world-series/
+
+**Freddie Freeman's walk-off grand slam lifts Dodgers past Yankees in Game 1 of World Series**\
 `This marquee matchup in the World Series was 43 years — and it did not disappoint.`\
 https://nytimes.com/athletic/5873828/2024/10/25/freddie-freemans-walkoff-grand-slam-lifts-dodgers-past-yankees-in-game-1-of-world-series/
 
