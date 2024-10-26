@@ -1,3 +1,7 @@
+**Notre Dame took full advantage of Navy fumbling away its biggest opportunity**\
+`With the help of six Navy turnovers, Notre Dame rolled to a 51-14 win Saturday, handing the Midshipmen their first loss of the season.`\
+https://nytimes.com/athletic/5874736/2024/10/26/notre-dame-navy-football-score-recap/
+
 **Israeli lawmakers say the country’s attack on Iran didn’t go far enough.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-lawmakers-say-the-countrys-attack-on-iran-didnt-go-far-enough
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/world/europe/catfish-northern-ireland-manslaughte
 **Daughter of L.A. Times Owner Says Endorsement Decision Stemmed From Harris Stance on Gaza War**\
 `The decision by the owner, Patrick Soon-Shiong, to cancel the paper’s planned endorsement of Kamala Harris sent shock waves through the organization. It was not the first time he had gotten involved in newsroom affairs.`\
 https://nytimes.com/2024/10/26/us/los-angeles-times-endorsement-soon-shiong.html
-
-**Hurzeler blames Brighton's lack of maturity, professionalism for Wolves draw**\
-`Head coach Fabian Hurzeler has blamed Brighton &amp; Hove Albion&#8217;s late slip up against Wolverhampton Wanderers on immaturity and a lack of professionalism.`\
-https://nytimes.com/athletic/5874597/2024/10/26/brighton-wolves-result-fabian-hurzeler/
 
