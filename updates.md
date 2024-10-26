@@ -1,3 +1,7 @@
+**Just When You Thought Sneakers Couldn’t Get Any Weirder**\
+`Puffy, pricey, and strangely perfect for the moment, the $455 ERLs are billed as skateboard shoes — but maybe don’t try to skate in them.`\
+https://nytimes.com/2024/10/26/style/erl-vamps-skate-shoe.html
+
 **How Wild rallied, then blew late lead in first regulation loss: 3 takeaways**\
 `Wild goalie Filip Gustavsson gave up two goals on the first three shots he faced in the Flyers' 7-5 win.`\
 https://nytimes.com/athletic/5874674/2024/10/26/wild-flyers-takeaways-analysis/

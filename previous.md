@@ -1,3 +1,7 @@
+**Just When You Thought Sneakers Couldn’t Get Any Weirder**\
+`Puffy, pricey, and strangely perfect for the moment, the $455 ERLs are billed as skateboard shoes — but maybe don’t try to skate in them.`\
+https://nytimes.com/2024/10/26/style/erl-vamps-skate-shoe.html
+
 **How Wild rallied, then blew late lead in first regulation loss: 3 takeaways**\
 `Wild goalie Filip Gustavsson gave up two goals on the first three shots he faced in the Flyers' 7-5 win.`\
 https://nytimes.com/athletic/5874674/2024/10/26/wild-flyers-takeaways-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/politics/salt-typhoon-hack-what-we-know.html
 **Penny Hires Jury Consultant Who Aided O.J. Simpson and Kyle Rittenhouse**\
 `The courtroom presence of Jo-Ellan Dimitrius illustrates the pressure on the 12 people who will decide if Daniel Penny is guilty of manslaughter for choking a man on a New York subway train.`\
 https://nytimes.com/2024/10/26/nyregion/daniel-penny-jury-consultant-ny-subway-choking.html
-
-**Longtime Cleveland Browns broadcaster Jim Donovan dies at 68**\
-`Donovan spent nearly 40 years as a broadcaster in Cleveland and was the Browns' play-by-play man since their return in 1999 until this year.`\
-https://nytimes.com/athletic/5874604/2024/10/26/jim-donovan-cleveland-browns-announcer-dies/
 
