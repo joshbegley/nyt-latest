@@ -1,3 +1,7 @@
+**Israeli forces arrest dozens of health care workers in Gaza.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-forces-arrest-dozens-of-health-care-workers-in-gaza
+
 **Israel’s Response to Iran**\
 `An update on the fighting in the Middle East.`\
 https://nytimes.com/2024/10/26/briefing/israel-iran-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/world/canada/canada-immigration-policy-explained.
 **The Connections Companion No. 504**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 27, 2024.`\
 https://nytimes.com/2024/10/26/crosswords/connections-companion-504.html
-
-**Here’s how the Israeli attack on Iran unfolded.**\
-`By Ronen Bergman`\
-https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/heres-how-the-israeli-attack-on-iran-unfolded
 
