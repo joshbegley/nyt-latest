@@ -1,3 +1,7 @@
+**Israel presses on with fighting in Lebanon and Gaza.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israel-presses-on-with-fighting-in-lebanon-and-gaza
+
 **Two referees banned by UEFA after 'improper behaviour' before Champions League qualifier**\
 `Two referees have been banned from UEFA competitions after violating &#8220;basic rules of decent conduct&#8221; with &#8220;improper behaviour&#8221; before a Champions League qualifying tie.`\
 https://nytimes.com/athletic/5874101/2024/10/26/uefa-polish-referees-banned/
