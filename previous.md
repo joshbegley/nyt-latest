@@ -1,3 +1,7 @@
+**Penguins' Tristan Jarry loaned to AHL on conditioning assignment**\
+`Jarry has not played for the Penguins since allowing three goals on five shots against the Buffalo Sabres on Oct. 16.`\
+https://nytimes.com/athletic/5874273/2024/10/26/penguins-tristan-jarry-ahl-assignment/
+
 **Why Is Trump Holding a Rally at Madison Square Garden?**\
 `New York is not exactly a battleground state. Here are five reasons Donald J. Trump is holding a rally there in the final days of the presidential campaign.`\
 https://nytimes.com/2024/10/26/us/politics/trump-rally-madison-square-garden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/26/us/harris-trump-election
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/26/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Hundreds Killed in Days as War in Sudan Surges**\
-`Paramilitary forces ransacked villages and killed hundreds of people, activists said, hastening calls for the United Nations to deploy a mission to protect civilians.`\
-https://nytimes.com/2024/10/26/world/africa/sudan-war-killings.html
 
