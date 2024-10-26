@@ -1,3 +1,7 @@
+**What to Know About the Chinese Hackers Who Targeted the 2024 Campaigns**\
+`A group experts call Salt Typhoon is believed to be behind a sophisticated breach into major telecommunication companies that has taken aim at American leaders.`\
+https://nytimes.com/2024/10/26/us/politics/salt-typhoon-hack-what-we-know.html
+
 **Penny Hires Jury Consultant Who Aided O.J. Simpson and Kyle Rittenhouse**\
 `The courtroom presence of Jo-Ellan Dimitrius illustrates the pressure on the 12 people who will decide if Daniel Penny is guilty of manslaughter for choking a man on a New York subway train.`\
 https://nytimes.com/2024/10/26/nyregion/daniel-penny-jury-consultant-ny-subway-choking.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873767/2024/10/26/warriors-jazz-good-vibes/
 **USYNT international Campbell makes Bundesliga debut for Dortmund**\
 `Cole Campbell, a USYNT international, made his Bundesliga debut for Borussia Dortmund on Saturday.`\
 https://nytimes.com/athletic/5874504/2024/10/26/cole-campbell-dortmund-usmnt/
-
-**Bristol City 0-0 Leeds United: Full-back conundrum and a familiar problem re-emerges**\
-`Nancy Froston analyses Leeds' game at Bristol City...`\
-https://nytimes.com/athletic/5874260/2024/10/26/bristol-city-0-0-leeds-united/
 
