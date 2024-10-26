@@ -1,3 +1,11 @@
+**Daughter of L.A. Times Owner Says Endorsement Decision Stemmed From Harris Stance on Gaza War**\
+`The decision by the owner, Patrick Soon-Shiong, to cancel the paper’s planned endorsement of Kamala Harris sent shock waves through the organization. It was not the first time he had gotten involved in newsroom affairs.`\
+https://nytimes.com/2024/10/26/us/los-angeles-times-endorsement-soon-shiong.html
+
+**Bristol City 0-0 Leeds United: Full-back conundrum and a familiar problem re-emerges**\
+`Nancy Froston analyses Leeds' game at Bristol City...`\
+https://nytimes.com/athletic/5874260/2024/10/26/bristol-city-0-0-leeds-united/
+
 **Hurzeler blames Brighton's lack of maturity, professionalism for Wolves draw**\
 `Head coach Fabian Hurzeler has blamed Brighton &amp; Hove Albion&#8217;s late slip up against Wolverhampton Wanderers on immaturity and a lack of professionalism.`\
 https://nytimes.com/athletic/5874597/2024/10/26/brighton-wolves-result-fabian-hurzeler/
