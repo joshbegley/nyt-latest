@@ -1,3 +1,7 @@
+**Boise State beats UNLV to strengthen its case for CFP berth**\
+`Boise State took sole possession of first place in the Mountain West with Friday's 29-24 win at UNLV.`\
+https://nytimes.com/athletic/5874009/2024/10/26/boise-state-unlv-ashton-jeanty-result-takeaways/
+
 **Leicester are failing at fundamentals - what are the options to fix defensive frailties?**\
 `There is some fight in this Leicester side, but they cannot keep having to overcome seemingly insurmountable odds.`\
 https://nytimes.com/athletic/5873696/2024/10/26/leicester-nottingham-forest-derby-defeat/

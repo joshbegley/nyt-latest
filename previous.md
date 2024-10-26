@@ -1,3 +1,7 @@
+**Boise State beats UNLV to strengthen its case for CFP berth**\
+`Boise State took sole possession of first place in the Mountain West with Friday's 29-24 win at UNLV.`\
+https://nytimes.com/athletic/5874009/2024/10/26/boise-state-unlv-ashton-jeanty-result-takeaways/
+
 **Leicester are failing at fundamentals - what are the options to fix defensive frailties?**\
 `There is some fight in this Leicester side, but they cannot keep having to overcome seemingly insurmountable odds.`\
 https://nytimes.com/athletic/5873696/2024/10/26/leicester-nottingham-forest-derby-defeat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872747/2024/10/26/jarrod-bowen-role-west-ham-manch
 **Slot, Flick, Motta and De Zerbi: Four blockbuster matches present new coaches' biggest tests yet**\
 `Liverpool, Barcelona, Juventus and Marseille face elite teams (including three reigning champions) who have established coaches and styles `\
 https://nytimes.com/athletic/5872155/2024/10/26/barcelona-liverpool-juventus-marseille-coaches/
-
-**Mohamed Salah is even better for Liverpool under Arne Slot: An analysis of what's changed**\
-`The Liverpool winger turned 32 in the summer, yet looks better than ever under their new head coach - how?`\
-https://nytimes.com/athletic/5862931/2024/10/26/salah-even-better-slot-liverpool/
 
