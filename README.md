@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Patrick Kingsley, Farnaz Fassihi and Ronen Bergman`\
+https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/here-are-the-latest-developments
+
 **Live Updates: Israel’s Retaliatory Attack on Iran Hits Military Bases**\
 `Iran’s national air defense force said that Israel had struck sites in three provinces, including Tehran, causing “limited damage.”`\
 https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/politics/election-biden-middle-east.html
 **How Tom Llamas, an NBC Anchor, Spends His Sundays**\
 `Mr. Llamas, who has been racing between hurricanes and election coverage, makes time for baseball with his children and not-so-scary movies with his wife.`\
 https://nytimes.com/2024/10/26/nyregion/tom-llamas-nbc.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/26/crosswords/spelling-bee-forum.html
 
