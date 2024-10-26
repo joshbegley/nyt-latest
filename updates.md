@@ -1,3 +1,7 @@
+**USYNT international Campbell makes Bundesliga debut for Dortmund**\
+`Cole Campbell, a USYNT international, made his Bundesliga debut for Borussia Dortmund on Saturday.`\
+https://nytimes.com/athletic/5874504/2024/10/26/cole-campbell-dortmund-usmnt/
+
 **The World According to Kamala Harris**\
 `The rise of Kamala Harris, the tenacious child of high-achieving immigrants, is atypical. But her story is also distinctly American.`\
 https://nytimes.com/2024/10/26/us/politics/kamala-harris-bio.html
