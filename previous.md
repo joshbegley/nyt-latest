@@ -1,6 +1,6 @@
 **Phil Lesh’s Life in Pictures**\
 `Looking back at the career of the Grateful Dead bassist, starting when the band was clean cut and called the Warlocks.`\
-https://nytimes.com/2024/10/25/arts/phil-lesh-photos.html
+https://nytimes.com/2024/10/25/arts/music/phil-lesh-photos.html
 
 **Phil Lesh Didn’t Hold Songs Down. He Lifted Them Higher.**\
 `The Grateful Dead bassist found new melodic byways through every song.`\
