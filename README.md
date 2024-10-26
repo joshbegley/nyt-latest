@@ -1,40 +1,40 @@
-**Cross-Tabs: October 2024 Times/Siena Poll of Registered Voters in New York City**\
-`Results of a New York Times/Siena College poll conducted among 853 registered voters in New York City from Oct. 20 to 23, 2024.`\
-https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-registered-voter-crosstabs.html
+**4 Historical Novels Loaded With Witches, Fiends and Demons**\
+`These books are perfect for the spooky season.`\
+https://nytimes.com/2024/10/26/books/review/new-historical-fiction.html
 
-**Cross-Tabs: October 2024 Times/Siena Poll of the Likely Electorate in New York City**\
-`Results of a New York Times/Siena College poll conducted among 853 likely voters in New York City from Oct. 20 to 23, 2024.`\
-https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-crosstabs.html
+**Museums Around the Country Explore Democracy**\
+`Inspired by the presidential election, there are exhibitions, forums and voter registrations.`\
+https://nytimes.com/2024/10/26/arts/museums-around-the-country-explore-democracy.html
 
-**Toplines: October 2024 Times/Siena Poll of Registered Voters in New York City**\
-`Results of a New York Times/Siena College poll conducted among 853 registered voters in New York City from Oct. 20 to 23, 2024.`\
-https://nytimes.com/interactive/2024/10/26/us/elections/times-siena-nyc-poll-toplines.html
+**Painting Is Dead? Long Live Painting.**\
+`A show at the Museum of Contemporary Art Chicago challenges the timeworn critics’ contention that painting is dead, expanding the idea of what painting can be.`\
+https://nytimes.com/2024/10/26/arts/painting-chicago-museum.html
 
-**Iran’s State Media Plays Down Israeli Attacks**\
-`Explosions woke Iranians up and rattled their windows as strikes targeted sites in at least three provinces.`\
-https://nytimes.com/2024/10/26/world/middleeast/irans-state-media-plays-down-israeli-attacks.html
+**Alan Moore Beckons Readers Into a Rich New Fantasy World**\
+`With the first volume of a new series and an instructional book on magic, the “Watchmen” author wants an imaginary revolution.`\
+https://nytimes.com/2024/10/26/books/review/alan-moore-the-great-when-bumper-book-of-magic.html
 
-**Here are the latest developments.**\
-`By Patrick Kingsley, Farnaz Fassihi and Ronen Bergman`\
-https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/here-are-the-latest-developments
+**A Wave of Exhibits That Appeal to Visitors’ Noses**\
+`Museum and gallery shows in Seattle, New York, England and beyond are engaging visitors’ hearts and minds through all of their senses.`\
+https://nytimes.com/2024/10/26/arts/museum-exhibitions-smell.html
 
-**Live Updates: Israel’s Retaliatory Attack on Iran Hits Military Bases**\
-`Iran’s national air defense force said that Israel had struck sites in three provinces, including Tehran, causing “limited damage.”`\
-https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza
+**Art Museums Reach Out to Visitors From Behind Closed Doors**\
+`Museums have adopted creative engagement strategies when renovation work keeps visitors away.`\
+https://nytimes.com/2024/10/26/arts/museums-visitors-outreach.html
 
-**At Major Vatican Meeting, Women’s Issues Are Relegated to a Side Group**\
-`Pope Francis has made clear that contentious issues like the ordination of women are not on his agenda, but that hasn’t stopped the demand for greater equality.`\
-https://nytimes.com/2024/10/26/world/europe/vatican-bishops-synod-women-pope.html
+**Amid a ‘terrible’ F1 season, Sergio Pérez seeks a breakthrough at home in Mexico**\
+`Pérez arrives to the Mexico City GP without a podium finish since the Chinese Grand Prix in April. Could `\
+https://nytimes.com/athletic/5873661/2024/10/26/sergio-perez-red-bull-f1-mexican-grand-prix/
 
-**Russia or the West? Elections Put Republic of Georgia at a Crossroads.**\
-`Voters cast ballots on Saturday in a parliamentary election that could derail the country’s pro-Western course.`\
-https://nytimes.com/2024/10/26/world/europe/georgia-elections-russia-china-west.html
+**China Tightens Its Hold on Minerals Needed to Make Computer Chips**\
+`Already the dominant producer of rare minerals, Beijing is using export restrictions and its power over state-owned companies to further control access.`\
+https://nytimes.com/2024/10/26/business/china-critical-minerals-semiconductors.html
 
-**How Freddie Freeman delivered an iconic swing on a bad ankle: 'You dream about those moments'**\
-`Chris Taylor watched Freeman regain his swing a few days ago and told a teammate: “I think Freddie’s about to go off."`\
-https://nytimes.com/athletic/5874049/2024/10/26/freddie-freeman-world-series-grand-slam-ankle/
+**Fantasy football flex fliers: Rashod Bateman and a slew of Week 8 receiver options**\
+`Scott Engel gives his top fantasy football picks for flex position fliers with a focus on the wide receiver position ahead of Week 8.`\
+https://nytimes.com/athletic/5873634/2024/10/26/week-8-fantasy-football-flex-fliers/
 
-**Juan Soto owns defensive shortcomings in Game 1, as sloppy play stifles Yankees**\
-`Soto's defensive struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
-https://nytimes.com/athletic/5873704/2024/10/26/yankees-world-series-sloppy-defense-juan-soto/
+**This Florida Farmworker Is 75 and Still Toiling in the Heat**\
+`After two heat strokes and damaged kidneys, José Delgado remains stunned that Florida banned counties from enacting protections for outdoor workers.`\
+https://nytimes.com/2024/10/26/us/florida-farmworkers-heat.html
 
