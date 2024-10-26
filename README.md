@@ -27,7 +27,7 @@ https://nytimes.com/video/world/middleeast/100000009785277/what-we-know-about-is
 https://nytimes.com/athletic/5874986/2024/10/26/sabres-red-wings-tage-thompson/
 
 **Carlos Sainz takes Mexico City GP pole in qualifying**\
-`It's Sainz' first pole in 2024 and potentially last as a Ferrari driver. `\
+`It's Sainz's first pole in 2024 and potentially last as a Ferrari driver. `\
 https://nytimes.com/athletic/5875009/2024/10/26/carlos-sainz-pole-f1-mexico-city-gp/
 
 **Philadelphia Union goalkeeper Holden Trent dies at 25 years old**\
