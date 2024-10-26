@@ -1,3 +1,7 @@
+**A New Business on Wall Street: Defending Against D.E.I. Backlash**\
+`Companies are conducting vulnerability assessments, compiling research reports and writing plans for what to do if their diversity efforts come under attack.`\
+https://nytimes.com/2024/10/26/business/dealbook/dei-backlash-advisers.html
+
 **2 Novels About Complicated Nuns**\
 `An atheist in a convent; a bloodthirsty reality show hostess.`\
 https://nytimes.com/2024/10/26/books/read-like-wind-recommendations-nuns.html
