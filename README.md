@@ -1,3 +1,7 @@
+**Israeli lawmakers say the country’s attack on Iran didn’t go far enough.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/israeli-lawmakers-say-the-countrys-attack-on-iran-didnt-go-far-enough
+
 **Why Are North Korean Troops in Russia?**\
 `Over the last month, North Korea’s role aiding Russia in its war in Ukraine has significantly escalated.`\
 https://nytimes.com/video/world/asia/100000009782894/why-north-korean-soldiers-are-in-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/los-angeles-times-endorsement-soon-shiong.html
 **Hurzeler blames Brighton's lack of maturity, professionalism for Wolves draw**\
 `Head coach Fabian Hurzeler has blamed Brighton &amp; Hove Albion&#8217;s late slip up against Wolverhampton Wanderers on immaturity and a lack of professionalism.`\
 https://nytimes.com/athletic/5874597/2024/10/26/brighton-wolves-result-fabian-hurzeler/
-
-**Flyers reassign rookie center Jett Luchanko to his junior team**\
-`Luchanko, who turned 18 on August 21, became the youngest player in Flyers franchise history when he dressed for the season opener.`\
-https://nytimes.com/athletic/5874563/2024/10/26/flyers-jett-luchanko-reassigned-guelph/
 
