@@ -1,3 +1,15 @@
+**'We helped them': Bucks lack defensive intensity in home-opening loss to Bulls**\
+`Rotational breakdowns, bad closeouts and lack of focus on defense doomed the Bucks against the Bulls: "Defensively, our IQ has to go up."`\
+https://nytimes.com/athletic/5873873/2024/10/26/bucks-bulls-damian-lillard-giannis/
+
+**Man United hope Antony has avoided serious injury, will miss West Ham game**\
+`Manchester United hope Antony has avoided serious injury but the winger will miss the trip to West Ham United in the Premier League on Sunday.`\
+https://nytimes.com/athletic/5874446/2024/10/26/manchester-united-antony-injury-latest/
+
+**Man City 1 Southampton 0 - City go top but made to sweat; Haaland sublime and ridiculous**\
+`Haaland's early goal was surprisingly the only one of the game as City did enough to go top - Sam Lee breaks down the action.`\
+https://nytimes.com/athletic/5866054/2024/10/26/manchester-city-erling-haaland-southampton/
+
 **We’re Looking at the Wrong Gender Gap in Voting**\
 `Young women support Harris more than young men support Trump. That might make the difference.`\
 https://nytimes.com/2024/10/26/opinion/gender-election-voting-men-women-young.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/26/us/elections/jared-golden-maine.html
 **Penguins' Tristan Jarry loaned to AHL on conditioning assignment**\
 `Jarry has not played for the Penguins since allowing three goals on five shots against the Buffalo Sabres on Oct. 16.`\
 https://nytimes.com/athletic/5874273/2024/10/26/penguins-tristan-jarry-ahl-assignment/
-
-**Why Is Trump Holding a Rally at Madison Square Garden?**\
-`New York is not exactly a battleground state. Here are five reasons Donald J. Trump is holding a rally there in the final days of the presidential campaign.`\
-https://nytimes.com/2024/10/26/us/politics/trump-rally-madison-square-garden.html
-
-**Russini’s what I’m hearing: Trade buzz on Kupp, 49ers and big-name defensive players**\
-`Plus, the latest on Jayden Daniels, what to expect in DeAndre Hopkins’ Chiefs debut, a change for the Cowboys and more.`\
-https://nytimes.com/athletic/5873722/2024/10/26/trade-deadline-news-cooper-kupp-rams-49ers/
-
-**Lil Durk Is Accused of Conspiring to Kill a Rival. What We Know About the Case.**\
-`The rapper Lil Durk was arrested at the airport in Miami this week after he had been booked on flights to three international destinations, federal prosecutors said.`\
-https://nytimes.com/2024/10/26/arts/music/lil-dirk-murder-for-hire-arrest.html
 
