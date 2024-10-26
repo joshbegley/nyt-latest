@@ -1,40 +1,40 @@
-**4 Historical Novels Loaded With Witches, Fiends and Demons**\
-`These books are perfect for the spooky season.`\
-https://nytimes.com/2024/10/26/books/review/new-historical-fiction.html
+**Rosenthal: For Freddie Freeman, his family and Dodgers fans, a grand moment on the biggest stage**\
+`Surrounded by his father, wife, kids and teammates, the Dodgers star relished the biggest at-bat of his 15-year major-league career.`\
+https://nytimes.com/athletic/5874104/2024/10/26/freddie-freeman-world-series-dodgers-grand-slam/
 
-**Museums Around the Country Explore Democracy**\
-`Inspired by the presidential election, there are exhibitions, forums and voter registrations.`\
-https://nytimes.com/2024/10/26/arts/museums-around-the-country-explore-democracy.html
+**Trump’s Gains in New York City Offer Clues to a Shifting Electoral Map**\
+`A new poll adds to evidence of post-pandemic divergences and a smaller Trump edge in the Electoral College.`\
+https://nytimes.com/2024/10/26/upshot/trump-poll-new-york.html
 
-**Painting Is Dead? Long Live Painting.**\
-`A show at the Museum of Contemporary Art Chicago challenges the timeworn critics’ contention that painting is dead, expanding the idea of what painting can be.`\
-https://nytimes.com/2024/10/26/arts/painting-chicago-museum.html
+**Can 70 Moms Save a Species?**\
+`Here’s the story of Squilla, a rare North Atlantic right whale mother, and her firstborn. To help their species continue, they’d have to navigate an increasingly dangerous ocean.`\
+https://nytimes.com/interactive/2024/10/26/climate/north-atlantic-right-whale-population.html
 
-**Alan Moore Beckons Readers Into a Rich New Fantasy World**\
-`With the first volume of a new series and an instructional book on magic, the “Watchmen” author wants an imaginary revolution.`\
-https://nytimes.com/2024/10/26/books/review/alan-moore-the-great-when-bumper-book-of-magic.html
+**Medicaid Is Not a Top Campaign Issue. But for These Voters, It’s Crucial.**\
+`Medicaid has not been a big topic on the campaign trail, though it provides insurance for 73 million people. Still, some wonder how the program could change.`\
+https://nytimes.com/interactive/2024/10/26/us/medicaid-election-voters-photos.html
 
-**A Wave of Exhibits That Appeal to Visitors’ Noses**\
-`Museum and gallery shows in Seattle, New York, England and beyond are engaging visitors’ hearts and minds through all of their senses.`\
-https://nytimes.com/2024/10/26/arts/museum-exhibitions-smell.html
+**They Used to Be Ahead in the American Economy. Now They’ve Fallen Behind.**\
+`One economic question that really matters in an election year: Are others doing better than you?`\
+https://nytimes.com/interactive/2024/10/26/upshot/census-relative-income.html
 
-**Art Museums Reach Out to Visitors From Behind Closed Doors**\
-`Museums have adopted creative engagement strategies when renovation work keeps visitors away.`\
-https://nytimes.com/2024/10/26/arts/museums-visitors-outreach.html
+**Michelle Obama, a Reluctant Campaigner, Hits the Trail With Harris**\
+`The former first lady, who is viewed warmly among some of the voters whom the Harris campaign is trying to reach, will appear alongside the vice president on Saturday in Michigan.`\
+https://nytimes.com/2024/10/26/us/politics/michelle-obama-harris-michigan.html
 
-**Amid a ‘terrible’ F1 season, Sergio Pérez seeks a breakthrough at home in Mexico**\
-`Pérez arrives to the Mexico City GP without a podium finish since the Chinese Grand Prix in April. Could `\
-https://nytimes.com/athletic/5873661/2024/10/26/sergio-perez-red-bull-f1-mexican-grand-prix/
+**Readers Shared Hacks for Cheaper Teen Car Insurance. Do They Work?**\
+`Here’s what could happen if you don’t tell your insurer about any teenage drivers in your family — or try to get a separate policy for them altogether.`\
+https://nytimes.com/2024/10/26/your-money/cheap-car-insurance-teen-drivers.html
 
-**China Tightens Its Hold on Minerals Needed to Make Computer Chips**\
-`Already the dominant producer of rare minerals, Beijing is using export restrictions and its power over state-owned companies to further control access.`\
-https://nytimes.com/2024/10/26/business/china-critical-minerals-semiconductors.html
+**Lamar Jackson's handling of the blitz has fueled Ravens' surge. Another test comes Sunday**\
+`Jackson's passer rating against the blitz this year is 119.9, and he ranks second in the NFL in success rate behind Patrick Mahomes.`\
+https://nytimes.com/athletic/5873322/2024/10/26/lamar-jacksons-blitz-ravens-browns/
 
-**Fantasy football flex fliers: Rashod Bateman and a slew of Week 8 receiver options**\
-`Scott Engel gives his top fantasy football picks for flex position fliers with a focus on the wide receiver position ahead of Week 8.`\
-https://nytimes.com/athletic/5873634/2024/10/26/week-8-fantasy-football-flex-fliers/
+**As the World Turns, So Do These Cameras**\
+`Whirling 360-degree photo booths have gone from red carpets to bat mitzvahs to tourist sites like the Cradle of Humankind.`\
+https://nytimes.com/2024/10/26/style/360-photo-booth-red-carpet-tourism.html
 
-**This Florida Farmworker Is 75 and Still Toiling in the Heat**\
-`After two heat strokes and damaged kidneys, José Delgado remains stunned that Florida banned counties from enacting protections for outdoor workers.`\
-https://nytimes.com/2024/10/26/us/florida-farmworkers-heat.html
+**Anime on Broadway May Be a Perfect Match**\
+`“Attack on Titan: The Musical” showed what a crossover between two seemingly different types of fans could look like.`\
+https://nytimes.com/2024/10/26/theater/attack-on-titan-anime-broadway.html
 
