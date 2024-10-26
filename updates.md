@@ -1,3 +1,11 @@
+**Why Is Trump Holding a Rally at Madison Square Garden?**\
+`New York is not exactly a battleground state. Here are five reasons Donald J. Trump is holding a rally there in the final days of the presidential campaign.`\
+https://nytimes.com/2024/10/26/us/politics/trump-rally-madison-square-garden.html
+
+**Russini’s what I’m hearing: Trade buzz on Kupp, 49ers and big-name defensive players**\
+`Plus, the latest on Jayden Daniels, what to expect in DeAndre Hopkins’ Chiefs debut, a change for the Cowboys and more.`\
+https://nytimes.com/athletic/5873722/2024/10/26/trade-deadline-news-cooper-kupp-rams-49ers/
+
 **Lil Durk Is Accused of Conspiring to Kill a Rival. What We Know About the Case.**\
 `The rapper Lil Durk was arrested at the airport in Miami this week after he had been booked on flights to three international destinations, federal prosecutors said.`\
 https://nytimes.com/2024/10/26/arts/music/lil-dirk-murder-for-hire-arrest.html
