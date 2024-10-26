@@ -1,3 +1,7 @@
+**Nigeria awarded match, Libya fined after AFCON qualifying airport incident**\
+`Nigeria have been awarded the victory after they forfeited their game against Libya earlier this month after being stranded at an airport in the North African country.`\
+https://nytimes.com/athletic/5874360/2024/10/26/nigeria-libya-forfeit-afcon-qualifying/
+
 **Peanut Butter Walks Into a Chocolate Cookie Bar**\
 `And the result is a rich, fudgy-centered treat that’s somewhere between a cookie and a brownie.`\
 https://nytimes.com/2024/10/26/dining/peanut-butter-walks-into-a-chocolate-cookie-bar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866715/2024/10/26/nfl-week-8-fantasy-football-inju
 **Israeli Attack Puts Iranians on Edge: ‘The Vibe Is Not Normal’**\
 `A sense of uncertainty prevailed in Iran after an Israeli retaliatory strike. Explosions kept some awake, while others hoped life would go back to normal.`\
 https://nytimes.com/2024/10/26/world/middleeast/iran-israel-attack-public.html
-
-**Makai Lemon breaks out, defense responds: Takeaways from the USC's win over Rutgers**\
-`The Trojans snapped a three-game losing streak with a 42-20 win over Rutgers on Friday night. `\
-https://nytimes.com/athletic/5874194/2024/10/26/usc-rutgers-makai-lemson-lincoln-riley/
 

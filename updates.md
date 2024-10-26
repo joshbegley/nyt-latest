@@ -1,3 +1,7 @@
+**Nigeria awarded match, Libya fined after AFCON qualifying airport incident**\
+`Nigeria have been awarded the victory after they forfeited their game against Libya earlier this month after being stranded at an airport in the North African country.`\
+https://nytimes.com/athletic/5874360/2024/10/26/nigeria-libya-forfeit-afcon-qualifying/
+
 **Peanut Butter Walks Into a Chocolate Cookie Bar**\
 `And the result is a rich, fudgy-centered treat that’s somewhere between a cookie and a brownie.`\
 https://nytimes.com/2024/10/26/dining/peanut-butter-walks-into-a-chocolate-cookie-bar.html
