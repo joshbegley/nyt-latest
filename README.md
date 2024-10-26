@@ -1,3 +1,7 @@
+**Hundreds Killed in Days as War in Sudan Surges**\
+`Paramilitary forces ransacked villages and killed hundreds of people, activists said, hastening calls for the United Nations to deploy a mission to protect civilians.`\
+https://nytimes.com/2024/10/26/world/africa/sudan-war-killings.html
+
 **Kansas City Chiefs Week 8 playbook: What to know ahead of Raiders matchup**\
 `Catch up on what you need to know from this week on the Chiefs`\
 https://nytimes.com/athletic/5871177/2024/10/26/kansas-city-chiefs-week-8-news-projections-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/opinion/donald-trump-gender-election.html
 **Freddie Freeman wallops his way into World Series history with walk-off slam that'll float forever**\
 `Freeman's breathtaking blast was the first walk-off, lead-flipping, extra-inning World Series grand slam ever – and so much more. `\
 https://nytimes.com/athletic/5874127/2024/10/26/freddie-freeman-grand-slam-world-series-history/
-
-**Each NHL team's biggest surprise early in the 2024-25 season**\
-`What has been each team's biggest surprise so far, good, bad or ugly? The Athletic posed that question this week to its NHL staff.`\
-https://nytimes.com/athletic/5873345/2024/10/26/nhl-early-season-surprises-2024-2025/
 
