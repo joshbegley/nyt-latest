@@ -1,7 +1,3 @@
-**Freeman's grand statement lifts Dodgers over Yankees in Game 1: Takeaways**\
-`The Dodgers first baseman hit the first walk-off grand slam in World Series history to give his team a 6-3 victory. `\
-https://nytimes.com/athletic/5873794/2024/10/25/dodgers-yankees-world-series-score-takeaways/
-
 **Freddie Freeman's walk-off grand slam lifts Dodgers past Yankees in Game 1 of World Series**\
 `This marquee matchup in the World Series was 43 years — and it did not disappoint.`\
 https://nytimes.com/athletic/5873828/2024/10/25/freddie-freemans-walkoff-grand-slam-lifts-dodgers-past-yankees-in-game-1-of-world-series/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/25/business/musk-nlrb-appeal.html
 **Corrections: Oct. 26, 2024**\
 `Corrections that appeared in print on Saturday, Oct. 26, 2024.`\
 https://nytimes.com/2024/10/25/pageoneplus/corrections-oct-26-2024.html
+
+**Phil Lesh’s Life in Pictures**\
+`Looking back at the career of the Grateful Dead bassist, starting with when the band was clean cut and called the Warlocks.`\
+https://nytimes.com/2024/10/25/arts/music/phil-lesh-photos.html
 
