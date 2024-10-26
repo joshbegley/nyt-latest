@@ -1,3 +1,7 @@
+**Why Lopetegui’s use of Jarrod Bowen out wide could pay dividends against Manchester United**\
+`Sunday's visitors have a specific weakness at left-back that the England international should be able to exploit`\
+https://nytimes.com/athletic/5872747/2024/10/26/jarrod-bowen-role-west-ham-manchester-united/
+
 **Slot, Flick, Motta and De Zerbi: Four blockbuster matches present new coaches' biggest tests yet**\
 `Liverpool, Barcelona, Juventus and Marseille face elite teams (including three reigning champions) who have established coaches and styles `\
 https://nytimes.com/athletic/5872155/2024/10/26/barcelona-liverpool-juventus-marseille-coaches/
