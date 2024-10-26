@@ -1,3 +1,7 @@
+**Liz Cheney Is Certain That Kamala Harris Will Win**\
+`And it’s not because of democracy issues.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/liz-cheney-is-certain-that-kamala-harris-will-win
+
 **Oliver Glasner analysis: The Crystal Palace manager talks pressure, transfers and stats**\
 `The Austrian's team will attempt once again to break their season's Premier League duck against Tottenham Hotspur at Selhurst Park on Sunday`\
 https://nytimes.com/athletic/5866449/2024/10/26/crystal-palace-glasner-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/10/26/nyregion/mayor-democrats-adams-forum.html
 **Ohio State survives: What does this mean for Buckeyes, Huskers?**\
 `It wasn't easy, but Ohio State made the plays when it needed to — on both sides of the ball — to escape with a 21-17 win over Nebraska. `\
 https://nytimes.com/athletic/5874699/2024/10/26/nebraska-ohio-state-dylan-raiola-ryan-day/
-
-**Notre Dame took full advantage of Navy fumbling away its biggest opportunity**\
-`With the help of six Navy turnovers, Notre Dame rolled to a 51-14 win Saturday, handing the Midshipmen their first loss of the season.`\
-https://nytimes.com/athletic/5874736/2024/10/26/notre-dame-navy-football-score-recap/
 
