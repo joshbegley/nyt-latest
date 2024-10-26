@@ -1,6 +1,10 @@
+**Russia or the West? Elections Put Republic of Georgia at a Crossroads.**\
+`Voters cast ballots on Saturday in a parliamentary election that could derail the country’s pro-Western course.`\
+https://nytimes.com/2024/10/26/world/europe/georgia-elections-russia-china-west.html
+
 **How Freddie Freeman delivered an iconic swing on a bad ankle: 'You dream about those moments'**\
 `Chris Taylor watched Freeman regain his swing a few days ago and told a teammate: “I think Freddie’s about to go off."`\
-https://nytimes.com/athletic/5874049/2024/10/26/freddie-freeman-grand-slam-ankle/
+https://nytimes.com/athletic/5874049/2024/10/26/freddie-freeman-world-series-grand-slam-ankle/
 
 **Juan Soto owns defensive shortcomings in Game 1, as sloppy play stifles Yankees**\
 `Soto's defensive struggles in right field on Friday contributed to the Dodgers putting runs on the board in two separate innings. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874017/2024/10/26/yankees-world-series-aaron-boone
 **Boise State beats UNLV to strengthen its case for CFP berth**\
 `Boise State took sole possession of first place in the Mountain West with Friday's 29-24 win at UNLV.`\
 https://nytimes.com/athletic/5874009/2024/10/26/boise-state-unlv-ashton-jeanty-result-takeaways/
-
-**Leicester are failing at fundamentals - what are the options to fix defensive frailties?**\
-`There is some fight in this Leicester side, but they cannot keep having to overcome seemingly insurmountable odds.`\
-https://nytimes.com/athletic/5873696/2024/10/26/leicester-nottingham-forest-derby-defeat/
 
