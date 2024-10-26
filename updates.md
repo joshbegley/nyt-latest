@@ -1,3 +1,7 @@
+**Israel’s Response to Iran**\
+`We’ve got an update on the fighting in the Middle East.`\
+https://nytimes.com/2024/10/26/briefing/israel-iran-strikes.html
+
 **Nestor Cortes wanted the ball. And all that came with it**\
 `When Cortes entered Game 1 in the 10th inning, it was his first time pitching in extra innings in his major-league career. `\
 https://nytimes.com/athletic/5874096/2024/10/26/nestor-cortes-yankees-world-series/
