@@ -1,3 +1,7 @@
+**Tampa Bay Rays' 2025 stadium unclear, but unlikely to be Nashville or Salt Lake City: Source**\
+`The many spring training facilities across Florida stand out as possible homes for the Rays in 2025 and perhaps beyond. `\
+https://nytimes.com/athletic/5873806/2024/10/25/tampa-bay-rays-2025-stadium-nashville-salt-lake-city/
+
 **McLaren’s Right of Review over Norris-Verstappen incident dismissed**\
 `The FIA stewards determined “there is no relevant new element.”`\
 https://nytimes.com/athletic/5873792/2024/10/25/mclaren-right-of-review-norris-verstappen/
