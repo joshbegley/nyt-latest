@@ -1,3 +1,7 @@
+**Slot, Flick, Motta and De Zerbi: Four blockbuster matches present new coaches' biggest tests yet**\
+`Liverpool, Barcelona, Juventus and Marseille face elite teams (including three reigning champions) who have established coaches and styles `\
+https://nytimes.com/athletic/5872155/2024/10/26/barcelona-liverpool-juventus-marseille-coaches/
+
 **Mohamed Salah is even better for Liverpool under Arne Slot: An analysis of what's changed**\
 `The Liverpool winger turned 32 in the summer, yet looks better than ever under their new head coach - how?`\
 https://nytimes.com/athletic/5862931/2024/10/26/salah-even-better-slot-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/pageoneplus/quote-of-the-day-sure-you-can-go-to-t
 **Manchester City vs Southampton preview, odds, prediction: City hopes to retake top spot**\
 `Manchester City have a chance to go top of the league before Arsenal and Liverpool square off later in the weekend.`\
 https://nytimes.com/athletic/5873044/2024/10/26/manchester-city-southampton-preview-odds-prediction/
-
-**Who Is Tommy Robinson, the Activist Behind a Far-Right London Rally?**\
-`The founder of the English Defence League, whose real name is Stephen Yaxley-Lennon, is at the forefront of a growing movement that was behind anti-immigrant riots this summer.`\
-https://nytimes.com/2024/10/26/world/europe/who-is-tommy-robinson-the-activist-behind-a-far-right-london-rally.html
 

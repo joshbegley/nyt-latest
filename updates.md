@@ -1,3 +1,7 @@
+**Slot, Flick, Motta and De Zerbi: Four blockbuster matches present new coaches' biggest tests yet**\
+`Liverpool, Barcelona, Juventus and Marseille face elite teams (including three reigning champions) who have established coaches and styles `\
+https://nytimes.com/athletic/5872155/2024/10/26/barcelona-liverpool-juventus-marseille-coaches/
+
 **Mohamed Salah is even better for Liverpool under Arne Slot: An analysis of what's changed**\
 `The Liverpool winger turned 32 in the summer, yet looks better than ever under their new head coach - how?`\
 https://nytimes.com/athletic/5862931/2024/10/26/salah-even-better-slot-liverpool/
