@@ -1,3 +1,7 @@
+**Iran’s State Media Plays Down Israeli Attacks**\
+`Explosions woke Iranians up and rattled their windows as strikes targeted sites in at least three provinces.`\
+https://nytimes.com/2024/10/26/world/middleeast/irans-state-media-plays-down-israeli-attacks.html
+
 **Here are the latest developments.**\
 `By Patrick Kingsley, Farnaz Fassihi and Ronen Bergman`\
 https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/here-are-the-latest-developments

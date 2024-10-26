@@ -1,3 +1,7 @@
+**Iran’s State Media Plays Down Israeli Attacks**\
+`Explosions woke Iranians up and rattled their windows as strikes targeted sites in at least three provinces.`\
+https://nytimes.com/2024/10/26/world/middleeast/irans-state-media-plays-down-israeli-attacks.html
+
 **Here are the latest developments.**\
 `By Patrick Kingsley, Farnaz Fassihi and Ronen Bergman`\
 https://nytimes.com/live/2024/10/26/world/israel-iran-lebanon-gaza/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/nyregion/trump-rally-msg-protest-nazi.html
 **As U.S. Election Looms, Biden Aides Struggle With Middle East Wars**\
 `Secretary of State Antony J. Blinken tried to get Prime Minister Benjamin Netanyahu of Israel to envision a U.S.-backed plan for ending the war in Gaza, but there was no sign of progress.`\
 https://nytimes.com/2024/10/26/us/politics/election-biden-middle-east.html
-
-**How Tom Llamas, an NBC Anchor, Spends His Sundays**\
-`Mr. Llamas, who has been racing between hurricanes and election coverage, makes time for baseball with his children and not-so-scary movies with his wife.`\
-https://nytimes.com/2024/10/26/nyregion/tom-llamas-nbc.html
 
