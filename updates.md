@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Oilers toy with humbled Penguins in blowout**\
+`The Penguins, outshot 50-27, were simply ambushed from the opening draw until the final few minutes in a 4-0 loss.`\
+https://nytimes.com/athletic/5873753/2024/10/26/penguins-oilers-shutout-joel-blomqvist/
+
 **Blackhawks squander strong start in loss to Predators: Observations**\
 `"It's a 60-minute game," Alex Vlasic said. "I feel like we slept for five to 10 minutes of that game, and they took it away from us."`\
 https://nytimes.com/athletic/5873945/2024/10/26/blackhawks-squander-strong-start-lose-to-predators/
