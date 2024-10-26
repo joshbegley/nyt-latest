@@ -1,3 +1,7 @@
+**Video of Ballots Being Destroyed Was Faked by Russia, Federal Officials Say**\
+`The video, which purported to show mailed-in ballots in Pennsylvania being ripped up, was part of Moscow’s efforts to influence the U.S. presidential election, the officials said.`\
+https://nytimes.com/2024/10/25/us/politics/pennsylvania-ballots-video-russia.html
+
 **Tampa Bay Rays' 2025 stadium unclear, but unlikely to be Nashville or Salt Lake City: Source**\
 `The many spring training facilities across Florida stand out as possible homes for the Rays in 2025 and perhaps beyond. `\
 https://nytimes.com/athletic/5873806/2024/10/25/tampa-bay-rays-2025-stadium-nashville-salt-lake-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/arts/music/phil-lesh-grateful-dead-bassist.html
 **The best Shohei Ohtani cards to collect after his historic 50/50 season**\
 `Ohtani cards are in big demand as he continues to add to his already historic resume`\
 https://nytimes.com/athletic/5873683/2024/10/25/shohei-ohtani-rookie-cards-dodgers/
-
-**G.O.P. Lawmaker Voices Support for Giving North Carolina’s Electors to Trump**\
-`Representative Andy Harris walked back his remarks, later saying his rationale that Hurricane Helene disenfranchised some voters was “theoretical.”`\
-https://nytimes.com/2024/10/25/us/politics/andy-harris-north-carolina-electors-trump.html
 
