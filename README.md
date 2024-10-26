@@ -1,3 +1,7 @@
+**Carlos Sainz takes Mexico City GP pole in qualifying**\
+`It's Sainz' first pole in 2024 and potentially last as a Ferrari driver. `\
+https://nytimes.com/athletic/5875009/2024/10/26/carlos-sainz-pole-f1-mexico-city-gp/
+
 **Philadelphia Union goalkeeper Holden Trent dies at 25 years old**\
 `"He embodied the true meaning of determination, dedication and perseverance, and he will be deeply missed," the MLS club said.`\
 https://nytimes.com/athletic/5874967/2024/10/26/holden-trent-philadelphia-union-death/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5866056/2024/10/26/real-madrid-0-barcelona-4-mbappe
 **Joe Davis on 'Gibby, meet Freddie' World Series call: 'That's the dream'**\
 `Davis on honoring Vin Scully: “I’d always thought that it would be neat to someday be able to pay homage to Vin somehow."`\
 https://nytimes.com/athletic/5874893/2024/10/26/dodgers-world-series-freddie-freeman-walk-off/
-
-**Just When You Thought Sneakers Couldn’t Get Any Weirder**\
-`Puffy, pricey, and strangely perfect for the moment, the $455 ERLs are billed as skateboard shoes — but maybe don’t try to skate in them.`\
-https://nytimes.com/2024/10/26/style/erl-vamps-skate-shoe.html
 
