@@ -1,3 +1,7 @@
+**Musk Wins Appeal Over Tweet He Had to Delete About Union Push**\
+`The Fifth Circuit court ruled that the 2018 post was protected speech. It also vacated an order to reinstate a pro-union Tesla worker who was fired.`\
+https://nytimes.com/2024/10/25/business/musk-nlrb-appeal.html
+
 **Corrections: Oct. 26, 2024**\
 `Corrections that appeared in print on Saturday, Oct. 26, 2024.`\
 https://nytimes.com/2024/10/25/pageoneplus/corrections-oct-26-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/25/us/politics/trump-atlantic-magazine.html
 **Republican Legal Challenges to Voting Rules Hit a Rough Patch**\
 `With voters already casting ballots, the two parties are still battling over the requirements for who gets to vote and which votes count.`\
 https://nytimes.com/2024/10/25/us/2024-election-voting-rules-trump-republicans.html
-
-**Mega-Donors Pour $8 Million Into Late Push Against N.Y. Abortion Measure**\
-`Opponents of the so-called Equal Rights Amendment have cast it as a broad attempt by Democrats to grant rights to transgender athletes and migrants.`\
-https://nytimes.com/2024/10/25/nyregion/proposition-one-ballot-abortion.html
 

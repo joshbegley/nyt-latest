@@ -1,3 +1,7 @@
+**Musk Wins Appeal Over Tweet He Had to Delete About Union Push**\
+`The Fifth Circuit court ruled that the 2018 post was protected speech. It also vacated an order to reinstate a pro-union Tesla worker who was fired.`\
+https://nytimes.com/2024/10/25/business/musk-nlrb-appeal.html
+
 **Corrections: Oct. 26, 2024**\
 `Corrections that appeared in print on Saturday, Oct. 26, 2024.`\
 https://nytimes.com/2024/10/25/pageoneplus/corrections-oct-26-2024.html
