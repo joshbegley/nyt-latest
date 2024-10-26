@@ -1,3 +1,11 @@
+**What We Know About Israel’s Strikes On Iran**\
+`After military-on-military attacks, will Israel and Iran be able to contain their conflict? Maria Abi-Habib, an investigative correspondent for The New York Times, looks at an unprecedented new chapter in the Middle East.`\
+https://nytimes.com/video/world/middleeast/100000009785277/what-we-know-about-israels-strikes-on-iran.html
+
+**Tage Thompson's dominance and 4 other thoughts on Sabres' 3-game win streak**\
+`Thompson scored two goals and recorded the hardest shot in the league since 2021 in Buffalo's 5-3 win over Detroit.`\
+https://nytimes.com/athletic/5874986/2024/10/26/sabres-red-wings-tage-thompson/
+
 **Carlos Sainz takes Mexico City GP pole in qualifying**\
 `It's Sainz' first pole in 2024 and potentially last as a Ferrari driver. `\
 https://nytimes.com/athletic/5875009/2024/10/26/carlos-sainz-pole-f1-mexico-city-gp/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5874409/2024/10/26/nhl-oilers-recall-ahl-bakersfiel
 **Trump Escalates Threats as Campaign Enters Dark Final Stretch**\
 `Top military leaders and high-ranking former officials from his administration have issued warning after warning that Donald J. Trump would rule as a dictator if given the chance.`\
 https://nytimes.com/2024/10/26/us/politics/trump-democracy-threats.html
-
-**The Briefing: Real Madrid 0 Barcelona 4 - Mbappe's Clasico to forget as Flick's team stun European champions**\
-`Barca demolished Madrid to strike a huge early blow in the La Liga title race`\
-https://nytimes.com/athletic/5866056/2024/10/26/real-madrid-0-barcelona-4-mbappe-flick-lewandowski/
-
-**Joe Davis on 'Gibby, meet Freddie' World Series call: 'That's the dream'**\
-`Davis on honoring Vin Scully: “I’d always thought that it would be neat to someday be able to pay homage to Vin somehow."`\
-https://nytimes.com/athletic/5874893/2024/10/26/dodgers-world-series-freddie-freeman-walk-off/
 
