@@ -1,3 +1,15 @@
+**Wild look to put sloppy loss behind them and end long road trip on a 'high note'**\
+`Filip Gustavsson had his first off night of the season and the Wild were handed their first regulation loss by the Flyers. `\
+https://nytimes.com/athletic/5874992/2024/10/26/wild-flyers-loss-filip-gustavsson/
+
+**The Curious Case of a Temple Sweet: How Food Increasingly Divides India**\
+`A Hindu politician has accused his Christian predecessor of allowing a temple’s sanctity to be violated with an animal product.`\
+https://nytimes.com/2024/10/26/world/asia/india-temple-laddu.html
+
+**Ryan Day, Ohio State face pressing question that threatens to derail title hopes**\
+`Injuries have exposed Ohio State's lack of offensive line depth, which nearly cost it vs. Nebraska and could prove pivotal in the future.`\
+https://nytimes.com/athletic/5874989/2024/10/26/ohio-state-nebraska-offensive-line-injuries/
+
 **Trump, Who Once Proposed a Muslim Registry, Now Courts Their Votes**\
 `The former president is reaching out to Muslim and Arab American voters in Michigan, a key battleground state.`\
 https://nytimes.com/2024/10/26/us/politics/trump-muslim-arab-american-voters-michigan.html
