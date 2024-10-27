@@ -1,3 +1,7 @@
+**Falcons vs. Buccaneers odds, expert picks, how to watch: An NFC South showdown**\
+`The Atlanta Falcons visit the Tampa Bay Buccaneers to determine who will be the NFC South's top dog. `\
+https://nytimes.com/athletic/5870405/2024/10/27/falcons-buccaneers-odds-picks-how-to-watch-betting/
+
 **Jets vs. Patriots odds, picks, how to watch: Jets try to regain form as favorites over Pats**\
 `Aaron Rodgers and Davante Adams look to reignite chemistry in Week 8, as the Jets are heavily favored over the Patriots. `\
 https://nytimes.com/athletic/5870297/2024/10/27/jets-patriots-odds-picks-how-to-watch-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873068/2024/10/27/chelsea-newcastle-preview-odds-p
 **West Ham vs Manchester United preview, odds, prediction: Red Devils try to reach top half**\
 `Manchester United and West Ham are both in the bottom half of the table and the Red Devils are desperate to move up.`\
 https://nytimes.com/athletic/5873087/2024/10/27/west-ham-manchester-united-preview-odds-prediction/
-
-**Titans vs. Lions odds, picks, how to watch: Lions heavily favored over struggling Titans**\
-`Two teams heading in opposite directions meet up when the Detroit Lions host the Tennessee Titans.`\
-https://nytimes.com/athletic/5870203/2024/10/27/titans-lions-odds-picks-how-to-watch-betting/
 
