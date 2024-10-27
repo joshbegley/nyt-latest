@@ -1,3 +1,11 @@
+**Michigan gets it right at QB, shows it hasn't quit on season in win over Michigan State**\
+`The rivals have a history of confrontations, and there was a brief shoving match after the final play that had players converge at midfield.`\
+https://nytimes.com/athletic/5875220/2024/10/26/michigan-msu-result-takeaways/
+
+**How Penn State staged a second-half rally with its backup QB to beat Wisconsin**\
+`The Nittany Lions beat the Badgers 28-13 after trailing at halftime. `\
+https://nytimes.com/athletic/5875302/2024/10/26/penn-state-wisconsin-score-analysis-college-football/
+
 **Miami and FSU are headed in different directions, even in an ugly Canes win**\
 `Miami deserves credit for its rivalry win, but the Seminoles made it easier than it could have been. `\
 https://nytimes.com/athletic/5875190/2024/10/26/miami-fsu-recap-takeaways-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5875072/2024/10/26/f1-mexico-gp-preview-ferrari-mcl
 **Michelle Obama Makes a Searing Appeal to Men: ‘Take Our Lives Seriously’**\
 `The former first lady portrayed a second Trump administration as dire for American women. And she castigated the media and many voters for holding Kamala Harris to a higher standard than Donald Trump.`\
 https://nytimes.com/2024/10/26/us/politics/harris-michelle-obama-michigan.html
-
-**Manfred: Rays expected to have stadium situation figured out by Christmas**\
-`Plus notes on ratings for Game 1 of the World Series and why MLB is fine with the A's and River Cats playing on grass in Sacramento. `\
-https://nytimes.com/athletic/5875136/2024/10/26/rob-manfred-tampa-bay-rays-stadium-christmas/
-
-**Michelle Obama Makes Abortion Rights Plea to Male Voters**\
-`Michelle Obama, the former first lady, made the case during a rally for Vice President Kamala Harris that a vote for former President Donald J. Trump would be a vote against women’s reproductive rights and health.`\
-https://nytimes.com/video/us/politics/100000009785492/michelle-obama-trump-harris.html
 

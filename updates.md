@@ -1,3 +1,11 @@
+**Michigan gets it right at QB, shows it hasn't quit on season in win over Michigan State**\
+`The rivals have a history of confrontations, and there was a brief shoving match after the final play that had players converge at midfield.`\
+https://nytimes.com/athletic/5875220/2024/10/26/michigan-msu-result-takeaways/
+
+**How Penn State staged a second-half rally with its backup QB to beat Wisconsin**\
+`The Nittany Lions beat the Badgers 28-13 after trailing at halftime. `\
+https://nytimes.com/athletic/5875302/2024/10/26/penn-state-wisconsin-score-analysis-college-football/
+
 **Shohei Ohtani leaves World Series Game 2 with apparent shoulder injury**\
 `The Dodgers star injured his shoulder attempting to steal second base in the seventh inning.`\
 https://nytimes.com/athletic/5875296/2024/10/26/shohei-ohtani-injury-dodgers/
