@@ -1,3 +1,11 @@
+**Heat unveil Dwyane Wade statue outside home arena**\
+`The 8-foot statue commemorates one of Wade's most iconic moments: His buzzer beater and "This is my house!" celebration from a 2009 game.`\
+https://nytimes.com/athletic/5873177/2024/10/27/miami-heat-dwyane-wade-statue/
+
+**Tim Walz and Alexandria Ocasio-Cortez Play Video Games and Talk Politics**\
+`Playing Madden football and Crazy Taxi, Mr. Walz discussed building coalitions and opposing the Senate’s filibuster with Ms. Ocasio-Cortez on Twitch.`\
+https://nytimes.com/2024/10/27/us/politics/walz-aoc-madden-crazy-taxi.html
+
 **Operatic Highlight**\
 `Michael Lieberman’s latest puzzle is a real trip.`\
 https://nytimes.com/2024/10/27/crosswords/daily-puzzle-2024-10-28.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5876647/2024/10/27/national-tight-ends-day-kyle-pit
 **Woman Who Left Boyfriend Zipped in a Suitcase Is Convicted of Murder**\
 `The woman, Sarah Boone, said the two were drinking and playing hide-and-seek when she zipped him inside the suitcase and then left him overnight.`\
 https://nytimes.com/2024/10/27/us/boyfriend-suitcase-murder-guilty.html
-
-**Monday Briefing: A Majority of U.S. Voters Say Democracy is Under Threat**\
-`Plus, a long-lost Chopin waltz.`\
-https://nytimes.com/2024/10/27/briefing/american-democracy-japan-elections-chopin.html
-
-**Packers' Willis, Jacobs power 30-27 win over Jaguars: Takeaways**\
-`A clutch 51-yard play from Malik Willis set up a game-winning field goal despite the Packers' two-minute defensive struggles.`\
-https://nytimes.com/athletic/5875869/2024/10/27/packers-jaguars-score-takeaways-results/
 
