@@ -1,3 +1,27 @@
+**The Newspaper That Almost Was**\
+`Reporters and editors at The New York Times had diligently prepared for one outcome of the 2016 presidential race. Then the election results poured in.`\
+https://nytimes.com/2024/10/27/insider/madam-president-hillary-clinton.html
+
+**‘She Pulled a Packet of Tissues From Her Bag and Tried to Take One Out’**\
+`Taming a tantrum on the 4 train, a scoop that got away in Ridgewood and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/10/27/nyregion/metropolitan-diary.html
+
+**For Investors, What if This Time Is Different?**\
+`Disregarding politics has worked brilliantly in the United States for a century. But market history offers comfort only up to a point, our columnist says.`\
+https://nytimes.com/2024/10/27/business/market-history-elections-disasters.html
+
+**He Transformed the Red Carpet. Now What?**\
+`For Daniel Roseberry, getting attention for Schiaparelli was the easy part. Now he needs to build a business.`\
+https://nytimes.com/2024/10/27/style/schiaparelli-daniel-roseberry.html
+
+**Removing Moss and Grime From Gravestones, She Reveals Forgotten History**\
+`As she scrubs centuries’ worth of dirt and mold off gravestones, Katie DeRaddo tells her TikTok followers the stories of those buried beneath them.`\
+https://nytimes.com/2024/10/27/nyregion/gravestones-cemeteries-gravetok.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/27/crosswords/spelling-bee-forum.html
+
 **Aaron Judge's October failures on full display in World Series**\
 `After Game 2, Judge is 6-for-40 with 19 strikeouts this October, and is 0-for-5 with runners on base in the World Series. `\
 https://nytimes.com/athletic/5874065/2024/10/27/dodgers-yankees-world-series-aaron-judge-struggles/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5875519/2024/10/27/colorado-football-bowl-eligibili
 **LeBron James posts 'surreal' triple-double in Lakers' win over Kings**\
 `James finished with 32 points, 14 rebounds and 10 assists. All three marks were season highs for the 39-year-old in his 22nd season.`\
 https://nytimes.com/athletic/5875526/2024/10/27/lebron-james-lakers-kings-triple-double/
-
-**Travis Hunter tracker: Colorado star re-energizes Heisman campaign with electrifying night**\
-`After missing time during each of Colorado's past two games, Hunter quickly reminded everyone why he's such a special player.`\
-https://nytimes.com/athletic/5875448/2024/10/27/travis-hunter-nfl-draft-2025-cincinnati/
-
-**Yoshinobu Yamamoto shines in World Series as Dodgers' 2-0 edge takes on extra importance**\
-`Yamamoto's gem gives provides a cushion if the Dodgers lose Shohei Ohtani to injury.`\
-https://nytimes.com/athletic/5875523/2024/10/27/yankees-dodgers-world-series-yoshinobu-yamamoto/
-
-**J.T. Miller, Canucks blitz Penguins in fourth consecutive win: 3 takeaways**\
-`In a span of 65 seconds, Vancouver went from trailing Pittsburgh 2-0 to gaining a 3-2 advantage.`\
-https://nytimes.com/athletic/5875238/2024/10/27/jt-miller-canucks-blitz-penguins-takeaways/
-
-**How a simplified version of what the Canadiens hope to become defensively sent them forward**\
-`Canadiens coach Martin St. Louis did something Saturday he loathed at the beginning of the season: He simplified. `\
-https://nytimes.com/athletic/5875507/2024/10/27/canadiens-beat-blues-arber-xhekaj/
-
-**What Pep Guardiola really means when he is nice about a struggling manager**\
-`There are quite a few Pep Guardiola memes but one of the more prevalent is, well, him being nice about another manager...`\
-https://nytimes.com/athletic/5874660/2024/10/27/pep-guardiola-rusell-martin-manager/
-
-**Harry Clarke's nightmare full Premier League debut - own goal, gave away a penalty and sent off**\
-`Clarke became the first player in Premier League history to endure all three on his full debut as Ipswich lost 4-3 at Brentford`\
-https://nytimes.com/athletic/5874447/2024/10/27/harry-clarke-premier-league-debut-own-goal-red-card/
 
