@@ -1,3 +1,7 @@
+**Tom Jarriel, Globetrotting ABC News Reporter, Is Dead at 89**\
+`In his 37 years at the network, he was a White House correspondent, weekend anchor and correspondent for “20/20.” He won 19 Emmy Awards.`\
+https://nytimes.com/2024/10/27/business/media/tom-jarriel-dead.html
+
 **Review: ‘Il Trovatore’ at the Met Opera Doesn’t Catch Fire**\
 `The energy in Verdi’s classic must come from the singing, but the cast of this revival fails to convey the work’s passion.`\
 https://nytimes.com/2024/10/27/arts/music/review-met-trovatore-doesnt-catch-fire.html
