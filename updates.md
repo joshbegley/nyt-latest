@@ -1,3 +1,15 @@
+**Bo Nix's career day propels Broncos to 28-14 win vs. Panthers**\
+`The rookie quarterback accounted for four touchdowns in Denver's victory against Carolina.`\
+https://nytimes.com/athletic/5877641/2024/10/27/panthers-broncos-score-takeaways-results/
+
+**Lando Norris says Max Verstappen 'got what he had coming to him' with Mexico GP penalties**\
+`Norris says his rival (and friend) will 'sacrifice himself’ to beat him in the F1 title race.`\
+https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-penalties-mexico-gp/
+
+**A Trump Rally Speaker Trashed Puerto Ricans. Harris Reached Out to Them.**\
+`Her campaign moved swiftly to highlight that even as a speaker at Donald Trump’s rally in New York made offensive remarks about Puerto Rico and Latinos, she was visiting Puerto Rican voters in Philadelphia.`\
+https://nytimes.com/2024/10/27/us/politics/kamala-harris-philadelphia-voters.html
+
 **Lloyd: Jameis Winston's performance, Browns' win a reminder of what could've been this year**\
 `Upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
 https://nytimes.com/athletic/5877620/2024/10/27/browns-ravens-jameis-winston-deshaun-watson-cleveland/
