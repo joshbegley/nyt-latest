@@ -1,40 +1,40 @@
-**The Satanic Panic That Never Goes Away**\
-`New movies and TV shows are revisiting a “weird corner” of the ’80s — and offering lessons for today.`\
-https://nytimes.com/2024/10/27/arts/the-satanic-panic-that-never-goes-away.html
+**Inside The Washington Post’s Decision to Stop Presidential Endorsements**\
+`Post owner Jeff Bezos ended the decades-long practice, weeks after a discussion at a meeting in Miami. The move has drawn criticism in and outside the newsroom.`\
+https://nytimes.com/2024/10/27/business/media/washington-post-president-endorsement.html
 
-**This Town Has More Faith in Football Than Politics. Can Walz Make a Difference?**\
-`In Aliquippa, Pa., residents have long believed more in their high school football team than in many politicians. Can combining the two make a difference?`\
-https://nytimes.com/2024/10/27/us/elections/beaver-country-football-walz.html
+**Donald Trump Will Never Be Done With New York**\
+`Sunday’s rally at Madison Square Garden, the self-styled “world’s most famous arena,” is a remarkable gambit, even by the former president’s standards — and a show of force.`\
+https://nytimes.com/2024/10/27/us/politics/trump-new-york-msg.html
 
-**For Catholic Jubilee, Days of Joy and Sadness in Rome and Bethlehem**\
-`For Rome, the rare Christmas Eve rite of redemption is cause for celebration this year. For Bethlehem, it is another grim reminder of the generations of war and deprivation.`\
-https://nytimes.com/2024/10/27/world/middleeast/catholic-jublilee-rome-bethlehem.html
+**Hear a Chopin Waltz Unearthed After Nearly 200 Years**\
+`An unknown work in the composer’s hand has emerged in a New York museum, the first such find in more than a half century. The pianist Lang Lang plays it here.`\
+https://nytimes.com/video/arts/music/100000009784202/chopin-waltz-lang-lang.html
 
-**Book Bans Live on in School District Now Run by Democrats.**\
-`Democrats swept a school board election in Bucks County after Republicans instituted book bans and other changes. But the right-wing “parental rights” movement has left an indelible mark.`\
-https://nytimes.com/2024/10/27/us/book-bans-school-boards-bucks-county.html
+**Voters Are Deeply Skeptical About the Health of American Democracy**\
+`Nearly half say it does not do a good job representing the people, and three-quarters say it is under threat, according to a Times/Siena poll.`\
+https://nytimes.com/2024/10/27/us/politics/american-democracy-poll.html
 
-**How the Sound of Music Can Be Healing. Literally.**\
-`Three new books make the case for music as medicine. In “The Schubert Treatment,” the most lyrical of the trio, a cellist takes us bedside with the sick and the dying.`\
-https://nytimes.com/2024/10/27/books/review/music-as-medicine-the-schubert-treatment-claire-oppert.html
+**Amid Talk of Fascism, Trump’s Threats and Language Evoke a Grim Past**\
+`Plenty of presidents have been called dictators by their political opponents, but none until now has been publicly accused of being a “fascist” by his own handpicked advisers.`\
+https://nytimes.com/2024/10/27/us/politics/trump-fascism.html
 
-**Joan Didion Remains as Elusive as Ever. These Books Want to Fix That.**\
-`Since her death, Didion has become a literary subject as popular for her image and writing as for the fascination she inspired for almost half a century.`\
-https://nytimes.com/2024/10/27/books/race-capture-joan-didion.html
+**First Images of the Sun’s Flares Released From a New Space Telescope**\
+`Forecasters will soon be able to use the instrument, a coronagraph, to better monitor the effects of solar storms.`\
+https://nytimes.com/2024/10/27/science/solar-flare-telescope-sun.html
 
-**NFL Week 8 top storylines: Tua and Bryce Young are back; DeAndre Hopkins makes Chiefs debut**\
-`We also get Bears-Commanders, and a chance to see which of the Eagles or Bengals can continue their upward momentum.`\
-https://nytimes.com/athletic/5870026/2024/10/27/tua-tagovailoa-bryce-young-nfl-week-8/
+**Nebraska hung around with Ohio State and raised its ceiling moving forward**\
+`Head coach Matt Rhule said he left The Horseshoe not satisfied or content but “fulfilled" as the Huskers lost 21-17 to Ohio State.`\
+https://nytimes.com/athletic/5875226/2024/10/27/nebraska-ohio-state-college-football-matt-rhule-november/
 
-**Rexrode: Quinn Ewers, Texas had a better day than you may think at Vanderbilt**\
-`Texas just won by three points at Vanderbilt, and that counts as a quality win in college football in 2024.`\
-https://nytimes.com/athletic/5875224/2024/10/27/quinn-ewers-texas-vanderbilt-sarkisian/
+**Trump and Harris Scrap for Georgia as Supporters Brace for a Photo Finish**\
+`Georgia has seen a flurry of activity underlining both parties’ recognition that, once again, the state is anyone’s to win.`\
+https://nytimes.com/2024/10/27/us/politics/trump-and-harris-scrap-for-georgia-as-supporters-brace-for-a-photo-finish.html
 
-**Bills vs. Seahawks odds, picks, how to watch: Bills road favorites with Allen rolling**\
-`Coming off a decisive divisional win, the Seahawks aim to slow Josh Allen and the Bills on the West Coast.`\
-https://nytimes.com/athletic/5872693/2024/10/27/bills-seahawks-odds-picks-how-to-watch-betting/
+**New-York Historical Society Gets a New Name and a New Wing**\
+`The museum will now be called the New York Historical and will name a new Wing for American Democracy after two major benefactors, H.M. Agnes Hsu-Tang and Oscar L. Tang.`\
+https://nytimes.com/2024/10/27/arts/design/new-york-historical-society-new-name.html
 
-**Saints vs. Chargers odds, picks, how to watch: Chargers big favorites over hobbled Saints**\
-`The Saints head to LA on a five-game losing streak, while the Chargers look to bounce back from a Week 7 loss.`\
-https://nytimes.com/athletic/5872676/2024/10/27/saints-chargers-odds-picks-how-to-watch-betting/
+**Watches That Look Similar in Everything but the Price Tag**\
+`Patek Philippe’s first new collection in 25 years came as a particular shock to a British watchmaker who already had a (far less expensive) doppelgänger on the market.`\
+https://nytimes.com/2024/10/27/style/patek-philippe-cubitus.html
 
