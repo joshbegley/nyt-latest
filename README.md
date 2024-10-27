@@ -1,3 +1,7 @@
+**Iranian officials stress Tehran’s right to respond to Israel’s attack.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/iran-ayatollah-israel
+
 **David Harris, Actor in the Cult Classic ‘The Warriors,’ Dies at 75**\
 `He played Cochise, a member of the Warriors gang who navigated a panoply of costumed aggressors in New York City.`\
 https://nytimes.com/2024/10/27/movies/david-harris-dead-warriors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/opinion/trump-harris-history.html
 **Penn State loss proves Wisconsin's not ready for prime time … yet again**\
 `Luke Fickell is in Year 2 of a rebuild that not only has yet to yield a true signature victory but continues to lack marked progress.`\
 https://nytimes.com/athletic/5875837/2024/10/27/wisconsin-penn-state-loss-luke-fickell/
-
-**The six Barca youngsters who rattled Madrid - from history-making Yamal to nerveless Cubarsi**\
-`Barca started with six players aged 22 or younger against Madrid. Here's how they contributed to a crushing win against their arch-rivals`\
-https://nytimes.com/athletic/5875691/2024/10/27/barcelona-real-madrid-yamal-cubarsi/
 
