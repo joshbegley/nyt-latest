@@ -1,3 +1,15 @@
+**Cardinals spoil Tua Tagovailoa's return with last-second FG to win 28-27: Takeaways**\
+`The Dolphins were in control through most of the contest, as Tagovailoa saw his first game action since suffering a concussion in Week 2.`\
+https://nytimes.com/athletic/5875873/2024/10/27/dolphins-cardinals-score-takeaways-result/
+
+**Barkley, Hurts key dominant second half in Eagles' 37-17 win vs. Bengals: Takeaways**\
+`The Eagles moved to 5-2 in a competitive NFC East, while the Bengals fell to 3-5 as their season reaches a critical juncture.`\
+https://nytimes.com/athletic/5875843/2024/10/27/eagles-bengals-score-takeaways-result/
+
+**Mimi Hines, a Replacement Star in ‘Funny Girl,’ Dies at 91**\
+`She was best known as half of a comedy team with her husband, Phil Ford, until her hall-filling voice earned her raves in a role made famous by Barbra Streisand.`\
+https://nytimes.com/2024/10/27/theater/mimi-hines-dead.html
+
 **Cousins leads Falcons past Bucs 31-26 to take control of NFC South : Takeaways**\
 `The Falcons completed a season sweep of the Buccaneers, which could loom large at the end of the year.`\
 https://nytimes.com/athletic/5875890/2024/10/27/falcons-buccaneers-score-takeaways-result/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/27/arts/music/claire-daly-dead.html
 **Kylian Mbappe’s curious Clasico debut: Offside frustration and clipped confidence**\
 `The France international set an unwanted record after being flagged offside eight times as Barcelona ran out comfortable winners in Madrid`\
 https://nytimes.com/athletic/5875841/2024/10/27/kylian-mbappe-real-madrid-barcelona-clasico-offside/
-
-**Caitlin Clark, Indiana Fever championship timeline accelerated by sudden coaching change**\
-`The Fever reportedly have been talking to Connecticut coach Stephanie White. Will she return to Indianapolis?`\
-https://nytimes.com/athletic/5876979/2024/10/27/indiana-fever-coach-fired-caitlin-clark-wnba/
-
-**Rice fires Mike Bloomgren after 2-6 start in 7th season**\
-`Bloomgren went 24-52 in six-plus seasons and guided the Owls to two bowl appearances. `\
-https://nytimes.com/athletic/5876974/2024/10/27/rice-mike-bloomgren-fired/
-
-**Packers' Love exits early vs. Jaguars with groin injury**\
-`Love was initially hobbled during Green Bay's first offensive series after landing awkwardly following a pass attempt.`\
-https://nytimes.com/athletic/5876621/2024/10/27/jordan-love-groin-injury-jaguars/
 
