@@ -1,3 +1,7 @@
+**Packers' Love exits early vs. Jaguars with groin injury**\
+`Love was initially hobbled during Green Bay's first offensive series after landing awkwardly following a pass attempt.`\
+https://nytimes.com/athletic/5876621/2024/10/27/jordan-love-groin-injury-jaguars/
+
 **Pro-Harris Super PAC Raises Concerns About Focusing on Trump and Fascism**\
 `The group, Future Forward, warned that attacking Donald J. Trump as a fascist or questioning his character or stamina are less effective than highlighting Kamala Harris’s proposals.`\
 https://nytimes.com/2024/10/27/us/politics/harris-trump-campaign-message.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/style/dodger-stadium-world-series-fans.html
 **Stewart Mandel's 12-team Playoff projections after Week 9**\
 `Oregon replaces Ohio State as the projected Big Ten champion and grabs the No. 2 seed. `\
 https://nytimes.com/athletic/5876711/2024/10/27/college-football-playoff-bracket-projections-week-9/
-
-**AP Top 25: Penn State, OSU set for top-5 game; Colorado moves in**\
-`Oregon is still No. 1 in the AP Top 25 college football poll, while Colorado is now ranked and a massive Penn State-Ohio State game is next.`\
-https://nytimes.com/athletic/5876435/2024/10/27/ap-top-25-penn-state-osu-colorado/
 
