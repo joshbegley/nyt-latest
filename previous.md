@@ -1,3 +1,11 @@
+**An Israeli strike in Beit Lahia killed dozens of people, Palestinian officials say.**\
+`By Hiba Yazbek and Gabby Sobelman`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/israel-strike-beit-lahia-gaza
+
+**Mr. Bezos Went to Washington. But He Never Arrived.**\
+`The billionaire made splashy purchases of The Washington Post and a mansion in Washington. But his status as a power player in the nation’s capital was never realized.`\
+https://nytimes.com/2024/10/27/technology/jeff-bezos-washington-post-dc.html
+
 **Newcastle waiting on result of Gordon's groin injury scan**\
 `Newcastle United head coach Eddie Howe is hoping Anthony Gordon’s groin injury is not serious as the club await the results of a scan on the England international.`\
 https://nytimes.com/athletic/5876513/2024/10/27/anthony-gordon-injury-newcastle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5872318/2024/10/27/west-ham-man-utd-ten-hag-briefin
 **Blue Jackets Sunday Gathering: Embrace of coach Dean Evason's system pays dividends**\
 `Columbus players are reluctant to hesitate last year's coaching, but there's clearly a difference.`\
 https://nytimes.com/athletic/5875842/2024/10/27/blue-jackets-evason-system/
-
-**California Governor Proposes $750 Million in Annual Film Tax Credits**\
-`Gov. Gavin Newsom wants to more than double the amount the state offers in incentives, which would make its program one of the nation’s most generous.`\
-https://nytimes.com/2024/10/27/movies/california-governor-newsom-film-tax-credits.html
-
-**The Briefing: Crystal Palace 1 Tottenham 0 - Another poor away showing, did substitutions work?**\
-`Tottenham put in perhaps their worst performance of the season so far in losing meekly to a team that had previously not won a game...`\
-https://nytimes.com/athletic/5872333/2024/10/27/crystal-palace-1-tottenham-0/
 

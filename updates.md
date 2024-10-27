@@ -1,3 +1,11 @@
+**An Israeli strike in Beit Lahia killed dozens of people, Palestinian officials say.**\
+`By Hiba Yazbek and Gabby Sobelman`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/israel-strike-beit-lahia-gaza
+
+**Mr. Bezos Went to Washington. But He Never Arrived.**\
+`The billionaire made splashy purchases of The Washington Post and a mansion in Washington. But his status as a power player in the nation’s capital was never realized.`\
+https://nytimes.com/2024/10/27/technology/jeff-bezos-washington-post-dc.html
+
 **Newcastle waiting on result of Gordon's groin injury scan**\
 `Newcastle United head coach Eddie Howe is hoping Anthony Gordon’s groin injury is not serious as the club await the results of a scan on the England international.`\
 https://nytimes.com/athletic/5876513/2024/10/27/anthony-gordon-injury-newcastle/
