@@ -1,3 +1,19 @@
+**Newcastle waiting on result of Gordon's groin injury scan**\
+`Newcastle United head coach Eddie Howe is hoping Anthony Gordon’s groin injury is not serious as the club await the results of a scan on the England international.`\
+https://nytimes.com/athletic/5876513/2024/10/27/anthony-gordon-injury-newcastle/
+
+**Pistons put up fight, but consistent Celtics find a way to win ugly**\
+`“I think that’s the power of a great team,” says Jaylen Brown as Celtics are able to play cohesively to defeat scrappy Pistons.`\
+https://nytimes.com/athletic/5875677/2024/10/27/celtics-pistons-jaylen-brown-payton-pritchard/
+
+**Ten Hag: West Ham penalty an 'injustice'**\
+`Manchester United manager Erik ten Hag says West Ham United’s late penalty award was an “injustice”.`\
+https://nytimes.com/athletic/5876594/2024/10/27/ten-hag-man-utd-west-ham-var-penalty/
+
+**Mirtle: Firing up the Concern-o-Meter for the Maple Leafs after a tough start**\
+`Nine games in, troubling signs are starting to emerge for the Maple Leafs. On a scale of 1 to 10, just how troubling are their issues?`\
+https://nytimes.com/athletic/5876086/2024/10/27/maple-leafs-nhl-season/
+
 **Israeli Strike in Sidon Kills Eight People, Lebanon’s Health Ministry Says**\
 `Israel’s military did not provide an immediate comment on the strike, but said earlier on Sunday that it was carrying out “targeted ground raids” in southern Lebanon.`\
 https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.html
