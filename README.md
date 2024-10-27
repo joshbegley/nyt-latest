@@ -1,3 +1,35 @@
+**The Satanic Panic That Never Goes Away**\
+`New movies and TV shows are revisiting a “weird corner” of the ’80s — and offering lessons for today.`\
+https://nytimes.com/2024/10/27/arts/the-satanic-panic-that-never-goes-away.html
+
+**This Town Has More Faith in Football Than Politics. Can Walz Make a Difference?**\
+`In Aliquippa, Pa., residents have long believed more in their high school football team than in many politicians. Can combining the two make a difference?`\
+https://nytimes.com/2024/10/27/us/elections/beaver-country-football-walz.html
+
+**For Catholic Jubilee, Days of Joy and Sadness in Rome and Bethlehem**\
+`For Rome, the rare Christmas Eve rite of redemption is cause for celebration this year. For Bethlehem, it is another grim reminder of the generations of war and deprivation.`\
+https://nytimes.com/2024/10/27/world/middleeast/catholic-jublilee-rome-bethlehem.html
+
+**Book Bans Live on in School District Now Run by Democrats.**\
+`Democrats swept a school board election in Bucks County after Republicans instituted book bans and other changes. But the right-wing “parental rights” movement has left an indelible mark.`\
+https://nytimes.com/2024/10/27/us/book-bans-school-boards-bucks-county.html
+
+**How the Sound of Music Can Be Healing. Literally.**\
+`Three new books make the case for music as medicine. In “The Schubert Treatment,” the most lyrical of the trio, a cellist takes us bedside with the sick and the dying.`\
+https://nytimes.com/2024/10/27/books/review/music-as-medicine-the-schubert-treatment-claire-oppert.html
+
+**Joan Didion Remains as Elusive as Ever. These Books Want to Fix That.**\
+`Since her death, Didion has become a literary subject as popular for her image and writing as for the fascination she inspired for almost half a century.`\
+https://nytimes.com/2024/10/27/books/race-capture-joan-didion.html
+
+**NFL Week 8 top storylines: Tua and Bryce Young are back; DeAndre Hopkins makes Chiefs debut**\
+`We also get Bears-Commanders, and a chance to see which of the Eagles or Bengals can continue their upward momentum.`\
+https://nytimes.com/athletic/5870026/2024/10/27/tua-tagovailoa-bryce-young-nfl-week-8/
+
+**Rexrode: Quinn Ewers, Texas had a better day than you may think at Vanderbilt**\
+`Texas just won by three points at Vanderbilt, and that counts as a quality win in college football in 2024.`\
+https://nytimes.com/athletic/5875224/2024/10/27/quinn-ewers-texas-vanderbilt-sarkisian/
+
 **Bills vs. Seahawks odds, picks, how to watch: Bills road favorites with Allen rolling**\
 `Coming off a decisive divisional win, the Seahawks aim to slow Josh Allen and the Bills on the West Coast.`\
 https://nytimes.com/athletic/5872693/2024/10/27/bills-seahawks-odds-picks-how-to-watch-betting/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5872693/2024/10/27/bills-seahawks-odds-picks-how-to
 **Saints vs. Chargers odds, picks, how to watch: Chargers big favorites over hobbled Saints**\
 `The Saints head to LA on a five-game losing streak, while the Chargers look to bounce back from a Week 7 loss.`\
 https://nytimes.com/athletic/5872676/2024/10/27/saints-chargers-odds-picks-how-to-watch-betting/
-
-**Suns want to build on Booker and Durant's Olympic experience — it showed in win over Mavs**\
-`On a night when Durant scored his 29,000th career point, a hustle play from a role player provided the night's biggest reaction.`\
-https://nytimes.com/athletic/5875602/2024/10/27/suns-defeat-mavs-durant-29000-points/
-
-**Susan B. Anthony Was Arrested for Voting. Now Her Home Is a Poll Site.**\
-`The home in Rochester, N.Y., now a museum celebrating the women’s suffrage movement, served as a polling place for early voters on Saturday.`\
-https://nytimes.com/2024/10/27/nyregion/susan-b-anthony-home-presidential-election.html
-
-**The Newspaper That Almost Was**\
-`Reporters and editors at The New York Times had diligently prepared for one outcome of the 2016 presidential race. Then the election results poured in.`\
-https://nytimes.com/2024/10/27/insider/madam-president-hillary-clinton.html
-
-**‘She Pulled a Packet of Tissues From Her Bag and Tried to Take One Out’**\
-`Taming a tantrum on the 4 train, a scoop that got away in Ridgewood and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/10/27/nyregion/metropolitan-diary.html
-
-**For Investors, What if This Time Is Different?**\
-`Disregarding politics has worked brilliantly in the United States for a century. But market history offers comfort only up to a point, our columnist says.`\
-https://nytimes.com/2024/10/27/business/market-history-elections-disasters.html
-
-**He Transformed the Red Carpet. Now What?**\
-`For Daniel Roseberry, getting attention for Schiaparelli was the easy part. Now he needs to build a business.`\
-https://nytimes.com/2024/10/27/style/schiaparelli-daniel-roseberry.html
-
-**Removing Moss and Grime From Gravestones, She Reveals Forgotten History**\
-`As she scrubs centuries’ worth of dirt and mold off gravestones, Katie DeRaddo tells her TikTok followers the stories of those buried beneath them.`\
-https://nytimes.com/2024/10/27/nyregion/gravestones-cemeteries-gravetok.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/27/crosswords/spelling-bee-forum.html
 
