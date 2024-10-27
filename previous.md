@@ -1,3 +1,11 @@
+**Political Crisis Looms for Republic of Georgia After Disputed Election**\
+`The ruling Georgia Dream party won a majority in the vote. The opposition, which fears the country is moving away from the West, says the voting was not fair and that it will not appear in Parliament.`\
+https://nytimes.com/2024/10/27/world/europe/political-crisis-looms-for-republic-of-georgia-after-disputed-election.html
+
+**Yamal calls Barcelona the 'best team in the world' after Real Madrid victory**\
+`Lamine Yamal believes that Barcelona are the “best team in the world” after their 4-0 El Clasico victory over rivals Real Madrid.`\
+https://nytimes.com/athletic/5875864/2024/10/27/yamal-barcelona-real-madrid-clasico/
+
 **Tottenham's Moore to make first Premier League start against Crystal Palace**\
 `Mikey Moore will make his first start for Tottenham Hotspur in the Premier League against Crystal Palace on Sunday afternoon.`\
 https://nytimes.com/athletic/5875884/2024/10/27/spurs-mikey-moore-crystal-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/27/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Trump Aims for Show of Strength at Madison Square Garden Rally**\
 `With Election Day just over a week away, Donald J. Trump will rally in the heart of a solidly blue state. Vice President Kamala Harris is scheduled to campaign in Philadelphia.`\
 https://nytimes.com/live/2024/10/27/us/harris-trump-election
-
-**Real Madrid's Clasico humiliation points to problems on and off the pitch**\
-`Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
-https://nytimes.com/athletic/5875821/2024/10/27/real-madrid-clasico-humilliation-problems/
-
-**Down goes the MVP: Ohtani wouldn't be first to suffer October injury; Judge has unreal O-fer**\
-`One (likely) MVP is injured, which brings to mind some memorable Octobers of yesteryear. Another is in the midst of a brutal streak. `\
-https://nytimes.com/athletic/5875681/2024/10/27/dodgers-ohtani-injury-world-series-history-mvp/
 
