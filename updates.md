@@ -1,3 +1,7 @@
+**Susan B. Anthony Was Arrested for Voting. Now Her Home Is a Poll Site.**\
+`The home in Rochester, N.Y., now a museum celebrating the women’s suffrage movement, served as a polling place for early voters on Saturday.`\
+https://nytimes.com/2024/10/27/nyregion/susan-b-anthony-home-presidential-election.html
+
 **The Newspaper That Almost Was**\
 `Reporters and editors at The New York Times had diligently prepared for one outcome of the 2016 presidential race. Then the election results poured in.`\
 https://nytimes.com/2024/10/27/insider/madam-president-hillary-clinton.html
