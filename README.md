@@ -1,3 +1,7 @@
+**Marcel Reed, Texas A&M takes solo SEC lead after furious rally past LSU**\
+`With a month left in the season, there’s only one team unbeaten in SEC play.`\
+https://nytimes.com/athletic/5875301/2024/10/26/texas-am-lsu-sec-standings-marcel-reed/
+
 **Why Justin Brazeau is the top fix for the Bruins' problem at No. 2 right wing — for now**\
 `In Boston's 4-3 win over Toronto, Brazeau proved he has the size and net-front touch to earn more time with Marchand and Charlie Coyle.`\
 https://nytimes.com/athletic/5875275/2024/10/26/bruins-brad-marchand-justin-brazeau/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5875190/2024/10/26/miami-fsu-recap-takeaways-analys
 **Shohei Ohtani leaves World Series Game 2 with apparent shoulder injury**\
 `The Dodgers star injured his shoulder attempting to steal second base in the seventh inning.`\
 https://nytimes.com/athletic/5875296/2024/10/26/shohei-ohtani-injury-dodgers/
-
-**For First Time in Decades, Japan Votes in a Knife-Edge Election**\
-`The Japanese electorate seemed poised to punish the Liberal Democrats, even if it does not go so far as to hand power to the opposition.`\
-https://nytimes.com/2024/10/26/world/asia/japan-election.html
 
