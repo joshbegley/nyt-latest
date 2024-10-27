@@ -1,3 +1,7 @@
+**Week 9's College Football Playoff lessons: Ohio State walking a tightrope, new SEC leader**\
+`The Buckeyes' 21-17 win over Nebraska was far from inspiring. Also, is Tulane a dark horse contender?`\
+https://nytimes.com/athletic/5875614/2024/10/27/college-football-playoff-week-9-ohio-state-texas/
+
 **Khan: Mike Elko's structured, detailed approach is just what Texas A&M needed**\
 `The Aggies are working and letting their play do the talking. By now, everyone should be listening.`\
 https://nytimes.com/athletic/5875706/2024/10/27/texas-am-lsu-mike-elko/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/crosswords/connections-companion-505.html
 **What Football Can Teach Politics**\
 `Dwight Eisenhower learned leadership in an early job as a football coach. His success as president offers a few important lessons.`\
 https://nytimes.com/2024/10/27/opinion/president-coach-eisenhower.html
-
-**Wordle Review No. 1,227**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 28, 2024.`\
-https://nytimes.com/2024/10/27/crosswords/wordle-review-1227.html
 
