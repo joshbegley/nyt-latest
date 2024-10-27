@@ -1,3 +1,7 @@
+**Jets vs. Patriots odds, picks, how to watch: Jets try to regain form as favorites over Pats**\
+`Aaron Rodgers and Davante Adams look to reignite chemistry in Week 8, as the Jets are heavily favored over the Patriots. `\
+https://nytimes.com/athletic/5870297/2024/10/27/jets-patriots-odds-picks-how-to-watch-betting/
+
 **Mourinho wants to manage a non-European Premier League team – so, who does he fit best?**\
 `Mourinho suggested he wanted to join an EPL side in the lower reaches of the division. Our writers analyse his suitability to those options`\
 https://nytimes.com/athletic/5872463/2024/10/27/jose-mourinho-premier-league-ranking/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873087/2024/10/27/west-ham-manchester-united-previ
 **Titans vs. Lions odds, picks, how to watch: Lions heavily favored over struggling Titans**\
 `Two teams heading in opposite directions meet up when the Detroit Lions host the Tennessee Titans.`\
 https://nytimes.com/athletic/5870203/2024/10/27/titans-lions-odds-picks-how-to-watch-betting/
-
-**'The game should have been cleaner': Blue Jackets blow two leads in loss to Predators**\
-`Saturday's 4-3 overtime loss to the Predators was one of the Blue Jackets' better efforts, but a lack of consistent effort proved costly.`\
-https://nytimes.com/athletic/5875310/2024/10/26/blue-jackets-predators-loss/
 
