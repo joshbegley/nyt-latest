@@ -1,3 +1,7 @@
+**Erik Karlsson, Penguins endure brutal second period in 4-3 loss: Yohe's 10 observations**\
+`Erik Karlsson and the Penguins finished a nightmarish road trip in ugly fashion, falling in Vancouver 4-3 on Saturday. `\
+https://nytimes.com/athletic/5875330/2024/10/27/penguins-lose-to-canucks-yohe-10-observations/
+
 **Colorado reaches bowl eligibility in Deion's Year 2 by downing Cincinnati**\
 `Colorado hasn’t played in a bowl game since it went 4-2 in the pandemic-shortened 2020 season.`\
 https://nytimes.com/athletic/5875519/2024/10/27/colorado-football-bowl-eligibility-deion-sanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874447/2024/10/27/harry-clarke-premier-league-debu
 **After loss to Bruins, Craig Berube calls Leafs 'close' but not where he wants them to be**\
 `Even with a new coach in tow, so much of what plagued this core in the past has re-emerged through this mini-slump.`\
 https://nytimes.com/athletic/5875456/2024/10/27/leafs-close-craig-berube-bruins-overtime/
-
-**Arsenal vs Liverpool: Who is this game most important for? Form? Key player? Predictions?**\
-`Arsenal play Liverpool in the Premier League this afternoon - The Athletic writers who cover each club have their say`\
-https://nytimes.com/athletic/5872136/2024/10/27/arsenal-liverpool-preview-predictions/
 

@@ -1,3 +1,7 @@
+**Erik Karlsson, Penguins endure brutal second period in 4-3 loss: Yohe's 10 observations**\
+`Erik Karlsson and the Penguins finished a nightmarish road trip in ugly fashion, falling in Vancouver 4-3 on Saturday. `\
+https://nytimes.com/athletic/5875330/2024/10/27/penguins-lose-to-canucks-yohe-10-observations/
+
 **Colorado reaches bowl eligibility in Deion's Year 2 by downing Cincinnati**\
 `Colorado hasn’t played in a bowl game since it went 4-2 in the pandemic-shortened 2020 season.`\
 https://nytimes.com/athletic/5875519/2024/10/27/colorado-football-bowl-eligibility-deion-sanders/
