@@ -1,3 +1,7 @@
+**‘This Is Real’: Excerpts From Michelle Obama’s Speech on the Election**\
+`Michelle Obama made a striking speech about the consequences that the election will have for women’s bodies and reproductive health.`\
+https://nytimes.com/live/2024/10/26/us/harris-trump-election/michelle-obama-speech-harris-michigan
+
 **F1 Mexico City GP preview: Ferrari primed after Red Bull, McLaren setbacks**\
 `Carlos Sainz's pole position sets up Ferrari to jump feet-first into the championship fight on Sunday. `\
 https://nytimes.com/athletic/5875072/2024/10/26/f1-mexico-gp-preview-ferrari-mclaren-red-bull/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872054/2024/10/26/barcelona-clasico-real-madrid-vi
 **Wild look to put sloppy loss behind them and end long trip on a 'high note'**\
 `Filip Gustavsson had his first off night of the season, and the Wild were handed their first regulation loss by the Flyers. `\
 https://nytimes.com/athletic/5874992/2024/10/26/wild-flyers-loss-filip-gustavsson/
-
-**The Curious Case of a Temple Sweet: How Food Increasingly Divides India**\
-`A Hindu politician has accused his Christian predecessor of allowing a temple’s sanctity to be violated with an animal product.`\
-https://nytimes.com/2024/10/26/world/asia/india-temple-laddu.html
 

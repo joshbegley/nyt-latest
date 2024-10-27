@@ -1,3 +1,7 @@
+**‘This Is Real’: Excerpts From Michelle Obama’s Speech on the Election**\
+`Michelle Obama made a striking speech about the consequences that the election will have for women’s bodies and reproductive health.`\
+https://nytimes.com/live/2024/10/26/us/harris-trump-election/michelle-obama-speech-harris-michigan
+
 **F1 Mexico City GP preview: Ferrari primed after Red Bull, McLaren setbacks**\
 `Carlos Sainz's pole position sets up Ferrari to jump feet-first into the championship fight on Sunday. `\
 https://nytimes.com/athletic/5875072/2024/10/26/f1-mexico-gp-preview-ferrari-mclaren-red-bull/
