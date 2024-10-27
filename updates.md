@@ -1,3 +1,7 @@
+**An Israeli strike on the city of Sidon kills eight people, Lebanon’s health ministry says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.html
+
 **The Briefing: West Ham 2 Man United 1 - Dalot's miss, penalty drama and is Ten Hag's time up?**\
 `All the key talking points from Manchester United's damaging loss to West Ham analysed and evaluated by our correspondent`\
 https://nytimes.com/athletic/5872318/2024/10/27/west-ham-man-utd-ten-hag-briefing/
