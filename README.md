@@ -1,3 +1,7 @@
+**Until Saturday: Who's trending after Week 9? Plus, rivalry game fun**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who's looking up and who's not after Week 9? `\
+https://nytimes.com/athletic/5875767/2024/10/27/college-football-week-9-rivalry-games-until-saturday/
+
 **The Pulse: A win, with a side of pain**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5876035/2024/10/27/ohtani-injury-world-series-nfl-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875884/2024/10/27/spurs-mikey-moore-crystal-palace
 **No One Told Me This Would Happen to My Body in My 40s**\
 `The decline in strength and increase in injuries is little recognized and far too infrequently discussed.`\
 https://nytimes.com/2024/10/27/opinion/body-muscles-40s-aging.html
-
-**Joseph J. Ellis: The Ideals of the Founders Are on the Ballot**\
-`If Trump is president on July 4, 2026, the celebration will become a eulogy, for we will be honoring the corpse of the American republic.`\
-https://nytimes.com/2024/10/27/opinion/trump-harris-history.html
 
