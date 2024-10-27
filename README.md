@@ -1,3 +1,7 @@
+**Beyoncé? Springsteen? Trump Fans Feel Both Anger and A-List Envy**\
+`Kamala Harris has many celebrities campaigning for her. It has uncorked complicated feelings for Donald Trump and his supporters.`\
+https://nytimes.com/2024/10/27/us/elections/donald-trump-bruce-springsteen-beyonce.html
+
 **‘Trump 2024’ Was Projected on a Town’s Water Tower. A Standoff Ensued.**\
 `After a resident of Hanson, Mass., projected the logo on town property, local officials fined him $100 per day for violating its bylaws.`\
 https://nytimes.com/2024/10/27/us/trump-water-tower-hanson-massachusetts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875767/2024/10/27/college-football-week-9-rivalry-
 **The Pulse: A win, with a side of pain**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5876035/2024/10/27/ohtani-injury-world-series-nfl-the-pulse/
-
-**Iranian officials stress Tehran’s right to respond to Israel’s attack.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/iran-ayatollah-israel
 
