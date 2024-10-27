@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5875190/2024/10/26/miami-fsu-recap-takeaways-analysis/
 
 **Shohei Ohtani leaves World Series Game 2 with apparent shoulder injury**\
-`Ohtani injured his shoulder attempting to steal second base in the seventh inning.`\
+`The Dodgers star injured his shoulder attempting to steal second base in the seventh inning.`\
 https://nytimes.com/athletic/5875296/2024/10/26/shohei-ohtani-injury-dodgers/
 
 **For First Time in Decades, Japan Votes in a Knife-Edge Election**\

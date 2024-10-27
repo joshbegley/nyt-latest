@@ -1,3 +1,7 @@
+**Shohei Ohtani leaves World Series Game 2 with apparent shoulder injury**\
+`The Dodgers star injured his shoulder attempting to steal second base in the seventh inning.`\
+https://nytimes.com/athletic/5875296/2024/10/26/shohei-ohtani-injury-dodgers/
+
 **Miami and FSU are headed in different directions, even in an ugly Canes win**\
 `Miami deserves credit for its rivalry win, but the Seminoles made it easier than it could have been. `\
 https://nytimes.com/athletic/5875190/2024/10/26/miami-fsu-recap-takeaways-analysis/
