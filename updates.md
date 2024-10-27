@@ -1,3 +1,7 @@
+**LeBron James posts 'surreal' triple-double in Lakers' win over Kings**\
+`James finished with 32 points, 14 rebounds and 10 assists. All three marks were season highs for the 39-year-old in his 22nd season.`\
+https://nytimes.com/athletic/5875526/2024/10/27/lebron-james-lakers-kings-triple-double/
+
 **Erik Karlsson, Penguins endure brutal second period in 4-3 loss: Yohe's 10 observations**\
 `Erik Karlsson and the Penguins finished a nightmarish road trip in ugly fashion, falling in Vancouver 4-3 on Saturday. `\
 https://nytimes.com/athletic/5875330/2024/10/27/penguins-lose-to-canucks-yohe-10-observations/
