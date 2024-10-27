@@ -1,3 +1,7 @@
+**Until Saturday: Who's trending after Week 9? Plus, rivalry game fun**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who's looking up and who's not after Week 9? `\
+https://nytimes.com/athletic/5875767/2024/10/27/college-football-week-9-rivalry-games-until-saturday/
+
 **The Pulse: A win, with a side of pain**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5876035/2024/10/27/ohtani-injury-world-series-nfl-the-pulse/
