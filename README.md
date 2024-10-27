@@ -1,3 +1,11 @@
+**The six Barca youngsters who rattled Madrid - from history-making Yamal to nerveless Cubarsi**\
+`Barca started with six players aged 22 or younger against Madrid. Here's how they contributed to a crushing win against their arch-rivals`\
+https://nytimes.com/athletic/5875691/2024/10/27/barcelona-real-madrid-yamal-cubarsi/
+
+**Adam Johnson manslaughter case: Explaining the legal delays**\
+`It is almost a year since ice hockey player's death, so why has so little apparent progress been made in his case?`\
+https://nytimes.com/athletic/5859784/2024/10/27/adam-johnson-death-manslaughter-delays/
+
 **Here’s the latest on the presidential race.**\
 `Fo`\
 https://nytimes.com/live/2024/10/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5875747/2024/10/27/yamal-racist-abuse-real-madrid-b
 **Snyder: Beau Pribula rose to the moment, and now Penn State can focus on Ohio State**\
 `Backup quarterback Beau Pribula came through for Penn State, and now the Nittany Lions can turn their attention to Ohio State.`\
 https://nytimes.com/athletic/5875710/2024/10/27/penn-state-beau-pribula-wisconsin-ohio-state/
-
-**Week 9's College Football Playoff lessons: Ohio State walking a tightrope, new SEC leader**\
-`The Buckeyes' 21-17 win over Nebraska was far from inspiring. Also, is Tulane a dark horse contender?`\
-https://nytimes.com/athletic/5875614/2024/10/27/college-football-playoff-week-9-ohio-state-texas/
-
-**Khan: Mike Elko's structured, detailed approach is just what Texas A&M needed**\
-`The Aggies are working and letting their play do the talking. By now, everyone should be listening.`\
-https://nytimes.com/athletic/5875706/2024/10/27/texas-am-lsu-mike-elko/
 
