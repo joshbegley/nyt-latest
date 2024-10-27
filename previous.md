@@ -1,3 +1,7 @@
+**Penn State QB Drew Allar leaves Wisconsin game with apparent injury**\
+`Backup QB Beau Pribula has stepped in for Penn State.`\
+https://nytimes.com/athletic/5875210/2024/10/26/drew-allar-injury-penn-state-wisconsin/
+
 **‘This Is Real’: Excerpts From Michelle Obama’s Speech on the Election**\
 `Michelle Obama made a striking speech about the consequences that the election will have for women’s bodies and reproductive health.`\
 https://nytimes.com/2024/10/26/us/politics/michelle-obama-speech-harris-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-ka
 **So... Barcelona are good again?**\
 `Barcelona thrashed Real Madrid in the first Clasico of the season and they play with confidence and joy under Flick. That had been missing`\
 https://nytimes.com/athletic/5872054/2024/10/26/barcelona-clasico-real-madrid-victory/
-
-**Wild look to put sloppy loss behind them and end long trip on a 'high note'**\
-`Filip Gustavsson had his first off night of the season, and the Wild were handed their first regulation loss by the Flyers. `\
-https://nytimes.com/athletic/5874992/2024/10/26/wild-flyers-loss-filip-gustavsson/
 

@@ -1,3 +1,7 @@
+**Penn State QB Drew Allar leaves Wisconsin game with apparent injury**\
+`Backup QB Beau Pribula has stepped in for Penn State.`\
+https://nytimes.com/athletic/5875210/2024/10/26/drew-allar-injury-penn-state-wisconsin/
+
 **‘This Is Real’: Excerpts From Michelle Obama’s Speech on the Election**\
 `Michelle Obama made a striking speech about the consequences that the election will have for women’s bodies and reproductive health.`\
 https://nytimes.com/2024/10/26/us/politics/michelle-obama-speech-harris-michigan.html
