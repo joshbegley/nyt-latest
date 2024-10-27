@@ -1,3 +1,11 @@
+**Lloyd: Jameis Winston's performance, Browns' win a reminder of what could've been this year**\
+`Upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
+https://nytimes.com/athletic/5877620/2024/10/27/browns-ravens-jameis-winston-deshaun-watson-cleveland/
+
+**Kirk Cousins puts Falcons in NFC South driver's seat, but they have a lot of work to do**\
+`Cousins has thrown eight touchdown passes against the Bucs this season, but he helped the Falcons put the game away with a surprising run.`\
+https://nytimes.com/athletic/5877563/2024/10/27/falcons-kirk-cousins-buccaneers-nfc-south/
+
 **Jacoby Brissett gets his feel-good moment in Patriots' comeback win over Jets**\
 `The veteran quarterback came off the bench to replace Drake Maye and helped lead the Patriots to a surprise win over the Jets.`\
 https://nytimes.com/athletic/5877534/2024/10/27/jacoby-brissett-patriots-jets-week-8/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/27/us/politics/trump-hinchcliffe-msg.html
 **Heat unveil Dwyane Wade statue outside home arena**\
 `The 8-foot statue commemorates one of Wade's most iconic moments: His buzzer beater and "This is my house!" celebration from a 2009 game.`\
 https://nytimes.com/athletic/5873177/2024/10/27/miami-heat-dwyane-wade-statue/
-
-**Tim Walz and Alexandria Ocasio-Cortez Play Video Games and Talk Politics**\
-`Playing Madden football and Crazy Taxi, Mr. Walz discussed building coalitions and opposing the Senate’s filibuster with Ms. Ocasio-Cortez on Twitch.`\
-https://nytimes.com/2024/10/27/us/politics/walz-aoc-madden-crazy-taxi.html
-
-**Operatic Highlight**\
-`Michael Lieberman’s latest puzzle is a real trip.`\
-https://nytimes.com/2024/10/27/crosswords/daily-puzzle-2024-10-28.html
 

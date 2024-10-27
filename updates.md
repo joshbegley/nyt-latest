@@ -1,3 +1,11 @@
+**Lloyd: Jameis Winston's performance, Browns' win a reminder of what could've been this year**\
+`Upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
+https://nytimes.com/athletic/5877620/2024/10/27/browns-ravens-jameis-winston-deshaun-watson-cleveland/
+
+**Kirk Cousins puts Falcons in NFC South driver's seat, but they have a lot of work to do**\
+`Cousins has thrown eight touchdown passes against the Bucs this season, but he helped the Falcons put the game away with a surprising run.`\
+https://nytimes.com/athletic/5877563/2024/10/27/falcons-kirk-cousins-buccaneers-nfc-south/
+
 **Jacoby Brissett gets his feel-good moment in Patriots' comeback win over Jets**\
 `The veteran quarterback came off the bench to replace Drake Maye and helped lead the Patriots to a surprise win over the Jets.`\
 https://nytimes.com/athletic/5877534/2024/10/27/jacoby-brissett-patriots-jets-week-8/
