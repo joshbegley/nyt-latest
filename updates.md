@@ -1,3 +1,11 @@
+**J.T. Miller, Canucks blitz Penguins in 4th consecutive win: 3 takeaways**\
+`In a span of 65 seconds, Vancouver went from trailing Pittsburgh 2-0 to gaining a 3-2 advantage.`\
+https://nytimes.com/athletic/5875238/2024/10/27/jt-miller-canucks-blitz-penguins-takeaways/
+
+**How a simplified version of what the Canadiens hope to become defensively sent them forward**\
+`Canadiens coach Martin St. Louis did something Saturday he loathed at the beginning of the season: He simplified. `\
+https://nytimes.com/athletic/5875507/2024/10/27/canadiens-beat-blues-arber-xhekaj/
+
 **What Pep Guardiola really means when he is nice about a struggling manager**\
 `There are quite a few Pep Guardiola memes but one of the more prevalent is, well, him being nice about another manager...`\
 https://nytimes.com/athletic/5874660/2024/10/27/pep-guardiola-rusell-martin-manager/
