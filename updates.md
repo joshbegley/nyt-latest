@@ -1,3 +1,7 @@
+**Happy National Tight Ends Day: Travis Kelce, TEs account for NFL-record 15 TDs**\
+`The informal holiday began back in 2018 from a sideline joke with former San Francisco 49ers quarterback Jimmy Garoppolo and George Kittle.`\
+https://nytimes.com/athletic/5876647/2024/10/27/national-tight-ends-day-kyle-pitts/
+
 **NFL Week 8 takeaways: Are Eagles Super Bowl contenders again? Do Ravens have a big problem?**\
 `Plus, who is the NFL's most disappointing team?`\
 https://nytimes.com/athletic/5877171/2024/10/27/nfl-week-8-scores-takeaways-eagles-ravens/
