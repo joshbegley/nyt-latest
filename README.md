@@ -1,3 +1,7 @@
+**Chargers top Saints 26-8 for New Orleans' 6th-straight loss: Takeaways**\
+`After opening the season with back-to-back 40-point efforts, the Saints have ranked 28th in total offense and 25th in points per game.`\
+https://nytimes.com/athletic/5877475/2024/10/27/saints-chargers-score-takeaways-results/
+
 **DJ Clark Kent, Who Introduced Jay-Z to Notorious B.I.G., Dies at 58**\
 `He was a producer and club D.J. who helped rappers find their voices and fortunes, and who later became known as a raconteur of hip-hop history.`\
 https://nytimes.com/2024/10/27/obituaries/dj-clark-kent-dead.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5873571/2024/10/27/clifford-chance-saudi-report-fif
 `The rookie quarterback accounted for four touchdowns in Denver's victory against Carolina.`\
 https://nytimes.com/athletic/5877641/2024/10/27/panthers-broncos-score-takeaways-results/
 
-**Lando Norris says Max Verstappen 'got what he had coming to him' with Mexico GP penalties**\
+**Lando Norris says Mexico GP battle with Max Verstappen was 'not fair, clean racing'**\
 `Norris says his rival (and friend) will 'sacrifice himself’ to beat him in the F1 title race.`\
 https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-penalties-mexico-gp/
 
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-pena
 https://nytimes.com/2024/10/27/us/politics/kamala-harris-philadelphia-voters.html
 
 **Lloyd: Jameis Winston's performance, Browns' win a reminder of what could've been this year**\
-`Upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
+`An upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
 https://nytimes.com/athletic/5877620/2024/10/27/browns-ravens-jameis-winston-deshaun-watson-cleveland/
-
-**Kirk Cousins puts Falcons in NFC South driver's seat, but they have a lot of work to do**\
-`Cousins has thrown eight touchdown passes against the Bucs this season, but he helped the Falcons put the game away with a surprising run.`\
-https://nytimes.com/athletic/5877563/2024/10/27/falcons-kirk-cousins-buccaneers-nfc-south/
 
