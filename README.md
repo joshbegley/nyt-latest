@@ -1,3 +1,15 @@
+**After loss to Bruins, Craig Berube calls Leafs 'close' but not where he wants them to be**\
+`Even with a new coach in tow, so much of what plagued this core in the past has re-emerged through this mini-slump.`\
+https://nytimes.com/athletic/5875456/2024/10/27/leafs-close-craig-berube-bruins-overtime/
+
+**Arsenal vs Liverpool: Who is this game most important for? Form? Key player? Predictions?**\
+`Arsenal play Liverpool in the Premier League this afternoon - The Athletic writers who cover each club have their say`\
+https://nytimes.com/athletic/5872136/2024/10/27/arsenal-liverpool-preview-predictions/
+
+**The goalkeeper who hopes Ballon d'Or trip will open doors for African players**\
+`Ronwen Williams is South Africa's No 1 - and has been nominated for the Yashin Trophy, the goalkeeper of the year award. He wants to inspire`\
+https://nytimes.com/athletic/5863361/2024/10/27/ronwen-williams-yashin-trophy-ballon-dor/
+
 **Colts vs. Texans odds, expert picks, how to watch: Battle No. 2 for top of AFC South**\
 `The Texans and Colts meet for the second time this season with C.J. Stroud and Co. favored to win again. `\
 https://nytimes.com/athletic/5872649/2024/10/27/colts-texans-odds-picks-how-to-watch-betting/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5872463/2024/10/27/jose-mourinho-premier-league-ran
 **Cardinals vs. Dolphins odds, picks, how to watch: Tagovailoa's expected return**\
 `Tua Tagovailoa's expected return Week 8 gives Miami Dolphins slide odds edge over Arizona Cardinals. `\
 https://nytimes.com/athletic/5870246/2024/10/27/cardinals-dolphins-odds-picks-how-to-watch-betting/
-
-**Living on a Volcano’s Edge, Italians Practice for Disaster**\
-`The Italian authorities carried out a drill of their plan to save a half-million people from toxic fumes, deadly quakes or a full eruption. Vesuvius isn’t the volcano they’re worried about.`\
-https://nytimes.com/2024/10/27/world/europe/naples-volcano-campi-flegrei-disaster-plan.html
-
-**How Years of Government Failures Caused a Flood ‘Worse Than Boko Haram’**\
-`After a recent dam disaster, Nigerian officials blamed God, climate change and poor people. But experts had warned the dam was at risk well before it collapsed. The officials did nothing.`\
-https://nytimes.com/2024/10/27/world/africa/nigeria-dam-disaster-flood.html
-
-**Ukraine Invaded Russia. Here’s What It Was Like for Civilians.**\
-`Russians in the area of Ukraine’s invasion have described seeing signs of violent encounters, as well as respectful treatment from Ukrainian troops.`\
-https://nytimes.com/2024/10/27/world/europe/russia-kursk-ukraine-invasion-civilians.html
 
