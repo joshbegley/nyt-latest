@@ -1,3 +1,15 @@
+**An Israeli strike on the city of Sidon kills eight people, Lebanon’s health ministry says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/an-israeli-strike-on-the-city-of-sidon-kills-eight-people-lebanons-health-ministry-says
+
+**The Briefing: West Ham 2 Man Utd 1 - Dalot's miss, penalty drama and is Ten Hag's time up?**\
+`All the key talking points from Manchester United's damaging loss to West Ham analysed and evaluated by our correspondent`\
+https://nytimes.com/athletic/5872318/2024/10/27/west-ham-man-utd-ten-hag-briefing/
+
+**Blue Jackets Sunday Gathering: Embrace of coach Dean Evason's system pays dividends**\
+`Columbus players are reluctant to hesitate last year's coaching, but there's clearly a difference.`\
+https://nytimes.com/athletic/5875842/2024/10/27/blue-jackets-evason-system/
+
 **California Governor Proposes $750 Million in Annual Film Tax Credits**\
 `Gov. Gavin Newsom wants to more than double the amount the state offers in incentives, which would make its program one of the nation’s most generous.`\
 https://nytimes.com/2024/10/27/movies/california-governor-newsom-film-tax-credits.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/27/us/trump-water-tower-hanson-massachusetts.html
 **Indiana Fever fire coach Christie Sides after 2 seasons**\
 `Sides went 33-47 (.413) in the regular season over her two campaigns with Indiana.`\
 https://nytimes.com/athletic/5876178/2024/10/27/indiana-fever-coach-fired-christie-sides-wnba/
-
-**Officials travel to Qatar in hopes of reviving Gaza cease-fire talks.**\
-`After a year of fighting, Israelis ask when military gains might yield a diplomatic victory.`\
-https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/officials-travel-to-qatar-in-hopes-of-reviving-gaza-cease-fire-talks
-
-**Tom Jarriel, Globetrotting ABC News Reporter, Is Dead at 89**\
-`In his 37 years at the network, he was a White House correspondent, weekend anchor and correspondent for “20/20.” He won 19 Emmy Awards.`\
-https://nytimes.com/2024/10/27/business/media/tom-jarriel-dead.html
-
-**Review: ‘Il Trovatore’ at the Met Opera Doesn’t Catch Fire**\
-`The energy in Verdi’s classic must come from the singing, but the cast of this revival fails to convey the work’s passion.`\
-https://nytimes.com/2024/10/27/arts/music/review-met-trovatore-doesnt-catch-fire.html
 

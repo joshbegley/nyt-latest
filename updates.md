@@ -1,3 +1,15 @@
+**An Israeli strike on the city of Sidon kills eight people, Lebanon’s health ministry says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/an-israeli-strike-on-the-city-of-sidon-kills-eight-people-lebanons-health-ministry-says
+
+**The Briefing: West Ham 2 Man Utd 1 - Dalot's miss, penalty drama and is Ten Hag's time up?**\
+`All the key talking points from Manchester United's damaging loss to West Ham analysed and evaluated by our correspondent`\
+https://nytimes.com/athletic/5872318/2024/10/27/west-ham-man-utd-ten-hag-briefing/
+
+**Blue Jackets Sunday Gathering: Embrace of coach Dean Evason's system pays dividends**\
+`Columbus players are reluctant to hesitate last year's coaching, but there's clearly a difference.`\
+https://nytimes.com/athletic/5875842/2024/10/27/blue-jackets-evason-system/
+
 **California Governor Proposes $750 Million in Annual Film Tax Credits**\
 `Gov. Gavin Newsom wants to more than double the amount the state offers in incentives, which would make its program one of the nation’s most generous.`\
 https://nytimes.com/2024/10/27/movies/california-governor-newsom-film-tax-credits.html
