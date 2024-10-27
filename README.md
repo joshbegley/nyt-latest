@@ -1,3 +1,7 @@
+**David Harris, Actor in the Cult Classic ‘The Warriors,’ Dies at 75**\
+`He played Cochise, a member of the Warriors gang who navigated a panoply of costumed aggressors in New York City.`\
+https://nytimes.com/2024/10/27/movies/david-harris-dead-warriors.html
+
 **Sampson: What did Notre Dame learn from early NIU upset? How not to let it happen again**\
 `Notre Dame dominating Navy was another step toward making the NIU loss a mere setback on the CFP path rather than a defining moment.`\
 https://nytimes.com/athletic/5875894/2024/10/27/notre-dame-navy-marcus-freeman-niu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875837/2024/10/27/wisconsin-penn-state-loss-luke-f
 **The six Barca youngsters who rattled Madrid - from history-making Yamal to nerveless Cubarsi**\
 `Barca started with six players aged 22 or younger against Madrid. Here's how they contributed to a crushing win against their arch-rivals`\
 https://nytimes.com/athletic/5875691/2024/10/27/barcelona-real-madrid-yamal-cubarsi/
-
-**Adam Johnson manslaughter case: Explaining the legal delays**\
-`It is almost a year since ice hockey player's death, so why has so little apparent progress been made in his case?`\
-https://nytimes.com/athletic/5859784/2024/10/27/adam-johnson-death-manslaughter-delays/
 
