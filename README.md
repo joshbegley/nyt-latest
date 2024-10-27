@@ -1,3 +1,11 @@
+**Packers' Willis, Jacobs power 30-27 win over Jaguars: Takeaways**\
+`A clutch 51-yard play from Malik Willis set up a game-winning field goal despite the Packers' two-minute defensive struggles.`\
+https://nytimes.com/athletic/5875869/2024/10/27/packers-jaguars-score-takeaways-results/
+
+**Texans hang on to knock off AFC South rival Colts 23-20: Takeaways**\
+`Joe Mixon tallied 102 rushing yards on 25 carries and a touchdown, while C.J. Stroud threw for 285 yards with one TD in the win.`\
+https://nytimes.com/athletic/5875866/2024/10/27/colts-texans-takeaways-result/
+
 **Cardinals spoil Tua Tagovailoa's return with last-second FG to win 28-27: Takeaways**\
 `The Dolphins were in control through most of the contest, as Tagovailoa saw his first game action since suffering a concussion in Week 2.`\
 https://nytimes.com/athletic/5875873/2024/10/27/dolphins-cardinals-score-takeaways-result/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/27/us/politics/flynn-raiklin-election-trump.html
 **Slot says he was unfairly booked against Arsenal**\
 `Arne Slot says he was unfairly shown a yellow card by referee Anthony Taylor during Liverpool&#8217;s 2-2 draw with Arsenal at the Emirates Stadium.`\
 https://nytimes.com/athletic/5877075/2024/10/27/arne-slot-yellow-card-liverpool-arsenal/
-
-**Claire Daly, Master of the Baritone Saxophone, Dies at 66**\
-`She was celebrated for both her playing and her love of the jazz community. “My life in music,” she said recently, “is the smartest thing I’ve done.”`\
-https://nytimes.com/2024/10/27/arts/music/claire-daly-dead.html
-
-**Kylian Mbappe’s curious Clasico debut: Offside frustration and clipped confidence**\
-`The France international set an unwanted record after being flagged offside eight times as Barcelona ran out comfortable winners in Madrid`\
-https://nytimes.com/athletic/5875841/2024/10/27/kylian-mbappe-real-madrid-barcelona-clasico-offside/
 
