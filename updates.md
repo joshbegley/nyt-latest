@@ -1,3 +1,11 @@
+**LeBron James posts 'surreal' triple-double in Lakers' win over Kings**\
+`James finished with 32 points, 14 rebounds and 10 assists. All three marks were season-highs for the 39-year-old in his 22nd season.`\
+https://nytimes.com/athletic/5875526/2024/10/27/lebron-james-lakers-kings-triple-double/
+
+**Travis Hunter tracker: Colorado star re-energizes Heisman campaign with electrifying night**\
+`After missing time during each of Colorado's past two games, Hunter quickly reminded everyone why he's such a special player.`\
+https://nytimes.com/athletic/5875448/2024/10/27/travis-hunter-nfl-draft-2025-cincinnati/
+
 **Yoshinobu Yamamoto shines in World Series as Dodgers' 2-0 edge takes on extra importance**\
 `Yamamoto's gem gives provides a cushion if the Dodgers lose Shohei Ohtani to injury.`\
 https://nytimes.com/athletic/5875523/2024/10/27/yankees-dodgers-world-series-yoshinobu-yamamoto/
