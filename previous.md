@@ -1,5 +1,13 @@
 **Real Madrid's Clasico humiliation points to problems on and off the pitch**\
 `Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
+https://nytimes.com/athletic/5875821/2024/10/27/real-madrid-clasico-humilliation-problems/
+
+**Down goes the MVP: Ohtani wouldn't be first to suffer October injury; Judge has unreal O-fer**\
+`One (likely) MVP is injured, which brings to mind some memorable Octobers of yesteryear. Another is in the midst of a brutal streak. `\
+https://nytimes.com/athletic/5875681/2024/10/27/dodgers-ohtani-injury-world-series-history-mvp/
+
+**Real Madrid's Clasico humiliation points to problems on and off the pitch**\
+`Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
 https://nytimes.com/athletic/5875784/2024/10/27/real-madrid-clasico-defeat-problems/
 
 **A Classical Music Discovery**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5875734/2024/10/27/dodgers-yankees-world-series-sho
 **Mandel's Final Thoughts: QB decisions loom for top-10 teams in Week 10**\
 `Week 9 was light on suspense but full of storylines — most involving backup QBs.`\
 https://nytimes.com/athletic/5875653/2024/10/27/college-football-highlights-penn-state-texas-am-mandel/
-
-**Two Billionaires, Two Newspapers, Two Acts of Self-Sabotage**\
-`The Washington Post and The Los Angeles Times have made a terrible decision on presidential endorsements.`\
-https://nytimes.com/2024/10/27/opinion/washington-post-la-times-endorsements.html
-
-**The Sunday Read: ‘How Everyone Got Lost in Netflix’s Endless Library’**\
-`Ten years after Silicon Valley remade TV, it’s clear how the streaming revolution distorted our collective viewing habits — and sense of the culture.`\
-https://nytimes.com/2024/10/27/podcasts/the-daily/netflix-library.html
 

@@ -1,5 +1,13 @@
 **Real Madrid's Clasico humiliation points to problems on and off the pitch**\
 `Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
+https://nytimes.com/athletic/5875821/2024/10/27/real-madrid-clasico-humilliation-problems/
+
+**Down goes the MVP: Ohtani wouldn't be first to suffer October injury; Judge has unreal O-fer**\
+`One (likely) MVP is injured, which brings to mind some memorable Octobers of yesteryear. Another is in the midst of a brutal streak. `\
+https://nytimes.com/athletic/5875681/2024/10/27/dodgers-ohtani-injury-world-series-history-mvp/
+
+**Real Madrid's Clasico humiliation points to problems on and off the pitch**\
+`Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
 https://nytimes.com/athletic/5875784/2024/10/27/real-madrid-clasico-defeat-problems/
 
 **A Classical Music Discovery**\
