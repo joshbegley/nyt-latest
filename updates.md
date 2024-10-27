@@ -1,3 +1,7 @@
+**Four Lessons From Nine Years of Being ‘Never Trump’**\
+`What do I wish my 2024 self could travel back and say to 2015 me?`\
+https://nytimes.com/2024/10/27/opinion/never-trump-maga-evangelicals.html
+
 **A Classical Music Discovery**\
 `An unknown waltz by Chopin has been found.`\
 https://nytimes.com/2024/10/27/briefing/chopin-lang-lang-classical-music.html
