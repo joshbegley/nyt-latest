@@ -1,3 +1,7 @@
+**Trump Rally Opens With Vulgar Insults Aimed at Minority Groups**\
+`Donald J. Trump’s rally at Madison Square Garden began with warm-up speakers who made a litany of racist remarks, vulgar insults and profanity-laden comments.`\
+https://nytimes.com/2024/10/27/us/politics/trump-hinchcliffe-msg.html
+
 **Heat unveil Dwyane Wade statue outside home arena**\
 `The 8-foot statue commemorates one of Wade's most iconic moments: His buzzer beater and "This is my house!" celebration from a 2009 game.`\
 https://nytimes.com/athletic/5873177/2024/10/27/miami-heat-dwyane-wade-statue/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/world/middleeast/israel-iran.html
 **Happy National Tight Ends Day: Travis Kelce, TEs account for NFL-record 15 TDs**\
 `The informal holiday began back in 2018 from a sideline joke with former San Francisco 49ers quarterback Jimmy Garoppolo and George Kittle.`\
 https://nytimes.com/athletic/5876647/2024/10/27/national-tight-ends-day-kyle-pitts/
-
-**Woman Who Left Boyfriend Zipped in a Suitcase Is Convicted of Murder**\
-`The woman, Sarah Boone, said the two were drinking and playing hide-and-seek when she zipped him inside the suitcase and then left him overnight.`\
-https://nytimes.com/2024/10/27/us/boyfriend-suitcase-murder-guilty.html
 
