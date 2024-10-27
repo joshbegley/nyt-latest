@@ -1,3 +1,7 @@
+**Jacoby Brissett gets his feel-good moment in Patriots' comeback win over Jets**\
+`The veteran quarterback came off the bench to replace Drake Maye and helped lead the Patriots to a surprise win over the Jets.`\
+https://nytimes.com/athletic/5877534/2024/10/27/jacoby-brissett-patriots-jets-week-8/
+
 **Bengals tell truth of their season with words and actions: 'We're not good enough'**\
 `The offense, defense, coaching, special teams and every corner of the organization got demoralized en route to an 0-4 start at home.`\
 https://nytimes.com/athletic/5877541/2024/10/27/bengals-loss-eagles-joe-burrow-not-good-enough/
