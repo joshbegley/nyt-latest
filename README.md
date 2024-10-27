@@ -1,3 +1,19 @@
+**Pro-Harris Super PAC Raises Concerns About Focusing on Trump and Fascism**\
+`The group, Future Forward, warned that attacking Donald J. Trump as a fascist or questioning his character or stamina are less effective than highlighting Kamala Harris’s proposals.`\
+https://nytimes.com/2024/10/27/us/politics/harris-trump-campaign-message.html
+
+**Trump Supporters Line Up Early at Madison Square Garden**\
+`Many of the sights of a Trump rally were familiar, if the setting was not: the heart of Manhattan, where registered Democrats outnumber Republicans by about 10 to 1.`\
+https://nytimes.com/2024/10/27/us/politics/trump-msg-rally-line.html
+
+**Arsenal waiting to learn extent of Gabriel, Timber injuries - Arteta**\
+`Arsenal are waiting to discover the extent of the apparent injuries sustained by Gabriel and Jurrien Timber during Sunday’s 2-2 home draw with Liverpool.`\
+https://nytimes.com/athletic/5876942/2024/10/27/gabriel-timber-injury-arsenal/
+
+**NFL Week 8 fantasy football, betting cheat sheet: Jayden Daniels will start against Chicago**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5866715/2024/10/27/nfl-week-8-fantasy-football-injuries-rankings-betting/
+
 **Shohei Ohtani to play in Game 3 of World Series after shoulder injury**\
 `The World Series resumes Monday with the Yankees needing a victory at home to avoid falling behind 3-0 in the best-of-seven series.`\
 https://nytimes.com/athletic/5876710/2024/10/27/shohei-ohtani-injury-dodgers-world-series/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5876711/2024/10/27/college-football-playoff-bracket
 **AP Top 25: Penn State, OSU set for top-5 game; Colorado moves in**\
 `Oregon is still No. 1 in the AP Top 25 college football poll, while Colorado is now ranked and a massive Penn State-Ohio State game is next.`\
 https://nytimes.com/athletic/5876435/2024/10/27/ap-top-25-penn-state-osu-colorado/
-
-**Supporting Trump, JD Vance Calls Some Democrats More Dangerous Than Foreign Adversaries**\
-`Mr. Vance made the remark as he sought to defend Donald J. Trump from former members of his administration who said he posed a threat to democracy.`\
-https://nytimes.com/2024/10/27/us/politics/jd-vance-jake-tapper-cnn.html
-
-**The Briefing: Arsenal 2 Liverpool 2 - Nunez keeps his cool. Was this a missed opportunity for Arteta?**\
-`Salah's late equaliser earns a point for Liverpool after both captains scored in the first half. Our writers analyse the key talking points`\
-https://nytimes.com/athletic/5872349/2024/10/27/arsenal-liverpool-salah-saka-nunez-analysis/
-
-**Advisers Propose That Trump Give Security Clearances Without F.B.I. Vetting**\
-`A memo circulating in Donald Trump’s orbit says that if elected he should use private firms to check appointees’ backgrounds and give them immediate access to classified secrets after taking office.`\
-https://nytimes.com/2024/10/27/us/politics/trump-security-clearances-fbi.html
-
-**Patriots' Drake Maye exits vs. Jets with head injury**\
-`Upon exiting against the Jets, Maye led the team in rushing with 46 yards and a rushing touchdown and finished 3-for-6 for 23 yards passing.`\
-https://nytimes.com/athletic/5876680/2024/10/27/drake-maye-injury-patriots-jets/
 
