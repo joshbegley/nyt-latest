@@ -1,5 +1,9 @@
 **Yoshinobu Yamamoto shines in World Series as Dodgers' 2-0 edge takes on extra importance**\
 `Yamamoto's gem gives provides a cushion if the Dodgers lose Shohei Ohtani to injury.`\
+https://nytimes.com/athletic/5875523/2024/10/27/yankees-dodgers-world-series-yoshinobu-yamamoto/
+
+**Yoshinobu Yamamoto shines in World Series as Dodgers' 2-0 edge takes on extra importance**\
+`Yamamoto's gem gives provides a cushion if the Dodgers lose Shohei Ohtani to injury.`\
 https://nytimes.com/athletic/5875523/2024/10/27/yoshinobu-yamamoto-shines-in-world-series-as-dodgers-2-0-edge-takes-on-extra-importance/
 
 **J.T. Miller, Canucks blitz Penguins in 4th consecutive win: 3 takeaways**\
