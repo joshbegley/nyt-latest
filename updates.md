@@ -28,6 +28,11 @@ https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analys
 `\
 https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
 
+**Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
+`The Leafs needed a response game to point themselves back in the right direction but didn't get one with a 4-3 loss to the Bruins.
+`\
+https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
+
 **Why Justin Brazeau is the top fix for the Bruins' problem at No. 2 right wing — for now**\
 `In Boston's 4-3 win over Toronto, Brazeau proved he has the size and net-front touch to earn more time with Marchand and Charlie Coyle.`\
 https://nytimes.com/athletic/5875275/2024/10/26/bruins-brad-marchand-justin-brazeau/
