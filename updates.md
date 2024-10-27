@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
 
+**Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
+`The Leafs needed a response game to point themselves back in the right direction but didn’t get one with a 4-3 loss to the Bruins.
+`\
+https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
+
 **Dodgers seize 2-0 lead over Yankees in World Series; Shohei Ohtani leaves with injury**\
 `Dodgers slam three homers, take 2-0 series lead, but Ohtani leaves with apparent shoulder injury.`\
 https://nytimes.com/athletic/5875245/2024/10/26/world-series-game-2-yankees-dodgers/
