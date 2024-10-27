@@ -1,3 +1,15 @@
+**Review: ‘Il Trovatore’ at the Met Opera Doesn’t Catch Fire**\
+`The energy in Verdi’s classic must come from the singing, but the cast of this revival fails to convey the work’s passion.`\
+https://nytimes.com/2024/10/27/arts/music/review-met-trovatore-doesnt-catch-fire.html
+
+**Jill Stein’s Third-Party Candidacy**\
+`Readers discuss Democrats’ concerns that her bid will throw the election to Donald Trump. Also: Harris ads; drug-free treatments; regretting email.`\
+https://nytimes.com/2024/10/27/opinion/jill-stein-third-party.html
+
+**This 41-Year-Old Chicken Is Still Going Strong**\
+`Craig Claiborne’s smothered chicken is a New York Times Cooking classic, simple to make and ready for improvisations.`\
+https://nytimes.com/2024/10/27/dining/smothered-chicken-recipe.html
+
 **Until Saturday: Who's trending after Week 9? Plus, rivalry game fun**\
 `Welcome to Until Saturday, the five-star college football newsletter: Who's looking up and who's not after Week 9? `\
 https://nytimes.com/athletic/5875767/2024/10/27/college-football-week-9-rivalry-games-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/27/us/politics/iran-israel-strikes-tehran.html
 **Political Crisis Looms for Republic of Georgia After Disputed Election**\
 `The ruling Georgia Dream party won a majority in the vote. The opposition, which fears the country is moving away from the West, says the voting was not fair and that it will not appear in Parliament.`\
 https://nytimes.com/2024/10/27/world/europe/political-crisis-looms-for-republic-of-georgia-after-disputed-election.html
-
-**Yamal calls Barcelona the 'best team in the world' after Real Madrid victory**\
-`Lamine Yamal believes that Barcelona are the “best team in the world” after their 4-0 El Clasico victory over rivals Real Madrid.`\
-https://nytimes.com/athletic/5875864/2024/10/27/yamal-barcelona-real-madrid-clasico/
-
-**Tottenham's Moore to make first Premier League start against Crystal Palace**\
-`Mikey Moore will make his first start for Tottenham Hotspur in the Premier League against Crystal Palace on Sunday afternoon.`\
-https://nytimes.com/athletic/5875884/2024/10/27/spurs-mikey-moore-crystal-palace/
-
-**No One Told Me This Would Happen to My Body in My 40s**\
-`The decline in strength and increase in injuries is little recognized and far too infrequently discussed.`\
-https://nytimes.com/2024/10/27/opinion/body-muscles-40s-aging.html
 
