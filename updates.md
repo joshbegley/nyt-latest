@@ -1,3 +1,7 @@
+**The Pulse: A win, with a side of pain**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5876035/2024/10/27/ohtani-injury-world-series-nfl-the-pulse/
+
 **Iranian officials stress Tehran’s right to respond to Israel’s attack.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/iran-ayatollah-israel
