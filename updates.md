@@ -1,3 +1,7 @@
+**Saints vs. Chargers odds, picks, how to watch: Chargers big favorites over hobbled Saints**\
+`The Saints head to LA on a five-game losing streak, while the Chargers look to bounce back from a Week 7 loss.`\
+https://nytimes.com/athletic/5872676/2024/10/27/saints-chargers-odds-picks-how-to-watch-betting/
+
 **Suns want to build on Booker and Durant's Olympic experience — it showed in win over Mavs**\
 `On a night when Durant scored his 29,000th career point, a hustle play from a role player provided the night's biggest reaction.`\
 https://nytimes.com/athletic/5875602/2024/10/27/suns-defeat-mavs-durant-29000-points/
