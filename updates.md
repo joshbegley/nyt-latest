@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`Fo`\
+https://nytimes.com/live/2024/10/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Aims for Show of Strength at Madison Square Garden Rally**\
+`With Election Day just over a week away, Donald J. Trump will rally in the heart of a solidly blue state. Vice President Kamala Harris is scheduled to campaign in Philadelphia.`\
+https://nytimes.com/live/2024/10/27/us/harris-trump-election
+
 **Real Madrid's Clasico humiliation points to problems on and off the pitch**\
 `Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
 https://nytimes.com/athletic/5875821/2024/10/27/real-madrid-clasico-humilliation-problems/

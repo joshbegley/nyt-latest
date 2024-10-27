@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`Fo`\
+https://nytimes.com/live/2024/10/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Aims for Show of Strength at Madison Square Garden Rally**\
+`With Election Day just over a week away, Donald J. Trump will rally in the heart of a solidly blue state. Vice President Kamala Harris is scheduled to campaign in Philadelphia.`\
+https://nytimes.com/live/2024/10/27/us/harris-trump-election
+
 **Real Madrid's Clasico humiliation points to problems on and off the pitch**\
 `Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
 https://nytimes.com/athletic/5875821/2024/10/27/real-madrid-clasico-humilliation-problems/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5875614/2024/10/27/college-football-playoff-week-9-
 **Khan: Mike Elko's structured, detailed approach is just what Texas A&M needed**\
 `The Aggies are working and letting their play do the talking. By now, everyone should be listening.`\
 https://nytimes.com/athletic/5875706/2024/10/27/texas-am-lsu-mike-elko/
-
-**Rosenthal: In a World Series built on stars, Shohei Ohtani's absence would be diminishing**\
-`The Dodgers superstar suffered a left shoulder subluxation on Saturday, leaving his availability for Game 3 and beyond in question.`\
-https://nytimes.com/athletic/5875734/2024/10/27/dodgers-yankees-world-series-shohei-ohtani-injury/
-
-**Mandel's Final Thoughts: QB decisions loom for top-10 teams in Week 10**\
-`Week 9 was light on suspense but full of storylines — most involving backup QBs.`\
-https://nytimes.com/athletic/5875653/2024/10/27/college-football-highlights-penn-state-texas-am-mandel/
 
