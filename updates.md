@@ -1,3 +1,7 @@
+**Iranian officials stress Tehran’s right to respond to Israel’s attack.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/iran-ayatollah-israel
+
 **David Harris, Actor in the Cult Classic ‘The Warriors,’ Dies at 75**\
 `He played Cochise, a member of the Warriors gang who navigated a panoply of costumed aggressors in New York City.`\
 https://nytimes.com/2024/10/27/movies/david-harris-dead-warriors.html
