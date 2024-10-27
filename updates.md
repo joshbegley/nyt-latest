@@ -1,3 +1,11 @@
+**Lando Norris says Mexico GP battle with Max Verstappen was 'not fair, clean racing'**\
+`Norris says his rival (and friend) will 'sacrifice himself’ to beat him in the F1 title race.`\
+https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-penalties-mexico-gp/
+
+**Lloyd: Jameis Winston's performance, Browns' win a reminder of what could've been this year**\
+`An upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
+https://nytimes.com/athletic/5877620/2024/10/27/browns-ravens-jameis-winston-deshaun-watson-cleveland/
+
 **DJ Clark Kent, Who Introduced Jay-Z to Notorious B.I.G., Dies at 58**\
 `He was a producer and club D.J. who helped rappers find their voices and fortunes, and who later became known as a raconteur of hip-hop history.`\
 https://nytimes.com/2024/10/27/obituaries/dj-clark-kent-dead.html

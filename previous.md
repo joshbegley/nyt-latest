@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5873571/2024/10/27/clifford-chance-saudi-report-fif
 `The rookie quarterback accounted for four touchdowns in Denver's victory against Carolina.`\
 https://nytimes.com/athletic/5877641/2024/10/27/panthers-broncos-score-takeaways-results/
 
-**Lando Norris says Max Verstappen 'got what he had coming to him' with Mexico GP penalties**\
+**Lando Norris says Mexico GP battle with Max Verstappen was 'not fair, clean racing'**\
 `Norris says his rival (and friend) will 'sacrifice himself’ to beat him in the F1 title race.`\
 https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-penalties-mexico-gp/
 
@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-pena
 https://nytimes.com/2024/10/27/us/politics/kamala-harris-philadelphia-voters.html
 
 **Lloyd: Jameis Winston's performance, Browns' win a reminder of what could've been this year**\
-`Upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
+`An upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
 https://nytimes.com/athletic/5877620/2024/10/27/browns-ravens-jameis-winston-deshaun-watson-cleveland/
 
 **Kirk Cousins puts Falcons in NFC South driver's seat, but they have a lot of work to do**\
