@@ -1,3 +1,7 @@
+**The Pulse: A win, with a side of pain**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5876035/2024/10/27/ohtani-injury-world-series-nfl-the-pulse/
+
 **Iranian officials stress Tehran’s right to respond to Israel’s attack.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/iran-ayatollah-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/opinion/body-muscles-40s-aging.html
 **Joseph J. Ellis: The Ideals of the Founders Are on the Ballot**\
 `If Trump is president on July 4, 2026, the celebration will become a eulogy, for we will be honoring the corpse of the American republic.`\
 https://nytimes.com/2024/10/27/opinion/trump-harris-history.html
-
-**Penn State loss proves Wisconsin's not ready for prime time … yet again**\
-`Luke Fickell is in Year 2 of a rebuild that not only has yet to yield a true signature victory but continues to lack marked progress.`\
-https://nytimes.com/athletic/5875837/2024/10/27/wisconsin-penn-state-loss-luke-fickell/
 
