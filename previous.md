@@ -1,3 +1,7 @@
+**Bengals tell truth of their season with words and actions: 'We're not good enough'**\
+`The offense, defense, coaching, special teams and every corner of the organization got demoralized en route to an 0-4 start at home.`\
+https://nytimes.com/athletic/5877541/2024/10/27/bengals-loss-eagles-joe-burrow-not-good-enough/
+
 **Review: ‘We Live in Cairo’ Falls Short of Being Revolutionary**\
 `Egyptians stand up to their government in a play that excels in its design but rings hollow when its subtext and character development are scrutinized.`\
 https://nytimes.com/2024/10/27/theater/we-live-in-cairo-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/crosswords/daily-puzzle-2024-10-28.html
 **Mexico GP: Submit your questions for our F1 mailbag**\
 `What's on your mind as F1 approaches the season's end? Ask our F1 reporters for their latest mailbag. `\
 https://nytimes.com/athletic/5876824/2024/10/27/mexico-grand-prix-f1-mailbag/
-
-**Carlos Sainz wins Mexico City GP, Verstappen penalized for Norris scrap**\
-`Carlos Sainz won his second race of the season, Verstappen caused drama on track and Ferrari became championship contenders.`\
-https://nytimes.com/athletic/5876832/2024/10/27/carlos-sainz-f1-mexico-grand-prix-max-verstappen-lando-norris/
 

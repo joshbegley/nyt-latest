@@ -1,3 +1,7 @@
+**Bengals tell truth of their season with words and actions: 'We're not good enough'**\
+`The offense, defense, coaching, special teams and every corner of the organization got demoralized en route to an 0-4 start at home.`\
+https://nytimes.com/athletic/5877541/2024/10/27/bengals-loss-eagles-joe-burrow-not-good-enough/
+
 **Pushing employers to ‘more aggressive programs’**\
 `In a 2020 presentation, UMR outlined plans to push employers to potentially more lucrative cost-savings offerings.`\
 https://nytimes.com/interactive/2024/10/27/us/unitedhealthcare-force-aggressive-program.html
