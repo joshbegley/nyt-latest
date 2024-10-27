@@ -1,3 +1,7 @@
+**Aaron Judge's October failures on full display in World Series**\
+`After Game 2, Judge is 6-for-40 with 19 strikeouts this October, and is 0-for-5 with runners on base in the World Series. `\
+https://nytimes.com/athletic/5874065/2024/10/27/dodgers-yankees-world-series-aaron-judge-struggles/
+
 **Erik Karlsson, Penguins endure brutal second period in 4-3 loss: Yohe's 10 observations**\
 `Erik Karlsson and the Penguins finished a nightmarish road trip in ugly fashion, falling in Vancouver 4-3 on Saturday. `\
 https://nytimes.com/athletic/5875330/2024/10/27/penguins-lose-to-canucks-yohe-10-observations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874660/2024/10/27/pep-guardiola-rusell-martin-mana
 **Harry Clarke's nightmare full Premier League debut - own goal, gave away a penalty and sent off**\
 `Clarke became the first player in Premier League history to endure all three on his full debut as Ipswich lost 4-3 at Brentford`\
 https://nytimes.com/athletic/5874447/2024/10/27/harry-clarke-premier-league-debut-own-goal-red-card/
-
-**After loss to Bruins, Craig Berube calls Leafs 'close' but not where he wants them to be**\
-`Even with a new coach in tow, so much of what plagued this core in the past has re-emerged through this mini-slump.`\
-https://nytimes.com/athletic/5875456/2024/10/27/leafs-close-craig-berube-bruins-overtime/
 
