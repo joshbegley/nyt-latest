@@ -1,3 +1,7 @@
+**Tropical Storm Trami Hits Vietnam After Killing Dozens in the Philippines**\
+`The storm made landfall near Danang on Sunday after leaving at least 80 people dead last week.`\
+https://nytimes.com/2024/10/27/world/asia/tropical-storm-trami-vietnam-phillipines.html
+
 **Inside The Washington Post’s Decision to Stop Presidential Endorsements**\
 `Post owner Jeff Bezos ended the decades-long practice, weeks after a discussion at a meeting in Miami. The move has drawn criticism in and outside the newsroom.`\
 https://nytimes.com/2024/10/27/business/media/washington-post-president-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/us/politics/trump-and-harris-scrap-for-georgia-as
 **New-York Historical Society Gets a New Name and a New Wing**\
 `The museum will now be called the New York Historical and will name a new Wing for American Democracy after two major benefactors, H.M. Agnes Hsu-Tang and Oscar L. Tang.`\
 https://nytimes.com/2024/10/27/arts/design/new-york-historical-society-new-name.html
-
-**Watches That Look Similar in Everything but the Price Tag**\
-`Patek Philippe’s first new collection in 25 years came as a particular shock to a British watchmaker who already had a (far less expensive) doppelgänger on the market.`\
-https://nytimes.com/2024/10/27/style/patek-philippe-cubitus.html
 
