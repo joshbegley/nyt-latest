@@ -1,3 +1,7 @@
+**How Jonathan Quick, Artemi Panarin's defensive play led Rangers to win: 4 takeaways**\
+`Quick's acrobatics in net and a key defensive play from Panarin helped New York top Anaheim 2-1.`\
+https://nytimes.com/athletic/5875214/2024/10/26/rangers-ducks-takeaways-analysis/
+
 **Penn State QB Drew Allar leaves Wisconsin game with apparent injury**\
 `Backup QB Beau Pribula has stepped in for Penn State.`\
 https://nytimes.com/athletic/5875210/2024/10/26/drew-allar-injury-penn-state-wisconsin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5864780/2024/10/26/fantasy-football-rankings-week-8
 **Takeaways from Alabama's shutout of Missouri after slow start**\
 `Jalen Milroe and the Alabama offense stepped up after a spark from the defense in the Tide's most complete game of the season.`\
 https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-kalen-deboer/
-
-**So... Barcelona are good again?**\
-`Barcelona thrashed Real Madrid in the first Clasico of the season and they play with confidence and joy under Flick. That had been missing`\
-https://nytimes.com/athletic/5872054/2024/10/26/barcelona-clasico-real-madrid-victory/
 
