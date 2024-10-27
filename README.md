@@ -1,3 +1,11 @@
+**Indiana Fever fire coach Christie Sides after 2 seasons**\
+`Sides went 33-47 (.413) in the regular season over her two campaigns with Indiana.`\
+https://nytimes.com/athletic/5876178/2024/10/27/indiana-fever-coach-fired-christie-sides-wnba/
+
+**Officials travel to Qatar in hopes of reviving Gaza cease-fire talks.**\
+`After a year of fighting, Israelis ask when military gains might yield a diplomatic victory.`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/officials-travel-to-qatar-in-hopes-of-reviving-gaza-cease-fire-talks
+
 **Tom Jarriel, Globetrotting ABC News Reporter, Is Dead at 89**\
 `In his 37 years at the network, he was a White House correspondent, weekend anchor and correspondent for “20/20.” He won 19 Emmy Awards.`\
 https://nytimes.com/2024/10/27/business/media/tom-jarriel-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/iran-ayatolla
 **David Harris, Actor in the Cult Classic ‘The Warriors,’ Dies at 75**\
 `He played Cochise, a member of the Warriors gang who navigated a panoply of costumed aggressors in New York City.`\
 https://nytimes.com/2024/10/27/movies/david-harris-dead-warriors.html
-
-**Sampson: What did Notre Dame learn from early NIU upset? How not to let it happen again**\
-`Notre Dame dominating Navy was another step toward making the NIU loss a mere setback on the CFP path rather than a defining moment.`\
-https://nytimes.com/athletic/5875894/2024/10/27/notre-dame-navy-marcus-freeman-niu/
-
-**Behind the Tactical Gains Against Iran, a Longer-Term Worry**\
-`Experts inside and outside the Biden administration fear that Iran may conclude it has only one defense left: racing for an atomic weapon.`\
-https://nytimes.com/2024/10/27/us/politics/iran-israel-strikes-tehran.html
 
