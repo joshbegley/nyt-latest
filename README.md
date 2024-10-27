@@ -1,3 +1,7 @@
+**Caitlin Clark, Indiana Fever championship timeline accelerated by sudden coaching change**\
+`The Fever reportedly have been talking to Connecticut coach Stephanie White. Will she return to Indianapolis?`\
+https://nytimes.com/athletic/5876979/2024/10/27/indiana-fever-coach-fired-caitlin-clark-wnba/
+
 **Rice fires Mike Bloomgren after 2-6 start in 7th season**\
 `Bloomgren went 24-52 in six-plus seasons and guided the Owls to two bowl appearances. `\
 https://nytimes.com/athletic/5876974/2024/10/27/rice-mike-bloomgren-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5876207/2024/10/27/bears-commanders-score-jayden-da
 **U.S. Navy Apologizes for the 1882 Bombardment of an Alaska Village**\
 `The bombardment and burning of Angoon, in southwestern Alaska, led to widespread suffering and “inflicted intergenerational trauma,” an official said.`\
 https://nytimes.com/2024/10/27/us/navy-tinglit-alaska-apology.html
-
-**Nobody Walks in L.A.? Don’t Tell These Baseball Fans.**\
-`Anticipating the mess of traffic and parking at Dodger Stadium, many of the people who attended the first two games of the World Series found creative ways to get there.`\
-https://nytimes.com/2024/10/27/style/dodger-stadium-world-series-fans.html
 
