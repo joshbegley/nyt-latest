@@ -1,3 +1,7 @@
+**The Briefing: West Ham 2 Man United 1 - Dalot's miss, penalty drama and is Ten Hag's time up?**\
+`All the key talking points from Manchester United's damaging loss to West Ham analysed and evaluated by our correspondent`\
+https://nytimes.com/athletic/5872318/2024/10/27/west-ham-man-utd-ten-hag-briefing/
+
 **Can Wrexham really win another promotion with so little possession?**\
 `A trait of the Welsh club's return to League One is how they are prospering despite the opposition seeing much more of the ball`\
 https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-league-one/
