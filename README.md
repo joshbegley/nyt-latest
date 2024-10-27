@@ -1,3 +1,7 @@
+**Anthony Richardson says he called to be subbed out because he was 'tired'**\
+`The Colts went on to lose 23-20, their fourth defeat of the season. Richardson started the game by missing on 13 of his first 15 attempts.`\
+https://nytimes.com/athletic/5877467/2024/10/27/anthony-richardson-colts-tired-comments/
+
 **Trump Rally Opens With Vulgar Insults Aimed at Minority Groups**\
 `Donald J. Trump’s rally at Madison Square Garden began with warm-up speakers who made a litany of racist remarks, vulgar insults and profanity-laden comments.`\
 https://nytimes.com/2024/10/27/us/politics/trump-hinchcliffe-msg.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875854/2024/10/27/ravens-browns-score-takeaways-re
 **Measured Comments From Israel and Iran on New Round of Strikes**\
 `Israel’s prime minister said Israeli airstrikes on Iran had achieved their goals, and Iranian officials did not threaten retaliation.`\
 https://nytimes.com/2024/10/27/world/middleeast/israel-iran.html
-
-**Happy National Tight Ends Day: Travis Kelce, TEs account for NFL-record 15 TDs**\
-`The informal holiday began back in 2018 from a sideline joke with former San Francisco 49ers quarterback Jimmy Garoppolo and George Kittle.`\
-https://nytimes.com/athletic/5876647/2024/10/27/national-tight-ends-day-kyle-pitts/
 
