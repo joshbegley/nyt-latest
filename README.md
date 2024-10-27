@@ -1,6 +1,18 @@
+**Down 0-2, Yankees leave Los Angeles with a struggling captain but a vow to return**\
+`"I’m excited to get back to New York, I’m excited to get back to our fans,” Judge said. “It’s a seven-game series for a reason."`\
+https://nytimes.com/athletic/5875694/2024/10/27/dodgers-yankees-world-series-aaron-judge-captain/
+
+**Did Alabama and Kalen DeBoer find a new identity against Missouri?**\
+`Alabama lifted pressure off Jalen Milroe's arm with a dominant rushing performance against Missouri. Is it a sign of things to come?`\
+https://nytimes.com/athletic/5875295/2024/10/27/alabama-football-rushing-stats-missouri/
+
 **What we learned watching the World Series with four major leaguers**\
 `Big league veterans Jameson Taillon, Tucker Barnhart, Rob Refsnyder and Max Stassi help us to break down all the action in Games 1 and 2. `\
 https://nytimes.com/athletic/5875379/2024/10/27/watching-world-series-with-major-leaguers/
+
+**Bears at Commanders odds, expert picks, how to watch: Chicago favored with Daniels questionable**\
+`The Bears travel to Maryland to take on the Commanders with Jayden Daniels' status in question.`\
+https://nytimes.com/athletic/5872871/2024/10/27/bears-commanders-odds-picks-how-to-watch-betting/
 
 **Tropical Storm Trami Hits Vietnam After Killing Dozens in the Philippines**\
 `The storm made landfall near Danang on Sunday after leaving at least 80 people dead last week.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/27/us/politics/american-democracy-poll.html
 **Amid Talk of Fascism, Trump’s Threats and Language Evoke a Grim Past**\
 `Plenty of presidents have been called dictators by their political opponents, but none until now has been publicly accused of being a “fascist” by his own handpicked advisers.`\
 https://nytimes.com/2024/10/27/us/politics/trump-fascism.html
-
-**First Images of the Sun’s Flares Released From a New Space Telescope**\
-`Forecasters will soon be able to use the instrument, a coronagraph, to better monitor the effects of solar storms.`\
-https://nytimes.com/2024/10/27/science/solar-flare-telescope-sun.html
-
-**Nebraska hung around with Ohio State and raised its ceiling moving forward**\
-`Head coach Matt Rhule said he left The Horseshoe not satisfied or content but “fulfilled" as the Huskers lost 21-17 to Ohio State.`\
-https://nytimes.com/athletic/5875226/2024/10/27/nebraska-ohio-state-college-football-matt-rhule-november/
-
-**Trump and Harris Scrap for Georgia as Supporters Brace for a Photo Finish**\
-`Georgia has seen a flurry of activity underlining both parties’ recognition that, once again, the state is anyone’s to win.`\
-https://nytimes.com/2024/10/27/us/politics/trump-and-harris-scrap-for-georgia-as-supporters-brace-for-a-photo-finish.html
 
