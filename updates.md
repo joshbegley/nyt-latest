@@ -14,6 +14,11 @@ https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analys
 https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
 
 **Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
+`The Leafs needed a response game to point themselves back in the right direction but didn't get one with a 4-3 loss to the Bruins.
+`\
+https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
+
+**Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
 `The Leafs needed a response game to point themselves back in the right direction but didn’t get one with a 4-3 loss to the Bruins.
 `\
 https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
