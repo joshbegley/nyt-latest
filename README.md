@@ -1,3 +1,7 @@
+**Texans WR Diggs leaves win over Colts with knee injury**\
+`Houston is already without star receiver Nico Collins, who is on injured reserve.`\
+https://nytimes.com/athletic/5876997/2024/10/27/houston-texans-stefon-diggs-injury/
+
 **Far-Right Figures Escalate Talk of Retribution and Election Subversion**\
 `Michael Flynn has said “hell” will be unleashed if Donald J. Trump wins. Mr. Flynn’s close associate has discussed plans to overturn the election if Mr. Trump loses.`\
 https://nytimes.com/2024/10/27/us/politics/flynn-raiklin-election-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/us/politics/harris-trump-campaign-fascism.html
 **Trump Supporters Line Up Early at Madison Square Garden**\
 `Many of the sights of a Trump rally were familiar, if the setting was not: the heart of Manhattan, where registered Democrats outnumber Republicans by about 10 to 1.`\
 https://nytimes.com/2024/10/27/us/politics/trump-msg-rally-line.html
-
-**Arsenal waiting to learn extent of Gabriel, Timber injuries - Arteta**\
-`Arsenal are waiting to discover the extent of the apparent injuries sustained by Gabriel and Jurrien Timber during Sunday’s 2-2 home draw with Liverpool.`\
-https://nytimes.com/athletic/5876942/2024/10/27/gabriel-timber-injury-arsenal/
 
