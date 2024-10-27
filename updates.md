@@ -1,3 +1,7 @@
+**Anthony Richardson says he called to be subbed out because he was 'tired'**\
+`The Colts went on to lose 23-20, their fourth defeat of the season. Richardson started the game by missing on 13 of his first 15 attempts.`\
+https://nytimes.com/athletic/5877467/2024/10/27/anthony-richardson-colts-tired-comments/
+
 **Trump Rally Opens With Vulgar Insults Aimed at Minority Groups**\
 `Donald J. Trump’s rally at Madison Square Garden began with warm-up speakers who made a litany of racist remarks, vulgar insults and profanity-laden comments.`\
 https://nytimes.com/2024/10/27/us/politics/trump-hinchcliffe-msg.html
