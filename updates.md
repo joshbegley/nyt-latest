@@ -1,3 +1,7 @@
+**Beyoncé? Springsteen? Trump Fans Feel Both Anger and A-List Envy**\
+`Kamala Harris has many celebrities campaigning for her. It has uncorked complicated feelings for Donald Trump and his supporters.`\
+https://nytimes.com/2024/10/27/us/elections/donald-trump-bruce-springsteen-beyonce.html
+
 **‘Trump 2024’ Was Projected on a Town’s Water Tower. A Standoff Ensued.**\
 `After a resident of Hanson, Mass., projected the logo on town property, local officials fined him $100 per day for violating its bylaws.`\
 https://nytimes.com/2024/10/27/us/trump-water-tower-hanson-massachusetts.html
