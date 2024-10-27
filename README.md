@@ -1,8 +1,20 @@
+**Review: ‘We Live in Cairo’ Falls Short of Being Revolutionary**\
+`Egyptians stand up to their government in a play that excels in its design but rings hollow when its subtext and character development are scrutinized.`\
+https://nytimes.com/2024/10/27/theater/we-live-in-cairo-review.html
+
+**Pushing employers to “more aggressive programs”**\
+`In a 2020 presentation, UMR outlined plans to push employers to potentially more lucrative cost-savings offerings.`\
+https://nytimes.com/interactive/2024/10/27/us/unitedhealthcare-force-aggressive-program.html
+
+**UnitedHealthcare fee revenue**\
+`In a 2018 presentation, UnitedHealthcare noted the substantial fees it collected per year for its out-of-network savings programs.`\
+https://nytimes.com/interactive/2024/10/27/us/unitedhealthcare-fee-revenue.html
+
 **Anthony Richardson says he called to be subbed out because he was 'tired'**\
 `The Colts went on to lose 23-20, their fourth defeat of the season. Richardson started the game by missing on 13 of his first 15 attempts.`\
 https://nytimes.com/athletic/5877467/2024/10/27/anthony-richardson-colts-tired-comments/
 
-**Trump Rally Opens With Vulgar Insults Aimed at Minority Groups**\
+**Trump Rally Opens With Insults Aimed at Latino, Black, Jewish and Arab American Voters**\
 `Donald J. Trump’s rally at Madison Square Garden began with warm-up speakers who made a litany of racist remarks, vulgar insults and profanity-laden comments.`\
 https://nytimes.com/2024/10/27/us/politics/trump-hinchcliffe-msg.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5876824/2024/10/27/mexico-grand-prix-f1-mailbag/
 **Carlos Sainz wins Mexico City GP, Verstappen penalized for Norris scrap**\
 `Carlos Sainz won his second race of the season, Verstappen caused drama on track and Ferrari became championship contenders.`\
 https://nytimes.com/athletic/5876832/2024/10/27/carlos-sainz-f1-mexico-grand-prix-max-verstappen-lando-norris/
-
-**NFL Week 8 takeaways: Are Eagles Super Bowl contenders again? Do Ravens have a big problem?**\
-`Plus, who is the NFL's most disappointing team?`\
-https://nytimes.com/athletic/5877171/2024/10/27/nfl-week-8-scores-takeaways-eagles-ravens/
-
-**Winston throws for 334 yards in Browns’ 29-24 win over Ravens: Takeaways**\
-`Winston energized the Cleveland offense. Winston threw the ball down the field, stood in against the blitz and confidently made big throws.`\
-https://nytimes.com/athletic/5875854/2024/10/27/ravens-browns-score-takeaways-results/
-
-**Measured Comments From Israel and Iran on New Round of Strikes**\
-`Israel’s prime minister said Israeli airstrikes on Iran had achieved their goals, and Iranian officials did not threaten retaliation.`\
-https://nytimes.com/2024/10/27/world/middleeast/israel-iran.html
 
