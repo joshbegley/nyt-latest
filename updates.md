@@ -1,3 +1,7 @@
+**Pushing employers to ‘more aggressive programs’**\
+`In a 2020 presentation, UMR outlined plans to push employers to potentially more lucrative cost-savings offerings.`\
+https://nytimes.com/interactive/2024/10/27/us/unitedhealthcare-force-aggressive-program.html
+
 **Review: ‘We Live in Cairo’ Falls Short of Being Revolutionary**\
 `Egyptians stand up to their government in a play that excels in its design but rings hollow when its subtext and character development are scrutinized.`\
 https://nytimes.com/2024/10/27/theater/we-live-in-cairo-review.html
