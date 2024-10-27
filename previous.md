@@ -1,3 +1,15 @@
+**Miami and FSU are headed in different directions, even in an ugly Canes win**\
+`Miami deserves credit for its rivalry win, but the Seminoles made it easier than it could have been. `\
+https://nytimes.com/athletic/5875190/2024/10/26/miami-fsu-recap-takeaways-analysis/
+
+**Shohei Ohtani leaves World Series Game 2 with apparent shoulder injury**\
+`Ohtani injured his shoulder attempting to steal second base in the seventh inning.`\
+https://nytimes.com/athletic/5875296/2024/10/26/shohei-ohtani-injury-dodgers/
+
+**For First Time in Decades, Japan Votes in a Knife-Edge Election**\
+`The Japanese electorate seemed poised to punish the Liberal Democrats, even if it does not go so far as to hand power to the opposition.`\
+https://nytimes.com/2024/10/26/world/asia/japan-election.html
+
 **How Jonathan Quick's and Artemi Panarin's defensive play led Rangers to win: 4 takeaways**\
 `Quick's acrobatics in net and a key defensive play from Panarin helped New York top Anaheim 2-1.`\
 https://nytimes.com/athletic/5875214/2024/10/26/rangers-ducks-takeaways-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5875136/2024/10/26/rob-manfred-tampa-bay-rays-stadi
 **Michelle Obama Makes Abortion Rights Plea to Male Voters**\
 `Michelle Obama, the former first lady, made the case during a rally for Vice President Kamala Harris that a vote for former President Donald J. Trump would be a vote against women’s reproductive rights and health.`\
 https://nytimes.com/video/us/politics/100000009785492/michelle-obama-trump-harris.html
-
-**Israel Struck Air Defenses Around Critical Iranian Energy Sites, Officials Say**\
-`Israeli attacks hit air-defense systems around important energy sites but avoided the facilities themselves, Iranian and Israeli officials said. The United States had urged Israel not to strike energy and oil facilities.`\
-https://nytimes.com/2024/10/26/world/middleeast/israel-air-defenses-iran-energy-sites.html
-
-**Fantasy football rankings Week 8: Sleepers, projections, starts, Jalen McMillan, Troy Franklin and more**\
-`Jake Ciely helps you with your Week 8 fantasy lineup, highlighting sleepers and key stats, and also shares his Top 10 road trip artists.`\
-https://nytimes.com/athletic/5864780/2024/10/26/fantasy-football-rankings-week-8-sleepers-projections-starts-jalen-mcmillan-troy-franklin-and-more/
-
-**Takeaways from Alabama's shutout of Missouri after slow start**\
-`Jalen Milroe and the Alabama offense stepped up after a spark from the defense in the Tide's most complete game of the season.`\
-https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-kalen-deboer/
 

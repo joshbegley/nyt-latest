@@ -1,3 +1,15 @@
+**Miami and FSU are headed in different directions, even in an ugly Canes win**\
+`Miami deserves credit for its rivalry win, but the Seminoles made it easier than it could have been. `\
+https://nytimes.com/athletic/5875190/2024/10/26/miami-fsu-recap-takeaways-analysis/
+
+**Shohei Ohtani leaves World Series Game 2 with apparent shoulder injury**\
+`Ohtani injured his shoulder attempting to steal second base in the seventh inning.`\
+https://nytimes.com/athletic/5875296/2024/10/26/shohei-ohtani-injury-dodgers/
+
+**For First Time in Decades, Japan Votes in a Knife-Edge Election**\
+`The Japanese electorate seemed poised to punish the Liberal Democrats, even if it does not go so far as to hand power to the opposition.`\
+https://nytimes.com/2024/10/26/world/asia/japan-election.html
+
 **How Jonathan Quick's and Artemi Panarin's defensive play led Rangers to win: 4 takeaways**\
 `Quick's acrobatics in net and a key defensive play from Panarin helped New York top Anaheim 2-1.`\
 https://nytimes.com/athletic/5875214/2024/10/26/rangers-ducks-takeaways-analysis/
