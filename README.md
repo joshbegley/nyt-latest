@@ -1,3 +1,7 @@
+**Why Justin Brazeau is the top fix for the Bruins' problem at No. 2 right wing — for now**\
+`In Boston's 4-3 win over Toronto, Brazeau proved he has the size and net-front touch to earn more time with Marchand and Charlie Coyle.`\
+https://nytimes.com/athletic/5875275/2024/10/26/bruins-brad-marchand-justin-brazeau/
+
 **Eagles vs. Bengals odds, picks, how to watch: Top-talent teams grasping for momentum**\
 `The Bengals will test their improving defense against a talented Eagles offensive cast as both teams try to cement momentum.`\
 https://nytimes.com/athletic/5870333/2024/10/26/eagles-bengals-odds-picks-how-to-watch-betting/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5875296/2024/10/26/shohei-ohtani-injury-dodgers/
 **For First Time in Decades, Japan Votes in a Knife-Edge Election**\
 `The Japanese electorate seemed poised to punish the Liberal Democrats, even if it does not go so far as to hand power to the opposition.`\
 https://nytimes.com/2024/10/26/world/asia/japan-election.html
-
-**How Jonathan Quick's and Artemi Panarin's defensive play led Rangers to win: 4 takeaways**\
-`Quick's acrobatics in net and a key defensive play from Panarin helped New York top Anaheim 2-1.`\
-https://nytimes.com/athletic/5875214/2024/10/26/rangers-ducks-takeaways-analysis/
 
