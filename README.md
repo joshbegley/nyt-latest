@@ -1,3 +1,11 @@
+**Real Madrid's Clasico humiliation points to problems on and off the pitch**\
+`Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
+https://nytimes.com/athletic/5875784/2024/10/27/real-madrid-clasico-defeat-problems/
+
+**A Classical Music Discovery**\
+`An unknown waltz by Chopin has been found.`\
+https://nytimes.com/2024/10/27/briefing/chopin-lang-lang-classical-music.html
+
 **Real Madrid and La Liga to take action after alleged abuse of Barcelona winger Yamal**\
 `Real Madrid and La Liga have announced that they will take action after Barcelona winger Lamine Yamal was allegedly racially abused during El Clasico on Saturday night.`\
 https://nytimes.com/athletic/5875747/2024/10/27/yamal-racist-abuse-real-madrid-barcelona-el-clasico/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/27/opinion/washington-post-la-times-endorsements.htm
 **The Sunday Read: ‘How Everyone Got Lost in Netflix’s Endless Library’**\
 `Ten years after Silicon Valley remade TV, it’s clear how the streaming revolution distorted our collective viewing habits — and sense of the culture.`\
 https://nytimes.com/2024/10/27/podcasts/the-daily/netflix-library.html
-
-**Nevertheless, Ted Cruz Persists**\
-`Many voters see the Texas senator as their unapologetic fighter.`\
-https://nytimes.com/2024/10/27/opinion/ted-cruz-texas-senate-race.html
-
-**Four Lessons From Nine Years of Being ‘Never Trump’**\
-`What do I wish my 2024 self could travel back and say to 2015 me?`\
-https://nytimes.com/2024/10/27/opinion/never-trump-maga-evangelicals.html
 
