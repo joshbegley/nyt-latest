@@ -1,3 +1,7 @@
+**Bills vs. Seahawks odds, picks, how to watch: Bills road favorites with Allen rolling**\
+`Coming off a decisive divisional win, the Seahawks aim to slow Josh Allen and the Bills on the West Coast.`\
+https://nytimes.com/athletic/5872693/2024/10/27/bills-seahawks-odds-picks-how-to-watch-betting/
+
 **Saints vs. Chargers odds, picks, how to watch: Chargers big favorites over hobbled Saints**\
 `The Saints head to LA on a five-game losing streak, while the Chargers look to bounce back from a Week 7 loss.`\
 https://nytimes.com/athletic/5872676/2024/10/27/saints-chargers-odds-picks-how-to-watch-betting/
