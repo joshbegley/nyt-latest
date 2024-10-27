@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 8: Sleepers, projections, starts, Jalen McMillan, Troy Franklin and more**\
+`Jake Ciely helps you with your Week 8 fantasy lineup, highlighting sleepers and key stats, and also shares his Top 10 road trip artists.`\
+https://nytimes.com/athletic/5864780/2024/10/26/fantasy-football-rankings-week-8-sleepers-projections-starts-jalen-mcmillan-troy-franklin-and-more/
+
 **Manfred: Rays expected to have stadium situation figured out by Christmas**\
 `Plus notes on ratings for Game 1 of the World Series and why MLB is fine with the A's and River Cats playing on grass in Sacramento. `\
 https://nytimes.com/athletic/5875136/2024/10/26/rob-manfred-tampa-bay-rays-stadium-christmas/

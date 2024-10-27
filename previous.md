@@ -10,6 +10,10 @@ https://nytimes.com/video/us/politics/100000009785492/michelle-obama-trump-harri
 `Israeli attacks hit air-defense systems around important energy sites but avoided the facilities themselves, Iranian and Israeli officials said. The United States had urged Israel not to strike energy and oil facilities.`\
 https://nytimes.com/2024/10/26/world/middleeast/israel-air-defenses-iran-energy-sites.html
 
+**Fantasy football rankings Week 8: Sleepers, projections, starts, Jalen McMillan, Troy Franklin and more**\
+`Jake Ciely helps you with your Week 8 fantasy lineup, highlighting sleepers and key stats, and also shares his Top 10 road trip artists.`\
+https://nytimes.com/athletic/5864780/2024/10/26/fantasy-football-rankings-week-8-sleepers-projections-starts-jalen-mcmillan-troy-franklin-and-more/
+
 **Takeaways from Alabama's shutout of Missouri after slow start**\
 `Jalen Milroe and the Alabama offense stepped up after a spark from the defense in the Tide's most complete game of the season.`\
 https://nytimes.com/athletic/5874566/2024/10/26/alabama-missouri-jalen-milroe-kalen-deboer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/us/politics/trump-muslim-arab-american-voters-mic
 **New York Mayor Says Trump Should Not Be Called ‘Fascist,’ Breaking With Harris and Party**\
 `Mayor Eric Adams of New York, an embattled Democrat who has been indicted on federal corruption charges, has been careful in what he says about the former president.`\
 https://nytimes.com/2024/10/26/us/politics/trump-fascist-mayor-adams.html
-
-**Ryan Day, Ohio State face pressing question that threatens to derail title hopes**\
-`Injuries have exposed Ohio State's lack of offensive line depth, which nearly cost it vs. Nebraska and could prove pivotal in the future.`\
-https://nytimes.com/athletic/5874989/2024/10/26/ohio-state-nebraska-offensive-line-injuries/
 
