@@ -1,3 +1,15 @@
+**Down 0-2, Yankees leave Los Angeles with a struggling captain but a vow to return**\
+`"I’m excited to get back to New York, I’m excited to get back to our fans,” Judge said. “It’s a seven-game series for a reason."`\
+https://nytimes.com/athletic/5875694/2024/10/27/dodgers-yankees-world-series-aaron-judge-captain/
+
+**Did Alabama and Kalen DeBoer find a new identity against Missouri?**\
+`Alabama lifted pressure off Jalen Milroe's arm with a dominant rushing performance against Missouri. Is it a sign of things to come?`\
+https://nytimes.com/athletic/5875295/2024/10/27/alabama-football-rushing-stats-missouri/
+
+**Bears at Commanders odds, expert picks, how to watch: Chicago favored with Daniels questionable**\
+`The Bears travel to Maryland to take on the Commanders with Jayden Daniels' status in question.`\
+https://nytimes.com/athletic/5872871/2024/10/27/bears-commanders-odds-picks-how-to-watch-betting/
+
 **What we learned watching the World Series with four major leaguers**\
 `Big league veterans Jameson Taillon, Tucker Barnhart, Rob Refsnyder and Max Stassi help us to break down all the action in Games 1 and 2. `\
 https://nytimes.com/athletic/5875379/2024/10/27/watching-world-series-with-major-leaguers/
