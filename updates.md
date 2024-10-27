@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analys
 `\
 https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
 
+**Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
+`The Leafs needed a response game to point themselves back in the right direction but didn’t get one with a 4-3 loss to the Bruins.
+`\
+https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
+
 **Dodgers cruise but Shohei Ohtani injured in Game 2 victory over Yankees: Takeaways**\
 `LOS ANGELES — The Los Angeles Dodgers are halfway to a championship in this World Series, dispatching the New York Yankees in Game 2 on Saturday, 4-2, behind one-hit pitching from Yoshinobu Yamamoto and three home runs from their offense.`\
 https://nytimes.com/athletic/5875068/2024/10/26/dodgers-yankees-world-series-game-2-takeaways/
