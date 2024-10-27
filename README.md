@@ -2,7 +2,7 @@
 `The Falcons completed a season sweep of the Buccaneers, which could loom large at the end of the year.`\
 https://nytimes.com/athletic/5875890/2024/10/27/falcons-buccaneers-score-takeaways-result/
 
-**Lions demolish Titans 52-17 as Kalif Raymond stars with 2 scores: Takeaways**\
+**Lions demolish Titans 52-14 as Kalif Raymond stars with 2 scores: Takeaways**\
 `The Lions finished four points short of a new franchise record for points in a single game. They did it with just 225 yards of offense.`\
 https://nytimes.com/athletic/5875861/2024/10/27/titans-lions-score-takeaways-results/
 
