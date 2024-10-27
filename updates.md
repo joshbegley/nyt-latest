@@ -1,3 +1,7 @@
+**Suns want to build on Booker and Durant's Olympic experience — it showed in win over Mavs**\
+`On a night when Durant scored his 29,000th career point, a hustle play from a role player provided the night's biggest reaction.`\
+https://nytimes.com/athletic/5875602/2024/10/27/suns-defeat-mavs-durant-29000-points/
+
 **Susan B. Anthony Was Arrested for Voting. Now Her Home Is a Poll Site.**\
 `The home in Rochester, N.Y., now a museum celebrating the women’s suffrage movement, served as a polling place for early voters on Saturday.`\
 https://nytimes.com/2024/10/27/nyregion/susan-b-anthony-home-presidential-election.html
