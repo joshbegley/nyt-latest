@@ -1,3 +1,7 @@
+**Penn State loss proves Wisconsin's not ready for prime time … yet again**\
+`Luke Fickell is in Year 2 of a rebuild that not only has yet to yield a true signature victory but continues to lack marked progress.`\
+https://nytimes.com/athletic/5875837/2024/10/27/wisconsin-penn-state-loss-luke-fickell/
+
 **The six Barca youngsters who rattled Madrid - from history-making Yamal to nerveless Cubarsi**\
 `Barca started with six players aged 22 or younger against Madrid. Here's how they contributed to a crushing win against their arch-rivals`\
 https://nytimes.com/athletic/5875691/2024/10/27/barcelona-real-madrid-yamal-cubarsi/
