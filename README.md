@@ -1,5 +1,5 @@
 **A Classical Music Discovery**\
-`An unknown waltz by the eminent composer Chopin has been found.`\
+`An unknown waltz by Chopin has been found.`\
 https://nytimes.com/2024/10/27/briefing/chopin-lang-lang-classical-music.html
 
 **Real Madrid and La Liga to take action after alleged abuse of Barcelona winger Yamal**\
