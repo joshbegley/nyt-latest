@@ -1,3 +1,7 @@
+**How Jonathan Quick's and Artemi Panarin's defensive play led Rangers to win: 4 takeaways**\
+`Quick's acrobatics in net and a key defensive play from Panarin helped New York top Anaheim 2-1.`\
+https://nytimes.com/athletic/5875214/2024/10/26/rangers-ducks-takeaways-analysis/
+
 **How Jonathan Quick, Artemi Panarin's defensive play led Rangers to win: 4 takeaways**\
 `Quick's acrobatics in net and a key defensive play from Panarin helped New York top Anaheim 2-1.`\
 https://nytimes.com/athletic/5875214/2024/10/26/rangers-ducks-takeaways-analysis/
