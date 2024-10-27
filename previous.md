@@ -1,3 +1,7 @@
+**Operatic Highlight**\
+`Michael Lieberman’s latest puzzle is a real trip.`\
+https://nytimes.com/2024/10/27/crosswords/daily-puzzle-2024-10-28.html
+
 **Mexico GP: Submit your questions for our F1 mailbag**\
 `What's on your mind as F1 approaches the season's end? Ask our F1 reporters for their latest mailbag. `\
 https://nytimes.com/athletic/5876824/2024/10/27/mexico-grand-prix-f1-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/briefing/american-democracy-japan-elections-chopi
 **Packers' Willis, Jacobs power 30-27 win over Jaguars: Takeaways**\
 `A clutch 51-yard play from Malik Willis set up a game-winning field goal despite the Packers' two-minute defensive struggles.`\
 https://nytimes.com/athletic/5875869/2024/10/27/packers-jaguars-score-takeaways-results/
-
-**Texans hang on to knock off AFC South rival Colts 23-20: Takeaways**\
-`Joe Mixon tallied 102 rushing yards on 25 carries and a touchdown, while C.J. Stroud threw for 285 yards with one TD in the win.`\
-https://nytimes.com/athletic/5875866/2024/10/27/colts-texans-takeaways-result/
 

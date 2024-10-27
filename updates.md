@@ -1,3 +1,7 @@
+**Operatic Highlight**\
+`Michael Lieberman’s latest puzzle is a real trip.`\
+https://nytimes.com/2024/10/27/crosswords/daily-puzzle-2024-10-28.html
+
 **Mexico GP: Submit your questions for our F1 mailbag**\
 `What's on your mind as F1 approaches the season's end? Ask our F1 reporters for their latest mailbag. `\
 https://nytimes.com/athletic/5876824/2024/10/27/mexico-grand-prix-f1-mailbag/
