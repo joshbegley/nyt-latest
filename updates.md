@@ -1,3 +1,11 @@
+**What Pep Guardiola really means when he is nice about a struggling manager**\
+`There are quite a few Pep Guardiola memes but one of the more prevalent is, well, him being nice about another manager...`\
+https://nytimes.com/athletic/5874660/2024/10/27/pep-guardiola-rusell-martin-manager/
+
+**Harry Clarke's nightmare full Premier League debut - own goal, gave away a penalty and sent off**\
+`Clarke became the first player in Premier League history to endure all three on his full debut as Ipswich lost 4-3 at Brentford`\
+https://nytimes.com/athletic/5874447/2024/10/27/harry-clarke-premier-league-debut-own-goal-red-card/
+
 **After loss to Bruins, Craig Berube calls Leafs 'close' but not where he wants them to be**\
 `Even with a new coach in tow, so much of what plagued this core in the past has re-emerged through this mini-slump.`\
 https://nytimes.com/athletic/5875456/2024/10/27/leafs-close-craig-berube-bruins-overtime/
