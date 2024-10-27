@@ -1,3 +1,7 @@
+**Susan B. Anthony Was Arrested for Voting. Now Her Home Is a Poll Site.**\
+`The home in Rochester, N.Y., now a museum celebrating the women’s suffrage movement, served as a polling place for early voters on Saturday.`\
+https://nytimes.com/2024/10/27/nyregion/susan-b-anthony-home-presidential-election.html
+
 **The Newspaper That Almost Was**\
 `Reporters and editors at The New York Times had diligently prepared for one outcome of the 2016 presidential race. Then the election results poured in.`\
 https://nytimes.com/2024/10/27/insider/madam-president-hillary-clinton.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875330/2024/10/27/penguins-lose-to-canucks-yohe-10
 **Colorado reaches bowl eligibility in Deion's Year 2 by downing Cincinnati**\
 `Colorado hasn’t played in a bowl game since it went 4-2 in the pandemic-shortened 2020 season.`\
 https://nytimes.com/athletic/5875519/2024/10/27/colorado-football-bowl-eligibility-deion-sanders/
-
-**LeBron James posts 'surreal' triple-double in Lakers' win over Kings**\
-`James finished with 32 points, 14 rebounds and 10 assists. All three marks were season highs for the 39-year-old in his 22nd season.`\
-https://nytimes.com/athletic/5875526/2024/10/27/lebron-james-lakers-kings-triple-double/
 
