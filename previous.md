@@ -1,7 +1,3 @@
-**Shohei Ohtani to play in Game 3 of World Series after shoulder injury**\
-`The World Series resumes Monday with the Yankees needing a victory at home to avoid falling behind 3-0 in the best-of-seven series.`\
-https://nytimes.com/athletic/5876710/2024/10/27/shohei-ohtani-injury-dodgers-world-series/
-
 **Jayden Daniels to start Week 8 in rookie duel vs. Caleb Williams, Bears**\
 `This will mark the sixth time in NFL history that quarterbacks picked No. 1 and No. 2 face off in their rookie season.`\
 https://nytimes.com/athletic/5876207/2024/10/27/bears-commanders-score-jayden-daniels-takeaways-results/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/27/us/politics/trump-security-clearances-fbi.html
 **Patriots' Drake Maye exits vs. Jets with head injury**\
 `Upon exiting against the Jets, Maye led the team in rushing with 46 yards and a rushing touchdown and finished 3-for-6 for 23 yards passing.`\
 https://nytimes.com/athletic/5876680/2024/10/27/drake-maye-injury-patriots-jets/
+
+**Michelle Obama’s Plain Words in a Plain Suit**\
+`Who needs a slogan tee when your outfit can say it all?`\
+https://nytimes.com/2024/10/27/style/michelle-obama-harris-rally-suit.html
 

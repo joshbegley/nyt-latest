@@ -1,3 +1,7 @@
+**Michelle Obama’s Plain Words in a Plain Suit**\
+`Who needs a slogan tee when your outfit can say it all?`\
+https://nytimes.com/2024/10/27/style/michelle-obama-harris-rally-suit.html
+
 **Shohei Ohtani to play in Game 3 of World Series after shoulder injury**\
 `The World Series resumes Monday with the Yankees needing a victory at home to avoid falling behind 3-0 in the best-of-seven series.`\
 https://nytimes.com/athletic/5876710/2024/10/27/shohei-ohtani-injury-dodgers-world-series/
