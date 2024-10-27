@@ -1,3 +1,11 @@
+**Buckley: No longer 'soft,' Patriots show pluck in bouncing back to top Jets**\
+`After losing their rookie quarterback, the Patriots showed resilience in mounting two long fourth-quarter drives to beat the rival Jets.`\
+https://nytimes.com/athletic/5877771/2024/10/27/patriots-jets-jerod-mayo-soft-buckley/
+
+**Bills win third straight with 31-10 victory over Seahawks: Takeaways**\
+`The Bills never trailed and posted a season-high 445 yards of offense against the Seahawks on the way to a third straight win.`\
+https://nytimes.com/athletic/5877354/2024/10/27/bills-seahawks-score-takeaways-results/
+
 **Dwyane Wade statue draws mixed reviews from fans confused by likeness**\
 `Some compared the statue to the likes of actor Laurence Fishburne, Commanders linebackers coach Ken Norton and Maryland governor Wes Moore.`\
 https://nytimes.com/athletic/5877660/2024/10/27/dwyane-wade-statue-reaction-likeness/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5873571/2024/10/27/clifford-chance-saudi-report-fif
 **Bo Nix's career day propels Broncos to 28-14 win vs. Panthers**\
 `The rookie quarterback accounted for four touchdowns in Denver's victory against Carolina.`\
 https://nytimes.com/athletic/5877641/2024/10/27/panthers-broncos-score-takeaways-results/
-
-**Lando Norris says Mexico GP battle with Max Verstappen was 'not fair, clean racing'**\
-`Norris says his rival (and friend) will 'sacrifice himself’ to beat him in the F1 title race.`\
-https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-penalties-mexico-gp/
-
-**A Trump Rally Speaker Trashed Puerto Ricans. Harris Reached Out to Them.**\
-`Her campaign moved swiftly to highlight that even as a speaker at Donald Trump’s rally in New York made offensive remarks about Puerto Rico and Latinos, she was visiting Puerto Rican voters in Philadelphia.`\
-https://nytimes.com/2024/10/27/us/politics/kamala-harris-philadelphia-voters.html
 
