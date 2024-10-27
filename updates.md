@@ -1,3 +1,7 @@
+**Can Wrexham really win another promotion with so little possession?**\
+`A trait of the Welsh club's return to League One is how they are prospering despite the opposition seeing much more of the ball`\
+https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-league-one/
+
 **An Israeli strike on the city of Sidon kills eight people, Lebanon’s health ministry says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/an-israeli-strike-on-the-city-of-sidon-kills-eight-people-lebanons-health-ministry-says

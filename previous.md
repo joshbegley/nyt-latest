@@ -1,3 +1,7 @@
+**Can Wrexham really win another promotion with so little possession?**\
+`A trait of the Welsh club's return to League One is how they are prospering despite the opposition seeing much more of the ball`\
+https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-league-one/
+
 **An Israeli strike on the city of Sidon kills eight people, Lebanon’s health ministry says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/an-israeli-strike-on-the-city-of-sidon-kills-eight-people-lebanons-health-ministry-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/us/elections/donald-trump-bruce-springsteen-beyon
 **‘Trump 2024’ Was Projected on a Town’s Water Tower. A Standoff Ensued.**\
 `After a resident of Hanson, Mass., projected the logo on town property, local officials fined him $100 per day for violating its bylaws.`\
 https://nytimes.com/2024/10/27/us/trump-water-tower-hanson-massachusetts.html
-
-**Indiana Fever fire coach Christie Sides after 2 seasons**\
-`Sides went 33-47 (.413) in the regular season over her two campaigns with Indiana.`\
-https://nytimes.com/athletic/5876178/2024/10/27/indiana-fever-coach-fired-christie-sides-wnba/
 
