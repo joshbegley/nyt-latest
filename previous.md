@@ -1,3 +1,7 @@
+**Snyder: Beau Pribula rose to the moment, and now Penn State can focus on Ohio State**\
+`Backup quarterback Beau Pribula came through for Penn State, and now the Nittany Lions can turn their attention to Ohio State.`\
+https://nytimes.com/athletic/5875710/2024/10/27/penn-state-beau-pribula-wisconsin-ohio-state/
+
 **Week 9's College Football Playoff lessons: Ohio State walking a tightrope, new SEC leader**\
 `The Buckeyes' 21-17 win over Nebraska was far from inspiring. Also, is Tulane a dark horse contender?`\
 https://nytimes.com/athletic/5875614/2024/10/27/college-football-playoff-week-9-ohio-state-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/opinion/never-trump-maga-evangelicals.html
 **The Connections Companion No. 505**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 28, 2024.`\
 https://nytimes.com/2024/10/27/crosswords/connections-companion-505.html
-
-**What Football Can Teach Politics**\
-`Dwight Eisenhower learned leadership in an early job as a football coach. His success as president offers a few important lessons.`\
-https://nytimes.com/2024/10/27/opinion/president-coach-eisenhower.html
 
