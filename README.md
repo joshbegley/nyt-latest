@@ -1,3 +1,11 @@
+**Mexico GP: Submit your questions for our F1 mailbag**\
+`What's on your mind as F1 approaches the season's end? Ask our F1 reporters for their latest mailbag. `\
+https://nytimes.com/athletic/5876824/2024/10/27/mexico-grand-prix-f1-mailbag/
+
+**Carlos Sainz wins Mexico City GP, Verstappen penalized for Norris scrap**\
+`Carlos Sainz won his second race of the season, Verstappen caused drama on track and Ferrari became championship contenders.`\
+https://nytimes.com/athletic/5876832/2024/10/27/carlos-sainz-f1-mexico-grand-prix-max-verstappen-lando-norris/
+
 **NFL Week 8 takeaways: Are Eagles Super Bowl contenders again? Do Ravens have a big problem?**\
 `Plus, who is the NFL's most disappointing team?`\
 https://nytimes.com/athletic/5877171/2024/10/27/nfl-week-8-scores-takeaways-eagles-ravens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5875869/2024/10/27/packers-jaguars-score-takeaways-
 **Texans hang on to knock off AFC South rival Colts 23-20: Takeaways**\
 `Joe Mixon tallied 102 rushing yards on 25 carries and a touchdown, while C.J. Stroud threw for 285 yards with one TD in the win.`\
 https://nytimes.com/athletic/5875866/2024/10/27/colts-texans-takeaways-result/
-
-**Cardinals spoil Tua Tagovailoa's return with last-second FG to win 28-27: Takeaways**\
-`The Dolphins were in control through most of the contest, as Tagovailoa saw his first game action since suffering a concussion in Week 2.`\
-https://nytimes.com/athletic/5875873/2024/10/27/dolphins-cardinals-score-takeaways-result/
-
-**Barkley, Hurts key dominant second half in Eagles' 37-17 win vs. Bengals: Takeaways**\
-`The Eagles moved to 5-2 in a competitive NFC East, while the Bengals fell to 3-5 as their season reaches a critical juncture.`\
-https://nytimes.com/athletic/5875843/2024/10/27/eagles-bengals-score-takeaways-result/
 
