@@ -1,8 +1,28 @@
+**Nobody Walks in L.A.? Don’t Tell These Baseball Fans.**\
+`Anticipating the mess of traffic and parking at Dodger Stadium, many of the people who attended the first two games of the World Series found creative ways to get there.`\
+https://nytimes.com/2024/10/27/style/dodger-stadium-world-series-fans.html
+
+**Stewart Mandel's 12-team Playoff projections after Week 9**\
+`Oregon replaces Ohio State as the projected Big Ten champion and grabs the No. 2 seed. `\
+https://nytimes.com/athletic/5876711/2024/10/27/college-football-playoff-bracket-projections-week-9/
+
+**AP Top 25: Penn State, OSU set for top-5 game; Colorado moves in**\
+`Oregon is still No. 1 in the AP Top 25 college football poll, while Colorado is now ranked and a massive Penn State-Ohio State game is next.`\
+https://nytimes.com/athletic/5876435/2024/10/27/ap-top-25-penn-state-osu-colorado/
+
+**Supporting Trump, JD Vance Calls Some Democrats More Dangerous Than Foreign Adversaries**\
+`Mr. Vance made the remark as he sought to defend Donald J. Trump from former members of his administration who said he posed a threat to democracy.`\
+https://nytimes.com/2024/10/27/us/politics/jd-vance-jake-tapper-cnn.html
+
+**The Briefing: Arsenal 2 Liverpool 2 - Nunez keeps his cool. Was this a missed opportunity for Arteta?**\
+`Salah's late equaliser earns a point for Liverpool after both captains scored in the first half. Our writers analyse the key talking points`\
+https://nytimes.com/athletic/5872349/2024/10/27/arsenal-liverpool-salah-saka-nunez-analysis/
+
 **Advisers Propose That Trump Give Security Clearances Without F.B.I. Vetting**\
 `A memo circulating in Donald Trump’s orbit says that if elected he should use private firms to check appointees’ backgrounds and give them immediate access to classified secrets after taking office.`\
 https://nytimes.com/2024/10/27/us/politics/trump-security-clearances-fbi.html
 
-**Patriots' Drake Maye exits vs. Jets with concussion**\
+**Patriots' Drake Maye exits vs. Jets with head injury**\
 `Upon exiting against the Jets, Maye led the team in rushing with 46 yards and a rushing touchdown and finished 3-for-6 for 23 yards passing.`\
 https://nytimes.com/athletic/5876680/2024/10/27/drake-maye-injury-patriots-jets/
 
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/israel-strike
 **Mr. Bezos Went to Washington. But He Never Arrived.**\
 `The billionaire made splashy purchases of The Washington Post and a mansion in Washington. But his status as a power player in the nation’s capital was never realized.`\
 https://nytimes.com/2024/10/27/technology/jeff-bezos-washington-post-dc.html
-
-**Newcastle waiting on result of Gordon's groin injury scan**\
-`Newcastle United head coach Eddie Howe is hoping Anthony Gordon’s groin injury is not serious as the club await the results of a scan on the England international.`\
-https://nytimes.com/athletic/5876513/2024/10/27/anthony-gordon-injury-newcastle/
-
-**Pistons put up fight, but consistent Celtics find a way to win ugly**\
-`“I think that’s the power of a great team,” says Jaylen Brown as Celtics are able to play cohesively to defeat scrappy Pistons.`\
-https://nytimes.com/athletic/5875677/2024/10/27/celtics-pistons-jaylen-brown-payton-pritchard/
-
-**Ten Hag: West Ham penalty an 'injustice'**\
-`Manchester United manager Erik ten Hag says West Ham United’s late penalty award was an “injustice”.`\
-https://nytimes.com/athletic/5876594/2024/10/27/ten-hag-man-utd-west-ham-var-penalty/
-
-**Mirtle: Firing up the Concern-o-Meter for the Maple Leafs after a tough start**\
-`Nine games in, troubling signs are starting to emerge for the Maple Leafs. On a scale of 1 to 10, just how troubling are their issues?`\
-https://nytimes.com/athletic/5876086/2024/10/27/maple-leafs-nhl-season/
-
-**Can Wrexham really win another promotion with so little possession?**\
-`A trait of the Welsh club's return to League One is how they are prospering despite the opposition seeing much more of the ball`\
-https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-league-one/
 
