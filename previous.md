@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5876621/2024/10/27/jordan-love-groin-injury-jaguars
 
 **Pro-Harris Super PAC Raises Concerns About Focusing on Trump and Fascism**\
 `The group, Future Forward, warned that attacking Donald J. Trump as a fascist or questioning his character or stamina are less effective than highlighting Kamala Harris’s proposals.`\
-https://nytimes.com/2024/10/27/us/politics/harris-trump-campaign-message.html
+https://nytimes.com/2024/10/27/us/politics/harris-trump-campaign-fascism.html
 
 **Trump Supporters Line Up Early at Madison Square Garden**\
 `Many of the sights of a Trump rally were familiar, if the setting was not: the heart of Manhattan, where registered Democrats outnumber Republicans by about 10 to 1.`\

@@ -1,3 +1,7 @@
+**Pro-Harris Super PAC Raises Concerns About Focusing on Trump and Fascism**\
+`The group, Future Forward, warned that attacking Donald J. Trump as a fascist or questioning his character or stamina are less effective than highlighting Kamala Harris’s proposals.`\
+https://nytimes.com/2024/10/27/us/politics/harris-trump-campaign-fascism.html
+
 **Packers' Love exits early vs. Jaguars with groin injury**\
 `Love was initially hobbled during Green Bay's first offensive series after landing awkwardly following a pass attempt.`\
 https://nytimes.com/athletic/5876621/2024/10/27/jordan-love-groin-injury-jaguars/
