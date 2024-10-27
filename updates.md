@@ -1,3 +1,11 @@
+**The six Barca youngsters who rattled Madrid - from history-making Yamal to nerveless Cubarsi**\
+`Barca started with six players aged 22 or younger against Madrid. Here's how they contributed to a crushing win against their arch-rivals`\
+https://nytimes.com/athletic/5875691/2024/10/27/barcelona-real-madrid-yamal-cubarsi/
+
+**Adam Johnson manslaughter case: Explaining the legal delays**\
+`It is almost a year since ice hockey player's death, so why has so little apparent progress been made in his case?`\
+https://nytimes.com/athletic/5859784/2024/10/27/adam-johnson-death-manslaughter-delays/
+
 **Here’s the latest on the presidential race.**\
 `Fo`\
 https://nytimes.com/live/2024/10/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
