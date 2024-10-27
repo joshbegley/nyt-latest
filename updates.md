@@ -1,3 +1,7 @@
+**Caitlin Clark, Indiana Fever championship timeline accelerated by sudden coaching change**\
+`The Fever reportedly have been talking to Connecticut coach Stephanie White. Will she return to Indianapolis?`\
+https://nytimes.com/athletic/5876979/2024/10/27/indiana-fever-coach-fired-caitlin-clark-wnba/
+
 **Rice fires Mike Bloomgren after 2-6 start in 7th season**\
 `Bloomgren went 24-52 in six-plus seasons and guided the Owls to two bowl appearances. `\
 https://nytimes.com/athletic/5876974/2024/10/27/rice-mike-bloomgren-fired/
