@@ -1,3 +1,11 @@
+**Dwyane Wade statue draws mixed reviews from fans confused by likeness**\
+`Some compared the statue to the likes of actor Laurence Fishburne, Commanders linebackers coach Ken Norton and Maryland governor Wes Moore.`\
+https://nytimes.com/athletic/5877660/2024/10/27/dwyane-wade-statue-reaction-likeness/
+
+**Chargers top Saints 26-8 for New Orleans' 6th-straight loss: Takeaways**\
+`After opening the season with back-to-back 40-point efforts, the Saints have ranked 28th in total offense and 25th in points per game.`\
+https://nytimes.com/athletic/5877475/2024/10/27/saints-chargers-score-takeaways-results/
+
 **DJ Clark Kent, Who Introduced Jay-Z to Notorious B.I.G., Dies at 58**\
 `He was a producer and club D.J. who helped rappers find their voices and fortunes, and who later became known as a raconteur of hip-hop history.`\
 https://nytimes.com/2024/10/27/obituaries/dj-clark-kent-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-pena
 **A Trump Rally Speaker Trashed Puerto Ricans. Harris Reached Out to Them.**\
 `Her campaign moved swiftly to highlight that even as a speaker at Donald Trump’s rally in New York made offensive remarks about Puerto Rico and Latinos, she was visiting Puerto Rican voters in Philadelphia.`\
 https://nytimes.com/2024/10/27/us/politics/kamala-harris-philadelphia-voters.html
-
-**Lloyd: Jameis Winston's performance, Browns' win a reminder of what could've been this year**\
-`An upset of the Ravens showed it wasn't the line, the receivers or the play calling. It was the quarterback. It was always the quarterback.`\
-https://nytimes.com/athletic/5877620/2024/10/27/browns-ravens-jameis-winston-deshaun-watson-cleveland/
-
-**Kirk Cousins puts Falcons in NFC South driver's seat, but they have a lot of work to do**\
-`Cousins has thrown eight touchdown passes against the Bucs this season, but he helped the Falcons put the game away with a surprising run.`\
-https://nytimes.com/athletic/5877563/2024/10/27/falcons-kirk-cousins-buccaneers-nfc-south/
 

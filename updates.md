@@ -1,3 +1,11 @@
+**Dwyane Wade statue draws mixed reviews from fans confused by likeness**\
+`Some compared the statue to the likes of actor Laurence Fishburne, Commanders linebackers coach Ken Norton and Maryland governor Wes Moore.`\
+https://nytimes.com/athletic/5877660/2024/10/27/dwyane-wade-statue-reaction-likeness/
+
+**Chargers top Saints 26-8 for New Orleans' 6th-straight loss: Takeaways**\
+`After opening the season with back-to-back 40-point efforts, the Saints have ranked 28th in total offense and 25th in points per game.`\
+https://nytimes.com/athletic/5877475/2024/10/27/saints-chargers-score-takeaways-results/
+
 **Lando Norris says Mexico GP battle with Max Verstappen was 'not fair, clean racing'**\
 `Norris says his rival (and friend) will 'sacrifice himself’ to beat him in the F1 title race.`\
 https://nytimes.com/athletic/5877693/2024/10/27/lando-norris-max-verstappen-penalties-mexico-gp/
