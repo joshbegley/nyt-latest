@@ -1,3 +1,11 @@
+**Measured Comments From Israel and Iran on New Round of Strikes**\
+`Israel’s prime minister said Israeli airstrikes on Iran had achieved their goals, and Iranian officials did not threaten retaliation.`\
+https://nytimes.com/2024/10/27/world/middleeast/israel-iran.html
+
+**Happy National Tight Ends Day: Kyle Pitts stars, 5 other TEs grab TDs**\
+`The informal holiday began back in 2018 from a sideline joke with former San Francisco 49ers quarterback Jimmy Garoppolo and George Kittle.`\
+https://nytimes.com/athletic/5876647/2024/10/27/national-tight-ends-day-kyle-pitts/
+
 **Woman Who Left Boyfriend Zipped in a Suitcase Is Convicted of Murder**\
 `The woman, Sarah Boone, said the two were drinking and playing hide-and-seek when she zipped him inside the suitcase and then left him overnight.`\
 https://nytimes.com/2024/10/27/us/boyfriend-suitcase-murder-guilty.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/27/theater/mimi-hines-dead.html
 **Cousins leads Falcons past Bucs 31-26 to take control of NFC South : Takeaways**\
 `The Falcons completed a season sweep of the Buccaneers, which could loom large at the end of the year.`\
 https://nytimes.com/athletic/5875890/2024/10/27/falcons-buccaneers-score-takeaways-result/
-
-**Lions demolish Titans 52-14 as Kalif Raymond stars with 2 scores: Takeaways**\
-`The Lions finished four points short of a franchise record for points in a single game. They did so on just 225 yards of offense.`\
-https://nytimes.com/athletic/5875861/2024/10/27/titans-lions-score-takeaways-results/
-
-**Texans WR Diggs leaves win over Colts with knee injury**\
-`Houston is already without star receiver Nico Collins, who is on injured reserve.`\
-https://nytimes.com/athletic/5876997/2024/10/27/houston-texans-stefon-diggs-injury/
 
