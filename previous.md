@@ -1,3 +1,7 @@
+**Michelle Obama Makes a Searing Appeal to Men: ‘Take Our Lives Seriously’**\
+`The former first lady portrayed a second Trump administration as dire for American women. And she castigated the media and many voters for holding Kamala Harris to a higher standard than Donald Trump.`\
+https://nytimes.com/2024/10/26/us/politics/harris-michelle-obama-michigan.html
+
 **Manfred: Rays expected to have stadium situation figured out by Christmas**\
 `Plus notes on ratings for Game 1 of the World Series and why MLB is fine with the A's and River Cats playing on grass in Sacramento. `\
 https://nytimes.com/athletic/5875136/2024/10/26/rob-manfred-tampa-bay-rays-stadium-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/26/world/asia/india-temple-laddu.html
 **Trump, Who Once Proposed a Muslim Registry, Now Courts Their Votes**\
 `The former president is reaching out to Muslim and Arab American voters in Michigan, a key battleground state.`\
 https://nytimes.com/2024/10/26/us/politics/trump-muslim-arab-american-voters-michigan.html
-
-**New York Mayor Says Trump Should Not Be Called ‘Fascist,’ Breaking With Harris and Party**\
-`Mayor Eric Adams of New York, an embattled Democrat who has been indicted on federal corruption charges, has been careful in what he says about the former president.`\
-https://nytimes.com/2024/10/26/us/politics/trump-fascist-mayor-adams.html
 

@@ -1,3 +1,7 @@
+**Michelle Obama Makes a Searing Appeal to Men: ‘Take Our Lives Seriously’**\
+`The former first lady portrayed a second Trump administration as dire for American women. And she castigated the media and many voters for holding Kamala Harris to a higher standard than Donald Trump.`\
+https://nytimes.com/2024/10/26/us/politics/harris-michelle-obama-michigan.html
+
 **Fantasy football rankings Week 8: Sleepers, projections, starts, Jalen McMillan, Troy Franklin and more**\
 `Jake Ciely helps you with your Week 8 fantasy lineup, highlighting sleepers and key stats, and also shares his Top 10 road trip artists.`\
 https://nytimes.com/athletic/5864780/2024/10/26/fantasy-football-rankings-week-8-sleepers-projections-starts-jalen-mcmillan-troy-franklin-and-more/
