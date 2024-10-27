@@ -1,3 +1,7 @@
+**Harry Clarke's nightmare full Premier League debut - own goal, gave away a penalty and sent off**\
+`Clarke became the first player in Premier League history to endure all three on his full debut as Ipswich lost 4-3 at Brentford`\
+https://nytimes.com/athletic/5874447/2024/10/27/harry-clarke-premier-league-debut-own-goal-red-card/
+
 **After loss to Bruins, Craig Berube calls Leafs 'close' but not where he wants them to be**\
 `Even with a new coach in tow, so much of what plagued this core in the past has re-emerged through this mini-slump.`\
 https://nytimes.com/athletic/5875456/2024/10/27/leafs-close-craig-berube-bruins-overtime/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5870297/2024/10/27/jets-patriots-odds-picks-how-to-
 **Mourinho wants to manage a non-European Premier League team – so, who does he fit best?**\
 `Mourinho suggested he wanted to join an EPL side in the lower reaches of the division. Our writers analyse his suitability to those options`\
 https://nytimes.com/athletic/5872463/2024/10/27/jose-mourinho-premier-league-ranking/
-
-**Cardinals vs. Dolphins odds, picks, how to watch: Tagovailoa's expected return**\
-`Tua Tagovailoa's expected return Week 8 gives Miami Dolphins slide odds edge over Arizona Cardinals. `\
-https://nytimes.com/athletic/5870246/2024/10/27/cardinals-dolphins-odds-picks-how-to-watch-betting/
 
