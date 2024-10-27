@@ -1,3 +1,16 @@
+**Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
+`The Leafs needed a response game to point themselves back in the right direction but didn’t get one with a 4-3 loss to the Bruins.
+`\
+https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
+
+**Dodgers cruise but Shohei Ohtani injured in Game 2 victory over Yankees: Takeaways**\
+`LOS ANGELES — The Los Angeles Dodgers are halfway to a championship in this World Series, dispatching the New York Yankees in Game 2 on Saturday, 4-2, behind one-hit pitching from Yoshinobu Yamamoto and three home runs from their offense.`\
+https://nytimes.com/athletic/5875068/2024/10/26/dodgers-yankees-world-series-game-2-takeaways/
+
+**Dodgers seize 2-0 lead over Yankees in World Series; Shohei Ohtani leaves with injury**\
+`Dodgers slam three homers, take 2-0 series lead, but Ohtani leaves with apparent shoulder injury`\
+https://nytimes.com/athletic/5875245/2024/10/26/world-series-game-2-yankees-dodgers/
+
 **Michigan gets it right at QB, shows it hasn't quit on season in win over Michigan State**\
 `The rivals have a history of confrontations, and there was a brief shoving match after the final play that had players converge at midfield.`\
 https://nytimes.com/athletic/5875220/2024/10/26/michigan-msu-result-takeaways/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5875214/2024/10/26/rangers-ducks-takeaways-analysis
 **Penn State QB Drew Allar leaves Wisconsin game with apparent injury**\
 `Backup QB Beau Pribula has stepped in for Penn State.`\
 https://nytimes.com/athletic/5875210/2024/10/26/drew-allar-injury-penn-state-wisconsin/
-
-**‘This Is Real’: Excerpts From Michelle Obama’s Speech on the Election**\
-`Michelle Obama made a striking speech about the consequences that the election will have for women’s bodies and reproductive health.`\
-https://nytimes.com/2024/10/26/us/politics/michelle-obama-speech-harris-michigan.html
-
-**F1 Mexico City GP preview: Ferrari primed after Red Bull, McLaren setbacks**\
-`Carlos Sainz's pole position sets up Ferrari to jump feet-first into the championship fight on Sunday. `\
-https://nytimes.com/athletic/5875072/2024/10/26/f1-mexico-gp-preview-ferrari-mclaren-red-bull/
-
-**Michelle Obama Makes a Searing Appeal to Men: ‘Take Our Lives Seriously’**\
-`The former first lady portrayed a second Trump administration as dire for American women. And she castigated the media and many voters for holding Kamala Harris to a higher standard than Donald Trump.`\
-https://nytimes.com/2024/10/26/us/politics/harris-michelle-obama-michigan.html
 
