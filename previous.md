@@ -1,3 +1,7 @@
+**Yoshinobu Yamamoto shines in World Series as Dodgers' 2-0 edge takes on extra importance**\
+`Yamamoto's gem gives provides a cushion if the Dodgers lose Shohei Ohtani to injury.`\
+https://nytimes.com/athletic/5875523/2024/10/27/yoshinobu-yamamoto-shines-in-world-series-as-dodgers-2-0-edge-takes-on-extra-importance/
+
 **J.T. Miller, Canucks blitz Penguins in 4th consecutive win: 3 takeaways**\
 `In a span of 65 seconds, Vancouver went from trailing Pittsburgh 2-0 to gaining a 3-2 advantage.`\
 https://nytimes.com/athletic/5875238/2024/10/27/jt-miller-canucks-blitz-penguins-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872649/2024/10/27/colts-texans-odds-picks-how-to-w
 **Clippers spoil Russell Westbrook's revenge game in Denver**\
 `Though Denver completed a 25-point turnaround to lead 87-80 with 6:55 remaining, LA escaped with a 109-104 road win Saturday.`\
 https://nytimes.com/athletic/5875216/2024/10/27/clippers-spoil-russell-westbrooks-revenge-game/
-
-**Packers vs. Jaguars odds, picks, how to watch: Green Bay favored on the road**\
-`The Green Bay Packers are a contender in the NFL's best division this year. They're favored in Jacksonville.`\
-https://nytimes.com/athletic/5872622/2024/10/27/packers-jaguars-odds-picks-how-to-watch-betting/
 
