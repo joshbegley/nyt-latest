@@ -1,3 +1,7 @@
+**Patriots' Drake Maye exits vs. Jets with concussion**\
+`Upon exiting against the Jets, Maye led the team in rushing with 46 yards and a rushing touchdown and finished 3-for-6 for 23 yards passing.`\
+https://nytimes.com/athletic/5876680/2024/10/27/drake-maye-injury-patriots-jets/
+
 **Michelle Obama’s Plain Words in a Plain Suit**\
 `Who needs a slogan tee when your outfit can say it all?`\
 https://nytimes.com/2024/10/27/style/michelle-obama-harris-rally-suit.html
