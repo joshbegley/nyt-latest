@@ -1,3 +1,15 @@
+**After loss to Bruins, Craig Berube calls Leafs 'close' but not where he wants them to be**\
+`Even with a new coach in tow, so much of what plagued this core in the past has re-emerged through this mini-slump.`\
+https://nytimes.com/athletic/5875456/2024/10/27/leafs-close-craig-berube-bruins-overtime/
+
+**Arsenal vs Liverpool: Who is this game most important for? Form? Key player? Predictions?**\
+`Arsenal play Liverpool in the Premier League this afternoon - The Athletic writers who cover each club have their say`\
+https://nytimes.com/athletic/5872136/2024/10/27/arsenal-liverpool-preview-predictions/
+
+**The goalkeeper who hopes Ballon d'Or trip will open doors for African players**\
+`Ronwen Williams is South Africa's No 1 - and has been nominated for the Yashin Trophy, the goalkeeper of the year award. He wants to inspire`\
+https://nytimes.com/athletic/5863361/2024/10/27/ronwen-williams-yashin-trophy-ballon-dor/
+
 **Colts vs. Texans odds, expert picks, how to watch: Battle No. 2 for top of AFC South**\
 `The Texans and Colts meet for the second time this season with C.J. Stroud and Co. favored to win again. `\
 https://nytimes.com/athletic/5872649/2024/10/27/colts-texans-odds-picks-how-to-watch-betting/
