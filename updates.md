@@ -1,3 +1,7 @@
+**David Harris, Actor in the Cult Classic ‘The Warriors,’ Dies at 75**\
+`He played Cochise, a member of the Warriors gang who navigated a panoply of costumed aggressors in New York City.`\
+https://nytimes.com/2024/10/27/movies/david-harris-dead-warriors.html
+
 **Sampson: What did Notre Dame learn from early NIU upset? How not to let it happen again**\
 `Notre Dame dominating Navy was another step toward making the NIU loss a mere setback on the CFP path rather than a defining moment.`\
 https://nytimes.com/athletic/5875894/2024/10/27/notre-dame-navy-marcus-freeman-niu/
