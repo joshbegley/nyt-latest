@@ -1,3 +1,8 @@
+**Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
+`The Leafs needed a response game to point themselves back in the right direction but didn't get one with a 4-3 loss to the Bruins.
+`\
+https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
+
 **Marcel Reed, Texas A&M takes solo SEC lead after furious rally past LSU**\
 `With a month left in the season, there’s only one team unbeaten in SEC play.`\
 https://nytimes.com/athletic/5875301/2024/10/26/texas-am-lsu-sec-standings-marcel-reed/
