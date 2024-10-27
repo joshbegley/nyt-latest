@@ -1,3 +1,7 @@
+**Jets vs. Patriots odds, picks, how to watch: Jets try to regain form as favorites over Pats**\
+`Aaron Rodgers and Davante Adams look to reignite chemistry in Week 8, as the Jets are heavily favored over the Patriots. `\
+https://nytimes.com/athletic/5870297/2024/10/27/jets-patriots-odds-picks-how-to-watch-betting/
+
 **Mourinho wants to manage a non-European Premier League team – so, who does he fit best?**\
 `Mourinho suggested he wanted to join an EPL side in the lower reaches of the division. Our writers analyse his suitability to those options`\
 https://nytimes.com/athletic/5872463/2024/10/27/jose-mourinho-premier-league-ranking/
