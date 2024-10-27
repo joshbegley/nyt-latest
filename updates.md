@@ -1,3 +1,7 @@
+**Tropical Storm Trami Hits Vietnam After Killing Dozens in the Philippines**\
+`The storm made landfall near Danang on Sunday after leaving at least 80 people dead last week.`\
+https://nytimes.com/2024/10/27/world/asia/tropical-storm-trami-vietnam-phillipines.html
+
 **Inside The Washington Post’s Decision to Stop Presidential Endorsements**\
 `Post owner Jeff Bezos ended the decades-long practice, weeks after a discussion at a meeting in Miami. The move has drawn criticism in and outside the newsroom.`\
 https://nytimes.com/2024/10/27/business/media/washington-post-president-endorsement.html
