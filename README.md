@@ -1,3 +1,7 @@
+**Bills vs. Seahawks odds, picks, how to watch: Bills road favorites with Allen rolling**\
+`Coming off a decisive divisional win, the Seahawks aim to slow Josh Allen and the Bills on the West Coast.`\
+https://nytimes.com/athletic/5872693/2024/10/27/bills-seahawks-odds-picks-how-to-watch-betting/
+
 **Saints vs. Chargers odds, picks, how to watch: Chargers big favorites over hobbled Saints**\
 `The Saints head to LA on a five-game losing streak, while the Chargers look to bounce back from a Week 7 loss.`\
 https://nytimes.com/athletic/5872676/2024/10/27/saints-chargers-odds-picks-how-to-watch-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/nyregion/gravestones-cemeteries-gravetok.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/27/crosswords/spelling-bee-forum.html
-
-**Aaron Judge's October failures on full display in World Series**\
-`After Game 2, Judge is 6-for-40 with 19 strikeouts this October, and is 0-for-5 with runners on base in the World Series. `\
-https://nytimes.com/athletic/5874065/2024/10/27/dodgers-yankees-world-series-aaron-judge-struggles/
 
