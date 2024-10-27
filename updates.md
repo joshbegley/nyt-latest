@@ -1,3 +1,7 @@
+**F1 Mexico City GP preview: Ferrari primed after Red Bull, McLaren setbacks**\
+`Carlos Sainz's pole position sets up Ferrari to jump feet-first into the championship fight on Sunday. `\
+https://nytimes.com/athletic/5875072/2024/10/26/f1-mexico-gp-preview-ferrari-mclaren-red-bull/
+
 **Michelle Obama Makes a Searing Appeal to Men: ‘Take Our Lives Seriously’**\
 `The former first lady portrayed a second Trump administration as dire for American women. And she castigated the media and many voters for holding Kamala Harris to a higher standard than Donald Trump.`\
 https://nytimes.com/2024/10/26/us/politics/harris-michelle-obama-michigan.html
