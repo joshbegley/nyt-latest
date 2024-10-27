@@ -1,3 +1,19 @@
+**Review: ‘We Live in Cairo’ Falls Short of Being Revolutionary**\
+`Egyptians stand up to their government in a play that excels in its design but rings hollow when its subtext and character development are scrutinized.`\
+https://nytimes.com/2024/10/27/theater/we-live-in-cairo-review.html
+
+**Pushing employers to “more aggressive programs”**\
+`In a 2020 presentation, UMR outlined plans to push employers to potentially more lucrative cost-savings offerings.`\
+https://nytimes.com/interactive/2024/10/27/us/unitedhealthcare-force-aggressive-program.html
+
+**UnitedHealthcare fee revenue**\
+`In a 2018 presentation, UnitedHealthcare noted the substantial fees it collected per year for its out-of-network savings programs.`\
+https://nytimes.com/interactive/2024/10/27/us/unitedhealthcare-fee-revenue.html
+
+**Trump Rally Opens With Insults Aimed at Latino, Black, Jewish and Arab American Voters**\
+`Donald J. Trump’s rally at Madison Square Garden began with warm-up speakers who made a litany of racist remarks, vulgar insults and profanity-laden comments.`\
+https://nytimes.com/2024/10/27/us/politics/trump-hinchcliffe-msg.html
+
 **Anthony Richardson says he called to be subbed out because he was 'tired'**\
 `The Colts went on to lose 23-20, their fourth defeat of the season. Richardson started the game by missing on 13 of his first 15 attempts.`\
 https://nytimes.com/athletic/5877467/2024/10/27/anthony-richardson-colts-tired-comments/
