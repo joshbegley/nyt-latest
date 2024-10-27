@@ -1,3 +1,11 @@
+**Claire Daly, Master of the Baritone Saxophone, Dies at 66**\
+`She was celebrated for both her playing and her love of the jazz community. “My life in music,” she said recently, “is the smartest thing I’ve done.”`\
+https://nytimes.com/2024/10/27/arts/music/claire-daly-dead.html
+
+**Kylian Mbappe’s curious Clasico debut: Offside frustration and clipped confidence**\
+`The France international set an unwanted record after being flagged offside eight times as Barcelona ran out comfortable winners in Madrid`\
+https://nytimes.com/athletic/5875841/2024/10/27/kylian-mbappe-real-madrid-barcelona-clasico-offside/
+
 **Caitlin Clark, Indiana Fever championship timeline accelerated by sudden coaching change**\
 `The Fever reportedly have been talking to Connecticut coach Stephanie White. Will she return to Indianapolis?`\
 https://nytimes.com/athletic/5876979/2024/10/27/indiana-fever-coach-fired-caitlin-clark-wnba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5866715/2024/10/27/nfl-week-8-fantasy-football-inju
 **Shohei Ohtani to play in Game 3 of World Series after shoulder injury**\
 `The World Series resumes Monday with the Yankees needing a victory at home to avoid falling behind 3-0 in the best-of-seven series.`\
 https://nytimes.com/athletic/5876710/2024/10/27/shohei-ohtani-injury-dodgers-world-series/
-
-**Jayden Daniels to start Week 8 in rookie duel vs. Caleb Williams, Bears**\
-`This will mark the sixth time in NFL history that quarterbacks picked No. 1 and No. 2 face off in their rookie season.`\
-https://nytimes.com/athletic/5876207/2024/10/27/bears-commanders-score-jayden-daniels-takeaways-results/
-
-**U.S. Navy Apologizes for the 1882 Bombardment of an Alaska Village**\
-`The bombardment and burning of Angoon, in southwestern Alaska, led to widespread suffering and “inflicted intergenerational trauma,” an official said.`\
-https://nytimes.com/2024/10/27/us/navy-tinglit-alaska-apology.html
 
