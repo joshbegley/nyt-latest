@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5875330/2024/10/27/penguins-lose-to-canucks-yohe-10
 https://nytimes.com/athletic/5875519/2024/10/27/colorado-football-bowl-eligibility-deion-sanders/
 
 **LeBron James posts 'surreal' triple-double in Lakers' win over Kings**\
-`James finished with 32 points, 14 rebounds and 10 assists. All three marks were season-highs for the 39-year-old in his 22nd season.`\
+`James finished with 32 points, 14 rebounds and 10 assists. All three marks were season highs for the 39-year-old in his 22nd season.`\
 https://nytimes.com/athletic/5875526/2024/10/27/lebron-james-lakers-kings-triple-double/
 
 **Travis Hunter tracker: Colorado star re-energizes Heisman campaign with electrifying night**\
