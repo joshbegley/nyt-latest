@@ -1,3 +1,11 @@
+**Packers' Willis, Jacobs power 30-27 win over Jaguars: Takeaways**\
+`A clutch 51-yard play from Malik Willis set up a game-winning field goal despite the Packers' two-minute defensive struggles.`\
+https://nytimes.com/athletic/5875869/2024/10/27/packers-jaguars-score-takeaways-results/
+
+**Texans hang on to knock off AFC South rival Colts 23-20: Takeaways**\
+`Joe Mixon tallied 102 rushing yards on 25 carries and a touchdown, while C.J. Stroud threw for 285 yards with one TD in the win.`\
+https://nytimes.com/athletic/5875866/2024/10/27/colts-texans-takeaways-result/
+
 **Cardinals spoil Tua Tagovailoa's return with last-second FG to win 28-27: Takeaways**\
 `The Dolphins were in control through most of the contest, as Tagovailoa saw his first game action since suffering a concussion in Week 2.`\
 https://nytimes.com/athletic/5875873/2024/10/27/dolphins-cardinals-score-takeaways-result/
