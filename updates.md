@@ -1,3 +1,7 @@
+**Slot says he was unfairly booked against Arsenal**\
+`Arne Slot says he was unfairly shown a yellow card by referee Anthony Taylor during Liverpool&#8217;s 2-2 draw with Arsenal at the Emirates Stadium.`\
+https://nytimes.com/athletic/5877075/2024/10/27/arne-slot-yellow-card-liverpool-arsenal/
+
 **Claire Daly, Master of the Baritone Saxophone, Dies at 66**\
 `She was celebrated for both her playing and her love of the jazz community. “My life in music,” she said recently, “is the smartest thing I’ve done.”`\
 https://nytimes.com/2024/10/27/arts/music/claire-daly-dead.html
