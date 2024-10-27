@@ -1,3 +1,7 @@
+**What we learned watching the World Series with four major leaguers**\
+`Big league veterans Jameson Taillon, Tucker Barnhart, Rob Refsnyder and Max Stassi help us to break down all the action in Games 1 and 2. `\
+https://nytimes.com/athletic/5875379/2024/10/27/watching-world-series-with-major-leaguers/
+
 **Tropical Storm Trami Hits Vietnam After Killing Dozens in the Philippines**\
 `The storm made landfall near Danang on Sunday after leaving at least 80 people dead last week.`\
 https://nytimes.com/2024/10/27/world/asia/tropical-storm-trami-vietnam-phillipines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875226/2024/10/27/nebraska-ohio-state-college-foot
 **Trump and Harris Scrap for Georgia as Supporters Brace for a Photo Finish**\
 `Georgia has seen a flurry of activity underlining both parties’ recognition that, once again, the state is anyone’s to win.`\
 https://nytimes.com/2024/10/27/us/politics/trump-and-harris-scrap-for-georgia-as-supporters-brace-for-a-photo-finish.html
-
-**New-York Historical Society Gets a New Name and a New Wing**\
-`The museum will now be called the New York Historical and will name a new Wing for American Democracy after two major benefactors, H.M. Agnes Hsu-Tang and Oscar L. Tang.`\
-https://nytimes.com/2024/10/27/arts/design/new-york-historical-society-new-name.html
 

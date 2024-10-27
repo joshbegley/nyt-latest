@@ -1,3 +1,7 @@
+**What we learned watching the World Series with four major leaguers**\
+`Big league veterans Jameson Taillon, Tucker Barnhart, Rob Refsnyder and Max Stassi help us to break down all the action in Games 1 and 2. `\
+https://nytimes.com/athletic/5875379/2024/10/27/watching-world-series-with-major-leaguers/
+
 **Tropical Storm Trami Hits Vietnam After Killing Dozens in the Philippines**\
 `The storm made landfall near Danang on Sunday after leaving at least 80 people dead last week.`\
 https://nytimes.com/2024/10/27/world/asia/tropical-storm-trami-vietnam-phillipines.html
