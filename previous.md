@@ -1,3 +1,7 @@
+**Colorado reaches bowl eligibility in Deion's Year 2 by downing Cincinnati**\
+`Colorado hasn’t played in a bowl game since it went 4-2 in the pandemic-shortened 2020 season.`\
+https://nytimes.com/athletic/5875519/2024/10/27/colorado-football-bowl-eligibility-deion-sanders/
+
 **LeBron James posts 'surreal' triple-double in Lakers' win over Kings**\
 `James finished with 32 points, 14 rebounds and 10 assists. All three marks were season-highs for the 39-year-old in his 22nd season.`\
 https://nytimes.com/athletic/5875526/2024/10/27/lebron-james-lakers-kings-triple-double/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5875448/2024/10/27/travis-hunter-nfl-draft-2025-cin
 `Yamamoto's gem gives provides a cushion if the Dodgers lose Shohei Ohtani to injury.`\
 https://nytimes.com/athletic/5875523/2024/10/27/yankees-dodgers-world-series-yoshinobu-yamamoto/
 
-**J.T. Miller, Canucks blitz Penguins in 4th consecutive win: 3 takeaways**\
+**J.T. Miller, Canucks blitz Penguins in fourth consecutive win: 3 takeaways**\
 `In a span of 65 seconds, Vancouver went from trailing Pittsburgh 2-0 to gaining a 3-2 advantage.`\
 https://nytimes.com/athletic/5875238/2024/10/27/jt-miller-canucks-blitz-penguins-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875456/2024/10/27/leafs-close-craig-berube-bruins-
 **Arsenal vs Liverpool: Who is this game most important for? Form? Key player? Predictions?**\
 `Arsenal play Liverpool in the Premier League this afternoon - The Athletic writers who cover each club have their say`\
 https://nytimes.com/athletic/5872136/2024/10/27/arsenal-liverpool-preview-predictions/
-
-**The goalkeeper who hopes Ballon d'Or trip will open doors for African players**\
-`Ronwen Williams is South Africa's No 1 - and has been nominated for the Yashin Trophy, the goalkeeper of the year award. He wants to inspire`\
-https://nytimes.com/athletic/5863361/2024/10/27/ronwen-williams-yashin-trophy-ballon-dor/
 

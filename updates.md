@@ -1,3 +1,11 @@
+**Colorado reaches bowl eligibility in Deion's Year 2 by downing Cincinnati**\
+`Colorado hasn’t played in a bowl game since it went 4-2 in the pandemic-shortened 2020 season.`\
+https://nytimes.com/athletic/5875519/2024/10/27/colorado-football-bowl-eligibility-deion-sanders/
+
+**J.T. Miller, Canucks blitz Penguins in fourth consecutive win: 3 takeaways**\
+`In a span of 65 seconds, Vancouver went from trailing Pittsburgh 2-0 to gaining a 3-2 advantage.`\
+https://nytimes.com/athletic/5875238/2024/10/27/jt-miller-canucks-blitz-penguins-takeaways/
+
 **LeBron James posts 'surreal' triple-double in Lakers' win over Kings**\
 `James finished with 32 points, 14 rebounds and 10 assists. All three marks were season-highs for the 39-year-old in his 22nd season.`\
 https://nytimes.com/athletic/5875526/2024/10/27/lebron-james-lakers-kings-triple-double/
