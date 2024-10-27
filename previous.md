@@ -1,3 +1,7 @@
+**Behind the Tactical Gains Against Iran, a Longer-Term Worry**\
+`Experts inside and outside the Biden administration fear that Iran may conclude it has only one defense left: racing for an atomic weapon.`\
+https://nytimes.com/2024/10/27/us/politics/iran-israel-strikes-tehran.html
+
 **Political Crisis Looms for Republic of Georgia After Disputed Election**\
 `The ruling Georgia Dream party won a majority in the vote. The opposition, which fears the country is moving away from the West, says the voting was not fair and that it will not appear in Parliament.`\
 https://nytimes.com/2024/10/27/world/europe/political-crisis-looms-for-republic-of-georgia-after-disputed-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5859784/2024/10/27/adam-johnson-death-manslaughter-
 **Here’s the latest on the presidential race.**\
 `Fo`\
 https://nytimes.com/live/2024/10/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump Aims for Show of Strength at Madison Square Garden Rally**\
-`With Election Day just over a week away, Donald J. Trump will rally in the heart of a solidly blue state. Vice President Kamala Harris is scheduled to campaign in Philadelphia.`\
-https://nytimes.com/live/2024/10/27/us/harris-trump-election
 
