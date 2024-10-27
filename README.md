@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-leag
 
 **An Israeli strike on the city of Sidon kills eight people, Lebanon’s health ministry says.**\
 `By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/an-israeli-strike-on-the-city-of-sidon-kills-eight-people-lebanons-health-ministry-says
+https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.html
 
 **The Briefing: West Ham 2 Man United 1 - Dalot's miss, penalty drama and is Ten Hag's time up?**\
 `All the key talking points from Manchester United's damaging loss to West Ham analysed and evaluated by our correspondent`\
