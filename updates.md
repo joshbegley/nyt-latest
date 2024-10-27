@@ -1,3 +1,11 @@
+**Mourinho wants to manage a non-European Premier League team – so, who does he fit best?**\
+`Mourinho suggested he wanted to join an EPL side in the lower reaches of the division. Our writers analyse his suitability to those options`\
+https://nytimes.com/athletic/5872463/2024/10/27/jose-mourinho-premier-league-ranking/
+
+**Cardinals vs. Dolphins odds, picks, how to watch: Tagovailoa's expected return**\
+`Tua Tagovailoa's expected return Week 8 gives Miami Dolphins slide odds edge over Arizona Cardinals. `\
+https://nytimes.com/athletic/5870246/2024/10/27/cardinals-dolphins-odds-picks-how-to-watch-betting/
+
 **Living on a Volcano’s Edge, Italians Practice for Disaster**\
 `The Italian authorities carried out a drill of their plan to save a half-million people from toxic fumes, deadly quakes or a full eruption. Vesuvius isn’t the volcano they’re worried about.`\
 https://nytimes.com/2024/10/27/world/europe/naples-volcano-campi-flegrei-disaster-plan.html
