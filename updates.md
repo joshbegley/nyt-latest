@@ -1,3 +1,7 @@
+**Aaron Judge's October failures on full display in World Series**\
+`After Game 2, Judge is 6-for-40 with 19 strikeouts this October, and is 0-for-5 with runners on base in the World Series. `\
+https://nytimes.com/athletic/5874065/2024/10/27/dodgers-yankees-world-series-aaron-judge-struggles/
+
 **LeBron James posts 'surreal' triple-double in Lakers' win over Kings**\
 `James finished with 32 points, 14 rebounds and 10 assists. All three marks were season highs for the 39-year-old in his 22nd season.`\
 https://nytimes.com/athletic/5875526/2024/10/27/lebron-james-lakers-kings-triple-double/
