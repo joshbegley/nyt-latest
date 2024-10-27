@@ -1,3 +1,23 @@
+**Pro-Harris Super PAC Raises Concerns About Focusing on Trump and Fascism**\
+`The group, Future Forward, warned that attacking Donald J. Trump as a fascist or questioning his character or stamina are less effective than highlighting Kamala Harris’s proposals.`\
+https://nytimes.com/2024/10/27/us/politics/harris-trump-campaign-message.html
+
+**Trump Supporters Line Up Early at Madison Square Garden**\
+`Many of the sights of a Trump rally were familiar, if the setting was not: the heart of Manhattan, where registered Democrats outnumber Republicans by about 10 to 1.`\
+https://nytimes.com/2024/10/27/us/politics/trump-msg-rally-line.html
+
+**Arsenal waiting to learn extent of Gabriel, Timber injuries - Arteta**\
+`Arsenal are waiting to discover the extent of the apparent injuries sustained by Gabriel and Jurrien Timber during Sunday’s 2-2 home draw with Liverpool.`\
+https://nytimes.com/athletic/5876942/2024/10/27/gabriel-timber-injury-arsenal/
+
+**NFL Week 8 fantasy football, betting cheat sheet: Jayden Daniels will start against Chicago**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5866715/2024/10/27/nfl-week-8-fantasy-football-injuries-rankings-betting/
+
+**Shohei Ohtani to play in Game 3 of World Series after shoulder injury**\
+`The World Series resumes Monday with the Yankees needing a victory at home to avoid falling behind 3-0 in the best-of-seven series.`\
+https://nytimes.com/athletic/5876710/2024/10/27/shohei-ohtani-injury-dodgers-world-series/
+
 **Michelle Obama’s Plain Words in a Plain Suit**\
 `Who needs a slogan tee when your outfit can say it all?`\
 https://nytimes.com/2024/10/27/style/michelle-obama-harris-rally-suit.html
