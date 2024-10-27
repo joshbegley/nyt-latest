@@ -1,3 +1,7 @@
+**What Pep Guardiola really means when he is nice about a struggling manager**\
+`There are quite a few Pep Guardiola memes but one of the more prevalent is, well, him being nice about another manager...`\
+https://nytimes.com/athletic/5874660/2024/10/27/pep-guardiola-rusell-martin-manager/
+
 **Harry Clarke's nightmare full Premier League debut - own goal, gave away a penalty and sent off**\
 `Clarke became the first player in Premier League history to endure all three on his full debut as Ipswich lost 4-3 at Brentford`\
 https://nytimes.com/athletic/5874447/2024/10/27/harry-clarke-premier-league-debut-own-goal-red-card/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5870405/2024/10/27/falcons-buccaneers-odds-picks-ho
 **Jets vs. Patriots odds, picks, how to watch: Jets try to regain form as favorites over Pats**\
 `Aaron Rodgers and Davante Adams look to reignite chemistry in Week 8, as the Jets are heavily favored over the Patriots. `\
 https://nytimes.com/athletic/5870297/2024/10/27/jets-patriots-odds-picks-how-to-watch-betting/
-
-**Mourinho wants to manage a non-European Premier League team – so, who does he fit best?**\
-`Mourinho suggested he wanted to join an EPL side in the lower reaches of the division. Our writers analyse his suitability to those options`\
-https://nytimes.com/athletic/5872463/2024/10/27/jose-mourinho-premier-league-ranking/
 
