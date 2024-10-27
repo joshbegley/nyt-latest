@@ -1,3 +1,7 @@
+**Rice fires Mike Bloomgren after 2-6 start in 7th season**\
+`Bloomgren went 24-52 in six-plus seasons and guided the Owls to two bowl appearances. `\
+https://nytimes.com/athletic/5876974/2024/10/27/rice-mike-bloomgren-fired/
+
 **Packers' Love exits early vs. Jaguars with groin injury**\
 `Love was initially hobbled during Green Bay's first offensive series after landing awkwardly following a pass attempt.`\
 https://nytimes.com/athletic/5876621/2024/10/27/jordan-love-groin-injury-jaguars/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/us/navy-tinglit-alaska-apology.html
 **Nobody Walks in L.A.? Don’t Tell These Baseball Fans.**\
 `Anticipating the mess of traffic and parking at Dodger Stadium, many of the people who attended the first two games of the World Series found creative ways to get there.`\
 https://nytimes.com/2024/10/27/style/dodger-stadium-world-series-fans.html
-
-**Stewart Mandel's 12-team Playoff projections after Week 9**\
-`Oregon replaces Ohio State as the projected Big Ten champion and grabs the No. 2 seed. `\
-https://nytimes.com/athletic/5876711/2024/10/27/college-football-playoff-bracket-projections-week-9/
 
