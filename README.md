@@ -1,3 +1,11 @@
+**Jayden Daniels to start Week 8 in rookie duel vs. Caleb Williams, Bears**\
+`This will mark the sixth time in NFL history that quarterbacks picked No. 1 and No. 2 face off in their rookie season.`\
+https://nytimes.com/athletic/5876207/2024/10/27/bears-commanders-score-jayden-daniels-takeaways-results/
+
+**U.S. Navy Apologizes for the 1882 Bombardment of an Alaska Village**\
+`The bombardment and burning of Angoon, in southwestern Alaska, led to widespread suffering and “inflicted intergenerational trauma,” an official said.`\
+https://nytimes.com/2024/10/27/us/navy-tinglit-alaska-apology.html
+
 **Nobody Walks in L.A.? Don’t Tell These Baseball Fans.**\
 `Anticipating the mess of traffic and parking at Dodger Stadium, many of the people who attended the first two games of the World Series found creative ways to get there.`\
 https://nytimes.com/2024/10/27/style/dodger-stadium-world-series-fans.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5876680/2024/10/27/drake-maye-injury-patriots-jets/
 **Michelle Obama’s Plain Words in a Plain Suit**\
 `Who needs a slogan tee when your outfit can say it all?`\
 https://nytimes.com/2024/10/27/style/michelle-obama-harris-rally-suit.html
-
-**An Israeli strike in Beit Lahia killed dozens of people, Palestinian officials say.**\
-`By Hiba Yazbek and Gabby Sobelman`\
-https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/israel-strike-beit-lahia-gaza
-
-**Mr. Bezos Went to Washington. But He Never Arrived.**\
-`The billionaire made splashy purchases of The Washington Post and a mansion in Washington. But his status as a power player in the nation’s capital was never realized.`\
-https://nytimes.com/2024/10/27/technology/jeff-bezos-washington-post-dc.html
 
