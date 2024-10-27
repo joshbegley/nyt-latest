@@ -1,3 +1,7 @@
+**F1 Mexico City GP preview: Ferrari primed after Red Bull, McLaren setbacks**\
+`Carlos Sainz's pole position sets up Ferrari to jump feet-first into the championship fight on Sunday. `\
+https://nytimes.com/athletic/5875072/2024/10/26/f1-mexico-gp-preview-ferrari-mclaren-red-bull/
+
 **Michelle Obama Makes a Searing Appeal to Men: ‘Take Our Lives Seriously’**\
 `The former first lady portrayed a second Trump administration as dire for American women. And she castigated the media and many voters for holding Kamala Harris to a higher standard than Donald Trump.`\
 https://nytimes.com/2024/10/26/us/politics/harris-michelle-obama-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874992/2024/10/26/wild-flyers-loss-filip-gustavsso
 **The Curious Case of a Temple Sweet: How Food Increasingly Divides India**\
 `A Hindu politician has accused his Christian predecessor of allowing a temple’s sanctity to be violated with an animal product.`\
 https://nytimes.com/2024/10/26/world/asia/india-temple-laddu.html
-
-**Trump, Who Once Proposed a Muslim Registry, Now Courts Their Votes**\
-`The former president is reaching out to Muslim and Arab American voters in Michigan, a key battleground state.`\
-https://nytimes.com/2024/10/26/us/politics/trump-muslim-arab-american-voters-michigan.html
 
