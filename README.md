@@ -1,3 +1,7 @@
+**Michelle Obama’s Plain Words in a Plain Suit**\
+`Who needs a slogan tee when your outfit can say it all?`\
+https://nytimes.com/2024/10/27/style/michelle-obama-harris-rally-suit.html
+
 **An Israeli strike in Beit Lahia killed dozens of people, Palestinian officials say.**\
 `By Hiba Yazbek and Gabby Sobelman`\
 https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/israel-strike-beit-lahia-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.htm
 **The Briefing: West Ham 2 Man United 1 - Dalot's miss, penalty drama and is Ten Hag's time up?**\
 `All the key talking points from Manchester United's damaging loss to West Ham analysed and evaluated by our correspondent`\
 https://nytimes.com/athletic/5872318/2024/10/27/west-ham-man-utd-ten-hag-briefing/
-
-**Blue Jackets Sunday Gathering: Embrace of coach Dean Evason's system pays dividends**\
-`Columbus players are reluctant to hesitate last year's coaching, but there's clearly a difference.`\
-https://nytimes.com/athletic/5875842/2024/10/27/blue-jackets-evason-system/
 
