@@ -1,3 +1,19 @@
+**California Governor Proposes $750 Million in Annual Film Tax Credits**\
+`Gov. Gavin Newsom wants to more than double the amount the state offers in incentives, which would make its program one of the nation’s most generous.`\
+https://nytimes.com/2024/10/27/movies/california-governor-newsom-film-tax-credits.html
+
+**The Briefing: Crystal Palace 1 Tottenham 0 - Another poor away showing, did substitutions work?**\
+`Tottenham put in perhaps their worst performance of the season so far in losing meekly to a team that had previously not won a game...`\
+https://nytimes.com/athletic/5872333/2024/10/27/crystal-palace-1-tottenham-0/
+
+**Michigan responds to adversity: Final thoughts on a cathartic win over Michigan State**\
+`No one’s going to be fooled into thinking that Michigan solved all of its problems on Saturday night, but the Wolverines did enough to win. `\
+https://nytimes.com/athletic/5876272/2024/10/27/michigan-michigan-state-davis-warren/
+
+**The Briefing: Chelsea 2 Newcastle 1 - Palmer's pass, the visitors' Cobham influence and left-back James**\
+`The Athletic breaks down the major talking points as the home side prevailed in a tightly contested meeting at Stamford Bridge`\
+https://nytimes.com/athletic/5872203/2024/10/27/chelsea-newcastle-palmer-isak-james-briefing/
+
 **Beyoncé? Springsteen? Trump Fans Feel Both Anger and A-List Envy**\
 `Kamala Harris has many celebrities campaigning for her. It has uncorked complicated feelings for Donald Trump and his supporters.`\
 https://nytimes.com/2024/10/27/us/elections/donald-trump-bruce-springsteen-beyonce.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/27/business/media/tom-jarriel-dead.html
 **Review: ‘Il Trovatore’ at the Met Opera Doesn’t Catch Fire**\
 `The energy in Verdi’s classic must come from the singing, but the cast of this revival fails to convey the work’s passion.`\
 https://nytimes.com/2024/10/27/arts/music/review-met-trovatore-doesnt-catch-fire.html
-
-**Jill Stein’s Third-Party Candidacy**\
-`Readers discuss Democrats’ concerns that her bid will throw the election to Donald Trump. Also: Harris ads; drug-free treatments; regretting email.`\
-https://nytimes.com/2024/10/27/opinion/jill-stein-third-party.html
-
-**This 41-Year-Old Chicken Is Still Going Strong**\
-`Craig Claiborne’s smothered chicken is a New York Times Cooking classic, simple to make and ready for improvisations.`\
-https://nytimes.com/2024/10/27/dining/smothered-chicken-recipe.html
-
-**Until Saturday: Who's trending after Week 9? Plus, rivalry game fun**\
-`Welcome to Until Saturday, the five-star college football newsletter: Who's looking up and who's not after Week 9? `\
-https://nytimes.com/athletic/5875767/2024/10/27/college-football-week-9-rivalry-games-until-saturday/
-
-**The Pulse: A win, with a side of pain**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5876035/2024/10/27/ohtani-injury-world-series-nfl-the-pulse/
 
