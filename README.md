@@ -1,3 +1,7 @@
+**Slot says he was unfairly booked against Arsenal**\
+`Arne Slot says he was unfairly shown a yellow card by referee Anthony Taylor during Liverpool&#8217;s 2-2 draw with Arsenal at the Emirates Stadium.`\
+https://nytimes.com/athletic/5877075/2024/10/27/arne-slot-yellow-card-liverpool-arsenal/
+
 **Claire Daly, Master of the Baritone Saxophone, Dies at 66**\
 `She was celebrated for both her playing and her love of the jazz community. “My life in music,” she said recently, “is the smartest thing I’ve done.”`\
 https://nytimes.com/2024/10/27/arts/music/claire-daly-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5876942/2024/10/27/gabriel-timber-injury-arsenal/
 **NFL Week 8 fantasy football, betting cheat sheet: Jayden Daniels will start against Chicago**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more.`\
 https://nytimes.com/athletic/5866715/2024/10/27/nfl-week-8-fantasy-football-injuries-rankings-betting/
-
-**Shohei Ohtani to play in Game 3 of World Series after shoulder injury**\
-`The World Series resumes Monday with the Yankees needing a victory at home to avoid falling behind 3-0 in the best-of-seven series.`\
-https://nytimes.com/athletic/5876710/2024/10/27/shohei-ohtani-injury-dodgers-world-series/
 
