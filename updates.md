@@ -1,3 +1,20 @@
+**Why Justin Brazeau is the top fix for the Bruins' problem at No. 2 right wing — for now**\
+`In Boston's 4-3 win over Toronto, Brazeau proved he has the size and net-front touch to earn more time with Marchand and Charlie Coyle.`\
+https://nytimes.com/athletic/5875275/2024/10/26/bruins-brad-marchand-justin-brazeau/
+
+**Eagles vs. Bengals odds, picks, how to watch: Top-talent teams grasping for momentum**\
+`The Bengals will test their improving defense against a talented Eagles offensive cast as both teams try to cement momentum.`\
+https://nytimes.com/athletic/5870333/2024/10/26/eagles-bengals-odds-picks-how-to-watch-betting/
+
+**Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
+`The Leafs needed a response game to point themselves back in the right direction but didn't get one with a 4-3 loss to the Bruins.
+`\
+https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
+
+**Dodgers cruise but Shohei Ohtani injured in Game 2 victory over Yankees: Takeaways**\
+`The Los Angeles Dodgers are halfway to a championship in this World Series after a 4-2 win.`\
+https://nytimes.com/athletic/5875068/2024/10/26/dodgers-yankees-world-series-game-2-takeaways/
+
 **Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
 `The Leafs needed a response game to point themselves back in the right direction but didn't get one with a 4-3 loss to the Bruins.
 `\

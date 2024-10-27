@@ -1,10 +1,18 @@
+**Why Justin Brazeau is the top fix for the Bruins' problem at No. 2 right wing — for now**\
+`In Boston's 4-3 win over Toronto, Brazeau proved he has the size and net-front touch to earn more time with Marchand and Charlie Coyle.`\
+https://nytimes.com/athletic/5875275/2024/10/26/bruins-brad-marchand-justin-brazeau/
+
+**Eagles vs. Bengals odds, picks, how to watch: Top-talent teams grasping for momentum**\
+`The Bengals will test their improving defense against a talented Eagles offensive cast as both teams try to cement momentum.`\
+https://nytimes.com/athletic/5870333/2024/10/26/eagles-bengals-odds-picks-how-to-watch-betting/
+
 **Maple Leafs report cards: Turnovers continue to prove costly in OT loss to Bruins**\
 `The Leafs needed a response game to point themselves back in the right direction but didn't get one with a 4-3 loss to the Bruins.
 `\
 https://nytimes.com/athletic/5875202/2024/10/26/maple-leafs-bruins-grades-analysis/
 
 **Dodgers cruise but Shohei Ohtani injured in Game 2 victory over Yankees: Takeaways**\
-`LOS ANGELES — The Los Angeles Dodgers are halfway to a championship in this World Series, dispatching the New York Yankees in Game 2 on Saturday, 4-2, behind one-hit pitching from Yoshinobu Yamamoto and three home runs from their offense.`\
+`The Los Angeles Dodgers are halfway to a championship in this World Series after a 4-2 win.`\
 https://nytimes.com/athletic/5875068/2024/10/26/dodgers-yankees-world-series-game-2-takeaways/
 
 **Dodgers seize 2-0 lead over Yankees in World Series; Shohei Ohtani leaves with injury**\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5875296/2024/10/26/shohei-ohtani-injury-dodgers/
 **For First Time in Decades, Japan Votes in a Knife-Edge Election**\
 `The Japanese electorate seemed poised to punish the Liberal Democrats, even if it does not go so far as to hand power to the opposition.`\
 https://nytimes.com/2024/10/26/world/asia/japan-election.html
-
-**How Jonathan Quick's and Artemi Panarin's defensive play led Rangers to win: 4 takeaways**\
-`Quick's acrobatics in net and a key defensive play from Panarin helped New York top Anaheim 2-1.`\
-https://nytimes.com/athletic/5875214/2024/10/26/rangers-ducks-takeaways-analysis/
-
-**Penn State QB Drew Allar leaves Wisconsin game with apparent injury**\
-`Backup QB Beau Pribula has stepped in for Penn State.`\
-https://nytimes.com/athletic/5875210/2024/10/26/drew-allar-injury-penn-state-wisconsin/
 
