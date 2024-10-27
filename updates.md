@@ -1,3 +1,27 @@
+**The Newspaper That Almost Was**\
+`Reporters and editors at The New York Times had diligently prepared for one outcome of the 2016 presidential race. Then the election results poured in.`\
+https://nytimes.com/2024/10/27/insider/madam-president-hillary-clinton.html
+
+**‘She Pulled a Packet of Tissues From Her Bag and Tried to Take One Out’**\
+`Taming a tantrum on the 4 train, a scoop that got away in Ridgewood and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/10/27/nyregion/metropolitan-diary.html
+
+**For Investors, What if This Time Is Different?**\
+`Disregarding politics has worked brilliantly in the United States for a century. But market history offers comfort only up to a point, our columnist says.`\
+https://nytimes.com/2024/10/27/business/market-history-elections-disasters.html
+
+**He Transformed the Red Carpet. Now What?**\
+`For Daniel Roseberry, getting attention for Schiaparelli was the easy part. Now he needs to build a business.`\
+https://nytimes.com/2024/10/27/style/schiaparelli-daniel-roseberry.html
+
+**Removing Moss and Grime From Gravestones, She Reveals Forgotten History**\
+`As she scrubs centuries’ worth of dirt and mold off gravestones, Katie DeRaddo tells her TikTok followers the stories of those buried beneath them.`\
+https://nytimes.com/2024/10/27/nyregion/gravestones-cemeteries-gravetok.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/27/crosswords/spelling-bee-forum.html
+
 **Aaron Judge's October failures on full display in World Series**\
 `After Game 2, Judge is 6-for-40 with 19 strikeouts this October, and is 0-for-5 with runners on base in the World Series. `\
 https://nytimes.com/athletic/5874065/2024/10/27/dodgers-yankees-world-series-aaron-judge-struggles/
