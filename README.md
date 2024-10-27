@@ -1,3 +1,7 @@
+**Patriots' Drake Maye exits vs. Jets with concussion**\
+`Upon exiting against the Jets, Maye led the team in rushing with 46 yards and a rushing touchdown and finished 3-for-6 for 23 yards passing.`\
+https://nytimes.com/athletic/5876680/2024/10/27/drake-maye-injury-patriots-jets/
+
 **Michelle Obama’s Plain Words in a Plain Suit**\
 `Who needs a slogan tee when your outfit can say it all?`\
 https://nytimes.com/2024/10/27/style/michelle-obama-harris-rally-suit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-leag
 **Israeli Strike in Sidon Kills Eight People, Lebanon’s Health Ministry Says**\
 `Israel’s military did not provide an immediate comment on the strike, but said earlier on Sunday that it was carrying out “targeted ground raids” in southern Lebanon.`\
 https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.html
-
-**The Briefing: West Ham 2 Man United 1 - Dalot's miss, penalty drama and is Ten Hag's time up?**\
-`All the key talking points from Manchester United's damaging loss to West Ham analysed and evaluated by our correspondent`\
-https://nytimes.com/athletic/5872318/2024/10/27/west-ham-man-utd-ten-hag-briefing/
 
