@@ -1,3 +1,11 @@
+**Real Madrid's Clasico humiliation points to problems on and off the pitch**\
+`Madrid's 4-0 defeat to Barcelona came as a shock. But the issues appear to be deep-rooted`\
+https://nytimes.com/athletic/5875784/2024/10/27/real-madrid-clasico-defeat-problems/
+
+**A Classical Music Discovery**\
+`An unknown waltz by Chopin has been found.`\
+https://nytimes.com/2024/10/27/briefing/chopin-lang-lang-classical-music.html
+
 **Four Lessons From Nine Years of Being ‘Never Trump’**\
 `What do I wish my 2024 self could travel back and say to 2015 me?`\
 https://nytimes.com/2024/10/27/opinion/never-trump-maga-evangelicals.html
