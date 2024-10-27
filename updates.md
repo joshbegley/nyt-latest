@@ -1,3 +1,11 @@
+**Claire Daly, Master of the Baritone Saxophone, Dies at 66**\
+`She was celebrated for both her playing and her love of the jazz community. “My life in music,” she said recently, “is the smartest thing I’ve done.”`\
+https://nytimes.com/2024/10/27/arts/music/claire-daly-dead.html
+
+**Kylian Mbappe’s curious Clasico debut: Offside frustration and clipped confidence**\
+`The France international set an unwanted record after being flagged offside eight times as Barcelona ran out comfortable winners in Madrid`\
+https://nytimes.com/athletic/5875841/2024/10/27/kylian-mbappe-real-madrid-barcelona-clasico-offside/
+
 **Caitlin Clark, Indiana Fever championship timeline accelerated by sudden coaching change**\
 `The Fever reportedly have been talking to Connecticut coach Stephanie White. Will she return to Indianapolis?`\
 https://nytimes.com/athletic/5876979/2024/10/27/indiana-fever-coach-fired-caitlin-clark-wnba/
