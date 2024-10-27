@@ -1,3 +1,7 @@
+**Israeli Strike in Sidon Kills Eight People, Lebanon’s Health Ministry Says**\
+`Israel’s military did not provide an immediate comment on the strike, but said earlier on Sunday that it was carrying out “targeted ground raids” in southern Lebanon.`\
+https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.html
+
 **An Israeli strike on the city of Sidon kills eight people, Lebanon’s health ministry says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.html

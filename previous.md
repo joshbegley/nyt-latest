@@ -2,8 +2,8 @@
 `A trait of the Welsh club's return to League One is how they are prospering despite the opposition seeing much more of the ball`\
 https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-league-one/
 
-**An Israeli strike on the city of Sidon kills eight people, Lebanon’s health ministry says.**\
-`By Matthew Mpoke Bigg`\
+**Israeli Strike in Sidon Kills Eight People, Lebanon’s Health Ministry Says**\
+`Israel’s military did not provide an immediate comment on the strike, but said earlier on Sunday that it was carrying out “targeted ground raids” in southern Lebanon.`\
 https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.html
 
 **The Briefing: West Ham 2 Man United 1 - Dalot's miss, penalty drama and is Ten Hag's time up?**\

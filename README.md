@@ -1,3 +1,11 @@
+**Ten Hag: West Ham penalty an 'injustice'**\
+`Manchester United manager Erik ten Hag says West Ham United’s late penalty award was an “injustice”.`\
+https://nytimes.com/athletic/5876594/2024/10/27/ten-hag-man-utd-west-ham-var-penalty/
+
+**Mirtle: Firing up the Concern-o-Meter for the Maple Leafs after a tough start**\
+`Nine games in, troubling signs are starting to emerge for the Maple Leafs. On a scale of 1 to 10, just how troubling are their issues?`\
+https://nytimes.com/athletic/5876086/2024/10/27/maple-leafs-nhl-season/
+
 **Can Wrexham really win another promotion with so little possession?**\
 `A trait of the Welsh club's return to League One is how they are prospering despite the opposition seeing much more of the ball`\
 https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-league-one/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5876272/2024/10/27/michigan-michigan-state-davis-wa
 **The Briefing: Chelsea 2 Newcastle 1 - Palmer's pass, the visitors' Cobham influence and left-back James**\
 `The Athletic breaks down the major talking points as the home side prevailed in a tightly contested meeting at Stamford Bridge`\
 https://nytimes.com/athletic/5872203/2024/10/27/chelsea-newcastle-palmer-isak-james-briefing/
-
-**Beyoncé? Springsteen? Trump Fans Feel Both Anger and A-List Envy**\
-`Kamala Harris has many celebrities campaigning for her. It has uncorked complicated feelings for Donald Trump and his supporters.`\
-https://nytimes.com/2024/10/27/us/elections/donald-trump-bruce-springsteen-beyonce.html
-
-**‘Trump 2024’ Was Projected on a Town’s Water Tower. A Standoff Ensued.**\
-`After a resident of Hanson, Mass., projected the logo on town property, local officials fined him $100 per day for violating its bylaws.`\
-https://nytimes.com/2024/10/27/us/trump-water-tower-hanson-massachusetts.html
 
