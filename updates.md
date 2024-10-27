@@ -1,3 +1,7 @@
+**Real Madrid and La Liga to take action after alleged abuse of Barcelona winger Yamal**\
+`Real Madrid and La Liga have announced that they will take action after Barcelona winger Lamine Yamal was allegedly racially abused during El Clasico on Saturday night.`\
+https://nytimes.com/athletic/5875747/2024/10/27/yamal-racist-abuse-real-madrid-barcelona-el-clasico/
+
 **Snyder: Beau Pribula rose to the moment, and now Penn State can focus on Ohio State**\
 `Backup quarterback Beau Pribula came through for Penn State, and now the Nittany Lions can turn their attention to Ohio State.`\
 https://nytimes.com/athletic/5875710/2024/10/27/penn-state-beau-pribula-wisconsin-ohio-state/
