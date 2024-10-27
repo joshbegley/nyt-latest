@@ -1,3 +1,7 @@
+**Sampson: What did Notre Dame learn from early NIU upset? How not to let it happen again**\
+`Notre Dame dominating Navy was another step toward making the NIU loss a mere setback on the CFP path rather than a defining moment.`\
+https://nytimes.com/athletic/5875894/2024/10/27/notre-dame-navy-marcus-freeman-niu/
+
 **Behind the Tactical Gains Against Iran, a Longer-Term Worry**\
 `Experts inside and outside the Biden administration fear that Iran may conclude it has only one defense left: racing for an atomic weapon.`\
 https://nytimes.com/2024/10/27/us/politics/iran-israel-strikes-tehran.html

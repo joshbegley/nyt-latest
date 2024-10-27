@@ -1,3 +1,7 @@
+**Sampson: What did Notre Dame learn from early NIU upset? How not to let it happen again**\
+`Notre Dame dominating Navy was another step toward making the NIU loss a mere setback on the CFP path rather than a defining moment.`\
+https://nytimes.com/athletic/5875894/2024/10/27/notre-dame-navy-marcus-freeman-niu/
+
 **Behind the Tactical Gains Against Iran, a Longer-Term Worry**\
 `Experts inside and outside the Biden administration fear that Iran may conclude it has only one defense left: racing for an atomic weapon.`\
 https://nytimes.com/2024/10/27/us/politics/iran-israel-strikes-tehran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875691/2024/10/27/barcelona-real-madrid-yamal-cuba
 **Adam Johnson manslaughter case: Explaining the legal delays**\
 `It is almost a year since ice hockey player's death, so why has so little apparent progress been made in his case?`\
 https://nytimes.com/athletic/5859784/2024/10/27/adam-johnson-death-manslaughter-delays/
-
-**Here’s the latest on the presidential race.**\
-`Fo`\
-https://nytimes.com/live/2024/10/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
