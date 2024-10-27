@@ -1,3 +1,7 @@
+**Packers vs. Jaguars odds, picks, how to watch: Green Bay favored on the road**\
+`The Green Bay Packers are a contender in the NFL's best division this year. They're favored in Jacksonville.`\
+https://nytimes.com/athletic/5872622/2024/10/27/packers-jaguars-odds-picks-how-to-watch-betting/
+
 **Falcons vs. Buccaneers odds, expert picks, how to watch: An NFC South showdown**\
 `The Atlanta Falcons visit the Tampa Bay Buccaneers to determine who will be the NFC South's top dog. `\
 https://nytimes.com/athletic/5870405/2024/10/27/falcons-buccaneers-odds-picks-how-to-watch-betting/

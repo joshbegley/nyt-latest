@@ -1,3 +1,7 @@
+**Packers vs. Jaguars odds, picks, how to watch: Green Bay favored on the road**\
+`The Green Bay Packers are a contender in the NFL's best division this year. They're favored in Jacksonville.`\
+https://nytimes.com/athletic/5872622/2024/10/27/packers-jaguars-odds-picks-how-to-watch-betting/
+
 **Falcons vs. Buccaneers odds, expert picks, how to watch: An NFC South showdown**\
 `The Atlanta Falcons visit the Tampa Bay Buccaneers to determine who will be the NFC South's top dog. `\
 https://nytimes.com/athletic/5870405/2024/10/27/falcons-buccaneers-odds-picks-how-to-watch-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5873106/2024/10/27/arsenal-liverpool-preview-odds-p
 **Chelsea vs Newcastle preview, odds, prediction: Blues look to climb back up table**\
 `After a loss at Liverpool, Chelsea hope to move back up the table with a home match against Newcastle.`\
 https://nytimes.com/athletic/5873068/2024/10/27/chelsea-newcastle-preview-odds-prediction/
-
-**West Ham vs Manchester United preview, odds, prediction: Red Devils try to reach top half**\
-`Manchester United and West Ham are both in the bottom half of the table and the Red Devils are desperate to move up.`\
-https://nytimes.com/athletic/5873087/2024/10/27/west-ham-manchester-united-preview-odds-prediction/
 
