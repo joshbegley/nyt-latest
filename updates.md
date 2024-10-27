@@ -1,3 +1,11 @@
+**Measured Comments From Israel and Iran on New Round of Strikes**\
+`Israel’s prime minister said Israeli airstrikes on Iran had achieved their goals, and Iranian officials did not threaten retaliation.`\
+https://nytimes.com/2024/10/27/world/middleeast/israel-iran.html
+
+**Happy National Tight Ends Day: Kyle Pitts stars, 5 other TEs grab TDs**\
+`The informal holiday began back in 2018 from a sideline joke with former San Francisco 49ers quarterback Jimmy Garoppolo and George Kittle.`\
+https://nytimes.com/athletic/5876647/2024/10/27/national-tight-ends-day-kyle-pitts/
+
 **Woman Who Left Boyfriend Zipped in a Suitcase Is Convicted of Murder**\
 `The woman, Sarah Boone, said the two were drinking and playing hide-and-seek when she zipped him inside the suitcase and then left him overnight.`\
 https://nytimes.com/2024/10/27/us/boyfriend-suitcase-murder-guilty.html
