@@ -1,3 +1,7 @@
+**Rice fires Mike Bloomgren after 2-6 start in 7th season**\
+`Bloomgren went 24-52 in six-plus seasons and guided the Owls to two bowl appearances. `\
+https://nytimes.com/athletic/5876974/2024/10/27/rice-mike-bloomgren-fired/
+
 **Pro-Harris Super PAC Raises Concerns About Focusing on Trump and Fascism**\
 `The group, Future Forward, warned that attacking Donald J. Trump as a fascist or questioning his character or stamina are less effective than highlighting Kamala Harris’s proposals.`\
 https://nytimes.com/2024/10/27/us/politics/harris-trump-campaign-fascism.html
