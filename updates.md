@@ -1,3 +1,11 @@
+**Colts vs. Texans odds, expert picks, how to watch: Battle No. 2 for top of AFC South**\
+`The Texans and Colts meet for the second time this season with C.J. Stroud and Co. favored to win again. `\
+https://nytimes.com/athletic/5872649/2024/10/27/colts-texans-odds-picks-how-to-watch-betting/
+
+**Clippers spoil Russell Westbrook's revenge game in Denver**\
+`Though Denver completed a 25-point turnaround to lead 87-80 with 6:55 remaining, LA escaped with a 109-104 road win Saturday.`\
+https://nytimes.com/athletic/5875216/2024/10/27/clippers-spoil-russell-westbrooks-revenge-game/
+
 **Packers vs. Jaguars odds, picks, how to watch: Green Bay favored on the road**\
 `The Green Bay Packers are a contender in the NFL's best division this year. They're favored in Jacksonville.`\
 https://nytimes.com/athletic/5872622/2024/10/27/packers-jaguars-odds-picks-how-to-watch-betting/

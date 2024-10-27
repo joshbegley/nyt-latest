@@ -1,3 +1,11 @@
+**Colts vs. Texans odds, expert picks, how to watch: Battle No. 2 for top of AFC South**\
+`The Texans and Colts meet for the second time this season with C.J. Stroud and Co. favored to win again. `\
+https://nytimes.com/athletic/5872649/2024/10/27/colts-texans-odds-picks-how-to-watch-betting/
+
+**Clippers spoil Russell Westbrook's revenge game in Denver**\
+`Though Denver completed a 25-point turnaround to lead 87-80 with 6:55 remaining, LA escaped with a 109-104 road win Saturday.`\
+https://nytimes.com/athletic/5875216/2024/10/27/clippers-spoil-russell-westbrooks-revenge-game/
+
 **Packers vs. Jaguars odds, picks, how to watch: Green Bay favored on the road**\
 `The Green Bay Packers are a contender in the NFL's best division this year. They're favored in Jacksonville.`\
 https://nytimes.com/athletic/5872622/2024/10/27/packers-jaguars-odds-picks-how-to-watch-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/27/world/africa/nigeria-dam-disaster-flood.html
 **Ukraine Invaded Russia. Here’s What It Was Like for Civilians.**\
 `Russians in the area of Ukraine’s invasion have described seeing signs of violent encounters, as well as respectful treatment from Ukrainian troops.`\
 https://nytimes.com/2024/10/27/world/europe/russia-kursk-ukraine-invasion-civilians.html
-
-**Arsenal vs Liverpool preview, odds, prediction for showdown with title implications**\
-`Liverpool are top of the table and take on an Arsenal coming off of a loss. The Reds are unbeaten this season but are not favoured.`\
-https://nytimes.com/athletic/5873106/2024/10/27/arsenal-liverpool-preview-odds-prediction/
-
-**Chelsea vs Newcastle preview, odds, prediction: Blues look to climb back up table**\
-`After a loss at Liverpool, Chelsea hope to move back up the table with a home match against Newcastle.`\
-https://nytimes.com/athletic/5873068/2024/10/27/chelsea-newcastle-preview-odds-prediction/
 
