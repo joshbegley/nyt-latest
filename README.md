@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5875854/2024/10/27/ravens-browns-score-takeaways-re
 `Israel’s prime minister said Israeli airstrikes on Iran had achieved their goals, and Iranian officials did not threaten retaliation.`\
 https://nytimes.com/2024/10/27/world/middleeast/israel-iran.html
 
-**Happy National Tight Ends Day: Kyle Pitts stars, 5 other TEs grab TDs**\
+**Happy National Tight Ends Day: Travis Kelce, TEs account for NFL-record 15 TDs**\
 `The informal holiday began back in 2018 from a sideline joke with former San Francisco 49ers quarterback Jimmy Garoppolo and George Kittle.`\
 https://nytimes.com/athletic/5876647/2024/10/27/national-tight-ends-day-kyle-pitts/
 

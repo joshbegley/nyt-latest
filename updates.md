@@ -1,3 +1,11 @@
+**NFL Week 8 takeaways: Are Eagles Super Bowl contenders again? Do Ravens have a big problem?**\
+`Plus, who is the NFL's most disappointing team?`\
+https://nytimes.com/athletic/5877171/2024/10/27/nfl-week-8-scores-takeaways-eagles-ravens/
+
+**Winston throws for 334 yards in Browns’ 29-24 win over Ravens: Takeaways**\
+`Winston energized the Cleveland offense. Winston threw the ball down the field, stood in against the blitz and confidently made big throws.`\
+https://nytimes.com/athletic/5875854/2024/10/27/ravens-browns-score-takeaways-results/
+
 **Measured Comments From Israel and Iran on New Round of Strikes**\
 `Israel’s prime minister said Israeli airstrikes on Iran had achieved their goals, and Iranian officials did not threaten retaliation.`\
 https://nytimes.com/2024/10/27/world/middleeast/israel-iran.html

@@ -1,3 +1,11 @@
+**NFL Week 8 takeaways: Are Eagles Super Bowl contenders again? Do Ravens have a big problem?**\
+`Plus, who is the NFL's most disappointing team?`\
+https://nytimes.com/athletic/5877171/2024/10/27/nfl-week-8-scores-takeaways-eagles-ravens/
+
+**Winston throws for 334 yards in Browns’ 29-24 win over Ravens: Takeaways**\
+`Winston energized the Cleveland offense. Winston threw the ball down the field, stood in against the blitz and confidently made big throws.`\
+https://nytimes.com/athletic/5875854/2024/10/27/ravens-browns-score-takeaways-results/
+
 **Measured Comments From Israel and Iran on New Round of Strikes**\
 `Israel’s prime minister said Israeli airstrikes on Iran had achieved their goals, and Iranian officials did not threaten retaliation.`\
 https://nytimes.com/2024/10/27/world/middleeast/israel-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5875873/2024/10/27/dolphins-cardinals-score-takeawa
 **Barkley, Hurts key dominant second half in Eagles' 37-17 win vs. Bengals: Takeaways**\
 `The Eagles moved to 5-2 in a competitive NFC East, while the Bengals fell to 3-5 as their season reaches a critical juncture.`\
 https://nytimes.com/athletic/5875843/2024/10/27/eagles-bengals-score-takeaways-result/
-
-**Mimi Hines, a Replacement Star in ‘Funny Girl,’ Dies at 91**\
-`She was best known as half of a comedy team with her husband, Phil Ford, until her hall-filling voice earned her raves in a role made famous by Barbra Streisand.`\
-https://nytimes.com/2024/10/27/theater/mimi-hines-dead.html
-
-**Cousins leads Falcons past Bucs 31-26 to take control of NFC South : Takeaways**\
-`The Falcons completed a season sweep of the Buccaneers, which could loom large at the end of the year.`\
-https://nytimes.com/athletic/5875890/2024/10/27/falcons-buccaneers-score-takeaways-result/
 
