@@ -1,3 +1,15 @@
+**Cowboys at 49ers odds, expert picks, how to watch: Two teams in need of a win**\
+`Dallas is 3-0 on the road this season, but is an underdog against the 49ers on Sunday Night Football.`\
+https://nytimes.com/athletic/5870608/2024/10/27/cowboys-49ers-odds-picks-how-to-watch-betting/
+
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/here-are-the-latest-developments
+
+**Live Updates: Iran’s Leaders Stress Their Right to Respond to Israel’s Strikes**\
+`Ayatollah Khamenei, Iran’s supreme leader, appeared to strike a measured tone. He said Israel’s attack should not be “magnified or downplayed,” state media reported.`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza
+
 **Down 0-2, Yankees leave Los Angeles with a struggling captain but a vow to return**\
 `"I’m excited to get back to New York, I’m excited to get back to our fans,” Judge said. “It’s a seven-game series for a reason."`\
 https://nytimes.com/athletic/5875694/2024/10/27/dodgers-yankees-world-series-aaron-judge-captain/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/27/business/media/washington-post-president-endorsem
 **Donald Trump Will Never Be Done With New York**\
 `Sunday’s rally at Madison Square Garden, the self-styled “world’s most famous arena,” is a remarkable gambit, even by the former president’s standards — and a show of force.`\
 https://nytimes.com/2024/10/27/us/politics/trump-new-york-msg.html
-
-**Hear a Chopin Waltz Unearthed After Nearly 200 Years**\
-`An unknown work in the composer’s hand has emerged in a New York museum, the first such find in more than a half century. The pianist Lang Lang plays it here.`\
-https://nytimes.com/video/arts/music/100000009784202/chopin-waltz-lang-lang.html
-
-**Voters Are Deeply Skeptical About the Health of American Democracy**\
-`Nearly half say it does not do a good job representing the people, and three-quarters say it is under threat, according to a Times/Siena poll.`\
-https://nytimes.com/2024/10/27/us/politics/american-democracy-poll.html
-
-**Amid Talk of Fascism, Trump’s Threats and Language Evoke a Grim Past**\
-`Plenty of presidents have been called dictators by their political opponents, but none until now has been publicly accused of being a “fascist” by his own handpicked advisers.`\
-https://nytimes.com/2024/10/27/us/politics/trump-fascism.html
 

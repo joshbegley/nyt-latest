@@ -1,3 +1,15 @@
+**Cowboys at 49ers odds, expert picks, how to watch: Two teams in need of a win**\
+`Dallas is 3-0 on the road this season, but is an underdog against the 49ers on Sunday Night Football.`\
+https://nytimes.com/athletic/5870608/2024/10/27/cowboys-49ers-odds-picks-how-to-watch-betting/
+
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/here-are-the-latest-developments
+
+**Live Updates: Iran’s Leaders Stress Their Right to Respond to Israel’s Strikes**\
+`Ayatollah Khamenei, Iran’s supreme leader, appeared to strike a measured tone. He said Israel’s attack should not be “magnified or downplayed,” state media reported.`\
+https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza
+
 **Down 0-2, Yankees leave Los Angeles with a struggling captain but a vow to return**\
 `"I’m excited to get back to New York, I’m excited to get back to our fans,” Judge said. “It’s a seven-game series for a reason."`\
 https://nytimes.com/athletic/5875694/2024/10/27/dodgers-yankees-world-series-aaron-judge-captain/
