@@ -1,3 +1,7 @@
+**Advisers Propose That Trump Give Security Clearances Without F.B.I. Vetting**\
+`A memo circulating in Donald Trump’s orbit says that if elected he should use private firms to check appointees’ backgrounds and give them immediate access to classified secrets after taking office.`\
+https://nytimes.com/2024/10/27/us/politics/trump-security-clearances-fbi.html
+
 **Patriots' Drake Maye exits vs. Jets with concussion**\
 `Upon exiting against the Jets, Maye led the team in rushing with 46 yards and a rushing touchdown and finished 3-for-6 for 23 yards passing.`\
 https://nytimes.com/athletic/5876680/2024/10/27/drake-maye-injury-patriots-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5876086/2024/10/27/maple-leafs-nhl-season/
 **Can Wrexham really win another promotion with so little possession?**\
 `A trait of the Welsh club's return to League One is how they are prospering despite the opposition seeing much more of the ball`\
 https://nytimes.com/athletic/5866644/2024/10/27/charlton-wrexham-possession-league-one/
-
-**Israeli Strike in Sidon Kills Eight People, Lebanon’s Health Ministry Says**\
-`Israel’s military did not provide an immediate comment on the strike, but said earlier on Sunday that it was carrying out “targeted ground raids” in southern Lebanon.`\
-https://nytimes.com/2024/10/27/world/middleeast/israeli-strike-sidon-lebanon.html
 
