@@ -1,3 +1,11 @@
+**DJ Clark Kent, Who Introduced Jay-Z to Notorious B.I.G., Dies at 58**\
+`He was a producer and club D.J. who helped rappers find their voices and fortunes, and who later became known as a raconteur of hip-hop history.`\
+https://nytimes.com/2024/10/27/obituaries/dj-clark-kent-dead.html
+
+**Inside the Packers' game-winning play: Malik Willis helps save the day again**\
+`Willis came in for the injured Jordan Love for the second time this season and the Packers escaped with a 30-27 win over the Jaguars.`\
+https://nytimes.com/athletic/5877742/2024/10/27/packers-winning-play-malik-willis-jayden-reed/
+
 **Mahomes, Chiefs' D lead the way in 27-20 win over Raiders: Takeaways**\
 `Kansas City's defense won the day with four sacks, a fourth-quarter fumble recovery and a clutch goal line stand.`\
 https://nytimes.com/athletic/5877456/2024/10/27/chiefs-raiders-score-takeaways-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5877620/2024/10/27/browns-ravens-jameis-winston-des
 **Kirk Cousins puts Falcons in NFC South driver's seat, but they have a lot of work to do**\
 `Cousins has thrown eight touchdown passes against the Bucs this season, but he helped the Falcons put the game away with a surprising run.`\
 https://nytimes.com/athletic/5877563/2024/10/27/falcons-kirk-cousins-buccaneers-nfc-south/
-
-**Jacoby Brissett gets his feel-good moment in Patriots' comeback win over Jets**\
-`The veteran quarterback came off the bench to replace Drake Maye and helped lead the Patriots to a surprise win over the Jets.`\
-https://nytimes.com/athletic/5877534/2024/10/27/jacoby-brissett-patriots-jets-week-8/
-
-**Bengals tell truth of their season with words and actions: 'We're not good enough'**\
-`The offense, defense, coaching, special teams and every corner of the organization got demoralized en route to an 0-4 start at home.`\
-https://nytimes.com/athletic/5877541/2024/10/27/bengals-loss-eagles-joe-burrow-not-good-enough/
 
