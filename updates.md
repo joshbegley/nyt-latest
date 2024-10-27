@@ -1,3 +1,7 @@
+**Michelle Obama’s Plain Words in a Plain Suit**\
+`Who needs a slogan tee when your outfit can say it all?`\
+https://nytimes.com/2024/10/27/style/michelle-obama-harris-rally-suit.html
+
 **An Israeli strike in Beit Lahia killed dozens of people, Palestinian officials say.**\
 `By Hiba Yazbek and Gabby Sobelman`\
 https://nytimes.com/live/2024/10/27/world/israel-iran-lebanon-gaza/israel-strike-beit-lahia-gaza
