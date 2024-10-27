@@ -1,3 +1,11 @@
+**Woman Who Left Boyfriend Zipped in a Suitcase Is Convicted of Murder**\
+`The woman, Sarah Boone, said the two were drinking and playing hide-and-seek when she zipped him inside the suitcase and then left him overnight.`\
+https://nytimes.com/2024/10/27/us/boyfriend-suitcase-murder-guilty.html
+
+**Monday Briefing: A Majority of U.S. Voters Say Democracy is Under Threat**\
+`Plus, a long-lost Chopin waltz.`\
+https://nytimes.com/2024/10/27/briefing/american-democracy-japan-elections-chopin.html
+
 **Packers' Willis, Jacobs power 30-27 win over Jaguars: Takeaways**\
 `A clutch 51-yard play from Malik Willis set up a game-winning field goal despite the Packers' two-minute defensive struggles.`\
 https://nytimes.com/athletic/5875869/2024/10/27/packers-jaguars-score-takeaways-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5875861/2024/10/27/titans-lions-score-takeaways-res
 **Texans WR Diggs leaves win over Colts with knee injury**\
 `Houston is already without star receiver Nico Collins, who is on injured reserve.`\
 https://nytimes.com/athletic/5876997/2024/10/27/houston-texans-stefon-diggs-injury/
-
-**Far-Right Figures Escalate Talk of Retribution and Election Subversion**\
-`Michael Flynn has said “hell” will be unleashed if Donald J. Trump wins. Mr. Flynn’s close associate has discussed plans to overturn the election if Mr. Trump loses.`\
-https://nytimes.com/2024/10/27/us/politics/flynn-raiklin-election-trump.html
-
-**Slot says he was unfairly booked against Arsenal**\
-`Arne Slot says he was unfairly shown a yellow card by referee Anthony Taylor during Liverpool&#8217;s 2-2 draw with Arsenal at the Emirates Stadium.`\
-https://nytimes.com/athletic/5877075/2024/10/27/arne-slot-yellow-card-liverpool-arsenal/
 
