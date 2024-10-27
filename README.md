@@ -1,3 +1,7 @@
+**Far-Right Figures Escalate Talk of Retribution and Election Subversion**\
+`Michael Flynn has said “hell” will be unleashed if Donald J. Trump wins. Mr. Flynn’s close associate has discussed plans to overturn the election if Mr. Trump loses.`\
+https://nytimes.com/2024/10/27/us/politics/flynn-raiklin-election-trump.html
+
 **Slot says he was unfairly booked against Arsenal**\
 `Arne Slot says he was unfairly shown a yellow card by referee Anthony Taylor during Liverpool&#8217;s 2-2 draw with Arsenal at the Emirates Stadium.`\
 https://nytimes.com/athletic/5877075/2024/10/27/arne-slot-yellow-card-liverpool-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/us/politics/trump-msg-rally-line.html
 **Arsenal waiting to learn extent of Gabriel, Timber injuries - Arteta**\
 `Arsenal are waiting to discover the extent of the apparent injuries sustained by Gabriel and Jurrien Timber during Sunday’s 2-2 home draw with Liverpool.`\
 https://nytimes.com/athletic/5876942/2024/10/27/gabriel-timber-injury-arsenal/
-
-**NFL Week 8 fantasy football, betting cheat sheet: Jayden Daniels will start against Chicago**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
-https://nytimes.com/athletic/5866715/2024/10/27/nfl-week-8-fantasy-football-injuries-rankings-betting/
 
