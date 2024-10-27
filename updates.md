@@ -1,3 +1,7 @@
+**A Classical Music Discovery**\
+`An unknown waltz by Chopin has been found.`\
+https://nytimes.com/2024/10/27/briefing/chopin-lang-lang-classical-music.html
+
 **Real Madrid and La Liga to take action after alleged abuse of Barcelona winger Yamal**\
 `Real Madrid and La Liga have announced that they will take action after Barcelona winger Lamine Yamal was allegedly racially abused during El Clasico on Saturday night.`\
 https://nytimes.com/athletic/5875747/2024/10/27/yamal-racist-abuse-real-madrid-barcelona-el-clasico/
