@@ -1,3 +1,11 @@
+**Mexico GP: Submit your questions for our F1 mailbag**\
+`What's on your mind as F1 approaches the season's end? Ask our F1 reporters for their latest mailbag. `\
+https://nytimes.com/athletic/5876824/2024/10/27/mexico-grand-prix-f1-mailbag/
+
+**Carlos Sainz wins Mexico City GP, Verstappen penalized for Norris scrap**\
+`Carlos Sainz won his second race of the season, Verstappen caused drama on track and Ferrari became championship contenders.`\
+https://nytimes.com/athletic/5876832/2024/10/27/carlos-sainz-f1-mexico-grand-prix-max-verstappen-lando-norris/
+
 **Happy National Tight Ends Day: Travis Kelce, TEs account for NFL-record 15 TDs**\
 `The informal holiday began back in 2018 from a sideline joke with former San Francisco 49ers quarterback Jimmy Garoppolo and George Kittle.`\
 https://nytimes.com/athletic/5876647/2024/10/27/national-tight-ends-day-kyle-pitts/
