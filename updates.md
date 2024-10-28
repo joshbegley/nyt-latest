@@ -1,3 +1,7 @@
+**Israel’s Knesset passes bills banning UNRWA, the agency that aids Palestinians.**\
+`By Aaron Boxerman and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israels-knesset-passes-bills-banning-unrwa-the-agency-that-aids-palestinians
+
 **A Caller Told 911 a Bear Had Chased Him Off a Cliff. The Police Say It Was Murder.**\
 `The sheriff in a rural Tennessee county said his office is searching for a man who used a stolen identity to pose as a victim.`\
 https://nytimes.com/2024/10/28/world/americas/fake-bear-attack-murder-tennessee.html

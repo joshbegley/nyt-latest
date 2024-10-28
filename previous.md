@@ -1,3 +1,7 @@
+**Israel’s Knesset passes bills banning UNRWA, the agency that aids Palestinians.**\
+`By Aaron Boxerman and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israels-knesset-passes-bills-banning-unrwa-the-agency-that-aids-palestinians
+
 **Trump Repeatedly Refers to CNN’s Anderson Cooper as ‘Allison’**\
 `The former president, who often uses disparaging nicknames for people he dislikes, has referred to the host by a woman’s name on at least three occasions since Friday.`\
 https://nytimes.com/2024/10/28/us/politics/trump-anderson-cooper-cnn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/world/americas/fake-bear-attack-murder-tennessee.
 **What it's like to vote for the Ballon d’Or Feminin**\
 `The Athletic's Steph Yang was selected to vote as the representative from the U.S.`\
 https://nytimes.com/athletic/5880978/2024/10/28/ballon-dor-2024-women-fifa-voting/
-
-**Biden Casts Early Ballot for Harris**\
-`President Joe Biden joined early voters in New Castle, Del., a deeply Democratic district near his hometown of Wilmington.`\
-https://nytimes.com/video/us/elections/100000009788515/biden-vote-harris.html
 
