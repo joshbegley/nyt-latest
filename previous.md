@@ -1,3 +1,11 @@
+**Bears' Tyrique Stevenson was supposed to box out on Hail Mary, apologizes to team**\
+`Chicago Bears cornerback Tyrique Stevenson addressed the team Monday morning and apologized for not being in position for Washington’s game-winning Hail Mary touchdown on Sunday.`\
+https://nytimes.com/athletic/5880579/2024/10/28/matt-eberflus-tyrique-stevenson-hail-mary-comments-2/
+
+**Connecticut Sun part with coach Stephanie White**\
+`White coached the Sun to a 55-25 regular season and 7-7 postseason record.`\
+https://nytimes.com/athletic/5880581/2024/10/28/stephanie-white-connecticut-sun-parting/
+
 **‘Dahomey’ Celebrated Looted Art’s Return. What Happened Next?**\
 `Since the documentary’s cameras stopped rolling, plans for a new museum to showcase the treasures have stalled, and the artifacts are once again off limits to the public in Benin.`\
 https://nytimes.com/2024/10/28/arts/design/dahomey-benin-museum.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/t-magazine/winter-holiday-travel-ideas.html
 **NFL Week 9 odds, schedule: Jets favored vs. Texans?!**\
 `The Jets are favored over the Texans at home in a Week 9 slate that includes monster divisional matchups. `\
 https://nytimes.com/athletic/5880029/2024/10/28/nfl-week-9-odds-spreads-schedule-jets-packers-lions-bills-dolphins/
-
-**Josh Uche trade grades: Chiefs can't lose with high-upside deal; Patriots enter sell mode**\
-`This trade is nothing but profit for the Chiefs. This feels like a deal that has grand-slam potential. `\
-https://nytimes.com/athletic/5880414/2024/10/28/josh-uche-trade-grades-chiefs-patriots/
-
-**An increasing share of voters say Trump has been exercising his right to contest the 2020 election.**\
-`By Ruth Igielnik`\
-https://nytimes.com/live/2024/10/28/us/harris-trump-election/an-increasing-share-of-voters-say-trump-was-exercising-his-right-to-contest-the-2020-election
 

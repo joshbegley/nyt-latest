@@ -1,3 +1,11 @@
+**Bears' Tyrique Stevenson was supposed to box out on Hail Mary, apologizes to team**\
+`Chicago Bears cornerback Tyrique Stevenson addressed the team Monday morning and apologized for not being in position for Washington’s game-winning Hail Mary touchdown on Sunday.`\
+https://nytimes.com/athletic/5880579/2024/10/28/matt-eberflus-tyrique-stevenson-hail-mary-comments-2/
+
+**Connecticut Sun part with coach Stephanie White**\
+`White coached the Sun to a 55-25 regular season and 7-7 postseason record.`\
+https://nytimes.com/athletic/5880581/2024/10/28/stephanie-white-connecticut-sun-parting/
+
 **‘Dahomey’ Celebrated Looted Art’s Return. What Happened Next?**\
 `Since the documentary’s cameras stopped rolling, plans for a new museum to showcase the treasures have stalled, and the artifacts are once again off limits to the public in Benin.`\
 https://nytimes.com/2024/10/28/arts/design/dahomey-benin-museum.html
