@@ -1,3 +1,7 @@
+**Uruguay’s Presidential Election Is Headed to a November Runoff**\
+`Yamandú Orsi, a center-left former mayor, finished first on Sunday but fell short of the 50 percent threshold needed to avoid another round of voting.`\
+https://nytimes.com/2024/10/28/world/americas/uruguay-election-president.html
+
 **Word of the Day: logistical**\
 `This word has appeared in 424 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/28/learning/word-of-the-day-logistical.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5875962/2024/10/28/reece-james-captain-chelsea-newc
 **Everton endure their reality check - and a reminder this season will be a slog**\
 `Sean Dyche's side extended their unbeaten run to five matches with an unlikely point against Fulham, but they remain 'a work in progress'`\
 https://nytimes.com/athletic/5874998/2024/10/28/everton-fulham-beto-dyche-slog/
-
-**Arsenal can't catch a break — but it is vital they don't let this demoralise them**\
-`Injuries, red cards, exhaustion — Mikel Arteta's team are in the wars right now. But they must remain upbeat and keep trying to move forward`\
-https://nytimes.com/athletic/5877174/2024/10/28/arsenal-cant-catch-a-break-premier-league/
 
