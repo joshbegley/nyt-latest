@@ -1,3 +1,7 @@
+**As Gaza Talks Resume, Little Progress Is Expected Before the U.S. Election**\
+`Analysts said Israel was expected to wait until the outcome of the election before deciding on its stance on a cease-fire in Gaza. Hamas officials seem reluctant to compromise.`\
+https://nytimes.com/2024/10/28/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
+
 **Paul Morrissey, Andy Warhol’s Cinematic Collaborator, Dies at 86**\
 `In films like “Trash” and “Women in Revolt,” he brought movement, character and something resembling a story line to the Warhol film aesthetic.`\
 https://nytimes.com/2024/10/28/movies/paul-morrissey-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/estee-lauder/what-happens-to-your-skin-while-you-sl
 **Remembering Jim Donovan, the voice of Sunday afternoons for Browns' fans**\
 `Donovan loved the Cleveland Browns and the Boston Celtics. He was loved by the Browns as well. They gave the game ball to his family Sunday.`\
 https://nytimes.com/athletic/5878957/2024/10/28/browns-jim-donovan-voice-nfl/
-
-**Julius Randle's warm welcome from Timberwolves fans, lineup tinkering and more**\
-`Here are some early impressions from the new-look Timberwolves.`\
-https://nytimes.com/athletic/5874964/2024/10/28/early-impressions-timberwolves/
 
