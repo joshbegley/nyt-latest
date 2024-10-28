@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Americans’ fears about the future of democracy.`\
+https://nytimes.com/2024/10/28/briefing/american-election-democracy-iran-israel.html
+
 **Arsenal Today: Another injury, Arteta's tactics analysed and Saka is back**\
 `James McNicholas talks you through what is interesting our Arsenal writers today`\
 https://nytimes.com/athletic/5877434/2024/10/28/arsenal-today-injury-arteta-saka/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5877174/2024/10/28/arsenal-cant-catch-a-break-premi
 **Whisper it quietly, but Newcastle are sliding towards mid-table mediocrity**\
 `Another dispiriting defeat for Eddie Howe's team has highlighted just how far off the top teams they are now`\
 https://nytimes.com/athletic/5876666/2024/10/28/newcastle-are-a-mid-table-side/
-
-**Brighton and the Bananenschale: Why Fabian Hurzeler's side continue to oblige the strugglers**\
-`The late capitulation to Wolves meant Brighton have secured only 12 victories from 46 games against teams in the division's bottom three`\
-https://nytimes.com/athletic/5872162/2024/10/28/brighton-hurzeler-bananenschale-wolves/
 

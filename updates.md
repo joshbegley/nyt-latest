@@ -1,3 +1,12 @@
+**Monday Briefing**\
+`Americans’ fears about the future of democracy.`\
+https://nytimes.com/2024/10/28/briefing/american-election-democracy-iran-israel.html
+
+**Lopetegui's triple change turned the tide against United. Could it prove a turning point in West Ham’s season?**\
+`West Ham markedly improved offensively after the break, playing with an energy, confidence and flair that had been lacking
+`\
+https://nytimes.com/athletic/5875855/2024/10/28/west-ham-manchester-united-premier-league-lopetegui/
+
 **Lopetegui's triple change turned the tide against United. Could it prove a turning point in West Ham’s season?**\
 `West Ham markedly improved offensively after the break, playing with an energy, confidence and flair that had been lacking
 `\
