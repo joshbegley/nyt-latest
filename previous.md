@@ -1,3 +1,11 @@
+**UCF fires defensive coordinator Ted Roof amid five-game losing streak**\
+`The Knights allowed more than 250 yards rushing for the second week in a row in Saturday's loss to BYU.`\
+https://nytimes.com/athletic/5879868/2024/10/28/ucf-fires-defensive-coordinator-ted-roof-amid-five-game-losing-streak-source/
+
+**What Happens to Your Skin While You Sleep?**\
+`A growing body of research shows that peak performance is inextricably linked to proper rest. Sleep is when overall recovery occurs, and the latest in skin care — notably Estée Lauder’s next-gen night creams — are tapping into skin’s natural repair processes with measurable results.`\
+https://nytimes.com/paidpost/estee-lauder/what-happens-to-your-skin-while-you-sleep.html
+
 **Remembering Jim Donovan, the voice of Sunday afternoons for Browns' fans**\
 `Donovan loved the Cleveland Browns and the Boston Celtics. He was loved by the Browns as well. They gave the game ball to his family Sunday.`\
 https://nytimes.com/athletic/5878957/2024/10/28/browns-jim-donovan-voice-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5879655/2024/10/28/tom-kim-locker-room-door-korea-g
 **Fantasy football Week 8 recap: Time to drop Dak Prescott?**\
 `The Cowboys quarterback needs to improve his downfield passing or it could be time to cut him loose.`\
 https://nytimes.com/athletic/5879553/2024/10/28/fantasy-football-week-8-recap-dak-prescott/
-
-**Ohio State film study: What worked and what didn't against Nebraska**\
-`Ohio State didn't instill confidence with its win on Saturday against Nebraska, but it did get the job done.`\
-https://nytimes.com/athletic/5879614/2024/10/28/ohio-state-football-nebraska-analysis-ryan-day/
-
-**Broncos' Sean Payton rankles Panthers with fourth-quarter play calls**\
-`The Panthers' Sam Franklin: “There’s five minutes left. You guys doing trick plays ... Basically just trying to embarrass us."`\
-https://nytimes.com/athletic/5879629/2024/10/28/sean-payton-broncos-panthers-play-calls/
 
