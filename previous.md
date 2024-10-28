@@ -1,3 +1,15 @@
+**Waymo Raises $5.6 Billion From Outside Investors**\
+`Alphabet’s driverless car unit now has vehicles operating in San Francisco, Phoenix and Los Angeles.`\
+https://nytimes.com/2024/10/28/business/waymo-investment-robot-taxis.html
+
+**World Series Game 2 averaged 15.9 millions viewers in Japan**\
+`Friday's Game 1 had an average viewership of 14.4 million, the second most-watched postseason game ever in Japan.`\
+https://nytimes.com/athletic/5880487/2024/10/28/world-series-2024-game-1-2-viewership-record-us-japan/
+
+**John F. Keenan, U.S. Judge in Myerson and Marcos Trials, Dies at 94**\
+`He was impatient with courtroom theatrics, and the Manhattan trials of the commissioner and ex-beauty queen Bess Myerson and the former Philippines first lady Imelda Marcos had plenty.`\
+https://nytimes.com/2024/10/28/nyregion/john-f-keenan-dead.html
+
 **It Shouldn’t Be This Easy to Sign Away Your Right to a Trial**\
 `Arbitration caught on for good reason, but it has drifted too far from its original purpose.`\
 https://nytimes.com/2024/10/28/opinion/forced-arbitration-uber-disney.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/28/us/harris-trump-election/an-increasing-share
 **Nebraska coach Matt Rhule frustrated by missed calls**\
 `The Big Ten issued a statement acknowledging that its crew missed a key spot late in the first half of the Cornhuskers’ loss at Ohio State.`\
 https://nytimes.com/athletic/5880407/2024/10/28/matt-rhule-big-ten-officials/
-
-**Man Who Made Violent Threats Skirted Arrest and Then Shot a Neighbor**\
-`“We failed this victim 100 percent,” the Minneapolis police chief said after criticism that the shooter, who had active arrest warrants, was not taken into custody sooner.`\
-https://nytimes.com/2024/10/28/us/minneapolis-attempted-murder-arrest.html
-
-**Michigan State asks Big Ten to review altercation with Michigan following game**\
-`The Big Ten was reviewing what happened following the final whistle of Michigan’s victory.`\
-https://nytimes.com/athletic/5880358/2024/10/28/michigan-state-michigan-big-ten-review/
-
-**Who Is Tony Hinchcliffe, the Trump Rally Comedian?**\
-`Known for insult-style comedy, he took aim at Latinos, African Americans, Palestinians and Jews at Madison Square Garden on Sunday, and called Puerto Rico a “floating island of garbage.”`\
-https://nytimes.com/2024/10/28/arts/tony-hinchcliffe-trump-rally-comedian.html
 
