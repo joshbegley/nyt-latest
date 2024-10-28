@@ -1,3 +1,7 @@
+**Antonio Pierce's decision-making lets Raiders down in narrow loss to Chiefs**\
+`The first-year head coach made some questionable moves as Las Vegas lost to Kansas City 27-20, the team's fourth straight setback.`\
+https://nytimes.com/athletic/5878093/2024/10/27/antonio-pierce-raiders-chiefs-decision-making/
+
 **After Broncos rout Panthers, Sean Payton demands more: 'We're going to see better teams"**\
 `The Broncos have their best start since 2016, but Payton stresses they must raise the internal standard as the schedule intensifies.`\
 https://nytimes.com/athletic/5878167/2024/10/27/broncos-win-panthers-sean-payton-demand-more/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/pageoneplus/corrections-oct-27-2024.html
 **Max Verstappen's Mexico GP penalties hurt. It won't change how he races Lando Norris**\
 `Verstappen has proved that when a championship is on the line, he'll race harder than ever. `\
 https://nytimes.com/athletic/5877474/2024/10/27/f1-max-verstappen-penalty-lando-norris-mexico-gp/
-
-**'The vibes are very high': Eagles bury the Bengals to end an undefeated October**\
-`The Eagles have put several of their September problems behind them.`\
-https://nytimes.com/athletic/5876775/2024/10/27/eagles-win-bengals-vibes-are-high/
 
