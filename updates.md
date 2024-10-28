@@ -1,3 +1,15 @@
+**The Briefing: Will Arsenal and Liverpool rue their draw and is it time to bin VAR?**\
+`The Athletic discusses three of the biggest questions to arise from this weekend’s Premier League football`\
+https://nytimes.com/athletic/5877167/2024/10/28/the-briefing-will-arsenal-and-liverpool-rue-their-draw-and-is-it-time-to-bin-var/
+
+**Manchester United have lost all confidence in front of goal – it is destroying their season**\
+`Erik ten Hag's team are underperforming their expected goals figure by more than any other Premier League side — they simply must improve`\
+https://nytimes.com/athletic/5859742/2024/10/28/manchester-united-no-confidence-in-front-of-goal/
+
+**How much the Ballon d'Or is worth to a player - and why it's become such a big deal**\
+`Winning the Ballon d’Or does not bring direct financial reward, but it serves as an emphatic endorsement that leads to a surge in interest`\
+https://nytimes.com/athletic/5869965/2024/10/28/what-is-the-ballon-dor-worth/
+
 **Silva shares Fulham sadness over claims of 'unacceptable' police handling of sexual assault allegations at club**\
 `"The news is really sad for us as a club. For all of us as human beings, the news is really sad," the Fulham manager said`\
 https://nytimes.com/athletic/5875774/2024/10/28/silva-fulham-sexual-assault-claims/
