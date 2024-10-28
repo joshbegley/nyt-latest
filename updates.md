@@ -1,3 +1,7 @@
+**Mahomes, Chiefs' D lead the way in 27-20 win over Raiders: Takeaways**\
+`Kansas City's defense won the day with four sacks, a fourth-quarter fumble recovery and a clutch goal-line stand.`\
+https://nytimes.com/athletic/5877456/2024/10/27/chiefs-raiders-score-takeaways-results/
+
 **Buckley: No longer 'soft,' Patriots show pluck in bouncing back to top Jets**\
 `After losing their rookie quarterback, the Patriots showed resilience in mounting two long fourth-quarter drives to beat the rival Jets.`\
 https://nytimes.com/athletic/5877771/2024/10/27/patriots-jets-jerod-mayo-soft-buckley/
