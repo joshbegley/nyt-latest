@@ -1,3 +1,19 @@
+**Your questions about The Times’s election coverage: Choosing which reporters cover which candidates**\
+`Our journalists answer questions from readers.`\
+https://nytimes.com/2024/10/28/insider/your-questions-about-the-timess-election-coverage-choosing-which-reporters-cover-which-candidates.html
+
+**Your questions about The Times’s election coverage: ‘Sane-washing’**\
+`Our journalists answer questions from readers.`\
+https://nytimes.com/2024/10/28/insider/trump-speeches-2024-election.html
+
+**Examining the Mets' payroll entering the offseason**\
+`The Mets have more than $180 million coming off the payroll — that's larger than the Opening Day 2024 payrolls for 20 other teams.`\
+https://nytimes.com/athletic/5845900/2024/10/28/mets-offseason-mlb-free-agency/
+
+**Former NHL goalie assesses Flyers' Aleksei Kolosov's debut: 'He showed good promise'**\
+`With the Flyers struggling to find consistency in the crease, the young Belarus native may have done enough for a longer look.`\
+https://nytimes.com/athletic/5878686/2024/10/28/flyers-aleksei-kolosov-debut-biron/
+
 **Dak Prescott has to clean up his turnovers if Cowboys are going to turn season around**\
 `Prescott has thrown multiple interceptions in each of the Cowboys' past three games, including two costly ones against the 49ers.`\
 https://nytimes.com/athletic/5879084/2024/10/28/cowboys-dak-prescott-turnovers-loss-49ers/
