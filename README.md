@@ -1,3 +1,15 @@
+**Max Verstappen's Mexico GP penalties hurt. It won't change how he races Lando Norris**\
+`Verstappen has proven that, when a championship is on the line, he'll race harder than ever. `\
+https://nytimes.com/athletic/5877474/2024/10/27/f1-max-verstappen-penalty-lando-norris-mexico-gp/
+
+**'The vibes are very high': Eagles bury the Bengals to end an undefeated October**\
+`The Eagles have put several of their September problems behind them.`\
+https://nytimes.com/athletic/5876775/2024/10/27/eagles-win-bengals-vibes-are-high/
+
+**Jerry Jones' family involved in car accident outside Levi's Stadium ahead of 'SNF'**\
+`The family believes Charlotte could have sustained a rib injury and Jerry Jr. could have sustained a head injury.`\
+https://nytimes.com/athletic/5877995/2024/10/27/jerry-jones-jr-charlotte-jones-vehicle-barricade-accident/
+
 **Ravens defense shows once again it can't be trusted to get stops in loss to Browns**\
 `Baltimore's win streak came to an end after the defense failed to make plays late against the Jameis Winston-led Browns. `\
 https://nytimes.com/athletic/5877738/2024/10/27/ravens-defense-loss-browns/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5877475/2024/10/27/saints-chargers-score-takeaways-
 **DJ Clark Kent, Who Introduced Jay-Z to Notorious B.I.G., Dies at 58**\
 `He was a producer and club D.J. who helped rappers find their voices and fortunes, and who later became known as a raconteur of hip-hop history.`\
 https://nytimes.com/2024/10/27/obituaries/dj-clark-kent-dead.html
-
-**Inside the Packers' game-winning play: Malik Willis helps save the day again**\
-`Willis came in for the injured Jordan Love for the second time this season and the Packers escaped with a 30-27 win over the Jaguars.`\
-https://nytimes.com/athletic/5877742/2024/10/27/packers-winning-play-malik-willis-jayden-reed/
-
-**Mahomes, Chiefs' D lead the way in 27-20 win over Raiders: Takeaways**\
-`Kansas City's defense won the day with four sacks, a fourth-quarter fumble recovery and a clutch goal-line stand.`\
-https://nytimes.com/athletic/5877456/2024/10/27/chiefs-raiders-score-takeaways-results/
-
-**Emma Sears shines in USWNT debut, recording a goal and an assist**\
-`Head coach Emma Hayes continues to expand the USWNT's player selection `\
-https://nytimes.com/athletic/5877747/2024/10/27/uswnt-iceland-emma-sears-goal-assist/
 
