@@ -1,3 +1,7 @@
+**Quote of the Day: There’s Much More To A Midmajor Star Than Meets the Eyes**\
+`Quotation of the Day for Monday, October 28, 2024.`\
+https://nytimes.com/2024/10/27/pageoneplus/quote-of-the-day-theres-much-more-to-a-midmajor-star-than-meets-the-eyes.html
+
 **Hail Mary puts spotlight on Bears' miscues, a team that's not ready for prime time**\
 `The Bears did not put together a performance worthy of much praise even if they won. The Hail Mary just made everything seem even worse. `\
 https://nytimes.com/athletic/5878454/2024/10/27/bears-hail-mary-commanders-mistakes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5878553/2024/10/27/chargers-ladd-mcconkey-win-saint
 **Speaking in New Jersey, Liz Cheney says Harris will win.**\
 `By Erin Nolan`\
 https://nytimes.com/live/2024/10/27/us/harris-trump-election/speaking-in-new-jersey-liz-cheney-says-harris-will-win
-
-**Keon Coleman's best performance so far, O-line dominance key Bills win**\
-`The Bills defense pounced on a Seattle offense that was missing star receiver DK Metcalf.`\
-https://nytimes.com/athletic/5878411/2024/10/27/bills-win-seahawks-keon-coleman-offensinve-line-observations/
 
