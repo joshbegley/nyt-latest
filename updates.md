@@ -1,3 +1,11 @@
+**Warriors' Curry sprains ankle, to miss at least 2 games**\
+`Curry limped to the locker room and exited for the night after twisting his left ankle.`\
+https://nytimes.com/athletic/5878623/2024/10/28/steph-curry-ankle-injury-update/
+
+**After Rally Backlash, the Trump Team Combats ‘Racist’ and ‘Fascist’ Attacks**\
+`The Trump campaign issued a rare statement distancing itself from a comedian’s offensive joke about Puerto Rico at his rally on Sunday, a sign that it was concerned about losing crucial votes.`\
+https://nytimes.com/2024/10/28/us/politics/trump-msg-rally-backlash.html
+
 **Heisman Trophy odds: Dillon Gabriel surges past Ashton Jeanty as favorite**\
 `Dillon Gabriel has emerged as the favorite to win the Heisman Trophy, taking the top spot from Ashton Jeanty.`\
 https://nytimes.com/athletic/5880663/2024/10/28/heisman-trophy-odds-dillon-gabriel-ashton-jeanty/
