@@ -1,3 +1,11 @@
+**49ers' Christian McCaffrey expected to practice next week, play vs. Bucs**\
+`Asked if McCaffrey will have his usual workload once he’s cleared to play, Shanahan hinted that he’ll be eased back into the mix.`\
+https://nytimes.com/athletic/5880851/2024/10/28/christian-mccaffrey-49ers-return-week-10/
+
+**How Bad Are Gas Stoves for My Health?**\
+`They emit harmful pollutants, which makes good ventilation crucial.`\
+https://nytimes.com/2024/10/28/climate/gas-stoves-health-risks.html
+
 **Ask me anything: Leave a question for James Mirtle’s next article**\
 `We&#8217;re approaching the one-month mark of the season in the NHL, and there&#8217;s a lot of interesting trends taking place around the league right now.`\
 https://nytimes.com/athletic/5880919/2024/10/28/ask-me-anything-leave-a-question-for-james-mirtles-next-article/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5880507/2024/10/28/max-verstappen-mexico-grand-prix
 **Warriors' Curry sprains ankle, to miss at least 2 games**\
 `Curry limped to the locker room and exited for the night after twisting his left ankle.`\
 https://nytimes.com/athletic/5878623/2024/10/28/steph-curry-ankle-injury-update/
-
-**Trump Team Fears Damage From Racist Rally Remarks**\
-`The Trump campaign issued a rare statement distancing itself from a comedian’s offensive joke about Puerto Rico at his rally on Sunday, a sign that it was concerned about losing crucial votes.`\
-https://nytimes.com/2024/10/28/us/politics/trump-msg-rally-backlash.html
-
-**Heisman Trophy odds: Dillon Gabriel surges past Ashton Jeanty as favorite**\
-`Dillon Gabriel has emerged as the favorite to win the Heisman Trophy, taking the top spot from Ashton Jeanty.`\
-https://nytimes.com/athletic/5880663/2024/10/28/heisman-trophy-odds-dillon-gabriel-ashton-jeanty/
 
