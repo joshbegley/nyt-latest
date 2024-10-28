@@ -1,3 +1,12 @@
+**Obama Is the Same. His Coalition Isn’t.**\
+`Democrats failed to preserve his coalition, and Harris is now trying to assemble a different one.`\
+https://nytimes.com/2024/10/28/us/politics/obama-harris-voters.html
+
+**Submit your questions for The Athletic’s ACC football mailbag**\
+`<p>There are still four ACC teams without a loss in league play. What&#8217;s in store for the final month of the regular season? Submit your questions for Grace and Manny below. We will post their answers later in the week.</p>
+`\
+https://nytimes.com/athletic/5881223/2024/10/28/acc-football-mailbag/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Leave your latest questions here. Also: Your best idea for a college football Halloween costume.</p>
 `\
