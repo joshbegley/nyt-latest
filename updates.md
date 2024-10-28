@@ -1,3 +1,11 @@
+**The other Freddie Freeman grand slam calls: Media Circus**\
+`You've heard Joe Davis' call. Here's a few more worth a shoutout. Plus, notes on Tom Brady loosening up, a cool NFL victory POV and more.`\
+https://nytimes.com/athletic/5843444/2024/10/28/freddie-freeman-grand-slam-tom-brady-media-circus/
+
+**Canucks notebook: Elias Pettersson's breakthrough and how the new wingers have fit**\
+`Unpacking an impressive Canucks performance and some of the key subplots, including Pettersson's first goal of the season.`\
+https://nytimes.com/athletic/5879018/2024/10/28/canucks-elias-pettersson-penguins-debrusk-sprong/
+
 **Heat Today: Reaction to Dwyane Wade's statue highlights busy weekend**\
 `Wade's newly unveiled Heat statue gave everyone plenty to talk about. `\
 https://nytimes.com/athletic/5875969/2024/10/28/heat-today-dwyane-wade-statue/
