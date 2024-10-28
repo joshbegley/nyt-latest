@@ -1,3 +1,15 @@
+**Michigan State asks Big Ten to review altercation with Michigan following game**\
+`Michigan State has asked the Big Ten to look into a skirmish that broke out following the final play of Saturday’s game against Michigan, coach Jonathan Smith said Monday.`\
+https://nytimes.com/athletic/5880358/2024/10/28/michigan-state-michigan-big-ten-review/
+
+**Who Is Tony Hinchcliffe, the Trump Rally Comedian?**\
+`Known for insult-style comedy, he took aim at Latinos, African Americans, Palestinians and Jews at Madison Square Garden on Sunday, and called Puerto Rico a “floating island of garbage.”`\
+https://nytimes.com/2024/10/28/arts/tony-hinchcliffe-trump-rally-comedian.html
+
+**Israel’s Parliament to Consider Conscription, a U.N. agency and Terrorism**\
+`Israel’s Knesset opened its winter session on Monday against a backdrop of war in Gaza and Lebanon and with some contentious matters on the agenda.`\
+https://nytimes.com/2024/10/28/world/middleeast/israel-knesset-gaza-lebanon-war.html
+
 **Gérard Depardieu’s Sexual Assault Trial in France Is Postponed Until March**\
 `The French movie star’s lawyer said poor health kept his client from court on Monday.`\
 https://nytimes.com/2024/10/28/world/europe/gerard-depardieu-sexual-assault-trial.html
