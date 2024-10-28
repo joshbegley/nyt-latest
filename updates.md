@@ -1,3 +1,11 @@
+**Ask me anything: Leave a question for James Mirtle’s next article**\
+`We&#8217;re approaching the one-month mark of the season in the NHL, and there&#8217;s a lot of interesting trends taking place around the league right now.`\
+https://nytimes.com/athletic/5880919/2024/10/28/ask-me-anything-leave-a-question-for-james-mirtles-next-article/
+
+**Trump Team Fears Damage From Racist Rally Remarks**\
+`The Trump campaign issued a rare statement distancing itself from a comedian’s offensive joke about Puerto Rico at his rally on Sunday, a sign that it was concerned about losing crucial votes.`\
+https://nytimes.com/2024/10/28/us/politics/trump-msg-rally-backlash.html
+
 **Paying Their Respects at the House of the Dead**\
 `Fans streamed into the Haight-Ashbury neighborhood of San Francisco this weekend to mourn the Grateful Dead bassist Phil Lesh.`\
 https://nytimes.com/card/2024/10/28/arts/phil-lesh-fans
