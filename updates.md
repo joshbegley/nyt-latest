@@ -1,3 +1,11 @@
+**Gérard Depardieu’s Sexual Assault Trial in France Is Postponed Until March**\
+`The French movie star’s lawyer said poor health kept his client from court on Monday.`\
+https://nytimes.com/2024/10/28/world/europe/gerard-depardieu-sexual-assault-trial.html
+
+**College football Week 10 odds, schedule: Ohio State, Penn State meet in massive clash**\
+`Ohio State is coming off an unimpressive performance, but is still favored at Penn State in the biggest game of Week 10.`\
+https://nytimes.com/athletic/5879977/2024/10/28/college-football-week-10-odds-schedule-ohio-state-penn-state/
+
 **Israel’s Parliament to Consider Conscription, a U.N. agency and Terrorism**\
 `Israel’s Knesset opened its winter session on Monday against a backdrop of war in Gaza and Lebanon and with some contentious matters on the agenda.`\
 https://nytimes.com/2024/10/28/world/middleeast/israel-knesset-gaza-lebanon-war.html
