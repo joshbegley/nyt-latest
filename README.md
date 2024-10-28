@@ -1,4 +1,12 @@
-**Tuesday Briefing: The U.S. Election’s Final Stretch**\
+**N.Y.P.D. Chief Stirs Criticism With Newsmax Appearance at Trump Rally**\
+`John Chell also went on other networks, but struck a nerve by appearing on a channel that has boosted conspiracy theories and misinformation.`\
+https://nytimes.com/2024/10/28/nyregion/nypd-chief-chell-newsmax-trump.html
+
+**Gaza Cease-Fire Talks Resume, but Are Overshadowed by U.S. Election**\
+`Envoys from Israel, Egypt, the United States and Qatar took part in the negotiations, but no agreements are expected until American voters choose their next president.`\
+https://nytimes.com/2024/10/28/world/middleeast/gaza-cease-fire-us-elections.html
+
+**Tuesday Briefing: The U.S. Campaign’s Final Stretch**\
 `Plus, the “Ketamine Queen.”`\
 https://nytimes.com/2024/10/28/briefing/us-election-russia-ukraine-north-korea-vietnam-china.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009788069/ballot-box-fires-oregon-w
 **The Cookies You Want to Bake on Election Day**\
 `Rich with browned butter pecans and chewy with oats, these foolproof cookies are the perfect thing to make — and eat — while results roll in.`\
 https://nytimes.com/2024/10/28/dining/chewy-brown-butter-cookies-election-day.html
-
-**Republicans Distance Themselves From Puerto Rico Insult at Trump’s Rally**\
-`A comedian who spoke at Donald Trump’s campaign rally at Madison Square Garden referred to the U.S. territory as a “floating island of garbage,” prompting immediate backlash.`\
-https://nytimes.com/2024/10/28/us/politics/puerto-rico-republicans-trump-msg-rally.html
-
-**Thompson: Brock Purdy was a gamer when 49ers needed it most**\
-`On Sunday, with the 49ers struggling again and their season teetering, Brock Purdy found a way to lift the team. Just like they need.`\
-https://nytimes.com/athletic/5880413/2024/10/28/brock-purdy-49ers-cowboys-gamer-thompson/
 
