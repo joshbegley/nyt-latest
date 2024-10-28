@@ -1,3 +1,5 @@
+**Print edition deadlines**\
+
 **Your questions about The Times’s election coverage: Choosing which reporters cover which candidates**\
 `Our journalists answer questions from readers.`\
 https://nytimes.com/2024/10/28/insider/your-questions-about-the-timess-election-coverage-choosing-which-reporters-cover-which-candidates.html
