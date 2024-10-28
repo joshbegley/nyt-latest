@@ -1,3 +1,11 @@
+**Tuesday Briefing: The U.S. Election’s Final Stretch**\
+`Plus, the “Ketamine Queen.”`\
+https://nytimes.com/2024/10/28/briefing/us-election-russia-ukraine-north-korea-vietnam-china.html
+
+**Prime Tire: Why Verstappen crossed a line in Mexico**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/5880507/2024/10/28/max-verstappen-mexico-grand-prix-f1-prime-tire/
+
 **Warriors' Curry sprains ankle, to miss at least 2 games**\
 `Curry limped to the locker room and exited for the night after twisting his left ankle.`\
 https://nytimes.com/athletic/5878623/2024/10/28/steph-curry-ankle-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/puerto-rico-republicans-trump-msg-ral
 **Thompson: Brock Purdy was a gamer when 49ers needed it most**\
 `On Sunday, with the 49ers struggling again and their season teetering, Brock Purdy found a way to lift the team. Just like they need.`\
 https://nytimes.com/athletic/5880413/2024/10/28/brock-purdy-49ers-cowboys-gamer-thompson/
-
-**At Madison Square Garden, Trump Deals a MAGA Dopamine Rush**\
-`He was clearly recalibrating what it takes to hook his addicted masses.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-rally-madison-square-garden
-
-**Philadelphia District Attorney Sues Musk Over $1 Million Voter Giveaways**\
-`Larry Krasner, the top prosecutor in Philadelphia, sued Elon Musk and his Trump-supporting super PAC, saying the giveaways amounted to an “unlawful lottery.”`\
-https://nytimes.com/2024/10/28/us/politics/elon-musk-giveaway-philadelphia-lawsuit.html
 
