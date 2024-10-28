@@ -1,3 +1,7 @@
+**Remembering Jim Donovan, the voice of Sunday afternoons for Browns' fans**\
+`Donovan loved the Cleveland Browns and the Boston Celtics. He was loved by the Browns as well. They gave the game ball to his family Sunday.`\
+https://nytimes.com/athletic/5878957/2024/10/28/browns-jim-donovan-voice-nfl/
+
 **Julius Randle's warm welcome from Timberwolves fans, lineup tinkering and more**\
 `Here are some early impressions from the new-look Timberwolves.`\
 https://nytimes.com/athletic/5874964/2024/10/28/early-impressions-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879614/2024/10/28/ohio-state-football-nebraska-ana
 **Broncos' Sean Payton rankles Panthers with fourth-quarter play calls**\
 `The Panthers' Sam Franklin: “There’s five minutes left. You guys doing trick plays ... Basically just trying to embarrass us."`\
 https://nytimes.com/athletic/5879629/2024/10/28/sean-payton-broncos-panthers-play-calls/
-
-**'We don't have an identity': Giannis and the Bucks seek answers after loss to Nets**\
-`Turnovers, allowing second-chance points and miscues on defense sank the Bucks against the Nets. "We gotta get better," Antetokounmpo said.`\
-https://nytimes.com/athletic/5879045/2024/10/28/giannis-antetokounmpo-bucks-losing/
 

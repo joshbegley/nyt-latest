@@ -1,3 +1,7 @@
+**Remembering Jim Donovan, the voice of Sunday afternoons for Browns' fans**\
+`Donovan loved the Cleveland Browns and the Boston Celtics. He was loved by the Browns as well. They gave the game ball to his family Sunday.`\
+https://nytimes.com/athletic/5878957/2024/10/28/browns-jim-donovan-voice-nfl/
+
 **Julius Randle's warm welcome from Timberwolves fans, lineup tinkering and more**\
 `Here are some early impressions from the new-look Timberwolves.`\
 https://nytimes.com/athletic/5874964/2024/10/28/early-impressions-timberwolves/
