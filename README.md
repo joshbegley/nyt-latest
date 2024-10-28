@@ -1,3 +1,7 @@
+**Man Who Made Violent Threats Skirted Arrest and Then Shot a Neighbor**\
+`“We failed this victim 100 percent,” the Minneapolis police chief said after criticism that the shooter, who had active arrest warrants, was not taken into custody sooner.`\
+https://nytimes.com/2024/10/28/us/minneapolis-attempted-murder-arrest.html
+
 **Michigan State asks Big Ten to review altercation with Michigan following game**\
 `Michigan State has asked the Big Ten to look into a skirmish that broke out following the final play of Saturday’s game against Michigan, coach Jonathan Smith said Monday.`\
 https://nytimes.com/athletic/5880358/2024/10/28/michigan-state-michigan-big-ten-review/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/harris-biden-campaign.html
 **He Was 5 When Border Agents Took Him From His Father. He Hasn’t Forgotten.**\
 `Seven years after a Trump policy ruptured his family and landed him in foster care, José is a star student. But he is still scarred. “I don’t trust anyone.”`\
 https://nytimes.com/2024/10/28/us/migrant-children-border-trump.html
-
-**Adam Schiff, Not Yet a Senator, Deploys to Bolster Potential Future Colleagues**\
-`With his election in California all but assured, the prominent Donald Trump antagonist is spending the final days of the race trying to help Democrats in the battlegrounds over the finish line.`\
-https://nytimes.com/2024/10/28/us/politics/adam-schiff-not-yet-a-senator-deploys-to-bolster-potential-future-colleagues.html
 
