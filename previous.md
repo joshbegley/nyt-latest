@@ -1,3 +1,7 @@
+**Timothée Chalamet Showed Up at His Own Look-Alike Contest**\
+`No, he didn’t enter. But he still caused a stir in Washington Square Park, where four people were arrested.`\
+https://nytimes.com/2024/10/28/nyregion/timothee-chalamet-lookalike-contest-new-york.html
+
 **The Washington Commanders had a Hail Mary win that could herald the electoral outcome.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election/the-washington-commanders-had-a-hail-mary-win-that-could-herald-the-electoral-outcome
@@ -6,7 +10,7 @@ https://nytimes.com/live/2024/10/28/us/harris-trump-election/the-washington-comm
 `On average, wages have risen faster than prices in recent years. But not all Americans are getting ahead.`\
 https://nytimes.com/2024/10/28/business/economy/inflation-wages-pay-salaries.html
 
-**That’s a Lot of Cheddar: Scammers Steal $390,000 of British Cheese.**\
+**That’s a Lot of Cheddar: Scammers Steal $390,000 of British Cheese**\
 `Neal’s Yard, a leading cheese retailer in London, said that a shipment of 22 metric tons of rare Cheddar had disappeared in the con.`\
 https://nytimes.com/2024/10/28/world/europe/uk-cheese-theft-scam.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/world/middleeast/israel-hamas-gaza-cease-fire-tal
 **Paul Morrissey, Andy Warhol’s Cinematic Collaborator, Dies at 86**\
 `In films like “Trash” and “Women in Revolt,” he brought movement, character and something resembling a story line to the Warhol film aesthetic.`\
 https://nytimes.com/2024/10/28/movies/paul-morrissey-dead.html
-
-**A tactical guide to Ruud van Nistelrooy: the football manager**\
-`The former United striker is now in charge of the club on a temporary basis - but how will he set the team up?`\
-https://nytimes.com/athletic/5842023/2024/10/28/van-nistelrooy-tactical-guide-manchester-united/
 

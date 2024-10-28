@@ -1,3 +1,11 @@
+**Timothée Chalamet Showed Up at His Own Look-Alike Contest**\
+`No, he didn’t enter. But he still caused a stir in Washington Square Park, where four people were arrested.`\
+https://nytimes.com/2024/10/28/nyregion/timothee-chalamet-lookalike-contest-new-york.html
+
+**That’s a Lot of Cheddar: Scammers Steal $390,000 of British Cheese**\
+`Neal’s Yard, a leading cheese retailer in London, said that a shipment of 22 metric tons of rare Cheddar had disappeared in the con.`\
+https://nytimes.com/2024/10/28/world/europe/uk-cheese-theft-scam.html
+
 **The Washington Commanders had a Hail Mary win that could herald the electoral outcome.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election/the-washington-commanders-had-a-hail-mary-win-that-could-herald-the-electoral-outcome
