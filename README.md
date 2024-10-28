@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5878169/2024/10/27/tyrique-stevenson-bears-commande
 `The first-year head coach made some questionable moves as Las Vegas lost to Kansas City 27-20, the team's fourth straight setback.`\
 https://nytimes.com/athletic/5878093/2024/10/27/antonio-pierce-raiders-chiefs-decision-making/
 
-**After Broncos rout Panthers, Sean Payton demands more: 'We're going to see better teams"**\
+**After Broncos rout Panthers, Sean Payton demands more: 'We're going to see better teams'**\
 `The Broncos have their best start since 2016, but Payton stresses they must raise the internal standard as the schedule intensifies.`\
 https://nytimes.com/athletic/5878167/2024/10/27/broncos-win-panthers-sean-payton-demand-more/
 
