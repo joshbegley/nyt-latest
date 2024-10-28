@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Grotesquerie’ and Halloween Movies**\
+`FX airs the finale of Ryan Murphy’s latest show. And various channels celebrate the spooky frights and delights of the holiday.`\
+https://nytimes.com/2024/10/28/arts/television/whats-on-tv-this-week-grotesquerie-and-halloween.html
+
 **To continue their progress, Postecoglou's Spurs must learn to win ugly**\
 `A defeat at Selhurst Park suggested Tottenham need to deal better with adversity, and find different ways to win`\
 https://nytimes.com/athletic/5876896/2024/10/28/tottenham-crystal-palace-postecoglou/
