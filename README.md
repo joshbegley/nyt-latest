@@ -1,3 +1,11 @@
+**Doug Emhoff Condemns Antisemitism as Democrats Court Jewish Voters**\
+`In a speech in Pittsburgh a day after the sixth anniversary of the Tree of Life shooting, he vouched for Kamala Harris’s commitment to Jewish security and issued a warning about Donald Trump.`\
+https://nytimes.com/2024/10/28/us/politics/doug-emhoff-antisemitism-speech-jewish-voters.html
+
+**Republicans ask Supreme Court for last-minute intervention on Pennsylvania voting rules.**\
+`By Mattathias Schwartz`\
+https://nytimes.com/live/2024/10/28/us/harris-trump-election/republicans-ask-supreme-court-for-last-minute-intervention-on-pennsylvania-voting-rules
+
 **South Africa submits its genocide case against Israel to the top U.N. court.**\
 `By Marlise Simons`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/south-africa-submits-its-genocide-case-against-israel-to-the-top-un-court
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5881209/2024/10/28/submit-your-questions-for-antoni
 **Israel’s Knesset passes bills banning UNRWA, the agency that aids Palestinians.**\
 `By Aaron Boxerman and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israels-knesset-passes-bills-banning-unrwa-the-agency-that-aids-palestinians
-
-**Trump Repeatedly Refers to CNN’s Anderson Cooper as ‘Allison’**\
-`The former president, who often uses disparaging nicknames for people he dislikes, has referred to the host by a woman’s name on at least three occasions since Friday.`\
-https://nytimes.com/2024/10/28/us/politics/trump-anderson-cooper-cnn.html
-
-**Trump’s Biggest Con: Pretending to Support American Workers**\
-`He’s even more antilabor and pro-plutocrat than orthodox Republicans.`\
-https://nytimes.com/2024/10/28/opinion/trump-american-workers.html
 

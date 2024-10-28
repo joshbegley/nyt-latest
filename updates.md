@@ -1,3 +1,7 @@
+**South Africa submits its genocide case against Israel to the top U.N. court.**\
+`By Marlise Simons`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/south-africa-submits-its-genocide-case-against-israel-to-the-top-un-court
+
 **Connor McDavid ruled out vs. Blue Jackets with lower-body injury**\
 `McDavid played 37 seconds before being ruled out after the opening faceoff.`\
 https://nytimes.com/athletic/5881214/2024/10/28/connor-mcdavid-injury-oilers-blue-jackets/
