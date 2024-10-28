@@ -1,3 +1,11 @@
+**Harris Aides Quietly Grow More Bullish on Defeating Trump**\
+`While still cautious, advisers and allies believe that casting Donald Trump as a fascist is working, and that their expansive ground game and appeals on abortion rights may carry the day.`\
+https://nytimes.com/2024/10/28/us/politics/kamala-harris-donald-trump-2024-election.html
+
+**USMNT Player Tracker: Resilient McKennie, Johnny inspires Betis and Tillman as No 10**\
+`Cole Campbell, Tim Weah and Tanner Tessmann also feature in our weekly roundup of the U.S. players' contributions across Europe's leagues`\
+https://nytimes.com/athletic/5880008/2024/10/28/usmnt-mckennie-weah-johnny-tillman-tracker/
+
 **Harris Campaign Distances Itself From Biden in the Crucial Final Days**\
 `Joint events with an unpopular incumbent would “only hurt” the vice president at this stage of the campaign, as one of her advisers put it. But the president does not want to be sidelined.`\
 https://nytimes.com/2024/10/28/us/politics/harris-biden-campaign.html

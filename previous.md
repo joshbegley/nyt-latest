@@ -1,3 +1,11 @@
+**Harris Aides Quietly Grow More Bullish on Defeating Trump**\
+`While still cautious, advisers and allies believe that casting Donald Trump as a fascist is working, and that their expansive ground game and appeals on abortion rights may carry the day.`\
+https://nytimes.com/2024/10/28/us/politics/kamala-harris-donald-trump-2024-election.html
+
+**USMNT Player Tracker: Resilient McKennie, Johnny inspires Betis and Tillman as No 10**\
+`Cole Campbell, Tim Weah and Tanner Tessmann also feature in our weekly roundup of the U.S. players' contributions across Europe's leagues`\
+https://nytimes.com/athletic/5880008/2024/10/28/usmnt-mckennie-weah-johnny-tillman-tracker/
+
 **Harris Campaign Distances Itself From Biden in the Crucial Final Days**\
 `Joint events with an unpopular incumbent would “only hurt” the vice president at this stage of the campaign, as one of her advisers put it. But the president does not want to be sidelined.`\
 https://nytimes.com/2024/10/28/us/politics/harris-biden-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/style/gen-z-voters-concert-series.html
 **The Misogynistic, Bigoted and Crude Rally Remarks Trump Hasn’t Addressed**\
 `A range of speakers at Madison Square Garden on Sunday disparaged Latinos, Black people, Palestinians and Jews, and made vulgar references to Kamala Harris. The Trump campaign has distanced itself from only one of these statements.`\
 https://nytimes.com/2024/10/28/us/politics/trump-msg-rally-speaker-remarks.html
-
-**Chiefs trade for Patriots edge rusher Josh Uche**\
-`Uche, 26, signed a one-year deal to remain in New England this past offseason. Now, he's on the move to Kansas City.`\
-https://nytimes.com/athletic/5880235/2024/10/28/josh-uche-chiefs-patriots-trade/
-
-**Investigators suspect arson in fires at 2 ballot drop boxes in the Pacific Northwest.**\
-`By Mike Baker`\
-https://nytimes.com/live/2024/10/28/us/harris-trump-election/investigators-suspect-arson-in-fires-at-2-ballot-drop-boxes-in-the-pacific-northwest
 
