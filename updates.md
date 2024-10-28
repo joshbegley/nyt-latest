@@ -1,3 +1,11 @@
+**Bryce Young has uninspiring day, Panthers still searching for QB answers after lopsided loss**\
+`After scoring a TD on their first possession Sunday, the Panthers went nine consecutive series without scoring against the Broncos.`\
+https://nytimes.com/athletic/5878479/2024/10/27/panthers-bryce-young-quarterback-decision-broncos/
+
+**'We’re not surprised, nor are we satisfied': Bills identity coming into focus at midpoint**\
+`The Bills, at 6-2, have a sizable lead in the AFC East.`\
+https://nytimes.com/athletic/5878588/2024/10/27/bills-identity-midseason-josh-allen/
+
 **With a method to their madness, Jayden Daniels and the Commanders hailed down Mary**\
 `Sunday against the Bears, Daniels was again magical when mortal behavior would not be enough.`\
 https://nytimes.com/athletic/5877229/2024/10/27/commanders-bears-jayden-daniels-hail-mary/
