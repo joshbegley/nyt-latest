@@ -1,3 +1,15 @@
+**With a method to their madness, Jayden Daniels and the Commanders hailed down Mary**\
+`Sunday against the Bears, Daniels was again magical when mortal behavior would not be enough.`\
+https://nytimes.com/athletic/5877229/2024/10/27/commanders-bears-jayden-daniels-hail-mary/
+
+**Trump at the Garden: A Closing Carnival of Grievances, Misogyny and Racism**\
+`The inflammatory rally was a capstone for an increasingly aggrieved campaign for Donald Trump, whose rhetoric has grown darker and more menacing.`\
+https://nytimes.com/2024/10/27/us/trump-msg-rally.html
+
+**Steph Curry sprains left ankle vs. Clippers**\
+`Curry limped to the locker room and exited for the night after twisting his left ankle.`\
+https://nytimes.com/athletic/5878623/2024/10/27/steph-curry-ankle-injury-update/
+
 **What Ladd McConkey's breakout could mean for the Chargers offense**\
 `The Chargers' answer at receiver might not be on the trade market. That answer could already be on the roster, wearing No. 15.`\
 https://nytimes.com/athletic/5878553/2024/10/27/chargers-ladd-mcconkey-win-saints/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/5878553/2024/10/27/chargers-ladd-mcconkey-win-saint
 https://nytimes.com/live/2024/10/27/us/harris-trump-election/speaking-in-new-jersey-liz-cheney-says-harris-will-win
 
 **Keon Coleman's best performance so far, O-line dominance key Bills win**\
-`The Bills defense pounced on a Seattle offense that was missing star receiver D.K. Metcalf.`\
+`The Bills defense pounced on a Seattle offense that was missing star receiver DK Metcalf.`\
 https://nytimes.com/athletic/5878411/2024/10/27/bills-win-seahawks-keon-coleman-offensinve-line-observations/
 
 **The Seahawks' 'laundry list' of problems is far from fixed, and time is running out**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5878093/2024/10/27/antonio-pierce-raiders-chiefs-de
 **After Broncos rout Panthers, Sean Payton demands more: 'We're going to see better teams'**\
 `The Broncos have their best start since 2016, but Payton stresses they must raise the internal standard as the schedule intensifies.`\
 https://nytimes.com/athletic/5878167/2024/10/27/broncos-win-panthers-sean-payton-demand-more/
-
-**With 'haymakers from all areas,' the Lions continue to show they're tough to beat**\
-`The defense and special teams stepped up for the Lions.`\
-https://nytimes.com/athletic/5877500/2024/10/27/lions-win-kalif-raymond-titans-haymakers/
-
-**Jaguars WR Christian Kirk out for season with broken collarbone**\
-`The seventh-year receiver will finish his 2024 campaign with 25 receptions for 320 yards and a touchdown.`\
-https://nytimes.com/athletic/5878228/2024/10/27/christian-kirk-jaguars-collarbone-injury/
-
-**Jones: Tua Tagovailoa's return to play prompts conflicting feelings, but QB knows what he wants**\
-`Tagovailoa was determined and defiant in his return from a Week 2 concussion, and he was bothered by a Dolphins loss to the Cardinals. `\
-https://nytimes.com/athletic/5877754/2024/10/27/tua-tagovailoa-dolphins-return-concussion/
 
