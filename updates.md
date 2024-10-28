@@ -1,3 +1,12 @@
+**'Not the start we wanted': Nikola Jokić, Nuggets aren't panicking, but issues are piling up**\
+`Lack of attention to detail and chemistry have hampered the Nuggets in their first two games: "We just have to play more games together."`\
+https://nytimes.com/athletic/5875145/2024/10/28/nikola-jokic-nuggets-jamal-murray/
+
+**Brighton captain Lewis Dunk set to miss three weeks with calf injury**\
+`Brighton &amp; Hove Albion captain Lewis Dunk has been ruled out until after the November international break with a calf injury
+The 32-year-old central defender will miss Wednesday&#8217;s Carabao Cup fourth round tie at home to Liverpool, Saturday&#8217;s Premier League return meeting with Liverpool at Anfield and the visit of Manchester City to the Amex Stadium on November 9.`\
+https://nytimes.com/athletic/5879888/2024/10/28/lewis-dunk-brighton-injury/
+
 **Timothée Chalamet Showed Up at His Own Look-Alike Contest**\
 `No, he didn’t enter. But he still caused a stir in Washington Square Park, where four people were arrested.`\
 https://nytimes.com/2024/10/28/nyregion/timothee-chalamet-lookalike-contest-new-york.html
