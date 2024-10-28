@@ -1,7 +1,3 @@
-**After loss to Patriots, it's too dark to see how Aaron Rodgers' Jets can save their season**\
-`Sunday's upset loss in Foxboro was a new lowest point for the 2024 Jets.`\
-https://nytimes.com/athletic/5877716/2024/10/27/jets-loss-patriots-darkness-aaron-rodgers/
-
 **Colts can't improve until Shane Steichen, Anthony Richardson accept reality**\
 `The Colts need to start deploying Richardson like the player he is, not the player they hope he can one day become. `\
 https://nytimes.com/athletic/5877998/2024/10/27/colts-anthony-richardson-shane-steichen-reality/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5877771/2024/10/27/patriots-jets-jerod-mayo-soft-bu
 **Bills win third straight with 31-10 victory over Seahawks: Takeaways**\
 `The Bills never trailed and posted a season-high 445 yards of offense against the Seahawks on the way to a third straight win.`\
 https://nytimes.com/athletic/5877354/2024/10/27/bills-seahawks-score-takeaways-results/
+
+**Dwyane Wade statue draws mixed reviews from fans confused by likeness**\
+`Some compared the statue to the likes of actor Laurence Fishburne, Commanders linebackers coach Ken Norton and Maryland governor Wes Moore.`\
+https://nytimes.com/athletic/5877660/2024/10/27/dwyane-wade-statue-reaction-likeness/
 
