@@ -1,3 +1,7 @@
+**What Japan’s Political Uncertainty Means for Its Market Rally**\
+`The long-ruling Liberal Democratic Party has lost its parliamentary majority, raising questions about the policy stability that has lured investors.`\
+https://nytimes.com/2024/10/28/business/japan-economy-election.html
+
 **Ten Hag sacked as Manchester United manager**\
 `Erik ten Hag has been sacked as Manchester United manager.`\
 https://nytimes.com/athletic/5854757/2024/10/28/erik-ten-hag-sacked-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/22/opinion/thepoint/onstage-in-new-york-trump-g
 **Tennis Briefing: Hall of Fame adds Maria Sharapova; ATP and WTA 1000 tournaments for sale?**\
 `The latest entrants into the sport's celebration of its legends, and possible new developments in the remaking of the tennis calendar.`\
 https://nytimes.com/athletic/5872373/2024/10/28/tennis-hall-fame-sharapova-bryan-miami-madrid-sale/
-
-**As frustration mounts, Cowboys drop below .500 with tough 4-game stretch ahead**\
-`The Cowboys fall to 3-4 with their road loss to the 49ers and the path to a postseason berth gets tougher.`\
-https://nytimes.com/athletic/5879086/2024/10/28/cowboys-frustration-loss-49ers/
 

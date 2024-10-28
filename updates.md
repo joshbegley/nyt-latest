@@ -1,3 +1,7 @@
+**What Japan’s Political Uncertainty Means for Its Market Rally**\
+`The long-ruling Liberal Democratic Party has lost its parliamentary majority, raising questions about the policy stability that has lured investors.`\
+https://nytimes.com/2024/10/28/business/japan-economy-election.html
+
 **Ten Hag sacked as Manchester United manager**\
 `Erik ten Hag has been sacked as Manchester United manager.`\
 https://nytimes.com/athletic/5854757/2024/10/28/erik-ten-hag-sacked-manchester-united/
