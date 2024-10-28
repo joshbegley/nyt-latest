@@ -1,3 +1,11 @@
+**2 Members of Washington Post Editorial Board Step Down**\
+`The two writers, David Hoffman and Molly Roberts, said they thought it was important for the paper to endorse Vice President Kamala Harris in the presidential election.`\
+https://nytimes.com/2024/10/28/business/media/washington-post-endorsement-editorial-board.html
+
+**Manchester United target Amorim is one of Europe’s most coveted tactical thinkers**\
+`The 39-year-old is a charismatic leader known for fielding young talent and improving individuals`\
+https://nytimes.com/athletic/5880321/2024/10/28/manchester-united-ruben-amorim-sporting-tactics/
+
 **Bears' Tyrique Stevenson was supposed to box out on Hail Mary, apologizes to team**\
 `Chicago Bears cornerback Tyrique Stevenson addressed the team Monday morning and apologized for not being in position for Washington’s game-winning Hail Mary touchdown on Sunday.`\
 https://nytimes.com/athletic/5880579/2024/10/28/matt-eberflus-tyrique-stevenson-hail-mary-comments-2/
