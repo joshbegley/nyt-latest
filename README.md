@@ -1,3 +1,7 @@
+**Philadelphia District Attorney Sues Musk Over $1 Million Voter Giveaways**\
+`Larry Krasner, the top prosecutor in Philadelphia, sued Elon Musk and his Trump-supporting super PAC, saying the giveaways amounted to an “unlawful lottery.”`\
+https://nytimes.com/2024/10/28/us/politics/elon-musk-giveaway-philadelphia-lawsuit.html
+
 **British Labour Lawmaker Suspended After Punches Thrown**\
 `Video that emerged over the weekend appeared to show Mike Amesbury, a Labour party lawmaker, hitting a man in the face and then repeatedly landing more body blows.`\
 https://nytimes.com/2024/10/28/world/europe/british-labour-lawmaker-punch-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880321/2024/10/28/manchester-united-ruben-amorim-s
 **Bears' Tyrique Stevenson was supposed to box out on Hail Mary, apologizes to team**\
 `Chicago Bears cornerback Tyrique Stevenson addressed the team Monday morning and apologized for not being in position for Washington’s game-winning Hail Mary touchdown on Sunday.`\
 https://nytimes.com/athletic/5880579/2024/10/28/matt-eberflus-tyrique-stevenson-hail-mary-comments-2/
-
-**Connecticut Sun part with coach Stephanie White**\
-`White coached the Sun to a 55-25 regular season and 7-7 postseason record.`\
-https://nytimes.com/athletic/5880581/2024/10/28/stephanie-white-connecticut-sun-parting/
 
