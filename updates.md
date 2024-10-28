@@ -1,3 +1,7 @@
+**With Jameis Winston at QB, Browns stun Ravens and show they won't go away quietly**\
+`What Winston orchestrated against Baltimore was totally different than previous versions of Cleveland's offense this season. `\
+https://nytimes.com/athletic/5877767/2024/10/27/browns-win-jameis-winston-ravens/
+
 **After loss to Patriots, it's too dark to see how Aaron Rodgers' Jets can save their season**\
 `Sunday's upset loss in Foxboro was a new low point for the 2024 Jets.`\
 https://nytimes.com/athletic/5877716/2024/10/27/jets-loss-patriots-darkness-aaron-rodgers/
