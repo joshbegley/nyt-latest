@@ -1,3 +1,19 @@
+**Israel Calls the Shots in the Mideast as U.S. Plays a Lesser Role**\
+`A once pivotal player has seen its influence become limited.`\
+https://nytimes.com/2024/10/28/world/middleeast/israel-us-mideast-conflict.html
+
+**Bullied by China at Sea, With the Broken Bones to Prove It**\
+`A violent attack on a Vietnamese fishing boat tests Hanoi’s muted but resolute approach to China’s aggression in the South China Sea.`\
+https://nytimes.com/2024/10/28/world/asia/vietnam-south-china-sea.html
+
+**Britain Braces for ‘Painful’ Budget Meant to Recharge the Economy**\
+`The new Labour Party government said it had inherited a challenging financial position and warned of tax increases and spending cuts when it reveals its budget this week.`\
+https://nytimes.com/2024/10/28/business/britain-budget-taxes.html
+
+**In England’s Most Haunted Village, Halloween Means Screams and Skeptics**\
+`Pluckley is said to count at least 12 spirits among its 1,000 residents. Come October, ghost hunters arrive in droves to a place where even nonbelievers concede they’ve had eerie encounters.`\
+https://nytimes.com/2024/10/28/world/europe/pluckley-england-haunted-ghosts-halloween.html
+
 **Quote of the Day: There’s Much More To A Midmajor Star Than Meets the Eyes**\
 `Quotation of the Day for Monday, October 28, 2024.`\
 https://nytimes.com/2024/10/27/pageoneplus/quote-of-the-day-theres-much-more-to-a-midmajor-star-than-meets-the-eyes.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5878588/2024/10/27/bills-identity-midseason-josh-al
 **With a method to their madness, Jayden Daniels and the Commanders hailed down Mary**\
 `Sunday against the Bears, Daniels was again magical when mortal behavior would not be enough.`\
 https://nytimes.com/athletic/5877229/2024/10/27/commanders-bears-jayden-daniels-hail-mary/
-
-**Trump at the Garden: A Closing Carnival of Grievances, Misogyny and Racism**\
-`The inflammatory rally was a capstone for an increasingly aggrieved campaign for Donald Trump, whose rhetoric has grown darker and more menacing.`\
-https://nytimes.com/2024/10/27/us/trump-msg-rally.html
-
-**Steph Curry sprains left ankle vs. Clippers**\
-`Curry limped to the locker room and exited for the night after twisting his left ankle.`\
-https://nytimes.com/athletic/5878623/2024/10/27/steph-curry-ankle-injury-update/
-
-**What Ladd McConkey's breakout could mean for the Chargers offense**\
-`The Chargers' answer at receiver might not be on the trade market. That answer could already be on the roster, wearing No. 15.`\
-https://nytimes.com/athletic/5878553/2024/10/27/chargers-ladd-mcconkey-win-saints/
-
-**Speaking in New Jersey, Liz Cheney says Harris will win.**\
-`By Erin Nolan`\
-https://nytimes.com/live/2024/10/27/us/harris-trump-election/speaking-in-new-jersey-liz-cheney-says-harris-will-win
 
