@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Dillon Gabriel surges past Ashton Jeanty as favorite**\
+`Dillon Gabriel has emerged as the favorite to win the Heisman Trophy, taking the top spot from Ashton Jeanty.`\
+https://nytimes.com/athletic/5880663/2024/10/28/heisman-trophy-odds-dillon-gabriel-ashton-jeanty/
+
 **Trump Hints at ‘Little Secret’ With House Republicans, Setting Off a Panic**\
 `The former president seemed to delight in fueling speculation about what he is cooking up with House Republicans, prompting Democrats to worry about election fraud. Speaker Mike Johnson refused to explain.`\
 https://nytimes.com/2024/10/28/us/politics/trump-secret-house-republicans-panic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/world/europe/british-labour-lawmaker-punch-video.
 **Harris Ties Trump to the Fatal Fallout of Abortion Bans**\
 `An ad from the Harris campaign highlights the death of Amber Nicole Thurman, a Georgia woman whose delay in medical care was reportedly tied to the state’s post-Roe abortion restrictions.`\
 https://nytimes.com/2024/10/28/us/politics/harris-ad-amber-nicole-thurman.html
-
-**Colts noncommittal on Anthony Richardson as the starting QB**\
-`Steichen said that Richardson subbing himself out Sunday was not a factor in his decision to reevaluate the team's quarterback situation.`\
-https://nytimes.com/athletic/5880640/2024/10/28/shane-steichen-comments-anthony-richardson-colts-viking/
 

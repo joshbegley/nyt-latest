@@ -1,3 +1,7 @@
+**Hundreds of Ballots Destroyed After Drop Boxes Set on Fire**\
+`Federal authorities were investigating two fires that were lit in ballot drop boxes in the Pacific Northwest early Monday.`\
+https://nytimes.com/video/us/elections/100000009788069/ballot-box-fires-oregon-washington.html
+
 **Trump Hints at ‘Little Secret’ With House Republicans, Setting Off a Panic**\
 `The former president seemed to delight in fueling speculation about what he is cooking up with House Republicans, prompting Democrats to worry about election fraud. Speaker Mike Johnson refused to explain.`\
 https://nytimes.com/2024/10/28/us/politics/trump-secret-house-republicans-panic.html

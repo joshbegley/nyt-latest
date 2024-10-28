@@ -2,6 +2,10 @@
 `The former president seemed to delight in fueling speculation about what he is cooking up with House Republicans, prompting Democrats to worry about election fraud. Speaker Mike Johnson refused to explain.`\
 https://nytimes.com/2024/10/28/us/politics/trump-secret-house-republicans-panic.html
 
+**Hundreds of Ballots Destroyed After Drop Boxes Set on Fire**\
+`Federal authorities were investigating two fires that were lit in ballot drop boxes in the Pacific Northwest early Monday.`\
+https://nytimes.com/video/us/elections/100000009788069/ballot-box-fires-oregon-washington.html
+
 **The Cookies You Want to Bake on Election Day**\
 `Rich with browned butter pecans and chewy with oats, these foolproof cookies are the perfect thing to make — and eat — while results roll in.`\
 https://nytimes.com/2024/10/28/dining/chewy-brown-butter-cookies-election-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/harris-ad-amber-nicole-thurman.html
 **Colts noncommittal on Anthony Richardson as the starting QB**\
 `Steichen said that Richardson subbing himself out Sunday was not a factor in his decision to reevaluate the team's quarterback situation.`\
 https://nytimes.com/athletic/5880640/2024/10/28/shane-steichen-comments-anthony-richardson-colts-viking/
-
-**In Montana, Republican Tim Sheehy Tries to Outrun Jon Tester, and Scrutiny**\
-`The novice Republican candidate’s honesty has come into question in a race that could decide Senate control.`\
-https://nytimes.com/2024/10/28/us/politics/sheehy-tester-montana-senate.html
 
