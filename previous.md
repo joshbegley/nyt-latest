@@ -1,3 +1,7 @@
+**At Madison Square Garden, Trump Deals a MAGA Dopamine Rush**\
+`He was clearly recalibrating what it takes to hook his addicted masses.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-rally-madison-square-garden
+
 **Philadelphia District Attorney Sues Musk Over $1 Million Voter Giveaways**\
 `Larry Krasner, the top prosecutor in Philadelphia, sued Elon Musk and his Trump-supporting super PAC, saying the giveaways amounted to an “unlawful lottery.”`\
 https://nytimes.com/2024/10/28/us/politics/elon-musk-giveaway-philadelphia-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/business/media/washington-post-endorsement-editor
 **Manchester United target Amorim is one of Europe’s most coveted tactical thinkers**\
 `The 39-year-old is a charismatic leader known for fielding young talent and improving individuals`\
 https://nytimes.com/athletic/5880321/2024/10/28/manchester-united-ruben-amorim-sporting-tactics/
-
-**Bears' Tyrique Stevenson was supposed to box out on Hail Mary, apologizes to team**\
-`Chicago Bears cornerback Tyrique Stevenson addressed the team Monday morning and apologized for not being in position for Washington’s game-winning Hail Mary touchdown on Sunday.`\
-https://nytimes.com/athletic/5880579/2024/10/28/matt-eberflus-tyrique-stevenson-hail-mary-comments-2/
 

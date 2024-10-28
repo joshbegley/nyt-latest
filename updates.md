@@ -1,3 +1,7 @@
+**At Madison Square Garden, Trump Deals a MAGA Dopamine Rush**\
+`He was clearly recalibrating what it takes to hook his addicted masses.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-rally-madison-square-garden
+
 **Philadelphia District Attorney Sues Musk Over $1 Million Voter Giveaways**\
 `Larry Krasner, the top prosecutor in Philadelphia, sued Elon Musk and his Trump-supporting super PAC, saying the giveaways amounted to an “unlawful lottery.”`\
 https://nytimes.com/2024/10/28/us/politics/elon-musk-giveaway-philadelphia-lawsuit.html
