@@ -1,3 +1,7 @@
+**Israeli forces withdraw from a major hospital in northern Gaza.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israeli-forces-withdraw-from-a-major-hospital-in-northern-gaza
+
 **Totti confirms he is considering coming out of retirement**\
 `Former Roma forward Francesco Totti claims &#8220;one or two teams&#8221; are interested in signing him as he considers making a return to football.`\
 https://nytimes.com/athletic/5879465/2024/10/28/francesco-totti-retirement-comeback/
