@@ -1,3 +1,7 @@
+**'We’re not surprised, nor are we satisfied': Bills identity coming into focus at midpoint**\
+`The Bills, at 6-2, have a sizable lead in the AFC East.`\
+https://nytimes.com/athletic/5878588/2024/10/27/bills-identity-midseason-josh-allen/
+
 **With a method to their madness, Jayden Daniels and the Commanders hailed down Mary**\
 `Sunday against the Bears, Daniels was again magical when mortal behavior would not be enough.`\
 https://nytimes.com/athletic/5877229/2024/10/27/commanders-bears-jayden-daniels-hail-mary/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5878169/2024/10/27/tyrique-stevenson-bears-commande
 **Antonio Pierce's decision-making lets Raiders down in narrow loss to Chiefs**\
 `The first-year head coach made some questionable moves as Las Vegas lost to Kansas City 27-20, the team's fourth straight setback.`\
 https://nytimes.com/athletic/5878093/2024/10/27/antonio-pierce-raiders-chiefs-decision-making/
-
-**After Broncos rout Panthers, Sean Payton demands more: 'We're going to see better teams'**\
-`The Broncos have their best start since 2016, but Payton stresses they must raise the internal standard as the schedule intensifies.`\
-https://nytimes.com/athletic/5878167/2024/10/27/broncos-win-panthers-sean-payton-demand-more/
 
