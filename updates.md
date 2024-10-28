@@ -1,3 +1,15 @@
+**Harris Campaign Distances Itself From Biden in the Crucial Final Days**\
+`Joint events with an unpopular incumbent would “only hurt” the vice president at this stage of the campaign, as one of her advisers put it. But the president does not want to be sidelined.`\
+https://nytimes.com/2024/10/28/us/politics/harris-biden-campaign.html
+
+**He Was 5 When Border Agents Took Him From His Father. He Hasn’t Forgotten.**\
+`Seven years after a Trump policy ruptured his family and landed him in foster care, José is a star student. But he is still scarred. “I don’t trust anyone.”`\
+https://nytimes.com/2024/10/28/us/migrant-children-border-trump.html
+
+**Adam Schiff, Not Yet a Senator, Deploys to Bolster Potential Future Colleagues**\
+`With his election in California all but assured, the prominent Donald Trump antagonist is spending the final days of the race trying to help Democrats in the battlegrounds over the finish line.`\
+https://nytimes.com/2024/10/28/us/politics/adam-schiff-not-yet-a-senator-deploys-to-bolster-potential-future-colleagues.html
+
 **Whether Harris or Trump Wins, Seeking Asylum in the U.S. May Never Be the Same**\
 `As administrations of both parties have failed to overhaul the nation’s immigration laws, a reckoning for the asylum system, which some say is overdue, seems inevitable.`\
 https://nytimes.com/2024/10/28/us/politics/harris-trump-asylum-immigration.html
