@@ -1,3 +1,7 @@
+**Steve Mariotti, Whose Trauma Led Him to Help Youths at Risk, Dies at 71**\
+`After he was mugged, he took a therapist’s advice to work with “difficult students at a difficult school.” They ignored him until the lessons turned to business.`\
+https://nytimes.com/2024/10/28/nyregion/steve-mariotti-dead.html
+
 **What it's like to vote for the Ballon d’Or Feminin**\
 `The Athletic's Steph Yang was selected to vote as the representative from the U.S.`\
 https://nytimes.com/athletic/5880978/2024/10/28/ballon-dor-2024-women-fifa-voting/
