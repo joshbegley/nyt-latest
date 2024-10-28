@@ -1,3 +1,7 @@
+**Gérard Depardieu’s Sexual Assault Trial in France Is Postponed Until March**\
+`The French movie star’s lawyer said poor health kept his client from court on Monday.`\
+https://nytimes.com/2024/10/28/world/europe/depardieus-sexual-assault-trial-postponed.html
+
 **Harris Aides Quietly Grow More Bullish on Defeating Trump**\
 `While still cautious, advisers and allies believe that casting Donald Trump as a fascist is working, and that their expansive ground game and appeals on abortion rights may carry the day.`\
 https://nytimes.com/2024/10/28/us/politics/kamala-harris-donald-trump-2024-election.html
