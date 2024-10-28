@@ -1,3 +1,11 @@
+**Trump Repeatedly Refers to CNN’s Anderson Cooper as ‘Allison’**\
+`The former president, who often uses disparaging nicknames for people he dislikes, has referred to the host by a woman’s name on at least three occasions since Friday.`\
+https://nytimes.com/2024/10/28/us/politics/trump-anderson-cooper-cnn.html
+
+**Trump’s Biggest Con: Pretending to Support American Workers**\
+`He’s even more antilabor and pro-plutocrat than orthodox Republicans.`\
+https://nytimes.com/2024/10/28/opinion/trump-american-workers.html
+
 **World Series ticket prices in New York cool with Yankees down 2-0, but demand still strong**\
 `A StubHub spokesperson said the dip wasn't surprising based on how the series between two star-studded markets has unfolded so far.`\
 https://nytimes.com/athletic/5880861/2024/10/28/world-series-ticket-prices-dodgers-yankees/
