@@ -1,3 +1,15 @@
+**Musk Repeatedly Raises the Idea That Harris, or He, Could Be Assassinated**\
+`The billionaire and his PAC have used foreboding language about the vice president in their support of former President Donald Trump.`\
+https://nytimes.com/2024/10/28/us/politics/musk-harris-assassination-attempts.html
+
+**Nottingham Forest open talks with Wood over new contract**\
+`Nottingham Forest have begun contract talks with striker Chris Wood.`\
+https://nytimes.com/athletic/5880954/2024/10/28/chris-wood-nottingham-forest-contract/
+
+**Fewer Pennsylvanians have voted so far than in 2020, the state says.**\
+`By Mattathias Schwartz`\
+https://nytimes.com/live/2024/10/28/us/harris-trump-election/fewer-pennsylvanians-have-voted-so-far-than-in-2020-the-state-says
+
 **U.S. Officials Sweep Troubled Brooklyn Prison Where 2 Were Killed**\
 `Two inmates were fatally stabbed this summer at the federal Metropolitan Detention Center, where Sean Combs is awaiting trial in his sex-trafficking case.`\
 https://nytimes.com/2024/10/28/nyregion/doj-mdc-brooklyn-prison.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/28/world/middleeast/iran-jamshid-sharmahd-narges-moh
 **N.Y.P.D. Chief Stirs Criticism With Newsmax Appearance at Trump Rally**\
 `John Chell also went on other networks, but struck a nerve by appearing on a channel that has boosted conspiracy theories and misinformation.`\
 https://nytimes.com/2024/10/28/nyregion/nypd-chief-chell-newsmax-trump.html
-
-**Gaza Cease-Fire Talks Resume, but Are Overshadowed by U.S. Election**\
-`Envoys from Israel, Egypt, the United States and Qatar took part in the negotiations, but no agreements are expected until American voters choose their next president.`\
-https://nytimes.com/2024/10/28/world/middleeast/gaza-cease-fire-us-elections.html
-
-**Tuesday Briefing: The U.S. Campaign’s Final Stretch**\
-`Plus, the “Ketamine Queen.”`\
-https://nytimes.com/2024/10/28/briefing/us-election-russia-ukraine-north-korea-vietnam-china.html
-
-**Prime Tire: Why Verstappen crossed a line in Mexico**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/5880507/2024/10/28/max-verstappen-mexico-grand-prix-f1-prime-tire/
 

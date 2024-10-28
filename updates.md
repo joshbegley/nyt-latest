@@ -1,3 +1,15 @@
+**Musk Repeatedly Raises the Idea That Harris, or He, Could Be Assassinated**\
+`The billionaire and his PAC have used foreboding language about the vice president in their support of former President Donald Trump.`\
+https://nytimes.com/2024/10/28/us/politics/musk-harris-assassination-attempts.html
+
+**Nottingham Forest open talks with Wood over new contract**\
+`Nottingham Forest have begun contract talks with striker Chris Wood.`\
+https://nytimes.com/athletic/5880954/2024/10/28/chris-wood-nottingham-forest-contract/
+
+**Fewer Pennsylvanians have voted so far than in 2020, the state says.**\
+`By Mattathias Schwartz`\
+https://nytimes.com/live/2024/10/28/us/harris-trump-election/fewer-pennsylvanians-have-voted-so-far-than-in-2020-the-state-says
+
 **U.S. Officials Sweep Troubled Brooklyn Prison Where 2 Were Killed**\
 `Two inmates were fatally stabbed this summer at the federal Metropolitan Detention Center, where Sean Combs is awaiting trial in his sex-trafficking case.`\
 https://nytimes.com/2024/10/28/nyregion/doj-mdc-brooklyn-prison.html
