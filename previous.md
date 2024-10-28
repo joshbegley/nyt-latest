@@ -1,10 +1,18 @@
+**Israel says it targeted Hezbollah positions in southern Lebanese port city.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israel-says-it-targeted-hezbollah-positions-in-southern-lebanese-port-city
+
+**Ivica Zubac's sudden offensive outburst is anchoring the Clippers**\
+`The veteran big man has three straight 20-point games to open the season, including a team-high 23 in Sunday's win at Golden State.`\
+https://nytimes.com/athletic/5878852/2024/10/28/ivica-zubac-clippers-offense/
+
 **Scoop City: Risers and fallers after Week 8**\
 `A quick look at the risers (Browns, Lions, Commanders), fallers (Jets, Bears), and the league's worst starting quarterback.  `\
 https://nytimes.com/athletic/5879954/2024/10/28/trending-%f0%9f%93%89-%f0%9f%93%88-after-nfls-week-8-plus-the-continued-decline-of-the-jets-anthony-richardson/
 
 **Trump’s Vast Tariffs Would Rock Global Businesses and Shake Alliances**\
 `Economists said Donald Trump’s plan to return trade barriers to levels not seen in generations would be “a grenade thrown in the heart” of the international system.`\
-https://nytimes.com/2024/10/28/us/politics/trumps-vast-tariffs-would-rock-global-businesses-and-shake-alliances.html
+https://nytimes.com/2024/10/28/us/politics/trumps-tariffs-global-trade.html
 
 **5 Eerie Games to Haunt During Halloween Week**\
 `Everyone has secrets to conceal in Life Is Strange: Double Exposure, a supernatural thriller with parallel timelines.`\
@@ -30,12 +38,4 @@ https://nytimes.com/live/2024/10/28/us/harris-trump-election/the-washington-comm
 **Is Pay Beating Inflation? It’s Complicated.**\
 `On average, wages have risen faster than prices in recent years. But not all Americans are getting ahead.`\
 https://nytimes.com/2024/10/28/business/economy/inflation-wages-pay-salaries.html
-
-**That’s a Lot of Cheddar: Scammers Steal $390,000 of British Cheese**\
-`Neal’s Yard, a leading cheese retailer in London, said that a shipment of 22 metric tons of rare Cheddar had disappeared in the con.`\
-https://nytimes.com/2024/10/28/world/europe/uk-cheese-theft-scam.html
-
-**How Well Do You Know Classic Books for Halloween Reading?**\
-`Magic, madness and supernatural horror have driven many book plots over the centuries. This short quiz scares up several popular novels to test your knowledge.`\
-https://nytimes.com/interactive/2024/10/28/books/review/halloween-books-quiz.html
 
