@@ -1,3 +1,11 @@
+**Paul Morrissey, Andy Warhol’s Cinematic Collaborator, Dies at 86**\
+`In films like “Trash” and “Women in Revolt,” he brought movement, character and something resembling a story line to the Warhol film aesthetic.`\
+https://nytimes.com/2024/10/28/movies/paul-morrissey-dead.html
+
+**A tactical guide to Ruud van Nistelrooy: the football manager**\
+`The former United striker is now in charge of the club on a temporary basis - but how will he set the team up?`\
+https://nytimes.com/athletic/5842023/2024/10/28/van-nistelrooy-tactical-guide-manchester-united/
+
 **Boeing Will Sell $19 Billion in Stock as Strike Weighs on Finances**\
 `The aerospace company, locked in a standoff with striking workers, is seeking to shore up its balance sheet and avoid a credit rating downgrade.`\
 https://nytimes.com/2024/10/28/business/boeing-stock-sale-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5878957/2024/10/28/browns-jim-donovan-voice-nfl/
 **Julius Randle's warm welcome from Timberwolves fans, lineup tinkering and more**\
 `Here are some early impressions from the new-look Timberwolves.`\
 https://nytimes.com/athletic/5874964/2024/10/28/early-impressions-timberwolves/
-
-**Hollinger's Week That Was: Thoughts on foul rates, contract incentives and Suns' Ryan Dunn**\
-`It's early, but so far, dull marches to the free-throw line have marred games.`\
-https://nytimes.com/athletic/5877937/2024/10/28/nba-foul-rate-ryan-dunn-phoenix-suns/
-
-**Keeping Ten Hag was Sir Jim Ratcliffe and INEOS' first big mistake - they cannot afford another**\
-`Erik ten Hag got the heat for Manchester United's poor form but Ratcliffe and INEOS must also take their share of the blame`\
-https://nytimes.com/athletic/5854794/2024/10/28/ineos-manchester-united-ten-hag-sack-mistake/
 
