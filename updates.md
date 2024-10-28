@@ -1,3 +1,7 @@
+**FPL: What we learnt from Gameweek 9 - Saka surprise and Haaland underwhelms?**\
+`Abdul Rehman breaks down the main talking points from Gameweek 9 in Fantasy Premier League`\
+https://nytimes.com/athletic/5877411/2024/10/28/fantasy-premier-league-what-we-learned-from-gameweek-9-saka-surprise-and-haaland-disappointment/
+
 **Election Live Updates: After Trump’s Racist Rally, Campaigns Plan Furious Week of Events**\
 `Former President Donald J. Trump’s MAGA rally at Madison Square Garden featured dark grievances and racism. Vice President Kamala Harris is shaping a closing message focused on the stakes of a second Trump term.`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election
