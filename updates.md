@@ -1,3 +1,23 @@
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in Texas**\
+`Results of a New York Times/Siena College poll conducted among 1,180 voters in Texas from Oct. 23 to 26, 2024.`\
+https://nytimes.com/interactive/2024/10/28/us/elections/times-siena-texas-poll-toplines.html
+
+**Toplines: October 2024 Times/Siena Polls of Registered Voters in Nebraska and Nebraska’s 2nd C.D.**\
+`Results of a New York Times/Siena College poll conducted among 1,194 voters in Nebraska, including 500 voters in Nebraska’s Second Congressional District, from Oct. 23 to 26, 2024.`\
+https://nytimes.com/interactive/2024/10/28/us/elections/times-siena-nebraska-poll-toplines.html
+
+**Cross-Tabs: October 2024 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena College poll conducted among 1,180 voters in Texas from Oct. 23 to 26, 2024.`\
+https://nytimes.com/interactive/2024/10/28/us/elections/times-siena-texas-poll-crosstabs.html
+
+**Cross-Tabs: October 2024 Times/Siena Polls of the Likely Electorate in Nebraska and Nebraska’s 2nd C.D.**\
+`Results of a New York Times/Siena College poll conducted among 1,194 voters in Nebraska, including 500 voters in Nebraska’s Second Congressional District, from Oct. 23 to 26, 2024.`\
+https://nytimes.com/interactive/2024/10/28/us/elections/times-siena-nebraska-poll-crosstabs.html
+
+**The Athletic 134: Top-10 Indiana's dream season hits November**\
+`The Hoosiers went 3-9 last year but just beat the national runner-up and will likely to be favored against last year’s national champs.`\
+https://nytimes.com/athletic/5878071/2024/10/28/college-football-rankings-fbs-teams-indiana/
+
 **How the Celtics trusted Jrue Holiday and was rewarded with their 18th NBA championship**\
 `“I don’t talk very much. When I say something, I really mean it,” Holiday recalled during a moment in the 2024 NBA Finals.`\
 https://nytimes.com/athletic/5837566/2024/10/28/celtics-trust-jrue-holiday-nba-championship/

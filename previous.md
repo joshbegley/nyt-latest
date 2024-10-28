@@ -1,3 +1,23 @@
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in Texas**\
+`Results of a New York Times/Siena College poll conducted among 1,180 voters in Texas from Oct. 23 to 26, 2024.`\
+https://nytimes.com/interactive/2024/10/28/us/elections/times-siena-texas-poll-toplines.html
+
+**Toplines: October 2024 Times/Siena Polls of Registered Voters in Nebraska and Nebraska’s 2nd C.D.**\
+`Results of a New York Times/Siena College poll conducted among 1,194 voters in Nebraska, including 500 voters in Nebraska’s Second Congressional District, from Oct. 23 to 26, 2024.`\
+https://nytimes.com/interactive/2024/10/28/us/elections/times-siena-nebraska-poll-toplines.html
+
+**Cross-Tabs: October 2024 Times/Siena Poll of the Likely Electorate in Texas**\
+`Results of a New York Times/Siena College poll conducted among 1,180 voters in Texas from Oct. 23 to 26, 2024.`\
+https://nytimes.com/interactive/2024/10/28/us/elections/times-siena-texas-poll-crosstabs.html
+
+**Cross-Tabs: October 2024 Times/Siena Polls of the Likely Electorate in Nebraska and Nebraska’s 2nd C.D.**\
+`Results of a New York Times/Siena College poll conducted among 1,194 voters in Nebraska, including 500 voters in Nebraska’s Second Congressional District, from Oct. 23 to 26, 2024.`\
+https://nytimes.com/interactive/2024/10/28/us/elections/times-siena-nebraska-poll-crosstabs.html
+
+**The Athletic 134: Top-10 Indiana's dream season hits November**\
+`The Hoosiers went 3-9 last year but just beat the national runner-up and will likely to be favored against last year’s national champs.`\
+https://nytimes.com/athletic/5878071/2024/10/28/college-football-rankings-fbs-teams-indiana/
+
 **How the Celtics trusted Jrue Holiday and was rewarded with their 18th NBA championship**\
 `“I don’t talk very much. When I say something, I really mean it,” Holiday recalled during a moment in the 2024 NBA Finals.`\
 https://nytimes.com/athletic/5837566/2024/10/28/celtics-trust-jrue-holiday-nba-championship/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/28/insider/in-the-race-for-congress-a-reporter-start
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/28/crosswords/spelling-bee-forum.html
-
-**Uruguay’s Presidential Election Is Headed to a November Runoff**\
-`Yamandú Orsi, a center-left former mayor, finished first on Sunday but fell short of the 50 percent threshold needed to avoid another round of voting.`\
-https://nytimes.com/2024/10/28/world/americas/uruguay-election-president.html
-
-**Word of the Day: logistical**\
-`This word has appeared in 424 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/28/learning/word-of-the-day-logistical.html
-
-**Monday Briefing**\
-`Americans’ fears about the future of democracy.`\
-https://nytimes.com/2024/10/28/briefing/american-election-democracy-iran-israel.html
-
-**Arsenal Today: Another injury, Arteta's tactics analysed and Saka is back**\
-`James McNicholas talks you through what is interesting our Arsenal writers today`\
-https://nytimes.com/athletic/5877434/2024/10/28/arsenal-today-injury-arteta-saka/
-
-**Five minutes of madness that could change Wolves' season**\
-`Gary O'Neil's side scored twice at the death to salvage a point at Brighton in what the manager hopes is a turning point for their season`\
-https://nytimes.com/athletic/5875704/2024/10/28/wolves-brighton-cunha-oneil-bottle/
 
