@@ -1,3 +1,7 @@
+**After loss to Patriots, it's too dark to see how Aaron Rodgers' Jets can save their season**\
+`Sunday's upset loss in Foxboro was a new low point for the 2024 Jets.`\
+https://nytimes.com/athletic/5877716/2024/10/27/jets-loss-patriots-darkness-aaron-rodgers/
+
 **Colts can't improve until Shane Steichen, Anthony Richardson accept reality**\
 `The Colts need to start deploying Richardson like the player he is, not the player they hope he can one day become. `\
 https://nytimes.com/athletic/5877998/2024/10/27/colts-anthony-richardson-shane-steichen-reality/
