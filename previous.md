@@ -1,3 +1,15 @@
+**More Changes at Real Estate Giant Amid Turmoil**\
+`Scott Durkin, president and chief executive of Douglas Elliman Realty, has left the company, following the sudden retirement of Howard Lorber, the chief executive of the parent company.`\
+https://nytimes.com/2024/10/28/realestate/douglas-elliman-durkin-resigns.html
+
+**The Pulse: Way-too-early NFL playoff picture**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5878039/2024/10/28/commanders-hail-mary-nfl-playoffs-the-pulse/
+
+**Weekend NHL rankings: Jets unbeatable, Bruins a question mark, Penguins a mess**\
+`Two new teams enter the top five and a new rivalry takes on blistering heat ... maybe.`\
+https://nytimes.com/athletic/5877880/2024/10/28/nhl-weekend-rankings-jets-bruins-penguins-rivalry/
+
 **Sears, Flagg lead The Athletic's preseason All-America teams**\
 `Eight of our 11 picks are seniors or graduates, plus two juniors and a freshman. Alabama's Sears is our lone unanimous selection. `\
 https://nytimes.com/athletic/5873559/2024/10/28/college-basketball-preseason-all-americans-mark-sears-cooper-flagg/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5879038/2024/10/28/tua-tagovailoa-return-dolphins-m
 **Chiefs are 7-0 but not quite perfect. Here’s how to unleash vintage Mahomes: Sando’s Pick Six**\
 `The Chiefs have won 13 straight but hardly look like a juggernaut. Could a lesson from Dan Marino help Patrick Mahomes find his groove?`\
 https://nytimes.com/athletic/5873776/2024/10/28/patrick-mahomes-chiefs-andy-reid-pick-six/
-
-**The Trump Campaign’s Big Gamble**\
-`A look inside the operation’s field office in Maricopa County, Ariz.`\
-https://nytimes.com/2024/10/28/podcasts/the-daily/trump-campaign-arizona.html
-
-**Josh Jacobs, Edgerrin Cooper shine, pass defense falters in Packers' win over Jaguars**\
-`Jacobs ran 25 times for 127 yards and two touchdowns in the Packers' 30-27 win in Jacksonville on Sunday.`\
-https://nytimes.com/athletic/5878583/2024/10/28/packers-josh-jacobs-edgerrin-cooper/
-
-**Red Wings' losing weekend has a silver lining: A lineup that could stick**\
-`The Red Wings blew a late lead to the Oilers on Sunday and lost twice over the weekend but might have found a lineup that can help them.`\
-https://nytimes.com/athletic/5878092/2024/10/28/red-wings-silver-lining-copp-lineup/
 
