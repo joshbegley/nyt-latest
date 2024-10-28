@@ -1,3 +1,11 @@
+**Republicans Distance Themselves From Puerto Rico Insult at Trump’s Rally**\
+`A comedian who spoke at Donald Trump’s campaign rally at Madison Square Garden referred to the U.S. territory as a “floating island of garbage,” prompting immediate backlash.`\
+https://nytimes.com/2024/10/28/us/politics/puerto-rico-republicans-trump-msg-rally.html
+
+**Thompson: Brock Purdy was a gamer when 49ers needed it most**\
+`On Sunday, with the 49ers struggling again and their season teetering, Brock Purdy found a way to lift the team. Just like they need.`\
+https://nytimes.com/athletic/5880413/2024/10/28/brock-purdy-49ers-cowboys-gamer-thompson/
+
 **At Madison Square Garden, Trump Deals a MAGA Dopamine Rush**\
 `He was clearly recalibrating what it takes to hook his addicted masses.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-rally-madison-square-garden
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/biden-vote-harris.html
 **Bannon’s Release From Prison Unleashes an Agitator Into Heated Campaign**\
 `Allies say Stephen K. Bannon, one of the right’s most influential voices, has been tracking the race from prison and is ready to push Trump supporters to the polls.`\
 https://nytimes.com/2024/10/28/us/politics/steve-bannon-trump-campaign-war-room.html
-
-**2 Members of Washington Post Editorial Board Step Down**\
-`The two writers, David Hoffman and Molly Roberts, said they thought it was important for the paper to endorse Vice President Kamala Harris in the presidential election.`\
-https://nytimes.com/2024/10/28/business/media/washington-post-endorsement-editorial-board.html
-
-**Manchester United target Amorim is one of Europe’s most coveted tactical thinkers**\
-`The 39-year-old is a charismatic leader known for fielding young talent and improving individuals`\
-https://nytimes.com/athletic/5880321/2024/10/28/manchester-united-ruben-amorim-sporting-tactics/
 
