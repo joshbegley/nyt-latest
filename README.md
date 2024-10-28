@@ -1,3 +1,7 @@
+**Gérard Depardieu’s Sexual Assault Trial in France Is Postponed Until March**\
+`The French movie star’s lawyer said poor health kept his client from court on Monday.`\
+https://nytimes.com/2024/10/28/world/europe/depardieus-sexual-assault-trial-postponed.html
+
 **Harris Aides Quietly Grow More Bullish on Defeating Trump**\
 `While still cautious, advisers and allies believe that casting Donald Trump as a fascist is working, and that their expansive ground game and appeals on abortion rights may carry the day.`\
 https://nytimes.com/2024/10/28/us/politics/kamala-harris-donald-trump-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879977/2024/10/28/college-football-week-10-odds-sc
 **Recruiting Gen Z Voters With ‘Poll Dancers’ and Yung Gravy**\
 `The Party to the Polls Purple Tour, a nonpartisan event series geared toward young voters, aims to make voting rowdy.`\
 https://nytimes.com/2024/10/28/style/gen-z-voters-concert-series.html
-
-**The Misogynistic, Bigoted and Crude Rally Remarks Trump Hasn’t Addressed**\
-`A range of speakers at Madison Square Garden on Sunday disparaged Latinos, Black people, Palestinians and Jews, and made vulgar references to Kamala Harris. The Trump campaign has distanced itself from only one of these statements.`\
-https://nytimes.com/2024/10/28/us/politics/trump-msg-rally-speaker-remarks.html
 
