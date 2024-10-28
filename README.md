@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5878302/2024/10/27/bears-commanders-hail-mary-tyriq
 `After scoring a TD on their first possession Sunday, the Panthers went nine consecutive series without scoring against the Broncos.`\
 https://nytimes.com/athletic/5878479/2024/10/27/panthers-bryce-young-quarterback-decision-broncos/
 
-**'We’re not surprised, nor are we satisfied': Bills identity coming into focus at midpoint**\
+**'We're not surprised, nor are we satisfied': Bills' identity coming into focus at midpoint**\
 `The Bills, at 6-2, have a sizable lead in the AFC East.`\
 https://nytimes.com/athletic/5878588/2024/10/27/bills-identity-midseason-josh-allen/
 
