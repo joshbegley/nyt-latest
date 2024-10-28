@@ -1,3 +1,7 @@
+**Paying Their Respects at the House of the Dead**\
+`Fans streamed into the Haight-Ashbury neighborhood of San Francisco this weekend to mourn the Grateful Dead bassist Phil Lesh.`\
+https://nytimes.com/card/2024/10/28/arts/phil-lesh-fans
+
 **Iran Executes German-Iranian Opponent Who Lived in U.S.**\
 `Jamshid Sharmahd had been accused of helping in a deadly terrorist bombing in 2008. Another Iranian prisoner, the Nobel laureate Narges Mohammadi, is in the hospital.`\
 https://nytimes.com/2024/10/28/world/middleeast/iran-jamshid-sharmahd-narges-mohammadi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880663/2024/10/28/heisman-trophy-odds-dillon-gabri
 **Trump Hints at ‘Little Secret’ With House Republicans, Setting Off a Panic**\
 `The former president seemed to delight in fueling speculation about what he is cooking up with House Republicans, prompting Democrats to worry about election fraud. Speaker Mike Johnson refused to explain.`\
 https://nytimes.com/2024/10/28/us/politics/trump-secret-house-republicans-panic.html
-
-**Hundreds of Ballots Destroyed After Drop Boxes Set on Fire**\
-`Federal authorities were investigating two fires that were lit in ballot drop boxes in the Pacific Northwest early Monday.`\
-https://nytimes.com/video/us/elections/100000009788069/ballot-box-fires-oregon-washington.html
 
