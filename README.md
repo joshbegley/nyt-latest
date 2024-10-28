@@ -1,7 +1,3 @@
-**An increasing share of voters say Trump has been exercising his right to contest the 2020 election.**\
-`By Ruth Igielnik`\
-https://nytimes.com/live/2024/10/28/us/harris-trump-election/an-increasing-share-of-voters-say-trump-was-exercising-his-right-to-contest-the-2020-election
-
 **Nebraska coach Matt Rhule frustrated by missed calls**\
 `The Big Ten issued a statement acknowledging that its crew missed a key spot late in the first half of the Cornhuskers’ loss at Ohio State.`\
 https://nytimes.com/athletic/5880407/2024/10/28/matt-rhule-big-ten-officials/
@@ -11,7 +7,7 @@ https://nytimes.com/athletic/5880407/2024/10/28/matt-rhule-big-ten-officials/
 https://nytimes.com/2024/10/28/us/minneapolis-attempted-murder-arrest.html
 
 **Michigan State asks Big Ten to review altercation with Michigan following game**\
-`Michigan State has asked the Big Ten to look into a skirmish that broke out following the final play of Saturday’s game against Michigan, coach Jonathan Smith said Monday.`\
+`The Big Ten was reviewing what happened following the final whistle of Michigan’s victory.`\
 https://nytimes.com/athletic/5880358/2024/10/28/michigan-state-michigan-big-ten-review/
 
 **Who Is Tony Hinchcliffe, the Trump Rally Comedian?**\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/28/us/politics/kamala-harris-donald-trump-2024-elect
 **USMNT Player Tracker: Resilient McKennie, Johnny inspires Betis and Tillman as No 10**\
 `Cole Campbell, Tim Weah and Tanner Tessmann also feature in our weekly roundup of the U.S. players' contributions across Europe's leagues`\
 https://nytimes.com/athletic/5880008/2024/10/28/usmnt-mckennie-weah-johnny-tillman-tracker/
+
+**Harris Campaign Distances Itself From Biden in the Crucial Final Days**\
+`Joint events with an unpopular incumbent would “only hurt” the vice president at this stage of the campaign, as one of her advisers put it. But the president does not want to be sidelined.`\
+https://nytimes.com/2024/10/28/us/politics/harris-biden-campaign.html
 
