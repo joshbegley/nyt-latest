@@ -1,3 +1,11 @@
+**Heat Today: Reaction to Dwyane Wade's statue highlights busy weekend**\
+`Wade's newly unveiled Heat statue gave everyone plenty to talk about. `\
+https://nytimes.com/athletic/5875969/2024/10/28/heat-today-dwyane-wade-statue/
+
+**Corporate America Hedges on Trump 2.0**\
+`The race for the White House is deadlocked, but business leaders aren’t taking chances, reaching out to the former president to rebuild relations.`\
+https://nytimes.com/2024/10/28/business/dealbook/ceos-trump-win.html
+
 **FPL: What we learnt from Gameweek 9 - Saka surprise and Haaland underwhelms?**\
 `Abdul Rehman breaks down the main talking points from Gameweek 9 in Fantasy Premier League`\
 https://nytimes.com/athletic/5877411/2024/10/28/fantasy-premier-league-what-we-learned-from-gameweek-9-saka-surprise-and-haaland-disappointment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5874696/2024/10/28/blues-broberg-buchnevich-perunov
 **Ten Hag was overwhelmed at Manchester United - a job that looks increasingly impossible**\
 `Yes, the Dutchman won two trophies in his two seasons but he failed to build a team with a coherent plan and has paid a familiar price `\
 https://nytimes.com/athletic/5469468/2024/10/28/manchester-united-erik-ten-hag-sack/
-
-**Tinkering with defence pairings: 5 righthanders the Oilers should target**\
-`The trade deadline is a long way off, but it's always worth looking at who might be available to bolster Edmonton's blue line.`\
-https://nytimes.com/athletic/5877524/2024/10/28/oilers-defence-trade-targets-righthanders/
-
-**What Japan’s Political Uncertainty Means for Its Market Rally**\
-`The long-ruling Liberal Democratic Party has lost its parliamentary majority, raising questions about the policy stability that has lured investors.`\
-https://nytimes.com/2024/10/28/business/japan-economy-election.html
 
