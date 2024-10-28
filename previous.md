@@ -1,3 +1,11 @@
+**Chiefs trade for Patriots edge rusher Josh Uche**\
+`Uche, 26, signed a one-year deal to remain in New England this past offseason. Now, he's on the move to Kansas City.`\
+https://nytimes.com/athletic/5880235/2024/10/28/josh-uche-chiefs-patriots-trade/
+
+**Investigators suspect arson in fires at 2 ballot drop boxes in the Pacific Northwest.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/10/28/us/harris-trump-election/investigators-suspect-arson-in-fires-at-2-ballot-drop-boxes-in-the-pacific-northwest
+
 **‘Lady Blogs’ Would Have Had a Field Day With This Election**\
 `The robust feminist blogosphere of 2016 is all but gone. Some of the creators are missing its perspective.`\
 https://nytimes.com/2024/10/28/style/feminist-media-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5880142/2024/10/28/nottingham-forest-chelsea-fa-cha
 **Timothée Chalamet Crashes Look-alike Contest**\
 `The Oscar-nominated actor showed up unannounced to a look-alike contest for himself in New York City.`\
 https://nytimes.com/video/nyregion/100000009786923/timothee-chalamet-lookalike-contest-new-york.html
-
-**Maple Leafs extend Jake McCabe: Have they committed to too many older defencemen?**\
-`The five-year contract extension with a $4.51 million cap hit establishes the 31-year-old defenceman as part of the core going forward.`\
-https://nytimes.com/athletic/5880021/2024/10/28/jake-mccabe-extension-maple-leafs/
-
-**Penn State QB Drew Allar could be game-time decision vs. Ohio State, James Franklin says**\
-`Allar did not play in the second half against Wisconsin after suffering an apparent knee injury on a sack.`\
-https://nytimes.com/athletic/5879921/2024/10/28/quarterback-drew-allar-availbility-penn-state-ohio-state/
 

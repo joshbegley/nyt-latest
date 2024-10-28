@@ -1,3 +1,11 @@
+**Chiefs trade for Patriots edge rusher Josh Uche**\
+`Uche, 26, signed a one-year deal to remain in New England this past offseason. Now, he's on the move to Kansas City.`\
+https://nytimes.com/athletic/5880235/2024/10/28/josh-uche-chiefs-patriots-trade/
+
+**Investigators suspect arson in fires at 2 ballot drop boxes in the Pacific Northwest.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/10/28/us/harris-trump-election/investigators-suspect-arson-in-fires-at-2-ballot-drop-boxes-in-the-pacific-northwest
+
 **‘Lady Blogs’ Would Have Had a Field Day With This Election**\
 `The robust feminist blogosphere of 2016 is all but gone. Some of the creators are missing its perspective.`\
 https://nytimes.com/2024/10/28/style/feminist-media-election.html
