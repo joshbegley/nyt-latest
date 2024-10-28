@@ -1,4 +1,4 @@
-**Meloni v. Judges: In Italy, a Fight over Migration Rekindles Old Hostilities**\
+**Meloni v. Judges: In Italy, a Fight Over Migration Rekindles Old Hostilities**\
 `Conservatives have often accused the Italian courts of overreach. The prime minister’s plan to outsource asylum requests is now part of that longstanding battle.`\
 https://nytimes.com/2024/10/28/world/europe/italy-meloni-asylum-judiciary.html
 
