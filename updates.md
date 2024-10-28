@@ -1,3 +1,7 @@
+**Trump Hints at ‘Little Secret’ With House Republicans, Setting Off a Panic**\
+`The former president seemed to delight in fueling speculation about what he is cooking up with House Republicans, prompting Democrats to worry about election fraud. Speaker Mike Johnson refused to explain.`\
+https://nytimes.com/2024/10/28/us/politics/trump-secret-house-republicans-panic.html
+
 **The Cookies You Want to Bake on Election Day**\
 `Rich with browned butter pecans and chewy with oats, these foolproof cookies are the perfect thing to make — and eat — while results roll in.`\
 https://nytimes.com/2024/10/28/dining/chewy-brown-butter-cookies-election-day.html
