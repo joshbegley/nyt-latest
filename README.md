@@ -1,3 +1,7 @@
+**Totti confirms he is considering coming out of retirement**\
+`Former Roma forward Francesco Totti claims &#8220;one or two teams&#8221; are interested in signing him as he considers making a return to football.`\
+https://nytimes.com/athletic/5879465/2024/10/28/francesco-totti-retirement-comeback/
+
 **Tommy Robinson, an Anti-immigrant Agitator in Britain, Gets Jail Sentence**\
 `Mr. Robinson, the founder of the English Defence League, was sentenced to 18 months for ignoring a court order to stop making false claims about a teenage Syrian refugee.`\
 https://nytimes.com/2024/10/28/world/europe/tommy-robinson-sentenced-uk-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5877411/2024/10/28/fantasy-premier-league-what-we-l
 **Lifeless loss to Blazers shows that Pelicans have a lot of work to do**\
 `Three games into the season, New Orleans has yet to deliver on promises of positive change.`\
 https://nytimes.com/athletic/5879285/2024/10/28/pelicans-dejounte-murray-trey-murphy/
-
-**Here’s the latest on the 2024 race.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/10/28/us/harris-trump-election/heres-the-latest-on-the-2024-race
 
