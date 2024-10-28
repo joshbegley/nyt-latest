@@ -1,7 +1,3 @@
-**Bears' Stevenson jaws with fans moments before giving up Hail Mary**\
-`Stevenson did not talk to the media postgame, but posted on X: "To Chicago and teammates my apologies for lack of awareness and focus."`\
-https://nytimes.com/athletic/5878169/2024/10/27/tyrique-stevenson-bears-commanders-hail-mary/
-
 **Antonio Pierce's decision-making lets Raiders down in narrow loss to Chiefs**\
 `The first-year head coach made some questionable moves as Las Vegas lost to Kansas City 27-20, the team's fourth straight setback.`\
 https://nytimes.com/athletic/5878093/2024/10/27/antonio-pierce-raiders-chiefs-decision-making/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5877998/2024/10/27/colts-anthony-richardson-shane-s
 **Corrections: Oct. 27, 2024**\
 `Corrections that appeared in print on Sunday, Oct. 27, 2024.`\
 https://nytimes.com/2024/10/27/pageoneplus/corrections-oct-27-2024.html
+
+**Max Verstappen's Mexico GP penalties hurt. It won't change how he races Lando Norris**\
+`Verstappen has proved that when a championship is on the line, he'll race harder than ever. `\
+https://nytimes.com/athletic/5877474/2024/10/27/f1-max-verstappen-penalty-lando-norris-mexico-gp/
 
