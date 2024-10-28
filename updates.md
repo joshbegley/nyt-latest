@@ -1,3 +1,15 @@
+**Josh Uche trade grades: Chiefs can't lose with high-upside deal; Patriots enter sell mode**\
+`This trade is nothing but profit for the Chiefs. This feels like a deal that has grand-slam potential. `\
+https://nytimes.com/athletic/5880414/2024/10/28/josh-uche-trade-grades-chiefs-patriots/
+
+**An increasing share of voters say Trump has been exercising his right to contest the 2020 election.**\
+`By Ruth Igielnik`\
+https://nytimes.com/live/2024/10/28/us/harris-trump-election/an-increasing-share-of-voters-say-trump-was-exercising-his-right-to-contest-the-2020-election
+
+**Michigan State asks Big Ten to review altercation with Michigan following game**\
+`The Big Ten was reviewing what happened following the final whistle of Michigan’s victory.`\
+https://nytimes.com/athletic/5880358/2024/10/28/michigan-state-michigan-big-ten-review/
+
 **Nebraska coach Matt Rhule frustrated by missed calls**\
 `The Big Ten issued a statement acknowledging that its crew missed a key spot late in the first half of the Cornhuskers’ loss at Ohio State.`\
 https://nytimes.com/athletic/5880407/2024/10/28/matt-rhule-big-ten-officials/
