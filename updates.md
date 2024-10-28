@@ -1,3 +1,11 @@
+**What Ladd McConkey's breakout could mean for the Chargers offense**\
+`The Chargers' answer at receiver might not be on the trade market. That answer could already be on the roster, wearing No. 15.`\
+https://nytimes.com/athletic/5878553/2024/10/27/chargers-ladd-mcconkey-win-saints/
+
+**Speaking in New Jersey, Liz Cheney says Harris will win.**\
+`By Erin Nolan`\
+https://nytimes.com/live/2024/10/27/us/harris-trump-election/speaking-in-new-jersey-liz-cheney-says-harris-will-win
+
 **Keon Coleman's best performance so far, O-line dominance key Bills win**\
 `The Bills defense pounced on a Seattle offense that was missing star receiver D.K. Metcalf.`\
 https://nytimes.com/athletic/5878411/2024/10/27/bills-win-seahawks-keon-coleman-offensinve-line-observations/
