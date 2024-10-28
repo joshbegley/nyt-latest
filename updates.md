@@ -1,3 +1,11 @@
+**Connor McDavid ruled out vs. Blue Jackets with lower-body injury**\
+`McDavid played 37 seconds before being ruled out after the opening faceoff.`\
+https://nytimes.com/athletic/5881214/2024/10/28/connor-mcdavid-injury-oilers-blue-jackets/
+
+**Why Trump Uses Comics Like Tony Hinchcliffe to Spread His Message**\
+`Like the former president, these stand-ups loathe the news media, delight in transgression and harbor a deep-seated love of cruel insult jokes.`\
+https://nytimes.com/2024/10/28/arts/trump-tony-hinchcliffe-joe-rogan.html
+
 **Obama Is the Same. His Coalition Isn’t.**\
 `Democrats failed to preserve his coalition, and Harris is now trying to assemble a different one.`\
 https://nytimes.com/2024/10/28/us/politics/obama-harris-voters.html

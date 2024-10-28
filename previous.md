@@ -1,3 +1,11 @@
+**Connor McDavid ruled out vs. Blue Jackets with lower-body injury**\
+`McDavid played 37 seconds before being ruled out after the opening faceoff.`\
+https://nytimes.com/athletic/5881214/2024/10/28/connor-mcdavid-injury-oilers-blue-jackets/
+
+**Why Trump Uses Comics Like Tony Hinchcliffe to Spread His Message**\
+`Like the former president, these stand-ups loathe the news media, delight in transgression and harbor a deep-seated love of cruel insult jokes.`\
+https://nytimes.com/2024/10/28/arts/trump-tony-hinchcliffe-joe-rogan.html
+
 **Obama Is the Same. His Coalition Isn’t.**\
 `Democrats failed to preserve his coalition, and Harris is now trying to assemble a different one.`\
 https://nytimes.com/2024/10/28/us/politics/obama-harris-voters.html
@@ -31,12 +39,4 @@ https://nytimes.com/2024/10/28/opinion/trump-american-workers.html
 **World Series ticket prices in New York cool with Yankees down 2-0, but demand still strong**\
 `A StubHub spokesperson said the dip wasn't surprising based on how the series between two star-studded markets has unfolded so far.`\
 https://nytimes.com/athletic/5880861/2024/10/28/world-series-ticket-prices-dodgers-yankees/
-
-**Woman Charged With Hate Crime in Pepper-Spraying of Muslim Uber Driver**\
-`Prosecutors said the woman, Jennifer Guilbeault, attacked Shohel Mahmud without provocation after he began to pray in Arabic while stopped at a traffic light. She has pleaded not guilty.`\
-https://nytimes.com/2024/10/28/nyregion/uber-driver-hate-crime-manhattan.html
-
-**Louisiana State Trooper Avoids Jail in Death of Ronald Greene**\
-`In an agreement with prosecutors, Kory York, a former state trooper, pleaded no contest to misdemeanor battery charges in exchange for one year of probation in the death of a Black man who was stopped for a traffic violation in 2019.`\
-https://nytimes.com/2024/10/28/us/louisiana-trooper-plea-ronald-greene-death.html
 
