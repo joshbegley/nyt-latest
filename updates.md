@@ -1,3 +1,7 @@
+**A Caller Told 911 a Bear Had Chased Him Off a Cliff. The Police Say It Was Murder.**\
+`The sheriff in a rural Tennessee county said his office is searching for a man who used a stolen identity to pose as a victim.`\
+https://nytimes.com/2024/10/28/world/americas/fake-bear-attack-murder-tennessee.html
+
 **Trump Repeatedly Refers to CNN’s Anderson Cooper as ‘Allison’**\
 `The former president, who often uses disparaging nicknames for people he dislikes, has referred to the host by a woman’s name on at least three occasions since Friday.`\
 https://nytimes.com/2024/10/28/us/politics/trump-anderson-cooper-cnn.html
