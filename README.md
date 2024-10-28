@@ -1,3 +1,7 @@
+**What it's like to vote for the Ballon d’Or Feminin**\
+`The Athletic's Steph Yang was selected to vote as the representative from the U.S.`\
+https://nytimes.com/athletic/5880978/2024/10/28/ballon-dor-2024-women-fifa-voting/
+
 **Biden Casts Early Ballot for Harris**\
 `President Joe Biden joined early voters in New Castle, Del., a deeply Democratic district near his hometown of Wilmington.`\
 https://nytimes.com/video/us/elections/100000009788515/biden-vote-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880954/2024/10/28/chris-wood-nottingham-forest-con
 **Fewer Pennsylvanians have voted so far than in 2020, the state says.**\
 `By Mattathias Schwartz`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election/fewer-pennsylvanians-have-voted-so-far-than-in-2020-the-state-says
-
-**U.S. Officials Sweep Troubled Brooklyn Prison Where 2 Were Killed**\
-`Two inmates were fatally stabbed this summer at the federal Metropolitan Detention Center, where Sean Combs is awaiting trial in his sex-trafficking case.`\
-https://nytimes.com/2024/10/28/nyregion/doj-mdc-brooklyn-prison.html
 
