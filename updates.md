@@ -1,3 +1,7 @@
+**Keon Coleman's best performance so far, O-line dominance key Bills win**\
+`The Bills defense pounced on a Seattle offense that was missing star receiver D.K. Metcalf.`\
+https://nytimes.com/athletic/5878411/2024/10/27/bills-win-seahawks-keon-coleman-offensinve-line-observations/
+
 **The Seahawks' 'laundry list' of problems is far from fixed, and time is running out**\
 `The Seahawks' worst loss under Mike Macdonald was the result of familiar issues, despite plenty of efforts to fix them.`\
 https://nytimes.com/athletic/5878183/2024/10/27/seahawks-bills-jarran-reed-derick-hall/
