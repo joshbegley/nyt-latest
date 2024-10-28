@@ -1,3 +1,7 @@
+**Ravens defense shows once again it can't be trusted to get stops in loss to Browns**\
+`Baltimore's win streak came to an end after the defense failed to make plays late against the Jameis Winston-led Browns. `\
+https://nytimes.com/athletic/5877738/2024/10/27/ravens-defense-loss-browns/
+
 **McDonald’s Says Tests Rule Out Beef Patties as Source of E. Coli Outbreak**\
 `The company said it would put Quarter Pounders back on the menu, without the raw onions that were considered the likely source of the bacteria.`\
 https://nytimes.com/2024/10/27/health/mcdonalds-ecoli-quarter-pounders.html
