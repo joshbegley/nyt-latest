@@ -1,3 +1,11 @@
+**To continue their progress, Postecoglou's Spurs must learn to win ugly**\
+`A defeat at Selhurst Park suggested Tottenham need to deal better with adversity, and find different ways to win`\
+https://nytimes.com/athletic/5876896/2024/10/28/tottenham-crystal-palace-postecoglou/
+
+**49ers defeat Cowboys on 'Sunday Night Football': Key takeaways**\
+`The Cowboys outscored the 49ers 14-3 in the final frame, but the San Francisco defense made the final stop to win the game.`\
+https://nytimes.com/athletic/5878780/2024/10/28/49ers-cowboys-sunday-night-football-takeaways/
+
 **Fantasy football Week 8 takeaways: Receivers Cedric Tillman, Calvin Ridley, Ladd McConkey demand your attention**\
 `Not many fantasy managers started Cedric Tillman, Ladd McConkey or Calvin Ridley in Week 8, but that's likely to change next week.`\
 https://nytimes.com/athletic/5878101/2024/10/28/fantasy-football-week-8-takeaways-ridley-mcconkey-tillman/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5878454/2024/10/27/bears-hail-mary-commanders-mista
 **Greenberg: Washington's Hail Mary curses Bears to the agony of an unbelievable road loss**\
 `Some may shrug off the result as luck or a coin-flip play, but the details matter. Especially for a team trying to redefine itself.`\
 https://nytimes.com/athletic/5878302/2024/10/27/bears-commanders-hail-mary-tyrique-stevenson/
-
-**Bryce Young has uninspiring day, Panthers still searching for QB answers after lopsided loss**\
-`After scoring a TD on their first possession Sunday, the Panthers went nine consecutive series without scoring against the Broncos.`\
-https://nytimes.com/athletic/5878479/2024/10/27/panthers-bryce-young-quarterback-decision-broncos/
-
-**'We're not surprised, nor are we satisfied': Bills' identity coming into focus at midpoint**\
-`The Bills, at 6-2, have a sizable lead in the AFC East.`\
-https://nytimes.com/athletic/5878588/2024/10/27/bills-identity-midseason-josh-allen/
 

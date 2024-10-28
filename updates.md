@@ -1,3 +1,11 @@
+**To continue their progress, Postecoglou's Spurs must learn to win ugly**\
+`A defeat at Selhurst Park suggested Tottenham need to deal better with adversity, and find different ways to win`\
+https://nytimes.com/athletic/5876896/2024/10/28/tottenham-crystal-palace-postecoglou/
+
+**49ers defeat Cowboys on 'Sunday Night Football': Key takeaways**\
+`The Cowboys outscored the 49ers 14-3 in the final frame, but the San Francisco defense made the final stop to win the game.`\
+https://nytimes.com/athletic/5878780/2024/10/28/49ers-cowboys-sunday-night-football-takeaways/
+
 **Fantasy football Week 8 takeaways: Receivers Cedric Tillman, Calvin Ridley, Ladd McConkey demand your attention**\
 `Not many fantasy managers started Cedric Tillman, Ladd McConkey or Calvin Ridley in Week 8, but that's likely to change next week.`\
 https://nytimes.com/athletic/5878101/2024/10/28/fantasy-football-week-8-takeaways-ridley-mcconkey-tillman/
