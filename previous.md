@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: Boot camp comes early, switching looks on the power play, more**\
+`Also in this week's notebook, a potential name for the Jake Evans line and Nick Suzuki's Blues connections looking back on his potential. `\
+https://nytimes.com/athletic/5879027/2024/10/28/canadiens-power-play-caufield-suzuki/
+
 **The Big Ten's top 4 teams have plenty on the line in November**\
 `Oregon, Penn State, Ohio State and Indiana have separated themselves atop the Big Ten, and they have plenty to play for in November.`\
 https://nytimes.com/athletic/5879237/2024/10/28/big-ten-football-oregon-ohio-state-penn-state-indiana/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/world/europe/italy-meloni-asylum-judiciary.html
 **The 2024 Stakes on Health Care**\
 `We explore the presidential candidates’ health policy proposals.`\
 https://nytimes.com/2024/10/28/briefing/health-care-2024-election-harris-trump.html
-
-**Here are the latest developments.**\
-`By Mike Ives and Isabel Kershner`\
-https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
 
