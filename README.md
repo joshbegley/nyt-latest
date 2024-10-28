@@ -1,3 +1,7 @@
+**Iran Executes German-Iranian Opponent Who Lived in U.S.**\
+`Jamshid Sharmahd had been accused of helping in a deadly terrorist bombing in 2008. Another Iranian prisoner, the Nobel laureate Narges Mohammadi, is in the hospital.`\
+https://nytimes.com/2024/10/28/world/middleeast/iran-jamshid-sharmahd-narges-mohammadi.html
+
 **N.Y.P.D. Chief Stirs Criticism With Newsmax Appearance at Trump Rally**\
 `John Chell also went on other networks, but struck a nerve by appearing on a channel that has boosted conspiracy theories and misinformation.`\
 https://nytimes.com/2024/10/28/nyregion/nypd-chief-chell-newsmax-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/trump-secret-house-republicans-panic.
 **Hundreds of Ballots Destroyed After Drop Boxes Set on Fire**\
 `Federal authorities were investigating two fires that were lit in ballot drop boxes in the Pacific Northwest early Monday.`\
 https://nytimes.com/video/us/elections/100000009788069/ballot-box-fires-oregon-washington.html
-
-**The Cookies You Want to Bake on Election Day**\
-`Rich with browned butter pecans and chewy with oats, these foolproof cookies are the perfect thing to make — and eat — while results roll in.`\
-https://nytimes.com/2024/10/28/dining/chewy-brown-butter-cookies-election-day.html
 
