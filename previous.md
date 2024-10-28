@@ -1,3 +1,7 @@
+**Ohio State film study: What worked and what didn't against Nebraska**\
+`Ohio State didn't instill confidence with its win on Saturday against Nebraska, but it did get the job done.`\
+https://nytimes.com/athletic/5879614/2024/10/28/ohio-state-football-nebraska-analysis-ryan-day/
+
 **Broncos' Sean Payton rankles Panthers with fourth-quarter play calls**\
 `The Panthers' Sam Franklin: “There’s five minutes left. You guys doing trick plays ... Basically just trying to embarrass us."`\
 https://nytimes.com/athletic/5879629/2024/10/28/sean-payton-broncos-panthers-play-calls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879023/2024/10/28/arsenal-mohamed-salah-liverpool/
 **The other Freddie Freeman grand slam calls: Media Circus**\
 `You've heard Joe Davis' call. Here's a few more worth a shoutout. Plus, notes on Tom Brady loosening up, a cool NFL victory POV and more.`\
 https://nytimes.com/athletic/5843444/2024/10/28/freddie-freeman-grand-slam-tom-brady-media-circus/
-
-**Canucks notebook: Elias Pettersson's breakthrough and how the new wingers have fit**\
-`Unpacking an impressive Canucks performance and some of the key subplots, including Pettersson's first goal of the season.`\
-https://nytimes.com/athletic/5879018/2024/10/28/canucks-elias-pettersson-penguins-debrusk-sprong/
 

@@ -1,3 +1,7 @@
+**Ohio State film study: What worked and what didn't against Nebraska**\
+`Ohio State didn't instill confidence with its win on Saturday against Nebraska, but it did get the job done.`\
+https://nytimes.com/athletic/5879614/2024/10/28/ohio-state-football-nebraska-analysis-ryan-day/
+
 **Broncos' Sean Payton rankles Panthers with fourth-quarter play calls**\
 `The Panthers' Sam Franklin: “There’s five minutes left. You guys doing trick plays ... Basically just trying to embarrass us."`\
 https://nytimes.com/athletic/5879629/2024/10/28/sean-payton-broncos-panthers-play-calls/
