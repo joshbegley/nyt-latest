@@ -1,3 +1,7 @@
+**Ten Hag sacked as Manchester United manager**\
+`Erik ten Hag has been sacked as Manchester United manager.`\
+https://nytimes.com/athletic/5854757/2024/10/28/erik-ten-hag-sacked-manchester-united/
+
 **Xavi Simons unlikely to return before 2025 after ankle surgery**\
 `RB Leipzig playmaker Xavi Simons will likely miss the rest of the calendar year after undergoing surgery on an ankle ligament injury.`\
 https://nytimes.com/athletic/5879264/2024/10/28/xavi-simons-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5872373/2024/10/28/tennis-hall-fame-sharapova-bryan
 **As frustration mounts, Cowboys drop below .500 with tough 4-game stretch ahead**\
 `The Cowboys fall to 3-4 with their road loss to the 49ers and the path to a postseason berth gets tougher.`\
 https://nytimes.com/athletic/5879086/2024/10/28/cowboys-frustration-loss-49ers/
-
-**‘We were performing while grieving’: A year on from the tragedy that changed British hockey**\
-`The former Pittsburgh Penguins forward died during a game at 29. A year on, his death is still felt within the UK's hockey community`\
-https://nytimes.com/athletic/5849804/2024/10/28/adam-johnson-death-anniversary/
 
