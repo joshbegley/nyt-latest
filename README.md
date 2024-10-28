@@ -1,3 +1,11 @@
+**Dak Prescott has to clean up his turnovers if Cowboys are going to turn season around**\
+`Prescott has thrown multiple interceptions in each of the Cowboys' past three games, including two costly ones against the 49ers.`\
+https://nytimes.com/athletic/5879084/2024/10/28/cowboys-dak-prescott-turnovers-loss-49ers/
+
+**Could ACC tiebreaker leave SMU out in the cold? College Football Playoff Bubble Watch**\
+`In the super conference era, the Mustangs could go 8-0 in ACC play and yet have no chance to compete for an automatic bid.`\
+https://nytimes.com/athletic/5877984/2024/10/28/college-football-playoff-bubble-watch-acc-smu-miami-clemson/
+
 **This Is Not a Beauty Podcast: The Chicken and the Egg
 **\
 `Technology is quickly shaping the beauty industry — but how is beauty shaping technology? In this episode, we’ll hear from tech experts from Meta and beyond about how online beauty communities are influencing and shaping today’s biggest tech platforms, as well as how innovative hardware is making the world more accessible.`\
@@ -30,12 +38,4 @@ https://nytimes.com/2024/10/28/opinion/trump-harris-senate-house.html
 **Michelle Obama: ‘I Am Asking You, From the Core of My Being, to Take Our Lives Seriously’**\
 `The former first lady shares an emotional appeal about how reproductive rights are on the line in this election.`\
 https://nytimes.com/2024/10/28/opinion/michelle-obama-abortion-trump-election.html
-
-**Democrats Won the Ad War. Will It Be Enough?**\
-`See the states where`\
-https://nytimes.com/interactive/2024/10/28/opinion/election-ads.html
-
-**Happy 120th Birthday, New York City Subway!**\
-`The first subway train left from City Hall on Oct. 27, 1904. Riders on the C train say the subway is essential to their lives as New Yorkers.`\
-https://nytimes.com/2024/10/28/nyregion/120th-anniversary-subway.html
 
