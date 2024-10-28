@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5875855/2024/10/28/west-ham-manchester-united-premi
 `\
 https://nytimes.com/athletic/5875855/2024/10/28/west-ham-manchester-united-premier-league-lopetegui/
 
+**Lopetegui's triple change turned the tide against United. Could it prove a turning point in West Ham’s season?**\
+`West Ham markedly improved offensively after the break, playing with an energy, confidence and flair that had been lacking
+`\
+https://nytimes.com/athletic/5875855/2024/10/28/west-ham-manchester-united-premier-league-lopetegui/
+
 **Arsenal Today: Another injury, Arteta's tactics analysed and Saka is back**\
 `James McNicholas talks you through what is interesting our Arsenal writers today`\
 https://nytimes.com/athletic/5877434/2024/10/28/arsenal-today-injury-arteta-saka/
