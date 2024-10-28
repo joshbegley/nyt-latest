@@ -1,3 +1,7 @@
+**Greenberg: Washington's Hail Mary curses Bears to the agony of an unbelievable road loss**\
+`Some may shrug off the result as luck or a coin-flip play, but the details matter. Especially for a team trying to redefine itself.`\
+https://nytimes.com/athletic/5878302/2024/10/27/bears-commanders-hail-mary-tyrique-stevenson/
+
 **Bryce Young has uninspiring day, Panthers still searching for QB answers after lopsided loss**\
 `After scoring a TD on their first possession Sunday, the Panthers went nine consecutive series without scoring against the Broncos.`\
 https://nytimes.com/athletic/5878479/2024/10/27/panthers-bryce-young-quarterback-decision-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5878411/2024/10/27/bills-win-seahawks-keon-coleman-
 **The Seahawks' 'laundry list' of problems is far from fixed, and time is running out**\
 `The Seahawks' worst loss under Mike Macdonald was the result of familiar issues, despite plenty of efforts to fix them.`\
 https://nytimes.com/athletic/5878183/2024/10/27/seahawks-bills-jarran-reed-derick-hall/
-
-**Bears' Stevenson jaws with fans moments before giving up Hail Mary**\
-`Stevenson did not talk to the media postgame, but posted on X: "To Chicago and teammates my apologies for lack of awareness and focus."`\
-https://nytimes.com/athletic/5878169/2024/10/27/tyrique-stevenson-bears-commanders-hail-mary/
 
