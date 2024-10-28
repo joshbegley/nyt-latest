@@ -1,3 +1,7 @@
+**Bryce Young has uninspiring day, Panthers still searching for QB answers after lopsided loss**\
+`After scoring a TD on their first possession Sunday, the Panthers went nine consecutive series without scoring against the Broncos.`\
+https://nytimes.com/athletic/5878479/2024/10/27/panthers-bryce-young-quarterback-decision-broncos/
+
 **'We’re not surprised, nor are we satisfied': Bills identity coming into focus at midpoint**\
 `The Bills, at 6-2, have a sizable lead in the AFC East.`\
 https://nytimes.com/athletic/5878588/2024/10/27/bills-identity-midseason-josh-allen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5878183/2024/10/27/seahawks-bills-jarran-reed-deric
 **Bears' Stevenson jaws with fans moments before giving up Hail Mary**\
 `Stevenson did not talk to the media postgame, but posted on X: "To Chicago and teammates my apologies for lack of awareness and focus."`\
 https://nytimes.com/athletic/5878169/2024/10/27/tyrique-stevenson-bears-commanders-hail-mary/
-
-**Antonio Pierce's decision-making lets Raiders down in narrow loss to Chiefs**\
-`The first-year head coach made some questionable moves as Las Vegas lost to Kansas City 27-20, the team's fourth straight setback.`\
-https://nytimes.com/athletic/5878093/2024/10/27/antonio-pierce-raiders-chiefs-decision-making/
 
