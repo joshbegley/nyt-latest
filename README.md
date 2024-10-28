@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5877998/2024/10/27/colts-anthony-richardson-shane-s
 https://nytimes.com/2024/10/27/pageoneplus/corrections-oct-27-2024.html
 
 **Max Verstappen's Mexico GP penalties hurt. It won't change how he races Lando Norris**\
-`Verstappen has proven that, when a championship is on the line, he'll race harder than ever. `\
+`Verstappen has proved that when a championship is on the line, he'll race harder than ever. `\
 https://nytimes.com/athletic/5877474/2024/10/27/f1-max-verstappen-penalty-lando-norris-mexico-gp/
 
 **'The vibes are very high': Eagles bury the Bengals to end an undefeated October**\
