@@ -1,3 +1,7 @@
+**‘Dahomey’ Celebrated Looted Art’s Return. What Happened Next?**\
+`Since the documentary’s cameras stopped rolling, plans for a new museum to showcase the treasures have stalled, and the artifacts are once again off limits to the public in Benin.`\
+https://nytimes.com/2024/10/28/arts/design/dahomey-benin-museum.html
+
 **Waymo Raises $5.6 Billion From Outside Investors**\
 `Alphabet’s driverless car unit now has vehicles operating in San Francisco, Phoenix and Los Angeles.`\
 https://nytimes.com/2024/10/28/business/waymo-investment-robot-taxis.html
