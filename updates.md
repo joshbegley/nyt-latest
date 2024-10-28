@@ -1,3 +1,7 @@
+**He Told 911 a Bear Had Chased Him Off a Cliff. Now, He’s Wanted for Murder.**\
+`The sheriff in a rural Tennessee county said his office is searching for a man who used a stolen identity to pose as a victim.`\
+https://nytimes.com/2024/10/28/world/americas/fake-bear-attack-murder-tennessee.html
+
 **Steve Mariotti, Whose Trauma Led Him to Help Youths at Risk, Dies at 71**\
 `After he was mugged, he took a therapist’s advice to work with “difficult students at a difficult school.” They ignored him until the lessons turned to business.`\
 https://nytimes.com/2024/10/28/nyregion/steve-mariotti-dead.html
