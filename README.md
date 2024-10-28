@@ -1,3 +1,11 @@
+**Latinos Blast Disparaging Remarks Made at Trump’s N.Y.C. Rally**\
+`Latinos warned that the racist and vulgar insults made by some speakers at Donald J. Trump’s rally in New York City — particularly those by a stand-up comic — could cost the former president votes this election.`\
+https://nytimes.com/video/us/politics/100000009788572/puerto-rico-latinos-trump-rally.html
+
+**Michelle Obama Decries a ‘Double Standard’ in Treatment of Trump and Harris**\
+`As Donald Trump’s rhetoric grows more extreme, liberals say Kamala Harris is being held, unfairly, to a higher bar by voters and the media. One is “allowed to be lawless while the other one has to be flawless,” a congresswoman said.`\
+https://nytimes.com/2024/10/28/us/elections/michelle-obama-kamala-harris-double-standard.html
+
 **He Told 911 a Bear Had Chased Him Off a Cliff. Now, He’s Wanted for Murder.**\
 `The sheriff in a rural Tennessee county said his office is searching for a man who used a stolen identity to pose as a victim.`\
 https://nytimes.com/2024/10/28/world/americas/fake-bear-attack-murder-tennessee.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5872822/2024/10/28/2024-ballon-dor-winners/
 **October has been a relatively costly month for the Israeli military.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/october-has-been-a-relatively-costly-month-for-the-israeli-military
-
-**Musk Repeatedly Raises the Idea That Harris, or He, Could Be Assassinated**\
-`The billionaire and his PAC have used foreboding language about the vice president in their support of former President Donald Trump.`\
-https://nytimes.com/2024/10/28/us/politics/musk-harris-assassination-attempts.html
-
-**Nottingham Forest open talks with Wood over new contract**\
-`Nottingham Forest have begun contract talks with striker Chris Wood.`\
-https://nytimes.com/athletic/5880954/2024/10/28/chris-wood-nottingham-forest-contract/
 
