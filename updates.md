@@ -1,3 +1,7 @@
+**Totti confirms he is considering coming out of retirement**\
+`Former Roma forward Francesco Totti claims &#8220;one or two teams&#8221; are interested in signing him as he considers making a return to football.`\
+https://nytimes.com/athletic/5879465/2024/10/28/francesco-totti-retirement-comeback/
+
 **Tommy Robinson, an Anti-immigrant Agitator in Britain, Gets Jail Sentence**\
 `Mr. Robinson, the founder of the English Defence League, was sentenced to 18 months for ignoring a court order to stop making false claims about a teenage Syrian refugee.`\
 https://nytimes.com/2024/10/28/world/europe/tommy-robinson-sentenced-uk-far-right.html
