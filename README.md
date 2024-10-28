@@ -1,3 +1,7 @@
+**U.S. Officials Sweep Troubled Brooklyn Prison Where 2 Were Killed**\
+`Two inmates were fatally stabbed this summer at the federal Metropolitan Detention Center, where Sean Combs is awaiting trial in his sex-trafficking case.`\
+https://nytimes.com/2024/10/28/nyregion/doj-mdc-brooklyn-prison.html
+
 **49ers' Christian McCaffrey expected to practice next week, play vs. Bucs**\
 `Asked if McCaffrey will have his usual workload once he’s cleared to play, Shanahan hinted that he’ll be eased back into the mix.`\
 https://nytimes.com/athletic/5880851/2024/10/28/christian-mccaffrey-49ers-return-week-10/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/briefing/us-election-russia-ukraine-north-korea-v
 **Prime Tire: Why Verstappen crossed a line in Mexico**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/5880507/2024/10/28/max-verstappen-mexico-grand-prix-f1-prime-tire/
-
-**Warriors' Curry sprains ankle, to miss at least 2 games**\
-`Curry limped to the locker room and exited for the night after twisting his left ankle.`\
-https://nytimes.com/athletic/5878623/2024/10/28/steph-curry-ankle-injury-update/
 
