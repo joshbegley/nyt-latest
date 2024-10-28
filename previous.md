@@ -1,3 +1,7 @@
+**Colts can't improve until Shane Steichen, Anthony Richardson accept reality**\
+`The Colts need to start deploying Richardson like the player he is, not the player they hope he can one day become. `\
+https://nytimes.com/athletic/5877998/2024/10/27/colts-anthony-richardson-shane-steichen-reality/
+
 **Corrections: Oct. 27, 2024**\
 `Corrections that appeared in print on Sunday, Oct. 27, 2024.`\
 https://nytimes.com/2024/10/27/pageoneplus/corrections-oct-27-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5877354/2024/10/27/bills-seahawks-score-takeaways-r
 **Dwyane Wade statue draws mixed reviews from fans confused by likeness**\
 `Some compared the statue to the likes of actor Laurence Fishburne, Commanders linebackers coach Ken Norton and Maryland governor Wes Moore.`\
 https://nytimes.com/athletic/5877660/2024/10/27/dwyane-wade-statue-reaction-likeness/
-
-**Chargers top Saints 26-8 for New Orleans' 6th-straight loss: Takeaways**\
-`After opening the season with back-to-back 40-point efforts, the Saints have ranked 28th in total offense and 25th in points per game.`\
-https://nytimes.com/athletic/5877475/2024/10/27/saints-chargers-score-takeaways-results/
 

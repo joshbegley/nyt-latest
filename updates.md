@@ -1,3 +1,7 @@
+**Colts can't improve until Shane Steichen, Anthony Richardson accept reality**\
+`The Colts need to start deploying Richardson like the player he is, not the player they hope he can one day become. `\
+https://nytimes.com/athletic/5877998/2024/10/27/colts-anthony-richardson-shane-steichen-reality/
+
 **Corrections: Oct. 27, 2024**\
 `Corrections that appeared in print on Sunday, Oct. 27, 2024.`\
 https://nytimes.com/2024/10/27/pageoneplus/corrections-oct-27-2024.html
