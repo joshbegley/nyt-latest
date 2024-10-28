@@ -1,3 +1,12 @@
+**This Is Not a Beauty Podcast: The Chicken and the Egg
+**\
+`Technology is quickly shaping the beauty industry — but how is beauty shaping technology? In this episode, we’ll hear from tech experts from Meta and beyond about how online beauty communities are influencing and shaping today’s biggest tech platforms, as well as how innovative hardware is making the world more accessible.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/the-chicken-and-the-egg.html
+
+**From Future to Mötley Crüe: A peek into MLB players' World Series playlists**\
+`From country to grunge to salsa, here's what players in this year's Fall Classic listen to to calm themselves down or hype themselves up.`\
+https://nytimes.com/athletic/5878888/2024/10/28/mlb-world-series-playlist-yankees-dodgers/
+
 **Republicans Cling to Slim Leads in Nebraska and Texas Senate Races**\
 `In Nebraska, Dan Osborn, an independent, is in a tight race with Senator Deb Fischer, and in Texas, Representative Colin Allred is four percentage points behind Senator Ted Cruz.`\
 https://nytimes.com/2024/10/28/us/politics/nebraska-texas-senate-races.html

@@ -1,3 +1,12 @@
+**This Is Not a Beauty Podcast: The Chicken and the Egg
+**\
+`Technology is quickly shaping the beauty industry — but how is beauty shaping technology? In this episode, we’ll hear from tech experts from Meta and beyond about how online beauty communities are influencing and shaping today’s biggest tech platforms, as well as how innovative hardware is making the world more accessible.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/the-chicken-and-the-egg.html
+
+**From Future to Mötley Crüe: A peek into MLB players' World Series playlists**\
+`From country to grunge to salsa, here's what players in this year's Fall Classic listen to to calm themselves down or hype themselves up.`\
+https://nytimes.com/athletic/5878888/2024/10/28/mlb-world-series-playlist-yankees-dodgers/
+
 **Republicans Cling to Slim Leads in Nebraska and Texas Senate Races**\
 `In Nebraska, Dan Osborn, an independent, is in a tight race with Senator Deb Fischer, and in Texas, Representative Colin Allred is four percentage points behind Senator Ted Cruz.`\
 https://nytimes.com/2024/10/28/us/politics/nebraska-texas-senate-races.html
@@ -29,12 +38,4 @@ https://nytimes.com/interactive/2024/10/28/opinion/election-ads.html
 **Happy 120th Birthday, New York City Subway!**\
 `The first subway train left from City Hall on Oct. 27, 1904. Riders on the C train say the subway is essential to their lives as New Yorkers.`\
 https://nytimes.com/2024/10/28/nyregion/120th-anniversary-subway.html
-
-**What Is the Perfect Length for a Winter Coat?**\
-`Looking ahead to colder weather, a reader wonders if there is an ideal cut for coats. Our fashion critic offers advice on balancing fashion and function.`\
-https://nytimes.com/2024/10/28/style/winter-coat-jacket-length.html
-
-**Clark Art Institute Receives ‘Princely’ Collection of European Treasures**\
-`The Berkshires museum is getting a transformative gift: 331 artworks from the Renaissance on, worth several hundred million dollars, and money to build a new wing.`\
-https://nytimes.com/2024/10/28/arts/design/clark-institute-tavitian-paintings-sculpture-gift.html
 
