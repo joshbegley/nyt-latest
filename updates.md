@@ -1,3 +1,7 @@
+**With 'haymakers from all areas,' the Lions continue to show they're tough to beat**\
+`The defense and special teams stepped up for the Lions.`\
+https://nytimes.com/athletic/5877500/2024/10/27/lions-win-kalif-raymond-titans-haymakers/
+
 **Jaguars WR Christian Kirk out for season with broken collarbone**\
 `The seventh-year receiver will finish his 2024 campaign with 25 receptions for 320 yards and a touchdown.`\
 https://nytimes.com/athletic/5878228/2024/10/27/christian-kirk-jaguars-collarbone-injury/
