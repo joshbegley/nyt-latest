@@ -1,3 +1,7 @@
+**Corrections: Oct. 27, 2024**\
+`Corrections that appeared in print on Sunday, Oct. 27, 2024.`\
+https://nytimes.com/2024/10/27/pageoneplus/corrections-oct-27-2024.html
+
 **Max Verstappen's Mexico GP penalties hurt. It won't change how he races Lando Norris**\
 `Verstappen has proven that, when a championship is on the line, he'll race harder than ever. `\
 https://nytimes.com/athletic/5877474/2024/10/27/f1-max-verstappen-penalty-lando-norris-mexico-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5877660/2024/10/27/dwyane-wade-statue-reaction-like
 **Chargers top Saints 26-8 for New Orleans' 6th-straight loss: Takeaways**\
 `After opening the season with back-to-back 40-point efforts, the Saints have ranked 28th in total offense and 25th in points per game.`\
 https://nytimes.com/athletic/5877475/2024/10/27/saints-chargers-score-takeaways-results/
-
-**DJ Clark Kent, Who Introduced Jay-Z to Notorious B.I.G., Dies at 58**\
-`He was a producer and club D.J. who helped rappers find their voices and fortunes, and who later became known as a raconteur of hip-hop history.`\
-https://nytimes.com/2024/10/27/obituaries/dj-clark-kent-dead.html
 
