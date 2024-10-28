@@ -1,3 +1,7 @@
+**FPL: What we learnt from Gameweek 9 - Saka surprise and Haaland underwhelms?**\
+`Abdul Rehman breaks down the main talking points from Gameweek 9 in Fantasy Premier League`\
+https://nytimes.com/athletic/5877411/2024/10/28/fantasy-premier-league-what-we-learned-from-gameweek-9-saka-surprise-and-haaland-disappointment/
+
 **Lifeless loss to Blazers shows that Pelicans have a lot of work to do**\
 `Three games into the season, New Orleans has yet to deliver on promises of positive change.`\
 https://nytimes.com/athletic/5879285/2024/10/28/pelicans-dejounte-murray-trey-murphy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5877524/2024/10/28/oilers-defence-trade-targets-rig
 **What Japan’s Political Uncertainty Means for Its Market Rally**\
 `The long-ruling Liberal Democratic Party has lost its parliamentary majority, raising questions about the policy stability that has lured investors.`\
 https://nytimes.com/2024/10/28/business/japan-economy-election.html
-
-**Ten Hag sacked as Manchester United manager**\
-`Erik ten Hag has been sacked as Manchester United manager.`\
-https://nytimes.com/athletic/5854757/2024/10/28/erik-ten-hag-sacked-manchester-united/
 
