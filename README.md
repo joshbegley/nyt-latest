@@ -1,3 +1,11 @@
+**Trump’s Vast Tariffs Would Rock Global Businesses and Shake Alliances**\
+`Economists said Donald Trump’s plan to return trade barriers to levels not seen in generations would be “a grenade thrown in the heart” of the international system.`\
+https://nytimes.com/2024/10/28/us/politics/trumps-vast-tariffs-would-rock-global-businesses-and-shake-alliances.html
+
+**5 Eerie Games to Haunt During Halloween Week**\
+`Everyone has secrets to conceal in Life Is Strange: Double Exposure, a supernatural thriller with parallel timelines.`\
+https://nytimes.com/2024/10/28/arts/life-is-strange-double-exposure-review.html
+
 **'Not the start we wanted': Nikola Jokić, Nuggets aren't panicking, but issues are piling up**\
 `Lack of attention to detail and chemistry have hampered the Nuggets in their first two games: "We just have to play more games together."`\
 https://nytimes.com/athletic/5875145/2024/10/28/nikola-jokic-nuggets-jamal-murray/
@@ -30,12 +38,4 @@ https://nytimes.com/interactive/2024/10/28/books/review/halloween-books-quiz.htm
 **The Bounce: Is it time to worry about the Nuggets?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5879569/2024/10/28/nikola-jokic-nuggets-dwyane-wade-heat-nba-the-bounce/
-
-**The Rebellious Scientist Who Made Kamala Harris**\
-`The presidential candidate’s mother, Shyamala Gopalan Harris, was a breast cancer researcher whose egalitarian politics often bucked a patriarchal lab culture.`\
-https://nytimes.com/2024/10/28/science/shyamala-gopalan-kamala-harris-mother.html
-
-**How Miami moved to the epicenter of the global game – with a little help from Lionel Messi**\
-`FIFA has moved some offices from Zurich to Miami and will use the city to strengthen its relationship with CONCACAF and CONMEBOL`\
-https://nytimes.com/athletic/5878348/2024/10/28/miami-messi-fifa-infantino-beckham/
 
