@@ -1,3 +1,7 @@
+**With 'haymakers from all areas' the Lions continue to show they're tough to beat**\
+`The defense and special teams stepped up for the Lions.`\
+https://nytimes.com/athletic/5877500/2024/10/27/lions-win-kalif-raymond-titans-haymakers/
+
 **Jaguars WR Christian Kirk out for season with broken collarbone**\
 `The seventh-year receiver will finish his 2024 campaign with 25 receptions for 320 yards and a touchdown.`\
 https://nytimes.com/athletic/5878228/2024/10/27/christian-kirk-jaguars-collarbone-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5876775/2024/10/27/eagles-win-bengals-vibes-are-hig
 **Jerry Jones' family involved in car accident outside Levi's Stadium ahead of 'SNF'**\
 `The family believes Charlotte could have sustained a rib injury and Jerry Jr. could have sustained a head injury.`\
 https://nytimes.com/athletic/5877995/2024/10/27/jerry-jones-jr-charlotte-jones-vehicle-barricade-accident/
-
-**Ravens defense shows once again it can't be trusted to get stops in loss to Browns**\
-`Baltimore's win streak came to an end after the defense failed to make plays late against the Jameis Winston-led Browns. `\
-https://nytimes.com/athletic/5877738/2024/10/27/ravens-defense-loss-browns/
 
