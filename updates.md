@@ -1,3 +1,11 @@
+**At Madison Square Garden, MAGA Prepares to Reject Another Election**\
+`Trump’s big rally featured unadulterated racism and more talk of “enemies from within.”`\
+https://nytimes.com/2024/10/28/opinion/trump-rally-msg-racism.html
+
+**The Presidential Endorsements That Weren’t**\
+`Readers both decry and praise the decision by The Washington Post and The Los Angeles Times not to endorse. Also: An early voter; the New York Historical.`\
+https://nytimes.com/2024/10/28/opinion/washington-post-la-times-endorsement.html
+
 **Balotelli joins Genoa on free transfer**\
 `Former Manchester City and Italy striker Mario Balotelli has signed for Serie A side Genoa.`\
 https://nytimes.com/athletic/5808805/2024/10/28/mario-balotelli-genoa-transfer/
