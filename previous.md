@@ -1,3 +1,19 @@
+**N.Y.P.D. Chief Stirs Criticism With Newsmax Appearance at Trump Rally**\
+`John Chell also went on other networks, but struck a nerve by appearing on a channel that has boosted conspiracy theories and misinformation.`\
+https://nytimes.com/2024/10/28/nyregion/nypd-chief-chell-newsmax-trump.html
+
+**Gaza Cease-Fire Talks Resume, but Are Overshadowed by U.S. Election**\
+`Envoys from Israel, Egypt, the United States and Qatar took part in the negotiations, but no agreements are expected until American voters choose their next president.`\
+https://nytimes.com/2024/10/28/world/middleeast/gaza-cease-fire-us-elections.html
+
+**Tuesday Briefing: The U.S. Campaign’s Final Stretch**\
+`Plus, the “Ketamine Queen.”`\
+https://nytimes.com/2024/10/28/briefing/us-election-russia-ukraine-north-korea-vietnam-china.html
+
+**Prime Tire: Why Verstappen crossed a line in Mexico**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/5880507/2024/10/28/max-verstappen-mexico-grand-prix-f1-prime-tire/
+
 **Warriors' Curry sprains ankle, to miss at least 2 games**\
 `Curry limped to the locker room and exited for the night after twisting his left ankle.`\
 https://nytimes.com/athletic/5878623/2024/10/28/steph-curry-ankle-injury-update/
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/elections/100000009788069/ballot-box-fires-oregon-w
 **The Cookies You Want to Bake on Election Day**\
 `Rich with browned butter pecans and chewy with oats, these foolproof cookies are the perfect thing to make — and eat — while results roll in.`\
 https://nytimes.com/2024/10/28/dining/chewy-brown-butter-cookies-election-day.html
-
-**Republicans Distance Themselves From Puerto Rico Insult at Trump’s Rally**\
-`A comedian who spoke at Donald Trump’s campaign rally at Madison Square Garden referred to the U.S. territory as a “floating island of garbage,” prompting immediate backlash.`\
-https://nytimes.com/2024/10/28/us/politics/puerto-rico-republicans-trump-msg-rally.html
-
-**Thompson: Brock Purdy was a gamer when 49ers needed it most**\
-`On Sunday, with the 49ers struggling again and their season teetering, Brock Purdy found a way to lift the team. Just like they need.`\
-https://nytimes.com/athletic/5880413/2024/10/28/brock-purdy-49ers-cowboys-gamer-thompson/
-
-**At Madison Square Garden, Trump Deals a MAGA Dopamine Rush**\
-`He was clearly recalibrating what it takes to hook his addicted masses.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-rally-madison-square-garden
-
-**Philadelphia District Attorney Sues Musk Over $1 Million Voter Giveaways**\
-`Larry Krasner, the top prosecutor in Philadelphia, sued Elon Musk and his Trump-supporting super PAC, saying the giveaways amounted to an “unlawful lottery.”`\
-https://nytimes.com/2024/10/28/us/politics/elon-musk-giveaway-philadelphia-lawsuit.html
 

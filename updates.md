@@ -1,3 +1,19 @@
+**N.Y.P.D. Chief Stirs Criticism With Newsmax Appearance at Trump Rally**\
+`John Chell also went on other networks, but struck a nerve by appearing on a channel that has boosted conspiracy theories and misinformation.`\
+https://nytimes.com/2024/10/28/nyregion/nypd-chief-chell-newsmax-trump.html
+
+**Gaza Cease-Fire Talks Resume, but Are Overshadowed by U.S. Election**\
+`Envoys from Israel, Egypt, the United States and Qatar took part in the negotiations, but no agreements are expected until American voters choose their next president.`\
+https://nytimes.com/2024/10/28/world/middleeast/gaza-cease-fire-us-elections.html
+
+**Tuesday Briefing: The U.S. Campaign’s Final Stretch**\
+`Plus, the “Ketamine Queen.”`\
+https://nytimes.com/2024/10/28/briefing/us-election-russia-ukraine-north-korea-vietnam-china.html
+
+**Prime Tire: Why Verstappen crossed a line in Mexico**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/5880507/2024/10/28/max-verstappen-mexico-grand-prix-f1-prime-tire/
+
 **Warriors' Curry sprains ankle, to miss at least 2 games**\
 `Curry limped to the locker room and exited for the night after twisting his left ankle.`\
 https://nytimes.com/athletic/5878623/2024/10/28/steph-curry-ankle-injury-update/
