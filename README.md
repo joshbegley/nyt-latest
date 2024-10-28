@@ -1,3 +1,7 @@
+**Speaking in New Jersey, Liz Cheney says Harris will win.**\
+`By Erin Nolan`\
+https://nytimes.com/live/2024/10/27/us/harris-trump-election/speaking-in-new-jersey-liz-cheney-says-harris-will-win
+
 **Keon Coleman's best performance so far, O-line dominance key Bills win**\
 `The Bills defense pounced on a Seattle offense that was missing star receiver D.K. Metcalf.`\
 https://nytimes.com/athletic/5878411/2024/10/27/bills-win-seahawks-keon-coleman-offensinve-line-observations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5877754/2024/10/27/tua-tagovailoa-dolphins-return-c
 **With Jameis Winston at QB, Browns stun Ravens and show they won't go away quietly**\
 `What Winston orchestrated against Baltimore was totally different than previous versions of Cleveland's offense this season. `\
 https://nytimes.com/athletic/5877767/2024/10/27/browns-win-jameis-winston-ravens/
-
-**After loss to Patriots, it's too dark to see how Aaron Rodgers' Jets can save their season**\
-`Sunday's upset loss in Foxboro was a new low point for the 2024 Jets.`\
-https://nytimes.com/athletic/5877716/2024/10/27/jets-loss-patriots-darkness-aaron-rodgers/
 
