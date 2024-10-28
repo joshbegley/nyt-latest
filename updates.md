@@ -1,3 +1,7 @@
+**College football Week 10 odds, schedule: Ohio State, Penn State meet in massive clash**\
+`Ohio State is coming off an unimpressive performance, but is still favored at Penn State in the biggest game of Week 10.`\
+https://nytimes.com/athletic/5879977/2024/10/28/college-football-week-10-odds-schedule-ohio-state-penn-state/
+
 **Volkswagen Could Close 3 Plants in Germany to Cut Costs**\
 `The auto maker’s top employee representative told workers that management planned to shutter factories for the first time in the company’s 87-year history.`\
 https://nytimes.com/2024/10/28/business/volkswagen-plant-closures-germany.html
