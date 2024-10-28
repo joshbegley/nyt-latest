@@ -1,3 +1,7 @@
+**Julius Randle's warm welcome from Timberwolves fans, lineup tinkering and more**\
+`Here are some early impressions from the new-look Timberwolves.`\
+https://nytimes.com/athletic/5874964/2024/10/28/early-impressions-timberwolves/
+
 **Hollinger's Week That Was: Thoughts on foul rates, contract incentives and Suns' Ryan Dunn**\
 `It's early, but so far, dull marches to the free-throw line have marred games.`\
 https://nytimes.com/athletic/5877937/2024/10/28/nba-foul-rate-ryan-dunn-phoenix-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879629/2024/10/28/sean-payton-broncos-panthers-pla
 **'We don't have an identity': Giannis and the Bucks seek answers after loss to Nets**\
 `Turnovers, allowing second-chance points and miscues on defense sank the Bucks against the Nets. "We gotta get better," Antetokounmpo said.`\
 https://nytimes.com/athletic/5879045/2024/10/28/giannis-antetokounmpo-bucks-losing/
-
-**NASCAR Homestead takeaways: On the impacts of an instant classic playoff race**\
-`We once again beat the drum for Homestead to host the championship race. Plus, more thoughts on Sunday's thriller in Florida.`\
-https://nytimes.com/athletic/5878068/2024/10/28/nascar-homestead-takeaways-on-the-impacts-of-an-instant-classic-playoff-race/
 
