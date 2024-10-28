@@ -1,3 +1,11 @@
+**Steve Mariotti, Whose Trauma Led Him to Help Others, Dies at 71**\
+`After he was mugged, he took a therapist’s advice to work with “difficult students at a difficult school.” They ignored him until the lessons turned to business.`\
+https://nytimes.com/2024/10/28/nyregion/steve-mariotti-dead.html
+
+**Rodri is a deserved winner of the Ballon D'Or - no matter what Real Madrid might think**\
+`The Manchester City player was outstanding for club and country last season - and should feel great pride at his achievement`\
+https://nytimes.com/athletic/5880679/2024/10/28/rodri-ballon-dor-winner-real-madrid/
+
 **Rodri, Bonmati named Ballon d'Or winners**\
 `Manchester City midfielder Rodri and Barcelona&#8217;s Aitana Bonmati have won the 2024 Ballon d&#8217;Or awards to complete a men&#8217;s and women&#8217;s double for Spain.`\
 https://nytimes.com/athletic/5872822/2024/10/28/2024-ballon-dor-winners/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5880851/2024/10/28/christian-mccaffrey-49ers-return
 **How Bad Are Gas Stoves for My Health?**\
 `They emit harmful pollutants, which makes good ventilation crucial.`\
 https://nytimes.com/2024/10/28/climate/gas-stoves-health-risks.html
-
-**Ask me anything: Leave a question for James Mirtle’s next article**\
-`We&#8217;re approaching the one-month mark of the season in the NHL, and there&#8217;s a lot of interesting trends taking place around the league right now.`\
-https://nytimes.com/athletic/5880919/2024/10/28/ask-me-anything-leave-a-question-for-james-mirtles-next-article/
-
-**Paying Their Respects at the House of the Dead**\
-`Fans streamed into the Haight-Ashbury neighborhood of San Francisco this weekend to mourn the Grateful Dead bassist Phil Lesh.`\
-https://nytimes.com/card/2024/10/28/arts/phil-lesh-fans
 
