@@ -1,3 +1,11 @@
+**Recruiting Gen Z Voters With ‘Poll Dancers’ and Yung Gravy**\
+`The Party to the Polls Purple Tour, a nonpartisan event series geared toward young voters, aims to make voting rowdy.`\
+https://nytimes.com/2024/10/28/style/gen-z-voters-concert-series.html
+
+**The Misogynistic, Bigoted and Crude Rally Remarks Trump Hasn’t Addressed**\
+`A range of speakers at Madison Square Garden on Sunday disparaged Latinos, Black people, Palestinians and Jews, and made vulgar references to Kamala Harris. The Trump campaign has distanced itself from only one of these statements.`\
+https://nytimes.com/2024/10/28/us/politics/trump-msg-rally-speaker-remarks.html
+
 **Chiefs trade for Patriots edge rusher Josh Uche**\
 `Uche, 26, signed a one-year deal to remain in New England this past offseason. Now, he's on the move to Kansas City.`\
 https://nytimes.com/athletic/5880235/2024/10/28/josh-uche-chiefs-patriots-trade/
