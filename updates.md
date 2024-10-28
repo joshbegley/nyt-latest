@@ -1,3 +1,11 @@
+**Tyler Reddick, in signature moment, earns Phoenix spot with thrilling last-lap pass**\
+`Running on older tires, Tyler Reddick wasn't supposed to win Sunday at Homestead. Then a huge last-lap run put him into the Championship 4.`\
+https://nytimes.com/athletic/5878800/2024/10/28/tyler-reddick-homestead-nascar-last-lap-pass/
+
+**Onstage in New York, Trump Gazes Lovingly at his Reflection**\
+`He had a very clear message to send to his hometown.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/onstage-in-new-york-trump-gazes-lovingly-at-his-reflection
+
 **Tennis Briefing: Hall of Fame adds Maria Sharapova; ATP and WTA 1000 tournaments for sale?**\
 `The latest entrants into the sport's celebration of its legends, and possible new developments in the remaking of the tennis calendar.`\
 https://nytimes.com/athletic/5872373/2024/10/28/tennis-hall-fame-sharapova-bryan-miami-madrid-sale/
