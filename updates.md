@@ -1,3 +1,15 @@
+**Scoop City: Risers and fallers after Week 8**\
+`A quick look at the risers (Browns, Lions, Commanders), fallers (Jets, Bears), and the league's worst starting quarterback.  `\
+https://nytimes.com/athletic/5879954/2024/10/28/trending-%f0%9f%93%89-%f0%9f%93%88-after-nfls-week-8-plus-the-continued-decline-of-the-jets-anthony-richardson/
+
+**Trump’s Vast Tariffs Would Rock Global Businesses and Shake Alliances**\
+`Economists said Donald Trump’s plan to return trade barriers to levels not seen in generations would be “a grenade thrown in the heart” of the international system.`\
+https://nytimes.com/2024/10/28/us/politics/trumps-vast-tariffs-would-rock-global-businesses-and-shake-alliances.html
+
+**5 Eerie Games to Haunt During Halloween Week**\
+`Everyone has secrets to conceal in Life Is Strange: Double Exposure, a supernatural thriller with parallel timelines.`\
+https://nytimes.com/2024/10/28/arts/life-is-strange-double-exposure-review.html
+
 **'Not the start we wanted': Nikola Jokić, Nuggets aren't panicking, but issues are piling up**\
 `Lack of attention to detail and chemistry have hampered the Nuggets in their first two games: "We just have to play more games together."`\
 https://nytimes.com/athletic/5875145/2024/10/28/nikola-jokic-nuggets-jamal-murray/
