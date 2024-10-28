@@ -1,3 +1,15 @@
+**What it's like to vote for the Ballon d’Or Feminin**\
+`The Athletic's Steph Yang was selected to vote as the representative from the U.S.`\
+https://nytimes.com/athletic/5880978/2024/10/28/ballon-dor-2024-women-fifa-voting/
+
+**Biden Casts Early Ballot for Harris**\
+`President Joe Biden joined early voters in New Castle, Del., a deeply Democratic district near his hometown of Wilmington.`\
+https://nytimes.com/video/us/elections/100000009788515/biden-vote-harris.html
+
+**Rally Backlash Puts Trump on the Defensive**\
+`Also, North Korean troops were deployed to help Russian forces. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/10/28/briefing/trump-rally-backlash-north-korea-russia-ukraine.html
+
 **Steve Mariotti, Whose Trauma Led Him to Help Others, Dies at 71**\
 `After he was mugged, he took a therapist’s advice to work with “difficult students at a difficult school.” They ignored him until the lessons turned to business.`\
 https://nytimes.com/2024/10/28/nyregion/steve-mariotti-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5880954/2024/10/28/chris-wood-nottingham-forest-con
 **Fewer Pennsylvanians have voted so far than in 2020, the state says.**\
 `By Mattathias Schwartz`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election/fewer-pennsylvanians-have-voted-so-far-than-in-2020-the-state-says
-
-**U.S. Officials Sweep Troubled Brooklyn Prison Where 2 Were Killed**\
-`Two inmates were fatally stabbed this summer at the federal Metropolitan Detention Center, where Sean Combs is awaiting trial in his sex-trafficking case.`\
-https://nytimes.com/2024/10/28/nyregion/doj-mdc-brooklyn-prison.html
-
-**49ers' Christian McCaffrey expected to practice next week, play vs. Bucs**\
-`Asked if McCaffrey will have his usual workload once he’s cleared to play, Shanahan hinted that he’ll be eased back into the mix.`\
-https://nytimes.com/athletic/5880851/2024/10/28/christian-mccaffrey-49ers-return-week-10/
-
-**How Bad Are Gas Stoves for My Health?**\
-`They emit harmful pollutants, which makes good ventilation crucial.`\
-https://nytimes.com/2024/10/28/climate/gas-stoves-health-risks.html
 
