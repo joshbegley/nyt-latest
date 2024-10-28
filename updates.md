@@ -1,3 +1,7 @@
+**Fantasy football Week 8 takeaways: Receivers Cedric Tillman, Calvin Ridley, Ladd McConkey demand your attention**\
+`Not many fantasy managers started Cedric Tillman, Ladd McConkey or Calvin Ridley in Week 8, but that's likely to change next week.`\
+https://nytimes.com/athletic/5878101/2024/10/28/fantasy-football-week-8-takeaways-ridley-mcconkey-tillman/
+
 **Israel Calls the Shots in the Mideast as U.S. Plays a Lesser Role**\
 `A once pivotal player has seen its influence become limited.`\
 https://nytimes.com/2024/10/28/world/middleeast/israel-us-mideast-conflict.html

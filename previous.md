@@ -1,3 +1,7 @@
+**Fantasy football Week 8 takeaways: Receivers Cedric Tillman, Calvin Ridley, Ladd McConkey demand your attention**\
+`Not many fantasy managers started Cedric Tillman, Ladd McConkey or Calvin Ridley in Week 8, but that's likely to change next week.`\
+https://nytimes.com/athletic/5878101/2024/10/28/fantasy-football-week-8-takeaways-ridley-mcconkey-tillman/
+
 **Israel Calls the Shots in the Mideast as U.S. Plays a Lesser Role**\
 `A once pivotal player has seen its influence become limited.`\
 https://nytimes.com/2024/10/28/world/middleeast/israel-us-mideast-conflict.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5878479/2024/10/27/panthers-bryce-young-quarterback
 **'We're not surprised, nor are we satisfied': Bills' identity coming into focus at midpoint**\
 `The Bills, at 6-2, have a sizable lead in the AFC East.`\
 https://nytimes.com/athletic/5878588/2024/10/27/bills-identity-midseason-josh-allen/
-
-**With a method to their madness, Jayden Daniels and the Commanders hailed down Mary**\
-`Sunday against the Bears, Daniels was again magical when mortal behavior would not be enough.`\
-https://nytimes.com/athletic/5877229/2024/10/27/commanders-bears-jayden-daniels-hail-mary/
 
