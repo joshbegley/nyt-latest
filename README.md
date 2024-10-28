@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Jets unbeatable, Bruins a question mark, Penguins a mess**\
+`Two new teams enter the top five and a new rivalry takes on blistering heat ... maybe.`\
+https://nytimes.com/athletic/5877880/2024/10/28/nhl-weekend-rankings-jets-bruins-penguins-rivalry/
+
 **Sears, Flagg lead The Athletic's preseason All-America teams**\
 `Eight of our 11 picks are seniors or graduates, plus two juniors and a freshman. Alabama's Sears is our lone unanimous selection. `\
 https://nytimes.com/athletic/5873559/2024/10/28/college-basketball-preseason-all-americans-mark-sears-cooper-flagg/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/podcasts/the-daily/trump-campaign-arizona.html
 **Josh Jacobs, Edgerrin Cooper shine, pass defense falters in Packers' win over Jaguars**\
 `Jacobs ran 25 times for 127 yards and two touchdowns in the Packers' 30-27 win in Jacksonville on Sunday.`\
 https://nytimes.com/athletic/5878583/2024/10/28/packers-josh-jacobs-edgerrin-cooper/
-
-**Red Wings' losing weekend has a silver lining: A lineup that could stick**\
-`The Red Wings blew a late lead to the Oilers on Sunday and lost twice over the weekend but might have found a lineup that can help them.`\
-https://nytimes.com/athletic/5878092/2024/10/28/red-wings-silver-lining-copp-lineup/
 
