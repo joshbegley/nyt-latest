@@ -1,3 +1,7 @@
+**Man Who Made Violent Threats Skirted Arrest and Then Shot a Neighbor**\
+`“We failed this victim 100 percent,” the Minneapolis police chief said after criticism that the shooter, who had active arrest warrants, was not taken into custody sooner.`\
+https://nytimes.com/2024/10/28/us/minneapolis-attempted-murder-arrest.html
+
 **Michigan State asks Big Ten to review altercation with Michigan following game**\
 `Michigan State has asked the Big Ten to look into a skirmish that broke out following the final play of Saturday’s game against Michigan, coach Jonathan Smith said Monday.`\
 https://nytimes.com/athletic/5880358/2024/10/28/michigan-state-michigan-big-ten-review/
