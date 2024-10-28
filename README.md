@@ -1,3 +1,19 @@
+**Is Pay Beating Inflation? It’s Complicated.**\
+`On average, wages have risen faster than prices in recent years. But not all Americans are getting ahead.`\
+https://nytimes.com/2024/10/28/business/economy/inflation-wages-pay-salaries.html
+
+**That’s a Lot of Cheddar: Scammers Steal $390,000 of British Cheese.**\
+`Neal’s Yard, a leading cheese retailer in London, said that a shipment of 22 metric tons of rare Cheddar had disappeared in the con.`\
+https://nytimes.com/2024/10/28/world/europe/uk-cheese-theft-scam.html
+
+**How Well Do You Know Classic Books for Halloween Reading?**\
+`Magic, madness and supernatural horror have driven many book plots over the centuries. This short quiz scares up several popular novels to test your knowledge.`\
+https://nytimes.com/interactive/2024/10/28/books/review/halloween-books-quiz.html
+
+**The Bounce: Is it time to worry about the Nuggets?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5879569/2024/10/28/nikola-jokic-nuggets-dwyane-wade-heat-nba-the-bounce/
+
 **The Rebellious Scientist Who Made Kamala Harris**\
 `The presidential candidate’s mother, Shyamala Gopalan Harris, was a breast cancer researcher whose egalitarian politics often bucked a patriarchal lab culture.`\
 https://nytimes.com/2024/10/28/science/shyamala-gopalan-kamala-harris-mother.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5842023/2024/10/28/van-nistelrooy-tactical-guide-ma
 **Boeing Will Sell $19 Billion in Stock as Strike Weighs on Finances**\
 `The aerospace company, locked in a standoff with striking workers, is seeking to shore up its balance sheet and avoid a credit rating downgrade.`\
 https://nytimes.com/2024/10/28/business/boeing-stock-sale-strike.html
-
-**This Three-Ingredient Fish Dish Is Minimalist Magic**\
-`Eric Kim’s scallion-oil fish turns olive oil, alliums and white fish fillets into a simple, luscious dinner.`\
-https://nytimes.com/2024/10/28/dining/three-ingredient-fish-recipe.html
-
-**How Are the World’s Trees Doing? A New Assessment Has Answers.**\
-`They play an essential role in supporting life on Earth, but many species are in decline, researchers found.`\
-https://nytimes.com/2024/10/28/climate/trees-extinction-iucn-report-biodiversity.html
-
-**The Windup: Everything we know about Ohtani's injury**\
-`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
-https://nytimes.com/athletic/5879809/2024/10/28/shohei-ohtani-world-series-injury-the-windup/
-
-**UCF fires defensive coordinator Ted Roof amid five-game losing streak**\
-`The Knights allowed more than 250 yards rushing for the second week in a row in Saturday's loss to BYU.`\
-https://nytimes.com/athletic/5879868/2024/10/28/ucf-fires-defensive-coordinator-ted-roof-amid-five-game-losing-streak-source/
 
