@@ -10,7 +10,7 @@ https://nytimes.com/live/2024/10/28/us/harris-trump-election/the-washington-comm
 `On average, wages have risen faster than prices in recent years. But not all Americans are getting ahead.`\
 https://nytimes.com/2024/10/28/business/economy/inflation-wages-pay-salaries.html
 
-**That’s a Lot of Cheddar: Scammers Steal $390,000 of British Cheese.**\
+**That’s a Lot of Cheddar: Scammers Steal $390,000 of British Cheese**\
 `Neal’s Yard, a leading cheese retailer in London, said that a shipment of 22 metric tons of rare Cheddar had disappeared in the con.`\
 https://nytimes.com/2024/10/28/world/europe/uk-cheese-theft-scam.html
 
