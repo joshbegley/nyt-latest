@@ -1,3 +1,7 @@
+**The Windup: Everything we know about Ohtani's injury**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5879809/2024/10/28/shohei-ohtani-world-series-injury-the-windup/
+
 **UCF fires defensive coordinator Ted Roof amid five-game losing streak**\
 `The Knights allowed more than 250 yards rushing for the second week in a row in Saturday's loss to BYU.`\
 https://nytimes.com/athletic/5879868/2024/10/28/ucf-fires-defensive-coordinator-ted-roof-amid-five-game-losing-streak-source/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/world/europe/ukraine-braces-for-russians-to-assau
 **Tom Kim broke his locker door after losing playoff in Korea**\
 `Kim said he'll pay for the damages but reportedly could face disciplinary action from the KPGA Tour.`\
 https://nytimes.com/athletic/5879655/2024/10/28/tom-kim-locker-room-door-korea-golf/
-
-**Fantasy football Week 8 recap: Time to drop Dak Prescott?**\
-`The Cowboys quarterback needs to improve his downfield passing or it could be time to cut him loose.`\
-https://nytimes.com/athletic/5879553/2024/10/28/fantasy-football-week-8-recap-dak-prescott/
 
