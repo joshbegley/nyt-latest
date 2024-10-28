@@ -1,3 +1,11 @@
+**Whether Harris or Trump Wins, Seeking Asylum in the U.S. May Never Be the Same**\
+`As administrations of both parties have failed to overhaul the nation’s immigration laws, a reckoning for the asylum system, which some say is overdue, seems inevitable.`\
+https://nytimes.com/2024/10/28/us/politics/harris-trump-asylum-immigration.html
+
+**Jon Stewart Extends ‘Daily Show’ Run Through 2025**\
+`Stewart, who returned to the show in February as a host on Monday nights, originally planned to work through the presidential election.`\
+https://nytimes.com/2024/10/28/arts/television/jon-stewart-daily-show-2025.html
+
 **College football Week 10 odds, schedule: Ohio State, Penn State meet in massive clash**\
 `Ohio State is coming off an unimpressive performance, but is still favored at Penn State in the biggest game of Week 10.`\
 https://nytimes.com/athletic/5879977/2024/10/28/college-football-week-10-odds-schedule-ohio-state-penn-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5830756/2024/10/28/10-charts-that-explain-mancheste
 **Volkswagen Could Close 3 Plants in Germany to Cut Costs**\
 `The auto maker’s top employee representative told workers that management planned to shutter factories for the first time in the company’s 87-year history.`\
 https://nytimes.com/2024/10/28/business/volkswagen-plant-closures-germany.html
-
-**At Madison Square Garden, MAGA Prepares to Reject Another Election**\
-`Trump’s big rally featured unadulterated racism and more talk of “enemies from within.”`\
-https://nytimes.com/2024/10/28/opinion/trump-rally-msg-racism.html
-
-**The Presidential Endorsements That Weren’t**\
-`Readers both decry and praise the decision by The Washington Post and The Los Angeles Times not to endorse. Also: An early voter; the New York Historical.`\
-https://nytimes.com/2024/10/28/opinion/washington-post-la-times-endorsement.html
 

@@ -1,3 +1,11 @@
+**Whether Harris or Trump Wins, Seeking Asylum in the U.S. May Never Be the Same**\
+`As administrations of both parties have failed to overhaul the nation’s immigration laws, a reckoning for the asylum system, which some say is overdue, seems inevitable.`\
+https://nytimes.com/2024/10/28/us/politics/harris-trump-asylum-immigration.html
+
+**Jon Stewart Extends ‘Daily Show’ Run Through 2025**\
+`Stewart, who returned to the show in February as a host on Monday nights, originally planned to work through the presidential election.`\
+https://nytimes.com/2024/10/28/arts/television/jon-stewart-daily-show-2025.html
+
 **College football Week 10 odds, schedule: Ohio State, Penn State meet in massive clash**\
 `Ohio State is coming off an unimpressive performance, but is still favored at Penn State in the biggest game of Week 10.`\
 https://nytimes.com/athletic/5879977/2024/10/28/college-football-week-10-odds-schedule-ohio-state-penn-state/
