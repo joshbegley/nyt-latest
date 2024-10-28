@@ -1,3 +1,15 @@
+**Timothée Chalamet Crashes Look-alike Contest**\
+`The Oscar-nominated actor showed up unannounced to a look-alike contest for himself in New York City.`\
+https://nytimes.com/video/nyregion/100000009786923/timothee-chalamet-lookalike-contest-new-york.html
+
+**Maple Leafs extend Jake McCabe: Have they committed to too many older defencemen?**\
+`The five-year contract extension with a $4.51 million cap hit establishes the 31-year-old defenceman as part of the core going forward.`\
+https://nytimes.com/athletic/5880021/2024/10/28/jake-mccabe-extension-maple-leafs/
+
+**Penn State QB Drew Allar could be game-time decision vs. Ohio State, James Franklin says**\
+`Allar did not play in the second half against Wisconsin after suffering an apparent knee injury on a sack.`\
+https://nytimes.com/athletic/5879921/2024/10/28/quarterback-drew-allar-availbility-penn-state-ohio-state/
+
 **Why a Key Biden Effort to Boost Affordable Housing Has Faced Hurdles**\
 `The Biden administration rolled out a plan last year to create more housing by unlocking more than $35 billion in lending capacity. It has yet to close on any loans that would support housing-related projects.`\
 https://nytimes.com/2024/10/28/us/politics/biden-affordable-housing-programs.html
@@ -25,17 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/trumps-tariffs-global-trade.html
 **5 Eerie Games to Haunt During Halloween Week**\
 `Everyone has secrets to conceal in Life Is Strange: Double Exposure, a supernatural thriller with parallel timelines.`\
 https://nytimes.com/2024/10/28/arts/life-is-strange-double-exposure-review.html
-
-**'Not the start we wanted': Nikola Jokić, Nuggets aren't panicking, but issues are piling up**\
-`Lack of attention to detail and chemistry have hampered the Nuggets in their first two games: "We just have to play more games together."`\
-https://nytimes.com/athletic/5875145/2024/10/28/nikola-jokic-nuggets-jamal-murray/
-
-**Brighton captain Lewis Dunk set to miss three weeks with calf injury**\
-`Brighton &amp; Hove Albion captain Lewis Dunk has been ruled out until after the November international break with a calf injury
-The 32-year-old central defender will miss Wednesday&#8217;s Carabao Cup fourth round tie at home to Liverpool, Saturday&#8217;s Premier League return meeting with Liverpool at Anfield and the visit of Manchester City to the Amex Stadium on November 9.`\
-https://nytimes.com/athletic/5879888/2024/10/28/lewis-dunk-brighton-injury/
-
-**Timothée Chalamet Showed Up at His Own Look-Alike Contest**\
-`No, he didn’t enter. But he still caused a stir in Washington Square Park, where four people were arrested.`\
-https://nytimes.com/2024/10/28/nyregion/timothee-chalamet-lookalike-contest-new-york.html
 

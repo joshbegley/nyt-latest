@@ -1,3 +1,15 @@
+**Timothée Chalamet Crashes Look-alike Contest**\
+`The Oscar-nominated actor showed up unannounced to a look-alike contest for himself in New York City.`\
+https://nytimes.com/video/nyregion/100000009786923/timothee-chalamet-lookalike-contest-new-york.html
+
+**Maple Leafs extend Jake McCabe: Have they committed to too many older defencemen?**\
+`The five-year contract extension with a $4.51 million cap hit establishes the 31-year-old defenceman as part of the core going forward.`\
+https://nytimes.com/athletic/5880021/2024/10/28/jake-mccabe-extension-maple-leafs/
+
+**Penn State QB Drew Allar could be game-time decision vs. Ohio State, James Franklin says**\
+`Allar did not play in the second half against Wisconsin after suffering an apparent knee injury on a sack.`\
+https://nytimes.com/athletic/5879921/2024/10/28/quarterback-drew-allar-availbility-penn-state-ohio-state/
+
 **Why a Key Biden Effort to Boost Affordable Housing Has Faced Hurdles**\
 `The Biden administration rolled out a plan last year to create more housing by unlocking more than $35 billion in lending capacity. It has yet to close on any loans that would support housing-related projects.`\
 https://nytimes.com/2024/10/28/us/politics/biden-affordable-housing-programs.html
