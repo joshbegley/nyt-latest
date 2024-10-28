@@ -1,3 +1,7 @@
+**October has been a relatively costly month for the Israeli military.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/october-has-been-a-relatively-costly-month-for-the-israeli-military
+
 **Musk Repeatedly Raises the Idea That Harris, or He, Could Be Assassinated**\
 `The billionaire and his PAC have used foreboding language about the vice president in their support of former President Donald Trump.`\
 https://nytimes.com/2024/10/28/us/politics/musk-harris-assassination-attempts.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/10/28/arts/phil-lesh-fans
 **Iran Executes German-Iranian Opponent Who Lived in U.S.**\
 `Jamshid Sharmahd had been accused of helping in a deadly terrorist bombing in 2008. Another Iranian prisoner, the Nobel laureate Narges Mohammadi, is in the hospital.`\
 https://nytimes.com/2024/10/28/world/middleeast/iran-jamshid-sharmahd-narges-mohammadi.html
-
-**N.Y.P.D. Chief Stirs Criticism With Newsmax Appearance at Trump Rally**\
-`John Chell also went on other networks, but struck a nerve by appearing on a channel that has boosted conspiracy theories and misinformation.`\
-https://nytimes.com/2024/10/28/nyregion/nypd-chief-chell-newsmax-trump.html
 
