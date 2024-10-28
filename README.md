@@ -1,3 +1,7 @@
+**South Africa submits its genocide case against Israel to the top U.N. court.**\
+`By Marlise Simons`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/south-africa-submits-its-genocide-case-against-israel-to-the-top-un-court
+
 **Connor McDavid ruled out vs. Blue Jackets with lower-body injury**\
 `McDavid played 37 seconds before being ruled out after the opening faceoff.`\
 https://nytimes.com/athletic/5881214/2024/10/28/connor-mcdavid-injury-oilers-blue-jackets/
@@ -35,8 +39,4 @@ https://nytimes.com/2024/10/28/us/politics/trump-anderson-cooper-cnn.html
 **Trump’s Biggest Con: Pretending to Support American Workers**\
 `He’s even more antilabor and pro-plutocrat than orthodox Republicans.`\
 https://nytimes.com/2024/10/28/opinion/trump-american-workers.html
-
-**World Series ticket prices in New York cool with Yankees down 2-0, but demand still strong**\
-`A StubHub spokesperson said the dip wasn't surprising based on how the series between two star-studded markets has unfolded so far.`\
-https://nytimes.com/athletic/5880861/2024/10/28/world-series-ticket-prices-dodgers-yankees/
 
