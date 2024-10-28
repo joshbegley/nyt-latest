@@ -1,3 +1,11 @@
+**Meloni v. Judges: In Italy, a Fight over Migration Rekindles Old Hostilities**\
+`Conservatives have often accused the Italian courts of overreach. The prime minister’s plan to outsource asylum requests is now part of that longstanding battle.`\
+https://nytimes.com/2024/10/28/world/europe/italy-meloni-asylum-judiciary.html
+
+**The 2024 Stakes on Health Care**\
+`We explore the presidential candidates’ health policy proposals.`\
+https://nytimes.com/2024/10/28/briefing/health-care-2024-election-harris-trump.html
+
 **Here are the latest developments.**\
 `By Mike Ives and Isabel Kershner`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/here-are-the-latest-developments

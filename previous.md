@@ -1,3 +1,11 @@
+**Meloni v. Judges: In Italy, a Fight over Migration Rekindles Old Hostilities**\
+`Conservatives have often accused the Italian courts of overreach. The prime minister’s plan to outsource asylum requests is now part of that longstanding battle.`\
+https://nytimes.com/2024/10/28/world/europe/italy-meloni-asylum-judiciary.html
+
+**The 2024 Stakes on Health Care**\
+`We explore the presidential candidates’ health policy proposals.`\
+https://nytimes.com/2024/10/28/briefing/health-care-2024-election-harris-trump.html
+
 **Here are the latest developments.**\
 `By Mike Ives and Isabel Kershner`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5878450/2024/10/28/chiefs-travis-kelce-deandre-hopk
 **Vikings still desperate for help at CB, DL, interior OL — could it come at trade deadline?**\
 `To get over the hump, the Vikings need to improve at those three position groups, and they should have the money to do it in free agency.`\
 https://nytimes.com/athletic/5877681/2024/10/28/vikings-trade-deadline-needs-cb-dl-ol/
-
-**Duterte Says He Takes ‘Full Legal Responsibility’ for Philippine Drug War**\
-`Former President Rodrigo Duterte was defiant in Senate testimony about the years of bloodshed that left thousands dead. “I did it for my country,” he said.`\
-https://nytimes.com/2024/10/28/world/asia/duterte-philippines-drug-war-hearing.html
-
-**The adventures of Anthony Richardson on a wild day in Houston**\
-`Every play with Richardson feels like a roll of the dice, but the Colts appear committed to riding out the turbulence.`\
-https://nytimes.com/athletic/5879050/2024/10/28/anthony-richardson-colts-texans-pick-six/
 
