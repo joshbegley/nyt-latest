@@ -1,3 +1,7 @@
+**The Cookies You Want to Bake on Election Day**\
+`Rich with browned butter pecans and chewy with oats, these foolproof cookies are the perfect thing to make — and eat — while results roll in.`\
+https://nytimes.com/2024/10/28/dining/chewy-brown-butter-cookies-election-day.html
+
 **Republicans Distance Themselves From Puerto Rico Insult at Trump’s Rally**\
 `A comedian who spoke at Donald Trump’s campaign rally at Madison Square Garden referred to the U.S. territory as a “floating island of garbage,” prompting immediate backlash.`\
 https://nytimes.com/2024/10/28/us/politics/puerto-rico-republicans-trump-msg-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/sheehy-tester-montana-senate.html
 **Biden Waits in Line and Casts His Vote for Harris**\
 `The president and onetime nominee stood with more than a hundred early voters on Monday in Delaware. He said the moment was “just sweet,” not bittersweet.`\
 https://nytimes.com/2024/10/28/us/politics/biden-vote-harris.html
-
-**Bannon’s Release From Prison Unleashes an Agitator Into Heated Campaign**\
-`Allies say Stephen K. Bannon, one of the right’s most influential voices, has been tracking the race from prison and is ready to push Trump supporters to the polls.`\
-https://nytimes.com/2024/10/28/us/politics/steve-bannon-trump-campaign-war-room.html
 

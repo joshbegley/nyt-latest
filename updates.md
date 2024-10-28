@@ -1,3 +1,7 @@
+**The Cookies You Want to Bake on Election Day**\
+`Rich with browned butter pecans and chewy with oats, these foolproof cookies are the perfect thing to make — and eat — while results roll in.`\
+https://nytimes.com/2024/10/28/dining/chewy-brown-butter-cookies-election-day.html
+
 **Republicans Distance Themselves From Puerto Rico Insult at Trump’s Rally**\
 `A comedian who spoke at Donald Trump’s campaign rally at Madison Square Garden referred to the U.S. territory as a “floating island of garbage,” prompting immediate backlash.`\
 https://nytimes.com/2024/10/28/us/politics/puerto-rico-republicans-trump-msg-rally.html
