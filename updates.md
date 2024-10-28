@@ -1,3 +1,11 @@
+**Paying Their Respects at the House of the Dead**\
+`Fans streamed into the Haight-Ashbury neighborhood of San Francisco this weekend to mourn the Grateful Dead bassist Phil Lesh.`\
+https://nytimes.com/card/2024/10/28/arts/phil-lesh-fans
+
+**Iran Executes German-Iranian Opponent Who Lived in U.S.**\
+`Jamshid Sharmahd had been accused of helping in a deadly terrorist bombing in 2008. Another Iranian prisoner, the Nobel laureate Narges Mohammadi, is in the hospital.`\
+https://nytimes.com/2024/10/28/world/middleeast/iran-jamshid-sharmahd-narges-mohammadi.html
+
 **N.Y.P.D. Chief Stirs Criticism With Newsmax Appearance at Trump Rally**\
 `John Chell also went on other networks, but struck a nerve by appearing on a channel that has boosted conspiracy theories and misinformation.`\
 https://nytimes.com/2024/10/28/nyregion/nypd-chief-chell-newsmax-trump.html
