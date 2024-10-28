@@ -1,3 +1,15 @@
+**Arsenal Today: Another injury, Arteta's tactics analysed and Saka is back**\
+`James McNicholas talks you through what is interesting our Arsenal writers today`\
+https://nytimes.com/athletic/5877434/2024/10/28/arsenal-today-injury-arteta-saka/
+
+**Five minutes of madness that could change Wolves' season**\
+`Gary O'Neil's side scored twice at the death to salvage a point at Brighton in what the manager hopes is a turning point for their season`\
+https://nytimes.com/athletic/5875704/2024/10/28/wolves-brighton-cunha-oneil-bottle/
+
+**Aston Villa left mentally fatigued by Champions League exploits - and Bournemouth took advantage**\
+`The visitors ensured Villa stayed within reach in a slug of a contest. They capitalised with the last play of the match to secure a point`\
+https://nytimes.com/athletic/5874550/2024/10/28/aston-villa-bournemouth-mental-fatigue-emery/
+
 **Lopetegui's triple change turned the tide against United. Could it prove a turning point in West Ham’s season?**\
 `West Ham markedly improved offensively after the break, playing with an energy, confidence and flair that had been lacking
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5876666/2024/10/28/newcastle-are-a-mid-table-side/
 **Brighton and the Bananenschale: Why Fabian Hurzeler's side continue to oblige the strugglers**\
 `The late capitulation to Wolves meant Brighton have secured only 12 victories from 46 games against teams in the division's bottom three`\
 https://nytimes.com/athletic/5872162/2024/10/28/brighton-hurzeler-bananenschale-wolves/
-
-**The Briefing: Will Arsenal and Liverpool rue their draw and is it time to bin VAR?**\
-`The Athletic discusses three of the biggest questions to arise from this weekend’s Premier League football`\
-https://nytimes.com/athletic/5877167/2024/10/28/the-briefing-will-arsenal-and-liverpool-rue-their-draw-and-is-it-time-to-bin-var/
-
-**Manchester United have lost all confidence in front of goal – it is destroying their season**\
-`Erik ten Hag's team are underperforming their expected goals figure by more than any other Premier League side — they simply must improve`\
-https://nytimes.com/athletic/5859742/2024/10/28/manchester-united-no-confidence-in-front-of-goal/
-
-**How much the Ballon d'Or is worth to a player - and why it's become such a big deal**\
-`Winning the Ballon d’Or does not bring direct financial reward, but it serves as an emphatic endorsement that leads to a surge in interest`\
-https://nytimes.com/athletic/5869965/2024/10/28/what-is-the-ballon-dor-worth/
 
