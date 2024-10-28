@@ -1,3 +1,7 @@
+**Submit your questions for Antonio Morales’ USC football mailbag**\
+`<p>USC evened its record at 4-4 with a win over Rutgers last Friday, but it&#8217;s been a rough stretch for the Trojans.`\
+https://nytimes.com/athletic/5881209/2024/10/28/submit-your-questions-for-antonio-morales-usc-football-mailbag-10/
+
 **Israel’s Knesset passes bills banning UNRWA, the agency that aids Palestinians.**\
 `By Aaron Boxerman and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israels-knesset-passes-bills-banning-unrwa-the-agency-that-aids-palestinians
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/us/elections/michelle-obama-kamala-harris-double-
 **A Caller Told 911 a Bear Had Chased Him Off a Cliff. The Police Say It Was Murder.**\
 `The sheriff in a rural Tennessee county said his office is searching for a man who used a stolen identity to pose as a victim.`\
 https://nytimes.com/2024/10/28/world/americas/fake-bear-attack-murder-tennessee.html
-
-**What it's like to vote for the Ballon d’Or Feminin**\
-`The Athletic's Steph Yang was selected to vote as the representative from the U.S.`\
-https://nytimes.com/athletic/5880978/2024/10/28/ballon-dor-2024-women-fifa-voting/
 
