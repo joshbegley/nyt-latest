@@ -1,3 +1,11 @@
+**Quote of the Day: There’s Much More To A Midmajor Star Than Meets the Eyes**\
+`Quotation of the Day for Monday, October 28, 2024.`\
+https://nytimes.com/2024/10/27/pageoneplus/quote-of-the-day-theres-much-more-to-a-midmajor-star-than-meets-the-eyes.html
+
+**'We're not surprised, nor are we satisfied': Bills' identity coming into focus at midpoint**\
+`The Bills, at 6-2, have a sizable lead in the AFC East.`\
+https://nytimes.com/athletic/5878588/2024/10/27/bills-identity-midseason-josh-allen/
+
 **Hail Mary puts spotlight on Bears' miscues, a team that's not ready for prime time**\
 `The Bears did not put together a performance worthy of much praise even if they won. The Hail Mary just made everything seem even worse. `\
 https://nytimes.com/athletic/5878454/2024/10/27/bears-hail-mary-commanders-mistakes/
