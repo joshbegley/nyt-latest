@@ -1,3 +1,7 @@
+**Word of the Day: logistical**\
+`This word has appeared in 424 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/28/learning/word-of-the-day-logistical.html
+
 **Monday Briefing**\
 `Americans’ fears about the future of democracy.`\
 https://nytimes.com/2024/10/28/briefing/american-election-democracy-iran-israel.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5874998/2024/10/28/everton-fulham-beto-dyche-slog/
 **Arsenal can't catch a break — but it is vital they don't let this demoralise them**\
 `Injuries, red cards, exhaustion — Mikel Arteta's team are in the wars right now. But they must remain upbeat and keep trying to move forward`\
 https://nytimes.com/athletic/5877174/2024/10/28/arsenal-cant-catch-a-break-premier-league/
-
-**Whisper it quietly, but Newcastle are sliding towards mid-table mediocrity**\
-`Another dispiriting defeat for Eddie Howe's team has highlighted just how far off the top teams they are now`\
-https://nytimes.com/athletic/5876666/2024/10/28/newcastle-are-a-mid-table-side/
 
