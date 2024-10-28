@@ -1,3 +1,8 @@
+**Lopetegui's triple change turned the tide against United. Could it prove a turning point in West Ham’s season?**\
+`West Ham markedly improved offensively after the break, playing with an energy, confidence and flair that had been lacking
+`\
+https://nytimes.com/athletic/5875855/2024/10/28/west-ham-manchester-united-premier-league-lopetegui/
+
 **How Maxence Lacroix proved his worth against Spurs**\
 `Maxence Lacroix has taken time to settle in the Premier League, but there were valid reasons for that and against Spurs he was outstanding`\
 https://nytimes.com/athletic/5873254/2024/10/28/maxence-lacroix-how-the-defender-proved-his-worth-against-spurs/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5859742/2024/10/28/manchester-united-no-confidence-
 **How much the Ballon d'Or is worth to a player - and why it's become such a big deal**\
 `Winning the Ballon d’Or does not bring direct financial reward, but it serves as an emphatic endorsement that leads to a surge in interest`\
 https://nytimes.com/athletic/5869965/2024/10/28/what-is-the-ballon-dor-worth/
-
-**Silva shares Fulham sadness over claims of 'unacceptable' police handling of sexual assault allegations at club**\
-`"The news is really sad for us as a club. For all of us as human beings, the news is really sad," the Fulham manager said`\
-https://nytimes.com/athletic/5875774/2024/10/28/silva-fulham-sexual-assault-claims/
 
