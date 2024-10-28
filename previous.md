@@ -1,3 +1,7 @@
+**How the Celtics trusted Jrue Holiday and was rewarded with their 18th NBA championship**\
+`“I don’t talk very much. When I say something, I really mean it,” Holiday recalled during a moment in the 2024 NBA Finals.`\
+https://nytimes.com/athletic/5837566/2024/10/28/celtics-trust-jrue-holiday-nba-championship/
+
 **When Brian Cashman, the Yankees’ General Manager, Loved the Dodgers**\
 `As the two teams face off in a crucial game at Yankee Stadium on Monday, the longtime Yankees executive recalls a different baseball loyalty.`\
 https://nytimes.com/2024/10/28/nyregion/brian-cashman-yankees-dodgers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5877434/2024/10/28/arsenal-today-injury-arteta-saka
 **Five minutes of madness that could change Wolves' season**\
 `Gary O'Neil's side scored twice at the death to salvage a point at Brighton in what the manager hopes is a turning point for their season`\
 https://nytimes.com/athletic/5875704/2024/10/28/wolves-brighton-cunha-oneil-bottle/
-
-**Aston Villa left mentally fatigued by Champions League exploits - and Bournemouth took advantage**\
-`The visitors ensured Villa stayed within reach in a slug of a contest. They capitalised with the last play of the match to secure a point`\
-https://nytimes.com/athletic/5874550/2024/10/28/aston-villa-bournemouth-mental-fatigue-emery/
 
