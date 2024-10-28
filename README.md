@@ -1,3 +1,11 @@
+**At Madison Square Garden, MAGA Prepares to Reject Another Election**\
+`Trump’s big rally featured unadulterated racism and more talk of “enemies from within.”`\
+https://nytimes.com/2024/10/28/opinion/trump-rally-msg-racism.html
+
+**The Presidential Endorsements That Weren’t**\
+`Readers both decry and praise the decision by The Washington Post and The Los Angeles Times not to endorse. Also: An early voter; the New York Historical.`\
+https://nytimes.com/2024/10/28/opinion/washington-post-la-times-endorsement.html
+
 **Balotelli joins Genoa on free transfer**\
 `Former Manchester City and Italy striker Mario Balotelli has signed for Serie A side Genoa.`\
 https://nytimes.com/athletic/5808805/2024/10/28/mario-balotelli-genoa-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/us/elections/michael-bloomberg-presidential-race-
 **Israel says it targeted Hezbollah positions in southern Lebanese port city.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israel-says-it-targeted-hezbollah-positions-in-southern-lebanese-port-city
-
-**Ivica Zubac's sudden offensive outburst is anchoring the Clippers**\
-`The veteran big man has three straight 20-point games to open the season, including a team-high 23 in Sunday's win at Golden State.`\
-https://nytimes.com/athletic/5878852/2024/10/28/ivica-zubac-clippers-offense/
-
-**Scoop City: Risers and fallers after Week 8**\
-`A quick look at the risers (Browns, Lions, Commanders), fallers (Jets, Bears), and the league's worst starting quarterback.  `\
-https://nytimes.com/athletic/5879954/2024/10/28/trending-%f0%9f%93%89-%f0%9f%93%88-after-nfls-week-8-plus-the-continued-decline-of-the-jets-anthony-richardson/
 
