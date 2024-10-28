@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Thoughts on foul rates, contract incentives and Suns' Ryan Dunn**\
+`It's early, but so far, dull marches to the free-throw line have marred games.`\
+https://nytimes.com/athletic/5877937/2024/10/28/nba-foul-rate-ryan-dunn-phoenix-suns/
+
 **Keeping Ten Hag was Sir Jim Ratcliffe and INEOS' first big mistake - they cannot afford another**\
 `Erik ten Hag got the heat for Manchester United's poor form but Ratcliffe and INEOS must also take their share of the blame`\
 https://nytimes.com/athletic/5854794/2024/10/28/ineos-manchester-united-ten-hag-sack-mistake/
