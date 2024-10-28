@@ -1,7 +1,3 @@
-**The Seahawks' 'laundry list' of problems is far from fixed, and time is running out**\
-`The Seahawks' worst loss under Mike Macdonald was the result of familiar issues, despite plenty of efforts to fix them.`\
-https://nytimes.com/athletic/5878183/2024/10/27/seahawks-bills-jarran-reed-derick-hall/
-
 **Bears' Stevenson jaws with fans moments before giving up Hail Mary**\
 `Stevenson did not talk to the media postgame, but posted on X: "To Chicago and teammates my apologies for lack of awareness and focus."`\
 https://nytimes.com/athletic/5878169/2024/10/27/tyrique-stevenson-bears-commanders-hail-mary/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5877716/2024/10/27/jets-loss-patriots-darkness-aaro
 **Colts can't improve until Shane Steichen, Anthony Richardson accept reality**\
 `The Colts need to start deploying Richardson like the player he is, not the player they hope he can one day become. `\
 https://nytimes.com/athletic/5877998/2024/10/27/colts-anthony-richardson-shane-steichen-reality/
+
+**Corrections: Oct. 27, 2024**\
+`Corrections that appeared in print on Sunday, Oct. 27, 2024.`\
+https://nytimes.com/2024/10/27/pageoneplus/corrections-oct-27-2024.html
 
