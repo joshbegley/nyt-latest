@@ -1,3 +1,7 @@
+**Volkswagen Could Close 3 Plants in Germany to Cut Costs**\
+`The auto maker’s top employee representative told workers that management planned to shutter factories for the first time in the company’s 87-year history.`\
+https://nytimes.com/2024/10/28/business/volkswagen-plant-closures-germany.html
+
 **Recruiting Gen Z Voters With ‘Poll Dancers’ and Yung Gravy**\
 `The Party to the Polls Purple Tour, a nonpartisan event series geared toward young voters, aims to make voting rowdy.`\
 https://nytimes.com/2024/10/28/style/gen-z-voters-concert-series.html
