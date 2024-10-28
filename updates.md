@@ -1,3 +1,7 @@
+**Ten Hag sacked as Manchester United manager**\
+`Erik ten Hag has been sacked as Manchester United manager.`\
+https://nytimes.com/athletic/5854757/2024/10/28/erik-ten-hag-sacked-manchester-united/
+
 **Xavi Simons unlikely to return before 2025 after ankle surgery**\
 `RB Leipzig playmaker Xavi Simons will likely miss the rest of the calendar year after undergoing surgery on an ankle ligament injury.`\
 https://nytimes.com/athletic/5879264/2024/10/28/xavi-simons-injury-update/
