@@ -1,3 +1,15 @@
+**Xavi Simons unlikely to return before 2025 after ankle surgery**\
+`RB Leipzig playmaker Xavi Simons will likely miss the rest of the calendar year after undergoing surgery on an ankle ligament injury.`\
+https://nytimes.com/athletic/5879264/2024/10/28/xavi-simons-injury-update/
+
+**A Seismic Election Sends Asia’s Most Stable Democracy Into Chaos**\
+`Deep-seated grievance among Japanese voters has put the Liberal Democrats, longstanding custodians of the status quo, on notice.`\
+https://nytimes.com/2024/10/28/world/asia/japan-election.html
+
+**Thompson: Stephen Curry's injury provides Warriors first big test of their depth**\
+`SAN FRANCISCO — Nothing rocks the core of Golden State Warriors fans like the sight of Stephen Curry limping.`\
+https://nytimes.com/athletic/5879097/2024/10/28/stephen-curry-injury-warriors-depth/
+
 **Canadiens weekly notebook: Boot camp comes early, switching looks on the power play, more**\
 `Also in this week's notebook, a potential name for the Jake Evans line and Nick Suzuki's Blues connections looking back on his potential. `\
 https://nytimes.com/athletic/5879027/2024/10/28/canadiens-power-play-caufield-suzuki/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5879086/2024/10/28/cowboys-frustration-loss-49ers/
 **‘We were performing while grieving’: A year on from the tragedy that changed British hockey**\
 `The former Pittsburgh Penguins forward died during a game at 29. A year on, his death is still felt within the UK's hockey community`\
 https://nytimes.com/athletic/5849804/2024/10/28/adam-johnson-death-anniversary/
-
-**New Horror for Readers Who Want to Be Completely Terrified**\
-`Our columnist reviews October’s new horror books.`\
-https://nytimes.com/2024/10/28/books/review/new-horror-books.html
-
-**Meloni v. Judges: In Italy, a Fight Over Migration Rekindles Old Hostilities**\
-`Conservatives have often accused the Italian courts of overreach. The prime minister’s plan to outsource asylum requests is now part of that longstanding battle.`\
-https://nytimes.com/2024/10/28/world/europe/italy-meloni-asylum-judiciary.html
-
-**The 2024 Stakes on Health Care**\
-`We explore the presidential candidates’ health policy proposals.`\
-https://nytimes.com/2024/10/28/briefing/health-care-2024-election-harris-trump.html
 
