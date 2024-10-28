@@ -26,7 +26,7 @@ https://nytimes.com/video/us/politics/100000009788572/puerto-rico-latinos-trump-
 `As Donald Trump’s rhetoric grows more extreme, liberals say Kamala Harris is being held, unfairly, to a higher bar by voters and the media. One is “allowed to be lawless while the other one has to be flawless,” a congresswoman said.`\
 https://nytimes.com/2024/10/28/us/elections/michelle-obama-kamala-harris-double-standard.html
 
-**He Told 911 a Bear Had Chased Him Off a Cliff. Now, He’s Wanted for Murder.**\
+**A Caller Told 911 a Bear Had Chased Him Off a Cliff. The Police Say It Was Murder.**\
 `The sheriff in a rural Tennessee county said his office is searching for a man who used a stolen identity to pose as a victim.`\
 https://nytimes.com/2024/10/28/world/americas/fake-bear-attack-murder-tennessee.html
 
