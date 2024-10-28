@@ -1,3 +1,7 @@
+**The Big Ten's top 4 teams have plenty on the line in November**\
+`Oregon, Penn State, Ohio State and Indiana have separated themselves atop the Big Ten, and they have plenty to play for in November.`\
+https://nytimes.com/athletic/5879237/2024/10/28/big-ten-football-oregon-ohio-state-penn-state-indiana/
+
 **Tyler Reddick, in signature moment, earns Phoenix spot with thrilling last-lap pass**\
 `Running on older tires, Tyler Reddick wasn't supposed to win Sunday at Homestead. Then a huge last-lap run put him into the Championship 4.`\
 https://nytimes.com/athletic/5878800/2024/10/28/tyler-reddick-homestead-nascar-last-lap-pass/
