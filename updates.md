@@ -1,3 +1,11 @@
+**The Rebellious Scientist Who Made Kamala Harris**\
+`The presidential candidate’s mother, Shyamala Gopalan Harris, was a breast cancer researcher whose egalitarian politics often bucked a patriarchal lab culture.`\
+https://nytimes.com/2024/10/28/science/shyamala-gopalan-kamala-harris-mother.html
+
+**How Miami moved to the epicenter of the global game – with a little help from Lionel Messi**\
+`FIFA has moved some offices from Zurich to Miami and will use the city to strengthen its relationship with CONCACAF and CONMEBOL`\
+https://nytimes.com/athletic/5878348/2024/10/28/miami-messi-fifa-infantino-beckham/
+
 **What Happens to Your Skin While You Sleep?**\
 `A growing body of research shows that peak performance is inextricably linked to proper rest. Sleep is when overall recovery occurs, and the latest in skin care — notably Estée Lauder’s next-gen night creams — are tapping into skin’s natural repair processes with measurable results.`\
 https://nytimes.com/paidpost/estee-lauder/what-happens-to-your-skin-while-you-sleep.html
