@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Mike Ives and Isabel Kershner`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
+
+**Live Updates: U.S. and Israeli Spy Chiefs Meet for Gaza Cease-Fire Talks**\
+`The director of the C.I.A. was in Qatar for preliminary talks with Israeli officials aimed at reviving cease-fire negotiations with Hamas.`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon
+
 **More Changes at Real Estate Giant Amid Turmoil**\
 `Scott Durkin, president and chief executive of Douglas Elliman Realty, has left the company, following the sudden retirement of Howard Lorber, the chief executive of the parent company.`\
 https://nytimes.com/2024/10/28/realestate/douglas-elliman-durkin-resigns.html
