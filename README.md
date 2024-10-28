@@ -1,3 +1,11 @@
+**Kylian Mbappe's arrival has unbalanced Real Madrid. Barcelona took full advantage**\
+`If Mbappe and Vinicius Jr had shown more defensive diligence, they may well have been more effective going forwards too`\
+https://nytimes.com/athletic/5877376/2024/10/28/mbappe-clasico-real-madrid-barcelona-analysis/
+
+**Arsenal had the right plan to stop Salah but transitional moments cost them**\
+`Mohamed Salah continued his impressive record of scoring against Arsenal, who had a clear plan and almost managed to stop him`\
+https://nytimes.com/athletic/5879023/2024/10/28/arsenal-mohamed-salah-liverpool/
+
 **The other Freddie Freeman grand slam calls: Media Circus**\
 `You've heard Joe Davis' call. Here's a few more worth a shoutout. Plus, notes on Tom Brady loosening up, a cool NFL victory POV and more.`\
 https://nytimes.com/athletic/5843444/2024/10/28/freddie-freeman-grand-slam-tom-brady-media-circus/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/28/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: After Trump’s Racist Rally, Campaigns Plan Furious Week of Events**\
 `Former President Donald J. Trump’s MAGA rally at Madison Square Garden featured dark grievances and racism. Vice President Kamala Harris is shaping a closing message focused on the stakes of a second Trump term.`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election
-
-**Democrats Use Gas Station Kiosks to Say Trump Will Make Life More Expensive**\
-`The Democratic National Committee will run the 15-second ads in Michigan, Wisconsin, Minnesota, Iowa and Nebraska.`\
-https://nytimes.com/2024/10/28/us/politics/gas-station-ads-trump.html
-
-**Raiders' Gardner Minshew did enough against Chiefs to remain the starting QB ... for now**\
-`The Raiders started strong and took at 10-7 lead against the Chiefs. And then tight end Brock Bowers didn't touch the ball for two quarters.`\
-https://nytimes.com/athletic/5878374/2024/10/28/gardner-minshew-brock-bowers-raiders-loss-chiefs/
 
