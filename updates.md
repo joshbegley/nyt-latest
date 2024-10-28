@@ -1,3 +1,11 @@
+**Balotelli joins Genoa on free transfer**\
+`Former Manchester City and Italy striker Mario Balotelli has signed for Serie A side Genoa.`\
+https://nytimes.com/athletic/5808805/2024/10/28/mario-balotelli-genoa-transfer/
+
+**Nottm Forest appeal against £125,000 fine for Chelsea melee**\
+`Nottingham Forest have already launched an appeal against their latest fine following a Football Association (FA) charge.`\
+https://nytimes.com/athletic/5880142/2024/10/28/nottingham-forest-chelsea-fa-charge-fine/
+
 **Timothée Chalamet Crashes Look-alike Contest**\
 `The Oscar-nominated actor showed up unannounced to a look-alike contest for himself in New York City.`\
 https://nytimes.com/video/nyregion/100000009786923/timothee-chalamet-lookalike-contest-new-york.html
