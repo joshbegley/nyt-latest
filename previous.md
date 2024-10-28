@@ -1,3 +1,11 @@
+**Israel’s Parliament to Consider Conscription, a U.N. agency and Terrorism**\
+`Israel’s Knesset opened its winter session on Monday against a backdrop of war in Gaza and Lebanon and with some contentious matters on the agenda.`\
+https://nytimes.com/2024/10/28/world/middleeast/israel-knesset-gaza-lebanon-war.html
+
+**Man United working on deal to appoint Amorim**\
+`Manchester United are working on a deal to appoint Sporting Lisbon&#8217;s Ruben Amorim as their new head coach.`\
+https://nytimes.com/athletic/5880077/2024/10/28/manchester-united-manager-next-ruben-amorim/
+
 **Gérard Depardieu’s Sexual Assault Trial in France Is Postponed Until March**\
 `The French movie star’s lawyer said poor health kept his client from court on Monday.`\
 https://nytimes.com/2024/10/28/world/europe/depardieus-sexual-assault-trial-postponed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/harris-trump-asylum-immigration.html
 **Jon Stewart Extends ‘Daily Show’ Run Through 2025**\
 `Stewart, who returned to the show in February as a host on Monday nights, originally planned to work through the presidential election.`\
 https://nytimes.com/2024/10/28/arts/television/jon-stewart-daily-show-2025.html
-
-**College football Week 10 odds, schedule: Ohio State, Penn State meet in massive clash**\
-`Ohio State is coming off an unimpressive performance, but is still favored at Penn State in the biggest game of Week 10.`\
-https://nytimes.com/athletic/5879977/2024/10/28/college-football-week-10-odds-schedule-ohio-state-penn-state/
-
-**Recruiting Gen Z Voters With ‘Poll Dancers’ and Yung Gravy**\
-`The Party to the Polls Purple Tour, a nonpartisan event series geared toward young voters, aims to make voting rowdy.`\
-https://nytimes.com/2024/10/28/style/gen-z-voters-concert-series.html
 

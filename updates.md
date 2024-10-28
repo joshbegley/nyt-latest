@@ -1,3 +1,11 @@
+**Israel’s Parliament to Consider Conscription, a U.N. agency and Terrorism**\
+`Israel’s Knesset opened its winter session on Monday against a backdrop of war in Gaza and Lebanon and with some contentious matters on the agenda.`\
+https://nytimes.com/2024/10/28/world/middleeast/israel-knesset-gaza-lebanon-war.html
+
+**Man United working on deal to appoint Amorim**\
+`Manchester United are working on a deal to appoint Sporting Lisbon&#8217;s Ruben Amorim as their new head coach.`\
+https://nytimes.com/athletic/5880077/2024/10/28/manchester-united-manager-next-ruben-amorim/
+
 **Gérard Depardieu’s Sexual Assault Trial in France Is Postponed Until March**\
 `The French movie star’s lawyer said poor health kept his client from court on Monday.`\
 https://nytimes.com/2024/10/28/world/europe/depardieus-sexual-assault-trial-postponed.html
