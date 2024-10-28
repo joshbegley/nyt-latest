@@ -1,3 +1,11 @@
+**Why a Key Biden Effort to Boost Affordable Housing Has Faced Hurdles**\
+`The Biden administration rolled out a plan last year to create more housing by unlocking more than $35 billion in lending capacity. It has yet to close on any loans that would support housing-related projects.`\
+https://nytimes.com/2024/10/28/us/politics/biden-affordable-housing-programs.html
+
+**Bloomberg, After Months of Pressure, Donates $50 Million to Help Harris**\
+`The former mayor of New York City is known for making political donations late in the campaign season. Democrats had been lobbying him to spend more.`\
+https://nytimes.com/2024/10/28/us/elections/michael-bloomberg-presidential-race-donations.html
+
 **Israel says it targeted Hezbollah positions in southern Lebanese port city.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israel-says-it-targeted-hezbollah-positions-in-southern-lebanese-port-city
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5879888/2024/10/28/lewis-dunk-brighton-injury/
 **Timothée Chalamet Showed Up at His Own Look-Alike Contest**\
 `No, he didn’t enter. But he still caused a stir in Washington Square Park, where four people were arrested.`\
 https://nytimes.com/2024/10/28/nyregion/timothee-chalamet-lookalike-contest-new-york.html
-
-**The Washington Commanders had a Hail Mary win that could herald the electoral outcome.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/10/28/us/harris-trump-election/the-washington-commanders-had-a-hail-mary-win-that-could-herald-the-electoral-outcome
-
-**Is Pay Beating Inflation? It’s Complicated.**\
-`On average, wages have risen faster than prices in recent years. But not all Americans are getting ahead.`\
-https://nytimes.com/2024/10/28/business/economy/inflation-wages-pay-salaries.html
 

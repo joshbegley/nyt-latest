@@ -1,3 +1,11 @@
+**Why a Key Biden Effort to Boost Affordable Housing Has Faced Hurdles**\
+`The Biden administration rolled out a plan last year to create more housing by unlocking more than $35 billion in lending capacity. It has yet to close on any loans that would support housing-related projects.`\
+https://nytimes.com/2024/10/28/us/politics/biden-affordable-housing-programs.html
+
+**Bloomberg, After Months of Pressure, Donates $50 Million to Help Harris**\
+`The former mayor of New York City is known for making political donations late in the campaign season. Democrats had been lobbying him to spend more.`\
+https://nytimes.com/2024/10/28/us/elections/michael-bloomberg-presidential-race-donations.html
+
 **Israel says it targeted Hezbollah positions in southern Lebanese port city.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israel-says-it-targeted-hezbollah-positions-in-southern-lebanese-port-city
