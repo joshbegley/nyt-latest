@@ -1,3 +1,7 @@
+**Nebraska coach Matt Rhule frustrated by missed calls**\
+`The Big Ten issued a statement acknowledging that its crew missed a key spot late in the first half of the Cornhuskers’ loss at Ohio State.`\
+https://nytimes.com/athletic/5880407/2024/10/28/matt-rhule-big-ten-officials/
+
 **Man Who Made Violent Threats Skirted Arrest and Then Shot a Neighbor**\
 `“We failed this victim 100 percent,” the Minneapolis police chief said after criticism that the shooter, who had active arrest warrants, was not taken into custody sooner.`\
 https://nytimes.com/2024/10/28/us/minneapolis-attempted-murder-arrest.html

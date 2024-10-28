@@ -1,3 +1,7 @@
+**Nebraska coach Matt Rhule frustrated by missed calls**\
+`The Big Ten issued a statement acknowledging that its crew missed a key spot late in the first half of the Cornhuskers’ loss at Ohio State.`\
+https://nytimes.com/athletic/5880407/2024/10/28/matt-rhule-big-ten-officials/
+
 **Man Who Made Violent Threats Skirted Arrest and Then Shot a Neighbor**\
 `“We failed this victim 100 percent,” the Minneapolis police chief said after criticism that the shooter, who had active arrest warrants, was not taken into custody sooner.`\
 https://nytimes.com/2024/10/28/us/minneapolis-attempted-murder-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880008/2024/10/28/usmnt-mckennie-weah-johnny-tillm
 **Harris Campaign Distances Itself From Biden in the Crucial Final Days**\
 `Joint events with an unpopular incumbent would “only hurt” the vice president at this stage of the campaign, as one of her advisers put it. But the president does not want to be sidelined.`\
 https://nytimes.com/2024/10/28/us/politics/harris-biden-campaign.html
-
-**He Was 5 When Border Agents Took Him From His Father. He Hasn’t Forgotten.**\
-`Seven years after a Trump policy ruptured his family and landed him in foster care, José is a star student. But he is still scarred. “I don’t trust anyone.”`\
-https://nytimes.com/2024/10/28/us/migrant-children-border-trump.html
 
