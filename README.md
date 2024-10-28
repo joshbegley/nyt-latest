@@ -1,3 +1,7 @@
+**With Jameis Winston at QB, Browns stun Ravens and show they won't go away quietly**\
+`What Winston orchestrated against Baltimore was totally different than previous versions of Cleveland's offense this season. `\
+https://nytimes.com/athletic/5877767/2024/10/27/browns-win-jameis-winston-ravens/
+
 **After loss to Patriots, it's too dark to see how Aaron Rodgers' Jets can save their season**\
 `Sunday's upset loss in Foxboro was a new low point for the 2024 Jets.`\
 https://nytimes.com/athletic/5877716/2024/10/27/jets-loss-patriots-darkness-aaron-rodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/27/health/mcdonalds-ecoli-quarter-pounders.html
 **Buckley: No longer 'soft,' Patriots show pluck in bouncing back to top Jets**\
 `After losing their rookie quarterback, the Patriots showed resilience in mounting two long fourth-quarter drives to beat the rival Jets.`\
 https://nytimes.com/athletic/5877771/2024/10/27/patriots-jets-jerod-mayo-soft-buckley/
-
-**Bills win third straight with 31-10 victory over Seahawks: Takeaways**\
-`The Bills never trailed and posted a season-high 445 yards of offense against the Seahawks on the way to a third straight win.`\
-https://nytimes.com/athletic/5877354/2024/10/27/bills-seahawks-score-takeaways-results/
 
