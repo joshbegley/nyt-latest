@@ -1,3 +1,19 @@
+**Your questions about The Times’s election coverage: Choosing which reporters cover which candidates**\
+`Our journalists answer questions from readers.`\
+https://nytimes.com/2024/10/28/insider/your-questions-about-the-timess-election-coverage-choosing-which-reporters-cover-which-candidates.html
+
+**Your questions about The Times’s election coverage: ‘Sane-washing’**\
+`Our journalists answer questions from readers.`\
+https://nytimes.com/2024/10/28/insider/trump-speeches-2024-election.html
+
+**Examining the Mets' payroll entering the offseason**\
+`The Mets have more than $180 million coming off the payroll — that's larger than the Opening Day 2024 payrolls for 20 other teams.`\
+https://nytimes.com/athletic/5845900/2024/10/28/mets-offseason-mlb-free-agency/
+
+**Former NHL goalie assesses Flyers' Aleksei Kolosov's debut: 'He showed good promise'**\
+`With the Flyers struggling to find consistency in the crease, the young Belarus native may have done enough for a longer look.`\
+https://nytimes.com/athletic/5878686/2024/10/28/flyers-aleksei-kolosov-debut-biron/
+
 **Dak Prescott has to clean up his turnovers if Cowboys are going to turn season around**\
 `Prescott has thrown multiple interceptions in each of the Cowboys' past three games, including two costly ones against the 49ers.`\
 https://nytimes.com/athletic/5879084/2024/10/28/cowboys-dak-prescott-turnovers-loss-49ers/
@@ -22,20 +38,4 @@ https://nytimes.com/2024/10/28/us/politics/nebraska-texas-senate-races.html
 **What I'm hearing about UNC's expected starters, highly touted freshmen and more**\
 `Here’s where North Carolina — the nation’s No. 9 preseason team — stands on the brink of Hubert Davis’ fourth season as head coach.`\
 https://nytimes.com/athletic/5877528/2024/10/28/north-carolina-basketball-preview/
-
-**Jayden Daniels' Hail Mary throw is latest example that these Commanders won't flinch**\
-`Washington is 6-2 for the first time since 2008 following the victory over Chicago. And with every win, the team's belief continues to grow.`\
-https://nytimes.com/athletic/5878796/2024/10/28/jayden-daniels-hail-mary-commanders-bears/
-
-**State of the Race: National Polls Tighten With 8 Days to Go**\
-`State polls remain steady, and two new polls in Texas and Nebraska show Senate control may still be in play.`\
-https://nytimes.com/2024/10/28/upshot/polls-harris-trump-election.html
-
-**Crazy Is Beginning to Sound Like an Understatement**\
-`Election Day can’t come soon enough.`\
-https://nytimes.com/2024/10/28/opinion/trump-harris-senate-house.html
-
-**Michelle Obama: ‘I Am Asking You, From the Core of My Being, to Take Our Lives Seriously’**\
-`The former first lady shares an emotional appeal about how reproductive rights are on the line in this election.`\
-https://nytimes.com/2024/10/28/opinion/michelle-obama-abortion-trump-election.html
 
