@@ -1,3 +1,11 @@
+**Where to Travel This Winter, Whether You Want Sun or Snow**\
+`Here are five places, from coastal Norway to Marrakesh, with exceptional hotels that still have availability for the holidays.`\
+https://nytimes.com/2024/10/28/t-magazine/winter-holiday-travel-ideas.html
+
+**NFL Week 9 odds, schedule: Jets favored vs. Texans?!**\
+`The Jets are favored over the Texans at home in a Week 9 slate that includes monster divisional matchups. `\
+https://nytimes.com/athletic/5880029/2024/10/28/nfl-week-9-odds-spreads-schedule-jets-packers-lions-bills-dolphins/
+
 **Josh Uche trade grades: Chiefs can't lose with high-upside deal; Patriots enter sell mode**\
 `This trade is nothing but profit for the Chiefs. This feels like a deal that has grand-slam potential. `\
 https://nytimes.com/athletic/5880414/2024/10/28/josh-uche-trade-grades-chiefs-patriots/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/world/middleeast/israel-knesset-gaza-lebanon-war.
 **Man United working on deal to appoint Amorim**\
 `Manchester United are working on a deal to appoint Sporting Lisbon&#8217;s Ruben Amorim as their new head coach.`\
 https://nytimes.com/athletic/5880077/2024/10/28/manchester-united-manager-next-ruben-amorim/
-
-**Gérard Depardieu’s Sexual Assault Trial in France Is Postponed Until March**\
-`The French movie star’s lawyer said poor health kept his client from court on Monday.`\
-https://nytimes.com/2024/10/28/world/europe/gerard-depardieu-sexual-assault-trial.html
-
-**Harris Aides Quietly Grow More Bullish on Defeating Trump**\
-`While still cautious, advisers and allies believe that casting Donald Trump as a fascist is working, and that their expansive ground game and appeals on abortion rights may carry the day.`\
-https://nytimes.com/2024/10/28/us/politics/kamala-harris-donald-trump-2024-election.html
 
