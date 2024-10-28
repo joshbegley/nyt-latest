@@ -1,3 +1,7 @@
+**World Series ticket prices in New York cool with Yankees down 2-0, but demand still strong**\
+`A StubHub spokesperson said the dip wasn't surprising based on how the series between two star-studded markets has unfolded so far.`\
+https://nytimes.com/athletic/5880861/2024/10/28/world-series-ticket-prices-dodgers-yankees/
+
 **Woman Charged With Hate Crime in Pepper-Spraying of Muslim Uber Driver**\
 `Prosecutors said the woman, Jennifer Guilbeault, attacked Shohel Mahmud without provocation after he began to pray in Arabic while stopped at a traffic light. She has pleaded not guilty.`\
 https://nytimes.com/2024/10/28/nyregion/uber-driver-hate-crime-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/briefing/trump-rally-backlash-north-korea-russia-
 **Steve Mariotti, Whose Trauma Led Him to Help Youths at Risk, Dies at 71**\
 `After he was mugged, he took a therapist’s advice to work with “difficult students at a difficult school.” They ignored him until the lessons turned to business.`\
 https://nytimes.com/2024/10/28/nyregion/steve-mariotti-dead.html
-
-**Rodri is a deserved winner of the Ballon D'Or - no matter what Real Madrid might think**\
-`The Manchester City player was outstanding for club and country last season - and should feel great pride at his achievement`\
-https://nytimes.com/athletic/5880679/2024/10/28/rodri-ballon-dor-winner-real-madrid/
 
