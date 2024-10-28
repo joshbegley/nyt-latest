@@ -1,3 +1,15 @@
+**Max Verstappen's Mexico GP penalties hurt. It won't change how he races Lando Norris**\
+`Verstappen has proven that, when a championship is on the line, he'll race harder than ever. `\
+https://nytimes.com/athletic/5877474/2024/10/27/f1-max-verstappen-penalty-lando-norris-mexico-gp/
+
+**'The vibes are very high': Eagles bury the Bengals to end an undefeated October**\
+`The Eagles have put several of their September problems behind them.`\
+https://nytimes.com/athletic/5876775/2024/10/27/eagles-win-bengals-vibes-are-high/
+
+**Jerry Jones' family involved in car accident outside Levi's Stadium ahead of 'SNF'**\
+`The family believes Charlotte could have sustained a rib injury and Jerry Jr. could have sustained a head injury.`\
+https://nytimes.com/athletic/5877995/2024/10/27/jerry-jones-jr-charlotte-jones-vehicle-barricade-accident/
+
 **Ravens defense shows once again it can't be trusted to get stops in loss to Browns**\
 `Baltimore's win streak came to an end after the defense failed to make plays late against the Jameis Winston-led Browns. `\
 https://nytimes.com/athletic/5877738/2024/10/27/ravens-defense-loss-browns/
