@@ -1,3 +1,7 @@
+**October has been a relatively costly month for the Israeli military.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/october-has-been-a-relatively-costly-month-for-the-israeli-military
+
 **Musk Repeatedly Raises the Idea That Harris, or He, Could Be Assassinated**\
 `The billionaire and his PAC have used foreboding language about the vice president in their support of former President Donald Trump.`\
 https://nytimes.com/2024/10/28/us/politics/musk-harris-assassination-attempts.html
