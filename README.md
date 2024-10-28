@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Mike Ives and Isabel Kershner`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
+
+**Live Updates: U.S. and Israeli Spy Chiefs Meet for Gaza Cease-Fire Talks**\
+`The director of the C.I.A. was in Qatar for preliminary talks with Israeli officials aimed at reviving cease-fire negotiations with Hamas.`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon
+
 **More Changes at Real Estate Giant Amid Turmoil**\
 `Scott Durkin, president and chief executive of Douglas Elliman Realty, has left the company, following the sudden retirement of Howard Lorber, the chief executive of the parent company.`\
 https://nytimes.com/2024/10/28/realestate/douglas-elliman-durkin-resigns.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/world/asia/duterte-philippines-drug-war-hearing.h
 **The adventures of Anthony Richardson on a wild day in Houston**\
 `Every play with Richardson feels like a roll of the dice, but the Colts appear committed to riding out the turbulence.`\
 https://nytimes.com/athletic/5879050/2024/10/28/anthony-richardson-colts-texans-pick-six/
-
-**Tua Tagovailoa reinvigorated the Dolphins' offense. Here's what we can take from his return**\
-`After a strong return, Tagovailoa comes out looking better than the Dolphins' roster construction and offensive coaching.`\
-https://nytimes.com/athletic/5879038/2024/10/28/tua-tagovailoa-return-dolphins-mike-mcdaniel/
-
-**Chiefs are 7-0 but not quite perfect. Here’s how to unleash vintage Mahomes: Sando’s Pick Six**\
-`The Chiefs have won 13 straight but hardly look like a juggernaut. Could a lesson from Dan Marino help Patrick Mahomes find his groove?`\
-https://nytimes.com/athletic/5873776/2024/10/28/patrick-mahomes-chiefs-andy-reid-pick-six/
 
