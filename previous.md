@@ -1,3 +1,7 @@
+**Tommy Robinson, an Anti-immigrant Agitator in Britain, Gets Jail Sentence**\
+`Mr. Robinson, the founder of the English Defence League, was sentenced to 18 months for ignoring a court order to stop making false claims about a teenage Syrian refugee.`\
+https://nytimes.com/2024/10/28/world/europe/tommy-robinson-sentenced-uk-far-right.html
+
 **Kylian Mbappe's arrival has unbalanced Real Madrid. Barcelona took full advantage**\
 `If Mbappe and Vinicius Jr had shown more defensive diligence, they may well have been more effective going forwards too`\
 https://nytimes.com/athletic/5877376/2024/10/28/mbappe-clasico-real-madrid-barcelona-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879285/2024/10/28/pelicans-dejounte-murray-trey-mu
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election/heres-the-latest-on-the-2024-race
-
-**Election Live Updates: After Trump’s Racist Rally, Campaigns Plan Furious Week of Events**\
-`Former President Donald J. Trump’s MAGA rally at Madison Square Garden featured dark grievances and racism. Vice President Kamala Harris is shaping a closing message focused on the stakes of a second Trump term.`\
-https://nytimes.com/live/2024/10/28/us/harris-trump-election
 

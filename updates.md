@@ -1,3 +1,7 @@
+**Tommy Robinson, an Anti-immigrant Agitator in Britain, Gets Jail Sentence**\
+`Mr. Robinson, the founder of the English Defence League, was sentenced to 18 months for ignoring a court order to stop making false claims about a teenage Syrian refugee.`\
+https://nytimes.com/2024/10/28/world/europe/tommy-robinson-sentenced-uk-far-right.html
+
 **Kylian Mbappe's arrival has unbalanced Real Madrid. Barcelona took full advantage**\
 `If Mbappe and Vinicius Jr had shown more defensive diligence, they may well have been more effective going forwards too`\
 https://nytimes.com/athletic/5877376/2024/10/28/mbappe-clasico-real-madrid-barcelona-analysis/
