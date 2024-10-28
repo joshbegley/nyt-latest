@@ -1,3 +1,7 @@
+**NASCAR Homestead takeaways: On the impacts of an instant classic playoff race**\
+`We once again beat the drum for Homestead to host the championship race. Plus, more thoughts on Sunday's thriller in Florida.`\
+https://nytimes.com/athletic/5878068/2024/10/28/nascar-homestead-takeaways-on-the-impacts-of-an-instant-classic-playoff-race/
+
 **Israeli forces withdraw from a major hospital in northern Gaza.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israeli-forces-withdraw-from-a-major-hospital-in-northern-gaza

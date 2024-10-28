@@ -1,3 +1,7 @@
+**NASCAR Homestead takeaways: On the impacts of an instant classic playoff race**\
+`We once again beat the drum for Homestead to host the championship race. Plus, more thoughts on Sunday's thriller in Florida.`\
+https://nytimes.com/athletic/5878068/2024/10/28/nascar-homestead-takeaways-on-the-impacts-of-an-instant-classic-playoff-race/
+
 **Israeli forces withdraw from a major hospital in northern Gaza.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israeli-forces-withdraw-from-a-major-hospital-in-northern-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875969/2024/10/28/heat-today-dwyane-wade-statue/
 **Corporate America Hedges on Trump 2.0**\
 `The race for the White House is deadlocked, but business leaders aren’t taking chances, reaching out to the former president to rebuild relations.`\
 https://nytimes.com/2024/10/28/business/dealbook/ceos-trump-win.html
-
-**FPL: What we learnt from Gameweek 9 - Saka surprise and Haaland underwhelms?**\
-`Abdul Rehman breaks down the main talking points from Gameweek 9 in Fantasy Premier League`\
-https://nytimes.com/athletic/5877411/2024/10/28/fantasy-premier-league-what-we-learned-from-gameweek-9-saka-surprise-and-haaland-disappointment/
 
