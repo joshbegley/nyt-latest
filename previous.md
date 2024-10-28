@@ -1,3 +1,11 @@
+**‘Lady Blogs’ Would Have Had a Field Day With This Election**\
+`The robust feminist blogosphere of 2016 is all but gone. Some of the creators are missing its perspective.`\
+https://nytimes.com/2024/10/28/style/feminist-media-election.html
+
+**The 10 charts that explain Manchester United's struggles under Erik ten Hag**\
+`What went wrong for the Dutchman at Old Trafford, according to the data`\
+https://nytimes.com/athletic/5830756/2024/10/28/10-charts-that-explain-manchester-united-under-ten-hag/
+
 **Volkswagen Could Close 3 Plants in Germany to Cut Costs**\
 `The auto maker’s top employee representative told workers that management planned to shutter factories for the first time in the company’s 87-year history.`\
 https://nytimes.com/2024/10/28/world/europe/volkswagen-plant-closures-germany.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5880021/2024/10/28/jake-mccabe-extension-maple-leaf
 **Penn State QB Drew Allar could be game-time decision vs. Ohio State, James Franklin says**\
 `Allar did not play in the second half against Wisconsin after suffering an apparent knee injury on a sack.`\
 https://nytimes.com/athletic/5879921/2024/10/28/quarterback-drew-allar-availbility-penn-state-ohio-state/
-
-**Why a Key Biden Effort to Boost Affordable Housing Has Faced Hurdles**\
-`The Biden administration rolled out a plan last year to create more housing by unlocking more than $35 billion in lending capacity. It has yet to close on any loans that would support housing-related projects.`\
-https://nytimes.com/2024/10/28/us/politics/biden-affordable-housing-programs.html
-
-**Bloomberg, After Months of Pressure, Donates $50 Million to Help Harris**\
-`The former mayor of New York City is known for making political donations late in the campaign season. Democrats had been lobbying him to spend more.`\
-https://nytimes.com/2024/10/28/us/elections/michael-bloomberg-presidential-race-donations.html
 
