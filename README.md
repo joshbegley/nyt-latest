@@ -1,3 +1,7 @@
+**Ask me anything: Leave a question for James Mirtle’s next article**\
+`We&#8217;re approaching the one-month mark of the season in the NHL, and there&#8217;s a lot of interesting trends taking place around the league right now.`\
+https://nytimes.com/athletic/5880919/2024/10/28/ask-me-anything-leave-a-question-for-james-mirtles-next-article/
+
 **Paying Their Respects at the House of the Dead**\
 `Fans streamed into the Haight-Ashbury neighborhood of San Francisco this weekend to mourn the Grateful Dead bassist Phil Lesh.`\
 https://nytimes.com/card/2024/10/28/arts/phil-lesh-fans
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5880507/2024/10/28/max-verstappen-mexico-grand-prix
 `Curry limped to the locker room and exited for the night after twisting his left ankle.`\
 https://nytimes.com/athletic/5878623/2024/10/28/steph-curry-ankle-injury-update/
 
-**After Rally Backlash, the Trump Team Combats ‘Racist’ and ‘Fascist’ Attacks**\
+**Trump Team Fears Damage From Racist Rally Remarks**\
 `The Trump campaign issued a rare statement distancing itself from a comedian’s offensive joke about Puerto Rico at his rally on Sunday, a sign that it was concerned about losing crucial votes.`\
 https://nytimes.com/2024/10/28/us/politics/trump-msg-rally-backlash.html
 
 **Heisman Trophy odds: Dillon Gabriel surges past Ashton Jeanty as favorite**\
 `Dillon Gabriel has emerged as the favorite to win the Heisman Trophy, taking the top spot from Ashton Jeanty.`\
 https://nytimes.com/athletic/5880663/2024/10/28/heisman-trophy-odds-dillon-gabriel-ashton-jeanty/
-
-**Trump Hints at ‘Little Secret’ With House Republicans, Setting Off a Panic**\
-`The former president seemed to delight in fueling speculation about what he is cooking up with House Republicans, prompting Democrats to worry about election fraud. Speaker Mike Johnson refused to explain.`\
-https://nytimes.com/2024/10/28/us/politics/trump-secret-house-republicans-panic.html
 
