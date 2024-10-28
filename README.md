@@ -1,3 +1,11 @@
+**Warriors' Curry sprains ankle, to miss at least 2 games**\
+`Curry limped to the locker room and exited for the night after twisting his left ankle.`\
+https://nytimes.com/athletic/5878623/2024/10/28/steph-curry-ankle-injury-update/
+
+**After Rally Backlash, the Trump Team Combats ‘Racist’ and ‘Fascist’ Attacks**\
+`The Trump campaign issued a rare statement distancing itself from a comedian’s offensive joke about Puerto Rico at his rally on Sunday, a sign that it was concerned about losing crucial votes.`\
+https://nytimes.com/2024/10/28/us/politics/trump-msg-rally-backlash.html
+
 **Heisman Trophy odds: Dillon Gabriel surges past Ashton Jeanty as favorite**\
 `Dillon Gabriel has emerged as the favorite to win the Heisman Trophy, taking the top spot from Ashton Jeanty.`\
 https://nytimes.com/athletic/5880663/2024/10/28/heisman-trophy-odds-dillon-gabriel-ashton-jeanty/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/22/opinion/thepoint/trump-rally-madison-square-
 **Philadelphia District Attorney Sues Musk Over $1 Million Voter Giveaways**\
 `Larry Krasner, the top prosecutor in Philadelphia, sued Elon Musk and his Trump-supporting super PAC, saying the giveaways amounted to an “unlawful lottery.”`\
 https://nytimes.com/2024/10/28/us/politics/elon-musk-giveaway-philadelphia-lawsuit.html
-
-**British Labour Lawmaker Suspended After Punches Thrown**\
-`Video that emerged over the weekend appeared to show Mike Amesbury, a Labour party lawmaker, hitting a man in the face and then repeatedly landing more body blows.`\
-https://nytimes.com/2024/10/28/world/europe/british-labour-lawmaker-punch-video.html
-
-**Harris Ties Trump to the Fatal Fallout of Abortion Bans**\
-`An ad from the Harris campaign highlights the death of Amber Nicole Thurman, a Georgia woman whose delay in medical care was reportedly tied to the state’s post-Roe abortion restrictions.`\
-https://nytimes.com/2024/10/28/us/politics/harris-ad-amber-nicole-thurman.html
 

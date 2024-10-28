@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Dillon Gabriel surges past Ashton Jeanty as favorite**\
+`Dillon Gabriel has emerged as the favorite to win the Heisman Trophy, taking the top spot from Ashton Jeanty.`\
+https://nytimes.com/athletic/5880663/2024/10/28/heisman-trophy-odds-dillon-gabriel-ashton-jeanty/
+
 **Hundreds of Ballots Destroyed After Drop Boxes Set on Fire**\
 `Federal authorities were investigating two fires that were lit in ballot drop boxes in the Pacific Northwest early Monday.`\
 https://nytimes.com/video/us/elections/100000009788069/ballot-box-fires-oregon-washington.html
