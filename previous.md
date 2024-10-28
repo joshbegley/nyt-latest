@@ -1,3 +1,11 @@
+**Jaguars WR Christian Kirk out for season with broken collarbone**\
+`The seventh-year receiver will finish his 2024 campaign with 25 receptions for 320 yards and a touchdown.`\
+https://nytimes.com/athletic/5878228/2024/10/27/christian-kirk-jaguars-collarbone-injury/
+
+**Jones: Tua Tagovailoa's return to play prompts conflicting feelings, but QB knows what he wants**\
+`Tagovailoa was determined and defiant in his return from a Week 2 concussion, and he was bothered by a Dolphins loss to the Cardinals. `\
+https://nytimes.com/athletic/5877754/2024/10/27/tua-tagovailoa-dolphins-return-concussion/
+
 **With Jameis Winston at QB, Browns stun Ravens and show they won't go away quietly**\
 `What Winston orchestrated against Baltimore was totally different than previous versions of Cleveland's offense this season. `\
 https://nytimes.com/athletic/5877767/2024/10/27/browns-win-jameis-winston-ravens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5877995/2024/10/27/jerry-jones-jr-charlotte-jones-v
 **Ravens defense shows once again it can't be trusted to get stops in loss to Browns**\
 `Baltimore's win streak came to an end after the defense failed to make plays late against the Jameis Winston-led Browns. `\
 https://nytimes.com/athletic/5877738/2024/10/27/ravens-defense-loss-browns/
-
-**McDonald’s Says Tests Rule Out Beef Patties as Source of E. Coli Outbreak**\
-`The company said it would put Quarter Pounders back on the menu, without the raw onions that were considered the likely source of the bacteria.`\
-https://nytimes.com/2024/10/27/health/mcdonalds-ecoli-quarter-pounders.html
-
-**Buckley: No longer 'soft,' Patriots show pluck in bouncing back to top Jets**\
-`After losing their rookie quarterback, the Patriots showed resilience in mounting two long fourth-quarter drives to beat the rival Jets.`\
-https://nytimes.com/athletic/5877771/2024/10/27/patriots-jets-jerod-mayo-soft-buckley/
 

@@ -1,3 +1,11 @@
+**Jaguars WR Christian Kirk out for season with broken collarbone**\
+`The seventh-year receiver will finish his 2024 campaign with 25 receptions for 320 yards and a touchdown.`\
+https://nytimes.com/athletic/5878228/2024/10/27/christian-kirk-jaguars-collarbone-injury/
+
+**Jones: Tua Tagovailoa's return to play prompts conflicting feelings, but QB knows what he wants**\
+`Tagovailoa was determined and defiant in his return from a Week 2 concussion, and he was bothered by a Dolphins loss to the Cardinals. `\
+https://nytimes.com/athletic/5877754/2024/10/27/tua-tagovailoa-dolphins-return-concussion/
+
 **With Jameis Winston at QB, Browns stun Ravens and show they won't go away quietly**\
 `What Winston orchestrated against Baltimore was totally different than previous versions of Cleveland's offense this season. `\
 https://nytimes.com/athletic/5877767/2024/10/27/browns-win-jameis-winston-ravens/
