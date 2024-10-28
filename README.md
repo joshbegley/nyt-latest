@@ -10,7 +10,7 @@ https://nytimes.com/video/us/elections/100000009788515/biden-vote-harris.html
 `Also, North Korean troops were deployed to help Russian forces. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/10/28/briefing/trump-rally-backlash-north-korea-russia-ukraine.html
 
-**Steve Mariotti, Whose Trauma Led Him to Help at-Risk Youths, Dies at 71**\
+**Steve Mariotti, Whose Trauma Led Him to Help Youths at Risk, Dies at 71**\
 `After he was mugged, he took a therapist’s advice to work with “difficult students at a difficult school.” They ignored him until the lessons turned to business.`\
 https://nytimes.com/2024/10/28/nyregion/steve-mariotti-dead.html
 
