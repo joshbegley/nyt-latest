@@ -1,3 +1,7 @@
+**Greenberg: Washington's Hail Mary curses Bears to the agony of an unbelievable road loss**\
+`Some may shrug off the result as luck or a coin-flip play, but the details matter. Especially for a team trying to redefine itself.`\
+https://nytimes.com/athletic/5878302/2024/10/27/bears-commanders-hail-mary-tyrique-stevenson/
+
 **Bryce Young has uninspiring day, Panthers still searching for QB answers after lopsided loss**\
 `After scoring a TD on their first possession Sunday, the Panthers went nine consecutive series without scoring against the Broncos.`\
 https://nytimes.com/athletic/5878479/2024/10/27/panthers-bryce-young-quarterback-decision-broncos/
