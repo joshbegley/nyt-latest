@@ -1,3 +1,7 @@
+**Jerry Jones' family involved in car accident outside Levi's Stadium ahead of 'SNF'**\
+`The family believes Charlotte could have sustained a rib injury and Jerry Jr. could have sustained a head injury.`\
+https://nytimes.com/athletic/5877995/2024/10/27/jerry-jones-jr-charlotte-jones-vehicle-barricade-accident/
+
 **Ravens defense shows once again it can't be trusted to get stops in loss to Browns**\
 `Baltimore's win streak came to an end after the defense failed to make plays late against the Jameis Winston-led Browns. `\
 https://nytimes.com/athletic/5877738/2024/10/27/ravens-defense-loss-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5877742/2024/10/27/packers-winning-play-malik-willi
 **Mahomes, Chiefs' D lead the way in 27-20 win over Raiders: Takeaways**\
 `Kansas City's defense won the day with four sacks, a fourth-quarter fumble recovery and a clutch goal-line stand.`\
 https://nytimes.com/athletic/5877456/2024/10/27/chiefs-raiders-score-takeaways-results/
-
-**Emma Sears shines in USWNT debut, recording a goal and an assist**\
-`Head coach Emma Hayes continues to expand the USWNT's player selection `\
-https://nytimes.com/athletic/5877747/2024/10/27/uswnt-iceland-emma-sears-goal-assist/
 
