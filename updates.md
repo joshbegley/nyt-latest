@@ -1,3 +1,15 @@
+**Silva shares Fulham sadness over claims of 'unacceptable' police handling of sexual assault allegations at club**\
+`"The news is really sad for us as a club. For all of us as human beings, the news is really sad," the Fulham manager said`\
+https://nytimes.com/athletic/5875774/2024/10/28/silva-fulham-sexual-assault-claims/
+
+**Inter 4 Juventus 4 — a gloriously imperfect game of football**\
+`Eight goals, mistakes galore, galloping wingers and fans off their seats. This was the best advert for Serie A all season`\
+https://nytimes.com/athletic/5876899/2024/10/28/inter-juventus-serie-a-yildiz-inzaghi/
+
+**Thomas Frank, Kieran McKenna and managers 'missing the boat' for a bigger job**\
+`Perhaps we obsess over upward trajectories and onward moves. And perhaps happiness and being out of the national spotlight is underrated too`\
+https://nytimes.com/athletic/5874243/2024/10/28/thomas-frank-kieran-mckenna-manager-jobs/
+
 **What’s on TV This Week: ‘Grotesquerie’ and Halloween Movies**\
 `FX airs the finale of Ryan Murphy’s latest show. And various channels celebrate the spooky frights and delights of the holiday.`\
 https://nytimes.com/2024/10/28/arts/television/whats-on-tv-this-week-grotesquerie-and-halloween.html

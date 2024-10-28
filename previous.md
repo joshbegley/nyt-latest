@@ -1,3 +1,15 @@
+**Silva shares Fulham sadness over claims of 'unacceptable' police handling of sexual assault allegations at club**\
+`"The news is really sad for us as a club. For all of us as human beings, the news is really sad," the Fulham manager said`\
+https://nytimes.com/athletic/5875774/2024/10/28/silva-fulham-sexual-assault-claims/
+
+**Inter 4 Juventus 4 — a gloriously imperfect game of football**\
+`Eight goals, mistakes galore, galloping wingers and fans off their seats. This was the best advert for Serie A all season`\
+https://nytimes.com/athletic/5876899/2024/10/28/inter-juventus-serie-a-yildiz-inzaghi/
+
+**Thomas Frank, Kieran McKenna and managers 'missing the boat' for a bigger job**\
+`Perhaps we obsess over upward trajectories and onward moves. And perhaps happiness and being out of the national spotlight is underrated too`\
+https://nytimes.com/athletic/5874243/2024/10/28/thomas-frank-kieran-mckenna-manager-jobs/
+
 **What’s on TV This Week: ‘Grotesquerie’ and Halloween Movies**\
 `FX airs the finale of Ryan Murphy’s latest show. And various channels celebrate the spooky frights and delights of the holiday.`\
 https://nytimes.com/2024/10/28/arts/television/whats-on-tv-this-week-grotesquerie-and-halloween.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/28/world/asia/vietnam-south-china-sea.html
 **Britain Braces for ‘Painful’ Budget Meant to Recharge the Economy**\
 `The new Labour Party government said it had inherited a challenging financial position and warned of tax increases and spending cuts when it reveals its budget this week.`\
 https://nytimes.com/2024/10/28/business/britain-budget-taxes.html
-
-**In England’s Most Haunted Village, Halloween Means Screams and Skeptics**\
-`Pluckley is said to count at least 12 spirits among its 1,000 residents. Come October, ghost hunters arrive in droves to a place where even nonbelievers concede they’ve had eerie encounters.`\
-https://nytimes.com/2024/10/28/world/europe/pluckley-england-haunted-ghosts-halloween.html
-
-**Quote of the Day: There’s Much More To A Midmajor Star Than Meets the Eyes**\
-`Quotation of the Day for Monday, October 28, 2024.`\
-https://nytimes.com/2024/10/27/pageoneplus/quote-of-the-day-theres-much-more-to-a-midmajor-star-than-meets-the-eyes.html
-
-**Hail Mary puts spotlight on Bears' miscues, a team that's not ready for prime time**\
-`The Bears did not put together a performance worthy of much praise even if they won. The Hail Mary just made everything seem even worse. `\
-https://nytimes.com/athletic/5878454/2024/10/27/bears-hail-mary-commanders-mistakes/
 
