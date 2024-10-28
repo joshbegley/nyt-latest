@@ -1,3 +1,23 @@
+**Keeping Ten Hag was Sir Jim Ratcliffe and INEOS' first big mistake - they cannot afford another**\
+`Erik ten Hag got the heat for Manchester United's poor form but Ratcliffe and INEOS must also take their share of the blame`\
+https://nytimes.com/athletic/5854794/2024/10/28/ineos-manchester-united-ten-hag-sack-mistake/
+
+**Penguins Today: Fleury's return, Adam Johnson anniversary**\
+`Here's everything to know about the Penguins to start your week.`\
+https://nytimes.com/athletic/5879649/2024/10/28/penguins-today-marc-andre-fleury/
+
+**Ukraine Braces for Russians to Assault With North Korean Troops**\
+`Several thousand North Korean soldiers have arrived in Russia’s western Kursk region, where they are expected to support Moscow’s efforts to dislodge invading Ukrainian forces.`\
+https://nytimes.com/2024/10/28/world/europe/ukraine-braces-for-russians-to-assault-with-north-korean-troops.html
+
+**Tom Kim broke his locker door after losing playoff in Korea**\
+`Kim said he'll pay for the damages but reportedly could face disciplinary action from the KPGA Tour.`\
+https://nytimes.com/athletic/5879655/2024/10/28/tom-kim-locker-room-door-korea-golf/
+
+**Fantasy football Week 8 recap: Time to drop Dak Prescott?**\
+`The Cowboys quarterback needs to improve his downfield passing or it could be time to cut him loose.`\
+https://nytimes.com/athletic/5879553/2024/10/28/fantasy-football-week-8-recap-dak-prescott/
+
 **Ohio State film study: What worked and what didn't against Nebraska**\
 `Ohio State didn't instill confidence with its win on Saturday against Nebraska, but it did get the job done.`\
 https://nytimes.com/athletic/5879614/2024/10/28/ohio-state-football-nebraska-analysis-ryan-day/
