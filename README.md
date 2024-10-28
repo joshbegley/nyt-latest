@@ -1,3 +1,7 @@
+**‘Dahomey’ Celebrated Looted Art’s Return. What Happened Next?**\
+`Since the documentary’s cameras stopped rolling, plans for a new museum to showcase the treasures have stalled, and the artifacts are once again off limits to the public in Benin.`\
+https://nytimes.com/2024/10/28/arts/design/dahomey-benin-museum.html
+
 **Waymo Raises $5.6 Billion From Outside Investors**\
 `Alphabet’s driverless car unit now has vehicles operating in San Francisco, Phoenix and Los Angeles.`\
 https://nytimes.com/2024/10/28/business/waymo-investment-robot-taxis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880414/2024/10/28/josh-uche-trade-grades-chiefs-pa
 **An increasing share of voters say Trump has been exercising his right to contest the 2020 election.**\
 `By Ruth Igielnik`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election/an-increasing-share-of-voters-say-trump-was-exercising-his-right-to-contest-the-2020-election
-
-**Nebraska coach Matt Rhule frustrated by missed calls**\
-`The Big Ten issued a statement acknowledging that its crew missed a key spot late in the first half of the Cornhuskers’ loss at Ohio State.`\
-https://nytimes.com/athletic/5880407/2024/10/28/matt-rhule-big-ten-officials/
 
