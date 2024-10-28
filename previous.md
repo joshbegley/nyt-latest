@@ -1,3 +1,11 @@
+**Broncos' Sean Payton rankles Panthers with fourth-quarter play calls**\
+`The Panthers' Sam Franklin: “There’s five minutes left. You guys doing trick plays ... Basically just trying to embarrass us."`\
+https://nytimes.com/athletic/5879629/2024/10/28/sean-payton-broncos-panthers-play-calls/
+
+**'We don't have an identity': Giannis and the Bucks seek answers after loss to Nets**\
+`Turnovers, allowing second-chance points and miscues on defense sank the Bucks against the Nets. "We gotta get better," Antetokounmpo said.`\
+https://nytimes.com/athletic/5879045/2024/10/28/giannis-antetokounmpo-bucks-losing/
+
 **NASCAR Homestead takeaways: On the impacts of an instant classic playoff race**\
 `We once again beat the drum for Homestead to host the championship race. Plus, more thoughts on Sunday's thriller in Florida.`\
 https://nytimes.com/athletic/5878068/2024/10/28/nascar-homestead-takeaways-on-the-impacts-of-an-instant-classic-playoff-race/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5843444/2024/10/28/freddie-freeman-grand-slam-tom-b
 **Canucks notebook: Elias Pettersson's breakthrough and how the new wingers have fit**\
 `Unpacking an impressive Canucks performance and some of the key subplots, including Pettersson's first goal of the season.`\
 https://nytimes.com/athletic/5879018/2024/10/28/canucks-elias-pettersson-penguins-debrusk-sprong/
-
-**Heat Today: Reaction to Dwyane Wade's statue highlights busy weekend**\
-`Wade's newly unveiled Heat statue gave everyone plenty to talk about. `\
-https://nytimes.com/athletic/5875969/2024/10/28/heat-today-dwyane-wade-statue/
-
-**Corporate America Hedges on Trump 2.0**\
-`The race for the White House is deadlocked, but business leaders aren’t taking chances, reaching out to the former president to rebuild relations.`\
-https://nytimes.com/2024/10/28/business/dealbook/ceos-trump-win.html
 

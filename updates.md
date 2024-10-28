@@ -1,3 +1,11 @@
+**Broncos' Sean Payton rankles Panthers with fourth-quarter play calls**\
+`The Panthers' Sam Franklin: “There’s five minutes left. You guys doing trick plays ... Basically just trying to embarrass us."`\
+https://nytimes.com/athletic/5879629/2024/10/28/sean-payton-broncos-panthers-play-calls/
+
+**'We don't have an identity': Giannis and the Bucks seek answers after loss to Nets**\
+`Turnovers, allowing second-chance points and miscues on defense sank the Bucks against the Nets. "We gotta get better," Antetokounmpo said.`\
+https://nytimes.com/athletic/5879045/2024/10/28/giannis-antetokounmpo-bucks-losing/
+
 **NASCAR Homestead takeaways: On the impacts of an instant classic playoff race**\
 `We once again beat the drum for Homestead to host the championship race. Plus, more thoughts on Sunday's thriller in Florida.`\
 https://nytimes.com/athletic/5878068/2024/10/28/nascar-homestead-takeaways-on-the-impacts-of-an-instant-classic-playoff-race/
