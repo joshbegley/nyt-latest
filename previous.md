@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5879285/2024/10/28/pelicans-dejounte-murray-trey-mu
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election/heres-the-latest-on-the-2024-race
 
-**Election Live Updates: After Trump’s Caustic Rally, Campaigns Plan Furious Week of Events**\
+**Election Live Updates: After Trump’s Racist Rally, Campaigns Plan Furious Week of Events**\
 `Former President Donald J. Trump’s MAGA rally at Madison Square Garden featured dark grievances and racism. Vice President Kamala Harris is shaping a closing message focused on the stakes of a second Trump term.`\
 https://nytimes.com/live/2024/10/28/us/harris-trump-election
 

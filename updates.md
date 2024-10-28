@@ -1,3 +1,7 @@
+**Election Live Updates: After Trump’s Racist Rally, Campaigns Plan Furious Week of Events**\
+`Former President Donald J. Trump’s MAGA rally at Madison Square Garden featured dark grievances and racism. Vice President Kamala Harris is shaping a closing message focused on the stakes of a second Trump term.`\
+https://nytimes.com/live/2024/10/28/us/harris-trump-election
+
 **Lifeless loss to Blazers shows that Pelicans have a lot of work to do**\
 `Three games into the season, New Orleans has yet to deliver on promises of positive change.`\
 https://nytimes.com/athletic/5879285/2024/10/28/pelicans-dejounte-murray-trey-murphy/
