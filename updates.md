@@ -1,3 +1,7 @@
+**Rodri, Bonmati named Ballon d'Or winners**\
+`Manchester City midfielder Rodri and Barcelona&#8217;s Aitana Bonmati have won the 2024 Ballon d&#8217;Or awards to complete a men&#8217;s and women&#8217;s double for Spain.`\
+https://nytimes.com/athletic/5872822/2024/10/28/2024-ballon-dor-winners/
+
 **October has been a relatively costly month for the Israeli military.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/october-has-been-a-relatively-costly-month-for-the-israeli-military
