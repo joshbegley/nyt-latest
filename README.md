@@ -23,7 +23,7 @@ https://nytimes.com/2024/10/27/obituaries/dj-clark-kent-dead.html
 https://nytimes.com/athletic/5877742/2024/10/27/packers-winning-play-malik-willis-jayden-reed/
 
 **Mahomes, Chiefs' D lead the way in 27-20 win over Raiders: Takeaways**\
-`Kansas City's defense won the day with four sacks, a fourth-quarter fumble recovery and a clutch goal line stand.`\
+`Kansas City's defense won the day with four sacks, a fourth-quarter fumble recovery and a clutch goal-line stand.`\
 https://nytimes.com/athletic/5877456/2024/10/27/chiefs-raiders-score-takeaways-results/
 
 **Emma Sears shines in USWNT debut, recording a goal and an assist**\
