@@ -1,3 +1,11 @@
+**Kylian Mbappe's arrival has unbalanced Real Madrid. Barcelona took full advantage**\
+`If Mbappe and Vinicius Jr had shown more defensive diligence, they may well have been more effective going forwards too`\
+https://nytimes.com/athletic/5877376/2024/10/28/mbappe-clasico-real-madrid-barcelona-analysis/
+
+**Arsenal had the right plan to stop Salah but transitional moments cost them**\
+`Mohamed Salah continued his impressive record of scoring against Arsenal, who had a clear plan and almost managed to stop him`\
+https://nytimes.com/athletic/5879023/2024/10/28/arsenal-mohamed-salah-liverpool/
+
 **The other Freddie Freeman grand slam calls: Media Circus**\
 `You've heard Joe Davis' call. Here's a few more worth a shoutout. Plus, notes on Tom Brady loosening up, a cool NFL victory POV and more.`\
 https://nytimes.com/athletic/5843444/2024/10/28/freddie-freeman-grand-slam-tom-brady-media-circus/
