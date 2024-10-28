@@ -1,3 +1,7 @@
+**The Washington Commanders had a Hail Mary win that could herald the electoral outcome.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/10/28/us/harris-trump-election/the-washington-commanders-had-a-hail-mary-win-that-could-herald-the-electoral-outcome
+
 **Is Pay Beating Inflation? It’s Complicated.**\
 `On average, wages have risen faster than prices in recent years. But not all Americans are getting ahead.`\
 https://nytimes.com/2024/10/28/business/economy/inflation-wages-pay-salaries.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/movies/paul-morrissey-dead.html
 **A tactical guide to Ruud van Nistelrooy: the football manager**\
 `The former United striker is now in charge of the club on a temporary basis - but how will he set the team up?`\
 https://nytimes.com/athletic/5842023/2024/10/28/van-nistelrooy-tactical-guide-manchester-united/
-
-**Boeing Will Sell $19 Billion in Stock as Strike Weighs on Finances**\
-`The aerospace company, locked in a standoff with striking workers, is seeking to shore up its balance sheet and avoid a credit rating downgrade.`\
-https://nytimes.com/2024/10/28/business/boeing-stock-sale-strike.html
 
