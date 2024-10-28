@@ -1,3 +1,11 @@
+**After Broncos rout Panthers, Sean Payton demands more: 'We're going to see better teams"**\
+`The Broncos have their best start since 2016, but Payton stresses they must raise the internal standard as the schedule intensifies.`\
+https://nytimes.com/athletic/5878167/2024/10/27/broncos-win-panthers-sean-payton-demand-more/
+
+**Max Verstappen's Mexico GP penalties hurt. It won't change how he races Lando Norris**\
+`Verstappen has proved that when a championship is on the line, he'll race harder than ever. `\
+https://nytimes.com/athletic/5877474/2024/10/27/f1-max-verstappen-penalty-lando-norris-mexico-gp/
+
 **With 'haymakers from all areas,' the Lions continue to show they're tough to beat**\
 `The defense and special teams stepped up for the Lions.`\
 https://nytimes.com/athletic/5877500/2024/10/27/lions-win-kalif-raymond-titans-haymakers/
