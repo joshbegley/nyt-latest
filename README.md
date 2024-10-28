@@ -1,3 +1,11 @@
+**The other Freddie Freeman grand slam calls: Media Circus**\
+`You've heard Joe Davis' call. Here's a few more worth a shoutout. Plus, notes on Tom Brady loosening up, a cool NFL victory POV and more.`\
+https://nytimes.com/athletic/5843444/2024/10/28/freddie-freeman-grand-slam-tom-brady-media-circus/
+
+**Canucks notebook: Elias Pettersson's breakthrough and how the new wingers have fit**\
+`Unpacking an impressive Canucks performance and some of the key subplots, including Pettersson's first goal of the season.`\
+https://nytimes.com/athletic/5879018/2024/10/28/canucks-elias-pettersson-penguins-debrusk-sprong/
+
 **Heat Today: Reaction to Dwyane Wade's statue highlights busy weekend**\
 `Wade's newly unveiled Heat statue gave everyone plenty to talk about. `\
 https://nytimes.com/athletic/5875969/2024/10/28/heat-today-dwyane-wade-statue/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/gas-station-ads-trump.html
 **Raiders' Gardner Minshew did enough against Chiefs to remain the starting QB ... for now**\
 `The Raiders started strong and took at 10-7 lead against the Chiefs. And then tight end Brock Bowers didn't touch the ball for two quarters.`\
 https://nytimes.com/athletic/5878374/2024/10/28/gardner-minshew-brock-bowers-raiders-loss-chiefs/
-
-**Blues mailbag, part 1: Broberg's start, Buchnevich at center and Perunovich's future**\
-`The Blues are playing a lot of catch-up hockey this season, which is just one concern of the fan base.`\
-https://nytimes.com/athletic/5874696/2024/10/28/blues-broberg-buchnevich-perunovich/
-
-**Ten Hag was overwhelmed at Manchester United - a job that looks increasingly impossible**\
-`Yes, the Dutchman won two trophies in his two seasons but he failed to build a team with a coherent plan and has paid a familiar price `\
-https://nytimes.com/athletic/5469468/2024/10/28/manchester-united-erik-ten-hag-sack/
 
