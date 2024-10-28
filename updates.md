@@ -1,3 +1,7 @@
+**Julius Randle's warm welcome from Timberwolves fans, lineup tinkering and more**\
+`Here are some early impressions from the new-look Timberwolves.`\
+https://nytimes.com/athletic/5874964/2024/10/28/early-impressions-timberwolves/
+
 **Hollinger's Week That Was: Thoughts on foul rates, contract incentives and Suns' Ryan Dunn**\
 `It's early, but so far, dull marches to the free-throw line have marred games.`\
 https://nytimes.com/athletic/5877937/2024/10/28/nba-foul-rate-ryan-dunn-phoenix-suns/
