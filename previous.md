@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5875704/2024/10/28/wolves-brighton-cunha-oneil-bott
 `The visitors ensured Villa stayed within reach in a slug of a contest. They capitalised with the last play of the match to secure a point`\
 https://nytimes.com/athletic/5874550/2024/10/28/aston-villa-bournemouth-mental-fatigue-emery/
 
+**Darwin Nunez and the power of perseverance**\
+`Nunez only had five touches inside Arsenal's penalty area but one of them was the crucial assist for Salah`\
+https://nytimes.com/athletic/5878120/2024/10/28/darwin-nunez-liverpool-arsenal-salah-goal/
+
 **Lopetegui's triple change turned the tide against United. Could it prove a turning point in West Ham’s season?**\
 `West Ham markedly improved offensively after the break, playing with an energy, confidence and flair that had been lacking
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5873254/2024/10/28/maxence-lacroix-how-the-defender
 **Reece James: Captain, leader, left-back**\
 `The defender may not yet be the most polished captain but he is a popular one at Stamford Bridge`\
 https://nytimes.com/athletic/5875962/2024/10/28/reece-james-captain-chelsea-newcastle/
-
-**Everton endure their reality check - and a reminder this season will be a slog**\
-`Sean Dyche's side extended their unbeaten run to five matches with an unlikely point against Fulham, but they remain 'a work in progress'`\
-https://nytimes.com/athletic/5874998/2024/10/28/everton-fulham-beto-dyche-slog/
 
