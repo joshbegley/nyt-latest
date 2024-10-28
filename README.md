@@ -1,3 +1,11 @@
+**2 Members of Washington Post Editorial Board Step Down**\
+`The two writers, David Hoffman and Molly Roberts, said they thought it was important for the paper to endorse Vice President Kamala Harris in the presidential election.`\
+https://nytimes.com/2024/10/28/business/media/washington-post-endorsement-editorial-board.html
+
+**Manchester United target Amorim is one of Europe’s most coveted tactical thinkers**\
+`The 39-year-old is a charismatic leader known for fielding young talent and improving individuals`\
+https://nytimes.com/athletic/5880321/2024/10/28/manchester-united-ruben-amorim-sporting-tactics/
+
 **Bears' Tyrique Stevenson was supposed to box out on Hail Mary, apologizes to team**\
 `Chicago Bears cornerback Tyrique Stevenson addressed the team Monday morning and apologized for not being in position for Washington’s game-winning Hail Mary touchdown on Sunday.`\
 https://nytimes.com/athletic/5880579/2024/10/28/matt-eberflus-tyrique-stevenson-hail-mary-comments-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/opinion/forced-arbitration-uber-disney.html
 **Man Gets Life Without Parole in Kidnapping and Murder of Memphis Teacher**\
 `Cleotha Abston’s guilty plea in the September 2022 killing of Eliza Fletcher spared him a possible death sentence, his lawyer said.`\
 https://nytimes.com/2024/10/28/us/eliza-fletcher-murder-guilty-plea.html
-
-**Where to Travel This Winter, Whether You Want Sun or Snow**\
-`Here are five places, from coastal Norway to Marrakesh, with exceptional hotels that still have availability for the holidays.`\
-https://nytimes.com/2024/10/28/t-magazine/winter-holiday-travel-ideas.html
-
-**NFL Week 9 odds, schedule: Jets favored vs. Texans?!**\
-`The Jets are favored over the Texans at home in a Week 9 slate that includes monster divisional matchups. `\
-https://nytimes.com/athletic/5880029/2024/10/28/nfl-week-9-odds-spreads-schedule-jets-packers-lions-bills-dolphins/
 
