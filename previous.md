@@ -1,3 +1,7 @@
+**McDonald’s Says Tests Rule Out Beef Patties as Source of E. Coli Outbreak**\
+`The company said it would put Quarter Pounders back on the menu, without the raw onions that were considered the likely source of the bacteria.`\
+https://nytimes.com/2024/10/27/health/mcdonalds-ecoli-quarter-pounders.html
+
 **Buckley: No longer 'soft,' Patriots show pluck in bouncing back to top Jets**\
 `After losing their rookie quarterback, the Patriots showed resilience in mounting two long fourth-quarter drives to beat the rival Jets.`\
 https://nytimes.com/athletic/5877771/2024/10/27/patriots-jets-jerod-mayo-soft-buckley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5877747/2024/10/27/uswnt-iceland-emma-sears-goal-as
 **Report on 2034 World Cup bidders Saudi Arabia is 'flawed', say 11 human rights groups**\
 `The groups have rounded on Clifford Chance, a global law firm who produced a 39-page document on Saudi Arabia that was published by FIFA`\
 https://nytimes.com/athletic/5873571/2024/10/27/clifford-chance-saudi-report-fifa-human-rights/
-
-**Bo Nix's career day propels Broncos to 28-14 win vs. Panthers**\
-`The rookie quarterback accounted for four touchdowns in Denver's victory against Carolina.`\
-https://nytimes.com/athletic/5877641/2024/10/27/panthers-broncos-score-takeaways-results/
 

@@ -1,3 +1,7 @@
+**McDonald’s Says Tests Rule Out Beef Patties as Source of E. Coli Outbreak**\
+`The company said it would put Quarter Pounders back on the menu, without the raw onions that were considered the likely source of the bacteria.`\
+https://nytimes.com/2024/10/27/health/mcdonalds-ecoli-quarter-pounders.html
+
 **Mahomes, Chiefs' D lead the way in 27-20 win over Raiders: Takeaways**\
 `Kansas City's defense won the day with four sacks, a fourth-quarter fumble recovery and a clutch goal-line stand.`\
 https://nytimes.com/athletic/5877456/2024/10/27/chiefs-raiders-score-takeaways-results/
