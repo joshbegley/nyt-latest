@@ -1,3 +1,11 @@
+**Balotelli joins Genoa on free transfer**\
+`Former Manchester City and Italy striker Mario Balotelli has signed for Serie A side Genoa.`\
+https://nytimes.com/athletic/5808805/2024/10/28/mario-balotelli-genoa-transfer/
+
+**Nottm Forest appeal against £125,000 fine for Chelsea melee**\
+`Nottingham Forest have already launched an appeal against their latest fine following a Football Association (FA) charge.`\
+https://nytimes.com/athletic/5880142/2024/10/28/nottingham-forest-chelsea-fa-charge-fine/
+
 **Timothée Chalamet Crashes Look-alike Contest**\
 `The Oscar-nominated actor showed up unannounced to a look-alike contest for himself in New York City.`\
 https://nytimes.com/video/nyregion/100000009786923/timothee-chalamet-lookalike-contest-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5878852/2024/10/28/ivica-zubac-clippers-offense/
 **Scoop City: Risers and fallers after Week 8**\
 `A quick look at the risers (Browns, Lions, Commanders), fallers (Jets, Bears), and the league's worst starting quarterback.  `\
 https://nytimes.com/athletic/5879954/2024/10/28/trending-%f0%9f%93%89-%f0%9f%93%88-after-nfls-week-8-plus-the-continued-decline-of-the-jets-anthony-richardson/
-
-**Trump’s Vast Tariffs Would Rock Global Businesses and Shake Alliances**\
-`Economists said Donald Trump’s plan to return trade barriers to levels not seen in generations would be “a grenade thrown in the heart” of the international system.`\
-https://nytimes.com/2024/10/28/us/politics/trumps-tariffs-global-trade.html
-
-**5 Eerie Games to Haunt During Halloween Week**\
-`Everyone has secrets to conceal in Life Is Strange: Double Exposure, a supernatural thriller with parallel timelines.`\
-https://nytimes.com/2024/10/28/arts/life-is-strange-double-exposure-review.html
 
