@@ -1,4 +1,4 @@
-**With 'haymakers from all areas' the Lions continue to show they're tough to beat**\
+**With 'haymakers from all areas,' the Lions continue to show they're tough to beat**\
 `The defense and special teams stepped up for the Lions.`\
 https://nytimes.com/athletic/5877500/2024/10/27/lions-win-kalif-raymond-titans-haymakers/
 
