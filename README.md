@@ -1,3 +1,15 @@
+**Newcastle sign Georgian teenager Salia**\
+`Newcastle United have completed the signing of 17-year-old Georgian forward Vakhtang Salia.`\
+https://nytimes.com/athletic/5790604/2024/10/29/newcastle-united-vakhtang-salia/
+
+**Ajax complain to UEFA after Sociedad refuse to sell away tickets**\
+`Ajax have sent a formal complaint to UEFA after Real Sociedad refused to sell tickets to Dutch away fans for their Europa League match.`\
+https://nytimes.com/athletic/5882820/2024/10/29/real-sociedad-ajax-europa-league-tickets-uefa-comaplain/
+
+**NFL MVP odds breakdown: Josh Allen has edge in three-man race**\
+`The NFL MVP is looking like a three-quarterback race, but which one is most likely to separate from the pack?`\
+https://nytimes.com/athletic/5882848/2024/10/29/nfl-mvp-odds-breakdown-josh-allen/
+
 **In ‘Empty Beds,’ a Stark Reminder of War’s Youngest Victims**\
 `A mural spanning an entire city block in Manhattan symbolizes the thousands of Ukrainian children who have been taken by Russian forces.`\
 https://nytimes.com/2024/10/29/arts/design/empty-beds-little-ukraine-exhibition.html
@@ -14,27 +26,15 @@ https://nytimes.com/athletic/5882695/2024/10/29/pwhl-womens-hockey-expansion-cit
 `After Mr. Hasan voiced support for Palestinians, the CNN guest, Ryan James Girdusky, said, “I hope your beeper doesn’t go off.”`\
 https://nytimes.com/2024/10/29/business/cnn-pager-comment-mehdi-hasan.html
 
+**Arteta, Mourinho comparison and what it says about Arsenal's style**\
+`Jamie Carragher was just the latest to make what Arsenal fans would consider an unflattering comparison - it is not entirely without merit`\
+https://nytimes.com/athletic/5882850/2024/10/29/arteta-mourinho-arsenal/
+
 **What the PGA Tour's plan to reduce cards and field sizes means**\
 `A proposal obtained by The Athletic displays fairly radical changes to the PGA Tour setup.`\
 https://nytimes.com/athletic/5882755/2024/10/29/pga-tour-card-field-sizes/
 
 **Rudy Gay retires after 17 NBA seasons**\
-`Born in Brooklyn, New York and drafted eighth overall in 2006, Gay played for five teams in his 18 seasons spent in the NBA. `\
+`Born in Brooklyn, New York and drafted eighth overall in 2006, Gay played for five teams in his 17 seasons spent in the NBA. `\
 https://nytimes.com/athletic/5882825/2024/10/29/rudy-gay-announces-retirement-from-nba/
-
-**World Series ticket prices in New York cool with Yankees down 3-0**\
-`A StubHub spokesperson said the dip wasn't surprising based on how the series between two star-studded markets has unfolded so far.`\
-https://nytimes.com/athletic/5880861/2024/10/29/world-series-ticket-prices-dodgers-yankees/
-
-**TSMC Chips Ended Up in Devices Made by China’s Huawei Despite U.S. Controls**\
-`The U.S. government has tried to keep Chinese companies from obtaining certain advanced technologies, but concerns have been growing that some products may have been routed to Huawei.`\
-https://nytimes.com/2024/10/29/business/tsmc-huawei-computer-chips.html
-
-**What NBA scouts are saying about Bilal Coulibaly and his future**\
-`Coulibaly might be the most important player on Washington's roster for the long term. He's also one of the most difficult to project.`\
-https://nytimes.com/athletic/5881099/2024/10/29/bilal-coulibaly-nba-scouts-evaluation-2024/
-
-**With Ump Cam, Dirt Cam, drones and more, at World Series, MLB has cameras everywhere**\
-`MLB is deploying over 40 cameras for the World Series and adding new technology to the broadcast, creating a different viewing experience.`\
-https://nytimes.com/athletic/5882817/2024/10/29/yankees-dodgers-world-series-camera-technology-mlb/
 
