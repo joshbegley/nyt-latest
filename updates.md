@@ -1,3 +1,7 @@
+**Word of the Day: pagoda**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/29/learning/word-of-the-day-pagoda.html
+
 **How the Canucks' early-season win streak ended vs. the Hurricanes: 3 takeaways**\
 `Carolina narrowly held off a furious Canucks rally Monday on its way to a 4-3 victory in overtime at Rogers Arena.`\
 https://nytimes.com/athletic/5881683/2024/10/29/canucks-early-season-win-streak-ends-vs-hurricanes/

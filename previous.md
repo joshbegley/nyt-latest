@@ -1,3 +1,7 @@
+**Word of the Day: pagoda**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/29/learning/word-of-the-day-pagoda.html
+
 **How the Canucks' early-season win streak ended vs. the Hurricanes: 3 takeaways**\
 `Carolina narrowly held off a furious Canucks rally Monday on its way to a 4-3 victory in overtime at Rogers Arena.`\
 https://nytimes.com/athletic/5881683/2024/10/29/canucks-early-season-win-streak-ends-vs-hurricanes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880874/2024/10/29/vinicius-junior-ballon-dor-real-
 **The tragedy of Pierre Bolangi, the promising footballer who died on a pre-season Army camp**\
 `Remembering the young Charlton player who lost his life when a pre-season training exercise went horribly wrong`\
 https://nytimes.com/athletic/5844423/2024/10/29/pierre-bolangi-tragedy-charlton/
-
-**Why Aitana Bonmati is the world's most interesting footballer**\
-`There are world-class footballers who are just very good at football. Then there are some who feel like they might genuinely change the game`\
-https://nytimes.com/athletic/5879853/2024/10/29/aitana-bonmati-ballon-dor/
 
