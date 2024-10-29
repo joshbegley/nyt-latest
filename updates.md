@@ -1,3 +1,5 @@
+**All the Kitchen Experts at Wirecutter Use Shears to Cut Pizza**\
+
 **A New Insult Reminds Puerto Ricans of How Trump Treated Them**\
 `As president, Donald Trump fought bitterly with Puerto Rican officials, ridiculed them and resisted sending aid to the territory after devastating hurricanes.`\
 https://nytimes.com/2024/10/29/us/puerto-ricans-trump-insult.html
