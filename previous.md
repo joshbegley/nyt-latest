@@ -1,3 +1,27 @@
+**Here’s when NBA games will air on NBC and Amazon starting next season**\
+`The details come from a suite of new documents unsealed Tuesday in the lawsuit between Warner Bros. Discovery and the NBA.`\
+https://nytimes.com/athletic/5883682/2024/10/29/nba-amazon-nbc-media-deal/
+
+**Democrats Highlight Puerto Rico Insult on Billboards Near Trump Rally**\
+`The party invested in two digital highway billboards in the Allentown, which has a significant Puerto Rican population.`\
+https://nytimes.com/2024/10/29/us/politics/trump-rally-puerto-rico-pennsylvania.html
+
+**NBA fines 76ers for misrepresenting statements regarding Embiid's absence**\
+`The NBA opened an investigation after Embiid missed the team’s season opener last week, which was televised nationally on ESPN.`\
+https://nytimes.com/athletic/5883840/2024/10/29/joel-embiid-nba-investigation-76ers-fined-statements/
+
+**Teri Garr’s Life in Pictures**\
+`Garr, who could easily command attention onscreen with her expressive eyes, later became known as a spokeswoman for multiple sclerosis research.`\
+https://nytimes.com/2024/10/29/movies/teri-garr-photos.html
+
+**Supreme Court Declines to Remove R.F.K. Jr. From Ballot in Two Key States**\
+`Since throwing his support behind former President Donald J. Trump, Mr. Kennedy has sought both to be removed from and to remain on various state ballots.`\
+https://nytimes.com/2024/10/29/us/politics/supreme-court-rfk-jr-wisconsin-michigan-ballot.html
+
+**What Can a Celebrity Endorsement Do? Ask Shonda Rhimes.**\
+`Vice President Kamala Harris has plenty of big-name backers, but one of the eternal questions is how much star power ultimately matters to voters.`\
+https://nytimes.com/2024/10/29/us/politics/shonda-rhimes-kamala-harris.html
+
 **A Closing Argument for an Abnormal Election**\
 `A divided and deadlocked country faces big questions about what presidential power is actually for.`\
 https://nytimes.com/2024/10/29/us/politics/trump-harris-election-closing-arguments.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.ht
 **Au Pair Pleads Guilty to Manslaughter in Double Homicide**\
 `As part of a plea agreement, Juliana Peres Magalhães, 24, has agreed to cooperate with prosecutors, who have charged her ex-lover with murdering his wife and another man in 2023.`\
 https://nytimes.com/2024/10/29/us/juliana-peres-magalhaes-au-pair-guilty-plea.html
-
-**John Gierach, Fly Fishing Author With Wit and Wisdom, Dies at 77**\
-`Writing for anglers and amateurs alike, he found that the sport can reveal as much about people as it does about fish.`\
-https://nytimes.com/2024/10/29/books/john-gierach-dead.html
-
-**Judge Tosses Republican Suit Over Military and Overseas Ballots in Pennsylvania**\
-`A judge said six Republican members of the state’s congressional delegation could not rely on “phantom fears of foreign malfeasance” to justify initiating a legal action so close to Election Day.`\
-https://nytimes.com/2024/10/29/us/politics/pennsylvania-overseas-military-ballots.html
-
-**Harris Is Trying to Win Voters by Laying Out the Alternative**\
-`Also, Teri Garr found the soul in memorable ditsy blondes. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/10/29/briefing/harris-closing-speech-war-games-us-china.html
-
-**What Are the Implications of Israel Banning UNRWA?**\
-`Humanitarian agencies fear the new Israeli laws could have catastrophic effects for Gazans. They are already drawing sharp criticism from Israel’s allies.`\
-https://nytimes.com/2024/10/29/world/middleeast/israel-gaza-unrwa-ban.html
-
-**Israeli Airstrikes in Lebanon’s Bekaa Valley Kill Dozens, Officials Say**\
-`The Baalbek district beared the brunt of Israel’s barrage, which officials said killed at least 60 people in the Bekaa Valley, in eastern Lebanon.`\
-https://nytimes.com/video/world/middleeast/100000009791095/lebanon-baalbek-bekaa-israel.html
-
-**Is Trump a Fascist? This Time, Mayor Adams Dodges the Question.**\
-`Mayor Eric Adams of New York City bristled at questions about the former president and said there was a need to “turn down the rhetoric.”`\
-https://nytimes.com/2024/10/29/nyregion/adams-trump-fascist-msg.html
 

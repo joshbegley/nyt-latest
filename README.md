@@ -1,3 +1,7 @@
+**Ravens' acquisition of WR Diontae Johnson spurs 2 reactions: Why not, and what's next?**\
+`Baltimore will owe Johnson roughly $625,000 for the rest of the season, making it a risk worth taking on a receiver with big-play potential.`\
+https://nytimes.com/athletic/5883831/2024/10/29/ravens-trade-diontae-johnson-panthers/
+
 **Here’s when NBA games will air on NBC and Amazon starting next season**\
 `The details come from a suite of new documents unsealed Tuesday in the lawsuit between Warner Bros. Discovery and the NBA.`\
 https://nytimes.com/athletic/5883682/2024/10/29/nba-amazon-nbc-media-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/29/us/harris-trump-election/a-disability-rights
 **Ex-Leader of Black Transgender Group Is Charged With Stealing Its Money**\
 `After Dominique Morgan said her group would start a bail fund for poor defendants, she instead took nearly $100,000 for personal expenses, prosecutors said.`\
 https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.html
-
-**Au Pair Pleads Guilty to Manslaughter in Double Homicide**\
-`As part of a plea agreement, Juliana Peres Magalhães, 24, has agreed to cooperate with prosecutors, who have charged her ex-lover with murdering his wife and another man in 2023.`\
-https://nytimes.com/2024/10/29/us/juliana-peres-magalhaes-au-pair-guilty-plea.html
 
