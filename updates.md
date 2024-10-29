@@ -1,3 +1,11 @@
+**Son unlikely to face Man City; Odobert suffers 'serious' setback**\
+`Tottenham Hotspur captain Son Heung-min is unlikely to feature in their Carabao Cup tie against Manchester City on Wednesday while Wilson Odobert has suffered a “serious” setback in his recovery from a hamstring injury.`\
+https://nytimes.com/athletic/5882472/2024/10/29/son-injury-update-tottenham-odobert/
+
+**Where’s Ivanka?**\
+`Donald J. Trump’s oldest daughter and former top aide was once one of his most prominent campaign surrogates. Lately, she’s noticeably absent.`\
+https://nytimes.com/2024/10/29/style/wheres-ivanka.html
+
 **CFB Week 9 reactions: Coach Prime's turnaround, Kaleb Johnson's historic season**\
 `Deion Sanders and Colorado have things rolling, and Iowa's Kaleb Johnson just can't be stopped.`\
 https://nytimes.com/athletic/5882069/2024/10/29/college-football-week-9-reaction-colorado-deion-sanders-iowa-kaleb-johnson/
