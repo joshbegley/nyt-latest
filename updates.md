@@ -1,3 +1,7 @@
+**Man Who Attacked Paul Pelosi Is Sentenced to Life in Prison**\
+`David DePape broke into the San Francisco home of Nancy Pelosi, the former speaker of the House, in 2022 and beat her husband with a hammer.`\
+https://nytimes.com/2024/10/29/us/man-attacked-paul-pelosi-sentenced-life-prison.html
+
 **Kevin Durant, Jaylen Brown highlight season 2 cast of 'Starting 5'**\
 `The new cast will also include Tyrese Haliburton and Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
