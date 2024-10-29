@@ -1,3 +1,7 @@
+**Rosenthal: As World Series dream slips away, a reality check awaits Yankees, Aaron Judge**\
+`Crazy as this might sound, considering they won 94 games and their first AL pennant since 2009, the Yankees are not very good at baseball.`\
+https://nytimes.com/athletic/5882025/2024/10/29/dodgers-yankees-world-series-aaron-judge-losing/
+
 **A Book that Explains the 2024 Campaign**\
 `We covering the America’s working-class majority.`\
 https://nytimes.com/2024/10/29/briefing/trump-harris-2024-election.html
