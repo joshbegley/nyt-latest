@@ -1,3 +1,7 @@
+**Ahead of Harris’s Speech in Washington, Trump Tries to Focus on Immigration**\
+`The former president believes his focus on illegal immigration is the reason he won in 2016, and this year, he has pushed his advisers to add content related to it.`\
+https://nytimes.com/2024/10/29/us/politics/trump-mar-a-lago-immigration.html
+
 **Musk’s PAC hints at a vulgar taunt against women in an ad.**\
 `One version of the ad, first posted by the group on Friday evening, remained active on Tuesday, with more than 430,000 views.`\
 https://nytimes.com/2024/10/29/us/politics/elon-musk-pac-harris-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883242/2024/10/29/diontae-johnson-ravens-panthers-
 **Judge Refuses to Recuse Herself From Trump Assassination Case**\
 `The man accused of plotting to shoot Donald J. Trump at his golf course had asked the judge to step aside, saying she had been praised by the former president and listed as a possible Trump appointee.`\
 https://nytimes.com/2024/10/29/us/politics/judge-aileen-cannon-trump-assassination.html
-
-**Bad Bunny Responds to Racist Remarks at Trump Rally With a Message of Puerto Rican Pride**\
-`The pop superstar posted a video lauding the island’s “kings and queens,” two days after he shared a clip of Vice President Kamala Harris addressing Puerto Rican voters.`\
-https://nytimes.com/2024/10/29/us/politics/bad-bunny-trump-harris-puerto-rico.html
 
