@@ -1,3 +1,7 @@
+**Will Manchester United ever return to the top of English football?**\
+`Erik ten Hag is out and the cyclical challenge of returning the club to its former pre-eminence begins once more  `\
+https://nytimes.com/athletic/5881707/2024/10/29/manchester-united-return-dominance-decline-ten-hag/
+
 **Jon Stewart Fears Madison Square Garden Will Never Be the Same**\
 `After Donald Trump’s rally, Stewart showed an image of Billy Joel and asked, “How dare they desecrate the stage that the Piano Man has consecrated?”`\
 https://nytimes.com/2024/10/29/arts/television/jon-stewart-trump-madison-square-garden.html
