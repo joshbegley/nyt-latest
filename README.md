@@ -18,7 +18,7 @@ https://nytimes.com/2024/10/29/business/cnn-pager-comment-mehdi-hasan.html
 `A proposal obtained by The Athletic displays fairly radical changes to the PGA Tour setup.`\
 https://nytimes.com/athletic/5882755/2024/10/29/pga-tour-card-field-sizes/
 
-**Rudy Gay retires after 18 NBA seasons**\
+**Rudy Gay retires after 17 NBA seasons**\
 `Born in Brooklyn, New York and drafted eighth overall in 2006, Gay played for five teams in his 18 seasons spent in the NBA. `\
 https://nytimes.com/athletic/5882825/2024/10/29/rudy-gay-announces-retirement-from-nba/
 

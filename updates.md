@@ -1,3 +1,11 @@
+**In ‘Empty Beds,’ a Stark Reminder of War’s Youngest Victims**\
+`A mural spanning an entire city block in Manhattan symbolizes the thousands of Ukrainian children who have been taken by Russian forces.`\
+https://nytimes.com/2024/10/29/arts/design/empty-beds-little-ukraine-exhibition.html
+
+**Two Horror Authors on the Scary Books You Should Read**\
+`Stephen Graham Jones and Joe Hill with their recommendations for this Halloween season.`\
+https://nytimes.com/2024/10/29/books/review/joe-hill-stephen-graham-jones-horror-recommendations.html
+
 **PWHL preparing for expansion as early as 2025-26 season, could add up to 2 teams**\
 `After success in its inaugural season, the PWHL is looking to expand to new hockey markets sooner than expected.`\
 https://nytimes.com/athletic/5882695/2024/10/29/pwhl-womens-hockey-expansion-cities/
