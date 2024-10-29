@@ -1,3 +1,11 @@
+**A Celebrated Pianist’s Final Recording, Made With His Son**\
+`Maurizio Pollini didn’t think his farewell on disc would be an album of music by Schubert with his son, Daniele. Now, it serves as an emotional coda.`\
+https://nytimes.com/2024/10/29/arts/music/maurizio-pollini-final-recording.html
+
+**New Vehicles, Face Paint and a 1,200-Foot Fall: The U.S. Army Prepares for War With China**\
+`The big and cumbersome Army is trying to transform itself to deploy quickly to Asia, if needed. It is an inherently dangerous business.`\
+https://nytimes.com/2024/10/29/us/politics/us-military-army-china.html
+
 **Your questions about The Times’s election coverage: Endorsing presidential candidates**\
 `Our journalists answer questions from readers.`\
 https://nytimes.com/2024/10/29/insider/your-questions-about-the-timess-election-coverage-endorsing-presidential-candidates.html
