@@ -1,3 +1,11 @@
+**Nikola Jokić and Jamal Murray had a moment, but the Nuggets are still finding themselves**\
+`There was a curious desperation to the Nuggets on Monday as they looked to avoid an 0-3 start.`\
+https://nytimes.com/athletic/5881622/2024/10/29/nuggets-raptors-nikola-jokic-jamal-murray/
+
+**Puerto Rico’s G.O.P. Chairman Demands Apology From Trump for Comic’s Remarks**\
+`The island’s Catholic archbishop also wrote a letter to Donald Trump condemning a racist comedy routine during his Madison Square Garden rally.`\
+https://nytimes.com/2024/10/29/us/politics/puerto-rico-gop-chairman-trump-msg.html
+
 **After Shaky Start for Labour, First Budget Brings Chance for Reset**\
 `British Prime Minister Keir Starmer’s government has stumbled since his party won a landslide victory, but the financial plan to be announced on Wednesday offers a possible relaunch.`\
 https://nytimes.com/2024/10/29/world/europe/uk-budget-labour-starmer.html
