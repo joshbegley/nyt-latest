@@ -1,3 +1,7 @@
+**What to know about the 2024 NFL trade deadline: Date, history and notable deals**\
+`The league's owners voted during their annual meetings in March to move the trade deadline following Week 9 instead of Week 8.`\
+https://nytimes.com/athletic/5870047/2024/10/29/nfl-trade-deadline-2024-date/
+
 **Vatican Issues First Report on Sex Abuse, to Immediate Criticism**\
 `The report is intended to assess efforts by the Roman Catholic Church to safeguard minors and others. Advocates for survivors called it an exercise in obfuscation.`\
 https://nytimes.com/2024/10/29/world/europe/vatican-sex-abuse-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881160/2024/10/29/heat-today-dwyane-wade-reflects-
 **In 1930s Rwanda, a Black Savior Is Coming, and She Might Be a Woman**\
 `The eponymous healer in “Sister Deborah” inspires a Black feminist uprising.`\
 https://nytimes.com/2024/10/29/books/review/sister-deborah-scholastique-mukasonga.html
-
-**Bryce Eldridge's Arizona Fall League stint ends, Giants pleased with his work**\
-`Eldridge performed well in 10 games at the plate, but the real focus of his time in Arizona was on defense, especially before games.`\
-https://nytimes.com/athletic/5881269/2024/10/29/bryce-eldridge-arizona-fall-league-sf-giants/
 

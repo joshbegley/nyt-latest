@@ -1,3 +1,7 @@
+**What to know about the 2024 NFL trade deadline: Date, history and notable deals**\
+`The league's owners voted during their annual meetings in March to move the trade deadline following Week 9 instead of Week 8.`\
+https://nytimes.com/athletic/5870047/2024/10/29/nfl-trade-deadline-2024-date/
+
 **BP Profit Falls, but It Still Sees ‘Potential to Grow’ in Oil and Gas**\
 `The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principal aim” was increasing earnings.`\
 https://nytimes.com/2024/10/29/business/bp-oil-gas-earnings.html
