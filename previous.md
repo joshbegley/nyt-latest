@@ -1,40 +1,40 @@
+**Matt Rempe's AHL stint, Gabe Perreault's strengths, more: 13 Rangers observations**\
+`Rempe got plenty more time on ice with Hartford in his brief AHL stint than he has so far in New York.`\
+https://nytimes.com/athletic/5881041/2024/10/29/rangers-matt-rempe-ahl-stint-kreider/
+
+**NBA, WNBA players and teams look to get out the vote in a bitterly divided country**\
+`This cycle, teams and players in both leagues are continuing to engage communities in team cities to get people registered to vote.`\
+https://nytimes.com/athletic/5860976/2024/10/29/nba-wnba-players-and-teams-look-to-get-out-the-vote-in-a-bitterly-divided-country/
+
+**NFL QB stock report, Week 9: Why the Aaron Rodgers-Jets experiment has failed**\
+`"Rodgers has been so good for so long that it’s like people believed he was immune from the effects of tearing his Achilles at age 40."`\
+https://nytimes.com/athletic/5877971/2024/10/29/nfl-qb-stock-report-rankings-aaron-rodgers-jets-fail/
+
+**Foreign Election Interference, and Volkswagen May Close Factories**\
+`Plus, why you should never cross a crow.`\
+https://nytimes.com/2024/10/29/podcasts/foreign-election-interference-volkswagen.html
+
+**Wordle Review No. 1,229**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 30, 2024.`\
+https://nytimes.com/2024/10/29/crosswords/wordle-review-1229.html
+
+**The Connections Companion No. 507**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 30, 2024.`\
+https://nytimes.com/2024/10/29/crosswords/connections-companion-507.html
+
+**What could the 2025 Mets look like at different payroll budgets?**\
+`Juan Soto could be in play at about $50 million per season, but how do the Mets want to navigate the luxury tax thresholds?`\
+https://nytimes.com/athletic/5880241/2024/10/29/mets-free-agency-juan-soto-pete-alonso/
+
+**Hezbollah Names Naim Qassem as Its New Leader**\
+`Mr. Qassem had been the Lebanese militant group’s longtime deputy. He replaces Hassan Nasrallah, who was assassinated in an Israeli airstrike last month.`\
+https://nytimes.com/2024/10/29/world/middleeast/hezbollah-new-leader-naim-qassem.html
+
+**Giants' frustrations boiling over as they grapple with yet another lost season**\
+`Many factors have contributed to the Giants’ 8-17 record since the start of last season, but the end results have been painfully familiar.`\
+https://nytimes.com/athletic/5881919/2024/10/29/giants-takeaways-daniel-jones-frustration-brian-daboll-steelers/
+
 **Here are the latest developments.**\
 `By Victoria Kim, Hiba Yazbek and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
-
-**Dozens are killed in a strike on a building in northern Gaza, Palestinian agencies say.**\
-`By Victoria Kim, Hiba Yazbek and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/dozens-are-killed-in-a-strike-on-a-building-in-northern-gaza-palestinian-agencies-say
-
-**Inside the Colorful and Cultish World of Nerds Gummy Clusters**\
-`Sales of Nerds have greatly increased in recent years, the company says. The secret? A multicolored orb.`\
-https://nytimes.com/2024/10/29/us/nerds-gummy-clusters.html
-
-**‘Standing Tall:’ Why ‘Perfect Strangers’ Keeps Coming Back**\
-`From “The Leftovers” to “Only Murders in the Building,” “Perfect Strangers,” the wacky 1980s sitcom with a bombastic theme song, is enjoying a strange afterlife.`\
-https://nytimes.com/2024/10/29/arts/television/perfect-strangers-theme-song.html
-
-**With Limited Options, Zelensky Seeks a Path Forward for Ukraine**\
-`A muted response to Ukraine’s “victory plan” and steep challenges on the battlefield leave Kyiv searching for a Plan B.`\
-https://nytimes.com/2024/10/29/world/europe/ukraine-zelensky-russia-war.html
-
-**City confirm Sjogran as new women's director of football**\
-`Manchester City have confirmed the appointment of Therese Sjogran as their new women’s director of football.`\
-https://nytimes.com/athletic/5881958/2024/10/29/therese-sjogran-manchester-city/
-
-**The Bengals' bleak defensive regression and 3 plays highlighting the problems**\
-`It looked like coordinator Lou Anarumo's defense had turned the corner in the prior two weeks, but the Eagles exposed major issues.`\
-https://nytimes.com/athletic/5881386/2024/10/29/bengals-defensive-regression-anarumo/
-
-**Bullpen games in the MLB playoffs may not be fun, but they work — for some teams**\
-`The Dodgers will go with a bullpen game in Game 4 of the World Series. It's a plan that isn't often successful but seems to work for them.`\
-https://nytimes.com/athletic/5880603/2024/10/29/dodgers-yankees-world-series-bullpen-games/
-
-**Stephen Bannon Is Released From Prison**\
-`Mr. Bannon, one of the most influential voices in hard-right American politics, predicted a legal battle after Election Day that could last weeks or months.`\
-https://nytimes.com/2024/10/29/us/steve-bannon-prison-release.html
-
-**We’ve Just Had a Glimpse of the World to Come**\
-`Last week’s BRICS summit showed how the balance of global power increasingly eludes the West’s grasp.`\
-https://nytimes.com/2024/10/29/opinion/brics-summit-russia-west.html
 
