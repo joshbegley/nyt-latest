@@ -1,3 +1,7 @@
+**McDonald’s Focus on Value Bolsters U.S. Sales**\
+`The fast-food giant’s earnings results did not reflect the potential fallout from an E. coli outbreak that the company has moved quickly to contain.`\
+https://nytimes.com/2024/10/29/business/mcdonalds-earnings-e-coli-outbreak-sales.html
+
 **A Book that Explains the 2024 Campaign**\
 `We’re covering the America’s working-class majority.`\
 https://nytimes.com/2024/10/29/briefing/trump-harris-2024-election.html
