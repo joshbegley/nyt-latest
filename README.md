@@ -1,3 +1,7 @@
+**'MNF' to air 'Simpsons' broadcast for Bengals-Cowboys in Week 14**\
+`“The Simpsons Funday Football,” as it is officially called, will air on ESPN+ and Disney+.`\
+https://nytimes.com/athletic/5881010/2024/10/28/simpsons-monday-night-football-cowboys-bengals/
+
 **Trump Attacks Michelle Obama, Days After She Criticized Him**\
 `At a rally in Atlanta, Donald Trump called the former first lady a “hater,” in response to her comments saying he had displayed “erratic behavior” and “obvious mental decline.”`\
 https://nytimes.com/2024/10/28/us/politics/trump-michelle-obama.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/hostility-fla
 **Puerto Ricans in Philadelphia Are Angered by Bigoted Remarks at Trump Rally**\
 `Many Puerto Ricans in the crucial battleground state said the remarks, such as one deriding Puerto Rico as “a floating island of garbage,” fit a common disrespectful attitude toward the island territory.`\
 https://nytimes.com/2024/10/28/us/politics/puerto-ricans-philadelphia-trump-rally.html
-
-**‘Bad Kreyòl’ Review: Dueling Cultural Identities Make for a Weighty Comedy**\
-`Dominique Morisseau’s new play explores the tensions between a Haitian American woman and her Haitian-born cousin.`\
-https://nytimes.com/2024/10/28/theater/bad-kreyol-review.html
 

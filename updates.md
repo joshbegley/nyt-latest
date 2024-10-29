@@ -1,3 +1,7 @@
+**Trump Attacks Michelle Obama, Days After She Criticized Him**\
+`At a rally in Atlanta, Donald Trump called the former first lady a “hater,” in response to her comments saying he had displayed “erratic behavior” and “obvious mental decline.”`\
+https://nytimes.com/2024/10/28/us/politics/trump-michelle-obama.html
+
 **Ford Foundation Gives $10 Million to Studio Museum in Harlem**\
 `The grant will support the museum’s director and chief curator, a position held for the last 20 years by Thelma Golden.`\
 https://nytimes.com/2024/10/28/arts/studio-museum-in-harlem.html

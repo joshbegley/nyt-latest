@@ -1,3 +1,7 @@
+**Trump Attacks Michelle Obama, Days After She Criticized Him**\
+`At a rally in Atlanta, Donald Trump called the former first lady a “hater,” in response to her comments saying he had displayed “erratic behavior” and “obvious mental decline.”`\
+https://nytimes.com/2024/10/28/us/politics/trump-michelle-obama.html
+
 **Ford Foundation Gives $10 Million to Studio Museum in Harlem**\
 `The grant will support the museum’s director and chief curator, a position held for the last 20 years by Thelma Golden.`\
 https://nytimes.com/2024/10/28/arts/studio-museum-in-harlem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/puerto-ricans-philadelphia-trump-rall
 **‘Bad Kreyòl’ Review: Dueling Cultural Identities Make for a Weighty Comedy**\
 `Dominique Morisseau’s new play explores the tensions between a Haitian American woman and her Haitian-born cousin.`\
 https://nytimes.com/2024/10/28/theater/bad-kreyol-review.html
-
-**Michigan's Jack Tuttle retiring from football due to concussions**\
-`"I've battled numerous injuries, culminating in this difficult choice to step away from playing the game that I love," Tuttle said on X.`\
-https://nytimes.com/athletic/5881319/2024/10/28/jack-tuttle-michigan-retiring-concussion/
 
