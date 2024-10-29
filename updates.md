@@ -1,3 +1,7 @@
+**Ex-Leader of Black Transgender Group Is Charged With Stealing Its Money**\
+`After Dominique Morgan said her group would start a bail fund for poor defendants, she instead took nearly $100,000 for personal expenses, prosecutors said.`\
+https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.html
+
 **Amid Backlash, Trump Claims No President Has Done More for Puerto Rico Than He Has**\
 `The former president made the claim at a round-table discussion in Pennsylvania on Tuesday, days after a comic disparaged Puerto Rico during Sunday’s Trump rally in New York.`\
 https://nytimes.com/2024/10/29/us/politics/trump-puerto-rico-madison-square-garden-pennsylvania.html
