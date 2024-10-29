@@ -1,3 +1,11 @@
+**Despite Covid ‘Amnesia,’ the Pandemic Simmers Beneath the 2024 Race**\
+`Dueling Trump and Harris rallies outside Atlanta offer a case study in how anger and anxiety over Covid-19, a proxy for the larger debate over trust in government, have shaped the 2024 race.`\
+https://nytimes.com/2024/10/29/us/politics/trump-harris-covid-rfk-vaccines.html
+
+**A Month’s Worth of Rain Falls in a Single Day in Parts of Spain**\
+`The deluge flooded streets, breached rivers and destroyed crops along the Mediterranean coast. There could be more rain still to come.`\
+https://nytimes.com/2024/10/29/world/europe/rain-spain-cold-drop-dana.html
+
 **Why Is Harris So Passionate About Abortion Rights? Her Past Work Holds Clues.**\
 `For a politician who has been criticized for shifting positions on some issues, this is an area where she has shown unwavering conviction.`\
 https://nytimes.com/2024/10/29/health/kamala-harris-abortion-rights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/arts/teri-garr-dead.html
 **Is There a Moral Choice for Catholic Voters?**\
 `Why are we being asked to choose between the lesser of two evils?`\
 https://nytimes.com/2024/10/29/opinion/catholic-third-party.html
-
-**In Botswana’s Election, Diamond Profits Are a Defining Issue**\
-`The party that has governed the country since 1966 could lose power as the economy struggles from a slump in demand for diamonds, which made Botswana an African success story.`\
-https://nytimes.com/2024/10/29/world/africa/botswana-election-diamonds.html
-
-**Texans' Stefon Diggs lands on season-ending IR after Week 8 knee injury**\
-`Diggs suffered a non-contact knee injury trying to cut on his route with 1:50 remaining in the third quarter of the Texans' Week 8 win.`\
-https://nytimes.com/athletic/5880660/2024/10/29/stefon-diggs-injury-knee-texans/
 
