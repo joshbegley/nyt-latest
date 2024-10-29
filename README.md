@@ -1,3 +1,7 @@
+**Israel Hits Gaza Town for Third Time in Days, Killing Dozens, Officials Say**\
+`Gazan agencies said that children were among those killed in the strike in Beit Lahia. A U.S. State Department spokesman called the strike “a horrifying incident with a horrifying result.”`\
+https://nytimes.com/2024/10/29/world/middleeast/israel-gaza-beit-lahia.html
+
 **Diontae Johnson trade grades: Ravens load up for Super Bowl run; Panthers focus on future**\
 `Ravens QB Lamar Jackson has a strong chance to win his third MVP award this season, but he needed the reinforcements.`\
 https://nytimes.com/athletic/5883316/2024/10/29/diontae-johnson-trade-grades-ravens-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuserie
 **Armie Hammer’s Comeback Attempt Hits the Podcast Stage**\
 `The actor’s career sunk after he was accused of sexual assault and making shocking comments about cannibalism. He said he hopes to learn from his show’s guests.`\
 https://nytimes.com/2024/10/29/style/armie-hammer-podcast.html
-
-**Trump’s Extraordinarily Negative TV Ads**\
-`The contrast to the Harris campaign has been stark.`\
-https://nytimes.com/2024/10/29/opinion/trumps-extraordinarily-negative-tv-ads.html
 
