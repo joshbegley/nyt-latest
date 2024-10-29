@@ -1,3 +1,19 @@
+**Scoop City: Week 9 fantasy must-adds**\
+`A look at the must-add players before Week 9, a list that previously hit on Tyrone Tracy, Isaac Guerendo and Josh Downs.`\
+https://nytimes.com/athletic/5882791/2024/10/29/week-9-fantasy-must-adds-from-matthew-stafford-to-jalen-coker/
+
+**Urban Hell, a Place to Find God or Just Another New York City Street?**\
+`A viral photo of three fast-food chains on a Brooklyn street corner is something of a Rorschach test on social media. It has multiple meanings for New Yorkers, too.`\
+https://nytimes.com/2024/10/29/style/myrtle-broadway-meme-brooklyn-subway.html
+
+**Putin Flexes Nuclear Capabilities at Delicate Moment for Ukraine**\
+`The Russian leader’s emphasis on nuclear prowess has been seen as an attempt to deter Western military aid to Kyiv.`\
+https://nytimes.com/2024/10/29/world/europe/putin-nuclear-weapons-ukraine-russia.html
+
+**C.D.C. Warns of Unusual Rise in Walking Pneumonia Cases**\
+`The agency said infections had increased significantly among children ages 2 to 4.`\
+https://nytimes.com/2024/10/29/well/walking-pneumonia-symptoms-treatment.html
+
 **How Elon Musk Might Use His Pull With Trump to Help Tesla**\
 `Although Donald Trump has opposed policies that favor electric cars, if he becomes president he could ease regulatory scrutiny of Tesla or protect lucrative credits and subsidies.`\
 https://nytimes.com/2024/10/29/business/economy/elon-musk-trump-tesla.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5877460/2024/10/29/gabriel-injury-arsenal-update/
 **Help! Budget Charged Us $450 to Clean Our Rental Car. Can They Do That?**\
 `Sure, there were footprints and some dirt, but days after a family from Ireland returned a car to Kennedy Airport, they were hit with the maximum cleaning fee.`\
 https://nytimes.com/2024/10/29/travel/budget-rental-cars-excessive-fees.html
-
-**Virginia's Jalen Warley re-entering portal in wake of Bennett's retirement**\
-`Warley is the first player to depart the program since Bennett’s abrupt retirement earlier in October.`\
-https://nytimes.com/athletic/5882687/2024/10/29/virginia-guard-jalen-warley-transferring-in-wake-of-tony-bennetts-retirement/
-
-**A ‘Crime and Punishment’ Ballet? It’s Not as ‘Ludicrous’ as It Seems.**\
-`“Why can’t ballet be a roller coaster?” Helen Pickett said of her and James Bonas’s full-length work, premiering this week at American Ballet Theater.`\
-https://nytimes.com/2024/10/29/arts/dance/crime-and-punishment-helen-pickett-lincoln-center.html
-
-**The Windup: Why this World Series has underwhelmed**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5882636/2024/10/29/world-series-dodgers-yankees-the-windup-2/
-
-**Dozens Killed in Israeli Strikes in Eastern Lebanon, Lebanese Officials Say**\
-`The barrage of Israeli airstrikes in the Bekaa Valley on Monday night killed at least 60 people, officials said. It appeared to be the deadliest attack in the area since the war escalated last month.`\
-https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-lebanon-baalbek-bekaa-valley.html
 

@@ -1,3 +1,19 @@
+**Scoop City: Week 9 fantasy must-adds**\
+`A look at the must-add players before Week 9, a list that previously hit on Tyrone Tracy, Isaac Guerendo and Josh Downs.`\
+https://nytimes.com/athletic/5882791/2024/10/29/week-9-fantasy-must-adds-from-matthew-stafford-to-jalen-coker/
+
+**Urban Hell, a Place to Find God or Just Another New York City Street?**\
+`A viral photo of three fast-food chains on a Brooklyn street corner is something of a Rorschach test on social media. It has multiple meanings for New Yorkers, too.`\
+https://nytimes.com/2024/10/29/style/myrtle-broadway-meme-brooklyn-subway.html
+
+**Putin Flexes Nuclear Capabilities at Delicate Moment for Ukraine**\
+`The Russian leader’s emphasis on nuclear prowess has been seen as an attempt to deter Western military aid to Kyiv.`\
+https://nytimes.com/2024/10/29/world/europe/putin-nuclear-weapons-ukraine-russia.html
+
+**C.D.C. Warns of Unusual Rise in Walking Pneumonia Cases**\
+`The agency said infections had increased significantly among children ages 2 to 4.`\
+https://nytimes.com/2024/10/29/well/walking-pneumonia-symptoms-treatment.html
+
 **How Elon Musk Might Use His Pull With Trump to Help Tesla**\
 `Although Donald Trump has opposed policies that favor electric cars, if he becomes president he could ease regulatory scrutiny of Tesla or protect lucrative credits and subsidies.`\
 https://nytimes.com/2024/10/29/business/economy/elon-musk-trump-tesla.html
