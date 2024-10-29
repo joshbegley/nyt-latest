@@ -1,3 +1,7 @@
+**Amid Backlash, Trump Claims No President Has Done More for Puerto Rico Than He Has**\
+`The former president made the claim at a round-table discussion in Pennsylvania on Tuesday, days after a comic disparaged Puerto Rico during Sunday’s Trump rally in New York.`\
+https://nytimes.com/2024/10/29/us/politics/trump-puerto-rico-madison-square-garden-pennsylvania.html
+
 **Ravens' acquisition of Diontae Johnson spurs 2 reactions: Why not, and what's next?**\
 `Baltimore will owe Johnson roughly $625,000 for the rest of the season, making it a risk worth taking on a receiver with big-play potential.`\
 https://nytimes.com/athletic/5883831/2024/10/29/ravens-trade-diontae-johnson-panthers/

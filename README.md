@@ -1,7 +1,3 @@
-**Amid Backlash, Trump Claims No President Has Done More for Puerto Rico Than He Has**\
-`The former president made the claim at a round-table discussion in Pennsylvania on Tuesday, days after a comic disparaged Puerto Rico during Sunday’s Trump rally in New York.`\
-https://nytimes.com/2024/10/29/us/politics/trump-puerto-rico-madison-square-garden-pennsylvania.html
-
 **Ravens' acquisition of Diontae Johnson spurs 2 reactions: Why not, and what's next?**\
 `Baltimore will owe Johnson roughly $625,000 for the rest of the season, making it a risk worth taking on a receiver with big-play potential.`\
 https://nytimes.com/athletic/5883831/2024/10/29/ravens-trade-diontae-johnson-panthers/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/29/us/politics/trump-harris-election-closing-argumen
 **A disability rights group hits Trump with ads featuring his nephew.**\
 `In a new ad in Pennsylvania, Fred Trump III says his uncle Donald J. Trump suggested disabled people should “just die.” Another ad highlights Kamala Harris’s plan for coverage of at-home care.`\
 https://nytimes.com/live/2024/10/29/us/harris-trump-election/a-disability-rights-group-hits-trump-with-ads-featuring-his-nephew
+
+**Ex-Leader of Black Transgender Group Is Charged With Stealing Its Money**\
+`After Dominique Morgan said her group would start a bail fund for poor defendants, she instead took nearly $100,000 for personal expenses, prosecutors said.`\
+https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.html
 
