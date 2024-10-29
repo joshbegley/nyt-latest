@@ -1,3 +1,15 @@
+**Advancing Hope in the Fight Against Cancer**\
+`How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas`\
+https://nytimes.com/paidpost/breyanzi/advancing-hope-in-the-fight-against-cancer.html
+
+**Diontae Johnson trade grades: Ravens load up for Super Bowl run; Panthers focus on future**\
+`Ravens QB Lamar Jackson has a strong chance to win his third MVP award this season, but he needed the reinforcements.`\
+https://nytimes.com/athletic/5883316/2024/10/29/dionate-johnson-trade-grades-ravens-panthers/
+
+**Trump Media Stock Jumps Again as Traders Bet on Election**\
+`Shares of the Truth Social parent company continue to soar, pushing the market value of the firm above $10 billion.`\
+https://nytimes.com/2024/10/29/business/trump-media-stock-truth-social.html
+
 **Man Who Attacked Paul Pelosi Is Sentenced to Life in Prison**\
 `David DePape broke into the San Francisco home of Nancy Pelosi, the former speaker of the House, in 2022 and beat her husband with a hammer.`\
 https://nytimes.com/2024/10/29/us/man-attacked-paul-pelosi-sentenced-life-prison.html
