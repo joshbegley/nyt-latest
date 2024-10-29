@@ -1,3 +1,11 @@
+**Dozens Killed in Israeli Strikes in Eastern Lebanon, Lebanese Officials Say**\
+`The barrage of Israeli airstrikes in the Bekaa Valley on Monday night killed at least 60 people, officials said. It appeared to be the deadliest attack in the area since the war escalated last month.`\
+https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-lebanon-baalbek-bekaa-valley.html
+
+**West Virginia fires defensive coordinator Jordan Lesley**\
+`The Mountaineers head into their second idle week of the season ranked 13th in the Big 12 in yards per play.`\
+https://nytimes.com/athletic/5882647/2024/10/29/west-virginia-defensive-coordinator-jordan-lesley/
+
 **‘Hatred and Vitriol’ at the Trump Rally in New York**\
 `Readers react to the Trump rally at Madison Square Garden and a tragedy in Springfield, Ohio. Also: Gut feelings about the election; benefits of electric cars.`\
 https://nytimes.com/2024/10/29/opinion/trump-rally-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009778851/the-threats-to-the-presid
 **Nine thoughts on Notre Dame's 7-1 start: Is Riley Leonard following Jack Coan's arc?**\
 `Where does Notre Dame stand in the off week after blowing out Navy? What I think about Leonard, the offense and the Playoff path ahead.`\
 https://nytimes.com/athletic/5882454/2024/10/29/notre-dame-navy-playoff-riley-leonard/
-
-**'Our goal is to get there': Bucks loss to defending-champ Celtics highlights gap between the two**\
-`Despite a third consecutive loss, Giannis Antetokounmpo is trying to stay positive: "I believe we're going to keep on playing better."`\
-https://nytimes.com/athletic/5881972/2024/10/29/giannis-antetokounmpo-bucks-celtics/
-
-**The Bounce: Can Doc Rivers fix the broken Bucks?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5882202/2024/10/29/milwaukee-bucks-giannis-antetokounmpo-damian-lillard-paolo-banchero-orlando-magic-the-bounce-nba/
 

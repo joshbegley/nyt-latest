@@ -1,3 +1,7 @@
+**The Windup: Why this World Series has underwhelmed**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5882636/2024/10/29/world-series-dodgers-yankees-the-windup-2/
+
 **Dozens Killed in Israeli Strikes in Eastern Lebanon, Lebanese Officials Say**\
 `The barrage of Israeli airstrikes in the Bekaa Valley on Monday night killed at least 60 people, officials said. It appeared to be the deadliest attack in the area since the war escalated last month.`\
 https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-lebanon-baalbek-bekaa-valley.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/us/elections/election-results-worries.html
 **The Threats to The Presidential Election, Explained**\
 `Nick Corasaniti, a New York Times reporter covering voting, describes how the 2024 election could be complicated by litigation, disinformation and battles over certifying the vote.`\
 https://nytimes.com/video/us/elections/100000009778851/the-threats-to-the-presidential-election-explained.html
-
-**Nine thoughts on Notre Dame's 7-1 start: Is Riley Leonard following Jack Coan's arc?**\
-`Where does Notre Dame stand in the off week after blowing out Navy? What I think about Leonard, the offense and the Playoff path ahead.`\
-https://nytimes.com/athletic/5882454/2024/10/29/notre-dame-navy-playoff-riley-leonard/
 
