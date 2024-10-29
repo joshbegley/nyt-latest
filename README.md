@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5882695/2024/10/29/pwhl-womens-hockey-expansion-cit
 `After Mr. Hasan voiced support for Palestinians, the CNN guest, Ryan James Girdusky, said, “I hope your beeper doesn’t go off.”`\
 https://nytimes.com/2024/10/29/business/cnn-pager-comment-mehdi-hasan.html
 
-**Arteta, Mourinho comparison and what it says about Arsenal's style**\
+**Arteta, the Mourinho comparison and what it says about Arsenal's style**\
 `Jamie Carragher was just the latest to make what Arsenal fans would consider an unflattering comparison - it is not entirely without merit`\
 https://nytimes.com/athletic/5882850/2024/10/29/arteta-mourinho-arsenal/
 

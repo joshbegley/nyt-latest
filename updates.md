@@ -1,3 +1,7 @@
+**NFL Offensive Rookie of the Year odds: Jayden Daniels will be tough to catch now**\
+`With his viral Week 8 performance, Jayden Daniels cemented himself as the favorite for OROY. Can anyone challenge him?`\
+https://nytimes.com/athletic/5882816/2024/10/29/nfl-offensive-rookie-of-the-year-odds-jayden-daniels/
+
 **Newcastle sign Georgian teenager Salia**\
 `Newcastle United have completed the signing of 17-year-old Georgian forward Vakhtang Salia.`\
 https://nytimes.com/athletic/5790604/2024/10/29/newcastle-united-vakhtang-salia/

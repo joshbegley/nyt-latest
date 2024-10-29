@@ -1,3 +1,7 @@
+**NFL Offensive Rookie of the Year odds: Jayden Daniels will be tough to catch now**\
+`With his viral Week 8 performance, Jayden Daniels cemented himself as the favorite for OROY. Can anyone challenge him?`\
+https://nytimes.com/athletic/5882816/2024/10/29/nfl-offensive-rookie-of-the-year-odds-jayden-daniels/
+
 **Newcastle sign Georgian teenager Salia**\
 `Newcastle United have completed the signing of 17-year-old Georgian forward Vakhtang Salia.`\
 https://nytimes.com/athletic/5790604/2024/10/29/newcastle-united-vakhtang-salia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882850/2024/10/29/arteta-mourinho-arsenal/
 **What the PGA Tour's plan to reduce cards and field sizes means**\
 `A proposal obtained by The Athletic displays fairly radical changes to the PGA Tour setup.`\
 https://nytimes.com/athletic/5882755/2024/10/29/pga-tour-card-field-sizes/
-
-**Rudy Gay retires after 17 NBA seasons**\
-`Born in Brooklyn, New York and drafted eighth overall in 2006, Gay played for five teams in his 17 seasons spent in the NBA. `\
-https://nytimes.com/athletic/5882825/2024/10/29/rudy-gay-announces-retirement-from-nba/
 
