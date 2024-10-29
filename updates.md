@@ -1,3 +1,11 @@
+**How Russia, China and Iran Are Interfering in the Presidential Election**\
+`Eight years after Russia interfered in the 2016 presidential election, foreign influence with American voters has grown more sophisticated. That could have outsize consequences in the 2024 race.`\
+https://nytimes.com/2024/10/29/technology/election-interference-russia-china-iran.html
+
+**Quote of the Day: Village So Spooky, Even Skeptics Get the Jitters**\
+`Quotation of the Day for Tuesday, October 29, 2024`\
+https://nytimes.com/2024/10/28/pageoneplus/quote-of-the-day-village-so-spooky-even-skeptics-get-the-jitters.html
+
 **Mikael Pyyhtiä finally breaks through in Blue Jackets' 6-1 rout of Edmonton**\
 `A new lineup saw instant success and pregame premonitions paid off in a near-shutout of the Oilers.`\
 https://nytimes.com/athletic/5881524/2024/10/28/blue-jackets-mikael-pyyhtia-edmonton/
