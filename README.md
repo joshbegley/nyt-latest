@@ -1,3 +1,11 @@
+**How Russia, China and Iran Are Interfering in the Presidential Election**\
+`Eight years after Russia interfered in the 2016 presidential election, foreign influence with American voters has grown more sophisticated. That could have outsize consequences in the 2024 race.`\
+https://nytimes.com/2024/10/29/technology/election-interference-russia-china-iran.html
+
+**Quote of the Day: Village So Spooky, Even Skeptics Get the Jitters**\
+`Quotation of the Day for Tuesday, October 29, 2024`\
+https://nytimes.com/2024/10/28/pageoneplus/quote-of-the-day-village-so-spooky-even-skeptics-get-the-jitters.html
+
 **Mikael Pyyhtiä finally breaks through in Blue Jackets' 6-1 rout of Edmonton**\
 `A new lineup saw instant success and pregame premonitions paid off in a near-shutout of the Oilers.`\
 https://nytimes.com/athletic/5881524/2024/10/28/blue-jackets-mikael-pyyhtia-edmonton/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/technology/voter-fraud-poll-workers-sharpie.html
 **Election Fraud Falsehoods Are Spreading. Here’s What to Watch For.**\
 ``\
 https://nytimes.com/live/2024/10/28/business/voter-fraud-election-fact-check
-
-**Vivek Ramaswamy Has a Different Vision for Trumpism From JD Vance**\
-`Vivek Ramaswamy Has a Different Vision for Trumpism From JD Vance`\
-https://nytimes.com/video/opinion/100000009788925/vivek-ramaswamy-has-a-different-vision-for-trumpism-from-jd-vance.html
-
-**Jazz's Taylor Hendricks stretchered off court with right leg injury**\
-`Hendricks' right leg appeared to give out and he collapsed to the ground late in the third quarter.`\
-https://nytimes.com/athletic/5881480/2024/10/28/taylor-hendricks-leg-injury-jazz/
 
