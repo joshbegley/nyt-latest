@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5882799/2024/10/29/nfl-best-bets-week-9-commanders-
 `The Lions' odds to win the Super Bowl have consistently improved every week. We break down risers and fallers before Week 9.`\
 https://nytimes.com/athletic/5882671/2024/10/29/super-bowl-odds-week-9-chiefs-lions-bills/
 
-**WTA Finals draw: Swiatek and Gauff meet, Sabalenka faces Rybakina**\
+**WTA Finals draw: Swiatek and Gauff meet, Sabalenka faces Zheng and Rybakina**\
 `The season-ending event sees Sabalenka and Swiatek battle for year-end world No. 1 for the second year in a row`\
 https://nytimes.com/athletic/5882196/2024/10/29/wta-finals-draw-sabalenka-swiatek-gauff-riyadh/
 
