@@ -1,3 +1,7 @@
+**With Limited Options, Zelensky Seeks a Path Forward for Ukraine**\
+`A muted response to Ukraine’s “victory plan” and steep challenges on the battlefield leave Kyiv searching for a Plan B.`\
+https://nytimes.com/2024/10/29/world/europe/ukraine-zelensky-russia-war.html
+
 **City confirm Sjogran as new women's director of football**\
 `Manchester City have confirmed the appointment of Therese Sjogran as their new women’s director of football.`\
 https://nytimes.com/athletic/5881958/2024/10/29/therese-sjogran-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/us/elections/trump-foreign-business-presidency-co
 **An Apartment in the Center of Paris, Inspired by Venice**\
 `A couple who own an interior design firm found a residence that could also serve as a showroom for their work.`\
 https://nytimes.com/2024/10/29/realestate/an-apartment-in-the-center-of-paris-inspired-by-venice.html
-
-**That Revolting Rally Was a Sign of Weakness**\
-`Reminder: Trump is not the world spirit incarnate.`\
-https://nytimes.com/2024/10/29/opinion/that-revolting-rally-was-a-sign-of-weakness.html
 

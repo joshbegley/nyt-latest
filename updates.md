@@ -1,3 +1,7 @@
+**With Limited Options, Zelensky Seeks a Path Forward for Ukraine**\
+`A muted response to Ukraine’s “victory plan” and steep challenges on the battlefield leave Kyiv searching for a Plan B.`\
+https://nytimes.com/2024/10/29/world/europe/ukraine-zelensky-russia-war.html
+
 **City confirm Sjogran as new women's director of football**\
 `Manchester City have confirmed the appointment of Therese Sjogran as their new women’s director of football.`\
 https://nytimes.com/athletic/5881958/2024/10/29/therese-sjogran-manchester-city/
