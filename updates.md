@@ -1,3 +1,15 @@
+**Buehler, Dodgers one win away after stifling Yankees in Game 3: Takeaways**\
+`The Dodgers stormed to a 4-2 victory and a three games to none lead in the 120th World Series.`\
+https://nytimes.com/athletic/5881506/2024/10/28/dodgers-yankees-world-series-game-3-takeaways/
+
+**Dodgers dominate Yankees to move within 1 win of World Series victory**\
+`The hype last week has given way to reality: Only one club has demonstrated championship mettle thus far. `\
+https://nytimes.com/athletic/5881606/2024/10/28/dodgers-yankees-world-series-game-3-score/
+
+**Steelers down Giants, 26-18, after second-half surge: Key takeaways**\
+`Through the first seven weeks, Pittsburgh ranks first in scoring defense and second in scoring offense in the final two quarters.`\
+https://nytimes.com/athletic/5881071/2024/10/28/mnf-giants-steelers-monday-night-fooball-score-takeaways/
+
 **Maple Leafs report cards: John Tavares' hat trick helps the Leafs end Jets' streak**\
 `Tavares led the way as the Leafs bounced back in emphatic fashion to defeat the Jets 6-4.`\
 https://nytimes.com/athletic/5881554/2024/10/28/maple-leafs-report-cards-tavares-hat-trick-jets/
