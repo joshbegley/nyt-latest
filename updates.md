@@ -1,3 +1,7 @@
+**Advancing Hope in the Fight Against Cancer**\
+`How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas`\
+https://nytimes.com/paidpost/breyanzi/advancing-hope-in-the-fight-against-cancer.html
+
 **Diontae Johnson trade grades: Ravens load up for Super Bowl run; Panthers focus on future**\
 `Ravens QB Lamar Jackson has a strong chance to win his third MVP award this season, but he needed the reinforcements.`\
 https://nytimes.com/athletic/5883316/2024/10/29/diontae-johnson-trade-grades-ravens-panthers/
