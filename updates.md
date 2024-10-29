@@ -1,3 +1,7 @@
+**Elon Musk Sees Trump’s Economic Plans Causing ‘Temporary Hardship’**\
+`Mr. Musk agreed with an X post saying there would be an “initial severe overreaction in the economy” before returning to sustainable growth if Mr. Trump is elected and follows through on his plans.`\
+https://nytimes.com/2024/10/29/us/politics/elon-musk-trump-economy-hardship.html
+
 **Jaywalking Is a New York Tradition. Now It’s Legal, Too.**\
 `New Yorkers can cross the street wherever they please without fear of a summons. Some fear the new law could lead to more pedestrian deaths.`\
 https://nytimes.com/2024/10/29/nyregion/jaywalking-legal-law-nyc.html
