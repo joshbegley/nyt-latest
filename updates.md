@@ -1,3 +1,11 @@
+**Despite Covid ‘Amnesia,’ the Pandemic Simmers Beneath the 2024 Race**\
+`Dueling Trump and Harris rallies outside Atlanta offer a case study in how anger and anxiety over Covid-19, a proxy for the larger debate over trust in government, have shaped the 2024 race.`\
+https://nytimes.com/2024/10/29/us/politics/trump-harris-covid-rfk-vaccines.html
+
+**A Month’s Worth of Rain Falls in a Single Day in Parts of Spain**\
+`The deluge flooded streets, breached rivers and destroyed crops along the Mediterranean coast. There could be more rain still to come.`\
+https://nytimes.com/2024/10/29/world/europe/rain-spain-cold-drop-dana.html
+
 **Is There a Moral Choice for Catholic Voters?**\
 `Why are we being asked to choose between the lesser of two evils?`\
 https://nytimes.com/2024/10/29/opinion/catholic-third-party.html
