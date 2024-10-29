@@ -1,3 +1,19 @@
+**Au Pair Pleads Guilty to Manslaughter in Double Homicide**\
+`As part of a plea agreement, Juliana Peres Magalhães, 24, has agreed to cooperate with prosecutors, who have charged her ex-lover with murdering his wife and another man in 2023.`\
+https://nytimes.com/2024/10/29/us/juliana-peres-magalhaes-au-pair-guilty-plea.html
+
+**John Gierach, Fly Fishing Author With Wit and Wisdom, Dies at 77**\
+`Writing for anglers and amateurs alike, he found that the sport can reveal as much about people as it does about fish.`\
+https://nytimes.com/2024/10/29/books/john-gierach-dead.html
+
+**Judge Tosses Republican Suit Over Military and Overseas Ballots in Pennsylvania**\
+`A judge said six Republican members of the state’s congressional delegation could not rely on “phantom fears of foreign malfeasance” to justify initiating a legal action so close to Election Day.`\
+https://nytimes.com/2024/10/29/us/politics/pennsylvania-overseas-military-ballots.html
+
+**Harris Is Trying to Win Voters by Laying Out the Alternative**\
+`Also, Teri Garr found the soul in memorable ditsy blondes. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/10/29/briefing/harris-closing-speech-war-games-us-china.html
+
 **What Are the Implications of Israel Banning UNRWA?**\
 `Humanitarian agencies fear the new Israeli laws could have catastrophic effects for Gazans. They are already drawing sharp criticism from Israel’s allies.`\
 https://nytimes.com/2024/10/29/world/middleeast/israel-gaza-unrwa-ban.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5883666/2024/10/29/panthers-trade-diontae-johnson-r
 **Until Saturday: The biggest bargain coach, plus a tight Heisman race**\
 `Welcome to Until Saturday, the five-star college football newsletter: Curt Cignetti is a big bargain, while Kirby Smart has the top salary.`\
 https://nytimes.com/athletic/5882066/2024/10/29/curt-cignetti-heisman-trophy-race-until-saturday/
-
-**Wednesday Briefing: Trump’s Worrisome Business Deals**\
-`Plus, what happened to repatriated art in Benin.`\
-https://nytimes.com/2024/10/29/briefing/trump-business-gaza-us-china.html
-
-**Israel Hits Gaza Town for Third Time in Days, Killing Dozens, Officials Say**\
-`Gazan agencies said that children were among those killed in the strike in Beit Lahia. A U.S. State Department spokesman called the strike “a horrifying incident with a horrifying result.”`\
-https://nytimes.com/2024/10/29/world/middleeast/israel-gaza-beit-lahia.html
-
-**Diontae Johnson trade grades: Ravens load up for Super Bowl run; Panthers focus on future**\
-`Ravens QB Lamar Jackson has a strong chance to win his third MVP award this season, but he needed the reinforcements.`\
-https://nytimes.com/athletic/5883316/2024/10/29/diontae-johnson-trade-grades-ravens-panthers/
-
-**Advancing Hope in the Fight Against Cancer**\
-`How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas`\
-https://nytimes.com/paidpost/breyanzi/advancing-hope-in-the-fight-against-cancer.html
 
