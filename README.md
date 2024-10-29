@@ -1,3 +1,7 @@
+**Steelers down Giants, 26-18, after second-half surge: Key takeaways**\
+`Through the first seven weeks, Pittsburgh ranks first in scoring defense and second in scoring offense in the final two quarters.`\
+https://nytimes.com/athletic/5881071/2024/10/28/mnf-giants-steelers-monday-night-fooball-score-takeaways/
+
 **Maple Leafs report cards: John Tavares' hat trick helps the Leafs end Jets' streak**\
 `Tavares led the way as the Leafs bounced back in emphatic fashion to defeat the Jets 6-4.`\
 https://nytimes.com/athletic/5881554/2024/10/28/maple-leafs-report-cards-tavares-hat-trick-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/crosswords/daily-puzzle-2024-10-29.html
 **'MNF' to air 'Simpsons' broadcast for Bengals-Cowboys in Week 14**\
 `“The Simpsons Funday Football,” as it is officially called, will air on ESPN+ and Disney+.`\
 https://nytimes.com/athletic/5881010/2024/10/28/simpsons-monday-night-football-cowboys-bengals/
-
-**Trump Attacks Michelle Obama, Days After She Criticized Him**\
-`At a rally in Atlanta, Donald Trump called the former first lady a “hater,” in response to her comments saying he had displayed “erratic behavior” and “obvious mental decline.”`\
-https://nytimes.com/2024/10/28/us/politics/trump-michelle-obama.html
 
