@@ -1,3 +1,11 @@
+**What Are the Implications of Israel Banning UNRWA?**\
+`Humanitarian agencies fear the new Israeli laws could have catastrophic effects for Gazans. They are already drawing sharp criticism from Israel’s allies.`\
+https://nytimes.com/2024/10/29/world/middleeast/israel-gaza-unrwa-ban.html
+
+**Israeli Airstrikes in Lebanon’s Bekaa Valley Kill Dozens, Officials Say**\
+`The Baalbek district beared the brunt of Israel’s barrage, which officials said killed at least 60 people in the Bekaa Valley, in eastern Lebanon.`\
+https://nytimes.com/video/world/middleeast/100000009791095/lebanon-baalbek-bekaa-israel.html
+
 **Is Trump a Fascist? This Time, Mayor Adams Dodges the Question.**\
 `Mayor Eric Adams of New York City bristled at questions about the former president and said there was a need to “turn down the rhetoric.”`\
 https://nytimes.com/2024/10/29/nyregion/adams-trump-fascist-msg.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5883316/2024/10/29/diontae-johnson-trade-grades-rav
 **Advancing Hope in the Fight Against Cancer**\
 `How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas`\
 https://nytimes.com/paidpost/breyanzi/advancing-hope-in-the-fight-against-cancer.html
-
-**Trump Media Stock Jumps Again as Traders Bet on Election**\
-`Shares of the Truth Social parent company continue to soar, pushing the market value of the firm above $10 billion.`\
-https://nytimes.com/2024/10/29/business/trump-media-stock-truth-social.html
-
-**Man Who Attacked Paul Pelosi Is Sentenced to Life in Prison**\
-`David DePape broke into the San Francisco home of Nancy Pelosi, the former speaker of the House, in 2022 and beat her husband with a hammer.`\
-https://nytimes.com/2024/10/29/us/man-attacked-paul-pelosi-sentenced-life-prison.html
 

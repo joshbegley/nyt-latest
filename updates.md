@@ -1,3 +1,11 @@
+**Is Trump a Fascist? This Time, Mayor Adams Dodges the Question.**\
+`Mayor Eric Adams of New York City bristled at questions about the former president and said there was a need to “turn down the rhetoric.”`\
+https://nytimes.com/2024/10/29/nyregion/adams-trump-fascist-msg.html
+
+**Trump Ad Claims Harris Will ‘Doom Medicare’**\
+`With older Americans making up a major share of voters in battleground states, the Trump campaign casts Kamala Harris as a threat to programs that benefit them.`\
+https://nytimes.com/2024/10/29/us/politics/trump-ad-medicare.html
+
 **Person: Panthers knew what they were getting in Diontae Johnson, who was true to form**\
 `Johnson returns to the AFC North with the Ravens, who 10 years ago acquired a Panthers receiver in their bid to win another Super Bowl.`\
 https://nytimes.com/athletic/5883666/2024/10/29/panthers-trade-diontae-johnson-ravens/
