@@ -1,3 +1,7 @@
+**How the Canucks' early-season win streak ended vs. the Hurricanes: 3 takeaways**\
+`Carolina narrowly held off a furious Canucks rally Monday on its way to a 4-3 victory in overtime at Rogers Arena.`\
+https://nytimes.com/athletic/5881683/2024/10/29/canucks-early-season-win-streak-ends-vs-hurricanes/
+
 **Robertson has had tough moments but now is not time to write him off**\
 `Andy Robertson has endured tricky moments in his last two games for Liverpool`\
 https://nytimes.com/athletic/5880078/2024/10/29/andy-robertson-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5844423/2024/10/29/pierre-bolangi-tragedy-charlton/
 **Why Aitana Bonmati is the world's most interesting footballer**\
 `There are world-class footballers who are just very good at football. Then there are some who feel like they might genuinely change the game`\
 https://nytimes.com/athletic/5879853/2024/10/29/aitana-bonmati-ballon-dor/
-
-**Damien Duff, the manager: Only Fools and Horses, a teenage disco and one win from a first league title**\
-`The former Blackburn, Chelsea and Ireland winger has taken the Dublin club Shelbourne within touching distance of a first title since 2006`\
-https://nytimes.com/athletic/5879617/2024/10/29/duff-shelbourne-manager-ireland-title/
 

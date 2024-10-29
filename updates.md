@@ -1,3 +1,7 @@
+**How the Canucks' early-season win streak ended vs. the Hurricanes: 3 takeaways**\
+`Carolina narrowly held off a furious Canucks rally Monday on its way to a 4-3 victory in overtime at Rogers Arena.`\
+https://nytimes.com/athletic/5881683/2024/10/29/canucks-early-season-win-streak-ends-vs-hurricanes/
+
 **Robertson has had tough moments but now is not time to write him off**\
 `Andy Robertson has endured tricky moments in his last two games for Liverpool`\
 https://nytimes.com/athletic/5880078/2024/10/29/andy-robertson-liverpool/
