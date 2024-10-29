@@ -1,3 +1,7 @@
+**‘Hatred and Vitriol’ at the Trump Rally in New York**\
+`Readers react to the Trump rally at Madison Square Garden and a tragedy in Springfield, Ohio. Also: Gut feelings about the election; benefits of electric cars.`\
+https://nytimes.com/2024/10/29/opinion/trump-rally-new-york.html
+
 **Gnocchi’s Crispy — Let’s Eat**\
 `“I’m always impressed with simple recipes that taste this good.”`\
 https://nytimes.com/2024/10/29/dining/gnocchis-crispy-lets-eat.html
