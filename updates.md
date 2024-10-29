@@ -1,3 +1,15 @@
+**'Superhero' Freddie Freeman shining in World Series filled with future Hall of Famers**\
+`With possibly eight future Hall of Famers, this Series is in a special category. But Freeman, even on a bad ankle, is stealing the show. `\
+https://nytimes.com/athletic/5881935/2024/10/29/dodgers-yankees-world-series-freddie-freeman-hall-of-fame/
+
+**Which prospects will Twins protect from Rule 5 draft? Must-adds and tough calls**\
+`Here are the most prominent Twins prospects who will be eligible for the Rule 5 draft if they aren't added to the 40-man roster by Nov. 19.`\
+https://nytimes.com/athletic/5875902/2024/10/29/minnesota-twins-roster-rule-5-draft/
+
+**How the Dodgers' Walker Buehler found himself in October**\
+`Buehler was supposed to be a shell of his former dominant self, but the World Series stage conjured up his best stuff.`\
+https://nytimes.com/athletic/5881824/2024/10/29/dodgers-yankees-world-series-walker-buehler/
+
 **On the Ballot: An Immigration System Most Americans Never Wanted**\
 `The complicated history of trade-offs and compromises behind U.S. border control.`\
 https://nytimes.com/2024/10/29/podcasts/the-daily/election-immigration.html
