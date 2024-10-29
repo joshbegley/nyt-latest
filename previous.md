@@ -1,3 +1,7 @@
+**Sinner out of Paris Masters with illness**\
+`The world No. 1 will aim to return for the season-ending Tour Finals in Turin.`\
+https://nytimes.com/athletic/5882084/2024/10/29/jannik-sinner-paris-masters-out/
+
 **McDonald’s Focus on Value Bolsters U.S. Sales**\
 `The fast-food giant’s earnings results did not reflect the potential fallout from an E. coli outbreak that the company has moved quickly to contain.`\
 https://nytimes.com/2024/10/29/business/mcdonalds-earnings-e-coli-outbreak-sales.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/podcasts/the-daily/election-immigration.html
 **Tyrique Stevenson, Matt Eberflus deserve blame for Bears' Washington debacle: 5 takeaways**\
 `Stevenson's actions warrant consequences and Eberflus' bad losses could give GM Ryan Poles something to think about heading into 2025.`\
 https://nytimes.com/athletic/5880828/2024/10/29/bears-tyrique-stevenson-matt-eberflus-hail-mary/
-
-**Chiefs offense puts the defense in another impossible situation? No problem**\
-`A goal-line stand against the Raiders was just the latest example of Kansas City's ultra-confident defense bailing out the offense.`\
-https://nytimes.com/athletic/5881087/2024/10/29/chiefs-defense-saves-offense-raiders/
 
