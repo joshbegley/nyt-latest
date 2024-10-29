@@ -1,3 +1,19 @@
+**Teen Accused in U.K. Dance Class Stabbing Charged With Terror Offenses**\
+`The police said that they found Ricin and an Al Qaeda training manual in the suspect’s home. The attack on little girls at a Taylor Swift-themed event stoked anti-immigrant sentiment.`\
+https://nytimes.com/2024/10/29/world/europe/southport-stabbing-terror-charges-ricin-al-qaeda.html
+
+**One Defendant Accepts a Plea Deal Amid Young Thug’s RICO Trial**\
+`Prosecutors have accused the star Atlanta rapper of leading a gang in the longest trial in Georgia history. The case has been further delayed by plea negotiations.`\
+https://nytimes.com/2024/10/29/arts/music/young-thug-trial-plea-deal.html
+
+**Atlanta United's Dax McCarty not scared to face Lionel Messi, Inter Miami**\
+`Atlanta United midfielder Dax McCarty called on his teammates to not fear Lionel Messi and Inter Miami before the two clubs face each other on Saturday night in Atlanta.`\
+https://nytimes.com/athletic/5883101/2024/10/29/atlanta-united-dax-mccarty-lionel-messi/
+
+**Teri Garr Found the Soul in Memorable Ditsy Blondes**\
+`In “Tootsie,” “After Hours” and other films, she played truly unhinged characters while also layering in sadness or drama.`\
+https://nytimes.com/2024/10/29/movies/teri-garr-tootsie-young-frankenstein.html
+
 **Women's professional baseball league to debut in 2026**\
 `The Women’s Pro Baseball League will feature six teams, based in the northeastern United States.`\
 https://nytimes.com/athletic/5883196/2024/10/29/women-baseball-league-debut-united-states-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/29/dining/passerine-restaurant-opening-flatiron.html
 **Despite Covid ‘Amnesia,’ the Pandemic Simmers Beneath the 2024 Race**\
 `Dueling Trump and Harris rallies outside Atlanta offer a case study in how anger and anxiety over Covid-19, a proxy for the larger debate over trust in government, have shaped the 2024 race.`\
 https://nytimes.com/2024/10/29/us/politics/trump-harris-covid-rfk-vaccines.html
-
-**A Month’s Worth of Rain Falls in a Single Day in Parts of Spain**\
-`The deluge flooded streets, breached rivers and destroyed crops along the Mediterranean coast. There could be more rain still to come.`\
-https://nytimes.com/2024/10/29/world/europe/rain-spain-cold-drop-dana.html
-
-**Why Is Harris So Passionate About Abortion Rights? Her Past Work Holds Clues.**\
-`For a politician who has been criticized for shifting positions on some issues, this is an area where she has shown unwavering conviction.`\
-https://nytimes.com/2024/10/29/health/kamala-harris-abortion-rights.html
-
-**Colts bench QB Anthony Richardson, will start Joe Flacco in Week 9**\
-`Coach Shane Steichen was noncommittal Monday when asked whether or not Anthony Richardson would remain his team’s starting QB this week.`\
-https://nytimes.com/athletic/5883122/2024/10/29/joe-flacco-starter-colts-anthony-richardson/
-
-**After the death of their coach, USF basketball is carrying on**\
-`Amir Abdur-Rahim died last week at age 43 due to complications during a medical procedure.`\
-https://nytimes.com/athletic/5882972/2024/10/29/usf-basketball-amir-abdur-rahim-death/
 
