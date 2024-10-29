@@ -36,5 +36,5 @@ https://nytimes.com/2024/10/29/us/politics/elon-musk-pac-harris-videos.html
 
 **How Trump Exploits Divisions Among Black and Latino Voters**\
 `Donald J. Trump’s anti-immigrant message is exposing longstanding tensions and challenging Democrats’ hopes for solidarity.`\
-https://nytimes.com/2024/10/29/us/politics/how-trump-exploits-divisions-among-black-and-latino-voters.html
+https://nytimes.com/2024/10/29/us/politics/trump-black-latino-voters.html
 
