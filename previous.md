@@ -1,3 +1,7 @@
+**Teri Garr, Comic Actress in Offbeat Roles, Is Dead at 79**\
+`An Oscar nominee for her role in “Tootsie,” she was also a favorite guest of David Letterman and Johnny Carson and a three-time host of “Saturday Night Live.”`\
+https://nytimes.com/2024/10/29/arts/teri-garr-dead.html
+
 **Is There a Moral Choice for Catholic Voters?**\
 `Why are we being asked to choose between the lesser of two evils?`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/catholic-third-party
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882848/2024/10/29/nfl-mvp-odds-breakdown-josh-alle
 **In ‘Empty Beds,’ a Stark Reminder of War’s Youngest Victims**\
 `A mural spanning an entire city block in Manhattan symbolizes the thousands of Ukrainian children who have been taken by Russian forces.`\
 https://nytimes.com/2024/10/29/arts/design/empty-beds-little-ukraine-exhibition.html
-
-**Two Horror Authors on the Scary Books You Should Read**\
-`Stephen Graham Jones and Joe Hill with their recommendations for this Halloween season.`\
-https://nytimes.com/2024/10/29/books/review/joe-hill-stephen-graham-jones-horror-recommendations.html
 

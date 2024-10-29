@@ -1,3 +1,7 @@
+**Teri Garr, Comic Actress in Offbeat Roles, Is Dead at 79**\
+`An Oscar nominee for her role in “Tootsie,” she was also a favorite guest of David Letterman and Johnny Carson and a three-time host of “Saturday Night Live.”`\
+https://nytimes.com/2024/10/29/arts/teri-garr-dead.html
+
 **Is There a Moral Choice for Catholic Voters?**\
 `Why are we being asked to choose between the lesser of two evils?`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/catholic-third-party

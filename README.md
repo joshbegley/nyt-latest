@@ -1,3 +1,7 @@
+**Real Madrid deny responsibility in dispute with Bernabeu residents over noise complaints**\
+`Real Madrid claim they are not responsible for ensuring noise levels from music concerts staged at the Santiago Bernabeu do not break municipal regulations, as part of an ongoing legal battle with local residents.`\
+https://nytimes.com/athletic/5882932/2024/10/29/real-madrid-residents-legal-case-bernabeu/
+
 **Teri Garr, Comic Actress in Offbeat Roles, Is Dead at 79**\
 `An Oscar nominee for her role in “Tootsie,” she was also a favorite guest of David Letterman and Johnny Carson and a three-time host of “Saturday Night Live.”`\
 https://nytimes.com/2024/10/29/arts/teri-garr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882820/2024/10/29/real-sociedad-ajax-europa-league
 **NFL MVP odds breakdown: Josh Allen has edge in three-man race**\
 `The NFL MVP is looking like a three-quarterback race, but which one is most likely to separate from the pack?`\
 https://nytimes.com/athletic/5882848/2024/10/29/nfl-mvp-odds-breakdown-josh-allen/
-
-**In ‘Empty Beds,’ a Stark Reminder of War’s Youngest Victims**\
-`A mural spanning an entire city block in Manhattan symbolizes the thousands of Ukrainian children who have been taken by Russian forces.`\
-https://nytimes.com/2024/10/29/arts/design/empty-beds-little-ukraine-exhibition.html
 
