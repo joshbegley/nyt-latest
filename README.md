@@ -1,3 +1,20 @@
+**The World’s Doomsday Plant Vault Gets Thousands of New Seeds**\
+`A storage facility in Norway built to safeguard crop diversity recently received more than 30,000 samples as concerns grow about climate change and food insecurity.`\
+https://nytimes.com/2024/10/29/world/europe/svalbard-seed-vault-deposit-climate.html
+
+**Penguins Today: Marc-André Fleury gets his flowers**\
+`Good morning, Penguins fans!
+Tonight is Marc-André Fleury’s final return to Pittsburgh as a player.`\
+https://nytimes.com/athletic/5882462/2024/10/29/penguins-today-marc-andre-fleury-night/
+
+**Harris’s Closing Argument: Turn the Page on Trump, and Avert Chaos**\
+`In a speech in Washington where organizers are planning for up to 40,000 attendees, she will argue that she represents generational change. But her rival will remain at the spine of her case.`\
+https://nytimes.com/2024/10/29/us/politics/harris-speech-ellipse-trump.html
+
+**Trump’s Environmental Claims Ignore Decades of Climate Science**\
+`The former president says he wants “clean air and clean water,” but he has rolled back environmental rules and dismissed the scientific consensus on climate change.`\
+https://nytimes.com/2024/10/29/climate/donald-trump-climate-change-claims.html
+
 **Fantasy football: Who to drop in Week 9? Anthony Richardson, for one**\
 `Anthony Richardson believes he is a "great passer." The numbers, and our eyes, say otherwise.`\
 https://nytimes.com/athletic/5882391/2024/10/29/fantasy-football-who-to-drop-in-week-9-anthony-richardson-for-one/
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/5870047/2024/10/29/nfl-trade-deadline-2024-date/
 **Vatican Issues First Report on Sex Abuse, to Immediate Criticism**\
 `The report is intended to assess efforts by the Roman Catholic Church to safeguard minors and others. Advocates for survivors called it an exercise in obfuscation.`\
 https://nytimes.com/2024/10/29/world/europe/vatican-sex-abuse-report.html
-
-**BP Profit Falls, but It Still Sees ‘Potential to Grow’ in Oil and Gas**\
-`The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principal aim” was increasing earnings.`\
-https://nytimes.com/2024/10/29/business/bp-oil-gas-earnings.html
-
-**JJ Redick angry with himself after Lakers' first loss. His players love the passion**\
-`A rare off night from LeBron James and a blown lead against the Suns kept the Lakers from a 4-0 start.`\
-https://nytimes.com/athletic/5881473/2024/10/29/jj-redick-lakers-loss-suns/
-
-**Cowboys Today: How many wins will Dallas finish with this season?**\
-`The Cowboys have a brutal four-game stretch ahead and a key stat that explains a lot of this season's frustrations.`\
-https://nytimes.com/athletic/5881778/2024/10/29/cowboys-today-win-total-turnover-margin/
-
-**A Rural Missouri Town Fights Big Tech, and Itself**\
-`Residents of Peculiar battled developers and some of their local officials to keep a giant data center out of their community.`\
-https://nytimes.com/2024/10/29/technology/data-center-peculiar-missouri.html
 
