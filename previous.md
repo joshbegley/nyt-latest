@@ -1,3 +1,7 @@
+**Maple Leafs report cards: John Tavares' hat trick helps the Leafs end Jets' streak**\
+`Tavares led the way as the Leafs bounced back in emphatic fashion to defeat the Jets 6-4.`\
+https://nytimes.com/athletic/5881554/2024/10/28/maple-leafs-report-cards-tavares-hat-trick-jets/
+
 **No, noncitizens are not voting in droves.**\
 `Studies have shown that noncitizen voting is essentially nonexistent in federal elections in the United States.`\
 https://nytimes.com/2024/10/28/technology/noncitizen-voting-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881010/2024/10/28/simpsons-monday-night-football-c
 **Trump Attacks Michelle Obama, Days After She Criticized Him**\
 `At a rally in Atlanta, Donald Trump called the former first lady a “hater,” in response to her comments saying he had displayed “erratic behavior” and “obvious mental decline.”`\
 https://nytimes.com/2024/10/28/us/politics/trump-michelle-obama.html
-
-**Ford Foundation Gives $10 Million to Studio Museum in Harlem**\
-`The grant will support the museum’s director and chief curator, a position held for the last 20 years by Thelma Golden.`\
-https://nytimes.com/2024/10/28/arts/studio-museum-in-harlem.html
 

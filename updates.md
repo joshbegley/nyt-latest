@@ -1,3 +1,7 @@
+**Maple Leafs report cards: John Tavares' hat trick helps the Leafs end Jets' streak**\
+`Tavares led the way as the Leafs bounced back in emphatic fashion to defeat the Jets 6-4.`\
+https://nytimes.com/athletic/5881554/2024/10/28/maple-leafs-report-cards-tavares-hat-trick-jets/
+
 **No, noncitizens are not voting in droves.**\
 `Studies have shown that noncitizen voting is essentially nonexistent in federal elections in the United States.`\
 https://nytimes.com/2024/10/28/technology/noncitizen-voting-election.html
