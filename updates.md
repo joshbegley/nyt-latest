@@ -1,3 +1,7 @@
+**Israel Hits Gaza Town for Third Time in Days, Killing Dozens, Officials Say**\
+`Gazan agencies said that children were among those killed in the strike in Beit Lahia. A U.S. State Department spokesman called the strike “a horrifying incident with a horrifying result.”`\
+https://nytimes.com/2024/10/29/world/middleeast/israel-gaza-beit-lahia.html
+
 **Advancing Hope in the Fight Against Cancer**\
 `How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas`\
 https://nytimes.com/paidpost/breyanzi/advancing-hope-in-the-fight-against-cancer.html
