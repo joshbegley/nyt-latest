@@ -1,3 +1,11 @@
+**A Celebrated Pianist’s Final Recording, Made With His Son**\
+`Maurizio Pollini didn’t think his farewell on disc would be an album of music by Schubert with his son, Daniele. Now, it serves as an emotional coda.`\
+https://nytimes.com/2024/10/29/arts/music/maurizio-pollini-final-recording.html
+
+**New Vehicles, Face Paint and a 1,200-Foot Fall: The U.S. Army Prepares for War With China**\
+`The big and cumbersome Army is trying to transform itself to deploy quickly to Asia, if needed. It is an inherently dangerous business.`\
+https://nytimes.com/2024/10/29/us/politics/us-military-army-china.html
+
 **Your questions about The Times’s election coverage: Endorsing presidential candidates**\
 `Our journalists answer questions from readers.`\
 https://nytimes.com/2024/10/29/insider/your-questions-about-the-timess-election-coverage-endorsing-presidential-candidates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5882423/2024/10/29/maple-leafs-players-craig-berube
 **Ford Took an Early Lead in Electric Vehicles. Now G.M. is Surging.**\
 `Ford is struggling to make money on battery-powered models while General Motors, which started more slowly, says it is getting close to that goal.`\
 https://nytimes.com/2024/10/29/business/ford-general-motors-electric-vehicles.html
-
-**Six potential defensive trade targets for the Senators**\
-`In light of the Sens' defensive concerns, we've canvassed the league for potential stopgaps and evaluated whether or not they make sense.`\
-https://nytimes.com/athletic/5880258/2024/10/29/senators-trade-targets-liljegren-fowler/
-
-**Gabriel injury 'doesn't look bad at all', Arteta reveals**\
-`Mikel Arteta has indicated that Arsenal defender Gabriel has avoided serious injury.`\
-https://nytimes.com/athletic/5877460/2024/10/29/gabriel-injury-arsenal-update/
 
