@@ -1,3 +1,7 @@
+**Jazz's Taylor Hendricks stretchered off court with apparent leg injury**\
+`After Hendricks' injury, the game was delayed and he was stretched off the court.`\
+https://nytimes.com/athletic/5881480/2024/10/28/taylor-hendricks-leg-injury-jazz/
+
 **Paolo Banchero delivers 50-point performance as Magic beat Pacers**\
 `Banchero tallied a career-high 50 points, 13 rebounds and nine assists to lead Orlando to a 119-115 win over Indiana.`\
 https://nytimes.com/athletic/5881449/2024/10/28/paolo-banchero-scores-50-points-magic-pacers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/us/politics/harris-michigan-ann-arbor.html
 **Secret Files in Election Case Show How Judges Limited Trump’s Privilege**\
 `The partly unsealed rulings, orders and transcripts open a window on a momentous battle over grand jury testimony that played out in secret, creating important precedents about executive privilege.`\
 https://nytimes.com/2024/10/28/us/trump-election-case-secret-documents.html
-
-**Submit questions for ‘The Athletic NBA Daily’ podcast mailbag**\
-`The season is underway. What questions do you have for us?`\
-https://nytimes.com/athletic/5876560/2024/10/28/early-nba-questions-submit-them-for-the-athletic-nba-daily-podcast-mailbag/
 
