@@ -10,7 +10,7 @@ https://nytimes.com/2024/10/29/technology/alphabet-google-earnings.html
 `Law enforcement officials cautioned that they had not yet determined a motive for the Pacific Northwest arson fires. But the messages have heightened the sensitivity of the investigation.`\
 https://nytimes.com/2024/10/29/us/ballot-box-fires-portland-vancouver-gaza.html
 
-**Kevin Durant, Jaylen Brown highlight season 2 cast of 'The Starting 5'**\
+**Kevin Durant, Jaylen Brown highlight season 2 cast of 'Starting 5'**\
 `The new cast will also include Tyrese Haliburton and Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
 
