@@ -1,3 +1,11 @@
+**How Vinicius Junior was overlooked for the Ballon d'Or - and the anger it sparked at Real Madrid**\
+`The Brazilian was the favourite to be named men's best player for 2023-24 and there was shock in Madrid when they found out he would not win`\
+https://nytimes.com/athletic/5880874/2024/10/29/vinicius-junior-ballon-dor-real-madrid-anger/
+
+**The tragedy of Pierre Bolangi, the promising footballer who died on a pre-season Army camp**\
+`Remembering the young Charlton player who lost his life when a pre-season training exercise went horribly wrong`\
+https://nytimes.com/athletic/5844423/2024/10/29/pierre-bolangi-tragedy-charlton/
+
 **Why Aitana Bonmati is the world's most interesting footballer**\
 `There are world-class footballers who are just very good at football. Then there are some who feel like they might genuinely change the game`\
 https://nytimes.com/athletic/5879853/2024/10/29/aitana-bonmati-ballon-dor/
