@@ -1,3 +1,11 @@
+**The prosecutor seeking warrants for Israeli leaders dismisses misconduct accusations as ‘disinformation.’**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/the-prosecutor-seeking-warrants-for-israeli-leaders-dismisses-misconduct-accusations-as-disinformation
+
+**‘Bob’s Burgers’ Actor Sentenced to One Year in Prison for Role in Jan. 6 Riot**\
+`The actor, Jay Johnston, pleaded guilty in July to obstructing police during the riots at the Capitol on Jan. 6, 2021, according to prosecutors.`\
+https://nytimes.com/2024/10/28/us/jay-johnston-bobs-burgers-jan-6.html
+
 **Doug Emhoff Condemns Antisemitism as Democrats Court Jewish Voters**\
 `In a speech in Pittsburgh a day after the sixth anniversary of the Tree of Life shooting, he vouched for Kamala Harris’s commitment to Jewish security and issued a warning about Donald Trump.`\
 https://nytimes.com/2024/10/28/us/politics/doug-emhoff-antisemitism-speech-jewish-voters.html
