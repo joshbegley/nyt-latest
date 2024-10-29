@@ -1,3 +1,7 @@
+**Solange Knowles, Lester Holt and Darren Walker Honor the Studio Museum in Harlem**\
+`Artists, business executives and museum leaders turned out for the annual benefit, which raised more than $3.7 million for the museum.`\
+https://nytimes.com/2024/10/29/style/solange-knowles-lester-holt-studio-museum-harlem.html
+
 **Elon Musk Sees Trump’s Economic Plans Causing ‘Temporary Hardship’**\
 `Mr. Musk agreed with an X post saying there would be an “initial severe overreaction in the economy” before returning to sustainable growth if Mr. Trump is elected and follows through on his plans.`\
 https://nytimes.com/2024/10/29/us/politics/elon-musk-trump-economy-hardship.html

@@ -1,3 +1,7 @@
+**Solange Knowles, Lester Holt and Darren Walker Honor the Studio Museum in Harlem**\
+`Artists, business executives and museum leaders turned out for the annual benefit, which raised more than $3.7 million for the museum.`\
+https://nytimes.com/2024/10/29/style/solange-knowles-lester-holt-studio-museum-harlem.html
+
 **Elon Musk Sees Trump’s Economic Plans Causing ‘Temporary Hardship’**\
 `Mr. Musk agreed with an X post saying there would be an “initial severe overreaction in the economy” before returning to sustainable growth if Mr. Trump is elected and follows through on his plans.`\
 https://nytimes.com/2024/10/29/us/politics/elon-musk-trump-economy-hardship.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883682/2024/10/29/nba-amazon-nbc-media-deal/
 **Democrats Highlight Puerto Rico Insult on Billboards Near Trump Rally**\
 `The party invested in two digital highway billboards in Allentown, Pa., which has a significant Puerto Rican population.`\
 https://nytimes.com/2024/10/29/us/politics/trump-rally-puerto-rico-pennsylvania.html
-
-**NBA fines 76ers for misrepresenting statements regarding Embiid's absence**\
-`The NBA opened an investigation after Embiid missed the team’s season opener last week, which was televised nationally on ESPN.`\
-https://nytimes.com/athletic/5883840/2024/10/29/joel-embiid-nba-investigation-76ers-fined-statements/
 
