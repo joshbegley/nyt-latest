@@ -1,3 +1,19 @@
+**Why Is Harris So Passionate About Abortion Rights? Her Past Work Holds Clues.**\
+`For a politician who has been criticized for shifting positions on some issues, this is an area where she has shown unwavering conviction.`\
+https://nytimes.com/2024/10/29/health/kamala-harris-abortion-rights.html
+
+**Colts bench QB Anthony Richardson, will start Joe Flacco in Week 9**\
+`Coach Shane Steichen was noncommittal Monday when asked whether or not Anthony Richardson would remain his team’s starting QB this week.`\
+https://nytimes.com/athletic/5883122/2024/10/29/joe-flacco-starter-colts-anthony-richardson/
+
+**After the death of their coach, USF basketball is carrying on**\
+`Amir Abdur-Rahim died last week at age 43 due to complications during a medical procedure.`\
+https://nytimes.com/athletic/5882972/2024/10/29/usf-basketball-amir-abdur-rahim-death/
+
+**Big Ten taking no further action on Michigan-Michigan State scuffle**\
+`MSU had asked the Big Ten to look into the incident following the final whistle of Michigan’s 24-17 victory on Saturday.`\
+https://nytimes.com/athletic/5880358/2024/10/29/michigan-state-michigan-big-ten-review/
+
 **13 Scary Good Halloween Songs**\
 `Fill up your holiday playlist with spooky and satisfying tracks from Yeah Yeah Yeahs, the Sonics, Geto Boys and more.`\
 https://nytimes.com/2024/10/29/arts/music/amplifier-newsletter-halloween-songs.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/29/world/africa/botswana-election-diamonds.html
 **Texans' Stefon Diggs lands on season-ending IR after Week 8 knee injury**\
 `Diggs suffered a non-contact knee injury trying to cut on his route with 1:50 remaining in the third quarter of the Texans' Week 8 win.`\
 https://nytimes.com/athletic/5880660/2024/10/29/stefon-diggs-injury-knee-texans/
-
-**Immense Deluge Floods Parts of Southern and Eastern Spain**\
-`The region of Andalusia received four times the amount of rain that usually falls in October in a single day.`\
-https://nytimes.com/video/world/europe/100000009789617/immense-deluge-floods-parts-of-southern-and-eastern-spain.html
-
-**NFL Offensive Rookie of the Year odds: Jayden Daniels will be tough to catch now**\
-`With his viral Week 8 performance, Jayden Daniels cemented himself as the favorite for OROY. Can anyone challenge him?`\
-https://nytimes.com/athletic/5882816/2024/10/29/nfl-offensive-rookie-of-the-year-odds-jayden-daniels/
-
-**Newcastle sign Georgian teenager Salia**\
-`Newcastle United have completed the signing of 17-year-old Georgian forward Vakhtang Salia.`\
-https://nytimes.com/athletic/5790604/2024/10/29/newcastle-united-vakhtang-salia/
-
-**Ajax complain to UEFA after Sociedad refuse to sell away tickets**\
-`Ajax have sent a formal complaint to UEFA after Real Sociedad refused to sell tickets to Dutch away fans for their Europa League match.`\
-https://nytimes.com/athletic/5882820/2024/10/29/real-sociedad-ajax-europa-league-tickets-uefa-comaplain/
 

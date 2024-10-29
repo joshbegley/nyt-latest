@@ -1,3 +1,19 @@
+**Why Is Harris So Passionate About Abortion Rights? Her Past Work Holds Clues.**\
+`For a politician who has been criticized for shifting positions on some issues, this is an area where she has shown unwavering conviction.`\
+https://nytimes.com/2024/10/29/health/kamala-harris-abortion-rights.html
+
+**Colts bench QB Anthony Richardson, will start Joe Flacco in Week 9**\
+`Coach Shane Steichen was noncommittal Monday when asked whether or not Anthony Richardson would remain his team’s starting QB this week.`\
+https://nytimes.com/athletic/5883122/2024/10/29/joe-flacco-starter-colts-anthony-richardson/
+
+**After the death of their coach, USF basketball is carrying on**\
+`Amir Abdur-Rahim died last week at age 43 due to complications during a medical procedure.`\
+https://nytimes.com/athletic/5882972/2024/10/29/usf-basketball-amir-abdur-rahim-death/
+
+**Big Ten taking no further action on Michigan-Michigan State scuffle**\
+`MSU had asked the Big Ten to look into the incident following the final whistle of Michigan’s 24-17 victory on Saturday.`\
+https://nytimes.com/athletic/5880358/2024/10/29/michigan-state-michigan-big-ten-review/
+
 **13 Scary Good Halloween Songs**\
 `Fill up your holiday playlist with spooky and satisfying tracks from Yeah Yeah Yeahs, the Sonics, Geto Boys and more.`\
 https://nytimes.com/2024/10/29/arts/music/amplifier-newsletter-halloween-songs.html
