@@ -1,3 +1,23 @@
+**After Shaky Start for Labour, First Budget Brings Chance for Reset**\
+`British Prime Minister Keir Starmer’s government has stumbled since his party won a landslide victory, but the financial plan to be announced on Wednesday offers a possible relaunch.`\
+https://nytimes.com/2024/10/29/world/europe/uk-budget-labour-starmer.html
+
+**The New Threat to Brazil’s Forests: Chemicals**\
+`Authorities use satellites to track deforestation caused by chain saws or fire. Now criminals are using chemicals to degrade trees — and evade detection.`\
+https://nytimes.com/2024/10/29/world/americas/the-new-threat-to-brazils-forests-chemicals.html
+
+**Part-Time Farmers, Part-Time Rock Stars: A Chinese Band’s Unlikely Rise**\
+`The band, Varihnaz, has gained fans by offering an alternative to China’s hyper-polished, fast-paced modern life, with songs about pesticides and poultry raising.`\
+https://nytimes.com/2024/10/29/world/asia/china-farmers-rock-band.html
+
+**Arrests and Spying Charges Alarm Diplomats and Aid Workers in Yemen**\
+`The Iran-backed Houthi militia has detained dozens of Yemenis linked to the U.S. Embassy or international organizations recently.`\
+https://nytimes.com/2024/10/29/world/middleeast/houthi-militia-arrests-spying-us.html
+
+**Fantasy football Week 9 waiver wire: Streamers, Keon Coleman, Cedric Tillman**\
+`Rookies occupy prominent spots on Jake Ciely's Week 9 waiver wire report, including Keon Coleman, who has excelled alongside Amari Cooper.`\
+https://nytimes.com/athletic/5880005/2024/10/29/fantasy-football-week-9-waiver-wire-streamers-keon-coleman-cedric-tillman/
+
 **How Russia, China and Iran Are Interfering in the Presidential Election**\
 `Eight years after Russia interfered in the 2016 presidential election, foreign influence with American voters has grown more sophisticated. That could have outsize consequences in the 2024 race.`\
 https://nytimes.com/2024/10/29/technology/election-interference-russia-china-iran.html
