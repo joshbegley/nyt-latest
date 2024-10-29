@@ -1,3 +1,7 @@
+**Dwyane Wade on Heat statue criticism: 'I care, but I don’t'**\
+`“It’s an artistic version of a moment that happened, that we’re trying to cement,” Wade said.`\
+https://nytimes.com/athletic/5881158/2024/10/28/dwyane-wade-heat-statue-criticism/
+
 **The prosecutor seeking warrants for Israeli leaders dismisses misconduct accusations as ‘disinformation.’**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/the-prosecutor-seeking-warrants-for-israeli-leaders-dismisses-misconduct-accusations-as-disinformation
@@ -34,9 +38,4 @@ https://nytimes.com/2024/10/28/us/politics/obama-harris-voters.html
 `<p>There are still four ACC teams without a loss in league play. What&#8217;s in store for the final month of the regular season? Submit your questions for Grace and Manny below. We will post their answers later in the week.</p>
 `\
 https://nytimes.com/athletic/5881223/2024/10/28/acc-football-mailbag/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Leave your latest questions here. Also: Your best idea for a college football Halloween costume.</p>
-`\
-https://nytimes.com/athletic/5881174/2024/10/28/submit-a-question-for-stewart-mandels-college-football-mailbag-279/
 
