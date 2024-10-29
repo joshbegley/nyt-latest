@@ -1,3 +1,15 @@
+**Rudy Gay retires after 18 NBA seasons**\
+`Born in Brooklyn, New York and drafted eighth overall in 2006, Gay played for five teams in his 18 seasons spent in the NBA. `\
+https://nytimes.com/athletic/5882825/2024/10/29/rudy-gay-announces-retirement-from-nba/
+
+**TSMC Chips Ended Up in Devices Made by China’s Huawei Despite U.S. Controls**\
+`The U.S. government has tried to keep Chinese companies from obtaining certain advanced technologies, but concerns have been growing that some products may have been routed to Huawei.`\
+https://nytimes.com/2024/10/29/business/tsmc-huawei-computer-chips.html
+
+**What NBA scouts are saying about Bilal Coulibaly and his future**\
+`Coulibaly might be the most important player on Washington's roster for the long term. He's also one of the most difficult to project.`\
+https://nytimes.com/athletic/5881099/2024/10/29/bilal-coulibaly-nba-scouts-evaluation-2024/
+
 **With Ump Cam, Dirt Cam, drones and more, at World Series, MLB has cameras everywhere**\
 `MLB is deploying over 40 cameras for the World Series and adding new technology to the broadcast, creating a different viewing experience.`\
 https://nytimes.com/athletic/5882817/2024/10/29/yankees-dodgers-world-series-camera-technology-mlb/
