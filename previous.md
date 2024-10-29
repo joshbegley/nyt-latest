@@ -1,3 +1,23 @@
+**Barbara Bush, Scion of Republican Royalty, Knocks Doors for Kamala Harris**\
+`Ms. Bush, whose father and grandfather were the last two Republican presidents before Donald J. Trump, is backing his Democratic opponent.`\
+https://nytimes.com/2024/10/29/us/politics/george-w-bush-daughter-barbara-harris-endorsement.html
+
+**Racing Louisville's Bev Yanez opens up about miscarriage: 'It felt like such a rollercoaster'**\
+`The head coach is using her platform to help others experiencing pregnancy loss and infertility. `\
+https://nytimes.com/athletic/5883181/2024/10/29/racing-louisville-bev-yanez-miscarriage-helping-others/
+
+**Trump Family Members and Biden Aides Among China Hack Targets**\
+`Phones used by Jared Kushner and Eric Trump were among those that hackers sought access to as part of a counterintelligence effort carried out by a hacking group associated with China.`\
+https://nytimes.com/2024/10/29/us/politics/trump-biden-hacking-china.html
+
+**San Jose State Women’s Volleyball Team Finds Itself at Center of Transgender Debate**\
+`After reports that the team includes a transgender player, several schools have forfeited matches against the university out of protest.`\
+https://nytimes.com/2024/10/29/us/san-jose-womens-volleyball-transgender-ncaa.html
+
+**Live Q&A: Week 9 fantasy football add/drop chat with Jay Felicio, Tuesday 10/29 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5882871/2024/10/29/live-qa-week-9-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-29-at-5-p-m-et/
+
 **Ahead of Harris’s Speech in Washington, Trump Tries to Focus on Immigration**\
 `The former president believes his focus on illegal immigration is the reason he won in 2016, and this year, he has pushed his advisers to add content related to it.`\
 https://nytimes.com/2024/10/29/us/politics/trump-mar-a-lago-immigration.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/29/world/europe/southport-stabbing-terror-charges-ri
 **One Defendant Accepts a Plea Deal Amid Young Thug’s RICO Trial**\
 `Prosecutors have accused the star Atlanta rapper of leading a gang in the longest trial in Georgia history. The case has been further delayed by plea negotiations.`\
 https://nytimes.com/2024/10/29/arts/music/young-thug-trial-plea-deal.html
-
-**Atlanta United's Dax McCarty not scared to face Lionel Messi, Inter Miami**\
-`Atlanta United midfielder Dax McCarty called on his teammates to not fear Lionel Messi and Inter Miami before the two clubs face each other on Saturday night in Atlanta.`\
-https://nytimes.com/athletic/5883101/2024/10/29/atlanta-united-dax-mccarty-lionel-messi/
-
-**Teri Garr Found the Soul in Memorable Ditsy Blondes**\
-`In “Tootsie,” “After Hours” and other films, she played truly unhinged characters while also layering in sadness or drama.`\
-https://nytimes.com/2024/10/29/movies/teri-garr-tootsie-young-frankenstein.html
-
-**Women's professional baseball league to debut in 2026**\
-`The Women’s Pro Baseball League will feature six teams, based in the northeastern United States.`\
-https://nytimes.com/athletic/5883196/2024/10/29/women-baseball-league-debut-united-states-2026/
-
-**Ravens trading for Panthers WR Diontae Johnson: Sources**\
-`Johnson leads the Panthers in receiving this season with 30 catches for 357 yards and three touchdowns.`\
-https://nytimes.com/athletic/5883242/2024/10/29/diontae-johnson-ravens-panthers-trade/
-
-**Judge Refuses to Recuse Herself From Trump Assassination Case**\
-`The man accused of plotting to shoot Donald J. Trump at his golf course had asked the judge to step aside, saying she had been praised by the former president and listed as a possible Trump appointee.`\
-https://nytimes.com/2024/10/29/us/politics/judge-aileen-cannon-trump-assassination.html
 
