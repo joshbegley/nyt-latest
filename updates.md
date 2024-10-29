@@ -1,3 +1,7 @@
+**The Athletic FC: Manchester United's Amorim swoop and Real Madrid's Ballon d'Or fury**\
+`Details on Erik ten Hag's successor and why toys flew out of the pram at the Bernabeu`\
+https://nytimes.com/athletic/5882118/2024/10/29/manchester-united-amorim-real-madrid-ballon-dor/
+
 **Tuesday Takeaways: The Kings finally light the beam, and Jayson Tatum's swagger returns**\
 `The Lakers and Suns enjoy the Good Vibes Club, while Cleveland is off to a hot start. Sam Amick takes a spin around the association.`\
 https://nytimes.com/athletic/5881941/2024/10/29/kings-win-beam-lakers-tatum-takeaways/
