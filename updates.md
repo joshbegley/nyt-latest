@@ -1,3 +1,7 @@
+**The Pulse: The World Series is over***\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5881417/2024/10/29/dodgers-yankees-world-series-game-3-the-pulse/
+
 **'Superhero' Freddie Freeman shining in World Series filled with future Hall of Famers**\
 `With possibly eight future Hall of Famers, this Series is in a special category. But Freeman, even on a bad ankle, is stealing the show. `\
 https://nytimes.com/athletic/5881935/2024/10/29/dodgers-yankees-world-series-freddie-freeman-hall-of-fame/

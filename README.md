@@ -1,3 +1,7 @@
+**A Book that Explains the 2024 Campaign**\
+`We covering the America’s working-class majority.`\
+https://nytimes.com/2024/10/29/briefing/trump-harris-2024-election.html
+
 **The Pulse: The World Series is over***\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5881417/2024/10/29/dodgers-yankees-world-series-game-3-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880749/2024/10/29/christian-darrisaw-injury-viking
 **Boyd: If Colts bench Anthony Richardson, it's clear they're content embracing mediocrity**\
 `For the Colts to even crack that door open to benching Richardson just 10 games into his career is head-scratching.`\
 https://nytimes.com/athletic/5881249/2024/10/29/anthony-richardson-colts-bench-joe-flacco/
-
-**Matt Rempe's AHL stint, Gabe Perreault's strengths, more: 13 Rangers observations**\
-`Rempe got plenty more time on ice with Hartford in his brief AHL stint than he has so far in New York.`\
-https://nytimes.com/athletic/5881041/2024/10/29/rangers-matt-rempe-ahl-stint-kreider/
 
