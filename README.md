@@ -1,3 +1,7 @@
+**Harris Dives Into a Frenetic Final Week With a Swing Through Michigan**\
+`The vice president finished her day in the battleground state at a rally near the University of Michigan’s campus in Ann Arbor, where she sprinkled her speech with outreach to progressive Democrats.`\
+https://nytimes.com/2024/10/28/us/politics/harris-michigan-ann-arbor.html
+
 **Court Files From Hidden Fights Over Privilege in Trump Election Case Unsealed**\
 `The partly redacted rulings, orders and transcripts open a window on a momentous battle over grand jury testimony that played out in secret, creating important precedents about executive privilege.`\
 https://nytimes.com/2024/10/28/us/trump-election-case-secret-documents.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/the-prosecuto
 **‘Bob’s Burgers’ Actor Sentenced to One Year in Prison for Role in Jan. 6 Riot**\
 `The actor, Jay Johnston, pleaded guilty in July to obstructing police during the riots at the Capitol on Jan. 6, 2021, according to prosecutors.`\
 https://nytimes.com/2024/10/28/us/jay-johnston-bobs-burgers-jan-6.html
-
-**Doug Emhoff Condemns Antisemitism as Democrats Court Jewish Voters**\
-`In a speech in Pittsburgh a day after the sixth anniversary of the Tree of Life shooting, he vouched for Kamala Harris’s commitment to Jewish security and issued a warning about Donald Trump.`\
-https://nytimes.com/2024/10/28/us/politics/doug-emhoff-antisemitism-speech-jewish-voters.html
 
