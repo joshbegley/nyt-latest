@@ -1,6 +1,6 @@
 **Trump’s Extraordinarily Negative TV Ads**\
 `The contrast to the Harris campaign has been stark.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/trumps-extraordinarily-negative-tv-ads
+https://nytimes.com/2024/10/29/opinion/trumps-extraordinarily-negative-tv-ads.html
 
 **The Runza, a Favorite Nebraska Sandwich, Has a Cameo in the Campaign**\
 `Tim Walz, the Democratic vice-presidential nominee, is a fan of the ground-beef treat. On a recent stop at a Runza restaurant in Omaha, he managed to spend $600.`\
