@@ -1,5 +1,9 @@
 **Trump’s Extraordinarily Negative TV Ads**\
 `The contrast to the Harris campaign has been stark.`\
+https://nytimes.com/2024/10/29/opinion/trumps-extraordinarily-negative-tv-ads.html
+
+**Trump’s Extraordinarily Negative TV Ads**\
+`The contrast to the Harris campaign has been stark.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/trumps-extraordinarily-negative-tv-ads
 
 **The Runza, a Favorite Nebraska Sandwich, Has a Cameo in the Campaign**\
