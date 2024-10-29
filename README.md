@@ -1,3 +1,11 @@
+**Nikola Jokić and Jamal Murray had a moment, but the Nuggets are still finding themselves**\
+`There was a curious desperation to the Nuggets on Monday as they looked to avoid an 0-3 start.`\
+https://nytimes.com/athletic/5881622/2024/10/29/nuggets-raptors-nikola-jokic-jamal-murray/
+
+**Puerto Rico’s G.O.P. Chairman Demands Apology From Trump for Comic’s Remarks**\
+`The island’s Catholic archbishop also wrote a letter to Donald Trump condemning a racist comedy routine during his Madison Square Garden rally.`\
+https://nytimes.com/2024/10/29/us/politics/puerto-rico-gop-chairman-trump-msg.html
+
 **After Shaky Start for Labour, First Budget Brings Chance for Reset**\
 `British Prime Minister Keir Starmer’s government has stumbled since his party won a landslide victory, but the financial plan to be announced on Wednesday offers a possible relaunch.`\
 https://nytimes.com/2024/10/29/world/europe/uk-budget-labour-starmer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/28/pageoneplus/quote-of-the-day-village-so-spooky-ev
 **Mikael Pyyhtiä finally breaks through in Blue Jackets' 6-1 rout of Edmonton**\
 `A new lineup saw instant success and pregame premonitions paid off in a near-shutout of the Oilers.`\
 https://nytimes.com/athletic/5881524/2024/10/28/blue-jackets-mikael-pyyhtia-edmonton/
-
-**Buehler, Dodgers one win away after stifling Yankees in Game 3: Takeaways**\
-`The Dodgers stormed to a 4-2 victory and a three games to none lead in the 120th World Series.`\
-https://nytimes.com/athletic/5881506/2024/10/28/dodgers-yankees-world-series-game-3-takeaways/
-
-**Dodgers dominate Yankees to move within 1 win of World Series victory**\
-`The hype last week has given way to reality: Only one club has demonstrated championship mettle thus far. `\
-https://nytimes.com/athletic/5881606/2024/10/28/dodgers-yankees-world-series-game-3-score/
 
