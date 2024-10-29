@@ -1,3 +1,7 @@
+**Secret Files in Election Case Show How Judges Limited Trump’s Privilege**\
+`The partly unsealed rulings, orders and transcripts open a window on a momentous battle over grand jury testimony that played out in secret, creating important precedents about executive privilege.`\
+https://nytimes.com/2024/10/28/us/trump-election-case-secret-documents.html
+
 **Harris Dives Into a Frenetic Final Week With a Swing Through Michigan**\
 `The vice president finished her day in the battleground state at a rally near the University of Michigan’s campus in Ann Arbor, where she sprinkled her speech with outreach to progressive Democrats.`\
 https://nytimes.com/2024/10/28/us/politics/harris-michigan-ann-arbor.html
