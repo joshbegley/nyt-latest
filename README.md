@@ -1,3 +1,11 @@
+**Women's professional baseball league to debut in 2026**\
+`The Women’s Pro Baseball League will feature six teams, based in the northeastern United States.`\
+https://nytimes.com/athletic/5883196/2024/10/29/women-baseball-league-debut-united-states-2026/
+
+**Ravens trading for Panthers WR Diontae Johnson: Sources**\
+`Johnson leads the Panthers in receiving this season with 30 catches for 357 yards and three touchdowns.`\
+https://nytimes.com/athletic/5883242/2024/10/29/diontae-johnson-ravens-panthers-trade/
+
 **Judge Refuses to Recuse Herself From Trump Assassination Case**\
 `The man accused of plotting to shoot Donald J. Trump at his golf course had asked the judge to step aside, saying she had been praised by the former president and listed as a possible Trump appointee.`\
 https://nytimes.com/2024/10/29/us/politics/judge-aileen-cannon-trump-assassination.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5883122/2024/10/29/joe-flacco-starter-colts-anthony
 **After the death of their coach, USF basketball is carrying on**\
 `Amir Abdur-Rahim died last week at age 43 due to complications during a medical procedure.`\
 https://nytimes.com/athletic/5882972/2024/10/29/usf-basketball-amir-abdur-rahim-death/
-
-**Big Ten taking no further action on Michigan-Michigan State scuffle**\
-`MSU had asked the Big Ten to look into the incident following the final whistle of Michigan’s 24-17 victory on Saturday.`\
-https://nytimes.com/athletic/5880358/2024/10/29/michigan-state-michigan-big-ten-review/
-
-**13 Scary Good Halloween Songs**\
-`Fill up your holiday playlist with spooky and satisfying tracks from Yeah Yeah Yeahs, the Sonics, Geto Boys and more.`\
-https://nytimes.com/2024/10/29/arts/music/amplifier-newsletter-halloween-songs.html
 
