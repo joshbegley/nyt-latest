@@ -1,3 +1,11 @@
+**Son unlikely to face Man City; Odobert suffers 'serious' setback**\
+`Tottenham Hotspur captain Son Heung-min is unlikely to feature in their Carabao Cup tie against Manchester City on Wednesday while Wilson Odobert has suffered a “serious” setback in his recovery from a hamstring injury.`\
+https://nytimes.com/athletic/5882472/2024/10/29/son-injury-update-tottenham-odobert/
+
+**Where’s Ivanka?**\
+`Donald J. Trump’s oldest daughter and former top aide was once one of his most prominent campaign surrogates. Lately, she’s noticeably absent.`\
+https://nytimes.com/2024/10/29/style/wheres-ivanka.html
+
 **CFB Week 9 reactions: Coach Prime's turnaround, Kaleb Johnson's historic season**\
 `Deion Sanders and Colorado have things rolling, and Iowa's Kaleb Johnson just can't be stopped.`\
 https://nytimes.com/athletic/5882069/2024/10/29/college-football-week-9-reaction-colorado-deion-sanders-iowa-kaleb-johnson/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/technology/data-center-peculiar-missouri.html
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/10/29/nhl-standings-playoffs-projections-odds/
-
-**Who Won the Oscars of American Fashion**\
-`A new generation of designers is on the rise.`\
-https://nytimes.com/2024/10/29/style/cfda-awards-fashion.html
-
-**Heat Today: Dwyane Wade reflects on reaction to statue, team wins second in a row**\
-`Dwyane Wade responds to buzz about Heat statue. Plus, Miami notches second straight win`\
-https://nytimes.com/athletic/5881160/2024/10/29/heat-today-dwyane-wade-reflects-on-reaction-to-statue-team-wins-second-in-a-row/
 
