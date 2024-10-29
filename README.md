@@ -1,3 +1,7 @@
+**‘Hatred and Vitriol’ at the Trump Rally in New York**\
+`Readers react to the Trump rally at Madison Square Garden and a tragedy in Springfield, Ohio. Also: Gut feelings about the election; benefits of electric cars.`\
+https://nytimes.com/2024/10/29/opinion/trump-rally-new-york.html
+
 **Gnocchi’s Crispy — Let’s Eat**\
 `“I’m always impressed with simple recipes that taste this good.”`\
 https://nytimes.com/2024/10/29/dining/gnocchis-crispy-lets-eat.html
@@ -34,4 +38,3 @@ https://nytimes.com/athletic/5881972/2024/10/29/giannis-antetokounmpo-bucks-celt
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5882202/2024/10/29/milwaukee-bucks-giannis-antetokounmpo-damian-lillard-paolo-banchero-orlando-magic-the-bounce-nba/
 
-**All the Kitchen Experts at Wirecutter Use Shears to Cut Pizza**\
