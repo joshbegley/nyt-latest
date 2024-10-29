@@ -1,3 +1,15 @@
+**Who's playing more (and less) for the Maple Leafs under Craig Berube**\
+`Analyzing Berube's deployment patterns 10 games into his coaching tenure with the Maple Leafs.`\
+https://nytimes.com/athletic/5882423/2024/10/29/maple-leafs-players-craig-berube-minutes/
+
+**Ford Took an Early Lead in Electric Vehicles. Now G.M. is Surging.**\
+`Ford is struggling to make money on battery-powered models while General Motors, which started more slowly, says it is getting close to that goal.`\
+https://nytimes.com/2024/10/29/business/ford-general-motors-electric-vehicles.html
+
+**Six potential defensive trade targets for the Senators**\
+`In light of the Sens' defensive concerns, we've canvassed the league for potential stopgaps and evaluated whether or not they make sense.`\
+https://nytimes.com/athletic/5880258/2024/10/29/senators-trade-targets-liljegren-fowler/
+
 **Gabriel injury 'doesn't look bad at all', Arteta reveals**\
 `Mikel Arteta has indicated that Arsenal defender Gabriel has avoided serious injury.`\
 https://nytimes.com/athletic/5877460/2024/10/29/gabriel-injury-arsenal-update/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-lebanon-baalbek-b
 **West Virginia fires defensive coordinator Jordan Lesley**\
 `The Mountaineers head into their second idle week of the season ranked 13th in the Big 12 in yards per play.`\
 https://nytimes.com/athletic/5882647/2024/10/29/west-virginia-defensive-coordinator-jordan-lesley/
-
-**‘Hatred and Vitriol’ at the Trump Rally in New York**\
-`Readers react to the Trump rally at Madison Square Garden and a tragedy in Springfield, Ohio. Also: Gut feelings about the election; benefits of electric cars.`\
-https://nytimes.com/2024/10/29/opinion/trump-rally-new-york.html
-
-**Gnocchi’s Crispy — Let’s Eat**\
-`“I’m always impressed with simple recipes that taste this good.”`\
-https://nytimes.com/2024/10/29/dining/gnocchis-crispy-lets-eat.html
-
-**Autumn in New York Has Been the One of the City’s Driest Ever**\
-`It’s been 29 days since Central Park has seen measurable rain.`\
-https://nytimes.com/2024/10/29/weather/new-york-city-dry-october.html
 
