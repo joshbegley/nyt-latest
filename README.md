@@ -1,3 +1,7 @@
+**13 Scary Good Halloween Songs**\
+`Fill up your holiday playlist with spooky and satisfying tracks from Yeah Yeah Yeahs, the Sonics, Geto Boys and more.`\
+https://nytimes.com/2024/10/29/arts/music/amplifier-newsletter-halloween-songs.html
+
 **Real Madrid deny responsibility in dispute with Bernabeu residents over noise complaints**\
 `Real Madrid claim they are not responsible for ensuring noise levels from music concerts staged at the Santiago Bernabeu do not break municipal regulations, as part of an ongoing legal battle with local residents.`\
 https://nytimes.com/athletic/5882932/2024/10/29/real-madrid-residents-legal-case-bernabeu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790604/2024/10/29/newcastle-united-vakhtang-salia/
 **Ajax complain to UEFA after Sociedad refuse to sell away tickets**\
 `Ajax have sent a formal complaint to UEFA after Real Sociedad refused to sell tickets to Dutch away fans for their Europa League match.`\
 https://nytimes.com/athletic/5882820/2024/10/29/real-sociedad-ajax-europa-league-tickets-uefa-comaplain/
-
-**NFL MVP odds breakdown: Josh Allen has edge in three-man race**\
-`The NFL MVP is looking like a three-quarterback race, but which one is most likely to separate from the pack?`\
-https://nytimes.com/athletic/5882848/2024/10/29/nfl-mvp-odds-breakdown-josh-allen/
 
