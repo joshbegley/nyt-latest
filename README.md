@@ -1,3 +1,7 @@
+**Is There a Moral Choice for Catholic Voters?**\
+`Why are we being asked to choose between the lesser of two evils?`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/catholic-third-party
+
 **In Botswana’s Election, Diamond Profits Are a Defining Issue**\
 `The party that has governed the country since 1966 could lose power as the economy struggles from a slump in demand for diamonds, which made Botswana an African success story.`\
 https://nytimes.com/2024/10/29/world/africa/botswana-election-diamonds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/arts/design/empty-beds-little-ukraine-exhibition.
 **Two Horror Authors on the Scary Books You Should Read**\
 `Stephen Graham Jones and Joe Hill with their recommendations for this Halloween season.`\
 https://nytimes.com/2024/10/29/books/review/joe-hill-stephen-graham-jones-horror-recommendations.html
-
-**PWHL preparing for expansion as early as 2025-26 season, could add up to 2 teams**\
-`After success in its inaugural season, the PWHL is looking to expand to new hockey markets sooner than expected.`\
-https://nytimes.com/athletic/5882695/2024/10/29/pwhl-womens-hockey-expansion-cities/
 
