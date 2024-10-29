@@ -1,3 +1,7 @@
+**A Closing Argument for an Abnormal Election**\
+`A divided and deadlocked country faces big questions about what presidential power is actually for.`\
+https://nytimes.com/2024/10/29/us/politics/trump-harris-election-closing-arguments.html
+
 **A disability rights group hits Trump with ads featuring his nephew.**\
 `In a new ad in Pennsylvania, Fred Trump III says his uncle Donald J. Trump suggested disabled people should “just die.” Another ad highlights Kamala Harris’s plan for coverage of at-home care.`\
 https://nytimes.com/live/2024/10/29/us/harris-trump-election/a-disability-rights-group-hits-trump-with-ads-featuring-his-nephew
