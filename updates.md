@@ -1,3 +1,7 @@
+**BP Profit Falls, but It Still Sees ‘Potential to Grow’ in Oil and Gas**\
+`The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principal aim” was increasing earnings.`\
+https://nytimes.com/2024/10/29/business/bp-oil-gas-earnings.html
+
 **Vatican Issues First Report on Sex Abuse, to Immediate Criticism**\
 `The report is intended to assess efforts by the Roman Catholic Church to safeguard minors and others. Advocates for survivors called it an exercise in obfuscation.`\
 https://nytimes.com/2024/10/29/world/europe/vatican-sex-abuse-report.html
