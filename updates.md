@@ -1,3 +1,7 @@
+**Bryce Eldridge's Arizona Fall League stint ends, Giants pleased with his work**\
+`Eldridge performed well in 10 games at the plate, but the real focus of his time in Arizona was on defense, especially before games.`\
+https://nytimes.com/athletic/5881269/2024/10/29/bryce-eldridge-arizona-fall-league-sf-giants/
+
 **Weekly Student News Quiz: N.B.A. First, Formal Apology, Election**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/10/29/learning/29StudentNewsQuiz.html
