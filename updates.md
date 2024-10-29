@@ -1,3 +1,7 @@
+**A disability rights group hits Trump with ads featuring his nephew.**\
+`In a new ad in Pennsylvania, Fred Trump III says his uncle Donald J. Trump suggested disabled people should “just die.” Another ad highlights Kamala Harris’s plan for coverage of at-home care.`\
+https://nytimes.com/live/2024/10/29/us/harris-trump-election/a-disability-rights-group-hits-trump-with-ads-featuring-his-nephew
+
 **Ex-Leader of Black Transgender Group Is Charged With Stealing Its Money**\
 `After Dominique Morgan said her group would start a bail fund for poor defendants, she instead took nearly $100,000 for personal expenses, prosecutors said.`\
 https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.html
