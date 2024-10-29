@@ -1,3 +1,7 @@
+**Kevin Durant, Jaylen Brown highlight season 2 cast of 'Starting 5'**\
+`The new cast will also include Tyrese Haliburton and Shai Gilgeous-Alexander.`\
+https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
+
 **44 Million Voters Have Already Cast a Ballot. Most Voted Early in 2020, Too.**\
 `The fixed nature of the early vote makes it difficult to predict whether overall turnout will be as high as in 2020 and 2022, or whether either party is truly building an edge.`\
 https://nytimes.com/2024/10/29/us/politics/early-voting-presidential-election.html
