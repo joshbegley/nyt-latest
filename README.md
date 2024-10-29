@@ -1,4 +1,4 @@
-**Ravens' acquisition of WR Diontae Johnson spurs 2 reactions: Why not, and what's next?**\
+**Ravens' acquisition of Diontae Johnson spurs 2 reactions: Why not, and what's next?**\
 `Baltimore will owe Johnson roughly $625,000 for the rest of the season, making it a risk worth taking on a receiver with big-play potential.`\
 https://nytimes.com/athletic/5883831/2024/10/29/ravens-trade-diontae-johnson-panthers/
 
