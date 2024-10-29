@@ -1,3 +1,11 @@
+**Puerto Ricans in Philadelphia Are Angered by Bigoted Remarks at Trump Rally**\
+`Many Puerto Ricans in the crucial battleground state said the remarks, such as one deriding Puerto Rico as “a floating island of garbage,” fit a common disrespectful attitude toward the island territory.`\
+https://nytimes.com/2024/10/28/us/politics/puerto-ricans-philadelphia-trump-rally.html
+
+**‘Bad Kreyòl’ Review: Dueling Cultural Identities Make for a Weighty Comedy**\
+`Dominique Morisseau’s new play explores the tensions between a Haitian American woman and her Haitian-born cousin.`\
+https://nytimes.com/2024/10/28/theater/bad-kreyol-review.html
+
 **Michigan's Jack Tuttle retiring from football due to concussions**\
 `"I've battled numerous injuries, culminating in this difficult choice to step away from playing the game that I love," Tuttle said on X.`\
 https://nytimes.com/athletic/5881319/2024/10/28/jack-tuttle-michigan-retiring-concussion/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/south-africa-
 **Connor McDavid ruled out vs. Blue Jackets with lower-body injury**\
 `McDavid played 37 seconds before being ruled out after the opening faceoff.`\
 https://nytimes.com/athletic/5881214/2024/10/28/connor-mcdavid-injury-oilers-blue-jackets/
-
-**Why Trump Uses Comics Like Tony Hinchcliffe to Spread His Message**\
-`Like the former president, these stand-ups loathe the news media, delight in transgression and harbor a deep-seated love of cruel insult jokes.`\
-https://nytimes.com/2024/10/28/arts/trump-tony-hinchcliffe-joe-rogan.html
-
-**Obama Is the Same. His Coalition Isn’t.**\
-`Democrats failed to preserve his coalition, and Harris is now trying to assemble a different one.`\
-https://nytimes.com/2024/10/28/us/politics/obama-harris-voters.html
 
