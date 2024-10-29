@@ -1,3 +1,7 @@
+**Jaywalking Is a New York Tradition. Now It’s Legal, Too.**\
+`New Yorkers can cross the street wherever they please without fear of a summons. Some fear the new law could lead to more pedestrian deaths.`\
+https://nytimes.com/2024/10/29/nyregion/jaywalking-legal-law-nyc.html
+
 **A Harris Presidency Is the Only Way to Stay Ahead of A.I.**\
 `We must make sure that superintelligent machines remain aligned with human values and interests as they use their powers to go off in their own directions.`\
 https://nytimes.com/2024/10/29/opinion/artificial-intelligence-harris-trump-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883840/2024/10/29/joel-embiid-nba-investigation-76
 **Teri Garr’s Life in Pictures**\
 `Garr, who could easily command attention onscreen with her expressive eyes, later became known as a spokeswoman for multiple sclerosis research.`\
 https://nytimes.com/2024/10/29/movies/teri-garr-photos.html
-
-**Supreme Court Declines to Remove R.F.K. Jr. From Ballot in Two Key States**\
-`Since throwing his support behind former President Donald J. Trump, Mr. Kennedy has sought both to be removed from and to remain on various state ballots.`\
-https://nytimes.com/2024/10/29/us/politics/supreme-court-rfk-jr-wisconsin-michigan-ballot.html
 
