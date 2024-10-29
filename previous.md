@@ -1,3 +1,7 @@
+**Robertson has had tough moments but now is not time to write him off**\
+`Andy Robertson has endured tricky moments in his last two games for Liverpool`\
+https://nytimes.com/athletic/5880078/2024/10/29/andy-robertson-liverpool/
+
 **Barcelona fans' survey: Have your say on the Clasico and the club's start under Hansi Flick**\
 `Given the positive start to 2024-25, we want to hear your thoughts on the Clasico win and the first few months of Flick...`\
 https://nytimes.com/athletic/5880058/2024/10/29/barcelona-fans-survey-have-your-say-on-the-clasico-and-the-clubs-start-under-hansi-flick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879853/2024/10/29/aitana-bonmati-ballon-dor/
 **Damien Duff, the manager: Only Fools and Horses, a teenage disco and one win from a first league title**\
 `The former Blackburn, Chelsea and Ireland winger has taken the Dublin club Shelbourne within touching distance of a first title since 2006`\
 https://nytimes.com/athletic/5879617/2024/10/29/duff-shelbourne-manager-ireland-title/
-
-**Why Trump Has an Edge With These 11 Michigan Voters — Even Though They Don’t Like Him**\
-`The group participants discuss the state of the race and what may drive them toward a given candidate.`\
-https://nytimes.com/interactive/2024/10/29/opinion/focus-group-michigan-voters.html
 

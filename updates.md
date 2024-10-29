@@ -1,3 +1,7 @@
+**Robertson has had tough moments but now is not time to write him off**\
+`Andy Robertson has endured tricky moments in his last two games for Liverpool`\
+https://nytimes.com/athletic/5880078/2024/10/29/andy-robertson-liverpool/
+
 **Barcelona fans' survey: Have your say on the Clasico and the club's start under Hansi Flick**\
 `Given the positive start to 2024-25, we want to hear your thoughts on the Clasico win and the first few months of Flick...`\
 https://nytimes.com/athletic/5880058/2024/10/29/barcelona-fans-survey-have-your-say-on-the-clasico-and-the-clubs-start-under-hansi-flick/
