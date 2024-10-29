@@ -1,15 +1,3 @@
-**No, noncitizens are not voting in droves.**\
-`Studies have shown that noncitizen voting is essentially nonexistent in federal elections in the United States.`\
-https://nytimes.com/2024/10/28/technology/noncitizen-voting-election.html
-
-**No, poll workers aren’t handing out Sharpies to invalidate ballots.**\
-`The writing utensils figured prominently in conspiracy theories in previous elections. But they’re often fine to use on paper ballots.`\
-https://nytimes.com/2024/10/28/technology/voter-fraud-poll-workers-sharpie.html
-
-**Election Fraud Falsehoods Are Spreading. Here’s What to Watch For.**\
-``\
-https://nytimes.com/live/2024/10/28/business/voter-fraud-election-fact-check
-
 **Vivek Ramaswamy Has a Different Vision for Trumpism From JD Vance**\
 `Vivek Ramaswamy Has a Different Vision for Trumpism From JD Vance`\
 https://nytimes.com/video/opinion/100000009788925/vivek-ramaswamy-has-a-different-vision-for-trumpism-from-jd-vance.html
@@ -37,4 +25,16 @@ https://nytimes.com/2024/10/28/us/politics/trump-michelle-obama.html
 **Ford Foundation Gives $10 Million to Studio Museum in Harlem**\
 `The grant will support the museum’s director and chief curator, a position held for the last 20 years by Thelma Golden.`\
 https://nytimes.com/2024/10/28/arts/studio-museum-in-harlem.html
+
+**Corrections: Oct. 29, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 29, 2024.`\
+https://nytimes.com/2024/10/28/pageoneplus/corrections-oct-29-2024.html
+
+**Trump Long Ago Crossed the Line From Propriety to Profanity. Then Came the Garden.**\
+`In former President Donald J. Trump’s third campaign for the White House, his speeches have grown coarser and coarser.`\
+https://nytimes.com/2024/10/28/us/politics/trump-profanity.html
+
+**Harris Dives Into a Frenetic Final Week With a Swing Through Michigan**\
+`The vice president finished her day in the battleground state at a rally near the University of Michigan’s campus in Ann Arbor, where she sprinkled her speech with outreach to progressive Democrats.`\
+https://nytimes.com/2024/10/28/us/politics/harris-michigan-ann-arbor.html
 
