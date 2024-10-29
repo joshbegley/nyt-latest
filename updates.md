@@ -1,3 +1,7 @@
+**City confirm Sjogran as new women's director of football**\
+`Manchester City have confirmed the appointment of Therese Sjogran as their new women’s director of football.`\
+https://nytimes.com/athletic/5881958/2024/10/29/therese-sjogran-manchester-city/
+
 **The Bengals' bleak defensive regression and 3 plays highlighting the problems**\
 `It looked like coordinator Lou Anarumo's defense had turned the corner in the prior two weeks, but the Eagles exposed major issues.`\
 https://nytimes.com/athletic/5881386/2024/10/29/bengals-defensive-regression-anarumo/

@@ -1,3 +1,7 @@
+**City confirm Sjogran as new women's director of football**\
+`Manchester City have confirmed the appointment of Therese Sjogran as their new women’s director of football.`\
+https://nytimes.com/athletic/5881958/2024/10/29/therese-sjogran-manchester-city/
+
 **The Bengals' bleak defensive regression and 3 plays highlighting the problems**\
 `It looked like coordinator Lou Anarumo's defense had turned the corner in the prior two weeks, but the Eagles exposed major issues.`\
 https://nytimes.com/athletic/5881386/2024/10/29/bengals-defensive-regression-anarumo/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/realestate/an-apartment-in-the-center-of-paris-in
 **That Revolting Rally Was a Sign of Weakness**\
 `Reminder: Trump is not the world spirit incarnate.`\
 https://nytimes.com/2024/10/29/opinion/that-revolting-rally-was-a-sign-of-weakness.html
-
-**A Racist Joke at Trump’s New York Rally Could Be a Costly Mistake**\
-`Puerto Rican voters are not a monolith, but the backlash to the remark could have significant political effects.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/a-racist-joke-at-trumps-new-york-rally-could-be-a-costly-mistake
 
