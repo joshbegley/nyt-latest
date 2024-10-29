@@ -1,3 +1,11 @@
+**Wizards will not exercise fourth-year options on Davis, Baldwin Jr.**\
+`Davis, a 2022 lottery pick, and Baldwin, who arrived in a trade with Golden State, will become unrestricted free agents next summer.`\
+https://nytimes.com/athletic/5882880/2024/10/29/johnny-davis-wizards-player-option-patrick-baldwin/
+
+**How Trump Exploits Divisions Among Black and Latino Voters**\
+`Donald J. Trump’s anti-immigrant message is exposing longstanding tensions and challenging Democrats’ hopes for solidarity.`\
+https://nytimes.com/2024/10/29/us/politics/trump-black-latino-voters.html
+
 **49ers CB Charvarius Ward's 1-year-old daughter dies**\
 `Ward had openly discussed the challenges and fears he and girlfriend Monique Cook faced after Amani Joy was born five weeks early in 2022.`\
 https://nytimes.com/athletic/5883438/2024/10/29/49ers-cb-charvarius-wards-1-year-old-daughter-dies-she-showed-us-true-strength-and-bravery/
