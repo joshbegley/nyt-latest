@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5883122/2024/10/29/joe-flacco-starter-colts-anthony
 `Amir Abdur-Rahim died last week at age 43 due to complications during a medical procedure.`\
 https://nytimes.com/athletic/5882972/2024/10/29/usf-basketball-amir-abdur-rahim-death/
 
+**Big Ten taking no further action on Michigan-Michigan State scuffle**\
+`MSU had asked the Big Ten to look into the incident following the final whistle of Michigan’s 24-17 victory on Saturday.`\
+https://nytimes.com/athletic/5880358/2024/10/29/michigan-state-michigan-big-ten-review/
+
 **13 Scary Good Halloween Songs**\
 `Fill up your holiday playlist with spooky and satisfying tracks from Yeah Yeah Yeahs, the Sonics, Geto Boys and more.`\
 https://nytimes.com/2024/10/29/arts/music/amplifier-newsletter-halloween-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/world/africa/botswana-election-diamonds.html
 **Texans' Stefon Diggs lands on season-ending IR after Week 8 knee injury**\
 `Diggs suffered a non-contact knee injury trying to cut on his route with 1:50 remaining in the third quarter of the Texans' Week 8 win.`\
 https://nytimes.com/athletic/5880660/2024/10/29/stefon-diggs-injury-knee-texans/
-
-**Immense Deluge Floods Parts of Southern and Eastern Spain**\
-`The region of Andalusia received four times the amount of rain that usually falls in October in a single day.`\
-https://nytimes.com/video/world/europe/100000009789617/immense-deluge-floods-parts-of-southern-and-eastern-spain.html
 
