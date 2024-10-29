@@ -1,3 +1,7 @@
+**Jon Stewart Fears Madison Square Garden Will Never Be the Same**\
+`After Donald Trump’s rally, Stewart showed an image of Billy Joel and asked, “How dare they desecrate the stage that the Piano Man has consecrated?”`\
+https://nytimes.com/2024/10/29/arts/television/jon-stewart-trump-madison-square-garden.html
+
 **Juan Soto’s Yankees dream season is danger of ending**\
 `“We have everything we need,” Soto famously said in February. Yet as the Yankees have learned so far, they don't have it all.`\
 https://nytimes.com/athletic/5881770/2024/10/29/dodgers-yankees-world-series-game-3-juan-soto-dream-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881818/2024/10/29/dodgers-yankees-world-series-fre
 **Word of the Day: pagoda**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/29/learning/word-of-the-day-pagoda.html
-
-**How the Canucks' early-season win streak ended vs. the Hurricanes: 3 takeaways**\
-`Carolina narrowly held off a furious Canucks rally Monday on its way to a 4-3 victory in overtime at Rogers Arena.`\
-https://nytimes.com/athletic/5881683/2024/10/29/canucks-early-season-win-streak-ends-vs-hurricanes/
 
