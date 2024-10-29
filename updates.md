@@ -1,3 +1,7 @@
+**CNN Bars Pro-Trump Guest After His ‘Beeper’ Remark to Mehdi Hasan**\
+`After Mr. Hasan voiced support for Palestinians, the CNN guest, Ryan James Girdusky, said, “I hope your beeper doesn’t go off.”`\
+https://nytimes.com/2024/10/29/business/cnn-pager-comment-mehdi-hasan.html
+
 **World Series ticket prices in New York cool with Yankees down 3-0**\
 `A StubHub spokesperson said the dip wasn't surprising based on how the series between two star-studded markets has unfolded so far.`\
 https://nytimes.com/athletic/5880861/2024/10/29/world-series-ticket-prices-dodgers-yankees/
