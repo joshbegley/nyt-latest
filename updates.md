@@ -1,3 +1,11 @@
+**‘Ragtime’ Crushed Brandon Uranowitz’s Dream. Now It’s Healing His Wounds.**\
+`Nearly 30 years after being let go from the Broadway-bound show, this Tony Award winner is taking a lead role in a new revival at City Center.`\
+https://nytimes.com/2024/10/29/theater/ragtime-brandon-uranowitz-city-center.html
+
+**This Toad Is So Tiny That They Call It a Flea**\
+`A “toadlet” in Brazil is the second-smallest vertebrate known to exist on the planet.`\
+https://nytimes.com/2024/10/29/science/tiny-frog-toad-brazil.html
+
 **Could the Vote Be Contested Again? 5 Threats to a Smooth Election**\
 `Litigation, disinformation and battles over certifying the vote all have the potential to complicate the process.`\
 https://nytimes.com/2024/10/29/us/elections/election-results-worries.html
