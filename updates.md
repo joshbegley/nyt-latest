@@ -1,3 +1,7 @@
+**Dwyane Wade on Heat statue criticism: 'I care, but I don’t'**\
+`“It’s an artistic version of a moment that happened, that we’re trying to cement,” Wade said.`\
+https://nytimes.com/athletic/5881158/2024/10/28/dwyane-wade-heat-statue-criticism/
+
 **The prosecutor seeking warrants for Israeli leaders dismisses misconduct accusations as ‘disinformation.’**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/the-prosecutor-seeking-warrants-for-israeli-leaders-dismisses-misconduct-accusations-as-disinformation
