@@ -1,3 +1,7 @@
+**Paolo Banchero delivers 50-point performance as Magic beat Pacers**\
+`Banchero tallied a career-high 50 points, 13 rebounds and nine assists to lead Orlando to a 119-115 win over Indiana.`\
+https://nytimes.com/athletic/5881449/2024/10/28/paolo-banchero-scores-50-points-magic-pacers/
+
 **Repeat Word for Word**\
 `Kathy Lowden shows off her collections.`\
 https://nytimes.com/2024/10/28/crosswords/daily-puzzle-2024-10-29.html
