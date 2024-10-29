@@ -1,3 +1,23 @@
+**Cowboys Today: How many wins will Dallas finish with this season?**\
+`The Cowboys have a brutal four-game stretch ahead and a key stat that explains a lot of this season's frustrations.`\
+https://nytimes.com/athletic/5881778/2024/10/29/cowboys-today-win-total-turnover-margin/
+
+**A Rural Missouri Town Fights Big Tech, and Itself**\
+`Residents of Peculiar battled developers and some of their local officials to keep a giant data center out of their community.`\
+https://nytimes.com/2024/10/29/technology/data-center-peculiar-missouri.html
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/10/29/nhl-standings-playoffs-projections-odds/
+
+**Who Won the Oscars of American Fashion**\
+`A new generation of designers is on the rise.`\
+https://nytimes.com/2024/10/29/style/cfda-awards-fashion.html
+
+**Heat Today: Dwyane Wade reflects on reaction to statue, team wins second in a row**\
+`Dwyane Wade responds to buzz about Heat statue. Plus, Miami notches second straight win`\
+https://nytimes.com/athletic/5881160/2024/10/29/heat-today-dwyane-wade-reflects-on-reaction-to-statue-team-wins-second-in-a-row/
+
 **In 1930s Rwanda, a Black Savior Is Coming, and She Might Be a Woman**\
 `The eponymous healer in “Sister Deborah” inspires a Black feminist uprising.`\
 https://nytimes.com/2024/10/29/books/review/sister-deborah-scholastique-mukasonga.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5881172/2024/10/29/chargers-scoring-defense-leaders
 **Erik ten Hag: Just the latest manager unable to impose a style of play on Manchester United**\
 `The Dutchman had similar issues to Ole Gunnar Solskjaer and Ralf Rangnick - but he did at least win two trophies in his time at Old Trafford`\
 https://nytimes.com/athletic/5881995/2024/10/29/erik-ten-hag-style-of-play-manchester-united/
-
-**Finding the exact moment the Giants' 2021 vibes faded away**\
-`In 2021, the Giants looked poised to be a thorn in the Dodgers' side for years to come. A year later, the franchises looked miles apart.`\
-https://nytimes.com/athletic/5869885/2024/10/29/sf-giants-2021-regression-dodgers/
-
-**NFL Week 8 best and worst coaching decisions: Bears' blunders start with Matt Eberflus**\
-`Chicago was plagued by bad decisions while the Rams and Eagles got great plans from Sean McVay and Kellen Moore, respectively.`\
-https://nytimes.com/athletic/5879057/2024/10/29/nfl-week-8-worst-best-coaching-decisions-nguyen/
-
-**49ers minutia minute: Brock Purdy was back to what he does best vs. Cowboys**\
-`Purdy was 8-of-10 for 132 yards in those zones with a passer rating of 118.8 targeting the short and medium middle of the field.`\
-https://nytimes.com/athletic/5881029/2024/10/29/49ers-snap-counts-cowboys-brock-purdy/
-
-**Here’s the latest on the presidential race.**\
-`Kamala Harris`\
-https://nytimes.com/live/2024/10/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris to Speak at Ellipse as Trump Faces Rally Fallout**\
-`Vice President Kamala Harris will use the site of Donald J. Trump’s Jan. 6 speech to help make her closing argument on Tuesday. The former president will campaign in Pennsylvania.`\
-https://nytimes.com/live/2024/10/29/us/harris-trump-election
 
