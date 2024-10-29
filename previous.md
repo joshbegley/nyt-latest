@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: N.B.A. First, Formal Apology, Election**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/10/29/learning/29StudentNewsQuiz.html
+
 **The Chargers lead the NFL in scoring defense. Are they for real?**\
 `The Chargers are allowing 12.7 points per game. How much of that is their noticeable improvement versus facing a last-place schedule?`\
 https://nytimes.com/athletic/5881172/2024/10/29/chargers-scoring-defense-leaders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882118/2024/10/29/manchester-united-amorim-real-ma
 **Tuesday Takeaways: The Kings finally light the beam, and Jayson Tatum's swagger returns**\
 `The Lakers and Suns enjoy the Good Vibes Club, while Cleveland is off to a hot start. Sam Amick takes a spin around the association.`\
 https://nytimes.com/athletic/5881941/2024/10/29/kings-win-beam-lakers-tatum-takeaways/
-
-**Jeff Bezos, Jerome Powell, Serena Williams and More at the DealBook Summit**\
-`The conference on Dec. 4 will bring together the biggest names in business, politics and culture.`\
-https://nytimes.com/2024/10/29/business/dealbook/bezos-powell-serena-williams-dealbook-summit.html
 

@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: N.B.A. First, Formal Apology, Election**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/10/29/learning/29StudentNewsQuiz.html
+
 **The Chargers lead the NFL in scoring defense. Are they for real?**\
 `The Chargers are allowing 12.7 points per game. How much of that is their noticeable improvement versus facing a last-place schedule?`\
 https://nytimes.com/athletic/5881172/2024/10/29/chargers-scoring-defense-leaders/
