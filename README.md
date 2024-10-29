@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5877971/2024/10/29/nfl-qb-stock-report-rankings-aar
 
 **Foreign Election Interference, and Volkswagen May Close Factories**\
 `Plus, why you should never cross a crow.`\
-https://nytimes.com/2024/10/29/podcasts/foreign-election-interference-and-volkswagen-may-close-factories.html
+https://nytimes.com/2024/10/29/podcasts/foreign-election-interference-volkswagen.html
 
 **Wordle Review No. 1,229**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 30, 2024.`\
