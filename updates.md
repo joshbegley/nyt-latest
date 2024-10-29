@@ -1,3 +1,7 @@
+**Jon Stewart Fears Madison Square Garden Will Never Be the Same**\
+`After Donald Trump’s rally, Stewart showed an image of Billy Joel and asked, “How dare they desecrate the stage that the Piano Man has consecrated?”`\
+https://nytimes.com/2024/10/29/arts/television/jon-stewart-trump-madison-square-garden.html
+
 **Juan Soto’s Yankees dream season is danger of ending**\
 `“We have everything we need,” Soto famously said in February. Yet as the Yankees have learned so far, they don't have it all.`\
 https://nytimes.com/athletic/5881770/2024/10/29/dodgers-yankees-world-series-game-3-juan-soto-dream-season/
