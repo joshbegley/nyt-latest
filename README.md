@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/29/world/europe/vatican-sex-abuse-report.html
 
 **BP Profit Falls, but It Still Sees ‘Potential to Grow’ in Oil and Gas**\
-`The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principle aim” was increasing earnings.`\
+`The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principal aim” was increasing earnings.`\
 https://nytimes.com/2024/10/29/business/bp-oil-gas-earnings.html
 
 **JJ Redick angry with himself after Lakers' first loss. His players love the passion**\
