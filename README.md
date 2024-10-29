@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5881029/2024/10/29/49ers-snap-counts-cowboys-brock-
 `Kamala Harris`\
 https://nytimes.com/live/2024/10/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
-**Election Live Updates: Harris Plans Closing Pitch as Trump Faces Rally Fallout**\
-`Vice President Kamala Harris will use the site of Donald J. Trump’s Jan. 6 speech to help make her closing argument. The former president will campaign in Pennsylvania.`\
+**Election Live Updates: Harris to Speak at Ellipse as Trump Faces Rally Fallout**\
+`Vice President Kamala Harris will use the site of Donald J. Trump’s Jan. 6 speech to help make her closing argument on Tuesday. The former president will campaign in Pennsylvania.`\
 https://nytimes.com/live/2024/10/29/us/harris-trump-election
 
