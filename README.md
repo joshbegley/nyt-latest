@@ -1,3 +1,7 @@
+**Advancing Hope in the Fight Against Cancer**\
+`How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas`\
+https://nytimes.com/paidpost/breyanzi/advancing-hope-in-the-fight-against-cancer.html
+
 **Diontae Johnson trade grades: Ravens load up for Super Bowl run; Panthers focus on future**\
 `Ravens QB Lamar Jackson has a strong chance to win his third MVP award this season, but he needed the reinforcements.`\
 https://nytimes.com/athletic/5883316/2024/10/29/dionate-johnson-trade-grades-ravens-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/style/armie-hammer-podcast.html
 **Trump’s Extraordinarily Negative TV Ads**\
 `The contrast to the Harris campaign has been stark.`\
 https://nytimes.com/2024/10/29/opinion/trumps-extraordinarily-negative-tv-ads.html
-
-**The Runza, a Favorite Nebraska Sandwich, Has a Cameo in the Campaign**\
-`Tim Walz, the Democratic vice-presidential nominee, is a fan of the ground-beef treat. On a recent stop at a Runza restaurant in Omaha, he managed to spend $600.`\
-https://nytimes.com/2024/10/29/us/elections/nebraska-runza-tim-walz.html
 
