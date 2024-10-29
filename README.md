@@ -1,5 +1,9 @@
+**Vatican Issues First Report on Sex Abuse, to Immediate Criticism**\
+`The report is intended to assess efforts by the Roman Catholic Church to safeguard minors and others. Advocates for survivors called it an exercise in obfuscation.`\
+https://nytimes.com/2024/10/29/world/europe/vatican-sex-abuse-report.html
+
 **BP Profit Falls, but It Still Sees ‘Potential to Grow’ in Oil and Gas**\
-`The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principle aim” was rewarding shareholders.`\
+`The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principle aim” was increasing earnings.`\
 https://nytimes.com/2024/10/29/business/bp-oil-gas-earnings.html
 
 **JJ Redick angry with himself after Lakers' first loss. His players love the passion**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/books/review/sister-deborah-scholastique-mukasong
 **Bryce Eldridge's Arizona Fall League stint ends, Giants pleased with his work**\
 `Eldridge performed well in 10 games at the plate, but the real focus of his time in Arizona was on defense, especially before games.`\
 https://nytimes.com/athletic/5881269/2024/10/29/bryce-eldridge-arizona-fall-league-sf-giants/
-
-**Weekly Student News Quiz: N.B.A. First, Formal Apology, Election**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/10/29/learning/29StudentNewsQuiz.html
 
