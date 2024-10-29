@@ -1,3 +1,7 @@
+**Freddie Freeman swings the Dodgers to brink of title: 'A pretty special run'**\
+`As Mookie Betts put it: “Even on one leg, he’s Freddie Freeman and carrying us right now."`\
+https://nytimes.com/athletic/5881818/2024/10/29/dodgers-yankees-world-series-freddie-freeman/
+
 **Word of the Day: pagoda**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/29/learning/word-of-the-day-pagoda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879110/2024/10/29/takehiro-tomiyasu-arsenal-injuri
 **How Vinicius Junior was overlooked for the Ballon d'Or - and the anger it sparked at Real Madrid**\
 `The Brazilian was the favourite to be named men's best player for 2023-24 and there was shock in Madrid when they found out he would not win`\
 https://nytimes.com/athletic/5880874/2024/10/29/vinicius-junior-ballon-dor-real-madrid-anger/
-
-**The tragedy of Pierre Bolangi, the promising footballer who died on a pre-season Army camp**\
-`Remembering the young Charlton player who lost his life when a pre-season training exercise went horribly wrong`\
-https://nytimes.com/athletic/5844423/2024/10/29/pierre-bolangi-tragedy-charlton/
 

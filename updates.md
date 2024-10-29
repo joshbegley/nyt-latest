@@ -1,3 +1,7 @@
+**Freddie Freeman swings the Dodgers to brink of title: 'A pretty special run'**\
+`As Mookie Betts put it: “Even on one leg, he’s Freddie Freeman and carrying us right now."`\
+https://nytimes.com/athletic/5881818/2024/10/29/dodgers-yankees-world-series-freddie-freeman/
+
 **Word of the Day: pagoda**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/29/learning/word-of-the-day-pagoda.html
