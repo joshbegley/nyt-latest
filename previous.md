@@ -1,3 +1,7 @@
+**Mikael Pyyhtiä finally breaks through in Blue Jackets' 6-1 rout of Edmonton**\
+`A new lineup saw instant success and pregame premonitions paid off in a near-shutout of the Oilers.`\
+https://nytimes.com/athletic/5881524/2024/10/28/blue-jackets-mikael-pyyhtia-edmonton/
+
 **Buehler, Dodgers one win away after stifling Yankees in Game 3: Takeaways**\
 `The Dodgers stormed to a 4-2 victory and a three games to none lead in the 120th World Series.`\
 https://nytimes.com/athletic/5881506/2024/10/28/dodgers-yankees-world-series-game-3-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000009788925/vivek-ramaswamy-has-a-differen
 **Jazz's Taylor Hendricks stretchered off court with right leg injury**\
 `Hendricks' right leg appeared to give out and he collapsed to the ground late in the third quarter.`\
 https://nytimes.com/athletic/5881480/2024/10/28/taylor-hendricks-leg-injury-jazz/
-
-**Magic's Paolo Banchero delivers first 50-point game of NBA season**\
-`Banchero tallied a career-high 50 points, 13 rebounds and nine assists to lead Orlando to a 119-115 win over Indiana.`\
-https://nytimes.com/athletic/5881449/2024/10/28/paolo-banchero-scores-50-points-magic-pacers/
 

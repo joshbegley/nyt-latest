@@ -1,3 +1,7 @@
+**Mikael Pyyhtiä finally breaks through in Blue Jackets' 6-1 rout of Edmonton**\
+`A new lineup saw instant success and pregame premonitions paid off in a near-shutout of the Oilers.`\
+https://nytimes.com/athletic/5881524/2024/10/28/blue-jackets-mikael-pyyhtia-edmonton/
+
 **Buehler, Dodgers one win away after stifling Yankees in Game 3: Takeaways**\
 `The Dodgers stormed to a 4-2 victory and a three games to none lead in the 120th World Series.`\
 https://nytimes.com/athletic/5881506/2024/10/28/dodgers-yankees-world-series-game-3-takeaways/
