@@ -2,7 +2,7 @@
 `After Hendricks' injury, the game was delayed and he was stretched off the court.`\
 https://nytimes.com/athletic/5881480/2024/10/28/taylor-hendricks-leg-injury-jazz/
 
-**Paolo Banchero delivers 50-point performance as Magic beat Pacers**\
+**Magic's Paolo Banchero delivers first 50-point game of NBA season**\
 `Banchero tallied a career-high 50 points, 13 rebounds and nine assists to lead Orlando to a 119-115 win over Indiana.`\
 https://nytimes.com/athletic/5881449/2024/10/28/paolo-banchero-scores-50-points-magic-pacers/
 
