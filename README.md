@@ -1,3 +1,7 @@
+**Ex-Leader of Black Transgender Group Is Charged With Stealing Its Money**\
+`After Dominique Morgan said her group would start a bail fund for poor defendants, she instead took nearly $100,000 for personal expenses, prosecutors said.`\
+https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.html
+
 **Au Pair Pleads Guilty to Manslaughter in Double Homicide**\
 `As part of a plea agreement, Juliana Peres Magalhães, 24, has agreed to cooperate with prosecutors, who have charged her ex-lover with murdering his wife and another man in 2023.`\
 https://nytimes.com/2024/10/29/us/juliana-peres-magalhaes-au-pair-guilty-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/trump-ad-medicare.html
 **Person: Panthers knew what they were getting in Diontae Johnson, who was true to form**\
 `Johnson returns to the AFC North with the Ravens, who 10 years ago acquired a Panthers receiver in their bid to win another Super Bowl.`\
 https://nytimes.com/athletic/5883666/2024/10/29/panthers-trade-diontae-johnson-ravens/
-
-**Until Saturday: The biggest bargain coach, plus a tight Heisman race**\
-`Welcome to Until Saturday, the five-star college football newsletter: Curt Cignetti is a big bargain, while Kirby Smart has the top salary.`\
-https://nytimes.com/athletic/5882066/2024/10/29/curt-cignetti-heisman-trophy-race-until-saturday/
 
