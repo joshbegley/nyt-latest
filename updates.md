@@ -1,3 +1,7 @@
+**Is There a Moral Choice for Catholic Voters?**\
+`Why are we being asked to choose between the lesser of two evils?`\
+https://nytimes.com/2024/10/29/opinion/catholic-third-party.html
+
 **Why Is Harris So Passionate About Abortion Rights? Her Past Work Holds Clues.**\
 `For a politician who has been criticized for shifting positions on some issues, this is an area where she has shown unwavering conviction.`\
 https://nytimes.com/2024/10/29/health/kamala-harris-abortion-rights.html
