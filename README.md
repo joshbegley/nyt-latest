@@ -1,3 +1,7 @@
+**Rosenthal: As World Series dream slips away, a reality check awaits Yankees, Aaron Judge**\
+`Crazy as this might sound, considering they won 94 games and their first AL pennant since 2009, the Yankees are not very good at baseball.`\
+https://nytimes.com/athletic/5882025/2024/10/29/dodgers-yankees-world-series-aaron-judge-losing/
+
 **A Book that Explains the 2024 Campaign**\
 `We covering the America’s working-class majority.`\
 https://nytimes.com/2024/10/29/briefing/trump-harris-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881087/2024/10/29/chiefs-defense-saves-offense-rai
 **What Christian Darrisaw's injury means for an already-disjointed Vikings offense**\
 `Losing their talented left tackle will make it harder for an inconsistent Vikings offense that has already had trouble sustaining drives.`\
 https://nytimes.com/athletic/5880749/2024/10/29/christian-darrisaw-injury-vikings-offense/
-
-**Boyd: If Colts bench Anthony Richardson, it's clear they're content embracing mediocrity**\
-`For the Colts to even crack that door open to benching Richardson just 10 games into his career is head-scratching.`\
-https://nytimes.com/athletic/5881249/2024/10/29/anthony-richardson-colts-bench-joe-flacco/
 
