@@ -1,3 +1,7 @@
+**Jaywalking Is a New York Tradition. Now It’s Legal, Too.**\
+`New Yorkers can cross the street wherever they please without fear of a summons. Some fear the new law could lead to more pedestrian deaths.`\
+https://nytimes.com/2024/10/29/nyregion/jaywalking-legal-law-nyc.html
+
 **A Harris Presidency Is the Only Way to Stay Ahead of A.I.**\
 `We must make sure that superintelligent machines remain aligned with human values and interests as they use their powers to go off in their own directions.`\
 https://nytimes.com/2024/10/29/opinion/artificial-intelligence-harris-trump-election.html
