@@ -1,3 +1,11 @@
+**Amorim on Man Utd approach: 'No decision has been made'**\
+`Ruben Amorim says &#8220;no decision has been made&#8221; on his future as Manchester United step up their bid to make him their new head coach.`\
+https://nytimes.com/athletic/5883205/2024/10/29/ruben-amorim-manchester-united-approach/
+
+**Polio vaccinations in Gaza stall, and nearly 120,000 children are without the crucial second dose.**\
+`By Apoorva Mandavilli and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/polio-vaccinations-in-gaza-stall-and-nearly-120000-children-are-without-the-crucial-second-dose
+
 **Solange Knowles, Lester Holt and Darren Walker Honor the Studio Museum in Harlem**\
 `Artists, business executives and museum leaders turned out for the annual benefit, which raised more than $3.7 million for the museum.`\
 https://nytimes.com/2024/10/29/style/solange-knowles-lester-holt-studio-museum-harlem.html
