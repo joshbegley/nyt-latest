@@ -1,4 +1,16 @@
-**Giants don't trust CB Deonte Banks right now, and that's a big problem**\
+**Tuesday Takeaways: The Kings finally light the beam, and Jayson Tatum's swagger returns**\
+`The Lakers and Suns enjoy the Good Vibes Club, while Cleveland is off to a hot start. Sam Amick takes a spin around the association.`\
+https://nytimes.com/athletic/5881941/2024/10/29/kings-win-beam-lakers-tatum-takeaways/
+
+**Jeff Bezos, Jerome Powell, Serena Williams and More at the DealBook Summit**\
+`The conference on Dec. 4 will bring together the biggest names in business, politics and culture.`\
+https://nytimes.com/2024/10/29/business/dealbook/bezos-powell-serena-williams-dealbook-summit.html
+
+**Vinicius Jr's Ballon d'Or hopes harmed by Madrid team-mates, awards chief suggests**\
+`France Football’s editor-in-chief Vincent Garcia has suggested that Vinicius Junior’s chances of winning the Ballon d’Or were harmed by the achievements of Real Madrid team-mates Jude Bellingham and Dani Carvajal.`\
+https://nytimes.com/athletic/5882174/2024/10/29/vinicius-ballon-dor-voting/
+
+**The Giants have a Deonte Banks problem. Can benched CB still be part of their future?**\
 `The 2024 Giants aren't going anywhere, so the rest of this season will be about finding out about the future. Is Banks part of it or not?`\
 https://nytimes.com/athletic/5881881/2024/10/29/giants-deonte-banks-benched-steelers/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5882084/2024/10/29/jannik-sinner-paris-masters-out/
 **McDonald’s Focus on Value Bolsters U.S. Sales**\
 `The fast-food giant’s earnings results did not reflect the potential fallout from an E. coli outbreak that the company has moved quickly to contain.`\
 https://nytimes.com/2024/10/29/business/mcdonalds-earnings-e-coli-outbreak-sales.html
-
-**Rosenthal: As World Series dream slips away, a reality check awaits Yankees, Aaron Judge**\
-`Crazy as this might sound, considering they won 94 games and their first AL pennant since 2009, the Yankees are not very good at baseball.`\
-https://nytimes.com/athletic/5882025/2024/10/29/dodgers-yankees-world-series-aaron-judge-losing/
-
-**A Book that Explains the 2024 Campaign**\
-`We’re covering the America’s working-class majority.`\
-https://nytimes.com/2024/10/29/briefing/trump-harris-2024-election.html
-
-**The Pulse: The World Series is over***\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5881417/2024/10/29/dodgers-yankees-world-series-game-3-the-pulse/
 

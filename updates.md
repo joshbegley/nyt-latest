@@ -1,3 +1,19 @@
+**Tuesday Takeaways: The Kings finally light the beam, and Jayson Tatum's swagger returns**\
+`The Lakers and Suns enjoy the Good Vibes Club, while Cleveland is off to a hot start. Sam Amick takes a spin around the association.`\
+https://nytimes.com/athletic/5881941/2024/10/29/kings-win-beam-lakers-tatum-takeaways/
+
+**Jeff Bezos, Jerome Powell, Serena Williams and More at the DealBook Summit**\
+`The conference on Dec. 4 will bring together the biggest names in business, politics and culture.`\
+https://nytimes.com/2024/10/29/business/dealbook/bezos-powell-serena-williams-dealbook-summit.html
+
+**Vinicius Jr's Ballon d'Or hopes harmed by Madrid team-mates, awards chief suggests**\
+`France Football’s editor-in-chief Vincent Garcia has suggested that Vinicius Junior’s chances of winning the Ballon d’Or were harmed by the achievements of Real Madrid team-mates Jude Bellingham and Dani Carvajal.`\
+https://nytimes.com/athletic/5882174/2024/10/29/vinicius-ballon-dor-voting/
+
+**The Giants have a Deonte Banks problem. Can benched CB still be part of their future?**\
+`The 2024 Giants aren't going anywhere, so the rest of this season will be about finding out about the future. Is Banks part of it or not?`\
+https://nytimes.com/athletic/5881881/2024/10/29/giants-deonte-banks-benched-steelers/
+
 **Giants don't trust CB Deonte Banks right now, and that's a big problem**\
 `The 2024 Giants aren't going anywhere, so the rest of this season will be about finding out about the future. Is Banks part of it or not?`\
 https://nytimes.com/athletic/5881881/2024/10/29/giants-deonte-banks-benched-steelers/
