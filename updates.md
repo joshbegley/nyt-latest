@@ -1,3 +1,7 @@
+**In 1930s Rwanda, a Black Savior Is Coming, and She Might Be a Woman**\
+`The eponymous healer in “Sister Deborah” inspires a Black feminist uprising.`\
+https://nytimes.com/2024/10/29/books/review/sister-deborah-scholastique-mukasonga.html
+
 **Bryce Eldridge's Arizona Fall League stint ends, Giants pleased with his work**\
 `Eldridge performed well in 10 games at the plate, but the real focus of his time in Arizona was on defense, especially before games.`\
 https://nytimes.com/athletic/5881269/2024/10/29/bryce-eldridge-arizona-fall-league-sf-giants/

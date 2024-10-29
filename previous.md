@@ -1,3 +1,7 @@
+**In 1930s Rwanda, a Black Savior Is Coming, and She Might Be a Woman**\
+`The eponymous healer in “Sister Deborah” inspires a Black feminist uprising.`\
+https://nytimes.com/2024/10/29/books/review/sister-deborah-scholastique-mukasonga.html
+
 **Bryce Eldridge's Arizona Fall League stint ends, Giants pleased with his work**\
 `Eldridge performed well in 10 games at the plate, but the real focus of his time in Arizona was on defense, especially before games.`\
 https://nytimes.com/athletic/5881269/2024/10/29/bryce-eldridge-arizona-fall-league-sf-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/29/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Harris Plans Closing Pitch as Trump Faces Rally Fallout**\
 `Vice President Kamala Harris will use the site of Donald J. Trump’s Jan. 6 speech to help make her closing argument. The former president will campaign in Pennsylvania.`\
 https://nytimes.com/live/2024/10/29/us/harris-trump-election
-
-**The Athletic FC: Manchester United's Amorim swoop and Real Madrid's Ballon d'Or fury**\
-`Details on Erik ten Hag's successor and why toys flew out of the pram at the Bernabeu`\
-https://nytimes.com/athletic/5882118/2024/10/29/manchester-united-amorim-real-madrid-ballon-dor/
 
