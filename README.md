@@ -1,3 +1,15 @@
+**Rudy Gay retires after 18 NBA seasons**\
+`Born in Brooklyn, New York and drafted eighth overall in 2006, Gay played for five teams in his 18 seasons spent in the NBA. `\
+https://nytimes.com/athletic/5882825/2024/10/29/rudy-gay-announces-retirement-from-nba/
+
+**TSMC Chips Ended Up in Devices Made by China’s Huawei Despite U.S. Controls**\
+`The U.S. government has tried to keep Chinese companies from obtaining certain advanced technologies, but concerns have been growing that some products may have been routed to Huawei.`\
+https://nytimes.com/2024/10/29/business/tsmc-huawei-computer-chips.html
+
+**What NBA scouts are saying about Bilal Coulibaly and his future**\
+`Coulibaly might be the most important player on Washington's roster for the long term. He's also one of the most difficult to project.`\
+https://nytimes.com/athletic/5881099/2024/10/29/bilal-coulibaly-nba-scouts-evaluation-2024/
+
 **With Ump Cam, Dirt Cam, drones and more, at World Series, MLB has cameras everywhere**\
 `MLB is deploying over 40 cameras for the World Series and adding new technology to the broadcast, creating a different viewing experience.`\
 https://nytimes.com/athletic/5882817/2024/10/29/yankees-dodgers-world-series-camera-technology-mlb/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5882681/2024/10/29/blue-jays-offseason-roster-deadl
 **What Happened When Chicago’s Mayor Followed a Teachers’ Union Playbook**\
 `In Chicago, the mayor and the teachers’ union are tightly connected. The relationship has ushered in generous spending and led to political turmoil.`\
 https://nytimes.com/2024/10/29/us/chicago-teachers-union-school-board-brandon-johnson.html
-
-**Automatic Refunds for Significant Flight Disruptions: New Airline Rule Goes Into Effect**\
-`The Transportation Department’s new rule also sets the definition for what constitutes a “significant” delay in air travel.`\
-https://nytimes.com/2024/10/29/travel/airline-fees-refunds-dot-rules.html
-
-**A Celebrated Pianist’s Final Recording, Made With His Son**\
-`Maurizio Pollini didn’t think his farewell on disc would be an album of music by Schubert with his son, Daniele. Now, it serves as an emotional coda.`\
-https://nytimes.com/2024/10/29/arts/music/maurizio-pollini-final-recording.html
-
-**New Vehicles, Face Paint and a 1,200-Foot Fall: The U.S. Army Prepares for War With China**\
-`The big and cumbersome Army is trying to transform itself to deploy quickly to Asia, if needed. It is an inherently dangerous business.`\
-https://nytimes.com/2024/10/29/us/politics/us-military-army-china.html
 
