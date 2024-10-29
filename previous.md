@@ -1,3 +1,11 @@
+**Inside the Colorful and Cultish World of Nerds Gummy Clusters**\
+`Sales of Nerds have greatly increased in recent years, the company says. The secret? A multicolored orb.`\
+https://nytimes.com/2024/10/29/us/nerds-gummy-clusters.html
+
+**‘Standing Tall:’ Why ‘Perfect Strangers’ Keeps Coming Back**\
+`From “The Leftovers” to “Only Murders in the Building,” “Perfect Strangers,” the wacky 1980s sitcom with a bombastic theme song, is enjoying a strange afterlife.`\
+https://nytimes.com/2024/10/29/arts/television/perfect-strangers-theme-song.html
+
 **With Limited Options, Zelensky Seeks a Path Forward for Ukraine**\
 `A muted response to Ukraine’s “victory plan” and steep challenges on the battlefield leave Kyiv searching for a Plan B.`\
 https://nytimes.com/2024/10/29/world/europe/ukraine-zelensky-russia-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5880598/2024/10/29/patriots-wide-receiver-problem/
 **Halloween TV, Where Things Are Even Worse**\
 `This year’s horror series take us to damned villages, cursed towns and countries fallen into anarchy.`\
 https://nytimes.com/2024/10/29/arts/television/new-horror-tv-shows.html
-
-**An Ethical Minefield Awaits a Possible Second Trump Presidency**\
-`With business ties to foreign governments and holdings in industries overseen by federal regulators, Donald Trump would likely be the most conflicted president in U.S. history.`\
-https://nytimes.com/2024/10/29/us/elections/trump-foreign-business-presidency-conflicts.html
-
-**An Apartment in the Center of Paris, Inspired by Venice**\
-`A couple who own an interior design firm found a residence that could also serve as a showroom for their work.`\
-https://nytimes.com/2024/10/29/realestate/an-apartment-in-the-center-of-paris-inspired-by-venice.html
 

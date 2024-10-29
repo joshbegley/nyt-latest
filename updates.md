@@ -1,3 +1,11 @@
+**Inside the Colorful and Cultish World of Nerds Gummy Clusters**\
+`Sales of Nerds have greatly increased in recent years, the company says. The secret? A multicolored orb.`\
+https://nytimes.com/2024/10/29/us/nerds-gummy-clusters.html
+
+**‘Standing Tall:’ Why ‘Perfect Strangers’ Keeps Coming Back**\
+`From “The Leftovers” to “Only Murders in the Building,” “Perfect Strangers,” the wacky 1980s sitcom with a bombastic theme song, is enjoying a strange afterlife.`\
+https://nytimes.com/2024/10/29/arts/television/perfect-strangers-theme-song.html
+
 **With Limited Options, Zelensky Seeks a Path Forward for Ukraine**\
 `A muted response to Ukraine’s “victory plan” and steep challenges on the battlefield leave Kyiv searching for a Plan B.`\
 https://nytimes.com/2024/10/29/world/europe/ukraine-zelensky-russia-war.html
