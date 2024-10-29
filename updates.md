@@ -1,3 +1,19 @@
+**Super Bowl 2025 odds: Still Chiefs' world, but Lions and more keep closing gap**\
+`The Lions' odds to win the Super Bowl have consistently improved every week. We break down risers and fallers before Week 9.`\
+https://nytimes.com/athletic/5882671/2024/10/29/super-bowl-odds-week-9-chiefs-lions-bills/
+
+**WTA Finals draw: Swiatek and Gauff meet, Sabalenka faces Rybakina**\
+`The season-ending event sees Sabalenka and Swiatek battle for year-end world No. 1 for the second year in a row`\
+https://nytimes.com/athletic/5882196/2024/10/29/wta-finals-draw-sabalenka-swiatek-gauff-riyadh/
+
+**Full Time: Ballon d’Or *now*? Really?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5882831/2024/10/29/ballon-dor-uswnt-nwsl-playoffs-full-time/
+
+**Blue Jays offseason primer: Important dates and deadlines to know**\
+`These are the important roster deadlines and dates to know when the Blue Jays' offseason kicks off after the World Series.`\
+https://nytimes.com/athletic/5882681/2024/10/29/blue-jays-offseason-roster-deadlines/
+
 **What Happened When Chicago’s Mayor Followed a Teachers’ Union Playbook**\
 `In Chicago, the mayor and the teachers’ union are tightly connected. The relationship has ushered in generous spending and led to political turmoil.`\
 https://nytimes.com/2024/10/29/us/chicago-teachers-union-school-board-brandon-johnson.html
