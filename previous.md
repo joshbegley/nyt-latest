@@ -1,3 +1,19 @@
+**A Harris Presidency Is the Only Way to Stay Ahead of A.I.**\
+`We must make sure that superintelligent machines remain aligned with human values and interests as they use their powers to go off in their own directions.`\
+https://nytimes.com/2024/10/29/opinion/artificial-intelligence-harris-trump-election.html
+
+**A Conservative Case Against Trump**\
+`In a choice between misfortunes, one is clearly worse.`\
+https://nytimes.com/2024/10/29/opinion/trump-conservative-harris-election.html
+
+**Fani Willis Takes the Stand as a Victim of Racist Threats**\
+`Ms. Willis spoke of the fear she felt after a man made “vile” calls targeting her and another Black official in Georgia. The man was sentenced to almost two years in prison.`\
+https://nytimes.com/2024/10/29/us/fani-willis-racist-threats-georgia.html
+
+**Amid Backlash, Trump Claims No President Has Done More for Puerto Rico Than He Has**\
+`The former president made the claim at a round-table discussion in Pennsylvania on Tuesday, days after a comic disparaged Puerto Rico during Sunday’s Trump rally in New York.`\
+https://nytimes.com/2024/10/29/us/politics/trump-puerto-rico-madison-square-garden-pennsylvania.html
+
 **Ravens' acquisition of Diontae Johnson spurs 2 reactions: Why not, and what's next?**\
 `Baltimore will owe Johnson roughly $625,000 for the rest of the season, making it a risk worth taking on a receiver with big-play potential.`\
 https://nytimes.com/athletic/5883831/2024/10/29/ravens-trade-diontae-johnson-panthers/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/29/movies/teri-garr-photos.html
 **Supreme Court Declines to Remove R.F.K. Jr. From Ballot in Two Key States**\
 `Since throwing his support behind former President Donald J. Trump, Mr. Kennedy has sought both to be removed from and to remain on various state ballots.`\
 https://nytimes.com/2024/10/29/us/politics/supreme-court-rfk-jr-wisconsin-michigan-ballot.html
-
-**What Can a Celebrity Endorsement Do? Ask Shonda Rhimes.**\
-`Vice President Kamala Harris has plenty of big-name backers, but one of the eternal questions is how much star power ultimately matters to voters.`\
-https://nytimes.com/2024/10/29/us/politics/shonda-rhimes-kamala-harris.html
-
-**A Closing Argument for an Abnormal Election**\
-`A divided and deadlocked country faces big questions about what presidential power is actually for.`\
-https://nytimes.com/2024/10/29/us/politics/trump-harris-election-closing-arguments.html
-
-**A disability rights group hits Trump with ads featuring his nephew.**\
-`In a new ad in Pennsylvania, Fred Trump III says his uncle Donald J. Trump suggested disabled people should “just die.” Another ad highlights Kamala Harris’s plan for coverage of at-home care.`\
-https://nytimes.com/live/2024/10/29/us/harris-trump-election/a-disability-rights-group-hits-trump-with-ads-featuring-his-nephew
-
-**Ex-Leader of Black Transgender Group Is Charged With Stealing Its Money**\
-`After Dominique Morgan said her group would start a bail fund for poor defendants, she instead took nearly $100,000 for personal expenses, prosecutors said.`\
-https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.html
 

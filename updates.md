@@ -1,3 +1,19 @@
+**A Harris Presidency Is the Only Way to Stay Ahead of A.I.**\
+`We must make sure that superintelligent machines remain aligned with human values and interests as they use their powers to go off in their own directions.`\
+https://nytimes.com/2024/10/29/opinion/artificial-intelligence-harris-trump-election.html
+
+**A Conservative Case Against Trump**\
+`In a choice between misfortunes, one is clearly worse.`\
+https://nytimes.com/2024/10/29/opinion/trump-conservative-harris-election.html
+
+**Fani Willis Takes the Stand as a Victim of Racist Threats**\
+`Ms. Willis spoke of the fear she felt after a man made “vile” calls targeting her and another Black official in Georgia. The man was sentenced to almost two years in prison.`\
+https://nytimes.com/2024/10/29/us/fani-willis-racist-threats-georgia.html
+
+**Amid Backlash, Trump Claims No President Has Done More for Puerto Rico Than He Has**\
+`The former president made the claim at a round-table discussion in Pennsylvania on Tuesday, days after a comic disparaged Puerto Rico during Sunday’s Trump rally in New York.`\
+https://nytimes.com/2024/10/29/us/politics/trump-puerto-rico-madison-square-garden-pennsylvania.html
+
 **Ex-Leader of Black Transgender Group Is Charged With Stealing Its Money**\
 `After Dominique Morgan said her group would start a bail fund for poor defendants, she instead took nearly $100,000 for personal expenses, prosecutors said.`\
 https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.html
