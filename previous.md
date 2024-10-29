@@ -1,3 +1,11 @@
+**Dozens Are Killed in an Israeli Strike in North Gaza, Local Authorities say**\
+`Gaza’s health ministry said that at least 25 children were among those killed in an Israeli strike on a residential building in Beit Lahia, in northern Gaza. The Israeli military said it was looking into the strike.`\
+https://nytimes.com/video/world/middleeast/100000009789347/beit-lahia-gaza-strike-children-killed-.html
+
+**NBA Power Rankings: Celtics, Thunder at the top; one big question for all 30 teams**\
+`The Knicks, Bucks and 76ers are in the middle of the pack, and so far, the Cavs look like a contender.`\
+https://nytimes.com/athletic/5882036/2024/10/29/nba-power-rankings-celtics-thunder-lakers/
+
 **The World’s Doomsday Plant Vault Gets Thousands of New Seeds**\
 `A storage facility in Norway built to safeguard crop diversity recently received more than 30,000 samples as concerns grow about climate change and food insecurity.`\
 https://nytimes.com/2024/10/29/world/europe/svalbard-seed-vault-deposit-climate.html
@@ -30,12 +38,4 @@ https://nytimes.com/2024/10/29/style/wheres-ivanka.html
 **CFB Week 9 reactions: Coach Prime's turnaround, Kaleb Johnson's historic season**\
 `Deion Sanders and Colorado have things rolling, and Iowa's Kaleb Johnson just can't be stopped.`\
 https://nytimes.com/athletic/5882069/2024/10/29/college-football-week-9-reaction-colorado-deion-sanders-iowa-kaleb-johnson/
-
-**What to know about the 2024 NFL trade deadline: Date, history and notable deals**\
-`The league's owners voted during their annual meetings in March to move the trade deadline following Week 9 instead of Week 8.`\
-https://nytimes.com/athletic/5870047/2024/10/29/nfl-trade-deadline-2024-date/
-
-**Vatican Issues First Report on Sex Abuse, to Immediate Criticism**\
-`The report is intended to assess efforts by the Roman Catholic Church to safeguard minors and others. Advocates for survivors called it an exercise in obfuscation.`\
-https://nytimes.com/2024/10/29/world/europe/vatican-sex-abuse-report.html
 

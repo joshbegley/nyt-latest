@@ -1,3 +1,11 @@
+**Dozens Are Killed in an Israeli Strike in North Gaza, Local Authorities say**\
+`Gaza’s health ministry said that at least 25 children were among those killed in an Israeli strike on a residential building in Beit Lahia, in northern Gaza. The Israeli military said it was looking into the strike.`\
+https://nytimes.com/video/world/middleeast/100000009789347/beit-lahia-gaza-strike-children-killed-.html
+
+**NBA Power Rankings: Celtics, Thunder at the top; one big question for all 30 teams**\
+`The Knicks, Bucks and 76ers are in the middle of the pack, and so far, the Cavs look like a contender.`\
+https://nytimes.com/athletic/5882036/2024/10/29/nba-power-rankings-celtics-thunder-lakers/
+
 **The World’s Doomsday Plant Vault Gets Thousands of New Seeds**\
 `A storage facility in Norway built to safeguard crop diversity recently received more than 30,000 samples as concerns grow about climate change and food insecurity.`\
 https://nytimes.com/2024/10/29/world/europe/svalbard-seed-vault-deposit-climate.html
