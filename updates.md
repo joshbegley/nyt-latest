@@ -1,3 +1,11 @@
+**Immense Deluge Floods Parts of Southern and Eastern Spain**\
+`The region of Andalusia received four times the amount of rain that usually falls in October in a single day.`\
+https://nytimes.com/video/world/europe/100000009789617/immense-deluge-floods-parts-of-southern-and-eastern-spain.html
+
+**Arteta, the Mourinho comparison and what it says about Arsenal's style**\
+`Jamie Carragher was just the latest to make what Arsenal fans would consider an unflattering comparison - it is not entirely without merit`\
+https://nytimes.com/athletic/5882850/2024/10/29/arteta-mourinho-arsenal/
+
 **NFL Offensive Rookie of the Year odds: Jayden Daniels will be tough to catch now**\
 `With his viral Week 8 performance, Jayden Daniels cemented himself as the favorite for OROY. Can anyone challenge him?`\
 https://nytimes.com/athletic/5882816/2024/10/29/nfl-offensive-rookie-of-the-year-odds-jayden-daniels/
