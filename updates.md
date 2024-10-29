@@ -1,3 +1,11 @@
+**Ravens' acquisition of WR Diontae Johnson spurs 2 reactions: Why not, and what's next?**\
+`Baltimore will owe Johnson roughly $625,000 for the rest of the season, making it a risk worth taking on a receiver with big-play potential.`\
+https://nytimes.com/athletic/5883831/2024/10/29/ravens-trade-diontae-johnson-panthers/
+
+**Democrats Highlight Puerto Rico Insult on Billboards Near Trump Rally**\
+`The party invested in two digital highway billboards in Allentown, Pa., which has a significant Puerto Rican population.`\
+https://nytimes.com/2024/10/29/us/politics/trump-rally-puerto-rico-pennsylvania.html
+
 **Here’s when NBA games will air on NBC and Amazon starting next season**\
 `The details come from a suite of new documents unsealed Tuesday in the lawsuit between Warner Bros. Discovery and the NBA.`\
 https://nytimes.com/athletic/5883682/2024/10/29/nba-amazon-nbc-media-deal/
