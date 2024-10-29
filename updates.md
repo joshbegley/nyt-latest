@@ -1,3 +1,7 @@
+**Ahead of Harris’s Speech in Washington, Trump Tries to Focus on Immigration**\
+`The former president believes his focus on illegal immigration is the reason he won in 2016, and this year, he has pushed his advisers to add content related to it.`\
+https://nytimes.com/2024/10/29/us/politics/trump-mar-a-lago-immigration.html
+
 **Musk’s PAC hints at a vulgar taunt against women in an ad.**\
 `One version of the ad, first posted by the group on Friday evening, remained active on Tuesday, with more than 430,000 views.`\
 https://nytimes.com/2024/10/29/us/politics/elon-musk-pac-harris-videos.html
