@@ -1,3 +1,11 @@
+**Person: Panthers knew what they were getting in Diontae Johnson, who was true to form**\
+`Johnson returns to the AFC North with the Ravens, who 10 years ago acquired a Panthers receiver in their bid to win another Super Bowl.`\
+https://nytimes.com/athletic/5883666/2024/10/29/panthers-trade-diontae-johnson-ravens/
+
+**Until Saturday: The biggest bargain coach, plus a tight Heisman race**\
+`Welcome to Until Saturday, the five-star college football newsletter: Curt Cignetti is a big bargain, while Kirby Smart has the top salary.`\
+https://nytimes.com/athletic/5882066/2024/10/29/curt-cignetti-heisman-trophy-race-until-saturday/
+
 **Wednesday Briefing: Trump’s Worrisome Business Deals**\
 `Plus, what happened to repatriated art in Benin.`\
 https://nytimes.com/2024/10/29/briefing/trump-business-gaza-us-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/early-voting-presidential-election.ht
 **Alphabet Revenue Jumps 15% to $88.3 Billion**\
 `The tech giant’s 34 percent increase in quarterly profit topped Wall Street expectations.`\
 https://nytimes.com/2024/10/29/technology/alphabet-google-earnings.html
-
-**Devices With ‘Free Gaza’ Messages Found at Ballot Box Fires**\
-`Law enforcement officials cautioned that they had not yet determined a motive for the Pacific Northwest arson fires. But the messages have heightened the sensitivity of the investigation.`\
-https://nytimes.com/2024/10/29/us/ballot-box-fires-portland-vancouver-gaza.html
-
-**Kevin Durant, Jaylen Brown highlight Season 2 cast of 'Starting 5'**\
-`The new cast will also include Tyrese Haliburton and Shai Gilgeous-Alexander.`\
-https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
 
