@@ -1,3 +1,15 @@
+**Why Trump Has an Edge With These 11 Michigan Voters — Even Though They Don’t Like Him**\
+`The group participants discuss the state of the race and what may drive them toward a given candidate.`\
+https://nytimes.com/interactive/2024/10/29/opinion/focus-group-michigan-voters.html
+
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/10/29/briefing/trump-rally-unrwa-ukraine.html
+
+**Blackhawks ready to build on first 10 games with win over Avalanche: Observations**\
+`An excellent defensive effort helped the Blackhawks finish their first ten games with a win and a renewed sense of purpose.`\
+https://nytimes.com/athletic/5881443/2024/10/29/blackhawks-first-10-games-avalanche/
+
 **Nikola Jokić and Jamal Murray had a moment, but the Nuggets are still finding themselves**\
 `There was a curious desperation to the Nuggets on Monday as they looked to avoid an 0-3 start.`\
 https://nytimes.com/athletic/5881622/2024/10/29/nuggets-raptors-nikola-jokic-jamal-murray/
