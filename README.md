@@ -1,3 +1,15 @@
+**'Superhero' Freddie Freeman shining in World Series filled with future Hall of Famers**\
+`With possibly eight future Hall of Famers, this Series is in a special category. But Freeman, even on a bad ankle, is stealing the show. `\
+https://nytimes.com/athletic/5881935/2024/10/29/dodgers-yankees-world-series-freddie-freeman-hall-of-fame/
+
+**Which prospects will Twins protect from Rule 5 draft? Must-adds and tough calls**\
+`Here are the most prominent Twins prospects who will be eligible for the Rule 5 draft if they aren't added to the 40-man roster by Nov. 19.`\
+https://nytimes.com/athletic/5875902/2024/10/29/minnesota-twins-roster-rule-5-draft/
+
+**How the Dodgers' Walker Buehler found himself in October**\
+`Buehler was supposed to be a shell of his former dominant self, but the World Series stage conjured up his best stuff.`\
+https://nytimes.com/athletic/5881824/2024/10/29/dodgers-yankees-world-series-walker-buehler/
+
 **On the Ballot: An Immigration System Most Americans Never Wanted**\
 `The complicated history of trade-offs and compromises behind U.S. border control.`\
 https://nytimes.com/2024/10/29/podcasts/the-daily/election-immigration.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5881041/2024/10/29/rangers-matt-rempe-ahl-stint-kre
 **NBA, WNBA players and teams look to get out the vote in a bitterly divided country**\
 `This cycle, teams and players in both leagues are continuing to engage communities in team cities to get people registered to vote.`\
 https://nytimes.com/athletic/5860976/2024/10/29/nba-wnba-players-and-teams-look-to-get-out-the-vote-in-a-bitterly-divided-country/
-
-**NFL QB stock report, Week 9: Why the Aaron Rodgers-Jets experiment has failed**\
-`"Rodgers has been so good for so long that it’s like people believed he was immune from the effects of tearing his Achilles at age 40."`\
-https://nytimes.com/athletic/5877971/2024/10/29/nfl-qb-stock-report-rankings-aaron-rodgers-jets-fail/
-
-**Foreign Election Interference, and Volkswagen May Close Factories**\
-`Plus, why you should never cross a crow.`\
-https://nytimes.com/2024/10/29/podcasts/foreign-election-interference-volkswagen.html
-
-**Wordle Review No. 1,229**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 30, 2024.`\
-https://nytimes.com/2024/10/29/crosswords/wordle-review-1229.html
 
