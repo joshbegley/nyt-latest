@@ -1,3 +1,11 @@
+**In Botswana’s Election, Diamond Profits Are a Defining Issue**\
+`The party that has governed the country since 1966 could lose power as the economy struggles from a slump in demand for diamonds, which made Botswana an African success story.`\
+https://nytimes.com/2024/10/29/world/africa/botswana-election-diamonds.html
+
+**Texans' Stefon Diggs lands on season-ending IR after Week 8 knee injury**\
+`Diggs suffered a non-contact knee injury trying to cut on his route with 1:50 remaining in the third quarter of the Texans' Week 8 win.`\
+https://nytimes.com/athletic/5880660/2024/10/29/stefon-diggs-injury-knee-texans/
+
 **Immense Deluge Floods Parts of Southern and Eastern Spain**\
 `The region of Andalusia received four times the amount of rain that usually falls in October in a single day.`\
 https://nytimes.com/video/world/europe/100000009789617/immense-deluge-floods-parts-of-southern-and-eastern-spain.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/books/review/joe-hill-stephen-graham-jones-horror
 **PWHL preparing for expansion as early as 2025-26 season, could add up to 2 teams**\
 `After success in its inaugural season, the PWHL is looking to expand to new hockey markets sooner than expected.`\
 https://nytimes.com/athletic/5882695/2024/10/29/pwhl-womens-hockey-expansion-cities/
-
-**CNN Bars Pro-Trump Guest After His ‘Beeper’ Remark to Mehdi Hasan**\
-`After Mr. Hasan voiced support for Palestinians, the CNN guest, Ryan James Girdusky, said, “I hope your beeper doesn’t go off.”`\
-https://nytimes.com/2024/10/29/business/cnn-pager-comment-mehdi-hasan.html
-
-**Arteta, the Mourinho comparison and what it says about Arsenal's style**\
-`Jamie Carragher was just the latest to make what Arsenal fans would consider an unflattering comparison - it is not entirely without merit`\
-https://nytimes.com/athletic/5882850/2024/10/29/arteta-mourinho-arsenal/
 
