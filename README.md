@@ -1,3 +1,7 @@
+**JJ Redick angry with himself after Lakers' first loss. His players love the passion**\
+`A rare off night from LeBron James and a blown lead against the Suns kept the Lakers from a 4-0 start.`\
+https://nytimes.com/athletic/5881473/2024/10/29/jj-redick-lakers-loss-suns/
+
 **Cowboys Today: How many wins will Dallas finish with this season?**\
 `The Cowboys have a brutal four-game stretch ahead and a key stat that explains a lot of this season's frustrations.`\
 https://nytimes.com/athletic/5881778/2024/10/29/cowboys-today-win-total-turnover-margin/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/29/learning/29StudentNewsQuiz.html
 **The Chargers lead the NFL in scoring defense. Are they for real?**\
 `The Chargers are allowing 12.7 points per game. How much of that is their noticeable improvement versus facing a last-place schedule?`\
 https://nytimes.com/athletic/5881172/2024/10/29/chargers-scoring-defense-leaders/
-
-**Erik ten Hag: Just the latest manager unable to impose a style of play on Manchester United**\
-`The Dutchman had similar issues to Ole Gunnar Solskjaer and Ralf Rangnick - but he did at least win two trophies in his time at Old Trafford`\
-https://nytimes.com/athletic/5881995/2024/10/29/erik-ten-hag-style-of-play-manchester-united/
 
