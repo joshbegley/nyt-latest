@@ -1,3 +1,11 @@
+**What Happened When Chicago’s Mayor Followed a Teachers’ Union Playbook**\
+`In Chicago, the mayor and the teachers’ union are tightly connected. The relationship has ushered in generous spending and led to political turmoil.`\
+https://nytimes.com/2024/10/29/us/chicago-teachers-union-school-board-brandon-johnson.html
+
+**Automatic Refunds for Significant Flight Disruptions: New Airline Rule Goes Into Effect**\
+`The Transportation Department’s new rule also sets the definition for what constitutes a “significant” delay in air travel.`\
+https://nytimes.com/2024/10/29/travel/airline-fees-refunds-dot-rules.html
+
 **A Celebrated Pianist’s Final Recording, Made With His Son**\
 `Maurizio Pollini didn’t think his farewell on disc would be an album of music by Schubert with his son, Daniele. Now, it serves as an emotional coda.`\
 https://nytimes.com/2024/10/29/arts/music/maurizio-pollini-final-recording.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/well/walking-pneumonia-symptoms-treatment.html
 **How Elon Musk Might Use His Pull With Trump to Help Tesla**\
 `Although Donald Trump has opposed policies that favor electric cars, if he becomes president he could ease regulatory scrutiny of Tesla or protect lucrative credits and subsidies.`\
 https://nytimes.com/2024/10/29/business/economy/elon-musk-trump-tesla.html
-
-**Who's playing more (and less) for the Maple Leafs under Craig Berube**\
-`Analyzing Berube's deployment patterns 10 games into his coaching tenure with the Maple Leafs.`\
-https://nytimes.com/athletic/5882423/2024/10/29/maple-leafs-players-craig-berube-minutes/
-
-**Ford Took an Early Lead in Electric Vehicles. Now G.M. is Surging.**\
-`Ford is struggling to make money on battery-powered models while General Motors, which started more slowly, says it is getting close to that goal.`\
-https://nytimes.com/2024/10/29/business/ford-general-motors-electric-vehicles.html
 
