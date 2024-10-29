@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5883831/2024/10/29/ravens-trade-diontae-johnson-pan
 https://nytimes.com/athletic/5883682/2024/10/29/nba-amazon-nbc-media-deal/
 
 **Democrats Highlight Puerto Rico Insult on Billboards Near Trump Rally**\
-`The party invested in two digital highway billboards in the Allentown, which has a significant Puerto Rican population.`\
+`The party invested in two digital highway billboards in Allentown, Pa., which has a significant Puerto Rican population.`\
 https://nytimes.com/2024/10/29/us/politics/trump-rally-puerto-rico-pennsylvania.html
 
 **NBA fines 76ers for misrepresenting statements regarding Embiid's absence**\
