@@ -1,3 +1,23 @@
+**After Shaky Start for Labour, First Budget Brings Chance for Reset**\
+`British Prime Minister Keir Starmer’s government has stumbled since his party won a landslide victory, but the financial plan to be announced on Wednesday offers a possible relaunch.`\
+https://nytimes.com/2024/10/29/world/europe/uk-budget-labour-starmer.html
+
+**The New Threat to Brazil’s Forests: Chemicals**\
+`Authorities use satellites to track deforestation caused by chain saws or fire. Now criminals are using chemicals to degrade trees — and evade detection.`\
+https://nytimes.com/2024/10/29/world/americas/the-new-threat-to-brazils-forests-chemicals.html
+
+**Part-Time Farmers, Part-Time Rock Stars: A Chinese Band’s Unlikely Rise**\
+`The band, Varihnaz, has gained fans by offering an alternative to China’s hyper-polished, fast-paced modern life, with songs about pesticides and poultry raising.`\
+https://nytimes.com/2024/10/29/world/asia/china-farmers-rock-band.html
+
+**Arrests and Spying Charges Alarm Diplomats and Aid Workers in Yemen**\
+`The Iran-backed Houthi militia has detained dozens of Yemenis linked to the U.S. Embassy or international organizations recently.`\
+https://nytimes.com/2024/10/29/world/middleeast/houthi-militia-arrests-spying-us.html
+
+**Fantasy football Week 9 waiver wire: Streamers, Keon Coleman, Cedric Tillman**\
+`Rookies occupy prominent spots on Jake Ciely's Week 9 waiver wire report, including Keon Coleman, who has excelled alongside Amari Cooper.`\
+https://nytimes.com/athletic/5880005/2024/10/29/fantasy-football-week-9-waiver-wire-streamers-keon-coleman-cedric-tillman/
+
 **How Russia, China and Iran Are Interfering in the Presidential Election**\
 `Eight years after Russia interfered in the 2016 presidential election, foreign influence with American voters has grown more sophisticated. That could have outsize consequences in the 2024 race.`\
 https://nytimes.com/2024/10/29/technology/election-interference-russia-china-iran.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5881506/2024/10/28/dodgers-yankees-world-series-gam
 **Dodgers dominate Yankees to move within 1 win of World Series victory**\
 `The hype last week has given way to reality: Only one club has demonstrated championship mettle thus far. `\
 https://nytimes.com/athletic/5881606/2024/10/28/dodgers-yankees-world-series-game-3-score/
-
-**Steelers down Giants, 26-18, after second-half surge: Key takeaways**\
-`Through the first seven weeks, Pittsburgh ranks first in scoring defense and second in scoring offense in the final two quarters.`\
-https://nytimes.com/athletic/5881071/2024/10/28/mnf-giants-steelers-monday-night-fooball-score-takeaways/
-
-**Maple Leafs report cards: John Tavares' hat trick helps the Leafs end Jets' streak**\
-`Tavares led the way as the Leafs bounced back in emphatic fashion to defeat the Jets 6-4.`\
-https://nytimes.com/athletic/5881554/2024/10/28/maple-leafs-report-cards-tavares-hat-trick-jets/
-
-**No, noncitizens are not voting in droves.**\
-`Studies have shown that noncitizen voting is essentially nonexistent in federal elections in the United States.`\
-https://nytimes.com/2024/10/28/technology/noncitizen-voting-election.html
-
-**No, poll workers aren’t handing out Sharpies to invalidate ballots.**\
-`The writing utensils figured prominently in conspiracy theories in previous elections. But they’re often fine to use on paper ballots.`\
-https://nytimes.com/2024/10/28/technology/voter-fraud-poll-workers-sharpie.html
-
-**Election Fraud Falsehoods Are Spreading. Here’s What to Watch For.**\
-``\
-https://nytimes.com/live/2024/10/28/business/voter-fraud-election-fact-check
 
