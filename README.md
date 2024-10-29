@@ -1,3 +1,11 @@
+**Buehler, Dodgers one win away after stifling Yankees in Game 3: Takeaways**\
+`The Dodgers stormed to a 4-2 victory and a three games to none lead in the 120th World Series.`\
+https://nytimes.com/athletic/5881506/2024/10/28/dodgers-yankees-world-series-game-3-takeaways/
+
+**Dodgers dominate Yankees to move within 1 win of World Series victory**\
+`The hype last week has given way to reality: Only one club has demonstrated championship mettle thus far. `\
+https://nytimes.com/athletic/5881606/2024/10/28/dodgers-yankees-world-series-game-3-score/
+
 **Steelers down Giants, 26-18, after second-half surge: Key takeaways**\
 `Through the first seven weeks, Pittsburgh ranks first in scoring defense and second in scoring offense in the final two quarters.`\
 https://nytimes.com/athletic/5881071/2024/10/28/mnf-giants-steelers-monday-night-fooball-score-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5881480/2024/10/28/taylor-hendricks-leg-injury-jazz
 **Magic's Paolo Banchero delivers first 50-point game of NBA season**\
 `Banchero tallied a career-high 50 points, 13 rebounds and nine assists to lead Orlando to a 119-115 win over Indiana.`\
 https://nytimes.com/athletic/5881449/2024/10/28/paolo-banchero-scores-50-points-magic-pacers/
-
-**Repeat Word for Word**\
-`Kathy Lowden shows off her collections.`\
-https://nytimes.com/2024/10/28/crosswords/daily-puzzle-2024-10-29.html
-
-**'MNF' to air 'Simpsons' broadcast for Bengals-Cowboys in Week 14**\
-`“The Simpsons Funday Football,” as it is officially called, will air on ESPN+ and Disney+.`\
-https://nytimes.com/athletic/5881010/2024/10/28/simpsons-monday-night-football-cowboys-bengals/
 
