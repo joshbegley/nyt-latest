@@ -1,3 +1,7 @@
+**Vikings trade for Jaguars' Cam Robinson to replace injured Christian Darrisaw**\
+`Darrisaw, the Vikings' standout left tackle, tore his ACL and MCL during a 30-20 loss to the Los Angeles Rams in Week 8.`\
+https://nytimes.com/athletic/5884036/2024/10/29/cam-robinson-vikings-jaguars-trade/
+
 **No tapping out: Colts QB Anthony Richardson has hard lesson to learn from the bench**\
 `Richardson's time in Indianapolis may not be over, but his path back to being the Colts starting QB will be a big challenge. `\
 https://nytimes.com/athletic/5883841/2024/10/29/anthony-richardson-colts-joe-flacco-bench-tap-out/
