@@ -1,3 +1,7 @@
+**Court Files From Hidden Fights Over Privilege in Trump Election Case Unsealed**\
+`The partly redacted rulings, orders and transcripts open a window on a momentous battle over grand jury testimony that played out in secret, creating important precedents about executive privilege.`\
+https://nytimes.com/2024/10/28/us/trump-election-case-secret-documents.html
+
 **Submit questions for ‘The Athletic NBA Daily’ podcast mailbag**\
 `The season is underway. What questions do you have for us?`\
 https://nytimes.com/athletic/5876560/2024/10/28/early-nba-questions-submit-them-for-the-athletic-nba-daily-podcast-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/28/us/jay-johnston-bobs-burgers-jan-6.html
 **Doug Emhoff Condemns Antisemitism as Democrats Court Jewish Voters**\
 `In a speech in Pittsburgh a day after the sixth anniversary of the Tree of Life shooting, he vouched for Kamala Harris’s commitment to Jewish security and issued a warning about Donald Trump.`\
 https://nytimes.com/2024/10/28/us/politics/doug-emhoff-antisemitism-speech-jewish-voters.html
-
-**Republicans ask Supreme Court for last-minute intervention on Pennsylvania voting rules.**\
-`By Mattathias Schwartz`\
-https://nytimes.com/live/2024/10/28/us/harris-trump-election/republicans-ask-supreme-court-for-last-minute-intervention-on-pennsylvania-voting-rules
 

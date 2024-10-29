@@ -1,3 +1,7 @@
+**Court Files From Hidden Fights Over Privilege in Trump Election Case Unsealed**\
+`The partly redacted rulings, orders and transcripts open a window on a momentous battle over grand jury testimony that played out in secret, creating important precedents about executive privilege.`\
+https://nytimes.com/2024/10/28/us/trump-election-case-secret-documents.html
+
 **Submit questions for ‘The Athletic NBA Daily’ podcast mailbag**\
 `The season is underway. What questions do you have for us?`\
 https://nytimes.com/athletic/5876560/2024/10/28/early-nba-questions-submit-them-for-the-athletic-nba-daily-podcast-mailbag/
