@@ -1,3 +1,7 @@
+**Your questions about The Times’s election coverage: Endorsing presidential candidates**\
+`Our journalists answer questions from readers.`\
+https://nytimes.com/2024/10/29/insider/your-questions-about-the-timess-election-coverage-endorsing-presidential-candidates.html
+
 **Scoop City: Week 9 fantasy must-adds**\
 `A look at the must-add players before Week 9, a list that previously hit on Tyrone Tracy, Isaac Guerendo and Josh Downs.`\
 https://nytimes.com/athletic/5882791/2024/10/29/week-9-fantasy-must-adds-from-matthew-stafford-to-jalen-coker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880258/2024/10/29/senators-trade-targets-liljegren
 **Gabriel injury 'doesn't look bad at all', Arteta reveals**\
 `Mikel Arteta has indicated that Arsenal defender Gabriel has avoided serious injury.`\
 https://nytimes.com/athletic/5877460/2024/10/29/gabriel-injury-arsenal-update/
-
-**Help! Budget Charged Us $450 to Clean Our Rental Car. Can They Do That?**\
-`Sure, there were footprints and some dirt, but days after a family from Ireland returned a car to Kennedy Airport, they were hit with the maximum cleaning fee.`\
-https://nytimes.com/2024/10/29/travel/budget-rental-cars-excessive-fees.html
 
