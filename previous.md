@@ -1,3 +1,11 @@
+**Yankees' decision to send Giancarlo Stanton was an ill-fated sign of desperation**\
+`Desperate for runs, the Yankees sent a lead-footed Stanton home, an ill-fated decision as New York enters Tuesday down 3-0.`\
+https://nytimes.com/athletic/5881810/2024/10/29/dodgers-yankees-world-series-game-3-giancarlo-stanton-playcall/
+
+**Doc Rivers says championship unlocked Celtics. Derrick White, Al Horford agree**\
+`Much to the chagrin of Boston's former coach, the team showed championship poise during a game-changing stretch to defeat Milwaukee.`\
+https://nytimes.com/athletic/5881837/2024/10/29/doc-rivers-says-championship-unlocked-celtics-derrick-white-al-horford-agree/
+
 **Will Manchester United ever return to the top of English football?**\
 `Erik ten Hag is out and the cyclical challenge of returning the club to its former pre-eminence begins once more  `\
 https://nytimes.com/athletic/5881707/2024/10/29/manchester-united-return-dominance-decline-ten-hag/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/science/animals-death-monso.html
 **Why Entering This Haunted House Costs $45 (or $65 for the ‘R.I.P.’ Line)**\
 `It’s not as if Blood Manor can just transform into an office after Halloween.`\
 https://nytimes.com/2024/10/29/nyregion/haunted-house-halloween-nyc-costs.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/29/crosswords/spelling-bee-forum.html
-
-**Freddie Freeman swings the Dodgers to brink of title: 'A pretty special run'**\
-`As Mookie Betts put it: “Even on one leg, he’s Freddie Freeman and carrying us right now."`\
-https://nytimes.com/athletic/5881818/2024/10/29/dodgers-yankees-world-series-freddie-freeman/
 
