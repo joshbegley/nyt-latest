@@ -1,3 +1,11 @@
+**Jota out injured until after international break**\
+`Arne Slot has ruled out Diogo Jota and Harvey Elliott until after the upcoming international break, with the pair joining Alisson Becker on Liverpool’s longer-term injury list.`\
+https://nytimes.com/athletic/5882101/2024/10/29/diogo-jota-injury-liverpool-team-news/
+
+**Kepner: With Dodgers vs. Yankees, MLB got its ideal World Series. But only one team has shown up**\
+`The league's dream World Series is becoming a dud, but at least the Dodgers like it. They just want it to end as soon as possible.`\
+https://nytimes.com/athletic/5882113/2024/10/29/dodgers-yankees-world-series-dream-matchup-dud/
+
 **Sinner out of Paris Masters with illness**\
 `The world No. 1 will aim to return for the season-ending Tour Finals in Turin.`\
 https://nytimes.com/athletic/5882084/2024/10/29/jannik-sinner-paris-masters-out/
