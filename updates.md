@@ -1,3 +1,7 @@
+**Repeat Word for Word**\
+`Kathy Lowden shows off her collections.`\
+https://nytimes.com/2024/10/28/crosswords/daily-puzzle-2024-10-29.html
+
 **'MNF' to air 'Simpsons' broadcast for Bengals-Cowboys in Week 14**\
 `“The Simpsons Funday Football,” as it is officially called, will air on ESPN+ and Disney+.`\
 https://nytimes.com/athletic/5881010/2024/10/28/simpsons-monday-night-football-cowboys-bengals/
