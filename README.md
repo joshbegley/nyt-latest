@@ -1,3 +1,7 @@
+**Barbara Bush, Scion of Republican Royalty, Knocks Doors for Kamala Harris**\
+`Ms. Bush, whose father and grandfather were the last two Republican presidents before Donald J. Trump, is backing his Democratic opponent.`\
+https://nytimes.com/2024/10/29/us/politics/george-w-bush-daughter-barbara-harris-endorsement.html
+
 **Racing Louisville's Bev Yanez opens up about miscarriage: 'It felt like such a rollercoaster'**\
 `The head coach is using her platform to help others experiencing pregnancy loss and infertility. `\
 https://nytimes.com/athletic/5883181/2024/10/29/racing-louisville-bev-yanez-miscarriage-helping-others/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/world/europe/southport-stabbing-terror-charges-ri
 **One Defendant Accepts a Plea Deal Amid Young Thug’s RICO Trial**\
 `Prosecutors have accused the star Atlanta rapper of leading a gang in the longest trial in Georgia history. The case has been further delayed by plea negotiations.`\
 https://nytimes.com/2024/10/29/arts/music/young-thug-trial-plea-deal.html
-
-**Atlanta United's Dax McCarty not scared to face Lionel Messi, Inter Miami**\
-`Atlanta United midfielder Dax McCarty called on his teammates to not fear Lionel Messi and Inter Miami before the two clubs face each other on Saturday night in Atlanta.`\
-https://nytimes.com/athletic/5883101/2024/10/29/atlanta-united-dax-mccarty-lionel-messi/
 
