@@ -1,3 +1,7 @@
+**The Pulse: The World Series is over***\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5881417/2024/10/29/dodgers-yankees-world-series-game-3-the-pulse/
+
 **'Superhero' Freddie Freeman shining in World Series filled with future Hall of Famers**\
 `With possibly eight future Hall of Famers, this Series is in a special category. But Freeman, even on a bad ankle, is stealing the show. `\
 https://nytimes.com/athletic/5881935/2024/10/29/dodgers-yankees-world-series-freddie-freeman-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881249/2024/10/29/anthony-richardson-colts-bench-j
 **Matt Rempe's AHL stint, Gabe Perreault's strengths, more: 13 Rangers observations**\
 `Rempe got plenty more time on ice with Hartford in his brief AHL stint than he has so far in New York.`\
 https://nytimes.com/athletic/5881041/2024/10/29/rangers-matt-rempe-ahl-stint-kreider/
-
-**NBA, WNBA players and teams look to get out the vote in a bitterly divided country**\
-`This cycle, teams and players in both leagues are continuing to engage communities in team cities to get people registered to vote.`\
-https://nytimes.com/athletic/5860976/2024/10/29/nba-wnba-players-and-teams-look-to-get-out-the-vote-in-a-bitterly-divided-country/
 
