@@ -1,3 +1,7 @@
+**Is There a Moral Choice for Catholic Voters?**\
+`Why are we being asked to choose between the lesser of two evils?`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/catholic-third-party
+
 **In Botswana’s Election, Diamond Profits Are a Defining Issue**\
 `The party that has governed the country since 1966 could lose power as the economy struggles from a slump in demand for diamonds, which made Botswana an African success story.`\
 https://nytimes.com/2024/10/29/world/africa/botswana-election-diamonds.html
