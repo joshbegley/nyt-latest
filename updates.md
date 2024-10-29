@@ -1,3 +1,20 @@
+**The World’s Doomsday Plant Vault Gets Thousands of New Seeds**\
+`A storage facility in Norway built to safeguard crop diversity recently received more than 30,000 samples as concerns grow about climate change and food insecurity.`\
+https://nytimes.com/2024/10/29/world/europe/svalbard-seed-vault-deposit-climate.html
+
+**Penguins Today: Marc-André Fleury gets his flowers**\
+`Good morning, Penguins fans!
+Tonight is Marc-André Fleury’s final return to Pittsburgh as a player.`\
+https://nytimes.com/athletic/5882462/2024/10/29/penguins-today-marc-andre-fleury-night/
+
+**Harris’s Closing Argument: Turn the Page on Trump, and Avert Chaos**\
+`In a speech in Washington where organizers are planning for up to 40,000 attendees, she will argue that she represents generational change. But her rival will remain at the spine of her case.`\
+https://nytimes.com/2024/10/29/us/politics/harris-speech-ellipse-trump.html
+
+**Trump’s Environmental Claims Ignore Decades of Climate Science**\
+`The former president says he wants “clean air and clean water,” but he has rolled back environmental rules and dismissed the scientific consensus on climate change.`\
+https://nytimes.com/2024/10/29/climate/donald-trump-climate-change-claims.html
+
 **Fantasy football: Who to drop in Week 9? Anthony Richardson, for one**\
 `Anthony Richardson believes he is a "great passer." The numbers, and our eyes, say otherwise.`\
 https://nytimes.com/athletic/5882391/2024/10/29/fantasy-football-who-to-drop-in-week-9-anthony-richardson-for-one/
