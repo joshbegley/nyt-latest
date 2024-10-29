@@ -1,3 +1,23 @@
+**On the Ballot: An Immigration System Most Americans Never Wanted**\
+`The complicated history of trade-offs and compromises behind U.S. border control.`\
+https://nytimes.com/2024/10/29/podcasts/the-daily/election-immigration.html
+
+**Tyrique Stevenson, Matt Eberflus deserve blame for Bears' Washington debacle: 5 takeaways**\
+`Stevenson's actions warrant consequences and Eberflus' bad losses could give GM Ryan Poles something to think about heading into 2025.`\
+https://nytimes.com/athletic/5880828/2024/10/29/bears-tyrique-stevenson-matt-eberflus-hail-mary/
+
+**Chiefs offense puts the defense in another impossible situation? No problem**\
+`A goal-line stand against the Raiders was just the latest example of Kansas City's ultra-confident defense bailing out the offense.`\
+https://nytimes.com/athletic/5881087/2024/10/29/chiefs-defense-saves-offense-raiders/
+
+**What Christian Darrisaw's injury means for an already-disjointed Vikings offense**\
+`Losing their talented left tackle will make it harder for an inconsistent Vikings offense that has already had trouble sustaining drives.`\
+https://nytimes.com/athletic/5880749/2024/10/29/christian-darrisaw-injury-vikings-offense/
+
+**Boyd: If Colts bench Anthony Richardson, it's clear they're content embracing mediocrity**\
+`For the Colts to even crack that door open to benching Richardson just 10 games into his career is head-scratching.`\
+https://nytimes.com/athletic/5881249/2024/10/29/anthony-richardson-colts-bench-joe-flacco/
+
 **Matt Rempe's AHL stint, Gabe Perreault's strengths, more: 13 Rangers observations**\
 `Rempe got plenty more time on ice with Hartford in his brief AHL stint than he has so far in New York.`\
 https://nytimes.com/athletic/5881041/2024/10/29/rangers-matt-rempe-ahl-stint-kreider/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/29/podcasts/foreign-election-interference-volkswagen
 **Wordle Review No. 1,229**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 30, 2024.`\
 https://nytimes.com/2024/10/29/crosswords/wordle-review-1229.html
-
-**The Connections Companion No. 507**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 30, 2024.`\
-https://nytimes.com/2024/10/29/crosswords/connections-companion-507.html
-
-**What could the 2025 Mets look like at different payroll budgets?**\
-`Juan Soto could be in play at about $50 million per season, but how do the Mets want to navigate the luxury tax thresholds?`\
-https://nytimes.com/athletic/5880241/2024/10/29/mets-free-agency-juan-soto-pete-alonso/
-
-**Hezbollah Names Naim Qassem as Its New Leader**\
-`Mr. Qassem had been the Lebanese militant group’s longtime deputy. He replaces Hassan Nasrallah, who was assassinated in an Israeli airstrike last month.`\
-https://nytimes.com/2024/10/29/world/middleeast/hezbollah-new-leader-naim-qassem.html
-
-**Giants' frustrations boiling over as they grapple with yet another lost season**\
-`Many factors have contributed to the Giants’ 8-17 record since the start of last season, but the end results have been painfully familiar.`\
-https://nytimes.com/athletic/5881919/2024/10/29/giants-takeaways-daniel-jones-frustration-brian-daboll-steelers/
-
-**Here are the latest developments.**\
-`By Victoria Kim, Hiba Yazbek and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
 
