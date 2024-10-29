@@ -1,3 +1,7 @@
+**What the PGA Tour's plan to reduce cards and field sizes means**\
+`A proposal obtained by The Athletic displays fairly radical changes to the PGA Tour setup.`\
+https://nytimes.com/athletic/5882755/2024/10/29/pga-tour-card-field-sizes/
+
 **Rudy Gay retires after 18 NBA seasons**\
 `Born in Brooklyn, New York and drafted eighth overall in 2006, Gay played for five teams in his 18 seasons spent in the NBA. `\
 https://nytimes.com/athletic/5882825/2024/10/29/rudy-gay-announces-retirement-from-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882831/2024/10/29/ballon-dor-uswnt-nwsl-playoffs-f
 **Blue Jays offseason primer: Important dates and deadlines to know**\
 `These are the important roster deadlines and dates to know when the Blue Jays' offseason kicks off after the World Series.`\
 https://nytimes.com/athletic/5882681/2024/10/29/blue-jays-offseason-roster-deadlines/
-
-**What Happened When Chicago’s Mayor Followed a Teachers’ Union Playbook**\
-`In Chicago, the mayor and the teachers’ union are tightly connected. The relationship has ushered in generous spending and led to political turmoil.`\
-https://nytimes.com/2024/10/29/us/chicago-teachers-union-school-board-brandon-johnson.html
 
