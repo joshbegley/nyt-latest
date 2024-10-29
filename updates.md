@@ -1,3 +1,15 @@
+**Who's playing more (and less) for the Maple Leafs under Craig Berube**\
+`Analyzing Berube's deployment patterns 10 games into his coaching tenure with the Maple Leafs.`\
+https://nytimes.com/athletic/5882423/2024/10/29/maple-leafs-players-craig-berube-minutes/
+
+**Ford Took an Early Lead in Electric Vehicles. Now G.M. is Surging.**\
+`Ford is struggling to make money on battery-powered models while General Motors, which started more slowly, says it is getting close to that goal.`\
+https://nytimes.com/2024/10/29/business/ford-general-motors-electric-vehicles.html
+
+**Six potential defensive trade targets for the Senators**\
+`In light of the Sens' defensive concerns, we've canvassed the league for potential stopgaps and evaluated whether or not they make sense.`\
+https://nytimes.com/athletic/5880258/2024/10/29/senators-trade-targets-liljegren-fowler/
+
 **Gabriel injury 'doesn't look bad at all', Arteta reveals**\
 `Mikel Arteta has indicated that Arsenal defender Gabriel has avoided serious injury.`\
 https://nytimes.com/athletic/5877460/2024/10/29/gabriel-injury-arsenal-update/
