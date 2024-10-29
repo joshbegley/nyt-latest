@@ -1,3 +1,7 @@
+**Your questions about The Times’s election coverage: Endorsing presidential candidates**\
+`Our journalists answer questions from readers.`\
+https://nytimes.com/2024/10/29/insider/your-questions-about-the-timess-election-coverage-endorsing-presidential-candidates.html
+
 **Scoop City: Week 9 fantasy must-adds**\
 `A look at the must-add players before Week 9, a list that previously hit on Tyrone Tracy, Isaac Guerendo and Josh Downs.`\
 https://nytimes.com/athletic/5882791/2024/10/29/week-9-fantasy-must-adds-from-matthew-stafford-to-jalen-coker/
