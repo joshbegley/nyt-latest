@@ -1,3 +1,7 @@
+**PWHL preparing for expansion as early as 2025-26 season, could add up to 2 teams**\
+`After success in its inaugural season, the PWHL is looking to expand to new hockey markets sooner than expected.`\
+https://nytimes.com/athletic/5882695/2024/10/29/pwhl-womens-hockey-expansion-cities/
+
 **CNN Bars Pro-Trump Guest After His ‘Beeper’ Remark to Mehdi Hasan**\
 `After Mr. Hasan voiced support for Palestinians, the CNN guest, Ryan James Girdusky, said, “I hope your beeper doesn’t go off.”`\
 https://nytimes.com/2024/10/29/business/cnn-pager-comment-mehdi-hasan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882799/2024/10/29/nfl-best-bets-week-9-commanders-
 **Super Bowl 2025 odds: Still Chiefs' world, but Lions and more keep closing gap**\
 `The Lions' odds to win the Super Bowl have consistently improved every week. We break down risers and fallers before Week 9.`\
 https://nytimes.com/athletic/5882671/2024/10/29/super-bowl-odds-week-9-chiefs-lions-bills/
-
-**WTA Finals draw: Swiatek and Gauff meet, Sabalenka faces Zheng and Rybakina**\
-`The season-ending event sees Sabalenka and Swiatek battle for year-end world No. 1 for the second year in a row`\
-https://nytimes.com/athletic/5882196/2024/10/29/wta-finals-draw-sabalenka-swiatek-gauff-riyadh/
 

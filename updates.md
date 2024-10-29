@@ -1,3 +1,7 @@
+**PWHL preparing for expansion as early as 2025-26 season, could add up to 2 teams**\
+`After success in its inaugural season, the PWHL is looking to expand to new hockey markets sooner than expected.`\
+https://nytimes.com/athletic/5882695/2024/10/29/pwhl-womens-hockey-expansion-cities/
+
 **CNN Bars Pro-Trump Guest After His ‘Beeper’ Remark to Mehdi Hasan**\
 `After Mr. Hasan voiced support for Palestinians, the CNN guest, Ryan James Girdusky, said, “I hope your beeper doesn’t go off.”`\
 https://nytimes.com/2024/10/29/business/cnn-pager-comment-mehdi-hasan.html
