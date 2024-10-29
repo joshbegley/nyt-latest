@@ -1,3 +1,11 @@
+**Why Aitana Bonmati is the world's most interesting footballer**\
+`There are world-class footballers who are just very good at football. Then there are some who feel like they might genuinely change the game`\
+https://nytimes.com/athletic/5879853/2024/10/29/aitana-bonmati-ballon-dor/
+
+**Damien Duff, the manager: Only Fools and Horses, a teenage disco and one win from a first league title**\
+`The former Blackburn, Chelsea and Ireland winger has taken the Dublin club Shelbourne within touching distance of a first title since 2006`\
+https://nytimes.com/athletic/5879617/2024/10/29/duff-shelbourne-manager-ireland-title/
+
 **Why Trump Has an Edge With These 11 Michigan Voters — Even Though They Don’t Like Him**\
 `The group participants discuss the state of the race and what may drive them toward a given candidate.`\
 https://nytimes.com/interactive/2024/10/29/opinion/focus-group-michigan-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/world/americas/the-new-threat-to-brazils-forests-
 **Part-Time Farmers, Part-Time Rock Stars: A Chinese Band’s Unlikely Rise**\
 `The band, Varihnaz, has gained fans by offering an alternative to China’s hyper-polished, fast-paced modern life, with songs about pesticides and poultry raising.`\
 https://nytimes.com/2024/10/29/world/asia/china-farmers-rock-band.html
-
-**Arrests and Spying Charges Alarm Diplomats and Aid Workers in Yemen**\
-`The Iran-backed Houthi militia has detained dozens of Yemenis linked to the U.S. Embassy or international organizations recently.`\
-https://nytimes.com/2024/10/29/world/middleeast/houthi-militia-arrests-spying-us.html
-
-**Fantasy football Week 9 waiver wire: Streamers, Keon Coleman, Cedric Tillman**\
-`Rookies occupy prominent spots on Jake Ciely's Week 9 waiver wire report, including Keon Coleman, who has excelled alongside Amari Cooper.`\
-https://nytimes.com/athletic/5880005/2024/10/29/fantasy-football-week-9-waiver-wire-streamers-keon-coleman-cedric-tillman/
 
