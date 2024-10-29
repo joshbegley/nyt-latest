@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim, Hiba Yazbek and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
+
+**Dozens are killed in a strike on a building in northern Gaza, Palestinian agencies say.**\
+`By Victoria Kim, Hiba Yazbek and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/dozens-are-killed-in-a-strike-on-a-building-in-northern-gaza-palestinian-agencies-say
+
 **Inside the Colorful and Cultish World of Nerds Gummy Clusters**\
 `Sales of Nerds have greatly increased in recent years, the company says. The secret? A multicolored orb.`\
 https://nytimes.com/2024/10/29/us/nerds-gummy-clusters.html

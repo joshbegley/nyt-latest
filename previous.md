@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim, Hiba Yazbek and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
+
+**Dozens are killed in a strike on a building in northern Gaza, Palestinian agencies say.**\
+`By Victoria Kim, Hiba Yazbek and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/dozens-are-killed-in-a-strike-on-a-building-in-northern-gaza-palestinian-agencies-say
+
 **Inside the Colorful and Cultish World of Nerds Gummy Clusters**\
 `Sales of Nerds have greatly increased in recent years, the company says. The secret? A multicolored orb.`\
 https://nytimes.com/2024/10/29/us/nerds-gummy-clusters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/us/steve-bannon-prison-release.html
 **We’ve Just Had a Glimpse of the World to Come**\
 `Last week’s BRICS summit showed how the balance of global power increasingly eludes the West’s grasp.`\
 https://nytimes.com/2024/10/29/opinion/brics-summit-russia-west.html
-
-**The Patriots have a wide receiver problem with no obvious fix**\
-`New England failed to land a difference-making wide receiver in the free agent market and the team's two rookie wideouts are struggling.`\
-https://nytimes.com/athletic/5880598/2024/10/29/patriots-wide-receiver-problem/
-
-**Halloween TV, Where Things Are Even Worse**\
-`This year’s horror series take us to damned villages, cursed towns and countries fallen into anarchy.`\
-https://nytimes.com/2024/10/29/arts/television/new-horror-tv-shows.html
 
