@@ -1,3 +1,11 @@
+**With Ump Cam, Dirt Cam, drones and more, at World Series, MLB has cameras everywhere**\
+`MLB is deploying over 40 cameras for the World Series and adding new technology to the broadcast, creating a different viewing experience.`\
+https://nytimes.com/athletic/5882817/2024/10/29/yankees-dodgers-world-series-camera-technology-mlb/
+
+**NFL best bets Week 9: Why Jayden Daniels, Commanders should have a field day**\
+`Austin Mock has more NFL best bets after a winning week last week. Can Jayden Daniels play through his rib injury again?`\
+https://nytimes.com/athletic/5882799/2024/10/29/nfl-best-bets-week-9-commanders-chargers/
+
 **Super Bowl 2025 odds: Still Chiefs' world, but Lions and more keep closing gap**\
 `The Lions' odds to win the Super Bowl have consistently improved every week. We break down risers and fallers before Week 9.`\
 https://nytimes.com/athletic/5882671/2024/10/29/super-bowl-odds-week-9-chiefs-lions-bills/
