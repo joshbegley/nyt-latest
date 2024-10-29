@@ -1,3 +1,7 @@
+**Help! Budget Charged Us $450 to Clean Our Rental Car. Can They Do That?**\
+`Sure, there were footprints and some dirt, but days after a family from Ireland returned a car to Kennedy Airport, they were hit with the maximum cleaning fee.`\
+https://nytimes.com/2024/10/29/travel/budget-rental-cars-excessive-fees.html
+
 **Virginia's Jalen Warley re-entering portal in wake of Bennett's retirement**\
 `Warley is the first player to depart the program since Bennett’s abrupt retirement earlier in October.`\
 https://nytimes.com/athletic/5882687/2024/10/29/virginia-guard-jalen-warley-transferring-in-wake-of-tony-bennetts-retirement/
