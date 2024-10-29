@@ -1,3 +1,23 @@
+**Barcelona fans' survey: Have your say on the Clasico and the club's start under Hansi Flick**\
+`Given the positive start to 2024-25, we want to hear your thoughts on the Clasico win and the first few months of Flick...`\
+https://nytimes.com/athletic/5880058/2024/10/29/barcelona-fans-survey-have-your-say-on-the-clasico-and-the-clubs-start-under-hansi-flick/
+
+**Back-to-back matches with Liverpool a rare challenge that could shape Brighton's season**\
+`How do you prepare for facing the same opponents twice in the space of four days in different competitions?`\
+https://nytimes.com/athletic/5808854/2024/10/29/brighton-liverpool-hurzeler/
+
+**Arsenal Today: Carabao Cup focus, academy action and White at centre-back**\
+`Art de Roche talks you through what is happening at Arsenal today`\
+https://nytimes.com/athletic/5879976/2024/10/29/arsenal-today-october-29/
+
+**Aston Villa strikers and the art of staying still**\
+`An Unai Emery forward has distinctive quirks: they go against convention, and are at odds with the notion they ‘must run the channels’`\
+https://nytimes.com/athletic/5872594/2024/10/29/aston-villa-strikers-staying-still-analysis/
+
+**Tomiyasu, injuries and what the future holds for a defender trusted by Arteta**\
+`The Japan defender has a role to play when fit and would have been a useful option for his manager against Liverpool at the weekend`\
+https://nytimes.com/athletic/5879110/2024/10/29/takehiro-tomiyasu-arsenal-injuries/
+
 **How Vinicius Junior was overlooked for the Ballon d'Or - and the anger it sparked at Real Madrid**\
 `The Brazilian was the favourite to be named men's best player for 2023-24 and there was shock in Madrid when they found out he would not win`\
 https://nytimes.com/athletic/5880874/2024/10/29/vinicius-junior-ballon-dor-real-madrid-anger/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5879617/2024/10/29/duff-shelbourne-manager-ireland-
 **Why Trump Has an Edge With These 11 Michigan Voters — Even Though They Don’t Like Him**\
 `The group participants discuss the state of the race and what may drive them toward a given candidate.`\
 https://nytimes.com/interactive/2024/10/29/opinion/focus-group-michigan-voters.html
-
-**Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/10/29/briefing/trump-rally-unrwa-ukraine.html
-
-**Blackhawks ready to build on first 10 games after win over Avalanche: Observations**\
-`An excellent defensive effort helped the Blackhawks finish their first ten games with a win and a renewed sense of purpose.`\
-https://nytimes.com/athletic/5881443/2024/10/29/blackhawks-first-10-games-avalanche/
-
-**Nikola Jokić and Jamal Murray had a moment, but the Nuggets are still finding themselves**\
-`There was a curious desperation to the Nuggets on Monday as they looked to avoid an 0-3 start.`\
-https://nytimes.com/athletic/5881622/2024/10/29/nuggets-raptors-nikola-jokic-jamal-murray/
-
-**Puerto Rico’s G.O.P. Chairman Demands Apology From Trump for Comic’s Remarks**\
-`The island’s Catholic archbishop also wrote a letter to Donald Trump condemning a racist comedy routine during his Madison Square Garden rally.`\
-https://nytimes.com/2024/10/29/us/politics/puerto-rico-gop-chairman-trump-msg.html
-
-**After Shaky Start for Labour, First Budget Brings Chance for Reset**\
-`British Prime Minister Keir Starmer’s government has stumbled since his party won a landslide victory, but the financial plan to be announced on Wednesday offers a possible relaunch.`\
-https://nytimes.com/2024/10/29/world/europe/uk-budget-labour-starmer.html
 

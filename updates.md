@@ -1,3 +1,23 @@
+**Barcelona fans' survey: Have your say on the Clasico and the club's start under Hansi Flick**\
+`Given the positive start to 2024-25, we want to hear your thoughts on the Clasico win and the first few months of Flick...`\
+https://nytimes.com/athletic/5880058/2024/10/29/barcelona-fans-survey-have-your-say-on-the-clasico-and-the-clubs-start-under-hansi-flick/
+
+**Back-to-back matches with Liverpool a rare challenge that could shape Brighton's season**\
+`How do you prepare for facing the same opponents twice in the space of four days in different competitions?`\
+https://nytimes.com/athletic/5808854/2024/10/29/brighton-liverpool-hurzeler/
+
+**Arsenal Today: Carabao Cup focus, academy action and White at centre-back**\
+`Art de Roche talks you through what is happening at Arsenal today`\
+https://nytimes.com/athletic/5879976/2024/10/29/arsenal-today-october-29/
+
+**Aston Villa strikers and the art of staying still**\
+`An Unai Emery forward has distinctive quirks: they go against convention, and are at odds with the notion they ‘must run the channels’`\
+https://nytimes.com/athletic/5872594/2024/10/29/aston-villa-strikers-staying-still-analysis/
+
+**Tomiyasu, injuries and what the future holds for a defender trusted by Arteta**\
+`The Japan defender has a role to play when fit and would have been a useful option for his manager against Liverpool at the weekend`\
+https://nytimes.com/athletic/5879110/2024/10/29/takehiro-tomiyasu-arsenal-injuries/
+
 **Blackhawks ready to build on first 10 games after win over Avalanche: Observations**\
 `An excellent defensive effort helped the Blackhawks finish their first ten games with a win and a renewed sense of purpose.`\
 https://nytimes.com/athletic/5881443/2024/10/29/blackhawks-first-10-games-avalanche/
