@@ -1,3 +1,15 @@
+**Why Trump Has an Edge With These 11 Michigan Voters — Even Though They Don’t Like Him**\
+`The group participants discuss the state of the race and what may drive them toward a given candidate.`\
+https://nytimes.com/interactive/2024/10/29/opinion/focus-group-michigan-voters.html
+
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/10/29/briefing/trump-rally-unrwa-ukraine.html
+
+**Blackhawks ready to build on first 10 games with win over Avalanche: Observations**\
+`An excellent defensive effort helped the Blackhawks finish their first ten games with a win and a renewed sense of purpose.`\
+https://nytimes.com/athletic/5881443/2024/10/29/blackhawks-first-10-games-avalanche/
+
 **Nikola Jokić and Jamal Murray had a moment, but the Nuggets are still finding themselves**\
 `There was a curious desperation to the Nuggets on Monday as they looked to avoid an 0-3 start.`\
 https://nytimes.com/athletic/5881622/2024/10/29/nuggets-raptors-nikola-jokic-jamal-murray/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/29/world/middleeast/houthi-militia-arrests-spying-us
 **Fantasy football Week 9 waiver wire: Streamers, Keon Coleman, Cedric Tillman**\
 `Rookies occupy prominent spots on Jake Ciely's Week 9 waiver wire report, including Keon Coleman, who has excelled alongside Amari Cooper.`\
 https://nytimes.com/athletic/5880005/2024/10/29/fantasy-football-week-9-waiver-wire-streamers-keon-coleman-cedric-tillman/
-
-**How Russia, China and Iran Are Interfering in the Presidential Election**\
-`Eight years after Russia interfered in the 2016 presidential election, foreign influence with American voters has grown more sophisticated. That could have outsize consequences in the 2024 race.`\
-https://nytimes.com/2024/10/29/technology/election-interference-russia-china-iran.html
-
-**Quote of the Day: Village So Spooky, Even Skeptics Get the Jitters**\
-`Quotation of the Day for Tuesday, October 29, 2024`\
-https://nytimes.com/2024/10/28/pageoneplus/quote-of-the-day-village-so-spooky-even-skeptics-get-the-jitters.html
-
-**Mikael Pyyhtiä finally breaks through in Blue Jackets' 6-1 rout of Edmonton**\
-`A new lineup saw instant success and pregame premonitions paid off in a near-shutout of the Oilers.`\
-https://nytimes.com/athletic/5881524/2024/10/28/blue-jackets-mikael-pyyhtia-edmonton/
 
