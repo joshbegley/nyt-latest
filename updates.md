@@ -1,3 +1,19 @@
+**No, noncitizens are not voting in droves.**\
+`Studies have shown that noncitizen voting is essentially nonexistent in federal elections in the United States.`\
+https://nytimes.com/2024/10/28/technology/noncitizen-voting-election.html
+
+**No, poll workers aren’t handing out Sharpies to invalidate ballots.**\
+`The writing utensils figured prominently in conspiracy theories in previous elections. But they’re often fine to use on paper ballots.`\
+https://nytimes.com/2024/10/28/technology/voter-fraud-poll-workers-sharpie.html
+
+**Election Fraud Falsehoods Are Spreading. Here’s What to Watch For.**\
+``\
+https://nytimes.com/live/2024/10/28/business/voter-fraud-election-fact-check
+
+**Jazz's Taylor Hendricks stretchered off court with right leg injury**\
+`Hendricks' right leg appeared to give out and he collapsed to the ground late in the third quarter.`\
+https://nytimes.com/athletic/5881480/2024/10/28/taylor-hendricks-leg-injury-jazz/
+
 **Vivek Ramaswamy Has a Different Vision for Trumpism From JD Vance**\
 `Vivek Ramaswamy Has a Different Vision for Trumpism From JD Vance`\
 https://nytimes.com/video/opinion/100000009788925/vivek-ramaswamy-has-a-different-vision-for-trumpism-from-jd-vance.html
