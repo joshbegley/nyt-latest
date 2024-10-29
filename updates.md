@@ -1,3 +1,7 @@
+**How Elon Musk Might Use His Pull With Trump to Help Tesla**\
+`Although Donald Trump has opposed policies that favor electric cars, if he becomes president he could ease regulatory scrutiny of Tesla or protect lucrative credits and subsidies.`\
+https://nytimes.com/2024/10/29/business/economy/elon-musk-trump-tesla.html
+
 **Who's playing more (and less) for the Maple Leafs under Craig Berube**\
 `Analyzing Berube's deployment patterns 10 games into his coaching tenure with the Maple Leafs.`\
 https://nytimes.com/athletic/5882423/2024/10/29/maple-leafs-players-craig-berube-minutes/
