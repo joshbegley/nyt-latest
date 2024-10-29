@@ -1,3 +1,11 @@
+**Kevin Durant, Jaylen Brown highlight season 2 cast of 'The Starting 5'**\
+`Netflix on Tuesday announced a cast for Season 2 of its docuseries "Starting 5."`\
+https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
+
+**Armie Hammer’s Comeback Attempt Hits the Podcast Stage**\
+`The actor’s career sunk after he was accused of sexual assault and making shocking comments about cannibalism. He said he hopes to learn from his show’s guests.`\
+https://nytimes.com/2024/10/29/style/armie-hammer-podcast.html
+
 **Trump’s Extraordinarily Negative TV Ads**\
 `The contrast to the Harris campaign has been stark.`\
 https://nytimes.com/2024/10/29/opinion/trumps-extraordinarily-negative-tv-ads.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/george-w-bush-daughter-barbara-harris
 **Racing Louisville's Bev Yanez opens up about miscarriage: 'It felt like such a rollercoaster'**\
 `The head coach is using her platform to help others experiencing pregnancy loss and infertility. `\
 https://nytimes.com/athletic/5883181/2024/10/29/racing-louisville-bev-yanez-miscarriage-helping-others/
-
-**Trump Family Members and Biden Aides Among China Hack Targets**\
-`Phones used by Jared Kushner and Eric Trump were among those that hackers sought access to as part of a counterintelligence effort carried out by a hacking group associated with China.`\
-https://nytimes.com/2024/10/29/us/politics/trump-biden-hacking-china.html
-
-**San Jose State Women’s Volleyball Team Finds Itself at Center of Transgender Debate**\
-`After reports that the team includes a transgender player, several schools have forfeited matches against the university out of protest.`\
-https://nytimes.com/2024/10/29/us/san-jose-womens-volleyball-transgender-ncaa.html
 

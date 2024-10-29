@@ -1,3 +1,11 @@
+**Kevin Durant, Jaylen Brown highlight season 2 cast of 'The Starting 5'**\
+`Netflix on Tuesday announced a cast for Season 2 of its docuseries "Starting 5."`\
+https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
+
+**Armie Hammer’s Comeback Attempt Hits the Podcast Stage**\
+`The actor’s career sunk after he was accused of sexual assault and making shocking comments about cannibalism. He said he hopes to learn from his show’s guests.`\
+https://nytimes.com/2024/10/29/style/armie-hammer-podcast.html
+
 **Trump’s Extraordinarily Negative TV Ads**\
 `The contrast to the Harris campaign has been stark.`\
 https://nytimes.com/2024/10/29/opinion/trumps-extraordinarily-negative-tv-ads.html
