@@ -1,3 +1,7 @@
+**A Book that Explains the 2024 Campaign**\
+`We covering the America’s working-class majority.`\
+https://nytimes.com/2024/10/29/briefing/trump-harris-2024-election.html
+
 **The Pulse: The World Series is over***\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5881417/2024/10/29/dodgers-yankees-world-series-game-3-the-pulse/
