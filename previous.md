@@ -22,7 +22,7 @@ https://nytimes.com/interactive/2024/10/29/opinion/focus-group-michigan-voters.h
 `Here’s what you need to know.`\
 https://nytimes.com/2024/10/29/briefing/trump-rally-unrwa-ukraine.html
 
-**Blackhawks ready to build on first 10 games with win over Avalanche: Observations**\
+**Blackhawks ready to build on first 10 games after win over Avalanche: Observations**\
 `An excellent defensive effort helped the Blackhawks finish their first ten games with a win and a renewed sense of purpose.`\
 https://nytimes.com/athletic/5881443/2024/10/29/blackhawks-first-10-games-avalanche/
 

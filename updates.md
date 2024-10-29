@@ -1,3 +1,7 @@
+**Blackhawks ready to build on first 10 games after win over Avalanche: Observations**\
+`An excellent defensive effort helped the Blackhawks finish their first ten games with a win and a renewed sense of purpose.`\
+https://nytimes.com/athletic/5881443/2024/10/29/blackhawks-first-10-games-avalanche/
+
 **How Vinicius Junior was overlooked for the Ballon d'Or - and the anger it sparked at Real Madrid**\
 `The Brazilian was the favourite to be named men's best player for 2023-24 and there was shock in Madrid when they found out he would not win`\
 https://nytimes.com/athletic/5880874/2024/10/29/vinicius-junior-ballon-dor-real-madrid-anger/
