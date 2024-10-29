@@ -1,3 +1,7 @@
+**Help! Budget Charged Us $450 to Clean Our Rental Car. Can They Do That?**\
+`Sure, there were footprints and some dirt, but days after a family from Ireland returned a car to Kennedy Airport, they were hit with the maximum cleaning fee.`\
+https://nytimes.com/2024/10/29/travel/budget-rental-cars-excessive-fees.html
+
 **Virginia's Jalen Warley re-entering portal in wake of Bennett's retirement**\
 `Warley is the first player to depart the program since Bennett’s abrupt retirement earlier in October.`\
 https://nytimes.com/athletic/5882687/2024/10/29/virginia-guard-jalen-warley-transferring-in-wake-of-tony-bennetts-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/weather/new-york-city-dry-october.html
 **‘Ragtime’ Crushed Brandon Uranowitz’s Dream. Now It’s Healing His Wounds.**\
 `Nearly 30 years after being let go from the Broadway-bound show, this Tony Award winner is taking a lead role in a new revival at City Center.`\
 https://nytimes.com/2024/10/29/theater/ragtime-brandon-uranowitz-city-center.html
-
-**This Toad Is So Tiny That They Call It a Flea**\
-`A “toadlet” in Brazil is the second-smallest vertebrate known to exist on the planet.`\
-https://nytimes.com/2024/10/29/science/tiny-frog-toad-brazil.html
 
