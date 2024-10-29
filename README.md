@@ -1,5 +1,17 @@
+**44 Million Voters Have Already Cast a Ballot. Most Voted Early in 2020, Too.**\
+`The fixed nature of the early vote makes it difficult to predict whether overall turnout will be as high as in 2020 and 2022, or whether either party is truly building an edge.`\
+https://nytimes.com/2024/10/29/us/politics/early-voting-presidential-election.html
+
+**Alphabet Revenue Jumps 15% to $88.3 Billion**\
+`The tech giant’s 34 percent increase in quarterly profit topped Wall Street expectations.`\
+https://nytimes.com/2024/10/29/technology/alphabet-google-earnings.html
+
+**Devices With ‘Free Gaza’ Messages Found at Ballot Box Fires**\
+`Law enforcement officials cautioned that they had not yet determined a motive for the Pacific Northwest arson fires. But the messages have heightened the sensitivity of the investigation.`\
+https://nytimes.com/2024/10/29/us/ballot-box-fires-portland-vancouver-gaza.html
+
 **Kevin Durant, Jaylen Brown highlight season 2 cast of 'The Starting 5'**\
-`Netflix on Tuesday announced a cast for Season 2 of its docuseries "Starting 5."`\
+`The new cast will also include Tyrese Haliburton and Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
 
 **Armie Hammer’s Comeback Attempt Hits the Podcast Stage**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/tennessee-senate-gloria-johnson.html
 **49ers CB Charvarius Ward's 1-year-old daughter dies**\
 `Ward had openly discussed the challenges and fears he and girlfriend Monique Cook faced after Amani Joy was born five weeks early in 2022.`\
 https://nytimes.com/athletic/5883438/2024/10/29/49ers-charvarius-wards-daughter-death/
-
-**Wizards will not exercise fourth-year options on Davis, Baldwin Jr.**\
-`Davis, a 2022 lottery pick, and Baldwin, who arrived in a trade with Golden State, will become unrestricted free agents next summer.`\
-https://nytimes.com/athletic/5882880/2024/10/29/johnny-davis-wizards-player-option-patrick-baldwin/
-
-**Barbara Bush, Scion of Republican Royalty, Knocks Doors for Kamala Harris**\
-`Ms. Bush, whose father and grandfather were the last two Republican presidents before Donald J. Trump, is backing his Democratic opponent.`\
-https://nytimes.com/2024/10/29/us/politics/george-w-bush-daughter-barbara-harris-endorsement.html
-
-**Racing Louisville's Bev Yanez opens up about miscarriage: 'It felt like such a rollercoaster'**\
-`The head coach is using her platform to help others experiencing pregnancy loss and infertility. `\
-https://nytimes.com/athletic/5883181/2024/10/29/racing-louisville-bev-yanez-miscarriage-helping-others/
 
