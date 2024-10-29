@@ -1,3 +1,7 @@
+**BP Profit Falls, but It Still Sees ‘Potential to Grow’ in Oil and Gas**\
+`The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principle aim” was rewarding shareholders.`\
+https://nytimes.com/2024/10/29/business/bp-oil-gas-earnings.html
+
 **JJ Redick angry with himself after Lakers' first loss. His players love the passion**\
 `A rare off night from LeBron James and a blown lead against the Suns kept the Lakers from a 4-0 start.`\
 https://nytimes.com/athletic/5881473/2024/10/29/jj-redick-lakers-loss-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881269/2024/10/29/bryce-eldridge-arizona-fall-leag
 **Weekly Student News Quiz: N.B.A. First, Formal Apology, Election**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/10/29/learning/29StudentNewsQuiz.html
-
-**The Chargers lead the NFL in scoring defense. Are they for real?**\
-`The Chargers are allowing 12.7 points per game. How much of that is their noticeable improvement versus facing a last-place schedule?`\
-https://nytimes.com/athletic/5881172/2024/10/29/chargers-scoring-defense-leaders/
 

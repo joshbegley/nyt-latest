@@ -1,3 +1,7 @@
+**BP Profit Falls, but It Still Sees ‘Potential to Grow’ in Oil and Gas**\
+`The energy giant’s chief executive, Murray Auchincloss, has taken a profit-oriented approach and said in an interview that the company’s “principle aim” was rewarding shareholders.`\
+https://nytimes.com/2024/10/29/business/bp-oil-gas-earnings.html
+
 **JJ Redick angry with himself after Lakers' first loss. His players love the passion**\
 `A rare off night from LeBron James and a blown lead against the Suns kept the Lakers from a 4-0 start.`\
 https://nytimes.com/athletic/5881473/2024/10/29/jj-redick-lakers-loss-suns/
