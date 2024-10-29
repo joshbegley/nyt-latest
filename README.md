@@ -1,3 +1,7 @@
+**McDonald’s Focus on Value Bolsters U.S. Sales**\
+`The fast-food giant’s earnings results did not reflect the potential fallout from an E. coli outbreak that the company has moved quickly to contain.`\
+https://nytimes.com/2024/10/29/business/mcdonalds-earnings-e-coli-outbreak-sales.html
+
 **Rosenthal: As World Series dream slips away, a reality check awaits Yankees, Aaron Judge**\
 `Crazy as this might sound, considering they won 94 games and their first AL pennant since 2009, the Yankees are not very good at baseball.`\
 https://nytimes.com/athletic/5882025/2024/10/29/dodgers-yankees-world-series-aaron-judge-losing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880828/2024/10/29/bears-tyrique-stevenson-matt-ebe
 **Chiefs offense puts the defense in another impossible situation? No problem**\
 `A goal-line stand against the Raiders was just the latest example of Kansas City's ultra-confident defense bailing out the offense.`\
 https://nytimes.com/athletic/5881087/2024/10/29/chiefs-defense-saves-offense-raiders/
-
-**What Christian Darrisaw's injury means for an already-disjointed Vikings offense**\
-`Losing their talented left tackle will make it harder for an inconsistent Vikings offense that has already had trouble sustaining drives.`\
-https://nytimes.com/athletic/5880749/2024/10/29/christian-darrisaw-injury-vikings-offense/
 
