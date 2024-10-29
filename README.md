@@ -1,3 +1,7 @@
+**CNN Bars Pro-Trump Guest After His ‘Beeper’ Remark to Mehdi Hasan**\
+`After Mr. Hasan voiced support for Palestinians, the CNN guest, Ryan James Girdusky, said, “I hope your beeper doesn’t go off.”`\
+https://nytimes.com/2024/10/29/business/cnn-pager-comment-mehdi-hasan.html
+
 **What the PGA Tour's plan to reduce cards and field sizes means**\
 `A proposal obtained by The Athletic displays fairly radical changes to the PGA Tour setup.`\
 https://nytimes.com/athletic/5882755/2024/10/29/pga-tour-card-field-sizes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882671/2024/10/29/super-bowl-odds-week-9-chiefs-li
 **WTA Finals draw: Swiatek and Gauff meet, Sabalenka faces Zheng and Rybakina**\
 `The season-ending event sees Sabalenka and Swiatek battle for year-end world No. 1 for the second year in a row`\
 https://nytimes.com/athletic/5882196/2024/10/29/wta-finals-draw-sabalenka-swiatek-gauff-riyadh/
-
-**Full Time: Ballon d’Or *now*? Really?**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5882831/2024/10/29/ballon-dor-uswnt-nwsl-playoffs-full-time/
 
