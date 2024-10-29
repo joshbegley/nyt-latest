@@ -1,3 +1,7 @@
+**CFB Week 9 reactions: Coach Prime's turnaround, Kaleb Johnson's historic season**\
+`Deion Sanders and Colorado have things rolling, and Iowa's Kaleb Johnson just can't be stopped.`\
+https://nytimes.com/athletic/5882069/2024/10/29/college-football-week-9-reaction-colorado-deion-sanders-iowa-kaleb-johnson/
+
 **What to know about the 2024 NFL trade deadline: Date, history and notable deals**\
 `The league's owners voted during their annual meetings in March to move the trade deadline following Week 9 instead of Week 8.`\
 https://nytimes.com/athletic/5870047/2024/10/29/nfl-trade-deadline-2024-date/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/style/cfda-awards-fashion.html
 **Heat Today: Dwyane Wade reflects on reaction to statue, team wins second in a row**\
 `Dwyane Wade responds to buzz about Heat statue. Plus, Miami notches second straight win`\
 https://nytimes.com/athletic/5881160/2024/10/29/heat-today-dwyane-wade-reflects-on-reaction-to-statue-team-wins-second-in-a-row/
-
-**In 1930s Rwanda, a Black Savior Is Coming, and She Might Be a Woman**\
-`The eponymous healer in “Sister Deborah” inspires a Black feminist uprising.`\
-https://nytimes.com/2024/10/29/books/review/sister-deborah-scholastique-mukasonga.html
 
