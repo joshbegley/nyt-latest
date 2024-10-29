@@ -1,3 +1,7 @@
+**No tapping out: Colts QB Anthony Richardson has hard lesson to learn from the bench**\
+`Richardson's time in Indianapolis may not be over, but his path back to being the Colts starting QB will be a big challenge. `\
+https://nytimes.com/athletic/5883841/2024/10/29/anthony-richardson-colts-joe-flacco-bench-tap-out/
+
 **Amorim on Man Utd approach: 'No decision has been made'**\
 `Ruben Amorim says &#8220;no decision has been made&#8221; on his future as Manchester United step up their bid to make him their new head coach.`\
 https://nytimes.com/athletic/5883205/2024/10/29/ruben-amorim-manchester-united-approach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/us/fani-willis-racist-threats-georgia.html
 **Amid Backlash, Trump Claims No President Has Done More for Puerto Rico Than He Has**\
 `The former president made the claim at a round-table discussion in Pennsylvania on Tuesday, days after a comic disparaged Puerto Rico during Sunday’s Trump rally in New York.`\
 https://nytimes.com/2024/10/29/us/politics/trump-puerto-rico-madison-square-garden-pennsylvania.html
-
-**Ravens' acquisition of Diontae Johnson spurs 2 reactions: Why not, and what's next?**\
-`Baltimore will owe Johnson roughly $625,000 for the rest of the season, making it a risk worth taking on a receiver with big-play potential.`\
-https://nytimes.com/athletic/5883831/2024/10/29/ravens-trade-diontae-johnson-panthers/
 
