@@ -1,3 +1,31 @@
+**The Chargers lead the NFL in scoring defense. Are they for real?**\
+`The Chargers are allowing 12.7 points per game. How much of that is their noticeable improvement versus facing a last-place schedule?`\
+https://nytimes.com/athletic/5881172/2024/10/29/chargers-scoring-defense-leaders/
+
+**Erik ten Hag: Just the latest manager unable to impose a style of play on Manchester United**\
+`The Dutchman had similar issues to Ole Gunnar Solskjaer and Ralf Rangnick - but he did at least win two trophies in his time at Old Trafford`\
+https://nytimes.com/athletic/5881995/2024/10/29/erik-ten-hag-style-of-play-manchester-united/
+
+**Finding the exact moment the Giants' 2021 vibes faded away**\
+`In 2021, the Giants looked poised to be a thorn in the Dodgers' side for years to come. A year later, the franchises looked miles apart.`\
+https://nytimes.com/athletic/5869885/2024/10/29/sf-giants-2021-regression-dodgers/
+
+**NFL Week 8 best and worst coaching decisions: Bears' blunders start with Matt Eberflus**\
+`Chicago was plagued by bad decisions while the Rams and Eagles got great plans from Sean McVay and Kellen Moore, respectively.`\
+https://nytimes.com/athletic/5879057/2024/10/29/nfl-week-8-worst-best-coaching-decisions-nguyen/
+
+**49ers minutia minute: Brock Purdy was back to what he does best vs. Cowboys**\
+`Purdy was 8-of-10 for 132 yards in those zones with a passer rating of 118.8 targeting the short and medium middle of the field.`\
+https://nytimes.com/athletic/5881029/2024/10/29/49ers-snap-counts-cowboys-brock-purdy/
+
+**Here’s the latest on the presidential race.**\
+`Kamala Harris`\
+https://nytimes.com/live/2024/10/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris Plans Closing Pitch as Trump Faces Rally Fallout**\
+`Vice President Kamala Harris will use the site of Donald J. Trump’s Jan. 6 speech to help make her closing argument. The former president will campaign in Pennsylvania.`\
+https://nytimes.com/live/2024/10/29/us/harris-trump-election
+
 **The Athletic FC: Manchester United's Amorim swoop and Real Madrid's Ballon d'Or fury**\
 `Details on Erik ten Hag's successor and why toys flew out of the pram at the Bernabeu`\
 https://nytimes.com/athletic/5882118/2024/10/29/manchester-united-amorim-real-madrid-ballon-dor/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5881941/2024/10/29/kings-win-beam-lakers-tatum-take
 **Jeff Bezos, Jerome Powell, Serena Williams and More at the DealBook Summit**\
 `The conference on Dec. 4 will bring together the biggest names in business, politics and culture.`\
 https://nytimes.com/2024/10/29/business/dealbook/bezos-powell-serena-williams-dealbook-summit.html
-
-**Vinicius Jr's Ballon d'Or hopes harmed by Madrid team-mates, awards chief suggests**\
-`France Football’s editor-in-chief Vincent Garcia has suggested that Vinicius Junior’s chances of winning the Ballon d’Or were harmed by the achievements of Real Madrid team-mates Jude Bellingham and Dani Carvajal.`\
-https://nytimes.com/athletic/5882174/2024/10/29/vinicius-ballon-dor-voting/
-
-**The Giants have a Deonte Banks problem. Can benched CB still be part of their future?**\
-`The 2024 Giants aren't going anywhere, so the rest of this season will be about finding out about the future. Is Banks part of it or not?`\
-https://nytimes.com/athletic/5881881/2024/10/29/giants-deonte-banks-benched-steelers/
-
-**A Train Ride Deep Into a Forest, and Into the Past**\
-`The Alishan Forest Railway, built during the Japanese occupation of Taiwan to transport lumber, today is a unique slow-travel experience.`\
-https://nytimes.com/card/2024/10/29/world/asia/taiwan-alishan-train-photos
-
-**MLS awards 2024: Messi isn't our unanimous MVP**\
-`Here’s how our MLS writers voted for MVP, defender of the year, coach of the year, Best XI and more.`\
-https://nytimes.com/athletic/5881392/2024/10/29/mls-awards-2024-picks-mvp-best-xi/
-
-**Jota out injured until after international break**\
-`Arne Slot has ruled out Diogo Jota and Harvey Elliott until after the upcoming international break, with the pair joining Alisson Becker on Liverpool’s longer-term injury list.`\
-https://nytimes.com/athletic/5882101/2024/10/29/diogo-jota-injury-liverpool-team-news/
-
-**Kepner: With Dodgers vs. Yankees, MLB got its ideal World Series. But only one team has shown up**\
-`The league's dream World Series is becoming a dud, but at least the Dodgers like it. They just want it to end as soon as possible.`\
-https://nytimes.com/athletic/5882113/2024/10/29/dodgers-yankees-world-series-dream-matchup-dud/
-
-**Sinner out of Paris Masters with illness**\
-`The world No. 1 will aim to return for the season-ending Tour Finals in Turin.`\
-https://nytimes.com/athletic/5882084/2024/10/29/jannik-sinner-paris-masters-out/
 
