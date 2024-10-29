@@ -1,3 +1,7 @@
+**Vivek Ramaswamy Has a Different Vision for Trumpism From JD Vance**\
+`Vivek Ramaswamy Has a Different Vision for Trumpism From JD Vance`\
+https://nytimes.com/video/opinion/100000009788925/vivek-ramaswamy-has-a-different-vision-for-trumpism-from-jd-vance.html
+
 **Jazz's Taylor Hendricks stretchered off court with ankle injury**\
 `After Hendricks' injury, the game was delayed and he was stretched off the court.`\
 https://nytimes.com/athletic/5881480/2024/10/28/taylor-hendricks-leg-injury-jazz/
