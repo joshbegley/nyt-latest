@@ -1,3 +1,11 @@
+**What Happened When Chicago’s Mayor Followed a Teachers’ Union Playbook**\
+`In Chicago, the mayor and the teachers’ union are tightly connected. The relationship has ushered in generous spending and led to political turmoil.`\
+https://nytimes.com/2024/10/29/us/chicago-teachers-union-school-board-brandon-johnson.html
+
+**Automatic Refunds for Significant Flight Disruptions: New Airline Rule Goes Into Effect**\
+`The Transportation Department’s new rule also sets the definition for what constitutes a “significant” delay in air travel.`\
+https://nytimes.com/2024/10/29/travel/airline-fees-refunds-dot-rules.html
+
 **A Celebrated Pianist’s Final Recording, Made With His Son**\
 `Maurizio Pollini didn’t think his farewell on disc would be an album of music by Schubert with his son, Daniele. Now, it serves as an emotional coda.`\
 https://nytimes.com/2024/10/29/arts/music/maurizio-pollini-final-recording.html
