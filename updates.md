@@ -1,3 +1,7 @@
+**JJ Redick angry with himself after Lakers' first loss. His players love the passion**\
+`A rare off night from LeBron James and a blown lead against the Suns kept the Lakers from a 4-0 start.`\
+https://nytimes.com/athletic/5881473/2024/10/29/jj-redick-lakers-loss-suns/
+
 **Cowboys Today: How many wins will Dallas finish with this season?**\
 `The Cowboys have a brutal four-game stretch ahead and a key stat that explains a lot of this season's frustrations.`\
 https://nytimes.com/athletic/5881778/2024/10/29/cowboys-today-win-total-turnover-margin/
