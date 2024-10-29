@@ -1,3 +1,7 @@
+**Wednesday Briefing: Trump’s Worrisome Business Deals**\
+`Plus, what happened to repatriated art in Benin.`\
+https://nytimes.com/2024/10/29/briefing/trump-business-gaza-us-china.html
+
 **Israel Hits Gaza Town for Third Time in Days, Killing Dozens, Officials Say**\
 `Gazan agencies said that children were among those killed in the strike in Beit Lahia. A U.S. State Department spokesman called the strike “a horrifying incident with a horrifying result.”`\
 https://nytimes.com/2024/10/29/world/middleeast/israel-gaza-beit-lahia.html

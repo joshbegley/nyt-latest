@@ -1,3 +1,7 @@
+**Wednesday Briefing: Trump’s Worrisome Business Deals**\
+`Plus, what happened to repatriated art in Benin.`\
+https://nytimes.com/2024/10/29/briefing/trump-business-gaza-us-china.html
+
 **Israel Hits Gaza Town for Third Time in Days, Killing Dozens, Officials Say**\
 `Gazan agencies said that children were among those killed in the strike in Beit Lahia. A U.S. State Department spokesman called the strike “a horrifying incident with a horrifying result.”`\
 https://nytimes.com/2024/10/29/world/middleeast/israel-gaza-beit-lahia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/us/ballot-box-fires-portland-vancouver-gaza.html
 **Kevin Durant, Jaylen Brown highlight Season 2 cast of 'Starting 5'**\
 `The new cast will also include Tyrese Haliburton and Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
-
-**Armie Hammer’s Comeback Attempt Hits the Podcast Stage**\
-`The actor’s career sunk after he was accused of sexual assault and making shocking comments about cannibalism. He said he hopes to learn from his show’s guests.`\
-https://nytimes.com/2024/10/29/style/armie-hammer-podcast.html
 
