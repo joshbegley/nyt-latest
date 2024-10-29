@@ -1,3 +1,7 @@
+**Wizards decline fourth-year options on Johnny Davis, Patrick Baldwin**\
+`Davis, a 2022 lottery pick, and Baldwin, who arrived in a trade with Golden State, will become unrestricted free agents next summer.`\
+https://nytimes.com/athletic/5882880/2024/10/29/johnny-davis-wizards-player-option-patrick-baldwin/
+
 **Barbara Bush, Scion of Republican Royalty, Knocks Doors for Kamala Harris**\
 `Ms. Bush, whose father and grandfather were the last two Republican presidents before Donald J. Trump, is backing his Democratic opponent.`\
 https://nytimes.com/2024/10/29/us/politics/george-w-bush-daughter-barbara-harris-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/how-trump-exploits-divisions-among-bl
 **Teen Accused in U.K. Dance Class Stabbing Charged With Terror Offenses**\
 `The police said that they found Ricin and an Al Qaeda training manual in the suspect’s home. The attack on little girls at a Taylor Swift-themed event stoked anti-immigrant sentiment.`\
 https://nytimes.com/2024/10/29/world/europe/southport-stabbing-terror-charges-ricin-al-qaeda.html
-
-**One Defendant Accepts a Plea Deal Amid Young Thug’s RICO Trial**\
-`Prosecutors have accused the star Atlanta rapper of leading a gang in the longest trial in Georgia history. The case has been further delayed by plea negotiations.`\
-https://nytimes.com/2024/10/29/arts/music/young-thug-trial-plea-deal.html
 
