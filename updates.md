@@ -1,3 +1,7 @@
+**Election Live Updates: Harris to Speak at Ellipse as Trump Faces Rally Fallout**\
+`Vice President Kamala Harris will use the site of Donald J. Trump’s Jan. 6 speech to help make her closing argument on Tuesday. The former president will campaign in Pennsylvania.`\
+https://nytimes.com/live/2024/10/29/us/harris-trump-election
+
 **In 1930s Rwanda, a Black Savior Is Coming, and She Might Be a Woman**\
 `The eponymous healer in “Sister Deborah” inspires a Black feminist uprising.`\
 https://nytimes.com/2024/10/29/books/review/sister-deborah-scholastique-mukasonga.html
