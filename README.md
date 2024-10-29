@@ -1,3 +1,7 @@
+**Fantasy football: Who to drop in Week 9? Anthony Richardson, for one**\
+`Anthony Richardson believes he is a "great passer." The numbers, and our eyes, say otherwise.`\
+https://nytimes.com/athletic/5882391/2024/10/29/fantasy-football-who-to-drop-in-week-9-anthony-richardson-for-one/
+
 **Son unlikely to face Man City; Odobert suffers 'serious' setback**\
 `Tottenham Hotspur captain Son Heung-min is unlikely to feature in their Carabao Cup tie against Manchester City on Wednesday while Wilson Odobert has suffered a “serious” setback in his recovery from a hamstring injury.`\
 https://nytimes.com/athletic/5882472/2024/10/29/son-injury-update-tottenham-odobert/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881778/2024/10/29/cowboys-today-win-total-turnover
 **A Rural Missouri Town Fights Big Tech, and Itself**\
 `Residents of Peculiar battled developers and some of their local officials to keep a giant data center out of their community.`\
 https://nytimes.com/2024/10/29/technology/data-center-peculiar-missouri.html
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/10/29/nhl-standings-playoffs-projections-odds/
 
