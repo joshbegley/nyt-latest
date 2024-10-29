@@ -1,3 +1,19 @@
+**Submit questions for ‘The Athletic NBA Daily’ podcast mailbag**\
+`The season is underway. What questions do you have for us?`\
+https://nytimes.com/athletic/5876560/2024/10/28/early-nba-questions-submit-them-for-the-athletic-nba-daily-podcast-mailbag/
+
+**Hostility flares between Iran and Israel at a Security Council session.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/hostility-flares-between-iran-and-israel-at-a-security-council-session
+
+**Puerto Ricans in Philadelphia Are Angered by Bigoted Remarks at Trump Rally**\
+`Many Puerto Ricans in the crucial battleground state said the remarks, such as one deriding Puerto Rico as “a floating island of garbage,” fit a common disrespectful attitude toward the island territory.`\
+https://nytimes.com/2024/10/28/us/politics/puerto-ricans-philadelphia-trump-rally.html
+
+**‘Bad Kreyòl’ Review: Dueling Cultural Identities Make for a Weighty Comedy**\
+`Dominique Morisseau’s new play explores the tensions between a Haitian American woman and her Haitian-born cousin.`\
+https://nytimes.com/2024/10/28/theater/bad-kreyol-review.html
+
 **Dwyane Wade on Heat statue criticism: 'I care, but I don’t'**\
 `“It’s an artistic version of a moment that happened that we’re trying to cement,” Wade said.`\
 https://nytimes.com/athletic/5881158/2024/10/28/dwyane-wade-heat-statue-criticism/
