@@ -1,3 +1,19 @@
+**44 Million Voters Have Already Cast a Ballot. Most Voted Early in 2020, Too.**\
+`The fixed nature of the early vote makes it difficult to predict whether overall turnout will be as high as in 2020 and 2022, or whether either party is truly building an edge.`\
+https://nytimes.com/2024/10/29/us/politics/early-voting-presidential-election.html
+
+**Alphabet Revenue Jumps 15% to $88.3 Billion**\
+`The tech giant’s 34 percent increase in quarterly profit topped Wall Street expectations.`\
+https://nytimes.com/2024/10/29/technology/alphabet-google-earnings.html
+
+**Devices With ‘Free Gaza’ Messages Found at Ballot Box Fires**\
+`Law enforcement officials cautioned that they had not yet determined a motive for the Pacific Northwest arson fires. But the messages have heightened the sensitivity of the investigation.`\
+https://nytimes.com/2024/10/29/us/ballot-box-fires-portland-vancouver-gaza.html
+
+**Kevin Durant, Jaylen Brown highlight season 2 cast of 'The Starting 5'**\
+`The new cast will also include Tyrese Haliburton and Shai Gilgeous-Alexander.`\
+https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
+
 **Kevin Durant, Jaylen Brown highlight season 2 cast of 'The Starting 5'**\
 `Netflix on Tuesday announced a cast for Season 2 of its docuseries "Starting 5."`\
 https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
