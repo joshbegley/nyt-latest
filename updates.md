@@ -1,3 +1,15 @@
+**Ford Foundation Gives $10 Million to Studio Museum in Harlem**\
+`The grant will support the museum’s director and chief curator, a position held for the last 20 years by Thelma Golden.`\
+https://nytimes.com/2024/10/28/arts/studio-museum-in-harlem.html
+
+**Corrections: Oct. 29, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 29, 2024.`\
+https://nytimes.com/2024/10/28/pageoneplus/corrections-oct-29-2024.html
+
+**Trump Long Ago Crossed the Line From Propriety to Profanity. Then Came the Garden.**\
+`In former President Donald J. Trump’s third campaign for the White House, his speeches have grown coarser and coarser.`\
+https://nytimes.com/2024/10/28/us/politics/trump-profanity.html
+
 **Secret Files in Election Case Show How Judges Limited Trump’s Privilege**\
 `The partly unsealed rulings, orders and transcripts open a window on a momentous battle over grand jury testimony that played out in secret, creating important precedents about executive privilege.`\
 https://nytimes.com/2024/10/28/us/trump-election-case-secret-documents.html

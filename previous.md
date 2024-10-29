@@ -1,3 +1,15 @@
+**Ford Foundation Gives $10 Million to Studio Museum in Harlem**\
+`The grant will support the museum’s director and chief curator, a position held for the last 20 years by Thelma Golden.`\
+https://nytimes.com/2024/10/28/arts/studio-museum-in-harlem.html
+
+**Corrections: Oct. 29, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 29, 2024.`\
+https://nytimes.com/2024/10/28/pageoneplus/corrections-oct-29-2024.html
+
+**Trump Long Ago Crossed the Line From Propriety to Profanity. Then Came the Garden.**\
+`In former President Donald J. Trump’s third campaign for the White House, his speeches have grown coarser and coarser.`\
+https://nytimes.com/2024/10/28/us/politics/trump-profanity.html
+
 **Harris Dives Into a Frenetic Final Week With a Swing Through Michigan**\
 `The vice president finished her day in the battleground state at a rally near the University of Michigan’s campus in Ann Arbor, where she sprinkled her speech with outreach to progressive Democrats.`\
 https://nytimes.com/2024/10/28/us/politics/harris-michigan-ann-arbor.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/28/theater/bad-kreyol-review.html
 **Michigan's Jack Tuttle retiring from football due to concussions**\
 `"I've battled numerous injuries, culminating in this difficult choice to step away from playing the game that I love," Tuttle said on X.`\
 https://nytimes.com/athletic/5881319/2024/10/28/jack-tuttle-michigan-retiring-concussion/
-
-**Dwyane Wade on Heat statue criticism: 'I care, but I don’t'**\
-`“It’s an artistic version of a moment that happened that we’re trying to cement,” Wade said.`\
-https://nytimes.com/athletic/5881158/2024/10/28/dwyane-wade-heat-statue-criticism/
-
-**The prosecutor seeking warrants for Israeli leaders dismisses misconduct accusations as ‘disinformation.’**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/the-prosecutor-seeking-warrants-for-israeli-leaders-dismisses-misconduct-accusations-as-disinformation
-
-**‘Bob’s Burgers’ Actor Sentenced to One Year in Prison for Role in Jan. 6 Riot**\
-`The actor, Jay Johnston, pleaded guilty in July to obstructing police during the riots at the Capitol on Jan. 6, 2021, according to prosecutors.`\
-https://nytimes.com/2024/10/28/us/jay-johnston-bobs-burgers-jan-6.html
 
