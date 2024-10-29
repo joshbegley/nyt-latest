@@ -1,3 +1,19 @@
+**Trump’s Extraordinarily Negative TV Ads**\
+`The contrast to the Harris campaign has been stark.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/trumps-extraordinarily-negative-tv-ads
+
+**The Runza, a Favorite Nebraska Sandwich, Has a Cameo in the Campaign**\
+`Tim Walz, the Democratic vice-presidential nominee, is a fan of the ground-beef treat. On a recent stop at a Runza restaurant in Omaha, he managed to spend $600.`\
+https://nytimes.com/2024/10/29/us/elections/nebraska-runza-tim-walz.html
+
+**Market share report: Restored faith in Courtland Sutton, playing the odds with Isaac Guerendo and more**\
+`Michael Salfino says his faith in Denver receiver Courtland Sutton paid off in Week 8, and he's ready to double down on him this Sunday.`\
+https://nytimes.com/athletic/5883443/2024/10/29/market-share-report-week-8-sutton-guerendo/
+
+**What a ‘Tennessee Three’ Member Thinks She Can Achieve by Running for Senate**\
+`Gloria Johnson’s bid to unseat Senator Marsha Blackburn appears destined to fail, but she still sees an opening to start chipping away at Republican dominance in the state.`\
+https://nytimes.com/2024/10/29/us/politics/tennessee-senate-gloria-johnson.html
+
 **49ers CB Charvarius Ward's 1-year-old daughter dies**\
 `Ward had openly discussed the challenges and fears he and girlfriend Monique Cook faced after Amani Joy was born five weeks early in 2022.`\
 https://nytimes.com/athletic/5883438/2024/10/29/49ers-charvarius-wards-daughter-death/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/trump-biden-hacking-china.html
 **San Jose State Women’s Volleyball Team Finds Itself at Center of Transgender Debate**\
 `After reports that the team includes a transgender player, several schools have forfeited matches against the university out of protest.`\
 https://nytimes.com/2024/10/29/us/san-jose-womens-volleyball-transgender-ncaa.html
-
-**Live Q&A: Week 9 fantasy football add/drop chat with Jay Felicio, Tuesday 10/29 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5882871/2024/10/29/live-qa-week-9-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-29-at-5-p-m-et/
-
-**Ahead of Harris’s Speech in Washington, Trump Tries to Focus on Immigration**\
-`The former president believes his focus on illegal immigration is the reason he won in 2016, and this year, he has pushed his advisers to add content related to it.`\
-https://nytimes.com/2024/10/29/us/politics/trump-mar-a-lago-immigration.html
-
-**Musk’s PAC Hints at Vulgar Taunt Against Harris in Ad**\
-`One version of the ad, first posted by the group on Friday evening, remained active on Tuesday, with more than 430,000 views.`\
-https://nytimes.com/2024/10/29/us/politics/elon-musk-pac-harris-videos.html
-
-**How Trump Exploits Divisions Among Black and Latino Voters**\
-`Donald J. Trump’s anti-immigrant message is exposing longstanding tensions and challenging Democrats’ hopes for solidarity.`\
-https://nytimes.com/2024/10/29/us/politics/trump-black-latino-voters.html
 
