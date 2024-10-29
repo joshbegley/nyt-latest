@@ -1,5 +1,5 @@
 **Gabriel injury 'doesn't look bad at all', Arteta reveals**\
-`Mikel Arteta has offered a positive update on Gabriel and indicated the Arsenal defender has avoided serious injury.`\
+`Mikel Arteta has indicated that Arsenal defender Gabriel has avoided serious injury.`\
 https://nytimes.com/athletic/5877460/2024/10/29/gabriel-injury-arsenal-update/
 
 **Help! Budget Charged Us $450 to Clean Our Rental Car. Can They Do That?**\
