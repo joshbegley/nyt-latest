@@ -1,3 +1,7 @@
+**Repeat Word for Word**\
+`Kathy Lowden shows off her collections.`\
+https://nytimes.com/2024/10/28/crosswords/daily-puzzle-2024-10-29.html
+
 **'MNF' to air 'Simpsons' broadcast for Bengals-Cowboys in Week 14**\
 `“The Simpsons Funday Football,” as it is officially called, will air on ESPN+ and Disney+.`\
 https://nytimes.com/athletic/5881010/2024/10/28/simpsons-monday-night-football-cowboys-bengals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5876560/2024/10/28/early-nba-questions-submit-them-
 **Hostility flares between Iran and Israel at a Security Council session.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/hostility-flares-between-iran-and-israel-at-a-security-council-session
-
-**Puerto Ricans in Philadelphia Are Angered by Bigoted Remarks at Trump Rally**\
-`Many Puerto Ricans in the crucial battleground state said the remarks, such as one deriding Puerto Rico as “a floating island of garbage,” fit a common disrespectful attitude toward the island territory.`\
-https://nytimes.com/2024/10/28/us/politics/puerto-ricans-philadelphia-trump-rally.html
 
