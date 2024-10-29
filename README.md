@@ -1,3 +1,7 @@
+**Vikings trade for Jaguars' Cam Robinson to replace injured Christian Darrisaw**\
+`Darrisaw, the Vikings' standout left tackle, tore his ACL and MCL during a 30-20 loss to the Los Angeles Rams in Week 8.`\
+https://nytimes.com/athletic/5884036/2024/10/29/cam-robinson-vikings-jaguars-trade/
+
 **No tapping out: Colts QB Anthony Richardson has hard lesson to learn from the bench**\
 `Richardson's time in Indianapolis may not be over, but his path back to being the Colts starting QB will be a big challenge. `\
 https://nytimes.com/athletic/5883841/2024/10/29/anthony-richardson-colts-joe-flacco-bench-tap-out/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/opinion/trump-conservative-harris-election.html
 **Fani Willis Takes the Stand as a Victim of Racist Threats**\
 `Ms. Willis spoke of the fear she felt after a man made “vile” calls targeting her and another Black official in Georgia. The man was sentenced to almost two years in prison.`\
 https://nytimes.com/2024/10/29/us/fani-willis-racist-threats-georgia.html
-
-**Amid Backlash, Trump Claims No President Has Done More for Puerto Rico Than He Has**\
-`The former president made the claim at a round-table discussion in Pennsylvania on Tuesday, days after a comic disparaged Puerto Rico during Sunday’s Trump rally in New York.`\
-https://nytimes.com/2024/10/29/us/politics/trump-puerto-rico-madison-square-garden-pennsylvania.html
 
