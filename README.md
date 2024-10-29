@@ -1,3 +1,11 @@
+**In ‘Empty Beds,’ a Stark Reminder of War’s Youngest Victims**\
+`A mural spanning an entire city block in Manhattan symbolizes the thousands of Ukrainian children who have been taken by Russian forces.`\
+https://nytimes.com/2024/10/29/arts/design/empty-beds-little-ukraine-exhibition.html
+
+**Two Horror Authors on the Scary Books You Should Read**\
+`Stephen Graham Jones and Joe Hill with their recommendations for this Halloween season.`\
+https://nytimes.com/2024/10/29/books/review/joe-hill-stephen-graham-jones-horror-recommendations.html
+
 **PWHL preparing for expansion as early as 2025-26 season, could add up to 2 teams**\
 `After success in its inaugural season, the PWHL is looking to expand to new hockey markets sooner than expected.`\
 https://nytimes.com/athletic/5882695/2024/10/29/pwhl-womens-hockey-expansion-cities/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5881099/2024/10/29/bilal-coulibaly-nba-scouts-evalu
 **With Ump Cam, Dirt Cam, drones and more, at World Series, MLB has cameras everywhere**\
 `MLB is deploying over 40 cameras for the World Series and adding new technology to the broadcast, creating a different viewing experience.`\
 https://nytimes.com/athletic/5882817/2024/10/29/yankees-dodgers-world-series-camera-technology-mlb/
-
-**NFL best bets Week 9: Why Jayden Daniels, Commanders should have a field day**\
-`Austin Mock has more NFL best bets after a winning week last week. Can Jayden Daniels play through his rib injury again?`\
-https://nytimes.com/athletic/5882799/2024/10/29/nfl-best-bets-week-9-commanders-chargers/
-
-**Super Bowl 2025 odds: Still Chiefs' world, but Lions and more keep closing gap**\
-`The Lions' odds to win the Super Bowl have consistently improved every week. We break down risers and fallers before Week 9.`\
-https://nytimes.com/athletic/5882671/2024/10/29/super-bowl-odds-week-9-chiefs-lions-bills/
 
