@@ -1,3 +1,7 @@
+**A New Insult Reminds Puerto Ricans of How Trump Treated Them**\
+`As president, Donald Trump fought bitterly with Puerto Rican officials, ridiculed them and resisted sending aid to the territory after devastating hurricanes.`\
+https://nytimes.com/2024/10/29/us/puerto-ricans-trump-insult.html
+
 **Dozens Are Killed in an Israeli Strike in North Gaza, Local Authorities say**\
 `Gaza’s health ministry said that at least 25 children were among those killed in an Israeli strike on a residential building in Beit Lahia, in northern Gaza. The Israeli military said it was looking into the strike.`\
 https://nytimes.com/video/world/middleeast/100000009789347/beit-lahia-gaza-strike-children-killed-.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5882472/2024/10/29/son-injury-update-tottenham-odob
 **Where’s Ivanka?**\
 `Donald J. Trump’s oldest daughter and former top aide was once one of his most prominent campaign surrogates. Lately, she’s noticeably absent.`\
 https://nytimes.com/2024/10/29/style/wheres-ivanka.html
-
-**CFB Week 9 reactions: Coach Prime's turnaround, Kaleb Johnson's historic season**\
-`Deion Sanders and Colorado have things rolling, and Iowa's Kaleb Johnson just can't be stopped.`\
-https://nytimes.com/athletic/5882069/2024/10/29/college-football-week-9-reaction-colorado-deion-sanders-iowa-kaleb-johnson/
 
