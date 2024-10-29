@@ -1,3 +1,7 @@
+**No tapping out: Colts QB Anthony Richardson has hard lesson to learn from the bench**\
+`Richardson's time in Indianapolis may not be over, but his path back to being the Colts starting QB will be a big challenge. `\
+https://nytimes.com/athletic/5883841/2024/10/29/anthony-richardson-colts-joe-flacco-bench-tap-out/
+
 **Amorim on Man Utd approach: 'No decision has been made'**\
 `Ruben Amorim says &#8220;no decision has been made&#8221; on his future as Manchester United step up their bid to make him their new head coach.`\
 https://nytimes.com/athletic/5883205/2024/10/29/ruben-amorim-manchester-united-approach/
