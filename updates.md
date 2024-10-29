@@ -1,3 +1,15 @@
+**Virginia's Jalen Warley re-entering portal in wake of Bennett's retirement**\
+`Warley is the first player to depart the program since Bennett’s abrupt retirement earlier in October.`\
+https://nytimes.com/athletic/5882687/2024/10/29/virginia-guard-jalen-warley-transferring-in-wake-of-tony-bennetts-retirement/
+
+**A ‘Crime and Punishment’ Ballet? It’s Not as ‘Ludicrous’ as It Seems.**\
+`“Why can’t ballet be a roller coaster?” Helen Pickett said of her and James Bonas’s full-length work, premiering this week at American Ballet Theater.`\
+https://nytimes.com/2024/10/29/arts/dance/crime-and-punishment-helen-pickett-lincoln-center.html
+
+**The Windup: Why this World Series has underwhelmed**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5882636/2024/10/29/world-series-dodgers-yankees-the-windup-2/
+
 **Dozens Killed in Israeli Strikes in Eastern Lebanon, Lebanese Officials Say**\
 `The barrage of Israeli airstrikes in the Bekaa Valley on Monday night killed at least 60 people, officials said. It appeared to be the deadliest attack in the area since the war escalated last month.`\
 https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-lebanon-baalbek-bekaa-valley.html
