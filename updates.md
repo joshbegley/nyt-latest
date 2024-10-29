@@ -1,3 +1,11 @@
+**The Bengals' bleak defensive regression and 3 plays highlighting the problems**\
+`It looked like coordinator Lou Anarumo's defense had turned the corner in the prior two weeks, but the Eagles exposed major issues.`\
+https://nytimes.com/athletic/5881386/2024/10/29/bengals-defensive-regression-anarumo/
+
+**Bullpen games in the MLB playoffs may not be fun, but they work — for some teams**\
+`The Dodgers will go with a bullpen game in Game 4 of the World Series. It's a plan that isn't often successful but seems to work for them.`\
+https://nytimes.com/athletic/5880603/2024/10/29/dodgers-yankees-world-series-bullpen-games/
+
 **Stephen Bannon Is Released From Prison**\
 `Mr. Bannon, one of the most influential voices in hard-right American politics, predicted a legal battle after Election Day that could last weeks or months.`\
 https://nytimes.com/2024/10/29/us/steve-bannon-prison-release.html
