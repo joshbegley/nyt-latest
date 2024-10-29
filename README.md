@@ -1,3 +1,11 @@
+**Musk’s PAC hints at a vulgar taunt against women in an ad.**\
+`One version of the ad, first posted by the group on Friday evening, remained active on Tuesday, with more than 430,000 views.`\
+https://nytimes.com/2024/10/29/us/politics/elon-musk-pac-harris-videos.html
+
+**How Trump Exploits Divisions Among Black and Latino Voters**\
+`Donald J. Trump’s anti-immigrant message is exposing longstanding tensions and challenging Democrats’ hopes for solidarity.`\
+https://nytimes.com/2024/10/29/us/politics/how-trump-exploits-divisions-among-black-and-latino-voters.html
+
 **Teen Accused in U.K. Dance Class Stabbing Charged With Terror Offenses**\
 `The police said that they found Ricin and an Al Qaeda training manual in the suspect’s home. The attack on little girls at a Taylor Swift-themed event stoked anti-immigrant sentiment.`\
 https://nytimes.com/2024/10/29/world/europe/southport-stabbing-terror-charges-ricin-al-qaeda.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/judge-aileen-cannon-trump-assassinati
 **Bad Bunny Responds to Racist Remarks at Trump Rally With a Message of Puerto Rican Pride**\
 `The pop superstar posted a video lauding the island’s “kings and queens,” two days after he shared a clip of Vice President Kamala Harris addressing Puerto Rican voters.`\
 https://nytimes.com/2024/10/29/us/politics/bad-bunny-trump-harris-puerto-rico.html
-
-**Regional Indian Flavors in the Flatiron District**\
-`The great New York outdoors inspires a new Brooklyn restaurant, New England seafood at Smithereens and more restaurant news.`\
-https://nytimes.com/2024/10/29/dining/passerine-restaurant-opening-flatiron.html
-
-**Despite Covid ‘Amnesia,’ the Pandemic Simmers Beneath the 2024 Race**\
-`Dueling Trump and Harris rallies outside Atlanta offer a case study in how anger and anxiety over Covid-19, a proxy for the larger debate over trust in government, have shaped the 2024 race.`\
-https://nytimes.com/2024/10/29/us/politics/trump-harris-covid-rfk-vaccines.html
 
