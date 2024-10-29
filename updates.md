@@ -1,3 +1,11 @@
+**Giants don't trust CB Deonte Banks right now, and that's a big problem**\
+`The 2024 Giants aren't going anywhere, so the rest of this season will be about finding out about the future. Is Banks part of it or not?`\
+https://nytimes.com/athletic/5881881/2024/10/29/giants-deonte-banks-benched-steelers/
+
+**A Train Ride Deep Into a Forest, and Into the Past**\
+`The Alishan Forest Railway, built during the Japanese occupation of Taiwan to transport lumber, today is a unique slow-travel experience.`\
+https://nytimes.com/card/2024/10/29/world/asia/taiwan-alishan-train-photos
+
 **MLS awards 2024: Messi isn't our unanimous MVP**\
 `Here’s how our MLS writers voted for MVP, defender of the year, coach of the year, Best XI and more.`\
 https://nytimes.com/athletic/5881392/2024/10/29/mls-awards-2024-picks-mvp-best-xi/
