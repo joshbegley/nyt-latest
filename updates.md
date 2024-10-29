@@ -1,3 +1,19 @@
+**Trump’s Extraordinarily Negative TV Ads**\
+`The contrast to the Harris campaign has been stark.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/trumps-extraordinarily-negative-tv-ads
+
+**The Runza, a Favorite Nebraska Sandwich, Has a Cameo in the Campaign**\
+`Tim Walz, the Democratic vice-presidential nominee, is a fan of the ground-beef treat. On a recent stop at a Runza restaurant in Omaha, he managed to spend $600.`\
+https://nytimes.com/2024/10/29/us/elections/nebraska-runza-tim-walz.html
+
+**Market share report: Restored faith in Courtland Sutton, playing the odds with Isaac Guerendo and more**\
+`Michael Salfino says his faith in Denver receiver Courtland Sutton paid off in Week 8, and he's ready to double down on him this Sunday.`\
+https://nytimes.com/athletic/5883443/2024/10/29/market-share-report-week-8-sutton-guerendo/
+
+**What a ‘Tennessee Three’ Member Thinks She Can Achieve by Running for Senate**\
+`Gloria Johnson’s bid to unseat Senator Marsha Blackburn appears destined to fail, but she still sees an opening to start chipping away at Republican dominance in the state.`\
+https://nytimes.com/2024/10/29/us/politics/tennessee-senate-gloria-johnson.html
+
 **How Trump Exploits Divisions Among Black and Latino Voters**\
 `Donald J. Trump’s anti-immigrant message is exposing longstanding tensions and challenging Democrats’ hopes for solidarity.`\
 https://nytimes.com/2024/10/29/us/politics/trump-black-latino-voters.html
