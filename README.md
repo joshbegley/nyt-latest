@@ -1,3 +1,7 @@
+**Man Who Attacked Paul Pelosi Is Sentenced to Life in Prison**\
+`David DePape broke into the San Francisco home of Nancy Pelosi, the former speaker of the House, in 2022 and beat her husband with a hammer.`\
+https://nytimes.com/2024/10/29/us/man-attacked-paul-pelosi-sentenced-life-prison.html
+
 **44 Million Voters Have Already Cast a Ballot. Most Voted Early in 2020, Too.**\
 `The fixed nature of the early vote makes it difficult to predict whether overall turnout will be as high as in 2020 and 2022, or whether either party is truly building an edge.`\
 https://nytimes.com/2024/10/29/us/politics/early-voting-presidential-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883443/2024/10/29/market-share-report-week-8-sutto
 **What a ‘Tennessee Three’ Member Thinks She Can Achieve by Running for Senate**\
 `Gloria Johnson’s bid to unseat Senator Marsha Blackburn appears destined to fail, but she still sees an opening to start chipping away at Republican dominance in the state.`\
 https://nytimes.com/2024/10/29/us/politics/tennessee-senate-gloria-johnson.html
-
-**49ers CB Charvarius Ward's 1-year-old daughter dies**\
-`Ward had openly discussed the challenges and fears he and girlfriend Monique Cook faced after Amani Joy was born five weeks early in 2022.`\
-https://nytimes.com/athletic/5883438/2024/10/29/49ers-charvarius-wards-daughter-death/
 
