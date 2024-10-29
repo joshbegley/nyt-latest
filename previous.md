@@ -1,3 +1,11 @@
+**Gnocchi’s Crispy — Let’s Eat**\
+`“I’m always impressed with simple recipes that taste this good.”`\
+https://nytimes.com/2024/10/29/dining/gnocchis-crispy-lets-eat.html
+
+**Autumn in New York Has Been the One of the City’s Driest Ever**\
+`It’s been 29 days since Central Park has seen measurable rain.`\
+https://nytimes.com/2024/10/29/weather/new-york-city-dry-october.html
+
 **‘Ragtime’ Crushed Brandon Uranowitz’s Dream. Now It’s Healing His Wounds.**\
 `Nearly 30 years after being let go from the Broadway-bound show, this Tony Award winner is taking a lead role in a new revival at City Center.`\
 https://nytimes.com/2024/10/29/theater/ragtime-brandon-uranowitz-city-center.html
