@@ -1,3 +1,7 @@
+**MLS awards 2024: Messi isn't our unanimous MVP**\
+`Here’s how our MLS writers voted for MVP, defender of the year, coach of the year, Best XI and more.`\
+https://nytimes.com/athletic/5881392/2024/10/29/mls-awards-2024-picks-mvp-best-xi/
+
 **Jota out injured until after international break**\
 `Arne Slot has ruled out Diogo Jota and Harvey Elliott until after the upcoming international break, with the pair joining Alisson Becker on Liverpool’s longer-term injury list.`\
 https://nytimes.com/athletic/5882101/2024/10/29/diogo-jota-injury-liverpool-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881935/2024/10/29/dodgers-yankees-world-series-fre
 **Which prospects will Twins protect from Rule 5 draft? Must-adds and tough calls**\
 `Here are the most prominent Twins prospects who will be eligible for the Rule 5 draft if they aren't added to the 40-man roster by Nov. 19.`\
 https://nytimes.com/athletic/5875902/2024/10/29/minnesota-twins-roster-rule-5-draft/
-
-**How the Dodgers' Walker Buehler found himself in October**\
-`Buehler was supposed to be a shell of his former dominant self, but the World Series stage conjured up his best stuff.`\
-https://nytimes.com/athletic/5881824/2024/10/29/dodgers-yankees-world-series-walker-buehler/
 
