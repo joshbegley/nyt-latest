@@ -1,3 +1,7 @@
+**Ex-Leader of Black Transgender Group Is Charged With Stealing Its Money**\
+`After Dominique Morgan said her group would start a bail fund for poor defendants, she instead took nearly $100,000 for personal expenses, prosecutors said.`\
+https://nytimes.com/2024/10/29/nyregion/dominique-morgan-okra-project-charged.html
+
 **Au Pair Pleads Guilty to Manslaughter in Double Homicide**\
 `As part of a plea agreement, Juliana Peres Magalhães, 24, has agreed to cooperate with prosecutors, who have charged her ex-lover with murdering his wife and another man in 2023.`\
 https://nytimes.com/2024/10/29/us/juliana-peres-magalhaes-au-pair-guilty-plea.html
