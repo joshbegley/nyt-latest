@@ -1,3 +1,11 @@
+**Is Trump a Fascist? This Time, Mayor Adams Dodges the Question.**\
+`Mayor Eric Adams of New York City bristled at questions about the former president and said there was a need to “turn down the rhetoric.”`\
+https://nytimes.com/2024/10/29/nyregion/adams-trump-fascist-msg.html
+
+**Trump Ad Claims Harris Will ‘Doom Medicare’**\
+`With older Americans making up a major share of voters in battleground states, the Trump campaign casts Kamala Harris as a threat to programs that benefit them.`\
+https://nytimes.com/2024/10/29/us/politics/trump-ad-medicare.html
+
 **Person: Panthers knew what they were getting in Diontae Johnson, who was true to form**\
 `Johnson returns to the AFC North with the Ravens, who 10 years ago acquired a Panthers receiver in their bid to win another Super Bowl.`\
 https://nytimes.com/athletic/5883666/2024/10/29/panthers-trade-diontae-johnson-ravens/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/business/trump-media-stock-truth-social.html
 **Man Who Attacked Paul Pelosi Is Sentenced to Life in Prison**\
 `David DePape broke into the San Francisco home of Nancy Pelosi, the former speaker of the House, in 2022 and beat her husband with a hammer.`\
 https://nytimes.com/2024/10/29/us/man-attacked-paul-pelosi-sentenced-life-prison.html
-
-**44 Million Voters Have Already Cast a Ballot. Most Voted Early in 2020, Too.**\
-`The fixed nature of the early vote makes it difficult to predict whether overall turnout will be as high as in 2020 and 2022, or whether either party is truly building an edge.`\
-https://nytimes.com/2024/10/29/us/politics/early-voting-presidential-election.html
-
-**Alphabet Revenue Jumps 15% to $88.3 Billion**\
-`The tech giant’s 34 percent increase in quarterly profit topped Wall Street expectations.`\
-https://nytimes.com/2024/10/29/technology/alphabet-google-earnings.html
 
