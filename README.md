@@ -1,3 +1,11 @@
+**The prosecutor seeking warrants for Israeli leaders dismisses misconduct accusations as ‘disinformation.’**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/the-prosecutor-seeking-warrants-for-israeli-leaders-dismisses-misconduct-accusations-as-disinformation
+
+**‘Bob’s Burgers’ Actor Sentenced to One Year in Prison for Role in Jan. 6 Riot**\
+`The actor, Jay Johnston, pleaded guilty in July to obstructing police during the riots at the Capitol on Jan. 6, 2021, according to prosecutors.`\
+https://nytimes.com/2024/10/28/us/jay-johnston-bobs-burgers-jan-6.html
+
 **Doug Emhoff Condemns Antisemitism as Democrats Court Jewish Voters**\
 `In a speech in Pittsburgh a day after the sixth anniversary of the Tree of Life shooting, he vouched for Kamala Harris’s commitment to Jewish security and issued a warning about Donald Trump.`\
 https://nytimes.com/2024/10/28/us/politics/doug-emhoff-antisemitism-speech-jewish-voters.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5881223/2024/10/28/acc-football-mailbag/
 `<p>Leave your latest questions here. Also: Your best idea for a college football Halloween costume.</p>
 `\
 https://nytimes.com/athletic/5881174/2024/10/28/submit-a-question-for-stewart-mandels-college-football-mailbag-279/
-
-**Submit your questions for Antonio Morales’ USC football mailbag**\
-`<p>USC evened its record at 4-4 with a win over Rutgers last Friday, but it&#8217;s been a rough stretch for the Trojans.`\
-https://nytimes.com/athletic/5881209/2024/10/28/submit-your-questions-for-antonio-morales-usc-football-mailbag-10/
-
-**Israel’s Knesset passes bills banning UNRWA, the agency that aids Palestinians.**\
-`By Aaron Boxerman and Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/28/world/israel-gaza-iran-lebanon/israels-knesset-passes-bills-banning-unrwa-the-agency-that-aids-palestinians
 
