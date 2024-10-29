@@ -1,3 +1,11 @@
+**World Series ticket prices in New York cool with Yankees down 3-0**\
+`A StubHub spokesperson said the dip wasn't surprising based on how the series between two star-studded markets has unfolded so far.`\
+https://nytimes.com/athletic/5880861/2024/10/29/world-series-ticket-prices-dodgers-yankees/
+
+**WTA Finals draw: Swiatek and Gauff meet, Sabalenka faces Zheng and Rybakina**\
+`The season-ending event sees Sabalenka and Swiatek battle for year-end world No. 1 for the second year in a row`\
+https://nytimes.com/athletic/5882196/2024/10/29/wta-finals-draw-sabalenka-swiatek-gauff-riyadh/
+
 **What the PGA Tour's plan to reduce cards and field sizes means**\
 `A proposal obtained by The Athletic displays fairly radical changes to the PGA Tour setup.`\
 https://nytimes.com/athletic/5882755/2024/10/29/pga-tour-card-field-sizes/
