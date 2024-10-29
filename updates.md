@@ -1,3 +1,7 @@
+**Michigan's Jack Tuttle retiring from football due to concussions**\
+`"I've battled numerous injuries, culminating in this difficult choice to step away from playing the game that I love," Tuttle said on X.`\
+https://nytimes.com/athletic/5881319/2024/10/28/jack-tuttle-michigan-retiring-concussion/
+
 **Dwyane Wade on Heat statue criticism: 'I care, but I don’t'**\
 `“It’s an artistic version of a moment that happened, that we’re trying to cement,” Wade said.`\
 https://nytimes.com/athletic/5881158/2024/10/28/dwyane-wade-heat-statue-criticism/

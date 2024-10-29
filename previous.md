@@ -1,3 +1,7 @@
+**Michigan's Jack Tuttle retiring from football due to concussions**\
+`"I've battled numerous injuries, culminating in this difficult choice to step away from playing the game that I love," Tuttle said on X.`\
+https://nytimes.com/athletic/5881319/2024/10/28/jack-tuttle-michigan-retiring-concussion/
+
 **Dwyane Wade on Heat statue criticism: 'I care, but I don’t'**\
 `“It’s an artistic version of a moment that happened, that we’re trying to cement,” Wade said.`\
 https://nytimes.com/athletic/5881158/2024/10/28/dwyane-wade-heat-statue-criticism/
@@ -33,9 +37,4 @@ https://nytimes.com/2024/10/28/arts/trump-tony-hinchcliffe-joe-rogan.html
 **Obama Is the Same. His Coalition Isn’t.**\
 `Democrats failed to preserve his coalition, and Harris is now trying to assemble a different one.`\
 https://nytimes.com/2024/10/28/us/politics/obama-harris-voters.html
-
-**Submit your questions for The Athletic’s ACC football mailbag**\
-`<p>There are still four ACC teams without a loss in league play. What&#8217;s in store for the final month of the regular season? Submit your questions for Grace and Manny below. We will post their answers later in the week.</p>
-`\
-https://nytimes.com/athletic/5881223/2024/10/28/acc-football-mailbag/
 
