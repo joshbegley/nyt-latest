@@ -1,3 +1,7 @@
+**A Closing Argument for an Abnormal Election**\
+`A divided and deadlocked country faces big questions about what presidential power is actually for.`\
+https://nytimes.com/2024/10/29/us/politics/trump-harris-election-closing-arguments.html
+
 **A disability rights group hits Trump with ads featuring his nephew.**\
 `In a new ad in Pennsylvania, Fred Trump III says his uncle Donald J. Trump suggested disabled people should “just die.” Another ad highlights Kamala Harris’s plan for coverage of at-home care.`\
 https://nytimes.com/live/2024/10/29/us/harris-trump-election/a-disability-rights-group-hits-trump-with-ads-featuring-his-nephew
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009791095/lebanon-baalbek-bekaa
 **Is Trump a Fascist? This Time, Mayor Adams Dodges the Question.**\
 `Mayor Eric Adams of New York City bristled at questions about the former president and said there was a need to “turn down the rhetoric.”`\
 https://nytimes.com/2024/10/29/nyregion/adams-trump-fascist-msg.html
-
-**Trump Ad Claims Harris Will ‘Doom Medicare’**\
-`With older Americans making up a major share of voters in battleground states, the Trump campaign casts Kamala Harris as a threat to programs that benefit them.`\
-https://nytimes.com/2024/10/29/us/politics/trump-ad-medicare.html
 
