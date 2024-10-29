@@ -1,10 +1,10 @@
+**Diontae Johnson trade grades: Ravens load up for Super Bowl run; Panthers focus on future**\
+`Ravens QB Lamar Jackson has a strong chance to win his third MVP award this season, but he needed the reinforcements.`\
+https://nytimes.com/athletic/5883316/2024/10/29/diontae-johnson-trade-grades-ravens-panthers/
+
 **Advancing Hope in the Fight Against Cancer**\
 `How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas`\
 https://nytimes.com/paidpost/breyanzi/advancing-hope-in-the-fight-against-cancer.html
-
-**Diontae Johnson trade grades: Ravens load up for Super Bowl run; Panthers focus on future**\
-`Ravens QB Lamar Jackson has a strong chance to win his third MVP award this season, but he needed the reinforcements.`\
-https://nytimes.com/athletic/5883316/2024/10/29/dionate-johnson-trade-grades-ravens-panthers/
 
 **Trump Media Stock Jumps Again as Traders Bet on Election**\
 `Shares of the Truth Social parent company continue to soar, pushing the market value of the firm above $10 billion.`\
@@ -26,7 +26,7 @@ https://nytimes.com/2024/10/29/technology/alphabet-google-earnings.html
 `Law enforcement officials cautioned that they had not yet determined a motive for the Pacific Northwest arson fires. But the messages have heightened the sensitivity of the investigation.`\
 https://nytimes.com/2024/10/29/us/ballot-box-fires-portland-vancouver-gaza.html
 
-**Kevin Durant, Jaylen Brown highlight season 2 cast of 'Starting 5'**\
+**Kevin Durant, Jaylen Brown highlight Season 2 cast of 'Starting 5'**\
 `The new cast will also include Tyrese Haliburton and Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/5883260/2024/10/29/nba-starting-5-netflix-docuseries/
 
