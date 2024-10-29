@@ -1,4 +1,4 @@
-**Jazz's Taylor Hendricks stretchered off court with apparent leg injury**\
+**Jazz's Taylor Hendricks stretchered off court with ankle injury**\
 `After Hendricks' injury, the game was delayed and he was stretched off the court.`\
 https://nytimes.com/athletic/5881480/2024/10/28/taylor-hendricks-leg-injury-jazz/
 
