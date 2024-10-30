@@ -1,3 +1,7 @@
+**Big Fire Breaks Out at Nuclear Submarine Plant in Britain**\
+`The authorities said there was no nuclear risk. Two people with smoke inhalation received treatment at a hospital.`\
+https://nytimes.com/2024/10/30/world/europe/fire-nuclear-submarine-uk.html
+
 **Here is the letter from Nishad Singh’s father to Judge Kaplan.**\
 `Over the past nine months, the parents of Mr.`\
 https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-nishad-defense-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882385/2024/10/30/broncos-trade-deadline-2024-sean
 **Sophie Braun interview: How representing Argentina made the U.S.-born defender 'feel whole'**\
 `The Kansas City Current defender, whose mother is from Argentina, has become a regular with the national side who take on the USWNT today`\
 https://nytimes.com/athletic/5884731/2024/10/30/sophie-braun-argentina-current-uswnt/
-
-**What's next for John Mozeliak and the Cardinals as the MLB offseason looms?**\
-`The Cardinals will say goodbye to several veteran players as the emphasis switches to youth and player development. `\
-https://nytimes.com/athletic/5877962/2024/10/30/cardinals-mlb-offseason-moves/
 

@@ -1,3 +1,7 @@
+**Big Fire Breaks Out at Nuclear Submarine Plant in Britain**\
+`The authorities said there was no nuclear risk. Two people with smoke inhalation received treatment at a hospital.`\
+https://nytimes.com/2024/10/30/world/europe/fire-nuclear-submarine-uk.html
+
 **Here is the letter from Nishad Singh’s father to Judge Kaplan.**\
 `Over the past nine months, the parents of Mr.`\
 https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-nishad-defense-sentencing.html
