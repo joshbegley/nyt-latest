@@ -1,3 +1,11 @@
+**Two Climate Change Plays Keep the Flames of Hope Alive**\
+`“Hothouse,” at Irish Arts Center, fends off despair with loopiness; “In the Amazon Warehouse Parking Lot,” at Playwrights Horizons, is a fuzzy world lacking depth.`\
+https://nytimes.com/2024/10/30/theater/hothouse-in-the-amazon-warehouse-parking-lot.html
+
+**Being a College Athlete Now Means Constant Travel and Missed Classes**\
+`Players are dealing with far-flung travel, jet lag and the pressures of trying to balance the roles of student, athlete and entrepreneur more than ever before.`\
+https://nytimes.com/2024/10/30/us/college-football-conference-realignment.html
+
 **Public Art Leader to Step Down**\
 `After steering the art program in Madison Square Park for 11 years, Brooke Kamin Rapaport is turning her focus to research on democracy and civic space.`\
 https://nytimes.com/2024/10/30/arts/design/madison-square-park-brooke-kamin-rapaport-leaving.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/10/30/well/eat/sugar-health-effects-risks.h
 **Georgia, Florida are expected to extend their contract with Jacksonville for 2028, beyond**\
 `While EverBank Stadium in Jacksonville is being renovated, Georgia and Florida will play in Atlanta and Tampa in 2026 and 2027.`\
 https://nytimes.com/athletic/5885468/2024/10/30/georgia-florida-atlanta-tampa-jacksonville/
-
-**When War Becomes an Aesthetic, Nobody Wins**\
-`There are fun missions in Call of Duty: Black Ops 6, set during the U.S.-Iraq war of the 1990s. But the conspiratorial plot refuses to engage actual politics or history.`\
-https://nytimes.com/2024/10/30/arts/call-of-duty-black-ops-6-review.html
-
-**Jeff Bezos, Elon Musk and the Billions of Ways to Influence an Election**\
-`The world’s richest men have their own rocket fleets, their own media and their own schemes to succeed with Donald J. Trump.`\
-https://nytimes.com/2024/10/30/technology/jeff-bezos-elon-musk-election.html
 
