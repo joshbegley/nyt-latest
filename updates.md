@@ -1,3 +1,23 @@
+**Walking Away From the Tunnel Walk**\
+`Kyle Kuzma unleashed an arms race of pregame N.B.A. style. Now he plans to wear a bland sweatsuit to every game. Will others follow suit?`\
+https://nytimes.com/2024/10/30/style/kyle-kuzma-nba-tunnel-walk-fashion.html
+
+**Heat Today: Is Jimmy Butler worried about Knicks' Josh Hart stopping him?**\
+`The Heat look to run their winning streak to three against New York on Wednesday.`\
+https://nytimes.com/athletic/5885170/2024/10/30/jimmy-butler-heat-josh-hart-knicks/
+
+**Fact-Checking Harris’s Closing Argument**\
+`The vice president has stuck largely to the facts when highlighting the words of her rival, former President Donald J. Trump, but has on occasion omitted context or erred when describing policies and statistics.`\
+https://nytimes.com/2024/10/30/us/politics/fact-check-kamala-harris.html
+
+**WSL agrees 'significant' new broadcast deal with Sky Sports and BBC**\
+`The Women&#8217;s Super League (WSL) has agreed what it calls “the most significant broadcast partnership ever for women’s football” in the United Kingdom and Ireland.`\
+https://nytimes.com/athletic/5885399/2024/10/30/wsl-new-broadcast-deal/
+
+**This Is Your Body on Sugar**\
+`Excessive consumption of sugar can increase the risk of health problems. Here's what that looks like in the body.`\
+https://nytimes.com/interactive/2024/10/30/well/eat/sugar-health-effects-risks.html
+
 **Georgia, Florida are expected to extend their contract with Jacksonville for 2028, beyond**\
 `While EverBank Stadium in Jacksonville is being renovated, Georgia and Florida will play in Atlanta and Tampa in 2026 and 2027.`\
 https://nytimes.com/athletic/5885468/2024/10/30/georgia-florida-atlanta-tampa-jacksonville/

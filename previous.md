@@ -1,3 +1,23 @@
+**Walking Away From the Tunnel Walk**\
+`Kyle Kuzma unleashed an arms race of pregame N.B.A. style. Now he plans to wear a bland sweatsuit to every game. Will others follow suit?`\
+https://nytimes.com/2024/10/30/style/kyle-kuzma-nba-tunnel-walk-fashion.html
+
+**Heat Today: Is Jimmy Butler worried about Knicks' Josh Hart stopping him?**\
+`The Heat look to run their winning streak to three against New York on Wednesday.`\
+https://nytimes.com/athletic/5885170/2024/10/30/jimmy-butler-heat-josh-hart-knicks/
+
+**Fact-Checking Harris’s Closing Argument**\
+`The vice president has stuck largely to the facts when highlighting the words of her rival, former President Donald J. Trump, but has on occasion omitted context or erred when describing policies and statistics.`\
+https://nytimes.com/2024/10/30/us/politics/fact-check-kamala-harris.html
+
+**WSL agrees 'significant' new broadcast deal with Sky Sports and BBC**\
+`The Women&#8217;s Super League (WSL) has agreed what it calls “the most significant broadcast partnership ever for women’s football” in the United Kingdom and Ireland.`\
+https://nytimes.com/athletic/5885399/2024/10/30/wsl-new-broadcast-deal/
+
+**This Is Your Body on Sugar**\
+`Excessive consumption of sugar can increase the risk of health problems. Here's what that looks like in the body.`\
+https://nytimes.com/interactive/2024/10/30/well/eat/sugar-health-effects-risks.html
+
 **Georgia, Florida are expected to extend their contract with Jacksonville for 2028, beyond**\
 `While EverBank Stadium in Jacksonville is being renovated, Georgia and Florida will play in Atlanta and Tampa in 2026 and 2027.`\
 https://nytimes.com/athletic/5885468/2024/10/30/georgia-florida-atlanta-tampa-jacksonville/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/30/nyregion/sue-altman-thomas-kean-election.html
 **Can Democrats Win Back Voters From Trump on Trade Policy?**\
 `The Biden administration has pursued a big shift in trade policy, but it’s not clear whether that will be enough to win votes.`\
 https://nytimes.com/2024/10/30/business/economy/trade-democrats-harris-trump.html
-
-**Supreme Court Allows Virginia to Purge Possibly Ineligible Voters for Now**\
-`A divided court sided with Republicans, allowing the state to cull about 1,600 voters less than a week before Election Day.`\
-https://nytimes.com/2024/10/30/us/supreme-court-virginia-purge-voter-registration.html
-
-**Where Some See Taboos, They See Opportunity**\
-`The founders of Starface took the shame out of blemishes. Now, they’re hoping to make it less risky to use recreational drugs and alcohol.`\
-https://nytimes.com/2024/10/30/style/overdrive-defense-test-kits-fentanyl.html
-
-**I Work in Data Security. Is It a Problem That My Boss Believes in Lizard People?**\
-`The magazine’s Ethicist columnist on what to do when people in positions of power espouse harmful conspiracy theories.`\
-https://nytimes.com/2024/10/30/magazine/boss-lizard-conspiracy-theory-ethics.html
-
-**Robert Lighthizer: Trump’s China Trade Warrior and ‘Food Fight’ Referee**\
-`If Donald J. Trump regains the presidency, his former U.S. trade representative could lead his quest to slap punishing tariffs on foreign trading partners.`\
-https://nytimes.com/2024/10/30/us/politics/lighthizer-trump.html
-
-**The Bounce: Luka Dončić continues owning the Timberwolves**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5884952/2024/10/30/luka-doncic-mavericks-victor-wembanyama-spurs-nba-the-bounce/
 
