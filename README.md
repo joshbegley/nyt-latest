@@ -1,3 +1,7 @@
+**Policing, Abortion, Trump: Inside a Tightening Race for a Key House Seat**\
+`Sue Altman, a Democrat, has focused on reproductive rights as she seeks to unseat a Republican incumbent, Representative Thomas Kean Jr., in a New Jersey swing district.`\
+https://nytimes.com/2024/10/30/nyregion/sue-altman-thomas-kean-election.html
+
 **Can Democrats Win Back Voters From Trump on Trade Policy?**\
 `The Biden administration has pursued a big shift in trade policy, but it’s not clear whether that will be enough to win votes.`\
 https://nytimes.com/2024/10/30/business/economy/trade-democrats-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5885391/2024/10/30/yankees-dodgers-world-series-the
 **Scoop City: Lions, Chiefs lead NFL's current playoff picture**\
 `One league-leading QB stat for each of the 14 teams currently within the playoff picture, from Kansas City and Detroit to LA and Philly.`\
 https://nytimes.com/athletic/5885382/2024/10/30/the-nfls-current-playoff-picture-plus-anthony-richardson-as-latest-young-qb-failed/
-
-**Harris Tries to Distance Herself and Move On From Biden’s ‘Garbage’ Remark**\
-`The day after the president’s comment, Vice President Kamala Harris told reporters she disagreed “with any criticism of people based on who they vote for.”`\
-https://nytimes.com/2024/10/30/us/politics/harris-biden-garbage-trump-supporters.html
 
