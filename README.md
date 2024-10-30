@@ -2,7 +2,7 @@
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5883318/2024/10/30/yankees-dodgers-world-series-anthony-volpe-the-pulse/
 
-**World Series grand slam trivia, featuring Anthony Volpe's signature Game 4 shot for Yankees**\
+**World Series grand slam trivia, featuring Anthony Volpe's signature Game 4 shot**\
 `Does it get any Weirder or Wilder than a World Series slam in Yankee Stadium? Here's everything you need to know about Volpe's big blast. `\
 https://nytimes.com/athletic/5884781/2024/10/30/yankees-world-series-grand-slam-facts-anthony-volpe/
 
