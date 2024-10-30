@@ -1,3 +1,15 @@
+**Sweaty Ghosts and Melting Candy: New York City Will Have a Very Warm Halloween**\
+`No need to wear extra layers this year. Temperatures in the city are expected to reach the mid-to-upper 70s on Thursday.`\
+https://nytimes.com/2024/10/30/nyregion/halloween-nyc-weather-hot.html
+
+**The nine moments which shaped Erik ten Hag's Manchester United reign**\
+`The embarrassing collapses, the trophies and the false hope of the Dutchman's time at Old Trafford...`\
+https://nytimes.com/athletic/5885055/2024/10/30/ten-hag-nine-man-utd-moments/
+
+**Submit your questions for Mike DeFabo's Steelers mailbag**\
+`The Steelers are 6-2 entering their bye week. It's a great time to ask questions to Mike DeFabo, who will answer some of them in a mailbag.`\
+https://nytimes.com/athletic/5885654/2024/10/30/steelers-mailbag-mike-defabo-bye/
+
 **NASCAR suspends Conner Jones for 1 race after intentional crash**\
 `NASCAR suspended Truck Series driver Conner Jones for one race on Wednesday after he intentionally crashed another driver, Matt Mills — who was hospitalized for two days over the weekend as a result of the wreck.`\
 https://nytimes.com/athletic/5885588/2024/10/30/nascar-truck-series-conner-jones-matt-mills-suspension/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/arnold-schwarzenegger-harris-endorsem
 **R.F.K. Jr. Said Trump Promised Him Control of Public Health Agencies. The Campaign Called That Premature.**\
 `The onetime independent presidential candidate, who dropped out and is backing Donald J. Trump, has in recent years promoted unproven theories about the dangers of pharmaceutical treatments.`\
 https://nytimes.com/2024/10/30/us/politics/rfk-jr-trump-health-policy.html
-
-**What to Know About Spain’s Devastating Floods**\
-`Dozens of people were killed after the downpour, which some residents said was the worst they had ever witnessed.`\
-https://nytimes.com/2024/10/30/world/europe/spain-flash-floods.html
-
-**Fantasy hockey: Rest of season rankings and player projections for 2024-25**\
-`Dom Luszczyszyn offers up his first in-season update to his 2024-25 fantasy hockey rest-of-season rankings and player projections.`\
-https://nytimes.com/athletic/5882585/2024/10/30/fantasy-hockey-rest-of-season-rankings-player-projections-2024-25/
-
-**Rajah Caruth on growing up a NASCAR fan, life in D.C. and more: 12 Questions**\
-`Truck Series driver Rajah Caruth talks going from fan to driver, what life was like growing up in the nation's capital and more.`\
-https://nytimes.com/athletic/5880244/2024/10/30/rajah-caruth-nascar-washington-dc-12-questions/
 
