@@ -1,3 +1,11 @@
+**Microsoft’s Quarterly Revenue Is Up 16% to $65.6 Billion**\
+`The company’s profit increased 11 percent to $24.7 billion, beating Wall Street’s expectations and its own predictions.`\
+https://nytimes.com/2024/10/30/technology/microsoft-quarterly-revenue-profits.html
+
+**Nishad Singh, a Top FTX Executive, Is Given No Prison Time After Cooperation**\
+`Mr. Singh, who was a top executive in Sam Bankman-Fried’s business empire, had pleaded guilty to fraud and campaign finance violations that contributed to the collapse of FTX.`\
+https://nytimes.com/2024/10/30/technology/nishad-singh-ftx-executive-sentencing.html
+
 **Kraken Lays Off 15% of Workers and Names New Co-Chief Executive**\
 `The influential cryptocurrency exchange has undergone several reorganizations in recent years.`\
 https://nytimes.com/2024/10/30/technology/kraken-cryptocurrency-layoff-ceo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5885823/2024/10/30/jessica-campbell-nhl-kraken-coac
 **Bryce Young to start Week 9 as Andy Dalton returns to practice**\
 `Dalton threw passes during Wednesday's practice but is getting an extra week to recover from the thumb injury he sustained in a car accident`\
 https://nytimes.com/athletic/5885633/2024/10/30/carolina-panthers-bryce-young-andy-dalton/
-
-**Vance-Founded Donor Network to Gather Right After Election**\
-`The conservative event could be a celebration — or perhaps the opposite.`\
-https://nytimes.com/2024/10/30/us/politics/jd-vance-rockbridge-donors.html
-
-**Raffensperger Allies Create Group to Fight Election Interference**\
-`The Georgia secretary of state and his allies have created a fund to assist  officials facing baseless lawsuits or other threats. They will also support actions against officials who attempt to subvert the election.`\
-https://nytimes.com/2024/10/30/us/politics/raffensperger-election-workers-defense-fund.html
 
