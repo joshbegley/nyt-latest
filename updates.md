@@ -1,3 +1,7 @@
+**Harris Distances Herself From Biden’s ‘Garbage’ Remark**\
+`Vice President Kamala Harris said that she will represent all Americans following a comment made by President Biden where he appeared to call supporters of former President Donald J. Trump “garbage.”`\
+https://nytimes.com/video/us/elections/100000009792599/harris-biden-trump-garbage-remark.html
+
 **The many lives of F1's Alessandro Alunni Bravi, from fighting the Mafia to repping Sauber**\
 `Small-town lawyer dreams. Part-time journalist. Future novelist? Sauber's team rep is still steering the direction of his life.`\
 https://nytimes.com/athletic/5883297/2024/10/30/alessandro-alunni-bravi-f1-sauber/
