@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5879244/2024/10/30/evangelos-marinakis-defamation-c
 `It’s been a frustrating season for Liljegren, who has played in just one of the Maple Leafs' first 10 games this season.`\
 https://nytimes.com/athletic/5886028/2024/10/30/maple-leafs-timothy-liljegren-trade-nhl/
 
-**Meta’s Profit Rises 35 Percent, Even as Spending Spree Continues**\
+**Meta’s Profit Rises 35%, Even as Spending Spree Continues**\
 `The Silicon Valley company, which owns Facebook, Instagram and WhatsApp, said it does not plan to slow down its investments anytime soon.`\
 https://nytimes.com/2024/10/30/technology/meta-earnings-artificial-intelligence.html
 
