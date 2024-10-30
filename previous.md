@@ -1,3 +1,7 @@
+**White Sox hiring Will Venable as manager**\
+`Venable served as the Rangers' associate manager under Bruce Bochy for the past two years, winning a World Series title in 2023.`\
+https://nytimes.com/athletic/5884571/2024/10/30/white-sox-will-venable-manager-hire/
+
 **Music and Morale in a Country at War**\
 `In Ukraine, where war feels omnipresent, music is helping lift spirits and raise money for the military.`\
 https://nytimes.com/card/2024/10/30/world/europe/ukraine-war-music
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883982/2024/10/29/dodgers-yankees-world-series-gam
 **Anthony Volpe's grand slam lifts Yankees in Game 4 to avoid World Series sweep**\
 `The Yankees become first team since 1970 to force a Game 5 after facing a 3-0 deficit in the World Series.`\
 https://nytimes.com/athletic/5883757/2024/10/29/dodgers-yankees-world-series-anthony-volpe-grand-slam/
-
-**Trump and His Allies Link Biden’s ‘Garbage’ Comment to 2016 ‘Deplorables’ Remark**\
-`Within minutes of the clip of President Biden’s remarks going viral, the Trump campaign and others were using it to attack Kamala Harris and Democrats.`\
-https://nytimes.com/2024/10/29/us/politics/biden-trump-supporters-garbage-reaction.html
 

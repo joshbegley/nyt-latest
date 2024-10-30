@@ -1,3 +1,11 @@
+**Why Pep Guardiola needs Phil Foden to 'break the game' when opponents sit deep**\
+`Manchester City's liking for long-range goals is a product of their manager's patience-first mantra`\
+https://nytimes.com/athletic/5879800/2024/10/30/manchester-city-phil-foden-long-range-goals/
+
+**Fleury bids Pittsburgh adieu with vintage victory: 'Hard to believe that’s the last time'**\
+`From a carbon copy of a Cup-winning save to standing ovations from fans, the best of Fleury was on display in his final night in Pittsburgh.`\
+https://nytimes.com/athletic/5883922/2024/10/30/marc-andre-fleury-pittsburgh-wild-final-victory/
+
 **White Sox hiring Will Venable as manager**\
 `Venable served as the Rangers' associate manager under Bruce Bochy for the past two years, winning a World Series title in 2023.`\
 https://nytimes.com/athletic/5884571/2024/10/30/white-sox-will-venable-manager-hire/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5883846/2024/10/30/fantasy-football-rankings-week-9
 **Desperate Penguins can't even get a boost from Sidney Crosby, Evgeni Malkin on the same line**\
 `For the first time in his 10 seasons, Mike Sullivan has resorted to regularly playing Crosby and Malkin on the same line at even strength.`\
 https://nytimes.com/athletic/5884455/2024/10/29/penguins-sidney-crosby-evgeni-malkin/
-
-**Anthony Volpe, Yankees slam brakes on Dodgers in Game 4: Takeaways**\
-`Volpe's first home run since Sept. 21 was an early grand slam that sparked the Yankees offense.`\
-https://nytimes.com/athletic/5883982/2024/10/29/dodgers-yankees-world-series-game-4-takeaways/
-
-**Anthony Volpe's grand slam lifts Yankees in Game 4 to avoid World Series sweep**\
-`The Yankees become first team since 1970 to force a Game 5 after facing a 3-0 deficit in the World Series.`\
-https://nytimes.com/athletic/5883757/2024/10/29/dodgers-yankees-world-series-anthony-volpe-grand-slam/
 
