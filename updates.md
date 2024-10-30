@@ -1,3 +1,7 @@
+**Freeman becomes first player ever with HR in 6 straight World Series games**\
+`The hit, which gave the Dodgers an immediate 2-0 pad, was Freeman's fourth of the 2024 World Series.`\
+https://nytimes.com/athletic/5884206/2024/10/29/freddie-freeman-world-series-home-run-record/
+
 **Israel’s allies at the U.N. condemned a law banning the main aid agency for Palestinians.**\
 `At a U.N. Security Council meeting on the aid crisis in Gaza, envoys from the United States, France and Britain were among dozens of speakers decrying the Israeli legislation.`\
 https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/israel-un-unrwa-ban
