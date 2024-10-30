@@ -1,3 +1,7 @@
+**Michelle Obama, Rallying Young Voters Near Atlanta, Warns of ‘Apathy’**\
+`With just a few days left to vote early in Georgia, the former first lady offered a bracing tutorial in the realities of political power, beseeching young people to reach out to the undecided voters in their lives.`\
+https://nytimes.com/2024/10/29/us/politics/michelle-obama-rally-atlanta.html
+
 **Partial Breach of Election Machine Passwords in Colorado Poses No Risk, State Says**\
 `The secretary of state said that the machines are not online, require a second set of passwords and are under constant surveillance in locked rooms.`\
 https://nytimes.com/2024/10/29/us/politics/colorado-election-passwords-breach.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-iran-shahroud-spa
 **Corrections: Oct. 30, 2024**\
 `Corrections that appeared in print on Wednesday, Oct. 30, 2024.`\
 https://nytimes.com/2024/10/29/pageoneplus/corrections-oct-30-2024.html
-
-**Nikki Haley Says She Is ‘on Standby’ to Campaign for Donald Trump**\
-`Ms. Haley, a former rival of Mr. Trump, has repeatedly offered advice and criticism to Mr. Trump and other Republican candidates from the sidelines.`\
-https://nytimes.com/2024/10/29/us/politics/nikki-haley-trump.html
 
