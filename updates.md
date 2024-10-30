@@ -1,3 +1,19 @@
+**Thursday Briefing: U.S. Voters Focus on the Economy**\
+`Plus, what too much sugar does to your body.`\
+https://nytimes.com/2024/10/30/briefing/economy-spain-floods-lebanon.html
+
+**Monitors, Once Meant to Prevent Election Fraud, Now Seek to Prove It**\
+`Polling place monitors have long provided oversight to elections. But this year, many are there to provide documentation for Donald J. Trump’s claims of fraud.`\
+https://nytimes.com/2024/10/30/us/election-poll-monitors.html
+
+**Two Black Holes Are Giving the Cosmos a Fright**\
+`The ghosts of stars are up to their usual mischief.`\
+https://nytimes.com/2024/10/30/science/space/astronomy-black-holes.html
+
+**Obesity Drug Shows Promise in Easing Knee Osteoarthritis Pain**\
+`A large trial showed that semaglutide, sold as Ozempic for diabetes and as Wegovy for obesity, was better than any current medications in alleviating symptoms.`\
+https://nytimes.com/2024/10/30/health/ozempic-wegovy-knee-pain-osteoarthritis.html
+
 **What Muslim Ban? Trump Tries to Sidestep Years of Islamophobia**\
 `Former President Donald J. Trump is trying to persuade a potentially decisive group of Arab and Muslim voters that they should vote for him, even though he has spent years insulting and demonizing them.`\
 https://nytimes.com/2024/10/30/us/politics/trump-arab-muslim-voters.html

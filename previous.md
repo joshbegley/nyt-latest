@@ -1,3 +1,19 @@
+**Thursday Briefing: U.S. Voters Focus on the Economy**\
+`Plus, what too much sugar does to your body.`\
+https://nytimes.com/2024/10/30/briefing/economy-spain-floods-lebanon.html
+
+**Monitors, Once Meant to Prevent Election Fraud, Now Seek to Prove It**\
+`Polling place monitors have long provided oversight to elections. But this year, many are there to provide documentation for Donald J. Trump’s claims of fraud.`\
+https://nytimes.com/2024/10/30/us/election-poll-monitors.html
+
+**Two Black Holes Are Giving the Cosmos a Fright**\
+`The ghosts of stars are up to their usual mischief.`\
+https://nytimes.com/2024/10/30/science/space/astronomy-black-holes.html
+
+**Obesity Drug Shows Promise in Easing Knee Osteoarthritis Pain**\
+`A large trial showed that semaglutide, sold as Ozempic for diabetes and as Wegovy for obesity, was better than any current medications in alleviating symptoms.`\
+https://nytimes.com/2024/10/30/health/ozempic-wegovy-knee-pain-osteoarthritis.html
+
 **What Muslim Ban? Trump Tries to Sidestep Years of Islamophobia**\
 `Former President Donald J. Trump is trying to persuade a potentially decisive group of Arab and Muslim voters that they should vote for him, even though he has spent years insulting and demonizing them.`\
 https://nytimes.com/2024/10/30/us/politics/trump-arab-muslim-voters.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/30/technology/meta-earnings-artificial-intelligence.
 **Trump Supporter Arrested After Brandishing Machete at Early-Voting Site**\
 `The police charged an 18-year-old man with aggravated assault after he confronted two older Harris supporters outside a library in Neptune Beach, Fla.`\
 https://nytimes.com/2024/10/30/us/politics/florida-trump-supporter-arrested-machete.html
-
-**Microsoft’s Quarterly Revenue Is Up 16% to $65.6 Billion**\
-`The company’s profit increased 11 percent to $24.7 billion, beating Wall Street’s expectations and its own predictions.`\
-https://nytimes.com/2024/10/30/technology/microsoft-quarterly-revenue-profits.html
-
-**Nishad Singh, a Top FTX Executive, Is Given No Prison Time After Cooperation**\
-`Mr. Singh, who was a top executive in Sam Bankman-Fried’s business empire, had pleaded guilty to fraud and campaign finance violations that contributed to the collapse of FTX.`\
-https://nytimes.com/2024/10/30/technology/nishad-singh-ftx-executive-sentencing.html
-
-**Kraken Lays Off 15% of Workers and Names New Co-Chief Executive**\
-`The influential cryptocurrency exchange has undergone several reorganizations in recent years.`\
-https://nytimes.com/2024/10/30/technology/kraken-cryptocurrency-layoff-ceo.html
-
-**Yankees have 'mechanisms' to keep banned fans from stadium: Source**\
-`While a person briefed on stadium security protocols would not elaborate on specifics, they noted that such measures are in place. `\
-https://nytimes.com/athletic/5886126/2024/10/30/mlb-yankees-world-series-stadium-banned-fans/
 
