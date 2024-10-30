@@ -1,3 +1,11 @@
+**Harris Tries to Distance Herself and Move On From Biden’s ‘Garbage’ Remark**\
+`The day after the president’s comment, Vice President Kamala Harris told reporters she disagreed “with any criticism of people based on who they vote for.”`\
+https://nytimes.com/2024/10/30/us/politics/harris-biden-garbage-trump-supporters.html
+
+**Heart-Valve Patients Should Have Earlier Surgery, Study Suggests**\
+`The results of a new clinical trial have overturned the “wait and see” approach that cardiologists have long favored for symptom-free patients.`\
+https://nytimes.com/2024/10/30/health/heart-valve-surgery-aortic-stenosis.html
+
 **In Election’s Final Days, Dark Money and ‘Gray Money’ Fund Hidden Agendas**\
 `Big-money operatives are taking advantage of lax rules at the end of the campaign to hide the true source of their money until after the election is called — or for forever.`\
 https://nytimes.com/2024/10/30/us/politics/dark-money-presidential-campaign.html
