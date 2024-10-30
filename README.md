@@ -1,3 +1,7 @@
+**Public Art Leader to Step Down**\
+`After steering the art program in Madison Square Park for 11 years, Brooke Kamin Rapaport is turning her focus to research on democracy and civic space.`\
+https://nytimes.com/2024/10/30/arts/design/madison-square-park-brooke-kamin-rapaport-leaving.html
+
 **Rudy May, a Stingy Master of the Curveball, Dies at 80**\
 `He overcame a dip in velocity to find pitching success with four teams, including the Yankees and Orioles, and had a dominant season in 1980.`\
 https://nytimes.com/2024/10/30/sports/baseball/rudy-may-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/arts/call-of-duty-black-ops-6-review.html
 **Jeff Bezos, Elon Musk and the Billions of Ways to Influence an Election**\
 `The world’s richest men have their own rocket fleets, their own media and their own schemes to succeed with Donald J. Trump.`\
 https://nytimes.com/2024/10/30/technology/jeff-bezos-elon-musk-election.html
-
-**Policing, Abortion, Trump: Inside a Tightening Race for a Key House Seat**\
-`Sue Altman, a Democrat, has focused on reproductive rights as she seeks to unseat a Republican incumbent, Representative Thomas Kean Jr., in a New Jersey swing district.`\
-https://nytimes.com/2024/10/30/nyregion/sue-altman-thomas-kean-election.html
 

@@ -1,3 +1,7 @@
+**Rudy May, a Stingy Master of the Curveball, Dies at 80**\
+`He overcame a dip in velocity to find pitching success with four teams, including the Yankees and Orioles, and had a dominant season in 1980.`\
+https://nytimes.com/2024/10/30/sports/baseball/rudy-may-dead.html
+
 **Walking Away From the Tunnel Walk**\
 `Kyle Kuzma unleashed an arms race of pregame N.B.A. style. Now he plans to wear a bland sweatsuit to every game. Will others follow suit?`\
 https://nytimes.com/2024/10/30/style/kyle-kuzma-nba-tunnel-walk-fashion.html
