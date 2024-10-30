@@ -1,3 +1,11 @@
+**Germany Avoids Recession, but Weak Growth Weighs on Europe**\
+`The continent’s economy continued to limp along, expanding just 0.4 percent in the latest quarter, dragged down by a loss of competitiveness.`\
+https://nytimes.com/2024/10/30/business/europe-economy-germany.html
+
+**Rescue Operations Underway as Flash Floods Kill Dozens in Spain**\
+`More than 1,000 soldiers from an emergency response team were deployed, and officials said that many more residents were waiting for help, after more than a month’s worth of rain fell in less than 24 hours in some areas across southern and eastern Spain.`\
+https://nytimes.com/video/world/europe/100000009791927/deadly-flash-floods-spain-killed-rescue.html
+
 **Gauging Commanders' plan at trade deadline goes beyond their 2024 needs**\
 `While the team's surprising surge has it sitting atop the NFC East, the roster is still being constructed with the future in mind. `\
 https://nytimes.com/athletic/5883710/2024/10/30/commanders-trade-deadline-future-needs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5884874/2024/10/30/dodgers-yankees-world-series-his
 **As Raiders offense keeps struggling, pressure for change mounts**\
 `Las Vegas coach Antonio Pierce may have to move on from Luke Getsy as the offensive play caller if his unit continues to misfire.`\
 https://nytimes.com/athletic/5880927/2024/10/30/las-vegas-raiders-offense-struggling-luke-getsy/
-
-**Lowetide: Ranking the Oilers' top 5 trade assets to improve their roster**\
-`What can Oilers general manager Stan Bowman credibly shop to other teams in trade?`\
-https://nytimes.com/athletic/5882807/2024/10/30/edmonton-oilers-trade-assets-2024/
-
-**Broncos at the trade deadline: What history could say about Sean Payton's plans**\
-`The Broncos have an obvious need for a playmaker, but they might not be willing to make a move that limits snaps for current young players.`\
-https://nytimes.com/athletic/5882385/2024/10/30/broncos-trade-deadline-2024-sean-payton/
 
