@@ -1,3 +1,11 @@
+**Raffensperger Allies Create Group to Fight Election Interference**\
+`The Georgia secretary of state and his allies have created a fund to assist  officials facing baseless lawsuits or other threats. They will also support actions against officials who attempt to subvert the election.`\
+https://nytimes.com/2024/10/30/us/politics/raffensperger-election-workers-defense-fund.html
+
+**Charles Brandt, Whose Book Inspired ‘The Irishman,’ Dies at 82**\
+`“I Heard You Paint Houses,” his true-crime best seller about the death of Jimmy Hoffa, was brought to the screen by Martin Scorsese and Robert De Niro.`\
+https://nytimes.com/2024/10/30/books/charles-brandt-dead.html
+
 **With Just Days to Go, Fiercely Divided Arizona Remains a ‘Jump Ball’**\
 `Both sides have credible cases to win: Republicans are banking on immigration, while Democrats have put faith in abortion rights and a disdain for Donald J. Trump.`\
 https://nytimes.com/2024/10/30/us/arizona-trump-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/30/opinion/thepoint/dr-phil-trump-rally
 **Does Kamala Harris Back Free Health Care for Illegal Immigrants?**\
 `Donald Trump and other Republicans have said repeatedly that she does. Her history on the issue is complicated.`\
 https://nytimes.com/2024/10/30/health/harris-immigration-health-care-trump.html
-
-**U.S. Military Says It Killed Up to 35 Islamic State Militants in Syria**\
-`Airstrikes on Monday targeted people who the military said were senior leaders of the group, which has sharply stepped up its attacks in Iraq and Syria.`\
-https://nytimes.com/2024/10/30/world/middleeast/islamic-state-airstrikes-syria.html
-
-**Bubba Wallace gets new NASCAR crew chief for 2025**\
-`Charles Denike, a crew chief in the Truck Series, will replace Bootie Barker as crew chief for Wallace's No. 23 team.`\
-https://nytimes.com/athletic/5885862/2024/10/30/bubba-wallace-crew-chief-nascar/
 

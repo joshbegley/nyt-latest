@@ -1,3 +1,11 @@
+**Raffensperger Allies Create Group to Fight Election Interference**\
+`The Georgia secretary of state and his allies have created a fund to assist  officials facing baseless lawsuits or other threats. They will also support actions against officials who attempt to subvert the election.`\
+https://nytimes.com/2024/10/30/us/politics/raffensperger-election-workers-defense-fund.html
+
+**Charles Brandt, Whose Book Inspired ‘The Irishman,’ Dies at 82**\
+`“I Heard You Paint Houses,” his true-crime best seller about the death of Jimmy Hoffa, was brought to the screen by Martin Scorsese and Robert De Niro.`\
+https://nytimes.com/2024/10/30/books/charles-brandt-dead.html
+
 **With Just Days to Go, Fiercely Divided Arizona Remains a ‘Jump Ball’**\
 `Both sides have credible cases to win: Republicans are banking on immigration, while Democrats have put faith in abortion rights and a disdain for Donald J. Trump.`\
 https://nytimes.com/2024/10/30/us/arizona-trump-harris.html
