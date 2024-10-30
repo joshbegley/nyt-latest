@@ -1,3 +1,7 @@
+**The Election Looks Like an Intramural Squabble Between Billionaires**\
+`Rich people are becoming polarized, just like everyone else.`\
+https://nytimes.com/2024/10/30/opinion/billionaires-election.html
+
 **Big 12 addressing tech issues with helmet communication ahead of Saturday**\
 `Big 12 teams are being asked to return helmet comms equipment over concerns about encryption.`\
 https://nytimes.com/athletic/5885215/2024/10/30/big-12-helmet-coach-communication/

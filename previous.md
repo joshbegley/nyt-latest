@@ -1,3 +1,7 @@
+**The Election Looks Like an Intramural Squabble Between Billionaires**\
+`Rich people are becoming polarized, just like everyone else.`\
+https://nytimes.com/2024/10/30/opinion/billionaires-election.html
+
 **Big 12 addressing tech issues with helmet communication ahead of Saturday**\
 `Big 12 teams are being asked to return helmet comms equipment over concerns about encryption.`\
 https://nytimes.com/athletic/5885215/2024/10/30/big-12-helmet-coach-communication/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5885862/2024/10/30/bubba-wallace-crew-chief-nascar/
 **When Yankees Fans Take the Game Into Their Own Hands. Literally.**\
 `Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
 https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
-
-**Breaking: NHL franchises are worth a lot and make money**\
-`The Toronto Maple Leafs lead the way in franchise valuation at an estimated $3.66 billion.`\
-https://nytimes.com/athletic/5885530/2024/10/30/nhl-franchise-valuations-rising/
 
