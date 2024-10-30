@@ -1,3 +1,19 @@
+**Van Nistelrooy will have 'mixed emotions' as Man United interim coach**\
+`Ruud van Nistelrooy will have &#8220;mixed emotions&#8221; when he leads Manchester United for the first time as interim coach on Wednesday night.`\
+https://nytimes.com/athletic/5884844/2024/10/30/manchester-united-ruud-van-nistelrooy-new-manager/
+
+**Trump’s Hostility to Democracy**\
+`We explore the ways that Trump could undermine democratic traditions.`\
+https://nytimes.com/2024/10/30/briefing/trump-democracy-2024-election.html
+
+**Israel Orders Residents of City in Eastern Lebanon to Evacuate**\
+`Israel’s military warned civilians to leave Baalbek in the Bekaa Valley via three routes. The city had largely been spared Israeli bombardment until this week.`\
+https://nytimes.com/2024/10/30/world/middleeast/israel-gaza-lebanon.html
+
+**Klopp responds to Red Bull criticism: 'I love all of my former clubs'**\
+`Jurgen Klopp has spoken about the controversy surrounding his new job as Head of Global Football at Red Bull.`\
+https://nytimes.com/athletic/5884847/2024/10/30/jurgen-klopp-red-bull-critcism/
+
 **The Pulse: Yankees defeat the baseball gods**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5883318/2024/10/30/yankees-dodgers-world-series-anthony-volpe-the-pulse/
