@@ -1,3 +1,7 @@
+**Valencia Copa del Rey tie set to be postponed amid extreme weather warnings**\
+`Valencia&#8217;s Copa de Rey match against Parla Escuela on Wednesday is expected to be postponed due to the extreme weather conditions forecast for the coming days.`\
+https://nytimes.com/athletic/5883945/2024/10/30/valencia-copa-del-rey-tie-set-to-be-postponed-amid-extreme-weather-warnings/
+
 **Bengals trade deadline: Why Cincinnati — and Tee Higgins — are content to stand pat**\
 `Higgins and Trey Hendrickson appear to be obvious trade chips, but Cincinnati still believes it can succeed this season.`\
 https://nytimes.com/athletic/5884014/2024/10/30/bengals-trade-deadline-tee-higgins/
