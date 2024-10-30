@@ -1,3 +1,7 @@
+**Partial Breach of Election Machine Passwords in Colorado Poses No Risk, State Says**\
+`The secretary of state said that the machines are not online, require a second set of passwords and are under constant surveillance in locked rooms.`\
+https://nytimes.com/2024/10/29/us/politics/colorado-election-passwords-breach.html
+
 **As Trump Sows Doubt on Pennsylvania Voting, Officials Say the System Is Working**\
 `Donald Trump is using reports about suspicious voter registrations to cast the election as already flawed. County officials say the episodes are being distorted.`\
 https://nytimes.com/2024/10/29/us/politics/pennsylvania-voting-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/pageoneplus/corrections-oct-30-2024.html
 **Nikki Haley Says She Is ‘on Standby’ to Campaign for Donald Trump**\
 `Ms. Haley, a former rival of Mr. Trump, has repeatedly offered advice and criticism to Mr. Trump and other Republican candidates from the sidelines.`\
 https://nytimes.com/2024/10/29/us/politics/nikki-haley-trump.html
-
-**Freeman becomes first player ever with HR in 6 straight World Series games**\
-`The hit, which gave the Dodgers an immediate 2-0 pad, was Freeman's fourth of the 2024 World Series.`\
-https://nytimes.com/athletic/5884206/2024/10/29/freddie-freeman-world-series-home-run-record/
 
