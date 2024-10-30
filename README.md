@@ -1,3 +1,7 @@
+**An Artist, Her Benefactor and a Murder at a Hamptons Resort**\
+`The owner of a Pennsylvania tile company funded Sabina Khorramdel’s life of travel and creation. After she was found slain, his body was discovered at his Pennsylvania home.`\
+https://nytimes.com/2024/10/30/nyregion/hamptons-resort-murder-sabina-khorramdel.html
+
 **The Briefing: Newcastle 2 Chelsea 0 - Howe cracks the code as Maresca's changes fall flat**\
 `Our writers analyse the key talking points from Newcastle's victory over Chelsea in the Carabao Cup on Wednesday`\
 https://nytimes.com/athletic/5882343/2024/10/30/newcastle-chelsea-carabao-cup-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/election-poll-monitors.html
 **Two Black Holes Are Giving the Cosmos a Fright**\
 `The ghosts of stars are up to their usual mischief.`\
 https://nytimes.com/2024/10/30/science/space/astronomy-black-holes.html
-
-**Obesity Drug Shows Promise in Easing Knee Osteoarthritis Pain**\
-`A large trial showed that semaglutide, sold as Ozempic for diabetes and as Wegovy for obesity, was better than any current medications in alleviating symptoms.`\
-https://nytimes.com/2024/10/30/health/ozempic-wegovy-knee-pain-osteoarthritis.html
 
