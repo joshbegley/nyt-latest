@@ -1,3 +1,15 @@
+**Johnson’s ‘No Obamacare’ Remark Draws Attention to Unpopular Stance**\
+`Speaker Mike Johnson said a Trump victory would allow Republicans to embark on a “massive overhaul” of the Affordable Care Act. He said the party wants “take a blowtorch to the regulatory state.”`\
+https://nytimes.com/2024/10/30/us/politics/aca-obamacare-mike-johnson-trump.html
+
+**The Windup: Can Yankees turn one into two?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5885391/2024/10/30/yankees-dodgers-world-series-the-windup/
+
+**Scoop City: Lions, Chiefs lead NFL's current playoff picture**\
+`One league-leading QB stat for each of the 14 teams currently within the playoff picture, from Kansas City and Detroit to LA and Philly.`\
+https://nytimes.com/athletic/5885382/2024/10/30/the-nfls-current-playoff-picture-plus-anthony-richardson-as-latest-young-qb-failed/
+
 **Harris Tries to Distance Herself and Move On From Biden’s ‘Garbage’ Remark**\
 `The day after the president’s comment, Vice President Kamala Harris told reporters she disagreed “with any criticism of people based on who they vote for.”`\
 https://nytimes.com/2024/10/30/us/politics/harris-biden-garbage-trump-supporters.html

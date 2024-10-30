@@ -1,5 +1,5 @@
 **Johnson’s ‘No Obamacare’ Remark Draws Attention to Unpopular Stance**\
-`Speaker Mike Johnson said a Trump victory would allow Republicans to embark on a “massive overhaul” of the Affordable Care Act. He said the party wants “take a blowtorch to the regulatory state.”`\
+`Speaker Mike Johnson said a Trump victory would allow Republicans to embark on a “massive overhaul” of the Affordable Care Act. He said the party wants to “take a blowtorch to the regulatory state.”`\
 https://nytimes.com/2024/10/30/us/politics/aca-obamacare-mike-johnson-trump.html
 
 **The Windup: Can Yankees turn one into two?**\

@@ -1,3 +1,15 @@
+**Johnson’s ‘No Obamacare’ Remark Draws Attention to Unpopular Stance**\
+`Speaker Mike Johnson said a Trump victory would allow Republicans to embark on a “massive overhaul” of the Affordable Care Act. He said the party wants “take a blowtorch to the regulatory state.”`\
+https://nytimes.com/2024/10/30/us/politics/aca-obamacare-mike-johnson-trump.html
+
+**The Windup: Can Yankees turn one into two?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5885391/2024/10/30/yankees-dodgers-world-series-the-windup/
+
+**Scoop City: Lions, Chiefs lead NFL's current playoff picture**\
+`One league-leading QB stat for each of the 14 teams currently within the playoff picture, from Kansas City and Detroit to LA and Philly.`\
+https://nytimes.com/athletic/5885382/2024/10/30/the-nfls-current-playoff-picture-plus-anthony-richardson-as-latest-young-qb-failed/
+
 **Harris Tries to Distance Herself and Move On From Biden’s ‘Garbage’ Remark**\
 `The day after the president’s comment, Vice President Kamala Harris told reporters she disagreed “with any criticism of people based on who they vote for.”`\
 https://nytimes.com/2024/10/30/us/politics/harris-biden-garbage-trump-supporters.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/30/business/uk-budget-taxes-rachel-reeves.html
 **No, counting votes for several days is not a sign of fraud.**\
 `While the presidential winner was once usually known on election night, closer races and more mail voting have made it harder to make the call as quickly.`\
 https://nytimes.com/live/2024/10/28/business/voter-fraud-election-fact-check/voter-fraud-ballot-counting-delays
-
-**A ‘Glorious’ Economy**\
-`The economy is a remarkable success, even if Biden and Harris aren’t getting credit for it.`\
-https://nytimes.com/2024/10/30/opinion/krugman-glorious-economy-harris.html
-
-**How Donald Trump Is Making Big Promises to Big Business**\
-`Crypto. Big Oil. Tobacco. Vaping. Former President Donald J. Trump has been making overt promises to industry leaders. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
-https://nytimes.com/video/us/politics/100000009787098/how-donald-trump-is-making-big-promises-to-big-business.html
-
-**Was This Scrap of Cloth Once a Tunic Worn by Alexander the Great?**\
-`A Greek researcher says a piece of purple-and-white fabric discovered decades ago in a tomb in northern Greece may have belonged to Alexander. Others disagree.`\
-https://nytimes.com/2024/10/30/world/europe/alexander-the-great-tunic-cloth.html
 
