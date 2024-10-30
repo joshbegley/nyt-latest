@@ -1,3 +1,7 @@
+**Top New Jersey Newspapers Will End Print Editions, and One Will Close**\
+`The Star-Ledger, the state’s largest newspaper, will stop publishing its print edition. The Jersey Journal will shut down entirely after 157 years.`\
+https://nytimes.com/2024/10/30/nyregion/nj-star-ledger-jersey-journal-newspapers.html
+
 **An Artist, Her Benefactor and a Murder at a Hamptons Resort**\
 `The owner of a Pennsylvania tile company funded Sabina Khorramdel’s life of travel and creation. After she was found slain, his body was discovered at his Pennsylvania home.`\
 https://nytimes.com/2024/10/30/nyregion/hamptons-resort-murder-sabina-khorramdel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/briefing/economy-spain-floods-lebanon.html
 **Monitors, Once Meant to Prevent Election Fraud, Now Seek to Prove It**\
 `Polling place monitors have long provided oversight to elections. But this year, many are there to provide documentation for Donald J. Trump’s claims of fraud.`\
 https://nytimes.com/2024/10/30/us/election-poll-monitors.html
-
-**Two Black Holes Are Giving the Cosmos a Fright**\
-`The ghosts of stars are up to their usual mischief.`\
-https://nytimes.com/2024/10/30/science/space/astronomy-black-holes.html
 
