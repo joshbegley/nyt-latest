@@ -1,3 +1,11 @@
+**Lewis Sorley, 90, Who Said the U.S. Won (but Then Lost) in Vietnam, Dies**\
+`His Pulitzer Prize-nominated history of the war was warmly received by the Pentagon, but rejected elsewhere for ignoring what many said made the war “unwinnable.”`\
+https://nytimes.com/2024/10/30/books/lewis-sorley-dead.html
+
+**Donald J. Hall, 96, Dies; Expanded Hallmark Beyond Greeting Cards**\
+`After succeeding his father as the company’s top executive, he added new product lines and increased its focus on family-friendly TV shows.`\
+https://nytimes.com/2024/10/30/business/donald-j-hall-dead.html
+
 **Oilers' McDavid expected to miss 2-3 weeks with injury**\
 `The Oilers (4-5-1) will undoubtedly miss McDavid, the league's consensus-best player.`\
 https://nytimes.com/athletic/5885750/2024/10/30/connor-mcdavid-injury-oilers-replacements/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/30/opinion/harris-trump-election.html
 **MLB bans 2 Yankees fans who interfered with Mookie Betts**\
 `The two fans attempted to pry a foul ball in right field foul territory from the Dodgers outfielder in the first inning of Tuesday's Game 4.`\
 https://nytimes.com/athletic/5885690/2024/10/30/dodgers-yankees-world-series-fans-banned/
-
-**A Farm-Raised Steelworker Speaks Up for Harris and Against Trump (and Elon Musk)**\
-`Carhartt, a western Pennsylvania accent and a backdrop of tools provide blue-collar credibility in a new ad from Future Forward, the main super PAC aiding Kamala Harris.`\
-https://nytimes.com/2024/10/30/us/politics/harris-pennsylvania-ad-working-class.html
-
-**Silver: Colts GM Chris Ballard has failed to live up to the team's bold promises**\
-`Jim Irsay once hailed Ballard as the best GM candidate of the 21st century. Nearly eight years later, he owns one playoff win.`\
-https://nytimes.com/athletic/5884624/2024/10/30/nfl-gm-chris-ballard-colts-strategy/
 
