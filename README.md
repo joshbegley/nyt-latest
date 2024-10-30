@@ -1,3 +1,15 @@
+**When Dr. Phil Defended Harris While Endorsing Trump**\
+`It was an odd moment at the big Trump rally.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/dr-phil-trump-rally
+
+**U.S. Military Says It Killed Up to 35 Islamic State Militants in Syria**\
+`Airstrikes on Monday targeted people who the military said were senior leaders of the group, which has sharply stepped up its attacks in Iraq and Syria.`\
+https://nytimes.com/2024/10/30/world/middleeast/islamic-state-airstrikes-syria.html
+
+**Bubba Wallace gets new NASCAR crew chief for 2025**\
+`Charles Denike, a crew chief in the Truck Series, will replace Bootie Barker as crew chief for Wallace's No. 23 team.`\
+https://nytimes.com/athletic/5885862/2024/10/30/bubba-wallace-crew-chief-nascar/
+
 **Yankees Fans Who Interfered With Foul Ball Barred From Game 5**\
 `Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
 https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5883297/2024/10/30/alessandro-alunni-bravi-f1-saube
 **Lewis Sorley, 90, Who Said the U.S. Won (but Then Lost) in Vietnam, Dies**\
 `His Pulitzer Prize-nominated history of the war was warmly received by the Pentagon, but rejected elsewhere for ignoring what many said made the war “unwinnable.”`\
 https://nytimes.com/2024/10/30/books/lewis-sorley-dead.html
-
-**Donald J. Hall, 96, Dies; Expanded Hallmark Beyond Greeting Cards**\
-`After succeeding his father as the company’s top executive, he added new product lines and increased its focus on family-friendly TV shows.`\
-https://nytimes.com/2024/10/30/business/donald-j-hall-dead.html
-
-**Oilers' McDavid expected to miss 2-3 weeks with injury**\
-`The Oilers (4-5-1) will undoubtedly miss McDavid, the league's consensus-best player.`\
-https://nytimes.com/athletic/5885750/2024/10/30/connor-mcdavid-injury-oilers-replacements/
-
-**Fantasy basketball trends and mirages: Has Tyrese Haliburton lost his mojo?**\
-`After watching a week of NBA regular-season action, Eric Wong shares his thoughts on some early trends, and whether or not to believe them. `\
-https://nytimes.com/athletic/5885464/2024/10/30/fantasy-basketball-trends-mirages-haliburton-maxey/
 
