@@ -1,3 +1,15 @@
+**When Yankees Fans Take the Game Into Their Own Hands. Literally.**\
+`Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
+https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
+
+**The many lives of F1's Alessandro Alunni Bravi: Wanting to fight Mafia, repping Sauber**\
+`Small-town lawyer dreams. Part-time journalist. Future novelist? Sauber's team rep is still steering the direction of his life.`\
+https://nytimes.com/athletic/5883297/2024/10/30/alessandro-alunni-bravi-f1-sauber/
+
+**Lewis Sorley, 90, Who Said the U.S. Won (but Then Lost) in Vietnam, Dies**\
+`His Pulitzer Prize-nominated history of the war was warmly received by the Pentagon, but rejected elsewhere for ignoring what many said made the war “unwinnable.”`\
+https://nytimes.com/2024/10/30/books/lewis-sorley-dead.html
+
 **Mings makes Villa return after 445 days out injured**\
 `Aston Villa captain Tyrone Mings will make his first start for 445 days in his side&#8217;s Carabao Cup fourth-round tie against Crystal Palace.`\
 https://nytimes.com/athletic/5885882/2024/10/30/tyrone-mings-aston-villa-injury-return/
