@@ -1,3 +1,7 @@
+**'We already miss him a bunch': What Taylor Hendricks' injury means for the Jazz**\
+`The second-year forward suffered a gruesome leg injury on Monday. On Tuesday, rookies Cody Williams and Kyle Filipowski had to fill in.`\
+https://nytimes.com/athletic/5881748/2024/10/30/taylor-hendricks-injury-jazz/
+
 **Massachusetts Is Making Its High School Diplomas Meaningless**\
 `A ballot initiative targets tests rather than fixing problems in the system`\
 https://nytimes.com/2024/10/30/opinion/massachusetts-ballot-question-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5884835/2024/10/30/the-athletic-fc-trump-ten-hag/
 **C'est la vie: For the NBA's 3 French rookie lottery picks, it's been a bumpy start**\
 `Zaccharie Risacher, Alex Sarr and Tidjane Salaün are adjusting to life — and the physicality — of the NBA as teenagers.`\
 https://nytimes.com/athletic/5884631/2024/10/30/nba-draft-french-rookies-talent/
-
-**UEFA pledges €1bn and six professional leagues in new women's football strategy**\
-`UEFA has pledged to commit €1billion ($1.`\
-https://nytimes.com/athletic/5884953/2024/10/30/uefa-womens-football-strategy/
 
