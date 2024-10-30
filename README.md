@@ -1,3 +1,11 @@
+**A ‘Glorious’ Economy**\
+`The economy is a remarkable success, even if Biden and Harris aren’t getting credit for it.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/krugman-glorious-economy-harris
+
+**How Donald Trump Is Making Big Promises to Big Business**\
+`Crypto. Big Oil. Tobacco. Vaping. Former President Donald J. Trump has been making overt promises to industry leaders. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
+https://nytimes.com/video/us/politics/100000009787098/how-donald-trump-is-making-big-promises-to-big-business.html
+
 **Was This Scrap of Cloth Once a Tunic Worn by Alexander the Great?**\
 `A Greek researcher says a piece of purple-and-white fabric discovered decades ago in a tomb in northern Greece may have belonged to Alexander. Others disagree.`\
 https://nytimes.com/2024/10/30/world/europe/alexander-the-great-tunic-cloth.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5884711/2024/10/30/canucks-quinn-hughes-power-play/
 **Our favorite cards in 2024 Allen & Ginter**\
 `Dinosaur fossils, scratch and sniff cards and more! `\
 https://nytimes.com/athletic/5884378/2024/10/30/topps-allen-ginter-westminster-cards/
-
-**Penguins Today: Marc-André Fleury's curtain call**\
-`Fleury's final return to Pittsburgh as a player was appropriately filled with memories and adoration.`\
-https://nytimes.com/athletic/5885157/2024/10/30/penguins-today-marc-andre-fleury-pittsburgh/
-
-**Instead of Going Boldly on Space, Harris Has Taken a Steady Approach**\
-`As chair of the White House’s National Space Council, the vice president largely emphasized continuity with policies set by the Trump administration.`\
-https://nytimes.com/2024/10/30/science/kamala-harris-space-nasa-moon.html
 

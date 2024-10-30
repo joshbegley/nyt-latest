@@ -1,3 +1,11 @@
+**Was This Scrap of Cloth Once a Tunic Worn by Alexander the Great?**\
+`A Greek researcher says a piece of purple-and-white fabric discovered decades ago in a tomb in northern Greece may have belonged to Alexander. Others disagree.`\
+https://nytimes.com/2024/10/30/world/europe/alexander-the-great-tunic-cloth.html
+
+**Volkswagen Profit Shrinks as Unions Threaten Strike**\
+`Germany’s biggest automaker said its profit dropped 42 percent in the third quarter, as union leaders warned that workers were ready to walk out over a wage dispute.`\
+https://nytimes.com/2024/10/30/business/volkswagen-earnings-profit-strike.html
+
 **In Election’s Final Days, Dark Money and ‘Gray Money’ Fund ‘Dirty Tricks’**\
 `Big-money operatives are taking advantage of lax rules at the end of the campaign to hide the true source of their money until after the election is called — or for forever.`\
 https://nytimes.com/2024/10/30/us/politics/dark-money-presidential-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5885157/2024/10/30/penguins-today-marc-andre-fleury
 **Instead of Going Boldly on Space, Harris Has Taken a Steady Approach**\
 `As chair of the White House’s National Space Council, the vice president largely emphasized continuity with policies set by the Trump administration.`\
 https://nytimes.com/2024/10/30/science/kamala-harris-space-nasa-moon.html
-
-**Wrexham receive new investment from New York family**\
-`Wrexham co-owners Ryan Reynolds and Rob McElhenney have welcomed New York-based Allyn family as new minority investors in the League One club.`\
-https://nytimes.com/athletic/5885061/2024/10/30/wrexham-investors-allyn-familiy/
-
-**David Salle’s Ghost in the A.I. Machine**\
-`At Gladstone Gallery, the painter’s experiments with artificial intelligence yield compelling results and big questions.`\
-https://nytimes.com/2024/10/30/arts/design/david-salle-ai-gladstone-painting-art.html
 

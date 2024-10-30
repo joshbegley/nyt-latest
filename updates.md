@@ -1,3 +1,11 @@
+**Was This Scrap of Cloth Once a Tunic Worn by Alexander the Great?**\
+`A Greek researcher says a piece of purple-and-white fabric discovered decades ago in a tomb in northern Greece may have belonged to Alexander. Others disagree.`\
+https://nytimes.com/2024/10/30/world/europe/alexander-the-great-tunic-cloth.html
+
+**Volkswagen Profit Shrinks as Unions Threaten Strike**\
+`Germany’s biggest automaker said its profit dropped 42 percent in the third quarter, as union leaders warned that workers were ready to walk out over a wage dispute.`\
+https://nytimes.com/2024/10/30/business/volkswagen-earnings-profit-strike.html
+
 **In Election’s Final Days, Dark Money and ‘Gray Money’ Fund ‘Dirty Tricks’**\
 `Big-money operatives are taking advantage of lax rules at the end of the campaign to hide the true source of their money until after the election is called — or for forever.`\
 https://nytimes.com/2024/10/30/us/politics/dark-money-presidential-campaign.html
