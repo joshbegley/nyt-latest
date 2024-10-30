@@ -1,7 +1,3 @@
-**Instead of Going Boldly on Space, Harris Has Taken a Steady Approach**\
-`As chair of the White House’s National Space Council, the vice president largely emphasized continuity with policies set by the Trump administration.`\
-https://nytimes.com/2024/10/30/science/kamala-harris-space-nasa-moon.html
-
 **Wrexham receive new investment from New York family**\
 `Wrexham co-owners Ryan Reynolds and Rob McElhenney have welcomed New York-based Allyn family as new minority investors in the League One club.`\
 https://nytimes.com/athletic/5885061/2024/10/30/wrexham-investors-allyn-familiy/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/30/style/dinner-date-cancellations.html
 **Panic in the Frisco? Pelicans need wake-up call after loss to shorthanded Warriors**\
 `Their season is only four games old. But New Orleans' lack of energy and flawed play are raising early alarm bells.  `\
 https://nytimes.com/athletic/5884815/2024/10/30/pelicans-warriors-losing-zion/
+
+**Israel Demolished Hundreds of Buildings in Southern Lebanon, Videos and Satellite Images Show**\
+`At least 1,085 buildings have been destroyed or badly damaged since Israel’s invasion targeting the Hezbollah militia, including many in controlled demolitions, a New York Times analysis shows.`\
+https://nytimes.com/2024/10/30/world/middleeast/israel-lebanon-border-photos-video.html
 
