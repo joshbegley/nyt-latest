@@ -1,3 +1,15 @@
+**How Daniel Jones, Giants' sputtering offense are even worse than you think**\
+`The hideous 2021 Giants averaged 15.2 points per game. The current team is averaging just 14.6 points per game.`\
+https://nytimes.com/athletic/5884326/2024/10/30/new-york-giants-daniel-jones-offense-brian-daboll/
+
+**Elon Musk’s SpaceX, Already a Leader in Satellites, Gets Into the Spy Game**\
+`The Pentagon needs what the company offers to compete with China even as it frets over its potential for dominance and the billionaire’s global interests.`\
+https://nytimes.com/2024/10/30/us/politics/spacex-spy-satellites-elon-musk.html
+
+**Canucks notebook: Nils Höglander's demotion, Quinn Hughes' dominance and more**\
+`Unpacking the Canucks' overtime loss to the Hurricanes on Monday and the fallout from Tuesday's practice at Rogers Arena.`\
+https://nytimes.com/athletic/5884711/2024/10/30/canucks-quinn-hughes-power-play/
+
 **Our favorite cards in 2024 Allen & Ginter**\
 `Dinosaur fossils, scratch and sniff cards and more! `\
 https://nytimes.com/athletic/5884378/2024/10/30/topps-allen-ginter-westminster-cards/
