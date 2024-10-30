@@ -1,3 +1,15 @@
+**State of the Hornets: Can LaMelo Ball and Brandon Miller finally find their identity?**\
+`Tidjane Salaün has the makings of a two-way forward who can give the lineup flexibility in the future.`\
+https://nytimes.com/athletic/5867493/2024/10/30/lamelo-ball-brandon-miller-hornets-identity/
+
+**Buckley: Bill Belichick, Robert Kraft should stop dragging Jerod Mayo into silly Pats spat**\
+`Belichick and Kraft can keep yapping at each other, but let Mayo do his job of making this team better and showing progress on the field.`\
+https://nytimes.com/athletic/5882589/2024/10/30/jerod-mayo-bill-belichick-robert-kraft-patriots-spat/
+
+**Everyone is still talking about the Falcons' Kyle Pitts, but the tone is changing**\
+`Pitts has had four straight productive games and has tied his single-season high in TDs, leading to optimism that big things are ahead.`\
+https://nytimes.com/athletic/5882354/2024/10/30/kyle-pitts-falcons-turnaround/
+
 **It’s Not Too Early to Begin the Reckoning**\
 `Election Day is only the beginning.`\
 https://nytimes.com/2024/10/30/opinion/trump-harris-election-day-aftermath.html

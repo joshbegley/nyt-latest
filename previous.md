@@ -1,3 +1,15 @@
+**State of the Hornets: Can LaMelo Ball and Brandon Miller finally find their identity?**\
+`Tidjane Salaün has the makings of a two-way forward who can give the lineup flexibility in the future.`\
+https://nytimes.com/athletic/5867493/2024/10/30/lamelo-ball-brandon-miller-hornets-identity/
+
+**Buckley: Bill Belichick, Robert Kraft should stop dragging Jerod Mayo into silly Pats spat**\
+`Belichick and Kraft can keep yapping at each other, but let Mayo do his job of making this team better and showing progress on the field.`\
+https://nytimes.com/athletic/5882589/2024/10/30/jerod-mayo-bill-belichick-robert-kraft-patriots-spat/
+
+**Everyone is still talking about the Falcons' Kyle Pitts, but the tone is changing**\
+`Pitts has had four straight productive games and has tied his single-season high in TDs, leading to optimism that big things are ahead.`\
+https://nytimes.com/athletic/5882354/2024/10/30/kyle-pitts-falcons-turnaround/
+
 **It’s Not Too Early to Begin the Reckoning**\
 `Election Day is only the beginning.`\
 https://nytimes.com/2024/10/30/opinion/trump-harris-election-day-aftermath.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/30/learning/whats-your-favorite-part-of-halloween.ht
 **2024 Will Be Either a Realignment or a Reboot**\
 `Either way, it’s too close to make a prediction.`\
 https://nytimes.com/2024/10/30/opinion/election-polls-harris-trump.html
-
-**This Time, It May Actually Come Down to Turnout**\
-`Democrats have gained among high-turnout voters, while Donald Trump has made gains among groups that tend to show up only for presidential races, or not at all.`\
-https://nytimes.com/2024/10/30/upshot/election-turnout-trump-harris-polls.html
-
-**Somewhere Amid the Frappuccinos, Fans Say Starbucks Lost Something**\
-`Customers are turning away from the coffee giant, and its new chief executive, Brian Niccol, has to figure out how to get them back.`\
-https://nytimes.com/2024/10/30/business/starbucks-customers-brian-niccol.html
-
-**The Wild, Wild West Makes for an Oddly Tame Yarn**\
-`Tom Clavin’s “Bandit Heaven” takes us down the “Outlaw Trail” with Butch Cassidy and the Sundance Kid.`\
-https://nytimes.com/2024/10/30/books/review/bandit-heaven-tom-clavin.html
 
