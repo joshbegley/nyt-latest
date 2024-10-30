@@ -1,3 +1,15 @@
+**Police investigating Jameson Williams' detainment, release**\
+`The probe seeks to answer why Williams was released from custody after police officers indicated they would take him to jail, per a report.`\
+https://nytimes.com/athletic/5885462/2024/10/30/jameson-williams-lions-police-investigation/
+
+**What’s in Our Queue? Minecraft and More**\
+`I’m a correspondent covering Japan. Here are five mostly Japan-related items I’ve loved seeing, reading and listening to.`\
+https://nytimes.com/interactive/2024/10/30/arts/editors-recommendations-minecraft.html
+
+**Joe Flacco will be Colts starting QB 'going forward,' coach says**\
+`"Tough decision but one I thought was in the best interest of our football team," the coach said Wednesday.`\
+https://nytimes.com/athletic/5885586/2024/10/30/joe-flacco-colts-starting-qb/
+
 **These Georgia Republicans Are Over Trump. Will They Vote for Him Anyway?**\
 `Donald Trump has a particularly fraught history with his party in Georgia. Some Republicans described their calculus in deciding whether to back him.`\
 https://nytimes.com/2024/10/30/us/these-georgia-republicans-are-over-trump-will-they-vote-for-him-anyway.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5880244/2024/10/30/rajah-caruth-nascar-washington-d
 **Boo! Celebrate Halloween with some of the NHL's scariest starts**\
 `Let’s get in the Halloween spirit by building our annual team made up of players off to disappointing starts.`\
 https://nytimes.com/athletic/5883788/2024/10/30/nhl-halloween-players-team-season/
-
-**Three Great Documentaries to Stream**\
-`This month’s picks include a portrait of an artist, a haunting music performance piece and a chilling missing-persons tale.`\
-https://nytimes.com/2024/10/30/movies/great-documentaries-streaming.html
-
-**Two Climate Change Plays Keep the Flames of Hope Alive**\
-`“Hothouse,” at Irish Arts Center, fends off despair with loopiness; “In the Amazon Warehouse Parking Lot,” at Playwrights Horizons, is a fuzzy world lacking depth.`\
-https://nytimes.com/2024/10/30/theater/hothouse-in-the-amazon-warehouse-parking-lot.html
-
-**Being a College Athlete Now Means Constant Travel and Missed Classes**\
-`Players are dealing with far-flung travel, jet lag and the pressures of trying to balance the roles of student, athlete and entrepreneur more than ever before.`\
-https://nytimes.com/2024/10/30/us/college-football-conference-realignment.html
 
