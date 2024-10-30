@@ -1,3 +1,15 @@
+**Silver: Colts GM Chris Ballard has failed to live up to the team's bold promises**\
+`Jim Irsay once hailed Ballard as the best GM candidate of the 21st century. Nearly eight years later, he owns one playoff win.`\
+https://nytimes.com/athletic/5884624/2024/10/30/nfl-gm-chris-ballard-colts-strategy/
+
+**Sweaty Ghosts and Melting Candy: New York City Will Have a Hot Halloween**\
+`No need to wear extra layers this year. Temperatures in the city are expected to reach the mid-to-upper 70s on Thursday.`\
+https://nytimes.com/2024/10/30/nyregion/halloween-nyc-weather-hot.html
+
+**NASCAR suspends Conner Jones for 1 race after intentional crash**\
+`The driver Jones crashed, Matt Mills, was hospitalized for two days over the weekend as a result of the wreck.`\
+https://nytimes.com/athletic/5885588/2024/10/30/nascar-truck-series-conner-jones-matt-mills-suspension/
+
 **Thompson: Buddy Hield embodies the Warriors' foundational tenet — shooters shoot**\
 `SAN FRANCISCO — Buddy Hield likes to hold a basketball while he sits on the bench.`\
 https://nytimes.com/athletic/5885576/2024/10/30/buddy-hield-warriors-shooting-3s-stephen-curry/
