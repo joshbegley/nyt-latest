@@ -1,40 +1,40 @@
-**Europe Imposes Higher Tariffs on Electric Vehicles Made in China**\
-`The tariffs, some as high as 45 percent, are intended to to protect Europe’s automotive sector, but they could escalate a trade war with China.`\
-https://nytimes.com/2024/10/30/business/european-union-china-electric-vehicle-tariffs.html
+**It’s Not Too Early to Begin the Reckoning**\
+`Election Day is only the beginning.`\
+https://nytimes.com/2024/10/30/opinion/trump-harris-election-day-aftermath.html
 
-**Does Penn State have enough to beat Ohio State? Opposing coaches weigh in**\
-`This year’s matchup is the first since 2017 in which the Nittany Lions were ranked higher than the Buckeyes.`\
-https://nytimes.com/athletic/5883834/2024/10/30/penn-state-ohio-state-scouting-report/
+**Harris’s Mission: Disqualify Trump, but Extend a Hand to His Voters**\
+`Kamala Harris, in her closing argument to voters, acknowledged an inescapable political reality: Donald Trump is not a fringe figure within his own party or the nation.`\
+https://nytimes.com/2024/10/30/us/politics/kamala-harris-trump-voters.html
 
-**Fixing five of college football's most controversial national champion debates**\
-`What if we could turn back the clock and apply a new postseason format to one of college football's most hotly debated seasons?`\
-https://nytimes.com/athletic/5884310/2024/10/30/college-football-national-champions-history-controversy/
+**Once Top Advisers to Trump, They Now Call Him ‘Liar,’ ‘Fascist’ and ‘Unfit’**\
+`Some of the strongest criticisms of former President Donald J. Trump have come from those who knew him as commander in chief.`\
+https://nytimes.com/interactive/2024/10/30/us/politics/trump-administration-criticism.html
 
-**How Biden and Harris Built That Wall**\
-`Behind the scenes, Biden and Harris conducted a campaign to secure the border.`\
-https://nytimes.com/video/opinion/100000009776724/biden-harris-border-immigration.html
+**Michigan Clerk Removed From Election Duty Over Plans for a Hand Count**\
+`The clerk had said he wanted to count votes by hand, as Trump-aligned activists push misinformation about problems with voting machines.`\
+https://nytimes.com/2024/10/30/us/politics/michigan-election-voting-ballots.html
 
-**Key meeting, Welbeck request and Amorim plan - inside Manchester United's manager change**\
-`Why Manchester United finally sacked Erik ten Hag, when they first contacted Ruben Amorim and the situation a new head coach will inherit`\
-https://nytimes.com/athletic/5883160/2024/10/30/ten-hag-amorim-welbeck-berrada/
+**The D.N.C. Targets Regional Newspapers in New Ad Campaign**\
+`The ads seeking to define Donald Trump as “unhinged, unstable, unchecked” are running in smaller suburban newspapers.`\
+https://nytimes.com/2024/10/30/us/politics/democrats-regional-newspapers-ads.html
 
-**How Summerville became Premier League ready: 'He's grown from a skinny teenager into a man'**\
-`Crysencio Summerville made a huge impression against Manchester United last weekend`\
-https://nytimes.com/athletic/5884555/2024/10/30/crysencio-summerville-west-ham-leeds/
+**What’s Your Favorite Part of Halloween?**\
+`Elaborate lawn decorations. Bags of candy. Creative costumes. What do you love about the holiday? What could you do without?`\
+https://nytimes.com/2024/10/30/learning/whats-your-favorite-part-of-halloween.html
 
-**Brighton don't need January centre-back signing - Hurzeler**\
-`Head coach Fabian Hurzeler says there is no need for Brighton &amp; Hove Albion to sign another central defender in January.`\
-https://nytimes.com/athletic/5882344/2024/10/30/brighton-transfers-january-fabian-hurzeler/
+**2024 Will Be Either a Realignment or a Reboot**\
+`Either way, it’s too close to make a prediction.`\
+https://nytimes.com/2024/10/30/opinion/election-polls-harris-trump.html
 
-**Hannah Hampton or Mary Earps: Who will be England's No 1 at Euro 2025?**\
-`The Chelsea and PSG keepers played a game each in the October international break, and both can stake a strong claim to the No 1 shirt`\
-https://nytimes.com/athletic/5883953/2024/10/30/mary-earps-hannah-hampton-england-goalkeeper/
+**This Time, It May Actually Come Down to Turnout**\
+`Democrats have gained among high-turnout voters, while Donald Trump has made gains among groups that tend to show up only for presidential races, or not at all.`\
+https://nytimes.com/2024/10/30/upshot/election-turnout-trump-harris-polls.html
 
-**Subway Wedding**\
-`Some couples are embracing the gritty, chaotic appeal of the subway system for their wedding ceremonies and receptions. Where might you want to get married someday?`\
-https://nytimes.com/2024/10/30/learning/subway-wedding.html
+**Somewhere Amid the Frappuccinos, Fans Say Starbucks Lost Something**\
+`Customers are turning away from the coffee giant, and its new chief executive, Brian Niccol, has to figure out how to get them back.`\
+https://nytimes.com/2024/10/30/business/starbucks-customers-brian-niccol.html
 
-**In New York, Democrats See Glimmer of Hope After Stinging Midterm Losses**\
-`Their congressional candidates have fixed key political missteps. But are voters upset about inflation and the migrant influx ready to take the party back?`\
-https://nytimes.com/2024/10/30/nyregion/house-election-democrats-ny.html
+**The Wild, Wild West Makes for an Oddly Tame Yarn**\
+`Tom Clavin’s “Bandit Heaven” takes us down the “Outlaw Trail” with Butch Cassidy and the Sundance Kid.`\
+https://nytimes.com/2024/10/30/books/review/bandit-heaven-tom-clavin.html
 
