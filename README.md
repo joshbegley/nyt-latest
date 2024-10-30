@@ -1,3 +1,7 @@
+**Anthony Volpe's hometown grand slam provides signature Yankees moment in Game 4**\
+`Volpe envisioned nights like Tuesday’s “probably every night” as a New York area child, who grew up idolizing Derek Jeter. `\
+https://nytimes.com/athletic/5884637/2024/10/30/dodgers-yankees-world-series-game-4-anthony-volpe-moment/
+
 **Arsenal Today: Preston away and a sitdown with Per Mertesacker**\
 `Amy Lawrence talks you through what is interesting our team of Arsenal reporters today`\
 https://nytimes.com/athletic/5883044/2024/10/30/arsenal-today-october-30/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883049/2024/10/30/timo-werner-tottenham-form/
 **Andrey Santos has shone for Strasbourg on loan. This is what he'd bring to Chelsea**\
 `Andrey Santos has impressed since moving to Strasbourg on loan in the summer`\
 https://nytimes.com/athletic/5881992/2024/10/30/andrey-santos-chelsea-strasbourg-analysis/
-
-**Isaac Schmidt remains an unknown quantity at Leeds - but is opportunity on the way?**\
-`For the second game in a row, Daniel Farke will need to make changes at full-back. It presents a chance for summer buy Schmidt to shine`\
-https://nytimes.com/athletic/5879830/2024/10/30/isaac-schmidt-leeds-analysis/
 
