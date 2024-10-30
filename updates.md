@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/30/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Fresh Off Splashy Closing Pitches, Trump and Harris Hit Swing States**\
+`Kamala Harris, at the Ellipse, and Donald Trump, at Madison Square Garden, made their final big arguments to voters. Now they’re in the battlegrounds to try to seal the deal.`\
+https://nytimes.com/live/2024/10/30/us/harris-trump-election
+
+**What we've learned about the Golden Knights through their first 10 games**\
+`Examining what has gone right for Vegas, which has jumped out to an early lead in the Pacific Division. `\
+https://nytimes.com/athletic/5883569/2024/10/30/golden-knights-season-home/
+
+**Giants offseason primer: Important dates and deadlines to know**\
+`These are all of the key dates and deadlines for the Giants this offseason.`\
+https://nytimes.com/athletic/5883275/2024/10/30/giants-offseason-primer-deadlines/
+
 **Germany Avoids Recession, but Weak Growth Weighs on Europe**\
 `The continent’s economy continued to limp along, expanding just 0.4 percent in the latest quarter, dragged down by a loss of competitiveness.`\
 https://nytimes.com/2024/10/30/business/europe-economy-germany.html
