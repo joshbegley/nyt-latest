@@ -1,3 +1,15 @@
+**Gabriel Jesus goal can 'unlock' Arsenal forward - Arteta**\
+`Mikel Arteta believes that Gabriel Jesus ending his nine month goal drought can &#8220;unlock&#8221; the Brazilian in front of goal.`\
+https://nytimes.com/athletic/5886735/2024/10/30/gabriel-jesus-goal-arsenal-arteta/
+
+**Nicky Jam, a Reggaeton Star, Withdraws Support for Trump**\
+`The disavowal of the former president reflects the damage inflicted by racist remarks against Puerto Rico and Latinos at a recent rally at Madison Square Garden.`\
+https://nytimes.com/2024/10/30/us/politics/nicky-jam-trump-puerto-rico.html
+
+**Taiwan Braces for Powerful Typhoon Kong-rey**\
+`The approaching storm was forecast to hit as the equivalent of a Category 4 hurricane along Taiwan’s eastern coast on Thursday.`\
+https://nytimes.com/2024/10/30/weather/typhoon-kong-rey-taiwan-landfall.html
+
 **Van Nistelrooy: I will help and serve Man Utd as long as I'm needed**\
 `Manchester United interim head coach Ruud van Nistelrooy has said he will &#8220;help and serve&#8221; the club for as long as he is needed.`\
 https://nytimes.com/athletic/5886638/2024/10/30/ruud-van-nistelrooy-manchester-united-interim-coach/
