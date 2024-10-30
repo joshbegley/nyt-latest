@@ -1,3 +1,15 @@
+**Maple Leafs' looming decision on Timothy Liljegren: What's next for the defenceman?**\
+`It’s been a frustrating season for Liljegren, who has played in just one of the Maple Leafs' first 10 games this season.`\
+https://nytimes.com/athletic/5886028/2024/10/30/maple-leafs-timothy-liljegren-trade-nhl/
+
+**Meta’s Profit Rises 35 Percent, Even as Spending Spree Continues**\
+`The Silicon Valley company, which owns Facebook, Instagram and WhatsApp, said it does not plan to slow down its investments anytime soon.`\
+https://nytimes.com/2024/10/30/technology/meta-earnings-artificial-intelligence.html
+
+**Trump Supporter Arrested After Brandishing Machete at Early-Voting Site**\
+`The police charged an 18-year-old man with aggravated assault after he confronted two older Harris supporters outside a library in Neptune Beach, Fla.`\
+https://nytimes.com/2024/10/30/us/politics/florida-trump-supporter-arrested-machete.html
+
 **Microsoft’s Quarterly Revenue Is Up 16% to $65.6 Billion**\
 `The company’s profit increased 11 percent to $24.7 billion, beating Wall Street’s expectations and its own predictions.`\
 https://nytimes.com/2024/10/30/technology/microsoft-quarterly-revenue-profits.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5885044/2024/10/30/valencia-vs-real-madrid-postpone
 **What did the most famous Yankees fan interferer think about Tuesday's World Series incident?**\
 `Maier spoke with levity Wednesday as he compared his famous moment from 28 years ago versus the more infamous moment from Tuesday.`\
 https://nytimes.com/athletic/5885358/2024/10/30/jeffrey-maier-fan-interference-yankees-world-series/
-
-**An Apartment Fit for a Princess, President and Childhood Imagination**\
-`A descendant of the Brothers Grimm and his husband are selling their apartment in the Carlyle on the Upper East Side.`\
-https://nytimes.com/2024/10/30/realestate/brothers-grimm-apartment-upper-east-side.html
-
-**Jessica Campbell, NHL's first woman assistant coach, on the pinch-me moments: 'I don't take it lightly'**\
-`Campbell, the first woman to stand behind an NHL bench as an assistant, says "reception's been really positive" in her early Kraken days.`\
-https://nytimes.com/athletic/5885823/2024/10/30/jessica-campbell-nhl-kraken-coaching/
-
-**Bryce Young to start Week 9 as Andy Dalton returns to practice**\
-`Dalton threw passes during Wednesday's practice but is getting an extra week to recover from the thumb injury he sustained in a car accident`\
-https://nytimes.com/athletic/5885633/2024/10/30/carolina-panthers-bryce-young-andy-dalton/
 

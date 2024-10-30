@@ -1,3 +1,15 @@
+**Maple Leafs' looming decision on Timothy Liljegren: What's next for the defenceman?**\
+`It’s been a frustrating season for Liljegren, who has played in just one of the Maple Leafs' first 10 games this season.`\
+https://nytimes.com/athletic/5886028/2024/10/30/maple-leafs-timothy-liljegren-trade-nhl/
+
+**Meta’s Profit Rises 35 Percent, Even as Spending Spree Continues**\
+`The Silicon Valley company, which owns Facebook, Instagram and WhatsApp, said it does not plan to slow down its investments anytime soon.`\
+https://nytimes.com/2024/10/30/technology/meta-earnings-artificial-intelligence.html
+
+**Trump Supporter Arrested After Brandishing Machete at Early-Voting Site**\
+`The police charged an 18-year-old man with aggravated assault after he confronted two older Harris supporters outside a library in Neptune Beach, Fla.`\
+https://nytimes.com/2024/10/30/us/politics/florida-trump-supporter-arrested-machete.html
+
 **Microsoft’s Quarterly Revenue Is Up 16% to $65.6 Billion**\
 `The company’s profit increased 11 percent to $24.7 billion, beating Wall Street’s expectations and its own predictions.`\
 https://nytimes.com/2024/10/30/technology/microsoft-quarterly-revenue-profits.html
