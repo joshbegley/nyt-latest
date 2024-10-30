@@ -1,3 +1,11 @@
+**Yankees have 'mechanisms' to keep banned fans from stadium: Source**\
+`While a person briefed on stadium security protocols would not elaborate on specifics, they noted that such measures are in place. `\
+https://nytimes.com/athletic/5886126/2024/10/30/mlb-yankees-world-series-stadium-banned-fans/
+
+**Valencia vs Real Madrid set to be postponed due to flooding**\
+`Valencia&#8217;s La Liga match against Real Madrid on Saturday has been postponed as a result of flash flooding and extreme weather conditions in the region.`\
+https://nytimes.com/athletic/5885044/2024/10/30/valencia-vs-real-madrid-postponement/
+
 **Tiny Love Stories: ‘The Day of the Dead Had Never Felt More Alive’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/10/30/style/tiny-modern-love-stories-the-day-of-the-dead-had-never-felt-more-alive.html

@@ -1,3 +1,7 @@
+**Kraken Lays Off 15 Percent of Workers and Names New Co-Chief Executive**\
+`The influential cryptocurrency exchange has undergone several reorganizations in recent years.`\
+https://nytimes.com/2024/10/30/technology/kraken-cryptocurrency-layoff-ceo.html
+
 **Yankees have 'mechanisms' to keep banned fans from stadium: Source**\
 `While a person briefed on stadium security protocols would not elaborate on specifics, they noted that such measures are in place. `\
 https://nytimes.com/athletic/5886126/2024/10/30/mlb-yankees-world-series-stadium-banned-fans/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/5886126/2024/10/30/mlb-yankees-world-series-stadium
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/10/30/style/tiny-modern-love-stories-the-day-of-the-dead-had-never-felt-more-alive.html
 
-**Valencia vs Real Madrid set to be postponed due to flooding**\
-`Valencia&#8217;s La Liga match against Real Madrid on Saturday has been postponed as a result of flash flooding and extreme weather conditions in the region.`\
+**Valencia vs Real Madrid in La Liga set to be postponed due to flash flooding**\
+`Valencia&#8217;s La Liga match against Real Madrid on Saturday is set to be postponed as a result of flash flooding and extreme weather conditions in the region.`\
 https://nytimes.com/athletic/5885044/2024/10/30/valencia-vs-real-madrid-postponement/
 
 **What did the most famous Yankees fan interferer think about Tuesday's World Series incident?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/jd-vance-rockbridge-donors.html
 **Raffensperger Allies Create Group to Fight Election Interference**\
 `The Georgia secretary of state and his allies have created a fund to assist  officials facing baseless lawsuits or other threats. They will also support actions against officials who attempt to subvert the election.`\
 https://nytimes.com/2024/10/30/us/politics/raffensperger-election-workers-defense-fund.html
-
-**Charles Brandt, Whose Book Inspired ‘The Irishman,’ Dies at 82**\
-`“I Heard You Paint Houses,” his true-crime best seller about the death of Jimmy Hoffa, was brought to the screen by Martin Scorsese and Robert De Niro.`\
-https://nytimes.com/2024/10/30/books/charles-brandt-dead.html
 
