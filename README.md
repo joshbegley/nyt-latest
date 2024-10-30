@@ -1,3 +1,7 @@
+**As Trump Sows Doubt on Pennsylvania Voting, Officials Say the System Is Working**\
+`Donald Trump is using reports about suspicious voter registrations to cast the election as already flawed. County officials say the episodes are being distorted.`\
+https://nytimes.com/2024/10/29/us/politics/pennsylvania-voting-trump.html
+
 **Home With a Dome**\
 `Josh M. Kaufmann speaks his Crossword debut into existence.`\
 https://nytimes.com/2024/10/29/crosswords/daily-puzzle-2024-10-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/nikki-haley-trump.html
 **Freeman becomes first player ever with HR in 6 straight World Series games**\
 `The hit, which gave the Dodgers an immediate 2-0 pad, was Freeman's fourth of the 2024 World Series.`\
 https://nytimes.com/athletic/5884206/2024/10/29/freddie-freeman-world-series-home-run-record/
-
-**Yankees fans ejected for prying ball out of Mookie Betts' glove**\
-`A Yankees fan grabbed Dodgers outfielder Mookie Betts' glove, pried it open and ripped the baseball out in the bottom of the first inning.`\
-https://nytimes.com/athletic/5884205/2024/10/29/yankees-fans-interference-ejection-world-series-game-4/
 
