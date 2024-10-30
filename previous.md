@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/30/us/politics/pennsylvania-ballot-delays-lawsuit.html
 
 **Packers QB Jordan Love thinks it's 'realistic' he plays Sunday against the Lions**\
-`Love left last week's game against the Jaguars early with a groin injury and didn't practice on Wednesday.`\
+`Love left last week's game against the Jaguars early with a groin injury and didn't practice Wednesday.`\
 https://nytimes.com/athletic/5886429/2024/10/30/jordan-love-injury-packers-lions/
 
 **Trump Successfully Sues to Extend Mail-In Voting in Bucks County, Pa.**\
