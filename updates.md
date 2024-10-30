@@ -68,6 +68,11 @@ https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats
 `\
 https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats/
 
+**The Maple Leafs after 10 games: How are they better? Where are they worse?**\
+`Breaking down the Maple Leafs' results to start the season into different situations and comparing them to how they fared last season.
+`\
+https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats/
+
 **In Game 4, the Yankees got the jolt of hope they needed: ‘Hey, who doesn’t want to make history?’**\
 `The Yankees will try to become the first team facing a three games to none deficit in the World Series to force a Game 6. `\
 https://nytimes.com/athletic/5884874/2024/10/30/dodgers-yankees-world-series-history-game-4/
