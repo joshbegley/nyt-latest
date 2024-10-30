@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5886126/2024/10/30/mlb-yankees-world-series-stadium
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/10/30/style/tiny-modern-love-stories-the-day-of-the-dead-had-never-felt-more-alive.html
 
-**Valencia vs Real Madrid in La Liga set to be postponed due to flash flooding**\
-`Valencia&#8217;s La Liga match against Real Madrid on Saturday is set to be postponed as a result of flash flooding and extreme weather conditions in the region.`\
+**Valencia vs Real Madrid: La Liga request postponement after flash flooding**\
+`La Liga have requested that Valencia&#8217;s match against Real Madrid be postponed as a result of flash flooding and extreme weather conditions in the region.`\
 https://nytimes.com/athletic/5885044/2024/10/30/valencia-vs-real-madrid-postponement/
 
 **What did the most famous Yankees fan interferer think about Tuesday's World Series incident?**\
