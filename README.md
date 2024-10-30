@@ -1,3 +1,7 @@
+**The Musk campaign steps up.**\
+`By Dealbook`\
+https://nytimes.com/live/2024/10/30/us/harris-trump-election/the-musk-campaign-steps-up
+
 **Poor defense is haunting new-look Timberwolves early this season**\
 `"I feel like we can beat anybody," Edwards said. "If we get back in transition and we rebound."`\
 https://nytimes.com/athletic/5883295/2024/10/30/timberwolves-poor-defense-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/business/economy/economy-gdp-report.html
 **Four Senators takeaways from dominant win over Blues**\
 `The Senators defeated the Blues 8-1 for their best win of the season so far.`\
 https://nytimes.com/athletic/5884254/2024/10/30/senators-blues-win-nhl-takeaways/
-
-**TAFC: Trump's brush with English football, plus Ten Hag's mega pay-off**\
-`In today's edition, we look at a bizarre moment in League Cup history and consider what any Man City punishment could mean for other clubs`\
-https://nytimes.com/athletic/5884835/2024/10/30/the-athletic-fc-trump-ten-hag/
 
