@@ -1,3 +1,7 @@
+**Top notable fan interference plays in MLB history**\
+`It isn’t the first occasion that a fan has interfered with a play during a major league game, and probably won’t be the last.`\
+https://nytimes.com/athletic/5885753/2024/10/30/mlb-fan-interference-moments-ranked-history/
+
 **Maple Leafs' looming decision on Timothy Liljegren: What's next for the defenceman?**\
 `It’s been a frustrating season for Liljegren, who has played in just one of the Maple Leafs' first 10 games this season.`\
 https://nytimes.com/athletic/5886028/2024/10/30/maple-leafs-timothy-liljegren-trade-nhl/
