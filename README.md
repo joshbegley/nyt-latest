@@ -1,4 +1,28 @@
-**Jonathan Kuminga, Lindy Waters III are a winning fit in Warriors' evolving rotation puzzle**\
+**Subway Wedding**\
+`Some couples are embracing the gritty, chaotic appeal of the subway system for their wedding ceremonies and receptions. Where might you want to get married someday?`\
+https://nytimes.com/2024/10/30/learning/subway-wedding.html
+
+**In New York, Democrats See Glimmer of Hope After Stinging Midterm Losses**\
+`Their congressional candidates have fixed key political missteps. But are voters upset about inflation and the migrant influx ready to take the party back?`\
+https://nytimes.com/2024/10/30/nyregion/house-election-democrats-ny.html
+
+**Homeless People Sue New York City for Throwing Away Their Property**\
+`The lawsuit, which could become a class action, argues that the city’s cleanups, or “sweeps,” violate constitutional protections against illegal searches and seizures.`\
+https://nytimes.com/2024/10/30/nyregion/new-york-city-homeless-sweeps-lawsuit.html
+
+**Was Stone Age Scandinavia Struck by Plague?**\
+`New research by geneticists hints at the deadly work of Yersinia pestis 5,000 years ago.`\
+https://nytimes.com/2024/10/30/science/archaeology-scandinavia-plague.html
+
+**This Waterfront District Is a Developer’s Dream. Could It Come True?**\
+`The Red Hook waterfront in Brooklyn used to be home to some of the busiest piers on the East Coast. Developers say the land could fit thousands of housing units.`\
+https://nytimes.com/2024/10/30/nyregion/red-hook-brooklyn-development.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/30/crosswords/spelling-bee-forum.html
+
+**Jonathan Kuminga, Lindy Waters III and the Warriors’ evolving, complicated rotation puzzle**\
 `With Steph Curry injured, Steve Kerr had Kuminga start the game from the bench. He finished with season highs in both minutes and points.`\
 https://nytimes.com/athletic/5884360/2024/10/30/warriors-jonathan-kuminga-lindy-waters-defeat-pelicans/
 
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5884637/2024/10/30/dodgers-yankees-world-series-gam
 **Arsenal Today: Preston away and a sitdown with Per Mertesacker**\
 `Amy Lawrence talks you through what is interesting our team of Arsenal reporters today`\
 https://nytimes.com/athletic/5883044/2024/10/30/arsenal-today-october-30/
-
-**Per Mertesacker interview: Developing Nwaneri and Lewis-Skelly, recruitment and U8s transfers**\
-`The head of Arsenal's academy talks about the challenges and opportunities of trying to develop Arsenal's next generation of players`\
-https://nytimes.com/athletic/5881953/2024/10/30/per-mertesacker-arsenal-academy/
-
-**Word of the Day: tinny**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/30/learning/word-of-the-day-tinny.html
-
-**Canadiens' attention to detail not yet up to standard, and Kraken exposed it**\
-`The Canadiens are seeking a path to maturity, and they took another detour against the Kraken on home ice.`\
-https://nytimes.com/athletic/5884665/2024/10/30/canadiens-kraken-attention-to-detail-exposed/
-
-**Dodgers fail to finish sweep, so all eyes turn to Jack Flaherty for Game 5**\
-`The Dodgers will go up against the Yankees' Gerrit Cole, the reigning American League Cy Young winner.`\
-https://nytimes.com/athletic/5884651/2024/10/30/dodgers-yankees-world-series-jack-flaherty/
-
-**Beto at Everton: The tears, the frustrations - and should he play more?**\
-`His contribution to Saturday's draw will need to become a more regular occurrence if he is to truly make his mark at Goodison Park `\
-https://nytimes.com/athletic/5882234/2024/10/30/beto-everton-playing-time/
-
-**Wolves' next eight games will define their season - breaking down the opponents**\
-`Wolves have had a tough start to the season but now face a run of easier games that will define their campaign`\
-https://nytimes.com/athletic/5882483/2024/10/30/wolves-premier-league-relegation/
 
