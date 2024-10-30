@@ -1,3 +1,7 @@
+**These Georgia Republicans Are Over Trump. Will They Vote for Him Anyway?**\
+`Donald Trump has a particularly fraught history with his party in Georgia. Some Republicans described their calculus in deciding whether to back him.`\
+https://nytimes.com/2024/10/30/us/these-georgia-republicans-are-over-trump-will-they-vote-for-him-anyway.html
+
 **Arnold Schwarzenegger Endorses Harris, Rips Trump’s Effort to Overturn the 2020 Election**\
 `The former actor, who served as governor of California as a Republican, said he didn’t like either party but found Trump’s actions disqualifying.`\
 https://nytimes.com/2024/10/30/us/politics/arnold-schwarzenegger-harris-endorsement-trump.html
