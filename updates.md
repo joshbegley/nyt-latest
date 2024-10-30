@@ -1,3 +1,15 @@
+**Trump and His Allies Link Biden’s ‘Garbage’ Comment to 2016 ‘Deplorables’ Remark**\
+`Within minutes of the clip of President Biden’s remarks going viral, the Trump campaign and others were using it to attack Kamala Harris and Democrats.`\
+https://nytimes.com/2024/10/29/us/politics/biden-trump-supporters-garbage-reaction.html
+
+**Ovechkin scores (twice!), Rempe scraps in Rangers' ugly return to D.C.: 3 takeaways**\
+`Shuffled defensive pairs and blown coverage punctuated a 5-3 loss to Ovechkin and the Capitals in a rare Rangers dud game.`\
+https://nytimes.com/athletic/5884321/2024/10/29/rangers-rempe-ovechkin-capitals/
+
+**Biden Appears to Insult Trump Supporters as ‘Garbage,’ but Quickly Tries to Clarify**\
+`In a posting on social media, President Biden said he was talking about racist language, not Trump supporters.`\
+https://nytimes.com/2024/10/29/us/politics/biden-garbage-trump-supporters.html
+
 **'We're not making plays': So far, Montgomery has no answers for Bruins' stumbles**\
 `From start to finish, the Bruins executed at a minor-league level in a 2-0 loss to Philadelphia.`\
 https://nytimes.com/athletic/5884410/2024/10/29/bruins-montgomery-stumbles-flyers/
