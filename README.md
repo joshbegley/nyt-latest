@@ -1,3 +1,7 @@
+**Zombies Are Real? A Museum Tries to Bury a Hollywood Myth.**\
+`The undead monsters we know from movies and TV are distortions of a figure with roots in the religious practices of  Haiti.`\
+https://nytimes.com/2024/10/30/arts/design/zombies-quai-branly-paris.html
+
 **Top New Jersey Newspapers Will End Print Editions, and One Will Close**\
 `The Star-Ledger, the state’s largest newspaper, will stop publishing its print edition. The Jersey Journal will shut down entirely after 157 years.`\
 https://nytimes.com/2024/10/30/nyregion/nj-star-ledger-jersey-journal-newspapers.html
@@ -33,8 +37,4 @@ https://nytimes.com/spotlight/the-last-word
 **Thursday Briefing: U.S. Voters Focus on the Economy**\
 `Plus, what too much sugar does to your body.`\
 https://nytimes.com/2024/10/30/briefing/economy-spain-floods-lebanon.html
-
-**Monitors, Once Meant to Prevent Election Fraud, Now Seek to Prove It**\
-`Polling place monitors have long provided oversight to elections. But this year, many are there to provide documentation for Donald J. Trump’s claims of fraud.`\
-https://nytimes.com/2024/10/30/us/election-poll-monitors.html
 
