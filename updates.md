@@ -1,3 +1,7 @@
+**China’s Latest Security Target: Halloween Partygoers**\
+`Last year, the Shanghai government said Halloween celebrations were a sign of “cultural tolerance.” This year, the police rounded up people in costume.`\
+https://nytimes.com/2024/10/29/world/asia/china-police-halloween-celebration.html
+
 **Satellite Images Suggest Israel Struck a Major Iranian Missile Plant**\
 `Analysts said the Shahroud Space Center was likely used to produce intermediate-range ballistic missiles that could be used to target Israel.`\
 https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-iran-shahroud-space-center.html

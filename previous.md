@@ -1,3 +1,7 @@
+**China’s Latest Security Target: Halloween Partygoers**\
+`Last year, the Shanghai government said Halloween celebrations were a sign of “cultural tolerance.” This year, the police rounded up people in costume.`\
+https://nytimes.com/2024/10/29/world/asia/china-police-halloween-celebration.html
+
 **Satellite Images Suggest Israel Struck a Major Iranian Missile Plant**\
 `Analysts said the Shahroud Space Center was likely used to produce intermediate-range ballistic missiles that could be used to target Israel.`\
 https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-iran-shahroud-space-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/us/politics/election-2024-race-call.html
 **Vikings trade for Jaguars' Cam Robinson to replace injured Christian Darrisaw**\
 `Darrisaw, the Vikings' standout left tackle, tore his ACL and MCL during a 30-20 loss to the Los Angeles Rams in Week 8.`\
 https://nytimes.com/athletic/5884036/2024/10/29/cam-robinson-vikings-jaguars-trade/
-
-**No tapping out: Colts QB Anthony Richardson has hard lesson to learn from the bench**\
-`Richardson's time in Indianapolis may not be over, but his path back to being the Colts starting QB will be a big challenge. `\
-https://nytimes.com/athletic/5883841/2024/10/29/anthony-richardson-colts-joe-flacco-bench-tap-out/
 
