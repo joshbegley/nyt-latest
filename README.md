@@ -1,3 +1,11 @@
+**'I’m not sure he knew why we were there': The day Trump did the League Cup draw**\
+`Remembering the surreal occasion a future U.S. president appeared on UK TV to pull balls out of a bag...`\
+https://nytimes.com/athletic/5795971/2024/10/30/donald-trump-league-cup-draw/
+
+**Why don't goalkeepers wear caps anymore?**\
+`A goalkeeper wearing a cap during a match is so rare these days that Guglielmo Vicario doing so this month sparked a pang of nostalgia`\
+https://nytimes.com/athletic/5880034/2024/10/30/why-dont-goalkeepers-wear-caps-anymore/
+
 **Explained: If Manchester City are punished will clubs face big bonus bills?**\
 `Was Jose Mourinho being mischievous when discussing Manchester City's charges - or could he actually be in line for some more silverware?`\
 https://nytimes.com/athletic/5869432/2024/10/30/manchester-city-titles-mourinho-bonuses-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/30/briefing/harris-address-israel-ukraine.html
 **Why Pep Guardiola needs Phil Foden to 'break the game' when opponents sit deep**\
 `Manchester City's liking for long-range goals is a product of their manager's patience-first mantra`\
 https://nytimes.com/athletic/5879800/2024/10/30/manchester-city-phil-foden-long-range-goals/
-
-**Fleury bids Pittsburgh adieu with vintage victory: 'Hard to believe that’s the last time'**\
-`From a carbon copy of a Cup-winning save to standing ovations from fans, the best of Fleury was on display in his final night in Pittsburgh.`\
-https://nytimes.com/athletic/5883922/2024/10/30/marc-andre-fleury-pittsburgh-wild-final-victory/
-
-**White Sox hiring Will Venable as manager**\
-`Venable served as the Rangers' associate manager under Bruce Bochy for the past two years, winning a World Series title in 2023.`\
-https://nytimes.com/athletic/5884571/2024/10/30/white-sox-will-venable-manager-hire/
 
