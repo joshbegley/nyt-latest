@@ -1,3 +1,7 @@
+**Yankees Fans Who Interfered With Foul Ball Barred From Game 5**\
+`Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
+https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
+
 **Yankees Fans Who Interfered With Foul Ball Banned for Game 5**\
 `Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
 https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
