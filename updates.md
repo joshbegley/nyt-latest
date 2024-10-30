@@ -1,3 +1,11 @@
+**Europe Imposes Higher Tariffs on Electric Vehicles Made in China**\
+`The tariffs, some as high as 45 percent, are intended to to protect Europe’s automotive sector, but they could escalate a trade war with China.`\
+https://nytimes.com/2024/10/30/business/european-union-china-electric-vehicle-tariffs.html
+
+**Does Penn State have enough to beat Ohio State? Opposing coaches weigh in**\
+`This year’s matchup is the first since 2017 in which the Nittany Lions were ranked higher than the Buckeyes.`\
+https://nytimes.com/athletic/5883834/2024/10/30/penn-state-ohio-state-scouting-report/
+
 **Fixing five of college football's most controversial national champion debates**\
 `What if we could turn back the clock and apply a new postseason format to one of college football's most hotly debated seasons?`\
 https://nytimes.com/athletic/5884310/2024/10/30/college-football-national-champions-history-controversy/
