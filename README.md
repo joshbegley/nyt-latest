@@ -1,3 +1,7 @@
+**Brooklyn’s Strivers and Those a Museum Spurned**\
+`Two surveys of hometown artists — one at the Brooklyn Museum, another of those it snubbed — serve as a meditation on recognition and rejection.`\
+https://nytimes.com/2024/10/30/arts/design/brooklyn-artists-museum-salon-des-refuse.html
+
 **Sweaty Ghosts and Melting Candy: New York City Will Have a Very Warm Halloween**\
 `No need to wear extra layers this year. Temperatures in the city are expected to reach the mid-to-upper 70s on Thursday.`\
 https://nytimes.com/2024/10/30/nyregion/halloween-nyc-weather-hot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/these-georgia-republicans-are-over-trump-will-
 **Arnold Schwarzenegger Endorses Harris, Rips Trump’s Effort to Overturn the 2020 Election**\
 `The former actor, who served as governor of California as a Republican, said he didn’t like either party but found Trump’s actions disqualifying.`\
 https://nytimes.com/2024/10/30/us/politics/arnold-schwarzenegger-harris-endorsement-trump.html
-
-**R.F.K. Jr. Said Trump Promised Him Control of Public Health Agencies. The Campaign Called That Premature.**\
-`The onetime independent presidential candidate, who dropped out and is backing Donald J. Trump, has in recent years promoted unproven theories about the dangers of pharmaceutical treatments.`\
-https://nytimes.com/2024/10/30/us/politics/rfk-jr-trump-health-policy.html
 
