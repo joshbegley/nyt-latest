@@ -1,3 +1,11 @@
+**Boo! Celebrate Halloween with some of the NHL's scariest starts**\
+`Let’s get in the Halloween spirit by building our annual team made up of players off to disappointing starts.`\
+https://nytimes.com/athletic/5883788/2024/10/30/nhl-halloween-players-team-season/
+
+**Three Great Documentaries to Stream**\
+`This month’s picks include a portrait of an artist, a haunting music performance piece and a chilling missing-persons tale.`\
+https://nytimes.com/2024/10/30/movies/great-documentaries-streaming.html
+
 **Two Climate Change Plays Keep the Flames of Hope Alive**\
 `“Hothouse,” at Irish Arts Center, fends off despair with loopiness; “In the Amazon Warehouse Parking Lot,” at Playwrights Horizons, is a fuzzy world lacking depth.`\
 https://nytimes.com/2024/10/30/theater/hothouse-in-the-amazon-warehouse-parking-lot.html
