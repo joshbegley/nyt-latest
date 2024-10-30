@@ -1,3 +1,15 @@
+**Mings makes Villa return after 445 days out injured**\
+`Aston Villa captain Tyrone Mings will make his first start for 445 days in his side&#8217;s Carabao Cup fourth-round tie against Crystal Palace.`\
+https://nytimes.com/athletic/5885882/2024/10/30/tyrone-mings-aston-villa-injury-return/
+
+**Yankees Fans Who Grabbed Dodger’s Glove Must Watch Game 5 on T**\
+`Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
+https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
+
+**Something for Everyone at The Art Show**\
+`The fair at the Park Avenue Armory, with paintings, watercolors and drawings, includes crowd pleasers as well as exciting debuts from midcentury artists flying beneath the radar.`\
+https://nytimes.com/2024/10/30/arts/design/the-art-show-park-avenue-armory-paintings.html
+
 **When Dr. Phil Defended Harris While Endorsing Trump**\
 `It was an odd moment at the big Trump rally.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/dr-phil-trump-rally
