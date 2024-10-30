@@ -1,3 +1,7 @@
+**Five Charged in Cheating Scandal That Helped Over 200 ‘Unqualified’ Texas Teachers**\
+`Prosecutors said that the “kingpin,” a high school basketball coach in Houston, had helped educators fraudulently pass more than 400 tests.`\
+https://nytimes.com/2024/10/30/us/texas-teacher-certification-fraud-scheme.html
+
 **A Jury Is Set for the Trial of Daniel Penny, Accused in Subway Killing**\
 `Lawyers selected 12 Manhattanites and four alternates to hear a manslaughter case that divided the city. Opening statements will be Friday.`\
 https://nytimes.com/2024/10/30/nyregion/daniel-penny-jury-subway-choking.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/florida-bail-bondsman-sex-trafficking.html
 **Gakpo a 'regular starter' for Liverpool - Slot**\
 `Arne Slot admits he&#8217;s got a selection headache after Cody Gakpo scored twice to book Liverpool&#8217;s passage to the quarter finals of the Carabao Cup with a 3-2 victory at Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5886648/2024/10/30/cody-gakpo-liverpool-arne-slot/
-
-**The Symbolism and Spectacle of Harris and Trump’s Closing Arguments**\
-`The candidates saved their closing messages for the biggest possible symbolic locations, in front of the largest crowds.`\
-https://nytimes.com/2024/10/30/opinion/harris-trump-closing-speech-msg-ellipse.html
 

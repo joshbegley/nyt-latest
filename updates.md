@@ -1,3 +1,7 @@
+**Five Charged in Cheating Scandal That Helped Over 200 ‘Unqualified’ Texas Teachers**\
+`Prosecutors said that the “kingpin,” a high school basketball coach in Houston, had helped educators fraudulently pass more than 400 tests.`\
+https://nytimes.com/2024/10/30/us/texas-teacher-certification-fraud-scheme.html
+
 **A Jury Is Set for the Trial of Daniel Penny, Accused in Subway Killing**\
 `Lawyers selected 12 Manhattanites and four alternates to hear a manslaughter case that divided the city. Opening statements will be Friday.`\
 https://nytimes.com/2024/10/30/nyregion/daniel-penny-jury-subway-choking.html
