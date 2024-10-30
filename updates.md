@@ -1,3 +1,11 @@
+**Man City's Miedema undergoes knee surgery**\
+`Manchester City forward Vivianne Miedema has undergone surgery on her left knee.`\
+https://nytimes.com/athletic/5885040/2024/10/30/vivianne-miedema-knee-surgery/
+
+**U.S. Economy Grew at 2.8% Rate in Third Quarter**\
+`In a key economic report released just days before the presidential election, growth was again driven by robust consumer spending.`\
+https://nytimes.com/2024/10/30/business/economy/economy-gross-domestic-product.html
+
 **U.S. Economy Grew at 2.8% Rate in Third Quarter**\
 `The resilience was again driven by robust consumer spending.`\
 https://nytimes.com/2024/10/30/business/economy/economy-gross-domestic-product.html

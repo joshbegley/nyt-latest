@@ -1,5 +1,9 @@
+**Man City's Miedema undergoes knee surgery**\
+`Manchester City forward Vivianne Miedema has undergone surgery on her left knee.`\
+https://nytimes.com/athletic/5885040/2024/10/30/vivianne-miedema-knee-surgery/
+
 **U.S. Economy Grew at 2.8% Rate in Third Quarter**\
-`The resilience was again driven by robust consumer spending.`\
+`In a key economic report released just days before the presidential election, growth was again driven by robust consumer spending.`\
 https://nytimes.com/2024/10/30/business/economy/economy-gross-domestic-product.html
 
 **Four Senators takeaways from dominant win over Blues**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/30/us/harris-trump-election
 **What we've learned about the Golden Knights through their first 10 games**\
 `Examining what has gone right for Vegas, which has jumped out to an early lead in the Pacific Division. `\
 https://nytimes.com/athletic/5883569/2024/10/30/golden-knights-season-home/
-
-**Giants offseason primer: Important dates and deadlines to know**\
-`These are all of the key dates and deadlines for the Giants this offseason.`\
-https://nytimes.com/athletic/5883275/2024/10/30/giants-offseason-primer-deadlines/
 
