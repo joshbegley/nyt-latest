@@ -1,4 +1,8 @@
-**World Series grand slam trivia, featuring Anthony Volpe's signature Game 4 shot for Yankees**\
+**The Pulse: Yankees defeat the baseball gods**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5883318/2024/10/30/yankees-dodgers-world-series-anthony-volpe-the-pulse/
+
+**World Series grand slam trivia, featuring Anthony Volpe's signature Game 4 shot**\
 `Does it get any Weirder or Wilder than a World Series slam in Yankee Stadium? Here's everything you need to know about Volpe's big blast. `\
 https://nytimes.com/athletic/5884781/2024/10/30/yankees-world-series-grand-slam-facts-anthony-volpe/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881306/2024/10/30/blackhawks-artyom-levshunov-ahl-
 **Kyler Murray's resurgence, Cooper DeJean's impact, more Week 8 thoughts: Quick Outs**\
 `Murray reminded us just how good he can be, while Cooper DeJean continued his ascent in Philadelphia and Tucker Kraft shined for Green Bay.`\
 https://nytimes.com/athletic/5883627/2024/10/30/nfl-week-8-kyler-murray-quick-outs/
-
-**Harris Makes Her Final Case, and Trump Seizes on ‘Garbage’**\
-`Plus, refunds for canceled flights.`\
-https://nytimes.com/2024/10/30/podcasts/harris-trump-garbage.html
 
