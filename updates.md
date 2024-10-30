@@ -1,3 +1,11 @@
+**Kraken Lays Off 15% of Workers and Names New Co-Chief Executive**\
+`The influential cryptocurrency exchange has undergone several reorganizations in recent years.`\
+https://nytimes.com/2024/10/30/technology/kraken-cryptocurrency-layoff-ceo.html
+
+**Valencia vs Real Madrid in La Liga set to be postponed due to flash flooding**\
+`Valencia&#8217;s La Liga match against Real Madrid on Saturday is set to be postponed as a result of flash flooding and extreme weather conditions in the region.`\
+https://nytimes.com/athletic/5885044/2024/10/30/valencia-vs-real-madrid-postponement/
+
 **Yankees have 'mechanisms' to keep banned fans from stadium: Source**\
 `While a person briefed on stadium security protocols would not elaborate on specifics, they noted that such measures are in place. `\
 https://nytimes.com/athletic/5886126/2024/10/30/mlb-yankees-world-series-stadium-banned-fans/
