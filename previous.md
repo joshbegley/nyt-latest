@@ -1,3 +1,7 @@
+**A Jury Is Set for the Trial of Daniel Penny, Accused in Subway Killing**\
+`Lawyers selected 12 Manhattanites and four alternates to hear a manslaughter case that divided the city. Opening statements will be Friday.`\
+https://nytimes.com/2024/10/30/nyregion/daniel-penny-jury-subway-choking.html
+
 **Gabriel Jesus goal can 'unlock' Arsenal forward - Arteta**\
 `Mikel Arteta believes that Gabriel Jesus ending his nine month goal drought can &#8220;unlock&#8221; the Brazilian in front of goal.`\
 https://nytimes.com/athletic/5886735/2024/10/30/gabriel-jesus-goal-arsenal-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5886648/2024/10/30/cody-gakpo-liverpool-arne-slot/
 **The Symbolism and Spectacle of Harris and Trump’s Closing Arguments**\
 `The candidates saved their closing messages for the biggest possible symbolic locations, in front of the largest crowds.`\
 https://nytimes.com/2024/10/30/opinion/harris-trump-closing-speech-msg-ellipse.html
-
-**Don’t Let Liberal Purity Elect Trump**\
-`Even if you think Harris is flawed on the Middle East, don’t try to punish the Democratic Party and risk a Trump election.`\
-https://nytimes.com/2024/10/30/opinion/gaza-harris-trump.html
 
