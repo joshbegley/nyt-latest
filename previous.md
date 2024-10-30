@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/10/30/opinion/thepoint
+
 **How Daniel Jones, Giants' sputtering offense are even worse than you think**\
 `The hideous 2021 Giants averaged 15.2 points per game. The current team is averaging just 14.6 points per game.`\
 https://nytimes.com/athletic/5884326/2024/10/30/new-york-giants-daniel-jones-offense-brian-daboll/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/arts/design/david-salle-ai-gladstone-painting-art
 **Cowboys Today: An inglorious anniversary highlighting run game struggles, in multiple ways**\
 `Two years ago today, Tony Pollard ran for 100-plus yards and the Cowboys won. That hasn't happened since. `\
 https://nytimes.com/athletic/5884198/2024/10/30/cowboys-today-running-game-dak-prescott/
-
-**The Musk campaign steps up.**\
-`By Dealbook`\
-https://nytimes.com/live/2024/10/30/us/harris-trump-election/the-musk-campaign-steps-up
 

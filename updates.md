@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/10/30/opinion/thepoint
+
 **How Daniel Jones, Giants' sputtering offense are even worse than you think**\
 `The hideous 2021 Giants averaged 15.2 points per game. The current team is averaging just 14.6 points per game.`\
 https://nytimes.com/athletic/5884326/2024/10/30/new-york-giants-daniel-jones-offense-brian-daboll/
