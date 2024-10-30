@@ -1,3 +1,7 @@
+**Penguins Today: Marc-André Fleury's curtain call**\
+`Fleury's final return to Pittsburgh as a player was appropriately filled with memories and adoration.`\
+https://nytimes.com/athletic/5885157/2024/10/30/penguins-today-marc-andre-fleury-pittsburgh/
+
 **Instead of Going Boldly on Space, Harris Has Taken a Steady Approach**\
 `As chair of the White House’s National Space Council, the vice president largely emphasized continuity with policies set by the Trump administration.`\
 https://nytimes.com/2024/10/30/science/kamala-harris-space-nasa-moon.html
