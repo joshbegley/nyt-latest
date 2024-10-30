@@ -1,3 +1,19 @@
+**Home With a Dome**\
+`Josh M. Kaufmann speaks his Crossword debut into existence.`\
+https://nytimes.com/2024/10/29/crosswords/daily-puzzle-2024-10-30.html
+
+**Gaudreau scores twice to help best bud Fleury win final game in Pittsburgh: 3 takeaways**\
+`The Wild's third and fourth lines propelled the comeback to help honor their teammate's emotional evening with a 5-3 win.`\
+https://nytimes.com/athletic/5883972/2024/10/29/wild-gaudreau-goals-fleury-penguins/
+
+**Columbus Crew suffer shocking first-round loss to New York Red Bulls**\
+`New York's Felipe Carballo headed home a flicked-on assist from Dylan Nealis in the 25th minute of the Red Bulls' 1-0 win.`\
+https://nytimes.com/athletic/5884273/2024/10/29/columbus-crew-loss-new-york-red-bulls-mls-playoffs/
+
+**On the Ellipse, the Stakes Loomed Over Harris’s Shoulder**\
+`There was a clear point in returning to the site of Trump’s Jan. 6 crime.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-ellipse-speech-closing
+
 **China’s Latest Security Target: Halloween Partygoers**\
 `Last year, the Shanghai government said Halloween celebrations were a sign of “cultural tolerance.” This year, the police rounded up people in costume.`\
 https://nytimes.com/2024/10/29/world/asia/china-police-halloween-celebration.html
