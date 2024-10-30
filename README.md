@@ -1,6 +1,6 @@
 **A ‘Glorious’ Economy**\
 `The economy is a remarkable success, even if Biden and Harris aren’t getting credit for it.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/krugman-glorious-economy-harris
+https://nytimes.com/2024/10/30/opinion/krugman-glorious-economy-harris.html
 
 **How Donald Trump Is Making Big Promises to Big Business**\
 `Crypto. Big Oil. Tobacco. Vaping. Former President Donald J. Trump has been making overt promises to industry leaders. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
