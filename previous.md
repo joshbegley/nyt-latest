@@ -1,3 +1,11 @@
+**Van Nistelrooy: I will help and serve Man Utd as long as I'm needed**\
+`Manchester United interim head coach Ruud van Nistelrooy has said he will &#8220;help and serve&#8221; the club for as long as he is needed.`\
+https://nytimes.com/athletic/5886638/2024/10/30/ruud-van-nistelrooy-manchester-united-interim-coach/
+
+**Will Starbucks’ Play for Simplicity Fix Its Lackluster Sales?**\
+`Simpler will be better.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/starbucks-earnings-call
+
 **When the Weight of Democracy Is on Your Shoulders**\
 `Election workers are trying to pull off an election and restore faith in a system under attack.`\
 https://nytimes.com/2024/10/30/us/politics/georgia-election-workers-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5886281/2024/10/30/carabao-cup-quarter-final-draw/
 **Biden’s Gaffes Complicate Harris’s Final Stretch, Worrying Democratic Insiders**\
 `President Biden did not attend Vice President Kamala Harris’s speech on Tuesday night, but his ill-timed flub in a video interview caused headaches for her campaign.`\
 https://nytimes.com/2024/10/30/us/politics/biden-comments-harris-campaign.html
-
-**Maple Leafs trade Timothy Liljegren to Sharks for Matt Benning, pair of picks**\
-`Seven years after the Maple Leafs selected Liljegren 17th in the 2017 NHL Draft, they dealt him for a pair of lower draft picks Wednesday.`\
-https://nytimes.com/athletic/5886567/2024/10/30/maple-leafs-liljegren-trade-sharks/
-
-**With $2 Million for G.O.P. Judges, Elon Musk Wades Further Into Texas Politics**\
-`The world’s richest person has waded into local election contests in Texas where his sizable contributions can make a big difference.`\
-https://nytimes.com/2024/10/30/us/politics/elon-musk-texas-donations.html
 
