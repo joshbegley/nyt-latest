@@ -1,3 +1,7 @@
+**How Summerville became Premier League ready: 'He's grown from a skinny teenager into a man'**\
+`Crysencio Summerville made a huge impression against Manchester United last weekend`\
+https://nytimes.com/athletic/5884555/2024/10/30/crysencio-summerville-west-ham-leeds/
+
 **Key meeting, Welbeck request and Amorim plan - inside Manchester United's manager change**\
 `Why Manchester United finally sacked Erik ten Hag, when they first contacted Ruben Amorim and the situation a new head coach will inherit`\
 https://nytimes.com/athletic/5883160/2024/10/30/ten-hag-amorim-welbeck-berrada/
