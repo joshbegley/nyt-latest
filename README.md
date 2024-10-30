@@ -1,3 +1,8 @@
+**The Maple Leafs after 10 games: How are they better? Where are they worse?**\
+`Breaking down the Maple Leafs' results to start the season into different situations and comparing them to how they fared last season.
+`\
+https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats/
+
 **Van Nistelrooy will have 'mixed emotions' as Man United interim coach**\
 `Ruud van Nistelrooy will have &#8220;mixed emotions&#8221; when he leads Manchester United for the first time as interim coach on Wednesday night.`\
 https://nytimes.com/athletic/5884844/2024/10/30/manchester-united-ruud-van-nistelrooy-new-manager/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5883485/2024/10/30/bears-caleb-williams-struggles-c
 **Pulisic restricted to substitute appearance in AC Milan loss after flu**\
 `Christian Pulisic was restricted to playing 28 minutes from the bench during AC Milan&#8217;s loss to Napoli on Tuesday after suffering from flu.`\
 https://nytimes.com/athletic/5884803/2024/10/30/christian-pulisic-ac-milan-flu/
-
-**'I’m playing with house money': Anthony Stolarz has overcome adversity to become Leafs' No. 1 goalie**\
-`Anthony Stolarz never said a bad word about anyone else. He better get used to a lot of people saying a lot of good things about him.`\
-https://nytimes.com/athletic/5877891/2024/10/30/maple-leafs-anthony-stolarz-2/
 
