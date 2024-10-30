@@ -1,3 +1,7 @@
+**These Georgia Republicans Are Over Trump. Will They Vote for Him Anyway?**\
+`Donald Trump has a particularly fraught history with his party in Georgia. Some Republicans described their calculus in deciding whether to back him.`\
+https://nytimes.com/2024/10/30/us/these-georgia-republicans-are-over-trump-will-they-vote-for-him-anyway.html
+
 **Arnold Schwarzenegger Endorses Harris, Rips Trump’s Effort to Overturn the 2020 Election**\
 `The former actor, who served as governor of California as a Republican, said he didn’t like either party but found Trump’s actions disqualifying.`\
 https://nytimes.com/2024/10/30/us/politics/arnold-schwarzenegger-harris-endorsement-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/theater/hothouse-in-the-amazon-warehouse-parking-
 **Being a College Athlete Now Means Constant Travel and Missed Classes**\
 `Players are dealing with far-flung travel, jet lag and the pressures of trying to balance the roles of student, athlete and entrepreneur more than ever before.`\
 https://nytimes.com/2024/10/30/us/college-football-conference-realignment.html
-
-**Public Art Leader to Step Down**\
-`After steering the art program in Madison Square Park for 11 years, Brooke Kamin Rapaport is turning her focus to research on democracy and civic space.`\
-https://nytimes.com/2024/10/30/arts/design/madison-square-park-brooke-kamin-rapaport-leaving.html
 
