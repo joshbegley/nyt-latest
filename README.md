@@ -1,3 +1,7 @@
+**Here is the letter from Sam Bankman-Fried’s parents to Judge Kaplan.**\
+`Over the past nine months, the parents of Mr.`\
+https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-barbara-letter.html
+
 **In Game 4, the Yankees got the jolt of hope they needed: ‘Hey, who doesn’t want to make history?’**\
 `The Yankees will try to become the first team facing a three games to none deficit in the World Series to force a Game 6. `\
 https://nytimes.com/athletic/5884874/2024/10/30/dodgers-yankees-world-series-history-game-4/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5878481/2024/10/30/anthony-richardson-colts-shane-s
 `Breaking down the Maple Leafs' results to start the season into different situations and comparing them to how they fared last season.
 `\
 https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats/
-
-**Van Nistelrooy will have 'mixed emotions' as Man United interim coach**\
-`Ruud van Nistelrooy will have &#8220;mixed emotions&#8221; when he leads Manchester United for the first time as interim coach on Wednesday night.`\
-https://nytimes.com/athletic/5884844/2024/10/30/manchester-united-ruud-van-nistelrooy-new-manager/
 
