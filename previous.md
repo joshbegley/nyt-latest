@@ -1,3 +1,7 @@
+**With Just Days to Go, Fiercely Divided Arizona Remains a ‘Jump Ball’**\
+`Both sides have credible cases to win: Republicans are banking on immigration, while Democrats have put faith in abortion rights and a disdain for Donald J. Trump.`\
+https://nytimes.com/2024/10/30/us/arizona-trump-harris.html
+
 **The Election Looks Like an Intramural Squabble Between Billionaires**\
 `Rich people are becoming polarized, just like everyone else.`\
 https://nytimes.com/2024/10/30/opinion/billionaires-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/world/middleeast/islamic-state-airstrikes-syria.h
 **Bubba Wallace gets new NASCAR crew chief for 2025**\
 `Charles Denike, a crew chief in the Truck Series, will replace Bootie Barker as crew chief for Wallace's No. 23 team.`\
 https://nytimes.com/athletic/5885862/2024/10/30/bubba-wallace-crew-chief-nascar/
-
-**When Yankees Fans Take the Game Into Their Own Hands. Literally.**\
-`Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
-https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
 

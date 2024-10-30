@@ -1,3 +1,7 @@
+**With Just Days to Go, Fiercely Divided Arizona Remains a ‘Jump Ball’**\
+`Both sides have credible cases to win: Republicans are banking on immigration, while Democrats have put faith in abortion rights and a disdain for Donald J. Trump.`\
+https://nytimes.com/2024/10/30/us/arizona-trump-harris.html
+
 **The Election Looks Like an Intramural Squabble Between Billionaires**\
 `Rich people are becoming polarized, just like everyone else.`\
 https://nytimes.com/2024/10/30/opinion/billionaires-election.html
