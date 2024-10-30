@@ -1,3 +1,7 @@
+**Our favorite cards in 2024 Allen & Ginter**\
+`Dinosaur fossils, scratch and sniff cards and more! `\
+https://nytimes.com/athletic/5884378/2024/10/30/topps-allen-ginter-westminster-cards/
+
 **Penguins Today: Marc-André Fleury's curtain call**\
 `Fleury's final return to Pittsburgh as a player was appropriately filled with memories and adoration.`\
 https://nytimes.com/athletic/5885157/2024/10/30/penguins-today-marc-andre-fleury-pittsburgh/
