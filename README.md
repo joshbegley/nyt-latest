@@ -1,3 +1,11 @@
+**'We're not making plays': So far, Montgomery has no answers for Bruins' stumbles**\
+`From start to finish, the Bruins executed at a minor-league level in a 2-0 loss to Philadelphia.`\
+https://nytimes.com/athletic/5884410/2024/10/29/bruins-montgomery-stumbles-flyers/
+
+**'Stop Pointing Fingers and Start Locking Arms,' Harris Says**\
+`Vice President Kamala Harris delivered a speech from Washington’s Ellipse, where former President Trump exhorted his followers on Jan. 6, 2021, highlighting their differences in front of about 75,000 people.`\
+https://nytimes.com/video/us/elections/100000009791606/harris-trump-election-2024-ellipse.html
+
 **20 Years of Impossible Choices in ‘Saw’**\
 `The low-budget 2004 horror movie captured audiences and spawned a franchise by asking tough moral questions.`\
 https://nytimes.com/interactive/2024/10/29/arts/saw-horror-movie-anniversary.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5884273/2024/10/29/columbus-crew-loss-new-york-red-
 **On the Ellipse, the Stakes Loomed Over Harris’s Shoulder**\
 `There was a clear point in returning to the site of Trump’s Jan. 6 crime.`\
 https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-ellipse-speech-closing
-
-**China’s Latest Security Target: Halloween Partygoers**\
-`Last year, the Shanghai government said Halloween celebrations were a sign of “cultural tolerance.” This year, the police rounded up people in costume.`\
-https://nytimes.com/2024/10/29/world/asia/china-police-halloween-celebration.html
-
-**Satellite Images Suggest Israel Struck a Major Iranian Missile Plant**\
-`Analysts said the Shahroud Space Center was likely used to produce intermediate-range ballistic missiles that could be used to target Israel.`\
-https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-iran-shahroud-space-center.html
 
