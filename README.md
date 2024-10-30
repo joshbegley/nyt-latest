@@ -1,3 +1,7 @@
+**With $2 Million for G.O.P. Judges, Elon Musk Wades Further Into Texas Politics**\
+`The world’s richest person has waded into local election contests in Texas where his sizable contributions can make a big difference.`\
+https://nytimes.com/2024/10/30/us/politics/elon-musk-texas-donations.html
+
 **The Briefing: Spurs 2 Man City 1- Injuries for Savinho and Van de Ven, and should Spurs focus on the cups?**\
 `Tottenham knock City out to reach the quarter-finals of the Carabao Cup. Our writers analyse the talking points from north London...`\
 https://nytimes.com/athletic/5882371/2024/10/30/tottenham-city-carabao-cup-savinho-injuries-van-de-ven/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882343/2024/10/30/newcastle-chelsea-carabao-cup-br
 **2025 College basketball: Best futures bets, predictions and picks**\
 `Sam Vecenie gives his best advice on which teams and players to bet on ahead of the NCAA men's basketball season.`\
 https://nytimes.com/athletic/5880814/2024/10/30/2025-college-basketball-best-futures-bets-predictions-picks-and-long-shots/
-
-**The Economy Looks Strong as Election Day Nears**\
-`Also, flash floods killed more than 95 people in Spain. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/10/30/briefing/economy-election-day-flash-floods-spain.html
 
