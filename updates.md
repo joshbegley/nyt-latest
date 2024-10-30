@@ -1,3 +1,15 @@
+**Microsoft’s Quarterly Revenue Is Up 16% to $65.6 Billion**\
+`The company’s profit increased 11 percent to $24.7 billion, beating Wall Street’s expectations and its own predictions.`\
+https://nytimes.com/2024/10/30/technology/microsoft-quarterly-revenue-profits.html
+
+**Nishad Singh, a Top FTX Executive, Is Given No Prison Time After Cooperation**\
+`Mr. Singh, who was a top executive in Sam Bankman-Fried’s business empire, had pleaded guilty to fraud and campaign finance violations that contributed to the collapse of FTX.`\
+https://nytimes.com/2024/10/30/technology/nishad-singh-ftx-executive-sentencing.html
+
+**Valencia vs Real Madrid: La Liga request postponement after flash flooding**\
+`La Liga have requested that Valencia&#8217;s match against Real Madrid be postponed as a result of flash flooding and extreme weather conditions in the region.`\
+https://nytimes.com/athletic/5885044/2024/10/30/valencia-vs-real-madrid-postponement/
+
 **Kraken Lays Off 15% of Workers and Names New Co-Chief Executive**\
 `The influential cryptocurrency exchange has undergone several reorganizations in recent years.`\
 https://nytimes.com/2024/10/30/technology/kraken-cryptocurrency-layoff-ceo.html
