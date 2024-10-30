@@ -1,3 +1,7 @@
+**Yankees have 'mechanisms' to keep banned fans from stadium: Source**\
+`While a person briefed on stadium security protocols would not elaborate on specifics, they noted that such measures are in place. `\
+https://nytimes.com/athletic/5886126/2024/10/30/mlb-yankees-world-series-stadium-banned-fans/
+
 **Tiny Love Stories: ‘The Day of the Dead Had Never Felt More Alive’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/10/30/style/tiny-modern-love-stories-the-day-of-the-dead-had-never-felt-more-alive.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/raffensperger-election-workers-defens
 **Charles Brandt, Whose Book Inspired ‘The Irishman,’ Dies at 82**\
 `“I Heard You Paint Houses,” his true-crime best seller about the death of Jimmy Hoffa, was brought to the screen by Martin Scorsese and Robert De Niro.`\
 https://nytimes.com/2024/10/30/books/charles-brandt-dead.html
-
-**With Just Days to Go, Fiercely Divided Arizona Remains a ‘Jump Ball’**\
-`Both sides have credible cases to win: Republicans are banking on immigration, while Democrats have put faith in abortion rights and a disdain for Donald J. Trump.`\
-https://nytimes.com/2024/10/30/us/arizona-trump-harris.html
 
