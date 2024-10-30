@@ -1,3 +1,7 @@
+**Our favorite cards in 2024 Allen & Ginter**\
+`Dinosaur fossils, scratch and sniff cards and more! `\
+https://nytimes.com/athletic/5884378/2024/10/30/topps-allen-ginter-westminster-cards/
+
 **Penguins Today: Marc-André Fleury's curtain call**\
 `Fleury's final return to Pittsburgh as a player was appropriately filled with memories and adoration.`\
 https://nytimes.com/athletic/5885157/2024/10/30/penguins-today-marc-andre-fleury-pittsburgh/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881748/2024/10/30/taylor-hendricks-injury-jazz/
 **Massachusetts Is Making Its High School Diplomas Meaningless**\
 `A ballot initiative targets tests rather than fixing problems in the system`\
 https://nytimes.com/2024/10/30/opinion/massachusetts-ballot-question-2.html
-
-**Our Fun Friend Bails on Dinner Dates but Still Sends Her Dull Husband. Help!**\
-`Tired of being saddled with “dud” husbands when their more exciting wives bow out of plans, a reader wonders if there’s a way to delicately insist that both members of a couple attend.`\
-https://nytimes.com/2024/10/30/style/dinner-date-cancellations.html
 
