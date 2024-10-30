@@ -1,3 +1,7 @@
+**Penguins Today: Marc-André Fleury's curtain call**\
+`Fleury's final return to Pittsburgh as a player was appropriately filled with memories and adoration.`\
+https://nytimes.com/athletic/5885157/2024/10/30/penguins-today-marc-andre-fleury-pittsburgh/
+
 **Instead of Going Boldly on Space, Harris Has Taken a Steady Approach**\
 `As chair of the White House’s National Space Council, the vice president largely emphasized continuity with policies set by the Trump administration.`\
 https://nytimes.com/2024/10/30/science/kamala-harris-space-nasa-moon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/opinion/massachusetts-ballot-question-2.html
 **Our Fun Friend Bails on Dinner Dates but Still Sends Her Dull Husband. Help!**\
 `Tired of being saddled with “dud” husbands when their more exciting wives bow out of plans, a reader wonders if there’s a way to delicately insist that both members of a couple attend.`\
 https://nytimes.com/2024/10/30/style/dinner-date-cancellations.html
-
-**Panic in the Frisco? Pelicans need wake-up call after loss to shorthanded Warriors**\
-`Their season is only four games old. But New Orleans' lack of energy and flawed play are raising early alarm bells.  `\
-https://nytimes.com/athletic/5884815/2024/10/30/pelicans-warriors-losing-zion/
 
