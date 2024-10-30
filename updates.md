@@ -1,3 +1,7 @@
+**Anthony Volpe's grand slam lifts Yankees in Game 4 to avoid World Series sweep**\
+`The Yankees become first team since 1970 to force a Game 5 after facing a 3-0 deficit in the World Series.`\
+https://nytimes.com/athletic/5883757/2024/10/29/dodgers-yankees-world-series-anthony-volpe-grand-slam/
+
 **Trump and His Allies Link Biden’s ‘Garbage’ Comment to 2016 ‘Deplorables’ Remark**\
 `Within minutes of the clip of President Biden’s remarks going viral, the Trump campaign and others were using it to attack Kamala Harris and Democrats.`\
 https://nytimes.com/2024/10/29/us/politics/biden-trump-supporters-garbage-reaction.html
