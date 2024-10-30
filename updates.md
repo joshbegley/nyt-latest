@@ -1,3 +1,23 @@
+**Yankees Fans Who Interfered With Foul Ball Banned for Game 5**\
+`Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
+https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
+
+**Breaking: NHL franchises are worth a lot and make money**\
+`The Toronto Maple Leafs lead the way in franchise valuation at an estimated $3.66 billion.`\
+https://nytimes.com/athletic/5885530/2024/10/30/nhl-franchise-valuations-rising/
+
+**Renovated Frick to Reopen in April 2025**\
+`After being closed since 2020 at its Gilded Age mansion on Fifth Avenue, the museum will welcome visitors with a new Vermeer show.`\
+https://nytimes.com/2024/10/30/arts/design/renovated-frick-reopening-april-2025.html
+
+**Something for Everyone at The Art Show**\
+`The fair at the Park Avenue Armory, with paintings, watercolors and drawings, includes crowd pleasers as well as exciting debuts from midcentiry artists flying beneath the radar..`\
+https://nytimes.com/2024/10/30/arts/design/the-art-show-park-avenue-armory-paintings.html
+
+**The many lives of F1's Alessandro Alunni Bravi: Wanting to fight Mafia, repping Sauber**\
+`Small-town lawyer dreams. Part-time journalist. Future novelist? Sauber's team rep is still steering the direction of his life.`\
+https://nytimes.com/athletic/5883297/2024/10/30/alessandro-alunni-bravi-f1-sauber/
+
 **The many lives of Sauber's Alessandro Alunni Bravi, from fighting Mafia to working in F1**\
 `Small-town lawyer dreams. Part-time journalist. Future novelist? Sauber's team rep is still steering the direction of his life.`\
 https://nytimes.com/athletic/5883297/2024/10/30/alessandro-alunni-bravi-f1-sauber/
