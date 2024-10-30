@@ -1,3 +1,7 @@
+**Bengals trade deadline: Why Cincinnati — and Tee Higgins — are content to stand pat**\
+`Higgins and Trey Hendrickson appear to be obvious trade chips, but Cincinnati still believes it can succeed this season.`\
+https://nytimes.com/athletic/5884014/2024/10/30/bengals-trade-deadline-tee-higgins/
+
 **Mandel's Mailbag: Could Georgia be No. 1 but miss out on SEC title game and Playoff bye?**\
 `If Boise State wins out, will it still get the No. 12 seed in the Playoff? If trades were allowed, which would you make after the season?`\
 https://nytimes.com/athletic/5884279/2024/10/30/mandel-georgia-playoff-alabama-lsu/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/michigan-election-voting-ballots.html
 **The D.N.C. Targets Regional Newspapers in New Ad Campaign**\
 `The ads seeking to define Donald Trump as “unhinged, unstable, unchecked” are running in smaller suburban newspapers.`\
 https://nytimes.com/2024/10/30/us/politics/democrats-regional-newspapers-ads.html
-
-**What’s Your Favorite Part of Halloween?**\
-`Elaborate lawn decorations. Bags of candy. Creative costumes. What do you love about the holiday? What could you do without?`\
-https://nytimes.com/2024/10/30/learning/whats-your-favorite-part-of-halloween.html
 
