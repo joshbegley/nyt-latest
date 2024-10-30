@@ -1,3 +1,15 @@
+**Here is the letter from Nishad Singh’s father to Judge Kaplan.**\
+`Over the past nine months, the parents of Mr.`\
+https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-nishad-defense-sentencing.html
+
+**Here is the letter from Caroline Ellison’s parents to Judge Kaplan.**\
+`Over the past nine months, the parents of Mr.`\
+https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-caroline-defense-memo.html
+
+**Read a letter from Sam Bankman-Fried’s father.**\
+`Over the past nine months, the parents of Mr.`\
+https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-joe-bankman-letter.html
+
 **The Maple Leafs after 10 games: How are they better? Where are they worse?**\
 `Breaking down the Maple Leafs' results to start the season into different situations and comparing them to how they fared last season.
 `\

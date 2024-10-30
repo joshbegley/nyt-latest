@@ -1,3 +1,15 @@
+**Here is the letter from Nishad Singh’s father to Judge Kaplan.**\
+`Over the past nine months, the parents of Mr.`\
+https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-nishad-defense-sentencing.html
+
+**Here is the letter from Caroline Ellison’s parents to Judge Kaplan.**\
+`Over the past nine months, the parents of Mr.`\
+https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-caroline-defense-memo.html
+
+**Read a letter from Sam Bankman-Fried’s father.**\
+`Over the past nine months, the parents of Mr.`\
+https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-joe-bankman-letter.html
+
 **Here is the letter from Sam Bankman-Fried’s parents to Judge Kaplan.**\
 `Over the past nine months, the parents of Mr.`\
 https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-barbara-letter.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/5884731/2024/10/30/sophie-braun-argentina-current-u
 **What's next for John Mozeliak and the Cardinals as the MLB offseason looms?**\
 `The Cardinals will say goodbye to several veteran players as the emphasis switches to youth and player development. `\
 https://nytimes.com/athletic/5877962/2024/10/30/cardinals-mlb-offseason-moves/
-
-**Inconsistency, lack of scoring, missing prime McDavid: The Oilers through 10 games**\
-`The Oilers have more points than they did at this time last season, but they still don't look like the Cup contenders everyone expected.`\
-https://nytimes.com/athletic/5883943/2024/10/30/oilers-10-games-mcdavid-inconsistency-scoring/
-
-**Anthony Richardson’s benching goes far beyond his play: ‘A fascinating management dilemma’**\
-`The Colts had an excruciating choice: sit Richardson or lose credibility in the locker room. But that doesn't mean the QB can't be salvaged.`\
-https://nytimes.com/athletic/5878481/2024/10/30/anthony-richardson-colts-shane-steichen-chris-ballard/
-
-**The Maple Leafs after 10 games: How are they better? Where are they worse?**\
-`Breaking down the Maple Leafs' results to start the season into different situations and comparing them to how they fared last season.
-`\
-https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats/
 
