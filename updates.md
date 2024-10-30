@@ -1,3 +1,7 @@
+**The Musk campaign steps up.**\
+`By Dealbook`\
+https://nytimes.com/live/2024/10/30/us/harris-trump-election/the-musk-campaign-steps-up
+
 **Poor defense is haunting new-look Timberwolves early this season**\
 `"I feel like we can beat anybody," Edwards said. "If we get back in transition and we rebound."`\
 https://nytimes.com/athletic/5883295/2024/10/30/timberwolves-poor-defense-mavericks/
