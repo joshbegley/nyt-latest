@@ -1,3 +1,7 @@
+**Brighton don't need January centre-back signing - Hurzeler**\
+`Head coach Fabian Hurzeler says there is no need for Brighton &amp; Hove Albion to sign another central defender in January.`\
+https://nytimes.com/athletic/5882344/2024/10/30/brighton-transfers-january-fabian-hurzeler/
+
 **Hannah Hampton or Mary Earps: Who will be England's No 1 at Euro 2025?**\
 `The Chelsea and PSG keepers played a game each in the October international break, and both can stake a strong claim to the No 1 shirt`\
 https://nytimes.com/athletic/5883953/2024/10/30/mary-earps-hannah-hampton-england-goalkeeper/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5884360/2024/10/30/warriors-jonathan-kuminga-lindy-
 **Jimmy Kimmel: ‘Tonight’s Monologue Is for Republicans’**\
 `Kimmel made a 19-minute case against Donald Trump on Tuesday, asking viewers to “send it to a Republican you love.” (He did throw in a Biden joke.)`\
 https://nytimes.com/2024/10/30/arts/television/jimmy-kimmel-trump-republicans.html
-
-**Anthony Volpe's hometown grand slam provides signature Yankees moment in Game 4**\
-`Volpe envisioned nights like Tuesday “probably every night” as a New York-area child, who grew up idolizing Derek Jeter. `\
-https://nytimes.com/athletic/5884637/2024/10/30/dodgers-yankees-world-series-game-4-anthony-volpe-moment/
 

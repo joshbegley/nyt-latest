@@ -1,3 +1,7 @@
+**Brighton don't need January centre-back signing - Hurzeler**\
+`Head coach Fabian Hurzeler says there is no need for Brighton &amp; Hove Albion to sign another central defender in January.`\
+https://nytimes.com/athletic/5882344/2024/10/30/brighton-transfers-january-fabian-hurzeler/
+
 **Hannah Hampton or Mary Earps: Who will be England's No 1 at Euro 2025?**\
 `The Chelsea and PSG keepers played a game each in the October international break, and both can stake a strong claim to the No 1 shirt`\
 https://nytimes.com/athletic/5883953/2024/10/30/mary-earps-hannah-hampton-england-goalkeeper/
