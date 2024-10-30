@@ -1,3 +1,7 @@
+**Biden Appears to Insult Trump Supporters as ‘Garbage,’ but Quickly Tries to Clarify**\
+`In a posting on social media, President Biden said he was talking about racist language, not Trump supporters.`\
+https://nytimes.com/2024/10/29/us/politics/biden-garbage-trump-supporters.html
+
 **'We're not making plays': So far, Montgomery has no answers for Bruins' stumbles**\
 `From start to finish, the Bruins executed at a minor-league level in a 2-0 loss to Philadelphia.`\
 https://nytimes.com/athletic/5884410/2024/10/29/bruins-montgomery-stumbles-flyers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883972/2024/10/29/wild-gaudreau-goals-fleury-pengu
 **Columbus Crew suffer shocking first-round loss to New York Red Bulls**\
 `New York's Felipe Carballo headed home a flicked-on assist from Dylan Nealis in the 25th minute of the Red Bulls' 1-0 win.`\
 https://nytimes.com/athletic/5884273/2024/10/29/columbus-crew-loss-new-york-red-bulls-mls-playoffs/
-
-**On the Ellipse, the Stakes Loomed Over Harris’s Shoulder**\
-`There was a clear point in returning to the site of Trump’s Jan. 6 crime.`\
-https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-ellipse-speech-closing
 
