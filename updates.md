@@ -1,3 +1,11 @@
+**When the Weight of Democracy Is on Your Shoulders**\
+`Election workers are trying to pull off an election and restore faith in a system under attack.`\
+https://nytimes.com/2024/10/30/us/politics/georgia-election-workers-voters.html
+
+**Bondsman Bailed Women Out of Jail in Exchange for Sex Acts, Prosecutors Say**\
+`Bruce Moncrief, a Central Florida bail bondsman, was charged with human trafficking and racketeering charges. Investigators said the women, held in county jails, paid him with sexual favors.`\
+https://nytimes.com/2024/10/30/us/florida-bail-bondsman-sex-trafficking.html
+
 **Gakpo a 'regular starter' for Liverpool - Slot**\
 `Arne Slot admits he&#8217;s got a selection headache after Cody Gakpo scored twice to book Liverpool&#8217;s passage to the quarter finals of the Carabao Cup with a 3-2 victory at Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5886648/2024/10/30/cody-gakpo-liverpool-arne-slot/
