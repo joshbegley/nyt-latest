@@ -1,3 +1,11 @@
+**Home With a Dome**\
+`Josh M. Kaufmann speaks his Crossword debut into existence.`\
+https://nytimes.com/2024/10/29/crosswords/daily-puzzle-2024-10-30.html
+
+**Gaudreau scores twice to help best bud Fleury win final game in Pittsburgh: 3 takeaways**\
+`The Wild's third and fourth lines propelled the comeback to help honor their teammate's emotional evening with a 5-3 win.`\
+https://nytimes.com/athletic/5883972/2024/10/29/wild-gaudreau-goals-fleury-penguins/
+
 **Columbus Crew suffer shocking first-round loss to New York Red Bulls**\
 `New York's Felipe Carballo headed home a flicked-on assist from Dylan Nealis in the 25th minute of the Red Bulls' 1-0 win.`\
 https://nytimes.com/athletic/5884273/2024/10/29/columbus-crew-loss-new-york-red-bulls-mls-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5884206/2024/10/29/freddie-freeman-world-series-hom
 **Yankees fans ejected for prying ball out of Mookie Betts' glove**\
 `One fan tried to take Betts' glove off his left hand while a second fan swatted Betts' right hand away.`\
 https://nytimes.com/athletic/5884205/2024/10/29/yankees-fans-interference-ejection-world-series-game-4/
-
-**Israel’s allies at the U.N. condemned a law banning the main aid agency for Palestinians.**\
-`At a U.N. Security Council meeting on the aid crisis in Gaza, envoys from the United States, France and Britain were among dozens of speakers denouncing the Israeli legislation.`\
-https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/israel-un-unrwa-ban
-
-**Wisconsin Pizzeria Error Led Dozens to Eat Cannabis Oil Pizza**\
-`At least five customers sought medical attention after eating pizza from the store, Famous Yeti’s Pizza, which accidentally used a legal THC oil, health officials said.`\
-https://nytimes.com/2024/10/29/us/thc-oil-pizza-wisconsin.html
 
