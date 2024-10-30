@@ -1,3 +1,7 @@
+**When Will the Presidential Race Be Called? Here’s What to Know.**\
+`It could take days to know the winner, as it did in 2020, because counting mail ballots takes time. But returns on election night could also offer clarity.`\
+https://nytimes.com/2024/10/29/us/politics/election-2024-race-call.html
+
 **Vikings trade for Jaguars' Cam Robinson to replace injured Christian Darrisaw**\
 `Darrisaw, the Vikings' standout left tackle, tore his ACL and MCL during a 30-20 loss to the Los Angeles Rams in Week 8.`\
 https://nytimes.com/athletic/5884036/2024/10/29/cam-robinson-vikings-jaguars-trade/
