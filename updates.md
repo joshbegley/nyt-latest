@@ -1,3 +1,19 @@
+**Beautiful Badam Burfi Bark for Diwali**\
+`And for Halloween: sheet pan chicken and cheesy broccoli to fuel your trick-or-treaters.`\
+https://nytimes.com/2024/10/30/dining/beautiful-badam-burfi-bark-for-diwali.html
+
+**Fossil Reveals Oldest Known Tadpole That Grew to the Size of a Hot Dog**\
+`A 161 million-year-old fossil, linked to a line of extinct frog-like amphibians, is the oldest tadpole ever found.`\
+https://nytimes.com/2024/10/30/science/oldest-tadpole-fossil-giant.html
+
+**Looking for the Next Streaming Cult Classic? Try Arrow.**\
+`Horror is well-represented on this service, which makes it an ideal spooky season addition to your streaming menu.`\
+https://nytimes.com/2024/10/30/movies/streaming-movies-arrow-player.html
+
+**Britain’s Labour Party Raises Taxes and Investment in Its First Budget**\
+`Rachel Reeves, the new finance minister, announced substantial tax increases in her first budget as she sought to strengthen public finances and services.`\
+https://nytimes.com/2024/10/30/business/uk-budget-taxes-rachel-reeves.html
+
 **Britain’s Labour Party Raises Taxes and Investment in Its First Budget**\
 `Rachel Reeves, the new finance minister, announced substantial tax increases in her first budget as she sought to strengthen public finances and services.`\
 https://nytimes.com/2024/10/30/business/uk-budget-taxes.html

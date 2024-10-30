@@ -1,6 +1,18 @@
+**Beautiful Badam Burfi Bark for Diwali**\
+`And for Halloween: sheet pan chicken and cheesy broccoli to fuel your trick-or-treaters.`\
+https://nytimes.com/2024/10/30/dining/beautiful-badam-burfi-bark-for-diwali.html
+
+**Fossil Reveals Oldest Known Tadpole That Grew to the Size of a Hot Dog**\
+`A 161 million-year-old fossil, linked to a line of extinct frog-like amphibians, is the oldest tadpole ever found.`\
+https://nytimes.com/2024/10/30/science/oldest-tadpole-fossil-giant.html
+
+**Looking for the Next Streaming Cult Classic? Try Arrow.**\
+`Horror is well-represented on this service, which makes it an ideal spooky season addition to your streaming menu.`\
+https://nytimes.com/2024/10/30/movies/streaming-movies-arrow-player.html
+
 **Britain’s Labour Party Raises Taxes and Investment in Its First Budget**\
 `Rachel Reeves, the new finance minister, announced substantial tax increases in her first budget as she sought to strengthen public finances and services.`\
-https://nytimes.com/2024/10/30/business/uk-budget-taxes.html
+https://nytimes.com/2024/10/30/business/uk-budget-taxes-rachel-reeves.html
 
 **No, counting votes for several days is not a sign of fraud.**\
 `While the presidential winner was once usually known on election night, closer races and more mail voting have made it harder to make the call as quickly.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/30/business/volkswagen-earnings-profit-strike.html
 **In Election’s Final Days, Dark Money and ‘Gray Money’ Fund ‘Dirty Tricks’**\
 `Big-money operatives are taking advantage of lax rules at the end of the campaign to hide the true source of their money until after the election is called — or for forever.`\
 https://nytimes.com/2024/10/30/us/politics/dark-money-presidential-campaign.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/10/30/opinion/thepoint
-
-**How Daniel Jones, Giants' sputtering offense are even worse than you think**\
-`The hideous 2021 Giants averaged 15.2 points per game. The current team is averaging just 14.6 points per game.`\
-https://nytimes.com/athletic/5884326/2024/10/30/new-york-giants-daniel-jones-offense-brian-daboll/
-
-**Elon Musk’s SpaceX, Already a Leader in Satellites, Gets Into the Spy Game**\
-`The Pentagon needs what the company offers to compete with China even as it frets over its potential for dominance and the billionaire’s global interests.`\
-https://nytimes.com/2024/10/30/us/politics/spacex-spy-satellites-elon-musk.html
 
