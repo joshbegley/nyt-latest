@@ -1,3 +1,15 @@
+**The ‘Monumental’ Choice Facing Voters**\
+`Readers compare the presidential candidates, and one reacts to Kamala Harris’s speech. Also: Donald Trump’s scandals; a campaign volunteer’s story.`\
+https://nytimes.com/2024/10/30/opinion/harris-trump-election.html
+
+**MLB bans two Yankees fans who interfered with Mookie Betts in Game 4**\
+`The two fans attempted to pry a foul ball in right field foul territory from the Dodgers outfielder in the 1st inning of Tuesday's Game 4.`\
+https://nytimes.com/athletic/5885690/2024/10/30/dodgers-yankees-world-series-fans-banned/
+
+**A Farm-Raised Steelworker Speaks Up for Harris and Against Trump (and Elon Musk)**\
+`Carhartt, a western Pennsylvania accent and a backdrop of tools provide blue-collar credibility in a new ad from Future Forward, the main super PAC aiding Kamala Harris.`\
+https://nytimes.com/2024/10/30/us/politics/harris-pennsylvania-ad-working-class.html
+
 **Silver: Colts GM Chris Ballard has failed to live up to the team's bold promises**\
 `Jim Irsay once hailed Ballard as the best GM candidate of the 21st century. Nearly eight years later, he owns one playoff win.`\
 https://nytimes.com/athletic/5884624/2024/10/30/nfl-gm-chris-ballard-colts-strategy/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5885654/2024/10/30/steelers-mailbag-mike-defabo-bye
 **NASCAR suspends Conner Jones for 1 race after intentional crash**\
 `The driver Jones crashed, Matt Mills, was hospitalized for two days over the weekend as a result of the wreck.`\
 https://nytimes.com/athletic/5885588/2024/10/30/nascar-truck-series-conner-jones-matt-mills-suspension/
-
-**Police investigating Jameson Williams' detainment, release**\
-`The probe seeks to answer why Williams was released from custody after police officers indicated they would take him to jail, per a report.`\
-https://nytimes.com/athletic/5885462/2024/10/30/jameson-williams-lions-police-investigation/
-
-**What’s in Our Queue? Minecraft and More**\
-`I’m a correspondent covering Japan. Here are five mostly Japan-related items I’ve loved seeing, reading and listening to.`\
-https://nytimes.com/interactive/2024/10/30/arts/editors-recommendations-minecraft.html
-
-**Joe Flacco will be Colts starting QB 'going forward,' coach says**\
-`"Tough decision but one I thought was in the best interest of our football team," the coach said Wednesday.`\
-https://nytimes.com/athletic/5885586/2024/10/30/joe-flacco-colts-starting-qb/
 

@@ -2,7 +2,7 @@
 `Readers compare the presidential candidates, and one reacts to Kamala Harris’s speech. Also: Donald Trump’s scandals; a campaign volunteer’s story.`\
 https://nytimes.com/2024/10/30/opinion/harris-trump-election.html
 
-**MLB bans two Yankees fans who interfered with Mookie Betts in Game 4**\
+**MLB bans 2 Yankees fans who interfered with Mookie Betts**\
 `The two fans attempted to pry a foul ball in right field foul territory from the Dodgers outfielder in the 1st inning of Tuesday's Game 4.`\
 https://nytimes.com/athletic/5885690/2024/10/30/dodgers-yankees-world-series-fans-banned/
 
