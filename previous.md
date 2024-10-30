@@ -1,3 +1,7 @@
+**What did the most famous Yankees fan interferer think about Tuesday's World Series incident?**\
+`Maier spoke with levity Wednesday as he compared his famous moment from 28 years ago versus the more infamous moment from Tuesday.`\
+https://nytimes.com/athletic/5885358/2024/10/30/jeffrey-maier-fan-interference-yankees-world-series/
+
 **An Apartment Fit for a Princess, President and Childhood Imagination**\
 `A descendant of the Brothers Grimm and his husband are selling their apartment in the Carlyle on the Upper East Side.`\
 https://nytimes.com/2024/10/30/realestate/brothers-grimm-apartment-upper-east-side.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/opinion/billionaires-election.html
 **Big 12 addressing tech issues with helmet communication ahead of Saturday**\
 `Big 12 teams are being asked to return helmet comms equipment over concerns about encryption.`\
 https://nytimes.com/athletic/5885215/2024/10/30/big-12-helmet-coach-communication/
-
-**A Unified Republican Congress Would Give Trump Broad Power for His Agenda**\
-`A G.O.P. House and Senate could advance Trump-backed legislation and nominees, but thin margins and the filibuster could pose roadblocks and cause Republicans political trouble.`\
-https://nytimes.com/2024/10/30/us/republican-congress-trump-johnson.html
 

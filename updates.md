@@ -1,3 +1,7 @@
+**What did the most famous Yankees fan interferer think about Tuesday's World Series incident?**\
+`Maier spoke with levity Wednesday as he compared his famous moment from 28 years ago versus the more infamous moment from Tuesday.`\
+https://nytimes.com/athletic/5885358/2024/10/30/jeffrey-maier-fan-interference-yankees-world-series/
+
 **An Apartment Fit for a Princess, President and Childhood Imagination**\
 `A descendant of the Brothers Grimm and his husband are selling their apartment in the Carlyle on the Upper East Side.`\
 https://nytimes.com/2024/10/30/realestate/brothers-grimm-apartment-upper-east-side.html
