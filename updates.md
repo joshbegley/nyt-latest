@@ -1,3 +1,7 @@
+**Yankees fans ejected for prying ball out of Mookie Betts' glove**\
+`A Yankees fan grabbed Dodgers outfielder Mookie Betts' glove, pried it open and ripped the baseball out in the bottom of the first inning.`\
+https://nytimes.com/athletic/5884205/2024/10/29/yankees-fans-interference-ejection-world-series-game-4/
+
 **Home With a Dome**\
 `Josh M. Kaufmann speaks his Crossword debut into existence.`\
 https://nytimes.com/2024/10/29/crosswords/daily-puzzle-2024-10-30.html

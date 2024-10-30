@@ -35,6 +35,6 @@ https://nytimes.com/2024/10/29/us/politics/nikki-haley-trump.html
 https://nytimes.com/athletic/5884206/2024/10/29/freddie-freeman-world-series-home-run-record/
 
 **Yankees fans ejected for prying ball out of Mookie Betts' glove**\
-`One fan tried to take Betts' glove off his left hand while a second fan swatted Betts' right hand away.`\
+`A Yankees fan grabbed Dodgers outfielder Mookie Betts' glove, pried it open and ripped the baseball out in the bottom of the first inning.`\
 https://nytimes.com/athletic/5884205/2024/10/29/yankees-fans-interference-ejection-world-series-game-4/
 
