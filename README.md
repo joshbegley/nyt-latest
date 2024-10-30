@@ -1,3 +1,7 @@
+**Desperate Penguins can't even get a boost from Sidney Crosby, Evgeni Malkin on the same line**\
+`For the first time in his 10 seasons, Mike Sullivan has resorted to regularly playing Crosby and Malkin on the same line at even strength.`\
+https://nytimes.com/athletic/5884455/2024/10/29/penguins-sidney-crosby-evgeni-malkin/
+
 **Anthony Volpe, Yankees slam brakes on Dodgers in Game 4: Takeaways**\
 `Volpe's first home run since Sept. 21 was an early grand slam that sparked the Yankees offense.`\
 https://nytimes.com/athletic/5883982/2024/10/29/dodgers-yankees-world-series-game-4-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/29/arts/saw-horror-movie-anniversary.htm
 **Michelle Obama, Rallying Young Voters Near Atlanta, Warns of ‘Apathy’**\
 `With just a few days left to vote early in Georgia, the former first lady offered a bracing tutorial in the realities of political power, beseeching young people to reach out to the undecided voters in their lives.`\
 https://nytimes.com/2024/10/29/us/politics/michelle-obama-rally-atlanta.html
-
-**Partial Breach of Election Machine Passwords in Colorado Poses No Risk, State Says**\
-`The secretary of state said that the machines are not online, require a second set of passwords and are under constant surveillance in locked rooms.`\
-https://nytimes.com/2024/10/29/us/politics/colorado-election-passwords-breach.html
 
