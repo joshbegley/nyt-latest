@@ -2,6 +2,10 @@
 `It was an odd moment at the big Trump rally.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/dr-phil-trump-rally
 
+**Does Kamala Harris Back Free Health Care for Illegal Immigrants?**\
+`Donald Trump and other Republicans have said repeatedly that she does. Her history on the issue is complicated.`\
+https://nytimes.com/2024/10/30/health/harris-immigration-health-care-trump.html
+
 **U.S. Military Says It Killed Up to 35 Islamic State Militants in Syria**\
 `Airstrikes on Monday targeted people who the military said were senior leaders of the group, which has sharply stepped up its attacks in Iraq and Syria.`\
 https://nytimes.com/2024/10/30/world/middleeast/islamic-state-airstrikes-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009792599/harris-biden-trump-garbag
 **The many lives of F1's Alessandro Alunni Bravi: Wanting to fight Mafia, repping Sauber**\
 `Small-town lawyer dreams. Part-time journalist. Future novelist? Sauber's team rep is still steering the direction of his life.`\
 https://nytimes.com/athletic/5883297/2024/10/30/alessandro-alunni-bravi-f1-sauber/
-
-**Lewis Sorley, 90, Who Said the U.S. Won (but Then Lost) in Vietnam, Dies**\
-`His Pulitzer Prize-nominated history of the war was warmly received by the Pentagon, but rejected elsewhere for ignoring what many said made the war “unwinnable.”`\
-https://nytimes.com/2024/10/30/books/lewis-sorley-dead.html
 
