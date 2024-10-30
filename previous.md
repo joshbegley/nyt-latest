@@ -1,3 +1,15 @@
+**What to Know About Spain’s Devastating Floods**\
+`Dozens of people were killed after the downpour, which some residents said was the worst they had ever witnessed.`\
+https://nytimes.com/2024/10/30/world/europe/spain-flash-floods.html
+
+**Fantasy hockey: Rest of season rankings and player projections for 2024-25**\
+`Dom Luszczyszyn offers up his first in-season update to his 2024-25 fantasy hockey rest-of-season rankings and player projections.`\
+https://nytimes.com/athletic/5882585/2024/10/30/fantasy-hockey-rest-of-season-rankings-player-projections-2024-25/
+
+**Rajah Caruth on growing up a NASCAR fan, life in D.C. and more: 12 Questions**\
+`Truck Series driver Rajah Caruth talks going from fan to driver, what life was like growing up in the nation's capital and more.`\
+https://nytimes.com/athletic/5880244/2024/10/30/rajah-caruth-nascar-washington-dc-12-questions/
+
 **Boo! Celebrate Halloween with some of the NHL's scariest starts**\
 `Let’s get in the Halloween spirit by building our annual team made up of players off to disappointing starts.`\
 https://nytimes.com/athletic/5883788/2024/10/30/nhl-halloween-players-team-season/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/30/sports/baseball/rudy-may-dead.html
 **Walking Away From the Tunnel Walk**\
 `Kyle Kuzma unleashed an arms race of pregame N.B.A. style. Now he plans to wear a bland sweatsuit to every game. Will others follow suit?`\
 https://nytimes.com/2024/10/30/style/kyle-kuzma-nba-tunnel-walk-fashion.html
-
-**Heat Today: Is Jimmy Butler worried about Knicks' Josh Hart stopping him?**\
-`The Heat look to run their winning streak to three against New York on Wednesday.`\
-https://nytimes.com/athletic/5885170/2024/10/30/jimmy-butler-heat-josh-hart-knicks/
-
-**Fact-Checking Harris’s Closing Argument**\
-`The vice president has stuck largely to the facts when highlighting the words of her rival, former President Donald J. Trump, but has on occasion omitted context or erred when describing policies and statistics.`\
-https://nytimes.com/2024/10/30/us/politics/fact-check-kamala-harris.html
-
-**WSL agrees 'significant' new broadcast deal with Sky Sports and BBC**\
-`The Women&#8217;s Super League (WSL) has agreed what it calls “the most significant broadcast partnership ever for women’s football” in the United Kingdom and Ireland.`\
-https://nytimes.com/athletic/5885399/2024/10/30/wsl-new-broadcast-deal/
 
