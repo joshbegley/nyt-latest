@@ -1,3 +1,11 @@
+**With $2 Million for G.O.P. Judges, Elon Musk Wades Further Into Texas Politics**\
+`The world’s richest person has waded into local election contests in Texas where his sizable contributions can make a big difference.`\
+https://nytimes.com/2024/10/30/us/politics/elon-musk-texas-donations.html
+
+**The Briefing: Spurs 2 Man City 1- Injuries for Savinho and Van de Ven, and should Spurs focus on the cups?**\
+`Tottenham knock City out to reach the quarter-finals of the Carabao Cup. Our writers analyse the talking points from north London...`\
+https://nytimes.com/athletic/5882371/2024/10/30/tottenham-city-carabao-cup-savinho-injuries-van-de-ven/
+
 **Packers QB Jordan Love thinks it's 'realistic' he plays Sunday against the Lions**\
 `Love left last week's game against the Jaguars early with a groin injury and didn't practice Wednesday.`\
 https://nytimes.com/athletic/5886429/2024/10/30/jordan-love-injury-packers-lions/
