@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘The Day of the Dead Had Never Felt More Alive’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/10/30/style/tiny-modern-love-stories-the-day-of-the-dead-had-never-felt-more-alive.html
+
+**Valencia vs Real Madrid set to be postponed due to flooding**\
+`Valencia&#8217;s league match against Real Madrid on Saturday is set to be postponed as a result of flash flooding and extreme weather conditions in the south east of Spain.`\
+https://nytimes.com/athletic/5885044/2024/10/30/valencia-vs-real-madrid-postponement/
+
 **What did the most famous Yankees fan interferer think about Tuesday's World Series incident?**\
 `Maier spoke with levity Wednesday as he compared his famous moment from 28 years ago versus the more infamous moment from Tuesday.`\
 https://nytimes.com/athletic/5885358/2024/10/30/jeffrey-maier-fan-interference-yankees-world-series/
