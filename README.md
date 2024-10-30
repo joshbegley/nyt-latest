@@ -1,3 +1,7 @@
+**Thompson: Buddy Hield embodies the Warriors' foundational tenet — shooters shoot**\
+`SAN FRANCISCO — Buddy Hield likes to hold a basketball while he sits on the bench.`\
+https://nytimes.com/athletic/5885576/2024/10/30/buddy-hield-warriors-shooting-3s-stephen-curry/
+
 **Brooklyn’s Strivers and Those a Museum Spurned**\
 `Two surveys of hometown artists — one at the Brooklyn Museum, another of those it snubbed — serve as a meditation on recognition and rejection.`\
 https://nytimes.com/2024/10/30/arts/design/brooklyn-artists-museum-salon-des-refuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5885586/2024/10/30/joe-flacco-colts-starting-qb/
 **These Georgia Republicans Are Over Trump. Will They Vote for Him Anyway?**\
 `Donald Trump has a particularly fraught history with his party in Georgia. Some Republicans described their calculus in deciding whether to back him.`\
 https://nytimes.com/2024/10/30/us/these-georgia-republicans-are-over-trump-will-they-vote-for-him-anyway.html
-
-**Arnold Schwarzenegger Endorses Harris, Rips Trump’s Effort to Overturn the 2020 Election**\
-`The former actor, who served as governor of California as a Republican, said he didn’t like either party but found Trump’s actions disqualifying.`\
-https://nytimes.com/2024/10/30/us/politics/arnold-schwarzenegger-harris-endorsement-trump.html
 
