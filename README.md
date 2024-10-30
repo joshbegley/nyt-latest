@@ -1,3 +1,11 @@
+**Bryce Young to start Week 9 as Andy Dalton returns to practice**\
+`Dalton threw passes during Wednesday's practice but is getting an extra week to recover from the thumb injury he sustained in a car accident`\
+https://nytimes.com/athletic/5885633/2024/10/30/carolina-panthers-bryce-young-andy-dalton/
+
+**Vance-Founded Donor Network to Gather Right After Election**\
+`The conservative event could be a celebration — or perhaps the opposite.`\
+https://nytimes.com/2024/10/30/us/politics/jd-vance-rockbridge-donors.html
+
 **Raffensperger Allies Create Group to Fight Election Interference**\
 `The Georgia secretary of state and his allies have created a fund to assist  officials facing baseless lawsuits or other threats. They will also support actions against officials who attempt to subvert the election.`\
 https://nytimes.com/2024/10/30/us/politics/raffensperger-election-workers-defense-fund.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/30/us/elections/trump-harris-economy-poll.html
 **Mings makes Villa return after 445 days out injured**\
 `Aston Villa captain Tyrone Mings will make his first start for 445 days in his side&#8217;s Carabao Cup fourth-round tie against Crystal Palace.`\
 https://nytimes.com/athletic/5885882/2024/10/30/tyrone-mings-aston-villa-injury-return/
-
-**When Dr. Phil Defended Harris While Endorsing Trump**\
-`It was an odd moment at the big Trump rally.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/dr-phil-trump-rally
-
-**Does Kamala Harris Back Free Health Care for Illegal Immigrants?**\
-`Donald Trump and other Republicans have said repeatedly that she does. Her history on the issue is complicated.`\
-https://nytimes.com/2024/10/30/health/harris-immigration-health-care-trump.html
 
