@@ -1,4 +1,4 @@
-**Kraken Lays Off 15 Percent of Workers and Names New Co-Chief Executive**\
+**Kraken Lays Off 15% of Workers and Names New Co-Chief Executive**\
 `The influential cryptocurrency exchange has undergone several reorganizations in recent years.`\
 https://nytimes.com/2024/10/30/technology/kraken-cryptocurrency-layoff-ceo.html
 
