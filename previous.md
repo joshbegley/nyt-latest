@@ -1,3 +1,7 @@
+**Wisconsin Pizzeria Error Led Dozens to Eat Cannabis Oil Pizza**\
+`At least five customers sought medical attention after eating pizza from the store, Famous Yeti’s Pizza, which accidentally used a legal THC oil, health officials said.`\
+https://nytimes.com/2024/10/29/us/thc-oil-pizza-wisconsin.html
+
 **When Will the Presidential Race Be Called? Here’s What to Know.**\
 `It could take days to know the winner, as it did in 2020, because counting mail ballots takes time. But returns on election night could also offer clarity.`\
 https://nytimes.com/2024/10/29/us/politics/election-2024-race-call.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/nyregion/jaywalking-legal-law-nyc.html
 **A Harris Presidency Is the Only Way to Stay Ahead of A.I.**\
 `We must make sure that superintelligent machines remain aligned with human values and interests as they use their powers to go off in their own directions.`\
 https://nytimes.com/2024/10/29/opinion/artificial-intelligence-harris-trump-election.html
-
-**A Conservative Case Against Trump**\
-`In a choice between misfortunes, one is clearly worse.`\
-https://nytimes.com/2024/10/29/opinion/trump-conservative-harris-election.html
 
