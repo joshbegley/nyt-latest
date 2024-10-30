@@ -1,3 +1,15 @@
+**Georgia, Florida are expected to extend their contract with Jacksonville for 2028, beyond**\
+`While EverBank Stadium in Jacksonville is being renovated, Georgia and Florida will play in Atlanta and Tampa in 2026 and 2027.`\
+https://nytimes.com/athletic/5885468/2024/10/30/georgia-florida-atlanta-tampa-jacksonville/
+
+**When War Becomes an Aesthetic, Nobody Wins**\
+`There are fun missions in Call of Duty: Black Ops 6, set during the U.S.-Iraq war of the 1990s. But the conspiratorial plot refuses to engage actual politics or history.`\
+https://nytimes.com/2024/10/30/arts/call-of-duty-black-ops-6-review.html
+
+**Jeff Bezos, Elon Musk and the Billions of Ways to Influence an Election**\
+`The world’s richest men have their own rocket fleets, their own media and their own schemes to succeed with Donald J. Trump.`\
+https://nytimes.com/2024/10/30/technology/jeff-bezos-elon-musk-election.html
+
 **Policing, Abortion, Trump: Inside a Tightening Race for a Key House Seat**\
 `Sue Altman, a Democrat, has focused on reproductive rights as she seeks to unseat a Republican incumbent, Representative Thomas Kean Jr., in a New Jersey swing district.`\
 https://nytimes.com/2024/10/30/nyregion/sue-altman-thomas-kean-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/lighthizer-trump.html
 **The Bounce: Luka Dončić continues owning the Timberwolves**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5884952/2024/10/30/luka-doncic-mavericks-victor-wembanyama-spurs-nba-the-bounce/
-
-**Johnson’s ‘No Obamacare’ Remark Draws Attention to Unpopular Stance**\
-`Speaker Mike Johnson said a Trump victory would allow Republicans to embark on a “massive overhaul” of the Affordable Care Act. He said the party wants to “take a blowtorch to the regulatory state.”`\
-https://nytimes.com/2024/10/30/us/politics/aca-obamacare-mike-johnson-trump.html
-
-**The Windup: Can Yankees turn one into two?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5885391/2024/10/30/yankees-dodgers-world-series-the-windup/
-
-**Scoop City: Lions, Chiefs lead NFL's current playoff picture**\
-`One league-leading QB stat for each of the 14 teams currently within the playoff picture, from Kansas City and Detroit to LA and Philly.`\
-https://nytimes.com/athletic/5885382/2024/10/30/the-nfls-current-playoff-picture-plus-anthony-richardson-as-latest-young-qb-failed/
 
