@@ -1,3 +1,11 @@
+**Renovated Frick to Reopen in April 2025**\
+`After being closed since 2020 at its Gilded Age mansion on Fifth Avenue, the museum will welcome visitors with a new Vermeer show.`\
+https://nytimes.com/2024/10/30/arts/design/renovated-frick-reopening-april-2025.html
+
+**Something for Everyone at The Art Show**\
+`The fair at the Park Avenue Armory, with paintings, watercolors and drawings, includes crowd pleasers as well as exciting debuts from midcentiry artists flying beneath the radar..`\
+https://nytimes.com/2024/10/30/arts/design/the-art-show-park-avenue-armory-paintings.html
+
 **Harris Distances Herself From Biden’s ‘Garbage’ Remark**\
 `Vice President Kamala Harris said that she will represent all Americans following a comment made by President Biden where he appeared to call supporters of former President Donald J. Trump “garbage.”`\
 https://nytimes.com/video/us/elections/100000009792599/harris-biden-trump-garbage-remark.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/30/style/whole-body-deodorant.html
 **Scottie Barnes to miss at least 3 weeks with orbital fracture**\
 `The injury to Barnes, a 23-year-old All-Star, is the latest in a string of ailments for the Toronto Raptors this season.`\
 https://nytimes.com/athletic/5885748/2024/10/30/scottie-barnes-injury-raptors-timeline/
-
-**College football best bets Week 10: Why Liberty and Oklahoma State should bounce back**\
-`Austin Mock is coming off a winning week with his college football best bets and has several plays this week.`\
-https://nytimes.com/athletic/5885643/2024/10/30/colleg-football-best-bets-week-10-liberty-oklahoma-state/
-
-**Harris’s Coattails in New Hampshire May Be Helping Democrat in Governor’s Race**\
-`Distrust of Kelly Ayotte, the Republican candidate, on abortion and strong support for Kamala Harris in the state may be helping keep the race close despite Ms. Ayotte’s advantages.`\
-https://nytimes.com/2024/10/30/us/new-hampshire-ayotte-craig-harris.html
 
