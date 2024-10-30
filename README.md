@@ -1,3 +1,7 @@
+**Harris’s Coattails in New Hampshire May Be Helping Democrat in Governor’s Race**\
+`Distrust of Kelly Ayotte, the Republican candidate, on abortion and strong support for Kamala Harris in the state may be helping keep the race close despite Ms. Ayotte’s advantages.`\
+https://nytimes.com/2024/10/30/us/new-hampshire-ayotte-craig-harris.html
+
 **The ‘Monumental’ Choice Facing Voters**\
 `Readers compare the presidential candidates, and one reacts to Kamala Harris’s speech. Also: Donald Trump’s scandals; a campaign volunteer’s story.`\
 https://nytimes.com/2024/10/30/opinion/harris-trump-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5885055/2024/10/30/ten-hag-nine-man-utd-moments/
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `The Steelers are 6-2 entering their bye week. It's a great time to ask questions to Mike DeFabo, who will answer some of them in a mailbag.`\
 https://nytimes.com/athletic/5885654/2024/10/30/steelers-mailbag-mike-defabo-bye/
-
-**NASCAR suspends Conner Jones for 1 race after intentional crash**\
-`The driver Jones crashed, Matt Mills, was hospitalized for two days over the weekend as a result of the wreck.`\
-https://nytimes.com/athletic/5885588/2024/10/30/nascar-truck-series-conner-jones-matt-mills-suspension/
 
