@@ -1,3 +1,7 @@
+**NASCAR suspends Conner Jones for 1 race after intentional crash**\
+`NASCAR suspended Truck Series driver Conner Jones for one race on Wednesday after he intentionally crashed another driver, Matt Mills — who was hospitalized for two days over the weekend as a result of the wreck.`\
+https://nytimes.com/athletic/5885588/2024/10/30/nascar-truck-series-conner-jones-matt-mills-suspension/
+
 **Police investigating Jameson Williams' detainment, release**\
 `The probe seeks to answer why Williams was released from custody after police officers indicated they would take him to jail, per a report.`\
 https://nytimes.com/athletic/5885462/2024/10/30/jameson-williams-lions-police-investigation/

@@ -1,3 +1,7 @@
+**NASCAR suspends Conner Jones for 1 race after intentional crash**\
+`NASCAR suspended Truck Series driver Conner Jones for one race on Wednesday after he intentionally crashed another driver, Matt Mills — who was hospitalized for two days over the weekend as a result of the wreck.`\
+https://nytimes.com/athletic/5885588/2024/10/30/nascar-truck-series-conner-jones-matt-mills-suspension/
+
 **Police investigating Jameson Williams' detainment, release**\
 `The probe seeks to answer why Williams was released from custody after police officers indicated they would take him to jail, per a report.`\
 https://nytimes.com/athletic/5885462/2024/10/30/jameson-williams-lions-police-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882585/2024/10/30/fantasy-hockey-rest-of-season-ra
 **Rajah Caruth on growing up a NASCAR fan, life in D.C. and more: 12 Questions**\
 `Truck Series driver Rajah Caruth talks going from fan to driver, what life was like growing up in the nation's capital and more.`\
 https://nytimes.com/athletic/5880244/2024/10/30/rajah-caruth-nascar-washington-dc-12-questions/
-
-**Boo! Celebrate Halloween with some of the NHL's scariest starts**\
-`Let’s get in the Halloween spirit by building our annual team made up of players off to disappointing starts.`\
-https://nytimes.com/athletic/5883788/2024/10/30/nhl-halloween-players-team-season/
 
