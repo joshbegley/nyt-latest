@@ -1,3 +1,11 @@
+**Red Wings trade defenseman Olli Määttä to Utah Hockey Club**\
+`Maatta, a two-time Stanley Cup Champion and 2012 first-round pick of the Pittsburgh Penguins, was in his third season with the Red Wings.`\
+https://nytimes.com/athletic/5884602/2024/10/30/olli-maatta-red-wings-utah-hockey-club-trade/
+
+**Wednesday Briefing**\
+`A closing address by Vice President Kamala Harris.`\
+https://nytimes.com/2024/10/30/briefing/harris-address-israel-ukraine.html
+
 **Why Pep Guardiola needs Phil Foden to 'break the game' when opponents sit deep**\
 `Manchester City's liking for long-range goals is a product of their manager's patience-first mantra`\
 https://nytimes.com/athletic/5879800/2024/10/30/manchester-city-phil-foden-long-range-goals/

@@ -1,3 +1,11 @@
+**Red Wings trade defenseman Olli Määttä to Utah Hockey Club**\
+`Maatta, a two-time Stanley Cup Champion and 2012 first-round pick of the Pittsburgh Penguins, was in his third season with the Red Wings.`\
+https://nytimes.com/athletic/5884602/2024/10/30/olli-maatta-red-wings-utah-hockey-club-trade/
+
+**Wednesday Briefing**\
+`A closing address by Vice President Kamala Harris.`\
+https://nytimes.com/2024/10/30/briefing/harris-address-israel-ukraine.html
+
 **Why Pep Guardiola needs Phil Foden to 'break the game' when opponents sit deep**\
 `Manchester City's liking for long-range goals is a product of their manager's patience-first mantra`\
 https://nytimes.com/athletic/5879800/2024/10/30/manchester-city-phil-foden-long-range-goals/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/30/business/tiktok-indonesia-tokopedia-ecommerce-log
 **How TikTok Saved Its E-Commerce Business in Indonesia**\
 `When the government effectively forced TikTok to shut down its Shop feature, the company quickly struck an unusual deal with a local company to bring it back.`\
 https://nytimes.com/2024/10/30/business/tiktok-bytedance-tokopedia-indonesia.html
-
-**Fantasy football rankings Week 9: Sleepers, projections, starts, Patrick Mahomes, Josh Downs**\
-`Jake Ciely offers up his Week 9 fantasy football rankings, and likes Patrick Mahomes to finally have a big day versus a porous Bucs defense.`\
-https://nytimes.com/athletic/5883846/2024/10/30/fantasy-football-rankings-week-9-sleepers-projections-starts-patrick-mahomes-josh-downs/
-
-**Desperate Penguins can't even get a boost from Sidney Crosby, Evgeni Malkin on the same line**\
-`For the first time in his 10 seasons, Mike Sullivan has resorted to regularly playing Crosby and Malkin on the same line at even strength.`\
-https://nytimes.com/athletic/5884455/2024/10/29/penguins-sidney-crosby-evgeni-malkin/
 
