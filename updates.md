@@ -1,3 +1,19 @@
+**Satellite Images Suggest Israel Struck a Major Iranian Missile Plant**\
+`Analysts said the Shahroud Space Center was likely used to produce intermediate-range ballistic missiles that could be used to target Israel.`\
+https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-iran-shahroud-space-center.html
+
+**Corrections: Oct. 30, 2024**\
+`Corrections that appeared in print on Wednesday, Oct. 30, 2024.`\
+https://nytimes.com/2024/10/29/pageoneplus/corrections-oct-30-2024.html
+
+**Nikki Haley Says She Is ‘on Standby’ to Campaign for Donald Trump**\
+`Ms. Haley, a former rival of Mr. Trump, has repeatedly offered advice and criticism to Mr. Trump and other Republican candidates from the sidelines.`\
+https://nytimes.com/2024/10/29/us/politics/nikki-haley-trump.html
+
+**Israel’s allies at the U.N. condemned a law banning the main aid agency for Palestinians.**\
+`At a U.N. Security Council meeting on the aid crisis in Gaza, envoys from the United States, France and Britain were among dozens of speakers denouncing the Israeli legislation.`\
+https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/israel-un-unrwa-ban
+
 **Freeman becomes first player ever with HR in 6 straight World Series games**\
 `The hit, which gave the Dodgers an immediate 2-0 pad, was Freeman's fourth of the 2024 World Series.`\
 https://nytimes.com/athletic/5884206/2024/10/29/freddie-freeman-world-series-home-run-record/
