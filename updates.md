@@ -1,3 +1,7 @@
+**Instead of Going Boldly on Space, Harris Has Taken a Steady Approach**\
+`As chair of the White House’s National Space Council, the vice president largely emphasized continuity with policies set by the Trump administration.`\
+https://nytimes.com/2024/10/30/science/kamala-harris-space-nasa-moon.html
+
 **Wrexham receive new investment from New York family**\
 `Wrexham co-owners Ryan Reynolds and Rob McElhenney have welcomed New York-based Allyn family as new minority investors in the League One club.`\
 https://nytimes.com/athletic/5885061/2024/10/30/wrexham-investors-allyn-familiy/
