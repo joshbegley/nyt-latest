@@ -24,7 +24,7 @@ https://nytimes.com/athletic/5885040/2024/10/30/vivianne-miedema-knee-surgery/
 
 **U.S. Economy Grew at 2.8% Rate in Third Quarter**\
 `In a key economic report released just days before the presidential election, growth was again driven by robust consumer spending.`\
-https://nytimes.com/2024/10/30/business/economy/economy-gross-domestic-product.html
+https://nytimes.com/2024/10/30/business/economy/economy-gdp-report.html
 
 **Four Senators takeaways from dominant win over Blues**\
 `The Senators defeated the Blues 8-1 for their best win of the season so far.`\
