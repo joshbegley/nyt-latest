@@ -1,3 +1,7 @@
+**In Election’s Final Days, Dark Money and ‘Gray Money’ Fund Hidden Agendas**\
+`Big-money operatives are taking advantage of lax rules at the end of the campaign to hide the true source of their money until after the election is called — or for forever.`\
+https://nytimes.com/2024/10/30/us/politics/dark-money-presidential-campaign.html
+
 **Beautiful Badam Burfi Bark for Diwali**\
 `And for Halloween: sheet pan chicken and cheesy broccoli to fuel your trick-or-treaters.`\
 https://nytimes.com/2024/10/30/dining/beautiful-badam-burfi-bark-for-diwali.html
