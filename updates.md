@@ -1,3 +1,7 @@
+**Anthony Volpe's hometown grand slam provides signature Yankees moment in Game 4**\
+`Volpe envisioned nights like Tuesday’s “probably every night” as a New York area child, who grew up idolizing Derek Jeter. `\
+https://nytimes.com/athletic/5884637/2024/10/30/dodgers-yankees-world-series-game-4-anthony-volpe-moment/
+
 **Arsenal Today: Preston away and a sitdown with Per Mertesacker**\
 `Amy Lawrence talks you through what is interesting our team of Arsenal reporters today`\
 https://nytimes.com/athletic/5883044/2024/10/30/arsenal-today-october-30/
