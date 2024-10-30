@@ -1,3 +1,7 @@
+**Ukrainians Tell of Brutal Russian Repression in Occupied Territories**\
+`Moscow is employing a variety of tactics, including torture and forced Russian citizenship, to try to obliterate Ukrainian identity, former detainees and human rights groups say.`\
+https://nytimes.com/2024/10/30/todayspaper/russia-ukraine-war-torture-abuse.html
+
 **Valencia Copa del Rey tie set to be postponed amid extreme weather warnings**\
 `Valencia&#8217;s Copa de Rey match against Parla Escuela on Wednesday is expected to be postponed due to the extreme weather conditions forecast for the coming days.`\
 https://nytimes.com/athletic/5883945/2024/10/30/valencia-copa-del-rey-tie-set-to-be-postponed-amid-extreme-weather-warnings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/kamala-harris-trump-voters.html
 **Once Top Advisers to Trump, They Now Call Him ‘Liar,’ ‘Fascist’ and ‘Unfit’**\
 `Some of the strongest criticisms of former President Donald J. Trump have come from those who knew him as commander in chief.`\
 https://nytimes.com/interactive/2024/10/30/us/politics/trump-administration-criticism.html
-
-**Michigan Clerk Removed From Election Duty Over Plans for a Hand Count**\
-`The clerk had said he wanted to count votes by hand, as Trump-aligned activists push misinformation about problems with voting machines.`\
-https://nytimes.com/2024/10/30/us/politics/michigan-election-voting-ballots.html
 

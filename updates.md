@@ -1,3 +1,7 @@
+**Ukrainians Tell of Brutal Russian Repression in Occupied Territories**\
+`Moscow is employing a variety of tactics, including torture and forced Russian citizenship, to try to obliterate Ukrainian identity, former detainees and human rights groups say.`\
+https://nytimes.com/2024/10/30/todayspaper/russia-ukraine-war-torture-abuse.html
+
 **Valencia Copa del Rey tie set to be postponed amid extreme weather warnings**\
 `Valencia&#8217;s Copa de Rey match against Parla Escuela on Wednesday is expected to be postponed due to the extreme weather conditions forecast for the coming days.`\
 https://nytimes.com/athletic/5883945/2024/10/30/valencia-copa-del-rey-tie-set-to-be-postponed-amid-extreme-weather-warnings/
