@@ -1,3 +1,11 @@
+**Yankees Fans Who Interfered With Foul Ball Banned for Game 5**\
+`Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
+https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
+
+**Breaking: NHL franchises are worth a lot and make money**\
+`The Toronto Maple Leafs lead the way in franchise valuation at an estimated $3.66 billion.`\
+https://nytimes.com/athletic/5885530/2024/10/30/nhl-franchise-valuations-rising/
+
 **Renovated Frick to Reopen in April 2025**\
 `After being closed since 2020 at its Gilded Age mansion on Fifth Avenue, the museum will welcome visitors with a new Vermeer show.`\
 https://nytimes.com/2024/10/30/arts/design/renovated-frick-reopening-april-2025.html
@@ -10,7 +18,7 @@ https://nytimes.com/2024/10/30/arts/design/the-art-show-park-avenue-armory-paint
 `Vice President Kamala Harris said that she will represent all Americans following a comment made by President Biden where he appeared to call supporters of former President Donald J. Trump “garbage.”`\
 https://nytimes.com/video/us/elections/100000009792599/harris-biden-trump-garbage-remark.html
 
-**The many lives of Sauber's Alessandro Alunni Bravi, from fighting Mafia to working in F1**\
+**The many lives of F1's Alessandro Alunni Bravi: Wanting to fight Mafia, repping Sauber**\
 `Small-town lawyer dreams. Part-time journalist. Future novelist? Sauber's team rep is still steering the direction of his life.`\
 https://nytimes.com/athletic/5883297/2024/10/30/alessandro-alunni-bravi-f1-sauber/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5885750/2024/10/30/connor-mcdavid-injury-oilers-rep
 **Fantasy basketball trends and mirages: Has Tyrese Haliburton lost his mojo?**\
 `After watching a week of NBA regular-season action, Eric Wong shares his thoughts on some early trends, and whether or not to believe them. `\
 https://nytimes.com/athletic/5885464/2024/10/30/fantasy-basketball-trends-mirages-haliburton-maxey/
-
-**Wait, Does Your Whole Body Need Deodorant?**\
-`No. But body odor is a hot topic on social media as companies try to provide what one dermatologist called, “the answer to a problem people didn’t even know they have.”`\
-https://nytimes.com/2024/10/30/style/whole-body-deodorant.html
-
-**Scottie Barnes to miss at least 3 weeks with orbital fracture**\
-`The injury to Barnes, a 23-year-old All-Star, is the latest in a string of ailments for the Toronto Raptors this season.`\
-https://nytimes.com/athletic/5885748/2024/10/30/scottie-barnes-injury-raptors-timeline/
 
