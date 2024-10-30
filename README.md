@@ -1,3 +1,15 @@
+**Gabriel Jesus goal can 'unlock' Arsenal forward - Arteta**\
+`Mikel Arteta believes that Gabriel Jesus ending his nine month goal drought can &#8220;unlock&#8221; the Brazilian in front of goal.`\
+https://nytimes.com/athletic/5886735/2024/10/30/gabriel-jesus-goal-arsenal-arteta/
+
+**Nicky Jam, a Reggaeton Star, Withdraws Support for Trump**\
+`The disavowal of the former president reflects the damage inflicted by racist remarks against Puerto Rico and Latinos at a recent rally at Madison Square Garden.`\
+https://nytimes.com/2024/10/30/us/politics/nicky-jam-trump-puerto-rico.html
+
+**Taiwan Braces for Powerful Typhoon Kong-rey**\
+`The approaching storm was forecast to hit as the equivalent of a Category 4 hurricane along Taiwan’s eastern coast on Thursday.`\
+https://nytimes.com/2024/10/30/weather/typhoon-kong-rey-taiwan-landfall.html
+
 **Van Nistelrooy: I will help and serve Man Utd as long as I'm needed**\
 `Manchester United interim head coach Ruud van Nistelrooy has said he will &#8220;help and serve&#8221; the club for as long as he is needed.`\
 https://nytimes.com/athletic/5886638/2024/10/30/ruud-van-nistelrooy-manchester-united-interim-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/30/opinion/harris-trump-closing-speech-msg-ellipse.h
 **Don’t Let Liberal Purity Elect Trump**\
 `Even if you think Harris is flawed on the Middle East, don’t try to punish the Democratic Party and risk a Trump election.`\
 https://nytimes.com/2024/10/30/opinion/gaza-harris-trump.html
-
-**This Election Season, Most Races Aren’t Races at All**\
-`A new report finds that seven in 10 elective offices in this year’s general election are being sought by only one candidate.`\
-https://nytimes.com/2024/10/30/us/election-uncontested-races.html
-
-**EFL Cup QF draw: Spurs host Man Utd, Southampton vs Liverpool**\
-`Tottenham Hotspur will host Manchester United in the quarter finals of the Carabao Cup, while holders Liverpool travel to Southampton.`\
-https://nytimes.com/athletic/5886281/2024/10/30/carabao-cup-quarter-final-draw/
-
-**Biden’s Gaffes Complicate Harris’s Final Stretch, Worrying Democratic Insiders**\
-`President Biden did not attend Vice President Kamala Harris’s speech on Tuesday night, but his ill-timed flub in a video interview caused headaches for her campaign.`\
-https://nytimes.com/2024/10/30/us/politics/biden-comments-harris-campaign.html
 
