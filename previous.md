@@ -1,3 +1,19 @@
+**U.S. Economy Grew at 2.8% Rate in Third Quarter**\
+`The resilience was again driven by robust consumer spending.`\
+https://nytimes.com/2024/10/30/business/economy/economy-gross-domestic-product.html
+
+**Four Senators takeaways from dominant win over Blues**\
+`The Senators defeated the Blues 8-1 for their best win of the season so far.`\
+https://nytimes.com/athletic/5884254/2024/10/30/senators-blues-win-nhl-takeaways/
+
+**TAFC: Trump's brush with English football, plus Ten Hag's mega pay-off**\
+`In today's edition, we look at a bizarre moment in League Cup history and consider what any Man City punishment could mean for other clubs`\
+https://nytimes.com/athletic/5884835/2024/10/30/the-athletic-fc-trump-ten-hag/
+
+**C'est la vie: For the NBA's 3 French rookie lottery picks, it's been a bumpy start**\
+`Zaccharie Risacher, Alex Sarr and Tidjane Salaün are adjusting to life — and the physicality — of the NBA as teenagers.`\
+https://nytimes.com/athletic/5884631/2024/10/30/nba-draft-french-rookies-talent/
+
 **UEFA pledges €1bn and six professional leagues in new women's football strategy**\
 `UEFA has pledged to commit €1billion ($1.`\
 https://nytimes.com/athletic/5884953/2024/10/30/uefa-womens-football-strategy/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5883569/2024/10/30/golden-knights-season-home/
 **Giants offseason primer: Important dates and deadlines to know**\
 `These are all of the key dates and deadlines for the Giants this offseason.`\
 https://nytimes.com/athletic/5883275/2024/10/30/giants-offseason-primer-deadlines/
-
-**Germany Avoids Recession, but Weak Growth Weighs on Europe**\
-`The continent’s economy continued to limp along, expanding just 0.4 percent in the latest quarter, dragged down by a loss of competitiveness.`\
-https://nytimes.com/2024/10/30/business/europe-economy-germany.html
-
-**Rescue Operations Underway as Flash Floods Kill Dozens in Spain**\
-`More than 1,000 soldiers from an emergency response team were deployed, and officials said that many more residents were waiting for help, after more than a month’s worth of rain fell in less than 24 hours in some areas across southern and eastern Spain.`\
-https://nytimes.com/video/world/europe/100000009791927/deadly-flash-floods-spain-killed-rescue.html
-
-**Gauging Commanders' plan at trade deadline goes beyond their 2024 needs**\
-`While the team's surprising surge has it sitting atop the NFC East, the roster is still being constructed with the future in mind. `\
-https://nytimes.com/athletic/5883710/2024/10/30/commanders-trade-deadline-future-needs/
-
-**Big Fire Breaks Out at Nuclear Submarine Plant in Britain**\
-`The authorities said there was no nuclear risk. Two people with smoke inhalation received treatment at a hospital.`\
-https://nytimes.com/2024/10/30/world/europe/fire-nuclear-submarine-uk.html
 
