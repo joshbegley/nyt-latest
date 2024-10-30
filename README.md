@@ -1,3 +1,11 @@
+**An Apartment Fit for a Princess, President and Childhood Imagination**\
+`A descendant of the Brothers Grimm and his husband are selling their apartment in the Carlyle on the Upper East Side.`\
+https://nytimes.com/2024/10/30/realestate/brothers-grimm-apartment-upper-east-side.html
+
+**Jessica Campbell, NHL's first woman assistant coach, on the pinch-me moments: 'I don't take it lightly'**\
+`Campbell, the first woman to stand behind an NHL bench as an assistant, says "reception's been really positive" in her early Kraken days.`\
+https://nytimes.com/athletic/5885823/2024/10/30/jessica-campbell-nhl-kraken-coaching/
+
 **Bryce Young to start Week 9 as Andy Dalton returns to practice**\
 `Dalton threw passes during Wednesday's practice but is getting an extra week to recover from the thumb injury he sustained in a car accident`\
 https://nytimes.com/athletic/5885633/2024/10/30/carolina-panthers-bryce-young-andy-dalton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5885215/2024/10/30/big-12-helmet-coach-communicatio
 **A Unified Republican Congress Would Give Trump Broad Power for His Agenda**\
 `A G.O.P. House and Senate could advance Trump-backed legislation and nominees, but thin margins and the filibuster could pose roadblocks and cause Republicans political trouble.`\
 https://nytimes.com/2024/10/30/us/republican-congress-trump-johnson.html
-
-**Polls Show Trump’s Edge Shrinking on Voters’ Top Issue: The Economy**\
-`It remains priority No. 1 for many voters, particularly those who are still undecided, according to Times/Siena polling. But can Kamala Harris translate her gains into votes?`\
-https://nytimes.com/2024/10/30/us/elections/trump-harris-economy-poll.html
-
-**Mings makes Villa return after 445 days out injured**\
-`Aston Villa captain Tyrone Mings will make his first start for 445 days in his side&#8217;s Carabao Cup fourth-round tie against Crystal Palace.`\
-https://nytimes.com/athletic/5885882/2024/10/30/tyrone-mings-aston-villa-injury-return/
 
