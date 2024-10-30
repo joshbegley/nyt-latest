@@ -1,3 +1,11 @@
+**Columbus Crew suffer shocking first-round loss to New York Red Bulls**\
+`New York's Felipe Carballo headed home a flicked-on assist from Dylan Nealis in the 25th minute of the Red Bulls' 1-0 win.`\
+https://nytimes.com/athletic/5884273/2024/10/29/columbus-crew-loss-new-york-red-bulls-mls-playoffs/
+
+**On the Ellipse, the Stakes Loomed Over Harris’s Shoulder**\
+`There was a clear point in returning to the site of Trump’s Jan. 6 crime.`\
+https://nytimes.com/live/2024/10/22/opinion/thepoint/harris-ellipse-speech-closing
+
 **China’s Latest Security Target: Halloween Partygoers**\
 `Last year, the Shanghai government said Halloween celebrations were a sign of “cultural tolerance.” This year, the police rounded up people in costume.`\
 https://nytimes.com/2024/10/29/world/asia/china-police-halloween-celebration.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/israel-un-unr
 **Wisconsin Pizzeria Error Led Dozens to Eat Cannabis Oil Pizza**\
 `At least five customers sought medical attention after eating pizza from the store, Famous Yeti’s Pizza, which accidentally used a legal THC oil, health officials said.`\
 https://nytimes.com/2024/10/29/us/thc-oil-pizza-wisconsin.html
-
-**When Will the Presidential Race Be Called? Here’s What to Know.**\
-`It could take days to know the winner, as it did in 2020, because counting mail ballots takes time. But returns on election night could also offer clarity.`\
-https://nytimes.com/2024/10/29/us/politics/election-2024-race-call.html
-
-**Vikings trade for Jaguars' Cam Robinson to replace injured Christian Darrisaw**\
-`Darrisaw, the Vikings' standout left tackle, tore his ACL and MCL during a 30-20 loss to the Los Angeles Rams in Week 8.`\
-https://nytimes.com/athletic/5884036/2024/10/29/cam-robinson-vikings-jaguars-trade/
 
