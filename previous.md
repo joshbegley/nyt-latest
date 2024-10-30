@@ -1,3 +1,7 @@
+**In Election’s Final Days, Dark Money and ‘Gray Money’ Fund ‘Dirty Tricks’**\
+`Big-money operatives are taking advantage of lax rules at the end of the campaign to hide the true source of their money until after the election is called — or for forever.`\
+https://nytimes.com/2024/10/30/us/politics/dark-money-presidential-campaign.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/30/opinion/thepoint
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5885061/2024/10/30/wrexham-investors-allyn-familiy/
 **David Salle’s Ghost in the A.I. Machine**\
 `At Gladstone Gallery, the painter’s experiments with artificial intelligence yield compelling results and big questions.`\
 https://nytimes.com/2024/10/30/arts/design/david-salle-ai-gladstone-painting-art.html
-
-**Cowboys Today: An inglorious anniversary highlighting run game struggles, in multiple ways**\
-`Two years ago today, Tony Pollard ran for 100-plus yards and the Cowboys won. That hasn't happened since. `\
-https://nytimes.com/athletic/5884198/2024/10/30/cowboys-today-running-game-dak-prescott/
 

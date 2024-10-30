@@ -1,3 +1,7 @@
+**In Election’s Final Days, Dark Money and ‘Gray Money’ Fund ‘Dirty Tricks’**\
+`Big-money operatives are taking advantage of lax rules at the end of the campaign to hide the true source of their money until after the election is called — or for forever.`\
+https://nytimes.com/2024/10/30/us/politics/dark-money-presidential-campaign.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/30/opinion/thepoint
