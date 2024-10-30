@@ -1,3 +1,19 @@
+**Pennsylvania Democrats File Suit Over Ballot Delays in Erie County**\
+`A lawsuit said that many voters had not received their mail-in ballots, and that return rates in the county lagged far behind the state average.`\
+https://nytimes.com/2024/10/30/us/politics/pennsylvania-ballot-delays-lawsuit.html
+
+**Packers QB Jordan Love thinks it's 'realistic' he plays Sunday against the Lions**\
+`Love left last week's game against the Jaguars early with a groin injury and didn't practice on Wednesday.`\
+https://nytimes.com/athletic/5886429/2024/10/30/jordan-love-injury-packers-lions/
+
+**Trump Successfully Sues to Extend Mail-In Voting in Bucks County, Pa.**\
+`A judge from the county’s Court of Common Pleas granted the Trump campaign’s request. The American Civil Liberties Union, which often opposes Republican groups on legal challenges to voting procedures, applauded the Trump effort.`\
+https://nytimes.com/2024/10/30/us/politics/trump-lawsuit-pennsylvania-mail-in-ballot-voting-bucks-county.html
+
+**Zombies Are Real? A Museum Tries to Bury a Hollywood Myth.**\
+`The undead monsters we know from movies and TV are distortions of a figure with roots in the religious practices of  Haiti.`\
+https://nytimes.com/2024/10/30/arts/design/zombies-quai-branly-paris.html
+
 **An Artist, Her Benefactor and a Murder at a Hamptons Resort**\
 `The owner of a tile company funded Sabina Khorramdel’s life of travel and creation. After she was found slain, his body was discovered at his Pennsylvania home.`\
 https://nytimes.com/2024/10/30/nyregion/hamptons-resort-murder-sabina-khorramdel.html
