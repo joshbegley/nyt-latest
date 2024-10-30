@@ -1,3 +1,7 @@
+**From the Archives: The Last Word**\
+``\
+https://nytimes.com/spotlight/the-last-word
+
 **Thursday Briefing: U.S. Voters Focus on the Economy**\
 `Plus, what too much sugar does to your body.`\
 https://nytimes.com/2024/10/30/briefing/economy-spain-floods-lebanon.html

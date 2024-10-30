@@ -1,3 +1,7 @@
+**From the Archives: The Last Word**\
+``\
+https://nytimes.com/spotlight/the-last-word
+
 **Thursday Briefing: U.S. Voters Focus on the Economy**\
 `Plus, what too much sugar does to your body.`\
 https://nytimes.com/2024/10/30/briefing/economy-spain-floods-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5886028/2024/10/30/maple-leafs-timothy-liljegren-tr
 **Meta’s Profit Rises 35%, Even as Spending Spree Continues**\
 `The Silicon Valley company, which owns Facebook, Instagram and WhatsApp, said it does not plan to slow down its investments anytime soon.`\
 https://nytimes.com/2024/10/30/technology/meta-earnings-artificial-intelligence.html
-
-**Trump Supporter Arrested After Brandishing Machete at Early-Voting Site**\
-`The police charged an 18-year-old man with aggravated assault after he confronted two older Harris supporters outside a library in Neptune Beach, Fla.`\
-https://nytimes.com/2024/10/30/us/politics/florida-trump-supporter-arrested-machete.html
 
