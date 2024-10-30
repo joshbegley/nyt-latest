@@ -1,3 +1,15 @@
+**Desperate Penguins can't even get a boost from Sidney Crosby, Evgeni Malkin on the same line**\
+`For the first time in his 10 seasons, Mike Sullivan has resorted to regularly playing Crosby and Malkin on the same line at even strength.`\
+https://nytimes.com/athletic/5884455/2024/10/29/penguins-sidney-crosby-evgeni-malkin/
+
+**Anthony Volpe, Yankees slam brakes on Dodgers in Game 4: Takeaways**\
+`Volpe's first home run since Sept. 21 was an early grand slam that sparked the Yankees offense.`\
+https://nytimes.com/athletic/5883982/2024/10/29/dodgers-yankees-world-series-game-4-takeaways/
+
+**Ovechkin scores (twice!), Rempe scraps in Rangers' ugly return to D.C.: 3 takeaways**\
+`Shuffled defensive pairs and blown coverage punctuated a 5-3 loss to Alex Ovechkin and the Capitals in a rare Rangers dud game.`\
+https://nytimes.com/athletic/5884321/2024/10/29/rangers-rempe-ovechkin-capitals/
+
 **Anthony Volpe's grand slam lifts Yankees in Game 4 to avoid World Series sweep**\
 `The Yankees become first team since 1970 to force a Game 5 after facing a 3-0 deficit in the World Series.`\
 https://nytimes.com/athletic/5883757/2024/10/29/dodgers-yankees-world-series-anthony-volpe-grand-slam/

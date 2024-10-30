@@ -1,3 +1,11 @@
+**Desperate Penguins can't even get a boost from Sidney Crosby, Evgeni Malkin on the same line**\
+`For the first time in his 10 seasons, Mike Sullivan has resorted to regularly playing Crosby and Malkin on the same line at even strength.`\
+https://nytimes.com/athletic/5884455/2024/10/29/penguins-sidney-crosby-evgeni-malkin/
+
+**Anthony Volpe, Yankees slam brakes on Dodgers in Game 4: Takeaways**\
+`Volpe's first home run since Sept. 21 was an early grand slam that sparked the Yankees offense.`\
+https://nytimes.com/athletic/5883982/2024/10/29/dodgers-yankees-world-series-game-4-takeaways/
+
 **Anthony Volpe's grand slam lifts Yankees in Game 4 to avoid World Series sweep**\
 `The Yankees become first team since 1970 to force a Game 5 after facing a 3-0 deficit in the World Series.`\
 https://nytimes.com/athletic/5883757/2024/10/29/dodgers-yankees-world-series-anthony-volpe-grand-slam/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5883757/2024/10/29/dodgers-yankees-world-series-ant
 https://nytimes.com/2024/10/29/us/politics/biden-trump-supporters-garbage-reaction.html
 
 **Ovechkin scores (twice!), Rempe scraps in Rangers' ugly return to D.C.: 3 takeaways**\
-`Shuffled defensive pairs and blown coverage punctuated a 5-3 loss to Ovechkin and the Capitals in a rare Rangers dud game.`\
+`Shuffled defensive pairs and blown coverage punctuated a 5-3 loss to Alex Ovechkin and the Capitals in a rare Rangers dud game.`\
 https://nytimes.com/athletic/5884321/2024/10/29/rangers-rempe-ovechkin-capitals/
 
 **Biden Appears to Insult Trump Supporters as ‘Garbage,’ but Quickly Tries to Clarify**\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/10/29/arts/saw-horror-movie-anniversary.htm
 **Michelle Obama, Rallying Young Voters Near Atlanta, Warns of ‘Apathy’**\
 `With just a few days left to vote early in Georgia, the former first lady offered a bracing tutorial in the realities of political power, beseeching young people to reach out to the undecided voters in their lives.`\
 https://nytimes.com/2024/10/29/us/politics/michelle-obama-rally-atlanta.html
-
-**Partial Breach of Election Machine Passwords in Colorado Poses No Risk, State Says**\
-`The secretary of state said that the machines are not online, require a second set of passwords and are under constant surveillance in locked rooms.`\
-https://nytimes.com/2024/10/29/us/politics/colorado-election-passwords-breach.html
-
-**As Trump Sows Doubt on Pennsylvania Voting, Officials Say the System Is Working**\
-`Donald Trump is using reports about suspicious voter registrations to cast the election as already flawed. County officials say the episodes are being distorted.`\
-https://nytimes.com/2024/10/29/us/politics/pennsylvania-voting-trump.html
 
