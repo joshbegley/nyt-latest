@@ -1,3 +1,7 @@
+**Arnold Schwarzenegger Endorses Harris, Rips Trump’s Effort to Overturn the 2020 Election**\
+`The former actor, who served as governor of California as a Republican, said he didn’t like either party but found Trump’s actions disqualifying.`\
+https://nytimes.com/2024/10/30/us/politics/arnold-schwarzenegger-harris-endorsement-trump.html
+
 **R.F.K. Jr. Said Trump Promised Him Control of Public Health Agencies. The Campaign Called That Premature.**\
 `The onetime independent presidential candidate, who dropped out and is backing Donald J. Trump, has in recent years promoted unproven theories about the dangers of pharmaceutical treatments.`\
 https://nytimes.com/2024/10/30/us/politics/rfk-jr-trump-health-policy.html

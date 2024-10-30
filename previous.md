@@ -1,3 +1,7 @@
+**Arnold Schwarzenegger Endorses Harris, Rips Trump’s Effort to Overturn the 2020 Election**\
+`The former actor, who served as governor of California as a Republican, said he didn’t like either party but found Trump’s actions disqualifying.`\
+https://nytimes.com/2024/10/30/us/politics/arnold-schwarzenegger-harris-endorsement-trump.html
+
 **R.F.K. Jr. Said Trump Promised Him Control of Public Health Agencies. The Campaign Called That Premature.**\
 `The onetime independent presidential candidate, who dropped out and is backing Donald J. Trump, has in recent years promoted unproven theories about the dangers of pharmaceutical treatments.`\
 https://nytimes.com/2024/10/30/us/politics/rfk-jr-trump-health-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/college-football-conference-realignment.html
 **Public Art Leader to Step Down**\
 `After steering the art program in Madison Square Park for 11 years, Brooke Kamin Rapaport is turning her focus to research on democracy and civic space.`\
 https://nytimes.com/2024/10/30/arts/design/madison-square-park-brooke-kamin-rapaport-leaving.html
-
-**Rudy May, a Stingy Master of the Curveball, Dies at 80**\
-`He overcame a dip in velocity to find pitching success with four teams, including the Yankees and Orioles, and had a dominant season in 1980.`\
-https://nytimes.com/2024/10/30/sports/baseball/rudy-may-dead.html
 
