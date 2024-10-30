@@ -1,5 +1,5 @@
 **Gauging Commanders' plan at trade deadline goes beyond their 2024 needs**\
-`While the team's surprising surge has it sitting atop the NFC East, the roster is still being constructed with the long term in mind. `\
+`While the team's surprising surge has it sitting atop the NFC East, the roster is still being constructed with the future in mind. `\
 https://nytimes.com/athletic/5883710/2024/10/30/commanders-trade-deadline-future-needs/
 
 **Big Fire Breaks Out at Nuclear Submarine Plant in Britain**\
