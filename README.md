@@ -12,7 +12,7 @@ https://nytimes.com/2024/10/30/movies/streaming-movies-arrow-player.html
 
 **Britain’s Labour Party Raises Taxes and Investment in Its First Budget**\
 `Rachel Reeves, the new finance minister, announced substantial tax increases in her first budget as she sought to strengthen public finances and services.`\
-https://nytimes.com/2024/10/30/business/uk-budget-taxes.html
+https://nytimes.com/2024/10/30/business/uk-budget-taxes-rachel-reeves.html
 
 **No, counting votes for several days is not a sign of fraud.**\
 `While the presidential winner was once usually known on election night, closer races and more mail voting have made it harder to make the call as quickly.`\
