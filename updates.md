@@ -1,3 +1,11 @@
+**Britain’s Labour Party Raises Taxes and Investment in Its First Budget**\
+`Rachel Reeves, the new finance minister, announced substantial tax increases in her first budget as she sought to strengthen public finances and services.`\
+https://nytimes.com/2024/10/30/business/uk-budget-taxes.html
+
+**No, counting votes for several days is not a sign of fraud.**\
+`While the presidential winner was once usually known on election night, closer races and more mail voting have made it harder to make the call as quickly.`\
+https://nytimes.com/live/2024/10/28/business/voter-fraud-election-fact-check/voter-fraud-ballot-counting-delays
+
 **A ‘Glorious’ Economy**\
 `The economy is a remarkable success, even if Biden and Harris aren’t getting credit for it.`\
 https://nytimes.com/2024/10/30/opinion/krugman-glorious-economy-harris.html
