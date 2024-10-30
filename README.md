@@ -1,3 +1,7 @@
+**Top notable fan interference plays in MLB history**\
+`It isn’t the first occasion that a fan has interfered with a play during a major league game, and probably won’t be the last.`\
+https://nytimes.com/athletic/5885753/2024/10/30/mlb-fan-interference-moments-ranked-history/
+
 **Maple Leafs' looming decision on Timothy Liljegren: What's next for the defenceman?**\
 `It’s been a frustrating season for Liljegren, who has played in just one of the Maple Leafs' first 10 games this season.`\
 https://nytimes.com/athletic/5886028/2024/10/30/maple-leafs-timothy-liljegren-trade-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/style/tiny-modern-love-stories-the-day-of-the-dea
 **Valencia vs Real Madrid: La Liga request postponement after flash flooding**\
 `La Liga have requested that Valencia&#8217;s match against Real Madrid be postponed as a result of flash flooding and extreme weather conditions in the region.`\
 https://nytimes.com/athletic/5885044/2024/10/30/valencia-vs-real-madrid-postponement/
-
-**What did the most famous Yankees fan interferer think about Tuesday's World Series incident?**\
-`Maier spoke with levity Wednesday as he compared his famous moment from 28 years ago versus the more infamous moment from Tuesday.`\
-https://nytimes.com/athletic/5885358/2024/10/30/jeffrey-maier-fan-interference-yankees-world-series/
 
