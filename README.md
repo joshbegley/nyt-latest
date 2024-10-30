@@ -1,3 +1,7 @@
+**Hannah Hampton or Mary Earps: Who will be England's No 1 at Euro 2025?**\
+`The Chelsea and PSG keepers played a game each in the October international break, and both can stake a strong claim to the No 1 shirt`\
+https://nytimes.com/athletic/5883953/2024/10/30/mary-earps-hannah-hampton-england-goalkeeper/
+
 **Subway Wedding**\
 `Some couples are embracing the gritty, chaotic appeal of the subway system for their wedding ceremonies and receptions. Where might you want to get married someday?`\
 https://nytimes.com/2024/10/30/learning/subway-wedding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/arts/television/jimmy-kimmel-trump-republicans.ht
 **Anthony Volpe's hometown grand slam provides signature Yankees moment in Game 4**\
 `Volpe envisioned nights like Tuesday “probably every night” as a New York-area child, who grew up idolizing Derek Jeter. `\
 https://nytimes.com/athletic/5884637/2024/10/30/dodgers-yankees-world-series-game-4-anthony-volpe-moment/
-
-**Arsenal Today: Preston away and a sitdown with Per Mertesacker**\
-`Amy Lawrence talks you through what is interesting our team of Arsenal reporters today`\
-https://nytimes.com/athletic/5883044/2024/10/30/arsenal-today-october-30/
 
