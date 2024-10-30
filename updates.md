@@ -1,3 +1,11 @@
+**An Apartment Fit for a Princess, President and Childhood Imagination**\
+`A descendant of the Brothers Grimm and his husband are selling their apartment in the Carlyle on the Upper East Side.`\
+https://nytimes.com/2024/10/30/realestate/brothers-grimm-apartment-upper-east-side.html
+
+**Jessica Campbell, NHL's first woman assistant coach, on the pinch-me moments: 'I don't take it lightly'**\
+`Campbell, the first woman to stand behind an NHL bench as an assistant, says "reception's been really positive" in her early Kraken days.`\
+https://nytimes.com/athletic/5885823/2024/10/30/jessica-campbell-nhl-kraken-coaching/
+
 **Bryce Young to start Week 9 as Andy Dalton returns to practice**\
 `Dalton threw passes during Wednesday's practice but is getting an extra week to recover from the thumb injury he sustained in a car accident`\
 https://nytimes.com/athletic/5885633/2024/10/30/carolina-panthers-bryce-young-andy-dalton/
