@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5881953/2024/10/30/per-mertesacker-arsenal-academy/
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/30/learning/word-of-the-day-tinny.html
 
-**Canadiens' attention to detail is not yet up to standard, and the Kraken exposed it**\
+**Canadiens' attention to detail not yet up to standard, and Kraken exposed it**\
 `The Canadiens are seeking a path to maturity, and they took another detour against the Kraken on home ice.`\
 https://nytimes.com/athletic/5884665/2024/10/30/canadiens-kraken-attention-to-detail-exposed/
 
