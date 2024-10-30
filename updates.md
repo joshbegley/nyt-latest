@@ -1,3 +1,7 @@
+**20 Years of Impossible Choices in ‘Saw’**\
+`By Annie Aguiar and Joyce Ho`\
+https://nytimes.com/interactive/2024/10/29/arts/saw-horror-movie-anniversary.html
+
 **Michelle Obama, Rallying Young Voters Near Atlanta, Warns of ‘Apathy’**\
 `With just a few days left to vote early in Georgia, the former first lady offered a bracing tutorial in the realities of political power, beseeching young people to reach out to the undecided voters in their lives.`\
 https://nytimes.com/2024/10/29/us/politics/michelle-obama-rally-atlanta.html

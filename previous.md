@@ -1,3 +1,7 @@
+**20 Years of Impossible Choices in ‘Saw’**\
+`By Annie Aguiar and Joyce Ho`\
+https://nytimes.com/interactive/2024/10/29/arts/saw-horror-movie-anniversary.html
+
 **Michelle Obama, Rallying Young Voters Near Atlanta, Warns of ‘Apathy’**\
 `With just a few days left to vote early in Georgia, the former first lady offered a bracing tutorial in the realities of political power, beseeching young people to reach out to the undecided voters in their lives.`\
 https://nytimes.com/2024/10/29/us/politics/michelle-obama-rally-atlanta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/29/world/asia/china-police-halloween-celebration.htm
 **Satellite Images Suggest Israel Struck a Major Iranian Missile Plant**\
 `Analysts said the Shahroud Space Center was likely used to produce intermediate-range ballistic missiles that could be used to target Israel.`\
 https://nytimes.com/2024/10/29/world/middleeast/israel-strikes-iran-shahroud-space-center.html
-
-**Corrections: Oct. 30, 2024**\
-`Corrections that appeared in print on Wednesday, Oct. 30, 2024.`\
-https://nytimes.com/2024/10/29/pageoneplus/corrections-oct-30-2024.html
 
