@@ -1,3 +1,11 @@
+**Fixing five of college football's most controversial national champion debates**\
+`What if we could turn back the clock and apply a new postseason format to one of college football's most hotly debated seasons?`\
+https://nytimes.com/athletic/5884310/2024/10/30/college-football-national-champions-history-controversy/
+
+**How Biden and Harris Built That Wall**\
+`Behind the scenes, Biden and Harris conducted a campaign to secure the border.`\
+https://nytimes.com/video/opinion/100000009776724/biden-harris-border-immigration.html
+
 **Key meeting, Welbeck request and Amorim plan - inside Manchester United's manager change**\
 `Why Manchester United finally sacked Erik ten Hag, when they first contacted Ruben Amorim and the situation a new head coach will inherit`\
 https://nytimes.com/athletic/5883160/2024/10/30/ten-hag-amorim-welbeck-berrada/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/30/nyregion/new-york-city-homeless-sweeps-lawsuit.ht
 **Was Stone Age Scandinavia Struck by Plague?**\
 `New research by geneticists hints at the deadly work of Yersinia pestis 5,000 years ago.`\
 https://nytimes.com/2024/10/30/science/archaeology-scandinavia-plague.html
-
-**This Waterfront District Is a Developer’s Dream. Could It Come True?**\
-`The Red Hook waterfront in Brooklyn used to be home to some of the busiest piers on the East Coast. Developers say the land could fit thousands of housing units.`\
-https://nytimes.com/2024/10/30/nyregion/red-hook-brooklyn-development.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/30/crosswords/spelling-bee-forum.html
 

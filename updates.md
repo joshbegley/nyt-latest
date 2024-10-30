@@ -1,3 +1,11 @@
+**Fixing five of college football's most controversial national champion debates**\
+`What if we could turn back the clock and apply a new postseason format to one of college football's most hotly debated seasons?`\
+https://nytimes.com/athletic/5884310/2024/10/30/college-football-national-champions-history-controversy/
+
+**How Biden and Harris Built That Wall**\
+`Behind the scenes, Biden and Harris conducted a campaign to secure the border.`\
+https://nytimes.com/video/opinion/100000009776724/biden-harris-border-immigration.html
+
 **How Summerville became Premier League ready: 'He's grown from a skinny teenager into a man'**\
 `Crysencio Summerville made a huge impression against Manchester United last weekend`\
 https://nytimes.com/athletic/5884555/2024/10/30/crysencio-summerville-west-ham-leeds/
