@@ -1,3 +1,7 @@
+**R.F.K. Jr. Said Trump Promised Him Control of Public Health Agencies. The Campaign Called That Premature.**\
+`The onetime independent presidential candidate, who dropped out and is backing Donald J. Trump, has in recent years promoted unproven theories about the dangers of pharmaceutical treatments.`\
+https://nytimes.com/2024/10/30/us/politics/rfk-jr-trump-health-policy.html
+
 **What to Know About Spain’s Devastating Floods**\
 `Dozens of people were killed after the downpour, which some residents said was the worst they had ever witnessed.`\
 https://nytimes.com/2024/10/30/world/europe/spain-flash-floods.html
