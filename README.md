@@ -1,3 +1,7 @@
+**R.F.K. Jr. Said Trump Promised Him Control of Public Health Agencies. The Campaign Called That Premature.**\
+`The onetime independent presidential candidate, who dropped out and is backing Donald J. Trump, has in recent years promoted unproven theories about the dangers of pharmaceutical treatments.`\
+https://nytimes.com/2024/10/30/us/politics/rfk-jr-trump-health-policy.html
+
 **What to Know About Spain’s Devastating Floods**\
 `Dozens of people were killed after the downpour, which some residents said was the worst they had ever witnessed.`\
 https://nytimes.com/2024/10/30/world/europe/spain-flash-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/arts/design/madison-square-park-brooke-kamin-rapa
 **Rudy May, a Stingy Master of the Curveball, Dies at 80**\
 `He overcame a dip in velocity to find pitching success with four teams, including the Yankees and Orioles, and had a dominant season in 1980.`\
 https://nytimes.com/2024/10/30/sports/baseball/rudy-may-dead.html
-
-**Walking Away From the Tunnel Walk**\
-`Kyle Kuzma unleashed an arms race of pregame N.B.A. style. Now he plans to wear a bland sweatsuit to every game. Will others follow suit?`\
-https://nytimes.com/2024/10/30/style/kyle-kuzma-nba-tunnel-walk-fashion.html
 
