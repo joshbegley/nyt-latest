@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/30/nyregion/nj-star-ledger-jersey-journal-newspapers.html
 
 **An Artist, Her Benefactor and a Murder at a Hamptons Resort**\
-`The owner of a Pennsylvania tile company funded Sabina Khorramdel’s life of travel and creation. After she was found slain, his body was discovered at his Pennsylvania home.`\
+`The owner of a tile company funded Sabina Khorramdel’s life of travel and creation. After she was found slain, his body was discovered at his Pennsylvania home.`\
 https://nytimes.com/2024/10/30/nyregion/hamptons-resort-murder-sabina-khorramdel.html
 
 **The Briefing: Newcastle 2 Chelsea 0 - Howe cracks the code as Maresca's changes fall flat**\

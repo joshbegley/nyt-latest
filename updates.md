@@ -1,3 +1,7 @@
+**An Artist, Her Benefactor and a Murder at a Hamptons Resort**\
+`The owner of a tile company funded Sabina Khorramdel’s life of travel and creation. After she was found slain, his body was discovered at his Pennsylvania home.`\
+https://nytimes.com/2024/10/30/nyregion/hamptons-resort-murder-sabina-khorramdel.html
+
 **Top New Jersey Newspapers Will End Print Editions, and One Will Close**\
 `The Star-Ledger, the state’s largest newspaper, will stop publishing its print edition. The Jersey Journal will shut down entirely after 157 years.`\
 https://nytimes.com/2024/10/30/nyregion/nj-star-ledger-jersey-journal-newspapers.html
