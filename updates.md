@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats
 `\
 https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats/
 
+**The Maple Leafs after 10 games: How are they better? Where are they worse?**\
+`Breaking down the Maple Leafs' results to start the season into different situations and comparing them to how they fared last season.
+`\
+https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats/
+
 **World Series grand slam trivia, featuring Anthony Volpe's 'magical' Game 4 shot**\
 `Does it get any Weirder or Wilder than a World Series slam in Yankee Stadium? Here's everything you need to know about Volpe's big blast. `\
 https://nytimes.com/athletic/5884781/2024/10/30/yankees-world-series-grand-slam-facts-anthony-volpe/
