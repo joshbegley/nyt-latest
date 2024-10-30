@@ -1,3 +1,7 @@
+**Big 12 addressing tech issues with helmet communication ahead of Saturday**\
+`Big 12 teams are being asked to return helmet comms equipment over concerns about encryption.`\
+https://nytimes.com/athletic/5885215/2024/10/30/big-12-helmet-coach-communication/
+
 **A Unified Republican Congress Would Give Trump Broad Power for His Agenda**\
 `A G.O.P. House and Senate could advance Trump-backed legislation and nominees, but thin margins and the filibuster could pose roadblocks and cause Republicans political trouble.`\
 https://nytimes.com/2024/10/30/us/republican-congress-trump-johnson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-s
 **Breaking: NHL franchises are worth a lot and make money**\
 `The Toronto Maple Leafs lead the way in franchise valuation at an estimated $3.66 billion.`\
 https://nytimes.com/athletic/5885530/2024/10/30/nhl-franchise-valuations-rising/
-
-**Renovated Frick to Reopen in April 2025**\
-`After being closed since 2020 at its Gilded Age mansion on Fifth Avenue, the museum will welcome visitors with a new Vermeer show.`\
-https://nytimes.com/2024/10/30/arts/design/renovated-frick-reopening-april-2025.html
 
