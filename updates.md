@@ -1,3 +1,11 @@
+**Yankees fans ejected for prying ball out of Mookie Betts' glove**\
+`One fan tried to take Betts' glove off his left hand while a second fan swatted Betts' right hand away.`\
+https://nytimes.com/athletic/5884205/2024/10/29/yankees-fans-interference-ejection-world-series-game-4/
+
+**Israel’s Allies at U.N. Condemn Law Banning Palestinian Aid Agency**\
+`At a U.N. Security Council meeting on the aid crisis in Gaza, envoys from the United States, France and Britain were among dozens of speakers decrying the Israeli legislation.`\
+https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/israel-un-unrwa-ban
+
 **Wisconsin Pizzeria Error Led Dozens to Eat Cannabis Oil Pizza**\
 `At least five customers sought medical attention after eating pizza from the store, Famous Yeti’s Pizza, which accidentally used a legal THC oil, health officials said.`\
 https://nytimes.com/2024/10/29/us/thc-oil-pizza-wisconsin.html

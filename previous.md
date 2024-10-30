@@ -1,3 +1,11 @@
+**Yankees fans ejected for prying ball out of Mookie Betts' glove**\
+`One fan tried to take Betts' glove off his left hand while a second fan swatted Betts' right hand away.`\
+https://nytimes.com/athletic/5884205/2024/10/29/yankees-fans-interference-ejection-world-series-game-4/
+
+**Israel’s Allies at U.N. Condemn Law Banning Palestinian Aid Agency**\
+`At a U.N. Security Council meeting on the aid crisis in Gaza, envoys from the United States, France and Britain were among dozens of speakers decrying the Israeli legislation.`\
+https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/israel-un-unrwa-ban
+
 **Wisconsin Pizzeria Error Led Dozens to Eat Cannabis Oil Pizza**\
 `At least five customers sought medical attention after eating pizza from the store, Famous Yeti’s Pizza, which accidentally used a legal THC oil, health officials said.`\
 https://nytimes.com/2024/10/29/us/thc-oil-pizza-wisconsin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/29/style/solange-knowles-lester-holt-studio-museum-h
 **Elon Musk Sees Trump’s Economic Plans Causing ‘Temporary Hardship’**\
 `Mr. Musk agreed with an X post saying there would be an “initial severe overreaction in the economy” before returning to sustainable growth if Mr. Trump is elected and follows through on his plans.`\
 https://nytimes.com/2024/10/29/us/politics/elon-musk-trump-economy-hardship.html
-
-**Jaywalking Is a New York Tradition. Now It’s Legal, Too.**\
-`New Yorkers can cross the street wherever they please without fear of a summons. Some fear the new law could lead to more pedestrian deaths.`\
-https://nytimes.com/2024/10/29/nyregion/jaywalking-legal-law-nyc.html
-
-**A Harris Presidency Is the Only Way to Stay Ahead of A.I.**\
-`We must make sure that superintelligent machines remain aligned with human values and interests as they use their powers to go off in their own directions.`\
-https://nytimes.com/2024/10/29/opinion/artificial-intelligence-harris-trump-election.html
 
