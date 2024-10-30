@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Could Georgia be No. 1 but miss out on SEC title game and Playoff bye?**\
+`If Boise State wins out, will it still get the No. 12 seed in the Playoff? If trades were allowed, which would you make after the season?`\
+https://nytimes.com/athletic/5884279/2024/10/30/mandel-georgia-playoff-alabama-lsu/
+
 **State of the Hornets: Can LaMelo Ball and Brandon Miller finally find their identity?**\
 `Tidjane Salaün has the makings of a two-way forward who can give the lineup flexibility in the future.`\
 https://nytimes.com/athletic/5867493/2024/10/30/lamelo-ball-brandon-miller-hornets-identity/

@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Could Georgia be No. 1 but miss out on SEC title game and Playoff bye?**\
+`If Boise State wins out, will it still get the No. 12 seed in the Playoff? If trades were allowed, which would you make after the season?`\
+https://nytimes.com/athletic/5884279/2024/10/30/mandel-georgia-playoff-alabama-lsu/
+
 **State of the Hornets: Can LaMelo Ball and Brandon Miller finally find their identity?**\
 `Tidjane Salaün has the makings of a two-way forward who can give the lineup flexibility in the future.`\
 https://nytimes.com/athletic/5867493/2024/10/30/lamelo-ball-brandon-miller-hornets-identity/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/democrats-regional-newspapers-ads.htm
 **What’s Your Favorite Part of Halloween?**\
 `Elaborate lawn decorations. Bags of candy. Creative costumes. What do you love about the holiday? What could you do without?`\
 https://nytimes.com/2024/10/30/learning/whats-your-favorite-part-of-halloween.html
-
-**2024 Will Be Either a Realignment or a Reboot**\
-`Either way, it’s too close to make a prediction.`\
-https://nytimes.com/2024/10/30/opinion/election-polls-harris-trump.html
 
