@@ -1,3 +1,15 @@
+**EFL Cup QF draw: Spurs host Man Utd, Southampton vs Liverpool**\
+`Tottenham Hotspur will host Manchester United in the quarter finals of the Carabao Cup, while holders Liverpool travel to Southampton.`\
+https://nytimes.com/athletic/5886281/2024/10/30/carabao-cup-quarter-final-draw/
+
+**Biden’s Gaffes Complicate Harris’s Final Stretch, Worrying Democratic Insiders**\
+`President Biden did not attend Vice President Kamala Harris’s speech on Tuesday night, but his ill-timed flub in a video interview caused headaches for her campaign.`\
+https://nytimes.com/2024/10/30/us/politics/biden-comments-harris-campaign.html
+
+**Maple Leafs trade Timothy Liljegren to Sharks for Matt Benning, pair of picks**\
+`Seven years after the Maple Leafs selected Liljegren 17th in the 2017 NHL Draft, they dealt him for a pair of lower draft picks Wednesday.`\
+https://nytimes.com/athletic/5886567/2024/10/30/maple-leafs-liljegren-trade-sharks/
+
 **With $2 Million for G.O.P. Judges, Elon Musk Wades Further Into Texas Politics**\
 `The world’s richest person has waded into local election contests in Texas where his sizable contributions can make a big difference.`\
 https://nytimes.com/2024/10/30/us/politics/elon-musk-texas-donations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/30/arts/design/zombies-quai-branly-paris.html
 **Top New Jersey Newspapers Will End Print Editions, and One Will Close**\
 `The Star-Ledger, the state’s largest newspaper, will stop publishing its print edition. The Jersey Journal will shut down entirely after 157 years.`\
 https://nytimes.com/2024/10/30/nyregion/nj-star-ledger-jersey-journal-newspapers.html
-
-**An Artist, Her Benefactor and a Murder at a Hamptons Resort**\
-`The owner of a tile company funded Sabina Khorramdel’s life of travel and creation. After she was found slain, his body was discovered at his Pennsylvania home.`\
-https://nytimes.com/2024/10/30/nyregion/hamptons-resort-murder-sabina-khorramdel.html
-
-**The Briefing: Newcastle 2 Chelsea 0 - Howe cracks the code as Maresca's changes fall flat**\
-`Our writers analyse the key talking points from Newcastle's victory over Chelsea in the Carabao Cup on Wednesday`\
-https://nytimes.com/athletic/5882343/2024/10/30/newcastle-chelsea-carabao-cup-briefing/
-
-**2025 College basketball: Best futures bets, predictions and picks**\
-`Sam Vecenie gives his best advice on which teams and players to bet on ahead of the NCAA men's basketball season.`\
-https://nytimes.com/athletic/5880814/2024/10/30/2025-college-basketball-best-futures-bets-predictions-picks-and-long-shots/
 
