@@ -1,3 +1,27 @@
+**Can Democrats Win Back Voters From Trump on Trade Policy?**\
+`The Biden administration has pursued a big shift in trade policy, but it’s not clear whether that will be enough to win votes.`\
+https://nytimes.com/2024/10/30/business/economy/trade-democrats-harris-trump.html
+
+**Supreme Court Allows Virginia to Purge Possible Noncitizen Voters for Now**\
+`A divided court sided with Republicans, allowing the state to cull about 1,600 voters less than a week before Election Day.`\
+https://nytimes.com/2024/10/30/us/supreme-court-virginia-purge-voter-registration.html
+
+**Where Some See Taboos, They See Opportunity**\
+`The founders of Starface took the shame out of blemishes. Now, they’re hoping to make it less risky to use recreational drugs and alcohol.`\
+https://nytimes.com/2024/10/30/style/overdrive-defense-test-kits-fentanyl.html
+
+**I Work in Data Security. Is It a Problem That My Boss Believes in Lizard People?**\
+`The magazine’s Ethicist columnist on what to do when people in positions of power espouse harmful conspiracy theories.`\
+https://nytimes.com/2024/10/30/magazine/boss-lizard-conspiracy-theory-ethics.html
+
+**Robert Lighthizer: Trump’s China Trade Warrior and ‘Food Fight’ Referee**\
+`If Donald J. Trump regains the presidency, his former U.S. trade representative could lead his quest to slap punishing tariffs on foreign trading partners.`\
+https://nytimes.com/2024/10/30/us/politics/lighthizer-trump.html
+
+**The Bounce: Luka Dončić continues owning the Timberwolves**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5884952/2024/10/30/luka-doncic-mavericks-victor-wembanyama-spurs-nba-the-bounce/
+
 **Johnson’s ‘No Obamacare’ Remark Draws Attention to Unpopular Stance**\
 `Speaker Mike Johnson said a Trump victory would allow Republicans to embark on a “massive overhaul” of the Affordable Care Act. He said the party wants to “take a blowtorch to the regulatory state.”`\
 https://nytimes.com/2024/10/30/us/politics/aca-obamacare-mike-johnson-trump.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5885382/2024/10/30/the-nfls-current-playoff-picture
 **Harris Tries to Distance Herself and Move On From Biden’s ‘Garbage’ Remark**\
 `The day after the president’s comment, Vice President Kamala Harris told reporters she disagreed “with any criticism of people based on who they vote for.”`\
 https://nytimes.com/2024/10/30/us/politics/harris-biden-garbage-trump-supporters.html
-
-**Heart-Valve Patients Should Have Earlier Surgery, Study Suggests**\
-`The results of a new clinical trial have overturned the “wait and see” approach that cardiologists have long favored for symptom-free patients.`\
-https://nytimes.com/2024/10/30/health/heart-valve-surgery-aortic-stenosis.html
-
-**Beautiful Badam Burfi Bark for Diwali**\
-`And for Halloween: sheet pan chicken and cheesy broccoli to fuel your trick-or-treaters.`\
-https://nytimes.com/2024/10/30/dining/beautiful-badam-burfi-bark-for-diwali.html
-
-**Fossil Reveals Oldest Known Tadpole That Grew to the Size of a Hot Dog**\
-`A 161 million-year-old fossil, linked to a line of extinct frog-like amphibians, is the oldest tadpole ever found.`\
-https://nytimes.com/2024/10/30/science/oldest-tadpole-fossil-giant.html
-
-**Looking for the Next Streaming Cult Classic? Try Arrow.**\
-`Horror is well-represented on this service, which makes it an ideal spooky season addition to your streaming menu.`\
-https://nytimes.com/2024/10/30/movies/streaming-movies-arrow-player.html
-
-**Britain’s Labour Party Raises Taxes and Investment in Its First Budget**\
-`Rachel Reeves, the new finance minister, announced substantial tax increases in her first budget as she sought to strengthen public finances and services.`\
-https://nytimes.com/2024/10/30/business/uk-budget-taxes-rachel-reeves.html
-
-**No, counting votes for several days is not a sign of fraud.**\
-`While the presidential winner was once usually known on election night, closer races and more mail voting have made it harder to make the call as quickly.`\
-https://nytimes.com/live/2024/10/28/business/voter-fraud-election-fact-check/voter-fraud-ballot-counting-delays
 
