@@ -1,3 +1,7 @@
+**World Series grand slam trivia, featuring Anthony Volpe's signature Game 4 shot for Yankees**\
+`Does it get any Weirder or Wilder than a World Series slam in Yankee Stadium? Here's everything you need to know about Volpe's big blast. `\
+https://nytimes.com/athletic/5884781/2024/10/30/yankees-world-series-grand-slam-facts-anthony-volpe/
+
 **Georgia's Trevor Etienne is hitting his groove, and Bulldogs' run game could use it**\
 `Now Etienne gets to show off against the team he left. He rushed for more than 800 yards the previous two years at Florida. `\
 https://nytimes.com/athletic/5884156/2024/10/30/georgia-football-trevor-etienne/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883627/2024/10/30/nfl-week-8-kyler-murray-quick-ou
 **Harris Makes Her Final Case, and Trump Seizes on ‘Garbage’**\
 `Plus, refunds for canceled flights.`\
 https://nytimes.com/2024/10/30/podcasts/harris-trump-garbage.html
-
-**Six Days Left: Closing Arguments, Racist Jokes and Burning Ballots**\
-`Watch or listen to our final round table before Election Day.`\
-https://nytimes.com/2024/10/30/podcasts/the-daily/election-roundtable.html
 
