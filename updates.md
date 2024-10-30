@@ -1,3 +1,11 @@
+**Explained: If Manchester City are punished will clubs face big bonus bills?**\
+`Was Jose Mourinho being mischievous when discussing Manchester City's charges - or could he actually be in line for some more silverware?`\
+https://nytimes.com/athletic/5869432/2024/10/30/manchester-city-titles-mourinho-bonuses-explained/
+
+**Super Typhoon Kong-rey Moves Toward Taiwan**\
+`The storm prompted closures and raised the risk of landslides as it approached the island. It was expected to hit as the equivalent of a Category 4 hurricane.`\
+https://nytimes.com/2024/10/30/weather/typhoon-kong-rey-taiwan.html
+
 **Can John Green Make You Care About Tuberculosis?**\
 `With a forthcoming nonfiction book and an online army of Nerdfighters, the young-adult author aims to eliminate an entirely curable global scourge.`\
 https://nytimes.com/2024/10/30/science/john-green-tuberculosis-nerdfighters.html

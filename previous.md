@@ -1,3 +1,11 @@
+**Explained: If Manchester City are punished will clubs face big bonus bills?**\
+`Was Jose Mourinho being mischievous when discussing Manchester City's charges - or could he actually be in line for some more silverware?`\
+https://nytimes.com/athletic/5869432/2024/10/30/manchester-city-titles-mourinho-bonuses-explained/
+
+**Super Typhoon Kong-rey Moves Toward Taiwan**\
+`The storm prompted closures and raised the risk of landslides as it approached the island. It was expected to hit as the equivalent of a Category 4 hurricane.`\
+https://nytimes.com/2024/10/30/weather/typhoon-kong-rey-taiwan.html
+
 **Can John Green Make You Care About Tuberculosis?**\
 `With a forthcoming nonfiction book and an online army of Nerdfighters, the young-adult author aims to eliminate an entirely curable global scourge.`\
 https://nytimes.com/2024/10/30/science/john-green-tuberculosis-nerdfighters.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5883922/2024/10/30/marc-andre-fleury-pittsburgh-wil
 **White Sox hiring Will Venable as manager**\
 `Venable served as the Rangers' associate manager under Bruce Bochy for the past two years, winning a World Series title in 2023.`\
 https://nytimes.com/athletic/5884571/2024/10/30/white-sox-will-venable-manager-hire/
-
-**Music and Morale in a Country at War**\
-`In Ukraine, where war feels omnipresent, music is helping lift spirits and raise money for the military.`\
-https://nytimes.com/card/2024/10/30/world/europe/ukraine-war-music
-
-**Quote of the Day: In Brooklyn, Humble Touch of Home for the Long-Gone Dodgers**\
-`Quotation of the Day for Wednesday, October 30, 2024.`\
-https://nytimes.com/2024/10/30/pageoneplus/quote-of-the-day-in-brooklyn-humble-touch-of-home-for-the-long-gone-dodgers.html
 
