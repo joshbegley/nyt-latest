@@ -1,3 +1,7 @@
+**Jimmy Kimmel: ‘Tonight’s Monologue Is for Republicans’**\
+`Kimmel made a 19-minute case against Donald Trump on Tuesday, asking viewers to “send it to a Republican you love.” (He did throw in a Biden joke.)`\
+https://nytimes.com/2024/10/30/arts/television/jimmy-kimmel-trump-republicans.html
+
 **Anthony Volpe's hometown grand slam provides signature Yankees moment in Game 4**\
 `Volpe envisioned nights like Tuesday’s “probably every night” as a New York area child, who grew up idolizing Derek Jeter. `\
 https://nytimes.com/athletic/5884637/2024/10/30/dodgers-yankees-world-series-game-4-anthony-volpe-moment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882483/2024/10/30/wolves-premier-league-relegation
 **Tottenham can't afford to write off Werner just yet - he could still have a part to play**\
 `The Germany forward has had a difficult start to the season, but injuries to Son and Odobert mean he will likely keep getting minutes`\
 https://nytimes.com/athletic/5883049/2024/10/30/timo-werner-tottenham-form/
-
-**Andrey Santos has shone for Strasbourg on loan. This is what he'd bring to Chelsea**\
-`Andrey Santos has impressed since moving to Strasbourg on loan in the summer`\
-https://nytimes.com/athletic/5881992/2024/10/30/andrey-santos-chelsea-strasbourg-analysis/
 
