@@ -1,3 +1,11 @@
+**Why Pep Guardiola needs Phil Foden to 'break the game' when opponents sit deep**\
+`Manchester City's liking for long-range goals is a product of their manager's patience-first mantra`\
+https://nytimes.com/athletic/5879800/2024/10/30/manchester-city-phil-foden-long-range-goals/
+
+**Fleury bids Pittsburgh adieu with vintage victory: 'Hard to believe that’s the last time'**\
+`From a carbon copy of a Cup-winning save to standing ovations from fans, the best of Fleury was on display in his final night in Pittsburgh.`\
+https://nytimes.com/athletic/5883922/2024/10/30/marc-andre-fleury-pittsburgh-wild-final-victory/
+
 **White Sox hiring Will Venable as manager**\
 `Venable served as the Rangers' associate manager under Bruce Bochy for the past two years, winning a World Series title in 2023.`\
 https://nytimes.com/athletic/5884571/2024/10/30/white-sox-will-venable-manager-hire/
