@@ -1,3 +1,15 @@
+**Can John Green Make You Care About Tuberculosis?**\
+`With a forthcoming nonfiction book and an online army of Nerdfighters, the young-adult author aims to eliminate an entirely curable global scourge.`\
+https://nytimes.com/2024/10/30/science/john-green-tuberculosis-nerdfighters.html
+
+**Giorgia Meloni Knows Exactly What She’s Doing**\
+`In a country where cabinets and positive approval ratings are infamously short-lived, Italy’s prime minister is becoming a rare paragon of stability.`\
+https://nytimes.com/2024/10/30/opinion/italy-surrogacy-giorgia-meloni.html
+
+**Six Days Left: Closing Arguments, Racist Jokes and Burning Ballots**\
+`Michael Barbaro sits down with the Times reporters Lisa Lerer, Astead Herndon and Shane Goldmacher to discuss the final week of the presidential race`\
+https://nytimes.com/video/podcasts/the-daily/100000009787070/harris-speech-trump-election-2024.html
+
 **Red Wings trade defenseman Olli Määttä to Utah Hockey Club**\
 `Maatta, a two-time Stanley Cup Champion and 2012 first-round pick of the Pittsburgh Penguins, was in his third season with the Red Wings.`\
 https://nytimes.com/athletic/5884602/2024/10/30/olli-maatta-red-wings-utah-hockey-club-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/card/2024/10/30/world/europe/ukraine-war-music
 **Quote of the Day: In Brooklyn, Humble Touch of Home for the Long-Gone Dodgers**\
 `Quotation of the Day for Wednesday, October 30, 2024.`\
 https://nytimes.com/2024/10/30/pageoneplus/quote-of-the-day-in-brooklyn-humble-touch-of-home-for-the-long-gone-dodgers.html
-
-**Spain Opens Its Doors to China as a European Trade War Looms**\
-`Spain is forging a path as a “connector” country, drawing Chinese investment as it abstained from taking a position on European tariffs on electric cars.`\
-https://nytimes.com/2024/10/30/business/spain-china-investment.html
-
-**Delivering a Package in a Country With 17,000 Islands**\
-`When TikTok needed an e-commerce partner in Indonesia, Tokopedia was an obvious candidate for the vast network of warehouses, motorbikes and “sprinters” it uses.`\
-https://nytimes.com/2024/10/30/business/tiktok-indonesia-tokopedia-ecommerce-logistics.html
-
-**How TikTok Saved Its E-Commerce Business in Indonesia**\
-`When the government effectively forced TikTok to shut down its Shop feature, the company quickly struck an unusual deal with a local company to bring it back.`\
-https://nytimes.com/2024/10/30/business/tiktok-bytedance-tokopedia-indonesia.html
 
