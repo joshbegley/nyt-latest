@@ -1,3 +1,7 @@
+**Georgia's Trevor Etienne is hitting his groove, and Bulldogs' run game could use it**\
+`Now Etienne gets to show off against the team he left. He rushed for more than 800 yards the previous two years at Florida. `\
+https://nytimes.com/athletic/5884156/2024/10/30/georgia-football-trevor-etienne/
+
 **Inside Caleb Williams' struggles against Washington, and how the Bears QB finished strong**\
 `Williams had three rough quarters before making clutch throws in the fourth. What rattled the rookie QB? What worked late?`\
 https://nytimes.com/athletic/5883485/2024/10/30/bears-caleb-williams-struggles-commanders/
