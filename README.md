@@ -13,7 +13,7 @@ https://nytimes.com/2024/10/30/briefing/trump-democracy-2024-election.html
 
 **Israel Orders Residents of City in Eastern Lebanon to Evacuate**\
 `Israel’s military warned civilians to leave Baalbek in the Bekaa Valley via three routes. The city had largely been spared Israeli bombardment until this week.`\
-https://nytimes.com/2024/10/30/world/middleeast/israel-gaza-lebanon.html
+https://nytimes.com/2024/10/30/world/middleeast/israel-evacuation-baalbek.html
 
 **Klopp responds to Red Bull criticism: 'I love all of my former clubs'**\
 `Jurgen Klopp has spoken about the controversy surrounding his new job as Head of Global Football at Red Bull.`\
