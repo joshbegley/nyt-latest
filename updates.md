@@ -1,3 +1,15 @@
+**Police investigating Jameson Williams' detainment, release**\
+`The probe seeks to answer why Williams was released from custody after police officers indicated they would take him to jail, per a report.`\
+https://nytimes.com/athletic/5885462/2024/10/30/jameson-williams-lions-police-investigation/
+
+**What’s in Our Queue? Minecraft and More**\
+`I’m a correspondent covering Japan. Here are five mostly Japan-related items I’ve loved seeing, reading and listening to.`\
+https://nytimes.com/interactive/2024/10/30/arts/editors-recommendations-minecraft.html
+
+**Joe Flacco will be Colts starting QB 'going forward,' coach says**\
+`"Tough decision but one I thought was in the best interest of our football team," the coach said Wednesday.`\
+https://nytimes.com/athletic/5885586/2024/10/30/joe-flacco-colts-starting-qb/
+
 **These Georgia Republicans Are Over Trump. Will They Vote for Him Anyway?**\
 `Donald Trump has a particularly fraught history with his party in Georgia. Some Republicans described their calculus in deciding whether to back him.`\
 https://nytimes.com/2024/10/30/us/these-georgia-republicans-are-over-trump-will-they-vote-for-him-anyway.html
