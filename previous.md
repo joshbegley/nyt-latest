@@ -1,3 +1,7 @@
+**Gauging Commanders' plan at trade deadline goes beyond their 2024 needs**\
+`While the team's surprising surge has it sitting atop the NFC East, the roster is still being constructed with the long term in mind. `\
+https://nytimes.com/athletic/5883710/2024/10/30/commanders-trade-deadline-future-needs/
+
 **Big Fire Breaks Out at Nuclear Submarine Plant in Britain**\
 `The authorities said there was no nuclear risk. Two people with smoke inhalation received treatment at a hospital.`\
 https://nytimes.com/2024/10/30/world/europe/fire-nuclear-submarine-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882807/2024/10/30/edmonton-oilers-trade-assets-202
 **Broncos at the trade deadline: What history could say about Sean Payton's plans**\
 `The Broncos have an obvious need for a playmaker, but they might not be willing to make a move that limits snaps for current young players.`\
 https://nytimes.com/athletic/5882385/2024/10/30/broncos-trade-deadline-2024-sean-payton/
-
-**Sophie Braun interview: How representing Argentina made the U.S.-born defender 'feel whole'**\
-`The Kansas City Current defender, whose mother is from Argentina, has become a regular with the national side who take on the USWNT today`\
-https://nytimes.com/athletic/5884731/2024/10/30/sophie-braun-argentina-current-uswnt/
 
