@@ -1,5 +1,5 @@
 **20 Years of Impossible Choices in ‘Saw’**\
-`By Annie Aguiar and Joyce Ho`\
+`The low-budget 2004 horror movie captured audiences and spawned a franchise by asking tough moral questions.`\
 https://nytimes.com/interactive/2024/10/29/arts/saw-horror-movie-anniversary.html
 
 **Michelle Obama, Rallying Young Voters Near Atlanta, Warns of ‘Apathy’**\
