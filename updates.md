@@ -1,3 +1,11 @@
+**Partial Breach of Election Machine Passwords in Colorado Poses No Risk, State Says**\
+`The secretary of state said that the machines are not online, require a second set of passwords and are under constant surveillance in locked rooms.`\
+https://nytimes.com/2024/10/29/us/politics/colorado-election-passwords-breach.html
+
+**As Trump Sows Doubt on Pennsylvania Voting, Officials Say the System Is Working**\
+`Donald Trump is using reports about suspicious voter registrations to cast the election as already flawed. County officials say the episodes are being distorted.`\
+https://nytimes.com/2024/10/29/us/politics/pennsylvania-voting-trump.html
+
 **Yankees fans ejected for prying ball out of Mookie Betts' glove**\
 `A Yankees fan grabbed Dodgers outfielder Mookie Betts' glove, pried it open and ripped the baseball out in the bottom of the first inning.`\
 https://nytimes.com/athletic/5884205/2024/10/29/yankees-fans-interference-ejection-world-series-game-4/
