@@ -1,3 +1,8 @@
+**The Maple Leafs after 10 games: How are they better? Where are they worse?**\
+`Breaking down the Maple Leafs' results to start the season into different situations and comparing them to how they fared last season.
+`\
+https://nytimes.com/athletic/5884272/2024/10/30/maple-leafs-2024-25-season-stats/
+
 **Here is the letter from Sam Bankman-Fried’s parents to Judge Kaplan.**\
 `Over the past nine months, the parents of Mr.`\
 https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-barbara-letter.html
