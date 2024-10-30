@@ -1,6 +1,14 @@
+**Fantasy basketball trends and mirages: Has Tyrese Haliburton lost his mojo?**\
+`After watching a week of NBA regular-season action, Eric Wong shares his thoughts on some early trends, and whether or not to believe them. `\
+https://nytimes.com/athletic/5885464/2024/10/30/fantasy-basketball-trends-mirages-haliburton-maxey/
+
 **Wait, Does Your Whole Body Need Deodorant?**\
 `No. But body odor is a hot topic on social media as companies try to provide what one dermatologist called, “the answer to a problem people didn’t even know they have.”`\
 https://nytimes.com/2024/10/30/style/whole-body-deodorant.html
+
+**Scottie Barnes to miss at least 3 weeks with orbital fracture**\
+`The injury to Barnes, a 23-year-old All-Star, is the latest in a string of ailments for the Toronto Raptors this season.`\
+https://nytimes.com/athletic/5885748/2024/10/30/scottie-barnes-injury-raptors-timeline/
 
 **College football best bets Week 10: Why Liberty and Oklahoma State should bounce back**\
 `Austin Mock is coming off a winning week with his college football best bets and has several plays this week.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5884624/2024/10/30/nfl-gm-chris-ballard-colts-strat
 **Thompson: Buddy Hield embodies the Warriors' foundational tenet — shooters shoot**\
 `SAN FRANCISCO — Buddy Hield likes to hold a basketball while he sits on the bench.`\
 https://nytimes.com/athletic/5885576/2024/10/30/buddy-hield-warriors-shooting-3s-stephen-curry/
-
-**Brooklyn’s Strivers and Those a Museum Spurned**\
-`Two surveys of hometown artists — one at the Brooklyn Museum, another of those it snubbed — serve as a meditation on recognition and rejection.`\
-https://nytimes.com/2024/10/30/arts/design/brooklyn-artists-museum-salon-des-refuse.html
-
-**Sweaty Ghosts and Melting Candy: New York City Will Have a Hot Halloween**\
-`No need to wear extra layers this year. Temperatures in the city are expected to reach the mid-to-upper 70s on Thursday.`\
-https://nytimes.com/2024/10/30/nyregion/halloween-nyc-weather-hot.html
 

@@ -1,3 +1,11 @@
+**Fantasy basketball trends and mirages: Has Tyrese Haliburton lost his mojo?**\
+`After watching a week of NBA regular-season action, Eric Wong shares his thoughts on some early trends, and whether or not to believe them. `\
+https://nytimes.com/athletic/5885464/2024/10/30/fantasy-basketball-trends-mirages-haliburton-maxey/
+
+**Scottie Barnes to miss at least 3 weeks with orbital fracture**\
+`The injury to Barnes, a 23-year-old All-Star, is the latest in a string of ailments for the Toronto Raptors this season.`\
+https://nytimes.com/athletic/5885748/2024/10/30/scottie-barnes-injury-raptors-timeline/
+
 **Wait, Does Your Whole Body Need Deodorant?**\
 `No. But body odor is a hot topic on social media as companies try to provide what one dermatologist called, “the answer to a problem people didn’t even know they have.”`\
 https://nytimes.com/2024/10/30/style/whole-body-deodorant.html
