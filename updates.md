@@ -1,3 +1,11 @@
+**Jonathan Kuminga, Lindy Waters III are a winning fit in Warriors' evolving rotation puzzle**\
+`With Steph Curry injured, Steve Kerr had Kuminga start the game from the bench. He finished with season highs in both minutes and points.`\
+https://nytimes.com/athletic/5884360/2024/10/30/warriors-jonathan-kuminga-lindy-waters-defeat-pelicans/
+
+**Anthony Volpe's hometown grand slam provides signature Yankees moment in Game 4**\
+`Volpe envisioned nights like Tuesday “probably every night” as a New York-area child, who grew up idolizing Derek Jeter. `\
+https://nytimes.com/athletic/5884637/2024/10/30/dodgers-yankees-world-series-game-4-anthony-volpe-moment/
+
 **Jimmy Kimmel: ‘Tonight’s Monologue Is for Republicans’**\
 `Kimmel made a 19-minute case against Donald Trump on Tuesday, asking viewers to “send it to a Republican you love.” (He did throw in a Biden joke.)`\
 https://nytimes.com/2024/10/30/arts/television/jimmy-kimmel-trump-republicans.html
