@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5883160/2024/10/30/ten-hag-amorim-welbeck-berrada/
 
 **How Summerville became Premier League ready: 'He's grown from a skinny teenager into a man'**\
 `Crysencio Summerville made a huge impression against Manchester United last weekend`\
-https://nytimes.com/athletic/5884555/2024/10/30/how-crysencio-summerville-became-premier-league-ready-hes-grown-from-a-skinny-teenager-into-a-man/
+https://nytimes.com/athletic/5884555/2024/10/30/crysencio-summerville-west-ham-leeds/
 
 **Brighton don't need January centre-back signing - Hurzeler**\
 `Head coach Fabian Hurzeler says there is no need for Brighton &amp; Hove Albion to sign another central defender in January.`\
