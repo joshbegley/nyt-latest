@@ -1,3 +1,15 @@
+**Wait, Does Your Whole Body Need Deodorant?**\
+`No. But body odor is a hot topic on social media as companies try to provide what one dermatologist called, “the answer to a problem people didn’t even know they have.”`\
+https://nytimes.com/2024/10/30/style/whole-body-deodorant.html
+
+**College football best bets Week 10: Why Liberty and Oklahoma State should bounce back**\
+`Austin Mock is coming off a winning week with his college football best bets and has several plays this week.`\
+https://nytimes.com/athletic/5885643/2024/10/30/colleg-football-best-bets-week-10-liberty-oklahoma-state/
+
+**MLB bans 2 Yankees fans who interfered with Mookie Betts**\
+`The two fans attempted to pry a foul ball in right field foul territory from the Dodgers outfielder in the first inning of Tuesday's Game 4.`\
+https://nytimes.com/athletic/5885690/2024/10/30/dodgers-yankees-world-series-fans-banned/
+
 **Harris’s Coattails in New Hampshire May Be Helping Democrat in Governor’s Race**\
 `Distrust of Kelly Ayotte, the Republican candidate, on abortion and strong support for Kamala Harris in the state may be helping keep the race close despite Ms. Ayotte’s advantages.`\
 https://nytimes.com/2024/10/30/us/new-hampshire-ayotte-craig-harris.html
