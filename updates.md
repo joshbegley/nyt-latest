@@ -1,3 +1,11 @@
+**Two Climate Change Plays Keep the Flames of Hope Alive**\
+`“Hothouse,” at Irish Arts Center, fends off despair with loopiness; “In the Amazon Warehouse Parking Lot,” at Playwrights Horizons, is a fuzzy world lacking depth.`\
+https://nytimes.com/2024/10/30/theater/hothouse-in-the-amazon-warehouse-parking-lot.html
+
+**Being a College Athlete Now Means Constant Travel and Missed Classes**\
+`Players are dealing with far-flung travel, jet lag and the pressures of trying to balance the roles of student, athlete and entrepreneur more than ever before.`\
+https://nytimes.com/2024/10/30/us/college-football-conference-realignment.html
+
 **Public Art Leader to Step Down**\
 `After steering the art program in Madison Square Park for 11 years, Brooke Kamin Rapaport is turning her focus to research on democracy and civic space.`\
 https://nytimes.com/2024/10/30/arts/design/madison-square-park-brooke-kamin-rapaport-leaving.html
