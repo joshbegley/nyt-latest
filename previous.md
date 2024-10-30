@@ -1,3 +1,7 @@
+**Key meeting, Welbeck request and Amorim plan - inside Manchester United's manager change**\
+`Why Manchester United finally sacked Erik ten Hag, when they first contacted Ruben Amorim and the situation a new head coach will inherit`\
+https://nytimes.com/athletic/5883160/2024/10/30/ten-hag-amorim-welbeck-berrada/
+
 **How Summerville became Premier League ready: 'He's grown from a skinny teenager into a man'**\
 `Crysencio Summerville made a huge impression against Manchester United last weekend`\
 https://nytimes.com/athletic/5884555/2024/10/30/how-crysencio-summerville-became-premier-league-ready-hes-grown-from-a-skinny-teenager-into-a-man/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/nyregion/red-hook-brooklyn-development.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/30/crosswords/spelling-bee-forum.html
-
-**Jonathan Kuminga, Lindy Waters III and the Warriors’ evolving, complicated rotation puzzle**\
-`With Steph Curry injured, Steve Kerr had Kuminga start the game from the bench. He finished with season highs in both minutes and points.`\
-https://nytimes.com/athletic/5884360/2024/10/30/warriors-jonathan-kuminga-lindy-waters-defeat-pelicans/
 
