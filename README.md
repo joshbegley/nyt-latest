@@ -2,7 +2,7 @@
 `The Biden administration has pursued a big shift in trade policy, but it’s not clear whether that will be enough to win votes.`\
 https://nytimes.com/2024/10/30/business/economy/trade-democrats-harris-trump.html
 
-**Supreme Court Allows Virginia to Purge Possible Noncitizen Voters for Now**\
+**Supreme Court Allows Virginia to Purge Possibly Ineligible Voters for Now**\
 `A divided court sided with Republicans, allowing the state to cull about 1,600 voters less than a week before Election Day.`\
 https://nytimes.com/2024/10/30/us/supreme-court-virginia-purge-voter-registration.html
 
