@@ -1,3 +1,7 @@
+**Oilers' McDavid expected to miss 2-3 weeks with injury**\
+`The Oilers (4-5-1) will undoubtedly miss McDavid, the league's consensus-best player.`\
+https://nytimes.com/athletic/5885750/2024/10/30/connor-mcdavid-injury-oilers-replacements/
+
 **Fantasy basketball trends and mirages: Has Tyrese Haliburton lost his mojo?**\
 `After watching a week of NBA regular-season action, Eric Wong shares his thoughts on some early trends, and whether or not to believe them. `\
 https://nytimes.com/athletic/5885464/2024/10/30/fantasy-basketball-trends-mirages-haliburton-maxey/

@@ -1,3 +1,7 @@
+**Oilers' McDavid expected to miss 2-3 weeks with injury**\
+`The Oilers (4-5-1) will undoubtedly miss McDavid, the league's consensus-best player.`\
+https://nytimes.com/athletic/5885750/2024/10/30/connor-mcdavid-injury-oilers-replacements/
+
 **Fantasy basketball trends and mirages: Has Tyrese Haliburton lost his mojo?**\
 `After watching a week of NBA regular-season action, Eric Wong shares his thoughts on some early trends, and whether or not to believe them. `\
 https://nytimes.com/athletic/5885464/2024/10/30/fantasy-basketball-trends-mirages-haliburton-maxey/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/harris-pennsylvania-ad-working-class.
 **Silver: Colts GM Chris Ballard has failed to live up to the team's bold promises**\
 `Jim Irsay once hailed Ballard as the best GM candidate of the 21st century. Nearly eight years later, he owns one playoff win.`\
 https://nytimes.com/athletic/5884624/2024/10/30/nfl-gm-chris-ballard-colts-strategy/
-
-**Thompson: Buddy Hield embodies the Warriors' foundational tenet — shooters shoot**\
-`SAN FRANCISCO — Buddy Hield likes to hold a basketball while he sits on the bench.`\
-https://nytimes.com/athletic/5885576/2024/10/30/buddy-hield-warriors-shooting-3s-stephen-curry/
 
