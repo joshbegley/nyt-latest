@@ -1,3 +1,7 @@
+**World Series grand slam trivia, featuring Anthony Volpe's 'magical' Game 4 shot**\
+`Does it get any Weirder or Wilder than a World Series slam in Yankee Stadium? Here's everything you need to know about Volpe's big blast. `\
+https://nytimes.com/athletic/5884781/2024/10/30/yankees-world-series-grand-slam-facts-anthony-volpe/
+
 **Van Nistelrooy will have 'mixed emotions' as Man United interim coach**\
 `Ruud van Nistelrooy will have &#8220;mixed emotions&#8221; when he leads Manchester United for the first time as interim coach on Wednesday night.`\
 https://nytimes.com/athletic/5884844/2024/10/30/manchester-united-ruud-van-nistelrooy-new-manager/
