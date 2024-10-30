@@ -1,3 +1,7 @@
+**Policing, Abortion, Trump: Inside a Tightening Race for a Key House Seat**\
+`Sue Altman, a Democrat, has focused on reproductive rights as she seeks to unseat a Republican incumbent, Representative Thomas Kean Jr., in a New Jersey swing district.`\
+https://nytimes.com/2024/10/30/nyregion/sue-altman-thomas-kean-election.html
+
 **Can Democrats Win Back Voters From Trump on Trade Policy?**\
 `The Biden administration has pursued a big shift in trade policy, but it’s not clear whether that will be enough to win votes.`\
 https://nytimes.com/2024/10/30/business/economy/trade-democrats-harris-trump.html
