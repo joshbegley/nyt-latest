@@ -1,3 +1,15 @@
+**An Artist, Her Benefactor and a Murder at a Hamptons Resort**\
+`The owner of a Pennsylvania tile company funded Sabina Khorramdel’s life of travel and creation. After she was found slain, his body was discovered at his Pennsylvania home.`\
+https://nytimes.com/2024/10/30/nyregion/hamptons-resort-murder-sabina-khorramdel.html
+
+**The Briefing: Newcastle 2 Chelsea 0 - Howe cracks the code as Maresca's changes fall flat**\
+`Our writers analyse the key talking points from Newcastle's victory over Chelsea in the Carabao Cup on Wednesday`\
+https://nytimes.com/athletic/5882343/2024/10/30/newcastle-chelsea-carabao-cup-briefing/
+
+**2025 College basketball: Best futures bets, predictions and picks**\
+`Sam Vecenie gives his best advice on which teams and players to bet on ahead of the NCAA men's basketball season.`\
+https://nytimes.com/athletic/5880814/2024/10/30/2025-college-basketball-best-futures-bets-predictions-picks-and-long-shots/
+
 **The Economy Looks Strong as Election Day Nears**\
 `Also, flash floods killed more than 95 people in Spain. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/30/briefing/economy-election-day-flash-floods-spain.html
