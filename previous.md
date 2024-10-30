@@ -1,3 +1,11 @@
+**UEFA pledges €1bn and six professional leagues in new women's football strategy**\
+`UEFA has pledged to commit €1billion ($1.`\
+https://nytimes.com/athletic/5884953/2024/10/30/uefa-womens-football-strategy/
+
+**The Musk Campaign Steps Up**\
+`The tech mogul is pushing even harder in the final days of the presidential race to get Donald Trump re-elected, with plenty at stake for his businesses.`\
+https://nytimes.com/2024/10/30/business/dealbook/elon-musk-donald-trump-campaign.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/30/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5883710/2024/10/30/commanders-trade-deadline-future
 **Big Fire Breaks Out at Nuclear Submarine Plant in Britain**\
 `The authorities said there was no nuclear risk. Two people with smoke inhalation received treatment at a hospital.`\
 https://nytimes.com/2024/10/30/world/europe/fire-nuclear-submarine-uk.html
-
-**Here is the letter from Nishad Singh’s father to Judge Kaplan.**\
-`Over the past nine months, the parents of Mr.`\
-https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-nishad-defense-sentencing.html
-
-**Here is the letter from Caroline Ellison’s parents to Judge Kaplan.**\
-`Over the past nine months, the parents of Mr.`\
-https://nytimes.com/interactive/2024/10/30/business/30ftx-parents-caroline-defense-memo.html
 
