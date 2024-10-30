@@ -1,3 +1,7 @@
+**Poor defense is haunting new-look Timberwolves early this season**\
+`"I feel like we can beat anybody," Edwards said. "If we get back in transition and we rebound."`\
+https://nytimes.com/athletic/5883295/2024/10/30/timberwolves-poor-defense-mavericks/
+
 **'We already miss him a bunch': What Taylor Hendricks' injury means for the Jazz**\
 `The second-year forward suffered a gruesome leg injury on Monday. On Tuesday, rookies Cody Williams and Kyle Filipowski had to fill in.`\
 https://nytimes.com/athletic/5881748/2024/10/30/taylor-hendricks-injury-jazz/

@@ -1,3 +1,7 @@
+**Poor defense is haunting new-look Timberwolves early this season**\
+`"I feel like we can beat anybody," Edwards said. "If we get back in transition and we rebound."`\
+https://nytimes.com/athletic/5883295/2024/10/30/timberwolves-poor-defense-mavericks/
+
 **'We already miss him a bunch': What Taylor Hendricks' injury means for the Jazz**\
 `The second-year forward suffered a gruesome leg injury on Monday. On Tuesday, rookies Cody Williams and Kyle Filipowski had to fill in.`\
 https://nytimes.com/athletic/5881748/2024/10/30/taylor-hendricks-injury-jazz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5884254/2024/10/30/senators-blues-win-nhl-takeaways
 **TAFC: Trump's brush with English football, plus Ten Hag's mega pay-off**\
 `In today's edition, we look at a bizarre moment in League Cup history and consider what any Man City punishment could mean for other clubs`\
 https://nytimes.com/athletic/5884835/2024/10/30/the-athletic-fc-trump-ten-hag/
-
-**C'est la vie: For the NBA's 3 French rookie lottery picks, it's been a bumpy start**\
-`Zaccharie Risacher, Alex Sarr and Tidjane Salaün are adjusting to life — and the physicality — of the NBA as teenagers.`\
-https://nytimes.com/athletic/5884631/2024/10/30/nba-draft-french-rookies-talent/
 
