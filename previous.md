@@ -1,3 +1,7 @@
+**Father and Son From New Jersey Are Charged With Roles in Jan. 6 Riot**\
+`Richard and Keith Andrews were part of a mob of Donald J. Trump’s supporters that sought to halt the certification of the 2020 election results, prosecutors said.`\
+https://nytimes.com/2024/10/30/nyregion/jan-6-charges-new-jersey.html
+
 **From the Archives: The Last Word**\
 ``\
 https://nytimes.com/spotlight/the-last-word
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879244/2024/10/30/evangelos-marinakis-defamation-c
 **Maple Leafs' looming decision on Timothy Liljegren: What's next for the defenceman?**\
 `It’s been a frustrating season for Liljegren, who has played in just one of the Maple Leafs' first 10 games this season.`\
 https://nytimes.com/athletic/5886028/2024/10/30/maple-leafs-timothy-liljegren-trade-nhl/
-
-**Meta’s Profit Rises 35%, Even as Spending Spree Continues**\
-`The Silicon Valley company, which owns Facebook, Instagram and WhatsApp, said it does not plan to slow down its investments anytime soon.`\
-https://nytimes.com/2024/10/30/technology/meta-earnings-artificial-intelligence.html
 

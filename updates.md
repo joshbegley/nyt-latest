@@ -1,3 +1,7 @@
+**Father and Son From New Jersey Are Charged With Roles in Jan. 6 Riot**\
+`Richard and Keith Andrews were part of a mob of Donald J. Trump’s supporters that sought to halt the certification of the 2020 election results, prosecutors said.`\
+https://nytimes.com/2024/10/30/nyregion/jan-6-charges-new-jersey.html
+
 **From the Archives: The Last Word**\
 ``\
 https://nytimes.com/spotlight/the-last-word
