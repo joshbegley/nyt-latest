@@ -1,3 +1,11 @@
+**The Economy Looks Strong as Election Day Nears**\
+`Also, flash floods killed more than 95 people in Spain. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/30/briefing/economy-election-day-flash-floods-spain.html
+
+**The Briefing: Manchester Utd 5 Leicester City 2 - A perfect start for Ruud Van Nistelrooy, plus Ruben Amorim latest**\
+`Laurie Whitwell analyses some of the key talking points from Wednesday night's game at Old Trafford `\
+https://nytimes.com/athletic/5882288/2024/10/30/manchester-united-leicester-result-analysis/
+
 **Father and Son From New Jersey Are Charged With Roles in Jan. 6 Riot**\
 `Richard and Keith Andrews were part of a mob of Donald J. Trump’s supporters that sought to halt the certification of the 2020 election results, prosecutors said.`\
 https://nytimes.com/2024/10/30/nyregion/jan-6-charges-new-jersey.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/trump-arab-muslim-voters.html
 **Top notable fan interference plays in MLB history**\
 `It isn’t the first occasion that a fan has interfered with a play during a major league game, and probably won’t be the last.`\
 https://nytimes.com/athletic/5885753/2024/10/30/mlb-fan-interference-moments-ranked-history/
-
-**Marinakis and the extraordinary legal claims of a 'smear campaign' linking him to drug smuggling and match-fixing**\
-`Marinakis is suing a rival from Greek football in a defamation case that involves Netanyahu's ex-chief of staff and a Texan marketing agency`\
-https://nytimes.com/athletic/5879244/2024/10/30/evangelos-marinakis-defamation-court-smear-campaign/
-
-**Maple Leafs' looming decision on Timothy Liljegren: What's next for the defenceman?**\
-`It’s been a frustrating season for Liljegren, who has played in just one of the Maple Leafs' first 10 games this season.`\
-https://nytimes.com/athletic/5886028/2024/10/30/maple-leafs-timothy-liljegren-trade-nhl/
 

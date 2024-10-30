@@ -1,3 +1,11 @@
+**The Economy Looks Strong as Election Day Nears**\
+`Also, flash floods killed more than 95 people in Spain. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/30/briefing/economy-election-day-flash-floods-spain.html
+
+**The Briefing: Manchester Utd 5 Leicester City 2 - A perfect start for Ruud Van Nistelrooy, plus Ruben Amorim latest**\
+`Laurie Whitwell analyses some of the key talking points from Wednesday night's game at Old Trafford `\
+https://nytimes.com/athletic/5882288/2024/10/30/manchester-united-leicester-result-analysis/
+
 **Father and Son From New Jersey Are Charged With Roles in Jan. 6 Riot**\
 `Richard and Keith Andrews were part of a mob of Donald J. Trump’s supporters that sought to halt the certification of the 2020 election results, prosecutors said.`\
 https://nytimes.com/2024/10/30/nyregion/jan-6-charges-new-jersey.html
