@@ -1,3 +1,11 @@
+**Harris Tries to Distance Herself and Move On From Biden’s ‘Garbage’ Remark**\
+`The day after the president’s comment, Vice President Kamala Harris told reporters she disagreed “with any criticism of people based on who they vote for.”`\
+https://nytimes.com/2024/10/30/us/politics/harris-biden-garbage-trump-supporters.html
+
+**Heart-Valve Patients Should Have Earlier Surgery, Study Suggests**\
+`The results of a new clinical trial have overturned the “wait and see” approach that cardiologists have long favored for symptom-free patients.`\
+https://nytimes.com/2024/10/30/health/heart-valve-surgery-aortic-stenosis.html
+
 **Beautiful Badam Burfi Bark for Diwali**\
 `And for Halloween: sheet pan chicken and cheesy broccoli to fuel your trick-or-treaters.`\
 https://nytimes.com/2024/10/30/dining/beautiful-badam-burfi-bark-for-diwali.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009787098/how-donald-trump-is-making
 **Was This Scrap of Cloth Once a Tunic Worn by Alexander the Great?**\
 `A Greek researcher says a piece of purple-and-white fabric discovered decades ago in a tomb in northern Greece may have belonged to Alexander. Others disagree.`\
 https://nytimes.com/2024/10/30/world/europe/alexander-the-great-tunic-cloth.html
-
-**Volkswagen Profit Shrinks as Unions Threaten Strike**\
-`Germany’s biggest automaker said its profit dropped 42 percent in the third quarter, as union leaders warned that workers were ready to walk out over a wage dispute.`\
-https://nytimes.com/2024/10/30/business/volkswagen-earnings-profit-strike.html
-
-**In Election’s Final Days, Dark Money and ‘Gray Money’ Fund Hidden Agendas**\
-`Big-money operatives are taking advantage of lax rules at the end of the campaign to hide the true source of their money until after the election is called — or for forever.`\
-https://nytimes.com/2024/10/30/us/politics/dark-money-presidential-campaign.html
 
