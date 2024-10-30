@@ -1,3 +1,19 @@
+**When Dr. Phil Defended Harris While Endorsing Trump**\
+`It was an odd moment at the big Trump rally.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/dr-phil-trump-rally
+
+**Does Kamala Harris Back Free Health Care for Illegal Immigrants?**\
+`Donald Trump and other Republicans have said repeatedly that she does. Her history on the issue is complicated.`\
+https://nytimes.com/2024/10/30/health/harris-immigration-health-care-trump.html
+
+**U.S. Military Says It Killed Up to 35 Islamic State Militants in Syria**\
+`Airstrikes on Monday targeted people who the military said were senior leaders of the group, which has sharply stepped up its attacks in Iraq and Syria.`\
+https://nytimes.com/2024/10/30/world/middleeast/islamic-state-airstrikes-syria.html
+
+**Bubba Wallace gets new NASCAR crew chief for 2025**\
+`Charles Denike, a crew chief in the Truck Series, will replace Bootie Barker as crew chief for Wallace's No. 23 team.`\
+https://nytimes.com/athletic/5885862/2024/10/30/bubba-wallace-crew-chief-nascar/
+
 **Yankees Fans Who Interfered With Foul Ball Barred From Game 5**\
 `Two fans tried to rip a ball out of the glove of Mookie Betts, the Dodgers right fielder. They were ejected and will not be allowed to attend Game 5 on Wednesday night.`\
 https://nytimes.com/2024/10/30/nyregion/yankees-fans-interference-banned-world-series-dodgers.html
