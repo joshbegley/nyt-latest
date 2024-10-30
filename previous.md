@@ -1,3 +1,15 @@
+**Wrexham receive new investment from New York family**\
+`Wrexham co-owners Ryan Reynolds and Rob McElhenney have welcomed New York-based Allyn family as new minority investors in the League One club.`\
+https://nytimes.com/athletic/5885061/2024/10/30/wrexham-investors-allyn-familiy/
+
+**David Salle’s Ghost in the A.I. Machine**\
+`At Gladstone Gallery, the painter’s experiments with artificial intelligence yield compelling results and big questions.`\
+https://nytimes.com/2024/10/30/arts/design/david-salle-ai-gladstone-painting-art.html
+
+**Cowboys Today: An inglorious anniversary highlighting run game struggles, in multiple ways**\
+`Two years ago today, Tony Pollard ran for 100-plus yards and the Cowboys won. That hasn't happened since. `\
+https://nytimes.com/athletic/5884198/2024/10/30/cowboys-today-running-game-dak-prescott/
+
 **The Musk campaign steps up.**\
 `By Dealbook`\
 https://nytimes.com/live/2024/10/30/us/harris-trump-election/the-musk-campaign-steps-up
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5884815/2024/10/30/pelicans-warriors-losing-zion/
 **Israel Demolished Hundreds of Buildings in Southern Lebanon, Videos and Satellite Images Show**\
 `At least 1,085 buildings have been destroyed or badly damaged since Israel’s invasion targeting the Hezbollah militia, including many in controlled demolitions, a New York Times analysis shows.`\
 https://nytimes.com/2024/10/30/world/middleeast/israel-lebanon-border-photos-video.html
-
-**Man City's Miedema undergoes knee surgery**\
-`Manchester City forward Vivianne Miedema has undergone surgery on her left knee.`\
-https://nytimes.com/athletic/5885040/2024/10/30/vivianne-miedema-knee-surgery/
-
-**U.S. Economy Grew at 2.8% Rate in Third Quarter**\
-`In a key economic report released just days before the presidential election, growth was again driven by robust consumer spending.`\
-https://nytimes.com/2024/10/30/business/economy/economy-gdp-report.html
-
-**Four Senators takeaways from dominant win over Blues**\
-`The Senators defeated the Blues 8-1 for their best win of the season so far.`\
-https://nytimes.com/athletic/5884254/2024/10/30/senators-blues-win-nhl-takeaways/
 
