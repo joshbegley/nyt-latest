@@ -1,3 +1,11 @@
+**Lewis Sorley, 90, Who Said the U.S. Won (but Then Lost) in Vietnam, Dies**\
+`His Pulitzer Prize-nominated history of the war was warmly received by the Pentagon, but rejected elsewhere for ignoring what many said made the war “unwinnable.”`\
+https://nytimes.com/2024/10/30/books/lewis-sorley-dead.html
+
+**Donald J. Hall, 96, Dies; Expanded Hallmark Beyond Greeting Cards**\
+`After succeeding his father as the company’s top executive, he added new product lines and increased its focus on family-friendly TV shows.`\
+https://nytimes.com/2024/10/30/business/donald-j-hall-dead.html
+
 **Oilers' McDavid expected to miss 2-3 weeks with injury**\
 `The Oilers (4-5-1) will undoubtedly miss McDavid, the league's consensus-best player.`\
 https://nytimes.com/athletic/5885750/2024/10/30/connor-mcdavid-injury-oilers-replacements/
