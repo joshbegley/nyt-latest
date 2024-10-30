@@ -1,3 +1,11 @@
+**Boo! Celebrate Halloween with some of the NHL's scariest starts**\
+`Let’s get in the Halloween spirit by building our annual team made up of players off to disappointing starts.`\
+https://nytimes.com/athletic/5883788/2024/10/30/nhl-halloween-players-team-season/
+
+**Three Great Documentaries to Stream**\
+`This month’s picks include a portrait of an artist, a haunting music performance piece and a chilling missing-persons tale.`\
+https://nytimes.com/2024/10/30/movies/great-documentaries-streaming.html
+
 **Two Climate Change Plays Keep the Flames of Hope Alive**\
 `“Hothouse,” at Irish Arts Center, fends off despair with loopiness; “In the Amazon Warehouse Parking Lot,” at Playwrights Horizons, is a fuzzy world lacking depth.`\
 https://nytimes.com/2024/10/30/theater/hothouse-in-the-amazon-warehouse-parking-lot.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/fact-check-kamala-harris.html
 **WSL agrees 'significant' new broadcast deal with Sky Sports and BBC**\
 `The Women&#8217;s Super League (WSL) has agreed what it calls “the most significant broadcast partnership ever for women’s football” in the United Kingdom and Ireland.`\
 https://nytimes.com/athletic/5885399/2024/10/30/wsl-new-broadcast-deal/
-
-**This Is Your Body on Sugar**\
-`Excessive consumption of sugar can increase the risk of health problems. Here's what that looks like in the body.`\
-https://nytimes.com/interactive/2024/10/30/well/eat/sugar-health-effects-risks.html
-
-**Georgia, Florida are expected to extend their contract with Jacksonville for 2028, beyond**\
-`While EverBank Stadium in Jacksonville is being renovated, Georgia and Florida will play in Atlanta and Tampa in 2026 and 2027.`\
-https://nytimes.com/athletic/5885468/2024/10/30/georgia-florida-atlanta-tampa-jacksonville/
 
