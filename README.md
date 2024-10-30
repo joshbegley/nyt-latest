@@ -2,7 +2,7 @@
 `One fan tried to take Betts' glove off his left hand while a second fan swatted Betts' right hand away.`\
 https://nytimes.com/athletic/5884205/2024/10/29/yankees-fans-interference-ejection-world-series-game-4/
 
-**Israel’s Allies at U.N. Condemn Law Banning Palestinian Aid Agency**\
+**Israel’s allies at the U.N. condemned a law banning the main aid agency for Palestinians.**\
 `At a U.N. Security Council meeting on the aid crisis in Gaza, envoys from the United States, France and Britain were among dozens of speakers decrying the Israeli legislation.`\
 https://nytimes.com/live/2024/10/29/world/israel-gaza-iran-lebanon/israel-un-unrwa-ban
 
