@@ -1,3 +1,11 @@
+**'I’m not sure he knew why we were there': The day Trump did the League Cup draw**\
+`Remembering the surreal occasion a future U.S. president appeared on UK TV to pull balls out of a bag...`\
+https://nytimes.com/athletic/5795971/2024/10/30/donald-trump-league-cup-draw/
+
+**Why don't goalkeepers wear caps anymore?**\
+`A goalkeeper wearing a cap during a match is so rare these days that Guglielmo Vicario doing so this month sparked a pang of nostalgia`\
+https://nytimes.com/athletic/5880034/2024/10/30/why-dont-goalkeepers-wear-caps-anymore/
+
 **Explained: If Manchester City are punished will clubs face big bonus bills?**\
 `Was Jose Mourinho being mischievous when discussing Manchester City's charges - or could he actually be in line for some more silverware?`\
 https://nytimes.com/athletic/5869432/2024/10/30/manchester-city-titles-mourinho-bonuses-explained/
