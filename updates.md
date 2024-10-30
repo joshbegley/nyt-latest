@@ -1,3 +1,7 @@
+**The many lives of F1's Alessandro Alunni Bravi, from fighting the Mafia to repping Sauber**\
+`Small-town lawyer dreams. Part-time journalist. Future novelist? Sauber's team rep is still steering the direction of his life.`\
+https://nytimes.com/athletic/5883297/2024/10/30/alessandro-alunni-bravi-f1-sauber/
+
 **Lewis Sorley, 90, Who Said the U.S. Won (but Then Lost) in Vietnam, Dies**\
 `His Pulitzer Prize-nominated history of the war was warmly received by the Pentagon, but rejected elsewhere for ignoring what many said made the war “unwinnable.”`\
 https://nytimes.com/2024/10/30/books/lewis-sorley-dead.html
