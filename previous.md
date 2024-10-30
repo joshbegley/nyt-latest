@@ -1,3 +1,7 @@
+**Dodgers fail to finish sweep, so all eyes turn to Jack Flaherty for Game 5**\
+`The Dodgers will go up against the Yankees' Gerrit Cole, the reigning American League Cy Young winner.`\
+https://nytimes.com/athletic/5884651/2024/10/30/dodgers-yankees-world-series-jack-flaherty/
+
 **Beto at Everton: The tears, the frustrations - and should he play more?**\
 `His contribution to Saturday's draw will need to become a more regular occurrence if he is to truly make his mark at Goodison Park `\
 https://nytimes.com/athletic/5882234/2024/10/30/beto-everton-playing-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879730/2024/10/30/lewis-miley-newcastle-background
 **The story of Gavi's injury recovery: Spotify playlists, swimming and smiles at last**\
 `Gavi is back with Barcelona after almost a year out because of a serious knee injury. It's been a long time coming - this is how he did it`\
 https://nytimes.com/athletic/5883219/2024/10/30/gavi-injury-recovery-barcelona/
-
-**'I’m not sure he knew why we were there': The day Trump did the League Cup draw**\
-`Remembering the surreal occasion a future U.S. president appeared on UK TV to pull balls out of a bag...`\
-https://nytimes.com/athletic/5795971/2024/10/30/donald-trump-league-cup-draw/
 

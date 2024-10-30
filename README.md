@@ -1,3 +1,19 @@
+**Arsenal Today: Preston away and a sitdown with Per Mertesacker**\
+`Amy Lawrence talks you through what is interesting our team of Arsenal reporters today`\
+https://nytimes.com/athletic/5883044/2024/10/30/arsenal-today-october-30/
+
+**Per Mertesacker interview: Developing Nwaneri and Lewis-Skelly, recruitment and U8s transfers**\
+`The head of Arsenal's academy talks about the challenges and opportunities of trying to develop Arsenal's next generation of players`\
+https://nytimes.com/athletic/5881953/2024/10/30/per-mertesacker-arsenal-academy/
+
+**Word of the Day: tinny**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/30/learning/word-of-the-day-tinny.html
+
+**Canadiens' attention to detail is not yet up to standard, and the Kraken exposed it**\
+`The Canadiens are seeking a path to maturity, and they took another detour against the Kraken on home ice.`\
+https://nytimes.com/athletic/5884665/2024/10/30/canadiens-kraken-attention-to-detail-exposed/
+
 **Dodgers fail to finish sweep, so all eyes turn to Jack Flaherty for Game 5**\
 `The Dodgers will go up against the Yankees' Gerrit Cole, the reigning American League Cy Young winner.`\
 https://nytimes.com/athletic/5884651/2024/10/30/dodgers-yankees-world-series-jack-flaherty/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5881992/2024/10/30/andrey-santos-chelsea-strasbourg
 **Isaac Schmidt remains an unknown quantity at Leeds - but is opportunity on the way?**\
 `For the second game in a row, Daniel Farke will need to make changes at full-back. It presents a chance for summer buy Schmidt to shine`\
 https://nytimes.com/athletic/5879830/2024/10/30/isaac-schmidt-leeds-analysis/
-
-**Glasner should play his regulars in the Carabao Cup - beating Villa could kickstart Palace's season**\
-`Palace have a big league game at Wolves on Saturday, but the chance to build momentum with a cup victory is of great importance`\
-https://nytimes.com/athletic/5876706/2024/10/30/glasner-regular-players-carabao-cup/
-
-**Is Trey Nyoni ready for a regular place in Liverpool's matchday squad?**\
-`The 17-year-old is yet to play for Arne Slot but his ferocious talent and youth-team experience have him banging on the Dutchman's door`\
-https://nytimes.com/athletic/5879094/2024/10/30/trey-nyoni-liverpool-matchday-squad/
-
-**The making of Lewis Miley, by those who have watched his rise**\
-`Those who have witnessed the 18-year-old's development explain why they have long thought he can make it to the very top`\
-https://nytimes.com/athletic/5879730/2024/10/30/lewis-miley-newcastle-background/
-
-**The story of Gavi's injury recovery: Spotify playlists, swimming and smiles at last**\
-`Gavi is back with Barcelona after almost a year out because of a serious knee injury. It's been a long time coming - this is how he did it`\
-https://nytimes.com/athletic/5883219/2024/10/30/gavi-injury-recovery-barcelona/
 
