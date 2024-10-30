@@ -1,3 +1,11 @@
+**A ‘Glorious’ Economy**\
+`The economy is a remarkable success, even if Biden and Harris aren’t getting credit for it.`\
+https://nytimes.com/2024/10/30/opinion/krugman-glorious-economy-harris.html
+
+**How Donald Trump Is Making Big Promises to Big Business**\
+`Crypto. Big Oil. Tobacco. Vaping. Former President Donald J. Trump has been making overt promises to industry leaders. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
+https://nytimes.com/video/us/politics/100000009787098/how-donald-trump-is-making-big-promises-to-big-business.html
+
 **Was This Scrap of Cloth Once a Tunic Worn by Alexander the Great?**\
 `A Greek researcher says a piece of purple-and-white fabric discovered decades ago in a tomb in northern Greece may have belonged to Alexander. Others disagree.`\
 https://nytimes.com/2024/10/30/world/europe/alexander-the-great-tunic-cloth.html
