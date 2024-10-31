@@ -1,3 +1,7 @@
+**Freddie Freeman named 2024 World Series MVP after record-breaking performance**\
+`Freeman recorded a .300 batting average and contributed a critical two-run single in Game 5 to lift the Dodgers to victory.`\
+https://nytimes.com/athletic/5887239/2024/10/31/yankees-dodgers-world-series-2024-freddie-freeman-mvp/
+
 **Fantasy Premier League: How to build a cheap defence so you can buy big up top**\
 `The budget players to look at for defensive picks - and the gains made by adjusting the budget in this position...`\
 https://nytimes.com/athletic/5879586/2024/10/31/fantasy-premier-league-how-to-build-a-cheap-defence-so-you-can-buy-big-up-top/
