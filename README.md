@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: Giannis' new runway and Brook Lopez's rim protection**\
+`One trend to watch: How Milwaukee fights the possession battle and what's required for the team to be successful.`\
+https://nytimes.com/athletic/5876521/2024/10/31/bucks-giannis-antetokounmpo-brook-lopez-rim-protection/
+
 **‘Blitz’ Review: Love in the Ruins**\
 `Steve McQueen’s World War II drama may appear conventional on the surface, but don’t miss what it’s really doing.`\
 https://nytimes.com/2024/10/31/movies/blitz-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-senate-virginia.html
 **Election 2024 Polls: Missouri Senate**\
 `See the latest election polls and polling averages for Missouri.`\
 https://nytimes.com/interactive/2024/us/elections/polls-senate-missouri.html
-
-**Election 2024 Polls: Maryland Senate**\
-`See the latest election polls and polling averages for Maryland.`\
-https://nytimes.com/interactive/2024/us/elections/polls-senate-maryland.html
 
