@@ -1,3 +1,7 @@
+**Penguins Today: Can the Two-Headed Monster save this frightfully bad team?**\
+`If the Penguins want to show they're serious about contending, they'll need Sidney Crosby and Evgeni Malkin to take them there.`\
+https://nytimes.com/athletic/5888144/2024/10/31/penguins-today-sidney-crosby-evgeni-malkin/
+
 **What we're seeing with the Bucks: Giannis' new runway and Brook Lopez's rim protection**\
 `One trend to watch: How Milwaukee fights the possession battle and what's required for the team to be successful.`\
 https://nytimes.com/athletic/5876521/2024/10/31/bucks-giannis-antetokounmpo-brook-lopez-rim-protection/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-senate-texas.html
 **Election 2024 Polls: Virginia Senate**\
 `See the latest election polls and polling averages for Virginia.`\
 https://nytimes.com/interactive/2024/us/elections/polls-senate-virginia.html
-
-**Election 2024 Polls: Missouri Senate**\
-`See the latest election polls and polling averages for Missouri.`\
-https://nytimes.com/interactive/2024/us/elections/polls-senate-missouri.html
 
