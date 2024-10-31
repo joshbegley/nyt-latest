@@ -1,3 +1,7 @@
+**Unrivaled 3×3 league expanding to 36 players ahead of first season**\
+`There will still be six teams, with six players now participating on each.`\
+https://nytimes.com/athletic/5888767/2024/10/31/unrivaled-basketball-expanding-wnba/
+
 **Being Sugar-Deprived Had Major Effects on These Childrens’ Health**\
 `British data shows that children conceived and born during a period of sugar rationing were less likely to develop diabetes or high blood pressure later in life.`\
 https://nytimes.com/2024/10/31/health/sugar-rationing-britain-health-experiment.html
