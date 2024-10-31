@@ -1,3 +1,7 @@
+**A Texas Judge’s Fight to Keep a High Profile Case Out of His Court**\
+`A battle over a new rule to limit credit card late fees has spiraled into a larger skirmish about how much power litigants should have to maneuver their cases into friendly courtrooms.`\
+https://nytimes.com/2024/10/31/business/fifth-circuit-court-venue-shopping.html
+
 **Betting for (by) dummies: Locking in the under on Penn State-Ohio State**\
 `Jon Greenberg and Zac Jackson hope you have fun on Halloween while they play unfun under bets multiple times this weekend.`\
 https://nytimes.com/athletic/5888190/2024/10/31/betting-dummies-penn-state-ohio-state-under/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/business/scam-con-artist-family-savings.html
 **The Pierre Franey Turkey Chili**\
 `Five stars, over 17,000 ratings, one hour, perfect chili.`\
 https://nytimes.com/2024/10/31/dining/the-pierre-franey-turkey-chili.html
-
-**Those Voters Who Are Still Undecided**\
-`Readers express surprise that some voters are still uncertain and urge them to vote. Also: Michelle Obama’s plea; marijuana reform; family policies.`\
-https://nytimes.com/2024/10/31/opinion/undecided-voters-2024-election.html
 
