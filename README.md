@@ -1,3 +1,7 @@
+**Why a Memphis Community Is Fighting Elon Musk’s Supercomputer**\
+`Residents say Mr. Musk’s data center for artificial intelligence is compounding their pollution burden and adding stress on the local electrical grid.`\
+https://nytimes.com/2024/10/31/business/energy-environment/elon-musk-ai-memphis-pollution.html
+
 **Everton's McNeil and Doucoure doubts for Southampton**\
 `Everton are sweating on the fitness of Dwight McNeil and Abdoulaye Doucoure ahead of Saturday’s game at Southampton, but manager Sean Dyche is optimistic about the pair&#8217;s chances of featuring.`\
 https://nytimes.com/athletic/5888366/2024/10/31/mcneil-doucoure-everton-injury-news-southampton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888164/2024/10/31/ace-cooper-flagg-maine/
 **Nottingham Forest's Gibbs-White, Jota & Anderson to be assessed before West Ham**\
 `Nottingham Forest will assess Morgan Gibbs-White, Jota and Elliot Anderson tomorrow (Friday), before deciding whether they are fit to face West Ham United at the City Ground on Saturday.`\
 https://nytimes.com/athletic/5888304/2024/10/31/gibbs-white-jota-anderson-injury-update/
-
-**PSG handed one-game partial stadium closure after homophobic chanting**\
-`Paris Saint-Germain will have a section of their Parc des Princes stadium closed for their Ligue 1 match against Toulouse on November 22 after being found guilty of homophobic chanting.`\
-https://nytimes.com/athletic/5881983/2024/10/31/psg-fans-ban-homophobic-chants/
 
