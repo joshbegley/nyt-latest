@@ -1,3 +1,15 @@
+**The Issues That Matter Most to Teenagers in This Election**\
+`Students on climate change, abortion, gun violence and more.`\
+https://nytimes.com/2024/10/31/learning/the-issues-that-matter-most-to-teenagers-in-this-election.html
+
+**Elon Musk’s xAI in Funding Talks That Could Value Company at $40 Billion**\
+`The financing efforts follow that of rival OpenAI, which recently closed a funding round that valued it at $157 billion.`\
+https://nytimes.com/2024/10/31/technology/elon-musk-xai-valuation.html
+
+**How Much Do You Know About New York City and Climate Change?**\
+`What are the factors that make global warming in New York City a unique challenge? Test your knowledge by taking this quiz.`\
+https://nytimes.com/interactive/2024/10/31/nyregion/ny-climate-quiz.html
+
 **The Metrograph, a New York Art House, Starts a Film Magazine**\
 `A throwback publication courts cinephiles with stories featuring Ari Aster, Maggie Cheung, Daniel Clowes, Clint Eastwood and Ann Hui.`\
 https://nytimes.com/2024/10/31/style/the-metrograph-a-new-york-art-house-starts-a-film-magazine.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/ad-trump-harris-migrant-crime.html
 **A Sense of Time Wasted (Productively) Anchors October’s Graphic Novels**\
 `A maximalist comedy about the interior life, a riff on fatherhood and a return after four decades to a sci-fi classic are all worth close looks this month.`\
 https://nytimes.com/2024/10/31/books/review/new-graphic-novels-chris-ware.html
-
-**Cardinals decline 2025 options on Kyle Gibson, Lance Lynn in first decisions of offseason**\
-`The moves indicate that 2025 will be a transition season for the Cardinals, who are looking to get younger.`\
-https://nytimes.com/athletic/5888790/2024/10/31/cardinals-decline-2025-options-kyle-gibson-lance-lynn/
-
-**New York Pizzas to Add to Your Must-Eat List**\
-`The old-school pizzerias at the top of their game.`\
-https://nytimes.com/2024/10/31/dining/new-york-pizzas-to-add-to-your-must-eat-list.html
-
-**Internal Emails Show Harvard Leaders Debating Response to Hamas Attack**\
-`Messages among leaders at Harvard and other universities, published by House Republicans, reveal discussions on how to balance public statements about the war and how to negotiate with protesters.`\
-https://nytimes.com/2024/10/31/us/harvard-oct-7-emails-israel-hamas-attack.html
 
