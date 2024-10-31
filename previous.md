@@ -1,3 +1,11 @@
+**Musk Seeks Switch to Federal Court for Suit Against His Online Petition**\
+`The Philadelphia district attorney sued in state court to block Elon Musk’s petition drive, saying it amounted to illegally paying people to register as voters. A hearing was scheduled for Thursday.`\
+https://nytimes.com/2024/10/31/us/elections/elon-musk-trump-petition-lottery-suit.html
+
+**Rosenthal: Dodgers show their mettle in memorable World Series comeback**\
+`Game 5 was the season in summation, the reflection of the Dodgers’ metamorphosis into street fighters and World Series champions.`\
+https://nytimes.com/athletic/5887817/2024/10/31/dodgers-yankees-world-series-win-dave-roberts/
+
 **Strike on Gaza Hospital Destroys U.N. Supplies, Palestinian Officials Say**\
 `Israeli troops had withdrawn from the facility, Kamal Adwan Hospital, after a raid that involved the arrests of most of the medical staff. The Israeli military said it was “unaware of a strike” there.`\
 https://nytimes.com/2024/10/31/world/middleeast/israel-gaza-hospital-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/31/us/harris-trump-election
 **Casemiro ushers in (another) new beginning at Manchester United**\
 `Casemiro is not the future of this football club but he is very much still part of its present`\
 https://nytimes.com/athletic/5887032/2024/10/31/manchester-united-casemiro-new-beginning/
-
-**Browns ahead of the trade deadline: Could Za'Darius Smith soon be moved?**\
-`Plus, would the team even consider dealing foundational players such as Nick Chubb and Myles Garrett? `\
-https://nytimes.com/athletic/5886310/2024/10/31/browns-trade-deadline-zadarius-smith/
-
-**Michigan Election Denial Activists Seize on Voter Report Glitch**\
-`Participants in the Election Integrity Network spread false claims in right-wing media that were debunked by the Michigan secretary of state.`\
-https://nytimes.com/2024/10/31/us/politics/michigan-election-denial-activists-seize-on-voter-report-glitch.html
 
