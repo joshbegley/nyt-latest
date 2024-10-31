@@ -1,3 +1,15 @@
+**What’s Red and Green and Served All Over?**\
+`Since the Mexico City restaurant Contramar turned a classic fish dish into a go-to entree, versions have popped up from Milwaukee to Greece.`\
+https://nytimes.com/2024/10/31/dining/mexico-city-contramar-fish-dish.html
+
+**Review: A Vocally Splendid ‘Ragtime’ Raises the Roof**\
+`Joshua Henry stars in an exhilarating gala revival of the 1998 musical about nothing less than the harmony and discord of America.`\
+https://nytimes.com/2024/10/31/theater/ragtime-review-city-center.html
+
+**Iranian Officials Threaten Retaliation for Israeli Strikes**\
+`It was unclear how or when Iran plans to respond, and some officials said the rhetoric could be bluster. Iranian officials had downplayed the damage of Israel’s last attack.`\
+https://nytimes.com/2024/10/31/world/middleeast/iran-threatens-retaliation-israel-strikes.html
+
 **New York Court Suspends Lawyer Who Pushed Trump’s Fake Electors Scheme**\
 `The lawyer, Kenneth Chesebro, had previously pleaded guilty to a felony charge of conspiracy in a Georgia court.`\
 https://nytimes.com/2024/10/31/us/politics/trump-lawyer-chesebro-suspended-new-york.html
