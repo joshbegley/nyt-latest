@@ -1,3 +1,15 @@
+**The Pierre Franey Turkey Chili**\
+`Five stars, over 17,000 ratings, one hour, perfect chili.`\
+https://nytimes.com/2024/10/31/dining/the-pierre-franey-turkey-chili.html
+
+**Those Voters Who Are Still Undecided**\
+`Readers express surprise that some voters are still uncertain and urge them to vote. Also: Michelle Obama’s plea; marijuana reform; family policies.`\
+https://nytimes.com/2024/10/31/opinion/undecided-voters-2024-election.html
+
+**Comcast Explores Spin-Out of Cable Business**\
+`The company’s president, Mike Cavanagh, said the company was also considering finding a partner for its Peacock streaming service.`\
+https://nytimes.com/2024/10/31/business/media/comcast-cable-networks-spin-off.html
+
 **How a Tiny Panel, Up for Election, Could Steer Arizona Away From Clean Power**\
 `The vote, in a sunny state with huge solar potential, reflects a growing nationwide fight over America’s energy transition.`\
 https://nytimes.com/2024/10/31/climate/arizona-utility-clean-energy-election.html

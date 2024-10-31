@@ -1,3 +1,11 @@
+**The Pierre Franey Turkey Chili**\
+`Five stars, over 17,000 ratings, one hour, perfect chili.`\
+https://nytimes.com/2024/10/31/dining/the-pierre-franey-turkey-chili.html
+
+**Those Voters Who Are Still Undecided**\
+`Readers express surprise that some voters are still uncertain and urge them to vote. Also: Michelle Obama’s plea; marijuana reform; family policies.`\
+https://nytimes.com/2024/10/31/opinion/undecided-voters-2024-election.html
+
 **How a Tiny Panel, Up for Election, Could Steer Arizona Away From Clean Power**\
 `The vote, in a sunny state with huge solar potential, reflects a growing nationwide fight over America’s energy transition.`\
 https://nytimes.com/2024/10/31/climate/arizona-utility-clean-energy-election.html
@@ -20,7 +28,7 @@ https://nytimes.com/athletic/5881983/2024/10/31/psg-fans-ban-homophobic-chants/
 
 **Comcast Explores Spin-Out of Cable Business**\
 `The company’s president, Mike Cavanagh, said the company was also considering finding a partner for its Peacock streaming service.`\
-https://nytimes.com/2024/10/31/business/media/comcast-explores-spin-out-of-cable-business.html
+https://nytimes.com/2024/10/31/business/media/comcast-cable-networks-spin-off.html
 
 **Canucks report cards: Grading every forward's October performance**\
 `How did J.T. Miller, Elias Pettersson, Brock Boeser and the rest of Vancouver's forwards fare in the first month of the season?`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5887462/2024/10/31/canucks-report-cards-forwards-oc
 **Recent Bulls wins showing resiliency, refusal to accept defeat with young team**\
 `After crafting two comeback victories from 20-point deficits in their past two games, the Bulls could be forming an early identity.`\
 https://nytimes.com/athletic/5886790/2024/10/31/chicago-bulls-nba-early-identity/
-
-**Brighton's Joao Pedro back in training before Liverpool trip**\
-`Brighton &amp; Hove Albion forward Joao Pedro has returned to first-team training and could feature in Saturday&#8217;s Premier League match at Liverpool, head coach Fabian Hurzeler said on Thursday.`\
-https://nytimes.com/athletic/5888198/2024/10/31/joao-pedro-brighton-injury-update/
-
-**Inside Franco Colapinto’s rapid F1 rise: ‘A trajectory like a mountain slope’**\
-`"Don't worry, I'll get there." Against all the odds, the Argentine driver has gotten to F1. `\
-https://nytimes.com/athletic/5888109/2024/10/31/franco-colapinto-f1-williams-origin-story/
 
