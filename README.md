@@ -1,3 +1,19 @@
+**Man Repeatedly Punched Sleeping Passenger on Flight, Authorities Say**\
+`A man assaulted another passenger on a United Airlines flight on Monday in an attack that appeared to have been random, officials said.`\
+https://nytimes.com/2024/10/31/us/united-airlines-passenger-attack.html
+
+**College football Week 10 model-predicted point differentials and totals for every game**\
+`There are several close games in college football's Week 10. Austin Mock's model has projected point differentials for every game.`\
+https://nytimes.com/athletic/5889218/2024/10/31/college-football-week-10-model-projections/
+
+**Young Thug Pleads Guilty in YSL Case Nearly a Year Into Trial**\
+`The star Atlanta rapper admitted to six counts, including participating in criminal street gang activity, ending his role in the longest trial in Georgia history.`\
+https://nytimes.com/2024/10/31/arts/music/young-thug-guilty-plea-ysl-young-slime-life-trial.html
+
+**Amazon Reports Record $15.3 Billion Profit**\
+`The tech giant’s cloud computing business picked up steam and its retail business showed resiliency.`\
+https://nytimes.com/2024/10/31/business/amazon-q3-earnings.html
+
 **The Issues That Matter Most to Teenagers in This Election**\
 `Students on climate change, abortion, gun violence and more.`\
 https://nytimes.com/2024/10/31/learning/the-issues-that-matter-most-to-teenagers-in-this-election.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5889044/2024/10/31/allen-lazard-ir-jets/
 **Isabelle de Borchgrave Dies at 79; Traced Sartorial History With Paper**\
 `An artist and designer, she transformed simple craft paper into elaborate trompe l’oeil confections, creating stunning life-size reproductions of period garments.`\
 https://nytimes.com/2024/10/31/style/isabelle-de-borchgrave-dead.html
-
-**Rare Autumn Drought in Northeast Brings a Spate of Wildfires**\
-`Hundreds of fires are burning in New Jersey and Connecticut as the region experiences a spell of unusually warm fall weather.`\
-https://nytimes.com/2024/10/31/nyregion/new-jersey-connecticut-wildfires-drought.html
-
-**What Backlash To Racist Rally Remarks Means for Trump**\
-`Maggie Haberman, a senior political correspondent for The New York Times, surveys former President Donald J. Trump’s campaign in its tumultuous final week before Election Day.`\
-https://nytimes.com/video/us/elections/100000009792326/what-backlash-to-racist-rally-remarks-means-for-trump.html
-
-**A Spooky Halloween Ad Tries to Tie Harris to Migrant Crime**\
-`A pro-Trump super PAC ad in the style of a mini-horror film uses misleading claims as it tries to frighten voters about the prospect of a Harris presidency.`\
-https://nytimes.com/2024/10/31/us/politics/ad-trump-harris-migrant-crime.html
-
-**A Sense of Time Wasted (Productively) Anchors October’s Graphic Novels**\
-`A maximalist comedy about the interior life, a riff on fatherhood and a return after four decades to a sci-fi classic are all worth close looks this month.`\
-https://nytimes.com/2024/10/31/books/review/new-graphic-novels-chris-ware.html
 
