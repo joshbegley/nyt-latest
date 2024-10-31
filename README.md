@@ -1,3 +1,7 @@
+**Ethan Nwaneri: If not now, then when?**\
+`Technically, physically and mentality the 17 year old looks ready for a more prominent role and a more difficult challenge than Preston`\
+https://nytimes.com/athletic/5885432/2024/10/31/ethan-nwaneri-arsenal/
+
 **Jayson Tatum, Jaylen Brown point finger at themselves after Celtics' first loss this season**\
 `Though either of them could have regretted big misses in OT, they seemed more upset about failing to play with their normal edge early.`\
 https://nytimes.com/athletic/5887398/2024/10/31/jayson-tatum-jaylen-brown-celtics-first-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879586/2024/10/31/fantasy-premier-league-how-to-bu
 **How do you coach Olympians? Lessons from Team GB's summer in Paris**\
 `Three former athletes, now coaches for Team GB Olympians, explain how they contributed to the country's best Games for 40 years`\
 https://nytimes.com/athletic/5879385/2024/10/31/how-do-you-coach-olympians-paris-2024/
-
-**How Nuno's extensive use of subs is driving Forest's impressive start**\
-`No team has used more substitutes in the Premier League than Forest so far this season - and it is paying off`\
-https://nytimes.com/athletic/5885030/2024/10/31/nottingham-forest-substitutes/
 
