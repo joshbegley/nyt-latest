@@ -1,3 +1,15 @@
+**Campaign Ad for Nebraska Senator Uses Images From the Northeast**\
+`Her opponent, Dan Osborn, an independent, seized on the gaffe. A spokesman for the Fischer campaign blamed a “screw-up by a vendor.”`\
+https://nytimes.com/2024/10/31/us/politics/nebraska-senator-fischer-ad.html
+
+**Deer Hunter Is Killed in Apparent Bear Attack in Alaska, Authorities Say**\
+`Tad Fujioka, 50, was reported overdue from a deer hunting trip in the Sitka area of Alaska, near Juneau, the authorities said.`\
+https://nytimes.com/2024/10/31/us/bear-mauled-hunter-alaska.html
+
+**The ‘Garbage’ Insult Stung. But Puerto Ricans Are Focused on Their Own Election.**\
+`For Puerto Ricans living on the island, the most consequential race this year is for governor. Frequent power blackouts have become a top political issue.`\
+https://nytimes.com/2024/10/31/us/trump-garbage-puerto-rico-governor-election.html
+
 **The ‘Garbage’ Insult Stung. But Puerto Ricans Are Focused on Their Own Election.**\
 `For Puerto Ricans living on the island, the most consequential race this year is for governor. Frequent power blackouts have become a top political issue.`\
 https://nytimes.com/2024/10/31/us/garbage-puerto-rico-election-governor-power.html
