@@ -1,3 +1,7 @@
+**Walker Buehler symbolized team's grit: 'Now he's etched in Dodger glory forever'**\
+`When Buehler volunteered for relief duty, the Dodgers laughed it off. He wound up putting the final touches on a World Series victory.`\
+https://nytimes.com/athletic/5887628/2024/10/31/dodgers-yankees-world-series-walker-buehler-2/
+
 **The Suns are off to a good start, and it goes beyond their offensive stars**\
 `This is how this year’s Suns are different. Last year’s bench struggled to make an impact. This year's bench is helping them win games.`\
 https://nytimes.com/athletic/5887214/2024/10/31/phoenix-suns-bench-royce-oneale-ryan-dunn/
