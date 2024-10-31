@@ -1,3 +1,7 @@
+**Naomi Girma scores twice in USWNT win over Argentina**\
+`The defender has been a regular as captain of the U.S.`\
+https://nytimes.com/athletic/5886883/2024/10/30/naomi-girma-scores-uswnt-argentina/
+
 **Mexico Passes Bill Barring Legal Challenges to Constitutional Changes**\
 `The bill has drawn criticism from legal scholars who say it would bulldoze any judicial oversight of constitutional matters.`\
 https://nytimes.com/2024/10/30/world/americas/mexico-passes-bill-legal-challenges.html

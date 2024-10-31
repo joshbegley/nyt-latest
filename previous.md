@@ -1,3 +1,7 @@
+**Naomi Girma scores twice in USWNT win over Argentina**\
+`The defender has been a regular as captain of the U.S.`\
+https://nytimes.com/athletic/5886883/2024/10/30/naomi-girma-scores-uswnt-argentina/
+
 **Mexico Passes Bill Barring Legal Challenges to Constitutional Changes**\
 `The bill has drawn criticism from legal scholars who say it would bulldoze any judicial oversight of constitutional matters.`\
 https://nytimes.com/2024/10/30/world/americas/mexico-passes-bill-legal-challenges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/politics/nicky-jam-trump-puerto-rico.html
 **Taiwan Braces for Powerful Typhoon Kong-rey**\
 `The approaching storm was forecast to hit as the equivalent of a Category 4 hurricane along Taiwan’s eastern coast on Thursday.`\
 https://nytimes.com/2024/10/30/weather/typhoon-kong-rey-taiwan-landfall.html
-
-**Van Nistelrooy: I will help and serve Man Utd as long as I'm needed**\
-`Manchester United interim head coach Ruud van Nistelrooy has said he will &#8220;help and serve&#8221; the club for as long as he is needed.`\
-https://nytimes.com/athletic/5886638/2024/10/30/ruud-van-nistelrooy-manchester-united-interim-coach/
 
