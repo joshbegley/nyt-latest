@@ -1,3 +1,19 @@
+**Liverpool issued 75 lifetime bans in battle over Anfield ticket touting**\
+`Liverpool issued 75 lifetime bans from Anfield over the course of last season in the ongoing battle over ticket touting.`\
+https://nytimes.com/athletic/5888050/2024/10/31/liverpool-ticket-touts-anfield/
+
+**In Orange County, a Key House Race Could Come Down to Little Saigon Voters**\
+`Representative Michelle Steel, a Republican incumbent, and Derek Tran, her Democratic challenger, are trying to identify with a crucial voting bloc of Vietnamese Americans.`\
+https://nytimes.com/2024/10/31/us/elections/steel-tran-vietnamese-ca-45.html
+
+**Dodgers reliever Daniel Hudson retires**\
+`The 37-year-old turned in his first wire-to-wire season in half a decade, with a 3.00 ERA in 65 appearances despite having sore knees.`\
+https://nytimes.com/athletic/5888002/2024/10/31/dodgers-daniel-hudson-retire/
+
+**How many more ovations does LeBron James have left in Cleveland?**\
+`James and the Lakers made another trip "home" to Cleveland, where Bronny James scored his first NBA basket. `\
+https://nytimes.com/athletic/5887338/2024/10/31/lebron-james-cleveland-homecoming/
+
 **Dodgers reliever Daniel Hudson to retire**\
 `The 37-year-old turned in his first wire-to-wire season in half a decade, with a 3.00 ERA in 65 appearances despite having sore knees.`\
 https://nytimes.com/athletic/5888002/2024/10/31/dodgers-daniel-hudson-retire/
