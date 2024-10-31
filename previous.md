@@ -1,3 +1,7 @@
+**Watch: ‘You’re Being Lied To About Voter Fraud. Here’s the Truth.’**\
+`Should we be worried about cheating at the polls? Or is it just a dangerous myth?`\
+https://nytimes.com/2024/10/31/learning/watch-youre-being-lied-to-about-voter-fraud-heres-the-truth.html
+
 **MLB's offseason schedule: Key dates and deadlines to get you through the baseball winter**\
 `Every offseason is loaded with uncertainty, but also deadlines and mile markers that help guide the way to next spring. Here’s the road map.`\
 https://nytimes.com/athletic/5884166/2024/10/31/mlb-offseason-schedule-key-dates-deadlines/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5885482/2024/10/31/patriots-nfl-draft-grades-drake-
 **Commanders' Johnny Newton learning path to greatness one official sack at a time**\
 `The second-round pick impressed in Washington's Week 8 win, and he's just getting started.`\
 https://nytimes.com/athletic/5886547/2024/10/31/commanders-johnny-newton-sack-rookie-season/
-
-**College basketball coaches talk overrated teams, intriguing players and more**\
-`We have our thoughts, but it’s best to ask the people whose opinions actually matter: the coaches.`\
-https://nytimes.com/athletic/5885186/2024/10/31/college-basketball-coaches-underrated-overrated/
 

@@ -1,3 +1,7 @@
+**Watch: ‘You’re Being Lied To About Voter Fraud. Here’s the Truth.’**\
+`Should we be worried about cheating at the polls? Or is it just a dangerous myth?`\
+https://nytimes.com/2024/10/31/learning/watch-youre-being-lied-to-about-voter-fraud-heres-the-truth.html
+
 **MLB's offseason schedule: Key dates and deadlines to get you through the baseball winter**\
 `Every offseason is loaded with uncertainty, but also deadlines and mile markers that help guide the way to next spring. Here’s the road map.`\
 https://nytimes.com/athletic/5884166/2024/10/31/mlb-offseason-schedule-key-dates-deadlines/
