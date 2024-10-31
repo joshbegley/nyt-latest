@@ -1,3 +1,11 @@
+**Unicorn diary: Chronicling the latest Victor Wembanyama-Chet Holmgren showdown**\
+`Holmgren got the best of Wembanyama in the latest meeting of the NBA's young giants. `\
+https://nytimes.com/athletic/5887371/2024/10/31/victor-wembanyama-chet-holmgren-matchup-spurs-thunder/
+
+**Why Dodgers' Game 5 win over Yankees was the craziest World Series clincher ever**\
+`As weird, wild and utterly zany Series finales go, this game was up there with 2016 and 2001 or possibly even 1993 and 1960. Here's why. `\
+https://nytimes.com/athletic/5887769/2024/10/31/dodgers-yankees-world-series-game-5-crazy-clincher/
+
 **'I take full responsibility': How Kevin Fiala responded after being scratched by the Kings**\
 `Fiala had two points in a Kings win over the Golden Knights a day after he was scratched for "violating team protocol."`\
 https://nytimes.com/athletic/5887601/2024/10/31/kevin-fiala-la-kings-scratch-golden-knights/
