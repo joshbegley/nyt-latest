@@ -1,3 +1,7 @@
+**How many more ovations does LeBron James have left in Cleveland?**\
+`James and the Lakers made another trip "home" to Cleveland, where Bronny James scored his first NBA basket. `\
+https://nytimes.com/athletic/5887338/2024/10/31/lebron-james-cleveland-homecoming/
+
 **A new role for John Tavares should help spark Maple Leafs’ ailing power play**\
 `John Tavares is longer effective in his net-front role on PP1 but could be valuable on a new-look PP2. `\
 https://nytimes.com/athletic/5883868/2024/10/31/maple-leafs-john-tavares-power-play/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/movies/the-gutter-review.html
 **‘Chasing Chasing Amy’ Review: A Fan’s Favorite**\
 `Sav Rodgers sets out to define the legacy of Kevin Smith’s “Chasing Amy” in this documentary, which is elevated by one instructive interview.`\
 https://nytimes.com/2024/10/31/movies/chasing-chasing-amy-review.html
-
-**‘Absolution’ Review: Brain Drain**\
-`Liam Neeson plays a regretful gangster with a serious medical condition in this drab, downbeat action movie.`\
-https://nytimes.com/2024/10/31/movies/absolution-review.html
 
