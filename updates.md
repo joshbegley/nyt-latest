@@ -1,3 +1,11 @@
+**Lakers' Bronny James scores first career points in loss to Cavaliers**\
+`James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
+https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/
+
+**House Covid Panel Refers Andrew Cuomo for Potential Prosecution**\
+`The Republican-led House subcommittee asked the Justice Department to investigate Mr. Cuomo for possible prosecution for “false statements” in his testimony.`\
+https://nytimes.com/2024/10/30/nyregion/cuomo-crime-covid-hearing.html
+
 **Naomi Girma scores twice in USWNT win over Argentina**\
 `The defender has been a regular as captain of the U.S.`\
 https://nytimes.com/athletic/5886883/2024/10/30/naomi-girma-scores-uswnt-argentina/

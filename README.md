@@ -1,3 +1,7 @@
+**North Korea, in the Spotlight Over Ukraine, Launches a Long-Range Missile**\
+`The launch, into waters west of Japan, came shortly after the United States and South Korea criticized the North for sending troops to join Russia’s war.`\
+https://nytimes.com/2024/10/30/world/asia/north-korea-missile-launch.html
+
 **Lakers' Bronny James scores first career points in loss to Cavaliers**\
 `James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
 https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/nyregion/daniel-penny-jury-subway-choking.html
 **Gabriel Jesus goal can 'unlock' Arsenal forward - Arteta**\
 `Mikel Arteta believes that Gabriel Jesus ending his nine month goal drought can &#8220;unlock&#8221; the Brazilian in front of goal.`\
 https://nytimes.com/athletic/5886735/2024/10/30/gabriel-jesus-goal-arsenal-arteta/
-
-**Nicky Jam, a Reggaeton Star, Withdraws Support for Trump**\
-`The disavowal of the former president reflects the damage inflicted by racist remarks against Puerto Rico and Latinos at a recent rally at Madison Square Garden.`\
-https://nytimes.com/2024/10/30/us/politics/nicky-jam-trump-puerto-rico.html
 
