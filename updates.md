@@ -1,3 +1,11 @@
+**Cuomo Told a House Panel His Memory Was Hazy. Is That a Perjury Defense?**\
+`House Republicans referred the former New York governor for prosecution. His insistence on a faulty memory makes that outcome unlikely.`\
+https://nytimes.com/2024/10/31/nyregion/cuomo-lies-covid-justice.html
+
+**Apple’s Quarterly Profit Down Because of Tax Payment in Europe**\
+`Sales for the iPhone maker were up 6 percent to to $94.93 billion. But a $14.4 billion tax bill cut profits that would have topped expectations.`\
+https://nytimes.com/2024/10/31/technology/apple-profit-earnings.html
+
 **Trump and Vance Escalate Efforts to Sow Doubts on Pennsylvania Voting**\
 `The former president and his running made false attacks about the security of the election in Pennsylvania, the battleground state with the most electoral college votes.`\
 https://nytimes.com/2024/10/31/us/politics/trump-vance-pennsylvania-voting.html
