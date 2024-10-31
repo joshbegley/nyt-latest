@@ -1,3 +1,15 @@
+**Rare Autumn Drought in Northeast Brings a Spate of Wildfires**\
+`Hundreds of fires are burning in New Jersey and Connecticut as the region experiences a spell of unusually warm fall weather.`\
+https://nytimes.com/2024/10/31/nyregion/new-jersey-connecticut-wildfires-drought.html
+
+**What Backlash To Racist Rally Remarks Means for Trump**\
+`Maggie Haberman, a senior political correspondent for The New York Times, surveys former President Donald J. Trump’s campaign in its tumultuous final week before Election Day.`\
+https://nytimes.com/video/us/elections/100000009792326/what-backlash-to-racist-rally-remarks-means-for-trump.html
+
+**A Spooky Halloween Ad Tries to Tie Harris to Migrant Crime**\
+`A pro-Trump super PAC ad in the style of a mini-horror film uses misleading claims as it tries to frighten voters about the prospect of a Harris presidency.`\
+https://nytimes.com/2024/10/31/us/politics/ad-trump-harris-migrant-crime.html
+
 **A Sense of Time Wasted (Productively) Anchors October’s Graphic Novels**\
 `A maximalist comedy about the interior life, a riff on fatherhood and a return after four decades to a sci-fi classic are all worth close looks this month.`\
 https://nytimes.com/2024/10/31/books/review/new-graphic-novels-chris-ware.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5884182/2024/10/31/penn-state-ohio-state-big-noon-k
 **Max Verstappen brushes off criticism after penalties: ‘I just do my thing’**\
 `“I don't listen to those individuals. I just do my thing. I'm a three-time world champion. I think I know what I'm doing," Verstappen said.`\
 https://nytimes.com/athletic/5888936/2024/10/31/max-verstappen-penalties-lando-morris-mexico-city-gp/
-
-**What’s That in Your Mouth, Bro?**\
-`Zyn nicotine pouches have become a new symbol of American masculinity — and a surprising political lightning rod.`\
-https://nytimes.com/2024/10/31/style/zyn-nicotine-pouch-masculinity.html
-
-**Lewis Hamilton reflects on ‘very turbulent year’ as Mercedes F1 career nears end**\
-`With four races left before his 2025 move to Ferrari, Hamilton is staying positive as his Mercedes era ends. `\
-https://nytimes.com/athletic/5888518/2024/10/31/lewis-hamilton-f1-mercedes-ferrari-brazil-gp/
-
-**After 7 Years, P’Nut the Squirrel Is Taken Away**\
-`Possession of wildlife is generally prohibited in New York State, even of P’Nut, who had half a million followers on Instagram.`\
-https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
 
