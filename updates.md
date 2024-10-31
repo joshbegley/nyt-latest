@@ -1,3 +1,19 @@
+**Regrading the Patriots' 2024 NFL Draft class: A+ for Drake Maye, but poor marks elsewhere**\
+`The Patriots seem to have hit on Maye, but the rest of their 2024 draft class has left a lot to be desired. `\
+https://nytimes.com/athletic/5885482/2024/10/31/patriots-nfl-draft-grades-drake-maye/
+
+**Commanders' Johnny Newton learning path to greatness one official sack at a time**\
+`The second-round pick impressed in Washington's Week 8 win, and he's just getting started.`\
+https://nytimes.com/athletic/5886547/2024/10/31/commanders-johnny-newton-sack-rookie-season/
+
+**College basketball coaches talk overrated teams, intriguing players and more**\
+`We have our thoughts, but it’s best to ask the people whose opinions actually matter: the coaches.`\
+https://nytimes.com/athletic/5885186/2024/10/31/college-basketball-coaches-underrated-overrated/
+
+**'We're getting coached by legends': 3 former Panthers get after it ... in middle school**\
+`What do Greg Olsen, Luke Kuechly and Jonathan Stewart do for fun? Coach the Charlotte Christian middle school team, of course.`\
+https://nytimes.com/athletic/5867353/2024/10/31/panthers-greg-olsen-luke-kuechly-middle-school-coaches/
+
 **Biden’s Stake in This Election Is Like Nobody Else’s**\
 `Will he be remembered as American democracy’s savior — or as a midwife to its ruin?`\
 https://nytimes.com/2024/10/31/opinion/biden-election-legacy.html
