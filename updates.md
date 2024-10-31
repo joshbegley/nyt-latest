@@ -1,3 +1,7 @@
+**Browns ahead of the trade deadline: Could Za'Darius Smith soon be moved?**\
+`Plus, would the team even consider dealing foundational players such as Nick Chubb and Myles Garrett? `\
+https://nytimes.com/athletic/5886310/2024/10/31/browns-trade-deadline-zadarius-smith/
+
 **NBA Lookahead: How worried should we be about Sixers, Grizzlies and other slow starters?**\
 `Plus, the best games of the weekend ahead.`\
 https://nytimes.com/athletic/5881864/2024/10/31/nba-lookahead-grizzlies-sixers-bucks/
