@@ -1,3 +1,7 @@
+**Donald Trump Is Bored**\
+`There’s plenty going on there, but it’s not senility. It’s “extravagance.”`\
+https://nytimes.com/2024/10/31/opinion/donald-trump-speech-aging.html
+
 **What’s Red and Green and Served All Over?**\
 `Since the Mexico City restaurant Contramar turned a classic fish dish into a go-to entree, versions have popped up from Milwaukee to Greece.`\
 https://nytimes.com/2024/10/31/dining/mexico-city-contramar-fish-dish.html
