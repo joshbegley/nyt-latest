@@ -1,3 +1,7 @@
+**Enjoy the Penguins nostalgia tour because this season is on thin ice**\
+`Savor the special moments this season because focusing on the Penguins' record might become an insufferable chore.`\
+https://nytimes.com/athletic/5885531/2024/10/31/penguins-standings-records/
+
 **Bears try to move on from Hail Mary gaffe, questions about coaching, leadership**\
 `Where does a player-led team leave Matt Eberflus? How much more turmoil can the Bears expect to bounce back from?`\
 https://nytimes.com/athletic/5886369/2024/10/31/bears-hail-mary-coaching-leadership/

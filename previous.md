@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5885681/2024/10/31/wisconsin-recruiting-game-day-en
 `Kelly Iko and John Hollinger discuss how the Spurs and Rockets have started the season and what the season might hold.`\
 https://nytimes.com/athletic/5883733/2024/10/31/spurs-rockets-chris-paul-jalen-green/
 
-**Yohe: Enjoy the Penguins nostalgia tour because this season is on thin ice**\
+**Enjoy the Penguins nostalgia tour because this season is on thin ice**\
 `Savor the special moments this season because focusing on the Penguins' record might become an insufferable chore.`\
 https://nytimes.com/athletic/5885531/2024/10/31/penguins-standings-records/
 

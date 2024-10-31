@@ -1,3 +1,7 @@
+**The 2024 Stakes for Judges**\
+`How the election could change the courts.`\
+https://nytimes.com/2024/10/31/briefing/the-2024-stakes-for-judges.html
+
 **Bears try to move on from Hail Mary gaffe, questions about coaching, leadership**\
 `Where does a player-led team leave Matt Eberflus? How much more turmoil can the Bears expect to bounce back from?`\
 https://nytimes.com/athletic/5886369/2024/10/31/bears-hail-mary-coaching-leadership/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5886686/2024/10/31/jalen-brunson-knicks-heat-observ
 **Mets' free-agent outlook: How much should the Mets pay to bring back Pete Alonso?**\
 `It was a pedestrian season by Alonso's standards, but he still hits free agency as the best option at first base. `\
 https://nytimes.com/athletic/5880285/2024/10/31/mets-pete-alonso-free-agency-market/
-
-**Ravens still on the prowl as trade deadline nears, but who out there makes sense?**\
-`Will Baltimore GM Eric DeCosta pursue a defensive player such as Jadeveon Clowney or Za'Darius Smith before next week's deadline?`\
-https://nytimes.com/athletic/5885789/2024/10/31/ravens-eric-decosta-trade-deadline/
 
