@@ -1,3 +1,11 @@
+**After 7 Years, P’Nut the Squirrel Is Taken Away**\
+`Possession of wildlife is generally prohibited in New York State, even of P’Nut, who had half a million followers on Instagram.`\
+https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
+
+**Surprise Hit of the Campaign TV Ad Season: Giving Voters Permission to Go Rogue**\
+`Both parties are running ads that tell voters it’s OK to break from their party. “You can vote any way you want. And no one will ever know,” one says.`\
+https://nytimes.com/2024/10/31/us/politics/trump-harris-campaign-ads.html
+
 **What’s Red and Green and Served All Over?**\
 `Since the Mexico City restaurant Contramar turned a classic fish dish into a go-to entree, versions have popped up from Milwaukee to Greece.`\
 https://nytimes.com/2024/10/31/dining/mexico-city-contramar-fish-dish.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-elon-musk-masculinity
 **Donald Trump Is Bored**\
 `There’s plenty going on there, but it’s not senility. It’s “extravagance.”`\
 https://nytimes.com/2024/10/31/opinion/donald-trump-speech-aging.html
-
-**What’s Going On in This Picture? | Nov. 6, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/10/31/learning/whats-going-on-in-this-picture-nov-6-2024.html
-
-**What’s Going On in This Graph? | Nov. 6, 2024**\
-`Who is bigger: Taylor Swift or Michael Jackson?`\
-https://nytimes.com/2024/10/31/learning/whats-going-on-in-this-graph-nov-6-2024.html
 
