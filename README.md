@@ -34,7 +34,7 @@ https://nytimes.com/2024/10/31/arts/dance/royal-danish-ballet-nikolaj-hubbe-repl
 `One son couldn’t prevent his father from giving about $1 million in savings to con artists, including one posing as a female wrestling star. The two became estranged.`\
 https://nytimes.com/2024/10/31/business/scam-con-artist-family-savings.html
 
-**The Pierre Franey Turkey Chili**\
-`Five stars, over 17,000 ratings, one hour, perfect chili.`\
-https://nytimes.com/2024/10/31/dining/the-pierre-franey-turkey-chili.html
+**Fantasy football rankings Week 9: Sleepers, projections, starts, Patrick Mahomes, Josh Downs**\
+`Jake Ciely offers up his Week 9 fantasy football rankings, and likes Patrick Mahomes to finally have a big day versus a porous Bucs defense.`\
+https://nytimes.com/athletic/5883846/2024/10/31/fantasy-football-rankings-week-9-sleepers-projections-starts-patrick-mahomes-josh-downs/
 
