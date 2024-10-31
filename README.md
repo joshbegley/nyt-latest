@@ -1,3 +1,11 @@
+**Liverpool issued 75 lifetime bans in battle over Anfield ticket touting**\
+`Liverpool issued 75 lifetime bans from Anfield over the course of last season in the ongoing battle over ticket touting.`\
+https://nytimes.com/athletic/5888050/2024/10/31/liverpool-ticket-touts-anfield/
+
+**In Orange County, a Key House Race Could Come Down to Little Saigon Voters**\
+`Representative Michelle Steel, a Republican incumbent, and Derek Tran, her Democratic challenger, are trying to identify with a crucial voting bloc of Vietnamese Americans.`\
+https://nytimes.com/2024/10/31/us/elections/steel-tran-vietnamese-ca-45.html
+
 **Dodgers reliever Daniel Hudson retires**\
 `The 37-year-old turned in his first wire-to-wire season in half a decade, with a 3.00 ERA in 65 appearances despite having sore knees.`\
 https://nytimes.com/athletic/5888002/2024/10/31/dodgers-daniel-hudson-retire/
@@ -9,6 +17,10 @@ https://nytimes.com/2024/10/31/world/europe/spain-flash-floods-photos.html
 **The Fed’s Preferred Inflation Gauge Cooled Overall in September**\
 `Overall inflation slowed in September from a year earlier, though some signs of stubbornness lingered under the surface.`\
 https://nytimes.com/2024/10/31/business/economy/pce-inflation-fed-september.html
+
+**How many more ovations does LeBron James have left in Cleveland?**\
+`James and the Lakers made another trip "home" to Cleveland, where Bronny James scored his first NBA basket. `\
+https://nytimes.com/athletic/5887338/2024/10/31/lebron-james-cleveland-homecoming/
 
 **Unicorn diary: Chronicling the latest Victor Wembanyama-Chet Holmgren showdown**\
 `Holmgren got the best of Wembanyama in the latest meeting of the NBA's young giants. `\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5887601/2024/10/31/kevin-fiala-la-kings-scratch-gol
 **Musk Seeks Switch to Federal Court for Suit Against His Online Petition**\
 `The Philadelphia district attorney sued in state court to block Elon Musk’s petition drive, saying it amounted to illegally paying people to register as voters. A hearing was scheduled for Thursday.`\
 https://nytimes.com/2024/10/31/us/elections/elon-musk-giveaway-suit-federal-court-trump.html
-
-**Rosenthal: Dodgers show their mettle in memorable World Series comeback**\
-`Game 5 was the season in summation, the reflection of the Dodgers’ metamorphosis into street fighters and World Series champions.`\
-https://nytimes.com/athletic/5887817/2024/10/31/dodgers-yankees-world-series-win-dave-roberts/
-
-**Strike on Gaza Hospital Destroys U.N. Supplies, Palestinian Officials Say**\
-`Israeli troops had withdrawn from the facility, Kamal Adwan Hospital, after a raid that involved the arrests of most of the medical staff. The Israeli military said it was “unaware of a strike” there.`\
-https://nytimes.com/2024/10/31/world/middleeast/israel-gaza-hospital-strike.html
-
-**Can Garbine Muguruza find normality after years of WTA Finals chaos?**\
-`Muguruza and the WTA bring its most important asset to a heavily criticized country that has never held a major tennis event.`\
-https://nytimes.com/athletic/5873119/2024/10/31/muguruza-wta-tour-finals-tournament-director/
 
