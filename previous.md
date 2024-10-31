@@ -1,3 +1,23 @@
+**Angels acquire Jorge Soler from Braves in exchange for Griffin Canning**\
+`Soler immediately becomes an impact bat for the Angels, who are coming off the worst season in franchise history in 2024.`\
+https://nytimes.com/athletic/5888803/2024/10/31/jorge-soler-angels-braves-trade/
+
+**Trump, Musk and an American Masculinity Crisis**\
+`By blatantly flouting norms (or even laws) and seemingly getting away with it, they burnish their appeal to young men.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-elon-musk-masculinity
+
+**Linguistics and the Myth of Trump’s Unraveling**\
+`There’s plenty going on there, but it’s not senility. It’s “extravagance.”`\
+https://nytimes.com/2024/10/31/opinion/donald-trump-speech-aging.html
+
+**What’s Going On in This Picture? | Nov. 6, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/10/31/learning/whats-going-on-in-this-picture-nov-6-2024.html
+
+**What’s Going On in This Graph? | Nov. 6, 2024**\
+`Who is bigger: Taylor Swift or Michael Jackson?`\
+https://nytimes.com/2024/10/31/learning/whats-going-on-in-this-graph-nov-6-2024.html
+
 **Campaign Ad for Nebraska Senator Uses Images From the Northeast**\
 `Her opponent, Dan Osborn, an independent, seized on the gaffe. A spokesman for the Fischer campaign blamed a “screw-up by a vendor.”`\
 https://nytimes.com/2024/10/31/us/politics/nebraska-senator-fischer-ad.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5888817/2024/10/31/lamar-jackson-not-practicing-rav
 **After 7 Years, P’Nut the Squirrel Is Taken Away**\
 `Possession of wildlife is generally prohibited in New York State, even of P’Nut, who had half a million followers on Instagram.`\
 https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
-
-**Bob Costas retires from MLB play-by-play duties after 4-plus decades**\
-`The decision to retire was made by Costas prior to the season, which coincided with his contract ending, according to sources.`\
-https://nytimes.com/athletic/5888765/2024/10/31/bob-costas-mlb-retirement-play-by-play/
-
-**How White Sox sold Venable on managing a team known for losing**\
-`Will Venable comes to the White Sox from the Texas Rangers.`\
-https://nytimes.com/athletic/5888769/2024/10/31/white-sox-will-venable-new-manager/
-
-**What Teenagers Are Learning About the 2024 Election**\
-`We’ve heard from teachers around the country about how they’re teaching the 2024 election. Here’s what students in three New York City classrooms are learning.`\
-https://nytimes.com/2024/10/31/headway/teenagers-2024-election-learning-classroom.html
-
-**The Jobs Report on Friday May Be a Fluke and a Political Football**\
-`Economists expect the October data to show unusually weak job creation. But hurricanes and strikes may account for much of the shortfall.`\
-https://nytimes.com/2024/10/31/business/economy/jobs-report-election-politics.html
-
-**Big 12: Games not compromised by helmet communication issues**\
-`The league reviewed conference games amid concerns over a vulnerability in the system.`\
-https://nytimes.com/athletic/5888779/2024/10/31/big-12-helmet-issues-review/
 
