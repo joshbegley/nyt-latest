@@ -1,3 +1,11 @@
+**What Teens Said They Hope for and Fear in the 2024 Election**\
+`Responses to the Headway Election Challenge paint a picture of teenagers navigating a highly charged political moment.`\
+https://nytimes.com/2024/10/31/headway/teen-2024-election-hopes-fears-answers.html
+
+**Trump Had an ‘America First’ Foreign Policy. But It Was a Breakdown in American Policymaking.**\
+`A second Donald J. Trump presidency would almost certainly mark a return to an era of foreign policy decrees, untethered to any policy process, at a moment of maximum international peril.`\
+https://nytimes.com/2024/10/31/us/politics/trump-foreign-policy.html
+
 **White Women Could Decide the Election**\
 `Also, Russia is making swift advances in Ukraine. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/31/briefing/harris-trump-white-women-russia-ukraine-gains.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5889184/2024/10/31/jorge-soler-trade-angels-plan/
 **The Valencia Floods Show That Climate Change Will Keep Defying Expectations**\
 `Startling torrents from the sky are among our most frightening foes in a warming world.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/valencia-flood-climate-change
-
-**Friday Briefing: The Global Stakes of the U.S. Election**\
-`Plus, Japan's passion for the World Series.`\
-https://nytimes.com/2024/10/31/briefing/friday-briefing-the-global-stakes-of-the-us-election.html
-
-**PEN America Leader to Leave Embattled Organization**\
-`Suzanne Nossel, who has led the free expression group since 2013, is leaving after a year of intense criticism of its response to the war in Gaza.`\
-https://nytimes.com/2024/10/31/arts/pen-america-suzanne-nossel.html
 

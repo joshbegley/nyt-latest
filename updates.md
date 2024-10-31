@@ -1,3 +1,11 @@
+**What Teens Said They Hope for and Fear in the 2024 Election**\
+`Responses to the Headway Election Challenge paint a picture of teenagers navigating a highly charged political moment.`\
+https://nytimes.com/2024/10/31/headway/teen-2024-election-hopes-fears-answers.html
+
+**Trump Had an ‘America First’ Foreign Policy. But It Was a Breakdown in American Policymaking.**\
+`A second Donald J. Trump presidency would almost certainly mark a return to an era of foreign policy decrees, untethered to any policy process, at a moment of maximum international peril.`\
+https://nytimes.com/2024/10/31/us/politics/trump-foreign-policy.html
+
 **White Women Could Decide the Election**\
 `Also, Russia is making swift advances in Ukraine. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/31/briefing/harris-trump-white-women-russia-ukraine-gains.html
