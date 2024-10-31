@@ -1,3 +1,7 @@
+**WSL's £65m rights deal is a big win and could unleash marketing power of players**\
+`What the new WSL broadcast deal means for fans`\
+https://nytimes.com/athletic/5886009/2024/10/31/new-wsl-rights-deal/
+
 **Brain Games: Tight ends, Bears receivers, and a C.J. Stroud or Kirk Cousins conundrum**\
 `Renee Miller addresses Week 9 start/sit quandaries and gives week-winning fantasy football advice. `\
 https://nytimes.com/athletic/5886209/2024/10/31/brain-games-tight-ends-bears-receivers-and-a-c-j-stroud-or-kirk-cousins-conundrum/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5886965/2024/10/30/dodgers-yankees-world-series-gam
 **Dodgers beat Yankees to win second World Series of franchise’s new ‘golden era’**\
 `Yankees seized 5-0 lead but a defensive meltdown opened the door for the Dodgers, who showed their championship mettle by rallying to win.`\
 https://nytimes.com/athletic/5886987/2024/10/30/dodgers-win-world-series-yankees/
-
-**Mirtle: The Timothy Liljegren trade is a missed opportunity, for him and the Maple Leafs**\
-`Liljegren battled his way up through the organization for years. But whenever there appeared to be progress, there was a setback or hurdle.`\
-https://nytimes.com/athletic/5886912/2024/10/30/timothy-liljegren-maple-leafs-trade/
 

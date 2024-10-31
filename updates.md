@@ -1,3 +1,7 @@
+**WSL's £65m rights deal is a big win and could unleash marketing power of players**\
+`What the new WSL broadcast deal means for fans`\
+https://nytimes.com/athletic/5886009/2024/10/31/new-wsl-rights-deal/
+
 **Brain Games: Tight ends, Bears receivers, and a C.J. Stroud or Kirk Cousins conundrum**\
 `Renee Miller addresses Week 9 start/sit quandaries and gives week-winning fantasy football advice. `\
 https://nytimes.com/athletic/5886209/2024/10/31/brain-games-tight-ends-bears-receivers-and-a-c-j-stroud-or-kirk-cousins-conundrum/
