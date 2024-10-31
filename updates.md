@@ -1,3 +1,7 @@
+**The Metrograph, a New York Art House, Starts a Film Magazine**\
+`A throwback publication courts cinephiles with stories featuring Ari Aster, Maggie Cheung, Daniel Clowes, Clint Eastwood and Ann Hui.`\
+https://nytimes.com/2024/10/31/style/the-metrograph-a-new-york-art-house-starts-a-film-magazine.html
+
 **Jets' Allen Lazard lands on IR with shoulder injury**\
 `Lazard hauled in 30 receptions for 412 yards and five touchdowns this season.`\
 https://nytimes.com/athletic/5889044/2024/10/31/allen-lazard-ir-jets/
