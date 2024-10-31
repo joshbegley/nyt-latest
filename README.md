@@ -1,3 +1,7 @@
+**Can Men in China Take a Joke? Women Doing Stand-Up Have Their Doubts**\
+`Comedy has become a way for women to skewer China’s gender inequality. Some men aren’t happy about it.`\
+https://nytimes.com/2024/10/31/world/asia/china-comedy-women-yang-li.html
+
 **2025 World Series odds: Dodgers favored to repeat; Yankees, Braves close behind**\
 `Fresh off winning the 2024 World Series, the Los Angeles Dodgers opened as the favorites to win the 2025 edition.`\
 https://nytimes.com/athletic/5887138/2024/10/31/2025-world-series-odds-dodgers-yankees-braves/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/pageoneplus/quote-of-the-day-new-vehicles-face-pa
 **How the U.S. Election Matters for the Rest of the World**\
 `Times foreign correspondents describe what’s at stake for the world, including China, Israel, Ukraine, global trade and climate.`\
 https://nytimes.com/interactive/2024/10/31/world/us-election-world.html
-
-**What Sank the Tech Tycoon’s ‘Unsinkable’ Yacht?**\
-`A Times investigation has found that an unusually tall mast, and the design changes it required, made a superyacht owned by a British tech mogul vulnerable to capsizing.`\
-https://nytimes.com/interactive/2024/10/31/world/europe/bayesian-yacht-sinking-italy.html
 
