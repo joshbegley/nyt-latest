@@ -1,3 +1,7 @@
+**Another Beloved Book, Another Disappointing Ballet**\
+`American Ballet Theater unveils “Crime and Punishment,” an ambitious, but listless new production by Helen Pickett and James Bonas.`\
+https://nytimes.com/2024/10/31/arts/dance/american-ballet-theater-crime-and-punishment.html
+
 **The Bounce: Why the NBA's early-season ratings don't matter**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5888232/2024/10/31/anthony-edwards-timberwolves-victor-wembanyama-spurs-chet-holmgren-thunder-nba-the-bounce/
