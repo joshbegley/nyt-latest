@@ -1,3 +1,11 @@
+**Protecting Nature, With the U.S. on the Sidelines**\
+`As the world gathers this week for U.N. biodiversity negotiations, the U.S. hasn’t ratified a decades-old treaty to protect nature.`\
+https://nytimes.com/2024/10/31/climate/cop-biodiversity-colombia-united-states.html
+
+**Ricky Martin, Lin-Manuel Miranda and Rita Moreno: Puerto Ricans Are Voting**\
+`Our vote won’t be a reaction to racist jokes.`\
+https://nytimes.com/2024/10/31/opinion/moreno-miranda-martin-puerto-rico.html
+
 **Why Dane Brugler thinks Cam Ward is current favorite to be first QB selected in 2025 draft**\
 `Ward has Miami undefeated and on track for both an ACC championship and a playoff berth.`\
 https://nytimes.com/athletic/5888410/2024/10/31/nfl-draft-cam-ward-qbs-dane-brugler/

@@ -1,3 +1,11 @@
+**Protecting Nature, With the U.S. on the Sidelines**\
+`As the world gathers this week for U.N. biodiversity negotiations, the U.S. hasn’t ratified a decades-old treaty to protect nature.`\
+https://nytimes.com/2024/10/31/climate/cop-biodiversity-colombia-united-states.html
+
+**Ricky Martin, Lin-Manuel Miranda and Rita Moreno: Puerto Ricans Are Voting**\
+`Our vote won’t be a reaction to racist jokes.`\
+https://nytimes.com/2024/10/31/opinion/moreno-miranda-martin-puerto-rico.html
+
 **Why Dane Brugler thinks Cam Ward is current favorite to be first QB selected in 2025 draft**\
 `Ward has Miami undefeated and on track for both an ACC championship and a playoff berth.`\
 https://nytimes.com/athletic/5888410/2024/10/31/nfl-draft-cam-ward-qbs-dane-brugler/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/white-women-harris-trump-2024-electio
 **Villa's Rogers in talks over contract extension**\
 `Morgan Rogers is in talks to sign a contract extension at Aston Villa.`\
 https://nytimes.com/athletic/5888580/2024/10/31/morgan-rogers-contract-aston-villa/
-
-**The '04 Red Sox were special, as '24 Yanks reminded us. What Craig Breslow & Co. can learn**\
-`Here’s some advice for the 300 or so fine folks in Red Sox baseball ops: Study the '04 championship team and watch Wednesday's fifth inning.`\
-https://nytimes.com/athletic/5888504/2024/10/31/world-series-red-sox-yankees-dodgers/
-
-**NFL Week 9 fantasy football, betting cheat sheet: No Stefon Diggs in TNF contest**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
-https://nytimes.com/athletic/5882444/2024/10/31/nfl-week-9-fantasy-football-injuries-rankings-betting/
 
