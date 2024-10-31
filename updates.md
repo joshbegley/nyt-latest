@@ -1,3 +1,7 @@
+**Giants to name Zack Minasian new GM: Sources**\
+`Minasian, 41, joins his brother, Perry, as the first pair of siblings to be general managers in MLB at the same time.`\
+https://nytimes.com/athletic/5889591/2024/10/31/sf-giants-zack-minasian-general-manager/
+
 **Until Saturday: Communication issues, plus Week 10 viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Breaking down helmet communication issues and Week 10's schedule.`\
 https://nytimes.com/athletic/5888991/2024/10/31/college-football-helmet-coach-communication-until-saturday/
