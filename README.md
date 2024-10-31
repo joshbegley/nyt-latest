@@ -1,3 +1,11 @@
+**The ‘Garbage’ Insult Stung. But Puerto Ricans Are Focused on Their Own Election.**\
+`For Puerto Ricans living on the island, the most consequential race this year is for governor. Frequent power blackouts have become a top political issue.`\
+https://nytimes.com/2024/10/31/us/garbage-puerto-rico-election-governor-power.html
+
+**Ravens' Lamar Jackson misses second straight practice**\
+`If Lamar Jackson can't play Sunday, the Ravens would start 38-year-old journeyman backup Josh Johnson again Denver.`\
+https://nytimes.com/athletic/5888817/2024/10/31/lamar-jackson-not-practicing-ravens-broncos/
+
 **After 7 Years, P’Nut the Squirrel Is Taken Away**\
 `Possession of wildlife is generally prohibited in New York State, even of P’Nut, who had half a million followers on Instagram.`\
 https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/arts/television/culte-amazon-prime-video-loft-sto
 **Unrivaled 3×3 league expanding to 36 players ahead of first season**\
 `There will still be six teams, with six players now participating on each.`\
 https://nytimes.com/athletic/5888767/2024/10/31/unrivaled-basketball-expanding-wnba/
-
-**Being Sugar-Deprived Had Major Effects on These Childrens’ Health**\
-`British data shows that children conceived and born during a period of sugar rationing were less likely to develop diabetes or high blood pressure later in life.`\
-https://nytimes.com/2024/10/31/health/sugar-rationing-britain-health-experiment.html
-
-**Protecting Nature, With the U.S. on the Sidelines**\
-`As the world gathers this week for U.N. biodiversity negotiations, the U.S. hasn’t ratified a decades-old treaty to protect nature.`\
-https://nytimes.com/2024/10/31/climate/cop-biodiversity-colombia-united-states.html
 
