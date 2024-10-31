@@ -1,3 +1,11 @@
+**How Britain’s Budget Makes a Big Bet on Spending for Growth**\
+`The Labour Party is betting that extra spending on public services and more investment will eventually revitalize the country’s stagnant economy.`\
+https://nytimes.com/2024/10/31/business/britain-budget-what-to-know.html
+
+**This ‘Friendly’ Wisconsin Town Might Be the Most Divided Place in America**\
+`Most Americans live in political bubbles, but not residents of this swing-state community, where President Biden won in 2020 by six votes.`\
+https://nytimes.com/2024/10/31/us/wisconsin-divided-voters.html
+
 **Germany Shuts 3 Iranian Consulates Over Execution of German-Iranian Man**\
 `The rare step of closing the consulates reflected German protests over the execution of Jamshid Sharmahd, an outspoken opponent of the Iranian regime.`\
 https://nytimes.com/2024/10/31/world/europe/germany-iran-consulates-sharmahd.html
