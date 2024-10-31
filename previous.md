@@ -1,3 +1,7 @@
+**Being Sugar-Deprived Had Major Effects on These Childrens’ Health**\
+`British data shows that children conceived and born during a period of sugar rationing were less likely to develop diabetes or high blood pressure later in life.`\
+https://nytimes.com/2024/10/31/health/sugar-rationing-britain-health-experiment.html
+
 **Protecting Nature, With the U.S. on the Sidelines**\
 `As the world gathers this week for U.N. biodiversity negotiations, the U.S. hasn’t ratified a decades-old treaty to protect nature.`\
 https://nytimes.com/2024/10/31/climate/cop-biodiversity-colombia-united-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/movies/juror-2-review-clint-eastwood.html
 **They Want to Ensure That, This Time, White Women Vote for a Woman**\
 `Donald Trump has won white women, the country’s largest voting bloc, for two elections running. White female Democrats are trying to stop that from happening again, but it may be an uphill fight.`\
 https://nytimes.com/2024/10/31/us/politics/white-women-harris-trump-2024-election.html
-
-**Villa's Rogers in talks over contract extension**\
-`Morgan Rogers is in talks to sign a contract extension at Aston Villa.`\
-https://nytimes.com/athletic/5888580/2024/10/31/morgan-rogers-contract-aston-villa/
 

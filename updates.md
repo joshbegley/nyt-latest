@@ -1,3 +1,7 @@
+**Being Sugar-Deprived Had Major Effects on These Childrens’ Health**\
+`British data shows that children conceived and born during a period of sugar rationing were less likely to develop diabetes or high blood pressure later in life.`\
+https://nytimes.com/2024/10/31/health/sugar-rationing-britain-health-experiment.html
+
 **Protecting Nature, With the U.S. on the Sidelines**\
 `As the world gathers this week for U.N. biodiversity negotiations, the U.S. hasn’t ratified a decades-old treaty to protect nature.`\
 https://nytimes.com/2024/10/31/climate/cop-biodiversity-colombia-united-states.html
