@@ -1,3 +1,7 @@
+**Giants to name Zack Minasian new GM: Sources**\
+`Minasian, 41, joins his brother, Perry, as the first pair of siblings to be general managers in MLB at the same time.`\
+https://nytimes.com/athletic/5889591/2024/10/31/sf-giants-zack-minasian-general-manager/
+
 **Until Saturday: Communication issues, plus Week 10 viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Breaking down helmet communication issues and Week 10's schedule.`\
 https://nytimes.com/athletic/5888991/2024/10/31/college-football-helmet-coach-communication-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/biden-cyprus-meeting.html
 **Cuomo Told a House Panel His Memory Was Hazy. Is That a Perjury Defense?**\
 `House Republicans referred the former New York governor for prosecution. His insistence on a faulty memory makes that outcome unlikely.`\
 https://nytimes.com/2024/10/31/nyregion/cuomo-lies-covid-justice.html
-
-**Trump and Vance Escalate Efforts to Sow Doubts on Pennsylvania Voting**\
-`The former president and his running mate made false attacks about the security of the election in Pennsylvania, the battleground state with the most electoral college votes.`\
-https://nytimes.com/2024/10/31/us/politics/trump-vance-pennsylvania-voting.html
 
