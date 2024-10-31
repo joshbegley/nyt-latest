@@ -1,3 +1,19 @@
+**U.S. Turns to China to Stop North Korean Troops From Fighting for Russia**\
+`American agencies have assessed that China dislikes the growing partnership between Russia and North Korea. The State Department has raised the troop issue with Chinese diplomats.`\
+https://nytimes.com/2024/10/31/us/politics/russia-north-korea-troops-china.html
+
+**Cubs planning to add Quintin Berry to Craig Counsell’s coaching staff: Sources**\
+`Berry, 39, spent the past four years as the first-base coach in Milwaukee.`\
+https://nytimes.com/athletic/5888553/2024/10/31/cubs-quintin-berry-craig-counsell-coaching-staff/
+
+**Hey, Bus Driver: Why Can’t You See Us?**\
+`Being disabled shouldn’t mean being ignored.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/hey-bus-driver-why-cant-you-see-us
+
+**Scoop City: One case for QB patience**\
+`A look at seven quarterbacks who broke out later in their careers, plus Dane Brugler on the first QB drafted in 2025.`\
+https://nytimes.com/athletic/5888561/2024/10/31/scoop-city-one-case-for-qb-patience/
+
 **How Elon Musk Changed Course to Go All Out for Trump**\
 `The billionaire has poured nearly $120 million into a pro-Trump voting effort and used his social media platform, X, to spread misinformation, despite public statements he made in the past about political neutrality.`\
 https://nytimes.com/2024/10/31/business/elon-musk-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/31/us/john-carney-delaware-governor-mayor.html
 **Another Beloved Book, Another Disappointing Ballet**\
 `American Ballet Theater unveils “Crime and Punishment,” an ambitious, but listless new production by Helen Pickett and James Bonas.`\
 https://nytimes.com/2024/10/31/arts/dance/american-ballet-theater-crime-and-punishment.html
-
-**The Bounce: Why the NBA's early-season ratings don't matter**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5888232/2024/10/31/anthony-edwards-timberwolves-victor-wembanyama-spurs-chet-holmgren-thunder-nba-the-bounce/
-
-**Juan Soto destination tiers: MLB execs forecast market of winter’s top free agent**\
-`After speaking with several executives from various teams across the league, The Athletic weighed every club’s chances of signing Soto.`\
-https://nytimes.com/athletic/5885657/2024/10/31/juan-soto-mlb-free-agency-tiers/
-
-**Authors Call for a Boycott of Israeli Cultural Institutions**\
-`Thousands of people, including prize winning writers, signed a letter pledging not to work with “complicit” organizations. Many others opposed the call in a separate letter.`\
-https://nytimes.com/2024/10/31/books/authors-letters-middle-east-war.html
-
-**Why Craig Berube's Maple Leafs deserve patience after tepid start**\
-`With the talent at Berube’s disposal and his history, the new Maple Leafs coach deserves extended patience for what he’s trying to build.`\
-https://nytimes.com/athletic/5883253/2024/10/31/maple-leafs-craig-berube-start/
 
