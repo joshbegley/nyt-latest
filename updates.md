@@ -1,3 +1,11 @@
+**New York Court Suspends Lawyer Who Pushed Trump’s Fake Electors Scheme**\
+`The lawyer, Kenneth Chesebro, had previously pleaded guilty to a felony charge of conspiracy in a Georgia court.`\
+https://nytimes.com/2024/10/31/us/politics/trump-lawyer-chesebro-suspended-new-york.html
+
+**Bucks decline fourth-year option on MarJon Beauchamp**\
+`Beauchamp has appeared in 104 games and started 12 in his two-plus seasons with the Bucks, who drafted him in 2022.`\
+https://nytimes.com/athletic/5888925/2024/10/31/marjon-beauchamp-bucks-contract/
+
 **Angels acquire Jorge Soler from Braves in exchange for Griffin Canning**\
 `Soler immediately becomes an impact bat for the Angels, who are coming off the worst season in franchise history in 2024.`\
 https://nytimes.com/athletic/5888803/2024/10/31/jorge-soler-angels-braves-trade/
