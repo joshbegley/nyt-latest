@@ -1,3 +1,7 @@
+**With second Dodgers World Series title for Dave Roberts, 'vindication' and a path to Cooperstown**\
+`Roberts called it “humbling” to be mentioned in the same category as Dodgers managers Tom Lasorda and Walter Alston.`\
+https://nytimes.com/athletic/5887498/2024/10/31/dodgers-world-series-dave-roberts-cooperstown/
+
 **Vitezslav Jaros continues Liverpool tradition by earning plaudits in League Cup win**\
 `Not for the first time, Liverpool youngsters provided the platform for their established stars to shine in the League Cup...`\
 https://nytimes.com/athletic/5887236/2024/10/31/vitezslav-jaros-liverpool-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/insider/how-the-home-page-comes-together-on-elect
 **Inside the Winter Wonderland Where Walmart Hatches Its Holiday Plans**\
 `To prepare for ever-longer shopping season, thousands of employees were assembled for a retail jamboree in Florida’s August heat.`\
 https://nytimes.com/2024/10/31/business/walmart-holiday-shopping-workers.html
-
-**Your Guide to the 2024 New York City Marathon**\
-`Everything you need to know about Sunday’s five-borough race.`\
-https://nytimes.com/2024/10/31/nyregion/nyc-marathon-guide.html
 

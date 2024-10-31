@@ -1,3 +1,7 @@
+**With second Dodgers World Series title for Dave Roberts, 'vindication' and a path to Cooperstown**\
+`Roberts called it “humbling” to be mentioned in the same category as Dodgers managers Tom Lasorda and Walter Alston.`\
+https://nytimes.com/athletic/5887498/2024/10/31/dodgers-world-series-dave-roberts-cooperstown/
+
 **Vitezslav Jaros continues Liverpool tradition by earning plaudits in League Cup win**\
 `Not for the first time, Liverpool youngsters provided the platform for their established stars to shine in the League Cup...`\
 https://nytimes.com/athletic/5887236/2024/10/31/vitezslav-jaros-liverpool-brighton/
