@@ -1,3 +1,7 @@
+**Jets' Allen Lazard lands on IR with shoulder injury**\
+`Lazard hauled in 30 receptions for 412 yards and five touchdowns this season.`\
+https://nytimes.com/athletic/5889044/2024/10/31/allen-lazard-ir-jets/
+
 **Isabelle de Borchgrave Dies at 79; Traced Sartorial History With Paper**\
 `An artist and designer, she transformed simple craft paper into elaborate trompe l’oeil confections, creating stunning life-size reproductions of period garments.`\
 https://nytimes.com/2024/10/31/style/isabelle-de-borchgrave-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/harvard-oct-7-emails-israel-hamas-attack.html
 **Can Sabres' lineup changes help Dylan Cozens, Jack Quinn get back on track?**\
 `The two 23-year-old forwards were supposed to be among the Sabres' top offensive threats this season`\
 https://nytimes.com/athletic/5888900/2024/10/31/sabres-lineup-dylan-cozens-jack-quinn/
-
-**The 'Big Noon Kickoff' debate: Is Penn State-Ohio State too early?**\
-`Mike Mulvihill, Fox’s president of insights and analytics, knows he might be the most hated man in Happy Valley this week.`\
-https://nytimes.com/athletic/5884182/2024/10/31/penn-state-ohio-state-big-noon-kickoff/
 
