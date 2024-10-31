@@ -1,3 +1,7 @@
+**Yes, Man City made changes, but this was a huge win for Postecoglou and Tottenham**\
+`They may have had to dig in at times but knocking the Premier League champions out of the League Cup is a timely boost for Spurs`\
+https://nytimes.com/athletic/5886968/2024/10/31/tottenham-manchester-city-league-cup/
+
 **Aaron Boone, with future unsettled, ‘heartbroken’ after World Series loss**\
 `The Yankees can activate an option in his contract that would keep him around for 2025 or they could move on.`\
 https://nytimes.com/athletic/5887505/2024/10/31/yankees-aaron-boone-world-series-loss/
