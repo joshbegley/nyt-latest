@@ -1,3 +1,7 @@
+**Inside the Yankees' grisly fifth inning that proved one of the most costly in World Series history**\
+`The Yankees are now the only team to blow a five-run lead while facing elimination from the World Series.`\
+https://nytimes.com/athletic/5887662/2024/10/31/dodgers-yankees-world-series-fifth-inning/
+
 **What we learned watching World Series games 3-5 with major leaguers**\
 `Several major league players joined The Athletic to offer their thoughts on this memorable World Series. `\
 https://nytimes.com/athletic/5886375/2024/10/31/world-series-yankees-dodgers-what-we-learned-games-3-5/
