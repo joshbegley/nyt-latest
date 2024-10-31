@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5887541/2024/10/31/shohei-ohtani-dodgers-world-seri
 `Bayern Munich forward Harry Kane has been accused by an opponent of causing injury.`\
 https://nytimes.com/athletic/5887591/2024/10/31/bayern-munich-kane-mainz-goalkeeper-injury/
 
-**Was Game 5 Juan Soto's last hoorah with the Yankees? 'I hope he's here forever'**\
+**Was Game 5 Juan Soto's last hurrah with the Yankees? 'I hope he's here forever'**\
 `“This year will stay in my heart for the rest of my life,” Soto said of the 2024 Yankees, a team that he believed had everything to win.`\
 https://nytimes.com/athletic/5887447/2024/10/31/yankees-dodgers-world-series-juan-soto-final-game/
 
