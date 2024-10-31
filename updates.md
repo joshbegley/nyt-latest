@@ -1,3 +1,7 @@
+**Pennsylvania Voters Worry About the Toxicity of Politics**\
+`In Berks County, complex feelings about race and immigration threaten the social fabric of a place where people are used to finding common ground.`\
+https://nytimes.com/interactive/2024/10/31/us/elections/pennsylvania-voters.html
+
 **Apple’s Quarterly Profit Down Because of Tax Payment in Europe**\
 `Sales for the iPhone maker were up 4 percent to $94.9 billion. But a $14.4 billion tax bill cut profits that would have topped expectations.`\
 https://nytimes.com/2024/10/31/technology/apple-profit-earnings.html
