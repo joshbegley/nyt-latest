@@ -1,3 +1,7 @@
+**Corrections: Oct. 31, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 31, 2024.`\
+https://nytimes.com/2024/10/30/pageoneplus/corrections-oct-31-2024.html
+
 **It Comes From the Heart**\
 `Sarah Sinclair and Paolo Pasco wish you a groovy holiday.`\
 https://nytimes.com/2024/10/30/crosswords/daily-puzzle-2024-10-31.html

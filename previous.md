@@ -1,3 +1,7 @@
+**Corrections: Oct. 31, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 31, 2024.`\
+https://nytimes.com/2024/10/30/pageoneplus/corrections-oct-31-2024.html
+
 **It Comes From the Heart**\
 `Sarah Sinclair and Paolo Pasco wish you a groovy holiday.`\
 https://nytimes.com/2024/10/30/crosswords/daily-puzzle-2024-10-31.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/world/americas/mexico-supreme-court-justices-resi
 **Airbus, With Eye on U.S. Race, Says It Will Be Ready for Higher Tariffs**\
 `The giant European airplane maker’s chief executive said it would pass along any higher charges to its customers.`\
 https://nytimes.com/2024/10/30/business/airbus-higher-tariffs.html
-
-**Five Charged in Cheating Scandal That Helped Over 200 ‘Unqualified’ Texas Teachers**\
-`Prosecutors said that the “kingpin,” a high school basketball coach in Houston, had helped educators fraudulently pass more than 400 tests.`\
-https://nytimes.com/2024/10/30/us/texas-teacher-certification-fraud-scheme.html
 
