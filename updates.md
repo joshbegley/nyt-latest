@@ -1,3 +1,15 @@
+**Wembanyama scores career-low 6 points in loss to Holmgren, Thunder**\
+`Wembanyama grabbed eight rebounds and blocked three shots in the loss Wednesday.`\
+https://nytimes.com/athletic/5887251/2024/10/31/victor-wembanyama-spurs-thunder-takeaways/
+
+**'I think we'll prevail - we have to': A day with Huddersfield Town's owner**\
+`The Athletic was granted access to shadow businessman Kevin Nagle before he returned to California at the end of a 10-day trip to the UK`\
+https://nytimes.com/athletic/5882131/2024/10/31/huddersfield-town-kevin-nagle/
+
+**How long passes by goalkeepers went from practical to tactical**\
+`Long deliveries are down numerically but in tactical terms, they are more important then ever before`\
+https://nytimes.com/athletic/5866526/2024/10/31/goalkeeper-long-passing-tactical-value/
+
 **Boycotting Israeli Culture Helps No One**\
 `An attack on culture divides the very people who should be in direct dialogue, reading each other’s books. It cannot be that the solution to conflict is to read less, and not more.`\
 https://nytimes.com/2024/10/31/opinion/israel-palestinians-cultural-boycott.html
