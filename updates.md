@@ -1,3 +1,11 @@
+**Mirtle: The Timothy Liljegren trade is a missed opportunity, for him and the Maple Leafs**\
+`Liljegren battled his way up through the organization for years. But whenever there appeared to be progress, there was a setback or hurdle.`\
+https://nytimes.com/athletic/5886912/2024/10/30/timothy-liljegren-maple-leafs-trade/
+
+**Elvis Merzlikins gets his shutout as Blue Jackets grind out 2-0 win vs. Islanders**\
+`After coming just 27 seconds short of a shutout in his previous game, Merzlikins blanked a team for the first time since January.`\
+https://nytimes.com/athletic/5887071/2024/10/30/blue-jackets-elvis-merzlikins-shutout-islanders/
+
 **'A dream come true' Bronny James scores first career points in homecoming vs. Cavs**\
 `James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
 https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/

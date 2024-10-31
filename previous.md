@@ -1,3 +1,11 @@
+**Mirtle: The Timothy Liljegren trade is a missed opportunity, for him and the Maple Leafs**\
+`Liljegren battled his way up through the organization for years. But whenever there appeared to be progress, there was a setback or hurdle.`\
+https://nytimes.com/athletic/5886912/2024/10/30/timothy-liljegren-maple-leafs-trade/
+
+**Elvis Merzlikins gets his shutout as Blue Jackets grind out 2-0 win vs. Islanders**\
+`After coming just 27 seconds short of a shutout in his previous game, Merzlikins blanked a team for the first time since January.`\
+https://nytimes.com/athletic/5887071/2024/10/30/blue-jackets-elvis-merzlikins-shutout-islanders/
+
 **'A dream come true' Bronny James scores first career points in homecoming vs. Cavs**\
 `James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
 https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5886883/2024/10/30/naomi-girma-scores-uswnt-argenti
 **Mexico Passes Bill Barring Legal Challenges to Constitutional Changes**\
 `The bill has drawn criticism from legal scholars who say it would bulldoze any judicial oversight of constitutional matters.`\
 https://nytimes.com/2024/10/30/world/americas/mexico-passes-bill-legal-challenges.html
-
-**House Covid Panel Refers Andrew Cuomo for Potential Prosecution**\
-`The Republican-led House subcommittee asked the Justice Department to investigate Mr. Cuomo for possible prosecution for “false statements” in his testimony.`\
-https://nytimes.com/2024/10/30/nyregion/cuomo-crime-covid-hearing.html
-
-**8 Supreme Court Justices in Mexico to Resign Ahead of Contentious Election**\
-`All but three of the country’s Supreme Court justices announced they would quit rather than partake in the controversial elections mandated by a judicial overhaul.`\
-https://nytimes.com/2024/10/30/world/americas/mexico-supreme-court-justices-resign.html
 
