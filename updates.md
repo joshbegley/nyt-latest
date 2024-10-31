@@ -1,3 +1,11 @@
+**After 7 Years, P’Nut the Squirrel Is Taken Away**\
+`Possession of wildlife is generally prohibited in New York State, even of P’Nut, who had half a million followers on Instagram.`\
+https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
+
+**Surprise Hit of the Campaign TV Ad Season: Giving Voters Permission to Go Rogue**\
+`Both parties are running ads that tell voters it’s OK to break from their party. “You can vote any way you want. And no one will ever know,” one says.`\
+https://nytimes.com/2024/10/31/us/politics/trump-harris-campaign-ads.html
+
 **Donald Trump Is Bored**\
 `There’s plenty going on there, but it’s not senility. It’s “extravagance.”`\
 https://nytimes.com/2024/10/31/opinion/donald-trump-speech-aging.html
