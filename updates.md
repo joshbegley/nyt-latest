@@ -1,3 +1,7 @@
+**NFL Week 9 fantasy football, betting cheat sheet: No Stefon Diggs in TNF contest**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5882444/2024/10/31/nfl-week-9-fantasy-football-injuries-rankings-betting/
+
 **Delicious Costumes for Your Vegetables**\
 `Dress up your cabbage as chicken Parm, or your tofu as zippy lemon-pepper wings.`\
 https://nytimes.com/2024/10/31/dining/lemon-pepper-tofu-vegetarian-recipes.html
