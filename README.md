@@ -1,3 +1,15 @@
+**Nottingham Forest's Gibbs-White, Jota & Anderson to be assessed before West Ham**\
+`Nottingham Forest will assess Morgan Gibbs-White, Jota and Elliot Anderson tomorrow (Friday), before deciding whether they are fit to face West Ham United at the City Ground on Saturday.`\
+https://nytimes.com/athletic/5888304/2024/10/31/gibbs-white-jota-anderson-injury-update/
+
+**PSG handed one-game partial stadium closure after homophobic chanting**\
+`Paris Saint-Germain will have a section of their Parc des Princes stadium closed for their Ligue 1 match against Toulouse on November 22 after being found guilty of homophobic chanting.`\
+https://nytimes.com/athletic/5881983/2024/10/31/psg-fans-ban-homophobic-chants/
+
+**Comcast Explores Spin-Out of Cable Business**\
+`The company’s president, Mike Cavanagh, said the company was also considering finding a partner for its Peacock streaming service.`\
+https://nytimes.com/2024/10/31/business/media/comcast-explores-spin-out-of-cable-business.html
+
 **Canucks report cards: Grading every forward's October performance**\
 `How did J.T. Miller, Elias Pettersson, Brock Boeser and the rest of Vancouver's forwards fare in the first month of the season?`\
 https://nytimes.com/athletic/5887462/2024/10/31/canucks-report-cards-forwards-october/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5876521/2024/10/31/bucks-giannis-antetokounmpo-broo
 **‘Blitz’ Review: Love in the Ruins**\
 `Steve McQueen’s World War II drama may appear conventional on the surface, but don’t miss what it’s really doing.`\
 https://nytimes.com/2024/10/31/movies/blitz-review.html
-
-**Election 2024 Polls: Senate Races**\
-`See the latest election polls and polling averages for .`\
-https://nytimes.com/interactive/2024/us/elections/polls-senate.html
-
-**Election 2024 Polls: Pennsylvania Senate**\
-`See the latest election polls and polling averages for Pennsylvania.`\
-https://nytimes.com/interactive/2024/us/elections/polls-senate-pennsylvania.html
-
-**Election 2024 Polls: Ohio Senate**\
-`See the latest election polls and polling averages for Ohio.`\
-https://nytimes.com/interactive/2024/us/elections/polls-senate-ohio.html
 
