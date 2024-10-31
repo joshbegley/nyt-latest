@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 9: Sleepers, projections, starts, Patrick Mahomes, Josh Downs**\
+`Jake Ciely offers up his Week 9 fantasy football rankings, and likes Patrick Mahomes to finally have a big day versus a porous Bucs defense.`\
+https://nytimes.com/athletic/5883846/2024/10/31/fantasy-football-rankings-week-9-sleepers-projections-starts-patrick-mahomes-josh-downs/
+
 **A Texas Judge’s Fight to Keep a High Profile Case Out of His Court**\
 `A battle over a new rule to limit credit card late fees has spiraled into a larger skirmish about how much power litigants should have to maneuver their cases into friendly courtrooms.`\
 https://nytimes.com/2024/10/31/business/fifth-circuit-court-venue-shopping.html
