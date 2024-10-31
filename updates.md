@@ -1,3 +1,11 @@
+**Manchester United agree deal to hire Ruben Amorim as head coach**\
+`Manchester United have reached an agreement with Sporting Lisbon over the hire of Ruben Amorim as head coach.`\
+https://nytimes.com/athletic/5887486/2024/10/31/manchester-united-ruben-amorim-agreed/
+
+**Raging Waters, Abandoned Cars, Layers of Mud: A Grim Scene After Spanish Floods**\
+`At least 95 people have died, and others are still missing, though how many remains unclear. Rescuers feared finding more bodies, the defense minister said.`\
+https://nytimes.com/2024/10/31/world/europe/spain-flooding-valencia-aftermath.html
+
 **Greatest player ever? After Shohei Ohtani's first World Series title, there's a 'legitimate argument'**\
 `Now that Ohtani has one world title on his resume, he's aiming for 'nine more,' the same number of years remaining on his Dodgers deal.`\
 https://nytimes.com/athletic/5887541/2024/10/31/shohei-ohtani-dodgers-world-series/
