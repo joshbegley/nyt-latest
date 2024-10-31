@@ -1,3 +1,7 @@
+**Late Night Reacts to Biden’s ‘Garbage’ Remark**\
+`The comment shocked “everyone who couldn’t believe Joe successfully logged onto Zoom,” the guest host of “Gutfeld” said.`\
+https://nytimes.com/2024/10/31/arts/television/late-night-biden-garbage.html
+
 **Arsenal Today: Nwaneri's Deepdale display and a quarter-final with Palace**\
 `Art de Roche talks you through what is interesting our team of Arsenal reporters today`\
 https://nytimes.com/athletic/5886417/2024/10/31/arsenal-today-october-31/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5885030/2024/10/31/nottingham-forest-substitutes/
 **Thursday Briefing**\
 `How the next U.S. administration may shape the world.`\
 https://nytimes.com/2024/10/31/briefing/correspondents-election-britain-budget.html
-
-**Mead and Musovic at the first all-female A Licence course: 'I’m looking at the game differently'**\
-`Behind the scenes at UEFA's first all-female coaching course at A-licence level and how it's changing particiapting players' perspectives`\
-https://nytimes.com/athletic/5863319/2024/10/31/uefa-first-allfemale-a-licence-course-mead-musovic/
 
