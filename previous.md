@@ -1,3 +1,7 @@
+**Why Is Trump Campaigning in New Mexico and Virginia?**\
+`Even if carrying these states is unlikely, they offer the possibility that fresh audiences could supply more Republican votes in the popular tally.`\
+https://nytimes.com/2024/10/31/us/politics/why-trump-new-mexico-virginia.html
+
 **As Election Nears, Foreign Leaders Fear ‘a Vacuum’ in American Leadership**\
 `President Biden hosted his final pre-election international visitor in the Oval Office, where the talk focused on the Middle East and Europe. But uncertainty in the United States hung over the meeting.`\
 https://nytimes.com/2024/10/31/us/politics/biden-cyprus-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/immigration-voters-election.html
 **Pennsylvania Voters Worry About the Toxicity of Politics**\
 `In Berks County, complex feelings about race and immigration threaten the social fabric of a place where people are used to finding common ground.`\
 https://nytimes.com/interactive/2024/10/31/us/elections/pennsylvania-voters.html
-
-**Apple’s Quarterly Profit Down Because of Tax Payment in Europe**\
-`Sales for the iPhone maker were up 6 percent to to $94.93 billion. But a $14.4 billion tax bill cut profits that would have topped expectations.`\
-https://nytimes.com/2024/10/31/technology/apple-profit-earnings.html
 

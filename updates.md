@@ -1,3 +1,7 @@
+**Why Is Trump Campaigning in New Mexico and Virginia?**\
+`Even if carrying these states is unlikely, they offer the possibility that fresh audiences could supply more Republican votes in the popular tally.`\
+https://nytimes.com/2024/10/31/us/politics/why-trump-new-mexico-virginia.html
+
 **As Election Nears, Foreign Leaders Fear ‘a Vacuum’ in American Leadership**\
 `President Biden hosted his final pre-election international visitor in the Oval Office, where the talk focused on the Middle East and Europe. But uncertainty in the United States hung over the meeting.`\
 https://nytimes.com/2024/10/31/us/politics/biden-cyprus-meeting.html
