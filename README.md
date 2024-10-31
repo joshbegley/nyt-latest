@@ -1,6 +1,14 @@
+**Campaign Ad for Nebraska Senator Uses Images From the Northeast**\
+`Her opponent, Dan Osborn, an independent, seized on the gaffe. A spokesman for the Fischer campaign blamed a “screw-up by a vendor.”`\
+https://nytimes.com/2024/10/31/us/politics/nebraska-senator-fischer-ad.html
+
+**Deer Hunter Is Killed in Apparent Bear Attack in Alaska, Authorities Say**\
+`Tad Fujioka, 50, was reported overdue from a deer hunting trip in the Sitka area of Alaska, near Juneau, the authorities said.`\
+https://nytimes.com/2024/10/31/us/bear-mauled-hunter-alaska.html
+
 **The ‘Garbage’ Insult Stung. But Puerto Ricans Are Focused on Their Own Election.**\
 `For Puerto Ricans living on the island, the most consequential race this year is for governor. Frequent power blackouts have become a top political issue.`\
-https://nytimes.com/2024/10/31/us/garbage-puerto-rico-election-governor-power.html
+https://nytimes.com/2024/10/31/us/trump-garbage-puerto-rico-governor-election.html
 
 **Ravens' Lamar Jackson misses second straight practice**\
 `If Lamar Jackson can't play Sunday, the Ravens would start 38-year-old journeyman backup Josh Johnson again Denver.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/business/economy/jobs-report-election-politics.ht
 **Big 12: Games not compromised by helmet communication issues**\
 `The league reviewed conference games amid concerns over a vulnerability in the system.`\
 https://nytimes.com/athletic/5888779/2024/10/31/big-12-helmet-issues-review/
-
-**‘Culte’ Is a Fascinating Romp Through the Dawn of French Reality TV**\
-`A new docudrama recounts the conflicts and controversy surrounding “Loft Story,” a French twist on “Big Brother” that divided critics and generations.`\
-https://nytimes.com/2024/10/31/arts/television/culte-amazon-prime-video-loft-story.html
-
-**Unrivaled 3×3 league expanding to 36 players ahead of first season**\
-`There will still be six teams, with six players now participating on each.`\
-https://nytimes.com/athletic/5888767/2024/10/31/unrivaled-basketball-expanding-wnba/
 
