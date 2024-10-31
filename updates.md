@@ -1,3 +1,7 @@
+**Inside Tyrone Mings' 445-day road to recovery**\
+`Tyrone Mings returned to action against Crystal Palace on Wednesday night. The depths he went to in his recovery were vast`\
+https://nytimes.com/athletic/5049191/2024/10/31/tyrone-mings-aston-villa-injury-recovery/
+
 **WSL's £65m rights deal is a big win and could unleash marketing power of players**\
 `What the new WSL broadcast deal means for fans`\
 https://nytimes.com/athletic/5886009/2024/10/31/new-wsl-rights-deal/
