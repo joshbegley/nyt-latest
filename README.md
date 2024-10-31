@@ -1,3 +1,7 @@
+**A new role for John Tavares should help spark Maple Leafs’ ailing power play**\
+`John Tavares is longer effective in his net-front role on PP1 but could be valuable on a new-look PP2. `\
+https://nytimes.com/athletic/5883868/2024/10/31/maple-leafs-john-tavares-power-play/
+
 **Walker Buehler symbolized team's grit: 'Now he's etched in Dodger glory forever'**\
 `When Buehler volunteered for relief duty, the Dodgers laughed it off. He wound up putting the final touches on a World Series victory.`\
 https://nytimes.com/athletic/5887628/2024/10/31/dodgers-yankees-world-series-walker-buehler-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/movies/chasing-chasing-amy-review.html
 **‘Absolution’ Review: Brain Drain**\
 `Liam Neeson plays a regretful gangster with a serious medical condition in this drab, downbeat action movie.`\
 https://nytimes.com/2024/10/31/movies/absolution-review.html
-
-**The World Series Was Big in Japan. The TV Ratings Prove It.**\
-`Shohei Ohtani, the Dodgers’ superstar, drove massive interest for the World Series in Japan, where more than 15 million people watched each of the first two games.`\
-https://nytimes.com/2024/10/31/world/asia/japan-dodgers-ohtani-world-series.html
 
