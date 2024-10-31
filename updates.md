@@ -1,3 +1,11 @@
+**How a Tiny Panel, Up for Election, Could Steer Arizona Away From Clean Power**\
+`The vote, in a sunny state with huge solar potential, reflects a growing nationwide fight over America’s energy transition.`\
+https://nytimes.com/2024/10/31/climate/arizona-utility-clean-energy-election.html
+
+**The Windup: The wildest World Series clincher ever**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5888346/2024/10/31/dodgers-yankees-world-series-freddie-freeman-the-windup/
+
 **Ace Flagg, twin brother of Duke's Cooper Flagg, commits to Maine**\
 `The No. 7 Blue Devils begin their 2024-25 season hosting unranked Maine on Nov. 4.`\
 https://nytimes.com/athletic/5888164/2024/10/31/ace-cooper-flagg-maine/
