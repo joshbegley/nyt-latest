@@ -1,3 +1,7 @@
+**Ace Flagg, twin brother of Duke's Cooper Flagg, commits to Maine**\
+`The No. 7 Blue Devils begin their 2024-25 season hosting unranked Maine on Nov. 4.`\
+https://nytimes.com/athletic/5888164/2024/10/31/ace-cooper-flagg-maine/
+
 **Nottingham Forest's Gibbs-White, Jota & Anderson to be assessed before West Ham**\
 `Nottingham Forest will assess Morgan Gibbs-White, Jota and Elliot Anderson tomorrow (Friday), before deciding whether they are fit to face West Ham United at the City Ground on Saturday.`\
 https://nytimes.com/athletic/5888304/2024/10/31/gibbs-white-jota-anderson-injury-update/
