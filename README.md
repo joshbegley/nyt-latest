@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5863319/2024/10/31/uefa-first-allfemale-a-licence-c
 https://nytimes.com/athletic/5882348/2024/10/31/premier-league-table-after-10-games-reliable/
 
 **Freddie Freeman named 2024 World Series MVP after record-breaking performance**\
-`Freeman recroded a .300 batting average and contributed a critical two-run single in Game 5 to lift the Dodgers to victory.`\
+`Freeman recorded a .300 batting average and contributed a critical two-run single in Game 5 to lift the Dodgers to victory.`\
 https://nytimes.com/athletic/5887239/2024/10/31/yankees-dodgers-world-series-2024-freddie-freeman-mvp/
 
 **'When he scored his first goal, I cried' - Dani Olmo's 10-year odyssey back to Barca**\
