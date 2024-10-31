@@ -6,9 +6,9 @@ https://nytimes.com/athletic/5888410/2024/10/31/nfl-draft-cam-ward-qbs-dane-brug
 `The fee will help offset the costs of additional scholarships required by the upcoming settlement, expected to be finalized in April.`\
 https://nytimes.com/athletic/5888715/2024/10/31/arkansas-concessions-price-increase-revenue/
 
-**How Britain’s Budget Makes a Big Bet on Spending for Growth**\
+**How the U.K.’s Budget Makes a Big Bet on Spending for Growth**\
 `The Labour Party is betting that extra spending on public services and more investment will eventually revitalize the country’s stagnant economy.`\
-https://nytimes.com/2024/10/31/business/britain-budget-what-to-know.html
+https://nytimes.com/2024/10/31/business/2024-uk-budget-summary.html
 
 **This ‘Friendly’ Wisconsin Town Might Be the Most Divided Place in America**\
 `Most Americans live in political bubbles, but not residents of this swing-state community, where President Biden won in 2020 by six votes.`\
