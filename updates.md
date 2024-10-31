@@ -1,3 +1,7 @@
+**It Comes From the Heart**\
+`Sarah Sinclair and Paolo Pasco wish you a groovy holiday.`\
+https://nytimes.com/2024/10/30/crosswords/daily-puzzle-2024-10-31.html
+
 **Millions of Movers Reveal American Polarization in Action**\
 `A detailed look at how — and why — voters who move are widening the gap between blue neighborhoods and red ones.`\
 https://nytimes.com/interactive/2024/10/30/upshot/voters-moving-polarization.html
