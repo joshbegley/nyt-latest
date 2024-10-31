@@ -1,3 +1,7 @@
+**Millions of Movers Reveal American Polarization in Action**\
+`A detailed look at how — and why — voters who move are widening the gap between blue neighborhoods and red ones.`\
+https://nytimes.com/interactive/2024/10/30/upshot/voters-moving-polarization.html
+
 **North Korea, in the Spotlight Over Ukraine, Launches a Long-Range Missile**\
 `The launch, into waters west of Japan, came shortly after the United States and South Korea criticized the North for sending troops to join Russia’s war.`\
 https://nytimes.com/2024/10/30/world/asia/north-korea-missile-launch.html
