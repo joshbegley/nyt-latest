@@ -1,3 +1,15 @@
+**Juan Soto destination tiers: MLB execs forecast market of winter’s top free agent**\
+`After speaking with several executives from various teams across the league, The Athletic weighed every club’s chances of signing Soto.`\
+https://nytimes.com/athletic/5885657/2024/10/31/juan-soto-mlb-free-agency-tiers/
+
+**Authors Call for a Boycott of Israeli Cultural Institutions**\
+`Thousands of people, including prize winning writers, signed a letter pledging not to work with “complicit” organizations. Many others opposed the call in a separate letter.`\
+https://nytimes.com/2024/10/31/books/authors-letters-middle-east-war.html
+
+**Why Craig Berube's Maple Leafs deserve patience after tepid start**\
+`With the talent at Berube’s disposal and his history, the new Maple Leafs coach deserves extended patience for what he’s trying to build.`\
+https://nytimes.com/athletic/5883253/2024/10/31/maple-leafs-craig-berube-start/
+
 **Trump’s Transition Team Head Says R.F.K. Jr. Converted Him to Vaccine Skeptic**\
 `Howard Lutnick told CNN that he believed Robert F. Kennedy Jr., who could have a position in a possible Trump administration, was right about debunked vaccine claims.`\
 https://nytimes.com/2024/10/31/us/politics/trump-rfk-jr-vaccine-skepticism.html

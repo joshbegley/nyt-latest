@@ -1,3 +1,15 @@
+**Juan Soto destination tiers: MLB execs forecast market of winter’s top free agent**\
+`After speaking with several executives from various teams across the league, The Athletic weighed every club’s chances of signing Soto.`\
+https://nytimes.com/athletic/5885657/2024/10/31/juan-soto-mlb-free-agency-tiers/
+
+**Authors Call for a Boycott of Israeli Cultural Institutions**\
+`Thousands of people, including prize winning writers, signed a letter pledging not to work with “complicit” organizations. Many others opposed the call in a separate letter.`\
+https://nytimes.com/2024/10/31/books/authors-letters-middle-east-war.html
+
+**Why Craig Berube's Maple Leafs deserve patience after tepid start**\
+`With the talent at Berube’s disposal and his history, the new Maple Leafs coach deserves extended patience for what he’s trying to build.`\
+https://nytimes.com/athletic/5883253/2024/10/31/maple-leafs-craig-berube-start/
+
 **Trump’s Transition Team Head Says R.F.K. Jr. Converted Him to Vaccine Skeptic**\
 `Howard Lutnick told CNN that he believed Robert F. Kennedy Jr., who could have a position in a possible Trump administration, was right about debunked vaccine claims.`\
 https://nytimes.com/2024/10/31/us/politics/trump-rfk-jr-vaccine-skepticism.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/31/business/media/cecile-richards-abortion-social-me
 **Twins' Alex Kirilloff retires at age 26**\
 `Citing the toll of many injuries sustained over his career, the former top prospect announced his retirement days before his 27th birthday.`\
 https://nytimes.com/athletic/5888349/2024/10/31/alex-kirilloff-retires-minnesota-twins/
-
-**Why a Memphis Community Is Fighting Elon Musk’s Supercomputer**\
-`Residents say Mr. Musk’s data center for artificial intelligence is compounding their pollution burden and adding stress on the local electrical grid.`\
-https://nytimes.com/2024/10/31/business/energy-environment/elon-musk-ai-memphis-pollution.html
-
-**Everton's McNeil and Doucoure doubts for Southampton**\
-`Everton are sweating on the fitness of Dwight McNeil and Abdoulaye Doucoure ahead of Saturday’s game at Southampton, but manager Sean Dyche is optimistic about the pair&#8217;s chances of featuring.`\
-https://nytimes.com/athletic/5888366/2024/10/31/mcneil-doucoure-everton-injury-news-southampton/
-
-**After Turmoil, Royal Danish Ballet Taps Veteran Dancer as Leader**\
-`Amy Watson will helm the storied company as it grapples with the sudden departure of its previous artistic director and accusations of abuse at its school.`\
-https://nytimes.com/2024/10/31/arts/dance/royal-danish-ballet-nikolaj-hubbe-replacement.html
 
