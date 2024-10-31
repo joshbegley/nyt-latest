@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5888190/2024/10/31/betting-dummies-penn-state-ohio-state-under/
 
 **One Frame, Thousands of Snails**\
-`This image, from the animated feature about a woman who hoards snail-related items, includes hundreds of handcrafted artifacts.`\
+`This image, from the animated feature about a woman who hoards snail-related items, includes a bevy of tiny, handcrafted artifacts.`\
 https://nytimes.com/interactive/2024/10/31/movies/memoir-of-a-snail-adam-elliot.html
 
 **Can Stories About Abortion Break Through the Noise?**\
