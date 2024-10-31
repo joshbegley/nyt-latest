@@ -1,3 +1,11 @@
+**What’s That in Your Mouth, Bro?**\
+`Zyn nicotine pouches have become a new symbol of American masculinity — and a surprising political lightning rod.`\
+https://nytimes.com/2024/10/31/style/zyn-nicotine-pouch-masculinity.html
+
+**Lewis Hamilton reflects on ‘very turbulent year’ as Mercedes F1 career nears end**\
+`With four races left before his 2025 move to Ferrari, Hamilton is staying positive as his Mercedes era ends. `\
+https://nytimes.com/athletic/5888518/2024/10/31/lewis-hamilton-f1-mercedes-ferrari-brazil-gp/
+
 **After 7 Years, P’Nut the Squirrel Is Taken Away**\
 `Possession of wildlife is generally prohibited in New York State, even of P’Nut, who had half a million followers on Instagram.`\
 https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
