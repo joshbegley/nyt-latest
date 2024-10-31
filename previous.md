@@ -1,3 +1,7 @@
+**2025 World Series odds: Dodgers favored to repeat; Yankees, Braves close behind**\
+`Fresh off winning the 2024 World Series, the Los Angeles Dodgers opened as the favorites to win the 2025 edition.`\
+https://nytimes.com/athletic/5887138/2024/10/31/2025-world-series-odds-dodgers-yankees-braves/
+
 **Trump Says He’ll Protect Women, ‘Like It or Not,’ Evoking His History of Misogyny**\
 `Polls show Donald Trump is already facing a significant deficit with female voters in his race against Vice President Kamala Harris.`\
 https://nytimes.com/2024/10/31/us/politics/trump-women-like-it-or-not.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/31/world/us-election-world.html
 **What Sank the Tech Tycoon’s ‘Unsinkable’ Yacht?**\
 `A Times investigation has found that an unusually tall mast, and the design changes it required, made a superyacht owned by a British tech mogul vulnerable to capsizing.`\
 https://nytimes.com/interactive/2024/10/31/world/europe/bayesian-yacht-sinking-italy.html
-
-**Climate Change Is Making Disasters Deadlier. Here’s How Much.**\
-`More than half a million people were killed in 10 disasters that climate change worsened, according to a new report.`\
-https://nytimes.com/2024/10/31/climate/climate-disasters-cop29-election.html
 

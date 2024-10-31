@@ -1,3 +1,7 @@
+**2025 World Series odds: Dodgers favored to repeat; Yankees, Braves close behind**\
+`Fresh off winning the 2024 World Series, the Los Angeles Dodgers opened as the favorites to win the 2025 edition.`\
+https://nytimes.com/athletic/5887138/2024/10/31/2025-world-series-odds-dodgers-yankees-braves/
+
 **Trump Says He’ll Protect Women, ‘Like It or Not,’ Evoking His History of Misogyny**\
 `Polls show Donald Trump is already facing a significant deficit with female voters in his race against Vice President Kamala Harris.`\
 https://nytimes.com/2024/10/31/us/politics/trump-women-like-it-or-not.html
