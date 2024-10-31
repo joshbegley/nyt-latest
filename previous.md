@@ -1,3 +1,7 @@
+**What Teenagers Are Learning About the 2024 Election**\
+`We’ve heard from teachers around the country about how they’re teaching the 2024 election. Here’s what students in three New York City classrooms are learning.`\
+https://nytimes.com/2024/10/31/headway/teenagers-2024-election-learning-classroom.html
+
 **The Jobs Report on Friday May Be a Fluke and a Political Football**\
 `Economists expect the October data to show unusually weak job creation. But hurricanes and strikes may account for much of the shortfall.`\
 https://nytimes.com/2024/10/31/business/economy/jobs-report-election-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888410/2024/10/31/nfl-draft-cam-ward-qbs-dane-brug
 **Arkansas to charge 3 percent fee on all concessions to offset upcoming costs**\
 `The fee will help offset the costs of additional scholarships required by the upcoming settlement, expected to be finalized in April.`\
 https://nytimes.com/athletic/5888715/2024/10/31/arkansas-concessions-price-increase-revenue/
-
-**How the U.K.’s Budget Makes a Big Bet on Spending for Growth**\
-`The Labour Party is betting that extra spending on public services and more investment will eventually revitalize the country’s stagnant economy.`\
-https://nytimes.com/2024/10/31/business/2024-uk-budget-summary.html
 
