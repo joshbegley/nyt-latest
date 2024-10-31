@@ -1,3 +1,7 @@
+**Boycotting Israeli Culture Helps No One**\
+`An attack on culture divides the very people who should be in direct dialogue, reading each other’s books. It cannot be that the solution to conflict is to read less, and not more.`\
+https://nytimes.com/2024/10/31/opinion/israel-palestinians-cultural-boycott.html
+
 **Can Men in China Take a Joke? Women Doing Stand-Up Have Their Doubts**\
 `Comedy has become a way for women to skewer China’s gender inequality. Some men aren’t happy about it.`\
 https://nytimes.com/2024/10/31/world/asia/china-comedy-women-yang-li.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/business/economy/new-york-chip-research-center.ht
 **Quote of the Day: New Vehicles. Face Paint. A 1,200-Foot Fall. U.S. Army Prepares for a Potential Showdown With a Rival Superpower: China**\
 `Quotation of the Day for Thursday, October 31, 2024.`\
 https://nytimes.com/2024/10/31/pageoneplus/quote-of-the-day-new-vehicles-face-paint-a-1200-foot-fall-us-army-prepares-for-a-potential-showdown-with-a-rival-superpower-chin.html
-
-**How the U.S. Election Matters for the Rest of the World**\
-`Times foreign correspondents describe what’s at stake for the world, including China, Israel, Ukraine, global trade and climate.`\
-https://nytimes.com/interactive/2024/10/31/world/us-election-world.html
 
