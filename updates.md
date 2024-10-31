@@ -1,3 +1,7 @@
+**A Texas Judge’s Fight to Keep a High Profile Case Out of His Court**\
+`A battle over a new rule to limit credit card late fees has spiraled into a larger skirmish about how much power litigants should have to maneuver their cases into friendly courtrooms.`\
+https://nytimes.com/2024/10/31/business/fifth-circuit-court-venue-shopping.html
+
 **One Frame, Thousands of Snails**\
 `This image, from the animated feature about a woman who hoards snail-related items, includes a bevy of tiny, handcrafted artifacts.`\
 https://nytimes.com/interactive/2024/10/31/movies/memoir-of-a-snail-adam-elliot.html
