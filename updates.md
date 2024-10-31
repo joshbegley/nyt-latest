@@ -1,3 +1,7 @@
+**Jets' Allen Lazard lands on IR with shoulder injury**\
+`Lazard hauled in 30 receptions for 412 yards and five touchdowns this season.`\
+https://nytimes.com/athletic/5889044/2024/10/31/allen-lazard-ir-jets/
+
 **Isabelle de Borchgrave Dies at 79; Traced Sartorial History With Paper**\
 `An artist and designer, she transformed simple craft paper into elaborate trompe l’oeil confections, creating stunning life-size reproductions of period garments.`\
 https://nytimes.com/2024/10/31/style/isabelle-de-borchgrave-dead.html
