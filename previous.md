@@ -1,3 +1,11 @@
+**Until Saturday: Communication issues, plus Week 10 viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Breaking down helmet communication issues and Week 10's schedule.`\
+https://nytimes.com/athletic/5888991/2024/10/31/college-football-helmet-coach-communication-until-saturday/
+
+**Soldier Is Charged With Murdering Army Sergeant Found Dead in Dumpster**\
+`The soldier, Wooster Rancy, 21, who served in the same military unit as Sergeant Sarah Roque at Fort Leonard Wood, Mo., has been arrested in her Oct. 20 killing.`\
+https://nytimes.com/2024/10/31/us/army-murder-charge-fort-leonard-wood.html
+
 **Harris Campaign’s New Ad in Spanish Highlights Puerto Rico Insult at Trump Rally**\
 `It is aimed at Latinos in the battleground state of Pennsylvania, which has a sizable Puerto Rican population.`\
 https://nytimes.com/2024/10/31/us/politics/harris-ad-trump-puerto-rico.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/nyregion/cuomo-lies-covid-justice.html
 **Trump and Vance Escalate Efforts to Sow Doubts on Pennsylvania Voting**\
 `The former president and his running mate made false attacks about the security of the election in Pennsylvania, the battleground state with the most electoral college votes.`\
 https://nytimes.com/2024/10/31/us/politics/trump-vance-pennsylvania-voting.html
-
-**What Teens Said They Hope for and Fear in the 2024 Election**\
-`Responses to the Headway Election Challenge paint a picture of teenagers navigating a highly charged political moment.`\
-https://nytimes.com/2024/10/31/headway/teen-2024-election-hopes-fears-answers.html
-
-**Trump Had an ‘America First’ Foreign Policy. But It Was a Breakdown in American Policymaking.**\
-`A second Donald J. Trump presidency would almost certainly mark a return to an era of foreign policy decrees, untethered to any policy process, at a moment of maximum international peril.`\
-https://nytimes.com/2024/10/31/us/politics/trump-foreign-policy.html
 

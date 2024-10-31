@@ -1,3 +1,11 @@
+**Until Saturday: Communication issues, plus Week 10 viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Breaking down helmet communication issues and Week 10's schedule.`\
+https://nytimes.com/athletic/5888991/2024/10/31/college-football-helmet-coach-communication-until-saturday/
+
+**Soldier Is Charged With Murdering Army Sergeant Found Dead in Dumpster**\
+`The soldier, Wooster Rancy, 21, who served in the same military unit as Sergeant Sarah Roque at Fort Leonard Wood, Mo., has been arrested in her Oct. 20 killing.`\
+https://nytimes.com/2024/10/31/us/army-murder-charge-fort-leonard-wood.html
+
 **Harris Campaign’s New Ad in Spanish Highlights Puerto Rico Insult at Trump Rally**\
 `It is aimed at Latinos in the battleground state of Pennsylvania, which has a sizable Puerto Rican population.`\
 https://nytimes.com/2024/10/31/us/politics/harris-ad-trump-puerto-rico.html
