@@ -1,3 +1,19 @@
+**Why a Memphis Community Is Fighting Elon Musk’s Supercomputer**\
+`Residents say Mr. Musk’s data center for artificial intelligence is compounding their pollution burden and adding stress on the local electrical grid.`\
+https://nytimes.com/2024/10/31/business/energy-environment/elon-musk-ai-memphis-pollution.html
+
+**Everton's McNeil and Doucoure doubts for Southampton**\
+`Everton are sweating on the fitness of Dwight McNeil and Abdoulaye Doucoure ahead of Saturday’s game at Southampton, but manager Sean Dyche is optimistic about the pair&#8217;s chances of featuring.`\
+https://nytimes.com/athletic/5888366/2024/10/31/mcneil-doucoure-everton-injury-news-southampton/
+
+**After Turmoil, Royal Danish Ballet Taps Veteran Dancer as Leader**\
+`Amy Watson will helm the storied company as it grapples with the sudden departure of its previous artistic director and accusations of abuse at its school.`\
+https://nytimes.com/2024/10/31/arts/dance/royal-danish-ballet-nikolaj-hubbe-replacement.html
+
+**They’re Giving Scammers All Their Money. The Kids Can’t Stop Them.**\
+`One son couldn’t prevent his father from giving about $1 million in savings to con artists, including one posing as a female wrestling star. The two became estranged.`\
+https://nytimes.com/2024/10/31/business/scam-con-artist-family-savings.html
+
 **The Pierre Franey Turkey Chili**\
 `Five stars, over 17,000 ratings, one hour, perfect chili.`\
 https://nytimes.com/2024/10/31/dining/the-pierre-franey-turkey-chili.html

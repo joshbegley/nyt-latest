@@ -1,3 +1,19 @@
+**Why a Memphis Community Is Fighting Elon Musk’s Supercomputer**\
+`Residents say Mr. Musk’s data center for artificial intelligence is compounding their pollution burden and adding stress on the local electrical grid.`\
+https://nytimes.com/2024/10/31/business/energy-environment/elon-musk-ai-memphis-pollution.html
+
+**Everton's McNeil and Doucoure doubts for Southampton**\
+`Everton are sweating on the fitness of Dwight McNeil and Abdoulaye Doucoure ahead of Saturday’s game at Southampton, but manager Sean Dyche is optimistic about the pair&#8217;s chances of featuring.`\
+https://nytimes.com/athletic/5888366/2024/10/31/mcneil-doucoure-everton-injury-news-southampton/
+
+**After Turmoil, Royal Danish Ballet Taps Veteran Dancer as Leader**\
+`Amy Watson will helm the storied company as it grapples with the sudden departure of its previous artistic director and accusations of abuse at its school.`\
+https://nytimes.com/2024/10/31/arts/dance/royal-danish-ballet-nikolaj-hubbe-replacement.html
+
+**They’re Giving Scammers All Their Money. The Kids Can’t Stop Them.**\
+`One son couldn’t prevent his father from giving about $1 million in savings to con artists, including one posing as a female wrestling star. The two became estranged.`\
+https://nytimes.com/2024/10/31/business/scam-con-artist-family-savings.html
+
 **The Pierre Franey Turkey Chili**\
 `Five stars, over 17,000 ratings, one hour, perfect chili.`\
 https://nytimes.com/2024/10/31/dining/the-pierre-franey-turkey-chili.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5888164/2024/10/31/ace-cooper-flagg-maine/
 **Nottingham Forest's Gibbs-White, Jota & Anderson to be assessed before West Ham**\
 `Nottingham Forest will assess Morgan Gibbs-White, Jota and Elliot Anderson tomorrow (Friday), before deciding whether they are fit to face West Ham United at the City Ground on Saturday.`\
 https://nytimes.com/athletic/5888304/2024/10/31/gibbs-white-jota-anderson-injury-update/
-
-**PSG handed one-game partial stadium closure after homophobic chanting**\
-`Paris Saint-Germain will have a section of their Parc des Princes stadium closed for their Ligue 1 match against Toulouse on November 22 after being found guilty of homophobic chanting.`\
-https://nytimes.com/athletic/5881983/2024/10/31/psg-fans-ban-homophobic-chants/
-
-**Comcast Explores Spin-Out of Cable Business**\
-`The company’s president, Mike Cavanagh, said the company was also considering finding a partner for its Peacock streaming service.`\
-https://nytimes.com/2024/10/31/business/media/comcast-cable-networks-spin-off.html
-
-**Canucks report cards: Grading every forward's October performance**\
-`How did J.T. Miller, Elias Pettersson, Brock Boeser and the rest of Vancouver's forwards fare in the first month of the season?`\
-https://nytimes.com/athletic/5887462/2024/10/31/canucks-report-cards-forwards-october/
-
-**Recent Bulls wins showing resiliency, refusal to accept defeat with young team**\
-`After crafting two comeback victories from 20-point deficits in their past two games, the Bulls could be forming an early identity.`\
-https://nytimes.com/athletic/5886790/2024/10/31/chicago-bulls-nba-early-identity/
 
