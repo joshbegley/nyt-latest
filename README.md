@@ -1,3 +1,7 @@
+**Pennsylvania Voters Worry About the Toxicity of Politics**\
+`In Berks County, complex feelings about race and immigration threaten the social fabric of a place where people are used to finding common ground.`\
+https://nytimes.com/interactive/2024/10/31/us/elections/pennsylvania-voters.html
+
 **Apple’s Quarterly Profit Down Because of Tax Payment in Europe**\
 `Sales for the iPhone maker were up 4 percent to $94.9 billion. But a $14.4 billion tax bill cut profits that would have topped expectations.`\
 https://nytimes.com/2024/10/31/technology/apple-profit-earnings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/united-airlines-passenger-attack.html
 **College football Week 10 model-predicted point differentials and totals for every game**\
 `There are several close games in college football's Week 10. Austin Mock's model has projected point differentials for every game.`\
 https://nytimes.com/athletic/5889218/2024/10/31/college-football-week-10-model-projections/
-
-**Young Thug Pleads Guilty in YSL Case Nearly a Year Into Trial**\
-`The star Atlanta rapper admitted to six counts, including participating in criminal street gang activity, ending his role in the longest trial in Georgia history.`\
-https://nytimes.com/2024/10/31/arts/music/young-thug-guilty-plea-ysl-young-slime-life-trial.html
 
