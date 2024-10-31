@@ -1,3 +1,7 @@
+**Brain Games: Tight ends, Bears receivers, and a C.J. Stroud or Kirk Cousins conundrum**\
+`Renee Miller addresses Week 9 start/sit quandaries and gives week-winning fantasy football advice. `\
+https://nytimes.com/athletic/5886209/2024/10/31/brain-games-tight-ends-bears-receivers-and-a-c-j-stroud-or-kirk-cousins-conundrum/
+
 **New York State Chosen as National Center for Chip Manufacturing Research**\
 `The Biden administration will place a hub of a newly created national semiconductor technology center in upstate New York.`\
 https://nytimes.com/2024/10/31/business/economy/new-york-chip-research-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5886987/2024/10/30/dodgers-win-world-series-yankees
 **Mirtle: The Timothy Liljegren trade is a missed opportunity, for him and the Maple Leafs**\
 `Liljegren battled his way up through the organization for years. But whenever there appeared to be progress, there was a setback or hurdle.`\
 https://nytimes.com/athletic/5886912/2024/10/30/timothy-liljegren-maple-leafs-trade/
-
-**Elvis Merzlikins gets his shutout as Blue Jackets grind out 2-0 win vs. Islanders**\
-`After coming just 27 seconds short of a shutout in his previous game, Merzlikins blanked a team for the first time since January.`\
-https://nytimes.com/athletic/5887071/2024/10/30/blue-jackets-elvis-merzlikins-shutout-islanders/
 
