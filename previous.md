@@ -1,3 +1,11 @@
+**Aaron Boone, with future unsettled, ‘heartbroken’ after World Series loss**\
+`The Yankees can activate an option in his contract that would keep him around for 2025 or they could move on.`\
+https://nytimes.com/athletic/5887505/2024/10/31/yankees-aaron-boone-world-series-loss/
+
+**The Carabao Cup has brought Man City such joy yet their exit may be a good thing**\
+`As the calendar becomes more congested, City have bigger targets than a competition they once dominated`\
+https://nytimes.com/athletic/5886770/2024/10/31/manchester-city-carabao-cup-exit/
+
 **With second Dodgers World Series title for Dave Roberts, 'vindication' and a path to Cooperstown**\
 `Roberts called it “humbling” to be mentioned in the same category as Dodgers managers Tom Lasorda and Walter Alston.`\
 https://nytimes.com/athletic/5887498/2024/10/31/dodgers-world-series-dave-roberts-cooperstown/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/sports/nyc-marathon-mental-game.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/31/crosswords/spelling-bee-forum.html
-
-**How the Home Page Comes Together on Election Night**\
-`“It’s about being prepared, but also being able to pivot,” said Justin O’Neill, one of the editors who programs the home page at night.`\
-https://nytimes.com/2024/10/31/insider/how-the-home-page-comes-together-on-election-night.html
-
-**Inside the Winter Wonderland Where Walmart Hatches Its Holiday Plans**\
-`To prepare for ever-longer shopping season, thousands of employees were assembled for a retail jamboree in Florida’s August heat.`\
-https://nytimes.com/2024/10/31/business/walmart-holiday-shopping-workers.html
 
