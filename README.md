@@ -1,3 +1,11 @@
+**Trump Says He’ll Protect Women, ‘Like It or Not,’ Evoking His History of Misogyny**\
+`Polls show Donald Trump is already facing a significant deficit with female voters in his race against Vice President Kamala Harris.`\
+https://nytimes.com/2024/10/31/us/politics/trump-women-like-it-or-not.html
+
+**Injuries for Eze and Wharton should not obscure growing signs of a Palace resurgence**\
+`The positives should outweigh the negatives for Oliver Glasner and his squad after a physically-testing night in Birmingham`\
+https://nytimes.com/athletic/5882227/2024/10/31/palace-carabao-win-villa-injuries-eze-wharton/
+
 **Inside Tyrone Mings' 445-day road to recovery**\
 `Tyrone Mings returned to action against Crystal Palace on Wednesday night. The depths he went to in his recovery were vast`\
 https://nytimes.com/athletic/5049191/2024/10/31/tyrone-mings-aston-villa-injury-recovery/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/10/31/world/europe/bayesian-yacht-sinking-i
 **Climate Change Is Making Disasters Deadlier. Here’s How Much.**\
 `More than half a million people were killed in 10 disasters that climate change worsened, according to a new report.`\
 https://nytimes.com/2024/10/31/climate/climate-disasters-cop29-election.html
-
-**How Volkswagen Lost Its Way in China**\
-`A brutal price war, sudden shifts in consumer demand and human rights issues in Xinjiang have left VW stumbling in a market it led for 40 years.`\
-https://nytimes.com/2024/10/31/business/volkswagen-china.html
-
-**Dodgers capture World Series by storming back to upend Yankees: Takeaways**\
-`NEW YORK — The Los Angeles Dodgers will finally get their parade.`\
-https://nytimes.com/athletic/5886965/2024/10/30/dodgers-yankees-world-series-game-5-takeaways/
 
