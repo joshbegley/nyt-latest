@@ -1,3 +1,7 @@
+**Internal Emails Show Harvard Leaders Debating Response to Hamas Attack**\
+`Messages among leaders at Harvard and other universities, published by House Republicans, reveal discussions on how to balance public statements about the war and how to negotiate with protesters.`\
+https://nytimes.com/2024/10/31/us/harvard-oct-7-emails-israel-hamas-attack.html
+
 **Can Sabres' lineup changes help Dylan Cozens, Jack Quinn get back on track?**\
 `The two 23-year-old forwards were supposed to be among the Sabres' top offensive threats this season`\
 https://nytimes.com/athletic/5888900/2024/10/31/sabres-lineup-dylan-cozens-jack-quinn/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/dining/mexico-city-contramar-fish-dish.html
 **Review: A Vocally Splendid ‘Ragtime’ Raises the Roof**\
 `Joshua Henry stars in an exhilarating gala revival of the 1998 musical about nothing less than the harmony and discord of America.`\
 https://nytimes.com/2024/10/31/theater/ragtime-review-city-center.html
-
-**Iranian Officials Threaten Retaliation for Israeli Strikes**\
-`It was unclear how or when Iran plans to respond, and some officials said the rhetoric could be bluster. Iranian officials had downplayed the damage of Israel’s last attack.`\
-https://nytimes.com/2024/10/31/world/middleeast/iran-threatens-retaliation-israel-strikes.html
 

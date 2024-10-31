@@ -1,3 +1,7 @@
+**Internal Emails Show Harvard Leaders Debating Response to Hamas Attack**\
+`Messages among leaders at Harvard and other universities, published by House Republicans, reveal discussions on how to balance public statements about the war and how to negotiate with protesters.`\
+https://nytimes.com/2024/10/31/us/harvard-oct-7-emails-israel-hamas-attack.html
+
 **Can Sabres' lineup changes help Dylan Cozens, Jack Quinn get back on track?**\
 `The two 23-year-old forwards were supposed to be among the Sabres' top offensive threats this season`\
 https://nytimes.com/athletic/5888900/2024/10/31/sabres-lineup-dylan-cozens-jack-quinn/
