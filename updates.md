@@ -1,3 +1,7 @@
+**Can Men in China Take a Joke? Women Doing Stand-Up Have Their Doubts**\
+`Comedy has become a way for women to skewer China’s gender inequality. Some men aren’t happy about it.`\
+https://nytimes.com/2024/10/31/world/asia/china-comedy-women-yang-li.html
+
 **2025 World Series odds: Dodgers favored to repeat; Yankees, Braves close behind**\
 `Fresh off winning the 2024 World Series, the Los Angeles Dodgers opened as the favorites to win the 2025 edition.`\
 https://nytimes.com/athletic/5887138/2024/10/31/2025-world-series-odds-dodgers-yankees-braves/
