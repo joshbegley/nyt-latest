@@ -1,3 +1,7 @@
+**What we learned from the 2024 World Series**\
+`Baseball has a new champion, and that is you because you learned something new about the game by watching the World Series.`\
+https://nytimes.com/athletic/5887290/2024/10/31/world-series-lessons-dodgers-yankees/
+
 **Liverpool issued 75 lifetime bans in battle over Anfield ticket touting**\
 `Liverpool issued 75 lifetime bans from Anfield over the course of last season in the ongoing battle over ticket touting.`\
 https://nytimes.com/athletic/5888050/2024/10/31/liverpool-ticket-touts-anfield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5887769/2024/10/31/dodgers-yankees-world-series-gam
 **'I take full responsibility': How Kevin Fiala responded after being scratched by the Kings**\
 `Fiala had two points in a Kings win over the Golden Knights a day after he was scratched for "violating team protocol."`\
 https://nytimes.com/athletic/5887601/2024/10/31/kevin-fiala-la-kings-scratch-golden-knights/
-
-**Musk Seeks Switch to Federal Court for Suit Against His Online Petition**\
-`The Philadelphia district attorney sued in state court to block Elon Musk’s petition drive, saying it amounted to illegally paying people to register as voters. A hearing was scheduled for Thursday.`\
-https://nytimes.com/2024/10/31/us/elections/elon-musk-giveaway-suit-federal-court-trump.html
 
