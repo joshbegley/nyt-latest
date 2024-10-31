@@ -1,3 +1,7 @@
+**The Bounce: Why the NBA's early-season ratings don't matter**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5888232/2024/10/31/anthony-edwards-timberwolves-victor-wembanyama-spurs-chet-holmgren-thunder-nba-the-bounce/
+
 **Juan Soto destination tiers: MLB execs forecast market of winter’s top free agent**\
 `After speaking with several executives from various teams across the league, The Athletic weighed every club’s chances of signing Soto.`\
 https://nytimes.com/athletic/5885657/2024/10/31/juan-soto-mlb-free-agency-tiers/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/31/movies/memoir-of-a-snail-adam-elliot.
 **Can Stories About Abortion Break Through the Noise?**\
 `The reproductive rights activist Cecile Richards started a media project that merges activism and journalism on Instagram and TikTok, just days ahead of the presidential election.`\
 https://nytimes.com/2024/10/31/business/media/cecile-richards-abortion-social-media.html
-
-**Twins' Alex Kirilloff retires at age 26**\
-`Citing the toll of many injuries sustained over his career, the former top prospect announced his retirement days before his 27th birthday.`\
-https://nytimes.com/athletic/5888349/2024/10/31/alex-kirilloff-retires-minnesota-twins/
 
