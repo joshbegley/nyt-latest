@@ -1,3 +1,7 @@
+**Boycotting Israeli Culture Helps No One**\
+`An attack on culture divides the very people who should be in direct dialogue, reading each other’s books. It cannot be that the solution to conflict is to read less, and not more.`\
+https://nytimes.com/2024/10/31/opinion/israel-palestinians-cultural-boycott.html
+
 **Can Men in China Take a Joke? Women Doing Stand-Up Have Their Doubts**\
 `Comedy has become a way for women to skewer China’s gender inequality. Some men aren’t happy about it.`\
 https://nytimes.com/2024/10/31/world/asia/china-comedy-women-yang-li.html
