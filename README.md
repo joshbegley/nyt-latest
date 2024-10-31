@@ -1,3 +1,7 @@
+**Friday Briefing: The Global Stakes of the U.S. Election**\
+`Plus, Japan's passion for the World Series.`\
+https://nytimes.com/2024/10/31/briefing/friday-briefing-the-global-stakes-of-the-us-election.html
+
 **PEN America Leader to Leave Embattled Organization**\
 `Suzanne Nossel, who has led the free expression group since 2013, is leaving after a year of intense criticism of its response to the war in Gaza.`\
 https://nytimes.com/2024/10/31/arts/pen-america-suzanne-nossel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/technology/elon-musk-xai-valuation.html
 **How Much Do You Know About New York City and Climate Change?**\
 `What are the factors that make global warming in New York City a unique challenge? Test your knowledge by taking this quiz.`\
 https://nytimes.com/interactive/2024/10/31/nyregion/ny-climate-quiz.html
-
-**Metrograph, a New York Art House, Starts a Film Magazine**\
-`A throwback publication courts cinephiles with stories featuring Ari Aster, Maggie Cheung, Daniel Clowes, Clint Eastwood and Ann Hui.`\
-https://nytimes.com/2024/10/31/style/the-metrograph-a-new-york-art-house-starts-a-film-magazine.html
 
