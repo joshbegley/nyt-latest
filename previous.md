@@ -1,3 +1,7 @@
+**Jayson Tatum, Jaylen Brown point finger at themselves after Celtics' first loss this season**\
+`Though either of them could have regretted big misses in OT, they seemed more upset about failing to play with their normal edge early.`\
+https://nytimes.com/athletic/5887398/2024/10/31/jayson-tatum-jaylen-brown-celtics-first-loss/
+
 **Late Night Reacts to Biden’s ‘Garbage’ Remark**\
 `The comment shocked “everyone who couldn’t believe Joe successfully logged onto Zoom,” the guest host of “Gutfeld” said.`\
 https://nytimes.com/2024/10/31/arts/television/late-night-biden-garbage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879385/2024/10/31/how-do-you-coach-olympians-paris
 **How Nuno's extensive use of subs is driving Forest's impressive start**\
 `No team has used more substitutes in the Premier League than Forest so far this season - and it is paying off`\
 https://nytimes.com/athletic/5885030/2024/10/31/nottingham-forest-substitutes/
-
-**Thursday Briefing**\
-`How the next U.S. administration may shape the world.`\
-https://nytimes.com/2024/10/31/briefing/correspondents-election-britain-budget.html
 

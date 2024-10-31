@@ -1,3 +1,7 @@
+**Jayson Tatum, Jaylen Brown point finger at themselves after Celtics' first loss this season**\
+`Though either of them could have regretted big misses in OT, they seemed more upset about failing to play with their normal edge early.`\
+https://nytimes.com/athletic/5887398/2024/10/31/jayson-tatum-jaylen-brown-celtics-first-loss/
+
 **Late Night Reacts to Biden’s ‘Garbage’ Remark**\
 `The comment shocked “everyone who couldn’t believe Joe successfully logged onto Zoom,” the guest host of “Gutfeld” said.`\
 https://nytimes.com/2024/10/31/arts/television/late-night-biden-garbage.html
