@@ -1,3 +1,11 @@
+**A Catastrophic Deluge Leaves Parts of Spain in Ruins**\
+`Flash flooding across Spain killed more than 95 people after torrential rain left towns and villages submerged and turned streets into rivers.`\
+https://nytimes.com/2024/10/31/world/europe/spain-flash-floods-photos.html
+
+**The Fed’s Preferred Inflation Gauge Cooled Overall in September**\
+`Overall inflation slowed in September from a year earlier, though some signs of stubbornness lingered under the surface.`\
+https://nytimes.com/2024/10/31/business/economy/pce-inflation-fed-september.html
+
 **Unicorn diary: Chronicling the latest Victor Wembanyama-Chet Holmgren showdown**\
 `Holmgren got the best of Wembanyama in the latest meeting of the NBA's young giants. `\
 https://nytimes.com/athletic/5887371/2024/10/31/victor-wembanyama-chet-holmgren-matchup-spurs-thunder/

@@ -1,3 +1,11 @@
+**A Catastrophic Deluge Leaves Parts of Spain in Ruins**\
+`Flash flooding across Spain killed more than 95 people after torrential rain left towns and villages submerged and turned streets into rivers.`\
+https://nytimes.com/2024/10/31/world/europe/spain-flash-floods-photos.html
+
+**The Fed’s Preferred Inflation Gauge Cooled Overall in September**\
+`Overall inflation slowed in September from a year earlier, though some signs of stubbornness lingered under the surface.`\
+https://nytimes.com/2024/10/31/business/economy/pce-inflation-fed-september.html
+
 **Unicorn diary: Chronicling the latest Victor Wembanyama-Chet Holmgren showdown**\
 `Holmgren got the best of Wembanyama in the latest meeting of the NBA's young giants. `\
 https://nytimes.com/athletic/5887371/2024/10/31/victor-wembanyama-chet-holmgren-matchup-spurs-thunder/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5873119/2024/10/31/muguruza-wta-tour-finals-tournam
 **Giants trade chips thrive at right time: Did Darius Slayton, Azeez Ojulari boost their value?**\
 `As the Giants start to focus on their future, trading veterans and securing more draft capital could be the path they choose to travel. `\
 https://nytimes.com/athletic/5886448/2024/10/31/giants-darius-slayton-azeez-ojulari-nfl-trade-deadline/
-
-**NBA Lookahead: How worried should we be about Sixers, Grizzlies and other slow starters?**\
-`Plus, the best games of the weekend ahead.`\
-https://nytimes.com/athletic/5881864/2024/10/31/nba-lookahead-grizzlies-sixers-bucks/
-
-**The Other Trump Trade That Is Worrying Markets**\
-`Robert Lighthizer, who was a huge influence on Donald Trump’s protectionist trade policy, is again a candidate for a top role if the Republican wins next week.`\
-https://nytimes.com/2024/10/31/business/dealbook/lighthizer-trump-trade-markets.html
 
