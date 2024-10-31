@@ -1,3 +1,7 @@
+**North Korea, in the Spotlight Over Ukraine, Launches a Long-Range Missile**\
+`The launch, into waters west of Japan, came shortly after the United States and South Korea criticized the North for sending troops to join Russia’s war.`\
+https://nytimes.com/2024/10/30/world/asia/north-korea-missile-launch.html
+
 **Lakers' Bronny James scores first career points in loss to Cavaliers**\
 `James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
 https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/
