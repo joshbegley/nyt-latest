@@ -1,3 +1,7 @@
+**Canucks report cards: Grading every forward's October performance**\
+`How did J.T. Miller, Elias Pettersson, Brock Boeser and the rest of Vancouver's forwards fare in the first month of the season?`\
+https://nytimes.com/athletic/5887462/2024/10/31/canucks-report-cards-forwards-october/
+
 **Recent Bulls wins showing resiliency, refusal to accept defeat with young team**\
 `After crafting two comeback victories from 20-point deficits in their past two games, the Bulls could be forming an early identity.`\
 https://nytimes.com/athletic/5886790/2024/10/31/chicago-bulls-nba-early-identity/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-senate-pennsylvania.html
 **Election 2024 Polls: Ohio Senate**\
 `See the latest election polls and polling averages for Ohio.`\
 https://nytimes.com/interactive/2024/us/elections/polls-senate-ohio.html
-
-**Election 2024 Polls: Wisconsin Senate**\
-`See the latest election polls and polling averages for Wisconsin.`\
-https://nytimes.com/interactive/2024/us/elections/polls-senate-wisconsin.html
 
