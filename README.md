@@ -1,3 +1,7 @@
+**Scottie Barnes' broken orbital bone makes assessing the Raptors nearly impossible**\
+`The reverberations from the Raptors All-Star's injury will be felt up and down the roster. `\
+https://nytimes.com/athletic/5886298/2024/10/30/raptors-scottie-barnes-broken-orbital-bone-hornets/
+
 **Corrections: Oct. 31, 2024**\
 `Corrections that appeared in print on Thursday, Oct. 31, 2024.`\
 https://nytimes.com/2024/10/30/pageoneplus/corrections-oct-31-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/nyregion/cuomo-crime-covid-hearing.html
 **8 Supreme Court Justices in Mexico to Resign Ahead of Contentious Election**\
 `All but three of the country’s Supreme Court justices announced they would quit rather than partake in the controversial elections mandated by a judicial overhaul.`\
 https://nytimes.com/2024/10/30/world/americas/mexico-supreme-court-justices-resign.html
-
-**Airbus, With Eye on U.S. Race, Says It Will Be Ready for Higher Tariffs**\
-`The giant European airplane maker’s chief executive said it would pass along any higher charges to its customers.`\
-https://nytimes.com/2024/10/30/business/airbus-higher-tariffs.html
 
