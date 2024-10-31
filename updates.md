@@ -1,3 +1,7 @@
+**The Jobs Report on Friday May Be a Fluke and a Political Football**\
+`Economists expect the October data to show unusually weak job creation. But hurricanes and strikes may account for much of the shortfall.`\
+https://nytimes.com/2024/10/31/business/economy/jobs-report-election-politics.html
+
 **Big 12: Games not compromised by helmet communication issues**\
 `The league reviewed conference games amid concerns over a vulnerability in the system.`\
 https://nytimes.com/athletic/5888779/2024/10/31/big-12-helmet-issues-review/

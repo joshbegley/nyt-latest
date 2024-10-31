@@ -1,3 +1,7 @@
+**The Jobs Report on Friday May Be a Fluke and a Political Football**\
+`Economists expect the October data to show unusually weak job creation. But hurricanes and strikes may account for much of the shortfall.`\
+https://nytimes.com/2024/10/31/business/economy/jobs-report-election-politics.html
+
 **Big 12: Games not compromised by helmet communication issues**\
 `The league reviewed conference games amid concerns over a vulnerability in the system.`\
 https://nytimes.com/athletic/5888779/2024/10/31/big-12-helmet-issues-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888715/2024/10/31/arkansas-concessions-price-incre
 **How the U.K.’s Budget Makes a Big Bet on Spending for Growth**\
 `The Labour Party is betting that extra spending on public services and more investment will eventually revitalize the country’s stagnant economy.`\
 https://nytimes.com/2024/10/31/business/2024-uk-budget-summary.html
-
-**This ‘Friendly’ Wisconsin Town Might Be the Most Divided Place in America**\
-`Most Americans live in political bubbles, but not residents of this swing-state community, where President Biden won in 2020 by six votes.`\
-https://nytimes.com/2024/10/31/us/wisconsin-divided-voters.html
 
