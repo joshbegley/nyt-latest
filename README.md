@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/10/31/us/harris-trump-election
 https://nytimes.com/athletic/5887032/2024/10/31/manchester-united-casemiro-new-beginning/
 
 **Browns ahead of the trade deadline: Could Za'Darius Smith soon be moved?**\
-`Plus, would the team even consider dealing foundational players such as Nick Chubb and Myles Garrett ahead of the deadline? `\
+`Plus, would the team even consider dealing foundational players such as Nick Chubb and Myles Garrett? `\
 https://nytimes.com/athletic/5886310/2024/10/31/browns-trade-deadline-zadarius-smith/
 
 **Michigan Election Denial Activists Seize on Voter Report Glitch**\
