@@ -1,3 +1,7 @@
+**The Bounce: Why the NBA's early-season ratings don't matter**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5888232/2024/10/31/anthony-edwards-timberwolves-victor-wembanyama-spurs-chet-holmgren-thunder-nba-the-bounce/
+
 **Juan Soto destination tiers: MLB execs forecast market of winter’s top free agent**\
 `After speaking with several executives from various teams across the league, The Athletic weighed every club’s chances of signing Soto.`\
 https://nytimes.com/athletic/5885657/2024/10/31/juan-soto-mlb-free-agency-tiers/
