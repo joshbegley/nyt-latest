@@ -1,3 +1,7 @@
+**One Frame, Thousands of Snails**\
+`This image, from the animated feature about a woman who hoards snail-related items, includes a bevy of tiny, handcrafted artifacts.`\
+https://nytimes.com/interactive/2024/10/31/movies/memoir-of-a-snail-adam-elliot.html
+
 **Betting for (by) dummies: Locking in the under on Penn State-Ohio State**\
 `Jon Greenberg and Zac Jackson hope you have fun on Halloween while they play unfun under bets multiple times this weekend.`\
 https://nytimes.com/athletic/5888190/2024/10/31/betting-dummies-penn-state-ohio-state-under/
