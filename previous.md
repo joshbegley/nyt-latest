@@ -1,40 +1,40 @@
+**NBA Lookahead: How worried should we be about Sixers, Grizzlies and other slow starters?**\
+`Plus, the best games of the weekend ahead.`\
+https://nytimes.com/athletic/5881864/2024/10/31/nba-lookahead-grizzlies-sixers-bucks/
+
+**The Other Trump Trade That Is Worrying Markets**\
+`Robert Lighthizer, who was a huge influence on Donald Trump’s protectionist trade policy, is again a candidate for a top role if the Republican wins next week.`\
+https://nytimes.com/2024/10/31/business/dealbook/lighthizer-trump-trade-markets.html
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/31/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump and Harris Chase Each Other Across Battlegrounds**\
+`With five days to go until Election Day, Donald J. Trump and Kamala Harris are heading westward to cities in Arizona and Nevada.`\
+https://nytimes.com/live/2024/10/31/us/harris-trump-election
+
+**Casemiro ushers in (another) new beginning at Manchester United**\
+`Casemiro is not the future of this football club but he is very much still part of its present`\
+https://nytimes.com/athletic/5887032/2024/10/31/manchester-united-casemiro-new-beginning/
+
+**Browns ahead of the trade deadline: Could Za'Darius Smith soon be moved?**\
+`Plus, would the team even consider dealing foundational players such as Nick Chubb and Myles Garrett ahead of the deadline? `\
+https://nytimes.com/athletic/5886310/2024/10/31/browns-trade-deadline-zadarius-smith/
+
+**Michigan Election Denial Activists Seize on Voter Report Glitch**\
+`Participants in the Election Integrity Network spread false claims in right-wing media that were debunked by the Michigan secretary of state.`\
+https://nytimes.com/2024/10/31/us/politics/michigan-election-denial-activists-seize-on-voter-report-glitch.html
+
+**Five trades that make sense for the Chargers ahead of the NFL trade deadline**\
+`The Chargers could use a boost at cornerback or receiver. Tre'Davious White and Mike Williams are among the options.`\
+https://nytimes.com/athletic/5886792/2024/10/31/los-angeles-chargers-trade-deadline/
+
+**What I'm seeing from the 49ers: Brock Purdy adjusting to facing stick coverage**\
+`One of the most effective rushers on the team: Purdy, who's already picked up more first downs than he had last season.`\
+https://nytimes.com/athletic/5885645/2024/10/31/49ers-midseason-observations-brock-purdy/
+
 **How many more ovations does LeBron James have left in Cleveland?**\
 `James and the Lakers made another trip "home" to Cleveland, where Bronny James scored his first NBA basket. `\
 https://nytimes.com/athletic/5887338/2024/10/31/lebron-james-cleveland-homecoming/
-
-**A new role for John Tavares should help spark Maple Leafs’ ailing power play**\
-`John Tavares is longer effective in his net-front role on PP1 but could be valuable on a new-look PP2. `\
-https://nytimes.com/athletic/5883868/2024/10/31/maple-leafs-john-tavares-power-play/
-
-**Walker Buehler symbolized team's grit: 'Now he's etched in Dodger glory forever'**\
-`When Buehler volunteered for relief duty, the Dodgers laughed it off. He wound up putting the final touches on a World Series victory.`\
-https://nytimes.com/athletic/5887628/2024/10/31/dodgers-yankees-world-series-walker-buehler-2/
-
-**The Suns are off to a good start, and it goes beyond their offensive stars**\
-`This is how this year’s Suns are different. Last year’s bench struggled to make an impact. This year's bench is helping them win games.`\
-https://nytimes.com/athletic/5887214/2024/10/31/phoenix-suns-bench-royce-oneale-ryan-dunn/
-
-**Why the Oilers' Darnell Nurse partner predicament isn't going away**\
-`Who Nurse should play with was the biggest question mark entering the season for the Oilers.`\
-https://nytimes.com/athletic/5886241/2024/10/31/oilers-darnell-nurse-partner-stats/
-
-**What the Wild proved in October: Depth, road warriors and Kaprizov playing like 'the best player in the league'**\
-`After a stumbling start to 2024-25, it looked like history was repeating itself. But a 5-1-1 road trip has the Wild coming home confident.`\
-https://nytimes.com/athletic/5884909/2024/10/31/wild-takeaways-october-kaprizov/
-
-**Three key questions facing the Yankees as critical offseason begins**\
-`All eyes will be on Juan Soto's impending free agency as the Yankees look to retool for the 2025 season. `\
-https://nytimes.com/athletic/5884176/2024/10/31/new-york-yankees-offseason-questions/
-
-**Five reasons the Broncos have exceeded expectations at season's midway point**\
-`Prognosticators didn't have high hopes for a team burdened by Russell Wilson's dead money, but the Broncos are a playoff contender.`\
-https://nytimes.com/athletic/5886447/2024/10/31/denver-broncos-exceed-expectations/
-
-**‘The Gutter’ Review: A Phenom Is Born**\
-`This bowling comedy, co-directed by the standup comedian Yassir Lester and his brother Isaiah, has absurdity to spare.`\
-https://nytimes.com/2024/10/31/movies/the-gutter-review.html
-
-**‘Chasing Chasing Amy’ Review: A Fan’s Favorite**\
-`Sav Rodgers sets out to define the legacy of Kevin Smith’s “Chasing Amy” in this documentary, which is elevated by one instructive interview.`\
-https://nytimes.com/2024/10/31/movies/chasing-chasing-amy-review.html
 
