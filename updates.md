@@ -1,3 +1,15 @@
+**A Big New Celebrity Endorser for Kamala Harris: LeBron James**\
+`Mr. James, the N.B.A.’s all-time leading scorer, campaigned for Barack Obama and Hillary Clinton in previous election cycles. He has made no secret of his low opinion of Donald J. Trump.`\
+https://nytimes.com/2024/10/31/us/politics/lebron-james-kamala-harris-endorsement.html
+
+**The Angels, without a clear plan, nonetheless make offseason's first big splash**\
+`Angels GM Perry Minasian alluded to future moves for the Angels, who won 63 games in 2024.`\
+https://nytimes.com/athletic/5889184/2024/10/31/jorge-soler-trade-angels-plan/
+
+**The Valencia Floods Show That Climate Change Will Keep Defying Expectations**\
+`Startling torrents from the sky are among our most frightening foes in a warming world.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/valencia-flood-climate-change
+
 **Friday Briefing: The Global Stakes of the U.S. Election**\
 `Plus, Japan's passion for the World Series.`\
 https://nytimes.com/2024/10/31/briefing/friday-briefing-the-global-stakes-of-the-us-election.html
