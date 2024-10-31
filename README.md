@@ -1,3 +1,11 @@
+**How a Tiny Panel, Up for Election, Could Steer Arizona Away From Clean Power**\
+`The vote, in a sunny state with huge solar potential, reflects a growing nationwide fight over America’s energy transition.`\
+https://nytimes.com/2024/10/31/climate/arizona-utility-clean-energy-election.html
+
+**The Windup: The wildest World Series clincher ever**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5888346/2024/10/31/dodgers-yankees-world-series-freddie-freeman-the-windup/
+
 **Ace Flagg, twin brother of Duke's Cooper Flagg, commits to Maine**\
 `The No. 7 Blue Devils begin their 2024-25 season hosting unranked Maine on Nov. 4.`\
 https://nytimes.com/athletic/5888164/2024/10/31/ace-cooper-flagg-maine/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5888198/2024/10/31/joao-pedro-brighton-injury-updat
 **Inside Franco Colapinto’s rapid F1 rise: ‘A trajectory like a mountain slope’**\
 `"Don't worry, I'll get there." Against all the odds, the Argentine driver has gotten to F1. `\
 https://nytimes.com/athletic/5888109/2024/10/31/franco-colapinto-f1-williams-origin-story/
-
-**Penguins Today: Can the Two-Headed Monster save this frightfully bad team?**\
-`If the Penguins want to show they're serious about contending, they'll need Sidney Crosby and Evgeni Malkin to take them there.`\
-https://nytimes.com/athletic/5888144/2024/10/31/penguins-today-sidney-crosby-evgeni-malkin/
-
-**What we're seeing with the Bucks: Giannis' new runway and Brook Lopez's rim protection**\
-`One trend to watch: How Milwaukee fights the possession battle and what's required for the team to be successful.`\
-https://nytimes.com/athletic/5876521/2024/10/31/bucks-giannis-antetokounmpo-brook-lopez-rim-protection/
 
