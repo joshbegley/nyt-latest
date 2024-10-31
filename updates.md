@@ -1,3 +1,11 @@
+**Election 2024 Polls: Missouri Senate**\
+`See the latest election polls and polling averages for Missouri.`\
+https://nytimes.com/interactive/2024/us/elections/polls-senate-missouri.html
+
+**Election 2024 Polls: Maryland Senate**\
+`See the latest election polls and polling averages for Maryland.`\
+https://nytimes.com/interactive/2024/us/elections/polls-senate-maryland.html
+
 **‘Blitz’ Review: Love in the Ruins**\
 `Steve McQueen’s World War II drama may appear conventional on the surface, but don’t miss what it’s really doing.`\
 https://nytimes.com/2024/10/31/movies/blitz-review.html
