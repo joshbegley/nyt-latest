@@ -1,3 +1,11 @@
+**Harris Aims to Put Trump Back on Defense After a Garbage News Cycle**\
+`Seizing on comments by Donald Trump about women, the vice president tried to move on from a gaffe by President Biden and throw the focus of a race divided along gender lines back onto her rival.`\
+https://nytimes.com/2024/10/31/us/politics/harris-trump-women-arizona-las-vegas-nevada.html
+
+**Why a Governor Is Stepping Down, and Running for Mayor**\
+`John Carney of Delaware is set to become the first sitting governor to be elected a mayor. In some ways, he says, “it’s a step up.”`\
+https://nytimes.com/2024/10/31/us/john-carney-delaware-governor-mayor.html
+
 **Another Beloved Book, Another Disappointing Ballet**\
 `American Ballet Theater unveils “Crime and Punishment,” an ambitious, but listless new production by Helen Pickett and James Bonas.`\
 https://nytimes.com/2024/10/31/arts/dance/american-ballet-theater-crime-and-punishment.html

@@ -1,3 +1,11 @@
+**Harris Aims to Put Trump Back on Defense After a Garbage News Cycle**\
+`Seizing on comments by Donald Trump about women, the vice president tried to move on from a gaffe by President Biden and throw the focus of a race divided along gender lines back onto her rival.`\
+https://nytimes.com/2024/10/31/us/politics/harris-trump-women-arizona-las-vegas-nevada.html
+
+**Why a Governor Is Stepping Down, and Running for Mayor**\
+`John Carney of Delaware is set to become the first sitting governor to be elected a mayor. In some ways, he says, “it’s a step up.”`\
+https://nytimes.com/2024/10/31/us/john-carney-delaware-governor-mayor.html
+
 **Another Beloved Book, Another Disappointing Ballet**\
 `American Ballet Theater unveils “Crime and Punishment,” an ambitious, but listless new production by Helen Pickett and James Bonas.`\
 https://nytimes.com/2024/10/31/arts/dance/american-ballet-theater-crime-and-punishment.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009794651/search-and-rescue-efforts
 **A Texas Judge’s Fight to Keep a High Profile Case Out of His Court**\
 `A battle over a new rule to limit credit card late fees has spiraled into a larger skirmish about how much power litigants should have to maneuver their cases into friendly courtrooms.`\
 https://nytimes.com/2024/10/31/business/fifth-circuit-court-venue-shopping.html
-
-**Betting for (by) dummies: Locking in the under on Penn State-Ohio State**\
-`Jon Greenberg and Zac Jackson hope you have fun on Halloween while they play unfun under bets multiple times this weekend.`\
-https://nytimes.com/athletic/5888190/2024/10/31/betting-dummies-penn-state-ohio-state-under/
-
-**One Frame, Thousands of Snails**\
-`This image, from the animated feature about a woman who hoards snail-related items, includes a bevy of tiny, handcrafted artifacts.`\
-https://nytimes.com/interactive/2024/10/31/movies/memoir-of-a-snail-adam-elliot.html
 
