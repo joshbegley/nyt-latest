@@ -1,3 +1,7 @@
+**Musiala confirms Bayern Munich contract talks: 'I am happy here'**\
+`Jamal Musiala has confirmed that he is in talks with Bayern Munich over signing a new contract.`\
+https://nytimes.com/athletic/5887635/2024/10/31/bayern-munich-musiala-contract-future/
+
 **Oregon used the Big House to help put it on a path to becoming a Big Ten power**\
 `Much has changed since Oregon beat Michigan 39-7 in its last visit to Ann Arbor in 2007. Now, the Ducks are in the Big Ten too — and No. 1.`\
 https://nytimes.com/athletic/5886101/2024/10/31/oregon-michigan-football-big-ten-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/opinion/kamala-harris-cheney-trump.html
 **In Los Angeles, They Wanted a House for Their Growing Family. Which Neighborhood Was Right?**\
 `As newcomers to the city, a doctor and a D.J. weren’t sure they’d have enough to afford a house for themselves and their two young sons. Here’s what they found.`\
 https://nytimes.com/interactive/2024/10/31/realestate/los-angeles-home-sale.html
-
-**Regrading the Patriots' 2024 NFL Draft class: A+ for Drake Maye, but poor marks elsewhere**\
-`The Patriots seem to have hit on Maye, but the rest of their 2024 draft class has left a lot to be desired. `\
-https://nytimes.com/athletic/5885482/2024/10/31/patriots-nfl-draft-grades-drake-maye/
 

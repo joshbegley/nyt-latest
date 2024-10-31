@@ -1,3 +1,7 @@
+**Musiala confirms Bayern Munich contract talks: 'I am happy here'**\
+`Jamal Musiala has confirmed that he is in talks with Bayern Munich over signing a new contract.`\
+https://nytimes.com/athletic/5887635/2024/10/31/bayern-munich-musiala-contract-future/
+
 **Oregon used the Big House to help put it on a path to becoming a Big Ten power**\
 `Much has changed since Oregon beat Michigan 39-7 in its last visit to Ann Arbor in 2007. Now, the Ducks are in the Big Ten too — and No. 1.`\
 https://nytimes.com/athletic/5886101/2024/10/31/oregon-michigan-football-big-ten-history/
