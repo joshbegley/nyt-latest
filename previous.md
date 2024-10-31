@@ -1,3 +1,7 @@
+**Rams’ Puka Nacua leaves Thursday practice with knee injury**\
+`Nacua returned early from the sprained PCL to play in last Thursday night’s win against the Minnesota Vikings.`\
+https://nytimes.com/athletic/5889624/2024/10/31/rams-puka-nacua-knee-injury/
+
 **Trump Is Offending Women. His Campaign Is Reaching Out to Young Men.**\
 `How Trump’s allies are honing their message to young men in the campaign’s final days.`\
 https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/opinion/trump-musk-mike-johnson.html
 **Why Is Trump Campaigning in New Mexico and Virginia?**\
 `Even if carrying these states is unlikely, they offer the possibility that fresh audiences could supply more Republican votes in the popular tally.`\
 https://nytimes.com/2024/10/31/us/politics/why-trump-new-mexico-virginia.html
-
-**As Election Nears, Foreign Leaders Fear ‘a Vacuum’ in American Leadership**\
-`President Biden hosted his final pre-election international visitor in the Oval Office, where the talk focused on the Middle East and Europe. But uncertainty in the United States hung over the meeting.`\
-https://nytimes.com/2024/10/31/us/politics/biden-cyprus-meeting.html
 
