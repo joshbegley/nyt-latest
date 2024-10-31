@@ -1,3 +1,11 @@
+**PEN America Leader to Leave Embattled Organization**\
+`Suzanne Nossel, who has led the free expression group since 2013, is leaving after a year of intense criticism of its response to the war in Gaza.`\
+https://nytimes.com/2024/10/31/arts/pen-america-suzanne-nossel.html
+
+**Intel Posts $16.6 Billion Quarterly Loss, Its Biggest Ever**\
+`The Silicon Valley chip maker has struggled to turn around its fortunes after missing opportunities and poor execution.`\
+https://nytimes.com/2024/10/31/technology/intel-earnings-loss.html
+
 **Man Repeatedly Punched Sleeping Passenger on Flight, Authorities Say**\
 `A man assaulted another passenger on a United Airlines flight on Monday in an attack that appeared to have been random, officials said.`\
 https://nytimes.com/2024/10/31/us/united-airlines-passenger-attack.html
@@ -26,15 +34,7 @@ https://nytimes.com/2024/10/31/technology/elon-musk-xai-valuation.html
 `What are the factors that make global warming in New York City a unique challenge? Test your knowledge by taking this quiz.`\
 https://nytimes.com/interactive/2024/10/31/nyregion/ny-climate-quiz.html
 
-**The Metrograph, a New York Art House, Starts a Film Magazine**\
+**Metrograph, a New York Art House, Starts a Film Magazine**\
 `A throwback publication courts cinephiles with stories featuring Ari Aster, Maggie Cheung, Daniel Clowes, Clint Eastwood and Ann Hui.`\
 https://nytimes.com/2024/10/31/style/the-metrograph-a-new-york-art-house-starts-a-film-magazine.html
-
-**Jets' Allen Lazard lands on IR with shoulder injury**\
-`Lazard hauled in 30 receptions for 412 yards and five touchdowns this season.`\
-https://nytimes.com/athletic/5889044/2024/10/31/allen-lazard-ir-jets/
-
-**Isabelle de Borchgrave Dies at 79; Traced Sartorial History With Paper**\
-`An artist and designer, she transformed simple craft paper into elaborate trompe l’oeil confections, creating stunning life-size reproductions of period garments.`\
-https://nytimes.com/2024/10/31/style/isabelle-de-borchgrave-dead.html
 
