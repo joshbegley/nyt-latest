@@ -1,3 +1,7 @@
+**'A dream come true' Bronny James scores first career points in homecoming vs. Cavs**\
+`James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
+https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/
+
 **Scottie Barnes' broken orbital bone makes assessing the Raptors nearly impossible**\
 `The reverberations from the Raptors All-Star's injury will be felt up and down the roster. `\
 https://nytimes.com/athletic/5886298/2024/10/30/raptors-scottie-barnes-broken-orbital-bone-hornets/
@@ -17,10 +21,6 @@ https://nytimes.com/interactive/2024/10/30/upshot/voters-moving-polarization.htm
 **North Korea, in the Spotlight Over Ukraine, Launches a Long-Range Missile**\
 `The launch, into waters west of Japan, came shortly after the United States and South Korea criticized the North for sending troops to join Russia’s war.`\
 https://nytimes.com/2024/10/30/world/asia/north-korea-missile-launch.html
-
-**Lakers' Bronny James scores first career points in loss to Cavaliers**\
-`James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
-https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/
 
 **Naomi Girma scores twice in USWNT win over Argentina**\
 `The defender has been a regular as captain of the U.S.`\

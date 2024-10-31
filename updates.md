@@ -1,3 +1,7 @@
+**'A dream come true' Bronny James scores first career points in homecoming vs. Cavs**\
+`James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
+https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/
+
 **Scottie Barnes' broken orbital bone makes assessing the Raptors nearly impossible**\
 `The reverberations from the Raptors All-Star's injury will be felt up and down the roster. `\
 https://nytimes.com/athletic/5886298/2024/10/30/raptors-scottie-barnes-broken-orbital-bone-hornets/
