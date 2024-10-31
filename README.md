@@ -1,6 +1,18 @@
+**Mats Wieffer's performance against Liverpool was a glimpse of his true potential**\
+`The Dutch midfielder showed both his defensive and attacking qualities in Brighton's 3-2 defeat `\
+https://nytimes.com/athletic/5882072/2024/10/31/mats-wieffer-liverpool-performance-carabao-cup/
+
+**Newcastle still have beautiful chaos in their locker. This is what they needed**\
+`Newcastle reached the quarter-finals of the Carabao Cup by beating a team they lost to three days beforehand. This game provided answers`\
+https://nytimes.com/athletic/5886742/2024/10/31/newcastle-chelsea-carabao-cup-tonali-gordon/
+
 **Fantasy Premier League: How to build a cheap defence so you can buy big up top**\
 `The budget players to look at for defensive picks - and the gains made by adjusting the budget in this position...`\
 https://nytimes.com/athletic/5879586/2024/10/31/fantasy-premier-league-how-to-build-a-cheap-defence-so-you-can-buy-big-up-top/
+
+**How do you coach Olympians? Lessons from Team GB's summer in Paris**\
+`Three former athletes, now coaches for Team GB Olympians, explain how they contributed to the country's best Games for 40 years`\
+https://nytimes.com/athletic/5879385/2024/10/31/how-do-you-coach-olympians-paris-2024/
 
 **How Nuno's extensive use of subs is driving Forest's impressive start**\
 `No team has used more substitutes in the Premier League than Forest so far this season - and it is paying off`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5887239/2024/10/31/yankees-dodgers-world-series-202
 **'When he scored his first goal, I cried' - Dani Olmo's 10-year odyssey back to Barca**\
 `It's been a long road back to Barca for Olmo since he left their youth academy in 2014. His former coaches tell the story of his rise`\
 https://nytimes.com/athletic/5762299/2024/10/31/dani-olmo-barcelona-return/
-
-**Wembanyama scores career-low 6 points in loss to Holmgren, Thunder**\
-`Wembanyama grabbed eight rebounds and blocked three shots in the loss Wednesday.`\
-https://nytimes.com/athletic/5887251/2024/10/31/victor-wembanyama-spurs-thunder-takeaways/
-
-**'I think we'll prevail - we have to': A day with Huddersfield Town's owner**\
-`The Athletic was granted access to shadow businessman Kevin Nagle before he returned to California at the end of a 10-day trip to the UK`\
-https://nytimes.com/athletic/5882131/2024/10/31/huddersfield-town-kevin-nagle/
-
-**How long passes by goalkeepers went from practical to tactical**\
-`Long deliveries are down numerically but in tactical terms, they are more important then ever before`\
-https://nytimes.com/athletic/5866526/2024/10/31/goalkeeper-long-passing-tactical-value/
 
