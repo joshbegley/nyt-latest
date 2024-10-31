@@ -1,3 +1,7 @@
+**Ace Flagg, twin brother of Duke's Cooper Flagg, commits to Maine**\
+`The No. 7 Blue Devils begin their 2024-25 season hosting unranked Maine on Nov. 4.`\
+https://nytimes.com/athletic/5888164/2024/10/31/ace-cooper-flagg-maine/
+
 **Nottingham Forest's Gibbs-White, Jota & Anderson to be assessed before West Ham**\
 `Nottingham Forest will assess Morgan Gibbs-White, Jota and Elliot Anderson tomorrow (Friday), before deciding whether they are fit to face West Ham United at the City Ground on Saturday.`\
 https://nytimes.com/athletic/5888304/2024/10/31/gibbs-white-jota-anderson-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888144/2024/10/31/penguins-today-sidney-crosby-evg
 **What we're seeing with the Bucks: Giannis' new runway and Brook Lopez's rim protection**\
 `One trend to watch: How Milwaukee fights the possession battle and what's required for the team to be successful.`\
 https://nytimes.com/athletic/5876521/2024/10/31/bucks-giannis-antetokounmpo-brook-lopez-rim-protection/
-
-**‘Blitz’ Review: Love in the Ruins**\
-`Steve McQueen’s World War II drama may appear conventional on the surface, but don’t miss what it’s really doing.`\
-https://nytimes.com/2024/10/31/movies/blitz-review.html
 
