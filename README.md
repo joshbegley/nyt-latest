@@ -1,3 +1,7 @@
+**Greatest player ever? After Shohei Ohtani's first World Series title, there's a 'legitimate argument'**\
+`Now that Ohtani has one world title on his resume, he's aiming for 'nine more,' the same number of years remaining on his Dodgers deal.`\
+https://nytimes.com/athletic/5887541/2024/10/31/shohei-ohtani-dodgers-world-series/
+
 **Bayern Munich's Kane accused by Mainz goalkeeper of intentionally causing injury**\
 `Bayern Munich forward Harry Kane has been accused by an opponent of causing injury.`\
 https://nytimes.com/athletic/5887591/2024/10/31/bayern-munich-kane-mainz-goalkeeper-injury/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/5886968/2024/10/31/tottenham-manchester-city-league
 `The Yankees can activate an option in his contract that would keep him around for 2025 or they could move on.`\
 https://nytimes.com/athletic/5887505/2024/10/31/yankees-aaron-boone-world-series-loss/
 
-**The Carabao Cup has brought Man City such joy yet their exit may be a good thing**\
+**The Carabao Cup has brought Man City such joy – yet their exit may be a good thing**\
 `As the calendar becomes more congested, City have bigger targets than a competition they once dominated`\
 https://nytimes.com/athletic/5886770/2024/10/31/manchester-city-carabao-cup-exit/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5886916/2024/10/31/chelsea-league-cup-newcastle/
 **Years After His Yankees Retirement, C. C. Sabathia Is Mr. October 31st.**\
 `The former pitcher and his family go all out for Halloween, turning their northern New Jersey home into a trick-or-treater’s paradise.`\
 https://nytimes.com/2024/10/31/nyregion/cc-sabathia-yankees-halloween-alpine.html
-
-**Spooky Setting**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/10/31/learning/spooky-setting.html
 
