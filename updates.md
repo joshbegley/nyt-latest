@@ -1,3 +1,7 @@
+**Oregon used the Big House to help put it on a path to becoming a Big Ten power**\
+`Much has changed since Oregon beat Michigan 39-7 in its last visit to Ann Arbor in 2007. Now, the Ducks are in the Big Ten too — and No. 1.`\
+https://nytimes.com/athletic/5886101/2024/10/31/oregon-michigan-football-big-ten-history/
+
 **Watch: ‘You’re Being Lied To About Voter Fraud. Here’s the Truth.’**\
 `Should we be worried about cheating at the polls? Or is it just a dangerous myth?`\
 https://nytimes.com/2024/10/31/learning/watch-youre-being-lied-to-about-voter-fraud-heres-the-truth.html

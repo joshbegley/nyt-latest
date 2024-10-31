@@ -1,3 +1,7 @@
+**Oregon used the Big House to help put it on a path to becoming a Big Ten power**\
+`Much has changed since Oregon beat Michigan 39-7 in its last visit to Ann Arbor in 2007. Now, the Ducks are in the Big Ten too — and No. 1.`\
+https://nytimes.com/athletic/5886101/2024/10/31/oregon-michigan-football-big-ten-history/
+
 **Watch: ‘You’re Being Lied To About Voter Fraud. Here’s the Truth.’**\
 `Should we be worried about cheating at the polls? Or is it just a dangerous myth?`\
 https://nytimes.com/2024/10/31/learning/watch-youre-being-lied-to-about-voter-fraud-heres-the-truth.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/31/realestate/los-angeles-home-sale.html
 **Regrading the Patriots' 2024 NFL Draft class: A+ for Drake Maye, but poor marks elsewhere**\
 `The Patriots seem to have hit on Maye, but the rest of their 2024 draft class has left a lot to be desired. `\
 https://nytimes.com/athletic/5885482/2024/10/31/patriots-nfl-draft-grades-drake-maye/
-
-**Commanders' Johnny Newton learning path to greatness one official sack at a time**\
-`The second-round pick impressed in Washington's Week 8 win, and he's just getting started.`\
-https://nytimes.com/athletic/5886547/2024/10/31/commanders-johnny-newton-sack-rookie-season/
 
