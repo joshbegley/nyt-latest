@@ -1,3 +1,7 @@
+**Vitezslav Jaros continues Liverpool tradition by earning plaudits in League Cup win**\
+`Not for the first time, Liverpool youngsters provided the platform for their established stars to shine in the League Cup...`\
+https://nytimes.com/athletic/5887236/2024/10/31/vitezslav-jaros-liverpool-brighton/
+
 **Chelsea second string failing their first real test will give Maresca food for thought**\
 `Having swept aside Barrow, Gent and Panathinaikos, Chelsea's squad players were humbled by Newcastle United`\
 https://nytimes.com/athletic/5886916/2024/10/31/chelsea-league-cup-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/business/walmart-holiday-shopping-workers.html
 **Your Guide to the 2024 New York City Marathon**\
 `Everything you need to know about Sunday’s five-borough race.`\
 https://nytimes.com/2024/10/31/nyregion/nyc-marathon-guide.html
-
-**Ethan Nwaneri: If not now, then when?**\
-`Technically, physically and mentality the 17 year old looks ready for a more prominent role and a more difficult challenge than Preston`\
-https://nytimes.com/athletic/5885432/2024/10/31/ethan-nwaneri-arsenal/
 

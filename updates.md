@@ -1,3 +1,7 @@
+**Vitezslav Jaros continues Liverpool tradition by earning plaudits in League Cup win**\
+`Not for the first time, Liverpool youngsters provided the platform for their established stars to shine in the League Cup...`\
+https://nytimes.com/athletic/5887236/2024/10/31/vitezslav-jaros-liverpool-brighton/
+
 **Chelsea second string failing their first real test will give Maresca food for thought**\
 `Having swept aside Barrow, Gent and Panathinaikos, Chelsea's squad players were humbled by Newcastle United`\
 https://nytimes.com/athletic/5886916/2024/10/31/chelsea-league-cup-newcastle/
