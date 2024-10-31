@@ -1,40 +1,40 @@
-**Musiala confirms Bayern Munich contract talks: 'I am happy here'**\
-`Jamal Musiala has confirmed that he is in talks with Bayern Munich over signing a new contract.`\
-https://nytimes.com/athletic/5887635/2024/10/31/bayern-munich-musiala-contract-future/
+**Weighing in on Spurs-Rockets rivalry: Wemby's ramp-up, CP3's future, Jalen Green and more**\
+`Kelly Iko and John Hollinger discuss how the Spurs and Rockets have started the season and what the season might hold.`\
+https://nytimes.com/athletic/5883733/2024/10/31/spurs-rockets-chris-paul-jalen-green/
 
-**Oregon used the Big House to help put it on a path to becoming a Big Ten power**\
-`Much has changed since Oregon beat Michigan 39-7 in its last visit to Ann Arbor in 2007. Now, the Ducks are in the Big Ten too — and No. 1.`\
-https://nytimes.com/athletic/5886101/2024/10/31/oregon-michigan-football-big-ten-history/
+**Yohe: Enjoy the Penguins nostalgia tour because this season is on thin ice**\
+`Savor the special moments this season because focusing on the Penguins' record might become an insufferable chore.`\
+https://nytimes.com/athletic/5885531/2024/10/31/penguins-standings-records/
 
-**Watch: ‘You’re Being Lied To About Voter Fraud. Here’s the Truth.’**\
-`Should we be worried about cheating at the polls? Or is it just a dangerous myth?`\
-https://nytimes.com/2024/10/31/learning/watch-youre-being-lied-to-about-voter-fraud-heres-the-truth.html
+**Ten Red Wings thoughts after 10 games: Can Detroit's early issues be fixed?**\
+`The concerning thing right now is this team hasn't resembled last year's group. It's looked like a clear step back.`\
+https://nytimes.com/athletic/5887069/2024/10/31/red-wings-10-games-early-issues/
 
-**MLB's offseason schedule: Key dates and deadlines to get you through the baseball winter**\
-`Every offseason is loaded with uncertainty, but also deadlines and mile markers that help guide the way to next spring. Here’s the road map.`\
-https://nytimes.com/athletic/5884166/2024/10/31/mlb-offseason-schedule-key-dates-deadlines/
+**Eyes on Jalen Brunson: Observing the Knicks' star in Miami for a night**\
+`Watching Jalen Brunson for an entire game to try to see what the star guard sees. `\
+https://nytimes.com/athletic/5886686/2024/10/31/jalen-brunson-knicks-heat-observation/
 
-**Could Zac Taylor give up Bengals play calling or Lou Anarumo be on the hot seat?**\
-`Fans are calling for change in the coaching staff as Cincinnati continues to struggle through a disappointing season.`\
-https://nytimes.com/athletic/5886432/2024/10/31/bengals-zac-taylor-lou-anarumo/
+**Mets' free-agent outlook: How much should the Mets pay to bring back Pete Alonso?**\
+`It was a pedestrian season by Alonso's standards, but he still hits free agency as the best option at first base. `\
+https://nytimes.com/athletic/5880285/2024/10/31/mets-pete-alonso-free-agency-market/
 
-**As the Alex Bregman sweepstakes begin, the Astros must pitch their plan to win**\
-`Winning is Bregman's top priority when choosing where to sign this offseason. To retain him, the Astros must sell him on that possibility.`\
-https://nytimes.com/athletic/5883762/2024/10/31/alex-bregman-houston-astros-free-agency-pitch/
+**Ravens still on the prowl as trade deadline nears, but who out there makes sense?**\
+`Will Baltimore GM Eric DeCosta pursue a defensive player such as Jadeveon Clowney or Za'Darius Smith before next week's deadline?`\
+https://nytimes.com/athletic/5885789/2024/10/31/ravens-eric-decosta-trade-deadline/
 
-**Texans vs. Jets odds, expert picks, how to watch: Yes, the Jets are still favored**\
-`Did the Jets draw a favorable matchup at home vs. the Texans without Nico Collins and Stefon Diggs?`\
-https://nytimes.com/athletic/5886378/2024/10/31/texans-jets-odds-picks-how-to-watch-betting/
+**'It’s so shortsighted': NFL execs debate Colts benching Anthony Richardson**\
+`The decision to bench Richardson surprised rival executives around the NFL. The move has been criticized and defended.`\
+https://nytimes.com/athletic/5885973/2024/10/31/anthony-richardson-colts-bench-nfl-executives/
 
-**Biden’s Stake in This Election Is Like Nobody Else’s**\
-`Will he be remembered as American democracy’s savior — or as a midwife to its ruin?`\
-https://nytimes.com/2024/10/31/opinion/biden-election-legacy.html
+**The Harris Campaign Distances Biden, and Floods Wreak Havoc in Spain**\
+`Plus, the Dodgers win the World Series.`\
+https://nytimes.com/2024/10/31/podcasts/election-fears-harris-biden.html
 
-**The Harris-Cheney Partnership Is Not Just a Marriage of Convenience**\
-`Unlikely friendships can make America a better place.`\
-https://nytimes.com/2024/10/31/opinion/kamala-harris-cheney-trump.html
+**What we learned watching World Series games 3-5 with major leaguers**\
+`Several major league players joined The Athletic to offer their thoughts on this memorable World Series. `\
+https://nytimes.com/athletic/5886375/2024/10/31/world-series-yankees-dodgers-what-we-learned-games-3-5/
 
-**In Los Angeles, They Wanted a House for Their Growing Family. Which Neighborhood Was Right?**\
-`As newcomers to the city, a doctor and a D.J. weren’t sure they’d have enough to afford a house for themselves and their two young sons. Here’s what they found.`\
-https://nytimes.com/interactive/2024/10/31/realestate/los-angeles-home-sale.html
+**10 key takeaways from the Jets' NHL-best 9-1-0 start to 2024-25**\
+`The Jets are atop the NHL standings at the end of October but have few obvious areas for improvement as well.`\
+https://nytimes.com/athletic/5885739/2024/10/31/winnipeg-jets-takeaways-nhl-best-standings/
 
