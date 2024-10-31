@@ -1,3 +1,15 @@
+**How Elon Musk Changed Course to Go All Out for Trump**\
+`The billionaire has poured nearly $120 million into a pro-Trump voting effort and used his social media platform, X, to spread misinformation, despite public statements he made in the past about political neutrality.`\
+https://nytimes.com/2024/10/31/business/elon-musk-trump.html
+
+**‘The Graduates’ Review: How to Move On**\
+`In this delicate drama set in Utah, three individuals deal with survivor’s guilt a year after a school shooting takes the life of a loved one.`\
+https://nytimes.com/2024/10/31/movies/the-graduates-review.html
+
+**No, the number of votes cast does not exceed the number of voters.**\
+`The number of votes cast in presidential elections has always been less than the number of eligible voters.`\
+https://nytimes.com/2024/10/31/business/votes-cast-voter-numbers-election-fact-check.html
+
 **Harris Aims to Put Trump Back on Defense After a Garbage News Cycle**\
 `Seizing on comments by Donald Trump about women, the vice president tried to move on from a gaffe by President Biden and throw the focus of a race divided along gender lines back onto her rival.`\
 https://nytimes.com/2024/10/31/us/politics/harris-trump-women-arizona-las-vegas-nevada.html
