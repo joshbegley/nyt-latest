@@ -1,3 +1,11 @@
+**Trump’s Transition Team Head Says R.F.K. Jr. Converted Him to Vaccine Skeptic**\
+`Howard Lutnick told CNN that he believed Robert F. Kennedy Jr., who could have a position in a possible Trump administration, was right about debunked vaccine claims.`\
+https://nytimes.com/2024/10/31/us/politics/trump-rfk-jr-vaccine-skepticism.html
+
+**Search and Rescue Efforts Continue in Spain After Worst Flooding in Decades**\
+`The flooding left more than 150 dead, and an unknown number of people missing.`\
+https://nytimes.com/video/world/europe/100000009794651/search-and-rescue-efforts-continue-in-spain-after-worst-flooding-in-decades.html
+
 **Fantasy football rankings Week 9: Sleepers, projections, starts, Patrick Mahomes, Josh Downs**\
 `Jake Ciely offers up his Week 9 fantasy football rankings, and likes Patrick Mahomes to finally have a big day versus a porous Bucs defense.`\
 https://nytimes.com/athletic/5883846/2024/10/31/fantasy-football-rankings-week-9-sleepers-projections-starts-patrick-mahomes-josh-downs/
