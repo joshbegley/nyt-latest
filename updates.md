@@ -1,3 +1,7 @@
+**A new role for John Tavares should help spark Maple Leafs’ ailing power play**\
+`John Tavares is longer effective in his net-front role on PP1 but could be valuable on a new-look PP2. `\
+https://nytimes.com/athletic/5883868/2024/10/31/maple-leafs-john-tavares-power-play/
+
 **Walker Buehler symbolized team's grit: 'Now he's etched in Dodger glory forever'**\
 `When Buehler volunteered for relief duty, the Dodgers laughed it off. He wound up putting the final touches on a World Series victory.`\
 https://nytimes.com/athletic/5887628/2024/10/31/dodgers-yankees-world-series-walker-buehler-2/
