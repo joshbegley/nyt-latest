@@ -1,3 +1,11 @@
+**Brighton's Joao Pedro back in training before Liverpool trip**\
+`Brighton &amp; Hove Albion forward Joao Pedro has returned to first-team training and could feature in Saturday&#8217;s Premier League match at Liverpool, head coach Fabian Hurzeler said on Thursday.`\
+https://nytimes.com/athletic/5888198/2024/10/31/joao-pedro-brighton-injury-update/
+
+**Inside Franco Colapinto’s rapid F1 rise: ‘A trajectory like a mountain slope’**\
+`"Don't worry, I'll get there." Against all the odds, the Argentine driver has gotten to F1. `\
+https://nytimes.com/athletic/5888109/2024/10/31/franco-colapinto-f1-williams-origin-story/
+
 **Penguins Today: Can the Two-Headed Monster save this frightfully bad team?**\
 `If the Penguins want to show they're serious about contending, they'll need Sidney Crosby and Evgeni Malkin to take them there.`\
 https://nytimes.com/athletic/5888144/2024/10/31/penguins-today-sidney-crosby-evgeni-malkin/
