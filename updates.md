@@ -1,3 +1,7 @@
+**A Sense of Time Wasted (Productively) Anchors October’s Graphic Novels**\
+`A maximalist comedy about the interior life, a riff on fatherhood and a return after four decades to a sci-fi classic are all worth close looks this month.`\
+https://nytimes.com/2024/10/31/books/review/new-graphic-novels-chris-ware.html
+
 **Cardinals decline 2025 options on Kyle Gibson, Lance Lynn in first decisions of offseason**\
 `The moves indicate that 2025 will be a transition season for the Cardinals, who are looking to get younger.`\
 https://nytimes.com/athletic/5888790/2024/10/31/cardinals-decline-2025-options-kyle-gibson-lance-lynn/
