@@ -1,3 +1,15 @@
+**After 7 Years, P’Nut the Squirrel Is Taken Away**\
+`Possession of wildlife is generally prohibited in New York State, even of P’Nut, who had half a million followers on Instagram.`\
+https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
+
+**Bob Costas retires from MLB play-by-play duties after 4-plus decades**\
+`The decision to retire was made by Costas prior to the season, which coincided with his contract ending, according to sources.`\
+https://nytimes.com/athletic/5888765/2024/10/31/bob-costas-mlb-retirement-play-by-play/
+
+**How White Sox sold Venable on managing a team known for losing**\
+`Will Venable comes to the White Sox from the Texas Rangers.`\
+https://nytimes.com/athletic/5888769/2024/10/31/white-sox-will-venable-new-manager/
+
 **What Teenagers Are Learning About the 2024 Election**\
 `We’ve heard from teachers around the country about how they’re teaching the 2024 election. Here’s what students in three New York City classrooms are learning.`\
 https://nytimes.com/2024/10/31/headway/teenagers-2024-election-learning-classroom.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/31/health/sugar-rationing-britain-health-experiment.
 **Protecting Nature, With the U.S. on the Sidelines**\
 `As the world gathers this week for U.N. biodiversity negotiations, the U.S. hasn’t ratified a decades-old treaty to protect nature.`\
 https://nytimes.com/2024/10/31/climate/cop-biodiversity-colombia-united-states.html
-
-**Ricky Martin, Lin-Manuel Miranda and Rita Moreno: Puerto Ricans Are Voting**\
-`Our vote won’t be a reaction to racist jokes.`\
-https://nytimes.com/2024/10/31/opinion/moreno-miranda-martin-puerto-rico.html
-
-**Why Dane Brugler thinks Cam Ward is current favorite to be first QB selected in 2025 draft**\
-`Ward has Miami undefeated and on track for both an ACC championship and a playoff berth.`\
-https://nytimes.com/athletic/5888410/2024/10/31/nfl-draft-cam-ward-qbs-dane-brugler/
-
-**Arkansas to charge 3 percent fee on all concessions to offset upcoming costs**\
-`The fee will help offset the costs of additional scholarships required by the upcoming settlement, expected to be finalized in April.`\
-https://nytimes.com/athletic/5888715/2024/10/31/arkansas-concessions-price-increase-revenue/
 
