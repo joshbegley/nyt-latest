@@ -1,3 +1,11 @@
+**Bears try to move on from Hail Mary gaffe, questions about coaching, leadership**\
+`Where does a player-led team leave Matt Eberflus? How much more turmoil can the Bears expect to bounce back from?`\
+https://nytimes.com/athletic/5886369/2024/10/31/bears-hail-mary-coaching-leadership/
+
+**The Pulse: The mistake that sealed the World Series**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5886014/2024/10/31/dodgers-yankees-world-series-title-the-pulse/
+
 **Inside the Yankees' grisly fifth inning that proved one of the most costly in World Series history**\
 `The Yankees are now the only team to blow a five-run lead while facing elimination from the World Series.`\
 https://nytimes.com/athletic/5887662/2024/10/31/dodgers-yankees-world-series-fifth-inning/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5880285/2024/10/31/mets-pete-alonso-free-agency-mar
 **Ravens still on the prowl as trade deadline nears, but who out there makes sense?**\
 `Will Baltimore GM Eric DeCosta pursue a defensive player such as Jadeveon Clowney or Za'Darius Smith before next week's deadline?`\
 https://nytimes.com/athletic/5885789/2024/10/31/ravens-eric-decosta-trade-deadline/
-
-**'It’s so shortsighted': NFL execs debate Colts benching Anthony Richardson**\
-`The decision to bench Richardson surprised rival executives around the NFL. The move has been criticized and defended.`\
-https://nytimes.com/athletic/5885973/2024/10/31/anthony-richardson-colts-bench-nfl-executives/
-
-**The Harris Campaign Distances Biden, and Floods Wreak Havoc in Spain**\
-`Plus, the Dodgers win the World Series.`\
-https://nytimes.com/2024/10/31/podcasts/election-fears-harris-biden.html
 

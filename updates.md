@@ -1,3 +1,11 @@
+**Bears try to move on from Hail Mary gaffe, questions about coaching, leadership**\
+`Where does a player-led team leave Matt Eberflus? How much more turmoil can the Bears expect to bounce back from?`\
+https://nytimes.com/athletic/5886369/2024/10/31/bears-hail-mary-coaching-leadership/
+
+**The Pulse: The mistake that sealed the World Series**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5886014/2024/10/31/dodgers-yankees-world-series-title-the-pulse/
+
 **Inside the Yankees' grisly fifth inning that proved one of the most costly in World Series history**\
 `The Yankees are now the only team to blow a five-run lead while facing elimination from the World Series.`\
 https://nytimes.com/athletic/5887662/2024/10/31/dodgers-yankees-world-series-fifth-inning/
