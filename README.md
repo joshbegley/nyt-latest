@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5886883/2024/10/30/naomi-girma-scores-uswnt-argenti
 `The bill has drawn criticism from legal scholars who say it would bulldoze any judicial oversight of constitutional matters.`\
 https://nytimes.com/2024/10/30/world/americas/mexico-passes-bill-legal-challenges.html
 
-**House Covid Panel to Refer Andrew Cuomo for Potential Prosecution**\
-`The Republican-led House subcommittee will ask the Justice Department to investigate Mr. Cuomo for possible prosecution for “false statements” in his testimony.`\
+**House Covid Panel Refers Andrew Cuomo for Potential Prosecution**\
+`The Republican-led House subcommittee asked the Justice Department to investigate Mr. Cuomo for possible prosecution for “false statements” in his testimony.`\
 https://nytimes.com/2024/10/30/nyregion/cuomo-crime-covid-hearing.html
 
 **8 Supreme Court Justices in Mexico to Resign Ahead of Contentious Election**\
