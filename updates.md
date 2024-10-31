@@ -1,3 +1,15 @@
+**Mexico Passes Bill Barring Legal Challenges to Constitutional Changes**\
+`The bill has drawn criticism from legal scholars who say it would bulldoze any judicial oversight of constitutional matters.`\
+https://nytimes.com/2024/10/30/world/americas/mexico-passes-bill-legal-challenges.html
+
+**House Covid Panel to Refer Andrew Cuomo for Potential Prosecution**\
+`The Republican-led House subcommittee will ask the Justice Department to investigate Mr. Cuomo for possible prosecution for “false statements” in his testimony.`\
+https://nytimes.com/2024/10/30/nyregion/cuomo-crime-covid-hearing.html
+
+**8 Supreme Court Justices in Mexico to Resign Ahead of Contentious Election**\
+`All but three of the country’s Supreme Court justices announced they would quit rather than partake in the controversial elections mandated by a judicial overhaul.`\
+https://nytimes.com/2024/10/30/world/americas/mexico-supreme-court-justices-resign.html
+
 **Airbus, With Eye on U.S. Race, Says It Will Be Ready for Higher Tariffs**\
 `The giant European airplane maker’s chief executive said it would pass along any higher charges to its customers.`\
 https://nytimes.com/2024/10/30/business/airbus-higher-tariffs.html
