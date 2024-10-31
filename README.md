@@ -1,3 +1,7 @@
+**Harris Campaign’s New Ad in Spanish Highlights Puerto Rico Insult at Trump Rally**\
+`It is aimed at Latinos in the battleground state of Pennsylvania, which has a sizable Puerto Rican population.`\
+https://nytimes.com/2024/10/31/us/politics/harris-ad-trump-puerto-rico.html
+
 **Boeing Reaches New Deal With Union in Hopes of Ending Strike**\
 `The aerospace manufacturer’s largest union said it would put the contract to a vote on Monday by its 33,000 members, who rejected two earlier agreements.`\
 https://nytimes.com/2024/10/31/business/boeing-strike-union-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/headway/teen-2024-election-hopes-fears-answers.ht
 **Trump Had an ‘America First’ Foreign Policy. But It Was a Breakdown in American Policymaking.**\
 `A second Donald J. Trump presidency would almost certainly mark a return to an era of foreign policy decrees, untethered to any policy process, at a moment of maximum international peril.`\
 https://nytimes.com/2024/10/31/us/politics/trump-foreign-policy.html
-
-**White Women Could Decide the Election**\
-`Also, Russia is making swift advances in Ukraine. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/10/31/briefing/harris-trump-white-women-russia-ukraine-gains.html
 
