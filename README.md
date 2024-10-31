@@ -1,3 +1,7 @@
+**Millions of Movers Reveal American Polarization in Action**\
+`A detailed look at how — and why — voters who move are widening the gap between blue neighborhoods and red ones.`\
+https://nytimes.com/interactive/2024/10/30/upshot/voters-moving-polarization.html
+
 **North Korea, in the Spotlight Over Ukraine, Launches a Long-Range Missile**\
 `The launch, into waters west of Japan, came shortly after the United States and South Korea criticized the North for sending troops to join Russia’s war.`\
 https://nytimes.com/2024/10/30/world/asia/north-korea-missile-launch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/30/us/texas-teacher-certification-fraud-scheme.html
 **A Jury Is Set for the Trial of Daniel Penny, Accused in Subway Killing**\
 `Lawyers selected 12 Manhattanites and four alternates to hear a manslaughter case that divided the city. Opening statements will be Friday.`\
 https://nytimes.com/2024/10/30/nyregion/daniel-penny-jury-subway-choking.html
-
-**Gabriel Jesus goal can 'unlock' Arsenal forward - Arteta**\
-`Mikel Arteta believes that Gabriel Jesus ending his nine month goal drought can &#8220;unlock&#8221; the Brazilian in front of goal.`\
-https://nytimes.com/athletic/5886735/2024/10/30/gabriel-jesus-goal-arsenal-arteta/
 
