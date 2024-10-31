@@ -1,11 +1,3 @@
-**Iranian Officials Signal Response to Israeli Strikes, Threatening Retaliation**\
-`It was unclear how or when Iran plans to respond, and some officials said the rhetoric could be bluster. Iranian officials had downplayed the damage of Israel’s last attack.`\
-https://nytimes.com/2024/10/31/world/middleeast/iran-threatens-retaliation-israel-strikes.html
-
-**Review: A Vocally Splendid ‘Ragtime’ Raises the Roof**\
-`Joshua Henry stars in an exhilarating gala revival of the 1998 musical about nothing less than the harmony and discord of America.`\
-https://nytimes.com/2024/10/31/theater/ragtime-review-city-center.html
-
 **New York Court Suspends Lawyer Who Pushed Trump’s Fake Electors Scheme**\
 `The lawyer, Kenneth Chesebro, had previously pleaded guilty to a felony charge of conspiracy in a Georgia court.`\
 https://nytimes.com/2024/10/31/us/politics/trump-lawyer-chesebro-suspended-new-york.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/10/31/learning/whats-going-on-in-this-graph-nov-6-2024.
 **Campaign Ad for Nebraska Senator Uses Images From the Northeast**\
 `Her opponent, Dan Osborn, an independent, seized on the gaffe. A spokesman for the Fischer campaign blamed a “screw-up by a vendor.”`\
 https://nytimes.com/2024/10/31/us/politics/nebraska-senator-fischer-ad.html
+
+**Deer Hunter Is Killed in Apparent Bear Attack in Alaska, Authorities Say**\
+`Tad Fujioka, 50, was reported overdue from a deer hunting trip in the Sitka area of Alaska, near Juneau, the authorities said.`\
+https://nytimes.com/2024/10/31/us/bear-mauled-hunter-alaska.html
+
+**The ‘Garbage’ Insult Stung. But Puerto Ricans Are Focused on Their Own Election.**\
+`For Puerto Ricans living on the island, the most consequential race this year is for governor. Frequent power blackouts have become a top political issue.`\
+https://nytimes.com/2024/10/31/us/trump-garbage-puerto-rico-governor-election.html
 
