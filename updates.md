@@ -1,3 +1,7 @@
+**Friday Briefing: The Global Stakes of the U.S. Election**\
+`Plus, Japan's passion for the World Series.`\
+https://nytimes.com/2024/10/31/briefing/friday-briefing-the-global-stakes-of-the-us-election.html
+
 **PEN America Leader to Leave Embattled Organization**\
 `Suzanne Nossel, who has led the free expression group since 2013, is leaving after a year of intense criticism of its response to the war in Gaza.`\
 https://nytimes.com/2024/10/31/arts/pen-america-suzanne-nossel.html
