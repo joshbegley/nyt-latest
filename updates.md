@@ -1,3 +1,7 @@
+**Trump Is Offending Women. His Campaign Is Reaching Out to Young Men.**\
+`How Trump’s allies are honing their message to young men in the campaign’s final days.`\
+https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
+
 **Giants to name Zack Minasian new GM: Sources**\
 `Minasian, 41, joins his brother, Perry, as the first pair of siblings to be general managers in MLB at the same time.`\
 https://nytimes.com/athletic/5889591/2024/10/31/sf-giants-zack-minasian-general-manager/
