@@ -1,3 +1,11 @@
+**Manchester United agree deal to hire Ruben Amorim as head coach**\
+`Manchester United have reached an agreement with Sporting Lisbon over the hire of Ruben Amorim as head coach.`\
+https://nytimes.com/athletic/5887486/2024/10/31/manchester-united-ruben-amorim-agreed/
+
+**Raging Waters, Abandoned Cars, Layers of Mud: A Grim Scene After Spanish Floods**\
+`At least 95 people have died, and others are still missing, though how many remains unclear. Rescuers feared finding more bodies, the defense minister said.`\
+https://nytimes.com/2024/10/31/world/europe/spain-flooding-valencia-aftermath.html
+
 **Greatest player ever? After Shohei Ohtani's first World Series title, there's a 'legitimate argument'**\
 `Now that Ohtani has one world title on his resume, he's aiming for 'nine more,' the same number of years remaining on his Dodgers deal.`\
 https://nytimes.com/athletic/5887541/2024/10/31/shohei-ohtani-dodgers-world-series/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5887498/2024/10/31/dodgers-world-series-dave-robert
 **Vitezslav Jaros continues Liverpool tradition by earning plaudits in Carabao Cup win**\
 `Not for the first time, Liverpool youngsters provided the platform for their established stars to shine in the Carabao Cup...`\
 https://nytimes.com/athletic/5887236/2024/10/31/vitezslav-jaros-liverpool-brighton/
-
-**Chelsea second string failing their first real test will give Maresca food for thought**\
-`Having swept aside Barrow, Gent and Panathinaikos, Chelsea's squad players were humbled by Newcastle United`\
-https://nytimes.com/athletic/5886916/2024/10/31/chelsea-league-cup-newcastle/
-
-**Years After His Yankees Retirement, C. C. Sabathia Is Mr. October 31st.**\
-`The former pitcher and his family go all out for Halloween, turning their northern New Jersey home into a trick-or-treater’s paradise.`\
-https://nytimes.com/2024/10/31/nyregion/cc-sabathia-yankees-halloween-alpine.html
 
