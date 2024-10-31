@@ -1,3 +1,7 @@
+**Strike on Gaza Hospital Destroys U.N. Supplies, Palestinian Officials Say**\
+`Israeli troops had withdrawn from the facility, Kamal Adwan Hospital, after a raid that involved the arrests of most of the medical staff. The Israeli military said it was “unaware of a strike” there.`\
+https://nytimes.com/2024/10/31/world/middleeast/israel-gaza-hospital-strike.html
+
 **Can Garbine Muguruza find normality after years of WTA Finals chaos?**\
 `Muguruza and the WTA bring its most important asset to a heavily criticized country that has never held a major tennis event.`\
 https://nytimes.com/athletic/5873119/2024/10/31/muguruza-wta-tour-finals-tournament-director/
