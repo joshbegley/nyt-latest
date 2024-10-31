@@ -1,3 +1,7 @@
+**Trump Is Offending Women. His Campaign Is Reaching Out to Young Men.**\
+`How Trump’s allies are honing their message to young men in the campaign’s final days.`\
+https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
+
 **Giants to name Zack Minasian new GM: Sources**\
 `Minasian, 41, joins his brother, Perry, as the first pair of siblings to be general managers in MLB at the same time.`\
 https://nytimes.com/athletic/5889591/2024/10/31/sf-giants-zack-minasian-general-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/why-trump-new-mexico-virginia.html
 **As Election Nears, Foreign Leaders Fear ‘a Vacuum’ in American Leadership**\
 `President Biden hosted his final pre-election international visitor in the Oval Office, where the talk focused on the Middle East and Europe. But uncertainty in the United States hung over the meeting.`\
 https://nytimes.com/2024/10/31/us/politics/biden-cyprus-meeting.html
-
-**Cuomo Told a House Panel His Memory Was Hazy. Is That a Perjury Defense?**\
-`House Republicans referred the former New York governor for prosecution. His insistence on a faulty memory makes that outcome unlikely.`\
-https://nytimes.com/2024/10/31/nyregion/cuomo-lies-covid-justice.html
 
