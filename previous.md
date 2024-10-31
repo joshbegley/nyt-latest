@@ -1,3 +1,7 @@
+**Why the Canucks’ blowout loss to Devils revealed major concerns: 3 takeaways**\
+`The Canucks’ power play looked terrible in a 6-0 loss to the Devils.`\
+https://nytimes.com/athletic/5887079/2024/10/31/canucks-blowout-loss-devils-takeaways/
+
 **Mats Wieffer's performance against Liverpool was a glimpse of his true potential**\
 `The Dutch midfielder showed both his defensive and attacking qualities in Brighton's 3-2 defeat `\
 https://nytimes.com/athletic/5882072/2024/10/31/mats-wieffer-liverpool-performance-carabao-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882348/2024/10/31/premier-league-table-after-10-ga
 **Freddie Freeman named 2024 World Series MVP after record-breaking performance**\
 `Freeman recorded a .300 batting average and contributed a critical two-run single in Game 5 to lift the Dodgers to victory.`\
 https://nytimes.com/athletic/5887239/2024/10/31/yankees-dodgers-world-series-2024-freddie-freeman-mvp/
-
-**'When he scored his first goal, I cried' - Dani Olmo's 10-year odyssey back to Barca**\
-`It's been a long road back to Barca for Olmo since he left their youth academy in 2014. His former coaches tell the story of his rise`\
-https://nytimes.com/athletic/5762299/2024/10/31/dani-olmo-barcelona-return/
 

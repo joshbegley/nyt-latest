@@ -1,3 +1,7 @@
+**Why the Canucks’ blowout loss to Devils revealed major concerns: 3 takeaways**\
+`The Canucks’ power play looked terrible in a 6-0 loss to the Devils.`\
+https://nytimes.com/athletic/5887079/2024/10/31/canucks-blowout-loss-devils-takeaways/
+
 **Mats Wieffer's performance against Liverpool was a glimpse of his true potential**\
 `The Dutch midfielder showed both his defensive and attacking qualities in Brighton's 3-2 defeat `\
 https://nytimes.com/athletic/5882072/2024/10/31/mats-wieffer-liverpool-performance-carabao-cup/
