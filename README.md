@@ -1,3 +1,11 @@
+**NBA Lookahead: How worried should we be about Sixers, Grizzlies and other slow starters?**\
+`Plus, the best games of the weekend ahead.`\
+https://nytimes.com/athletic/5881864/2024/10/31/nba-lookahead-grizzlies-sixers-bucks/
+
+**The Other Trump Trade That Is Worrying Markets**\
+`Robert Lighthizer, who was a huge influence on Donald Trump’s protectionist trade policy, is again a candidate for a top role if the Republican wins next week.`\
+https://nytimes.com/2024/10/31/business/dealbook/lighthizer-trump-trade-markets.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/31/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5885645/2024/10/31/49ers-midseason-observations-bro
 **How many more ovations does LeBron James have left in Cleveland?**\
 `James and the Lakers made another trip "home" to Cleveland, where Bronny James scored his first NBA basket. `\
 https://nytimes.com/athletic/5887338/2024/10/31/lebron-james-cleveland-homecoming/
-
-**A new role for John Tavares should help spark Maple Leafs’ ailing power play**\
-`John Tavares is longer effective in his net-front role on PP1 but could be valuable on a new-look PP2. `\
-https://nytimes.com/athletic/5883868/2024/10/31/maple-leafs-john-tavares-power-play/
-
-**Walker Buehler symbolized team's grit: 'Now he's etched in Dodger glory forever'**\
-`When Buehler volunteered for relief duty, the Dodgers laughed it off. He wound up putting the final touches on a World Series victory.`\
-https://nytimes.com/athletic/5887628/2024/10/31/dodgers-yankees-world-series-walker-buehler-2/
 
