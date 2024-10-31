@@ -1,3 +1,11 @@
+**Trump’s Transition Team Head Says R.F.K. Jr. Converted Him to Vaccine Skeptic**\
+`Howard Lutnick told CNN that he believed Robert F. Kennedy Jr., who could have a position in a possible Trump administration, was right about debunked vaccine claims.`\
+https://nytimes.com/2024/10/31/us/politics/trump-rfk-jr-vaccine-skepticism.html
+
+**Search and Rescue Efforts Continue in Spain After Worst Flooding in Decades**\
+`The flooding left more than 150 dead, and an unknown number of people missing.`\
+https://nytimes.com/video/world/europe/100000009794651/search-and-rescue-efforts-continue-in-spain-after-worst-flooding-in-decades.html
+
 **A Texas Judge’s Fight to Keep a High Profile Case Out of His Court**\
 `A battle over a new rule to limit credit card late fees has spiraled into a larger skirmish about how much power litigants should have to maneuver their cases into friendly courtrooms.`\
 https://nytimes.com/2024/10/31/business/fifth-circuit-court-venue-shopping.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5888366/2024/10/31/mcneil-doucoure-everton-injury-n
 **After Turmoil, Royal Danish Ballet Taps Veteran Dancer as Leader**\
 `Amy Watson will helm the storied company as it grapples with the sudden departure of its previous artistic director and accusations of abuse at its school.`\
 https://nytimes.com/2024/10/31/arts/dance/royal-danish-ballet-nikolaj-hubbe-replacement.html
-
-**They’re Giving Scammers All Their Money. The Kids Can’t Stop Them.**\
-`One son couldn’t prevent his father from giving about $1 million in savings to con artists, including one posing as a female wrestling star. The two became estranged.`\
-https://nytimes.com/2024/10/31/business/scam-con-artist-family-savings.html
-
-**Fantasy football rankings Week 9: Sleepers, projections, starts, Patrick Mahomes, Josh Downs**\
-`Jake Ciely offers up his Week 9 fantasy football rankings, and likes Patrick Mahomes to finally have a big day versus a porous Bucs defense.`\
-https://nytimes.com/athletic/5883846/2024/10/31/fantasy-football-rankings-week-9-sleepers-projections-starts-patrick-mahomes-josh-downs/
 
