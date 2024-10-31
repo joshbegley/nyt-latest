@@ -1,3 +1,11 @@
+**Big 12: Games not compromised by helmet communication issues**\
+`The league reviewed conference games amid concerns over a vulnerability in the system.`\
+https://nytimes.com/athletic/5888779/2024/10/31/big-12-helmet-issues-review/
+
+**‘Culte’ Is a Fascinating Romp Through the Dawn of French Reality TV**\
+`A new docudrama recounts the conflicts and controversy surrounding “Loft Story,” a French twist on “Big Brother” that divided critics and generations.`\
+https://nytimes.com/2024/10/31/arts/television/culte-amazon-prime-video-loft-story.html
+
 **Unrivaled 3×3 league expanding to 36 players ahead of first season**\
 `There will still be six teams, with six players now participating on each.`\
 https://nytimes.com/athletic/5888767/2024/10/31/unrivaled-basketball-expanding-wnba/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/business/2024-uk-budget-summary.html
 **This ‘Friendly’ Wisconsin Town Might Be the Most Divided Place in America**\
 `Most Americans live in political bubbles, but not residents of this swing-state community, where President Biden won in 2020 by six votes.`\
 https://nytimes.com/2024/10/31/us/wisconsin-divided-voters.html
-
-**Germany Shuts 3 Iranian Consulates Over Execution of German-Iranian Man**\
-`The rare step of closing the consulates reflected German protests over the execution of Jamshid Sharmahd, an outspoken opponent of the Iranian regime.`\
-https://nytimes.com/2024/10/31/world/europe/germany-iran-consulates-sharmahd.html
-
-**‘Juror #2’ Review: Clint Eastwood Hands Down a Tough Verdict**\
-`In his latest (and perhaps last) movie as a director, Eastwood casts a skeptical eye at the criminal justice system in a mystery starring Nicholas Hoult.`\
-https://nytimes.com/2024/10/31/movies/juror-2-review-clint-eastwood.html
 
