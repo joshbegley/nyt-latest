@@ -1,6 +1,14 @@
-**How Britain’s Budget Makes a Big Bet on Spending for Growth**\
+**Why Dane Brugler thinks Cam Ward is current favorite to be first QB selected in 2025 draft**\
+`Ward has Miami undefeated and on track for both an ACC championship and a playoff berth.`\
+https://nytimes.com/athletic/5888410/2024/10/31/nfl-draft-cam-ward-qbs-dane-brugler/
+
+**Arkansas to charge 3 percent fee on all concessions to offset upcoming costs**\
+`The fee will help offset the costs of additional scholarships required by the upcoming settlement, expected to be finalized in April.`\
+https://nytimes.com/athletic/5888715/2024/10/31/arkansas-concessions-price-increase-revenue/
+
+**How the U.K.’s Budget Makes a Big Bet on Spending for Growth**\
 `The Labour Party is betting that extra spending on public services and more investment will eventually revitalize the country’s stagnant economy.`\
-https://nytimes.com/2024/10/31/business/britain-budget-what-to-know.html
+https://nytimes.com/2024/10/31/business/2024-uk-budget-summary.html
 
 **This ‘Friendly’ Wisconsin Town Might Be the Most Divided Place in America**\
 `Most Americans live in political bubbles, but not residents of this swing-state community, where President Biden won in 2020 by six votes.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5888504/2024/10/31/world-series-red-sox-yankees-dod
 **NFL Week 9 fantasy football, betting cheat sheet: No Stefon Diggs in TNF contest**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more.`\
 https://nytimes.com/athletic/5882444/2024/10/31/nfl-week-9-fantasy-football-injuries-rankings-betting/
-
-**Delicious Costumes for Your Vegetables**\
-`Dress up your cabbage as chicken Parm, or your tofu as zippy lemon-pepper wings.`\
-https://nytimes.com/2024/10/31/dining/lemon-pepper-tofu-vegetarian-recipes.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/10/31/books/review/new-books-recommendations.html
 

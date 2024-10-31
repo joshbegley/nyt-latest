@@ -1,3 +1,15 @@
+**Why Dane Brugler thinks Cam Ward is current favorite to be first QB selected in 2025 draft**\
+`Ward has Miami undefeated and on track for both an ACC championship and a playoff berth.`\
+https://nytimes.com/athletic/5888410/2024/10/31/nfl-draft-cam-ward-qbs-dane-brugler/
+
+**Arkansas to charge 3 percent fee on all concessions to offset upcoming costs**\
+`The fee will help offset the costs of additional scholarships required by the upcoming settlement, expected to be finalized in April.`\
+https://nytimes.com/athletic/5888715/2024/10/31/arkansas-concessions-price-increase-revenue/
+
+**How the U.K.’s Budget Makes a Big Bet on Spending for Growth**\
+`The Labour Party is betting that extra spending on public services and more investment will eventually revitalize the country’s stagnant economy.`\
+https://nytimes.com/2024/10/31/business/2024-uk-budget-summary.html
+
 **How Britain’s Budget Makes a Big Bet on Spending for Growth**\
 `The Labour Party is betting that extra spending on public services and more investment will eventually revitalize the country’s stagnant economy.`\
 https://nytimes.com/2024/10/31/business/britain-budget-what-to-know.html
