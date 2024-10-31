@@ -1,3 +1,7 @@
+**Isabelle de Borchgrave Dies at 79; Traced Sartorial History With Paper**\
+`An artist and designer, she transformed simple craft paper into elaborate trompe l’oeil confections, creating stunning life-size reproductions of period garments.`\
+https://nytimes.com/2024/10/31/style/isabelle-de-borchgrave-dead.html
+
 **Rare Autumn Drought in Northeast Brings a Spate of Wildfires**\
 `Hundreds of fires are burning in New Jersey and Connecticut as the region experiences a spell of unusually warm fall weather.`\
 https://nytimes.com/2024/10/31/nyregion/new-jersey-connecticut-wildfires-drought.html
