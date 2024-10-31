@@ -1,3 +1,11 @@
+**White Women Could Decide the Election**\
+`Also, Russia is making swift advances in Ukraine. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/10/31/briefing/harris-trump-white-women-russia-ukraine-gains.html
+
+**‘I’m Not Supposed to Say This,’ Trump Says. But Then He Does.**\
+`Former President Donald J. Trump’s rehearsed defiance make his supporters feel as though there’s nothing he won’t share.`\
+https://nytimes.com/2024/10/31/us/elections/trump-blaming-staff.html
+
 **Has Your Stance on Immigration Changed? Tell Us.**\
 `The New York Times is writing about voters’ attitudes on immigration and how they changed since the last election cycle.`\
 https://nytimes.com/2024/10/31/us/immigration-voters-election.html
