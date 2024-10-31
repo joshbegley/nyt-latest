@@ -1,3 +1,15 @@
+**Review: After 30 Years, a Controversial Dance Is Just a Dance**\
+`At the Brooklyn Academy of Music, Bill T. Jones’s “Still/Here” returns, free of the AIDS-era context in which it premiered.`\
+https://nytimes.com/2024/10/31/arts/dance/bill-t-jones-still-here-review.html
+
+**Van Nistelrooy keen to remain at Man Utd**\
+`Ruud Van Nistelrooy says he wants to return to being assistant manager at Manchester United once Ruben Amorim is appointed.`\
+https://nytimes.com/athletic/5888443/2024/10/31/van-nistelrooy-manchester-united-future/
+
+**How the West Fell for Psychedelics**\
+`A new exhibition series rejects the question of whether or not we should be doing drugs, and instead tries to understand why, and how, we always have.`\
+https://nytimes.com/2024/10/31/arts/design/why-do-we-take-drugs.html
+
 **U.S. Turns to China to Stop North Korean Troops From Fighting for Russia**\
 `American agencies have assessed that China dislikes the growing partnership between Russia and North Korea. The State Department has raised the troop issue with Chinese diplomats.`\
 https://nytimes.com/2024/10/31/us/politics/russia-north-korea-troops-china.html

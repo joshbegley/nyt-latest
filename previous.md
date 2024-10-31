@@ -1,3 +1,15 @@
+**Review: After 30 Years, a Controversial Dance Is Just a Dance**\
+`At the Brooklyn Academy of Music, Bill T. Jones’s “Still/Here” returns, free of the AIDS-era context in which it premiered.`\
+https://nytimes.com/2024/10/31/arts/dance/bill-t-jones-still-here-review.html
+
+**Van Nistelrooy keen to remain at Man Utd**\
+`Ruud Van Nistelrooy says he wants to return to being assistant manager at Manchester United once Ruben Amorim is appointed.`\
+https://nytimes.com/athletic/5888443/2024/10/31/van-nistelrooy-manchester-united-future/
+
+**How the West Fell for Psychedelics**\
+`A new exhibition series rejects the question of whether or not we should be doing drugs, and instead tries to understand why, and how, we always have.`\
+https://nytimes.com/2024/10/31/arts/design/why-do-we-take-drugs.html
+
 **U.S. Turns to China to Stop North Korean Troops From Fighting for Russia**\
 `American agencies have assessed that China dislikes the growing partnership between Russia and North Korea. The State Department has raised the troop issue with Chinese diplomats.`\
 https://nytimes.com/2024/10/31/us/politics/russia-north-korea-troops-china.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/31/movies/the-graduates-review.html
 **No, the number of votes cast does not exceed the number of voters.**\
 `The number of votes cast in presidential elections has always been less than the number of eligible voters.`\
 https://nytimes.com/2024/10/31/business/votes-cast-voter-numbers-election-fact-check.html
-
-**Harris Aims to Put Trump Back on Defense After a Garbage News Cycle**\
-`Seizing on comments by Donald Trump about women, the vice president tried to move on from a gaffe by President Biden and throw the focus of a race divided along gender lines back onto her rival.`\
-https://nytimes.com/2024/10/31/us/politics/harris-trump-women-arizona-las-vegas-nevada.html
-
-**Why a Governor Is Stepping Down, and Running for Mayor**\
-`John Carney of Delaware is set to become the first sitting governor to be elected a mayor. In some ways, he says, “it’s a step up.”`\
-https://nytimes.com/2024/10/31/us/john-carney-delaware-governor-mayor.html
-
-**Another Beloved Book, Another Disappointing Ballet**\
-`American Ballet Theater unveils “Crime and Punishment,” an ambitious, but listless new production by Helen Pickett and James Bonas.`\
-https://nytimes.com/2024/10/31/arts/dance/american-ballet-theater-crime-and-punishment.html
 
