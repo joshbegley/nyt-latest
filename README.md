@@ -1,3 +1,7 @@
+**NFL Week 9 fantasy football, betting cheat sheet: No Stefon Diggs in TNF contest**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5882444/2024/10/31/nfl-week-9-fantasy-football-injuries-rankings-betting/
+
 **Delicious Costumes for Your Vegetables**\
 `Dress up your cabbage as chicken Parm, or your tofu as zippy lemon-pepper wings.`\
 https://nytimes.com/2024/10/31/dining/lemon-pepper-tofu-vegetarian-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/upshot/tampa-bay-buccaneers-nfl-playoff-pic
 **How the Seattle Seahawks Can Make the Playoffs: Through Week 8**\
 `The Seahawks now have only a 16% chance to make the playoffs.`\
 https://nytimes.com/interactive/2024/upshot/seattle-seahawks-nfl-playoff-picture.html
-
-**How the Pittsburgh Steelers Can Make the Playoffs: Through Week 8**\
-`The Steelers now have an 82% chance to make the playoffs.`\
-https://nytimes.com/interactive/2024/upshot/pittsburgh-steelers-nfl-playoff-picture.html
 
