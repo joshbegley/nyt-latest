@@ -1,3 +1,11 @@
+**Arsenal Today: Nwaneri's Deepdale display and a quarter-final with Palace**\
+`Art de Roche talks you through what is interesting our team of Arsenal reporters today`\
+https://nytimes.com/athletic/5886417/2024/10/31/arsenal-today-october-31/
+
+**Word of the Day: envisage**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/31/learning/word-of-the-day-envisage.html
+
 **Why the Canucks’ blowout loss to Devils revealed major concerns: 3 takeaways**\
 `The Canucks’ power play looked terrible in a 6-0 loss to the Devils.`\
 https://nytimes.com/athletic/5887079/2024/10/31/canucks-blowout-loss-devils-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/briefing/correspondents-election-britain-budget.h
 **Mead and Musovic at the first all-female A Licence course: 'I’m looking at the game differently'**\
 `Behind the scenes at UEFA's first all-female coaching course at A-licence level and how it's changing particiapting players' perspectives`\
 https://nytimes.com/athletic/5863319/2024/10/31/uefa-first-allfemale-a-licence-course-mead-musovic/
-
-**Why the Premier League table after 10 games is a reliable guide to how the season will end**\
-`Are 14th-placed Manchester United destined for a bottom-half finish this season? History would suggest they are...`\
-https://nytimes.com/athletic/5882348/2024/10/31/premier-league-table-after-10-games-reliable/
-
-**Freddie Freeman named 2024 World Series MVP after record-breaking performance**\
-`Freeman recorded a .300 batting average and contributed a critical two-run single in Game 5 to lift the Dodgers to victory.`\
-https://nytimes.com/athletic/5887239/2024/10/31/yankees-dodgers-world-series-2024-freddie-freeman-mvp/
 

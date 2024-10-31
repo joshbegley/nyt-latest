@@ -1,3 +1,11 @@
+**Arsenal Today: Nwaneri's Deepdale display and a quarter-final with Palace**\
+`Art de Roche talks you through what is interesting our team of Arsenal reporters today`\
+https://nytimes.com/athletic/5886417/2024/10/31/arsenal-today-october-31/
+
+**Word of the Day: envisage**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/31/learning/word-of-the-day-envisage.html
+
 **Why the Canucks’ blowout loss to Devils revealed major concerns: 3 takeaways**\
 `The Canucks’ power play looked terrible in a 6-0 loss to the Devils.`\
 https://nytimes.com/athletic/5887079/2024/10/31/canucks-blowout-loss-devils-takeaways/
