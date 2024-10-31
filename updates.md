@@ -1,3 +1,7 @@
+**The 2024 Stakes for Judges**\
+`How the election could change the courts.`\
+https://nytimes.com/2024/10/31/briefing/the-2024-stakes-for-judges.html
+
 **Enjoy the Penguins nostalgia tour because this season is on thin ice**\
 `Savor the special moments this season because focusing on the Penguins' record might become an insufferable chore.`\
 https://nytimes.com/athletic/5885531/2024/10/31/penguins-standings-records/
