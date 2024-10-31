@@ -1,3 +1,15 @@
+**Can Sabres' lineup changes help Dylan Cozens, Jack Quinn get back on track?**\
+`The two 23-year-old forwards were supposed to be among the Sabres' top offensive threats this season`\
+https://nytimes.com/athletic/5888900/2024/10/31/sabres-lineup-dylan-cozens-jack-quinn/
+
+**The 'Big Noon Kickoff' debate: Is Penn State-Ohio State too early?**\
+`Mike Mulvihill, Fox’s president of insights and analytics, knows he might be the most hated man in Happy Valley this week.`\
+https://nytimes.com/athletic/5884182/2024/10/31/penn-state-ohio-state-big-noon-kickoff/
+
+**Max Verstappen brushes off criticism after penalties: ‘I just do my thing’**\
+`“I don't listen to those individuals. I just do my thing. I'm a three-time world champion. I think I know what I'm doing," Verstappen said.`\
+https://nytimes.com/athletic/5888936/2024/10/31/max-verstappen-penalties-lando-morris-mexico-city-gp/
+
 **What’s That in Your Mouth, Bro?**\
 `Zyn nicotine pouches have become a new symbol of American masculinity — and a surprising political lightning rod.`\
 https://nytimes.com/2024/10/31/style/zyn-nicotine-pouch-masculinity.html
