@@ -1,3 +1,7 @@
+**‘Blitz’ Review: Love in the Ruins**\
+`Steve McQueen’s World War II drama may appear conventional on the surface, but don’t miss what it’s really doing.`\
+https://nytimes.com/2024/10/31/movies/blitz-review.html
+
 **Election 2024 Polls: Senate Races**\
 `See the latest election polls and polling averages for .`\
 https://nytimes.com/interactive/2024/us/elections/polls-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-senate-nevada.html
 **Election 2024 Polls: Montana Senate**\
 `See the latest election polls and polling averages for Montana.`\
 https://nytimes.com/interactive/2024/us/elections/polls-senate-montana.html
-
-**Election 2024 Polls: Missouri Senate**\
-`See the latest election polls and polling averages for Missouri.`\
-https://nytimes.com/interactive/2024/us/elections/polls-senate-missouri.html
 
