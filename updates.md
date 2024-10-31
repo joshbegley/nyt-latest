@@ -1,3 +1,11 @@
+**Cardinals decline 2025 options on Kyle Gibson, Lance Lynn in first decisions of offseason**\
+`The moves indicate that 2025 will be a transition season for the Cardinals, who are looking to get younger.`\
+https://nytimes.com/athletic/5888790/2024/10/31/cardinals-decline-2025-options-kyle-gibson-lance-lynn/
+
+**New York Pizzas to Add to Your Must-Eat List**\
+`The old-school pizzerias at the top of their game.`\
+https://nytimes.com/2024/10/31/dining/new-york-pizzas-to-add-to-your-must-eat-list.html
+
 **Internal Emails Show Harvard Leaders Debating Response to Hamas Attack**\
 `Messages among leaders at Harvard and other universities, published by House Republicans, reveal discussions on how to balance public statements about the war and how to negotiate with protesters.`\
 https://nytimes.com/2024/10/31/us/harvard-oct-7-emails-israel-hamas-attack.html

@@ -1,3 +1,11 @@
+**Cardinals decline 2025 options on Kyle Gibson, Lance Lynn in first decisions of offseason**\
+`The moves indicate that 2025 will be a transition season for the Cardinals, who are looking to get younger.`\
+https://nytimes.com/athletic/5888790/2024/10/31/cardinals-decline-2025-options-kyle-gibson-lance-lynn/
+
+**New York Pizzas to Add to Your Must-Eat List**\
+`The old-school pizzerias at the top of their game.`\
+https://nytimes.com/2024/10/31/dining/new-york-pizzas-to-add-to-your-must-eat-list.html
+
 **Internal Emails Show Harvard Leaders Debating Response to Hamas Attack**\
 `Messages among leaders at Harvard and other universities, published by House Republicans, reveal discussions on how to balance public statements about the war and how to negotiate with protesters.`\
 https://nytimes.com/2024/10/31/us/harvard-oct-7-emails-israel-hamas-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
 **Surprise Hit of the Campaign TV Ad Season: Giving Voters Permission to Go Rogue**\
 `Both parties are running ads that tell voters it’s OK to break from their party. “You can vote any way you want. And no one will ever know,” one says.`\
 https://nytimes.com/2024/10/31/us/politics/trump-harris-campaign-ads.html
-
-**What’s Red and Green and Served All Over?**\
-`Since the Mexico City restaurant Contramar turned a classic fish dish into a go-to entree, versions have popped up from Milwaukee to Greece.`\
-https://nytimes.com/2024/10/31/dining/mexico-city-contramar-fish-dish.html
-
-**Review: A Vocally Splendid ‘Ragtime’ Raises the Roof**\
-`Joshua Henry stars in an exhilarating gala revival of the 1998 musical about nothing less than the harmony and discord of America.`\
-https://nytimes.com/2024/10/31/theater/ragtime-review-city-center.html
 
