@@ -1,3 +1,15 @@
+**One Frame, Thousands of Snails**\
+`This image, from the animated feature about a woman who hoards snail-related items, includes hundreds of handcrafted artifacts.`\
+https://nytimes.com/interactive/2024/10/31/movies/memoir-of-a-snail-adam-elliot.html
+
+**Can Stories About Abortion Break Through the Noise?**\
+`The reproductive rights activist Cecile Richards started a media project that merges activism and journalism on Instagram and TikTok, just days ahead of the presidential election.`\
+https://nytimes.com/2024/10/31/business/media/cecile-richards-abortion-social-media.html
+
+**Twins' Alex Kirilloff retires at age 26**\
+`Citing the toll of many injuries sustained over his career, the former top prospect announced his retirement days before his 27th birthday.`\
+https://nytimes.com/athletic/5888349/2024/10/31/alex-kirilloff-retires-minnesota-twins/
+
 **Why a Memphis Community Is Fighting Elon Musk’s Supercomputer**\
 `Residents say Mr. Musk’s data center for artificial intelligence is compounding their pollution burden and adding stress on the local electrical grid.`\
 https://nytimes.com/2024/10/31/business/energy-environment/elon-musk-ai-memphis-pollution.html

@@ -1,3 +1,15 @@
+**One Frame, Thousands of Snails**\
+`This image, from the animated feature about a woman who hoards snail-related items, includes hundreds of handcrafted artifacts.`\
+https://nytimes.com/interactive/2024/10/31/movies/memoir-of-a-snail-adam-elliot.html
+
+**Can Stories About Abortion Break Through the Noise?**\
+`The reproductive rights activist Cecile Richards started a media project that merges activism and journalism on Instagram and TikTok, just days ahead of the presidential election.`\
+https://nytimes.com/2024/10/31/business/media/cecile-richards-abortion-social-media.html
+
+**Twins' Alex Kirilloff retires at age 26**\
+`Citing the toll of many injuries sustained over his career, the former top prospect announced his retirement days before his 27th birthday.`\
+https://nytimes.com/athletic/5888349/2024/10/31/alex-kirilloff-retires-minnesota-twins/
+
 **Why a Memphis Community Is Fighting Elon Musk’s Supercomputer**\
 `Residents say Mr. Musk’s data center for artificial intelligence is compounding their pollution burden and adding stress on the local electrical grid.`\
 https://nytimes.com/2024/10/31/business/energy-environment/elon-musk-ai-memphis-pollution.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/31/opinion/undecided-voters-2024-election.html
 **How a Tiny Panel, Up for Election, Could Steer Arizona Away From Clean Power**\
 `The vote, in a sunny state with huge solar potential, reflects a growing nationwide fight over America’s energy transition.`\
 https://nytimes.com/2024/10/31/climate/arizona-utility-clean-energy-election.html
-
-**The Windup: The wildest World Series clincher ever**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5888346/2024/10/31/dodgers-yankees-world-series-freddie-freeman-the-windup/
-
-**Ace Flagg, twin brother of Duke's Cooper Flagg, commits to Maine**\
-`The No. 7 Blue Devils begin their 2024-25 season hosting unranked Maine on Nov. 4.`\
-https://nytimes.com/athletic/5888164/2024/10/31/ace-cooper-flagg-maine/
-
-**Nottingham Forest's Gibbs-White, Jota & Anderson to be assessed before West Ham**\
-`Nottingham Forest will assess Morgan Gibbs-White, Jota and Elliot Anderson tomorrow (Friday), before deciding whether they are fit to face West Ham United at the City Ground on Saturday.`\
-https://nytimes.com/athletic/5888304/2024/10/31/gibbs-white-jota-anderson-injury-update/
 
