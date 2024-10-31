@@ -1,3 +1,7 @@
+**Has Your Stance on Immigration Changed? Tell Us.**\
+`The New York Times is writing about voters’ attitudes on immigration and how they changed since the last election cycle.`\
+https://nytimes.com/2024/10/31/us/immigration-voters-election.html
+
 **Pennsylvania Voters Worry About the Toxicity of Politics**\
 `In Berks County, complex feelings about race and immigration threaten the social fabric of a place where people are used to finding common ground.`\
 https://nytimes.com/interactive/2024/10/31/us/elections/pennsylvania-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/technology/intel-earnings-loss.html
 **Man Repeatedly Punched Sleeping Passenger on Flight, Authorities Say**\
 `A man assaulted another passenger on a United Airlines flight on Monday in an attack that appeared to have been random, officials said.`\
 https://nytimes.com/2024/10/31/us/united-airlines-passenger-attack.html
-
-**College football Week 10 model-predicted point differentials and totals for every game**\
-`There are several close games in college football's Week 10. Austin Mock's model has projected point differentials for every game.`\
-https://nytimes.com/athletic/5889218/2024/10/31/college-football-week-10-model-projections/
 

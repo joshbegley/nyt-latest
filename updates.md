@@ -1,3 +1,7 @@
+**Has Your Stance on Immigration Changed? Tell Us.**\
+`The New York Times is writing about voters’ attitudes on immigration and how they changed since the last election cycle.`\
+https://nytimes.com/2024/10/31/us/immigration-voters-election.html
+
 **Pennsylvania Voters Worry About the Toxicity of Politics**\
 `In Berks County, complex feelings about race and immigration threaten the social fabric of a place where people are used to finding common ground.`\
 https://nytimes.com/interactive/2024/10/31/us/elections/pennsylvania-voters.html
