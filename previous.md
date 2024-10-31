@@ -1,3 +1,11 @@
+**Can Garbine Muguruza find normality after years of WTA Finals chaos?**\
+`Muguruza and the WTA bring its most important asset to a heavily criticized country that has never held a major tennis event.`\
+https://nytimes.com/athletic/5873119/2024/10/31/muguruza-wta-tour-finals-tournament-director/
+
+**Giants trade chips thrive at right time: Did Darius Slayton, Azeez Ojulari boost their value?**\
+`As the Giants start to focus on their future, trading veterans and securing more draft capital could be the path they choose to travel. `\
+https://nytimes.com/athletic/5886448/2024/10/31/giants-darius-slayton-azeez-ojulari-nfl-trade-deadline/
+
 **NBA Lookahead: How worried should we be about Sixers, Grizzlies and other slow starters?**\
 `Plus, the best games of the weekend ahead.`\
 https://nytimes.com/athletic/5881864/2024/10/31/nba-lookahead-grizzlies-sixers-bucks/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/michigan-election-denial-activists-se
 **Five trades that make sense for the Chargers ahead of the NFL trade deadline**\
 `The Chargers could use a boost at cornerback or receiver. Tre'Davious White and Mike Williams are among the options.`\
 https://nytimes.com/athletic/5886792/2024/10/31/los-angeles-chargers-trade-deadline/
-
-**What I'm seeing from the 49ers: Brock Purdy adjusting to facing stick coverage**\
-`One of the most effective rushers on the team: Purdy, who's already picked up more first downs than he had last season.`\
-https://nytimes.com/athletic/5885645/2024/10/31/49ers-midseason-observations-brock-purdy/
-
-**How many more ovations does LeBron James have left in Cleveland?**\
-`James and the Lakers made another trip "home" to Cleveland, where Bronny James scored his first NBA basket. `\
-https://nytimes.com/athletic/5887338/2024/10/31/lebron-james-cleveland-homecoming/
 

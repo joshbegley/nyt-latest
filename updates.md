@@ -1,3 +1,11 @@
+**Can Garbine Muguruza find normality after years of WTA Finals chaos?**\
+`Muguruza and the WTA bring its most important asset to a heavily criticized country that has never held a major tennis event.`\
+https://nytimes.com/athletic/5873119/2024/10/31/muguruza-wta-tour-finals-tournament-director/
+
+**Giants trade chips thrive at right time: Did Darius Slayton, Azeez Ojulari boost their value?**\
+`As the Giants start to focus on their future, trading veterans and securing more draft capital could be the path they choose to travel. `\
+https://nytimes.com/athletic/5886448/2024/10/31/giants-darius-slayton-azeez-ojulari-nfl-trade-deadline/
+
 **Browns ahead of the trade deadline: Could Za'Darius Smith soon be moved?**\
 `Plus, would the team even consider dealing foundational players such as Nick Chubb and Myles Garrett? `\
 https://nytimes.com/athletic/5886310/2024/10/31/browns-trade-deadline-zadarius-smith/
