@@ -1,3 +1,7 @@
+**Ethan Nwaneri: If not now, then when?**\
+`Technically, physically and mentality the 17 year old looks ready for a more prominent role and a more difficult challenge than Preston`\
+https://nytimes.com/athletic/5885432/2024/10/31/ethan-nwaneri-arsenal/
+
 **Jayson Tatum, Jaylen Brown point finger at themselves after Celtics' first loss this season**\
 `Though either of them could have regretted big misses in OT, they seemed more upset about failing to play with their normal edge early.`\
 https://nytimes.com/athletic/5887398/2024/10/31/jayson-tatum-jaylen-brown-celtics-first-loss/
