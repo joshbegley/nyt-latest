@@ -1,3 +1,7 @@
+**Can Wisconsin win as a program even after a loss to Penn State?**\
+`“You only get seven of these opportunities to be at your home,” Luke Fickell said earlier this season. “There’s nothing better here."`\
+https://nytimes.com/athletic/5885681/2024/10/31/wisconsin-recruiting-game-day-environment/
+
 **Weighing in on Spurs-Rockets rivalry: Wemby's ramp-up, CP3's future, Jalen Green and more**\
 `Kelly Iko and John Hollinger discuss how the Spurs and Rockets have started the season and what the season might hold.`\
 https://nytimes.com/athletic/5883733/2024/10/31/spurs-rockets-chris-paul-jalen-green/
