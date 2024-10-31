@@ -1,6 +1,10 @@
+**'I take full responsibility': How Kevin Fiala responded after being scratched by the Kings**\
+`Fiala had two points in a Kings win over the Golden Knights a day after he was scratched for "violating team protocol."`\
+https://nytimes.com/athletic/5887601/2024/10/31/kevin-fiala-la-kings-scratch-golden-knights/
+
 **Musk Seeks Switch to Federal Court for Suit Against His Online Petition**\
 `The Philadelphia district attorney sued in state court to block Elon Musk’s petition drive, saying it amounted to illegally paying people to register as voters. A hearing was scheduled for Thursday.`\
-https://nytimes.com/2024/10/31/us/elections/elon-musk-trump-petition-lottery-suit.html
+https://nytimes.com/2024/10/31/us/elections/elon-musk-giveaway-suit-federal-court-trump.html
 
 **Rosenthal: Dodgers show their mettle in memorable World Series comeback**\
 `Game 5 was the season in summation, the reflection of the Dodgers’ metamorphosis into street fighters and World Series champions.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/31/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Trump and Harris Chase Each Other Across Battlegrounds**\
 `With five days to go until Election Day, Donald J. Trump and Kamala Harris are heading westward to cities in Arizona and Nevada.`\
 https://nytimes.com/live/2024/10/31/us/harris-trump-election
-
-**Casemiro ushers in (another) new beginning at Manchester United**\
-`Casemiro is not the future of this football club but he is very much still part of its present`\
-https://nytimes.com/athletic/5887032/2024/10/31/manchester-united-casemiro-new-beginning/
 

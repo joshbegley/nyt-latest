@@ -1,3 +1,11 @@
+**'I take full responsibility': How Kevin Fiala responded after being scratched by the Kings**\
+`Fiala had two points in a Kings win over the Golden Knights a day after he was scratched for "violating team protocol."`\
+https://nytimes.com/athletic/5887601/2024/10/31/kevin-fiala-la-kings-scratch-golden-knights/
+
+**Musk Seeks Switch to Federal Court for Suit Against His Online Petition**\
+`The Philadelphia district attorney sued in state court to block Elon Musk’s petition drive, saying it amounted to illegally paying people to register as voters. A hearing was scheduled for Thursday.`\
+https://nytimes.com/2024/10/31/us/elections/elon-musk-giveaway-suit-federal-court-trump.html
+
 **Musk Seeks Switch to Federal Court for Suit Against His Online Petition**\
 `The Philadelphia district attorney sued in state court to block Elon Musk’s petition drive, saying it amounted to illegally paying people to register as voters. A hearing was scheduled for Thursday.`\
 https://nytimes.com/2024/10/31/us/elections/elon-musk-trump-petition-lottery-suit.html
