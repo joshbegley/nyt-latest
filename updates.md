@@ -1,3 +1,19 @@
+**Fantasy Premier League: How to build a cheap defence so you can buy big up top**\
+`The budget players to look at for defensive picks - and the gains made by adjusting the budget in this position...`\
+https://nytimes.com/athletic/5879586/2024/10/31/fantasy-premier-league-how-to-build-a-cheap-defence-so-you-can-buy-big-up-top/
+
+**How Nuno's extensive use of subs is driving Forest's impressive start**\
+`No team has used more substitutes in the Premier League than Forest so far this season - and it is paying off`\
+https://nytimes.com/athletic/5885030/2024/10/31/nottingham-forest-substitutes/
+
+**Thursday Briefing**\
+`How the next U.S. administration may shape the world.`\
+https://nytimes.com/2024/10/31/briefing/correspondents-election-britain-budget.html
+
+**Mead and Musovic at the first all-female A Licence course: 'I’m looking at the game differently'**\
+`Behind the scenes at UEFA's first all-female coaching course at A-licence level and how it's changing particiapting players' perspectives`\
+https://nytimes.com/athletic/5863319/2024/10/31/uefa-first-allfemale-a-licence-course-mead-musovic/
+
 **Why the Premier League table after 10 games is a reliable guide to how the season will end**\
 `Are 14th-placed Manchester United destined for a bottom-half finish this season? History would suggest they are...`\
 https://nytimes.com/athletic/5882348/2024/10/31/premier-league-table-after-10-games-reliable/
