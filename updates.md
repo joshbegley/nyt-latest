@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: Giannis' new runway and Brook Lopez's rim protection**\
+`One trend to watch: How Milwaukee fights the possession battle and what's required for the team to be successful.`\
+https://nytimes.com/athletic/5876521/2024/10/31/bucks-giannis-antetokounmpo-brook-lopez-rim-protection/
+
 **Election 2024 Polls: Missouri Senate**\
 `See the latest election polls and polling averages for Missouri.`\
 https://nytimes.com/interactive/2024/us/elections/polls-senate-missouri.html
