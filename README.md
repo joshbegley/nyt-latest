@@ -1,3 +1,7 @@
+**Isabelle de Borchgrave Dies at 79; Traced Sartorial History With Paper**\
+`An artist and designer, she transformed simple craft paper into elaborate trompe l’oeil confections, creating stunning life-size reproductions of period garments.`\
+https://nytimes.com/2024/10/31/style/isabelle-de-borchgrave-dead.html
+
 **Rare Autumn Drought in Northeast Brings a Spate of Wildfires**\
 `Hundreds of fires are burning in New Jersey and Connecticut as the region experiences a spell of unusually warm fall weather.`\
 https://nytimes.com/2024/10/31/nyregion/new-jersey-connecticut-wildfires-drought.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888900/2024/10/31/sabres-lineup-dylan-cozens-jack-
 **The 'Big Noon Kickoff' debate: Is Penn State-Ohio State too early?**\
 `Mike Mulvihill, Fox’s president of insights and analytics, knows he might be the most hated man in Happy Valley this week.`\
 https://nytimes.com/athletic/5884182/2024/10/31/penn-state-ohio-state-big-noon-kickoff/
-
-**Max Verstappen brushes off criticism after penalties: ‘I just do my thing’**\
-`“I don't listen to those individuals. I just do my thing. I'm a three-time world champion. I think I know what I'm doing," Verstappen said.`\
-https://nytimes.com/athletic/5888936/2024/10/31/max-verstappen-penalties-lando-morris-mexico-city-gp/
 
