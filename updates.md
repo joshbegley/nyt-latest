@@ -1,3 +1,11 @@
+**Big 12: Games not compromised by helmet communication issues**\
+`The league reviewed conference games amid concerns over a vulnerability in the system.`\
+https://nytimes.com/athletic/5888779/2024/10/31/big-12-helmet-issues-review/
+
+**‘Culte’ Is a Fascinating Romp Through the Dawn of French Reality TV**\
+`A new docudrama recounts the conflicts and controversy surrounding “Loft Story,” a French twist on “Big Brother” that divided critics and generations.`\
+https://nytimes.com/2024/10/31/arts/television/culte-amazon-prime-video-loft-story.html
+
 **Unrivaled 3×3 league expanding to 36 players ahead of first season**\
 `There will still be six teams, with six players now participating on each.`\
 https://nytimes.com/athletic/5888767/2024/10/31/unrivaled-basketball-expanding-wnba/
