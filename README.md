@@ -1,11 +1,3 @@
-**How Britain’s Budget Makes a Big Bet on Spending for Growth**\
-`The Labour Party is betting that extra spending on public services and more investment will eventually revitalize the country’s stagnant economy.`\
-https://nytimes.com/2024/10/31/business/britain-budget-what-to-know.html
-
-**This ‘Friendly’ Wisconsin Town Might Be the Most Divided Place in America**\
-`Most Americans live in political bubbles, but not residents of this swing state community, where President Biden won in 2020 by six votes.`\
-https://nytimes.com/2024/10/31/us/wisconsin-divided-voters.html
-
 **Germany Shuts 3 Iranian Consulates Over Execution of German-Iranian Man**\
 `The rare step of closing the consulates reflected German protests over the execution of Jamshid Sharmahd, an outspoken opponent of the Iranian regime.`\
 https://nytimes.com/2024/10/31/world/europe/germany-iran-consulates-sharmahd.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/10/31/dining/lemon-pepper-tofu-vegetarian-recipes.html
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/10/31/books/review/new-books-recommendations.html
+
+**OpenAI Folds A.I.-Powered Search Engine Into ChatGPT**\
+`The popular online chatbot can now access and deliver information from across the internet in real time, including news, stock prices and sports scores.`\
+https://nytimes.com/2024/10/31/technology/chatgpt-openai-search-engine.html
+
+**How Will Howard's path led him to showdown with Penn State**\
+`The spotlight will be on Howard on Saturday afternoon when Ohio State plays at Penn State.`\
+https://nytimes.com/athletic/5888104/2024/10/31/will-howard-ohio-state-penn-state-showdown-football/
 
