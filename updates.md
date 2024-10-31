@@ -1,3 +1,11 @@
+**Investigators Say a High-Profile Dealer Trafficked 2,000 Looted Artifacts**\
+`In an arrest warrant for Edoardo Almagià, a Princeton-educated antiquities dealer, the Manhattan district attorney’s office detailed what it described as decades of illicit transactions.`\
+https://nytimes.com/2024/10/31/arts/design/looted-artifacts-charges-edoardo-almagia.html
+
+**Leopards Are Telling You That They Will Eat YOUR Face**\
+`Many of Donald Trump’s supporters are unprepared for what’s coming if he wins.`\
+https://nytimes.com/2024/10/31/opinion/trump-musk-mike-johnson.html
+
 **Why Is Trump Campaigning in New Mexico and Virginia?**\
 `Even if carrying these states is unlikely, they offer the possibility that fresh audiences could supply more Republican votes in the popular tally.`\
 https://nytimes.com/2024/10/31/us/politics/why-trump-new-mexico-virginia.html

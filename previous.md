@@ -1,3 +1,11 @@
+**Investigators Say a High-Profile Dealer Trafficked 2,000 Looted Artifacts**\
+`In an arrest warrant for Edoardo Almagià, a Princeton-educated antiquities dealer, the Manhattan district attorney’s office detailed what it described as decades of illicit transactions.`\
+https://nytimes.com/2024/10/31/arts/design/looted-artifacts-charges-edoardo-almagia.html
+
+**Leopards Are Telling You That They Will Eat YOUR Face**\
+`Many of Donald Trump’s supporters are unprepared for what’s coming if he wins.`\
+https://nytimes.com/2024/10/31/opinion/trump-musk-mike-johnson.html
+
 **Why Is Trump Campaigning in New Mexico and Virginia?**\
 `Even if carrying these states is unlikely, they offer the possibility that fresh audiences could supply more Republican votes in the popular tally.`\
 https://nytimes.com/2024/10/31/us/politics/why-trump-new-mexico-virginia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/briefing/harris-trump-white-women-russia-ukraine-
 **‘I’m Not Supposed to Say This,’ Trump Says. But Then He Does.**\
 `Former President Donald J. Trump’s rehearsed defiance make his supporters feel as though there’s nothing he won’t share.`\
 https://nytimes.com/2024/10/31/us/elections/trump-blaming-staff.html
-
-**Has Your Stance on Immigration Changed? Tell Us.**\
-`The New York Times is writing about voters’ attitudes on immigration and how they changed since the last election cycle.`\
-https://nytimes.com/2024/10/31/us/immigration-voters-election.html
-
-**Pennsylvania Voters Worry About the Toxicity of Politics**\
-`In Berks County, complex feelings about race and immigration threaten the social fabric of a place where people are used to finding common ground.`\
-https://nytimes.com/interactive/2024/10/31/us/elections/pennsylvania-voters.html
 
