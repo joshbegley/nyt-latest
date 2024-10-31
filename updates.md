@@ -1,3 +1,7 @@
+**Late Night Reacts to Biden’s ‘Garbage’ Remark**\
+`The comment shocked “everyone who couldn’t believe Joe successfully logged onto Zoom,” the guest host of “Gutfeld” said.`\
+https://nytimes.com/2024/10/31/arts/television/late-night-biden-garbage.html
+
 **Arsenal Today: Nwaneri's Deepdale display and a quarter-final with Palace**\
 `Art de Roche talks you through what is interesting our team of Arsenal reporters today`\
 https://nytimes.com/athletic/5886417/2024/10/31/arsenal-today-october-31/
