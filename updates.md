@@ -1,3 +1,7 @@
+**Dodgers reliever Daniel Hudson to retire**\
+`The 37-year-old turned in his first wire-to-wire season in half a decade, with a 3.00 ERA in 65 appearances despite having sore knees.`\
+https://nytimes.com/athletic/5888002/2024/10/31/dodgers-daniel-hudson-retire/
+
 **A Catastrophic Deluge Leaves Parts of Spain in Ruins**\
 `Flash flooding across Spain killed more than 95 people after torrential rain left towns and villages submerged and turned streets into rivers.`\
 https://nytimes.com/2024/10/31/world/europe/spain-flash-floods-photos.html

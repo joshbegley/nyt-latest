@@ -1,4 +1,4 @@
-**Dodgers reliever Daniel Hudson to retire**\
+**Dodgers reliever Daniel Hudson retires**\
 `The 37-year-old turned in his first wire-to-wire season in half a decade, with a 3.00 ERA in 65 appearances despite having sore knees.`\
 https://nytimes.com/athletic/5888002/2024/10/31/dodgers-daniel-hudson-retire/
 

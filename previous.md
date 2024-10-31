@@ -1,3 +1,7 @@
+**Dodgers reliever Daniel Hudson to retire**\
+`The 37-year-old turned in his first wire-to-wire season in half a decade, with a 3.00 ERA in 65 appearances despite having sore knees.`\
+https://nytimes.com/athletic/5888002/2024/10/31/dodgers-daniel-hudson-retire/
+
 **A Catastrophic Deluge Leaves Parts of Spain in Ruins**\
 `Flash flooding across Spain killed more than 95 people after torrential rain left towns and villages submerged and turned streets into rivers.`\
 https://nytimes.com/2024/10/31/world/europe/spain-flash-floods-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/world/middleeast/israel-gaza-hospital-strike.html
 **Can Garbine Muguruza find normality after years of WTA Finals chaos?**\
 `Muguruza and the WTA bring its most important asset to a heavily criticized country that has never held a major tennis event.`\
 https://nytimes.com/athletic/5873119/2024/10/31/muguruza-wta-tour-finals-tournament-director/
-
-**Giants trade chips thrive at right time: Did Darius Slayton, Azeez Ojulari boost their value?**\
-`As the Giants start to focus on their future, trading veterans and securing more draft capital could be the path they choose to travel. `\
-https://nytimes.com/athletic/5886448/2024/10/31/giants-darius-slayton-azeez-ojulari-nfl-trade-deadline/
 
