@@ -1,3 +1,7 @@
+**Chelsea second string failing their first real test will give Maresca food for thought**\
+`Having swept aside Barrow, Gent and Panathinaikos, Chelsea's squad players were humbled by Newcastle United`\
+https://nytimes.com/athletic/5886916/2024/10/31/chelsea-league-cup-newcastle/
+
 **Years After His Yankees Retirement, C. C. Sabathia Is Mr. October 31st.**\
 `The former pitcher and his family go all out for Halloween, turning their northern New Jersey home into a trick-or-treater’s paradise.`\
 https://nytimes.com/2024/10/31/nyregion/cc-sabathia-yankees-halloween-alpine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/nyregion/nyc-marathon-guide.html
 **Ethan Nwaneri: If not now, then when?**\
 `Technically, physically and mentality the 17 year old looks ready for a more prominent role and a more difficult challenge than Preston`\
 https://nytimes.com/athletic/5885432/2024/10/31/ethan-nwaneri-arsenal/
-
-**Jayson Tatum, Jaylen Brown point finger at themselves after Celtics' first loss this season**\
-`Though either of them could have regretted big misses in OT, they seemed more upset about failing to play with their normal edge early.`\
-https://nytimes.com/athletic/5887398/2024/10/31/jayson-tatum-jaylen-brown-celtics-first-loss/
 

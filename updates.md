@@ -1,3 +1,7 @@
+**Chelsea second string failing their first real test will give Maresca food for thought**\
+`Having swept aside Barrow, Gent and Panathinaikos, Chelsea's squad players were humbled by Newcastle United`\
+https://nytimes.com/athletic/5886916/2024/10/31/chelsea-league-cup-newcastle/
+
 **Years After His Yankees Retirement, C. C. Sabathia Is Mr. October 31st.**\
 `The former pitcher and his family go all out for Halloween, turning their northern New Jersey home into a trick-or-treater’s paradise.`\
 https://nytimes.com/2024/10/31/nyregion/cc-sabathia-yankees-halloween-alpine.html
