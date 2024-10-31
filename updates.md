@@ -1,3 +1,15 @@
+**Mats Wieffer's performance against Liverpool was a glimpse of his true potential**\
+`The Dutch midfielder showed both his defensive and attacking qualities in Brighton's 3-2 defeat `\
+https://nytimes.com/athletic/5882072/2024/10/31/mats-wieffer-liverpool-performance-carabao-cup/
+
+**Newcastle still have beautiful chaos in their locker. This is what they needed**\
+`Newcastle reached the quarter-finals of the Carabao Cup by beating a team they lost to three days beforehand. This game provided answers`\
+https://nytimes.com/athletic/5886742/2024/10/31/newcastle-chelsea-carabao-cup-tonali-gordon/
+
+**How do you coach Olympians? Lessons from Team GB's summer in Paris**\
+`Three former athletes, now coaches for Team GB Olympians, explain how they contributed to the country's best Games for 40 years`\
+https://nytimes.com/athletic/5879385/2024/10/31/how-do-you-coach-olympians-paris-2024/
+
 **Freddie Freeman named 2024 World Series MVP after record-breaking performance**\
 `Freeman recorded a .300 batting average and contributed a critical two-run single in Game 5 to lift the Dodgers to victory.`\
 https://nytimes.com/athletic/5887239/2024/10/31/yankees-dodgers-world-series-2024-freddie-freeman-mvp/
