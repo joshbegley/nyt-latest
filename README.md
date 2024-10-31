@@ -1,3 +1,19 @@
+**Fantasy Premier League: How to build a cheap defence so you can buy big up top**\
+`The budget players to look at for defensive picks - and the gains made by adjusting the budget in this position...`\
+https://nytimes.com/athletic/5879586/2024/10/31/fantasy-premier-league-how-to-build-a-cheap-defence-so-you-can-buy-big-up-top/
+
+**How Nuno's extensive use of subs is driving Forest's impressive start**\
+`No team has used more substitutes in the Premier League than Forest so far this season - and it is paying off`\
+https://nytimes.com/athletic/5885030/2024/10/31/nottingham-forest-substitutes/
+
+**Thursday Briefing**\
+`How the next U.S. administration may shape the world.`\
+https://nytimes.com/2024/10/31/briefing/correspondents-election-britain-budget.html
+
+**Mead and Musovic at the first all-female A Licence course: 'I’m looking at the game differently'**\
+`Behind the scenes at UEFA's first all-female coaching course at A-licence level and how it's changing particiapting players' perspectives`\
+https://nytimes.com/athletic/5863319/2024/10/31/uefa-first-allfemale-a-licence-course-mead-musovic/
+
 **Why the Premier League table after 10 games is a reliable guide to how the season will end**\
 `Are 14th-placed Manchester United destined for a bottom-half finish this season? History would suggest they are...`\
 https://nytimes.com/athletic/5882348/2024/10/31/premier-league-table-after-10-games-reliable/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5882131/2024/10/31/huddersfield-town-kevin-nagle/
 **How long passes by goalkeepers went from practical to tactical**\
 `Long deliveries are down numerically but in tactical terms, they are more important then ever before`\
 https://nytimes.com/athletic/5866526/2024/10/31/goalkeeper-long-passing-tactical-value/
-
-**Boycotting Israeli Culture Helps No One**\
-`An attack on culture divides the very people who should be in direct dialogue, reading each other’s books. It cannot be that the solution to conflict is to read less, and not more.`\
-https://nytimes.com/2024/10/31/opinion/israel-palestinians-cultural-boycott.html
-
-**Can Men in China Take a Joke? Women Doing Stand-Up Have Their Doubts**\
-`Comedy has become a way for women to skewer China’s gender inequality. Some men aren’t happy about it.`\
-https://nytimes.com/2024/10/31/world/asia/china-comedy-women-yang-li.html
-
-**2025 World Series odds: Dodgers favored to repeat; Yankees, Braves close behind**\
-`Fresh off winning the 2024 World Series, the Los Angeles Dodgers opened as the favorites to win the 2025 edition.`\
-https://nytimes.com/athletic/5887138/2024/10/31/2025-world-series-odds-dodgers-yankees-braves/
-
-**Trump Says He’ll Protect Women, ‘Like It or Not,’ Evoking His History of Misogyny**\
-`Polls show Donald Trump is already facing a significant deficit with female voters in his race against Vice President Kamala Harris.`\
-https://nytimes.com/2024/10/31/us/politics/trump-women-like-it-or-not.html
 
