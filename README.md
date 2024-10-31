@@ -1,3 +1,11 @@
+**Unicorn diary: Chronicling the latest Victor Wembanyama-Chet Holmgren showdown**\
+`Holmgren got the best of Wembanyama in the latest meeting of the NBA's young giants. `\
+https://nytimes.com/athletic/5887371/2024/10/31/victor-wembanyama-chet-holmgren-matchup-spurs-thunder/
+
+**Why Dodgers' Game 5 win over Yankees was the craziest World Series clincher ever**\
+`As weird, wild and utterly zany Series finales go, this game was up there with 2016 and 2001 or possibly even 1993 and 1960. Here's why. `\
+https://nytimes.com/athletic/5887769/2024/10/31/dodgers-yankees-world-series-game-5-crazy-clincher/
+
 **'I take full responsibility': How Kevin Fiala responded after being scratched by the Kings**\
 `Fiala had two points in a Kings win over the Golden Knights a day after he was scratched for "violating team protocol."`\
 https://nytimes.com/athletic/5887601/2024/10/31/kevin-fiala-la-kings-scratch-golden-knights/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5881864/2024/10/31/nba-lookahead-grizzlies-sixers-b
 **The Other Trump Trade That Is Worrying Markets**\
 `Robert Lighthizer, who was a huge influence on Donald Trump’s protectionist trade policy, is again a candidate for a top role if the Republican wins next week.`\
 https://nytimes.com/2024/10/31/business/dealbook/lighthizer-trump-trade-markets.html
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/31/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump and Harris Chase Each Other Across Battlegrounds**\
-`With five days to go until Election Day, Donald J. Trump and Kamala Harris are heading westward to cities in Arizona and Nevada.`\
-https://nytimes.com/live/2024/10/31/us/harris-trump-election
 
