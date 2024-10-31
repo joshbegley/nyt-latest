@@ -1,3 +1,15 @@
+**Can Sabres' lineup changes help Dylan Cozens, Jack Quinn get back on track?**\
+`The two 23-year-old forwards were supposed to be among the Sabres' top offensive threats this season`\
+https://nytimes.com/athletic/5888900/2024/10/31/sabres-lineup-dylan-cozens-jack-quinn/
+
+**The 'Big Noon Kickoff' debate: Is Penn State-Ohio State too early?**\
+`Mike Mulvihill, Fox’s president of insights and analytics, knows he might be the most hated man in Happy Valley this week.`\
+https://nytimes.com/athletic/5884182/2024/10/31/penn-state-ohio-state-big-noon-kickoff/
+
+**Max Verstappen brushes off criticism after penalties: ‘I just do my thing’**\
+`“I don't listen to those individuals. I just do my thing. I'm a three-time world champion. I think I know what I'm doing," Verstappen said.`\
+https://nytimes.com/athletic/5888936/2024/10/31/max-verstappen-penalties-lando-morris-mexico-city-gp/
+
 **What’s That in Your Mouth, Bro?**\
 `Zyn nicotine pouches have become a new symbol of American masculinity — and a surprising political lightning rod.`\
 https://nytimes.com/2024/10/31/style/zyn-nicotine-pouch-masculinity.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/31/theater/ragtime-review-city-center.html
 **Iranian Officials Threaten Retaliation for Israeli Strikes**\
 `It was unclear how or when Iran plans to respond, and some officials said the rhetoric could be bluster. Iranian officials had downplayed the damage of Israel’s last attack.`\
 https://nytimes.com/2024/10/31/world/middleeast/iran-threatens-retaliation-israel-strikes.html
-
-**New York Court Suspends Lawyer Who Pushed Trump’s Fake Electors Scheme**\
-`The lawyer, Kenneth Chesebro, had previously pleaded guilty to a felony charge of conspiracy in a Georgia court.`\
-https://nytimes.com/2024/10/31/us/politics/trump-lawyer-chesebro-suspended-new-york.html
-
-**Bucks decline fourth-year option on MarJon Beauchamp**\
-`Beauchamp has appeared in 104 games and started 12 in his two-plus seasons with the Bucks, who drafted him in 2022.`\
-https://nytimes.com/athletic/5888925/2024/10/31/marjon-beauchamp-bucks-contract/
-
-**Angels acquire Jorge Soler from Braves in exchange for Griffin Canning**\
-`Soler immediately becomes an impact bat for the Angels, who are coming off the worst season in franchise history in 2024.`\
-https://nytimes.com/athletic/5888803/2024/10/31/jorge-soler-angels-braves-trade/
 
