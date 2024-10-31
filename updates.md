@@ -1,3 +1,7 @@
+**Recent Bulls wins showing resiliency, refusal to accept defeat with young team**\
+`After crafting two comeback victories from 20-point deficits in their past two games, the Bulls could be forming an early identity.`\
+https://nytimes.com/athletic/5886790/2024/10/31/chicago-bulls-nba-early-identity/
+
 **Brighton's Joao Pedro back in training before Liverpool trip**\
 `Brighton &amp; Hove Albion forward Joao Pedro has returned to first-team training and could feature in Saturday&#8217;s Premier League match at Liverpool, head coach Fabian Hurzeler said on Thursday.`\
 https://nytimes.com/athletic/5888198/2024/10/31/joao-pedro-brighton-injury-update/
