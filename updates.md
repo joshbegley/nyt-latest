@@ -1,3 +1,7 @@
+**How many more ovations does LeBron James have left in Cleveland?**\
+`James and the Lakers made another trip "home" to Cleveland, where Bronny James scored his first NBA basket. `\
+https://nytimes.com/athletic/5887338/2024/10/31/lebron-james-cleveland-homecoming/
+
 **A new role for John Tavares should help spark Maple Leafs’ ailing power play**\
 `John Tavares is longer effective in his net-front role on PP1 but could be valuable on a new-look PP2. `\
 https://nytimes.com/athletic/5883868/2024/10/31/maple-leafs-john-tavares-power-play/
