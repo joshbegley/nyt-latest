@@ -1,3 +1,7 @@
+**Lakers' Bronny James scores first career points in loss to Cavaliers**\
+`James finished with two points, two assists and a steal on 1-of-2 shooting in five minutes of action.`\
+https://nytimes.com/athletic/5886946/2024/10/30/bronny-james-first-points-lakers-cavaliers/
+
 **Naomi Girma scores twice in USWNT win over Argentina**\
 `The defender has been a regular as captain of the U.S.`\
 https://nytimes.com/athletic/5886883/2024/10/30/naomi-girma-scores-uswnt-argentina/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5886735/2024/10/30/gabriel-jesus-goal-arsenal-artet
 **Nicky Jam, a Reggaeton Star, Withdraws Support for Trump**\
 `The disavowal of the former president reflects the damage inflicted by racist remarks against Puerto Rico and Latinos at a recent rally at Madison Square Garden.`\
 https://nytimes.com/2024/10/30/us/politics/nicky-jam-trump-puerto-rico.html
-
-**Taiwan Braces for Powerful Typhoon Kong-rey**\
-`The approaching storm was forecast to hit as the equivalent of a Category 4 hurricane along Taiwan’s eastern coast on Thursday.`\
-https://nytimes.com/2024/10/30/weather/typhoon-kong-rey-taiwan-landfall.html
 
