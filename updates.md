@@ -1,3 +1,7 @@
+**As Election Nears, Foreign Leaders Fear ‘a Vacuum’ in American Leadership**\
+`President Biden hosted his final pre-election international visitor in the Oval Office, where the talk focused on the Middle East and Europe. But uncertainty in the United States hung over the meeting.`\
+https://nytimes.com/2024/10/31/us/politics/biden-cyprus-meeting.html
+
 **Cuomo Told a House Panel His Memory Was Hazy. Is That a Perjury Defense?**\
 `House Republicans referred the former New York governor for prosecution. His insistence on a faulty memory makes that outcome unlikely.`\
 https://nytimes.com/2024/10/31/nyregion/cuomo-lies-covid-justice.html

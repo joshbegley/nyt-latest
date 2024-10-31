@@ -1,3 +1,7 @@
+**As Election Nears, Foreign Leaders Fear ‘a Vacuum’ in American Leadership**\
+`President Biden hosted his final pre-election international visitor in the Oval Office, where the talk focused on the Middle East and Europe. But uncertainty in the United States hung over the meeting.`\
+https://nytimes.com/2024/10/31/us/politics/biden-cyprus-meeting.html
+
 **Cuomo Told a House Panel His Memory Was Hazy. Is That a Perjury Defense?**\
 `House Republicans referred the former New York governor for prosecution. His insistence on a faulty memory makes that outcome unlikely.`\
 https://nytimes.com/2024/10/31/nyregion/cuomo-lies-covid-justice.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/31/us/elections/pennsylvania-voters.html
 **Apple’s Quarterly Profit Down Because of Tax Payment in Europe**\
 `Sales for the iPhone maker were up 6 percent to to $94.93 billion. But a $14.4 billion tax bill cut profits that would have topped expectations.`\
 https://nytimes.com/2024/10/31/technology/apple-profit-earnings.html
-
-**A Big New Celebrity Endorser for Kamala Harris: LeBron James**\
-`Mr. James, the N.B.A.’s all-time leading scorer, campaigned for Barack Obama and Hillary Clinton in previous election cycles. He has made no secret of his low opinion of Donald J. Trump.`\
-https://nytimes.com/2024/10/31/us/politics/lebron-james-kamala-harris-endorsement.html
 
