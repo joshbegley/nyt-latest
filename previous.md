@@ -1,3 +1,19 @@
+**‘The Gutter’ Review: A Phenom Is Born**\
+`This bowling comedy, co-directed by the standup comedian Yassir Lester and his brother Isaiah, has absurdity to spare.`\
+https://nytimes.com/2024/10/31/movies/the-gutter-review.html
+
+**‘Chasing Chasing Amy’ Review: A Fan’s Favorite**\
+`Sav Rodgers sets out to define the legacy of Kevin Smith’s “Chasing Amy” in this documentary, which is elevated by one instructive interview.`\
+https://nytimes.com/2024/10/31/movies/chasing-chasing-amy-review.html
+
+**‘Absolution’ Review: Brain Drain**\
+`Liam Neeson plays a regretful gangster with a serious medical condition in this drab, downbeat action movie.`\
+https://nytimes.com/2024/10/31/movies/absolution-review.html
+
+**The World Series Was Big in Japan. The TV Ratings Prove It.**\
+`Shohei Ohtani, the Dodgers’ superstar, drove massive interest for the World Series in Japan, where more than 15 million people watched each of the first two games.`\
+https://nytimes.com/2024/10/31/world/asia/japan-dodgers-ohtani-world-series.html
+
 **The 2024 Stakes for Judges**\
 `How the election could change the courts.`\
 https://nytimes.com/2024/10/31/briefing/the-2024-stakes-for-judges.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5885681/2024/10/31/wisconsin-recruiting-game-day-en
 **Weighing in on Spurs-Rockets rivalry: Wemby's ramp-up, CP3's future, Jalen Green and more**\
 `Kelly Iko and John Hollinger discuss how the Spurs and Rockets have started the season and what the season might hold.`\
 https://nytimes.com/athletic/5883733/2024/10/31/spurs-rockets-chris-paul-jalen-green/
-
-**Enjoy the Penguins nostalgia tour because this season is on thin ice**\
-`Savor the special moments this season because focusing on the Penguins' record might become an insufferable chore.`\
-https://nytimes.com/athletic/5885531/2024/10/31/penguins-standings-records/
-
-**Ten Red Wings thoughts after 10 games: Can Detroit's early issues be fixed?**\
-`The concerning thing right now is this team hasn't resembled last year's group. It's looked like a clear step back.`\
-https://nytimes.com/athletic/5887069/2024/10/31/red-wings-10-games-early-issues/
-
-**Eyes on Jalen Brunson: Observing the Knicks' star in Miami for a night**\
-`Watching Jalen Brunson for an entire game to try to see what the star guard sees. `\
-https://nytimes.com/athletic/5886686/2024/10/31/jalen-brunson-knicks-heat-observation/
-
-**Mets' free-agent outlook: How much should the Mets pay to bring back Pete Alonso?**\
-`It was a pedestrian season by Alonso's standards, but he still hits free agency as the best option at first base. `\
-https://nytimes.com/athletic/5880285/2024/10/31/mets-pete-alonso-free-agency-market/
 
