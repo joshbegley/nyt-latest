@@ -1,3 +1,7 @@
+**Unrivaled 3×3 league expanding to 36 players ahead of first season**\
+`There will still be six teams, with six players now participating on each.`\
+https://nytimes.com/athletic/5888767/2024/10/31/unrivaled-basketball-expanding-wnba/
+
 **Being Sugar-Deprived Had Major Effects on These Childrens’ Health**\
 `British data shows that children conceived and born during a period of sugar rationing were less likely to develop diabetes or high blood pressure later in life.`\
 https://nytimes.com/2024/10/31/health/sugar-rationing-britain-health-experiment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/world/europe/germany-iran-consulates-sharmahd.htm
 **‘Juror #2’ Review: Clint Eastwood Hands Down a Tough Verdict**\
 `In his latest (and perhaps last) movie as a director, Eastwood casts a skeptical eye at the criminal justice system in a mystery starring Nicholas Hoult.`\
 https://nytimes.com/2024/10/31/movies/juror-2-review-clint-eastwood.html
-
-**They Want to Ensure That, This Time, White Women Vote for a Woman**\
-`Donald Trump has won white women, the country’s largest voting bloc, for two elections running. White female Democrats are trying to stop that from happening again, but it may be an uphill fight.`\
-https://nytimes.com/2024/10/31/us/politics/white-women-harris-trump-2024-election.html
 
