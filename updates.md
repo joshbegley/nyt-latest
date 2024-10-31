@@ -1,3 +1,19 @@
+**U.S. Turns to China to Stop North Korean Troops From Fighting for Russia**\
+`American agencies have assessed that China dislikes the growing partnership between Russia and North Korea. The State Department has raised the troop issue with Chinese diplomats.`\
+https://nytimes.com/2024/10/31/us/politics/russia-north-korea-troops-china.html
+
+**Cubs planning to add Quintin Berry to Craig Counsell’s coaching staff: Sources**\
+`Berry, 39, spent the past four years as the first-base coach in Milwaukee.`\
+https://nytimes.com/athletic/5888553/2024/10/31/cubs-quintin-berry-craig-counsell-coaching-staff/
+
+**Hey, Bus Driver: Why Can’t You See Us?**\
+`Being disabled shouldn’t mean being ignored.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/hey-bus-driver-why-cant-you-see-us
+
+**Scoop City: One case for QB patience**\
+`A look at seven quarterbacks who broke out later in their careers, plus Dane Brugler on the first QB drafted in 2025.`\
+https://nytimes.com/athletic/5888561/2024/10/31/scoop-city-one-case-for-qb-patience/
+
 **How Elon Musk Changed Course to Go All Out for Trump**\
 `The billionaire has poured nearly $120 million into a pro-Trump voting effort and used his social media platform, X, to spread misinformation, despite public statements he made in the past about political neutrality.`\
 https://nytimes.com/2024/10/31/business/elon-musk-trump.html
