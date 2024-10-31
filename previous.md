@@ -1,3 +1,7 @@
+**Apple’s Quarterly Profit Down Because of Tax Payment in Europe**\
+`Sales for the iPhone maker were up 4 percent to $94.9 billion. But a $14.4 billion tax bill cut profits that would have topped expectations.`\
+https://nytimes.com/2024/10/31/technology/apple-profit-earnings.html
+
 **A Big New Celebrity Endorser for Kamala Harris: LeBron James**\
 `Mr. James, the N.B.A.’s all-time leading scorer, campaigned for Barack Obama and Hillary Clinton in previous election cycles. He has made no secret of his low opinion of Donald J. Trump.`\
 https://nytimes.com/2024/10/31/us/politics/lebron-james-kamala-harris-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889218/2024/10/31/college-football-week-10-model-p
 **Young Thug Pleads Guilty in YSL Case Nearly a Year Into Trial**\
 `The star Atlanta rapper admitted to six counts, including participating in criminal street gang activity, ending his role in the longest trial in Georgia history.`\
 https://nytimes.com/2024/10/31/arts/music/young-thug-guilty-plea-ysl-young-slime-life-trial.html
-
-**Amazon Reports Record $15.3 Billion Profit**\
-`The tech giant’s cloud computing business picked up steam and its retail business showed resiliency.`\
-https://nytimes.com/2024/10/31/business/amazon-q3-earnings.html
 
