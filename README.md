@@ -23,7 +23,7 @@ https://nytimes.com/2024/10/31/us/politics/biden-cyprus-meeting.html
 https://nytimes.com/2024/10/31/nyregion/cuomo-lies-covid-justice.html
 
 **Trump and Vance Escalate Efforts to Sow Doubts on Pennsylvania Voting**\
-`The former president and his running made false attacks about the security of the election in Pennsylvania, the battleground state with the most electoral college votes.`\
+`The former president and his running mate made false attacks about the security of the election in Pennsylvania, the battleground state with the most electoral college votes.`\
 https://nytimes.com/2024/10/31/us/politics/trump-vance-pennsylvania-voting.html
 
 **What Teens Said They Hope for and Fear in the 2024 Election**\

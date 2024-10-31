@@ -1,3 +1,7 @@
+**Boeing Reaches New Deal With Union in Hopes of Ending Strike**\
+`The aerospace manufacturer’s largest union said it would put the contract to a vote on Monday by its 33,000 members, who rejected two earlier agreements.`\
+https://nytimes.com/2024/10/31/business/boeing-strike-union-deal.html
+
 **Investigators Say a High-Profile Dealer Trafficked 2,000 Looted Artifacts**\
 `In an arrest warrant for Edoardo Almagià, a Princeton-educated antiquities dealer, the Manhattan district attorney’s office detailed what it described as decades of illicit transactions.`\
 https://nytimes.com/2024/10/31/arts/design/looted-artifacts-charges-edoardo-almagia.html
