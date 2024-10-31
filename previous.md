@@ -1,3 +1,19 @@
+**MLB's offseason schedule: Key dates and deadlines to get you through the baseball winter**\
+`Every offseason is loaded with uncertainty, but also deadlines and mile markers that help guide the way to next spring. Here’s the road map.`\
+https://nytimes.com/athletic/5884166/2024/10/31/mlb-offseason-schedule-key-dates-deadlines/
+
+**Could Zac Taylor give up Bengals play calling or Lou Anarumo be on the hot seat?**\
+`Fans are calling for change in the coaching staff as Cincinnati continues to struggle through a disappointing season.`\
+https://nytimes.com/athletic/5886432/2024/10/31/bengals-zac-taylor-lou-anarumo/
+
+**As the Alex Bregman sweepstakes begin, the Astros must pitch their plan to win**\
+`Winning is Bregman's top priority when choosing where to sign this offseason. To retain him, the Astros must sell him on that possibility.`\
+https://nytimes.com/athletic/5883762/2024/10/31/alex-bregman-houston-astros-free-agency-pitch/
+
+**Texans vs. Jets odds, expert picks, how to watch: Yes, the Jets are still favored**\
+`Did the Jets draw a favorable matchup at home vs. the Texans without Nico Collins and Stefon Diggs?`\
+https://nytimes.com/athletic/5886378/2024/10/31/texans-jets-odds-picks-how-to-watch-betting/
+
 **Biden’s Stake in This Election Is Like Nobody Else’s**\
 `Will he be remembered as American democracy’s savior — or as a midwife to its ruin?`\
 https://nytimes.com/2024/10/31/opinion/biden-election-legacy.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5886547/2024/10/31/commanders-johnny-newton-sack-ro
 **College basketball coaches talk overrated teams, intriguing players and more**\
 `We have our thoughts, but it’s best to ask the people whose opinions actually matter: the coaches.`\
 https://nytimes.com/athletic/5885186/2024/10/31/college-basketball-coaches-underrated-overrated/
-
-**'We're getting coached by legends': 3 former Panthers get after it ... in middle school**\
-`What do Greg Olsen, Luke Kuechly and Jonathan Stewart do for fun? Coach the Charlotte Christian middle school team, of course.`\
-https://nytimes.com/athletic/5867353/2024/10/31/panthers-greg-olsen-luke-kuechly-middle-school-coaches/
-
-**Tarot Cards for Lovers of Broadway, Art and Pasta**\
-`Plus: landscape paintings at a Kyoto temple, cast-iron furniture and more recommendations from T Magazine.`\
-https://nytimes.com/2024/10/31/t-magazine/tarot-cards.html
-
-**In Georgia, Harris Supporters Pull Together and Fight the Odds**\
-`It’s not easy being a dot of blue in Trump country.`\
-https://nytimes.com/2024/10/31/opinion/georgia-harris-trump-election.html
-
-**Final Mailbag: From Late News to Early Voting**\
-`A news cycle that seems unfavorable to Donald Trump, and a look at what if anything can be gleaned from early voting.`\
-https://nytimes.com/2024/10/31/upshot/election-polling-mailbag.html
 
