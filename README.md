@@ -1,3 +1,7 @@
+**Trump and Vance Escalate Efforts to Sow Doubts on Pennsylvania Voting**\
+`The former president and his running made false attacks about the security of the election in Pennsylvania, the battleground state with the most electoral college votes.`\
+https://nytimes.com/2024/10/31/us/politics/trump-vance-pennsylvania-voting.html
+
 **What Teens Said They Hope for and Fear in the 2024 Election**\
 `Responses to the Headway Election Challenge paint a picture of teenagers navigating a highly charged political moment.`\
 https://nytimes.com/2024/10/31/headway/teen-2024-election-hopes-fears-answers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/lebron-james-kamala-harris-endorsemen
 **The Angels, without a clear plan, nonetheless make offseason's first big splash**\
 `Angels GM Perry Minasian alluded to future moves for the Angels, who won 63 games in 2024.`\
 https://nytimes.com/athletic/5889184/2024/10/31/jorge-soler-trade-angels-plan/
-
-**The Valencia Floods Show That Climate Change Will Keep Defying Expectations**\
-`Startling torrents from the sky are among our most frightening foes in a warming world.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/valencia-flood-climate-change
 
