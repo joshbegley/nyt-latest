@@ -1,3 +1,11 @@
+**What’s That in Your Mouth, Bro?**\
+`Zyn nicotine pouches have become a new symbol of American masculinity — and a surprising political lightning rod.`\
+https://nytimes.com/2024/10/31/style/zyn-nicotine-pouch-masculinity.html
+
+**Lewis Hamilton reflects on ‘very turbulent year’ as Mercedes F1 career nears end**\
+`With four races left before his 2025 move to Ferrari, Hamilton is staying positive as his Mercedes era ends. `\
+https://nytimes.com/athletic/5888518/2024/10/31/lewis-hamilton-f1-mercedes-ferrari-brazil-gp/
+
 **After 7 Years, P’Nut the Squirrel Is Taken Away**\
 `Possession of wildlife is generally prohibited in New York State, even of P’Nut, who had half a million followers on Instagram.`\
 https://nytimes.com/2024/10/31/nyregion/peanut-squirrel-pet-seized.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5888925/2024/10/31/marjon-beauchamp-bucks-contract/
 **Angels acquire Jorge Soler from Braves in exchange for Griffin Canning**\
 `Soler immediately becomes an impact bat for the Angels, who are coming off the worst season in franchise history in 2024.`\
 https://nytimes.com/athletic/5888803/2024/10/31/jorge-soler-angels-braves-trade/
-
-**Trump, Musk and an American Masculinity Crisis**\
-`By blatantly flouting norms (or even laws) and seemingly getting away with it, they burnish their appeal to young men.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-elon-musk-masculinity
-
-**Donald Trump Is Bored**\
-`There’s plenty going on there, but it’s not senility. It’s “extravagance.”`\
-https://nytimes.com/2024/10/31/opinion/donald-trump-speech-aging.html
 
