@@ -1,3 +1,7 @@
+**Harris Campaign’s New Ad in Spanish Highlights Puerto Rico Insult at Trump Rally**\
+`It is aimed at Latinos in the battleground state of Pennsylvania, which has a sizable Puerto Rican population.`\
+https://nytimes.com/2024/10/31/us/politics/harris-ad-trump-puerto-rico.html
+
 **Trump and Vance Escalate Efforts to Sow Doubts on Pennsylvania Voting**\
 `The former president and his running mate made false attacks about the security of the election in Pennsylvania, the battleground state with the most electoral college votes.`\
 https://nytimes.com/2024/10/31/us/politics/trump-vance-pennsylvania-voting.html
