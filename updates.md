@@ -1,3 +1,7 @@
+**Scottie Barnes' broken orbital bone makes assessing the Raptors nearly impossible**\
+`The reverberations from the Raptors All-Star's injury will be felt up and down the roster. `\
+https://nytimes.com/athletic/5886298/2024/10/30/raptors-scottie-barnes-broken-orbital-bone-hornets/
+
 **Corrections: Oct. 31, 2024**\
 `Corrections that appeared in print on Thursday, Oct. 31, 2024.`\
 https://nytimes.com/2024/10/30/pageoneplus/corrections-oct-31-2024.html
