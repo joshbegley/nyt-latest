@@ -1,3 +1,7 @@
+**Trump and Vance Escalate Efforts to Sow Doubts on Pennsylvania Voting**\
+`The former president and his running mate made false attacks about the security of the election in Pennsylvania, the battleground state with the most electoral college votes.`\
+https://nytimes.com/2024/10/31/us/politics/trump-vance-pennsylvania-voting.html
+
 **Boeing Reaches New Deal With Union in Hopes of Ending Strike**\
 `The aerospace manufacturer’s largest union said it would put the contract to a vote on Monday by its 33,000 members, who rejected two earlier agreements.`\
 https://nytimes.com/2024/10/31/business/boeing-strike-union-deal.html
