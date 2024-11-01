@@ -1,3 +1,11 @@
+**Bucks County, Pa.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/bucks-county-pa
+
+**Vikings' Hockenson to make season debut Sunday vs. Colts**\
+`Hockenson missed the first eight weeks of the season as he recovered from a torn ACL and MCL.`\
+https://nytimes.com/athletic/5891521/2024/11/01/vikings-tj-hockenson-return-injury-update/
+
 **Hugh Hewitt, Conservative Columnist, Quits The Washington Post**\
 `His decision came hours after he abruptly stormed off a broadcast of a live online Post talk show.`\
 https://nytimes.com/2024/11/01/business/media/hugh-hewitt-washington-post-jonathan-capehart.html

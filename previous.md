@@ -1,9 +1,13 @@
+**Bucks County, Pa.**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/bucks-county-pa
+
 **Hugh Hewitt, Conservative Columnist, Quits The Washington Post**\
 `His decision came hours after he abruptly stormed off a broadcast of a live online Post talk show.`\
 https://nytimes.com/2024/11/01/business/media/hugh-hewitt-washington-post-jonathan-capehart.html
 
-**Vikings' Hockenson to make season debut on Sunday vs. Colts**\
-`Two-time Pro Bowler has missed start of the season as he recovers from torn ACL and MCL.`\
+**Vikings' Hockenson to make season debut Sunday vs. Colts**\
+`Hockenson missed the first eight weeks of the season as he recovered from a torn ACL and MCL.`\
 https://nytimes.com/athletic/5891521/2024/11/01/vikings-tj-hockenson-return-injury-update/
 
 **Saints QB Carr expected to return in Week 9 vs. Panthers**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/climate/biden-cop29-baku-climate.html
 **This Sorority Is Going All in to Get Out the Vote**\
 `Alpha Kappa Alpha’s forceful push to increase voter turnout could help boost critical support for Democrats from Black voters.`\
 https://nytimes.com/2024/11/01/us/elections/harris-alpha-kappa-alpha.html
-
-**McDonald’s Ice Cream Machines May Get Quicker Fix After Copyright Ruling**\
-`An exemption to a longstanding copyright act allows industrial equipment to be fixed by people not affiliated with the manufacturer.`\
-https://nytimes.com/2024/11/01/us/mcdonalds-ice-cream-machine-fix-exemption.html
 
