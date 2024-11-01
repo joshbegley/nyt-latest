@@ -1,3 +1,43 @@
+**To Meet Big Goals, Think Small**\
+`Focus on the incremental steps that are in your control.`\
+https://nytimes.com/2024/11/01/well/how-to-achieve-goals.html
+
+**When to Expect Results in Each State on Election Night, and Beyond**\
+`The Times surveyed election officials in all 50 states to learn how they will count the votes, and when we might know the outcome in the battleground states.`\
+https://nytimes.com/interactive/2024/us/elections/results-timing-presidential-race-calls.html
+
+**Do I Have to Speak Up if Someone Fails to Cash My Check?**\
+`The magazine’s Ethicist columnist on the duty one has to rectify accounting errors and other billing mistakes.`\
+https://nytimes.com/2024/11/01/magazine/check-errors-ethics.html
+
+**The New York Times Election Week News Quiz, Nov. 1, 2024**\
+`This week we’ve got a special edition of the news quiz, focused entirely on the upcoming election.`\
+https://nytimes.com/interactive/2024/11/01/briefing/01news-quiz.html
+
+**Kamala Harris Can Make History, Whether or Not She Wants to Talk About It**\
+`Don’t let the monarch of Mar-a-Lago take back his throne.`\
+https://nytimes.com/2024/11/01/opinion/trump-gender-election-voting.html
+
+**In Other News, Who Will Control Congress?**\
+`It could come down to the fate of Democrats in Trump-leaning territory.`\
+https://nytimes.com/2024/11/01/podcasts/in-other-news-who-will-control-congress.html
+
+**Bears trade deadline questions: Should they deal one of their second-round picks?**\
+`Will GM Ryan Poles give up draft capital to help this year's team? Should he trade Nate Davis and/or Khalil Herbert?`\
+https://nytimes.com/athletic/5888992/2024/11/01/bears-trade-deadline-second-round-picks/
+
+**$1.6 Million Homes in Sardinia, Italy**\
+`Homes in the island region of Italy include a three-bedroom villa in the Costa Smeralda, a traditional stone house in Muzzeddu, and a nine-bedroom estate on 62 acres.`\
+https://nytimes.com/2024/11/01/realestate/homes-sardinia-italy.html
+
+**You Might Consider Praying**\
+`It’s what can we do when we don’t know what to do.`\
+https://nytimes.com/2024/11/01/opinion/prayer-god-religion.html
+
+**How Do You Turn a Bad Day Around?**\
+`We all have them. What are your strategies?`\
+https://nytimes.com/2024/11/01/learning/how-do-you-turn-a-bad-day-around.html
+
 **What to Know About ‘The Apprentice,’ the Controversial Donald Trump Biopic**\
 `The film, now available on demand, followed a thorny path to distribution — including the threat of a lawsuit by its subject.`\
 https://nytimes.com/2024/11/01/movies/the-apprentice-trump-cohn.html

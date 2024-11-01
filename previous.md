@@ -1,40 +1,40 @@
-**What to Know About ‘The Apprentice,’ the Controversial Donald Trump Biopic**\
-`The film, now available on demand, followed a thorny path to distribution — including the threat of a lawsuit by its subject.`\
-https://nytimes.com/2024/11/01/movies/the-apprentice-trump-cohn.html
+**To Meet Big Goals, Think Small**\
+`Focus on the incremental steps that are in your control.`\
+https://nytimes.com/2024/11/01/well/how-to-achieve-goals.html
 
-**Xenophobia and Hate Speech Are Spiking Heading into the Election**\
-`Leading Republican politicians and lax social media controls have contributed to a proliferation of hate rhetoric and anti-immigrant sentiment.`\
-https://nytimes.com/2024/11/01/world/asia/xenophobia-hate-speech-increase-election.html
+**When to Expect Results in Each State on Election Night, and Beyond**\
+`The Times surveyed election officials in all 50 states to learn how they will count the votes, and when we might know the outcome in the battleground states.`\
+https://nytimes.com/interactive/2024/us/elections/results-timing-presidential-race-calls.html
 
-**She Was the First Nicaraguan to Be Crowned Miss Universe. Can She Ever Go Home?**\
-`After Sheynnis Palacios won the Miss Universe title, her country’s government arrested the family members of the Miss Nicaragua contest director, and she hasn’t returned home since.`\
-https://nytimes.com/2024/11/01/world/americas/miss-universe-nicaragua.html
+**Do I Have to Speak Up if Someone Fails to Cash My Check?**\
+`The magazine’s Ethicist columnist on the duty one has to rectify accounting errors and other billing mistakes.`\
+https://nytimes.com/2024/11/01/magazine/check-errors-ethics.html
 
-**Can Axions Save the Universe?**\
-`The hunt for dark matter is shifting from particles to waves named after a laundry detergent.`\
-https://nytimes.com/2024/11/01/science/astrophysics-cosmology-axions.html
+**The New York Times Election Week News Quiz, Nov. 1, 2024**\
+`This week we’ve got a special edition of the news quiz, focused entirely on the upcoming election.`\
+https://nytimes.com/interactive/2024/11/01/briefing/01news-quiz.html
 
-**For Day of the Dead, a Burst of Flowers to Honor the Departed**\
-`During the Day of the Dead, the cempasúchil, or marigold, is believed to guide spirits back home. In Mexico City, people who lost a loved one to Covid use the flower to honor their dead.`\
-https://nytimes.com/2024/11/01/opinion/day-of-the-dead-mexico.html
+**Kamala Harris Can Make History, Whether or Not She Wants to Talk About It**\
+`Don’t let the monarch of Mar-a-Lago take back his throne.`\
+https://nytimes.com/2024/11/01/opinion/trump-gender-election-voting.html
 
-**Northern Ireland vs Belarus to be played in Belfast as planned after visas granted**\
-`Northern Ireland&#8217;s UEFA Nations League match against Belarus this month will go ahead as planned after the visiting side were granted visas by the British government.`\
-https://nytimes.com/athletic/5890278/2024/11/01/northern-ireland-belarus-belfast-nations-league/
+**In Other News, Who Will Control Congress?**\
+`It could come down to the fate of Democrats in Trump-leaning territory.`\
+https://nytimes.com/2024/11/01/podcasts/in-other-news-who-will-control-congress.html
 
-**más y más y más flores**\
-`During the Day of the Dead, the cempasúchil, or marigold, is believed to guide spirits back home. In Mexico City, people who lost a loved one to Covid use the flower to honor their dead.`\
-https://nytimes.com/video/opinion/100000009295662/mas-y-mas-y-mas-flores.html
+**Bears trade deadline questions: Should they deal one of their second-round picks?**\
+`Will GM Ryan Poles give up draft capital to help this year's team? Should he trade Nate Davis and/or Khalil Herbert?`\
+https://nytimes.com/athletic/5888992/2024/11/01/bears-trade-deadline-second-round-picks/
 
-**Garrett Wilson's miraculous catch just might have saved the Jets' season**\
-`The one-handed, losing-streak-snapping grab will go down as one of the greatest catches in NFL history.`\
-https://nytimes.com/athletic/5890234/2024/11/01/garrett-wilson-catch-new-york-jets-win-houston-texans/
+**$1.6 Million Homes in Sardinia, Italy**\
+`Homes in the island region of Italy include a three-bedroom villa in the Costa Smeralda, a traditional stone house in Muzzeddu, and a nine-bedroom estate on 62 acres.`\
+https://nytimes.com/2024/11/01/realestate/homes-sardinia-italy.html
 
-**Trial of Daniel Penny in Subway Killing to Begin With Opening Statements**\
-`Mr. Penny is charged with manslaughter in the May 2023 killing of Jordan Neely, whom he put in a chokehold in a subway car. Video of the incident spread online.`\
-https://nytimes.com/2024/11/01/nyregion/daniel-penny-trial-jordan-neely.html
+**You Might Consider Praying**\
+`It’s what can we do when we don’t know what to do.`\
+https://nytimes.com/2024/11/01/opinion/prayer-god-religion.html
 
-**Breeders’ Cup Arrives in California, Where Horse Racing Is Struggling**\
-`The state looms large in the sport’s history, and its tracks are stunning. But horse racing in California is going broke.`\
-https://nytimes.com/2024/11/01/business/breeders-cup-horse-racing-gambling.html
+**How Do You Turn a Bad Day Around?**\
+`We all have them. What are your strategies?`\
+https://nytimes.com/2024/11/01/learning/how-do-you-turn-a-bad-day-around.html
 
