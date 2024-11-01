@@ -1,3 +1,15 @@
+**Man Who Killed Hundreds of Eagles and Hawks Gets Nearly 4 Years in Prison**\
+`Travis John Branson was part of a conspiracy that killed 3,600 birds, prosecutors said. He also trafficked and sold bird parts on the black market.`\
+https://nytimes.com/2024/10/31/us/eagle-killer-sentenced-four-years.html
+
+**LeBron James endorses Vice President Kamala Harris in 2024 election**\
+`The video was made specifically for James' endorsement by Holland West Productions, according to a source close to James.`\
+https://nytimes.com/athletic/5889448/2024/10/31/lebron-james-kamala-harris-endorsement-2024-election/
+
+**Jets' Malachi Corley drops ball, erases touchdown vs. Texans**\
+`Corley, a 2024 third-round pick, dropped the ball just short of the goal line at the end of a 19-yard touchdown run.`\
+https://nytimes.com/athletic/5889750/2024/10/31/malachi-corley-dropped-touchdown-jets-texans/
+
 **Corrections: Nov. 1, 2024**\
 `Corrections that appeared in print on Friday, Nov. 1, 2024.`\
 https://nytimes.com/2024/10/31/pageoneplus/corrections-nov-1-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5889591/2024/10/31/sf-giants-zack-minasian-general-
 **Until Saturday: Communication issues, plus Week 10 viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Breaking down helmet communication issues and Week 10's schedule.`\
 https://nytimes.com/athletic/5888991/2024/10/31/college-football-helmet-coach-communication-until-saturday/
-
-**Soldier Is Charged With Murdering Army Sergeant Found Dead in Dumpster**\
-`The soldier, Wooster Rancy, 21, who served in the same military unit as Sergeant Sarah Roque at Fort Leonard Wood, Mo., has been arrested in her Oct. 20 killing.`\
-https://nytimes.com/2024/10/31/us/army-murder-charge-fort-leonard-wood.html
-
-**Harris Campaign’s New Ad in Spanish Highlights Puerto Rico Insult at Trump Rally**\
-`It is aimed at Latinos in the battleground state of Pennsylvania, which has a sizable Puerto Rican population.`\
-https://nytimes.com/2024/10/31/us/politics/harris-ad-trump-puerto-rico.html
-
-**Boeing Reaches New Deal With Union in Hopes of Ending Strike**\
-`The aerospace manufacturer’s largest union said it would put the contract to a vote on Monday by its 33,000 members, who rejected two earlier agreements.`\
-https://nytimes.com/2024/10/31/business/boeing-strike-union-deal.html
 
