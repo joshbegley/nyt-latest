@@ -1,3 +1,11 @@
+**Israel Strikes Near Beirut as Diplomatic Push Shows No Sign of Success**\
+`The Biden administration sent envoys including the C.I.A. director to the Middle East this week, but Israel, Hezbollah and Hamas all appeared far from a deal to end the fighting.`\
+https://nytimes.com/2024/11/01/world/middleeast/israel-beirut-strikes-hezbollah.html
+
+**Canucks report cards: Grading every defender and goalie's October performance**\
+`Quinn Hughes and Kevin Lankinen are among the Canucks' standouts since the start of the regular season.`\
+https://nytimes.com/athletic/5889695/2024/11/01/canucks-report-cards-october/
+
 **Veto Power in the Balance, Nevada’s G.O.P. Governor Keeps Trump at Arm’s Length**\
 `Republicans believe a strong Donald Trump victory would ensure that Gov. Joe Lombardo could keep overriding Democratic priorities. But Mr. Lombardo is operating outside the state party, and largely away from Mr. Trump.`\
 https://nytimes.com/2024/11/01/us/politics/veto-power-in-the-balance-nevadas-gop-governor-keeps-trump-at-arms-length.html
@@ -14,6 +22,10 @@ https://nytimes.com/2024/11/01/business/tsunehisa-katsumata-dead.html
 `A House district in Alabama was redrawn to empower Black voters, changing what had been a safe Republican seat into a highly competitive and potentially consequential battleground.`\
 https://nytimes.com/2024/11/01/us/politics/alabama-house-dobson-figures-congress.html
 
+**WTA Tour chief executive defends 'values' ahead of Saudi tournament**\
+`The new head of women's tennis said she misspoke in saying that tournament hosts need not align with WTA values.`\
+https://nytimes.com/athletic/5890975/2024/11/01/wta-tour-finals-saudi-arabia-values/
+
 **Premier League predicted lineups: Who do our writers think will start in Gameweek 10?**\
 `As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5874171/2024/11/01/premier-league-predicted-lineups-gameweek-10/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/01/technology/election-deniers-georgia.html
 **Disinformation Watchdogs Are Under Pressure. This Group Refuses to Stop.**\
 `Though a larger coalition of fact checkers has disbanded, a team of students and researchers at the University of Washington in Seattle is still working to document how lies online threaten to undermine this year’s presidential race.`\
 https://nytimes.com/2024/11/01/technology/election-disinformation.html
-
-**How Trump Is Trying to Win Gen Z Men**\
-`Young men in recent years have become more politically conservative. But will they vote? Kellen Browning, a New York Times reporter covering the 2024 election with a focus on Nevada and Arizona, discusses the Trump campaign’s efforts to court the group.`\
-https://nytimes.com/video/us/elections/100000009788528/how-trump-is-trying-to-win-gen-z-men.html
-
-**Indiana Fever bring back Stephanie White as head coach**\
-`White was an assistant coach in Indiana from 2011 to 2014 and previously took over the head job in 2015-16.`\
-https://nytimes.com/athletic/5877834/2024/11/01/indiana-fever-stephanie-white-head-coach/
-
-**Trump Is Courting Apolitical Young Men. Will It Pay Off?**\
-`Gen Z men are increasingly turning away from the Democratic Party, swayed by the former president’s bravado and irreverence. But they also do not usually vote in high numbers.`\
-https://nytimes.com/2024/11/01/us/politics/donald-trump-young-men.html
 

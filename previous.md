@@ -1,3 +1,11 @@
+**Veto Power in the Balance, Nevada’s G.O.P. Governor Keeps Trump at Arm’s Length**\
+`Republicans believe a strong Donald Trump victory would ensure that Gov. Joe Lombardo could keep overriding Democratic priorities. But Mr. Lombardo is operating outside the state party, and largely away from Mr. Trump.`\
+https://nytimes.com/2024/11/01/us/politics/veto-power-in-the-balance-nevadas-gop-governor-keeps-trump-at-arms-length.html
+
+**The Fight for the House Is on a Knife’s Edge**\
+`Public and private polling this cycle, as well as strategists in both parties, point to one of the tightest contests yet for the House majority, in races that stretch from California to Nebraska to Virginia.`\
+https://nytimes.com/2024/11/01/us/elections/house-election-republicans-democrats.html
+
 **Tsunehisa Katsumata, Top Executive in Power Plant Meltdown, Dies at 84**\
 `He was sued and prosecuted for his actions as chairman of the Japanese power company that ran the Fukushima nuclear facility when it failed in a 2011 earthquake and tsunami.`\
 https://nytimes.com/2024/11/01/business/tsunehisa-katsumata-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5877834/2024/11/01/indiana-fever-stephanie-white-he
 **Trump Is Courting Apolitical Young Men. Will It Pay Off?**\
 `Gen Z men are increasingly turning away from the Democratic Party, swayed by the former president’s bravado and irreverence. But they also do not usually vote in high numbers.`\
 https://nytimes.com/2024/11/01/us/politics/donald-trump-young-men.html
-
-**WTA Tour chief executive defends Saudi tournament**\
-`The new head of women's tennis said she misspoke in saying that tournament hosts need not align with WTA values.`\
-https://nytimes.com/athletic/5890975/2024/11/01/wta-tour-finals-chief-executive-portia-archer-defends-saudi-arabia-tournament/
-
-**As Russia Advances, U.S. Fears Ukraine Has Entered a Grim Phase**\
-`Weapons supplies are no longer Ukraine’s main disadvantage, American military officials say.`\
-https://nytimes.com/2024/11/01/us/politics/russia-ukraine-war.html
 
