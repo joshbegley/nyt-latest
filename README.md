@@ -1,3 +1,7 @@
+**WTA Tour chief executive defends Saudi tournament**\
+`The new head of women's tennis said she misspoke in saying that tournament hosts need not align with WTA values.`\
+https://nytimes.com/athletic/5890975/2024/11/01/wta-tour-finals-chief-executive-portia-archer-defends-saudi-arabia-tournament/
+
 **As Russia Advances, U.S. Fears Ukraine Has Entered a Grim Phase**\
 `Weapons supplies are no longer Ukraine’s main disadvantage, American military officials say.`\
 https://nytimes.com/2024/11/01/us/politics/russia-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889026/2024/11/01/emma-sears-uswnt-racing-louisvil
 **Abortion is at the center of Ohio’s Senate race as Brown battles for survival.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/abortion-is-at-the-center-of-ohios-senate-race-as-brown-battles-for-survival
-
-**Fantasy Football Flex Fliers: Believe in Mike Gesicki, Quentin Johnston in Week 9**\
-`Scott Engel gives his top fantasy football picks for flex position fliers, focusing on the wide receiver position ahead of Week 9.`\
-https://nytimes.com/athletic/5890788/2024/11/01/week-9-fantasy-football-flex-fliers-sleepers/
 
