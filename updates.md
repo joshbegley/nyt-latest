@@ -1,3 +1,11 @@
+**Rams' McVay 'wouldn't bet against' Puka Nacua playing vs. Seattle**\
+`Sean McVay said he doesn’t expect Puka Nacua to have to manage his knee through the rest of the season.`\
+https://nytimes.com/athletic/5891505/2024/11/01/mcvay-puka-nacua-injury-rams-seahawks/
+
+**Chipmaker GlobalFoundries Faces $500,000 Fine for Banned Shipments to China**\
+`The Biden administration said it had reached a settlement after the U.S. chipmaker voluntarily disclosed that it had shipped products to a firm linked with China’s military industrial complex.`\
+https://nytimes.com/2024/11/01/us/politics/globalfoundries-chips-fine-china.html
+
 **Make America … Get Polio Again!**\
 `Are you really going to trust these guys with your health?`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-rfk-vance-vaccine
