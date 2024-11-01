@@ -1,3 +1,11 @@
+**Ed Sheeran Prevails in Copyright Appeal Over ‘Let’s Get It On’**\
+`A three-judge panel affirmed that Sheeran’s “Thinking Out Loud” did not illegally borrow from Marvin Gaye’s song.`\
+https://nytimes.com/2024/11/01/arts/music/ed-sheeran-lets-get-it-on-copyright-appeal.html
+
+**Cannavaro in talks to become new Deportivo head coach**\
+`Former Real Madrid and Juventus defender Fabio Cannavaro is in talks to become Deportivo La Coruna&#8217;s new head coach.`\
+https://nytimes.com/athletic/5891692/2024/11/01/fabio-cannavaro-deportivo-talks/
+
 **Maryland Republican Fighting Uphill Battle Pitches Voters on Splitting Their Tickets**\
 `A spot for former Gov. Larry Hogan aims to give Democrats permission to back him over Angela Alsobrooks and still vote for Kamala Harris — or against Donald J. Trump.`\
 https://nytimes.com/2024/11/01/us/politics/larry-hogan-trump-harris.html

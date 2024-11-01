@@ -1,3 +1,11 @@
+**Ed Sheeran Prevails in Copyright Appeal Over ‘Let’s Get It On’**\
+`A three-judge panel affirmed that Sheeran’s “Thinking Out Loud” did not illegally borrow from Marvin Gaye’s song.`\
+https://nytimes.com/2024/11/01/arts/music/ed-sheeran-lets-get-it-on-copyright-appeal.html
+
+**Cannavaro in talks to become new Deportivo head coach**\
+`Former Real Madrid and Juventus defender Fabio Cannavaro is in talks to become Deportivo La Coruna&#8217;s new head coach.`\
+https://nytimes.com/athletic/5891692/2024/11/01/fabio-cannavaro-deportivo-talks/
+
 **Maryland Republican Fighting Uphill Battle Pitches Voters on Splitting Their Tickets**\
 `A spot for former Gov. Larry Hogan aims to give Democrats permission to back him over Angela Alsobrooks and still vote for Kamala Harris — or against Donald J. Trump.`\
 https://nytimes.com/2024/11/01/us/politics/larry-hogan-trump-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5891521/2024/11/01/vikings-tj-hockenson-return-inju
 **Saints QB Carr expected to return in Week 9 vs. Panthers**\
 `The veteran starter will likely return to the Saints lineup after missing three games with an oblique injury.`\
 https://nytimes.com/athletic/5891524/2024/11/01/saints-derek-carr-return-week-9/
-
-**Rams' McVay 'wouldn't bet against' Puka Nacua playing vs. Seattle**\
-`Sean McVay said he doesn’t expect Puka Nacua to have to manage his knee through the rest of the season.`\
-https://nytimes.com/athletic/5891505/2024/11/01/mcvay-puka-nacua-injury-rams-seahawks/
-
-**Chipmaker GlobalFoundries Faces $500,000 Fine for Banned Shipments to China**\
-`The Biden administration said it had reached a settlement after the U.S. chipmaker voluntarily disclosed that it had shipped products to a firm linked with China’s military industrial complex.`\
-https://nytimes.com/2024/11/01/us/politics/globalfoundries-chips-fine-china.html
 
