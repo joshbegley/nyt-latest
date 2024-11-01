@@ -1,3 +1,7 @@
+**Fantasy Football Flex Fliers: Believe in Mike Gesicki, Quentin Johnston in Week 9**\
+`Scott Engel gives his top fantasy football picks for flex position fliers, focusing on the wide receiver position ahead of Week 9.`\
+https://nytimes.com/athletic/5890788/2024/11/01/week-9-fantasy-football-flex-fliers-sleepers/
+
 **The Trump campaign blasted Harris over October jobs data, but ignored key context.**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/the-trump-campaign-blasted-harris-over-october-jobs-data-but-ignored-key-context
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5890935/2024/11/01/braves-angels-trade-jorge-soler-
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in November**\
 `“Cruel Intentions,” “Music by John Williams” and “Dune: The Prophecy” arrive, along with “Bad Sisters” Season 2.`\
 https://nytimes.com/2024/11/01/arts/television/november-streaming-movies-shows.html
-
-**From A.I. to Musk’s Brain Chips, the F.D.A.’s Device Unit Faces Rapid Change**\
-`The new director overseeing medical devices will confront criticisms about hasty approvals as she ushers in revolutionary technology.`\
-https://nytimes.com/2024/11/01/health/fda-ai-elon-musk-medical-devices.html
 
