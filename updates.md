@@ -1,3 +1,7 @@
+**Muddled Jobs Data May Do Little to Alter Immediate Fed Rate Path**\
+`Officials at the Federal Reserve are widely expected to cut rates by a quarter point next week.`\
+https://nytimes.com/2024/11/01/business/jobs-fed-interest-rates.html
+
 **Tyus Jones has steadied the Suns offense: 'He's exactly what we need'**\
 `Phoenix added the veteran point guard on a minimum contract this summer, and Jones has fixed the team's late-game struggles.`\
 https://nytimes.com/athletic/5890267/2024/11/01/tyus-jones-suns-point-guard/

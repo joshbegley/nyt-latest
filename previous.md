@@ -1,3 +1,7 @@
+**Muddled Jobs Data May Do Little to Alter Immediate Fed Rate Path**\
+`Officials at the Federal Reserve are widely expected to cut rates by a quarter point next week.`\
+https://nytimes.com/2024/11/01/business/jobs-fed-interest-rates.html
+
 **Tyus Jones has steadied the Suns offense: 'He's exactly what we need'**\
 `Phoenix added the veteran point guard on a minimum contract this summer, and Jones has fixed the team's late-game struggles.`\
 https://nytimes.com/athletic/5890267/2024/11/01/tyus-jones-suns-point-guard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889921/2024/11/01/texas-am-college-football-mike-e
 **Elena Rybakina hires Goran Ivanisevic as new coach**\
 `The world No. 5 will join up with the former Wimbledon champion for the 2025 season and beyond.`\
 https://nytimes.com/athletic/5890523/2024/11/01/elena-rybakina-coach-ivanisevic/
-
-**The Controversy Over Playing the WTA Finals in Saudi Arabia**\
-`In a country that is often criticized over its treatment of women, the tennis world debates the pros and cons of holding the elite women’s tournament there.`\
-https://nytimes.com/2024/11/01/sports/tennis/wta-finals-saudi-arabia.html
 
