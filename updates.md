@@ -1,3 +1,15 @@
+**Rúben Amorim and the Unhelpful Burden of History**\
+`Winning at Manchester United will be tough enough for the club’s new manager. Unfair comparisons with the past won’t help.`\
+https://nytimes.com/2024/11/01/world/europe/ruben-amorim-manchester-united.html
+
+**Live Q&A with Keith Law on free agency, the offseason and more**\
+`Chat live with The Athletic's Keith Law about the free agent class, prospects and more.`\
+https://nytimes.com/athletic/5889163/2024/11/01/live-qa-with-keith-law-on-free-agency-the-offseason-and-more/
+
+**Penguins Today: Hey, look, a win**\
+`The Penguins broke a lengthy losing streak, but they did so in front of a below-capacity home crowd.`\
+https://nytimes.com/athletic/5890737/2024/11/01/penguins-today-winless-streak-ducks/
+
 **Detroit Lions Week 9 playbook: What to know ahead of Packers matchup**\
 `Catch up on what you need to know from this week on the Lions`\
 https://nytimes.com/athletic/5884514/2024/11/01/detroit-lions-week-9-news-projections-preview/
