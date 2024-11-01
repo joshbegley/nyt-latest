@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About ‘Intermezzo’**\
+`Sally Rooney’s new novel explores the relationship between two brothers grieving the death of their father, and follows their complicated love lives with Rooney’s usual panache.`\
+https://nytimes.com/2024/11/01/books/review/book-club-podcast-intermezzo-sally-rooney.html
+
 **Trump’s Economic Vision Has a Lot of Flaws. Here’s Another.**\
 `A new paper undermines the historical narrative at the heart of his love of tariffs.`\
 https://nytimes.com/2024/11/01/opinion/trump-tariffs-manufacturing.html
