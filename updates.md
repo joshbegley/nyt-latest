@@ -1,3 +1,11 @@
+**Formenton sues ex-agent for $20 million while awaiting trial for sexual assault**\
+`Formenton is suing Wade Arnott for negligence, breach of contract and breach of fiduciary duty.`\
+https://nytimes.com/athletic/5890976/2024/11/01/alex-formenton-hockey-canada-lawsuit/
+
+**Anitta Mesmerizes the Weeknd, and 8 More New Songs**\
+`Hear tracks from Ethel Cain, the Black Keys featuring Beck, Ilham and others.`\
+https://nytimes.com/2024/11/01/arts/music/playlist-weeknd-anitta-ethel-cain.html
+
 **Ranking the World Series players who boosted their collectibles value**\
 `The Dodgers and Yankees players who earned a boost in the trading card market during the postseason `\
 https://nytimes.com/athletic/5888636/2024/11/01/world-series-dodgers-yankees-cards-mlb/
