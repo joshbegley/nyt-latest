@@ -1,3 +1,7 @@
+**Maryland Republican Fighting Uphill Battle Pitches Voters on Splitting Their Tickets**\
+`A spot for former Gov. Larry Hogan aims to give Democrats permission to back him over Angela Alsobrooks and still vote for Kamala Harris — or against Donald J. Trump.`\
+https://nytimes.com/2024/11/01/us/politics/larry-hogan-trump-harris.html
+
 **Book Club: Let’s Talk About ‘Intermezzo’**\
 `Sally Rooney’s new novel explores the relationship between two brothers grieving the death of their father, and follows their complicated love lives with Rooney’s usual panache.`\
 https://nytimes.com/2024/11/01/books/review/book-club-podcast-intermezzo-sally-rooney.html
