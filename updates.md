@@ -1,3 +1,7 @@
+**Greg Sankey says SEC will fine teams for faking injuries**\
+`Coaches will be reprimanded and the program will be fined $50,000 on a first offense. A coach will be reprimanded again for a second offense`\
+https://nytimes.com/athletic/5891782/2024/11/01/college-football-faking-injuries-sec-greg-sankey/
+
 **New York Sirens' No. 1 pick Sarah Fillier finally signs. Why is it only a 1-year deal?**\
 `Fillier has finally signed in New York, but the term of the deal is unique for a player of her caliber.`\
 https://nytimes.com/athletic/5891749/2024/11/01/new-york-sirens-pwhl-sarah-filler-contract/
