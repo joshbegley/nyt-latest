@@ -1,3 +1,7 @@
+**Asian American voters could be key swing voters.**\
+`By Amy Qin`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/asian-american-voters-could-be-key-swing-voters
+
 **Israel Strikes Near Beirut as Diplomatic Push Shows No Sign of Success**\
 `The Biden administration sent envoys including the C.I.A. director to the Middle East this week, but Israel, Hezbollah and Hamas all appeared far from a deal to end the fighting.`\
 https://nytimes.com/2024/11/01/world/middleeast/israel-beirut-strikes-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5874171/2024/11/01/premier-league-predicted-lineups
 **How Election Deniers Sank a Security Conference in Georgia**\
 `The gathering had nothing to do with the election. That didn’t stop conspiracy theorists from spreading falsehoods.`\
 https://nytimes.com/2024/11/01/technology/election-deniers-georgia.html
-
-**Disinformation Watchdogs Are Under Pressure. This Group Refuses to Stop.**\
-`Though a larger coalition of fact checkers has disbanded, a team of students and researchers at the University of Washington in Seattle is still working to document how lies online threaten to undermine this year’s presidential race.`\
-https://nytimes.com/2024/11/01/technology/election-disinformation.html
 
