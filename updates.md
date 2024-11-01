@@ -1,3 +1,11 @@
+**Elena Rybakina hires Goran Ivanisevic as new coach**\
+`The world No. 5 will join up with the former Wimbledon champion for the 2025 season and beyond.`\
+https://nytimes.com/athletic/5890523/2024/11/01/elena-rybakina-coach-ivanisevic/
+
+**Manchester United mailbag: Submit your questions after Amorim is confirmed**\
+`Tell us what you would like to know about Erik ten Hag's successor, from what we should expect on the pitch to who he might sign`\
+https://nytimes.com/athletic/5890442/2024/11/01/ruben-amorim-manchester-united-mailbag/
+
 **Why Businesses Worry About R.F.K. Jr.**\
 `The Kennedy scion has long been a skeptic of vaccines, pesticides and more. Corporate leaders worry he may gain policy power if Donald Trump wins.`\
 https://nytimes.com/2024/11/01/business/dealbook/rfk-trump-health-food-policy.html

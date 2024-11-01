@@ -1,3 +1,11 @@
+**Elena Rybakina hires Goran Ivanisevic as new coach**\
+`The world No. 5 will join up with the former Wimbledon champion for the 2025 season and beyond.`\
+https://nytimes.com/athletic/5890523/2024/11/01/elena-rybakina-coach-ivanisevic/
+
+**Manchester United mailbag: Submit your questions after Amorim is confirmed**\
+`Tell us what you would like to know about Erik ten Hag's successor, from what we should expect on the pitch to who he might sign`\
+https://nytimes.com/athletic/5890442/2024/11/01/ruben-amorim-manchester-united-mailbag/
+
 **Why Businesses Worry About R.F.K. Jr.**\
 `The Kennedy scion has long been a skeptic of vaccines, pesticides and more. Corporate leaders worry he may gain policy power if Donald Trump wins.`\
 https://nytimes.com/2024/11/01/business/dealbook/rfk-trump-health-food-policy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5880480/2024/11/01/ruben-amorim-manchester-united-m
 **How did Victor Wembanyama respond to a bad game? With a historic one for the Spurs**\
 `One night after one of his worst games as a pro against Oklahoma City, Wemby posted his second career 5x5 night versus the Jazz.`\
 https://nytimes.com/athletic/5890136/2024/11/01/victor-wembanyama-5x5-spurs/
-
-**They ran an Olympic marathon 12 weeks ago. Now they're back at it in New York**\
-`A host of runners are set for a taxing quadrennial feat — the quick turnaround from the Olympic marathon to the New York City Marathon.`\
-https://nytimes.com/athletic/5873775/2024/11/01/new-york-city-marathon-olympics-olympians-paris/
-
-**‘Phantom of the Opera’ Closed on Broadway. Now It’s Hitting the Road.**\
-`The enduring Andrew Lloyd Webber musical will begin a multiyear tour in Baltimore in November 2025.`\
-https://nytimes.com/2024/11/01/theater/phantom-opera-tour.html
 
