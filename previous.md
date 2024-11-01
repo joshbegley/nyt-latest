@@ -1,3 +1,11 @@
+**Friday Briefing**\
+`Devastating floods in Spain.`\
+https://nytimes.com/2024/11/01/briefing/floods-spain-election-women.html
+
+**Are Bayern Munich any good under Vincent Kompany?**\
+`Olise has exceeded expectations and Musiala is excelling, but there are question marks over their pressing and the breaking down of defences`\
+https://nytimes.com/athletic/5887778/2024/11/01/bayern-munich-analysis-kompany/
+
 **Next week’s waiver wire: Jamaal Williams, Parker Washington and more players to add now — before the Week 10 rush**\
 `John Laghezza shares his top expected future waiver wire plays, including Parker Washington, who is eyeing an expanded role in Jacksonville.`\
 https://nytimes.com/athletic/5888373/2024/11/01/next-weeks-waiver-wire-jfantasy-football-jamaal-williams-parker-washington/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/01/style/darian-aaron-marcus-gresham-wedding.html
 **To Keep His Own Proposal a Secret, He Lied About a Wedding**\
 `When the opera singers Nicholas Martorano and Elizabeth Novella first met, they knew something was meant to be.`\
 https://nytimes.com/2024/11/01/style/nicholas-martorano-elizabeth-novella-wedding.html
-
-**Can Quake-Prone Japan Ever Embrace Nuclear Energy Again?**\
-`The government, its makeup in flux after the ruling party lost seats this week, will soon need to make decisions that will shape Japan’s future nuclear policy.`\
-https://nytimes.com/2024/11/01/business/japan-nuclear-energy-fukushima.html
-
-**A Relationship Built on Music and Laughter**\
-`“We make each other laugh every day,” Jeffrey Grossman said of his bond with Karl Hinze, whom he met in 2009.`\
-https://nytimes.com/2024/11/01/style/jeffrey-grossman-karl-hinze-wedding.html
 
