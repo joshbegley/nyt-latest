@@ -14,7 +14,7 @@ https://nytimes.com/2024/10/31/nyregion/fieldston-school-election-attendance.htm
 `Banchero's absence could derail the up-and-coming Magic from securing a top-six seed.`\
 https://nytimes.com/athletic/5889887/2024/10/31/paolo-banchero-injury-oblique-orlando-magic/
 
-**Maple Leafs report cards: All-around team effort and skill sinks Kraken**\
+**Maple Leafs report cards: All-around team effort and skill sink Kraken**\
 `The Leafs' top-end skill made the difference against the Kraken, a team with excellent depth but few true stars.`\
 https://nytimes.com/athletic/5889455/2024/10/31/maple-leafs-report-cards-kraken-effort/
 
