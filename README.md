@@ -1,5 +1,5 @@
 **As Election Nears, Republicans Blame Child’s Rape on Immigration Crisis**\
-`Wilson Castillo Diaz was arrested last week in New York in connection with the rape of a 5-year-old girl. On Friday, local Republicans blamed Democratic immigration policies.`\
+`Wilson Castillo Diaz was arrested in New York in connection with the rape of a 5-year-old girl. On Friday, local Republicans blamed Democratic immigration policies.`\
 https://nytimes.com/2024/11/01/nyregion/5-year-old-raped-long-island-immigration.html
 
 **Nicolle Wallace Calls on Her Former Boss, George W. Bush, to Denounce Trump**\
