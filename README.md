@@ -1,3 +1,19 @@
+**I Took a ‘Decision Holiday’ and Put A.I. in Charge of My Life**\
+`I thought it would make me put glue on pizza, but instead it entertained my children and got me to finally paint my office. How could it transform our daily lives?`\
+https://nytimes.com/interactive/2024/11/01/technology/generative-ai-decisions-experiment.html
+
+**American-owned Huddersfield lose to non-League side Tamworth in FA Cup upset**\
+`National League side Tamworth FC have knocked out League One side Huddersfield Town from the FA Cup in a first-round upset.`\
+https://nytimes.com/athletic/5891859/2024/11/01/fa-cup-huddersfield-tamworth/
+
+**Will Tim Walz’s rural upbringing lure small-town swing voters?**\
+`By Dionne Searcey`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/will-tim-walzs-rural-upbringing-lure-small-town-swing-voters
+
+**Vote Certification Won’t Be the Biggest Problem on Election Night**\
+`But violence and intimidation remain a significant threat.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/election-night-concerns
+
 **Greg Sankey says SEC will fine teams for faking injuries**\
 `Coaches will be reprimanded and the program will be fined $50,000 on a first offense. A coach will be reprimanded again for a second offense`\
 https://nytimes.com/athletic/5891782/2024/11/01/college-football-faking-injuries-sec-greg-sankey/
@@ -17,20 +33,4 @@ https://nytimes.com/2024/11/01/us/politics/liz-cheney-trump-harris.html
 **Chicago School Board President Resigns Over Social Media Posts**\
 `One week into the job, the Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
 https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html
-
-**Maricopa County, Ariz.**\
-`By Jack Healy`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election/maricopa-county-ariz
-
-**Richard A. Fineberg, Relentless Skeptic of Alaska Pipeline, Dies at 83**\
-`A journalist and an analyst, he was driven to hold oil companies accountable. Earlier, he was on the storied boat Greenpeace when he and others tried to halt a nuclear test.`\
-https://nytimes.com/2024/11/01/climate/richard-a-fineberg-dead.html
-
-**Wave's final home match moved to Louisville due to poor field conditions**\
-`The move also causes the team to delay Alex Morgan's retirement celebration to 2025.`\
-https://nytimes.com/athletic/5891698/2024/11/01/san-diego-wave-poor-field-conditions/
-
-**Canadiens' rare bag skate was a telling sign of the Martin St. Louis era**\
-`When mistakes repeat themselves and lead to constant goals against and losses, a coach is left with few other options than punishment.`\
-https://nytimes.com/athletic/5891737/2024/11/01/canadiens-martin-st-louis-bag-skate/
 
