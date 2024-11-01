@@ -1,3 +1,11 @@
+**Yeat’s Chart Topper and Rage Rap’s New Wave**\
+`A conversation about the mysterious rapper’s rise and the impact of hip-hop’s splintering.`\
+https://nytimes.com/2024/11/01/arts/music/popcast-yeat.html
+
+**On the issues: Where Harris and Trump stand on abortion.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-abortion
+
 **Heidi Klum, Once Again, Won Her Own Halloween Party as E.T.**\
 `The model’s annual bash in New York City drew stars including Nicole Scherzinger, Charli D’Amelio and Bethenny Frankel.`\
 https://nytimes.com/2024/11/01/style/heidi-klum-halloween-party-et-costume.html
@@ -30,8 +38,3 @@ https://nytimes.com/athletic/5890281/2024/11/01/bucks-grizzlies-giannis-antetoko
 `Republicans and Democrats used the latest jobs numbers to bolster their arguments about who would be better at managing the economy.`\
 https://nytimes.com/2024/11/01/business/harris-trump-jobs-report-election.html
 
-**The Bounce: What to expect with Paolo Banchero's untimely absence**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5890516/2024/11/01/paolo-banchero-magic-victor-wembanyama-spurs-nba-the-bounce/
-
-**The New York Area's Top October Sales and Listings**\
