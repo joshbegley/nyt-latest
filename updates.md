@@ -1,3 +1,7 @@
+**Harris Calls Trump’s Violent Language About Liz Cheney ‘Disqualifying’**\
+`Former President Donald J. Trump had suggested that Ms. Cheney, one of his most prominent Republican critics, should be put on a battlefield “with nine barrels shooting at her.”`\
+https://nytimes.com/2024/11/01/us/politics/liz-cheney-trump-harris.html
+
 **Chicago School Board President Resigns Over Social Media Posts**\
 `One week into the job, the Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
 https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html

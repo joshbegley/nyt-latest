@@ -1,3 +1,7 @@
+**Harris Calls Trump’s Violent Language About Liz Cheney ‘Disqualifying’**\
+`Former President Donald J. Trump had suggested that Ms. Cheney, one of his most prominent Republican critics, should be put on a battlefield “with nine barrels shooting at her.”`\
+https://nytimes.com/2024/11/01/us/politics/liz-cheney-trump-harris.html
+
 **Chicago School Board President Resigns Over Social Media Posts**\
 `One week into the job, the Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
 https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/us/2024-gift-guide.html
 **With Days to Go, Trump Courts Apolitical Young Men**\
 `Also, the U.S. fears Ukraine has entered a grim phase. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/11/01/briefing/final-weekend-campaign-us-ukraine-russia.html
-
-**Latino Civil Rights Group Pushes Back on the Myth of Noncitizen Voters**\
-`The League of United Latin American Citizens, which was targeted in Texas’ election fraud case, is teaming up with a Democratic super PAC to counter Republican-led election challenges.`\
-https://nytimes.com/2024/11/01/us/politics/latino-voting-rights-texas-election-fraud.html
 
