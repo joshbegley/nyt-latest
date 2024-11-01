@@ -1,3 +1,11 @@
+**Botswana Voters Hand Governing Party a Stunning Rebuke**\
+`After nearly 60 years, the Botswana Democratic Party lost its majority in Parliament, becoming the latest long-dominant party in southern Africa to fall from power.`\
+https://nytimes.com/2024/11/01/world/africa/botswana-election-results.html
+
+**Different Blackhawks? Standings don't say so after loss to Sharks**\
+`As much as the Blackhawks don't resemble the same abysmal team of a season ago, the standings don't reflect that.`\
+https://nytimes.com/athletic/5889883/2024/11/01/blackhawks-lose-san-jose-sharks/
+
 **Jimmy Kimmel Trashes Trump’s ‘Cosplay Garbage Man’**\
 `Kimmel said that when Trump delivered a speech while wearing an orange safety vest, it was “like a 4-year-old who wants to wear his costume to school.”`\
 https://nytimes.com/2024/11/01/arts/television/jimmy-kimmel-trump-garbage-man.html
