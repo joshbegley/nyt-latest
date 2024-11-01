@@ -1,3 +1,11 @@
+**Scenes from a Dodgers World Series parade: 'Best thing I've ever been a part of'**\
+`Fans denied a parade after the 2020 title made up for lost time with a raucous, emotional celebration this time. `\
+https://nytimes.com/athletic/5891906/2024/11/01/dodgers-parade-world-series-celebration/
+
+**Supreme Court Rejects Bid to Block Count of Some Pennsylvania Provisional Ballots**\
+`Republicans had asked the justices to pause a state court order requiring election boards to count provisional ballots by voters whose mail-in ballots were deemed invalid.`\
+https://nytimes.com/2024/11/01/us/politics/supreme-court-pennsylvania-ballots.html
+
 **Montana Camper Offered His Killer a Beer Before He Was Murdered, Police Say**\
 `DNA from a beer can helped lead the authorities to an arrest in the killing of Dustin Kjersem, whose death was originally reported as a possible bear attack, officials said.`\
 https://nytimes.com/2024/11/01/us/montana-camper-suspect-charged.html
