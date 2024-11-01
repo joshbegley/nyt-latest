@@ -1,3 +1,31 @@
+**What to Know About ‘The Apprentice,’ the Controversial Donald Trump Biopic**\
+`The film, now available on demand, followed a thorny path to distribution — including the threat of a lawsuit by its subject.`\
+https://nytimes.com/2024/11/01/movies/the-apprentice-trump-cohn.html
+
+**Xenophobia and Hate Speech Are Spiking Heading into the Election**\
+`Leading Republican politicians and lax social media controls have contributed to a proliferation of hate rhetoric and anti-immigrant sentiment.`\
+https://nytimes.com/2024/11/01/world/asia/xenophobia-hate-speech-increase-election.html
+
+**She Was the First Nicaraguan to Be Crowned Miss Universe. Can She Ever Go Home?**\
+`After Sheynnis Palacios won the Miss Universe title, her country’s government arrested the family members of the Miss Nicaragua contest director, and she hasn’t returned home since.`\
+https://nytimes.com/2024/11/01/world/americas/miss-universe-nicaragua.html
+
+**Can Axions Save the Universe?**\
+`The hunt for dark matter is shifting from particles to waves named after a laundry detergent.`\
+https://nytimes.com/2024/11/01/science/astrophysics-cosmology-axions.html
+
+**For Day of the Dead, a Burst of Flowers to Honor the Departed**\
+`During the Day of the Dead, the cempasúchil, or marigold, is believed to guide spirits back home. In Mexico City, people who lost a loved one to Covid use the flower to honor their dead.`\
+https://nytimes.com/2024/11/01/opinion/day-of-the-dead-mexico.html
+
+**Northern Ireland vs Belarus to be played in Belfast as planned after visas granted**\
+`Northern Ireland&#8217;s UEFA Nations League match against Belarus this month will go ahead as planned after the visiting side were granted visas by the British government.`\
+https://nytimes.com/athletic/5890278/2024/11/01/northern-ireland-belarus-belfast-nations-league/
+
+**más y más y más flores**\
+`During the Day of the Dead, the cempasúchil, or marigold, is believed to guide spirits back home. In Mexico City, people who lost a loved one to Covid use the flower to honor their dead.`\
+https://nytimes.com/video/opinion/100000009295662/mas-y-mas-y-mas-flores.html
+
 **Garrett Wilson's miraculous catch just might have saved the Jets' season**\
 `The one-handed, losing-streak-snapping grab will go down as one of the greatest catches in NFL history.`\
 https://nytimes.com/athletic/5890234/2024/11/01/garrett-wilson-catch-new-york-jets-win-houston-texans/
@@ -9,32 +37,4 @@ https://nytimes.com/2024/11/01/nyregion/daniel-penny-trial-jordan-neely.html
 **Breeders’ Cup Arrives in California, Where Horse Racing Is Struggling**\
 `The state looms large in the sport’s history, and its tracks are stunning. But horse racing in California is going broke.`\
 https://nytimes.com/2024/11/01/business/breeders-cup-horse-racing-gambling.html
-
-**Sprinting to Election Day, in Spanish**\
-`A team of editors and translators help communicate election coverage to Spanish-speaking readers, which comes with its own set of unique challenges.`\
-https://nytimes.com/2024/11/01/insider/election-coverage-in-spanish.html
-
-**These Are the Best Places to Cheer for the New York City Marathon**\
-`Here’s our guide to picking a good cheering location, whether you are following one runner’s progress or looking for a good spot to park yourself for the day.`\
-https://nytimes.com/2024/11/01/nyregion/new-york-city-marathon-where-to-cheer.html
-
-**Why There’s a Fierce Pushback Against 5 N.Y.C. Ballot Proposals**\
-`A broad coalition opposes the citywide questions placed on the ballot by Mayor Eric Adams’s charter revision commission, saying they weaken City Council power.`\
-https://nytimes.com/2024/11/01/nyregion/adams-ny-ballot-questions.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/01/crosswords/spelling-bee-forum.html
-
-**Arsenal Today: Arteta's public persona, Nwaneri decision and unlocking Jesus**\
-`Jordan Campbell answers three questions on the minds of our team of Arsenal reporters today`\
-https://nytimes.com/athletic/5889708/2024/11/01/arsenal-today-november-1/
-
-**Trump Attacks Liz Cheney Using Violent War Imagery**\
-`In an onstage interview in Arizona with Tucker Carlson, former President Donald J. Trump slammed a top Republican critic as he criticized U.S. involvement in foreign conflicts.`\
-https://nytimes.com/2024/11/01/us/politics/trump-liz-cheney-tucker-carlson.html
-
-**Botswana Voters Hand Governing Party a Stunning Rebuke**\
-`After nearly 60 years, the Botswana Democratic Party lost its majority in Parliament, becoming the latest long-dominant party in southern Africa to fall from power.`\
-https://nytimes.com/2024/11/01/world/africa/botswana-election-results.html
 
