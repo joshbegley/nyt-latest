@@ -1,3 +1,15 @@
+**Canadiens' rare bag skate was a telling sign of the Martin St. Louis era**\
+`When mistakes repeat themselves and lead to constant goals against and losses, a coach is left with few other options than punishment.`\
+https://nytimes.com/athletic/5891737/2024/11/01/canadiens-martin-st-louis-bag-skate/
+
+**Halloween Parade Float in Pennsylvania Denounced as Racist**\
+`Daylon A. Davis, the president of the N.A.A.C.P.’s Pittsburgh branch, said he was deeply disturbed by the way Vice President Kamala Harris was depicted.`\
+https://nytimes.com/2024/11/01/us/politics/pennsylvania-halloween-parade-float-racist.html
+
+**2024 Holiday Gift Guide**\
+`Wondering what to get for all the beloved people in your life, whether they be quirky, picky, fancy or frugal? Our experts have curated the best gifts to help you check everyone off your list.`\
+https://nytimes.com/interactive/2024/us/2024-gift-guide.html
+
 **With Days to Go, Trump Courts Apolitical Young Men**\
 `Also, the U.S. fears Ukraine has entered a grim phase. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/11/01/briefing/final-weekend-campaign-us-ukraine-russia.html
