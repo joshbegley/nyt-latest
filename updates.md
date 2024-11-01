@@ -1,3 +1,7 @@
+**Kuminga, Reaves and other names to watch as NBA trade market takes shape**\
+`As the season rolls along, these players could move the needle when it comes to front offices looking to make a splash.`\
+https://nytimes.com/athletic/5889550/2024/11/01/nba-trade-rumors-jonathan-kuminga-austin-reeves-jalen-green/
+
 **Bears trade deadline questions: Should they deal one of their second-round picks?**\
 `Will GM Ryan Poles give up draft capital to help this year's team? Should he trade Nate Davis and/or Khalil Herbert?`\
 https://nytimes.com/athletic/5888992/2024/11/01/bears-trade-deadline-second-round-picks/
