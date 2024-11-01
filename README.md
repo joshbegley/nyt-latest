@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5889695/2024/11/01/canucks-report-cards-october/
 
 **Veto Power in the Balance, Nevada’s G.O.P. Governor Keeps Trump at Arm’s Length**\
 `Republicans believe a strong Donald Trump victory would ensure that Gov. Joe Lombardo could keep overriding Democratic priorities. But Mr. Lombardo is operating outside the state party, and largely away from Mr. Trump.`\
-https://nytimes.com/2024/11/01/us/politics/veto-power-in-the-balance-nevadas-gop-governor-keeps-trump-at-arms-length.html
+https://nytimes.com/2024/11/01/us/politics/lombardo-nevada-governor-trump.html
 
 **The Fight for the House Is on a Knife’s Edge**\
 `Public and private polling this cycle, as well as strategists in both parties, point to one of the tightest contests yet for the House majority, in races that stretch from California to Nebraska to Virginia.`\
@@ -23,7 +23,7 @@ https://nytimes.com/2024/11/01/business/tsunehisa-katsumata-dead.html
 https://nytimes.com/2024/11/01/us/politics/alabama-house-dobson-figures-congress.html
 
 **WTA Tour chief executive defends 'values' ahead of Saudi tournament**\
-`The new head of women's tennis said she misspoke in saying that tournament hosts need not align with WTA values.`\
+`Portia Archer, who took over from Steve Simon, said she misspoke in saying that tournament hosts need not align with WTA values.`\
 https://nytimes.com/athletic/5890975/2024/11/01/wta-tour-finals-saudi-arabia-values/
 
 **Premier League predicted lineups: Who do our writers think will start in Gameweek 10?**\
