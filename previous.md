@@ -1,3 +1,7 @@
+**Magic's Paolo Banchero sidelined indefinitely with oblique tear**\
+`Banchero's absence could derail the up-and-coming Magic from securing a top-six seed.`\
+https://nytimes.com/athletic/5889887/2024/10/31/paolo-banchero-injury-oblique-orlando-magic/
+
 **Maple Leafs report cards: All-around team effort and skill sinks Kraken**\
 `The Leafs' top-end skill made the difference against the Kraken, a team with excellent depth but few true stars.`\
 https://nytimes.com/athletic/5889455/2024/10/31/maple-leafs-report-cards-kraken-effort/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888942/2024/10/31/bucks-khris-middleton-injury-upd
 **Vance Tells Rogan: Teens Become Trans to Get Into Ivy League**\
 `Appearing on Joe Rogan’s podcast, Senator JD Vance also said that liberal women celebrate their abortions and that Donald Trump would win the “normal gay guy vote.”`\
 https://nytimes.com/2024/10/31/us/politics/jd-vance-joe-rogan.html
-
-**Rams’ Puka Nacua leaves Thursday practice with knee injury**\
-`Nacua returned early from the sprained PCL to play in last Thursday night’s win against the Minnesota Vikings.`\
-https://nytimes.com/athletic/5889624/2024/10/31/rams-puka-nacua-knee-injury/
 
