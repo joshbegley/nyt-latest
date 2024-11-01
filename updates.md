@@ -1,3 +1,11 @@
+**Have clubs promoted to the Premier League become too sensible?**\
+`Throwing money at expensive, past-their-best footballers isn’t advisable. But it is exciting`\
+https://nytimes.com/athletic/5888384/2024/11/01/premier-league-clubs-too-sensible/
+
+**How Manchester United could line up under Amorim: The biggest winners and losers**\
+`Explaining Amorim's likely Manchester United formation and what it means for the players left behind by Erik ten Hag`\
+https://nytimes.com/athletic/5875921/2024/11/01/amorim-manchester-united-line-up/
+
 **Friday Briefing**\
 `Devastating floods in Spain.`\
 https://nytimes.com/2024/11/01/briefing/floods-spain-election-women.html
