@@ -1,3 +1,7 @@
+**Caleb Williams' opportunity, slow starts, trust in coaches: Bears mailbag, Week 9 picks**\
+`What is the Bears' spookiest concern: O-line, coaching or the injury report? Plus Bears-Cardinals fun facts.`\
+https://nytimes.com/athletic/5889294/2024/11/01/caleb-williams-bears-mailbag-cardinals/
+
 **Why the Raiders are expected to stand pat at the NFL trade deadline**\
 `The Raiders, barring a miraculous turnaround, won't sniff the playoffs. But internally they don't believe the roster needs a teardown.`\
 https://nytimes.com/athletic/5888693/2024/11/01/raiders-nfl-trade-deadline-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889782/2024/11/01/garrett-wilson-catch-jets-texans
 **The Races for Congress**\
 `We preview next week’s elections and what a divided or united government might mean for each party.`\
 https://nytimes.com/2024/11/01/briefing/congressional-races-2024-election.html
-
-**Jobs Data Come as the Fed Stares Down a Complex Moment**\
-`Growth has been resilient, but inflation is cooling. The combination makes it hard to guess how much policymakers will lower rates.`\
-https://nytimes.com/2024/11/01/business/jobs-federal-reserve-interest-rates.html
 

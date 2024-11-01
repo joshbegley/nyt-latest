@@ -1,3 +1,31 @@
+**Why the Raiders are expected to stand pat at the NFL trade deadline**\
+`The Raiders, barring a miraculous turnaround, won't sniff the playoffs. But internally they don't believe the roster needs a teardown.`\
+https://nytimes.com/athletic/5888693/2024/11/01/raiders-nfl-trade-deadline-2024/
+
+**Why the Oilers' optimal deployment of Jeff Skinner is a work in progress**\
+`Since the regular season began, Skinner has been a performance leader for the Oilers.`\
+https://nytimes.com/athletic/5886865/2024/11/01/oilers-jeff-skinner-stats-lineup/
+
+**Consumer spending continues to drive economic growth.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-election/consumer-spending-continues-to-drive-economic-growth
+
+**Franco Colapinto's F1 success has captured the attention of Argentina**\
+`Colapinto has captured the attention of Argentine media. Will it last?`\
+https://nytimes.com/athletic/5889058/2024/11/01/formula-one-franco-colapinto-argentina-messi/
+
+**Broncos believe Bo Nix can handle the heat as biggest tests — Ravens, Chiefs — loom**\
+`Nix won the NFL's Offensive Rookie of the Month award for October on Thursday, but he can he keep climbing amid a brutal November schedule?`\
+https://nytimes.com/athletic/5889007/2024/11/01/bo-nix-broncos-ravens-week-9/
+
+**Leon Draisaitl stepping up without Connor McDavid again proves he's NHL all-timer**\
+`Draisaitl scored two skillful goals and added an assist in the Oilers' 5-1 win over the Predators.`\
+https://nytimes.com/athletic/5890191/2024/11/01/leon-draisaitl-connor-mcdavid-oilers-nhl-all-timer/
+
+**Manchester United's players need to prove they can do what Amorim needs them to**\
+`Ruben Amorim is on the cusp of joining United — can the players do what he demands of them?`\
+https://nytimes.com/athletic/5888457/2024/11/01/manchester-united-players-ruben-amorim/
+
 **The Pulse: You have to see this catch**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5889782/2024/11/01/garrett-wilson-catch-jets-texans-the-pulse/
@@ -9,32 +37,4 @@ https://nytimes.com/2024/11/01/briefing/congressional-races-2024-election.html
 **Jobs Data Come as the Fed Stares Down a Complex Moment**\
 `Growth has been resilient, but inflation is cooling. The combination makes it hard to guess how much policymakers will lower rates.`\
 https://nytimes.com/2024/11/01/business/jobs-federal-reserve-interest-rates.html
-
-**Destructive Israeli Raid in West Bank Kills 5, Palestinians Say**\
-`The Israeli military said its soldiers had engaged in close combat in the Nur Shams area of the occupied territory.`\
-https://nytimes.com/2024/11/01/world/middleeast/israel-west-bank-raid.html
-
-**Emma Hayes balanced USWNT celebration with evaluation: 'I got out of it what I wanted'**\
-`Head coach Emma Hayes is only getting started with her evaluation of the U.S. player pool.`\
-https://nytimes.com/athletic/5889195/2024/11/01/emma-hayes-uswnt-october-call-ups/
-
-**Arteta: Gabriel on track for Newcastle trip, White a doubt**\
-`Arsenal manager Mikel Arteta says Gabriel is on track to be fit for Saturday&#8217;s Premier League trip to Newcastle United but Ben White is an injury doubt.`\
-https://nytimes.com/athletic/5888604/2024/11/01/gabriel-ben-white-injury-arsenal/
-
-**What can the Chiefs expect from Joshua Uche, their new pass rusher?**\
-`Why the deal with the Patriots made sense for the Chiefs, how Uche fits this season and what his film in New England shows.`\
-https://nytimes.com/athletic/5889654/2024/11/01/chiefs-trade-joshua-uche-pass-rusher/
-
-**Vikings-Colts preview, predictions: Can Minnesota end its losing streak on 'SNF'?**\
-`The last time these teams played, the Vikings put together the greatest comeback in NFL history. What should we expect this time around?`\
-https://nytimes.com/athletic/5888679/2024/11/01/vikings-colts-preview-predictions-snf-tj-hockenson/
-
-**Fantasy Premier League live Q&A: FPL Gameweek 10 advice from Ben Dinnery**\
-`Gameweek 10 is almost upon us - and there are, as usual, there are plenty of tough decisions to be made`\
-https://nytimes.com/athletic/5890299/2024/11/01/fantasy-premier-league-advice-injury-news-gw10/
-
-**'You’re kind of like a DJ in a club:' Inside the search to score EA FC, NBA2k**\
-`How EA Sports FC, NBA 2K and other video game behemoths seek out the soundtrack of sports`\
-https://nytimes.com/athletic/5889565/2024/11/01/ea-sports-fc-nba-2k-madden-soundtrack/
 
