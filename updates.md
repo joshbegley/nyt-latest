@@ -1,3 +1,11 @@
+**Destructive Israeli Raid in West Bank Kills 5, Palestinians Say**\
+`The Israeli military said its soldiers had engaged in close combat in the Nur Shams area of the occupied territory.`\
+https://nytimes.com/2024/11/01/world/middleeast/israel-west-bank-raid.html
+
+**Emma Hayes balanced USWNT celebration with evaluation: 'I got out of it what I wanted'**\
+`Head coach Emma Hayes is only getting started with her evaluation of the U.S. player pool.`\
+https://nytimes.com/athletic/5889195/2024/11/01/emma-hayes-uswnt-october-call-ups/
+
 **Arteta: Gabriel on track for Newcastle trip, White a doubt**\
 `Arsenal manager Mikel Arteta says Gabriel is on track to be fit for Saturday&#8217;s Premier League trip to Newcastle United but Ben White is an injury doubt.`\
 https://nytimes.com/athletic/5888604/2024/11/01/gabriel-ben-white-injury-arsenal/
