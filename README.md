@@ -1,3 +1,15 @@
+**What to know about the report.**\
+`As Americans go to the polls, strikes and hurricanes will generate some static, but the underlying signal still points to a healthy labor market.`\
+https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-election/jobs-report-october
+
+**Election Uncertainty Looms Over Hiring**\
+`Some employers say they have been wary to expand until the outcome of the presidential election is known.`\
+https://nytimes.com/2024/11/01/business/election-uncertainty-jobs-economy.html
+
+**Live Updates: Jobs in Focus in Last Key Report Before Election**\
+`Economists expect that employers added 110,000 jobs in October, a slowdown that would partly reflect hurricane disruptions and labor strikes.`\
+https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-election
+
 **Kuminga, Reaves and other names to watch as NBA trade market takes shape**\
 `As the season rolls along, these players could move the needle when it comes to front offices looking to make a splash.`\
 https://nytimes.com/athletic/5889550/2024/11/01/nba-trade-rumors-jonathan-kuminga-austin-reeves-jalen-green/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/01/well/how-to-achieve-goals.html
 **When to Expect Results in Each State on Election Night, and Beyond**\
 `The Times surveyed election officials in all 50 states to learn how they will count the votes, and when we might know the outcome in the battleground states.`\
 https://nytimes.com/interactive/2024/us/elections/results-timing-presidential-race-calls.html
-
-**Do I Have to Speak Up if Someone Fails to Cash My Check?**\
-`The magazine’s Ethicist columnist on the duty one has to rectify accounting errors and other billing mistakes.`\
-https://nytimes.com/2024/11/01/magazine/check-errors-ethics.html
-
-**The New York Times Election Week News Quiz, Nov. 1, 2024**\
-`This week we’ve got a special edition of the news quiz, focused entirely on the upcoming election.`\
-https://nytimes.com/interactive/2024/11/01/briefing/01news-quiz.html
-
-**Kamala Harris Can Make History, Whether or Not She Wants to Talk About It**\
-`Don’t let the monarch of Mar-a-Lago take back his throne.`\
-https://nytimes.com/2024/11/01/opinion/trump-gender-election-voting.html
 
