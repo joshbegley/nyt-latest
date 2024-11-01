@@ -1,3 +1,7 @@
+**Jobs Data Come as the Fed Stares Down a Complex Moment**\
+`Growth has been resilient, but inflation is cooling. The combination makes it hard to guess how much policymakers will lower rates.`\
+https://nytimes.com/2024/11/01/business/jobs-federal-reserve-interest-rates.html
+
 **Destructive Israeli Raid in West Bank Kills 5, Palestinians Say**\
 `The Israeli military said its soldiers had engaged in close combat in the Nur Shams area of the occupied territory.`\
 https://nytimes.com/2024/11/01/world/middleeast/israel-west-bank-raid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889422/2024/11/01/colts-anthony-richardson-future-
 **Billionaire Game Theory + We Are Not Ready for A.G.I. + Election Betting Markets Get Weird**\
 `“If I had $1 billion, how would I try to influence the results of this election?”`\
 https://nytimes.com/2024/11/01/podcasts/billionaire-game-theory-we-are-not-ready-for-agi-election-betting-markets-get-weird.html
-
-**Lloyd: Cavaliers rolling on rare course to start season**\
-`It's too early to celebrate fully, but the numbers say more good things may be on the horizon in Cleveland.`\
-https://nytimes.com/athletic/5889418/2024/11/01/nba-cleveland-cavaliers-start/
 

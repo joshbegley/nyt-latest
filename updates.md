@@ -1,3 +1,7 @@
+**Jobs Data Come as the Fed Stares Down a Complex Moment**\
+`Growth has been resilient, but inflation is cooling. The combination makes it hard to guess how much policymakers will lower rates.`\
+https://nytimes.com/2024/11/01/business/jobs-federal-reserve-interest-rates.html
+
 **Destructive Israeli Raid in West Bank Kills 5, Palestinians Say**\
 `The Israeli military said its soldiers had engaged in close combat in the Nur Shams area of the occupied territory.`\
 https://nytimes.com/2024/11/01/world/middleeast/israel-west-bank-raid.html
