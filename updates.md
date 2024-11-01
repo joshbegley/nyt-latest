@@ -1,3 +1,7 @@
+**Charles Leclerc fined by FIA after using inappropriate language at Mexico Grand Prix**\
+`Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
+https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
+
 **Canadian Police Say They Dismantled Country’s Largest Drug Lab**\
 `Federal officers in British Columbia seized drugs and chemical precursors that could produce about 96 million opioid doses, the authorities said.`\
 https://nytimes.com/2024/11/01/world/canada/canada-drug-lab-fentanyl.html

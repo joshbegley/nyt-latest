@@ -1,3 +1,7 @@
+**Charles Leclerc fined by FIA after using inappropriate language at Mexico Grand Prix**\
+`Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
+https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
+
 **Canadian Police Say They Dismantled Country’s Largest Drug Lab**\
 `Federal officers in British Columbia seized drugs and chemical precursors that could produce about 96 million opioid doses, the authorities said.`\
 https://nytimes.com/2024/11/01/world/canada/canada-drug-lab-fentanyl.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/30/opinion/thepoint/election-night-concerns
 **Greg Sankey says SEC will fine teams for faking injuries**\
 `Coaches will be reprimanded and the program will be fined $50,000 on a first offense. A coach will be reprimanded again for a second offense`\
 https://nytimes.com/athletic/5891782/2024/11/01/college-football-faking-injuries-sec-greg-sankey/
-
-**New York Sirens' No. 1 pick Sarah Fillier finally signs. Why is it only a 1-year deal?**\
-`Fillier has finally signed in New York, but the term of the deal is unique for a player of her caliber.`\
-https://nytimes.com/athletic/5891749/2024/11/01/new-york-sirens-pwhl-sarah-filler-contract/
 
