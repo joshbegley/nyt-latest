@@ -1,3 +1,7 @@
+**Newcastle vs Arsenal preview: Storylines, odds, prediction as Gunners look to bounce back**\
+`Newcastle is winless in their last five Premier League matches and have a tough task with Arsenal visiting St James' Park.`\
+https://nytimes.com/athletic/5880956/2024/11/01/newcastle-arsenal-preview-odds-prediction/
+
 **Yankees exercise option on Luke Weaver**\
 `The Yankees exercised a $2.5 million club option for Weaver, who became the team's closer in September.`\
 https://nytimes.com/athletic/5892053/2024/11/01/yankees-options-luke-weaver-anthony-rizzo-lou-trivino/

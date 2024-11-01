@@ -1,3 +1,7 @@
+**Newcastle vs Arsenal preview: Storylines, odds, prediction as Gunners look to bounce back**\
+`Newcastle is winless in their last five Premier League matches and have a tough task with Arsenal visiting St James' Park.`\
+https://nytimes.com/athletic/5880956/2024/11/01/newcastle-arsenal-preview-odds-prediction/
+
 **Yankees exercise option on Luke Weaver**\
 `The Yankees exercised a $2.5 million club option for Weaver, who became the team's closer in September.`\
 https://nytimes.com/athletic/5892053/2024/11/01/yankees-options-luke-weaver-anthony-rizzo-lou-trivino/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/us/politics/harris-trump-womens-health-election.h
 **F1's Charles Leclerc fined by FIA after using inappropriate language at Mexico City GP**\
 `Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
 https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
-
-**Canadian Police Say They Dismantled Country’s Largest Drug Lab**\
-`Federal officers in British Columbia seized drugs and chemical precursors that could produce about 96 million opioid doses, the authorities said.`\
-https://nytimes.com/2024/11/01/world/canada/canada-drug-lab-fentanyl.html
 
