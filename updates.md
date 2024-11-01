@@ -1,3 +1,7 @@
+**Joel Embiid to critics: 'I’ve done way too much for this f------ city'**\
+`Embiid, who has not played this season due to "left knee injury management," said the idea that he wants to sit games out is 'bull----.'`\
+https://nytimes.com/athletic/5891762/2024/11/01/joel-embiid-injury-update-criticism-76ers/
+
 **I Took a ‘Decision Holiday’ and Put A.I. in Charge of My Life**\
 `I thought it would make me put glue on pizza, but instead it entertained my children and got me to finally paint my office. How could it transform our daily lives?`\
 https://nytimes.com/interactive/2024/11/01/technology/generative-ai-decisions-experiment.html
