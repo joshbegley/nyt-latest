@@ -1,3 +1,11 @@
+**Spurs' Victor Wembanyama has second 5x5 night of his career**\
+`Wembanyama tallied 25 points, nine rebounds, seven assists, five blocks and five steals in the Spurs' 106-88 win over the Jazz.`\
+https://nytimes.com/athletic/5890021/2024/10/31/victor-wembanyama-stats-spurs-jazz/
+
+**Ersson is the Flyers' only reliable option in net right now. Should they ride him?**\
+`The Flyers have yet to win with a goaltender other than Ersson in net.`\
+https://nytimes.com/athletic/5890010/2024/10/31/flyers-samuel-ersson-goalie-workload/
+
 **Why Craig Berube should give William Nylander what he wants**\
 `The Leafs forward has made his desire for more ice time known both privately and publicly.`\
 https://nytimes.com/athletic/5889927/2024/10/31/william-nylander-ice-time-berube-leafs/
