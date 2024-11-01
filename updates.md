@@ -1,3 +1,7 @@
+**Mike Conley's postseason heroics give him confidence to play through early slump**\
+`Conley has been hampered by a left wrist injury. "When I’m 50, I’ll get surgery," Conley said. "Not right now."`\
+https://nytimes.com/athletic/5885892/2024/11/01/mike-conley-timberwolves-slump/
+
 **Muddled Jobs Data May Do Little to Alter Immediate Fed Rate Path**\
 `Officials at the Federal Reserve are widely expected to cut rates by a quarter point next week.`\
 https://nytimes.com/2024/11/01/business/jobs-fed-interest-rates.html

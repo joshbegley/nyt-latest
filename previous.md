@@ -1,3 +1,7 @@
+**Mike Conley's postseason heroics give him confidence to play through early slump**\
+`Conley has been hampered by a left wrist injury. "When I’m 50, I’ll get surgery," Conley said. "Not right now."`\
+https://nytimes.com/athletic/5885892/2024/11/01/mike-conley-timberwolves-slump/
+
 **Muddled Jobs Data May Do Little to Alter Immediate Fed Rate Path**\
 `Officials at the Federal Reserve are widely expected to cut rates by a quarter point next week.`\
 https://nytimes.com/2024/11/01/business/jobs-fed-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875169/2024/11/01/lakers-trends-anthony-davis-star
 **Mike Elko's secret weapon at Texas A&M is a 64-year-old back from a hiatus**\
 `Mike Elko felt his most important hire at Texas A&M would be his strength coach. Was he right? `\
 https://nytimes.com/athletic/5889921/2024/11/01/texas-am-college-football-mike-elko-tommy-moffitt/
-
-**Elena Rybakina hires Goran Ivanisevic as new coach**\
-`The world No. 5 will join up with the former Wimbledon champion for the 2025 season and beyond.`\
-https://nytimes.com/athletic/5890523/2024/11/01/elena-rybakina-coach-ivanisevic/
 
