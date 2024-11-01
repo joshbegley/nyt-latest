@@ -1,3 +1,7 @@
+**How Virgil van Dijk added another layer to his game at Arne Slot's Liverpool**\
+`Virgil van Dijk has always been a key player for Liverpool, but this season he's added another dimension to his game `\
+https://nytimes.com/athletic/5887619/2024/11/01/van-dijk-liverpool-slot-analysis/
+
 **Spurs must keep embracing big cup nights - top four should not be their everything**\
 `After a night of cup glory, focus will quickly return to the Premier League and Aston Villa — but should the league be any bigger a priority`\
 https://nytimes.com/athletic/5888317/2024/11/01/tottenham-cup-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5887996/2024/11/01/aston-villa-trophy-drought-emery
 **Forest suddenly have several players knocking on England's door - and Nuno couldn't be happier**\
 `It is testament to Forest's superb start to the season that a handful of their squad will be hopeful of playing for England soon`\
 https://nytimes.com/athletic/5888509/2024/11/01/nottingham-forest-england-players/
-
-**Fantasy Premier League: Chris Wood and other budget forwards analysed**\
-`While big-name players are commonly picked in FPL, the cost-effective options are usually the ones that are the differentiators`\
-https://nytimes.com/athletic/5884873/2024/11/01/fantasy-premier-league-chris-wood-and-other-budget-forwards-analysed/
 
