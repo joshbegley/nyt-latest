@@ -1,3 +1,7 @@
+**Nicole Wallace Calls on Her Former Boss, George W. Bush, to Denounce Trump**\
+`Ms. Wallace, who served as the communications director in the Bush White House, made the appeal on her MSNBC program.`\
+https://nytimes.com/2024/11/01/us/politics/george-w-bush-nicole-wallace-2024-election.html
+
 **Newcastle vs Arsenal preview: Storylines, odds, prediction as Gunners look to bounce back**\
 `Newcastle is winless in their last five Premier League matches and have a tough task with Arsenal visiting St James' Park.`\
 https://nytimes.com/athletic/5880956/2024/11/01/newcastle-arsenal-preview-odds-prediction/
