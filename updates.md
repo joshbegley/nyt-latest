@@ -1,3 +1,7 @@
+**Prime Tire: Early surprises at the Brazil GP. Plus, the rise of an unlikely F1 star**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/5891286/2024/11/01/brazil-gp-colapinto-verstappen-prime-tire/
+
 **Trump’s Attack on Liz Cheney Is Just as Malicious as It Appears**\
 `It went far beyond a chicken-hawk accusation.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-cheney-attack-chicken-hawk
