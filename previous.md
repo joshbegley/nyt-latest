@@ -2,7 +2,7 @@
 `Sitting last in the Atlantic Division, the Bruins are running out of time. And Montgomery has yet to find a fix for any of their problems.`\
 https://nytimes.com/athletic/5889955/2024/10/31/bruins-hurricanes-coach-jim-montgomery/
 
-**‘Distressed’ Students at Elite School Can Take a Day Off After Election**\
+**Elite School Will Offer a Day Off for Students Distressed by Election**\
 `Attendance on Wednesday, or whatever day the results are announced, is optional for high school students at the Ethical Culture Fieldston School in New York City, families were told.`\
 https://nytimes.com/2024/10/31/nyregion/fieldston-school-election-attendance.html
 
