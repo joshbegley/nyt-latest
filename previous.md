@@ -1,3 +1,7 @@
+**Heidi Klum, Once Again, Won Her Own Halloween Party as E.T.**\
+`The model’s annual bash in New York City drew stars including Nicole Scherzinger, Charli D’Amelio and Bethenny Frankel.`\
+https://nytimes.com/2024/11/01/style/heidi-klum-halloween-party-et-costume.html
+
 **Providing Care for the Mentally Ill and Homeless**\
 `Readers praise an outreach program on the streets of California. Also: Election panic; the climate stakes; election fraud; questions for Trump and Vance.`\
 https://nytimes.com/2024/11/01/opinion/mentally-ill-homeless-care.html
