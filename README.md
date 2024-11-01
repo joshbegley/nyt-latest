@@ -1,3 +1,7 @@
+**Ranking the World Series players who boosted their collectibles value**\
+`The Dodgers and Yankees players who earned a boost in the trading card market during the postseason `\
+https://nytimes.com/athletic/5888636/2024/11/01/world-series-dodgers-yankees-cards-mlb/
+
 **Watch a Nightclub Scene in ‘Blitz’**\
 `The writer and director Steve McQueen discusses a sequence set in the Café de Paris in London.`\
 https://nytimes.com/2024/11/01/movies/blitz-clip-steve-mcqueen.html
@@ -18,7 +22,7 @@ https://nytimes.com/2024/11/01/world/australia/airport-hug-time-limit.html
 `Can Tyler Herro help Miami's offense sustain a full-game rhythm against the Wizards in Mexico City?`\
 https://nytimes.com/athletic/5890960/2024/11/01/tyler-herro-miami-heat-washington-wizards-nba-mexico-city/
 
-**U.S. Spy Agencies to Issue New Warning on Russia’s Election Misinformation Campaign**\
+**U.S. Spy Agencies Issue New Warning on Russia’s Election Misinformation Campaign**\
 `Two recent videos have sought to undermine confidence in the security of the vote.`\
 https://nytimes.com/2024/11/01/us/politics/russia-election-misinformation.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-electio
 **Asian American voters could be key swing voters.**\
 `By Amy Qin`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/asian-american-voters-could-be-key-swing-voters
-
-**Israel Strikes Near Beirut as Diplomatic Push Shows No Sign of Success**\
-`The Biden administration sent envoys including the C.I.A. director to the Middle East this week, but Israel, Hezbollah and Hamas all appeared far from a deal to end the fighting.`\
-https://nytimes.com/2024/11/01/world/middleeast/israel-beirut-strikes-hezbollah.html
 
