@@ -1,3 +1,7 @@
+**From A.I. to Musk’s Brain Chips, the F.D.A.’s Device Unit Faces Rapid Change**\
+`The new director overseeing medical devices will confront criticisms about hasty approvals as she ushers in revolutionary technology.`\
+https://nytimes.com/2024/11/01/health/fda-ai-elon-musk-medical-devices.html
+
 **So … How Does the Electoral College Work, Again?**\
 `It’s weird. It’s confusing. It’s how we elect the president.`\
 https://nytimes.com/2024/11/01/magazine/electoral-college-explainer.html
