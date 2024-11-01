@@ -1,3 +1,7 @@
+**Arteta: Gabriel on track for Newcastle trip, White a doubt**\
+`Arsenal manager Mikel Arteta says Gabriel is on track to be fit for Saturday&#8217;s Premier League trip to Newcastle United but Ben White is an injury doubt.`\
+https://nytimes.com/athletic/5888604/2024/11/01/gabriel-ben-white-injury-arsenal/
+
 **What can the Chiefs expect from Joshua Uche, their new pass rusher?**\
 `Why the deal with the Patriots made sense for the Chiefs, how Uche fits this season and what his film in New England shows.`\
 https://nytimes.com/athletic/5889654/2024/11/01/chiefs-trade-joshua-uche-pass-rusher/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/podcasts/the-daily/election-officials.html
 **JD Vance Goes on Joe Rogan, and Young Thug Pleads Guilty**\
 `Plus, the jobs report, with a twist.`\
 https://nytimes.com/2024/11/01/podcasts/vance-joe-rogan-young-thug.html
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
