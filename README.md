@@ -1,3 +1,7 @@
+**What can the Chiefs expect from Joshua Uche, their new pass rusher?**\
+`Why the deal with the Patriots made sense for the Chiefs, how Uche fits this season and what his film in New England shows.`\
+https://nytimes.com/athletic/5889654/2024/11/01/chiefs-trade-joshua-uche-pass-rusher/
+
 **Vikings-Colts preview, predictions: Can Minnesota end its losing streak on 'SNF'?**\
 `The last time these teams played, the Vikings put together the greatest comeback in NFL history. What should we expect this time around?`\
 https://nytimes.com/athletic/5888679/2024/11/01/vikings-colts-preview-predictions-snf-tj-hockenson/
@@ -26,15 +30,11 @@ https://nytimes.com/2024/11/01/podcasts/the-daily/election-officials.html
 `It's too early to celebrate fully, but the numbers say more good things may be on the horizon in Cleveland.`\
 https://nytimes.com/athletic/5889418/2024/11/01/nba-cleveland-cavaliers-start/
 
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
 **JD Vance Goes on Joe Rogan, and Young Thug Pleads Guilty**\
 `Plus, the jobs report, with a twist.`\
 https://nytimes.com/2024/11/01/podcasts/vance-joe-rogan-young-thug.html
 
-**Election Live Updates: Harris and Trump Gear Up for Campaign’s Last Weekend**\
-`Vice President Kamala Harris and former President Donald J. Trump are crisscrossing Michigan and Wisconsin, with both candidates finishing the day in Milwaukee.`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
