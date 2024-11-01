@@ -1,5 +1,5 @@
 **Chicago School Board President Resigns Over Social Media Posts**\
-`The Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
+`One week into the job, the Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
 https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html
 
 **Maricopa County, Ariz.**\
@@ -10,7 +10,7 @@ https://nytimes.com/live/2024/11/01/us/harris-trump-election/maricopa-county-ari
 `A journalist and an analyst, he was driven to hold oil companies accountable. Earlier, he was on the storied boat Greenpeace when he and others tried to halt a nuclear test.`\
 https://nytimes.com/2024/11/01/climate/richard-a-fineberg-dead.html
 
-**San Diego Wave's final home match moved to Louisville due to poor field conditions**\
+**Wave's final home match moved to Louisville due to poor field conditions**\
 `The move also causes the team to delay Alex Morgan's retirement celebration to 2025.`\
 https://nytimes.com/athletic/5891698/2024/11/01/san-diego-wave-poor-field-conditions/
 
