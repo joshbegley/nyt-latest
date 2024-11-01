@@ -1,3 +1,15 @@
+**Ranking the World Series players who boosted their collectibles value**\
+`The Dodgers and Yankees players who earned a boost in the trading card market during the postseason `\
+https://nytimes.com/athletic/5888636/2024/11/01/world-series-dodgers-yankees-cards-mlb/
+
+**Watch a Nightclub Scene in ‘Blitz’**\
+`The writer and director Steve McQueen discusses a sequence set in the Café de Paris in London.`\
+https://nytimes.com/2024/11/01/movies/blitz-clip-steve-mcqueen.html
+
+**U.S. Spy Agencies Issue New Warning on Russia’s Election Misinformation Campaign**\
+`Two recent videos have sought to undermine confidence in the security of the vote.`\
+https://nytimes.com/2024/11/01/us/politics/russia-election-misinformation.html
+
 **Islanders' Mathew Barzal out with upper-body injury**\
 `Barzal will be out for the team's game in Buffalo on Friday and is being evaluated by team doctors.`\
 https://nytimes.com/athletic/5891145/2024/11/01/islanders-mathew-barzal-injury/
