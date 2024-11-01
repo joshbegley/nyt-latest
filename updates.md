@@ -1,3 +1,7 @@
+**Tsunehisa Katsumata, Top Executive in Power Plant Meltdown, Dies at 84**\
+`He was sued and prosecuted for his actions as chairman of the Japanese power company that ran the Fukushima nuclear facility when it failed in a 2011 earthquake and tsunami.`\
+https://nytimes.com/2024/11/01/business/tsunehisa-katsumata-dead.html
+
 **The Path to Control of Congress May Swerve Through Alabama**\
 `A House district in Alabama was redrawn to empower Black voters, changing what had been a safe Republican seat into a highly competitive and potentially consequential battleground.`\
 https://nytimes.com/2024/11/01/us/politics/alabama-house-dobson-figures-congress.html
