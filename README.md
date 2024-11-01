@@ -1,3 +1,11 @@
+**Arsenal Today: Arteta's public persona, Nwaneri decision and unlocking Jesus**\
+`Jordan Campbell answers three questions on the minds of our team of Arsenal reporters today`\
+https://nytimes.com/athletic/5889708/2024/11/01/arsenal-today-november-1/
+
+**Trump Attacks Liz Cheney Using Violent War Imagery**\
+`In an onstage interview in Arizona with Tucker Carlson, former President Donald J. Trump slammed a top Republican critic as he criticized U.S. involvement in foreign conflicts.`\
+https://nytimes.com/2024/11/01/us/politics/trump-liz-cheney-tucker-carlson.html
+
 **Botswana Voters Hand Governing Party a Stunning Rebuke**\
 `After nearly 60 years, the Botswana Democratic Party lost its majority in Parliament, becoming the latest long-dominant party in southern Africa to fall from power.`\
 https://nytimes.com/2024/11/01/world/africa/botswana-election-results.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5888309/2024/11/01/wsl-quarter-season-review/
 **Chelsea's Old Trafford curse: Eight different managers, 11 years and no wins in the league**\
 `Chelsea have had a run of games at Old Trafford in the league without a victory — despite changes at both clubs`\
 https://nytimes.com/athletic/5888276/2024/11/01/chelsea-old-trafford-curse/
-
-**Guilavogui joined Leeds after summer without a club - this is how he kept up to speed**\
-`Josuha Guilavogui kept up an off-season training programme and spent time in Dubai to prepare for Leeds deal`\
-https://nytimes.com/athletic/5882713/2024/11/01/leeds-united-josuha-guilavogui-fitness/
-
-**Failed transfers and poor form: Why Lopetegui's West Ham midfield has been struggling**\
-`West Ham's midfield pairings have not worked so far this season. Lopetegui missed out on two key targets this summer, but needs a solution`\
-https://nytimes.com/athletic/5849553/2024/11/01/west-ham-midfield-analysis/
 
