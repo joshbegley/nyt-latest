@@ -1,3 +1,7 @@
+**MLB All-Postseason Team: Buehler, Edman, Stanton, Lindor, Kwan leave marks in October**\
+`Position by position, these were the best players in October.`\
+https://nytimes.com/athletic/5889094/2024/11/01/mlb-all-postseason-team/
+
 **To Meet Big Goals, Think Small**\
 `Focus on the incremental steps that are in your control.`\
 https://nytimes.com/2024/11/01/well/how-to-achieve-goals.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/realestate/homes-sardinia-italy.html
 **You Might Consider Praying**\
 `It’s what can we do when we don’t know what to do.`\
 https://nytimes.com/2024/11/01/opinion/prayer-god-religion.html
-
-**How Do You Turn a Bad Day Around?**\
-`We all have them. What are your strategies?`\
-https://nytimes.com/2024/11/01/learning/how-do-you-turn-a-bad-day-around.html
 

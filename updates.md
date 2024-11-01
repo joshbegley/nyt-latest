@@ -1,3 +1,7 @@
+**MLB All-Postseason Team: Buehler, Edman, Stanton, Lindor, Kwan leave marks in October**\
+`Position by position, these were the best players in October.`\
+https://nytimes.com/athletic/5889094/2024/11/01/mlb-all-postseason-team/
+
 **To Meet Big Goals, Think Small**\
 `Focus on the incremental steps that are in your control.`\
 https://nytimes.com/2024/11/01/well/how-to-achieve-goals.html
