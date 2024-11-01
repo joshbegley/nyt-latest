@@ -1,3 +1,7 @@
+**‘Blitz’ | Anatomy of a Scene**\
+`The writer and director Steve McQueen narrates a sequence from his film set in London during World War II.`\
+https://nytimes.com/video/movies/100000009795193/blitz-scene.html
+
 **Is It Healthy to Eat Just Once a Day?**\
 `Bruce Springsteen said he does. We asked experts about the science behind the OMAD diet.`\
 https://nytimes.com/2024/11/01/well/eat/omad-diet-benefits-risks.html
@@ -16,7 +20,7 @@ https://nytimes.com/2024/11/01/us/politics/russia-election-misinformation.html
 
 **Islanders' Mathew Barzal out with upper-body injury: What a long-term absence would mean**\
 `Barzal will be out for the team's game in Buffalo on Friday and is being evaluated by team doctors.`\
-https://nytimes.com/athletic/5891145/2024/11/01/islanders-mathew-barzal-out-with-upper-body-injury-what-a-long-term-absence-would-mean/
+https://nytimes.com/athletic/5891145/2024/11/01/islanders-mathew-barzal-injury/
 
 **The report was clouded by strikes and storms.**\
 `By Lydia DePillis`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/world/middleeast/israel-beirut-strikes-hezbollah.
 **Canucks report cards: Grading every defender and goalie's October performance**\
 `Quinn Hughes and Kevin Lankinen are among the Canucks' standouts since the start of the regular season.`\
 https://nytimes.com/athletic/5889695/2024/11/01/canucks-report-cards-october/
-
-**Veto Power in the Balance, Nevada’s G.O.P. Governor Keeps Trump at Arm’s Length**\
-`Republicans believe a strong Donald Trump victory would ensure that Gov. Joe Lombardo could keep overriding Democratic priorities. But Mr. Lombardo is operating outside the state party, and largely away from Mr. Trump.`\
-https://nytimes.com/2024/11/01/us/politics/lombardo-nevada-governor-trump.html
 
