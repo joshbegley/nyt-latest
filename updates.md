@@ -1,3 +1,15 @@
+**Gauff 'probably wouldn't come back' to Saudi for tennis without seeing change**\
+`The world No. 3 also discussed the upcoming presidential election in America.`\
+https://nytimes.com/athletic/5891414/2024/11/01/coco-gauff-wta-tour-finals-saudi-election/
+
+**Mountain West Conference to add Grand Canyon University in 2026**\
+`It’s the latest addition for the MWC as it rebuilds following the pending departure of five schools to the similarly-rebuilding Pac-12.`\
+https://nytimes.com/athletic/5891429/2024/11/01/mountain-west-conference-grand-canyon-university/
+
+**All Trick, No Treat: Dublin Crowds Turn Up for Halloween Parade That Wasn’t**\
+`The scariest thing this Halloween? In one city, it was the power of a phony online event listing.`\
+https://nytimes.com/2024/11/01/world/europe/fake-halloween-parade-dublin.html
+
 **The Best Chore Coats, From $40 to $1,850**\
 `A roundup of versatile work wear-inspired jackets.`\
 https://nytimes.com/2024/11/01/t-magazine/chore-coats-workwear-jackets.html
