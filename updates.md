@@ -1,3 +1,11 @@
+**Gauff 'probably wouldn't come back' to Saudi Arabia for tennis without seeing change**\
+`The world No. 3 also discussed the upcoming presidential election in America.`\
+https://nytimes.com/athletic/5891414/2024/11/01/coco-gauff-wta-tour-finals-saudi-election/
+
+**Mountain West adding Grand Canyon University in 2026**\
+`Grand Canyon, which does not have a football program, will compete in 17 sports in the MWC.`\
+https://nytimes.com/athletic/5891429/2024/11/01/mountain-west-conference-grand-canyon-university/
+
 **Gauff 'probably wouldn't come back' to Saudi for tennis without seeing change**\
 `The world No. 3 also discussed the upcoming presidential election in America.`\
 https://nytimes.com/athletic/5891414/2024/11/01/coco-gauff-wta-tour-finals-saudi-election/
