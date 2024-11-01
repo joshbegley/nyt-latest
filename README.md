@@ -1,3 +1,7 @@
+**Nicole Wallace Calls on Her Former Boss, George W. Bush, to Denounce Trump**\
+`Ms. Wallace, who served as the communications director in the Bush White House, made the appeal on her MSNBC program.`\
+https://nytimes.com/2024/11/01/us/politics/george-w-bush-nicole-wallace-2024-election.html
+
 **Newcastle vs Arsenal preview: Storylines, odds, prediction as Gunners look to bounce back**\
 `Newcastle is winless in their last five Premier League matches and have a tough task with Arsenal visiting St James' Park.`\
 https://nytimes.com/athletic/5880956/2024/11/01/newcastle-arsenal-preview-odds-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891990/2024/11/01/dodgers-teoscar-hernandez-free-a
 **Trump Still Can’t Stop Talking About Women**\
 `The countdown to the election feels like an Advent calendar with a dubious remark behind each door.`\
 https://nytimes.com/2024/11/01/us/politics/harris-trump-womens-health-election.html
-
-**F1's Charles Leclerc fined by FIA after using inappropriate language at Mexico City GP**\
-`Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
-https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
 
