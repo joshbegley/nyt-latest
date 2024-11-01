@@ -1,3 +1,7 @@
+**The Best Chore Coats, From $40 to $1,850**\
+`A roundup of versatile work wear-inspired jackets.`\
+https://nytimes.com/2024/11/01/t-magazine/chore-coats-workwear-jackets.html
+
 **Israeli Military Carries Out Raid in the Occupied West Bank**\
 `The Israeli military said they killed several militants during a raid in the West Bank, in an operation that residents and humanitarian groups said caused significant damage to infrastructure.`\
 https://nytimes.com/video/world/middleeast/100000009798794/west-bank-raid.html
