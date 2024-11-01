@@ -1,3 +1,11 @@
+**Trump’s Economic Vision Has a Lot of Flaws. Here’s Another.**\
+`A new paper undermines the historical narrative at the heart of his love of tariffs.`\
+https://nytimes.com/2024/11/01/opinion/trump-tariffs-manufacturing.html
+
+**Eric Adams To Stand Trial On Corruption Charges in April, Judge Says**\
+`Accused of conspiring to funnel illegal contributions from Turkey into his campaign coffers, Mr. Adams has pleaded not guilty.`\
+https://nytimes.com/2024/11/01/nyregion/eric-adams-corruption-trial-date-court.html
+
 **Bucks County, Pa.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/bucks-county-pa
