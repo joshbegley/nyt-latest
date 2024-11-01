@@ -1,3 +1,11 @@
+**More Rain Batters Parts of Spain as Rescuers Dig Through Debris**\
+`As the search continued for dozens of missing people in the east of the country, forecasters warned of new flooding in the southwest.`\
+https://nytimes.com/2024/11/01/world/europe/spain-rain-floods.html
+
+**2024-25 MLB offseason: Bowden's 25 predictions for signings, trades and more**\
+`Predicting where Juan Soto and other top free agents will sign, a bold trade, award winners and more in what should be a wild winter. `\
+https://nytimes.com/athletic/5890283/2024/11/01/mlb-offseason-predictions-2024-signings-trades/
+
 **Caleb Williams' opportunity, slow starts, trust in coaches: Bears mailbag, Week 9 picks**\
 `What is the Bears' spookiest concern: O-line, coaching or the injury report? Plus Bears-Cardinals fun facts.`\
 https://nytimes.com/athletic/5889294/2024/11/01/caleb-williams-bears-mailbag-cardinals/
