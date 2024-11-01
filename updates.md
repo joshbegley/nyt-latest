@@ -1,3 +1,7 @@
+**Van de Ven out until after international break with hamstring injury**\
+`Tottenham Hotspur defender Micky van de Ven has been ruled out until after the international break with a hamstring injury.`\
+https://nytimes.com/athletic/5887624/2024/11/01/micky-van-de-ven-injury/
+
 **Mike Conley's postseason heroics give him confidence to play through early slump**\
 `Conley has been hampered by a left wrist injury. "When I’m 50, I’ll get surgery," Conley said. "Not right now."`\
 https://nytimes.com/athletic/5885892/2024/11/01/mike-conley-timberwolves-slump/
