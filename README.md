@@ -1,40 +1,40 @@
-**What to know about the report.**\
-`As Americans go to the polls, strikes and hurricanes will generate some static, but the underlying signal still points to a healthy labor market.`\
-https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-election/jobs-report-october
+**Vikings-Colts preview, predictions: Can Minnesota end its losing streak on 'SNF'?**\
+`The last time these teams played, the Vikings put together the greatest comeback in NFL history. What should we expect this time around?`\
+https://nytimes.com/athletic/5888679/2024/11/01/vikings-colts-preview-predictions-snf-tj-hockenson/
 
-**Election Uncertainty Looms Over Hiring**\
-`Some employers say they have been wary to expand until the outcome of the presidential election is known.`\
-https://nytimes.com/2024/11/01/business/election-uncertainty-jobs-economy.html
+**Fantasy Premier League live Q&A: FPL Gameweek 10 advice from Ben Dinnery**\
+`Gameweek 10 is almost upon us - and there are, as usual, there are plenty of tough decisions to be made`\
+https://nytimes.com/athletic/5890299/2024/11/01/fantasy-premier-league-advice-injury-news-gw10/
 
-**Live Updates: Jobs in Focus in Last Key Report Before Election**\
-`Economists expect that employers added 110,000 jobs in October, a slowdown that would partly reflect hurricane disruptions and labor strikes.`\
-https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-election
+**'You’re kind of like a DJ in a club:' Inside the search to score EA FC, NBA2k**\
+`How EA Sports FC, NBA 2K and other video game behemoths seek out the soundtrack of sports`\
+https://nytimes.com/athletic/5889565/2024/11/01/ea-sports-fc-nba-2k-madden-soundtrack/
 
-**Kuminga, Reaves and other names to watch as NBA trade market takes shape**\
-`As the season rolls along, these players could move the needle when it comes to front offices looking to make a splash.`\
-https://nytimes.com/athletic/5889550/2024/11/01/nba-trade-rumors-jonathan-kuminga-austin-reeves-jalen-green/
+**Colts believe winning now is more valuable than Anthony Richardson's future. They'd better win**\
+`If the Colts miss the playoffs now with Flacco leading the way, that could some high-profile jobs in jeopardy. `\
+https://nytimes.com/athletic/5889422/2024/11/01/colts-anthony-richardson-future-joe-flacco/
 
-**Nguyen: How Cardinals use old-school approach to spark Kyler Murray-led offense**\
-`A team that used to rely on small, speedy receivers has found success with size and sets that resemble the single-wing.`\
-https://nytimes.com/athletic/5887104/2024/11/01/cardinals-offense-kyler-murray-drew-petzing/
+**Billionaire Game Theory + We Are Not Ready for A.G.I. + Election Betting Markets Get Weird**\
+`“If I had $1 billion, how would I try to influence the results of this election?”`\
+https://nytimes.com/2024/11/01/podcasts/billionaire-game-theory-we-are-not-ready-for-agi-election-betting-markets-get-weird.html
 
-**NFL trade deadline 2024: Roundup of team plans and potential moves**\
-`What's the latest intel and who are the best fits with the Nov. 5 trade deadline just days away?`\
-https://nytimes.com/athletic/5888978/2024/11/01/nfl-trade-deadline-2024-rumors-latest-news/
+**The Army of Election Officials Ready to Reject the Vote**\
+`An investigation in four battleground states found that Republicans have taken control of election boards with the aim of challenging and overturning results that don’t go their way.`\
+https://nytimes.com/2024/11/01/podcasts/the-daily/election-officials.html
 
-**What's on Bruce Feldman's radar? Michigan QB carousel, Big 12 respect, Ryan Day angst**\
-`Why did Michigan go back to Davis Warren? Who needs the win more in Ohio State-Penn State? Is J.J. Smith for real?`\
-https://nytimes.com/athletic/5889792/2024/11/01/penn-state-ohio-state-byu-college-football-news/
+**Lloyd: Cavaliers rolling on rare course to start season**\
+`It's too early to celebrate fully, but the numbers say more good things may be on the horizon in Cleveland.`\
+https://nytimes.com/athletic/5889418/2024/11/01/nba-cleveland-cavaliers-start/
 
-**MLB All-Postseason Team: Buehler, Edman, Stanton, Lindor, Kwan leave marks in October**\
-`Position by position, these were the best players in October.`\
-https://nytimes.com/athletic/5889094/2024/11/01/mlb-all-postseason-team/
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
-**To Meet Big Goals, Think Small**\
-`Focus on the incremental steps that are in your control.`\
-https://nytimes.com/2024/11/01/well/how-to-achieve-goals.html
+**JD Vance Goes on Joe Rogan, and Young Thug Pleads Guilty**\
+`Plus, the jobs report, with a twist.`\
+https://nytimes.com/2024/11/01/podcasts/vance-joe-rogan-young-thug.html
 
-**When to Expect Results in Each State on Election Night, and Beyond**\
-`The Times surveyed election officials in all 50 states to learn how they will count the votes, and when we might know the outcome in the battleground states.`\
-https://nytimes.com/interactive/2024/us/elections/results-timing-presidential-race-calls.html
+**Election Live Updates: Harris and Trump Gear Up for Campaign’s Last Weekend**\
+`Vice President Kamala Harris and former President Donald J. Trump are crisscrossing Michigan and Wisconsin, with both candidates finishing the day in Milwaukee.`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election
 
