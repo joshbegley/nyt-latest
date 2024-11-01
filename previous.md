@@ -1,3 +1,7 @@
+**Mahomes: WNBA expansion team in Kansas City a 'no-brainer'**\
+`Ahead of the 2024 WNBA Draft, commissioner Cathy Engelbert said the league intends to expand to 16 teams by 2028.`\
+https://nytimes.com/athletic/5890661/2024/11/01/patrick-mahomes-wnba-kansas-city-expansion/
+
 **Emma Sears' successful debut with USWNT is 'just the beginning'**\
 `Sears recorded a goal and an assist in her U.S. debut. Now, she aims to help Racing reach the postseason`\
 https://nytimes.com/athletic/5889026/2024/11/01/emma-sears-uswnt-racing-louisville/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/magazine/family-politics-arguments.html
 **A Brief History of Messy Elections**\
 `Three times the results were disputed after the votes were in.`\
 https://nytimes.com/2024/11/01/magazine/disputed-election-results-history.html
-
-**Too Young to Vote? Here’s How Kids Are Getting Involved.**\
-`Teens around the country are volunteering, canvassing and registering voters.`\
-https://nytimes.com/2024/11/01/magazine/teens-elections-work-volunteering.html
 
