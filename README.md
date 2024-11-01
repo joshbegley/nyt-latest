@@ -1,3 +1,11 @@
+**Spurs' Victor Wembanyama has second 5x5 night of his career**\
+`Wembanyama tallied 25 points, nine rebounds, seven assists, five blocks and five steals in the Spurs' 106-88 win over the Jazz.`\
+https://nytimes.com/athletic/5890021/2024/10/31/victor-wembanyama-stats-spurs-jazz/
+
+**Ersson is the Flyers' only reliable option in net right now. Should they ride him?**\
+`The Flyers have yet to win with a goaltender other than Ersson in net.`\
+https://nytimes.com/athletic/5890010/2024/10/31/flyers-samuel-ersson-goalie-workload/
+
 **Why Craig Berube should give William Nylander what he wants**\
 `The Leafs forward has made his desire for more ice time known both privately and publicly.`\
 https://nytimes.com/athletic/5889927/2024/10/31/william-nylander-ice-time-berube-leafs/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/31/crosswords/daily-puzzle-2024-11-01.html
 **Man Who Killed Hundreds of Eagles and Hawks Gets Nearly 4 Years in Prison**\
 `Travis John Branson was part of a conspiracy that killed 3,600 birds, prosecutors said. He also trafficked and sold bird parts on the black market.`\
 https://nytimes.com/2024/10/31/us/eagle-killer-sentenced-four-years.html
-
-**LeBron James endorses Vice President Kamala Harris in 2024 election**\
-`The video was made specifically for James' endorsement by Holland West Productions, according to a source close to James.`\
-https://nytimes.com/athletic/5889448/2024/10/31/lebron-james-kamala-harris-endorsement-2024-election/
-
-**Jets' Malachi Corley drops ball, erases touchdown vs. Texans**\
-`Corley, a 2024 third-round pick, dropped the ball just short of the goal line at the end of a 19-yard touchdown run.`\
-https://nytimes.com/athletic/5889750/2024/10/31/malachi-corley-dropped-touchdown-jets-texans/
 
