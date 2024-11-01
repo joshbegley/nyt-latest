@@ -1,3 +1,7 @@
+**Mike Elko's secret weapon at Texas A&M is a 64-year-old back from a hiatus**\
+`Mike Elko felt his most important hire at Texas A&M would be his strength coach. Was he right? `\
+https://nytimes.com/athletic/5889921/2024/11/01/texas-am-college-football-mike-elko-tommy-moffitt/
+
 **The Controversy Over Playing the WTA Finals in Saudi Arabia**\
 `In a country that is often criticized over its treatment of women, the tennis world debates the pros and cons of holding the elite women’s tournament there.`\
 https://nytimes.com/2024/11/01/sports/tennis/wta-finals-saudi-arabia.html
