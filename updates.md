@@ -1,3 +1,7 @@
+**Montana Camper Offered His Killer a Beer Before He Was Murdered, Police Say**\
+`DNA from a beer can helped lead the authorities to an arrest in the killing of Dustin Kjersem, whose death was originally reported as a possible bear attack, officials said.`\
+https://nytimes.com/2024/11/01/us/montana-camper-suspect-charged.html
+
 **Dodgers' Clayton Kershaw to undergo surgeries on foot, knee**\
 `The lefty still plans to pitch for the Dodgers next season: “I'll be back, somehow."`\
 https://nytimes.com/athletic/5891966/2024/11/01/dodgers-clayton-kershaw-surgery-foot-knee/

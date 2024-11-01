@@ -1,3 +1,7 @@
+**Montana Camper Offered His Killer a Beer Before He Was Murdered, Police Say**\
+`DNA from a beer can helped lead the authorities to an arrest in the killing of Dustin Kjersem, whose death was originally reported as a possible bear attack, officials said.`\
+https://nytimes.com/2024/11/01/us/montana-camper-suspect-charged.html
+
 **On the issues: Where Harris and Trump stand on education.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-education
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/01/technology/generative-ai-decisions-ex
 **American-owned Huddersfield lose to non-League side Tamworth in FA Cup upset**\
 `National League side Tamworth FC have knocked out League One side Huddersfield Town from the FA Cup in a first-round upset.`\
 https://nytimes.com/athletic/5891859/2024/11/01/fa-cup-huddersfield-tamworth/
-
-**Reds re-sign LHP Brent Suter, decline option on C Luke Maile**\
-`Cincinnati signed Suter to a one-year deal worth $2.25 million with a club option for 2026 worth $3 million.`\
-https://nytimes.com/athletic/5891896/2024/11/01/reds-brent-suter-luke-maile/
 
