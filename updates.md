@@ -1,3 +1,15 @@
+**Bengals WR Tee Higgins doubtful vs. Raiders**\
+`Tee Higgins sustained a quad injury during practice last Friday and didn't suit up in Week 8.`\
+https://nytimes.com/athletic/5891199/2024/11/01/tee-higgins-doubtful-bengals-raiders/
+
+**Stream These 9 Titles Before They Leave Netflix This Month**\
+`A slew of great movies and TV shows are leaving Netflix for U.S. subscribers in November. Here’s a roundup of the best.`\
+https://nytimes.com/2024/11/01/movies/netflix-expiring-november.html
+
+**Lamar Jackson returns to practice, 'ready to go' Sunday vs. Broncos**\
+`The two-time MVP missed two practices this week, but says he was "just resting my body. It’s a long season." `\
+https://nytimes.com/athletic/5891400/2024/11/01/ravens-lamar-jackson-returns-practice-broncos/
+
 **White House Altered Official Transcript of Biden’s Remarks on Trump and ‘Garbage’**\
 `The debate over the meaning of President Biden’s words comes down to an apostrophe, which the White House press office inserted into the transcript without the approval of official stenographers.`\
 https://nytimes.com/2024/11/01/us/politics/biden-garbage-transcript.html
