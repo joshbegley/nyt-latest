@@ -1,3 +1,7 @@
+**Israeli Military Carries Out Raid in the Occupied West Bank**\
+`The Israeli military said they killed several militants during a raid in the West Bank, in an operation that residents and humanitarian groups said caused significant damage to infrastructure.`\
+https://nytimes.com/video/world/middleeast/100000009798794/west-bank-raid.html
+
 **Martino says they can't, but could Inter Miami sign Neymar?**\
 `Inter Miami coach Gerardo Martino said speculation about Neymar joining Inter Miami is just that — speculation — and would likely need a change in Major League Soccer (MLS) salary rules to be a real possibility.`\
 https://nytimes.com/athletic/5891368/2024/11/01/inter-miami-neymar-move/
