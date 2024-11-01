@@ -1,3 +1,7 @@
+**Kuminga, Reaves and other names to watch as NBA trade market takes shape**\
+`As the season rolls along, these players could move the needle when it comes to front offices looking to make a splash.`\
+https://nytimes.com/athletic/5889550/2024/11/01/nba-trade-rumors-jonathan-kuminga-austin-reeves-jalen-green/
+
 **Nguyen: How Cardinals use old-school approach to spark Kyler Murray-led offense**\
 `A team that used to rely on small, speedy receivers has found success with size and sets that resemble the single-wing.`\
 https://nytimes.com/athletic/5887104/2024/11/01/cardinals-offense-kyler-murray-drew-petzing/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/01/briefing/01news-quiz.html
 **Kamala Harris Can Make History, Whether or Not She Wants to Talk About It**\
 `Don’t let the monarch of Mar-a-Lago take back his throne.`\
 https://nytimes.com/2024/11/01/opinion/trump-gender-election-voting.html
-
-**Bears trade deadline questions: Should they deal one of their second-round picks?**\
-`Will GM Ryan Poles give up draft capital to help this year's team? Should he trade Nate Davis and/or Khalil Herbert?`\
-https://nytimes.com/athletic/5888992/2024/11/01/bears-trade-deadline-second-round-picks/
 
