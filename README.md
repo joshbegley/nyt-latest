@@ -1,3 +1,11 @@
+**New York Sirens' No. 1 pick Sarah Fillier finally signs. Why is it only a 1-year deal?**\
+`Fillier has finally signed in New York, but the term of the deal is unique for a player of her caliber.`\
+https://nytimes.com/athletic/5891749/2024/11/01/new-york-sirens-pwhl-sarah-filler-contract/
+
+**Ollie Bearman to replace ill Kevin Magnussen for rest of F1 São Paulo Grand Prix weekend**\
+`Bearman will get another taste of F1 grand prix action before his full-time ride with Haas in 2025. `\
+https://nytimes.com/athletic/5891789/2024/11/01/f1-ollie-bearman-haas-brazil-gp-kevin-magnussen/
+
 **Harris Calls Trump’s Violent Language About Liz Cheney ‘Disqualifying’**\
 `Former President Donald J. Trump had suggested that Ms. Cheney, one of his most prominent Republican critics, should be put on a battlefield “with nine barrels shooting at her.”`\
 https://nytimes.com/2024/11/01/us/politics/liz-cheney-trump-harris.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5891737/2024/11/01/canadiens-martin-st-louis-bag-sk
 **Halloween Parade Float in Pennsylvania Denounced as Racist**\
 `Daylon A. Davis, the president of the N.A.A.C.P.’s Pittsburgh branch, said he was deeply disturbed by the way Vice President Kamala Harris was depicted.`\
 https://nytimes.com/2024/11/01/us/politics/pennsylvania-halloween-parade-float-racist.html
-
-**2024 Holiday Gift Guide**\
-`Wondering what to get for all the beloved people in your life, whether they be quirky, picky, fancy or frugal? Our experts have curated the best gifts to help you check everyone off your list.`\
-https://nytimes.com/interactive/2024/us/2024-gift-guide.html
-
-**With Days to Go, Trump Courts Apolitical Young Men**\
-`Also, the U.S. fears Ukraine has entered a grim phase. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/11/01/briefing/final-weekend-campaign-us-ukraine-russia.html
 
