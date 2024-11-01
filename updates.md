@@ -1,3 +1,19 @@
+**On the issues: Where Harris and Trump stand on education.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-education
+
+**Teoscar Hernández says returning to Dodgers will be a 'priority'**\
+`Hernández hopes he and the Dodgers can agree to a contract as soon as possible. "Hopefully tomorrow," he said. "I want us to be here."`\
+https://nytimes.com/athletic/5891990/2024/11/01/dodgers-teoscar-hernandez-free-agent/
+
+**Trump Still Can’t Stop Talking About Women**\
+`The countdown to the election feels like an Advent calendar with a dubious remark behind each door.`\
+https://nytimes.com/2024/11/01/us/politics/harris-trump-womens-health-election.html
+
+**F1's Charles Leclerc fined by FIA after using inappropriate language**\
+`Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
+https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
+
 **Charles Leclerc fined by FIA after using inappropriate language at Mexico Grand Prix**\
 `Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
 https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
