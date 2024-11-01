@@ -1,3 +1,7 @@
+**Maryland Republican Fighting Uphill Battle Pitches Voters on Splitting Their Tickets**\
+`A spot for former Gov. Larry Hogan aims to give Democrats permission to back him over Angela Alsobrooks and still vote for Kamala Harris — or against Donald J. Trump.`\
+https://nytimes.com/2024/11/01/us/politics/larry-hogan-trump-harris.html
+
 **Book Club: Let’s Talk About ‘Intermezzo’**\
 `Sally Rooney’s new novel explores the relationship between two brothers grieving the death of their father, and follows their complicated love lives with Rooney’s usual panache.`\
 https://nytimes.com/2024/11/01/books/review/book-club-podcast-intermezzo-sally-rooney.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891505/2024/11/01/mcvay-puka-nacua-injury-rams-sea
 **Chipmaker GlobalFoundries Faces $500,000 Fine for Banned Shipments to China**\
 `The Biden administration said it had reached a settlement after the U.S. chipmaker voluntarily disclosed that it had shipped products to a firm linked with China’s military industrial complex.`\
 https://nytimes.com/2024/11/01/us/politics/globalfoundries-chips-fine-china.html
-
-**Make America … Get Polio Again!**\
-`Are you really going to trust these guys with your health?`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-rfk-vance-vaccine
 
