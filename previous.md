@@ -1,3 +1,11 @@
+**Diwali Reminds Me of Who I Am (But It Took a While to Get There)**\
+`The writer Raj Tawney shares how celebrating Diwali eventually taught him to feel more rooted in his Indian culture — and in himself.`\
+https://nytimes.com/2024/11/01/us/diwali-holiday-india-culture.html
+
+**A 3D Tour of Abu Dhabi's Culture District**\
+`3D Tour of Abu Dhabi's Cultural District`\
+https://nytimes.com/paidpost/abu-dhabi/a-3d-tour-of-abu-dhabis-culture-district.html
+
 **Van de Ven out until after international break with hamstring injury**\
 `Tottenham Hotspur defender Micky van de Ven has been ruled out until after the international break with a hamstring injury.`\
 https://nytimes.com/athletic/5887624/2024/11/01/micky-van-de-ven-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/01/us/elections/oakland-mayor-sheng-thao-recall.html
 **NFL injury report: Tee Higgins on the shelf again, checking up on Isiah Pacheco and more**\
 `Greg Scholz of Inside Injuries assesses the health issues impacting fantasy football, including another leg injury for Tee Higgins.`\
 https://nytimes.com/athletic/5889366/2024/11/01/nfl-injury-report-week-9-love-lamar-pacheco-higgins/
-
-**Wayne Auton, NASCAR's 'fatherly figure,' prepares for final race and a new chapter**\
-`For more than three decades, Wayne Auton has directed NASCAR series — and left a lasting impression on the sport along the way.`\
-https://nytimes.com/athletic/5888079/2024/11/01/wayne-auton-nascar-xfinity-series-director-retirement/
-
-**The Lakers’ reality check, Anthony Davis' MVP form and more trends from first 5 games**\
-`The Lakers have shown that they are potentially a contender, but a gap remains between them and the top of the West.`\
-https://nytimes.com/athletic/5875169/2024/11/01/lakers-trends-anthony-davis-start/
 
