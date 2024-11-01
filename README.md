@@ -1,3 +1,7 @@
+**Why Craig Berube should give William Nylander what he wants**\
+`The Leafs forward has made his desire for more ice time known both privately and publicly.`\
+https://nytimes.com/athletic/5889927/2024/10/31/william-nylander-ice-time-berube-leafs/
+
 **Is Jim Montgomery in trouble? Bruins coach has no answers in latest thrashing**\
 `Sitting last in the Atlantic Division, the Bruins are running out of time. And Montgomery has yet to find a fix for any of their problems.`\
 https://nytimes.com/athletic/5889955/2024/10/31/bruins-hurricanes-coach-jim-montgomery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889448/2024/10/31/lebron-james-kamala-harris-endor
 **Jets' Malachi Corley drops ball, erases touchdown vs. Texans**\
 `Corley, a 2024 third-round pick, dropped the ball just short of the goal line at the end of a 19-yard touchdown run.`\
 https://nytimes.com/athletic/5889750/2024/10/31/malachi-corley-dropped-touchdown-jets-texans/
-
-**Corrections: Nov. 1, 2024**\
-`Corrections that appeared in print on Friday, Nov. 1, 2024.`\
-https://nytimes.com/2024/10/31/pageoneplus/corrections-nov-1-2024.html
 
