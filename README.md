@@ -1,3 +1,7 @@
+**Tsunehisa Katsumata, Top Executive in Power Plant Meltdown, Dies at 84**\
+`He was sued and prosecuted for his actions as chairman of the Japanese power company that ran the Fukushima nuclear facility when it failed in a 2011 earthquake and tsunami.`\
+https://nytimes.com/2024/11/01/business/tsunehisa-katsumata-dead.html
+
 **The Path to Control of Congress May Swerve Through Alabama**\
 `A House district in Alabama was redrawn to empower Black voters, changing what had been a safe Republican seat into a highly competitive and potentially consequential battleground.`\
 https://nytimes.com/2024/11/01/us/politics/alabama-house-dobson-figures-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5890975/2024/11/01/wta-tour-finals-chief-executive-
 **As Russia Advances, U.S. Fears Ukraine Has Entered a Grim Phase**\
 `Weapons supplies are no longer Ukraine’s main disadvantage, American military officials say.`\
 https://nytimes.com/2024/11/01/us/politics/russia-ukraine-war.html
-
-**A Kid's Guide to the Election**\
-`Presidential elections are confusing enough for adults (see: the Electoral College). But for kids, they can be downright baffling. These stories from The New York Times for Kids, a monthly print section for readers ages 8 to 14, are intended to answer the questions the kids in your life may have and help them follow along with the action.`\
-https://nytimes.com/spotlight/a-kids-guide-to-the-election
 
