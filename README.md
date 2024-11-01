@@ -1,6 +1,18 @@
-**Gauff 'probably wouldn't come back' to Saudi Arabia for tennis without seeing change**\
-`The world No. 3 also discussed the upcoming presidential election in America.`\
-https://nytimes.com/athletic/5891414/2024/11/01/coco-gauff-wta-tour-finals-saudi-election/
+**This Sorority Is Going All in to Get Out the Vote**\
+`Alpha Kappa Alpha’s forceful push to increase voter turnout could help boost critical support for Democrats from Black voters.`\
+https://nytimes.com/2024/11/01/us/elections/harris-alpha-kappa-alpha.html
+
+**McDonald’s Ice Cream Machines May Get Quicker Fix After Copyright Ruling**\
+`An exemption to a longstanding copyright act allows industrial equipment to be fixed by people not affiliated with the manufacturer.`\
+https://nytimes.com/2024/11/01/us/mcdonalds-ice-cream-machine-fix-exemption.html
+
+**Volunteers Clean Up Debris After Unprecedented Flooding in Spain**\
+`Cars and homes were destroyed and streets were left clogged with mud in the wake of severe flooding in the Valencia region.`\
+https://nytimes.com/video/world/europe/100000009798308/spain-valencia-floods-recovery.html
+
+**How a Year of Rain Fell on Parts of Spain in Eight Hours**\
+`The region is no stranger to storms like those that caused this week’s deluges. But global warming helps them pack a bigger punch, scientists said.`\
+https://nytimes.com/2024/11/01/climate/spain-valencia-floods.html
 
 **Mountain West adding Grand Canyon University in 2026**\
 `Grand Canyon, which does not have a football program, will compete in 17 sports in the MWC.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5891368/2024/11/01/inter-miami-neymar-move/
 **Bengals WR Tee Higgins doubtful vs. Raiders**\
 `Bengals RB Zack Moss and OT Orlando Brown Jr. are also doubtful to play against the Raiders.`\
 https://nytimes.com/athletic/5891199/2024/11/01/tee-higgins-doubtful-bengals-raiders/
-
-**Stream These 9 Titles Before They Leave Netflix This Month**\
-`A slew of great movies and TV shows are leaving Netflix for U.S. subscribers in November. Here’s a roundup of the best.`\
-https://nytimes.com/2024/11/01/movies/leaving-netflix-november.html
-
-**Lamar Jackson returns to practice, 'ready to go' Sunday vs. Broncos**\
-`The two-time MVP missed two practices this week, but says he was "just resting my body" and that it is a "long season." `\
-https://nytimes.com/athletic/5891400/2024/11/01/ravens-lamar-jackson-returns-practice-broncos/
-
-**White House Altered Official Transcript of Biden’s Remarks on Trump and ‘Garbage’**\
-`The debate over the meaning of President Biden’s words comes down to an apostrophe, which the White House press office inserted into the transcript without the approval of official stenographers.`\
-https://nytimes.com/2024/11/01/us/politics/biden-garbage-transcript.html
 
