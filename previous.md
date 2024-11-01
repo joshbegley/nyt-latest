@@ -1,3 +1,7 @@
+**Jimmy Kimmel Trashes Trump’s ‘Cosplay Garbage Man’**\
+`Kimmel said that when Trump delivered a speech while wearing an orange safety vest, it was “like a 4-year-old who wants to wear his costume to school.”`\
+https://nytimes.com/2024/11/01/arts/television/jimmy-kimmel-trump-garbage-man.html
+
 **Word of the Day: retaliation**\
 `This word has appeared in 967 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/01/learning/word-of-the-day-retaliation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5887692/2024/11/01/manchester-city-injury-crisis-gu
 **Analysing Bukayo Saka's Premier League goals: Far-post curlers, slick combinations and rebounds**\
 `The Arsenal player is so versatile he does not really have a trademark finish`\
 https://nytimes.com/athletic/5887698/2024/11/01/bukayo-saka-premier-league-goals-analysed/
-
-**It's hard not to feel Villa blew a superb chance to end 29-year trophy drought with Palace cup loss**\
-`There is an argument for rotation in the domestic cups as they are of lesser importance, but this still feels like a missed opportunity`\
-https://nytimes.com/athletic/5887996/2024/11/01/aston-villa-trophy-drought-emery/
 
