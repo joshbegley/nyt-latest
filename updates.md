@@ -1,3 +1,11 @@
+**Nguyen: How Cardinals use old-school approach to spark Kyler Murray-led offense**\
+`A team that used to rely on small, speedy receivers has found success with size and sets that resemble the single-wing.`\
+https://nytimes.com/athletic/5887104/2024/11/01/cardinals-offense-kyler-murray-drew-petzing/
+
+**NFL trade deadline 2024: Roundup of team plans and potential moves**\
+`What's the latest intel and who are the best fits with the Nov. 5 trade deadline just days away?`\
+https://nytimes.com/athletic/5888978/2024/11/01/nfl-trade-deadline-2024-rumors-latest-news/
+
 **What's on Bruce Feldman's radar? Michigan QB carousel, Big 12 respect, Ryan Day angst**\
 `Why did Michigan go back to Davis Warren? Who needs the win more in Ohio State-Penn State? Is J.J. Smith for real?`\
 https://nytimes.com/athletic/5889792/2024/11/01/penn-state-ohio-state-byu-college-football-news/
