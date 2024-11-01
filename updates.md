@@ -1,3 +1,7 @@
+**Tyus Jones has steadied the Suns offense: 'He's exactly what we need'**\
+`Phoenix added the veteran point guard on a minimum contract this summer, and Jones has fixed the team's late-game struggles.`\
+https://nytimes.com/athletic/5890267/2024/11/01/tyus-jones-suns-point-guard/
+
 **Expect Higher Costs for Your Health Care Benefits Next Year**\
 `Employers are predicting an increase of as much as 9 percent, on average, but are generally avoiding passing along much of that to their employees, industry groups say.`\
 https://nytimes.com/2024/11/01/your-money/benefits-health-care-enrollment.html
