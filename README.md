@@ -22,13 +22,13 @@ https://nytimes.com/athletic/5889422/2024/11/01/colts-anthony-richardson-future-
 `“If I had $1 billion, how would I try to influence the results of this election?”`\
 https://nytimes.com/2024/11/01/podcasts/billionaire-game-theory-we-are-not-ready-for-agi-election-betting-markets-get-weird.html
 
-**The Army of Election Officials Ready to Reject the Vote**\
-`An investigation in four battleground states found that Republicans have taken control of election boards with the aim of challenging and overturning results that don’t go their way.`\
-https://nytimes.com/2024/11/01/podcasts/the-daily/election-officials.html
-
 **Lloyd: Cavaliers rolling on rare course to start season**\
 `It's too early to celebrate fully, but the numbers say more good things may be on the horizon in Cleveland.`\
 https://nytimes.com/athletic/5889418/2024/11/01/nba-cleveland-cavaliers-start/
+
+**The Army of Election Officials Ready to Reject the Vote**\
+`An investigation in four battleground states found that Republicans have taken control of election boards with the aim of challenging and overturning results that don’t go their way.`\
+https://nytimes.com/2024/11/01/podcasts/the-daily/election-officials.html
 
 **JD Vance Goes on Joe Rogan, and Young Thug Pleads Guilty**\
 `Plus, the jobs report, with a twist.`\
