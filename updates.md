@@ -1,3 +1,7 @@
+**WTA Tour chief executive defends Saudi tournament**\
+`The new head of women's tennis said she misspoke in saying that tournament hosts need not align with WTA values.`\
+https://nytimes.com/athletic/5890975/2024/11/01/wta-tour-finals-chief-executive-portia-archer-defends-saudi-arabia-tournament/
+
 **As Russia Advances, U.S. Fears Ukraine Has Entered a Grim Phase**\
 `Weapons supplies are no longer Ukraine’s main disadvantage, American military officials say.`\
 https://nytimes.com/2024/11/01/us/politics/russia-ukraine-war.html
