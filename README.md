@@ -1,7 +1,3 @@
-**The Athletic FC: Bayern Munich's big-dog status under threat and Man City's injury crisis**\
-`Vincent Kompany's side are top of the league but struggling in Europe, plus Pep Guardiola's selection headache could bust the data models`\
-https://nytimes.com/athletic/5890262/2024/11/01/bayern-munich-man-city-injury-crisis/
-
 **Elena Rybakina hires Goran Ivanisevic as new coach**\
 `The world No. 5 will join up with the former Wimbledon champion for the 2025 season and beyond.`\
 https://nytimes.com/athletic/5890523/2024/11/01/elena-rybakina-coach-ivanisevic/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/01/books/banned-books-2023-2024.html
 **Man United confirm Amorim as new head coach**\
 `Manchester United have confirmed Sporting Lisbon&#8217;s Ruben Amorim as their new head coach.`\
 https://nytimes.com/athletic/5880480/2024/11/01/ruben-amorim-manchester-united-manager/
+
+**How did Victor Wembanyama respond to a bad game? With a historic one for the Spurs**\
+`One night after one of his worst games as a pro against Oklahoma City, Wemby posted his second career 5x5 night versus the Jazz.`\
+https://nytimes.com/athletic/5890136/2024/11/01/victor-wembanyama-5x5-spurs/
 
