@@ -1,3 +1,7 @@
+**Who Abandoned Liberalism First, the Populists or the Establishment?**\
+`The uncertain future of ‘whole of society’ politics.`\
+https://nytimes.com/2024/11/01/opinion/liberals-populists.html
+
 **Prime Tire: Early surprises at the Brazil GP. Plus, the rise of an unlikely F1 star**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/5891286/2024/11/01/brazil-gp-colapinto-verstappen-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/well/eat/omad-diet-benefits-risks.html
 **How to Keep Traffic Moving? An Airport Puts Hugs on a Timer.**\
 `The new rule at a New Zealand airport limits curbside embraces to three minutes, drawing worldwide commentary, from the indignant to the amused.`\
 https://nytimes.com/2024/11/01/world/australia/airport-hug-time-limit.html
-
-**Heat Today: Heat Today: Can Tyler Herro's hot start keep Miami's offense afloat vs. the Wizards?**\
-`Can Tyler Herro help Miami's offense sustain a full-game rhythm against the Wizards in Mexico City?`\
-https://nytimes.com/athletic/5890960/2024/11/01/tyler-herro-miami-heat-washington-wizards-nba-mexico-city/
 
