@@ -1,3 +1,23 @@
+**1 in 4 Child Deaths After E.R. Visits Are Preventable, Study Finds**\
+`If every emergency room in the United States were fully prepared to treat children, thousands of lives would be saved and the cost would be $11.84 or less per child, researchers found.`\
+https://nytimes.com/2024/11/01/health/child-deaths-emergency-room.html
+
+**Let’s Eat Like Marathoners**\
+`Not everyone can conquer 26.2 miles. But we can all enjoy Melissa Clark’s sustaining pasta with kale pesto and butternut squash.`\
+https://nytimes.com/2024/11/01/marathon-recipes.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include female assassins, a quirky French thief and crooked cops.`\
+https://nytimes.com/2024/11/01/movies/five-action-movies-to-stream-now.html
+
+**Tom Hanks and Robin Wright Open a New Box**\
+`The “Forrest Gump” stars were game to reunite with Robert Zemeckis for the technical experiment of “Here.” De-aging? A static camera? They weren’t fazed.`\
+https://nytimes.com/2024/11/01/movies/tom-hanks-robin-wright-here-forrest-gump.html
+
+**Hit Play About U.S. Constitution Debuts in Canada. Amended, of Course.**\
+`How do you retool “What the Constitution Means to Me” for those unfamiliar with the U.S. Constitution? Consult Canada’s Charter of Rights and Freedoms.`\
+https://nytimes.com/2024/11/01/theater/heidi-schreck-what-the-constitution-means-to-me.html
+
 **Yeat’s Chart Topper and Rage Rap’s New Wave**\
 `A conversation about the mysterious rapper’s rise and the impact of hip-hop’s splintering.`\
 https://nytimes.com/2024/11/01/arts/music/popcast-yeat.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/01/opinion/mentally-ill-homeless-care.html
 **How to Win Back the Wary Consumer**\
 `It’s getting harder to tell what’s real — from product reviews to descriptions — which can lead to confusion and hesitation in people’s online shopping habits. This poses a real challenge for organizations doing business online.`\
 https://nytimes.com/paidpost/accenture-episode-42/how-to-win-back-the-wary-consumer.html
-
-**Eagles' Fred Johnson once hit 'rock bottom.' Here's how self-belief helped him belong**\
-`Johnson once thought his career was approaching its end, but his number has gotten called this season and he has responded admirably. `\
-https://nytimes.com/athletic/5888330/2024/11/01/fred-johnson-eagles-offensive-line/
-
-**Maresca explains Fernandez selection decision: 'It’s a matter of balance'**\
-`Enzo Maresca insists he still has “100 per cent” confidence in Enzo Fernandez but prefers the “physicality” that Moises Caicedo and Romeo Lavia bring to Chelsea’s midfield.`\
-https://nytimes.com/athletic/5890842/2024/11/01/chelsea-enzo-fernandez-maresca/
-
-**Eze out until after international break, Wharton to undergo surgery**\
-`Crystal Palace will be without seven first-team players for their visit to Wolverhampton Wanderers on Saturday after Eberechi Eze and Adam Wharton were ruled out until after the international break.`\
-https://nytimes.com/athletic/5890741/2024/11/01/crystal-palace-eze-injury-wharton-surgery/
-
-**'We gotta fix this': Bucks crushed by Grizzlies as transition defense fails once again**\
-`The Grizzlies repeatedly beat the Bucks in transition on Thursday, continuing an alarming trend that dates back to the start of last season.`\
-https://nytimes.com/athletic/5890281/2024/11/01/bucks-grizzlies-giannis-antetokounmpo/
-
-**Weak Jobs Report Provides Political Fodder Ahead of Election Day**\
-`Republicans and Democrats used the latest jobs numbers to bolster their arguments about who would be better at managing the economy.`\
-https://nytimes.com/2024/11/01/business/harris-trump-jobs-report-election.html
 
