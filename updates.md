@@ -1,3 +1,11 @@
+**Is It Healthy to Eat Just Once a Day?**\
+`Bruce Springsteen said he does. We asked experts about the science behind the OMAD diet.`\
+https://nytimes.com/2024/11/01/well/eat/omad-diet-benefits-risks.html
+
+**How to Keep Traffic Moving? An Airport Puts Hugs on a Timer.**\
+`The new rule at a New Zealand airport limits curbside embraces to three minutes, drawing worldwide commentary, from the indignant to the amused.`\
+https://nytimes.com/2024/11/01/world/australia/airport-hug-time-limit.html
+
 **Heat Today: Heat Today: Can Tyler Herro's hot start keep Miami's offense afloat vs. the Wizards?**\
 `Can Tyler Herro help Miami's offense sustain a full-game rhythm against the Wizards in Mexico City?`\
 https://nytimes.com/athletic/5890960/2024/11/01/tyler-herro-miami-heat-washington-wizards-nba-mexico-city/
