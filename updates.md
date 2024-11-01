@@ -1,3 +1,7 @@
+**‘Distressed’ Students at Elite School Can Take a Day Off After Election**\
+`Attendance on Wednesday, or whatever day the results are announced, is optional for high school students at the Ethical Culture Fieldston School in New York City, families were told.`\
+https://nytimes.com/2024/10/31/nyregion/fieldston-school-election-attendance.html
+
 **Magic's Paolo Banchero sidelined indefinitely with oblique tear**\
 `Banchero's absence could derail the up-and-coming Magic from securing a top-six seed.`\
 https://nytimes.com/athletic/5889887/2024/10/31/paolo-banchero-injury-oblique-orlando-magic/
