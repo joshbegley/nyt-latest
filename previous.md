@@ -1,3 +1,7 @@
+**The Path to Control of Congress May Swerve Through Alabama**\
+`A House district in Alabama was redrawn to empower Black voters, changing what had been a safe Republican seat into a highly competitive and potentially consequential battleground.`\
+https://nytimes.com/2024/11/01/us/politics/alabama-house-dobson-figures-congress.html
+
 **Premier League predicted lineups: Who do our writers think will start in Gameweek 10?**\
 `As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5874171/2024/11/01/premier-league-predicted-lineups-gameweek-10/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/us/politics/russia-ukraine-war.html
 **A Kid's Guide to the Election**\
 `Presidential elections are confusing enough for adults (see: the Electoral College). But for kids, they can be downright baffling. These stories from The New York Times for Kids, a monthly print section for readers ages 8 to 14, are intended to answer the questions the kids in your life may have and help them follow along with the action.`\
 https://nytimes.com/spotlight/a-kids-guide-to-the-election
-
-**This 3-Course Vegetarian Dinner Is Ready to Party**\
-`This gorgeous David Tanis spread stars a sweet-tart radicchio salad, and a cheesy polenta bake with herby mushrooms.`\
-https://nytimes.com/2024/11/01/dining/3-course-vegetarian-dinner-party-menu.html
 
