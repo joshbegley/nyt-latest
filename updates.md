@@ -1,3 +1,11 @@
+**Stream These 9 Titles Before They Leave Netflix This Month**\
+`A slew of great movies and TV shows are leaving Netflix for U.S. subscribers in November. Here’s a roundup of the best.`\
+https://nytimes.com/2024/11/01/movies/leaving-netflix-november.html
+
+**Lamar Jackson returns to practice, 'ready to go' Sunday vs. Broncos**\
+`The two-time MVP missed two practices this week, but says he was "just resting my body" and that it is a "long season." `\
+https://nytimes.com/athletic/5891400/2024/11/01/ravens-lamar-jackson-returns-practice-broncos/
+
 **Bengals WR Tee Higgins doubtful vs. Raiders**\
 `Tee Higgins sustained a quad injury during practice last Friday and didn't suit up in Week 8.`\
 https://nytimes.com/athletic/5891199/2024/11/01/tee-higgins-doubtful-bengals-raiders/
