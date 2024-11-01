@@ -1,9 +1,9 @@
-**How a Year of Rain Fell on Parts of Spain in Eight Hours**\
-`The region is no stranger to storms like those that caused this week’s deluges. But global warming helps them pack a bigger punch, scientists said.`\
-https://nytimes.com/2024/11/01/climate/spain-valencia-floods.html
+**Gauff 'probably wouldn't come back' to Saudi Arabia for tennis without seeing change**\
+`The world No. 3 also discussed the upcoming presidential election in America.`\
+https://nytimes.com/athletic/5891414/2024/11/01/coco-gauff-wta-tour-finals-saudi-election/
 
 **Mountain West adding Grand Canyon University in 2026**\
-`It’s the latest addition for the MWC as it rebuilds following the pending departure of five schools to the similarly-rebuilding Pac-12.`\
+`Grand Canyon, which does not have a football program, will compete in 17 sports in the MWC.`\
 https://nytimes.com/athletic/5891429/2024/11/01/mountain-west-conference-grand-canyon-university/
 
 **All Trick, No Treat: Dublin Crowds Turn Up for Halloween Parade That Wasn’t**\
