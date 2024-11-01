@@ -1,3 +1,7 @@
+**Who Abandoned Liberalism First, the Populists or the Establishment?**\
+`The uncertain future of ‘whole of society’ politics.`\
+https://nytimes.com/2024/11/01/opinion/liberals-populists.html
+
 **Prime Tire: Early surprises at the Brazil GP. Plus, the rise of an unlikely F1 star**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/5891286/2024/11/01/brazil-gp-colapinto-verstappen-prime-tire/

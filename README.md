@@ -1,3 +1,7 @@
+**Draymond Green, Steve Kerr and the Warriors are fixing their challenge problem**\
+`Entering the weekend, the Warriors have the league's second-best defensive rating. The team’s challenge success rate could be why. `\
+https://nytimes.com/athletic/5887166/2024/11/01/draymond-green-steve-kerr-warriors-defense-nba/
+
 **Who Abandoned Liberalism First, the Populists or the Establishment?**\
 `The uncertain future of ‘whole of society’ politics.`\
 https://nytimes.com/2024/11/01/opinion/liberals-populists.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/movies/100000009795193/blitz-scene.html
 **Is It Healthy to Eat Just Once a Day?**\
 `Bruce Springsteen said he does. We asked experts about the science behind the OMAD diet.`\
 https://nytimes.com/2024/11/01/well/eat/omad-diet-benefits-risks.html
-
-**How to Keep Traffic Moving? An Airport Puts Hugs on a Timer.**\
-`The new rule at a New Zealand airport limits curbside embraces to three minutes, drawing worldwide commentary, from the indignant to the amused.`\
-https://nytimes.com/2024/11/01/world/australia/airport-hug-time-limit.html
 
