@@ -1,3 +1,7 @@
+**The Lakers’ reality check, Anthony Davis' MVP form and more trends from first 5 games**\
+`The Lakers have shown that they are potentially a contender, but a gap remains between them and the top of the West.`\
+https://nytimes.com/athletic/5875169/2024/11/01/lakers-trends-anthony-davis-start/
+
 **Mike Elko's secret weapon at Texas A&M is a 64-year-old back from a hiatus**\
 `Mike Elko felt his most important hire at Texas A&M would be his strength coach. Was he right? `\
 https://nytimes.com/athletic/5889921/2024/11/01/texas-am-college-football-mike-elko-tommy-moffitt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889233/2024/11/01/row-z-ballon-dor-ten-hag/
 **Five Chargers predictions at midseason: Justin Herbert will be MVP worthy in second half**\
 `Among the other predictions: Ladd McConkey will top 1,000 yards and Khalil Mack will wreck a game.`\
 https://nytimes.com/athletic/5888680/2024/11/01/chargers-predictions-nfl-midseason-2024/
-
-**The Athletic’s Friday football quiz question #28**\
-`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/5888832/2024/11/01/the-athletics-friday-football-quiz-question-28/
 
