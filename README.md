@@ -1,4 +1,4 @@
-**Nicole Wallace Calls on Her Former Boss, George W. Bush, to Denounce Trump**\
+**Nicolle Wallace Calls on Her Former Boss, George W. Bush, to Denounce Trump**\
 `Ms. Wallace, who served as the communications director in the Bush White House, made the appeal on her MSNBC program.`\
 https://nytimes.com/2024/11/01/us/politics/george-w-bush-nicole-wallace-2024-election.html
 
