@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2024/11/01/briefing/01news-quiz.html
 `Don’t let the monarch of Mar-a-Lago take back his throne.`\
 https://nytimes.com/2024/11/01/opinion/trump-gender-election-voting.html
 
-**In Other News, Who Will Control Congress?**\
-`It could come down to the fate of Democrats in Trump-leaning territory.`\
-https://nytimes.com/2024/11/01/podcasts/in-other-news-who-will-control-congress.html
+**Bears trade deadline questions: Should they deal one of their second-round picks?**\
+`Will GM Ryan Poles give up draft capital to help this year's team? Should he trade Nate Davis and/or Khalil Herbert?`\
+https://nytimes.com/athletic/5888992/2024/11/01/bears-trade-deadline-second-round-picks/
 
