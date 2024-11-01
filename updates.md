@@ -1,3 +1,11 @@
+**How did Victor Wembanyama respond to a bad game? With a historic one for the Spurs**\
+`One night after one of his worst games as a pro against Oklahoma City, Wemby posted his second career 5x5 night versus the Jazz.`\
+https://nytimes.com/athletic/5890136/2024/11/01/victor-wembanyama-5x5-spurs/
+
+**They ran an Olympic marathon 12 weeks ago. Now they're back at it in New York**\
+`A host of runners are set for a taxing quadrennial feat — the quick turnaround from the Olympic marathon to the New York City Marathon.`\
+https://nytimes.com/athletic/5873775/2024/11/01/new-york-city-marathon-olympics-olympians-paris/
+
 **‘Phantom of the Opera’ Closed on Broadway. Now It’s Hitting the Road.**\
 `The enduring Andrew Lloyd Webber musical will begin a multiyear tour in Baltimore in November 2025.`\
 https://nytimes.com/2024/11/01/theater/phantom-opera-tour.html

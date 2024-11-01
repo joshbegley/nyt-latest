@@ -1,3 +1,11 @@
+**How did Victor Wembanyama respond to a bad game? With a historic one for the Spurs**\
+`One night after one of his worst games as a pro against Oklahoma City, Wemby posted his second career 5x5 night versus the Jazz.`\
+https://nytimes.com/athletic/5890136/2024/11/01/victor-wembanyama-5x5-spurs/
+
+**They ran an Olympic marathon 12 weeks ago. Now they're back at it in New York**\
+`A host of runners are set for a taxing quadrennial feat — the quick turnaround from the Olympic marathon to the New York City Marathon.`\
+https://nytimes.com/athletic/5873775/2024/11/01/new-york-city-marathon-olympics-olympians-paris/
+
 **‘Phantom of the Opera’ Closed on Broadway. Now It’s Hitting the Road.**\
 `The enduring Andrew Lloyd Webber musical will begin a multiyear tour in Baltimore in November 2025.`\
 https://nytimes.com/2024/11/01/theater/phantom-opera-tour.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-electio
 **Franco Colapinto's F1 success has captured the attention of Argentina**\
 `Colapinto has captured the attention of Argentine media. Will it last?`\
 https://nytimes.com/athletic/5889058/2024/11/01/formula-one-franco-colapinto-argentina-messi/
-
-**Broncos believe Bo Nix can handle the heat as biggest tests — Ravens, Chiefs — loom**\
-`Nix won the NFL's Offensive Rookie of the Month award for October on Thursday, but he can he keep climbing amid a brutal November schedule?`\
-https://nytimes.com/athletic/5889007/2024/11/01/bo-nix-broncos-ravens-week-9/
-
-**Leon Draisaitl stepping up without Connor McDavid again proves he's NHL all-timer**\
-`Draisaitl scored two skillful goals and added an assist in the Oilers' 5-1 win over the Predators.`\
-https://nytimes.com/athletic/5890191/2024/11/01/leon-draisaitl-connor-mcdavid-oilers-nhl-all-timer/
 
