@@ -1,3 +1,7 @@
+**Greg Sankey says SEC will fine teams for faking injuries**\
+`Coaches will be reprimanded and the program will be fined $50,000 on a first offense. A coach will be reprimanded again for a second offense`\
+https://nytimes.com/athletic/5891782/2024/11/01/college-football-faking-injuries-sec-greg-sankey/
+
 **New York Sirens' No. 1 pick Sarah Fillier finally signs. Why is it only a 1-year deal?**\
 `Fillier has finally signed in New York, but the term of the deal is unique for a player of her caliber.`\
 https://nytimes.com/athletic/5891749/2024/11/01/new-york-sirens-pwhl-sarah-filler-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5891698/2024/11/01/san-diego-wave-poor-field-condit
 **Canadiens' rare bag skate was a telling sign of the Martin St. Louis era**\
 `When mistakes repeat themselves and lead to constant goals against and losses, a coach is left with few other options than punishment.`\
 https://nytimes.com/athletic/5891737/2024/11/01/canadiens-martin-st-louis-bag-skate/
-
-**Halloween Parade Float in Pennsylvania Denounced as Racist**\
-`Daylon A. Davis, the president of the N.A.A.C.P.’s Pittsburgh branch, said he was deeply disturbed by the way Vice President Kamala Harris was depicted.`\
-https://nytimes.com/2024/11/01/us/politics/pennsylvania-halloween-parade-float-racist.html
 
