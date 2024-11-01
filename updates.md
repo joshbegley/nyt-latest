@@ -1,3 +1,7 @@
+**Word of the Day: retaliation**\
+`This word has appeared in 967 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/01/learning/word-of-the-day-retaliation.html
+
 **How Virgil van Dijk added another layer to his game at Arne Slot's Liverpool**\
 `Virgil van Dijk has always been a key player for Liverpool, but this season he's added another dimension to his game `\
 https://nytimes.com/athletic/5887619/2024/11/01/van-dijk-liverpool-slot-analysis/

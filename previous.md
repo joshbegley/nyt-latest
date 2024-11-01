@@ -1,3 +1,7 @@
+**Word of the Day: retaliation**\
+`This word has appeared in 967 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/01/learning/word-of-the-day-retaliation.html
+
 **How Virgil van Dijk added another layer to his game at Arne Slot's Liverpool**\
 `Virgil van Dijk has always been a key player for Liverpool, but this season he's added another dimension to his game `\
 https://nytimes.com/athletic/5887619/2024/11/01/van-dijk-liverpool-slot-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5887698/2024/11/01/bukayo-saka-premier-league-goals
 **It's hard not to feel Villa blew a superb chance to end 29-year trophy drought with Palace cup loss**\
 `There is an argument for rotation in the domestic cups as they are of lesser importance, but this still feels like a missed opportunity`\
 https://nytimes.com/athletic/5887996/2024/11/01/aston-villa-trophy-drought-emery/
-
-**Forest suddenly have several players knocking on England's door - and Nuno couldn't be happier**\
-`It is testament to Forest's superb start to the season that a handful of their squad will be hopeful of playing for England soon`\
-https://nytimes.com/athletic/5888509/2024/11/01/nottingham-forest-england-players/
 
