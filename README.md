@@ -1,3 +1,7 @@
+**Chipmaker GlobalFoundries Faces $500,000 Fine for Banned Shipments to China**\
+`The Biden administration said it had reached a settlement after the U.S. chipmaker voluntarily disclosed that it had shipped products to a firm linked with China’s military industrial complex.`\
+https://nytimes.com/2024/11/01/us/politics/globalfoundries-chips-fine-china.html
+
 **Make America … Get Polio Again!**\
 `Are you really going to trust these guys with your health?`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-rfk-vance-vaccine
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891429/2024/11/01/mountain-west-conference-grand-c
 **All Trick, No Treat: Dublin Crowds Turn Up for Halloween Parade That Wasn’t**\
 `The scariest thing this Halloween? In one city, it was the power of a phony online event listing.`\
 https://nytimes.com/2024/11/01/world/europe/fake-halloween-parade-dublin.html
-
-**The Best Chore Coats, From $40 to $1,850**\
-`A roundup of versatile work wear-inspired jackets.`\
-https://nytimes.com/2024/11/01/t-magazine/chore-coats-workwear-jackets.html
 
