@@ -1,3 +1,7 @@
+**‘Distressed’ Students at Elite School Can Take a Day Off After Election**\
+`Attendance on Wednesday, or whatever day the results are announced, is optional for high school students at the Ethical Culture Fieldston School in New York City, families were told.`\
+https://nytimes.com/2024/10/31/nyregion/fieldston-school-election-attendance.html
+
 **Magic's Paolo Banchero sidelined indefinitely with oblique tear**\
 `Banchero's absence could derail the up-and-coming Magic from securing a top-six seed.`\
 https://nytimes.com/athletic/5889887/2024/10/31/paolo-banchero-injury-oblique-orlando-magic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/pageoneplus/corrections-nov-1-2024.html
 **Bucks' Khris Middleton: 'Trending in the right direction every day'**\
 `Three-time All-Star Middleton says that he feels good, just not good enough to play yet.`\
 https://nytimes.com/athletic/5888942/2024/10/31/bucks-khris-middleton-injury-update/
-
-**Vance Tells Rogan: Teens Become Trans to Get Into Ivy League**\
-`Appearing on Joe Rogan’s podcast, Senator JD Vance also said that liberal women celebrate their abortions and that Donald Trump would win the “normal gay guy vote.”`\
-https://nytimes.com/2024/10/31/us/politics/jd-vance-joe-rogan.html
 
