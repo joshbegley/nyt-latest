@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5890960/2024/11/01/tyler-herro-miami-heat-washingto
 `Two recent videos have sought to undermine confidence in the security of the vote.`\
 https://nytimes.com/2024/11/01/us/politics/russia-election-misinformation.html
 
-**Islanders' Mathew Barzal out with upper-body injury: What a long-term absence would mean**\
+**Islanders' Mathew Barzal out with upper-body injury**\
 `Barzal will be out for the team's game in Buffalo on Friday and is being evaluated by team doctors.`\
 https://nytimes.com/athletic/5891145/2024/11/01/islanders-mathew-barzal-injury/
 
