@@ -1,7 +1,3 @@
-**The Best Chore Coats, From $40 to $1,850**\
-`A roundup of versatile work wear-inspired jackets.`\
-https://nytimes.com/2024/11/01/t-magazine/chore-coats-workwear-jackets.html
-
 **Israeli Military Carries Out Raid in the Occupied West Bank**\
 `The Israeli military said they killed several militants during a raid in the West Bank, in an operation that residents and humanitarian groups said caused significant damage to infrastructure.`\
 https://nytimes.com/video/world/middleeast/100000009798794/west-bank-raid.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/01/opinion/liberals-populists.html
 **Prime Tire: Early surprises at the Brazil GP. Plus, the rise of an unlikely F1 star**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/5891286/2024/11/01/brazil-gp-colapinto-verstappen-prime-tire/
+
+**Trump’s Attack on Liz Cheney Is Just as Malicious as It Appears**\
+`It went far beyond a chicken-hawk accusation.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-cheney-attack-chicken-hawk
 
