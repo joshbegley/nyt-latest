@@ -1,4 +1,16 @@
-**Charles Leclerc fined by FIA after using inappropriate language at Mexico Grand Prix**\
+**On the issues: Where Harris and Trump stand on education.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-education
+
+**Teoscar Hernández says returning to Dodgers will be a 'priority'**\
+`Hernández hopes he and the Dodgers can agree to a contract as soon as possible. "Hopefully tomorrow," he said. "I want us to be here."`\
+https://nytimes.com/athletic/5891990/2024/11/01/dodgers-teoscar-hernandez-free-agent/
+
+**Trump Still Can’t Stop Talking About Women**\
+`The countdown to the election feels like an Advent calendar with a dubious remark behind each door.`\
+https://nytimes.com/2024/11/01/us/politics/harris-trump-womens-health-election.html
+
+**F1's Charles Leclerc fined by FIA after using inappropriate language**\
 `Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
 https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5891859/2024/11/01/fa-cup-huddersfield-tamworth/
 **Reds re-sign LHP Brent Suter, decline option on C Luke Maile**\
 `Cincinnati signed Suter to a one-year deal worth $2.25 million with a club option for 2026 worth $3 million.`\
 https://nytimes.com/athletic/5891896/2024/11/01/reds-brent-suter-luke-maile/
-
-**Will Tim Walz’s rural upbringing lure small-town swing voters?**\
-`By Dionne Searcey`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election/will-tim-walzs-rural-upbringing-lure-small-town-swing-voters
-
-**Vote Certification Won’t Be the Biggest Problem on Election Night**\
-`But violence and intimidation remain a significant threat.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/election-night-concerns
-
-**Greg Sankey says SEC will fine teams for faking injuries**\
-`Coaches will be reprimanded and the program will be fined $50,000 on a first offense. A coach will be reprimanded again for a second offense`\
-https://nytimes.com/athletic/5891782/2024/11/01/college-football-faking-injuries-sec-greg-sankey/
 
