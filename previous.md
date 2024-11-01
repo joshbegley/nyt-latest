@@ -10,8 +10,8 @@ https://nytimes.com/2024/10/31/us/politics/jd-vance-joe-rogan.html
 `Nacua returned early from the sprained PCL to play in last Thursday night’s win against the Minnesota Vikings.`\
 https://nytimes.com/athletic/5889624/2024/10/31/rams-puka-nacua-knee-injury/
 
-**Trump Is Offending Women. His Campaign Is Reaching Out to Young Men.**\
-`How Trump’s allies are honing their message to young men in the campaign’s final days.`\
+**As Women Drift From Trump, His Campaign Is Reaching Out to Young Men**\
+`How Donald Trump’s allies are honing their message to young men in the campaign’s final days.`\
 https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
 
 **Giants to name Zack Minasian new GM: Sources**\

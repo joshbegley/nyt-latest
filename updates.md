@@ -1,3 +1,7 @@
+**As Women Drift From Trump, His Campaign Is Reaching Out to Young Men**\
+`How Donald Trump’s allies are honing their message to young men in the campaign’s final days.`\
+https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
+
 **Bucks' Khris Middleton: 'Trending in the right direction every day'**\
 `Three-time All-Star Middleton says that he feels good, just not good enough to play yet.`\
 https://nytimes.com/athletic/5888942/2024/10/31/bucks-khris-middleton-injury-update/
