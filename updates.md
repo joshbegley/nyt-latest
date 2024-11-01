@@ -1,3 +1,11 @@
+**So, Can We Trust the Polls?**\
+`Recent changes add up to a case for cautious optimism on better accuracy, but that’s far from a guarantee.`\
+https://nytimes.com/2024/11/01/upshot/so-can-we-trust-the-polls.html
+
+**What the Weak Jobs Report Tells Us**\
+`It doesn’t mean we’re on the edge of a recession.`\
+https://nytimes.com/2024/11/01/opinion/krugman-weak-jobs-report.html
+
 **Former Man United striker Yorke named Trinidad and Tobago head coach**\
 `Former Manchester United striker Dwight Yorke has been named the new head coach of the Trinidad and Tobago national team.`\
 https://nytimes.com/athletic/5891006/2024/11/01/dwight-yorke-trinidad-tobago/
