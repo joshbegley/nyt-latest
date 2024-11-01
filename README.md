@@ -1,3 +1,11 @@
+**Nguyen: How Cardinals use old-school approach to spark Kyler Murray-led offense**\
+`A team that used to rely on small, speedy receivers has found success with size and sets that resemble the single-wing.`\
+https://nytimes.com/athletic/5887104/2024/11/01/cardinals-offense-kyler-murray-drew-petzing/
+
+**NFL trade deadline 2024: Roundup of team plans and potential moves**\
+`What's the latest intel and who are the best fits with the Nov. 5 trade deadline just days away?`\
+https://nytimes.com/athletic/5888978/2024/11/01/nfl-trade-deadline-2024-rumors-latest-news/
+
 **What's on Bruce Feldman's radar? Michigan QB carousel, Big 12 respect, Ryan Day angst**\
 `Why did Michigan go back to Davis Warren? Who needs the win more in Ohio State-Penn State? Is J.J. Smith for real?`\
 https://nytimes.com/athletic/5889792/2024/11/01/penn-state-ohio-state-byu-college-football-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/01/opinion/trump-gender-election-voting.html
 **In Other News, Who Will Control Congress?**\
 `It could come down to the fate of Democrats in Trump-leaning territory.`\
 https://nytimes.com/2024/11/01/podcasts/in-other-news-who-will-control-congress.html
-
-**Bears trade deadline questions: Should they deal one of their second-round picks?**\
-`Will GM Ryan Poles give up draft capital to help this year's team? Should he trade Nate Davis and/or Khalil Herbert?`\
-https://nytimes.com/athletic/5888992/2024/11/01/bears-trade-deadline-second-round-picks/
-
-**$1.6 Million Homes in Sardinia, Italy**\
-`Homes in the island region of Italy include a three-bedroom villa in the Costa Smeralda, a traditional stone house in Muzzeddu, and a nine-bedroom estate on 62 acres.`\
-https://nytimes.com/2024/11/01/realestate/homes-sardinia-italy.html
 
