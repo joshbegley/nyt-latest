@@ -1,3 +1,7 @@
+**Wayne Auton, NASCAR's 'fatherly figure,' prepares for final race and a new chapter**\
+`For more than three decades, Wayne Auton has directed NASCAR series — and left a lasting impression on the sport along the way.`\
+https://nytimes.com/athletic/5888079/2024/11/01/wayne-auton-nascar-xfinity-series-director-retirement/
+
 **The Lakers’ reality check, Anthony Davis' MVP form and more trends from first 5 games**\
 `The Lakers have shown that they are potentially a contender, but a gap remains between them and the top of the West.`\
 https://nytimes.com/athletic/5875169/2024/11/01/lakers-trends-anthony-davis-start/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/business/dealbook/rfk-trump-health-food-policy.ht
 **Row Z: Ballon d'Or melodrama and an ode to Erik**\
 `Tim Spiers takes a look at the sillier side of football this week`\
 https://nytimes.com/athletic/5889233/2024/11/01/row-z-ballon-dor-ten-hag/
-
-**Five Chargers predictions at midseason: Justin Herbert will be MVP worthy in second half**\
-`Among the other predictions: Ladd McConkey will top 1,000 yards and Khalil Mack will wreck a game.`\
-https://nytimes.com/athletic/5888680/2024/11/01/chargers-predictions-nfl-midseason-2024/
 

@@ -1,3 +1,7 @@
+**Wayne Auton, NASCAR's 'fatherly figure,' prepares for final race and a new chapter**\
+`For more than three decades, Wayne Auton has directed NASCAR series — and left a lasting impression on the sport along the way.`\
+https://nytimes.com/athletic/5888079/2024/11/01/wayne-auton-nascar-xfinity-series-director-retirement/
+
 **The Lakers’ reality check, Anthony Davis' MVP form and more trends from first 5 games**\
 `The Lakers have shown that they are potentially a contender, but a gap remains between them and the top of the West.`\
 https://nytimes.com/athletic/5875169/2024/11/01/lakers-trends-anthony-davis-start/
