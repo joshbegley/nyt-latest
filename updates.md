@@ -1,3 +1,7 @@
+**Next week’s waiver wire: Jamaal Williams, Parker Washington and more players to add now — before the Week 10 rush**\
+`John Laghezza shares his top expected future waiver wire plays, including Parker Washington, who is eyeing an expanded role in Jacksonville.`\
+https://nytimes.com/athletic/5888373/2024/11/01/next-weeks-waiver-wire-jfantasy-football-jamaal-williams-parker-washington/
+
 **Sorrow and Pain in a Spanish Town Devastated by Flooding**\
 `More than 60 people were killed as floodwaters roared through Paiporta. “We are alive,” one woman said. “But we have lost everything.”`\
 https://nytimes.com/2024/11/01/world/europe/spain-flood-valencia-paiporta.html
