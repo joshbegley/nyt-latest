@@ -1,3 +1,7 @@
+**Bucks' Khris Middleton: 'Trending in the right direction every day'**\
+`Three-time All-Star Middleton says that he feels good, just not good enough to play yet.`\
+https://nytimes.com/athletic/5888942/2024/10/31/bucks-khris-middleton-injury-update/
+
 **JD Vance Talks to Joe Rogan About Trans Issues, Abortion and Testosterone**\
 `Senator JD Vance spoke for more than three hours on “The Joe Rogan Experience,” his latest appearance on a podcast with a large following among young men.`\
 https://nytimes.com/2024/10/31/us/politics/jd-vance-joe-rogan.html
