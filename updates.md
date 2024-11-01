@@ -1,3 +1,15 @@
+**Former Man United striker Yorke named Trinidad and Tobago head coach**\
+`Former Manchester United striker Dwight Yorke has been named the new head coach of the Trinidad and Tobago national team.`\
+https://nytimes.com/athletic/5891006/2024/11/01/dwight-yorke-trinidad-tobago/
+
+**What the Weak Jobs Report Tells Us**\
+`It doesn’t mean we’re on the edge of a recession.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/krugman-weak-jobs-report
+
+**Mahomes: WNBA expansion team in Kansas City a 'no-brainer'**\
+`Patrick and Brittany Mahomes are part of the ownership group of the NWSL's Kansas City Current.`\
+https://nytimes.com/athletic/5890661/2024/11/01/patrick-mahomes-wnba-kansas-city-expansion/
+
 **Mahomes: WNBA expansion team in Kansas City a 'no-brainer'**\
 `Ahead of the 2024 WNBA Draft, commissioner Cathy Engelbert said the league intends to expand to 16 teams by 2028.`\
 https://nytimes.com/athletic/5890661/2024/11/01/patrick-mahomes-wnba-kansas-city-expansion/
