@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5891990/2024/11/01/dodgers-teoscar-hernandez-free-a
 `The countdown to the election feels like an Advent calendar with a dubious remark behind each door.`\
 https://nytimes.com/2024/11/01/us/politics/harris-trump-womens-health-election.html
 
-**F1's Charles Leclerc fined by FIA after using inappropriate language**\
+**F1's Charles Leclerc fined by FIA after using inappropriate language at Mexico City GP**\
 `Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
 https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
 
