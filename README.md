@@ -1,3 +1,7 @@
+**Canadian Police Say They Dismantled Country’s Largest Drug Lab**\
+`Federal officers in British Columbia seized drugs and chemical precursors that could produce about 96 million opioid doses, the authorities said.`\
+https://nytimes.com/2024/11/01/world/canada/canada-drug-lab-fentanyl.html
+
 **Dodgers' Clayton Kershaw to undergo surgeries on foot, knee**\
 `The lefty still plans to pitch for the Dodgers next season “I'll be back, somehow."`\
 https://nytimes.com/athletic/5891966/2024/11/01/dodgers-clayton-kershaw-surgery-foot-knee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891782/2024/11/01/college-football-faking-injuries
 **New York Sirens' No. 1 pick Sarah Fillier finally signs. Why is it only a 1-year deal?**\
 `Fillier has finally signed in New York, but the term of the deal is unique for a player of her caliber.`\
 https://nytimes.com/athletic/5891749/2024/11/01/new-york-sirens-pwhl-sarah-filler-contract/
-
-**Ollie Bearman to replace ill Kevin Magnussen for rest of F1 São Paulo Grand Prix weekend**\
-`Bearman will get another taste of F1 grand prix action before his full-time ride with Haas in 2025. `\
-https://nytimes.com/athletic/5891789/2024/11/01/f1-ollie-bearman-haas-brazil-gp-kevin-magnussen/
 
