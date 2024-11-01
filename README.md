@@ -1,3 +1,7 @@
+**Watch a Nightclub Scene in ‘Blitz’**\
+`The writer and director Steve McQueen discusses a sequence set in the Café de Paris in London.`\
+https://nytimes.com/2024/11/01/movies/blitz-clip-steve-mcqueen.html
+
 **‘Blitz’ | Anatomy of a Scene**\
 `The writer and director Steve McQueen narrates a sequence from his film set in London during World War II.`\
 https://nytimes.com/video/movies/100000009795193/blitz-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/01/us/harris-trump-election/asian-american-vote
 **Israel Strikes Near Beirut as Diplomatic Push Shows No Sign of Success**\
 `The Biden administration sent envoys including the C.I.A. director to the Middle East this week, but Israel, Hezbollah and Hamas all appeared far from a deal to end the fighting.`\
 https://nytimes.com/2024/11/01/world/middleeast/israel-beirut-strikes-hezbollah.html
-
-**Canucks report cards: Grading every defender and goalie's October performance**\
-`Quinn Hughes and Kevin Lankinen are among the Canucks' standouts since the start of the regular season.`\
-https://nytimes.com/athletic/5889695/2024/11/01/canucks-report-cards-october/
 

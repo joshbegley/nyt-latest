@@ -1,3 +1,7 @@
+**Islanders' Mathew Barzal out with upper-body injury**\
+`Barzal will be out for the team's game in Buffalo on Friday and is being evaluated by team doctors.`\
+https://nytimes.com/athletic/5891145/2024/11/01/islanders-mathew-barzal-injury/
+
 **‘Blitz’ | Anatomy of a Scene**\
 `The writer and director Steve McQueen narrates a sequence from his film set in London during World War II.`\
 https://nytimes.com/video/movies/100000009795193/blitz-scene.html
