@@ -1,3 +1,15 @@
+**Canadian Police Say They Dismantled Country’s Largest Drug Lab**\
+`Federal officers in British Columbia seized drugs and chemical precursors that could produce about 96 million opioid doses, the authorities said.`\
+https://nytimes.com/2024/11/01/world/canada/canada-drug-lab-fentanyl.html
+
+**Dodgers' Clayton Kershaw to undergo surgeries on foot, knee**\
+`The lefty still plans to pitch for the Dodgers next season “I'll be back, somehow."`\
+https://nytimes.com/athletic/5891966/2024/11/01/dodgers-clayton-kershaw-surgery-foot-knee/
+
+**Reds re-sign LHP Brent Suter, decline option on C Luke Maile**\
+`Cincinnati signed Suter to a one-year deal worth $2.25 million with a club option for 2026 worth $3 million.`\
+https://nytimes.com/athletic/5891896/2024/11/01/reds-brent-suter-luke-maile/
+
 **Joel Embiid to critics: 'I’ve done way too much for this f------ city'**\
 `Embiid, who has not played this season due to "left knee injury management," said the idea that he wants to sit games out is 'bull----.'`\
 https://nytimes.com/athletic/5891762/2024/11/01/joel-embiid-injury-update-criticism-76ers/
