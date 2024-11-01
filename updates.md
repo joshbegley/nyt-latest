@@ -1,3 +1,15 @@
+**Man Who Killed Hundreds of Eagles and Hawks Gets Nearly 4 Years in Prison**\
+`Travis John Branson was part of a conspiracy that killed 3,600 birds, prosecutors said. He also trafficked and sold bird parts on the black market.`\
+https://nytimes.com/2024/10/31/us/eagle-killer-sentenced-four-years.html
+
+**LeBron James endorses Vice President Kamala Harris in 2024 election**\
+`The video was made specifically for James' endorsement by Holland West Productions, according to a source close to James.`\
+https://nytimes.com/athletic/5889448/2024/10/31/lebron-james-kamala-harris-endorsement-2024-election/
+
+**Jets' Malachi Corley drops ball, erases touchdown vs. Texans**\
+`Corley, a 2024 third-round pick, dropped the ball just short of the goal line at the end of a 19-yard touchdown run.`\
+https://nytimes.com/athletic/5889750/2024/10/31/malachi-corley-dropped-touchdown-jets-texans/
+
 **Corrections: Nov. 1, 2024**\
 `Corrections that appeared in print on Friday, Nov. 1, 2024.`\
 https://nytimes.com/2024/10/31/pageoneplus/corrections-nov-1-2024.html
