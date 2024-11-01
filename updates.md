@@ -1,3 +1,7 @@
+**Nvidia Will Replace Intel in the Dow Jones Stock Index**\
+`The change, starting next Friday, lifts a dominant player in artificial intelligence over its chip-making rival, which has struggled to keep up.`\
+https://nytimes.com/2024/11/01/technology/nvidia-intel-dow-jones-index.html
+
 **F1's Charles Leclerc fined by FIA after using inappropriate language at Mexico City GP**\
 `Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
 https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/

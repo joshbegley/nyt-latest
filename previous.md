@@ -1,3 +1,7 @@
+**Nvidia Will Replace Intel in the Dow Jones Stock Index**\
+`The change, starting next Friday, lifts a dominant player in artificial intelligence over its chip-making rival, which has struggled to keep up.`\
+https://nytimes.com/2024/11/01/technology/nvidia-intel-dow-jones-index.html
+
 **Scenes from a Dodgers World Series parade: 'Best thing I've ever been a part of'**\
 `Fans denied a parade after the 2020 title made up for lost time with a raucous, emotional celebration this time. `\
 https://nytimes.com/athletic/5891906/2024/11/01/dodgers-parade-world-series-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/world/canada/canada-drug-lab-fentanyl.html
 **Dodgers' Clayton Kershaw to undergo surgeries on foot, knee**\
 `The lefty still plans to pitch for the Dodgers next season: “I'll be back, somehow."`\
 https://nytimes.com/athletic/5891966/2024/11/01/dodgers-clayton-kershaw-surgery-foot-knee/
-
-**Joel Embiid to critics: 'I’ve done way too much for this f------ city'**\
-`Embiid, who has not played this season due to "left knee injury management," said the idea that he wants to sit games out is 'bull----.'`\
-https://nytimes.com/athletic/5891762/2024/11/01/joel-embiid-injury-update-criticism-76ers/
 
