@@ -1,3 +1,7 @@
+**Heidi Klum Transforms into Remote-Controlled E.T. for Halloween**\
+`The model and television host dressed as the alien from Steven Spielberg’s 1982 film for her annual New York City costume party.`\
+https://nytimes.com/2024/10/31/style/heidi-klum-halloween-costume-et-alien.html
+
 **Packed Like Sardines**\
 `Spencer Leach opens our solving weekend.`\
 https://nytimes.com/2024/10/31/crosswords/daily-puzzle-2024-11-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889624/2024/10/31/rams-puka-nacua-knee-injury/
 **As Women Drift From Trump, His Campaign Is Reaching Out to Young Men**\
 `How Donald Trump’s allies are honing their message to young men in the campaign’s final days.`\
 https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
-
-**Giants to name Zack Minasian new GM: Sources**\
-`Minasian, 41, joins his brother, Perry, as the first pair of siblings to be general managers in MLB at the same time.`\
-https://nytimes.com/athletic/5889591/2024/10/31/sf-giants-zack-minasian-general-manager/
 
