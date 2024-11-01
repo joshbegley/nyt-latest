@@ -1,4 +1,8 @@
-**2024-25 MLB offseason: Bowden's 25 bold predictions for signings, trades and more**\
+**More Rain Batters Parts of Spain as Rescuers Dig Through Debris**\
+`As the search continued for dozens of missing people in the east of the country, forecasters warned of new flooding in the southwest.`\
+https://nytimes.com/2024/11/01/world/europe/spain-rain-floods.html
+
+**2024-25 MLB offseason: Bowden's 25 predictions for signings, trades and more**\
 `Predicting where Juan Soto and other top free agents will sign, a bold trade, award winners and more in what should be a wild winter. `\
 https://nytimes.com/athletic/5890283/2024/11/01/mlb-offseason-predictions-2024-signings-trades/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5890191/2024/11/01/leon-draisaitl-connor-mcdavid-oi
 **Manchester United's players need to prove they can do what Amorim needs them to**\
 `Ruben Amorim is on the cusp of joining United — can the players do what he demands of them?`\
 https://nytimes.com/athletic/5888457/2024/11/01/manchester-united-players-ruben-amorim/
-
-**The Pulse: You have to see this catch**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5889782/2024/11/01/garrett-wilson-catch-jets-texans-the-pulse/
 
