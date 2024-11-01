@@ -1,10 +1,14 @@
+**So, Can We Trust the Polls?**\
+`Recent changes add up to a case for cautious optimism on better accuracy, but that’s far from a guarantee.`\
+https://nytimes.com/2024/11/01/upshot/so-can-we-trust-the-polls.html
+
 **Former Man United striker Yorke named Trinidad and Tobago head coach**\
 `Former Manchester United striker Dwight Yorke has been named the new head coach of the Trinidad and Tobago national team.`\
 https://nytimes.com/athletic/5891006/2024/11/01/dwight-yorke-trinidad-tobago/
 
 **What the Weak Jobs Report Tells Us**\
 `It doesn’t mean we’re on the edge of a recession.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/krugman-weak-jobs-report
+https://nytimes.com/2024/11/01/opinion/krugman-weak-jobs-report.html
 
 **Mahomes: WNBA expansion team in Kansas City a 'no-brainer'**\
 `Patrick and Brittany Mahomes are part of the ownership group of the NWSL's Kansas City Current.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/magazine/election-delay-vote-count.html
 **Gwinnett County, Ga.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/gwinnett-county-ga
-
-**Inside Five of America’s Strangest Polling Places**\
-`Grab a snack, do your laundry and cast a ballot.`\
-https://nytimes.com/2024/11/01/magazine/voting-strange-polling-locations.html
 
