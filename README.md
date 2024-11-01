@@ -1,3 +1,15 @@
+**Gauff 'probably wouldn't come back' to Saudi for tennis without seeing change**\
+`The world No. 3 also discussed the upcoming presidential election in America.`\
+https://nytimes.com/athletic/5891414/2024/11/01/coco-gauff-wta-tour-finals-saudi-election/
+
+**Mountain West Conference to add Grand Canyon University in 2026**\
+`It’s the latest addition for the MWC as it rebuilds following the pending departure of five schools to the similarly-rebuilding Pac-12.`\
+https://nytimes.com/athletic/5891429/2024/11/01/mountain-west-conference-grand-canyon-university/
+
+**All Trick, No Treat: Dublin Crowds Turn Up for Halloween Parade That Wasn’t**\
+`The scariest thing this Halloween? In one city, it was the power of a phony online event listing.`\
+https://nytimes.com/2024/11/01/world/europe/fake-halloween-parade-dublin.html
+
 **The Best Chore Coats, From $40 to $1,850**\
 `A roundup of versatile work wear-inspired jackets.`\
 https://nytimes.com/2024/11/01/t-magazine/chore-coats-workwear-jackets.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5891400/2024/11/01/ravens-lamar-jackson-returns-pra
 **White House Altered Official Transcript of Biden’s Remarks on Trump and ‘Garbage’**\
 `The debate over the meaning of President Biden’s words comes down to an apostrophe, which the White House press office inserted into the transcript without the approval of official stenographers.`\
 https://nytimes.com/2024/11/01/us/politics/biden-garbage-transcript.html
-
-**Draymond Green, Steve Kerr and the Warriors are fixing their challenge problem**\
-`Entering the weekend, the Warriors have the league's second-best defensive rating. The team’s challenge success rate could be why. `\
-https://nytimes.com/athletic/5887166/2024/11/01/draymond-green-steve-kerr-warriors-defense-nba/
-
-**Who Abandoned Liberalism First, the Populists or the Establishment?**\
-`The uncertain future of ‘whole of society’ politics.`\
-https://nytimes.com/2024/11/01/opinion/liberals-populists.html
-
-**Prime Tire: Early surprises at the Brazil GP. Plus, the rise of an unlikely F1 star**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/5891286/2024/11/01/brazil-gp-colapinto-verstappen-prime-tire/
 
