@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/11/01/us/harris-trump-election/bucks-county-pa
 `His decision came hours after he abruptly stormed off a broadcast of a live online Post talk show.`\
 https://nytimes.com/2024/11/01/business/media/hugh-hewitt-washington-post-jonathan-capehart.html
 
-**Vikings' Hockenson to make season debut on Sunday vs. Colts**\
-`Two-time Pro Bowler has missed start of the season as he recovers from torn ACL and MCL.`\
+**Vikings' Hockenson to make season debut Sunday vs. Colts**\
+`Hockenson missed the first eight weeks of the season as he recovered from a torn ACL and MCL.`\
 https://nytimes.com/athletic/5891521/2024/11/01/vikings-tj-hockenson-return-injury-update/
 
 **Saints QB Carr expected to return in Week 9 vs. Panthers**\
