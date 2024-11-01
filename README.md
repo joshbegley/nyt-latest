@@ -1,3 +1,7 @@
+**Different Blackhawks? Standings don't say so after loss to Sharks**\
+`As much as the Blackhawks don't resemble the same abysmal team of a season ago, the standings don't reflect that.`\
+https://nytimes.com/athletic/5889883/2024/11/01/blackhawks-lose-san-jose-sharks/
+
 **Jimmy Kimmel Trashes Trump’s ‘Cosplay Garbage Man’**\
 `Kimmel said that when Trump delivered a speech while wearing an orange safety vest, it was “like a 4-year-old who wants to wear his costume to school.”`\
 https://nytimes.com/2024/11/01/arts/television/jimmy-kimmel-trump-garbage-man.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5849553/2024/11/01/west-ham-midfield-analysis/
 **Why Manchester City really are 'in trouble' with their current injury crisis**\
 `City's squad is high-quality but by design it is not deep - something that could significantly impact them over the next few weeks`\
 https://nytimes.com/athletic/5887692/2024/11/01/manchester-city-injury-crisis-guardiola/
-
-**Analysing Bukayo Saka's Premier League goals: Far-post curlers, slick combinations and rebounds**\
-`The Arsenal player is so versatile he does not really have a trademark finish`\
-https://nytimes.com/athletic/5887698/2024/11/01/bukayo-saka-premier-league-goals-analysed/
 
