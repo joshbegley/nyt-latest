@@ -1,3 +1,11 @@
+**The Pulse: You have to see this catch**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5889782/2024/11/01/garrett-wilson-catch-jets-texans-the-pulse/
+
+**The Races for Congress**\
+`We preview next week’s elections and what a divided or united government might mean for each party.`\
+https://nytimes.com/2024/11/01/briefing/congressional-races-2024-election.html
+
 **Jobs Data Come as the Fed Stares Down a Complex Moment**\
 `Growth has been resilient, but inflation is cooling. The combination makes it hard to guess how much policymakers will lower rates.`\
 https://nytimes.com/2024/11/01/business/jobs-federal-reserve-interest-rates.html

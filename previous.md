@@ -1,3 +1,11 @@
+**The Pulse: You have to see this catch**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5889782/2024/11/01/garrett-wilson-catch-jets-texans-the-pulse/
+
+**The Races for Congress**\
+`We preview next week’s elections and what a divided or united government might mean for each party.`\
+https://nytimes.com/2024/11/01/briefing/congressional-races-2024-election.html
+
 **Jobs Data Come as the Fed Stares Down a Complex Moment**\
 `Growth has been resilient, but inflation is cooling. The combination makes it hard to guess how much policymakers will lower rates.`\
 https://nytimes.com/2024/11/01/business/jobs-federal-reserve-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5890299/2024/11/01/fantasy-premier-league-advice-in
 **'You’re kind of like a DJ in a club:' Inside the search to score EA FC, NBA2k**\
 `How EA Sports FC, NBA 2K and other video game behemoths seek out the soundtrack of sports`\
 https://nytimes.com/athletic/5889565/2024/11/01/ea-sports-fc-nba-2k-madden-soundtrack/
-
-**Colts believe winning now is more valuable than Anthony Richardson's future. They'd better win**\
-`If the Colts miss the playoffs now with Flacco leading the way, that could some high-profile jobs in jeopardy. `\
-https://nytimes.com/athletic/5889422/2024/11/01/colts-anthony-richardson-future-joe-flacco/
-
-**Billionaire Game Theory + We Are Not Ready for A.G.I. + Election Betting Markets Get Weird**\
-`“If I had $1 billion, how would I try to influence the results of this election?”`\
-https://nytimes.com/2024/11/01/podcasts/billionaire-game-theory-we-are-not-ready-for-agi-election-betting-markets-get-weird.html
 
