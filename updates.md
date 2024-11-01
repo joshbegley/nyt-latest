@@ -1,3 +1,7 @@
+**F1's Charles Leclerc fined by FIA after using inappropriate language at Mexico City GP**\
+`Leclerc's fine is the latest punishment levied against F1 drivers for language this season. `\
+https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine-fia/
+
 **Scenes from a Dodgers World Series parade: 'Best thing I've ever been a part of'**\
 `Fans denied a parade after the 2020 title made up for lost time with a raucous, emotional celebration this time. `\
 https://nytimes.com/athletic/5891906/2024/11/01/dodgers-parade-world-series-celebration/
