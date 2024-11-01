@@ -1,4 +1,4 @@
-**Heidi Klum Transforms into Remote-Controlled E.T. for Halloween**\
+**Heidi Klum Transforms Into Remote-Controlled E.T. for Halloween**\
 `The model and television host dressed as the alien from Steven Spielberg’s 1982 film for her annual New York City costume party.`\
 https://nytimes.com/2024/10/31/style/heidi-klum-halloween-costume-et-alien.html
 
