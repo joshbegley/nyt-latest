@@ -1,3 +1,11 @@
+**Formenton sues ex-agent for $20 million while awaiting trial for sexual assault**\
+`Formenton is suing Wade Arnott for negligence, breach of contract and breach of fiduciary duty.`\
+https://nytimes.com/athletic/5890976/2024/11/01/alex-formenton-hockey-canada-lawsuit/
+
+**Anitta Mesmerizes the Weeknd, and 8 More New Songs**\
+`Hear tracks from Ethel Cain, the Black Keys featuring Beck, Ilham and others.`\
+https://nytimes.com/2024/11/01/arts/music/playlist-weeknd-anitta-ethel-cain.html
+
 **Ranking the World Series players who boosted their collectibles value**\
 `The Dodgers and Yankees players who earned a boost in the trading card market during the postseason `\
 https://nytimes.com/athletic/5888636/2024/11/01/world-series-dodgers-yankees-cards-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/01/us/politics/russia-election-misinformation.html
 **Islanders' Mathew Barzal out with upper-body injury**\
 `Barzal will be out for the team's game in Buffalo on Friday and is being evaluated by team doctors.`\
 https://nytimes.com/athletic/5891145/2024/11/01/islanders-mathew-barzal-injury/
-
-**The report was clouded by strikes and storms.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-election/the-report-was-clouded-by-strikes-and-storms
-
-**Asian American voters could be key swing voters.**\
-`By Amy Qin`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election/asian-american-voters-could-be-key-swing-voters
 
