@@ -1,3 +1,19 @@
+**Chicago School Board President Resigns Over Social Media Posts**\
+`The Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
+https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html
+
+**Maricopa County, Ariz.**\
+`By Jack Healy`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/maricopa-county-ariz
+
+**Richard A. Fineberg, Relentless Skeptic of Alaska Pipeline, Dies at 83**\
+`A journalist and an analyst, he was driven to hold oil companies accountable. Earlier, he was on the storied boat Greenpeace when he and others tried to halt a nuclear test.`\
+https://nytimes.com/2024/11/01/climate/richard-a-fineberg-dead.html
+
+**San Diego Wave's final home match moved to Louisville due to poor field conditions**\
+`The move also causes the team to delay Alex Morgan's retirement celebration to 2025.`\
+https://nytimes.com/athletic/5891698/2024/11/01/san-diego-wave-poor-field-conditions/
+
 **Canadiens' rare bag skate was a telling sign of the Martin St. Louis era**\
 `When mistakes repeat themselves and lead to constant goals against and losses, a coach is left with few other options than punishment.`\
 https://nytimes.com/athletic/5891737/2024/11/01/canadiens-martin-st-louis-bag-skate/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/01/us/politics/latino-voting-rights-texas-election-f
 **Surprising No One, Democrats Ditch Tesla**\
 `It’s never a good sign when your customers are embarrassed to be associated with you.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/tesla-party-affiliation
-
-**Ed Sheeran Prevails in Copyright Appeal Over ‘Let’s Get It On’**\
-`A three-judge panel affirmed that Sheeran’s “Thinking Out Loud” did not illegally borrow from Marvin Gaye’s song.`\
-https://nytimes.com/2024/11/01/arts/music/ed-sheeran-lets-get-it-on-copyright-appeal.html
-
-**Cannavaro in talks to become new Deportivo head coach**\
-`Former Real Madrid and Juventus defender Fabio Cannavaro is in talks to become Deportivo La Coruna&#8217;s new head coach.`\
-https://nytimes.com/athletic/5891692/2024/11/01/fabio-cannavaro-deportivo-talks/
-
-**Maryland Republican Fighting Uphill Battle Pitches Voters on Splitting Their Tickets**\
-`A spot for former Gov. Larry Hogan aims to give Democrats permission to back him over Angela Alsobrooks and still vote for Kamala Harris — or against Donald J. Trump.`\
-https://nytimes.com/2024/11/01/us/politics/larry-hogan-trump-harris.html
-
-**Book Club: Let’s Talk About ‘Intermezzo’**\
-`Sally Rooney’s new novel explores the relationship between two brothers grieving the death of their father, and follows their complicated love lives with Rooney’s usual panache.`\
-https://nytimes.com/2024/11/01/books/review/book-club-podcast-intermezzo-sally-rooney.html
 

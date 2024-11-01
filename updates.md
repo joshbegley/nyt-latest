@@ -1,3 +1,19 @@
+**Chicago School Board President Resigns Over Social Media Posts**\
+`The Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
+https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html
+
+**Maricopa County, Ariz.**\
+`By Jack Healy`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/maricopa-county-ariz
+
+**Richard A. Fineberg, Relentless Skeptic of Alaska Pipeline, Dies at 83**\
+`A journalist and an analyst, he was driven to hold oil companies accountable. Earlier, he was on the storied boat Greenpeace when he and others tried to halt a nuclear test.`\
+https://nytimes.com/2024/11/01/climate/richard-a-fineberg-dead.html
+
+**San Diego Wave's final home match moved to Louisville due to poor field conditions**\
+`The move also causes the team to delay Alex Morgan's retirement celebration to 2025.`\
+https://nytimes.com/athletic/5891698/2024/11/01/san-diego-wave-poor-field-conditions/
+
 **Canadiens' rare bag skate was a telling sign of the Martin St. Louis era**\
 `When mistakes repeat themselves and lead to constant goals against and losses, a coach is left with few other options than punishment.`\
 https://nytimes.com/athletic/5891737/2024/11/01/canadiens-martin-st-louis-bag-skate/
