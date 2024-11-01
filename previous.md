@@ -1,3 +1,7 @@
+**JD Vance Talks to Joe Rogan About Trans Issues, Abortion and Testosterone**\
+`Senator JD Vance spoke for more than three hours on “The Joe Rogan Experience,” his latest appearance on a podcast with a large following among young men.`\
+https://nytimes.com/2024/10/31/us/politics/jd-vance-joe-rogan.html
+
 **Rams’ Puka Nacua leaves Thursday practice with knee injury**\
 `Nacua returned early from the sprained PCL to play in last Thursday night’s win against the Minnesota Vikings.`\
 https://nytimes.com/athletic/5889624/2024/10/31/rams-puka-nacua-knee-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/arts/design/looted-artifacts-charges-edoardo-alma
 **Leopards Are Telling You That They Will Eat YOUR Face**\
 `Many of Donald Trump’s supporters are unprepared for what’s coming if he wins.`\
 https://nytimes.com/2024/10/31/opinion/trump-musk-mike-johnson.html
-
-**Why Is Trump Campaigning in New Mexico and Virginia?**\
-`Even if carrying these states is unlikely, they offer the possibility that fresh audiences could supply more Republican votes in the popular tally.`\
-https://nytimes.com/2024/10/31/us/politics/why-trump-new-mexico-virginia.html
 
