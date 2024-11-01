@@ -1,3 +1,19 @@
+**Spurs must keep embracing big cup nights - top four should not be their everything**\
+`After a night of cup glory, focus will quickly return to the Premier League and Aston Villa — but should the league be any bigger a priority`\
+https://nytimes.com/athletic/5888317/2024/11/01/tottenham-cup-team/
+
+**What have we learnt from the WSL season so far?**\
+`We are almost a quarter of the way through the WSL season, so how have the teams performed?`\
+https://nytimes.com/athletic/5888309/2024/11/01/wsl-quarter-season-review/
+
+**Chelsea's Old Trafford curse: Eight different managers, 11 years and no wins in the league**\
+`Chelsea have had a run of games at Old Trafford in the league without a victory — despite changes at both clubs`\
+https://nytimes.com/athletic/5888276/2024/11/01/chelsea-old-trafford-curse/
+
+**Guilavogui joined Leeds after summer without a club - this is how he kept up to speed**\
+`Josuha Guilavogui kept up an off-season training programme and spent time in Dubai to prepare for Leeds deal`\
+https://nytimes.com/athletic/5882713/2024/11/01/leeds-united-josuha-guilavogui-fitness/
+
 **Failed transfers and poor form: Why Lopetegui's West Ham midfield has been struggling**\
 `West Ham's midfield pairings have not worked so far this season. Lopetegui missed out on two key targets this summer, but needs a solution`\
 https://nytimes.com/athletic/5849553/2024/11/01/west-ham-midfield-analysis/

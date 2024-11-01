@@ -1,3 +1,19 @@
+**Spurs must keep embracing big cup nights - top four should not be their everything**\
+`After a night of cup glory, focus will quickly return to the Premier League and Aston Villa — but should the league be any bigger a priority`\
+https://nytimes.com/athletic/5888317/2024/11/01/tottenham-cup-team/
+
+**What have we learnt from the WSL season so far?**\
+`We are almost a quarter of the way through the WSL season, so how have the teams performed?`\
+https://nytimes.com/athletic/5888309/2024/11/01/wsl-quarter-season-review/
+
+**Chelsea's Old Trafford curse: Eight different managers, 11 years and no wins in the league**\
+`Chelsea have had a run of games at Old Trafford in the league without a victory — despite changes at both clubs`\
+https://nytimes.com/athletic/5888276/2024/11/01/chelsea-old-trafford-curse/
+
+**Guilavogui joined Leeds after summer without a club - this is how he kept up to speed**\
+`Josuha Guilavogui kept up an off-season training programme and spent time in Dubai to prepare for Leeds deal`\
+https://nytimes.com/athletic/5882713/2024/11/01/leeds-united-josuha-guilavogui-fitness/
+
 **Failed transfers and poor form: Why Lopetegui's West Ham midfield has been struggling**\
 `West Ham's midfield pairings have not worked so far this season. Lopetegui missed out on two key targets this summer, but needs a solution`\
 https://nytimes.com/athletic/5849553/2024/11/01/west-ham-midfield-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5888509/2024/11/01/nottingham-forest-england-player
 **Fantasy Premier League: Chris Wood and other budget forwards analysed**\
 `While big-name players are commonly picked in FPL, the cost-effective options are usually the ones that are the differentiators`\
 https://nytimes.com/athletic/5884873/2024/11/01/fantasy-premier-league-chris-wood-and-other-budget-forwards-analysed/
-
-**Have clubs promoted to the Premier League become too sensible?**\
-`Throwing money at expensive, past-their-best footballers isn’t advisable. But it is exciting`\
-https://nytimes.com/athletic/5888384/2024/11/01/premier-league-clubs-too-sensible/
-
-**How Manchester United could line up under Amorim: The biggest winners and losers**\
-`Explaining Amorim's likely Manchester United formation and what it means for the players left behind by Erik ten Hag`\
-https://nytimes.com/athletic/5875921/2024/11/01/amorim-manchester-united-line-up/
-
-**Friday Briefing**\
-`Devastating floods in Spain.`\
-https://nytimes.com/2024/11/01/briefing/floods-spain-election-women.html
-
-**Are Bayern Munich any good under Vincent Kompany?**\
-`Olise has exceeded expectations and Musiala is excelling, but there are question marks over their pressing and the breaking down of defences`\
-https://nytimes.com/athletic/5887778/2024/11/01/bayern-munich-analysis-kompany/
 
