@@ -1,3 +1,7 @@
+**Sorrow and Pain in a Spanish Town Devastated by Flooding**\
+`More than 60 people were killed as floodwaters roared through Paiporta. “We are alive,” one woman said. “But we have lost everything.”`\
+https://nytimes.com/2024/11/01/world/europe/spain-flood-valencia-paiporta.html
+
 **Mexico’s New President Faces Her First Major Crisis**\
 `A confrontation between the judiciary and the governing party will test Claudia Sheinbaum’s leadership and offer a window into how she will wield power.`\
 https://nytimes.com/2024/11/01/world/americas/mexico-claudia-sheinbaum-judicial-overhaul.html

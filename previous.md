@@ -1,3 +1,7 @@
+**Sorrow and Pain in a Spanish Town Devastated by Flooding**\
+`More than 60 people were killed as floodwaters roared through Paiporta. “We are alive,” one woman said. “But we have lost everything.”`\
+https://nytimes.com/2024/11/01/world/europe/spain-flood-valencia-paiporta.html
+
 **Mexico’s New President Faces Her First Major Crisis**\
 `A confrontation between the judiciary and the governing party will test Claudia Sheinbaum’s leadership and offer a window into how she will wield power.`\
 https://nytimes.com/2024/11/01/world/americas/mexico-claudia-sheinbaum-judicial-overhaul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/style/jeffrey-grossman-karl-hinze-wedding.html
 **Why Germany’s Resistance to an Italian Bank Takeover Is Raising Eyebrows**\
 `Despite an openness to cross-border mergers, Germany has pushed back against talk of the Italian lender UniCredit’s acquiring Commerzbank.`\
 https://nytimes.com/2024/11/01/business/unicredit-commerzbank-merger.html
-
-**Aaron Rodgers' big second half fuels Jets' 21-13 win against Texans**\
-`Rodgers connected with receiver Garrett Wilson twice and Davante Adams once to help the Jets pick up their third win of the season.`\
-https://nytimes.com/athletic/5889925/2024/10/31/jets-texans-score-takeaways-result/
 
