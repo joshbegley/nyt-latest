@@ -1,3 +1,7 @@
+**Yankees exercise option on Luke Weaver**\
+`The Yankees exercised a $2.5 million club option for Weaver, who became the team's closer in September.`\
+https://nytimes.com/athletic/5892053/2024/11/01/yankees-options-luke-weaver-anthony-rizzo-lou-trivino/
+
 **Nvidia Will Replace Intel in the Dow Jones Stock Index**\
 `The change, starting next Friday, lifts a dominant player in artificial intelligence over its chip-making rival, which has struggled to keep up.`\
 https://nytimes.com/2024/11/01/technology/nvidia-intel-dow-jones-index.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine
 **Canadian Police Say They Dismantled Country’s Largest Drug Lab**\
 `Federal officers in British Columbia seized drugs and chemical precursors that could produce about 96 million opioid doses, the authorities said.`\
 https://nytimes.com/2024/11/01/world/canada/canada-drug-lab-fentanyl.html
-
-**Dodgers' Clayton Kershaw to undergo surgeries on foot, knee**\
-`The lefty still plans to pitch for the Dodgers next season: “I'll be back, somehow."`\
-https://nytimes.com/athletic/5891966/2024/11/01/dodgers-clayton-kershaw-surgery-foot-knee/
 
