@@ -30,7 +30,7 @@ https://nytimes.com/2024/11/01/your-money/benefits-health-care-enrollment.html
 `Stocks have risen this year despite uncertainties and outright hostilities in U.S. politics and around the world. But bonds and other markets show signs of concern, our columnist says.`\
 https://nytimes.com/2024/11/01/business/election-stocks-bonds-deficit.html
 
-**Oakland Just Lost Its Last Major Sports Team. Its Mayor Could Be the Next to Go.**\
+**The First Big-City Mayor to Face a Recall in Years Is Fighting for Her Job**\
 `Frustrated voters will decide on Tuesday whether to oust Sheng Thao, the mayor of Oakland, Calif., because of high crime and other problems.`\
 https://nytimes.com/2024/11/01/us/elections/oakland-mayor-sheng-thao-recall.html
 

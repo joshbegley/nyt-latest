@@ -1,3 +1,7 @@
+**The First Big-City Mayor to Face a Recall in Years Is Fighting for Her Job**\
+`Frustrated voters will decide on Tuesday whether to oust Sheng Thao, the mayor of Oakland, Calif., because of high crime and other problems.`\
+https://nytimes.com/2024/11/01/us/elections/oakland-mayor-sheng-thao-recall.html
+
 **Diwali Reminds Me of Who I Am (But It Took a While to Get There)**\
 `The writer Raj Tawney shares how celebrating Diwali eventually taught him to feel more rooted in his Indian culture — and in himself.`\
 https://nytimes.com/2024/11/01/us/diwali-holiday-india-culture.html
