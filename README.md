@@ -1,3 +1,15 @@
+**With Days to Go, Trump Courts Apolitical Young Men**\
+`Also, the U.S. fears Ukraine has entered a grim phase. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/11/01/briefing/final-weekend-campaign-us-ukraine-russia.html
+
+**Latino Civil Rights Group Pushes Back on the Myth of Noncitizen Voters**\
+`The League of United Latin American Citizens, which was targeted in Texas’ election fraud case, is teaming up with a Democratic super PAC to counter Republican-led election challenges.`\
+https://nytimes.com/2024/11/01/us/politics/latino-voting-rights-texas-election-fraud.html
+
+**Surprising No One, Democrats Ditch Tesla**\
+`It’s never a good sign when your customers are embarrassed to be associated with you.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/tesla-party-affiliation
+
 **Ed Sheeran Prevails in Copyright Appeal Over ‘Let’s Get It On’**\
 `A three-judge panel affirmed that Sheeran’s “Thinking Out Loud” did not illegally borrow from Marvin Gaye’s song.`\
 https://nytimes.com/2024/11/01/arts/music/ed-sheeran-lets-get-it-on-copyright-appeal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/01/nyregion/eric-adams-corruption-trial-date-court.h
 **Bucks County, Pa.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/bucks-county-pa
-
-**Hugh Hewitt, Conservative Columnist, Quits The Washington Post**\
-`His decision came hours after he abruptly stormed off a broadcast of a live online Post talk show.`\
-https://nytimes.com/2024/11/01/business/media/hugh-hewitt-washington-post-jonathan-capehart.html
-
-**Vikings' Hockenson to make season debut Sunday vs. Colts**\
-`Hockenson missed the first eight weeks of the season as he recovered from a torn ACL and MCL.`\
-https://nytimes.com/athletic/5891521/2024/11/01/vikings-tj-hockenson-return-injury-update/
-
-**Saints QB Carr expected to return in Week 9 vs. Panthers**\
-`The veteran starter will likely return to the Saints lineup after missing three games with an oblique injury.`\
-https://nytimes.com/athletic/5891524/2024/11/01/saints-derek-carr-return-week-9/
 
