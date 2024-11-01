@@ -1,3 +1,7 @@
+**Corrections: Nov. 1, 2024**\
+`Corrections that appeared in print on Friday, Nov. 1, 2024.`\
+https://nytimes.com/2024/10/31/pageoneplus/corrections-nov-1-2024.html
+
 **Bucks' Khris Middleton: 'Trending in the right direction every day'**\
 `Three-time All-Star Middleton says that he feels good, just not good enough to play yet.`\
 https://nytimes.com/athletic/5888942/2024/10/31/bucks-khris-middleton-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/harris-ad-trump-puerto-rico.html
 **Boeing Reaches New Deal With Union in Hopes of Ending Strike**\
 `The aerospace manufacturer’s largest union said it would put the contract to a vote on Monday by its 33,000 members, who rejected two earlier agreements.`\
 https://nytimes.com/2024/10/31/business/boeing-strike-union-deal.html
-
-**Investigators Say a High-Profile Dealer Trafficked 2,000 Looted Artifacts**\
-`In an arrest warrant for Edoardo Almagià, a Princeton-educated antiquities dealer, the Manhattan district attorney’s office detailed what it described as decades of illicit transactions.`\
-https://nytimes.com/2024/10/31/arts/design/looted-artifacts-charges-edoardo-almagia.html
 

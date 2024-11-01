@@ -1,3 +1,7 @@
+**Corrections: Nov. 1, 2024**\
+`Corrections that appeared in print on Friday, Nov. 1, 2024.`\
+https://nytimes.com/2024/10/31/pageoneplus/corrections-nov-1-2024.html
+
 **As Women Drift From Trump, His Campaign Is Reaching Out to Young Men**\
 `How Donald Trump’s allies are honing their message to young men in the campaign’s final days.`\
 https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
