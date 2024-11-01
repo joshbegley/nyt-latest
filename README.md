@@ -1,3 +1,11 @@
+**Trump’s Economic Vision Has a Lot of Flaws. Here’s Another.**\
+`A new paper undermines the historical narrative at the heart of his love of tariffs.`\
+https://nytimes.com/2024/11/01/opinion/trump-tariffs-manufacturing.html
+
+**Eric Adams To Stand Trial On Corruption Charges in April, Judge Says**\
+`Accused of conspiring to funnel illegal contributions from Turkey into his campaign coffers, Mr. Adams has pleaded not guilty.`\
+https://nytimes.com/2024/11/01/nyregion/eric-adams-corruption-trial-date-court.html
+
 **Bucks County, Pa.**\
 `By Campbell Robertson`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/bucks-county-pa
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-rfk-vance-vaccine
 **A Poem About Waiting, and Wishing You Had a Drink**\
 `Our critic A.O. Scott walks you through a poem that speaks to his mood right now. It’s called “Party Politics,” but it’s not about those parties, or those politics.`\
 https://nytimes.com/interactive/2024/11/01/books/philip-larkin-party-politics-poem.html
-
-**Biden Won’t Attend This Year’s Climate Summit, White House Officials Say**\
-`The president’s senior climate adviser is expected to lead the American delegation at the U.N. talks in Azerbaijan.`\
-https://nytimes.com/2024/11/01/climate/biden-cop29-baku-climate.html
-
-**This Sorority Is Going All in to Get Out the Vote**\
-`Alpha Kappa Alpha’s forceful push to increase voter turnout could help boost critical support for Democrats from Black voters.`\
-https://nytimes.com/2024/11/01/us/elections/harris-alpha-kappa-alpha.html
 
