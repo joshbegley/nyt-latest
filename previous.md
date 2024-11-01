@@ -1,3 +1,11 @@
+**Providing Care for the Mentally Ill and Homeless**\
+`Readers praise an outreach program on the streets of California. Also: Election panic; the climate stakes; election fraud; questions for Trump and Vance.`\
+https://nytimes.com/2024/11/01/opinion/mentally-ill-homeless-care.html
+
+**How to Win Back the Wary Consumer**\
+`It’s getting harder to tell what’s real — from product reviews to descriptions — which can lead to confusion and hesitation in people’s online shopping habits. This poses a real challenge for organizations doing business online.`\
+https://nytimes.com/paidpost/accenture-episode-42/how-to-win-back-the-wary-consumer.html
+
 **Eagles' Fred Johnson once hit 'rock bottom.' Here's how self-belief helped him belong**\
 `Johnson once thought his career was approaching its end, but his number has gotten called this season and he has responded admirably. `\
 https://nytimes.com/athletic/5888330/2024/11/01/fred-johnson-eagles-offensive-line/
