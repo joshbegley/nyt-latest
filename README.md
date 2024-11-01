@@ -1,3 +1,7 @@
+**As Election Nears, Republicans Blame Child’s Rape on Immigration Crisis**\
+`Wilson Castillo Diaz was arrested last week in New York in connection with the rape of a 5-year-old girl. On Friday, local Republicans blamed Democratic immigration policies.`\
+https://nytimes.com/2024/11/01/nyregion/5-year-old-raped-long-island-immigration.html
+
 **Nicolle Wallace Calls on Her Former Boss, George W. Bush, to Denounce Trump**\
 `Ms. Wallace, who served as the communications director in the Bush White House, made the appeal on her MSNBC program.`\
 https://nytimes.com/2024/11/01/us/politics/george-w-bush-nicole-wallace-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/01/us/harris-trump-election/on-the-issues-where
 **Teoscar Hernández says returning to Dodgers will be a 'priority'**\
 `Hernández hopes he and the Dodgers can agree to a contract as soon as possible. "Hopefully tomorrow," he said. "I want us to be here."`\
 https://nytimes.com/athletic/5891990/2024/11/01/dodgers-teoscar-hernandez-free-agent/
-
-**Trump Still Can’t Stop Talking About Women**\
-`The countdown to the election feels like an Advent calendar with a dubious remark behind each door.`\
-https://nytimes.com/2024/11/01/us/politics/harris-trump-womens-health-election.html
 
