@@ -1,3 +1,7 @@
+**Trump’s Attack on Liz Cheney Is Just as Malicious as It Appears**\
+`It went far beyond a chicken-hawk accusation.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-cheney-attack-chicken-hawk
+
 **Formenton sues ex-agent for $20 million while awaiting trial for sexual assault**\
 `Formenton is suing Wade Arnott for negligence, breach of contract and breach of fiduciary duty.`\
 https://nytimes.com/athletic/5890976/2024/11/01/alex-formenton-hockey-canada-lawsuit/
