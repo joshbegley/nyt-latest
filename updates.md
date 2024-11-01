@@ -1,3 +1,15 @@
+**The Controversy Over Playing the WTA Finals in Saudi Arabia**\
+`In a country that is often criticized over its treatment of women, the tennis world debates the pros and cons of holding the elite women’s tournament there.`\
+https://nytimes.com/2024/11/01/sports/tennis/wta-finals-saudi-arabia.html
+
+**The High-Energy Jasmine Paolini Has Broken Through**\
+`The player from Italy reached the finals this year at the French Open and Wimbledon. Now she has qualified for the WTA Finals for the first time.`\
+https://nytimes.com/2024/11/01/sports/tennis/wta-finals-jasmine-paolini.html
+
+**The Importance of Those High-Pressure Tiebreakers in Tennis**\
+`Experts say that players need to take their time to succeed. “The athlete who rushes during a tiebreak gets into trouble,” Pam Shriver says.`\
+https://nytimes.com/2024/11/01/sports/tennis/tiebreakers-tennis-matches.html
+
 **Elena Rybakina hires Goran Ivanisevic as new coach**\
 `The world No. 5 will join up with the former Wimbledon champion for the 2025 season and beyond.`\
 https://nytimes.com/athletic/5890523/2024/11/01/elena-rybakina-coach-ivanisevic/
