@@ -1,3 +1,11 @@
+**Why Craig Berube should give William Nylander what he wants**\
+`The Leafs forward has made his desire for more ice time known both privately and publicly.`\
+https://nytimes.com/athletic/5889927/2024/10/31/william-nylander-ice-time-berube-leafs/
+
+**Maple Leafs report cards: All-around team effort and skill sink Kraken**\
+`The Leafs' top-end skill made the difference against the Kraken, a team with excellent depth but few true stars.`\
+https://nytimes.com/athletic/5889455/2024/10/31/maple-leafs-report-cards-kraken-effort/
+
 **Elite School Will Offer a Day Off for Students Distressed by Election**\
 `Attendance on Wednesday, or whatever day the results are announced, is optional for high school students at the Ethical Culture Fieldston School in New York City, families were told.`\
 https://nytimes.com/2024/10/31/nyregion/fieldston-school-election-attendance.html
