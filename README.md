@@ -1,3 +1,7 @@
+**Joel Embiid to critics: 'I’ve done way too much for this f------ city'**\
+`Embiid, who has not played this season due to "left knee injury management," said the idea that he wants to sit games out is 'bull----.'`\
+https://nytimes.com/athletic/5891762/2024/11/01/joel-embiid-injury-update-criticism-76ers/
+
 **I Took a ‘Decision Holiday’ and Put A.I. in Charge of My Life**\
 `I thought it would make me put glue on pizza, but instead it entertained my children and got me to finally paint my office. How could it transform our daily lives?`\
 https://nytimes.com/interactive/2024/11/01/technology/generative-ai-decisions-experiment.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5891789/2024/11/01/f1-ollie-bearman-haas-brazil-gp-
 **Harris Calls Trump’s Violent Language About Liz Cheney ‘Disqualifying’**\
 `Former President Donald J. Trump had suggested that Ms. Cheney, one of his most prominent Republican critics, should be put on a battlefield “with nine barrels shooting at her.”`\
 https://nytimes.com/2024/11/01/us/politics/liz-cheney-trump-harris.html
-
-**Chicago School Board President Resigns Over Social Media Posts**\
-`One week into the job, the Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
-https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html
 
