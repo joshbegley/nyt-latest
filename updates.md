@@ -1,3 +1,19 @@
+**This Sorority Is Going All in to Get Out the Vote**\
+`Alpha Kappa Alpha’s forceful push to increase voter turnout could help boost critical support for Democrats from Black voters.`\
+https://nytimes.com/2024/11/01/us/elections/harris-alpha-kappa-alpha.html
+
+**McDonald’s Ice Cream Machines May Get Quicker Fix After Copyright Ruling**\
+`An exemption to a longstanding copyright act allows industrial equipment to be fixed by people not affiliated with the manufacturer.`\
+https://nytimes.com/2024/11/01/us/mcdonalds-ice-cream-machine-fix-exemption.html
+
+**Volunteers Clean Up Debris After Unprecedented Flooding in Spain**\
+`Cars and homes were destroyed and streets were left clogged with mud in the wake of severe flooding in the Valencia region.`\
+https://nytimes.com/video/world/europe/100000009798308/spain-valencia-floods-recovery.html
+
+**How a Year of Rain Fell on Parts of Spain in Eight Hours**\
+`The region is no stranger to storms like those that caused this week’s deluges. But global warming helps them pack a bigger punch, scientists said.`\
+https://nytimes.com/2024/11/01/climate/spain-valencia-floods.html
+
 **Gauff 'probably wouldn't come back' to Saudi Arabia for tennis without seeing change**\
 `The world No. 3 also discussed the upcoming presidential election in America.`\
 https://nytimes.com/athletic/5891414/2024/11/01/coco-gauff-wta-tour-finals-saudi-election/
