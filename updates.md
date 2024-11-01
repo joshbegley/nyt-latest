@@ -1,3 +1,7 @@
+**What's on Bruce Feldman's radar? Michigan QB carousel, Big 12 respect, Ryan Day angst**\
+`Why did Michigan go back to Davis Warren? Who needs the win more in Ohio State-Penn State? Is J.J. Smith for real?`\
+https://nytimes.com/athletic/5889792/2024/11/01/penn-state-ohio-state-byu-college-football-news/
+
 **MLB All-Postseason Team: Buehler, Edman, Stanton, Lindor, Kwan leave marks in October**\
 `Position by position, these were the best players in October.`\
 https://nytimes.com/athletic/5889094/2024/11/01/mlb-all-postseason-team/

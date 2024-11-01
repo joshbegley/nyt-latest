@@ -1,3 +1,7 @@
+**What's on Bruce Feldman's radar? Michigan QB carousel, Big 12 respect, Ryan Day angst**\
+`Why did Michigan go back to Davis Warren? Who needs the win more in Ohio State-Penn State? Is J.J. Smith for real?`\
+https://nytimes.com/athletic/5889792/2024/11/01/penn-state-ohio-state-byu-college-football-news/
+
 **MLB All-Postseason Team: Buehler, Edman, Stanton, Lindor, Kwan leave marks in October**\
 `Position by position, these were the best players in October.`\
 https://nytimes.com/athletic/5889094/2024/11/01/mlb-all-postseason-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888992/2024/11/01/bears-trade-deadline-second-roun
 **$1.6 Million Homes in Sardinia, Italy**\
 `Homes in the island region of Italy include a three-bedroom villa in the Costa Smeralda, a traditional stone house in Muzzeddu, and a nine-bedroom estate on 62 acres.`\
 https://nytimes.com/2024/11/01/realestate/homes-sardinia-italy.html
-
-**You Might Consider Praying**\
-`It’s what can we do when we don’t know what to do.`\
-https://nytimes.com/2024/11/01/opinion/prayer-god-religion.html
 
