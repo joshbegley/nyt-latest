@@ -1,3 +1,7 @@
+**Packed Like Sardines**\
+`Spencer Leach opens our solving weekend.`\
+https://nytimes.com/2024/10/31/crosswords/daily-puzzle-2024-11-01.html
+
 **Man Who Killed Hundreds of Eagles and Hawks Gets Nearly 4 Years in Prison**\
 `Travis John Branson was part of a conspiracy that killed 3,600 birds, prosecutors said. He also trafficked and sold bird parts on the black market.`\
 https://nytimes.com/2024/10/31/us/eagle-killer-sentenced-four-years.html
@@ -18,8 +22,8 @@ https://nytimes.com/2024/10/31/pageoneplus/corrections-nov-1-2024.html
 `Three-time All-Star Middleton says that he feels good, just not good enough to play yet.`\
 https://nytimes.com/athletic/5888942/2024/10/31/bucks-khris-middleton-injury-update/
 
-**JD Vance Talks to Joe Rogan About Trans Issues, Abortion and Testosterone**\
-`Senator JD Vance spoke for more than three hours on “The Joe Rogan Experience,” his latest appearance on a podcast with a large following among young men.`\
+**Vance Tells Rogan: Teens Become Trans to Get Into Ivy League**\
+`Appearing on Joe Rogan’s podcast, Senator JD Vance also said that liberal women celebrate their abortions and that Donald Trump would win the “normal gay guy vote.”`\
 https://nytimes.com/2024/10/31/us/politics/jd-vance-joe-rogan.html
 
 **Rams’ Puka Nacua leaves Thursday practice with knee injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
 **Giants to name Zack Minasian new GM: Sources**\
 `Minasian, 41, joins his brother, Perry, as the first pair of siblings to be general managers in MLB at the same time.`\
 https://nytimes.com/athletic/5889591/2024/10/31/sf-giants-zack-minasian-general-manager/
-
-**Until Saturday: Communication issues, plus Week 10 viewer guide**\
-`Welcome to Until Saturday, the five-star college football newsletter: Breaking down helmet communication issues and Week 10's schedule.`\
-https://nytimes.com/athletic/5888991/2024/10/31/college-football-helmet-coach-communication-until-saturday/
 
