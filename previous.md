@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5891642/2024/11/01/f1-charles-leclerc-swearing-fine
 https://nytimes.com/2024/11/01/world/canada/canada-drug-lab-fentanyl.html
 
 **Dodgers' Clayton Kershaw to undergo surgeries on foot, knee**\
-`The lefty still plans to pitch for the Dodgers next season “I'll be back, somehow."`\
+`The lefty still plans to pitch for the Dodgers next season: “I'll be back, somehow."`\
 https://nytimes.com/athletic/5891966/2024/11/01/dodgers-clayton-kershaw-surgery-foot-knee/
 
 **Joel Embiid to critics: 'I’ve done way too much for this f------ city'**\

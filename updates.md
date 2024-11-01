@@ -1,3 +1,7 @@
+**Dodgers' Clayton Kershaw to undergo surgeries on foot, knee**\
+`The lefty still plans to pitch for the Dodgers next season: “I'll be back, somehow."`\
+https://nytimes.com/athletic/5891966/2024/11/01/dodgers-clayton-kershaw-surgery-foot-knee/
+
 **On the issues: Where Harris and Trump stand on education.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-education
