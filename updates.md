@@ -1,4 +1,12 @@
 **Chicago School Board President Resigns Over Social Media Posts**\
+`One week into the job, the Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
+https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html
+
+**Wave's final home match moved to Louisville due to poor field conditions**\
+`The move also causes the team to delay Alex Morgan's retirement celebration to 2025.`\
+https://nytimes.com/athletic/5891698/2024/11/01/san-diego-wave-poor-field-conditions/
+
+**Chicago School Board President Resigns Over Social Media Posts**\
 `The Rev. Mitchell Ikenna Johnson resigned amid criticism by elected leaders that his past posts were anti-Semitic and misogynistic.`\
 https://nytimes.com/2024/11/01/us/chicago-school-board-president-resigns.html
 
