@@ -1,3 +1,27 @@
+**Failed transfers and poor form: Why Lopetegui's West Ham midfield has been struggling**\
+`West Ham's midfield pairings have not worked so far this season. Lopetegui missed out on two key targets this summer, but needs a solution`\
+https://nytimes.com/athletic/5849553/2024/11/01/west-ham-midfield-analysis/
+
+**Why Manchester City really are 'in trouble' with their current injury crisis**\
+`City's squad is high-quality but by design it is not deep - something that could significantly impact them over the next few weeks`\
+https://nytimes.com/athletic/5887692/2024/11/01/manchester-city-injury-crisis-guardiola/
+
+**Analysing Bukayo Saka's Premier League goals: Far-post curlers, slick combinations and rebounds**\
+`The Arsenal player is so versatile he does not really have a trademark finish`\
+https://nytimes.com/athletic/5887698/2024/11/01/bukayo-saka-premier-league-goals-analysed/
+
+**It's hard not to feel Villa blew a superb chance to end 29-year trophy drought with Palace cup loss**\
+`There is an argument for rotation in the domestic cups as they are of lesser importance, but this still feels like a missed opportunity`\
+https://nytimes.com/athletic/5887996/2024/11/01/aston-villa-trophy-drought-emery/
+
+**Forest suddenly have several players knocking on England's door - and Nuno couldn't be happier**\
+`It is testament to Forest's superb start to the season that a handful of their squad will be hopeful of playing for England soon`\
+https://nytimes.com/athletic/5888509/2024/11/01/nottingham-forest-england-players/
+
+**Fantasy Premier League: Chris Wood and other budget forwards analysed**\
+`While big-name players are commonly picked in FPL, the cost-effective options are usually the ones that are the differentiators`\
+https://nytimes.com/athletic/5884873/2024/11/01/fantasy-premier-league-chris-wood-and-other-budget-forwards-analysed/
+
 **Have clubs promoted to the Premier League become too sensible?**\
 `Throwing money at expensive, past-their-best footballers isn’t advisable. But it is exciting`\
 https://nytimes.com/athletic/5888384/2024/11/01/premier-league-clubs-too-sensible/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/11/01/briefing/floods-spain-election-women.html
 **Are Bayern Munich any good under Vincent Kompany?**\
 `Olise has exceeded expectations and Musiala is excelling, but there are question marks over their pressing and the breaking down of defences`\
 https://nytimes.com/athletic/5887778/2024/11/01/bayern-munich-analysis-kompany/
-
-**Next week’s waiver wire: Jamaal Williams, Parker Washington and more players to add now — before the Week 10 rush**\
-`John Laghezza shares his top expected future waiver wire plays, including Parker Washington, who is eyeing an expanded role in Jacksonville.`\
-https://nytimes.com/athletic/5888373/2024/11/01/next-weeks-waiver-wire-jfantasy-football-jamaal-williams-parker-washington/
-
-**Sorrow and Pain in a Spanish Town Devastated by Flooding**\
-`More than 60 people were killed as floodwaters roared through Paiporta. “We are alive,” one woman said. “But we have lost everything.”`\
-https://nytimes.com/2024/11/01/world/europe/spain-flood-valencia-paiporta.html
-
-**Mexico’s New President Faces Her First Major Crisis**\
-`A confrontation between the judiciary and the governing party will test Claudia Sheinbaum’s leadership and offer a window into how she will wield power.`\
-https://nytimes.com/2024/11/01/world/americas/mexico-claudia-sheinbaum-judicial-overhaul.html
-
-**Quote of the Day: Billionaires Make Bets on Control**\
-`Quotation of the Day for Friday, November 1, 2024.`\
-https://nytimes.com/2024/11/01/pageoneplus/quote-of-the-day-billionaires-make-bets-on-control.html
-
-**They Love John Fluevog Shoes So Much They Married at One of His Stores**\
-`Amber Walker and Ronald Dutt held a surprise wedding during the “Flummunity Fest,” a fan-driven gathering for admirers of the designer.`\
-https://nytimes.com/2024/11/01/style/john-fluevog-shoe-store-wedding.html
-
-**When Eve and Eve Bit the Apple**\
-`In this essay from 2016, a writer struggles to reconcile her love for a woman with being “a good Christian girl.”`\
-https://nytimes.com/2024/11/01/style/modern-love-classic-when-eve-and-eve-bit-the-apple.html
 
