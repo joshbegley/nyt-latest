@@ -1,3 +1,27 @@
+**Premier League predicted lineups: Who do our writers think will start in Gameweek 10?**\
+`As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
+https://nytimes.com/athletic/5874171/2024/11/01/premier-league-predicted-lineups-gameweek-10/
+
+**How Election Deniers Sank a Security Conference in Georgia**\
+`The gathering had nothing to do with the election. That didn’t stop conspiracy theorists from spreading falsehoods.`\
+https://nytimes.com/2024/11/01/technology/election-deniers-georgia.html
+
+**Disinformation Watchdogs Are Under Pressure. This Group Refuses to Stop.**\
+`Though a larger coalition of fact checkers has disbanded, a team of students and researchers at the University of Washington in Seattle is still working to document how lies online threaten to undermine this year’s presidential race.`\
+https://nytimes.com/2024/11/01/technology/election-disinformation.html
+
+**How Trump Is Trying to Win Gen Z Men**\
+`Young men in recent years have become more politically conservative. But will they vote? Kellen Browning, a New York Times reporter covering the 2024 election with a focus on Nevada and Arizona, discusses the Trump campaign’s efforts to court the group.`\
+https://nytimes.com/video/us/elections/100000009788528/how-trump-is-trying-to-win-gen-z-men.html
+
+**Indiana Fever bring back Stephanie White as head coach**\
+`White was an assistant coach in Indiana from 2011 to 2014 and previously took over the head job in 2015-16.`\
+https://nytimes.com/athletic/5877834/2024/11/01/indiana-fever-stephanie-white-head-coach/
+
+**Trump Is Courting Apolitical Young Men. Will It Pay Off?**\
+`Gen Z men are increasingly turning away from the Democratic Party, swayed by the former president’s bravado and irreverence. But they also do not usually vote in high numbers.`\
+https://nytimes.com/2024/11/01/us/politics/donald-trump-young-men.html
+
 **WTA Tour chief executive defends Saudi tournament**\
 `The new head of women's tennis said she misspoke in saying that tournament hosts need not align with WTA values.`\
 https://nytimes.com/athletic/5890975/2024/11/01/wta-tour-finals-chief-executive-portia-archer-defends-saudi-arabia-tournament/
@@ -13,28 +37,4 @@ https://nytimes.com/spotlight/a-kids-guide-to-the-election
 **This 3-Course Vegetarian Dinner Is Ready to Party**\
 `This gorgeous David Tanis spread stars a sweet-tart radicchio salad, and a cheesy polenta bake with herby mushrooms.`\
 https://nytimes.com/2024/11/01/dining/3-course-vegetarian-dinner-party-menu.html
-
-**So, Can We Trust the Polls?**\
-`Recent changes add up to a case for cautious optimism on better accuracy, but that’s far from a guarantee.`\
-https://nytimes.com/2024/11/01/upshot/so-can-we-trust-the-polls.html
-
-**Former Man United striker Yorke named Trinidad and Tobago head coach**\
-`Former Manchester United striker Dwight Yorke has been named the new head coach of the Trinidad and Tobago national team.`\
-https://nytimes.com/athletic/5891006/2024/11/01/dwight-yorke-trinidad-tobago/
-
-**What the Weak Jobs Report Tells Us**\
-`It doesn’t mean we’re on the edge of a recession.`\
-https://nytimes.com/2024/11/01/opinion/krugman-weak-jobs-report.html
-
-**Mahomes: WNBA expansion team in Kansas City a 'no-brainer'**\
-`Patrick and Brittany Mahomes are part of the ownership group of the NWSL's Kansas City Current.`\
-https://nytimes.com/athletic/5890661/2024/11/01/patrick-mahomes-wnba-kansas-city-expansion/
-
-**Emma Sears' successful debut with USWNT is 'just the beginning'**\
-`Sears recorded a goal and an assist in her U.S. debut. Now, she aims to help Racing reach the postseason`\
-https://nytimes.com/athletic/5889026/2024/11/01/emma-sears-uswnt-racing-louisville/
-
-**Abortion is at the center of Ohio’s Senate race as Brown battles for survival.**\
-`By Annie Karni`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election/abortion-is-at-the-center-of-ohios-senate-race-as-brown-battles-for-survival
 
