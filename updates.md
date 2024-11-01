@@ -1,3 +1,15 @@
+**What to know about the report.**\
+`As Americans go to the polls, strikes and hurricanes will generate some static, but the underlying signal still points to a healthy labor market.`\
+https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-election/jobs-report-october
+
+**Election Uncertainty Looms Over Hiring**\
+`Some employers say they have been wary to expand until the outcome of the presidential election is known.`\
+https://nytimes.com/2024/11/01/business/election-uncertainty-jobs-economy.html
+
+**Live Updates: Jobs in Focus in Last Key Report Before Election**\
+`Economists expect that employers added 110,000 jobs in October, a slowdown that would partly reflect hurricane disruptions and labor strikes.`\
+https://nytimes.com/live/2024/11/01/business/jobs-report-october-economy-election
+
 **Kuminga, Reaves and other names to watch as NBA trade market takes shape**\
 `As the season rolls along, these players could move the needle when it comes to front offices looking to make a splash.`\
 https://nytimes.com/athletic/5889550/2024/11/01/nba-trade-rumors-jonathan-kuminga-austin-reeves-jalen-green/
