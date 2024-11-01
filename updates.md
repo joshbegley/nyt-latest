@@ -1,3 +1,15 @@
+**Hugh Hewitt, Conservative Columnist, Quits The Washington Post**\
+`His decision came hours after he abruptly stormed off a broadcast of a live online Post talk show.`\
+https://nytimes.com/2024/11/01/business/media/hugh-hewitt-washington-post-jonathan-capehart.html
+
+**Vikings' Hockenson to make season debut on Sunday vs. Colts**\
+`Two-time Pro Bowler has missed start of the season as he recovers from torn ACL and MCL.`\
+https://nytimes.com/athletic/5891521/2024/11/01/vikings-tj-hockenson-return-injury-update/
+
+**Saints QB Carr expected to return in Week 9 vs. Panthers**\
+`The veteran starter will likely return to the Saints lineup after missing three games with an oblique injury.`\
+https://nytimes.com/athletic/5891524/2024/11/01/saints-derek-carr-return-week-9/
+
 **Rams' McVay 'wouldn't bet against' Puka Nacua playing vs. Seattle**\
 `Sean McVay said he doesn’t expect Puka Nacua to have to manage his knee through the rest of the season.`\
 https://nytimes.com/athletic/5891505/2024/11/01/mcvay-puka-nacua-injury-rams-seahawks/
