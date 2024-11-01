@@ -1,3 +1,7 @@
+**Detroit Lions Week 9 playbook: What to know ahead of Packers matchup**\
+`Catch up on what you need to know from this week on the Lions`\
+https://nytimes.com/athletic/5884514/2024/11/01/detroit-lions-week-9-news-projections-preview/
+
 **The First Big-City Mayor to Face a Recall in Years Is Fighting for Her Job**\
 `Frustrated voters will decide on Tuesday whether to oust Sheng Thao, the mayor of Oakland, Calif., because of high crime and other problems.`\
 https://nytimes.com/2024/11/01/us/elections/oakland-mayor-sheng-thao-recall.html
