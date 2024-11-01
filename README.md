@@ -1,8 +1,12 @@
+**Aaron Rodgers' big second half fuels Jets' 21-10 win against Texans**\
+`Rodgers connected with receiver Garrett Wilson twice and Davante Adams once to help the Jets pick up their third win of the season.`\
+https://nytimes.com/athletic/5889925/2024/10/31/jets-texans-score-takeaways-result/
+
 **Spurs' Victor Wembanyama has second 5x5 night of his career**\
 `Wembanyama tallied 25 points, nine rebounds, seven assists, five blocks and five steals in the Spurs' 106-88 win over the Jazz.`\
 https://nytimes.com/athletic/5890021/2024/10/31/victor-wembanyama-stats-spurs-jazz/
 
-**Ersson is the Flyers' only reliable option in net right now. Should they ride him?**\
+**Samuel Ersson is the Flyers' only reliable option in net right now. Should they ride him?**\
 `The Flyers have yet to win with a goaltender other than Ersson in net.`\
 https://nytimes.com/athletic/5890010/2024/10/31/flyers-samuel-ersson-goalie-workload/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/style/heidi-klum-halloween-costume-et-alien.html
 **Packed Like Sardines**\
 `Spencer Leach opens our solving weekend.`\
 https://nytimes.com/2024/10/31/crosswords/daily-puzzle-2024-11-01.html
-
-**Man Who Killed Hundreds of Eagles and Hawks Gets Nearly 4 Years in Prison**\
-`Travis John Branson was part of a conspiracy that killed 3,600 birds, prosecutors said. He also trafficked and sold bird parts on the black market.`\
-https://nytimes.com/2024/10/31/us/eagle-killer-sentenced-four-years.html
 
