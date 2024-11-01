@@ -26,7 +26,7 @@ https://nytimes.com/2024/11/01/us/politics/alabama-house-dobson-figures-congress
 `Portia Archer, who took over from Steve Simon, said she misspoke in saying that tournament hosts need not align with WTA values.`\
 https://nytimes.com/athletic/5890975/2024/11/01/wta-tour-finals-saudi-arabia-values/
 
-**Premier League predicted lineups: Who do our writers think will start in Gameweek 10?**\
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 10?**\
 `As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5874171/2024/11/01/premier-league-predicted-lineups-gameweek-10/
 
