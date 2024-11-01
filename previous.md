@@ -1,5 +1,9 @@
+**Martino says they can't, but could Inter Miami sign Neymar?**\
+`Inter Miami coach Gerardo Martino said speculation about Neymar joining Inter Miami is just that — speculation — and would likely need a change in Major League Soccer (MLS) salary rules to be a real possibility.`\
+https://nytimes.com/athletic/5891368/2024/11/01/inter-miami-neymar-move/
+
 **Bengals WR Tee Higgins doubtful vs. Raiders**\
-`Tee Higgins sustained a quad injury during practice last Friday and didn't suit up in Week 8.`\
+`Bengals RB Zack Moss and OT Orlando Brown Jr. are also doubtful to play against the Raiders.`\
 https://nytimes.com/athletic/5891199/2024/11/01/tee-higgins-doubtful-bengals-raiders/
 
 **Stream These 9 Titles Before They Leave Netflix This Month**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-cheney-attack-chicken
 **Formenton sues ex-agent for $20 million while awaiting trial for sexual assault**\
 `Formenton is suing Wade Arnott for negligence, breach of contract and breach of fiduciary duty.`\
 https://nytimes.com/athletic/5890976/2024/11/01/alex-formenton-hockey-canada-lawsuit/
-
-**Anitta Mesmerizes the Weeknd, and 8 More New Songs**\
-`Hear tracks from Ethel Cain, the Black Keys featuring Beck, Ilham and others.`\
-https://nytimes.com/2024/11/01/arts/music/playlist-weeknd-anitta-ethel-cain.html
 

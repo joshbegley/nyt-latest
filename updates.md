@@ -1,3 +1,11 @@
+**Martino says they can't, but could Inter Miami sign Neymar?**\
+`Inter Miami coach Gerardo Martino said speculation about Neymar joining Inter Miami is just that — speculation — and would likely need a change in Major League Soccer (MLS) salary rules to be a real possibility.`\
+https://nytimes.com/athletic/5891368/2024/11/01/inter-miami-neymar-move/
+
+**Bengals WR Tee Higgins doubtful vs. Raiders**\
+`Bengals RB Zack Moss and OT Orlando Brown Jr. are also doubtful to play against the Raiders.`\
+https://nytimes.com/athletic/5891199/2024/11/01/tee-higgins-doubtful-bengals-raiders/
+
 **Stream These 9 Titles Before They Leave Netflix This Month**\
 `A slew of great movies and TV shows are leaving Netflix for U.S. subscribers in November. Here’s a roundup of the best.`\
 https://nytimes.com/2024/11/01/movies/leaving-netflix-november.html
