@@ -1,3 +1,7 @@
+**Garrett Wilson's miraculous catch just might have saved the Jets' season**\
+`The one-handed, losing-streak-snapping grab will go down as one of the greatest catches in NFL history.`\
+https://nytimes.com/athletic/5890234/2024/11/01/garrett-wilson-catch-new-york-jets-win-houston-texans/
+
 **Trial of Daniel Penny in Subway Killing to Begin With Opening Statements**\
 `Mr. Penny is charged with manslaughter in the May 2023 killing of Jordan Neely, whom he put in a chokehold in a subway car. Video of the incident spread online.`\
 https://nytimes.com/2024/11/01/nyregion/daniel-penny-trial-jordan-neely.html
