@@ -34,7 +34,3 @@ https://nytimes.com/2024/11/01/briefing/final-weekend-campaign-us-ukraine-russia
 `The League of United Latin American Citizens, which was targeted in Texas’ election fraud case, is teaming up with a Democratic super PAC to counter Republican-led election challenges.`\
 https://nytimes.com/2024/11/01/us/politics/latino-voting-rights-texas-election-fraud.html
 
-**Surprising No One, Democrats Ditch Tesla**\
-`It’s never a good sign when your customers are embarrassed to be associated with you.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/tesla-party-affiliation
-
