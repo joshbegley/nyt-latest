@@ -1,3 +1,7 @@
+**‘Phantom of the Opera’ Closed on Broadway. Now It’s Hitting the Road.**\
+`The enduring Andrew Lloyd Webber musical will begin a multiyear tour in Baltimore in November 2025.`\
+https://nytimes.com/2024/11/01/theater/phantom-opera-tour.html
+
 **More Rain Batters Parts of Spain as Rescuers Dig Through Debris**\
 `As the search continued for dozens of missing people in the east of the country, forecasters warned of new flooding in the southwest.`\
 https://nytimes.com/2024/11/01/world/europe/spain-rain-floods.html

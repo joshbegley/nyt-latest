@@ -1,3 +1,7 @@
+**‘Phantom of the Opera’ Closed on Broadway. Now It’s Hitting the Road.**\
+`The enduring Andrew Lloyd Webber musical will begin a multiyear tour in Baltimore in November 2025.`\
+https://nytimes.com/2024/11/01/theater/phantom-opera-tour.html
+
 **More Rain Batters Parts of Spain as Rescuers Dig Through Debris**\
 `As the search continued for dozens of missing people in the east of the country, forecasters warned of new flooding in the southwest.`\
 https://nytimes.com/2024/11/01/world/europe/spain-rain-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889007/2024/11/01/bo-nix-broncos-ravens-week-9/
 **Leon Draisaitl stepping up without Connor McDavid again proves he's NHL all-timer**\
 `Draisaitl scored two skillful goals and added an assist in the Oilers' 5-1 win over the Predators.`\
 https://nytimes.com/athletic/5890191/2024/11/01/leon-draisaitl-connor-mcdavid-oilers-nhl-all-timer/
-
-**Manchester United's players need to prove they can do what Amorim needs them to**\
-`Ruben Amorim is on the cusp of joining United — can the players do what he demands of them?`\
-https://nytimes.com/athletic/5888457/2024/11/01/manchester-united-players-ruben-amorim/
 
