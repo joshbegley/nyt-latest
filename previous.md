@@ -1,3 +1,11 @@
+**A Poem About Waiting, and Wishing You Had a Drink**\
+`Our critic A.O. Scott walks you through a poem that speaks to his mood right now. It’s called “Party Politics,” but it’s not about those parties, or those politics.`\
+https://nytimes.com/interactive/2024/11/01/books/philip-larkin-party-politics-poem.html
+
+**Biden Won’t Attend This Year’s Climate Summit, White House Officials Say**\
+`The president’s senior climate adviser will lead the American delegation at the U.N. talks in Azerbaijan.`\
+https://nytimes.com/2024/11/01/climate/biden-cop29-baku-climate.html
+
 **This Sorority Is Going All in to Get Out the Vote**\
 `Alpha Kappa Alpha’s forceful push to increase voter turnout could help boost critical support for Democrats from Black voters.`\
 https://nytimes.com/2024/11/01/us/elections/harris-alpha-kappa-alpha.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/01/t-magazine/chore-coats-workwear-jackets.html
 **Israeli Military Carries Out Raid in the Occupied West Bank**\
 `The Israeli military said they killed several militants during a raid in the West Bank, in an operation that residents and humanitarian groups said caused significant damage to infrastructure.`\
 https://nytimes.com/video/world/middleeast/100000009798794/west-bank-raid.html
-
-**Martino says they can't, but could Inter Miami sign Neymar?**\
-`Inter Miami coach Gerardo Martino said speculation about Neymar joining Inter Miami is just that — speculation — and would likely need a change in Major League Soccer (MLS) salary rules to be a real possibility.`\
-https://nytimes.com/athletic/5891368/2024/11/01/inter-miami-neymar-move/
-
-**Bengals WR Tee Higgins doubtful vs. Raiders**\
-`Bengals RB Zack Moss and OT Orlando Brown Jr. are also doubtful to play against the Raiders.`\
-https://nytimes.com/athletic/5891199/2024/11/01/tee-higgins-doubtful-bengals-raiders/
 
