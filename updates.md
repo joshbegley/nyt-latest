@@ -1,3 +1,7 @@
+**Draymond Green, Steve Kerr and the Warriors are fixing their challenge problem**\
+`Entering the weekend, the Warriors have the league's second-best defensive rating. The team’s challenge success rate could be why. `\
+https://nytimes.com/athletic/5887166/2024/11/01/draymond-green-steve-kerr-warriors-defense-nba/
+
 **Who Abandoned Liberalism First, the Populists or the Establishment?**\
 `The uncertain future of ‘whole of society’ politics.`\
 https://nytimes.com/2024/11/01/opinion/liberals-populists.html
