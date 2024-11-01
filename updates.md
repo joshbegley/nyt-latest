@@ -1,3 +1,9 @@
+**‘One Hundred Years of Solitude’ Book Club Conversation Space: Main Discussion**\
+`Discuss our November book club selection, “One Hundred Years of Solitude,” by Gabriel García Márquez, with the Book Review.`\
+https://nytimes.com/2024/11/01/books/review/one-hundred-years-of-solitude-book-club-main-discussion.html
+
+**Learn More About ‘One Hundred Years of Solitude’**\
+
 **1 in 4 Child Deaths After E.R. Visits Are Preventable, Study Finds**\
 `If every emergency room in the United States were fully prepared to treat children, thousands of lives would be saved and the cost would be $11.84 or less per child, researchers found.`\
 https://nytimes.com/2024/11/01/health/child-deaths-emergency-room.html
