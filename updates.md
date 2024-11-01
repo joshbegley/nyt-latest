@@ -1,3 +1,7 @@
+**Make America … Get Polio Again!**\
+`Are you really going to trust these guys with your health?`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-rfk-vance-vaccine
+
 **Biden Won’t Attend This Year’s Climate Summit, White House Officials Say**\
 `The president’s senior climate adviser is expected to lead the American delegation at the U.N. talks in Azerbaijan.`\
 https://nytimes.com/2024/11/01/climate/biden-cop29-baku-climate.html

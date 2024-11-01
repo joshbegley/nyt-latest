@@ -1,3 +1,7 @@
+**Make America … Get Polio Again!**\
+`Are you really going to trust these guys with your health?`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/trump-rfk-vance-vaccine
+
 **A Poem About Waiting, and Wishing You Had a Drink**\
 `Our critic A.O. Scott walks you through a poem that speaks to his mood right now. It’s called “Party Politics,” but it’s not about those parties, or those politics.`\
 https://nytimes.com/interactive/2024/11/01/books/philip-larkin-party-politics-poem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/world/europe/fake-halloween-parade-dublin.html
 **The Best Chore Coats, From $40 to $1,850**\
 `A roundup of versatile work wear-inspired jackets.`\
 https://nytimes.com/2024/11/01/t-magazine/chore-coats-workwear-jackets.html
-
-**Israeli Military Carries Out Raid in the Occupied West Bank**\
-`The Israeli military said they killed several militants during a raid in the West Bank, in an operation that residents and humanitarian groups said caused significant damage to infrastructure.`\
-https://nytimes.com/video/world/middleeast/100000009798794/west-bank-raid.html
 
