@@ -1,3 +1,7 @@
+**Maple Leafs report cards: All-around team effort and skill sinks Kraken**\
+`The Leafs' top-end skill made the difference against the Kraken, a team with excellent depth but few true stars.`\
+https://nytimes.com/athletic/5889455/2024/10/31/maple-leafs-report-cards-kraken-effort/
+
 **Heidi Klum Transforms Into Remote-Controlled E.T. for Halloween**\
 `The model and television host dressed as the alien from Steven Spielberg’s 1982 film for her annual New York City costume party.`\
 https://nytimes.com/2024/10/31/style/heidi-klum-halloween-costume-et-alien.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/31/us/politics/jd-vance-joe-rogan.html
 **Rams’ Puka Nacua leaves Thursday practice with knee injury**\
 `Nacua returned early from the sprained PCL to play in last Thursday night’s win against the Minnesota Vikings.`\
 https://nytimes.com/athletic/5889624/2024/10/31/rams-puka-nacua-knee-injury/
-
-**As Women Drift From Trump, His Campaign Is Reaching Out to Young Men**\
-`How Donald Trump’s allies are honing their message to young men in the campaign’s final days.`\
-https://nytimes.com/2024/10/31/us/politics/trump-women-men-gender.html
 
