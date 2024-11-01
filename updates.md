@@ -1,3 +1,11 @@
+**The Trump campaign blasted Harris over October jobs data, but ignored key context.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/the-trump-campaign-blasted-harris-over-october-jobs-data-but-ignored-key-context
+
+**When Will We Know Who Won?**\
+`It may take a while before the results are final. Here’s what could happen next.`\
+https://nytimes.com/2024/11/01/magazine/election-delay-vote-count.html
+
 **Gwinnett County, Ga.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/gwinnett-county-ga
