@@ -1,3 +1,11 @@
+**The Trump campaign blasted Harris over October jobs data, but ignored key context.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/the-trump-campaign-blasted-harris-over-october-jobs-data-but-ignored-key-context
+
+**When Will We Know Who Won?**\
+`It may take a while before the results are final. Here’s what could happen next.`\
+https://nytimes.com/2024/11/01/magazine/election-delay-vote-count.html
+
 **Gwinnett County, Ga.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/gwinnett-county-ga
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/01/arts/television/november-streaming-movies-shows.h
 **From A.I. to Musk’s Brain Chips, the F.D.A.’s Device Unit Faces Rapid Change**\
 `The new director overseeing medical devices will confront criticisms about hasty approvals as she ushers in revolutionary technology.`\
 https://nytimes.com/2024/11/01/health/fda-ai-elon-musk-medical-devices.html
-
-**So … How Does the Electoral College Work, Again?**\
-`It’s weird. It’s confusing. It’s how we elect the president.`\
-https://nytimes.com/2024/11/01/magazine/electoral-college-explainer.html
-
-**Play: Election-Night Bingo**\
-`Listen up for these terms as the votes roll in. Find them on the board to be the night’s big winner.`\
-https://nytimes.com/2024/11/01/magazine/election-terms-explained.html
 
