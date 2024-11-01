@@ -1,3 +1,11 @@
+**Packed Like Sardines**\
+`Spencer Leach opens our solving weekend.`\
+https://nytimes.com/2024/10/31/crosswords/daily-puzzle-2024-11-01.html
+
+**Vance Tells Rogan: Teens Become Trans to Get Into Ivy League**\
+`Appearing on Joe Rogan’s podcast, Senator JD Vance also said that liberal women celebrate their abortions and that Donald Trump would win the “normal gay guy vote.”`\
+https://nytimes.com/2024/10/31/us/politics/jd-vance-joe-rogan.html
+
 **Man Who Killed Hundreds of Eagles and Hawks Gets Nearly 4 Years in Prison**\
 `Travis John Branson was part of a conspiracy that killed 3,600 birds, prosecutors said. He also trafficked and sold bird parts on the black market.`\
 https://nytimes.com/2024/10/31/us/eagle-killer-sentenced-four-years.html
