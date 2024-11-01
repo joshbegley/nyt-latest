@@ -1,3 +1,11 @@
+**Arsenal Today: Arteta's public persona, Nwaneri decision and unlocking Jesus**\
+`Jordan Campbell answers three questions on the minds of our team of Arsenal reporters today`\
+https://nytimes.com/athletic/5889708/2024/11/01/arsenal-today-november-1/
+
+**Trump Attacks Liz Cheney Using Violent War Imagery**\
+`In an onstage interview in Arizona with Tucker Carlson, former President Donald J. Trump slammed a top Republican critic as he criticized U.S. involvement in foreign conflicts.`\
+https://nytimes.com/2024/11/01/us/politics/trump-liz-cheney-tucker-carlson.html
+
 **Botswana Voters Hand Governing Party a Stunning Rebuke**\
 `After nearly 60 years, the Botswana Democratic Party lost its majority in Parliament, becoming the latest long-dominant party in southern Africa to fall from power.`\
 https://nytimes.com/2024/11/01/world/africa/botswana-election-results.html
