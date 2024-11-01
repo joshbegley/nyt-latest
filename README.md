@@ -1,3 +1,15 @@
+**The Controversy Over Playing the WTA Finals in Saudi Arabia**\
+`In a country that is often criticized over its treatment of women, the tennis world debates the pros and cons of holding the elite women’s tournament there.`\
+https://nytimes.com/2024/11/01/sports/tennis/wta-finals-saudi-arabia.html
+
+**The High-Energy Jasmine Paolini Has Broken Through**\
+`The player from Italy reached the finals this year at the French Open and Wimbledon. Now she has qualified for the WTA Finals for the first time.`\
+https://nytimes.com/2024/11/01/sports/tennis/wta-finals-jasmine-paolini.html
+
+**The Importance of Those High-Pressure Tiebreakers in Tennis**\
+`Experts say that players need to take their time to succeed. “The athlete who rushes during a tiebreak gets into trouble,” Pam Shriver says.`\
+https://nytimes.com/2024/11/01/sports/tennis/tiebreakers-tennis-matches.html
+
 **Elena Rybakina hires Goran Ivanisevic as new coach**\
 `The world No. 5 will join up with the former Wimbledon champion for the 2025 season and beyond.`\
 https://nytimes.com/athletic/5890523/2024/11/01/elena-rybakina-coach-ivanisevic/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5888832/2024/11/01/the-athletics-friday-football-qu
 **How Marc Casado went from youth-team tears to Barcelona stalwart in four months**\
 `Casado is a key player for Flick's Barca - something few would have expected when his future was unclear at the end of last season`\
 https://nytimes.com/athletic/5890301/2024/11/01/barcelona-marc-casado-hansi-flick/
-
-**Books by Jodi Picoult, John Green and Stephen King Among the Most Banned in Schools**\
-`A record number of books were banned in districts across the country during the 2023-2024 school year, according to a free speech organization.`\
-https://nytimes.com/2024/11/01/books/banned-books-2023-2024.html
-
-**Man United confirm Amorim as new head coach**\
-`Manchester United have confirmed Sporting Lisbon&#8217;s Ruben Amorim as their new head coach.`\
-https://nytimes.com/athletic/5880480/2024/11/01/ruben-amorim-manchester-united-manager/
-
-**How did Victor Wembanyama respond to a bad game? With a historic one for the Spurs**\
-`One night after one of his worst games as a pro against Oklahoma City, Wemby posted his second career 5x5 night versus the Jazz.`\
-https://nytimes.com/athletic/5890136/2024/11/01/victor-wembanyama-5x5-spurs/
 
