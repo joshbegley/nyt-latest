@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
 `\
 https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
 
+**Blue Jackets crumble under Jets' withering pressure**\
+`The structured, smart game the Blue Jackets have flashed this season was nonexistent versus the Jets. 
+`\
+https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
+
 **How Igor Shesterkin cleaned up 'the stink' of sloppy Rangers: 3 takeaways**\
 `With 40 saves, Shesterkin stole the show once again in the Rangers' 2-1 win Friday over the Senators.`\
 https://nytimes.com/athletic/5892249/2024/11/01/rangers-senators-igor-shesterkin/
