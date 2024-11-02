@@ -1,3 +1,11 @@
+**Konate to undergo scan on arm injury - Slot**\
+`Arne Slot admits Liverpool face a nervous wait to find out the extent of the injury Ibrahima Konate suffered in their 2-1 win over Brighton &amp; Hove Albion on Saturday.`\
+https://nytimes.com/athletic/5892715/2024/11/02/ibrahima-konate-to-undergo-scan-on-arm-injury-arne-slot/
+
+**In Georgia, Black men’s frustration with Democrats creates opening for Trump.**\
+`By Maya King, Jonathan Weisman and Ruth Igielnik`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/in-georgia-black-mens-frustration-with-democrats-creates-opening-for-trump
+
 **Patriots' Maye clears concussion protocol, expected to start vs. Titans**\
 `The Patriots’ offense has looked drastically better with the rookie under center and now faces a tough matchup against the Titans defense.`\
 https://nytimes.com/athletic/5892958/2024/11/02/patriots-drake-maye-concussion-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5892836/2024/11/02/marcelo-fluminense-contract-term
 **Browns place Pro Bowl LB Jeremiah Owusu-Koramoah on IR**\
 `Owusu-Koramoah leads the Browns in tackles (61) and is tied for second in the NFL with 10 tackles for loss.`\
 https://nytimes.com/athletic/5892709/2024/11/02/browns-jeremian-owusu-koramoan-injured-reserve/
-
-**If there's a dynasty in NWSL, it's the Portland Thorns. What's next?**\
-`The Thorns have enjoyed success like no other in NWSL but what will 2025 bring - without Christine Sinclair?`\
-https://nytimes.com/athletic/5892479/2024/11/02/portland-thorns-nwsl-dynasty-sinclair/
-
-**Reeling Islanders lose Mathew Barzal, Adam Pelech to long-term injuries**\
-`Barzal suffered an upper-body injury Wednesday, and Pelech took a puck to the mouth Friday. Also, updates on Mike Reilly and Alex Romanov.`\
-https://nytimes.com/athletic/5892806/2024/11/02/islanders-mathew-barzal-adam-pelech-injuries/
 
