@@ -1,3 +1,27 @@
+**Scenes of Trench Warfare in the Age of Drones**\
+`At a critical battlefield in eastern Ukraine, advanced technology is shaping battles that resemble the wars of older eras. When drones are watching, assaults become violent sprints.`\
+https://nytimes.com/2024/11/02/world/europe/scenes-of-trench-warfare-in-the-age-of-drones.html
+
+**Quote of the Day: U.C.L.A. Football Travel This Season (In Miles)**\
+`Quotation of the Day for Saturday, November 2, 2024.`\
+https://nytimes.com/2024/11/02/pageoneplus/quote-of-the-day-ucla-football-travel-this-season-in-miles.html
+
+**Can Iran and Israel Find a New Equilibrium?**\
+`Even with peace talks underway, the region is far from stable.`\
+https://nytimes.com/2024/11/02/world/middleeast/can-iran-and-israel-find-a-new-equilibrium.html
+
+**To Join This Club, a Member Must Die. And You Must Adore Verdi.**\
+`Based in Parma, Club dei 27 is so exclusive that it’s given rise to all sorts of myths. But it’s really about venerating the famous opera composer born near the Italian city.`\
+https://nytimes.com/2024/11/02/world/europe/club-dei-27-verdi-parma.html
+
+**Oregon at Michigan: How to watch, picks, odds for No. 1 Ducks' trip to defending champs**\
+`Oregon is going to the Big House to take on the defending champions. The luster of this one has worn off some with Oregon heavily favored.`\
+https://nytimes.com/athletic/5889274/2024/11/02/oregon-michigan-how-to-watch-picks-odds/
+
+**Liverpool vs Brighton preview: Storylines, odds, prediction for meeting of teams in top 6**\
+`Liverpool are chasing Manchester City at the top of the table, but the Reds have a tricky home fixture against Brighton on Saturday.`\
+https://nytimes.com/athletic/5891687/2024/11/02/liverpool-brighton-preview-odds-prediction/
+
 **Blue Jackets crumble under Jets' withering pressure in loss**\
 `The structured, smart game the Blue Jackets flashed so far this season was nonexistent vs. the Jets. 
 `\
@@ -14,28 +38,4 @@ https://nytimes.com/athletic/5892159/2024/11/01/wild-lightning-kirill-kaprizov-f
 **For one mother and son, the 8-hour wait to vote in Bucks County, Pa., was worth it.**\
 `By Lisa Lerer`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/levittown-pa-long-lines
-
-**Judge Finds Pennsylvania County Short of Ballots and Extends Early-Voting Hours**\
-`A state judge in Erie County, Pa., found that thousands of voters may not have received their ballots in time for the election on Tuesday, ordering the county to remedy the issue.`\
-https://nytimes.com/2024/11/01/us/politics/erie-county-voting-mail-ballots.html
-
-**Michigan lands 4-star CB Shamari Earls, flipping commit from Georgia**\
-`At 6-foot-2 and 180 pounds, Earls profiles as an outside corner who could help fill the shoes of Will Johnson if Johnson goes to the NFL.`\
-https://nytimes.com/athletic/5892238/2024/11/01/michigan-recruiting-shamari-earls-flip-georgia/
-
-**Federal Jury Finds Ex-Officer Guilty of Violating Breonna Taylor’s Rights**\
-`The former detective fired 10 shots through Ms. Taylor’s apartment in a raid that set off a wave of protests across the country.`\
-https://nytimes.com/2024/11/01/us/breonna-taylor-brett-hankison-verdict.html
-
-**No, vote spikes on election night do not indicate voter fraud.**\
-`The false claim, which has circulated in recent elections, is based on a misunderstanding of how votes are collected and reported.`\
-https://nytimes.com/2024/11/01/technology/vote-spikes-election-night-voter-fraud.html
-
-**Band Aids**\
-`Blake Slonecker delivers a cutting-edge Saturday puzzle.`\
-https://nytimes.com/2024/11/01/crosswords/daily-puzzle-2024-11-02.html
-
-**Corrections: Nov. 2, 2024**\
-`Corrections that appeared in print on Saturday, Nov. 2, 2024.`\
-https://nytimes.com/2024/11/01/pageoneplus/corrections-nov-2-2024.html
 
