@@ -1,3 +1,23 @@
+**Here’s the latest on the presidential race.**\
+`By Jess Bidgood`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Candidates Blanket Battlegrounds on Last Weekend Before Election Day**\
+`Donald J. Trump will rally in North Carolina, Kamala Harris will hold a star-studded get-out-the-vote event in Atlanta, and their running mates are headed to Nevada and Arizona.`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election
+
+**Tailgating in Wisconsin With the Bros Trump Needs**\
+`Gender is a main dividing line in 2024. And young swing-state voters know it.`\
+https://nytimes.com/2024/11/02/podcasts/tailgating-in-wisconsin-with-the-bros-trump-needs.html
+
+**The Connections Companion No. 511**\
+`Scroll down for hints and conversation about the puzzle for Nov. 3, 2024.`\
+https://nytimes.com/2024/11/02/crosswords/connections-companion-511.html
+
+**Abortion Rights Issue Surfaces in Canada Before U.S. Election**\
+`The Canadian government proposed legislation this week to crack down on anti-abortion organizations that provide “dishonest counseling” to pregnant women.`\
+https://nytimes.com/2024/11/02/world/canada/abortion-rights-canada-election.html
+
 **Ravens looking for a return to normalcy vs. Broncos following angst-ridden week**\
 `How will the defense respond coming off a disappointing outing in Week 8? And will Denver's blitz-heavy approach affect Lamar Jackson?`\
 https://nytimes.com/athletic/5891595/2024/11/02/ravens-broncos-preview-lamar-jackson/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/02/us/mexico-supreme-court-judicial-overhaul.html
 **‘Cesspools,’ ‘Hellholes’ and ‘Beautiful Places’: How Trump Describes the U.S.**\
 `See how Donald J. Trump’s penchant for criticism extends to a topic that’s usually sacrosanct for candidates — the cities and states in the nation he aims to lead.`\
 https://nytimes.com/interactive/2024/11/02/us/politics/trump-places-quotes.html
-
-**Young African Voters Sour on the Parties That Ushered in Liberation**\
-`Political parties that have governed for decades since African countries overthrew colonial rulers are now being challenged by frustrated young voters.`\
-https://nytimes.com/2024/11/02/world/africa/botswana-election-africa-youth.html
-
-**Trump Is Betting Big on Musk’s Swing-State Moonshot**\
-`The candidate is leaning on an unusual canvassing effort funded by Elon Musk. If successful, it could usher in a new era when billionaires dominate ground campaigns.`\
-https://nytimes.com/2024/11/02/us/elections/elon-musk-super-pac.html
-
-**A Daughter of Immigrants Adopts a Tough Border Message in a Close House Race**\
-`Representative Yadira Caraveo of Colorado, whose parents entered the country illegally from Mexico, has become one of several Democrats to pivot to a pro-enforcement message.`\
-https://nytimes.com/2024/11/02/us/a-daughter-of-immigrants-adopts-a-tough-border-message-in-a-close-house-race.html
-
-**Exhale Through the Gift Shop**\
-`Museums are adding scents as another tool for communicating information about science and other subjects in their exhibits.`\
-https://nytimes.com/2024/11/02/science/scent-exhibits-museum.html
-
-**How a Trump Win Would Upend Major Climate Court Fights**\
-`A second Trump administration could stop defending the E.P.A. against lawsuits attacking its climate policies. Other effects might be more far-reaching.`\
-https://nytimes.com/2024/11/02/climate/trump-climate-courts-lawsuits.html
 
