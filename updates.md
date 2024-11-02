@@ -1,3 +1,7 @@
+**Florida QB DJ Lagway carted off with injury vs. Georgia**\
+`Florida freshman DJ Lagway, a five-star recruit, left Saturday's game against Georgia with an injury and was replaced by Aidan Warner.`\
+https://nytimes.com/athletic/5893339/2024/11/02/dj-lagway-injury-florida-georgia/
+
 **Michkov, Tortorella may have cleared the first hurdle in their Flyers relationship**\
 `Tortorella benched the Flyers' young star for two early shifts against the Blues.`\
 https://nytimes.com/athletic/5893106/2024/11/02/flyers-michkov-tortorella-relationship/

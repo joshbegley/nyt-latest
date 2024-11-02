@@ -1,3 +1,7 @@
+**Florida QB DJ Lagway carted off with injury vs. Georgia**\
+`Florida freshman DJ Lagway, a five-star recruit, left Saturday's game against Georgia with an injury and was replaced by Aidan Warner.`\
+https://nytimes.com/athletic/5893339/2024/11/02/dj-lagway-injury-florida-georgia/
+
 **Michkov, Tortorella may have cleared the first hurdle in their Flyers relationship**\
 `Tortorella benched the Flyers' young star for two early shifts against the Blues.`\
 https://nytimes.com/athletic/5893106/2024/11/02/flyers-michkov-tortorella-relationship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892488/2024/11/02/aryna-sabalenka-number-one-wta-f
 **NFL reviewing potential fine of 49ers' Nick Bosa for wearing 'MAGA' hat postgame: Source**\
 `The NFL will take its time on a decision because the behavior does not involve a play on the field or a potential suspension.`\
 https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-political-statement/
-
-**Ohio State earns marquee win, adds to Penn State's big-game misery again: Takeaways**\
-`No. 4 Ohio State used a fourth-quarter goal-line stand to hand No. 3 Penn State its first loss, 20-13, in front of a record crowd.`\
-https://nytimes.com/athletic/5892930/2024/11/02/ohio-state-penn-state-score-recap/
 
