@@ -1,3 +1,7 @@
+**Five-star wing Shelton Henderson commits to Duke**\
+`Henderson picked the Blue Devils over fellow finalists Louisville and Texas.`\
+https://nytimes.com/athletic/5889310/2024/11/02/five-star-shelton-henderson-committed-duke/
+
 **Israel Says Elite Naval Commandos Abducted Hezbollah Operative**\
 `It appeared to be the deepest Israeli operation by sea and ground inside Lebanon during the current war.`\
 https://nytimes.com/2024/11/02/world/middleeast/israel-naval-commandos-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892923/2024/11/02/padres-ha-seong-kim-free-agent/
 **Janey Godley, Scottish Comedian Who Brought Humor to Harrowing Topics, Dies at 63**\
 `Ms. Godley said she believed there were “funny sides” to terrible experiences, including some that she drew from her own times of loss and hardship.`\
 https://nytimes.com/2024/11/02/arts/television/janey-godley-dead.html
-
-**Marcelo leaves Fluminense after disagreement with head coach**\
-`Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
-https://nytimes.com/athletic/5892836/2024/11/02/marcelo-fluminense-contract-terminated/
 
