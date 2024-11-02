@@ -1,3 +1,7 @@
+**Brown County, Wis.**\
+`By Julie Bosman`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/brown-county-wis
+
 **F1 São Paulo GP qualifying postponed after heavy rain soaks Interlagos**\
 `It remains to be confirmed when grand prix qualifying will take place ahead of Sunday's grand prix. `\
 https://nytimes.com/athletic/5893042/2024/11/02/f1-brazil-gp-qualifying-postponed-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892600/2024/11/02/ruben-dias-injury-man-city/
 **Tim Sheehy says medical records do not exist to prove gunshot story.**\
 `The Republican candidate for U.S. Senate, who has told conflicting stories about the origins of a bullet in his arm, said there are no Montana hospital records to explain his account.`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/tim-sheehy-says-medical-records-do-not-exist-to-prove-gunshot-story
-
-**Jason Kelce slams fan's phone on ground after hearing slur about Travis Kelce dating Taylor Swift**\
-`Travis Kelce, the Kansas City Chiefs tight end, started dating pop sensation Taylor Swift in 2023.`\
-https://nytimes.com/athletic/5893037/2024/11/02/jason-kelce-taylor-swift-fan-taunt-phone/
 
