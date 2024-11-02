@@ -1,3 +1,7 @@
+**NFL reviewing potential fine of 49ers' Nick Bosa for wearing 'MAGA' hat postgame: Source**\
+`The NFL will take its time on a decision because the behavior does not involve a play on the field or a potential suspension.`\
+https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-political-statement/
+
 **Brown County, Wis.**\
 `By Julie Bosman`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/brown-county-wis
