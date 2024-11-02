@@ -1,3 +1,11 @@
+**Why Premier League games with two-goal comebacks are more common than ever this season**\
+`A higher proportion of games than ever before have featured two-goal comebacks this season`\
+https://nytimes.com/athletic/5888122/2024/11/02/premier-league-comebacks-analysis/
+
+**Analysing Real Madrid's centre-back problem and players they could target**\
+`Militao and Rudiger are Madrid’s only two senior centre-backs and there seems agreement that the club should try to strengthen in January`\
+https://nytimes.com/athletic/5890719/2024/11/02/real-madrid-defence-problems-transfer-targets/
+
 **Timberwolves beat Nuggets in 119-116 comeback thriller**\
 `Minnesota's Anthony Edwards made a driving jump shot to take the lead with 25 seconds left in the game.`\
 https://nytimes.com/athletic/5892345/2024/11/02/timberwolves-nuggets-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/02/world/middleeast/can-iran-and-israel-find-a-new-e
 **To Join This Club, a Member Must Die. And You Must Adore Verdi.**\
 `Based in Parma, Club dei 27 is so exclusive that it’s given rise to all sorts of myths. But it’s really about venerating the famous opera composer born near the Italian city.`\
 https://nytimes.com/2024/11/02/world/europe/club-dei-27-verdi-parma.html
-
-**Oregon at Michigan: How to watch, picks, odds for No. 1 Ducks' trip to defending champs**\
-`Oregon is going to the Big House to take on the defending champions. The luster of this one has worn off some with Oregon heavily favored.`\
-https://nytimes.com/athletic/5889274/2024/11/02/oregon-michigan-how-to-watch-picks-odds/
-
-**Liverpool vs Brighton preview: Storylines, odds, prediction for meeting of teams in top 6**\
-`Liverpool are chasing Manchester City at the top of the table, but the Reds have a tricky home fixture against Brighton on Saturday.`\
-https://nytimes.com/athletic/5891687/2024/11/02/liverpool-brighton-preview-odds-prediction/
 

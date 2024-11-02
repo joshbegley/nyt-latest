@@ -1,3 +1,11 @@
+**Why Premier League games with two-goal comebacks are more common than ever this season**\
+`A higher proportion of games than ever before have featured two-goal comebacks this season`\
+https://nytimes.com/athletic/5888122/2024/11/02/premier-league-comebacks-analysis/
+
+**Analysing Real Madrid's centre-back problem and players they could target**\
+`Militao and Rudiger are Madrid’s only two senior centre-backs and there seems agreement that the club should try to strengthen in January`\
+https://nytimes.com/athletic/5890719/2024/11/02/real-madrid-defence-problems-transfer-targets/
+
 **Timberwolves beat Nuggets in 119-116 comeback thriller**\
 `Minnesota's Anthony Edwards made a driving jump shot to take the lead with 25 seconds left in the game.`\
 https://nytimes.com/athletic/5892345/2024/11/02/timberwolves-nuggets-result-takeaways/
