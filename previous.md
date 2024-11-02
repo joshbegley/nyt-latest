@@ -1,3 +1,7 @@
+**Comeback falls short: Takeaways from yet another Nebraska debacle**\
+`Matt Rhule’s team was beaten in stunning fashion for the second time in three weeks. Can the Huskers rebound?`\
+https://nytimes.com/athletic/5893485/2024/11/02/nebraska-ucla-dylan-raiola/
+
 **Top-ranked Oregon remains unbeaten with road win at Michigan: Takeaways**\
 `Oregon QB Dillon Gabriel threw for 294 yards and ran for a 23-yard touchdown to keep the Ducks perfect and their Playoff hopes intact.`\
 https://nytimes.com/athletic/5893275/2024/11/02/oregon-ducks-michigan-wolverines-score-recap/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/business/media/james-ledbetter-dead.html
 **6th Tennessee Factory Worker Is Found a Month After Flooding From Helene**\
 `She is believed to be the last employee who was missing after the plastics plant flooded. Authorities are still investigating the circumstances around the deaths.`\
 https://nytimes.com/2024/11/02/us/hurricane-helene-body-tennessee.html
-
-**What to Know About the Electoral College**\
-`“This is a very unique and bespoke system that I think nobody would create again today,” one expert said.`\
-https://nytimes.com/2024/11/02/us/politics/what-is-the-electoral-college.html
 

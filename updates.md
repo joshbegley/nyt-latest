@@ -1,3 +1,7 @@
+**Comeback falls short: Takeaways from yet another Nebraska debacle**\
+`Matt Rhule’s team was beaten in stunning fashion for the second time in three weeks. Can the Huskers rebound?`\
+https://nytimes.com/athletic/5893485/2024/11/02/nebraska-ucla-dylan-raiola/
+
 **Top-ranked Oregon remains unbeaten with road win at Michigan: Takeaways**\
 `Oregon QB Dillon Gabriel threw for 294 yards and ran for a 23-yard touchdown to keep the Ducks perfect and their Playoff hopes intact.`\
 https://nytimes.com/athletic/5893275/2024/11/02/oregon-ducks-michigan-wolverines-score-recap/
