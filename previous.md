@@ -1,3 +1,7 @@
+**'I can be the best player in the world': Aryna Sabalenka aims to crown the season of her life**\
+`12 months ago, Aryna Sabalenka said she was "disrespected" by the WTA Tour. In Riyadh, she stands to end the year atop it.`\
+https://nytimes.com/athletic/5892488/2024/11/02/aryna-sabalenka-number-one-wta-finals/
+
 **NFL delaying decision on potential fine of 49ers' Nick Bosa for wearing 'MAGA' hat**\
 `The NFL will take its time on a decision because the behavior does not involve a play on the field or a potential suspension.`\
 https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-political-statement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5889310/2024/11/02/five-star-shelton-henderson-comm
 **Israel Says Elite Naval Commandos Abducted Hezbollah Operative**\
 `It appeared to be the deepest Israeli operation by sea and ground inside Lebanon during the current war.`\
 https://nytimes.com/2024/11/02/world/middleeast/israel-naval-commandos-hezbollah.html
-
-**Konate to undergo scan on arm injury - Slot**\
-`Arne Slot admits Liverpool face a nervous wait to find out the extent of the injury Ibrahima Konate suffered in their 2-1 win over Brighton &amp; Hove Albion on Saturday.`\
-https://nytimes.com/athletic/5892715/2024/11/02/ibrahima-konate-to-undergo-scan-on-arm-injury-arne-slot/
 
