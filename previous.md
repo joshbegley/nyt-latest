@@ -1,3 +1,7 @@
+**Russini’s what I’m hearing about NFL trade deadline: 13 players, 18 teams to watch closely**\
+`What's the latest news on the Jordan Love, Lamar Jackson and Puka Nacua injuries? We have the answers. `\
+https://nytimes.com/athletic/5892177/2024/11/02/nfl-trade-deadline-teams-players/
+
 **Photographing Every President Since Reagan**\
 `Doug Mills reflects on nearly 40 years of taking photos of presidents.`\
 https://nytimes.com/2024/11/02/insider/president-photos-doug-mills.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/business/dealbook/fears-of-civil-unrest-stalk-the
 **Molly on 2 Alternatives to Certain Current Events**\
 `An underground party memoir; an argument for nonhuman life.`\
 https://nytimes.com/2024/11/02/books/read-like-wind-recommendations.html
-
-**Kemi Badenoch Becomes First Black Woman to Lead Britain’s Conservative Party**\
-`Ms. Badenoch is expected to move the party, now in the opposition, further to the right.`\
-https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html
 
