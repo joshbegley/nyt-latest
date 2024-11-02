@@ -1,3 +1,15 @@
+**6th Tennessee Factory Worker Is Found a Month After Flooding From Helene**\
+`She is believed to be the last employee who was missing after the plastics plant flooded. Authorities are still investigating the circumstances around the deaths.`\
+https://nytimes.com/2024/11/02/us/hurricane-helene-body-tennessee.html
+
+**What to Know About the Electoral College**\
+`“This is a very unique and bespoke system that I think nobody would create again today,” one expert said.`\
+https://nytimes.com/2024/11/02/us/politics/what-is-the-electoral-college.html
+
+**Chicago Sky hire Tyler Marsh as head coach: Sources**\
+`Marsh led the Aces' player development as the team won back-to-back titles in 2022-23.`\
+https://nytimes.com/athletic/5893352/2024/11/02/chicago-sky-hire-tyler-marsh-wnba/
+
 **Matvei Michkov and John Tortorella might have cleared the first hurdle in their relationship**\
 `Tortorella benched the Flyers' young star for two early shifts against the Blues.`\
 https://nytimes.com/athletic/5893106/2024/11/02/flyers-michkov-tortorella-relationship/
