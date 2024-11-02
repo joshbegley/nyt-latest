@@ -1,3 +1,7 @@
+**Israel Says Elite Naval Commandos Abducted Hezbollah Operative**\
+`It appeared to be the deepest Israeli operation by sea and ground inside Lebanon during the current war.`\
+https://nytimes.com/2024/11/02/world/middleeast/israel-naval-commandos-hezbollah.html
+
 **Konate to undergo scan on arm injury - Slot**\
 `Arne Slot admits Liverpool face a nervous wait to find out the extent of the injury Ibrahima Konate suffered in their 2-1 win over Brighton &amp; Hove Albion on Saturday.`\
 https://nytimes.com/athletic/5892715/2024/11/02/ibrahima-konate-to-undergo-scan-on-arm-injury-arne-slot/

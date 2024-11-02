@@ -1,3 +1,7 @@
+**Israel Says Elite Naval Commandos Abducted Hezbollah Operative**\
+`It appeared to be the deepest Israeli operation by sea and ground inside Lebanon during the current war.`\
+https://nytimes.com/2024/11/02/world/middleeast/israel-naval-commandos-hezbollah.html
+
 **Konate to undergo scan on arm injury - Slot**\
 `Arne Slot admits Liverpool face a nervous wait to find out the extent of the injury Ibrahima Konate suffered in their 2-1 win over Brighton &amp; Hove Albion on Saturday.`\
 https://nytimes.com/athletic/5892715/2024/11/02/ibrahima-konate-to-undergo-scan-on-arm-injury-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/arts/television/janey-godley-dead.html
 **Marcelo leaves Fluminense after disagreement with head coach**\
 `Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
 https://nytimes.com/athletic/5892836/2024/11/02/marcelo-fluminense-contract-terminated/
-
-**Browns place Pro Bowl LB Jeremiah Owusu-Koramoah on IR**\
-`Owusu-Koramoah leads the Browns in tackles (61) and is tied for second in the NFL with 10 tackles for loss.`\
-https://nytimes.com/athletic/5892709/2024/11/02/browns-jeremian-owusu-koramoan-injured-reserve/
 
