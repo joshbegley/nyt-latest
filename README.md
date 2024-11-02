@@ -1,3 +1,11 @@
+**Tim Sheehy says medical records do not exist to prove gunshot story.**\
+`The Republican candidate for U.S. Senate, who has told conflicting stories about the origins of a bullet in his arm, said there are no Montana hospital records to explain his account.`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/tim-sheehy-says-medical-records-do-not-exist-to-prove-gunshot-story
+
+**Jason Kelce slams Penn State fan's phone on ground after homophobic slur**\
+`Travis Kelce, the Kansas City Chiefs tight end, started dating pop sensation Taylor Swift in 2023.`\
+https://nytimes.com/athletic/5893037/2024/11/02/jason-kelce-taylor-swift-fan-taunt-phone/
+
 **Five-star wing Shelton Henderson commits to Duke**\
 `Henderson picked the Blue Devils over fellow finalists Louisville and Texas.`\
 https://nytimes.com/athletic/5889310/2024/11/02/five-star-shelton-henderson-committed-duke/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5892843/2024/11/02/cubs-cody-bellinger-contract-mlb
 **'We can get better,' says Nuno as Forest go third**\
 `Nuno Espirito Santo responded to seeing his Nottingham Forest side go third in the Premier League table for the first time since September 1998 by insisting: &#8220;I think we can get better&#8221;.`\
 https://nytimes.com/athletic/5892986/2024/11/02/nuno-espirito-santo-forest-champions-league/
-
-**Ha-Seong Kim declines mutual option with Padres**\
-`The shortstop underwent surgery to repair a torn labrum on Oct. 10 and hopes to return to action early in the 2025 season.`\
-https://nytimes.com/athletic/5892923/2024/11/02/padres-ha-seong-kim-free-agent/
-
-**Janey Godley, Scottish Comedian Who Brought Humor to Harrowing Topics, Dies at 63**\
-`Ms. Godley said she believed there were “funny sides” to terrible experiences, including some that she drew from her own times of loss and hardship.`\
-https://nytimes.com/2024/11/02/arts/television/janey-godley-dead.html
 
