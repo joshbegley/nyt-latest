@@ -1,3 +1,7 @@
+**How Sabres repeated same mistakes in avoidable loss to Islanders: 3 takeaways**\
+`Buffalo once again missed assignments on defense, had sloppy puck management and an inability to win battles for loose pucks.`\
+https://nytimes.com/athletic/5892292/2024/11/02/sabres-islanders-mistakes-takeaways/
+
 **13 insights fantasy football managers need to know ahead of Week 9**\
 `Theo Gremminger puts rookie Bo Nix's rise to fantasy football prominence in perspective as he shares 13 insights ahead of Week 9.`\
 https://nytimes.com/athletic/5891172/2024/11/02/13-insights-fantasy-football-week-9/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
 **How Igor Shesterkin cleaned up 'the stink' of sloppy Rangers: 3 takeaways**\
 `With 40 saves, Shesterkin stole the show once again in the Rangers' 2-1 win Friday over the Senators.`\
 https://nytimes.com/athletic/5892249/2024/11/01/rangers-senators-igor-shesterkin/
-
-**How Kirill Kaprizov's dominance, Filip Gustavsson's bounce back fueled Wild win: 3 takeaways**\
-`The Wild returned home for the first time since Oct. 12 and improved to 15-3 all time at home against the Lightning with a 5-3 victory.`\
-https://nytimes.com/athletic/5892159/2024/11/01/wild-lightning-kirill-kaprizov-filip-gustavsson/
 
