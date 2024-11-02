@@ -1,3 +1,7 @@
+**Springsteen Is Fighting Back the Darkness at the Edge of America**\
+`His music offers a model of how we all might just get through this.`\
+https://nytimes.com/2024/11/02/opinion/bruce-springsteen-politics-fans.html
+
 **What I’m seeing from the Blues through October: Inconsistency in abundance**\
 `For the Blues, the additions of Philip Broberg and Dylan Holloway bring some hope for the future.`\
 https://nytimes.com/athletic/5890886/2024/11/02/blues-nhl-season-jordan-kyrou/
