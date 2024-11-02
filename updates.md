@@ -1,3 +1,7 @@
+**Was Saturday a better win for Ryan Day or a worse loss for James Franklin?**\
+`The Nittany Lions' loss was the latest instance of Franklin's team coming up short in big moments. They're now 1-13 against top-five teams.`\
+https://nytimes.com/athletic/5893342/2024/11/02/penn-state-football-james-franklin-ohio-state/
+
 **Can I Have a Raise?**\
 `Share Sid Sivakumar’s Sunday puzzle with management.`\
 https://nytimes.com/2024/11/02/crosswords/daily-puzzle-2024-11-03.html

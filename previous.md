@@ -1,3 +1,7 @@
+**Was Saturday a better win for Ryan Day or a worse loss for James Franklin?**\
+`The Nittany Lions' loss was the latest instance of Franklin's team coming up short in big moments. They're now 1-13 against top-five teams.`\
+https://nytimes.com/athletic/5893342/2024/11/02/penn-state-football-james-franklin-ohio-state/
+
 **Can I Have a Raise?**\
 `Share Sid Sivakumar’s Sunday puzzle with management.`\
 https://nytimes.com/2024/11/02/crosswords/daily-puzzle-2024-11-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892769/2024/11/02/edmonton-oilers-ahl-savoie-jarve
 **Florida QB DJ Lagway carted off with injury vs. Georgia**\
 `Florida freshman DJ Lagway, a five-star recruit, left Saturday's game against Georgia with an injury and was replaced by Aidan Warner.`\
 https://nytimes.com/athletic/5893339/2024/11/02/dj-lagway-injury-florida-georgia/
-
-**Matvei Michkov and John Tortorella might have cleared the first hurdle in their relationship**\
-`Tortorella benched the Flyers' young star for two early shifts against the Blues.`\
-https://nytimes.com/athletic/5893106/2024/11/02/flyers-michkov-tortorella-relationship/
 
