@@ -1,40 +1,40 @@
-**Pentagon Will Send Additional Fighter Jets and Destroyers to Middle East**\
-`The deployment comes as concern grows that Iran may soon retaliate for Israeli strikes on its territory last month.`\
-https://nytimes.com/2024/11/02/world/middleeast/israel-lebanon-iran-hezbollah.html
+**Vote to End the Trump Era**\
+`America should demand better.`\
+https://nytimes.com/interactive/2024/11/02/opinion/vote-harris-2024-election.html
 
-**Taking Time**\
-`Daylight saving time ends tomorrow. How will you make use of the extra hour?`\
-https://nytimes.com/2024/11/02/briefing/daylight-saving-time.html
+**Springsteen Fights Back the Darkness at the Edge of America**\
+`His music offers a model of how we all might just get through this.`\
+https://nytimes.com/2024/11/02/opinion/bruce-springsteen-politics-fans.html
 
-**The friendly competition between Jayden Daniels and Malik Nabers will never stop**\
-`The former LSU teammates and good friends continue to push each other to be great, even while suiting up for NFC East rivals. `\
-https://nytimes.com/athletic/5891378/2024/11/02/jayden-daniels-malik-nabers-commanders-giants-lsu/
+**Humorless Feminists Against Trump**\
+`The former president does not value or respect women — and it shows in his words and his policies`\
+https://nytimes.com/2024/11/02/opinion/humorless-feminists-trump.html
 
-**Here’s the latest on the presidential race.**\
-`By Jess Bidgood`\
-https://nytimes.com/live/2024/11/02/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+**Each NHL team’s biggest concern a month into the 2024-25 season**\
+`From goaltending and lack of offense to injuries and more, here’s what The Athletic's NHL staff said is each team's biggest concern.`\
+https://nytimes.com/athletic/5891648/2024/11/02/nhl-2024-25-regular-season-concerns/
 
-**Election Live Updates: Candidates Blanket Battlegrounds on Last Weekend Before Election Day**\
-`Donald J. Trump will rally in North Carolina, Kamala Harris will hold a star-studded get-out-the-vote event in Atlanta, and their running mates are headed to Nevada and Arizona.`\
-https://nytimes.com/live/2024/11/02/us/trump-harris-election
+**Had Enough of the Election? Take Solace in the Marathon.**\
+`The marathon is glorious in part because it represents an ideal of civic life: people striving to accomplish their goals while seeking connection with others.`\
+https://nytimes.com/2024/11/02/opinion/nyc-marathon-running.html
 
-**From Calahoo to Toronto: The making of Maple Leafs coach Craig Berube**\
-`When Craig Berube wants to truly feel at peace, he goes back to a place where he became the person he is today.`\
-https://nytimes.com/athletic/5890398/2024/11/02/maple-leafs-coach-craig-berube/
+**If the Choice in 2024 Were So Obvious, the Election Wouldn’t Be So Close**\
+`Why opposing Trump is not so completely obvious, obligatory or a matter of simple common sense.`\
+https://nytimes.com/2024/11/02/opinion/trump-harris-election.html
 
-**Tailgating in Wisconsin With the Bros Trump Needs**\
-`Gender is a main dividing line in 2024. And young swing-state voters know it.`\
-https://nytimes.com/2024/11/02/podcasts/tailgating-in-wisconsin-with-the-bros-trump-needs.html
+**I’ve Covered Authoritarians Abroad. Now I Fear One at Home.**\
+`But if Trump thinks his threats to cancel TV licenses or his crass warnings of jailing and prison rape will intimidate journalists, he’s wrong.`\
+https://nytimes.com/2024/11/02/opinion/trump-democracy-china-authoritarian.html
 
-**The Connections Companion No. 511**\
-`Scroll down for hints and conversation about the puzzle for Nov. 3, 2024.`\
-https://nytimes.com/2024/11/02/crosswords/connections-companion-511.html
+**All the Demons Are Here**\
+`Trump goes out on a low note — not surprisingly.`\
+https://nytimes.com/2024/11/02/opinion/trump-madison-square-garden-private-life.html
 
-**Abortion Rights Issue Surfaces in Canada Before U.S. Election**\
-`The Canadian government proposed legislation this week to crack down on anti-abortion organizations that provide “dishonest counseling” to pregnant women.`\
-https://nytimes.com/2024/11/02/world/canada/abortion-rights-canada-election.html
+**Whatever Happens Next, Trump Has Already Won a Tragic Victory**\
+`This election has shown that Arab American and Muslim American lives are considered to be expendable.`\
+https://nytimes.com/2024/11/02/opinion/trump-harris-gaza-arab-americans.html
 
-**Ravens looking for a return to normalcy vs. Broncos following angst-ridden week**\
-`How will the defense respond coming off a disappointing outing in Week 8? And will Denver's blitz-heavy approach affect Lamar Jackson?`\
-https://nytimes.com/athletic/5891595/2024/11/02/ravens-broncos-preview-lamar-jackson/
+**The Cost of a Nuclear Arsenal**\
+`Responses to an article in the “At the Brink” series, raising doubts about a huge overhaul of U.S. nuclear capacity.`\
+https://nytimes.com/2024/11/02/opinion/nuclear-arsenal.html
 
