@@ -1,3 +1,27 @@
+**Trump Bashes Arab Americans. Here’s Why Some Like Him Anyway.**\
+`In a diverse enclave on Staten Island, some business owners say former President Donald J. Trump’s racist rhetoric and anti-Muslim policies are troubling but not disqualifying.`\
+https://nytimes.com/2024/11/02/nyregion/arab-americans-donald-trump.html
+
+**How a Pizzeria Owner With a Million Fans on Instagram Spends His Sundays**\
+`Frank Kabatas serves slices to his hungry customers at East Village Pizza while posting videos for his insatiable audience of 1.7 million followers on Instagram.`\
+https://nytimes.com/2024/11/02/nyregion/frank-kabatas-east-village-pizza.html
+
+**The G.O.P. Gained Ground in New York in 2022. Can Democrats Recover?**\
+`Democrats still hold supermajorities in both chambers of the State Legislature, but Republicans are hoping to keep the momentum from the 2022 midterms.`\
+https://nytimes.com/2024/11/02/nyregion/ny-legislature-candidates.html
+
+**They Don’t Care About the Marathon. They Just Want to Cross the Street.**\
+`In a city where grousing about nearly anything is fair game, some people see the race more as an inconvenience than as a festive occasion.`\
+https://nytimes.com/2024/11/02/nyregion/new-york-city-marathon-road-closures.html
+
+**Wordle Review No. 1,233**\
+`Scroll down for hints and conversation about the puzzle for Nov. 3, 2024.`\
+https://nytimes.com/2024/11/02/crosswords/wordle-review-1233.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/02/crosswords/spelling-bee-forum.html
+
 **League of Legends Worlds: Can Faker build his Michael Jordan-like esports legacy?**\
 `Faker is a household name in esports. The League of Legends World Championships in London is a chance for him to further build his resume.`\
 https://nytimes.com/athletic/5892398/2024/11/02/league-of-legends-worlds-faker-london/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5892271/2024/11/02/celtics-hornets-jayson-tatum-gra
 **Inside the deal to appoint Ruben Amorim as Manchester United head coach**\
 `Amorim was the only candidate to whom United spoke in replacing Erik ten Hag, with CEO Omar Berrada in particular pushing his candidacy`\
 https://nytimes.com/athletic/5891147/2024/11/02/amorim-manchester-united-coach-inside-deal/
-
-**Barcelona fan survey results: Confident of winning La Liga but undecided on Flick's style of play**\
-`More than 400 people responded to our questions about the Catalan club and their start to the season. Here is what they had to say`\
-https://nytimes.com/athletic/5890882/2024/11/02/barcelona-fan-survey-results/
-
-**Russo: Kirill Kaprizov sure helps, but maturing Wild might have something special brewing**\
-`Every team is going to have off nights, but the Wild have shown they have a foundation to rely on.`\
-https://nytimes.com/athletic/5892371/2024/11/02/kirill-kaprizov-minnesota-wild-special-team/
-
-**Life on a winless run in the Premier League: The pain, *that* Pacino speech and... pub trips**\
-`Three teams in the Premier League are yet to win this season. We asked those who have been on long winless runs what it's like... `\
-https://nytimes.com/athletic/5890326/2024/11/02/winless-run-premier-league-experience/
-
-**Why Premier League games with two-goal comebacks are more common than ever this season**\
-`A higher proportion of games than ever before have featured two-goal comebacks this season`\
-https://nytimes.com/athletic/5888122/2024/11/02/premier-league-comebacks-analysis/
-
-**Analysing Real Madrid's centre-back problem and players they could target**\
-`Militao and Rudiger are Madrid’s only two senior centre-backs and there seems agreement that the club should try to strengthen in January`\
-https://nytimes.com/athletic/5890719/2024/11/02/real-madrid-defence-problems-transfer-targets/
-
-**Timberwolves beat Nuggets in 119-116 comeback thriller**\
-`Minnesota's Anthony Edwards made a driving jump shot to take the lead with 25 seconds left in the game.`\
-https://nytimes.com/athletic/5892345/2024/11/02/timberwolves-nuggets-result-takeaways/
 
