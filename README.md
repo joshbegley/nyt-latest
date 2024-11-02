@@ -1,3 +1,7 @@
+**In Florida, weed might be more popular than abortion rights.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/in-florida-weed-might-be-more-popular-than-abortion-rights
+
 **Will Democracy Ever Not Be on the Ballot?**\
 `It is on Tuesday. It was four years ago — and eight years ago, too.`\
 https://nytimes.com/2024/11/02/opinion/trump-election-maga-republican-democracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/dining/giant-jam-bun-melissa-clark.html
 **Smith: F1's 'swear jar' is a needless distraction from what should really matter to FIA**\
 `The way the FIA has handled recent F1 swearing incidents ties into the issue over whether the sport is becoming over-regulated.`\
 https://nytimes.com/athletic/5892522/2024/11/02/f1-swearing-charles-leclerc-max-verstappen-fia/
-
-**5 reasons why the Hurricanes have exceeded expectations**\
-`Since an opening-night loss, the Hurricanes have won seven of eight games.`\
-https://nytimes.com/athletic/5892464/2024/11/02/carolina-hurricanes-start-season-capitals/
 
