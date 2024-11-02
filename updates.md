@@ -1,3 +1,7 @@
+**Corrections: Nov. 2, 2024**\
+`Corrections that appeared in print on Saturday, Nov. 2, 2024.`\
+https://nytimes.com/2024/11/01/pageoneplus/corrections-nov-2-2024.html
+
 **Buster Posey on new GM Zack Minasian: 'He gets what it means to be a San Francisco Giant'**\
 `Posey didn't initially consider Minasian when he compiled a list of candidates. On Friday, Posey introduced him as the Giants' next GM.`\
 https://nytimes.com/athletic/5892152/2024/11/01/sf-giants-gm-zack-minasian-buster-posey/
