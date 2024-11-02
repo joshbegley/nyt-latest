@@ -1,3 +1,7 @@
+**League of Legends Worlds: Can Faker build his Michael Jordan-like esports legacy?**\
+`Faker is a household name in esports. The League of Legends World Championships in London is a chance for him to further build his resume.`\
+https://nytimes.com/athletic/5892398/2024/11/02/league-of-legends-worlds-faker-london/
+
 **USF's Alex Golesh snubs FAU's Tom Herman with frosty handshake**\
 `"Whatever was said, I'm good,” Golesh said of the exchange with Herman after USF's 44-21 victory.`\
 https://nytimes.com/athletic/5892436/2024/11/02/usf-fau-alex-golesh-tom-herman-handshake/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5890719/2024/11/02/real-madrid-defence-problems-tra
 **Timberwolves beat Nuggets in 119-116 comeback thriller**\
 `Minnesota's Anthony Edwards made a driving jump shot to take the lead with 25 seconds left in the game.`\
 https://nytimes.com/athletic/5892345/2024/11/02/timberwolves-nuggets-result-takeaways/
-
-**LeBron James will be done tormenting the Raptors soon enough**\
-`At age 39, James delivered another obliteration of the Raptors. This time, some Toronto fans liked it.`\
-https://nytimes.com/athletic/5892279/2024/11/02/lebron-james-torments-toronto-raptors/
 
