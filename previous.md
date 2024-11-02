@@ -1,6 +1,6 @@
-**Marcelo leaves Fluminense after altercation with head coach**\
+**Marcelo leaves Fluminense after disagreement with head coach**\
 `Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
-https://nytimes.com/athletic/5892836/2024/11/02/marcelos-fluminense-contract-terminated/
+https://nytimes.com/athletic/5892836/2024/11/02/marcelo-fluminense-contract-terminated/
 
 **Browns place Pro Bowl LB Jeremiah Owusu-Koramoah on IR**\
 `Owusu-Koramoah leads the Browns in tackles (61) and is tied for second in the NFL with 10 tackles for loss.`\
@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5888197/2024/11/02/liverpool-brighton-result-premie
 `The Yankees can void Cole's opt-out by adding a 10th year and an additional $36 million to his current deal.`\
 https://nytimes.com/athletic/5892774/2024/11/02/yankees-gerrit-cole-free-agent-contract-mlb/
 
-**Patricia Johanson, Who Turned Grim Spaces Into Landscape Art, Dies at 84**\
+**Patricia Johanson, Who Turned Grim Outdoor Spaces Into Art, Dies at 84**\
 `A groundbreaking environmental artist, she transformed water treatment plants and fetid ponds into enticing natural artworks.`\
 https://nytimes.com/2024/11/02/arts/patricia-johanson-dead.html
 

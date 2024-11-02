@@ -1,3 +1,11 @@
+**Marcelo leaves Fluminense after disagreement with head coach**\
+`Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
+https://nytimes.com/athletic/5892836/2024/11/02/marcelo-fluminense-contract-terminated/
+
+**Patricia Johanson, Who Turned Grim Outdoor Spaces Into Art, Dies at 84**\
+`A groundbreaking environmental artist, she transformed water treatment plants and fetid ponds into enticing natural artworks.`\
+https://nytimes.com/2024/11/02/arts/patricia-johanson-dead.html
+
 **Marcelo leaves Fluminense after altercation with head coach**\
 `Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
 https://nytimes.com/athletic/5892836/2024/11/02/marcelos-fluminense-contract-terminated/
