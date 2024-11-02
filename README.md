@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5892159/2024/11/01/wild-lightning-kirill-kaprizov-f
 `By Lisa Lerer`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/levittown-pa-long-lines
 
-**A judge extends early-voting hours in a Pennsylvania county after finding it’s short thousands of ballots.**\
-`By Nick Corasaniti and Rebecca Davis O’Brien`\
+**Judge Finds Pennsylvania County Short of Ballots and Extends Early-Voting Hours**\
+`A state judge in Erie County, Pa., found that thousands of voters may not have received their ballots in time for the election on Tuesday, ordering the county to remedy the issue.`\
 https://nytimes.com/2024/11/01/us/politics/erie-county-voting-mail-ballots.html
 
 **Michigan lands 4-star CB Shamari Earls, flipping commit from Georgia**\
