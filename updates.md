@@ -1,3 +1,7 @@
+**League of Legends Worlds: Can Faker build his Michael Jordan-like esports legacy?**\
+`Faker is a household name in esports. The League of Legends World Championships in London is a chance for him to further build his resume.`\
+https://nytimes.com/athletic/5892398/2024/11/02/league-of-legends-worlds-faker-london/
+
 **USF's Alex Golesh snubs FAU's Tom Herman with frosty handshake**\
 `"Whatever was said, I'm good,” Golesh said of the exchange with Herman after USF's 44-21 victory.`\
 https://nytimes.com/athletic/5892436/2024/11/02/usf-fau-alex-golesh-tom-herman-handshake/
