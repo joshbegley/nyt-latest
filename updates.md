@@ -1,3 +1,7 @@
+**Lowetide: How 2 Oilers summer trade bets are showing well in AHL**\
+`Two summer trades are showing signs of delivering young talent that is quality and comes with a satisfactory cap hit.`\
+https://nytimes.com/athletic/5892769/2024/11/02/edmonton-oilers-ahl-savoie-jarventie/
+
 **Florida QB DJ Lagway carted off with injury vs. Georgia**\
 `Florida freshman DJ Lagway, a five-star recruit, left Saturday's game against Georgia with an injury and was replaced by Aidan Warner.`\
 https://nytimes.com/athletic/5893339/2024/11/02/dj-lagway-injury-florida-georgia/
