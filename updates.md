@@ -1,3 +1,7 @@
+**Play calls overheard in helmet comms audio obtained from TTU-TCU game**\
+`TTU-TCU helmet comms audio shows how easy it is to intercept the signal. Why are there issues in college football with the tech?`\
+https://nytimes.com/athletic/5892605/2024/11/02/college-football-helment-communication-big-12-texas-tech/
+
 **Giant! Jam! Bun!**\
 `What’s better than a Melissa Clark scone? A Melissa Clark scone that’s supersize, swirled with jam, lightly glazed and showered with citrus zest.`\
 https://nytimes.com/2024/11/02/dining/giant-jam-bun-melissa-clark.html

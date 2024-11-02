@@ -1,3 +1,7 @@
+**Play calls overheard in helmet comms audio obtained from TTU-TCU game**\
+`TTU-TCU helmet comms audio shows how easy it is to intercept the signal. Why are there issues in college football with the tech?`\
+https://nytimes.com/athletic/5892605/2024/11/02/college-football-helment-communication-big-12-texas-tech/
+
 **Giant! Jam! Bun!**\
 `What’s better than a Melissa Clark scone? A Melissa Clark scone that’s supersize, swirled with jam, lightly glazed and showered with citrus zest.`\
 https://nytimes.com/2024/11/02/dining/giant-jam-bun-melissa-clark.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5883846/2024/11/02/fantasy-football-rankings-week-9
 **Berkshire Continues Retreat From Stocks**\
 `The conglomerate reported on Saturday that it had cut its holdings in Apple and Bank of America and increased its cash to a record high in the third quarter.`\
 https://nytimes.com/2024/11/02/business/berkshire-hathaway-warren-buffett.html
-
-**Raptors' Vince Carter to be first in franchise to have jersey retired**\
-`Carter averaged 23.4 points, 5.2 rebounds and 3.9 assists per game in 403 games as a Raptor.`\
-https://nytimes.com/athletic/5890917/2024/11/02/vince-carter-nba-jersey-retirement-raptors/
 
