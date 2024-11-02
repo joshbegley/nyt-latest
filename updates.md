@@ -1,3 +1,7 @@
+**Jaylen Brown, Celtics furious after Grant Williams' hard foul on Jayson Tatum**\
+`Celtics players weren’t buying Williams’ claim that the foul wasn’t intentional. Joe Mazzulla said he appreciated how Brown defended Tatum.`\
+https://nytimes.com/athletic/5892271/2024/11/02/celtics-hornets-jayson-tatum-grant-williams-ejection/
+
 **Russo: Kirill Kaprizov sure helps, but maturing Wild might have something special brewing**\
 `Every team is going to have off nights, but the Wild have shown they have a foundation to rely on.`\
 https://nytimes.com/athletic/5892371/2024/11/02/kirill-kaprizov-minnesota-wild-special-team/
