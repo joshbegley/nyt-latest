@@ -1,3 +1,15 @@
+**Marcelo leaves Fluminense after altercation with head coach**\
+`Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
+https://nytimes.com/athletic/5892836/2024/11/02/marcelos-fluminense-contract-terminated/
+
+**Browns place Pro Bowl LB Jeremiah Owusu-Koramoah on IR**\
+`Owusu-Koramoah leads the Browns in tackles (61) and is tied for second in the NFL with 10 tackles for loss.`\
+https://nytimes.com/athletic/5892709/2024/11/02/browns-jeremian-owusu-koramoan-injured-reserve/
+
+**Patricia Johanson, Who Turned Grim Spaces Into Landscape Art, Dies at 84**\
+`A groundbreaking environmental artist, she transformed water treatment plants and fetid ponds into enticing natural artworks.`\
+https://nytimes.com/2024/11/02/arts/patricia-johanson-dead.html
+
 **If there's a dynasty in NWSL, it's the Portland Thorns. What's next?**\
 `The Thorns have enjoyed success like no other in NWSL but what will 2025 bring - without Christine Sinclair?`\
 https://nytimes.com/athletic/5892479/2024/11/02/portland-thorns-nwsl-dynasty-sinclair/
