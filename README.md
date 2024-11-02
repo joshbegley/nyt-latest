@@ -1,4 +1,4 @@
-**LeBron James will be done tormenting the Toronto Raptors soon enough**\
+**LeBron James will be done tormenting the Raptors soon enough**\
 `At age 39, James delivered another obliteration of the Raptors. This time, some Toronto fans liked it.`\
 https://nytimes.com/athletic/5892279/2024/11/02/lebron-james-torments-toronto-raptors/
 
