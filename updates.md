@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
 `\
 https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
 
+**Blue Jackets crumble under Jets' withering pressure**\
+`The structured, smart game the Blue Jackets have flashed this season was nonexistent versus the Jets. 
+`\
+https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
+
 **13 insights fantasy football managers need to know ahead of Week 9**\
 `Theo Gremminger puts rookie Bo Nix's rise to fantasy football prominence in perspective as he shares 13 insights ahead of Week 9.`\
 https://nytimes.com/athletic/5891172/2024/11/02/13-insights-fantasy-football-week-9/
