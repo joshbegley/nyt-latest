@@ -1,3 +1,11 @@
+**What I’m seeing from the Blues through October: Inconsistency in abundance**\
+`For the Blues, the additions of Philip Broberg and Dylan Holloway bring some hope for the future.`\
+https://nytimes.com/athletic/5890886/2024/11/02/blues-nhl-season-jordan-kyrou/
+
+**Fears of Civil Unrest Stalk the Markets**\
+`Wall Street advisers say investors are increasingly anxious about the possibility of election-related violence.`\
+https://nytimes.com/2024/11/02/business/dealbook/fears-of-civil-unrest-stalk-the-markets.html
+
 **Kemi Badenoch Becomes First Black Woman to Lead Britain’s Conservative Party**\
 `Ms. Badenoch is expected to move the party, now in the opposition, further to the right.`\
 https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html

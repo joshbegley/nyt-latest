@@ -1,3 +1,11 @@
+**What I’m seeing from the Blues through October: Inconsistency in abundance**\
+`For the Blues, the additions of Philip Broberg and Dylan Holloway bring some hope for the future.`\
+https://nytimes.com/athletic/5890886/2024/11/02/blues-nhl-season-jordan-kyrou/
+
+**Fears of Civil Unrest Stalk the Markets**\
+`Wall Street advisers say investors are increasingly anxious about the possibility of election-related violence.`\
+https://nytimes.com/2024/11/02/business/dealbook/fears-of-civil-unrest-stalk-the-markets.html
+
 **Molly on 2 Alternatives to Certain Current Events**\
 `An underground party memoir; an argument for nonhuman life.`\
 https://nytimes.com/2024/11/02/books/read-like-wind-recommendations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5891648/2024/11/02/nhl-2024-25-regular-season-conce
 **Had Enough of the Election? Take Solace in the Marathon.**\
 `The marathon is glorious in part because it represents an ideal of civic life: people striving to accomplish their goals while seeking connection with others.`\
 https://nytimes.com/2024/11/02/opinion/nyc-marathon-running.html
-
-**If the Choice in 2024 Were So Obvious, the Election Wouldn’t Be So Close**\
-`Why opposing Trump is not so completely obvious, obligatory or a matter of simple common sense.`\
-https://nytimes.com/2024/11/02/opinion/trump-harris-election.html
-
-**I’ve Covered Authoritarians Abroad. Now I Fear One at Home.**\
-`But if Trump thinks his threats to cancel TV licenses or his crass warnings of jailing and prison rape will intimidate journalists, he’s wrong.`\
-https://nytimes.com/2024/11/02/opinion/trump-democracy-china-authoritarian.html
 
