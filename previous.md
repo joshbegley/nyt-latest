@@ -1,3 +1,7 @@
+**Molly on 2 Alternatives to Certain Current Events**\
+`An underground party memoir; an argument for nonhuman life.`\
+https://nytimes.com/2024/11/02/books/read-like-wind-recommendations.html
+
 **Kemi Badenoch Vows to Make U.K.’s Tories More Conservative**\
 `Elected as the new leader of Britain’s oldest party, Ms. Badenoch has not hesitated to wade into thorny issues like transgender rights or Britain’s colonial legacy.`\
 https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/opinion/trump-harris-election.html
 **I’ve Covered Authoritarians Abroad. Now I Fear One at Home.**\
 `But if Trump thinks his threats to cancel TV licenses or his crass warnings of jailing and prison rape will intimidate journalists, he’s wrong.`\
 https://nytimes.com/2024/11/02/opinion/trump-democracy-china-authoritarian.html
-
-**All the Demons Are Here**\
-`Trump goes out on a low note — not surprisingly.`\
-https://nytimes.com/2024/11/02/opinion/trump-madison-square-garden-private-life.html
 
