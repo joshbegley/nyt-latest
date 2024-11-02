@@ -1,3 +1,11 @@
+**Here’s the latest on the storm.**\
+`By John Keefe`\
+https://nytimes.com/live/2024/11/02/weather/tropical-storm-patty-hurricane/heres-the-latest-on-the-storm
+
+**Patty Forms as a Subtropical Storm Near the Azores**\
+`The system is expected to weaken before approaching Europe next week.`\
+https://nytimes.com/live/2024/11/02/weather/tropical-storm-patty-hurricane
+
 **Buncombe County, N.C.**\
 `By Christina Morales`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/buncombe-county-nc
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/02/world/europe/germany-coalition-government.html
 **As Colts turn to Joe Flacco, could GM Chris Ballard be a buyer at NFL trade deadline?**\
 `By benching Anthony Richardson, the Colts have made it clear their priority is winning now. So, will Ballard get aggressive at the deadline?`\
 https://nytimes.com/athletic/5892136/2024/11/02/colts-nfl-trade-deadline-joe-flacco-chris-ballard/
-
-**A sleeper Senate race tightens in Nebraska as an independent gains.**\
-`By Maya C. Miller`\
-https://nytimes.com/live/2024/11/02/us/trump-harris-election/a-sleeper-senate-race-tightens-in-nebraska-as-an-independent-gains
-
-**The Briefing: Newcastle 1 Arsenal 0: More St James' Park dismay for Arteta as Willock impresses for hosts**\
-`Analysis of the key talking points from Saturday's Premier League game at St James' Park`\
-https://nytimes.com/athletic/5888195/2024/11/02/newcastle-arsenal-result-analysis/
 
