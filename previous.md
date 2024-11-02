@@ -1,3 +1,7 @@
+**Cowboys' Elliott won't travel with team to Atlanta for Sunday matchup**\
+`Elliott is sidelined for disciplinary reasons, per a league source.`\
+https://nytimes.com/athletic/5893323/2024/11/02/ezekiel-elliott-inactive-cowboys/
+
 **Lowetide: How 2 Oilers summer trade bets are showing well in AHL**\
 `Two summer trades are showing signs of delivering young talent that is quality and comes with a satisfactory cap hit.`\
 https://nytimes.com/athletic/5892769/2024/11/02/edmonton-oilers-ahl-savoie-jarventie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893042/2024/11/02/f1-brazil-gp-qualifying-postpone
 **Harris and Trump Zero In on the Economy as They Race Around the South**\
 `The candidates outlined vastly different messages in Georgia and North Carolina, with Kamala Harris promising to bring down costs and Donald J. Trump exaggerating how bad the recent jobs report was.`\
 https://nytimes.com/2024/11/02/us/politics/harris-trump-georgia-north-carolina-virginia.html
-
-**'I can be the best player in the world': Aryna Sabalenka aims to crown the season of her life**\
-`12 months ago, Aryna Sabalenka said she was "disrespected" by the WTA Tour. In Riyadh, she stands to end the year atop it.`\
-https://nytimes.com/athletic/5892488/2024/11/02/aryna-sabalenka-number-one-wta-finals/
 

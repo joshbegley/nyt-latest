@@ -1,3 +1,7 @@
+**Cowboys' Elliott won't travel with team to Atlanta for Sunday matchup**\
+`Elliott is sidelined for disciplinary reasons, per a league source.`\
+https://nytimes.com/athletic/5893323/2024/11/02/ezekiel-elliott-inactive-cowboys/
+
 **Lowetide: How 2 Oilers summer trade bets are showing well in AHL**\
 `Two summer trades are showing signs of delivering young talent that is quality and comes with a satisfactory cap hit.`\
 https://nytimes.com/athletic/5892769/2024/11/02/edmonton-oilers-ahl-savoie-jarventie/
