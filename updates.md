@@ -1,3 +1,7 @@
+**Trump’s Microphone Trouble in Milwaukee Leaves Him ‘Seething’**\
+`After rally goers complained that they could not hear him, the former president asked, “Do you want to see me knock the hell out of people backstage?”`\
+https://nytimes.com/2024/11/02/us/politics/trump-microphone-milwaukee-rally.html
+
 **In Florida, weed might be more popular than abortion rights.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/in-florida-weed-might-be-more-popular-than-abortion-rights
