@@ -1,3 +1,7 @@
+**Uncertainty Reigns in Nevada With Rise of Nonpartisan Voters**\
+`With early voting coming to a close, Donald Trump and Kamala Harris must now ensure their respective bases show up on Election Day, while chasing down those whose choice is less clear.`\
+https://nytimes.com/2024/11/01/us/politics/nonpartisan-voters-nevada.html
+
 **As Election Nears, Republicans Blame Child’s Rape on Immigration Crisis**\
 `Wilson Castillo Diaz was arrested in New York in connection with the rape of a 5-year-old girl. On Friday, local Republicans blamed Democratic immigration policies.`\
 https://nytimes.com/2024/11/01/nyregion/5-year-old-raped-long-island-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/us/montana-camper-suspect-charged.html
 **On the issues: Where Harris and Trump stand on education.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-education
-
-**Teoscar Hernández says returning to Dodgers will be a 'priority'**\
-`Hernández hopes he and the Dodgers can agree to a contract as soon as possible. "Hopefully tomorrow," he said. "I want us to be here."`\
-https://nytimes.com/athletic/5891990/2024/11/01/dodgers-teoscar-hernandez-free-agent/
 
