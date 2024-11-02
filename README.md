@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5892600/2024/11/02/ruben-dias-injury-man-city/
 `The Republican candidate for U.S. Senate, who has told conflicting stories about the origins of a bullet in his arm, said there are no Montana hospital records to explain his account.`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/tim-sheehy-says-medical-records-do-not-exist-to-prove-gunshot-story
 
-**Jason Kelce slams Penn State fan's phone on ground after homophobic slur about Travis Kelce, Taylor Swift**\
+**Jason Kelce slams fan's phone on ground after hearing slur about Travis Kelce dating Taylor Swift**\
 `Travis Kelce, the Kansas City Chiefs tight end, started dating pop sensation Taylor Swift in 2023.`\
 https://nytimes.com/athletic/5893037/2024/11/02/jason-kelce-taylor-swift-fan-taunt-phone/
 
