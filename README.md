@@ -1,3 +1,7 @@
+**Ravens looking for a return to normalcy vs. Broncos following angst-ridden week**\
+`How will the defense respond coming off a disappointing outing in Week 8? And will Denver's blitz-heavy approach affect Lamar Jackson?`\
+https://nytimes.com/athletic/5891595/2024/11/02/ravens-broncos-preview-lamar-jackson/
+
 **Peter Singer Wants to Shatter Your Moral Complacency**\
 `The controversial philosopher discusses societal taboos, Thanksgiving turkeys and whether anyone is doing enough to make the world a better place.`\
 https://nytimes.com/2024/11/02/magazine/peter-singer-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/science/scent-exhibits-museum.html
 **How a Trump Win Would Upend Major Climate Court Fights**\
 `A second Trump administration could stop defending the E.P.A. against lawsuits attacking its climate policies. Other effects might be more far-reaching.`\
 https://nytimes.com/2024/11/02/climate/trump-climate-courts-lawsuits.html
-
-**Israel’s Peace Talks in Gaza and Lebanon: What to Know**\
-`Complex negotiations involving several players are proceeding on two separate but related tracks.`\
-https://nytimes.com/2024/11/02/world/middleeast/gaza-lebanon-peace-talks.html
 
