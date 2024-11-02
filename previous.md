@@ -1,40 +1,40 @@
-**Donald Trump’s 2024 in Pictures**\
-`A historic conviction. A sudden new opponent. Gunfire in Butler. Donald Trump’s year was unlike that of any presidential candidate in political history.`\
-https://nytimes.com/2024/11/02/us/politics/donald-trumps-2024-in-pictures.html
+**Why Are Democrats Having Such a Hard Time Beating Trump?**\
+`The national political environment just isn’t as conducive to a Harris victory as many might imagine.`\
+https://nytimes.com/2024/11/02/upshot/democrats-trump-election.html
 
-**A Whisperer to the Stars on the Middle East Conflict**\
-`Many in Hollywood have struggled to navigate how to talk about their support for Israel on social media. Some of them have turned to Hen Mazzig for advice.`\
-https://nytimes.com/2024/11/02/business/media/hen-mazzig-hollywood-israel-gaza.html
+**A Way Out of Mexico’s Constitutional Crisis? One Idea for Compromise Emerges.**\
+`A lone voice on Mexico’s Supreme Court has proposed a way to ease the political tensions that have arisen over a judicial overhaul. But big obstacles could prevent any deal.`\
+https://nytimes.com/2024/11/02/us/mexico-supreme-court-judicial-overhaul.html
 
-**Russia Showers Cash on Men Enlisting in Ukraine War, Bringing Prosperity to Some Towns**\
-`With fewer men willing to fight, Russia is focusing on cash incentives for those who sign up, seeking to avoid an unpopular draft while still increasing the ranks of soldiers.`\
-https://nytimes.com/2024/11/02/world/europe/russia-ukraine-war-draft.html
+**‘Cesspools,’ ‘Hellholes’ and ‘Beautiful Places’: How Trump Describes the U.S.**\
+`See how Donald J. Trump’s penchant for criticism extends to a topic that’s usually sacrosanct for candidates — the cities and states in the nation he aims to lead.`\
+https://nytimes.com/interactive/2024/11/02/us/politics/trump-places-quotes.html
 
-**Professors Are Uniquely Powerful. That May Be Changing.**\
-`Faculty members are used to sharing power with presidents and trustees to run universities. But some presidents and lawmakers have made moves to reduce their say.`\
-https://nytimes.com/2024/11/02/us/faculty-power-shared-governance-university-presidents.html
+**Young African Voters Sour on the Parties That Ushered in Liberation**\
+`Political parties that have governed for decades since African countries overthrew colonial rulers are now being challenged by frustrated young voters.`\
+https://nytimes.com/2024/11/02/world/africa/botswana-election-africa-youth.html
 
-**The Coming of the ‘Messiah’: How Handel’s Masterpiece Was Born**\
-`John Adams reviews “Every Valley,” Charles King’s new book about the artistic, social and political forces surrounding one of the greatest pieces of music ever created.`\
-https://nytimes.com/2024/11/02/books/review/every-valley-handel-messiah-charles-king.html
+**Trump Is Betting Big on Musk’s Swing-State Moonshot**\
+`The candidate is leaning on an unusual canvassing effort funded by Elon Musk. If successful, it could usher in a new era when billionaires dominate ground campaigns.`\
+https://nytimes.com/2024/11/02/us/elections/elon-musk-super-pac.html
 
-**Kay Koplovitz Wants to See More Entrepreneurs Who Look Like Her**\
-`Once the most powerful woman in television, the founder of Springboard has spent the past 20 years identifying and funding female-led start-ups.`\
-https://nytimes.com/2024/11/02/business/kay-koplovitz-springboard-usa-networks.html
+**A Daughter of Immigrants Adopts a Tough Border Message in a Close House Race**\
+`Representative Yadira Caraveo of Colorado, whose parents entered the country illegally from Mexico, has become one of several Democrats to pivot to a pro-enforcement message.`\
+https://nytimes.com/2024/11/02/us/a-daughter-of-immigrants-adopts-a-tough-border-message-in-a-close-house-race.html
 
-**Trump Bashes Arab Americans. Here’s Why Some Like Him Anyway.**\
-`In a diverse enclave on Staten Island, some business owners say former President Donald J. Trump’s racist rhetoric and anti-Muslim policies are troubling but not disqualifying.`\
-https://nytimes.com/2024/11/02/nyregion/arab-americans-donald-trump.html
+**Exhale Through the Gift Shop**\
+`Museums are adding scents as another tool for communicating information about science and other subjects in their exhibits.`\
+https://nytimes.com/2024/11/02/science/scent-exhibits-museum.html
 
-**How a Pizzeria Owner With a Million Fans on Instagram Spends His Sundays**\
-`Frank Kabatas serves slices to his hungry customers at East Village Pizza while posting videos for his insatiable audience of 1.7 million followers on Instagram.`\
-https://nytimes.com/2024/11/02/nyregion/frank-kabatas-east-village-pizza.html
+**How a Trump Win Would Upend Major Climate Court Fights**\
+`A second Trump administration could stop defending the E.P.A. against lawsuits attacking its climate policies. Other effects might be more far-reaching.`\
+https://nytimes.com/2024/11/02/climate/trump-climate-courts-lawsuits.html
 
-**The G.O.P. Gained Ground in New York in 2022. Can Democrats Recover?**\
-`Democrats still hold supermajorities in both chambers of the State Legislature, but Republicans are hoping to keep the momentum from the 2022 midterms.`\
-https://nytimes.com/2024/11/02/nyregion/ny-legislature-candidates.html
+**Israel’s Peace Talks in Gaza and Lebanon: What to Know**\
+`Complex negotiations involving several players are proceeding on two separate but related tracks.`\
+https://nytimes.com/2024/11/02/world/middleeast/gaza-lebanon-peace-talks.html
 
-**They Don’t Care About the Marathon. They Just Want to Cross the Street.**\
-`In a city where grousing about nearly anything is fair game, some people see the race more as an inconvenience than as a festive occasion.`\
-https://nytimes.com/2024/11/02/nyregion/new-york-city-marathon-road-closures.html
+**Trump, Preparing to Challenge the Results, Puts His 2020 Playbook Into Action**\
+`Step by step, Donald J. Trump and his allies are following the strategies that caused chaos four years ago. Election officials say they are ready this time.`\
+https://nytimes.com/2024/11/02/us/politics/donald-trump-kalama-harris-campaign.html
 
