@@ -1,3 +1,7 @@
+**In Politics, Pro Athletes (and Owners) Are Just Like the Rest of Us: Divided**\
+`A pro-Harris video from LeBron James. A pro-Trump hat on Nick Bosa. With Election Day near, more have been showing their preference.`\
+https://nytimes.com/2024/11/02/business/harris-trump-pro-sports-political-support.html
+
 **What I’m seeing from the Blues through October: Inconsistency in abundance**\
 `For the Blues, the additions of Philip Broberg and Dylan Holloway bring some hope for the future.`\
 https://nytimes.com/athletic/5890886/2024/11/02/blues-nhl-season-jordan-kyrou/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/opinion/humorless-feminists-trump.html
 **Each NHL team’s biggest concern a month into the 2024-25 season**\
 `From goaltending and lack of offense to injuries and more, here’s what The Athletic's NHL staff said is each team's biggest concern.`\
 https://nytimes.com/athletic/5891648/2024/11/02/nhl-2024-25-regular-season-concerns/
-
-**Had Enough of the Election? Take Solace in the Marathon.**\
-`The marathon is glorious in part because it represents an ideal of civic life: people striving to accomplish their goals while seeking connection with others.`\
-https://nytimes.com/2024/11/02/opinion/nyc-marathon-running.html
 
