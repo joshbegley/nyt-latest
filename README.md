@@ -1,3 +1,8 @@
+**Blue Jackets crumble under Jets' withering pressure in loss**\
+`The structured, smart game the Blue Jackets flashed so far this season was nonexistent vs. the Jets. 
+`\
+https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
+
 **How Igor Shesterkin cleaned up 'the stink' of sloppy Rangers: 3 takeaways**\
 `With 40 saves, Shesterkin stole the show once again in the Rangers' 2-1 win over the Senators.`\
 https://nytimes.com/athletic/5892249/2024/11/01/rangers-senators-igor-shesterkin/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/11/01/crosswords/daily-puzzle-2024-11-02.html
 **Corrections: Nov. 2, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 2, 2024.`\
 https://nytimes.com/2024/11/01/pageoneplus/corrections-nov-2-2024.html
-
-**Judge Allows Unusual G.O.P. Strategy to Pump Money Into Senate Races**\
-`Democrats had claimed that the advertising strategy may have violated federal election laws establishing strict limits on spending by national party committees to aid individual candidates.`\
-https://nytimes.com/2024/11/01/us/politics/senate-republicans-ads-money.html
 
