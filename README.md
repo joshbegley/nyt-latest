@@ -1,3 +1,7 @@
+**When Your Dating Pool Includes Elves and Mages**\
+`Dragon Age: The Veilguard is the latest video game to lean into relationships between fellow adventurers that grow into something more.`\
+https://nytimes.com/2024/11/02/arts/dragon-age-the-veilguard-bioware-romance.html
+
 **Dias out until after international break, Stones to be assessed**\
 `Manchester City defender Ruben Dias has been ruled out until after the upcoming international break after missing Saturday&#8217;s defeat to Bournemouth through injury.`\
 https://nytimes.com/athletic/5892600/2024/11/02/ruben-dias-injury-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892958/2024/11/02/patriots-drake-maye-concussion-i
 **Investigation of MrBeast’s Company Finds No Evidence of Sexual Misconduct**\
 `An independent law firm led the investigation after allegations of sexual misconduct surfaced against Ava Tyson, a collaborator with the YouTube star MrBeast.`\
 https://nytimes.com/2024/11/02/arts/mrbeast-ava-tyson-investigation.html
-
-**Cubs' Cody Bellinger picks up $27.5 million player option for 2025**\
-`Chicago Cubs outfielder Cody Bellinger has picked up his $27.`\
-https://nytimes.com/athletic/5892843/2024/11/02/cubs-cody-bellinger-contract-mlb-news/
 
