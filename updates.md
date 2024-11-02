@@ -1,3 +1,7 @@
+**Pentagon Will Send Additional Fighter Jets and Destroyers to Middle East**\
+`The deployment comes as concern grows that Iran may soon retaliate for Israeli strikes on its territory last month.`\
+https://nytimes.com/2024/11/02/world/middleeast/israel-lebanon-iran-hezbollah.html
+
 **Taking Time**\
 `Daylight saving time ends tomorrow. How will you make use of the extra hour?`\
 https://nytimes.com/2024/11/02/briefing/daylight-saving-time.html
