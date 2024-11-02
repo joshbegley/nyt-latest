@@ -1,3 +1,7 @@
+**Takeaways from Georgia win vs. Florida: Is Bulldogs' resilience enough? What now for Gators?**\
+`No. 2 Georgia pulled away late for a 34-20 win against rival Florida, which lost quarterback DJ Lagway to a hamstring injury.`\
+https://nytimes.com/athletic/5893517/2024/11/02/florida-georgia-football-score-recap/
+
 **Robert F. Kennedy Jr. Says Trump Will Seek to Remove Fluoride From Drinking Water**\
 `Donald J. Trump has said he would give Mr. Kennedy, a former rival who has long promoted unproven medical theories, a prominent health role if he wins.`\
 https://nytimes.com/2024/11/02/us/politics/robert-f-kennedy-jr-trump-fluoride-water.html
