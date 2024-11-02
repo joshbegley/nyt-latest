@@ -1,3 +1,11 @@
+**Split on Economic Policy Puts Germany’s Government at Risk of Collapse**\
+`A breakup of the divided and unpopular coalition well before elections set for next September could leave the country directionless at a critical time for Europe.`\
+https://nytimes.com/2024/11/02/world/europe/germany-coalition-government.html
+
+**As Colts turn to Joe Flacco, could GM Chris Ballard be a buyer at NFL trade deadline?**\
+`By benching Anthony Richardson, the Colts have made it clear their priority is winning now. So, will Ballard get aggressive at the deadline?`\
+https://nytimes.com/athletic/5892136/2024/11/02/colts-nfl-trade-deadline-joe-flacco-chris-ballard/
+
 **A sleeper Senate race tightens in Nebraska as an independent gains.**\
 `By Maya C. Miller`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/a-sleeper-senate-race-tightens-in-nebraska-as-an-independent-gains
