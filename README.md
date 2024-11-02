@@ -1,3 +1,7 @@
+**Michigan lands 4-star CB Shamari Earls, flipping commit from Georgia**\
+`At 6-foot-2 and 180 pounds, Earls profiles as an outside corner who could help fill the shoes of Will Johnson if Johnson goes to the NFL.`\
+https://nytimes.com/athletic/5892238/2024/11/01/michigan-recruiting-shamari-earls-flip-georgia/
+
 **Federal Jury Finds Ex-Officer Guilty of Violating Breonna Taylor’s Rights**\
 `The former detective fired 10 shots through Ms. Taylor’s apartment in a raid that set off a wave of protests across the country.`\
 https://nytimes.com/2024/11/01/us/breonna-taylor-brett-hankison-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/us/politics/nonpartisan-voters-nevada.html
 **As Election Nears, Republicans Blame Child’s Rape on Immigration Crisis**\
 `Wilson Castillo Diaz was arrested in New York in connection with the rape of a 5-year-old girl. On Friday, local Republicans blamed Democratic immigration policies.`\
 https://nytimes.com/2024/11/01/nyregion/5-year-old-raped-long-island-immigration.html
-
-**Nicolle Wallace Calls on Her Former Boss, George W. Bush, to Denounce Trump**\
-`Ms. Wallace, who served as the communications director in the Bush White House, made the appeal on her MSNBC program.`\
-https://nytimes.com/2024/11/01/us/politics/george-w-bush-nicole-wallace-2024-election.html
 
