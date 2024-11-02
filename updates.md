@@ -1,3 +1,7 @@
+**Kemi Badenoch Becomes First Black Woman to Lead Britain’s Conservative Party**\
+`Ms. Badenoch is expected to move the party, now in the opposition, further to the right.`\
+https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html
+
 **Molly on 2 Alternatives to Certain Current Events**\
 `An underground party memoir; an argument for nonhuman life.`\
 https://nytimes.com/2024/11/02/books/read-like-wind-recommendations.html
