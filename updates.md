@@ -1,3 +1,19 @@
+**Giant! Jam! Bun!**\
+`What’s better than a Melissa Clark scone? A Melissa Clark scone that’s supersize, swirled with jam, lightly glazed and showered with citrus zest.`\
+https://nytimes.com/2024/11/02/dining/giant-jam-bun-melissa-clark.html
+
+**Smith: F1's 'swear jar' is a needless distraction from what should really matter to FIA**\
+`The way the FIA has handled recent F1 swearing incidents ties into the issue over whether the sport is becoming over-regulated.`\
+https://nytimes.com/athletic/5892522/2024/11/02/f1-swearing-charles-leclerc-max-verstappen-fia/
+
+**5 reasons why the Hurricanes have exceeded expectations**\
+`Since an opening-night loss, the Hurricanes have won seven of eight games.`\
+https://nytimes.com/athletic/5892464/2024/11/02/carolina-hurricanes-start-season-capitals/
+
+**Fantasy football rankings Week 9: Sleepers, projections, starts, Patrick Mahomes, Josh Downs**\
+`Jake Ciely offers up his Week 9 fantasy football rankings, and likes Patrick Mahomes to finally have a big day versus a porous Bucs defense.`\
+https://nytimes.com/athletic/5883846/2024/11/02/fantasy-football-rankings-week-9-sleepers-projections-starts-patrick-mahomes-josh-downs/
+
 **Split on Economic Policy Puts Germany’s Government at Risk of Collapse**\
 `A breakup of the divided and unpopular coalition well before elections set for next September could leave the country directionless at a critical time for Europe.`\
 https://nytimes.com/2024/11/02/world/europe/germany-coalition-government.html
