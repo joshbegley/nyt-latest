@@ -1,3 +1,7 @@
+**Peter Singer Wants to Shatter Your Moral Complacency**\
+`The controversial philosopher discusses societal taboos, Thanksgiving turkeys and whether anyone is doing enough to make the world a better place.`\
+https://nytimes.com/2024/11/02/magazine/peter-singer-interview.html
+
 **Why Are Democrats Having Such a Hard Time Beating Trump?**\
 `The national political environment just isn’t as conducive to a Harris victory as many might imagine.`\
 https://nytimes.com/2024/11/02/upshot/democrats-trump-election.html

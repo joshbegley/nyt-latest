@@ -1,3 +1,7 @@
+**Peter Singer Wants to Shatter Your Moral Complacency**\
+`The controversial philosopher discusses societal taboos, Thanksgiving turkeys and whether anyone is doing enough to make the world a better place.`\
+https://nytimes.com/2024/11/02/magazine/peter-singer-interview.html
+
 **Why Are Democrats Having Such a Hard Time Beating Trump?**\
 `The national political environment just isn’t as conducive to a Harris victory as many might imagine.`\
 https://nytimes.com/2024/11/02/upshot/democrats-trump-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/climate/trump-climate-courts-lawsuits.html
 **Israel’s Peace Talks in Gaza and Lebanon: What to Know**\
 `Complex negotiations involving several players are proceeding on two separate but related tracks.`\
 https://nytimes.com/2024/11/02/world/middleeast/gaza-lebanon-peace-talks.html
-
-**Trump, Preparing to Challenge the Results, Puts His 2020 Playbook Into Action**\
-`Step by step, Donald J. Trump and his allies are following the strategies that caused chaos four years ago. Election officials say they are ready this time.`\
-https://nytimes.com/2024/11/02/us/politics/donald-trump-kalama-harris-campaign.html
 
