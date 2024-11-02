@@ -1,6 +1,6 @@
-**Marcelo leaves Fluminense after altercation with head coach**\
+**Marcelo leaves Fluminense after disagreement with head coach**\
 `Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
-https://nytimes.com/athletic/5892836/2024/11/02/marcelos-fluminense-contract-terminated/
+https://nytimes.com/athletic/5892836/2024/11/02/marcelo-fluminense-contract-terminated/
 
 **Browns place Pro Bowl LB Jeremiah Owusu-Koramoah on IR**\
 `Owusu-Koramoah leads the Browns in tackles (61) and is tied for second in the NFL with 10 tackles for loss.`\
