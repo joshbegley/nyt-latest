@@ -1,3 +1,7 @@
+**How Kirill Kaprizov's dominance, Filip Gustavsson's bounce back fueled Wild win: 3 takeaways**\
+`The Wild returned home for the first time since Oct. 12 and improved to 15-3 all time at home against the Lightning with a 5-3 victory.`\
+https://nytimes.com/athletic/5892159/2024/11/01/wild-lightning-kirill-kaprizov-filip-gustavsson/
+
 **For one mother and son, the 8-hour wait to vote in Bucks County, Pa., was worth it.**\
 `By Lisa Lerer`\
 https://nytimes.com/live/2024/11/01/us/harris-trump-election/levittown-pa-long-lines
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/us/politics/senate-republicans-ads-money.html
 **Kansas lands five-star Darryn Peterson, first top-five commit since 2016**\
 `Peterson, who plays for Prolific Prep in Napa, Calif., chose Kansas over Kansas State, USC and Ohio State.`\
 https://nytimes.com/athletic/5891678/2024/11/01/darryn-peterson-kansas-basketball-recruiting/
-
-**Buster Posey on new GM Zack Minasian: 'He gets what it means to be a San Francisco Giant'**\
-`Posey didn't initially consider Minasian when he compiled a list of candidates. On Friday, Posey introduced him as the Giants' next GM.`\
-https://nytimes.com/athletic/5892152/2024/11/01/sf-giants-gm-zack-minasian-buster-posey/
 
