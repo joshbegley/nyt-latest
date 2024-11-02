@@ -1,7 +1,3 @@
-**LeBron James will be done tormenting the Toronto Raptors soon enough**\
-`At age 39, James delivered another obliteration of the Raptors. This time, some Toronto fans liked it.`\
-https://nytimes.com/athletic/5892279/2024/11/02/lebron-james-torments-toronto-raptors/
-
 **How Sabres repeated same mistakes in avoidable loss to Islanders: 3 takeaways**\
 `Buffalo once again missed assignments on defense, had sloppy puck management and an inability to win battles for loose pucks.`\
 https://nytimes.com/athletic/5892292/2024/11/02/sabres-islanders-mistakes-takeaways/
@@ -38,4 +34,8 @@ https://nytimes.com/athletic/5891687/2024/11/02/liverpool-brighton-preview-odds-
 `The structured, smart game the Blue Jackets have flashed this season was nonexistent versus the Jets. 
 `\
 https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
+
+**How Igor Shesterkin cleaned up 'the stink' of sloppy Rangers: 3 takeaways**\
+`With 40 saves, Shesterkin stole the show once again in the Rangers' 2-1 win Friday over the Senators.`\
+https://nytimes.com/athletic/5892249/2024/11/01/rangers-senators-igor-shesterkin/
 
