@@ -1,3 +1,7 @@
+**James Ledbetter, Media Critic and Business Journalist, Dies at 60**\
+`He wrote the Press Clips column for The Village Voice, held top jobs at Inc. magazine and Slate, and wrote a book about how the startup magazine The Industry Standard fizzled.`\
+https://nytimes.com/2024/11/02/business/media/james-ledbetter-dead.html
+
 **6th Tennessee Factory Worker Is Found a Month After Flooding From Helene**\
 `She is believed to be the last employee who was missing after the plastics plant flooded. Authorities are still investigating the circumstances around the deaths.`\
 https://nytimes.com/2024/11/02/us/hurricane-helene-body-tennessee.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893274/2024/11/02/gary-oneil-wolves-future-crystal
 **Dub Jones, Who Scored 6 Touchdowns for Browns in One Game, Dies at 99**\
 `A 6-foot-4 halfback and flanker, he was a tall, reliable target for Browns quarterback Otto Graham as Cleveland rolled to titles in the late 1940s and ’50s.`\
 https://nytimes.com/2024/11/02/sports/football/dub-jones-dead.html
-
-**How does The Times approach election coverage?**\
-`By Megan DiTrolio`\
-https://nytimes.com/live/2024/11/02/us/trump-harris-election/how-does-the-times-approach-election-coverage
 
