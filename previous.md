@@ -1,3 +1,7 @@
+**A sleeper Senate race tightens in Nebraska as an independent gains.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/a-sleeper-senate-race-tightens-in-nebraska-as-an-independent-gains
+
 **The Briefing: Newcastle 1 Arsenal 0: More St James' Park dismay for Arteta as Willock impresses for hosts**\
 `Analysis of the key talking points from Saturday's Premier League game at St James' Park`\
 https://nytimes.com/athletic/5888195/2024/11/02/newcastle-arsenal-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892484/2024/11/02/zion-williamson-brandon-ingram-p
 **On the issues: Where Harris and Trump stand on climate change.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-climate-change
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/11/02/nhl-standings-playoffs-projections-odds/
 

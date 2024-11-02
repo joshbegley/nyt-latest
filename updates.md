@@ -1,3 +1,7 @@
+**A sleeper Senate race tightens in Nebraska as an independent gains.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/a-sleeper-senate-race-tightens-in-nebraska-as-an-independent-gains
+
 **The Briefing: Newcastle 1 Arsenal 0: More St James' Park dismay for Arteta as Willock impresses for hosts**\
 `Analysis of the key talking points from Saturday's Premier League game at St James' Park`\
 https://nytimes.com/athletic/5888195/2024/11/02/newcastle-arsenal-result-analysis/
