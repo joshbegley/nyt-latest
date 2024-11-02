@@ -1,3 +1,11 @@
+**O'Neil 'not interested' in discussing Wolves future**\
+`Wolverhampton Wanderers head coach Gary O’Neil says he is &#8220;not interested&#8221; in discussing his future after his team’s winless start to the season extended to 10 games.`\
+https://nytimes.com/athletic/5893274/2024/11/02/gary-oneil-wolves-future-crystal-palace/
+
+**Dub Jones, Who Scored 6 Touchdowns for Browns in One Game, Dies at 99**\
+`A 6-foot-4 halfback and flanker, he was a tall, reliable target for Browns quarterback Otto Graham as Cleveland rolled to titles in the late 1940s and ’50s.`\
+https://nytimes.com/2024/11/02/sports/football/dub-jones-dead.html
+
 **How does The Times approach election coverage?**\
 `By Megan DiTrolio`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/how-does-the-times-approach-election-coverage
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5892930/2024/11/02/ohio-state-penn-state-score-reca
 **Adams Issues Drought Watch for New York City as Dry Weather Persists**\
 `The measure, announced by the mayor on Saturday, does not impose restrictions on New Yorkers, but officials are urging residents to use less water.`\
 https://nytimes.com/2024/11/02/nyregion/drought-watch-nyc-weather.html
-
-**When Your Dating Pool Includes Elves and Mages**\
-`Dragon Age: The Veilguard is the latest video game to lean into relationships between fellow adventurers that grow into something more.`\
-https://nytimes.com/2024/11/02/arts/dragon-age-the-veilguard-bioware-romance.html
-
-**Dias out until after international break, Stones to be assessed**\
-`Manchester City defender Ruben Dias has been ruled out until after the upcoming international break after missing Saturday&#8217;s defeat to Bournemouth through injury.`\
-https://nytimes.com/athletic/5892600/2024/11/02/ruben-dias-injury-man-city/
 
