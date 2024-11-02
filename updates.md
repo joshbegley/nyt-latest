@@ -1,3 +1,7 @@
+**Gerrit Cole opts out of contract: How Yankees could prevent him from testing free agency**\
+`The Yankees can void Cole's opt-out by adding a 10th year and an additional $36 million to his current deal.`\
+https://nytimes.com/athletic/5892774/2024/11/02/yankees-gerrit-cole-free-agent-contract-mlb/
+
 **Patricia Johanson, Who Turned Grim Spaces Into Landscape Art, Dies at 84**\
 `A groundbreaking environmental artist, she transformed water treatment plants and fetid ponds into enticing natural installations.`\
 https://nytimes.com/2024/11/02/arts/patricia-johanson-dead.html
