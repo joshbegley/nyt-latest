@@ -1,3 +1,7 @@
+**Timberwolves beat Nuggets in 119-116 comeback thriller**\
+`Minnesota's Anthony Edwards made a driving jump shot to take the lead with 25 seconds left in the game.`\
+https://nytimes.com/athletic/5892345/2024/11/02/timberwolves-nuggets-result-takeaways/
+
 **Blue Jackets crumble under Jets' withering pressure**\
 `The structured, smart game the Blue Jackets have flashed this season was nonexistent versus the Jets. 
 `\
