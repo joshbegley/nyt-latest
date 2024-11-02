@@ -1,3 +1,7 @@
+**Trump’s Microphone Trouble in Milwaukee Leaves Him ‘Seething’**\
+`After rally goers complained that they could not hear him, the former president asked, “Do you want to see me knock the hell out of people backstage?”`\
+https://nytimes.com/2024/11/02/us/politics/trump-microphone-milwaukee-rally.html
+
 **In Florida, weed might be more popular than abortion rights.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/in-florida-weed-might-be-more-popular-than-abortion-rights
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892605/2024/11/02/college-football-helment-communi
 **Giant! Jam! Bun!**\
 `What’s better than a Melissa Clark scone? A Melissa Clark scone that’s supersize, swirled with jam, lightly glazed and showered with citrus zest.`\
 https://nytimes.com/2024/11/02/dining/giant-jam-bun-melissa-clark.html
-
-**Smith: F1's 'swear jar' is a needless distraction from what should really matter to FIA**\
-`The way the FIA has handled recent F1 swearing incidents ties into the issue over whether the sport is becoming over-regulated.`\
-https://nytimes.com/athletic/5892522/2024/11/02/f1-swearing-charles-leclerc-max-verstappen-fia/
 
