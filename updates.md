@@ -1,3 +1,11 @@
+**Zion Williamson, Brandon Ingram face their greatest test yet as Pelicans’ injuries mount**\
+`Friday’s win over the Pacers was a moment of truth for the Pelicans and their two most important players.`\
+https://nytimes.com/athletic/5892484/2024/11/02/zion-williamson-brandon-ingram-pelicans/
+
+**On the issues: Where Harris and Trump stand on climate change.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-climate-change
+
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/02/nhl-standings-playoffs-projections-odds/

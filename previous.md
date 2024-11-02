@@ -1,3 +1,11 @@
+**Zion Williamson, Brandon Ingram face their greatest test yet as Pelicans’ injuries mount**\
+`Friday’s win over the Pacers was a moment of truth for the Pelicans and their two most important players.`\
+https://nytimes.com/athletic/5892484/2024/11/02/zion-williamson-brandon-ingram-pelicans/
+
+**On the issues: Where Harris and Trump stand on climate change.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-climate-change
+
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/02/nhl-standings-playoffs-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/02/world/europe/spain-floods-blame.html
 **Vote to End the Trump Era**\
 `America should demand better.`\
 https://nytimes.com/interactive/2024/11/02/opinion/vote-harris-2024-election.html
-
-**Springsteen Is Fighting Back the Darkness at the Edge of America**\
-`His music offers a model of how we all might just get through this.`\
-https://nytimes.com/2024/11/02/opinion/bruce-springsteen-politics-fans.html
-
-**Humorless Feminists Against Trump**\
-`The former president does not value or respect women — and it shows in his words and his policies`\
-https://nytimes.com/2024/11/02/opinion/humorless-feminists-trump.html
 
