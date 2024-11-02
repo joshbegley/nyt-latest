@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5892769/2024/11/02/edmonton-oilers-ahl-savoie-jarve
 `Florida freshman DJ Lagway, a five-star recruit, left Saturday's game against Georgia with an injury and was replaced by Aidan Warner.`\
 https://nytimes.com/athletic/5893339/2024/11/02/dj-lagway-injury-florida-georgia/
 
-**Michkov, Tortorella may have cleared the first hurdle in their Flyers relationship**\
+**Matvei Michkov and John Tortorella might have cleared the first hurdle in their relationship**\
 `Tortorella benched the Flyers' young star for two early shifts against the Blues.`\
 https://nytimes.com/athletic/5893106/2024/11/02/flyers-michkov-tortorella-relationship/
 
@@ -31,10 +31,10 @@ https://nytimes.com/live/2024/11/02/us/trump-harris-election/how-does-the-times-
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/brown-county-wis
 
 **F1 São Paulo GP qualifying postponed after heavy rain soaks Interlagos**\
-`It remains to be confirmed when grand prix qualifying will take place ahead of Sunday's grand prix. `\
+`It remains to be confirmed when qualifying will take place ahead of Sunday's grand prix. `\
 https://nytimes.com/athletic/5893042/2024/11/02/f1-brazil-gp-qualifying-postponed-schedule/
 
-**Harris and Trump Zero In on the Economy as They Race Around the South**\
-`The candidates outlined vastly different messages in Georgia and North Carolina, with Kamala Harris promising to bring down costs and Donald J. Trump exaggerating how bad the recent jobs report was.`\
+**Trump and Harris Offer Night-and-Day Views of the Economy**\
+`The candidates outlined vastly different messages in Georgia and North Carolina, with Donald J. Trump exaggerating how bad the recent jobs report was and Kamala Harris promising to bring down costs`\
 https://nytimes.com/2024/11/02/us/politics/harris-trump-georgia-north-carolina-virginia.html
 

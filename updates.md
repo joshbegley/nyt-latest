@@ -1,3 +1,15 @@
+**Matvei Michkov and John Tortorella might have cleared the first hurdle in their relationship**\
+`Tortorella benched the Flyers' young star for two early shifts against the Blues.`\
+https://nytimes.com/athletic/5893106/2024/11/02/flyers-michkov-tortorella-relationship/
+
+**F1 São Paulo GP qualifying postponed after heavy rain soaks Interlagos**\
+`It remains to be confirmed when qualifying will take place ahead of Sunday's grand prix. `\
+https://nytimes.com/athletic/5893042/2024/11/02/f1-brazil-gp-qualifying-postponed-schedule/
+
+**Trump and Harris Offer Night-and-Day Views of the Economy**\
+`The candidates outlined vastly different messages in Georgia and North Carolina, with Donald J. Trump exaggerating how bad the recent jobs report was and Kamala Harris promising to bring down costs`\
+https://nytimes.com/2024/11/02/us/politics/harris-trump-georgia-north-carolina-virginia.html
+
 **Cowboys' Elliott won't travel with team to Atlanta for Sunday matchup**\
 `Elliott is sidelined for disciplinary reasons, per a league source.`\
 https://nytimes.com/athletic/5893323/2024/11/02/ezekiel-elliott-inactive-cowboys/
