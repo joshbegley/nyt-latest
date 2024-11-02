@@ -1,3 +1,7 @@
+**Corrections: Nov. 2, 2024**\
+`Corrections that appeared in print on Saturday, Nov. 2, 2024.`\
+https://nytimes.com/2024/11/01/pageoneplus/corrections-nov-2-2024.html
+
 **Judge Allows Unusual G.O.P. Strategy to Pump Money Into Senate Races**\
 `Democrats had claimed that the advertising strategy may have violated federal election laws establishing strict limits on spending by national party committees to aid individual candidates.`\
 https://nytimes.com/2024/11/01/us/politics/senate-republicans-ads-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892053/2024/11/01/yankees-options-luke-weaver-anth
 **Nvidia Will Replace Intel in the Dow Jones Stock Index**\
 `The change, starting next Friday, lifts a dominant player in artificial intelligence over its chip-making rival, which has struggled to keep up.`\
 https://nytimes.com/2024/11/01/technology/nvidia-intel-dow-jones-index.html
-
-**Scenes from a Dodgers World Series parade: 'Best thing I've ever been a part of'**\
-`Fans denied a parade after the 2020 title made up for lost time with a raucous, emotional celebration this time. `\
-https://nytimes.com/athletic/5891906/2024/11/01/dodgers-parade-world-series-celebration/
 
