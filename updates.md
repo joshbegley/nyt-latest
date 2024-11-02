@@ -1,3 +1,7 @@
+**Adams Issues Drought Watch for New York City as Dry Weather Persists**\
+`The measure, announced by the mayor on Saturday, does not impose restrictions on New Yorkers, but officials are urging residents to use less water.`\
+https://nytimes.com/2024/11/02/nyregion/drought-watch-nyc-weather.html
+
 **When Your Dating Pool Includes Elves and Mages**\
 `Dragon Age: The Veilguard is the latest video game to lean into relationships between fellow adventurers that grow into something more.`\
 https://nytimes.com/2024/11/02/arts/dragon-age-the-veilguard-bioware-romance.html
