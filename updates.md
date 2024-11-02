@@ -1,3 +1,7 @@
+**A judge extends early-voting hours in a Pennsylvania county after finding it’s short thousands of ballots.**\
+`By Nick Corasaniti and Rebecca Davis O’Brien`\
+https://nytimes.com/2024/11/01/us/politics/erie-county-voting-mail-ballots.html
+
 **How Kirill Kaprizov's dominance, Filip Gustavsson's bounce back fueled Wild win: 3 takeaways**\
 `The Wild returned home for the first time since Oct. 12 and improved to 15-3 all time at home against the Lightning with a 5-3 victory.`\
 https://nytimes.com/athletic/5892159/2024/11/01/wild-lightning-kirill-kaprizov-filip-gustavsson/

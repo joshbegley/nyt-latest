@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/11/01/us/harris-trump-election/levittown-pa-long-l
 
 **A judge extends early-voting hours in a Pennsylvania county after finding it’s short thousands of ballots.**\
 `By Nick Corasaniti and Rebecca Davis O’Brien`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election/erie-county-voting-mail-ballots
+https://nytimes.com/2024/11/01/us/politics/erie-county-voting-mail-ballots.html
 
 **Michigan lands 4-star CB Shamari Earls, flipping commit from Georgia**\
 `At 6-foot-2 and 180 pounds, Earls profiles as an outside corner who could help fill the shoes of Will Johnson if Johnson goes to the NFL.`\
