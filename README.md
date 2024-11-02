@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/11/02/us/trump-harris-election/brown-county-wis
 `It remains to be confirmed when qualifying will take place ahead of Sunday's grand prix. `\
 https://nytimes.com/athletic/5893042/2024/11/02/f1-brazil-gp-qualifying-postponed-schedule/
 
-**Harris and Trump Zero In on the Economy as They Race Around the South**\
-`The candidates outlined vastly different messages in Georgia and North Carolina, with Kamala Harris promising to bring down costs and Donald J. Trump exaggerating how bad the recent jobs report was.`\
+**Trump and Harris Offer Night-and-Day Views of the Economy**\
+`The candidates outlined vastly different messages in Georgia and North Carolina, with Donald J. Trump exaggerating how bad the recent jobs report was and Kamala Harris promising to bring down costs`\
 https://nytimes.com/2024/11/02/us/politics/harris-trump-georgia-north-carolina-virginia.html
 
