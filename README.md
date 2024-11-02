@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/02/us/elections/biden-scranton-harris-campaign.html
 
 **Duke is in good hands with Manny Diaz, but Miami made the right call with Mario Cristobal**\
-`The bottom line: The Hurricanes are now 9-0, armed with arguably the best QB in college football, if Diaz were still in charge.`\
+`The bottom line: The Hurricanes are not 9-0, armed with arguably the best QB in college football, if Diaz were still in charge.`\
 https://nytimes.com/athletic/5893424/2024/11/02/mario-cristobal-manny-diaz-miami-coach/
 
 **Washoe County, Nev.**\

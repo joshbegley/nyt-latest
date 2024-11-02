@@ -1,3 +1,11 @@
+**Biden Returns to His Home Turf to Make Final Pitches for Harris**\
+`Though President Biden has made verbal gaffes on the campaign trail, the Harris campaign still considers him an asset in blue-collar communities like Scranton, Pa.`\
+https://nytimes.com/2024/11/02/us/elections/biden-scranton-harris-campaign.html
+
+**Duke is in good hands with Manny Diaz, but Miami made the right call with Mario Cristobal**\
+`The bottom line: The Hurricanes are now 9-0, armed with arguably the best QB in college football, if Diaz were still in charge.`\
+https://nytimes.com/athletic/5893424/2024/11/02/mario-cristobal-manny-diaz-miami-coach/
+
 **Washoe County, Nev.**\
 `By Soumya Karlamangla`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/washoe-county-nev

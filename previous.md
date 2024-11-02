@@ -1,3 +1,11 @@
+**Biden Returns to His Home Turf to Make Final Pitches for Harris**\
+`Though President Biden has made verbal gaffes on the campaign trail, the Harris campaign still considers him an asset in blue-collar communities like Scranton, Pa.`\
+https://nytimes.com/2024/11/02/us/elections/biden-scranton-harris-campaign.html
+
+**Duke is in good hands with Manny Diaz, but Miami made the right call with Mario Cristobal**\
+`The bottom line: The Hurricanes are now 9-0, armed with arguably the best QB in college football, if Diaz were still in charge.`\
+https://nytimes.com/athletic/5893424/2024/11/02/mario-cristobal-manny-diaz-miami-coach/
+
 **Washoe County, Nev.**\
 `By Soumya Karlamangla`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/washoe-county-nev
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/02/us/politics/what-is-the-electoral-college.html
 **Chicago Sky hire Tyler Marsh as head coach: Sources**\
 `Marsh led the Aces' player development as the team won back-to-back titles in 2022-23.`\
 https://nytimes.com/athletic/5893352/2024/11/02/chicago-sky-hire-tyler-marsh-wnba/
-
-**Cowboys' Elliott won't travel with team to Atlanta for Sunday matchup**\
-`Elliott is sidelined for disciplinary reasons, per a league source.`\
-https://nytimes.com/athletic/5893323/2024/11/02/ezekiel-elliott-inactive-cowboys/
-
-**Lowetide: How 2 Oilers summer trade bets are showing well in AHL**\
-`Two summer trades are showing signs of delivering young talent that is quality and comes with a satisfactory cap hit.`\
-https://nytimes.com/athletic/5892769/2024/11/02/edmonton-oilers-ahl-savoie-jarventie/
 
