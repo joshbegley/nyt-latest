@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/11/02/weather/tropical-storm-patty-hurricane/heres
 
 **Patty Forms as a Subtropical Storm Near the Azores**\
 `The system is expected to weaken before approaching Europe next week.`\
-https://nytimes.com/live/2024/11/02/weather/tropical-storm-patty-hurricane
+https://nytimes.com/live/2024/11/02/weather/subtropical-storm-patty-hurricane
 
 **Buncombe County, N.C.**\
 `By Christina Morales`\
