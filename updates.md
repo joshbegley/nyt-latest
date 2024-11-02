@@ -1,3 +1,7 @@
+**Judge Finds Pennsylvania County Short of Ballots and Extends Early-Voting Hours**\
+`A state judge in Erie County, Pa., found that thousands of voters may not have received their ballots in time for the election on Tuesday, ordering the county to remedy the issue.`\
+https://nytimes.com/2024/11/01/us/politics/erie-county-voting-mail-ballots.html
+
 **A judge extends early-voting hours in a Pennsylvania county after finding it’s short thousands of ballots.**\
 `By Nick Corasaniti and Rebecca Davis O’Brien`\
 https://nytimes.com/2024/11/01/us/politics/erie-county-voting-mail-ballots.html
