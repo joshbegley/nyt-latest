@@ -1,3 +1,7 @@
+**Top-ranked Oregon remains unbeaten with road win at Michigan: Takeaways**\
+`Oregon QB Dillon Gabriel threw for 294 yards and ran for a 23-yard touchdown to keep the Ducks perfect and their Playoff hopes intact.`\
+https://nytimes.com/athletic/5893275/2024/11/02/oregon-ducks-michigan-wolverines-score-recap/
+
 **Biden Returns to His Home Turf to Make Final Pitches for Harris**\
 `Though President Biden has made verbal gaffes on the campaign trail, the Harris campaign still considers him an asset in blue-collar communities like Scranton, Pa.`\
 https://nytimes.com/2024/11/02/us/elections/biden-scranton-harris-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/us/hurricane-helene-body-tennessee.html
 **What to Know About the Electoral College**\
 `“This is a very unique and bespoke system that I think nobody would create again today,” one expert said.`\
 https://nytimes.com/2024/11/02/us/politics/what-is-the-electoral-college.html
-
-**Chicago Sky hire Tyler Marsh as head coach: Sources**\
-`Marsh led the Aces' player development as the team won back-to-back titles in 2022-23.`\
-https://nytimes.com/athletic/5893352/2024/11/02/chicago-sky-hire-tyler-marsh-wnba/
 
