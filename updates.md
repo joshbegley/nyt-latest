@@ -1,3 +1,7 @@
+**Top-ranked Oregon remains unbeaten with road win at Michigan: Takeaways**\
+`Oregon QB Dillon Gabriel threw for 294 yards and ran for a 23-yard touchdown to keep the Ducks perfect and their Playoff hopes intact.`\
+https://nytimes.com/athletic/5893275/2024/11/02/oregon-ducks-michigan-wolverines-score-recap/
+
 **Duke is in good hands with Manny Diaz, but Miami made the right call with Mario Cristobal**\
 `The bottom line: The Hurricanes are not 9-0, armed with arguably the best QB in college football, if Diaz were still in charge.`\
 https://nytimes.com/athletic/5893424/2024/11/02/mario-cristobal-manny-diaz-miami-coach/
