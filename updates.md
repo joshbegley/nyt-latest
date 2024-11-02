@@ -1,3 +1,15 @@
+**Robert F. Kennedy Jr. Says Trump Will Seek to Remove Fluoride From Drinking Water**\
+`Donald J. Trump has said he would give Mr. Kennedy, a former rival who has long promoted unproven medical theories, a prominent health role if he wins.`\
+https://nytimes.com/2024/11/02/us/politics/robert-f-kennedy-jr-trump-fluoride-water.html
+
+**Harris Will Make Surprise Appearance on ‘Saturday Night Live’**\
+`After a campaign rally in Charlotte, N.C., she was heading north to New York, where she was expected to appear on the late-night sketch comedy show.`\
+https://nytimes.com/2024/11/02/us/politics/kamala-harris-snl.html
+
+**Analysing Jets attendance, Perfetti's position and Ehlers' minutes: Mailbag, part 2**\
+`Ticket sales seem off to a better start this season. Why, and is it sustainable? And what are the Jets' plans for Ehlers and Perfetti?`\
+https://nytimes.com/athletic/5881456/2024/11/02/jets-attendance-perfetti-ehlers/
+
 **Indiana continues undefeated season with first 9-0 start in program history**\
 `If the Hoosiers beat Michigan next week, they’ll be the first Indiana team with double figures in victories.`\
 https://nytimes.com/athletic/5893530/2024/11/02/indiana-undefeated-college-football-teams/

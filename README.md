@@ -10,7 +10,7 @@ https://nytimes.com/2024/11/02/us/politics/kamala-harris-snl.html
 `Ticket sales seem off to a better start this season. Why, and is it sustainable? And what are the Jets' plans for Ehlers and Perfetti?`\
 https://nytimes.com/athletic/5881456/2024/11/02/jets-attendance-perfetti-ehlers/
 
-**Georgia resilient vs. Florida, but how concerning was close call after DJ Lagway injury?**\
+**Takeaways from Georgia win vs. Florida: Is Bulldogs' resilience enough? What now for Gators?**\
 `No. 2 Georgia pulled away late for a 34-20 win against rival Florida, which lost quarterback DJ Lagway to a hamstring injury.`\
 https://nytimes.com/athletic/5893517/2024/11/02/florida-georgia-football-score-recap/
 
