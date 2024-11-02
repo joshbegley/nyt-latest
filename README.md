@@ -1,3 +1,7 @@
+**Timberwolves beat Nuggets in 119-116 comeback thriller**\
+`Minnesota's Anthony Edwards made a driving jump shot to take the lead with 25 seconds left in the game.`\
+https://nytimes.com/athletic/5892345/2024/11/02/timberwolves-nuggets-result-takeaways/
+
 **LeBron James will be done tormenting the Raptors soon enough**\
 `At age 39, James delivered another obliteration of the Raptors. This time, some Toronto fans liked it.`\
 https://nytimes.com/athletic/5892279/2024/11/02/lebron-james-torments-toronto-raptors/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/5889274/2024/11/02/oregon-michigan-how-to-watch-pic
 **Liverpool vs Brighton preview: Storylines, odds, prediction for meeting of teams in top 6**\
 `Liverpool are chasing Manchester City at the top of the table, but the Reds have a tricky home fixture against Brighton on Saturday.`\
 https://nytimes.com/athletic/5891687/2024/11/02/liverpool-brighton-preview-odds-prediction/
-
-**Blue Jackets crumble under Jets' withering pressure**\
-`The structured, smart game the Blue Jackets have flashed this season was nonexistent versus the Jets. 
-`\
-https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
 
