@@ -2,8 +2,8 @@
 `An underground party memoir; an argument for nonhuman life.`\
 https://nytimes.com/2024/11/02/books/read-like-wind-recommendations.html
 
-**Kemi Badenoch Vows to Make U.K.’s Tories More Conservative**\
-`Elected as the new leader of Britain’s oldest party, Ms. Badenoch has not hesitated to wade into thorny issues like transgender rights or Britain’s colonial legacy.`\
+**Kemi Badenoch Becomes First Black Woman to Lead Britain’s Conservative Party**\
+`Ms. Badenoch is expected to move the party, now in the opposition, further to the right.`\
 https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html
 
 **Did Climate Change and Late Warnings Add to Spain’s Flooding Disaster? Locals Say Yes.**\
