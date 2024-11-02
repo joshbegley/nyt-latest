@@ -1,3 +1,7 @@
+**In Politics, Pro Athletes (and Owners) Are Just Like the Rest of Us: Divided**\
+`A pro-Harris video from LeBron James. A pro-Trump hat on Nick Bosa. With Election Day near, more have been showing their preference.`\
+https://nytimes.com/2024/11/02/business/harris-trump-pro-sports-political-support.html
+
 **What I’m seeing from the Blues through October: Inconsistency in abundance**\
 `For the Blues, the additions of Philip Broberg and Dylan Holloway bring some hope for the future.`\
 https://nytimes.com/athletic/5890886/2024/11/02/blues-nhl-season-jordan-kyrou/
@@ -14,8 +18,8 @@ https://nytimes.com/2024/11/02/books/read-like-wind-recommendations.html
 `Ms. Badenoch is expected to move the party, now in the opposition, further to the right.`\
 https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html
 
-**Did Climate Change and Late Warnings Add to Spain’s Flooding Disaster? Locals Say Yes.**\
-`Spaniards left bereft by extraordinary flooding understand the waters became unstoppable. But they say earlier warnings could have saved lives.`\
+**Amid Flood Cleanup in Spain, Residents Try to Make Sense of the Disaster**\
+`Some see the floods as an example of the effect of a changing climate that is making overwhelming downpours more common. Locals also say government warnings came too late.`\
 https://nytimes.com/2024/11/02/world/europe/spain-floods-blame.html
 
 **Vote to End the Trump Era**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/opinion/humorless-feminists-trump.html
 **Each NHL team’s biggest concern a month into the 2024-25 season**\
 `From goaltending and lack of offense to injuries and more, here’s what The Athletic's NHL staff said is each team's biggest concern.`\
 https://nytimes.com/athletic/5891648/2024/11/02/nhl-2024-25-regular-season-concerns/
-
-**Had Enough of the Election? Take Solace in the Marathon.**\
-`The marathon is glorious in part because it represents an ideal of civic life: people striving to accomplish their goals while seeking connection with others.`\
-https://nytimes.com/2024/11/02/opinion/nyc-marathon-running.html
 

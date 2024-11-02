@@ -1,3 +1,11 @@
+**In Politics, Pro Athletes (and Owners) Are Just Like the Rest of Us: Divided**\
+`A pro-Harris video from LeBron James. A pro-Trump hat on Nick Bosa. With Election Day near, more have been showing their preference.`\
+https://nytimes.com/2024/11/02/business/harris-trump-pro-sports-political-support.html
+
+**Amid Flood Cleanup in Spain, Residents Try to Make Sense of the Disaster**\
+`Some see the floods as an example of the effect of a changing climate that is making overwhelming downpours more common. Locals also say government warnings came too late.`\
+https://nytimes.com/2024/11/02/world/europe/spain-floods-blame.html
+
 **Springsteen Is Fighting Back the Darkness at the Edge of America**\
 `His music offers a model of how we all might just get through this.`\
 https://nytimes.com/2024/11/02/opinion/bruce-springsteen-politics-fans.html
