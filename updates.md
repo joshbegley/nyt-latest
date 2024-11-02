@@ -1,3 +1,11 @@
+**Brown County, Wis.**\
+`By Julie Bosman`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/brown-county-wis
+
+**F1 São Paulo GP qualifying postponed after heavy rain soaks Interlagos**\
+`It remains to be confirmed when grand prix qualifying will take place ahead of Sunday's grand prix. `\
+https://nytimes.com/athletic/5893042/2024/11/02/f1-brazil-gp-qualifying-postponed-schedule/
+
 **NFL won't decide on potential fine of 49ers' Nick Bosa for wearing 'MAGA' hat postgame until next week: Source**\
 `The NFL will take its time on a decision because the behavior does not involve a play on the field or a potential suspension.`\
 https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-political-statement/
