@@ -1,4 +1,8 @@
-**Islanders lose Mathew Barzal, Adam Pelech to long-term injuries**\
+**If there's a dynasty in NWSL, it's the Portland Thorns. What's next?**\
+`The Thorns have enjoyed success like no other in NWSL but what will 2025 bring - without Christine Sinclair?`\
+https://nytimes.com/athletic/5892479/2024/11/02/portland-thorns-nwsl-dynasty-sinclair/
+
+**Reeling Islanders lose Mathew Barzal, Adam Pelech to long-term injuries**\
 `Barzal suffered an upper-body injury Wednesday, and Pelech took a puck to the mouth Friday. Also, updates on Mike Reilly and Alex Romanov.`\
 https://nytimes.com/athletic/5892806/2024/11/02/islanders-mathew-barzal-adam-pelech-injuries/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/us/politics/trump-microphone-milwaukee-rally.html
 **In Florida, weed might be more popular than abortion rights.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/in-florida-weed-might-be-more-popular-than-abortion-rights
-
-**Will Democracy Ever Not Be on the Ballot?**\
-`It is on Tuesday. It was four years ago — and eight years ago, too.`\
-https://nytimes.com/2024/11/02/opinion/trump-election-maga-republican-democracy.html
 
