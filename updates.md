@@ -1,3 +1,7 @@
+**How Igor Shesterkin cleaned up 'the stink' of sloppy Rangers: 3 takeaways**\
+`With 40 saves, Shesterkin stole the show once again in the Rangers' 2-1 win over the Senators.`\
+https://nytimes.com/athletic/5892249/2024/11/01/rangers-senators-igor-shesterkin/
+
 **How Igor Shesterkin cleaned 'up the stink' of sloppy Rangers: 3 takeaways**\
 `With 40 saves, Shesterkin stole the show once again in the Rangers' 2-1 win over the Senators.`\
 https://nytimes.com/athletic/5892249/2024/11/01/rangers-senators-igor-shesterkin/
