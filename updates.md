@@ -1,3 +1,7 @@
+**Investigation of MrBeast’s Company Finds No Evidence of Sexual Misconduct**\
+`An independent law firm led the investigation after allegations of sexual misconduct surfaced against Ava Tyson, a collaborator with the YouTube star MrBeast.`\
+https://nytimes.com/2024/11/02/arts/mrbeast-ava-tyson-investigation.html
+
 **Cubs' Cody Bellinger picks up $27.5 million player option for 2025**\
 `Chicago Cubs outfielder Cody Bellinger has picked up his $27.`\
 https://nytimes.com/athletic/5892843/2024/11/02/cubs-cody-bellinger-contract-mlb-news/
