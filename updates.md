@@ -1,3 +1,7 @@
+**Ohio State earns marquee win, adds to Penn State's big-game misery again: Takeaways**\
+`No. 4 Ohio State used a fourth-quarter goal-line stand to hand No. 3 Penn State its first loss, 20-13, in front of a record crowd.`\
+https://nytimes.com/athletic/5892930/2024/11/02/ohio-state-penn-state-score-recap/
+
 **How does The Times approach election coverage?**\
 `By Megan DiTrolio`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/how-does-the-times-approach-election-coverage
