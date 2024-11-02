@@ -1,3 +1,7 @@
+**Lowetide: How 2 Oilers summer trade bets are showing well in AHL**\
+`Two summer trades are showing signs of delivering young talent that is quality and comes with a satisfactory cap hit.`\
+https://nytimes.com/athletic/5892769/2024/11/02/edmonton-oilers-ahl-savoie-jarventie/
+
 **Florida QB DJ Lagway carted off with injury vs. Georgia**\
 `Florida freshman DJ Lagway, a five-star recruit, left Saturday's game against Georgia with an injury and was replaced by Aidan Warner.`\
 https://nytimes.com/athletic/5893339/2024/11/02/dj-lagway-injury-florida-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/us/politics/harris-trump-georgia-north-carolina-v
 **'I can be the best player in the world': Aryna Sabalenka aims to crown the season of her life**\
 `12 months ago, Aryna Sabalenka said she was "disrespected" by the WTA Tour. In Riyadh, she stands to end the year atop it.`\
 https://nytimes.com/athletic/5892488/2024/11/02/aryna-sabalenka-number-one-wta-finals/
-
-**NFL reviewing potential fine of 49ers' Nick Bosa for wearing 'MAGA' hat postgame: Source**\
-`The NFL will take its time on a decision because the behavior does not involve a play on the field or a potential suspension.`\
-https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-political-statement/
 
