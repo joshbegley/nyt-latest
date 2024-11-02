@@ -1,3 +1,7 @@
+**Janey Godley, Scottish Comedian Who Brought Humor to Harrowing Topics, Dies at 63**\
+`Ms. Godley said she believed there were “funny sides” to terrible experiences, including some that she drew from her own times of loss and hardship.`\
+https://nytimes.com/2024/11/02/arts/television/janey-godley-dead.html
+
 **Marcelo leaves Fluminense after disagreement with head coach**\
 `Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
 https://nytimes.com/athletic/5892836/2024/11/02/marcelo-fluminense-contract-terminated/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/arts/patricia-johanson-dead.html
 **Army QB Bryson Daily out vs. Air Force with undisclosed injury/illness**\
 `Daily is sidelined with an undisclosed injury/illness, according to multiple reports.`\
 https://nytimes.com/athletic/5892694/2024/11/02/bryson-daily-army-injury-illness/
-
-**Biden Left the Presidential Race, but His Legacy Depends on It**\
-`The Trump campaign has taken aim at many of President Biden’s signature legislative achievements.`\
-https://nytimes.com/2024/11/02/us/politics/biden-election-legacy.html
 
