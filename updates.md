@@ -1,3 +1,11 @@
+**Tim Sheehy says medical records do not exist to prove gunshot story.**\
+`The Republican candidate for U.S. Senate, who has told conflicting stories about the origins of a bullet in his arm, said there are no Montana hospital records to explain his account.`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/tim-sheehy-says-medical-records-do-not-exist-to-prove-gunshot-story
+
+**Jason Kelce slams Penn State fan's phone on ground after homophobic slur**\
+`Travis Kelce, the Kansas City Chiefs tight end, started dating pop sensation Taylor Swift in 2023.`\
+https://nytimes.com/athletic/5893037/2024/11/02/jason-kelce-taylor-swift-fan-taunt-phone/
+
 **Five-star wing Shelton Henderson commits to Duke**\
 `Henderson picked the Blue Devils over fellow finalists Louisville and Texas.`\
 https://nytimes.com/athletic/5889310/2024/11/02/five-star-shelton-henderson-committed-duke/
