@@ -1,3 +1,7 @@
+**Did Climate Change and Late Warnings Add to Spain’s Flooding Disaster? Locals Say Yes.**\
+`Spaniards left bereft by extraordinary flooding understand the waters became unstoppable. But they say earlier warnings could have saved lives.`\
+https://nytimes.com/2024/11/02/world/europe/spain-floods-blame.html
+
 **Vote to End the Trump Era**\
 `America should demand better.`\
 https://nytimes.com/interactive/2024/11/02/opinion/vote-harris-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/opinion/trump-madison-square-garden-private-life.
 **Whatever Happens Next, Trump Has Already Won a Tragic Victory**\
 `This election has shown that Arab American and Muslim American lives are considered to be expendable.`\
 https://nytimes.com/2024/11/02/opinion/trump-harris-gaza-arab-americans.html
-
-**The Cost of a Nuclear Arsenal**\
-`Responses to an article in the “At the Brink” series, raising doubts about a huge overhaul of U.S. nuclear capacity.`\
-https://nytimes.com/2024/11/02/opinion/nuclear-arsenal.html
 
