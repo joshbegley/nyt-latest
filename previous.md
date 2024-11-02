@@ -1,3 +1,11 @@
+**Taking Time**\
+`Daylight saving time ends tomorrow. How will you make use of the extra hour?`\
+https://nytimes.com/2024/11/02/briefing/daylight-saving-time.html
+
+**The friendly competition between Jayden Daniels and Malik Nabers will never stop**\
+`The former LSU teammates and good friends continue to push each other to be great, even while suiting up for NFC East rivals. `\
+https://nytimes.com/athletic/5891378/2024/11/02/jayden-daniels-malik-nabers-commanders-giants-lsu/
+
 **Here’s the latest on the presidential race.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/heres-the-latest-on-the-presidential-race
@@ -5,6 +13,10 @@ https://nytimes.com/live/2024/11/02/us/trump-harris-election/heres-the-latest-on
 **Election Live Updates: Candidates Blanket Battlegrounds on Last Weekend Before Election Day**\
 `Donald J. Trump will rally in North Carolina, Kamala Harris will hold a star-studded get-out-the-vote event in Atlanta, and their running mates are headed to Nevada and Arizona.`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election
+
+**From Calahoo to Toronto: The making of Maple Leafs coach Craig Berube**\
+`When Craig Berube wants to truly feel at peace, he goes back to a place where he became the person he is today.`\
+https://nytimes.com/athletic/5890398/2024/11/02/maple-leafs-coach-craig-berube/
 
 **Tailgating in Wisconsin With the Bros Trump Needs**\
 `Gender is a main dividing line in 2024. And young swing-state voters know it.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5891595/2024/11/02/ravens-broncos-preview-lamar-jac
 **Peter Singer Wants to Shatter Your Moral Complacency**\
 `The controversial philosopher discusses societal taboos, Thanksgiving turkeys and whether anyone is doing enough to make the world a better place.`\
 https://nytimes.com/2024/11/02/magazine/peter-singer-interview.html
-
-**Why Are Democrats Having Such a Hard Time Beating Trump?**\
-`The national political environment just isn’t as conducive to a Harris victory as many might imagine.`\
-https://nytimes.com/2024/11/02/upshot/democrats-trump-election.html
-
-**A Way Out of Mexico’s Constitutional Crisis? One Idea for Compromise Emerges.**\
-`A lone voice on Mexico’s Supreme Court has proposed a way to ease the political tensions that have arisen over a judicial overhaul. But big obstacles could prevent any deal.`\
-https://nytimes.com/2024/11/02/us/mexico-supreme-court-judicial-overhaul.html
-
-**‘Cesspools,’ ‘Hellholes’ and ‘Beautiful Places’: How Trump Describes the U.S.**\
-`See how Donald J. Trump’s penchant for criticism extends to a topic that’s usually sacrosanct for candidates — the cities and states in the nation he aims to lead.`\
-https://nytimes.com/interactive/2024/11/02/us/politics/trump-places-quotes.html
 

@@ -1,3 +1,15 @@
+**Taking Time**\
+`Daylight saving time ends tomorrow. How will you make use of the extra hour?`\
+https://nytimes.com/2024/11/02/briefing/daylight-saving-time.html
+
+**The friendly competition between Jayden Daniels and Malik Nabers will never stop**\
+`The former LSU teammates and good friends continue to push each other to be great, even while suiting up for NFC East rivals. `\
+https://nytimes.com/athletic/5891378/2024/11/02/jayden-daniels-malik-nabers-commanders-giants-lsu/
+
+**From Calahoo to Toronto: The making of Maple Leafs coach Craig Berube**\
+`When Craig Berube wants to truly feel at peace, he goes back to a place where he became the person he is today.`\
+https://nytimes.com/athletic/5890398/2024/11/02/maple-leafs-coach-craig-berube/
+
 **Here’s the latest on the presidential race.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/heres-the-latest-on-the-presidential-race
