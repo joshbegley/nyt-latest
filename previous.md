@@ -1,3 +1,7 @@
+**Richard A. Cash, Who Saved Millions From Dehydration, Dies at 83**\
+`He worked alongside another doctor to show that a simple rehydration therapy could check the ravages of cholera and other diarrhea-inducing diseases.`\
+https://nytimes.com/2024/11/02/science/richard-cash-dead.html
+
 **Play calls overheard in helmet comms audio obtained from TTU-TCU game**\
 `TTU-TCU helmet comms audio shows how easy it is to intercept the signal. Why are there issues in college football with the tech?`\
 https://nytimes.com/athletic/5892605/2024/11/02/college-football-helment-communication-big-12-texas-tech/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888195/2024/11/02/newcastle-arsenal-result-analysi
 **Fantasy football rankings Week 9: Sleepers, projections, starts, Patrick Mahomes, Josh Downs**\
 `Jake Ciely offers up his Week 9 fantasy football rankings, and likes Patrick Mahomes to finally have a big day versus a porous Bucs defense.`\
 https://nytimes.com/athletic/5883846/2024/11/02/fantasy-football-rankings-week-9-sleepers-projections-starts-patrick-mahomes-josh-downs/
-
-**Berkshire Continues Retreat From Stocks**\
-`The conglomerate reported on Saturday that it had cut its holdings in Apple and Bank of America and increased its cash to a record high in the third quarter.`\
-https://nytimes.com/2024/11/02/business/berkshire-hathaway-warren-buffett.html
 

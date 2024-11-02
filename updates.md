@@ -1,3 +1,7 @@
+**Richard A. Cash, Who Saved Millions From Dehydration, Dies at 83**\
+`He worked alongside another doctor to show that a simple rehydration therapy could check the ravages of cholera and other diarrhea-inducing diseases.`\
+https://nytimes.com/2024/11/02/science/richard-cash-dead.html
+
 **Play calls overheard in helmet comms audio obtained from TTU-TCU game**\
 `TTU-TCU helmet comms audio shows how easy it is to intercept the signal. Why are there issues in college football with the tech?`\
 https://nytimes.com/athletic/5892605/2024/11/02/college-football-helment-communication-big-12-texas-tech/
