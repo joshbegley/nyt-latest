@@ -1,3 +1,7 @@
+**Patty Forms as a Subtropical Storm Near the Azores**\
+`The system is expected to weaken before approaching Europe next week.`\
+https://nytimes.com/live/2024/11/02/weather/subtropical-storm-patty-hurricane
+
 **Here’s the latest on the storm.**\
 `By John Keefe`\
 https://nytimes.com/live/2024/11/02/weather/tropical-storm-patty-hurricane/heres-the-latest-on-the-storm
