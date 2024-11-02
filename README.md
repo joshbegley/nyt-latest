@@ -1,7 +1,3 @@
-**Analysing Jets attendance, Perfetti's position and Ehlers' minutes: Mailbag, part 2**\
-`Ticket sales seem off to a better start this season. Why, and is it sustainable? And what are the Jets' plans for Ehlers and Perfetti?`\
-https://nytimes.com/athletic/5881456/2024/11/02/jets-attendance-perfetti-ehlers/
-
 **Georgia resilient vs. Florida, but how concerning was close call after DJ Lagway injury?**\
 `No. 2 Georgia pulled away late for a 34-20 win against rival Florida, which lost quarterback DJ Lagway to a hamstring injury.`\
 https://nytimes.com/athletic/5893517/2024/11/02/florida-georgia-football-score-recap/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5893424/2024/11/02/mario-cristobal-manny-diaz-miami
 **Washoe County, Nev.**\
 `By Soumya Karlamangla`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/washoe-county-nev
+
+**Was Saturday a better win for Ryan Day or a worse loss for James Franklin?**\
+`The Nittany Lions' loss was the latest instance of Franklin's team coming up short in big moments. They're now 1-13 against top-five teams.`\
+https://nytimes.com/athletic/5893342/2024/11/02/penn-state-football-james-franklin-ohio-state/
 
