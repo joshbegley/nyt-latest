@@ -1,3 +1,7 @@
+**Buster Posey on new GM Zack Minasian: 'He gets what it means to be a San Francisco Giant'**\
+`Posey didn't initially consider Minasian when he compiled a list of candidates. On Friday, Posey introduced him as the Giants' next GM.`\
+https://nytimes.com/athletic/5892152/2024/11/01/sf-giants-gm-zack-minasian-buster-posey/
+
 **Judge Allows Unusual G.O.P. Strategy to Pump Money Into Senate Races**\
 `Democrats had claimed that the advertising strategy may have violated federal election laws establishing strict limits on spending by national party committees to aid individual candidates.`\
 https://nytimes.com/2024/11/01/us/politics/senate-republicans-ads-money.html
