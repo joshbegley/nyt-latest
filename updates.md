@@ -1,3 +1,7 @@
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/02/nhl-standings-playoffs-projections-odds/
+
 **In Politics, Pro Athletes (and Owners) Are Just Like the Rest of Us: Divided**\
 `A pro-Harris video from LeBron James. A pro-Trump hat on Nick Bosa. With Election Day near, more have been showing their preference.`\
 https://nytimes.com/2024/11/02/business/harris-trump-pro-sports-political-support.html

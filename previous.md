@@ -1,3 +1,7 @@
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/02/nhl-standings-playoffs-projections-odds/
+
 **In Politics, Pro Athletes (and Owners) Are Just Like the Rest of Us: Divided**\
 `A pro-Harris video from LeBron James. A pro-Trump hat on Nick Bosa. With Election Day near, more have been showing their preference.`\
 https://nytimes.com/2024/11/02/business/harris-trump-pro-sports-political-support.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/opinion/bruce-springsteen-politics-fans.html
 **Humorless Feminists Against Trump**\
 `The former president does not value or respect women — and it shows in his words and his policies`\
 https://nytimes.com/2024/11/02/opinion/humorless-feminists-trump.html
-
-**Each NHL team’s biggest concern a month into the 2024-25 season**\
-`From goaltending and lack of offense to injuries and more, here’s what The Athletic's NHL staff said is each team's biggest concern.`\
-https://nytimes.com/athletic/5891648/2024/11/02/nhl-2024-25-regular-season-concerns/
 
