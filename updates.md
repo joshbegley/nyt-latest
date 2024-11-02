@@ -1,3 +1,7 @@
+**Kemi Badenoch Vows to Make U.K.’s Tories More Conservative**\
+`Elected as the new leader of Britain’s oldest party, Ms. Badenoch has not hesitated to wade into thorny issues like transgender rights or Britain’s colonial legacy.`\
+https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html
+
 **Did Climate Change and Late Warnings Add to Spain’s Flooding Disaster? Locals Say Yes.**\
 `Spaniards left bereft by extraordinary flooding understand the waters became unstoppable. But they say earlier warnings could have saved lives.`\
 https://nytimes.com/2024/11/02/world/europe/spain-floods-blame.html
