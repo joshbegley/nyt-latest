@@ -1,3 +1,7 @@
+**Dias out until after international break, Stones to be assessed**\
+`Manchester City defender Ruben Dias has been ruled out until after the upcoming international break after missing Saturday&#8217;s defeat to Bournemouth through injury.`\
+https://nytimes.com/athletic/5892600/2024/11/02/ruben-dias-injury-man-city/
+
 **Tim Sheehy says medical records do not exist to prove gunshot story.**\
 `The Republican candidate for U.S. Senate, who has told conflicting stories about the origins of a bullet in his arm, said there are no Montana hospital records to explain his account.`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/tim-sheehy-says-medical-records-do-not-exist-to-prove-gunshot-story
