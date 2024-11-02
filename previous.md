@@ -1,3 +1,15 @@
+**Judge Allows Unusual G.O.P. Strategy to Pump Money Into Senate Races**\
+`Democrats had claimed that the advertising strategy may have violated federal election laws establishing strict limits on spending by national party committees to aid individual candidates.`\
+https://nytimes.com/2024/11/01/us/politics/senate-republicans-ads-money.html
+
+**Kansas lands five-star Darryn Peterson, first top-five commit since 2016**\
+`Peterson, who plays for Prolific Prep in Napa, Calif., chose Kansas over Kansas State, USC and Ohio State.`\
+https://nytimes.com/athletic/5891678/2024/11/01/darryn-peterson-kansas-basketball-recruiting/
+
+**Buster Posey on new GM Zack Minasian: "He gets what it means to be a Giant"**\
+`Posey didn't initially consider Minasian when he compiled a list of candidates. On Friday, Posey introduced him as the Giants' next GM.`\
+https://nytimes.com/athletic/5892152/2024/11/01/sf-giants-gm-zack-minasian-buster-posey/
+
 **Uncertainty Reigns in Nevada With Rise of Nonpartisan Voters**\
 `With early voting coming to a close, Donald Trump and Kamala Harris must now ensure their respective bases show up on Election Day, while chasing down those whose choice is less clear.`\
 https://nytimes.com/2024/11/01/us/politics/nonpartisan-voters-nevada.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/01/technology/nvidia-intel-dow-jones-index.html
 **Scenes from a Dodgers World Series parade: 'Best thing I've ever been a part of'**\
 `Fans denied a parade after the 2020 title made up for lost time with a raucous, emotional celebration this time. `\
 https://nytimes.com/athletic/5891906/2024/11/01/dodgers-parade-world-series-celebration/
-
-**Supreme Court Rejects Bid to Block Count of Some Pennsylvania Provisional Ballots**\
-`Republicans had asked the justices to pause a state court order requiring election boards to count provisional ballots by voters whose mail-in ballots were deemed invalid.`\
-https://nytimes.com/2024/11/01/us/politics/supreme-court-pennsylvania-ballots.html
-
-**Montana Camper Offered His Killer a Beer Before He Was Murdered, Police Say**\
-`DNA from a beer can helped lead the authorities to an arrest in the killing of Dustin Kjersem, whose death was originally reported as a possible bear attack, officials said.`\
-https://nytimes.com/2024/11/01/us/montana-camper-suspect-charged.html
-
-**On the issues: Where Harris and Trump stand on education.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/11/01/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-education
 
