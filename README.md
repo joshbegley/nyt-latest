@@ -1,3 +1,7 @@
+**Investigation of MrBeast’s Company Finds No Evidence of Sexual Misconduct**\
+`An independent law firm led the investigation after allegations of sexual misconduct surfaced against Ava Tyson, a collaborator with the YouTube star MrBeast.`\
+https://nytimes.com/2024/11/02/arts/mrbeast-ava-tyson-investigation.html
+
 **Cubs' Cody Bellinger picks up $27.5 million player option for 2025**\
 `Chicago Cubs outfielder Cody Bellinger has picked up his $27.`\
 https://nytimes.com/athletic/5892843/2024/11/02/cubs-cody-bellinger-contract-mlb-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892806/2024/11/02/islanders-mathew-barzal-adam-pel
 **The Briefing: Bournemouth 2 Manchester City 1: Defensive concerns grow as City's unbeaten start ends on south coast**\
 `Analysis of City's disappointing trip to the Vitality Stadium`\
 https://nytimes.com/athletic/5888196/2024/11/02/bournemouth-manchester-city-result-analysis/
-
-**The Briefing: Liverpool 2-1 Brighton - Advantage Liverpool in Premier League title race**\
-`Liverpool came back from a goal down to take advantage of Arsenal and Manchester City's slips in the Premier League on Saturday`\
-https://nytimes.com/athletic/5888197/2024/11/02/liverpool-brighton-result-premier-league/
 
