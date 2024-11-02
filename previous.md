@@ -1,3 +1,11 @@
+**For one mother and son, the 8-hour wait to vote in Bucks County, Pa., was worth it.**\
+`By Lisa Lerer`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/levittown-pa-long-lines
+
+**A judge extends early-voting hours in a Pennsylvania county after finding it’s short thousands of ballots.**\
+`By Nick Corasaniti and Rebecca Davis O’Brien`\
+https://nytimes.com/live/2024/11/01/us/harris-trump-election/erie-county-voting-mail-ballots
+
 **Michigan lands 4-star CB Shamari Earls, flipping commit from Georgia**\
 `At 6-foot-2 and 180 pounds, Earls profiles as an outside corner who could help fill the shoes of Will Johnson if Johnson goes to the NFL.`\
 https://nytimes.com/athletic/5892238/2024/11/01/michigan-recruiting-shamari-earls-flip-georgia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5891678/2024/11/01/darryn-peterson-kansas-basketbal
 **Buster Posey on new GM Zack Minasian: 'He gets what it means to be a San Francisco Giant'**\
 `Posey didn't initially consider Minasian when he compiled a list of candidates. On Friday, Posey introduced him as the Giants' next GM.`\
 https://nytimes.com/athletic/5892152/2024/11/01/sf-giants-gm-zack-minasian-buster-posey/
-
-**Uncertainty Reigns in Nevada With Rise of Nonpartisan Voters**\
-`With early voting coming to a close, Donald Trump and Kamala Harris must now ensure their respective bases show up on Election Day, while chasing down those whose choice is less clear.`\
-https://nytimes.com/2024/11/01/us/politics/nonpartisan-voters-nevada.html
-
-**As Election Nears, Republicans Blame Child’s Rape on Immigration Crisis**\
-`Wilson Castillo Diaz was arrested in New York in connection with the rape of a 5-year-old girl. On Friday, local Republicans blamed Democratic immigration policies.`\
-https://nytimes.com/2024/11/01/nyregion/5-year-old-raped-long-island-immigration.html
 
