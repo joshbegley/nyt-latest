@@ -1,3 +1,7 @@
+**Global Talks on Nature Adopt a Novel Way to Pay for Conservation**\
+`The meeting created a fund that would compensate countries for the use of genetic information.`\
+https://nytimes.com/2024/11/02/climate/cop16-cali-colombia-nature-biodiversity.html
+
 **Russini’s what I’m hearing about NFL trade deadline: 13 players, 18 teams to watch closely**\
 `What's the latest news on the Jordan Love, Lamar Jackson and Puka Nacua injuries? We have the answers. `\
 https://nytimes.com/athletic/5892177/2024/11/02/nfl-trade-deadline-teams-players/
