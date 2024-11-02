@@ -1,3 +1,7 @@
+**NFL won't decide on potential fine of 49ers' Nick Bosa for wearing 'MAGA' hat postgame until next week: Source**\
+`The NFL will take its time on a decision because the behavior does not involve a play on the field or a potential suspension.`\
+https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-political-statement/
+
 **Harris and Trump Zero In on the Economy as They Race Around the South**\
 `The candidates outlined vastly different messages in Georgia and North Carolina, with Kamala Harris promising to bring down costs and Donald J. Trump exaggerating how bad the recent jobs report was.`\
 https://nytimes.com/2024/11/02/us/politics/harris-trump-georgia-north-carolina-virginia.html
