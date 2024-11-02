@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 1 Arsenal 0: More St James' Park dismay for Arteta as Willock impresses for hosts**\
+`Analysis of the key talking points from Saturday's Premier League game at St James' Park`\
+https://nytimes.com/athletic/5888195/2024/11/02/newcastle-arsenal-result-analysis/
+
+**Berkshire Continues Retreat From Stocks**\
+`The conglomerate reported on Saturday that it had cut its holdings in Apple and Bank of America and increased its cash to a record high in the third quarter.`\
+https://nytimes.com/2024/11/02/business/berkshire-hathaway-warren-buffett.html
+
 **Raptors' Vince Carter to be first in franchise to have jersey retired**\
 `Carter averaged 23.4 points, 5.2 rebounds and 3.9 assists per game in 403 games as a Raptor.`\
 https://nytimes.com/athletic/5890917/2024/11/02/vince-carter-nba-jersey-retirement-raptors/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/02/us/trump-harris-election/on-the-issues-where
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/02/nhl-standings-playoffs-projections-odds/
-
-**In Politics, Pro Athletes (and Owners) Are Just Like the Rest of Us: Divided**\
-`A pro-Harris video from LeBron James. A pro-Trump hat on Nick Bosa. With Election Day near, more have been showing their preference.`\
-https://nytimes.com/2024/11/02/business/harris-trump-pro-sports-political-support.html
-
-**What I’m seeing from the Blues through October: Inconsistency in abundance**\
-`For the Blues, the additions of Philip Broberg and Dylan Holloway bring some hope for the future.`\
-https://nytimes.com/athletic/5890886/2024/11/02/blues-nhl-season-jordan-kyrou/
 

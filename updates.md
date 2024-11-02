@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 1 Arsenal 0: More St James' Park dismay for Arteta as Willock impresses for hosts**\
+`Analysis of the key talking points from Saturday's Premier League game at St James' Park`\
+https://nytimes.com/athletic/5888195/2024/11/02/newcastle-arsenal-result-analysis/
+
+**Berkshire Continues Retreat From Stocks**\
+`The conglomerate reported on Saturday that it had cut its holdings in Apple and Bank of America and increased its cash to a record high in the third quarter.`\
+https://nytimes.com/2024/11/02/business/berkshire-hathaway-warren-buffett.html
+
 **Raptors' Vince Carter to be first in franchise to have jersey retired**\
 `Carter averaged 23.4 points, 5.2 rebounds and 3.9 assists per game in 403 games as a Raptor.`\
 https://nytimes.com/athletic/5890917/2024/11/02/vince-carter-nba-jersey-retirement-raptors/
