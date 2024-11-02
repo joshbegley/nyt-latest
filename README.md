@@ -1,3 +1,11 @@
+**Marcelo leaves Fluminense after altercation with head coach**\
+`Former Real Madrid defender Marcelo has left Fluminense by mutual agreement following a touchline altercation with the club&#8217;s head coach.`\
+https://nytimes.com/athletic/5892836/2024/11/02/marcelos-fluminense-contract-terminated/
+
+**Browns place Pro Bowl LB Jeremiah Owusu-Koramoah on IR**\
+`Owusu-Koramoah leads the Browns in tackles (61) and is tied for second in the NFL with 10 tackles for loss.`\
+https://nytimes.com/athletic/5892709/2024/11/02/browns-jeremian-owusu-koramoan-injured-reserve/
+
 **If there's a dynasty in NWSL, it's the Portland Thorns. What's next?**\
 `The Thorns have enjoyed success like no other in NWSL but what will 2025 bring - without Christine Sinclair?`\
 https://nytimes.com/athletic/5892479/2024/11/02/portland-thorns-nwsl-dynasty-sinclair/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5892694/2024/11/02/bryson-daily-army-injury-illness
 **Biden Left the Presidential Race, but His Legacy Depends on It**\
 `The Trump campaign has taken aim at many of President Biden’s signature legislative achievements.`\
 https://nytimes.com/2024/11/02/us/politics/biden-election-legacy.html
-
-**Trump’s Microphone Trouble in Milwaukee Leaves Him ‘Seething’**\
-`After rally goers complained that they could not hear him, the former president asked, “Do you want to see me knock the hell out of people backstage?”`\
-https://nytimes.com/2024/11/02/us/politics/trump-microphone-milwaukee-rally.html
-
-**In Florida, weed might be more popular than abortion rights.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2024/11/02/us/trump-harris-election/in-florida-weed-might-be-more-popular-than-abortion-rights
 
