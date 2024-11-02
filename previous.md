@@ -1,3 +1,11 @@
+**Will Democracy Ever Not Be on the Ballot?**\
+`It is on Tuesday. It was four years ago — and eight years ago, too.`\
+https://nytimes.com/2024/11/02/opinion/trump-election-maga-republican-democracy.html
+
+**What a Trump Rally Showed Me That Videos Never Could**\
+`At Donald J. Trump’s rally at Madison Square Garden on Sunday, a Times reporter saw a more complete picture of the people who fuel his political movement.`\
+https://nytimes.com/2024/11/02/insider/trump-rally-crowd-msg.html
+
 **Here’s the latest on the storm.**\
 `By John Keefe`\
 https://nytimes.com/live/2024/11/02/weather/tropical-storm-patty-hurricane/heres-the-latest-on-the-storm
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5892522/2024/11/02/f1-swearing-charles-leclerc-max-
 **5 reasons why the Hurricanes have exceeded expectations**\
 `Since an opening-night loss, the Hurricanes have won seven of eight games.`\
 https://nytimes.com/athletic/5892464/2024/11/02/carolina-hurricanes-start-season-capitals/
-
-**Split on Economic Policy Puts Germany’s Government at Risk of Collapse**\
-`A breakup of the divided and unpopular coalition well before elections set for next September could leave the country directionless at a critical time for Europe.`\
-https://nytimes.com/2024/11/02/world/europe/germany-coalition-government.html
-
-**As Colts turn to Joe Flacco, could GM Chris Ballard be a buyer at NFL trade deadline?**\
-`By benching Anthony Richardson, the Colts have made it clear their priority is winning now. So, will Ballard get aggressive at the deadline?`\
-https://nytimes.com/athletic/5892136/2024/11/02/colts-nfl-trade-deadline-joe-flacco-chris-ballard/
 

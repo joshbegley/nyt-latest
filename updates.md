@@ -1,3 +1,11 @@
+**Will Democracy Ever Not Be on the Ballot?**\
+`It is on Tuesday. It was four years ago — and eight years ago, too.`\
+https://nytimes.com/2024/11/02/opinion/trump-election-maga-republican-democracy.html
+
+**What a Trump Rally Showed Me That Videos Never Could**\
+`At Donald J. Trump’s rally at Madison Square Garden on Sunday, a Times reporter saw a more complete picture of the people who fuel his political movement.`\
+https://nytimes.com/2024/11/02/insider/trump-rally-crowd-msg.html
+
 **Patty Forms as a Subtropical Storm Near the Azores**\
 `The system is expected to weaken before approaching Europe next week.`\
 https://nytimes.com/live/2024/11/02/weather/subtropical-storm-patty-hurricane
