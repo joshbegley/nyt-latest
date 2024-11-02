@@ -1,3 +1,11 @@
+**NFL delaying decision on potential fine of 49ers' Nick Bosa for wearing 'MAGA' hat**\
+`The NFL will take its time on a decision because the behavior does not involve a play on the field or a potential suspension.`\
+https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-political-statement/
+
+**Ohio State slams door shut on Penn State's big-game dreams yet again: Takeaways**\
+`No. 4 Ohio State used a fourth-quarter goal-line stand to hand No. 3 Penn State its first loss, 20-13, in front of a record crowd.`\
+https://nytimes.com/athletic/5892930/2024/11/02/ohio-state-penn-state-score-recap/
+
 **Adams Issues Drought Watch for New York City as Dry Weather Persists**\
 `The measure, announced by the mayor on Saturday, does not impose restrictions on New Yorkers, but officials are urging residents to use less water.`\
 https://nytimes.com/2024/11/02/nyregion/drought-watch-nyc-weather.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/02/world/middleeast/israel-naval-commandos-hezbollah
 **Konate to undergo scan on arm injury - Slot**\
 `Arne Slot admits Liverpool face a nervous wait to find out the extent of the injury Ibrahima Konate suffered in their 2-1 win over Brighton &amp; Hove Albion on Saturday.`\
 https://nytimes.com/athletic/5892715/2024/11/02/ibrahima-konate-to-undergo-scan-on-arm-injury-arne-slot/
-
-**In Georgia, Black men’s frustration with Democrats creates opening for Trump.**\
-`By Maya King, Jonathan Weisman and Ruth Igielnik`\
-https://nytimes.com/live/2024/11/02/us/trump-harris-election/in-georgia-black-mens-frustration-with-democrats-creates-opening-for-trump
-
-**Patriots' Maye clears concussion protocol, expected to start vs. Titans**\
-`The Patriots’ offense has looked drastically better with the rookie under center and now faces a tough matchup against the Titans defense.`\
-https://nytimes.com/athletic/5892958/2024/11/02/patriots-drake-maye-concussion-injury-update/
 
