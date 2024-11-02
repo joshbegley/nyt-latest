@@ -1,3 +1,11 @@
+**USF's Alex Golesh snubs FAU's Tom Herman with frosty handshake**\
+`"Whatever was said, I'm good,” Golesh said of the exchange with Herman after USF's 44-21 victory.`\
+https://nytimes.com/athletic/5892436/2024/11/02/usf-fau-alex-golesh-tom-herman-handshake/
+
+**Jaylen Brown, Celtics furious after Grant Williams' hard foul on Jayson Tatum**\
+`Celtics players weren't buying Williams' claim that the foul wasn't intentional. Joe Mazzulla said he appreciated how Brown defended Tatum.`\
+https://nytimes.com/athletic/5892271/2024/11/02/celtics-hornets-jayson-tatum-grant-williams-ejection/
+
 **Jaylen Brown, Celtics furious after Grant Williams' hard foul on Jayson Tatum**\
 `Celtics players weren’t buying Williams’ claim that the foul wasn’t intentional. Joe Mazzulla said he appreciated how Brown defended Tatum.`\
 https://nytimes.com/athletic/5892271/2024/11/02/celtics-hornets-jayson-tatum-grant-williams-ejection/

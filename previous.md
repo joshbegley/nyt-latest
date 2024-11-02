@@ -1,5 +1,9 @@
+**USF's Alex Golesh snubs FAU's Tom Herman with frosty handshake**\
+`"Whatever was said, I'm good,” Golesh said of the exchange with Herman after USF's 44-21 victory.`\
+https://nytimes.com/athletic/5892436/2024/11/02/usf-fau-alex-golesh-tom-herman-handshake/
+
 **Jaylen Brown, Celtics furious after Grant Williams' hard foul on Jayson Tatum**\
-`Celtics players weren’t buying Williams’ claim that the foul wasn’t intentional. Joe Mazzulla said he appreciated how Brown defended Tatum.`\
+`Celtics players weren't buying Williams' claim that the foul wasn't intentional. Joe Mazzulla said he appreciated how Brown defended Tatum.`\
 https://nytimes.com/athletic/5892271/2024/11/02/celtics-hornets-jayson-tatum-grant-williams-ejection/
 
 **Inside the deal to appoint Ruben Amorim as Manchester United head coach**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892345/2024/11/02/timberwolves-nuggets-result-take
 **LeBron James will be done tormenting the Raptors soon enough**\
 `At age 39, James delivered another obliteration of the Raptors. This time, some Toronto fans liked it.`\
 https://nytimes.com/athletic/5892279/2024/11/02/lebron-james-torments-toronto-raptors/
-
-**How Sabres repeated same mistakes in avoidable loss to Islanders: 3 takeaways**\
-`Buffalo once again missed assignments on defense, had sloppy puck management and an inability to win battles for loose pucks.`\
-https://nytimes.com/athletic/5892292/2024/11/02/sabres-islanders-mistakes-takeaways/
 
