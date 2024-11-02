@@ -1,3 +1,11 @@
+**Indiana continues undefeated season with first 9-0 start in program history**\
+`If the Hosiers beat Michigan next week, they’ll be the first Indiana team with double figures in victories.`\
+https://nytimes.com/athletic/5893530/2024/11/02/indiana-undefeated-college-football-teams/
+
+**TGI Fridays, the Casual Dining Chain, Files for Bankruptcy**\
+`The company filed for Chapter 11 bankruptcy protection on Saturday but said its restaurants would remain open while it works on a “restructuring process.”`\
+https://nytimes.com/2024/11/02/business/tgi-fridays-bankruptcy.html
+
 **Comeback falls short: Takeaways from yet another Nebraska debacle**\
 `Matt Rhule’s team was beaten in stunning fashion for the second time in three weeks. Can the Huskers rebound?`\
 https://nytimes.com/athletic/5893485/2024/11/02/nebraska-ucla-dylan-raiola/
