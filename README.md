@@ -1,3 +1,11 @@
+**Split on Economic Policy Puts Germany’s Government at Risk of Collapse**\
+`A breakup of the divided and unpopular coalition well before elections set for next September could leave the country directionless at a critical time for Europe.`\
+https://nytimes.com/2024/11/02/world/europe/germany-coalition-government.html
+
+**As Colts turn to Joe Flacco, could GM Chris Ballard be a buyer at NFL trade deadline?**\
+`By benching Anthony Richardson, the Colts have made it clear their priority is winning now. So, will Ballard get aggressive at the deadline?`\
+https://nytimes.com/athletic/5892136/2024/11/02/colts-nfl-trade-deadline-joe-flacco-chris-ballard/
+
 **A sleeper Senate race tightens in Nebraska as an independent gains.**\
 `By Maya C. Miller`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/a-sleeper-senate-race-tightens-in-nebraska-as-an-independent-gains
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/02/insider/president-photos-doug-mills.html
 **Alexander-Walker's NBA journey comes full circle in game-saving flurry vs. Nuggets**\
 `Alexander-Walker contributes on offense and defense late in the game as the Timberwolves edge the Nuggets.`\
 https://nytimes.com/athletic/5892175/2024/11/02/nickeil-alexander-walker-journey-timberwolves-nuggets/
-
-**Zion Williamson, Brandon Ingram face their greatest test yet as Pelicans’ injuries mount**\
-`Friday’s win over the Pacers was a moment of truth for the Pelicans and their two most important players.`\
-https://nytimes.com/athletic/5892484/2024/11/02/zion-williamson-brandon-ingram-pelicans/
-
-**On the issues: Where Harris and Trump stand on climate change.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/11/02/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-climate-change
 
