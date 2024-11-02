@@ -1,3 +1,7 @@
+**How Igor Shesterkin cleaned 'up the stink' of sloppy Rangers: 3 takeaways**\
+`With 40 saves, Shesterkin stole the show once again in the Rangers' 2-1 win over the Senators.`\
+https://nytimes.com/athletic/5892249/2024/11/01/rangers-senators-igor-shesterkin/
+
 **Judge Finds Pennsylvania County Short of Ballots and Extends Early-Voting Hours**\
 `A state judge in Erie County, Pa., found that thousands of voters may not have received their ballots in time for the election on Tuesday, ordering the county to remedy the issue.`\
 https://nytimes.com/2024/11/01/us/politics/erie-county-voting-mail-ballots.html

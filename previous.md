@@ -1,3 +1,7 @@
+**How Igor Shesterkin cleaned 'up the stink' of sloppy Rangers: 3 takeaways**\
+`With 40 saves, Shesterkin stole the show once again in the Rangers' 2-1 win over the Senators.`\
+https://nytimes.com/athletic/5892249/2024/11/01/rangers-senators-igor-shesterkin/
+
 **How Kirill Kaprizov's dominance, Filip Gustavsson's bounce back fueled Wild win: 3 takeaways**\
 `The Wild returned home for the first time since Oct. 12 and improved to 15-3 all time at home against the Lightning with a 5-3 victory.`\
 https://nytimes.com/athletic/5892159/2024/11/01/wild-lightning-kirill-kaprizov-filip-gustavsson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/01/pageoneplus/corrections-nov-2-2024.html
 **Judge Allows Unusual G.O.P. Strategy to Pump Money Into Senate Races**\
 `Democrats had claimed that the advertising strategy may have violated federal election laws establishing strict limits on spending by national party committees to aid individual candidates.`\
 https://nytimes.com/2024/11/01/us/politics/senate-republicans-ads-money.html
-
-**Kansas lands five-star Darryn Peterson, first top-five commit since 2016**\
-`Peterson, who plays for Prolific Prep in Napa, Calif., chose Kansas over Kansas State, USC and Ohio State.`\
-https://nytimes.com/athletic/5891678/2024/11/01/darryn-peterson-kansas-basketball-recruiting/
 
