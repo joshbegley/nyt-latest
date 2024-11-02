@@ -1,3 +1,11 @@
+**NFL delaying decision on potential fine of 49ers' Nick Bosa for wearing 'MAGA' hat**\
+`The NFL will take its time on a decision because the behavior does not involve a play on the field or a potential suspension.`\
+https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-political-statement/
+
+**Ohio State slams door shut on Penn State's big-game dreams yet again: Takeaways**\
+`No. 4 Ohio State used a fourth-quarter goal-line stand to hand No. 3 Penn State its first loss, 20-13, in front of a record crowd.`\
+https://nytimes.com/athletic/5892930/2024/11/02/ohio-state-penn-state-score-recap/
+
 **Adams Issues Drought Watch for New York City as Dry Weather Persists**\
 `The measure, announced by the mayor on Saturday, does not impose restrictions on New Yorkers, but officials are urging residents to use less water.`\
 https://nytimes.com/2024/11/02/nyregion/drought-watch-nyc-weather.html
