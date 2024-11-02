@@ -1,3 +1,7 @@
+**Harris and Trump Zero In on the Economy as They Race Around the South**\
+`The candidates outlined vastly different messages in Georgia and North Carolina, with Kamala Harris promising to bring down costs and Donald J. Trump exaggerating how bad the recent jobs report was.`\
+https://nytimes.com/2024/11/02/us/politics/harris-trump-georgia-north-carolina-virginia.html
+
 **'I can be the best player in the world': Aryna Sabalenka aims to crown the season of her life**\
 `12 months ago, Aryna Sabalenka said she was "disrespected" by the WTA Tour. In Riyadh, she stands to end the year atop it.`\
 https://nytimes.com/athletic/5892488/2024/11/02/aryna-sabalenka-number-one-wta-finals/
