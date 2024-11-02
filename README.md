@@ -6,7 +6,7 @@ https://nytimes.com/2024/11/01/us/politics/senate-republicans-ads-money.html
 `Peterson, who plays for Prolific Prep in Napa, Calif., chose Kansas over Kansas State, USC and Ohio State.`\
 https://nytimes.com/athletic/5891678/2024/11/01/darryn-peterson-kansas-basketball-recruiting/
 
-**Buster Posey on new GM Zack Minasian: "He gets what it means to be a Giant"**\
+**Buster Posey on new GM Zack Minasian: "He gets what it means to be a San Francisco Giant"**\
 `Posey didn't initially consider Minasian when he compiled a list of candidates. On Friday, Posey introduced him as the Giants' next GM.`\
 https://nytimes.com/athletic/5892152/2024/11/01/sf-giants-gm-zack-minasian-buster-posey/
 
