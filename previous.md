@@ -1,3 +1,11 @@
+**The Briefing:**\
+`Analysis of City's disappointing trip to the Vitality Stadium`\
+https://nytimes.com/athletic/5888196/2024/11/02/bournemouth-manchester-city-result-analysis/
+
+**The Briefing: Liverpool 2-1 Brighton - Advantage Liverpool in Premier League title race**\
+`Liverpool came back from a goal down to take advantage of Arsenal and Manchester City's slips in the Premier League on Saturday`\
+https://nytimes.com/athletic/5888197/2024/11/02/liverpool-brighton-result-premier-league/
+
 **Gerrit Cole opts out of contract: How Yankees could prevent him from testing free agency**\
 `The Yankees can void Cole's opt-out by adding a 10th year and an additional $36 million to his current deal.`\
 https://nytimes.com/athletic/5892774/2024/11/02/yankees-gerrit-cole-free-agent-contract-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/02/opinion/trump-election-maga-republican-democracy.
 **What a Trump Rally Showed Me That Videos Never Could**\
 `At Donald J. Trump’s rally at Madison Square Garden on Sunday, a Times reporter saw a more complete picture of the people who fuel his political movement.`\
 https://nytimes.com/2024/11/02/insider/trump-rally-crowd-msg.html
-
-**Here’s the latest on the storm.**\
-`By John Keefe`\
-https://nytimes.com/live/2024/11/02/weather/subtropical-storm-patty-hurricane/heres-the-latest-on-the-storm
-
-**Patty Forms as a Subtropical Storm Near the Azores**\
-`The system is expected to weaken before approaching Europe next week.`\
-https://nytimes.com/live/2024/11/02/weather/subtropical-storm-patty-hurricane
 
