@@ -1,3 +1,15 @@
+**Can I Have a Raise?**\
+`Share Sid Sivakumar’s Sunday puzzle with management.`\
+https://nytimes.com/2024/11/02/crosswords/daily-puzzle-2024-11-03.html
+
+**On the issues: Where Harris and Trump stand on democracy.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-democracy
+
+**James Ledbetter, Media Critic and Business Journalist, Dies at 60**\
+`He wrote the Press Clips column for The Village Voice, held top jobs at Inc. magazine and Slate, and wrote a book about how the startup magazine The Industry Standard fizzled.`\
+https://nytimes.com/2024/11/02/business/media/james-ledbetter-dead.html
+
 **6th Tennessee Factory Worker Is Found a Month After Flooding From Helene**\
 `She is believed to be the last employee who was missing after the plastics plant flooded. Authorities are still investigating the circumstances around the deaths.`\
 https://nytimes.com/2024/11/02/us/hurricane-helene-body-tennessee.html
