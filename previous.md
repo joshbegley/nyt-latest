@@ -1,3 +1,7 @@
+**Photographing Every President Since Reagan**\
+`Doug Mills reflects on nearly 40 years of taking photos of presidents.`\
+https://nytimes.com/2024/11/02/insider/president-photos-doug-mills.html
+
 **Alexander-Walker's NBA journey comes full circle in game-saving flurry vs. Nuggets**\
 `Alexander-Walker contributes on offense and defense late in the game as the Timberwolves edge the Nuggets.`\
 https://nytimes.com/athletic/5892175/2024/11/02/nickeil-alexander-walker-journey-timberwolves-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/books/read-like-wind-recommendations.html
 **Kemi Badenoch Becomes First Black Woman to Lead Britain’s Conservative Party**\
 `Ms. Badenoch is expected to move the party, now in the opposition, further to the right.`\
 https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html
-
-**Amid Flood Cleanup in Spain, Residents Try to Make Sense of the Disaster**\
-`Some see the floods as an example of the effect of a changing climate that is making overwhelming downpours more common. Locals also say government warnings came too late.`\
-https://nytimes.com/2024/11/02/world/europe/spain-floods-blame.html
 

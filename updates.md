@@ -1,3 +1,7 @@
+**Photographing Every President Since Reagan**\
+`Doug Mills reflects on nearly 40 years of taking photos of presidents.`\
+https://nytimes.com/2024/11/02/insider/president-photos-doug-mills.html
+
 **Alexander-Walker's NBA journey comes full circle in game-saving flurry vs. Nuggets**\
 `Alexander-Walker contributes on offense and defense late in the game as the Timberwolves edge the Nuggets.`\
 https://nytimes.com/athletic/5892175/2024/11/02/nickeil-alexander-walker-journey-timberwolves-nuggets/
