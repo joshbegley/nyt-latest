@@ -1,3 +1,7 @@
+**Raptors' Vince Carter to be first in franchise to have jersey retired**\
+`Carter averaged 23.4 points, 5.2 rebounds and 3.9 assists per game in 403 games as a Raptor.`\
+https://nytimes.com/athletic/5890917/2024/11/02/vince-carter-nba-jersey-retirement-raptors/
+
 **Global Talks on Nature Adopt a Novel Way to Pay for Conservation**\
 `The meeting created a fund that would compensate countries for the use of genetic information.`\
 https://nytimes.com/2024/11/02/climate/cop16-cali-colombia-nature-biodiversity.html
