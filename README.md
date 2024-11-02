@@ -18,8 +18,8 @@ https://nytimes.com/2024/11/02/books/read-like-wind-recommendations.html
 `Ms. Badenoch is expected to move the party, now in the opposition, further to the right.`\
 https://nytimes.com/2024/11/02/world/europe/kemi-badenoch-uk-tory-leadership-election-2024.html
 
-**Did Climate Change and Late Warnings Add to Spain’s Flooding Disaster? Locals Say Yes.**\
-`Spaniards left bereft by extraordinary flooding understand the waters became unstoppable. But they say earlier warnings could have saved lives.`\
+**Amid Flood Cleanup in Spain, Residents Try to Make Sense of the Disaster**\
+`Some see the floods as an example of the effect of a changing climate that is making overwhelming downpours more common. Locals also say government warnings came too late.`\
 https://nytimes.com/2024/11/02/world/europe/spain-floods-blame.html
 
 **Vote to End the Trump Era**\
