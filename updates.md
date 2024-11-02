@@ -1,3 +1,11 @@
+**O'Neil 'not interested' in discussing Wolves future**\
+`Wolverhampton Wanderers head coach Gary O’Neil says he is &#8220;not interested&#8221; in discussing his future after his team’s winless start to the season extended to 10 games.`\
+https://nytimes.com/athletic/5893274/2024/11/02/gary-oneil-wolves-future-crystal-palace/
+
+**Dub Jones, Who Scored 6 Touchdowns for Browns in One Game, Dies at 99**\
+`A 6-foot-4 halfback and flanker, he was a tall, reliable target for Browns quarterback Otto Graham as Cleveland rolled to titles in the late 1940s and ’50s.`\
+https://nytimes.com/2024/11/02/sports/football/dub-jones-dead.html
+
 **Ohio State earns marquee win, adds to Penn State's big-game misery again: Takeaways**\
 `No. 4 Ohio State used a fourth-quarter goal-line stand to hand No. 3 Penn State its first loss, 20-13, in front of a record crowd.`\
 https://nytimes.com/athletic/5892930/2024/11/02/ohio-state-penn-state-score-recap/
