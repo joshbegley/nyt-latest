@@ -1,3 +1,11 @@
+**No, vote spikes on election night do not indicate voter fraud.**\
+`The false claim, which has circulated in recent elections, is based on a misunderstanding of how votes are collected and reported.`\
+https://nytimes.com/2024/11/01/technology/vote-spikes-election-night-voter-fraud.html
+
+**Band Aids**\
+`Blake Slonecker delivers a cutting-edge Saturday puzzle.`\
+https://nytimes.com/2024/11/01/crosswords/daily-puzzle-2024-11-02.html
+
 **Corrections: Nov. 2, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 2, 2024.`\
 https://nytimes.com/2024/11/01/pageoneplus/corrections-nov-2-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/01/us/politics/george-w-bush-nicole-wallace-2024-ele
 **Newcastle vs Arsenal preview: Storylines, odds, prediction as Gunners look to bounce back**\
 `Newcastle is winless in their last five Premier League matches and have a tough task with Arsenal visiting St James' Park.`\
 https://nytimes.com/athletic/5880956/2024/11/01/newcastle-arsenal-preview-odds-prediction/
-
-**Yankees exercise option on Luke Weaver**\
-`The Yankees exercised a $2.5 million club option for Weaver, who became the team's closer in September.`\
-https://nytimes.com/athletic/5892053/2024/11/01/yankees-options-luke-weaver-anthony-rizzo-lou-trivino/
-
-**Nvidia Will Replace Intel in the Dow Jones Stock Index**\
-`The change, starting next Friday, lifts a dominant player in artificial intelligence over its chip-making rival, which has struggled to keep up.`\
-https://nytimes.com/2024/11/01/technology/nvidia-intel-dow-jones-index.html
 
