@@ -1,3 +1,7 @@
+**Ravens looking for a return to normalcy vs. Broncos following angst-ridden week**\
+`How will the defense respond coming off a disappointing outing in Week 8? And will Denver's blitz-heavy approach affect Lamar Jackson?`\
+https://nytimes.com/athletic/5891595/2024/11/02/ravens-broncos-preview-lamar-jackson/
+
 **Peter Singer Wants to Shatter Your Moral Complacency**\
 `The controversial philosopher discusses societal taboos, Thanksgiving turkeys and whether anyone is doing enough to make the world a better place.`\
 https://nytimes.com/2024/11/02/magazine/peter-singer-interview.html
