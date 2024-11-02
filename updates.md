@@ -1,3 +1,7 @@
+**Michkov, Tortorella may have cleared the first hurdle in their Flyers relationship**\
+`Tortorella benched the Flyers' young star for two early shifts against the Blues.`\
+https://nytimes.com/athletic/5893106/2024/11/02/flyers-michkov-tortorella-relationship/
+
 **O'Neil 'not interested' in discussing Wolves future**\
 `Wolverhampton Wanderers head coach Gary O’Neil says he is &#8220;not interested&#8221; in discussing his future after his team’s winless start to the season extended to 10 games.`\
 https://nytimes.com/athletic/5893274/2024/11/02/gary-oneil-wolves-future-crystal-palace/

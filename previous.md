@@ -1,3 +1,7 @@
+**Michkov, Tortorella may have cleared the first hurdle in their Flyers relationship**\
+`Tortorella benched the Flyers' young star for two early shifts against the Blues.`\
+https://nytimes.com/athletic/5893106/2024/11/02/flyers-michkov-tortorella-relationship/
+
 **O'Neil 'not interested' in discussing Wolves future**\
 `Wolverhampton Wanderers head coach Gary O’Neil says he is &#8220;not interested&#8221; in discussing his future after his team’s winless start to the season extended to 10 games.`\
 https://nytimes.com/athletic/5893274/2024/11/02/gary-oneil-wolves-future-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893058/2024/11/02/nfl-nick-bosa-fine-decision-poli
 **Ohio State earns marquee win, adds to Penn State's big-game misery again: Takeaways**\
 `No. 4 Ohio State used a fourth-quarter goal-line stand to hand No. 3 Penn State its first loss, 20-13, in front of a record crowd.`\
 https://nytimes.com/athletic/5892930/2024/11/02/ohio-state-penn-state-score-recap/
-
-**Adams Issues Drought Watch for New York City as Dry Weather Persists**\
-`The measure, announced by the mayor on Saturday, does not impose restrictions on New Yorkers, but officials are urging residents to use less water.`\
-https://nytimes.com/2024/11/02/nyregion/drought-watch-nyc-weather.html
 
