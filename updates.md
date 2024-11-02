@@ -1,3 +1,11 @@
+**Michigan lands 4-star CB Shamari Earls, flipping commit from Georgia**\
+`At 6-foot-2 and 180 pounds, Earls profiles as an outside corner who could help fill the shoes of Will Johnson if Johnson goes to the NFL.`\
+https://nytimes.com/athletic/5892238/2024/11/01/michigan-recruiting-shamari-earls-flip-georgia/
+
+**Federal Jury Finds Ex-Officer Guilty of Violating Breonna Taylor’s Rights**\
+`The former detective fired 10 shots through Ms. Taylor’s apartment in a raid that set off a wave of protests across the country.`\
+https://nytimes.com/2024/11/01/us/breonna-taylor-brett-hankison-verdict.html
+
 **No, vote spikes on election night do not indicate voter fraud.**\
 `The false claim, which has circulated in recent elections, is based on a misunderstanding of how votes are collected and reported.`\
 https://nytimes.com/2024/11/01/technology/vote-spikes-election-night-voter-fraud.html
