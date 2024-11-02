@@ -1,3 +1,7 @@
+**Buncombe County, N.C.**\
+`By Christina Morales`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/buncombe-county-nc
+
 **Richard A. Cash, Who Saved Millions From Dehydration, Dies at 83**\
 `He worked alongside another doctor to show that a simple rehydration therapy could check the ravages of cholera and other diarrhea-inducing diseases.`\
 https://nytimes.com/2024/11/02/science/richard-cash-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/02/us/trump-harris-election/a-sleeper-senate-ra
 **The Briefing: Newcastle 1 Arsenal 0: More St James' Park dismay for Arteta as Willock impresses for hosts**\
 `Analysis of the key talking points from Saturday's Premier League game at St James' Park`\
 https://nytimes.com/athletic/5888195/2024/11/02/newcastle-arsenal-result-analysis/
-
-**Fantasy football rankings Week 9: Sleepers, projections, starts, Patrick Mahomes, Josh Downs**\
-`Jake Ciely offers up his Week 9 fantasy football rankings, and likes Patrick Mahomes to finally have a big day versus a porous Bucs defense.`\
-https://nytimes.com/athletic/5883846/2024/11/02/fantasy-football-rankings-week-9-sleepers-projections-starts-patrick-mahomes-josh-downs/
 

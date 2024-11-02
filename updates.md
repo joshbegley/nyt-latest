@@ -1,3 +1,7 @@
+**Buncombe County, N.C.**\
+`By Christina Morales`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/buncombe-county-nc
+
 **Richard A. Cash, Who Saved Millions From Dehydration, Dies at 83**\
 `He worked alongside another doctor to show that a simple rehydration therapy could check the ravages of cholera and other diarrhea-inducing diseases.`\
 https://nytimes.com/2024/11/02/science/richard-cash-dead.html
