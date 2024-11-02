@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
 
+**Blue Jackets crumble under Jets' withering pressure**\
+`The structured, smart game the Blue Jackets have flashed this season was nonexistent versus the Jets. 
+`\
+https://nytimes.com/athletic/5892244/2024/11/01/blue-jackets-winnipeg-jets-loss/
+
 **How Sabres repeated same mistakes in avoidable loss to Islanders: 3 takeaways**\
 `Buffalo once again missed assignments on defense, had sloppy puck management and an inability to win battles for loose pucks.`\
 https://nytimes.com/athletic/5892292/2024/11/02/sabres-islanders-mistakes-takeaways/
