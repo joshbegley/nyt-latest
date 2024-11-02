@@ -1,3 +1,11 @@
+**No, vote spikes on election night do not indicate voter fraud.**\
+`The false claim, which has circulated in recent elections, is based on a misunderstanding of how votes are collected and reported.`\
+https://nytimes.com/2024/11/01/technology/vote-spikes-election-night-voter-fraud.html
+
+**Band Aids**\
+`Blake Slonecker delivers a cutting-edge Saturday puzzle.`\
+https://nytimes.com/2024/11/01/crosswords/daily-puzzle-2024-11-02.html
+
 **Corrections: Nov. 2, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 2, 2024.`\
 https://nytimes.com/2024/11/01/pageoneplus/corrections-nov-2-2024.html
