@@ -1,3 +1,15 @@
+**6th Tennessee Factory Worker Is Found a Month After Flooding From Helene**\
+`She is believed to be the last employee who was missing after the plastics plant flooded. Authorities are still investigating the circumstances around the deaths.`\
+https://nytimes.com/2024/11/02/us/hurricane-helene-body-tennessee.html
+
+**What to Know About the Electoral College**\
+`“This is a very unique and bespoke system that I think nobody would create again today,” one expert said.`\
+https://nytimes.com/2024/11/02/us/politics/what-is-the-electoral-college.html
+
+**Chicago Sky hire Tyler Marsh as head coach: Sources**\
+`Marsh led the Aces' player development as the team won back-to-back titles in 2022-23.`\
+https://nytimes.com/athletic/5893352/2024/11/02/chicago-sky-hire-tyler-marsh-wnba/
+
 **Cowboys' Elliott won't travel with team to Atlanta for Sunday matchup**\
 `Elliott is sidelined for disciplinary reasons, per a league source.`\
 https://nytimes.com/athletic/5893323/2024/11/02/ezekiel-elliott-inactive-cowboys/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/02/sports/football/dub-jones-dead.html
 **How does The Times approach election coverage?**\
 `By Megan DiTrolio`\
 https://nytimes.com/live/2024/11/02/us/trump-harris-election/how-does-the-times-approach-election-coverage
-
-**Brown County, Wis.**\
-`By Julie Bosman`\
-https://nytimes.com/live/2024/11/02/us/trump-harris-election/brown-county-wis
-
-**F1 São Paulo GP qualifying postponed after heavy rain soaks Interlagos**\
-`It remains to be confirmed when qualifying will take place ahead of Sunday's grand prix. `\
-https://nytimes.com/athletic/5893042/2024/11/02/f1-brazil-gp-qualifying-postponed-schedule/
-
-**Trump and Harris Offer Night-and-Day Views of the Economy**\
-`The candidates outlined vastly different messages in Georgia and North Carolina, with Donald J. Trump exaggerating how bad the recent jobs report was and Kamala Harris promising to bring down costs`\
-https://nytimes.com/2024/11/02/us/politics/harris-trump-georgia-north-carolina-virginia.html
 
