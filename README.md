@@ -22,7 +22,7 @@ https://nytimes.com/2024/11/02/world/europe/spain-floods-blame.html
 `America should demand better.`\
 https://nytimes.com/interactive/2024/11/02/opinion/vote-harris-2024-election.html
 
-**Springsteen Fights Back the Darkness at the Edge of America**\
+**Springsteen Is Fighting Back the Darkness at the Edge of America**\
 `His music offers a model of how we all might just get through this.`\
 https://nytimes.com/2024/11/02/opinion/bruce-springsteen-politics-fans.html
 
