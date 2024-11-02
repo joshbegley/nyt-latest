@@ -1,3 +1,7 @@
+**Washoe County, Nev.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2024/11/02/us/trump-harris-election/washoe-county-nev
+
 **Was Saturday a better win for Ryan Day or a worse loss for James Franklin?**\
 `The Nittany Lions' loss was the latest instance of Franklin's team coming up short in big moments. They're now 1-13 against top-five teams.`\
 https://nytimes.com/athletic/5893342/2024/11/02/penn-state-football-james-franklin-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893323/2024/11/02/ezekiel-elliott-inactive-cowboys
 **Lowetide: How 2 Oilers summer trade bets are showing well in AHL**\
 `Two summer trades are showing signs of delivering young talent that is quality and comes with a satisfactory cap hit.`\
 https://nytimes.com/athletic/5892769/2024/11/02/edmonton-oilers-ahl-savoie-jarventie/
-
-**Florida QB DJ Lagway carted off with injury vs. Georgia**\
-`Florida freshman DJ Lagway, a five-star recruit, left Saturday's game against Georgia with an injury and was replaced by Aidan Warner.`\
-https://nytimes.com/athletic/5893339/2024/11/02/dj-lagway-injury-florida-georgia/
 
