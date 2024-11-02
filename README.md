@@ -1,3 +1,7 @@
+**Jaylen Brown, Celtics furious after Grant Williams' hard foul on Jayson Tatum**\
+`Celtics players weren’t buying Williams’ claim that the foul wasn’t intentional. Joe Mazzulla said he appreciated how Brown defended Tatum.`\
+https://nytimes.com/athletic/5892271/2024/11/02/celtics-hornets-jayson-tatum-grant-williams-ejection/
+
 **Inside the deal to appoint Ruben Amorim as Manchester United head coach**\
 `Amorim was the only candidate to whom United spoke in replacing Erik ten Hag, with CEO Omar Berrada in particular pushing his candidacy`\
 https://nytimes.com/athletic/5891147/2024/11/02/amorim-manchester-united-coach-inside-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892279/2024/11/02/lebron-james-torments-toronto-ra
 **How Sabres repeated same mistakes in avoidable loss to Islanders: 3 takeaways**\
 `Buffalo once again missed assignments on defense, had sloppy puck management and an inability to win battles for loose pucks.`\
 https://nytimes.com/athletic/5892292/2024/11/02/sabres-islanders-mistakes-takeaways/
-
-**13 insights fantasy football managers need to know ahead of Week 9**\
-`Theo Gremminger puts rookie Bo Nix's rise to fantasy football prominence in perspective as he shares 13 insights ahead of Week 9.`\
-https://nytimes.com/athletic/5891172/2024/11/02/13-insights-fantasy-football-week-9/
 
