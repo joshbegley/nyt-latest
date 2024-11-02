@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5893517/2024/11/02/florida-georgia-football-score-r
 https://nytimes.com/athletic/5893514/2024/11/02/texas-tech-iowa-state-result-score-takeaways/
 
 **Indiana continues undefeated season with first 9-0 start in program history**\
-`If the Hosiers beat Michigan next week, they’ll be the first Indiana team with double figures in victories.`\
+`If the Hoosiers beat Michigan next week, they’ll be the first Indiana team with double figures in victories.`\
 https://nytimes.com/athletic/5893530/2024/11/02/indiana-undefeated-college-football-teams/
 
 **TGI Fridays, the Casual Dining Chain, Files for Bankruptcy**\
