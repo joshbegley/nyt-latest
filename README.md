@@ -1,3 +1,7 @@
+**Patriots' Maye clears concussion protocol, expected to start vs. Titans**\
+`The Patriots’ offense has looked drastically better with the rookie under center and now faces a tough matchup against the Titans defense.`\
+https://nytimes.com/athletic/5892958/2024/11/02/patriots-drake-maye-concussion-injury-update/
+
 **Investigation of MrBeast’s Company Finds No Evidence of Sexual Misconduct**\
 `An independent law firm led the investigation after allegations of sexual misconduct surfaced against Ava Tyson, a collaborator with the YouTube star MrBeast.`\
 https://nytimes.com/2024/11/02/arts/mrbeast-ava-tyson-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892479/2024/11/02/portland-thorns-nwsl-dynasty-sin
 **Reeling Islanders lose Mathew Barzal, Adam Pelech to long-term injuries**\
 `Barzal suffered an upper-body injury Wednesday, and Pelech took a puck to the mouth Friday. Also, updates on Mike Reilly and Alex Romanov.`\
 https://nytimes.com/athletic/5892806/2024/11/02/islanders-mathew-barzal-adam-pelech-injuries/
-
-**The Briefing: Bournemouth 2 Manchester City 1: Defensive concerns grow as City's unbeaten start ends on south coast**\
-`Analysis of City's disappointing trip to the Vitality Stadium`\
-https://nytimes.com/athletic/5888196/2024/11/02/bournemouth-manchester-city-result-analysis/
 
