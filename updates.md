@@ -1,3 +1,7 @@
+**Here’s the latest on the storm.**\
+`By John Keefe`\
+https://nytimes.com/live/2024/11/02/weather/subtropical-storm-patty-hurricane/heres-the-latest-on-the-storm
+
 **Will Democracy Ever Not Be on the Ballot?**\
 `It is on Tuesday. It was four years ago — and eight years ago, too.`\
 https://nytimes.com/2024/11/02/opinion/trump-election-maga-republican-democracy.html
