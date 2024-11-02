@@ -1,3 +1,7 @@
+**Alexander-Walker's NBA journey comes full circle in game-saving flurry vs. Nuggets**\
+`Alexander-Walker contributes on offense and defense late in the game as the Timberwolves edge the Nuggets.`\
+https://nytimes.com/athletic/5892175/2024/11/02/nickeil-alexander-walker-journey-timberwolves-nuggets/
+
 **Zion Williamson, Brandon Ingram face their greatest test yet as Pelicans’ injuries mount**\
 `Friday’s win over the Pacers was a moment of truth for the Pelicans and their two most important players.`\
 https://nytimes.com/athletic/5892484/2024/11/02/zion-williamson-brandon-ingram-pelicans/
