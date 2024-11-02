@@ -1,3 +1,7 @@
+**Russo: Kirill Kaprizov sure helps, but maturing Wild might have something special brewing**\
+`Every team is going to have off nights, but the Wild have shown they have a foundation to rely on.`\
+https://nytimes.com/athletic/5892371/2024/11/02/kirill-kaprizov-minnesota-wild-special-team/
+
 **Inside the deal to appoint Ruben Amorim as Manchester United head coach**\
 `Amorim was the only candidate to whom United spoke in replacing Erik ten Hag, with CEO Omar Berrada in particular pushing his candidacy`\
 https://nytimes.com/athletic/5891147/2024/11/02/amorim-manchester-united-coach-inside-deal/
