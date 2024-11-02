@@ -7,7 +7,7 @@ https://nytimes.com/2024/11/02/arts/patricia-johanson-dead.html
 https://nytimes.com/athletic/5892694/2024/11/02/bryson-daily-army-injury-illness/
 
 **Biden Left the Presidential Race, but His Legacy Depends on It**\
-`Former President Donald J. Trump has taken aim at many of Mr. Biden’s signature legislative achievements.`\
+`The Trump campaign has taken aim at many of President Biden’s signature legislative achievements.`\
 https://nytimes.com/2024/11/02/us/politics/biden-election-legacy.html
 
 **Trump’s Microphone Trouble in Milwaukee Leaves Him ‘Seething’**\
