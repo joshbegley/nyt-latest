@@ -1,3 +1,7 @@
+**Five-star wing Shelton Henderson commits to Duke**\
+`Henderson picked the Blue Devils over fellow finalists Louisville and Texas.`\
+https://nytimes.com/athletic/5889310/2024/11/02/five-star-shelton-henderson-committed-duke/
+
 **Israel Says Elite Naval Commandos Abducted Hezbollah Operative**\
 `It appeared to be the deepest Israeli operation by sea and ground inside Lebanon during the current war.`\
 https://nytimes.com/2024/11/02/world/middleeast/israel-naval-commandos-hezbollah.html
