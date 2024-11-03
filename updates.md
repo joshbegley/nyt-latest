@@ -1,3 +1,11 @@
+**Weary, Troubled and Nervous: Americans Flood the Early Vote**\
+`Nearly 75 million people have cast early ballots, making their voices heard amid worry about the process, the outcome and democracy itself.`\
+https://nytimes.com/2024/11/03/us/elections/early-voting-presidential-election.html
+
+**Live from New York, a November Surprise!**\
+`This one was about the laughs, not the votes.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/dowd-harris-snl-rudolph
+
 **With Oil Prices Weak, OPEC+ Postpones Increases Again**\
 `Saudi Arabia, which leads the group, appears wary of unsettling markets just before the U.S. presidential election on Tuesday.`\
 https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
