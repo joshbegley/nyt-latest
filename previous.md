@@ -1,3 +1,7 @@
+**Canucks takeaways: Pius Suter's big night against Sharks, power-play progress, more**\
+`Suter tied the game in the second period and then scored the dramatic game winner in the closing seconds.`\
+https://nytimes.com/athletic/5893971/2024/11/03/pius-suter-canucks-takeaways/
+
 **Canadiens' constant search for progression feels more like regression**\
 `The Canadiens did all the things they were focused on. They managed the puck. They saw it as a step. Except we've already seen this story.`\
 https://nytimes.com/athletic/5893995/2024/11/03/canadiens-regressing-penguins-st-louis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891321/2024/11/03/saints-panthers-odds-picks-how-t
 **Patriots at Titans: How to watch, odds, expert picks a matchup between two bottom-dwellers**\
 `The Titans are favored at home as they try to end their three-game losing streak by besting the Patriots. `\
 https://nytimes.com/athletic/5891231/2024/11/03/patriots-titans-odds-picks-how-to-watch-betting/
-
-**Newcastle defeat showed why Arsenal need to add some spontaneity back into their attacking play**\
-`Mikel Arteta's side are too strong and consistent a team to fade away but they need to be bolder in their approach`\
-https://nytimes.com/athletic/5892636/2024/11/03/arsenal-attacking-issues-open-play/
 

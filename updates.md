@@ -1,3 +1,7 @@
+**Canucks takeaways: Pius Suter's big night against Sharks, power-play progress, more**\
+`Suter tied the game in the second period and then scored the dramatic game winner in the closing seconds.`\
+https://nytimes.com/athletic/5893971/2024/11/03/pius-suter-canucks-takeaways/
+
 **'We're thinking about him': If Blues are without Philip Broberg, the impact will be huge**\
 `The defenseman was injured in Saturday's 4-2 win over Toronto. `\
 https://nytimes.com/athletic/5893643/2024/11/03/blues-philip-broberg-injury-maple-leafs/
