@@ -18,6 +18,10 @@ https://nytimes.com/2024/11/03/opinion/election-focus-groups.html
 `Suter tied the game in the second period and then scored the dramatic game winner in the closing seconds.`\
 https://nytimes.com/athletic/5893971/2024/11/03/pius-suter-canucks-takeaways/
 
+**Brandin Podziemski, Jonathan Kuminga help Warriors survive OT scare in Houston**\
+`A game that felt way out of reach went to overtime. The Warriors ultimately won, but the shaky path to victory was informative.`\
+https://nytimes.com/athletic/5893606/2024/11/03/brandin-podziemski-jonathan-kuminga-help-warriors-overtime-scare-houston/
+
 **Canadiens' constant search for progression feels more like regression**\
 `The Canadiens did all the things they were focused on. They managed the puck. They saw it as a step. Except we've already seen this story.`\
 https://nytimes.com/athletic/5893995/2024/11/03/canadiens-regressing-penguins-st-louis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5894021/2024/11/03/buffalo-sabres-worst-start-since
 **These are dizzying days to be a Nottingham Forest fan**\
 `Nuno Espirito Santo's side are in the Champions League places - and right now that is no fluke`\
 https://nytimes.com/athletic/5893326/2024/11/03/nottingham-forest-third-premier-league/
-
-**Mark McKenzie interview: Pochettino's gospel of small USMNT gains, Toulouse move and camera crews**\
-`The centre-back is settling into life in Ligue 1 following his summer move from Belgium and relishing involvement with the national team`\
-https://nytimes.com/athletic/5890534/2024/11/03/mckenzie-usmnt-toulouse-pochettino-intensity/
 
