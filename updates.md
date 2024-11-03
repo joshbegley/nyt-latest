@@ -1,3 +1,7 @@
+**Broncos' lopsided loss to Ravens shows a long climb to be among AFC elite**\
+`The Ravens scored three straight touchdowns across the second and third quarters without the Broncos gaining a yard. "We got whooped today."`\
+https://nytimes.com/athletic/5895570/2024/11/03/broncos-loss-ravens-lopsided-afc-contenders/
+
 **NASCAR semifinal race overshadowed by wall-ride controversy**\
 `An illegal move and possible race manipulation caused a delay in finding out who earned the final spot for NASCAR's championship race.`\
 https://nytimes.com/athletic/5895889/2024/11/03/nascar-semifinal-controversy-christopher-bell/
