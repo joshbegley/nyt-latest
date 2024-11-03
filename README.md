@@ -1,3 +1,23 @@
+**Patriots at Titans: How to watch, odds, expert picks a matchup between two bottom-dwellers**\
+`The Titans are favored at home as they try to end their three-game losing streak by besting the Patriots. `\
+https://nytimes.com/athletic/5891231/2024/11/03/patriots-titans-odds-picks-how-to-watch-betting/
+
+**Newcastle defeat showed why Arsenal need to add some spontaneity back into their attacking play**\
+`Mikel Arteta's side are too strong and consistent a team to fade away but they need to be bolder in their approach`\
+https://nytimes.com/athletic/5892636/2024/11/03/arsenal-attacking-issues-open-play/
+
+**Newcastle United are 'really good at what they do' again - even Mikel Arteta agrees**\
+`In a belated search for balance, Eddie Howe opted for a proven - if rarely seen - combination of players in midfield and attack `\
+https://nytimes.com/athletic/5892474/2024/11/03/newcastle-rediscover-form-eddie-howe/
+
+**Serie A? Premier League? MLS? Saudi Arabia? What next for Paul Pogba?**\
+`Pogba's ban from football has been reduced on appeal, so where could he end up when he becomes eligible to play again in March?`\
+https://nytimes.com/athletic/5866157/2024/11/03/paul-pogba-transfer-options/
+
+**'How can you go to a stadium when there is so much tragedy?'**\
+`Matches in the Valencia region were cancelled but Spanish football has largely played after flooding caused more than 200 deaths this week`\
+https://nytimes.com/athletic/5875054/2024/11/03/valencia-flooding-la-liga-spain/
+
 **Chargers at Browns odds, expert picks, how to watch: Will Justin Herbert return to form?**\
 `Can Justin Herbert return to form? Will Jameis Winston end up on the moon or on the turf?`\
 https://nytimes.com/athletic/5889231/2024/11/03/chargers-browns-odds-picks-how-to-watch-betting/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/03/pageoneplus/quote-of-the-day-war-payments-have-ru
 **How One Lebanese Town Is Trying to Stay Out of the War Around It**\
 `While Lebanese are united against Israel’s onslaught, some in southern towns where Hezbollah does not hold sway say they feel caught between Israel’s firepower and Hezbollah’s fighters.`\
 https://nytimes.com/2024/11/03/world/middleeast/lebanon-hezbollah-israel.html
-
-**Thousands of Volunteers, Many Arriving on Foot, Aid Spain Flood Recovery**\
-`As the country reels from a flood that has left at least 211 people dead, ordinary citizens have flocked to devastated areas to help clean, donate and rebuild.`\
-https://nytimes.com/2024/11/03/world/europe/spain-floods-valencia-volunteers.html
-
-**Sikh Activists See It as Freedom. India Calls It Terrorism.**\
-`Canadian and U.S. accusations of assassination plots have drawn attention to the Sikh separatist movement, which India calls a source of organized crime.`\
-https://nytimes.com/2024/11/03/world/asia/india-sikh-separatism.html
-
-**An ‘Interview’ With a Dead Luminary Exposes the Pitfalls of A.I.**\
-`A radio station in Poland fired its on-air talent and brought in A.I.-generated presenters. An outcry over a purported chat with a Nobel laureate quickly ended that experiment.`\
-https://nytimes.com/2024/11/03/world/europe/poland-radio-station-ai.html
-
-**Tottenham vs Aston Villa preview, odds, prediction as Villains try to stay in top 4**\
-`Tottenham have won five straight matches at home, but host an Aston Villa side that is playing very well this season.`\
-https://nytimes.com/athletic/5891822/2024/11/03/tottenham-aston-villa-preview-odds-prediction/
-
-**Raiders at Bengals: How to watch, odds, picks with Cincinnati favored over reeling Vegas**\
-`The Bengals are favored by a touchdown at home in a matchup with the struggling Raiders. `\
-https://nytimes.com/athletic/5891154/2024/11/03/raiders-bengals-odds-picks-how-to-watch-betting/
 
