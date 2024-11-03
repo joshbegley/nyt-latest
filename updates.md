@@ -1,3 +1,7 @@
+**Brandin Podziemski, Jonathan Kuminga help Warriors survive OT scare in Houston**\
+`A game that felt way out of reach went to overtime. The Warriors ultimately won, but the shaky path to victory was informative.`\
+https://nytimes.com/athletic/5893606/2024/11/03/brandin-podziemski-jonathan-kuminga-help-warriors-overtime-scare-houston/
+
 **Live From New York, It’s Kamala Harris on ‘SNL’**\
 `The vice president made a brief appearance on “Saturday Night Live” this weekend.`\
 https://nytimes.com/2024/11/03/arts/television/saturday-night-live-kamala-harris.html
