@@ -1,3 +1,11 @@
+**Entire City Police Force in Oklahoma Quits as 2 Council Members Also Resign**\
+`The reasons for the abrupt mass departures in the city of Geary, Okla., which has a population of just under 1,000, were unclear.`\
+https://nytimes.com/2024/11/03/us/police-department-resigns-oklahoma.html
+
+**AP Top 25: Oregon unanimous No. 1 ahead of first CFP rankings**\
+`Oregon received every No. 1 vote in the AP Top 25 poll, topping Georgia, Ohio State, Miami and Texas before the first Playoff rankings.`\
+https://nytimes.com/athletic/5894786/2024/11/03/ap-top-25-college-football-playoff-rankings-oregon/
+
 **9 Memorable Looks at the New York City Marathon**\
 `Form versus function can be debated another time as these marathoners made sure they looked good while they were running hard.`\
 https://nytimes.com/2024/11/03/style/new-york-marathon-fashion.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5894913/2024/11/03/college-football-playoff-bracket
 **Weary, Troubled and Nervous: Americans Flood the Early Vote**\
 `Nearly 75 million people have cast early ballots, making their voices heard amid worry about the process, the outcome and democracy itself.`\
 https://nytimes.com/2024/11/03/us/elections/early-voting-presidential-election.html
-
-**Live From New York, a November Surprise!**\
-`This one was about the laughs, not the votes.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/dowd-harris-snl-rudolph
-
-**With Oil Prices Weak, OPEC+ Postpones Increases Again**\
-`Saudi Arabia, which leads the group, appears wary of unsettling markets just before the U.S. presidential election on Tuesday.`\
-https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
 

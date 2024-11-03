@@ -1,3 +1,11 @@
+**Entire City Police Force in Oklahoma Quits as 2 Council Members Also Resign**\
+`The reasons for the abrupt mass departures in the city of Geary, Okla., which has a population of just under 1,000, were unclear.`\
+https://nytimes.com/2024/11/03/us/police-department-resigns-oklahoma.html
+
+**AP Top 25: Oregon unanimous No. 1 ahead of first CFP rankings**\
+`Oregon received every No. 1 vote in the AP Top 25 poll, topping Georgia, Ohio State, Miami and Texas before the first Playoff rankings.`\
+https://nytimes.com/athletic/5894786/2024/11/03/ap-top-25-college-football-playoff-rankings-oregon/
+
 **9 Memorable Looks at the New York City Marathon**\
 `Form versus function can be debated another time as these marathoners made sure they looked good while they were running hard.`\
 https://nytimes.com/2024/11/03/style/new-york-marathon-fashion.html
