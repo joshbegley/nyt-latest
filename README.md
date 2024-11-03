@@ -1,3 +1,15 @@
+**Abdi Nageeye and Sheila Chepkirui Win New York City Marathon**\
+`A riveting competition ended with one-on-one clashes in both the men’s and women’s races, and with three Kenyans on the women’s podium.`\
+https://nytimes.com/2024/11/03/nyregion/abdi-nageeye-sheila-chepkirui-nyc-marathon-winners.html
+
+**After everyone else has gone, this team stays for the final finishers.**\
+`This will be the second year of volunteers working between Mile 15 and the finish line to support the marathon’s final runners as energy, light and cheering spectators wane.`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/after-everyone-else-has-gone-this-team-stays-for-the-final-finishers
+
+**Luzerne County, Pa.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/luzerne-county-pa
+
 **Royals sign Michael Wacha to 3-year, $51 million contract**\
 `The pact includes bonuses and an option for the fourth year that would max out the deal at $72 million, a major-league source said.`\
 https://nytimes.com/athletic/5895065/2024/11/03/michael-wacha-royals-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/03/world/middleeast/iran-arrest-reza-valizadeh-journ
 **Joey Jay, First Little Leaguer to Get to the Majors, Dies at 89**\
 `A pitcher who won 99 games in 13 seasons, he played for the Braves and the Reds. But when he retired, he never looked back.`\
 https://nytimes.com/2024/11/03/obituaries/joey-jay-dead.html
-
-**Saints WR Chris Olave out vs. Panthers with concussion**\
-`The Saints said Olave has movement in his extremities and was taken to a Charlotte area hospital for further evaluation.`\
-https://nytimes.com/athletic/5894931/2024/11/03/chris-olave-hit-concussion-injury-saints-panthers/
-
-**What One Tossup District Says About the Trump-Harris Battle for the Suburbs**\
-`Representative David Schweikert, a vulnerable Republican, is fighting for his political life in suburban Arizona, where the sprint to win over a crucial bloc of voters is coming down to the wire.`\
-https://nytimes.com/2024/11/03/us/politics/schweikert-shah-arizona-election-congress.html
-
-**Georgia Judge Rejects Republican Lawsuit to Block Hand-Returned Mail Ballots**\
-`The lawsuit targeted Fulton County, a Democratic stronghold, seeking to stop it from opening election offices over the weekend to receive absentee ballots in person.`\
-https://nytimes.com/2024/11/03/us/politics/georgia-mail-ballot-lawsuit.html
 
