@@ -1,3 +1,15 @@
+**This Election Pits the Guardians Against the Counterrevolutionaries**\
+`There’s something very different about Harris vs. Trump.`\
+https://nytimes.com/2024/11/03/opinion/trump-harris-election-day.html
+
+**A Second Trump Term? Three Conservative Columnists Unpack What Could Happen.**\
+`What will happen after Tuesday to Trumpism and the G.O.P. if Donald Trump wins — or loses?`\
+https://nytimes.com/2024/11/03/opinion/trump-republican-party.html
+
+**Our 61 Focus Groups Make Me Think Trump Has a Good Chance of Winning**\
+`What we learned from interviewing nearly 700 Americans over nearly three years.`\
+https://nytimes.com/2024/11/03/opinion/election-focus-groups.html
+
 **Canucks takeaways: Pius Suter's big night against Sharks, power-play progress, more**\
 `Suter tied the game in the second period and then scored the dramatic game winner in the closing seconds.`\
 https://nytimes.com/athletic/5893971/2024/11/03/pius-suter-canucks-takeaways/
