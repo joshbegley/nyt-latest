@@ -1,3 +1,11 @@
+**Cowboys' Dak Prescott ruled out vs. Falcons with hamstring injury**\
+`Prescott never went down with an injury during the game, but headed to the injury tent with trainers at the end of the third quarter.`\
+https://nytimes.com/athletic/5895212/2024/11/03/dak-prescott-injury-cowboys/
+
+**Jamie Dimon’s wife, Judith Kent, knocks on doors in Michigan for Kamala Harris.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/jamie-dimons-wife-judith-kent-knocks-on-doors-in-michigan-for-kamala-harris
+
 **Crime Has Been a Big Talking Point. How Does It Look in Battleground States?**\
 `Even as violence crime rates fall, Republicans have sought to tie murders and drug overdoses to migrants. Here’s a rundown of crime rates in swing states.`\
 https://nytimes.com/2024/11/03/us/crime-swing-states-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/03/nyregion/abdi-nageeye-sheila-chepkirui-nyc-marath
 **After everyone else has gone, this team stays for the final finishers.**\
 `This will be the second year of volunteers working between Mile 15 and the finish line to support the marathon’s final runners as energy, light and cheering spectators wane.`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/after-everyone-else-has-gone-this-team-stays-for-the-final-finishers
-
-**Luzerne County, Pa.**\
-`By Edgar Sandoval`\
-https://nytimes.com/live/2024/11/03/us/harris-trump-election/luzerne-county-pa
-
-**Royals sign Michael Wacha to 3-year, $51 million contract**\
-`The pact includes bonuses and an option for the fourth year that would max out the deal at $72 million, a major-league source said.`\
-https://nytimes.com/athletic/5895065/2024/11/03/michael-wacha-royals-contract/
 
