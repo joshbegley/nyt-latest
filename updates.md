@@ -1,3 +1,7 @@
+**Canucks takeaways: Pius Suter's big night against Sharks, power-play progress, more**\
+`Suter scored the key goal to tie the game and then added the dramatic game winner in the closing seconds.`\
+https://nytimes.com/athletic/5893971/2024/11/03/pius-suter-canucks-takeaways/
+
 **Brandin Podziemski, Jonathan Kuminga help Warriors survive OT scare in Houston**\
 `A game that felt way out of reach went to overtime. The Warriors ultimately won, but the shaky path to victory was informative.`\
 https://nytimes.com/athletic/5893606/2024/11/03/brandin-podziemski-jonathan-kuminga-help-warriors-overtime-scare-houston/
