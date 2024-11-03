@@ -1,3 +1,11 @@
+**These are dizzying days to be a Nottingham Forest fan**\
+`Nuno Espirito Santo's side are in the Champions League places - and right now that is no fluke`\
+https://nytimes.com/athletic/5893326/2024/11/03/nottingham-forest-third-premier-league/
+
+**Mark McKenzie interview: Pochettino's gospel of small USMNT gains, Toulouse move and camera crews**\
+`The centre-back is settling into life in Ligue 1 following his summer move from Belgium and relishing involvement with the national team`\
+https://nytimes.com/athletic/5890534/2024/11/03/mckenzie-usmnt-toulouse-pochettino-intensity/
+
 **Joel Embiid shoves columnist in 76ers locker room**\
 `The physical altercation occurred after Embiid and a Philadelphia Inquirer columnist argued following the 76ers' loss to the Grizzlies.`\
 https://nytimes.com/athletic/5893926/2024/11/03/joel-embiid-76ers-reporter-assault-locker-room/

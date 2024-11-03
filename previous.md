@@ -1,3 +1,11 @@
+**These are dizzying days to be a Nottingham Forest fan**\
+`Nuno Espirito Santo's side are in the Champions League places - and right now that is no fluke`\
+https://nytimes.com/athletic/5893326/2024/11/03/nottingham-forest-third-premier-league/
+
+**Mark McKenzie interview: Pochettino's gospel of small USMNT gains, Toulouse move and camera crews**\
+`The centre-back is settling into life in Ligue 1 following his summer move from Belgium and relishing involvement with the national team`\
+https://nytimes.com/athletic/5890534/2024/11/03/mckenzie-usmnt-toulouse-pochettino-intensity/
+
 **Joel Embiid shoves columnist in 76ers locker room**\
 `The physical altercation occurred after Embiid and a Philadelphia Inquirer columnist argued following the 76ers' loss to the Grizzlies.`\
 https://nytimes.com/athletic/5893926/2024/11/03/joel-embiid-76ers-reporter-assault-locker-room/
@@ -18,23 +26,15 @@ https://nytimes.com/athletic/5891321/2024/11/03/saints-panthers-odds-picks-how-t
 `The Titans are favored at home as they try to end their three-game losing streak by besting the Patriots. `\
 https://nytimes.com/athletic/5891231/2024/11/03/patriots-titans-odds-picks-how-to-watch-betting/
 
-**Newcastle defeat showed why Arsenal need to add some spontaneity back into their attacking play**\
-`Mikel Arteta's side are too strong and consistent a team to fade away but they need to be bolder in their approach`\
-https://nytimes.com/athletic/5892636/2024/11/03/arsenal-attacking-issues-open-play/
-
 **Newcastle United are 'really good at what they do' again - even Mikel Arteta agrees**\
 `In a belated search for balance, Eddie Howe opted for a proven - if rarely seen - combination of players in midfield and attack `\
 https://nytimes.com/athletic/5892474/2024/11/03/newcastle-rediscover-form-eddie-howe/
 
+**Newcastle defeat showed why Arsenal need to add some spontaneity back into their attacking play**\
+`Mikel Arteta's side are too strong and consistent a team to fade away but they need to be bolder in their approach`\
+https://nytimes.com/athletic/5892636/2024/11/03/arsenal-attacking-issues-open-play/
+
 **Serie A? Premier League? MLS? Saudi Arabia? What next for Paul Pogba?**\
 `Pogba's ban from football has been reduced on appeal, so where could he end up when he becomes eligible to play again in March?`\
 https://nytimes.com/athletic/5866157/2024/11/03/paul-pogba-transfer-options/
-
-**'How can you go to a stadium when there is so much tragedy?'**\
-`Matches in the Valencia region were cancelled but Spanish football has largely played after flooding caused more than 200 deaths this week`\
-https://nytimes.com/athletic/5875054/2024/11/03/valencia-flooding-la-liga-spain/
-
-**Chargers at Browns odds, expert picks, how to watch: Will Justin Herbert return to form?**\
-`Can Justin Herbert return to form? Will Jameis Winston end up on the moon or on the turf?`\
-https://nytimes.com/athletic/5889231/2024/11/03/chargers-browns-odds-picks-how-to-watch-betting/
 
