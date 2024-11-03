@@ -1,3 +1,7 @@
+**Konate avoids serious injury, set to return against Bayer Leverkusen**\
+`Liverpool have received a major boost after a scan revealed that Ibrahima Konate did not break his left wrist in their 2-1 win over Brighton and Hove Albion at Anfield.`\
+https://nytimes.com/athletic/5894219/2024/11/03/ibrahima-konate-injury-update/
+
 **Susannah Scaroni dominates the women’s wheelchair race.**\
 `Scaroni led from start to finish with no serious challengers.`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/susannah-scaroni-wins-nyc-marathon-wheelchair
