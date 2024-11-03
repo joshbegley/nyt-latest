@@ -24,7 +24,7 @@ https://nytimes.com/2024/11/03/opinion/cosmic-void-universe-space.html
 
 **Which Celebrities Are Running the New York City Marathon?**\
 `The actors Randall Park, Jennifer Connelly and Claire Holt have signed up, as have an NBC News correspondent and a beauty influencer.`\
-https://nytimes.com/2024/11/03/nyregion/here-are-some-of-the-celebrities-running-the-marathon.html
+https://nytimes.com/2024/11/03/nyregion/celebrities-new-york-city-marathon.html
 
 **Ranking the Giants' biggest offseason priorities**\
 `From third base (covered) to shortstop (not so much), ranking the Giants' biggest areas of need at the start of the offseason.`\

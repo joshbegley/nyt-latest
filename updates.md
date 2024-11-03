@@ -1,3 +1,7 @@
+**Daniel Romanchuk Wins His Third Men’s Wheelchair Race**\
+`He sprinted past David Weir in Central Park for the victory.`\
+https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-wins-his-third-mens-wheelchair-race.html
+
 **Live Q&A: Week 9 fantasy football start/sit chat with Jay Felicio, Sunday 11/3 at 11 a.m. ET**\
 `Submit your Week 9 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5891159/2024/11/03/live-qa-week-9-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-3-at-11-a-m-et/
