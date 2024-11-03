@@ -1,3 +1,11 @@
+**Trump Laughs as Supporter Yells That Harris ‘Worked on the Corner’**\
+`“This place is amazing,” Donald Trump said after a supporter shouted the crude comment at a rally. A quick clarification followed: “Just remember, it’s other people saying it. It’s not me.”`\
+https://nytimes.com/2024/11/03/us/politics/trump-harris-crude-remark.html
+
+**Manchester United vs Chelsea preview, odds: Ruben Amorim hired but won't be in charge**\
+`Manchester United has a new manager, but he won't be on the sidelines this weekend against Chelsea. Will the Red Devils impress?`\
+https://nytimes.com/athletic/5891891/2024/11/03/manchester-united-chelsea-preview-odds-prediction/
+
 **Quote of the Day: War Payments Have Russians Rolling in Cash**\
 `Quotation of the Day for Sunday, November 3, 2024.`\
 https://nytimes.com/2024/11/03/pageoneplus/quote-of-the-day-war-payments-have-russians-rolling-in-cash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5891154/2024/11/03/raiders-bengals-odds-picks-how-t
 **Jayson Tatum and the Celtics choose execution over retribution with Grant Williams**\
 `“I don’t ever make it about one person,” Tatum said Saturday after Boston's 113-103 win over Charlotte.`\
 https://nytimes.com/athletic/5893880/2024/11/02/jayson-tatum-celtics-grant-williams/
-
-**Georgia needs QB Carson Beck to solve his turnover problem**\
-`Beck's decision-making was the one thing Georgia wasn't supposed to worry about. But his turnovers have become one of its biggest questions.`\
-https://nytimes.com/athletic/5893821/2024/11/02/georgia-bulldogs-quarterback-carson-beck-florida-gators/
-
-**Dolphins at Bills: How to watch, odds, expert picks as division rivals meet again**\
-`The Bills and Dolphins meet for the second time, with Miami desperate for a foothold and Buffalo dominating AFC East.`\
-https://nytimes.com/athletic/5891192/2024/11/02/dolphins-bills-odds-picks-how-to-watch-betting/
 
