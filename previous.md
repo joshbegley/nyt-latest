@@ -1,3 +1,11 @@
+**Georgia Judge Rejects Republican Lawsuit to Block Hand-Returned Mail Ballots**\
+`The lawsuit targeted Fulton County, a Democratic stronghold, seeking to stop it from opening election offices over the weekend to receive absentee ballots in person.`\
+https://nytimes.com/2024/11/03/us/politics/georgia-mail-ballot-lawsuit.html
+
+**Stewart Mandel's 12-team Playoff projections after Week 10**\
+`How will the selection committee treat Indiana? Can either the ACC or Big 12 get more than one team in the field?`\
+https://nytimes.com/athletic/5894913/2024/11/03/college-football-playoff-bracket-projections-week-10/
+
 **Weary, Troubled and Nervous: Americans Flood the Early Vote**\
 `Nearly 75 million people have cast early ballots, making their voices heard amid worry about the process, the outcome and democracy itself.`\
 https://nytimes.com/2024/11/03/us/elections/early-voting-presidential-election.html
@@ -14,7 +22,7 @@ https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
 `Blue Jackets GM Don Waddell has said he wants Jenner and Gudbranson to be around the club as much as they want.`\
 https://nytimes.com/athletic/5892780/2024/11/03/blue-jackets-boone-jenner-erik-gudbranson-injury/
 
-**The Briefing: Manchester United 1 Chelsea 1 - Caicedo's stunner, Mazraoui impresses in Old Trafford stalemate**\
+**The Briefing: Manchester United 1 Chelsea 1 - Caicedo's stunner, Mazraoui impresses in Old Trafford draw**\
 `Carl Anka and Simon Johnson break down the main talking points from Manchester United and Chelsea's 1-1 draw at Old Trafford`\
 https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-maresca-van-nistelrooy-caicedo-mazraoui/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/03/nyregion/nyc-marathon-addiction.html
 **Max Verstappen delivers iconic São Paulo GP win, expanding title lead on Lando Norris**\
 `Verstappen started P17 and drove through rainy chaos at Interlagos for an instant-classic victory. `\
 https://nytimes.com/athletic/5894586/2024/11/03/max-verstappen-brazil-gp-win-lando-norris/
-
-**'We gotta trust one another': Bucks losing sight of 'little, tiny things'**\
-`After racing out to a 30-14 lead in the first, the Bucks failed to pay attention to the details en route to their fifth consecutive defeat.`\
-https://nytimes.com/athletic/5893946/2024/11/03/damian-lillard-giannis-antetokounmpo-bucks-cavaliers/
-
-**James O’Keefe Recruits Election Workers to Secretly Record at the Polls**\
-`Mr. O’Keefe has sought volunteers willing to wear hidden cameras and hunt for voting problems. Dozens of election judges and poll monitors responded, records show.`\
-https://nytimes.com/2024/11/03/us/politics/2024-election-james-okeefe-voting.html
 

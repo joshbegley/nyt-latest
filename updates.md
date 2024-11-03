@@ -1,3 +1,15 @@
+**Georgia Judge Rejects Republican Lawsuit to Block Hand-Returned Mail Ballots**\
+`The lawsuit targeted Fulton County, a Democratic stronghold, seeking to stop it from opening election offices over the weekend to receive absentee ballots in person.`\
+https://nytimes.com/2024/11/03/us/politics/georgia-mail-ballot-lawsuit.html
+
+**Stewart Mandel's 12-team Playoff projections after Week 10**\
+`How will the selection committee treat Indiana? Can either the ACC or Big 12 get more than one team in the field?`\
+https://nytimes.com/athletic/5894913/2024/11/03/college-football-playoff-bracket-projections-week-10/
+
+**The Briefing: Manchester United 1 Chelsea 1 - Caicedo's stunner, Mazraoui impresses in Old Trafford draw**\
+`Carl Anka and Simon Johnson break down the main talking points from Manchester United and Chelsea's 1-1 draw at Old Trafford`\
+https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-maresca-van-nistelrooy-caicedo-mazraoui/
+
 **Live From New York, a November Surprise!**\
 `This one was about the laughs, not the votes.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/dowd-harris-snl-rudolph
