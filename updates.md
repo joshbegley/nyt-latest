@@ -1,3 +1,7 @@
+**Trump Tells Supporters He ‘Shouldn’t Have Left’ the White House**\
+`Donald J. Trump, who sought to overturn his loss of the 2020 election, also joked that he didn’t mind if reporters were shot.`\
+https://nytimes.com/2024/11/03/us/politics/trump-pa-rally-election.html
+
 **Commanders' Brian Robinson Jr. ruled out vs. Giants with hamstring injury**\
 `Robinson played in the last two games, rushing for 136 yards and one touchdown.`\
 https://nytimes.com/athletic/5894703/2024/11/03/brian-robinson-jr-out-injury-commanders-nfl/
