@@ -1,3 +1,7 @@
+**Sabres off to worst start since 2017-18. Can Kevyn Adams fix it?**\
+`This was not supposed to be one of those years. There’s a lot that needs fixing, a lot that's in need of answers.`\
+https://nytimes.com/athletic/5894021/2024/11/03/buffalo-sabres-worst-start-since-2017/
+
 **This Election Pits the Guardians Against the Counterrevolutionaries**\
 `There’s something very different about Harris vs. Trump.`\
 https://nytimes.com/2024/11/03/opinion/trump-harris-election-day.html
