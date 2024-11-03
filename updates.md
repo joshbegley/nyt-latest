@@ -1,3 +1,15 @@
+**Jackson enhances MVP case, powers Ravens to 41-10 win vs. Broncos: Takeaways**\
+`Baltimore's star quarterback now has four games with perfect passer ratings in his career. `\
+https://nytimes.com/athletic/5894515/2024/11/03/broncos-ravens-score-takeaways-result/
+
+**Here’s the latest on the storm.**\
+`By John Keefe`\
+https://nytimes.com/live/2024/11/03/weather/tropical-storm-rafael-hurricane/heres-the-latest-on-the-storm
+
+**A Potential Cyclone in the Caribbean Could Track Toward the U.S.**\
+`If it grows as predicted, it would likely become Tropical Storm Rafael.`\
+https://nytimes.com/live/2024/11/03/weather/tropical-storm-rafael-hurricane
+
 **Monday Briefing: The Final Set of Times/Siena Election Polls**\
 `Plus, using generative A.I. to take a “decision holiday.”`\
 https://nytimes.com/2024/11/03/briefing/election-polls-iran-israel-botswana.html
