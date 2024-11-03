@@ -1,3 +1,15 @@
+**Blue Jackets Sunday Gathering: Boone Jenner, Erik Gudbranson still involved despite injuries**\
+`Blue Jackets GM Don Waddell has said he wants Jenner and Gudbranson to be around the club as much as they want.`\
+https://nytimes.com/athletic/5892780/2024/11/03/blue-jackets-boone-jenner-erik-gudbranson-injury/
+
+**The Briefing: Manchester United 1 Chelsea 1 - Caicedo's stunner, Mazraoui impresses in Old Trafford stalemate**\
+`Carl Anka and Simon Johnson break down the main talking points from Manchester United and Chelsea's 1-1 draw at Old Trafford`\
+https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-maresca-van-nistelrooy-caicedo-mazraoui/
+
+**For this marathoner, running is a treatment for drug addiction.**\
+`Travis Friese is running the New York City Marathon with Odyssey House, a residential treatment program.`\
+https://nytimes.com/2024/11/03/nyregion/for-this-marathoner-running-is-a-treatment-for-drug-addiction.html
+
 **Paris Bercy takes its final bow in the chaos of late-season ATP Tour tennis**\
 `The Paris Masters departs Bercy with its status as the strangest ATP Tour tournament of the season unmatched`\
 https://nytimes.com/athletic/5889850/2024/11/03/paris-bercy-tennis/
