@@ -1,40 +1,40 @@
-**Bears at Cardinals: How to watch, odds, picks with Arizona favored in near pick'em**\
-`The Bears and Cardinals are coming off close games in Week 8 and oddsmakers expect a very close matchup in Arizona.`\
-https://nytimes.com/athletic/5891306/2024/11/03/bears-cardinals-odds-picks-how-to-watch-betting/
+**Bookstores Are Setting Up Readers on ‘Blind Dates’ With Books**\
+`Bookstores say customers love “Blind Date With a Book,” which masks a book’s real cover and lets readers discover what’s inside.`\
+https://nytimes.com/2024/11/03/books/blind-date-with-a-book.html
 
-**Jaguars at Eagles: How to watch, odds, expert picks with Philly on the rise**\
-`The Eagles have won three in a row after a spotty start, while the Jags have yet to make a promising case for their season.`\
-https://nytimes.com/athletic/5891247/2024/11/03/jaguars-eagles-odds-picks-how-to-watch-betting/
+**A Meal So Good, Politicians Leave Their Partisanship at the Door**\
+`The Inn at Little Washington, just over an hour away from D.C., is neutral ground for celebrities, foodies and politicians — regardless of party affiliation.`\
+https://nytimes.com/2024/11/03/style/inn-little-washington.html
 
-**As Election Day Nears, Yard Signs Disappear**\
-`Modern technology including doorbell cameras and tiny tracking devices have turned the tables on sign stealers.`\
-https://nytimes.com/2024/11/03/nyregion/political-yard-sign-stealing.html
+**Where’s Johnny? The Biography of a TV Host Whose Life Was a Closed Book.**\
+`Johnny Carson dominated late-night television for decades, but closely guarded his privacy. Bill Zehme’s biography, “Carson the Magnificent,” tries to break through.`\
+https://nytimes.com/2024/11/03/books/review/carson-the-magnificent-bill-zehme-johnny-carson.html
 
-**How a 178-Year-Old Magazine Stays Relevant, One Instagram Post at a Time**\
-`Stellene Volandes has brought new life to Town & Country, with snappy cover lines and an active social media presence. Could she be the next Anna Wintour?`\
-https://nytimes.com/2024/11/03/business/media/town-and-country-hearst-stellene-volandes.html
+**Cross-Tabs: October 2024 Times/Inquirer/Siena Poll of the Likely Electorate in Pennsylvania**\
+`Results of a New York Times/Philadelphia Inquirer/Siena College poll conducted among 1,527 voters in Pennsylvania from Oct. 29 to Nov. 2 2024.`\
+https://nytimes.com/interactive/2024/11/03/us/elections/times-siena-pennsylvania-poll-toplines.html
 
-**‘I Made My Last Trip Down the Building’s Worn Marble Stairs ’**\
-`A surprise on moving day in Brooklyn, bird song in Bryant Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/11/03/nyregion/metropolitan-diary.html
+**Toplines: October 2024 Times/Inquirer/Siena Poll of Registered Voters in Pennsylvania**\
+`Results of a New York Times/Philadelphia Inquirer/Siena College poll conducted among 1,527 voters in Pennsylvania from Oct. 29 to Nov. 2, 2024.`\
+https://nytimes.com/interactive/2024/11/03/us/elections/times-siena-pennsylvania-poll-crosstabs.html
 
-**The Daily Beast Tries to Claw Its Way Back to Relevance**\
-`Can Joanna Coles and Ben Sherwood revive the once-buzzy news site and reclaim their perches atop the New York media world? Their own staff isn’t sure.`\
-https://nytimes.com/2024/11/03/business/media/daily-beast-joanna-coles-ben-sherwood.html
+**Cross-Tabs: October 2024 Times/Siena Poll of the Likely Electorate in Michigan**\
+`Results of a New York Times/Siena College poll conducted among 998 voters in Michigan from Oct. 29 to Nov. 2, 2024.`\
+https://nytimes.com/interactive/2024/11/03/us/elections/times-siena-michigan-poll-crosstabs.html
 
-**A Shirt With a Choke Hold on the Political Moment**\
-`The tie-front shirts serve as a reminder that no matter how far women have come, it’s not nearly as far as they think.`\
-https://nytimes.com/2024/11/03/style/kamala-harris-pussy-bow-blouse.html
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in Michigan**\
+`Results of a New York Times/Siena College poll conducted among 998 voters in Michigan from Oct. 29 to Nov. 2, 2024.`\
+https://nytimes.com/interactive/2024/11/03/us/elections/times-siena-michigan-poll-toplines.html
 
-**Tornadoes Reported in Oklahoma City as Storms Batter Great Plains**\
-`Parts of central and southern Oklahoma were under tornado warnings early Sunday, as several reportedly touched down in and near the state capital.`\
-https://nytimes.com/2024/11/03/us/tornado-storm-oklahoma-texas.html
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in the 2024 Battlegrounds**\
+`Results of a New York Times/Siena College poll conducted among 7,575 registered voters in the 2024 Battlegrounds from Oct. 24 to Nov. 2, 2024.`\
+https://nytimes.com/interactive/2024/11/03/us/elections/times-siena-battleground-poll-toplines.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/03/crosswords/spelling-bee-forum.html
+**Cross-Tabs: October 2024 Times/Siena Poll of the Likely Electorate in the 2024 Battlegrounds**\
+`Results of a New York Times/Siena College poll conducted among 7,879 likely voters in the 2024 battleground states from Oct. 24 to Nov. 2, 2024.`\
+https://nytimes.com/interactive/2024/11/03/us/elections/times-siena-battleground-poll-crosstabs.html
 
-**Goodbye, 6 p.m. Sunsets. See You Next Year.**\
-`As Daylight Saving Time comes to an end on Nov. 3, a reflection on the glorious late-afternoon light of New York City that we lose for an extra hour of sleep.`\
-https://nytimes.com/card/2024/11/03/nyregion/daylight-saving-time-sunlight-photos
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in North Carolina**\
+`Results of a New York Times/Siena College poll conducted among 1,010 voters in North Carolina from Oct. 28 to Nov. 2, 2024.`\
+https://nytimes.com/interactive/2024/11/03/us/elections/times-siena-north-carolina-poll-toplines.html
 
