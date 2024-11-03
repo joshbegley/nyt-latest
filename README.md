@@ -1,3 +1,11 @@
+**Joey Jay, First Little Leaguer to Get to the Majors, Dies at 89**\
+`A pitcher who won 99 games in 13 seasons, he played for the Braves and the Reds. But when he retired, he never looked back.`\
+https://nytimes.com/2024/11/03/obituaries/joey-jay-dead.html
+
+**Saints WR Chris Olave out vs. Panthers with concussion**\
+`The Saints said Olave has movement in his extremities and was taken to a Charlotte area hospital for further evaluation.`\
+https://nytimes.com/athletic/5894931/2024/11/03/chris-olave-hit-concussion-injury-saints-panthers/
+
 **What One Tossup District Says About the Trump-Harris Battle for the Suburbs**\
 `Representative David Schweikert, a vulnerable Republican, is fighting for his political life in suburban Arizona, where the sprint to win over a crucial bloc of voters is coming down to the wire.`\
 https://nytimes.com/2024/11/03/us/politics/schweikert-shah-arizona-election-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5892780/2024/11/03/blue-jackets-boone-jenner-erik-g
 **The Briefing: Manchester United 1 Chelsea 1 - Caicedo's stunner, Mazraoui impresses in Old Trafford draw**\
 `Carl Anka and Simon Johnson break down the main talking points from today's stalemate at Old Trafford`\
 https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-maresca-van-nistelrooy-caicedo-mazraoui/
-
-**Paris Bercy takes its final bow in the chaos of late-season ATP Tour tennis**\
-`The Paris Masters departs Bercy with its status as the strangest ATP Tour tournament of the season unmatched`\
-https://nytimes.com/athletic/5889850/2024/11/03/paris-bercy-tennis/
-
-**He’s Running the N.Y.C. Marathon as Part of His Recovery From Addiction**\
-`Travis Friese is running on a team organized by Odyssey House, a residential treatment program.`\
-https://nytimes.com/2024/11/03/nyregion/nyc-marathon-addiction.html
 
