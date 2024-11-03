@@ -1,4 +1,4 @@
-**MLB finds Dominican prospect with now-withdrawn Padres agreement falsified age**\
+**MLB finds Padres prospect falsified age**\
 `The league found that Cesar Altragarcia, a shortstop, is 19. His paperwork had stated he was 14.`\
 https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
 
