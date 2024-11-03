@@ -1,3 +1,11 @@
+**Cowboys at Falcons: How to watch, odds, expert picks as Dallas tries to right the ship**\
+`This looks like the Falcons' game to lose at Mercedes-Benz Stadium. They are favored by about a field goal.`\
+https://nytimes.com/athletic/5891101/2024/11/02/cowboys-falcons-odds-picks-how-to-watch-betting/
+
+**Clemson defense exposed in loss to Louisville: How the ACC standings changed**\
+`The Tigers fell 33-21 to the Cardinals for their first conference loss of the season.`\
+https://nytimes.com/athletic/5893853/2024/11/02/clemson-louisville-score-analysis-college-football/
+
 **MLB finds Padres prospect falsified age**\
 `The league found that Cesar Altragarcia, a shortstop, is 19. His paperwork had stated he was 14.`\
 https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5893737/2024/11/02/nba-all-star-game-new-format-ada
 **Atlanta United's late winner puts Lionel Messi and Miami in must-win situation**\
 `Our writers analyze the key talking points from Atlanta United's MLS playoff win over Inter Miami.`\
 https://nytimes.com/athletic/5893678/2024/11/02/atlanta-united-inter-miami-messi-must-win/
-
-**At Women’s March in Washington, Hope That They Will Hold Off Trump**\
-`Thousands of women rallied in the capital and across the country for a Kamala Harris presidency — and to proclaim their resistance to Republican aims to restrict women’s reproductive rights.`\
-https://nytimes.com/2024/11/02/us/elections/womens-march-washington.html
-
-**PSU remains Ohio State's great panacea, and Ryan Day can breathe again**\
-`"There’s a never-give-up, there’s a give-me-an-inch-and-I’m-gonna-defend-it kind of mentality,” Ohio State coach Ryan Day said.`\
-https://nytimes.com/athletic/5893627/2024/11/02/ohio-state-ryan-day-penn-state-win-results-analysis/
 
