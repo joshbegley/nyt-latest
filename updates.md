@@ -1,3 +1,11 @@
+**What’s the Secret to a Good Water Handoff at the N.Y.C. Marathon?**\
+`Jeffrey Laperuta, 75, knows. He has volunteered at the Mile 3 fluid station of the New York City Marathon every year since 1984.`\
+https://nytimes.com/2024/11/03/nyregion/nyc-marathon-water-fluid-station.html
+
+**Business Leaders and the Election**\
+`Readers call on business leaders to help save our democracy. Also: After the voting; swing states; Holocaust legacy; defending corporate D.E.I.`\
+https://nytimes.com/2024/11/03/opinion/business-leaders-election.html
+
 **Commanders' Brian Robinson Jr. ruled out vs. Giants with hamstring injury**\
 `Robinson played in the last two games, rushing for 136 yards and one touchdown.`\
 https://nytimes.com/athletic/5894703/2024/11/03/brian-robinson-jr-out-injury-commanders-nfl/
