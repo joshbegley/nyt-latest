@@ -1,3 +1,7 @@
+**MLB finds Padres prospect falsified age**\
+`The league found that Cesar Altragarcia, a shortstop, is 19. His paperwork had stated he was 14.`\
+https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
+
 **Vince Carter's Toronto Raptors jersey retirement had something most don't — catharsis**\
 `Vince Carter's messy ending to his playing days with the Toronto Raptors made Saturday's ceremony more special. `\
 https://nytimes.com/athletic/5893736/2024/11/02/vince-carter-toronto-raptors-jersey-retirement-catharsis/
