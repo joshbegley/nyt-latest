@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/11/03/us/harris-trump-election/jamie-dimons-wife-j
 https://nytimes.com/2024/11/03/us/crime-swing-states-election.html
 
 **Still much work to do for ambitious Wrexham after shock FA Cup exit**\
-`After a surprise defeat in the FA Cup's first round, Phil Parkinson must ensure the loss doesn't derail his team in the league`\
+`As with their first-round defeat to Harrogate three years ago, Wrexham can have no complaints after wasting several gilt-edged opportunities`\
 https://nytimes.com/athletic/5885409/2024/11/03/wrexham-harrogate-fa-cup/
 
 **Secret Harris Supporters Could Make All the Difference**\

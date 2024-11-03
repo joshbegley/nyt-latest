@@ -1,3 +1,7 @@
+**Still much work to do for ambitious Wrexham after shock FA Cup exit**\
+`As with their first-round defeat to Harrogate three years ago, Wrexham can have no complaints after wasting several gilt-edged opportunities`\
+https://nytimes.com/athletic/5885409/2024/11/03/wrexham-harrogate-fa-cup/
+
 **São Paulo GP: Submit your questions for our F1 mailbag**\
 `Let's talk about that instant classic at Interlagos.`\
 https://nytimes.com/athletic/5895284/2024/11/03/sao-paulo-gp-submit-your-questions-for-our-f1-mailbag/
