@@ -1,3 +1,7 @@
+**São Paulo GP: Submit your questions for our F1 mailbag**\
+`Let's talk about that instant classic at Interlagos.`\
+https://nytimes.com/athletic/5895284/2024/11/03/sao-paulo-gp-submit-your-questions-for-our-f1-mailbag/
+
 **Fiery Michigan Crash Kills 4 After Semi Truck Slams Into Stopped Traffic**\
 `Seventeen other people were injured in the crash, which happened Saturday night on a highway east of Lansing after traffic had been halted to allow for utility work.`\
 https://nytimes.com/2024/11/03/us/michigan-highway-crash-dead.html
