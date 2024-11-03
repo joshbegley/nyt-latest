@@ -1,3 +1,11 @@
+**How Lando Norris' F1 title push faltered  due to a gamble and an unlucky red flag**\
+`Lando Norris' charge to overtake Max Verstappen for the drivers championship may have met its unofficial end on a wet day in Brazil.`\
+https://nytimes.com/athletic/5895375/2024/11/03/lando-norris-brazil-gp-red-flag-drivers-championship/
+
+**Wayne County, Mich.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/wayne-county-mich
+
 **Joe Burrow's 5 TDs lead Bengals to 41-24 rout of Raiders: Takeaways**\
 `Joe Burrow is the only QB to have multiple five passing touchdown games this season.`\
 https://nytimes.com/athletic/5894536/2024/11/03/raiders-bengals-takeaways-result/
