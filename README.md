@@ -2,7 +2,7 @@
 `Nearly 75 million people have cast early ballots, making their voices heard amid worry about the process, the outcome and democracy itself.`\
 https://nytimes.com/2024/11/03/us/elections/early-voting-presidential-election.html
 
-**Live from New York, a November Surprise!**\
+**Live From New York, a November Surprise!**\
 `This one was about the laughs, not the votes.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/dowd-harris-snl-rudolph
 
