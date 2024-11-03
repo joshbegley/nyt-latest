@@ -1,5 +1,5 @@
 **Alan Rachins, ‘L.A. Law’ and ‘Dharma & Greg’ Actor, Dies at 82**\
-`He became recognizable as a performer whose specialty was difficult men both in absurd comedies and tense dramas.`\
+`He became recognizable as a performer whose specialty was difficult men, in both absurd comedies and tense dramas.`\
 https://nytimes.com/2024/11/03/obituaries/alan-rachins-dead.html
 
 **There’s a Reason Harris Is Competitive in Georgia**\
