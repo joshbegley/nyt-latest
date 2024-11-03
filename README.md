@@ -1,3 +1,7 @@
+**Ruben Amorim Q&A: Do Man Utd have money to spend in January? Why is his job title 'head coach'?**\
+`Manchester United confirmed the appointment of Ruben Amorim as their new head coach on Friday afternoon`\
+https://nytimes.com/athletic/5890783/2024/11/03/ruben-amorim-manchester-united-question-answer/
+
 **These are dizzying days to be a Nottingham Forest fan**\
 `Nuno Espirito Santo's side are in the Champions League places - and right now that is no fluke`\
 https://nytimes.com/athletic/5893326/2024/11/03/nottingham-forest-third-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892636/2024/11/03/arsenal-attacking-issues-open-pl
 **Newcastle United are 'really good at what they do' again - even Mikel Arteta agrees**\
 `In a belated search for balance, Eddie Howe opted for a proven - if rarely seen - combination of players in midfield and attack `\
 https://nytimes.com/athletic/5892474/2024/11/03/newcastle-rediscover-form-eddie-howe/
-
-**Serie A? Premier League? MLS? Saudi Arabia? What next for Paul Pogba?**\
-`Pogba's ban from football has been reduced on appeal, so where could he end up when he becomes eligible to play again in March?`\
-https://nytimes.com/athletic/5866157/2024/11/03/paul-pogba-transfer-options/
 
