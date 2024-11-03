@@ -1,3 +1,11 @@
+**PSU remains Ohio State's great panacea, and Ryan Day can breathe again**\
+`"There’s a never-give-up, there’s a give-me-an-inch-and-I’m-gonna-defend-it kind of mentality,” Ohio State coach Ryan Day said.`\
+https://nytimes.com/athletic/5893627/2024/11/02/ohio-state-ryan-day-penn-state-win-results-analysis/
+
+**Corrections: Nov. 3, 2024**\
+`Corrections that appeared in print on Sunday, Nov. 3, 2024.`\
+https://nytimes.com/2024/11/02/pageoneplus/corrections-nov-3-2024.html
+
 **Adam Silver would 'love to have' NBA franchise in Mexico City**\
 `Silver said the league has no target time frame for expansion, whether it would be to Mexico City or another destination.`\
 https://nytimes.com/athletic/5893668/2024/11/02/nba-expansion-mexico-city-adam-silver/

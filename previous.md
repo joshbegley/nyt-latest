@@ -1,3 +1,11 @@
+**PSU remains Ohio State's great panacea, and Ryan Day can breathe again**\
+`"There’s a never-give-up, there’s a give-me-an-inch-and-I’m-gonna-defend-it kind of mentality,” Ohio State coach Ryan Day said.`\
+https://nytimes.com/athletic/5893627/2024/11/02/ohio-state-ryan-day-penn-state-win-results-analysis/
+
+**Corrections: Nov. 3, 2024**\
+`Corrections that appeared in print on Sunday, Nov. 3, 2024.`\
+https://nytimes.com/2024/11/02/pageoneplus/corrections-nov-3-2024.html
+
 **Adam Silver would 'love to have' NBA franchise in Mexico City**\
 `Silver said the league has no target time frame for expansion, whether it would be to Mexico City or another destination.`\
 https://nytimes.com/athletic/5893668/2024/11/02/nba-expansion-mexico-city-adam-silver/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5893517/2024/11/02/florida-georgia-football-score-r
 **Iowa State, K-State suffer losses; Big 12 standings chaos continues**\
 `The Big 12 cranked up the chaos Saturday with a pair of upset wins over No. 11 Iowa State and No. 17 Kansas State.`\
 https://nytimes.com/athletic/5893514/2024/11/02/texas-tech-iowa-state-result-score-takeaways/
-
-**Indiana continues undefeated season with first 9-0 start in program history**\
-`If the Hoosiers beat Michigan next week, they’ll be the first Indiana team with double figures in victories.`\
-https://nytimes.com/athletic/5893530/2024/11/02/indiana-undefeated-college-football-teams/
-
-**TGI Fridays, the Casual Dining Chain, Files for Bankruptcy**\
-`The company filed for Chapter 11 bankruptcy protection on Saturday but said its restaurants would remain open while it works on a “restructuring process.”`\
-https://nytimes.com/2024/11/02/business/tgi-fridays-bankruptcy.html
 
