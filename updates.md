@@ -1,3 +1,15 @@
+**Fiery Michigan Crash Kills 4 After Semi Truck Slams Into Stopped Traffic**\
+`Seventeen other people were injured in the crash, which happened Saturday night on a highway east of Lansing after traffic had been halted to allow for utility work.`\
+https://nytimes.com/2024/11/03/us/michigan-highway-crash-dead.html
+
+**Cowboys' Dak Prescott ruled out vs. Falcons with hamstring injury**\
+`Prescott never went down with an injury during the game, but headed to the injury tent with trainers at the end of the third quarter.`\
+https://nytimes.com/athletic/5895212/2024/11/03/dak-prescott-injury-cowboys/
+
+**Jamie Dimon’s wife, Judith Kent, knocks on doors in Michigan for Kamala Harris.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/jamie-dimons-wife-judith-kent-knocks-on-doors-in-michigan-for-kamala-harris
+
 **Crime Has Been a Big Talking Point. How Does It Look in Battleground States?**\
 `Even as violence crime rates fall, Republicans have sought to tie murders and drug overdoses to migrants. Here’s a rundown of crime rates in swing states.`\
 https://nytimes.com/2024/11/03/us/crime-swing-states-election.html
