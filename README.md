@@ -1,3 +1,7 @@
+**Adam Silver would 'love to have' NBA franchise in Mexico City**\
+`Silver said the league has no target time frame for expansion, whether it would be to Mexico City or another destination.`\
+https://nytimes.com/athletic/5893668/2024/11/02/nba-expansion-mexico-city-adam-silver/
+
 **Snyder: Penn State squandered yet another chance to reward fans' hope**\
 `A record crowd at Beaver Stadium had plenty of hope for Penn State to get over the hump vs. Ohio State. Once again, it turned into anger.`\
 https://nytimes.com/athletic/5893599/2024/11/02/penn-state-ohio-state-james-franklin-2/
@@ -6,13 +10,13 @@ https://nytimes.com/athletic/5893599/2024/11/02/penn-state-ohio-state-james-fran
 `Nick Foligno kicked off a rally at the start of the third period as the Blackhawks beat the Kings in a shootout.`\
 https://nytimes.com/athletic/5893036/2024/11/02/blackhawks-foligno-donato-comeback-kings/
 
-**Robert F. Kennedy Jr. Says Trump Will Seek to Remove Fluoride From Drinking Water**\
-`Donald J. Trump has said he would give Mr. Kennedy, a former rival who has long promoted unproven medical theories, a prominent health role if he wins.`\
-https://nytimes.com/2024/11/02/us/politics/robert-f-kennedy-jr-trump-fluoride-water.html
-
 **Harris Will Make Surprise Appearance on ‘Saturday Night Live’**\
 `After a campaign rally in Charlotte, N.C., she headed north to New York, where she was expected to appear on the late-night sketch comedy show.`\
 https://nytimes.com/2024/11/02/us/politics/kamala-harris-snl.html
+
+**Robert F. Kennedy Jr. Says Trump Will Seek to Remove Fluoride From Drinking Water**\
+`Donald J. Trump has said he would give Mr. Kennedy, a former rival who has long promoted unproven medical theories, a prominent health role if he wins.`\
+https://nytimes.com/2024/11/02/us/politics/robert-f-kennedy-jr-trump-fluoride-water.html
 
 **Analysing Jets attendance, Perfetti's position and Ehlers' minutes: Mailbag, part 2**\
 `Ticket sales seem off to a better start this season. Why, and is it sustainable? And what are the Jets' plans for Ehlers and Perfetti?`\
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/5881456/2024/11/02/jets-attendance-perfetti-ehlers/
 `No. 2 Georgia pulled away late for a 34-20 win against rival Florida, which lost quarterback DJ Lagway to a hamstring injury.`\
 https://nytimes.com/athletic/5893517/2024/11/02/florida-georgia-football-score-recap/
 
-**Texas Tech ends Iowa State's undefeated season**\
-`ISU’s bid for its first 8-0 start in school history slipped away when Texas Tech RB Tahj Brooks scored with 20 seconds left in the game.`\
+**Iowa State, K-State suffer losses; Big 12 standings chaos continues**\
+`The Big 12 cranked up the chaos Saturday with a pair of upset wins over No. 11 Iowa State and No. 17 Kansas State.`\
 https://nytimes.com/athletic/5893514/2024/11/02/texas-tech-iowa-state-result-score-takeaways/
 
 **Indiana continues undefeated season with first 9-0 start in program history**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893530/2024/11/02/indiana-undefeated-college-footb
 **TGI Fridays, the Casual Dining Chain, Files for Bankruptcy**\
 `The company filed for Chapter 11 bankruptcy protection on Saturday but said its restaurants would remain open while it works on a “restructuring process.”`\
 https://nytimes.com/2024/11/02/business/tgi-fridays-bankruptcy.html
-
-**Comeback falls short: Takeaways from yet another Nebraska debacle**\
-`Matt Rhule’s team was beaten in stunning fashion for the second time in three weeks. Can the Huskers rebound?`\
-https://nytimes.com/athletic/5893485/2024/11/02/nebraska-ucla-dylan-raiola/
 
