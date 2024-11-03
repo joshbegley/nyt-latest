@@ -1,3 +1,7 @@
+**NWSL quarterfinals schedule set: Key matchups, how to watch and more**\
+`Here's what you need to know ahead of the NWSL playoffs. `\
+https://nytimes.com/athletic/5895736/2024/11/03/nwsl-quarterfinal-schedule-how-to-watch/
+
 **Gretchen Whitmer Rallies Michigan Democrats as Election Day Nears**\
 `Ms. Whitmer won re-election as Michigan’s governor by 11 percentage points two years ago. Polls show a much closer race for president.`\
 https://nytimes.com/2024/11/03/us/whitmer-michigan-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895659/2024/11/03/nfl-week-9-scores-takeaways-rave
 **What Polls Can Tell Us, Beyond the Horse Race**\
 `As the election dust prepares to settle, patterns are emerging that might provide valuable context in the weeks to come.`\
 https://nytimes.com/2024/11/03/us/elections/what-polls-can-tell-us-beyond-the-horse-race.html
-
-**Trump Says He May Move Against Some Vaccinations and Fluoride in Water**\
-`Former President Donald J. Trump expressed openness to proposals set forth by Robert F. Kennedy Jr., the vaccine skeptic he has said would be allowed to “go wild on health.”`\
-https://nytimes.com/2024/11/03/us/politics/trump-rfk-jr-vaccines-fluoride.html
 

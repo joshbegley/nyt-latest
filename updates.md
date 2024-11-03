@@ -1,3 +1,7 @@
+**NWSL quarterfinals schedule set: Key matchups, how to watch and more**\
+`Here's what you need to know ahead of the NWSL playoffs. `\
+https://nytimes.com/athletic/5895736/2024/11/03/nwsl-quarterfinal-schedule-how-to-watch/
+
 **Gretchen Whitmer Rallies Michigan Democrats as Election Day Nears**\
 `Ms. Whitmer won re-election as Michigan’s governor by 11 percentage points two years ago. Polls show a much closer race for president.`\
 https://nytimes.com/2024/11/03/us/whitmer-michigan-election.html
