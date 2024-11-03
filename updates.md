@@ -1,3 +1,7 @@
+**Abdi Nageeye won the men’s race.**\
+`By Scott Cacciola`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/abdi-nageeye-won-the-mens-race
+
 **Sheila Chepkirui won the women’s race.**\
 `By Scott Cacciola`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/sheila-chepkirui-won-the-womens-race
