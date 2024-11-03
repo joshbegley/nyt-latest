@@ -1,3 +1,7 @@
+**How to watch the race without the crowds.**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-without-the-crowds
+
 **20/20 Foresight**\
 `We’re covering the strategic risks that Kamala Harris and Donald Trump are taking.`\
 https://nytimes.com/2024/11/03/briefing/20-20-foresight.html
