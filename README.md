@@ -1,3 +1,11 @@
+**Dolphins at Bills: How to watch, odds, expert picks as division rivals meet again**\
+`The Bills and Dolphins meet for the second time, with Miami desperate for a foothold and Buffalo dominating AFC East.`\
+https://nytimes.com/athletic/5891192/2024/11/02/dolphins-bills-odds-picks-how-to-watch-betting/
+
+**Texas A&M falls flat in loss to South Carolina: What this means in SEC race**\
+`South Carolina beat Texas A&M 44-20 and outgained the Aggies 530 total yards to 350.`\
+https://nytimes.com/athletic/5893907/2024/11/02/texas-am-held-scoreless-in-second-half-as-south-carolina-earns-marquee-win/
+
 **How Adam Gaudette became the Sens' key scorer — and why he keeps being sent to the AHL**\
 `The forward has gone from a fourth-line afterthought to an early-season surprise over the last five games for the Ottawa Senators.`\
 https://nytimes.com/athletic/5893532/2024/11/02/gaudette-senators-goals-ahl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5893748/2024/11/02/florida-georgia-billy-napier-lag
 **Maple Leafs report cards: Better team on ice in second loss to the Blues this season**\
 `Toronto dominated in the first period, but St. Louis fought back to beat its old coach again.`\
 https://nytimes.com/athletic/5893764/2024/11/02/maple-leafs-report-cards-blues-comeback/
-
-**ULM offensive line coach facing internal discipline for shoving player**\
-`Offensive line coach Cam Blankenship screamed at OL Drew Hutchinson and shoved him on the sideline before another player stepped in.`\
-https://nytimes.com/athletic/5893752/2024/11/02/ulm-coach-cam-blankenship-shoves-player/
-
-**NBA All-Star Game could have new format this season, Silver says**\
-`NBA commissioner Adam Silver said he has consulted Golden State Warriors star Stephen Curry about making changes to the exhibition game.`\
-https://nytimes.com/athletic/5893737/2024/11/02/nba-all-star-game-new-format-adam-silver/
 
