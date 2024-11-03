@@ -1,3 +1,5 @@
+**Here’s the marathon course map.**\
+
 **Colts at Vikings: How to watch, odds, expert picks with Joe Flacco set to start**\
 `The Vikings are a solid favorite at home against the Colts, who are starting Joe Flacco in place of Anthony Richardson.`\
 https://nytimes.com/athletic/5891239/2024/11/03/colts-vikings-how-to-watch-odds-picks-betting/
