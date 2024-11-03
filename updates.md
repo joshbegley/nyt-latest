@@ -1,3 +1,7 @@
+**The Pulse: 12-team Playoff chaos arrives**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5894629/2024/11/03/college-football-playoff-nfl-the-pulse/
+
 **The Briefing: Tottenham 4 Aston Villa 1 - Solanke's best game so far, Spurs' back-post threat, and another defensive injury**\
 `Analysis of Sunday's Premier League game at the Tottenham Hotspur Stadium`\
 https://nytimes.com/athletic/5888350/2024/11/03/tottenham-aston-villa-result-analysis-premier-league/

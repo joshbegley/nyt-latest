@@ -1,3 +1,7 @@
+**The Pulse: 12-team Playoff chaos arrives**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5894629/2024/11/03/college-football-playoff-nfl-the-pulse/
+
 **The Briefing: Tottenham 4 Aston Villa 1 - Solanke's best game so far, Spurs' back-post threat, and another defensive injury**\
 `Analysis of Sunday's Premier League game at the Tottenham Hotspur Stadium`\
 https://nytimes.com/athletic/5888350/2024/11/03/tottenham-aston-villa-result-analysis-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891159/2024/11/03/live-qa-week-9-fantasy-football-
 **What is running through their head as they run 26.2 miles?**\
 `By Jeré Longman and Talya Minsberg`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/what-is-running-through-their-head-as-they-run-26-2-miles
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/11/03/nhl-standings-playoffs-projections-odds/
 
