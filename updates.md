@@ -1,3 +1,7 @@
+**Joel Embiid shoves columnist in 76ers locker room**\
+`The physical altercation occurred after Embiid and a Philadelphia Inquirer columnist argued following the 76ers' loss to the Grizzlies.`\
+https://nytimes.com/athletic/5893926/2024/11/03/joel-embiid-76ers-reporter-assault-locker-room/
+
 **'We're thinking about him': If Blues are without Philip Broberg, the impact will be huge**\
 `The defenseman was injured in Saturday's 4-2 loss to Toronto. `\
 https://nytimes.com/athletic/5893643/2024/11/03/blues-philip-broberg-injury-maple-leafs/

@@ -1,3 +1,7 @@
+**Joel Embiid shoves columnist in 76ers locker room**\
+`The physical altercation occurred after Embiid and a Philadelphia Inquirer columnist argued following the 76ers' loss to the Grizzlies.`\
+https://nytimes.com/athletic/5893926/2024/11/03/joel-embiid-76ers-reporter-assault-locker-room/
+
 **'We're thinking about him': If Blues are without Philip Broberg, the impact will be huge**\
 `The defenseman was injured in Saturday's 4-2 loss to Toronto. `\
 https://nytimes.com/athletic/5893643/2024/11/03/blues-philip-broberg-injury-maple-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875054/2024/11/03/valencia-flooding-la-liga-spain/
 **Chargers at Browns odds, expert picks, how to watch: Will Justin Herbert return to form?**\
 `Can Justin Herbert return to form? Will Jameis Winston end up on the moon or on the turf?`\
 https://nytimes.com/athletic/5889231/2024/11/03/chargers-browns-odds-picks-how-to-watch-betting/
-
-**Trump Laughs as Supporter Yells That Harris ‘Worked on the Corner’**\
-`“This place is amazing,” Donald Trump said after a supporter shouted the crude comment at a rally. A quick clarification followed: “Just remember, it’s other people saying it. It’s not me.”`\
-https://nytimes.com/2024/11/03/us/politics/trump-harris-crude-remark.html
 
