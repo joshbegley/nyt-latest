@@ -15,7 +15,7 @@ https://nytimes.com/2024/11/03/opinion/trump-republican-party.html
 https://nytimes.com/2024/11/03/opinion/election-focus-groups.html
 
 **Canucks takeaways: Pius Suter's big night against Sharks, power-play progress, more**\
-`Suter tied the game in the second period and then scored the dramatic game winner in the closing seconds.`\
+`Suter scored the key goal to tie the game and then added the dramatic game winner in the closing seconds.`\
 https://nytimes.com/athletic/5893971/2024/11/03/pius-suter-canucks-takeaways/
 
 **Brandin Podziemski, Jonathan Kuminga help Warriors survive OT scare in Houston**\
