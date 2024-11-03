@@ -1,3 +1,7 @@
+**Jaguars at Eagles: How to watch, odds, expert picks with Philly on the rise**\
+`The Eagles have won three in a row after a spotty start, while the Jags have yet to make a promising case for their season.`\
+https://nytimes.com/athletic/5891247/2024/11/03/jaguars-eagles-odds-picks-how-to-watch-betting/
+
 **Tornadoes Reported in Oklahoma City as Storms Batter Great Plains**\
 `Parts of central and southern Oklahoma were under tornado warnings early Sunday, as several reportedly touched down in and near the state capital.`\
 https://nytimes.com/2024/11/03/us/tornado-storm-oklahoma-texas.html
