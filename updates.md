@@ -1,3 +1,7 @@
+**What One Tossup District Says About the Trump-Harris Battle for the Suburbs**\
+`Representative David Schweikert, a vulnerable Republican, is fighting for his political life in suburban Arizona, where the sprint to win over a crucial bloc of voters is coming down to the wire.`\
+https://nytimes.com/2024/11/03/us/politics/schweikert-shah-arizona-election-congress.html
+
 **Georgia Judge Rejects Republican Lawsuit to Block Hand-Returned Mail Ballots**\
 `The lawsuit targeted Fulton County, a Democratic stronghold, seeking to stop it from opening election offices over the weekend to receive absentee ballots in person.`\
 https://nytimes.com/2024/11/03/us/politics/georgia-mail-ballot-lawsuit.html
