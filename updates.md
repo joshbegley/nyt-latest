@@ -1,3 +1,19 @@
+**Georgia needs QB Carson Beck to solve his turnover problem**\
+`Beck's decision-making was the one thing Georgia wasn't supposed to worry about. But his turnovers have become one of its biggest questions.`\
+https://nytimes.com/athletic/5893821/2024/11/02/georgia-bulldogs-quarterback-carson-beck-florida-gators/
+
+**Dolphins at Bills: How to watch, odds, expert picks as division rivals meet again**\
+`The Bills and Dolphins meet for the second time, with Miami desperate for a foothold and Buffalo dominating AFC East.`\
+https://nytimes.com/athletic/5891192/2024/11/02/dolphins-bills-odds-picks-how-to-watch-betting/
+
+**Texas A&M falls flat in loss to South Carolina: What this means in SEC race**\
+`South Carolina beat Texas A&M 44-20 and outgained the Aggies 530 total yards to 350.`\
+https://nytimes.com/athletic/5893907/2024/11/02/texas-am-held-scoreless-in-second-half-as-south-carolina-earns-marquee-win/
+
+**MLB finds Padres prospect falsified age: Source**\
+`The league found that the shortstop, who went by the name Cesar Altagarcia, is 19.`\
+https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
+
 **MLB finds Padres prospect falsified age: Source**\
 `The league found that Cesar Altragarcia, a shortstop, is 19. His paperwork had stated he was 14.`\
 https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
