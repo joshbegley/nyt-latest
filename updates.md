@@ -1,3 +1,7 @@
+**Canadiens' constant search for progression feels more like regression**\
+`The Canadiens did all the things they were focused on. They managed the puck. They saw it as a step. Except we've already seen this story.`\
+https://nytimes.com/athletic/5893995/2024/11/03/canadiens-regressing-penguins-st-louis/
+
 **Ruben Amorim Q&A: Do Man Utd have money to spend in January? Why is his job title 'head coach'?**\
 `Manchester United confirmed the appointment of Ruben Amorim as their new head coach on Friday afternoon`\
 https://nytimes.com/athletic/5890783/2024/11/03/ruben-amorim-manchester-united-question-answer/
