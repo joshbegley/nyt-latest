@@ -1,3 +1,15 @@
+**This Election Pits the Guardians Against the Counterrevolutionaries**\
+`There’s something very different about Harris vs. Trump.`\
+https://nytimes.com/2024/11/03/opinion/trump-harris-election-day.html
+
+**A Second Trump Term? Three Conservative Columnists Unpack What Could Happen.**\
+`What will happen after Tuesday to Trumpism and the G.O.P. if Donald Trump wins — or loses?`\
+https://nytimes.com/2024/11/03/opinion/trump-republican-party.html
+
+**Our 61 Focus Groups Make Me Think Trump Has a Good Chance of Winning**\
+`What we learned from interviewing nearly 700 Americans over nearly three years.`\
+https://nytimes.com/2024/11/03/opinion/election-focus-groups.html
+
 **Canucks takeaways: Pius Suter's big night against Sharks, power-play progress, more**\
 `Suter tied the game in the second period and then scored the dramatic game winner in the closing seconds.`\
 https://nytimes.com/athletic/5893971/2024/11/03/pius-suter-canucks-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5893926/2024/11/03/joel-embiid-76ers-reporter-assau
 **'We're thinking about him': If Blues are without Philip Broberg, the impact will be huge**\
 `The defenseman was injured in Saturday's 4-2 win over Toronto. `\
 https://nytimes.com/athletic/5893643/2024/11/03/blues-philip-broberg-injury-maple-leafs/
-
-**Broncos at Ravens: How to watch, odds, expert picks with elite offense vs. stingy defense**\
-`No team allows fewer yards per play than the Broncos. No team gains more yards per play than the Ravens. They meet on Sunday.`\
-https://nytimes.com/athletic/5889385/2024/11/03/broncos-ravens-odds-picks-how-to-watch-betting/
-
-**Saints at Panthers: How to watch, odds, expert picks with Saints heavily favored**\
-`New Orleans is heavily favored on the road in Week 9, having easily handled the Panthers in Week 1.  `\
-https://nytimes.com/athletic/5891321/2024/11/03/saints-panthers-odds-picks-how-to-watch-betting/
-
-**Patriots at Titans: How to watch, odds, expert picks a matchup between two bottom-dwellers**\
-`The Titans are favored at home as they try to end their three-game losing streak by besting the Patriots. `\
-https://nytimes.com/athletic/5891231/2024/11/03/patriots-titans-odds-picks-how-to-watch-betting/
 
