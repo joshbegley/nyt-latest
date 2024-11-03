@@ -1,3 +1,7 @@
+**Trump Tells Supporters He ‘Shouldn’t Have Left’ the White House**\
+`Donald J. Trump, who sought to overturn his loss of the 2020 election, also joked that he didn’t mind if reporters were shot.`\
+https://nytimes.com/2024/11/03/us/politics/trump-pa-rally-election.html
+
 **Commanders' Brian Robinson Jr. ruled out vs. Giants with hamstring injury**\
 `Robinson played in the last two games, rushing for 136 yards and one touchdown.`\
 https://nytimes.com/athletic/5894703/2024/11/03/brian-robinson-jr-out-injury-commanders-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893965/2024/11/03/new-york-city-marathon-mens-wome
 **The Pulse: 12-team Playoff chaos arrives**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5894629/2024/11/03/college-football-playoff-nfl-the-pulse/
-
-**The Briefing: Tottenham 4 Aston Villa 1 - Solanke's best game so far, Spurs' back-post threat, and another defensive injury**\
-`Analysis of Sunday's Premier League game at the Tottenham Hotspur Stadium`\
-https://nytimes.com/athletic/5888350/2024/11/03/tottenham-aston-villa-result-analysis-premier-league/
 
