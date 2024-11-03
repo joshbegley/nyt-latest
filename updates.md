@@ -1,3 +1,7 @@
+**MLB finds Padres prospect falsified age: Source**\
+`The league found that Cesar Altragarcia, a shortstop, is 19. His paperwork had stated he was 14.`\
+https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
+
 **How Adam Gaudette became the Sens' key scorer — and why he keeps being sent to the AHL**\
 `The forward has gone from a fourth-line afterthought to an early-season surprise over the last five games for the Ottawa Senators.`\
 https://nytimes.com/athletic/5893532/2024/11/02/gaudette-senators-goals-ahl/
