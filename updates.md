@@ -1,3 +1,7 @@
+**Bears at Cardinals: How to watch, odds, picks with Arizona favored in near pick'em**\
+`The Bears and Cardinals are coming off close games in Week 8 and oddsmakers expect a very close matchup in Arizona.`\
+https://nytimes.com/athletic/5891306/2024/11/03/bears-cardinals-odds-picks-how-to-watch-betting/
+
 **Jaguars at Eagles: How to watch, odds, expert picks with Philly on the rise**\
 `The Eagles have won three in a row after a spotty start, while the Jags have yet to make a promising case for their season.`\
 https://nytimes.com/athletic/5891247/2024/11/03/jaguars-eagles-odds-picks-how-to-watch-betting/
