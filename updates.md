@@ -1,3 +1,11 @@
+**Atlanta United's late winner puts Lionel Messi and Miami in must-win situation**\
+`Our writers analyze the key talking points from Atlanta United's MLS playoff win over Inter Miami.`\
+https://nytimes.com/athletic/5893678/2024/11/02/atlanta-united-inter-miami-messi-must-win/
+
+**At Women’s March in Washington, Hope That They Will Hold Off Trump**\
+`Thousands of women rallied in the capital and across the country for a Kamala Harris presidency — and to proclaim their resistance to Republican aims to restrict women’s reproductive rights.`\
+https://nytimes.com/2024/11/02/us/elections/womens-march-washington.html
+
 **Atlanta United's late winner puts Messi and Miami in must-win situation**\
 `Our writers analyze the key talking points from Atlanta United's MLS playoff win over Inter Miami.`\
 https://nytimes.com/athletic/5893678/2024/11/02/atlanta-united-inter-miami-messi-must-win/
