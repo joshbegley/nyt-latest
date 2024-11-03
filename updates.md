@@ -1,3 +1,11 @@
+**Max Verstappen delivers iconic São Paulo GP win, expanding title lead on Lando Norris**\
+`Verstappen started P17 and drove through rainy chaos at Interlagos for an instant-classic victory. `\
+https://nytimes.com/athletic/5894586/2024/11/03/max-verstappen-brazil-gp-win-lando-norris/
+
+**'We gotta trust one another': Bucks losing sight of 'little, tiny things'**\
+`After racing out to a 30-14 lead in the first, the Bucks failed to pay attention to the details en route to their fifth consecutive defeat.`\
+https://nytimes.com/athletic/5893946/2024/11/03/damian-lillard-giannis-antetokounmpo-bucks-cavaliers/
+
 **'We gotta trust one another': Bucks skid hits five as they lose sight of 'little, tiny things'**\
 `After racing out to a 30-14 lead in the first, the Bucks failed to pay attention to the details en route to their fifth consecutive defeat.`\
 https://nytimes.com/athletic/5893946/2024/11/03/damian-lillard-giannis-antetokounmpo-bucks-cavaliers/

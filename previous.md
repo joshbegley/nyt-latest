@@ -1,4 +1,8 @@
-**'We gotta trust one another': Bucks skid hits five as they lose sight of 'little, tiny things'**\
+**Max Verstappen delivers iconic São Paulo GP win, expanding title lead on Lando Norris**\
+`Verstappen started P17 and drove through rainy chaos at Interlagos for an instant-classic victory. `\
+https://nytimes.com/athletic/5894586/2024/11/03/max-verstappen-brazil-gp-win-lando-norris/
+
+**'We gotta trust one another': Bucks losing sight of 'little, tiny things'**\
 `After racing out to a 30-14 lead in the first, the Bucks failed to pay attention to the details en route to their fifth consecutive defeat.`\
 https://nytimes.com/athletic/5893946/2024/11/03/damian-lillard-giannis-antetokounmpo-bucks-cavaliers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/sheila-chepkirui-won-t
 **What’s Powering 3 Generations of Runners? Family, Grit and Sandwiches.**\
 `The New York City Marathon is a family tradition for the Villavicencios.`\
 https://nytimes.com/2024/11/03/nyregion/nyc-marathon-runners-villavicencio-family.html
-
-**Suns' Kevin Durant, tired of leadership criticism, calls ESPN star 'a clown to me'**\
-`Is Kevin Durant a good leader? The question has hung over him for much of his career and bubbled up again last month via Stephen A. Smith.`\
-https://nytimes.com/athletic/5894224/2024/11/03/kevin-durant-suns-leadership-stephen-a-smith/
 
