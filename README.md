@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5891101/2024/11/02/cowboys-falcons-odds-picks-how-t
 https://nytimes.com/athletic/5893853/2024/11/02/clemson-louisville-score-analysis-college-football/
 
 **MLB finds Padres prospect falsified age: Source**\
-`The league found that Cesar Altragarcia, a shortstop, is 19. His paperwork had stated he was 14.`\
+`The league found that the shortstop, who went by the name Cesar Altagarcia, is 19.`\
 https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
 
 **Vince Carter's Toronto Raptors jersey retirement had something most don't — catharsis**\
