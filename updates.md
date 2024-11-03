@@ -1,3 +1,15 @@
+**The Briefing: Tottenham 4 Aston Villa 1 - Solanke's best game so far, Spurs' back-post threat, and another defensive injury**\
+`Analysis of Sunday's Premier League game at the Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/5888350/2024/11/03/tottenham-aston-villa-result-analysis-premier-league/
+
+**Business Leaders and the Election**\
+`Readers call on business leaders to help save our democracy. Also: After the voting; swing states; Holocaust legacy; defending corporate D.E.I.`\
+https://nytimes.com/2024/11/03/opinion/business-leaders-election.html
+
+**Say Cheese Enchiladas**\
+`“Enchiladas are warm hugs, enveloped in tortillas and blanketed in sauce,” Bryan Washington wrote. Truer words? Never spoken.`\
+https://nytimes.com/2024/11/03/dining/best-cheese-enchiladas-recipe.html
+
 **Romanchuk and Scaroni Win Wheelchair Races in Sweep for Americans**\
 `Romanchuk used a late sprint to win his third New York City Marathon, while Scaroni led from start to finish.`\
 https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-susannah-scaroni-nyc-marathon-wheelchair.html
