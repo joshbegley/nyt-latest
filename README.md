@@ -1,3 +1,7 @@
+**Daniel Romanchuk Wins His Third Men’s Wheelchair Race**\
+`He sprinted past David Weir in Central Park for the victory.`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/daniel-romanchuk-wins-his-third-mens-wheelchair-race
+
 **Live Q&A: Week 9 fantasy football start/sit chat with Jay Felicio, Sunday 11/3 at 11 a.m. ET**\
 `Submit your Week 9 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5891159/2024/11/03/live-qa-week-9-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-3-at-11-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-
 **20/20 Foresight**\
 `We’re covering the strategic risks that Kamala Harris and Donald Trump are taking.`\
 https://nytimes.com/2024/11/03/briefing/20-20-foresight.html
-
-**Daniel Romanchuk’s Pre-Marathon Routine Includes Sandpaper**\
-`There is no dedicated wheelchair repair shop at the New York City Marathon, so racers and their coaches come prepared with an array of tools to allow them to make fixes on the fly.`\
-https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-nyc-marathon-wheelchair.html
 
