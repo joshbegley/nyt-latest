@@ -1,3 +1,11 @@
+**Rainy-Day Reserves**\
+`Get into solving mode for this puzzle by Colin Adams.`\
+https://nytimes.com/2024/11/03/crosswords/daily-puzzle-2024-11-04.html
+
+**Obama Gives Tailored Pitch to Voters Wavering on Harris**\
+`Barack Obama’s laundry list for different constituencies hinted at what groups Democrats were focusing on in the final hours before Election Day.`\
+https://nytimes.com/2024/11/03/us/politics/obama-milwaukee-harris-trump.html
+
 **Titans end 3-game losing skid in 20-17 OT win vs. Patriots: Takeaways**\
 `The Titans ended a three-game losing streak with Sunday's 20-17 overtime win over the Patriots.`\
 https://nytimes.com/athletic/5894551/2024/11/03/patriots-titans-score-overtime-takeaways-result/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/03/us/politics/trump-rfk-jr-vaccines-fluoride.html
 **Barkley's backward hurdle draws widespread disbelief from NFL fans**\
 `The star running back went viral on Sunday with yet another standout highlight.`\
 https://nytimes.com/athletic/5895545/2024/11/03/saquon-barkley-hurdle-backwards-eagles-jaguars/
-
-**What is the New York City Marathon like from within the course?**\
-`The people of Bedford Avenue in Williamsburg, Brooklyn, take the medal for the loudest, longest throng. Tip of the cap to them.`\
-https://nytimes.com/athletic/5895654/2024/11/03/new-york-city-marathon-analysis/
-
-**Trump Says He Thinks Julia Roberts Will Regret Ad Supporting Harris**\
-`Ms. Roberts narrated an ad suggesting that women could privately vote for Vice President Kamala Harris without letting their husbands know.`\
-https://nytimes.com/2024/11/03/us/politics/trump-julia-roberts-ad.html
 
