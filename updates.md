@@ -1,3 +1,11 @@
+**20/20 Foresight**\
+`We’re covering the strategic risks that Kamala Harris and Donald Trump are taking.`\
+https://nytimes.com/2024/11/03/briefing/20-20-foresight.html
+
+**Daniel Romanchuk’s race-prep routine. It includes sandpaper.**\
+`By Ken Belson and Clark Hodgin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/daniel-romanchuk-race-prep-routine-it-includes-sandpaper
+
 **How much money can the elite runners win?**\
 `At the highest level, one woman and one man among invited professional athletes will win $100,000. Each runner-up will receive $60,000.`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-much-money-can-the-elite-runners-win
