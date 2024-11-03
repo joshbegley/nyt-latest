@@ -1,5 +1,5 @@
 **Alan Rachins, ‘L.A. Law’ and ‘Dharma & Greg’ Actor, Dies at 82**\
-`He became recognizable as a performer whose specialty was difficult men both in absurd comedies and tense dramas.`\
+`He became recognizable as a performer whose specialty was difficult men, in both absurd comedies and tense dramas.`\
 https://nytimes.com/2024/11/03/obituaries/alan-rachins-dead.html
 
 **There’s a Reason Harris Is Competitive in Georgia**\
@@ -18,7 +18,7 @@ https://nytimes.com/2024/11/03/us/elections/what-polls-can-tell-us-beyond-the-ho
 `Former President Donald J. Trump expressed openness to proposals set forth by Robert F. Kennedy Jr., the vaccine skeptic he has said would be allowed to “go wild on health.”`\
 https://nytimes.com/2024/11/03/us/politics/trump-rfk-jr-vaccines-fluoride.html
 
-**Barkley's backwards hurdle draws widespread disbelief from NFL fans**\
+**Barkley's backward hurdle draws widespread disbelief from NFL fans**\
 `The star running back went viral on Sunday with yet another standout highlight.`\
 https://nytimes.com/athletic/5895545/2024/11/03/saquon-barkley-hurdle-backwards-eagles-jaguars/
 
