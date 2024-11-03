@@ -1,3 +1,7 @@
+**Georgia needs QB Carson Beck to solve his turnover problem**\
+`Beck's decision-making was the one thing Georgia wasn't supposed to worry about. But his turnovers have become one of its biggest questions.`\
+https://nytimes.com/athletic/5893821/2024/11/02/georgia-bulldogs-quarterback-carson-beck-florida-gators/
+
 **Dolphins at Bills: How to watch, odds, expert picks as division rivals meet again**\
 `The Bills and Dolphins meet for the second time, with Miami desperate for a foothold and Buffalo dominating AFC East.`\
 https://nytimes.com/athletic/5891192/2024/11/02/dolphins-bills-odds-picks-how-to-watch-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893760/2024/11/02/wisconsin-iowa-score-analysis-co
 **Can Florida fairly evaluate Billy Napier with DJ Lagway injured?**\
 `Lagway's injury left Florida with walk-on Ivy League transfer Aidan Warner at quarterback in Saturday's loss to Georgia. What's next?`\
 https://nytimes.com/athletic/5893748/2024/11/02/florida-georgia-billy-napier-lagway-warner/
-
-**Maple Leafs report cards: Better team on ice in second loss to the Blues this season**\
-`Toronto dominated in the first period, but St. Louis fought back to beat its old coach again.`\
-https://nytimes.com/athletic/5893764/2024/11/02/maple-leafs-report-cards-blues-comeback/
 
