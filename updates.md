@@ -1,3 +1,7 @@
+**Harris Will Make Surprise Appearance on ‘Saturday Night Live’**\
+`After a campaign rally in Charlotte, N.C., she headed north to New York, where she was expected to appear on the late-night sketch comedy show.`\
+https://nytimes.com/2024/11/02/us/politics/kamala-harris-snl.html
+
 **Blackhawks pull off road comeback against Kings: Observations**\
 `Nick Foligno kicked off a rally at the start of the third period as the Blackhawks beat the Kings in a shootout.`\
 https://nytimes.com/athletic/5893036/2024/11/02/blackhawks-foligno-donato-comeback-kings/
