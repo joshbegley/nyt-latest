@@ -1,3 +1,11 @@
+**What is the New York City Marathon like from within the course?**\
+`The people of Bedford Avenue in Williamsburg, Brooklyn, take the medal for the loudest, longest throng. Tip of the cap to them.`\
+https://nytimes.com/athletic/5895654/2024/11/03/new-york-city-marathon-analysis/
+
+**Trump Says He Thinks Julia Roberts Will Regret Ad Supporting Harris**\
+`Ms. Roberts narrated an ad suggesting that women could privately vote for Vice President Kamala Harris without letting their husbands know.`\
+https://nytimes.com/2024/11/03/us/politics/trump-julia-roberts-ad.html
+
 **How Lando Norris' F1 title push faltered  due to a gamble and an unlucky red flag**\
 `Lando Norris' charge to overtake Max Verstappen for the drivers championship may have met its unofficial end on a wet day in Brazil.`\
 https://nytimes.com/athletic/5895375/2024/11/03/lando-norris-brazil-gp-red-flag-drivers-championship/
