@@ -1,3 +1,7 @@
+**A Vivid Trump-Harris Contrast in the Campaign’s Grueling Final Days**\
+`As Kamala Harris visited a church in Detroit on the last Sunday of the campaign, Donald J. Trump told supporters that he “shouldn’t have left” the White House after the 2020 election.`\
+https://nytimes.com/2024/11/03/us/politics/harris-trump-campaign.html
+
 **Broncos' lopsided loss to Ravens shows a long climb to be among AFC elite**\
 `The Ravens scored three straight touchdowns across the second and third quarters without the Broncos gaining a yard. "We got whooped today."`\
 https://nytimes.com/athletic/5895570/2024/11/03/broncos-loss-ravens-lopsided-afc-contenders/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/arts/dance/netta-yerushalmy-movement-nyu-skirball
 **NWSL quarterfinals schedule set: Key matchups, how to watch and more**\
 `Here's what you need to know ahead of the NWSL playoffs. `\
 https://nytimes.com/athletic/5895736/2024/11/03/nwsl-quarterfinal-schedule-how-to-watch/
-
-**Gretchen Whitmer Rallies Michigan Democrats as Election Day Nears**\
-`Ms. Whitmer won re-election as Michigan’s governor by 11 percentage points two years ago. Polls show a much closer race for president.`\
-https://nytimes.com/2024/11/03/us/whitmer-michigan-election.html
 
