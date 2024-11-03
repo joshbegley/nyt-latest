@@ -1,3 +1,7 @@
+**Romanchuk and Scaroni Win Wheelchair Races in Sweep for Americans**\
+`Romanchuk used a late sprint to win his third New York City Marathon, while Scaroni led from start to finish.`\
+https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-susannah-scaroni-nyc-marathon-wheelchair.html
+
 **Konate avoids serious injury, set to return against Bayer Leverkusen**\
 `Liverpool have received a major boost after a scan revealed that Ibrahima Konate did not break his left wrist in their 2-1 win over Brighton and Hove Albion at Anfield.`\
 https://nytimes.com/athletic/5894219/2024/11/03/ibrahima-konate-injury-update/

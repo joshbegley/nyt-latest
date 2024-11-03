@@ -1,3 +1,7 @@
+**Romanchuk and Scaroni Win Wheelchair Races in Sweep for Americans**\
+`Romanchuk used a late sprint to win his third New York City Marathon, while Scaroni led from start to finish.`\
+https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-susannah-scaroni-nyc-marathon-wheelchair.html
+
 **Konate avoids serious injury, set to return against Bayer Leverkusen**\
 `Liverpool have received a major boost after a scan revealed that Ibrahima Konate did not break his left wrist in their 2-1 win over Brighton and Hove Albion at Anfield.`\
 https://nytimes.com/athletic/5894219/2024/11/03/ibrahima-konate-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/opinion/cosmic-void-universe-space.html
 **Which Celebrities Are Running the New York City Marathon?**\
 `The actors Randall Park, Jennifer Connelly and Claire Holt have signed up, as have an NBC News correspondent and a beauty influencer.`\
 https://nytimes.com/2024/11/03/nyregion/celebrities-new-york-city-marathon.html
-
-**Ranking the Giants' biggest offseason priorities**\
-`From third base (covered) to shortstop (not so much), ranking the Giants' biggest areas of need at the start of the offseason.`\
-https://nytimes.com/athletic/5891394/2024/11/03/sf-giants-offseason-priorities-ranked/
 
