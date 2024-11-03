@@ -1,10 +1,22 @@
+**NASCAR semifinal race overshadowed by wall-ride controversy**\
+`An illegal move and possible race manipulation caused a delay in finding out who earned the final spot for NASCAR's championship race.`\
+https://nytimes.com/athletic/5895889/2024/11/03/nascar-semifinal-controversy-christopher-bell/
+
+**The Commanders get contributions from all over their roster to keep the party going**\
+`The Commanders improved to 7-2 Sunday, holding on to first place in the NFC East after their 27-22 victory over the Giants.`\
+https://nytimes.com/athletic/5895160/2024/11/03/commanders-beat-giants-jayden-daniels-keep-party-going/
+
+**California County to Pay $300,000 Over Butchering of Girl’s Goat**\
+`The girl and her family reached a settlement after accusing the Shasta County Sheriff’s Office of unlawfully seizing a pet goat that was sold and slaughtered.`\
+https://nytimes.com/2024/11/03/us/california-goat-butchered-settlement.html
+
 **On the issues: Where Harris and Trump stand on health care.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/03/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-health-care
 
 **Pro-West Leader Wins High-Stakes Vote in Former Soviet Republic**\
 `The president of Moldova, Maia Sandu, won re-election on Sunday against a rival candidate she had denounced as “Moscow’s man.”`\
-https://nytimes.com/2024/11/03/world/europe/pro-west-leader-wins-high-stakes-vote-in-former-soviet-republic.html
+https://nytimes.com/2024/11/03/world/europe/sandu-pro-west-moldova-president.html
 
 **Rams WR Puka Nacua ejected in second quarter vs. Seahawks**\
 `The incident happened after quarterback Matthew Stafford was intercepted on a contested throw intended for Nacua downfield.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/03/us/whitmer-michigan-election.html
 **Rainy-Day Reserves**\
 `Get into solving mode for this puzzle by Colin Adams.`\
 https://nytimes.com/2024/11/03/crosswords/daily-puzzle-2024-11-04.html
-
-**Obama Gives Tailored Pitch to Voters Wavering on Harris**\
-`Barack Obama’s laundry list for different constituencies hinted at what groups Democrats were focusing on in the final hours before Election Day.`\
-https://nytimes.com/2024/11/03/us/politics/obama-milwaukee-harris-trump.html
-
-**Titans end 3-game losing skid in 20-17 OT win vs. Patriots: Takeaways**\
-`The Titans ended a three-game losing streak with Sunday's 20-17 overtime win over the Patriots.`\
-https://nytimes.com/athletic/5894551/2024/11/03/patriots-titans-score-overtime-takeaways-result/
-
-**Jayden Daniels' 2 TD passes lead Commanders past Giants 27-22: Takeaways**\
-`Running backs Austin Ekeler, Jeremy McNichols and Chris Rodriguez combined with Daniels to gain 149 yards on the ground.`\
-https://nytimes.com/athletic/5894995/2024/11/03/giants-commanders-score-takeaways-result/
 
