@@ -1,3 +1,11 @@
+**'We're thinking about him': If Blues are without Philip Broberg, the impact will be huge**\
+`The defenseman was injured in Saturday's 4-2 win over Toronto. `\
+https://nytimes.com/athletic/5893643/2024/11/03/blues-philip-broberg-injury-maple-leafs/
+
+**Newcastle defeat showed why Arsenal need to add some spontaneity back into their attacking play**\
+`Mikel Arteta's side are too strong and consistent a team to fade away but they need to be bolder in their approach`\
+https://nytimes.com/athletic/5892636/2024/11/03/arsenal-attacking-issues-open-play/
+
 **Newcastle United are 'really good at what they do' again - even Mikel Arteta agrees**\
 `In a belated search for balance, Eddie Howe opted for a proven - if rarely seen - combination of players in midfield and attack `\
 https://nytimes.com/athletic/5892474/2024/11/03/newcastle-rediscover-form-eddie-howe/
