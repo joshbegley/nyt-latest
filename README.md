@@ -18,8 +18,8 @@ https://nytimes.com/2024/11/03/business/media/daily-beast-joanna-coles-ben-sherw
 `The tie-front shirts serve as a reminder that no matter how far women have come, it’s not nearly as far as they think.`\
 https://nytimes.com/2024/11/03/style/kamala-harris-pussy-bow-blouse.html
 
-**Severe Thunderstorm and Reported Tornado Hit Oklahoma City**\
-`Parts of central and southern Oklahoma were under tornado warnings early Sunday, as one reportedly touched down in the state capital.`\
+**Tornadoes Reported in Oklahoma City as Storms Batter Great Plains**\
+`Parts of central and southern Oklahoma were under tornado warnings early Sunday, as several reportedly touched down in and near the state capital.`\
 https://nytimes.com/2024/11/03/us/tornado-storm-oklahoma-texas.html
 
 **Spelling Bee Forum**\
