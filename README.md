@@ -1,3 +1,7 @@
+**Live Q&A: Week 9 fantasy football start/sit chat with Jay Felicio, Sunday 11/3 at 11 a.m. ET**\
+`Submit your Week 9 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5891159/2024/11/03/live-qa-week-9-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-3-at-11-a-m-et/
+
 **What is running through their head as they run 26.2 miles?**\
 `By Jeré Longman and Talya Minsberg`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/what-is-running-through-their-head-as-they-run-26-2-miles
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/briefing/20-20-foresight.html
 **Daniel Romanchuk’s Pre-Marathon Routine Includes Sandpaper**\
 `There is no dedicated wheelchair repair shop at the New York City Marathon, so racers and their coaches come prepared with an array of tools to allow them to make fixes on the fly.`\
 https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-nyc-marathon-wheelchair.html
-
-**How much money can the elite runners win?**\
-`At the highest level, one woman and one man among invited professional athletes will win $100,000. Each runner-up will receive $60,000.`\
-https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-much-money-can-the-elite-runners-win
 

@@ -1,4 +1,8 @@
 **Daniel Romanchuk’s Pre-Marathon Routine Includes Sandpaper**\
+`There is no dedicated wheelchair repair shop at the New York City Marathon, so racers and their coaches come prepared with an array of tools to allow them to make fixes on the fly.`\
+https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-nyc-marathon-wheelchair.html
+
+**Daniel Romanchuk’s Pre-Marathon Routine Includes Sandpaper**\
 `Unlike at the Olympics, where there are fix-it shops to help Paralympians in a pinch, there is no dedicated wheelchair repair shop at the New York City Marathon.`\
 https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-nyc-marathon-wheelchair.html
 

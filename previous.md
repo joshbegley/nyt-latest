@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-
 https://nytimes.com/2024/11/03/briefing/20-20-foresight.html
 
 **Daniel Romanchuk’s Pre-Marathon Routine Includes Sandpaper**\
-`Unlike at the Olympics, where there are fix-it shops to help Paralympians in a pinch, there is no dedicated wheelchair repair shop at the New York City Marathon.`\
+`There is no dedicated wheelchair repair shop at the New York City Marathon, so racers and their coaches come prepared with an array of tools to allow them to make fixes on the fly.`\
 https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-nyc-marathon-wheelchair.html
 
 **How much money can the elite runners win?**\
