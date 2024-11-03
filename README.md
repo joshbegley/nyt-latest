@@ -1,3 +1,7 @@
+**Jaguars at Eagles: How to watch, odds, expert picks with Philly on the rise**\
+`The Eagles have won three in a row after a spotty start, while the Jags have yet to make a promising case for their season.`\
+https://nytimes.com/athletic/5891247/2024/11/03/jaguars-eagles-odds-picks-how-to-watch-betting/
+
 **As Election Day Nears, Yard Signs Disappear**\
 `Modern technology including doorbell cameras and tiny tracking devices have turned the tables on sign stealers.`\
 https://nytimes.com/2024/11/03/nyregion/political-yard-sign-stealing.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/11/03/nyregion/daylight-saving-time-sunlight-photo
 **Live From New York, It’s Kamala Harris on ‘SNL’**\
 `The vice president made a brief appearance on “Saturday Night Live” this weekend.`\
 https://nytimes.com/2024/11/03/arts/television/saturday-night-live-kamala-harris.html
-
-**This Election Pits the Guardians Against the Counterrevolutionaries**\
-`There’s something very different about Harris vs. Trump.`\
-https://nytimes.com/2024/11/03/opinion/trump-harris-election-day.html
 
