@@ -1,3 +1,7 @@
+**Can Florida fairly evaluate Billy Napier with DJ Lagway injured?**\
+`Lagway's injury left Florida with walk-on Ivy League transfer Aidan Warner at quarterback in Saturday's loss to Georgia. What's next?`\
+https://nytimes.com/athletic/5893748/2024/11/02/florida-georgia-billy-napier-lagway-warner/
+
 **ULM offensive line coach facing internal discipline for shoving player**\
 `Offensive line coach Cam Blankenship screamed at OL Drew Hutchinson and shoved him on the sideline before another player stepped in.`\
 https://nytimes.com/athletic/5893752/2024/11/02/ulm-coach-cam-blankenship-shoves-player/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893599/2024/11/02/penn-state-ohio-state-james-fran
 **Blackhawks pull off road comeback against Kings: Observations**\
 `Nick Foligno kicked off a rally at the start of the third period as the Blackhawks beat the Kings in a shootout.`\
 https://nytimes.com/athletic/5893036/2024/11/02/blackhawks-foligno-donato-comeback-kings/
-
-**Harris Will Make Surprise Appearance on ‘Saturday Night Live’**\
-`After a campaign rally in Charlotte, N.C., she headed north to New York, where she was expected to appear on the late-night sketch comedy show.`\
-https://nytimes.com/2024/11/02/us/politics/kamala-harris-snl.html
 
