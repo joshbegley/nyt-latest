@@ -1,3 +1,11 @@
+**Rams WR Puka Nacua ejected in second quarter vs. Seahawks**\
+`The incident happened after quarterback Matthew Stafford was intercepted on a contested throw intended for Nacua downfield.`\
+https://nytimes.com/athletic/5895815/2024/11/03/puka-nacua-ejection-punch-rams-seahawks/
+
+**Review: Seven Dancers, a Mosaic of Movement**\
+`Netta Yerushalmy’s “Movement” at N.Y.U. Skirball comes from a patchwork of sources: TikTok, television, marching band practice and more.`\
+https://nytimes.com/2024/11/03/arts/dance/netta-yerushalmy-movement-nyu-skirball.html
+
 **NWSL quarterfinals schedule set: Key matchups, how to watch and more**\
 `Here's what you need to know ahead of the NWSL playoffs. `\
 https://nytimes.com/athletic/5895736/2024/11/03/nwsl-quarterfinal-schedule-how-to-watch/
