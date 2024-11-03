@@ -27,7 +27,7 @@ https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
 https://nytimes.com/athletic/5892780/2024/11/03/blue-jackets-boone-jenner-erik-gudbranson-injury/
 
 **The Briefing: Manchester United 1 Chelsea 1 - Caicedo's stunner, Mazraoui impresses in Old Trafford draw**\
-`Carl Anka and Simon Johnson break down the main talking points from Manchester United and Chelsea's 1-1 draw at Old Trafford`\
+`Carl Anka and Simon Johnson break down the main talking points from today's stalemate at Old Trafford`\
 https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-maresca-van-nistelrooy-caicedo-mazraoui/
 
 **Paris Bercy takes its final bow in the chaos of late-season ATP Tour tennis**\
