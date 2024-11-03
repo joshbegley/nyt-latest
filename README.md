@@ -1,3 +1,11 @@
+**São Paulo GP: Submit your questions for our F1 mailbag**\
+`Let's talk about that instant classic at Interlagos.`\
+https://nytimes.com/athletic/5895284/2024/11/03/sao-paulo-gp-submit-your-questions-for-our-f1-mailbag/
+
+**Fiery Michigan Crash Kills 4 After Semi Truck Slams Into Stopped Traffic**\
+`Seventeen other people were injured in the crash, which happened Saturday night on a highway east of Lansing after traffic had been halted to allow for utility work.`\
+https://nytimes.com/2024/11/03/us/michigan-highway-crash-dead.html
+
 **Cowboys' Dak Prescott ruled out vs. Falcons with hamstring injury**\
 `Prescott never went down with an injury during the game, but headed to the injury tent with trainers at the end of the third quarter.`\
 https://nytimes.com/athletic/5895212/2024/11/03/dak-prescott-injury-cowboys/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5894992/2024/11/03/max-verstappen-f1-brazil-gp-win-
 **Maresca says Martinez should have been sent off for Palmer tackle**\
 `Chelsea head coach Enzo Maresca believes Manchester United defender Lisandro Martinez should have been sent off for his challenge on Cole Palmer during Sunday’s 1-1 draw between the two sides.`\
 https://nytimes.com/athletic/5895123/2024/11/03/lisandro-martinez-foul-man-utd-chelsea/
-
-**Abdi Nageeye and Sheila Chepkirui Win New York City Marathon**\
-`A riveting competition ended with one-on-one clashes in both the men’s and women’s races, and with three Kenyans on the women’s podium.`\
-https://nytimes.com/2024/11/03/nyregion/abdi-nageeye-sheila-chepkirui-nyc-marathon-winners.html
-
-**After everyone else has gone, this team stays for the final finishers.**\
-`This will be the second year of volunteers working between Mile 15 and the finish line to support the marathon’s final runners as energy, light and cheering spectators wane.`\
-https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/after-everyone-else-has-gone-this-team-stays-for-the-final-finishers
 
