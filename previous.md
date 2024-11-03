@@ -1,3 +1,7 @@
+**Live From New York, It’s Kamala Harris on ‘SNL’**\
+`The vice president made a brief appearance on “Saturday Night Live” this weekend.`\
+https://nytimes.com/2024/11/03/arts/television/saturday-night-live-kamala-harris.html
+
 **This Election Pits the Guardians Against the Counterrevolutionaries**\
 `There’s something very different about Harris vs. Trump.`\
 https://nytimes.com/2024/11/03/opinion/trump-harris-election-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893326/2024/11/03/nottingham-forest-third-premier-
 **Mark McKenzie interview: Pochettino's gospel of small USMNT gains, Toulouse move and camera crews**\
 `The centre-back is settling into life in Ligue 1 following his summer move from Belgium and relishing involvement with the national team`\
 https://nytimes.com/athletic/5890534/2024/11/03/mckenzie-usmnt-toulouse-pochettino-intensity/
-
-**Joel Embiid shoves columnist in 76ers locker room**\
-`The physical altercation occurred after Embiid and a Philadelphia Inquirer columnist argued following the 76ers' loss to the Grizzlies.`\
-https://nytimes.com/athletic/5893926/2024/11/03/joel-embiid-76ers-reporter-assault-locker-room/
 

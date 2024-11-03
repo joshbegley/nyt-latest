@@ -1,3 +1,7 @@
+**Live From New York, It’s Kamala Harris on ‘SNL’**\
+`The vice president made a brief appearance on “Saturday Night Live” this weekend.`\
+https://nytimes.com/2024/11/03/arts/television/saturday-night-live-kamala-harris.html
+
 **Sabres off to worst start since 2017-18. Can Kevyn Adams fix it?**\
 `This was not supposed to be one of those years. There’s a lot that needs fixing, a lot that's in need of answers.`\
 https://nytimes.com/athletic/5894021/2024/11/03/buffalo-sabres-worst-start-since-2017/
