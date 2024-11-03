@@ -1,3 +1,7 @@
+**NBA All-Star Game could have new format this season, Silver says**\
+`NBA commissioner Adam Silver said he has consulted Golden State Warriors star Stephen Curry about making changes to the exhibition game.`\
+https://nytimes.com/athletic/5893737/2024/11/02/nba-all-star-game-new-format-adam-silver/
+
 **Atlanta United's late winner puts Lionel Messi and Miami in must-win situation**\
 `Our writers analyze the key talking points from Atlanta United's MLS playoff win over Inter Miami.`\
 https://nytimes.com/athletic/5893678/2024/11/02/atlanta-united-inter-miami-messi-must-win/
