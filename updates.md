@@ -1,3 +1,11 @@
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/03/nhl-standings-playoffs-projections-odds/
+
+**Until Saturday: Week 10's wild ride, plus a Playoff prediction**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who's in the top 12? There were some shakeups after a wild Week 10.`\
+https://nytimes.com/athletic/5894213/2024/11/03/college-football-week-10-playoff-predictions-until-saturday/
+
 **The Gift of the Cosmic Voids**\
 `Most of the universe is made of nothingness. That realization should make us feel empowered, not frightened.`\
 https://nytimes.com/2024/11/03/opinion/cosmic-void-universe-space.html
