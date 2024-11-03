@@ -1,14 +1,18 @@
+**Saints at Panthers: How to watch, odds, expert picks with Saints heavily favored**\
+`New Orleans is heavily favored on the road in Week 9, having easily handled the Panthers in Week 1.  `\
+https://nytimes.com/athletic/5891321/2024/11/03/saints-panthers-odds-picks-how-to-watch-betting/
+
 **Patriots at Titans: How to watch, odds, expert picks a matchup between two bottom-dwellers**\
 `The Titans are favored at home as they try to end their three-game losing streak by besting the Patriots. `\
 https://nytimes.com/athletic/5891231/2024/11/03/patriots-titans-odds-picks-how-to-watch-betting/
 
-**Newcastle United are 'really good at what they do' again - even Mikel Arteta agrees**\
-`In a belated search for balance, Eddie Howe opted for a proven - if rarely seen - combination of players in midfield and attack `\
-https://nytimes.com/athletic/5892474/2024/11/03/newcastle-rediscover-form-eddie-howe/
-
 **Newcastle defeat showed why Arsenal need to add some spontaneity back into their attacking play**\
 `Mikel Arteta's side are too strong and consistent a team to fade away but they need to be bolder in their approach`\
 https://nytimes.com/athletic/5892636/2024/11/03/arsenal-attacking-issues-open-play/
+
+**Newcastle United are 'really good at what they do' again - even Mikel Arteta agrees**\
+`In a belated search for balance, Eddie Howe opted for a proven - if rarely seen - combination of players in midfield and attack `\
+https://nytimes.com/athletic/5892474/2024/11/03/newcastle-rediscover-form-eddie-howe/
 
 **Serie A? Premier League? MLS? Saudi Arabia? What next for Paul Pogba?**\
 `Pogba's ban from football has been reduced on appeal, so where could he end up when he becomes eligible to play again in March?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891891/2024/11/03/manchester-united-chelsea-previe
 **Quote of the Day: War Payments Have Russians Rolling in Cash**\
 `Quotation of the Day for Sunday, November 3, 2024.`\
 https://nytimes.com/2024/11/03/pageoneplus/quote-of-the-day-war-payments-have-russians-rolling-in-cash.html
-
-**How One Lebanese Town Is Trying to Stay Out of the War Around It**\
-`While Lebanese are united against Israel’s onslaught, some in southern towns where Hezbollah does not hold sway say they feel caught between Israel’s firepower and Hezbollah’s fighters.`\
-https://nytimes.com/2024/11/03/world/middleeast/lebanon-hezbollah-israel.html
 

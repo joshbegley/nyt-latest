@@ -1,3 +1,7 @@
+**Saints at Panthers: How to watch, odds, expert picks with Saints heavily favored**\
+`New Orleans is heavily favored on the road in Week 9, having easily handled the Panthers in Week 1.  `\
+https://nytimes.com/athletic/5891321/2024/11/03/saints-panthers-odds-picks-how-to-watch-betting/
+
 **Patriots at Titans: How to watch, odds, expert picks a matchup between two bottom-dwellers**\
 `The Titans are favored at home as they try to end their three-game losing streak by besting the Patriots. `\
 https://nytimes.com/athletic/5891231/2024/11/03/patriots-titans-odds-picks-how-to-watch-betting/
