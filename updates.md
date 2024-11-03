@@ -1,3 +1,15 @@
+**Crime Has Been a Big Talking Point. How Does It Look in Battleground States?**\
+`Even as violence crime rates fall, Republicans have sought to tie murders and drug overdoses to migrants. Here’s a rundown of crime rates in swing states.`\
+https://nytimes.com/2024/11/03/us/crime-swing-states-election.html
+
+**Still much work to do for ambitious Wrexham after shock FA Cup exit**\
+`After a surprise defeat in the FA Cup's first round, Phil Parkinson must ensure the loss doesn't derail his team in the league`\
+https://nytimes.com/athletic/5885409/2024/11/03/wrexham-harrogate-fa-cup/
+
+**Secret Harris Supporters Could Make All the Difference**\
+`The number of Republicans for Harris in Pennsylvania could be substantial.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/pennsylvania-secret-harris-supporters
+
 **The other race on marathon day: the rush to get runners’ names into the newspaper.**\
 `By Shayla Colon`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/the-other-race-on-marathon-day-the-rush-to-get-runners-names-into-the-newspaper
