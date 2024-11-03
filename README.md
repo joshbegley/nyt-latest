@@ -1,7 +1,3 @@
-**Commanders' Brian Robinson Jr. ruled out vs. Giants with hamstring injury**\
-`Robinson played in the last two games, rushing for 136 yards and one touchdown.`\
-https://nytimes.com/athletic/5894703/2024/11/03/brian-robinson-jr-out-injury-commanders-nfl/
-
 **What’s the Secret to a Good Water Handoff at the N.Y.C. Marathon?**\
 `Jeffrey Laperuta, 75, knows. He has volunteered at the Mile 3 fluid station of the New York City Marathon every year since 1984.`\
 https://nytimes.com/2024/11/03/nyregion/lessons-from-four-decades-as-a-fluid-station-volunteer.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5894629/2024/11/03/college-football-playoff-nfl-the
 **The Briefing: Tottenham 4 Aston Villa 1 - Solanke's best game so far, Spurs' back-post threat, and another defensive injury**\
 `Analysis of Sunday's Premier League game at the Tottenham Hotspur Stadium`\
 https://nytimes.com/athletic/5888350/2024/11/03/tottenham-aston-villa-result-analysis-premier-league/
+
+**Business Leaders and the Election**\
+`Readers call on business leaders to help save our democracy. Also: After the voting; swing states; Holocaust legacy; defending corporate D.E.I.`\
+https://nytimes.com/2024/11/03/opinion/business-leaders-election.html
 
