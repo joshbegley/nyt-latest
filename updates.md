@@ -1,3 +1,7 @@
+**Daniel Romanchuk’s Pre-Marathon Routine Includes Sandpaper**\
+`Unlike at the Olympics, where there are fix-it shops to help Paralympians in a pinch, there is no dedicated wheelchair repair shop at the New York City Marathon.`\
+https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-nyc-marathon-wheelchair.html
+
 **What is running through their head as they run 26.2 miles?**\
 `By Jeré Longman and Talya Minsberg`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/what-is-running-through-their-head-as-they-run-26-2-miles
