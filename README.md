@@ -1,3 +1,11 @@
+**Lessons from four decades as a fluid station volunteer.**\
+`Jeffrey Laperuta, 75, has volunteered at the Mile 3 fluid station every year since 1984.`\
+https://nytimes.com/2024/11/03/nyregion/lessons-from-four-decades-as-a-fluid-station-volunteer.html
+
+**The most graded sports cards of all time: From the iconic to the overprinted**\
+`Iconic athletes of the '80s and'90s top the lists, but young stars are quickly rising`\
+https://nytimes.com/athletic/5894403/2024/11/03/most-graded-sports-cards-griffey-jordan/
+
 **Abdi Nageeye won the men’s race.**\
 `By Scott Cacciola`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/abdi-nageeye-won-the-mens-race
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5888350/2024/11/03/tottenham-aston-villa-result-ana
 **Business Leaders and the Election**\
 `Readers call on business leaders to help save our democracy. Also: After the voting; swing states; Holocaust legacy; defending corporate D.E.I.`\
 https://nytimes.com/2024/11/03/opinion/business-leaders-election.html
-
-**Say Cheese Enchiladas**\
-`“Enchiladas are warm hugs, enveloped in tortillas and blanketed in sauce,” Bryan Washington wrote. Truer words? Never spoken.`\
-https://nytimes.com/2024/11/03/dining/best-cheese-enchiladas-recipe.html
-
-**Romanchuk and Scaroni Win Wheelchair Races in Sweep for Americans**\
-`Romanchuk used a late sprint to win his third New York City Marathon, while Scaroni led from start to finish.`\
-https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-susannah-scaroni-nyc-marathon-wheelchair.html
 
