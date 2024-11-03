@@ -1,3 +1,7 @@
+**Here are some of the celebrities running the marathon.**\
+`The actors Randall Park, Jennifer Connelly and Claire Holt have signed up, as have an NBC News correspondent and a beauty influencer.`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/here-are-some-of-the-celebrities-running-the-marathon
+
 **Ranking the Giants' biggest offseason priorities**\
 `From third base (covered) to shortstop (not so much), ranking the Giants' biggest areas of need at the start of the offseason.`\
 https://nytimes.com/athletic/5891394/2024/11/03/sf-giants-offseason-priorities-ranked/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5894036/2024/11/03/college-football-playoff-week-10
 **Where are the best spots to cheer?**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/heres-our-guide-for-the-best-spots-to-cheer
-
-**When do runners start and when do they finish?**\
-`By Jennie Coughlin`\
-https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/when-do-runners-start-and-when-do-they-finish
 
