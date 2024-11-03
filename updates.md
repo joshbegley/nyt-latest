@@ -1,3 +1,7 @@
+**Thousands of Children in Gaza Get 2nd Dose of Polio Vaccine**\
+`Aid agencies said that children in some areas of northern Gaza where Israel is mounting an offensive against Hamas will miss the doses, compromising the effectiveness of the campaign.`\
+https://nytimes.com/2024/11/03/world/middleeast/gaza-polio-vaccine.html
+
 **How to track your favorite runners.**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-track-your-favorite-runners
