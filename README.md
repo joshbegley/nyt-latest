@@ -1,3 +1,15 @@
+**Jackson enhances MVP case, powers Ravens to 41-10 win vs. Broncos: Takeaways**\
+`Baltimore's star quarterback now has four games with perfect passer ratings in his career. `\
+https://nytimes.com/athletic/5894515/2024/11/03/broncos-ravens-score-takeaways-result/
+
+**Here’s the latest on the storm.**\
+`By John Keefe`\
+https://nytimes.com/live/2024/11/03/weather/tropical-storm-rafael-hurricane/heres-the-latest-on-the-storm
+
+**A Potential Cyclone in the Caribbean Could Track Toward the U.S.**\
+`If it grows as predicted, it would likely become Tropical Storm Rafael.`\
+https://nytimes.com/live/2024/11/03/weather/tropical-storm-rafael-hurricane
+
 **Monday Briefing: The Final Set of Times/Siena Election Polls**\
 `Plus, using generative A.I. to take a “decision holiday.”`\
 https://nytimes.com/2024/11/03/briefing/election-polls-iran-israel-botswana.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/03/us/crime-swing-states-election.html
 **Still much work to do for ambitious Wrexham after shock FA Cup exit**\
 `As with their first-round defeat to Harrogate three years ago, Wrexham can have no complaints after wasting several gilt-edged opportunities`\
 https://nytimes.com/athletic/5885409/2024/11/03/wrexham-harrogate-fa-cup/
-
-**Secret Harris Supporters Could Make All the Difference**\
-`The number of Republicans for Harris in Pennsylvania could be substantial.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/pennsylvania-secret-harris-supporters
-
-**The other race on marathon day: the rush to get runners’ names into the newspaper.**\
-`By Shayla Colon`\
-https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/the-other-race-on-marathon-day-the-rush-to-get-runners-names-into-the-newspaper
-
-**In Brazil, Max Verstappen produces a classic F1 win — and closes in on another title**\
-`On Sunday, Verstappen took control of F1's championship in emphatic, comprehensive and historic fashion.`\
-https://nytimes.com/athletic/5894992/2024/11/03/max-verstappen-f1-brazil-gp-win-championship/
 
