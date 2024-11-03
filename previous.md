@@ -1,3 +1,11 @@
+**Titans end 3-game losing skid in 20-17 OT win vs. Patriots: Takeaways**\
+`The Titans ended a three-game losing streak with Sunday's 20-17 overtime win over the Patriots.`\
+https://nytimes.com/athletic/5894551/2024/11/03/patriots-titans-score-overtime-takeaways-result/
+
+**Jayden Daniels' 2 TD passes lead Commanders past Giants 27-22: Takeaways**\
+`Running backs Austin Ekeler, Jeremy McNichols and Chris Rodriguez combined with Daniels to gain 149 yards on the ground.`\
+https://nytimes.com/athletic/5894995/2024/11/03/giants-commanders-score-takeaways-result/
+
 **Alan Rachins, ‘L.A. Law’ and ‘Dharma & Greg’ Actor, Dies at 82**\
 `He became recognizable as a performer whose specialty was difficult men, in both absurd comedies and tense dramas.`\
 https://nytimes.com/2024/11/03/obituaries/alan-rachins-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5895654/2024/11/03/new-york-city-marathon-analysis/
 **Trump Says He Thinks Julia Roberts Will Regret Ad Supporting Harris**\
 `Ms. Roberts narrated an ad suggesting that women could privately vote for Vice President Kamala Harris without letting their husbands know.`\
 https://nytimes.com/2024/11/03/us/politics/trump-julia-roberts-ad.html
-
-**How Lando Norris' F1 title push faltered  due to a gamble and an unlucky red flag**\
-`Lando Norris' charge to overtake Max Verstappen for the drivers championship may have met its unofficial end on a wet day in Brazil.`\
-https://nytimes.com/athletic/5895375/2024/11/03/lando-norris-brazil-gp-red-flag-drivers-championship/
-
-**Wayne County, Mich.**\
-`By Mitch Smith`\
-https://nytimes.com/live/2024/11/03/us/harris-trump-election/wayne-county-mich
 

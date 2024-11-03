@@ -1,3 +1,11 @@
+**Titans end 3-game losing skid in 20-17 OT win vs. Patriots: Takeaways**\
+`The Titans ended a three-game losing streak with Sunday's 20-17 overtime win over the Patriots.`\
+https://nytimes.com/athletic/5894551/2024/11/03/patriots-titans-score-overtime-takeaways-result/
+
+**Jayden Daniels' 2 TD passes lead Commanders past Giants 27-22: Takeaways**\
+`Running backs Austin Ekeler, Jeremy McNichols and Chris Rodriguez combined with Daniels to gain 149 yards on the ground.`\
+https://nytimes.com/athletic/5894995/2024/11/03/giants-commanders-score-takeaways-result/
+
 **Alan Rachins, ‘L.A. Law’ and ‘Dharma & Greg’ Actor, Dies at 82**\
 `He became recognizable as a performer whose specialty was difficult men, in both absurd comedies and tense dramas.`\
 https://nytimes.com/2024/11/03/obituaries/alan-rachins-dead.html
