@@ -1,3 +1,7 @@
+**'We gotta trust one another': Bucks skid hits five as they lose sight of 'little, tiny things'**\
+`After racing out to a 30-14 lead in the first, the Bucks failed to pay attention to the details en route to their fifth consecutive defeat.`\
+https://nytimes.com/athletic/5893946/2024/11/03/damian-lillard-giannis-antetokounmpo-bucks-cavaliers/
+
 **James O’Keefe Recruits Election Workers to Secretly Record at the Polls**\
 `Mr. O’Keefe has sought volunteers willing to wear hidden cameras and hunt for voting problems. Dozens of election judges and poll monitors responded, records show.`\
 https://nytimes.com/2024/11/03/us/politics/2024-election-james-okeefe-voting.html

@@ -1,3 +1,7 @@
+**'We gotta trust one another': Bucks skid hits five as they lose sight of 'little, tiny things'**\
+`After racing out to a 30-14 lead in the first, the Bucks failed to pay attention to the details en route to their fifth consecutive defeat.`\
+https://nytimes.com/athletic/5893946/2024/11/03/damian-lillard-giannis-antetokounmpo-bucks-cavaliers/
+
 **James O’Keefe Recruits Election Workers to Secretly Record at the Polls**\
 `Mr. O’Keefe has sought volunteers willing to wear hidden cameras and hunt for voting problems. Dozens of election judges and poll monitors responded, records show.`\
 https://nytimes.com/2024/11/03/us/politics/2024-election-james-okeefe-voting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/nyregion/nyc-marathon-runners-villavicencio-famil
 **Suns' Kevin Durant, tired of leadership criticism, calls ESPN star 'a clown to me'**\
 `Is Kevin Durant a good leader? The question has hung over him for much of his career and bubbled up again last month via Stephen A. Smith.`\
 https://nytimes.com/athletic/5894224/2024/11/03/kevin-durant-suns-leadership-stephen-a-smith/
-
-**New York City Marathon results: Nageeye, Chepkirui stun historic fields**\
-`Chepkirui entered Sunday with an impressive 2:17:29 personal best, but also as a darkhorse on the famed course.`\
-https://nytimes.com/athletic/5893965/2024/11/03/new-york-city-marathon-mens-womens-results/
 
