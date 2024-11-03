@@ -1,3 +1,7 @@
+**How to track your favorite runners.**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-track-your-favorite-runners
+
 **Week 10's College Football Playoff lessons: Big 12 shakeups and SEC trap games**\
 `Five teams in the AP Top 25 lost to unranked teams and three fell from the ranks of the unbeaten on Saturday.`\
 https://nytimes.com/athletic/5894036/2024/11/03/college-football-playoff-week-10-upsets-big-12/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5894111/2024/11/03/college-football-highlights-ohio
 **Want to Make Sense of the Chaos on Election Night? Here Are the House Races I’m Watching.**\
 `Key districts will give us clues for how the election is going. They may also answer some of the big demographic questions looming over U.S. politics.`\
 https://nytimes.com/2024/11/03/opinion/house-election-districts.html
-
-**Women Are Dying in Post-Roe America, and Your Vote Matters**\
-`Access to basic women’s health care is under threat on Election Day.`\
-https://nytimes.com/2024/11/03/opinion/abortion-miscarriage-roe-v-wade-election.html
 

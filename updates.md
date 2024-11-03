@@ -1,3 +1,7 @@
+**How to track your favorite runners.**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-track-your-favorite-runners
+
 **Week 10's College Football Playoff lessons: Big 12 shakeups and SEC trap games**\
 `Five teams in the AP Top 25 lost to unranked teams and three fell from the ranks of the unbeaten on Saturday.`\
 https://nytimes.com/athletic/5894036/2024/11/03/college-football-playoff-week-10-upsets-big-12/
