@@ -1,3 +1,35 @@
+**As Election Day Nears, Yard Signs Disappear**\
+`Modern technology including doorbell cameras and tiny tracking devices have turned the tables on sign stealers.`\
+https://nytimes.com/2024/11/03/nyregion/political-yard-sign-stealing.html
+
+**How a 178-Year-Old Magazine Stays Relevant, One Instagram Post at a Time**\
+`Stellene Volandes has brought new life to Town & Country, with snappy cover lines and an active social media presence. Could she be the next Anna Wintour?`\
+https://nytimes.com/2024/11/03/business/media/town-and-country-hearst-stellene-volandes.html
+
+**‘I Made My Last Trip Down the Building’s Worn Marble Stairs ’**\
+`A surprise on moving day in Brooklyn, bird song in Bryant Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/11/03/nyregion/metropolitan-diary.html
+
+**The Daily Beast Tries to Claw Its Way Back to Relevance**\
+`Can Joanna Coles and Ben Sherwood revive the once-buzzy news site and reclaim their perches atop the New York media world? Their own staff isn’t sure.`\
+https://nytimes.com/2024/11/03/business/media/daily-beast-joanna-coles-ben-sherwood.html
+
+**A Shirt With a Choke Hold on the Political Moment**\
+`The tie-front shirts serve as a reminder that no matter how far women have come, it’s not nearly as far as they think.`\
+https://nytimes.com/2024/11/03/style/kamala-harris-pussy-bow-blouse.html
+
+**Severe Thunderstorm and Reported Tornado Hit Oklahoma City**\
+`Parts of central and southern Oklahoma were under tornado warnings early Sunday, as one reportedly touched down in the state capital.`\
+https://nytimes.com/2024/11/03/us/tornado-storm-oklahoma-texas.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/03/crosswords/spelling-bee-forum.html
+
+**Goodbye, 6 p.m. Sunsets. See You Next Year.**\
+`As Daylight Saving Time comes to an end on Nov. 3, a reflection on the glorious late-afternoon light of New York City that we lose for an extra hour of sleep.`\
+https://nytimes.com/card/2024/11/03/nyregion/daylight-saving-time-sunlight-photos
+
 **Live From New York, It’s Kamala Harris on ‘SNL’**\
 `The vice president made a brief appearance on “Saturday Night Live” this weekend.`\
 https://nytimes.com/2024/11/03/arts/television/saturday-night-live-kamala-harris.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/11/03/arts/television/saturday-night-live-kamala-harris
 **This Election Pits the Guardians Against the Counterrevolutionaries**\
 `There’s something very different about Harris vs. Trump.`\
 https://nytimes.com/2024/11/03/opinion/trump-harris-election-day.html
-
-**A Second Trump Term? Three Conservative Columnists Unpack What Could Happen.**\
-`What will happen after Tuesday to Trumpism and the G.O.P. if Donald Trump wins — or loses?`\
-https://nytimes.com/2024/11/03/opinion/trump-republican-party.html
-
-**Our 61 Focus Groups Make Me Think Trump Has a Good Chance of Winning**\
-`What we learned from interviewing nearly 700 Americans over nearly three years.`\
-https://nytimes.com/2024/11/03/opinion/election-focus-groups.html
-
-**Canucks takeaways: Pius Suter's big night against Sharks, power-play progress, more**\
-`Suter scored the key goal to tie the game and then added the dramatic game winner in the closing seconds.`\
-https://nytimes.com/athletic/5893971/2024/11/03/pius-suter-canucks-takeaways/
-
-**Brandin Podziemski, Jonathan Kuminga help Warriors survive OT scare in Houston**\
-`A game that felt way out of reach went to overtime. The Warriors ultimately won, but the shaky path to victory was informative.`\
-https://nytimes.com/athletic/5893606/2024/11/03/brandin-podziemski-jonathan-kuminga-help-warriors-overtime-scare-houston/
-
-**Canadiens' constant search for progression feels more like regression**\
-`The Canadiens did all the things they were focused on. They managed the puck. They saw it as a step. Except we've already seen this story.`\
-https://nytimes.com/athletic/5893995/2024/11/03/canadiens-regressing-penguins-st-louis/
-
-**Ruben Amorim Q&A: Do Man Utd have money to spend in January? Why is his job title 'head coach'?**\
-`Manchester United confirmed the appointment of Ruben Amorim as their new head coach on Friday afternoon`\
-https://nytimes.com/athletic/5890783/2024/11/03/ruben-amorim-manchester-united-question-answer/
-
-**Sabres off to worst start since 2017-18. Can Kevyn Adams fix it?**\
-`This was not supposed to be one of those years. There’s a lot that needs fixing, a lot that's in need of answers.`\
-https://nytimes.com/athletic/5894021/2024/11/03/buffalo-sabres-worst-start-since-2017/
-
-**These are dizzying days to be a Nottingham Forest fan**\
-`Nuno Espirito Santo's side are in the Champions League places - and right now that is no fluke`\
-https://nytimes.com/athletic/5893326/2024/11/03/nottingham-forest-third-premier-league/
 
