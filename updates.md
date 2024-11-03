@@ -1,3 +1,7 @@
+**Tornadoes Reported in Oklahoma City as Storms Batter Great Plains**\
+`Parts of central and southern Oklahoma were under tornado warnings early Sunday, as several reportedly touched down in and near the state capital.`\
+https://nytimes.com/2024/11/03/us/tornado-storm-oklahoma-texas.html
+
 **As Election Day Nears, Yard Signs Disappear**\
 `Modern technology including doorbell cameras and tiny tracking devices have turned the tables on sign stealers.`\
 https://nytimes.com/2024/11/03/nyregion/political-yard-sign-stealing.html
