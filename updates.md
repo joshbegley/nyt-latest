@@ -1,3 +1,11 @@
+**On the issues: Where Harris and Trump stand on health care.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-health-care
+
+**Pro-West Leader Wins High-Stakes Vote in Former Soviet Republic**\
+`The president of Moldova, Maia Sandu, won re-election on Sunday against a rival candidate she had denounced as “Moscow’s man.”`\
+https://nytimes.com/2024/11/03/world/europe/pro-west-leader-wins-high-stakes-vote-in-former-soviet-republic.html
+
 **Rams WR Puka Nacua ejected in second quarter vs. Seahawks**\
 `The incident happened after quarterback Matthew Stafford was intercepted on a contested throw intended for Nacua downfield.`\
 https://nytimes.com/athletic/5895815/2024/11/03/puka-nacua-ejection-punch-rams-seahawks/
