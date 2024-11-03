@@ -1,3 +1,7 @@
+**How Adam Gaudette became the Sens' key scorer — and why he keeps being sent to the AHL**\
+`The forward has gone from a fourth-line afterthought to an early-season surprise over the last five games for the Ottawa Senators.`\
+https://nytimes.com/athletic/5893532/2024/11/02/gaudette-senators-goals-ahl/
+
 **Cowboys at Falcons: How to watch, odds, expert picks as Dallas tries to right the ship**\
 `This looks like the Falcons' game to lose at Mercedes-Benz Stadium. They are favored by about a field goal.`\
 https://nytimes.com/athletic/5891101/2024/11/02/cowboys-falcons-odds-picks-how-to-watch-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893752/2024/11/02/ulm-coach-cam-blankenship-shoves
 **NBA All-Star Game could have new format this season, Silver says**\
 `NBA commissioner Adam Silver said he has consulted Golden State Warriors star Stephen Curry about making changes to the exhibition game.`\
 https://nytimes.com/athletic/5893737/2024/11/02/nba-all-star-game-new-format-adam-silver/
-
-**Atlanta United's late winner puts Lionel Messi and Miami in must-win situation**\
-`Our writers analyze the key talking points from Atlanta United's MLS playoff win over Inter Miami.`\
-https://nytimes.com/athletic/5893678/2024/11/02/atlanta-united-inter-miami-messi-must-win/
 
