@@ -1,3 +1,7 @@
+**Blackhawks pull off road comeback against Kings: Observations**\
+`Nick Foligno kicked off a rally at the start of the third period as the Blackhawks beat the Kings in a shootout.`\
+https://nytimes.com/athletic/5893036/2024/11/02/blackhawks-foligno-donato-comeback-kings/
+
 **Takeaways from Georgia win vs. Florida: Is Bulldogs' resilience enough? What now for Gators?**\
 `No. 2 Georgia pulled away late for a 34-20 win against rival Florida, which lost quarterback DJ Lagway to a hamstring injury.`\
 https://nytimes.com/athletic/5893517/2024/11/02/florida-georgia-football-score-recap/
