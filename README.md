@@ -1,3 +1,11 @@
+**There’s a Reason Harris Is Competitive in Georgia**\
+`Both Republicans and Democrats have refused to submit to conventional wisdom.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/georgia-harris-competitive-polls
+
+**NFL Week 9 takeaways: Who is the Chiefs' biggest challenger in AFC? Are the Cowboys done for?**\
+`Plus, what to make of the Broncos after a big loss in Baltimore?`\
+https://nytimes.com/athletic/5895659/2024/11/03/nfl-week-9-scores-takeaways-ravens-cowboys/
+
 **What Polls Can Tell Us, Beyond the Horse Race**\
 `As the election dust prepares to settle, patterns are emerging that might provide valuable context in the weeks to come.`\
 https://nytimes.com/2024/11/03/us/elections/what-polls-can-tell-us-beyond-the-horse-race.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/03/us/harris-trump-election/wayne-county-mich
 **Joe Burrow's 5 TDs lead Bengals to 41-24 rout of Raiders: Takeaways**\
 `Joe Burrow is the only QB to have multiple five passing touchdown games this season.`\
 https://nytimes.com/athletic/5894536/2024/11/03/raiders-bengals-takeaways-result/
-
-**An ‘S.N.L.’ Sketch Gives Harvey Epstein His 15 Minutes of Fame**\
-`Mr. Epstein, a state assemblyman who is running for New York City Council, had no idea he would be the subject of a skit watched by millions.`\
-https://nytimes.com/2024/11/03/nyregion/harvey-epstein-snl-skit.html
-
-**Bryce Young, Panthers score 23-22 win over Saints: Takeaways**\
-`In the process of picking up their second win of the year, the Panthers likely turned up the heat on Saints coach Dennis Allen's seat.`\
-https://nytimes.com/athletic/5894531/2024/11/03/saints-panthers-score-takeaways-result/
 
