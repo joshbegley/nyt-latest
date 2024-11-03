@@ -1,3 +1,15 @@
+**Joey Jay, First Little Leaguer to Get to the Majors, Dies at 89**\
+`A pitcher who won 99 games in 13 seasons, he played for the Braves and the Reds. But when he retired, he never looked back.`\
+https://nytimes.com/2024/11/03/obituaries/joey-jay-dead.html
+
+**Saints WR Chris Olave out vs. Panthers with concussion**\
+`The Saints said Olave has movement in his extremities and was taken to a Charlotte area hospital for further evaluation.`\
+https://nytimes.com/athletic/5894931/2024/11/03/chris-olave-hit-concussion-injury-saints-panthers/
+
+**The Briefing: Manchester United 1 Chelsea 1 - Caicedo's stunner, Mazraoui impresses in Old Trafford draw**\
+`Carl Anka and Simon Johnson break down the main talking points from today's stalemate at Old Trafford`\
+https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-maresca-van-nistelrooy-caicedo-mazraoui/
+
 **What One Tossup District Says About the Trump-Harris Battle for the Suburbs**\
 `Representative David Schweikert, a vulnerable Republican, is fighting for his political life in suburban Arizona, where the sprint to win over a crucial bloc of voters is coming down to the wire.`\
 https://nytimes.com/2024/11/03/us/politics/schweikert-shah-arizona-election-congress.html
