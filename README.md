@@ -1,3 +1,11 @@
+**On the issues: Where Harris and Trump stand on health care.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-health-care
+
+**Pro-West Leader Wins High-Stakes Vote in Former Soviet Republic**\
+`The president of Moldova, Maia Sandu, won re-election on Sunday against a rival candidate she had denounced as “Moscow’s man.”`\
+https://nytimes.com/2024/11/03/world/europe/pro-west-leader-wins-high-stakes-vote-in-former-soviet-republic.html
+
 **Rams WR Puka Nacua ejected in second quarter vs. Seahawks**\
 `The incident happened after quarterback Matthew Stafford was intercepted on a contested throw intended for Nacua downfield.`\
 https://nytimes.com/athletic/5895815/2024/11/03/puka-nacua-ejection-punch-rams-seahawks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5894551/2024/11/03/patriots-titans-score-overtime-t
 **Jayden Daniels' 2 TD passes lead Commanders past Giants 27-22: Takeaways**\
 `Running backs Austin Ekeler, Jeremy McNichols and Chris Rodriguez combined with Daniels to gain 149 yards on the ground.`\
 https://nytimes.com/athletic/5894995/2024/11/03/giants-commanders-score-takeaways-result/
-
-**Alan Rachins, ‘L.A. Law’ and ‘Dharma & Greg’ Actor, Dies at 82**\
-`He became recognizable as a performer whose specialty was difficult men, in both absurd comedies and tense dramas.`\
-https://nytimes.com/2024/11/03/obituaries/alan-rachins-dead.html
-
-**There’s a Reason Harris Is Competitive in Georgia**\
-`Both Republicans and Democrats have refused to submit to conventional wisdom.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/georgia-harris-competitive-polls
 
