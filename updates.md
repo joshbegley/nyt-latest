@@ -1,3 +1,11 @@
+**Atlanta United's late winner puts Messi and Miami in must-win situation**\
+`Our writers analyze the key talking points from Atlanta United's MLS playoff win over Inter Miami.`\
+https://nytimes.com/athletic/5893678/2024/11/02/atlanta-united-inter-miami-messi-must-win/
+
+**At Women’s March in Washington, Hope That They Will Hold Off Trump**\
+`Thousands of women rallied in the capital and across the country for a Kamala Harris presidency — and to proclaim their resistance to Republican aims to restrict women’s reproductive rights.`\
+https://nytimes.com/2024/11/02/us/elections/at-womens-march-in-washington-hope-that-they-will-hold-off-trump.html
+
 **PSU remains Ohio State's great panacea, and Ryan Day can breathe again**\
 `"There’s a never-give-up, there’s a give-me-an-inch-and-I’m-gonna-defend-it kind of mentality,” Ohio State coach Ryan Day said.`\
 https://nytimes.com/athletic/5893627/2024/11/02/ohio-state-ryan-day-penn-state-win-results-analysis/
