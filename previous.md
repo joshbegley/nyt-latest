@@ -1,3 +1,7 @@
+**U.S. Confirms Reports That Iran Arrested an Iranian-American Citizen**\
+`Rights groups said that Reza Valizadeh, an Iranian-American journalist, was recently arrested in Iran, although the State Department did not confirm that he was the person detained.`\
+https://nytimes.com/2024/11/03/world/middleeast/iran-arrest-reza-valizadeh-journalist-detention.html
+
 **Joey Jay, First Little Leaguer to Get to the Majors, Dies at 89**\
 `A pitcher who won 99 games in 13 seasons, he played for the Braves and the Reds. But when he retired, he never looked back.`\
 https://nytimes.com/2024/11/03/obituaries/joey-jay-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
 **Blue Jackets Sunday Gathering: Boone Jenner, Erik Gudbranson still involved despite injuries**\
 `Blue Jackets GM Don Waddell has said he wants Jenner and Gudbranson to be around the club as much as they want.`\
 https://nytimes.com/athletic/5892780/2024/11/03/blue-jackets-boone-jenner-erik-gudbranson-injury/
-
-**The Briefing: Manchester United 1 Chelsea 1 - Caicedo's stunner, Mazraoui impresses in Old Trafford draw**\
-`Carl Anka and Simon Johnson break down the main talking points from today's stalemate at Old Trafford`\
-https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-maresca-van-nistelrooy-caicedo-mazraoui/
 

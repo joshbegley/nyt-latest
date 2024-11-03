@@ -1,3 +1,7 @@
+**U.S. Confirms Reports That Iran Arrested an Iranian-American Citizen**\
+`Rights groups said that Reza Valizadeh, an Iranian-American journalist, was recently arrested in Iran, although the State Department did not confirm that he was the person detained.`\
+https://nytimes.com/2024/11/03/world/middleeast/iran-arrest-reza-valizadeh-journalist-detention.html
+
 **Joey Jay, First Little Leaguer to Get to the Majors, Dies at 89**\
 `A pitcher who won 99 games in 13 seasons, he played for the Braves and the Reds. But when he retired, he never looked back.`\
 https://nytimes.com/2024/11/03/obituaries/joey-jay-dead.html
