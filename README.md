@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5893995/2024/11/03/canadiens-regressing-penguins-st
 `Manchester United confirmed the appointment of Ruben Amorim as their new head coach on Friday afternoon`\
 https://nytimes.com/athletic/5890783/2024/11/03/ruben-amorim-manchester-united-question-answer/
 
+**Sabres off to worst start since 2017-18. Can Kevyn Adams fix it?**\
+`This was not supposed to be one of those years. There’s a lot that needs fixing, a lot that's in need of answers.`\
+https://nytimes.com/athletic/5894021/2024/11/03/buffalo-sabres-worst-start-since-2017/
+
 **These are dizzying days to be a Nottingham Forest fan**\
 `Nuno Espirito Santo's side are in the Champions League places - and right now that is no fluke`\
 https://nytimes.com/athletic/5893326/2024/11/03/nottingham-forest-third-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5890534/2024/11/03/mckenzie-usmnt-toulouse-pochetti
 **Joel Embiid shoves columnist in 76ers locker room**\
 `The physical altercation occurred after Embiid and a Philadelphia Inquirer columnist argued following the 76ers' loss to the Grizzlies.`\
 https://nytimes.com/athletic/5893926/2024/11/03/joel-embiid-76ers-reporter-assault-locker-room/
-
-**'We're thinking about him': If Blues are without Philip Broberg, the impact will be huge**\
-`The defenseman was injured in Saturday's 4-2 win over Toronto. `\
-https://nytimes.com/athletic/5893643/2024/11/03/blues-philip-broberg-injury-maple-leafs/
 
