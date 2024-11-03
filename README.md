@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5891321/2024/11/03/saints-panthers-odds-picks-how-t
 `The Titans are favored at home as they try to end their three-game losing streak by besting the Patriots. `\
 https://nytimes.com/athletic/5891231/2024/11/03/patriots-titans-odds-picks-how-to-watch-betting/
 
-**Newcastle United are 'really good at what they do' again - even Mikel Arteta agrees**\
-`In a belated search for balance, Eddie Howe opted for a proven - if rarely seen - combination of players in midfield and attack `\
-https://nytimes.com/athletic/5892474/2024/11/03/newcastle-rediscover-form-eddie-howe/
+**Newcastle defeat showed why Arsenal need to add some spontaneity back into their attacking play**\
+`Mikel Arteta's side are too strong and consistent a team to fade away but they need to be bolder in their approach`\
+https://nytimes.com/athletic/5892636/2024/11/03/arsenal-attacking-issues-open-play/
 
