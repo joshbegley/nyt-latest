@@ -1,3 +1,7 @@
+**Newcastle United are 'really good at what they do' again - even Mikel Arteta agrees**\
+`In a belated search for balance, Eddie Howe opted for a proven - if rarely seen - combination of players in midfield and attack `\
+https://nytimes.com/athletic/5892474/2024/11/03/newcastle-rediscover-form-eddie-howe/
+
 **Canadiens' constant search for progression feels more like regression**\
 `The Canadiens did all the things they were focused on. They managed the puck. They saw it as a step. Except we've already seen this story.`\
 https://nytimes.com/athletic/5893995/2024/11/03/canadiens-regressing-penguins-st-louis/
