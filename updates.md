@@ -1,3 +1,15 @@
+**Joe Burrow's 5 TDs lead Bengals to 41-24 rout of Raiders: Takeaways**\
+`Joe Burrow is the only QB to have multiple five passing touchdown games this season.`\
+https://nytimes.com/athletic/5894536/2024/11/03/raiders-bengals-takeaways-result/
+
+**An ‘S.N.L.’ Sketch Gives Harvey Epstein His 15 Minutes of Fame**\
+`Mr. Epstein, a state assemblyman who is running for New York City Council, had no idea he would be the subject of a skit watched by millions.`\
+https://nytimes.com/2024/11/03/nyregion/harvey-epstein-snl-skit.html
+
+**Bryce Young, Panthers score 23-22 win over Saints: Takeaways**\
+`In the process of picking up their second win of the year, the Panthers likely turned up the heat on Saints coach Dennis Allen's seat.`\
+https://nytimes.com/athletic/5894531/2024/11/03/saints-panthers-score-takeaways-result/
+
 **Bills' Allen, Bass lead 30-27 win over Dolphins: Takeaways**\
 `The Dolphins' playoff hopes are nearly extinguished while Buffalo continues hunting for a potential top seed in the AFC.`\
 https://nytimes.com/athletic/5894523/2024/11/03/dolphins-bills-score-takeaways-result/

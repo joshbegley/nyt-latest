@@ -1,3 +1,7 @@
+**Wayne County, Mich.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/wayne-county-mich
+
 **Joe Burrow's 5 TDs lead Bengals to 41-24 rout of Raiders: Takeaways**\
 `Joe Burrow is the only QB to have multiple five passing touchdown games this season.`\
 https://nytimes.com/athletic/5894536/2024/11/03/raiders-bengals-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/03/weather/tropical-storm-rafael-hurricane/here
 **A Potential Cyclone in the Caribbean Could Track Toward the U.S.**\
 `If it grows as predicted, it would likely become Tropical Storm Rafael.`\
 https://nytimes.com/live/2024/11/03/weather/tropical-storm-rafael-hurricane
-
-**Monday Briefing: The Final Set of Times/Siena Election Polls**\
-`Plus, using generative A.I. to take a “decision holiday.”`\
-https://nytimes.com/2024/11/03/briefing/election-polls-iran-israel-botswana.html
 
