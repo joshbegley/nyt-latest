@@ -1,3 +1,11 @@
+**Rams WR Puka Nacua ejected in second quarter vs. Seahawks**\
+`The incident happened after quarterback Matthew Stafford was intercepted on a contested throw intended for Nacua downfield.`\
+https://nytimes.com/athletic/5895815/2024/11/03/puka-nacua-ejection-punch-rams-seahawks/
+
+**Review: Seven Dancers, a Mosaic of Movement**\
+`Netta Yerushalmy’s “Movement” at N.Y.U. Skirball comes from a patchwork of sources: TikTok, television, marching band practice and more.`\
+https://nytimes.com/2024/11/03/arts/dance/netta-yerushalmy-movement-nyu-skirball.html
+
 **NWSL quarterfinals schedule set: Key matchups, how to watch and more**\
 `Here's what you need to know ahead of the NWSL playoffs. `\
 https://nytimes.com/athletic/5895736/2024/11/03/nwsl-quarterfinal-schedule-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/03/obituaries/alan-rachins-dead.html
 **There’s a Reason Harris Is Competitive in Georgia**\
 `Both Republicans and Democrats have refused to submit to conventional wisdom.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/georgia-harris-competitive-polls
-
-**NFL Week 9 takeaways: Who is the Chiefs' biggest challenger in AFC? Are the Cowboys done for?**\
-`Plus, what to make of the Broncos after a big loss in Baltimore?`\
-https://nytimes.com/athletic/5895659/2024/11/03/nfl-week-9-scores-takeaways-ravens-cowboys/
-
-**What Polls Can Tell Us, Beyond the Horse Race**\
-`As the election dust prepares to settle, patterns are emerging that might provide valuable context in the weeks to come.`\
-https://nytimes.com/2024/11/03/us/elections/what-polls-can-tell-us-beyond-the-horse-race.html
 
