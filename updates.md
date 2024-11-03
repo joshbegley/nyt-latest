@@ -1,3 +1,11 @@
+**Rainy-Day Reserves**\
+`Get into solving mode for this puzzle by Colin Adams.`\
+https://nytimes.com/2024/11/03/crosswords/daily-puzzle-2024-11-04.html
+
+**Obama Gives Tailored Pitch to Voters Wavering on Harris**\
+`Barack Obama’s laundry list for different constituencies hinted at what groups Democrats were focusing on in the final hours before Election Day.`\
+https://nytimes.com/2024/11/03/us/politics/obama-milwaukee-harris-trump.html
+
 **Titans end 3-game losing skid in 20-17 OT win vs. Patriots: Takeaways**\
 `The Titans ended a three-game losing streak with Sunday's 20-17 overtime win over the Patriots.`\
 https://nytimes.com/athletic/5894551/2024/11/03/patriots-titans-score-overtime-takeaways-result/
