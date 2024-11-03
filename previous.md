@@ -1,3 +1,7 @@
+**The other race on marathon day: the rush to get runners’ names into the newspaper.**\
+`By Shayla Colon`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/the-other-race-on-marathon-day-the-rush-to-get-runners-names-into-the-newspaper
+
 **In Brazil, Max Verstappen produces a classic F1 win — and closes in on another title**\
 `On Sunday, Verstappen took control of F1's championship in emphatic, comprehensive and historic fashion.`\
 https://nytimes.com/athletic/5894992/2024/11/03/max-verstappen-f1-brazil-gp-win-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/us/police-department-resigns-oklahoma.html
 **AP Top 25: Oregon unanimous No. 1 ahead of first CFP rankings**\
 `Oregon received every No. 1 vote in the AP Top 25 poll, topping Georgia, Ohio State, Miami and Texas before the first Playoff rankings.`\
 https://nytimes.com/athletic/5894786/2024/11/03/ap-top-25-college-football-playoff-rankings-oregon/
-
-**9 Memorable Looks at the New York City Marathon**\
-`Form versus function can be debated another time as these marathoners made sure they looked good while they were running hard.`\
-https://nytimes.com/2024/11/03/style/new-york-marathon-fashion.html
 

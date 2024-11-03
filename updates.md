@@ -1,3 +1,7 @@
+**The other race on marathon day: the rush to get runners’ names into the newspaper.**\
+`By Shayla Colon`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/the-other-race-on-marathon-day-the-rush-to-get-runners-names-into-the-newspaper
+
 **In Brazil, Max Verstappen produces a classic F1 win — and closes in on another title**\
 `On Sunday, Verstappen took control of F1's championship in emphatic, comprehensive and historic fashion.`\
 https://nytimes.com/athletic/5894992/2024/11/03/max-verstappen-f1-brazil-gp-win-championship/
