@@ -14,9 +14,9 @@ https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-ma
 `The Paris Masters departs Bercy with its status as the strangest ATP Tour tournament of the season unmatched`\
 https://nytimes.com/athletic/5889850/2024/11/03/paris-bercy-tennis/
 
-**For One Man, Running the N.Y.C. Marathon Is a Treatment For Addiction**\
-`Travis Friese is running the New York City Marathon with Odyssey House, a residential treatment program.`\
-https://nytimes.com/2024/11/03/nyregion/for-this-marathoner-running-is-a-treatment-for-drug-addiction.html
+**He’s Running the N.Y.C. Marathon as Part of His Recovery From Addiction**\
+`Travis Friese is running on a team organized by Odyssey House, a residential treatment program.`\
+https://nytimes.com/2024/11/03/nyregion/nyc-marathon-addiction.html
 
 **Max Verstappen delivers iconic São Paulo GP win, expanding title lead on Lando Norris**\
 `Verstappen started P17 and drove through rainy chaos at Interlagos for an instant-classic victory. `\
