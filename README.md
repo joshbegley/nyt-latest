@@ -1,3 +1,7 @@
+**Blackhawks pull off road comeback against Kings: Observations**\
+`Nick Foligno kicked off a rally at the start of the third period as the Blackhawks beat the Kings in a shootout.`\
+https://nytimes.com/athletic/5893036/2024/11/02/blackhawks-foligno-donato-comeback-kings/
+
 **Robert F. Kennedy Jr. Says Trump Will Seek to Remove Fluoride From Drinking Water**\
 `Donald J. Trump has said he would give Mr. Kennedy, a former rival who has long promoted unproven medical theories, a prominent health role if he wins.`\
 https://nytimes.com/2024/11/02/us/politics/robert-f-kennedy-jr-trump-fluoride-water.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893485/2024/11/02/nebraska-ucla-dylan-raiola/
 **Top-ranked Oregon remains unbeaten with road win at Michigan: Takeaways**\
 `Oregon QB Dillon Gabriel threw for 294 yards and ran for a 23-yard touchdown to keep the Ducks perfect and their Playoff hopes intact.`\
 https://nytimes.com/athletic/5893275/2024/11/02/oregon-ducks-michigan-wolverines-score-recap/
-
-**Biden Returns to His Home Turf to Make Final Pitches for Harris**\
-`Though President Biden has made verbal gaffes on the campaign trail, the Harris campaign still considers him an asset in blue-collar communities like Scranton, Pa.`\
-https://nytimes.com/2024/11/02/us/elections/biden-scranton-harris-campaign.html
 
