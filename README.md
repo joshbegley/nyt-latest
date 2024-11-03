@@ -1,3 +1,7 @@
+**ULM offensive line coach facing internal discipline for shoving player**\
+`Offensive line coach Cam Blankenship screamed at OL Drew Hutchinson and shoved him on the sideline before another player stepped in.`\
+https://nytimes.com/athletic/5893752/2024/11/02/ulm-coach-cam-blankenship-shoves-player/
+
 **NBA All-Star Game could have new format this season, Silver says**\
 `NBA commissioner Adam Silver said he has consulted Golden State Warriors star Stephen Curry about making changes to the exhibition game.`\
 https://nytimes.com/athletic/5893737/2024/11/02/nba-all-star-game-new-format-adam-silver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893036/2024/11/02/blackhawks-foligno-donato-comeba
 **Harris Will Make Surprise Appearance on ‘Saturday Night Live’**\
 `After a campaign rally in Charlotte, N.C., she headed north to New York, where she was expected to appear on the late-night sketch comedy show.`\
 https://nytimes.com/2024/11/02/us/politics/kamala-harris-snl.html
-
-**Robert F. Kennedy Jr. Says Trump Will Seek to Remove Fluoride From Drinking Water**\
-`Donald J. Trump has said he would give Mr. Kennedy, a former rival who has long promoted unproven medical theories, a prominent health role if he wins.`\
-https://nytimes.com/2024/11/02/us/politics/robert-f-kennedy-jr-trump-fluoride-water.html
 
