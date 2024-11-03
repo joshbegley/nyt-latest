@@ -1,3 +1,7 @@
+**Vince Carter's Toronto Raptors jersey retirement had something most don't — catharsis**\
+`Vince Carter's messy ending to his playing days with the Toronto Raptors made Saturday's ceremony more special. `\
+https://nytimes.com/athletic/5893736/2024/11/02/vince-carter-toronto-raptors-jersey-retirement-catharsis/
+
 **Wisconsin embarrassed by Iowa: Where is Badgers' progress under Luke Fickell?**\
 `The Badgers (5-4, 3-3) lost 42-10 on Saturday and will have to win one of its next three to become bowl eligible. `\
 https://nytimes.com/athletic/5893760/2024/11/02/wisconsin-iowa-score-analysis-college-football/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5893760/2024/11/02/wisconsin-iowa-score-analysis-co
 https://nytimes.com/athletic/5893748/2024/11/02/florida-georgia-billy-napier-lagway-warner/
 
 **Maple Leafs report cards: Better team on ice in second loss to the Blues this season**\
-`The Leafs dominated in the first period, but St. Louis fought back to beat their old coach again.`\
+`Toronto dominated in the first period, but St. Louis fought back to beat its old coach again.`\
 https://nytimes.com/athletic/5893764/2024/11/02/maple-leafs-report-cards-blues-comeback/
 
 **ULM offensive line coach facing internal discipline for shoving player**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893627/2024/11/02/ohio-state-ryan-day-penn-state-w
 **Corrections: Nov. 3, 2024**\
 `Corrections that appeared in print on Sunday, Nov. 3, 2024.`\
 https://nytimes.com/2024/11/02/pageoneplus/corrections-nov-3-2024.html
-
-**Adam Silver would 'love to have' NBA franchise in Mexico City**\
-`Silver said the league has no target time frame for expansion, whether it would be to Mexico City or another destination.`\
-https://nytimes.com/athletic/5893668/2024/11/02/nba-expansion-mexico-city-adam-silver/
 
