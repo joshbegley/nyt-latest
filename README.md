@@ -1,3 +1,11 @@
+**Atlanta United's late winner puts Messi and Miami in must-win situation**\
+`Our writers analyze the key talking points from Atlanta United's MLS playoff win over Inter Miami.`\
+https://nytimes.com/athletic/5893678/2024/11/02/atlanta-united-inter-miami-messi-must-win/
+
+**At Women’s March in Washington, Hope That They Will Hold Off Trump**\
+`Thousands of women rallied in the capital and across the country for a Kamala Harris presidency — and to proclaim their resistance to Republican aims to restrict women’s reproductive rights.`\
+https://nytimes.com/2024/11/02/us/elections/at-womens-march-in-washington-hope-that-they-will-hold-off-trump.html
+
 **PSU remains Ohio State's great panacea, and Ryan Day can breathe again**\
 `"There’s a never-give-up, there’s a give-me-an-inch-and-I’m-gonna-defend-it kind of mentality,” Ohio State coach Ryan Day said.`\
 https://nytimes.com/athletic/5893627/2024/11/02/ohio-state-ryan-day-penn-state-win-results-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/02/us/politics/robert-f-kennedy-jr-trump-fluoride-wa
 **Analysing Jets attendance, Perfetti's position and Ehlers' minutes: Mailbag, part 2**\
 `Ticket sales seem off to a better start this season. Why, and is it sustainable? And what are the Jets' plans for Ehlers and Perfetti?`\
 https://nytimes.com/athletic/5881456/2024/11/02/jets-attendance-perfetti-ehlers/
-
-**Takeaways from Georgia win vs. Florida: Is Bulldogs' resilience enough? What now for Gators?**\
-`No. 2 Georgia pulled away late for a 34-20 win against rival Florida, which lost quarterback DJ Lagway to a hamstring injury.`\
-https://nytimes.com/athletic/5893517/2024/11/02/florida-georgia-football-score-recap/
-
-**Iowa State, K-State suffer losses; Big 12 standings chaos continues**\
-`The Big 12 cranked up the chaos Saturday with a pair of upset wins over No. 11 Iowa State and No. 17 Kansas State.`\
-https://nytimes.com/athletic/5893514/2024/11/02/texas-tech-iowa-state-result-score-takeaways/
 
