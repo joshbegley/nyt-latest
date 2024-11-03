@@ -1,3 +1,15 @@
+**Bills' Allen, Bass lead 30-27 win over Dolphins: Takeaways**\
+`The Dolphins' playoff hopes are nearly extinguished while Buffalo continues hunting for a potential top seed in the AFC.`\
+https://nytimes.com/athletic/5894523/2024/11/03/dolphins-bills-score-takeaways-result/
+
+**Chargers' top-ranked defense leads way in 27-10 win over Browns: Takeaways**\
+`Los Angeles recorded six sacks and intercepted Browns QB Jameis Winston three times.`\
+https://nytimes.com/athletic/5894542/2024/11/03/chargers-browns-takeaways-result/
+
+**Cowboys drop third straight as Cousins leads Falcons on 27-21 win: Takeaways**\
+`Cousins, who at one point completed his 13 straight pass attempts, finished the afternoon with three touchdowns.`\
+https://nytimes.com/athletic/5894506/2024/11/03/cowboys-falcons-takeaways-result/
+
 **Jackson enhances MVP case, powers Ravens to 41-10 win vs. Broncos: Takeaways**\
 `Baltimore's star quarterback now has four games with perfect passer ratings in his career. `\
 https://nytimes.com/athletic/5894515/2024/11/03/broncos-ravens-score-takeaways-result/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/03/us/michigan-highway-crash-dead.html
 **Cowboys' Dak Prescott ruled out vs. Falcons with hamstring injury**\
 `Prescott never went down with an injury during the game, but headed to the injury tent with trainers at the end of the third quarter.`\
 https://nytimes.com/athletic/5895212/2024/11/03/dak-prescott-injury-cowboys/
-
-**Jamie Dimon’s wife, Judith Kent, knocks on doors in Michigan for Kamala Harris.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2024/11/03/us/harris-trump-election/jamie-dimons-wife-judith-kent-knocks-on-doors-in-michigan-for-kamala-harris
-
-**Crime Has Been a Big Talking Point. How Does It Look in Battleground States?**\
-`Even as violence crime rates fall, Republicans have sought to tie murders and drug overdoses to migrants. Here’s a rundown of crime rates in swing states.`\
-https://nytimes.com/2024/11/03/us/crime-swing-states-election.html
-
-**Still much work to do for ambitious Wrexham after shock FA Cup exit**\
-`As with their first-round defeat to Harrogate three years ago, Wrexham can have no complaints after wasting several gilt-edged opportunities`\
-https://nytimes.com/athletic/5885409/2024/11/03/wrexham-harrogate-fa-cup/
 

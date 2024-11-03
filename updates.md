@@ -1,3 +1,15 @@
+**Bills' Allen, Bass lead 30-27 win over Dolphins: Takeaways**\
+`The Dolphins' playoff hopes are nearly extinguished while Buffalo continues hunting for a potential top seed in the AFC.`\
+https://nytimes.com/athletic/5894523/2024/11/03/dolphins-bills-score-takeaways-result/
+
+**Chargers' top-ranked defense leads way in 27-10 win over Browns: Takeaways**\
+`Los Angeles recorded six sacks and intercepted Browns QB Jameis Winston three times.`\
+https://nytimes.com/athletic/5894542/2024/11/03/chargers-browns-takeaways-result/
+
+**Cowboys drop third straight as Cousins leads Falcons on 27-21 win: Takeaways**\
+`Cousins, who at one point completed his 13 straight pass attempts, finished the afternoon with three touchdowns.`\
+https://nytimes.com/athletic/5894506/2024/11/03/cowboys-falcons-takeaways-result/
+
 **Jackson enhances MVP case, powers Ravens to 41-10 win vs. Broncos: Takeaways**\
 `Baltimore's star quarterback now has four games with perfect passer ratings in his career. `\
 https://nytimes.com/athletic/5894515/2024/11/03/broncos-ravens-score-takeaways-result/
