@@ -1,3 +1,7 @@
+**Monday Briefing: The Final Set of Times/Siena Election Polls**\
+`Plus, using generative A.I. to take a “decision holiday.”`\
+https://nytimes.com/2024/11/03/briefing/election-polls-iran-israel-botswana.html
+
 **São Paulo GP: Submit your questions for our F1 mailbag**\
 `Let's talk about that instant classic at Interlagos.`\
 https://nytimes.com/athletic/5895284/2024/11/03/sao-paulo-gp-submit-your-questions-for-our-f1-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/the-other-race-on-mara
 **In Brazil, Max Verstappen produces a classic F1 win — and closes in on another title**\
 `On Sunday, Verstappen took control of F1's championship in emphatic, comprehensive and historic fashion.`\
 https://nytimes.com/athletic/5894992/2024/11/03/max-verstappen-f1-brazil-gp-win-championship/
-
-**Maresca says Martinez should have been sent off for Palmer tackle**\
-`Chelsea head coach Enzo Maresca believes Manchester United defender Lisandro Martinez should have been sent off for his challenge on Cole Palmer during Sunday’s 1-1 draw between the two sides.`\
-https://nytimes.com/athletic/5895123/2024/11/03/lisandro-martinez-foul-man-utd-chelsea/
 

@@ -1,3 +1,7 @@
+**Monday Briefing: The Final Set of Times/Siena Election Polls**\
+`Plus, using generative A.I. to take a “decision holiday.”`\
+https://nytimes.com/2024/11/03/briefing/election-polls-iran-israel-botswana.html
+
 **Still much work to do for ambitious Wrexham after shock FA Cup exit**\
 `As with their first-round defeat to Harrogate three years ago, Wrexham can have no complaints after wasting several gilt-edged opportunities`\
 https://nytimes.com/athletic/5885409/2024/11/03/wrexham-harrogate-fa-cup/
