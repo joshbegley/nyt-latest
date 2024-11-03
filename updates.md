@@ -1,3 +1,11 @@
+**Wisconsin embarrassed by Iowa: Where is Badgers' progress under Luke Fickell?**\
+`The Badgers (5-4, 3-3) lost 42-10 on Saturday and will have to win one of its next three to become bowl eligible. `\
+https://nytimes.com/athletic/5893760/2024/11/02/wisconsin-iowa-score-analysis-college-football/
+
+**Maple Leafs report cards: Better team on ice in second loss to the Blues this season**\
+`The Leafs dominated in the first period, but St. Louis fought back to beat their old coach again.`\
+https://nytimes.com/athletic/5893764/2024/11/02/maple-leafs-report-cards-blues-comeback/
+
 **Can Florida fairly evaluate Billy Napier with DJ Lagway injured?**\
 `Lagway's injury left Florida with walk-on Ivy League transfer Aidan Warner at quarterback in Saturday's loss to Georgia. What's next?`\
 https://nytimes.com/athletic/5893748/2024/11/02/florida-georgia-billy-napier-lagway-warner/
