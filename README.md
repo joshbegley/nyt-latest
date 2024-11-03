@@ -1,3 +1,7 @@
+**Bears at Cardinals: How to watch, odds, picks with Arizona favored in near pick'em**\
+`The Bears and Cardinals are coming off close games in Week 8 and oddsmakers expect a very close matchup in Arizona.`\
+https://nytimes.com/athletic/5891306/2024/11/03/bears-cardinals-odds-picks-how-to-watch-betting/
+
 **Jaguars at Eagles: How to watch, odds, expert picks with Philly on the rise**\
 `The Eagles have won three in a row after a spotty start, while the Jags have yet to make a promising case for their season.`\
 https://nytimes.com/athletic/5891247/2024/11/03/jaguars-eagles-odds-picks-how-to-watch-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/crosswords/spelling-bee-forum.html
 **Goodbye, 6 p.m. Sunsets. See You Next Year.**\
 `As Daylight Saving Time comes to an end on Nov. 3, a reflection on the glorious late-afternoon light of New York City that we lose for an extra hour of sleep.`\
 https://nytimes.com/card/2024/11/03/nyregion/daylight-saving-time-sunlight-photos
-
-**Live From New York, It’s Kamala Harris on ‘SNL’**\
-`The vice president made a brief appearance on “Saturday Night Live” this weekend.`\
-https://nytimes.com/2024/11/03/arts/television/saturday-night-live-kamala-harris.html
 
