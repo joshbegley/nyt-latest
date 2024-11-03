@@ -1,3 +1,7 @@
+**Ranking the Giants' biggest offseason priorities**\
+`From third base (covered) to shortstop (not so much), ranking the Giants' biggest areas of need at the start of the offseason.`\
+https://nytimes.com/athletic/5891394/2024/11/03/sf-giants-offseason-priorities-ranked/
+
 **How to watch the race without the crowds.**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-without-the-crowds
@@ -6,7 +10,7 @@ https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-
 `We’re covering the strategic risks that Kamala Harris and Donald Trump are taking.`\
 https://nytimes.com/2024/11/03/briefing/20-20-foresight.html
 
-**Daniel Romanchuk’s race-prep routine. It includes sandpaper.**\
+**Daniel Romanchuk’s race-prep routine: It includes sandpaper.**\
 `By Ken Belson and Clark Hodgin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/daniel-romanchuk-race-prep-routine-it-includes-sandpaper
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/heres-our-guide-for-th
 **When do runners start and when do they finish?**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/when-do-runners-start-and-when-do-they-finish
-
-**There Will Always Be a Trump. That’s Only Part of the Problem.**\
-`The question is how to keep him — and those like him — in check.`\
-https://nytimes.com/2024/11/03/opinion/trump-mcconnell-courage-leadership.html
 

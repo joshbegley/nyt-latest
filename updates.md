@@ -1,3 +1,11 @@
+**Ranking the Giants' biggest offseason priorities**\
+`From third base (covered) to shortstop (not so much), ranking the Giants' biggest areas of need at the start of the offseason.`\
+https://nytimes.com/athletic/5891394/2024/11/03/sf-giants-offseason-priorities-ranked/
+
+**Daniel Romanchuk’s race-prep routine: It includes sandpaper.**\
+`By Ken Belson and Clark Hodgin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/daniel-romanchuk-race-prep-routine-it-includes-sandpaper
+
 **How to watch the race without the crowds.**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-without-the-crowds
