@@ -1,3 +1,7 @@
+**MLB finds Dominican prospect with now-withdrawn Padres agreement falsified age**\
+`The league found that Cesar Altragarcia, a shortstop, is 19. His paperwork had stated he was 14.`\
+https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
+
 **Vince Carter's Toronto Raptors jersey retirement had something most don't — catharsis**\
 `Vince Carter's messy ending to his playing days with the Toronto Raptors made Saturday's ceremony more special. `\
 https://nytimes.com/athletic/5893736/2024/11/02/vince-carter-toronto-raptors-jersey-retirement-catharsis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/us/elections/womens-march-washington.html
 **PSU remains Ohio State's great panacea, and Ryan Day can breathe again**\
 `"There’s a never-give-up, there’s a give-me-an-inch-and-I’m-gonna-defend-it kind of mentality,” Ohio State coach Ryan Day said.`\
 https://nytimes.com/athletic/5893627/2024/11/02/ohio-state-ryan-day-penn-state-win-results-analysis/
-
-**Corrections: Nov. 3, 2024**\
-`Corrections that appeared in print on Sunday, Nov. 3, 2024.`\
-https://nytimes.com/2024/11/02/pageoneplus/corrections-nov-3-2024.html
 
