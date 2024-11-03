@@ -1,3 +1,11 @@
+**Weary, Troubled and Nervous: Americans Flood the Early Vote**\
+`Nearly 75 million people have cast early ballots, making their voices heard amid worry about the process, the outcome and democracy itself.`\
+https://nytimes.com/2024/11/03/us/elections/early-voting-presidential-election.html
+
+**Live from New York, a November Surprise!**\
+`This one was about the laughs, not the votes.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/dowd-harris-snl-rudolph
+
 **With Oil Prices Weak, OPEC+ Postpones Increases Again**\
 `Saudi Arabia, which leads the group, appears wary of unsettling markets just before the U.S. presidential election on Tuesday.`\
 https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5893946/2024/11/03/damian-lillard-giannis-antetokou
 **James O’Keefe Recruits Election Workers to Secretly Record at the Polls**\
 `Mr. O’Keefe has sought volunteers willing to wear hidden cameras and hunt for voting problems. Dozens of election judges and poll monitors responded, records show.`\
 https://nytimes.com/2024/11/03/us/politics/2024-election-james-okeefe-voting.html
-
-**Trump Tells Supporters He ‘Shouldn’t Have Left’ the White House**\
-`Donald J. Trump, who sought to overturn his loss of the 2020 election, also joked that he didn’t mind if reporters were shot.`\
-https://nytimes.com/2024/11/03/us/politics/trump-pa-rally-election.html
-
-**Commanders' Brian Robinson Jr. ruled out vs. Giants with hamstring injury**\
-`Robinson played in the last two games, rushing for 136 yards and one touchdown.`\
-https://nytimes.com/athletic/5894703/2024/11/03/brian-robinson-jr-out-injury-commanders-nfl/
 

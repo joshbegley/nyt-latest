@@ -1,3 +1,7 @@
+**With Oil Prices Weak, OPEC+ Postpones Increases Again**\
+`Saudi Arabia, which leads the group, appears wary of unsettling markets just before the U.S. presidential election on Tuesday.`\
+https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
+
 **Blue Jackets Sunday Gathering: Boone Jenner, Erik Gudbranson still involved despite injuries**\
 `Blue Jackets GM Don Waddell has said he wants Jenner and Gudbranson to be around the club as much as they want.`\
 https://nytimes.com/athletic/5892780/2024/11/03/blue-jackets-boone-jenner-erik-gudbranson-injury/
@@ -10,9 +14,9 @@ https://nytimes.com/athletic/5890436/2024/11/03/manchester-united-1-chelsea-1-ma
 `The Paris Masters departs Bercy with its status as the strangest ATP Tour tournament of the season unmatched`\
 https://nytimes.com/athletic/5889850/2024/11/03/paris-bercy-tennis/
 
-**For this marathoner, running is a treatment for drug addiction.**\
-`Travis Friese is running the New York City Marathon with Odyssey House, a residential treatment program.`\
-https://nytimes.com/2024/11/03/nyregion/for-this-marathoner-running-is-a-treatment-for-drug-addiction.html
+**He’s Running the N.Y.C. Marathon as Part of His Recovery From Addiction**\
+`Travis Friese is running on a team organized by Odyssey House, a residential treatment program.`\
+https://nytimes.com/2024/11/03/nyregion/nyc-marathon-addiction.html
 
 **Max Verstappen delivers iconic São Paulo GP win, expanding title lead on Lando Norris**\
 `Verstappen started P17 and drove through rainy chaos at Interlagos for an instant-classic victory. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/us/politics/trump-pa-rally-election.html
 **Commanders' Brian Robinson Jr. ruled out vs. Giants with hamstring injury**\
 `Robinson played in the last two games, rushing for 136 yards and one touchdown.`\
 https://nytimes.com/athletic/5894703/2024/11/03/brian-robinson-jr-out-injury-commanders-nfl/
-
-**What’s the Secret to a Good Water Handoff at the N.Y.C. Marathon?**\
-`Jeffrey Laperuta, 75, knows. He has volunteered at the Mile 3 fluid station of the New York City Marathon every year since 1984.`\
-https://nytimes.com/2024/11/03/nyregion/nyc-marathon-water-fluid-station.html
 

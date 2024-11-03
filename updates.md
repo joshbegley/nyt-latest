@@ -1,3 +1,11 @@
+**With Oil Prices Weak, OPEC+ Postpones Increases Again**\
+`Saudi Arabia, which leads the group, appears wary of unsettling markets just before the U.S. presidential election on Tuesday.`\
+https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
+
+**He’s Running the N.Y.C. Marathon as Part of His Recovery From Addiction**\
+`Travis Friese is running on a team organized by Odyssey House, a residential treatment program.`\
+https://nytimes.com/2024/11/03/nyregion/nyc-marathon-addiction.html
+
 **Blue Jackets Sunday Gathering: Boone Jenner, Erik Gudbranson still involved despite injuries**\
 `Blue Jackets GM Don Waddell has said he wants Jenner and Gudbranson to be around the club as much as they want.`\
 https://nytimes.com/athletic/5892780/2024/11/03/blue-jackets-boone-jenner-erik-gudbranson-injury/
