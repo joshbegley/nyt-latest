@@ -1,3 +1,7 @@
+**How to watch the race without the crowds.**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-without-the-crowds
+
 **20/20 Foresight**\
 `We’re covering the strategic risks that Kamala Harris and Donald Trump are taking.`\
 https://nytimes.com/2024/11/03/briefing/20-20-foresight.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/when-do-runners-start-
 **There Will Always Be a Trump. That’s Only Part of the Problem.**\
 `The question is how to keep him — and those like him — in check.`\
 https://nytimes.com/2024/11/03/opinion/trump-mcconnell-courage-leadership.html
-
-**How Power Shoulders Tell a Story of This Campaign**\
-`Padded shoulders originated in military and hunting attire. But they’ve come to communicate so much more, creating a silhouette embraced by both candidates.`\
-https://nytimes.com/2024/11/03/opinion/trump-harris-padded-shoulders.html
 
