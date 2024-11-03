@@ -1,3 +1,11 @@
+**Suns' Kevin Durant, tired of leadership criticism, calls ESPN star 'a clown to me'**\
+`Is Kevin Durant a good leader? The question has hung over him for much of his career and bubbled up again last month via Stephen A. Smith.`\
+https://nytimes.com/athletic/5894224/2024/11/03/kevin-durant-suns-leadership-stephen-a-smith/
+
+**New York City Marathon results: Chepkirui stuns Obiri with last-mile kick**\
+`Chepkirui entered Sunday with an impressive 2:17:29 personal best, but also as a darkhorse on the famed course.`\
+https://nytimes.com/athletic/5893965/2024/11/03/new-york-city-marathon-mens-womens-results/
+
 **The Pulse: 12-team Playoff chaos arrives**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5894629/2024/11/03/college-football-playoff-nfl-the-pulse/
