@@ -1,3 +1,7 @@
+**When do runners start and when do they finish?**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/when-do-runners-start-and-when-do-they-finish
+
 **There Will Always Be a Trump. That’s Only Part of the Problem.**\
 `The question is how to keep him — and those like him — in check.`\
 https://nytimes.com/2024/11/03/opinion/trump-mcconnell-courage-leadership.html
