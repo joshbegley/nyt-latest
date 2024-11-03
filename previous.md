@@ -1,3 +1,11 @@
+**Paris Bercy takes its final bow in the chaos of late-season ATP Tour tennis**\
+`The Paris Masters departs Bercy with its status as the strangest ATP Tour tournament of the season unmatched`\
+https://nytimes.com/athletic/5889850/2024/11/03/paris-bercy-tennis/
+
+**For this marathoner, running is a treatment for drug addiction.**\
+`Travis Friese is running the New York City Marathon with Odyssey House, a residential treatment program.`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/for-this-marathoner-running-is-a-treatment-for-drug-addiction
+
 **Max Verstappen delivers iconic São Paulo GP win, expanding title lead on Lando Norris**\
 `Verstappen started P17 and drove through rainy chaos at Interlagos for an instant-classic victory. `\
 https://nytimes.com/athletic/5894586/2024/11/03/max-verstappen-brazil-gp-win-lando-norris/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5894403/2024/11/03/most-graded-sports-cards-griffey
 **Abdi Nageeye won the men’s race.**\
 `By Scott Cacciola`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/abdi-nageeye-won-the-mens-race
-
-**Sheila Chepkirui won the women’s race.**\
-`By Scott Cacciola`\
-https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/sheila-chepkirui-won-the-womens-race
-
-**What’s Powering 3 Generations of Runners? Family, Grit and Sandwiches.**\
-`The New York City Marathon is a family tradition for the Villavicencios.`\
-https://nytimes.com/2024/11/03/nyregion/nyc-marathon-runners-villavicencio-family.html
 
