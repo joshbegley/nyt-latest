@@ -1,3 +1,7 @@
+**Secret Harris Supporters Could Make All the Difference**\
+`The number of Republicans for Harris in Pennsylvania could be substantial.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/pennsylvania-secret-harris-supporters
+
 **The other race on marathon day: the rush to get runners’ names into the newspaper.**\
 `By Shayla Colon`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/the-other-race-on-marathon-day-the-rush-to-get-runners-names-into-the-newspaper
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/us/politics/biden-immigration-border-harris-trump
 **Entire City Police Force in Oklahoma Quits as 2 Council Members Also Resign**\
 `The reasons for the abrupt mass departures in the city of Geary, Okla., which has a population of just under 1,000, were unclear.`\
 https://nytimes.com/2024/11/03/us/police-department-resigns-oklahoma.html
-
-**AP Top 25: Oregon unanimous No. 1 ahead of first CFP rankings**\
-`Oregon received every No. 1 vote in the AP Top 25 poll, topping Georgia, Ohio State, Miami and Texas before the first Playoff rankings.`\
-https://nytimes.com/athletic/5894786/2024/11/03/ap-top-25-college-football-playoff-rankings-oregon/
 
