@@ -1,3 +1,7 @@
+**Ruben Amorim Q&A: Do Man Utd have money to spend in January? Why is his job title 'head coach'?**\
+`Manchester United confirmed the appointment of Ruben Amorim as their new head coach on Friday afternoon`\
+https://nytimes.com/athletic/5890783/2024/11/03/ruben-amorim-manchester-united-question-answer/
+
 **These are dizzying days to be a Nottingham Forest fan**\
 `Nuno Espirito Santo's side are in the Champions League places - and right now that is no fluke`\
 https://nytimes.com/athletic/5893326/2024/11/03/nottingham-forest-third-premier-league/
