@@ -1,3 +1,11 @@
+**Royals sign Michael Wacha to 3-year, $51 million contract**\
+`The pact includes bonuses and an option for the fourth year that would max out the deal at $72 million, a major-league source said.`\
+https://nytimes.com/athletic/5895065/2024/11/03/michael-wacha-royals-contract/
+
+**Biden Wanted to Fix U.S. Immigration, but He Will Leave a Mixed Legacy**\
+`President Biden lowered border crossings significantly, but the immigration system remains broken, and some of his actions moved the problem deeper into the country.`\
+https://nytimes.com/2024/11/03/us/politics/biden-immigration-border-harris-trump.html
+
 **Entire City Police Force in Oklahoma Quits as 2 Council Members Also Resign**\
 `The reasons for the abrupt mass departures in the city of Geary, Okla., which has a population of just under 1,000, were unclear.`\
 https://nytimes.com/2024/11/03/us/police-department-resigns-oklahoma.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/03/us/politics/schweikert-shah-arizona-election-cong
 **Georgia Judge Rejects Republican Lawsuit to Block Hand-Returned Mail Ballots**\
 `The lawsuit targeted Fulton County, a Democratic stronghold, seeking to stop it from opening election offices over the weekend to receive absentee ballots in person.`\
 https://nytimes.com/2024/11/03/us/politics/georgia-mail-ballot-lawsuit.html
-
-**Stewart Mandel's 12-team Playoff projections after Week 10**\
-`How will the selection committee treat Indiana? Can either the ACC or Big 12 get more than one team in the field?`\
-https://nytimes.com/athletic/5894913/2024/11/03/college-football-playoff-bracket-projections-week-10/
-
-**Weary, Troubled and Nervous: Americans Flood the Early Vote**\
-`Nearly 75 million people have cast early ballots, making their voices heard amid worry about the process, the outcome and democracy itself.`\
-https://nytimes.com/2024/11/03/us/elections/early-voting-presidential-election.html
 
