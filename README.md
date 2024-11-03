@@ -1,3 +1,7 @@
+**Konate avoids serious injury, set to return against Bayer Leverkusen**\
+`Liverpool have received a major boost after a scan revealed that Ibrahima Konate did not break his left wrist in their 2-1 win over Brighton and Hove Albion at Anfield.`\
+https://nytimes.com/athletic/5894219/2024/11/03/ibrahima-konate-injury-update/
+
 **Susannah Scaroni dominates the women’s wheelchair race.**\
 `Scaroni led from start to finish with no serious challengers.`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/susannah-scaroni-wins-nyc-marathon-wheelchair
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/nyregion/celebrities-new-york-city-marathon.html
 **Ranking the Giants' biggest offseason priorities**\
 `From third base (covered) to shortstop (not so much), ranking the Giants' biggest areas of need at the start of the offseason.`\
 https://nytimes.com/athletic/5891394/2024/11/03/sf-giants-offseason-priorities-ranked/
-
-**How to watch the race without the crowds.**\
-`By Jennie Coughlin`\
-https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-without-the-crowds
 
