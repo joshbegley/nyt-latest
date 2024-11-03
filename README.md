@@ -1,3 +1,7 @@
+**Alan Rachins, ‘L.A. Law’ and ‘Dharma & Greg’ Actor, Dies at 82**\
+`He became recognizable as a performer whose specialty was difficult men both in absurd comedies and tense dramas.`\
+https://nytimes.com/2024/11/03/obituaries/alan-rachins-dead.html
+
 **There’s a Reason Harris Is Competitive in Georgia**\
 `Both Republicans and Democrats have refused to submit to conventional wisdom.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/georgia-harris-competitive-polls
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895375/2024/11/03/lando-norris-brazil-gp-red-flag-
 **Wayne County, Mich.**\
 `By Mitch Smith`\
 https://nytimes.com/live/2024/11/03/us/harris-trump-election/wayne-county-mich
-
-**Joe Burrow's 5 TDs lead Bengals to 41-24 rout of Raiders: Takeaways**\
-`Joe Burrow is the only QB to have multiple five passing touchdown games this season.`\
-https://nytimes.com/athletic/5894536/2024/11/03/raiders-bengals-takeaways-result/
 
