@@ -1,3 +1,7 @@
+**Gretchen Whitmer Rallies Michigan Democrats as Election Day Nears**\
+`Ms. Whitmer won re-election as Michigan’s governor by 11 percentage points two years ago. Polls show a much closer race for president.`\
+https://nytimes.com/2024/11/03/us/whitmer-michigan-election.html
+
 **Rainy-Day Reserves**\
 `Get into solving mode for this puzzle by Colin Adams.`\
 https://nytimes.com/2024/11/03/crosswords/daily-puzzle-2024-11-04.html

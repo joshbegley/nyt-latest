@@ -1,3 +1,7 @@
+**Gretchen Whitmer Rallies Michigan Democrats as Election Day Nears**\
+`Ms. Whitmer won re-election as Michigan’s governor by 11 percentage points two years ago. Polls show a much closer race for president.`\
+https://nytimes.com/2024/11/03/us/whitmer-michigan-election.html
+
 **Rainy-Day Reserves**\
 `Get into solving mode for this puzzle by Colin Adams.`\
 https://nytimes.com/2024/11/03/crosswords/daily-puzzle-2024-11-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/us/elections/what-polls-can-tell-us-beyond-the-ho
 **Trump Says He May Move Against Some Vaccinations and Fluoride in Water**\
 `Former President Donald J. Trump expressed openness to proposals set forth by Robert F. Kennedy Jr., the vaccine skeptic he has said would be allowed to “go wild on health.”`\
 https://nytimes.com/2024/11/03/us/politics/trump-rfk-jr-vaccines-fluoride.html
-
-**Barkley's backward hurdle draws widespread disbelief from NFL fans**\
-`The star running back went viral on Sunday with yet another standout highlight.`\
-https://nytimes.com/athletic/5895545/2024/11/03/saquon-barkley-hurdle-backwards-eagles-jaguars/
 
