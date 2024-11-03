@@ -1,3 +1,7 @@
+**Thousands of Children in Gaza Get 2nd Dose of Polio Vaccine**\
+`Aid agencies said that children in some areas of northern Gaza where Israel is mounting an offensive against Hamas will miss the doses, compromising the effectiveness of the campaign.`\
+https://nytimes.com/2024/11/03/world/middleeast/gaza-polio-vaccine.html
+
 **How to track your favorite runners.**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-track-your-favorite-runners
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/opinion/nikki-haley-voters-harris.html
 **Mandel's Final Thoughts: Amid great change, Penn State losing to Ohio State stays the same**\
 `The Nittany Lions' CFP hopes are intact, but it doesn't change the fact James Franklin is 1-10 vs. the Buckeyes and 1-13 vs. AP top-5 teams.`\
 https://nytimes.com/athletic/5894111/2024/11/03/college-football-highlights-ohio-state-penn-state-mandel/
-
-**Want to Make Sense of the Chaos on Election Night? Here Are the House Races I’m Watching.**\
-`Key districts will give us clues for how the election is going. They may also answer some of the big demographic questions looming over U.S. politics.`\
-https://nytimes.com/2024/11/03/opinion/house-election-districts.html
 
