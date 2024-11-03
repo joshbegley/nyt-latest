@@ -1,3 +1,7 @@
+**Where are the best spots to cheer?**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/heres-our-guide-for-the-best-spots-to-cheer
+
 **When do runners start and when do they finish?**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/when-do-runners-start-and-when-do-they-finish
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/opinion/abortion-miscarriage-roe-v-wade-election.
 **Here is the latest on the presidential race.**\
 `By Michael Levenson`\
 https://nytimes.com/live/2024/11/03/us/harris-trump-election/here-is-the-latest-on-the-presidential-race
-
-**Q&A: Why Nazem Kadri felt mistreated by the Leafs (but enjoyed playing for Mike Babcock)**\
-`What went on behind the scenes with the Maple Leafs is part of what Nazem Kadri reveals in his new memoir`\
-https://nytimes.com/athletic/5886063/2024/11/03/maple-leafs-nazem-kadri/
 

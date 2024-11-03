@@ -1,3 +1,7 @@
+**Where are the best spots to cheer?**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/heres-our-guide-for-the-best-spots-to-cheer
+
 **When do runners start and when do they finish?**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/when-do-runners-start-and-when-do-they-finish
