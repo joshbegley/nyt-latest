@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5890534/2024/11/03/mckenzie-usmnt-toulouse-pochetti
 https://nytimes.com/athletic/5893926/2024/11/03/joel-embiid-76ers-reporter-assault-locker-room/
 
 **'We're thinking about him': If Blues are without Philip Broberg, the impact will be huge**\
-`The defenseman was injured in Saturday's 4-2 loss to Toronto. `\
+`The defenseman was injured in Saturday's 4-2 win over Toronto. `\
 https://nytimes.com/athletic/5893643/2024/11/03/blues-philip-broberg-injury-maple-leafs/
 
 **Broncos at Ravens: How to watch, odds, expert picks with elite offense vs. stingy defense**\
