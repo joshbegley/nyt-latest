@@ -1,3 +1,7 @@
+**James O’Keefe Recruits Election Workers to Secretly Record at the Polls**\
+`Mr. O’Keefe has sought volunteers willing to wear hidden cameras and hunt for voting problems. Dozens of election judges and poll monitors responded, records show.`\
+https://nytimes.com/2024/11/03/us/politics/2024-election-james-okeefe-voting.html
+
 **Trump Tells Supporters He ‘Shouldn’t Have Left’ the White House**\
 `Donald J. Trump, who sought to overturn his loss of the 2020 election, also joked that he didn’t mind if reporters were shot.`\
 https://nytimes.com/2024/11/03/us/politics/trump-pa-rally-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5894224/2024/11/03/kevin-durant-suns-leadership-ste
 **New York City Marathon results: Nageeye, Chepkirui stun historic fields**\
 `Chepkirui entered Sunday with an impressive 2:17:29 personal best, but also as a darkhorse on the famed course.`\
 https://nytimes.com/athletic/5893965/2024/11/03/new-york-city-marathon-mens-womens-results/
-
-**The Pulse: 12-team Playoff chaos arrives**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5894629/2024/11/03/college-football-playoff-nfl-the-pulse/
 
