@@ -1,3 +1,11 @@
+**'We're thinking about him': If Blues are without Philip Broberg, the impact will be huge**\
+`The defenseman was injured in Saturday's 4-2 loss to Toronto. `\
+https://nytimes.com/athletic/5893643/2024/11/03/blues-philip-broberg-injury-maple-leafs/
+
+**Broncos at Ravens: How to watch, odds, expert picks with elite offense vs. stingy defense**\
+`No team allows fewer yards per play than the Broncos. No team gains more yards per play than the Ravens. They meet on Sunday.`\
+https://nytimes.com/athletic/5889385/2024/11/03/broncos-ravens-odds-picks-how-to-watch-betting/
+
 **Saints at Panthers: How to watch, odds, expert picks with Saints heavily favored**\
 `New Orleans is heavily favored on the road in Week 9, having easily handled the Panthers in Week 1.  `\
 https://nytimes.com/athletic/5891321/2024/11/03/saints-panthers-odds-picks-how-to-watch-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5889231/2024/11/03/chargers-browns-odds-picks-how-t
 **Trump Laughs as Supporter Yells That Harris ‘Worked on the Corner’**\
 `“This place is amazing,” Donald Trump said after a supporter shouted the crude comment at a rally. A quick clarification followed: “Just remember, it’s other people saying it. It’s not me.”`\
 https://nytimes.com/2024/11/03/us/politics/trump-harris-crude-remark.html
-
-**Manchester United vs Chelsea preview, odds: Ruben Amorim hired but won't be in charge**\
-`Manchester United has a new manager, but he won't be on the sidelines this weekend against Chelsea. Will the Red Devils impress?`\
-https://nytimes.com/athletic/5891891/2024/11/03/manchester-united-chelsea-preview-odds-prediction/
-
-**Quote of the Day: War Payments Have Russians Rolling in Cash**\
-`Quotation of the Day for Sunday, November 3, 2024.`\
-https://nytimes.com/2024/11/03/pageoneplus/quote-of-the-day-war-payments-have-russians-rolling-in-cash.html
 
