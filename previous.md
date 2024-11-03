@@ -1,3 +1,7 @@
+**Rams at Seahawks: How to watch, odds, expert picks for big NFC West clash**\
+`The Seahawks and Rams are both in the mix of the incredibly tight NFC West race. The odds for this game are also very tight.`\
+https://nytimes.com/athletic/5891314/2024/11/03/rams-seahawks-how-to-watch-odds-picks-betting/
+
 **Michigan may be a shadow of its former self, but Oregon looks ready for its own title run**\
 `Michigan was the team that did everything right for three years. Now Oregon is the one handling an environment like the Big House with ease.`\
 https://nytimes.com/athletic/5893886/2024/11/03/oregon-michigan-college-football-playoff-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/your-money/employee-expense-reports-concur.html
 **Trump’s Wild Claims, Conspiracies and Falsehoods Redefine Presidential Bounds**\
 `Throughout his life, Donald J. Trump has bent the truth to serve his needs, never more so than on the campaign trail to win back the White House.`\
 https://nytimes.com/2024/11/03/us/politics/trump-falsehoods-claims-election.html
-
-**Trump or Harris? For Ukraine, Two Very Different Futures Loom.**\
-`The presidential candidates have expressed starkly contrasting visions for America’s role in the war, as well as the NATO alliance that serves as a shield against Russian aggression.`\
-https://nytimes.com/2024/11/03/world/europe/trump-harris-ukraine-election.html
 
