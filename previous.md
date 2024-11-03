@@ -1,3 +1,7 @@
+**Snyder: Penn State squandered yet another chance to reward fans' hope**\
+`A record crowd at Beaver Stadium had plenty of hope for Penn State to get over the hump vs. Ohio State. Once again, it turned into anger.`\
+https://nytimes.com/athletic/5893599/2024/11/02/penn-state-ohio-state-james-franklin-2/
+
 **Blackhawks pull off road comeback against Kings: Observations**\
 `Nick Foligno kicked off a rally at the start of the third period as the Blackhawks beat the Kings in a shootout.`\
 https://nytimes.com/athletic/5893036/2024/11/02/blackhawks-foligno-donato-comeback-kings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/02/business/tgi-fridays-bankruptcy.html
 **Comeback falls short: Takeaways from yet another Nebraska debacle**\
 `Matt Rhule’s team was beaten in stunning fashion for the second time in three weeks. Can the Huskers rebound?`\
 https://nytimes.com/athletic/5893485/2024/11/02/nebraska-ucla-dylan-raiola/
-
-**Top-ranked Oregon remains unbeaten with road win at Michigan: Takeaways**\
-`Oregon QB Dillon Gabriel threw for 294 yards and ran for a 23-yard touchdown to keep the Ducks perfect and their Playoff hopes intact.`\
-https://nytimes.com/athletic/5893275/2024/11/02/oregon-ducks-michigan-wolverines-score-recap/
 

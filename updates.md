@@ -1,3 +1,7 @@
+**Snyder: Penn State squandered yet another chance to reward fans' hope**\
+`A record crowd at Beaver Stadium had plenty of hope for Penn State to get over the hump vs. Ohio State. Once again, it turned into anger.`\
+https://nytimes.com/athletic/5893599/2024/11/02/penn-state-ohio-state-james-franklin-2/
+
 **Harris Will Make Surprise Appearance on ‘Saturday Night Live’**\
 `After a campaign rally in Charlotte, N.C., she headed north to New York, where she was expected to appear on the late-night sketch comedy show.`\
 https://nytimes.com/2024/11/02/us/politics/kamala-harris-snl.html
