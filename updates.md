@@ -1,3 +1,7 @@
+**Texas A&M falls flat in loss to South Carolina: What this means in SEC race**\
+`South Carolina beat Texas A&M 44-20 and outgained the Aggies 530 total yards to 350.`\
+https://nytimes.com/athletic/5893907/2024/11/02/texas-am-south-carolina-score-analysis/
+
 **Georgia needs QB Carson Beck to solve his turnover problem**\
 `Beck's decision-making was the one thing Georgia wasn't supposed to worry about. But his turnovers have become one of its biggest questions.`\
 https://nytimes.com/athletic/5893821/2024/11/02/georgia-bulldogs-quarterback-carson-beck-florida-gators/

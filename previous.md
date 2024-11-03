@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5891192/2024/11/02/dolphins-bills-odds-picks-how-to
 
 **Texas A&M falls flat in loss to South Carolina: What this means in SEC race**\
 `South Carolina beat Texas A&M 44-20 and outgained the Aggies 530 total yards to 350.`\
-https://nytimes.com/athletic/5893907/2024/11/02/texas-am-held-scoreless-in-second-half-as-south-carolina-earns-marquee-win/
+https://nytimes.com/athletic/5893907/2024/11/02/texas-am-south-carolina-score-analysis/
 
 **How Adam Gaudette became the Sens' key scorer — and why he keeps being sent to the AHL**\
 `The forward has gone from a fourth-line afterthought to an early-season surprise over the last five games for the Ottawa Senators.`\
