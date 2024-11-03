@@ -1,3 +1,7 @@
+**What is running through their head as they run 26.2 miles?**\
+`By Jeré Longman and Talya Minsberg`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/what-is-running-through-their-head-as-they-run-26-2-miles
+
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/03/nhl-standings-playoffs-projections-odds/
