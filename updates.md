@@ -1,3 +1,11 @@
+**Cowboys at Falcons: How to watch, odds, expert picks as Dallas tries to right the ship**\
+`This looks like the Falcons' game to lose at Mercedes-Benz Stadium. They are favored by about a field goal.`\
+https://nytimes.com/athletic/5891101/2024/11/02/cowboys-falcons-odds-picks-how-to-watch-betting/
+
+**Clemson defense exposed in loss to Louisville: How the ACC standings changed**\
+`The Tigers fell 33-21 to the Cardinals for their first conference loss of the season.`\
+https://nytimes.com/athletic/5893853/2024/11/02/clemson-louisville-score-analysis-college-football/
+
 **MLB finds Padres prospect falsified age**\
 `The league found that Cesar Altragarcia, a shortstop, is 19. His paperwork had stated he was 14.`\
 https://nytimes.com/athletic/5893859/2024/11/02/padres-prospect-falsified-age/
