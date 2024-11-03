@@ -1,3 +1,15 @@
+**The Briefing: Tottenham 4 Aston Villa 1 - Solanke's best game so far, Spurs' back-post threat, and another defensive injury**\
+`Analysis of Sunday's Premier League game at the Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/5888350/2024/11/03/tottenham-aston-villa-result-analysis-premier-league/
+
+**Business Leaders and the Election**\
+`Readers call on business leaders to help save our democracy. Also: After the voting; swing states; Holocaust legacy; defending corporate D.E.I.`\
+https://nytimes.com/2024/11/03/opinion/business-leaders-election.html
+
+**Say Cheese Enchiladas**\
+`“Enchiladas are warm hugs, enveloped in tortillas and blanketed in sauce,” Bryan Washington wrote. Truer words? Never spoken.`\
+https://nytimes.com/2024/11/03/dining/best-cheese-enchiladas-recipe.html
+
 **Romanchuk and Scaroni Win Wheelchair Races in Sweep for Americans**\
 `Romanchuk used a late sprint to win his third New York City Marathon, while Scaroni led from start to finish.`\
 https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-susannah-scaroni-nyc-marathon-wheelchair.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/what-is-running-throug
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/03/nhl-standings-playoffs-projections-odds/
-
-**Until Saturday: Week 10's wild ride, plus a Playoff prediction**\
-`Welcome to Until Saturday, the five-star college football newsletter: Who's in the top 12? There were some shakeups after a wild Week 10.`\
-https://nytimes.com/athletic/5894213/2024/11/03/college-football-week-10-playoff-predictions-until-saturday/
-
-**The Gift of the Cosmic Voids**\
-`Most of the universe is made of nothingness. That realization should make us feel empowered, not frightened.`\
-https://nytimes.com/2024/11/03/opinion/cosmic-void-universe-space.html
-
-**Which Celebrities Are Running the New York City Marathon?**\
-`The actors Randall Park, Jennifer Connelly and Claire Holt have signed up, as have an NBC News correspondent and a beauty influencer.`\
-https://nytimes.com/2024/11/03/nyregion/celebrities-new-york-city-marathon.html
 
