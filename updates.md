@@ -1,3 +1,7 @@
+**Adam Silver would 'love to have' NBA franchise in Mexico City**\
+`Silver said the league has no target time frame for expansion, whether it would be to Mexico City or another destination.`\
+https://nytimes.com/athletic/5893668/2024/11/02/nba-expansion-mexico-city-adam-silver/
+
 **Snyder: Penn State squandered yet another chance to reward fans' hope**\
 `A record crowd at Beaver Stadium had plenty of hope for Penn State to get over the hump vs. Ohio State. Once again, it turned into anger.`\
 https://nytimes.com/athletic/5893599/2024/11/02/penn-state-ohio-state-james-franklin-2/
