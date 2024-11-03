@@ -1,3 +1,7 @@
+**Which Celebrities Are Running the New York City Marathon?**\
+`The actors Randall Park, Jennifer Connelly and Claire Holt have signed up, as have an NBC News correspondent and a beauty influencer.`\
+https://nytimes.com/2024/11/03/nyregion/here-are-some-of-the-celebrities-running-the-marathon.html
+
 **Here are some of the celebrities running the marathon.**\
 `The actors Randall Park, Jennifer Connelly and Claire Holt have signed up, as have an NBC News correspondent and a beauty influencer.`\
 https://nytimes.com/2024/11/03/nyregion/here-are-some-of-the-celebrities-running-the-marathon.html
