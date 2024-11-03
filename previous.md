@@ -1,3 +1,7 @@
+**How much money can the elite runners win?**\
+`At the highest level, one woman and one man among invited professional athletes will win $100,000. Each runner-up will receive $60,000.`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-much-money-can-the-elite-runners-win
+
 **Thousands of Children in Gaza Get 2nd Dose of Polio Vaccine**\
 `Aid agencies said that children in some areas of northern Gaza where Israel is mounting an offensive against Hamas will miss the doses, compromising the effectiveness of the campaign.`\
 https://nytimes.com/2024/11/03/world/middleeast/gaza-polio-vaccine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/podcasts/the-daily/springfield-ohio-family-trump-
 **Where Do Nikki Haley Voters Turn?**\
 `The Haley voters who cast ballots for Harris are a new kind of conservative voter.`\
 https://nytimes.com/2024/11/03/opinion/nikki-haley-voters-harris.html
-
-**Mandel's Final Thoughts: Amid great change, Penn State losing to Ohio State stays the same**\
-`The Nittany Lions' CFP hopes are intact, but it doesn't change the fact James Franklin is 1-10 vs. the Buckeyes and 1-13 vs. AP top-5 teams.`\
-https://nytimes.com/athletic/5894111/2024/11/03/college-football-highlights-ohio-state-penn-state-mandel/
 
