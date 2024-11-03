@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5893036/2024/11/02/blackhawks-foligno-donato-comeba
 https://nytimes.com/2024/11/02/us/politics/robert-f-kennedy-jr-trump-fluoride-water.html
 
 **Harris Will Make Surprise Appearance on ‘Saturday Night Live’**\
-`After a campaign rally in Charlotte, N.C., she was heading north to New York, where she was expected to appear on the late-night sketch comedy show.`\
+`After a campaign rally in Charlotte, N.C., she headed north to New York, where she was expected to appear on the late-night sketch comedy show.`\
 https://nytimes.com/2024/11/02/us/politics/kamala-harris-snl.html
 
 **Analysing Jets attendance, Perfetti's position and Ehlers' minutes: Mailbag, part 2**\
