@@ -1,3 +1,7 @@
+**Adam Silver would 'love to have' NBA franchise in Mexico City**\
+`Silver said the league has no target time frame for expansion, whether it would be to Mexico City or another destination.`\
+https://nytimes.com/athletic/5893668/2024/11/02/nba-expansion-mexico-city-adam-silver/
+
 **Iowa State, K-State suffer losses; Big 12 standings chaos continues**\
 `The Big 12 cranked up the chaos Saturday with a pair of upset wins over No. 11 Iowa State and No. 17 Kansas State.`\
 https://nytimes.com/athletic/5893514/2024/11/02/texas-tech-iowa-state-result-score-takeaways/
