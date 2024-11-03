@@ -1,3 +1,7 @@
+**Can Florida fairly evaluate Billy Napier with DJ Lagway injured?**\
+`Lagway's injury left Florida with walk-on Ivy League transfer Aidan Warner at quarterback in Saturday's loss to Georgia. What's next?`\
+https://nytimes.com/athletic/5893748/2024/11/02/florida-georgia-billy-napier-lagway-warner/
+
 **ULM offensive line coach facing internal discipline for shoving player**\
 `Offensive line coach Cam Blankenship screamed at OL Drew Hutchinson and shoved him on the sideline before another player stepped in.`\
 https://nytimes.com/athletic/5893752/2024/11/02/ulm-coach-cam-blankenship-shoves-player/
