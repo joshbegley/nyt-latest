@@ -1,3 +1,7 @@
+**9 Memorable Looks at the New York City Marathon**\
+`Form versus function can be debated another time as these marathoners made sure they looked good while they were running hard.`\
+https://nytimes.com/2024/11/03/style/new-york-marathon-fashion.html
+
 **U.S. Confirms Reports That Iran Arrested an Iranian-American Citizen**\
 `Rights groups said that Reza Valizadeh, an Iranian-American journalist, was recently arrested in Iran, although the State Department did not confirm that he was the person detained.`\
 https://nytimes.com/2024/11/03/world/middleeast/iran-arrest-reza-valizadeh-journalist-detention.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/30/opinion/thepoint/dowd-harris-snl-rudolph
 **With Oil Prices Weak, OPEC+ Postpones Increases Again**\
 `Saudi Arabia, which leads the group, appears wary of unsettling markets just before the U.S. presidential election on Tuesday.`\
 https://nytimes.com/2024/11/03/business/opec-plus-oil-production.html
-
-**Blue Jackets Sunday Gathering: Boone Jenner, Erik Gudbranson still involved despite injuries**\
-`Blue Jackets GM Don Waddell has said he wants Jenner and Gudbranson to be around the club as much as they want.`\
-https://nytimes.com/athletic/5892780/2024/11/03/blue-jackets-boone-jenner-erik-gudbranson-injury/
 

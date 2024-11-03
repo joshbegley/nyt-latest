@@ -1,3 +1,7 @@
+**9 Memorable Looks at the New York City Marathon**\
+`Form versus function can be debated another time as these marathoners made sure they looked good while they were running hard.`\
+https://nytimes.com/2024/11/03/style/new-york-marathon-fashion.html
+
 **U.S. Confirms Reports That Iran Arrested an Iranian-American Citizen**\
 `Rights groups said that Reza Valizadeh, an Iranian-American journalist, was recently arrested in Iran, although the State Department did not confirm that he was the person detained.`\
 https://nytimes.com/2024/11/03/world/middleeast/iran-arrest-reza-valizadeh-journalist-detention.html
