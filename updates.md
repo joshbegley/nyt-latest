@@ -1,3 +1,15 @@
+**Susannah Scaroni dominates the women’s wheelchair race.**\
+`Scaroni led from start to finish with no serious challengers.`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/susannah-scaroni-wins-nyc-marathon-wheelchair
+
+**Daniel Romanchuk wins his third men’s wheelchair race.**\
+`He sprinted past David Weir in Central Park for the victory.`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/daniel-romanchuk-wins-nyc-marathon-wheelchair
+
+**Which Celebrities Are Running the New York City Marathon?**\
+`The actors Randall Park, Jennifer Connelly and Claire Holt have signed up, as have an NBC News correspondent and a beauty influencer.`\
+https://nytimes.com/2024/11/03/nyregion/celebrities-new-york-city-marathon.html
+
 **Daniel Romanchuk Wins His Third Men’s Wheelchair Race**\
 `He sprinted past David Weir in Central Park for the victory.`\
 https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-wins-his-third-mens-wheelchair-race.html

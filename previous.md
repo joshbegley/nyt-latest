@@ -1,6 +1,10 @@
-**Daniel Romanchuk Wins His Third Men’s Wheelchair Race**\
+**Susannah Scaroni dominates the women’s wheelchair race.**\
+`Scaroni led from start to finish with no serious challengers.`\
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/susannah-scaroni-wins-nyc-marathon-wheelchair
+
+**Daniel Romanchuk wins his third men’s wheelchair race.**\
 `He sprinted past David Weir in Central Park for the victory.`\
-https://nytimes.com/2024/11/03/nyregion/daniel-romanchuk-wins-his-third-mens-wheelchair-race.html
+https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/daniel-romanchuk-wins-nyc-marathon-wheelchair
 
 **Live Q&A: Week 9 fantasy football start/sit chat with Jay Felicio, Sunday 11/3 at 11 a.m. ET**\
 `Submit your Week 9 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
@@ -24,7 +28,7 @@ https://nytimes.com/2024/11/03/opinion/cosmic-void-universe-space.html
 
 **Which Celebrities Are Running the New York City Marathon?**\
 `The actors Randall Park, Jennifer Connelly and Claire Holt have signed up, as have an NBC News correspondent and a beauty influencer.`\
-https://nytimes.com/2024/11/03/nyregion/here-are-some-of-the-celebrities-running-the-marathon.html
+https://nytimes.com/2024/11/03/nyregion/celebrities-new-york-city-marathon.html
 
 **Ranking the Giants' biggest offseason priorities**\
 `From third base (covered) to shortstop (not so much), ranking the Giants' biggest areas of need at the start of the offseason.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891394/2024/11/03/sf-giants-offseason-priorities-r
 **How to watch the race without the crowds.**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/how-to-watch-the-race-without-the-crowds
-
-**20/20 Foresight**\
-`We’re covering the strategic risks that Kamala Harris and Donald Trump are taking.`\
-https://nytimes.com/2024/11/03/briefing/20-20-foresight.html
 
