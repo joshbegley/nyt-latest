@@ -1,3 +1,7 @@
+**What’s Powering 3 Generations of Runners? Family, Grit and Sandwiches.**\
+`The New York City Marathon is a family tradition for the Villavicencios.`\
+https://nytimes.com/2024/11/03/nyregion/nyc-marathon-runners-villavicencio-family.html
+
 **Suns' Kevin Durant, tired of leadership criticism, calls ESPN star 'a clown to me'**\
 `Is Kevin Durant a good leader? The question has hung over him for much of his career and bubbled up again last month via Stephen A. Smith.`\
 https://nytimes.com/athletic/5894224/2024/11/03/kevin-durant-suns-leadership-stephen-a-smith/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5894219/2024/11/03/ibrahima-konate-injury-update/
 **Susannah Scaroni dominates the women’s wheelchair race.**\
 `Scaroni led from start to finish with no serious challengers.`\
 https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/susannah-scaroni-wins-nyc-marathon-wheelchair
-
-**Daniel Romanchuk wins his third men’s wheelchair race.**\
-`He sprinted past David Weir in Central Park for the victory.`\
-https://nytimes.com/live/2024/11/03/nyregion/nyc-marathon/daniel-romanchuk-wins-nyc-marathon-wheelchair
 
