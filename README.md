@@ -1,3 +1,11 @@
+**Judge Allows Iowa to Challenge Voters It Suspects of Being Noncitizens**\
+`A federal judge appointed by President Biden allowed the challenge to continue, but voiced concerns at some of the measures taken by Iowa’s secretary of state.`\
+https://nytimes.com/2024/11/03/us/politics/iowa-noncitizens-judge-voting.html
+
+**Despite another Cowboys loss, Jerry Jones says he's still all in and could upgrade roster**\
+`The Cowboys owner and GM said after their third consecutive loss that they're going to do whatever they can "to improve this team."`\
+https://nytimes.com/athletic/5896075/2024/11/03/cowboys-lose-jerry-jones-trade-deadline-falcons/
+
 **Red Bulls knock reigning MLS Cup champion Crew out of playoffs**\
 `The New York Red Bulls pulled off one of the biggest shocks in MLS playoff history, knocking off the Columbus Crew in a two-game sweep.`\
 https://nytimes.com/athletic/5896156/2024/11/03/red-bulls-crew-elminiation-mls-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5895924/2024/11/03/kirk-cousins-falcons-cowboys-nfl
 **Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
 `Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. Could that happen Monday? `\
 https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
-
-**Harris and Trump have been fighting to win over Arab American voters.**\
-`By Charles Homans and Hamed Aleaziz`\
-https://nytimes.com/live/2024/11/03/us/harris-trump-election/harris-and-trump-have-been-fighting-to-win-over-arab-american-voters
-
-**Cardinals run over Bears 29-9 for third straight win: Takeaways**\
-`The Cardinals have won three in a row for the first time since 2021 and they sit atop the NFC West.`\
-https://nytimes.com/athletic/5894558/2024/11/03/bears-cardinals-score-takeaways-result/
 
