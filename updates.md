@@ -1,3 +1,11 @@
+**As Election Day nears, yard signs disappear.**\
+`By Corey Kilgannon`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/as-election-day-nears-yard-signs-disappear
+
+**Astros outright starter José Urquidy**\
+`Urquidy did not pitch in a major-league game last season and underwent his second Tommy John surgery in June.`\
+https://nytimes.com/athletic/5899010/2024/11/04/astros-outright-starter-jose-urquidy-who-is-now-a-free-agent-after-5-seasons-in-houston/
+
 **At Daniel Penny’s Trial, Passengers Describe Harrowing F Train Ride**\
 `Witnesses from the subway train said they feared Jordan Neely but also described the horror of watching him die in a chokehold.`\
 https://nytimes.com/2024/11/04/nyregion/daniel-penny-trial-subway-chokehold-case.html
