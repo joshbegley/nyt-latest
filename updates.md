@@ -1,3 +1,7 @@
+**Packers embarrass themselves with self-inflicted errors in loss to Lions**\
+`The Packers played a game full of needless mistakes and paid the price, losing 24-14 to the Lions and falling to 0-2 in the NFC North.`\
+https://nytimes.com/athletic/5896719/2024/11/03/packers-loss-lions-embarrassing/
+
 **Vikings defense stifles Joe Flacco-led Colts: Key Takeaways**\
 `Minnesota's performance looked more like its first five games, when Brian Flores' unit was flustering every quarterback it faced.`\
 https://nytimes.com/athletic/5896027/2024/11/03/colts-vikings-score-takeaways-result/

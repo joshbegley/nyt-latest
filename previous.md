@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5896027/2024/11/03/colts-vikings-score-takeaways-re
 `The comedian and co-host of “The Daily Show” reflects on how American politics has changed over the last two decades.`\
 https://nytimes.com/video/opinion/100000009801842/jon-stewart-looks-back-with-sanity-and-or-fear.html
 
-**Packers embarrass themselves with self-inflicted errors in 24-14 loss to Lions**\
+**Packers embarrass themselves with self-inflicted errors in loss to Lions**\
 `The Packers played a game full of needless mistakes and paid the price, losing 24-14 to the Lions and falling to 0-2 in the NFC North.`\
 https://nytimes.com/athletic/5896719/2024/11/03/packers-loss-lions-embarrassing/
 
