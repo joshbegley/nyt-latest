@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Special teams help Toronto salvage point vs. Wild**\
+`The Leafs scored their first power-play goal since Oct. 21 but ran out of steam on the second night of a back-to-back.`\
+https://nytimes.com/athletic/5895644/2024/11/03/maple-leafs-report-cards-special-teams-wild/
+
 **Harris, at Final Michigan Rally, Offers Forward-Looking Vision**\
 `“Our campaign has not been about being against something, it is about being for something,” Vice President Kamala Harris said, avoiding any mention of her rival by name.`\
 https://nytimes.com/2024/11/03/us/politics/harris-michigan-state-university-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896283/2024/11/03/derek-carr-michael-thomas-rant/
 **Bryce Young deserves starting nod with game-winning drive, growing confidence**\
 `It wasn't a perfect performance by Young or the Panthers on Sunday, but Dave Canales should let his QB build on his momentum.`\
 https://nytimes.com/athletic/5896124/2024/11/03/panthers-win-bryce-young-game-winning-drive-saints/
-
-**Paul George expected to make 76ers debut Monday vs. Suns**\
-`George has yet to play this season after hyperextending his left knee in a preseason game against the Atlanta Hawks on Oct. 14.`\
-https://nytimes.com/athletic/5896274/2024/11/03/paul-george-season-debut-76ers-suns/
 
