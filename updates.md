@@ -1,3 +1,19 @@
+**Harris, at Final Michigan Rally, Offers Forward-Looking Vision**\
+`“Our campaign has not been about being against something, it is about being for something,” Vice President Kamala Harris said, avoiding any mention of her rival by name.`\
+https://nytimes.com/2024/11/03/us/politics/harris-michigan-state-university-rally.html
+
+**Robinson's TD grab gives Rams 26-20 OT win over Seahawks: Takeaways**\
+`Matthew Stafford's 39-yard touchdown pass to Demarcus Robinson in overtime lifted the Rams to a third consecutive win.`\
+https://nytimes.com/athletic/5894572/2024/11/03/rams-seahawks-score-takeaways-result/
+
+**In Nebraska, Separate Referendums on Abortion Create Confusion for Voters**\
+`Referendum 434 would enshrine the state’s current ban after 12 weeks. Referendum 439 would create a right to abortion “until fetal viability.”`\
+https://nytimes.com/2024/11/03/us/politics/nebraska-abortion-referendums.html
+
+**Lamar Jackson's perfection vs. Broncos makes it easy to imagine possibilities for Ravens**\
+`Jackson had the fourth perfect passer rating of his career as Baltimore flexed its offensive muscle once again in its win over Denver. `\
+https://nytimes.com/athletic/5896039/2024/11/03/lamar-jackson-passer-rating-ravens-win-broncos/
+
 **Derek Carr wishes former teammate Michael Thomas 'the best'**\
 `Carr said he's not sure why Thomas has a problem with him but that he still "has love for" his former teammate.`\
 https://nytimes.com/athletic/5896283/2024/11/03/derek-carr-michael-thomas-rant/
