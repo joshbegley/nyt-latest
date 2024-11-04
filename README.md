@@ -1,3 +1,7 @@
+**Tennis Briefing: WTA Finals, the ATP race, and celebrating too much in Paris?**\
+`The best women's players in the world face off as the men's 'Race to Turin' comes to a conclusion.`\
+https://nytimes.com/athletic/5895811/2024/11/04/tennis-news-analysis-wta-finals-atp-race-turin/
+
 **A Guide to Election Night**\
 `What to expect, hour by hour.`\
 https://nytimes.com/2024/11/04/briefing/election-night-2024-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/business/media/new-york-times-strike.html
 **Understanding the Leaked Documents Case Roiling Israel**\
 `An individual who worked in Prime Minister Benjamin Netanyahu’s office is being investigated.`\
 https://nytimes.com/2024/11/04/world/middleeast/israel-netanyahu-leaked-documents-hamas-gaza.html
-
-**Daniel Jones might be the next Derek Carr or Russell Wilson (and not in a good way)**\
-`It might be only a matter of time before Jones is benched so the Giants can mitigate risk with his contract in 2025.`\
-https://nytimes.com/athletic/5897176/2024/11/04/daniel-jones-giants-benched-contract/
 
