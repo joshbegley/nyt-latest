@@ -1,3 +1,7 @@
+**Trump’s Crowds Are Dwindling as His Campaign Winds Down**\
+`The former president likes to talk about the attendance at his rallies, but empty seats and early exits have grown more common.`\
+https://nytimes.com/2024/11/04/us/politics/trump-rally-crowds.html
+
 **‘Yesterday was yesterday’: Pastrnak looks for answers after third-period benching**\
 `Pastrnak says he will "take responsibility for being better. At the same time, I’m just moving forward today, focusing for another game."`\
 https://nytimes.com/athletic/5898226/2024/11/04/bruins-david-pastrnak-benching/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893339/2024/11/04/dj-lagway-injury-florida-georgia
 **Scoop City: Risers and fallers after Week 9**\
 `A quick look at the risers (Bills, Commanders and Lions), fallers (Colts) and the NFC North after Sunday's games.`\
 https://nytimes.com/athletic/5897982/2024/11/04/scoop-city-risers-and-fallers-after-week-9/
-
-**On the issues: Where Harris and Trump stand on crime.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-crime
 

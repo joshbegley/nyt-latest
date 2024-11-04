@@ -1,3 +1,7 @@
+**Trump’s Crowds Are Dwindling as His Campaign Winds Down**\
+`The former president likes to talk about the attendance at his rallies, but empty seats and early exits have grown more common.`\
+https://nytimes.com/2024/11/04/us/politics/trump-rally-crowds.html
+
 **‘Yesterday was yesterday’: Pastrnak looks for answers after third-period benching**\
 `Pastrnak says he will "take responsibility for being better. At the same time, I’m just moving forward today, focusing for another game."`\
 https://nytimes.com/athletic/5898226/2024/11/04/bruins-david-pastrnak-benching/
