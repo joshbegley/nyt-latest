@@ -1,3 +1,7 @@
+**Tennis Briefing: WTA Finals, the ATP race, and celebrating too much in Paris?**\
+`The best women's players in the world face off as the men's 'Race to Turin' comes to a conclusion.`\
+https://nytimes.com/athletic/5895811/2024/11/04/tennis-news-analysis-wta-finals-atp-race-turin/
+
 **A Guide to Election Night**\
 `What to expect, hour by hour.`\
 https://nytimes.com/2024/11/04/briefing/election-night-2024-harris-trump.html
