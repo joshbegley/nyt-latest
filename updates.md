@@ -1,3 +1,11 @@
+**A Surprising Poll for Harris Took Iowa Democrats by Surprise, Too**\
+`The Des Moines Register’s unexpected result showing Kamala Harris ahead by three percentage points in the reliably red state fueled optimism in her party.`\
+https://nytimes.com/2024/11/04/us/politics/iowa-poll-harris-democrats.html
+
+**Record Number of States Experiencing Drought**\
+`A tracking system for droughts in the U.S. marked a record last week: 48 out of 50 states made the list at once.`\
+https://nytimes.com/2024/11/04/climate/united-states-record-drought.html
+
 **Alonso hails Slot impact ahead of Liverpool return**\
 `Xabi Alonso saluted the &#8220;fantastic&#8221; impact of Liverpool head coach Arne Slot as he warned his Bayer Leverkusen side they will be facing &#8220;one of the best teams in Europe&#8221;.`\
 https://nytimes.com/athletic/5898645/2024/11/04/xabi-alonso-liverpool-return-slot/
