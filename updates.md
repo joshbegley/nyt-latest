@@ -1,3 +1,7 @@
+**Cardinals might be finding their stride, but they prefer you take that noise elsewhere**\
+`Had you watched this Arizona Cardinals team a month ago, it would've been hard to imagine it winning three in a row. But here we are.`\
+https://nytimes.com/athletic/5896400/2024/11/03/arizona-cardinals-win-chicago-bears-kyler-murray/
+
 **Kaprizov's streak ends, but Wild's winning ways don't: 'Can't be a one-trick pony'**\
 `In a rare scoreless game for Kaprizov, the rest of the team stepped up to keep banking points in an 8-1-2 start.`\
 https://nytimes.com/athletic/5896738/2024/11/03/wild-spurgeon-penalty-kill-leafs/
