@@ -1,9 +1,13 @@
+**Hurts, Barkley, Dean help Eagles to 28-23 win vs. Jaguars: Takeaways**\
+`The help of a few clutch fourth-quarter plays pushed the Eagles to their fourth consecutive win.`\
+https://nytimes.com/athletic/5894563/2024/11/03/jaguars-eagles-score-takeaways-result/
+
 **Judge Allows Iowa to Challenge Voters It Suspects of Being Noncitizens**\
 `A federal judge appointed by President Biden allowed the challenge to continue, but voiced concerns at some of the measures taken by Iowa’s secretary of state.`\
 https://nytimes.com/2024/11/03/us/politics/iowa-noncitizens-judge-voting.html
 
 **Despite another Cowboys loss, Jerry Jones says he's still all in and could upgrade roster**\
-`The Cowboys owner and GM said after their third consecutive loss that they're going to do whatever they can "to improve this team."`\
+`The Cowboys owner and GM said after their third consecutive loss that they're going to do whatever they can to "improve this team."`\
 https://nytimes.com/athletic/5896075/2024/11/03/cowboys-lose-jerry-jones-trade-deadline-falcons/
 
 **Red Bulls knock reigning MLS Cup champion Crew out of playoffs**\
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5896075/2024/11/03/cowboys-lose-jerry-jones-trade-d
 https://nytimes.com/athletic/5896156/2024/11/03/red-bulls-crew-elminiation-mls-playoffs/
 
 **An angry Joe Burrow grabs the wheel to get Bengals' season back on track amid chaos**\
-`CINCINNATI – Joe Burrow just tied a career-high with five touchdown passes.`\
+`After Cincinnati had to scrap a big part of their game plan, Burrow threw the team on his back to keep the season’s goals in sight.`\
 https://nytimes.com/athletic/5895935/2024/11/03/bengals-win-joe-burrow-angry-raiders/
 
 **Charli XCX, Leonardo DiCaprio and Colman Domingo Turn Out for the LACMA Gala**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/us/boat-missing-bodega-bay.html
 **How far can the Falcons go with Kirk Cousins? At this pace, 'the sky's the limit'**\
 `The Falcons have won five of their last six games, and coach Raheem Morris says, "Kirk Cousins is exactly what I thought he was.”`\
 https://nytimes.com/athletic/5895924/2024/11/03/kirk-cousins-falcons-cowboys-nfl/
-
-**Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
-`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. Could that happen Monday? `\
-https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
 

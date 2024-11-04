@@ -1,3 +1,15 @@
+**Hurts, Barkley, Dean help Eagles to 28-23 win vs. Jaguars: Takeaways**\
+`The help of a few clutch fourth-quarter plays pushed the Eagles to their fourth consecutive win.`\
+https://nytimes.com/athletic/5894563/2024/11/03/jaguars-eagles-score-takeaways-result/
+
+**Despite another Cowboys loss, Jerry Jones says he's still all in and could upgrade roster**\
+`The Cowboys owner and GM said after their third consecutive loss that they're going to do whatever they can to "improve this team."`\
+https://nytimes.com/athletic/5896075/2024/11/03/cowboys-lose-jerry-jones-trade-deadline-falcons/
+
+**An angry Joe Burrow grabs the wheel to get Bengals' season back on track amid chaos**\
+`After Cincinnati had to scrap a big part of their game plan, Burrow threw the team on his back to keep the season’s goals in sight.`\
+https://nytimes.com/athletic/5895935/2024/11/03/bengals-win-joe-burrow-angry-raiders/
+
 **Judge Allows Iowa to Challenge Voters It Suspects of Being Noncitizens**\
 `A federal judge appointed by President Biden allowed the challenge to continue, but voiced concerns at some of the measures taken by Iowa’s secretary of state.`\
 https://nytimes.com/2024/11/03/us/politics/iowa-noncitizens-judge-voting.html
