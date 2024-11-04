@@ -1,3 +1,11 @@
+**Mets GM meetings notes: The pros and cons of Luis Severino receiving a qualifying offer**\
+`The Mets have openings in the starting rotation and Severino is coming off a good season, but he could prefer a longer-term deal.`\
+https://nytimes.com/athletic/5899135/2024/11/04/mets-luis-severino-qualifying-offer/
+
+**Juan Soto and Corbin Burnes among 13 free agents given qualifying offers**\
+`Only 13 of the 131 players ever to receive a qualifying offer have accepted it. The 2024 qualifying offer is set at $21.05 million.`\
+https://nytimes.com/athletic/5899013/2024/11/04/mlb-qualifying-offers-explained-free-agency/
+
 **How the Death of a Celebrity Squirrel Became a Republican Rallying Cry**\
 `After P’Nut and a raccoon named Fred were taken by wildlife agents and euthanized, Donald Trump and local candidates accused New York Democrats of “state overreach.”`\
 https://nytimes.com/2024/11/04/nyregion/peanut-the-squirrel-euthanized-trump.html

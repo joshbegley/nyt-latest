@@ -1,3 +1,11 @@
+**Mets GM meetings notes: The pros and cons of Luis Severino receiving a qualifying offer**\
+`The Mets have openings in the starting rotation and Severino is coming off a good season, but he could prefer a longer-term deal.`\
+https://nytimes.com/athletic/5899135/2024/11/04/mets-luis-severino-qualifying-offer/
+
+**Juan Soto and Corbin Burnes among 13 free agents given qualifying offers**\
+`Only 13 of the 131 players ever to receive a qualifying offer have accepted it. The 2024 qualifying offer is set at $21.05 million.`\
+https://nytimes.com/athletic/5899013/2024/11/04/mlb-qualifying-offers-explained-free-agency/
+
 **How the Death of a Celebrity Squirrel Became a Republican Rallying Cry**\
 `After P’Nut and a raccoon named Fred were taken by wildlife agents and euthanized, Donald Trump and local candidates accused New York Democrats of “state overreach.”`\
 https://nytimes.com/2024/11/04/nyregion/peanut-the-squirrel-euthanized-trump.html
@@ -33,12 +41,4 @@ https://nytimes.com/athletic/5899042/2024/11/04/mike-gundy-oklahoma-state-commen
 **As Election Day nears, yard signs disappear.**\
 `By Corey Kilgannon`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/as-election-day-nears-yard-signs-disappear
-
-**Astros outright starter José Urquidy**\
-`Urquidy did not pitch in a major-league game last season and underwent his second Tommy John surgery in June.`\
-https://nytimes.com/athletic/5899010/2024/11/04/astros-outright-starter-jose-urquidy-who-is-now-a-free-agent-after-5-seasons-in-houston/
-
-**At Daniel Penny’s Trial, Passengers Describe Harrowing F Train Ride**\
-`Witnesses from the subway train said they feared Jordan Neely but also described the horror of watching him die in a chokehold.`\
-https://nytimes.com/2024/11/04/nyregion/daniel-penny-trial-subway-chokehold-case.html
 
