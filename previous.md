@@ -1,3 +1,11 @@
+**On the issues: Where Harris and Trump stand on crime.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-crime
+
+**Johnston: 4 Nations Face-Off roster projections 4 weeks before deadline day**\
+`With 4 weeks until roster deadline day and 100 days until play opens, here's who we see suiting up for Canada, Finland, Sweden and the U.S.`\
+https://nytimes.com/athletic/5897978/2024/11/04/hockey-4-nations-projected-rosters/
+
 **Vikings WR Jordan Addison is finally freed in game-changing performance against Colts**\
 `The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season..`\
 https://nytimes.com/athletic/5896166/2024/11/04/jordan-addison-vikings-colts-touchdown-catch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5897962/2024/11/04/gregg-popovich-health-issue-spur
 **How Americans Feel About the Election: Anxious and Scared**\
 `Vice President Kamala Harris and former President Donald J. Trump have framed the presidential race as an existential battle. Voters are heeding their warnings.`\
 https://nytimes.com/2024/11/04/us/politics/election-anxiety.html
-
-**The Windup: Save this MLB offseason preview**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5898023/2024/11/04/mlb-offseason-free-agency-the-windup/
-
-**Geno Smith is taking the blame for the Seahawks, but is he actually a problem?**\
-`Smith had three turnovers for the first time in 44 Seattle starts, including a back-breaking pick six. But how much blames does he deserve?`\
-https://nytimes.com/athletic/5897201/2024/11/04/geno-smith-seahawks-loss-rams/
 

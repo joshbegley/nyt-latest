@@ -1,3 +1,11 @@
+**On the issues: Where Harris and Trump stand on crime.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-crime
+
+**Johnston: 4 Nations Face-Off roster projections 4 weeks before deadline day**\
+`With 4 weeks until roster deadline day and 100 days until play opens, here's who we see suiting up for Canada, Finland, Sweden and the U.S.`\
+https://nytimes.com/athletic/5897978/2024/11/04/hockey-4-nations-projected-rosters/
+
 **Vikings WR Jordan Addison is finally freed in game-changing performance against Colts**\
 `The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season..`\
 https://nytimes.com/athletic/5896166/2024/11/04/jordan-addison-vikings-colts-touchdown-catch/
