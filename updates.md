@@ -1,3 +1,11 @@
+**Trump and Harris Battle for Pennsylvania**\
+`Also, remembering Quincy Jones. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/11/04/briefing/trump-and-harris-battle-for-pennsylvania.html
+
+**Christian McCaffrey bring jolt of hope in return to 49ers practice: 'The boys are back'**\
+`If all goes well this week at practice, McCaffrey will make his season debut Sunday against the Tampa Bay Buccaneers. `\
+https://nytimes.com/athletic/5898949/2024/11/04/christian-mccaffrey-49ers-practice-return/
+
 **Penn State's James Franklin outlines critical goal-line series against Ohio State: What went wrong?**\
 `Two drives that ended inside the Ohio State 5-yard line resulted in zero points for Penn State in a troubling loss to the Buckeyes. `\
 https://nytimes.com/athletic/5898757/2024/11/04/james-franklin-penn-state-ohio-state-play-calls-college-football/
