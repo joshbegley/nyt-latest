@@ -1,3 +1,7 @@
+**Preppers Await the End. But First, the Election.**\
+`In Arizona, groups like the Dewey preppers are ready for the apocalypse and for whatever might come after Nov. 5.`\
+https://nytimes.com/2024/11/04/us/elections/election-violence-preppers-arizona.html
+
 **Israeli Strikes Damage a Major Hospital in Northern Gaza, Officials Say**\
 `Patients and medical staff were wounded at Kamal Adwan Hospital, one of the few in northern Gaza still providing limited medical care, the health ministry and the hospital’s chief said.`\
 https://nytimes.com/2024/11/04/world/middleeast/israel-strike-hospital-jabaliya.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5898317/2024/11/04/mason-mount-returns-training-man
 **Iranians Wonder if Trump Wins, Would Things Be Different This Time?**\
 `While Donald J. Trump is seen by many in Tehran as having been disastrous for their country, some hope he might be more open to negotiation in a second term as U.S. president.`\
 https://nytimes.com/2024/11/04/world/middleeast/iran-trump-harris.html
-
-**2 Police Officers Charged With Reckless Manslaughter in Ohio Man’s Death**\
-`The two police officers, who are white, held down the man, who was Black, for seven minutes as he told them he could not breathe.`\
-https://nytimes.com/2024/11/04/us/police-charged-manslaughter-canton-ohio-frank-tyson.html
 
