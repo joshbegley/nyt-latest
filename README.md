@@ -1,3 +1,7 @@
+**On the issues: Where Harris and Trump stand on L.G.B.T.Q. rights.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-lgbtq-rights
+
 **Jeffries hits the campaign trail for Rep. Pat Ryan in N.Y. swing race.**\
 `By Grace Ashford`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/04election-live-jeffries-ryan-rally
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898402/2024/11/04/dak-prescott-injury-hamstring-co
 **Tracking Typhoon Yinxing**\
 `See the likely path and wind arrival times for Yinxing.`\
 https://nytimes.com/interactive/2024/11/04/weather/yinxing-map-path-tracker.html
-
-**Energized but Worried, the Campaigns Make Frantic Final Pushes**\
-`Democrats in battleground states have built a tightly structured get-out-the-vote operation, while Republicans have relied more on outside groups for canvassing.`\
-https://nytimes.com/2024/11/04/us/election-ground-game.html
 
