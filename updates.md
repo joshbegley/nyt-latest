@@ -1,3 +1,7 @@
+**Derek Carr wishes former teammate Michael Thomas 'the best'**\
+`Carr said he's not sure why Thomas has a problem with him but that he still "has love for" his former teammate.`\
+https://nytimes.com/athletic/5896283/2024/11/03/derek-carr-michael-thomas-rant/
+
 **Matt Boldy plays overtime hero as the Wild keep winning: 3 takeaways**\
 `In a battle of sputtering special teams, the Wild were able to pull off the win thanks to an excellent backcheck by Jared Spurgeon.`\
 https://nytimes.com/athletic/5895752/2024/11/03/wild-matt-boldy-overtime-leafs/

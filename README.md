@@ -1,3 +1,11 @@
+**In Nebraska, Separate Referendums on Abortion Create Confusion for Voters**\
+`Referendum 434 would enshrine the state’s current ban after 12 weeks. Referendum 439 would create a right to abortion “until fetal viability.”`\
+https://nytimes.com/2024/11/03/us/politics/nebraska-abortion-referendums.html
+
+**Lamar Jackson's perfection vs. Broncos makes it easy to imagine possibilities for Ravens**\
+`Jackson had the fourth perfect passer rating of his career as Baltimore flexed its offensive muscle once again in its win over Denver. `\
+https://nytimes.com/athletic/5896039/2024/11/03/lamar-jackson-passer-rating-ravens-win-broncos/
+
 **Matt Boldy plays overtime hero as the Wild keep winning: 3 takeaways**\
 `In a battle of sputtering special teams, the Wild were able to pull off the win thanks to an excellent backcheck by Jared Spurgeon.`\
 https://nytimes.com/athletic/5895752/2024/11/03/wild-matt-boldy-overtime-leafs/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/03/us/politics/undecided-voters-trump-harris.html
 **Giants' fourth straight loss brings them to familiar time: 'Tankathon' season**\
 `At this point, the only real intrigue left regarding Giants football games is how a win or a loss will affect their draft position. `\
 https://nytimes.com/athletic/5896032/2024/11/03/giants-loss-commanders-nfl-draft-tanking/
-
-**Lloyd: Blow up the Browns. This miserable season should lead to an active trade deadline**\
-`“I’ve never been in this situation ... where the season is over before the bye week," one veteran said after Sunday's loss to the Chargers.`\
-https://nytimes.com/athletic/5896052/2024/11/03/browns-chargers-jameis-winston-trade-deadline/
-
-**Lions look to be class of NFC North in 24-14 win over Packers: Takeaways**\
-`Detroit's defense depth steps up and a versatile offense prove they have what it takes to be the league's best.`\
-https://nytimes.com/athletic/5894567/2024/11/03/lions-packers-score-takeaways-result/
 
