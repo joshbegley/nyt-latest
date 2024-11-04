@@ -1,3 +1,19 @@
+**The full Sam Darnold experience was on display in Vikings' victory over Colts**\
+`There were plenty of highs and some terrible lows from the Vikings quarterback on Sunday night, but his team weathered the storm.`\
+https://nytimes.com/athletic/5897116/2024/11/04/vikings-sam-darnold-experience-colts/
+
+**Braves’ needs and potential moves as free agency begins in earnest**\
+`Will the Braves replace Orlando Arcia with an offensive upgrade at shortstop? Which Braves could get non-tendered?`\
+https://nytimes.com/athletic/5895813/2024/11/04/braves-free-agency-needs/
+
+**What I'm hearing from NBA scouts on college basketball's top prospects**\
+`Georgia's Asa Newell and BYU's Russian import are also drawing lots of attention from NBA scouts.`\
+https://nytimes.com/athletic/5884600/2024/11/04/college-basketball-nba-draft-scouts-kon-knueppel/
+
+**Is Michigan going all-in to flip Bryce Underwood? Why 4-star QB Carter Smith decommitted**\
+`Is Michigan going back after Underwood, an LSU commitment from Belleville, Mich., a sign that its NIL approach is changing?`\
+https://nytimes.com/athletic/5895180/2024/11/04/michigan-recruiting-bryce-underwood-carter-smith/
+
 **How Red and Blue America Shop, Eat and Live**\
 `Politics map onto our everyday life in surprising ways, a data set of millions of places shows.`\
 https://nytimes.com/interactive/2024/11/04/upshot/place-politics.html
