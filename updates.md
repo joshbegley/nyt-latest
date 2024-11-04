@@ -1,3 +1,7 @@
+**Tuesday Briefing: Americans brace for Election Day**\
+`Plus, remembering Quincy Jones.`\
+https://nytimes.com/2024/11/04/briefing/election-day-israel-spain.html
+
 **Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-keeps-decrying-rampant-crime-heres-how-his-misleading-claim-has-shifted

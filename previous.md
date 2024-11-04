@@ -1,3 +1,7 @@
+**Tuesday Briefing: Americans brace for Election Day**\
+`Plus, remembering Quincy Jones.`\
+https://nytimes.com/2024/11/04/briefing/election-day-israel-spain.html
+
 **Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-keeps-decrying-rampant-crime-heres-how-his-misleading-claim-has-shifted
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898656/2024/11/04/braves-decline-option-travis-dar
 **Quincy Jones’s Half-Century of Unforgettable Music**\
 `His originality crossed a wide range of genres.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/quincy-jones-music
-
-**New Hanover County, N.C.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/new-hanover-county-nc
 
