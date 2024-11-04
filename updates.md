@@ -1,3 +1,11 @@
+**Heat Today: Bam Adebayo's hot hand, Erik Spoelstra's birthday help highlight road trip**\
+`The Heat were all smiles after their trip to Mexico City.`\
+https://nytimes.com/athletic/5897488/2024/11/04/bam-adebayo-erik-spoelstra-miami-heat/
+
+**Vikings WR Jordan Addison is finally freed in game-changing performance against Colts**\
+`The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season.`\
+https://nytimes.com/athletic/5896166/2024/11/04/jordan-addison-vikings-colts-touchdown-catch/
+
 **Scoop City: Risers and fallers after Week 9**\
 `A quick look at the risers (Bills, Commanders and Lions), fallers (Colts) and the NFC North after Sunday's games.`\
 https://nytimes.com/athletic/5897982/2024/11/04/scoop-city-risers-and-fallers-after-week-9/

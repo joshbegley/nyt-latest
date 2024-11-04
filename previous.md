@@ -1,3 +1,7 @@
+**Heat Today: Bam Adebayo's hot hand, Erik Spoelstra's birthday help highlight road trip**\
+`The Heat were all smiles after their trip to Mexico City.`\
+https://nytimes.com/athletic/5897488/2024/11/04/bam-adebayo-erik-spoelstra-miami-heat/
+
 **Scoop City: Risers and fallers after Week 9**\
 `A quick look at the risers (Bills, Commanders and Lions), fallers (Colts) and the NFC North after Sunday's games.`\
 https://nytimes.com/athletic/5897982/2024/11/04/scoop-city-risers-and-fallers-after-week-9/
@@ -11,7 +15,7 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where
 https://nytimes.com/athletic/5897978/2024/11/04/hockey-4-nations-projected-rosters/
 
 **Vikings WR Jordan Addison is finally freed in game-changing performance against Colts**\
-`The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season..`\
+`The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season.`\
 https://nytimes.com/athletic/5896166/2024/11/04/jordan-addison-vikings-colts-touchdown-catch/
 
 **USMNT Player Tracker: Wright on song, Weah earns his stripes and Aaronson making friends**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/arts/dance/carolyn-adams-paul-taylor-gala.html
 **5 Reasons Early Voting Is Overwhelmed With Falsehoods**\
 `Misleading anecdotes and rumors are spreading faster, and with more ferocity, than in the run-ups to past presidential contests.`\
 https://nytimes.com/2024/11/04/technology/early-voting-election-misinformation.html
-
-**Gregg Popovich to miss Spurs' road trip with illness**\
-`The Spurs are expected to name assistant Mitch Johnson their interim coach for an indefinite period in Popovich's absence, per ESPN.`\
-https://nytimes.com/athletic/5897962/2024/11/04/gregg-popovich-health-issue-spurs/
 
