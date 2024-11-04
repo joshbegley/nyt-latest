@@ -1,40 +1,40 @@
-**Election Day is tomorrow. Here’s the latest.**\
-`By Adam Nagourney and Maggie Astor`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/election-day-is-tomorrow-heres-the-latest
+**As free agency begins, where the Reds' roster stands**\
+`The Reds have yet to nail down the budget for next season, but they've got at least four needs to address this winter.`\
+https://nytimes.com/athletic/5895723/2024/11/04/reds-roster-free-agency/
 
-**Election Live Updates: Tumultuous Presidential Campaign Sprints Into Final Day**\
-`Former President Donald J. Trump and Vice President Kamala Harris will be in Pennsylvania, a state both candidates see as critical to winning. Mr. Trump will keep up his tradition of holding his last rally in Michigan.`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election
+**Travis Kelce helps power Chiefs offense with blocking, too: ‘He gives us great effort’**\
+`Kelce is Hall of Fame bound because of his elite receiving production, but the Chiefs are raving about his blocking ability this year.`\
+https://nytimes.com/athletic/5895232/2024/11/04/travis-kelce-chiefs-blocking/
 
-**Mets' offseason could include some big-ticket items: Here's what they need**\
-`Several Mets players said after the playoff run that they wanted to return, and there's mutual interest. `\
-https://nytimes.com/athletic/5895940/2024/11/04/mets-offseason-free-agency/
+**Caleb Williams' development at stake as Bears coaching staff searches for answers**\
+`Williams and the Bears had a rough afternoon against a below-average Cardinals defense. Can they turn things around?`\
+https://nytimes.com/athletic/5896580/2024/11/04/caleb-williams-bears-development-coaching-staff/
 
-**Quincy Jones’s Legacy in 14 Essential Songs**\
-`As a producer, arranger, composer, bandleader and recording artist, he made a powerful mark on nearly every genre he touched. He died Sunday, at 91.`\
-https://nytimes.com/2024/11/04/arts/music/quincy-jones-hit-songs.html
+**New York Times Tech Workers Go on Strike**\
+`The Times Tech Guild represents more than 600 software developers and others who run the back-end systems behind The Times’s digital operation.`\
+https://nytimes.com/2024/11/04/business/media/new-york-times-strike.html
 
-**The full Sam Darnold experience was on display in Vikings' victory over Colts**\
-`There were plenty of highs and some terrible lows from the Vikings quarterback on Sunday night, but his team weathered the storm.`\
-https://nytimes.com/athletic/5897116/2024/11/04/vikings-sam-darnold-experience-colts/
+**Understanding the Leaked Documents Case Roiling Israel**\
+`An individual who worked in Prime Minister Benjamin Netanyahu’s office is being investigated.`\
+https://nytimes.com/2024/11/04/world/middleeast/israel-netanyahu-leaked-documents-hamas-gaza.html
 
-**Braves’ needs and potential moves as free agency begins in earnest**\
-`Will the Braves replace Orlando Arcia with an offensive upgrade at shortstop? Which Braves could get non-tendered?`\
-https://nytimes.com/athletic/5895813/2024/11/04/braves-free-agency-needs/
+**Daniel Jones might be the next Derek Carr or Russell Wilson (and not in a good way)**\
+`It might be only a matter of time before Jones is benched so the Giants can mitigate risk with his contract in 2025.`\
+https://nytimes.com/athletic/5897176/2024/11/04/daniel-jones-giants-benched-contract/
 
-**What I'm hearing from NBA scouts on college basketball's top prospects**\
-`Georgia's Asa Newell and BYU's Russian import are also drawing lots of attention from NBA scouts.`\
-https://nytimes.com/athletic/5884600/2024/11/04/college-basketball-nba-draft-scouts-kon-knueppel/
+**What Lamar Jackson's Ravens have in common with Brady's Pats and Peyton's Colts**\
+`The Ravens' offense is on a historical pace, and Jackson now has six career games with at least as many TD passes as incompletions.`\
+https://nytimes.com/athletic/5897168/2024/11/04/lamar-jackson-ravens-mvp-passer-rating/
 
-**Is Michigan going all-in to flip Bryce Underwood? Why 4-star QB Carter Smith decommitted**\
-`Is Michigan going back after Underwood, an LSU commitment from Belleville, Mich., a sign that its NIL approach is changing?`\
-https://nytimes.com/athletic/5895180/2024/11/04/michigan-recruiting-bryce-underwood-carter-smith/
+**Giants QB Daniel Jones almost out of time to rewrite his story in New York**\
+`At 2-7, New York has to prioritize its future — a future that likely doesn't include Jones as the starting QB of the New York Giants.`\
+https://nytimes.com/athletic/5896017/2024/11/04/giants-daniel-jones-bench-brian-daboll/
 
-**How Red and Blue America Shop, Eat and Live**\
-`Politics map onto our everyday life in surprising ways, a data set of millions of places shows.`\
-https://nytimes.com/interactive/2024/11/04/upshot/place-politics.html
+**Are the Lions Super Bowl favorites? Or are they still a move away? Sando’s Pick Six**\
+`The Lions have made a compelling case as the NFC's best team, but have they done enough to replace Aidan Hutchinson?`\
+https://nytimes.com/athletic/5889153/2024/11/04/lions-nfl-trade-deadline-zadarius-smith/
 
-**Will baseball's broadcast uncertainty impact franchise values? An early test case looms**\
-`As the offseason gets underway, many eyes will be on how the loss of RSN revenue impacts the sport. `\
-https://nytimes.com/athletic/5896621/2024/11/04/mlb-broadcast-uncertainty-franchise-values-twins/
+**Trump, Kushner and the race to host the 2026 World Cup**\
+`How involved was the former U.S. president in winning the right to host the World Cup?`\
+https://nytimes.com/athletic/5891523/2024/11/04/donald-trump-united-states-world-cup-2026/
 
