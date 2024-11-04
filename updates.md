@@ -1,3 +1,7 @@
+**Word of the Day: paradoxical**\
+`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/04/learning/word-of-the-day-paradoxical.html
+
 **Moises Caicedo's Chelsea displays this year have cast aside questions over £115m fee**\
 `Moises Caicedo has been impressive for Chelsea this season and across the entirety of 2024`\
 https://nytimes.com/athletic/5895017/2024/11/04/moises-caicedo-chelsea-analysis/

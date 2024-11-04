@@ -1,3 +1,7 @@
+**Word of the Day: paradoxical**\
+`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/04/learning/word-of-the-day-paradoxical.html
+
 **Moises Caicedo's Chelsea displays this year have cast aside questions over £115m fee**\
 `Moises Caicedo has been impressive for Chelsea this season and across the entirety of 2024`\
 https://nytimes.com/athletic/5895017/2024/11/04/moises-caicedo-chelsea-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892583/2024/11/04/dan-james-leeds-plymouth/
 **Spurs have just enjoyed the best week of the Ange Postecoglou era**\
 `Following up a cup win over Manchester City with victory against Aston Villa could finally kick the Postecoglou project into gear`\
 https://nytimes.com/athletic/5888323/2024/11/04/ange-postecoglou-tottenham-hotspur-villa-manchester-city/
-
-**West Ham lack identity. Will Julen Lopetegui be given time to turn things around?**\
-`Forest are everything their visitors aspire to be. They have a potent striker, a settled midfield, pace on the flanks and a solid defence`\
-https://nytimes.com/athletic/5892543/2024/11/04/west-ham-forest-review/
 
