@@ -1,3 +1,7 @@
+**Quincy Jones’s Legacy in 14 Essential Songs**\
+`As a producer, arranger, composer, bandleader and recording artist, he made a powerful mark on nearly every genre he touched. He died Sunday, at 91.`\
+https://nytimes.com/2024/11/04/arts/music/quincy-jones-hit-songs.html
+
 **The full Sam Darnold experience was on display in Vikings' victory over Colts**\
 `There were plenty of highs and some terrible lows from the Vikings quarterback on Sunday night, but his team weathered the storm.`\
 https://nytimes.com/athletic/5897116/2024/11/04/vikings-sam-darnold-experience-colts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895912/2024/11/04/tigers-roster-free-agency/
 **Is Something Worrying You?**\
 `Election Day anxiety can’t get much worse than this.`\
 https://nytimes.com/2024/11/04/opinion/election-day-anxiety.html
-
-**Voters Choose Between What Affects Them and What Offends Them**\
-`And many people feel Trump’s offenses have affected them.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/tipsheet-voters-swing-states
 
