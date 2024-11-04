@@ -1,3 +1,7 @@
+**Mets' offseason could include some big-ticket items: Here's what they need**\
+`Several Mets players said after the playoff run that they wanted to return, and there's mutual interest. `\
+https://nytimes.com/athletic/5895940/2024/11/04/mets-offseason-free-agency/
+
 **Quincy Jones’s Legacy in 14 Essential Songs**\
 `As a producer, arranger, composer, bandleader and recording artist, he made a powerful mark on nearly every genre he touched. He died Sunday, at 91.`\
 https://nytimes.com/2024/11/04/arts/music/quincy-jones-hit-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/world/europe/northern-gaza-evacuation-risks.html
 **Where the Tigers roster stands as free agency begins**\
 `After Detroit’s miraculous push to the playoffs, the Tigers enter this winter in a new space.`\
 https://nytimes.com/athletic/5895912/2024/11/04/tigers-roster-free-agency/
-
-**Is Something Worrying You?**\
-`Election Day anxiety can’t get much worse than this.`\
-https://nytimes.com/2024/11/04/opinion/election-day-anxiety.html
 

@@ -1,3 +1,7 @@
+**Mets' offseason could include some big-ticket items: Here's what they need**\
+`Several Mets players said after the playoff run that they wanted to return, and there's mutual interest. `\
+https://nytimes.com/athletic/5895940/2024/11/04/mets-offseason-free-agency/
+
 **Quincy Jones’s Legacy in 14 Essential Songs**\
 `As a producer, arranger, composer, bandleader and recording artist, he made a powerful mark on nearly every genre he touched. He died Sunday, at 91.`\
 https://nytimes.com/2024/11/04/arts/music/quincy-jones-hit-songs.html
