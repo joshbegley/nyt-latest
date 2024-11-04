@@ -1,3 +1,7 @@
+**Red Sox give Nick Pivetta qualifying offer; don’t extend QO to Tyler O'Neill**\
+`The offer to Pivetta does not guarantee he will return to Boston and the door could still be open to an O’Neill reunion as well.`\
+https://nytimes.com/athletic/5898975/2024/11/04/red-sox-nick-pivetta-qualifying-offer/
+
 **Two stump speeches and two approaches to delivering a message.**\
 `By Linda Qiu and Elena Shao`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/two-stump-speeches-and-two-approaches-to-delivering-a-message

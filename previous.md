@@ -1,3 +1,7 @@
+**Red Sox give Nick Pivetta qualifying offer; don’t extend QO to Tyler O'Neill**\
+`The offer to Pivetta does not guarantee he will return to Boston and the door could still be open to an O’Neill reunion as well.`\
+https://nytimes.com/athletic/5898975/2024/11/04/red-sox-nick-pivetta-qualifying-offer/
+
 **Two stump speeches and two approaches to delivering a message.**\
 `By Linda Qiu and Elena Shao`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/two-stump-speeches-and-two-approaches-to-delivering-a-message
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/harris-appeals-to-l
 **Musk’s $1 Million Checks to Voters Don’t Violate Law, Judge Rules**\
 `Elon Musk’s super PAC has been giving away $1 million daily to registered voters who signed a petition supporting the Constitution.`\
 https://nytimes.com/2024/11/04/us/politics/elon-musk-america-pac-sweepstakes-ruling.html
-
-**Quincy Jones Orchestrated the Sound of America**\
-`Jones, who died at 91, erased boundaries, connected worlds and embraced delight. As a producer, he coaxed ingenuity from his players and singers.`\
-https://nytimes.com/2024/11/04/arts/music/quincy-jones-death-michael-jackson.html
 
