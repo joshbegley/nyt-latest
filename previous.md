@@ -1,3 +1,19 @@
+**Two stump speeches and two approaches to delivering a message.**\
+`By Linda Qiu and Elena Shao`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/two-stump-speeches-and-two-approaches-to-delivering-a-message
+
+**What to watch this week in NBA: Embiid’s return, Wembanyama's rise and a Finals rematch**\
+`What to watch — and why to watch — around the NBA this week, including the Warriors heading to Boston on Wednesday.`\
+https://nytimes.com/athletic/5892158/2024/11/04/nba-weekly-watch-guide-embiid-wembanyama-finals-rematch-odds/
+
+**Donnie Nelson settles lawsuit against Mavericks, Mark Cuban**\
+`Nelson said in the lawsuit that a Mavericks executive assaulted and harassed his nephew in a Chicago hotel during All-Star weekend in 2020.`\
+https://nytimes.com/athletic/5898913/2024/11/04/mavericks-lawsuit-donnie-nelson-mark-cuban/
+
+**ESPN's Stephen A. Smith cracks back at Suns star Kevin Durant's comments**\
+`During a four-minute segment on the ESPN's "First Take," Stephen A. Smith defended his credentials and questioned Durant's sensitivity.`\
+https://nytimes.com/athletic/5898941/2024/11/04/kevin-durant-stephen-a-smith-espn-suns-comments/
+
 **Trump and Harris Battle for Pennsylvania**\
 `Also, remembering Quincy Jones. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/04/briefing/trump-and-harris-battle-for-pennsylvania.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/elon-musk-america-pac-sweepstakes-rul
 **Quincy Jones Orchestrated the Sound of America**\
 `Jones, who died at 91, erased boundaries, connected worlds and embraced delight. As a producer, he coaxed ingenuity from his players and singers.`\
 https://nytimes.com/2024/11/04/arts/music/quincy-jones-death-michael-jackson.html
-
-**What That Surprising Iowa Poll Might Be Telling Us**\
-`Sometimes outliers are early indicators, capturing something other polls just haven’t measured yet. Other times, they’re a fluke.`\
-https://nytimes.com/2024/11/04/us/elections/iowa-selzer-poll-trump-harris.html
-
-**Trump Vows to ‘Fix It,’ Whether It’s Still Broken or Not**\
-`In his final days on the campaign trail, former President Donald J. Trump has portrayed himself as the repairman for a country awash in inflation, crime and immigration — even though all three are down.`\
-https://nytimes.com/2024/11/04/us/politics/trump-economy-immigration-crime.html
-
-**Here is a look at Harris’s closing argument.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/fact-checking-harriss-closing-argument
-
-**If Harris Wins, Here’s Why**\
-`We don’t yet know the result, but we do know Kamala Harris’s strategy. Here’s what analysts will say if she pulls off a victory this week.`\
-https://nytimes.com/2024/11/04/us/politics/what-if-kamala-harris-wins-election-2024.html
 

@@ -1,3 +1,19 @@
+**Two stump speeches and two approaches to delivering a message.**\
+`By Linda Qiu and Elena Shao`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/two-stump-speeches-and-two-approaches-to-delivering-a-message
+
+**What to watch this week in NBA: Embiid’s return, Wembanyama's rise and a Finals rematch**\
+`What to watch — and why to watch — around the NBA this week, including the Warriors heading to Boston on Wednesday.`\
+https://nytimes.com/athletic/5892158/2024/11/04/nba-weekly-watch-guide-embiid-wembanyama-finals-rematch-odds/
+
+**Donnie Nelson settles lawsuit against Mavericks, Mark Cuban**\
+`Nelson said in the lawsuit that a Mavericks executive assaulted and harassed his nephew in a Chicago hotel during All-Star weekend in 2020.`\
+https://nytimes.com/athletic/5898913/2024/11/04/mavericks-lawsuit-donnie-nelson-mark-cuban/
+
+**ESPN's Stephen A. Smith cracks back at Suns star Kevin Durant's comments**\
+`During a four-minute segment on the ESPN's "First Take," Stephen A. Smith defended his credentials and questioned Durant's sensitivity.`\
+https://nytimes.com/athletic/5898941/2024/11/04/kevin-durant-stephen-a-smith-espn-suns-comments/
+
 **Trump and Harris Battle for Pennsylvania**\
 `Also, remembering Quincy Jones. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/04/briefing/trump-and-harris-battle-for-pennsylvania.html
