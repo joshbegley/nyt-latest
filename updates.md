@@ -1,3 +1,7 @@
+**Commanders handle business vs. Giants, continue to 'demonstrate improvement'**\
+`The victory wasn’t the cleanest performance from Washington, but the traits coach Dan Quinn sought were peppered throughout the game. `\
+https://nytimes.com/athletic/5896024/2024/11/03/commanders-win-jayden-daniels-giants/
+
 **Bobby Witt Jr. headlines 2024 Gold Glove winners**\
 `This year's group of Gold Glove Award winners featured 14 first-time recipients.`\
 https://nytimes.com/athletic/5895976/2024/11/03/gold-glove-award-winners-mlb/

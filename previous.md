@@ -1,3 +1,7 @@
+**Commanders handle business vs. Giants, continue to 'demonstrate improvement'**\
+`The victory wasn’t the cleanest performance from Washington, but the traits coach Dan Quinn sought were peppered throughout the game. `\
+https://nytimes.com/athletic/5896024/2024/11/03/commanders-win-jayden-daniels-giants/
+
 **Bobby Witt Jr. headlines 2024 Gold Glove winners**\
 `This year's group of Gold Glove Award winners featured 14 first-time recipients.`\
 https://nytimes.com/athletic/5895976/2024/11/03/gold-glove-award-winners-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/03/us/politics/nebraska-abortion-referendums.html
 **Lamar Jackson's perfection vs. Broncos makes it easy to imagine possibilities for Ravens**\
 `Jackson had the fourth perfect passer rating of his career as Baltimore flexed its offensive muscle once again in its win over Denver. `\
 https://nytimes.com/athletic/5896039/2024/11/03/lamar-jackson-passer-rating-ravens-win-broncos/
-
-**Matt Boldy plays overtime hero as the Wild keep winning: 3 takeaways**\
-`In a battle of sputtering special teams, the Wild were able to pull off the win thanks to an excellent backcheck by Jared Spurgeon.`\
-https://nytimes.com/athletic/5895752/2024/11/03/wild-matt-boldy-overtime-leafs/
 
