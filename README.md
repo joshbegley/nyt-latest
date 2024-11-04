@@ -1,3 +1,7 @@
+**What It Means to Come of Age in Climate Chaos**\
+`Today’s teenagers were born into the global-warming crisis, but already it’s upending their adolescence — and will define their future.`\
+https://nytimes.com/interactive/2024/11/04/magazine/climate-change-kids.html
+
 **On the issues: Where Harris and Trump stand on foreign policy.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-foreign-policy
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895274/2024/11/04/dodgers-world-series-repeat/
 **Where the Padres' roster stands as free agency begins**\
 `The Padres have many decisions to make, including whether to re-sign their free agents and tender contracts to arbitration-eligible players.`\
 https://nytimes.com/athletic/5891613/2024/11/04/san-diego-padres-roster-free-agency/
-
-**Six 49ers predictions at midseason: George Kittle will lead offense; watch out for Rams**\
-`How will the 49ers divvy up their backfield? Who will be the team's MVP? Here are predictions for the back nine of their schedule.`\
-https://nytimes.com/athletic/5888573/2024/11/04/49ers-predictions-nfl-midseason-2024/
 
