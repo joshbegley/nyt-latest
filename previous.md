@@ -1,3 +1,11 @@
+**Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
+`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders offensive issue. Could that happen Monday? `\
+https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
+
+**Harris and Trump have been fighting to win over Arab American voters.**\
+`By Charles Homans and Hamed Aleaziz`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/harris-and-trump-have-been-fighting-to-win-over-arab-american-voters
+
 **Cardinals run over Bears 29-9 for third straight win: Takeaways**\
 `The Cardinals have won three in a row for the first time since 2021 and they sit atop the NFC West.`\
 https://nytimes.com/athletic/5894558/2024/11/03/bears-cardinals-score-takeaways-result/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5894558/2024/11/03/bears-cardinals-score-takeaways-
 https://nytimes.com/2024/11/03/us/politics/harris-trump-campaign.html
 
 **Broncos' lopsided loss to Ravens shows a long climb to be among AFC's elite**\
-`The Ravens scored three consecutive TDs across the second and third quarters without the Broncos gaining a yard. "We got whooped today."`\
+`The Ravens scored three consecutive TDs across the second and third quarters without the Broncos gaining a yard. "We got whupped today."`\
 https://nytimes.com/athletic/5895570/2024/11/03/broncos-loss-ravens-lopsided-afc-contenders/
 
 **NASCAR semifinal race overshadowed by wall-ride controversy**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/03/us/harris-trump-election/on-the-issues-where
 **Pro-West Leader Wins High-Stakes Vote in Former Soviet Republic**\
 `The president of Moldova, Maia Sandu, won re-election on Sunday against a rival candidate she had denounced as “Moscow’s man.”`\
 https://nytimes.com/2024/11/03/world/europe/sandu-pro-west-moldova-president.html
-
-**Rams WR Puka Nacua ejected in second quarter vs. Seahawks**\
-`The incident happened after quarterback Matthew Stafford was intercepted on a contested throw intended for Nacua downfield.`\
-https://nytimes.com/athletic/5895815/2024/11/03/puka-nacua-ejection-punch-rams-seahawks/
-
-**Review: Seven Dancers, a Mosaic of Movement**\
-`Netta Yerushalmy’s “Movement” at N.Y.U. Skirball comes from a patchwork of sources: TikTok, television, marching band practice and more.`\
-https://nytimes.com/2024/11/03/arts/dance/netta-yerushalmy-movement-nyu-skirball.html
 

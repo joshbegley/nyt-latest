@@ -1,3 +1,15 @@
+**Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
+`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders offensive issue. Could that happen Monday? `\
+https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
+
+**Harris and Trump have been fighting to win over Arab American voters.**\
+`By Charles Homans and Hamed Aleaziz`\
+https://nytimes.com/live/2024/11/03/us/harris-trump-election/harris-and-trump-have-been-fighting-to-win-over-arab-american-voters
+
+**Broncos' lopsided loss to Ravens shows a long climb to be among AFC's elite**\
+`The Ravens scored three consecutive TDs across the second and third quarters without the Broncos gaining a yard. "We got whupped today."`\
+https://nytimes.com/athletic/5895570/2024/11/03/broncos-loss-ravens-lopsided-afc-contenders/
+
 **Cardinals run over Bears 29-9 for third straight win: Takeaways**\
 `The Cardinals have won three in a row for the first time since 2021 and they sit atop the NFC West.`\
 https://nytimes.com/athletic/5894558/2024/11/03/bears-cardinals-score-takeaways-result/
