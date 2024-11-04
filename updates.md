@@ -1,3 +1,15 @@
+**A Guide to Election Night**\
+`What to expect, hour by hour.`\
+https://nytimes.com/2024/11/04/briefing/election-night-2024-harris-trump.html
+
+**Mourinho says Fenerbahce played 'against the VAR, the system and so many powerful people'**\
+`Fenerbahce head coach Jose Mourinho says his team played “against the VAR and against the system” during their 3-2 win over Trabzonspor on Sunday night.`\
+https://nytimes.com/athletic/5897267/2024/11/04/jose-mourinho-fenerbahce-trabzonspor/
+
+**Weekend NHL rankings: Playoff outsiders I still believe in, at least for now**\
+`The usual idea of judging playoff possibilities on Nov. 1 is less likely this year for more than one reason. Who could still sneak in?`\
+https://nytimes.com/athletic/5896514/2024/11/04/nhl-weekend-rankings-playoffs-teams/
+
 **Colts' pivot to Joe Flacco falls flat vs. Vikings; Shane Steichen left without answers again**\
 `Flacco was supposed to give the Colts the best chance to win. Instead, the Indy offense looked worse Sunday than it has all season. `\
 https://nytimes.com/athletic/5897155/2024/11/04/colts-shane-steichen-joe-flacco-vikings-loss/

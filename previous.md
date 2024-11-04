@@ -1,3 +1,15 @@
+**A Guide to Election Night**\
+`What to expect, hour by hour.`\
+https://nytimes.com/2024/11/04/briefing/election-night-2024-harris-trump.html
+
+**Mourinho says Fenerbahce played 'against the VAR, the system and so many powerful people'**\
+`Fenerbahce head coach Jose Mourinho says his team played “against the VAR and against the system” during their 3-2 win over Trabzonspor on Sunday night.`\
+https://nytimes.com/athletic/5897267/2024/11/04/jose-mourinho-fenerbahce-trabzonspor/
+
+**Weekend NHL rankings: Playoff outsiders I still believe in, at least for now**\
+`The usual idea of judging playoff possibilities on Nov. 1 is less likely this year for more than one reason. Who could still sneak in?`\
+https://nytimes.com/athletic/5896514/2024/11/04/nhl-weekend-rankings-playoffs-teams/
+
 **Colts' pivot to Joe Flacco falls flat vs. Vikings; Shane Steichen left without answers again**\
 `Flacco was supposed to give the Colts the best chance to win. Instead, the Indy offense looked worse Sunday than it has all season. `\
 https://nytimes.com/athletic/5897155/2024/11/04/colts-shane-steichen-joe-flacco-vikings-loss/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/04/world/middleeast/israel-netanyahu-leaked-document
 **Daniel Jones might be the next Derek Carr or Russell Wilson (and not in a good way)**\
 `It might be only a matter of time before Jones is benched so the Giants can mitigate risk with his contract in 2025.`\
 https://nytimes.com/athletic/5897176/2024/11/04/daniel-jones-giants-benched-contract/
-
-**What Lamar Jackson's Ravens have in common with Brady's Pats and Peyton's Colts**\
-`The Ravens' offense is on a historical pace, and Jackson now has six career games with at least as many TD passes as incompletions.`\
-https://nytimes.com/athletic/5897168/2024/11/04/lamar-jackson-ravens-mvp-passer-rating/
-
-**Giants QB Daniel Jones almost out of time to rewrite his story in New York**\
-`At 2-7, New York has to prioritize its future — a future that likely doesn't include Jones as the starting QB of the New York Giants.`\
-https://nytimes.com/athletic/5896017/2024/11/04/giants-daniel-jones-bench-brian-daboll/
-
-**Are the Lions Super Bowl favorites? Or are they still a move away? Sando’s Pick Six**\
-`The Lions have made a compelling case as the NFC's best team, but have they done enough to replace Aidan Hutchinson?`\
-https://nytimes.com/athletic/5889153/2024/11/04/lions-nfl-trade-deadline-zadarius-smith/
 
