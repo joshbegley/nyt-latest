@@ -1,3 +1,15 @@
+**‘Yesterday was yesterday’: Pastrnak looks for answers after third-period benching**\
+`Pastrnak says he will "take responsibility for being better. At the same time, I’m just moving forward today, focusing for another game."`\
+https://nytimes.com/athletic/5898226/2024/11/04/bruins-david-pastrnak-benching/
+
+**What to know as arbitration begins in Timberwolves, Lynx ownership dispute**\
+`An arbitration panel will hear arguments before deciding whether Glen Taylor or Marc Lore and Alex Rodriguez have majority ownership.`\
+https://nytimes.com/athletic/5893780/2024/11/04/timberwolves-arbitration-glen-taylor-marc-lore-alex-rodriguez/
+
+**Edu has been a charismatic connector at Arsenal and will be a tough act to follow**\
+`The sporting director has a personality that brought many parts of the club together and Arsenal will have a tough job replacing him`\
+https://nytimes.com/athletic/5897917/2024/11/04/edu-arsenal-nottingham-forest/
+
 **Ohio State film study: How the Buckeyes beat Penn State in top-five showdown**\
 `There are things Ohio State will want back because it could’ve put the game away earlier, but it's hard to nit-pick the win over Penn State.`\
 https://nytimes.com/athletic/5898057/2024/11/04/ohio-state-football-penn-state-analysis-will-howard/
