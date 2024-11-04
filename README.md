@@ -1,3 +1,7 @@
+**Jeffries hits the campaign trail for Rep. Pat Ryan in N.Y. swing race.**\
+`By Grace Ashford`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/04election-live-jeffries-ryan-rally
+
 **Sydney to Become Seventh World Major Marathon in 2025**\
 `The Sydney Marathon has joined the ranks of New York, Boston, Chicago, London, Berlin and Tokyo, receiving a designation reserved for the most elite races in the world.`\
 https://nytimes.com/2024/11/04/world/australia/sydney-marathon-world-major.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/04/weather/yinxing-map-path-tracker.html
 **Energized but Worried, the Campaigns Make Frantic Final Pushes**\
 `Democrats in battleground states have built a tightly structured get-out-the-vote operation, while Republicans have relied more on outside groups for canvassing.`\
 https://nytimes.com/2024/11/04/us/election-ground-game.html
-
-**Athletics drop 'Oakland' from their name**\
-`After 57 years in Oakland, the A's played their final game at the Coliseum on Sept. 26, winning 3-2 against the Texas Rangers.`\
-https://nytimes.com/athletic/5898373/2024/11/04/athletics-oakland-name-change/
 
