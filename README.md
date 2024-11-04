@@ -1,3 +1,7 @@
+**Matt Boldy plays overtime hero as the Wild keep winning: 3 takeaways**\
+`In a battle of sputtering special teams, the Wild were able to pull off the win thanks to an excellent backcheck by Jared Spurgeon.`\
+https://nytimes.com/athletic/5895752/2024/11/03/wild-matt-boldy-overtime-leafs/
+
 **Tyler Bass' big moment, Josh Allen's patience, Greg Rousseau's role change: Bills observations**\
 `After struggling for a while, Tyler Bass finally broke through with a massive game-winner.`\
 https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896052/2024/11/03/browns-chargers-jameis-winston-t
 **Lions look to be class of NFC North in 24-14 win over Packers: Takeaways**\
 `Detroit's defense depth steps up and a versatile offense prove they have what it takes to be the league's best.`\
 https://nytimes.com/athletic/5894567/2024/11/03/lions-packers-score-takeaways-result/
-
-**Hurts, Barkley, Dean help Eagles to 28-23 win vs. Jaguars: Takeaways**\
-`The help of a few clutch fourth-quarter plays pushed the Eagles to their fourth consecutive win.`\
-https://nytimes.com/athletic/5894563/2024/11/03/jaguars-eagles-score-takeaways-result/
 
