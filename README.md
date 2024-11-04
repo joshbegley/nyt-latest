@@ -1,3 +1,7 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`After Saturday’s 1-0 home win over Arsenal, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5897206/2024/11/04/newcastle-questions-howe-transfers-midfield/
+
 **Monday Morning Leafs Report: Auston Matthews is on pace for 32 goals. What’s going on?**\
 `The new Leafs captain won the Rocket Richard with 69 goals just last season. What's behind his slow start?`\
 https://nytimes.com/athletic/5896579/2024/11/04/auston-matthews-maple-leafs-scoring/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/world/asia/school-closures-pakistan-pollution-lah
 **The Pulse: Saquon invents new football move**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5897303/2024/11/04/nfl-team-streaks-saquon-barkley-the-pulse/
-
-**Tennis Briefing: WTA Finals, the ATP race, and celebrating too much in Paris?**\
-`The best women's players in the world face off as the men's 'Race to Turin' comes to a conclusion.`\
-https://nytimes.com/athletic/5895811/2024/11/04/tennis-news-analysis-wta-finals-atp-race-turin/
 
