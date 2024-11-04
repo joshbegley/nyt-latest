@@ -1,3 +1,7 @@
+**Gundy: OK State critics 'are the same ones that can’t pay their own bills'**\
+`"They’re not taking care of themselves. They’re not taking care of their own family. They’re not taking care of their own job,” he said.`\
+https://nytimes.com/athletic/5899042/2024/11/04/mike-gundy-oklahoma-state-comments/
+
 **As Election Day nears, yard signs disappear.**\
 `By Corey Kilgannon`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/as-election-day-nears-yard-signs-disappear
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/two-stump-speeches-
 **What to watch this week in NBA: Embiid’s return, Wembanyama's rise and a Finals rematch**\
 `What to watch — and why to watch — around the NBA this week, including the Warriors heading to Boston on Wednesday.`\
 https://nytimes.com/athletic/5892158/2024/11/04/nba-weekly-watch-guide-embiid-wembanyama-finals-rematch-odds/
-
-**Donnie Nelson settles lawsuit against Mavericks, Mark Cuban**\
-`Nelson said in the lawsuit that a Mavericks executive assaulted and harassed his nephew in a Chicago hotel during All-Star weekend in 2020.`\
-https://nytimes.com/athletic/5898913/2024/11/04/mavericks-lawsuit-donnie-nelson-mark-cuban/
 
