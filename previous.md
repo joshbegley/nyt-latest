@@ -1,3 +1,7 @@
+**Bruins’ Pastrňák benched in third period: ‘Coach’s decision,’ says Montgomery**\
+`Pastrňák led all skaters in the game with seven shots on net despite not playing the third period.`\
+https://nytimes.com/athletic/5896505/2024/11/03/pastrnak-benched-bruins-montgomery-kraken/
+
 **Frustrating mistakes and Dak Prescott injury, Cowboys look closer to top-10 pick than playoffs**\
 `A slew of pre-snap penalties, short-yardage shortcomings and a poorly executed fake punt were among the things that cost the Cowboys.`\
 https://nytimes.com/athletic/5896252/2024/11/03/cowboys-lose-frustrating-dak-prescott-injury-falcons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-
 **Why Chargers rookie Tarheeb Still has been a 'gift from the football gods'**\
 `Still delivered his first NFL interception and a perfectly executed tipped pass led to another in the Chargers' win in Cleveland.`\
 https://nytimes.com/athletic/5896306/2024/11/03/chargers-win-tahreeb-still-defense-browns-playoffs/
-
-**Derek Carr wishes former teammate Michael Thomas 'the best'**\
-`Carr said he's not sure why Thomas has a problem with him but that he still "has love for" his former teammate.`\
-https://nytimes.com/athletic/5896283/2024/11/03/derek-carr-michael-thomas-rant/
 
