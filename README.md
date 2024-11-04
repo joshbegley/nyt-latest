@@ -1,3 +1,7 @@
+**Heavy Smog Will Close Schools in Pakistan’s 2nd-Largest City for a Week**\
+`The city of Lahore reported hazardous levels of air pollution on Sunday. Pakistani officials have blamed India for some of it.`\
+https://nytimes.com/2024/11/04/world/asia/school-closures-pakistan-pollution-lahore.html
+
 **The Pulse: Saquon invents new football move**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5897303/2024/11/04/nfl-team-streaks-saquon-barkley-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895232/2024/11/04/travis-kelce-chiefs-blocking/
 **Caleb Williams' development at stake as Bears coaching staff searches for answers**\
 `Williams and the Bears had a rough afternoon against a below-average Cardinals defense. Can they turn things around?`\
 https://nytimes.com/athletic/5896580/2024/11/04/caleb-williams-bears-development-coaching-staff/
-
-**New York Times Tech Workers Go on Strike**\
-`The Times Tech Guild represents more than 600 software developers and others who run the back-end systems behind The Times’s digital operation.`\
-https://nytimes.com/2024/11/04/business/media/new-york-times-strike.html
 
