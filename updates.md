@@ -1,3 +1,11 @@
+**NBA Rewind: The Joel Embiid controversy, Drake vs. DeMar DeRozan and beefy weekend**\
+`Results took a backseat to feuds around the league last weekend.`\
+https://nytimes.com/athletic/5893171/2024/11/04/nba-rewind-joel-embiid-demar-derozan/
+
+**For This Rising Conductor, Classical Music Was Never Elitist**\
+`Robert Treviño, who has drawn acclaim for recent recordings, learned music in public school and wants to break down barriers for others.`\
+https://nytimes.com/2024/11/04/arts/music/robert-trevino-conductor.html
+
 **Drance: Why the Canucks' inconsistency makes their start to the season so promising**\
 `The Canucks aren't playing great hockey, but they have the look of a good team and are still getting results.`\
 https://nytimes.com/athletic/5897019/2024/11/04/canucks-2024-2025-season-start-analysis/

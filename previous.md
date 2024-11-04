@@ -1,3 +1,11 @@
+**NBA Rewind: The Joel Embiid controversy, Drake vs. DeMar DeRozan and beefy weekend**\
+`Results took a backseat to feuds around the league last weekend.`\
+https://nytimes.com/athletic/5893171/2024/11/04/nba-rewind-joel-embiid-demar-derozan/
+
+**For This Rising Conductor, Classical Music Was Never Elitist**\
+`Robert Treviño, who has drawn acclaim for recent recordings, learned music in public school and wants to break down barriers for others.`\
+https://nytimes.com/2024/11/04/arts/music/robert-trevino-conductor.html
+
 **Drance: Why the Canucks' inconsistency makes their start to the season so promising**\
 `The Canucks aren't playing great hockey, but they have the look of a good team and are still getting results.`\
 https://nytimes.com/athletic/5897019/2024/11/04/canucks-2024-2025-season-start-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/books/uvaldes-darkest-hour-craig-garnett.html
 **U.S. Farmers Brace for New Trump Trade Wars Amid Tariff Threats**\
 `Despite their concerns, some farm operators still support the former president and prefer his overall economic plan.`\
 https://nytimes.com/2024/11/04/us/politics/farmers-trump-china-tariffs.html
-
-**Where the Chicago Cubs stand as free agency and the GM meetings begin**\
-`Given their resources and young talent and the growing pressure on the front office, the Cubs will be a team to watch this week.`\
-https://nytimes.com/athletic/5894922/2024/11/04/cubs-free-agency-gm-meetings/
-
-**LA Galaxy's Gabriel Pec wins MLS Newcomer of the Year**\
-`Pec proved crucial for the Galaxy down the stretch of the regular season.`\
-https://nytimes.com/athletic/5896758/2024/11/04/gabriel-pec-galaxy-mls-newcomer/
 
