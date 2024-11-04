@@ -1,3 +1,11 @@
+**Kaprizov's streak ends, but Wild's winning ways don't: 'Can't be a one-trick pony'**\
+`In a rare scoreless game for Kaprizov, the rest of the team stepped up to keep banking points in an 8-1-2 start.`\
+https://nytimes.com/athletic/5896738/2024/11/03/wild-spurgeon-penalty-kill-leafs/
+
+**Bucks' Portis says his home was burglarized during Saturday's game**\
+`Bobby Portis said the robbers "took most of my prized possessions" and asked fans to report any information about the burglary.`\
+https://nytimes.com/athletic/5896731/2024/11/03/bobby-portis-home-burglary-bucks/
+
 **Cubs' Ian Happ wins third straight Gold Glove, putting him in rarified air**\
 `Happ said it took “a lot of hard work” to become a multiple-time winner of an award that “means a lot” to him.`\
 https://nytimes.com/athletic/5896706/2024/11/03/cubs-ian-happ-third-straight-gold-glove/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5895644/2024/11/03/maple-leafs-report-cards-special
 **Harris, at Final Michigan Rally, Offers Forward-Looking Vision**\
 `“Our campaign has not been about being against something, it is about being for something,” Vice President Kamala Harris said, avoiding any mention of her rival by name.`\
 https://nytimes.com/2024/11/03/us/politics/harris-michigan-state-university-rally.html
-
-**Robinson's TD grab gives Rams 26-20 OT win over Seahawks: Takeaways**\
-`Matthew Stafford's 39-yard touchdown pass to Demarcus Robinson in overtime lifted the Rams to a third consecutive win.`\
-https://nytimes.com/athletic/5894572/2024/11/03/rams-seahawks-score-takeaways-result/
-
-**In Nebraska, Separate Referendums on Abortion Create Confusion for Voters**\
-`Referendum 434 would enshrine the state’s current ban after 12 weeks. Referendum 439 would create a right to abortion “until fetal viability.”`\
-https://nytimes.com/2024/11/03/us/politics/nebraska-abortion-referendums.html
 
