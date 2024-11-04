@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5898275/2024/11/04/blues-philip-broberg-injury-time
 https://nytimes.com/2024/11/04/us/politics/tim-walz-voters-democrats.html
 
 **Cowboys' Prescott out several weeks with hamstring injury: Source**\
-`With Dallas' star quarterback hurt, expect Cooper Rush to step in and try to rekindle some of his 2022 magic. `\
+`With star quarterback hurt, expect Cooper Rush to step in and try to rekindle some of his 2022 magic. `\
 https://nytimes.com/athletic/5898402/2024/11/04/dak-prescott-injury-hamstring-cowboys/
 
 **Tracking Typhoon Yinxing**\

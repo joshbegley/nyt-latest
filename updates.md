@@ -1,3 +1,7 @@
+**Cowboys' Prescott out several weeks with hamstring injury: Source**\
+`With star quarterback hurt, expect Cooper Rush to step in and try to rekindle some of his 2022 magic. `\
+https://nytimes.com/athletic/5898402/2024/11/04/dak-prescott-injury-hamstring-cowboys/
+
 **Jeffries hits the campaign trail for Rep. Pat Ryan in N.Y. swing race.**\
 `By Grace Ashford`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/04election-live-jeffries-ryan-rally
