@@ -1,3 +1,7 @@
+**The Athletic 134: Can Boise State climb higher than No. 12?**\
+`Would a 12-1 Mountain West champion Boise State land higher than 12 and possibly even earn the No. 4 seed?`\
+https://nytimes.com/athletic/5896558/2024/11/04/college-football-fbs-team-rankings-cfp/
+
 **Second Trial in Teacher’s Killing Begins in France**\
 `Eight more people are facing charges over the 2020 murder of the teacher, Samuel Paty, who had displayed caricatures of the Prophet Muhammad as an illustration of free speech.`\
 https://nytimes.com/2024/11/04/world/europe/france-paty-beheading-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/world/asia/indonesia-volcano-eruption.html
 **Indonesia Volcano Eruption Covers Village in Ash**\
 `Mount Lewotobi Laki-laki erupted on Sunday, killing several people and forcing others to flee their villages.`\
 https://nytimes.com/video/world/asia/100000009801953/indonesia-volcano-eruption.html
-
-**Word of the Day: paradoxical**\
-`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/04/learning/word-of-the-day-paradoxical.html
 
