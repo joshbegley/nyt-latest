@@ -22,7 +22,7 @@ https://nytimes.com/2024/11/04/us/elections/iowa-selzer-poll-trump-harris.html
 `In his final days on the campaign trail, former President Donald J. Trump has portrayed himself as the repairman for a country awash in inflation, crime and immigration — even though all three are down.`\
 https://nytimes.com/2024/11/04/us/politics/trump-economy-immigration-crime.html
 
-**Fact-checking Harris’s closing argument.**\
+**Here is a look at Harris’s closing argument.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/fact-checking-harriss-closing-argument
 
