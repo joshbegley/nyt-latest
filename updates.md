@@ -1,3 +1,11 @@
+**Saints fire Dennis Allen with New Orleans on 7-game losing streak**\
+`Allen succeeded Sean Payton after six successful seasons as the Saints' defensive coordinator.`\
+https://nytimes.com/athletic/5168315/2024/11/04/dennis-allen-fired-saints/
+
+**Cost of Mpox Shot Deters Americans at Risk, Critics Say**\
+`The epidemic in Africa continues to grow, prompting fears of another outbreak in the U.S. But the vaccine is no longer free, and vulnerable people are going without.`\
+https://nytimes.com/2024/11/04/health/mpox-vaccine-cost-insurance.html
+
 **How Uvalde’s Newspaper Kept Going, Despite Unimaginable Loss**\
 `Craig Garnett, the publisher of The Uvalde Leader-News, opens up about covering a tragedy that was — and is — too close to home.`\
 https://nytimes.com/2024/11/04/books/uvaldes-darkest-hour-craig-garnett.html
