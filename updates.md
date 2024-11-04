@@ -1,3 +1,7 @@
+**Paul George expected to make 76ers debut Monday vs. Suns**\
+`George has yet to play this season after hyperextending his left knee in a preseason game against the Atlanta Hawks on Oct. 14.`\
+https://nytimes.com/athletic/5896274/2024/11/03/paul-george-season-debut-76ers-suns/
+
 **These Uncommitted Voters Finally Made Their Choice for President**\
 `Over the last four months, these voters have struggled with their decision. Now, with time short, they explain who’s getting, or not getting, their vote.`\
 https://nytimes.com/2024/11/03/us/politics/undecided-voters-trump-harris.html

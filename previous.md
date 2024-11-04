@@ -1,3 +1,7 @@
+**Paul George expected to make 76ers debut Monday vs. Suns**\
+`George has yet to play this season after hyperextending his left knee in a preseason game against the Atlanta Hawks on Oct. 14.`\
+https://nytimes.com/athletic/5896274/2024/11/03/paul-george-season-debut-76ers-suns/
+
 **These Uncommitted Voters Finally Made Their Choice for President**\
 `Over the last four months, these voters have struggled with their decision. Now, with time short, they explain who’s getting, or not getting, their vote.`\
 https://nytimes.com/2024/11/03/us/politics/undecided-voters-trump-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896156/2024/11/03/red-bulls-crew-elminiation-mls-p
 **An angry Joe Burrow grabs the wheel to get Bengals' season back on track amid chaos**\
 `After Cincinnati had to scrap a big part of their game plan, Burrow threw the team on his back to keep the season’s goals in sight.`\
 https://nytimes.com/athletic/5895935/2024/11/03/bengals-win-joe-burrow-angry-raiders/
-
-**Charli XCX, Leonardo DiCaprio and Colman Domingo Turn Out for the LACMA Gala**\
-`Hollywood stars mingled with artists for a benefit honoring the artist Simone Leigh and the filmmaker Baz Luhrmann.`\
-https://nytimes.com/2024/11/03/style/lacma-gala-photos.html
 
