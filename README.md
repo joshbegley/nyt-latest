@@ -8,7 +8,7 @@ https://nytimes.com/2024/11/04/well/weed-cannabis-america.html
 
 **When Chronic Diseases Come With Chronic Financial Pressure**\
 `For millions of Americans, paying for the treatment needed to manage their diseases can become its own lifelong problem.`\
-https://nytimes.com/2024/11/04/well/when-chronic-diseases-come-with-chronic-financial-pressure.html
+https://nytimes.com/2024/11/04/well/chronic-disease-medication-insurance-costs.html
 
 **NASCAR Martinsville takeaways: The power of must-win, predicting the champion**\
 `Ryan Blaney seized a must-win moment and helped upend the Championship 4, predictions for the title race and more from Martinsville.`\
