@@ -1,3 +1,11 @@
+**A New Boon for Georgia Democrats: Winners of Big Georgia Races**\
+`Elected less than four years ago, Senators Jon Ossoff and Raphael Warnock have become a Southern battleground’s star campaigners.`\
+https://nytimes.com/2024/11/04/us/a-new-boon-for-georgia-democrats-winners-of-big-georgia-races.html
+
+**A Taylor Dancer for the Ages, ‘Unmannered and Wondrous’**\
+`Carolyn Adams, the Paul Taylor dancer turned educator, is being honored at the company’s gala with a new solo by Robert Battle, her former student.`\
+https://nytimes.com/2024/11/04/arts/dance/carolyn-adams-paul-taylor-gala.html
+
 **5 Reasons Early Voting Is Overwhelmed With Falsehoods**\
 `Misleading anecdotes and rumors are spreading faster, and with more ferocity, than in the run-ups to past presidential contests.`\
 https://nytimes.com/2024/11/04/technology/early-voting-election-misinformation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/well/weed-cannabis-america.html
 **When Chronic Diseases Come With Chronic Financial Pressure**\
 `For millions of Americans, paying for the treatment needed to manage their diseases can become its own lifelong problem.`\
 https://nytimes.com/2024/11/04/well/chronic-disease-medication-insurance-costs.html
-
-**NASCAR Martinsville takeaways: The power of must-win, predicting the champion**\
-`Ryan Blaney seized a must-win moment and helped upend the Championship 4, predictions for the title race and more from Martinsville.`\
-https://nytimes.com/athletic/5897558/2024/11/04/nascar-martinsville-takeaways-ryan-blaney-predictions/
-
-**Five-Star, Reader-Favorite Lemony Chicken-Feta Meatball Soup**\
-`“This is the best soup I’ve ever had in my entire life.”`\
-https://nytimes.com/2024/11/04/dining/reader-favorite-lemony-chicken-feta-meatball-soup.html
 
