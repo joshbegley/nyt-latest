@@ -1,3 +1,11 @@
+**At Daniel Penny’s Trial, Passengers Describe Harrowing F Train Ride**\
+`Witnesses from the subway train said they feared Jordan Neely but also described the horror of watching him die in a chokehold.`\
+https://nytimes.com/2024/11/04/nyregion/daniel-penny-trial-subway-chokehold-case.html
+
+**Philharmonic Dismisses 2 Players Over Sexual Misconduct Accusations**\
+`The orchestra said an inquiry found credible claims against the musicians of sexual assault and harassment. They denied the charges.`\
+https://nytimes.com/2024/11/04/arts/music/new-york-philharmonic-sexual-misconduct.html
+
 **Vikings at the NFL trade deadline: 6 players who could make sense and why**\
 `The Vikings could be looking to add at CB and on the offensive and defensive lines. Here are six players they could target at the deadline.`\
 https://nytimes.com/athletic/5898881/2024/11/04/vikings-nfl-trade-deadline-odighizuwa-horn-campbell/

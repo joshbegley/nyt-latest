@@ -1,3 +1,11 @@
+**At Daniel Penny’s Trial, Passengers Describe Harrowing F Train Ride**\
+`Witnesses from the subway train said they feared Jordan Neely but also described the horror of watching him die in a chokehold.`\
+https://nytimes.com/2024/11/04/nyregion/daniel-penny-trial-subway-chokehold-case.html
+
+**Philharmonic Dismisses 2 Players Over Sexual Misconduct Accusations**\
+`The orchestra said an inquiry found credible claims against the musicians of sexual assault and harassment. They denied the charges.`\
+https://nytimes.com/2024/11/04/arts/music/new-york-philharmonic-sexual-misconduct.html
+
 **Vikings at the NFL trade deadline: 6 players who could make sense and why**\
 `The Vikings could be looking to add at CB and on the offensive and defensive lines. Here are six players they could target at the deadline.`\
 https://nytimes.com/athletic/5898881/2024/11/04/vikings-nfl-trade-deadline-odighizuwa-horn-campbell/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5898941/2024/11/04/kevin-durant-stephen-a-smith-esp
 **Trump and Harris Battle for Pennsylvania**\
 `Also, remembering Quincy Jones. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/04/briefing/trump-and-harris-battle-for-pennsylvania.html
-
-**Christian McCaffrey brings jolt of hope in return to 49ers practice: 'The boys are back'**\
-`If all goes well this week at practice, McCaffrey will make his season debut Sunday against the Tampa Bay Buccaneers. `\
-https://nytimes.com/athletic/5898949/2024/11/04/christian-mccaffrey-49ers-practice-return/
-
-**Penn State's James Franklin outlines critical goal-line series against Ohio State: What went wrong?**\
-`Two drives that ended inside the Ohio State 5-yard line resulted in zero points for Penn State in a troubling loss to the Buckeyes. `\
-https://nytimes.com/athletic/5898757/2024/11/04/james-franklin-penn-state-ohio-state-play-calls-college-football/
 
