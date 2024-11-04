@@ -1,3 +1,7 @@
+**The Athletic 134: Can Boise State climb higher than No. 12?**\
+`Would a 12-1 Mountain West champion Boise State land higher than 12 and possibly even earn the No. 4 seed?`\
+https://nytimes.com/athletic/5896558/2024/11/04/college-football-fbs-team-rankings-cfp/
+
 **Second Trial in Teacher’s Killing Begins in France**\
 `Eight more people are facing charges over the 2020 murder of the teacher, Samuel Paty, who had displayed caricatures of the Prophet Muhammad as an illustration of free speech.`\
 https://nytimes.com/2024/11/04/world/europe/france-paty-beheading-trial.html
