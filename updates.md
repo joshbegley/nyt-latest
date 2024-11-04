@@ -1,3 +1,11 @@
+**Macomb County, Mich.**\
+`By Jeremy W. Peters`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/macomb-county-mich
+
+**NFL trade grades: Breaking down biggest moves at the deadline**\
+`We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
+https://nytimes.com/athletic/5893004/2024/11/04/nfl-trade-grades-deadline-2024/
+
 **Foreign Adversaries May Try to Undermine U.S. Elections After Vote**\
 `Russian and other groups have unleashed a torrent of disinformation. Cybersecurity officials plan to issue updates on threats throughout Election Day.`\
 https://nytimes.com/2024/11/04/us/politics/election-threats-russia.html
