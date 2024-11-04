@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Special teams help Toronto salvage point vs. Wild**\
+`The Leafs scored their first power-play goal since Oct. 21 but ran out of steam on the second night of a back-to-back.`\
+https://nytimes.com/athletic/5895644/2024/11/03/maple-leafs-report-cards-special-teams-wild/
+
+**Tyler Bass' 61-yard field goal saves day, ending Buffalo's kicking woes: Bills observations**\
+`After struggling for a while, Bass finally broke through with a massive game winner.`\
+https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-dolphins/
+
 **Tyler Bass' big moment, Josh Allen's patience, Greg Rousseau's role change: Bills observations**\
 `After struggling for a while, Bass finally broke through with a massive game winner.`\
 https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-dolphins/
