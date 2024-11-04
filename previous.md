@@ -1,3 +1,7 @@
+**Reaching Rural Voters in North Carolina After Hurricane Helene**\
+`Ahead of Election Day, canvassers knocked on voters’ doors in Ashe County in storm-ravaged Western North Carolina.`\
+https://nytimes.com/video/world/americas/100000009802360/election-north-carolina-helene.html
+
 **College football Week 11 odds, schedule: Georgia at Ole Miss, Alabama at LSU and more**\
 `The SEC has a pair of marquee matchups and there are close spreads for the main contenders in the Big 12 race.`\
 https://nytimes.com/athletic/5898164/2024/11/04/college-football-week-11-odds-schedule-georgia-ole-miss-alabama-lsu/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-and-harris-do
 **The Core of Kennedy’s Pitch for Trump? Kennedy.**\
 `Even as the former independent presidential candidate Robert F. Kennedy Jr. has endorsed Donald J. Trump and campaigned for him, his message to voters is clear: Vote Trump to get me.`\
 https://nytimes.com/2024/11/04/us/politics/kennedy-trump-2024.html
-
-**Trump’s Crowds Are Dwindling as His Campaign Winds Down**\
-`The former president likes to talk about the attendance at his rallies, but empty seats and early exits have grown more common.`\
-https://nytimes.com/2024/11/04/us/politics/trump-rally-crowds.html
 

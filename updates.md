@@ -1,3 +1,7 @@
+**Reaching Rural Voters in North Carolina After Hurricane Helene**\
+`Ahead of Election Day, canvassers knocked on voters’ doors in Ashe County in storm-ravaged Western North Carolina.`\
+https://nytimes.com/video/world/americas/100000009802360/election-north-carolina-helene.html
+
 **College football Week 11 odds, schedule: Georgia at Ole Miss, Alabama at LSU and more**\
 `The SEC has a pair of marquee matchups and there are close spreads for the main contenders in the Big 12 race.`\
 https://nytimes.com/athletic/5898164/2024/11/04/college-football-week-11-odds-schedule-georgia-ole-miss-alabama-lsu/
