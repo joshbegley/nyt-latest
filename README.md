@@ -1,3 +1,15 @@
+**As free agency begins, where the Reds' roster stands**\
+`The Reds have yet to nail down the budget for next season, but they've got at least four needs to address this winter.`\
+https://nytimes.com/athletic/5895723/2024/11/04/reds-roster-free-agency/
+
+**Travis Kelce helps power Chiefs offense with blocking, too: ‘He gives us great effort’**\
+`Kelce is Hall of Fame bound because of his elite receiving production, but the Chiefs are raving about his blocking ability this year.`\
+https://nytimes.com/athletic/5895232/2024/11/04/travis-kelce-chiefs-blocking/
+
+**Caleb Williams' development at stake as Bears coaching staff searches for answers**\
+`Williams and the Bears had a rough afternoon against a below-average Cardinals defense. Can they turn things around?`\
+https://nytimes.com/athletic/5896580/2024/11/04/caleb-williams-bears-development-coaching-staff/
+
 **New York Times Tech Workers Go on Strike**\
 `The Times Tech Guild represents more than 600 software developers and others who run the back-end systems behind The Times’s digital operation.`\
 https://nytimes.com/2024/11/04/business/media/new-york-times-strike.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5889153/2024/11/04/lions-nfl-trade-deadline-zadariu
 **Trump, Kushner and the race to host the 2026 World Cup**\
 `How involved was the former U.S. president in winning the right to host the World Cup?`\
 https://nytimes.com/athletic/5891523/2024/11/04/donald-trump-united-states-world-cup-2026/
-
-**What the Final Polls Tell Us, and the Music Great Quincy Jones Dies**\
-`Plus, right-wing groups prepare to dispute the election.`\
-https://nytimes.com/2024/11/04/podcasts/final-polls-quincy-jones.html
-
-**The Ad Campaign**\
-`Advertising is the biggest expense in a race expected to cost $3.5 billion. These are the stories the candidates are using it to tell.`\
-https://nytimes.com/2024/11/04/podcasts/the-daily/election-campaign-ads.html
-
-**Wordle Review No. 1,235**\
-`Scroll down for hints and conversation about the puzzle for Nov. 5, 2024.`\
-https://nytimes.com/2024/11/04/crosswords/wordle-review-1235.html
 
