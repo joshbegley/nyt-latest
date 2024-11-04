@@ -1,3 +1,15 @@
+**No Train to Rockaways for 4 Months? Cuomo, Eyeing Mayor’s Race, Objects.**\
+`Former Gov. Andrew M. Cuomo, who is eyeing a potential run for New York City mayor next year, criticized plans to close part of the A train in the Rockaways for months.`\
+https://nytimes.com/2024/11/04/nyregion/cuomo-a-train-mta.html
+
+**We’ve Been Underestimating the Scale of Women’s Fury**\
+`If Trump loses on Tuesday, we’ll know why.`\
+https://nytimes.com/2024/11/04/opinion/women-polls-trump-iowa.html
+
+**Strong Winds Have California Bracing for Wildfire Weather**\
+`The state will see multiple wind events through the middle of the week, and its biggest cities may face quickly growing wildfires.`\
+https://nytimes.com/2024/11/04/weather/california-wind-wildfires.html
+
 **Tuesday Briefing: Americans brace for Election Day**\
 `Plus, remembering Quincy Jones.`\
 https://nytimes.com/2024/11/04/briefing/election-day-israel-spain.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/04/nyregion/nypd-nyc-marathon.html
 **Middle East conflicts hit home in Michigan, threatening Slotkin in a tight Senate race.**\
 `By Karoun Demirjian`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/middle-east-conflicts-hit-home-in-michigan-threatening-slotkin-in-a-tight-senate-race
-
-**NFL Week 10 odds, schedule: Dak Prescott injury shifts Eagles-Cowboys betting lines**\
-`NFL Week 10 marks the start of the second half of the season. The gut checks are on their way.`\
-https://nytimes.com/athletic/5898086/2024/11/04/nfl-week-10-odds-spreads-schedule-eagles-cowboys-germany/
-
-**Braves decline option on catcher Travis d'Arnaud**\
-`It was widely assumed that the Braves would exercise d'Arnaud's 2025 team option for $8 million.`\
-https://nytimes.com/athletic/5898656/2024/11/04/braves-decline-option-travis-darnaud-free-agency/
-
-**Quincy Jones’s Half-Century of Unforgettable Music**\
-`His originality crossed a wide range of genres.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/quincy-jones-music
 
