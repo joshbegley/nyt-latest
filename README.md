@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5896306/2024/11/03/chargers-win-tahreeb-still-defen
 https://nytimes.com/athletic/5896283/2024/11/03/derek-carr-michael-thomas-rant/
 
 **Bryce Young deserves starting nod with game-winning drive, growing confidence**\
-`It wasn't a perfect performance by Bryce Young or the Panthers on Sunday, but Dave Canales should let his QB build on his momentum.`\
+`It wasn't a perfect performance by Young or the Panthers on Sunday, but Dave Canales should let his QB build on his momentum.`\
 https://nytimes.com/athletic/5896124/2024/11/03/panthers-win-bryce-young-game-winning-drive-saints/
 
 **Paul George expected to make 76ers debut Monday vs. Suns**\
