@@ -1,3 +1,7 @@
+**Raiders fired OC Luke Getsy after fifth straight loss**\
+`The Raiders are 2-7 and currently riding a five-game losing streak. `\
+https://nytimes.com/athletic/5896954/2024/11/03/raiders-luke-getsy-fired-offensive-coordinator/
+
 **An Indonesian Tribe’s Language Gets an Alphabet: Korea’s**\
 `The Cia-Cia language has been passed down orally for centuries. Now the tribe’s children are learning to write it in Hangul, the Korean script.`\
 https://nytimes.com/2024/11/04/world/asia/an-indonesian-tribes-language-gets-an-alphabet-koreas.html
