@@ -1,3 +1,11 @@
+**49ers open McCaffrey's practice window setting up Week 10 return**\
+`McCaffrey has yet to play this season while recovering from the Achilles tendinitis that plagued him throughout training camp.`\
+https://nytimes.com/athletic/5898442/2024/11/04/49ers-open-christian-mccaffreys-practice-window-setting-up-week-10-return/
+
+**A Pendulous Overcoat for a Swing State**\
+`Temperatures fell this weekend, and Donald Trump reached for a familiar sartorial security blanket on the last leg of his campaign trail.`\
+https://nytimes.com/2024/11/04/style/a-pendulous-overcoat-for-a-swing-state.html
+
 **Blues' Philip Broberg out 4 to 6 weeks, but injury diagnosis 'could have been a lot worse'**\
 `Broberg left Saturday's game against the Leafs with a lower-body injury. P.O. Joseph and Scott Perunovich will get promotions with him out.`\
 https://nytimes.com/athletic/5898275/2024/11/04/blues-philip-broberg-injury-timeline/
