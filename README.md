@@ -1,3 +1,7 @@
+**Quincy Jones, Giant of American Music, Dies at 91**\
+`As a producer, he made the best-selling album of all time, Michael Jackson’s “Thriller.” He was also a prolific arranger and composer of film music.`\
+https://nytimes.com/2024/11/04/arts/music/quincy-jones-dead.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/04/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895017/2024/11/04/moises-caicedo-chelsea-analysis/
 **What we learned about the Blackhawks from the 5-game road trip**\
 `Chicago's new-look lineup won consecutive games for the first time this season and won three of the five away games.`\
 https://nytimes.com/athletic/5896506/2024/11/04/chicago-blackhawks-road-trip/
-
-**Where There’s Joy in a Terror Bird**\
-`In Colombia, a fossil-collecting rancher has found a giant, flightless killer from 13 million years ago — and a missing link to the region’s evolutionary history.`\
-https://nytimes.com/2024/11/04/science/fossils-colombia-terror-birds.html
 
