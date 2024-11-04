@@ -1,3 +1,7 @@
+**Gutting loss to Rams makes clear who Seahawks are: A team that’s not quite good enough**\
+`The Seahawks have lost five of six and now sit last in the division after a series of back-breaking mistakes against the Rams.`\
+https://nytimes.com/athletic/5896674/2024/11/03/seahawks-loss-geno-smith-rams/
+
 **Instead of a team on the rise, the Bears seem to be teetering on change, again**\
 `Matt Eberflus says the Bears need to "circle the wagons." Sadly, Bears fans have heard it all before, many times.`\
 https://nytimes.com/athletic/5896592/2024/11/03/bears-matt-eberflus-loss-cardinals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896491/2024/11/03/yankees-gerrit-cole-opt-out-deci
 **Bruins’ David Pastrňák benched in third period: ‘Coach’s decision,’ Jim Montgomery says**\
 `Pastrňák led all skaters in the game with seven shots on net despite not playing the third period.`\
 https://nytimes.com/athletic/5896505/2024/11/03/pastrnak-benched-bruins-montgomery-kraken/
-
-**Frustrating mistakes and Dak Prescott injury, Cowboys look closer to top-10 pick than playoffs**\
-`A slew of pre-snap penalties, short-yardage shortcomings and a poorly executed fake punt were among the things that cost the Cowboys.`\
-https://nytimes.com/athletic/5896252/2024/11/03/cowboys-lose-frustrating-dak-prescott-injury-falcons/
 
