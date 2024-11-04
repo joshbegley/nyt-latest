@@ -1,3 +1,7 @@
+**Geno Smith is taking the blame for the Seahawks, but is he actually a problem?**\
+`Smith had three turnovers for the first time in 44 Seattle starts, including a back-breaking pick six. But how much blames does he deserve?`\
+https://nytimes.com/athletic/5897201/2024/11/04/geno-smith-seahawks-loss-rams/
+
 **Can the Chiefs go undefeated? Projecting Kansas City's remaining games**\
 `Since 2000, 25 teams have started at least 7-0. Only seven of those teams stretched their undefeated starts beyond 10 games.`\
 https://nytimes.com/athletic/5879940/2024/11/04/chiefs-undefeated-regular-season-probability/
