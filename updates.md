@@ -1,3 +1,11 @@
+**Quincy Jones, Giant of American Music, Dies at 91**\
+`As a producer, he made the best-selling album of all time, Michael Jackson’s “Thriller.” He was also a prolific arranger and composer of film music.`\
+https://nytimes.com/2024/11/04/arts/music/quincy-jones-dead.html
+
+**Barcelona's dream week (and a half): Bayern win, Madrid demolition and Ballon d'Or mischief**\
+`Barcelona have had a week in dreamland - they have reasons to think their fantasy can keep going`\
+https://nytimes.com/athletic/5896000/2024/11/04/barcelona-dream-week-bayern-real-madrid-ballon-dor/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/04/crosswords/spelling-bee-forum.html
