@@ -1,3 +1,7 @@
+**What we learned about the Blackhawks from the 5-game road trip**\
+`Chicago's new-look lineup won consecutive games for the first time this season and won three of the five away games.`\
+https://nytimes.com/athletic/5896506/2024/11/04/chicago-blackhawks-road-trip/
+
 **Where There’s Joy in a Terror Bird**\
 `In Colombia, a fossil-collecting rancher has found a giant, flightless killer from 13 million years ago — and a missing link to the region’s evolutionary history.`\
 https://nytimes.com/2024/11/04/science/fossils-colombia-terror-birds.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892543/2024/11/04/west-ham-forest-review/
 **James Van Der Beek, Star of ‘Dawson’s Creek,’ Says He Has Cancer**\
 `Mr. Van Der Beek, who played Dawson Leery in the ’90s drama, told People Magazine that he had been diagnosed with and was being treated for colorectal cancer.`\
 https://nytimes.com/2024/11/04/arts/dawsons-creek-james-van-der-beek-colorectal-cancer.html
-
-**Palace's forwards were rescued by their defenders at Wolves - but something needs to change**\
-`Unless Palace resolve their attacking failures, their games will continue to be unnecessarily close`\
-https://nytimes.com/athletic/5886751/2024/11/04/palace-attacking-problems-glasner-change/
 
