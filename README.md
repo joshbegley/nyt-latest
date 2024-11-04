@@ -1,3 +1,7 @@
+**How Red and Blue America Shop, Eat and Live**\
+`Politics map onto our everyday life in surprising ways, a data set of millions of places shows.`\
+https://nytimes.com/interactive/2024/11/04/upshot/place-politics.html
+
 **Will baseball's broadcast uncertainty impact franchise values? An early test case looms**\
 `As the offseason gets underway, many eyes will be on how the loss of RSN revenue impacts the sport. `\
 https://nytimes.com/athletic/5896621/2024/11/04/mlb-broadcast-uncertainty-franchise-values-twins/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/style/ripped-jeans-distressed-denim.html
 **Herzog & de Meuron to Renovate Breuer Building for Sotheby’s**\
 `The Pritzker-winning architectural firm is known for its transformation of existing structures like the Park Avenue Armory.`\
 https://nytimes.com/2024/11/04/arts/design/herzog-de-meuron-breuer-sothebys.html
-
-**Does Everyone Have a Responsibility to Vote?**\
-`Is it OK not to vote, or is voting a civic duty?`\
-https://nytimes.com/2024/11/04/learning/does-everyone-have-a-responsibility-to-vote.html
 
