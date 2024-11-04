@@ -1,3 +1,7 @@
+**Will baseball's broadcast uncertainty impact franchise values? An early test case looms**\
+`As the offseason gets underway, many eyes will be on how the loss of RSN revenue impacts the sport. `\
+https://nytimes.com/athletic/5896621/2024/11/04/mlb-broadcast-uncertainty-franchise-values-twins/
+
 **Fleeing Northern Gaza Risked His Life. Staying Destroyed His Family.**\
 `For Gazans facing Israel’s latest offensive against Hamas in the north, every option is fraught with peril.`\
 https://nytimes.com/2024/11/04/world/europe/northern-gaza-evacuation-risks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/arts/design/herzog-de-meuron-breuer-sothebys.html
 **Does Everyone Have a Responsibility to Vote?**\
 `Is it OK not to vote, or is voting a civic duty?`\
 https://nytimes.com/2024/11/04/learning/does-everyone-have-a-responsibility-to-vote.html
-
-**Reading the Auras of Democrats and Republicans on the Eve of the Election**\
-`There was one moment in this election where the vibes actually shifted, and you probably can guess what it was.`\
-https://nytimes.com/2024/11/04/opinion/democrat-republican-election-vibes.html
 
