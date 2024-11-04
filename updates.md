@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Bucks, Sixers questions; Moses Moody's incentive details; more**\
+`Also: After a runaway foul rate to start the season, things seem to have settled a bit. But teams are still letting 3s fly.`\
+https://nytimes.com/athletic/5897035/2024/11/04/bucks-sixers-mosey-moody-warriors-nba-contracts/
+
 **A New Boon for Georgia Democrats: Winners of Big Georgia Races**\
 `Elected less than four years ago, Senators Jon Ossoff and Raphael Warnock have become a Southern battleground’s star campaigners.`\
 https://nytimes.com/2024/11/04/us/georgia-democrats-senators-ossoff-warnock.html

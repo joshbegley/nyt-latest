@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Bucks, Sixers questions; Moses Moody's incentive details; more**\
+`Also: After a runaway foul rate to start the season, things seem to have settled a bit. But teams are still letting 3s fly.`\
+https://nytimes.com/athletic/5897035/2024/11/04/bucks-sixers-mosey-moody-warriors-nba-contracts/
+
 **A New Boon for Georgia Democrats: Winners of Big Georgia Races**\
 `Elected less than four years ago, Senators Jon Ossoff and Raphael Warnock have become a Southern battleground’s star campaigners.`\
 https://nytimes.com/2024/11/04/us/georgia-democrats-senators-ossoff-warnock.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879940/2024/11/04/chiefs-undefeated-regular-season
 **How Cannabis Use is Changing Across the U.S.**\
 `As voters weigh in on measures that would broaden marijuana access, recent data reveals unexpected trends in who uses it, and how.`\
 https://nytimes.com/2024/11/04/well/weed-cannabis-america.html
-
-**When Chronic Diseases Come With Chronic Financial Pressure**\
-`For millions of Americans, paying for the treatment needed to manage their diseases can become its own lifelong problem.`\
-https://nytimes.com/2024/11/04/well/chronic-disease-medication-insurance-costs.html
 
