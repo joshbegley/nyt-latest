@@ -1,3 +1,19 @@
+**Where conservative Christian voters stand in 2024.**\
+`By Elizabeth Dias and Ruth Graham`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/where-conservative-christian-voters-stand-in-2024
+
+**A November Surprise Is Jostling the Markets**\
+`The dollar, Treasury yields and crypto currencies have fallen, reversing some elements of the so-called Trump trade after an unexpected poll result.`\
+https://nytimes.com/2024/11/04/business/dealbook/selzer-poll-trump-trade.html
+
+**WSL Briefing: Chelsea's attacking riches, Arsenal wasteful, West Ham's bizarre own goal**\
+`Erin Cuthbert clears up speculation over her goal celebration and it's the same old problem for Arsenal`\
+https://nytimes.com/athletic/5897112/2024/11/04/wsl-briefing-chelsea-goals/
+
+**Ancelotti says La Liga matches should have been cancelled due to Valencia flooding**\
+`Real Madrid head coach Carlo Ancelotti says he believes the weekend’s round of La Liga matches should have been postponed due to the flooding in Valencia.`\
+https://nytimes.com/athletic/5897394/2024/11/04/carlo-ancelotti-valencia-flooding/
+
 **Physical Intelligence, a Robot A.I. Specialist, Raises Millions From Bezos**\
 `The start-up raised $400 million in a funding round with investments from the likes of Jeff Bezos, Thrive Capital and OpenAI.`\
 https://nytimes.com/2024/11/04/business/dealbook/physical-intelligence-robot-ai.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/04/business/media/new-york-times-earnings.html
 **NFL Draft roundtable: Is Cam Ward's rise legit? Can Carson Beck regroup?**\
 `The 2025 NFL Draft quarterback picture remains extremely blurry, even as the regular season heads into the homestretch.`\
 https://nytimes.com/athletic/5895505/2024/11/04/nfl-draft-2025-quarterbacks-cam-ward-carson-beck/
-
-**Here's where the Cardinals' roster stands as free agency begins**\
-`Masyn Winn is one of the few certainties on a Cardinals team looking to clear the way for younger players. `\
-https://nytimes.com/athletic/5886108/2024/11/04/cardinals-mlb-roster-free-agency/
-
-**Lowetide: What Oilers management must reckon with in roster construction**\
-`Beyond the current headlines, there are a few issues Oilers fans should really be worrying over.`\
-https://nytimes.com/athletic/5894821/2024/11/04/edmonton-oilers-roster-construction-nurse-skinner/
-
-**Antonio Pierce, Luke Getsy deserve criticism, but Raiders' roster needs plenty of work**\
-`Following a fifth straight loss, it's painfully obvious the Raiders don't have the talent to compete. Will that change anytime soon?`\
-https://nytimes.com/athletic/5895313/2024/11/04/raiders-antonio-pierce-luke-getsy-roster-bengals/
-
-**Mario & Luigi Energize an Island-Hopping Quest**\
-`Rhythm is a crucial resource in the role-playing game Mario & Luigi: The Brothership.`\
-https://nytimes.com/2024/11/04/arts/mario-luigi-brothership-review.html
 
