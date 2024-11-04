@@ -1,3 +1,15 @@
+**Foreign Adversaries May Try to Undermine U.S. Elections After Vote**\
+`Russian and other groups have unleashed a torrent of disinformation. Cybersecurity officials plan to issue updates on threats throughout Election Day.`\
+https://nytimes.com/2024/11/04/us/politics/election-threats-russia.html
+
+**NFL trade grades: Breaking down biggest moves at the deadline**\
+`We analyze and grade all of the biggest trades ahead of the NFL trade deadline. `\
+https://nytimes.com/athletic/5893004/2024/11/04/nfl-trade-grades-deadline-2024/
+
+**Police Officer Found Guilty of Murder in Shooting of a Columbus Man**\
+`An Ohio jury found the officer, Adam Coy, guilty on three charges, including murder and reckless homicide, after he shot Andre Hill, a Black man. The killing led to police reforms.`\
+https://nytimes.com/2024/11/04/us/police-guilty-murder-andre-hill-columbus.html
+
 **How is The Times covering the 2024 election?**\
 `By Megan DiTrolio`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/how-is-the-times-covering-the-2024-election
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/04/world/canada/canada-oil-gas-carbon-emissions.html
 **A Surprising Poll for Harris Took Iowa Democrats by Surprise, Too**\
 `The Des Moines Register’s unexpected result showing Kamala Harris ahead by three percentage points in the reliably red state fueled optimism in her party.`\
 https://nytimes.com/2024/11/04/us/politics/iowa-poll-harris-democrats.html
-
-**Record Number of States Experiencing Drought**\
-`A tracking system for droughts in the U.S. marked a record last week: 48 out of 50 states made the list at once.`\
-https://nytimes.com/2024/11/04/climate/united-states-record-drought.html
-
-**Alonso hails Slot impact ahead of Liverpool return**\
-`Xabi Alonso saluted the &#8220;fantastic&#8221; impact of Liverpool head coach Arne Slot as he warned his Bayer Leverkusen side they will be facing &#8220;one of the best teams in Europe&#8221;.`\
-https://nytimes.com/athletic/5898645/2024/11/04/xabi-alonso-liverpool-return-slot/
-
-**When will the presidential race be called? Here’s what to know.**\
-`It could take days to know the winner, as it did in 2020, because counting mail ballots takes time. But returns on election night could also offer clarity.`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/when-will-the-presidential-race-be-called-heres-what-to-know
 
