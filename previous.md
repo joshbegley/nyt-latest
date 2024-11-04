@@ -1,3 +1,7 @@
+**Cubs' Ian Happ wins third straight Gold Glove, putting him in rarified air**\
+`Happ said it took “a lot of hard work” to become a multiple-time winner of an award that “means a lot” to him.`\
+https://nytimes.com/athletic/5896706/2024/11/03/cubs-ian-happ-third-straight-gold-glove/
+
 **Commanders handle business vs. Giants, continue to 'demonstrate improvement'**\
 `The victory wasn’t the cleanest performance from Washington, but the traits coach Dan Quinn sought were peppered throughout the game. `\
 https://nytimes.com/athletic/5896024/2024/11/03/commanders-win-jayden-daniels-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5894572/2024/11/03/rams-seahawks-score-takeaways-re
 **In Nebraska, Separate Referendums on Abortion Create Confusion for Voters**\
 `Referendum 434 would enshrine the state’s current ban after 12 weeks. Referendum 439 would create a right to abortion “until fetal viability.”`\
 https://nytimes.com/2024/11/03/us/politics/nebraska-abortion-referendums.html
-
-**Lamar Jackson's perfection vs. Broncos makes it easy to imagine possibilities for Ravens**\
-`Jackson had the fourth perfect passer rating of his career as Baltimore flexed its offensive muscle once again in its win over Denver. `\
-https://nytimes.com/athletic/5896039/2024/11/03/lamar-jackson-passer-rating-ravens-win-broncos/
 
