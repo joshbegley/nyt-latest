@@ -1,3 +1,7 @@
+**Packers embarrass themselves with self-inflicted errors in 24-14 loss to Lions**\
+`The Packers played a game full of needless mistakes and paid the price, losing 24-14 to the Lions and falling to 0-2 in the NFC North.`\
+https://nytimes.com/athletic/5896719/2024/11/03/packers-loss-lions-embarrassing/
+
 **Gutting loss to Rams makes clear who Seahawks are: A team that’s not quite good enough**\
 `The Seahawks have lost five of six and sit last in the division after a series of backbreaking mistakes against the Rams.`\
 https://nytimes.com/athletic/5896674/2024/11/03/seahawks-loss-geno-smith-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895976/2024/11/03/gold-glove-award-winners-mlb/
 **After missing time in 2024, can Gerrit Cole now get the Yankees to ante up?**\
 `Walking away from Gerrit Cole would increase the pressure on owner Hal Steinbrenner to sign Juan Soto. And if he lost both . . . hoo boy.`\
 https://nytimes.com/athletic/5896491/2024/11/03/yankees-gerrit-cole-opt-out-decision/
-
-**Bruins’ David Pastrňák benched in third period: ‘Coach’s decision,’ Jim Montgomery says**\
-`Pastrňák led all skaters in the game with seven shots on net despite not playing the third period.`\
-https://nytimes.com/athletic/5896505/2024/11/03/pastrnak-benched-bruins-montgomery-kraken/
 
