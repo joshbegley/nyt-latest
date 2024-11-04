@@ -1,3 +1,11 @@
+**Harris, at Final Michigan Rally, Offers Forward-Looking Vision**\
+`“Our campaign has not been about being against something, it is about being for something,” Vice President Kamala Harris said, avoiding any mention of her rival by name.`\
+https://nytimes.com/2024/11/03/us/politics/harris-michigan-state-university-rally.html
+
+**Robinson's TD grab gives Rams 26-20 OT win over Seahawks: Takeaways**\
+`Matthew Stafford's 39-yard touchdown pass to Demarcus Robinson in overtime lifted the Rams to a third consecutive win.`\
+https://nytimes.com/athletic/5894572/2024/11/03/rams-seahawks-score-takeaways-result/
+
 **In Nebraska, Separate Referendums on Abortion Create Confusion for Voters**\
 `Referendum 434 would enshrine the state’s current ban after 12 weeks. Referendum 439 would create a right to abortion “until fetal viability.”`\
 https://nytimes.com/2024/11/03/us/politics/nebraska-abortion-referendums.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5896124/2024/11/03/panthers-win-bryce-young-game-wi
 **Paul George expected to make 76ers debut Monday vs. Suns**\
 `George has yet to play this season after hyperextending his left knee in a preseason game against the Atlanta Hawks on Oct. 14.`\
 https://nytimes.com/athletic/5896274/2024/11/03/paul-george-season-debut-76ers-suns/
-
-**These Uncommitted Voters Finally Made Their Choice for President**\
-`Over the last four months, these voters have struggled with their decision. Now, with time short, they explain who’s getting, or not getting, their vote.`\
-https://nytimes.com/2024/11/03/us/politics/undecided-voters-trump-harris.html
-
-**Giants' fourth straight loss brings them to familiar time: 'Tankathon' season**\
-`At this point, the only real intrigue left regarding Giants football games is how a win or a loss will affect their draft position. `\
-https://nytimes.com/athletic/5896032/2024/11/03/giants-loss-commanders-nfl-draft-tanking/
 
