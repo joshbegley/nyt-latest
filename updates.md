@@ -1,3 +1,15 @@
+**How Cannabis Use is Changing Across the U.S.**\
+`As voters weigh in on measures that would broaden marijuana access, recent data reveals unexpected trends in who uses it, and how.`\
+https://nytimes.com/2024/11/04/well/weed-cannabis-america.html
+
+**When Chronic Diseases Come With Chronic Financial Pressure**\
+`For millions of Americans, paying for the treatment needed to manage their diseases can become its own lifelong problem.`\
+https://nytimes.com/2024/11/04/well/when-chronic-diseases-come-with-chronic-financial-pressure.html
+
+**NASCAR Martinsville takeaways: The power of must-win, predicting the champion**\
+`Ryan Blaney seized a must-win moment and helped upend the Championship 4, predictions for the title race and more from Martinsville.`\
+https://nytimes.com/athletic/5897558/2024/11/04/nascar-martinsville-takeaways-ryan-blaney-predictions/
+
 **Five-Star, Reader-Favorite Lemony Chicken-Feta Meatball Soup**\
 `“This is the best soup I’ve ever had in my entire life.”`\
 https://nytimes.com/2024/11/04/dining/reader-favorite-lemony-chicken-feta-meatball-soup.html
