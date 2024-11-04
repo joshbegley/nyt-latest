@@ -1,3 +1,7 @@
+**Second Trial in Teacher’s Killing Begins in France**\
+`Eight more people are facing charges over the 2020 murder of the teacher, Samuel Paty, who had displayed caricatures of the Prophet Muhammad as an illustration of free speech.`\
+https://nytimes.com/2024/11/04/world/europe/france-paty-beheading-trial.html
+
 **A Small Thing That Gives Me a Tiny Shred of Hope**\
 `A wee flame flickering in the dark.`\
 https://nytimes.com/2024/11/04/podcasts/a-small-thing-that-gives-me-hope-this-american-life-nyt-audio.html
