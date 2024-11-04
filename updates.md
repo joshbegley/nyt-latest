@@ -1,3 +1,15 @@
+**Cowboys' Prescott out several weeks with hamstring injury: Source**\
+`With Dallas' star quarterback hurt, expect Cooper Rush to step in and try to rekindle some of his 2022 magic. `\
+https://nytimes.com/athletic/5898402/2024/11/04/dak-prescott-injury-hamstring-cowboys/
+
+**Tracking Typhoon Yinxing**\
+`See the likely path and wind arrival times for Yinxing.`\
+https://nytimes.com/interactive/2024/11/04/weather/yinxing-map-path-tracker.html
+
+**Energized but Worried, the Campaigns Make Frantic Final Pushes**\
+`Democrats in battleground states have built a tightly structured get-out-the-vote operation, while Republicans have relied more on outside groups for canvassing.`\
+https://nytimes.com/2024/11/04/us/election-ground-game.html
+
 **Athletics drop 'Oakland' from their name**\
 `After 57 years in Oakland, the A's played their final game at the Coliseum on Sept. 26, winning 3-2 against the Texas Rangers.`\
 https://nytimes.com/athletic/5898373/2024/11/04/athletics-oakland-name-change/
