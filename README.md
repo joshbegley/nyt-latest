@@ -1,3 +1,15 @@
+**Where There’s Joy in a Terror Bird**\
+`In Colombia, a fossil-collecting rancher has found a giant, flightless killer from 13 million years ago — and a missing link to the region’s evolutionary history.`\
+https://nytimes.com/2024/11/04/science/fossils-colombia-terror-birds.html
+
+**Election Night, Plus Five Things to Watch on TV This Week**\
+`Tune into the major networks’ election coverage, catch up on the teen drama “The Outer Banks” and dive into a bunch of true-crime docuseries.`\
+https://nytimes.com/2024/11/04/arts/television/election-night-tv-this-week.html
+
+**Every Vote in Every State Matters**\
+`Races for Congress in California, New York and every other state are crucial to putting a check on Donald Trump if he is re-elected.`\
+https://nytimes.com/2024/11/04/opinion/congress-election-2024.html
+
 **Ferdi Kadioglu is quickly becoming Brighton's new multi-tasking, Milner-style menace**\
 `The Turkish international was signed as a defender but his performance on the right wing at Anfield showed just how versatile he can be `\
 https://nytimes.com/athletic/5875003/2024/11/04/ferdi-kadioglu-versatility-anfield-performance/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/04/arts/dawsons-creek-james-van-der-beek-colorectal-
 **Palace's forwards were rescued by their defenders at Wolves - but something needs to change**\
 `Unless Palace resolve their attacking failures, their games will continue to be unnecessarily close`\
 https://nytimes.com/athletic/5886751/2024/11/04/palace-attacking-problems-glasner-change/
-
-**Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
-`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. That happened Sunday night.`\
-https://nytimes.com/athletic/5896025/2024/11/04/raiders-loss-gardner-minshew-benching-luke-getsy/
-
-**An Indonesian Tribe’s Language Gets an Alphabet: Korea’s**\
-`The Cia-Cia language has been passed down orally for centuries. Now the tribe’s children are learning to write it in Hangul, the Korean script.`\
-https://nytimes.com/2024/11/04/world/asia/indonesia-korea-hangul.html
-
-**Monday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/11/04/briefing/election-day-gaza-vaccines-moldova.html
 
