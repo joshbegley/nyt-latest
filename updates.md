@@ -1,3 +1,7 @@
+**Frustrating mistakes and Dak Prescott injury, Cowboys look closer to top-10 pick than playoffs**\
+`A slew of pre-snap penalties, short-yardage shortcomings and a poorly executed fake punt were among the things that cost the Cowboys.`\
+https://nytimes.com/athletic/5896252/2024/11/03/cowboys-lose-frustrating-dak-prescott-injury-falcons/
+
 **Maple Leafs report cards: Special teams help Toronto salvage point vs. Wild**\
 `The Leafs scored their first power-play goal since Oct. 21 but ran out of steam on the second night of a back-to-back.`\
 https://nytimes.com/athletic/5895644/2024/11/03/maple-leafs-report-cards-special-teams-wild/
