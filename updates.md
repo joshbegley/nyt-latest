@@ -1,3 +1,11 @@
+**Vikings WR Jordan Addison is finally freed in game-changing performance against Colts**\
+`The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season..`\
+https://nytimes.com/athletic/5896166/2024/11/04/jordan-addison-vikings-colts-touchdown-catch/
+
+**USMNT Player Tracker: Wright on song, Weah earns his stripes and Aaronson making friends**\
+`Tillman's off day, Campbell's latest outing, and Trusty and Carter-Vickers' new defensive partnership in Glasgow also feature in our roundup`\
+https://nytimes.com/athletic/5897747/2024/11/04/usmnt-wright-pochettino-weah-aaronson-tracker/
+
 **Hollinger's Week That Was: Bucks, Sixers questions; Moses Moody's incentive details; more**\
 `Also: After a runaway foul rate to start the season, things seem to have settled a bit. But teams are still letting 3s fly.`\
 https://nytimes.com/athletic/5897035/2024/11/04/bucks-sixers-mosey-moody-warriors-nba-contracts/

@@ -1,3 +1,11 @@
+**Vikings WR Jordan Addison is finally freed in game-changing performance against Colts**\
+`The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season..`\
+https://nytimes.com/athletic/5896166/2024/11/04/jordan-addison-vikings-colts-touchdown-catch/
+
+**USMNT Player Tracker: Wright on song, Weah earns his stripes and Aaronson making friends**\
+`Tillman's off day, Campbell's latest outing, and Trusty and Carter-Vickers' new defensive partnership in Glasgow also feature in our roundup`\
+https://nytimes.com/athletic/5897747/2024/11/04/usmnt-wright-pochettino-weah-aaronson-tracker/
+
 **Hollinger's Week That Was: Bucks, Sixers questions; Moses Moody's incentive details; more**\
 `Also: After a runaway foul rate to start the season, things seem to have settled a bit. But teams are still letting 3s fly.`\
 https://nytimes.com/athletic/5897035/2024/11/04/bucks-sixers-mosey-moody-warriors-nba-contracts/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5898023/2024/11/04/mlb-offseason-free-agency-the-wi
 **Geno Smith is taking the blame for the Seahawks, but is he actually a problem?**\
 `Smith had three turnovers for the first time in 44 Seattle starts, including a back-breaking pick six. But how much blames does he deserve?`\
 https://nytimes.com/athletic/5897201/2024/11/04/geno-smith-seahawks-loss-rams/
-
-**Can the Chiefs go undefeated? Projecting Kansas City's remaining games**\
-`Since 2000, 25 teams have started at least 7-0. Only seven of those teams stretched their undefeated starts beyond 10 games.`\
-https://nytimes.com/athletic/5879940/2024/11/04/chiefs-undefeated-regular-season-probability/
-
-**How Cannabis Use is Changing Across the U.S.**\
-`As voters weigh in on measures that would broaden marijuana access, recent data reveals unexpected trends in who uses it, and how.`\
-https://nytimes.com/2024/11/04/well/weed-cannabis-america.html
 
