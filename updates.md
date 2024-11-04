@@ -1,3 +1,15 @@
+**Broncos trade LB Baron Browning to Cardinals for 6th-round pick**\
+`He's tallied 114 total tackles and 9 1/2 sacks over three-plus seasons in Denver.`\
+https://nytimes.com/athletic/5898439/2024/11/04/baron-browning-cardinals-broncos-trade/
+
+**No, voting machines are not intentionally ‘flipping’ votes between candidates.**\
+`Voters sometimes make mistakes when they use digital voting machines. But the issues are quickly remedied.`\
+https://nytimes.com/2024/11/04/business/voting-machines-fact-check.html
+
+**Nash County, N.C.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/nash-county-nc
+
 **Preppers Await the End. But First, the Election.**\
 `In Arizona, groups like the Dewey preppers are ready for the apocalypse and for whatever might come after Nov. 5.`\
 https://nytimes.com/2024/11/04/us/elections/election-violence-preppers-arizona.html
