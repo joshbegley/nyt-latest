@@ -1,3 +1,11 @@
+**Israeli Strikes Damage a Major Hospital in Northern Gaza, Officials Say**\
+`Patients and medical staff were wounded at Kamal Adwan Hospital, one of the few in northern Gaza still providing limited medical care, the health ministry and the hospital’s chief said.`\
+https://nytimes.com/2024/11/04/world/middleeast/israel-strike-hospital-jabaliya.html
+
+**A Prominent Black Mayor Is Worried About Black Men in the Election**\
+`If Obama made no difference in their lives, many say, why would Harris?`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/black-men-georgia-election
+
 **Reaching Rural Voters in North Carolina After Hurricane Helene**\
 `Ahead of Election Day, canvassers knocked on voters’ doors in Ashe County in storm-ravaged Western North Carolina.`\
 https://nytimes.com/video/world/americas/100000009802360/election-north-carolina-helene.html
@@ -25,16 +33,4 @@ https://nytimes.com/2024/11/04/world/middleeast/iran-trump-harris.html
 **2 Police Officers Charged With Reckless Manslaughter in Ohio Man’s Death**\
 `The two police officers, who are white, held down the man, who was Black, for seven minutes as he told them he could not breathe.`\
 https://nytimes.com/2024/11/04/us/police-charged-manslaughter-canton-ohio-frank-tyson.html
-
-**Vance Describes Election Day Nerves, and an Agenda for His Vice Presidency**\
-`With the close, tense campaign nearing its end, Senator JD Vance projected optimism, but added: “I just want to know.”`\
-https://nytimes.com/2024/11/04/us/politics/jd-vance-interview.html
-
-**Trump and Harris donors are invited to watch history happen.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-and-harris-donors-are-invited-to-watch-history-happen
-
-**The Core of Kennedy’s Pitch for Trump? Kennedy.**\
-`Even as the former independent presidential candidate Robert F. Kennedy Jr. has endorsed Donald J. Trump and campaigned for him, his message to voters is clear: Vote Trump to get me.`\
-https://nytimes.com/2024/11/04/us/politics/kennedy-trump-2024.html
 
