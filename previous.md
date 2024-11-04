@@ -1,3 +1,7 @@
+**Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-keeps-decrying-rampant-crime-heres-how-his-misleading-claim-has-shifted
+
 **Supreme Court to Hear Louisiana Voting Map Dispute**\
 `The case, which will not affect this election cycle, involves a legal fight over how the state draws its voting maps and could determine the political power of Black voters there.`\
 https://nytimes.com/2024/11/04/us/politics/supreme-court-louisiana-voting-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/30/opinion/thepoint/quincy-jones-music
 **New Hanover County, N.C.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/new-hanover-county-nc
-
-**Murray McCory, 80, Dies; JanSport Founder Created the School Backpack**\
-`He brought lightweight packs to millions of students and transformed the way they carried their textbooks to school.`\
-https://nytimes.com/2024/11/04/business/murray-mccory-dead.html
 
