@@ -1,3 +1,11 @@
+**Kaprizov's streak ends, but Wild's winning ways don't: 'Can't be a one-trick pony'**\
+`In a rare scoreless game for Kaprizov, the rest of the team stepped up to keep banking points in an 8-1-2 start.`\
+https://nytimes.com/athletic/5896738/2024/11/03/wild-spurgeon-penalty-kill-leafs/
+
+**Bucks' Portis says his home was burglarized during Saturday's game**\
+`Bobby Portis said the robbers "took most of my prized possessions" and asked fans to report any information about the burglary.`\
+https://nytimes.com/athletic/5896731/2024/11/03/bobby-portis-home-burglary-bucks/
+
 **Cubs' Ian Happ wins third straight Gold Glove, putting him in rarified air**\
 `Happ said it took “a lot of hard work” to become a multiple-time winner of an award that “means a lot” to him.`\
 https://nytimes.com/athletic/5896706/2024/11/03/cubs-ian-happ-third-straight-gold-glove/
