@@ -1,3 +1,11 @@
+**49ers open McCaffrey's practice window setting up Week 10 return**\
+`McCaffrey has yet to play this season while recovering from the Achilles tendinitis that plagued him throughout training camp.`\
+https://nytimes.com/athletic/5898442/2024/11/04/49ers-open-christian-mccaffreys-practice-window-setting-up-week-10-return/
+
+**A Pendulous Overcoat for a Swing State**\
+`Temperatures fell this weekend, and Donald Trump reached for a familiar sartorial security blanket on the last leg of his campaign trail.`\
+https://nytimes.com/2024/11/04/style/a-pendulous-overcoat-for-a-swing-state.html
+
 **Blues' Philip Broberg out 4 to 6 weeks, but injury diagnosis 'could have been a lot worse'**\
 `Broberg left Saturday's game against the Leafs with a lower-body injury. P.O. Joseph and Scott Perunovich will get promotions with him out.`\
 https://nytimes.com/athletic/5898275/2024/11/04/blues-philip-broberg-injury-timeline/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/harris-trump-pennsylvania-campaign.ht
 **After review, Carson Beck made 'winning decisions' on 68 of 73 Georgia plays**\
 `Eight of Beck's interceptions have been thrown on first or second down, including two in Georgia's win over Florida.`\
 https://nytimes.com/athletic/5898416/2024/11/04/georgia-qb-carson-beck-interceptions/
-
-**Preppers Await the End. But First, the Election.**\
-`In Arizona, groups like the Dewey preppers are ready for the apocalypse and for whatever might come after Nov. 5.`\
-https://nytimes.com/2024/11/04/us/elections/election-violence-preppers-arizona.html
-
-**Broncos trade LB Baron Browning to Cardinals for 6th-round pick**\
-`He's tallied 114 total tackles and 9 1/2 sacks over three-plus seasons in Denver.`\
-https://nytimes.com/athletic/5898439/2024/11/04/baron-browning-cardinals-broncos-trade/
 
