@@ -1,3 +1,7 @@
+**How Red and Blue America Shop, Eat and Live**\
+`Politics map onto our everyday life in surprising ways, a data set of millions of places shows.`\
+https://nytimes.com/interactive/2024/11/04/upshot/place-politics.html
+
 **Will baseball's broadcast uncertainty impact franchise values? An early test case looms**\
 `As the offseason gets underway, many eyes will be on how the loss of RSN revenue impacts the sport. `\
 https://nytimes.com/athletic/5896621/2024/11/04/mlb-broadcast-uncertainty-franchise-values-twins/
