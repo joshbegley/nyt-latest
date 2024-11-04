@@ -2,7 +2,7 @@
 `Patients and medical staff were wounded at Kamal Adwan Hospital, one of the few in northern Gaza still providing limited medical care, the health ministry and the hospital’s chief said.`\
 https://nytimes.com/2024/11/04/world/middleeast/israel-strike-hospital-jabaliya.html
 
-**A Prominent Black Mayor Is Worried About Black Men in the Election**\
+**Mayor of America’s ‘Blackest City’ Still Worried About Black Male Voters**\
 `If Obama made no difference in their lives, many say, why would Harris?`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/black-men-georgia-election
 
