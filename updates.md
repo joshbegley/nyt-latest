@@ -1,3 +1,7 @@
+**Five-Star, Reader-Favorite Lemony Chicken-Feta Meatball Soup**\
+`“This is the best soup I’ve ever had in my entire life.”`\
+https://nytimes.com/2024/11/04/dining/reader-favorite-lemony-chicken-feta-meatball-soup.html
+
 **An Angry Spain, Still Reeling From Floods, Faces More Rain**\
 `Emergency workers continued to search for victims of last week’s flash floods, while a national debate raged over who was to blame for the catastrophe.`\
 https://nytimes.com/2024/11/04/world/europe/spain-floods-valencia-rain.html

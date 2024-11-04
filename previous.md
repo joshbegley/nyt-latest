@@ -1,3 +1,7 @@
+**Five-Star, Reader-Favorite Lemony Chicken-Feta Meatball Soup**\
+`“This is the best soup I’ve ever had in my entire life.”`\
+https://nytimes.com/2024/11/04/dining/reader-favorite-lemony-chicken-feta-meatball-soup.html
+
 **An Angry Spain, Still Reeling From Floods, Faces More Rain**\
 `Emergency workers continued to search for victims of last week’s flash floods, while a national debate raged over who was to blame for the catastrophe.`\
 https://nytimes.com/2024/11/04/world/europe/spain-floods-valencia-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897019/2024/11/04/canucks-2024-2025-season-start-a
 **Elon Musk and His Super PAC Face Their Crucible Moment**\
 `Donald Trump’s presidential campaign is relying heavily on Mr. Musk’s organization to get Republican voters to the polls.`\
 https://nytimes.com/2024/11/04/us/elections/elon-musk-donald-trump-get-out-the-vote.html
-
-**All aboard! Pistons take subway to Barclays Center, beat Nets in 'identity game'**\
-`The Pistons were allowing 53 second-half points per game but gave up just 35 to the Nets in Sunday's win.`\
-https://nytimes.com/athletic/5897100/2024/11/04/pistons-nets-subway-nyc-marathon/
 
