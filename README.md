@@ -1,3 +1,15 @@
+**How Cannabis Use is Changing Across the U.S.**\
+`As voters weigh in on measures that would broaden marijuana access, recent data reveals unexpected trends in who uses it, and how.`\
+https://nytimes.com/2024/11/04/well/weed-cannabis-america.html
+
+**When Chronic Diseases Come With Chronic Financial Pressure**\
+`For millions of Americans, paying for the treatment needed to manage their diseases can become its own lifelong problem.`\
+https://nytimes.com/2024/11/04/well/when-chronic-diseases-come-with-chronic-financial-pressure.html
+
+**NASCAR Martinsville takeaways: The power of must-win, predicting the champion**\
+`Ryan Blaney seized a must-win moment and helped upend the Championship 4, predictions for the title race and more from Martinsville.`\
+https://nytimes.com/athletic/5897558/2024/11/04/nascar-martinsville-takeaways-ryan-blaney-predictions/
+
 **Five-Star, Reader-Favorite Lemony Chicken-Feta Meatball Soup**\
 `“This is the best soup I’ve ever had in my entire life.”`\
 https://nytimes.com/2024/11/04/dining/reader-favorite-lemony-chicken-feta-meatball-soup.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where
 **NBA Rewind: The Joel Embiid controversy, Drake vs. DeMar DeRozan and beefy weekend**\
 `Results took a backseat to feuds around the league last weekend.`\
 https://nytimes.com/athletic/5893171/2024/11/04/nba-rewind-joel-embiid-demar-derozan/
-
-**For This Rising Conductor, Classical Music Was Never Elitist**\
-`Robert Treviño, who has drawn acclaim for recent recordings, learned music in public school and wants to break down barriers for others.`\
-https://nytimes.com/2024/11/04/arts/music/robert-trevino-conductor.html
-
-**Drance: Why the Canucks' inconsistency makes their start to the season so promising**\
-`The Canucks aren't playing great hockey, but they have the look of a good team and are still getting results.`\
-https://nytimes.com/athletic/5897019/2024/11/04/canucks-2024-2025-season-start-analysis/
-
-**Elon Musk and His Super PAC Face Their Crucible Moment**\
-`Donald Trump’s presidential campaign is relying heavily on Mr. Musk’s organization to get Republican voters to the polls.`\
-https://nytimes.com/2024/11/04/us/elections/elon-musk-donald-trump-get-out-the-vote.html
 
