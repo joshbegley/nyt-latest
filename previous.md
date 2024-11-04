@@ -1,3 +1,7 @@
+**A Small Thing That Gives Me a Tiny Shred of Hope**\
+`A wee flame flickering in the dark.`\
+https://nytimes.com/2024/11/04/podcasts/a-small-thing-that-gives-me-hope-this-american-life-nyt-audio.html
+
 **Quincy Jones, Giant of American Music, Dies at 91**\
 `As a producer, he made the best-selling album of all time, Michael Jackson’s “Thriller.” He was also a prolific arranger and composer of film music.`\
 https://nytimes.com/2024/11/04/arts/music/quincy-jones-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/learning/word-of-the-day-paradoxical.html
 **Moises Caicedo's Chelsea displays this year have cast aside questions over £115m fee**\
 `Moises Caicedo has been impressive for Chelsea this season and across the entirety of 2024`\
 https://nytimes.com/athletic/5895017/2024/11/04/moises-caicedo-chelsea-analysis/
-
-**What we learned about the Blackhawks from the 5-game road trip**\
-`Chicago's new-look lineup won consecutive games for the first time this season and won three of the five away games.`\
-https://nytimes.com/athletic/5896506/2024/11/04/chicago-blackhawks-road-trip/
 

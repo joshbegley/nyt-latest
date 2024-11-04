@@ -1,3 +1,7 @@
+**A Small Thing That Gives Me a Tiny Shred of Hope**\
+`A wee flame flickering in the dark.`\
+https://nytimes.com/2024/11/04/podcasts/a-small-thing-that-gives-me-hope-this-american-life-nyt-audio.html
+
 **Quincy Jones, Giant of American Music, Dies at 91**\
 `As a producer, he made the best-selling album of all time, Michael Jackson’s “Thriller.” He was also a prolific arranger and composer of film music.`\
 https://nytimes.com/2024/11/04/arts/music/quincy-jones-dead.html
