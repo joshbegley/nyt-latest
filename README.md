@@ -1,3 +1,11 @@
+**2 Police Officers Charged With Reckless Manslaughter in Ohio Man’s Death**\
+`The two police officers, who are white, held down the man, who was Black, for seven minutes as he told them he could not breathe.`\
+https://nytimes.com/2024/11/04/us/police-charged-manslaughter-canton-ohio-frank-tyson.html
+
+**Vance Describes Election Day Nerves, and an Agenda for His Vice Presidency**\
+`With the close, tense campaign nearing its end, Senator JD Vance projected optimism, but added: “I just want to know.”`\
+https://nytimes.com/2024/11/04/us/politics/jd-vance-interview.html
+
 **Trump and Harris donors are invited to watch history happen.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-and-harris-donors-are-invited-to-watch-history-happen
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/11/04/us/trump-crime-fact-check.html
 **Edu has been a charismatic connector at Arsenal and will be a tough act to follow**\
 `The sporting director has a personality that brought many parts of the club together and Arsenal will have a tough job replacing him`\
 https://nytimes.com/athletic/5897917/2024/11/04/edu-arsenal-nottingham-forest/
-
-**How ‘Blitz’ Recreates War-Torn London**\
-`Steve McQueen’s latest film, set in 1940 during Germany’s bombardment of the British capital, draws extensively from contemporary photos, and was shot entirely outside London.`\
-https://nytimes.com/2024/11/04/movies/blitz-london-steve-mcqueen.html
-
-**Heat Today: Bam Adebayo's hot hand, Erik Spoelstra's birthday help highlight road trip**\
-`The Heat were all smiles after their trip to Mexico City.`\
-https://nytimes.com/athletic/5897488/2024/11/04/bam-adebayo-erik-spoelstra-miami-heat/
 
