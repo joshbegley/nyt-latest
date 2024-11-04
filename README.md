@@ -1,3 +1,19 @@
+**The full Sam Darnold experience was on display in Vikings' victory over Colts**\
+`There were plenty of highs and some terrible lows from the Vikings quarterback on Sunday night, but his team weathered the storm.`\
+https://nytimes.com/athletic/5897116/2024/11/04/vikings-sam-darnold-experience-colts/
+
+**Braves’ needs and potential moves as free agency begins in earnest**\
+`Will the Braves replace Orlando Arcia with an offensive upgrade at shortstop? Which Braves could get non-tendered?`\
+https://nytimes.com/athletic/5895813/2024/11/04/braves-free-agency-needs/
+
+**What I'm hearing from NBA scouts on college basketball's top prospects**\
+`Georgia's Asa Newell and BYU's Russian import are also drawing lots of attention from NBA scouts.`\
+https://nytimes.com/athletic/5884600/2024/11/04/college-basketball-nba-draft-scouts-kon-knueppel/
+
+**Is Michigan going all-in to flip Bryce Underwood? Why 4-star QB Carter Smith decommitted**\
+`Is Michigan going back after Underwood, an LSU commitment from Belleville, Mich., a sign that its NIL approach is changing?`\
+https://nytimes.com/athletic/5895180/2024/11/04/michigan-recruiting-bryce-underwood-carter-smith/
+
 **How Red and Blue America Shop, Eat and Live**\
 `Politics map onto our everyday life in surprising ways, a data set of millions of places shows.`\
 https://nytimes.com/interactive/2024/11/04/upshot/place-politics.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/04/opinion/election-day-anxiety.html
 **Voters Choose Between What Affects Them and What Offends Them**\
 `And many people feel Trump’s offenses have affected them.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/tipsheet-voters-swing-states
-
-**In Pennsylvania, Republicans Stress Optimism While Democrats Just Stress**\
-`The biggest battleground of the presidential campaign remains tied on the eve of Election Day, with both the Trump and Harris campaigns saying they have the advantage.`\
-https://nytimes.com/2024/11/04/us/politics/pennsylvania-trump-harris.html
-
-**Some Late Shifts, but Polls Remain Closest They’ve Ever Been**\
-`The polls tend to err as a group in one direction or the other, so a fairly decisive win by either candidate is still possible.`\
-https://nytimes.com/2024/11/04/upshot/polls-trump-harris-election.html
-
-**Why Are People Still Buying Ripped Jeans?**\
-`A reader wonders if ripped jeans will ever go out of style. Our fashion critic offers insight into the future of distressed denim.`\
-https://nytimes.com/2024/11/04/style/ripped-jeans-distressed-denim.html
-
-**Herzog & de Meuron to Renovate Breuer Building for Sotheby’s**\
-`The Pritzker-winning architectural firm is known for its transformation of existing structures like the Park Avenue Armory.`\
-https://nytimes.com/2024/11/04/arts/design/herzog-de-meuron-breuer-sothebys.html
 
