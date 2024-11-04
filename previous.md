@@ -1,3 +1,11 @@
+**Long After Sunset, the Final Two Runners Cross the Marathon Finish Line**\
+`Two runners with injuries ended the New York City Marathon on their own two feet — and a pair of crutches.`\
+https://nytimes.com/2024/11/04/nyregion/nyc-marathon-final-finishers.html
+
+**Mount returns to full training with Man Utd**\
+`Mason Mount has returned to full training with Manchester United, continuing his recovery following an injury-hit start to the season.`\
+https://nytimes.com/athletic/5898317/2024/11/04/mason-mount-returns-training-man-utd/
+
 **Iranians Wonder if Trump Wins, Would Things Be Different This Time?**\
 `While Donald J. Trump is seen by many in Tehran as having been disastrous for their country, some hope he might be more open to negotiation in a second term as U.S. president.`\
 https://nytimes.com/2024/11/04/world/middleeast/iran-trump-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5898226/2024/11/04/bruins-david-pastrnak-benching/
 **What to know as arbitration begins in Timberwolves, Lynx ownership dispute**\
 `An arbitration panel will hear arguments before deciding whether Glen Taylor or Marc Lore and Alex Rodriguez have majority ownership.`\
 https://nytimes.com/athletic/5893780/2024/11/04/timberwolves-arbitration-glen-taylor-marc-lore-alex-rodriguez/
-
-**Ohio State film study: How the Buckeyes beat Penn State in top-five showdown**\
-`There are things Ohio State will want back because it could’ve put the game away earlier, but it's hard to nit-pick the win over Penn State.`\
-https://nytimes.com/athletic/5898057/2024/11/04/ohio-state-football-penn-state-analysis-will-howard/
-
-**Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
-`Former President Donald J. Trump insists that the United States under a Democratic administration is lawless and violent. The facts show otherwise.`\
-https://nytimes.com/interactive/2024/11/04/us/trump-crime-fact-check.html
 
