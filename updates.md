@@ -1,3 +1,7 @@
+**Connor McDavid skates with Oilers after receiving 'good news' on ankle injury**\
+`McDavid might be able to return to the Edmonton lineup earlier than initially expected.`\
+https://nytimes.com/athletic/5898570/2024/11/04/connor-mcdavid-oilers-injury-ankle/
+
 **On the issues: Where Harris and Trump stand on L.G.B.T.Q. rights.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-lgbtq-rights

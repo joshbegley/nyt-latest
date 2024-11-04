@@ -1,3 +1,7 @@
+**Connor McDavid skates with Oilers after receiving 'good news' on ankle injury**\
+`McDavid might be able to return to the Edmonton lineup earlier than initially expected.`\
+https://nytimes.com/athletic/5898570/2024/11/04/connor-mcdavid-oilers-injury-ankle/
+
 **On the issues: Where Harris and Trump stand on L.G.B.T.Q. rights.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-lgbtq-rights
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/tim-walz-voters-democrats.html
 **Cowboys' Prescott out several weeks with hamstring injury: Source**\
 `With star quarterback hurt, expect Cooper Rush to step in and try to rekindle some of his 2022 magic. `\
 https://nytimes.com/athletic/5898402/2024/11/04/dak-prescott-injury-hamstring-cowboys/
-
-**Tracking Typhoon Yinxing**\
-`See the likely path and wind arrival times for Yinxing.`\
-https://nytimes.com/interactive/2024/11/04/weather/yinxing-map-path-tracker.html
 
