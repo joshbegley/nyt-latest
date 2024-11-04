@@ -1,3 +1,7 @@
+**The Pulse: Saquon invents new football move**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5897303/2024/11/04/nfl-team-streaks-saquon-barkley-the-pulse/
+
 **Tennis Briefing: WTA Finals, the ATP race, and celebrating too much in Paris?**\
 `The best women's players in the world face off as the men's 'Race to Turin' comes to a conclusion.`\
 https://nytimes.com/athletic/5895811/2024/11/04/tennis-news-analysis-wta-finals-atp-race-turin/

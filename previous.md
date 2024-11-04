@@ -1,3 +1,7 @@
+**The Pulse: Saquon invents new football move**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5897303/2024/11/04/nfl-team-streaks-saquon-barkley-the-pulse/
+
 **Tennis Briefing: WTA Finals, the ATP race, and celebrating too much in Paris?**\
 `The best women's players in the world face off as the men's 'Race to Turin' comes to a conclusion.`\
 https://nytimes.com/athletic/5895811/2024/11/04/tennis-news-analysis-wta-finals-atp-race-turin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896580/2024/11/04/caleb-williams-bears-development
 **New York Times Tech Workers Go on Strike**\
 `The Times Tech Guild represents more than 600 software developers and others who run the back-end systems behind The Times’s digital operation.`\
 https://nytimes.com/2024/11/04/business/media/new-york-times-strike.html
-
-**Understanding the Leaked Documents Case Roiling Israel**\
-`An individual who worked in Prime Minister Benjamin Netanyahu’s office is being investigated.`\
-https://nytimes.com/2024/11/04/world/middleeast/israel-netanyahu-leaked-documents-hamas-gaza.html
 
