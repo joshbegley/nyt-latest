@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5898941/2024/11/04/kevin-durant-stephen-a-smith-esp
 `Also, remembering Quincy Jones. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/04/briefing/trump-and-harris-battle-for-pennsylvania.html
 
-**Christian McCaffrey bring jolt of hope in return to 49ers practice: 'The boys are back'**\
+**Christian McCaffrey brings jolt of hope in return to 49ers practice: 'The boys are back'**\
 `If all goes well this week at practice, McCaffrey will make his season debut Sunday against the Tampa Bay Buccaneers. `\
 https://nytimes.com/athletic/5898949/2024/11/04/christian-mccaffrey-49ers-practice-return/
 
