@@ -1,3 +1,7 @@
+**Arsenal sporting director Edu set to leave club**\
+`Arsenal sporting director Edu is set to leave the club.`\
+https://nytimes.com/athletic/5806690/2024/11/04/arsenal-edu-leaves-club/
+
 **Canadiens weekly notebook: The coach’s desired mindset and how it’s impacting Lane Hutson**\
 `Also in this week's notebook: Two struggling forwards call themselves out, Caufield's selectiveness and the logjam on defence trending down.`\
 https://nytimes.com/athletic/5897129/2024/11/04/canadiens-lane-hutson-coaching-defence-caufield/
