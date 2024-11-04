@@ -1,3 +1,11 @@
+**New Hanover County, N.C.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/new-hanover-county-nc
+
+**Murray McCory, 80, Dies; JanSport Founder Created the School Backpack**\
+`He brought lightweight packs to millions of students and transformed the way they carried their textbooks to school.`\
+https://nytimes.com/2024/11/04/business/murray-mccory-dead.html
+
 **Connor McDavid skates with Oilers after receiving 'good news' on ankle injury**\
 `McDavid might be able to return to the Edmonton lineup earlier than initially expected.`\
 https://nytimes.com/athletic/5898570/2024/11/04/connor-mcdavid-oilers-injury-ankle/
