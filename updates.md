@@ -1,3 +1,11 @@
+**Israeli Strikes Damage a Major Hospital in Northern Gaza, Officials Say**\
+`Patients and medical staff were wounded at Kamal Adwan Hospital, one of the few in northern Gaza still providing limited medical care, the health ministry and the hospital’s chief said.`\
+https://nytimes.com/2024/11/04/world/middleeast/israel-strike-hospital-jabaliya.html
+
+**A Prominent Black Mayor Is Worried About Black Men in the Election**\
+`If Obama made no difference in their lives, many say, why would Harris?`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/black-men-georgia-election
+
 **Reaching Rural Voters in North Carolina After Hurricane Helene**\
 `Ahead of Election Day, canvassers knocked on voters’ doors in Ashe County in storm-ravaged Western North Carolina.`\
 https://nytimes.com/video/world/americas/100000009802360/election-north-carolina-helene.html
