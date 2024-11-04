@@ -1,3 +1,7 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`After Saturday’s 1-0 home win over Arsenal, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5897206/2024/11/04/newcastle-questions-howe-transfers-midfield/
+
 **Monday Morning Leafs Report: Auston Matthews is on pace for 32 goals. What’s going on?**\
 `The new Leafs captain won the Rocket Richard with 69 goals just last season. What's behind his slow start?`\
 https://nytimes.com/athletic/5896579/2024/11/04/auston-matthews-maple-leafs-scoring/
