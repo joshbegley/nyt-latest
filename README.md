@@ -1,3 +1,11 @@
+**Braves decline option on catcher Travis d'Arnaud**\
+`It was widely assumed that the Braves would exercise d'Arnaud's 2025 team option for $8 million.`\
+https://nytimes.com/athletic/5898656/2024/11/04/braves-decline-option-travis-darnaud-free-agency/
+
+**Quincy Jones’s Half-Century of Unforgettable Music**\
+`His originality crossed a wide range of genres.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/quincy-jones-music
+
 **New Hanover County, N.C.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/new-hanover-county-nc
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/harris-san-francisco-district-attorne
 **49ers open McCaffrey's practice window setting up Week 10 return**\
 `McCaffrey has yet to play this season while recovering from the Achilles tendinitis that plagued him throughout training camp.`\
 https://nytimes.com/athletic/5898442/2024/11/04/49ers-open-christian-mccaffreys-practice-window-setting-up-week-10-return/
-
-**A Pendulous Overcoat for a Swing State**\
-`Temperatures fell this weekend, and Donald Trump reached for a familiar sartorial security blanket on the last leg of his campaign trail.`\
-https://nytimes.com/2024/11/04/style/trump-coat-campaign-trail.html
-
-**Blues' Philip Broberg out 4 to 6 weeks, but injury diagnosis 'could have been a lot worse'**\
-`Broberg left Saturday's game against the Leafs with a lower-body injury. P.O. Joseph and Scott Perunovich will get promotions with him out.`\
-https://nytimes.com/athletic/5898275/2024/11/04/blues-philip-broberg-injury-timeline/
 
