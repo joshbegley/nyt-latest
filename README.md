@@ -10,7 +10,7 @@ https://nytimes.com/2024/11/04/briefing/election-day-gaza-vaccines-moldova.html
 `Quotation of the Day for Monday, November 4, 2024.`\
 https://nytimes.com/2024/11/04/pageoneplus/quote-of-the-day-new-life-for-factory-towns-hobbled-by-china-shock.html
 
-**Raiders fired OC Luke Getsy after fifth straight loss this season**\
+**Raiders fired OC Luke Getsy after fifth straight loss**\
 `The Raiders are 2-7 and currently riding a five-game losing streak. `\
 https://nytimes.com/athletic/5896954/2024/11/03/raiders-luke-getsy-fired-offensive-coordinator/
 
