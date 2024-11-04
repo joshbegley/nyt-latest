@@ -1,3 +1,11 @@
+**Behind the Election Anger May Be Something Else: Lingering Covid Grief**\
+`In the first election after the pandemic, Americans are heading to the polls full of emotions.`\
+https://nytimes.com/2024/11/04/us/covid-grief-voters-election.html
+
+**NFL flexes Bengals-Chargers to 'Sunday Night Football' in Week 11**\
+`For the second time this season, a game has been moved to prime time. `\
+https://nytimes.com/athletic/5898746/2024/11/04/bengals-chargers-jets-colts-flex-schedule-week-11/
+
 **Canada Moves to Limit Oil and Gas Industry Carbon Emissions**\
 `The Trudeau government has focused on the oil and gas production industries because the large amounts of energy they use make them the country’s largest source of greenhouse gases.`\
 https://nytimes.com/2024/11/04/world/canada/canada-oil-gas-carbon-emissions.html
