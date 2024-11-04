@@ -1,3 +1,7 @@
+**What It Means to Come of Age in Climate Chaos**\
+`Today’s teenagers were born into the global-warming crisis, but already it’s upending their adolescence — and will define their future.`\
+https://nytimes.com/interactive/2024/11/04/magazine/climate-change-kids.html
+
 **On the issues: Where Harris and Trump stand on foreign policy.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-foreign-policy
