@@ -1,3 +1,7 @@
+**Moises Caicedo's Chelsea displays this year have cast aside questions over £115m fee**\
+`Moises Caicedo has been impressive for Chelsea this season and across the entirety of 2024`\
+https://nytimes.com/athletic/5895017/2024/11/04/moises-caicedo-chelsea-analysis/
+
 **What we learned about the Blackhawks from the 5-game road trip**\
 `Chicago's new-look lineup won consecutive games for the first time this season and won three of the five away games.`\
 https://nytimes.com/athletic/5896506/2024/11/04/chicago-blackhawks-road-trip/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888323/2024/11/04/ange-postecoglou-tottenham-hotsp
 **West Ham lack identity. Will Julen Lopetegui be given time to turn things around?**\
 `Forest are everything their visitors aspire to be. They have a potent striker, a settled midfield, pace on the flanks and a solid defence`\
 https://nytimes.com/athletic/5892543/2024/11/04/west-ham-forest-review/
-
-**James Van Der Beek, Star of ‘Dawson’s Creek,’ Says He Has Cancer**\
-`Mr. Van Der Beek, who played Dawson Leery in the ’90s drama, told People Magazine that he had been diagnosed with and was being treated for colorectal cancer.`\
-https://nytimes.com/2024/11/04/arts/dawsons-creek-james-van-der-beek-colorectal-cancer.html
 
