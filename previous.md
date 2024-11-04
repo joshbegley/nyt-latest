@@ -1,3 +1,7 @@
+**Vikings at the NFL trade deadline: 6 players who could make sense and why**\
+`The Vikings could be looking to add at CB and on the offensive and defensive lines. Here are six players they could target at the deadline.`\
+https://nytimes.com/athletic/5898881/2024/11/04/vikings-nfl-trade-deadline-odighizuwa-horn-campbell/
+
 **Fluoride, Vaccines, Obamacare: What to Know About Trump’s Health Statements**\
 `Donald Trump’s pledge to let Robert F. Kennedy Jr. “go wild on health” has put three issues on the agenda in the final days of the 2024 campaign.`\
 https://nytimes.com/2024/11/04/us/politics/trump-rfk-health-fluoride-vaccines-aca.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898949/2024/11/04/christian-mccaffrey-49ers-practi
 **Penn State's James Franklin outlines critical goal-line series against Ohio State: What went wrong?**\
 `Two drives that ended inside the Ohio State 5-yard line resulted in zero points for Penn State in a troubling loss to the Buckeyes. `\
 https://nytimes.com/athletic/5898757/2024/11/04/james-franklin-penn-state-ohio-state-play-calls-college-football/
-
-**Harris appeals to Latino pride, and anger at Trump, in a final push for votes.**\
-`By Jennifer Medina`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/harris-appeals-to-latino-pride-and-anger-at-trump-in-a-final-push-for-votes
 
