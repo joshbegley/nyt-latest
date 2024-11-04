@@ -1,3 +1,7 @@
+**Baleba joins Brighton injury list before City clash**\
+`Carlos Baleba has added to Brighton &amp; Hove Albion&#8217;s injury problems after only making the bench for the 2-1 defeat at Liverpool.`\
+https://nytimes.com/athletic/5893387/2024/11/04/carlos-baleba-brighton-injury/
+
 **'It was the best play I've ever seen': Saquon Barkley's influence on Eagles' win**\
 `“It was supposed to happen the way it happened," teammate Kelee Ringo said. "That's why it was so dope."`\
 https://nytimes.com/athletic/5895540/2024/11/04/saquon-barkley-eagles-win-best-play-ive-ever-seen/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/arts/television/election-night-tv-this-week.html
 **Every Vote in Every State Matters**\
 `Races for Congress in California, New York and every other state are crucial to putting a check on Donald Trump if he is re-elected.`\
 https://nytimes.com/2024/11/04/opinion/congress-election-2024.html
-
-**Ferdi Kadioglu is quickly becoming Brighton's new multi-tasking, Milner-style menace**\
-`The Turkish international was signed as a defender but his performance on the right wing at Anfield showed just how versatile he can be `\
-https://nytimes.com/athletic/5875003/2024/11/04/ferdi-kadioglu-versatility-anfield-performance/
 

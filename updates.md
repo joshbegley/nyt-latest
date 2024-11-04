@@ -1,3 +1,7 @@
+**Baleba joins Brighton injury list before City clash**\
+`Carlos Baleba has added to Brighton &amp; Hove Albion&#8217;s injury problems after only making the bench for the 2-1 defeat at Liverpool.`\
+https://nytimes.com/athletic/5893387/2024/11/04/carlos-baleba-brighton-injury/
+
 **'It was the best play I've ever seen': Saquon Barkley's influence on Eagles' win**\
 `“It was supposed to happen the way it happened," teammate Kelee Ringo said. "That's why it was so dope."`\
 https://nytimes.com/athletic/5895540/2024/11/04/saquon-barkley-eagles-win-best-play-ive-ever-seen/
