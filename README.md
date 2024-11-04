@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-
 https://nytimes.com/athletic/5896306/2024/11/03/chargers-win-tahreeb-still-defense-browns-playoffs/
 
 **Derek Carr wishes former teammate Michael Thomas 'the best'**\
-`Carr said he's not sure why Thomas has a problem with him but that he still "has love for" for his former teammate.`\
+`Carr said he's not sure why Thomas has a problem with him but that he still "has love for" his former teammate.`\
 https://nytimes.com/athletic/5896283/2024/11/03/derek-carr-michael-thomas-rant/
 
 **Bryce Young deserves starting nod with game-winning drive, growing confidence**\
