@@ -1,3 +1,7 @@
+**College football Week 11 odds, schedule: Georgia at Ole Miss, Alabama at LSU and more**\
+`The SEC has a pair of marquee matchups and there are close spreads for the main contenders in the Big 12 race.`\
+https://nytimes.com/athletic/5898164/2024/11/04/college-football-week-11-odds-schedule-georgia-ole-miss-alabama-lsu/
+
 **Hazardous Smog Cloaks Pakistan’s 2nd-Largest City**\
 `Lahore, a city of about 11 million people, will close its primary schools for a week after reporting record levels of air pollution.`\
 https://nytimes.com/video/world/asia/100000009802431/lahore-pakistan-smog-air-pollution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/kennedy-trump-2024.html
 **Trump’s Crowds Are Dwindling as His Campaign Winds Down**\
 `The former president likes to talk about the attendance at his rallies, but empty seats and early exits have grown more common.`\
 https://nytimes.com/2024/11/04/us/politics/trump-rally-crowds.html
-
-**‘Yesterday was yesterday’: Pastrnak looks for answers after third-period benching**\
-`Pastrnak says he will "take responsibility for being better. At the same time, I’m just moving forward today, focusing for another game."`\
-https://nytimes.com/athletic/5898226/2024/11/04/bruins-david-pastrnak-benching/
 
