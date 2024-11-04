@@ -1,3 +1,7 @@
+**Iranians Wonder if Trump Wins, Would Things Be Different This Time?**\
+`While Donald J. Trump is seen by many in Tehran as having been disastrous for their country, some hope he might be more open to negotiation in a second term as U.S. president.`\
+https://nytimes.com/2024/11/04/world/middleeast/iran-trump-harris.html
+
 **2 Police Officers Charged With Reckless Manslaughter in Ohio Man’s Death**\
 `The two police officers, who are white, held down the man, who was Black, for seven minutes as he told them he could not breathe.`\
 https://nytimes.com/2024/11/04/us/police-charged-manslaughter-canton-ohio-frank-tyson.html
