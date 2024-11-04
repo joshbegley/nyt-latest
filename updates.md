@@ -1,3 +1,7 @@
+**Musk’s $1 Million Checks to Voters Don’t Violate Law, Judge Rules**\
+`Elon Musk’s super PAC has been giving away $1 million daily to registered voters who signed a petition supporting the Constitution.`\
+https://nytimes.com/2024/11/04/us/politics/elon-musk-america-pac-sweepstakes-ruling.html
+
 **Quincy Jones Orchestrated the Sound of America**\
 `Jones, who died at 91, erased boundaries, connected worlds and embraced delight. As a producer, he coaxed ingenuity from his players and singers.`\
 https://nytimes.com/2024/11/04/arts/music/quincy-jones-death-michael-jackson.html
