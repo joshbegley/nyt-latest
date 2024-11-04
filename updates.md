@@ -1,3 +1,15 @@
+**Where There’s Joy in a Terror Bird**\
+`In Colombia, a fossil-collecting rancher has found a giant, flightless killer from 13 million years ago — and a missing link to the region’s evolutionary history.`\
+https://nytimes.com/2024/11/04/science/fossils-colombia-terror-birds.html
+
+**Election Night, Plus Five Things to Watch on TV This Week**\
+`Tune into the major networks’ election coverage, catch up on the teen drama “The Outer Banks” and dive into a bunch of true-crime docuseries.`\
+https://nytimes.com/2024/11/04/arts/television/election-night-tv-this-week.html
+
+**Every Vote in Every State Matters**\
+`Races for Congress in California, New York and every other state are crucial to putting a check on Donald Trump if he is re-elected.`\
+https://nytimes.com/2024/11/04/opinion/congress-election-2024.html
+
 **An Indonesian Tribe’s Language Gets an Alphabet: Korea’s**\
 `The Cia-Cia language has been passed down orally for centuries. Now the tribe’s children are learning to write it in Hangul, the Korean script.`\
 https://nytimes.com/2024/11/04/world/asia/indonesia-korea-hangul.html
