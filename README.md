@@ -1,3 +1,7 @@
+**Hazardous Smog Cloaks Pakistan’s 2nd-Largest City**\
+`Lahore, a city of about 11 million people, will close its primary schools for a week after reporting record levels of air pollution.`\
+https://nytimes.com/video/world/asia/100000009802431/lahore-pakistan-smog-air-pollution.html
+
 **Long After Sunset, the Final Two Runners Cross the Marathon Finish Line**\
 `Two runners with injuries ended the New York City Marathon on their own two feet — and a pair of crutches.`\
 https://nytimes.com/2024/11/04/nyregion/nyc-marathon-final-finishers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/trump-rally-crowds.html
 **‘Yesterday was yesterday’: Pastrnak looks for answers after third-period benching**\
 `Pastrnak says he will "take responsibility for being better. At the same time, I’m just moving forward today, focusing for another game."`\
 https://nytimes.com/athletic/5898226/2024/11/04/bruins-david-pastrnak-benching/
-
-**What to know as arbitration begins in Timberwolves, Lynx ownership dispute**\
-`An arbitration panel will hear arguments before deciding whether Glen Taylor or Marc Lore and Alex Rodriguez have majority ownership.`\
-https://nytimes.com/athletic/5893780/2024/11/04/timberwolves-arbitration-glen-taylor-marc-lore-alex-rodriguez/
 
