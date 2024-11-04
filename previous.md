@@ -1,40 +1,40 @@
-**The Athletic 134: Can Boise State climb higher than No. 12?**\
-`Would a 12-1 Mountain West champion Boise State land higher than 12 and possibly even earn the No. 4 seed?`\
-https://nytimes.com/athletic/5896558/2024/11/04/college-football-fbs-team-rankings-cfp/
+**A Librarian From Louisiana Fights Book Bans and ‘the Haters’**\
+`Amanda Jones, who will attend a gala on Monday at the New York Public Library, lobbied against restrictions on libraries — and faced a backlash.`\
+https://nytimes.com/2024/11/04/nyregion/amanda-jones-libraries-book-bans.html
 
-**Second Trial in Teacher’s Killing Begins in France**\
-`Eight more people are facing charges over the 2020 murder of the teacher, Samuel Paty, who had displayed caricatures of the Prophet Muhammad as an illustration of free speech.`\
-https://nytimes.com/2024/11/04/world/europe/france-paty-beheading-trial.html
+**Sun Belt, Rust Belt, Barbecue Belt: America’s Debatable Regions**\
+`The United States it may be, but America is a patchwork of regions whose boundaries can be confusing — and up for debate. Especially around Election Day.`\
+https://nytimes.com/2024/11/04/us/elections/election-terms-guide.html
 
-**A Small Thing That Gives Me a Tiny Shred of Hope**\
-`A wee flame flickering in the dark.`\
-https://nytimes.com/2024/11/04/podcasts/a-small-thing-that-gives-me-hope-this-american-life-nyt-audio.html
+**Sorry, Mom. I’m Skipping Your Turkey Dinner for a Solo Vacation.**\
+`Seeking self-care and a respite from the pressures of the season, more Americans are viewing the holidays as a perfect time to take a trip on their own.`\
+https://nytimes.com/2024/11/04/travel/thanksgiving-solo-trip-holidays.html
 
-**Quincy Jones, Giant of American Music, Dies at 91**\
-`As a producer, he made the best-selling album of all time, Michael Jackson’s “Thriller.” He was also a prolific arranger and composer of film music.`\
-https://nytimes.com/2024/11/04/arts/music/quincy-jones-dead.html
+**The Art of Not Belonging: Ralph Lemon Takes Over MoMA PS1**\
+`In certain circles, the name Ralph — like Merce or Madonna — lights up a room. The choreographer and visual artist is the subject of a major exhibition of his art and performances.`\
+https://nytimes.com/2024/11/04/arts/dance/moma-ps1-ralph-lemon.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/04/crosswords/spelling-bee-forum.html
+**Child Care Costs Are Swallowing Their Paychecks, and These Voters Want Solutions**\
+`Talk of inflation, immigration and abortion have taken center stage in the campaign, but women in battlegrounds like Wisconsin say that the cost and quality of child care have become a major concern.`\
+https://nytimes.com/2024/11/04/us/child-care-costs-election.html
 
-**Barcelona's dream week (and a half): Bayern win, Madrid demolition and Ballon d'Or mischief**\
-`Barcelona have had a week in dreamland - they have reasons to think their fantasy can keep going`\
-https://nytimes.com/athletic/5896000/2024/11/04/barcelona-dream-week-bayern-real-madrid-ballon-dor/
+**He Lived in the Same Apartment for 30 Years. Then Came a Knock on the Door.**\
+`After an emergency evacuation put them into limbo, tenants of a New York building are still awaiting a court decision that might help them recover their past lives.`\
+https://nytimes.com/2024/11/04/realestate/renters-evacuation-east-village-new-york.html
 
-**Baleba joins Brighton injury list before City clash**\
-`Carlos Baleba has added to Brighton &amp; Hove Albion&#8217;s injury problems after only making the bench for the 2-1 defeat at Liverpool.`\
-https://nytimes.com/athletic/5893387/2024/11/04/carlos-baleba-brighton-injury/
+**Foreclosures in China Soar, Threatening to Choke Off Bank Profits**\
+`When the housing market was flying high, mortgage defaults were almost nonexistent. But now the legal system is struggling to keep up with evictions.`\
+https://nytimes.com/2024/11/04/business/china-foreclosures-mortgages.html
 
-**'It was the best play I've ever seen': Saquon Barkley's influence on Eagles' win**\
-`“It was supposed to happen the way it happened," teammate Kelee Ringo said. "That's why it was so dope."`\
-https://nytimes.com/athletic/5895540/2024/11/04/saquon-barkley-eagles-win-best-play-ive-ever-seen/
+**Kareem Rahma’s American Dream**\
+`The creator and host of “Subway Takes” and “Keep the Meter Running” makes New Yorkers — and the Democratic presidential ticket — explain themselves.`\
+https://nytimes.com/2024/11/04/arts/kareem-rahma-subway-takes.html
 
-**At Least 10 Killed in Indonesia After Volcano Erupts**\
-`The authorities warned of more volcanic activity at Mount Lewotobi Laki-laki, which has erupted dozens of times in the past few weeks.`\
-https://nytimes.com/2024/11/04/world/asia/indonesia-volcano-eruption.html
+**Doctors Should Have to Report Medically Impaired Drivers**\
+`We are perhaps uniquely qualified to address this issue.`\
+https://nytimes.com/2024/11/04/opinion/dementia-driving.html
 
-**Indonesia Volcano Eruption Covers Village in Ash**\
-`Mount Lewotobi Laki-laki erupted on Sunday, killing several people and forcing others to flee their villages.`\
-https://nytimes.com/video/world/asia/100000009801953/indonesia-volcano-eruption.html
+**Paige Bueckers vs. JuJu Watkins: How UConn, USC stars will keep women's basketball in spotlight**\
+`After Caitlin Clark created a buzz last season, Watkins and Bueckers are expected to harness the momentum. `\
+https://nytimes.com/athletic/5891696/2024/11/04/paige-bueckers-juju-watkins-uconn-usc-basketball/
 
