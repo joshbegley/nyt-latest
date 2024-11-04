@@ -1,3 +1,7 @@
+**Do You Know These Space Books That Were Adapted Into Hit Movies?**\
+`This short trivia quiz tests your knowledge of fiction and nonfiction works that were made into popular films about space exploration and the quest to connect with other worlds.`\
+https://nytimes.com/interactive/2024/11/04/books/review/space-books-quiz.html
+
 **Arsenal sporting director Edu set to leave club**\
 `Arsenal sporting director Edu is set to leave the club.`\
 https://nytimes.com/athletic/5806690/2024/11/04/arsenal-edu-leaves-club/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/business/dealbook/selzer-poll-trump-trade.html
 **WSL Briefing: Chelsea's attacking riches, Arsenal wasteful, West Ham's bizarre own goal**\
 `Erin Cuthbert clears up speculation over her goal celebration and it's the same old problem for Arsenal`\
 https://nytimes.com/athletic/5897112/2024/11/04/wsl-briefing-chelsea-goals/
-
-**Ancelotti says La Liga matches should have been cancelled due to Valencia flooding**\
-`Real Madrid head coach Carlo Ancelotti says he believes the weekend’s round of La Liga matches should have been postponed due to the flooding in Valencia.`\
-https://nytimes.com/athletic/5897394/2024/11/04/carlo-ancelotti-valencia-flooding/
 
