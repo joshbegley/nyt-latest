@@ -1,3 +1,7 @@
+**Gundy: OK State critics 'are the same ones that can’t pay their own bills'**\
+`"They’re not taking care of themselves. They’re not taking care of their own family. They’re not taking care of their own job,” he said.`\
+https://nytimes.com/athletic/5899042/2024/11/04/mike-gundy-oklahoma-state-comments/
+
 **As Election Day nears, yard signs disappear.**\
 `By Corey Kilgannon`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/as-election-day-nears-yard-signs-disappear
