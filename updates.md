@@ -1,3 +1,7 @@
+**Who Wins Wisconsin May Depend on This Crumbling G.O.P. Stronghold**\
+`Waukesha County, a suburban area that was long the heart of Wisconsin Republican politics, has moved left. Kamala Harris is trying to accelerate that shift, and Donald Trump needs it to slow.`\
+https://nytimes.com/2024/11/04/us/politics/wisconsin-waukesha-county-trump-harris.html
+
 **Saints fire Dennis Allen after 2-7 start, name Darren Rizzi interim coach**\
 `Allen succeeded Sean Payton after six successful seasons as the Saints' defensive coordinator.`\
 https://nytimes.com/athletic/5168315/2024/11/04/dennis-allen-fired-saints/
