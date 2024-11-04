@@ -1,3 +1,7 @@
+**'It was the best play I've ever seen': Saquon Barkley's influence on Eagles' win**\
+`“It was supposed to happen the way it happened," teammate Kelee Ringo said. "That's why it was so dope."`\
+https://nytimes.com/athletic/5895540/2024/11/04/saquon-barkley-eagles-win-best-play-ive-ever-seen/
+
 **At Least 10 Killed in Indonesia After Volcano Erupts**\
 `The authorities warned of more volcanic activity at Mount Lewotobi Laki-laki, which has erupted dozens of times in the past few weeks.`\
 https://nytimes.com/2024/11/04/world/asia/indonesia-volcano-eruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/opinion/congress-election-2024.html
 **Ferdi Kadioglu is quickly becoming Brighton's new multi-tasking, Milner-style menace**\
 `The Turkish international was signed as a defender but his performance on the right wing at Anfield showed just how versatile he can be `\
 https://nytimes.com/athletic/5875003/2024/11/04/ferdi-kadioglu-versatility-anfield-performance/
-
-**Pairing Duran with Watkins was a risk - and very unlike Emery**\
-`Emery threw Villa's game plan out of the window when he brought on Duran, and his team were punished against Spurs`\
-https://nytimes.com/athletic/5894638/2024/11/04/aston-villa-duran-watkins-emery/
 
