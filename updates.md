@@ -1,3 +1,7 @@
+**Cardinals run over Bears 29-9 for third straight win: Takeaways**\
+`The Cardinals have won three in a row for the first time since 2021 and they sit atop the NFC West.`\
+https://nytimes.com/athletic/5894558/2024/11/03/bears-cardinals-score-takeaways-result/
+
 **A Vivid Trump-Harris Contrast in the Campaign’s Grueling Final Days**\
 `As Kamala Harris visited a church in Detroit on the last Sunday of the campaign, Donald J. Trump told supporters that he “shouldn’t have left” the White House after the 2020 election.`\
 https://nytimes.com/2024/11/03/us/politics/harris-trump-campaign.html
