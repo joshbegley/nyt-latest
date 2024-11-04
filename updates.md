@@ -1,3 +1,15 @@
+**Charli XCX, Leonardo DiCaprio and Colman Domingo Turn Out for the LACMA Gala**\
+`Hollywood stars mingled with artists for a benefit honoring the artist Simone Leigh and the filmmaker Baz Luhrmann.`\
+https://nytimes.com/2024/11/03/style/lacma-gala-photos.html
+
+**Struggling Patriots offense comes down to hoping Drake Maye can make a play**\
+`With an offensive line that can't block, no running game and ineffective pass catchers, the Patriots are asking Maye to do everything.`\
+https://nytimes.com/athletic/5895905/2024/11/03/drake-maye-patriots-titans-offense/
+
+**Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
+`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. Could that happen Monday? `\
+https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
+
 **Browns snap back to reality after being outclassed by Chargers from start to finish**\
 `Another error-filled effort served as a reminder that Cleveland's feel-good rally to beat Baltimore last week was just an aberration.`\
 https://nytimes.com/athletic/5895874/2024/11/03/browns-loss-jameis-winston-chargers/

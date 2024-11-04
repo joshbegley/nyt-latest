@@ -1,3 +1,11 @@
+**Charli XCX, Leonardo DiCaprio and Colman Domingo Turn Out for the LACMA Gala**\
+`Hollywood stars mingled with artists for a benefit honoring the artist Simone Leigh and the filmmaker Baz Luhrmann.`\
+https://nytimes.com/2024/11/03/style/lacma-gala-photos.html
+
+**Struggling Patriots offense comes down to hoping Drake Maye can make a play**\
+`With an offensive line that can't block, no running game and ineffective pass catchers, the Patriots are asking Maye to do everything.`\
+https://nytimes.com/athletic/5895905/2024/11/03/drake-maye-patriots-titans-offense/
+
 **Browns snap back to reality after being outclassed by Chargers from start to finish**\
 `Another error-filled effort served as a reminder that Cleveland's feel-good rally to beat Baltimore last week was just an aberration.`\
 https://nytimes.com/athletic/5895874/2024/11/03/browns-loss-jameis-winston-chargers/
@@ -11,7 +19,7 @@ https://nytimes.com/2024/11/03/us/boat-missing-bodega-bay.html
 https://nytimes.com/athletic/5895924/2024/11/03/kirk-cousins-falcons-cowboys-nfl/
 
 **Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
-`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders offensive issue. Could that happen Monday? `\
+`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. Could that happen Monday? `\
 https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
 
 **Harris and Trump have been fighting to win over Arab American voters.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/03/us/politics/harris-trump-campaign.html
 **Broncos' lopsided loss to Ravens shows a long climb to be among AFC's elite**\
 `The Ravens scored three consecutive TDs across the second and third quarters without the Broncos gaining a yard. "We got whupped today."`\
 https://nytimes.com/athletic/5895570/2024/11/03/broncos-loss-ravens-lopsided-afc-contenders/
-
-**NASCAR semifinal race overshadowed by wall-ride controversy**\
-`An illegal move and possible race manipulation caused a delay in finding out who earned the final spot for NASCAR's championship race.`\
-https://nytimes.com/athletic/5895889/2024/11/03/nascar-semifinal-controversy-christopher-bell/
-
-**The Commanders get contributions from all over their roster to keep the party going**\
-`The Commanders improved to 7-2 Sunday, holding on to first place in the NFC East after their 27-22 victory over the Giants.`\
-https://nytimes.com/athletic/5895160/2024/11/03/commanders-beat-giants-jayden-daniels-keep-party-going/
 
