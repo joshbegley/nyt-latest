@@ -1,3 +1,15 @@
+**Browns snap back to reality after being outclassed by Chargers from start to finish**\
+`Another error-filled effort served as a reminder that Cleveland's feel-good rally to beat Baltimore last week was just an aberration.`\
+https://nytimes.com/athletic/5895874/2024/11/03/browns-loss-jameis-winston-chargers/
+
+**1 Dead and 4 Are Missing After Boat Capsizes Off California**\
+`A search began after reports of six overdue boaters Saturday. Officials said a child was rescued and in stable condition and the body of a teenager was recovered.`\
+https://nytimes.com/2024/11/03/us/boat-missing-bodega-bay.html
+
+**How far can the Falcons go with Kirk Cousins? At this pace, 'the sky's the limit'**\
+`The Falcons have won five of their last six games, and coach Raheem Morris says, "Kirk Cousins is exactly what I thought he was.”`\
+https://nytimes.com/athletic/5895924/2024/11/03/kirk-cousins-falcons-cowboys-nfl/
+
 **Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
 `Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders offensive issue. Could that happen Monday? `\
 https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
