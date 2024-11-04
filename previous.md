@@ -1,3 +1,23 @@
+**Matt Boldy plays overtime hero as the Wild keep winning: 3 takeaways**\
+`In a battle of sputtering special teams, the Wild were able to pull off the win thanks to an excellent backcheck by Jared Spurgeon.`\
+https://nytimes.com/athletic/5895752/2024/11/03/wild-matt-boldy-overtime-leafs/
+
+**Tyler Bass' big moment, Josh Allen's patience, Greg Rousseau's role change: Bills observations**\
+`After struggling for a while, Tyler Bass finally broke through with a massive game-winner.`\
+https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-dolphins/
+
+**Why Chargers rookie Tarheeb Still has been a 'gift from the football gods'**\
+`Still delivered his first NFL interception and a perfectly executed tipped pass led to another in the Chargers' win in Cleveland.`\
+https://nytimes.com/athletic/5896306/2024/11/03/chargers-win-tahreeb-still-defense-browns-playoffs/
+
+**Derek Carr wishes former teammate Michael Thomas 'the best'**\
+`Carr said he's not sure why Thomas has a problem with him but that he still "has love for" for his former teammate.`\
+https://nytimes.com/athletic/5896283/2024/11/03/derek-carr-michael-thomas-rant/
+
+**Bryce Young deserves starting nod with game-winning drive, growing confidence**\
+`It wasn't a perfect performance by Young or the Panthers on Sunday, but Dave Canales should let his QB build on his momentum.`\
+https://nytimes.com/athletic/5896124/2024/11/03/panthers-win-bryce-young-game-winning-drive-saints/
+
 **Paul George expected to make 76ers debut Monday vs. Suns**\
 `George has yet to play this season after hyperextending his left knee in a preseason game against the Atlanta Hawks on Oct. 14.`\
 https://nytimes.com/athletic/5896274/2024/11/03/paul-george-season-debut-76ers-suns/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5896052/2024/11/03/browns-chargers-jameis-winston-t
 **Lions look to be class of NFC North in 24-14 win over Packers: Takeaways**\
 `Detroit's defense depth steps up and a versatile offense prove they have what it takes to be the league's best.`\
 https://nytimes.com/athletic/5894567/2024/11/03/lions-packers-score-takeaways-result/
-
-**Hurts, Barkley, Dean help Eagles to 28-23 win vs. Jaguars: Takeaways**\
-`The help of a few clutch fourth-quarter plays pushed the Eagles to their fourth consecutive win.`\
-https://nytimes.com/athletic/5894563/2024/11/03/jaguars-eagles-score-takeaways-result/
-
-**Judge Allows Iowa to Challenge Voters It Suspects of Being Noncitizens**\
-`A federal judge appointed by President Biden allowed the challenge to continue, but voiced concerns at some of the measures taken by Iowa’s secretary of state.`\
-https://nytimes.com/2024/11/03/us/politics/iowa-noncitizens-judge-voting.html
-
-**Despite another Cowboys loss, Jerry Jones says he's still all in and could upgrade roster**\
-`The Cowboys owner and GM said after their third consecutive loss that they're going to do whatever they can to "improve this team."`\
-https://nytimes.com/athletic/5896075/2024/11/03/cowboys-lose-jerry-jones-trade-deadline-falcons/
-
-**Red Bulls knock reigning MLS Cup champion Crew out of playoffs**\
-`The New York Red Bulls pulled off one of the biggest shocks in MLS playoff history, knocking off the Columbus Crew in a two-game sweep.`\
-https://nytimes.com/athletic/5896156/2024/11/03/red-bulls-crew-elminiation-mls-playoffs/
-
-**An angry Joe Burrow grabs the wheel to get Bengals' season back on track amid chaos**\
-`After Cincinnati had to scrap a big part of their game plan, Burrow threw the team on his back to keep the season’s goals in sight.`\
-https://nytimes.com/athletic/5895935/2024/11/03/bengals-win-joe-burrow-angry-raiders/
 
