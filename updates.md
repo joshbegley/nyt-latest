@@ -1,3 +1,9 @@
+**Erie County, Pa.**\
+`By Billy Witz`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/erie-county-pa
+
+**I Test Kitchen Tools for a Living. This $12 Staple Is the One Item I’ll Never Give Up. **\
+
 **What I'm seeing after 11 Senators games: Identity is forming, but can they be consistent?**\
 `The Senators are still piecing their identity together, but their last three games have shown what kind of team they want to be this season.`\
 https://nytimes.com/athletic/5892392/2024/11/04/ottawa-senators-tkachuk-stutzle-travis-green/
