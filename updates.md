@@ -1,3 +1,7 @@
+**Colts' pivot to Joe Flacco falls flat vs. Vikings; Shane Steichen left without answers again**\
+`Flacco was supposed to give the Colts the best chance to win. Instead, the Indy offense looked worse Sunday than it has all season. `\
+https://nytimes.com/athletic/5897155/2024/11/04/colts-shane-steichen-joe-flacco-vikings-loss/
+
 **As free agency begins, where the Reds' roster stands**\
 `The Reds have yet to nail down the budget for next season, but they've got at least four needs to address this winter.`\
 https://nytimes.com/athletic/5895723/2024/11/04/reds-roster-free-agency/
