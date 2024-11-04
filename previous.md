@@ -1,3 +1,7 @@
+**The Core of Kennedy’s Pitch for Trump? Kennedy.**\
+`Even as the former presidential candidate Robert F. Kennedy Jr. has endorsed Donald J. Trump and campaigned for him, his message to voters is clear: Vote Trump to get me.`\
+https://nytimes.com/2024/11/04/us/politics/kennedy-trump-2024.html
+
 **Trump’s Crowds Are Dwindling as His Campaign Winds Down**\
 `The former president likes to talk about the attendance at his rallies, but empty seats and early exits have grown more common.`\
 https://nytimes.com/2024/11/04/us/politics/trump-rally-crowds.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897488/2024/11/04/bam-adebayo-erik-spoelstra-miami
 **Florida QB DJ Lagway not ruled out for return after injury vs. UGA**\
 `Florida coach Billy Napier told reporters Monday that quarterback DJ Lagway's injury is not as significant as feared.`\
 https://nytimes.com/athletic/5893339/2024/11/04/dj-lagway-injury-florida-georgia/
-
-**Scoop City: Risers and fallers after Week 9**\
-`A quick look at the risers (Bills, Commanders and Lions), fallers (Colts) and the NFC North after Sunday's games.`\
-https://nytimes.com/athletic/5897982/2024/11/04/scoop-city-risers-and-fallers-after-week-9/
 

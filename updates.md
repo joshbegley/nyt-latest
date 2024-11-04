@@ -1,3 +1,7 @@
+**The Core of Kennedy’s Pitch for Trump? Kennedy.**\
+`Even as the former presidential candidate Robert F. Kennedy Jr. has endorsed Donald J. Trump and campaigned for him, his message to voters is clear: Vote Trump to get me.`\
+https://nytimes.com/2024/11/04/us/politics/kennedy-trump-2024.html
+
 **Trump’s Crowds Are Dwindling as His Campaign Winds Down**\
 `The former president likes to talk about the attendance at his rallies, but empty seats and early exits have grown more common.`\
 https://nytimes.com/2024/11/04/us/politics/trump-rally-crowds.html
