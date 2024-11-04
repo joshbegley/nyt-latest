@@ -1,3 +1,11 @@
+**Judge Allows Iowa to Challenge Voters It Suspects of Being Noncitizens**\
+`A federal judge appointed by President Biden allowed the challenge to continue, but voiced concerns at some of the measures taken by Iowa’s secretary of state.`\
+https://nytimes.com/2024/11/03/us/politics/iowa-noncitizens-judge-voting.html
+
+**Despite another Cowboys loss, Jerry Jones says he's still all in and could upgrade roster**\
+`The Cowboys owner and GM said after their third consecutive loss that they're going to do whatever they can "to improve this team."`\
+https://nytimes.com/athletic/5896075/2024/11/03/cowboys-lose-jerry-jones-trade-deadline-falcons/
+
 **Despite another Cowboys loss, Jerry Jones says he's still all-in and could upgrade roster**\
 `The Cowboys owner and GM said after their third consecutive loss that they're going to do whatever they can "to improve this team."`\
 https://nytimes.com/athletic/5896075/2024/11/03/cowboys-lose-jerry-jones-trade-deadline-falcons/
