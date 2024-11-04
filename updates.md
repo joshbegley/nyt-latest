@@ -1,3 +1,7 @@
+**Do You Know These Space Books That Were Adapted Into Hit Movies?**\
+`This short trivia quiz tests your knowledge of fiction and nonfiction works that were made into popular films about space exploration and the quest to connect with other worlds.`\
+https://nytimes.com/interactive/2024/11/04/books/review/space-books-quiz.html
+
 **Arsenal sporting director Edu set to leave club**\
 `Arsenal sporting director Edu is set to leave the club.`\
 https://nytimes.com/athletic/5806690/2024/11/04/arsenal-edu-leaves-club/
