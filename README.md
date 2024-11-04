@@ -1,3 +1,11 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Friendly reminder: This week&#8217;s Mailbag will go up the morning <em>after</em> the committee&#8217;s first rankings. Plan or time your questions accordingly.</p>
+<p>Please include your city. And please do not mention the election. (Like, ever.)</p>
+<p>&nbsp;</p>
+<p>&nbsp;</p>
+`\
+https://nytimes.com/athletic/5899147/2024/11/04/submit-a-question-for-stewart-mandels-college-football-mailbag-280/
+
 **Jason Kelce addresses altercation with fan who insulted Travis about dating Taylor Swift**\
 `The ESPN analyst and former Eagles center commented on the incident at the start of "Monday Night Countdown."`\
 https://nytimes.com/athletic/5898997/2024/11/04/jason-kelce-taylor-swift-fan-altercation-comments-espn/
@@ -33,8 +41,4 @@ https://nytimes.com/2024/11/04/nyregion/daniel-penny-trial-subway-chokehold-case
 **Philharmonic Dismisses 2 Players Over Sexual Misconduct Accusations**\
 `The orchestra said an inquiry found credible claims against the musicians of sexual assault and harassment. They denied the charges.`\
 https://nytimes.com/2024/11/04/arts/music/new-york-philharmonic-sexual-misconduct.html
-
-**Vikings at the NFL trade deadline: 6 players who could make sense and why**\
-`The Vikings could be looking to add at CB and on the offensive and defensive lines. Here are six players they could target at the deadline.`\
-https://nytimes.com/athletic/5898881/2024/11/04/vikings-nfl-trade-deadline-odighizuwa-horn-campbell/
 
