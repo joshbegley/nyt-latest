@@ -1,3 +1,7 @@
+**Gutting loss to Rams makes clear who Seahawks are: A team that’s not quite good enough**\
+`The Seahawks have lost five of six and now sit last in the division after a series of back-breaking mistakes against the Rams.`\
+https://nytimes.com/athletic/5896674/2024/11/03/seahawks-loss-geno-smith-rams/
+
 **Instead of a team on the rise, the Bears seem to be teetering on change, again**\
 `Matt Eberflus says the Bears need to "circle the wagons." Sadly, Bears fans have heard it all before, many times.`\
 https://nytimes.com/athletic/5896592/2024/11/03/bears-matt-eberflus-loss-cardinals/
