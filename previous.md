@@ -1,10 +1,14 @@
+**Can the Chiefs go undefeated? Projecting Kansas City's remaining games**\
+`Since 2000, 25 teams have started at least 7-0. Only seven of those teams stretched their undefeated starts beyond 10 games.`\
+https://nytimes.com/athletic/5879940/2024/11/04/chiefs-undefeated-regular-season-probability/
+
 **How Cannabis Use is Changing Across the U.S.**\
 `As voters weigh in on measures that would broaden marijuana access, recent data reveals unexpected trends in who uses it, and how.`\
 https://nytimes.com/2024/11/04/well/weed-cannabis-america.html
 
 **When Chronic Diseases Come With Chronic Financial Pressure**\
 `For millions of Americans, paying for the treatment needed to manage their diseases can become its own lifelong problem.`\
-https://nytimes.com/2024/11/04/well/when-chronic-diseases-come-with-chronic-financial-pressure.html
+https://nytimes.com/2024/11/04/well/chronic-disease-medication-insurance-costs.html
 
 **NASCAR Martinsville takeaways: The power of must-win, predicting the champion**\
 `Ryan Blaney seized a must-win moment and helped upend the Championship 4, predictions for the title race and more from Martinsville.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/nashville-sales-tax-infrastructure.ht
 **On the issues: Where Harris and Trump stand on Israel and Gaza.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-israel-and-gaza
-
-**NBA Rewind: The Joel Embiid controversy, Drake vs. DeMar DeRozan and beefy weekend**\
-`Results took a backseat to feuds around the league last weekend.`\
-https://nytimes.com/athletic/5893171/2024/11/04/nba-rewind-joel-embiid-demar-derozan/
 

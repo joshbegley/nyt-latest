@@ -1,3 +1,11 @@
+**Can the Chiefs go undefeated? Projecting Kansas City's remaining games**\
+`Since 2000, 25 teams have started at least 7-0. Only seven of those teams stretched their undefeated starts beyond 10 games.`\
+https://nytimes.com/athletic/5879940/2024/11/04/chiefs-undefeated-regular-season-probability/
+
+**When Chronic Diseases Come With Chronic Financial Pressure**\
+`For millions of Americans, paying for the treatment needed to manage their diseases can become its own lifelong problem.`\
+https://nytimes.com/2024/11/04/well/chronic-disease-medication-insurance-costs.html
+
 **How Cannabis Use is Changing Across the U.S.**\
 `As voters weigh in on measures that would broaden marijuana access, recent data reveals unexpected trends in who uses it, and how.`\
 https://nytimes.com/2024/11/04/well/weed-cannabis-america.html
