@@ -1,3 +1,15 @@
+**How is The Times covering the 2024 election?**\
+`By Megan DiTrolio`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/how-is-the-times-covering-the-2024-election
+
+**More than 78 million people have voted early, in a relatively smooth process.**\
+`But the flood of early voting does little to offer a clear picture of who is likely to win the election.`\
+https://nytimes.com/2024/11/04/us/politics/more-than-78-million-people-have-voted-early-in-a-relatively-smooth-process.html
+
+**A Day-by-Day Forecast for Tropical Storm Rafael**\
+`The storm is expected to move through the Caribbean in the next few days. Forecasters are uncertain of where it will go once it enters the Gulf of Mexico by the middle of the week.`\
+https://nytimes.com/2024/11/04/weather/tropical-storm-rafael-forecast-florida.html
+
 **Behind the Election Anger May Be Something Else: Lingering Covid Grief**\
 `In the first election after the pandemic, Americans are heading to the polls full of emotions.`\
 https://nytimes.com/2024/11/04/us/covid-grief-voters-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5898645/2024/11/04/xabi-alonso-liverpool-return-slo
 **When will the presidential race be called? Here’s what to know.**\
 `It could take days to know the winner, as it did in 2020, because counting mail ballots takes time. But returns on election night could also offer clarity.`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/when-will-the-presidential-race-be-called-heres-what-to-know
-
-**Tracking Tropical Storm Rafael**\
-`See the likely path and wind arrival times for Rafael.`\
-https://nytimes.com/interactive/2024/11/04/weather/rafael-map-path-tracker.html
-
-**No Train to Rockaways for 4 Months? Cuomo, Eyeing Mayor’s Race, Objects.**\
-`Former Gov. Andrew M. Cuomo, who is eyeing a potential run for New York City mayor next year, criticized plans to close part of the A train in the Rockaways for months.`\
-https://nytimes.com/2024/11/04/nyregion/cuomo-a-train-mta.html
-
-**We’ve Been Underestimating the Scale of Women’s Fury**\
-`If Trump loses on Tuesday, we’ll know why.`\
-https://nytimes.com/2024/11/04/opinion/women-polls-trump-iowa.html
 
