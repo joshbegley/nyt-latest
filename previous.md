@@ -1,3 +1,11 @@
+**Lloyd: Blow up the Browns. This miserable season should lead to an active trade deadline**\
+`“I’ve never been in this situation ... where the season is over before the bye week," one veteran said after Sunday's loss to the Chargers.`\
+https://nytimes.com/athletic/5896052/2024/11/03/browns-chargers-jameis-winston-trade-deadline/
+
+**Lions look to be class of NFC North in 24-14 win over Packers: Takeaways**\
+`Detroit's defense depth steps up and a versatile offense prove they have what it takes to be the league's best.`\
+https://nytimes.com/athletic/5894567/2024/11/03/lions-packers-score-takeaways-result/
+
 **Hurts, Barkley, Dean help Eagles to 28-23 win vs. Jaguars: Takeaways**\
 `The help of a few clutch fourth-quarter plays pushed the Eagles to their fourth consecutive win.`\
 https://nytimes.com/athletic/5894563/2024/11/03/jaguars-eagles-score-takeaways-result/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5895905/2024/11/03/drake-maye-patriots-titans-offen
 **Browns snap back to reality after being outclassed by Chargers from start to finish**\
 `Another error-filled effort served as a reminder that Cleveland's feel-good rally to beat Baltimore last week was just an aberration.`\
 https://nytimes.com/athletic/5895874/2024/11/03/browns-loss-jameis-winston-chargers/
-
-**1 Dead and 4 Are Missing After Boat Capsizes Off California**\
-`A search began after reports of six overdue boaters Saturday. Officials said a child was rescued and in stable condition and the body of a teenager was recovered.`\
-https://nytimes.com/2024/11/03/us/boat-missing-bodega-bay.html
-
-**How far can the Falcons go with Kirk Cousins? At this pace, 'the sky's the limit'**\
-`The Falcons have won five of their last six games, and coach Raheem Morris says, "Kirk Cousins is exactly what I thought he was.”`\
-https://nytimes.com/athletic/5895924/2024/11/03/kirk-cousins-falcons-cowboys-nfl/
 

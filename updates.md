@@ -1,3 +1,11 @@
+**Lloyd: Blow up the Browns. This miserable season should lead to an active trade deadline**\
+`“I’ve never been in this situation ... where the season is over before the bye week," one veteran said after Sunday's loss to the Chargers.`\
+https://nytimes.com/athletic/5896052/2024/11/03/browns-chargers-jameis-winston-trade-deadline/
+
+**Lions look to be class of NFC North in 24-14 win over Packers: Takeaways**\
+`Detroit's defense depth steps up and a versatile offense prove they have what it takes to be the league's best.`\
+https://nytimes.com/athletic/5894567/2024/11/03/lions-packers-score-takeaways-result/
+
 **Hurts, Barkley, Dean help Eagles to 28-23 win vs. Jaguars: Takeaways**\
 `The help of a few clutch fourth-quarter plays pushed the Eagles to their fourth consecutive win.`\
 https://nytimes.com/athletic/5894563/2024/11/03/jaguars-eagles-score-takeaways-result/
