@@ -1,3 +1,7 @@
+**Colts' pivot to Joe Flacco falls flat vs. Vikings; Shane Steichen left without answers again**\
+`Flacco was supposed to give the Colts the best chance to win. Instead, the Indy offense looked worse Sunday than it has all season. `\
+https://nytimes.com/athletic/5897155/2024/11/04/colts-shane-steichen-joe-flacco-vikings-loss/
+
 **As free agency begins, where the Reds' roster stands**\
 `The Reds have yet to nail down the budget for next season, but they've got at least four needs to address this winter.`\
 https://nytimes.com/athletic/5895723/2024/11/04/reds-roster-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896017/2024/11/04/giants-daniel-jones-bench-brian-
 **Are the Lions Super Bowl favorites? Or are they still a move away? Sando’s Pick Six**\
 `The Lions have made a compelling case as the NFC's best team, but have they done enough to replace Aidan Hutchinson?`\
 https://nytimes.com/athletic/5889153/2024/11/04/lions-nfl-trade-deadline-zadarius-smith/
-
-**Trump, Kushner and the race to host the 2026 World Cup**\
-`How involved was the former U.S. president in winning the right to host the World Cup?`\
-https://nytimes.com/athletic/5891523/2024/11/04/donald-trump-united-states-world-cup-2026/
 
