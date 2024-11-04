@@ -1,3 +1,7 @@
+**College football Week 11 odds, schedule: Georgia at Ole Miss, Alabama at LSU and more**\
+`The SEC has a pair of marquee matchups and there are close spreads for the main contenders in the Big 12 race.`\
+https://nytimes.com/athletic/5898164/2024/11/04/college-football-week-11-odds-schedule-georgia-ole-miss-alabama-lsu/
+
 **Hazardous Smog Cloaks Pakistan’s 2nd-Largest City**\
 `Lahore, a city of about 11 million people, will close its primary schools for a week after reporting record levels of air pollution.`\
 https://nytimes.com/video/world/asia/100000009802431/lahore-pakistan-smog-air-pollution.html
