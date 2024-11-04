@@ -1,3 +1,19 @@
+**Ocon, Gasly's 'personal' F1 bond comes full circle with Brazil triumph**\
+`Alpine has been through a tough year. But on Sunday, the two kids from Normandy made it to the podium together and changed the narrative.`\
+https://nytimes.com/athletic/5897750/2024/11/04/alpine-f1-brazil-pierre-gasly-esteban-ocon-podium/
+
+**The Bounce: Predicting the fallout from Joel Embiid's alleged error**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5897378/2024/11/04/joel-embiid-76ers-vince-carter-raptors-nba-the-bounce/
+
+**Nashville Needs an Infrastructure Fix. Will Voters Agree to Pay for It?**\
+`Desperate to compete with other growing cities, Nashville’s leaders are trying once again to convince voters that a sales tax increase is worth the price.`\
+https://nytimes.com/2024/11/04/us/politics/nashville-sales-tax-infrastructure.html
+
+**On the issues: Where Harris and Trump stand on Israel and Gaza.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-israel-and-gaza
+
 **NBA Rewind: The Joel Embiid controversy, Drake vs. DeMar DeRozan and beefy weekend**\
 `Results took a backseat to feuds around the league last weekend.`\
 https://nytimes.com/athletic/5893171/2024/11/04/nba-rewind-joel-embiid-demar-derozan/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5897100/2024/11/04/pistons-nets-subway-nyc-marathon
 **Who Wins Wisconsin May Depend on This Crumbling G.O.P. Stronghold**\
 `Waukesha County, a suburban area that was long the heart of Wisconsin Republican politics, has moved left. Kamala Harris is trying to accelerate that shift, and Donald Trump needs it to slow.`\
 https://nytimes.com/2024/11/04/us/politics/wisconsin-waukesha-county-trump-harris.html
-
-**Saints fire Dennis Allen after 2-7 start, name Darren Rizzi interim coach**\
-`Allen succeeded Sean Payton after six successful seasons as the Saints' defensive coordinator.`\
-https://nytimes.com/athletic/5168315/2024/11/04/dennis-allen-fired-saints/
-
-**Cost of Mpox Shot Deters Americans at Risk, Critics Say**\
-`The epidemic in Africa continues to grow, prompting fears of another outbreak in the U.S. But the vaccine is no longer free, and vulnerable people are going without.`\
-https://nytimes.com/2024/11/04/health/mpox-vaccine-cost-insurance.html
-
-**How Uvalde’s Newspaper Kept Going, Despite Unimaginable Loss**\
-`Craig Garnett, the publisher of The Uvalde Leader-News, opens up about covering a tragedy that was — and is — too close to home.`\
-https://nytimes.com/2024/11/04/books/uvaldes-darkest-hour-craig-garnett.html
-
-**U.S. Farmers Brace for New Trump Trade Wars Amid Tariff Threats**\
-`Despite their concerns, some farm operators still support the former president and prefer his overall economic plan.`\
-https://nytimes.com/2024/11/04/us/politics/farmers-trump-china-tariffs.html
 
