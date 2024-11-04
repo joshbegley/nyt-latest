@@ -1,3 +1,7 @@
+**An Indonesian Tribe’s Language Gets an Alphabet: Korea’s**\
+`The Cia-Cia language has been passed down orally for centuries. Now the tribe’s children are learning to write it in Hangul, the Korean script.`\
+https://nytimes.com/2024/11/04/world/asia/an-indonesian-tribes-language-gets-an-alphabet-koreas.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/11/04/briefing/election-day-gaza-vaccines-moldova.html

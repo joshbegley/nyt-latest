@@ -1,3 +1,7 @@
+**An Indonesian Tribe’s Language Gets an Alphabet: Korea’s**\
+`The Cia-Cia language has been passed down orally for centuries. Now the tribe’s children are learning to write it in Hangul, the Korean script.`\
+https://nytimes.com/2024/11/04/world/asia/an-indonesian-tribes-language-gets-an-alphabet-koreas.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/11/04/briefing/election-day-gaza-vaccines-moldova.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896592/2024/11/03/bears-matt-eberflus-loss-cardina
 **Cardinals might be finding their stride, but they prefer you take that noise elsewhere**\
 `Had you watched this Arizona Cardinals team a month ago, it would've been hard to imagine it winning three in a row. But here we are.`\
 https://nytimes.com/athletic/5896400/2024/11/03/arizona-cardinals-win-chicago-bears-kyler-murray/
-
-**Kaprizov's streak ends, but Wild's winning ways don't: 'Can't be a one-trick pony'**\
-`In a rare scoreless game for Kaprizov, the rest of the team stepped up to keep banking points in an 8-1-2 start.`\
-https://nytimes.com/athletic/5896738/2024/11/03/wild-spurgeon-penalty-kill-leafs/
 
