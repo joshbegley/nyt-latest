@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/04/crosswords/spelling-bee-forum.html
+
 **Barcelona's dream week (and a half): Bayern win, Madrid demolition and Ballon d'Or mischief**\
 `Barcelona have had a week in dreamland — they have reasons to think their fantasy can keep going`\
 https://nytimes.com/athletic/5896000/2024/11/04/barcelonas-dream-week-and-a-half-bayern-win-madrid-demolition-and-ballon-dor-mischief/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896506/2024/11/04/chicago-blackhawks-road-trip/
 **Where There’s Joy in a Terror Bird**\
 `In Colombia, a fossil-collecting rancher has found a giant, flightless killer from 13 million years ago — and a missing link to the region’s evolutionary history.`\
 https://nytimes.com/2024/11/04/science/fossils-colombia-terror-birds.html
-
-**Election Night, Plus Five Things to Watch on TV This Week**\
-`Tune into the major networks’ election coverage, catch up on the teen drama “The Outer Banks” and dive into a bunch of true-crime docuseries.`\
-https://nytimes.com/2024/11/04/arts/television/election-night-tv-this-week.html
 
