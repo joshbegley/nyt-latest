@@ -1,3 +1,11 @@
+**Physical Intelligence, a Robot A.I. Specialist, Raises Millions From Bezos**\
+`The start-up raised $400 million in a funding round with investments from the likes of Jeff Bezos, Thrive Capital and OpenAI.`\
+https://nytimes.com/2024/11/04/business/dealbook/physical-intelligence-robot-ai.html
+
+**FPL: What we learnt from Gameweek 10 -The great Haaland vs Salah debate rages on**\
+`Abdul Rehman breaks down the main talking points from Gameweek 10 so far`\
+https://nytimes.com/athletic/5895370/2024/11/04/fpl-gameweek-10-salah-haaland-solanke/
+
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `After Saturday’s 1-0 home win over Arsenal, post your Newcastle-related questions to Chris`\
 https://nytimes.com/athletic/5897206/2024/11/04/newcastle-questions-howe-transfers-midfield/
