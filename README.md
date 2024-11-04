@@ -1,3 +1,7 @@
+**A Surprising Poll for Harris Took Iowa Democrats by Surprise, Too**\
+`The Des Moines Register’s unexpected result showing Kamala Harris ahead by three percentage points in the reliably red state fueled optimism in her party.`\
+https://nytimes.com/2024/11/04/us/politics/iowa-poll-harris-democrats.html
+
 **Record Number of States Experiencing Drought**\
 `A tracking system for droughts in the U.S. marked a record last week: 48 out of 50 states made the list at once.`\
 https://nytimes.com/2024/11/04/climate/united-states-record-drought.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/briefing/election-day-israel-spain.html
 **Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-keeps-decrying-rampant-crime-heres-how-his-misleading-claim-has-shifted
-
-**Supreme Court to Hear Louisiana Voting Map Dispute**\
-`The case, which will not affect this election cycle, involves a legal fight over how the state draws its voting maps and could determine the political power of Black voters there.`\
-https://nytimes.com/2024/11/04/us/politics/supreme-court-louisiana-voting-map.html
 
