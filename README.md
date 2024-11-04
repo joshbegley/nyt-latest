@@ -1,4 +1,8 @@
-**Bruins’ Pastrňák benched in third period: ‘Coach’s decision,’ says Montgomery**\
+**After missing time in 2024, can Gerrit Cole now get the Yankees to ante up?**\
+`Walking away from Gerrit Cole would increase the pressure on owner Hal Steinbrenner to sign Juan Soto. And if he lost both . . . hoo boy.`\
+https://nytimes.com/athletic/5896491/2024/11/03/yankees-gerrit-cole-opt-out-decision/
+
+**Bruins’ David Pastrňák benched in third period: ‘Coach’s decision,’ Jim Montgomery says**\
 `Pastrňák led all skaters in the game with seven shots on net despite not playing the third period.`\
 https://nytimes.com/athletic/5896505/2024/11/03/pastrnak-benched-bruins-montgomery-kraken/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895752/2024/11/03/wild-matt-boldy-overtime-leafs/
 **Tyler Bass' 61-yard field goal saves day, ending Buffalo's kicking woes: Bills observations**\
 `After struggling for a while, Bass finally broke through with a massive game winner.`\
 https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-dolphins/
-
-**Why Chargers rookie Tarheeb Still has been a 'gift from the football gods'**\
-`Still delivered his first NFL interception and a perfectly executed tipped pass led to another in the Chargers' win in Cleveland.`\
-https://nytimes.com/athletic/5896306/2024/11/03/chargers-win-tahreeb-still-defense-browns-playoffs/
 
