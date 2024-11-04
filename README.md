@@ -1,3 +1,7 @@
+**Cardinals might be finding their stride, but they prefer you take that noise elsewhere**\
+`Had you watched this Arizona Cardinals team a month ago, it would've been hard to imagine it winning three in a row. But here we are.`\
+https://nytimes.com/athletic/5896400/2024/11/03/arizona-cardinals-win-chicago-bears-kyler-murray/
+
 **Kaprizov's streak ends, but Wild's winning ways don't: 'Can't be a one-trick pony'**\
 `In a rare scoreless game for Kaprizov, the rest of the team stepped up to keep banking points in an 8-1-2 start.`\
 https://nytimes.com/athletic/5896738/2024/11/03/wild-spurgeon-penalty-kill-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896252/2024/11/03/cowboys-lose-frustrating-dak-pre
 **Maple Leafs report cards: Special teams help Toronto salvage point vs. Wild**\
 `The Leafs scored their first power-play goal since Oct. 21 but ran out of steam on the second night of a back-to-back.`\
 https://nytimes.com/athletic/5895644/2024/11/03/maple-leafs-report-cards-special-teams-wild/
-
-**Harris, at Final Michigan Rally, Offers Forward-Looking Vision**\
-`“Our campaign has not been about being against something, it is about being for something,” Vice President Kamala Harris said, avoiding any mention of her rival by name.`\
-https://nytimes.com/2024/11/03/us/politics/harris-michigan-state-university-rally.html
 
