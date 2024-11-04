@@ -1,3 +1,7 @@
+**Instead of a team on the rise, the Bears seem to be teetering on change, again**\
+`Matt Eberflus says the Bears need to "circle the wagons." Sadly, Bears fans have heard it all before, many times.`\
+https://nytimes.com/athletic/5896592/2024/11/03/bears-matt-eberflus-loss-cardinals/
+
 **Cardinals might be finding their stride, but they prefer you take that noise elsewhere**\
 `Had you watched this Arizona Cardinals team a month ago, it would've been hard to imagine it winning three in a row. But here we are.`\
 https://nytimes.com/athletic/5896400/2024/11/03/arizona-cardinals-win-chicago-bears-kyler-murray/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896505/2024/11/03/pastrnak-benched-bruins-montgome
 **Frustrating mistakes and Dak Prescott injury, Cowboys look closer to top-10 pick than playoffs**\
 `A slew of pre-snap penalties, short-yardage shortcomings and a poorly executed fake punt were among the things that cost the Cowboys.`\
 https://nytimes.com/athletic/5896252/2024/11/03/cowboys-lose-frustrating-dak-prescott-injury-falcons/
-
-**Maple Leafs report cards: Special teams help Toronto salvage point vs. Wild**\
-`The Leafs scored their first power-play goal since Oct. 21 but ran out of steam on the second night of a back-to-back.`\
-https://nytimes.com/athletic/5895644/2024/11/03/maple-leafs-report-cards-special-teams-wild/
 

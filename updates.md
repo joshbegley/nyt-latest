@@ -1,3 +1,7 @@
+**Instead of a team on the rise, the Bears seem to be teetering on change, again**\
+`Matt Eberflus says the Bears need to "circle the wagons." Sadly, Bears fans have heard it all before, many times.`\
+https://nytimes.com/athletic/5896592/2024/11/03/bears-matt-eberflus-loss-cardinals/
+
 **Cardinals might be finding their stride, but they prefer you take that noise elsewhere**\
 `Had you watched this Arizona Cardinals team a month ago, it would've been hard to imagine it winning three in a row. But here we are.`\
 https://nytimes.com/athletic/5896400/2024/11/03/arizona-cardinals-win-chicago-bears-kyler-murray/
