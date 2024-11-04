@@ -1,3 +1,7 @@
+**What to know as arbitration begins in Timberwolves, Lynx ownership dispute**\
+`An arbitration panel will hear arguments before deciding whether Glen Taylor or Marc Lore and Alex Rodriguez have majority ownership.`\
+https://nytimes.com/athletic/5893780/2024/11/04/timberwolves-arbitration-glen-taylor-marc-lore-alex-rodriguez/
+
 **Ohio State film study: How the Buckeyes beat Penn State in top-five showdown**\
 `There are things Ohio State will want back because it could’ve put the game away earlier, but it's hard to nit-pick the win over Penn State.`\
 https://nytimes.com/athletic/5898057/2024/11/04/ohio-state-football-penn-state-analysis-will-howard/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where
 **Johnston: 4 Nations Face-Off roster projections 4 weeks before deadline day**\
 `With 4 weeks until roster deadline day and 100 days until play opens, here's who we see suiting up for Canada, Finland, Sweden and the U.S.`\
 https://nytimes.com/athletic/5897978/2024/11/04/hockey-4-nations-projected-rosters/
-
-**Vikings WR Jordan Addison is finally freed in game-changing performance against Colts**\
-`The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season.`\
-https://nytimes.com/athletic/5896166/2024/11/04/jordan-addison-vikings-colts-touchdown-catch/
 
