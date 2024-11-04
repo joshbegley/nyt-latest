@@ -1,3 +1,19 @@
+**Jason Kelce addresses altercation with fan who insulted Travis about dating Taylor Swift**\
+`The ESPN analyst and former Eagles center commented on the incident at the start of "Monday Night Countdown."`\
+https://nytimes.com/athletic/5898997/2024/11/04/jason-kelce-taylor-swift-fan-altercation-comments-espn/
+
+**Jim Harbaugh says hits on Justin Herbert should draw more flags**\
+`“His protection, his safety, there’s probably nothing I think about more than that,” Chargers coach Jim Harbaugh said about Herbert.`\
+https://nytimes.com/athletic/5899011/2024/11/04/jim-harbaugh-justin-herbert-chargers-officiating-penalties/
+
+**Why Trump’s Supporters Should Also Be Wary if He Returns to Power**\
+`If autocracy comes to America, don’t assume it’ll be soft.`\
+https://nytimes.com/2024/11/04/opinion/trump-cheney-kennedy-kelly.html
+
+**The intensity of the political season has compounded the anxieties of Jewish voters.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/the-intensity-of-the-political-season-has-compounded-the-anxieties-of-jewish-voters
+
 **Gundy: OK State critics 'are the same ones that can’t pay their own bills'**\
 `"They’re not taking care of themselves. They’re not taking care of their own family. They’re not taking care of their own job,” he said.`\
 https://nytimes.com/athletic/5899042/2024/11/04/mike-gundy-oklahoma-state-comments/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/04/arts/music/new-york-philharmonic-sexual-misconduc
 **Vikings at the NFL trade deadline: 6 players who could make sense and why**\
 `The Vikings could be looking to add at CB and on the offensive and defensive lines. Here are six players they could target at the deadline.`\
 https://nytimes.com/athletic/5898881/2024/11/04/vikings-nfl-trade-deadline-odighizuwa-horn-campbell/
-
-**Fluoride, Vaccines, Obamacare: What to Know About Trump’s Health Statements**\
-`Donald Trump’s pledge to let Robert F. Kennedy Jr. “go wild on health” has put three issues on the agenda in the final days of the 2024 campaign.`\
-https://nytimes.com/2024/11/04/us/politics/trump-rfk-health-fluoride-vaccines-aca.html
-
-**Red Sox give Nick Pivetta qualifying offer; don’t extend QO to Tyler O'Neill**\
-`The offer to Pivetta does not guarantee he will return to Boston and the door could still be open to an O’Neill reunion as well.`\
-https://nytimes.com/athletic/5898975/2024/11/04/red-sox-nick-pivetta-qualifying-offer/
-
-**Two stump speeches and two approaches to delivering a message.**\
-`By Linda Qiu and Elena Shao`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/two-stump-speeches-and-two-approaches-to-delivering-a-message
-
-**What to watch this week in NBA: Embiid’s return, Wembanyama's rise and a Finals rematch**\
-`What to watch — and why to watch — around the NBA this week, including the Warriors heading to Boston on Wednesday.`\
-https://nytimes.com/athletic/5892158/2024/11/04/nba-weekly-watch-guide-embiid-wembanyama-finals-rematch-odds/
 
