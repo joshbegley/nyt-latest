@@ -1,3 +1,7 @@
+**Barcelona's dream week (and a half): Bayern win, Madrid demolition and Ballon d'Or mischief**\
+`Barcelona have had a week in dreamland — they have reasons to think their fantasy can keep going`\
+https://nytimes.com/athletic/5896000/2024/11/04/barcelonas-dream-week-and-a-half-bayern-win-madrid-demolition-and-ballon-dor-mischief/
+
 **Baleba joins Brighton injury list before City clash**\
 `Carlos Baleba has added to Brighton &amp; Hove Albion&#8217;s injury problems after only making the bench for the 2-1 defeat at Liverpool.`\
 https://nytimes.com/athletic/5893387/2024/11/04/carlos-baleba-brighton-injury/
