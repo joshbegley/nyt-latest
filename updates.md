@@ -1,3 +1,11 @@
+**Alonso hails Slot impact ahead of Liverpool return**\
+`Xabi Alonso saluted the &#8220;fantastic&#8221; impact of Liverpool head coach Arne Slot as he warned his Bayer Leverkusen side they will be facing &#8220;one of the best teams in Europe&#8221;.`\
+https://nytimes.com/athletic/5898645/2024/11/04/xabi-alonso-liverpool-return-slot/
+
+**When will the presidential race be called? Here’s what to know.**\
+`It could take days to know the winner, as it did in 2020, because counting mail ballots takes time. But returns on election night could also offer clarity.`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/when-will-the-presidential-race-be-called-heres-what-to-know
+
 **Tracking Tropical Storm Rafael**\
 `See the likely path and wind arrival times for Rafael.`\
 https://nytimes.com/interactive/2024/11/04/weather/rafael-map-path-tracker.html

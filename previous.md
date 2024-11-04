@@ -1,3 +1,11 @@
+**Alonso hails Slot impact ahead of Liverpool return**\
+`Xabi Alonso saluted the &#8220;fantastic&#8221; impact of Liverpool head coach Arne Slot as he warned his Bayer Leverkusen side they will be facing &#8220;one of the best teams in Europe&#8221;.`\
+https://nytimes.com/athletic/5898645/2024/11/04/xabi-alonso-liverpool-return-slot/
+
+**When will the presidential race be called? Here’s what to know.**\
+`It could take days to know the winner, as it did in 2020, because counting mail ballots takes time. But returns on election night could also offer clarity.`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/when-will-the-presidential-race-be-called-heres-what-to-know
+
 **Tracking Tropical Storm Rafael**\
 `See the likely path and wind arrival times for Rafael.`\
 https://nytimes.com/interactive/2024/11/04/weather/rafael-map-path-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/supreme-court-louisiana-voting-map.ht
 **Elon Musk Steps Up Pro-Trump Posts on X**\
 `The billionaire owner of the social media platform has used his account, with more than 202 million followers, to herald his support for Donald J. Trump and declare the election an existential crisis.`\
 https://nytimes.com/2024/11/04/us/politics/musk-x-trump-harris.html
-
-**Why can't the Flyers score goals lately?**\
-`Through their first dozen games, the Flyers are 29th in the league with 2.50 goals per game.`\
-https://nytimes.com/athletic/5898523/2024/11/04/philadelphia-flyers-goals-stats/
-
-**Top N.Y.P.D. Officials Have Tense Public Argument at Marathon**\
-`Commissioner Thomas Donlon and his acting chief of staff, Tarik Sheppard, had to be separated by another official, said people familiar with the dispute.`\
-https://nytimes.com/2024/11/04/nyregion/nypd-nyc-marathon.html
 
