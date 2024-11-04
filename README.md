@@ -1,3 +1,11 @@
+**New Hanover County, N.C.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/new-hanover-county-nc
+
+**Murray McCory, 80, Dies; JanSport Founder Created the School Backpack**\
+`He brought lightweight packs to millions of students and transformed the way they carried their textbooks to school.`\
+https://nytimes.com/2024/11/04/business/murray-mccory-dead.html
+
 **Connor McDavid skates with Oilers after receiving 'good news' on ankle injury**\
 `McDavid might be able to return to the Edmonton lineup earlier than initially expected.`\
 https://nytimes.com/athletic/5898570/2024/11/04/connor-mcdavid-oilers-injury-ankle/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/style/trump-coat-campaign-trail.html
 **Blues' Philip Broberg out 4 to 6 weeks, but injury diagnosis 'could have been a lot worse'**\
 `Broberg left Saturday's game against the Leafs with a lower-body injury. P.O. Joseph and Scott Perunovich will get promotions with him out.`\
 https://nytimes.com/athletic/5898275/2024/11/04/blues-philip-broberg-injury-timeline/
-
-**‘Coach Walz’ Delivers a Last Round of Fiery Pep Talks**\
-`Gov. Tim Walz, the Democratic vice-presidential nominee, is making a last-minute appeal to white working-class men. But for all his talk of football, that bloc is far from a safe bet for his ticket.`\
-https://nytimes.com/2024/11/04/us/politics/tim-walz-voters-democrats.html
-
-**Cowboys' Prescott out several weeks with hamstring injury: Source**\
-`With star quarterback hurt, expect Cooper Rush to step in and try to rekindle some of his 2022 magic. `\
-https://nytimes.com/athletic/5898402/2024/11/04/dak-prescott-injury-hamstring-cowboys/
 
