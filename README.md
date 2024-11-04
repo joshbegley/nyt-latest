@@ -1,3 +1,7 @@
+**Macomb County, Mich.**\
+`By Jeremy W. Peters`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/macomb-county-mich
+
 **Foreign Adversaries May Try to Undermine U.S. Elections After Vote**\
 `Russian and other groups have unleashed a torrent of disinformation. Cybersecurity officials plan to issue updates on threats throughout Election Day.`\
 https://nytimes.com/2024/11/04/us/politics/election-threats-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898746/2024/11/04/bengals-chargers-jets-colts-flex
 **Canada Moves to Limit Oil and Gas Industry Carbon Emissions**\
 `The Trudeau government has focused on the oil and gas production industries because the large amounts of energy they use make them the country’s largest source of greenhouse gases.`\
 https://nytimes.com/2024/11/04/world/canada/canada-oil-gas-carbon-emissions.html
-
-**A Surprising Poll for Harris Took Iowa Democrats by Surprise, Too**\
-`The Des Moines Register’s unexpected result showing Kamala Harris ahead by three percentage points in the reliably red state fueled optimism in her party.`\
-https://nytimes.com/2024/11/04/us/politics/iowa-poll-harris-democrats.html
 
