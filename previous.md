@@ -1,5 +1,9 @@
+**Trump and Harris donors are invited to watch history happen.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-and-harris-donors-are-invited-to-watch-history-happen
+
 **The Core of Kennedy’s Pitch for Trump? Kennedy.**\
-`Even as the former presidential candidate Robert F. Kennedy Jr. has endorsed Donald J. Trump and campaigned for him, his message to voters is clear: Vote Trump to get me.`\
+`Even as the former independent presidential candidate Robert F. Kennedy Jr. has endorsed Donald J. Trump and campaigned for him, his message to voters is clear: Vote Trump to get me.`\
 https://nytimes.com/2024/11/04/us/politics/kennedy-trump-2024.html
 
 **Trump’s Crowds Are Dwindling as His Campaign Winds Down**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/movies/blitz-london-steve-mcqueen.html
 **Heat Today: Bam Adebayo's hot hand, Erik Spoelstra's birthday help highlight road trip**\
 `The Heat were all smiles after their trip to Mexico City.`\
 https://nytimes.com/athletic/5897488/2024/11/04/bam-adebayo-erik-spoelstra-miami-heat/
-
-**Florida QB DJ Lagway not ruled out for return after injury vs. UGA**\
-`Florida coach Billy Napier told reporters Monday that quarterback DJ Lagway's injury is not as significant as feared.`\
-https://nytimes.com/athletic/5893339/2024/11/04/dj-lagway-injury-florida-georgia/
 
