@@ -1,3 +1,7 @@
+**Will baseball's broadcast uncertainty impact franchise values? An early test case looms**\
+`As the offseason gets underway, many eyes will be on how the loss of RSN revenue impacts the sport. `\
+https://nytimes.com/athletic/5896621/2024/11/04/mlb-broadcast-uncertainty-franchise-values-twins/
+
 **Fleeing Northern Gaza Risked His Life. Staying Destroyed His Family.**\
 `For Gazans facing Israel’s latest offensive against Hamas in the north, every option is fraught with peril.`\
 https://nytimes.com/2024/11/04/world/europe/northern-gaza-evacuation-risks.html
