@@ -1,3 +1,7 @@
+**Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
+`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. That happened Sunday night.`\
+https://nytimes.com/athletic/5896025/2024/11/04/raiders-loss-gardner-minshew-benching-luke-getsy/
+
 **Ferdi Kadioglu is quickly becoming Brighton's new multi-tasking, Milner-style menace**\
 `The Turkish international was signed as a defender but his performance on the right wing at Anfield showed just how versatile he can be `\
 https://nytimes.com/athletic/5875003/2024/11/04/ferdi-kadioglu-versatility-anfield-performance/
