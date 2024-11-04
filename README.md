@@ -1,3 +1,7 @@
+**Cardinals run over Bears 29-9 for third straight win: Takeaways**\
+`The Cardinals have won three in a row for the first time since 2021 and they sit atop the NFC West.`\
+https://nytimes.com/athletic/5894558/2024/11/03/bears-cardinals-score-takeaways-result/
+
 **A Vivid Trump-Harris Contrast in the Campaign’s Grueling Final Days**\
 `As Kamala Harris visited a church in Detroit on the last Sunday of the campaign, Donald J. Trump told supporters that he “shouldn’t have left” the White House after the 2020 election.`\
 https://nytimes.com/2024/11/03/us/politics/harris-trump-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895815/2024/11/03/puka-nacua-ejection-punch-rams-s
 **Review: Seven Dancers, a Mosaic of Movement**\
 `Netta Yerushalmy’s “Movement” at N.Y.U. Skirball comes from a patchwork of sources: TikTok, television, marching band practice and more.`\
 https://nytimes.com/2024/11/03/arts/dance/netta-yerushalmy-movement-nyu-skirball.html
-
-**NWSL quarterfinals schedule set: Key matchups, how to watch and more**\
-`Here's what you need to know ahead of the NWSL playoffs. `\
-https://nytimes.com/athletic/5895736/2024/11/03/nwsl-quarterfinal-schedule-how-to-watch/
 
