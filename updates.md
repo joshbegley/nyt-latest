@@ -1,3 +1,19 @@
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/11/04/briefing/election-day-gaza-vaccines-moldova.html
+
+**Quote of the Day: New Life for Factory Towns Hobbled by ‘China Shock’**\
+`Quotation of the Day for Monday, November 4, 2024.`\
+https://nytimes.com/2024/11/04/pageoneplus/quote-of-the-day-new-life-for-factory-towns-hobbled-by-china-shock.html
+
+**Raiders fired OC Luke Getsy after fifth straight loss this season**\
+`The Raiders are 2-7 and currently riding a five-game losing streak. `\
+https://nytimes.com/athletic/5896954/2024/11/03/raiders-luke-getsy-fired-offensive-coordinator/
+
+**Vikings defense stifles Joe Flacco-led Colts: Key takeaways**\
+`Minnesota's performance looked more like its first five games, when Brian Flores' unit was flustering every quarterback it faced.`\
+https://nytimes.com/athletic/5896027/2024/11/03/colts-vikings-score-takeaways-result/
+
 **Packers embarrass themselves with self-inflicted errors in loss to Lions**\
 `The Packers played a game full of needless mistakes and paid the price, losing 24-14 to the Lions and falling to 0-2 in the NFC North.`\
 https://nytimes.com/athletic/5896719/2024/11/03/packers-loss-lions-embarrassing/

@@ -1,4 +1,16 @@
-**Vikings defense stifles Joe Flacco-led Colts: Key Takeaways**\
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/11/04/briefing/election-day-gaza-vaccines-moldova.html
+
+**Quote of the Day: New Life for Factory Towns Hobbled by ‘China Shock’**\
+`Quotation of the Day for Monday, November 4, 2024.`\
+https://nytimes.com/2024/11/04/pageoneplus/quote-of-the-day-new-life-for-factory-towns-hobbled-by-china-shock.html
+
+**Raiders fired OC Luke Getsy after fifth straight loss this season**\
+`The Raiders are 2-7 and currently riding a five-game losing streak. `\
+https://nytimes.com/athletic/5896954/2024/11/03/raiders-luke-getsy-fired-offensive-coordinator/
+
+**Vikings defense stifles Joe Flacco-led Colts: Key takeaways**\
 `Minnesota's performance looked more like its first five games, when Brian Flores' unit was flustering every quarterback it faced.`\
 https://nytimes.com/athletic/5896027/2024/11/03/colts-vikings-score-takeaways-result/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5896400/2024/11/03/arizona-cardinals-win-chicago-be
 **Kaprizov's streak ends, but Wild's winning ways don't: 'Can't be a one-trick pony'**\
 `In a rare scoreless game for Kaprizov, the rest of the team stepped up to keep banking points in an 8-1-2 start.`\
 https://nytimes.com/athletic/5896738/2024/11/03/wild-spurgeon-penalty-kill-leafs/
-
-**Bucks' Portis says his home was burglarized during Saturday's game**\
-`Bobby Portis said the robbers "took most of my prized possessions" and asked fans to report any information about the burglary.`\
-https://nytimes.com/athletic/5896731/2024/11/03/bobby-portis-home-burglary-bucks/
-
-**Cubs' Ian Happ wins third straight Gold Glove, putting him in rarified air**\
-`Happ said it took “a lot of hard work” to become a multiple-time winner of an award that “means a lot” to him.`\
-https://nytimes.com/athletic/5896706/2024/11/03/cubs-ian-happ-third-straight-gold-glove/
-
-**Commanders handle business vs. Giants, continue to 'demonstrate improvement'**\
-`The victory wasn’t the cleanest performance from Washington, but the traits coach Dan Quinn sought were peppered throughout the game. `\
-https://nytimes.com/athletic/5896024/2024/11/03/commanders-win-jayden-daniels-giants/
 
