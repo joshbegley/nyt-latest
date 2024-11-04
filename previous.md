@@ -1,3 +1,7 @@
+**How the Death of a Celebrity Squirrel Became a Republican Rallying Cry**\
+`After P’Nut and a raccoon named Fred were taken by wildlife agents and euthanized, Donald Trump and local candidates accused New York Democrats of “state overreach.”`\
+https://nytimes.com/2024/11/04/nyregion/peanut-the-squirrel-euthanized-trump.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Friendly reminder: This week&#8217;s Mailbag will go up the morning <em>after</em> the committee&#8217;s first rankings. Plan or time your questions accordingly.</p>
 <p>Please include your city. And please do not mention the election. (Like, ever.)</p>
@@ -37,8 +41,4 @@ https://nytimes.com/athletic/5899010/2024/11/04/astros-outright-starter-jose-urq
 **At Daniel Penny’s Trial, Passengers Describe Harrowing F Train Ride**\
 `Witnesses from the subway train said they feared Jordan Neely but also described the horror of watching him die in a chokehold.`\
 https://nytimes.com/2024/11/04/nyregion/daniel-penny-trial-subway-chokehold-case.html
-
-**Philharmonic Dismisses 2 Players Over Sexual Misconduct Accusations**\
-`The orchestra said an inquiry found credible claims against the musicians of sexual assault and harassment. They denied the charges.`\
-https://nytimes.com/2024/11/04/arts/music/new-york-philharmonic-sexual-misconduct.html
 

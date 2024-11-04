@@ -1,3 +1,7 @@
+**How the Death of a Celebrity Squirrel Became a Republican Rallying Cry**\
+`After P’Nut and a raccoon named Fred were taken by wildlife agents and euthanized, Donald Trump and local candidates accused New York Democrats of “state overreach.”`\
+https://nytimes.com/2024/11/04/nyregion/peanut-the-squirrel-euthanized-trump.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Friendly reminder: This week&#8217;s Mailbag will go up the morning <em>after</em> the committee&#8217;s first rankings. Plan or time your questions accordingly.</p>
 <p>Please include your city. And please do not mention the election. (Like, ever.)</p>
