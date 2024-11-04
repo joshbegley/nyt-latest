@@ -1,3 +1,15 @@
+**Broncos trade LB Baron Browning to Cardinals for 6th-round pick**\
+`He's tallied 114 total tackles and 9 1/2 sacks over three-plus seasons in Denver.`\
+https://nytimes.com/athletic/5898439/2024/11/04/baron-browning-cardinals-broncos-trade/
+
+**No, voting machines are not intentionally ‘flipping’ votes between candidates.**\
+`Voters sometimes make mistakes when they use digital voting machines. But the issues are quickly remedied.`\
+https://nytimes.com/2024/11/04/business/voting-machines-fact-check.html
+
+**Nash County, N.C.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/nash-county-nc
+
 **Preppers Await the End. But First, the Election.**\
 `In Arizona, groups like the Dewey preppers are ready for the apocalypse and for whatever might come after Nov. 5.`\
 https://nytimes.com/2024/11/04/us/elections/election-violence-preppers-arizona.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5898164/2024/11/04/college-football-week-11-odds-sc
 **Hazardous Smog Cloaks Pakistan’s 2nd-Largest City**\
 `Lahore, a city of about 11 million people, will close its primary schools for a week after reporting record levels of air pollution.`\
 https://nytimes.com/video/world/asia/100000009802431/lahore-pakistan-smog-air-pollution.html
-
-**Long After Sunset, the Final Two Runners Cross the Marathon Finish Line**\
-`Two runners with injuries ended the New York City Marathon on their own two feet — and a pair of crutches.`\
-https://nytimes.com/2024/11/04/nyregion/nyc-marathon-final-finishers.html
-
-**Mount returns to full training with Man Utd**\
-`Mason Mount has returned to full training with Manchester United, continuing his recovery following an injury-hit start to the season.`\
-https://nytimes.com/athletic/5898317/2024/11/04/mason-mount-returns-training-man-utd/
-
-**Iranians Wonder if Trump Wins, Would Things Be Different This Time?**\
-`While Donald J. Trump is seen by many in Tehran as having been disastrous for their country, some hope he might be more open to negotiation in a second term as U.S. president.`\
-https://nytimes.com/2024/11/04/world/middleeast/iran-trump-harris.html
 
