@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: The coach’s desired mindset and how it’s impacting Lane Hutson**\
+`Also in this week's notebook: Two struggling forwards call themselves out, Caufield's selectiveness and the logjam on defence trending down.`\
+https://nytimes.com/athletic/5897129/2024/11/04/canadiens-lane-hutson-coaching-defence-caufield/
+
 **As free agency begins, where the Giants' roster stands**\
 `What are the Giants' main priorities this offseason? Will they make trades off the big-league roster? Who are their free agents?`\
 https://nytimes.com/athletic/5894989/2024/11/04/sf-giants-offseason-priorities-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897394/2024/11/04/carlo-ancelotti-valencia-floodin
 **Physical Intelligence, a Robot A.I. Specialist, Raises Millions From Bezos**\
 `The start-up raised $400 million in a funding round with investments from the likes of Jeff Bezos, Thrive Capital and OpenAI.`\
 https://nytimes.com/2024/11/04/business/dealbook/physical-intelligence-robot-ai.html
-
-**FPL: What we learnt from Gameweek 10 -The great Haaland vs Salah debate rages on**\
-`Abdul Rehman breaks down the main talking points from Gameweek 10 so far`\
-https://nytimes.com/athletic/5895370/2024/11/04/fpl-gameweek-10-salah-haaland-solanke/
 

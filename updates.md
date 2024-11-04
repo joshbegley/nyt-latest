@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: The coach’s desired mindset and how it’s impacting Lane Hutson**\
+`Also in this week's notebook: Two struggling forwards call themselves out, Caufield's selectiveness and the logjam on defence trending down.`\
+https://nytimes.com/athletic/5897129/2024/11/04/canadiens-lane-hutson-coaching-defence-caufield/
+
 **As free agency begins, where the Giants' roster stands**\
 `What are the Giants' main priorities this offseason? Will they make trades off the big-league roster? Who are their free agents?`\
 https://nytimes.com/athletic/5894989/2024/11/04/sf-giants-offseason-priorities-free-agency/
