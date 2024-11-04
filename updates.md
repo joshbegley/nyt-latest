@@ -1,3 +1,7 @@
+**More than 78 million people have voted early, in a relatively smooth process.**\
+`But the flood of early voting does little to offer a clear picture of who is likely to win the election.`\
+https://nytimes.com/2024/11/04/us/politics/early-voting-election.html
+
 **Macomb County, Mich.**\
 `By Jeremy W. Peters`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/macomb-county-mich

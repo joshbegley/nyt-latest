@@ -20,7 +20,7 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/how-is-the-times-co
 
 **More than 78 million people have voted early, in a relatively smooth process.**\
 `But the flood of early voting does little to offer a clear picture of who is likely to win the election.`\
-https://nytimes.com/2024/11/04/us/politics/more-than-78-million-people-have-voted-early-in-a-relatively-smooth-process.html
+https://nytimes.com/2024/11/04/us/politics/early-voting-election.html
 
 **A Day-by-Day Forecast for Tropical Storm Rafael**\
 `The storm is expected to move through the Caribbean in the next few days. Forecasters are uncertain of where it will go once it enters the Gulf of Mexico by the middle of the week.`\
