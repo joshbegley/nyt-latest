@@ -1,3 +1,11 @@
+**Fluoride, Vaccines, Obamacare: What to Know About Trump’s Health Statements**\
+`Donald Trump’s pledge to let Robert F. Kennedy Jr. “go wild on health” has put three issues on the agenda in the final days of the 2024 campaign.`\
+https://nytimes.com/2024/11/04/us/politics/trump-rfk-health-fluoride-vaccines-aca.html
+
+**Christian McCaffrey brings jolt of hope in return to 49ers practice: 'The boys are back'**\
+`If all goes well this week at practice, McCaffrey will make his season debut Sunday against the Tampa Bay Buccaneers. `\
+https://nytimes.com/athletic/5898949/2024/11/04/christian-mccaffrey-49ers-practice-return/
+
 **Red Sox give Nick Pivetta qualifying offer; don’t extend QO to Tyler O'Neill**\
 `The offer to Pivetta does not guarantee he will return to Boston and the door could still be open to an O’Neill reunion as well.`\
 https://nytimes.com/athletic/5898975/2024/11/04/red-sox-nick-pivetta-qualifying-offer/

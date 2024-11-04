@@ -1,3 +1,7 @@
+**Fluoride, Vaccines, Obamacare: What to Know About Trump’s Health Statements**\
+`Donald Trump’s pledge to let Robert F. Kennedy Jr. “go wild on health” has put three issues on the agenda in the final days of the 2024 campaign.`\
+https://nytimes.com/2024/11/04/us/politics/trump-rfk-health-fluoride-vaccines-aca.html
+
 **Red Sox give Nick Pivetta qualifying offer; don’t extend QO to Tyler O'Neill**\
 `The offer to Pivetta does not guarantee he will return to Boston and the door could still be open to an O’Neill reunion as well.`\
 https://nytimes.com/athletic/5898975/2024/11/04/red-sox-nick-pivetta-qualifying-offer/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5898941/2024/11/04/kevin-durant-stephen-a-smith-esp
 `Also, remembering Quincy Jones. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/04/briefing/trump-and-harris-battle-for-pennsylvania.html
 
-**Christian McCaffrey bring jolt of hope in return to 49ers practice: 'The boys are back'**\
+**Christian McCaffrey brings jolt of hope in return to 49ers practice: 'The boys are back'**\
 `If all goes well this week at practice, McCaffrey will make his season debut Sunday against the Tampa Bay Buccaneers. `\
 https://nytimes.com/athletic/5898949/2024/11/04/christian-mccaffrey-49ers-practice-return/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898757/2024/11/04/james-franklin-penn-state-ohio-s
 **Harris appeals to Latino pride, and anger at Trump, in a final push for votes.**\
 `By Jennifer Medina`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/harris-appeals-to-latino-pride-and-anger-at-trump-in-a-final-push-for-votes
-
-**Musk’s $1 Million Checks to Voters Don’t Violate Law, Judge Rules**\
-`Elon Musk’s super PAC has been giving away $1 million daily to registered voters who signed a petition supporting the Constitution.`\
-https://nytimes.com/2024/11/04/us/politics/elon-musk-america-pac-sweepstakes-ruling.html
 
