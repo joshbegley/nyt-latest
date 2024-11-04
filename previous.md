@@ -1,3 +1,11 @@
+**These Uncommitted Voters Finally Made Their Choice for President**\
+`Over the last four months, these voters have struggled with their decision. Now, with time short, they explain who’s getting, or not getting, their vote.`\
+https://nytimes.com/2024/11/03/us/politics/undecided-voters-trump-harris.html
+
+**Giants' fourth straight loss brings them to familiar time: 'Tankathon' season**\
+`At this point, the only real intrigue left regarding Giants football games is how a win or a loss will affect their draft position. `\
+https://nytimes.com/athletic/5896032/2024/11/03/giants-loss-commanders-nfl-draft-tanking/
+
 **Lloyd: Blow up the Browns. This miserable season should lead to an active trade deadline**\
 `“I’ve never been in this situation ... where the season is over before the bye week," one veteran said after Sunday's loss to the Chargers.`\
 https://nytimes.com/athletic/5896052/2024/11/03/browns-chargers-jameis-winston-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5895935/2024/11/03/bengals-win-joe-burrow-angry-rai
 **Charli XCX, Leonardo DiCaprio and Colman Domingo Turn Out for the LACMA Gala**\
 `Hollywood stars mingled with artists for a benefit honoring the artist Simone Leigh and the filmmaker Baz Luhrmann.`\
 https://nytimes.com/2024/11/03/style/lacma-gala-photos.html
-
-**Struggling Patriots offense comes down to hoping Drake Maye can make a play**\
-`With an offensive line that can't block, no running game and ineffective pass catchers, the Patriots are asking Maye to do everything.`\
-https://nytimes.com/athletic/5895905/2024/11/03/drake-maye-patriots-titans-offense/
-
-**Browns snap back to reality after being outclassed by Chargers from start to finish**\
-`Another error-filled effort served as a reminder that Cleveland's feel-good rally to beat Baltimore last week was just an aberration.`\
-https://nytimes.com/athletic/5895874/2024/11/03/browns-loss-jameis-winston-chargers/
 

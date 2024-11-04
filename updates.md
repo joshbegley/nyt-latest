@@ -1,3 +1,11 @@
+**These Uncommitted Voters Finally Made Their Choice for President**\
+`Over the last four months, these voters have struggled with their decision. Now, with time short, they explain who’s getting, or not getting, their vote.`\
+https://nytimes.com/2024/11/03/us/politics/undecided-voters-trump-harris.html
+
+**Giants' fourth straight loss brings them to familiar time: 'Tankathon' season**\
+`At this point, the only real intrigue left regarding Giants football games is how a win or a loss will affect their draft position. `\
+https://nytimes.com/athletic/5896032/2024/11/03/giants-loss-commanders-nfl-draft-tanking/
+
 **Lloyd: Blow up the Browns. This miserable season should lead to an active trade deadline**\
 `“I’ve never been in this situation ... where the season is over before the bye week," one veteran said after Sunday's loss to the Chargers.`\
 https://nytimes.com/athletic/5896052/2024/11/03/browns-chargers-jameis-winston-trade-deadline/
