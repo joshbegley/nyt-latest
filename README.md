@@ -1,3 +1,7 @@
+**Arsenal sporting director Edu set to leave club**\
+`Arsenal sporting director Edu is set to leave the club.`\
+https://nytimes.com/athletic/5806690/2024/11/04/arsenal-edu-leaves-club/
+
 **Canadiens weekly notebook: The coach’s desired mindset and how it’s impacting Lane Hutson**\
 `Also in this week's notebook: Two struggling forwards call themselves out, Caufield's selectiveness and the logjam on defence trending down.`\
 https://nytimes.com/athletic/5897129/2024/11/04/canadiens-lane-hutson-coaching-defence-caufield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897112/2024/11/04/wsl-briefing-chelsea-goals/
 **Ancelotti says La Liga matches should have been cancelled due to Valencia flooding**\
 `Real Madrid head coach Carlo Ancelotti says he believes the weekend’s round of La Liga matches should have been postponed due to the flooding in Valencia.`\
 https://nytimes.com/athletic/5897394/2024/11/04/carlo-ancelotti-valencia-flooding/
-
-**Physical Intelligence, a Robot A.I. Specialist, Raises Millions From Bezos**\
-`The start-up raised $400 million in a funding round with investments from the likes of Jeff Bezos, Thrive Capital and OpenAI.`\
-https://nytimes.com/2024/11/04/business/dealbook/physical-intelligence-robot-ai.html
 
