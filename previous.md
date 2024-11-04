@@ -1,4 +1,4 @@
-**Saints fire Dennis Allen with New Orleans on 7-game losing streak**\
+**Saints fire Dennis Allen after 2-7 start, name Darren Rizzi interim coach**\
 `Allen succeeded Sean Payton after six successful seasons as the Saints' defensive coordinator.`\
 https://nytimes.com/athletic/5168315/2024/11/04/dennis-allen-fired-saints/
 
