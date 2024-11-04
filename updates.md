@@ -1,3 +1,7 @@
+**An Indonesian Tribe’s Language Gets an Alphabet: Korea’s**\
+`The Cia-Cia language has been passed down orally for centuries. Now the tribe’s children are learning to write it in Hangul, the Korean script.`\
+https://nytimes.com/2024/11/04/world/asia/indonesia-korea-hangul.html
+
 **Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
 `Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. That happened Sunday night.`\
 https://nytimes.com/athletic/5896025/2024/11/04/raiders-loss-gardner-minshew-benching-luke-getsy/

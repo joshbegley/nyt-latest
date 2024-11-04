@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5896025/2024/11/04/raiders-loss-gardner-minshew-ben
 
 **An Indonesian Tribe’s Language Gets an Alphabet: Korea’s**\
 `The Cia-Cia language has been passed down orally for centuries. Now the tribe’s children are learning to write it in Hangul, the Korean script.`\
-https://nytimes.com/2024/11/04/world/asia/an-indonesian-tribes-language-gets-an-alphabet-koreas.html
+https://nytimes.com/2024/11/04/world/asia/indonesia-korea-hangul.html
 
 **Monday Briefing**\
 `Here’s what you need to know.`\
