@@ -1,3 +1,11 @@
+**Election Day is tomorrow. Here’s the latest.**\
+`By Adam Nagourney and Maggie Astor`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/election-day-is-tomorrow-heres-the-latest
+
+**Election Live Updates: Tumultuous Presidential Campaign Sprints Into Final Day**\
+`Former President Donald J. Trump and Vice President Kamala Harris will be in Pennsylvania, a state both candidates see as critical to winning. Mr. Trump will keep up his tradition of holding his last rally in Michigan.`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election
+
 **Mets' offseason could include some big-ticket items: Here's what they need**\
 `Several Mets players said after the playoff run that they wanted to return, and there's mutual interest. `\
 https://nytimes.com/athletic/5895940/2024/11/04/mets-offseason-free-agency/

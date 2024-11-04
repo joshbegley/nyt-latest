@@ -1,3 +1,11 @@
+**Election Day is tomorrow. Here’s the latest.**\
+`By Adam Nagourney and Maggie Astor`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/election-day-is-tomorrow-heres-the-latest
+
+**Election Live Updates: Tumultuous Presidential Campaign Sprints Into Final Day**\
+`Former President Donald J. Trump and Vice President Kamala Harris will be in Pennsylvania, a state both candidates see as critical to winning. Mr. Trump will keep up his tradition of holding his last rally in Michigan.`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election
+
 **Mets' offseason could include some big-ticket items: Here's what they need**\
 `Several Mets players said after the playoff run that they wanted to return, and there's mutual interest. `\
 https://nytimes.com/athletic/5895940/2024/11/04/mets-offseason-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/11/04/upshot/place-politics.html
 **Will baseball's broadcast uncertainty impact franchise values? An early test case looms**\
 `As the offseason gets underway, many eyes will be on how the loss of RSN revenue impacts the sport. `\
 https://nytimes.com/athletic/5896621/2024/11/04/mlb-broadcast-uncertainty-franchise-values-twins/
-
-**Fleeing Northern Gaza Risked His Life. Staying Destroyed His Family.**\
-`For Gazans facing Israel’s latest offensive against Hamas in the north, every option is fraught with peril.`\
-https://nytimes.com/2024/11/04/world/europe/northern-gaza-evacuation-risks.html
-
-**Where the Tigers roster stands as free agency begins**\
-`After Detroit’s miraculous push to the playoffs, the Tigers enter this winter in a new space.`\
-https://nytimes.com/athletic/5895912/2024/11/04/tigers-roster-free-agency/
 
