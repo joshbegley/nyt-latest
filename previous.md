@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Rafael**\
+`See the likely path and wind arrival times for Rafael.`\
+https://nytimes.com/interactive/2024/11/04/weather/rafael-map-path-tracker.html
+
 **No Train to Rockaways for 4 Months? Cuomo, Eyeing Mayor’s Race, Objects.**\
 `Former Gov. Andrew M. Cuomo, who is eyeing a potential run for New York City mayor next year, criticized plans to close part of the A train in the Rockaways for months.`\
 https://nytimes.com/2024/11/04/nyregion/cuomo-a-train-mta.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898523/2024/11/04/philadelphia-flyers-goals-stats/
 **Top N.Y.P.D. Officials Have Tense Public Argument at Marathon**\
 `Commissioner Thomas Donlon and his acting chief of staff, Tarik Sheppard, had to be separated by another official, said people familiar with the dispute.`\
 https://nytimes.com/2024/11/04/nyregion/nypd-nyc-marathon.html
-
-**Middle East conflicts hit home in Michigan, threatening Slotkin in a tight Senate race.**\
-`By Karoun Demirjian`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/middle-east-conflicts-hit-home-in-michigan-threatening-slotkin-in-a-tight-senate-race
 

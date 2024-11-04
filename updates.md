@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Rafael**\
+`See the likely path and wind arrival times for Rafael.`\
+https://nytimes.com/interactive/2024/11/04/weather/rafael-map-path-tracker.html
+
 **No Train to Rockaways for 4 Months? Cuomo, Eyeing Mayor’s Race, Objects.**\
 `Former Gov. Andrew M. Cuomo, who is eyeing a potential run for New York City mayor next year, criticized plans to close part of the A train in the Rockaways for months.`\
 https://nytimes.com/2024/11/04/nyregion/cuomo-a-train-mta.html
