@@ -1,3 +1,7 @@
+**Iranians Wonder if Trump Wins, Would Things Be Different This Time?**\
+`While Donald J. Trump is seen by many in Tehran as having been disastrous for their country, some hope he might be more open to negotiation in a second term as U.S. president.`\
+https://nytimes.com/2024/11/04/world/middleeast/iran-trump-harris.html
+
 **2 Police Officers Charged With Reckless Manslaughter in Ohio Man’s Death**\
 `The two police officers, who are white, held down the man, who was Black, for seven minutes as he told them he could not breathe.`\
 https://nytimes.com/2024/11/04/us/police-charged-manslaughter-canton-ohio-frank-tyson.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898057/2024/11/04/ohio-state-football-penn-state-a
 **Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
 `Former President Donald J. Trump insists that the United States under a Democratic administration is lawless and violent. The facts show otherwise.`\
 https://nytimes.com/interactive/2024/11/04/us/trump-crime-fact-check.html
-
-**Edu has been a charismatic connector at Arsenal and will be a tough act to follow**\
-`The sporting director has a personality that brought many parts of the club together and Arsenal will have a tough job replacing him`\
-https://nytimes.com/athletic/5897917/2024/11/04/edu-arsenal-nottingham-forest/
 
