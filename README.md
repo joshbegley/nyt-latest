@@ -1,7 +1,3 @@
-**Hurts, Barkley, Dean help Eagles to 28-23 win vs. Jaguars: Takeaways**\
-`The help of a few clutch fourth-quarter plays pushed the Eagles to their fourth consecutive win.`\
-https://nytimes.com/athletic/5894563/2024/11/03/jaguars-eagles-score-takeaways-result/
-
 **Judge Allows Iowa to Challenge Voters It Suspects of Being Noncitizens**\
 `A federal judge appointed by President Biden allowed the challenge to continue, but voiced concerns at some of the measures taken by Iowa’s secretary of state.`\
 https://nytimes.com/2024/11/03/us/politics/iowa-noncitizens-judge-voting.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/03/us/boat-missing-bodega-bay.html
 **How far can the Falcons go with Kirk Cousins? At this pace, 'the sky's the limit'**\
 `The Falcons have won five of their last six games, and coach Raheem Morris says, "Kirk Cousins is exactly what I thought he was.”`\
 https://nytimes.com/athletic/5895924/2024/11/03/kirk-cousins-falcons-cowboys-nfl/
+
+**Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
+`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. Could that happen Monday? `\
+https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
 
