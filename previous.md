@@ -1,3 +1,15 @@
+**On the issues: Where Harris and Trump stand on foreign policy.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-foreign-policy
+
+**Ruben Amorim's first task: Restore some variety to Manchester United's attacks**\
+`The basketball nature of United's attacks under Erik ten Hag had a huge impact on all elements of the team`\
+https://nytimes.com/athletic/5895194/2024/11/04/ruben-amorim-ten-hag-direct-football-variation/
+
+**San Franciscans Are ‘Fighting for Their Lives’ Over One Great Highway**\
+`Residents are feuding over whether to turn a two-mile stretch of road along the Pacific Ocean into a bikeway and walking path.`\
+https://nytimes.com/2024/11/04/us/san-francisco-great-highway-proposition-k.html
+
 **Do You Know These Space Books That Were Adapted Into Hit Movies?**\
 `This short trivia quiz tests your knowledge of fiction and nonfiction works that were made into popular films about space exploration and the quest to connect with other worlds.`\
 https://nytimes.com/interactive/2024/11/04/books/review/space-books-quiz.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5891613/2024/11/04/san-diego-padres-roster-free-age
 **Six 49ers predictions at midseason: George Kittle will lead offense; watch out for Rams**\
 `How will the 49ers divvy up their backfield? Who will be the team's MVP? Here are predictions for the back nine of their schedule.`\
 https://nytimes.com/athletic/5888573/2024/11/04/49ers-predictions-nfl-midseason-2024/
-
-**Where conservative Christian voters stand in 2024.**\
-`By Elizabeth Dias and Ruth Graham`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/where-conservative-christian-voters-stand-in-2024
-
-**A November Surprise Is Jostling the Markets**\
-`The dollar, Treasury yields and crypto currencies have fallen, reversing some elements of the so-called Trump trade after an unexpected poll result.`\
-https://nytimes.com/2024/11/04/business/dealbook/selzer-poll-trump-trade.html
-
-**WSL Briefing: Chelsea's attacking riches, Arsenal wasteful, West Ham's bizarre own goal**\
-`Erin Cuthbert clears up speculation over her goal celebration and it's the same old problem for Arsenal`\
-https://nytimes.com/athletic/5897112/2024/11/04/wsl-briefing-chelsea-goals/
 

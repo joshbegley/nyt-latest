@@ -1,3 +1,15 @@
+**On the issues: Where Harris and Trump stand on foreign policy.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-foreign-policy
+
+**Ruben Amorim's first task: Restore some variety to Manchester United's attacks**\
+`The basketball nature of United's attacks under Erik ten Hag had a huge impact on all elements of the team`\
+https://nytimes.com/athletic/5895194/2024/11/04/ruben-amorim-ten-hag-direct-football-variation/
+
+**San Franciscans Are ‘Fighting for Their Lives’ Over One Great Highway**\
+`Residents are feuding over whether to turn a two-mile stretch of road along the Pacific Ocean into a bikeway and walking path.`\
+https://nytimes.com/2024/11/04/us/san-francisco-great-highway-proposition-k.html
+
 **Do You Know These Space Books That Were Adapted Into Hit Movies?**\
 `This short trivia quiz tests your knowledge of fiction and nonfiction works that were made into popular films about space exploration and the quest to connect with other worlds.`\
 https://nytimes.com/interactive/2024/11/04/books/review/space-books-quiz.html
