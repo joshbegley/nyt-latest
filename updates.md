@@ -1,3 +1,7 @@
+**Heavy Smog Will Close Schools in Pakistan’s 2nd-Largest City for a Week**\
+`The city of Lahore reported hazardous levels of air pollution on Sunday. Pakistani officials have blamed India for some of it.`\
+https://nytimes.com/2024/11/04/world/asia/school-closures-pakistan-pollution-lahore.html
+
 **The Pulse: Saquon invents new football move**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5897303/2024/11/04/nfl-team-streaks-saquon-barkley-the-pulse/
