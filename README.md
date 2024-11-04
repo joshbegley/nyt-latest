@@ -1,3 +1,11 @@
+**Trump Vows to ‘Fix It,’ Whether It’s Still Broken or Not**\
+`In his final days on the campaign trail, former President Donald J. Trump has portrayed himself as the repairman for a country awash in inflation, crime and immigration — even though all three are down.`\
+https://nytimes.com/2024/11/04/us/politics/trump-economy-immigration-crime.html
+
+**Fact-checking Harris’s closing argument.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/fact-checking-harriss-closing-argument
+
 **If Harris Wins, Here’s Why**\
 `We don’t yet know the result, but we do know Kamala Harris’s strategy. Here’s what analysts will say if she pulls off a victory this week.`\
 https://nytimes.com/2024/11/04/us/politics/what-if-kamala-harris-wins-election-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/how-is-the-times-co
 **More than 78 million people have voted early, in a relatively smooth process.**\
 `But the flood of early voting does little to offer a clear picture of who is likely to win the election.`\
 https://nytimes.com/2024/11/04/us/politics/early-voting-election.html
-
-**A Day-by-Day Forecast for Tropical Storm Rafael**\
-`The storm is expected to move through the Caribbean in the next few days. Forecasters are uncertain of where it will go once it enters the Gulf of Mexico by the middle of the week.`\
-https://nytimes.com/2024/11/04/weather/tropical-storm-rafael-forecast-florida.html
-
-**Behind the Election Anger May Be Something Else: Lingering Covid Grief**\
-`In the first election after the pandemic, Americans are heading to the polls full of emotions.`\
-https://nytimes.com/2024/11/04/us/covid-grief-voters-election.html
 
