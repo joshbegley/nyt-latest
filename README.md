@@ -26,6 +26,10 @@ https://nytimes.com/2024/11/04/arts/dawsons-creek-james-van-der-beek-colorectal-
 `Unless Palace resolve their attacking failures, their games will continue to be unnecessarily close`\
 https://nytimes.com/athletic/5886751/2024/11/04/palace-attacking-problems-glasner-change/
 
+**Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
+`Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders' offensive issues. That happened Sunday night.`\
+https://nytimes.com/athletic/5896025/2024/11/04/raiders-loss-gardner-minshew-benching-luke-getsy/
+
 **An Indonesian Tribe’s Language Gets an Alphabet: Korea’s**\
 `The Cia-Cia language has been passed down orally for centuries. Now the tribe’s children are learning to write it in Hangul, the Korean script.`\
 https://nytimes.com/2024/11/04/world/asia/an-indonesian-tribes-language-gets-an-alphabet-koreas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/world/asia/an-indonesian-tribes-language-gets-an-
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/11/04/briefing/election-day-gaza-vaccines-moldova.html
-
-**Quote of the Day: New Life for Factory Towns Hobbled by ‘China Shock’**\
-`Quotation of the Day for Monday, November 4, 2024.`\
-https://nytimes.com/2024/11/04/pageoneplus/quote-of-the-day-new-life-for-factory-towns-hobbled-by-china-shock.html
 
