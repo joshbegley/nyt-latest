@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Special teams help Toronto salvage point vs. Wild**\
+`The Leafs scored their first power-play goal since Oct. 21 but ran out of steam on the second night of a back-to-back.`\
+https://nytimes.com/athletic/5895644/2024/11/03/maple-leafs-report-cards-special-teams-wild/
+
 **Harris, at Final Michigan Rally, Offers Forward-Looking Vision**\
 `“Our campaign has not been about being against something, it is about being for something,” Vice President Kamala Harris said, avoiding any mention of her rival by name.`\
 https://nytimes.com/2024/11/03/us/politics/harris-michigan-state-university-rally.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5896039/2024/11/03/lamar-jackson-passer-rating-rave
 `In a battle of sputtering special teams, the Wild were able to pull off the win thanks to an excellent backcheck by Jared Spurgeon.`\
 https://nytimes.com/athletic/5895752/2024/11/03/wild-matt-boldy-overtime-leafs/
 
-**Tyler Bass' big moment, Josh Allen's patience, Greg Rousseau's role change: Bills observations**\
+**Tyler Bass' 61-yard field goal saves day, ending Buffalo's kicking woes: Bills observations**\
 `After struggling for a while, Bass finally broke through with a massive game winner.`\
 https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-dolphins/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5896283/2024/11/03/derek-carr-michael-thomas-rant/
 **Bryce Young deserves starting nod with game-winning drive, growing confidence**\
 `It wasn't a perfect performance by Young or the Panthers on Sunday, but Dave Canales should let his QB build on his momentum.`\
 https://nytimes.com/athletic/5896124/2024/11/03/panthers-win-bryce-young-game-winning-drive-saints/
-
-**Paul George expected to make 76ers debut Monday vs. Suns**\
-`George has yet to play this season after hyperextending his left knee in a preseason game against the Atlanta Hawks on Oct. 14.`\
-https://nytimes.com/athletic/5896274/2024/11/03/paul-george-season-debut-76ers-suns/
 
