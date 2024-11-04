@@ -1,3 +1,15 @@
+**Athletics drop 'Oakland' from their name**\
+`After 57 years in Oakland, the A's played their final game at the Coliseum on Sept. 26, winning 3-2 against the Texas Rangers.`\
+https://nytimes.com/athletic/5898373/2024/11/04/athletics-oakland-name-change/
+
+**Harris and Trump Focus on Pennsylvania, the Biggest Electoral Prize, in Final Push**\
+`Donald Trump began the penultimate day of the campaign in North Carolina, however, a state he won in 2020 but where Vice President Kamala Harris has forced him to compete to the end.`\
+https://nytimes.com/2024/11/04/us/politics/harris-trump-pennsylvania-campaign.html
+
+**After review, Carson Beck made 'winning decisions' on 68 of 73 Georgia plays**\
+`Eight of Beck's interceptions have been thrown on first or second down, including two in Georgia's win over Florida.`\
+https://nytimes.com/athletic/5898416/2024/11/04/georgia-qb-carson-beck-interceptions/
+
 **Broncos trade LB Baron Browning to Cardinals for 6th-round pick**\
 `He's tallied 114 total tackles and 9 1/2 sacks over three-plus seasons in Denver.`\
 https://nytimes.com/athletic/5898439/2024/11/04/baron-browning-cardinals-broncos-trade/
