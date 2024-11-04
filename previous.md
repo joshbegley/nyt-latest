@@ -1,3 +1,11 @@
+**Penn State's James Franklin outlines critical goal-line series against Ohio State: What went wrong?**\
+`Two drives that ended inside the Ohio State 5-yard line resulted in zero points for Penn State in a troubling loss to the Buckeyes. `\
+https://nytimes.com/athletic/5898757/2024/11/04/james-franklin-penn-state-ohio-state-play-calls-college-football/
+
+**Harris appeals to Latino pride, and anger at Trump, in a final push for votes.**\
+`By Jennifer Medina`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/harris-appeals-to-latino-pride-and-anger-at-trump-in-a-final-push-for-votes
+
 **Musk’s $1 Million Checks to Voters Don’t Violate Law, Judge Rules**\
 `Elon Musk’s super PAC has been giving away $1 million daily to registered voters who signed a petition supporting the Constitution.`\
 https://nytimes.com/2024/11/04/us/politics/elon-musk-america-pac-sweepstakes-ruling.html
@@ -14,7 +22,7 @@ https://nytimes.com/2024/11/04/us/elections/iowa-selzer-poll-trump-harris.html
 `In his final days on the campaign trail, former President Donald J. Trump has portrayed himself as the repairman for a country awash in inflation, crime and immigration — even though all three are down.`\
 https://nytimes.com/2024/11/04/us/politics/trump-economy-immigration-crime.html
 
-**Fact-checking Harris’s closing argument.**\
+**Here is a look at Harris’s closing argument.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/fact-checking-harriss-closing-argument
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/if-trump-wins-heres-why.html
 **Macomb County, Mich.**\
 `By Jeremy W. Peters`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/macomb-county-mich
-
-**Foreign Adversaries May Try to Undermine U.S. Elections After Vote**\
-`Russian and other groups have unleashed a torrent of disinformation. Cybersecurity officials plan to issue updates on threats throughout Election Day.`\
-https://nytimes.com/2024/11/04/us/politics/election-threats-russia.html
-
-**NFL trade grades: Breaking down biggest moves at the deadline**\
-`We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
-https://nytimes.com/athletic/5893004/2024/11/04/nfl-trade-grades-deadline-2024/
 

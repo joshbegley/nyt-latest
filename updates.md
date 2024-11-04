@@ -1,3 +1,15 @@
+**Penn State's James Franklin outlines critical goal-line series against Ohio State: What went wrong?**\
+`Two drives that ended inside the Ohio State 5-yard line resulted in zero points for Penn State in a troubling loss to the Buckeyes. `\
+https://nytimes.com/athletic/5898757/2024/11/04/james-franklin-penn-state-ohio-state-play-calls-college-football/
+
+**Harris appeals to Latino pride, and anger at Trump, in a final push for votes.**\
+`By Jennifer Medina`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/harris-appeals-to-latino-pride-and-anger-at-trump-in-a-final-push-for-votes
+
+**Here is a look at Harris’s closing argument.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/fact-checking-harriss-closing-argument
+
 **Musk’s $1 Million Checks to Voters Don’t Violate Law, Judge Rules**\
 `Elon Musk’s super PAC has been giving away $1 million daily to registered voters who signed a petition supporting the Constitution.`\
 https://nytimes.com/2024/11/04/us/politics/elon-musk-america-pac-sweepstakes-ruling.html
