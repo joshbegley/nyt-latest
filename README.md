@@ -1,3 +1,7 @@
+**Musk’s $1 Million Checks to Voters Don’t Violate Law, Judge Rules**\
+`Elon Musk’s super PAC has been giving away $1 million daily to registered voters who signed a petition supporting the Constitution.`\
+https://nytimes.com/2024/11/04/us/politics/elon-musk-america-pac-sweepstakes-ruling.html
+
 **Quincy Jones Orchestrated the Sound of America**\
 `Jones, who died at 91, erased boundaries, connected worlds and embraced delight. As a producer, he coaxed ingenuity from his players and singers.`\
 https://nytimes.com/2024/11/04/arts/music/quincy-jones-death-michael-jackson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/election-threats-russia.html
 **NFL trade grades: Breaking down biggest moves at the deadline**\
 `We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
 https://nytimes.com/athletic/5893004/2024/11/04/nfl-trade-grades-deadline-2024/
-
-**Police Officer Found Guilty of Murder in Shooting of a Columbus Man**\
-`An Ohio jury found the officer, Adam Coy, guilty on three charges, including murder and reckless homicide, after he shot Andre Hill, a Black man. The killing led to police reforms.`\
-https://nytimes.com/2024/11/04/us/police-guilty-murder-andre-hill-columbus.html
 
