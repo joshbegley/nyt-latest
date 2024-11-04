@@ -1,3 +1,11 @@
+**2 Police Officers Charged With Reckless Manslaughter in Ohio Man’s Death**\
+`The two police officers, who are white, held down the man, who was Black, for seven minutes as he told them he could not breathe.`\
+https://nytimes.com/2024/11/04/us/police-charged-manslaughter-canton-ohio-frank-tyson.html
+
+**Vance Describes Election Day Nerves, and an Agenda for His Vice Presidency**\
+`With the close, tense campaign nearing its end, Senator JD Vance projected optimism, but added: “I just want to know.”`\
+https://nytimes.com/2024/11/04/us/politics/jd-vance-interview.html
+
 **Trump and Harris donors are invited to watch history happen.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-and-harris-donors-are-invited-to-watch-history-happen
