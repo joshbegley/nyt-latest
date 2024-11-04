@@ -1,3 +1,7 @@
+**Astros outright starter José Urquidy**\
+`Urquidy did not pitch in a major-league game last season and underwent his second Tommy John surgery in June.`\
+https://nytimes.com/athletic/5899010/2024/11/04/astros-outright-starter-jose-urquidy-who-is-now-a-free-agent-after-5-seasons-in-houston/
+
 **At Daniel Penny’s Trial, Passengers Describe Harrowing F Train Ride**\
 `Witnesses from the subway train said they feared Jordan Neely but also described the horror of watching him die in a chokehold.`\
 https://nytimes.com/2024/11/04/nyregion/daniel-penny-trial-subway-chokehold-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898913/2024/11/04/mavericks-lawsuit-donnie-nelson-
 **ESPN's Stephen A. Smith cracks back at Suns star Kevin Durant's comments**\
 `During a four-minute segment on the ESPN's "First Take," Stephen A. Smith defended his credentials and questioned Durant's sensitivity.`\
 https://nytimes.com/athletic/5898941/2024/11/04/kevin-durant-stephen-a-smith-espn-suns-comments/
-
-**Trump and Harris Battle for Pennsylvania**\
-`Also, remembering Quincy Jones. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/11/04/briefing/trump-and-harris-battle-for-pennsylvania.html
 
