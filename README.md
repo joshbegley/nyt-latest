@@ -1,4 +1,4 @@
-**Vikings defense stifles Joe Flacco-led Colts: Key Takeaways**\
+**Vikings defense stifles Joe Flacco-led Colts: Key takeaways**\
 `Minnesota's performance looked more like its first five games, when Brian Flores' unit was flustering every quarterback it faced.`\
 https://nytimes.com/athletic/5896027/2024/11/03/colts-vikings-score-takeaways-result/
 
