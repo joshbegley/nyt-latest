@@ -1,3 +1,11 @@
+**If Harris Wins, Here’s Why**\
+`We don’t yet know the result, but we do know Kamala Harris’s strategy. Here’s what analysts will say if she pulls off a victory this week.`\
+https://nytimes.com/2024/11/04/us/politics/what-if-kamala-harris-wins-election-2024.html
+
+**If Trump Wins, Here’s Why**\
+`Donald J. Trump came into the race with extraordinary baggage. If he wins, here’s what analysts will say about how he overcame it.`\
+https://nytimes.com/2024/11/04/us/politics/if-trump-wins-heres-why.html
+
 **Macomb County, Mich.**\
 `By Jeremy W. Peters`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/macomb-county-mich
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/weather/tropical-storm-rafael-forecast-florida.ht
 **Behind the Election Anger May Be Something Else: Lingering Covid Grief**\
 `In the first election after the pandemic, Americans are heading to the polls full of emotions.`\
 https://nytimes.com/2024/11/04/us/covid-grief-voters-election.html
-
-**NFL flexes Bengals-Chargers to 'Sunday Night Football' in Week 11**\
-`For the second time this season, a game has been moved to prime time. `\
-https://nytimes.com/athletic/5898746/2024/11/04/bengals-chargers-jets-colts-flex-schedule-week-11/
-
-**Canada Moves to Limit Oil and Gas Industry Carbon Emissions**\
-`The Trudeau government has focused on the oil and gas production industries because the large amounts of energy they use make them the country’s largest source of greenhouse gases.`\
-https://nytimes.com/2024/11/04/world/canada/canada-oil-gas-carbon-emissions.html
 

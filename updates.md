@@ -1,3 +1,11 @@
+**If Harris Wins, Here’s Why**\
+`We don’t yet know the result, but we do know Kamala Harris’s strategy. Here’s what analysts will say if she pulls off a victory this week.`\
+https://nytimes.com/2024/11/04/us/politics/what-if-kamala-harris-wins-election-2024.html
+
+**If Trump Wins, Here’s Why**\
+`Donald J. Trump came into the race with extraordinary baggage. If he wins, here’s what analysts will say about how he overcame it.`\
+https://nytimes.com/2024/11/04/us/politics/if-trump-wins-heres-why.html
+
 **More than 78 million people have voted early, in a relatively smooth process.**\
 `But the flood of early voting does little to offer a clear picture of who is likely to win the election.`\
 https://nytimes.com/2024/11/04/us/politics/early-voting-election.html
