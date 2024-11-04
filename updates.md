@@ -1,3 +1,7 @@
+**Tyler Bass' big moment, Josh Allen's patience, Greg Rousseau's role change: Bills observations**\
+`After struggling for a while, Bass finally broke through with a massive game winner.`\
+https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-dolphins/
+
 **Harris, at Final Michigan Rally, Offers Forward-Looking Vision**\
 `“Our campaign has not been about being against something, it is about being for something,” Vice President Kamala Harris said, avoiding any mention of her rival by name.`\
 https://nytimes.com/2024/11/03/us/politics/harris-michigan-state-university-rally.html

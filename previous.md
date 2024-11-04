@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5896039/2024/11/03/lamar-jackson-passer-rating-rave
 https://nytimes.com/athletic/5895752/2024/11/03/wild-matt-boldy-overtime-leafs/
 
 **Tyler Bass' big moment, Josh Allen's patience, Greg Rousseau's role change: Bills observations**\
-`After struggling for a while, Tyler Bass finally broke through with a massive game-winner.`\
+`After struggling for a while, Bass finally broke through with a massive game winner.`\
 https://nytimes.com/athletic/5896165/2024/11/03/bills-win-tyler-bass-josh-allen-dolphins/
 
 **Why Chargers rookie Tarheeb Still has been a 'gift from the football gods'**\
