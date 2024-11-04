@@ -1,3 +1,15 @@
+**Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
+`Former President Donald J. Trump insists that the United States under a Democratic administration is lawless and violent. The facts show otherwise.`\
+https://nytimes.com/interactive/2024/11/04/us/trump-crime-fact-check.html
+
+**Edu has been a charismatic connector at Arsenal and he will be a tough act to follow**\
+`The sporting director has a personality that has brought many parts of the club together and Arsenal will have a tough job replacing him`\
+https://nytimes.com/athletic/5897917/2024/11/04/edu-arsenal-nottingham-forest/
+
+**How ‘Blitz’ Recreates War-Torn London**\
+`Steve McQueen’s latest film, set in 1940 during Germany’s bombardment of the British capital, draws extensively from contemporary photos, and was shot entirely outside London.`\
+https://nytimes.com/2024/11/04/movies/blitz-london-steve-mcqueen.html
+
 **Heat Today: Bam Adebayo's hot hand, Erik Spoelstra's birthday help highlight road trip**\
 `The Heat were all smiles after their trip to Mexico City.`\
 https://nytimes.com/athletic/5897488/2024/11/04/bam-adebayo-erik-spoelstra-miami-heat/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5897747/2024/11/04/usmnt-wright-pochettino-weah-aar
 **Hollinger's Week That Was: Bucks, Sixers questions; Moses Moody's incentive details; more**\
 `Also: After a runaway foul rate to start the season, things seem to have settled a bit. But teams are still letting 3s fly.`\
 https://nytimes.com/athletic/5897035/2024/11/04/bucks-sixers-mosey-moody-warriors-nba-contracts/
-
-**A New Boon for Georgia Democrats: Winners of Big Georgia Races**\
-`Elected less than four years ago, Senators Jon Ossoff and Raphael Warnock have become a Southern battleground’s star campaigners.`\
-https://nytimes.com/2024/11/04/us/georgia-democrats-senators-ossoff-warnock.html
-
-**A Taylor Dancer for the Ages, ‘Unmannered and Wondrous’**\
-`Carolyn Adams, the Paul Taylor dancer turned educator, is being honored at the company’s gala with a new solo by Robert Battle, her former student.`\
-https://nytimes.com/2024/11/04/arts/dance/carolyn-adams-paul-taylor-gala.html
-
-**5 Reasons Early Voting Is Overwhelmed With Falsehoods**\
-`Misleading anecdotes and rumors are spreading faster, and with more ferocity, than in the run-ups to past presidential contests.`\
-https://nytimes.com/2024/11/04/technology/early-voting-election-misinformation.html
 

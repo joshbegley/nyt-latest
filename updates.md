@@ -1,3 +1,15 @@
+**Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
+`Former President Donald J. Trump insists that the United States under a Democratic administration is lawless and violent. The facts show otherwise.`\
+https://nytimes.com/interactive/2024/11/04/us/trump-crime-fact-check.html
+
+**Edu has been a charismatic connector at Arsenal and he will be a tough act to follow**\
+`The sporting director has a personality that has brought many parts of the club together and Arsenal will have a tough job replacing him`\
+https://nytimes.com/athletic/5897917/2024/11/04/edu-arsenal-nottingham-forest/
+
+**How ‘Blitz’ Recreates War-Torn London**\
+`Steve McQueen’s latest film, set in 1940 during Germany’s bombardment of the British capital, draws extensively from contemporary photos, and was shot entirely outside London.`\
+https://nytimes.com/2024/11/04/movies/blitz-london-steve-mcqueen.html
+
 **Heat Today: Bam Adebayo's hot hand, Erik Spoelstra's birthday help highlight road trip**\
 `The Heat were all smiles after their trip to Mexico City.`\
 https://nytimes.com/athletic/5897488/2024/11/04/bam-adebayo-erik-spoelstra-miami-heat/
