@@ -1,3 +1,15 @@
+**Browns snap back to reality after being outclassed by Chargers from start to finish**\
+`Another error-filled effort served as a reminder that Cleveland's feel-good rally to beat Baltimore last week was just an aberration.`\
+https://nytimes.com/athletic/5895874/2024/11/03/browns-loss-jameis-winston-chargers/
+
+**1 Dead and 4 Are Missing After Boat Capsizes Off California**\
+`A search began after reports of six overdue boaters Saturday. Officials said a child was rescued and in stable condition and the body of a teenager was recovered.`\
+https://nytimes.com/2024/11/03/us/boat-missing-bodega-bay.html
+
+**How far can the Falcons go with Kirk Cousins? At this pace, 'the sky's the limit'**\
+`The Falcons have won five of their last six games, and coach Raheem Morris says, "Kirk Cousins is exactly what I thought he was.”`\
+https://nytimes.com/athletic/5895924/2024/11/03/kirk-cousins-falcons-cowboys-nfl/
+
 **Gardner Minshew's benching might be just the start for Raiders — is Luke Getsy next?**\
 `Antonio Pierce said last week that Getsy might ultimately “take the fall” for the Raiders offensive issue. Could that happen Monday? `\
 https://nytimes.com/athletic/5896025/2024/11/03/raiders-loss-gardner-minshew-benching-luke-getsy/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5895889/2024/11/03/nascar-semifinal-controversy-chr
 **The Commanders get contributions from all over their roster to keep the party going**\
 `The Commanders improved to 7-2 Sunday, holding on to first place in the NFC East after their 27-22 victory over the Giants.`\
 https://nytimes.com/athletic/5895160/2024/11/03/commanders-beat-giants-jayden-daniels-keep-party-going/
-
-**California County to Pay $300,000 Over Butchering of Girl’s Goat**\
-`The girl and her family reached a settlement after accusing the Shasta County Sheriff’s Office of unlawfully seizing a pet goat that was sold and slaughtered.`\
-https://nytimes.com/2024/11/03/us/california-goat-butchered-settlement.html
-
-**On the issues: Where Harris and Trump stand on health care.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/11/03/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-health-care
-
-**Pro-West Leader Wins High-Stakes Vote in Former Soviet Republic**\
-`The president of Moldova, Maia Sandu, won re-election on Sunday against a rival candidate she had denounced as “Moscow’s man.”`\
-https://nytimes.com/2024/11/03/world/europe/sandu-pro-west-moldova-president.html
 
