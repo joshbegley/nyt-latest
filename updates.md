@@ -1,3 +1,19 @@
+**Where conservative Christian voters stand in 2024.**\
+`By Elizabeth Dias and Ruth Graham`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/where-conservative-christian-voters-stand-in-2024
+
+**A November Surprise Is Jostling the Markets**\
+`The dollar, Treasury yields and crypto currencies have fallen, reversing some elements of the so-called Trump trade after an unexpected poll result.`\
+https://nytimes.com/2024/11/04/business/dealbook/selzer-poll-trump-trade.html
+
+**WSL Briefing: Chelsea's attacking riches, Arsenal wasteful, West Ham's bizarre own goal**\
+`Erin Cuthbert clears up speculation over her goal celebration and it's the same old problem for Arsenal`\
+https://nytimes.com/athletic/5897112/2024/11/04/wsl-briefing-chelsea-goals/
+
+**Ancelotti says La Liga matches should have been cancelled due to Valencia flooding**\
+`Real Madrid head coach Carlo Ancelotti says he believes the weekend’s round of La Liga matches should have been postponed due to the flooding in Valencia.`\
+https://nytimes.com/athletic/5897394/2024/11/04/carlo-ancelotti-valencia-flooding/
+
 **Physical Intelligence, a Robot A.I. Specialist, Raises Millions From Bezos**\
 `The start-up raised $400 million in a funding round with investments from the likes of Jeff Bezos, Thrive Capital and OpenAI.`\
 https://nytimes.com/2024/11/04/business/dealbook/physical-intelligence-robot-ai.html
