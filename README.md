@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/04/us/politics/election-threats-russia.html
 
 **NFL trade grades: Breaking down biggest moves at the deadline**\
-`We analyze and grade all of the biggest trades ahead of the NFL trade deadline. `\
+`We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
 https://nytimes.com/athletic/5893004/2024/11/04/nfl-trade-grades-deadline-2024/
 
 **Police Officer Found Guilty of Murder in Shooting of a Columbus Man**\
