@@ -1,3 +1,7 @@
+**Canada Moves to Limit Oil and Gas Industry Carbon Emissions**\
+`The Trudeau government has focused on the oil and gas production industries because the large amounts of energy they use make them the country’s largest source of greenhouse gases.`\
+https://nytimes.com/2024/11/04/world/canada/canada-oil-gas-carbon-emissions.html
+
 **A Surprising Poll for Harris Took Iowa Democrats by Surprise, Too**\
 `The Des Moines Register’s unexpected result showing Kamala Harris ahead by three percentage points in the reliably red state fueled optimism in her party.`\
 https://nytimes.com/2024/11/04/us/politics/iowa-poll-harris-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/weather/california-wind-wildfires.html
 **Tuesday Briefing: Americans brace for Election Day**\
 `Plus, remembering Quincy Jones.`\
 https://nytimes.com/2024/11/04/briefing/election-day-israel-spain.html
-
-**Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/trump-keeps-decrying-rampant-crime-heres-how-his-misleading-claim-has-shifted
 
