@@ -1,3 +1,11 @@
+**Packers embarrass themselves with self-inflicted errors in 24-14 loss to Lions**\
+`The Packers played a game full of needless mistakes and paid the price, losing 24-14 to the Lions and falling to 0-2 in the NFC North.`\
+https://nytimes.com/athletic/5896719/2024/11/03/packers-loss-lions-embarrassing/
+
+**Gutting loss to Rams makes clear who Seahawks are: A team that’s not quite good enough**\
+`The Seahawks have lost five of six and sit last in the division after a series of backbreaking mistakes against the Rams.`\
+https://nytimes.com/athletic/5896674/2024/11/03/seahawks-loss-geno-smith-rams/
+
 **Gutting loss to Rams makes clear who Seahawks are: A team that’s not quite good enough**\
 `The Seahawks have lost five of six and now sit last in the division after a series of back-breaking mistakes against the Rams.`\
 https://nytimes.com/athletic/5896674/2024/11/03/seahawks-loss-geno-smith-rams/
