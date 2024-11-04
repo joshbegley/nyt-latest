@@ -1,3 +1,7 @@
+**Hazardous Smog Cloaks Pakistan’s 2nd-Largest City**\
+`Lahore, a city of about 11 million people, will close its primary schools for a week after reporting record levels of air pollution.`\
+https://nytimes.com/video/world/asia/100000009802431/lahore-pakistan-smog-air-pollution.html
+
 **Long After Sunset, the Final Two Runners Cross the Marathon Finish Line**\
 `Two runners with injuries ended the New York City Marathon on their own two feet — and a pair of crutches.`\
 https://nytimes.com/2024/11/04/nyregion/nyc-marathon-final-finishers.html
