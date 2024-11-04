@@ -1,3 +1,7 @@
+**As Election Day nears, yard signs disappear.**\
+`By Corey Kilgannon`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/as-election-day-nears-yard-signs-disappear
+
 **Astros outright starter José Urquidy**\
 `Urquidy did not pitch in a major-league game last season and underwent his second Tommy John surgery in June.`\
 https://nytimes.com/athletic/5899010/2024/11/04/astros-outright-starter-jose-urquidy-who-is-now-a-free-agent-after-5-seasons-in-houston/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892158/2024/11/04/nba-weekly-watch-guide-embiid-we
 **Donnie Nelson settles lawsuit against Mavericks, Mark Cuban**\
 `Nelson said in the lawsuit that a Mavericks executive assaulted and harassed his nephew in a Chicago hotel during All-Star weekend in 2020.`\
 https://nytimes.com/athletic/5898913/2024/11/04/mavericks-lawsuit-donnie-nelson-mark-cuban/
-
-**ESPN's Stephen A. Smith cracks back at Suns star Kevin Durant's comments**\
-`During a four-minute segment on the ESPN's "First Take," Stephen A. Smith defended his credentials and questioned Durant's sensitivity.`\
-https://nytimes.com/athletic/5898941/2024/11/04/kevin-durant-stephen-a-smith-espn-suns-comments/
 
