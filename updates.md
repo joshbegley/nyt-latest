@@ -1,3 +1,11 @@
+**Braves decline option on catcher Travis d'Arnaud**\
+`It was widely assumed that the Braves would exercise d'Arnaud's 2025 team option for $8 million.`\
+https://nytimes.com/athletic/5898656/2024/11/04/braves-decline-option-travis-darnaud-free-agency/
+
+**Quincy Jones’s Half-Century of Unforgettable Music**\
+`His originality crossed a wide range of genres.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/quincy-jones-music
+
 **New Hanover County, N.C.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/new-hanover-county-nc
