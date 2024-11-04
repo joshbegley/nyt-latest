@@ -1,3 +1,7 @@
+**Monday Morning Leafs Report: Auston Matthews is on pace for 32 goals. What’s going on?**\
+`The new Leafs captain won the Rocket Richard with 69 goals just last season. What's behind his slow start?`\
+https://nytimes.com/athletic/5896579/2024/11/04/auston-matthews-maple-leafs-scoring/
+
 **New York Times Passes 11 Million Subscribers**\
 `The Times reported steady growth in digital subscriptions in the third quarter and a profit for The Athletic for the first time since it acquired the sports site in 2022.`\
 https://nytimes.com/2024/11/04/business/media/new-york-times-earnings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897303/2024/11/04/nfl-team-streaks-saquon-barkley-
 **Tennis Briefing: WTA Finals, the ATP race, and celebrating too much in Paris?**\
 `The best women's players in the world face off as the men's 'Race to Turin' comes to a conclusion.`\
 https://nytimes.com/athletic/5895811/2024/11/04/tennis-news-analysis-wta-finals-atp-race-turin/
-
-**A Guide to Election Night**\
-`What to expect, hour by hour.`\
-https://nytimes.com/2024/11/04/briefing/election-night-2024-harris-trump.html
 

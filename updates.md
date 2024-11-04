@@ -1,3 +1,7 @@
+**Monday Morning Leafs Report: Auston Matthews is on pace for 32 goals. What’s going on?**\
+`The new Leafs captain won the Rocket Richard with 69 goals just last season. What's behind his slow start?`\
+https://nytimes.com/athletic/5896579/2024/11/04/auston-matthews-maple-leafs-scoring/
+
 **New York Times Passes 11 Million Subscribers**\
 `The Times reported steady growth in digital subscriptions in the third quarter and a profit for The Athletic for the first time since it acquired the sports site in 2022.`\
 https://nytimes.com/2024/11/04/business/media/new-york-times-earnings.html
