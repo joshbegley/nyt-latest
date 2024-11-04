@@ -1,3 +1,11 @@
+**Ohio State film study: How the Buckeyes beat Penn State in top-five showdown**\
+`There are things Ohio State will want back because it could’ve put the game away earlier, but it's hard to nit-pick the win over Penn State.`\
+https://nytimes.com/athletic/5898057/2024/11/04/ohio-state-football-penn-state-analysis-will-howard/
+
+**Florida QB DJ Lagway not ruled out for return after injury vs. UGA**\
+`Florida coach Billy Napier told reporters Monday that quarterback DJ Lagway's injury is not as significant as feared.`\
+https://nytimes.com/athletic/5893339/2024/11/04/dj-lagway-injury-florida-georgia/
+
 **Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
 `Former President Donald J. Trump insists that the United States under a Democratic administration is lawless and violent. The facts show otherwise.`\
 https://nytimes.com/interactive/2024/11/04/us/trump-crime-fact-check.html

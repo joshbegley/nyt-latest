@@ -1,3 +1,7 @@
+**Ohio State film study: How the Buckeyes beat Penn State in top-five showdown**\
+`There are things Ohio State will want back because it could’ve put the game away earlier, but it's hard to nit-pick the win over Penn State.`\
+https://nytimes.com/athletic/5898057/2024/11/04/ohio-state-football-penn-state-analysis-will-howard/
+
 **Trump keeps decrying rampant crime. Here’s how his misleading claim has shifted.**\
 `Former President Donald J. Trump insists that the United States under a Democratic administration is lawless and violent. The facts show otherwise.`\
 https://nytimes.com/interactive/2024/11/04/us/trump-crime-fact-check.html
@@ -14,6 +18,10 @@ https://nytimes.com/2024/11/04/movies/blitz-london-steve-mcqueen.html
 `The Heat were all smiles after their trip to Mexico City.`\
 https://nytimes.com/athletic/5897488/2024/11/04/bam-adebayo-erik-spoelstra-miami-heat/
 
+**Florida QB DJ Lagway not ruled out for return after injury vs. UGA**\
+`Florida coach Billy Napier told reporters Monday that quarterback DJ Lagway's injury is not as significant as feared.`\
+https://nytimes.com/athletic/5893339/2024/11/04/dj-lagway-injury-florida-georgia/
+
 **Scoop City: Risers and fallers after Week 9**\
 `A quick look at the risers (Bills, Commanders and Lions), fallers (Colts) and the NFC North after Sunday's games.`\
 https://nytimes.com/athletic/5897982/2024/11/04/scoop-city-risers-and-fallers-after-week-9/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5897978/2024/11/04/hockey-4-nations-projected-roste
 **Vikings WR Jordan Addison is finally freed in game-changing performance against Colts**\
 `The Vikings hope the second-year wideout's incredible touchdown catch is just what he needs to get going in the second half of the season.`\
 https://nytimes.com/athletic/5896166/2024/11/04/jordan-addison-vikings-colts-touchdown-catch/
-
-**USMNT Player Tracker: Wright on song, Weah earns his stripes and Aaronson making friends**\
-`Tillman's off day, Campbell's latest outing, and Trusty and Carter-Vickers' new defensive partnership in Glasgow also feature in our roundup`\
-https://nytimes.com/athletic/5897747/2024/11/04/usmnt-wright-pochettino-weah-aaronson-tracker/
-
-**Hollinger's Week That Was: Bucks, Sixers questions; Moses Moody's incentive details; more**\
-`Also: After a runaway foul rate to start the season, things seem to have settled a bit. But teams are still letting 3s fly.`\
-https://nytimes.com/athletic/5897035/2024/11/04/bucks-sixers-mosey-moody-warriors-nba-contracts/
 
