@@ -1,3 +1,5 @@
+**How to Visit New York City on a Budget**\
+
 **Forest owner Marinakis loses appeal against five-game ban for ‘spitting'**\
 `Nottingham Forest owner Evangelos Marinakis has lost his appeal against the five-game stadium ban he received for spitting on the floor as match officials walked past him during the 1-0 loss against Fulham in September.`\
 https://nytimes.com/athletic/5897571/2024/11/04/marinakis-ban-appeal-forest/
