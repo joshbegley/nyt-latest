@@ -1,3 +1,11 @@
+**Red Bulls knock reigning MLS Cup champion Crew out of playoffs**\
+`The New York Red Bulls pulled off one of the biggest shocks in MLS playoff history, knocking off the Columbus Crew in a two-game sweep.`\
+https://nytimes.com/athletic/5896156/2024/11/03/red-bulls-crew-elminiation-mls-playoffs/
+
+**An angry Joe Burrow grabs the wheel to get Bengals' season back on track amid chaos**\
+`CINCINNATI – Joe Burrow just tied a career-high with five touchdown passes.`\
+https://nytimes.com/athletic/5895935/2024/11/03/bengals-win-joe-burrow-angry-raiders/
+
 **Charli XCX, Leonardo DiCaprio and Colman Domingo Turn Out for the LACMA Gala**\
 `Hollywood stars mingled with artists for a benefit honoring the artist Simone Leigh and the filmmaker Baz Luhrmann.`\
 https://nytimes.com/2024/11/03/style/lacma-gala-photos.html

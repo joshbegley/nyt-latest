@@ -1,11 +1,3 @@
-**Red Bulls knock reigning MLS Cup champion Crew out of playoffs**\
-`The New York Red Bulls pulled off one of the biggest shocks in MLS playoff history, knocking off the Columbus Crew in a two-game sweep.`\
-https://nytimes.com/athletic/5896156/2024/11/03/red-bulls-crew-elminiation-mls-playoffs/
-
-**An angry Joe Burrow grabs the wheel to get Bengals' season back on track amid chaos**\
-`CINCINNATI – Joe Burrow just tied a career-high with five touchdown passes.`\
-https://nytimes.com/athletic/5895935/2024/11/03/bengals-win-joe-burrow-angry-raiders/
-
 **Charli XCX, Leonardo DiCaprio and Colman Domingo Turn Out for the LACMA Gala**\
 `Hollywood stars mingled with artists for a benefit honoring the artist Simone Leigh and the filmmaker Baz Luhrmann.`\
 https://nytimes.com/2024/11/03/style/lacma-gala-photos.html
@@ -37,4 +29,12 @@ https://nytimes.com/live/2024/11/03/us/harris-trump-election/harris-and-trump-ha
 **Cardinals run over Bears 29-9 for third straight win: Takeaways**\
 `The Cardinals have won three in a row for the first time since 2021 and they sit atop the NFC West.`\
 https://nytimes.com/athletic/5894558/2024/11/03/bears-cardinals-score-takeaways-result/
+
+**A Vivid Trump-Harris Contrast in the Campaign’s Grueling Final Days**\
+`As Kamala Harris visited a church in Detroit on the last Sunday of the campaign, Donald J. Trump told supporters that he “shouldn’t have left” the White House after the 2020 election.`\
+https://nytimes.com/2024/11/03/us/politics/harris-trump-campaign.html
+
+**Broncos' lopsided loss to Ravens shows a long climb to be among AFC's elite**\
+`The Ravens scored three consecutive TDs across the second and third quarters without the Broncos gaining a yard. "We got whupped today."`\
+https://nytimes.com/athletic/5895570/2024/11/03/broncos-loss-ravens-lopsided-afc-contenders/
 
