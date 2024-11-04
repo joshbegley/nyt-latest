@@ -1,3 +1,7 @@
+**Preppers Await the End. But First, the Election.**\
+`In Arizona, groups like the Dewey preppers are ready for the apocalypse and for whatever might come after Nov. 5.`\
+https://nytimes.com/2024/11/04/us/elections/election-violence-preppers-arizona.html
+
 **Mayor of America’s ‘Blackest City’ Still Worried About Black Male Voters**\
 `If Obama made no difference in their lives, many say, why would Harris?`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/black-men-georgia-election
