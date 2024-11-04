@@ -1,3 +1,19 @@
+**5 Reasons Early Voting Is Overwhelmed With Falsehoods**\
+`Misleading anecdotes and rumors are spreading faster, and with more ferocity, than in the run-ups to past presidential contests.`\
+https://nytimes.com/2024/11/04/technology/early-voting-election-misinformation.html
+
+**Gregg Popovich to miss Spurs' road trip with illness**\
+`The Spurs are expected to name assistant Mitch Johnson their interim coach for an indefinite period in Popovich's absence, per ESPN.`\
+https://nytimes.com/athletic/5897962/2024/11/04/gregg-popovich-health-issue-spurs/
+
+**How Americans Feel About the Election: Anxious and Scared**\
+`Vice President Kamala Harris and former President Donald J. Trump have framed the presidential race as an existential battle. Voters are heeding their warnings.`\
+https://nytimes.com/2024/11/04/us/politics/election-anxiety.html
+
+**The Windup: Save this MLB offseason preview**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5898023/2024/11/04/mlb-offseason-free-agency-the-windup/
+
 **Geno Smith is taking the blame for the Seahawks, but is he actually a problem?**\
 `Smith had three turnovers for the first time in 44 Seattle starts, including a back-breaking pick six. But how much blames does he deserve?`\
 https://nytimes.com/athletic/5897201/2024/11/04/geno-smith-seahawks-loss-rams/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5897558/2024/11/04/nascar-martinsville-takeaways-ry
 **Five-Star, Reader-Favorite Lemony Chicken-Feta Meatball Soup**\
 `“This is the best soup I’ve ever had in my entire life.”`\
 https://nytimes.com/2024/11/04/dining/reader-favorite-lemony-chicken-feta-meatball-soup.html
-
-**An Angry Spain, Still Reeling From Floods, Faces More Rain**\
-`Emergency workers continued to search for victims of last week’s flash floods, while a national debate raged over who was to blame for the catastrophe.`\
-https://nytimes.com/2024/11/04/world/europe/spain-floods-valencia-rain.html
-
-**Ocon, Gasly's 'personal' F1 bond comes full circle with Brazil triumph**\
-`Alpine has been through a tough year. But on Sunday, the two kids from Normandy made it to the podium together and changed the narrative.`\
-https://nytimes.com/athletic/5897750/2024/11/04/alpine-f1-brazil-pierre-gasly-esteban-ocon-podium/
-
-**The Bounce: Predicting the fallout from Joel Embiid's alleged error**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5897378/2024/11/04/joel-embiid-76ers-vince-carter-raptors-nba-the-bounce/
-
-**Nashville Needs an Infrastructure Fix. Will Voters Agree to Pay for It?**\
-`Desperate to compete with other growing cities, Nashville’s leaders are trying once again to convince voters that a sales tax increase is worth the price.`\
-https://nytimes.com/2024/11/04/us/politics/nashville-sales-tax-infrastructure.html
 
