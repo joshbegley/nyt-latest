@@ -1,3 +1,11 @@
+**At Least 10 Killed in Indonesia After Volcano Erupts**\
+`The authorities warned of more volcanic activity at Mount Lewotobi Laki-laki, which has erupted dozens of times in the past few weeks.`\
+https://nytimes.com/2024/11/04/world/asia/indonesia-volcano-eruption.html
+
+**Indonesia Volcano Eruption Covers Village in Ash**\
+`Mount Lewotobi Laki-laki erupted on Sunday, killing several people and forcing others to flee their villages.`\
+https://nytimes.com/video/world/asia/100000009801953/indonesia-volcano-eruption.html
+
 **Word of the Day: paradoxical**\
 `This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/04/learning/word-of-the-day-paradoxical.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5875003/2024/11/04/ferdi-kadioglu-versatility-anfie
 **Pairing Duran with Watkins was a risk - and very unlike Emery**\
 `Emery threw Villa's game plan out of the window when he brought on Duran, and his team were punished against Spurs`\
 https://nytimes.com/athletic/5894638/2024/11/04/aston-villa-duran-watkins-emery/
-
-**James provides a timely reminder of how valuable he can be to Leeds**\
-`The winger has been struggling for full fitness but in just over an hour against Plymouth he showed what a threat he can carry`\
-https://nytimes.com/athletic/5892583/2024/11/04/dan-james-leeds-plymouth/
-
-**Spurs have just enjoyed the best week of the Ange Postecoglou era**\
-`Following up a cup win over Manchester City with victory against Aston Villa could finally kick the Postecoglou project into gear`\
-https://nytimes.com/athletic/5888323/2024/11/04/ange-postecoglou-tottenham-hotspur-villa-manchester-city/
 
