@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Week 9**\
+`A quick look at the risers (Bills, Commanders and Lions), fallers (Colts) and the NFC North after Sunday's games.`\
+https://nytimes.com/athletic/5897982/2024/11/04/scoop-city-risers-and-fallers-after-week-9/
+
 **On the issues: Where Harris and Trump stand on crime.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-crime
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/technology/early-voting-election-misinformation.h
 **Gregg Popovich to miss Spurs' road trip with illness**\
 `The Spurs are expected to name assistant Mitch Johnson their interim coach for an indefinite period in Popovich's absence, per ESPN.`\
 https://nytimes.com/athletic/5897962/2024/11/04/gregg-popovich-health-issue-spurs/
-
-**How Americans Feel About the Election: Anxious and Scared**\
-`Vice President Kamala Harris and former President Donald J. Trump have framed the presidential race as an existential battle. Voters are heeding their warnings.`\
-https://nytimes.com/2024/11/04/us/politics/election-anxiety.html
 
