@@ -1,3 +1,7 @@
+**New York Times Passes 11 Million Subscribers**\
+`The Times reported steady growth in digital subscriptions in the third quarter and a profit for The Athletic for the first time since it acquired the sports site in 2022.`\
+https://nytimes.com/2024/11/04/business/media/new-york-times-earnings.html
+
 **NFL Draft roundtable: Is Cam Ward's rise legit? Can Carson Beck regroup?**\
 `The 2025 NFL Draft quarterback picture remains extremely blurry, even as the regular season heads into the homestretch.`\
 https://nytimes.com/athletic/5895505/2024/11/04/nfl-draft-2025-quarterbacks-cam-ward-carson-beck/
