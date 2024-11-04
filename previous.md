@@ -1,3 +1,7 @@
+**An Angry Spain, Still Reeling From Floods, Faces More Rain**\
+`Emergency workers continued to search for victims of last week’s flash floods, while a national debate raged over who was to blame for the catastrophe.`\
+https://nytimes.com/2024/11/04/world/europe/spain-floods-valencia-rain.html
+
 **Ocon, Gasly's 'personal' F1 bond comes full circle with Brazil triumph**\
 `Alpine has been through a tough year. But on Sunday, the two kids from Normandy made it to the podium together and changed the narrative.`\
 https://nytimes.com/athletic/5897750/2024/11/04/alpine-f1-brazil-pierre-gasly-esteban-ocon-podium/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/elections/elon-musk-donald-trump-get-out-the-v
 **All aboard! Pistons take subway to Barclays Center, beat Nets in 'identity game'**\
 `The Pistons were allowing 53 second-half points per game but gave up just 35 to the Nets in Sunday's win.`\
 https://nytimes.com/athletic/5897100/2024/11/04/pistons-nets-subway-nyc-marathon/
-
-**Who Wins Wisconsin May Depend on This Crumbling G.O.P. Stronghold**\
-`Waukesha County, a suburban area that was long the heart of Wisconsin Republican politics, has moved left. Kamala Harris is trying to accelerate that shift, and Donald Trump needs it to slow.`\
-https://nytimes.com/2024/11/04/us/politics/wisconsin-waukesha-county-trump-harris.html
 

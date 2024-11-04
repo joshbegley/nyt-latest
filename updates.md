@@ -1,3 +1,7 @@
+**An Angry Spain, Still Reeling From Floods, Faces More Rain**\
+`Emergency workers continued to search for victims of last week’s flash floods, while a national debate raged over who was to blame for the catastrophe.`\
+https://nytimes.com/2024/11/04/world/europe/spain-floods-valencia-rain.html
+
 **Ocon, Gasly's 'personal' F1 bond comes full circle with Brazil triumph**\
 `Alpine has been through a tough year. But on Sunday, the two kids from Normandy made it to the podium together and changed the narrative.`\
 https://nytimes.com/athletic/5897750/2024/11/04/alpine-f1-brazil-pierre-gasly-esteban-ocon-podium/
