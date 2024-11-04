@@ -1,3 +1,11 @@
+**At Least 10 Killed in Indonesia After Volcano Erupts**\
+`The authorities warned of more volcanic activity at Mount Lewotobi Laki-laki, which has erupted dozens of times in the past few weeks.`\
+https://nytimes.com/2024/11/04/world/asia/indonesia-volcano-eruption.html
+
+**Indonesia Volcano Eruption Covers Village in Ash**\
+`Mount Lewotobi Laki-laki erupted on Sunday, killing several people and forcing others to flee their villages.`\
+https://nytimes.com/video/world/asia/100000009801953/indonesia-volcano-eruption.html
+
 **Word of the Day: paradoxical**\
 `This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/04/learning/word-of-the-day-paradoxical.html
