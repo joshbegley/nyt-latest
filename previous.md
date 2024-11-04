@@ -1,6 +1,6 @@
 **A New Boon for Georgia Democrats: Winners of Big Georgia Races**\
 `Elected less than four years ago, Senators Jon Ossoff and Raphael Warnock have become a Southern battleground’s star campaigners.`\
-https://nytimes.com/2024/11/04/us/a-new-boon-for-georgia-democrats-winners-of-big-georgia-races.html
+https://nytimes.com/2024/11/04/us/georgia-democrats-senators-ossoff-warnock.html
 
 **A Taylor Dancer for the Ages, ‘Unmannered and Wondrous’**\
 `Carolyn Adams, the Paul Taylor dancer turned educator, is being honored at the company’s gala with a new solo by Robert Battle, her former student.`\
