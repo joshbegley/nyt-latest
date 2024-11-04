@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Week 9**\
+`A quick look at the risers (Bills, Commanders and Lions), fallers (Colts) and the NFC North after Sunday's games.`\
+https://nytimes.com/athletic/5897982/2024/11/04/scoop-city-risers-and-fallers-after-week-9/
+
 **On the issues: Where Harris and Trump stand on crime.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/on-the-issues-where-harris-and-trump-stand-on-crime
