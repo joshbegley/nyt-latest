@@ -1,3 +1,11 @@
+**A Former Steelworker Makes a Tough Decision at the Polls**\
+`She was torn until the last minute.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/steelworker-indiana-vote
+
+**Threats Reported in 2 States, but None Are Found Credible**\
+`Officials in Maine and Georgia said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
+https://nytimes.com/2024/11/05/us/politics/pollls-voting-bomb-threats.html
+
 **Heisman Trophy odds: Travis Hunter, Cam Ward co-favorites in a tight race**\
 `Cam Ward and Travis Hunter are the current co-favorites in a tight race for the Heisman Trophy.`\
 https://nytimes.com/athletic/5900731/2024/11/05/heisman-trophy-odds-travis-hunter-cam-ward/
