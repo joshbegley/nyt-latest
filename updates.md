@@ -1,3 +1,15 @@
+**Here are the governor’s races to watch.**\
+`Election Day includes 11 governor’s races. Eight have no incumbent candidate.`\
+https://nytimes.com/2024/11/05/us/politics/governor-election-races-watch.html
+
+**Rice out of Inter trip, Odegaard travels**\
+`Declan Rice will play no part in Arsenal&#8217;s Champions League match against Inter Milan on Wednesday after being left out of the club&#8217;s 23-man travelling party.`\
+https://nytimes.com/athletic/5900441/2024/11/05/declan-rice-arsenal-squad-inter/
+
+**U.S. Braces for Foreign Election Threats, Especially in Swing States**\
+`Officials anticipate a rise in false narratives but do not expect cyberattacks on local voting infrastructure.`\
+https://nytimes.com/2024/11/05/us/politics/election-threats-russia.html
+
 **Irish Leader Plans to Call Election Later This Week**\
 `Simon Harris, Ireland’s prime minister, said Tuesday that he would dissolve parliament later this week, setting the stage for a general election by the end of the month.`\
 https://nytimes.com/2024/11/05/world/europe/ireland-election-simon-harris.html

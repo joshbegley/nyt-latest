@@ -1,3 +1,15 @@
+**Here are the governor’s races to watch.**\
+`Election Day includes 11 governor’s races. Eight have no incumbent candidate.`\
+https://nytimes.com/2024/11/05/us/politics/governor-election-races-watch.html
+
+**Rice out of Inter trip, Odegaard travels**\
+`Declan Rice will play no part in Arsenal&#8217;s Champions League match against Inter Milan on Wednesday after being left out of the club&#8217;s 23-man travelling party.`\
+https://nytimes.com/athletic/5900441/2024/11/05/declan-rice-arsenal-squad-inter/
+
+**U.S. Braces for Foreign Election Threats, Especially in Swing States**\
+`Officials anticipate a rise in false narratives but do not expect cyberattacks on local voting infrastructure.`\
+https://nytimes.com/2024/11/05/us/politics/election-threats-russia.html
+
 **Bernie Marcus, Co-Founder of Home Depot, Is Dead at 95**\
 `In 1978 he came up with the idea of a warehouselike store that would appeal to the do-it-yourself homeowner. The chain became the world’s largest home-improvement retailer.`\
 https://nytimes.com/2024/11/05/business/bernie-marcus-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/05/world/europe/ireland-election-simon-harris.html
 **What I know about Van Nistelrooy and his relationship with United**\
 `The Dutchman has written the foreword to Andy Mitten's new book about United in the noughties and highlighted his feelings for the club`\
 https://nytimes.com/athletic/5897288/2024/11/05/van-nistelrooy-man-united-amorim/
-
-**Harris’s Plans for Black Men Aim to Avoid the Setbacks Biden Faced**\
-`In the fine print, Vice President Kamala Harris’s agenda for Black men “and others” is an effort to avoid political and legal obstacles if she is elected.`\
-https://nytimes.com/2024/11/05/us/politics/harris-black-men-equity.html
-
-**Spurs didn't worry about Dominic Solanke not taking many shots - this is why**\
-`Solanke finally ended his run of matches without a shot on target by scoring twice against Villa - this is what he was doing in the meantime`\
-https://nytimes.com/athletic/5899826/2024/11/05/dominic-solanke-shooting-shots-tottenham/
-
-**A Hollywood Drought and a Game Show Dream**\
-`It’s tough to get work in film and television these days. So one unemployed writer decided to study up on “The Price Is Right.”`\
-https://nytimes.com/2024/11/05/arts/television/price-is-right-emily-winter.html
 
