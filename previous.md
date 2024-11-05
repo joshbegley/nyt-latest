@@ -1,3 +1,11 @@
+**Odegaard returns to Arsenal training but left out of Norway squad**\
+`Arsenal captain Martin Odegaard has returned to training for the first time since sustaining an ankle injury in September.`\
+https://nytimes.com/athletic/5836413/2024/11/05/arsenal-odegaard-injury-return-update/
+
+**Trump is courting apolitical young men. Will it pay off?**\
+`By Kellen Browning, Benjamin Oreskes and Eduardo Medina`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/trump-is-courting-apolitical-young-men-will-it-pay-off
+
 **It’s Election Day**\
 `Today is likely to change the trajectory of the United States.`\
 https://nytimes.com/2024/11/05/briefing/election-day-2024-harris-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5899084/2024/11/05/college-football-playoff-ranking
 **How Lukas Reichel got his groove back**\
 `Reichel had been on the decline for over a year but has recently found a spark and more joy in hockey.`\
 https://nytimes.com/athletic/5898715/2024/11/05/blackhawks-lukas-reichel-stats/
-
-**Ask Alan Shearer: Live Q&A on Slot's Liverpool, Newcastle, Palmer and much more**\
-`This Thursday from 1pm, Alan Shearer, the Premier League’s record goalscorer, will answer your football-related questions`\
-https://nytimes.com/athletic/5899871/2024/11/05/ask-alan-shearer-slot-liverpool-newcastle/
-
-**On the issues: Where Harris and Trump stand on immigration.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-immigration
 
