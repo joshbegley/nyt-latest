@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5900868/2024/11/05/marshon-lattimore-commanders-sai
 
 **California voters are wading through a dizzying mix of ballot measures.**\
 `The state has 10 proposals on Tuesday’s ballot, ranging from an increase in the minimum wage to tougher penalties for theft and drug crimes.`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/california-voters-are-wading-through-a-dizzying-mix-of-ballot-measures
+https://nytimes.com/2024/11/05/us/politics/california-ballot-measures-crime-minimum-wage.html
 
 **Trump Votes and Says This Will Be His Last Campaign**\
 `The former president cast his ballot at a recreation center-turned-polling station in Florida and spoke to reporters.`\
