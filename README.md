@@ -1,3 +1,7 @@
+**Steph Curry returns, takes cautious approach in Warriors' win over Wizards**\
+`Curry was on a strict 24-minute restriction in his first game in more than a week.`\
+https://nytimes.com/athletic/5899201/2024/11/05/steph-curry-returns-warriors-win-wizards/
+
 **Why These 15 Late-Deciding Swing State Voters Give the Edge to Harris**\
 `The group discussed Kamala Harris and Donald Trump on the edge of the 2024 election.`\
 https://nytimes.com/interactive/2024/11/05/opinion/focusgroup-swing-state-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879583/2024/11/05/ukraine-women-vorskla-poltava-wa
 **Conrad Harder: The prolific Sporting Lisbon teenager aiming to emulate Haaland**\
 `The Sporting striker is fresh from a breakthrough year in Denmark and the parallels with the Manchester City star are inescapable`\
 https://nytimes.com/athletic/5676798/2024/11/05/conrad-harder-sporting-lisbon-haaland/
-
-**Champions League projections: Analysing the key fixtures coming up in matchweek four**\
-`We run through this week's juiciest games as the initial stage of the 2024-25 Champions League reaches its midway point`\
-https://nytimes.com/athletic/5874933/2024/11/05/champions-league-projections-preview-matchday-4/
 
