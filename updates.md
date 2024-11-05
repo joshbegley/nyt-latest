@@ -1,3 +1,15 @@
+**Gazans Fear Neither Candidate in U.S. Election Will Help Them**\
+`American politics have not been topmost in the minds of Gazans. “We only need one thing: for this war to come to an end,” one man said.`\
+https://nytimes.com/2024/11/05/world/middleeast/gaza-us-election-harris-trump.html
+
+**Lions trade for Browns' ZaDarius Smith to fill need at DE**\
+`The NFC-leading Lions (7-1) needed an edge rusher after the season-ending injury to Aidan Hutchinson.`\
+https://nytimes.com/athletic/5895251/2024/11/05/zadarius-smith-lions-browns-trade/
+
+**Eight key Celtics stats through 8 games, including Jayson Tatum's early haymakers**\
+`Derrick White's importance and Payton Pritchard's 3-point barrage have also fueled Boston's 7-1 start.`\
+https://nytimes.com/athletic/5899718/2024/11/05/celtics-jayson-tatum-derrick-white-stats/
+
 **Israeli Raids in West Bank Kill 4, Palestinians Say**\
 `The raids suggested that the Israeli military was continuing to target armed fighters in the occupied territory, even as it conducts major operations in Gaza and Lebanon.`\
 https://nytimes.com/2024/11/05/world/middleeast/israel-west-bank-raid.html
