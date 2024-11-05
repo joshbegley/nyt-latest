@@ -1,3 +1,15 @@
+**Into the Abyss**\
+`The uncertainty is getting to us.`\
+https://nytimes.com/2024/11/04/us/politics/election-2024-voters.html
+
+**MLB GM Meetings: Willy Adames open to Brewers reunion, Blake Snell back on the market**\
+`Elsewhere, Jesse Winker has re-established himself after a strong season with the Nationals and Mets.`\
+https://nytimes.com/athletic/5899253/2024/11/04/mlb-gm-meetings-willy-adames-blake-snell-jesse-winker/
+
+**Braves' bullpen takes hit with Joe Jiménez sidelined up to 12 months**\
+`Jiménez's situation helps explain why the Braves were suddenly so determined to gain payroll flexibility`\
+https://nytimes.com/athletic/5899261/2024/11/04/braves-joe-jimenez-left-knee-surgery-update/
+
 **The Science That Makes Baseball Mud ‘Magical’**\
 `Scientists dug up the real dirt on the substance applied to all the baseballs used in the major leagues.`\
 https://nytimes.com/2024/11/04/science/baseball-mud-mlb.html

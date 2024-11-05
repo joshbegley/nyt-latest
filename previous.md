@@ -1,8 +1,16 @@
+**Into the Abyss**\
+`The uncertainty is getting to us.`\
+https://nytimes.com/2024/11/04/us/politics/election-2024-voters.html
+
+**MLB GM Meetings: Willy Adames open to Brewers reunion, Blake Snell back on the market**\
+`Elsewhere, Jesse Winker has re-established himself after a strong season with the Nationals and Mets.`\
+https://nytimes.com/athletic/5899253/2024/11/04/mlb-gm-meetings-willy-adames-blake-snell-jesse-winker/
+
 **The Science That Makes Baseball Mud ‘Magical’**\
 `Scientists dug up the real dirt on the substance applied to all the baseballs used in the major leagues.`\
 https://nytimes.com/2024/11/04/science/baseball-mud-mlb.html
 
-**Braves' bullpen takes hit with Joe Jiménez sidelined up to 12 months after knee surgery**\
+**Braves' bullpen takes hit with Joe Jiménez sidelined up to 12 months**\
 `Jiménez's situation helps explain why the Braves were suddenly so determined to gain payroll flexibility`\
 https://nytimes.com/athletic/5899261/2024/11/04/braves-joe-jimenez-left-knee-surgery-update/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/us/columbia-energy-facility-weapon-mass-destructi
 **Why Connor Hellebuyck is still frustrated with NHL's goaltender interference rules**\
 `Hellebuyck, a longtime member of the NHL's competition committee, was upset with a call in Winnipeg's game on Sunday.`\
 https://nytimes.com/athletic/5898572/2024/11/04/connor-hellebuyck-nhl-goaltender-interference/
-
-**Trump’s closing argument has been filled with lies, distortions and inaccuracies.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/trumps-closing-argument-has-been-filled-with-lies-distortions-and-inaccuracies
-
-**Michael Jordan's 23XI, NASCAR have first preliminary hearing**\
-`23XI had its first in-person courtroom showdown with NASCAR during a Monday hearing over a preliminary injunction request.`\
-https://nytimes.com/athletic/5899041/2024/11/04/nascar-23xi-michael-jordan-antitrust-lawsuit/
 
