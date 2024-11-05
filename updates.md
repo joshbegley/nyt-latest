@@ -1,3 +1,7 @@
+**Almost 2 weeks in, Jazz finally earn a win. Keyonte George had 'had enough'**\
+`George tied a career-high in scoring on the road to help lift the Jazz to their first win of the season.`\
+https://nytimes.com/athletic/5899715/2024/11/05/keyonte-george-utah-jazz-first-nba-win/
+
 **Bucks 'upbeat' despite losing streak hitting six games: 'We will make the playoffs'**\
 `At 1-6, the Bucks are in a huge hole. "It's just a matter of putting it together and we got a lot of games to do it," Damian Lillard said.`\
 https://nytimes.com/athletic/5899446/2024/11/05/bucks-cavaliers-losing-streak-damian-lillard/
