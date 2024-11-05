@@ -1,4 +1,4 @@
-**Panthers trade WR Jonathan Mingo to the Cowboys: Sources**\
+**Panthers trade WR Jonathan Mingo to Cowboys: How does WR fit in Dallas?**\
 `The Panthers are sending Mingo and a 2025 seventh-round pick to Dallas in exchange for a 2025 fourth-round pick, per the sources.`\
 https://nytimes.com/athletic/5900386/2024/11/05/jonathan-mingo-cowboys-panthers-trade/
 
