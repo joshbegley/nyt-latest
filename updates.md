@@ -1,3 +1,7 @@
+**‘Love Is Blind’ Resets, ‘Survivor’ Stalls: A Reality TV Check-in**\
+`A palate-cleanse conversation about the state of legacy reality franchises, and what might come next for them.`\
+https://nytimes.com/2024/11/05/arts/music/popcast-reality-tv.html
+
 **Lightning Strikes Soccer Team in Peru, Killing Player**\
 `A video of the incident shows a flash of light and then several players instantly dropping to the ground.`\
 https://nytimes.com/2024/11/05/world/americas/video-lightning-soccer-peru.html

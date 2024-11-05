@@ -1,3 +1,7 @@
+**‘Love Is Blind’ Resets, ‘Survivor’ Stalls: A Reality TV Check-in**\
+`A palate-cleanse conversation about the state of legacy reality franchises, and what might come next for them.`\
+https://nytimes.com/2024/11/05/arts/music/popcast-reality-tv.html
+
 **Lightning Strikes Soccer Team in Peru, Killing Player**\
 `A video of the incident shows a flash of light and then several players instantly dropping to the ground.`\
 https://nytimes.com/2024/11/05/world/americas/video-lightning-soccer-peru.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/thepoint
 **Election Night at The Times, Through the Decades**\
 `The first presidential election The Times covered was in 1852. Things have changed a lot since the days of typewriters and motographs — see how, in archival images from decades past.`\
 https://nytimes.com/2024/11/05/insider/nyt-election-night-photos.html
-
-**Influencer Flanked by E-Bike Riders at N.Y.C. Marathon Is Banned, Organizers Say**\
-`Matt Choi, who ran the course in under three hours, was followed by two cameramen on electronic bikes, who were said to have obstructed other runners.`\
-https://nytimes.com/2024/11/05/nyregion/matt-choi-influencer-banned-nyc-marathon.html
 
