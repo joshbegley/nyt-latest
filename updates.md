@@ -1,3 +1,7 @@
+**Scoop City: NFL trade deadline primer**\
+`A brief look at the growing importance of the NFL trade deadline, which pales in comparison to the other three pro leagues.`\
+https://nytimes.com/athletic/5900351/2024/11/05/nfl-trade-deadline-primer-teams-to-watch-history-of-deals-plus-fantasy-insights/
+
 **Almost 2 weeks in, Jazz finally earn a win. Keyonte George had 'had enough'**\
 `George tied a career-high in scoring on the road to help lift the Jazz to their first win of the season.`\
 https://nytimes.com/athletic/5899715/2024/11/05/keyonte-george-utah-jazz-first-nba-win/
