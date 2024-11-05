@@ -1,3 +1,15 @@
+**‘High Risk, High Return’? How Kemi Badenoch Came to Lead Britain’s Conservatives**\
+`Ms. Badenoch’s ascent is partly the result of a deliberate diversifying of the party under David Cameron in the 2000s. In her politics, she exemplifies its more recent rightward turn.`\
+https://nytimes.com/2024/11/05/world/europe/britain-kemi-badenoch-conservative-party.html
+
+**The case for — and against — each of the Classic Baseball Era Hall of Fame candidates**\
+`Eight names were revealed this week, and their Hall of Fame candidacies will be voted on in December. What are the pros and cons for each? `\
+https://nytimes.com/athletic/5899195/2024/11/05/mlb-hall-of-fame-classic-baseball-era-candidates/
+
+**Five Bengals midseason predictions: Joe Burrow will battle Lamar Jackson for MVP**\
+`Among other predictions: The defense will see a big climb in the rankings and a trade will address a new pressing need.`\
+https://nytimes.com/athletic/5899056/2024/11/05/bengals-predictions-nfl-midseason-burrow/
+
 **‘I Will Be Thrilled to Be Wrong’: Four Columnists Brace for Election Night**\
 `Who will win the presidency, House and Senate? What is the election about? And what happens next for America?`\
 https://nytimes.com/2024/11/05/opinion/kamala-harris-donald-trump-election.html

@@ -1,3 +1,7 @@
+**‘The Curious Case of Benjamin Button’ Gets a Folk-Musical Makeover**\
+`The decade-spanning story of a man aging in reverse comes to the West End, transformed into a thoughtful fable opening on the English coast.`\
+https://nytimes.com/2024/11/05/theater/benjamin-button-musical-west-end.html
+
 **‘High Risk, High Return’? How Kemi Badenoch Came to Lead Britain’s Conservatives**\
 `Ms. Badenoch’s ascent is partly the result of a deliberate diversifying of the party under David Cameron in the 2000s. In her politics, she exemplifies its more recent rightward turn.`\
 https://nytimes.com/2024/11/05/world/europe/britain-kemi-badenoch-conservative-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/movies/dinner-in-america-theatrical-run.html
 **Election Day Is Long. Give Us Five Minutes to Help You Get Through It.**\
 `A guided meditation to help you get through Election Day.`\
 https://nytimes.com/interactive/2024/11/05/opinion/election-day-meditation.html
-
-**What We’ll Know and When We’ll Know It: A Guide to Election Night**\
-`The vote count will still feature “blue mirages” and “red mirages,” but they won’t be as extreme as in 2020.`\
-https://nytimes.com/2024/11/05/upshot/election-night-guide.html
 
