@@ -1,3 +1,7 @@
+**On the issues: Where Harris and Trump stand on immigration.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-immigration
+
 **Election Day Decisions, and Why the Count Could Take Awhile**\
 `Plus, how astronauts vote from space.`\
 https://nytimes.com/2024/11/05/podcasts/election-day.html

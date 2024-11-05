@@ -1,3 +1,7 @@
+**On the issues: Where Harris and Trump stand on immigration.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-immigration
+
 **Twins face tough offseason decisions but say it's 'business as usual' despite sale of team**\
 `Falvey said the Pohlads' intention to sell the team doesn’t impact how he’ll handle roster construction. But lots of tough decisions await.`\
 https://nytimes.com/athletic/5899385/2024/11/05/twins-offseason-decisions-team-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/podcasts/the-daily/election-2024.html
 **Election Day Decisions, and Why the Count Could Take Awhile**\
 `Plus, how astronauts vote from space.`\
 https://nytimes.com/2024/11/05/podcasts/election-day.html
-
-**Mets free-agent outlook: Should they bring back Jesse Winker or J.D. Martinez?**\
-`Winker and Martinez offer options as veteran designated hitters, but positional flexibility will be a factor as the Mets look toward 2025.`\
-https://nytimes.com/athletic/5886899/2024/11/05/mets-free-agent-jesse-winker-jd-martinez/
 
