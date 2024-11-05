@@ -1,3 +1,7 @@
+**The Briefing: Sporting Lisbon 4 Manchester City 1 - Gyokeres upstages Haaland in Ruben Amorim's farewell home game**\
+`Analysis of a difficult Champions League night for Manchester City in Portugal`\
+https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-result-analysis/
+
 **The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Milan stun Ancelotti's side at Bernabeu**\
 `Madrid find themselves in an unfamiliar position after another defeat — this time to an inspired Milan side`\
 https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
