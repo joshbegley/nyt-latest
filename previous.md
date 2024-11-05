@@ -1,3 +1,19 @@
+**Trump Media’s Stock Is Set for Even Wilder Ride After the Election**\
+`No stock is more directly linked to the outcome than Trump Media & Technology Group, the parent company of Truth Social.`\
+https://nytimes.com/2024/11/05/business/trump-media-stock-election.html
+
+**Cryptocurrency Markets, Promoted by Trump, Brace for Election Volatility**\
+`Many crypto investors hope that a victory for Donald Trump could propel the price of Bitcoin to new heights, though a loss could cause a fall.`\
+https://nytimes.com/2024/11/05/technology/crypto-bitcoin-price-trump-election.html
+
+**How Markets Could Respond to the Election**\
+`Investors are considering the candidates’ policies and historical trends to bet on where stocks, bonds and currencies are headed.`\
+https://nytimes.com/2024/11/05/business/stock-market-election-trump-harris.html
+
+**Djokovic withdraws from ATP Tour Finals with injury**\
+`He ends the season without an ATP Tour title for the first time since 2005.`\
+https://nytimes.com/athletic/5899867/2024/11/05/novak-djokovic-atp-tour-finals-out-injury/
+
 **The Pulse: How do the Chiefs keep doing this?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5899298/2024/11/05/chiefs-buccaneers-monday-night-football-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where
 **Twins face tough offseason decisions but say it's 'business as usual' despite sale of team**\
 `Falvey said the Pohlads' intention to sell the team doesn’t impact how he’ll handle roster construction. But lots of tough decisions await.`\
 https://nytimes.com/athletic/5899385/2024/11/05/twins-offseason-decisions-team-sale/
-
-**College Football Playoff rankings and superconferences: Will committee be swayed by Big Ten, SEC?**\
-`Some administrators are concerned the Big Ten and SEC have raised pressure on the committee by suggesting they should be viewed differently.`\
-https://nytimes.com/athletic/5899014/2024/11/05/college-football-playoff-rankings-confernece-commissioners-big-ten-sec/
-
-**Rickard Rakell, fearful of his own decline, found himself and his game**\
-`Rakell was afraid of getting old last season, but a summer in Stockholm changed everything for the veteran forward. `\
-https://nytimes.com/athletic/5898600/2024/11/05/penguins-rickard-rakell/
-
-**How does Fraser Minten fit into the Maple Leafs' plans at centre?**\
-`The Leafs lack of centre depth has been exposed in an up-and-down start to the season. Could the solution come internally?`\
-https://nytimes.com/athletic/5898124/2024/11/05/maple-leafs-fraser-minten-2/
-
-**What Nico Hoerner’s uncertain timeline means for prospect Matt Shaw, Cubs’ offseason plans**\
-`Chicago has the resources to make a blockbuster deal. But the Hoerner situation shows that the Cubs are building usable major-league depth.`\
-https://nytimes.com/athletic/5899464/2024/11/05/cubs-nico-hoerner-injury-matt-shaw/
 

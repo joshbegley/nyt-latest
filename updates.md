@@ -1,3 +1,19 @@
+**Trump Media’s Stock Is Set for Even Wilder Ride After the Election**\
+`No stock is more directly linked to the outcome than Trump Media & Technology Group, the parent company of Truth Social.`\
+https://nytimes.com/2024/11/05/business/trump-media-stock-election.html
+
+**Cryptocurrency Markets, Promoted by Trump, Brace for Election Volatility**\
+`Many crypto investors hope that a victory for Donald Trump could propel the price of Bitcoin to new heights, though a loss could cause a fall.`\
+https://nytimes.com/2024/11/05/technology/crypto-bitcoin-price-trump-election.html
+
+**How Markets Could Respond to the Election**\
+`Investors are considering the candidates’ policies and historical trends to bet on where stocks, bonds and currencies are headed.`\
+https://nytimes.com/2024/11/05/business/stock-market-election-trump-harris.html
+
+**Djokovic withdraws from ATP Tour Finals with injury**\
+`He ends the season without an ATP Tour title for the first time since 2005.`\
+https://nytimes.com/athletic/5899867/2024/11/05/novak-djokovic-atp-tour-finals-out-injury/
+
 **The Pulse: How do the Chiefs keep doing this?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5899298/2024/11/05/chiefs-buccaneers-monday-night-football-the-pulse/
