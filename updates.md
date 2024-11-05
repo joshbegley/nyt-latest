@@ -1,3 +1,11 @@
+**Election Day has arrived. Here’s the latest.**\
+`By Adam Nagourney`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/election-day-has-arrived-heres-the-latest
+
+**Election Live Updates: A Caustic and Turbulent Race Is in Voters’ Hands**\
+`Election Day is here. Will voters make Vice President Kamala Harris the first woman to lead the United States, or return former President Donald J. Trump to power? Polls are opening on the East Coast.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election
+
 **First U.S. Election Result Is In, and It’s a Trump-Harris Tie**\
 `It took just 12 minutes to tally the six votes in Dixville Notch, New Hampshire. ‘I didn’t see that coming,’ one resident said of the split result.`\
 https://nytimes.com/2024/11/05/us/politics/dixville-notch-election-vote-results.html

@@ -1,3 +1,11 @@
+**Election Day has arrived. Here’s the latest.**\
+`By Adam Nagourney`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/election-day-has-arrived-heres-the-latest
+
+**Election Live Updates: A Caustic and Turbulent Race Is in Voters’ Hands**\
+`Election Day is here. Will voters make Vice President Kamala Harris the first woman to lead the United States, or return former President Donald J. Trump to power? Polls are opening on the East Coast.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election
+
 **First U.S. Election Result Is In, and It’s a Trump-Harris Tie**\
 `It took just 12 minutes to tally the six votes in Dixville Notch, New Hampshire. ‘I didn’t see that coming,’ one resident said of the split result.`\
 https://nytimes.com/2024/11/05/us/politics/dixville-notch-election-vote-results.html
@@ -14,10 +22,6 @@ https://nytimes.com/2024/11/05/learning/standard-time-begins.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/05/crosswords/spelling-bee-forum.html
 
-**Fulham 2 Brentford 1: A tale of 43 crosses, two late goals and one very dramatic comeback**\
-`Fulham produced 43 crosses against Brentford - and their refusal to change tack resulted in one of the most dramatic wins of the season`\
-https://nytimes.com/athletic/5898948/2024/11/05/fulham-brentford-crosses-harry-wilson/
-
 **Late Night Addresses Your Election Eve Anxiety**\
 `“It feels like the whole country is waiting to get the results of a biopsy,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/11/05/arts/television/late-night-election-eve.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897719/2024/11/05/hwang-son-east-southeast-asian-f
 **Vance Mocks Harris as ‘Trash’ in One of His Final Rallies**\
 `Speaking on the campaign trail in Atlanta, Mr. Vance told supporters that “in our movement, we love every citizen of this country.” Seconds later, he called Vice President Kamala Harris “trash.”`\
 https://nytimes.com/2024/11/05/us/politics/vance-harris-trash-trump.html
-
-**Steph Curry returns, takes cautious approach in Warriors' win over Wizards**\
-`Curry was on a strict 24-minute restriction in his first game in more than a week.`\
-https://nytimes.com/athletic/5899201/2024/11/05/steph-curry-returns-warriors-win-wizards/
 
