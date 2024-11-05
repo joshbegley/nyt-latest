@@ -1,3 +1,11 @@
+**Conrad Harder: The prolific Sporting Lisbon teenager aiming to emulate Haaland**\
+`The Sporting striker is fresh from a breakthrough year in Denmark and the parallels with the Manchester City star are inescapable`\
+https://nytimes.com/athletic/5676798/2024/11/05/conrad-harder-sporting-lisbon-haaland/
+
+**Champions League projections: Analysing the key fixtures coming up in matchweek four**\
+`We run through this week's juiciest games as the initial stage of the 2024-25 Champions League reaches its midway point`\
+https://nytimes.com/athletic/5874933/2024/11/05/champions-league-projections-preview-matchday-4/
+
 **Tuesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/11/05/briefing/american-election-israel-documents.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/pageoneplus/quote-of-the-day-fears-of-violence-an
 **Chiefs survive Bucs, Mahomes injury scare in 30-24 OT win: Key takeaways**\
 `Early in the fourth quarter, Mahomes appeared to suffer a frightening non-contact left ankle injury while flicking the game-tying touchdown.`\
 https://nytimes.com/athletic/5899459/2024/11/04/chiefs-buccaneers-takeaways-result/
-
-**Full Time: NWSL playoff bracket highlights**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/5899488/2024/11/04/nwsl-playoffs-bracket-schedule-full-time/
-
-**What You Need to Know About Election Night Results and The New York Times Needle**\
-`Here’s how we will bring you the latest vote totals and estimates of the outcome on the presidential race and other contests around the country.`\
-https://nytimes.com/article/election-2024-results-needle.html
 
