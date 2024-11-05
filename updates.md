@@ -1,3 +1,11 @@
+**After rough weekend, Blue Jackets confront structure and work ethic issues**\
+`The Blue Jackets gave up 13 goals in their last two games, but the coach and players are adamant they know where they went wrong.`\
+https://nytimes.com/athletic/5899235/2024/11/05/blue-jackets-structure-work-ethic/
+
+**College Football Playoff rankings predictions: What will the committee do with Notre Dame?**\
+`Here's what to expect from the College Football Playoff selection committee's first Top 25 rankings on Tuesday night.`\
+https://nytimes.com/athletic/5898530/2024/11/05/college-football-playoff-first-rankings-predictions/
+
 **‘The Curious Case of Benjamin Button’ Gets a Folk-Musical Makeover**\
 `The decade-spanning story of a man aging in reverse comes to the West End, transformed into a thoughtful fable opening on the English coast.`\
 https://nytimes.com/2024/11/05/theater/benjamin-button-musical-west-end.html
