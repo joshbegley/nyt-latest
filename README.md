@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Milan stun Ancelotti's side at Bernabeu**\
+`Madrid find themselves in an unfamiliar position after another defeat — this time to an inspired Milan side`\
+https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
+
 **The Briefing: Liverpool 4 Leverkusen 0 - Slot outshines Alonso as Diaz lights up Anfield**\
 `The major talking points dissected from tonight's Champions League tie at Anfield`\
 https://nytimes.com/athletic/5897531/2024/11/05/liverpool-bayer-leverkusen-slot-alonso-analysis/
@@ -24,17 +28,13 @@ https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-
 
 **What Elon Musk Told His 203 Million X Followers on Election Day**\
 `The world’s richest man continued stumping for former President Donald J. Trump and pushing conspiracy theories about voting fraud.`\
-https://nytimes.com/2024/11/05/us/politics/what-elon-musk-told-his-203-million-x-followers-on-election-day.html
+https://nytimes.com/2024/11/05/us/politics/elon-musk-trump-x-election-day.html
 
 **An Idaho Health Department Is Barred from Offering Covid Shots**\
-`Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations`\
+`Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations.`\
 https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html
 
 **A N.Y. State Assembly candidate is taken into police custody at a polling site in Queens.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/assembly-rinaldi-arrest-ny
-
-**The Israeli Defense Minister Is Fired in an ‘Act of Madness’**\
-`Netanyahu may have hoped the United States was too distracted by Election Day to protest.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/gallant-fired-israel-netanyahu
 
