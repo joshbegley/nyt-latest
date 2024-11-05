@@ -1,3 +1,15 @@
+**Trump Votes and Says This Will Be His Last Campaign**\
+`The former president cast his ballot at a recreation center-turned-polling station in Florida and spoke to reporters.`\
+https://nytimes.com/2024/11/05/us/politics/trump-votes-in-florida.html
+
+**Musk to Spend Election Night With Trump**\
+`Elon Musk has spent $119 million on a super PAC supporting Donald Trump and held events on his behalf. But his ownership of X is especially valuable.`\
+https://nytimes.com/2024/11/05/us/politics/elon-musk-trump-election-night.html
+
+**USMNT's Sargent out until 2025 after surgery groin injury**\
+`Sargent has registered four goals and five assists for his club side Norwich City this season.`\
+https://nytimes.com/athletic/5900910/2024/11/05/josh-sargent-injury-surgery-usmnt/
+
 **Netanyahu Fires Israel’s Defense Minister, Yoav Gallant**\
 `Mr. Gallant had differed with Prime Minister Benjamin Netanyahu several times over Israel’s conduct of the war in Gaza.`\
 https://nytimes.com/2024/11/05/world/middleeast/netanyahu-fires-gallant.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/05/world/europe/russia-plot-dhl-planes.html
 **Trump, Vance and Allies Hurl Insults at Women as Race Ends**\
 `Donald J. Trump has used misogynistic language to refer to Kamala Harris, fostering an environment among his allies and at his rallies that revels in gendered insults.`\
 https://nytimes.com/2024/11/05/us/politics/trump-nancy-pelosi-liz-cheney-women.html
-
-**NFL MVP odds: Allen, Jackson continue to battle for top spot**\
-`Josh Allen and Lamar Jackson head into Week 10 in a dead lock in MVP odds. Who else could contend for the crown?`\
-https://nytimes.com/athletic/5900549/2024/11/05/nfl-mvp-odds-week-10-josh-allen-lamar-jackson/
-
-**Israel Presses On With Military Operations in Gaza and West Bank**\
-`Israel’s military continued to target armed fighters in the northern part of the West Bank even as it conducts major operations in Gaza and Lebanon.`\
-https://nytimes.com/video/world/middleeast/100000009806026/israel-operations-beit-lahia-gaza-west-bank.html
-
-**China Confronts Europe Over Climate-Based Trade Restrictions**\
-`Days ahead of the U.N.’s global negotiations on climate change, China and other developing countries said trade restrictions should be part of the talks.`\
-https://nytimes.com/2024/11/05/climate/china-europe-cop29-trade-restrictions.html
 
