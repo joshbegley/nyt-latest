@@ -1,40 +1,40 @@
-**The Uncertainty Is the Hardest Part**\
-`The unknown is the most difficult thing for the brain to navigate.`\
-https://nytimes.com/2024/11/05/opinion/uncertainty.html
+**‘I Will Be Thrilled to Be Wrong’: Four Columnists Brace for Election Night**\
+`Who will win the presidency, House and Senate? What is the election about? And what happens next for America?`\
+https://nytimes.com/2024/11/05/opinion/kamala-harris-donald-trump-election.html
 
-**The Musician Building the Great Native American Songbook**\
-`Tim Long, a pianist, conductor and teacher, conceived his project to fill a cultural need: “There is no repertoire like this in existence.”`\
-https://nytimes.com/2024/11/05/arts/music/tim-long-indigenous-songbook.html
+**Two NFL head coaches have already been fired this season. Who else might be on the hot seat?**\
+`Dennis Allen and Robert Saleh have both already been let go, and at least six more head coaches have shaky job security.`\
+https://nytimes.com/athletic/5898365/2024/11/05/nfl-head-coaches-fired-hot-seat-daboll-mccarthy/
 
-**Could This Presidential Election Be Decided By the Supreme Court?**\
-`It is unlikely that the court ends up playing a major role in the outcome, according to elections experts, but it is possible. Here’s why.`\
-https://nytimes.com/2024/11/05/us/politics/election-supreme-court.html
+**How to Follow The Times’s Election Results and Coverage**\
+`We will have live coverage and analysis from journalists on the ground in about 20 states, along with all of the results.`\
+https://nytimes.com/2024/11/05/us/politics/nyt-election-coverage.html
 
-**Contraband Whiskey and a Secret Royal Dinner: Wall Street Goes to Riyadh**\
-`Are you an international business titan on the hunt for billions of dollars of Saudi oil cash? Prepare for “a mind game.”`\
-https://nytimes.com/2024/11/05/business/wall-street-saudi-arabia-oil-money.html
+**I Voted for Harris but Gaza’s Horrors Weigh on My Conscience**\
+`The Biden administration bears responsibility for the mass murder and starvation of Palestinian civilians.`\
+https://nytimes.com/2024/11/05/opinion/kamala-harris-gaza-israel-palestine.html
 
-**I’m a Presidential Historian. This Is My Biggest Regret About Trump.**\
-`I used to think of Trump as a dangerous but recognizable demagogue. Now I see him as a genuine aberration in our history — and a unique threat to the nation.`\
-https://nytimes.com/2024/11/05/opinion/donald-trump-regret.html
+**For ‘Dinner in America,’ a Surprise Theatrical Run Is Dessert**\
+`The film became popular on TikTok two years after its quiet initial release. Now, it’s getting a second chance in movie theaters.`\
+https://nytimes.com/2024/11/05/movies/dinner-in-america-theatrical-run.html
 
-**It’s Election Day. Here’s What to Know.**\
-`If you’re voting today, expect long lines. Don’t forget to turn over your ballot to see the questions on the back.`\
-https://nytimes.com/2024/11/05/nyregion/election-day-what-to-know.html
+**Election Day Is Long. Give Us Five Minutes to Help You Get Through It.**\
+`A guided meditation to help you get through Election Day.`\
+https://nytimes.com/interactive/2024/11/05/opinion/election-day-meditation.html
 
-**Pants That Show You’re in the Know**\
-`Wearing these pants, to some fashion enthusiasts, is akin to carrying “it” bags.`\
-https://nytimes.com/2024/11/05/style/high-sport-pleats-please-pants.html
+**What We’ll Know and When We’ll Know It: A Guide to Election Night**\
+`The vote count will still feature “blue mirages” and “red mirages,” but they won’t be as extreme as in 2020.`\
+https://nytimes.com/2024/11/05/upshot/election-night-guide.html
 
-**Should Single-Use Vapes Be Banned Everywhere?**\
-`In an effort to protect young people’s health, England plans to ban disposable vapes next year. Do you think this measure will curb vaping among teens?`\
-https://nytimes.com/2024/11/05/learning/should-single-use-vapes-be-banned-everywhere.html
+**Don’t Let Trump Make America Into an Image of Himself**\
+`We cannot become what he wants us to be.`\
+https://nytimes.com/2024/11/05/opinion/harris-trump-lincoln-memorial.html
 
-**Fifth Avenue: The ‘Street of Dreams’ for Over a Century**\
-`The reputation of the iconic New York City thoroughfare began with a competition to build lavish mansions that came crashing down with the advent of luxury apartment buildings.`\
-https://nytimes.com/2024/11/05/realestate/millionaires-mile-fifth-avenue-gilded-age.html
+**How the Election Could Unfold: Four Scenarios**\
+`A look at plausible outcomes that might wind up seeming obvious in hindsight.`\
+https://nytimes.com/2024/11/05/upshot/election-scenarios-polls.html
 
-**From California to the Caribbean: 5 Sunny New Getaways**\
-`Sea, desert, gardens and sun: If you’re looking to escape chilly weather, we have some suggestions.`\
-https://nytimes.com/2024/11/05/travel/caribbean-california-desert-new-resorts.html
+**The Best Laid Plans to Enjoy (or Ignore) Election Day**\
+`Watching the news, attending election parties, singing with friends and getting Botox are among the activities some people have planned.`\
+https://nytimes.com/2024/11/05/style/election-day-plans.html
 
