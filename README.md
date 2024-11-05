@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5901510/2024/11/05/market-share-fantasy-football-we
 https://nytimes.com/2024/11/05/weather/los-angeles-santa-ana-winds-california.html
 
 **The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Ancelotti's side are stunned at the Bernabeu**\
-`Madrid find themselves in an unfamiliar position after another defeat — this time to an inspired Milan side`\
+`Madrid find themselves in an unfamiliar position after another defeat - this time to an inspired Milan side`\
 https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
 
 **The Briefing: Liverpool 4 Leverkusen 0 - Slot outshines Alonso as Diaz lights up Anfield**\
