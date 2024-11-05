@@ -1,3 +1,7 @@
+**World No. 1 Nelly Korda named LPGA’s Player of the Year**\
+`Two American golfers earned the honor in back-to-back years for the first time since 1993 and 1994.`\
+https://nytimes.com/athletic/5900576/2024/11/05/nelly-korda-lpga-poy-2024/
+
 **Here are the governor’s races to watch.**\
 `Election Day includes 11 governor’s races. Eight have no incumbent candidate.`\
 https://nytimes.com/2024/11/05/us/politics/governor-election-races-watch.html
