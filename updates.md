@@ -1,3 +1,7 @@
+**Cody Bellinger opting in gives Cubs 'clarity' as they head into critical offseason**\
+`Jed Hoyer said Bellinger's decision was good news: "Now we know what our roster looks like and we can go about building the team."`\
+https://nytimes.com/athletic/5899412/2024/11/04/cubs-cody-bellinger-option/
+
 **Speck in the Sea**\
 `Evan Kalish displays his raw talent.`\
 https://nytimes.com/2024/11/04/crosswords/daily-puzzle-2024-11-05.html
