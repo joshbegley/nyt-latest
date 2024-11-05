@@ -1,3 +1,15 @@
+**Trading for Marshon Lattimore shows Commanders recognize their potential**\
+`The eight-year veteran brings a Pro Bowl presence to a Washington team that had cornerback at the top of its needs list.`\
+https://nytimes.com/athletic/5901341/2024/11/05/commanders-marshon-lattimore-saints-trade-nfl-deadline-2024/
+
+**A History of Clashes Between Netanyahu and the Defense Minister He Fired**\
+`Yoav Gallant, the ousted cabinet minister, and Prime Minister Benjamin Netanyahu, had sharp public disagreements over Israel’s war against Hamas and what will follow it.`\
+https://nytimes.com/2024/11/05/world/middleeast/netanyahu-gallant-israel.html
+
+**A Polarized Nation Votes**\
+`Turnout looked strong. Voting ends in key swing states by 10 p.m. Eastern. Here’s the latest on Election Day.`\
+https://nytimes.com/2024/11/05/briefing/the-evening-election-night-edition.html
+
 **Who Is Israel Katz, Israel’s New Defense Minister?**\
 `The prime minister has replaced an experienced former general with Mr. Katz, who had been foreign minister and who has staunchly supported Israel’s right-wing government.`\
 https://nytimes.com/2024/11/05/world/middleeast/israel-katz-defense-minister.html
@@ -11,7 +23,7 @@ https://nytimes.com/athletic/5901510/2024/11/05/market-share-fantasy-football-we
 https://nytimes.com/2024/11/05/weather/los-angeles-santa-ana-winds-california.html
 
 **The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Ancelotti's side are stunned at the Bernabeu**\
-`Madrid find themselves in an unfamiliar position after another defeat — this time to an inspired Milan side`\
+`Madrid find themselves in an unfamiliar position after another defeat - this time to an inspired Milan side`\
 https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
 
 **The Briefing: Liverpool 4 Leverkusen 0 - Slot outshines Alonso as Diaz lights up Anfield**\
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/elections/100000009808888/trump-votes-florida-elect
 **Colts 'never' considered moving on from Anthony Richardson at NFL trade deadline**\
 `Despite benching Richardson, the Colts insist the young QB remains part of their long-term plans. `\
 https://nytimes.com/athletic/5901296/2024/11/05/nfl-2024-trade-deadline-colts-anthony-richardson/
-
-**TV networks prepare for a long, tense night of counting returns.**\
-`Anchors are girding for election night telecasts that may last into the wee hours and possibly several days ahead.`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/tv-networks-election-night
-
-**‘Butchered’ Dolphin Found on Jersey Shore Is Subject of Federal Inquiry**\
-`The animal’s flesh “had been completely removed with clean cuts from a sharp instrument,” a marine mammal rescue group said.`\
-https://nytimes.com/2024/11/05/nyregion/dolphin-remains-new-jersey-beach.html
-
-**The Briefing: Sporting Lisbon 4 Manchester City 1 - Gyokeres upstages Haaland in Ruben Amorim's farewell home game**\
-`Analysis of a difficult Champions League night for Manchester City in Portugal`\
-https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-result-analysis/
 

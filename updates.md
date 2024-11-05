@@ -1,3 +1,19 @@
+**Trading for Marshon Lattimore shows Commanders recognize their potential**\
+`The eight-year veteran brings a Pro Bowl presence to a Washington team that had cornerback at the top of its needs list.`\
+https://nytimes.com/athletic/5901341/2024/11/05/commanders-marshon-lattimore-saints-trade-nfl-deadline-2024/
+
+**A History of Clashes Between Netanyahu and the Defense Minister He Fired**\
+`Yoav Gallant, the ousted cabinet minister, and Prime Minister Benjamin Netanyahu, had sharp public disagreements over Israel’s war against Hamas and what will follow it.`\
+https://nytimes.com/2024/11/05/world/middleeast/netanyahu-gallant-israel.html
+
+**A Polarized Nation Votes**\
+`Turnout looked strong. Voting ends in key swing states by 10 p.m. Eastern. Here’s the latest on Election Day.`\
+https://nytimes.com/2024/11/05/briefing/the-evening-election-night-edition.html
+
+**The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Ancelotti's side are stunned at the Bernabeu**\
+`Madrid find themselves in an unfamiliar position after another defeat - this time to an inspired Milan side`\
+https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
+
 **Trump Says This Will Be His Last Campaign**\
 `The former president cast his ballot in Florida, and said that if he loses the election and it’s a fair election, he’d “be the first one to acknowledge it.”`\
 https://nytimes.com/video/us/elections/100000009808888/trump-votes-florida-election-day.html
