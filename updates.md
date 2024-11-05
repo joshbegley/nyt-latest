@@ -1,3 +1,11 @@
+**The Election Eve Library Party With Spike Lee and Martha Stewart**\
+`The New York Public Library’s annual benefit was a who’s who of literary stars and creative luminaries.`\
+https://nytimes.com/2024/11/05/style/election-party-spike-lee-martha-stewart.html
+
+**What Kind of World Are We Living In?**\
+`By Ross Douthat and Ezra Klein`\
+https://nytimes.com/2024/11/05/opinion/election-trump-harris-results-live-chat.html
+
 **Trading for Marshon Lattimore shows Commanders recognize their potential**\
 `The eight-year veteran brings a Pro Bowl presence to a Washington team that had cornerback at the top of its needs list.`\
 https://nytimes.com/athletic/5901341/2024/11/05/commanders-marshon-lattimore-saints-trade-nfl-deadline-2024/
