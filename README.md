@@ -1,3 +1,15 @@
+**‘High Risk, High Return’? How Kemi Badenoch Came to Lead Britain’s Conservatives**\
+`Ms. Badenoch’s ascent is partly the result of a deliberate diversifying of the party under David Cameron in the 2000s. In her politics, she exemplifies its more recent rightward turn.`\
+https://nytimes.com/2024/11/05/world/europe/britain-kemi-badenoch-conservative-party.html
+
+**The case for — and against — each of the Classic Baseball Era Hall of Fame candidates**\
+`Eight names were revealed this week, and their Hall of Fame candidacies will be voted on in December. What are the pros and cons for each? `\
+https://nytimes.com/athletic/5899195/2024/11/05/mlb-hall-of-fame-classic-baseball-era-candidates/
+
+**Five Bengals midseason predictions: Joe Burrow will battle Lamar Jackson for MVP**\
+`Among other predictions: The defense will see a big climb in the rankings and a trade will address a new pressing need.`\
+https://nytimes.com/athletic/5899056/2024/11/05/bengals-predictions-nfl-midseason-burrow/
+
 **‘I Will Be Thrilled to Be Wrong’: Four Columnists Brace for Election Night**\
 `Who will win the presidency, House and Senate? What is the election about? And what happens next for America?`\
 https://nytimes.com/2024/11/05/opinion/kamala-harris-donald-trump-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/11/05/opinion/election-day-meditation.html
 **What We’ll Know and When We’ll Know It: A Guide to Election Night**\
 `The vote count will still feature “blue mirages” and “red mirages,” but they won’t be as extreme as in 2020.`\
 https://nytimes.com/2024/11/05/upshot/election-night-guide.html
-
-**Don’t Let Trump Make America Into an Image of Himself**\
-`We cannot become what he wants us to be.`\
-https://nytimes.com/2024/11/05/opinion/harris-trump-lincoln-memorial.html
-
-**How the Election Could Unfold: Four Scenarios**\
-`A look at plausible outcomes that might wind up seeming obvious in hindsight.`\
-https://nytimes.com/2024/11/05/upshot/election-scenarios-polls.html
-
-**The Best Laid Plans to Enjoy (or Ignore) Election Day**\
-`Watching the news, attending election parties, singing with friends and getting Botox are among the activities some people have planned.`\
-https://nytimes.com/2024/11/05/style/election-day-plans.html
 
