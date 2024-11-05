@@ -1,3 +1,11 @@
+**Kulenovic's Bosnia call-up shows Marsch and Canada must act fast to increase talent pool**\
+`A generation of players moved abroad when younger to progress - how many Marsch can recruit is big question ahead of the World Cup.`\
+https://nytimes.com/athletic/5900347/2024/11/05/luka-kulenovic-canada-bosnia/
+
+**Britain Confirms Two Cases of Newer Type of Mpox**\
+`The authorities said the risk of a rapid spread remained low because the new cases had had household contact with the first infected person.`\
+https://nytimes.com/2024/11/05/world/europe/uk-mpox.html
+
 **Penn State police investigating Jason Kelce phone-smashing incident**\
 `Kelce addressed the altercation on ESPN's broadcast of "Monday Night Countdown," saying he was "not proud" of the interaction.`\
 https://nytimes.com/athletic/5900653/2024/11/05/jason-kelce-phone-incident-investigation/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/business/bernie-marcus-dead.html
 **The Predictable Hypocrisy of Megyn Kelly**\
 `She smooched a man who continues to denigrate women in public statements.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/megyn-kelly-trump-rally
-
-**F1 mailbag: Lando Norris what-ifs and Max Verstappen versus the British press**\
-`Plus: What do we make of Liam Lawson's performance so far? tAnd we try to unpack the FIA's decisions around the race. `\
-https://nytimes.com/athletic/5900432/2024/11/05/f1-mailbag-brazil-gp-lando-norris-max-verstappen/
-
-**The Bounce: Are the 8-0 Cavaliers the best in the East?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5900145/2024/11/05/donovan-mitchell-cleveland-cavaliers-caitlin-clark-iowa-nba-wnba-the-bounce/
 
