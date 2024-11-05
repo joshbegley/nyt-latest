@@ -1,3 +1,23 @@
+**Israeli Raids in West Bank Kill 4, Palestinians Say**\
+`The raids suggested that the Israeli military was continuing to target armed fighters in the occupied territory, even as it conducts major operations in Gaza and Lebanon.`\
+https://nytimes.com/2024/11/05/world/middleeast/israel-west-bank-raid.html
+
+**NFL Week 9 best and worst coaching decisions: Cardinals OC Drew Petzing outwits Bears**\
+`Also, the Eagles and Seahawks have been scrutinized for aggressive decisions Sunday. Were they the right ones?`\
+https://nytimes.com/athletic/5898110/2024/11/05/nfl-week-9-worst-best-coaching-decisions-nguyen/
+
+**Where the Angels' roster stands as free agency begins**\
+`GM Perry Minasian is hoping the work he does over the next week will establish the framework to turn around the Angels' fortunes.`\
+https://nytimes.com/athletic/5898514/2024/11/05/angels-roster-decisions-free-agency/
+
+**'I felt like a rookie again': Jake DeBrusk opens up about Canucks transition**\
+`DeBrusk sat down with The Athletic to discuss transitioning to a new team, trying to build chemistry with the Canucks' stars and more.`\
+https://nytimes.com/athletic/5899470/2024/11/05/canucks-jake-debrusk-nhl/
+
+**Brandt Clarke is showing the Kings his dynamic best — and he's worth the risk**\
+`Clarke has a team-high 11 assists, and is showing off his flair for jumping into plays and moving the puck.`\
+https://nytimes.com/athletic/5898755/2024/11/05/brandt-clarke-kings-assists/
+
 **Japan Launches World’s First Wooden Satellite**\
 `The cube-shaped satellite was launched aboard a SpaceX rocket late Monday to test if timber will work as a more sustainable material in space.`\
 https://nytimes.com/video/science/space/100000009805728/japan-world-first-wooden-satellite.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/counties-presidential-election-michig
 **Weekly Student News Quiz: Election Day, World Series, Floods**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/11/05/learning/05StudentNewsQuiz.html
-
-**Wheeler’s mailbag: Submit your 2025 NHL Draft and prospect questions**\
-`Have questions about the 2025 NHL Draft class, a prospect, or scouting in general? Submit them here.`\
-https://nytimes.com/athletic/5899977/2024/11/05/nhl-draft-2025-prospects-ranking-mailbag/
-
-**What to Expect on Election Day**\
-`A guide to what could happen, the stakes for companies and the economy, and how business leaders are preparing for the result — including potential unrest.`\
-https://nytimes.com/2024/11/05/business/dealbook/election-day-guide.html
-
-**Paul George's debut brings some much needed hope to the Sixers, even as they lose again**\
-`"He takes a lot of the pressure off all of us," Tyrese Maxey said of George's first game in a Sixers uniform.`\
-https://nytimes.com/athletic/5899641/2024/11/05/paul-george-sixers-debut/
-
-**Real Madrid hire former futsal coach Serpa to Calafat's scouting staff**\
-`Real Madrid have hired former futsal player and coach Marcelo Serpa Coelho to Juni Calafat&#8217;s scouting staff.`\
-https://nytimes.com/athletic/5899902/2024/11/05/real-madrid-marcelo-serpa-coelho-scout/
-
-**Majority of Man United fans back new stadium over Old Trafford redevelopment, survey finds**\
-`The majority of Manchester United fans are in favour of building a new stadium at Old Trafford, a study conducted by the club has found.`\
-https://nytimes.com/athletic/5899877/2024/11/05/manchester-united-old-trafford-plans-survey-results/
 

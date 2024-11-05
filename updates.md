@@ -1,3 +1,23 @@
+**Israeli Raids in West Bank Kill 4, Palestinians Say**\
+`The raids suggested that the Israeli military was continuing to target armed fighters in the occupied territory, even as it conducts major operations in Gaza and Lebanon.`\
+https://nytimes.com/2024/11/05/world/middleeast/israel-west-bank-raid.html
+
+**NFL Week 9 best and worst coaching decisions: Cardinals OC Drew Petzing outwits Bears**\
+`Also, the Eagles and Seahawks have been scrutinized for aggressive decisions Sunday. Were they the right ones?`\
+https://nytimes.com/athletic/5898110/2024/11/05/nfl-week-9-worst-best-coaching-decisions-nguyen/
+
+**Where the Angels' roster stands as free agency begins**\
+`GM Perry Minasian is hoping the work he does over the next week will establish the framework to turn around the Angels' fortunes.`\
+https://nytimes.com/athletic/5898514/2024/11/05/angels-roster-decisions-free-agency/
+
+**'I felt like a rookie again': Jake DeBrusk opens up about Canucks transition**\
+`DeBrusk sat down with The Athletic to discuss transitioning to a new team, trying to build chemistry with the Canucks' stars and more.`\
+https://nytimes.com/athletic/5899470/2024/11/05/canucks-jake-debrusk-nhl/
+
+**Brandt Clarke is showing the Kings his dynamic best — and he's worth the risk**\
+`Clarke has a team-high 11 assists, and is showing off his flair for jumping into plays and moving the puck.`\
+https://nytimes.com/athletic/5898755/2024/11/05/brandt-clarke-kings-assists/
+
 **Japan Launches World’s First Wooden Satellite**\
 `The cube-shaped satellite was launched aboard a SpaceX rocket late Monday to test if timber will work as a more sustainable material in space.`\
 https://nytimes.com/video/science/space/100000009805728/japan-world-first-wooden-satellite.html
