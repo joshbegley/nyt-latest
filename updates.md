@@ -1,3 +1,11 @@
+**Arizona Official Releases Voter List Sought by Activists After Court Order**\
+`The secretary of state had objected to turning over names of people without a record of proof of citizenship to lawyers for a right-wing group, fearing the potential consequences.`\
+https://nytimes.com/2024/11/04/us/politics/arizona-voting-citizenship-voter-rolls.html
+
+**3 U.S. Intelligence Agencies Warn of Election Interference Efforts by Russia and Iran**\
+`Russia, and to a lesser extent Iran, will most likely flood social media with misinformation on Election Day and for weeks afterward, the agencies said.`\
+https://nytimes.com/2024/11/04/us/politics/russia-iran-election-interference.html
+
 **Joe Rogan Endorses Trump, and Trump Calls Him ‘the Biggest There Is’**\
 `Mr. Rogan has hosted Donald J. Trump, JD Vance and Elon Musk for lengthy and friendly interviews in recent weeks.`\
 https://nytimes.com/2024/11/04/us/politics/trump-joe-rogan-endorsement.html
