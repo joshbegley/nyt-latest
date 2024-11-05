@@ -1,40 +1,40 @@
-**‘Love Is Blind’ Resets, ‘Survivor’ Stalls: A Reality TV Check-in**\
-`A palate-cleanse conversation about the state of legacy reality franchises, and what might come next for them.`\
-https://nytimes.com/2024/11/05/arts/music/popcast-reality-tv.html
+**Abortion on the Ballot**\
+`See results for ballot measures on abortion in the 2024 general election`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-abortion.html
 
-**Lightning Strikes Soccer Team in Peru, Killing Player**\
-`A video of the incident shows a flash of light and then several players instantly dropping to the ground.`\
-https://nytimes.com/2024/11/05/world/americas/video-lightning-soccer-peru.html
+**Florida Amendment 4 Election Results: Right to Abortion**\
+`Get live results and maps from the 2024 Florida general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-4-right-to-abortion.html
 
-**A Former Steelworker Makes a Tough Decision at the Polls**\
-`She was torn until the last minute.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/steelworker-indiana-vote
+**Florida Amendment 6 Election Results: Repeal Public Financing for Statewide Campaigns**\
+`Get live results and maps from the 2024 Florida general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-6-repeal-public-financing-for-statewide-campaigns.html
 
-**Heisman Trophy odds: Travis Hunter, Cam Ward co-favorites in a tight race**\
-`Cam Ward and Travis Hunter are the current co-favorites in a tight race for the Heisman Trophy.`\
-https://nytimes.com/athletic/5900731/2024/11/05/heisman-trophy-odds-travis-hunter-cam-ward/
+**Florida Amendment 2 Election Results: Right to Fish and Hunt**\
+`Get live results and maps from the 2024 Florida general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-2-right-to-fish-and-hunt.html
 
-**Cash ruled out of Villa's Champions League trip to Club Bruges**\
-`Matty Cash will miss Aston Villa’s Champions League trip to Belgian side Club Bruges on Wednesday.`\
-https://nytimes.com/athletic/5900757/2024/11/05/matty-cash-aston-villa-injury/
+**Florida Amendment 3 Election Results: Legalize Marijuana**\
+`Get live results and maps from the 2024 Florida general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-3-legalize-marijuana.html
 
-**Facing Outrage, Nigeria Drops Capital Charges Against Minors**\
-`Dozens of teenagers had been accused of treason and faced possible death sentences, but indignation over their treatment, including lack of food, has the government backpedaling.`\
-https://nytimes.com/2024/11/05/world/africa/nigeria-teenagers-charges-dropped.html
+**Florida Amendment 1 Election Results: Require Partisan School Board Elections**\
+`Get live results and maps from the 2024 Florida general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-1-require-partisan-school-board-elections.html
 
-**Threats Reported in 2 States, but None Are Found Credible**\
-`Officials in Maine and Georgia said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
-https://nytimes.com/2024/11/05/us/politics/pollls-voting-bomb-threats.html
+**Florida Amendment 5 Election Results: Adjust Property Valuations for Inflation**\
+`Get live results and maps from the 2024 Florida general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-5-adjust-property-valuations-for-inflation.html
 
-**Giuliani Moved Possessions From N.Y. Apartment as Creditors Closed In**\
-`Lawyers for the two election workers seeking to collect on a $148 million defamation judgment against Rudolph W. Giuliani found that he had largely cleared out his Upper East Side home.`\
-https://nytimes.com/2024/11/05/us/politics/giuliani-apartment-defamation-election.html
+**Delaware At-Large Congressional District Election Results**\
+`Get live results and maps from the 2024 Delaware general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-delaware-us-house-at-large.html
 
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/11/05/opinion/thepoint
+**Connecticut Amendment 1 Election Results: Expand Absentee Voting**\
+`Get live results and maps from the 2024 Connecticut general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-connecticut-amendment-1-expand-absentee-voting.html
 
-**Election Night at The Times, Through the Decades**\
-`The first presidential election The Times covered was in 1852. Things have changed a lot since the days of typewriters and motographs — see how, in archival images from decades past.`\
-https://nytimes.com/2024/11/05/insider/nyt-election-night-photos.html
+**Colorado First Congressional District Election Results**\
+`Get live results and maps from the 2024 Colorado general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-colorado-us-house-1.html
 
