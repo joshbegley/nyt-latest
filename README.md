@@ -6,7 +6,7 @@ https://nytimes.com/2024/11/05/us/politics/trump-votes-in-florida.html
 `Elon Musk has spent $119 million on a super PAC supporting Donald Trump and held events on his behalf. But his ownership of X is especially valuable.`\
 https://nytimes.com/2024/11/05/us/politics/elon-musk-trump-election-night.html
 
-**USMNT's Sargent out until 2025 after surgery groin injury**\
+**USMNT's Sargent out until 2025 after surgery on groin injury**\
 `Sargent has registered four goals and five assists for his club side Norwich City this season.`\
 https://nytimes.com/athletic/5900910/2024/11/05/josh-sargent-injury-surgery-usmnt/
 
