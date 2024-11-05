@@ -1,3 +1,7 @@
+**Election Day Decisions, and Why the Count Could Take Awhile**\
+`Plus, how astronauts vote from space.`\
+https://nytimes.com/2024/11/05/podcasts/election-day.html
+
 **Twins face tough offseason decisions but say it's 'business as usual' despite sale of team**\
 `Falvey said the Pohlads' intention to sell the team doesn’t impact how he’ll handle roster construction. But lots of tough decisions await.`\
 https://nytimes.com/athletic/5899385/2024/11/05/twins-offseason-decisions-team-sale/

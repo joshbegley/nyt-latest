@@ -30,11 +30,11 @@ https://nytimes.com/athletic/5898469/2024/11/05/nfl-qb-stock-report-rankings-jar
 `It’s Election Day. Here’s how to understand the results.`\
 https://nytimes.com/2024/11/05/podcasts/the-daily/election-2024.html
 
+**Election Day Decisions, and Why the Count Could Take Awhile**\
+`Plus, how astronauts vote from space.`\
+https://nytimes.com/2024/11/05/podcasts/election-day.html
+
 **Mets free-agent outlook: Should they bring back Jesse Winker or J.D. Martinez?**\
 `Winker and Martinez offer options as veteran designated hitters, but positional flexibility will be a factor as the Mets look toward 2025.`\
 https://nytimes.com/athletic/5886899/2024/11/05/mets-free-agent-jesse-winker-jd-martinez/
-
-**Millions Head to the Polls After Trump and Harris Make Their Final Pitches**\
-`Plus, how astronauts vote from space.`\
-https://nytimes.com/2024/11/05/podcasts/election-day.html
 
