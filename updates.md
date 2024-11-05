@@ -1,3 +1,15 @@
+**The Bounce: Are the 8-0 Cavaliers the best in the East?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5900145/2024/11/05/donovan-mitchell-cleveland-cavaliers-caitlin-clark-iowa-nba-wnba-the-bounce/
+
+**More Than 80 Million Americans Cast Early Ballots**\
+`Despite sporadic mishaps, the early voting season went relatively smoothly, both in person and by mail.`\
+https://nytimes.com/2024/11/05/us/politics/80-million-early-votes.html
+
+**Irish Leader Plans to Call Election Later This Week**\
+`Simon Harris, Ireland’s prime minister, said Tuesday that he would dissolve parliament later this week, setting the stage for a general election by the end of the month.`\
+https://nytimes.com/2024/11/05/world/europe/irish-leader-plans-to-call-election-later-this-week.html
+
 **What I know about Van Nistelrooy and his relationship with United**\
 `The Dutchman has written the foreword to Andy Mitten's new book about United in the noughties and highlighted his feelings for the club`\
 https://nytimes.com/athletic/5897288/2024/11/05/van-nistelrooy-man-united-amorim/
