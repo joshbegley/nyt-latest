@@ -1,6 +1,10 @@
+**Hourslong Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
+`Voters said the wait to cast a ballot stretched to more than six hours at the Banana Factory, an art center in Bethlehem, Pa.`\
+https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
+
 **An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
 `After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
-https://nytimes.com/2024/11/05/obituaries/readers-share-their-jansport-memories.html
+https://nytimes.com/2024/11/05/business/jansport-memories.html
 
 **Braves' Ronald Acuña Jr., Spencer Strider won't be ready for 2025 season opener**\
 `Acuña is recovering from left knee surgery and Strider is recovering from internal-brace elbow surgery.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/columnists-election-analysis
 **The Election Eve Library Party With Spike Lee and Martha Stewart**\
 `The New York Public Library’s annual benefit was a who’s who of literary stars and creative luminaries.`\
 https://nytimes.com/2024/11/05/style/election-party-spike-lee-martha-stewart.html
-
-**What Kind of World Are We Living In?**\
-`By Ross Douthat and Ezra Klein`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/election-trump-harris-results-live-chat
 
