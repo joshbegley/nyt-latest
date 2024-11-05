@@ -1,3 +1,19 @@
+**Once again, Oilers' power play are penalty kill are nothing special**\
+`After a 3-0 loss to the Devils, the Oilers have the NHL's worst penalty kill and the league's 26th-ranked power play.`\
+https://nytimes.com/athletic/5899659/2024/11/05/edmonton-oilers-special-teams-penalty-kill/
+
+**Fired Raiders coordinator Luke Getsy was dealt a bad hand — and played it poorly**\
+`Getsy was the Raiders' third choice at offensive coordinator, and it took just nine games for Antonio Pierce to pull the plug.`\
+https://nytimes.com/athletic/5898550/2024/11/05/raiders-luke-getsy-fired-what-went-wrong/
+
+**College Football Playoff stock watch: Is Ohio State a lock? How much is SMU rising?**\
+`Ohio State and SMU are rising in the College Football Playoff race, while Texas A&M and Kansas State are in trouble.`\
+https://nytimes.com/athletic/5898409/2024/11/05/college-football-playoff-odds-smu-osu/
+
+**Bo Nix's playmaking ability makes him 'a really dangerous' QB — but it has limits**\
+`Nix left the pocket to make the biggest play of the game Sunday, but it also got him in trouble during two failed red zone drives.`\
+https://nytimes.com/athletic/5897554/2024/11/05/bo-nix-broncos-playmaking-ability/
+
 **Odegaard returns to Arsenal training but left out of Norway squad**\
 `Arsenal captain Martin Odegaard has returned to training for the first time since sustaining an ankle injury in September.`\
 https://nytimes.com/athletic/5836413/2024/11/05/arsenal-odegaard-injury-return-update/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/05/technology/crypto-bitcoin-price-trump-election.ht
 **How Markets Could Respond to the Election**\
 `Investors are considering the candidates’ policies and historical trends to bet on where stocks, bonds and currencies are headed.`\
 https://nytimes.com/2024/11/05/business/stock-market-election-trump-harris.html
-
-**Djokovic withdraws from ATP Tour Finals with injury**\
-`He ends the season without an ATP Tour title for the first time since 2005.`\
-https://nytimes.com/athletic/5899867/2024/11/05/novak-djokovic-atp-tour-finals-out-injury/
-
-**The Pulse: How do the Chiefs keep doing this?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5899298/2024/11/05/chiefs-buccaneers-monday-night-football-the-pulse/
-
-**The first CFP rankings deliver surprises: Teams most likely to be elated or furious**\
-`There are always some raised eyebrows when the committee shows its cards and reveals the teams it sees differently than the polls.`\
-https://nytimes.com/athletic/5899084/2024/11/05/college-football-playoff-rankings-surprises/
-
-**How Lukas Reichel got his groove back**\
-`Reichel had been on the decline for over a year but has recently found a spark and more joy in hockey.`\
-https://nytimes.com/athletic/5898715/2024/11/05/blackhawks-lukas-reichel-stats/
 

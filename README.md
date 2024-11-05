@@ -1,3 +1,11 @@
+**Real Madrid hire former futsal coach Serpa to Calafat's scouting staff**\
+`Real Madrid have hired former futsal player and coach Marcelo Serpa Coelho to Juni Calafat&#8217;s scouting staff.`\
+https://nytimes.com/athletic/5899902/2024/11/05/real-madrid-marcelo-serpa-coelho-scout/
+
+**Majority of Man United fans back new stadium over Old Trafford redevelopment, survey finds**\
+`The majority of Manchester United fans are in favour of building a new stadium at Old Trafford, a study conducted by the club has found.`\
+https://nytimes.com/athletic/5899877/2024/11/05/manchester-united-old-trafford-plans-survey-results/
+
 **Once again, Oilers' power play are penalty kill are nothing special**\
 `After a 3-0 loss to the Devils, the Oilers have the NHL's worst penalty kill and the league's 26th-ranked power play.`\
 https://nytimes.com/athletic/5899659/2024/11/05/edmonton-oilers-special-teams-penalty-kill/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/briefing/election-day-2024-harris-trump.html
 **Trump Media’s Stock Is Set for Even Wilder Ride After the Election**\
 `No stock is more directly linked to the outcome than Trump Media & Technology Group, the parent company of Truth Social.`\
 https://nytimes.com/2024/11/05/business/trump-media-stock-election.html
-
-**Cryptocurrency Markets, Promoted by Trump, Brace for Election Volatility**\
-`Many crypto investors hope that a victory for Donald Trump could propel the price of Bitcoin to new heights, though a loss could cause a fall.`\
-https://nytimes.com/2024/11/05/technology/crypto-bitcoin-price-trump-election.html
-
-**How Markets Could Respond to the Election**\
-`Investors are considering the candidates’ policies and historical trends to bet on where stocks, bonds and currencies are headed.`\
-https://nytimes.com/2024/11/05/business/stock-market-election-trump-harris.html
 
