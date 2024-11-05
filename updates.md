@@ -1,3 +1,15 @@
+**Threats Reported in 3 States, but None Are Found Credible**\
+`Officials in Maine, Georgia and North Carolina said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
+https://nytimes.com/2024/11/05/us/politics/pollls-voting-bomb-threats.html
+
+**Giuliani Moved Possessions From N.Y. Apartment as Creditors Closed In**\
+`Lawyers for the two election workers seeking to collect on a $148 million defamation judgment against Rudolph W. Giuliani found that he had largely cleared out his Upper East Side home.`\
+https://nytimes.com/2024/11/05/us/politics/giuliani-apartment-defamation-election.html
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/11/05/opinion/thepoint
+
 **Election Night at The Times, Through the Decades**\
 `Election night at The Times ushered in a fervor of typewriters clacking and early morning changes to bring readers accurate results. Photos of the newsroom in decades past bring the action to life.`\
 https://nytimes.com/2024/11/05/insider/nyt-election-night-photos.html

@@ -1,3 +1,15 @@
+**Threats Reported in 3 States, but None Are Found Credible**\
+`Officials in Maine, Georgia and North Carolina said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
+https://nytimes.com/2024/11/05/us/politics/pollls-voting-bomb-threats.html
+
+**Giuliani Moved Possessions From N.Y. Apartment as Creditors Closed In**\
+`Lawyers for the two election workers seeking to collect on a $148 million defamation judgment against Rudolph W. Giuliani found that he had largely cleared out his Upper East Side home.`\
+https://nytimes.com/2024/11/05/us/politics/giuliani-apartment-defamation-election.html
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/11/05/opinion/thepoint
+
 **Election Night at The Times, Through the Decades**\
 `Election night at The Times ushered in a fervor of typewriters clacking and early morning changes to bring readers accurate results. Photos of the newsroom in decades past bring the action to life.`\
 https://nytimes.com/2024/11/05/insider/nyt-election-night-photos.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5900947/2024/11/05/mike-williams-trade-jets-steeler
 **‘Moo Deng? Who Deng?’ Meet Haggis the Baby Pygmy Hippo.**\
 `Edinburgh Zoo playfully started (and then quickly ended) a rivalry with Moo Deng, Thailand’s viral sensation.`\
 https://nytimes.com/2024/11/05/style/haggis-pygmy-hippo-edinburgh-zoo.html
-
-**What Are Your Reactions to the Results of Election 2024?**\
-`As the votes are counted, we invite teenagers to post their reactions and have conversations here. What does this election mean for our nation, and for you?`\
-https://nytimes.com/2024/11/05/learning/what-are-your-reactions-to-the-results-of-election-2024.html
-
-**Commanders acquire CB Marshon Lattimore from Saints**\
-`The Commanders receive Lattimore and a 2025 fifth-round pick in exchange for a 2025 third, 2025 fourth and 2025 sixth.`\
-https://nytimes.com/athletic/5900868/2024/11/05/marshon-lattimore-commanders-saints-trade/
-
-**California voters are wading through a dizzying mix of ballot measures.**\
-`The state has 10 proposals on Tuesday’s ballot, ranging from an increase in the minimum wage to tougher penalties for theft and drug crimes.`\
-https://nytimes.com/2024/11/05/us/politics/california-ballot-measures-crime-minimum-wage.html
 

@@ -1,3 +1,7 @@
+**Facing Outrage, Nigeria Drops Capital Charges Against Minors**\
+`Dozens of teenagers had been accused of treason and faced possible death sentences, but indignation over their treatment, including lack of food, has the government backpedaling.`\
+https://nytimes.com/2024/11/05/world/africa/nigeria-teenagers-charges-dropped.html
+
 **Threats Reported in 3 States, but None Are Found Credible**\
 `Officials in Maine, Georgia and North Carolina said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
 https://nytimes.com/2024/11/05/us/politics/pollls-voting-bomb-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/climate/2024-election-climate-change.html
 **Jets trade Mike Williams to Steelers for fifth-round pick**\
 `Williams signed with the Jets in the offseason but became expendable after New York dealt for Davante Adams.`\
 https://nytimes.com/athletic/5900947/2024/11/05/mike-williams-trade-jets-steelers-nfl/
-
-**‘Moo Deng? Who Deng?’ Meet Haggis the Baby Pygmy Hippo.**\
-`Edinburgh Zoo playfully started (and then quickly ended) a rivalry with Moo Deng, Thailand’s viral sensation.`\
-https://nytimes.com/2024/11/05/style/haggis-pygmy-hippo-edinburgh-zoo.html
 
