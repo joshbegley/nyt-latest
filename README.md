@@ -1,3 +1,7 @@
+**Sun Belt, Rust Belt, Barbecue Belt: America loves debating its regions.**\
+`By Remy Tumin`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/sun-belt-rust-belt-barbecue-belt-america-loves-debating-its-regions
+
 **Russia Plotted to Put Incendiary Devices on Cargo Planes, Officials Say**\
 `Western officials are investigating whether devices planted at shipping hubs in Europe may have been a test run by Russian operatives for placing them on planes bound for the U.S.`\
 https://nytimes.com/2024/11/05/world/europe/russia-plot-dhl-planes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5893004/2024/11/05/nfl-trade-grades-deadline-2024/
 **Flo Wants to Reinvent the Girl Group for a New Generation**\
 `On the British R&B trio’s awaited debut album, “Access All Areas,” nostalgia meets ambition.`\
 https://nytimes.com/2024/11/05/arts/music/flo-girl-group-access-all-areas.html
-
-**Sabalenka secures year-end world No. 1 for the first time**\
-`Iga Swiatek's defeat to Coco Gauff in Riyadh confirms Sabalenka's place at the summit.`\
-https://nytimes.com/athletic/5899798/2024/11/05/sabalenka-wta-rankings-world-number-one-year-end/
 
