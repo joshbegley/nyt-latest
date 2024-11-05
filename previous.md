@@ -1,6 +1,14 @@
+**Commanders acquire CB Marshon Lattimore from Saints**\
+`The Commanders receive Lattimore and a 2025 fifth-round pick in exchange for a 2025 third, 2025 fourth and 2025 sixth.`\
+https://nytimes.com/athletic/5900868/2024/11/05/marshon-lattimore-commanders-saints-trade/
+
+**California voters are wading through a dizzying mix of ballot measures.**\
+`The state has 10 proposals on Tuesday’s ballot, ranging from an increase in the minimum wage to tougher penalties for theft and drug crimes.`\
+https://nytimes.com/2024/11/05/us/politics/california-ballot-measures-crime-minimum-wage.html
+
 **Trump Votes and Says This Will Be His Last Campaign**\
 `The former president cast his ballot at a recreation center-turned-polling station in Florida and spoke to reporters.`\
-https://nytimes.com/2024/11/05/us/politics/trump-votes-in-florida.html
+https://nytimes.com/2024/11/05/us/politics/trump-votes-florida.html
 
 **Musk to Spend Election Night With Trump**\
 `Elon Musk has spent $119 million on a super PAC supporting Donald Trump and held events on his behalf. But his ownership of X is especially valuable.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/05/us/trump-harris-election/sun-belt-rust-belt-
 **College Football Playoff guide: 12-team format, important dates, game locations**\
 `How will the 12 teams be selected? When is the national championship? The answers to all your frequently asked questions about the CFP.`\
 https://nytimes.com/athletic/5726745/2024/11/05/college-football-playoff-2024-format-guide/
-
-**Russia Plotted to Put Incendiary Devices on Cargo Planes, Officials Say**\
-`Western officials are investigating whether devices planted at shipping hubs in Europe may have been a test run by Russian operatives for placing them on planes bound for the U.S.`\
-https://nytimes.com/2024/11/05/world/europe/russia-plot-dhl-planes.html
-
-**Trump, Vance and Allies Hurl Insults at Women as Race Ends**\
-`Donald J. Trump has used misogynistic language to refer to Kamala Harris, fostering an environment among his allies and at his rallies that revels in gendered insults.`\
-https://nytimes.com/2024/11/05/us/politics/trump-nancy-pelosi-liz-cheney-women.html
 
