@@ -1,3 +1,7 @@
+**The Pulse: How do the Chiefs keep doing this?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5899298/2024/11/05/chiefs-buccaneers-monday-night-football-the-pulse/
+
 **The first CFP rankings deliver surprises: Teams most likely to be elated or furious**\
 `There are always some raised eyebrows when the committee shows its cards and reveals the teams it sees differently than the polls.`\
 https://nytimes.com/athletic/5899084/2024/11/05/college-football-playoff-rankings-surprises/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898124/2024/11/05/maple-leafs-fraser-minten-2/
 **What Nico Hoerner’s uncertain timeline means for prospect Matt Shaw, Cubs’ offseason plans**\
 `Chicago has the resources to make a blockbuster deal. But the Hoerner situation shows that the Cubs are building usable major-league depth.`\
 https://nytimes.com/athletic/5899464/2024/11/05/cubs-nico-hoerner-injury-matt-shaw/
-
-**Should Packers change their strategy of receiving kickoffs after winning the toss?**\
-`The Packers have chosen to receive after winning the toss nine times in the last two seasons and only opened with touchdowns twice.`\
-https://nytimes.com/athletic/5898940/2024/11/05/packers-receiving-kickoffs-first/
 
