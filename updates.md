@@ -1,3 +1,15 @@
+**Who Is Israel Katz, Israel’s New Defense Minister?**\
+`The prime minister has replaced an experienced former general with Mr. Katz, who had been foreign minister and who has staunchly supported Israel’s right-wing government.`\
+https://nytimes.com/2024/11/05/world/middleeast/israel-katz-defense-minister.html
+
+**Market share report: Jets lean into their strengths, Rico Dowdle is no laughing matter and more**\
+`In his Week 9 market share breakdown, Michael Salfino says Rico Dowdle still isn't getting the respect he deserves as a zeroRB standout.`\
+https://nytimes.com/athletic/5901510/2024/11/05/market-share-fantasy-football-week-9-dowdle-davante-garrett-wilson/
+
+**The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Ancelotti's side are stunned at the Bernabeu**\
+`Madrid find themselves in an unfamiliar position after another defeat — this time to an inspired Milan side`\
+https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
+
 **Colts 'never' considered moving on from Anthony Richardson at NFL trade deadline**\
 `Despite benching Richardson, the Colts insist the young QB remains part of their long-term plans. `\
 https://nytimes.com/athletic/5901296/2024/11/05/nfl-2024-trade-deadline-colts-anthony-richardson/

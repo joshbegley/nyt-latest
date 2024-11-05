@@ -1,8 +1,16 @@
+**Who Is Israel Katz, Israel’s New Defense Minister?**\
+`The prime minister has replaced an experienced former general with Mr. Katz, who had been foreign minister and who has staunchly supported Israel’s right-wing government.`\
+https://nytimes.com/2024/11/05/world/middleeast/israel-katz-defense-minister.html
+
+**Market share report: Jets lean into their strengths, Rico Dowdle is no laughing matter and more**\
+`In his Week 9 market share breakdown, Michael Salfino says Rico Dowdle still isn't getting the respect he deserves as a zeroRB standout.`\
+https://nytimes.com/athletic/5901510/2024/11/05/market-share-fantasy-football-week-9-dowdle-davante-garrett-wilson/
+
 **Los Angeles Faces a ‘Particularly Dangerous Situation’ for Wildfire Weather**\
 `Forecasters in California are using some of their strongest language to warn that windy conditions may help fires spread this week.`\
 https://nytimes.com/2024/11/05/weather/los-angeles-santa-ana-winds-california.html
 
-**The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Milan stun Ancelotti's side at Bernabeu**\
+**The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Ancelotti's side are stunned at the Bernabeu**\
 `Madrid find themselves in an unfamiliar position after another defeat — this time to an inspired Milan side`\
 https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/nyregion/dolphin-remains-new-jersey-beach.html
 **The Briefing: Sporting Lisbon 4 Manchester City 1 - Gyokeres upstages Haaland in Ruben Amorim's farewell home game**\
 `Analysis of a difficult Champions League night for Manchester City in Portugal`\
 https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-result-analysis/
-
-**What Elon Musk Told His 203 Million X Followers on Election Day**\
-`The world’s richest man continued stumping for former President Donald J. Trump and pushing conspiracy theories about voting fraud.`\
-https://nytimes.com/2024/11/05/us/politics/elon-musk-trump-x-election-day.html
-
-**An Idaho Health Department Is Barred from Offering Covid Shots**\
-`Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations.`\
-https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html
 
