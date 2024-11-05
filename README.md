@@ -1,3 +1,7 @@
+**First U.S. Election Result Is In, and It’s a Trump-Harris Tie**\
+`It took just 12 minutes to tally the six votes in Dixville Notch, New Hampshire. ‘I didn’t see that coming,’ one resident said of the split result.`\
+https://nytimes.com/2024/11/05/us/politics/dixville-notch-election-vote-results.html
+
 **Who Says You Can’t Live Off the Grid in Manhattan?**\
 `It takes dedication, solar panels and lots of vegetables. And it probably means putting dating on hold.`\
 https://nytimes.com/2024/11/05/nyregion/joshua-spodek-eco-influencer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/vance-harris-trash-trump.html
 **Steph Curry returns, takes cautious approach in Warriors' win over Wizards**\
 `Curry was on a strict 24-minute restriction in his first game in more than a week.`\
 https://nytimes.com/athletic/5899201/2024/11/05/steph-curry-returns-warriors-win-wizards/
-
-**Why These 15 Late-Deciding Swing State Voters Give the Edge to Harris**\
-`The group discussed Kamala Harris and Donald Trump on the edge of the 2024 election.`\
-https://nytimes.com/interactive/2024/11/05/opinion/focusgroup-swing-state-voters.html
 
