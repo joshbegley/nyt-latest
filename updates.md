@@ -1,3 +1,7 @@
+**NFL trade grades: Breaking down biggest moves at the deadline**\
+`We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
+https://nytimes.com/athletic/5893004/2024/11/05/nfl-trade-grades-deadline-2024/
+
 **World No. 1 Nelly Korda named LPGA’s Player of the Year**\
 `Two American golfers earned the honor in back-to-back years for the first time since 1993 and 1994.`\
 https://nytimes.com/athletic/5900576/2024/11/05/nelly-korda-lpga-poy-2024/
