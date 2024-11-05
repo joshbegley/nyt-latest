@@ -1,3 +1,7 @@
+**Cooper Flagg flashes in highly-hyped Duke debut with highlight dunks**\
+`Flagg finished with 18 points, seven rebounds and five assists on 6-of-15 shooting in Duke's 96-62 win over Maine.`\
+https://nytimes.com/athletic/5899231/2024/11/04/cooper-flagg-debut-duke-maine/
+
 **Corrections: Nov. 5, 2024**\
 `Corrections that appeared in print on Tuesday, Nov. 5, 2024.`\
 https://nytimes.com/2024/11/04/pageoneplus/corrections-nov-5-2024.html
