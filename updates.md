@@ -1,3 +1,11 @@
+**You May Not Be Able to Outrun a Vampire Bat**\
+`Scientists put the bloodsucking mammals on a treadmill to understand how they get the energy to chase down their next meal.`\
+https://nytimes.com/2024/11/05/science/vampire-bats-running-treadmills.html
+
+**Dear President-Elect ­­­­­…**\
+`Some tips for whoever ends up winning.`\
+https://nytimes.com/2024/11/05/opinion/president-elect-harris-trump.html
+
 **The Parties Are Shifting, but Elections Are Still Insanely Close**\
 `By Ross Douthat and Ezra Klein`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/the-parties-are-shifting-but-elections-are-still-insanely-close
