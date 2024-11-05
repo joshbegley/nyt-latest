@@ -1,3 +1,11 @@
+**Japan Launches World’s First Wooden Satellite**\
+`The cube-shaped satellite was launched aboard a SpaceX rocket late Monday to test if timber will work as a more sustainable material in space.`\
+https://nytimes.com/video/science/space/100000009805728/japan-world-first-wooden-satellite.html
+
+**Japanese Scientists Bet on an Ancient Material for Their New Satellite: Wood**\
+`Scientists in Japan launched the first satellite made of wood by blending age-old woodworking techniques with rocket science.`\
+https://nytimes.com/2024/11/05/science/japan-wooden-satellite.html
+
 **Gonzaga pounds Baylor, and more lessons from college basketball's opening night**\
 `What was supposed to be the marquee game of the first day of the 2024-25 men's college basketball season was a mismatch from the jump.`\
 https://nytimes.com/athletic/5899702/2024/11/05/men-college-basketball-season-opener-gonzaga-baylor/

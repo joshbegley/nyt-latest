@@ -1,3 +1,11 @@
+**Japan Launches World’s First Wooden Satellite**\
+`The cube-shaped satellite was launched aboard a SpaceX rocket late Monday to test if timber will work as a more sustainable material in space.`\
+https://nytimes.com/video/science/space/100000009805728/japan-world-first-wooden-satellite.html
+
+**Japanese Scientists Bet on an Ancient Material for Their New Satellite: Wood**\
+`Scientists in Japan launched the first satellite made of wood by blending age-old woodworking techniques with rocket science.`\
+https://nytimes.com/2024/11/05/science/japan-wooden-satellite.html
+
 **Gonzaga pounds Baylor, and more lessons from college basketball's opening night**\
 `What was supposed to be the marquee game of the first day of the 2024-25 men's college basketball season was a mismatch from the jump.`\
 https://nytimes.com/athletic/5899702/2024/11/05/men-college-basketball-season-opener-gonzaga-baylor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5899902/2024/11/05/real-madrid-marcelo-serpa-coelho
 **Majority of Man United fans back new stadium over Old Trafford redevelopment, survey finds**\
 `The majority of Manchester United fans are in favour of building a new stadium at Old Trafford, a study conducted by the club has found.`\
 https://nytimes.com/athletic/5899877/2024/11/05/manchester-united-old-trafford-plans-survey-results/
-
-**Once again, Oilers' power play are penalty kill are nothing special**\
-`After a 3-0 loss to the Devils, the Oilers have the NHL's worst penalty kill and the league's 26th-ranked power play.`\
-https://nytimes.com/athletic/5899659/2024/11/05/edmonton-oilers-special-teams-penalty-kill/
-
-**Fired Raiders coordinator Luke Getsy was dealt a bad hand — and played it poorly**\
-`Getsy was the Raiders' third choice at offensive coordinator, and it took just nine games for Antonio Pierce to pull the plug.`\
-https://nytimes.com/athletic/5898550/2024/11/05/raiders-luke-getsy-fired-what-went-wrong/
 
