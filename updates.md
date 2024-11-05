@@ -1,3 +1,19 @@
+**Your Guide to Our Election Coverage**\
+`We’re watching the polls closely, and will tell you what we know as quickly as possible.`\
+https://nytimes.com/2024/11/05/us/politics/election-swing-states-polls.html
+
+**Who Is Chase Oliver, the Libertarian Candidate for President?**\
+`Mr. Oliver is polling in the low single digits. It remains to be seen whether his small share of the vote will affect the outcome of the race.`\
+https://nytimes.com/2024/11/05/us/politics/chase-oliver-election.html
+
+**In Michigan, a Field Army Urges Harris Backers to Vote**\
+`By Mara Gay`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/michigan-volunteers-harris-ground
+
+**Our Columnists and Writers on What to Expect and the Early Election Results**\
+`Opinion journalists are in Pennsylvania, Michigan, Georgia, North Carolina and New York analyzing the presidential race and key Senate and House contests.`\
+https://nytimes.com/live/2024/11/05/opinion/columnists-election-analysis
+
 **2024 NFL trade deadline winners, losers: Chiefs, Lions get richer; why did Giants stay put?**\
 `The Commanders and Steelers also struck impressive deals ahead of Tuesday's buzzer, while both New York teams made puzzling decisions.`\
 https://nytimes.com/athletic/5901411/2024/11/05/nfl-trade-deadline-2024-winners-losers-chiefs-lions-giants/

@@ -1,3 +1,15 @@
+**Your Guide to Our Election Coverage**\
+`We’re watching the polls closely, and will tell you what we know as quickly as possible.`\
+https://nytimes.com/2024/11/05/us/politics/election-swing-states-polls.html
+
+**Who Is Chase Oliver, the Libertarian Candidate for President?**\
+`Mr. Oliver is polling in the low single digits. It remains to be seen whether his small share of the vote will affect the outcome of the race.`\
+https://nytimes.com/2024/11/05/us/politics/chase-oliver-election.html
+
+**In Michigan, a Field Army Urges Harris Backers to Vote**\
+`By Mara Gay`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/michigan-volunteers-harris-ground
+
 **2024 NFL trade deadline winners, losers: Chiefs, Lions get richer; why did Giants stay put?**\
 `The Commanders and Steelers also struck impressive deals ahead of Tuesday's buzzer, while both New York teams made puzzling decisions.`\
 https://nytimes.com/athletic/5901411/2024/11/05/nfl-trade-deadline-2024-winners-losers-chiefs-lions-giants/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/5901411/2024/11/05/nfl-trade-deadline-2024-winners-
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election
 
 **Our Columnists and Writers on What to Expect and the Early Election Results**\
-``\
+`Opinion journalists are in Pennsylvania, Michigan, Georgia, North Carolina and New York analyzing the presidential race and key Senate and House contests.`\
 https://nytimes.com/live/2024/11/05/opinion/columnists-election-analysis
 
 **The Election Eve Library Party With Spike Lee and Martha Stewart**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5901341/2024/11/05/commanders-marshon-lattimore-sai
 **A History of Clashes Between Netanyahu and the Defense Minister He Fired**\
 `Yoav Gallant, the ousted cabinet minister, and Prime Minister Benjamin Netanyahu, had sharp public disagreements over Israel’s war against Hamas and what will follow it.`\
 https://nytimes.com/2024/11/05/world/middleeast/netanyahu-gallant-israel.html
-
-**A Polarized Nation Votes**\
-`Turnout looked strong. Voting ends in key swing states by 10 p.m. Eastern. Here’s the latest on Election Day.`\
-https://nytimes.com/2024/11/05/briefing/the-evening-election-night-edition.html
-
-**Who Is Israel Katz, Israel’s New Defense Minister?**\
-`The prime minister has replaced an experienced former general with Mr. Katz, who had been foreign minister and who has staunchly supported Israel’s right-wing government.`\
-https://nytimes.com/2024/11/05/world/middleeast/israel-katz-defense-minister.html
-
-**Market share report: Jets lean into their strengths, Rico Dowdle is no laughing matter and more**\
-`In his Week 9 market share breakdown, Michael Salfino says Rico Dowdle still isn't getting the respect he deserves as a zeroRB standout.`\
-https://nytimes.com/athletic/5901510/2024/11/05/market-share-fantasy-football-week-9-dowdle-davante-garrett-wilson/
 
