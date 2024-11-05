@@ -2,39 +2,39 @@
 `See results for ballot measures on abortion in the 2024 general election`\
 https://nytimes.com/interactive/2024/11/05/us/elections/results-abortion.html
 
-**Florida Amendment 4 Election Results: Right to Abortion**\
+**Marijuana and Drug Policy on the Ballot**\
+`See results for ballot measures on marijuana in the 2024 general election`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-marijuana.html
+
+**California 33rd Congressional District Election Results**\
+`Get live results and maps from the 2024 California general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-california-us-house-33.html
+
+**Florida 26th Congressional District Election Results**\
 `Get live results and maps from the 2024 Florida general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-4-right-to-abortion.html
+https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-us-house-26.html
 
-**Florida Amendment 6 Election Results: Repeal Public Financing for Statewide Campaigns**\
-`Get live results and maps from the 2024 Florida general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-6-repeal-public-financing-for-statewide-campaigns.html
+**South Dakota Amendment H Election Results: Establish Top-2 Primary Elections**\
+`Get live results and maps from the 2024 South Dakota general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-south-dakota-amendment-h-establish-top-2-primary-elections.html
 
-**Florida Amendment 2 Election Results: Right to Fish and Hunt**\
-`Get live results and maps from the 2024 Florida general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-2-right-to-fish-and-hunt.html
+**Oregon Attorney General Election Results**\
+`Get live results and maps from the 2024 Oregon general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-oregon-attorney-general.html
 
-**Florida Amendment 3 Election Results: Legalize Marijuana**\
-`Get live results and maps from the 2024 Florida general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-3-legalize-marijuana.html
+**Missouri Amendment 2 Election Results: Legalize Sports Betting**\
+`Get live results and maps from the 2024 Missouri general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-missouri-amendment-2-legalize-sports-betting.html
 
-**Florida Amendment 1 Election Results: Require Partisan School Board Elections**\
-`Get live results and maps from the 2024 Florida general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-1-require-partisan-school-board-elections.html
+**Nebraska Initiative 438 Election Results: Establish a Medical Cannabis Commission**\
+`Get live results and maps from the 2024 Nebraska general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-nebraska-initiative-438-establish-a-medical-cannabis-commission.html
 
-**Florida Amendment 5 Election Results: Adjust Property Valuations for Inflation**\
-`Get live results and maps from the 2024 Florida general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-amendment-5-adjust-property-valuations-for-inflation.html
+**Utah Constitutional Amendment C Election Results: Elections of County Sheriffs**\
+`Get live results and maps from the 2024 Utah general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-utah-constitutional-amendment-c-elections-of-county-sheriffs.html
 
-**Delaware At-Large Congressional District Election Results**\
-`Get live results and maps from the 2024 Delaware general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-delaware-us-house-at-large.html
-
-**Connecticut Amendment 1 Election Results: Expand Absentee Voting**\
-`Get live results and maps from the 2024 Connecticut general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-connecticut-amendment-1-expand-absentee-voting.html
-
-**Colorado First Congressional District Election Results**\
-`Get live results and maps from the 2024 Colorado general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-colorado-us-house-1.html
+**Oregon Measure 118 Election Results: Increase Corporate Tax and Issue Rebates to Residents**\
+`Get live results and maps from the 2024 Oregon general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-oregon-measure-118-increase-corporate-tax-and-issue-rebates-to-residents.html
 
