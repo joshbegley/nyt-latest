@@ -1,3 +1,15 @@
+**Fantasy football Week 10 drops: Bid farewell to Travis Etienne Jr., Caleb Williams**\
+`Gary Davenport gives Week 10 drop advice, suggests parting ways with Travis Etienne Jr., Caleb Williams, and others.  `\
+https://nytimes.com/athletic/5900196/2024/11/05/fantasy-football-week-10-drops-etienne-williams/
+
+**Politics, Power and Campus Culture**\
+`Readers discuss university governance and identity politics. Also: An election absence from school; feeling “despairalyzed”; a Marathon memory; a wedding dress.`\
+https://nytimes.com/2024/11/05/opinion/politics-power-campus-culture.html
+
+**For Biden Officials, Lebanon May Be a Problem Too Big to Solve**\
+`Despite hopes that political shifts in Beirut could bring lasting peace to the Israel-Lebanon border, the United States may have to settle for a quicker fix.`\
+https://nytimes.com/2024/11/05/us/politics/biden-lebanon-israel-iran.html
+
 **Anthony Davis' foot injury adds to Lakers problems in loss at Detroit**\
 `The Lakers have lost three of their past four games after a 3-0 start and now could be without the league's leading scorer.`\
 https://nytimes.com/athletic/5899313/2024/11/05/anthony-davis-injury-lakers-pistons/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5900351/2024/11/05/nfl-trade-deadline-primer-teams-
 **Almost 2 weeks in, Jazz finally earn a win. Keyonte George had 'had enough'**\
 `George tied a career-high in scoring on the road to help lift the Jazz to their first win of the season.`\
 https://nytimes.com/athletic/5899715/2024/11/05/keyonte-george-utah-jazz-first-nba-win/
-
-**Bucks 'upbeat' despite losing streak hitting six games: 'We will make the playoffs'**\
-`At 1-6, the Bucks are in a huge hole. "It's just a matter of putting it together and we got a lot of games to do it," Damian Lillard said.`\
-https://nytimes.com/athletic/5899446/2024/11/05/bucks-cavaliers-losing-streak-damian-lillard/
-
-**Bengals trade for Bears RB Khalil Herbert**\
-`Herbert wasn’t going to be re-signed — the Bears are set with D’Andre Swift and Roschon Johnson.`\
-https://nytimes.com/athletic/5900203/2024/11/05/khalil-herbert-bengals-bears-trade/
-
-**Amick: What's really behind all these Joel Embiid headlines**\
-`Embiid's availability has long been an issue for the franchise, though there's hope he could return as soon as Wednesday.`\
-https://nytimes.com/athletic/5899676/2024/11/05/joel-embiid-sixers-injury-locker-room-nba/
 

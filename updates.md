@@ -1,3 +1,15 @@
+**Fantasy football Week 10 drops: Bid farewell to Travis Etienne Jr., Caleb Williams**\
+`Gary Davenport gives Week 10 drop advice, suggests parting ways with Travis Etienne Jr., Caleb Williams, and others.  `\
+https://nytimes.com/athletic/5900196/2024/11/05/fantasy-football-week-10-drops-etienne-williams/
+
+**Politics, Power and Campus Culture**\
+`Readers discuss university governance and identity politics. Also: An election absence from school; feeling “despairalyzed”; a Marathon memory; a wedding dress.`\
+https://nytimes.com/2024/11/05/opinion/politics-power-campus-culture.html
+
+**For Biden Officials, Lebanon May Be a Problem Too Big to Solve**\
+`Despite hopes that political shifts in Beirut could bring lasting peace to the Israel-Lebanon border, the United States may have to settle for a quicker fix.`\
+https://nytimes.com/2024/11/05/us/politics/biden-lebanon-israel-iran.html
+
 **Anthony Davis' foot injury adds to Lakers problems in loss at Detroit**\
 `The Lakers have lost three of their past four games after a 3-0 start and now could be without the league's leading scorer.`\
 https://nytimes.com/athletic/5899313/2024/11/05/anthony-davis-injury-lakers-pistons/
