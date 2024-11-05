@@ -1,3 +1,7 @@
+**Anthony Davis' foot injury adds to Lakers problems in loss at Detroit**\
+`The Lakers have lost three of their past four games after a 3-0 start and now could be without the league's leading scorer.`\
+https://nytimes.com/athletic/5899313/2024/11/05/anthony-davis-injury-lakers-pistons/
+
 **How Lina Khan Became an Election Hot Topic**\
 `The Federal Trade Commission chair drew increasing political vitriol as the presidential vote neared. Her political future hangs in the balance.`\
 https://nytimes.com/2024/11/05/technology/election-2024-ftc-lina-khan.html
