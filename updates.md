@@ -1,3 +1,7 @@
+**Heat Today: Erik Spoelstra explains Miami's second-half woes after collapse vs. Kings**\
+`Miami has looked like a different team after halftime this season. "We're gonna have to figure it out."`\
+https://nytimes.com/athletic/5899045/2024/11/05/miami-heat-erik-spoelstra-sacramento-kings-vote-election-day/
+
 **Business leaders are debating when to speak up about the vote.**\
 `Many executives have been reluctant to make any statement about the election, saying that even talking about the peaceful transition of power is political.`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/business-leaders-election

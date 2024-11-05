@@ -1,3 +1,7 @@
+**Heat Today: Erik Spoelstra explains Miami's second-half woes after collapse vs. Kings**\
+`Miami has looked like a different team after halftime this season. "We're gonna have to figure it out."`\
+https://nytimes.com/athletic/5899045/2024/11/05/miami-heat-erik-spoelstra-sacramento-kings-vote-election-day/
+
 **Business leaders are debating when to speak up about the vote.**\
 `Many executives have been reluctant to make any statement about the election, saying that even talking about the peaceful transition of power is political.`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/business-leaders-election
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899718/2024/11/05/celtics-jayson-tatum-derrick-whi
 **Israeli Raids in West Bank Kill 4, Palestinians Say**\
 `The raids suggested that the Israeli military was continuing to target armed fighters in the occupied territory, even as it conducts major operations in Gaza and Lebanon.`\
 https://nytimes.com/2024/11/05/world/middleeast/israel-west-bank-raid.html
-
-**NFL Week 9 best and worst coaching decisions: Cardinals OC Drew Petzing outwits Bears**\
-`Also, the Eagles and Seahawks have been scrutinized for aggressive decisions Sunday. Were they the right ones?`\
-https://nytimes.com/athletic/5898110/2024/11/05/nfl-week-9-worst-best-coaching-decisions-nguyen/
 
