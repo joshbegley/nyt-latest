@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: Mbeumo links, playing Guimaraes and Tonali together and irreplaceable Isak**\
+`Chris Waugh answers your Newcastle questions - from links to Brentford's star man to Eddie Howe's team channelling their 2022-23 displays`\
+https://nytimes.com/athletic/5897178/2024/11/05/newcastle-united-transfers-mbeumo-isak-gordon-tonali/
+
 **Why Liverpool fell for Alonso, the 'spray gun' who became an adopted Scouser**\
 `The Spaniard took Liverpool to his heart and is still revered - despite ruling himself out of the race to succeed Jurgen Klopp`\
 https://nytimes.com/athletic/5882579/2024/11/05/liverpool-xabi-alonso-love/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/briefing/american-election-israel-documents.html
 **Tiny Homes Face the Ax in Hong Kong, Leaving Many Families Worried**\
 `The government says the city’s smallest apartments need more regulation. For some of Hong Kong’s poorest, that could mean higher rents or even eviction.`\
 https://nytimes.com/2024/11/05/world/asia/hong-kong-subdivided-housing.html
-
-**Whether Trump or Harris, Pessimism Reigns in Russia Over U.S. Election Winner**\
-`Russian officials feel disrespected by the Democrats and betrayed by Donald J. Trump, who lavished praise on President Vladimir V. Putin but made decisions the Kremlin saw as benefiting Ukraine.`\
-https://nytimes.com/2024/11/05/world/europe/russia-us-election-winner-pessimism.html
 
