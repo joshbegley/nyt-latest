@@ -1,3 +1,11 @@
+**China Confronts Europe Over Climate-Based Trade Restrictions**\
+`Days ahead of the U.N.’s global negotiations on climate change, China and other developing countries said trade restrictions should be part of the talks.`\
+https://nytimes.com/2024/11/05/climate/china-europe-cop29-trade-restrictions.html
+
+**Auston Matthews day to day with upper-body injury**\
+`Matthews will miss Tuesday’s game against the Bruins with an undisclosed injury that Craig Berube said had been lingering "a little bit."`\
+https://nytimes.com/athletic/5900752/2024/11/05/auston-matthews-injury-maple-leafs-bruins/
+
 **Raiders hiring former head coach Norv Turner as offensive consultant**\
 `Turner was head coach of the then Oakland Raiders from 2004-05, but was fired after posting just a 9-23 record.`\
 https://nytimes.com/athletic/5900703/2024/11/05/raiders-norv-turner-offensive-consultant/

@@ -1,3 +1,11 @@
+**China Confronts Europe Over Climate-Based Trade Restrictions**\
+`Days ahead of the U.N.’s global negotiations on climate change, China and other developing countries said trade restrictions should be part of the talks.`\
+https://nytimes.com/2024/11/05/climate/china-europe-cop29-trade-restrictions.html
+
+**Auston Matthews day to day with upper-body injury**\
+`Matthews will miss Tuesday’s game against the Bruins with an undisclosed injury that Craig Berube said had been lingering "a little bit."`\
+https://nytimes.com/athletic/5900752/2024/11/05/auston-matthews-injury-maple-leafs-bruins/
+
 **Raiders hiring former head coach Norv Turner as offensive consultant**\
 `Turner was head coach of the then Oakland Raiders from 2004-05, but was fired after posting just a 9-23 record.`\
 https://nytimes.com/athletic/5900703/2024/11/05/raiders-norv-turner-offensive-consultant/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/world/europe/uk-mpox.html
 **Penn State police investigating Jason Kelce phone-smashing incident**\
 `Kelce addressed the altercation on ESPN's broadcast of "Monday Night Countdown," saying he was "not proud" of the interaction.`\
 https://nytimes.com/athletic/5900653/2024/11/05/jason-kelce-phone-incident-investigation/
-
-**World No. 1 Nelly Korda named LPGA’s Player of the Year**\
-`Two American golfers earned the honor in back-to-back years for the first time since 1993 and 1994.`\
-https://nytimes.com/athletic/5900576/2024/11/05/nelly-korda-lpga-poy-2024/
-
-**Here are the governor’s races to watch.**\
-`Election Day includes 11 governor’s races. Eight have no incumbent candidate.`\
-https://nytimes.com/2024/11/05/us/politics/governor-election-races-watch.html
 
