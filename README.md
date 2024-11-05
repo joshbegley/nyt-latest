@@ -1,3 +1,7 @@
+**Cody Bellinger opting in gives Cubs 'clarity' as they head into critical offseason**\
+`Jed Hoyer said Bellinger's decision was good news: "Now we know what our roster looks like and we can go about building the team."`\
+https://nytimes.com/athletic/5899412/2024/11/04/cubs-cody-bellinger-option/
+
 **Speck in the Sea**\
 `Evan Kalish displays his raw talent.`\
 https://nytimes.com/2024/11/04/crosswords/daily-puzzle-2024-11-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/trump-ballot-fraud-lancaster-county.html
 **The Shady Gimmick Behind Elon Musk’s Million-Dollar Game**\
 `No, those “winners” weren’t random.`\
 https://nytimes.com/live/2024/10/30/opinion/thepoint/the-shady-gimmick-behind-elon-musks-million-dollar-game
-
-**Army Veteran Is Convicted of Assaulting Police Officer at Capitol Riot**\
-`Brian Glenn Bingham, of New Jersey, hit an officer in the face as the police tried to clear rioters from the building on Jan. 6, 2021, a jury found.`\
-https://nytimes.com/2024/11/04/nyregion/brian-glenn-bingham-jan-6-capitol-riot.html
 
