@@ -1,3 +1,7 @@
+**Penn State police investigating Jason Kelce phone-smashing incident**\
+`Kelce addressed the altercation on ESPN's broadcast of "Monday Night Countdown," saying he was "not proud" of the interaction.`\
+https://nytimes.com/athletic/5900653/2024/11/05/jason-kelce-phone-incident-investigation/
+
 **NFL trade grades: Breaking down biggest moves at the deadline**\
 `We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
 https://nytimes.com/athletic/5893004/2024/11/05/nfl-trade-grades-deadline-2024/

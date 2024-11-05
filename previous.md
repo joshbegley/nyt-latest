@@ -1,3 +1,7 @@
+**Penn State police investigating Jason Kelce phone-smashing incident**\
+`Kelce addressed the altercation on ESPN's broadcast of "Monday Night Countdown," saying he was "not proud" of the interaction.`\
+https://nytimes.com/athletic/5900653/2024/11/05/jason-kelce-phone-incident-investigation/
+
 **NFL trade grades: Breaking down biggest moves at the deadline**\
 `We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
 https://nytimes.com/athletic/5893004/2024/11/05/nfl-trade-grades-deadline-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5900432/2024/11/05/f1-mailbag-brazil-gp-lando-norri
 **The Bounce: Are the 8-0 Cavaliers the best in the East?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5900145/2024/11/05/donovan-mitchell-cleveland-cavaliers-caitlin-clark-iowa-nba-wnba-the-bounce/
-
-**More Than 80 Million Americans Cast Early Ballots**\
-`Despite sporadic mishaps, the early voting season went relatively smoothly, both in person and by mail.`\
-https://nytimes.com/2024/11/05/us/politics/80-million-early-votes.html
 
