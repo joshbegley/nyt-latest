@@ -1,3 +1,7 @@
+**Market share report: Jets lean into their strengths, Rico Dowdle is no laughing matter and more**\
+`In his Week 9 market share breakdown, Michael Salfino says Rico Dowdle still isn't getting the respect he deserves as a zeroRB standout.`\
+https://nytimes.com/athletic/5901510/2024/11/05/market-share-fantasy-football-week-9-dowdle-davante-garrett-wilson/
+
 **Los Angeles Faces a ‘Particularly Dangerous Situation’ for Wildfire Weather**\
 `Forecasters in California are using some of their strongest language to warn that windy conditions may help fires spread this week.`\
 https://nytimes.com/2024/11/05/weather/los-angeles-santa-ana-winds-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-
 **What Elon Musk Told His 203 Million X Followers on Election Day**\
 `The world’s richest man continued stumping for former President Donald J. Trump and pushing conspiracy theories about voting fraud.`\
 https://nytimes.com/2024/11/05/us/politics/elon-musk-trump-x-election-day.html
-
-**An Idaho Health Department Is Barred from Offering Covid Shots**\
-`Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations.`\
-https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html
 
