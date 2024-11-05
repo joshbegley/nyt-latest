@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/11/05/opinion/thepoint/gallant-fired-israel-netany
 `The incident occurred in the 76ers' locker room after a Saturday loss.`\
 https://nytimes.com/athletic/5898404/2024/11/05/joel-embiid-suspension-sixers-columnist-shove/
 
-**In Dearborn, distrust over Israeli-Arab conflicts channels some votes to Trump, and some to Jill Stein.**\
+**In a majority Arab American suburb, distrust over the Mideast conflict frays Democratic support.**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/in-dearborn-distrust-over-israeli-arab-conflicts-channels-some-votes-to-trump-and-some-to-jill-stein
 
