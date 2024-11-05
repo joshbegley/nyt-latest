@@ -1,3 +1,11 @@
+**NASCAR penalizes three teams for manipulating finish at Martinsville**\
+`The drivers themselves were not suspended, but each will lose their crew chief, spotter and a team executive for the season finale.`\
+https://nytimes.com/athletic/5901653/2024/11/05/nascar-disciplines-cup-series-teams-influencing-finish-martinsville/
+
+**Voters Wait in Line for Hours to Cast Ballot in Pennsylvania**\
+`Young people stood in line at a polling site near Lehigh University in Bethlehem, Pa., for several hours on Tuesday.`\
+https://nytimes.com/video/admin/100000009809340/05vid-electionday-PAline-92584.html
+
 **You May Not Be Able to Outrun a Vampire Bat**\
 `Scientists put the bloodsucking mammals on a treadmill to understand how they get the energy to chase down their next meal.`\
 https://nytimes.com/2024/11/05/science/vampire-bats-running-treadmills.html
