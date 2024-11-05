@@ -1,3 +1,11 @@
+**What do the College Football Playoff rankings mean for Alabama's season?**\
+`What does Alabama's spot in the first College Football Playoff rankings mean for the rest of the season?`\
+https://nytimes.com/athletic/5901210/2024/11/05/college-football-playoff-rankings-alabama-crimson-tide/
+
+**Champions League Briefing: Does this make Amorim the new Fergie? Why did Vinicius stand still?**\
+`As the two favourites to win the Champions League were both comprehensively beaten, we analyse the key talking points from Tuesday's action`\
+https://nytimes.com/athletic/5901203/2024/11/05/amorim-sporting-man-united-city-champions-league/
+
 **NASCAR penalizes three teams for manipulating finish at Martinsville**\
 `The drivers themselves were not suspended, but each will lose their crew chief, spotter and a team executive for the season finale.`\
 https://nytimes.com/athletic/5901653/2024/11/05/nascar-disciplines-cup-series-teams-influencing-finish-martinsville/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/world/europe/north-korea-russia-ukraine-kursk.htm
 **Shohei Ohtani undergoes shoulder surgery for torn labrum, expected to be ready for spring**\
 `“He was playing with one arm in the postseason,” manager Dave Roberts said.`\
 https://nytimes.com/athletic/5901721/2024/11/05/shohei-ohtani-left-shoulder-surgery-labrum/
-
-**Why Are Our Elections Always Nail-Biters?**\
-`By Ross Douthat and Ezra Klein`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-our-elections-are-always-nail-biters
-
-**A 6-Hour Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
-`The lines to cast a ballot at the Banana Factory, an art center in Bethlehem, Pa., stretched for blocks, voters said.`\
-https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
 
