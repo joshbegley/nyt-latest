@@ -1,3 +1,15 @@
+**The Parties Are Shifting, but Elections Are Still Insanely Close**\
+`By Ross Douthat and Ezra Klein`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/the-parties-are-shifting-but-elections-are-still-insanely-close
+
+**California Might Have to Wait Weeks for House Battleground Results**\
+`Some battleground contests may not be called for weeks because of the state’s voter-friendly laws and reliance on mail-in ballots.`\
+https://nytimes.com/2024/11/05/us/politics/california-election-vote-count.html
+
+**North Korea Enters Ukraine Fight for First Time, Officials Say**\
+`Western and Ukrainian officials have called the appearance of North Korean forces on the battlefield a major escalation.`\
+https://nytimes.com/2024/11/05/world/europe/north-korea-russia-ukraine-kursk.html
+
 **Why Are Our Elections Always Nail-Biters?**\
 `By Ross Douthat and Ezra Klein`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-our-elections-are-always-nail-biters
