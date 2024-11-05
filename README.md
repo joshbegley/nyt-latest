@@ -1,3 +1,11 @@
+**Hwang, Son and the growing racism faced by East and South East Asians in football**\
+`Incidents of racism directed at East and South East Asian players have been on the rise`\
+https://nytimes.com/athletic/5897719/2024/11/05/hwang-son-east-southeast-asian-football-racism/
+
+**Vance Mocks Harris as ‘Trash’ in One of His Final Rallies**\
+`Speaking on the campaign trail in Atlanta, Mr. Vance told supporters that “in our movement, we love every citizen of this country.” Seconds later, he called Vice President Kamala Harris “trash.”`\
+https://nytimes.com/2024/11/05/us/politics/vance-harris-trash-trump.html
+
 **Steph Curry returns, takes cautious approach in Warriors' win over Wizards**\
 `Curry was on a strict 24-minute restriction in his first game in more than a week.`\
 https://nytimes.com/athletic/5899201/2024/11/05/steph-curry-returns-warriors-win-wizards/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5880409/2024/11/05/real-madrid-ac-milan-champions-l
 **Footballers, modelling and the power of expression**\
 `Football and fashion have long been intertwined. In 2024, players modelling can be one of the strongest forms of off-the-pitch expression `\
 https://nytimes.com/athletic/5885027/2024/11/05/footballers-modelling-fashion-brands-rice-kounde/
-
-**'Rockets from Russia to Poltava, 30 seconds' - life as a female footballer in Ukraine**\
-`Matches are interrupted by sirens warning of attacks but a reduced league continues to function in Ukraine, against the odds`\
-https://nytimes.com/athletic/5879583/2024/11/05/ukraine-women-vorskla-poltava-war/
-
-**Conrad Harder: The prolific Sporting Lisbon teenager aiming to emulate Haaland**\
-`The Sporting striker is fresh from a breakthrough year in Denmark and the parallels with the Manchester City star are inescapable`\
-https://nytimes.com/athletic/5676798/2024/11/05/conrad-harder-sporting-lisbon-haaland/
 
