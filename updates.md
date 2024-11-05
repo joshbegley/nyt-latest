@@ -1,3 +1,7 @@
+**Sabalenka secures year-end world No. 1 for the first time**\
+`Iga Swiatek's defeat to Coco Gauff in Riyadh confirms Sabalenka's place at the summit.`\
+https://nytimes.com/athletic/5899798/2024/11/05/sabalenka-wta-rankings-world-number-one-year-end/
+
 **Where Can You Register to Vote on Election Day?**\
 `Vote.gov provides state-specific instructions on how and where to register and what kind of identification is needed.`\
 https://nytimes.com/2024/11/05/us/politics/same-day-voter-registration.html
