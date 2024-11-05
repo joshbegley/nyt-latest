@@ -23,7 +23,7 @@ https://nytimes.com/live/2024/11/05/us/trump-harris-election/tv-networks-electio
 https://nytimes.com/2024/11/05/nyregion/dolphin-remains-new-jersey-beach.html
 
 **The Briefing: Sporting Lisbon 4 Manchester City 1 - Gyokeres upstages Haaland in Ruben Amorim's farewell home game**\
-`Analysis of a difficult Champions League night for Manchester City `\
+`Analysis of a difficult Champions League night for Manchester City in Portugal`\
 https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-result-analysis/
 
 **What Elon Musk Told His 203 Million X Followers on Election Day**\

@@ -1,3 +1,19 @@
+**The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Milan stun Ancelotti's side at Bernabeu**\
+`Madrid find themselves in an unfamiliar position after another defeat — this time to an inspired Milan side`\
+https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
+
+**The Briefing: Sporting Lisbon 4 Manchester City 1 - Gyokeres upstages Haaland in Ruben Amorim's farewell home game**\
+`Analysis of a difficult Champions League night for Manchester City `\
+https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-result-analysis/
+
+**What Elon Musk Told His 203 Million X Followers on Election Day**\
+`The world’s richest man continued stumping for former President Donald J. Trump and pushing conspiracy theories about voting fraud.`\
+https://nytimes.com/2024/11/05/us/politics/elon-musk-trump-x-election-day.html
+
+**An Idaho Health Department Is Barred from Offering Covid Shots**\
+`Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations.`\
+https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html
+
 **The Briefing: Liverpool 4 Leverkusen 0 - Slot outshines Alonso as Diaz lights up Anfield**\
 `The major talking points dissected from tonight's Champions League tie at Anfield`\
 https://nytimes.com/athletic/5897531/2024/11/05/liverpool-bayer-leverkusen-slot-alonso-analysis/
