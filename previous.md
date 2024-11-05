@@ -1,40 +1,40 @@
-**These places have democracy watchdogs bracing for potential election discord.**\
-`By Neil Vigdor`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/these-places-have-democracy-watchdogs-bracing-for-potential-election-discord
+**Twins face tough offseason decisions but say it's 'business as usual' despite sale of team**\
+`Falvey said the Pohlads' intention to sell the team doesn’t impact how he’ll handle roster construction. But lots of tough decisions await.`\
+https://nytimes.com/athletic/5899385/2024/11/05/twins-offseason-decisions-team-sale/
 
-**After rough weekend, Blue Jackets confront structure and work ethic issues**\
-`The Blue Jackets gave up 13 goals in their last two games, but the coach and players are adamant they know where they went wrong.`\
-https://nytimes.com/athletic/5899235/2024/11/05/blue-jackets-structure-work-ethic/
+**College Football Playoff rankings and superconferences: Will committee be swayed by Big Ten, SEC?**\
+`Some administrators are concerned the Big Ten and SEC have raised pressure on the committee by suggesting they should be viewed differently.`\
+https://nytimes.com/athletic/5899014/2024/11/05/college-football-playoff-rankings-confernece-commissioners-big-ten-sec/
 
-**College Football Playoff rankings predictions: What will the committee do with Notre Dame?**\
-`Here's what to expect from the College Football Playoff selection committee's first Top 25 rankings on Tuesday night.`\
-https://nytimes.com/athletic/5898530/2024/11/05/college-football-playoff-first-rankings-predictions/
+**Rickard Rakell, fearful of his own decline, found himself and his game**\
+`Rakell was afraid of getting old last season, but a summer in Stockholm changed everything for the veteran forward. `\
+https://nytimes.com/athletic/5898600/2024/11/05/penguins-rickard-rakell/
 
-**‘The Curious Case of Benjamin Button’ Gets a Folk-Musical Makeover**\
-`The decade-spanning story of a man aging in reverse comes to the West End, transformed into a thoughtful fable opening on the English coast.`\
-https://nytimes.com/2024/11/05/theater/benjamin-button-musical-west-end.html
+**How does Fraser Minten fit into the Maple Leafs' plans at centre?**\
+`The Leafs lack of centre depth has been exposed in an up-and-down start to the season. Could the solution come internally?`\
+https://nytimes.com/athletic/5898124/2024/11/05/maple-leafs-fraser-minten-2/
 
-**The case for — and against — each of the Classic Baseball Era Hall of Fame candidates**\
-`Eight names were revealed this week, and their Hall of Fame candidacies will be voted on in December. What are the pros and cons for each? `\
-https://nytimes.com/athletic/5899195/2024/11/05/mlb-hall-of-fame-classic-baseball-era-candidates/
+**What Nico Hoerner’s uncertain timeline means for prospect Matt Shaw, Cubs’ offseason plans**\
+`Chicago has the resources to make a blockbuster deal. But the Hoerner situation shows that the Cubs are building usable major-league depth.`\
+https://nytimes.com/athletic/5899464/2024/11/05/cubs-nico-hoerner-injury-matt-shaw/
 
-**‘High Risk, High Return’? How Kemi Badenoch Came to Lead Britain’s Conservatives**\
-`Ms. Badenoch’s ascent is partly the result of a deliberate diversifying of the party under David Cameron in the 2000s. In her politics, she exemplifies its more recent rightward turn.`\
-https://nytimes.com/2024/11/05/world/europe/britain-kemi-badenoch-conservative-party.html
+**Should Packers change their strategy of receiving kickoffs after winning the toss?**\
+`The Packers have chosen to receive after winning the toss nine times in the last two seasons and only opened with touchdowns twice.`\
+https://nytimes.com/athletic/5898940/2024/11/05/packers-receiving-kickoffs-first/
 
-**Five Bengals midseason predictions: Joe Burrow will battle Lamar Jackson for MVP**\
-`Among other predictions: The defense will see a big climb in the rankings and a trade will address a new pressing need.`\
-https://nytimes.com/athletic/5899056/2024/11/05/bengals-predictions-nfl-midseason-burrow/
+**NFL QB stock report, Week 10: Jared Goff surges into MVP conversation leading red-hot Lions**\
+`How much of what's gone wrong in Dallas can be blamed on Dak Prescott? `\
+https://nytimes.com/athletic/5898469/2024/11/05/nfl-qb-stock-report-rankings-jared-goff-lions-mvp/
 
-**‘I Will Be Thrilled to Be Wrong’: Four Columnists Brace for Election Night**\
-`Who will win the presidency, House and Senate? What is the election about? And what happens next for America?`\
-https://nytimes.com/2024/11/05/opinion/kamala-harris-donald-trump-election.html
+**A Guide to Election Night 2024**\
+`It’s Election Day. Here’s how to understand the results.`\
+https://nytimes.com/2024/11/05/podcasts/the-daily/election-2024.html
 
-**Two NFL head coaches have already been fired this season. Who else might be on the hot seat?**\
-`Dennis Allen and Robert Saleh have both already been let go, and at least six more head coaches have shaky job security.`\
-https://nytimes.com/athletic/5898365/2024/11/05/nfl-head-coaches-fired-hot-seat-daboll-mccarthy/
+**Mets free-agent outlook: Should they bring back Jesse Winker or J.D. Martinez?**\
+`Winker and Martinez offer options as veteran designated hitters, but positional flexibility will be a factor as the Mets look toward 2025.`\
+https://nytimes.com/athletic/5886899/2024/11/05/mets-free-agent-jesse-winker-jd-martinez/
 
-**How to Follow The Times’s Election Results and Coverage**\
-`We will have live coverage and analysis from journalists on the ground in about 20 states, along with all of the results.`\
-https://nytimes.com/2024/11/05/us/politics/nyt-election-coverage.html
+**Millions Head to the Polls After Trump and Harris Make Their Final Pitches**\
+`Plus, how astronauts vote from space.`\
+https://nytimes.com/2024/11/05/podcasts/election-day.html
 
