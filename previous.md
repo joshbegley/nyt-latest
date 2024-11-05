@@ -1,3 +1,11 @@
+**Shohei Ohtani undergoes shoulder surgery for torn labrum, expected to be ready for spring**\
+`“He was playing with one arm in the postseason,” manager Dave Roberts said.`\
+https://nytimes.com/athletic/5901721/2024/11/05/shohei-ohtani-left-shoulder-surgery-labrum/
+
+**Why Are Our Elections Are Always Nail-Biters?**\
+`By Ross Douthat and Ezra Klein`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-our-elections-are-always-nail-biters
+
 **A 6-Hour Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
 `The lines to cast a ballot at the Banana Factory, an art center in Bethlehem, Pa., stretched for blocks, voters said.`\
 https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5901411/2024/11/05/nfl-trade-deadline-2024-winners-
 **Ezra Klein and Ross Douthat on the Night’s Big Questions**\
 ``\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election
-
-**Our Columnists and Writers on What to Expect and the Early Election Results**\
-`Opinion journalists are in Pennsylvania, Michigan, Georgia, North Carolina and New York analyzing the presidential race and key Senate and House contests.`\
-https://nytimes.com/live/2024/11/05/opinion/columnists-election-analysis
-
-**The Election Eve Library Party With Spike Lee and Martha Stewart**\
-`The New York Public Library’s annual benefit was a who’s who of literary stars and creative luminaries.`\
-https://nytimes.com/2024/11/05/style/election-party-spike-lee-martha-stewart.html
 

@@ -1,3 +1,11 @@
+**Shohei Ohtani undergoes shoulder surgery for torn labrum, expected to be ready for spring**\
+`“He was playing with one arm in the postseason,” manager Dave Roberts said.`\
+https://nytimes.com/athletic/5901721/2024/11/05/shohei-ohtani-left-shoulder-surgery-labrum/
+
+**Why Are Our Elections Are Always Nail-Biters?**\
+`By Ross Douthat and Ezra Klein`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-our-elections-are-always-nail-biters
+
 **A 6-Hour Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
 `The lines to cast a ballot at the Banana Factory, an art center in Bethlehem, Pa., stretched for blocks, voters said.`\
 https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
