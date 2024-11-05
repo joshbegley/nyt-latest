@@ -1,3 +1,7 @@
+**Cooper Flagg flashes in highly-hyped Duke debut with highlight dunks**\
+`Flagg finished with 18 points, seven rebounds and five assists on 6-of-15 shooting in Duke's 96-62 win over Maine.`\
+https://nytimes.com/athletic/5899231/2024/11/04/cooper-flagg-debut-duke-maine/
+
 **Corrections: Nov. 5, 2024**\
 `Corrections that appeared in print on Tuesday, Nov. 5, 2024.`\
 https://nytimes.com/2024/11/04/pageoneplus/corrections-nov-5-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899253/2024/11/04/mlb-gm-meetings-willy-adames-bla
 **The Science That Makes Baseball Mud ‘Magical’**\
 `Scientists dug up the real dirt on the substance applied to all the baseballs used in the major leagues.`\
 https://nytimes.com/2024/11/04/science/baseball-mud-mlb.html
-
-**Braves' bullpen takes hit with Joe Jiménez sidelined up to 12 months**\
-`Jiménez's situation helps explain why the Braves were suddenly so determined to gain payroll flexibility`\
-https://nytimes.com/athletic/5899261/2024/11/04/braves-joe-jimenez-left-knee-surgery-update/
 
