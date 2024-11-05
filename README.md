@@ -22,8 +22,8 @@ https://nytimes.com/2024/11/05/us/politics/ballot-measures-abortion-marijuana.ht
 `English non-League side Harborough Town have announced the signing of former Tottenham Hotspur and Queens Park Rangers midfielder Sandro.`\
 https://nytimes.com/athletic/5901189/2024/11/05/sandro-harborough-town-tottenham/
 
-**Steelers acquire Preston Smith from Packers: Source**\
-`Pittsburgh adds defensive depth with trade for veteran pass rusher.`\
+**Steelers acquire DL Preston Smith from Packers**\
+`Pittsburgh adds defensive depth with the trade for the veteran pass rusher.`\
 https://nytimes.com/athletic/5901134/2024/11/05/preston-smith-trade-packers-steelers-nfl/
 
 **Live Q&A: Week 10 fantasy football post-trade deadline chat with Jay Felicio, Tuesday 11/5 at 5 p.m. ET**\
