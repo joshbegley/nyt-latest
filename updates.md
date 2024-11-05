@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Travis Hunter, Cam Ward co-favorites in a tight race**\
+`Cam Ward and Travis Hunter are the current co-favorites in a tight race for the Heisman Trophy.`\
+https://nytimes.com/athletic/5900731/2024/11/05/heisman-trophy-odds-travis-hunter-cam-ward/
+
 **Cash ruled out of Villa's Champions League trip to Club Bruges**\
 `Matty Cash will miss Aston Villa’s Champions League trip to Belgian side Club Bruges on Wednesday.`\
 https://nytimes.com/athletic/5900757/2024/11/05/matty-cash-aston-villa-injury/
