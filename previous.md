@@ -1,3 +1,7 @@
+**Activists File ‘Bad-Faith’ Ballot Challenges, Pennsylvania Officials Say**\
+`Right-wing activists and G.O.P. state lawmakers have questioned the eligibility of some 4,000 people who requested ballots.`\
+https://nytimes.com/2024/11/04/us/politics/pennsylvania-ballot-challenges.html
+
 **​Despite Trump’s Claim, No Ballots Have Been Found Fraudulent in Lancaster County**\
 `The county and three others are investigating voter registration forms, not ballots, that were flagged as suspicious. Some were delivered to election offices by an Arizona-based company.`\
 https://nytimes.com/2024/11/04/us/trump-ballot-fraud-lancaster-county.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899226/2024/11/04/cowboys-reality-dak-prescott-coo
 **The Candidates Keep Talking About Electric Cars in Michigan. Here’s Why.**\
 `Electric vehicles are a top-tier issue in Michigan, where both candidates have framed a vote for their opponent as a threat to the state’s auto industry.`\
 https://nytimes.com/2024/11/04/us/michigan-electric-vehicles-trump-harris.html
-
-**In Montana, Republican Tim Sheehy tries to outrun Jon Tester, and scrutiny.**\
-`By Carl Hulse`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/in-montana-republican-tim-sheehy-tries-to-outrun-jon-tester-and-scrutiny
 
