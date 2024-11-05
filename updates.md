@@ -1,3 +1,7 @@
+**These places have democracy watchdogs bracing for potential election discord.**\
+`By Neil Vigdor`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/these-places-have-democracy-watchdogs-bracing-for-potential-election-discord
+
 **After rough weekend, Blue Jackets confront structure and work ethic issues**\
 `The Blue Jackets gave up 13 goals in their last two games, but the coach and players are adamant they know where they went wrong.`\
 https://nytimes.com/athletic/5899235/2024/11/05/blue-jackets-structure-work-ethic/
