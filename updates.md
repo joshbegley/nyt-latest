@@ -1,3 +1,15 @@
+**In Dearborn, distrust over Israeli-Arab conflicts channels some votes to Trump, and some to Jill Stein.**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/in-dearborn-distrust-over-israeli-arab-conflicts-channels-some-votes-to-trump-and-some-to-jill-stein
+
+**The contest for the House majority is one of the tightest yet.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/the-contest-for-the-house-majority-is-one-of-the-tightest-yet
+
+**Despite Rampant Anxiety, Voting Begins Relatively Smoothly**\
+`Early reports of problems at the polls on Tuesday were sparse and represented a mix of routine glitches and newer-style, foreign disinformation.`\
+https://nytimes.com/2024/11/05/us/politics/election-voter-fraud.html
+
 **When Quincy Jones Met Michael Jackson, ‘We Had No Limitations’**\
 `Their work on “Off the Wall,” “Thriller,” and “Bad” set records for commercial success and defined the sound of the 1980s.`\
 https://nytimes.com/2024/11/05/arts/music/quincy-jones-michael-jackson-thriller-bad.html
