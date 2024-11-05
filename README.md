@@ -1,3 +1,7 @@
+**When Quincy Jones Met Michael Jackson, ‘We Had No Limitations’**\
+`Their work on “Off the Wall,” “Thriller,” and “Bad” set records for commercial success and defined the sound of the 1980s.`\
+https://nytimes.com/2024/11/05/arts/music/quincy-jones-michael-jackson-thriller-bad.html
+
 **Many Americans Already Voted, but Election Day Turnout Is Critical**\
 `Margins are expected to be slim, and in-person votes could be the key to a victory. Some polling places had long lines, while others moved voters quickly.`\
 https://nytimes.com/2024/11/05/us/politics/voter-turnout-election-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where
 **How Should History Books Remember the 2024 Election?**\
 `Now that the votes are almost in, the Headway Election Challenge asks teenagers for the lessons they are taking away from this election year.`\
 https://nytimes.com/2024/11/05/headway/teen-2024-election-day-history.html
-
-**Charges against South Carolina's Ashlyn Watkins dismissed**\
-`Watkins was arrested on Aug. 31 following an incident in which she allegedly assaulted someone.`\
-https://nytimes.com/athletic/5901193/2024/11/05/charges-against-south-carolinas-ashlyn-watkins-dismissed/
 
