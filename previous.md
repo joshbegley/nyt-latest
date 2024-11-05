@@ -1,3 +1,11 @@
+**How Should History Books Remember the 2024 Election?**\
+`Now that the votes are almost in, the Headway Election Challenge asks teenagers for the lessons they are taking away from this election year.`\
+https://nytimes.com/2024/11/05/headway/teen-2024-election-day-history.html
+
+**Charges against South Carolina's Ashlyn Watkins dismissed**\
+`Watkins was arrested on Aug. 31 following an incident in which she allegedly assaulted someone.`\
+https://nytimes.com/athletic/5901193/2024/11/05/charges-against-south-carolinas-ashlyn-watkins-dismissed/
+
 **A Bomb Threat to Deter Black People From Voting**\
 `But there’s no sign that it worked.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/fulton-georgia-bomb-threats
@@ -14,8 +22,8 @@ https://nytimes.com/2024/11/05/us/politics/ballot-measures-abortion-marijuana.ht
 `English non-League side Harborough Town have announced the signing of former Tottenham Hotspur and Queens Park Rangers midfielder Sandro.`\
 https://nytimes.com/athletic/5901189/2024/11/05/sandro-harborough-town-tottenham/
 
-**Steelers acquire Preston Smith from Packers: Source**\
-`Pittsburgh adds defensive depth with trade for veteran pass rusher.`\
+**Steelers acquire DL Preston Smith from Packers**\
+`Pittsburgh adds defensive depth with the trade for the veteran pass rusher.`\
 https://nytimes.com/athletic/5901134/2024/11/05/preston-smith-trade-packers-steelers-nfl/
 
 **Live Q&A: Week 10 fantasy football post-trade deadline chat with Jay Felicio, Tuesday 11/5 at 5 p.m. ET**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/05/us/trump-harris-election/nevadas-secretary-o
 **Boeing’s Strike Is Over. Its Problems Are Not.**\
 `The aerospace manufacturer and its new chief executive face a daunting to-do list, including improving quality and increasing production of its commercial planes.`\
 https://nytimes.com/2024/11/05/business/boeing-planes-production.html
-
-**How to Hand-Wash All Your Clothes**\
-`Even the most delicate fabrics can often be treated at home, rather than dry-cleaned, and it doesn’t have to be a hassle.`\
-https://nytimes.com/article/how-to-hand-wash-clothes.html
-
-**White women could be decisive in the presidential race.**\
-`By Erica L. Green`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/white-women-could-be-decisive-in-the-presidential-race
 

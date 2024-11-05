@@ -1,3 +1,15 @@
+**How Should History Books Remember the 2024 Election?**\
+`Now that the votes are almost in, the Headway Election Challenge asks teenagers for the lessons they are taking away from this election year.`\
+https://nytimes.com/2024/11/05/headway/teen-2024-election-day-history.html
+
+**Charges against South Carolina's Ashlyn Watkins dismissed**\
+`Watkins was arrested on Aug. 31 following an incident in which she allegedly assaulted someone.`\
+https://nytimes.com/athletic/5901193/2024/11/05/charges-against-south-carolinas-ashlyn-watkins-dismissed/
+
+**Steelers acquire DL Preston Smith from Packers**\
+`Pittsburgh adds defensive depth with the trade for the veteran pass rusher.`\
+https://nytimes.com/athletic/5901134/2024/11/05/preston-smith-trade-packers-steelers-nfl/
+
 **A Bomb Threat to Deter Black People From Voting**\
 `But there’s no sign that it worked.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/fulton-georgia-bomb-threats
