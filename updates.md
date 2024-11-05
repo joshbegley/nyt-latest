@@ -1,3 +1,11 @@
+**Bengals trade for Bears RB Khalil Herbert**\
+`Herbert wasn’t going to be re-signed — the Bears are set with D’Andre Swift and Roschon Johnson.`\
+https://nytimes.com/athletic/5900203/2024/11/05/khalil-herbert-bengals-bears-trade/
+
+**Amick: What's really behind all these Joel Embiid headlines**\
+`Embiid's availability has long been an issue for the franchise, though there's hope he could return as soon as Wednesday.`\
+https://nytimes.com/athletic/5899676/2024/11/05/joel-embiid-sixers-injury-locker-room-nba/
+
 **Cowboys Today: One exec's take on Dak and what are chances Dallas makes deadline deal?**\
 `Does Dak Prescott's injury have an effect on what the Cowboys do — or don't do — at the trade deadline? Plus, more on that failed fake punt.`\
 https://nytimes.com/athletic/5899648/2024/11/05/cowboys-today-dak-prescott-trade-deadline/
