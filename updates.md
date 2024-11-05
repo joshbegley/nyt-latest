@@ -1,3 +1,7 @@
+**Chiefs survive Bucs, Mahomes injury scare in 30-24 OT win: Key takeaways**\
+`Early in the fourth quarter, Mahomes appeared to suffer a frightening non-contact left ankle injury while flicking the game-tying touchdown.`\
+https://nytimes.com/athletic/5899459/2024/11/04/chiefs-buccaneers-takeaways-result/
+
 **Full Time: NWSL playoff bracket highlights**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5899488/2024/11/04/nwsl-playoffs-bracket-schedule-full-time/

@@ -1,3 +1,7 @@
+**Chiefs survive Bucs, Mahomes injury scare in 30-24 OT win: Key takeaways**\
+`Early in the fourth quarter, Mahomes appeared to suffer a frightening non-contact left ankle injury while flicking the game-tying touchdown.`\
+https://nytimes.com/athletic/5899459/2024/11/04/chiefs-buccaneers-takeaways-result/
+
 **Full Time: NWSL playoff bracket highlights**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5899488/2024/11/04/nwsl-playoffs-bracket-schedule-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/crosswords/daily-puzzle-2024-11-05.html
 **The Polls Are Close. The Results Might Not Be.**\
 `We are just a very normal polling error away from either candidate landing a decisive victory on Tuesday.`\
 https://nytimes.com/2024/11/04/us/elections/harris-trump-polls-states.html
-
-**The Stakes of the Election**\
-`The Morning newsletter looked at how Kamala Harris and Donald Trump view some of the biggest issues facing the country.`\
-https://nytimes.com/2024/11/04/briefing/the-morning-stakes-of-the-2024-election.html
 
