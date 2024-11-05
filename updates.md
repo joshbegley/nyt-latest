@@ -1,3 +1,15 @@
+**Jets trade Mike Williams to Steelers for fifth-round pick**\
+`Williams signed with the Jets in the offseason but became expendable after New York dealt for Davante Adams.`\
+https://nytimes.com/athletic/5900947/2024/11/05/mike-williams-trade-jets-steelers-nfl/
+
+**‘Moo Deng? Who Deng?’ Meet Haggis the Baby Pygmy Hippo.**\
+`Edinburgh Zoo playfully started (and then quickly ended) a rivalry with Moo Deng, Thailand’s viral sensation.`\
+https://nytimes.com/2024/11/05/style/haggis-pygmy-hippo-edinburgh-zoo.html
+
+**What Are Your Reactions to the Results of Election 2024?**\
+`As the votes are counted, we invite teenagers to post their reactions and have conversations here. What does this election mean for our nation, and for you?`\
+https://nytimes.com/2024/11/05/learning/what-are-your-reactions-to-the-results-of-election-2024.html
+
 **Commanders acquire CB Marshon Lattimore from Saints**\
 `The Commanders receive Lattimore and a 2025 fifth-round pick in exchange for a 2025 third, 2025 fourth and 2025 sixth.`\
 https://nytimes.com/athletic/5900868/2024/11/05/marshon-lattimore-commanders-saints-trade/
