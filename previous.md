@@ -1,3 +1,7 @@
+**Word of the Day: indolence**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/05/learning/word-of-the-day-indolence.html
+
 **Hwang, Son and the growing racism faced by East and South East Asians in football**\
 `Incidents of racism directed at East and South East Asian players have been on the rise`\
 https://nytimes.com/athletic/5897719/2024/11/05/hwang-son-east-southeast-asian-football-racism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5890461/2024/11/05/ruben-amorim-mourinho-intern-man
 **Real Madrid and AC Milan: The incredible numbers behind two European superpowers**\
 `These two teams have won Europe's elite club competition more than any other clubs (Madrid, 15, and Milan, 7). Here we analyse their records`\
 https://nytimes.com/athletic/5880409/2024/11/05/real-madrid-ac-milan-champions-league-european-cup-record/
-
-**Footballers, modelling and the power of expression**\
-`Football and fashion have long been intertwined. In 2024, players modelling can be one of the strongest forms of off-the-pitch expression `\
-https://nytimes.com/athletic/5885027/2024/11/05/footballers-modelling-fashion-brands-rice-kounde/
 

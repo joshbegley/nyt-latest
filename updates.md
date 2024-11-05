@@ -1,3 +1,7 @@
+**Word of the Day: indolence**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/05/learning/word-of-the-day-indolence.html
+
 **Hwang, Son and the growing racism faced by East and South East Asians in football**\
 `Incidents of racism directed at East and South East Asian players have been on the rise`\
 https://nytimes.com/athletic/5897719/2024/11/05/hwang-son-east-southeast-asian-football-racism/
