@@ -1,3 +1,11 @@
+**The Israeli Defense Minister Is Fired in an ‘Act of Madness’**\
+`Netanyahu may have hoped the United States was too distracted by Election Day to protest.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/gallant-fired-israel-netanyahu
+
+**Joel Embiid suspended 3 games for shoving Philadelphia columnist**\
+`The incident occurred in the 76ers' locker room after a Saturday loss.`\
+https://nytimes.com/athletic/5898404/2024/11/05/joel-embiid-suspension-sixers-columnist-shove/
+
 **In Dearborn, distrust over Israeli-Arab conflicts channels some votes to Trump, and some to Jill Stein.**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/in-dearborn-distrust-over-israeli-arab-conflicts-channels-some-votes-to-trump-and-some-to-jill-stein
@@ -10,7 +18,7 @@ https://nytimes.com/live/2024/11/05/us/trump-harris-election/the-contest-for-the
 `Early reports of problems at the polls on Tuesday were sparse and represented a mix of routine glitches and newer-style, foreign disinformation.`\
 https://nytimes.com/2024/11/05/us/politics/election-voter-fraud.html
 
-**When Quincy Jones Met Michael Jackson, ‘We Had No Limitations’**\
+**When Quincy Jones Worked With Michael Jackson, ‘We Had No Limitations’**\
 `Their work on “Off the Wall,” “Thriller,” and “Bad” set records for commercial success and defined the sound of the 1980s.`\
 https://nytimes.com/2024/11/05/arts/music/quincy-jones-michael-jackson-thriller-bad.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5901309/2024/11/05/khalil-davis-49ers-texans-trade/
 **Panthers keep Bryce Young, add a fourth-rounder: Analyzing Carolina's trade deadline decisions**\
 `The Panthers should feel good about getting a fourth-round pick for Mingo, who had fallen behind rookies Xavier Legette and Jalen Coker.`\
 https://nytimes.com/athletic/5901264/2024/11/05/panthers-trade-deadling-mingo-bryce-young/
-
-**Special Edition: America Votes**\
-`An anxious wait begins.`\
-https://nytimes.com/2024/11/05/briefing/election-day-america-votes.html
-
-**Software issue sets off conspiracy theories in Pennsylvania.**\
-`By Stuart A. Thompson`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/software-issue-sets-off-conspiracy-theories-in-pennsylvania
 
