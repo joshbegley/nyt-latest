@@ -1,3 +1,11 @@
+**Real Madrid hire former futsal coach Serpa to Calafat's scouting staff**\
+`Real Madrid have hired former futsal player and coach Marcelo Serpa Coelho to Juni Calafat&#8217;s scouting staff.`\
+https://nytimes.com/athletic/5899902/2024/11/05/real-madrid-marcelo-serpa-coelho-scout/
+
+**Majority of Man United fans back new stadium over Old Trafford redevelopment, survey finds**\
+`The majority of Manchester United fans are in favour of building a new stadium at Old Trafford, a study conducted by the club has found.`\
+https://nytimes.com/athletic/5899877/2024/11/05/manchester-united-old-trafford-plans-survey-results/
+
 **Once again, Oilers' power play are penalty kill are nothing special**\
 `After a 3-0 loss to the Devils, the Oilers have the NHL's worst penalty kill and the league's 26th-ranked power play.`\
 https://nytimes.com/athletic/5899659/2024/11/05/edmonton-oilers-special-teams-penalty-kill/
