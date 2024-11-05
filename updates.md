@@ -1,3 +1,15 @@
+**2024 NFL trade deadline winners, losers: Chiefs, Lions get richer; why did Giants stay put?**\
+`The Commanders and Steelers also struck impressive deals ahead of Tuesday's buzzer, while both New York teams made puzzling decisions.`\
+https://nytimes.com/athletic/5901411/2024/11/05/nfl-trade-deadline-2024-winners-losers-chiefs-lions-giants/
+
+**Ezra Klein and Ross Douthat on the Night’s Big Questions**\
+``\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election
+
+**Our Columnists and Writers on What to Expect and the Early Election Results**\
+``\
+https://nytimes.com/live/2024/11/05/opinion/columnists-election-analysis
+
 **The Election Eve Library Party With Spike Lee and Martha Stewart**\
 `The New York Public Library’s annual benefit was a who’s who of literary stars and creative luminaries.`\
 https://nytimes.com/2024/11/05/style/election-party-spike-lee-martha-stewart.html
