@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Milan stun Ancelotti's side at Bernabeu**\
+`Madrid find themselves in an unfamiliar position after another defeat — this time to an inspired Milan side`\
+https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
+
 **The Briefing: Liverpool 4 Leverkusen 0 - Slot outshines Alonso as Diaz lights up Anfield**\
 `The major talking points dissected from tonight's Champions League tie at Anfield`\
 https://nytimes.com/athletic/5897531/2024/11/05/liverpool-bayer-leverkusen-slot-alonso-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html
 **A N.Y. State Assembly candidate is taken into police custody at a polling site in Queens.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/assembly-rinaldi-arrest-ny
-
-**The Israeli Defense Minister Is Fired in an ‘Act of Madness’**\
-`Netanyahu may have hoped the United States was too distracted by Election Day to protest.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/gallant-fired-israel-netanyahu
 
