@@ -1,3 +1,7 @@
+**‘The Curious Case of Benjamin Button’ Gets a Folk-Musical Makeover**\
+`The decade-spanning story of a man aging in reverse comes to the West End, transformed into a thoughtful fable opening on the English coast.`\
+https://nytimes.com/2024/11/05/theater/benjamin-button-musical-west-end.html
+
 **‘High Risk, High Return’? How Kemi Badenoch Came to Lead Britain’s Conservatives**\
 `Ms. Badenoch’s ascent is partly the result of a deliberate diversifying of the party under David Cameron in the 2000s. In her politics, she exemplifies its more recent rightward turn.`\
 https://nytimes.com/2024/11/05/world/europe/britain-kemi-badenoch-conservative-party.html
