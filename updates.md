@@ -1,3 +1,11 @@
+**Gonzaga pounds Baylor, and more lessons from college basketball's opening night**\
+`What was supposed to be the marquee game of the first day of the 2024-25 men's college basketball season was a mismatch from the jump.`\
+https://nytimes.com/athletic/5899702/2024/11/05/men-college-basketball-season-opener-gonzaga-baylor/
+
+**These 8 Counties Could Hint at Where the Election Is Headed**\
+`While the nation awaits statewide results after the polls close on Election Day, a number of counties could offer insight into whether different demographic groups are voting for Kamala Harris or Donald J. Trump.`\
+https://nytimes.com/2024/11/05/us/politics/counties-presidential-election-michigan-georgia-pennsylvania.html
+
 **These 8 Counties Could Hint at Where the Election Is Headed**\
 `While the nation awaits statewide results after the polls close on Election Day, a number of counties could offer insight into whether different demographic groups are voting for Kamala Harris or Donald J. Trump.`\
 https://nytimes.com/2024/11/05/us/politics/counties-presidential-election-results.html
