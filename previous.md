@@ -1,3 +1,11 @@
+**Why These 15 Late-Deciding Swing State Voters Give the Edge to Harris**\
+`The group discussed Kamala Harris and Donald Trump on the edge of the 2024 election.`\
+https://nytimes.com/interactive/2024/11/05/opinion/focusgroup-swing-state-voters.html
+
+**Fire Destroys Century-Old Building at Knoxville College**\
+`In-person classes haven’t been held at the historically Black college in Tennessee since 2015. A fire official said that no injuries had been reported in the blaze.`\
+https://nytimes.com/2024/11/05/us/knoxville-college-fire.html
+
 **Inside Newcastle Q&A: Mbeumo links, playing Guimaraes and Tonali together and irreplaceable Isak**\
 `Chris Waugh answers your Newcastle questions - from links to Brentford's star man to Eddie Howe's team channelling their 2022-23 displays`\
 https://nytimes.com/athletic/5897178/2024/11/05/newcastle-united-transfers-mbeumo-isak-gordon-tonali/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5676798/2024/11/05/conrad-harder-sporting-lisbon-ha
 **Champions League projections: Analysing the key fixtures coming up in matchweek four**\
 `We run through this week's juiciest games as the initial stage of the 2024-25 Champions League reaches its midway point`\
 https://nytimes.com/athletic/5874933/2024/11/05/champions-league-projections-preview-matchday-4/
-
-**Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/11/05/briefing/american-election-israel-documents.html
-
-**Tiny Homes Face the Ax in Hong Kong, Leaving Many Families Worried**\
-`The government says the city’s smallest apartments need more regulation. For some of Hong Kong’s poorest, that could mean higher rents or even eviction.`\
-https://nytimes.com/2024/11/05/world/asia/hong-kong-subdivided-housing.html
 

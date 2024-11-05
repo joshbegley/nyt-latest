@@ -1,3 +1,11 @@
+**Why These 15 Late-Deciding Swing State Voters Give the Edge to Harris**\
+`The group discussed Kamala Harris and Donald Trump on the edge of the 2024 election.`\
+https://nytimes.com/interactive/2024/11/05/opinion/focusgroup-swing-state-voters.html
+
+**Fire Destroys Century-Old Building at Knoxville College**\
+`In-person classes haven’t been held at the historically Black college in Tennessee since 2015. A fire official said that no injuries had been reported in the blaze.`\
+https://nytimes.com/2024/11/05/us/knoxville-college-fire.html
+
 **Inside Newcastle Q&A: Mbeumo links, playing Guimaraes and Tonali together and irreplaceable Isak**\
 `Chris Waugh answers your Newcastle questions - from links to Brentford's star man to Eddie Howe's team channelling their 2022-23 displays`\
 https://nytimes.com/athletic/5897178/2024/11/05/newcastle-united-transfers-mbeumo-isak-gordon-tonali/
