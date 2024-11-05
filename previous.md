@@ -1,3 +1,15 @@
+**​Despite Trump’s Claim, No Ballots Have Been Found Fraudulent in Lancaster County**\
+`The county and three others are investigating voter registration forms, not ballots, that were flagged as suspicious. Some were delivered to election offices by an Arizona-based company.`\
+https://nytimes.com/2024/11/04/us/trump-ballot-fraud-lancaster-county.html
+
+**The Shady Gimmick Behind Elon Musk’s Million-Dollar Game**\
+`No, those “winners” weren’t random.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/the-shady-gimmick-behind-elon-musks-million-dollar-game
+
+**Army Veteran Is Convicted of Assaulting Police Officer at Capitol Riot**\
+`Brian Glenn Bingham, of New Jersey, hit an officer in the face as the police tried to clear rioters from the building on Jan. 6, 2021, a jury found.`\
+https://nytimes.com/2024/11/04/nyregion/brian-glenn-bingham-jan-6-capitol-riot.html
+
 **Into the Abyss**\
 `The uncertainty is getting to us.`\
 https://nytimes.com/2024/11/04/us/politics/election-2024-voters.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/04/us/michigan-electric-vehicles-trump-harris.html
 **In Montana, Republican Tim Sheehy tries to outrun Jon Tester, and scrutiny.**\
 `By Carl Hulse`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/in-montana-republican-tim-sheehy-tries-to-outrun-jon-tester-and-scrutiny
-
-**Meta Permits Its A.I. Models to Be Used for U.S. Military Purposes**\
-`The shift in policy, covering government agencies and contractors working on national security, is intended to promote “responsible and ethical” innovations, the company said.`\
-https://nytimes.com/2024/11/04/technology/meta-ai-military.html
-
-**Man Planned to Use Drone With Explosive to Attack Substation, U.S. Says**\
-`The man, Skyler Philippi, 24, of Columbia, Tenn., targeted the energy facility to try to push his white supremacist ideology, according to prosecutors.`\
-https://nytimes.com/2024/11/04/us/columbia-energy-facility-weapon-mass-destruction.html
-
-**Why Connor Hellebuyck is still frustrated with NHL's goaltender interference rules**\
-`Hellebuyck, a longtime member of the NHL's competition committee, was upset with a call in Winnipeg's game on Sunday.`\
-https://nytimes.com/athletic/5898572/2024/11/04/connor-hellebuyck-nhl-goaltender-interference/
 
