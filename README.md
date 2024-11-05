@@ -14,6 +14,10 @@ https://nytimes.com/2024/11/05/opinion/president-elect-harris-trump.html
 `By Ross Douthat and Ezra Klein`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/the-parties-are-shifting-but-elections-are-still-insanely-close
 
+**Voters Wait in Line for Hours to Cast Ballot in Pennsylvania**\
+`Young people stood in line at a polling site near Lehigh University in Bethlehem, Pa., for several hours on Tuesday.`\
+https://nytimes.com/video/admin/100000009809340/05vid-electionday-PAline-92584.html
+
 **California Might Have to Wait Weeks for House Battleground Results**\
 `Some battleground contests may not be called for weeks because of the state’s voter-friendly laws and reliance on mail-in ballots.`\
 https://nytimes.com/2024/11/05/us/politics/california-election-vote-count.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why
 **A 6-Hour Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
 `The lines to cast a ballot at the Banana Factory, an art center in Bethlehem, Pa., stretched for blocks, voters said.`\
 https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
-
-**An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
-`After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
-https://nytimes.com/2024/11/05/business/jansport-memories.html
 
