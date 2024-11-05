@@ -1,3 +1,7 @@
+**Why Connor Hellebuyck is still frustrated with NHL's goaltender interference rules**\
+`Hellebuyck, a longtime member of the NHL's competition committee, was upset with a call in Winnipeg's game on Sunday.`\
+https://nytimes.com/athletic/5898572/2024/11/04/connor-hellebuyck-nhl-goaltender-interference/
+
 **Trump’s closing argument has been filled with lies, distortions and inaccuracies.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/trumps-closing-argument-has-been-filled-with-lies-distortions-and-inaccuracies
