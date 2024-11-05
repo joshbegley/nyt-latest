@@ -1,3 +1,7 @@
+**Colts 'never' considered moving on from Anthony Richardson at NFL trade deadline**\
+`Despite benching Richardson, the Colts insist the young QB remains part of their long-term plans. `\
+https://nytimes.com/athletic/5901296/2024/11/05/nfl-2024-trade-deadline-colts-anthony-richardson/
+
 **Los Angeles Faces a ‘Particularly Dangerous Situation’ for Wildfire Weather**\
 `Forecasters in California are using some of their strongest language to warn that windy conditions may help fires spread this week.`\
 https://nytimes.com/2024/11/05/weather/los-angeles-santa-ana-winds-california.html
