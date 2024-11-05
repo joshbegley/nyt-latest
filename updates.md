@@ -1,3 +1,11 @@
+**NFL MVP odds: Allen, Jackson continue to battle for top spot**\
+`Josh Allen and Lamar Jackson head into Week 10 in a dead lock in MVP odds. Who else could contend for the crown?`\
+https://nytimes.com/athletic/5900549/2024/11/05/nfl-mvp-odds-week-10-josh-allen-lamar-jackson/
+
+**Israel Presses On With Military Operations in Gaza and West Bank**\
+`Israel’s military continued to target armed fighters in the northern part of the West Bank even as it conducts major operations in Gaza and Lebanon.`\
+https://nytimes.com/video/world/middleeast/100000009806026/israel-operations-beit-lahia-gaza-west-bank.html
+
 **China Confronts Europe Over Climate-Based Trade Restrictions**\
 `Days ahead of the U.N.’s global negotiations on climate change, China and other developing countries said trade restrictions should be part of the talks.`\
 https://nytimes.com/2024/11/05/climate/china-europe-cop29-trade-restrictions.html

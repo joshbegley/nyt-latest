@@ -1,3 +1,11 @@
+**NFL MVP odds: Allen, Jackson continue to battle for top spot**\
+`Josh Allen and Lamar Jackson head into Week 10 in a dead lock in MVP odds. Who else could contend for the crown?`\
+https://nytimes.com/athletic/5900549/2024/11/05/nfl-mvp-odds-week-10-josh-allen-lamar-jackson/
+
+**Israel Presses On With Military Operations in Gaza and West Bank**\
+`Israel’s military continued to target armed fighters in the northern part of the West Bank even as it conducts major operations in Gaza and Lebanon.`\
+https://nytimes.com/video/world/middleeast/100000009806026/israel-operations-beit-lahia-gaza-west-bank.html
+
 **China Confronts Europe Over Climate-Based Trade Restrictions**\
 `Days ahead of the U.N.’s global negotiations on climate change, China and other developing countries said trade restrictions should be part of the talks.`\
 https://nytimes.com/2024/11/05/climate/china-europe-cop29-trade-restrictions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/same-day-voter-registration.html
 **Kulenovic's Bosnia call-up shows Marsch and Canada must act fast to increase talent pool**\
 `A generation of players moved abroad when younger to progress - how many Marsch can recruit is big question ahead of the World Cup.`\
 https://nytimes.com/athletic/5900347/2024/11/05/luka-kulenovic-canada-bosnia/
-
-**Britain Confirms Two Cases of Newer Type of Mpox**\
-`The authorities said the risk of a rapid spread remained low because the new cases had had household contact with the first infected person.`\
-https://nytimes.com/2024/11/05/world/europe/uk-mpox.html
-
-**Penn State police investigating Jason Kelce phone-smashing incident**\
-`Kelce addressed the altercation on ESPN's broadcast of "Monday Night Countdown," saying he was "not proud" of the interaction.`\
-https://nytimes.com/athletic/5900653/2024/11/05/jason-kelce-phone-incident-investigation/
 
