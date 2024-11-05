@@ -1,3 +1,7 @@
+**Paul George's debut brings some much needed hope to the Sixers, even as they lose again**\
+`"He takes a lot of the pressure off all of us," Tyrese Maxey said of George's first game in a Sixers uniform.`\
+https://nytimes.com/athletic/5899641/2024/11/05/paul-george-sixers-debut/
+
 **Real Madrid hire former futsal coach Serpa to Calafat's scouting staff**\
 `Real Madrid have hired former futsal player and coach Marcelo Serpa Coelho to Juni Calafat&#8217;s scouting staff.`\
 https://nytimes.com/athletic/5899902/2024/11/05/real-madrid-marcelo-serpa-coelho-scout/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/05/us/trump-harris-election/trump-is-courting-a
 **It’s Election Day**\
 `Today is likely to change the trajectory of the United States.`\
 https://nytimes.com/2024/11/05/briefing/election-day-2024-harris-trump.html
-
-**Trump Media’s Stock Is Set for Even Wilder Ride After the Election**\
-`No stock is more directly linked to the outcome than Trump Media & Technology Group, the parent company of Truth Social.`\
-https://nytimes.com/2024/11/05/business/trump-media-stock-election.html
 
