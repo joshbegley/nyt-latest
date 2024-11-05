@@ -1,3 +1,7 @@
+**Bucks 'upbeat' despite losing streak hitting six games: 'We will make the playoffs'**\
+`At 1-6, the Bucks are in a huge hole. "It's just a matter of putting it together and we got a lot of games to do it," Damian Lillard said.`\
+https://nytimes.com/athletic/5899446/2024/11/05/bucks-cavaliers-losing-streak-damian-lillard/
+
 **Bengals trade for Bears RB Khalil Herbert**\
 `Herbert wasn’t going to be re-signed — the Bears are set with D’Andre Swift and Roschon Johnson.`\
 https://nytimes.com/athletic/5900203/2024/11/05/khalil-herbert-bengals-bears-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5888290/2024/11/05/mikel-arteta-edu-arsenal-power/
 **Jump in WNBA card prices alienates collectors, creates barrier for newcomers**\
 `Long-time collectors and curious new fans are getting priced out of new WNBA trading card releases`\
 https://nytimes.com/athletic/5900052/2024/11/05/wnba-cards-panini-caitlin-clark/
-
-**Gazans Fear Neither Candidate in U.S. Election Will Help Them**\
-`American politics have not been topmost in the minds of Gazans. “We only need one thing: for this war to come to an end,” one man said.`\
-https://nytimes.com/2024/11/05/world/middleeast/gaza-us-election-harris-trump.html
 
