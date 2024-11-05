@@ -1,3 +1,7 @@
+**Trump’s closing argument has been filled with lies, distortions and inaccuracies.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/trumps-closing-argument-has-been-filled-with-lies-distortions-and-inaccuracies
+
 **Michael Jordan's 23XI, NASCAR have first preliminary hearing**\
 `23XI had its first in-person courtroom showdown with NASCAR during a Monday hearing over a preliminary injunction request.`\
 https://nytimes.com/athletic/5899041/2024/11/04/nascar-23xi-michael-jordan-antitrust-lawsuit/
