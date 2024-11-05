@@ -1,3 +1,7 @@
+**In Montana, Republican Tim Sheehy tries to outrun Jon Tester, and scrutiny.**\
+`By Carl Hulse`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/in-montana-republican-tim-sheehy-tries-to-outrun-jon-tester-and-scrutiny
+
 **Meta Permits Its A.I. Models to Be Used for U.S. Military Purposes**\
 `The shift in policy, covering government agencies and contractors working on national security, is intended to promote “responsible and ethical” innovations, the company said.`\
 https://nytimes.com/2024/11/04/technology/meta-ai-military.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899135/2024/11/04/mets-luis-severino-qualifying-of
 **Juan Soto and Corbin Burnes among 13 free agents given qualifying offers**\
 `Only 13 of the 131 players ever to receive a qualifying offer have accepted it. The 2024 qualifying offer is set at $21.05 million.`\
 https://nytimes.com/athletic/5899013/2024/11/04/mlb-qualifying-offers-explained-free-agency/
-
-**How the Death of a Celebrity Squirrel Became a Republican Rallying Cry**\
-`After P’Nut and a raccoon named Fred were taken by wildlife agents and euthanized, Donald Trump and local candidates accused New York Democrats of “state overreach.”`\
-https://nytimes.com/2024/11/04/nyregion/peanut-the-squirrel-euthanized-trump.html
 
