@@ -1,3 +1,7 @@
+**First U.S. Election Result Is In, and It’s a Trump-Harris Tie**\
+`It took just 12 minutes to tally the six votes in Dixville Notch, New Hampshire. ‘I didn’t see that coming,’ one resident said of the split result.`\
+https://nytimes.com/2024/11/05/us/politics/dixville-notch-election-vote-results.html
+
 **Who Says You Can’t Live Off the Grid in Manhattan?**\
 `It takes dedication, solar panels and lots of vegetables. And it probably means putting dating on hold.`\
 https://nytimes.com/2024/11/05/nyregion/joshua-spodek-eco-influencer.html
