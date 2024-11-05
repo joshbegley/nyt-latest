@@ -1,3 +1,7 @@
+**These 8 Counties Could Hint at Where the Election Is Headed**\
+`While the nation awaits statewide results after the polls close on Election Day, a number of counties could offer insight into whether different demographic groups are voting for Kamala Harris or Donald J. Trump.`\
+https://nytimes.com/2024/11/05/us/politics/counties-presidential-election-results.html
+
 **Weekly Student News Quiz: Election Day, World Series, Floods**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/11/05/learning/05StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898550/2024/11/05/raiders-luke-getsy-fired-what-we
 **College Football Playoff stock watch: Is Ohio State a lock? How much is SMU rising?**\
 `Ohio State and SMU are rising in the College Football Playoff race, while Texas A&M and Kansas State are in trouble.`\
 https://nytimes.com/athletic/5898409/2024/11/05/college-football-playoff-odds-smu-osu/
-
-**Bo Nix's playmaking ability makes him 'a really dangerous' QB — but it has limits**\
-`Nix left the pocket to make the biggest play of the game Sunday, but it also got him in trouble during two failed red zone drives.`\
-https://nytimes.com/athletic/5897554/2024/11/05/bo-nix-broncos-playmaking-ability/
 

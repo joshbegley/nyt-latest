@@ -1,3 +1,7 @@
+**These 8 Counties Could Hint at Where the Election Is Headed**\
+`While the nation awaits statewide results after the polls close on Election Day, a number of counties could offer insight into whether different demographic groups are voting for Kamala Harris or Donald J. Trump.`\
+https://nytimes.com/2024/11/05/us/politics/counties-presidential-election-results.html
+
 **Weekly Student News Quiz: Election Day, World Series, Floods**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/11/05/learning/05StudentNewsQuiz.html
