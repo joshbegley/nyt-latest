@@ -2,6 +2,10 @@
 `Turner was head coach of the then Oakland Raiders from 2004-05, but was fired after posting just a 9-23 record.`\
 https://nytimes.com/athletic/5900703/2024/11/05/raiders-norv-turner-offensive-consultant/
 
+**NFL trade grades: Breaking down biggest moves at the deadline**\
+`We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
+https://nytimes.com/athletic/5893004/2024/11/05/nfl-trade-grades-deadline-2024/
+
 **Flo Wants to Reinvent the Girl Group for a New Generation**\
 `On the British R&B trio’s awaited debut album, “Access All Areas,” nostalgia meets ambition.`\
 https://nytimes.com/2024/11/05/arts/music/flo-girl-group-access-all-areas.html
@@ -25,10 +29,6 @@ https://nytimes.com/2024/11/05/world/europe/uk-mpox.html
 **Penn State police investigating Jason Kelce phone-smashing incident**\
 `Kelce addressed the altercation on ESPN's broadcast of "Monday Night Countdown," saying he was "not proud" of the interaction.`\
 https://nytimes.com/athletic/5900653/2024/11/05/jason-kelce-phone-incident-investigation/
-
-**NFL trade grades: Breaking down biggest moves at the deadline**\
-`We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
-https://nytimes.com/athletic/5893004/2024/11/05/nfl-trade-grades-deadline-2024/
 
 **World No. 1 Nelly Korda named LPGA’s Player of the Year**\
 `Two American golfers earned the honor in back-to-back years for the first time since 1993 and 1994.`\
