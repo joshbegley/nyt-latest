@@ -1,3 +1,7 @@
+**Man Planned to Use Drone With Explosive to Attack Substation, U.S. Says**\
+`The man, Skyler Philippi, 24, of Columbia, Tenn., targeted the energy facility to try to push his white supremacist ideology, according to prosecutors.`\
+https://nytimes.com/2024/11/04/us/columbia-energy-facility-weapon-mass-destruction.html
+
 **Why Connor Hellebuyck is still frustrated with NHL's goaltender interference rules**\
 `Hellebuyck, a longtime member of the NHL's competition committee, was upset with a call in Winnipeg's game on Sunday.`\
 https://nytimes.com/athletic/5898572/2024/11/04/connor-hellebuyck-nhl-goaltender-interference/
@@ -37,8 +41,4 @@ https://nytimes.com/2024/11/04/nyregion/peanut-the-squirrel-euthanized-trump.htm
 <p>&nbsp;</p>
 `\
 https://nytimes.com/athletic/5899147/2024/11/04/submit-a-question-for-stewart-mandels-college-football-mailbag-280/
-
-**Jason Kelce addresses altercation with fan who insulted Travis about dating Taylor Swift**\
-`The ESPN analyst and former Eagles center commented on the incident at the start of "Monday Night Countdown."`\
-https://nytimes.com/athletic/5898997/2024/11/04/jason-kelce-taylor-swift-fan-altercation-comments-espn/
 

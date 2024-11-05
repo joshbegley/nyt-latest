@@ -1,3 +1,7 @@
+**Man Planned to Use Drone With Explosive to Attack Substation, U.S. Says**\
+`The man, Skyler Philippi, 24, of Columbia, Tenn., targeted the energy facility to try to push his white supremacist ideology, according to prosecutors.`\
+https://nytimes.com/2024/11/04/us/columbia-energy-facility-weapon-mass-destruction.html
+
 **Why Connor Hellebuyck is still frustrated with NHL's goaltender interference rules**\
 `Hellebuyck, a longtime member of the NHL's competition committee, was upset with a call in Winnipeg's game on Sunday.`\
 https://nytimes.com/athletic/5898572/2024/11/04/connor-hellebuyck-nhl-goaltender-interference/
