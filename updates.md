@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Election Day, World Series, Floods**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/11/05/learning/05StudentNewsQuiz.html
+
 **Wheeler’s mailbag: Submit your 2025 NHL Draft and prospect questions**\
 `Have questions about the 2025 NHL Draft class, a prospect, or scouting in general? Submit them here.`\
 https://nytimes.com/athletic/5899977/2024/11/05/nhl-draft-2025-prospects-ranking-mailbag/

@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Election Day, World Series, Floods**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/11/05/learning/05StudentNewsQuiz.html
+
 **Wheeler’s mailbag: Submit your 2025 NHL Draft and prospect questions**\
 `Have questions about the 2025 NHL Draft class, a prospect, or scouting in general? Submit them here.`\
 https://nytimes.com/athletic/5899977/2024/11/05/nhl-draft-2025-prospects-ranking-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5898409/2024/11/05/college-football-playoff-odds-sm
 **Bo Nix's playmaking ability makes him 'a really dangerous' QB — but it has limits**\
 `Nix left the pocket to make the biggest play of the game Sunday, but it also got him in trouble during two failed red zone drives.`\
 https://nytimes.com/athletic/5897554/2024/11/05/bo-nix-broncos-playmaking-ability/
-
-**Odegaard returns to Arsenal training but left out of Norway squad**\
-`Arsenal captain Martin Odegaard has returned to training for the first time since sustaining an ankle injury in September.`\
-https://nytimes.com/athletic/5836413/2024/11/05/arsenal-odegaard-injury-return-update/
 
