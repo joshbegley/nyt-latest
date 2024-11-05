@@ -1,3 +1,7 @@
+**Nevada’s secretary of state is worried about the state’s high level of rejected ballots.**\
+`By Danny Hakim`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/nevadas-secretary-of-state-is-worried-about-the-states-high-level-of-rejected-ballots
+
 **Boeing’s Strike Is Over. Its Problems Are Not.**\
 `The aerospace manufacturer and its new chief executive face a daunting to-do list, including improving quality and increasing production of its commercial planes.`\
 https://nytimes.com/2024/11/05/business/boeing-planes-production.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/05/us/elections/results-marijuana.html
 **Abortion on the Ballot**\
 `See results for ballot measures on abortion in the 2024 general election`\
 https://nytimes.com/interactive/2024/11/05/us/elections/results-abortion.html
-
-**Missouri Amendment 3 Election Results: Right to Abortion**\
-`Get live results and maps from the 2024 Missouri general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-missouri-amendment-3-right-to-abortion.html
 
