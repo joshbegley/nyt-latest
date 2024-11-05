@@ -1,3 +1,15 @@
+**Bernie Marcus, Co-Founder of Home Depot, Is Dead at 95**\
+`In 1978 he came up with the idea of a warehouselike store that would appeal to the do-it-yourself homeowner. The chain became the world’s largest home-improvement retailer.`\
+https://nytimes.com/2024/11/05/business/bernie-marcus-dead.html
+
+**The Predictable Hypocrisy of Megyn Kelly**\
+`She smooched a man who continues to denigrate women in public statements.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/megyn-kelly-trump-rally
+
+**F1 mailbag: Lando Norris what-ifs and Max Verstappen versus the British press**\
+`Plus: What do we make of Liam Lawson's performance so far? tAnd we try to unpack the FIA's decisions around the race. `\
+https://nytimes.com/athletic/5900432/2024/11/05/f1-mailbag-brazil-gp-lando-norris-max-verstappen/
+
 **The Bounce: Are the 8-0 Cavaliers the best in the East?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5900145/2024/11/05/donovan-mitchell-cleveland-cavaliers-caitlin-clark-iowa-nba-wnba-the-bounce/
