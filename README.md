@@ -1,3 +1,11 @@
+**Wheeler’s mailbag: Submit your 2025 NHL Draft and prospect questions**\
+`Have questions about the 2025 NHL Draft class, a prospect, or scouting in general? Submit them here.`\
+https://nytimes.com/athletic/5899977/2024/11/05/nhl-draft-2025-prospects-ranking-mailbag/
+
+**What to Expect on Election Day**\
+`A guide to what could happen, the stakes for companies and the economy, and how business leaders are preparing for the result — including potential unrest.`\
+https://nytimes.com/2024/11/05/business/dealbook/election-day-guide.html
+
 **Paul George's debut brings some much needed hope to the Sixers, even as they lose again**\
 `"He takes a lot of the pressure off all of us," Tyrese Maxey said of George's first game in a Sixers uniform.`\
 https://nytimes.com/athletic/5899641/2024/11/05/paul-george-sixers-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5897554/2024/11/05/bo-nix-broncos-playmaking-abilit
 **Odegaard returns to Arsenal training but left out of Norway squad**\
 `Arsenal captain Martin Odegaard has returned to training for the first time since sustaining an ankle injury in September.`\
 https://nytimes.com/athletic/5836413/2024/11/05/arsenal-odegaard-injury-return-update/
-
-**Trump is courting apolitical young men. Will it pay off?**\
-`By Kellen Browning, Benjamin Oreskes and Eduardo Medina`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/trump-is-courting-apolitical-young-men-will-it-pay-off
-
-**It’s Election Day**\
-`Today is likely to change the trajectory of the United States.`\
-https://nytimes.com/2024/11/05/briefing/election-day-2024-harris-trump.html
 
