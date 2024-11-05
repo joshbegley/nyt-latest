@@ -1,3 +1,11 @@
+**Hourslong Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
+`Voters said the wait to cast a ballot stretched to more than six hours at the Banana Factory, an art center in Bethlehem, Pa.`\
+https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
+
+**An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
+`After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
+https://nytimes.com/2024/11/05/obituaries/readers-share-their-jansport-memories.html
+
 **Braves' Ronald Acuña Jr., Spencer Strider won't be ready for 2025 season opener**\
 `Acuña is recovering from left knee surgery and Strider is recovering from internal-brace elbow surgery.`\
 https://nytimes.com/athletic/5901680/2024/11/05/braves-ronald-acuna-jr-spencer-strider-injury-update-return/
