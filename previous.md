@@ -1,3 +1,7 @@
+**Where Can You Register to Vote on Election Day?**\
+`Vote.gov provides state-specific instructions on how and where to register and what kind of identification is needed.`\
+https://nytimes.com/2024/11/05/us/politics/same-day-voter-registration.html
+
 **Kulenovic's Bosnia call-up shows Marsch and Canada must act fast to increase talent pool**\
 `A generation of players moved abroad when younger to progress - how many Marsch can recruit is big question ahead of the World Cup.`\
 https://nytimes.com/athletic/5900347/2024/11/05/luka-kulenovic-canada-bosnia/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/election-threats-russia.html
 **Bernie Marcus, Co-Founder of Home Depot, Is Dead at 95**\
 `In 1978 he came up with the idea of a warehouselike store that would appeal to the do-it-yourself homeowner. The chain became the world’s largest home-improvement retailer.`\
 https://nytimes.com/2024/11/05/business/bernie-marcus-dead.html
-
-**The Predictable Hypocrisy of Megyn Kelly**\
-`She smooched a man who continues to denigrate women in public statements.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/megyn-kelly-trump-rally
 
