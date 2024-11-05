@@ -1,11 +1,3 @@
-**State Ballot Measures to Watch: Abortion, Elections, Minimum Wage**\
-`Voters in 41 states are considering ballot measures that also include legalizing marijuana and public funding for private schools.`\
-https://nytimes.com/2024/11/05/us/politics/ballot-measures-abortion-marijuana.html
-
-**Ex-Tottenham midfielder Sandro signs for seventh-tier Harborough Town**\
-`English non-League side Harborough Town have announced the signing of former Tottenham Hotspur and Queens Park Rangers midfielder Sandro.`\
-https://nytimes.com/athletic/5901189/2024/11/05/sandro-harborough-town-tottenham/
-
 **Steelers acquire Preston Smith from Packers: Source**\
 `Pittsburgh adds defensive depth with trade for veteran pass rusher.`\
 https://nytimes.com/athletic/5901134/2024/11/05/preston-smith-trade-packers-steelers-nfl/
@@ -37,4 +29,12 @@ https://nytimes.com/interactive/2024/11/05/us/elections/results-alaska.html
 **Arkansas Election Results**\
 `Get live results and maps from the 2024 Arkansas elections.`\
 https://nytimes.com/interactive/2024/11/05/us/elections/results-arkansas.html
+
+**Alabama Election Results**\
+`Get live results and maps from the 2024 Alabama elections.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-alabama.html
+
+**Arizona Election Results**\
+`Get live results and maps from the 2024 Arizona elections.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-arizona.html
 
