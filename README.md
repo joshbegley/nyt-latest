@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5897531/2024/11/05/liverpool-bayer-leverkusen-slot-
 `The former president cast his ballot in Florida, and said that if he loses the election and it’s a fair election, he’d “be the first one to acknowledge it.”`\
 https://nytimes.com/video/us/elections/100000009808888/trump-votes-florida-election-day.html
 
-**Colts 'never' considered moving on from QB Anthony Richardson at NFL trade deadline**\
+**Colts 'never' considered moving on from Anthony Richardson at NFL trade deadline**\
 `Despite benching Richardson, the Colts insist the young QB remains part of their long-term plans. `\
 https://nytimes.com/athletic/5901296/2024/11/05/nfl-2024-trade-deadline-colts-anthony-richardson/
 
