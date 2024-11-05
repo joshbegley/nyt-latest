@@ -26,7 +26,7 @@ https://nytimes.com/2024/11/05/arts/music/quincy-jones-michael-jackson-thriller-
 `Margins are expected to be slim, and in-person votes could be the key to a victory. Some polling places had long lines, while others moved voters quickly.`\
 https://nytimes.com/2024/11/05/us/politics/voter-turnout-election-day.html
 
-**Ravens address secondary concerns with move for Rams CB White**\
+**Aiming to address secondary concerns, Ravens trade for Rams CB White**\
 `Baltimore hopes to improve its secondary after allowing the most passing yards per game in the NFL.`\
 https://nytimes.com/athletic/5901216/2024/11/05/tredavious-white-ravens-rams-trade-nfl/
 
