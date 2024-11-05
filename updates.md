@@ -1,3 +1,11 @@
+**Kulenovic's Bosnia call-up shows Marsch and Canada must act fast to increase talent pool**\
+`A generation of players moved abroad when younger to progress - how many Marsch can recruit is big question ahead of the World Cup.`\
+https://nytimes.com/athletic/5900347/2024/11/05/luka-kulenovic-canada-bosnia/
+
+**Britain Confirms Two Cases of Newer Type of Mpox**\
+`The authorities said the risk of a rapid spread remained low because the new cases had had household contact with the first infected person.`\
+https://nytimes.com/2024/11/05/world/europe/uk-mpox.html
+
 **Penn State police investigating Jason Kelce phone-smashing incident**\
 `Kelce addressed the altercation on ESPN's broadcast of "Monday Night Countdown," saying he was "not proud" of the interaction.`\
 https://nytimes.com/athletic/5900653/2024/11/05/jason-kelce-phone-incident-investigation/
