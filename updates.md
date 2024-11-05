@@ -1,3 +1,7 @@
+**Why Are Our Elections Always Nail-Biters?**\
+`By Ross Douthat and Ezra Klein`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-our-elections-are-always-nail-biters
+
 **Shohei Ohtani undergoes shoulder surgery for torn labrum, expected to be ready for spring**\
 `“He was playing with one arm in the postseason,” manager Dave Roberts said.`\
 https://nytimes.com/athletic/5901721/2024/11/05/shohei-ohtani-left-shoulder-surgery-labrum/
