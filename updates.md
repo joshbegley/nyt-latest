@@ -1,3 +1,7 @@
+**Fulham 2 Brentford 1: A tale of 43 crosses, two late goals and one very dramatic comeback**\
+`Fulham produced 43 crosses against Brentford - and their refusal to change tack resulted in one of the most dramatic wins of the season`\
+https://nytimes.com/athletic/5898948/2024/11/05/fulham-brentford-crosses-harry-wilson/
+
 **Late Night Addresses Your Election Eve Anxiety**\
 `“It feels like the whole country is waiting to get the results of a biopsy,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/11/05/arts/television/late-night-election-eve.html
