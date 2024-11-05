@@ -1,3 +1,7 @@
+**The Election Eve Library Party With Spike Lee and Martha Stewart**\
+`The New York Public Library’s annual benefit was a who’s who of literary stars and creative luminaries.`\
+https://nytimes.com/2024/11/05/style/election-party-spike-lee-martha-stewart.html
+
 **What Kind of World Are We Living In?**\
 `By Ross Douthat and Ezra Klein`\
 https://nytimes.com/2024/11/05/opinion/election-trump-harris-results-live-chat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champio
 **The Briefing: Liverpool 4 Leverkusen 0 - Slot outshines Alonso as Diaz lights up Anfield**\
 `The major talking points dissected from tonight's Champions League tie at Anfield`\
 https://nytimes.com/athletic/5897531/2024/11/05/liverpool-bayer-leverkusen-slot-alonso-analysis/
-
-**Trump Says This Will Be His Last Campaign**\
-`The former president cast his ballot in Florida, and said that if he loses the election and it’s a fair election, he’d “be the first one to acknowledge it.”`\
-https://nytimes.com/video/us/elections/100000009808888/trump-votes-florida-election-day.html
 
