@@ -1,3 +1,7 @@
+**Late Night Addresses Your Election Eve Anxiety**\
+`“It feels like the whole country is waiting to get the results of a biopsy,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/11/05/arts/television/late-night-election-eve.html
+
 **Word of the Day: indolence**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/05/learning/word-of-the-day-indolence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882579/2024/11/05/liverpool-xabi-alonso-love/
 **Amorim's internship with Mourinho at Manchester United - by those who were involved**\
 `Those who studied with United's new coach explain his skills - and how a week in England six years ago influenced him`\
 https://nytimes.com/athletic/5890461/2024/11/05/ruben-amorim-mourinho-intern-manchester-united/
-
-**Real Madrid and AC Milan: The incredible numbers behind two European superpowers**\
-`These two teams have won Europe's elite club competition more than any other clubs (Madrid, 15, and Milan, 7). Here we analyse their records`\
-https://nytimes.com/athletic/5880409/2024/11/05/real-madrid-ac-milan-champions-league-european-cup-record/
 
