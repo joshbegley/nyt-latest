@@ -1,3 +1,7 @@
+**It’s Election Day**\
+`Today is likely to change the trajectory of the United States.`\
+https://nytimes.com/2024/11/05/briefing/election-day-2024-harris-trump.html
+
 **Trump Media’s Stock Is Set for Even Wilder Ride After the Election**\
 `No stock is more directly linked to the outcome than Trump Media & Technology Group, the parent company of Truth Social.`\
 https://nytimes.com/2024/11/05/business/trump-media-stock-election.html
