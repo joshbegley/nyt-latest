@@ -1,40 +1,40 @@
-**Election Day has arrived. Here’s the latest.**\
-`By Adam Nagourney`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/election-day-has-arrived-heres-the-latest
+**The Uncertainty Is the Hardest Part**\
+`The unknown is the most difficult thing for the brain to navigate.`\
+https://nytimes.com/2024/11/05/opinion/uncertainty.html
 
-**Election Live Updates: A Caustic and Turbulent Race Is in Voters’ Hands**\
-`Election Day is here. Will voters make Vice President Kamala Harris the first woman to lead the United States, or return former President Donald J. Trump to power? Polls are opening on the East Coast.`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election
+**The Musician Building the Great Native American Songbook**\
+`Tim Long, a pianist, conductor and teacher, conceived his project to fill a cultural need: “There is no repertoire like this in existence.”`\
+https://nytimes.com/2024/11/05/arts/music/tim-long-indigenous-songbook.html
 
-**First U.S. Election Result Is In, and It’s a Trump-Harris Tie**\
-`It took just 12 minutes to tally the six votes in Dixville Notch, New Hampshire. ‘I didn’t see that coming,’ one resident said of the split result.`\
-https://nytimes.com/2024/11/05/us/politics/dixville-notch-election-vote-results.html
+**Could This Presidential Election Be Decided By the Supreme Court?**\
+`It is unlikely that the court ends up playing a major role in the outcome, according to elections experts, but it is possible. Here’s why.`\
+https://nytimes.com/2024/11/05/us/politics/election-supreme-court.html
 
-**Who Says You Can’t Live Off the Grid in Manhattan?**\
-`It takes dedication, solar panels and lots of vegetables. And it probably means putting dating on hold.`\
-https://nytimes.com/2024/11/05/nyregion/joshua-spodek-eco-influencer.html
+**Contraband Whiskey and a Secret Royal Dinner: Wall Street Goes to Riyadh**\
+`Are you an international business titan on the hunt for billions of dollars of Saudi oil cash? Prepare for “a mind game.”`\
+https://nytimes.com/2024/11/05/business/wall-street-saudi-arabia-oil-money.html
 
-**Standard Time Begins**\
-`Sunday marked the end of Daylight Saving Time — and of 6 p.m. sunsets. How does this time of year make you feel?`\
-https://nytimes.com/2024/11/05/learning/standard-time-begins.html
+**I’m a Presidential Historian. This Is My Biggest Regret About Trump.**\
+`I used to think of Trump as a dangerous but recognizable demagogue. Now I see him as a genuine aberration in our history — and a unique threat to the nation.`\
+https://nytimes.com/2024/11/05/opinion/donald-trump-regret.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/05/crosswords/spelling-bee-forum.html
+**It’s Election Day. Here’s What to Know.**\
+`If you’re voting today, expect long lines. Don’t forget to turn over your ballot to see the questions on the back.`\
+https://nytimes.com/2024/11/05/nyregion/election-day-what-to-know.html
 
-**Late Night Addresses Your Election Eve Anxiety**\
-`“It feels like the whole country is waiting to get the results of a biopsy,” Jimmy Kimmel said.`\
-https://nytimes.com/2024/11/05/arts/television/late-night-election-eve.html
+**Pants That Show You’re in the Know**\
+`Wearing these pants, to some fashion enthusiasts, is akin to carrying “it” bags.`\
+https://nytimes.com/2024/11/05/style/high-sport-pleats-please-pants.html
 
-**Word of the Day: indolence**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/05/learning/word-of-the-day-indolence.html
+**Should Single-Use Vapes Be Banned Everywhere?**\
+`In an effort to protect young people’s health, England plans to ban disposable vapes next year. Do you think this measure will curb vaping among teens?`\
+https://nytimes.com/2024/11/05/learning/should-single-use-vapes-be-banned-everywhere.html
 
-**Hwang, Son and the growing racism faced by East and South East Asians in football**\
-`Incidents of racism directed at East and South East Asian players have been on the rise`\
-https://nytimes.com/athletic/5897719/2024/11/05/hwang-son-east-southeast-asian-football-racism/
+**Fifth Avenue: The ‘Street of Dreams’ for Over a Century**\
+`The reputation of the iconic New York City thoroughfare began with a competition to build lavish mansions that came crashing down with the advent of luxury apartment buildings.`\
+https://nytimes.com/2024/11/05/realestate/millionaires-mile-fifth-avenue-gilded-age.html
 
-**Vance Mocks Harris as ‘Trash’ in One of His Final Rallies**\
-`Speaking on the campaign trail in Atlanta, Mr. Vance told supporters that “in our movement, we love every citizen of this country.” Seconds later, he called Vice President Kamala Harris “trash.”`\
-https://nytimes.com/2024/11/05/us/politics/vance-harris-trash-trump.html
+**From California to the Caribbean: 5 Sunny New Getaways**\
+`Sea, desert, gardens and sun: If you’re looking to escape chilly weather, we have some suggestions.`\
+https://nytimes.com/2024/11/05/travel/caribbean-california-desert-new-resorts.html
 
