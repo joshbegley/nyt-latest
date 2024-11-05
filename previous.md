@@ -1,3 +1,15 @@
+**Michael Jordan's 23XI, NASCAR have first preliminary hearing**\
+`23XI had its first in-person courtroom showdown with NASCAR during a Monday hearing over a preliminary injunction request.`\
+https://nytimes.com/athletic/5899041/2024/11/04/nascar-23xi-michael-jordan-antitrust-lawsuit/
+
+**Latest Rallying Cry From Trump’s Allies: ‘Men Must Vote!’**\
+`The plea, delivered by figures including Elon Musk, reflects a growing concern from Donald J. Trump’s team that heavy turnout among women could spell trouble on Election Day.`\
+https://nytimes.com/2024/11/04/us/politics/trump-men-must-vote.html
+
+**Tucker Carlson Says Abortions Cause Hurricanes in Election Eve Broadcast**\
+`In a podcast appearance, Tucker Carlson dismissed scientific research that links global warming to more potent and frequent hurricanes, saying instead that “it’s probably abortion, actually.”`\
+https://nytimes.com/2024/11/04/us/politics/tucker-carlson-hurricanes-abortion-demonic-nuclear-weapons.html
+
 **Mets GM meetings notes: The pros and cons of Luis Severino receiving a qualifying offer**\
 `The Mets have openings in the starting rotation and Severino is coming off a good season, but he could prefer a longer-term deal.`\
 https://nytimes.com/athletic/5899135/2024/11/04/mets-luis-severino-qualifying-offer/
@@ -29,16 +41,4 @@ https://nytimes.com/athletic/5899011/2024/11/04/jim-harbaugh-justin-herbert-char
 **Why Trump’s Supporters Should Also Be Wary if He Returns to Power**\
 `If autocracy comes to America, don’t assume it’ll be soft.`\
 https://nytimes.com/2024/11/04/opinion/trump-cheney-kennedy-kelly.html
-
-**The intensity of the political season has compounded the anxieties of Jewish voters.**\
-`By Jonathan Weisman`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/the-intensity-of-the-political-season-has-compounded-the-anxieties-of-jewish-voters
-
-**Gundy: OK State critics 'are the same ones that can’t pay their own bills'**\
-`"They’re not taking care of themselves. They’re not taking care of their own family. They’re not taking care of their own job,” he said.`\
-https://nytimes.com/athletic/5899042/2024/11/04/mike-gundy-oklahoma-state-comments/
-
-**As Election Day nears, yard signs disappear.**\
-`By Corey Kilgannon`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/as-election-day-nears-yard-signs-disappear
 
