@@ -1,3 +1,15 @@
+**Jaden Ivey displays assertiveness and confidence as Pistons stun Lakers**\
+`Ivey ties a season high with 26 points, and Cade Cunningham contributes a triple-double in Detroit's second consecutive win.`\
+https://nytimes.com/athletic/5899515/2024/11/05/jaden-ivey-pistons-lakers/
+
+**Can Donald Trump Still Vote as a Convicted Felon? Here’s What to Know.**\
+`Prohibitions on voting will not apply to the former president, who was convicted of 34 felony counts in New York State this year.`\
+https://nytimes.com/2024/11/05/us/politics/can-trump-vote-felon.html
+
+**Britain’s Queen Camilla Cancels Royal Engagements Because of Illness**\
+`Buckingham Palace said Camilla, 77, was unwell with a chest infection and had been advised to rest.`\
+https://nytimes.com/2024/11/05/world/europe/queen-camilla-infection-uk-royal.html
+
 **Fantasy football Week 10 drops: Bid farewell to Travis Etienne Jr., Caleb Williams**\
 `Gary Davenport gives Week 10 drop advice, suggests parting ways with Travis Etienne Jr., Caleb Williams, and others.  `\
 https://nytimes.com/athletic/5900196/2024/11/05/fantasy-football-week-10-drops-etienne-williams/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5899574/2024/11/05/giants-rookies-draft-class-malik
 **Ranking Big Ten rivalries: Best trophy, most underrated, nastiest**\
 `"The Game" between Michigan and Ohio State is the conference's top rivalry, but which ones rank No. 2? Will new rivalries be formed?`\
 https://nytimes.com/athletic/5900084/2024/11/05/big-ten-rivalry-rankings-college-football-history-penn-state/
-
-**Penguins Today: Election-night anxiety with a side of anxious hockey**\
-`The Penguins have played only five times on the day of a presidential election.`\
-https://nytimes.com/athletic/5900270/2024/11/05/penguins-today-election-night/
-
-**Scoop City: NFL trade deadline primer**\
-`A brief look at the growing importance of the NFL trade deadline, which pales in comparison to the other three pro leagues.`\
-https://nytimes.com/athletic/5900351/2024/11/05/nfl-trade-deadline-primer-teams-to-watch-history-of-deals-plus-fantasy-insights/
-
-**Almost 2 weeks in, Jazz finally earn a win. Keyonte George had 'had enough'**\
-`George tied a career-high in scoring on the road to help lift the Jazz to their first win of the season.`\
-https://nytimes.com/athletic/5899715/2024/11/05/keyonte-george-utah-jazz-first-nba-win/
 

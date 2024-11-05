@@ -1,3 +1,15 @@
+**Jaden Ivey displays assertiveness and confidence as Pistons stun Lakers**\
+`Ivey ties a season high with 26 points, and Cade Cunningham contributes a triple-double in Detroit's second consecutive win.`\
+https://nytimes.com/athletic/5899515/2024/11/05/jaden-ivey-pistons-lakers/
+
+**Can Donald Trump Still Vote as a Convicted Felon? Here’s What to Know.**\
+`Prohibitions on voting will not apply to the former president, who was convicted of 34 felony counts in New York State this year.`\
+https://nytimes.com/2024/11/05/us/politics/can-trump-vote-felon.html
+
+**Britain’s Queen Camilla Cancels Royal Engagements Because of Illness**\
+`Buckingham Palace said Camilla, 77, was unwell with a chest infection and had been advised to rest.`\
+https://nytimes.com/2024/11/05/world/europe/queen-camilla-infection-uk-royal.html
+
 **Fantasy football Week 10 drops: Bid farewell to Travis Etienne Jr., Caleb Williams**\
 `Gary Davenport gives Week 10 drop advice, suggests parting ways with Travis Etienne Jr., Caleb Williams, and others.  `\
 https://nytimes.com/athletic/5900196/2024/11/05/fantasy-football-week-10-drops-etienne-williams/
