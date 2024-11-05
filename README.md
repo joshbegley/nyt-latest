@@ -1,11 +1,3 @@
-**An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
-`After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
-https://nytimes.com/2024/11/05/obituaries/readers-share-their-jansport-memories.html
-
-**Braves' Ronald Acuña Jr., Spencer Strider won't be ready for 2025 season opener**\
-`Acuña is recovering from left knee surgery and Strider is recovering from internal-brace elbow surgery.`\
-https://nytimes.com/athletic/5901680/2024/11/05/braves-ronald-acuna-jr-spencer-strider-injury-update-return/
-
 **Your Guide to Our Election Coverage**\
 `We’re watching the polls closely, and will tell you what we know as quickly as possible.`\
 https://nytimes.com/2024/11/05/us/politics/election-swing-states-polls.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/11/05/style/election-party-spike-lee-martha-stewart.htm
 **What Kind of World Are We Living In?**\
 `By Ross Douthat and Ezra Klein`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/election-trump-harris-results-live-chat
+
+**Trading for Marshon Lattimore shows Commanders recognize their potential**\
+`The eight-year veteran brings a Pro Bowl presence to a Washington team that had cornerback at the top of its needs list.`\
+https://nytimes.com/athletic/5901341/2024/11/05/commanders-marshon-lattimore-saints-trade-nfl-deadline-2024/
+
+**A History of Clashes Between Netanyahu and the Defense Minister He Fired**\
+`Yoav Gallant, the ousted cabinet minister, and Prime Minister Benjamin Netanyahu, had sharp public disagreements over Israel’s war against Hamas and what will follow it.`\
+https://nytimes.com/2024/11/05/world/middleeast/netanyahu-gallant-israel.html
 
