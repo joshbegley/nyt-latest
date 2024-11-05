@@ -1,3 +1,11 @@
+**The Polls Are Close. The Results Might Not Be.**\
+`We are just a very normal polling error away from either candidate landing a decisive victory on Tuesday.`\
+https://nytimes.com/2024/11/04/us/elections/harris-trump-polls-states.html
+
+**The Stakes of the Election**\
+`The Morning newsletter looked at how Kamala Harris and Donald Trump view some of the biggest issues facing the country.`\
+https://nytimes.com/2024/11/04/briefing/the-morning-stakes-of-the-2024-election.html
+
 **Cooper Flagg flashes in highly-hyped Duke debut with highlight dunks**\
 `Flagg finished with 18 points, seven rebounds and five assists on 6-of-15 shooting in Duke's 96-62 win over Maine.`\
 https://nytimes.com/athletic/5899231/2024/11/04/cooper-flagg-debut-duke-maine/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/04/nyregion/brian-glenn-bingham-jan-6-capitol-riot.h
 **Into the Abyss**\
 `The uncertainty is getting to us.`\
 https://nytimes.com/2024/11/04/us/politics/election-2024-voters.html
-
-**MLB GM meetings: Willy Adames open to Brewers reunion, Blake Snell back on the market**\
-`Elsewhere, Jesse Winker has re-established himself after a strong season with the Nationals and Mets.`\
-https://nytimes.com/athletic/5899253/2024/11/04/mlb-gm-meetings-willy-adames-blake-snell-jesse-winker/
-
-**The Science That Makes Baseball Mud ‘Magical’**\
-`Scientists dug up the real dirt on the substance applied to all the baseballs used in the major leagues.`\
-https://nytimes.com/2024/11/04/science/baseball-mud-mlb.html
 

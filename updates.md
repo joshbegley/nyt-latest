@@ -1,3 +1,11 @@
+**The Polls Are Close. The Results Might Not Be.**\
+`We are just a very normal polling error away from either candidate landing a decisive victory on Tuesday.`\
+https://nytimes.com/2024/11/04/us/elections/harris-trump-polls-states.html
+
+**The Stakes of the Election**\
+`The Morning newsletter looked at how Kamala Harris and Donald Trump view some of the biggest issues facing the country.`\
+https://nytimes.com/2024/11/04/briefing/the-morning-stakes-of-the-2024-election.html
+
 **Cooper Flagg flashes in highly-hyped Duke debut with highlight dunks**\
 `Flagg finished with 18 points, seven rebounds and five assists on 6-of-15 shooting in Duke's 96-62 win over Maine.`\
 https://nytimes.com/athletic/5899231/2024/11/04/cooper-flagg-debut-duke-maine/
