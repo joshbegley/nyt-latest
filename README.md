@@ -1,3 +1,12 @@
+**Nebraska hires Dana Holgorsen as offensive consultant: Source**\
+`Holgorsen has roots in Big Ten territory. He grew up in Davenport, Iowa, and played for three seasons at Iowa Wesleyan in Mount Pleasant.`\
+https://nytimes.com/athletic/5900461/2024/11/05/nebraska-dana-holgorsen-offense/
+
+**The Innovation Effect**\
+` A cutting-edge new therapy to treat prostate cancer shows how innovation in life sciences ripples out all the way from the lab to the living room and beyond.
+`\
+https://nytimes.com/paidpost/novartis/the-innovation-effect.html
+
 **Panthers trade WR Jonathan Mingo to Cowboys: How does WR fit in Dallas?**\
 `The Panthers are sending Mingo and a 2025 seventh-round pick to Dallas in exchange for a 2025 fourth-round pick, per the sources.`\
 https://nytimes.com/athletic/5900386/2024/11/05/jonathan-mingo-cowboys-panthers-trade/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5900196/2024/11/05/fantasy-football-week-10-drops-e
 **Politics, Power and Campus Culture**\
 `Readers discuss university governance and identity politics. Also: An election absence from school; feeling “despairalyzed”; a Marathon memory; a wedding dress.`\
 https://nytimes.com/2024/11/05/opinion/politics-power-campus-culture.html
-
-**For Biden Officials, Lebanon May Be a Problem Too Big to Solve**\
-`Despite hopes that political shifts in Beirut could bring lasting peace to the Israel-Lebanon border, the United States may have to settle for a quicker fix.`\
-https://nytimes.com/2024/11/05/us/politics/biden-lebanon-israel-iran.html
-
-**Anthony Davis' foot injury adds to Lakers problems in loss at Detroit**\
-`The Lakers have lost three of their past four games after a 3-0 start and now could be without the league's leading scorer.`\
-https://nytimes.com/athletic/5899313/2024/11/05/anthony-davis-injury-lakers-pistons/
 
