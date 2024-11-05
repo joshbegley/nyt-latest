@@ -1,3 +1,11 @@
+**Why Arsenal must be wary of giving Arteta too much power**\
+`North London's powerbrokers should heed the lesson of Liverpool, where Jurgen Klopp became dominant, in the wake of Edu's exit`\
+https://nytimes.com/athletic/5888290/2024/11/05/mikel-arteta-edu-arsenal-power/
+
+**Jump in WNBA card prices alienates collectors, creates barrier for newcomers**\
+`Long-time collectors and curious new fans are getting priced out of new WNBA trading card releases`\
+https://nytimes.com/athletic/5900052/2024/11/05/wnba-cards-panini-caitlin-clark/
+
 **Gazans Fear Neither Candidate in U.S. Election Will Help Them**\
 `American politics have not been topmost in the minds of Gazans. “We only need one thing: for this war to come to an end,” one man said.`\
 https://nytimes.com/2024/11/05/world/middleeast/gaza-us-election-harris-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5899470/2024/11/05/canucks-jake-debrusk-nhl/
 **Brandt Clarke is showing the Kings his dynamic best — and he's worth the risk**\
 `Clarke has a team-high 11 assists, and is showing off his flair for jumping into plays and moving the puck.`\
 https://nytimes.com/athletic/5898755/2024/11/05/brandt-clarke-kings-assists/
-
-**Japan Launches World’s First Wooden Satellite**\
-`The cube-shaped satellite was launched aboard a SpaceX rocket late Monday to test if timber will work as a more sustainable material in space.`\
-https://nytimes.com/video/science/space/100000009805728/japan-world-first-wooden-satellite.html
-
-**Japanese Scientists Bet on an Ancient Material for Their New Satellite: Wood**\
-`Scientists in Japan launched the first satellite made of wood by blending age-old woodworking techniques with rocket science.`\
-https://nytimes.com/2024/11/05/science/japan-wooden-satellite.html
 

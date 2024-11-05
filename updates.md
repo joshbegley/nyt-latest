@@ -1,3 +1,11 @@
+**Why Arsenal must be wary of giving Arteta too much power**\
+`North London's powerbrokers should heed the lesson of Liverpool, where Jurgen Klopp became dominant, in the wake of Edu's exit`\
+https://nytimes.com/athletic/5888290/2024/11/05/mikel-arteta-edu-arsenal-power/
+
+**Jump in WNBA card prices alienates collectors, creates barrier for newcomers**\
+`Long-time collectors and curious new fans are getting priced out of new WNBA trading card releases`\
+https://nytimes.com/athletic/5900052/2024/11/05/wnba-cards-panini-caitlin-clark/
+
 **Lions trade for Browns' Za'Darius Smith to fill need at DE**\
 `The NFC-leading Lions (7-1) needed an edge rusher after the season-ending injury to Aidan Hutchinson.`\
 https://nytimes.com/athletic/5895251/2024/11/05/zadarius-smith-lions-browns-trade/
