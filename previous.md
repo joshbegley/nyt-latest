@@ -4,7 +4,7 @@ https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
 
 **An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
 `After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
-https://nytimes.com/2024/11/05/obituaries/readers-share-their-jansport-memories.html
+https://nytimes.com/2024/11/05/business/jansport-memories.html
 
 **Braves' Ronald Acuña Jr., Spencer Strider won't be ready for 2025 season opener**\
 `Acuña is recovering from left knee surgery and Strider is recovering from internal-brace elbow surgery.`\

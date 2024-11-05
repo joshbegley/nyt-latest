@@ -1,3 +1,7 @@
+**An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
+`After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
+https://nytimes.com/2024/11/05/business/jansport-memories.html
+
 **Hourslong Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
 `Voters said the wait to cast a ballot stretched to more than six hours at the Banana Factory, an art center in Bethlehem, Pa.`\
 https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
