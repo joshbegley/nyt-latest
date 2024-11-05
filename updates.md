@@ -1,3 +1,7 @@
+**Trump Says This Will Be His Last Campaign**\
+`The former president cast his ballot in Florida, and said that if he loses the election and it’s a fair election, he’d “be the first one to acknowledge it.”`\
+https://nytimes.com/video/us/elections/100000009808888/trump-votes-florida-election-day.html
+
 **Who Is Israel Katz, Israel’s New Defense Minister?**\
 `The prime minister has replaced an experienced former general with Mr. Katz, who had been foreign minister and who has staunchly supported Israel’s right-wing government.`\
 https://nytimes.com/2024/11/05/world/middleeast/israel-katz-defense-minister.html
