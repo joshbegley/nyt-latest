@@ -1,3 +1,11 @@
+**Steelers acquire Preston Smith from Packers: Source**\
+`Pittsburgh adds defensive depth with trade for veteran pass rusher.`\
+https://nytimes.com/athletic/5901134/2024/11/05/preston-smith-trade-packers-steelers-nfl/
+
+**Live Q&A: Week 10 fantasy football post-trade deadline chat with Jay Felicio, Tuesday 11/5 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop/trade questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5900678/2024/11/05/live-qa-week-10-fantasy-football-post-trade-deadline-chat-with-jay-felicio-tuesday-11-5-at-5-p-m-et/
+
 **Nevada’s secretary of state is worried about the state’s high level of rejected ballots.**\
 `By Danny Hakim`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/nevadas-secretary-of-state-is-worried-about-the-states-high-level-of-rejected-ballots
