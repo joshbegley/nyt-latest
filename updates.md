@@ -1,3 +1,15 @@
+**Special Edition: America Votes**\
+`An anxious wait begins.`\
+https://nytimes.com/2024/11/05/briefing/election-day-america-votes.html
+
+**Software issue sets off conspiracy theories in Pennsylvania.**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/software-issue-sets-off-conspiracy-theories-in-pennsylvania
+
+**Nuggets' Aaron Gordon to miss extended time with calf strain**\
+`The 29-year-old is expected to miss multiple weeks with the injury, thinning a Nuggets roster already struggling with its depth.`\
+https://nytimes.com/athletic/5901315/2024/11/05/aaron-gordon-injury-nuggets/
+
 **On the issues: Where Harris and Trump stand on the economy.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-the-economy

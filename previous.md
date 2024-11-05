@@ -1,3 +1,15 @@
+**Special Edition: America Votes**\
+`An anxious wait begins.`\
+https://nytimes.com/2024/11/05/briefing/election-day-america-votes.html
+
+**Software issue sets off conspiracy theories in Pennsylvania.**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/software-issue-sets-off-conspiracy-theories-in-pennsylvania
+
+**Nuggets' Aaron Gordon to miss extended time with calf strain**\
+`The 29-year-old is expected to miss multiple weeks with the injury, thinning a Nuggets roster already struggling with its depth.`\
+https://nytimes.com/athletic/5901315/2024/11/05/aaron-gordon-injury-nuggets/
+
 **On the issues: Where Harris and Trump stand on the economy.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-the-economy
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/ballot-measures-abortion-marijuana.ht
 **Ex-Tottenham midfielder Sandro signs for seventh-tier Harborough Town**\
 `English non-League side Harborough Town have announced the signing of former Tottenham Hotspur and Queens Park Rangers midfielder Sandro.`\
 https://nytimes.com/athletic/5901189/2024/11/05/sandro-harborough-town-tottenham/
-
-**Steelers acquire DL Preston Smith from Packers**\
-`Pittsburgh adds defensive depth with the trade for the veteran pass rusher.`\
-https://nytimes.com/athletic/5901134/2024/11/05/preston-smith-trade-packers-steelers-nfl/
-
-**Live Q&A: Week 10 fantasy football post-trade deadline chat with Jay Felicio, Tuesday 11/5 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop/trade questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5900678/2024/11/05/live-qa-week-10-fantasy-football-post-trade-deadline-chat-with-jay-felicio-tuesday-11-5-at-5-p-m-et/
-
-**Nevada’s secretary of state is worried about the state’s high level of rejected ballots.**\
-`By Danny Hakim`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/nevadas-secretary-of-state-is-worried-about-the-states-high-level-of-rejected-ballots
 
