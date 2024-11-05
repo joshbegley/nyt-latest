@@ -1,3 +1,7 @@
+**NASCAR penalizes three teams for manipulating finish at Martinsville**\
+`The drivers themselves were not suspended, but each will lose their crew chief, spotter and a team executive for the season finale.`\
+https://nytimes.com/athletic/5901653/2024/11/05/nascar-disciplines-cup-series-teams-influencing-finish-martinsville/
+
 **You May Not Be Able to Outrun a Vampire Bat**\
 `Scientists put the bloodsucking mammals on a treadmill to understand how they get the energy to chase down their next meal.`\
 https://nytimes.com/2024/11/05/science/vampire-bats-running-treadmills.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
 **An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
 `After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
 https://nytimes.com/2024/11/05/business/jansport-memories.html
-
-**Braves' Ronald Acuña Jr., Spencer Strider won't be ready for 2025 season opener**\
-`Acuña is recovering from left knee surgery and Strider is recovering from internal-brace elbow surgery.`\
-https://nytimes.com/athletic/5901680/2024/11/05/braves-ronald-acuna-jr-spencer-strider-injury-update-return/
 
