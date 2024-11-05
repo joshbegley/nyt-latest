@@ -1,6 +1,6 @@
 **Trading for Marshon Lattimore shows Commanders recognize their potential**\
 `The eight-year veteran brings a Pro Bowl presence to a Washington team that had cornerback at the top of its needs list.`\
-https://nytimes.com/athletic/5901341/2024/11/05/commanders-marshon-lattimore-saints-trade/
+https://nytimes.com/athletic/5901341/2024/11/05/commanders-marshon-lattimore-saints-trade-nfl-deadline-2024/
 
 **A History of Clashes Between Netanyahu and the Defense Minister He Fired**\
 `Yoav Gallant, the ousted cabinet minister, and Prime Minister Benjamin Netanyahu, had sharp public disagreements over Israel’s war against Hamas and what will follow it.`\
