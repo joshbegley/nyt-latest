@@ -1,3 +1,7 @@
+**An Idaho Health Department Is Barred from Offering Covid Shots**\
+`Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations`\
+https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html
+
 **A N.Y. State Assembly candidate is taken into police custody at a polling site in Queens.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/assembly-rinaldi-arrest-ny
