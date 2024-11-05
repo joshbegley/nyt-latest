@@ -1,3 +1,7 @@
+**Full Time: NWSL playoff bracket highlights**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/5899488/2024/11/04/nwsl-playoffs-bracket-schedule-full-time/
+
 **What You Need to Know About Election Night Results and The New York Times Needle**\
 `Here’s how we will bring you the latest vote totals and estimates of the outcome on the presidential race and other contests around the country.`\
 https://nytimes.com/article/election-2024-results-needle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/elections/harris-trump-polls-states.html
 **The Stakes of the Election**\
 `The Morning newsletter looked at how Kamala Harris and Donald Trump view some of the biggest issues facing the country.`\
 https://nytimes.com/2024/11/04/briefing/the-morning-stakes-of-the-2024-election.html
-
-**Cooper Flagg flashes in highly-hyped Duke debut with highlight dunks**\
-`Flagg finished with 18 points, seven rebounds and five assists on 6-of-15 shooting in Duke's 96-62 win over Maine.`\
-https://nytimes.com/athletic/5899231/2024/11/04/cooper-flagg-debut-duke-maine/
 
