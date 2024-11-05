@@ -1,3 +1,11 @@
+**Boeing Union Approves New Contract, Ending Strike**\
+`About 33,000 workers at the aerospace manufacturer rejected two earlier contract offers and had been on strike for nearly two months.`\
+https://nytimes.com/2024/11/04/business/boeing-union-new-contract-strike.html
+
+**Quote of the Day: Fears of Violence and a Sense of Uncertainty**\
+`Quotation of the Day for Tuesday, November 5, 2024`\
+https://nytimes.com/2024/11/04/pageoneplus/quote-of-the-day-fears-of-violence-and-a-sense-of-uncertainty.html
+
 **Chiefs survive Bucs, Mahomes injury scare in 30-24 OT win: Key takeaways**\
 `Early in the fourth quarter, Mahomes appeared to suffer a frightening non-contact left ankle injury while flicking the game-tying touchdown.`\
 https://nytimes.com/athletic/5899459/2024/11/04/chiefs-buccaneers-takeaways-result/
