@@ -1,3 +1,15 @@
+**Cash ruled out of Villa's Champions League trip to Club Bruges**\
+`Matty Cash will miss Aston Villa’s Champions League trip to Belgian side Club Bruges on Wednesday.`\
+https://nytimes.com/athletic/5900757/2024/11/05/matty-cash-aston-villa-injury/
+
+**Facing Outrage, Nigeria Drops Capital Charges Against Minors**\
+`Dozens of teenagers had been accused of treason and faced possible death sentences, but indignation over their treatment, including lack of food, has the government backpedaling.`\
+https://nytimes.com/2024/11/05/world/africa/nigeria-teenagers-charges-dropped.html
+
+**Election Night at The Times, Through the Decades**\
+`The first presidential election The Times covered was in 1852. Things have changed a lot since the days of typewriters and motographs — see how, in archival images from decades past.`\
+https://nytimes.com/2024/11/05/insider/nyt-election-night-photos.html
+
 **Threats Reported in 3 States, but None Are Found Credible**\
 `Officials in Maine, Georgia and North Carolina said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
 https://nytimes.com/2024/11/05/us/politics/pollls-voting-bomb-threats.html
