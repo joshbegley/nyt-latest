@@ -1,3 +1,15 @@
+**The Parties Are Shifting, but Elections Are Still Insanely Close**\
+`By Ross Douthat and Ezra Klein`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/the-parties-are-shifting-but-elections-are-still-insanely-close
+
+**California Might Have to Wait Weeks for House Battleground Results**\
+`Some battleground contests may not be called for weeks because of the state’s voter-friendly laws and reliance on mail-in ballots.`\
+https://nytimes.com/2024/11/05/us/politics/california-election-vote-count.html
+
+**North Korea Enters Ukraine Fight for First Time, Officials Say**\
+`Western and Ukrainian officials have called the appearance of North Korean forces on the battlefield a major escalation.`\
+https://nytimes.com/2024/11/05/world/europe/north-korea-russia-ukraine-kursk.html
+
 **Shohei Ohtani undergoes shoulder surgery for torn labrum, expected to be ready for spring**\
 `“He was playing with one arm in the postseason,” manager Dave Roberts said.`\
 https://nytimes.com/athletic/5901721/2024/11/05/shohei-ohtani-left-shoulder-surgery-labrum/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/election-swing-states-polls.html
 **Who Is Chase Oliver, the Libertarian Candidate for President?**\
 `Mr. Oliver is polling in the low single digits. It remains to be seen whether his small share of the vote will affect the outcome of the race.`\
 https://nytimes.com/2024/11/05/us/politics/chase-oliver-election.html
-
-**In Michigan, a Field Army Urges Harris Backers to Vote**\
-`By Mara Gay`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/michigan-volunteers-harris-ground
-
-**2024 NFL trade deadline winners, losers: Chiefs, Lions get richer; why did Giants stay put?**\
-`The Commanders and Steelers also struck impressive deals ahead of Tuesday's buzzer, while both New York teams made puzzling decisions.`\
-https://nytimes.com/athletic/5901411/2024/11/05/nfl-trade-deadline-2024-winners-losers-chiefs-lions-giants/
-
-**Ezra Klein and Ross Douthat on the Night’s Big Questions**\
-``\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election
 
