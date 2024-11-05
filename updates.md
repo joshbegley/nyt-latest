@@ -1,3 +1,11 @@
+**NFL trade grades: Breaking down biggest moves at the deadline**\
+`We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
+https://nytimes.com/athletic/5893004/2024/11/05/nfl-trade-grades-deadline-2024/
+
+**Flo Wants to Reinvent the Girl Group for a New Generation**\
+`On the British R&B trio’s awaited debut album, “Access All Areas,” nostalgia meets ambition.`\
+https://nytimes.com/2024/11/05/arts/music/flo-girl-group-access-all-areas.html
+
 **Growing Food Instead of Lawns in California Front Yards**\
 `Front yards transformed to tiny crop farms in Los Angeles provide vegetables to dozens of families and use a fraction of the water needed by grass.`\
 https://nytimes.com/2024/11/05/climate/microfarms-cropswapla-food-deserts.html
