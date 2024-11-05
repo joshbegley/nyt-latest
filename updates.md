@@ -1,3 +1,23 @@
+**The Israeli Defense Minister Is Fired in an ‘Act of Madness’**\
+`Netanyahu may have hoped the United States was too distracted by Election Day to protest.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/gallant-fired-israel-netanyahu
+
+**Joel Embiid suspended 3 games for shoving Philadelphia columnist**\
+`The incident occurred in the 76ers' locker room after a Saturday loss.`\
+https://nytimes.com/athletic/5898404/2024/11/05/joel-embiid-suspension-sixers-columnist-shove/
+
+**In a majority Arab American suburb, distrust over the Mideast conflict frays Democratic support.**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/in-dearborn-distrust-over-israeli-arab-conflicts-channels-some-votes-to-trump-and-some-to-jill-stein
+
+**When Quincy Jones Worked With Michael Jackson, ‘We Had No Limitations’**\
+`Their work on “Off the Wall,” “Thriller,” and “Bad” set records for commercial success and defined the sound of the 1980s.`\
+https://nytimes.com/2024/11/05/arts/music/quincy-jones-michael-jackson-thriller-bad.html
+
+**Aiming to address secondary concerns, Ravens trade for Rams CB White**\
+`Baltimore hopes to improve its secondary after allowing the most passing yards per game in the NFL.`\
+https://nytimes.com/athletic/5901216/2024/11/05/tredavious-white-ravens-rams-trade-nfl/
+
 **In Dearborn, distrust over Israeli-Arab conflicts channels some votes to Trump, and some to Jill Stein.**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/in-dearborn-distrust-over-israeli-arab-conflicts-channels-some-votes-to-trump-and-some-to-jill-stein
