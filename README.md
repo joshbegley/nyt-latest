@@ -1,3 +1,7 @@
+**In Michigan, a Field Army Urges Harris Backers to Vote**\
+`By Mara Gay`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/michigan-volunteers-harris-ground
+
 **2024 NFL trade deadline winners, losers: Chiefs, Lions get richer; why did Giants stay put?**\
 `The Commanders and Steelers also struck impressive deals ahead of Tuesday's buzzer, while both New York teams made puzzling decisions.`\
 https://nytimes.com/athletic/5901411/2024/11/05/nfl-trade-deadline-2024-winners-losers-chiefs-lions-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/briefing/the-evening-election-night-edition.html
 **Who Is Israel Katz, Israel’s New Defense Minister?**\
 `The prime minister has replaced an experienced former general with Mr. Katz, who had been foreign minister and who has staunchly supported Israel’s right-wing government.`\
 https://nytimes.com/2024/11/05/world/middleeast/israel-katz-defense-minister.html
-
-**Market share report: Jets lean into their strengths, Rico Dowdle is no laughing matter and more**\
-`In his Week 9 market share breakdown, Michael Salfino says Rico Dowdle still isn't getting the respect he deserves as a zeroRB standout.`\
-https://nytimes.com/athletic/5901510/2024/11/05/market-share-fantasy-football-week-9-dowdle-davante-garrett-wilson/
 
