@@ -1,3 +1,15 @@
+**Wheeler’s mailbag: Submit your 2025 NHL Draft and prospect questions**\
+`Have questions about the 2025 NHL Draft class, a prospect, or scouting in general? Submit them here.`\
+https://nytimes.com/athletic/5899977/2024/11/05/nhl-draft-2025-prospects-ranking-mailbag/
+
+**What to Expect on Election Day**\
+`A guide to what could happen, the stakes for companies and the economy, and how business leaders are preparing for the result — including potential unrest.`\
+https://nytimes.com/2024/11/05/business/dealbook/election-day-guide.html
+
+**Paul George's debut brings some much needed hope to the Sixers, even as they lose again**\
+`"He takes a lot of the pressure off all of us," Tyrese Maxey said of George's first game in a Sixers uniform.`\
+https://nytimes.com/athletic/5899641/2024/11/05/paul-george-sixers-debut/
+
 **Real Madrid hire former futsal coach Serpa to Calafat's scouting staff**\
 `Real Madrid have hired former futsal player and coach Marcelo Serpa Coelho to Juni Calafat&#8217;s scouting staff.`\
 https://nytimes.com/athletic/5899902/2024/11/05/real-madrid-marcelo-serpa-coelho-scout/
