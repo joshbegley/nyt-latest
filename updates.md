@@ -1,3 +1,11 @@
+**Corrections: Nov. 5, 2024**\
+`Corrections that appeared in print on Tuesday, Nov. 5, 2024.`\
+https://nytimes.com/2024/11/04/pageoneplus/corrections-nov-5-2024.html
+
+**10-Minute Challenge: Edward Hopper’s ‘Manhattan Bridge Loop’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2024/11/04/upshot/ten-minute-challenge-election.html
+
 **Activists File ‘Bad-Faith’ Ballot Challenges, Pennsylvania Officials Say**\
 `Right-wing activists and G.O.P. state lawmakers have questioned the eligibility of some 4,000 people who requested ballots.`\
 https://nytimes.com/2024/11/04/us/politics/pennsylvania-ballot-challenges.html
