@@ -1,3 +1,23 @@
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/11/05/briefing/american-election-israel-documents.html
+
+**Tiny Homes Face the Ax in Hong Kong, Leaving Many Families Worried**\
+`The government says the city’s smallest apartments need more regulation. For some of Hong Kong’s poorest, that could mean higher rents or even eviction.`\
+https://nytimes.com/2024/11/05/world/asia/hong-kong-subdivided-housing.html
+
+**Whether Trump or Harris, Pessimism Reigns in Russia Over U.S. Election Winner**\
+`Russian officials feel disrespected by the Democrats and betrayed by Donald J. Trump, who lavished praise on President Vladimir V. Putin but made decisions the Kremlin saw as benefiting Ukraine.`\
+https://nytimes.com/2024/11/05/world/europe/russia-us-election-winner-pessimism.html
+
+**Clues to a Trump or Harris Victory Could Emerge Early. Here’s What to Look For.**\
+`It has been a race unlike any other, and declaring a winner could take a while. Here are some potential harbingers.`\
+https://nytimes.com/2024/11/05/us/elections/election-watch-harris-trump.html
+
+**Fantasy football Week 10 waiver wire: Streamers, Quentin Johnston, Cedric Tillman**\
+`Jake Ceily runs down his favorite options on the waiver wire, including Quentin Johnston, who has shown a knack for big plays this season. `\
+https://nytimes.com/athletic/5897613/2024/11/05/fantasy-football-week-10-waiver-wire-streamers-quentin-johnston-cedric-tillman/
+
 **Boeing Union Approves New Contract, Ending Strike**\
 `About 33,000 workers at the aerospace manufacturer rejected two earlier contract offers and had been on strike for nearly two months.`\
 https://nytimes.com/2024/11/04/business/boeing-union-new-contract-strike.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5899488/2024/11/04/nwsl-playoffs-bracket-schedule-f
 **What You Need to Know About Election Night Results and The New York Times Needle**\
 `Here’s how we will bring you the latest vote totals and estimates of the outcome on the presidential race and other contests around the country.`\
 https://nytimes.com/article/election-2024-results-needle.html
-
-**Arizona Official Releases Voter List Sought by Activists After Court Order**\
-`The secretary of state had objected to turning over names of people without a record of proof of citizenship to lawyers for a right-wing group, fearing the potential consequences.`\
-https://nytimes.com/2024/11/04/us/politics/arizona-voting-citizenship-voter-rolls.html
-
-**3 U.S. Intelligence Agencies Warn of Election Interference Efforts by Russia and Iran**\
-`Russia, and to a lesser extent Iran, will most likely flood social media with misinformation on Election Day and for weeks afterward, the agencies said.`\
-https://nytimes.com/2024/11/04/us/politics/russia-iran-election-interference.html
-
-**Joe Rogan Endorses Trump, and Trump Calls Him ‘the Biggest There Is’**\
-`Mr. Rogan has hosted Donald J. Trump, JD Vance and Elon Musk for lengthy and friendly interviews in recent weeks.`\
-https://nytimes.com/2024/11/04/us/politics/trump-joe-rogan-endorsement.html
-
-**What Time Do the Polls Close?**\
-`This guide offers a state-by-state breakdown, with some tips on what results to watch for at each hour of the night.`\
-https://nytimes.com/interactive/2024/us/elections/poll-closing-times.html
-
-**Cody Bellinger opting in gives Cubs 'clarity' as they head into critical offseason**\
-`Jed Hoyer said Bellinger's decision was good news: "Now we know what our roster looks like and we can go about building the team."`\
-https://nytimes.com/athletic/5899412/2024/11/04/cubs-cody-bellinger-option/
 
