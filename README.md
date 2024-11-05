@@ -1,3 +1,15 @@
+**In Dearborn, distrust over Israeli-Arab conflicts channels some votes to Trump, and some to Jill Stein.**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/in-dearborn-distrust-over-israeli-arab-conflicts-channels-some-votes-to-trump-and-some-to-jill-stein
+
+**The contest for the House majority is one of the tightest yet.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/the-contest-for-the-house-majority-is-one-of-the-tightest-yet
+
+**Despite Rampant Anxiety, Voting Begins Relatively Smoothly**\
+`Early reports of problems at the polls on Tuesday were sparse and represented a mix of routine glitches and newer-style, foreign disinformation.`\
+https://nytimes.com/2024/11/05/us/politics/election-voter-fraud.html
+
 **When Quincy Jones Met Michael Jackson, ‘We Had No Limitations’**\
 `Their work on “Off the Wall,” “Thriller,” and “Bad” set records for commercial success and defined the sound of the 1980s.`\
 https://nytimes.com/2024/11/05/arts/music/quincy-jones-michael-jackson-thriller-bad.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/05/briefing/election-day-america-votes.html
 **Software issue sets off conspiracy theories in Pennsylvania.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/software-issue-sets-off-conspiracy-theories-in-pennsylvania
-
-**Nuggets' Aaron Gordon to miss extended time with calf strain**\
-`The 29-year-old is expected to miss multiple weeks with the injury, thinning a Nuggets roster already struggling with its depth.`\
-https://nytimes.com/athletic/5901315/2024/11/05/aaron-gordon-injury-nuggets/
-
-**On the issues: Where Harris and Trump stand on the economy.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-the-economy
-
-**How Should History Books Remember the 2024 Election?**\
-`Now that the votes are almost in, the Headway Election Challenge asks teenagers for the lessons they are taking away from this election year.`\
-https://nytimes.com/2024/11/05/headway/teen-2024-election-day-history.html
 
