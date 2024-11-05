@@ -1,3 +1,15 @@
+**Election Night at The Times, Through the Decades**\
+`Election night at The Times ushered in a fervor of typewriters clacking and early morning changes to bring readers accurate results. Photos of the newsroom in decades past bring the action to life.`\
+https://nytimes.com/2024/11/05/insider/nyt-election-night-photos.html
+
+**Influencer Flanked by E-Bike Riders at N.Y.C. Marathon Is Banned, Organizers Say**\
+`Matt Choi, who ran the course in under three hours, was followed by two cameramen on electronic bikes, who were said to have obstructed other runners.`\
+https://nytimes.com/2024/11/05/nyregion/matt-choi-influencer-banned-nyc-marathon.html
+
+**9 Great Songs That Mention Baseball Stars**\
+`The playlist to get you through Major League Baseball’s long offseason.`\
+https://nytimes.com/2024/11/05/arts/music/amplifier-newsletter-bad-bunny-baseball.html
+
 **Mavericks head coach Kidd makes bid for Crystal Palace stake**\
 `Dallas Mavericks head coach Jason Kidd is part of a consortium that has made an offer to purchase a stake in Premier League club Crystal Palace, sources briefed on the proposed deal have told The Athletic.`\
 https://nytimes.com/athletic/5900551/2024/11/05/crystal-palace-takeover-textor-kidd/
