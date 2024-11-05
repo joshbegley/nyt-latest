@@ -1,3 +1,7 @@
+**An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
+`After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
+https://nytimes.com/2024/11/05/obituaries/readers-share-their-jansport-memories.html
+
 **Braves' Ronald Acuña Jr., Spencer Strider won't be ready for 2025 season opener**\
 `Acuña is recovering from left knee surgery and Strider is recovering from internal-brace elbow surgery.`\
 https://nytimes.com/athletic/5901680/2024/11/05/braves-ronald-acuna-jr-spencer-strider-injury-update-return/
@@ -32,9 +36,5 @@ https://nytimes.com/2024/11/05/style/election-party-spike-lee-martha-stewart.htm
 
 **What Kind of World Are We Living In?**\
 `By Ross Douthat and Ezra Klein`\
-https://nytimes.com/2024/11/05/opinion/election-trump-harris-results-live-chat.html
-
-**Trading for Marshon Lattimore shows Commanders recognize their potential**\
-`The eight-year veteran brings a Pro Bowl presence to a Washington team that had cornerback at the top of its needs list.`\
-https://nytimes.com/athletic/5901341/2024/11/05/commanders-marshon-lattimore-saints-trade-nfl-deadline-2024/
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/election-trump-harris-results-live-chat
 

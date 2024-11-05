@@ -1,3 +1,7 @@
+**Braves' Ronald Acuña Jr., Spencer Strider won't be ready for 2025 season opener**\
+`Acuña is recovering from left knee surgery and Strider is recovering from internal-brace elbow surgery.`\
+https://nytimes.com/athletic/5901680/2024/11/05/braves-ronald-acuna-jr-spencer-strider-injury-update-return/
+
 **Your Guide to Our Election Coverage**\
 `We’re watching the polls closely, and will tell you what we know as quickly as possible.`\
 https://nytimes.com/2024/11/05/us/politics/election-swing-states-polls.html
