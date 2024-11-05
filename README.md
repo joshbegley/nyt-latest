@@ -1,3 +1,7 @@
+**Fulham 2 Brentford 1: A tale of 43 crosses, two late goals and one very dramatic comeback**\
+`Fulham produced 43 crosses against Brentford - and their refusal to change tack resulted in one of the most dramatic wins of the season`\
+https://nytimes.com/athletic/5898948/2024/11/05/fulham-brentford-crosses-harry-wilson/
+
 **Late Night Addresses Your Election Eve Anxiety**\
 `“It feels like the whole country is waiting to get the results of a biopsy,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/11/05/arts/television/late-night-election-eve.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897178/2024/11/05/newcastle-united-transfers-mbeum
 **Why Liverpool fell for Alonso, the 'spray gun' who became an adopted Scouser**\
 `The Spaniard took Liverpool to his heart and is still revered - despite ruling himself out of the race to succeed Jurgen Klopp`\
 https://nytimes.com/athletic/5882579/2024/11/05/liverpool-xabi-alonso-love/
-
-**Amorim's internship with Mourinho at Manchester United - by those who were involved**\
-`Those who studied with United's new coach explain his skills - and how a week in England six years ago influenced him`\
-https://nytimes.com/athletic/5890461/2024/11/05/ruben-amorim-mourinho-intern-manchester-united/
 
