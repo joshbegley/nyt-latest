@@ -14,10 +14,6 @@ https://nytimes.com/2024/11/05/learning/standard-time-begins.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/05/crosswords/spelling-bee-forum.html
 
-**Fulham 2 Brentford 1: A tale of 43 crosses, two late goals and one very dramatic comeback**\
-`Fulham produced 43 crosses against Brentford - and their refusal to change tack resulted in one of the most dramatic wins of the season`\
-https://nytimes.com/athletic/5898948/2024/11/05/fulham-brentford-crosses-harry-wilson/
-
 **Late Night Addresses Your Election Eve Anxiety**\
 `“It feels like the whole country is waiting to get the results of a biopsy,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/11/05/arts/television/late-night-election-eve.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/05/us/politics/vance-harris-trash-trump.html
 **Steph Curry returns, takes cautious approach in Warriors' win over Wizards**\
 `Curry was on a strict 24-minute restriction in his first game in more than a week.`\
 https://nytimes.com/athletic/5899201/2024/11/05/steph-curry-returns-warriors-win-wizards/
+
+**Why These 15 Late-Deciding Swing State Voters Give the Edge to Harris**\
+`The group discussed Kamala Harris and Donald Trump on the edge of the 2024 election.`\
+https://nytimes.com/interactive/2024/11/05/opinion/focusgroup-swing-state-voters.html
 
