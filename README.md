@@ -1,3 +1,11 @@
+**Russia Plotted to Put Incendiary Devices on Cargo Planes, Officials Say**\
+`Western officials are investigating whether devices planted at shipping hubs in Europe may have been a test run by Russian operatives for placing them on planes bound for the U.S.`\
+https://nytimes.com/2024/11/05/world/europe/russia-plot-dhl-planes.html
+
+**Trump, Vance and Allies Hurl Insults at Women as Race Ends**\
+`Donald J. Trump has used misogynistic language to refer to Kamala Harris, fostering an environment among his allies and at his rallies that revels in gendered insults.`\
+https://nytimes.com/2024/11/05/us/politics/trump-nancy-pelosi-liz-cheney-women.html
+
 **NFL MVP odds: Allen, Jackson continue to battle for top spot**\
 `Josh Allen and Lamar Jackson head into Week 10 in a dead lock in MVP odds. Who else could contend for the crown?`\
 https://nytimes.com/athletic/5900549/2024/11/05/nfl-mvp-odds-week-10-josh-allen-lamar-jackson/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/arts/music/flo-girl-group-access-all-areas.html
 **Sabalenka secures year-end world No. 1 for the first time**\
 `Iga Swiatek's defeat to Coco Gauff in Riyadh confirms Sabalenka's place at the summit.`\
 https://nytimes.com/athletic/5899798/2024/11/05/sabalenka-wta-rankings-world-number-one-year-end/
-
-**Where Can You Register to Vote on Election Day?**\
-`Vote.gov provides state-specific instructions on how and where to register and what kind of identification is needed.`\
-https://nytimes.com/2024/11/05/us/politics/same-day-voter-registration.html
-
-**Kulenovic's Bosnia call-up shows Marsch and Canada must act fast to increase talent pool**\
-`A generation of players moved abroad when younger to progress - how many Marsch can recruit is big question ahead of the World Cup.`\
-https://nytimes.com/athletic/5900347/2024/11/05/luka-kulenovic-canada-bosnia/
 
