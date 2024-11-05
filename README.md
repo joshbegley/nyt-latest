@@ -1,3 +1,7 @@
+**Special Edition: America Votes**\
+`An anxious wait begins.`\
+https://nytimes.com/2024/11/05/briefing/election-day-america-votes.html
+
 **Software issue sets off conspiracy theories in Pennsylvania.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/software-issue-sets-off-conspiracy-theories-in-pennsylvania
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/ballot-measures-abortion-marijuana.ht
 **Ex-Tottenham midfielder Sandro signs for seventh-tier Harborough Town**\
 `English non-League side Harborough Town have announced the signing of former Tottenham Hotspur and Queens Park Rangers midfielder Sandro.`\
 https://nytimes.com/athletic/5901189/2024/11/05/sandro-harborough-town-tottenham/
-
-**Steelers acquire DL Preston Smith from Packers**\
-`Pittsburgh adds defensive depth with the trade for the veteran pass rusher.`\
-https://nytimes.com/athletic/5901134/2024/11/05/preston-smith-trade-packers-steelers-nfl/
 
