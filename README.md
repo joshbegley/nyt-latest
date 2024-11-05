@@ -1,3 +1,15 @@
+**The Bounce: Are the 8-0 Cavaliers the best in the East?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5900145/2024/11/05/donovan-mitchell-cleveland-cavaliers-caitlin-clark-iowa-nba-wnba-the-bounce/
+
+**More Than 80 Million Americans Cast Early Ballots**\
+`Despite sporadic mishaps, the early voting season went relatively smoothly, both in person and by mail.`\
+https://nytimes.com/2024/11/05/us/politics/80-million-early-votes.html
+
+**Irish Leader Plans to Call Election Later This Week**\
+`Simon Harris, Ireland’s prime minister, said Tuesday that he would dissolve parliament later this week, setting the stage for a general election by the end of the month.`\
+https://nytimes.com/2024/11/05/world/europe/irish-leader-plans-to-call-election-later-this-week.html
+
 **What I know about Van Nistelrooy and his relationship with United**\
 `The Dutchman has written the foreword to Andy Mitten's new book about United in the noughties and highlighted his feelings for the club`\
 https://nytimes.com/athletic/5897288/2024/11/05/van-nistelrooy-man-united-amorim/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/05/opinion/editorials/the-hyper-close-house-race-tha
 **There Are Battleground States — and Then There’s North Carolina**\
 `If Harris wins here, she wins the whole shebang.`\
 https://nytimes.com/2024/11/05/opinion/north-carolina-harris-trump.html
-
-**USC to start Jayden Maiava at QB against Nebraska: Source**\
-`USC is making a quarterback switch from Miller Moss to Jayden Maiava after losing four of its last five games, a person briefed on the decision told The Athletic on Tuesday.`\
-https://nytimes.com/athletic/5900358/2024/11/05/jayden-maiava-usc-quarterback-miller-moss/
-
-**Search for the Missing Grows Desperate Amid Mud and Confusion in Spain**\
-`A week after catastrophic floods, families are unsure if their relatives are alive under the sludge and debris. The government has still not issued a public tally of the missing.`\
-https://nytimes.com/2024/11/05/world/europe/spain-floods-missing-dead.html
-
-**NBA Power Rankings: Cavs soar, Knicks drop and a spin through every team's rotation**\
-`OKC claims the top spot after two weeks, while the Bucks and Sixers are in a tier you don't want to be in.`\
-https://nytimes.com/athletic/5900074/2024/11/05/nba-power-rankings-cavs-knicks-celtics-lakers/
 
