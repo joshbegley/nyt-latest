@@ -1,3 +1,19 @@
+**How Lina Khan Became an Election Hot Topic**\
+`The Federal Trade Commission chair drew increasing political vitriol as the presidential vote neared. Her political future hangs in the balance.`\
+https://nytimes.com/2024/11/05/technology/election-2024-ftc-lina-khan.html
+
+**Has Giants draft class hit rookie wall? After fast start, mistakes becoming more prevalent**\
+`The Giants are leaning heavily on rookies this season. That should be good for the future. It won’t always be good for the present.`\
+https://nytimes.com/athletic/5899574/2024/11/05/giants-rookies-draft-class-malik-nabers/
+
+**Ranking Big Ten rivalries: Best trophy, most underrated, nastiest**\
+`"The Game" between Michigan and Ohio State is the conference's top rivalry, but which ones rank No. 2? Will new rivalries be formed?`\
+https://nytimes.com/athletic/5900084/2024/11/05/big-ten-rivalry-rankings-college-football-history-penn-state/
+
+**Penguins Today: Election-night anxiety with a side of anxious hockey**\
+`The Penguins have played only five times on the day of a presidential election.`\
+https://nytimes.com/athletic/5900270/2024/11/05/penguins-today-election-night/
+
 **Scoop City: NFL trade deadline primer**\
 `A brief look at the growing importance of the NFL trade deadline, which pales in comparison to the other three pro leagues.`\
 https://nytimes.com/athletic/5900351/2024/11/05/nfl-trade-deadline-primer-teams-to-watch-history-of-deals-plus-fantasy-insights/
