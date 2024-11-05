@@ -1,3 +1,7 @@
+**Anthony Davis' foot injury adds to Lakers problems in loss at Detroit**\
+`The Lakers have lost three of their past four games after a 3-0 start and now could be without the league's leading scorer.`\
+https://nytimes.com/athletic/5899313/2024/11/05/anthony-davis-injury-lakers-pistons/
+
 **How Lina Khan Became an Election Hot Topic**\
 `The Federal Trade Commission chair drew increasing political vitriol as the presidential vote neared. Her political future hangs in the balance.`\
 https://nytimes.com/2024/11/05/technology/election-2024-ftc-lina-khan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5900203/2024/11/05/khalil-herbert-bengals-bears-tra
 **Amick: What's really behind all these Joel Embiid headlines**\
 `Embiid's availability has long been an issue for the franchise, though there's hope he could return as soon as Wednesday.`\
 https://nytimes.com/athletic/5899676/2024/11/05/joel-embiid-sixers-injury-locker-room-nba/
-
-**Cowboys Today: One exec's take on Dak and what are chances Dallas makes deadline deal?**\
-`Does Dak Prescott's injury have an effect on what the Cowboys do — or don't do — at the trade deadline? Plus, more on that failed fake punt.`\
-https://nytimes.com/athletic/5899648/2024/11/05/cowboys-today-dak-prescott-trade-deadline/
 
