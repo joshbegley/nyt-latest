@@ -1,3 +1,15 @@
+**2024 NFL trade deadline winners, losers: Chiefs, Lions get richer; why did Giants stay put?**\
+`The Commanders and Steelers also struck impressive deals ahead of Tuesday's buzzer, while both New York teams made puzzling decisions.`\
+https://nytimes.com/athletic/5901411/2024/11/05/nfl-trade-deadline-2024-winners-losers-chiefs-lions-giants/
+
+**Ezra Klein and Ross Douthat on the Night’s Big Questions**\
+``\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election
+
+**Our Columnists and Writers on What to Expect and the Early Election Results**\
+``\
+https://nytimes.com/live/2024/11/05/opinion/columnists-election-analysis
+
 **The Election Eve Library Party With Spike Lee and Martha Stewart**\
 `The New York Public Library’s annual benefit was a who’s who of literary stars and creative luminaries.`\
 https://nytimes.com/2024/11/05/style/election-party-spike-lee-martha-stewart.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/05/world/middleeast/israel-katz-defense-minister.htm
 **Market share report: Jets lean into their strengths, Rico Dowdle is no laughing matter and more**\
 `In his Week 9 market share breakdown, Michael Salfino says Rico Dowdle still isn't getting the respect he deserves as a zeroRB standout.`\
 https://nytimes.com/athletic/5901510/2024/11/05/market-share-fantasy-football-week-9-dowdle-davante-garrett-wilson/
-
-**Los Angeles Faces a ‘Particularly Dangerous Situation’ for Wildfire Weather**\
-`Forecasters in California are using some of their strongest language to warn that windy conditions may help fires spread this week.`\
-https://nytimes.com/2024/11/05/weather/los-angeles-santa-ana-winds-california.html
-
-**The Briefing: Real Madrid 1 AC Milan 3 - Morata scores as Ancelotti's side are stunned at the Bernabeu**\
-`Madrid find themselves in an unfamiliar position after another defeat - this time to an inspired Milan side`\
-https://nytimes.com/athletic/5897534/2024/11/05/real-madrid-1-ac-milan-3-champions-league/
-
-**The Briefing: Liverpool 4 Leverkusen 0 - Slot outshines Alonso as Diaz lights up Anfield**\
-`The major talking points dissected from tonight's Champions League tie at Anfield`\
-https://nytimes.com/athletic/5897531/2024/11/05/liverpool-bayer-leverkusen-slot-alonso-analysis/
 
