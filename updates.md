@@ -1,3 +1,7 @@
+**Los Angeles Faces a ‘Particularly Dangerous Situation’ for Wildfire Weather**\
+`Forecasters in California are using some of their strongest language to warn that windy conditions may help fires spread this week.`\
+https://nytimes.com/2024/11/05/weather/los-angeles-santa-ana-winds-california.html
+
 **The Briefing: Sporting Lisbon 4 Manchester City 1 - Gyokeres upstages Haaland in Ruben Amorim's farewell home game**\
 `Analysis of a difficult Champions League night for Manchester City in Portugal`\
 https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-result-analysis/
