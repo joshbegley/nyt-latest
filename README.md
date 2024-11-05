@@ -1,3 +1,11 @@
+**Arizona Official Releases Voter List Sought by Activists After Court Order**\
+`The secretary of state had objected to turning over names of people without a record of proof of citizenship to lawyers for a right-wing group, fearing the potential consequences.`\
+https://nytimes.com/2024/11/04/us/politics/arizona-voting-citizenship-voter-rolls.html
+
+**3 U.S. Intelligence Agencies Warn of Election Interference Efforts by Russia and Iran**\
+`Russia, and to a lesser extent Iran, will most likely flood social media with misinformation on Election Day and for weeks afterward, the agencies said.`\
+https://nytimes.com/2024/11/04/us/politics/russia-iran-election-interference.html
+
 **Joe Rogan Endorses Trump, and Trump Calls Him ‘the Biggest There Is’**\
 `Mr. Rogan has hosted Donald J. Trump, JD Vance and Elon Musk for lengthy and friendly interviews in recent weeks.`\
 https://nytimes.com/2024/11/04/us/politics/trump-joe-rogan-endorsement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5899231/2024/11/04/cooper-flagg-debut-duke-maine/
 **Corrections: Nov. 5, 2024**\
 `Corrections that appeared in print on Tuesday, Nov. 5, 2024.`\
 https://nytimes.com/2024/11/04/pageoneplus/corrections-nov-5-2024.html
-
-**10-Minute Challenge: Edward Hopper’s ‘Manhattan Bridge Loop’**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2024/11/04/upshot/ten-minute-challenge-election.html
-
-**Activists File ‘Bad-Faith’ Ballot Challenges, Pennsylvania Officials Say**\
-`Right-wing activists and G.O.P. state lawmakers have questioned the eligibility of some 4,000 people who requested ballots.`\
-https://nytimes.com/2024/11/04/us/politics/pennsylvania-ballot-challenges.html
 
