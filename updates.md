@@ -1,3 +1,19 @@
+**Netanyahu Fires Israel’s Defense Minister, Yoav Gallant**\
+`Mr. Gallant had differed with Prime Minister Benjamin Netanyahu several times over Israel’s conduct of the war in Gaza.`\
+https://nytimes.com/2024/11/05/world/middleeast/netanyahu-fires-gallant.html
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5900827/2024/11/05/nhl-mailbag-trades-4-nations-chris-johnston/
+
+**Growing Food Instead of Lawns in California Front Yards**\
+`Front yards transformed to tiny crop farms in Los Angeles provide vegetables to dozens of families and use a fraction of the water needed by grass.`\
+https://nytimes.com/2024/11/05/climate/microfarms-cropswapla-food-deserts.html
+
+**College Football Playoff guide: 12-team format, important dates, game locations**\
+`How will the 12 teams be selected? When is the national championship? The answers to all your frequently asked questions about the CFP.`\
+https://nytimes.com/athletic/5726745/2024/11/05/college-football-playoff-2024-format-guide/
+
 **NFL trade grades: Breaking down biggest moves at the deadline**\
 `We analyze and grade all of the biggest deals ahead of the NFL trade deadline. `\
 https://nytimes.com/athletic/5893004/2024/11/05/nfl-trade-grades-deadline-2024/
