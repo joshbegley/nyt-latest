@@ -1,3 +1,7 @@
+**Speck in the Sea**\
+`Evan Kalish displays his raw talent.`\
+https://nytimes.com/2024/11/04/crosswords/daily-puzzle-2024-11-05.html
+
 **The Polls Are Close. The Results Might Not Be.**\
 `We are just a very normal polling error away from either candidate landing a decisive victory on Tuesday.`\
 https://nytimes.com/2024/11/04/us/elections/harris-trump-polls-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/30/opinion/thepoint/the-shady-gimmick-behind-el
 **Army Veteran Is Convicted of Assaulting Police Officer at Capitol Riot**\
 `Brian Glenn Bingham, of New Jersey, hit an officer in the face as the police tried to clear rioters from the building on Jan. 6, 2021, a jury found.`\
 https://nytimes.com/2024/11/04/nyregion/brian-glenn-bingham-jan-6-capitol-riot.html
-
-**Into the Abyss**\
-`The uncertainty is getting to us.`\
-https://nytimes.com/2024/11/04/us/politics/election-2024-voters.html
 

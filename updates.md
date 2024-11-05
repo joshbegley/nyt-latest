@@ -1,3 +1,7 @@
+**Speck in the Sea**\
+`Evan Kalish displays his raw talent.`\
+https://nytimes.com/2024/11/04/crosswords/daily-puzzle-2024-11-05.html
+
 **The Polls Are Close. The Results Might Not Be.**\
 `We are just a very normal polling error away from either candidate landing a decisive victory on Tuesday.`\
 https://nytimes.com/2024/11/04/us/elections/harris-trump-polls-states.html
