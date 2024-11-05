@@ -1,3 +1,15 @@
+**Jets trade Mike Williams to Steelers for fifth-round pick**\
+`Williams signed with the Jets in the offseason but became expendable after New York dealt for Davante Adams.`\
+https://nytimes.com/athletic/5900947/2024/11/05/mike-williams-trade-jets-steelers-nfl/
+
+**‘Moo Deng? Who Deng?’ Meet Haggis the Baby Pygmy Hippo.**\
+`Edinburgh Zoo playfully started (and then quickly ended) a rivalry with Moo Deng, Thailand’s viral sensation.`\
+https://nytimes.com/2024/11/05/style/haggis-pygmy-hippo-edinburgh-zoo.html
+
+**What Are Your Reactions to the Results of Election 2024?**\
+`As the votes are counted, we invite teenagers to post their reactions and have conversations here. What does this election mean for our nation, and for you?`\
+https://nytimes.com/2024/11/05/learning/what-are-your-reactions-to-the-results-of-election-2024.html
+
 **Commanders acquire CB Marshon Lattimore from Saints**\
 `The Commanders receive Lattimore and a 2025 fifth-round pick in exchange for a 2025 third, 2025 fourth and 2025 sixth.`\
 https://nytimes.com/athletic/5900868/2024/11/05/marshon-lattimore-commanders-saints-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/05/world/middleeast/netanyahu-fires-gallant.html
 **Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
 `Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/5900827/2024/11/05/nhl-mailbag-trades-4-nations-chris-johnston/
-
-**Growing Food Instead of Lawns in California Front Yards**\
-`Front yards transformed to tiny crop farms in Los Angeles provide vegetables to dozens of families and use a fraction of the water needed by grass.`\
-https://nytimes.com/2024/11/05/climate/microfarms-cropswapla-food-deserts.html
-
-**Sun Belt, Rust Belt, Barbecue Belt: America loves debating its regions.**\
-`By Remy Tumin`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/sun-belt-rust-belt-barbecue-belt-america-loves-debating-its-regions
-
-**College Football Playoff guide: 12-team format, important dates, game locations**\
-`How will the 12 teams be selected? When is the national championship? The answers to all your frequently asked questions about the CFP.`\
-https://nytimes.com/athletic/5726745/2024/11/05/college-football-playoff-2024-format-guide/
 
