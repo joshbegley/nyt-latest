@@ -1,3 +1,7 @@
+**What You Need to Know About Election Night Results and The New York Times Needle**\
+`Here’s how we will bring you the latest vote totals and estimates of the outcome on the presidential race and other contests around the country.`\
+https://nytimes.com/article/election-2024-results-needle.html
+
 **Arizona Official Releases Voter List Sought by Activists After Court Order**\
 `The secretary of state had objected to turning over names of people without a record of proof of citizenship to lawyers for a right-wing group, fearing the potential consequences.`\
 https://nytimes.com/2024/11/04/us/politics/arizona-voting-citizenship-voter-rolls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/briefing/the-morning-stakes-of-the-2024-election.
 **Cooper Flagg flashes in highly-hyped Duke debut with highlight dunks**\
 `Flagg finished with 18 points, seven rebounds and five assists on 6-of-15 shooting in Duke's 96-62 win over Maine.`\
 https://nytimes.com/athletic/5899231/2024/11/04/cooper-flagg-debut-duke-maine/
-
-**Corrections: Nov. 5, 2024**\
-`Corrections that appeared in print on Tuesday, Nov. 5, 2024.`\
-https://nytimes.com/2024/11/04/pageoneplus/corrections-nov-5-2024.html
 

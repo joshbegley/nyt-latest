@@ -1,3 +1,7 @@
+**What You Need to Know About Election Night Results and The New York Times Needle**\
+`Here’s how we will bring you the latest vote totals and estimates of the outcome on the presidential race and other contests around the country.`\
+https://nytimes.com/article/election-2024-results-needle.html
+
 **Arizona Official Releases Voter List Sought by Activists After Court Order**\
 `The secretary of state had objected to turning over names of people without a record of proof of citizenship to lawyers for a right-wing group, fearing the potential consequences.`\
 https://nytimes.com/2024/11/04/us/politics/arizona-voting-citizenship-voter-rolls.html
