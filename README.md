@@ -1,3 +1,7 @@
+**The Science That Makes Baseball Mud ‘Magical’**\
+`Scientists dug up the real dirt on the substance applied to all the baseballs used in the major leagues.`\
+https://nytimes.com/2024/11/04/science/baseball-mud-mlb.html
+
 **Braves' bullpen takes hit with Joe Jiménez sidelined up to 12 months after knee surgery**\
 `Jiménez's situation helps explain why the Braves were suddenly so determined to gain payroll flexibility`\
 https://nytimes.com/athletic/5899261/2024/11/04/braves-joe-jimenez-left-knee-surgery-update/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/04/us/harris-trump-election/trumps-closing-argu
 **Michael Jordan's 23XI, NASCAR have first preliminary hearing**\
 `23XI had its first in-person courtroom showdown with NASCAR during a Monday hearing over a preliminary injunction request.`\
 https://nytimes.com/athletic/5899041/2024/11/04/nascar-23xi-michael-jordan-antitrust-lawsuit/
-
-**Latest Rallying Cry From Trump’s Allies: ‘Men Must Vote!’**\
-`The plea, delivered by figures including Elon Musk, reflects a growing concern from Donald J. Trump’s team that heavy turnout among women could spell trouble on Election Day.`\
-https://nytimes.com/2024/11/04/us/politics/trump-men-must-vote.html
 
