@@ -1,3 +1,11 @@
+**Business leaders are debating when to speak up about the vote.**\
+`Many executives have been reluctant to make any statement about the election, saying that even talking about the peaceful transition of power is political.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/business-leaders-election
+
+**Timberwolves' search for an identity continues, but win over Hornets is a start**\
+`The Wolves were not interested in taking a victory lap after a win over the short-handed Hornets on Monday night.`\
+https://nytimes.com/athletic/5899234/2024/11/05/timberwolves-rhythm-identity/
+
 **Here’s When Polls Open Across the United States**\
 `While millions of Americans have already voted early, millions more will head to polling places on Tuesday to cast their ballots in person.`\
 https://nytimes.com/2024/11/05/us/politics/voting-polls-open-times.html
