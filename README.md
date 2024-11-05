@@ -1,3 +1,7 @@
+**Trump’s closing argument has been filled with lies, distortions and inaccuracies.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/trumps-closing-argument-has-been-filled-with-lies-distortions-and-inaccuracies
+
 **Michael Jordan's 23XI, NASCAR have first preliminary hearing**\
 `23XI had its first in-person courtroom showdown with NASCAR during a Monday hearing over a preliminary injunction request.`\
 https://nytimes.com/athletic/5899041/2024/11/04/nascar-23xi-michael-jordan-antitrust-lawsuit/
@@ -37,8 +41,4 @@ https://nytimes.com/athletic/5898997/2024/11/04/jason-kelce-taylor-swift-fan-alt
 **Jim Harbaugh says hits on Justin Herbert should draw more flags**\
 `“His protection, his safety, there’s probably nothing I think about more than that,” Chargers coach Jim Harbaugh said about Herbert.`\
 https://nytimes.com/athletic/5899011/2024/11/04/jim-harbaugh-justin-herbert-chargers-officiating-penalties/
-
-**Why Trump’s Supporters Should Also Be Wary if He Returns to Power**\
-`If autocracy comes to America, don’t assume it’ll be soft.`\
-https://nytimes.com/2024/11/04/opinion/trump-cheney-kennedy-kelly.html
 
