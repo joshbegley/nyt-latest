@@ -1,3 +1,11 @@
+**Hwang, Son and the growing racism faced by East and South East Asians in football**\
+`Incidents of racism directed at East and South East Asian players have been on the rise`\
+https://nytimes.com/athletic/5897719/2024/11/05/hwang-son-east-southeast-asian-football-racism/
+
+**Vance Mocks Harris as ‘Trash’ in One of His Final Rallies**\
+`Speaking on the campaign trail in Atlanta, Mr. Vance told supporters that “in our movement, we love every citizen of this country.” Seconds later, he called Vice President Kamala Harris “trash.”`\
+https://nytimes.com/2024/11/05/us/politics/vance-harris-trash-trump.html
+
 **Steph Curry returns, takes cautious approach in Warriors' win over Wizards**\
 `Curry was on a strict 24-minute restriction in his first game in more than a week.`\
 https://nytimes.com/athletic/5899201/2024/11/05/steph-curry-returns-warriors-win-wizards/
