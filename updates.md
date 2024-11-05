@@ -1,3 +1,11 @@
+**Why Liverpool fell for Alonso, the 'spray gun' who became an adopted Scouser**\
+`The Spaniard took Liverpool to his heart and is still revered - despite ruling himself out of the race to succeed Jurgen Klopp`\
+https://nytimes.com/athletic/5882579/2024/11/05/liverpool-xabi-alonso-love/
+
+**Amorim's internship with Mourinho at Manchester United - by those who were involved**\
+`Those who studied with United's new coach explain his skills - and how a week in England six years ago influenced him`\
+https://nytimes.com/athletic/5890461/2024/11/05/ruben-amorim-mourinho-intern-manchester-united/
+
 **Real Madrid and AC Milan: The incredible numbers behind two European superpowers**\
 `These two teams have won Europe's elite club competition more than any other clubs (Madrid, 15, and Milan, 7). Here we analyse their records`\
 https://nytimes.com/athletic/5880409/2024/11/05/real-madrid-ac-milan-champions-league-european-cup-record/

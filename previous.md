@@ -1,3 +1,11 @@
+**Why Liverpool fell for Alonso, the 'spray gun' who became an adopted Scouser**\
+`The Spaniard took Liverpool to his heart and is still revered - despite ruling himself out of the race to succeed Jurgen Klopp`\
+https://nytimes.com/athletic/5882579/2024/11/05/liverpool-xabi-alonso-love/
+
+**Amorim's internship with Mourinho at Manchester United - by those who were involved**\
+`Those who studied with United's new coach explain his skills - and how a week in England six years ago influenced him`\
+https://nytimes.com/athletic/5890461/2024/11/05/ruben-amorim-mourinho-intern-manchester-united/
+
 **Real Madrid and AC Milan: The incredible numbers behind two European superpowers**\
 `These two teams have won Europe's elite club competition more than any other clubs (Madrid, 15, and Milan, 7). Here we analyse their records`\
 https://nytimes.com/athletic/5880409/2024/11/05/real-madrid-ac-milan-champions-league-european-cup-record/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/world/asia/hong-kong-subdivided-housing.html
 **Whether Trump or Harris, Pessimism Reigns in Russia Over U.S. Election Winner**\
 `Russian officials feel disrespected by the Democrats and betrayed by Donald J. Trump, who lavished praise on President Vladimir V. Putin but made decisions the Kremlin saw as benefiting Ukraine.`\
 https://nytimes.com/2024/11/05/world/europe/russia-us-election-winner-pessimism.html
-
-**Clues to a Trump or Harris Victory Could Emerge Early. Here’s What to Look For.**\
-`It has been a race unlike any other, and declaring a winner could take a while. Here are some potential harbingers.`\
-https://nytimes.com/2024/11/05/us/elections/election-watch-harris-trump.html
-
-**Fantasy football Week 10 waiver wire: Streamers, Quentin Johnston, Cedric Tillman**\
-`Jake Ceily runs down his favorite options on the waiver wire, including Quentin Johnston, who has shown a knack for big plays this season. `\
-https://nytimes.com/athletic/5897613/2024/11/05/fantasy-football-week-10-waiver-wire-streamers-quentin-johnston-cedric-tillman/
 
