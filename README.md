@@ -6,6 +6,10 @@ https://nytimes.com/interactive/2024/11/05/us/elections/results-abortion.html
 `See results for ballot measures on marijuana in the 2024 general election`\
 https://nytimes.com/interactive/2024/11/05/us/elections/results-marijuana.html
 
+**Alabama First Congressional District Election Results**\
+`Get live results and maps from the 2024 Alabama general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-alabama-us-house-1.html
+
 **California 33rd Congressional District Election Results**\
 `Get live results and maps from the 2024 California general election.`\
 https://nytimes.com/interactive/2024/11/05/us/elections/results-california-us-house-33.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/05/us/elections/results-nebraska-initiat
 **Utah Constitutional Amendment C Election Results: Elections of County Sheriffs**\
 `Get live results and maps from the 2024 Utah general election.`\
 https://nytimes.com/interactive/2024/11/05/us/elections/results-utah-constitutional-amendment-c-elections-of-county-sheriffs.html
-
-**Oregon Measure 118 Election Results: Increase Corporate Tax and Issue Rebates to Residents**\
-`Get live results and maps from the 2024 Oregon general election.`\
-https://nytimes.com/interactive/2024/11/05/us/elections/results-oregon-measure-118-increase-corporate-tax-and-issue-rebates-to-residents.html
 
