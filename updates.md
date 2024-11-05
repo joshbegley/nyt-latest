@@ -1,3 +1,11 @@
+**Russia Plotted to Put Incendiary Devices on Cargo Planes, Officials Say**\
+`Western officials are investigating whether devices planted at shipping hubs in Europe may have been a test run by Russian operatives for placing them on planes bound for the U.S.`\
+https://nytimes.com/2024/11/05/world/europe/russia-plot-dhl-planes.html
+
+**Trump, Vance and Allies Hurl Insults at Women as Race Ends**\
+`Donald J. Trump has used misogynistic language to refer to Kamala Harris, fostering an environment among his allies and at his rallies that revels in gendered insults.`\
+https://nytimes.com/2024/11/05/us/politics/trump-nancy-pelosi-liz-cheney-women.html
+
 **NFL MVP odds: Allen, Jackson continue to battle for top spot**\
 `Josh Allen and Lamar Jackson head into Week 10 in a dead lock in MVP odds. Who else could contend for the crown?`\
 https://nytimes.com/athletic/5900549/2024/11/05/nfl-mvp-odds-week-10-josh-allen-lamar-jackson/
