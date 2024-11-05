@@ -1,3 +1,11 @@
+**Joe Rogan Endorses Trump, and Trump Calls Him ‘the Biggest There Is’**\
+`Mr. Rogan has hosted Donald J. Trump, JD Vance and Elon Musk for lengthy and friendly interviews in recent weeks.`\
+https://nytimes.com/2024/11/04/us/politics/trump-joe-rogan-endorsement.html
+
+**What Time Do the Polls Close?**\
+`This guide offers a state-by-state breakdown, with some tips on what results to watch for at each hour of the night.`\
+https://nytimes.com/interactive/2024/us/elections/poll-closing-times.html
+
 **Cody Bellinger opting in gives Cubs 'clarity' as they head into critical offseason**\
 `Jed Hoyer said Bellinger's decision was good news: "Now we know what our roster looks like and we can go about building the team."`\
 https://nytimes.com/athletic/5899412/2024/11/04/cubs-cody-bellinger-option/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/11/04/upshot/ten-minute-challenge-election.
 **Activists File ‘Bad-Faith’ Ballot Challenges, Pennsylvania Officials Say**\
 `Right-wing activists and G.O.P. state lawmakers have questioned the eligibility of some 4,000 people who requested ballots.`\
 https://nytimes.com/2024/11/04/us/politics/pennsylvania-ballot-challenges.html
-
-**​Despite Trump’s Claim, No Ballots Have Been Found Fraudulent in Lancaster County**\
-`The county and three others are investigating voter registration forms, not ballots, that were flagged as suspicious. Some were delivered to election offices by an Arizona-based company.`\
-https://nytimes.com/2024/11/04/us/trump-ballot-fraud-lancaster-county.html
-
-**The Shady Gimmick Behind Elon Musk’s Million-Dollar Game**\
-`No, those “winners” weren’t random.`\
-https://nytimes.com/live/2024/10/30/opinion/thepoint/the-shady-gimmick-behind-elon-musks-million-dollar-game
 
