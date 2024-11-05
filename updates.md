@@ -1,3 +1,7 @@
+**Late Night Addresses Your Election Eve Anxiety**\
+`“It feels like the whole country is waiting to get the results of a biopsy,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/11/05/arts/television/late-night-election-eve.html
+
 **Word of the Day: indolence**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/05/learning/word-of-the-day-indolence.html
