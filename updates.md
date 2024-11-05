@@ -1,3 +1,15 @@
+**Who Says You Can’t Live Off the Grid in Manhattan?**\
+`It takes dedication, solar panels and lots of vegetables. And it probably means putting dating on hold.`\
+https://nytimes.com/2024/11/05/nyregion/joshua-spodek-eco-influencer.html
+
+**Standard Time Begins**\
+`Sunday marked the end of Daylight Saving Time — and of 6 p.m. sunsets. How does this time of year make you feel?`\
+https://nytimes.com/2024/11/05/learning/standard-time-begins.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/05/crosswords/spelling-bee-forum.html
+
 **Fulham 2 Brentford 1: A tale of 43 crosses, two late goals and one very dramatic comeback**\
 `Fulham produced 43 crosses against Brentford - and their refusal to change tack resulted in one of the most dramatic wins of the season`\
 https://nytimes.com/athletic/5898948/2024/11/05/fulham-brentford-crosses-harry-wilson/
