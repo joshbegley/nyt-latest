@@ -1,3 +1,11 @@
+**Business leaders are debating when to speak up about the vote.**\
+`Many executives have been reluctant to make any statement about the election, saying that even talking about the peaceful transition of power is political.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/business-leaders-election
+
+**Timberwolves' search for an identity continues, but win over Hornets is a start**\
+`The Wolves were not interested in taking a victory lap after a win over the short-handed Hornets on Monday night.`\
+https://nytimes.com/athletic/5899234/2024/11/05/timberwolves-rhythm-identity/
+
 **Here’s When Polls Open Across the United States**\
 `While millions of Americans have already voted early, millions more will head to polling places on Tuesday to cast their ballots in person.`\
 https://nytimes.com/2024/11/05/us/politics/voting-polls-open-times.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/world/middleeast/israel-west-bank-raid.html
 **NFL Week 9 best and worst coaching decisions: Cardinals OC Drew Petzing outwits Bears**\
 `Also, the Eagles and Seahawks have been scrutinized for aggressive decisions Sunday. Were they the right ones?`\
 https://nytimes.com/athletic/5898110/2024/11/05/nfl-week-9-worst-best-coaching-decisions-nguyen/
-
-**Where the Angels' roster stands as free agency begins**\
-`GM Perry Minasian is hoping the work he does over the next week will establish the framework to turn around the Angels' fortunes.`\
-https://nytimes.com/athletic/5898514/2024/11/05/angels-roster-decisions-free-agency/
-
-**'I felt like a rookie again': Jake DeBrusk opens up about Canucks transition**\
-`DeBrusk sat down with The Athletic to discuss transitioning to a new team, trying to build chemistry with the Canucks' stars and more.`\
-https://nytimes.com/athletic/5899470/2024/11/05/canucks-jake-debrusk-nhl/
 
