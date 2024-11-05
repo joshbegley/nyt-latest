@@ -1,3 +1,12 @@
+**Nebraska hires Dana Holgorsen as offensive consultant: Source**\
+`Holgorsen has roots in Big Ten territory. He grew up in Davenport, Iowa, and played for three seasons at Iowa Wesleyan in Mount Pleasant.`\
+https://nytimes.com/athletic/5900461/2024/11/05/nebraska-dana-holgorsen-offense/
+
+**The Innovation Effect**\
+` A cutting-edge new therapy to treat prostate cancer shows how innovation in life sciences ripples out all the way from the lab to the living room and beyond.
+`\
+https://nytimes.com/paidpost/novartis/the-innovation-effect.html
+
 **Panthers trade WR Jonathan Mingo to Cowboys: How does WR fit in Dallas?**\
 `The Panthers are sending Mingo and a 2025 seventh-round pick to Dallas in exchange for a 2025 fourth-round pick, per the sources.`\
 https://nytimes.com/athletic/5900386/2024/11/05/jonathan-mingo-cowboys-panthers-trade/
