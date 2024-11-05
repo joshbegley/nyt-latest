@@ -1,3 +1,7 @@
+**Sabalenka secures year-end world No. 1 for the first time**\
+`Iga Swiatek's defeat to Coco Gauff in Riyadh confirms Sabalenka's place at the summit.`\
+https://nytimes.com/athletic/5899798/2024/11/05/sabalenka-wta-rankings-world-number-one-year-end/
+
 **Where Can You Register to Vote on Election Day?**\
 `Vote.gov provides state-specific instructions on how and where to register and what kind of identification is needed.`\
 https://nytimes.com/2024/11/05/us/politics/same-day-voter-registration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5900441/2024/11/05/declan-rice-arsenal-squad-inter/
 **U.S. Braces for Foreign Election Threats, Especially in Swing States**\
 `Officials anticipate a rise in false narratives but do not expect cyberattacks on local voting infrastructure.`\
 https://nytimes.com/2024/11/05/us/politics/election-threats-russia.html
-
-**Bernie Marcus, Co-Founder of Home Depot, Is Dead at 95**\
-`In 1978 he came up with the idea of a warehouselike store that would appeal to the do-it-yourself homeowner. The chain became the world’s largest home-improvement retailer.`\
-https://nytimes.com/2024/11/05/business/bernie-marcus-dead.html
 
