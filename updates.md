@@ -1,3 +1,7 @@
+**The Candidates Keep Talking About Electric Cars in Michigan. Here’s Why.**\
+`Electric vehicles are a top-tier issue in Michigan, where both candidates have framed a vote for their opponent as a threat to the state’s auto industry.`\
+https://nytimes.com/2024/11/04/us/michigan-electric-vehicles-trump-harris.html
+
 **In Montana, Republican Tim Sheehy tries to outrun Jon Tester, and scrutiny.**\
 `By Carl Hulse`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/in-montana-republican-tim-sheehy-tries-to-outrun-jon-tester-and-scrutiny

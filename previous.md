@@ -1,3 +1,7 @@
+**The Candidates Keep Talking About Electric Cars in Michigan. Here’s Why.**\
+`Electric vehicles are a top-tier issue in Michigan, where both candidates have framed a vote for their opponent as a threat to the state’s auto industry.`\
+https://nytimes.com/2024/11/04/us/michigan-electric-vehicles-trump-harris.html
+
 **In Montana, Republican Tim Sheehy tries to outrun Jon Tester, and scrutiny.**\
 `By Carl Hulse`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/in-montana-republican-tim-sheehy-tries-to-outrun-jon-tester-and-scrutiny
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/04/us/politics/tucker-carlson-hurricanes-abortion-de
 **Mets GM meetings notes: The pros and cons of Luis Severino receiving a qualifying offer**\
 `The Mets have openings in the starting rotation and Severino is coming off a good season, but he could prefer a longer-term deal.`\
 https://nytimes.com/athletic/5899135/2024/11/04/mets-luis-severino-qualifying-offer/
-
-**Juan Soto and Corbin Burnes among 13 free agents given qualifying offers**\
-`Only 13 of the 131 players ever to receive a qualifying offer have accepted it. The 2024 qualifying offer is set at $21.05 million.`\
-https://nytimes.com/athletic/5899013/2024/11/04/mlb-qualifying-offers-explained-free-agency/
 
