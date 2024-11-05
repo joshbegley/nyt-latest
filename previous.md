@@ -20,7 +20,7 @@ https://nytimes.com/2024/11/05/us/politics/80-million-early-votes.html
 
 **Irish Leader Plans to Call Election Later This Week**\
 `Simon Harris, Ireland’s prime minister, said Tuesday that he would dissolve parliament later this week, setting the stage for a general election by the end of the month.`\
-https://nytimes.com/2024/11/05/world/europe/irish-leader-plans-to-call-election-later-this-week.html
+https://nytimes.com/2024/11/05/world/europe/ireland-election-simon-harris.html
 
 **What I know about Van Nistelrooy and his relationship with United**\
 `The Dutchman has written the foreword to Andy Mitten's new book about United in the noughties and highlighted his feelings for the club`\

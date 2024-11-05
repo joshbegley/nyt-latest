@@ -1,3 +1,7 @@
+**Irish Leader Plans to Call Election Later This Week**\
+`Simon Harris, Ireland’s prime minister, said Tuesday that he would dissolve parliament later this week, setting the stage for a general election by the end of the month.`\
+https://nytimes.com/2024/11/05/world/europe/ireland-election-simon-harris.html
+
 **Bernie Marcus, Co-Founder of Home Depot, Is Dead at 95**\
 `In 1978 he came up with the idea of a warehouselike store that would appeal to the do-it-yourself homeowner. The chain became the world’s largest home-improvement retailer.`\
 https://nytimes.com/2024/11/05/business/bernie-marcus-dead.html
