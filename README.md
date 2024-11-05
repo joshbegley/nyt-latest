@@ -1,3 +1,7 @@
+**It’s Election Day**\
+`Today is likely to change the trajectory of the United States.`\
+https://nytimes.com/2024/11/05/briefing/election-day-2024-harris-trump.html
+
 **Trump Media’s Stock Is Set for Even Wilder Ride After the Election**\
 `No stock is more directly linked to the outcome than Trump Media & Technology Group, the parent company of Truth Social.`\
 https://nytimes.com/2024/11/05/business/trump-media-stock-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899871/2024/11/05/ask-alan-shearer-slot-liverpool-
 **On the issues: Where Harris and Trump stand on immigration.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-immigration
-
-**Twins face tough offseason decisions but say it's 'business as usual' despite sale of team**\
-`Falvey said the Pohlads' intention to sell the team doesn’t impact how he’ll handle roster construction. But lots of tough decisions await.`\
-https://nytimes.com/athletic/5899385/2024/11/05/twins-offseason-decisions-team-sale/
 
