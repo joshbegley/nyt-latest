@@ -1,3 +1,15 @@
+**Search for the Missing Grows Desperate Amid Mud and Confusion in Spain**\
+`A week after catastrophic floods, families are unsure if their relatives are alive under the sludge and debris. The government has still not issued a public tally of the missing.`\
+https://nytimes.com/2024/11/05/world/europe/spain-floods-missing-dead.html
+
+**NBA Power Rankings: Cavs soar, Knicks drop and a spin through every team's rotation**\
+`OKC claims the top spot after two weeks, while the Bucks and Sixers are in a tier you don't want to be in.`\
+https://nytimes.com/athletic/5900074/2024/11/05/nba-power-rankings-cavs-knicks-celtics-lakers/
+
+**Hull's Zambrano suspended for breaching anti-doping rules**\
+`Hull City midfielder Oscar Zambrano has been suspended over a breach of anti-doping rules.`\
+https://nytimes.com/athletic/5900385/2024/11/05/oscar-zambrano-doping-ban-hull-ecuador/
+
 **Nebraska hires Dana Holgorsen as offensive consultant: Source**\
 `Holgorsen has roots in Big Ten territory. He grew up in Davenport, Iowa, and played for three seasons at Iowa Wesleyan in Mount Pleasant.`\
 https://nytimes.com/athletic/5900461/2024/11/05/nebraska-dana-holgorsen-offense/

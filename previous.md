@@ -1,3 +1,15 @@
+**Search for the Missing Grows Desperate Amid Mud and Confusion in Spain**\
+`A week after catastrophic floods, families are unsure if their relatives are alive under the sludge and debris. The government has still not issued a public tally of the missing.`\
+https://nytimes.com/2024/11/05/world/europe/spain-floods-missing-dead.html
+
+**NBA Power Rankings: Cavs soar, Knicks drop and a spin through every team's rotation**\
+`OKC claims the top spot after two weeks, while the Bucks and Sixers are in a tier you don't want to be in.`\
+https://nytimes.com/athletic/5900074/2024/11/05/nba-power-rankings-cavs-knicks-celtics-lakers/
+
+**Hull's Zambrano suspended for breaching anti-doping rules**\
+`Hull City midfielder Oscar Zambrano has been suspended over a breach of anti-doping rules.`\
+https://nytimes.com/athletic/5900385/2024/11/05/oscar-zambrano-doping-ban-hull-ecuador/
+
 **Nebraska hires Dana Holgorsen as offensive consultant: Source**\
 `Holgorsen has roots in Big Ten territory. He grew up in Davenport, Iowa, and played for three seasons at Iowa Wesleyan in Mount Pleasant.`\
 https://nytimes.com/athletic/5900461/2024/11/05/nebraska-dana-holgorsen-offense/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5899515/2024/11/05/jaden-ivey-pistons-lakers/
 **Can Donald Trump Still Vote as a Convicted Felon? Here’s What to Know.**\
 `Prohibitions on voting will not apply to the former president, who was convicted of 34 felony counts in New York State this year.`\
 https://nytimes.com/2024/11/05/us/politics/can-trump-vote-felon.html
-
-**Britain’s Queen Camilla Cancels Royal Engagements Because of Illness**\
-`Buckingham Palace said Camilla, 77, was unwell with a chest infection and had been advised to rest.`\
-https://nytimes.com/2024/11/05/world/europe/queen-camilla-infection-uk-royal.html
-
-**Fantasy football Week 10 drops: Bid farewell to Travis Etienne Jr., Caleb Williams**\
-`Gary Davenport gives Week 10 drop advice, suggests parting ways with Travis Etienne Jr., Caleb Williams, and others.  `\
-https://nytimes.com/athletic/5900196/2024/11/05/fantasy-football-week-10-drops-etienne-williams/
-
-**Politics, Power and Campus Culture**\
-`Readers discuss university governance and identity politics. Also: An election absence from school; feeling “despairalyzed”; a Marathon memory; a wedding dress.`\
-https://nytimes.com/2024/11/05/opinion/politics-power-campus-culture.html
 
