@@ -1,3 +1,11 @@
+**Mavericks head coach Kidd makes bid for Crystal Palace stake**\
+`Dallas Mavericks head coach Jason Kidd is part of a consortium that has made an offer to purchase a stake in Premier League club Crystal Palace, sources briefed on the proposed deal have told The Athletic.`\
+https://nytimes.com/athletic/5900551/2024/11/05/crystal-palace-takeover-textor-kidd/
+
+**A Climate-Focused Guide to Election Day**\
+`As the nation heads to the polls, here’s a guide to understanding the biggest climate and environmental issues at stake.`\
+https://nytimes.com/2024/11/05/climate/2024-election-climate-change.html
+
 **Jets trade Mike Williams to Steelers for fifth-round pick**\
 `Williams signed with the Jets in the offseason but became expendable after New York dealt for Davante Adams.`\
 https://nytimes.com/athletic/5900947/2024/11/05/mike-williams-trade-jets-steelers-nfl/
