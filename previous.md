@@ -1,3 +1,7 @@
+**A N.Y. State Assembly candidate is taken into police custody at a polling site in Queens.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/assembly-rinaldi-arrest-ny
+
 **The Israeli Defense Minister Is Fired in an ‘Act of Madness’**\
 `Netanyahu may have hoped the United States was too distracted by Election Day to protest.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/gallant-fired-israel-netanyahu
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5901216/2024/11/05/tredavious-white-ravens-rams-tra
 **Texans send DT Khalil Davis to 49ers for 2026 seventh-round pick**\
 `Davis, a fourth-year journeyman with a patchy resume, now finds himself with his sixth organization.`\
 https://nytimes.com/athletic/5901309/2024/11/05/khalil-davis-49ers-texans-trade/
-
-**Panthers keep Bryce Young, add a fourth-rounder: Analyzing Carolina's trade deadline decisions**\
-`The Panthers should feel good about getting a fourth-round pick for Mingo, who had fallen behind rookies Xavier Legette and Jalen Coker.`\
-https://nytimes.com/athletic/5901264/2024/11/05/panthers-trade-deadling-mingo-bryce-young/
 

@@ -1,3 +1,7 @@
+**A N.Y. State Assembly candidate is taken into police custody at a polling site in Queens.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/assembly-rinaldi-arrest-ny
+
 **The Israeli Defense Minister Is Fired in an ‘Act of Madness’**\
 `Netanyahu may have hoped the United States was too distracted by Election Day to protest.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/gallant-fired-israel-netanyahu
