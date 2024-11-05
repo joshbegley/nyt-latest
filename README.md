@@ -1,11 +1,3 @@
-**In Montana, Republican Tim Sheehy tries to outrun Jon Tester, and scrutiny.**\
-`By Carl Hulse`\
-https://nytimes.com/live/2024/11/04/us/harris-trump-election/in-montana-republican-tim-sheehy-tries-to-outrun-jon-tester-and-scrutiny
-
-**Meta Permits Its A.I. Models to Be Used for U.S. Military Purposes**\
-`The shift in policy, covering government agencies and contractors working on national security, is intended to promote “responsible and ethical” innovations, the company said.`\
-https://nytimes.com/2024/11/04/technology/meta-ai-military.html
-
 **Man Planned to Use Drone With Explosive to Attack Substation, U.S. Says**\
 `The man, Skyler Philippi, 24, of Columbia, Tenn., targeted the energy facility to try to push his white supremacist ideology, according to prosecutors.`\
 https://nytimes.com/2024/11/04/us/columbia-energy-facility-weapon-mass-destruction.html
@@ -37,4 +29,16 @@ https://nytimes.com/athletic/5899135/2024/11/04/mets-luis-severino-qualifying-of
 **Juan Soto and Corbin Burnes among 13 free agents given qualifying offers**\
 `Only 13 of the 131 players ever to receive a qualifying offer have accepted it. The 2024 qualifying offer is set at $21.05 million.`\
 https://nytimes.com/athletic/5899013/2024/11/04/mlb-qualifying-offers-explained-free-agency/
+
+**How the Death of a Celebrity Squirrel Became a Republican Rallying Cry**\
+`After P’Nut and a raccoon named Fred were taken by wildlife agents and euthanized, Donald Trump and local candidates accused New York Democrats of “state overreach.”`\
+https://nytimes.com/2024/11/04/nyregion/peanut-the-squirrel-euthanized-trump.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Friendly reminder: This week&#8217;s Mailbag will go up the morning <em>after</em> the committee&#8217;s first rankings. Plan or time your questions accordingly.</p>
+<p>Please include your city. And please do not mention the election. (Like, ever.)</p>
+<p>&nbsp;</p>
+<p>&nbsp;</p>
+`\
+https://nytimes.com/athletic/5899147/2024/11/04/submit-a-question-for-stewart-mandels-college-football-mailbag-280/
 
