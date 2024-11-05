@@ -1,3 +1,11 @@
+**The Briefing: Sporting Lisbon 4 Manchester City 1 - Gyokeres upstages Haaland in Ruben Amorim's farewell home game**\
+`Analysis of a difficult Champions League night for Manchester City `\
+https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-result-anaysis/
+
+**What Elon Musk Told His 203 Million X Followers on Election Day**\
+`The world’s richest man continued stumping for former President Donald J. Trump and pushing conspiracy theories about voting fraud.`\
+https://nytimes.com/2024/11/05/us/politics/what-elon-musk-told-his-203-million-x-followers-on-election-day.html
+
 **An Idaho Health Department Is Barred from Offering Covid Shots**\
 `Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations`\
 https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html

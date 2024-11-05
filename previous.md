@@ -1,3 +1,11 @@
+**The Briefing: Sporting Lisbon 4 Manchester City 1 - Gyokeres upstages Haaland in Ruben Amorim's farewell home game**\
+`Analysis of a difficult Champions League night for Manchester City `\
+https://nytimes.com/athletic/5897541/2024/11/05/sporting-lisbon-manchester-city-result-anaysis/
+
+**What Elon Musk Told His 203 Million X Followers on Election Day**\
+`The world’s richest man continued stumping for former President Donald J. Trump and pushing conspiracy theories about voting fraud.`\
+https://nytimes.com/2024/11/05/us/politics/what-elon-musk-told-his-203-million-x-followers-on-election-day.html
+
 **An Idaho Health Department Is Barred from Offering Covid Shots**\
 `Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations`\
 https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/election-voter-fraud.html
 **When Quincy Jones Worked With Michael Jackson, ‘We Had No Limitations’**\
 `Their work on “Off the Wall,” “Thriller,” and “Bad” set records for commercial success and defined the sound of the 1980s.`\
 https://nytimes.com/2024/11/05/arts/music/quincy-jones-michael-jackson-thriller-bad.html
-
-**Many Americans Already Voted, but Election Day Turnout Is Critical**\
-`Margins are expected to be slim, and in-person votes could be the key to a victory. Some polling places had long lines, while others moved voters quickly.`\
-https://nytimes.com/2024/11/05/us/politics/voter-turnout-election-day.html
-
-**Aiming to address secondary concerns, Ravens trade for Rams CB White**\
-`Baltimore hopes to improve its secondary after allowing the most passing yards per game in the NFL.`\
-https://nytimes.com/athletic/5901216/2024/11/05/tredavious-white-ravens-rams-trade-nfl/
 
