@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Travis Hunter, Cam Ward co-favorites in a tight race**\
+`Cam Ward and Travis Hunter are the current co-favorites in a tight race for the Heisman Trophy.`\
+https://nytimes.com/athletic/5900731/2024/11/05/heisman-trophy-odds-travis-hunter-cam-ward/
+
 **Cash ruled out of Villa's Champions League trip to Club Bruges**\
 `Matty Cash will miss Aston Villa’s Champions League trip to Belgian side Club Bruges on Wednesday.`\
 https://nytimes.com/athletic/5900757/2024/11/05/matty-cash-aston-villa-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/arts/music/amplifier-newsletter-bad-bunny-basebal
 **Mavericks head coach Kidd makes bid for Crystal Palace stake**\
 `Dallas Mavericks head coach Jason Kidd is part of a consortium that has made an offer to purchase a stake in Premier League club Crystal Palace, sources briefed on the proposed deal have told The Athletic.`\
 https://nytimes.com/athletic/5900551/2024/11/05/crystal-palace-takeover-textor-kidd/
-
-**A Climate-Focused Guide to Election Day**\
-`As the nation heads to the polls, here’s a guide to understanding the biggest climate and environmental issues at stake.`\
-https://nytimes.com/2024/11/05/climate/2024-election-climate-change.html
 
