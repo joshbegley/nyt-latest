@@ -1,3 +1,7 @@
+**Why Connor Hellebuyck is still frustrated with NHL's goaltender interference rules**\
+`Hellebuyck, a longtime member of the NHL's competition committee, was upset with a call in Winnipeg's game on Sunday.`\
+https://nytimes.com/athletic/5898572/2024/11/04/connor-hellebuyck-nhl-goaltender-interference/
+
 **Trump’s closing argument has been filled with lies, distortions and inaccuracies.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/11/04/us/harris-trump-election/trumps-closing-argument-has-been-filled-with-lies-distortions-and-inaccuracies
@@ -37,8 +41,4 @@ https://nytimes.com/athletic/5899147/2024/11/04/submit-a-question-for-stewart-ma
 **Jason Kelce addresses altercation with fan who insulted Travis about dating Taylor Swift**\
 `The ESPN analyst and former Eagles center commented on the incident at the start of "Monday Night Countdown."`\
 https://nytimes.com/athletic/5898997/2024/11/04/jason-kelce-taylor-swift-fan-altercation-comments-espn/
-
-**Jim Harbaugh says hits on Justin Herbert should draw more flags**\
-`“His protection, his safety, there’s probably nothing I think about more than that,” Chargers coach Jim Harbaugh said about Herbert.`\
-https://nytimes.com/athletic/5899011/2024/11/04/jim-harbaugh-justin-herbert-chargers-officiating-penalties/
 
