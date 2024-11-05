@@ -1,3 +1,15 @@
+**Bernie Marcus, Co-Founder of Home Depot, Is Dead at 95**\
+`In 1978 he came up with the idea of a warehouselike store that would appeal to the do-it-yourself homeowner. The chain became the world’s largest home-improvement retailer.`\
+https://nytimes.com/2024/11/05/business/bernie-marcus-dead.html
+
+**The Predictable Hypocrisy of Megyn Kelly**\
+`She smooched a man who continues to denigrate women in public statements.`\
+https://nytimes.com/live/2024/10/30/opinion/thepoint/megyn-kelly-trump-rally
+
+**F1 mailbag: Lando Norris what-ifs and Max Verstappen versus the British press**\
+`Plus: What do we make of Liam Lawson's performance so far? tAnd we try to unpack the FIA's decisions around the race. `\
+https://nytimes.com/athletic/5900432/2024/11/05/f1-mailbag-brazil-gp-lando-norris-max-verstappen/
+
 **The Bounce: Are the 8-0 Cavaliers the best in the East?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5900145/2024/11/05/donovan-mitchell-cleveland-cavaliers-caitlin-clark-iowa-nba-wnba-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5899826/2024/11/05/dominic-solanke-shooting-shots-t
 **A Hollywood Drought and a Game Show Dream**\
 `It’s tough to get work in film and television these days. So one unemployed writer decided to study up on “The Price Is Right.”`\
 https://nytimes.com/2024/11/05/arts/television/price-is-right-emily-winter.html
-
-**Four Weeknight Dishes and Baked Alfredo Pasta**\
-`Ali Slagle’s baked Alfredo pasta with broccoli rabe and lemon isn’t exactly quick, but it does make for some quality time in the kitchen.`\
-https://nytimes.com/2024/11/05/dining/four-weeknight-dishes-and-baked-alfredo-pasta.html
-
-**The Hyper-Close House Race That Could Make All the Difference**\
-`If Democrats have any hope of taking control of the House, they need to win races like this one.`\
-https://nytimes.com/2024/11/05/opinion/editorials/the-hyper-close-house-race-that-could-make-all-the-difference.html
-
-**There Are Battleground States — and Then There’s North Carolina**\
-`If Harris wins here, she wins the whole shebang.`\
-https://nytimes.com/2024/11/05/opinion/north-carolina-harris-trump.html
 
