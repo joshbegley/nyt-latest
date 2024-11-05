@@ -1,3 +1,11 @@
+**Bengals trade for Bears RB Khalil Herbert**\
+`Herbert wasn’t going to be re-signed — the Bears are set with D’Andre Swift and Roschon Johnson.`\
+https://nytimes.com/athletic/5900203/2024/11/05/khalil-herbert-bengals-bears-trade/
+
+**Amick: What's really behind all these Joel Embiid headlines**\
+`Embiid's availability has long been an issue for the franchise, though there's hope he could return as soon as Wednesday.`\
+https://nytimes.com/athletic/5899676/2024/11/05/joel-embiid-sixers-injury-locker-room-nba/
+
 **Cowboys Today: One exec's take on Dak and what are chances Dallas makes deadline deal?**\
 `Does Dak Prescott's injury have an effect on what the Cowboys do — or don't do — at the trade deadline? Plus, more on that failed fake punt.`\
 https://nytimes.com/athletic/5899648/2024/11/05/cowboys-today-dak-prescott-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5900052/2024/11/05/wnba-cards-panini-caitlin-clark/
 **Gazans Fear Neither Candidate in U.S. Election Will Help Them**\
 `American politics have not been topmost in the minds of Gazans. “We only need one thing: for this war to come to an end,” one man said.`\
 https://nytimes.com/2024/11/05/world/middleeast/gaza-us-election-harris-trump.html
-
-**Lions trade for Browns' Za'Darius Smith to fill need at DE**\
-`The NFC-leading Lions (7-1) needed an edge rusher after the season-ending injury to Aidan Hutchinson.`\
-https://nytimes.com/athletic/5895251/2024/11/05/zadarius-smith-lions-browns-trade/
-
-**Eight key Celtics stats through 8 games, including Jayson Tatum's early haymakers**\
-`Derrick White's importance and Payton Pritchard's 3-point barrage have also fueled Boston's 7-1 start.`\
-https://nytimes.com/athletic/5899718/2024/11/05/celtics-jayson-tatum-derrick-white-stats/
 
