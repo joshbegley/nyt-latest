@@ -1,3 +1,7 @@
+**Lions trade for Browns' Za'Darius Smith to fill need at DE**\
+`The NFC-leading Lions (7-1) needed an edge rusher after the season-ending injury to Aidan Hutchinson.`\
+https://nytimes.com/athletic/5895251/2024/11/05/zadarius-smith-lions-browns-trade/
+
 **Gazans Fear Neither Candidate in U.S. Election Will Help Them**\
 `American politics have not been topmost in the minds of Gazans. “We only need one thing: for this war to come to an end,” one man said.`\
 https://nytimes.com/2024/11/05/world/middleeast/gaza-us-election-harris-trump.html
