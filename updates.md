@@ -1,3 +1,7 @@
+**Lightning Strikes Soccer Team in Peru, Killing Player**\
+`A video of the incident shows a flash of light and then several players instantly dropping to the ground.`\
+https://nytimes.com/2024/11/05/world/americas/video-lightning-soccer-peru.html
+
 **A Former Steelworker Makes a Tough Decision at the Polls**\
 `She was torn until the last minute.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/steelworker-indiana-vote
