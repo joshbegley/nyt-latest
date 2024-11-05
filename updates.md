@@ -1,3 +1,7 @@
+**A 6-Hour Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
+`The lines to cast a ballot at the Banana Factory, an art center in Bethlehem, Pa., stretched for blocks, voters said.`\
+https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
+
 **An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
 `After the death of Murray McCory, a founder of the outdoors equipment company JanSport, readers recalled how their backpacks served them on life’s journeys.`\
 https://nytimes.com/2024/11/05/business/jansport-memories.html

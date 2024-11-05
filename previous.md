@@ -1,5 +1,5 @@
-**Hourslong Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
-`Voters said the wait to cast a ballot stretched to more than six hours at the Banana Factory, an art center in Bethlehem, Pa.`\
+**A 6-Hour Wait at Polling Place Near Lehigh University Leads to Request to Extend Voting**\
+`The lines to cast a ballot at the Banana Factory, an art center in Bethlehem, Pa., stretched for blocks, voters said.`\
 https://nytimes.com/2024/11/05/us/politics/lehigh-voting-lines.html
 
 **An ‘Old Reliable Friend’: Readers Share Their JanSport Memories**\
