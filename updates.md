@@ -1,3 +1,11 @@
+**In Montana, Republican Tim Sheehy tries to outrun Jon Tester, and scrutiny.**\
+`By Carl Hulse`\
+https://nytimes.com/live/2024/11/04/us/harris-trump-election/in-montana-republican-tim-sheehy-tries-to-outrun-jon-tester-and-scrutiny
+
+**Meta Permits Its A.I. Models to Be Used for U.S. Military Purposes**\
+`The shift in policy, covering government agencies and contractors working on national security, is intended to promote “responsible and ethical” innovations, the company said.`\
+https://nytimes.com/2024/11/04/technology/meta-ai-military.html
+
 **Man Planned to Use Drone With Explosive to Attack Substation, U.S. Says**\
 `The man, Skyler Philippi, 24, of Columbia, Tenn., targeted the energy facility to try to push his white supremacist ideology, according to prosecutors.`\
 https://nytimes.com/2024/11/04/us/columbia-energy-facility-weapon-mass-destruction.html
