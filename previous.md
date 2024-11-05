@@ -1,40 +1,40 @@
-**‘Love Is Blind’ Resets, ‘Survivor’ Stalls: A Reality TV Check-in**\
-`A palate-cleanse conversation about the state of legacy reality franchises, and what might come next for them.`\
-https://nytimes.com/2024/11/05/arts/music/popcast-reality-tv.html
+**Abortion on the Ballot**\
+`See results for ballot measures on abortion in the 2024 general election`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-abortion.html
 
-**Lightning Strikes Soccer Team in Peru, Killing Player**\
-`A video of the incident shows a flash of light and then several players instantly dropping to the ground.`\
-https://nytimes.com/2024/11/05/world/americas/video-lightning-soccer-peru.html
+**Marijuana and Drug Policy on the Ballot**\
+`See results for ballot measures on marijuana in the 2024 general election`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-marijuana.html
 
-**A Former Steelworker Makes a Tough Decision at the Polls**\
-`She was torn until the last minute.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/steelworker-indiana-vote
+**Alabama First Congressional District Election Results**\
+`Get live results and maps from the 2024 Alabama general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-alabama-us-house-1.html
 
-**Heisman Trophy odds: Travis Hunter, Cam Ward co-favorites in a tight race**\
-`Cam Ward and Travis Hunter are the current co-favorites in a tight race for the Heisman Trophy.`\
-https://nytimes.com/athletic/5900731/2024/11/05/heisman-trophy-odds-travis-hunter-cam-ward/
+**California 33rd Congressional District Election Results**\
+`Get live results and maps from the 2024 California general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-california-us-house-33.html
 
-**Cash ruled out of Villa's Champions League trip to Club Bruges**\
-`Matty Cash will miss Aston Villa’s Champions League trip to Belgian side Club Bruges on Wednesday.`\
-https://nytimes.com/athletic/5900757/2024/11/05/matty-cash-aston-villa-injury/
+**Florida 26th Congressional District Election Results**\
+`Get live results and maps from the 2024 Florida general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-florida-us-house-26.html
 
-**Facing Outrage, Nigeria Drops Capital Charges Against Minors**\
-`Dozens of teenagers had been accused of treason and faced possible death sentences, but indignation over their treatment, including lack of food, has the government backpedaling.`\
-https://nytimes.com/2024/11/05/world/africa/nigeria-teenagers-charges-dropped.html
+**South Dakota Amendment H Election Results: Establish Top-2 Primary Elections**\
+`Get live results and maps from the 2024 South Dakota general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-south-dakota-amendment-h-establish-top-2-primary-elections.html
 
-**Threats Reported in 2 States, but None Are Found Credible**\
-`Officials in Maine and Georgia said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
-https://nytimes.com/2024/11/05/us/politics/pollls-voting-bomb-threats.html
+**Oregon Attorney General Election Results**\
+`Get live results and maps from the 2024 Oregon general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-oregon-attorney-general.html
 
-**Giuliani Moved Possessions From N.Y. Apartment as Creditors Closed In**\
-`Lawyers for the two election workers seeking to collect on a $148 million defamation judgment against Rudolph W. Giuliani found that he had largely cleared out his Upper East Side home.`\
-https://nytimes.com/2024/11/05/us/politics/giuliani-apartment-defamation-election.html
+**Missouri Amendment 2 Election Results: Legalize Sports Betting**\
+`Get live results and maps from the 2024 Missouri general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-missouri-amendment-2-legalize-sports-betting.html
 
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/11/05/opinion/thepoint
+**Nebraska Initiative 438 Election Results: Establish a Medical Cannabis Commission**\
+`Get live results and maps from the 2024 Nebraska general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-nebraska-initiative-438-establish-a-medical-cannabis-commission.html
 
-**Election Night at The Times, Through the Decades**\
-`The first presidential election The Times covered was in 1852. Things have changed a lot since the days of typewriters and motographs — see how, in archival images from decades past.`\
-https://nytimes.com/2024/11/05/insider/nyt-election-night-photos.html
+**Utah Constitutional Amendment C Election Results: Elections of County Sheriffs**\
+`Get live results and maps from the 2024 Utah general election.`\
+https://nytimes.com/interactive/2024/11/05/us/elections/results-utah-constitutional-amendment-c-elections-of-county-sheriffs.html
 
