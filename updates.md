@@ -1,3 +1,7 @@
+**MLB GM meetings: Willy Adames open to Brewers reunion, Blake Snell back on the market**\
+`Elsewhere, Jesse Winker has re-established himself after a strong season with the Nationals and Mets.`\
+https://nytimes.com/athletic/5899253/2024/11/04/mlb-gm-meetings-willy-adames-blake-snell-jesse-winker/
+
 **​Despite Trump’s Claim, No Ballots Have Been Found Fraudulent in Lancaster County**\
 `The county and three others are investigating voter registration forms, not ballots, that were flagged as suspicious. Some were delivered to election offices by an Arizona-based company.`\
 https://nytimes.com/2024/11/04/us/trump-ballot-fraud-lancaster-county.html

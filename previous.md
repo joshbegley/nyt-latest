@@ -14,7 +14,7 @@ https://nytimes.com/2024/11/04/nyregion/brian-glenn-bingham-jan-6-capitol-riot.h
 `The uncertainty is getting to us.`\
 https://nytimes.com/2024/11/04/us/politics/election-2024-voters.html
 
-**MLB GM Meetings: Willy Adames open to Brewers reunion, Blake Snell back on the market**\
+**MLB GM meetings: Willy Adames open to Brewers reunion, Blake Snell back on the market**\
 `Elsewhere, Jesse Winker has re-established himself after a strong season with the Nationals and Mets.`\
 https://nytimes.com/athletic/5899253/2024/11/04/mlb-gm-meetings-willy-adames-blake-snell-jesse-winker/
 
