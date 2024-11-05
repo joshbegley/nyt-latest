@@ -1,3 +1,7 @@
+**An Idaho Health Department Is Barred from Offering Covid Shots**\
+`Experts worry the unusual move, driven by vaccine misinformation, could fuel further efforts to interfere with immunizations`\
+https://nytimes.com/2024/11/05/well/idaho-covid-vaccines.html
+
 **A N.Y. State Assembly candidate is taken into police custody at a polling site in Queens.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/assembly-rinaldi-arrest-ny
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/voter-turnout-election-day.html
 **Aiming to address secondary concerns, Ravens trade for Rams CB White**\
 `Baltimore hopes to improve its secondary after allowing the most passing yards per game in the NFL.`\
 https://nytimes.com/athletic/5901216/2024/11/05/tredavious-white-ravens-rams-trade-nfl/
-
-**Texans send DT Khalil Davis to 49ers for 2026 seventh-round pick**\
-`Davis, a fourth-year journeyman with a patchy resume, now finds himself with his sixth organization.`\
-https://nytimes.com/athletic/5901309/2024/11/05/khalil-davis-49ers-texans-trade/
 
