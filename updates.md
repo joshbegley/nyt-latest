@@ -1,3 +1,11 @@
+**Raiders hiring former head coach Norv Turner as offensive consultant**\
+`Turner was head coach of the then Oakland Raiders from 2004-05, but was fired after posting just a 9-23 record.`\
+https://nytimes.com/athletic/5900703/2024/11/05/raiders-norv-turner-offensive-consultant/
+
+**Flo Wants to Reinvent the Girl Group for a New Generation**\
+`On the British R&B trio’s awaited debut album, “Access All Areas,” nostalgia meets ambition.`\
+https://nytimes.com/2024/11/05/arts/music/flo-girl-group-access-all-areas.html
+
 **Sabalenka secures year-end world No. 1 for the first time**\
 `Iga Swiatek's defeat to Coco Gauff in Riyadh confirms Sabalenka's place at the summit.`\
 https://nytimes.com/athletic/5899798/2024/11/05/sabalenka-wta-rankings-world-number-one-year-end/
