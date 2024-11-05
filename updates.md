@@ -1,3 +1,7 @@
+**Cowboys Today: One exec's take on Dak and what are chances Dallas makes deadline deal?**\
+`Does Dak Prescott's injury have an effect on what the Cowboys do — or don't do — at the trade deadline? Plus, more on that failed fake punt.`\
+https://nytimes.com/athletic/5899648/2024/11/05/cowboys-today-dak-prescott-trade-deadline/
+
 **Heat Today: Erik Spoelstra explains Miami's second-half woes after collapse vs. Kings**\
 `Miami has looked like a different team after halftime this season. "We're gonna have to figure it out."`\
 https://nytimes.com/athletic/5899045/2024/11/05/miami-heat-erik-spoelstra-sacramento-kings-vote-election-day/

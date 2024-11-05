@@ -1,3 +1,7 @@
+**Cowboys Today: One exec's take on Dak and what are chances Dallas makes deadline deal?**\
+`Does Dak Prescott's injury have an effect on what the Cowboys do — or don't do — at the trade deadline? Plus, more on that failed fake punt.`\
+https://nytimes.com/athletic/5899648/2024/11/05/cowboys-today-dak-prescott-trade-deadline/
+
 **Heat Today: Erik Spoelstra explains Miami's second-half woes after collapse vs. Kings**\
 `Miami has looked like a different team after halftime this season. "We're gonna have to figure it out."`\
 https://nytimes.com/athletic/5899045/2024/11/05/miami-heat-erik-spoelstra-sacramento-kings-vote-election-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5895251/2024/11/05/zadarius-smith-lions-browns-trad
 **Eight key Celtics stats through 8 games, including Jayson Tatum's early haymakers**\
 `Derrick White's importance and Payton Pritchard's 3-point barrage have also fueled Boston's 7-1 start.`\
 https://nytimes.com/athletic/5899718/2024/11/05/celtics-jayson-tatum-derrick-white-stats/
-
-**Israeli Raids in West Bank Kill 4, Palestinians Say**\
-`The raids suggested that the Israeli military was continuing to target armed fighters in the occupied territory, even as it conducts major operations in Gaza and Lebanon.`\
-https://nytimes.com/2024/11/05/world/middleeast/israel-west-bank-raid.html
 
