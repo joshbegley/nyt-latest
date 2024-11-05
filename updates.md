@@ -1,3 +1,7 @@
+**On the issues: Where Harris and Trump stand on the economy.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-the-economy
+
 **How Should History Books Remember the 2024 Election?**\
 `Now that the votes are almost in, the Headway Election Challenge asks teenagers for the lessons they are taking away from this election year.`\
 https://nytimes.com/2024/11/05/headway/teen-2024-election-day-history.html

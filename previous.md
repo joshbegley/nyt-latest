@@ -1,3 +1,7 @@
+**On the issues: Where Harris and Trump stand on the economy.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/on-the-issues-where-harris-and-trump-stand-on-the-economy
+
 **How Should History Books Remember the 2024 Election?**\
 `Now that the votes are almost in, the Headway Election Challenge asks teenagers for the lessons they are taking away from this election year.`\
 https://nytimes.com/2024/11/05/headway/teen-2024-election-day-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5900678/2024/11/05/live-qa-week-10-fantasy-football
 **Nevada’s secretary of state is worried about the state’s high level of rejected ballots.**\
 `By Danny Hakim`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/nevadas-secretary-of-state-is-worried-about-the-states-high-level-of-rejected-ballots
-
-**Boeing’s Strike Is Over. Its Problems Are Not.**\
-`The aerospace manufacturer and its new chief executive face a daunting to-do list, including improving quality and increasing production of its commercial planes.`\
-https://nytimes.com/2024/11/05/business/boeing-planes-production.html
 
