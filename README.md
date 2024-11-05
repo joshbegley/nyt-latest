@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5900757/2024/11/05/matty-cash-aston-villa-injury/
 `Dozens of teenagers had been accused of treason and faced possible death sentences, but indignation over their treatment, including lack of food, has the government backpedaling.`\
 https://nytimes.com/2024/11/05/world/africa/nigeria-teenagers-charges-dropped.html
 
-**Threats Reported in 3 States, but None Are Found Credible**\
-`Officials in Maine, Georgia and North Carolina said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
+**Threats Reported in 2 States, but None Are Found Credible**\
+`Officials in Maine and Georgia said the discredited threats involved schools and polling stations. The F.B.I. also referred to bomb threats deemed not to be credible in several states, “many of which appear to originate from Russian email domains.”`\
 https://nytimes.com/2024/11/05/us/politics/pollls-voting-bomb-threats.html
 
 **Giuliani Moved Possessions From N.Y. Apartment as Creditors Closed In**\
