@@ -1,3 +1,7 @@
+**Lightning Strikes Soccer Team in Peru, Killing Player**\
+`A video of the incident shows a flash of light and then several players instantly dropping to the ground.`\
+https://nytimes.com/2024/11/05/world/americas/video-lightning-soccer-peru.html
+
 **A Former Steelworker Makes a Tough Decision at the Polls**\
 `She was torn until the last minute.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/steelworker-indiana-vote
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/insider/nyt-election-night-photos.html
 **Influencer Flanked by E-Bike Riders at N.Y.C. Marathon Is Banned, Organizers Say**\
 `Matt Choi, who ran the course in under three hours, was followed by two cameramen on electronic bikes, who were said to have obstructed other runners.`\
 https://nytimes.com/2024/11/05/nyregion/matt-choi-influencer-banned-nyc-marathon.html
-
-**9 Great Songs That Mention Baseball Stars**\
-`The playlist to get you through Major League Baseball’s long offseason.`\
-https://nytimes.com/2024/11/05/arts/music/amplifier-newsletter-bad-bunny-baseball.html
 
