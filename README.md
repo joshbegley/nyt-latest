@@ -1,3 +1,11 @@
+**The Next Dietary Guidelines May Punt on a Big Question in Nutrition**\
+`There’s not enough evidence to recommend avoiding ultraprocessed foods, a scientific advisory committee says. Some experts disagree.`\
+https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-and-the-dietary-guidelines.html
+
+**Jones? Hudson-Odoi? James? The outsiders for a call-up in Carsley's final England squad**\
+`Carsley has shown he isn't afraid to look in a different direction. So which players could be given an opportunity to impress?`\
+https://nytimes.com/athletic/5902870/2024/11/06/england-squad-carsley-outsiders/
+
 **Political Betting Markets See Vindication in Trump Victory**\
 `Prediction markets, which surged to prominence during the presidential campaign, started reflecting a likely Trump win several weeks ago, even as opinion polls showed a tight race.`\
 https://nytimes.com/2024/11/06/business/dealbook/prediction-markets-trump-win.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/business/tesla-stock-elon-musk-trump.html
 **Guillory: The Pelicans need to provide reasons to keep believing after ugly start**\
 `An avalanche of injuries has thrown the season into peril, but where is the leadership in New Orleans?`\
 https://nytimes.com/athletic/5902802/2024/11/06/pelicans-zion-williamson-injuries/
-
-**Wolves owners buy back minority stake from US investment firm**\
-`Wolverhampton Wanderers owners Fosun has bought back a minority stake in its subsidiary, Fosun Sports, from US-based investment firm PEAK6.`\
-https://nytimes.com/athletic/5903216/2024/11/06/wolves-owners-fosun-minority-stake/
-
-**Trump, Again**\
-`In the early hours of Wednesday morning, Donald J. Trump was elected president for a second time. Shortly before that call was made, the Times journalists Michael Barbaro, Nate Cohn, Lisa Lerer and Astead W. Herndon sat down to discuss the state of the election.`\
-https://nytimes.com/video/podcasts/the-daily/100000009811010/trump-election-results.html
 
