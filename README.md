@@ -1,6 +1,6 @@
 **Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
 `Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/north-carolina-governor-stein-robinson
+https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
 
 **Trump Is Cruising in Florida. Is It a Bad Sign for Harris?**\
 `By Ross Douthat and Aaron Retica`\
