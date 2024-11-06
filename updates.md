@@ -1,3 +1,19 @@
+**Corrections: Nov. 6, 2024**\
+`Corrections that appeared in print on Wednesday, Nov. 6, 2024.`\
+https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-6-2024.html
+
+**Chelsea's Palmer an injury doubt for Arsenal match - Maresca**\
+`Chelsea head Enzo Maresca admits it could be a risk to select Cole Palmer against Arsenal on Sunday because of the knee injury he suffered from a Lisandro Martinez challenge.`\
+https://nytimes.com/athletic/5903149/2024/11/06/cole-palmer-injury-chelsea/
+
+**Democrats Got the Recovery They Wanted. It Wasn’t Enough.**\
+`America’s economic growth is the envy of its global counterparts. But voters wanted more from the Biden administration — specifically, lower prices.`\
+https://nytimes.com/2024/11/06/us/politics/inflation-biden-economy.html
+
+**League of Legends Worlds: London embraces the pinnacle of esports**\
+`Linkin Park, an enthusiastic crowd and a masterclass from T1's Faker all helped to make the event at the O2 Arena a success`\
+https://nytimes.com/athletic/5900929/2024/11/06/league-of-legends-worlds-london/
+
 **Our Daughter Is Having an Affair With a Married Man. How Do We Stop It?**\
 `A 20-something woman who lives with her parents has incurred their disappointment by continuing an affair with her former boss. Since she won’t end things, should they tell the man’s wife?`\
 https://nytimes.com/2024/11/06/style/extramarital-affairs.html
