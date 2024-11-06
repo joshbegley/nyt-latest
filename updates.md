@@ -1,3 +1,7 @@
+**Political Betting Markets See Vindication in Trump Victory**\
+`Prediction markets, which surged to prominence during the presidential campaign, started reflecting a likely Trump win several weeks ago, even as opinion polls showed a tight race.`\
+https://nytimes.com/2024/11/06/business/dealbook/prediction-markets-trump-win.html
+
 **What’s at Stake for Mexico in a Second Trump Presidency?**\
 `Tariffs, border crossings, mass deportations of migrants and military strikes on cartels: Mexico is in the firing line of the president-elect.`\
 https://nytimes.com/2024/11/06/world/americas/trump-victory-mexico-immigration.html
