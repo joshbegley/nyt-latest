@@ -1,3 +1,7 @@
+**America Hires a Strongman**\
+`This was a conquering of the nation not by force but with a permission slip. Now, America stands on the precipice of an authoritarian style of governance never before seen in its 248-year history.`\
+https://nytimes.com/2024/11/06/us/politics/trump-election-analysis.html
+
 **Pariah, Felon, President-Elect: How Trump Fought His Way Back to Power**\
 `After the Jan. 6 attack on the Capitol, even many Republicans believed the former president’s political career was over. He proved everyone wrong.`\
 https://nytimes.com/2024/11/06/us/politics/trump-won-arc.html
