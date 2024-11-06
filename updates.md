@@ -1,3 +1,23 @@
+**Quote of the Day: He Rebuilt It, and They Came. ‘This Time Willingly.’**\
+`Quotation of the Day for Wednesday, November 6, 2024`\
+https://nytimes.com/2024/11/05/pageoneplus/quote-of-the-day-he-rebuilt-it-and-they-came-this-time-willingly.html
+
+**Could a Trump Victory Offer an ‘Unlikely Opening to American Renewal’?**\
+`By Ross Douthat and Ezra Klein`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/could-a-trump-victory-offer-an-unlikely-opening-to-american-renewal
+
+**Yohe's 10 observations: Penguins crumble with the lead once again, fall in shootout**\
+`The Penguins blew yet another two-goal lead in a 4-3 shootout loss to the Islanders on Tuesday.`\
+https://nytimes.com/athletic/5891531/2024/11/05/penguins-islanders-recap-observations/
+
+**How Jordan Greenway fighting Brady Tkachuk set tone for Sabres' win over Senators**\
+`With a lot to prove, the Sabres came into the game throwing hits and turned physicality into a key part of their 5-1 win.`\
+https://nytimes.com/athletic/5902402/2024/11/05/sabres-greenway-tkachuk-fight-senators/
+
+**Ted Cruz Survives Another Re-election Fight in Texas**\
+`In keeping his seat, he dashed rising hopes among some Democrats that years of demographic changes and urbanization could start to flip the state.`\
+https://nytimes.com/2024/11/05/us/politics/texas-senate-cruz-allred.html
+
 **Ted Cruz Survives Another Re-Election Fight in Texas**\
 `In keeping his seat, he dashed rising hopes among some Democrats that years of demographic changes and urbanization could start to flip the state.`\
 https://nytimes.com/2024/11/05/us/politics/texas-senate-cruz-allred.html
