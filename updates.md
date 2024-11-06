@@ -1,3 +1,7 @@
+**Real Madrid's Tchouameni faces up to six weeks out with foot injury**\
+`Real Madrid midfielder Aurelien Tchouameni is set to miss between four and six weeks with a sprained ankle.`\
+https://nytimes.com/athletic/5902990/2024/11/06/aurelien-tchouameni-injury-update-real-madrid/
+
 **Amorim gives United hope with City win, Spurs' reason to be cheerful, crisis at Real Madrid?**\
 `Today in TAFC: Amorim's win over City gives Manchester United hope - and are Real Madrid in crisis? Plus: Why Spurs may be trending upwards`\
 https://nytimes.com/athletic/5902853/2024/11/06/amorim-united-city-champions-league/
