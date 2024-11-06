@@ -1,3 +1,11 @@
+**Donald Trump Makes Stunning Return to Power**\
+`During this presidential campaign, Donald Trump played on economic worries and fears around immigration to defeat Vice President Kamala Harris. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
+https://nytimes.com/video/us/elections/100000009810421/donald-trump-wins-re-election.html
+
+**WTA Tour Finals: Gauff and Sabalenka first to qualify, Zheng vs. Paolini shootout**\
+`The season-ending event pits the best players on the WTA Tour against each other in Riyadh, Saudi Arabia.`\
+https://nytimes.com/athletic/5882196/2024/11/06/wta-finals-draw-sabalenka-swiatek-gauff-riyadh/
+
 **Control of the House of Representatives remains up for grabs.**\
 `Several key House races were still undecided Wednesday morning after Republicans gained control of the White House and Senate, leaving the fate of the majority unclear.`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/election-house-representatives-democrats-republicans
