@@ -1,3 +1,7 @@
+**A deeper look at Wild's power-play, penalty-kill woes that finally cost them a game**\
+`The Wild's play on special teams has been floundering for several games, but the Kings were the first to eke a win out of it.`\
+https://nytimes.com/athletic/5902471/2024/11/06/wild-special-teams-woes-analysis/
+
 **Fantasy football mid-season dynasty report: Sell Cooper Kupp, buy Jaxon Smith-Njigba**\
 `Jeff Haverlack tells you who to buy (Cooper Kupp, among others) and who to sell at the midseason point of the 2024 NFL season. `\
 https://nytimes.com/athletic/5900892/2024/11/06/fantasy-football-midseason-dynasty-report-sell-cooper-kupp-buy-jaxon-smith-njigba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899982/2024/11/06/wrexham-fa-cup-exit-analysis/
 **Fischer Wins in Nebraska, Giving Republicans Enough Seats for a Majority**\
 `Senator Deb Fischer, the two-term Republican from Nebraska, survived a dark horse challenge from Dan Osborn, a mechanic and labor leader who ran as an independent.`\
 https://nytimes.com/2024/11/06/us/elections/nebraska-senate-fischer-osborn.html
-
-**Angeball is working: The numbers suggest Spurs are improving on last season**\
-`This time last season, Spurs were top of the league. Now they are 7th, with 10 fewer points. But the numbers suggest cause for optimism`\
-https://nytimes.com/athletic/5895116/2024/11/06/angeball-tottenham-spurs-postecoglou/
 
