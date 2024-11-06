@@ -1,11 +1,3 @@
-**Blue Jackets fall in OT to San Jose's Alex Wennberg, who is still on Columbus' payroll**\
-`The Blue Jackets bought out Wennberg's contract after the 2019-20 season.`\
-https://nytimes.com/athletic/5902806/2024/11/06/blue-jackets-sharks-loss-wennberg-contract/
-
-**A Party of Prigs and Pontificators Suffers a Humiliating Defeat**\
-`Democrats may feel righteous, but how’s that ever going to be a winning electoral look?`\
-https://nytimes.com/2024/11/06/opinion/donald-trump-defeat-democrats.html
-
 **Donald Trump Makes Stunning Return to Power**\
 `During this presidential campaign, Donald Trump played on economic worries and fears around immigration to defeat Vice President Kamala Harris. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
 https://nytimes.com/video/us/elections/100000009810421/donald-trump-wins-re-election.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5902363/2024/11/06/sf-giants-buster-posey-leadershi
 **The Enzo Maresca tactical ploy that's getting the most out of Moises Caicedo**\
 `Chelsea’s manager is empowering his No 6 to attack between the lines, and the results are positive `\
 https://nytimes.com/athletic/5899737/2024/11/06/maresca-caicedo-chelsea-tactics/
+
+**Five Raiders predictions at midseason: Antonio Pierce will earn a second season**\
+`The Raiders won't spend the second half of the season tanking, but we foresee them ending up with a top-five pick in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/5901343/2024/11/06/raiders-predictions-nfl-midseason-2024/
+
+**The Winners and Losers of Trump 2.0**\
+`Donald Trump’s return to the White House could upend some industries and the economy. But stocks and other assets are soaring on hopes that a new, business-friendly era beckons.`\
+https://nytimes.com/2024/11/06/business/dealbook/winners-losers-trump-musk-crypto.html
 
