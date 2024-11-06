@@ -1,3 +1,7 @@
+**Early Results Suggest the Polls Were Notably Accurate**\
+`Collectively they indicated that the presidential race would be close, and it appears they got it right without significantly underestimating Donald Trump’s support.`\
+https://nytimes.com/2024/11/06/us/elections/election-polls-accurate.html
+
 **How Harris’s Loss Could Haunt Biden’s Legacy**\
 `In the wake of Donald J. Trump’s resounding victory, many Democrats are casting President Biden as a one-term president who set his party on a path to failure in 2024.`\
 https://nytimes.com/2024/11/06/us/politics/harris-biden-legacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904413/2024/11/06/padres-manager-mike-shildt-exten
 **Inter 1 Arsenal 0: Arteta’s side denied at San Siro - but Odegaard return offers hope**\
 `Our writers break down the action from San Siro as Arsenal suffer their first defeat in this season's Champions League`\
 https://nytimes.com/athletic/5900473/2024/11/06/inter-arsenal-saka-odegaard/
-
-**Spurs' Romero avoids serious injury but Richarlison out for 'a little while'**\
-`Tottenham Hotspur vice-captain Cristian Romero has avoided a serious injury but forward Richarlison faces a “little while” out with a left hamstring problem.`\
-https://nytimes.com/athletic/5895271/2024/11/06/cristian-romero-richarlison-injury-tottenham/
 

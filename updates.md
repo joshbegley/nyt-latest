@@ -1,3 +1,7 @@
+**Early Results Suggest the Polls Were Notably Accurate**\
+`Collectively they indicated that the presidential race would be close, and it appears they got it right without significantly underestimating Donald Trump’s support.`\
+https://nytimes.com/2024/11/06/us/elections/election-polls-accurate.html
+
 **How Harris’s Loss Could Haunt Biden’s Legacy**\
 `In the wake of Donald J. Trump’s resounding victory, many Democrats are casting President Biden as a one-term president who set his party on a path to failure in 2024.`\
 https://nytimes.com/2024/11/06/us/politics/harris-biden-legacy.html
