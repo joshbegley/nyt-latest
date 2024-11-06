@@ -1,3 +1,11 @@
+**Will a Woman Ever Be President?**\
+`After Kamala Harris became the second woman to lose a presidential election to Donald J. Trump, some women wondered if the glass ceiling would ever break.`\
+https://nytimes.com/2024/11/06/us/politics/harris-woman-president.html
+
+**After Trump Took the Lead, Election Deniers Went Suddenly Silent**\
+`Trump supporters spent years fomenting concern about election integrity. On Tuesday, they set it all aside.`\
+https://nytimes.com/2024/11/06/technology/trump-election-denial.html
+
 **Grant Ujifusa, 82, Dies; Lobbied for Redress for Japanese Americans**\
 `He helped sway Ronald Reagan to sign a bill offering cash and an apology to Japanese Americans who had been imprisoned during World War II.`\
 https://nytimes.com/2024/11/06/us/grant-ujifusa-dead.html

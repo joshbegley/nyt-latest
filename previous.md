@@ -1,3 +1,11 @@
+**Will a Woman Ever Be President?**\
+`After Kamala Harris became the second woman to lose a presidential election to Donald J. Trump, some women wondered if the glass ceiling would ever break.`\
+https://nytimes.com/2024/11/06/us/politics/harris-woman-president.html
+
+**After Trump Took the Lead, Election Deniers Went Suddenly Silent**\
+`Trump supporters spent years fomenting concern about election integrity. On Tuesday, they set it all aside.`\
+https://nytimes.com/2024/11/06/technology/trump-election-denial.html
+
 **Grant Ujifusa, 82, Dies; Lobbied for Redress for Japanese Americans**\
 `He helped sway Ronald Reagan to sign a bill offering cash and an apology to Japanese Americans who had been imprisoned during World War II.`\
 https://nytimes.com/2024/11/06/us/grant-ujifusa-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009812696/harris-concession-speech-
 **Democrats Again Banked on the ‘Blue Wall.’ It Crumbled.**\
 `Donald J. Trump swept the Great Lakes battlegrounds of Michigan, Pennsylvania and Wisconsin, raising questions about the Democratic coalition going forward.`\
 https://nytimes.com/2024/11/06/us/politics/trump-harris-blue-wall-election.html
-
-**What we're hearing about Astros at GM meetings: Ryan Pressly, a hitting summit and more**\
-`Plus do the Astros have leverage when Alex Bregman has created “a market that the Astros are very aware is very healthy for him?"`\
-https://nytimes.com/athletic/5904202/2024/11/06/astros-gm-meetings-ryan-pressly-trade/
-
-**Harris Says She Concedes the Election, but Not Her Fight**\
-`Her commitment to a peaceful transfer of power was more than President-elect Trump ever offered to President Biden and Vice President Kamala Harris after they defeated him in 2020.`\
-https://nytimes.com/2024/11/06/us/politics/harris-concession-speech.html
 
