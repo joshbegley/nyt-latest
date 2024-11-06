@@ -1,3 +1,7 @@
+**Moreno Defeats Brown in Ohio, Putting G.O.P. Within Reach of Senate Control**\
+`With the victory of Bernie Moreno, a wealthy former car dealer and political novice, Republicans had enough seats to win the Senate majority unless Democrats scored an upset.`\
+https://nytimes.com/2024/11/05/us/elections/ohio-senate-brown-moreno.html
+
 **Missouri Voters Pass Measure to Protect Abortion Rights and End Ban**\
 `A ballot amendment enshrining reproductive rights in the State Constitution would void one of the strictest abortion bans in the country.`\
 https://nytimes.com/2024/11/05/us/missouri-abortion-measure.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/california-senate-schiff-garvey.html
 **Pennsylvania Becomes Hot Spot for Election Disinformation**\
 `More than 60 percent of posts discussing election fraud on X on Tuesday focused on the state, according to an analysis of about 25,000 posts.`\
 https://nytimes.com/2024/11/05/technology/pennsylvania-election-disinformation.html
-
-**Maple Leafs report cards: Special teams breakthrough ends losing skid**\
-`The power play finally roared back to life as the Leafs scored three of their four goals with the man advantage.`\
-https://nytimes.com/athletic/5901768/2024/11/05/maple-leafs-report-cards-special-teams-bruins/
 
