@@ -1,9 +1,17 @@
+**Election Live Updates: Trump Declares Victory as He Wins Pennsylvania**\
+``\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news
+
+**Fantasy football stock watch: Two tight ends on the rise; time to cut bait on Jordan Mason**\
+`Dane Martinez weighs in on some recent fantasy football market movers, including Cade Otton, who has helped invigorate the TE position.`\
+https://nytimes.com/athletic/5900850/2024/11/06/fantasy-football-stock-risers-fallers-otton-mason/
+
 **Trump Speaks as He Moves Closer to an Election Win**\
 `The former president addressed his supporters after he moved closer to a second term in the White House by winning some key swing states.`\
 https://nytimes.com/video/us/elections/100000009810889/trump-election-day-speech.html
 
 **Early Results Show a Red Shift Across the U.S.**\
-`A Times analysis finds that nearly three-fourths of U.S. counties shifted in favor of Donald J. Trump.`\
+`Of the counties with nearly complete results, more than 90 percent shifted in favor of former President Donald J. Trump in the 2024 presidential election.`\
 https://nytimes.com/interactive/2024/11/06/us/politics/presidential-election-2024-red-shift.html
 
 **Barrett Flips Key Michigan Seat for G.O.P., Defeating Hertel**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/here-are-the-
 **Israelis Protest Firing of Defense Minister**\
 `Prime Minister Benjamin Netanyahu’s dismissal of Yoav Gallant was seen as a risky step at a time when Israel is fighting wars on two fronts.`\
 https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon
-
-**South Dakota Voters Reject Abortion Rights Amendment**\
-`With voters declining to enshrine a right to abortion in the State Constitution, South Dakota will continue to have one of the strictest abortion bans in the country.`\
-https://nytimes.com/2024/11/06/us/south-dakota-abortion-amendment.html
-
-**Bortoleto to race for Sauber F1 in 2025 as Bottas, Guanyu leave team**\
-`Gabriel Bortoleto will become the fourth full-time rookie on the Formula One grid next season after completing Sauber’s line-up for 2025.`\
-https://nytimes.com/athletic/5902669/2024/11/06/gabriel-bortoleto-sauber-f1-team/
 

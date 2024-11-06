@@ -1,3 +1,15 @@
+**Election Live Updates: Trump Declares Victory as He Wins Pennsylvania**\
+``\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news
+
+**Fantasy football stock watch: Two tight ends on the rise; time to cut bait on Jordan Mason**\
+`Dane Martinez weighs in on some recent fantasy football market movers, including Cade Otton, who has helped invigorate the TE position.`\
+https://nytimes.com/athletic/5900850/2024/11/06/fantasy-football-stock-risers-fallers-otton-mason/
+
+**Early Results Show a Red Shift Across the U.S.**\
+`Of the counties with nearly complete results, more than 90 percent shifted in favor of former President Donald J. Trump in the 2024 presidential election.`\
+https://nytimes.com/interactive/2024/11/06/us/politics/presidential-election-2024-red-shift.html
+
 **Trump Speaks as He Moves Closer to an Election Win**\
 `The former president addressed his supporters after he moved closer to a second term in the White House by winning some key swing states.`\
 https://nytimes.com/video/us/elections/100000009810889/trump-election-day-speech.html
