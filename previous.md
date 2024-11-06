@@ -1,3 +1,11 @@
+**Ohio Voters Reject Ban on Partisan Gerrymanders**\
+`The issue was perhaps the most closely watched among the many democracy-related ballot measures in the country.`\
+https://nytimes.com/2024/11/06/us/ohio-gerrymander-ballot-issue.html
+
+**Trump, Again**\
+`In the early hours of Wednesday morning, Donald J. Trump was elected president for a second time. Shortly before that call was made, the Times journalists Michael Barbaro, Nate Cohn, Lisa Lerer and Astead W. Herndon sat down to discuss the state of the election.`\
+https://nytimes.com/video/podcasts/the-daily/100000009802784/election-results-trump-harris.html
+
 **A look at the battlefield after Yoav Gallant was ousted as Israel’s defense minister.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/a-look-at-the-battlefield-after-yoav-gallant-was-ousted-as-israels-defense-minister
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5900929/2024/11/06/league-of-legends-worlds-london/
 **Our Daughter Is Having an Affair With a Married Man. How Do We Stop It?**\
 `A 20-something woman who lives with her parents has incurred their disappointment by continuing an affair with her former boss. Since she won’t end things, should they tell the man’s wife?`\
 https://nytimes.com/2024/11/06/style/extramarital-affairs.html
-
-**Trump Is Not the First President to Come Back From Defeat**\
-`More than a century ago, Grover Cleveland secured a second nonconsecutive term in the White House after a campaign plagued with scandal and allegations of a coverup.`\
-https://nytimes.com/2024/11/06/us/politics/trump-grover-cleveland-second-term.html
-
-**Morning TV Hosts Digest Trump Victory**\
-`From jubilant to disheartened, the mood on the sets of U.S. morning shows provided stark split-screen reactions.`\
-https://nytimes.com/2024/11/06/business/media/fox-msnbc-trump-win-reaction.html
 

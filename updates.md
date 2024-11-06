@@ -1,3 +1,11 @@
+**Ohio Voters Reject Ban on Partisan Gerrymanders**\
+`The issue was perhaps the most closely watched among the many democracy-related ballot measures in the country.`\
+https://nytimes.com/2024/11/06/us/ohio-gerrymander-ballot-issue.html
+
+**Trump, Again**\
+`In the early hours of Wednesday morning, Donald J. Trump was elected president for a second time. Shortly before that call was made, the Times journalists Michael Barbaro, Nate Cohn, Lisa Lerer and Astead W. Herndon sat down to discuss the state of the election.`\
+https://nytimes.com/video/podcasts/the-daily/100000009802784/election-results-trump-harris.html
+
 **A look at the battlefield after Yoav Gallant was ousted as Israel’s defense minister.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/a-look-at-the-battlefield-after-yoav-gallant-was-ousted-as-israels-defense-minister
