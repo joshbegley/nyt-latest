@@ -1,3 +1,7 @@
+**What we're hearing about Astros at GM meetings: Ryan Pressly, a hitting summit and more**\
+`Plus do the Astros have leverage when Alex Bregman has created “a market that the Astros are very aware is very healthy for him?"`\
+https://nytimes.com/athletic/5904202/2024/11/06/astros-gm-meetings-ryan-pressly-trade/
+
 **Early Results Suggest the Polls Were Notably Accurate**\
 `Collectively they indicated that the presidential race would be close, and it appears they got it right without significantly underestimating Donald Trump’s support.`\
 https://nytimes.com/2024/11/06/us/elections/election-polls-accurate.html
