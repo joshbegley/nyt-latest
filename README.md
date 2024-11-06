@@ -1,40 +1,40 @@
-**Election Live Updates: Trump Declares Victory as He Wins Pennsylvania**\
-``\
-https://nytimes.com/live/2024/11/06/us/trump-election-harris-news
+**The Best Place for a Last-Minute Thanksgiving? Abroad.**\
+`Cheap flights. Fewer crowds. November can be one of the most affordable months for international travel, and travelers can still snag a choice deal.`\
+https://nytimes.com/2024/11/06/travel/thanksgiving-flights-deals.html
 
-**Fantasy football stock watch: Two tight ends on the rise; time to cut bait on Jordan Mason**\
-`Dane Martinez weighs in on some recent fantasy football market movers, including Cade Otton, who has helped invigorate the TE position.`\
-https://nytimes.com/athletic/5900850/2024/11/06/fantasy-football-stock-risers-fallers-otton-mason/
+**What We Just Went Through Wasn’t an Election. It Was a Hostage Situation.**\
+`Telling people they have no choice but to vote for you shows deep contempt.`\
+https://nytimes.com/2024/11/06/opinion/election-day-results-hostage.html
 
-**Trump Speaks as He Moves Closer to an Election Win**\
-`The former president addressed his supporters after he moved closer to a second term in the White House by winning some key swing states.`\
-https://nytimes.com/video/us/elections/100000009810889/trump-election-day-speech.html
+**Election Results in Key New York Races**\
+`Democrats flipped a House seat in central New York and defended one in the Hudson Valley, and a ballot measure tied to abortion access was approved.`\
+https://nytimes.com/2024/11/06/nyregion/election-results-in-key-new-york-races.html
 
-**Early Results Show a Red Shift Across the U.S.**\
-`Of the counties with nearly complete results, more than 90 percent shifted in favor of former President Donald J. Trump in the 2024 presidential election.`\
-https://nytimes.com/interactive/2024/11/06/us/politics/presidential-election-2024-red-shift.html
+**5 Minutes That Will Make You Love the Vibraphone**\
+`Are the vibes good? These tracks by Milt Jackson, Lionel Hampton, Roy Ayers and others, chosen by 12 musicians and writers, should convince you.`\
+https://nytimes.com/2024/11/06/arts/music/vibraphone-jazz-music.html
 
-**Barrett Flips Key Michigan Seat for G.O.P., Defeating Hertel**\
-`Tom Barrett, a Republican former state senator, has defeated Curtis Hertel, claiming the Lansing-based seat won by Representative Elissa Slotkin, a Democrat, in 2018.`\
-https://nytimes.com/2024/11/06/us/elections/michigan-house-barrett-hertel.html
+**‘If We Care About Justice in America, There’s Going to Be a Lot of Work to Do’**\
+`Two Opinion writers consider a second term for Donald Trump.`\
+https://nytimes.com/2024/11/06/opinion/donald-trump-election-2024.html
 
-**TV Networks Prepared for a Long Wait That Wasn’t**\
-`Anchors were ready to camp out in the studio for days on end. Instead, Donald J. Trump declared victory in the early hours of Wednesday morning.`\
-https://nytimes.com/2024/11/06/business/media/tv-networks-election-night.html
+**Trump Offered Men Something That Democrats Never Could**\
+`A set of easy answers that’s a formula for more alienation and anger`\
+https://nytimes.com/2024/11/06/opinion/trump-white-young-men.html
 
-**By Firing Gallant, Netanyahu Removes One Threat but Risks Another**\
-`Yoav Gallant, the departing defense minister, had opposed Prime Minister Benjamin Netanyahu on key policies. His dismissal removes an opponent but has stirred public discontent.`\
-https://nytimes.com/2024/11/06/world/middleeast/gallant-netanyahu-israel-defense-minister.html
+**She Wrote ‘Jonathan Strange & Mr. Norrell.’ Then, She Was Gone.**\
+`Twenty years after her debut sold four million copies, Susanna Clarke is back.`\
+https://nytimes.com/2024/11/06/podcasts/she-wrote-jonathan-strange-mr-norrell-then-she-was-gone.html
 
-**Trump Speaks as He Moves Closer to an Election Win**\
-`The former president addressed his supporters after he moved closer to a second term in the White House by winning some key swing states.`\
-https://nytimes.com/video/us/elections/100000009810851/trump-election-day-speech.html
+**$490,000 Homes in Wisconsin, Utah and North Carolina**\
+`A 1928 brick house in Oshkosh, Wis., a Craftsman-style bungalow from 1925 in Salt Lake City, and a duplex apartment in an 1854 mill building in Wake Forest, N.C.`\
+https://nytimes.com/2024/11/06/realestate/490000-homes-in-wisconsin-utah-and-north-carolina.html
 
-**Here are the latest developments.**\
-`By Adam Rasgon and Patrick Kingsley`\
-https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/here-are-the-latest-developments
+**Bridget Everett Says a Best Friend Can Be Your Greatest Love**\
+`The “Somebody Somewhere” star is tired of the same old love stories.`\
+https://nytimes.com/2024/11/06/podcasts/modern-love-bridget-everett-somebody-somewhere.html
 
-**Israelis Protest Firing of Defense Minister**\
-`Prime Minister Benjamin Netanyahu’s dismissal of Yoav Gallant was seen as a risky step at a time when Israel is fighting wars on two fronts.`\
-https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon
+**All Hail the Theater Kid! (We Mean That Sincerely.)**\
+`For stars like Ariana Grande and Lady Gaga, showmanship is a virtue. That’s a big change from the days when Anne Hathaway was vilified for her effortful work.`\
+https://nytimes.com/2024/11/06/movies/theater-kid-reinvention-ariana-grande-lady-gaga.html
 
