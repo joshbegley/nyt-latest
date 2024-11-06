@@ -1,3 +1,23 @@
+**Padres extend manager Mike Shildt after season of rare alignment**\
+`Said Shildt of A.J. Preller: "We know we’re working off the same script, we have the same vision, and that’s to win a world championship."`\
+https://nytimes.com/athletic/5904413/2024/11/06/padres-manager-mike-shildt-extension-reaction/
+
+**Inter 1 Arsenal 0 - Arteta's side struggle to create from open play, but Odegaard return offers hope**\
+`Our writers break down the action from San Siro as Arsenal suffer their first defeat in this season's Champions League.`\
+https://nytimes.com/athletic/5900473/2024/11/06/inter-arsenal-saka-odegaard/
+
+**Spurs' Romero avoids serious injury but Richarlison out for 'a little while'**\
+`Tottenham Hotspur vice-captain Cristian Romero has avoided a serious injury but forward Richarlison faces a “little while” out with a left hamstring problem.`\
+https://nytimes.com/athletic/5895271/2024/11/06/cristian-romero-richarlison-injury-tottenham/
+
+**How UNLV, Air Force got extra $6.8 million for staying in Mountain West**\
+`A few days of conference realignment maneuvering helped UNLV and Air Force each receive increased MWC financial commitments.`\
+https://nytimes.com/athletic/5904436/2024/11/06/mountain-west-unlv-air-force-money-realignment/
+
+**Harris Shows Trump How to Concede**\
+`Even if only one candidate is gracious enough to do it.`\
+https://nytimes.com/2024/11/06/opinion/harris-concession-democracy.html
+
 **Elon Musk Helped Elect Trump. What Does He Expect in Return?**\
 `The world’s richest man gave his money and time in campaigning for the president-elect and now is putting in his requests for a friendlier regulatory environment.`\
 https://nytimes.com/2024/11/06/us/politics/elon-musk-trump-benefits.html
