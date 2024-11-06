@@ -1,3 +1,11 @@
+**Anticipating a Close Race, the Nation Watched Momentum Shift Toward Trump**\
+`A winner was not declared before midnight on Tuesday, but even Donald Trump’s allies seemed shocked by the signs of his strength — and the improbable political comeback it appeared to foretell.`\
+https://nytimes.com/2024/11/06/us/elections/election-night-scene.html
+
+**Fonseca’s Milan show ruthlessness they had been missing in beating Real Madrid**\
+`Fonseca has been under significant pressure and is yet to win over Milan supporters - a win away to the Champions League holders should help`\
+https://nytimes.com/athletic/5901759/2024/11/06/milan-madrid-fonseca/
+
 **Word of the Day: epitomize**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/06/learning/word-of-the-day-epitomize.html

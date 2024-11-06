@@ -1,3 +1,11 @@
+**Anticipating a Close Race, the Nation Watched Momentum Shift Toward Trump**\
+`A winner was not declared before midnight on Tuesday, but even Donald Trump’s allies seemed shocked by the signs of his strength — and the improbable political comeback it appeared to foretell.`\
+https://nytimes.com/2024/11/06/us/elections/election-night-scene.html
+
+**Fonseca’s Milan show ruthlessness they had been missing in beating Real Madrid**\
+`Fonseca has been under significant pressure and is yet to win over Milan supporters - a win away to the Champions League holders should help`\
+https://nytimes.com/athletic/5901759/2024/11/06/milan-madrid-fonseca/
+
 **Word of the Day: epitomize**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/06/learning/word-of-the-day-epitomize.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/us/nebraska-abortion-ballot-measure.html
 **Trump Wins Georgia, Re-establishing Republicans’ Dominance There**\
 `His victory in the state reaffirmed many conservatives’ beliefs that the Peach State is fundamentally red, despite Democrats’ inroads in recent election cycles.`\
 https://nytimes.com/2024/11/05/us/politics/georgia-election-trump-harris.html
-
-**A deeper look at Wild's power-play, penalty-kill woes that finally cost them a game**\
-`The Wild's play on special teams has been floundering for several games, but the Kings were the first to eke a win out of it.`\
-https://nytimes.com/athletic/5902471/2024/11/06/wild-special-teams-woes-analysis/
-
-**Fantasy football midseason dynasty report: Sell Cooper Kupp, buy Jaxon Smith-Njigba**\
-`Jeff Haverlack tells you who to buy (Cooper Kupp, among others) and who to sell at the midseason point of the 2024 NFL season. `\
-https://nytimes.com/athletic/5900892/2024/11/06/fantasy-football-midseason-dynasty-report-sell-cooper-kupp-buy-jaxon-smith-njigba/
 
