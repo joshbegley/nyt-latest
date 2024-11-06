@@ -1,3 +1,7 @@
+**Pimp Who Dismembered Woman After Watching ‘Dexter’ Gets Life in Prison**\
+`Cory Martin researched his plans by watching violent television shows, prosecutors said. Then he killed Brandy Odom in a scheme to collect a $200,000 life insurance payout.`\
+https://nytimes.com/2024/11/06/nyregion/nyc-pimp-murder-sentence-cory-martin-brandy-odom.html
+
 **Nick Martinez has already received multi-year offers, Scott Boras says**\
 `Boras said there’s a chance Martinez will accept the $21.05 million qualifying offer from the Reds, but also said Martinez has options.`\
 https://nytimes.com/athletic/5904015/2024/11/06/nick-martinez-reds-free-agent-offers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/rfk-jr-trump-health.html
 **Eikoh Hosoe, Photographer Who Elevated the Avant-Garde, Dies at 91**\
 `He pioneered a surrealistic narrative style in collaborations with dancers, artists and the author Yukio Mishima, with whom he created startling erotic tableaus.`\
 https://nytimes.com/2024/11/06/arts/eikoh-hosoe-dead.html
-
-**Arsenal liaising with UEFA over men's and women's fixture clash: How did this happen?**\
-`Arsenal are looking into solutions to resolve a scheduling issue that has seen their men’s and women’s teams slated to play at Emirates Stadium on the same night.`\
-https://nytimes.com/athletic/5903863/2024/11/06/arsenal-carabao-cup-womens-champions-league/
 

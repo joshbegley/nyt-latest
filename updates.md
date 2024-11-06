@@ -1,3 +1,7 @@
+**Pimp Who Dismembered Woman After Watching ‘Dexter’ Gets Life in Prison**\
+`Cory Martin researched his plans by watching violent television shows, prosecutors said. Then he killed Brandy Odom in a scheme to collect a $200,000 life insurance payout.`\
+https://nytimes.com/2024/11/06/nyregion/nyc-pimp-murder-sentence-cory-martin-brandy-odom.html
+
 **Nick Martinez has already received multi-year offers, Scott Boras says**\
 `Boras said there’s a chance Martinez will accept the $21.05 million qualifying offer from the Reds, but also said Martinez has options.`\
 https://nytimes.com/athletic/5904015/2024/11/06/nick-martinez-reds-free-agent-offers/
