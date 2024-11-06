@@ -1,3 +1,11 @@
+**Schiff Wins Senate Race to Fill the Feinstein Seat in California**\
+`Representative Adam Schiff, a Democrat, defeated Steve Garvey, a Republican and former professional baseball star.`\
+https://nytimes.com/2024/11/05/us/politics/california-senate-schiff-garvey.html
+
+**Pennsylvania Becomes Hot Spot for Election Disinformation**\
+`More than 60 percent of posts discussing election fraud on X on Tuesday focused on the state, according to an analysis of about 25,000 posts.`\
+https://nytimes.com/2024/11/05/technology/pennsylvania-election-disinformation.html
+
 **Maple Leafs report cards: Special teams breakthrough ends losing streak**\
 `The power play finally roared back to life as the Leafs scored three of their four goals with the man advantage.`\
 https://nytimes.com/athletic/5901768/2024/11/05/maple-leafs-report-cards-special-teams-bruins/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/nyregion/new-york-house-ryan-esposito.html
 **If Harris Loses, What Will Democrats Do?**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/if-harris-loses-what-will-democrats-do
-
-**Delaware Lawmaker Wins House Seat, Becoming First Openly Transgender Member of Congress**\
-`Sarah McBride, a Delaware state senator, competed for the state’s only U.S. House seat.`\
-https://nytimes.com/2024/11/05/us/sarah-mcbride-transgender-house-election.html
-
-**A group run by Elon Musk’s super PAC is collecting voter fraud claims on X.**\
-`N`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/x-elon-musk-election-fraud
 

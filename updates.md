@@ -1,3 +1,11 @@
+**Schiff Wins Senate Race to Fill the Feinstein Seat in California**\
+`Representative Adam Schiff, a Democrat, defeated Steve Garvey, a Republican and former professional baseball star.`\
+https://nytimes.com/2024/11/05/us/politics/california-senate-schiff-garvey.html
+
+**Pennsylvania Becomes Hot Spot for Election Disinformation**\
+`More than 60 percent of posts discussing election fraud on X on Tuesday focused on the state, according to an analysis of about 25,000 posts.`\
+https://nytimes.com/2024/11/05/technology/pennsylvania-election-disinformation.html
+
 **Maple Leafs report cards: Special teams breakthrough ends losing streak**\
 `The power play finally roared back to life as the Leafs scored three of their four goals with the man advantage.`\
 https://nytimes.com/athletic/5901768/2024/11/05/maple-leafs-report-cards-special-teams-bruins/
