@@ -1,3 +1,7 @@
+**Valencia vs Espanyol postponed following flooding disaster**\
+`Valencia&#8217;s match against Espanyol on Saturday has been postponed after the devastating flash floods in Spain.`\
+https://nytimes.com/athletic/5900248/2024/11/06/valencia-espanyol-postponed-flooding/
+
 **N.Y.C. Voters Approve Three Ballot Measures Proposed by Mayor Adams**\
 `Opponents tried to use Mayor Eric Adams’s federal indictment to argue against the measures, and cast them as a bid to lessen the City Council’s power.`\
 https://nytimes.com/2024/11/06/nyregion/nyc-ballot-propositions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/crosswords/wordle-review-1237.html
 **Who is Gideon Saar, Israel’s new foreign minister?**\
 `Over the years, he has been both a supporter and foe of Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2024/11/06/world/middleeast/gideon-saar-israel-foreign-minister.html
-
-**When Running 250 Miles Is the Easy Part**\
-`A man with autism, his devoted mother and a seemingly endless race. A story of resilience and love.`\
-https://nytimes.com/2024/11/06/us/running-ultramarathon-autism.html
 
