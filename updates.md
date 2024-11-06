@@ -1,3 +1,11 @@
+**What Is Project 2025, and Why Did Trump Distance Himself from It During the Campaign?**\
+`Democrats had attacked Donald J. Trump’s ties to the conservative policy blueprint for reshaping the federal government. Several of its authors served in his administration.`\
+https://nytimes.com/2024/11/06/us/politics/trump-project-2025.html
+
+**We Can Fight Later. Now Is the Time to Mourn.**\
+`The morning after the apocalypse.`\
+https://nytimes.com/2024/11/06/opinion/trump-future-mourn.html
+
 **Brush Fires in Southern California Prompt Evacuations and Power Outages**\
 `Firefighters were working on Wednesday to contain fires in Ventura and Los Angeles Counties amid dangerous weather conditions.`\
 https://nytimes.com/2024/11/06/us/malibu-fire-power-outages-california.html
