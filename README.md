@@ -1,3 +1,7 @@
+**Joe Biden Put Democrats in a Tough Spot**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/joe-biden-put-democrats-in-a-tough-spot
+
 **Blues’ Holloway takes puck to neck, in stable condition**\
 `Holloway exited during the first period after being hit in the neck area by a shot from Tampa Bay's Nick Paul.`\
 https://nytimes.com/athletic/5902114/2024/11/05/dylan-holloway-neck-injury-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/us/missouri-flooding-emergency.html
 **College Football Playoff committee got BYU — a team with a top-5 resume — all wrong**\
 `Kalani Sitake’s Cougars are 8-0 and have one of the best wins in the field — at SMU — yet are No. 9 in the initial rankings.`\
 https://nytimes.com/athletic/5902052/2024/11/05/college-football-playoff-rankings-byu/
-
-**Rosenthal: Gerrit Cole's compromise, David Ross' possible dugout return and more MLB notes**\
-`Plus why Jorge Soler's deal to the Angels makes more sense than it seemed and Garrett Crochet's offseason demand. `\
-https://nytimes.com/athletic/5902035/2024/11/05/mlb-notes-yankees-gerrit-cole-orioles-david-ross/
 
