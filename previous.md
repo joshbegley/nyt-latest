@@ -1,3 +1,7 @@
+**Willson Contreras to move to first base: What it means for Cardinals' 2025 plans**\
+`Contreras' openness to a position change speaks volumes about his desire to remain with the Cardinals.`\
+https://nytimes.com/athletic/5904568/2024/11/06/cardinals-mlb-willson-contreras-first-base/
+
 **Voters to Elites: Do You See Me Now?**\
 `Donald Trump is a monstrous narcissist, but there’s something off about an educated class that looks in the mirror of society and sees only itself.`\
 https://nytimes.com/2024/11/06/opinion/trump-elites-working-class.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/weather/hurricane-rafael-cuba.html
 **Will a Woman Ever Be President?**\
 `After Kamala Harris became the second woman to lose a presidential election to Donald J. Trump, some women wondered if the glass ceiling would ever break.`\
 https://nytimes.com/2024/11/06/us/politics/harris-woman-president.html
-
-**After Trump Took the Lead, Election Deniers Went Suddenly Silent**\
-`Trump supporters spent years fomenting concern about election integrity. On Tuesday, they set it all aside.`\
-https://nytimes.com/2024/11/06/technology/trump-election-denial.html
 
