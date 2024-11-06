@@ -1,3 +1,23 @@
+**Special Edition: What a Trump Victory Means**\
+`Plus, what to expect from his foreign policy.`\
+https://nytimes.com/2024/11/06/briefing/trump-victory-foreign-policy.html
+
+**An Emboldened G.O.P. Senate Majority Is Ready to Empower Trump**\
+`With a decisive margin in the Senate, Republicans, who have shown their willingness to accommodate President-elect Donald J. Trump, will have the numbers to overcome divisions over his personnel and policy agenda.`\
+https://nytimes.com/2024/11/06/us/politics/senate-republican-majority.html
+
+**Why Does It Take So Long to Call the House?**\
+`The sheer volume of seats up for grabs, the painstaking process for calling congressional races and the complexities of California conspire to drag out the process, possibly for days.`\
+https://nytimes.com/2024/11/06/us/politics/why-does-it-take-so-long-to-call-the-house.html
+
+**My Manifesto for Despairing Democrats**\
+`Here’s how to be a watchdog, not a lapdog, for the next four tumultuous years, while holding on to your sanity.`\
+https://nytimes.com/2024/11/06/opinion/trump-democrats-loss.html
+
+**Germany’s Coalition Collapses, Leaving the Government Teetering**\
+`After months of disputes, Chancellor Olaf Scholz ousted one of his governing partners, adding to the challenges for Europe since Donald Trump’s election.`\
+https://nytimes.com/2024/11/06/world/europe/germany-coalition-collapse-government.html
+
 **Jack Smith Assesses How to Wind Down Trump’s Federal Cases, Official Says**\
 `The decision is in keeping with a longstanding Justice Department policy that bars prosecution of sitting presidents.`\
 https://nytimes.com/2024/11/06/us/politics/doj-trump-federal-cases.html

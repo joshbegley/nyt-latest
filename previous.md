@@ -1,3 +1,23 @@
+**Special Edition: What a Trump Victory Means**\
+`Plus, what to expect from his foreign policy.`\
+https://nytimes.com/2024/11/06/briefing/trump-victory-foreign-policy.html
+
+**An Emboldened G.O.P. Senate Majority Is Ready to Empower Trump**\
+`With a decisive margin in the Senate, Republicans, who have shown their willingness to accommodate President-elect Donald J. Trump, will have the numbers to overcome divisions over his personnel and policy agenda.`\
+https://nytimes.com/2024/11/06/us/politics/senate-republican-majority.html
+
+**Why Does It Take So Long to Call the House?**\
+`The sheer volume of seats up for grabs, the painstaking process for calling congressional races and the complexities of California conspire to drag out the process, possibly for days.`\
+https://nytimes.com/2024/11/06/us/politics/why-does-it-take-so-long-to-call-the-house.html
+
+**My Manifesto for Despairing Democrats**\
+`Here’s how to be a watchdog, not a lapdog, for the next four tumultuous years, while holding on to your sanity.`\
+https://nytimes.com/2024/11/06/opinion/trump-democrats-loss.html
+
+**Germany’s Coalition Collapses, Leaving the Government Teetering**\
+`After months of disputes, Chancellor Olaf Scholz ousted one of his governing partners, adding to the challenges for Europe since Donald Trump’s election.`\
+https://nytimes.com/2024/11/06/world/europe/germany-coalition-collapse-government.html
+
 **Parents of Harlem Boy Who Starved to Death Are Charged With Murder**\
 `The parents of Jahmeik Modlin, 4, were initially charged with manslaughter. They are accused of locking away food from their children and showing “depraved indifference” for their son’s life.`\
 https://nytimes.com/2024/11/06/nyregion/jahmeik-modlin-starve-death.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5904123/2024/11/06/baylor-president-college-footbal
 **Jack Smith Assesses How to Wind Down Trump’s Federal Cases, Official Says**\
 `The decision is in keeping with a longstanding Justice Department policy that bars prosecution of sitting presidents.`\
 https://nytimes.com/2024/11/06/us/politics/doj-trump-federal-cases.html
-
-**Voters Were Fed Up Over Immigration. They Voted for Trump.**\
-`Voters across party lines shifted to the right on immigration. They blamed Biden-Harris for failing to control the chaotic border.`\
-https://nytimes.com/2024/11/06/us/trump-immigration-border.html
-
-**Fighting Climate Change Was ‘Never an America-Only Game’**\
-`The head of the World Bank on what comes next after the U.S. election.`\
-https://nytimes.com/2024/11/06/climate/climate-change-trump-world-bank-ajay-banga.html
-
-**Browns were supposed to be in win-now mode, but GM Andrew Berry has a lot to fix**\
-`The 2-7 Browns have more questions than their GM was willing to answer. `\
-https://nytimes.com/athletic/5903927/2024/11/06/andrew-berry-browns-deshaun-watson-future/
-
-**Top Republicans Hail Trump’s Victory, and Even G.O.P. Critics Congratulate Him**\
-`But Liz Cheney, his highest-profile Republican detractor, was not among those celebrating his win. She emphasized that Americans “must ensure that our institutions hold over these coming four years.”`\
-https://nytimes.com/2024/11/06/us/politics/trump-republicans-cheney-mcconnell-romney.html
-
-**Explaining Mings’ ‘very strange’ penalty error - and why he was punished but Arsenal's Gabriel was not**\
-`The Villa defender had a nightmare Champions League debut after being punished for picking up a goal kick against Club Bruges.`\
-https://nytimes.com/athletic/5904076/2024/11/06/mings-handball-rules-villa-penalty-why/
 
