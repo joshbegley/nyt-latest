@@ -1,3 +1,19 @@
+**Trump Bump 2.0? Experts Expect Another Audience Surge, With Caveats.**\
+`News fatigue and changing consumption habits could sap some of that enthusiasm over time, several news media experts said.`\
+https://nytimes.com/2024/11/06/business/media/trump-newspapers-cable-news-audience.html
+
+**Another Jolt of Uncertainty for a Global Economy Mired in It**\
+`The U.S. presidential election result has ensured a sharp turn in economic policy expected to upend global commerce and diverge from decades of American norms.`\
+https://nytimes.com/2024/11/06/business/economy/global-economy-us-election.html
+
+**What a Trump Victory Means for Tech**\
+`Another Trump presidency will be good for crypto and Elon Musk, but every big tech company may not benefit from a more hands-off approach to antitrust.`\
+https://nytimes.com/2024/11/06/technology/trump-musk-ai-crypto.html
+
+**Mohammed Kudus ban upgraded to five games after Tottenham red card**\
+`West Ham United forward Mohammed Kudus&#8217; suspension has been upgraded to five games by the Football Association (FA) after his red card against Tottenham Hotspur in October.`\
+https://nytimes.com/athletic/5863396/2024/11/06/mohammed-kudus-west-ham-suspended/
+
 **Warren Washington, Groundbreaking Climate Scientist, Dies at 88**\
 `He invented a computer model that made it possible to measure human-induced climate change. He also helped break a color barrier in science.`\
 https://nytimes.com/2024/11/06/climate/warren-washington-dead.html
