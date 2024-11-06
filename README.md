@@ -1,3 +1,7 @@
+**Truth Social Stock Surges on Trump Election Victory**\
+`Shares in Trump Media were among the most actively traded in the United States after the election was called.`\
+https://nytimes.com/2024/11/06/business/trump-media-stock-price.html
+
 **Why didn't the Giants trade Azeez Ojulari or Darius Slayton before the deadline?**\
 `Giants GM Joe Schoen now faces pressure to re-sign Ojulari and Slayton to avoid letting more homegrown talent walk out the door. `\
 https://nytimes.com/athletic/5902065/2024/11/06/new-york-giants-azeez-ojulari-darius-slayton-nfl-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/montana-abortion-ballot-measure.html
 **Why Caleb Williams, Bears' passing offense struggled in loss to Cardinals**\
 `Williams didn't get a lot of help in Arizona, but he needed to take more easy throws to help the Bears offense.`\
 https://nytimes.com/athletic/5901233/2024/11/06/bears-caleb-williams-passing-game-cardinals/
-
-**Vikings still content with interior defensive line despite not making deadline trade**\
-`The Vikings — and Aaron Rodgers — recognize the value of Harrison Phillips, Jonathan Bullard and Jerry Tillery on the interior D-line.`\
-https://nytimes.com/athletic/5901476/2024/11/06/vikings-defensive-line-trade-deadline/
 
