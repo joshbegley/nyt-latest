@@ -14,9 +14,9 @@ https://nytimes.com/2024/11/06/nyregion/democrats-house-ny.html
 `“You have the Mona Lisa of the museum,” Boras said Wednesday about Soto. “You have the attraction."`\
 https://nytimes.com/athletic/5903772/2024/11/06/yankees-juan-soto-scott-boras-free-agency/
 
-**Zelensky urges Trump to help defend Ukraine against Russia.**\
-`By Edward Wong`\
-https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/zelensky-urges-trump-to-help-defend-ukraine-against-russia
+**Zelensky Urges Trump to Help Defend Ukraine Against Russia**\
+`President-elect Donald J. Trump has often shown disdain toward Ukraine and its leader, President Volodymyr Zelensky.`\
+https://nytimes.com/2024/11/06/us/politics/zelensky-trump-ukraine-russia.html
 
 **Cole Leinart, son of former USC star Matt Leinart, commits to SMU**\
 `The Class of 2026 QB prospect landed an offer from SMU this week. He quickly accepted. `\

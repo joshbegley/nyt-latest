@@ -1,3 +1,7 @@
+**Zelensky Urges Trump to Help Defend Ukraine Against Russia**\
+`President-elect Donald J. Trump has often shown disdain toward Ukraine and its leader, President Volodymyr Zelensky.`\
+https://nytimes.com/2024/11/06/us/politics/zelensky-trump-ukraine-russia.html
+
 **Voters Reject Efforts to Loosen Drug Laws in Several States**\
 `Measures to legalize marijuana for recreational use failed in Florida and North Dakota. Massachusetts voters declined to allow psychedelics to be legal for therapeutic use.`\
 https://nytimes.com/2024/11/06/us/florida-marijuana-massachusetts-psychedelics.html
