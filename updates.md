@@ -1,3 +1,7 @@
+**Early Results Show a Red Shift Across the U.S.**\
+`A Times analysis finds that nearly three-fourths of U.S. counties shifted in favor of Donald J. Trump.`\
+https://nytimes.com/interactive/2024/11/06/us/politics/presidential-election-2024-red-shift.html
+
 **TV Networks Prepared for a Long Wait That Wasn’t**\
 `Anchors were ready to camp out in the studio for days on end. Instead, Donald J. Trump declared victory in the early hours of Wednesday morning.`\
 https://nytimes.com/2024/11/06/business/media/tv-networks-election-night.html
