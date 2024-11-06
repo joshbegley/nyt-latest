@@ -26,7 +26,7 @@ https://nytimes.com/2024/11/06/movies/elevation-review.html
 `The Heat head out on a six-game road trip.`\
 https://nytimes.com/athletic/5903591/2024/11/06/miami-heat-jimmy-butler-tyler-herro-phoenix-suns/
 
-**Harris will address the nation in a concession speech on Wednesday.**\
+**Harris Will Deliver Concession Speech to Nation After Losing to Donald Trump**\
 `Vice President Kamala Harris is slated to speak at 4 p.m. Eastern time from Howard University, according to a campaign official briefed on her plans.`\
 https://nytimes.com/2024/11/06/us/politics/harris-concession-speech-address-time.html
 
