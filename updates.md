@@ -1,3 +1,7 @@
+**Control of the House of Representatives remains up for grabs.**\
+`Several key House races were still undecided Wednesday morning after Republicans gained control of the White House and Senate, leaving the fate of the majority unclear.`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/election-house-representatives-democrats-republicans
+
 **Real Madrid's Tchouameni faces up to six weeks out with foot injury**\
 `Real Madrid midfielder Aurelien Tchouameni is set to miss between four and six weeks with a sprained ankle.`\
 https://nytimes.com/athletic/5902990/2024/11/06/aurelien-tchouameni-injury-update-real-madrid/

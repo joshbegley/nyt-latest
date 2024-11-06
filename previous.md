@@ -1,3 +1,7 @@
+**Control of the House of Representatives remains up for grabs.**\
+`Several key House races were still undecided Wednesday morning after Republicans gained control of the White House and Senate, leaving the fate of the majority unclear.`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/election-house-representatives-democrats-republicans
+
 **Real Madrid's Tchouameni faces up to six weeks out with foot injury**\
 `Real Madrid midfielder Aurelien Tchouameni is set to miss between four and six weeks with a sprained ankle.`\
 https://nytimes.com/athletic/5902990/2024/11/06/aurelien-tchouameni-injury-update-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/upshot/trump-election-victory.html
 **I Quit the First Trump Administration. Principled People Must Serve in the Second.**\
 `It’s our best hope.`\
 https://nytimes.com/2024/11/06/opinion/resistance-trump-administration.html
-
-**Man City ordered to pay majority of Mendy's unpaid wages after employment tribunal**\
-`Manchester City have been ordered to pay the majority of Benjamin Mendy’s unpaid wages after their former player won an employment tribunal.`\
-https://nytimes.com/athletic/5902812/2024/11/06/benjamin-mendy-manchester-city-court-case/
 
