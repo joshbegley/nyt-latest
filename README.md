@@ -1,3 +1,15 @@
+**Blues’ Holloway takes puck to neck, in stable condition**\
+`Holloway exited during the first period after being hit in the neck area by a shot from Tampa Bay's Nick Paul.`\
+https://nytimes.com/athletic/5902114/2024/11/05/dylan-holloway-neck-injury-blues/
+
+**Republicans Make Early Gain in Push for Control of the Senate**\
+`As expected, Gov. Jim Justice won the seat left open by the retirement of Senator Joe Manchin III, putting the G.O.P. one seat away from a majority. But critical seats remained up for grabs.`\
+https://nytimes.com/2024/11/05/us/politics/republicans-senate-control.html
+
+**A county elections office in Arizona is evacuated after a bomb threat.**\
+`The threat, one of at least six received in Arizona today, is likely to slow ballot counting in La Paz County.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/a-county-elections-office-in-arizona-is-evacuated-after-a-bomb-threat
+
 **Technical problems slow Navajo voting in Arizona.**\
 `Printer problems in heavily Democratic Apache County led to long lines and discouraged voters, according to tribal officials.`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/technical-problems-slow-navajo-voting-in-arizona
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5902052/2024/11/05/college-football-playoff-ranking
 **Rosenthal: Gerrit Cole's compromise, David Ross' possible dugout return and more MLB notes**\
 `Plus why Jorge Soler's deal to the Angels makes more sense than it seemed and Garrett Crochet's offseason demand. `\
 https://nytimes.com/athletic/5902035/2024/11/05/mlb-notes-yankees-gerrit-cole-orioles-david-ross/
-
-**From Coast to Coast, Americans Cast Their Ballots**\
-`Voters flocked to churches, schools and community centers in an election that is expected to have record turnout.`\
-https://nytimes.com/2024/11/05/us/politics/election-day-photos-polls-harris-trump.html
-
-**Why Exit Polls Are Misleading**\
-`Exit polls don’t have a very good track record, and they can contribute to misleading narratives on election night.`\
-https://nytimes.com/2024/11/05/us/politics/exit-polls-election.html
-
-**Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
-`Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
-https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
 
