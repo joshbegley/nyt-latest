@@ -1,3 +1,7 @@
+**Political Betting Markets See Vindication in Trump Victory**\
+`Prediction markets, which surged to prominence during the presidential campaign, started reflecting a likely Trump win several weeks ago, even as opinion polls showed a tight race.`\
+https://nytimes.com/2024/11/06/business/dealbook/prediction-markets-trump-win.html
+
 **What’s at Stake for Mexico in a Second Trump Presidency?**\
 `Tariffs, border crossings, mass deportations of migrants and military strikes on cartels: Mexico is in the firing line of the president-elect.`\
 https://nytimes.com/2024/11/06/world/americas/trump-victory-mexico-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5903216/2024/11/06/wolves-owners-fosun-minority-sta
 **Trump, Again**\
 `In the early hours of Wednesday morning, Donald J. Trump was elected president for a second time. Shortly before that call was made, the Times journalists Michael Barbaro, Nate Cohn, Lisa Lerer and Astead W. Herndon sat down to discuss the state of the election.`\
 https://nytimes.com/video/podcasts/the-daily/100000009811010/trump-election-results.html
-
-**Canucks stock watch: Who’s trending up, who’s trending down after 11 games?**\
-`A look at which Canucks players have improved their stock with stellar performances and who's trending in the wrong direction.`\
-https://nytimes.com/athletic/5902375/2024/11/06/canucks-stock-watch-players-analysis/
 
