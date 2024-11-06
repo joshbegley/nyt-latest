@@ -1,3 +1,7 @@
+**Yankees' Brian Cashman on club's sloppiness: 'We played poorly in the World Series'**\
+`Said Cashman: "I think we underperformed more so than '(we were) lucky to get into the World Series, and how did we even get there?'"`\
+https://nytimes.com/athletic/5901598/2024/11/06/yankees-brian-cashman-sloppiness-world-series/
+
 **Bengals' lack of defensive additions at trade deadline amplifies focus on draft classes**\
 `Standing pat on defense was a missed opportunity but Cincinnati is confident its young homegrown players can fill needs.`\
 https://nytimes.com/athletic/5902019/2024/11/06/bengals-trade-deadline-defense-draft-picks/
