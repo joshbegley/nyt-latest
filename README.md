@@ -20,7 +20,7 @@ https://nytimes.com/2024/11/06/us/politics/elon-musk-trump-benefits.html
 
 **Harris Shows Trump How to Concede**\
 `Even if only one candidate is gracious enough to do it.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/harris-concession-democracy
+https://nytimes.com/2024/11/06/opinion/harris-concession-democracy.html
 
 **Voters Reject Efforts to Loosen Drug Laws in Several States**\
 `Measures to legalize marijuana for recreational use failed in Florida and North Dakota. Massachusetts voters declined to allow psychedelics to be legal for therapeutic use.`\
