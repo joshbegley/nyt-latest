@@ -1,3 +1,11 @@
+**Man City ordered to pay majority of Mendy's unpaid wages after employment tribunal**\
+`Manchester City have been ordered to pay the majority of Benjamin Mendy’s unpaid wages after their former player won an employment tribunal.`\
+https://nytimes.com/athletic/5902812/2024/11/06/benjamin-mendy-manchester-city-court-case/
+
+**‘An act of madness’: Israeli news commentators condemn Gallant’s firing.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/an-act-of-madness-israeli-news-commentators-condemn-gallants-firing
+
 **Barca may ring the changes tonight - but Flick’s best XI is a winning formula**\
 `Before the Champions League game against Red Star Belgrade - where some fringe players could prove themselves - we look at Flick’s side`\
 https://nytimes.com/athletic/5902795/2024/11/06/barcelona-hansi-flick-starting-xi/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5901825/2024/11/06/luis-diaz-liverpool-leverkusen-h
 **‘Meet Me Next Christmas’ Review: An a Cappella Affair to Remember**\
 `This Netflix Christmas rom-com inexplicably wants to remind viewers that the group Pentatonix still exists.`\
 https://nytimes.com/2024/11/06/movies/meet-me-next-christmas-review.html
-
-**‘Pedro Páramo’ Review: A Ghost Story Lacking in Spirit**\
-`In this grave adaptation of Juan Rulfo’s surreal novel, the living pray for salvation and the dead murmur regrets, but the filmmaking is oddly orthodox.`\
-https://nytimes.com/2024/11/06/movies/pedro-paramo-review.html
-
-**Lowetide: How is the next Oilers top 20 prospects list shaping up?**\
-`The state of the Oilers prospect pool is much better than where it was just a few months ago.`\
-https://nytimes.com/athletic/5900638/2024/11/06/edmonton-oilers-prospects-top-20-list/
 

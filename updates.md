@@ -1,3 +1,11 @@
+**Man City ordered to pay majority of Mendy's unpaid wages after employment tribunal**\
+`Manchester City have been ordered to pay the majority of Benjamin Mendy’s unpaid wages after their former player won an employment tribunal.`\
+https://nytimes.com/athletic/5902812/2024/11/06/benjamin-mendy-manchester-city-court-case/
+
+**‘An act of madness’: Israeli news commentators condemn Gallant’s firing.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/an-act-of-madness-israeli-news-commentators-condemn-gallants-firing
+
 **Barca may ring the changes tonight - but Flick’s best XI is a winning formula**\
 `Before the Champions League game against Red Star Belgrade - where some fringe players could prove themselves - we look at Flick’s side`\
 https://nytimes.com/athletic/5902795/2024/11/06/barcelona-hansi-flick-starting-xi/
