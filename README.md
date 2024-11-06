@@ -1,3 +1,15 @@
+**Zelensky urges Trump to help defend Ukraine against Russia.**\
+`By Edward Wong`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/zelensky-urges-trump-to-help-defend-ukraine-against-russia
+
+**Cole Leinart, son of former USC star, commits to SMU**\
+`The son of the former Heisman Trophy winner landed an offer from SMU this week. He quickly accepted. `\
+https://nytimes.com/athletic/5904255/2024/11/06/recruiting-smu-cole-leinart-matt-smu/
+
+**Trump’s Newest Economic Sherpas Are Not Like His Old Ones**\
+`A little-known investment banker, a former hedge fund star and an acolyte of George Soros have the president-elect’s ear.`\
+https://nytimes.com/2024/11/06/business/trump-economic-advisers.html
+
 **Travis Kelce says Jason was 'defending' family in phone-smashing incident**\
 `Jason Kelce previously addressed the incident on ESPN’s "Monday Night Countdown," saying he was "not proud of it."`\
 https://nytimes.com/athletic/5904078/2024/11/06/travis-kelce-jason-phone-incident/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/06/opinion/trump-democrats-loss.html
 **Germany’s Coalition Collapses, Leaving the Government Teetering**\
 `After months of disputes, Chancellor Olaf Scholz ousted one of his governing partners, adding to the challenges for Europe since Donald Trump’s election.`\
 https://nytimes.com/2024/11/06/world/europe/germany-coalition-collapse-government.html
-
-**Parents of Harlem Boy Who Starved to Death Are Charged With Murder**\
-`The parents of Jahmeik Modlin, 4, were initially charged with manslaughter. They are accused of locking away food from their children and showing “depraved indifference” for their son’s life.`\
-https://nytimes.com/2024/11/06/nyregion/jahmeik-modlin-starve-death.html
-
-**Paul George has no 'ill will' against Clippers ahead of return to L.A.**\
-`The Sixers star who always envisioned retiring in a Clippers jersey still has nothing but good things to say about his old team.`\
-https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-return/
-
-**California Wildfires Prompt Evacuations and Shelter-in-Place Warnings**\
-`Firefighters battled strong winds and dangerous weather conditions in Southern California on Wednesday in an attempt to control two wildfires in the region.`\
-https://nytimes.com/video/us/100000009812041/california-wildfires.html
 
