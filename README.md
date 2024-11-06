@@ -1,3 +1,7 @@
+**Donald Trump Declares Victory and Thanks Supporters**\
+`He said his campaign had “achieved the most incredible political thing,” as news outlets put him on the verge of reclaiming the White House.`\
+https://nytimes.com/2024/11/06/us/politics/trump-victory-speech.html
+
 **Yankees' Brian Cashman on club's sloppiness: 'We played poorly in the World Series'**\
 `Said Cashman: "I think we underperformed more so than '(we were) lucky to get into the World Series, and how did we even get there?'"`\
 https://nytimes.com/athletic/5901598/2024/11/06/yankees-brian-cashman-sloppiness-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/opinion/election-day-results-hostage.html
 **Election Results in Key New York Races**\
 `Democrats flipped a House seat in central New York and defended one in the Hudson Valley, and a ballot measure tied to abortion access was approved.`\
 https://nytimes.com/2024/11/06/nyregion/election-results-in-key-new-york-races.html
-
-**5 Minutes That Will Make You Love the Vibraphone**\
-`Are the vibes good? These tracks by Milt Jackson, Lionel Hampton, Roy Ayers and others, chosen by 12 musicians and writers, should convince you.`\
-https://nytimes.com/2024/11/06/arts/music/vibraphone-jazz-music.html
 
