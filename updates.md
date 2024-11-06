@@ -1,3 +1,11 @@
+**Why Are Americans So Pessimistic?**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-americans-so-pessimistic
+
+**Andy Kim Wins in New Jersey to Become the First Korean American Senator**\
+`Mr. Kim, a Democrat, will also be the Senate’s third-youngest member after a turbulent race.`\
+https://nytimes.com/2024/11/05/nyregion/nj-senate-kim-bradshaw.html
+
 **Black Voters Weigh Character, Policies and Politics at the Polls**\
 `Polling last month suggested that while the vast majority of Black voters supported Ms. Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
 https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html

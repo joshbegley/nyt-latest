@@ -1,3 +1,11 @@
+**Why Are Americans So Pessimistic?**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-americans-so-pessimistic
+
+**Andy Kim Wins in New Jersey to Become the First Korean American Senator**\
+`Mr. Kim, a Democrat, will also be the Senate’s third-youngest member after a turbulent race.`\
+https://nytimes.com/2024/11/05/nyregion/nj-senate-kim-bradshaw.html
+
 **Black Voters Weigh Character, Policies and Politics at the Polls**\
 `Polling last month suggested that while the vast majority of Black voters supported Ms. Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
 https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/arts/music/tyka-nelson-sister-dead.html
 **Mexico’s Top Court Dismisses Proposal to Invalidate Contentious Judicial Overhaul**\
 `The move spares the country’s new president from having to choose between recognizing a court decision to strike down the overhaul or aligning with her party’s leaders and ignoring it.`\
 https://nytimes.com/2024/11/05/world/americas/mexico-supreme-court-judicial-overhaul.html
-
-**Why No. 8 Indiana is the 12-team College Football Playoff's ultimate test case**\
-`What do you see in the Hoosiers: a good team beating up punching bags, or one that can go toe-to-toe with the best in the country?`\
-https://nytimes.com/athletic/5900986/2024/11/05/indiana-college-football-playoff-rankings-resume-schedule/
-
-**Justice Wins Election in West Virginia, Giving Republicans a Senate Edge**\
-`The G.O.P. governor easily won the seat being vacated by Senator Joe Manchin III, an independent who caucused with Democrats, giving Republicans an expected win as they push to take the Senate.`\
-https://nytimes.com/2024/11/05/us/elections/west-virginia-senate-justice-elliott.html
 
