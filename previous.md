@@ -1,3 +1,15 @@
+**Fantasy football brain games: Give Daniel Jones a go, bench Tank Bigsby in Week 10**\
+`Renee Miller offers positional start/sit advice for players in precarious situations ahead of Week 10. `\
+https://nytimes.com/athletic/5903293/2024/11/06/fantasy-football-brain-games-week-10/
+
+**Bills sign DTs Quinton Jefferson, Jordan Phillips**\
+`Both signed on one-year deals, the Bills announced.`\
+https://nytimes.com/athletic/5903440/2024/11/06/bills-browns-quinton-jefferson-jordan-phillips/
+
+**The Covid Moms Strike Back**\
+`I wonder if their lingering rage fueled Trump’s decisive win.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/pandemic-mothers-trump-voters
+
 **Premier League clubs to vote on changes to APT rules**\
 `The Premier League will ask its 20 clubs to vote on proposed changes to sponsorship rules later this month following the successful legal challenge from Manchester City.`\
 https://nytimes.com/athletic/5903395/2024/11/06/premier-league-sponsorship-rules-vote/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-dietary-guidelines.
 **Jones? Hudson-Odoi? James? The outsiders for a call-up in Carsley's final England squad**\
 `Carsley has shown he isn't afraid to look in a different direction. So which players could be given an opportunity to impress?`\
 https://nytimes.com/athletic/5902870/2024/11/06/england-squad-carsley-outsiders/
-
-**Political Betting Markets See Vindication in Trump Victory**\
-`Prediction markets, which surged to prominence during the presidential campaign, started reflecting a likely Trump win several weeks ago, even as opinion polls showed a tight race.`\
-https://nytimes.com/2024/11/06/business/dealbook/prediction-markets-trump-win.html
-
-**What’s at Stake for Mexico in a Second Trump Presidency?**\
-`Tariffs, border crossings, mass deportations of migrants and military strikes on cartels: Mexico is in the firing line of the president-elect.`\
-https://nytimes.com/2024/11/06/world/americas/trump-victory-mexico-immigration.html
-
-**She Was Undecided Until Election Day. Who Did She Choose?**\
-`The New York Times followed a Pennsylvania voter throughout the campaign. She disliked both candidates, and struggled with her decision until the very end.`\
-https://nytimes.com/2024/11/06/us/undecided-voter-pennsylvania.html
 

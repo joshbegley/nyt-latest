@@ -1,3 +1,15 @@
+**Fantasy football brain games: Give Daniel Jones a go, bench Tank Bigsby in Week 10**\
+`Renee Miller offers positional start/sit advice for players in precarious situations ahead of Week 10. `\
+https://nytimes.com/athletic/5903293/2024/11/06/fantasy-football-brain-games-week-10/
+
+**Bills sign DTs Quinton Jefferson, Jordan Phillips**\
+`Both signed on one-year deals, the Bills announced.`\
+https://nytimes.com/athletic/5903440/2024/11/06/bills-browns-quinton-jefferson-jordan-phillips/
+
+**The Covid Moms Strike Back**\
+`I wonder if their lingering rage fueled Trump’s decisive win.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/pandemic-mothers-trump-voters
+
 **Premier League clubs to vote on changes to APT rules**\
 `The Premier League will ask its 20 clubs to vote on proposed changes to sponsorship rules later this month following the successful legal challenge from Manchester City.`\
 https://nytimes.com/athletic/5903395/2024/11/06/premier-league-sponsorship-rules-vote/
