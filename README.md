@@ -1,3 +1,7 @@
+**Yankees' Brian Cashman on club's sloppiness: 'We played poorly in the World Series'**\
+`Said Cashman: "I think we underperformed more so than '(we were) lucky to get into the World Series, and how did we even get there?'"`\
+https://nytimes.com/athletic/5901598/2024/11/06/yankees-brian-cashman-sloppiness-world-series/
+
 **Bengals' lack of defensive additions at trade deadline amplifies focus on draft classes**\
 `Standing pat on defense was a missed opportunity but Cincinnati is confident its young homegrown players can fill needs.`\
 https://nytimes.com/athletic/5902019/2024/11/06/bengals-trade-deadline-defense-draft-picks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/nyregion/election-results-in-key-new-york-races.h
 **5 Minutes That Will Make You Love the Vibraphone**\
 `Are the vibes good? These tracks by Milt Jackson, Lionel Hampton, Roy Ayers and others, chosen by 12 musicians and writers, should convince you.`\
 https://nytimes.com/2024/11/06/arts/music/vibraphone-jazz-music.html
-
-**‘If We Care About Justice in America, There’s Going to Be a Lot of Work to Do’**\
-`Two Opinion writers consider a second term for Donald Trump.`\
-https://nytimes.com/2024/11/06/opinion/donald-trump-election-2024.html
 
