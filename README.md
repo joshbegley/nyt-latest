@@ -1,3 +1,11 @@
+**TV Networks Prepared for a Long Wait That Didn’t Come**\
+`Anchors were ready to camp out in the studio for days on end. Instead, Donald J. Trump declared victory in the early hours of Wednesday morning.`\
+https://nytimes.com/2024/11/06/business/media/tv-networks-election-night.html
+
+**By Firing Gallant, Netanyahu Removes One Threat but Risks Another**\
+`Yoav Gallant, the departing defense minister, had opposed Prime Minister Benjamin Netanyahu on key policies. His dismissal removes an opponent but has stirred public discontent.`\
+https://nytimes.com/2024/11/06/world/middleeast/gallant-netanyahu-israel-defense-minister.html
+
 **Trump Speaks as He Moves Closer to an Election Win**\
 `The former president addressed his supporters after he moved closer to a second term in the White House by winning some key swing states.`\
 https://nytimes.com/video/us/elections/100000009810851/trump-election-day-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/learning/helmet-caps.html
 **Filmmaker’s Private Archive Rekindles Debate Over Her Nazi Ties**\
 `Recent access to Leni Riefenstahl’s estate has prompted new discussions in Germany about her politics and a reconsideration of her photographs of the Nuba people in Sudan.`\
 https://nytimes.com/2024/11/06/movies/leni-riefenstahl-documentary-nuba-photographs.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/06/crosswords/spelling-bee-forum.html
-
-**When were things last this bad for Real Madrid?**\
-`Carlo Ancelotti's side are in a rut, but some problems were foreseeable in the summer`\
-https://nytimes.com/athletic/5902032/2024/11/06/real-madrid-ac-milan-ancelotti/
 
