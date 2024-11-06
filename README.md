@@ -1,3 +1,7 @@
+**A GM on the brink: Joe Douglas on the state of the Jets' season**\
+`Even after a big win on Halloween night, the Jets are still climbing a steep hill to get to the playoffs.`\
+https://nytimes.com/athletic/5904514/2024/11/06/joe-douglas-jets-gm-state-of-jets-season/
+
 **Plea Deals for Accused 9/11 Plotters Are Valid, Judge Rules**\
 `A military judge said he would move forward with accepting guilty pleas from three defendants in exchange for life sentences in the long-running case.`\
 https://nytimes.com/2024/11/06/us/politics/gitmo-plea-agreement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/business/media/richard-winfield-dead.html
 **7 Salisbury U. Students Beat Person Because of Sexual Orientation, Police Say**\
 `The students, who face assault and hate crime charges, lured a person to an apartment where they spat on him and broke a rib, the police said.`\
 https://nytimes.com/2024/11/06/us/salisbury-university-students-arrested.html
-
-**Early Results Suggest the Polls Were Notably Accurate**\
-`Collectively they indicated that the presidential race would be close, and it appears they got it right without significantly underestimating Donald Trump’s support.`\
-https://nytimes.com/2024/11/06/us/elections/election-polls-accurate.html
 
