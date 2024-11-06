@@ -1,3 +1,7 @@
+**How Wild's lost special teams battle proved costly vs. Kings: 3 takeaways**\
+`The Wild's three-game win streak came to an end with a 5-1 loss to the Kings.`\
+https://nytimes.com/athletic/5902025/2024/11/05/wild-kings-takeaways-analysis/
+
 **Schiff Wins Senate Race to Fill the Feinstein Seat in California**\
 `Representative Adam Schiff, a Democrat, defeated Steve Garvey, a Republican and former professional baseball star.`\
 https://nytimes.com/2024/11/05/us/politics/california-senate-schiff-garvey.html
