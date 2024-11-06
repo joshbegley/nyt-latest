@@ -1,3 +1,11 @@
+**Alsobrooks Defeats Hogan in Maryland, Keeping a Blue-State Senate Seat**\
+`The Prince George’s County executive will be the first Black woman to represent Maryland in the Senate. Her race against former Gov. Larry Hogan was the most competitive in decades in the deep-blue state.`\
+https://nytimes.com/2024/11/05/us/elections/maryland-senate-hogan-alsobrooks.html
+
+**Site for Crafts**\
+`Has Adam Aaronson gone a bridge too far?`\
+https://nytimes.com/2024/11/05/crosswords/daily-puzzle-2024-11-06.html
+
 **New Yorkers Pass an Equal Rights Amendment Tied to Abortion Access**\
 `Proposition 1 was aggressively opposed by Republicans, who tried to cast it as an attack on girls’ sports and a giveaway to migrants.`\
 https://nytimes.com/2024/11/05/nyregion/new-york-proposition-1-abortion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/us/florida-abortion-ballot-measure.html
 **Is Abortion Turning the Gender Gap Into a Chasm?**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/is-abortion-turning-the-gender-gap-into-a-chasm
-
-**MLB GM meetings: Royals seek leadoff help, Orioles have money for top pitcher**\
-`Jonathan India would be an intriguing fit to bat in front of Bobby Witt Jr. as the Royals look to bolster their offense.`\
-https://nytimes.com/athletic/5902015/2024/11/05/mlb-gm-meetings-bobby-witt-willy-adames/
-
-**Flooding in Missouri Kills at Least 4, Including 2 Poll Workers**\
-`The governor activated emergency operations procedures after the deaths on Tuesday after days of heavy rainfall, flash flooding and tornadoes.`\
-https://nytimes.com/2024/11/05/us/missouri-flooding-emergency.html
 
