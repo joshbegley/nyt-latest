@@ -1,3 +1,7 @@
+**Arteta hopeful Havertz available for Chelsea trip after 'big cut' against Inter**\
+`Arsenal manager Mikel Arteta is hopeful Kai Havertz will be available for Sunday&#8217;s trip to Chelsea after the German sustained a &#8220;big cut&#8221; during their Champions League loss against Inter Milan.`\
+https://nytimes.com/athletic/5904532/2024/11/06/kai-havertz-head-injury-merino-arsenal/
+
 **Will a Woman Ever Be President?**\
 `After Kamala Harris became the second woman to lose a presidential election to Donald J. Trump, some women wondered if the glass ceiling would ever break.`\
 https://nytimes.com/2024/11/06/us/politics/harris-woman-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/briefing/harris-concession-trump-agenda-second-te
 **Harris Delivers Concession Speech at Howard University**\
 `Vice President Kamala Harris publicly conceded defeat to President-elect Donald J. Trump on Wednesday.`\
 https://nytimes.com/video/us/elections/100000009812696/harris-concession-speech-video.html
-
-**Democrats Again Banked on the ‘Blue Wall.’ It Crumbled.**\
-`Donald J. Trump swept the Great Lakes battlegrounds of Michigan, Pennsylvania and Wisconsin, raising questions about the Democratic coalition going forward.`\
-https://nytimes.com/2024/11/06/us/politics/trump-harris-blue-wall-election.html
 
