@@ -1,3 +1,7 @@
+**Democrats Flip a Critical House Seat in New York, Toppling Molinaro**\
+`Josh Riley defeated the Republican incumbent, Representative Marc Molinaro, the second House seat flipped in New York by Democrats.`\
+https://nytimes.com/2024/11/06/nyregion/new-york-house-molinaro-riley.html
+
 **Jon Stewart Tries to Find Good News on Election Night**\
 `“Look at all the little glass-half-fulls out there,” Stewart said as his “Daily Show” audience applauded a Democratic Senate victory in Maryland.`\
 https://nytimes.com/2024/11/06/arts/television/jon-stewart-daily-show-election-night.html

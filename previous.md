@@ -1,3 +1,7 @@
+**Democrats Flip a Critical House Seat in New York, Toppling Molinaro**\
+`Josh Riley defeated the Republican incumbent, Representative Marc Molinaro, the second House seat flipped in New York by Democrats.`\
+https://nytimes.com/2024/11/06/nyregion/new-york-house-molinaro-riley.html
+
 **Jon Stewart Tries to Find Good News on Election Night**\
 `“Look at all the little glass-half-fulls out there,” Stewart said as his “Daily Show” audience applauded a Democratic Senate victory in Maryland.`\
 https://nytimes.com/2024/11/06/arts/television/jon-stewart-daily-show-election-night.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5897566/2024/11/06/david-raya-arsenal-saves/
 **The calm brilliance of Emery's Villa has gone missing - it needs to return**\
 `Villa have set the highest standards since Emery took charge - that's why their last three results and performances have been so surprising `\
 https://nytimes.com/athletic/5897232/2024/11/06/unai-emery-aston-villa-champions-league-bruges/
-
-**Jordan Ayew is finding his niche as the impact substitute Leicester needed**\
-`His arrival may have drawn a mixed reaction from the fans in the summer but they are now seeing why Steve Cooper brought Ayew in`\
-https://nytimes.com/athletic/5900031/2024/11/06/jordan-ayew-impact-substitute/
 
