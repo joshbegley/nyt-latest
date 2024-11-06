@@ -1,3 +1,15 @@
+**What do first Playoff rankings mean for Georgia, SEC?**\
+`Nobody from the SEC is definitely in the field yet, and seven teams still have a realistic shot, led by Georgia.`\
+https://nytimes.com/athletic/5901994/2024/11/05/college-football-playoff-rankings-georgia-sec/
+
+**Alex Bregman is the Astros' 'biggest priority.' Can Dana Brown seal the deal?**\
+`Said GM Dana Brown, "I’m going into this offseason with the thought that we’re going to get Bregman back."`\
+https://nytimes.com/athletic/5901990/2024/11/05/astros-alex-bregman-priority-free-agency/
+
+**Elon Musk Is in a Category All His Own**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/elon-musk-is-in-a-category-all-his-own
+
 **Why Are Americans So Pessimistic?**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-americans-so-pessimistic
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5901850/2024/11/05/yankees-juan-soto-free-agent-con
 **Why the 5th seed for No. 2 Ohio State is an enviable place to be in Playoff rankings**\
 `If Ohio State wins out in the regular season, the Big Ten title game could be a win-win situation in the College Football Playoff race.`\
 https://nytimes.com/athletic/5901632/2024/11/05/ohio-state-college-football-playoff-rankings/
-
-**Why Jerry Jones bought when Cowboys probably should've sold at trade deadline**\
-`The Cowboys added a big-bodied receiver drafted in the second round in 2023 with two years left on his rookie deal.`\
-https://nytimes.com/athletic/5901846/2024/11/05/cowboys-jerry-jones-trade-deadline-jonathan-mingo/
-
-**Tyka Nelson, Sister of Prince Who Carved Her Own Path, Dies at 64**\
-`Out from under an imposing shadow, she recorded four albums as a singer and had two R&B hits before turning her focus to her brother’s legacy.`\
-https://nytimes.com/2024/11/05/arts/music/tyka-nelson-sister-dead.html
-
-**Mexico’s Top Court Dismisses Proposal to Invalidate Contentious Judicial Overhaul**\
-`The move spares the country’s new president from having to choose between recognizing a court decision to strike down the overhaul or aligning with her party’s leaders and ignoring it.`\
-https://nytimes.com/2024/11/05/world/americas/mexico-supreme-court-judicial-overhaul.html
 
