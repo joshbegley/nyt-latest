@@ -1,3 +1,7 @@
+**Missouri Voters Pass Measure to Protect Abortion Rights and End Ban**\
+`A ballot amendment enshrining reproductive rights in the State Constitution would void one of the strictest abortion bans in the country.`\
+https://nytimes.com/2024/11/05/us/missouri-abortion-measure.html
+
 **Why Are Democrats Losing Support?**\
 `By Ross Douthat and Ezra Klein`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-democrats-losing-support
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/technology/pennsylvania-election-disinformation.h
 **Maple Leafs report cards: Special teams breakthrough ends losing streak**\
 `The power play finally roared back to life as the Leafs scored three of their four goals with the man advantage.`\
 https://nytimes.com/athletic/5901768/2024/11/05/maple-leafs-report-cards-special-teams-bruins/
-
-**Stocks in Asia Rise as Election Results Roll In**\
-`Bitcoin reached a record high and the dollar jumped, signs that traders were positioning themselves for a possible win by Donald Trump.`\
-https://nytimes.com/2024/11/05/business/election-stock-markets.html
 
