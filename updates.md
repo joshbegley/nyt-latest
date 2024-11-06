@@ -1,3 +1,19 @@
+**Trump Team Revokes Election Party Access for Some Journalists**\
+`A reporter for Puck and other journalists were barred after critical coverage of the campaign.`\
+https://nytimes.com/2024/11/05/business/media/trump-election-party-access-journalists.html
+
+**Contractor Who Defrauded Navy of Millions and Fled Gets 15 Years in Prison**\
+`Leonard Glenn Francis, known as Fat Leonard, bribed Navy officials with cash and luxury goods in exchange for over $30 million in contracts for his business, officials said.`\
+https://nytimes.com/2024/11/05/us/fat-leonard-navy-contractor-sentenced.html
+
+**Trump Is the First Republican Presidential Candidate to Win Miami-Dade County Since 1988**\
+`Florida has transformed from a battleground state into one that votes reliably Republican. The county, a former Democratic stronghold, has followed the trend.`\
+https://nytimes.com/2024/11/05/us/trump-miami-dade-florida.html
+
+**Penn State's No. 6 ranking backed by road wins, hanging with Ohio State, CFP committee says**\
+`The Nittany Lions are a projected No. 7 seed in the 12-team bracket and would host No. 10 seed Notre Dame. `\
+https://nytimes.com/athletic/5901389/2024/11/05/penn-state-college-football-playoff-rankings-analysis/
+
 **Black Voters Weigh Character, Policies and Politics at the Polls**\
 `Polling last month suggested that while the vast majority of Black voters supported Kamala Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
 https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html
