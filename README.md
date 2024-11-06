@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-6-2024.html
 
 **Chelsea's Palmer an injury doubt for Arsenal match - Maresca**\
-`Chelsea head Enzo Maresca admits it could be a risk to select Cole Palmer against Arsenal on Sunday because of the knee injury he suffered from a Lisandro Martinez challenge.`\
+`Chelsea head coach Enzo Maresca admits it could be a risk to select Cole Palmer against Arsenal on Sunday because of the knee injury he suffered from a Lisandro Martinez challenge.`\
 https://nytimes.com/athletic/5903149/2024/11/06/cole-palmer-injury-chelsea/
 
 **Democrats Got the Recovery They Wanted. It Wasn’t Enough.**\
