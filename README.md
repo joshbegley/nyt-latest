@@ -1,3 +1,11 @@
+**Baylor president wants Power 4 leaders to hear from super league groups**\
+`Baylor president and Big 12 board chairwoman Linda Livingstone has sent a letter to university leaders in the ACC, Big Ten and SEC, inviting them to a summit in early December, where they can hear directly from groups pitching potential new models for college football.`\
+https://nytimes.com/athletic/5904123/2024/11/06/baylor-president-college-football-super-leagues/
+
+**Jack Smith begins discussing how to wind down his prosecutions of Trump.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jack-smith-begins-discussing-how-to-wind-down-his-prosecutions-of-trump
+
 **Voters Were Fed Up Over Immigration. They Voted for Trump.**\
 `Voters across party lines shifted to the right on immigration. They blamed Biden-Harris for failing to control the chaotic border.`\
 https://nytimes.com/2024/11/06/us/trump-immigration-border.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/us/elections/michigan-senate-slotkin-rogers.html
 **What Is Project 2025, and Why Did Trump Distance Himself from It During the Campaign?**\
 `Democrats had attacked Donald J. Trump’s ties to the conservative policy blueprint for reshaping the federal government. Several of its authors served in his administration.`\
 https://nytimes.com/2024/11/06/us/politics/trump-project-2025.html
-
-**We Can Fight Later. Now Is the Time to Mourn.**\
-`The morning after the apocalypse.`\
-https://nytimes.com/2024/11/06/opinion/trump-future-mourn.html
-
-**Brush Fires in Southern California Prompt Evacuations and Power Outages**\
-`Firefighters were working on Wednesday to contain fires in Ventura and Los Angeles Counties amid dangerous weather conditions.`\
-https://nytimes.com/2024/11/06/us/malibu-fire-power-outages-california.html
 
