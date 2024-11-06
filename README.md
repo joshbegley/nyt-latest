@@ -1,4 +1,8 @@
-**Democrats Flip a Critical House Seat in New York, Toppling Molinaro**\
+**Wednesday Briefing**\
+`Donald Trump takes key swing states.`\
+https://nytimes.com/2024/11/06/briefing/trump-election-results.html
+
+**Democrats Flip a Second House Seat in New York, Toppling Molinaro**\
 `Josh Riley defeated the Republican incumbent, Representative Marc Molinaro. It was the second House seat flipped in New York by Democrats.`\
 https://nytimes.com/2024/11/06/nyregion/new-york-house-molinaro-riley.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899898/2024/11/06/everton-fix-dyche-branthwaite-nd
 **Why David Raya making far more saves this season is a mixed blessing for Arsenal**\
 `The keeper made 45 saves in the whole of last season and is already on 29 after 10 games of this campaign`\
 https://nytimes.com/athletic/5897566/2024/11/06/david-raya-arsenal-saves/
-
-**The calm brilliance of Emery's Villa has gone missing - it needs to return**\
-`Villa have set the highest standards since Emery took charge - that's why their last three results and performances have been so surprising `\
-https://nytimes.com/athletic/5897232/2024/11/06/unai-emery-aston-villa-champions-league-bruges/
 
