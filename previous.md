@@ -1,3 +1,7 @@
+**Penguins Today: Another awful rerun has us looking ahead**\
+`The Penguins seem to be headed down an undesireable path: not good enough for the playoffs but not bad enough for the draft lottery.`\
+https://nytimes.com/athletic/5903174/2024/11/06/penguins-today-blown-leads/
+
 **Ohio Voters Reject Ban on Partisan Gerrymanders**\
 `The issue was perhaps the most closely watched among the many democracy-related ballot measures in the country.`\
 https://nytimes.com/2024/11/06/us/ohio-gerrymander-ballot-issue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/inflation-biden-economy.html
 **League of Legends Worlds: London embraces the pinnacle of esports**\
 `Linkin Park, an enthusiastic crowd and a masterclass from T1's Faker all helped to make the event at the O2 Arena a success`\
 https://nytimes.com/athletic/5900929/2024/11/06/league-of-legends-worlds-london/
-
-**Our Daughter Is Having an Affair With a Married Man. How Do We Stop It?**\
-`A 20-something woman who lives with her parents has incurred their disappointment by continuing an affair with her former boss. Since she won’t end things, should they tell the man’s wife?`\
-https://nytimes.com/2024/11/06/style/extramarital-affairs.html
 

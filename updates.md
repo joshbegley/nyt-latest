@@ -1,3 +1,7 @@
+**Penguins Today: Another awful rerun has us looking ahead**\
+`The Penguins seem to be headed down an undesireable path: not good enough for the playoffs but not bad enough for the draft lottery.`\
+https://nytimes.com/athletic/5903174/2024/11/06/penguins-today-blown-leads/
+
 **Ohio Voters Reject Ban on Partisan Gerrymanders**\
 `The issue was perhaps the most closely watched among the many democracy-related ballot measures in the country.`\
 https://nytimes.com/2024/11/06/us/ohio-gerrymander-ballot-issue.html
