@@ -1,3 +1,7 @@
+**Joe Biden Put Democrats in a Tough Spot**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/joe-biden-put-democrats-in-a-tough-spot
+
 **Blues’ Holloway takes puck to neck, in stable condition**\
 `Holloway exited during the first period after being hit in the neck area by a shot from Tampa Bay's Nick Paul.`\
 https://nytimes.com/athletic/5902114/2024/11/05/dylan-holloway-neck-injury-blues/
