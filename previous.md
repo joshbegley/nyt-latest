@@ -1,3 +1,11 @@
+**Paul George has no 'ill will' against Clippers ahead of return to LA**\
+`The Sixers star who always envisioned retiring in a Clippers jersey still has nothing but good things to say about his old team.`\
+https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-return/
+
+**California Wildfires Prompt Evacuations and Shelter-in-Place Warnings**\
+`Firefighters battled strong winds and dangerous weather conditions in Southern California on Wednesday in an attempt to control two wildfires in the region.`\
+https://nytimes.com/video/us/100000009812041/california-wildfires.html
+
 **Baylor president wants Power 4 leaders to hear from super league groups**\
 `Baylor president and Big 12 board chairwoman Linda Livingstone has sent a letter to university leaders in the ACC, Big Ten and SEC, inviting them to a summit in early December, where they can hear directly from groups pitching potential new models for college football.`\
 https://nytimes.com/athletic/5904123/2024/11/06/baylor-president-college-football-super-leagues/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5904076/2024/11/06/mings-handball-rules-villa-penal
 **Banned From Atlanta: The Challenges of Young Thug’s Unique Probation**\
 `The rapper was released from jail last week after a surprise guilty plea. For 15 years, a set of strict requirements will govern his life and music.`\
 https://nytimes.com/2024/11/06/arts/music/young-thug-probation.html
-
-**Slotkin Defeats Rogers in Michigan Senate Race, Holding a Democratic Seat**\
-`Representative Elissa Slotkin, a centrist with strong national security credentials, won the contest to succeed the retiring Senator Debbie Stabenow.`\
-https://nytimes.com/2024/11/06/us/elections/michigan-senate-slotkin-rogers.html
-
-**What Is Project 2025, and Why Did Trump Distance Himself from It During the Campaign?**\
-`Democrats had attacked Donald J. Trump’s ties to the conservative policy blueprint for reshaping the federal government. Several of its authors served in his administration.`\
-https://nytimes.com/2024/11/06/us/politics/trump-project-2025.html
 
