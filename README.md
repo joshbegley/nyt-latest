@@ -19,7 +19,7 @@ https://nytimes.com/video/us/elections/100000009812696/harris-concession-speech-
 https://nytimes.com/2024/11/06/us/politics/trump-harris-blue-wall-election.html
 
 **What we're hearing about Astros at GM meetings: Ryan Pressly, a hitting summit and more**\
-`Plus do the Astros have leverage when Alex Bregman has created “a market that the Astros are very aware is very healthy for him"?`\
+`Plus do the Astros have leverage when Alex Bregman has created “a market that the Astros are very aware is very healthy for him?"`\
 https://nytimes.com/athletic/5904202/2024/11/06/astros-gm-meetings-ryan-pressly-trade/
 
 **Harris Says She Concedes the Election, but Not Her Fight**\
