@@ -1,3 +1,11 @@
+**Plea Deals for Accused 9/11 Plotters Are Valid, Judge Rules**\
+`A military judge said he would move forward with accepting guilty pleas from three defendants in exchange for life sentences in the long-running case.`\
+https://nytimes.com/2024/11/06/us/politics/gitmo-plea-agreement.html
+
+**Joseph Rykwert, Architectural Historian Who Challenged Modernism, Dies at 98**\
+`A “gloriously erudite” critic, he denounced the embrace of blandly functional architecture in efforts to rebuild after World War II.`\
+https://nytimes.com/2024/11/06/arts/design/joseph-rykwert-dead.html
+
 **Vindman Wins Virginia House Race, Keeping a Key Seat in Democratic Hands**\
 `Yevgeny Vindman is a former Army lieutenant colonel who was fired by the Trump administration for joining his twin brother as a whistle-blower in the first impeachment of President Donald J. Trump.`\
 https://nytimes.com/2024/11/06/us/elections/virginia-house-vindman-anderson.html
