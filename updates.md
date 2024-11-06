@@ -1,3 +1,7 @@
+**Black Voters Weigh Character, Policies and Politics at the Polls**\
+`Polling last month suggested that while the vast majority of Black voters supported Kamala Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
+https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html
+
 **What do first Playoff rankings mean for Georgia, SEC?**\
 `Nobody from the SEC is definitely in the field yet, and seven teams still have a realistic shot, led by Georgia.`\
 https://nytimes.com/athletic/5901994/2024/11/05/college-football-playoff-rankings-georgia-sec/
