@@ -4,7 +4,7 @@ https://nytimes.com/2024/11/06/arts/eikoh-hosoe-photos.html
 
 **R.F.K. Jr. Lays Out Possible Public Health Changes Under Trump**\
 `Mr. Kennedy, an environmental lawyer who has no medical or public health degrees, has promoted anti-vaccine conspiracies for years.`\
-https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/rfk-jr-trump-health
+https://nytimes.com/2024/11/06/us/politics/rfk-jr-trump-health.html
 
 **Eikoh Hosoe, Photographer Who Elevated the Avant-Garde, Dies at 91**\
 `He pioneered a surrealistic narrative style in collaborations with dancers, artists and the author Yukio Mishima, with whom he created startling erotic tableaus.`\
