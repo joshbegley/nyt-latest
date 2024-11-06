@@ -1,3 +1,11 @@
+**Hurricane Rafael Delivers Another Blow to Cuba**\
+`The storm’s winds knocked out power across the island before moving ashore as a powerful Category 3 storm.`\
+https://nytimes.com/2024/11/06/weather/hurricane-rafael-cuba.html
+
+**Arteta hopeful Havertz available for Chelsea trip after 'big cut' against Inter**\
+`Arsenal manager Mikel Arteta is hopeful Kai Havertz will be available for Sunday&#8217;s trip to Chelsea after the German sustained a &#8220;big cut&#8221; during their Champions League loss against Inter Milan.`\
+https://nytimes.com/athletic/5904532/2024/11/06/kai-havertz-head-injury-merino-arsenal/
+
 **Will a Woman Ever Be President?**\
 `After Kamala Harris became the second woman to lose a presidential election to Donald J. Trump, some women wondered if the glass ceiling would ever break.`\
 https://nytimes.com/2024/11/06/us/politics/harris-woman-president.html
