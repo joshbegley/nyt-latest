@@ -1,3 +1,7 @@
+**Kurz: Flyers' embarrassing backup goalie situation looks like first major error of new regime**\
+`The Flyers have yet to win a game, or even earn a single point, in the six games that either Aleksei Kolosov or Ivan Fedotov have played.`\
+https://nytimes.com/athletic/5902509/2024/11/06/flyers-hurricanes-nhl-goalies-kolosov-fedotov/
+
 **Why Giants president Buster Posey is determined to be people focused**\
 `Posey is leaning on his strengths as a player reading people and understanding their strengths and weakness in his new role.`\
 https://nytimes.com/athletic/5902363/2024/11/06/sf-giants-buster-posey-leadership-focus/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902417/2024/11/06/election-day-mac-college-footbal
 **‘An act of madness’: Israeli news commentators condemn Gallant’s firing.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/an-act-of-madness-israeli-news-commentators-condemn-gallants-firing
-
-**Barca may ring the changes tonight - but Flick’s best XI is a winning formula**\
-`Before the Champions League game against Red Star Belgrade - where some fringe players could prove themselves - we look at Flick’s side`\
-https://nytimes.com/athletic/5902795/2024/11/06/barcelona-hansi-flick-starting-xi/
 
