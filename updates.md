@@ -1,3 +1,7 @@
+**‘Trump’s America’: Comeback Victory Signals a Different Kind of Country**\
+`In the end, Donald J. Trump is not the historical aberration some thought he was, but instead a transformational force reshaping the modern United States in his own image.`\
+https://nytimes.com/2024/11/06/us/politics/trump-america-election-victory.html
+
 **With Political Victory, Trump Fights Off Legal Charges**\
 `By triumphing at the ballot box, Donald Trump can dispense with federal charges against him while postponing or derailing other pending cases that have dogged him.`\
 https://nytimes.com/2024/11/06/us/politics/trump-legal-cases-winning.html
