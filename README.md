@@ -1,3 +1,7 @@
+**When were things last this bad for Real Madrid?**\
+`Carlo Ancelotti's side are in a rut, but some problems were foreseeable in the summer`\
+https://nytimes.com/athletic/5902032/2024/11/06/real-madrid-ac-milan-ancelotti/
+
 **Trump Wins Pennsylvania, a Key Swing State Prize**\
 `Both Donald J. Trump and Kamala Harris fought hard for Pennsylvania’s 19 electoral votes, dumping more money into the state than any other by far.`\
 https://nytimes.com/2024/11/05/us/politics/harris-trump-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/arts/television/jon-stewart-daily-show-election-n
 **How Quinn Hughes and Brock Boeser powered the Canucks past the Ducks: 3 takeaways**\
 `The Canucks effortlessly controlled play for the most part Tuesday, cruising past the home side with a 5-1 victory.`\
 https://nytimes.com/athletic/5902215/2024/11/06/canucks-beat-ducks-quinn-hughes-brock-boeser/
-
-**Nebraska Voters Pass Measure Limiting Abortions**\
-`A competing ballot amendment, which would have established a right to abortion until fetal viability, failed to win more votes.`\
-https://nytimes.com/2024/11/06/us/nebraska-abortion-ballot-measure.html
 
