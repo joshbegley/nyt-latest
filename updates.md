@@ -1,3 +1,19 @@
+**Nick Martinez has already received multi-year offers, Scott Boras says**\
+`Boras said there’s a chance Martinez will accept the $21.05 million qualifying offer from the Reds, but also said Martinez has options.`\
+https://nytimes.com/athletic/5904015/2024/11/06/nick-martinez-reds-free-agent-offers/
+
+**Republicans Make Early Inroads in Their Fight to Keep the House Majority**\
+`Democrats picked up two seats in New York and defended others in Michigan and New Mexico, but Republican gains have narrowed their path, setting up a potential G.O.P. trifecta.`\
+https://nytimes.com/2024/11/06/us/elections/republicans-house-of-representatives-congress.html
+
+**Man Who Lived Rent-Free in Hotel for Years Is Found Unfit to Stand Trial**\
+`A hearing has been scheduled for next week for a judge to decide whether Mickey Barreto, who stayed at the New Yorker Hotel in Manhattan, should be held in a hospital for psychiatric care.`\
+https://nytimes.com/2024/11/06/nyregion/mickey-barreto-unfit-trial.html
+
+**Trump’s Victory Is a Major Win for Elon Musk and Big-Money Politics**\
+`The candidate largely let the billionaire run his $175 million ground game — a gamble that future candidates could look to emulate.`\
+https://nytimes.com/2024/11/06/us/elections/trump-musk-america-pac.html
+
 **On Election Day, He Headed to the Capitol With a Manifesto and a Torch**\
 `A Michigan man tried to enter the Capitol Visitor Center on Tuesday with a letter for Congress expressing his discontent with the government’s response to the war in Gaza.`\
 https://nytimes.com/2024/11/06/us/election-day-capitol-washington-austin-olson.html

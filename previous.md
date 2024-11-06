@@ -1,3 +1,19 @@
+**Nick Martinez has already received multi-year offers, Scott Boras says**\
+`Boras said there’s a chance Martinez will accept the $21.05 million qualifying offer from the Reds, but also said Martinez has options.`\
+https://nytimes.com/athletic/5904015/2024/11/06/nick-martinez-reds-free-agent-offers/
+
+**Republicans Make Early Inroads in Their Fight to Keep the House Majority**\
+`Democrats picked up two seats in New York and defended others in Michigan and New Mexico, but Republican gains have narrowed their path, setting up a potential G.O.P. trifecta.`\
+https://nytimes.com/2024/11/06/us/elections/republicans-house-of-representatives-congress.html
+
+**Man Who Lived Rent-Free in Hotel for Years Is Found Unfit to Stand Trial**\
+`A hearing has been scheduled for next week for a judge to decide whether Mickey Barreto, who stayed at the New Yorker Hotel in Manhattan, should be held in a hospital for psychiatric care.`\
+https://nytimes.com/2024/11/06/nyregion/mickey-barreto-unfit-trial.html
+
+**Trump’s Victory Is a Major Win for Elon Musk and Big-Money Politics**\
+`The candidate largely let the billionaire run his $175 million ground game — a gamble that future candidates could look to emulate.`\
+https://nytimes.com/2024/11/06/us/elections/trump-musk-america-pac.html
+
 **On Election Day, He Headed to the Capitol With a Manifesto and a Torch**\
 `A Michigan man tried to enter the Capitol Visitor Center on Tuesday with a letter for Congress expressing his discontent with the government’s response to the war in Gaza.`\
 https://nytimes.com/2024/11/06/us/election-day-capitol-washington-austin-olson.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/06/arts/eikoh-hosoe-dead.html
 **Arsenal liaising with UEFA over men's and women's fixture clash: How did this happen?**\
 `Arsenal are looking into solutions to resolve a scheduling issue that has seen their men’s and women’s teams slated to play at Emirates Stadium on the same night.`\
 https://nytimes.com/athletic/5903863/2024/11/06/arsenal-carabao-cup-womens-champions-league/
-
-**New York City Is Still a Democratic Town. But Trump Made Inroads.**\
-`The rightward shift in the presidential election results was especially pronounced among Asian voters and Hispanic voters in Queens and the Bronx.`\
-https://nytimes.com/2024/11/06/nyregion/trump-nyc-voters.html
-
-**Don’t Move to Canada**\
-`Stick around and find a way to keep this disaster from happening again to the country our grandchildren will inherit.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/democrat-despair-trump-win
-
-**Tiny Love Stories: ‘When Two Fantasies Collide’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/11/06/style/tiny-modern-love-stories-when-two-fantasies-collide.html
-
-**Trump’s Win Unfolded on TV as a Muted Reboot**\
-`Election night on 2024 played like an enervated replay of 2016. Was it a harbinger of how the culture will respond to a second Trump term?`\
-https://nytimes.com/2024/11/06/arts/television/donald-trump-election-tv-news.html
 
