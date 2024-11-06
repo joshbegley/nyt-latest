@@ -1,3 +1,11 @@
+**Bortoleto to race for Sauber F1 in 2025 as Bottas, Guanyu leave team**\
+`Gabriel Bortoleto will become the fourth full-time rookie on the Formula One grid next season after completing Sauber’s line-up for 2025.`\
+https://nytimes.com/athletic/5902669/2024/11/06/gabriel-bortoleto-sauber-f1-team/
+
+**In beating Real Madrid, Fonseca’s Milan show ruthlessness they had been missing**\
+`Manager has been under significant pressure and is yet to win over Milan supporters - a win away to the Champions League holders should help`\
+https://nytimes.com/athletic/5901759/2024/11/06/milan-madrid-fonseca/
+
 **Arizona Voters Approve Abortion Rights Amendment**\
 `Like those in other states, the Arizona measure essentially establishes abortion protections in the State Constitution as a “fundamental right.”`\
 https://nytimes.com/2024/11/06/us/arizona-abortion-ballot-measure.html
