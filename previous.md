@@ -1,3 +1,11 @@
+**Black Voters Weigh Character, Policies and Politics at the Polls**\
+`Polling last month suggested that while the vast majority of Black voters supported Ms. Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
+https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html
+
+**Padres, manager Mike Shildt finalizing extension through 2027**\
+`Under Shildt, the Padres won 93 games in 2024, including 43 of 63 games after the All-Star break.`\
+https://nytimes.com/athletic/5901879/2024/11/05/padres-manager-mike-shildt-finalizing-extension-through-2027-source/
+
 **Nevada rejected more ballots than usual, and voters have until Nov. 12 to ‘cure’ them.**\
 `By Danny Hakim`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/nevada-rejected-more-ballots-than-usual-and-voters-have-until-nov-12-to-cure-them
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5900986/2024/11/05/indiana-college-football-playoff
 **Justice Wins Election in West Virginia, Giving Republicans a Senate Edge**\
 `The G.O.P. governor easily won the seat being vacated by Senator Joe Manchin III, an independent who caucused with Democrats, giving Republicans an expected win as they push to take the Senate.`\
 https://nytimes.com/2024/11/05/us/elections/west-virginia-senate-justice-elliott.html
-
-**How Culture Wars Have Shaped Politics**\
-`By Ross Douthat, Ezra Klein and Aaron Retica`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/how-culture-wars-have-shaped-politics
-
-**Miami debuts at No. 4 in College Football Playoff rankings, controls its own destiny**\
-`It's the first time the program has been ranked in the poll since the 2020 season and its highest ranking since 2017.`\
-https://nytimes.com/athletic/5901682/2024/11/05/miami-college-football-playoff-ranking/
 

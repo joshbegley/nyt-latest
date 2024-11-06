@@ -1,3 +1,11 @@
+**Black Voters Weigh Character, Policies and Politics at the Polls**\
+`Polling last month suggested that while the vast majority of Black voters supported Ms. Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
+https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html
+
+**Padres, manager Mike Shildt finalizing extension through 2027**\
+`Under Shildt, the Padres won 93 games in 2024, including 43 of 63 games after the All-Star break.`\
+https://nytimes.com/athletic/5901879/2024/11/05/padres-manager-mike-shildt-finalizing-extension-through-2027-source/
+
 **Nevada rejected more ballots than usual, and voters have until Nov. 12 to ‘cure’ them.**\
 `By Danny Hakim`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/nevada-rejected-more-ballots-than-usual-and-voters-have-until-nov-12-to-cure-them
