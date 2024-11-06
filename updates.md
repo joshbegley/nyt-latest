@@ -1,3 +1,11 @@
+**Richard Winfield, Protector of Press Freedom, Dies at 91**\
+`As a lawyer for The Associated Press and other news outlets, he challenged efforts to muzzle reporters and organized lawyers to promote free expression around the world.`\
+https://nytimes.com/2024/11/06/business/media/richard-winfield-dead.html
+
+**7 Salisbury U. Students Beat Person Because of Sexual Orientation, Police Say**\
+`The students, who face assault and hate crime charges, lured a person to an apartment where they spat on him and broke a rib, the police said.`\
+https://nytimes.com/2024/11/06/us/salisbury-university-students-arrested.html
+
 **What we're hearing about Astros at GM meetings: Ryan Pressly, a hitting summit and more**\
 `Plus do the Astros have leverage when Alex Bregman has created “a market that the Astros are very aware is very healthy for him?"`\
 https://nytimes.com/athletic/5904202/2024/11/06/astros-gm-meetings-ryan-pressly-trade/
