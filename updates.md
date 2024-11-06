@@ -1,3 +1,15 @@
+**Wolves owners buy back minority stake from US investment firm**\
+`Wolverhampton Wanderers owners Fosun has bought back a minority stake in its subsidiary, Fosun Sports, from US-based investment firm PEAK6.`\
+https://nytimes.com/athletic/5903216/2024/11/06/wolves-owners-fosun-minority-stake/
+
+**Trump, Again**\
+`In the early hours of Wednesday morning, Donald J. Trump was elected president for a second time. Shortly before that call was made, the Times journalists Michael Barbaro, Nate Cohn, Lisa Lerer and Astead W. Herndon sat down to discuss the state of the election.`\
+https://nytimes.com/video/podcasts/the-daily/100000009811010/trump-election-results.html
+
+**Canucks stock watch: Who’s trending up, who’s trending down after 11 games?**\
+`A look at which Canucks players have improved their stock with stellar performances and who's trending in the wrong direction.`\
+https://nytimes.com/athletic/5902375/2024/11/06/canucks-stock-watch-players-analysis/
+
 **Penguins Today: Another awful rerun has us looking ahead**\
 `The Penguins seem to be headed down an undesireable path: not good enough for the playoffs but not bad enough for the draft lottery.`\
 https://nytimes.com/athletic/5903174/2024/11/06/penguins-today-blown-leads/
