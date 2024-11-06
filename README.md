@@ -1,3 +1,7 @@
+**Quote of the Day: He Rebuilt It, and They Came. ‘This Time Willingly.’**\
+`Quotation of the Day for Wednesday, November 6, 2024`\
+https://nytimes.com/2024/11/05/pageoneplus/quote-of-the-day-he-rebuilt-it-and-they-came-this-time-willingly.html
+
 **Could a Trump Victory Offer an ‘Unlikely Opening to American Renewal’?**\
 `By Ross Douthat and Ezra Klein`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/could-a-trump-victory-offer-an-unlikely-opening-to-american-renewal
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5901515/2024/11/05/joel-embiid-suspension-nba/
 **With Mannion Win, N.Y. Democrats Flip First House Seat in the Country**\
 `State Senator John Mannion beat the incumbent, Representative Brandon Williams, in central New York, in a crucial win in the battle for the House.`\
 https://nytimes.com/2024/11/05/nyregion/new-york-house-mannion-williams.html
-
-**Trump Wins North Carolina, a Critical Battleground State for Republicans**\
-`The state has now gone to Donald J. Trump in all three of his presidential bids, underscoring his political strength there.`\
-https://nytimes.com/2024/11/05/us/politics/north-carolina-election-harris-trump.html
 
