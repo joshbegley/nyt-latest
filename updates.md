@@ -1,3 +1,7 @@
+**Elon Musk Helped Elect Trump. What Does He Expect in Return?**\
+`The world’s richest man gave his money and time in campaigning for the president-elect and now is putting in his requests for a friendlier regulatory environment.`\
+https://nytimes.com/2024/11/06/us/politics/elon-musk-trump-benefits.html
+
 **Harris Shows Trump How to Concede**\
 `Even if only one candidate is gracious enough to do it.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/harris-concession-democracy
