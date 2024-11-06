@@ -1,3 +1,15 @@
+**A county elections office in Arizona is evacuated after a bomb threat.**\
+`The threat, one of at least six received in Arizona today, is likely to slow ballot counting in La Paz County.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/a-county-elections-office-in-arizona-is-evacuated-after-a-bomb-threat
+
+**Technical problems slow Navajo voting in Arizona.**\
+`Printer problems in heavily Democratic Apache County led to long lines and discouraged voters, according to tribal officials.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/technical-problems-slow-navajo-voting-in-arizona
+
+**Abortion Rights Measure Fails in Florida**\
+`The defeat is a political victory for Gov. Ron DeSantis, a Republican, who had become of the face of a well-funded opposition campaign.`\
+https://nytimes.com/2024/11/05/us/florida-abortion-ballot-measure.html
+
 **Is Abortion Turning the Gender Gap Into a Chasm?**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/is-abortion-turning-the-gender-gap-into-a-chasm
