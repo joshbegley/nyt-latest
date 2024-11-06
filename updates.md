@@ -1,3 +1,11 @@
+**Word of the Day: epitomize**\
+`This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/06/learning/word-of-the-day-epitomize.html
+
+**Slot, Alonso and a powerful illustration of Liverpool's soaring confidence in this new era**\
+`Xabi Alonso's return to Anfield was further evidence that life after Jurgen Klopp could not be going much better for Liverpool`\
+https://nytimes.com/athletic/5902543/2024/11/06/slot-alonso-liverpool-leverkusen/
+
 **Wednesday Briefing**\
 `Donald Trump takes key swing states.`\
 https://nytimes.com/2024/11/06/briefing/trump-election-results.html
