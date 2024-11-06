@@ -1,3 +1,11 @@
+**Deadly Floodwaters Inundate Missouri**\
+`Intense storms brought tornadoes and flash floods that killed two poll workers when their vehicle was swept off a road.`\
+https://nytimes.com/video/us/100000009810204/missouri-flooding-emergency.html
+
+**Kamala Harris Should Have Gone on Joe Rogan’s Show**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/kamala-harris-should-have-gone-on-joe-rogans-show
+
 **Kelly Ayotte, a Republican, Is Elected Governor of New Hampshire**\
 `Ms. Ayotte entered the race with greater name recognition than the Democrat, Joyce Craig, and was seen as a natural successor to Gov. Chris Sununu, a moderate Republican.`\
 https://nytimes.com/2024/11/05/us/politics/new-hampshire-governor-ayotte-craig.html
