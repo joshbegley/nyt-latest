@@ -1,3 +1,7 @@
+**Blues' Dylan Holloway feeling 'OK' after taking puck to neck, could return Thursday**\
+`Holloway: "They told me no activity for 24 hours and then I’m good to go. I’m hoping to play tomorrow, but we’ll see.”`\
+https://nytimes.com/athletic/5903349/2024/11/06/blues-dylan-holloway-neck-injury/
+
 **A Simple Roast Chicken**\
 `My favorite recipe is uncomplicated and flexible, calling for only salt, pepper and whatever herbs you like.`\
 https://nytimes.com/2024/11/06/dining/a-simple-roast-chicken.html
