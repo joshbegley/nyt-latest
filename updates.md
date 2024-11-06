@@ -1,3 +1,11 @@
+**Brush Fires in Southern California Prompt Evacuations and Power Outages**\
+`Firefighters were working on Wednesday to contain fires in Ventura and Los Angeles Counties amid dangerous weather conditions.`\
+https://nytimes.com/2024/11/06/us/malibu-fire-power-outages-california.html
+
+**A Good Whale**\
+`This is the story of a wildly ambitious science experiment to return Keiko to the ocean — while the world watched. A new limited podcast series from Serial Productions and the New York Times.`\
+https://nytimes.com/interactive/2024/podcasts/serial-good-whale.html
+
 **Virginia Carter, a Feminist Adviser to Norman Lear, Dies at 87**\
 `A physicist who headed a chapter of the National Organization for Women, she took a career detour to be a feminist voice in Mr. Lear’s empire of socially aware sitcoms.`\
 https://nytimes.com/2024/11/06/arts/television/virginia-carter-dead.html
