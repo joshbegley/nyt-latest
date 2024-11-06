@@ -1,3 +1,7 @@
+**When were things last this bad for Real Madrid?**\
+`Carlo Ancelotti's side are in a rut, but some problems were foreseeable in the summer`\
+https://nytimes.com/athletic/5902032/2024/11/06/real-madrid-ac-milan-ancelotti/
+
 **Trump Wins Pennsylvania, a Key Swing State Prize**\
 `Both Donald J. Trump and Kamala Harris fought hard for Pennsylvania’s 19 electoral votes, dumping more money into the state than any other by far.`\
 https://nytimes.com/2024/11/05/us/politics/harris-trump-pennsylvania.html
