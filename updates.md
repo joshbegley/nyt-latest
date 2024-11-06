@@ -1,3 +1,15 @@
+**Montana Voters Approve Abortion Ballot Measure**\
+`The measure establishes an explicit right to abortion in the State Constitution.`\
+https://nytimes.com/2024/11/06/us/politics/montana-abortion-ballot-measure.html
+
+**Why Caleb Williams, Bears' passing offense struggled in loss to Cardinals**\
+`Williams didn't get a lot of help in Arizona, but he needed to take more easy throws to help the Bears offense.`\
+https://nytimes.com/athletic/5901233/2024/11/06/bears-caleb-williams-passing-game-cardinals/
+
+**Vikings still content with interior defensive line despite not making deadline trade**\
+`The Vikings — and Aaron Rodgers — recognize the value of Harrison Phillips, Jonathan Bullard and Jerry Tillery on the interior D-line.`\
+https://nytimes.com/athletic/5901476/2024/11/06/vikings-defensive-line-trade-deadline/
+
 **Wheeler's 2025 NHL Draft mailbag: Is Porter Martone overrated? Victor vs. William Eklund?**\
 `Also in the mailbag: How do the top defensemen in the 2025 class compare to the top drafted at the position last year? `\
 https://nytimes.com/athletic/5900790/2024/11/06/2025-nhl-draft-porter-martone-eklund/
