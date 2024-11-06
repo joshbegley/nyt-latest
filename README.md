@@ -1,3 +1,11 @@
+**Protests Erupt in Tel Aviv After Netanyahu Fires Gallant**\
+`Crowds lit bonfires and blocked traffic on a major highway after the Israeli prime minister sacked the defense minister, citing “gaps” between their views on handling the war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009810057/netanyahu-fires-gallant-tel-aviv.html
+
+**Gov. Greg Gianforte of Montana Handily Wins Re-election**\
+`The Republican incumbent fended off a challenge from Ryan Busse. Democrats held the Montana governorship for 16 years, until Mr. Gianforte’s first election in 2020.`\
+https://nytimes.com/2024/11/05/us/politics/montana-governor-gianfort-busse.html
+
 **Alsobrooks Defeats Hogan in Maryland, Keeping a Blue-State Senate Seat**\
 `The Prince George’s County executive will be the first Black woman to represent Maryland in the Senate. Her race against former Gov. Larry Hogan was the most competitive in decades in the deep-blue state.`\
 https://nytimes.com/2024/11/05/us/elections/maryland-senate-hogan-alsobrooks.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/05/us/trump-harris-election/a-county-elections-
 **Technical problems slow Navajo voting in Arizona.**\
 `Printer problems in heavily Democratic Apache County led to long lines and discouraged voters, according to tribal officials.`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/technical-problems-slow-navajo-voting-in-arizona
-
-**Abortion Rights Measure Fails in Florida**\
-`The defeat is a political victory for Gov. Ron DeSantis, a Republican, who had become of the face of a well-funded opposition campaign.`\
-https://nytimes.com/2024/11/05/us/florida-abortion-ballot-measure.html
-
-**Is Abortion Turning the Gender Gap Into a Chasm?**\
-`By Ross Douthat, Ezra Klein and Aaron Retica`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/is-abortion-turning-the-gender-gap-into-a-chasm
 
