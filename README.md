@@ -1,3 +1,15 @@
+**Helmet Caps**\
+`Should football players embrace the extra protection?`\
+https://nytimes.com/2024/11/06/learning/helmet-caps.html
+
+**Filmmaker’s Private Archive Rekindles Debate Over Her Nazi Ties**\
+`Recent access to Leni Riefenstahl’s estate has prompted new discussions in Germany about her politics and a reconsideration of her photographs of the Nuba people in Sudan.`\
+https://nytimes.com/2024/11/06/movies/leni-riefenstahl-documentary-nuba-photographs.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/06/crosswords/spelling-bee-forum.html
+
 **When were things last this bad for Real Madrid?**\
 `Carlo Ancelotti's side are in a rut, but some problems were foreseeable in the summer`\
 https://nytimes.com/athletic/5902032/2024/11/06/real-madrid-ac-milan-ancelotti/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5902543/2024/11/06/slot-alonso-liverpool-leverkusen
 **Wednesday Briefing**\
 `Donald Trump takes key swing states.`\
 https://nytimes.com/2024/11/06/briefing/trump-election-results.html
-
-**Democrats Flip a Second House Seat in New York, Toppling Molinaro**\
-`Josh Riley defeated the Republican incumbent, Representative Marc Molinaro. It was the second House seat flipped in New York by Democrats.`\
-https://nytimes.com/2024/11/06/nyregion/new-york-house-molinaro-riley.html
-
-**Jon Stewart Tries to Find Good News on Election Night**\
-`“Look at all the little glass-half-fulls out there,” Stewart said as his “Daily Show” audience applauded a Democratic Senate victory in Maryland.`\
-https://nytimes.com/2024/11/06/arts/television/jon-stewart-daily-show-election-night.html
-
-**How Quinn Hughes and Brock Boeser powered the Canucks past the Ducks: 3 takeaways**\
-`The Canucks effortlessly controlled play for the most part Tuesday, cruising past the home side with a 5-1 victory.`\
-https://nytimes.com/athletic/5902215/2024/11/06/canucks-beat-ducks-quinn-hughes-brock-boeser/
 
