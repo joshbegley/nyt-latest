@@ -1,3 +1,7 @@
+**Bortoleto to race for Sauber F1 in 2025 as Bottas, Guanyu leave team**\
+`Gabriel Bortoleto will become the fourth full-time rookie on the Formula One grid next season after completing Sauber’s line-up for 2025.`\
+https://nytimes.com/athletic/5902669/2024/11/06/gabriel-bortoleto-sauber-f1-team/
+
 **Arizona Voters Approve Abortion Rights Amendment**\
 `Like those in other states, the Arizona measure essentially establishes abortion protections in the State Constitution as a “fundamental right.”`\
 https://nytimes.com/2024/11/06/us/arizona-abortion-ballot-measure.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/11/05/us/politics/harris-trump-pennsylvania.html
 `A winner was not declared before midnight on Tuesday, but even Donald Trump’s allies seemed shocked by the signs of his strength — and the improbable political comeback it appeared to foretell.`\
 https://nytimes.com/2024/11/06/us/elections/election-night-scene.html
 
-**Fonseca’s Milan show ruthlessness they had been missing in beating Real Madrid**\
-`Fonseca has been under significant pressure and is yet to win over Milan supporters - a win away to the Champions League holders should help`\
+**In beating Real Madrid, Fonseca’s Milan show ruthlessness they had been missing**\
+`Manager has been under significant pressure and is yet to win over Milan supporters - a win away to the Champions League holders should help`\
 https://nytimes.com/athletic/5901759/2024/11/06/milan-madrid-fonseca/
 
 **Word of the Day: epitomize**\
 `This word has appeared in nine articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/06/learning/word-of-the-day-epitomize.html
-
-**Slot, Alonso and a powerful illustration of Liverpool's soaring confidence in this new era**\
-`Xabi Alonso's return to Anfield was further evidence that life after Jurgen Klopp could not be going much better for Liverpool`\
-https://nytimes.com/athletic/5902543/2024/11/06/slot-alonso-liverpool-leverkusen/
 
