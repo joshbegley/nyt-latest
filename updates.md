@@ -1,3 +1,15 @@
+**Trump’s Win Ends a Post-World War II Era of U.S. Leadership**\
+`For the past four years, President Biden has argued that the first Trump term was a blip in American history. The election has proved that President-elect Donald J. Trump was no aberration.`\
+https://nytimes.com/2024/11/06/us/politics/trump-us-global-leadership.html
+
+**‘Elevation’ Review: A High Place**\
+`Humans flee monsters who refuse to surpass 8,000 feet in altitude in this “Quiet Place” copycat.`\
+https://nytimes.com/2024/11/06/movies/elevation-review.html
+
+**Heat Today: With Suns next up, can Miami fix third-quarter issues during road trip?**\
+`The Heat head out on a six-game road trip.`\
+https://nytimes.com/athletic/5903591/2024/11/06/miami-heat-jimmy-butler-tyler-herro-phoenix-suns/
+
 **Harris will address the nation in a concession speech on Wednesday.**\
 `Vice President Kamala Harris is slated to speak at 4 p.m. Eastern time from Howard University, according to a campaign official briefed on her plans.`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/harris-concession-speech-address-time

@@ -1,3 +1,15 @@
+**Trump’s Win Ends a Post-World War II Era of U.S. Leadership**\
+`For the past four years, President Biden has argued that the first Trump term was a blip in American history. The election has proved that President-elect Donald J. Trump was no aberration.`\
+https://nytimes.com/2024/11/06/us/politics/trump-us-global-leadership.html
+
+**‘Elevation’ Review: A High Place**\
+`Humans flee monsters who refuse to surpass 8,000 feet in altitude in this “Quiet Place” copycat.`\
+https://nytimes.com/2024/11/06/movies/elevation-review.html
+
+**Heat Today: With Suns next up, can Miami fix third-quarter issues during road trip?**\
+`The Heat head out on a six-game road trip.`\
+https://nytimes.com/athletic/5903591/2024/11/06/miami-heat-jimmy-butler-tyler-herro-phoenix-suns/
+
 **Harris will address the nation in a concession speech on Wednesday.**\
 `Vice President Kamala Harris is slated to speak at 4 p.m. Eastern time from Howard University, according to a campaign official briefed on her plans.`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/harris-concession-speech-address-time
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/06/business/media/trump-newspapers-cable-news-audien
 **Another Jolt of Uncertainty for a Global Economy Mired in It**\
 `The U.S. presidential election result has ensured a sharp turn in economic policy expected to upend global commerce and diverge from decades of American norms.`\
 https://nytimes.com/2024/11/06/business/economy/global-economy-us-election.html
-
-**What a Trump Victory Means for Tech**\
-`Another Trump presidency will be good for crypto and Elon Musk, but every big tech company may not benefit from a more hands-off approach to antitrust.`\
-https://nytimes.com/2024/11/06/technology/trump-musk-ai-crypto.html
-
-**Mohammed Kudus ban upgraded to five games after Tottenham red card**\
-`West Ham United forward Mohammed Kudus&#8217; suspension has been upgraded to five games by the Football Association (FA) after his red card against Tottenham Hotspur in October.`\
-https://nytimes.com/athletic/5863396/2024/11/06/mohammed-kudus-west-ham-suspended/
-
-**Warren Washington, Groundbreaking Climate Scientist, Dies at 88**\
-`He invented a computer model that made it possible to measure human-induced climate change. He also helped break a color barrier in science.`\
-https://nytimes.com/2024/11/06/climate/warren-washington-dead.html
 
