@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why
 https://nytimes.com/2024/11/05/nyregion/nj-senate-kim-bradshaw.html
 
 **Black Voters Weigh Character, Policies and Politics at the Polls**\
-`Polling last month suggested that while the vast majority of Black voters supported Ms. Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
+`Polling last month suggested that while the vast majority of Black voters supported Kamala Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
 https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html
 
 **Padres, manager Mike Shildt finalizing extension through 2027**\
