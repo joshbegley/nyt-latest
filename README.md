@@ -1,3 +1,11 @@
+**Why No. 8 Indiana is the 12-team College Football Playoff's ultimate test case**\
+`What do you see in the Hoosiers: a good team beating up punching bags, or one that can go toe-to-toe with the best in the country?`\
+https://nytimes.com/athletic/5900986/2024/11/05/indiana-college-football-playoff-rankings-resume-schedule/
+
+**Justice Wins Election in West Virginia, Giving Republicans a Senate Edge**\
+`The G.O.P. governor easily won the seat being vacated by Senator Joe Manchin III, an independent who caucused with Democrats, giving Republicans an expected win as they push to take the Senate.`\
+https://nytimes.com/2024/11/05/us/elections/west-virginia-senate-justice-elliott.html
+
 **How Culture Wars Have Shaped Politics**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/how-culture-wars-have-shaped-politics
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5901653/2024/11/05/nascar-disciplines-cup-series-te
 **You May Not Be Able to Outrun a Vampire Bat**\
 `Scientists put the bloodsucking mammals on a treadmill to understand how they get the energy to chase down their next meal.`\
 https://nytimes.com/2024/11/05/science/vampire-bats-running-treadmills.html
-
-**Dear President-Elect ­­­­­…**\
-`Some tips for whoever ends up winning.`\
-https://nytimes.com/2024/11/05/opinion/president-elect-harris-trump.html
-
-**The Parties Are Shifting, but Elections Are Still Insanely Close**\
-`By Ross Douthat and Ezra Klein`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/the-parties-are-shifting-but-elections-are-still-insanely-close
 
