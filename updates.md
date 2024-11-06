@@ -1,3 +1,31 @@
+**Neymar to miss four to six weeks with hamstring injury**\
+`Neymar is set to miss the next four to six weeks with a hamstring injury, his club Al Hilal have confirmed.`\
+https://nytimes.com/athletic/5903796/2024/11/06/neymar-injury-hamstring-update/
+
+**Trumpism Is Not a Fad**\
+`Why America went with Trump, again.`\
+https://nytimes.com/2024/11/06/opinion/trump-wins-election.html
+
+**What Trump’s Victory Means for Climate Change**\
+`President-elect Donald J. Trump promised to delete climate policy. He could face pushback from Republicans benefiting from a boom in clean energy.`\
+https://nytimes.com/2024/11/06/climate/trump-climate-change.html
+
+**What’s in Our Queue? John Coltrane and More**\
+`By Dwight Garner`\
+https://nytimes.com/card/2024/11/06/arts/editors-recommendations-johncoltrane
+
+**Ride-Hailing Drivers in Massachusetts Win Right to Unionize**\
+`A state ballot measure was the first of its kind in the United States, but labor advocates worry it could lock Uber and Lyft drivers out of full-time employment status.`\
+https://nytimes.com/2024/11/06/technology/uber-lyft-drivers-unionize-massachusetts.html
+
+**Trump Captures Michigan, Toppling Harris in a Another Battleground**\
+`The former president flipped back a state he won in 2016 only to lose in 2020.`\
+https://nytimes.com/2024/11/06/us/politics/michigan-race-call.html
+
+**Why Were Trump Voters Laughing?**\
+`It’s hard to understand why so many people loved the crudest insults.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/trump-voters-crude-laughter
+
 **Blues' Dylan Holloway feeling 'OK' after taking puck to neck, could return Thursday**\
 `Holloway: "They told me no activity for 24 hours and then I’m good to go. I’m hoping to play tomorrow, but we’ll see.”`\
 https://nytimes.com/athletic/5903349/2024/11/06/blues-dylan-holloway-neck-injury/
