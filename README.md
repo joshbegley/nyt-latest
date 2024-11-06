@@ -1,3 +1,7 @@
+**Grant Ujifusa, 82, Dies; Lobbied for Redress for Japanese Americans**\
+`He helped sway Ronald Reagan to sign a bill offering cash and an apology to Japanese Americans who had been imprisoned during World War II.`\
+https://nytimes.com/2024/11/06/us/grant-ujifusa-dead.html
+
 **Richard Winfield, Protector of Press Freedom, Dies at 91**\
 `As a lawyer for The Associated Press and other news outlets, he challenged efforts to muzzle reporters and organized lawyers to promote free expression around the world.`\
 https://nytimes.com/2024/11/06/business/media/richard-winfield-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904202/2024/11/06/astros-gm-meetings-ryan-pressly-
 **Harris Says She Concedes the Election, but Not Her Fight**\
 `Her commitment to a peaceful transfer of power was more than President-elect Trump ever offered to President Biden and Vice President Kamala Harris after they defeated him in 2020.`\
 https://nytimes.com/2024/11/06/us/politics/harris-concession-speech.html
-
-**Robert F. Kennedy Jr., Foe of Drug Makers and Regulators, Is Poised to Wield New Power**\
-`President-elect Donald Trump has encouraged him to “go wild on health” but has not made clear what role Mr. Kennedy will play.`\
-https://nytimes.com/2024/11/06/us/politics/robert-kennedy-jr-donald-trump-health-care.html
 
