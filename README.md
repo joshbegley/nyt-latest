@@ -1,3 +1,11 @@
+**Harris Says She Concedes the Election, but Not Her Fight**\
+`Her commitment to a peaceful transfer of power was more than President-elect Trump ever offered to President Biden and Vice President Kamala Harris after they defeated him in 2020.`\
+https://nytimes.com/2024/11/06/us/politics/harris-concession-speech.html
+
+**Robert F. Kennedy Jr., Foe of Drug Makers and Regulators, Is Poised to Wield New Power**\
+`President-elect Donald Trump has encouraged him to “go wild on health” but has not made clear what role Mr. Kennedy will play.`\
+https://nytimes.com/2024/11/06/us/politics/robert-kennedy-jr-donald-trump-health-care.html
+
 **Padres extend manager Mike Shildt after season of rare alignment**\
 `Said Shildt of A.J. Preller: "We know we’re working off the same script, we have the same vision, and that’s to win a world championship."`\
 https://nytimes.com/athletic/5904413/2024/11/06/padres-manager-mike-shildt-extension-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/us/florida-marijuana-massachusetts-psychedelics.h
 **Harris Asked Voters to Protect Democracy. Here’s Why It Didn’t Land.**\
 `In more than 200 interviews, voters worried not about an endangered country, but about paying rent.`\
 https://nytimes.com/2024/11/06/us/politics/harris-voters-democracy.html
-
-**New York Delivers Key House Wins, but Warning Bells Sound for Democrats**\
-`Although Democrats flipped at least two House seats in New York, Donald J. Trump did better than any Republican presidential candidate since the 1980s.`\
-https://nytimes.com/2024/11/06/nyregion/democrats-house-ny.html
-
-**How the Yankees should interpret Scott Boras' free-agent pitch for Juan Soto**\
-`“You have the Mona Lisa of the museum,” Boras said Wednesday about Soto. “You have the attraction."`\
-https://nytimes.com/athletic/5903772/2024/11/06/yankees-juan-soto-scott-boras-free-agency/
 
