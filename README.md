@@ -1,6 +1,6 @@
 **Trump Has History of Strong Support for Israel**\
 `Donald Trump staunchly supported Israel during his first term as president, even when that meant reversing decades of American policy.`\
-https://nytimes.com/2024/11/06/world/middleeast/trump-israel-policy.html
+https://nytimes.com/2024/11/06/world/middleeast/trump-israel-support.html
 
 **All WSL and Championship matches to be held at main stadia for first time**\
 `Every match across the top two tiers of English women’s football will be played at the home side’s main stadium for the first time on the weekend of November 16-17.`\
