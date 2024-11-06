@@ -1,3 +1,7 @@
+**She Was Undecided Until Election Day. Who Did She Choose?**\
+`The New York Times followed a Pennsylvania voter throughout the campaign. She disliked both candidates, and struggled with her decision until the very end.`\
+https://nytimes.com/2024/11/06/us/undecided-voter-pennsylvania.html
+
 **Trump Has History of Strong Support for Israel**\
 `Donald Trump staunchly supported Israel during his first term as president, even when that meant reversing decades of American policy.`\
 https://nytimes.com/2024/11/06/world/middleeast/trump-israel-support.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902375/2024/11/06/canucks-stock-watch-players-anal
 **Penguins Today: Another awful rerun has us looking ahead**\
 `The Penguins seem to be headed down an undesireable path: not good enough for the playoffs but not bad enough for the draft lottery.`\
 https://nytimes.com/athletic/5903174/2024/11/06/penguins-today-blown-leads/
-
-**Ohio Voters Reject Ban on Partisan Gerrymanders**\
-`The issue was perhaps the most closely watched among the many democracy-related ballot measures in the country.`\
-https://nytimes.com/2024/11/06/us/ohio-gerrymander-ballot-issue.html
 
