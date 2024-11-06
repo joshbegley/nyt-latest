@@ -1,3 +1,11 @@
+**Jon Stewart Tries to Find Good News on Election Night**\
+`“Look at all the little glass-half-fulls out there,” Stewart said as his “Daily Show” audience applauded a Democratic Senate victory in Maryland.`\
+https://nytimes.com/2024/11/06/arts/television/jon-stewart-daily-show-election-night.html
+
+**How Quinn Hughes and Brock Boeser powered the Canucks past the Ducks: 3 takeaways**\
+`The Canucks effortlessly controlled play for the most part Tuesday, cruising past the home side with a 5-1 victory.`\
+https://nytimes.com/athletic/5902215/2024/11/06/canucks-beat-ducks-quinn-hughes-brock-boeser/
+
 **Nebraska Voters Pass Measure Limiting Abortions**\
 `A competing ballot amendment, which would have established a right to abortion until fetal viability, failed to win more votes.`\
 https://nytimes.com/2024/11/06/us/nebraska-abortion-ballot-measure.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5897232/2024/11/06/unai-emery-aston-villa-champions
 **Jordan Ayew is finding his niche as the impact substitute Leicester needed**\
 `His arrival may have drawn a mixed reaction from the fans in the summer but they are now seeing why Steve Cooper brought Ayew in`\
 https://nytimes.com/athletic/5900031/2024/11/06/jordan-ayew-impact-substitute/
-
-**After three successive defeats - are Manchester City in crisis?**\
-`Injuries, defensive frailty and a lack of conviction in front of goal are combining to make this a tough period for Pep Guardiola's side`\
-https://nytimes.com/athletic/5901670/2024/11/06/manchester-city-crisis-inquest/
-
-**Travelling with the West Ham fans to Nottingham Forest: 'I think the transfers were pretty awful'**\
-`Roshane Thomas travelled with supporters to the City Ground last weekend — they were not a happy bunch`\
-https://nytimes.com/athletic/5899817/2024/11/06/a-day-with-west-ham-fans-forest-away/
 
