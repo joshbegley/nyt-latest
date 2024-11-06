@@ -1,3 +1,15 @@
+**Arsenal liaising with UEFA over men's and women's fixture clash: How did this happen?**\
+`Arsenal are looking into solutions to resolve a scheduling issue that has seen their men’s and women’s teams slated to play at Emirates Stadium on the same night.`\
+https://nytimes.com/athletic/5903863/2024/11/06/arsenal-carabao-cup-womens-champions-league/
+
+**New York City Is Still a Democratic Town. But Trump Made Inroads.**\
+`The rightward shift in the presidential election results was especially pronounced among Asian voters and Hispanic voters in Queens and the Bronx.`\
+https://nytimes.com/2024/11/06/nyregion/trump-nyc-voters.html
+
+**Don’t Move to Canada**\
+`Stick around and find a way to keep this disaster from happening again to the country our grandchildren will inherit.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/democrat-despair-trump-win
+
 **Tiny Love Stories: ‘When Two Fantasies Collide’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/11/06/style/tiny-modern-love-stories-when-two-fantasies-collide.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/11/06/us/politics/trump-white-house-timeline.html
 **A California Ballot Measure to Ban Forced Prison Labor Is Failing**\
 `Voters appear to be rejecting Proposition 6 in California, a measure to end involuntary servitude as a punishment for crime.`\
 https://nytimes.com/2024/11/06/us/politics/california-prop-6-measure-forced-prison-labor.html
-
-**How the Trump administration could enact a federal abortion ban.**\
-`By Kate Zernike`\
-https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/how-the-trump-administration-could-enact-a-federal-abortion-ban
-
-**The Super Bowl favorites after the NFL trade deadline**\
-`The Lions are now the top challengers to the Chiefs, but both teams only got stronger through the trade deadline.`\
-https://nytimes.com/athletic/5903459/2024/11/06/super-bowl-2025-odds-nfl-trade-deadline-chiefs-lions/
-
-**Tammy Baldwin Defeats Eric Hovde in Wisconsin Senate Race**\
-`Ms. Baldwin has once again proven herself a survivor in an evenly divided swing state, where voters went for her and President-elect Donald J. Trump.`\
-https://nytimes.com/2024/11/05/us/politics/tammy-baldwin-eric-hovde-wisconsin-senate.html
 
