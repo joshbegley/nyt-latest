@@ -1,3 +1,7 @@
+**Mexico’s Top Court Dismisses Proposal to Invalidate Contentious Judicial Overhaul**\
+`The move spares the country’s new president from having to choose between recognizing a court decision to strike down the overhaul or aligning with her party’s leaders and ignoring it.`\
+https://nytimes.com/2024/11/05/world/americas/mexico-supreme-court-judicial-overhaul.html
+
 **Why No. 8 Indiana is the 12-team College Football Playoff's ultimate test case**\
 `What do you see in the Hoosiers: a good team beating up punching bags, or one that can go toe-to-toe with the best in the country?`\
 https://nytimes.com/athletic/5900986/2024/11/05/indiana-college-football-playoff-rankings-resume-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5901203/2024/11/05/amorim-sporting-man-united-city-
 **NASCAR penalizes three teams for manipulating finish at Martinsville**\
 `The drivers themselves were not suspended, but each will lose their crew chief, spotter and a team executive for the season finale.`\
 https://nytimes.com/athletic/5901653/2024/11/05/nascar-disciplines-cup-series-teams-influencing-finish-martinsville/
-
-**You May Not Be Able to Outrun a Vampire Bat**\
-`Scientists put the bloodsucking mammals on a treadmill to understand how they get the energy to chase down their next meal.`\
-https://nytimes.com/2024/11/05/science/vampire-bats-running-treadmills.html
 

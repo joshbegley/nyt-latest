@@ -1,3 +1,7 @@
+**Mexico’s Top Court Dismisses Proposal to Invalidate Contentious Judicial Overhaul**\
+`The move spares the country’s new president from having to choose between recognizing a court decision to strike down the overhaul or aligning with her party’s leaders and ignoring it.`\
+https://nytimes.com/2024/11/05/world/americas/mexico-supreme-court-judicial-overhaul.html
+
 **Why No. 8 Indiana is the 12-team College Football Playoff's ultimate test case**\
 `What do you see in the Hoosiers: a good team beating up punching bags, or one that can go toe-to-toe with the best in the country?`\
 https://nytimes.com/athletic/5900986/2024/11/05/indiana-college-football-playoff-rankings-resume-schedule/
