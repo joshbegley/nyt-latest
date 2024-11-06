@@ -1,3 +1,11 @@
+**Jeff Bezos Congratulates Trump on Victory**\
+`Mr. Bezos, who also owns The Washington Post, recently quashed the newspaper’s endorsement of Vice President Kamala Harris.`\
+https://nytimes.com/2024/11/06/business/media/jeff-bezos-trump.html
+
+**Ex-Cub Kyle Hendricks close to signing with Angels**\
+`Hendricks’ composure, knowledge and experience will be assets for the Angels as they try to build up their pitching program.`\
+https://nytimes.com/athletic/5903715/2024/11/06/kyle-hendricks-angels-deal-cubs/
+
 **Trump Bump 2.0? Experts Expect Another Audience Surge, With Caveats.**\
 `News fatigue and changing consumption habits could sap some of that enthusiasm over time, several news media experts said.`\
 https://nytimes.com/2024/11/06/business/media/trump-newspapers-cable-news-audience.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5902693/2024/11/06/man-united-ruben-amorim-sporting
 **He’s Getting Raves for a Role He Wasn’t Supposed to Play**\
 `Seventeen years after he first appeared in “Yellow Face,” the veteran actor Francis Jue has returned with a nuanced performance as a blustery patriarch.`\
 https://nytimes.com/2024/11/06/theater/francis-jue-yellow-face-broadway.html
-
-**Ohio Republicans Expand Control of State Supreme Court**\
-`The race was one of several that reflected the increasing politicization and influence of state supreme courts nationwide.`\
-https://nytimes.com/2024/11/06/us/ohio-supreme-court.html
-
-**The Crypto Industry Spent Over $130 Million on the Election. It Paid Off.**\
-`The spending spree fueled a string of victories on Tuesday for congressional candidates who had expressed support for cryptocurrencies.`\
-https://nytimes.com/2024/11/06/technology/crypto-industry-spending-election.html
 
