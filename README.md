@@ -1,3 +1,7 @@
+**Five Raiders predictions at midseason: Antonio Pierce will earn a second season**\
+`The Raiders won't spend the second half of the season tanking, but we foresee them ending up with a top-five pick in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/5901343/2024/11/06/raiders-predictions-nfl-midseason-2024/
+
 **The Winners and Losers of Trump 2.0**\
 `Donald Trump’s return to the White House could upend some industries and the economy. But stocks and other assets are soaring on hopes that a new, business-friendly era beckons.`\
 https://nytimes.com/2024/11/06/business/dealbook/winners-losers-trump-musk-crypto.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5901676/2024/11/06/oilers-brett-kulak-stats-value/
 **Lawler wins New York swing seat, lifting Republican House chances**\
 `Representative Mike Lawler, a Republican, defied a stark Democratic advantage in the New York City suburbs to defeat Mondaire Jones.`\
 https://nytimes.com/2024/11/06/nyregion/new-york-house-lawler-mondaire-jones.html
-
-**Landon Cassill on shifting priorities, shifting gears and his future: 12 Questions**\
-`For the 13th straight season, this year's 12 Questions interview series concludes with "The Money Lap" co-host Landon Cassill.`\
-https://nytimes.com/athletic/5890834/2024/11/06/landon-cassill-nascar-12-questions/
 
