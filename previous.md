@@ -1,3 +1,11 @@
+**Fantasy football mid-season dynasty report: Sell Cooper Kupp, buy Jaxon Smith-Njigba**\
+`Jeff Haverlack tells you who to buy (Cooper Kupp, among others) and who to sell at the midseason point of the 2024 NFL season. `\
+https://nytimes.com/athletic/5900892/2024/11/06/fantasy-football-midseason-dynasty-report-sell-cooper-kupp-buy-jaxon-smith-njigba/
+
+**Branthwaite must start, Ndiaye as the No 10, give Beto a go - a blueprint to fix Everton**\
+`Everton have a daunting December ahead - changes have to be made now because doing nothing risks more of the same and it's not been enough`\
+https://nytimes.com/athletic/5899898/2024/11/06/everton-fix-dyche-branthwaite-ndiaye-beto/
+
 **Why David Raya making far more saves this season is a mixed blessing for Arsenal**\
 `The keeper made 45 saves in the whole of last season and is already on 29 after 10 games of this campaign`\
 https://nytimes.com/athletic/5897566/2024/11/06/david-raya-arsenal-saves/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/us/elections/nebraska-senate-fischer-osborn.html
 **Angeball is working: The numbers suggest Spurs are improving on last season**\
 `This time last season, Spurs were top of the league. Now they are 7th, with 10 fewer points. But the numbers suggest cause for optimism`\
 https://nytimes.com/athletic/5895116/2024/11/06/angeball-tottenham-spurs-postecoglou/
-
-**'Manchester United's decision-making? It's quite confusing'**\
-`United's former player and coach reflects on managerial chaos, Ferguson's legacy, Ronaldo - and scouting a teenage Jude Bellingham`\
-https://nytimes.com/athletic/5900487/2024/11/06/mike-phelan-manchester-united-interview/
-
-**Omaha, Nebraska’s So-Called Blue Dot, Goes for Harris**\
-`Reliably conservative Nebraska had been in the spotlight because it splits its five electoral votes. The state’s Second Congressional District voted Democratic.`\
-https://nytimes.com/2024/11/05/us/politics/omaha-nebraska-harris.html
 

@@ -1,3 +1,11 @@
+**Fantasy football mid-season dynasty report: Sell Cooper Kupp, buy Jaxon Smith-Njigba**\
+`Jeff Haverlack tells you who to buy (Cooper Kupp, among others) and who to sell at the midseason point of the 2024 NFL season. `\
+https://nytimes.com/athletic/5900892/2024/11/06/fantasy-football-midseason-dynasty-report-sell-cooper-kupp-buy-jaxon-smith-njigba/
+
+**Branthwaite must start, Ndiaye as the No 10, give Beto a go - a blueprint to fix Everton**\
+`Everton have a daunting December ahead - changes have to be made now because doing nothing risks more of the same and it's not been enough`\
+https://nytimes.com/athletic/5899898/2024/11/06/everton-fix-dyche-branthwaite-ndiaye-beto/
+
 **Why David Raya making far more saves this season is a mixed blessing for Arsenal**\
 `The keeper made 45 saves in the whole of last season and is already on 29 after 10 games of this campaign`\
 https://nytimes.com/athletic/5897566/2024/11/06/david-raya-arsenal-saves/
