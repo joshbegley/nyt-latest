@@ -1,3 +1,11 @@
+**How Trump Connected With So Many Americans**\
+`Donald Trump’s campaign was a blend of comedy, fury, optimism, darkness and cynicism. “He gets us,” some voters concluded.`\
+https://nytimes.com/2024/11/06/us/elections/donald-trump-supporters.html
+
+**Resist or Retreat? Democratic Voters Are Torn About Whether to Keep Fighting.**\
+`Many who became activists during the first Trump administration are questioning if they can summon the strength to do it all over again.`\
+https://nytimes.com/2024/11/06/us/democrats-election-activism.html
+
 **Willson Contreras to move to first base: What it means for Cardinals' 2025 plans**\
 `Contreras' openness to a position change speaks volumes about his desire to remain with the Cardinals.`\
 https://nytimes.com/athletic/5904568/2024/11/06/cardinals-mlb-willson-contreras-first-base/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/arts/design/joseph-rykwert-dead.html
 **Vindman Wins Virginia House Race, Keeping a Key Seat in Democratic Hands**\
 `Yevgeny Vindman is a former Army lieutenant colonel who was fired by the Trump administration for joining his twin brother as a whistle-blower in the first impeachment of President Donald J. Trump.`\
 https://nytimes.com/2024/11/06/us/elections/virginia-house-vindman-anderson.html
-
-**Hurricane Rafael Delivers Another Blow to Cuba**\
-`The storm’s winds knocked out power across the island before moving ashore as a powerful Category 3 storm.`\
-https://nytimes.com/2024/11/06/weather/hurricane-rafael-cuba.html
-
-**Will a Woman Ever Be President?**\
-`After Kamala Harris became the second woman to lose a presidential election to Donald J. Trump, some women wondered if the glass ceiling would ever break.`\
-https://nytimes.com/2024/11/06/us/politics/harris-woman-president.html
 
