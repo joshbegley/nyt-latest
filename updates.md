@@ -1,3 +1,7 @@
+**Andy Kim Wins in New Jersey to Become the First Korean American Senator**\
+`Mr. Kim, a Democrat, will take the seat previously held by Robert Menendez, who resigned after being convicted of taking bribes.`\
+https://nytimes.com/2024/11/05/nyregion/nj-senate-kim-bradshaw.html
+
 **Why Are Americans So Pessimistic?**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-americans-so-pessimistic

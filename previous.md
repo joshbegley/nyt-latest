@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-americans-so-pessimistic
 
 **Andy Kim Wins in New Jersey to Become the First Korean American Senator**\
-`Mr. Kim, a Democrat, will also be the Senate’s third-youngest member after a turbulent race.`\
+`Mr. Kim, a Democrat, will take the seat previously held by Robert Menendez, who resigned after being convicted of taking bribes.`\
 https://nytimes.com/2024/11/05/nyregion/nj-senate-kim-bradshaw.html
 
 **Black Voters Weigh Character, Policies and Politics at the Polls**\
