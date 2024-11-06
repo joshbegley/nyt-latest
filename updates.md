@@ -1,3 +1,11 @@
+**Harris Says She Concedes the Election, but Not Her Fight**\
+`Her commitment to a peaceful transfer of power was more than President-elect Trump ever offered to President Biden and Vice President Kamala Harris after they defeated him in 2020.`\
+https://nytimes.com/2024/11/06/us/politics/harris-concession-speech.html
+
+**Robert F. Kennedy Jr., Foe of Drug Makers and Regulators, Is Poised to Wield New Power**\
+`President-elect Donald Trump has encouraged him to “go wild on health” but has not made clear what role Mr. Kennedy will play.`\
+https://nytimes.com/2024/11/06/us/politics/robert-kennedy-jr-donald-trump-health-care.html
+
 **Padres extend manager Mike Shildt after season of rare alignment**\
 `Said Shildt of A.J. Preller: "We know we’re working off the same script, we have the same vision, and that’s to win a world championship."`\
 https://nytimes.com/athletic/5904413/2024/11/06/padres-manager-mike-shildt-extension-reaction/
