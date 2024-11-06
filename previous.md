@@ -1,3 +1,7 @@
+**Ted Cruz Survives Another Re-Election Fight in Texas**\
+`In keeping his seat, he dashed rising hopes among some Democrats that years of demographic changes and urbanization could start to flip the state.`\
+https://nytimes.com/2024/11/05/us/politics/texas-senate-cruz-allred.html
+
 **Moreno Defeats Brown in Ohio, Putting G.O.P. Within Reach of Senate Control**\
 `With the victory of Bernie Moreno, a wealthy former car dealer and political novice, Republicans had enough seats to win the Senate majority unless Democrats scored an upset.`\
 https://nytimes.com/2024/11/05/us/elections/ohio-senate-brown-moreno.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902025/2024/11/05/wild-kings-takeaways-analysis/
 **Schiff Wins Senate Race to Fill the Feinstein Seat in California**\
 `Representative Adam Schiff, a Democrat, defeated Steve Garvey, a Republican and former professional baseball star.`\
 https://nytimes.com/2024/11/05/us/politics/california-senate-schiff-garvey.html
-
-**Pennsylvania Becomes Hot Spot for Election Disinformation**\
-`More than 60 percent of posts discussing election fraud on X on Tuesday focused on the state, according to an analysis of about 25,000 posts.`\
-https://nytimes.com/2024/11/05/technology/pennsylvania-election-disinformation.html
 

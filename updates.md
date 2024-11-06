@@ -1,3 +1,7 @@
+**Ted Cruz Survives Another Re-Election Fight in Texas**\
+`In keeping his seat, he dashed rising hopes among some Democrats that years of demographic changes and urbanization could start to flip the state.`\
+https://nytimes.com/2024/11/05/us/politics/texas-senate-cruz-allred.html
+
 **Moreno Defeats Brown in Ohio, Putting G.O.P. Within Reach of Senate Control**\
 `With the victory of Bernie Moreno, a wealthy former car dealer and political novice, Republicans had enough seats to win the Senate majority unless Democrats scored an upset.`\
 https://nytimes.com/2024/11/05/us/elections/ohio-senate-brown-moreno.html
