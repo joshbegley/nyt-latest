@@ -1,3 +1,15 @@
+**Warren Washington, Groundbreaking Climate Scientist, Dies at 88**\
+`He invented a computer model that made it possible to measure human-induced climate change. He also helped break a color barrier in science.`\
+https://nytimes.com/2024/11/06/climate/warren-washington-dead.html
+
+**Scoop City: Ranking the trade deadline winners and losers**\
+`A look at why the Vikings, Lions, Chiefs, Commanders and Ravens won, while the Cowboys (and trade lovers) lost.`\
+https://nytimes.com/athletic/5903614/2024/11/06/nfl-trade-deadline-winners-and-losers-from-the-commanders-to-the-cowboys/
+
+**What can United fans learn about Amorim from Sporting's win over City?**\
+`Last night's 4-1 victory is evidence Amorim is a good coach but his new club must be restructured into a unit if they are to hit such highs`\
+https://nytimes.com/athletic/5902693/2024/11/06/man-united-ruben-amorim-sporting-man-city/
+
 **He’s Getting Raves for a Role He Wasn’t Supposed to Play**\
 `Seventeen years after he first appeared in “Yellow Face,” the veteran actor Francis Jue has returned with a nuanced performance as a blustery patriarch.`\
 https://nytimes.com/2024/11/06/theater/francis-jue-yellow-face-broadway.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5903127/2024/11/06/betting-dummies-indiana-michigan
 **Is It OK to Put Our Assets in Trust to Qualify for Medicaid?**\
 `The magazine’s Ethicist columnist on an aging couple’s financial plans.`\
 https://nytimes.com/2024/11/06/magazine/assets-trust-medicaid-ethics.html
-
-**Fantasy football brain games: Give Daniel Jones a go, bench Tank Bigsby in Week 10**\
-`Renee Miller offers positional start/sit advice for players in precarious situations ahead of Week 10. `\
-https://nytimes.com/athletic/5903293/2024/11/06/fantasy-football-brain-games-week-10/
-
-**Bills sign DTs Quinton Jefferson, Jordan Phillips**\
-`Both signed on one-year deals, the Bills announced.`\
-https://nytimes.com/athletic/5903440/2024/11/06/bills-browns-quinton-jefferson-jordan-phillips/
-
-**The Covid Moms Strike Back**\
-`I wonder if their lingering rage fueled Trump’s decisive win.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/pandemic-mothers-trump-voters
 

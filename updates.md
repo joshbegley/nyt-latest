@@ -1,3 +1,15 @@
+**He’s Getting Raves for a Role He Wasn’t Supposed to Play**\
+`Seventeen years after he first appeared in “Yellow Face,” the veteran actor Francis Jue has returned with a nuanced performance as a blustery patriarch.`\
+https://nytimes.com/2024/11/06/theater/francis-jue-yellow-face-broadway.html
+
+**Ohio Republicans Expand Control of State Supreme Court**\
+`The race was one of several that reflected the increasing politicization and influence of state supreme courts nationwide.`\
+https://nytimes.com/2024/11/06/us/ohio-supreme-court.html
+
+**The Crypto Industry Spent Over $130 Million on the Election. It Paid Off.**\
+`The spending spree fueled a string of victories on Tuesday for congressional candidates who had expressed support for cryptocurrencies.`\
+https://nytimes.com/2024/11/06/technology/crypto-industry-spending-election.html
+
 **N.Y.C. Voters Approve Four Ballot Measures Proposed by Mayor Adams**\
 `Opponents tried to use Mayor Eric Adams’s federal indictment to argue against the measures, and cast them as a bid to lessen the City Council’s power.`\
 https://nytimes.com/2024/11/06/nyregion/nyc-ballot-propositions.html
