@@ -1,3 +1,7 @@
+**Pariah, Felon, President-Elect: How Trump Fought His Way Back to Power**\
+`After the Jan. 6 attack on the Capitol, even many Republicans believed the former president’s political career was over. He proved everyone wrong.`\
+https://nytimes.com/2024/11/06/us/politics/trump-won-arc.html
+
 **10 Takeaways From the Night Trump Marched Back to the White House**\
 `America’s democracy will again be put the test, and its government will veer sharply to the right. Kamala Harris and Democrats were dealt stunning defeats across the country.`\
 https://nytimes.com/2024/11/06/us/politics/election-takeaways-trump-harris.html

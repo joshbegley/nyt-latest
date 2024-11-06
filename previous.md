@@ -1,3 +1,7 @@
+**Pariah, Felon, President-Elect: How Trump Fought His Way Back to Power**\
+`After the Jan. 6 attack on the Capitol, even many Republicans believed the former president’s political career was over. He proved everyone wrong.`\
+https://nytimes.com/2024/11/06/us/politics/trump-won-arc.html
+
 **10 Takeaways From the Night Trump Marched Back to the White House**\
 `America’s democracy will again be put the test, and its government will veer sharply to the right. Kamala Harris and Democrats were dealt stunning defeats across the country.`\
 https://nytimes.com/2024/11/06/us/politics/election-takeaways-trump-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/trump-wins-presidency.html
 **Ito undergoes second operation as Bayern debut delayed**\
 `Bayern Munich defender Hiroki Ito has suffered another injury setback during his recovery from a broken metatarsal.`\
 https://nytimes.com/athletic/5902764/2024/11/06/hiroki-ito-bayern-munich-injury/
-
-**Donald Trump Declares Victory and Thanks Supporters**\
-`He said his campaign had “achieved the most incredible political thing,” as news outlets put him on the verge of reclaiming the White House.`\
-https://nytimes.com/2024/11/06/us/politics/trump-victory-speech.html
 
