@@ -1,3 +1,7 @@
+**Nebraska Voters Pass Measure Limiting Abortions**\
+`A competing ballot amendment, which would have established a right to abortion until fetal viability, failed to win more votes.`\
+https://nytimes.com/2024/11/06/us/nebraska-abortion-ballot-measure.html
+
 **Trump Wins Georgia, Re-establishing Republicans’ Dominance There**\
 `His victory in the state reaffirmed many conservatives’ beliefs that the Peach State is fundamentally red, despite Democrats’ inroads in recent election cycles.`\
 https://nytimes.com/2024/11/05/us/politics/georgia-election-trump-harris.html
