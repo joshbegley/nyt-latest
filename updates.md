@@ -1,3 +1,11 @@
+**Baylor president wants Power 4 leaders to hear from super league groups**\
+`Baylor president and Big 12 board chairwoman Linda Livingstone has sent a letter to university leaders in the ACC, Big Ten and SEC, inviting them to a summit in early December, where they can hear directly from groups pitching potential new models for college football.`\
+https://nytimes.com/athletic/5904123/2024/11/06/baylor-president-college-football-super-leagues/
+
+**Jack Smith begins discussing how to wind down his prosecutions of Trump.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jack-smith-begins-discussing-how-to-wind-down-his-prosecutions-of-trump
+
 **Voters Were Fed Up Over Immigration. They Voted for Trump.**\
 `Voters across party lines shifted to the right on immigration. They blamed Biden-Harris for failing to control the chaotic border.`\
 https://nytimes.com/2024/11/06/us/trump-immigration-border.html
