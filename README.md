@@ -1,3 +1,11 @@
+**What is Project 2025, and Why Did Trump Distance Himself from It During the Campaign?**\
+`Democrats had attacked Donald J. Trump’s ties to the conservative policy blueprint for reshaping the federal government. Several of its authors served in his administration.`\
+https://nytimes.com/2024/11/06/us/politics/trump-project-2025.html
+
+**We Can Fight Later. Now Is the Time to Mourn.**\
+`The morning after the apocalypse.`\
+https://nytimes.com/2024/11/06/opinion/trump-future-mourn.html
+
 **Brush Fires in Southern California Prompt Evacuations and Power Outages**\
 `Firefighters were working on Wednesday to contain fires in Ventura and Los Angeles Counties amid dangerous weather conditions.`\
 https://nytimes.com/2024/11/06/us/malibu-fire-power-outages-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5904015/2024/11/06/nick-martinez-reds-free-agent-of
 **Republicans Make Early Inroads in Their Fight to Keep the House Majority**\
 `Democrats picked up two seats in New York and defended others in Michigan and New Mexico, but Republican gains have narrowed their path, setting up a potential G.O.P. trifecta.`\
 https://nytimes.com/2024/11/06/us/elections/republicans-house-of-representatives-congress.html
-
-**Man Who Lived Rent-Free in Hotel for Years Is Found Unfit to Stand Trial**\
-`A hearing has been scheduled for next week for a judge to decide whether Mickey Barreto, who stayed at the New Yorker Hotel in Manhattan, should be held in a hospital for psychiatric care.`\
-https://nytimes.com/2024/11/06/nyregion/mickey-barreto-unfit-trial.html
-
-**Trump’s Victory Is a Major Win for Elon Musk and Big-Money Politics**\
-`The candidate largely let the billionaire run his $175 million ground game — a gamble that future candidates could look to emulate.`\
-https://nytimes.com/2024/11/06/us/elections/trump-musk-america-pac.html
 
