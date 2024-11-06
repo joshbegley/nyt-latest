@@ -1,3 +1,19 @@
+**Premier League clubs to vote on changes to APT rules**\
+`The Premier League will ask its 20 clubs to vote on proposed changes to sponsorship rules later this month following the successful legal challenge from Manchester City.`\
+https://nytimes.com/athletic/5903395/2024/11/06/premier-league-sponsorship-rules-vote/
+
+**Wordle Review No. 1,237**\
+`Scroll down for hints and conversation about the puzzle for Nov. 7, 2024.`\
+https://nytimes.com/2024/11/06/crosswords/wordle-review-1237.html
+
+**Who is Gideon Saar, Israel’s new foreign minister?**\
+`Over the years, he has been both a supporter and foe of Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2024/11/06/world/middleeast/gideon-saar-israel-foreign-minister.html
+
+**When Running 250 Miles Is the Easy Part**\
+`A man with autism, his devoted mother and a seemingly endless race. A story of resilience and love.`\
+https://nytimes.com/2024/11/06/us/running-ultramarathon-autism.html
+
 **A New Portrait of Trump Family Values**\
 `Melania, Ivanka, Barron and an extended cast of supporters offer a picture of what is to come.`\
 https://nytimes.com/2024/11/06/style/trump-ivanka-melania-election-speech.html
