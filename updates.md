@@ -1,3 +1,11 @@
+**Travis Kelce says Jason was 'defending' family in phone-smashing incident**\
+`Jason Kelce previously addressed the incident on ESPN’s "Monday Night Countdown," saying he was "not proud of it."`\
+https://nytimes.com/athletic/5904078/2024/11/06/travis-kelce-jason-phone-incident/
+
+**Caleb Williams and DJ Moore need to get on the same page, plus more Bears fallout**\
+`The Bears have a lot to sort through after back-to-back losses, including another team meeting and more injuries`\
+https://nytimes.com/athletic/5904200/2024/11/06/bears-caleb-williams-dj-moore/
+
 **Special Edition: What a Trump Victory Means**\
 `Plus, what to expect from his foreign policy.`\
 https://nytimes.com/2024/11/06/briefing/trump-victory-foreign-policy.html
