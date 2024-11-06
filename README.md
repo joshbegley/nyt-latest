@@ -1,3 +1,11 @@
+**How Harris’s Loss Could Haunt Biden’s Legacy**\
+`In the wake of Donald J. Trump’s resounding victory, many Democrats are casting President Biden as a one-term president who set his party on a path to failure in 2024.`\
+https://nytimes.com/2024/11/06/us/politics/harris-biden-legacy.html
+
+**It’s ‘Trump’s America’**\
+`We take a look at how Trump won, and what’s next. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/11/06/briefing/harris-concession-trump-agenda-second-term.html
+
 **Harris Delivers Concession Speech at Howard University**\
 `Vice President Kamala Harris publicly conceded defeat to President-elect Donald J. Trump on Wednesday.`\
 https://nytimes.com/video/us/elections/100000009812696/harris-concession-speech-video.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5900473/2024/11/06/inter-arsenal-saka-odegaard/
 **Spurs' Romero avoids serious injury but Richarlison out for 'a little while'**\
 `Tottenham Hotspur vice-captain Cristian Romero has avoided a serious injury but forward Richarlison faces a “little while” out with a left hamstring problem.`\
 https://nytimes.com/athletic/5895271/2024/11/06/cristian-romero-richarlison-injury-tottenham/
-
-**UNLV, Air Force got extra money from Mountain West amid realignment uncertainty**\
-`A few days of conference realignment maneuvering helped UNLV and Air Force each receive increased MWC financial commitments.`\
-https://nytimes.com/athletic/5904436/2024/11/06/mountain-west-unlv-air-force-money-realignment/
-
-**Elon Musk Helped Elect Trump. What Does He Expect in Return?**\
-`The world’s richest man gave his money and time in campaigning for the president-elect and now is putting in his requests for a friendlier regulatory environment.`\
-https://nytimes.com/2024/11/06/us/politics/elon-musk-trump-benefits.html
 
