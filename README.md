@@ -1,3 +1,7 @@
+**A look at the battlefield after Yoav Gallant was ousted as Israel’s defense minister.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/a-look-at-the-battlefield-after-yoav-gallant-was-ousted-as-israels-defense-minister
+
 **‘Trump’s America’: Comeback Victory Signals a Different Kind of Country**\
 `In the end, Donald J. Trump is not the historical aberration some thought he was, but instead a transformational force reshaping the modern United States in his own image.`\
 https://nytimes.com/2024/11/06/us/politics/trump-america-election-victory.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/trump-grover-cleveland-second-term.ht
 **Morning TV Hosts Digest Trump Victory**\
 `From jubilant to disheartened, the mood on the sets of U.S. morning shows provided stark split-screen reactions.`\
 https://nytimes.com/2024/11/06/business/media/fox-msnbc-trump-win-reaction.html
-
-**Blue Jackets fall in OT to San Jose's Alex Wennberg, who is still on Columbus' payroll**\
-`The Blue Jackets bought out Wennberg's contract after the 2019-20 season.`\
-https://nytimes.com/athletic/5902806/2024/11/06/blue-jackets-sharks-loss-wennberg-contract/
 
