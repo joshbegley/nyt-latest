@@ -1,3 +1,7 @@
+**Kurz: Flyers' embarrassing backup goalie situation looks like first major error of new regime**\
+`The Flyers have yet to win a game, or even earn a single point, in the six games that either Aleksei Kolosov or Ivan Fedotov have played.`\
+https://nytimes.com/athletic/5902509/2024/11/06/flyers-hurricanes-nhl-goalies-kolosov-fedotov/
+
 **Why Giants president Buster Posey is determined to be people focused**\
 `Posey is leaning on his strengths as a player reading people and understanding their strengths and weakness in his new role.`\
 https://nytimes.com/athletic/5902363/2024/11/06/sf-giants-buster-posey-leadership-focus/
