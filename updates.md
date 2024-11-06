@@ -1,3 +1,11 @@
+**The Next Dietary Guidelines May Punt on a Big Question in Nutrition**\
+`There’s not enough evidence to recommend avoiding ultraprocessed foods, a scientific advisory committee says. Some experts disagree.`\
+https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-and-the-dietary-guidelines.html
+
+**Jones? Hudson-Odoi? James? The outsiders for a call-up in Carsley's final England squad**\
+`Carsley has shown he isn't afraid to look in a different direction. So which players could be given an opportunity to impress?`\
+https://nytimes.com/athletic/5902870/2024/11/06/england-squad-carsley-outsiders/
+
 **Political Betting Markets See Vindication in Trump Victory**\
 `Prediction markets, which surged to prominence during the presidential campaign, started reflecting a likely Trump win several weeks ago, even as opinion polls showed a tight race.`\
 https://nytimes.com/2024/11/06/business/dealbook/prediction-markets-trump-win.html
