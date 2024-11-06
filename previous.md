@@ -1,3 +1,7 @@
+**Four More Years of Unpredictability? The World Prepares for Trump’s Return.**\
+`Donald J. Trump has said he would transform America’s relationship with both allies and adversaries. Notably, he has pledged to end the war in Ukraine in 24 hours, increase tariffs and deport millions.`\
+https://nytimes.com/2024/11/06/world/asia/world-braces-trump-victory.html
+
 **Montana Voters Approve Abortion Ballot Measure**\
 `The measure establishes an explicit right to abortion in the State Constitution.`\
 https://nytimes.com/2024/11/06/us/politics/montana-abortion-ballot-measure.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902120/2024/11/06/packers-brian-gutekunst-trade-de
 **Notebook: Vlasic playing way into 4-Nations consideration, Bedard Q&A**\
 `Vlasic is a long shot for the 4 Nations tournament, but he was on the U.S. roster for the World Championship in the spring.`\
 https://nytimes.com/athletic/5900996/2024/11/06/blackhawks-alex-vlasic-4-nations-face-off/
-
-**CFB coaches react to first rankings reveal: Who got respect? Who has 'brand love'?**\
-`Coaches weigh in on the first College Football Playoff rankings. How do they view Boise State, BYU, Penn State?`\
-https://nytimes.com/athletic/5902328/2024/11/06/college-football-playoff-reaction-coaches-smu-boise-state/
 
