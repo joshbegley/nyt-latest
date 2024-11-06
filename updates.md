@@ -1,3 +1,15 @@
+**N.Y.C. Voters Approve Three Ballot Measures Proposed by Mayor Adams**\
+`Opponents tried to use Mayor Eric Adams’s federal indictment to argue against the measures, and cast them as a bid to lessen the City Council’s power.`\
+https://nytimes.com/2024/11/06/nyregion/nyc-ballot-propositions.html
+
+**Betting for (by) dummies: IU is favored by two scores against Michigan and it's not enough**\
+`Jon Greenberg and Zac Jackson are aligned on three picks this week: Indiana, BYU and the Arizona Cardinals. They have plenty more picks.`\
+https://nytimes.com/athletic/5903127/2024/11/06/betting-dummies-indiana-michigan/
+
+**Is It OK to Put Our Assets in Trust to Qualify for Medicaid?**\
+`The magazine’s Ethicist columnist on an aging couple’s financial plans.`\
+https://nytimes.com/2024/11/06/magazine/assets-trust-medicaid-ethics.html
+
 **Fantasy football brain games: Give Daniel Jones a go, bench Tank Bigsby in Week 10**\
 `Renee Miller offers positional start/sit advice for players in precarious situations ahead of Week 10. `\
 https://nytimes.com/athletic/5903293/2024/11/06/fantasy-football-brain-games-week-10/

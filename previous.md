@@ -1,3 +1,15 @@
+**N.Y.C. Voters Approve Three Ballot Measures Proposed by Mayor Adams**\
+`Opponents tried to use Mayor Eric Adams’s federal indictment to argue against the measures, and cast them as a bid to lessen the City Council’s power.`\
+https://nytimes.com/2024/11/06/nyregion/nyc-ballot-propositions.html
+
+**Betting for (by) dummies: IU is favored by two scores against Michigan and it's not enough**\
+`Jon Greenberg and Zac Jackson are aligned on three picks this week: Indiana, BYU and the Arizona Cardinals. They have plenty more picks.`\
+https://nytimes.com/athletic/5903127/2024/11/06/betting-dummies-indiana-michigan/
+
+**Is It OK to Put Our Assets in Trust to Qualify for Medicaid?**\
+`The magazine’s Ethicist columnist on an aging couple’s financial plans.`\
+https://nytimes.com/2024/11/06/magazine/assets-trust-medicaid-ethics.html
+
 **Fantasy football brain games: Give Daniel Jones a go, bench Tank Bigsby in Week 10**\
 `Renee Miller offers positional start/sit advice for players in precarious situations ahead of Week 10. `\
 https://nytimes.com/athletic/5903293/2024/11/06/fantasy-football-brain-games-week-10/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/06/world/middleeast/gideon-saar-israel-foreign-minis
 **When Running 250 Miles Is the Easy Part**\
 `A man with autism, his devoted mother and a seemingly endless race. A story of resilience and love.`\
 https://nytimes.com/2024/11/06/us/running-ultramarathon-autism.html
-
-**A New Portrait of Trump Family Values**\
-`Melania, Ivanka, Barron and an extended cast of supporters offer a picture of what is to come.`\
-https://nytimes.com/2024/11/06/style/trump-ivanka-melania-election-speech.html
-
-**The Next Dietary Guidelines May Punt on a Big Question in Nutrition**\
-`There’s not enough evidence to recommend avoiding ultraprocessed foods, a scientific advisory committee says. Some experts disagree.`\
-https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-dietary-guidelines.html
-
-**Jones? Hudson-Odoi? James? The outsiders for a call-up in Carsley's final England squad**\
-`Carsley has shown he isn't afraid to look in a different direction. So which players could be given an opportunity to impress?`\
-https://nytimes.com/athletic/5902870/2024/11/06/england-squad-carsley-outsiders/
 
