@@ -1,3 +1,15 @@
+**How Are You Approaching a Second Trump Presidency?**\
+`After Trump’s big win, we would like to know how you’re feeling.`\
+https://nytimes.com/2024/11/06/briefing/how-are-you-approaching-a-second-trump-presidency.html
+
+**U.S. Election Sends Alarming Message for Global Climate Efforts**\
+`The Trump victory sets back the world’s attempt to rein in dangerous levels of warming and potentially isolates the United States in the global energy transition.`\
+https://nytimes.com/2024/11/06/climate/trump-climate-change-paris-cop29.html
+
+**'Holy Grail' Wayne Gretzky rookie card case going back to auction**\
+`After the original auction winner failed to pay, the coveted case of hockey cards is going back on sale`\
+https://nytimes.com/athletic/5903800/2024/11/06/wayne-gretzky-rookie-cards-auction/
+
 **The world is preparing for Trump’s return.**\
 `By Damien Cave and Catherine Porter`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/the-world-is-preparing-for-trumps-return
@@ -25,16 +37,4 @@ https://nytimes.com/card/2024/11/06/arts/editors-recommendations-johncoltrane
 **Ride-Hailing Drivers in Massachusetts Win Right to Unionize**\
 `A state ballot measure was the first of its kind in the United States, but labor advocates worry it could lock Uber and Lyft drivers out of full-time employment status.`\
 https://nytimes.com/2024/11/06/technology/uber-lyft-drivers-unionize-massachusetts.html
-
-**Trump Captures Michigan, Toppling Harris in a Another Battleground**\
-`The former president flipped back a state he won in 2016 only to lose in 2020.`\
-https://nytimes.com/2024/11/06/us/politics/michigan-race-call.html
-
-**Why Were Trump Voters Laughing?**\
-`It’s hard to understand why so many people loved the crudest insults.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/trump-voters-crude-laughter
-
-**A Simple Roast Chicken**\
-`My favorite recipe is uncomplicated and flexible, calling for only salt, pepper and whatever herbs you like.`\
-https://nytimes.com/2024/11/06/dining/a-simple-roast-chicken.html
 
