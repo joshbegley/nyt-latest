@@ -1,3 +1,7 @@
+**Parents of Harlem Boy Who Starved to Death Are Charged With Murder**\
+`The parents of Jahmeik Modlin, 4, were initially charged with manslaughter. They are accused of locking away food from their children and showing “depraved indifference” for their son’s life.`\
+https://nytimes.com/2024/11/06/nyregion/jahmeik-modlin-starve-death.html
+
 **Paul George has no 'ill will' against Clippers ahead of return to L.A.**\
 `The Sixers star who always envisioned retiring in a Clippers jersey still has nothing but good things to say about his old team.`\
 https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-return/
