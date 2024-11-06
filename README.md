@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5900850/2024/11/06/fantasy-football-stock-risers-fa
 https://nytimes.com/video/us/elections/100000009810889/trump-election-day-speech.html
 
 **Early Results Show a Red Shift Across the U.S.**\
-`A Times analysis finds that nearly three-fourths of U.S. counties shifted in favor of Donald J. Trump.`\
+`Of the counties with nearly complete results, more than 90 percent shifted in favor of former President Donald J. Trump in the 2024 presidential election.`\
 https://nytimes.com/interactive/2024/11/06/us/politics/presidential-election-2024-red-shift.html
 
 **Barrett Flips Key Michigan Seat for G.O.P., Defeating Hertel**\
