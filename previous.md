@@ -1,3 +1,7 @@
+**Trump Wins Georgia, Re-establishing Republicans’ Dominance There**\
+`His victory in the state reaffirmed many conservatives’ beliefs that the Peach State is fundamentally red, despite Democrats’ inroads in recent election cycles.`\
+https://nytimes.com/2024/11/05/us/politics/georgia-election-trump-harris.html
+
 **A deeper look at Wild's power-play, penalty-kill woes that finally cost them a game**\
 `The Wild's play on special teams has been floundering for several games, but the Kings were the first to eke a win out of it.`\
 https://nytimes.com/athletic/5902471/2024/11/06/wild-special-teams-woes-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899817/2024/11/06/a-day-with-west-ham-fans-forest-
 **What Wrexham's early FA Cup elimination means for the club - and their promotion hopes**\
 `Wrexham were surprisingly knocked out of the FA Cup by Harrogate Town on Sunday. Here's how it could prove a blessing in disguise`\
 https://nytimes.com/athletic/5899982/2024/11/06/wrexham-fa-cup-exit-analysis/
-
-**Fischer Wins in Nebraska, Giving Republicans Enough Seats for a Majority**\
-`Senator Deb Fischer, the two-term Republican from Nebraska, survived a dark horse challenge from Dan Osborn, a mechanic and labor leader who ran as an independent.`\
-https://nytimes.com/2024/11/06/us/elections/nebraska-senate-fischer-osborn.html
 

@@ -1,3 +1,7 @@
+**Trump Wins Georgia, Re-establishing Republicans’ Dominance There**\
+`His victory in the state reaffirmed many conservatives’ beliefs that the Peach State is fundamentally red, despite Democrats’ inroads in recent election cycles.`\
+https://nytimes.com/2024/11/05/us/politics/georgia-election-trump-harris.html
+
 **Fantasy football midseason dynasty report: Sell Cooper Kupp, buy Jaxon Smith-Njigba**\
 `Jeff Haverlack tells you who to buy (Cooper Kupp, among others) and who to sell at the midseason point of the 2024 NFL season. `\
 https://nytimes.com/athletic/5900892/2024/11/06/fantasy-football-midseason-dynasty-report-sell-cooper-kupp-buy-jaxon-smith-njigba/
