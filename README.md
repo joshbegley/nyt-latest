@@ -1,3 +1,7 @@
+**For Ukraine, Trump Victory Signals a Shift. To What, Is Unclear.**\
+`As U.S. president, Donald J. Trump will inherit a role as Ukraine’s chief benefactor. But he has been skeptical about continuing aid to Kyiv.`\
+https://nytimes.com/2024/11/06/world/europe/trump-ukraine-war-us.html
+
 **Four More Years of Unpredictability? The World Prepares for Trump’s Return.**\
 `Donald J. Trump has said he would transform America’s relationship with both allies and adversaries. Notably, he has pledged to end the war in Ukraine in 24 hours, increase tariffs and deport millions.`\
 https://nytimes.com/2024/11/06/world/asia/world-braces-trump-victory.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902199/2024/11/06/jordan-binnington-blues-career-w
 **Packers GM Brian Gutekunst explains Preston Smith trade, evaluates Jordan Love**\
 `The Packers traded Smith, the veteran edge rusher, to the Steelers for a 2025 seventh-round pick on Tuesday.`\
 https://nytimes.com/athletic/5902120/2024/11/06/packers-brian-gutekunst-trade-deadline/
-
-**Notebook: Vlasic playing way into 4-Nations consideration, Bedard Q&A**\
-`Vlasic is a long shot for the 4 Nations tournament, but he was on the U.S. roster for the World Championship in the spring.`\
-https://nytimes.com/athletic/5900996/2024/11/06/blackhawks-alex-vlasic-4-nations-face-off/
 
