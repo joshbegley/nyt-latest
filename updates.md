@@ -1,3 +1,11 @@
+**How Trump Connected With So Many Americans**\
+`Donald Trump’s campaign was a blend of comedy, fury, optimism, darkness and cynicism. “He gets us,” some voters concluded.`\
+https://nytimes.com/2024/11/06/us/elections/donald-trump-supporters.html
+
+**Resist or Retreat? Democratic Voters Are Torn About Whether to Keep Fighting.**\
+`Many who became activists during the first Trump administration are questioning if they can summon the strength to do it all over again.`\
+https://nytimes.com/2024/11/06/us/democrats-election-activism.html
+
 **Willson Contreras to move to first base: What it means for Cardinals' 2025 plans**\
 `Contreras' openness to a position change speaks volumes about his desire to remain with the Cardinals.`\
 https://nytimes.com/athletic/5904568/2024/11/06/cardinals-mlb-willson-contreras-first-base/
