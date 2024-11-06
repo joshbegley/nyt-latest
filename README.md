@@ -1,3 +1,7 @@
+**‘Trump’s America’: Comeback Victory Signals a Different Kind of Country**\
+`In the end, Donald J. Trump is not the historical aberration some thought he was, but instead a transformational force reshaping the modern United States in his own image.`\
+https://nytimes.com/2024/11/06/us/politics/trump-america-election-victory.html
+
 **With Political Victory, Trump Fights Off Legal Charges**\
 `By triumphing at the ballot box, Donald Trump can dispense with federal charges against him while postponing or derailing other pending cases that have dogged him.`\
 https://nytimes.com/2024/11/06/us/politics/trump-legal-cases-winning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/business/media/fox-msnbc-trump-win-reaction.html
 **Blue Jackets fall in OT to San Jose's Alex Wennberg, who is still on Columbus' payroll**\
 `The Blue Jackets bought out Wennberg's contract after the 2019-20 season.`\
 https://nytimes.com/athletic/5902806/2024/11/06/blue-jackets-sharks-loss-wennberg-contract/
-
-**A Party of Prigs and Pontificators Suffers a Humiliating Defeat**\
-`Democrats may feel righteous, but how’s that ever going to be a winning electoral look?`\
-https://nytimes.com/2024/11/06/opinion/donald-trump-defeat-democrats.html
 
