@@ -1,3 +1,11 @@
+**A New Portrait of Trump Family Values**\
+`Melania, Ivanka, Barron and an extended cast of supporters offer a picture of what is to come.`\
+https://nytimes.com/2024/11/06/style/trump-ivanka-melania-election-speech.html
+
+**The Next Dietary Guidelines May Punt on a Big Question in Nutrition**\
+`There’s not enough evidence to recommend avoiding ultraprocessed foods, a scientific advisory committee says. Some experts disagree.`\
+https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-dietary-guidelines.html
+
 **The Next Dietary Guidelines May Punt on a Big Question in Nutrition**\
 `There’s not enough evidence to recommend avoiding ultraprocessed foods, a scientific advisory committee says. Some experts disagree.`\
 https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-and-the-dietary-guidelines.html

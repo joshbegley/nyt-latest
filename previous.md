@@ -1,6 +1,10 @@
+**A New Portrait of Trump Family Values**\
+`Melania, Ivanka, Barron and an extended cast of supporters offer a picture of what is to come.`\
+https://nytimes.com/2024/11/06/style/trump-ivanka-melania-election-speech.html
+
 **The Next Dietary Guidelines May Punt on a Big Question in Nutrition**\
 `There’s not enough evidence to recommend avoiding ultraprocessed foods, a scientific advisory committee says. Some experts disagree.`\
-https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-and-the-dietary-guidelines.html
+https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-dietary-guidelines.html
 
 **Jones? Hudson-Odoi? James? The outsiders for a call-up in Carsley's final England squad**\
 `Carsley has shown he isn't afraid to look in a different direction. So which players could be given an opportunity to impress?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902992/2024/11/06/joel-embiid-76ers-suspended-juju
 **Tesla’s Stock Jumps After Trump’s Victory**\
 `Investors believe that the electric car company led by Elon Musk will benefit from his support of the president-elect.`\
 https://nytimes.com/2024/11/06/business/tesla-stock-elon-musk-trump.html
-
-**Guillory: The Pelicans need to provide reasons to keep believing after ugly start**\
-`An avalanche of injuries has thrown the season into peril, but where is the leadership in New Orleans?`\
-https://nytimes.com/athletic/5902802/2024/11/06/pelicans-zion-williamson-injuries/
 
