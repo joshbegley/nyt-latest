@@ -1,3 +1,11 @@
+**Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
+`Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
+https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
+
+**Trump Is Cruising in Florida. Is It a Bad Sign for Harris?**\
+`By Ross Douthat and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/trump-is-cruising-in-florida-is-it-a-bad-sign-for-harris
+
 **Trump Team Revokes Election Party Access for Some Journalists**\
 `A reporter for Puck and other journalists were barred after critical coverage of the campaign.`\
 https://nytimes.com/2024/11/05/business/media/trump-election-party-access-journalists.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/elo
 **Why Are Americans So Pessimistic?**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-americans-so-pessimistic
-
-**Andy Kim Wins in New Jersey to Become the First Korean American Senator**\
-`Mr. Kim, a Democrat, will take the seat previously held by Robert Menendez, who resigned after being convicted of taking bribes.`\
-https://nytimes.com/2024/11/05/nyregion/nj-senate-kim-bradshaw.html
-
-**Black Voters Weigh Character, Policies and Politics at the Polls**\
-`Polling last month suggested that while the vast majority of Black voters supported Kamala Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
-https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html
 

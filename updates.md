@@ -1,3 +1,11 @@
+**Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
+`Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
+https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
+
+**Trump Is Cruising in Florida. Is It a Bad Sign for Harris?**\
+`By Ross Douthat and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/trump-is-cruising-in-florida-is-it-a-bad-sign-for-harris
+
 **Alex Bregman is the Astros' 'biggest priority.' Can Dana Brown seal the deal?**\
 `Said Brown, "I'm going into this offseason with the thought that we're going to get Bregman back."`\
 https://nytimes.com/athletic/5901990/2024/11/05/astros-alex-bregman-priority-free-agency/
