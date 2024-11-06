@@ -1,3 +1,11 @@
+**For Ukraine, Trump Victory Signals a Shift. To What, Is Unclear.**\
+`As U.S. president, Donald J. Trump will inherit a role as Ukraine’s chief benefactor. But he has been skeptical about continuing aid to Kyiv.`\
+https://nytimes.com/2024/11/06/world/europe/trump-ukraine-war-us.html
+
+**Four More Years of Unpredictability? The World Prepares for Trump’s Return.**\
+`Donald J. Trump has said he would transform America’s relationship with both allies and adversaries. Notably, he has pledged to end the war in Ukraine in 24 hours, increase tariffs and deport millions.`\
+https://nytimes.com/2024/11/06/world/asia/world-reactions-trump-win.html
+
 **Four More Years of Unpredictability? The World Prepares for Trump’s Return.**\
 `Donald J. Trump has said he would transform America’s relationship with both allies and adversaries. Notably, he has pledged to end the war in Ukraine in 24 hours, increase tariffs and deport millions.`\
 https://nytimes.com/2024/11/06/world/asia/world-braces-trump-victory.html
