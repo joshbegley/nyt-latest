@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5903772/2024/11/06/yankees-juan-soto-scott-boras-fr
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/zelensky-urges-trump-to-help-defend-ukraine-against-russia
 
 **Cole Leinart, son of former USC star Matt Leinart, commits to SMU**\
-`The son of the former Heisman Trophy winner landed an offer from SMU this week. He quickly accepted. `\
+`The Class of 2026 QB prospect landed an offer from SMU this week. He quickly accepted. `\
 https://nytimes.com/athletic/5904255/2024/11/06/recruiting-smu-cole-leinart-matt-smu/
 
 **Trump’s Newest Economic Sherpas Are Not Like His Old Ones**\
