@@ -1,3 +1,11 @@
+**Harris Delivers Concession Speech at Howard University**\
+`Vice President Kamala Harris publicly conceded defeat to President-elect Donald J. Trump on Wednesday.`\
+https://nytimes.com/video/us/elections/100000009812696/harris-concession-speech-video.html
+
+**Democrats Again Banked on the ‘Blue Wall.’ It Crumbled.**\
+`Donald J. Trump swept the Great Lakes battlegrounds of Michigan, Pennsylvania and Wisconsin, raising questions about the Democratic coalition going forward.`\
+https://nytimes.com/2024/11/06/us/politics/trump-harris-blue-wall-election.html
+
 **What we're hearing about Astros at GM meetings: Ryan Pressly, a hitting summit and more**\
 `Plus do the Astros have leverage when Alex Bregman has created “a market that the Astros are very aware is very healthy for him"?`\
 https://nytimes.com/athletic/5904202/2024/11/06/astros-gm-meetings-ryan-pressly-trade/
