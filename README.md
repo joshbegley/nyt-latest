@@ -1,3 +1,7 @@
+**Trump Is Cruising in Florida. Is It a Bad Sign for Harris?**\
+`By Ross Douthat and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/trump-is-cruising-in-florida-is-it-a-bad-sign-for-harris
+
 **Trump Team Revokes Election Party Access for Some Journalists**\
 `A reporter for Puck and other journalists were barred after critical coverage of the campaign.`\
 https://nytimes.com/2024/11/05/business/media/trump-election-party-access-journalists.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5901389/2024/11/05/penn-state-college-football-play
 https://nytimes.com/athletic/5901994/2024/11/05/college-football-playoff-rankings-georgia-sec/
 
 **Alex Bregman is the Astros' 'biggest priority.' Can Dana Brown seal the deal?**\
-`Said GM Dana Brown, "I’m going into this offseason with the thought that we’re going to get Bregman back."`\
+`Said Brown, "I'm going into this offseason with the thought that we're going to get Bregman back."`\
 https://nytimes.com/athletic/5901990/2024/11/05/astros-alex-bregman-priority-free-agency/
 
 **Elon Musk Is in a Category All His Own**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why
 **Andy Kim Wins in New Jersey to Become the First Korean American Senator**\
 `Mr. Kim, a Democrat, will take the seat previously held by Robert Menendez, who resigned after being convicted of taking bribes.`\
 https://nytimes.com/2024/11/05/nyregion/nj-senate-kim-bradshaw.html
-
-**Black Voters Weigh Character, Policies and Politics at the Polls**\
-`Polling last month suggested that while the vast majority of Black voters supported Kamala Harris, she was on track to receive less support from Black men than President Biden did four years ago.`\
-https://nytimes.com/2024/11/05/us/politics/black-voters-trump-harris.html
 
