@@ -1,40 +1,40 @@
-**America Hires a Strongman**\
-`This was a conquering of the nation not by force but with a permission slip. Now, America stands on the precipice of an authoritarian style of governance never before seen in its 248-year history.`\
-https://nytimes.com/2024/11/06/us/politics/trump-election-analysis.html
+**Wheeler's 2025 NHL Draft mailbag: Is Porter Martone overrated? Victor vs. William Eklund?**\
+`Also in the mailbag: How do the top defensemen in the 2025 class compare to the top drafted at the position last year? `\
+https://nytimes.com/athletic/5900790/2024/11/06/2025-nhl-draft-porter-martone-eklund/
 
-**Pariah, Felon, President-Elect: How Trump Fought His Way Back to Power**\
-`After the Jan. 6 attack on the Capitol, even many Republicans believed the former president’s political career was over. He proved everyone wrong.`\
-https://nytimes.com/2024/11/06/us/politics/trump-won-arc.html
+**What we’re hearing about the Cubs at GM meetings: Starting pitching, catching and more**\
+`Can the Cubs swing a Scott Boras client for the rotation? What are there plans behind the plate?`\
+https://nytimes.com/athletic/5902384/2024/11/06/cubs-gm-meetings-offseason-targets/
 
-**10 Takeaways From the Night Trump Marched Back to the White House**\
-`America’s democracy will again be put the test, and its government will veer sharply to the right. Kamala Harris and Democrats were dealt stunning defeats across the country.`\
-https://nytimes.com/2024/11/06/us/politics/election-takeaways-trump-harris.html
+**Twins will need to be 'creative' as financial restrictions hamper chance to improve roster**\
+`Derek Falvey realizes he may need to reallocate resources in order to round out the edges of the Twins’ roster.`\
+https://nytimes.com/athletic/5901996/2024/11/06/twins-offseason-approach-restrictions/
 
-**Stop Pretending Trump Is Not Who We Are**\
-`If we haven’t learned our lesson now, when will we learn it?`\
-https://nytimes.com/2024/11/06/opinion/trump-wins-harris-loses.html
+**Jordan Binnington's leadership on display for Blues in record-chasing career win No. 149**\
+`Binnington offered some words of encouragement for a pair of teammates, and it paid off in a 3-2 victory over Tampa Bay.`\
+https://nytimes.com/athletic/5902199/2024/11/06/jordan-binnington-blues-career-win-149/
 
-**America Makes a Perilous Choice**\
-`How American democracy can endure through a second Trump presidency.`\
-https://nytimes.com/2024/11/06/opinion/trump-wins.html
+**Packers GM Brian Gutekunst explains Preston Smith trade, evaluates Jordan Love**\
+`The Packers traded Smith, the veteran edge rusher, to the Steelers for a 2025 seventh-round pick on Tuesday.`\
+https://nytimes.com/athletic/5902120/2024/11/06/packers-brian-gutekunst-trade-deadline/
 
-**It’s This Man’s, Man’s, Man’s World**\
-`You can’t count him out, sadly.`\
-https://nytimes.com/2024/11/06/opinion/donald-trump-world.html
+**Notebook: Vlasic playing way into 4-Nations consideration, Bedard Q&A**\
+`Vlasic is a long shot for the 4 Nations tournament, but he was on the U.S. roster for the World Championship in the spring.`\
+https://nytimes.com/athletic/5900996/2024/11/06/blackhawks-alex-vlasic-4-nations-face-off/
 
-**This Is Why Trump Won**\
-`A vote for Trump meant a vote to evict a failed leadership class from power.`\
-https://nytimes.com/2024/11/06/opinion/donald-trump-2024-election.html
+**CFB coaches react to first rankings reveal: Who got respect? Who has 'brand love'?**\
+`Coaches weigh in on the first College Football Playoff rankings. How do they view Boise State, BYU, Penn State?`\
+https://nytimes.com/athletic/5902328/2024/11/06/college-football-playoff-reaction-coaches-smu-boise-state/
 
-**JD Vance, Trump’s MAGA Successor, Will Be One of America’s Youngest Vice Presidents**\
-`Mr. Vance’s victory caps his ideological reversal from anti-Trump author to pro-Trump senator.`\
-https://nytimes.com/2024/11/06/us/politics/jd-vance-wins-vp.html
+**Trump Defeats Harris to Retake the Presidency**\
+`Plus, Republicans win control of the Senate.`\
+https://nytimes.com/2024/11/06/podcasts/trump-victory-republican-senate.html
 
-**Trump Wins Wisconsin, Reclaiming Battleground He Won in 2016**\
-`The candidates had fought hard for Wisconsin. In 2020, Joe Biden narrowly won the state.`\
-https://nytimes.com/2024/11/06/us/wisconsin-election-harris-trump.html
+**Trump, Again**\
+`An early-morning conversation about the state of the election and the potential consequences of a second term for Donald J. Trump.`\
+https://nytimes.com/2024/11/06/podcasts/the-daily/trump-election.html
 
-**Donald Trump Returns to Power, Ushering in New Era of Uncertainty**\
-`He played on fears of immigrants and economic worries to defeat Vice President Kamala Harris. His victory signaled the advent of isolationism, sweeping tariffs and score settling.`\
-https://nytimes.com/2024/11/06/us/politics/trump-wins-presidency.html
+**Joel Embiid checks in at No. 41 on The Athletic's 'The Basketball 100': 'Best player we ever coach'**\
+`There was something different about the kid from Yaoundé, who, once he started playing basketball, quickly excelled at the game.`\
+https://nytimes.com/athletic/5888591/2024/11/06/joel-embiid-the-basketball-100-book/
 
