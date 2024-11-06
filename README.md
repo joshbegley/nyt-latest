@@ -1,3 +1,7 @@
+**Early Results Show a Red Shift Across the U.S.**\
+`A Times analysis finds that nearly three-fourths of U.S. counties shifted in favor of Donald J. Trump.`\
+https://nytimes.com/interactive/2024/11/06/us/politics/presidential-election-2024-red-shift.html
+
 **Barrett Flips Key Michigan Seat for G.O.P., Defeating Hertel**\
 `Tom Barrett, a Republican former state senator, has defeated Curtis Hertel, claiming the Lansing-based seat won by Representative Elissa Slotkin, a Democrat, in 2018.`\
 https://nytimes.com/2024/11/06/us/elections/michigan-house-barrett-hertel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902669/2024/11/06/gabriel-bortoleto-sauber-f1-team
 **Arizona Voters Approve Abortion Rights Amendment**\
 `Like those in other states, the Arizona measure essentially establishes abortion protections in the State Constitution as a “fundamental right.”`\
 https://nytimes.com/2024/11/06/us/arizona-abortion-ballot-measure.html
-
-**Helmet Caps**\
-`Should football players embrace the extra protection?`\
-https://nytimes.com/2024/11/06/learning/helmet-caps.html
 
