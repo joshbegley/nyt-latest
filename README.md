@@ -1,3 +1,7 @@
+**How Wild's lost special teams battle proved costly vs. Kings: 3 takeaways**\
+`The Wild's three-game win streak came to an end with a 5-1 loss to the Kings.`\
+https://nytimes.com/athletic/5902025/2024/11/05/wild-kings-takeaways-analysis/
+
 **Schiff Wins Senate Race to Fill the Feinstein Seat in California**\
 `Representative Adam Schiff, a Democrat, defeated Steve Garvey, a Republican and former professional baseball star.`\
 https://nytimes.com/2024/11/05/us/politics/california-senate-schiff-garvey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/new-hampshire-governor-ayotte-craig.h
 **Pat Ryan Holds a Democratic House Swing Seat in New York**\
 `Representative Pat Ryan, a moderate Democrat, had been a top Republican target in his Hudson Valley district.`\
 https://nytimes.com/2024/11/05/nyregion/new-york-house-ryan-esposito.html
-
-**If Harris Loses, What Will Democrats Do?**\
-`By Ross Douthat, Ezra Klein and Aaron Retica`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/if-harris-loses-what-will-democrats-do
 
