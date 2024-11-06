@@ -1,3 +1,7 @@
+**Barrett Flips Key Michigan Seat for G.O.P., Defeating Hertel**\
+`Tom Barrett, a Republican former state senator, has defeated Curtis Hertel, claiming the Lansing-based seat won by Representative Elissa Slotkin, a Democrat, in 2018.`\
+https://nytimes.com/2024/11/06/us/elections/michigan-house-barrett-hertel.html
+
 **TV Networks Prepared for a Long Wait That Didn’t Come**\
 `Anchors were ready to camp out in the studio for days on end. Instead, Donald J. Trump declared victory in the early hours of Wednesday morning.`\
 https://nytimes.com/2024/11/06/business/media/tv-networks-election-night.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/arizona-abortion-ballot-measure.html
 **Helmet Caps**\
 `Should football players embrace the extra protection?`\
 https://nytimes.com/2024/11/06/learning/helmet-caps.html
-
-**Filmmaker’s Private Archive Rekindles Debate Over Her Nazi Ties**\
-`Recent access to Leni Riefenstahl’s estate has prompted new discussions in Germany about her politics and a reconsideration of her photographs of the Nuba people in Sudan.`\
-https://nytimes.com/2024/11/06/movies/leni-riefenstahl-documentary-nuba-photographs.html
 
