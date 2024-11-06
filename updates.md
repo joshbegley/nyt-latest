@@ -1,3 +1,15 @@
+**Kamala Harris to Concede Election to Donald Trump**\
+`Vice President Kamala Harris is slated to speak at 4 p.m. Eastern time from Howard University, according to a campaign official briefed on her plans.`\
+https://nytimes.com/2024/11/06/us/politics/harris-concession-speech-address-time.html
+
+**Jeff Bezos Congratulates Trump on Victory**\
+`Mr. Bezos, who also owns The Washington Post, recently quashed the newspaper’s endorsement of Vice President Kamala Harris.`\
+https://nytimes.com/2024/11/06/business/media/jeff-bezos-trump.html
+
+**Ex-Cub Kyle Hendricks close to signing with Angels**\
+`Hendricks’ composure, knowledge and experience will be assets for the Angels as they try to build up their pitching program.`\
+https://nytimes.com/athletic/5903715/2024/11/06/kyle-hendricks-angels-deal-cubs/
+
 **What Trump’s Victory Says About America**\
 `Readers express fears for the future and speculate about why he won.`\
 https://nytimes.com/2024/11/06/opinion/letters/donald-trump-election-victory.html
