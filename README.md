@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5901768/2024/11/05/maple-leafs-report-cards-special-teams-bruins/
 
 **Stocks in Asia Rise as Election Results Roll In**\
-`Bitcoin reached a record high and the dollar jumped, signs that traders were positioning themselves for a possible win by Donald J. Trump.`\
+`Bitcoin reached a record high and the dollar jumped, signs that traders were positioning themselves for a possible win by Donald Trump.`\
 https://nytimes.com/2024/11/05/business/election-stock-markets.html
 
 **Bitcoin Surges to a Record as Crypto Investors Root for Trump Win**\
