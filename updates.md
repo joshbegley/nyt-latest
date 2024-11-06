@@ -1,3 +1,15 @@
+**How Trump Won, Again**\
+`He made gains in every corner of the country and with nearly every demographic group.`\
+https://nytimes.com/2024/11/06/upshot/trump-election-victory.html
+
+**I Quit the First Trump Administration. Principled People Must Serve in the Second.**\
+`It’s our best hope.`\
+https://nytimes.com/2024/11/06/opinion/resistance-trump-administration.html
+
+**Election night in swing state Michigan? There's a MACtion distraction for that**\
+`The crowd that showed up to watch Central Michigan play Bowling Green was not especially large, but fans were grateful for the distraction.`\
+https://nytimes.com/athletic/5902417/2024/11/06/election-day-mac-college-football-michigan/
+
 **Man City ordered to pay majority of Mendy's unpaid wages after employment tribunal**\
 `Manchester City have been ordered to pay the majority of Benjamin Mendy’s unpaid wages after their former player won an employment tribunal.`\
 https://nytimes.com/athletic/5902812/2024/11/06/benjamin-mendy-manchester-city-court-case/
