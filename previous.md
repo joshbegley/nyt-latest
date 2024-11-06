@@ -1,3 +1,7 @@
+**Voters Reject Efforts to Loosen Drug Laws in Several States**\
+`Measures to legalize marijuana for recreational use failed in Florida and North Dakota. Massachusetts voters declined to allow psychedelics to be legal for therapeutic use.`\
+https://nytimes.com/2024/11/06/us/florida-marijuana-massachusetts-psychedelics.html
+
 **Harris Asked Voters to Protect Democracy. Here’s Why It Didn’t Land.**\
 `In more than 200 interviews, voters worried not about an endangered country, but about paying rent.`\
 https://nytimes.com/2024/11/06/us/politics/harris-voters-democracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904200/2024/11/06/bears-caleb-williams-dj-moore/
 **Special Edition: What a Trump Victory Means**\
 `Plus, what to expect from his foreign policy.`\
 https://nytimes.com/2024/11/06/briefing/trump-victory-foreign-policy.html
-
-**An Emboldened G.O.P. Senate Majority Is Ready to Empower Trump**\
-`With a decisive margin in the Senate, Republicans, who have shown their willingness to accommodate President-elect Donald J. Trump, will have the numbers to overcome divisions over his personnel and policy agenda.`\
-https://nytimes.com/2024/11/06/us/politics/senate-republican-majority.html
 

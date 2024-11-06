@@ -1,3 +1,7 @@
+**Voters Reject Efforts to Loosen Drug Laws in Several States**\
+`Measures to legalize marijuana for recreational use failed in Florida and North Dakota. Massachusetts voters declined to allow psychedelics to be legal for therapeutic use.`\
+https://nytimes.com/2024/11/06/us/florida-marijuana-massachusetts-psychedelics.html
+
 **Harris Asked Voters to Protect Democracy. Here’s Why It Didn’t Land.**\
 `In more than 200 interviews, voters worried not about an endangered country, but about paying rent.`\
 https://nytimes.com/2024/11/06/us/politics/harris-voters-democracy.html
