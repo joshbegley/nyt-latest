@@ -1,3 +1,11 @@
+**Donald Trump Makes Stunning Return to Power**\
+`During this presidential campaign, Donald Trump played on economic worries and fears around immigration to defeat Vice President Kamala Harris. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
+https://nytimes.com/video/us/elections/100000009810421/donald-trump-wins-re-election.html
+
+**WTA Tour Finals: Gauff and Sabalenka first to qualify, Zheng vs. Paolini shootout**\
+`The season-ending event pits the best players on the WTA Tour against each other in Riyadh, Saudi Arabia.`\
+https://nytimes.com/athletic/5882196/2024/11/06/wta-finals-draw-sabalenka-swiatek-gauff-riyadh/
+
 **Control of the House of Representatives remains up for grabs.**\
 `Several key House races were still undecided Wednesday morning after Republicans gained control of the White House and Senate, leaving the fate of the majority unclear.`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/election-house-representatives-democrats-republicans
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5901343/2024/11/06/raiders-predictions-nfl-midseaso
 **The Winners and Losers of Trump 2.0**\
 `Donald Trump’s return to the White House could upend some industries and the economy. But stocks and other assets are soaring on hopes that a new, business-friendly era beckons.`\
 https://nytimes.com/2024/11/06/business/dealbook/winners-losers-trump-musk-crypto.html
-
-**How Trump Won, Again**\
-`He made gains in every corner of the country and with nearly every demographic group.`\
-https://nytimes.com/2024/11/06/upshot/trump-election-victory.html
-
-**I Quit the First Trump Administration. Principled People Must Serve in the Second.**\
-`It’s our best hope.`\
-https://nytimes.com/2024/11/06/opinion/resistance-trump-administration.html
 
