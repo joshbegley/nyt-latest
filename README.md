@@ -1,3 +1,11 @@
+**Why didn't the Giants trade Azeez Ojulari or Darius Slayton before the deadline?**\
+`Giants GM Joe Schoen now faces pressure to re-sign Ojulari and Slayton to avoid letting more homegrown talent walk out the door. `\
+https://nytimes.com/athletic/5902065/2024/11/06/new-york-giants-azeez-ojulari-darius-slayton-nfl-trade-deadline/
+
+**The Pulse: The 12-team CFP's first rankings**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5901005/2024/11/06/college-football-playoff-rankings-12-teams-the-pulse/
+
 **Despite Trump’s unpredictability, Netanyahu sees a more favorable U.S. president.**\
 `There is a belief in Prime Minister Benjamin Netanyahu’s right-wing Israeli government that a Trump administration will allow it to end its wars on favorable terms.`\
 https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/trump-israel-netanyahu
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5901233/2024/11/06/bears-caleb-williams-passing-gam
 **Vikings still content with interior defensive line despite not making deadline trade**\
 `The Vikings — and Aaron Rodgers — recognize the value of Harrison Phillips, Jonathan Bullard and Jerry Tillery on the interior D-line.`\
 https://nytimes.com/athletic/5901476/2024/11/06/vikings-defensive-line-trade-deadline/
-
-**Wheeler's 2025 NHL Draft mailbag: Is Porter Martone overrated? Victor vs. William Eklund?**\
-`Also in the mailbag: How do the top defensemen in the 2025 class compare to the top drafted at the position last year? `\
-https://nytimes.com/athletic/5900790/2024/11/06/2025-nhl-draft-porter-martone-eklund/
-
-**What we’re hearing about the Cubs at GM meetings: Starting pitching, catching and more**\
-`Can the Cubs swing a Scott Boras client for the rotation? What are there plans behind the plate?`\
-https://nytimes.com/athletic/5902384/2024/11/06/cubs-gm-meetings-offseason-targets/
 
