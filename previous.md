@@ -1,3 +1,11 @@
+**On Election Day, He Headed to the Capitol With a Manifesto and a Torch**\
+`A Michigan man tried to enter the Capitol Visitor Center on Tuesday with a letter for Congress expressing his discontent with the government’s response to the war in Gaza.`\
+https://nytimes.com/2024/11/06/us/election-day-capitol-washington-austin-olson.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears have lost two games in a row in disheartening fashion. Can they right the ship against the Patriots? What's on your mind?`\
+https://nytimes.com/athletic/5904065/2024/11/06/bears-mailbag-questions-38/
+
 **Otherworldly Images of Postwar Japan**\
 `Working with a group of talented collaborators, Eikoh Hosoe redefined what it meant to be a photographer.`\
 https://nytimes.com/2024/11/06/arts/eikoh-hosoe-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/style/tiny-modern-love-stories-when-two-fantasies
 **Trump’s Win Unfolded on TV as a Muted Reboot**\
 `Election night on 2024 played like an enervated replay of 2016. Was it a harbinger of how the culture will respond to a second Trump term?`\
 https://nytimes.com/2024/11/06/arts/television/donald-trump-election-tv-news.html
-
-**Barbra Banda: The softly-spoken Zambian goal scorer making noise with Orlando Pride**\
-`The striker has proved prolific since moving to the NWSL from Shanghai Shengli, but her journey to this level has not been straightforward`\
-https://nytimes.com/athletic/5902277/2024/11/06/barbra-banda-the-softly-spoken-zambian-goal-scorer-making-noise-with-orlando-pride/
-
-**Starvation Death of 1-Month-Old on Staten Island Is Ruled a Homicide**\
-`The baby, Joseph Heben Jr., died of malnutrition in July. The police reclassified the case this week.`\
-https://nytimes.com/2024/11/06/nyregion/staten-island-infant-death-homicide.html
 
