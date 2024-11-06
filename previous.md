@@ -1,3 +1,7 @@
+**Vindman Wins Virginia House Race, Keeping a Key Seat in Democratic Hands**\
+`Yevgeny Vindman is a former Army lieutenant colonel who was fired by the Trump administration for joining his twin brother as a whistle-blower in the first impeachment of President Donald J. Trump.`\
+https://nytimes.com/2024/11/06/us/elections/virginia-house-vindman-anderson.html
+
 **Hurricane Rafael Delivers Another Blow to Cuba**\
 `The storm’s winds knocked out power across the island before moving ashore as a powerful Category 3 storm.`\
 https://nytimes.com/2024/11/06/weather/hurricane-rafael-cuba.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904532/2024/11/06/kai-havertz-head-injury-merino-a
 **How Harris’s Loss Could Haunt Biden’s Legacy**\
 `In the wake of Donald J. Trump’s resounding victory, many Democrats are casting President Biden as a one-term president who set his party on a path to failure in 2024.`\
 https://nytimes.com/2024/11/06/us/politics/harris-biden-legacy.html
-
-**It’s ‘Trump’s America’**\
-`We take a look at how Trump won, and what’s next. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/11/06/briefing/harris-concession-trump-agenda-second-term.html
 

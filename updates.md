@@ -1,3 +1,7 @@
+**Vindman Wins Virginia House Race, Keeping a Key Seat in Democratic Hands**\
+`Yevgeny Vindman is a former Army lieutenant colonel who was fired by the Trump administration for joining his twin brother as a whistle-blower in the first impeachment of President Donald J. Trump.`\
+https://nytimes.com/2024/11/06/us/elections/virginia-house-vindman-anderson.html
+
 **Hurricane Rafael Delivers Another Blow to Cuba**\
 `The storm’s winds knocked out power across the island before moving ashore as a powerful Category 3 storm.`\
 https://nytimes.com/2024/11/06/weather/hurricane-rafael-cuba.html
