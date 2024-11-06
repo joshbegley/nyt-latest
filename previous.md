@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/06/briefing/how-are-you-approaching-a-second-trump-p
 https://nytimes.com/2024/11/06/climate/trump-climate-change-paris-cop29.html
 
 **'Holy Grail' Wayne Gretzky rookie card case going back to auction**\
-`After the original auction winner failed to pay, the coveted case of hockey cards is going back on sale`\
+`After the original auction winner failed to pay, the coveted case of hockey cards is going back on sale.`\
 https://nytimes.com/athletic/5903800/2024/11/06/wayne-gretzky-rookie-cards-auction/
 
 **The world is preparing for Trump’s return.**\

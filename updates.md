@@ -1,3 +1,7 @@
+**'Holy Grail' Wayne Gretzky rookie card case going back to auction**\
+`After the original auction winner failed to pay, the coveted case of hockey cards is going back on sale.`\
+https://nytimes.com/athletic/5903800/2024/11/06/wayne-gretzky-rookie-cards-auction/
+
 **Geoff Capes, World’s Strongest Man and Champion Bird Breeder, Dies at 75**\
 `He pulled dump trucks, flipped cars and tossed five-pound bricks as if they were Kleenex boxes. Tending to parakeets brought out his gentler side.`\
 https://nytimes.com/2024/11/06/world/europe/geoff-capes-dead.html
