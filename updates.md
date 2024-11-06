@@ -1,3 +1,7 @@
+**Donald Trump Declares Victory and Thanks Supporters**\
+`He said his campaign had “achieved the most incredible political thing,” as news outlets put him on the verge of reclaiming the White House.`\
+https://nytimes.com/2024/11/06/us/politics/trump-victory-speech.html
+
 **Yankees' Brian Cashman on club's sloppiness: 'We played poorly in the World Series'**\
 `Said Cashman: "I think we underperformed more so than '(we were) lucky to get into the World Series, and how did we even get there?'"`\
 https://nytimes.com/athletic/5901598/2024/11/06/yankees-brian-cashman-sloppiness-world-series/
