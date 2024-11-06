@@ -1,3 +1,11 @@
+**Five Raiders predictions at midseason: Antonio Pierce will earn a second season**\
+`The Raiders won't spend the second half of the season tanking, but we foresee them ending up with a top-five pick in the 2025 NFL Draft.`\
+https://nytimes.com/athletic/5901343/2024/11/06/raiders-predictions-nfl-midseason-2024/
+
+**The Winners and Losers of Trump 2.0**\
+`Donald Trump’s return to the White House could upend some industries and the economy. But stocks and other assets are soaring on hopes that a new, business-friendly era beckons.`\
+https://nytimes.com/2024/11/06/business/dealbook/winners-losers-trump-musk-crypto.html
+
 **Blue Jackets fall in OT to San Jose's Alex Wennberg, who is still on Columbus' payroll**\
 `The Blue Jackets bought out Wennberg's contract after the 2019-20 season.`\
 https://nytimes.com/athletic/5902806/2024/11/06/blue-jackets-sharks-loss-wennberg-contract/
