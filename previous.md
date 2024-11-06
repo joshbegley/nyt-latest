@@ -1,13 +1,5 @@
-**How the Yankees should interpret Scott Boras' free-agent pitch for Juan Soto**\
-`“You have the Mona Lisa of the museum,” Boras said Wednesday about Soto. “You have the attraction."`\
-https://nytimes.com/athletic/5903772/2024/11/06/yankees-juan-soto-scott-boras-free-agency/
-
-**Zelensky urges Trump to help defend Ukraine against Russia.**\
-`By Edward Wong`\
-https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/zelensky-urges-trump-to-help-defend-ukraine-against-russia
-
-**Cole Leinart, son of former USC star, commits to SMU**\
-`The son of the former Heisman Trophy winner landed an offer from SMU this week. He quickly accepted. `\
+**Cole Leinart, son of former USC star Matt Leinart, commits to SMU**\
+`The Class of 2026 QB prospect landed an offer from SMU this week. He quickly accepted. `\
 https://nytimes.com/athletic/5904255/2024/11/06/recruiting-smu-cole-leinart-matt-smu/
 
 **Trump’s Newest Economic Sherpas Are Not Like His Old Ones**\
@@ -37,4 +29,12 @@ https://nytimes.com/2024/11/06/us/politics/why-does-it-take-so-long-to-call-the-
 **My Manifesto for Despairing Democrats**\
 `Here’s how to be a watchdog, not a lapdog, for the next four tumultuous years, while holding on to your sanity.`\
 https://nytimes.com/2024/11/06/opinion/trump-democrats-loss.html
+
+**Germany’s Coalition Collapses, Leaving the Government Teetering**\
+`After months of disputes, Chancellor Olaf Scholz ousted one of his governing partners, adding to the challenges for Europe since Donald Trump’s election.`\
+https://nytimes.com/2024/11/06/world/europe/germany-coalition-collapse-government.html
+
+**Parents of Harlem Boy Who Starved to Death Are Charged With Murder**\
+`The parents of Jahmeik Modlin, 4, were initially charged with manslaughter. They are accused of locking away food from their children and showing “depraved indifference” for their son’s life.`\
+https://nytimes.com/2024/11/06/nyregion/jahmeik-modlin-starve-death.html
 
