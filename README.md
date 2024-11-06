@@ -1,3 +1,7 @@
+**Elon Musk Helped Elect Trump. What Does He Expect in Return?**\
+`The world’s richest man gave his money and time in campaigning for the president-elect and now is putting in his requests for a friendlier regulatory environment.`\
+https://nytimes.com/2024/11/06/us/politics/elon-musk-trump-benefits.html
+
 **Harris Shows Trump How to Concede**\
 `Even if only one candidate is gracious enough to do it.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/harris-concession-democracy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/business/trump-economic-advisers.html
 **Travis Kelce says Jason was 'defending' family in phone-smashing incident**\
 `Jason Kelce previously addressed the incident on ESPN’s "Monday Night Countdown," saying he was "not proud of it."`\
 https://nytimes.com/athletic/5904078/2024/11/06/travis-kelce-jason-phone-incident/
-
-**Caleb Williams and DJ Moore need to get on the same page, plus more Bears fallout**\
-`The Bears have a lot to sort through after back-to-back losses, including another team meeting and more injuries`\
-https://nytimes.com/athletic/5904200/2024/11/06/bears-caleb-williams-dj-moore/
 
