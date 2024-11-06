@@ -1,3 +1,11 @@
+**Travis Kelce says Jason was 'defending' family in phone-smashing incident**\
+`Jason Kelce previously addressed the incident on ESPN’s "Monday Night Countdown," saying he was "not proud of it."`\
+https://nytimes.com/athletic/5904078/2024/11/06/travis-kelce-jason-phone-incident/
+
+**Caleb Williams and DJ Moore need to get on the same page, plus more Bears fallout**\
+`The Bears have a lot to sort through after back-to-back losses, including another team meeting and more injuries`\
+https://nytimes.com/athletic/5904200/2024/11/06/bears-caleb-williams-dj-moore/
+
 **Special Edition: What a Trump Victory Means**\
 `Plus, what to expect from his foreign policy.`\
 https://nytimes.com/2024/11/06/briefing/trump-victory-foreign-policy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-r
 **California Wildfires Prompt Evacuations and Shelter-in-Place Warnings**\
 `Firefighters battled strong winds and dangerous weather conditions in Southern California on Wednesday in an attempt to control two wildfires in the region.`\
 https://nytimes.com/video/us/100000009812041/california-wildfires.html
-
-**Baylor president wants Power 4 leaders to hear from super league groups**\
-`Baylor president and Big 12 board chairwoman Linda Livingstone has sent a letter to university leaders in the ACC, Big Ten and SEC, inviting them to a summit in early December, where they can hear directly from groups pitching potential new models for college football.`\
-https://nytimes.com/athletic/5904123/2024/11/06/baylor-president-college-football-super-leagues/
-
-**Jack Smith Assesses How to Wind Down Trump’s Federal Cases, Official Says**\
-`The decision is in keeping with a longstanding Justice Department policy that bars prosecution of sitting presidents.`\
-https://nytimes.com/2024/11/06/us/politics/doj-trump-federal-cases.html
 
