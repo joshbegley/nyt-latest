@@ -1,3 +1,15 @@
+**Maple Leafs report cards: Special teams breakthrough ends losing streak**\
+`The power play finally roared back to life as the Leafs scored three of their four goals with the man advantage.`\
+https://nytimes.com/athletic/5901768/2024/11/05/maple-leafs-report-cards-special-teams-bruins/
+
+**Stocks in Asia Rise as Election Results Roll In**\
+`Bitcoin reached a record high and the dollar jumped, signs that traders were positioning themselves for a possible win by Donald Trump.`\
+https://nytimes.com/2024/11/05/business/election-stock-markets.html
+
+**Bitcoin Surges to a Record as Crypto Investors Root for Trump Win**\
+`Bitcoin’s price went above $75,000, breaking the record that the digital currency set in March.`\
+https://nytimes.com/2024/11/05/technology/bitcoin-election-trump.html
+
 **Deadly Floodwaters Inundate Missouri**\
 `Intense storms brought tornadoes and flash floods that killed two poll workers when their vehicle was swept off a road.`\
 https://nytimes.com/video/us/100000009810204/missouri-flooding-emergency.html
