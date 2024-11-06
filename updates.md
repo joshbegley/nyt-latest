@@ -1,3 +1,7 @@
+**Jack Smith Assesses How to Wind Down Trump’s Federal Cases, Official Says**\
+`The decision is in keeping with a longstanding Justice Department policy that bars prosecution of sitting presidents.`\
+https://nytimes.com/2024/11/06/us/politics/doj-trump-federal-cases.html
+
 **Parents of Harlem Boy Who Starved to Death Are Charged With Murder**\
 `The parents of Jahmeik Modlin, 4, were initially charged with manslaughter. They are accused of locking away food from their children and showing “depraved indifference” for their son’s life.`\
 https://nytimes.com/2024/11/06/nyregion/jahmeik-modlin-starve-death.html
