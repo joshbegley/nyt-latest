@@ -1,3 +1,7 @@
+**Arizona Voters Approve Abortion Rights Amendment**\
+`Like those in other states, the Arizona measure essentially establishes abortion protections in the State Constitution as a “fundamental right.”`\
+https://nytimes.com/2024/11/06/us/arizona-abortion-ballot-measure.html
+
 **Helmet Caps**\
 `Should football players embrace the extra protection?`\
 https://nytimes.com/2024/11/06/learning/helmet-caps.html
