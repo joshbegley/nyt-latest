@@ -1,3 +1,23 @@
+**Why Are Democrats Losing Support?**\
+`By Ross Douthat and Ezra Klein`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-democrats-losing-support
+
+**Aldridge: Joel Embiid's 3-game suspension was just, but the NBA still has a problem to solve**\
+`There's a still-smoldering dichotomy between the NBA and its teams when it comes to marquee players missing big games.`\
+https://nytimes.com/athletic/5901515/2024/11/05/joel-embiid-suspension-nba/
+
+**N.Y. Democrats Flip First House Seat in the Country**\
+`State Senator John Mannion beat the incumbent, Representative Brandon Williams, in central New York, in a crucial win in the battle for the House.`\
+https://nytimes.com/2024/11/05/nyregion/new-york-house-mannion-williams.html
+
+**Trump Wins North Carolina, a Critical Battleground State for Republicans**\
+`The state has now gone to Donald J. Trump in all three of his presidential bids, underscoring his political strength there.`\
+https://nytimes.com/2024/11/05/us/politics/north-carolina-election-harris-trump.html
+
+**Japan’s Favorite Snowy Mountain Finally Has Some Snow**\
+`Mount Fuji, the country’s tallest summit, is revered for its snowy peak. A snowfall reported on Wednesday ended its longest snowless period in 130 years.`\
+https://nytimes.com/2024/11/05/world/asia/mount-fuji-snow.html
+
 **How Wild's lost special teams battle proved costly vs. Kings: 3 takeaways**\
 `The Wild's three-game win streak came to an end with a 5-1 loss to the Kings.`\
 https://nytimes.com/athletic/5902025/2024/11/05/wild-kings-takeaways-analysis/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5901768/2024/11/05/maple-leafs-report-cards-special
 **Stocks in Asia Rise as Election Results Roll In**\
 `Bitcoin reached a record high and the dollar jumped, signs that traders were positioning themselves for a possible win by Donald Trump.`\
 https://nytimes.com/2024/11/05/business/election-stock-markets.html
-
-**Bitcoin Surges to a Record as Crypto Investors Root for Trump Win**\
-`Bitcoin’s price went above $75,000, breaking the record that the digital currency set in March.`\
-https://nytimes.com/2024/11/05/technology/bitcoin-election-trump.html
-
-**Deadly Floodwaters Inundate Missouri**\
-`Intense storms brought tornadoes and flash floods that killed two poll workers when their vehicle was swept off a road.`\
-https://nytimes.com/video/us/100000009810204/missouri-flooding-emergency.html
-
-**Kamala Harris Should Have Gone on Joe Rogan’s Show**\
-`By Ross Douthat, Ezra Klein and Aaron Retica`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/kamala-harris-should-have-gone-on-joe-rogans-show
-
-**Kelly Ayotte, a Republican, Is Elected Governor of New Hampshire**\
-`Ms. Ayotte entered the race with greater name recognition than the Democrat, Joyce Craig, and was seen as a natural successor to Gov. Chris Sununu, a moderate Republican.`\
-https://nytimes.com/2024/11/05/us/politics/new-hampshire-governor-ayotte-craig.html
-
-**Pat Ryan Holds a Democratic House Swing Seat in New York**\
-`Representative Pat Ryan, a moderate Democrat, had been a top Republican target in his Hudson Valley district.`\
-https://nytimes.com/2024/11/05/nyregion/new-york-house-ryan-esposito.html
 
