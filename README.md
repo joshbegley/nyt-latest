@@ -1,3 +1,15 @@
+**Otherworldly Images of Postwar Japan**\
+`Working with a group of talented collaborators, Eikoh Hosoe redefined what it meant to be a photographer.`\
+https://nytimes.com/2024/11/06/arts/eikoh-hosoe-photos.html
+
+**R.F.K. Jr. Lays Out Possible Public Health Changes Under Trump**\
+`Mr. Kennedy, an environmental lawyer who has no medical or public health degrees, has promoted anti-vaccine conspiracies for years.`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/rfk-jr-trump-health
+
+**Eikoh Hosoe, Photographer Who Elevated the Avant-Garde, Dies at 91**\
+`He pioneered a surrealistic narrative style in collaborations with dancers, artists and the author Yukio Mishima, with whom he created startling erotic tableaus.`\
+https://nytimes.com/2024/11/06/arts/eikoh-hosoe-dead.html
+
 **Arsenal liaising with UEFA over men's and women's fixture clash: How did this happen?**\
 `Arsenal are looking into solutions to resolve a scheduling issue that has seen their men’s and women’s teams slated to play at Emirates Stadium on the same night.`\
 https://nytimes.com/athletic/5903863/2024/11/06/arsenal-carabao-cup-womens-champions-league/
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/5902277/2024/11/06/barbra-banda-the-softly-spoken-z
 **Starvation Death of 1-Month-Old on Staten Island Is Ruled a Homicide**\
 `The baby, Joseph Heben Jr., died of malnutrition in July. The police reclassified the case this week.`\
 https://nytimes.com/2024/11/06/nyregion/staten-island-infant-death-homicide.html
-
-**When Will Donald Trump Take Office?**\
-`After his election victory, he will enter a two-month transition period as president-elect before being inaugurated on Jan. 20.`\
-https://nytimes.com/2024/11/06/us/politics/trump-white-house-timeline.html
-
-**A California Ballot Measure to Ban Forced Prison Labor Is Failing**\
-`Voters appear to be rejecting Proposition 6 in California, a measure to end involuntary servitude as a punishment for crime.`\
-https://nytimes.com/2024/11/06/us/politics/california-prop-6-measure-forced-prison-labor.html
 
