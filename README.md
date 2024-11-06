@@ -1,3 +1,7 @@
+**Trump Has History of Strong Support for Israel**\
+`Donald Trump staunchly supported Israel during his first term as president, even when that meant reversing decades of American policy.`\
+https://nytimes.com/2024/11/06/world/middleeast/trump-israel-policy.html
+
 **All WSL and Championship matches to be held at main stadia for first time**\
 `Every match across the top two tiers of English women’s football will be played at the home side’s main stadium for the first time on the weekend of November 16-17.`\
 https://nytimes.com/athletic/5903128/2024/11/06/wsl-championship-stadium-fixtures/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5903174/2024/11/06/penguins-today-blown-leads/
 **Ohio Voters Reject Ban on Partisan Gerrymanders**\
 `The issue was perhaps the most closely watched among the many democracy-related ballot measures in the country.`\
 https://nytimes.com/2024/11/06/us/ohio-gerrymander-ballot-issue.html
-
-**Trump, Again**\
-`In the early hours of Wednesday morning, Donald J. Trump was elected president for a second time. Shortly before that call was made, the Times journalists Michael Barbaro, Nate Cohn, Lisa Lerer and Astead W. Herndon sat down to discuss the state of the election.`\
-https://nytimes.com/video/podcasts/the-daily/100000009802784/election-results-trump-harris.html
 
