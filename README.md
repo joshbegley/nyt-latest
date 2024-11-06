@@ -1,3 +1,7 @@
+**Real Madrid's Tchouameni faces up to six weeks out with foot injury**\
+`Real Madrid midfielder Aurelien Tchouameni is set to miss between four and six weeks with a sprained ankle.`\
+https://nytimes.com/athletic/5902990/2024/11/06/aurelien-tchouameni-injury-update-real-madrid/
+
 **Amorim gives United hope with City win, Spurs' reason to be cheerful, crisis at Real Madrid?**\
 `Today in TAFC: Amorim's win over City gives Manchester United hope - and are Real Madrid in crisis? Plus: Why Spurs may be trending upwards`\
 https://nytimes.com/athletic/5902853/2024/11/06/amorim-united-city-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/opinion/resistance-trump-administration.html
 **Man City ordered to pay majority of Mendy's unpaid wages after employment tribunal**\
 `Manchester City have been ordered to pay the majority of Benjamin Mendy’s unpaid wages after their former player won an employment tribunal.`\
 https://nytimes.com/athletic/5902812/2024/11/06/benjamin-mendy-manchester-city-court-case/
-
-**Election night in swing state Michigan? There's a MACtion distraction for that**\
-`The crowd that showed up to watch Central Michigan play Bowling Green was not especially large, but fans were grateful for the distraction.`\
-https://nytimes.com/athletic/5902417/2024/11/06/election-day-mac-college-football-michigan/
 
