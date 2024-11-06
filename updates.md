@@ -1,3 +1,7 @@
+**Geoff Capes, World’s Strongest Man and Champion Bird Breeder, Dies at 75**\
+`He pulled dump trucks, flipped cars and tossed five-pound bricks as if they were Kleenex boxes. Tending to parakeets brought out his gentler side.`\
+https://nytimes.com/2024/11/06/world/europe/geoff-capes-dead.html
+
 **How Are You Approaching a Second Trump Presidency?**\
 `After Trump’s big win, we would like to know how you’re feeling.`\
 https://nytimes.com/2024/11/06/briefing/how-are-you-approaching-a-second-trump-presidency.html

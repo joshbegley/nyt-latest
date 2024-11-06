@@ -1,3 +1,7 @@
+**Geoff Capes, World’s Strongest Man and Champion Bird Breeder, Dies at 75**\
+`He pulled dump trucks, flipped cars and tossed five-pound bricks as if they were Kleenex boxes. Tending to parakeets brought out his gentler side.`\
+https://nytimes.com/2024/11/06/world/europe/geoff-capes-dead.html
+
 **How Are You Approaching a Second Trump Presidency?**\
 `After Trump’s big win, we would like to know how you’re feeling.`\
 https://nytimes.com/2024/11/06/briefing/how-are-you-approaching-a-second-trump-presidency.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/climate/trump-climate-change.html
 **What’s in Our Queue? John Coltrane and More**\
 `By Dwight Garner`\
 https://nytimes.com/card/2024/11/06/arts/editors-recommendations-johncoltrane
-
-**Ride-Hailing Drivers in Massachusetts Win Right to Unionize**\
-`A state ballot measure was the first of its kind in the United States, but labor advocates worry it could lock Uber and Lyft drivers out of full-time employment status.`\
-https://nytimes.com/2024/11/06/technology/uber-lyft-drivers-unionize-massachusetts.html
 
