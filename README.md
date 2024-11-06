@@ -1,3 +1,11 @@
+**Deadly Floodwaters Inundate Missouri**\
+`Intense storms brought tornadoes and flash floods that killed two poll workers when their vehicle was swept off a road.`\
+https://nytimes.com/video/us/100000009810204/missouri-flooding-emergency.html
+
+**Kamala Harris Should Have Gone on Joe Rogan’s Show**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/kamala-harris-should-have-gone-on-joe-rogans-show
+
 **Kelly Ayotte, a Republican, Is Elected Governor of New Hampshire**\
 `Ms. Ayotte entered the race with greater name recognition than the Democrat, Joyce Craig, and was seen as a natural successor to Gov. Chris Sununu, a moderate Republican.`\
 https://nytimes.com/2024/11/05/us/politics/new-hampshire-governor-ayotte-craig.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/tru
 **Protests Erupt in Tel Aviv After Netanyahu Fires Gallant**\
 `Crowds lit bonfires and blocked traffic on a major highway after the Israeli prime minister sacked the defense minister, citing “gaps” between their views on handling the war in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009810057/netanyahu-fires-gallant-tel-aviv.html
-
-**Gov. Greg Gianforte of Montana Handily Wins Re-election**\
-`The Republican incumbent fended off a challenge from Ryan Busse. Democrats held the Montana governorship for 16 years, until Mr. Gianforte’s first election in 2020.`\
-https://nytimes.com/2024/11/05/us/politics/montana-governor-gianfort-busse.html
-
-**Alsobrooks Defeats Hogan in Maryland, Keeping a Blue-State Senate Seat**\
-`The Prince George’s County executive will be the first Black woman to represent Maryland in the Senate. Her race against former Gov. Larry Hogan was the most competitive in decades in the deep-blue state.`\
-https://nytimes.com/2024/11/05/us/elections/maryland-senate-hogan-alsobrooks.html
 
