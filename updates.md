@@ -1,4 +1,8 @@
 **Democrats Flip a Critical House Seat in New York, Toppling Molinaro**\
+`Josh Riley defeated the Republican incumbent, Representative Marc Molinaro. It was the second House seat flipped in New York by Democrats.`\
+https://nytimes.com/2024/11/06/nyregion/new-york-house-molinaro-riley.html
+
+**Democrats Flip a Critical House Seat in New York, Toppling Molinaro**\
 `Josh Riley defeated the Republican incumbent, Representative Marc Molinaro, the second House seat flipped in New York by Democrats.`\
 https://nytimes.com/2024/11/06/nyregion/new-york-house-molinaro-riley.html
 
