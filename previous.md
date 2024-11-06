@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5901389/2024/11/05/penn-state-college-football-play
 https://nytimes.com/athletic/5901994/2024/11/05/college-football-playoff-rankings-georgia-sec/
 
 **Alex Bregman is the Astros' 'biggest priority.' Can Dana Brown seal the deal?**\
-`Said GM Dana Brown, "I’m going into this offseason with the thought that we’re going to get Bregman back."`\
+`Said Brown, "I'm going into this offseason with the thought that we're going to get Bregman back."`\
 https://nytimes.com/athletic/5901990/2024/11/05/astros-alex-bregman-priority-free-agency/
 
 **Elon Musk Is in a Category All His Own**\

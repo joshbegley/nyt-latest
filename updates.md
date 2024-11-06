@@ -1,3 +1,7 @@
+**Alex Bregman is the Astros' 'biggest priority.' Can Dana Brown seal the deal?**\
+`Said Brown, "I'm going into this offseason with the thought that we're going to get Bregman back."`\
+https://nytimes.com/athletic/5901990/2024/11/05/astros-alex-bregman-priority-free-agency/
+
 **Trump Team Revokes Election Party Access for Some Journalists**\
 `A reporter for Puck and other journalists were barred after critical coverage of the campaign.`\
 https://nytimes.com/2024/11/05/business/media/trump-election-party-access-journalists.html
