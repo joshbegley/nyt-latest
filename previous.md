@@ -1,3 +1,7 @@
+**With Political Victory, Trump Fights Off Legal Charges**\
+`By triumphing at the ballot box, Donald Trump can dispense with federal charges against him while postponing or derailing other pending cases that have dogged him.`\
+https://nytimes.com/2024/11/06/us/politics/trump-legal-cases-winning.html
+
 **Corrections: Nov. 6, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 6, 2024.`\
 https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-6-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902806/2024/11/06/blue-jackets-sharks-loss-wennber
 **A Party of Prigs and Pontificators Suffers a Humiliating Defeat**\
 `Democrats may feel righteous, but how’s that ever going to be a winning electoral look?`\
 https://nytimes.com/2024/11/06/opinion/donald-trump-defeat-democrats.html
-
-**Donald Trump Makes Stunning Return to Power**\
-`During this presidential campaign, Donald Trump played on economic worries and fears around immigration to defeat Vice President Kamala Harris. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
-https://nytimes.com/video/us/elections/100000009810421/donald-trump-wins-re-election.html
 
