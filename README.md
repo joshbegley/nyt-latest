@@ -1,3 +1,7 @@
+**New Yorkers Pass an Equal Rights Amendment Tied to Abortion Access**\
+`Proposition 1 was aggressively opposed by Republicans, who tried to cast it as an attack on girls’ sports and a giveaway to migrants.`\
+https://nytimes.com/2024/11/05/nyregion/new-york-proposition-1-abortion.html
+
 **Joe Biden Put Democrats in a Tough Spot**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/joe-biden-put-democrats-in-a-tough-spot
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902015/2024/11/05/mlb-gm-meetings-bobby-witt-willy
 **Flooding in Missouri Kills at Least 4, Including 2 Poll Workers**\
 `The governor activated emergency operations procedures after the deaths on Tuesday after days of heavy rainfall, flash flooding and tornadoes.`\
 https://nytimes.com/2024/11/05/us/missouri-flooding-emergency.html
-
-**College Football Playoff committee got BYU — a team with a top-5 resume — all wrong**\
-`Kalani Sitake’s Cougars are 8-0 and have one of the best wins in the field — at SMU — yet are No. 9 in the initial rankings.`\
-https://nytimes.com/athletic/5902052/2024/11/05/college-football-playoff-rankings-byu/
 
