@@ -1,3 +1,7 @@
+**A look at the battlefield after Yoav Gallant was ousted as Israel’s defense minister.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/a-look-at-the-battlefield-after-yoav-gallant-was-ousted-as-israels-defense-minister
+
 **‘Trump’s America’: Comeback Victory Signals a Different Kind of Country**\
 `In the end, Donald J. Trump is not the historical aberration some thought he was, but instead a transformational force reshaping the modern United States in his own image.`\
 https://nytimes.com/2024/11/06/us/politics/trump-america-election-victory.html
