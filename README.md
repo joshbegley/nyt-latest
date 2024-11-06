@@ -1,3 +1,11 @@
+**The world is preparing for Trump’s return.**\
+`By Damien Cave and Catherine Porter`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/the-world-is-preparing-for-trumps-return
+
+**City goalkeeper Ortega set for first Germany call-up**\
+`Manchester City goalkeeper Stefan Ortega is set to be called up by Germany for the first time.`\
+https://nytimes.com/athletic/5903816/2024/11/06/stefan-ortega-germany-squad-man-city/
+
 **Neymar to miss four to six weeks with hamstring injury**\
 `Neymar is set to miss the next four to six weeks with a hamstring injury, his club Al Hilal have confirmed.`\
 https://nytimes.com/athletic/5903796/2024/11/06/neymar-injury-hamstring-update/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/thepoint/trump-voters-crude-laughter
 **A Simple Roast Chicken**\
 `My favorite recipe is uncomplicated and flexible, calling for only salt, pepper and whatever herbs you like.`\
 https://nytimes.com/2024/11/06/dining/a-simple-roast-chicken.html
-
-**How Ballot Measures Will Change Abortion Access**\
-`Ballot measures that passed on Tuesday will lift abortion bans in two states and expand access in others. Defeated measures in three states mean their abortion restrictions will remain in place.`\
-https://nytimes.com/interactive/2024/11/06/us/elections/abortion-ballot-results-laws-election.html
-
-**How Harris Lost Will Be Her Legacy**\
-`Her loss is a sign that the age of identity politics is not over.`\
-https://nytimes.com/2024/11/06/opinion/why-kamala-harris-lost.html
 
