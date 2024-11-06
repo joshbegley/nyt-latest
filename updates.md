@@ -1,3 +1,11 @@
+**Tesla’s Stock Jumps After Trump’s Victory**\
+`Investors believe that the electric car company led by Elon Musk will benefit from his support of the president-elect.`\
+https://nytimes.com/2024/11/06/business/tesla-stock-elon-musk-trump.html
+
+**Guillory: The Pelicans need to provide reasons to keep believing after ugly start**\
+`An avalanche of injuries has thrown the season into peril, but where is the leadership in New Orleans?`\
+https://nytimes.com/athletic/5902802/2024/11/06/pelicans-zion-williamson-injuries/
+
 **Wolves owners buy back minority stake from US investment firm**\
 `Wolverhampton Wanderers owners Fosun has bought back a minority stake in its subsidiary, Fosun Sports, from US-based investment firm PEAK6.`\
 https://nytimes.com/athletic/5903216/2024/11/06/wolves-owners-fosun-minority-stake/
