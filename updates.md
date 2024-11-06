@@ -1,3 +1,7 @@
+**Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
+`Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
+https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
+
 **A county elections office in Arizona is evacuated after a bomb threat.**\
 `The threat, one of at least six received in Arizona today, is likely to slow ballot counting in La Paz County.`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/a-county-elections-office-in-arizona-is-evacuated-after-a-bomb-threat

@@ -1,7 +1,3 @@
-**A county elections office in Arizona is evacuated after a bomb threat.**\
-`The threat, one of at least six received in Arizona today, is likely to slow ballot counting in La Paz County.`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/a-county-elections-office-in-arizona-is-evacuated-after-a-bomb-threat
-
 **Technical problems slow Navajo voting in Arizona.**\
 `Printer problems in heavily Democratic Apache County led to long lines and discouraged voters, according to tribal officials.`\
 https://nytimes.com/live/2024/11/05/us/trump-harris-election/technical-problems-slow-navajo-voting-in-arizona
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/05/us/politics/election-day-photos-polls-harris-trum
 **Why Exit Polls Are Misleading**\
 `Exit polls don’t have a very good track record, and they can contribute to misleading narratives on election night.`\
 https://nytimes.com/2024/11/05/us/politics/exit-polls-election.html
+
+**Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
+`Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
+https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
 
