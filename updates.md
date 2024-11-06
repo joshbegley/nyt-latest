@@ -1,3 +1,7 @@
+**What’s at Stake for Mexico in a Second Trump Presidency?**\
+`Tariffs, border crossings, mass deportations of migrants and military strikes on cartels: Mexico is in the firing line of the president-elect.`\
+https://nytimes.com/2024/11/06/world/americas/trump-victory-mexico-immigration.html
+
 **She Was Undecided Until Election Day. Who Did She Choose?**\
 `The New York Times followed a Pennsylvania voter throughout the campaign. She disliked both candidates, and struggled with her decision until the very end.`\
 https://nytimes.com/2024/11/06/us/undecided-voter-pennsylvania.html

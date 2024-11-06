@@ -1,3 +1,7 @@
+**What’s at Stake for Mexico in a Second Trump Presidency?**\
+`Tariffs, border crossings, mass deportations of migrants and military strikes on cartels: Mexico is in the firing line of the president-elect.`\
+https://nytimes.com/2024/11/06/world/americas/trump-victory-mexico-immigration.html
+
 **She Was Undecided Until Election Day. Who Did She Choose?**\
 `The New York Times followed a Pennsylvania voter throughout the campaign. She disliked both candidates, and struggled with her decision until the very end.`\
 https://nytimes.com/2024/11/06/us/undecided-voter-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/the-daily/100000009811010/trump-election-resu
 **Canucks stock watch: Who’s trending up, who’s trending down after 11 games?**\
 `A look at which Canucks players have improved their stock with stellar performances and who's trending in the wrong direction.`\
 https://nytimes.com/athletic/5902375/2024/11/06/canucks-stock-watch-players-analysis/
-
-**Penguins Today: Another awful rerun has us looking ahead**\
-`The Penguins seem to be headed down an undesireable path: not good enough for the playoffs but not bad enough for the draft lottery.`\
-https://nytimes.com/athletic/5903174/2024/11/06/penguins-today-blown-leads/
 
