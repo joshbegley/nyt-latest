@@ -1,3 +1,15 @@
+**California Might Have to Wait Weeks for House Battleground Results**\
+`Some battleground contests may not be called for weeks because of the state’s voter-friendly laws and reliance on mail-in ballots.`\
+https://nytimes.com/2024/11/05/us/politics/california-election-vote-count.html
+
+**North Korea Enters Ukraine Fight for First Time, Officials Say**\
+`Western and Ukrainian officials have called the appearance of North Korean forces on the battlefield a major escalation.`\
+https://nytimes.com/2024/11/05/world/europe/north-korea-russia-ukraine-kursk.html
+
+**Shohei Ohtani undergoes shoulder surgery for torn labrum, expected to be ready for spring**\
+`“He was playing with one arm in the postseason,” manager Dave Roberts said.`\
+https://nytimes.com/athletic/5901721/2024/11/05/shohei-ohtani-left-shoulder-surgery-labrum/
+
 **Miami debuts at No. 4 in College Football Playoff rankings, controls its own destiny**\
 `It’s the first time the program has been ranked in the poll since the 2020 season and its highest ranking since 2017.`\
 https://nytimes.com/athletic/5901682/2024/11/05/miami-college-football-playoff-ranking/
