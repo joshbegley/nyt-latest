@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘When Two Fantasies Collide’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/11/06/style/tiny-modern-love-stories-when-two-fantasies-collide.html
+
 **Trump’s Win Unfolded on TV as a Muted Reboot**\
 `Election night on 2024 played like an enervated replay of 2016. Was it a harbinger of how the culture will respond to a second Trump term?`\
 https://nytimes.com/2024/11/06/arts/television/donald-trump-election-tv-news.html

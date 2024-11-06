@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘When Two Fantasies Collide’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/11/06/style/tiny-modern-love-stories-when-two-fantasies-collide.html
+
 **Trump’s Win Unfolded on TV as a Muted Reboot**\
 `Election night on 2024 played like an enervated replay of 2016. Was it a harbinger of how the culture will respond to a second Trump term?`\
 https://nytimes.com/2024/11/06/arts/television/donald-trump-election-tv-news.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5903459/2024/11/06/super-bowl-2025-odds-nfl-trade-d
 **Tammy Baldwin Defeats Eric Hovde in Wisconsin Senate Race**\
 `Ms. Baldwin has once again proven herself a survivor in an evenly divided swing state, where voters went for her and President-elect Donald J. Trump.`\
 https://nytimes.com/2024/11/05/us/politics/tammy-baldwin-eric-hovde-wisconsin-senate.html
-
-**Geoff Capes, World’s Strongest Man and Champion Bird Breeder, Dies at 75**\
-`He pulled dump trucks, flipped cars and tossed five-pound bricks as if they were Kleenex boxes. Tending to parakeets brought out his gentler side.`\
-https://nytimes.com/2024/11/06/world/europe/geoff-capes-dead.html
 
