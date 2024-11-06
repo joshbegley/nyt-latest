@@ -1,3 +1,15 @@
+**Virginia Carter, a Feminist Adviser to Norman Lear, Dies at 87**\
+`A physicist who headed a chapter of the National Organization for Women, she took a career detour to be a feminist voice in Mr. Lear’s empire of socially aware sitcoms.`\
+https://nytimes.com/2024/11/06/arts/television/virginia-carter-dead.html
+
+**San Francisco Giants free-agent profile: Blake Snell, LHP**\
+`Snell is probably the best fit for the Giants among the free agent starters market. He's also not likely to return.`\
+https://nytimes.com/athletic/5902043/2024/11/06/sf-giants-blake-snell-free-agent-profile/
+
+**What a Trump Presidency Means for the World**\
+`Times foreign correspondents describe what’s at stake for China, Israel, Ukraine, global trade and climate.`\
+https://nytimes.com/interactive/2024/11/06/world/trump-president-world.html
+
 **Pimp Who Dismembered Woman After Watching ‘Dexter’ Gets Life in Prison**\
 `Cory Martin researched his plans by watching violent television shows, prosecutors said. Then he killed Brandy Odom in a scheme to collect a $200,000 life insurance payout.`\
 https://nytimes.com/2024/11/06/nyregion/nyc-pimp-murder-sentence-cory-martin-brandy-odom.html
