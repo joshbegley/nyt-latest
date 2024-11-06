@@ -1,3 +1,11 @@
+**TV Networks Prepared for a Long Wait That Didn’t Come**\
+`Anchors were ready to camp out in the studio for days on end. Instead, Donald J. Trump declared victory in the early hours of Wednesday morning.`\
+https://nytimes.com/2024/11/06/business/media/tv-networks-election-night.html
+
+**By Firing Gallant, Netanyahu Removes One Threat but Risks Another**\
+`Yoav Gallant, the departing defense minister, had opposed Prime Minister Benjamin Netanyahu on key policies. His dismissal removes an opponent but has stirred public discontent.`\
+https://nytimes.com/2024/11/06/world/middleeast/gallant-netanyahu-israel-defense-minister.html
+
 **Trump Speaks as He Moves Closer to an Election Win**\
 `The former president addressed his supporters after he moved closer to a second term in the White House by winning some key swing states.`\
 https://nytimes.com/video/us/elections/100000009810851/trump-election-day-speech.html
