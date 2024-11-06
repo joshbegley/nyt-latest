@@ -1,3 +1,7 @@
+**What we're hearing about Astros at GM meetings: Ryan Pressly, a hitting summit and more**\
+`Plus do the Astros have leverage when Alex Bregman has created “a market that the Astros are very aware is very healthy for him"?`\
+https://nytimes.com/athletic/5904202/2024/11/06/astros-gm-meetings-ryan-pressly-trade/
+
 **Harris Says She Concedes the Election, but Not Her Fight**\
 `Her commitment to a peaceful transfer of power was more than President-elect Trump ever offered to President Biden and Vice President Kamala Harris after they defeated him in 2020.`\
 https://nytimes.com/2024/11/06/us/politics/harris-concession-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/opinion/harris-concession-democracy.html
 **Voters Reject Efforts to Loosen Drug Laws in Several States**\
 `Measures to legalize marijuana for recreational use failed in Florida and North Dakota. Massachusetts voters declined to allow psychedelics to be legal for therapeutic use.`\
 https://nytimes.com/2024/11/06/us/florida-marijuana-massachusetts-psychedelics.html
-
-**Harris Asked Voters to Protect Democracy. Here’s Why It Didn’t Land.**\
-`In more than 200 interviews, voters worried not about an endangered country, but about paying rent.`\
-https://nytimes.com/2024/11/06/us/politics/harris-voters-democracy.html
 
