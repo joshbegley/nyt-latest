@@ -1,3 +1,15 @@
+**Rosenthal: Gerrit Cole's compromise, David Ross' possible dugout return and more MLB notes**\
+`Plus why Jorge Soler's deal to the Angels makes more sense than it seemed and Garrett Crochet's offseason demand. `\
+https://nytimes.com/athletic/5902035/2024/11/05/mlb-notes-yankees-gerrit-cole-orioles-david-ross/
+
+**From Coast to Coast, Americans Cast Their Ballots**\
+`Voters flocked to churches, schools and community centers in an election that is expected to have record turnout.`\
+https://nytimes.com/2024/11/05/us/politics/election-day-photos-polls-harris-trump.html
+
+**Why Exit Polls Are Misleading**\
+`Exit polls don’t have a very good track record, and they can contribute to misleading narratives on election night.`\
+https://nytimes.com/2024/11/05/us/politics/exit-polls-election.html
+
 **Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
 `Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
 https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5901389/2024/11/05/penn-state-college-football-play
 **What do first Playoff rankings mean for Georgia, SEC?**\
 `Nobody from the SEC is definitely in the field yet, and seven teams still have a realistic shot, led by Georgia.`\
 https://nytimes.com/athletic/5901994/2024/11/05/college-football-playoff-rankings-georgia-sec/
-
-**Alex Bregman is the Astros' 'biggest priority.' Can Dana Brown seal the deal?**\
-`Said Brown, "I'm going into this offseason with the thought that we're going to get Bregman back."`\
-https://nytimes.com/athletic/5901990/2024/11/05/astros-alex-bregman-priority-free-agency/
-
-**Elon Musk Is in a Category All His Own**\
-`By Ross Douthat, Ezra Klein and Aaron Retica`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/elon-musk-is-in-a-category-all-his-own
-
-**Why Are Americans So Pessimistic?**\
-`By Ross Douthat, Ezra Klein and Aaron Retica`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-americans-so-pessimistic
 
