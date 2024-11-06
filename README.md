@@ -1,3 +1,11 @@
+**Richard Winfield, Protector of Press Freedom, Dies at 91**\
+`As a lawyer for The Associated Press and other news outlets, he challenged efforts to muzzle reporters and organized lawyers to promote free expression around the world.`\
+https://nytimes.com/2024/11/06/business/media/richard-winfield-dead.html
+
+**7 Salisbury U. Students Beat Person Because of Sexual Orientation, Police Say**\
+`The students, who face assault and hate crime charges, lured a person to an apartment where they spat on him and broke a rib, the police said.`\
+https://nytimes.com/2024/11/06/us/salisbury-university-students-arrested.html
+
 **Early Results Suggest the Polls Were Notably Accurate**\
 `Collectively they indicated that the presidential race would be close, and it appears they got it right without significantly underestimating Donald Trump’s support.`\
 https://nytimes.com/2024/11/06/us/elections/election-polls-accurate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/harris-concession-speech.html
 **Robert F. Kennedy Jr., Foe of Drug Makers and Regulators, Is Poised to Wield New Power**\
 `President-elect Donald Trump has encouraged him to “go wild on health” but has not made clear what role Mr. Kennedy will play.`\
 https://nytimes.com/2024/11/06/us/politics/robert-kennedy-jr-donald-trump-health-care.html
-
-**Padres extend manager Mike Shildt after season of rare alignment**\
-`Said Shildt of A.J. Preller: "We know we’re working off the same script, we have the same vision, and that’s to win a world championship."`\
-https://nytimes.com/athletic/5904413/2024/11/06/padres-manager-mike-shildt-extension-reaction/
-
-**Inter 1 Arsenal 0: Arteta’s side denied at San Siro - but Odegaard return offers hope**\
-`Our writers break down the action from San Siro as Arsenal suffer their first defeat in this season's Champions League`\
-https://nytimes.com/athletic/5900473/2024/11/06/inter-arsenal-saka-odegaard/
 
