@@ -1,3 +1,7 @@
+**Corrections: Nov. 6, 2024**\
+`Corrections that appeared in print on Wednesday, Nov. 6, 2024.`\
+https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-6-2024.html
+
 **Chelsea's Palmer an injury doubt for Arsenal match - Maresca**\
 `Chelsea head Enzo Maresca admits it could be a risk to select Cole Palmer against Arsenal on Sunday because of the knee injury he suffered from a Lisandro Martinez challenge.`\
 https://nytimes.com/athletic/5903149/2024/11/06/cole-palmer-injury-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/opinion/donald-trump-defeat-democrats.html
 **Donald Trump Makes Stunning Return to Power**\
 `During this presidential campaign, Donald Trump played on economic worries and fears around immigration to defeat Vice President Kamala Harris. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
 https://nytimes.com/video/us/elections/100000009810421/donald-trump-wins-re-election.html
-
-**WTA Tour Finals: Gauff and Sabalenka first to qualify, Zheng vs. Paolini shootout**\
-`The season-ending event pits the best players on the WTA Tour against each other in Riyadh, Saudi Arabia.`\
-https://nytimes.com/athletic/5882196/2024/11/06/wta-finals-draw-sabalenka-swiatek-gauff-riyadh/
 
