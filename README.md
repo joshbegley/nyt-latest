@@ -1,3 +1,15 @@
+**Montana Voters Approve Abortion Ballot Measure**\
+`The measure establishes an explicit right to abortion in the State Constitution.`\
+https://nytimes.com/2024/11/06/us/politics/montana-abortion-ballot-measure.html
+
+**Why Caleb Williams, Bears' passing offense struggled in loss to Cardinals**\
+`Williams didn't get a lot of help in Arizona, but he needed to take more easy throws to help the Bears offense.`\
+https://nytimes.com/athletic/5901233/2024/11/06/bears-caleb-williams-passing-game-cardinals/
+
+**Vikings still content with interior defensive line despite not making deadline trade**\
+`The Vikings — and Aaron Rodgers — recognize the value of Harrison Phillips, Jonathan Bullard and Jerry Tillery on the interior D-line.`\
+https://nytimes.com/athletic/5901476/2024/11/06/vikings-defensive-line-trade-deadline/
+
 **Wheeler's 2025 NHL Draft mailbag: Is Porter Martone overrated? Victor vs. William Eklund?**\
 `Also in the mailbag: How do the top defensemen in the 2025 class compare to the top drafted at the position last year? `\
 https://nytimes.com/athletic/5900790/2024/11/06/2025-nhl-draft-porter-martone-eklund/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5900996/2024/11/06/blackhawks-alex-vlasic-4-nations
 **CFB coaches react to first rankings reveal: Who got respect? Who has 'brand love'?**\
 `Coaches weigh in on the first College Football Playoff rankings. How do they view Boise State, BYU, Penn State?`\
 https://nytimes.com/athletic/5902328/2024/11/06/college-football-playoff-reaction-coaches-smu-boise-state/
-
-**Trump Defeats Harris to Retake the Presidency**\
-`Plus, Republicans win control of the Senate.`\
-https://nytimes.com/2024/11/06/podcasts/trump-victory-republican-senate.html
-
-**Trump, Again**\
-`An early-morning conversation about the state of the election and the potential consequences of a second term for Donald J. Trump.`\
-https://nytimes.com/2024/11/06/podcasts/the-daily/trump-election.html
-
-**Joel Embiid checks in at No. 41 on The Athletic's 'The Basketball 100': 'Best player we ever coach'**\
-`There was something different about the kid from Yaoundé, who, once he started playing basketball, quickly excelled at the game.`\
-https://nytimes.com/athletic/5888591/2024/11/06/joel-embiid-the-basketball-100-book/
 
