@@ -1,3 +1,7 @@
+**N.Y.C. Voters Approve Four Ballot Measures Proposed by Mayor Adams**\
+`Opponents tried to use Mayor Eric Adams’s federal indictment to argue against the measures, and cast them as a bid to lessen the City Council’s power.`\
+https://nytimes.com/2024/11/06/nyregion/nyc-ballot-propositions.html
+
 **Valencia vs Espanyol postponed following flooding disaster**\
 `Valencia&#8217;s match against Espanyol on Saturday has been postponed after the devastating flash floods in Spain.`\
 https://nytimes.com/athletic/5900248/2024/11/06/valencia-espanyol-postponed-flooding/

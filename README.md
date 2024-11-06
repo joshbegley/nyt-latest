@@ -1,3 +1,15 @@
+**He’s Getting Raves for a Role He Wasn’t Supposed to Play**\
+`Seventeen years after he first appeared in “Yellow Face,” the veteran actor Francis Jue has returned with a nuanced performance as a blustery patriarch.`\
+https://nytimes.com/2024/11/06/theater/francis-jue-yellow-face-broadway.html
+
+**Ohio Republicans Expand Control of State Supreme Court**\
+`The race was one of several that reflected the increasing politicization and influence of state supreme courts nationwide.`\
+https://nytimes.com/2024/11/06/us/ohio-supreme-court.html
+
+**The Crypto Industry Spent Over $130 Million on the Election. It Paid Off.**\
+`The spending spree fueled a string of victories on Tuesday for congressional candidates who had expressed support for cryptocurrencies.`\
+https://nytimes.com/2024/11/06/technology/crypto-industry-spending-election.html
+
 **Valencia vs Espanyol postponed following flooding disaster**\
 `Valencia&#8217;s match against Espanyol on Saturday has been postponed after the devastating flash floods in Spain.`\
 https://nytimes.com/athletic/5900248/2024/11/06/valencia-espanyol-postponed-flooding/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5903440/2024/11/06/bills-browns-quinton-jefferson-j
 **The Covid Moms Strike Back**\
 `I wonder if their lingering rage fueled Trump’s decisive win.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/pandemic-mothers-trump-voters
-
-**Premier League clubs to vote on changes to APT rules**\
-`The Premier League will ask its 20 clubs to vote on proposed changes to sponsorship rules later this month following the successful legal challenge from Manchester City.`\
-https://nytimes.com/athletic/5903395/2024/11/06/premier-league-sponsorship-rules-vote/
-
-**Wordle Review No. 1,237**\
-`Scroll down for hints and conversation about the puzzle for Nov. 7, 2024.`\
-https://nytimes.com/2024/11/06/crosswords/wordle-review-1237.html
-
-**Who is Gideon Saar, Israel’s new foreign minister?**\
-`Over the years, he has been both a supporter and foe of Prime Minister Benjamin Netanyahu.`\
-https://nytimes.com/2024/11/06/world/middleeast/gideon-saar-israel-foreign-minister.html
 
