@@ -1,3 +1,19 @@
+**Trump Bump 2.0? Experts Expect Another Audience Surge, With Caveats.**\
+`News fatigue and changing consumption habits could sap some of that enthusiasm over time, several news media experts said.`\
+https://nytimes.com/2024/11/06/business/media/trump-newspapers-cable-news-audience.html
+
+**Another Jolt of Uncertainty for a Global Economy Mired in It**\
+`The U.S. presidential election result has ensured a sharp turn in economic policy expected to upend global commerce and diverge from decades of American norms.`\
+https://nytimes.com/2024/11/06/business/economy/global-economy-us-election.html
+
+**What a Trump Victory Means for Tech**\
+`Another Trump presidency will be good for crypto and Elon Musk, but every big tech company may not benefit from a more hands-off approach to antitrust.`\
+https://nytimes.com/2024/11/06/technology/trump-musk-ai-crypto.html
+
+**Mohammed Kudus ban upgraded to five games after Tottenham red card**\
+`West Ham United forward Mohammed Kudus&#8217; suspension has been upgraded to five games by the Football Association (FA) after his red card against Tottenham Hotspur in October.`\
+https://nytimes.com/athletic/5863396/2024/11/06/mohammed-kudus-west-ham-suspended/
+
 **Warren Washington, Groundbreaking Climate Scientist, Dies at 88**\
 `He invented a computer model that made it possible to measure human-induced climate change. He also helped break a color barrier in science.`\
 https://nytimes.com/2024/11/06/climate/warren-washington-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/06/us/ohio-supreme-court.html
 **The Crypto Industry Spent Over $130 Million on the Election. It Paid Off.**\
 `The spending spree fueled a string of victories on Tuesday for congressional candidates who had expressed support for cryptocurrencies.`\
 https://nytimes.com/2024/11/06/technology/crypto-industry-spending-election.html
-
-**Valencia vs Espanyol postponed following flooding disaster**\
-`Valencia&#8217;s match against Espanyol on Saturday has been postponed after the devastating flash floods in Spain.`\
-https://nytimes.com/athletic/5900248/2024/11/06/valencia-espanyol-postponed-flooding/
-
-**N.Y.C. Voters Approve Four Ballot Measures Proposed by Mayor Adams**\
-`Opponents tried to use Mayor Eric Adams’s federal indictment to argue against the measures, and cast them as a bid to lessen the City Council’s power.`\
-https://nytimes.com/2024/11/06/nyregion/nyc-ballot-propositions.html
-
-**Betting for (by) dummies: IU is favored by two scores against Michigan and it's not enough**\
-`Jon Greenberg and Zac Jackson are aligned on three picks this week: Indiana, BYU and the Arizona Cardinals. They have plenty more picks.`\
-https://nytimes.com/athletic/5903127/2024/11/06/betting-dummies-indiana-michigan/
-
-**Is It OK to Put Our Assets in Trust to Qualify for Medicaid?**\
-`The magazine’s Ethicist columnist on an aging couple’s financial plans.`\
-https://nytimes.com/2024/11/06/magazine/assets-trust-medicaid-ethics.html
 
