@@ -1,3 +1,11 @@
+**Alsobrooks Defeats Hogan in Maryland, Keeping a Blue-State Senate Seat**\
+`The Prince George’s County executive will be the first Black woman to represent Maryland in the Senate. Her race against former Gov. Larry Hogan was the most competitive in decades in the deep-blue state.`\
+https://nytimes.com/2024/11/05/us/elections/maryland-senate-hogan-alsobrooks.html
+
+**Site for Crafts**\
+`Has Adam Aaronson gone a bridge too far?`\
+https://nytimes.com/2024/11/05/crosswords/daily-puzzle-2024-11-06.html
+
 **New Yorkers Pass an Equal Rights Amendment Tied to Abortion Access**\
 `Proposition 1 was aggressively opposed by Republicans, who tried to cast it as an attack on girls’ sports and a giveaway to migrants.`\
 https://nytimes.com/2024/11/05/nyregion/new-york-proposition-1-abortion.html
