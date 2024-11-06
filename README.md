@@ -14,9 +14,9 @@ https://nytimes.com/video/us/100000009812041/california-wildfires.html
 `Baylor president and Big 12 board chairwoman Linda Livingstone has sent a letter to university leaders in the ACC, Big Ten and SEC, inviting them to a summit in early December, where they can hear directly from groups pitching potential new models for college football.`\
 https://nytimes.com/athletic/5904123/2024/11/06/baylor-president-college-football-super-leagues/
 
-**Jack Smith begins discussing how to wind down his prosecutions of Trump.**\
-`By Devlin Barrett`\
-https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jack-smith-begins-discussing-how-to-wind-down-his-prosecutions-of-trump
+**Jack Smith Assesses How to Wind Down Trump’s Federal Cases, Official Says**\
+`The decision is in keeping with a longstanding Justice Department policy that bars prosecution of sitting presidents.`\
+https://nytimes.com/2024/11/06/us/politics/doj-trump-federal-cases.html
 
 **Voters Were Fed Up Over Immigration. They Voted for Trump.**\
 `Voters across party lines shifted to the right on immigration. They blamed Biden-Harris for failing to control the chaotic border.`\
