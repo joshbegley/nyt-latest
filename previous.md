@@ -10,15 +10,15 @@ https://nytimes.com/2024/11/06/us/politics/robert-kennedy-jr-donald-trump-health
 `Said Shildt of A.J. Preller: "We know we’re working off the same script, we have the same vision, and that’s to win a world championship."`\
 https://nytimes.com/athletic/5904413/2024/11/06/padres-manager-mike-shildt-extension-reaction/
 
-**Inter 1 Arsenal 0 - Arteta's side struggle to create from open play, but Odegaard return offers hope**\
-`Our writers break down the action from San Siro as Arsenal suffer their first defeat in this season's Champions League.`\
+**Inter 1 Arsenal 0: Arteta’s side denied at San Siro - but Odegaard return offers hope**\
+`Our writers break down the action from San Siro as Arsenal suffer their first defeat in this season's Champions League`\
 https://nytimes.com/athletic/5900473/2024/11/06/inter-arsenal-saka-odegaard/
 
 **Spurs' Romero avoids serious injury but Richarlison out for 'a little while'**\
 `Tottenham Hotspur vice-captain Cristian Romero has avoided a serious injury but forward Richarlison faces a “little while” out with a left hamstring problem.`\
 https://nytimes.com/athletic/5895271/2024/11/06/cristian-romero-richarlison-injury-tottenham/
 
-**How UNLV, Air Force got extra $6.8 million for staying in Mountain West**\
+**UNLV, Air Force got extra money from Mountain West amid realignment uncertainty**\
 `A few days of conference realignment maneuvering helped UNLV and Air Force each receive increased MWC financial commitments.`\
 https://nytimes.com/athletic/5904436/2024/11/06/mountain-west-unlv-air-force-money-realignment/
 

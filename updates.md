@@ -1,3 +1,11 @@
+**Inter 1 Arsenal 0: Arteta’s side denied at San Siro - but Odegaard return offers hope**\
+`Our writers break down the action from San Siro as Arsenal suffer their first defeat in this season's Champions League`\
+https://nytimes.com/athletic/5900473/2024/11/06/inter-arsenal-saka-odegaard/
+
+**UNLV, Air Force got extra money from Mountain West amid realignment uncertainty**\
+`A few days of conference realignment maneuvering helped UNLV and Air Force each receive increased MWC financial commitments.`\
+https://nytimes.com/athletic/5904436/2024/11/06/mountain-west-unlv-air-force-money-realignment/
+
 **Harris Says She Concedes the Election, but Not Her Fight**\
 `Her commitment to a peaceful transfer of power was more than President-elect Trump ever offered to President Biden and Vice President Kamala Harris after they defeated him in 2020.`\
 https://nytimes.com/2024/11/06/us/politics/harris-concession-speech.html
