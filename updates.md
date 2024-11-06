@@ -1,5 +1,9 @@
 **Trump Has History of Strong Support for Israel**\
 `Donald Trump staunchly supported Israel during his first term as president, even when that meant reversing decades of American policy.`\
+https://nytimes.com/2024/11/06/world/middleeast/trump-israel-support.html
+
+**Trump Has History of Strong Support for Israel**\
+`Donald Trump staunchly supported Israel during his first term as president, even when that meant reversing decades of American policy.`\
 https://nytimes.com/2024/11/06/world/middleeast/trump-israel-policy.html
 
 **All WSL and Championship matches to be held at main stadia for first time**\
