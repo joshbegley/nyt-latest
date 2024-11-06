@@ -4,7 +4,7 @@ https://nytimes.com/2024/11/06/style/trump-ivanka-melania-election-speech.html
 
 **The Next Dietary Guidelines May Punt on a Big Question in Nutrition**\
 `There’s not enough evidence to recommend avoiding ultraprocessed foods, a scientific advisory committee says. Some experts disagree.`\
-https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-and-the-dietary-guidelines.html
+https://nytimes.com/2024/11/06/well/eat/ultraprocessed-foods-dietary-guidelines.html
 
 **Jones? Hudson-Odoi? James? The outsiders for a call-up in Carsley's final England squad**\
 `Carsley has shown he isn't afraid to look in a different direction. So which players could be given an opportunity to impress?`\
