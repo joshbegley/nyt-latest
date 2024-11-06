@@ -1,3 +1,19 @@
+**When Will Donald Trump Take Office?**\
+`After his election victory, he will enter a two-month transition period as president-elect before being inaugurated on Jan. 20.`\
+https://nytimes.com/2024/11/06/us/politics/trump-white-house-timeline.html
+
+**A California Ballot Measure to Ban Forced Prison Labor Is Failing**\
+`Voters appear to be rejecting Proposition 6 in California, a measure to end involuntary servitude as a punishment for crime.`\
+https://nytimes.com/2024/11/06/us/politics/california-prop-6-measure-forced-prison-labor.html
+
+**How the Trump administration could enact a federal abortion ban.**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/how-the-trump-administration-could-enact-a-federal-abortion-ban
+
+**The Super Bowl favorites after the NFL trade deadline**\
+`The Lions are now the top challengers to the Chiefs, but both teams only got stronger through the trade deadline.`\
+https://nytimes.com/athletic/5903459/2024/11/06/super-bowl-2025-odds-nfl-trade-deadline-chiefs-lions/
+
 **Tammy Baldwin Defeats Eric Hovde in Wisconsin Senate Race**\
 `In the past few election cycles, incumbency has proved powerful in Wisconsin regardless of party.`\
 https://nytimes.com/2024/11/05/us/politics/tammy-baldwin-eric-hovde-wisconsin-senate.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5903800/2024/11/06/wayne-gretzky-rookie-cards-aucti
 **The world is preparing for Trump’s return.**\
 `By Damien Cave and Catherine Porter`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/the-world-is-preparing-for-trumps-return
-
-**City goalkeeper Ortega set for first Germany call-up**\
-`Manchester City goalkeeper Stefan Ortega is set to be called up by Germany for the first time.`\
-https://nytimes.com/athletic/5903816/2024/11/06/stefan-ortega-germany-squad-man-city/
-
-**Neymar to miss four to six weeks with hamstring injury**\
-`Neymar is set to miss the next four to six weeks with a hamstring injury, his club Al Hilal have confirmed.`\
-https://nytimes.com/athletic/5903796/2024/11/06/neymar-injury-hamstring-update/
-
-**Trumpism Is Not a Fad**\
-`Why America went with Trump, again.`\
-https://nytimes.com/2024/11/06/opinion/trump-wins-election.html
-
-**What Trump’s Victory Means for Climate Change**\
-`President-elect Donald J. Trump promised to delete climate policy. He could face pushback from Republicans benefiting from a boom in clean energy.`\
-https://nytimes.com/2024/11/06/climate/trump-climate-change.html
 
