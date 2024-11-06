@@ -1,3 +1,15 @@
+**Wolves owners buy back minority stake from US investment firm**\
+`Wolverhampton Wanderers owners Fosun has bought back a minority stake in its subsidiary, Fosun Sports, from US-based investment firm PEAK6.`\
+https://nytimes.com/athletic/5903216/2024/11/06/wolves-owners-fosun-minority-stake/
+
+**Trump, Again**\
+`In the early hours of Wednesday morning, Donald J. Trump was elected president for a second time. Shortly before that call was made, the Times journalists Michael Barbaro, Nate Cohn, Lisa Lerer and Astead W. Herndon sat down to discuss the state of the election.`\
+https://nytimes.com/video/podcasts/the-daily/100000009811010/trump-election-results.html
+
+**Canucks stock watch: Who’s trending up, who’s trending down after 11 games?**\
+`A look at which Canucks players have improved their stock with stellar performances and who's trending in the wrong direction.`\
+https://nytimes.com/athletic/5902375/2024/11/06/canucks-stock-watch-players-analysis/
+
 **Penguins Today: Another awful rerun has us looking ahead**\
 `The Penguins seem to be headed down an undesireable path: not good enough for the playoffs but not bad enough for the draft lottery.`\
 https://nytimes.com/athletic/5903174/2024/11/06/penguins-today-blown-leads/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/trump-legal-cases-winning.html
 **Corrections: Nov. 6, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 6, 2024.`\
 https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-6-2024.html
-
-**Chelsea's Palmer an injury doubt for Arsenal match - Maresca**\
-`Chelsea head coach Enzo Maresca admits it could be a risk to select Cole Palmer against Arsenal on Sunday because of the knee injury he suffered from a Lisandro Martinez challenge.`\
-https://nytimes.com/athletic/5903149/2024/11/06/cole-palmer-injury-chelsea/
-
-**Democrats Got the Recovery They Wanted. It Wasn’t Enough.**\
-`America’s economic growth is the envy of its global counterparts. But voters wanted more from the Biden administration — specifically, lower prices.`\
-https://nytimes.com/2024/11/06/us/politics/inflation-biden-economy.html
-
-**League of Legends Worlds: London embraces the pinnacle of esports**\
-`Linkin Park, an enthusiastic crowd and a masterclass from T1's Faker all helped to make the event at the O2 Arena a success`\
-https://nytimes.com/athletic/5900929/2024/11/06/league-of-legends-worlds-london/
 
