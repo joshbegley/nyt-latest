@@ -1,3 +1,7 @@
+**Nebraska Voters Pass Measure Limiting Abortions**\
+`A competing ballot amendment, which would have established a right to abortion until fetal viability, failed to win more votes.`\
+https://nytimes.com/2024/11/06/us/nebraska-abortion-ballot-measure.html
+
 **Trump Wins Georgia, Re-establishing Republicans’ Dominance There**\
 `His victory in the state reaffirmed many conservatives’ beliefs that the Peach State is fundamentally red, despite Democrats’ inroads in recent election cycles.`\
 https://nytimes.com/2024/11/05/us/politics/georgia-election-trump-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5901670/2024/11/06/manchester-city-crisis-inquest/
 **Travelling with the West Ham fans to Nottingham Forest: 'I think the transfers were pretty awful'**\
 `Roshane Thomas travelled with supporters to the City Ground last weekend — they were not a happy bunch`\
 https://nytimes.com/athletic/5899817/2024/11/06/a-day-with-west-ham-fans-forest-away/
-
-**What Wrexham's early FA Cup elimination means for the club - and their promotion hopes**\
-`Wrexham were surprisingly knocked out of the FA Cup by Harrogate Town on Sunday. Here's how it could prove a blessing in disguise`\
-https://nytimes.com/athletic/5899982/2024/11/06/wrexham-fa-cup-exit-analysis/
 
