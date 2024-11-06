@@ -1,3 +1,19 @@
+**Notre Dame mailbag: Could Irish miss the College Football Playoff at 11-1?**\
+`Debating Notre Dame's Playoff prospects at No. 10, plus depth under Marcus Freeman compared to Brian Kelly and more questions.`\
+https://nytimes.com/athletic/5902302/2024/11/06/notre-dame-college-football-playoff-rankings/
+
+**Gradey Dick's improvement is the best early-season sign for Toronto Raptors**\
+`Dick was supposed to be overmatched as a top offensive option. Early on, he has defied those expectations.`\
+https://nytimes.com/athletic/5901107/2024/11/06/toronto-raptors-gradey-dick-nba-most-improved/
+
+**How can the Patriots fix their offensive line for 2025?**\
+`The Patriots might have the worst offensive line in the NFL. They'll have to be active in free agency and the draft to improve it by 2025.`\
+https://nytimes.com/athletic/5901031/2024/11/06/patriots-bad-offensive-line-2025/
+
+**Falcons predictions at NFL midseason: Atlanta wins NFC South, Kirk Cousins honored**\
+`The Atlanta Falcons (6-3) can move to 5-0 in the NFC South by beating New Orleans on Sunday.`\
+https://nytimes.com/athletic/5900619/2024/11/06/falcons-predictions-nfl-midseason-cousins/
+
 **The Best Place for a Last-Minute Thanksgiving? Abroad.**\
 `Cheap flights. Fewer crowds. November can be one of the most affordable months for international travel, and travelers can still snag a choice deal.`\
 https://nytimes.com/2024/11/06/travel/thanksgiving-flights-deals.html
