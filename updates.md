@@ -1,3 +1,7 @@
+**A GM on the brink: Joe Douglas on the state of the Jets' season**\
+`Even after a big win on Halloween night, the Jets are still climbing a steep hill to get to the playoffs.`\
+https://nytimes.com/athletic/5904514/2024/11/06/joe-douglas-jets-gm-state-of-jets-season/
+
 **Plea Deals for Accused 9/11 Plotters Are Valid, Judge Rules**\
 `A military judge said he would move forward with accepting guilty pleas from three defendants in exchange for life sentences in the long-running case.`\
 https://nytimes.com/2024/11/06/us/politics/gitmo-plea-agreement.html
