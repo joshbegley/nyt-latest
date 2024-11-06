@@ -1,3 +1,11 @@
+**Brush Fires in Southern California Prompt Evacuations and Power Outages**\
+`Firefighters were working on Wednesday to contain fires in Ventura and Los Angeles Counties amid dangerous weather conditions.`\
+https://nytimes.com/2024/11/06/us/malibu-fire-power-outages-california.html
+
+**A Good Whale**\
+`This is the story of a wildly ambitious science experiment to return Keiko to the ocean — while the world watched. A new limited podcast series from Serial Productions and the New York Times.`\
+https://nytimes.com/interactive/2024/podcasts/serial-good-whale.html
+
 **Virginia Carter, a Feminist Adviser to Norman Lear, Dies at 87**\
 `A physicist who headed a chapter of the National Organization for Women, she took a career detour to be a feminist voice in Mr. Lear’s empire of socially aware sitcoms.`\
 https://nytimes.com/2024/11/06/arts/television/virginia-carter-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/nyregion/mickey-barreto-unfit-trial.html
 **Trump’s Victory Is a Major Win for Elon Musk and Big-Money Politics**\
 `The candidate largely let the billionaire run his $175 million ground game — a gamble that future candidates could look to emulate.`\
 https://nytimes.com/2024/11/06/us/elections/trump-musk-america-pac.html
-
-**On Election Day, He Headed to the Capitol With a Manifesto and a Torch**\
-`A Michigan man tried to enter the Capitol Visitor Center on Tuesday with a letter for Congress expressing his discontent with the government’s response to the war in Gaza.`\
-https://nytimes.com/2024/11/06/us/election-day-capitol-washington-austin-olson.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears have lost two games in a row in disheartening fashion. Can they right the ship against the Patriots? What's on your mind?`\
-https://nytimes.com/athletic/5904065/2024/11/06/bears-mailbag-questions-38/
 
