@@ -1,3 +1,7 @@
+**Trump Wins Pennsylvania, a Key Swing State Prize**\
+`Both Donald J. Trump and Kamala Harris fought hard for Pennsylvania’s 19 electoral votes, dumping more money into the state than any other by far.`\
+https://nytimes.com/2024/11/05/us/politics/harris-trump-pennsylvania.html
+
 **Anticipating a Close Race, the Nation Watched Momentum Shift Toward Trump**\
 `A winner was not declared before midnight on Tuesday, but even Donald Trump’s allies seemed shocked by the signs of his strength — and the improbable political comeback it appeared to foretell.`\
 https://nytimes.com/2024/11/06/us/elections/election-night-scene.html

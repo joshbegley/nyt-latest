@@ -1,3 +1,7 @@
+**Trump Wins Pennsylvania, a Key Swing State Prize**\
+`Both Donald J. Trump and Kamala Harris fought hard for Pennsylvania’s 19 electoral votes, dumping more money into the state than any other by far.`\
+https://nytimes.com/2024/11/05/us/politics/harris-trump-pennsylvania.html
+
 **Anticipating a Close Race, the Nation Watched Momentum Shift Toward Trump**\
 `A winner was not declared before midnight on Tuesday, but even Donald Trump’s allies seemed shocked by the signs of his strength — and the improbable political comeback it appeared to foretell.`\
 https://nytimes.com/2024/11/06/us/elections/election-night-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902215/2024/11/06/canucks-beat-ducks-quinn-hughes-
 **Nebraska Voters Pass Measure Limiting Abortions**\
 `A competing ballot amendment, which would have established a right to abortion until fetal viability, failed to win more votes.`\
 https://nytimes.com/2024/11/06/us/nebraska-abortion-ballot-measure.html
-
-**Trump Wins Georgia, Re-establishing Republicans’ Dominance There**\
-`His victory in the state reaffirmed many conservatives’ beliefs that the Peach State is fundamentally red, despite Democrats’ inroads in recent election cycles.`\
-https://nytimes.com/2024/11/05/us/politics/georgia-election-trump-harris.html
 
