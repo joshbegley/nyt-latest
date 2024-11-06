@@ -1,3 +1,11 @@
+**Blue Jackets fall in OT to San Jose's Alex Wennberg, who is still on Columbus' payroll**\
+`The Blue Jackets bought out Wennberg's contract after the 2019-20 season.`\
+https://nytimes.com/athletic/5902806/2024/11/06/blue-jackets-sharks-loss-wennberg-contract/
+
+**A Party of Prigs and Pontificators Suffers a Humiliating Defeat**\
+`Democrats may feel righteous, but how’s that ever going to be a winning electoral look?`\
+https://nytimes.com/2024/11/06/opinion/donald-trump-defeat-democrats.html
+
 **Donald Trump Makes Stunning Return to Power**\
 `During this presidential campaign, Donald Trump played on economic worries and fears around immigration to defeat Vice President Kamala Harris. Shane Goldmacher, a national political correspondent for The New York Times, explains.`\
 https://nytimes.com/video/us/elections/100000009810421/donald-trump-wins-re-election.html
