@@ -2,7 +2,7 @@
 `The Wild's play on special teams has been floundering for several games, but the Kings were the first to eke a win out of it.`\
 https://nytimes.com/athletic/5902471/2024/11/06/wild-special-teams-woes-analysis/
 
-**Fantasy football mid-season dynasty report: Sell Cooper Kupp, buy Jaxon Smith-Njigba**\
+**Fantasy football midseason dynasty report: Sell Cooper Kupp, buy Jaxon Smith-Njigba**\
 `Jeff Haverlack tells you who to buy (Cooper Kupp, among others) and who to sell at the midseason point of the 2024 NFL season. `\
 https://nytimes.com/athletic/5900892/2024/11/06/fantasy-football-midseason-dynasty-report-sell-cooper-kupp-buy-jaxon-smith-njigba/
 
