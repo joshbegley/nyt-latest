@@ -1,3 +1,15 @@
+**A group run by Elon Musk’s super PAC is collecting voter fraud claims on X.**\
+`N`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/x-elon-musk-election-fraud
+
+**Until Saturday: What the initial CFP rankings mean**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/5902243/2024/11/05/college-football-playoff-rankings-until-saturday/
+
+**Trump and the Knotty Question of Character**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/trump-and-the-knotty-question-of-character
+
 **Protests Erupt in Tel Aviv After Netanyahu Fires Gallant**\
 `Crowds lit bonfires and blocked traffic on a major highway after the Israeli prime minister sacked the defense minister, citing “gaps” between their views on handling the war in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009810057/netanyahu-fires-gallant-tel-aviv.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/joe
 **Blues’ Holloway takes puck to neck, in stable condition**\
 `Holloway exited during the first period after being hit in the neck area by a shot from Tampa Bay's Nick Paul.`\
 https://nytimes.com/athletic/5902114/2024/11/05/dylan-holloway-neck-injury-blues/
-
-**Republicans Make Early Gain in Push for Control of the Senate**\
-`As expected, Gov. Jim Justice won the seat left open by the retirement of Senator Joe Manchin III, putting the G.O.P. one seat away from a majority. But critical seats remained up for grabs.`\
-https://nytimes.com/2024/11/05/us/politics/republicans-senate-control.html
-
-**A county elections office in Arizona is evacuated after a bomb threat.**\
-`The threat, one of at least six received in Arizona today, is likely to slow ballot counting in La Paz County.`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/a-county-elections-office-in-arizona-is-evacuated-after-a-bomb-threat
-
-**Technical problems slow Navajo voting in Arizona.**\
-`Printer problems in heavily Democratic Apache County led to long lines and discouraged voters, according to tribal officials.`\
-https://nytimes.com/live/2024/11/05/us/trump-harris-election/technical-problems-slow-navajo-voting-in-arizona
 
