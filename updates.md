@@ -1,3 +1,15 @@
+**Warren Washington, Groundbreaking Climate Scientist, Dies at 88**\
+`He invented a computer model that made it possible to measure human-induced climate change. He also helped break a color barrier in science.`\
+https://nytimes.com/2024/11/06/climate/warren-washington-dead.html
+
+**Scoop City: Ranking the trade deadline winners and losers**\
+`A look at why the Vikings, Lions, Chiefs, Commanders and Ravens won, while the Cowboys (and trade lovers) lost.`\
+https://nytimes.com/athletic/5903614/2024/11/06/nfl-trade-deadline-winners-and-losers-from-the-commanders-to-the-cowboys/
+
+**What can United fans learn about Amorim from Sporting's win over City?**\
+`Last night's 4-1 victory is evidence Amorim is a good coach but his new club must be restructured into a unit if they are to hit such highs`\
+https://nytimes.com/athletic/5902693/2024/11/06/man-united-ruben-amorim-sporting-man-city/
+
 **He’s Getting Raves for a Role He Wasn’t Supposed to Play**\
 `Seventeen years after he first appeared in “Yellow Face,” the veteran actor Francis Jue has returned with a nuanced performance as a blustery patriarch.`\
 https://nytimes.com/2024/11/06/theater/francis-jue-yellow-face-broadway.html
