@@ -1,3 +1,7 @@
+**New York Delivers Key House Wins, but Warning Bells Sound for Democrats**\
+`Although Democrats flipped at least two House seats in New York, Donald J. Trump did better than any Republican presidential candidate since the 1980s.`\
+https://nytimes.com/2024/11/06/nyregion/democrats-house-ny.html
+
 **How the Yankees should interpret Scott Boras' free-agent pitch for Juan Soto**\
 `“You have the Mona Lisa of the museum,” Boras said Wednesday about Soto. “You have the attraction."`\
 https://nytimes.com/athletic/5903772/2024/11/06/yankees-juan-soto-scott-boras-free-agency/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5903772/2024/11/06/yankees-juan-soto-scott-boras-fr
 `By Edward Wong`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/zelensky-urges-trump-to-help-defend-ukraine-against-russia
 
-**Cole Leinart, son of former USC star, commits to SMU**\
+**Cole Leinart, son of former USC star Matt Leinart, commits to SMU**\
 `The son of the former Heisman Trophy winner landed an offer from SMU this week. He quickly accepted. `\
 https://nytimes.com/athletic/5904255/2024/11/06/recruiting-smu-cole-leinart-matt-smu/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/senate-republican-majority.html
 **Why Does It Take So Long to Call the House?**\
 `The sheer volume of seats up for grabs, the painstaking process for calling congressional races and the complexities of California conspire to drag out the process, possibly for days.`\
 https://nytimes.com/2024/11/06/us/politics/why-does-it-take-so-long-to-call-the-house.html
-
-**My Manifesto for Despairing Democrats**\
-`Here’s how to be a watchdog, not a lapdog, for the next four tumultuous years, while holding on to your sanity.`\
-https://nytimes.com/2024/11/06/opinion/trump-democrats-loss.html
 

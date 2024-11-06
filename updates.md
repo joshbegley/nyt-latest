@@ -1,3 +1,7 @@
+**How the Yankees should interpret Scott Boras' free-agent pitch for Juan Soto**\
+`“You have the Mona Lisa of the museum,” Boras said Wednesday about Soto. “You have the attraction."`\
+https://nytimes.com/athletic/5903772/2024/11/06/yankees-juan-soto-scott-boras-free-agency/
+
 **Zelensky urges Trump to help defend Ukraine against Russia.**\
 `By Edward Wong`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/zelensky-urges-trump-to-help-defend-ukraine-against-russia
