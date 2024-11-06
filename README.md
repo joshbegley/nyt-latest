@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5900473/2024/11/06/inter-arsenal-saka-odegaard/
 `Tottenham Hotspur vice-captain Cristian Romero has avoided a serious injury but forward Richarlison faces a “little while” out with a left hamstring problem.`\
 https://nytimes.com/athletic/5895271/2024/11/06/cristian-romero-richarlison-injury-tottenham/
 
-**How UNLV, Air Force got extra $6.8 million for staying in Mountain West**\
+**How much money UNLV, Air Force got for staying in Mountain West**\
 `A few days of conference realignment maneuvering helped UNLV and Air Force each receive increased MWC financial commitments.`\
 https://nytimes.com/athletic/5904436/2024/11/06/mountain-west-unlv-air-force-money-realignment/
 
