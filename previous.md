@@ -1,3 +1,7 @@
+**Barca may ring the changes tonight - but Flick’s best XI is a winning formula**\
+`Before the Champions League game against Red Star Belgrade - where some fringe players could prove themselves - we look at Flick’s side`\
+https://nytimes.com/athletic/5902795/2024/11/06/barcelona-hansi-flick-starting-xi/
+
 **How Oilers' Brett Kulak is once again showing value with increased opportunity**\
 `Kulak has quietly been one of the Oilers’ most useful players and is getting used to adjusting his role to help the team.`\
 https://nytimes.com/athletic/5901676/2024/11/06/oilers-brett-kulak-stats-value/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/movies/pedro-paramo-review.html
 **Lowetide: How is the next Oilers top 20 prospects list shaping up?**\
 `The state of the Oilers prospect pool is much better than where it was just a few months ago.`\
 https://nytimes.com/athletic/5900638/2024/11/06/edmonton-oilers-prospects-top-20-list/
-
-**President Trump, Again**\
-`We’re covering Donald Trump’s stunning comeback, a Republican Senate and America’s rightward shift.`\
-https://nytimes.com/2024/11/06/briefing/donald-trump-victory-kamala-harris.html
 

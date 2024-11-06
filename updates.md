@@ -1,3 +1,7 @@
+**Barca may ring the changes tonight - but Flick’s best XI is a winning formula**\
+`Before the Champions League game against Red Star Belgrade - where some fringe players could prove themselves - we look at Flick’s side`\
+https://nytimes.com/athletic/5902795/2024/11/06/barcelona-hansi-flick-starting-xi/
+
 **How Oilers' Brett Kulak is once again showing value with increased opportunity**\
 `Kulak has quietly been one of the Oilers’ most useful players and is getting used to adjusting his role to help the team.`\
 https://nytimes.com/athletic/5901676/2024/11/06/oilers-brett-kulak-stats-value/
