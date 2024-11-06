@@ -1,3 +1,11 @@
+**Why Giants president Buster Posey is determined to be people focused**\
+`Posey is leaning on his strengths as a player reading people and understanding their strengths and weakness in his new role.`\
+https://nytimes.com/athletic/5902363/2024/11/06/sf-giants-buster-posey-leadership-focus/
+
+**The Enzo Maresca tactical ploy that's getting the most out of Moises Caicedo**\
+`Chelsea’s manager is empowering his No 6 to attack between the lines, and the results are positive `\
+https://nytimes.com/athletic/5899737/2024/11/06/maresca-caicedo-chelsea-tactics/
+
 **Five Raiders predictions at midseason: Antonio Pierce will earn a second season**\
 `The Raiders won't spend the second half of the season tanking, but we foresee them ending up with a top-five pick in the 2025 NFL Draft.`\
 https://nytimes.com/athletic/5901343/2024/11/06/raiders-predictions-nfl-midseason-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/an-act-of-mad
 **Barca may ring the changes tonight - but Flick’s best XI is a winning formula**\
 `Before the Champions League game against Red Star Belgrade - where some fringe players could prove themselves - we look at Flick’s side`\
 https://nytimes.com/athletic/5902795/2024/11/06/barcelona-hansi-flick-starting-xi/
-
-**How Oilers' Brett Kulak is once again showing value with increased opportunity**\
-`Kulak has quietly been one of the Oilers’ most useful players and is getting used to adjusting his role to help the team.`\
-https://nytimes.com/athletic/5901676/2024/11/06/oilers-brett-kulak-stats-value/
-
-**Lawler wins New York swing seat, lifting Republican House chances**\
-`Representative Mike Lawler, a Republican, defied a stark Democratic advantage in the New York City suburbs to defeat Mondaire Jones.`\
-https://nytimes.com/2024/11/06/nyregion/new-york-house-lawler-mondaire-jones.html
 
