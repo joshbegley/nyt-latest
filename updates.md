@@ -1,3 +1,7 @@
+**Miami debuts at No. 4 in College Football Playoff rankings, controls its own destiny**\
+`It's the first time the program has been ranked in the poll since the 2020 season and its highest ranking since 2017.`\
+https://nytimes.com/athletic/5901682/2024/11/05/miami-college-football-playoff-ranking/
+
 **Mexico’s Top Court Dismisses Proposal to Invalidate Contentious Judicial Overhaul**\
 `The move spares the country’s new president from having to choose between recognizing a court decision to strike down the overhaul or aligning with her party’s leaders and ignoring it.`\
 https://nytimes.com/2024/11/05/world/americas/mexico-supreme-court-judicial-overhaul.html
