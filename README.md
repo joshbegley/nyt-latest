@@ -1,3 +1,11 @@
+**Banned From Atlanta: The Challenges of Young Thug’s Unique Probation**\
+`The rapper was released from jail last week after a surprise guilty plea. For 15 years, a set of strict requirements will govern his life and music.`\
+https://nytimes.com/2024/11/06/arts/music/young-thug-probation.html
+
+**Slotkin Defeats Rogers in Michigan Senate Race, Holding a Democratic Seat**\
+`Representative Elissa Slotkin, a centrist with strong national security credentials, won the contest to succeed the retiring Senator Debbie Stabenow.`\
+https://nytimes.com/2024/11/06/us/elections/michigan-senate-slotkin-rogers.html
+
 **What Is Project 2025, and Why Did Trump Distance Himself from It During the Campaign?**\
 `Democrats had attacked Donald J. Trump’s ties to the conservative policy blueprint for reshaping the federal government. Several of its authors served in his administration.`\
 https://nytimes.com/2024/11/06/us/politics/trump-project-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/11/06/world/trump-president-world.html
 **Pimp Who Dismembered Woman After Watching ‘Dexter’ Gets Life in Prison**\
 `Cory Martin researched his plans by watching violent television shows, prosecutors said. Then he killed Brandy Odom in a scheme to collect a $200,000 life insurance payout.`\
 https://nytimes.com/2024/11/06/nyregion/nyc-pimp-murder-sentence-cory-martin-brandy-odom.html
-
-**Nick Martinez has already received multi-year offers, Scott Boras says**\
-`Boras said there’s a chance Martinez will accept the $21.05 million qualifying offer from the Reds, but also said Martinez has options.`\
-https://nytimes.com/athletic/5904015/2024/11/06/nick-martinez-reds-free-agent-offers/
-
-**Republicans Make Early Inroads in Their Fight to Keep the House Majority**\
-`Democrats picked up two seats in New York and defended others in Michigan and New Mexico, but Republican gains have narrowed their path, setting up a potential G.O.P. trifecta.`\
-https://nytimes.com/2024/11/06/us/elections/republicans-house-of-representatives-congress.html
 
