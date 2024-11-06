@@ -1,4 +1,4 @@
-**What is Project 2025, and Why Did Trump Distance Himself from It During the Campaign?**\
+**What Is Project 2025, and Why Did Trump Distance Himself from It During the Campaign?**\
 `Democrats had attacked Donald J. Trump’s ties to the conservative policy blueprint for reshaping the federal government. Several of its authors served in his administration.`\
 https://nytimes.com/2024/11/06/us/politics/trump-project-2025.html
 
