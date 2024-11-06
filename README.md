@@ -1,40 +1,40 @@
-**Trump’s Win Ends a Post-World War II Era of U.S. Leadership**\
-`For the past four years, President Biden has argued that the first Trump term was a blip in American history. The election has proved that President-elect Donald J. Trump was no aberration.`\
-https://nytimes.com/2024/11/06/us/politics/trump-us-global-leadership.html
+**A Simple Roast Chicken**\
+`My favorite recipe is uncomplicated and flexible, calling for only salt, pepper and whatever herbs you like.`\
+https://nytimes.com/2024/11/06/dining/a-simple-roast-chicken.html
 
-**The Real Reason Harris and the Democrats Were Always Doomed**\
-`This election wasn’t just about the candidates`\
-https://nytimes.com/2024/11/06/opinion/democrats-election-trump.html
+**How Ballot Measures Will Change Abortion Access**\
+`Ballot measures that passed on Tuesday will lift abortion bans in two states and expand access in others. Defeated measures in three states mean their abortion restrictions will remain in place.`\
+https://nytimes.com/interactive/2024/11/06/us/elections/abortion-ballot-results-laws-election.html
 
-**‘It Was Just Jubilation’: Trump Supporters Revel in His Victory**\
-`Although some people were not sure which policies Donald J. Trump would focus on first, they were relieved and elated by the win.`\
-https://nytimes.com/2024/11/06/us/trump-voters-reactions.html
+**How Harris Lost Will Be Her Legacy**\
+`Her loss is a sign that the age of identity politics is not over.`\
+https://nytimes.com/2024/11/06/opinion/why-kamala-harris-lost.html
 
-**‘Elevation’ Review: A High Place**\
-`Humans flee monsters who refuse to surpass 8,000 feet in altitude in this “Quiet Place” copycat.`\
-https://nytimes.com/2024/11/06/movies/elevation-review.html
+**Daria Kasatkina replaces American Jessica Pegula at WTA Tour Finals**\
+`The Russian said she had received "assurances" about the welfare of players from the LGBTQ+ community earlier this year.`\
+https://nytimes.com/athletic/5903624/2024/11/06/kasatkina-pegula-wta-tour-finals/
 
-**Heat Today: With Suns next up, can Miami fix third-quarter issues during road trip?**\
-`The Heat head out on a six-game road trip.`\
-https://nytimes.com/athletic/5903591/2024/11/06/miami-heat-jimmy-butler-tyler-herro-phoenix-suns/
+**Inflation Infused the Vote. But Could Trump Reignite It?**\
+`Many Americans fretted about inflation as they headed out to vote. But Donald J. Trump’s approach comes with risks of a renewed boost.`\
+https://nytimes.com/2024/11/06/us/politics/trump-inflation-economy.html
 
-**Kamala Harris to Concede Election to Donald Trump**\
-`Vice President Kamala Harris is slated to speak at 4 p.m. Eastern time from Howard University, according to a campaign official briefed on her plans.`\
-https://nytimes.com/2024/11/06/us/politics/harris-concession-speech-address-time.html
+**Abortion Rights Ballot Measures Succeed in 7 of 10 States**\
+`Voters in red and blue states supported abortion rights, but the movement broke its winning streak.`\
+https://nytimes.com/2024/11/06/us/politics/abortion-ballot-measures.html
 
-**What we're seeing with the Bucks: Andre Jackson Jr. in the dunker and Bobby Portis' usage**\
-`Jackson has seen his playing time increase, which may be a good thing, while Portis has seen his usage rate increase, which may not.`\
-https://nytimes.com/athletic/5901355/2024/11/06/bucks-andre-jackson-jr-bobby-portis/
+**What Trump’s Victory Could Mean for New York City**\
+`Donald J. Trump’s return to the White House could significantly affect a range of issues in his hometown, including immigration policy and congestion pricing.`\
+https://nytimes.com/2024/11/06/nyregion/trump-new-york-future.html
 
-**What to Know About Trump’s New York Criminal Case After the Election**\
-`Donald J. Trump, the first felon elected president, has a sentencing scheduled for Nov. 26. He has many ways to avoid punishment.`\
-https://nytimes.com/2024/11/06/nyregion/trump-criminal-case-new-york.html
+**Blues' Dylan Holloway feeling 'OK' but not practicing day after taking puck to neck**\
+`It’s not known if Holloway will play in Thursday’s game against Utah, but at this point, all signs are positive with his health.`\
+https://nytimes.com/athletic/5903349/2024/11/06/blues-dylan-holloway-neck-injury/
 
-**Jeff Bezos Congratulates Trump on Victory**\
-`Mr. Bezos, who also owns The Washington Post, recently quashed the newspaper’s endorsement of Vice President Kamala Harris.`\
-https://nytimes.com/2024/11/06/business/media/jeff-bezos-trump.html
+**What Trump’s Victory Says About America**\
+`Readers express fears for the future and speculate about why he won.`\
+https://nytimes.com/2024/11/06/opinion/letters/donald-trump-election-victory.html
 
-**Ex-Cub Kyle Hendricks close to signing with Angels**\
-`Hendricks’ composure, knowledge and experience will be assets for the Angels as they try to build up their pitching program.`\
-https://nytimes.com/athletic/5903715/2024/11/06/kyle-hendricks-angels-deal-cubs/
+**Free agent Alex Bregman undergoes minor elbow surgery**\
+`Bregman played the final month and a half of the Houston Astros’ season with what he described as “gremlins” in his right elbow.`\
+https://nytimes.com/athletic/5903759/2024/11/06/alex-bregman-elbow-surgery-mlb-free-agency/
 
