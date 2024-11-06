@@ -1,3 +1,19 @@
+**When Will Donald Trump Take Office?**\
+`After his election victory, he will enter a two-month transition period as president-elect before being inaugurated on Jan. 20.`\
+https://nytimes.com/2024/11/06/us/politics/trump-white-house-timeline.html
+
+**A California Ballot Measure to Ban Forced Prison Labor Is Failing**\
+`Voters appear to be rejecting Proposition 6 in California, a measure to end involuntary servitude as a punishment for crime.`\
+https://nytimes.com/2024/11/06/us/politics/california-prop-6-measure-forced-prison-labor.html
+
+**How the Trump administration could enact a federal abortion ban.**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/how-the-trump-administration-could-enact-a-federal-abortion-ban
+
+**The Super Bowl favorites after the NFL trade deadline**\
+`The Lions are now the top challengers to the Chiefs, but both teams only got stronger through the trade deadline.`\
+https://nytimes.com/athletic/5903459/2024/11/06/super-bowl-2025-odds-nfl-trade-deadline-chiefs-lions/
+
 **Tammy Baldwin Defeats Eric Hovde in Wisconsin Senate Race**\
 `In the past few election cycles, incumbency has proved powerful in Wisconsin regardless of party.`\
 https://nytimes.com/2024/11/05/us/politics/tammy-baldwin-eric-hovde-wisconsin-senate.html
