@@ -1,3 +1,15 @@
+**Moreno Defeats Brown in Ohio, Putting G.O.P. Within Reach of Senate Control**\
+`With the victory of Bernie Moreno, a wealthy former car dealer and political novice, Republicans had enough seats to win the Senate majority unless Democrats scored an upset.`\
+https://nytimes.com/2024/11/05/us/elections/ohio-senate-brown-moreno.html
+
+**Missouri Voters Pass Measure to Protect Abortion Rights and End Ban**\
+`A ballot amendment enshrining reproductive rights in the State Constitution would void one of the strictest abortion bans in the country.`\
+https://nytimes.com/2024/11/05/us/missouri-abortion-measure.html
+
+**With Mannion Win, N.Y. Democrats Flip First House Seat in the Country**\
+`State Senator John Mannion beat the incumbent, Representative Brandon Williams, in central New York, in a crucial win in the battle for the House.`\
+https://nytimes.com/2024/11/05/nyregion/new-york-house-mannion-williams.html
+
 **Why Are Democrats Losing Support?**\
 `By Ross Douthat and Ezra Klein`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/why-are-democrats-losing-support
