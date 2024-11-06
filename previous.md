@@ -1,3 +1,11 @@
+**Voters to Elites: Do You See Me Now?**\
+`Donald Trump is a monstrous narcissist, but there’s something off about an educated class that looks in the mirror of society and sees only itself.`\
+https://nytimes.com/2024/11/06/opinion/trump-elites-working-class.html
+
+**The Dollar’s Rise Isn’t a Vote of Confidence in Trump**\
+`His tariff policy will not make America great again.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/dollar-value-rise-trump
+
 **What to watch in college football this week: Alabama-LSU rivalry leads Week 11 matchups**\
 `What to watch – and why to watch – as college football amps up to Week 11.`\
 https://nytimes.com/athletic/5901919/2024/11/06/college-football-watch-guide-week-11-alabama-lsu-odds/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5901919/2024/11/06/college-football-watch-guide-wee
 https://nytimes.com/athletic/5904514/2024/11/06/joe-douglas-jets-gm-state-of-jets-season/
 
 **Plea Deals for Accused 9/11 Plotters Are Valid, Judge Rules**\
-`A military judge said he would move forward with accepting guilty pleas from three defendants in exchange for life sentences in the long-running case.`\
+`A military judge said he would move forward with accepting guilty pleas from three defendants in exchange for life sentences. The agreements had been rescinded by the defense secretary.`\
 https://nytimes.com/2024/11/06/us/politics/gitmo-plea-agreement.html
 
 **Joseph Rykwert, Architectural Historian Who Challenged Modernism, Dies at 98**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/harris-woman-president.html
 **After Trump Took the Lead, Election Deniers Went Suddenly Silent**\
 `Trump supporters spent years fomenting concern about election integrity. On Tuesday, they set it all aside.`\
 https://nytimes.com/2024/11/06/technology/trump-election-denial.html
-
-**Grant Ujifusa, 82, Dies; Lobbied for Redress for Japanese Americans**\
-`He helped sway Ronald Reagan to sign a bill offering cash and an apology to Japanese Americans who had been imprisoned during World War II.`\
-https://nytimes.com/2024/11/06/us/grant-ujifusa-dead.html
-
-**Richard Winfield, Protector of Press Freedom, Dies at 91**\
-`As a lawyer for The Associated Press and other news outlets, he challenged efforts to muzzle reporters and organized lawyers to promote free expression around the world.`\
-https://nytimes.com/2024/11/06/business/media/richard-winfield-dead.html
 

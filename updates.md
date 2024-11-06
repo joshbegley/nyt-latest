@@ -1,3 +1,15 @@
+**Voters to Elites: Do You See Me Now?**\
+`Donald Trump is a monstrous narcissist, but there’s something off about an educated class that looks in the mirror of society and sees only itself.`\
+https://nytimes.com/2024/11/06/opinion/trump-elites-working-class.html
+
+**The Dollar’s Rise Isn’t a Vote of Confidence in Trump**\
+`His tariff policy will not make America great again.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/dollar-value-rise-trump
+
+**Plea Deals for Accused 9/11 Plotters Are Valid, Judge Rules**\
+`A military judge said he would move forward with accepting guilty pleas from three defendants in exchange for life sentences. The agreements had been rescinded by the defense secretary.`\
+https://nytimes.com/2024/11/06/us/politics/gitmo-plea-agreement.html
+
 **What to watch in college football this week: Alabama-LSU rivalry leads Week 11 matchups**\
 `What to watch – and why to watch – as college football amps up to Week 11.`\
 https://nytimes.com/athletic/5901919/2024/11/06/college-football-watch-guide-week-11-alabama-lsu-odds/
