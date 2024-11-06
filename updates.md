@@ -1,3 +1,15 @@
+**Blues’ Holloway takes puck to neck, in stable condition**\
+`Holloway exited during the first period after being hit in the neck area by a shot from Tampa Bay's Nick Paul.`\
+https://nytimes.com/athletic/5902114/2024/11/05/dylan-holloway-neck-injury-blues/
+
+**Republicans Make Early Gain in Push for Control of the Senate**\
+`As expected, Gov. Jim Justice won the seat left open by the retirement of Senator Joe Manchin III, putting the G.O.P. one seat away from a majority. But critical seats remained up for grabs.`\
+https://nytimes.com/2024/11/05/us/politics/republicans-senate-control.html
+
+**A county elections office in Arizona is evacuated after a bomb threat.**\
+`The threat, one of at least six received in Arizona today, is likely to slow ballot counting in La Paz County.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/a-county-elections-office-in-arizona-is-evacuated-after-a-bomb-threat
+
 **Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
 `Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
 https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
