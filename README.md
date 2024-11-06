@@ -1,3 +1,7 @@
+**Parents of Harlem Boy Who Starved to Death Are Charged With Murder**\
+`The parents of Jahmeik Modlin, 4, were initially charged with manslaughter. They are accused of locking away food from their children and showing “depraved indifference” for their son’s life.`\
+https://nytimes.com/2024/11/06/nyregion/jahmeik-modlin-starve-death.html
+
 **Paul George has no 'ill will' against Clippers ahead of return to L.A.**\
 `The Sixers star who always envisioned retiring in a Clippers jersey still has nothing but good things to say about his old team.`\
 https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/trump-republicans-cheney-mcconnell-ro
 **Explaining Mings’ ‘very strange’ penalty error - and why he was punished but Arsenal's Gabriel was not**\
 `The Villa defender had a nightmare Champions League debut after being punished for picking up a goal kick against Club Bruges.`\
 https://nytimes.com/athletic/5904076/2024/11/06/mings-handball-rules-villa-penalty-why/
-
-**Banned From Atlanta: The Challenges of Young Thug’s Unique Probation**\
-`The rapper was released from jail last week after a surprise guilty plea. For 15 years, a set of strict requirements will govern his life and music.`\
-https://nytimes.com/2024/11/06/arts/music/young-thug-probation.html
 

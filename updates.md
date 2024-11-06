@@ -1,3 +1,7 @@
+**Paul George has no 'ill will' against Clippers ahead of return to L.A.**\
+`The Sixers star who always envisioned retiring in a Clippers jersey still has nothing but good things to say about his old team.`\
+https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-return/
+
 **Paul George has no 'ill will' against Clippers ahead of return to LA**\
 `The Sixers star who always envisioned retiring in a Clippers jersey still has nothing but good things to say about his old team.`\
 https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-return/
