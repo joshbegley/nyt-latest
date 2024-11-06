@@ -1,15 +1,3 @@
-**New York Delivers Key House Wins, but Warning Bells Sound for Democrats**\
-`Although Democrats flipped at least two House seats in New York, Donald J. Trump did better than any Republican presidential candidate since the 1980s.`\
-https://nytimes.com/2024/11/06/nyregion/democrats-house-ny.html
-
-**How the Yankees should interpret Scott Boras' free-agent pitch for Juan Soto**\
-`“You have the Mona Lisa of the museum,” Boras said Wednesday about Soto. “You have the attraction."`\
-https://nytimes.com/athletic/5903772/2024/11/06/yankees-juan-soto-scott-boras-free-agency/
-
-**Zelensky urges Trump to help defend Ukraine against Russia.**\
-`By Edward Wong`\
-https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/zelensky-urges-trump-to-help-defend-ukraine-against-russia
-
 **Cole Leinart, son of former USC star Matt Leinart, commits to SMU**\
 `The Class of 2026 QB prospect landed an offer from SMU this week. He quickly accepted. `\
 https://nytimes.com/athletic/5904255/2024/11/06/recruiting-smu-cole-leinart-matt-smu/
@@ -37,4 +25,16 @@ https://nytimes.com/2024/11/06/us/politics/senate-republican-majority.html
 **Why Does It Take So Long to Call the House?**\
 `The sheer volume of seats up for grabs, the painstaking process for calling congressional races and the complexities of California conspire to drag out the process, possibly for days.`\
 https://nytimes.com/2024/11/06/us/politics/why-does-it-take-so-long-to-call-the-house.html
+
+**My Manifesto for Despairing Democrats**\
+`Here’s how to be a watchdog, not a lapdog, for the next four tumultuous years, while holding on to your sanity.`\
+https://nytimes.com/2024/11/06/opinion/trump-democrats-loss.html
+
+**Germany’s Coalition Collapses, Leaving the Government Teetering**\
+`After months of disputes, Chancellor Olaf Scholz ousted one of his governing partners, adding to the challenges for Europe since Donald Trump’s election.`\
+https://nytimes.com/2024/11/06/world/europe/germany-coalition-collapse-government.html
+
+**Parents of Harlem Boy Who Starved to Death Are Charged With Murder**\
+`The parents of Jahmeik Modlin, 4, were initially charged with manslaughter. They are accused of locking away food from their children and showing “depraved indifference” for their son’s life.`\
+https://nytimes.com/2024/11/06/nyregion/jahmeik-modlin-starve-death.html
 
