@@ -1,3 +1,19 @@
+**Is Abortion Turning the Gender Gap Into a Chasm?**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/is-abortion-turning-the-gender-gap-into-a-chasm
+
+**MLB GM meetings: Royals seek leadoff help, Orioles have money for top pitcher**\
+`Jonathan India would be an intriguing fit to bat in front of Bobby Witt Jr. as the Royals look to bolster their offense.`\
+https://nytimes.com/athletic/5902015/2024/11/05/mlb-gm-meetings-bobby-witt-willy-adames/
+
+**Flooding in Missouri Kills at Least 4, Including 2 Poll Workers**\
+`The governor activated emergency operations procedures after the deaths on Tuesday after days of heavy rainfall, flash flooding and tornadoes.`\
+https://nytimes.com/2024/11/05/us/missouri-flooding-emergency.html
+
+**College Football Playoff committee got BYU — a team with a top-5 resume — all wrong**\
+`Kalani Sitake’s Cougars are 8-0 and have one of the best wins in the field — at SMU — yet are No. 9 in the initial rankings.`\
+https://nytimes.com/athletic/5902052/2024/11/05/college-football-playoff-rankings-byu/
+
 **Rosenthal: Gerrit Cole's compromise, David Ross' possible dugout return and more MLB notes**\
 `Plus why Jorge Soler's deal to the Angels makes more sense than it seemed and Garrett Crochet's offseason demand. `\
 https://nytimes.com/athletic/5902035/2024/11/05/mlb-notes-yankees-gerrit-cole-orioles-david-ross/

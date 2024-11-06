@@ -1,3 +1,19 @@
+**Is Abortion Turning the Gender Gap Into a Chasm?**\
+`By Ross Douthat, Ezra Klein and Aaron Retica`\
+https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/is-abortion-turning-the-gender-gap-into-a-chasm
+
+**MLB GM meetings: Royals seek leadoff help, Orioles have money for top pitcher**\
+`Jonathan India would be an intriguing fit to bat in front of Bobby Witt Jr. as the Royals look to bolster their offense.`\
+https://nytimes.com/athletic/5902015/2024/11/05/mlb-gm-meetings-bobby-witt-willy-adames/
+
+**Flooding in Missouri Kills at Least 4, Including 2 Poll Workers**\
+`The governor activated emergency operations procedures after the deaths on Tuesday after days of heavy rainfall, flash flooding and tornadoes.`\
+https://nytimes.com/2024/11/05/us/missouri-flooding-emergency.html
+
+**College Football Playoff committee got BYU — a team with a top-5 resume — all wrong**\
+`Kalani Sitake’s Cougars are 8-0 and have one of the best wins in the field — at SMU — yet are No. 9 in the initial rankings.`\
+https://nytimes.com/athletic/5902052/2024/11/05/college-football-playoff-rankings-byu/
+
 **Rosenthal: Gerrit Cole's compromise, David Ross' possible dugout return and more MLB notes**\
 `Plus why Jorge Soler's deal to the Angels makes more sense than it seemed and Garrett Crochet's offseason demand. `\
 https://nytimes.com/athletic/5902035/2024/11/05/mlb-notes-yankees-gerrit-cole-orioles-david-ross/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/tru
 **Trump Team Revokes Election Party Access for Some Journalists**\
 `A reporter for Puck and other journalists were barred after critical coverage of the campaign.`\
 https://nytimes.com/2024/11/05/business/media/trump-election-party-access-journalists.html
-
-**Contractor Who Defrauded Navy of Millions and Fled Gets 15 Years in Prison**\
-`Leonard Glenn Francis, known as Fat Leonard, bribed Navy officials with cash and luxury goods in exchange for over $30 million in contracts for his business, officials said.`\
-https://nytimes.com/2024/11/05/us/fat-leonard-navy-contractor-sentenced.html
-
-**Trump Is the First Republican Presidential Candidate to Win Miami-Dade County Since 1988**\
-`Florida has transformed from a battleground state into one that votes reliably Republican. The county, a former Democratic stronghold, has followed the trend.`\
-https://nytimes.com/2024/11/05/us/trump-miami-dade-florida.html
-
-**Penn State's No. 6 ranking backed by road wins, hanging with Ohio State, CFP committee says**\
-`The Nittany Lions are a projected No. 7 seed in the 12-team bracket and would host No. 10 seed Notre Dame. `\
-https://nytimes.com/athletic/5901389/2024/11/05/penn-state-college-football-playoff-rankings-analysis/
-
-**What do first Playoff rankings mean for Georgia, SEC?**\
-`Nobody from the SEC is definitely in the field yet, and seven teams still have a realistic shot, led by Georgia.`\
-https://nytimes.com/athletic/5901994/2024/11/05/college-football-playoff-rankings-georgia-sec/
 

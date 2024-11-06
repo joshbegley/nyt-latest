@@ -1,3 +1,11 @@
+**Technical problems slow Navajo voting in Arizona.**\
+`Printer problems in heavily Democratic Apache County led to long lines and discouraged voters, according to tribal officials.`\
+https://nytimes.com/live/2024/11/05/us/trump-harris-election/technical-problems-slow-navajo-voting-in-arizona
+
+**Abortion Rights Measure Fails in Florida**\
+`The defeat is a political victory for Gov. Ron DeSantis, a Republican, who had become of the face of a well-funded opposition campaign.`\
+https://nytimes.com/2024/11/05/us/florida-abortion-ballot-measure.html
+
 **Is Abortion Turning the Gender Gap Into a Chasm?**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/is-abortion-turning-the-gender-gap-into-a-chasm
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/05/us/politics/exit-polls-election.html
 **Josh Stein Defeats Mark Robinson in North Carolina Governor’s Race**\
 `Mr. Stein’s campaign focused on education and abortion rights. But the core of his message was that Mr. Robinson, the Republican, was unfit to lead the state.`\
 https://nytimes.com/2024/11/05/us/politics/north-carolina-governor-stein-robinson.html
-
-**Trump Is Cruising in Florida. Is It a Bad Sign for Harris?**\
-`By Ross Douthat and Aaron Retica`\
-https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/trump-is-cruising-in-florida-is-it-a-bad-sign-for-harris
-
-**Trump Team Revokes Election Party Access for Some Journalists**\
-`A reporter for Puck and other journalists were barred after critical coverage of the campaign.`\
-https://nytimes.com/2024/11/05/business/media/trump-election-party-access-journalists.html
 
