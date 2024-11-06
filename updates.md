@@ -1,3 +1,7 @@
+**Barrett Flips Key Michigan Seat for G.O.P., Defeating Hertel**\
+`Tom Barrett, a Republican former state senator, has defeated Curtis Hertel, claiming the Lansing-based seat won by Representative Elissa Slotkin, a Democrat, in 2018.`\
+https://nytimes.com/2024/11/06/us/elections/michigan-house-barrett-hertel.html
+
 **TV Networks Prepared for a Long Wait That Didn’t Come**\
 `Anchors were ready to camp out in the studio for days on end. Instead, Donald J. Trump declared victory in the early hours of Wednesday morning.`\
 https://nytimes.com/2024/11/06/business/media/tv-networks-election-night.html
