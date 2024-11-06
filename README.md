@@ -26,8 +26,8 @@ https://nytimes.com/2024/11/06/us/politics/abortion-ballot-measures.html
 `Donald J. Trump’s return to the White House could significantly affect a range of issues in his hometown, including immigration policy and congestion pricing.`\
 https://nytimes.com/2024/11/06/nyregion/trump-new-york-future.html
 
-**Blues' Dylan Holloway feeling 'OK' but not practicing day after taking puck to neck**\
-`It’s not known if Holloway will play in Thursday’s game against Utah, but at this point, all signs are positive with his health.`\
+**Blues' Dylan Holloway feeling 'OK' after taking puck to neck, could return Thursday**\
+`Holloway: "They told me no activity for 24 hours and then I’m good to go. I’m hoping to play tomorrow, but we’ll see.”`\
 https://nytimes.com/athletic/5903349/2024/11/06/blues-dylan-holloway-neck-injury/
 
 **What Trump’s Victory Says About America**\
