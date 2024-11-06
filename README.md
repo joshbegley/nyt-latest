@@ -1,3 +1,7 @@
+**Trump Speaks as He Moves Closer to an Election Win**\
+`The former president addressed his supporters after he moved closer to a second term in the White House by winning some key swing states.`\
+https://nytimes.com/video/us/elections/100000009810889/trump-election-day-speech.html
+
 **Early Results Show a Red Shift Across the U.S.**\
 `A Times analysis finds that nearly three-fourths of U.S. counties shifted in favor of Donald J. Trump.`\
 https://nytimes.com/interactive/2024/11/06/us/politics/presidential-election-2024-red-shift.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/south-dakota-abortion-amendment.html
 **Bortoleto to race for Sauber F1 in 2025 as Bottas, Guanyu leave team**\
 `Gabriel Bortoleto will become the fourth full-time rookie on the Formula One grid next season after completing Sauber’s line-up for 2025.`\
 https://nytimes.com/athletic/5902669/2024/11/06/gabriel-bortoleto-sauber-f1-team/
-
-**Arizona Voters Approve Abortion Rights Amendment**\
-`Like those in other states, the Arizona measure essentially establishes abortion protections in the State Constitution as a “fundamental right.”`\
-https://nytimes.com/2024/11/06/us/arizona-abortion-ballot-measure.html
 
