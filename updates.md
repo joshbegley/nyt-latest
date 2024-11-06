@@ -1,3 +1,7 @@
+**Harris Shows Trump How to Concede**\
+`Even if only one candidate is gracious enough to do it.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/harris-concession-democracy
+
 **Zelensky Urges Trump to Help Defend Ukraine Against Russia**\
 `President-elect Donald J. Trump has often shown disdain toward Ukraine and its leader, President Volodymyr Zelensky.`\
 https://nytimes.com/2024/11/06/us/politics/zelensky-trump-ukraine-russia.html

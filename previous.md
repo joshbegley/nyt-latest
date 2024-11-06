@@ -1,3 +1,7 @@
+**Harris Shows Trump How to Concede**\
+`Even if only one candidate is gracious enough to do it.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/harris-concession-democracy
+
 **Voters Reject Efforts to Loosen Drug Laws in Several States**\
 `Measures to legalize marijuana for recreational use failed in Florida and North Dakota. Massachusetts voters declined to allow psychedelics to be legal for therapeutic use.`\
 https://nytimes.com/2024/11/06/us/florida-marijuana-massachusetts-psychedelics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904078/2024/11/06/travis-kelce-jason-phone-inciden
 **Caleb Williams and DJ Moore need to get on the same page, plus more Bears fallout**\
 `The Bears have a lot to sort through after back-to-back losses, including another team meeting and more injuries`\
 https://nytimes.com/athletic/5904200/2024/11/06/bears-caleb-williams-dj-moore/
-
-**Special Edition: What a Trump Victory Means**\
-`Plus, what to expect from his foreign policy.`\
-https://nytimes.com/2024/11/06/briefing/trump-victory-foreign-policy.html
 
