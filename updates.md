@@ -1,3 +1,7 @@
+**New Yorkers Pass an Equal Rights Amendment Tied to Abortion Access**\
+`Proposition 1 was aggressively opposed by Republicans, who tried to cast it as an attack on girls’ sports and a giveaway to migrants.`\
+https://nytimes.com/2024/11/05/nyregion/new-york-proposition-1-abortion.html
+
 **Joe Biden Put Democrats in a Tough Spot**\
 `By Ross Douthat, Ezra Klein and Aaron Retica`\
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/joe-biden-put-democrats-in-a-tough-spot
