@@ -1,3 +1,15 @@
+**Trump Has History of Strong Support for Israel**\
+`Donald Trump staunchly supported Israel during his first term as president, even when that meant reversing decades of American policy.`\
+https://nytimes.com/2024/11/06/world/middleeast/trump-israel-policy.html
+
+**All WSL and Championship matches to be held at main stadia for first time**\
+`Every match across the top two tiers of English women’s football will be played at the home side’s main stadium for the first time on the weekend of November 16-17.`\
+https://nytimes.com/athletic/5903128/2024/11/06/wsl-championship-stadium-fixtures/
+
+**The Bounce: Breaking down Joel Embiid's (brief) ban by NBA**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5902992/2024/11/06/joel-embiid-76ers-suspended-juju-watkins-usc-paige-bueckers-uconn-nba-the-bounce/
+
 **Tesla’s Stock Jumps After Trump’s Victory**\
 `Investors believe that the electric car company led by Elon Musk will benefit from his support of the president-elect.`\
 https://nytimes.com/2024/11/06/business/tesla-stock-elon-musk-trump.html

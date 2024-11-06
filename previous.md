@@ -1,3 +1,15 @@
+**Trump Has History of Strong Support for Israel**\
+`Donald Trump staunchly supported Israel during his first term as president, even when that meant reversing decades of American policy.`\
+https://nytimes.com/2024/11/06/world/middleeast/trump-israel-policy.html
+
+**All WSL and Championship matches to be held at main stadia for first time**\
+`Every match across the top two tiers of English women’s football will be played at the home side’s main stadium for the first time on the weekend of November 16-17.`\
+https://nytimes.com/athletic/5903128/2024/11/06/wsl-championship-stadium-fixtures/
+
+**The Bounce: Breaking down Joel Embiid's (brief) ban by NBA**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5902992/2024/11/06/joel-embiid-76ers-suspended-juju-watkins-usc-paige-bueckers-uconn-nba-the-bounce/
+
 **Tesla’s Stock Jumps After Trump’s Victory**\
 `Investors believe that the electric car company led by Elon Musk will benefit from his support of the president-elect.`\
 https://nytimes.com/2024/11/06/business/tesla-stock-elon-musk-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5903174/2024/11/06/penguins-today-blown-leads/
 **Ohio Voters Reject Ban on Partisan Gerrymanders**\
 `The issue was perhaps the most closely watched among the many democracy-related ballot measures in the country.`\
 https://nytimes.com/2024/11/06/us/ohio-gerrymander-ballot-issue.html
-
-**Trump, Again**\
-`In the early hours of Wednesday morning, Donald J. Trump was elected president for a second time. Shortly before that call was made, the Times journalists Michael Barbaro, Nate Cohn, Lisa Lerer and Astead W. Herndon sat down to discuss the state of the election.`\
-https://nytimes.com/video/podcasts/the-daily/100000009802784/election-results-trump-harris.html
-
-**A look at the battlefield after Yoav Gallant was ousted as Israel’s defense minister.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/a-look-at-the-battlefield-after-yoav-gallant-was-ousted-as-israels-defense-minister
-
-**‘Trump’s America’: Comeback Victory Signals a Different Kind of Country**\
-`In the end, Donald J. Trump is not the historical aberration some thought he was, but instead a transformational force reshaping the modern United States in his own image.`\
-https://nytimes.com/2024/11/06/us/politics/trump-america-election-victory.html
 
