@@ -1,3 +1,7 @@
+**Amorim gives United hope with City win, Spurs' reason to be cheerful, crisis at Real Madrid?**\
+`Today in TAFC: Amorim's win over City gives Manchester United hope - and are Real Madrid in crisis? Plus: Why Spurs may be trending upwards`\
+https://nytimes.com/athletic/5902853/2024/11/06/amorim-united-city-champions-league/
+
 **Kurz: Flyers' embarrassing backup goalie situation looks like first major error of new regime**\
 `The Flyers have yet to win a game, or even earn a single point, in the six games that either Aleksei Kolosov or Ivan Fedotov have played.`\
 https://nytimes.com/athletic/5902509/2024/11/06/flyers-hurricanes-nhl-goalies-kolosov-fedotov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902812/2024/11/06/benjamin-mendy-manchester-city-c
 **Election night in swing state Michigan? There's a MACtion distraction for that**\
 `The crowd that showed up to watch Central Michigan play Bowling Green was not especially large, but fans were grateful for the distraction.`\
 https://nytimes.com/athletic/5902417/2024/11/06/election-day-mac-college-football-michigan/
-
-**‘An act of madness’: Israeli news commentators condemn Gallant’s firing.**\
-`By Aryn Baker`\
-https://nytimes.com/live/2024/11/06/world/israel-gaza-iran-lebanon/an-act-of-madness-israeli-news-commentators-condemn-gallants-firing
 
