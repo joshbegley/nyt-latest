@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/05/us/politics/california-senate-schiff-garvey.html
 `More than 60 percent of posts discussing election fraud on X on Tuesday focused on the state, according to an analysis of about 25,000 posts.`\
 https://nytimes.com/2024/11/05/technology/pennsylvania-election-disinformation.html
 
-**Maple Leafs report cards: Special teams breakthrough ends losing streak**\
+**Maple Leafs report cards: Special teams breakthrough ends losing skid**\
 `The power play finally roared back to life as the Leafs scored three of their four goals with the man advantage.`\
 https://nytimes.com/athletic/5901768/2024/11/05/maple-leafs-report-cards-special-teams-bruins/
 
