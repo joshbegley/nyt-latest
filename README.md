@@ -1,3 +1,7 @@
+**Bengals' lack of defensive additions at trade deadline amplifies focus on draft classes**\
+`Standing pat on defense was a missed opportunity but Cincinnati is confident its young homegrown players can fill needs.`\
+https://nytimes.com/athletic/5902019/2024/11/06/bengals-trade-deadline-defense-draft-picks/
+
 **Notre Dame mailbag: Could Irish miss the College Football Playoff at 11-1?**\
 `Debating Notre Dame's Playoff prospects at No. 10, plus depth under Marcus Freeman compared to Brian Kelly and more questions.`\
 https://nytimes.com/athletic/5902302/2024/11/06/notre-dame-college-football-playoff-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/arts/music/vibraphone-jazz-music.html
 **‘If We Care About Justice in America, There’s Going to Be a Lot of Work to Do’**\
 `Two Opinion writers consider a second term for Donald Trump.`\
 https://nytimes.com/2024/11/06/opinion/donald-trump-election-2024.html
-
-**Trump Offered Men Something That Democrats Never Could**\
-`A set of easy answers that’s a formula for more alienation and anger`\
-https://nytimes.com/2024/11/06/opinion/trump-white-young-men.html
 
