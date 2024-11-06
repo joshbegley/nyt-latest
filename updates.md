@@ -1,3 +1,7 @@
+**Trump Speaks as He Moves Closer to an Election Win**\
+`The former president addressed his supporters after he moved closer to a second term in the White House by winning some key swing states.`\
+https://nytimes.com/video/us/elections/100000009810889/trump-election-day-speech.html
+
 **Early Results Show a Red Shift Across the U.S.**\
 `A Times analysis finds that nearly three-fourths of U.S. counties shifted in favor of Donald J. Trump.`\
 https://nytimes.com/interactive/2024/11/06/us/politics/presidential-election-2024-red-shift.html
