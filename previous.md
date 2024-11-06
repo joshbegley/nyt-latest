@@ -1,3 +1,23 @@
+**Harris will address the nation in a concession speech on Wednesday.**\
+`Vice President Kamala Harris is slated to speak at 4 p.m. Eastern time from Howard University, according to a campaign official briefed on her plans.`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/harris-concession-speech-address-time
+
+**What we're seeing with the Bucks: Andre Jackson Jr. in the dunker and Bobby Portis' usage**\
+`Jackson has seen his playing time increase, which may be a good thing, while Portis has seen his usage rate increase, which may not.`\
+https://nytimes.com/athletic/5901355/2024/11/06/bucks-andre-jackson-jr-bobby-portis/
+
+**What to Know About Trump’s New York Criminal Case After the Election**\
+`Donald J. Trump, the first felon elected president, has a sentencing scheduled for Nov. 26. He has many ways to avoid punishment.`\
+https://nytimes.com/2024/11/06/nyregion/trump-criminal-case-new-york.html
+
+**Jeff Bezos Congratulates Trump on Victory**\
+`Mr. Bezos, who also owns The Washington Post, recently quashed the newspaper’s endorsement of Vice President Kamala Harris.`\
+https://nytimes.com/2024/11/06/business/media/jeff-bezos-trump.html
+
+**Ex-Cub Kyle Hendricks close to signing with Angels**\
+`Hendricks’ composure, knowledge and experience will be assets for the Angels as they try to build up their pitching program.`\
+https://nytimes.com/athletic/5903715/2024/11/06/kyle-hendricks-angels-deal-cubs/
+
 **Trump Bump 2.0? Experts Expect Another Audience Surge, With Caveats.**\
 `News fatigue and changing consumption habits could sap some of that enthusiasm over time, several news media experts said.`\
 https://nytimes.com/2024/11/06/business/media/trump-newspapers-cable-news-audience.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5863396/2024/11/06/mohammed-kudus-west-ham-suspende
 **Warren Washington, Groundbreaking Climate Scientist, Dies at 88**\
 `He invented a computer model that made it possible to measure human-induced climate change. He also helped break a color barrier in science.`\
 https://nytimes.com/2024/11/06/climate/warren-washington-dead.html
-
-**Scoop City: Ranking the trade deadline winners and losers**\
-`A look at why the Vikings, Lions, Chiefs, Commanders and Ravens won, while the Cowboys (and trade lovers) lost.`\
-https://nytimes.com/athletic/5903614/2024/11/06/nfl-trade-deadline-winners-and-losers-from-the-commanders-to-the-cowboys/
-
-**What can United fans learn about Amorim from Sporting's win over City?**\
-`Last night's 4-1 victory is evidence Amorim is a good coach but his new club must be restructured into a unit if they are to hit such highs`\
-https://nytimes.com/athletic/5902693/2024/11/06/man-united-ruben-amorim-sporting-man-city/
-
-**He’s Getting Raves for a Role He Wasn’t Supposed to Play**\
-`Seventeen years after he first appeared in “Yellow Face,” the veteran actor Francis Jue has returned with a nuanced performance as a blustery patriarch.`\
-https://nytimes.com/2024/11/06/theater/francis-jue-yellow-face-broadway.html
-
-**Ohio Republicans Expand Control of State Supreme Court**\
-`The race was one of several that reflected the increasing politicization and influence of state supreme courts nationwide.`\
-https://nytimes.com/2024/11/06/us/ohio-supreme-court.html
-
-**The Crypto Industry Spent Over $130 Million on the Election. It Paid Off.**\
-`The spending spree fueled a string of victories on Tuesday for congressional candidates who had expressed support for cryptocurrencies.`\
-https://nytimes.com/2024/11/06/technology/crypto-industry-spending-election.html
 
