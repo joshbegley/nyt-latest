@@ -1,3 +1,7 @@
+**Tammy Baldwin Defeats Eric Hovde in Wisconsin Senate Race**\
+`In the past few election cycles, incumbency has proved powerful in Wisconsin regardless of party.`\
+https://nytimes.com/2024/11/05/us/politics/tammy-baldwin-eric-hovde-wisconsin-senate.html
+
 **'Holy Grail' Wayne Gretzky rookie card case going back to auction**\
 `After the original auction winner failed to pay, the coveted case of hockey cards is going back on sale.`\
 https://nytimes.com/athletic/5903800/2024/11/06/wayne-gretzky-rookie-cards-auction/

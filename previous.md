@@ -1,3 +1,7 @@
+**Tammy Baldwin Defeats Eric Hovde in Wisconsin Senate Race**\
+`In the past few election cycles, incumbency has proved powerful in Wisconsin regardless of party.`\
+https://nytimes.com/2024/11/05/us/politics/tammy-baldwin-eric-hovde-wisconsin-senate.html
+
 **Geoff Capes, World’s Strongest Man and Champion Bird Breeder, Dies at 75**\
 `He pulled dump trucks, flipped cars and tossed five-pound bricks as if they were Kleenex boxes. Tending to parakeets brought out his gentler side.`\
 https://nytimes.com/2024/11/06/world/europe/geoff-capes-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/opinion/trump-wins-election.html
 **What Trump’s Victory Means for Climate Change**\
 `President-elect Donald J. Trump promised to delete climate policy. He could face pushback from Republicans benefiting from a boom in clean energy.`\
 https://nytimes.com/2024/11/06/climate/trump-climate-change.html
-
-**What’s in Our Queue? John Coltrane and More**\
-`By Dwight Garner`\
-https://nytimes.com/card/2024/11/06/arts/editors-recommendations-johncoltrane
 
