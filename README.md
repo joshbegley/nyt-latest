@@ -15,7 +15,7 @@ https://nytimes.com/2024/11/05/us/elections/west-virginia-senate-justice-elliott
 https://nytimes.com/live/2024/11/05/opinion/ezra-klein-ross-douthat-election/how-culture-wars-have-shaped-politics
 
 **Miami debuts at No. 4 in College Football Playoff rankings, controls its own destiny**\
-`It’s the first time the program has been ranked in the poll since the 2020 season and its highest ranking since 2017.`\
+`It's the first time the program has been ranked in the poll since the 2020 season and its highest ranking since 2017.`\
 https://nytimes.com/athletic/5901682/2024/11/05/miami-college-football-playoff-ranking/
 
 **CFP rankings revealed: Oregon takes top spot, who snuck into top 12?**\
