@@ -1,3 +1,7 @@
+**Biden Promises Americans an Orderly Transition of Power to Trump**\
+`President Biden vowed to honor the Constitution with an orderly transfer of power to President-elect Donald J. Trump.`\
+https://nytimes.com/video/us/elections/100000009813660/biden-trump-election-transfer-power.html
+
 **NFL best bets Week 10: Betting Dolphins to get another loss on Monday, plus a teaser**\
 `Austin Mock's model suggest three NFL bets to make this week on primetime matchups, plus a teaser. `\
 https://nytimes.com/athletic/5906598/2024/11/07/nfl-best-bets-week-10-dolphins-bengals-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/arts/design/salon-art-design-fair-park-avenue-arm
 **NASCAR driver fined for absence at media event says he traveled home to vote**\
 `Majeski was docked money for “Failure to complete media obligations,” which falls under NASCAR’s member conduct code.`\
 https://nytimes.com/athletic/5906483/2024/11/07/nascar-driver-fined-voting-majeski/
-
-**No-Rules Friendsgiving**\
-`A November dinner with friends is for cooking whatever you want, like roasted brussels sprouts Caesar or a caramelized onion tachin.`\
-https://nytimes.com/2024/11/07/dining/no-rules-friendsgiving.html
 

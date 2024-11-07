@@ -1,3 +1,7 @@
+**Biden Promises Americans an Orderly Transition of Power to Trump**\
+`President Biden vowed to honor the Constitution with an orderly transfer of power to President-elect Donald J. Trump.`\
+https://nytimes.com/video/us/elections/100000009813660/biden-trump-election-transfer-power.html
+
 **NFL best bets Week 10: Betting Dolphins to get another loss on Monday, plus a teaser**\
 `Austin Mock's model suggest three NFL bets to make this week on primetime matchups, plus a teaser. `\
 https://nytimes.com/athletic/5906598/2024/11/07/nfl-best-bets-week-10-dolphins-bengals-ravens/

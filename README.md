@@ -1,3 +1,7 @@
+**'Buffalo Joe' Andreessen gets his rookie card wish fulfilled**\
+`An avid collector, Andreesssen dreamed of getting his own rookie card but knew it was far from guaranteed `\
+https://nytimes.com/athletic/5905615/2024/11/07/buffalo-bills-joe-andreessen-rookie-card-panini/
+
 **Biden Promises Americans an Orderly Transition of Power to Trump**\
 `President Biden vowed to honor the Constitution with an orderly transfer of power to President-elect Donald J. Trump.`\
 https://nytimes.com/video/us/elections/100000009813660/biden-trump-election-transfer-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906566/2024/11/07/riley-leonard-notre-dame-quarter
 **At Salon Art + Design, Nature and Beauty Come Center Stage**\
 `More than 50 galleries tease the lines between function and decoration, in a year when the fair has a far-reaching mission: to give more artists a chance to be seen.`\
 https://nytimes.com/2024/11/07/arts/design/salon-art-design-fair-park-avenue-armory.html
-
-**NASCAR driver fined for absence at media event says he traveled home to vote**\
-`Majeski was docked money for “Failure to complete media obligations,” which falls under NASCAR’s member conduct code.`\
-https://nytimes.com/athletic/5906483/2024/11/07/nascar-driver-fined-voting-majeski/
 
