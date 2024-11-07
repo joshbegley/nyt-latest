@@ -1,3 +1,11 @@
+**Liverpool mailbag: Send your questions to James Pearce now**\
+`The flying start to the season? Transfer targets? Contract developments? Ask your questions here…`\
+https://nytimes.com/athletic/5906433/2024/11/07/liverpool-mailbag-transfers-contracts-form/
+
+**Rice expected to play against Chelsea despite toe injury**\
+`Declan Rice is expected to play for Arsenal against Chelsea on Sunday, despite managing a toe injury.`\
+https://nytimes.com/athletic/5902704/2024/11/07/arsenal-declan-rice-injury-chelsea/
+
 **If the Fed Is Cutting Rates, Why Are Mortgage Rates Rising?**\
 `The latest rise, to 6.79% for a 30-year mortgage, reflects bond market concern about President-elect Trump’s agenda. It extends an uptick in mortgage rates despite expected Federal Reserve rate cuts.`\
 https://nytimes.com/2024/11/07/business/fed-mortgage-rates.html

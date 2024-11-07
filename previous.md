@@ -1,3 +1,7 @@
+**Liverpool mailbag: Send your questions to James Pearce now**\
+`The flying start to the season? Transfer targets? Contract developments? Ask your questions here…`\
+https://nytimes.com/athletic/5906433/2024/11/07/liverpool-mailbag-transfers-contracts-form/
+
 **If the Fed Is Cutting Rates, Why Are Mortgage Rates Rising?**\
 `The latest rise, to 6.79% for a 30-year mortgage, reflects bond market concern about President-elect Trump’s agenda. It extends an uptick in mortgage rates despite expected Federal Reserve rate cuts.`\
 https://nytimes.com/2024/11/07/business/fed-mortgage-rates.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/11/07/opinion/trump-harris-joy-anger.html
 
 **Rice expected to play against Chelsea despite toe injury**\
 `Declan Rice is expected to play for Arsenal against Chelsea on Sunday, despite managing a toe injury.`\
-https://nytimes.com/athletic/5902704/2024/11/07/arsenals-declan-rice-injury-chelsea/
+https://nytimes.com/athletic/5902704/2024/11/07/arsenal-declan-rice-injury-chelsea/
 
 **What Fed Rate Moves Mean for Your Finances**\
 `Here’s how the central bank’s interest rate moves influence car loans, credit cards, mortgages, savings and student loans.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5900189/2024/11/07/nfl-week-10-fantasy-football-inj
 **Trump’s Believers See a Presidency With God on Their Side**\
 `Many Christian conservatives saw the battle for the White House as a holy war. Now, with Donald Trump’s victory, their vision goes beyond politics.`\
 https://nytimes.com/2024/11/07/us/trump-believers-presidency-god.html
-
-**How Russia Openly Escalated Its Election Interference Efforts**\
-`The Kremlin did not bother to hide its efforts to influence the 2024 presidential election, as it did in the past.`\
-https://nytimes.com/2024/11/07/technology/russia-us-election-interference.html
 
