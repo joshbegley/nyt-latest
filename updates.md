@@ -1,3 +1,11 @@
+**NASCAR Cup Series Championship odds, predictions for Phoenix: Who wins?**\
+`The NASCAR Cup Series Championship is here. Who will win? Our experts break down the drama heading into Sunday's race.`\
+https://nytimes.com/athletic/5906333/2024/11/07/nascar-cup-series-championship-odds-expert-predictions-phoenix/
+
+**How much restraint should the Maple Leafs show with Auston Matthews?**\
+`The Leafs should think bigger picture right now with their best player.`\
+https://nytimes.com/athletic/5906634/2024/11/07/maple-leafs-auston-matthews-injury-2/
+
 **Jim Hoagland, Distinguished Journalist on World Affairs, Dies at 84**\
 `A two-time Pulitzer Prize winner, he was a reporter, editor and columnist for The Washington Post, renowned for his deeply sourced dispatches.`\
 https://nytimes.com/2024/11/07/business/media/jim-hoagland-dead.html
