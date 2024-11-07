@@ -1,3 +1,11 @@
+**Trump Is On Track to Win the Popular Vote**\
+`The projection was a further sign of the scale of Mr. Trump’s victory. In his first successful White House run in 2016, he received fewer votes nationally than Hillary Clinton.`\
+https://nytimes.com/2024/11/07/us/politics/trump-popular-vote-election-2024.html
+
+**What Is COP29? Here’s What to Know About Global Climate Talks Next Week.**\
+`Diplomats and leaders from around the world are gathering for annual climate negotiations. Here’s what they’re all about and what Donald Trump’s victory means for the meeting.`\
+https://nytimes.com/2024/11/07/climate/cop29-baku-azerbaijan.html
+
 **Higher Prices, Trade Wars and More: What to Know About Trump’s Tariffs**\
 `The president-elect says that tariff is “the most beautiful word in the dictionary.” You may be hearing it a lot.`\
 https://nytimes.com/2024/11/07/business/economy/trump-tariffs-trade-what-to-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/world/europe/germany-coalition-collapse-explained
 **NFL Draft watch: 'The Beast' early tidbits; 3 prospects to track this weekend**\
 `Did you know these details about 2025 NFL Draft prospects Tre Harris, Malaki Starks and Wyatt Milum? Plus, a preview of the weekend.`\
 https://nytimes.com/athletic/5903482/2024/11/07/nfl-draft-watch-2025-malaki-starks-tre-harris/
-
-**Hall, Harwood-Bellis handed first England call-ups in Carsley's final squad**\
-`Lee Carsley has named his final England squad as interim manager for the upcoming Nations League games against Republic of Ireland and Greece.`\
-https://nytimes.com/athletic/5900008/2024/11/07/england-squad-hall-harwood-bellis/
-
-**What Kamala Harris’s Loss Means To Black Women**\
-`Vice President Kamala Harris ran a 107-day campaign under extraordinarily rare circumstances after President Biden dropped out of the race.`\
-https://nytimes.com/video/us/elections/100000009812803/kamala-harris-concession-speech.html
 

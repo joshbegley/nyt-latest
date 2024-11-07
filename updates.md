@@ -1,3 +1,11 @@
+**Trump Is On Track to Win the Popular Vote**\
+`The projection was a further sign of the scale of Mr. Trump’s victory. In his first successful White House run in 2016, he received fewer votes nationally than Hillary Clinton.`\
+https://nytimes.com/2024/11/07/us/politics/trump-popular-vote-election-2024.html
+
+**What Is COP29? Here’s What to Know About Global Climate Talks Next Week.**\
+`Diplomats and leaders from around the world are gathering for annual climate negotiations. Here’s what they’re all about and what Donald Trump’s victory means for the meeting.`\
+https://nytimes.com/2024/11/07/climate/cop29-baku-azerbaijan.html
+
 **Higher Prices, Trade Wars and More: What to Know About Trump’s Tariffs**\
 `The president-elect says that tariff is “the most beautiful word in the dictionary.” You may be hearing it a lot.`\
 https://nytimes.com/2024/11/07/business/economy/trump-tariffs-trade-what-to-know.html
