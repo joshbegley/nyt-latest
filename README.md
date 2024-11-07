@@ -1,3 +1,7 @@
+**Prince William Says Past Year Was Probably the Hardest ‘in My Life’**\
+`While in South Africa for the Earthshot Prize, the prince told reporters that the cancer diagnoses of his wife, Catherine, and his father, King Charles, had been “brutal.”`\
+https://nytimes.com/2024/11/07/world/europe/prince-william-princess-kate-king-charles.html
+
 **Giuliani’s Delay in Handing Over Prized Assets Makes Judge Livid**\
 `A federal judge threatened Rudolph W. Giuliani with a contempt charge after a missed deadline to hand over prized possessions, including Yankees swag.`\
 https://nytimes.com/2024/11/07/nyregion/rudy-giuliani-court-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907248/2024/11/07/hector-herrera-spitting-referee-
 **Everton's McNeil a doubt for West Ham match with knee injury**\
 `Everton winger Dwight McNeil is a doubt for Saturday&#8217;s Premier League match against West Ham United due to a knee injury.`\
 https://nytimes.com/athletic/5906523/2024/11/07/dwight-mcneil-injury-everton/
-
-**Washington Post Employees Ordered Back to Office 5 Days a Week**\
-`All employees at The Post will be expected to return to the office by June 2. Managers must be back in the office full time by Feb. 3.`\
-https://nytimes.com/2024/11/07/business/media/washington-post-return-to-office.html
 

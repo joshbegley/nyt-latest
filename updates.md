@@ -1,3 +1,7 @@
+**Giuliani’s Delay in Handing Over Prized Assets Makes Judge Livid**\
+`A federal judge threatened Rudolph W. Giuliani with a contempt charge after a missed deadline to hand over prized possessions, including Yankees swag.`\
+https://nytimes.com/2024/11/07/nyregion/rudy-giuliani-court-hearing.html
+
 **What’s Next for Kamala Harris? Here Are Six Options.**\
 `Her friends, aides and political allies say it’s too soon for her to even contemplate her next career move. But the speculation has already begun.`\
 https://nytimes.com/2024/11/07/us/politics/kamala-harris-2028-run-for-president.html

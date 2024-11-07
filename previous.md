@@ -1,3 +1,7 @@
+**Giuliani’s Delay in Handing Over Prized Assets Makes Judge Livid**\
+`A federal judge threatened Rudolph W. Giuliani with a contempt charge after a missed deadline to hand over prized possessions, including Yankees swag.`\
+https://nytimes.com/2024/11/07/nyregion/rudy-giuliani-court-hearing.html
+
 **What’s Next for Kamala Harris? Here Are Six Options.**\
 `Her friends, aides and political allies say it’s too soon for her to even contemplate her next career move. But the speculation has already begun.`\
 https://nytimes.com/2024/11/07/us/politics/kamala-harris-2028-run-for-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906523/2024/11/07/dwight-mcneil-injury-everton/
 **Washington Post Employees Ordered Back to Office 5 Days a Week**\
 `All employees at The Post will be expected to return to the office by June 2. Managers must be back in the office full time by Feb. 3.`\
 https://nytimes.com/2024/11/07/business/media/washington-post-return-to-office.html
-
-**Elwood Edwards, Voice of AOL’s ‘You’ve Got Mail’ Alert, Dies at 74**\
-`He was also behind the company’s “Welcome,” “File’s done” and “Goodbye” messages.`\
-https://nytimes.com/2024/11/07/technology/elwood-edwards-aol-dead.html
 
