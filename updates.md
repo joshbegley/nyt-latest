@@ -1,3 +1,7 @@
+**The Bounce: Why the Warriors can win another NBA title**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5905767/2024/11/07/stephen-curry-warriors-clippers-paul-george-76ers-nba-the-bounce/
+
 **Philadelphia Union part ways with head coach Curtin after 10 years at MLS club**\
 `The Union underperformed in the 2024 season and missed the playoffs for the first time since 2017.`\
 https://nytimes.com/athletic/5906223/2024/11/07/jim-curtin-philadelphia-union-leaves/

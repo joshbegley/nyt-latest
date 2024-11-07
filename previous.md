@@ -1,3 +1,7 @@
+**The Bounce: Why the Warriors can win another NBA title**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5905767/2024/11/07/stephen-curry-warriors-clippers-paul-george-76ers-nba-the-bounce/
+
 **Philadelphia Union part ways with head coach Curtin after 10 years at MLS club**\
 `The Union underperformed in the 2024 season and missed the playoffs for the first time since 2017.`\
 https://nytimes.com/athletic/5906223/2024/11/07/jim-curtin-philadelphia-union-leaves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906060/2024/11/07/penguins-today-bryan-rust/
 **Ranking PWHL jerseys: Which of the 6 new looks is our No. 1?**\
 `The six PWHL teams released their new jerseys on Thursday ahead of the Nov. 30 season opener. Let's break them down.`\
 https://nytimes.com/athletic/5904763/2024/11/07/pwhl-jersey-release-ranking/
-
-**One City’s Secret to Happiness: The Annual Burning of a 50-Foot Effigy**\
-`Every year, Santa Fe incinerates a giant puppet of Zozobra — a ritual meant to purge anxiety and promote a reset.`\
-https://nytimes.com/2024/11/07/magazine/santa-fe-zozobra-burning.html
 
