@@ -1,3 +1,15 @@
+**What Kamala Harris’s Loss Means To Black Women**\
+`Vice President Kamala Harris ran a 107-day campaign under extraordinarily rare circumstances after President Biden dropped out of the race.`\
+https://nytimes.com/video/us/elections/100000009812803/kamala-harris-concession-speech.html
+
+**What Trenton Doyle Hancock Learned From Philip Guston**\
+`The Jewish Museum pairs the Texas artist with a 20th-century master. Together they confront racism with horror — and humor.`\
+https://nytimes.com/2024/11/07/arts/design/trenton-doyle-hancock-philip-guston-jewish-museum.html
+
+**Why the Australian Ambassador Deleted Tweets Critical of Trump**\
+`The envoy, Kevin Rudd, said that he had removed the posts “out of respect for the office of the president.” But it was a sign of broader anxiety over Donald J. Trump’s return to power.`\
+https://nytimes.com/2024/11/07/world/australia/australia-ambassador-trump-tweets-kevin-rudd.html
+
 **The Wall Street Leaders Who Could Play a Role in Trump’s New Administration**\
 `Lobbyists are trying to connect executives with the Trump transition team, and some familiar names are in the mix for top jobs.`\
 https://nytimes.com/2024/11/07/business/dealbook/cohn-warsh-trump-cabinet.html
