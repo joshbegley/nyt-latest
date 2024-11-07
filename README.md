@@ -1,3 +1,7 @@
+**Trump Weighs Personnel Choices and Fields Congratulatory Calls**\
+`On his first day as president-elect after his victory in the 2024 campaign, Donald Trump took calls from Vice President Kamala Harris and President Biden as his transition planning ramped up.`\
+https://nytimes.com/2024/11/06/us/politics/trump-transition.html
+
 **How Trump Connected With So Many Americans**\
 `Donald Trump’s campaign was a blend of comedy, fury, optimism, darkness and cynicism. “He gets us,” some voters concluded.`\
 https://nytimes.com/2024/11/06/us/elections/donald-trump-supporters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/gitmo-plea-agreement.html
 **Joseph Rykwert, Architectural Historian Who Challenged Modernism, Dies at 98**\
 `A “gloriously erudite” critic, he denounced the embrace of blandly functional architecture in efforts to rebuild after World War II.`\
 https://nytimes.com/2024/11/06/arts/design/joseph-rykwert-dead.html
-
-**Vindman Wins Virginia House Race, Keeping a Key Seat in Democratic Hands**\
-`Yevgeny Vindman is a former Army lieutenant colonel who was fired by the Trump administration for joining his twin brother as a whistle-blower in the first impeachment of President Donald J. Trump.`\
-https://nytimes.com/2024/11/06/us/elections/virginia-house-vindman-anderson.html
 
