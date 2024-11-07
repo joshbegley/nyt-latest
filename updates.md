@@ -1,3 +1,7 @@
+**The Day After the Election**\
+`We’re covering how Trump won — and more results from the election.`\
+https://nytimes.com/2024/11/07/briefing/donald-trump-win-kamala-harris.html
+
 **This Is Not a Beauty Podcast: More Than Skin Deep
 **\
 `Some think of science as clinical, but as far as scientists are concerned, there’s still beauty to be found in the patterns that explain our world.`\
