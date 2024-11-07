@@ -1,3 +1,19 @@
+**Jean Hanff Korelitz Gave Spreadsheets a ‘Workout’ to Plan Her New Book**\
+`A novel within a novel fueled her hit thriller, “The Plot.” Keeping the stories straight was even harder for “The Sequel.”`\
+https://nytimes.com/2024/11/07/books/review/jean-hanff-korelitz-the-sequel-by-the-book.html
+
+**The Watch Industry’s Role in Your Speeding Ticket**\
+`It was the development of the chronograph, essentially a stopwatch, that laid the groundwork for automobile speed limits.`\
+https://nytimes.com/2024/11/07/fashion/watches-breitling-vehicular-speed.html
+
+**Brighton's Hinshelwood can become England regular, says Hurzeler**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler is backing Jack Hinshelwood to become a full England international.`\
+https://nytimes.com/athletic/5905637/2024/11/07/jack-hinshelwood-england-brighton/
+
+**How the first CFP rankings affect the Big Ten's other bowl projections**\
+`How the CFP, the league’s current bowls and prospects for the former Pac-12 teams affect where Big Ten fans may spend their late Decembers.`\
+https://nytimes.com/athletic/5904208/2024/11/07/big-ten-bowl-projections-cfp/
+
 **Lessons for World Leaders From Japan’s Former Trump-Whisperer**\
 `Shinzo Abe, then the prime minister of Japan, succeeded in making friends with Mr. Trump through golf, entertainment and appealing to his vanity.`\
 https://nytimes.com/2024/11/07/world/asia/japan-trump-shinzo-abe.html
