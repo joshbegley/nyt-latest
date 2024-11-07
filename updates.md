@@ -1,3 +1,15 @@
+**San Francisco Giants free-agent profile: Juan Soto, OF**\
+`Signing Soto is a risky idea, even with his talent and youth. But it’s just so wacky it might work.`\
+https://nytimes.com/athletic/5906532/2024/11/07/sf-giants-juan-soto-free-agent-profile/
+
+**Submit your Red Wings questions for Max Bultman's mailbag**\
+`Drop your questions here, and Max Bultman may answer them in an upcoming Red Wings mailbag. `\
+https://nytimes.com/athletic/5906147/2024/11/07/red-wings-mailbag-questions-max-bultman/
+
+**The Briefing: Man Utd 2 PAOK 0 - Amad proves his worth as European hoodoo ends**\
+`The major talking points from Thursday's Europa League clash at Old Trafford`\
+https://nytimes.com/athletic/5900491/2024/11/07/man-utd-paok-result-analysis/
+
 **The Briefing: Man Utd 2 PAOK 0 - Diallo proves his worth as European hoodoo ends**\
 `The major talking points from Thursday's Europa League clash at Old Trafford`\
 https://nytimes.com/athletic/5900491/2024/11/07/man-utd-paok-result-analysis/
