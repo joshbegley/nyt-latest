@@ -1,3 +1,7 @@
+**Riley Leonard's recent strides are making believers out of his doubters**\
+`Notre Dame was patient as Leonard worked through some early inconsistencies. In November, the transfer QB might finally hit his stride.`\
+https://nytimes.com/athletic/5906566/2024/11/07/riley-leonard-notre-dame-quarterback-college-football/
+
 **At Salon Art + Design, Nature and Beauty Come Center Stage**\
 `More than 50 galleries tease the lines between function and decoration, in a year when the fair has a far-reaching mission: to give more artists a chance to be seen.`\
 https://nytimes.com/2024/11/07/arts/design/salon-art-design-fair-park-avenue-armory.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/health/fda-decongestant-over-the-counter.html
 **76ers' Tyrese Maxey expected to miss multiple weeks with hamstring injury**\
 `Maxey, 24, was ruled out early in the fourth quarter of Wednesday's loss to the LA Clippers due to the injury.`\
 https://nytimes.com/athletic/5906480/2024/11/07/tyrese-maxey-injury-sixers/
-
-**When Is a Cult Brand No Longer a Cult Brand? When LVMH Comes Knocking.**\
-`The Swedish brand Our Legacy finally gets investment from the big guys.`\
-https://nytimes.com/2024/11/07/style/lvmh-our-legacy.html
 
