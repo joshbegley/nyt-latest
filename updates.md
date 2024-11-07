@@ -1,3 +1,7 @@
+**Galatasaray 3-2 Spurs: A mixed night for Lankshear, as Maddison and Dragusin struggle**\
+`Injury-hit Spurs were forced to make a host of changes for their Europa League trip to Turkey, and it did not pay off...`\
+https://nytimes.com/athletic/5906825/2024/11/07/galatasaray-3-2-spurs-will-lankshear/
+
 **What to know about the Fed meeting.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/11/07/business/fed-interest-rates/what-to-know-about-the-fed-meeting
