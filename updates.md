@@ -1,3 +1,7 @@
+**The four stages of Villa's most concerning performance yet under Emery**\
+`Breaking down the reasons behind Villa's first defeat in the Champions League this season`\
+https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
+
 **FA opens inquiry into leading Premier League figure to decide 'risk to children or adults within football'**\
 `The man, whom we cannot identify, has previously been investigated by police but has never been charged and denies any wrongdoing.`\
 https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonymous/
