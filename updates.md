@@ -1,3 +1,7 @@
+**The Short Campaign May Have Been Harris’s Undoing — and Biden’s Fault**\
+`By seeking re-election, Biden deprived Harris of months of campaigning that might have helped her.`\
+https://nytimes.com/2024/11/07/us/politics/biden-harris-campaign.html
+
 **Trump’s Strange Bedfellows: Arab Americans and Right-Leaning Jews**\
 `Donald J. Trump won votes from Arab Americans and pro-Israel American Jews. Someone is likely to be disappointed.`\
 https://nytimes.com/2024/11/07/us/politics/trump-arab-american-jews.html
