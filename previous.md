@@ -1,3 +1,7 @@
+**Heat Today: Late-game miscues by Jimmy Butler, Miami result in blown lead vs. Suns**\
+`The Heat squander another double-digit lead and search for answers.`\
+https://nytimes.com/athletic/5906304/2024/11/07/miami-heat-jimmy-butler-kevin-durant-suns/
+
 **How Could Trump and Abortion Rights Both Win?**\
 `Making sense of this election’s very strange abortion politics.`\
 https://nytimes.com/2024/11/07/opinion/trump-abortion-election-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/world/australia/emperor-penguin-australia-antarct
 **With DNA, Pompeii Narratives Take a Twist**\
 `In 79 A.D., a volcanic eruption engulfed a town’s residents. They weren’t all who scientists thought, newly extracted genetic material suggests.`\
 https://nytimes.com/2024/11/07/science/archaeology-dna-pompeii.html
-
-**Champions League projections: All the talking points after matchday four**\
-`Paris Saint-Germain and Real Madrid are just two of the big names in trouble as we reach the halfway point of the league phase`\
-https://nytimes.com/athletic/5905934/2024/11/07/champions-league-projections-matchday-four/
 

@@ -1,3 +1,7 @@
+**Heat Today: Late-game miscues by Jimmy Butler, Miami result in blown lead vs. Suns**\
+`The Heat squander another double-digit lead and search for answers.`\
+https://nytimes.com/athletic/5906304/2024/11/07/miami-heat-jimmy-butler-kevin-durant-suns/
+
 **How Could Trump and Abortion Rights Both Win?**\
 `Making sense of this election’s very strange abortion politics.`\
 https://nytimes.com/2024/11/07/opinion/trump-abortion-election-harris.html
