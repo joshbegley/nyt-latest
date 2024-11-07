@@ -1,3 +1,15 @@
+**Jim Hoagland, Distinguished Journalist on World Affairs, Dies at 84**\
+`A two-time Pulitzer Prize winner, he was a reporter, editor and columnist for The Washington Post, renowned for his deeply sourced dispatches.`\
+https://nytimes.com/2024/11/07/business/media/jim-hoagland-dead.html
+
+**How Florida sticking with Billy Napier impacts the college football coaching carousel**\
+`The domino effect could be another school seeing an opportunity to jump into the market as the best job available.`\
+https://nytimes.com/athletic/5906714/2024/11/07/florida-billly-napier-coaching-carousel/
+
+**Interpol Tightens Oversight on Databases Misused by Autocrats**\
+`The changes are intended to stop governments from using the world’s largest police organization to harass and monitor political dissidents.`\
+https://nytimes.com/2024/11/07/world/europe/interpol-oversight-red-notices-blue-notices-databases-abuse-dissidents.html
+
 **What to See in N.Y.C. Galleries in November**\
 `This week in Newly Reviewed, Will Heinrich covers Reginald Madison’s mix of abstraction and figuration, Daniel Terna’s tension-filled scenes and Erin O’Keefe’s illusory photographs.`\
 https://nytimes.com/2024/11/07/arts/design/nyc-galleries-november.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5900639/2024/11/07/ben-herbstreit-dog-dies-college-
 **Will Trump Have a New Opening to Repeal Obamacare?**\
 `Even without congressional action, a second Trump administration will likely support major changes to Medicaid and the Affordable Care Act’s marketplaces, affecting millions of Americans.`\
 https://nytimes.com/2024/11/07/us/politics/trump-aca-obamacare.html
-
-**'Buffalo Joe' Andreessen gets his rookie card wish fulfilled**\
-`An avid collector, Andreessen dreamed of getting his own rookie card but knew it was far from guaranteed `\
-https://nytimes.com/athletic/5905615/2024/11/07/buffalo-bills-joe-andreessen-rookie-card-panini/
-
-**Biden Promises Americans an Orderly Transition of Power to Trump**\
-`President Biden vowed to honor the Constitution with an orderly transfer of power to President-elect Donald J. Trump.`\
-https://nytimes.com/video/us/elections/100000009813660/biden-trump-election-transfer-power.html
-
-**NFL best bets Week 10: Betting Dolphins to get another loss on Monday, plus a teaser**\
-`Austin Mock's model suggest three NFL bets to make this week on primetime matchups, plus a teaser. `\
-https://nytimes.com/athletic/5906598/2024/11/07/nfl-best-bets-week-10-dolphins-bengals-ravens/
 

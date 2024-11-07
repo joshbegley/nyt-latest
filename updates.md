@@ -1,3 +1,15 @@
+**Jim Hoagland, Distinguished Journalist on World Affairs, Dies at 84**\
+`A two-time Pulitzer Prize winner, he was a reporter, editor and columnist for The Washington Post, renowned for his deeply sourced dispatches.`\
+https://nytimes.com/2024/11/07/business/media/jim-hoagland-dead.html
+
+**How Florida sticking with Billy Napier impacts the college football coaching carousel**\
+`The domino effect could be another school seeing an opportunity to jump into the market as the best job available.`\
+https://nytimes.com/athletic/5906714/2024/11/07/florida-billly-napier-coaching-carousel/
+
+**Interpol Tightens Oversight on Databases Misused by Autocrats**\
+`The changes are intended to stop governments from using the world’s largest police organization to harass and monitor political dissidents.`\
+https://nytimes.com/2024/11/07/world/europe/interpol-oversight-red-notices-blue-notices-databases-abuse-dissidents.html
+
 **What to See in N.Y.C. Galleries in November**\
 `This week in Newly Reviewed, Will Heinrich covers Reginald Madison’s mix of abstraction and figuration, Daniel Terna’s tension-filled scenes and Erin O’Keefe’s illusory photographs.`\
 https://nytimes.com/2024/11/07/arts/design/nyc-galleries-november.html
