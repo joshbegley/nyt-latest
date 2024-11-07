@@ -1,3 +1,19 @@
+**A Silver Lining for New York Democrats**\
+`Proposition 1, meant to expand equal rights and codify the protections of Roe v. Wade in the State Constitution, passed easily despite a Republican campaign against trans rights.`\
+https://nytimes.com/2024/11/07/nyregion/ny-prop-1-abortion-rights.html
+
+**Trump Lost This State by 16 Points in 2020. This Year, He Lost by 5.**\
+`In New Jersey, Democrats outnumber Republicans and control every branch of government. But Tuesday’s vote reflected a shift to the right.`\
+https://nytimes.com/2024/11/07/nyregion/trump-nj-votes-election.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/07/crosswords/spelling-bee-forum.html
+
+**FA opens inquiry into leading Premier League figure to decide 'risk to children or adults within football'**\
+`The man, whom we cannot identify, has previously been investigated by police but has never been charged and denies any wrongdoing.`\
+https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonymous/
+
 **The four stages of Villa's most concerning performance yet under Emery**\
 `Breaking down the reasons behind Villa's first defeat in the Champions League this season`\
 https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/

@@ -1,3 +1,19 @@
+**A Silver Lining for New York Democrats**\
+`Proposition 1, meant to expand equal rights and codify the protections of Roe v. Wade in the State Constitution, passed easily despite a Republican campaign against trans rights.`\
+https://nytimes.com/2024/11/07/nyregion/ny-prop-1-abortion-rights.html
+
+**Trump Lost This State by 16 Points in 2020. This Year, He Lost by 5.**\
+`In New Jersey, Democrats outnumber Republicans and control every branch of government. But Tuesday’s vote reflected a shift to the right.`\
+https://nytimes.com/2024/11/07/nyregion/trump-nj-votes-election.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/07/crosswords/spelling-bee-forum.html
+
+**FA opens inquiry into leading Premier League figure to decide 'risk to children or adults within football'**\
+`The man, whom we cannot identify, has previously been investigated by police but has never been charged and denies any wrongdoing.`\
+https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonymous/
+
 **Thick Smog Blankets Pakistani City**\
 `Residents of Lahore are suffering from the toxic haze that has pushed the city’s Air Quality Index to off-the-chart levels by U.S. standards.`\
 https://nytimes.com/video/world/asia/100000009813321/pakistan-lahore-pollution-smog.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/07/learning/word-of-the-day-pollinator.html
 **A perfect 'robbery': How Diego Simeone masterminded yet another smash-and-grab win**\
 `Atletico Madrid produced an almost perfectly-controlled performance to pile more pressure on the French champions`\
 https://nytimes.com/athletic/5904876/2024/11/07/paris-saint-germain-atletico-madrid-analysis-champions-league/
-
-**Typhoon Yinxing Approaches the Philippines as a Category 4 Storm**\
-`More than 160,000 people have been evacuated to prepare for the tropical cyclone. It is forecast to make landfall by Friday morning.`\
-https://nytimes.com/2024/11/07/world/asia/philipines-typhoon-yinxing.html
-
-**Warriors (7-1) make a statement with focus, discipline in road win against Celtics**\
-`This win felt validating for Golden State veterans and decision-makers, a sign that this season's hot start had some substance to it. `\
-https://nytimes.com/athletic/5904751/2024/11/07/warriors-road-win-celtics/
-
-**Late Night Processes Donald Trump’s Re-Election**\
-`“Trump returning to the White House is a huge historic comeback for someone who literally never went away,” Jimmy Fallon said.`\
-https://nytimes.com/2024/11/07/arts/television/late-night-trump-election.html
-
-**The four stages of Villa's most concerning performance yet under Emery**\
-`Breaking down the reasons behind Villa's first defeat in the Champions League this season`\
-https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
 
