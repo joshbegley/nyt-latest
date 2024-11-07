@@ -1,3 +1,15 @@
+**What Kamala Harris’s Loss Means To Black Women**\
+`Vice President Kamala Harris ran a 107-day campaign under extraordinarily rare circumstances after President Biden dropped out of the race.`\
+https://nytimes.com/video/us/elections/100000009812803/kamala-harris-concession-speech.html
+
+**What Trenton Doyle Hancock Learned From Philip Guston**\
+`The Jewish Museum pairs the Texas artist with a 20th-century master. Together they confront racism with horror — and humor.`\
+https://nytimes.com/2024/11/07/arts/design/trenton-doyle-hancock-philip-guston-jewish-museum.html
+
+**Why the Australian Ambassador Deleted Tweets Critical of Trump**\
+`The envoy, Kevin Rudd, said that he had removed the posts “out of respect for the office of the president.” But it was a sign of broader anxiety over Donald J. Trump’s return to power.`\
+https://nytimes.com/2024/11/07/world/australia/australia-ambassador-trump-tweets-kevin-rudd.html
+
 **The Wall Street Leaders Who Could Play a Role in Trump’s New Administration**\
 `Lobbyists are trying to connect executives with the Trump transition team, and some familiar names are in the mix for top jobs.`\
 https://nytimes.com/2024/11/07/business/dealbook/cohn-warsh-trump-cabinet.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5905435/2024/11/07/demar-derozan-kings-raptors/
 **NBA Lookahead: Revenge is a dish best served during the regular season**\
 `The Cavs try to stay unbeaten, the Warriors and Thunder square off and more of the must-see games on tap.`\
 https://nytimes.com/athletic/5899732/2024/11/07/nba-lookahead-jayson-tatum-cavaliers-weekend/
-
-**England draw Spain in Women's Nations League**\
-`England have been drawn alongside 2023 World Cup winners Spain in the league stage of the Women&#8217;s Nations League.`\
-https://nytimes.com/athletic/5905742/2024/11/07/womens-nations-league-draw-england-spain/
-
-**What it's like competing in NASCAR under Michael Jordan's watch**\
-`The six-time NBA champ will try Sunday to win his first title as NASCAR team owner. Tyler Reddick's No. 45 crew is glad he's on their side.`\
-https://nytimes.com/athletic/5905130/2024/11/07/michael-jordan-nascar-23xi-tyler-reddick-team/
-
-**The Clippers don't regret saying goodbye to Paul George, and no to the Warriors**\
-`Conventional wisdom says you don't let a star leave for nothing. But for the Clippers, nothing seemed better than something.`\
-https://nytimes.com/athletic/5905671/2024/11/07/clippers-paul-george-sixers-warriors-trade/
 
