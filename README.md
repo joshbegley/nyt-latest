@@ -1,3 +1,7 @@
+**NFL best bets Week 10: Betting Dolphins to get another loss on Monday, plus a teaser**\
+`Austin Mock's model suggest three NFL bets to make this week on primetime matchups, plus a teaser. `\
+https://nytimes.com/athletic/5906598/2024/11/07/nfl-best-bets-week-10-dolphins-bengals-ravens/
+
 **Voters Poised to Reject Private School Vouchers in Three States**\
 `The results were part of a wave of ballot measure outcomes that teachers’ unions had sought. Nevertheless, private-school choice is growing nationwide.`\
 https://nytimes.com/2024/11/07/us/private-school-funding-election-rejection.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906483/2024/11/07/nascar-driver-fined-voting-majes
 **No-Rules Friendsgiving**\
 `A November dinner with friends is for cooking whatever you want, like roasted brussels sprouts Caesar or a caramelized onion tachin.`\
 https://nytimes.com/2024/11/07/dining/no-rules-friendsgiving.html
-
-**Gillen Defeats D’Esposito in New York, Flipping House Seat for Democrats**\
-`Laura Gillen unseated Representative Anthony D’Esposito, a first-term Republican, on Long Island. Her campaign focused on abortion and the border.`\
-https://nytimes.com/2024/11/07/nyregion/ny-house-laura-gillen-desposito.html
 
