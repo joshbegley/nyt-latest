@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5904751/2024/11/07/warriors-road-win-celtics/
 https://nytimes.com/2024/11/07/arts/television/late-night-trump-election.html
 
 **The four stages of Villa's most concerning performance yet under Emery**\
-`Breaking down the reasons behind Aston Villa's first defeat in this season's Champions League`\
+`Breaking down the reasons behind Villa's first defeat in the Champions League this season`\
 https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
 
