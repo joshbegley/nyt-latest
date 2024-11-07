@@ -1,3 +1,7 @@
+**What it's like competing in NASCAR under Michael Jordan's watch**\
+`The six-time NBA champ will try Sunday to win his first title as NASCAR team owner. Tyler Reddick's No. 45 crew is glad he's on their side.`\
+https://nytimes.com/athletic/5905130/2024/11/07/michael-jordan-nascar-23xi-tyler-reddick-team/
+
 **The Clippers don't regret saying goodbye to Paul George, and no to the Warriors**\
 `Conventional wisdom says you don't let a star leave for nothing. But for the Clippers, nothing seemed better than something.`\
 https://nytimes.com/athletic/5905671/2024/11/07/clippers-paul-george-sixers-warriors-trade/
