@@ -1,3 +1,7 @@
+**Bruce Arena returns to management with San Jose Earthquakes**\
+`Bruce Arena has returned to management after being appointed as the new head coach and sporting director of MLS side San Jose Earthquakes.`\
+https://nytimes.com/athletic/5906722/2024/11/07/bruce-arena-san-jose-earthquakes-coach-new/
+
 **Cardinals keep Diamond Sports as TV home, grant streaming rights**\
 `Fans in Cardinals territory will now be able to subscribe to games without having to sign up for a full cable or satellite package.`\
 https://nytimes.com/athletic/5906665/2024/11/07/cardinals-tv-diamond-sports-streaming-rights/
