@@ -1,3 +1,7 @@
+**ATP Tour Finals draw pits Sinner against Medvedev, Alcaraz against Zverev**\
+`Defending champion Novak Djokovic misses the event with injury.`\
+https://nytimes.com/athletic/5905649/2024/11/07/atp-tour-finals-draw-results-analysis/
+
 **The Day After the Election**\
 `We’re covering how Trump won — and more results from the election.`\
 https://nytimes.com/2024/11/07/briefing/donald-trump-win-kamala-harris.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5844068/2024/11/07/jalen-green-houston-rockets-excl
 **Chiefs predictions at NFL midseason: Kansas City will host Ravens in AFC title game rematch**\
 `Our Chiefs second-half predictions include items on Travis Kelce, DeAndre Hopkins and Trent McDuffie. `\
 https://nytimes.com/athletic/5902632/2024/11/07/chiefs-predictions-2024-nfl-midseason/
-
-**Vikings predictions at NFL midseason: How about 11 wins — and a playoff victory?**\
-`What can we expect from the Vikings in the season's second half? Can Sam Darnold stay hot? Is Jonathan Greenard a sneaky DPOY candidate?`\
-https://nytimes.com/athletic/5904395/2024/11/07/vikings-predictions-nfl-midseason-playoffs/
 
