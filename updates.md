@@ -1,3 +1,7 @@
+**Raygun retires from competitive breaking after Olympic backlash**\
+`Gunn said she originally planned to keep competing but changed her mind after the "upsetting" experience.`\
+https://nytimes.com/athletic/5905910/2024/11/07/raygun-retires-breaking-olympics/
+
 **College football Week 11 odds, picks ATS: Ole Miss-Georgia, Alabama-LSU and more**\
 `Two big SEC games, Alabama at LSU and Georgia at Ole Miss, highlight college football's Week 11 slate. Both road teams are small favorites.`\
 https://nytimes.com/athletic/5901100/2024/11/07/college-football-week-11-odds-picks-ole-miss-georgia-alabama-lsu/
