@@ -1,3 +1,7 @@
+**What we're hearing about the Cardinals at the GM meetings**\
+`Ryan Helsley has garnered significant interest from rival clubs and was a popular name during these meetings.`\
+https://nytimes.com/athletic/5904986/2024/11/07/cardinals-mlb-offseason-moves-2/
+
 **Biden promises a ‘peaceful transfer of power here in America.’**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/biden-promises-a-peaceful-transfer-of-power-here-in-america
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/us/politics/democrats-kamala-harris.html
 **Florida sticking with Billy Napier as football coach**\
 `Napier’s future has been questioned since going 11-14 in his first two seasons and had an elite recruiting class crumbled before signing day`\
 https://nytimes.com/athletic/5906242/2024/11/07/billy-napier-florida-football-coach/
-
-**A Violinist on a Mission to Capture America, Division and All**\
-`Johnny Gandelsman has commissioned 28 pieces for his project “This Is America,” which explores themes of love, hope, inequality and injustice.`\
-https://nytimes.com/2024/11/07/arts/music/johnny-gandelsman-this-is-america.html
 

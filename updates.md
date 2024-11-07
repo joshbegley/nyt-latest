@@ -1,3 +1,7 @@
+**What we're hearing about the Cardinals at the GM meetings**\
+`Ryan Helsley has garnered significant interest from rival clubs and was a popular name during these meetings.`\
+https://nytimes.com/athletic/5904986/2024/11/07/cardinals-mlb-offseason-moves-2/
+
 **Biden promises a ‘peaceful transfer of power here in America.’**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/biden-promises-a-peaceful-transfer-of-power-here-in-america
