@@ -1,3 +1,19 @@
+**Trump Whiplash Looms Over Global Climate Talks**\
+`As the world gathers for U.N. climate negotiations in Azerbaijan next week, here’s what we will be watching.`\
+https://nytimes.com/2024/11/07/climate/trump-climate-cop-negotiations.html
+
+**Everything to know about the NCAA's decision to make CHL players eligible**\
+`Answering your questions about an NCAA decision that could upend hockey’s development landscape.`\
+https://nytimes.com/athletic/5828094/2024/11/07/ncaa-canadian-hockey-league-college-hockey-explained/
+
+**What’s Going On in This Picture? | Nov. 18, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/11/07/learning/whats-going-on-in-this-picture-nov-18-2024.html
+
+**What’s Going On in This Graph? | Nov. 20, 2024**\
+`Four years ago the pandemic changed where we work. What do you notice about where we work now? What do you wonder?`\
+https://nytimes.com/2024/11/07/learning/whats-going-on-in-this-graph-nov-20-2024.html
+
 **NCAA votes to open up college hockey eligibility to CHL players: What it means**\
 `The move marks the start of a potentially seismic shift in hockey's development landscape.`\
 https://nytimes.com/athletic/5827014/2024/11/07/ncaa-hockey-chl-players-eligiblity/
