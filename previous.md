@@ -1,3 +1,7 @@
+**Panthers, RB Chuba Hubbard agree to terms on 4-year deal**\
+`Hubbard, 25, is averaging 5.0 yards per carry this season tallying 665 yards (fifth in the NFL) on 133 carries with five rushing touchdowns.`\
+https://nytimes.com/athletic/5906123/2024/11/07/chuba-hubbard-contract-panthers/
+
 **For Rent: 4-Bedroom London House. The Owner? Britain’s Prime Minister.**\
 `Keir Starmer has rented out his home in north London since moving to Downing Street, according to newly published official records.`\
 https://nytimes.com/2024/11/07/world/europe/uk-keir-starmer-home-rent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/climate/cop29-baku-azerbaijan.html
 **Higher Prices, Trade Wars and More: What to Know About Trump’s Tariffs**\
 `The president-elect says that tariff is “the most beautiful word in the dictionary.” You may be hearing it a lot.`\
 https://nytimes.com/2024/11/07/business/economy/trump-tariffs-trade-what-to-know.html
-
-**Raygun retires from competitive breaking after Olympic backlash**\
-`Gunn said she originally planned to keep competing but changed her mind after the "upsetting" experience.`\
-https://nytimes.com/athletic/5905910/2024/11/07/raygun-retires-breaking-olympics/
 

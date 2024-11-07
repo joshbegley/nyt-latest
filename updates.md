@@ -1,3 +1,7 @@
+**Panthers, RB Chuba Hubbard agree to terms on 4-year deal**\
+`Hubbard, 25, is averaging 5.0 yards per carry this season tallying 665 yards (fifth in the NFL) on 133 carries with five rushing touchdowns.`\
+https://nytimes.com/athletic/5906123/2024/11/07/chuba-hubbard-contract-panthers/
+
 **For Rent: 4-Bedroom London House. The Owner? Britain’s Prime Minister.**\
 `Keir Starmer has rented out his home in north London since moving to Downing Street, according to newly published official records.`\
 https://nytimes.com/2024/11/07/world/europe/uk-keir-starmer-home-rent.html
