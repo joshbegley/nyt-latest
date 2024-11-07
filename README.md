@@ -1,3 +1,7 @@
+**Trump Names Susie Wiles as His White House Chief of Staff**\
+`The president-elect turned to his top political aide to fill a key post managing the White House when he returns to office.`\
+https://nytimes.com/2024/11/07/us/politics/susie-wiles-trump-white-house-chief-of-staff.html
+
 **Hector Herrera spitting at referee played a part in Houston Dynamo exit, club say**\
 `Mexican international Hector Herrera will likely be remembered as a transformational player for the Houston Dynamo, having led them to the playoffs and an Open Cup title after nearly a decade of irrelevance.`\
 https://nytimes.com/athletic/5907248/2024/11/07/hector-herrera-spitting-referee-houston-dynamo/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/07/opinion/thepoint/global-reaction-trump-leade
 **Democrats Play the Blame Game**\
 `Also, another interest rate cut. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/11/07/briefing/democrats-trump-election.html
-
-**Here’s what Trump’s victory could mean for New York City.**\
-`By Emma Fitzsimmons and Luis Ferré-Sadurní`\
-https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/heres-what-trumps-victory-could-mean-for-new-york-city
 
