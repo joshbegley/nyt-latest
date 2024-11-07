@@ -1,3 +1,11 @@
+**Lessons for World Leaders From Japan’s Former Trump-Whisperer**\
+`Shinzo Abe, then the prime minister of Japan, succeeded in making friends with Mr. Trump through golf, entertainment and appealing to his vanity.`\
+https://nytimes.com/2024/11/07/world/asia/japan-trump-shinzo-abe.html
+
+**Explained: Mendy's legal win over Manchester City - and what it could mean for football**\
+`We break down why the French defender secured a majority victory in his tribunal and whether this could have a wider impact in the game`\
+https://nytimes.com/athletic/5903504/2024/11/07/manchester-city-benjamin-mendy-wages-explained/
+
 **Trump’s Win Is Likely to Prolong Gaza Talks Uncertainty**\
 `Any serious advancement on a cease-fire will likely have to wait for Mr. Trump to reach office in January, analysts said.`\
 https://nytimes.com/2024/11/07/world/middleeast/trump-israel-gaza-ceasefire-talks.html
