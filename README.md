@@ -1,7 +1,3 @@
-**College football Week 11 odds, picks ATS: Ole Miss-Georgia, Alabama-LSU and more**\
-`Two big SEC games, Alabama at LSU and Georgia at Ole Miss, highlight college football's Week 11 slate. Both road teams are small favorites.`\
-https://nytimes.com/athletic/5901100/2024/11/07/college-football-week-11-odds-picks-ole-miss-georgia-alabama-lsu/
-
 **Six reasons why the Ducks are the NHL's worst offensive team**\
 `Twelve games in, the Ducks have only scored 25 goals. What's at the root of their offensive woes?`\
 https://nytimes.com/athletic/5905582/2024/11/07/anaheim-ducks-nhl-offense-loss-analysis/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/07/arts/design/trenton-doyle-hancock-philip-guston-j
 **Why the Australian Ambassador Deleted Tweets Critical of Trump**\
 `The envoy, Kevin Rudd, said that he had removed the posts “out of respect for the office of the president.” But it was a sign of broader anxiety over Donald J. Trump’s return to power.`\
 https://nytimes.com/2024/11/07/world/australia/australia-ambassador-trump-tweets-kevin-rudd.html
+
+**The Wall Street Leaders Who Could Play a Role in Trump’s New Administration**\
+`Lobbyists are trying to connect executives with the Trump transition team, and some familiar names are in the mix for top jobs.`\
+https://nytimes.com/2024/11/07/business/dealbook/cohn-warsh-trump-cabinet.html
 
