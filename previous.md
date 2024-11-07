@@ -1,3 +1,7 @@
+**Will 49ers' Christian McCaffrey get a 2023-like workload? Kyle Shanahan is mum for now**\
+`McCaffrey, Deebo Samuel and Jauan Jennings were all on the practice field on Wednesday, though none of them practiced in full.`\
+https://nytimes.com/athletic/5905029/2024/11/06/christian-mccaffrey-49ers-workload-buccaneers/
+
 **Dodger Details, GM meetings edition: Mookie Betts in infield, Shohei Ohtani's surgery, more**\
 `The Betts move exacerbates the Dodgers' outfield situation. Plus, the Dodgers expect Ohtani to be part of the Opening Day lineup.`\
 https://nytimes.com/athletic/5904954/2024/11/06/dodgers-mookie-betts-infield-shohei-ohtani-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/trump-election-covid-2020.html
 **Jacky Rosen fights to hang on to her Senate seat in Nevada, with ballots still trickling in.**\
 `By Benjamin Oreskes and Danny Hakim`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jacky-rosen-fights-to-hang-on-to-her-senate-seat-in-nevada-with-ballots-still-trickling-in
-
-**Her absentee ballot never arrived. So she flew from Chicago to Pennsylvania to vote.**\
-`A University of Chicago student tried for weeks to get an absentee that never came, so she spent hundreds on a last-minute plane ticket. She was not alone.`\
-https://nytimes.com/2024/11/06/us/politics/montgomery-county-pa-absentee-ballots.html
 
