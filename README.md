@@ -1,3 +1,7 @@
+**DeMar DeRozan is an all-time Toronto Raptor, and figuring it out with the Kings, too**\
+`DeRozan is off to a good start with his third team in his seventh season away from Toronto.`\
+https://nytimes.com/athletic/5905435/2024/11/07/demar-derozan-kings-raptors/
+
 **NBA Lookahead: Revenge is a dish best served during the regular season**\
 `The Cavs try to stay unbeaten, the Warriors and Thunder square off and more of the must-see games on tap.`\
 https://nytimes.com/athletic/5899732/2024/11/07/nba-lookahead-jayson-tatum-cavaliers-weekend/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation
 **Broncos second-half predictions: Bo Nix's numbers, milestone for WR and ... playoffs?**\
 `The Broncos may not reach the golden 10-win threshold, but in a down year in the AFC, nine victories could break the playoff drought.`\
 https://nytimes.com/athletic/5903637/2024/11/07/broncos-midseason-predictions-bo-nix/
-
-**The World Isn’t Spending Nearly Enough to Adapt to Climate Shocks, U.N. Says**\
-`A new report, urging rich nations to give more climate aid to poorer ones, comes as Donald Trump’s election throws global climate talks into disarray.`\
-https://nytimes.com/2024/11/07/climate/climate-adaptation-cop29-trump-un.html
 
