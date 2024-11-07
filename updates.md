@@ -1,3 +1,15 @@
+**Shola Shoretire on leaving Man United: 'I just had to know my worth as a player'**\
+`The former United young player of the year is back in Manchester with Greek side PAOK`\
+https://nytimes.com/athletic/5902781/2024/11/07/manchester-united-shola-shoretire-interview/
+
+**Newcastle's 'brothers in harm': how their team play is being influenced by fouls**\
+`Bruno Guimaraes and Joelinton are at different ends of the spectrum when it comes to fouls, but remain key to Newcastle's approach`\
+https://nytimes.com/athletic/5902673/2024/11/07/newcastle-guimaraes-joelinton-gordon-fouls/
+
+**Why Taylor's appointment to a Nottingham Forest game has caused controversy**\
+`There has been a lot of anger on social media at Anthony Taylor being put in charge of Forest's game against Newcastle`\
+https://nytimes.com/athletic/5904002/2024/11/07/nottingham-forest-anthony-taylor/
+
 **Momentum still eludes Blackhawks in lifeless loss to Patrick Kane, Red Wings: Observations**\
 `The next step for the Blackhawks is consistency, and it's one they're struggling with.`\
 https://nytimes.com/athletic/5905350/2024/11/07/blackhawks-momentum-streaks-red-wings/
