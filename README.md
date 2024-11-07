@@ -1,3 +1,7 @@
+**Biden promises a ‘peaceful transfer of power here in America.’**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/biden-promises-a-peaceful-transfer-of-power-here-in-america
+
 **European Leaders Meet to Consider a World in Flux**\
 `Leaders from across Europe and beyond gathered to discuss the war in Ukraine, immigration and plans for a second Trump presidency.`\
 https://nytimes.com/2024/11/07/world/europe/europe-leaders-hungary-trump-germany.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906242/2024/11/07/billy-napier-florida-football-co
 **A Violinist on a Mission to Capture America, Division and All**\
 `Johnny Gandelsman has commissioned 28 pieces for his project “This Is America,” which explores themes of love, hope, inequality and injustice.`\
 https://nytimes.com/2024/11/07/arts/music/johnny-gandelsman-this-is-america.html
-
-**How Did This Penguin End Up on a Beach in Australia?**\
-`“This is the furthest north I’ve heard of an emperor penguin,” an expert said.`\
-https://nytimes.com/2024/11/07/world/australia/emperor-penguin-australia-antarctica.html
 
