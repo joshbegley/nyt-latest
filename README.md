@@ -1,3 +1,7 @@
+**European Leaders Meet to Consider a World in Flux**\
+`Leaders from across Europe and beyond gathered to discuss the war in Ukraine, immigration and plans for a second Trump presidency.`\
+https://nytimes.com/2024/11/07/world/europe/europe-leaders-hungary-trump-germany.html
+
 **Heat Today: Late-game miscues by Jimmy Butler, Miami result in blown lead vs. Suns**\
 `The Heat squander another double-digit lead and search for answers.`\
 https://nytimes.com/athletic/5906304/2024/11/07/miami-heat-jimmy-butler-kevin-durant-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/arts/music/johnny-gandelsman-this-is-america.html
 **How Did This Penguin End Up on a Beach in Australia?**\
 `“This is the furthest north I’ve heard of an emperor penguin,” an expert said.`\
 https://nytimes.com/2024/11/07/world/australia/emperor-penguin-australia-antarctica.html
-
-**With DNA, Pompeii Narratives Take a Twist**\
-`In 79 A.D., a volcanic eruption engulfed a town’s residents. They weren’t all who scientists thought, newly extracted genetic material suggests.`\
-https://nytimes.com/2024/11/07/science/archaeology-dna-pompeii.html
 
