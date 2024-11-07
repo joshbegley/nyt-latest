@@ -1,3 +1,7 @@
+**Teen hockey phenom Chloe Primerano makes Team Canada debut in Rivalry Series**\
+`It’s yet another benchmark for the 17-year-old University of Minnesota defender who is charting a unique path in women’s hockey.`\
+https://nytimes.com/athletic/5904742/2024/11/06/chloe-primerano-rivalry-series-canada-hockey/
+
 **Expecting Clemency From Trump, Jan. 6 Defendant Requests Sentencing Delay**\
 `A federal judge promptly denied Christopher Carnell’s request, which was filed hours after President Donald J. Trump won re-election.`\
 https://nytimes.com/2024/11/06/us/jan-6-rioter-trump-pardon-judge-denies.html
