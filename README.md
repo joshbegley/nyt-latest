@@ -1,3 +1,7 @@
+**Higher Prices, Trade Wars and More: What to Know About Trump’s Tariffs**\
+`The president-elect says that tariff is “the most beautiful word in the dictionary.” You may be hearing it a lot.`\
+https://nytimes.com/2024/11/07/business/economy/trump-tariffs-trade-what-to-know.html
+
 **Raygun retires from competitive breaking after Olympic backlash**\
 `Gunn said she originally planned to keep competing but changed her mind after the "upsetting" experience.`\
 https://nytimes.com/athletic/5905910/2024/11/07/raygun-retires-breaking-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5900008/2024/11/07/england-squad-hall-harwood-belli
 **What Kamala Harris’s Loss Means To Black Women**\
 `Vice President Kamala Harris ran a 107-day campaign under extraordinarily rare circumstances after President Biden dropped out of the race.`\
 https://nytimes.com/video/us/elections/100000009812803/kamala-harris-concession-speech.html
-
-**What Trenton Doyle Hancock Learned From Philip Guston**\
-`The Jewish Museum pairs the Texas artist with a 20th-century master. Together they confront racism with horror — and humor.`\
-https://nytimes.com/2024/11/07/arts/design/trenton-doyle-hancock-philip-guston-jewish-museum.html
 
