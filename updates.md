@@ -1,3 +1,19 @@
+**Transgender Americans Voice New Anxiety About Trump Agenda**\
+`President-elect Donald Trump has promised to “keep men out of women’s sports” and withhold Medicare and Medicaid funding from hospitals that provide gender transition treatment to minors.`\
+https://nytimes.com/2024/11/07/us/trump-trans-rights.html
+
+**Federal Reserve Lowers Interest Rates**\
+`Jerome H. Powell, the Fed chair, said that the Fed’s immediate path would not be impacted by Donald J. Trump’s win.`\
+https://nytimes.com/video/business/economy/100000009814615/fed-interest-rates.html
+
+**The Clint Squint**\
+`When Clint Eastwood narrows his eyes, pay attention. A master of the big screen is using them to convey seduction, intimidation, mystery and more.`\
+https://nytimes.com/interactive/2024/11/07/movies/clint-eastwood-squint.html
+
+**Friday Briefing: Biden promises a peaceful transition**\
+`Plus, the readers turning to “healing fiction.”`\
+https://nytimes.com/2024/11/07/briefing/donald-trump-climate-australia.html
+
 **Fed Chair Says He Won’t Leave if Trump Asks**\
 `Jerome H. Powell, the chairman of the central bank, has been a frequent target of the president-elect, who appointed him in 2018.`\
 https://nytimes.com/2024/11/07/us/politics/jerome-powell-trump-fed.html
