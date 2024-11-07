@@ -1,3 +1,7 @@
+**NCAA votes to open up college hockey eligibility to CHL players: What it means**\
+`The move marks the start of a potentially seismic shift in hockey's development landscape.`\
+https://nytimes.com/athletic/5827014/2024/11/07/ncaa-hockey-chl-players-eligiblity/
+
 **NASCAR Cup Series Championship odds, predictions for Phoenix: Who wins?**\
 `The NASCAR Cup Series Championship is here. Who will win? Our experts break down the drama heading into Sunday's race.`\
 https://nytimes.com/athletic/5906333/2024/11/07/nascar-cup-series-championship-odds-expert-predictions-phoenix/

@@ -1,3 +1,7 @@
+**NCAA votes to open up college hockey eligibility to CHL players: What it means**\
+`The move marks the start of a potentially seismic shift in hockey's development landscape.`\
+https://nytimes.com/athletic/5827014/2024/11/07/ncaa-hockey-chl-players-eligiblity/
+
 **NASCAR Cup Series Championship odds, predictions for Phoenix: Who wins?**\
 `The NASCAR Cup Series Championship is here. Who will win? Our experts break down the drama heading into Sunday's race.`\
 https://nytimes.com/athletic/5906333/2024/11/07/nascar-cup-series-championship-odds-expert-predictions-phoenix/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/us/elections/pennsylvania-house-wild-mackenzie.ht
 **Bruce Arena returns to management with San Jose Earthquakes**\
 `Bruce Arena has returned to management after being appointed as the new head coach and sporting director of MLS side San Jose Earthquakes ahead of the 2025 season.`\
 https://nytimes.com/athletic/5906722/2024/11/07/bruce-arena-san-jose-earthquakes-coach-new/
-
-**Cardinals keep Diamond Sports as TV home, grant streaming rights**\
-`Fans in Cardinals territory will now be able to subscribe to games without having to sign up for a full cable or satellite package.`\
-https://nytimes.com/athletic/5906665/2024/11/07/cardinals-tv-diamond-sports-streaming-rights/
 
