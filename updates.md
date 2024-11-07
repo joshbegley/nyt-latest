@@ -1,3 +1,7 @@
+**Cowboys' Dak Prescott partially tears hamstring tendon off bone**\
+`Prescott exited the Cowboys' Week 9 game against the Atlanta Falcons at the end of the third quarter.`\
+https://nytimes.com/athletic/5904778/2024/11/07/dak-prescott-hamstring-injury-cowboys/
+
 **Panthers, RB Chuba Hubbard agree to terms on 4-year deal**\
 `Hubbard, 25, is averaging 5.0 yards per carry this season tallying 665 yards (fifth in the NFL) on 133 carries with five rushing touchdowns.`\
 https://nytimes.com/athletic/5906123/2024/11/07/chuba-hubbard-contract-panthers/
