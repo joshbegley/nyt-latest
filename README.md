@@ -1,3 +1,7 @@
+**Several Feet of Snow Are Forecast in New Mexico and Colorado**\
+`A slow-moving winter storm was expected to drop up to three feet of snow in parts of the two states through Saturday, causing perilous road conditions and power outages.`\
+https://nytimes.com/2024/11/07/weather/snow-storm-new-mexico-colorado.html
+
 **Lloris reveals Tottenham players' concerns over Amazon documentary**\
 `Hugo Lloris has revealed the concerns Tottenham Hotspur players had with the club&#8217;s decision to allow an all-access documentary to follow them during the 2019-20 season.`\
 https://nytimes.com/athletic/5905657/2024/11/07/tottenham-amazon-documentary-hugo-lloris/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5903775/2024/11/07/packers-midseason-predictions-jo
 **Red Wings stock watch: Who's trending up and down 12 games in?**\
 `Detroit is back above .500 thanks in part to good goaltending and an impressive young defense pairing, but other issues remain.`\
 https://nytimes.com/athletic/5905342/2024/11/07/red-wings-stock-watch-12-games/
-
-**After rough debut with Chicago, Cubs expect Isaac Paredes to bounce back**\
-`Said Jed Hoyer: “He has a track record. He’s a really good hitter and covers the zone. That’s what I expect.”`\
-https://nytimes.com/athletic/5904820/2024/11/07/cubs-isaac-paredes-struggles-bounce-back/
 
