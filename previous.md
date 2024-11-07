@@ -1,3 +1,7 @@
+**A perfect 'robbery': How Diego Simeone masterminded yet another smash-and-grab win**\
+`Atletico Madrid produced an almost perfectly-controlled performance to pile more pressure on the French champions`\
+https://nytimes.com/athletic/5904876/2024/11/07/paris-saint-germain-atletico-madrid-analysis-champions-league/
+
 **Typhoon Yinxing Approaches the Philippines as a Category 4 Storm**\
 `More than 160,000 people have been evacuated to prepare for the tropical cyclone. It is forecast to make landfall by Friday morning.`\
 https://nytimes.com/2024/11/07/world/asia/philipines-typhoon-yinxing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5905344/2024/11/07/creighton-ryan-kalkbrenner-49-po
 **FPL: The best differential captaincy picks for the rest of the month**\
 `From Dominic Solanke to Alexander Isak to Antoine Semenyo, Holly Shand picks out the best differential captains for the next three gameweeks`\
 https://nytimes.com/athletic/5897301/2024/11/07/fantasy-premier-league-captains-differentials/
-
-**Buckley: Jayson Tatum made the baskets against Warriors, but not the statement**\
-`Warriors coach Steve Kerr was roundly booed for his Olympic slight of Tatum (32 points). It was Steph Curry who made noise in the end.`\
-https://nytimes.com/athletic/5905353/2024/11/07/celtics-warriors-jayson-tatum-steve-kerr/
 

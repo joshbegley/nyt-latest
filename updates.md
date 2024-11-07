@@ -1,3 +1,7 @@
+**A perfect 'robbery': How Diego Simeone masterminded yet another smash-and-grab win**\
+`Atletico Madrid produced an almost perfectly-controlled performance to pile more pressure on the French champions`\
+https://nytimes.com/athletic/5904876/2024/11/07/paris-saint-germain-atletico-madrid-analysis-champions-league/
+
 **Typhoon Yinxing Approaches the Philippines as a Category 4 Storm**\
 `More than 160,000 people have been evacuated to prepare for the tropical cyclone. It is forecast to make landfall by Friday morning.`\
 https://nytimes.com/2024/11/07/world/asia/philipines-typhoon-yinxing.html
