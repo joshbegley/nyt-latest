@@ -1,6 +1,6 @@
 **Will 49ers' Christian McCaffrey get a 2023-like workload? Kyle Shanahan is mum for now**\
 `McCaffrey, Deebo Samuel and Jauan Jennings were all on the practice field on Wednesday, though none of them practiced in full.`\
-https://nytimes.com/athletic/5905029/2024/11/06/will-49ers-christian-mccaffrey-get-a-2023-like-workload-kyle-shanahan-is-mum-for-now/
+https://nytimes.com/athletic/5905029/2024/11/06/christian-mccaffrey-49ers-workload-buccaneers/
 
 **Dodger Details, GM meetings edition: Mookie Betts in infield, Shohei Ohtani's surgery, more**\
 `The Betts move exacerbates the Dodgers' outfield situation. Plus, the Dodgers expect Ohtani to be part of the Opening Day lineup.`\
