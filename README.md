@@ -1,3 +1,7 @@
+**Powell Says He Will Not Resign if Trump Asks**\
+`President-elect Donald J. Trump appointed Jerome H. Powell, the chairman of the Federal Reserve, in 2018.`\
+https://nytimes.com/video/business/economy/100000009814742/powell-fed-chair.html
+
 **Swansea lead investors agree to sell stake in Championship club**\
 `Swansea City’s lead investors Steve Kaplan and Jason Levien have agreed to sell their stake in the Championship club, subject to English Football League (EFL) ratification.`\
 https://nytimes.com/athletic/5906617/2024/11/07/swansea-city-sale-kaplan-levien/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/dining/a-union-square-date-night-for-inter-boroug
 **A Week of Hope and Disappointment at Howard University**\
 `Times Opinion sent student photographers to capture the mood on campus.`\
 https://nytimes.com/live/2024/11/05/opinion/thepoint/kamala-defeat-howard-university
-
-**5 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/11/07/books/review/new-books-recommendations.html
 
