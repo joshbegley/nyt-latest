@@ -1,3 +1,7 @@
+**FA opens inquiry into leading Premier League figure to decide 'risk to children or adults within football'**\
+`The man, whom we cannot identify, has previously been investigated by police but has never been charged and denies any wrongdoing.`\
+https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonymous/
+
 **Thick Smog Blankets Pakistani City**\
 `Residents of Lahore are suffering from the toxic haze that has pushed the city’s Air Quality Index to off-the-chart levels by U.S. standards.`\
 https://nytimes.com/video/world/asia/100000009813321/pakistan-lahore-pollution-smog.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904751/2024/11/07/warriors-road-win-celtics/
 **Late Night Processes Donald Trump’s Re-Election**\
 `“Trump returning to the White House is a huge historic comeback for someone who literally never went away,” Jimmy Fallon said.`\
 https://nytimes.com/2024/11/07/arts/television/late-night-trump-election.html
-
-**The four stages of Villa's most concerning performance yet under Emery**\
-`Breaking down the reasons behind Villa's first defeat in the Champions League this season`\
-https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
 
