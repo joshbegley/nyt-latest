@@ -1,3 +1,11 @@
+**How Could Trump and Abortion Rights Both Win?**\
+`Making sense of this election’s very strange abortion politics.`\
+https://nytimes.com/2024/11/07/opinion/trump-abortion-election-harris.html
+
+**The New York Comedy Festival Is Huge. These 8 Shows Are a Good Start.**\
+`The intriguing options range from well-known names like Bill Maher and Tracy Morgan to under-the-radar standups like Chloe Radcliffe and Jay Jurden.`\
+https://nytimes.com/2024/11/07/arts/television/new-york-comedy-festival-recommendations.html
+
 **Trump Agenda Faces a Fiscal Reckoning**\
 `Advisers to President-elect Donald J. Trump and Republicans on Capitol Hill are already looking at ways to scale back some of his more expensive ideas.`\
 https://nytimes.com/2024/11/07/us/politics/trump-fiscal-republicans.html

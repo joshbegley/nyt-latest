@@ -1,3 +1,11 @@
+**How Could Trump and Abortion Rights Both Win?**\
+`Making sense of this election’s very strange abortion politics.`\
+https://nytimes.com/2024/11/07/opinion/trump-abortion-election-harris.html
+
+**The New York Comedy Festival Is Huge. These 8 Shows Are a Good Start.**\
+`The intriguing options range from well-known names like Bill Maher and Tracy Morgan to under-the-radar standups like Chloe Radcliffe and Jay Jurden.`\
+https://nytimes.com/2024/11/07/arts/television/new-york-comedy-festival-recommendations.html
+
 **Trump Agenda Faces a Fiscal Reckoning**\
 `Advisers to President-elect Donald J. Trump and Republicans on Capitol Hill are already looking at ways to scale back some of his more expensive ideas.`\
 https://nytimes.com/2024/11/07/us/politics/trump-fiscal-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/science/archaeology-dna-pompeii.html
 **Champions League projections: All the talking points after matchday four**\
 `Paris Saint-Germain and Real Madrid are just two of the big names in trouble as we reach the halfway point of the league phase`\
 https://nytimes.com/athletic/5905934/2024/11/07/champions-league-projections-matchday-four/
-
-**This Sesame Salmon Bowl Feels Like a Treat**\
-`Inspired by chirashi, Kay Chun’s one-pot dinner combines plump, silky salmon with vinegared rice, crunchy cucumbers, cabbage and a sesame-soy vinaigrette.`\
-https://nytimes.com/2024/11/07/dining/this-sesame-salmon-bowl-feels-like-a-treat.html
-
-**The former advertising man who got the Olympics sold on flag football**\
-`Brett Gosper, NFL's head in Europe & Asia-Pacific, talks to The Athletic about how he helped bring flag football to the Olympics`\
-https://nytimes.com/athletic/5903062/2024/11/07/brett-gosper-flag-football/
 
