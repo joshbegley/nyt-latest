@@ -1,3 +1,11 @@
+**What’s Next for Kamala Harris? Here Are Six Options.**\
+`Her friends, aides and political allies say it’s too soon for her to even contemplate her next career move. But the speculation has already begun.`\
+https://nytimes.com/2024/11/07/us/politics/kamala-harris-2028-run-for-president.html
+
+**Keep Fluoride in New York Water? Mayor Adams Hesitates, Then Weighs In.**\
+`President-elect Donald J. Trump has indicated that he would support ending water fluoridation. Mayor Eric Adams was reticent on the issue, before eventually taking a side.`\
+https://nytimes.com/2024/11/07/nyregion/fluoride-water-eric-adams.html
+
 **Mayor of Jackson, Miss., Is Indicted on Federal Corruption Charges**\
 `The mayor and two other local officials pleaded not guilty on Thursday after being accused of taking part in a scheme in which F.B.I. agents posing as real estate developers offered bribes.`\
 https://nytimes.com/2024/11/07/us/jackson-mayor-indicted-federal-corruption.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/business/media/washington-post-return-to-office.h
 **Elwood Edwards, Voice of AOL’s ‘You’ve Got Mail’ Alert, Dies at 74**\
 `He was also behind the company’s “Welcome,” “File’s done” and “Goodbye” messages.`\
 https://nytimes.com/2024/11/07/technology/elwood-edwards-aol-dead.html
-
-**Lee Carsley: I’ve only spoken with Tuchel by text**\
-`Lee Carsley has revealed that his only communication with incoming England head coach Thomas Tuchel has been a brief exchange of messages, rather than a phone call.`\
-https://nytimes.com/athletic/5906974/2024/11/07/thomas-tuchel-england-manager-carsley/
-
-**Photographing the Newsroom on Election Night**\
-`Simbarashe Cha and Sara Krulwich, two New York Times photographers, documented Tuesday evening in the newsroom.`\
-https://nytimes.com/2024/11/07/insider/photographing-times-newsroom-election-night.html
 
