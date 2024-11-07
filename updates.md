@@ -1,3 +1,11 @@
+**Disappointment Looks Different This Time Around**\
+`In 2016, social media was awash in calls to protest the day after Donald J. Trump’s victory. On Wednesday, many said it seemed like business as usual.`\
+https://nytimes.com/2024/11/07/style/social-media-trump-reaction.html
+
+**After the Election: Alienation, Fears and Pleas for Healing**\
+`Readers offer personal reactions and reflections. Also: A bill to combat antisemitism; noise in restaurants.`\
+https://nytimes.com/2024/11/07/opinion/election-alienation-fear-healing.html
+
 **A New Farm-to-Table Restaurant in Upstate New York**\
 `Plus: an Australian surf hotel, rubber sculptures and more recommendations from T Magazine.`\
 https://nytimes.com/2024/11/07/t-magazine/restaurant-hudson-new-york.html

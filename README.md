@@ -1,3 +1,7 @@
+**Gillen Defeats D’Esposito in New York, Flipping House Seat for Democrats**\
+`Laura Gillen unseated Representative Anthony D’Esposito, a first-term Republican, on Long Island. Her campaign focused on abortion and the border.`\
+https://nytimes.com/2024/11/07/nyregion/ny-house-laura-gillen-desposito.html
+
 **Disappointment Looks Different This Time Around**\
 `In 2016, social media was awash in calls to protest the day after Donald J. Trump’s victory. On Wednesday, many said it seemed like business as usual.`\
 https://nytimes.com/2024/11/07/style/social-media-trump-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/world/australia/australia-teens-social-media.html
 **Man Shoots Another Man Before Fleeing Into Manhattan Subway Station**\
 `The gunman was still at large, the police said, and the victim was in stable condition. The episode left New Yorkers sheltering on subway cars and led to delays across the transit system.`\
 https://nytimes.com/2024/11/07/nyregion/nyc-shooting-subway-delays.html
-
-**WTA Tour Finals: Gauff, Sabalenka, Zheng and Krejcikova make semifinals, Swiatek out**\
-`The season-ending event pits the best players on the WTA Tour against each other in Riyadh, Saudi Arabia.`\
-https://nytimes.com/athletic/5882196/2024/11/07/wta-finals-draw-results-analysis/
 
