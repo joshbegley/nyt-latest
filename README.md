@@ -1,3 +1,15 @@
+**Typhoon Yinxing Approaches the Philippines as a Category 4 Storm**\
+`More than 160,000 people have been evacuated to prepare for the tropical cyclone. It is forecast to make landfall by Friday morning.`\
+https://nytimes.com/2024/11/07/world/asia/philipines-typhoon-yinxing.html
+
+**Warriors (7-1) make a statement with focus, discipline in road win against Celtics**\
+`This win felt validating for Golden State veterans and decision-makers, a sign that this season's hot start had some substance to it. `\
+https://nytimes.com/athletic/5904751/2024/11/07/warriors-road-win-celtics/
+
+**Late Night Processes Donald Trump’s Re-Election**\
+`“Trump returning to the White House is a huge historic comeback for someone who literally never went away,” Jimmy Fallon said.`\
+https://nytimes.com/2024/11/07/arts/television/late-night-trump-election.html
+
 **The four stages of Aston Villa's most concerning performance yet under Unai Emery**\
 `Breaking down the reasons behind Aston Villa's first defeat in this season's Champions League`\
 https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5897301/2024/11/07/fantasy-premier-league-captains-
 **Buckley: Jayson Tatum made the baskets against Warriors, but not the statement**\
 `Warriors coach Steve Kerr was roundly booed for his Olympic slight of Tatum (32 points). It was Steph Curry who made noise in the end.`\
 https://nytimes.com/athletic/5905353/2024/11/07/celtics-warriors-jayson-tatum-steve-kerr/
-
-**Shola Shoretire on leaving Man United: 'I just had to know my worth as a player'**\
-`The former United young player of the year is back in Manchester with Greek side PAOK`\
-https://nytimes.com/athletic/5902781/2024/11/07/manchester-united-shola-shoretire-interview/
-
-**Newcastle's 'brothers in harm': how their team play is being influenced by fouls**\
-`Bruno Guimaraes and Joelinton are at different ends of the spectrum when it comes to fouls, but remain key to Newcastle's approach`\
-https://nytimes.com/athletic/5902673/2024/11/07/newcastle-guimaraes-joelinton-gordon-fouls/
-
-**Why Taylor's appointment to a Nottingham Forest game has caused controversy**\
-`There has been a lot of anger on social media at Anthony Taylor being put in charge of Forest's game against Newcastle`\
-https://nytimes.com/athletic/5904002/2024/11/07/nottingham-forest-anthony-taylor/
 
