@@ -1,3 +1,7 @@
+**How the Nation Swung Back to Trump in 2024**\
+`Donald J. Trump’s swift victory was driven by red shifts across the country, with gains among seemingly every possible grouping of Americans.`\
+https://nytimes.com/interactive/2024/11/06/us/elections/trump-america-red-shift-victory.html
+
 **Clippers fans boo Paul George in return; 76ers’ star has no ‘ill will’**\
 `The Sixers star who always envisioned retiring in a Clippers jersey still has nothing but good things to say about his old team.`\
 https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-return/
