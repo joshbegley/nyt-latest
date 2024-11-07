@@ -1,3 +1,7 @@
+**Higher Prices, Trade Wars and More: What to Know About Trump’s Tariffs**\
+`The president-elect says that tariff is “the most beautiful word in the dictionary.” You may be hearing it a lot.`\
+https://nytimes.com/2024/11/07/business/economy/trump-tariffs-trade-what-to-know.html
+
 **Raygun retires from competitive breaking after Olympic backlash**\
 `Gunn said she originally planned to keep competing but changed her mind after the "upsetting" experience.`\
 https://nytimes.com/athletic/5905910/2024/11/07/raygun-retires-breaking-olympics/
