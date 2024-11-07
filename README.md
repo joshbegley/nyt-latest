@@ -1,3 +1,7 @@
+**Trump’s Strange Bedfellows: Arab Americans and Right-Leaning Jews**\
+`Donald J. Trump won votes from Arab Americans and pro-Israel American Jews. Someone is likely to be disappointed.`\
+https://nytimes.com/2024/11/07/us/politics/trump-arab-american-jews.html
+
 **Man Who Illegally Accessed Ginsburg’s Medical Records Gets 2 Years in Prison**\
 `The man, a former health care worker, was convicted in July on two charges stemming from the privacy breach and his attempts to cover it up.`\
 https://nytimes.com/2024/11/07/us/ruth-bader-ginsburg-medical-records.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907294/2024/11/07/ruud-van-nistelrooy-manchester-u
 **Trump Names Susie Wiles as His White House Chief of Staff**\
 `The president-elect turned to his top political aide to fill a key post managing the White House when he returns to office.`\
 https://nytimes.com/2024/11/07/us/politics/susie-wiles-trump-white-house-chief-of-staff.html
-
-**Hector Herrera spitting at referee played a part in Houston Dynamo exit, club say**\
-`Mexican international Hector Herrera will likely be remembered as a transformational player for the Houston Dynamo, having led them to the playoffs and an Open Cup title after nearly a decade of irrelevance.`\
-https://nytimes.com/athletic/5907248/2024/11/07/hector-herrera-spitting-referee-houston-dynamo/
 
