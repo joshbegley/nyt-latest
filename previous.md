@@ -1,3 +1,7 @@
+**What the Collapse of Germany’s Ruling Coalition Means**\
+`After decades of relative stability, the country has entered a new era of political fragmentation and will hold new elections at a precarious time.`\
+https://nytimes.com/2024/11/07/world/europe/germany-coalition-collapse-explained.html
+
 **NFL Draft watch: 'The Beast' early tidbits; 3 prospects to track this weekend**\
 `Did you know these details about 2025 NFL Draft prospects Tre Harris, Malaki Starks and Wyatt Milum? Plus, a preview of the weekend.`\
 https://nytimes.com/athletic/5903482/2024/11/07/nfl-draft-watch-2025-malaki-starks-tre-harris/
@@ -30,11 +34,7 @@ https://nytimes.com/video/world/middleeast/100000009813433/dozens-of-israeli-str
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/11/07/us/trump-election/heres-the-latest-on-the-election
 
-**PWHL unveils new jerseys ahead of 2024-25 season**\
-`The Professional Women’s Hockey League has unveiled new-look uniforms for its six franchises ahead of the 2024-25 season.`\
-https://nytimes.com/athletic/5904668/2024/11/07/pwhl-jerseys-uniforms-design/
-
-**Robert Bortuzzo's 10-year run with Blues was built on 'hard work and sacrifice'**\
-`Bortuzzo returns to St. Louis with the Utah Hockey Club on Thursday, following a 10-year run with the Blues.`\
-https://nytimes.com/athletic/5893602/2024/11/07/robert-bortuzzo-blues-utah/
+**Election Live Updates: Biden to Speak to Nation as Trump Prepares His Return to Power**\
+`The president-elect will have more sway over Congress in his second administration. President Biden plans to speak at 11 a.m. Eastern from the White House Rose Garden.`\
+https://nytimes.com/live/2024/11/07/us/trump-election
 

@@ -1,3 +1,11 @@
+**What the Collapse of Germany’s Ruling Coalition Means**\
+`After decades of relative stability, the country has entered a new era of political fragmentation and will hold new elections at a precarious time.`\
+https://nytimes.com/2024/11/07/world/europe/germany-coalition-collapse-explained.html
+
+**Election Live Updates: Biden to Speak to Nation as Trump Prepares His Return to Power**\
+`The president-elect will have more sway over Congress in his second administration. President Biden plans to speak at 11 a.m. Eastern from the White House Rose Garden.`\
+https://nytimes.com/live/2024/11/07/us/trump-election
+
 **NFL Draft watch: 'The Beast' early tidbits; 3 prospects to track this weekend**\
 `Did you know these details about 2025 NFL Draft prospects Tre Harris, Malaki Starks and Wyatt Milum? Plus, a preview of the weekend.`\
 https://nytimes.com/athletic/5903482/2024/11/07/nfl-draft-watch-2025-malaki-starks-tre-harris/
