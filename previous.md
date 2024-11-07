@@ -1,3 +1,7 @@
+**Simone Inzaghi is adaptable, astute and without doubt Premier League-ready**\
+`As if beating Arsenal wasn't impressive enough, Inzaghi pulled it off with a rotated team. He is at the peak of his a powers`\
+https://nytimes.com/athletic/5904973/2024/11/07/simone-inzaghi-inter-arsenal-champions-league/
+
 **Word of the Day: pollinator**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/07/learning/word-of-the-day-pollinator.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/opinion/spain-floods-valencia-populism.html
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/07/nhl-standings-playoffs-projections-odds/
-
-**Creighton's Ryan Kalkbrenner scores 49 points in season-opening victory**\
-`Kalkbrenner's 49 points is the most by any Division I player on 90 percent shooting in a game in the last 40 years.`\
-https://nytimes.com/athletic/5905344/2024/11/07/creighton-ryan-kalkbrenner-49-points/
 

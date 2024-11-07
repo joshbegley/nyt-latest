@@ -1,3 +1,7 @@
+**Simone Inzaghi is adaptable, astute and without doubt Premier League-ready**\
+`As if beating Arsenal wasn't impressive enough, Inzaghi pulled it off with a rotated team. He is at the peak of his a powers`\
+https://nytimes.com/athletic/5904973/2024/11/07/simone-inzaghi-inter-arsenal-champions-league/
+
 **Word of the Day: pollinator**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/07/learning/word-of-the-day-pollinator.html
