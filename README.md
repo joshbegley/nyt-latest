@@ -1,3 +1,7 @@
+**Quote of the Day: There Is Joy in This Mudville: Scientists Solve ‘Magical’ Muck**\
+`Quotation of the Day for Thursday, November 7, 2024`\
+https://nytimes.com/2024/11/06/pageoneplus/quote-of-the-day-there-is-joy-in-this-mudville-scientists-solve-magical-muck.html
+
 **How the Nation Swung Back to Trump in 2024**\
 `Donald J. Trump’s swift victory was driven by red shifts across the country, with gains among seemingly every possible grouping of Americans.`\
 https://nytimes.com/interactive/2024/11/06/us/elections/trump-america-red-shift-victory.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904954/2024/11/06/dodgers-mookie-betts-infield-sho
 **For Many Arab Americans in Dearborn, Trump Made the Case for Their Votes**\
 `After supporting Joe Biden in 2020, the majority-Arab American city outside Detroit delivered an unlikely win for Donald Trump, who promised to bring peace to the Middle East.`\
 https://nytimes.com/2024/11/06/us/dearborn-michigan-trump-arab-voters.html
-
-**A Dark Suit and a Weary Smile**\
-`In her concession speech, Kamala Harris offered an image for a long fight.`\
-https://nytimes.com/2024/11/06/style/kamala-harris-concession-speech.html
 
