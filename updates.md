@@ -1,3 +1,7 @@
+**College football Week 11 odds, picks ATS: Ole Miss-Georgia, Alabama-LSU and more**\
+`Two big SEC games, Alabama at LSU and Georgia at Ole Miss, highlight college football's Week 11 slate. Both road teams are small favorites.`\
+https://nytimes.com/athletic/5901100/2024/11/07/college-football-week-11-odds-picks-ole-miss-georgia-alabama-lsu/
+
 **Six reasons why the Ducks are the NHL's worst offensive team**\
 `Twelve games in, the Ducks have only scored 25 goals. What's at the root of their offensive woes?`\
 https://nytimes.com/athletic/5905582/2024/11/07/anaheim-ducks-nhl-offense-loss-analysis/
