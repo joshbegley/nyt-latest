@@ -1,3 +1,19 @@
+**Newsom Moves Quickly to Counter Trump in California**\
+`Gov. Gavin Newsom called the Legislature back to the Capitol for a special session to bolster civil liberties, reproductive rights and environmental protections.`\
+https://nytimes.com/2024/11/07/us/newsom-trump-california.html
+
+**NFL Week 10 fantasy football, betting cheat sheet: Higgins doubtful for TNF, Moss hits IR**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5900189/2024/11/07/nfl-week-10-fantasy-football-injuries-rankings-betting/
+
+**Trump’s Believers See a Presidency With God on Their Side**\
+`Many Christian conservatives saw the battle for the White House as a holy war. Now, with Donald Trump’s victory, their vision goes beyond politics.`\
+https://nytimes.com/2024/11/07/us/trump-believers-presidency-god.html
+
+**How Russia Openly Escalated Its Election Interference Efforts**\
+`The Kremlin did not bother to hide its efforts to influence the 2024 presidential election, as it did in the past.`\
+https://nytimes.com/2024/11/07/technology/russia-us-election-interference.html
+
 **What we're hearing about the Cardinals at the GM meetings**\
 `Ryan Helsley has garnered significant interest from rival clubs and was a popular name during these meetings.`\
 https://nytimes.com/athletic/5904986/2024/11/07/cardinals-mlb-offseason-moves-2/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/07/opinion/trump-abortion-election-harris.html
 **The New York Comedy Festival Is Huge. These 8 Shows Are a Good Start.**\
 `The intriguing options range from well-known names like Bill Maher and Tracy Morgan to under-the-radar standups like Chloe Radcliffe and Jay Jurden.`\
 https://nytimes.com/2024/11/07/arts/television/new-york-comedy-festival-recommendations.html
-
-**Trump Agenda Faces a Fiscal Reckoning**\
-`Advisers to President-elect Donald J. Trump and Republicans on Capitol Hill are already looking at ways to scale back some of his more expensive ideas.`\
-https://nytimes.com/2024/11/07/us/politics/trump-fiscal-republicans.html
-
-**A Spike in Demand, and Fees, for Lobbyists With Ties to Trump**\
-`Corporations and foreign governments are offering to pay steep prices for help dealing with the unpredictable president-elect.`\
-https://nytimes.com/2024/11/07/us/politics/trump-lobbyists.html
-
-**Devastated Democrats Play the Blame Game, and Stare at a Dark Future**\
-`In interviews, lawmakers and strategists tried to explain Kamala Harris’s defeat, pointing to misinformation, the Gaza war, a toxic Democratic brand and the party’s approach to transgender issues.`\
-https://nytimes.com/2024/11/07/us/politics/democrats-kamala-harris.html
-
-**Florida sticking with Billy Napier as football coach**\
-`Napier’s future has been questioned since going 11-14 in his first two seasons and had an elite recruiting class crumbled before signing day`\
-https://nytimes.com/athletic/5906242/2024/11/07/billy-napier-florida-football-coach/
 

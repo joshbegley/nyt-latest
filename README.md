@@ -1,3 +1,7 @@
+**The Best Place to Find ‘Somebody’s Son’? Try ‘A Black Love Party.’**\
+`After the success of MeAndSomebodySon, her Instagram page dedicated to Black romantic relationships, Zemirah Moffett is taking the party offline.`\
+https://nytimes.com/2024/11/07/style/black-love-party-meandsomebodyson.html
+
 **Newsom Moves Quickly to Counter Trump in California**\
 `Gov. Gavin Newsom called the Legislature back to the Capitol for a special session to bolster civil liberties, reproductive rights and environmental protections.`\
 https://nytimes.com/2024/11/07/us/newsom-trump-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906304/2024/11/07/miami-heat-jimmy-butler-kevin-du
 **How Could Trump and Abortion Rights Both Win?**\
 `Making sense of this election’s very strange abortion politics.`\
 https://nytimes.com/2024/11/07/opinion/trump-abortion-election-harris.html
-
-**The New York Comedy Festival Is Huge. These 8 Shows Are a Good Start.**\
-`The intriguing options range from well-known names like Bill Maher and Tracy Morgan to under-the-radar standups like Chloe Radcliffe and Jay Jurden.`\
-https://nytimes.com/2024/11/07/arts/television/new-york-comedy-festival-recommendations.html
 

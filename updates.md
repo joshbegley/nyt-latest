@@ -1,3 +1,19 @@
+**Newsom Moves Quickly to Counter Trump in California**\
+`Gov. Gavin Newsom called the Legislature back to the Capitol for a special session to bolster civil liberties, reproductive rights and environmental protections.`\
+https://nytimes.com/2024/11/07/us/newsom-trump-california.html
+
+**NFL Week 10 fantasy football, betting cheat sheet: Higgins doubtful for TNF, Moss hits IR**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5900189/2024/11/07/nfl-week-10-fantasy-football-injuries-rankings-betting/
+
+**Trump’s Believers See a Presidency With God on Their Side**\
+`Many Christian conservatives saw the battle for the White House as a holy war. Now, with Donald Trump’s victory, their vision goes beyond politics.`\
+https://nytimes.com/2024/11/07/us/trump-believers-presidency-god.html
+
+**How Russia Openly Escalated Its Election Interference Efforts**\
+`The Kremlin did not bother to hide its efforts to influence the 2024 presidential election, as it did in the past.`\
+https://nytimes.com/2024/11/07/technology/russia-us-election-interference.html
+
 **What we're hearing about the Cardinals at the GM meetings**\
 `Ryan Helsley has garnered significant interest from rival clubs and was a popular name during these meetings.`\
 https://nytimes.com/athletic/5904986/2024/11/07/cardinals-mlb-offseason-moves-2/
