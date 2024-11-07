@@ -1,3 +1,19 @@
+**College football best bets Week 11: Rebels overvalued, Wolverines undervalued**\
+`Austin Mock picks four bets to start our college football betting slate this week.`\
+https://nytimes.com/athletic/5900210/2024/11/07/college-football-best-bets-week-11-georgia-ole-miss-michigan/
+
+**Lower Rates, Rising Yields: What to Make of the Bond Market Right Now**\
+`Yields on government bonds — which underpin all kinds of borrowing in the economy — are rising. But the Fed is cutting rates. What gives?`\
+https://nytimes.com/2024/11/07/business/bond-market-trump.html
+
+**What I learned from Netflix's 'The Kiss That Changed Spanish Football' documentary**\
+`A new documentary sheds light on the scandal that followed Spain's Women's World Cup win last year`\
+https://nytimes.com/athletic/5906229/2024/11/07/hermoso-rubiales-kiss-netflix-documentary/
+
+**How Harwood-Bellis earned England's trust after just 10 Premier League games**\
+`Ball-playing defender has always looked destined for a career at the top - now he has his chance`\
+https://nytimes.com/athletic/5906507/2024/11/07/taylor-harwood-bellis-england-squad/
+
 **Riley Leonard's recent strides are making believers out of his doubters**\
 `Notre Dame was patient as Leonard worked through some early inconsistencies. In November, the transfer QB might finally hit his stride.`\
 https://nytimes.com/athletic/5906566/2024/11/07/riley-leonard-notre-dame-quarterback-college-football/
