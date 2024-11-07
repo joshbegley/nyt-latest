@@ -1,3 +1,7 @@
+**The Clippers don't regret saying goodbye to Paul George, and no to the Warriors**\
+`Conventional wisdom says you don't let a star leave for nothing. But for the Clippers, nothing seemed better than something.`\
+https://nytimes.com/athletic/5905671/2024/11/07/clippers-paul-george-sixers-warriors-trade/
+
 **JJ Redick rips Lakers' effort as loss to Grizzlies closes their 1-4 road trip**\
 `Missing two frontcourt starters, the Lakers had little response in Memphis. `\
 https://nytimes.com/athletic/5904449/2024/11/07/lakers-jj-redick-grizzlies-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/movies/meanwhile-on-earth-review.html
 **Explaining the Milne-over-Ohgren decision, Rossi on his hidden puck trick and more: Wild notes**\
 `Also, Marc-Andre Fleury on plans post-retirement: “I want to be home more for my kids … And then obviously, I think hockey is all I know."`\
 https://nytimes.com/athletic/5903908/2024/11/07/milne-ohgren-fleury-rossi-wild/
-
-**‘Christmas Eve in Miller’s Point’ Review: Home for the Holidays**\
-`Tyler Taormina’s third theatrical feature is a lightly nostalgic ensemble piece set on Long Island.`\
-https://nytimes.com/2024/11/07/movies/christmas-eve-in-millers-point-review.html
 

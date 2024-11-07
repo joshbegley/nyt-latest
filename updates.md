@@ -1,3 +1,7 @@
+**The Clippers don't regret saying goodbye to Paul George, and no to the Warriors**\
+`Conventional wisdom says you don't let a star leave for nothing. But for the Clippers, nothing seemed better than something.`\
+https://nytimes.com/athletic/5905671/2024/11/07/clippers-paul-george-sixers-warriors-trade/
+
 **JJ Redick rips Lakers' effort as loss to Grizzlies closes their 1-4 road trip**\
 `Missing two frontcourt starters, the Lakers had little response in Memphis. `\
 https://nytimes.com/athletic/5904449/2024/11/07/lakers-jj-redick-grizzlies-loss/
