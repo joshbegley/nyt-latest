@@ -1,3 +1,7 @@
+**Dodger Details, GM meetings edition: Mookie Betts in infield, Shohei Ohtani's surgery, more**\
+`The Betts move exacerbates the Dodgers' outfield situation. Plus, the Dodgers expect Ohtani to be part of the Opening Day lineup.`\
+https://nytimes.com/athletic/5904954/2024/11/06/dodgers-mookie-betts-infield-shohei-ohtani-surgery/
+
 **Dodger Details, GM meetings edition: Betts in the infield, Ohtani's surgery and more**\
 `The Betts move exacerbates the Dodgers' outfield situation. Plus, the Dodgers expect Ohtani to be part of the Opening Day lineup.`\
 https://nytimes.com/athletic/5904954/2024/11/06/dodgers-mookie-betts-infield-shohei-ohtani-surgery/
