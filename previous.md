@@ -1,3 +1,19 @@
+**Momentum continues to elude Blackhawks in lifeless loss to Kane, Red Wings: Observations**\
+`The next step for the Blackhawks is consistency, and it's one they're struggling with.`\
+https://nytimes.com/athletic/5905350/2024/11/07/blackhawks-momentum-streaks-red-wings/
+
+**Who owns football? Al-Khelaifi, PSG and the motivations behind Qatar's World Cup**\
+`In an exclusive extract from his new book, 'Who Owns Football?' Nick Miller explains the relationship between PSG, Qatar and the World Cup.`\
+https://nytimes.com/athletic/5897306/2024/11/07/al-khelaifi-psg-watar-world-cup/
+
+**In praise of Chris Wood and the subtle art of being offside**\
+`Wood's form serves as an important reminder that you’re never too old to score goals - you’ve just got to be wiser`\
+https://nytimes.com/athletic/5903057/2024/11/07/chris-wood-form-art-of-being-offside/
+
+**Cole Palmer, the passer - and the man who makes Chelsea tick**\
+`There is a case to be made that passing is Palmer’s most outstanding attribute - a case strengthened in Chelsea’s 2-1 win over Newcastle`\
+https://nytimes.com/athletic/5902728/2024/11/07/cole-palmer-chelsea-passing-analysis/
+
 **Quote of the Day: There Is Joy in This Mudville: Scientists Solve ‘Magical’ Muck**\
 `Quotation of the Day for Thursday, November 7, 2024`\
 https://nytimes.com/2024/11/06/pageoneplus/quote-of-the-day-there-is-joy-in-this-mudville-scientists-solve-magical-muck.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/06/climate/2024-temperatures-hottest-year.html
 **Rave Party**\
 `Joe Deeney shows us where we’re going (to.)`\
 https://nytimes.com/2024/11/06/crosswords/daily-puzzle-2024-11-07.html
-
-**Corrections: Nov. 7, 2024**\
-`Corrections that appeared in print on Thursday, Nov. 7, 2024.`\
-https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-7-2024.html
-
-**Will 49ers' Christian McCaffrey get a 2023-like workload? Kyle Shanahan is mum for now**\
-`McCaffrey, Deebo Samuel and Jauan Jennings were all on the practice field on Wednesday, though none of them practiced in full.`\
-https://nytimes.com/athletic/5905029/2024/11/06/christian-mccaffrey-49ers-workload-buccaneers/
-
-**Dodger Details, GM meetings edition: Mookie Betts in infield, Shohei Ohtani's surgery, more**\
-`The Betts move exacerbates the Dodgers' outfield situation. Plus, the Dodgers expect Ohtani to be part of the Opening Day lineup.`\
-https://nytimes.com/athletic/5904954/2024/11/06/dodgers-mookie-betts-infield-shohei-ohtani-surgery/
-
-**For Many Arab Americans in Dearborn, Trump Made the Case for Their Votes**\
-`After supporting Joe Biden in 2020, the majority-Arab American city outside Detroit delivered an unlikely win for Donald Trump, who promised to bring peace to the Middle East.`\
-https://nytimes.com/2024/11/06/us/dearborn-michigan-trump-arab-voters.html
 
