@@ -1,3 +1,19 @@
+**Transgender Americans Voice New Anxiety About Trump Agenda**\
+`President-elect Donald Trump has promised to “keep men out of women’s sports” and withhold Medicare and Medicaid funding from hospitals that provide gender transition treatment to minors.`\
+https://nytimes.com/2024/11/07/us/trump-trans-rights.html
+
+**Federal Reserve Lowers Interest Rates**\
+`Jerome H. Powell, the Fed chair, said that the Fed’s immediate path would not be impacted by Donald J. Trump’s win.`\
+https://nytimes.com/video/business/economy/100000009814615/fed-interest-rates.html
+
+**The Clint Squint**\
+`When Clint Eastwood narrows his eyes, pay attention. A master of the big screen is using them to convey seduction, intimidation, mystery and more.`\
+https://nytimes.com/interactive/2024/11/07/movies/clint-eastwood-squint.html
+
+**Friday Briefing: Biden promises a peaceful transition**\
+`Plus, the readers turning to “healing fiction.”`\
+https://nytimes.com/2024/11/07/briefing/donald-trump-climate-australia.html
+
 **Fed Chair Says He Won’t Leave if Trump Asks**\
 `Jerome H. Powell, the chairman of the central bank, has been a frequent target of the president-elect, who appointed him in 2018.`\
 https://nytimes.com/2024/11/07/us/politics/jerome-powell-trump-fed.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5906825/2024/11/07/galatasaray-3-2-spurs-will-lanks
 **What to know about the Fed meeting.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/11/07/business/fed-interest-rates/what-to-know-about-the-fed-meeting
-
-**What Teenagers Are Saying About Love**\
-`Students tell us what they have learned from the platonic, familial and romantic relationships in their lives.`\
-https://nytimes.com/2024/11/07/learning/what-teenagers-are-saying-about-love.html
-
-**Trump Whiplash Looms Over Global Climate Talks**\
-`As the world gathers for U.N. climate negotiations in Azerbaijan next week, here’s what we will be watching.`\
-https://nytimes.com/2024/11/07/climate/trump-climate-cop-negotiations.html
-
-**Everything to know about the NCAA's decision to make CHL players eligible**\
-`Answering your questions about an NCAA decision that could upend hockey’s development landscape.`\
-https://nytimes.com/athletic/5828094/2024/11/07/ncaa-canadian-hockey-league-college-hockey-explained/
-
-**What’s Going On in This Picture? | Nov. 18, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/11/07/learning/whats-going-on-in-this-picture-nov-18-2024.html
 
