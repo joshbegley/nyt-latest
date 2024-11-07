@@ -1,3 +1,7 @@
+**Biden promises a ‘peaceful transfer of power here in America.’**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/biden-promises-a-peaceful-transfer-of-power-here-in-america
+
 **European Leaders Meet to Consider a World in Flux**\
 `Leaders from across Europe and beyond gathered to discuss the war in Ukraine, immigration and plans for a second Trump presidency.`\
 https://nytimes.com/2024/11/07/world/europe/europe-leaders-hungary-trump-germany.html
