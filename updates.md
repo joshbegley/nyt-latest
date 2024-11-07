@@ -1,3 +1,11 @@
+**FPL: The best differential captaincy picks for the rest of the month**\
+`From Dominic Solanke to Alexander Isak to Antoine Semenyo, Holly Shand picks out the best differential captains for the next three gameweeks`\
+https://nytimes.com/athletic/5897301/2024/11/07/fantasy-premier-league-captains-differentials/
+
+**Buckley: Jayson Tatum made the baskets against Warriors, but not the statement**\
+`Warriors coach Steve Kerr was roundly booed for his Olympic slight of Tatum (32 points). It was Steph Curry who made noise in the end.`\
+https://nytimes.com/athletic/5905353/2024/11/07/celtics-warriors-jayson-tatum-steve-kerr/
+
 **Shola Shoretire on leaving Man United: 'I just had to know my worth as a player'**\
 `The former United young player of the year is back in Manchester with Greek side PAOK`\
 https://nytimes.com/athletic/5902781/2024/11/07/manchester-united-shola-shoretire-interview/
