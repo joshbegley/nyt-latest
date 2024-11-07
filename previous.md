@@ -1,5 +1,5 @@
 **Transgender Americans Voice New Anxiety About Trump Agenda**\
-`President-elect Donald Trump has promised to “keep men out of women’s sports” and withhold Medicare and Medicaid funding from hospitals that provide gender transition treatment to minors.`\
+`President-elect Donald J. Trump has promised to “keep men out of women’s sports” and withhold Medicare and Medicaid funding from hospitals that provide gender transition treatment to minors.`\
 https://nytimes.com/2024/11/07/us/trump-trans-rights.html
 
 **Federal Reserve Lowers Interest Rates**\
