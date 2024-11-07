@@ -1,3 +1,7 @@
+**European Leaders Meet to Consider a World in Flux**\
+`Leaders from across Europe and beyond gathered to discuss the war in Ukraine, immigration and plans for a second Trump presidency.`\
+https://nytimes.com/2024/11/07/world/europe/europe-leaders-hungary-trump-germany.html
+
 **Heat Today: Late-game miscues by Jimmy Butler, Miami result in blown lead vs. Suns**\
 `The Heat squander another double-digit lead and search for answers.`\
 https://nytimes.com/athletic/5906304/2024/11/07/miami-heat-jimmy-butler-kevin-durant-suns/
