@@ -1,3 +1,7 @@
+**Giuliani Speaks After Missing Court Deadline for $148 Million Payment**\
+`Rudy Giuliani, the former New York City mayor, owes $148 million from a 2021 defamation case, which he called “a political vendetta.”`\
+https://nytimes.com/video/us/politics/100000009814822/giuliani-speaks-after-missing-court-deadline-for-148-million-payment.html
+
 **Man United's Onana hopes Van Nistelrooy stays at club**\
 `Andre Onana hopes that Manchester United interim coach Ruud van Nistelrooy remains at the club after Ruben Amorim&#8217;s permanent arrival next week.`\
 https://nytimes.com/athletic/5907294/2024/11/07/ruud-van-nistelrooy-manchester-united-future/
