@@ -1,5 +1,9 @@
+**Israeli Strikes Killed at Least 40 in Eastern Lebanon, Health Ministry Says**\
+`The deadliest strikes hit the Bekaa Valley, which is home to the historic city of Baalbek.`\
+https://nytimes.com/2024/11/07/world/israel-lebanon-hezbollah-gaza.html
+
 **Bank of England Cuts Interest Rates, but Warns Inflation Will Fall Slowly**\
-`The central bank cut interest rates a quarter point on Thursday, but it said that future cuts would be gradual.`\
+`The central bank said that future cuts would be gradual after spending increases were introduced in the government’s new budget.`\
 https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation.html
 
 **Broncos second-half predictions: Bo Nix's numbers, milestone for WR and ... playoffs?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5905452/2024/11/07/edmonton-oilers-penalty-goal-veg
 **As BYU-Utah returns, it's the Cougars who are playing for an undefeated season**\
 `Kalani Sitake and several of his staffers have experience with an undefeated season thanks to time spent at rival Utah. `\
 https://nytimes.com/athletic/5903688/2024/11/07/byu-football-utah-rivalry-undefeated/
-
-**ATP Tour Finals draw pits Sinner against Medvedev, Alcaraz against Zverev**\
-`Defending champion Novak Djokovic misses the event with injury.`\
-https://nytimes.com/athletic/5905649/2024/11/07/atp-tour-finals-draw-results-analysis/
 
