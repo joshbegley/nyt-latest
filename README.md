@@ -1,3 +1,11 @@
+**Hector Herrera spitting at referee played a part in Houston Dynamo exit, club say**\
+`Mexican international Hector Herrera will likely be remembered as a transformational player for the Houston Dynamo, having led them to the playoffs and an Open Cup title after nearly a decade of irrelevance.`\
+https://nytimes.com/athletic/5907248/2024/11/07/hector-herrera-spitting-referee-houston-dynamo/
+
+**Everton's McNeil a doubt for West Ham match with knee injury**\
+`Everton winger Dwight McNeil is a doubt for Saturday&#8217;s Premier League match against West Ham United due to a knee injury.`\
+https://nytimes.com/athletic/5906523/2024/11/07/dwight-mcneil-injury-everton/
+
 **Washington Post Employees Ordered Back to Office 5 Days a Week**\
 `All employees at The Post will be expected to return to the office by June 2. Managers must be back in the office full time by Feb. 3.`\
 https://nytimes.com/2024/11/07/business/media/washington-post-return-to-office.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/briefing/democrats-trump-election.html
 **Here’s what Trump’s victory could mean for New York City.**\
 `By Emma Fitzsimmons and Luis Ferré-Sadurní`\
 https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/heres-what-trumps-victory-could-mean-for-new-york-city
-
-**San Francisco Giants free-agent profile: Juan Soto, OF**\
-`Signing Soto is a risky idea, even with his talent and youth. But it’s just so wacky it might work.`\
-https://nytimes.com/athletic/5906532/2024/11/07/sf-giants-juan-soto-free-agent-profile/
-
-**Submit your Red Wings questions for Max Bultman's mailbag**\
-`Drop your questions here, and Max Bultman may answer them in an upcoming Red Wings mailbag. `\
-https://nytimes.com/athletic/5906147/2024/11/07/red-wings-mailbag-questions-max-bultman/
 
