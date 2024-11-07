@@ -1,3 +1,7 @@
+**Mayor of Jackson, Miss., Is Indicted on Federal Corruption Charges**\
+`The mayor and two other local officials pleaded not guilty on Thursday after being accused of taking part in a scheme in which F.B.I. agents posing as real estate developers offered bribes.`\
+https://nytimes.com/2024/11/07/us/jackson-mayor-indicted-federal-corruption.html
+
 **Giuliani Speaks After Missing Court Deadline for $148 Million Payment**\
 `Rudy Giuliani, the former New York City mayor, owes $148 million from a 2021 defamation case, which he called “a political vendetta.”`\
 https://nytimes.com/video/us/politics/100000009814822/giuliani-speaks-after-missing-court-deadline-for-148-million-payment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906974/2024/11/07/thomas-tuchel-england-manager-ca
 **Photographing the Newsroom on Election Night**\
 `Simbarashe Cha and Sara Krulwich, two New York Times photographers, documented Tuesday evening in the newsroom.`\
 https://nytimes.com/2024/11/07/insider/photographing-times-newsroom-election-night.html
-
-**Mets owner Steve Cohen sets meeting with top free agent Juan Soto: Sources**\
-`Soto, 26, is expected to command a multiyear deal worth more than $600 million.`\
-https://nytimes.com/athletic/5907214/2024/11/07/juan-soto-meeting-mets-steve-cohen/
 
