@@ -1,3 +1,7 @@
+**Momentum still eludes Blackhawks in lifeless loss to Patrick Kane, Red Wings: Observations**\
+`The next step for the Blackhawks is consistency, and it's one they're struggling with.`\
+https://nytimes.com/athletic/5905350/2024/11/07/blackhawks-momentum-streaks-red-wings/
+
 **Viktor Gyokeres: Is European football's most in-form striker finally ready for the Premier League?**\
 `The Swede was unable to break through at Brighton but his sensational displays for Sporting have got Europe's elite on high-alert `\
 https://nytimes.com/athletic/5903347/2024/11/07/viktor-gyokeres-analysis-profile/
