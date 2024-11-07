@@ -1,3 +1,11 @@
+**A New Farm-to-Table Restaurant in Upstate New York**\
+`Plus: an Australian surf hotel, rubber sculptures and more recommendations from T Magazine.`\
+https://nytimes.com/2024/11/07/t-magazine/restaurant-hudson-new-york.html
+
+**F.D.A. Proposes Removing Ineffective Nasal Decongestant From Stores**\
+`It was added to cold and flu remedies in the 1990s when another ingredient went behind the counter over illicit meth lab concerns.`\
+https://nytimes.com/2024/11/07/health/fda-decongestant-over-the-counter.html
+
 **76ers' Tyrese Maxey expected to miss multiple weeks with hamstring injury**\
 `Maxey, 24, was ruled out early in the fourth quarter of Wednesday's loss to the LA Clippers due to the injury.`\
 https://nytimes.com/athletic/5906480/2024/11/07/tyrese-maxey-injury-sixers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5905256/2024/11/07/fantasy-football-rest-of-season-
 **The Fed’s balance sheet is starting to worry some investors again.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2024/11/07/business/fed-interest-rates/the-feds-balance-sheet-is-starting-to-worry-some-investors-again
-
-**Liverpool mailbag: Send your questions to James Pearce now**\
-`The flying start to the season? Transfer targets? Contract developments? Ask your questions here…`\
-https://nytimes.com/athletic/5906433/2024/11/07/liverpool-mailbag-transfers-contracts-form/
-
-**If the Fed Is Cutting Rates, Why Are Mortgage Rates Rising?**\
-`The latest rise, to 6.79% for a 30-year mortgage, reflects bond market concern about President-elect Trump’s agenda. It extends an uptick in mortgage rates despite expected Federal Reserve rate cuts.`\
-https://nytimes.com/2024/11/07/business/fed-mortgage-rates.html
 
