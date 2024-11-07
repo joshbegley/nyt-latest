@@ -1,3 +1,7 @@
+**Raygun retires from competitive breaking after Olympic backlash**\
+`Gunn said she originally planned to keep competing but changed her mind after the "upsetting" experience.`\
+https://nytimes.com/athletic/5905910/2024/11/07/raygun-retires-breaking-olympics/
+
 **College football Week 11 odds, picks ATS: Ole Miss-Georgia, Alabama-LSU and more**\
 `Two big SEC games, Alabama at LSU and Georgia at Ole Miss, highlight college football's Week 11 slate. Both road teams are small favorites.`\
 https://nytimes.com/athletic/5901100/2024/11/07/college-football-week-11-odds-picks-ole-miss-georgia-alabama-lsu/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009812803/kamala-harris-concession-
 **What Trenton Doyle Hancock Learned From Philip Guston**\
 `The Jewish Museum pairs the Texas artist with a 20th-century master. Together they confront racism with horror — and humor.`\
 https://nytimes.com/2024/11/07/arts/design/trenton-doyle-hancock-philip-guston-jewish-museum.html
-
-**Why the Australian Ambassador Deleted Tweets Critical of Trump**\
-`The envoy, Kevin Rudd, said that he had removed the posts “out of respect for the office of the president.” But it was a sign of broader anxiety over Donald J. Trump’s return to power.`\
-https://nytimes.com/2024/11/07/world/australia/australia-ambassador-trump-tweets-kevin-rudd.html
 
