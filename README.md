@@ -1,5 +1,5 @@
 **Bruce Arena returns to management with San Jose Earthquakes**\
-`Bruce Arena has returned to management after being appointed as the new head coach and sporting director of MLS side San Jose Earthquakes.`\
+`Bruce Arena has returned to management after being appointed as the new head coach and sporting director of MLS side San Jose Earthquakes ahead of the 2025 season.`\
 https://nytimes.com/athletic/5906722/2024/11/07/bruce-arena-san-jose-earthquakes-coach-new/
 
 **Cardinals keep Diamond Sports as TV home, grant streaming rights**\
