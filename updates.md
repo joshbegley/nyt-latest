@@ -1,3 +1,15 @@
+**JJ Redick rips Lakers' effort as loss to Grizzlies closes their 1-4 road trip**\
+`Missing two frontcourt starters, the Lakers had little response in Memphis. `\
+https://nytimes.com/athletic/5904449/2024/11/07/lakers-jj-redick-grizzlies-loss/
+
+**Claude Giroux Q&A: Travis Green, arm-wrestling the Eagles and will he play next season?**\
+`Giroux sat down with The Athletic to discuss the Senators' identity, offseason training and if Gritty is the league's most annoying mascot.`\
+https://nytimes.com/athletic/5901992/2024/11/07/senators-claude-giroux-contract-flyers-eagles/
+
+**Israeli Strikes Killed at Least 40 in Eastern Lebanon, Health Ministry Says**\
+`The deadliest strikes hit the Bekaa Valley, which is home to the historic city of Baalbek.`\
+https://nytimes.com/2024/11/07/world/israel-lebanon-hezbollah-gaza.html
+
 **Bank of England Cuts Interest Rates, but Warns of Sticky Inflation**\
 `The central bank said that future cuts would be gradual after spending increases were introduced in the government’s new budget.`\
 https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation.html
