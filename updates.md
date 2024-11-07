@@ -1,3 +1,7 @@
+**Clippers fans boo Paul George in return; 76ers’ star has no ‘ill will’**\
+`The Sixers star who always envisioned retiring in a Clippers jersey still has nothing but good things to say about his old team.`\
+https://nytimes.com/athletic/5904102/2024/11/06/paul-george-sixers-clippers-la-return/
+
 **Teen hockey phenom Chloe Primerano makes Team Canada debut in Rivalry Series**\
 `It’s yet another benchmark for the 17-year-old University of Minnesota defender who is charting a unique path in women’s hockey.`\
 https://nytimes.com/athletic/5904742/2024/11/06/chloe-primerano-rivalry-series-canada-hockey/
