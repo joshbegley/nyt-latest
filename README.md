@@ -1,3 +1,7 @@
+**Man United's Onana hopes Van Nistelrooy stays at club**\
+`Andre Onana hopes that Manchester United interim coach Ruud van Nistelrooy remains at the club after Ruben Amorim&#8217;s permanent arrival next week.`\
+https://nytimes.com/athletic/5907294/2024/11/07/ruud-van-nistelrooy-manchester-united-future/
+
 **Trump Names Susie Wiles as His White House Chief of Staff**\
 `The president-elect turned to his top political aide to fill a key post managing the White House when he returns to office.`\
 https://nytimes.com/2024/11/07/us/politics/susie-wiles-trump-white-house-chief-of-staff.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907214/2024/11/07/juan-soto-meeting-mets-steve-coh
 **A Nervous World Braces Itself for Trump II**\
 `Leaders have given up trying to predict what the next president will do.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/global-reaction-trump-leaders
-
-**Democrats Play the Blame Game**\
-`Also, another interest rate cut. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/11/07/briefing/democrats-trump-election.html
 
