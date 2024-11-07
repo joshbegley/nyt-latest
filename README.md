@@ -1,3 +1,7 @@
+**The Briefing: Man Utd 2 PAOK 0 - Diallo proves his worth as European hoodoo ends**\
+`The major talking points from Thursday's Europa League clash at Old Trafford`\
+https://nytimes.com/athletic/5900491/2024/11/07/man-utd-paok-result-analysis/
+
 **Voters Send Mixed Message on Crime and Law Enforcement**\
 `Targeting crime was a central part of the Trump campaign’s message, but some left-leaning prosecutors and measures survived a Republican wave on Election Day.`\
 https://nytimes.com/2024/11/07/us/prosecutors-law-enforcement-measures-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906617/2024/11/07/swansea-city-sale-kaplan-levien/
 **College football Week 11 model-projected point differentials, totals for every game**\
 `Austin Mock's projection model takes a look at every FBS vs. FBS game in college football's Week 11.`\
 https://nytimes.com/athletic/5906848/2024/11/07/college-football-week-11-model-projections/
-
-**Transgender Americans Voice New Anxiety About Trump Agenda**\
-`President-elect Donald J. Trump has promised to “keep men out of women’s sports” and withhold Medicare and Medicaid funding from hospitals that provide gender transition treatment to minors.`\
-https://nytimes.com/2024/11/07/us/trump-trans-rights.html
 
