@@ -1,3 +1,7 @@
+**Bank of England Cuts Interest Rates, but Warns Inflation Will Fall Slowly**\
+`The central bank cut interest rates a quarter point on Thursday, but it said that future cuts would be gradual.`\
+https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation.html
+
 **Broncos second-half predictions: Bo Nix's numbers, milestone for WR and ... playoffs?**\
 `The Broncos may not reach the golden 10-win threshold, but in a down year in the AFC, nine victories could break the playoff drought.`\
 https://nytimes.com/athletic/5903637/2024/11/07/broncos-midseason-predictions-bo-nix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5903688/2024/11/07/byu-football-utah-rivalry-undefe
 **ATP Tour Finals draw pits Sinner against Medvedev, Alcaraz against Zverev**\
 `Defending champion Novak Djokovic misses the event with injury.`\
 https://nytimes.com/athletic/5905649/2024/11/07/atp-tour-finals-draw-results-analysis/
-
-**The Day After the Election**\
-`We’re covering how Trump won — and more results from the election.`\
-https://nytimes.com/2024/11/07/briefing/donald-trump-win-kamala-harris.html
 

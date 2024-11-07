@@ -1,3 +1,7 @@
+**Bank of England Cuts Interest Rates, but Warns Inflation Will Fall Slowly**\
+`The central bank cut interest rates a quarter point on Thursday, but it said that future cuts would be gradual.`\
+https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation.html
+
 **Broncos second-half predictions: Bo Nix's numbers, milestone for WR and ... playoffs?**\
 `The Broncos may not reach the golden 10-win threshold, but in a down year in the AFC, nine victories could break the playoff drought.`\
 https://nytimes.com/athletic/5903637/2024/11/07/broncos-midseason-predictions-bo-nix/
