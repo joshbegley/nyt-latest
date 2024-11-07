@@ -1,3 +1,7 @@
+**The Briefing: Man Utd 2 PAOK 0 - Diallo proves his worth as European hoodoo ends**\
+`The major talking points from Thursday's Europa League clash at Old Trafford`\
+https://nytimes.com/athletic/5900491/2024/11/07/man-utd-paok-result-analysis/
+
 **Voters Send Mixed Message on Crime and Law Enforcement**\
 `Targeting crime was a central part of the Trump campaign’s message, but some left-leaning prosecutors and measures survived a Republican wave on Election Day.`\
 https://nytimes.com/2024/11/07/us/prosecutors-law-enforcement-measures-voters.html

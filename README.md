@@ -1,4 +1,4 @@
-**The Briefing: Man Utd 2 PAOK 0 - Diallo proves his worth as European hoodoo ends**\
+**The Briefing: Man Utd 2 PAOK 0 - Amad proves his worth as European hoodoo ends**\
 `The major talking points from Thursday's Europa League clash at Old Trafford`\
 https://nytimes.com/athletic/5900491/2024/11/07/man-utd-paok-result-analysis/
 
