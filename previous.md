@@ -1,3 +1,19 @@
+**At Baseball-Reference, WAR gets a long-awaited leadoff spot **\
+`The prominent baseball statistics site has made a change that alters little but speaks volumes. `\
+https://nytimes.com/athletic/5904718/2024/11/07/mlb-baseball-reference-war-change/
+
+**For Putin, Trump’s Win Is a New Opening, and a Chance to Win the War**\
+`Russians close to the Kremlin voiced optimism that Donald J. Trump could help end the war in Ukraine on Russia’s terms. But Moscow also remembers Trump’s first term as a disappointment.`\
+https://nytimes.com/2024/11/07/world/europe/trump-putin-russia-ukraine-war.html
+
+**Let’s Discuss: ‘Two Young Drivers Take the Wheel. One, a Teen. The Other, a Tesla.’**\
+`How do you feel about automated vehicles? What effects do you think they will have on your generation? Read this article and post your comments and questions for Matt Richtel by Nov. 14.`\
+https://nytimes.com/2024/11/07/learning/lesson-plans/lets-discuss-two-young-drivers-take-the-wheel-one-a-teen-the-other-a-tesla.html
+
+**Listen: ‘The Day My Family Changed Forever’**\
+`How does divorce affect children?`\
+https://nytimes.com/2024/11/07/learning/listen-the-day-my-family-changed-forever.html
+
 **MLB GM meetings: What we’re hearing about star Japanese pitcher Roki Sasaki**\
 `Sasaki’s exact preferences are not yet known. Still, the prevailing thought in the industry is that the Dodgers loom as the favorite.`\
 https://nytimes.com/athletic/5905236/2024/11/07/roki-sasaki-japanese-pitcher/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5903793/2024/11/07/commanders-trade-deadline-aldrid
 **We Don’t Have Time to Waste Time in Despair**\
 `What should Trump’s opponents do next?`\
 https://nytimes.com/2024/11/07/opinion/donald-trump-opponents-democracy.html
-
-**Before the Election, Tech C.E.O.s Were Quietly Courting Trump**\
-`The executives of tech’s biggest companies largely ignored Donald Trump before the 2016 election. This time around, they’re far more friendly.`\
-https://nytimes.com/2024/11/07/technology/trump-tech-ceos.html
-
-**Kamala Harris Was the Establishment in an Anti-Establishment Election**\
-`It was the wrong time to be the defender and champion of the country’s governing establishment.`\
-https://nytimes.com/2024/11/07/opinion/kamala-harris-election.html
-
-**A Master of the Media Evolved Yet Again in 2024**\
-`Donald J. Trump has embraced tabloids, reality TV, Twitter and cable news. This year, he moved on to podcasts and online streamers.`\
-https://nytimes.com/2024/11/07/business/media/trump-media-strategy-podcasts.html
-
-**Tech Giants Face a Familiar Uncertainty With Trump**\
-`Apple, Amazon, Google, Meta and others learned during the last Trump administration to expect the unexpected when it came to Washington scrutiny and support.`\
-https://nytimes.com/2024/11/07/technology/trump-apple-amazon-google-meta.html
 
