@@ -1,3 +1,7 @@
+**Galatasaray 3-2 Spurs: A mixed night for Lankshear, as Maddison and Dragusin struggle**\
+`Injury-hit Spurs were forced to make a host of changes for their Europa League trip to Turkey, and it did not pay off...`\
+https://nytimes.com/athletic/5906825/2024/11/07/galatasaray-3-2-spurs-will-lankshear/
+
 **What to know about the Fed meeting.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/11/07/business/fed-interest-rates/what-to-know-about-the-fed-meeting
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906333/2024/11/07/nascar-cup-series-championship-o
 **How much restraint should the Maple Leafs show with Auston Matthews?**\
 `The Leafs should think bigger picture right now with their best player.`\
 https://nytimes.com/athletic/5906634/2024/11/07/maple-leafs-auston-matthews-injury-2/
-
-**Jim Hoagland, Distinguished Journalist on World Affairs, Dies at 84**\
-`A two-time Pulitzer Prize winner, he was a reporter, editor and columnist for The Washington Post, renowned for his deeply sourced dispatches.`\
-https://nytimes.com/2024/11/07/business/media/jim-hoagland-dead.html
 
