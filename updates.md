@@ -1,3 +1,7 @@
+**Quote of the Day: There Is Joy in This Mudville: Scientists Solve ‘Magical’ Muck**\
+`Quotation of the Day for Thursday, November 7, 2024`\
+https://nytimes.com/2024/11/06/pageoneplus/quote-of-the-day-there-is-joy-in-this-mudville-scientists-solve-magical-muck.html
+
 **How the Nation Swung Back to Trump in 2024**\
 `Donald J. Trump’s swift victory was driven by red shifts across the country, with gains among seemingly every possible grouping of Americans.`\
 https://nytimes.com/interactive/2024/11/06/us/elections/trump-america-red-shift-victory.html
