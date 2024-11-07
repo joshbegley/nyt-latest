@@ -1,3 +1,7 @@
+**Riley Leonard's recent strides are making believers out of his doubters**\
+`Notre Dame was patient as Leonard worked through some early inconsistencies. In November, the transfer QB might finally hit his stride.`\
+https://nytimes.com/athletic/5906566/2024/11/07/riley-leonard-notre-dame-quarterback-college-football/
+
 **At Salon Art + Design, Nature and Beauty Come Center Stage**\
 `More than 50 galleries tease the lines between function and decoration, in a year when the fair has a far-reaching mission: to give more artists a chance to be seen.`\
 https://nytimes.com/2024/11/07/arts/design/salon-art-design-fair-park-avenue-armory.html
