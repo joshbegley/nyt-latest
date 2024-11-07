@@ -1,3 +1,15 @@
+**Two Empty Nesters Flew to the City With $600,000 for an East Side Studio**\
+`With their daughter in college on Long Island, an Atlanta couple looked for a modest second home in Manhattan so they could visit more often. Here’s what they found.`\
+https://nytimes.com/interactive/2024/11/07/realestate/east-side-studio-apartment-sale.html
+
+**Bayern Munich fan dies after medical emergency during Champions League tie**\
+`A Bayern Munich fan has died following a medical emergency during Wednesday&#8217;s Champions League tie against Benfica.`\
+https://nytimes.com/athletic/5905566/2024/11/07/bayern-munich-fan-death/
+
+**Celtics' defense falters after getting 'blitzed' by Warriors' physicality**\
+`The way Boston lost to Golden State is a reminder that there’s a price to be paid for failing to take care of the smaller details.`\
+https://nytimes.com/athletic/5905533/2024/11/07/celtics-blitzed-by-warriors/
+
 **Leeds' away-day struggles are a growing concern**\
 `Daniel Farke's men have now won just two of seven Championship games on the road this season - their record needs to improve`\
 https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/

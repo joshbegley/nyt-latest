@@ -1,3 +1,15 @@
+**Two Empty Nesters Flew to the City With $600,000 for an East Side Studio**\
+`With their daughter in college on Long Island, an Atlanta couple looked for a modest second home in Manhattan so they could visit more often. Here’s what they found.`\
+https://nytimes.com/interactive/2024/11/07/realestate/east-side-studio-apartment-sale.html
+
+**Bayern Munich fan dies after medical emergency during Champions League tie**\
+`A Bayern Munich fan has died following a medical emergency during Wednesday&#8217;s Champions League tie against Benfica.`\
+https://nytimes.com/athletic/5905566/2024/11/07/bayern-munich-fan-death/
+
+**Celtics' defense falters after getting 'blitzed' by Warriors' physicality**\
+`The way Boston lost to Golden State is a reminder that there’s a price to be paid for failing to take care of the smaller details.`\
+https://nytimes.com/athletic/5905533/2024/11/07/celtics-blitzed-by-warriors/
+
 **Kevin Durant, among the NBA's best closers, is boosting the Suns when it matters most**\
 `He’s been an elite shot-maker for years. It’s just that everyone keeps waiting for Durant to slow down. That day is not yet here.`\
 https://nytimes.com/athletic/5905468/2024/11/07/kevin-durant-boosts-suns-over-heat/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/asia/100000009813321/pakistan-lahore-pollution-s
 **Leeds' away-day struggles are a growing concern**\
 `Daniel Farke's men have now won just two of seven Championship games on the road this season - their record needs to improve`\
 https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/
-
-**Red Star 2 Barcelona 5: Another Yamal milestone, 10 Cubarsi stitches, and 99 goals for Lewandowski**\
-`Breaking down another impressive night for Hansi Flick's side in this season's Champions League`\
-https://nytimes.com/athletic/5905037/2024/11/07/red-star-barcelona-champions-league-result-analysis/
-
-**Simone Inzaghi is adaptable, astute and without doubt Premier League-ready**\
-`As if beating Arsenal wasn't impressive enough, Inzaghi pulled it off with a rotated team. He is at the peak of his a powers`\
-https://nytimes.com/athletic/5904973/2024/11/07/simone-inzaghi-inter-arsenal-champions-league/
-
-**Word of the Day: pollinator**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/07/learning/word-of-the-day-pollinator.html
 
