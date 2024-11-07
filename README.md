@@ -1,3 +1,35 @@
+**Broncos second-half predictions: Bo Nix's numbers, milestone for WR and ... playoffs?**\
+`The Broncos may not reach the golden 10-win threshold, but in a down year in the AFC, nine victories could break the playoff drought.`\
+https://nytimes.com/athletic/5903637/2024/11/07/broncos-midseason-predictions-bo-nix/
+
+**The World Isn’t Spending Nearly Enough to Adapt to Climate Shocks, U.N. Says**\
+`A new report, urging rich nations to give more climate aid to poorer ones, comes as Donald Trump’s election throws global climate talks into disarray.`\
+https://nytimes.com/2024/11/07/climate/climate-adaptation-cop29-trump-un.html
+
+**‘The Last Rifleman’ Review: A World War II Veteran Hits the Road**\
+`Pierce Brosnan plays a man who sneaks out of his retirement home to attend the 75th anniversary of the D-Day landings in this charming, but corny drama.`\
+https://nytimes.com/2024/11/07/movies/the-last-rifleman-review.html
+
+**‘Meanwhile on Earth’ Review: Outer Space and Inner Turmoil**\
+`A bereaved young woman faces terrible choices in this dreamily uncertain blend of science fiction and moral philosophy.`\
+https://nytimes.com/2024/11/07/movies/meanwhile-on-earth-review.html
+
+**Explaining the Milne-over-Ohgren decision, Rossi on his hidden puck trick and more: Wild notes**\
+`Also, Marc-Andre Fleury on plans post-retirement: “I want to be home more for my kids … And then obviously, I think hockey is all I know."`\
+https://nytimes.com/athletic/5903908/2024/11/07/milne-ohgren-fleury-rossi-wild/
+
+**‘Christmas Eve in Miller’s Point’ Review: Home for the Holidays**\
+`Tyler Taormina’s third theatrical feature is a lightly nostalgic ensemble piece set on Long Island.`\
+https://nytimes.com/2024/11/07/movies/christmas-eve-in-millers-point-review.html
+
+**Oilers kicking themselves again after big mistakes in both ends**\
+`Edmonton entered the third period with a lead Wednesday but watched it disappear with penalties, miscues and a feeble offense.`\
+https://nytimes.com/athletic/5905452/2024/11/07/edmonton-oilers-penalty-goal-vegas/
+
+**As BYU-Utah returns, it's the Cougars who are playing for an undefeated season**\
+`Kalani Sitake and several of his staffers have experience with an undefeated season thanks to time spent at rival Utah. `\
+https://nytimes.com/athletic/5903688/2024/11/07/byu-football-utah-rivalry-undefeated/
+
 **ATP Tour Finals draw pits Sinner against Medvedev, Alcaraz against Zverev**\
 `Defending champion Novak Djokovic misses the event with injury.`\
 https://nytimes.com/athletic/5905649/2024/11/07/atp-tour-finals-draw-results-analysis/
@@ -5,37 +37,4 @@ https://nytimes.com/athletic/5905649/2024/11/07/atp-tour-finals-draw-results-ana
 **The Day After the Election**\
 `We’re covering how Trump won — and more results from the election.`\
 https://nytimes.com/2024/11/07/briefing/donald-trump-win-kamala-harris.html
-
-**This Is Not a Beauty Podcast: More Than Skin Deep
-**\
-`Some think of science as clinical, but as far as scientists are concerned, there’s still beauty to be found in the patterns that explain our world.`\
-https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/more-than-skin-deep.html
-
-**The Pulse: A dynasty's latest combeack**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5905123/2024/11/07/warriors-steph-curry-buddy-hield-the-pulse/
-
-**F1 drivers' union hits back at FIA after 'misconduct' punishments: 'Our members are adults'**\
-`Recent controversies include Max Verstappen and Charles Leclerc being sanctioned by the FIA for swearing.`\
-https://nytimes.com/athletic/5905686/2024/11/07/f1-drivers-punishments-fia-protest/
-
-**Several Feet of Snow Are Forecast in New Mexico and Colorado**\
-`A slow-moving winter storm was expected to drop up to three feet of snow in parts of the two states through Saturday, causing perilous road conditions and power outages.`\
-https://nytimes.com/2024/11/07/weather/snow-storm-new-mexico-colorado.html
-
-**Lloris reveals Tottenham players' concerns over Amazon documentary**\
-`Hugo Lloris has revealed the concerns Tottenham Hotspur players had with the club&#8217;s decision to allow an all-access documentary to follow them during the 2019-20 season.`\
-https://nytimes.com/athletic/5905657/2024/11/07/tottenham-amazon-documentary-hugo-lloris/
-
-**Bears predictions at NFL midseason: Chicago will pull off another upset of the Lions**\
-`Our Bears second-half predictions include items on Cole Kmet, the Packers, Rome Odunze and Jaylon Johnson.`\
-https://nytimes.com/athletic/5902296/2024/11/07/bears-predictions-2024-nfl-midseason/
-
-**Jalen Green is reaching a new level, and he could take the Rockets with him**\
-`"He’s just grown up," says Rockets teammate Fred VanVleet. "We’re watching him turn a corner and grow into a man."`\
-https://nytimes.com/athletic/5844068/2024/11/07/jalen-green-houston-rockets-exclusive/
-
-**Chiefs predictions at NFL midseason: Kansas City will host Ravens in AFC title game rematch**\
-`Our Chiefs second-half predictions include items on Travis Kelce, DeAndre Hopkins and Trent McDuffie. `\
-https://nytimes.com/athletic/5902632/2024/11/07/chiefs-predictions-2024-nfl-midseason/
 
