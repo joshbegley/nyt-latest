@@ -1,4 +1,8 @@
 **Leeds' away-day struggles are a growing concern**\
+`Daniel Farke's men have now won just two of seven Championship games on the road this season - their record needs to improve`\
+https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/
+
+**Leeds' away-day struggles are a growing concern**\
 `Leeds have won just two of their seven Championship away games so far this season - their record needs to improve`\
 https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/
 
