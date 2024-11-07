@@ -1,3 +1,11 @@
+**Lessons for World Leaders From Japan’s Former Trump-Whisperer**\
+`Shinzo Abe, then the prime minister of Japan, succeeded in making friends with Mr. Trump through golf, entertainment and appealing to his vanity.`\
+https://nytimes.com/2024/11/07/world/asia/japan-trump-shinzo-abe.html
+
+**Explained: Mendy's legal win over Manchester City - and what it could mean for football**\
+`We break down why the French defender secured a majority victory in his tribunal and whether this could have a wider impact in the game`\
+https://nytimes.com/athletic/5903504/2024/11/07/manchester-city-benjamin-mendy-wages-explained/
+
 **Trump’s Win Is Likely to Prolong Gaza Talks Uncertainty**\
 `Any serious advancement on a cease-fire will likely have to wait for Mr. Trump to reach office in January, analysts said.`\
 https://nytimes.com/2024/11/07/world/middleeast/trump-israel-gaza-ceasefire-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5905468/2024/11/07/kevin-durant-boosts-suns-over-he
 **A Silver Lining for New York Democrats**\
 `Proposition 1, meant to expand equal rights and codify the protections of Roe v. Wade in the State Constitution, passed easily despite a Republican campaign against trans rights.`\
 https://nytimes.com/2024/11/07/nyregion/ny-prop-1-abortion-rights.html
-
-**Trump Lost This State by 16 Points in 2020. This Year, He Lost by 5.**\
-`In New Jersey, Democrats outnumber Republicans and control every branch of government. But Tuesday’s vote reflected a shift to the right.`\
-https://nytimes.com/2024/11/07/nyregion/trump-nj-votes-election.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/07/crosswords/spelling-bee-forum.html
 
