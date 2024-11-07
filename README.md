@@ -1,3 +1,7 @@
+**If the Fed Is Cutting Rates, Why Are Mortgage Rates Rising?**\
+`The latest rise, to 6.79% for a 30-year mortgage, reflects bond market concern about President-elect Trump’s agenda. It extends an uptick in mortgage rates despite expected Federal Reserve rate cuts.`\
+https://nytimes.com/2024/11/07/business/fed-mortgage-rates.html
+
 **Why Trump’s Conniptions Beat Harris’s ‘Kumbaya’**\
 `Americans aren’t joyful. They’re angry. And they’ve been telling us that all along.`\
 https://nytimes.com/2024/11/07/opinion/trump-harris-joy-anger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/us/trump-believers-presidency-god.html
 **How Russia Openly Escalated Its Election Interference Efforts**\
 `The Kremlin did not bother to hide its efforts to influence the 2024 presidential election, as it did in the past.`\
 https://nytimes.com/2024/11/07/technology/russia-us-election-interference.html
-
-**What we're hearing about the Cardinals at the GM meetings**\
-`Ryan Helsley has garnered significant interest from rival clubs and was a popular name during these meetings.`\
-https://nytimes.com/athletic/5904986/2024/11/07/cardinals-mlb-offseason-moves-2/
 
