@@ -1,3 +1,7 @@
+**Kevin Durant, among the NBA's best closers, is boosting the Suns when it matters most**\
+`He’s been an elite shot-maker for years. It’s just that everyone keeps waiting for Durant to slow down. That day is not yet here.`\
+https://nytimes.com/athletic/5905468/2024/11/07/kevin-durant-boosts-suns-over-heat/
+
 **A Silver Lining for New York Democrats**\
 `Proposition 1, meant to expand equal rights and codify the protections of Roe v. Wade in the State Constitution, passed easily despite a Republican campaign against trans rights.`\
 https://nytimes.com/2024/11/07/nyregion/ny-prop-1-abortion-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904973/2024/11/07/simone-inzaghi-inter-arsenal-cha
 **Word of the Day: pollinator**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/07/learning/word-of-the-day-pollinator.html
-
-**A perfect 'robbery': How Diego Simeone masterminded yet another smash-and-grab win**\
-`Atletico Madrid produced an almost perfectly-controlled performance to pile more pressure on the French champions`\
-https://nytimes.com/athletic/5904876/2024/11/07/paris-saint-germain-atletico-madrid-analysis-champions-league/
 
