@@ -1,3 +1,11 @@
+**What to know about the Fed meeting.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/11/07/business/fed-interest-rates/what-to-know-about-the-fed-meeting
+
+**What Teenagers Are Saying About Love**\
+`Students tell us what they have learned from the platonic, familial and romantic relationships in their lives.`\
+https://nytimes.com/2024/11/07/learning/what-teenagers-are-saying-about-love.html
+
 **Trump Whiplash Looms Over Global Climate Talks**\
 `As the world gathers for U.N. climate negotiations in Azerbaijan next week, here’s what we will be watching.`\
 https://nytimes.com/2024/11/07/climate/trump-climate-cop-negotiations.html

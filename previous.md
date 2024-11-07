@@ -1,3 +1,11 @@
+**What to know about the Fed meeting.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/11/07/business/fed-interest-rates/what-to-know-about-the-fed-meeting
+
+**What Teenagers Are Saying About Love**\
+`Students tell us what they have learned from the platonic, familial and romantic relationships in their lives.`\
+https://nytimes.com/2024/11/07/learning/what-teenagers-are-saying-about-love.html
+
 **Trump Whiplash Looms Over Global Climate Talks**\
 `As the world gathers for U.N. climate negotiations in Azerbaijan next week, here’s what we will be watching.`\
 https://nytimes.com/2024/11/07/climate/trump-climate-cop-negotiations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5906634/2024/11/07/maple-leafs-auston-matthews-inju
 **Jim Hoagland, Distinguished Journalist on World Affairs, Dies at 84**\
 `A two-time Pulitzer Prize winner, he was a reporter, editor and columnist for The Washington Post, renowned for his deeply sourced dispatches.`\
 https://nytimes.com/2024/11/07/business/media/jim-hoagland-dead.html
-
-**How Florida sticking with Billy Napier impacts the college football coaching carousel**\
-`The domino effect could be another school seeing an opportunity to jump into the market as the best job available.`\
-https://nytimes.com/athletic/5906714/2024/11/07/florida-billly-napier-coaching-carousel/
-
-**Interpol Tightens Oversight on Databases Misused by Autocrats**\
-`The changes are intended to stop governments from using the world’s largest police organization to harass and monitor political dissidents.`\
-https://nytimes.com/2024/11/07/world/europe/interpol-oversight-red-notices-blue-notices-databases-abuse-dissidents.html
 
