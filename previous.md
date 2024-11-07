@@ -1,3 +1,7 @@
+**Voters Send Mixed Message on Crime and Law Enforcement**\
+`Targeting crime was a central part of the Trump campaign’s message, but some left-leaning prosecutors and measures survived a Republican wave on Election Day.`\
+https://nytimes.com/2024/11/07/us/prosecutors-law-enforcement-measures-voters.html
+
 **Thompson: Stephen Curry and the Warriors prove their viability in a big test vs. Celtics**\
 `In their toughest game so far this season, the new-look Warriors showed their plan is workable with a rousing win in Boston.`\
 https://nytimes.com/athletic/5907032/2024/11/07/stephen-curry-warriors-celtics-viability/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906848/2024/11/07/college-football-week-11-model-p
 **Transgender Americans Voice New Anxiety About Trump Agenda**\
 `President-elect Donald J. Trump has promised to “keep men out of women’s sports” and withhold Medicare and Medicaid funding from hospitals that provide gender transition treatment to minors.`\
 https://nytimes.com/2024/11/07/us/trump-trans-rights.html
-
-**Federal Reserve Lowers Interest Rates**\
-`Jerome H. Powell, the Fed chair, said that the Fed’s immediate path would not be impacted by Donald J. Trump’s win.`\
-https://nytimes.com/video/business/economy/100000009814615/fed-interest-rates.html
 

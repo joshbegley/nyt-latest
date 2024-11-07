@@ -1,3 +1,7 @@
+**Voters Send Mixed Message on Crime and Law Enforcement**\
+`Targeting crime was a central part of the Trump campaign’s message, but some left-leaning prosecutors and measures survived a Republican wave on Election Day.`\
+https://nytimes.com/2024/11/07/us/prosecutors-law-enforcement-measures-voters.html
+
 **Thompson: Stephen Curry and the Warriors prove their viability in a big test vs. Celtics**\
 `In their toughest game so far this season, the new-look Warriors showed their plan is workable with a rousing win in Boston.`\
 https://nytimes.com/athletic/5907032/2024/11/07/stephen-curry-warriors-celtics-viability/
