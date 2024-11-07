@@ -1,3 +1,11 @@
+**What’s Next for Kamala Harris? Here Are Six Options.**\
+`Her friends, aides and political allies say it’s too soon for her to even contemplate her next career move. But the speculation has already begun.`\
+https://nytimes.com/2024/11/07/us/politics/kamala-harris-2028-run-for-president.html
+
+**Keep Fluoride in New York Water? Mayor Adams Hesitates, Then Weighs In.**\
+`President-elect Donald J. Trump has indicated that he would support ending water fluoridation. Mayor Eric Adams was reticent on the issue, before eventually taking a side.`\
+https://nytimes.com/2024/11/07/nyregion/fluoride-water-eric-adams.html
+
 **Mayor of Jackson, Miss., Is Indicted on Federal Corruption Charges**\
 `The mayor and two other local officials pleaded not guilty on Thursday after being accused of taking part in a scheme in which F.B.I. agents posing as real estate developers offered bribes.`\
 https://nytimes.com/2024/11/07/us/jackson-mayor-indicted-federal-corruption.html
