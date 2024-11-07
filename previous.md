@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in November**\
+`This week in Newly Reviewed, Will Heinrich covers Reginald Madison’s mix of abstraction and figuration, Daniel Terna’s tension-filled scenes and Erin O’Keefe’s illusory photographs.`\
+https://nytimes.com/2024/11/07/arts/design/nyc-galleries-november.html
+
 **Bresnahan Beats Cartwright in Pennsylvania, Handing G.O.P. a Key Seat**\
 `Rob Bresnahan Jr., a Republican and business executive, ousted the Democratic incumbent who had kept the Scranton-based district blue for more than a decade.`\
 https://nytimes.com/2024/11/07/us/elections/pennsylvania-house-cartwright-bresnahan.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009813660/biden-trump-election-tran
 **NFL best bets Week 10: Betting Dolphins to get another loss on Monday, plus a teaser**\
 `Austin Mock's model suggest three NFL bets to make this week on primetime matchups, plus a teaser. `\
 https://nytimes.com/athletic/5906598/2024/11/07/nfl-best-bets-week-10-dolphins-bengals-ravens/
-
-**Voters Poised to Reject Private School Vouchers in Three States**\
-`The results were part of a wave of ballot measure outcomes that teachers’ unions had sought. Nevertheless, private-school choice is growing nationwide.`\
-https://nytimes.com/2024/11/07/us/private-school-funding-election-rejection.html
 

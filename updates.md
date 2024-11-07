@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in November**\
+`This week in Newly Reviewed, Will Heinrich covers Reginald Madison’s mix of abstraction and figuration, Daniel Terna’s tension-filled scenes and Erin O’Keefe’s illusory photographs.`\
+https://nytimes.com/2024/11/07/arts/design/nyc-galleries-november.html
+
 **Bresnahan Beats Cartwright in Pennsylvania, Handing G.O.P. a Key Seat**\
 `Rob Bresnahan Jr., a Republican and business executive, ousted the Democratic incumbent who had kept the Scranton-based district blue for more than a decade.`\
 https://nytimes.com/2024/11/07/us/elections/pennsylvania-house-cartwright-bresnahan.html
