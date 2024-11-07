@@ -1,3 +1,7 @@
+**Jacky Rosen fights to hang on to her Senate seat in Nevada, with ballots still trickling in.**\
+`By Benjamin Oreskes and Danny Hakim`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jacky-rosen-fights-to-hang-on-to-her-senate-seat-in-nevada-with-ballots-still-trickling-in
+
 **Her absentee ballot never arrived. So she flew from Chicago to Pennsylvania to vote.**\
 `A University of Chicago student tried for weeks to get an absentee that never came, so she spent hundreds on a last-minute plane ticket. She was not alone.`\
 https://nytimes.com/2024/11/06/us/politics/montgomery-county-pa-absentee-ballots.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5901919/2024/11/06/college-football-watch-guide-wee
 **A GM on the brink: Joe Douglas on the state of the Jets' season**\
 `Even after a big win on Halloween night, the Jets are still climbing a steep hill to get to the playoffs.`\
 https://nytimes.com/athletic/5904514/2024/11/06/joe-douglas-jets-gm-state-of-jets-season/
-
-**Plea Deals for Accused 9/11 Plotters Are Valid, Judge Rules**\
-`A military judge said he would move forward with accepting guilty pleas from three defendants in exchange for life sentences. The agreements had been rescinded by the defense secretary.`\
-https://nytimes.com/2024/11/06/us/politics/gitmo-plea-agreement.html
 
