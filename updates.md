@@ -1,3 +1,7 @@
+**Roki Sasaki has top-shelf stuff. How would it translate to Major League Baseball?**\
+`Here's everything we know about the 23-year-old Japanese starter's stuff, along with what a major-league team might expect from him.`\
+https://nytimes.com/athletic/5900748/2024/11/07/mlb-free-agency-roki-sasaki-japan-pitcherroki-sasaki-pitching-arsenal-mlb/
+
 **Fun has returned to Michigan basketball. How successful will Dusty May's debut be?**\
 `Michigan’s first game did nothing to dampen expectations for a turnaround in May’s first season, but we'll find out a lot more soon.`\
 https://nytimes.com/athletic/5904189/2024/11/07/michigan-basketball-dusty-may-preview-predictions/

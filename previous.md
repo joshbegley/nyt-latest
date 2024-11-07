@@ -1,3 +1,7 @@
+**Roki Sasaki has top-shelf stuff. How would it translate to Major League Baseball?**\
+`Here's everything we know about the 23-year-old Japanese starter's stuff, along with what a major-league team might expect from him.`\
+https://nytimes.com/athletic/5900748/2024/11/07/mlb-free-agency-roki-sasaki-japan-pitcherroki-sasaki-pitching-arsenal-mlb/
+
 **Fun has returned to Michigan basketball. How successful will Dusty May's debut be?**\
 `Michigan’s first game did nothing to dampen expectations for a turnaround in May’s first season, but we'll find out a lot more soon.`\
 https://nytimes.com/athletic/5904189/2024/11/07/michigan-basketball-dusty-may-preview-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000009811484/trump-worst-case.html
 **Democrats Ignored Gaza and Brought Down Their Party**\
 `The war in the Middle East has become this era’s most important progressive cause.`\
 https://nytimes.com/2024/11/07/opinion/democrats-israel-gaza-war.html
-
-**What Trump’s Win Means for Fed Independence**\
-`Donald J. Trump spent his first presidency on a collision course with America’s central bank. Will it intensify?`\
-https://nytimes.com/2024/11/07/business/economy/trump-federal-reserve-powell-interest-rates.html
 

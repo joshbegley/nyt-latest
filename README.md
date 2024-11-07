@@ -1,3 +1,11 @@
+**MLB GM meetings: What we’re hearing about star Japanese pitcher Roki Sasaki**\
+`Sasaki’s exact preferences are not yet known. Still, the prevailing thought in the industry is that the Dodgers loom as the favorite.`\
+https://nytimes.com/athletic/5905236/2024/11/07/roki-sasaki-japanese-pitcher/
+
+**One Voter to Understand Trump’s Win**\
+`For one woman in Michigan, it wasn’t an obvious decision, but in the end it came down to this: “frustration and self-Interest.”`\
+https://nytimes.com/2024/11/07/podcasts/one-voter-to-understand-trumps-win.html
+
 **Roki Sasaki has top-shelf stuff. How would it translate to Major League Baseball?**\
 `Here's everything we know about the 23-year-old Japanese starter's stuff, along with what a major-league team might expect from him.`\
 https://nytimes.com/athletic/5900748/2024/11/07/mlb-free-agency-roki-sasaki-japan-pitcherroki-sasaki-pitching-arsenal-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/business/media/trump-media-strategy-podcasts.html
 **Tech Giants Face a Familiar Uncertainty With Trump**\
 `Apple, Amazon, Google, Meta and others learned during the last Trump administration to expect the unexpected when it came to Washington scrutiny and support.`\
 https://nytimes.com/2024/11/07/technology/trump-apple-amazon-google-meta.html
-
-**What Is the Worst Version of a Second Trump Administration?**\
-`Opinion columnists break down what the worst version of a second Trump administration would be.`\
-https://nytimes.com/video/opinion/100000009811484/trump-worst-case.html
-
-**Democrats Ignored Gaza and Brought Down Their Party**\
-`The war in the Middle East has become this era’s most important progressive cause.`\
-https://nytimes.com/2024/11/07/opinion/democrats-israel-gaza-war.html
 
