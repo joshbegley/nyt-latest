@@ -1,3 +1,7 @@
+**The Briefing: Red Star 2 Barcelona 5 - Another Yamal milestone, 10 Cubarsi stitches, and 99 goals for Lewandowski**\
+`Breaking down another impressive night for Hansi Flick's side in this season's Champions League`\
+https://nytimes.com/athletic/5905037/2024/11/07/red-star-barcelona-champions-league-result-analysis/
+
 **Simone Inzaghi is adaptable, astute and without doubt Premier League-ready**\
 `As if beating Arsenal wasn't impressive enough, Inzaghi pulled it off with a rotated team. He is at the peak of his a powers`\
 https://nytimes.com/athletic/5904973/2024/11/07/simone-inzaghi-inter-arsenal-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/opinion/chile-adoption-scandal.html
 **Spanish Floods Have Opened the Door to Populism**\
 `Rage can be a dangerous political tool.`\
 https://nytimes.com/2024/11/07/opinion/spain-floods-valencia-populism.html
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/11/07/nhl-standings-playoffs-projections-odds/
 
