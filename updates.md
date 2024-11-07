@@ -1,3 +1,7 @@
+**The Fed’s balance sheet is starting to worry some investors again.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2024/11/07/business/fed-interest-rates/the-feds-balance-sheet-is-starting-to-worry-some-investors-again
+
 **Liverpool mailbag: Send your questions to James Pearce now**\
 `The flying start to the season? Transfer targets? Contract developments? Ask your questions here…`\
 https://nytimes.com/athletic/5906433/2024/11/07/liverpool-mailbag-transfers-contracts-form/

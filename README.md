@@ -1,3 +1,11 @@
+**WTA Tour Finals: Gauff, Sabalenka, Zheng and Krejcikova make semifinals, Swiatek out**\
+`The season-ending event pits the best players on the WTA Tour against each other in Riyadh, Saudi Arabia.`\
+https://nytimes.com/athletic/5882196/2024/11/07/wta-finals-draw-results-analysis/
+
+**Fantasy football rest-of-season rankings: RBs Saquon Barkley, Derrick Henry lead top 100**\
+`With the stretch run of the fantasy season near, Brandon Funston shares his rest-of-season rankings, with RBs clocking in early and often.`\
+https://nytimes.com/athletic/5905256/2024/11/07/fantasy-football-rest-of-season-rankings-big-board/
+
 **The Fed’s balance sheet is starting to worry some investors again.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2024/11/07/business/fed-interest-rates/the-feds-balance-sheet-is-starting-to-worry-some-investors-again
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/07/business/fed-interest-rates
 **The Best Place to Find ‘Somebody’s Son’? Try ‘A Black Love Party.’**\
 `After the success of MeAndSomebodySon, her Instagram page dedicated to Black romantic relationships, Zemirah Moffett is taking the party offline.`\
 https://nytimes.com/2024/11/07/style/black-love-party-meandsomebodyson.html
-
-**Newsom Moves Quickly to Counter Trump in California**\
-`Gov. Gavin Newsom called the Legislature back to the Capitol for a special session to bolster civil liberties, reproductive rights and environmental protections.`\
-https://nytimes.com/2024/11/07/us/newsom-trump-california.html
-
-**NFL Week 10 fantasy football, betting cheat sheet: Higgins doubtful for TNF, Moss hits IR**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
-https://nytimes.com/athletic/5900189/2024/11/07/nfl-week-10-fantasy-football-injuries-rankings-betting/
 
