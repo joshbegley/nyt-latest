@@ -1,3 +1,12 @@
+**This Is Not a Beauty Podcast: More Than Skin Deep
+**\
+`Some think of science as clinical, but as far as scientists are concerned, there’s still beauty to be found in the patterns that explain our world.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/more-than-skin-deep.html
+
+**The Pulse: A dynasty's latest combeack**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5905123/2024/11/07/warriors-steph-curry-buddy-hield-the-pulse/
+
 **F1 drivers' union hits back at FIA after 'misconduct' punishments: 'Our members are adults'**\
 `Recent controversies include Max Verstappen and Charles Leclerc being sanctioned by the FIA for swearing.`\
 https://nytimes.com/athletic/5905686/2024/11/07/f1-drivers-punishments-fia-protest/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5904395/2024/11/07/vikings-predictions-nfl-midseaso
 **Wilt Chamberlain ranks No. 6 on The Athletic’s The Basketball 100: 'OK, Wilt’s gonna get his 50'**\
 `Chamberlain, a force unlike any other in NBA history, was so dominant it was hard to put his accomplishments in a context that made sense.`\
 https://nytimes.com/athletic/5891864/2024/11/07/wilt-chamberlain-the-basketball-100-excerpt/
-
-**Atlanta's interim coach is 90 minutes from eliminating Miami and Messi: 'I don’t want this to end'**\
-`Interim manager Valentino has worked wonders at Atlanta but the team is also looking for a big-name appointment for 2025.`\
-https://nytimes.com/athletic/5902290/2024/11/07/atlanta-uniteds-stand-in-coach-rob-valentino-is-90-minutes-from-eliminating-inter-miami-and-messi/
-
-**Packers second-half predictions: Jordan Love's rebound, playoff finish and more**\
-`The Packers are 6-3 entering their bye week and travel to Chicago next Sunday for their first matchup this season against the Bears.`\
-https://nytimes.com/athletic/5903775/2024/11/07/packers-midseason-predictions-jordan-love/
 
