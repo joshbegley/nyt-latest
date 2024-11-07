@@ -1,3 +1,15 @@
+**Six reasons why the Ducks are the NHL's worst offensive team**\
+`Twelve games in, the Ducks have only scored 25 goals. What's at the root of their offensive woes?`\
+https://nytimes.com/athletic/5905582/2024/11/07/anaheim-ducks-nhl-offense-loss-analysis/
+
+**Jan. 6 Defendants Are Already Angling for Pardons From Trump**\
+`The president-elect said during the campaign that he would grant clemency to some of those who took part in the assault by his supporters on the Capitol nearly four years ago.`\
+https://nytimes.com/2024/11/07/us/politics/trump-jan-6-pardons.html
+
+**Mbappe left out of second consecutive France squad**\
+`France captain Kylian Mbappe has been left out of Didier Deschamps’s squad for their upcoming Nations League fixtures.`\
+https://nytimes.com/athletic/5905986/2024/11/07/kylian-mbappe-france-squad-november/
+
 **What the Collapse of Germany’s Ruling Coalition Means**\
 `After decades of relative stability, the country has entered a new era of political fragmentation and will hold new elections at a precarious time.`\
 https://nytimes.com/2024/11/07/world/europe/germany-coalition-collapse-explained.html

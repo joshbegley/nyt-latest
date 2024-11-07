@@ -1,3 +1,15 @@
+**Six reasons why the Ducks are the NHL's worst offensive team**\
+`Twelve games in, the Ducks have only scored 25 goals. What's at the root of their offensive woes?`\
+https://nytimes.com/athletic/5905582/2024/11/07/anaheim-ducks-nhl-offense-loss-analysis/
+
+**Jan. 6 Defendants Are Already Angling for Pardons From Trump**\
+`The president-elect said during the campaign that he would grant clemency to some of those who took part in the assault by his supporters on the Capitol nearly four years ago.`\
+https://nytimes.com/2024/11/07/us/politics/trump-jan-6-pardons.html
+
+**Mbappe left out of second consecutive France squad**\
+`France captain Kylian Mbappe has been left out of Didier Deschamps’s squad for their upcoming Nations League fixtures.`\
+https://nytimes.com/athletic/5905986/2024/11/07/kylian-mbappe-france-squad-november/
+
 **What the Collapse of Germany’s Ruling Coalition Means**\
 `After decades of relative stability, the country has entered a new era of political fragmentation and will hold new elections at a precarious time.`\
 https://nytimes.com/2024/11/07/world/europe/germany-coalition-collapse-explained.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/07/world/australia/australia-ambassador-trump-tweets
 **The Wall Street Leaders Who Could Play a Role in Trump’s New Administration**\
 `Lobbyists are trying to connect executives with the Trump transition team, and some familiar names are in the mix for top jobs.`\
 https://nytimes.com/2024/11/07/business/dealbook/cohn-warsh-trump-cabinet.html
-
-**Dozens of Israeli Strikes Hit the Beirut Area and Eastern Lebanon**\
-`The airstrikes caused damage in Beirut’s southern suburbs and in the eastern city of Baalbek in the Bekaa region, where the Israeli military said it was targeting Hezbollah positions.`\
-https://nytimes.com/video/world/middleeast/100000009813433/dozens-of-israeli-strikes-hit-the-beirut-area-and-eastern-lebanon.html
-
-**Here’s the latest on the election.**\
-`By Jonathan Weisman`\
-https://nytimes.com/live/2024/11/07/us/trump-election/heres-the-latest-on-the-election
-
-**Election Live Updates: Biden to Speak to Nation as Trump Prepares His Return to Power**\
-`The president-elect will have more sway over Congress in his second administration. President Biden plans to speak at 11 a.m. Eastern from the White House Rose Garden.`\
-https://nytimes.com/live/2024/11/07/us/trump-election
 
