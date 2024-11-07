@@ -1,3 +1,11 @@
+**Thompson: Stephen Curry and the Warriors prove their viability in a big test vs. Celtics**\
+`In their toughest game so far this season, the new-look Warriors showed their plan is workable with a rousing win in Boston.`\
+https://nytimes.com/athletic/5907032/2024/11/07/stephen-curry-warriors-celtics-viability/
+
+**A Door Is Unlocked, and 43 Monkeys Make a Bid for Freedom**\
+`Dozens of rhesus macaques escaped a research facility in South Carolina. They’re still on the lam.`\
+https://nytimes.com/2024/11/07/science/escaped-monkeys-south-carolina.html
+
 **Bronny James heading to G League's South Bay Lakers**\
 `The Los Angeles Lakers assigned the the No. 55 pick in the 2024 NBA Draft, and the 20-year-old son of LeBron James, to the South Bay Lakers.`\
 https://nytimes.com/athletic/5888933/2024/11/07/bronny-james-lakers-g-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/us/trump-trans-rights.html
 **Federal Reserve Lowers Interest Rates**\
 `Jerome H. Powell, the Fed chair, said that the Fed’s immediate path would not be impacted by Donald J. Trump’s win.`\
 https://nytimes.com/video/business/economy/100000009814615/fed-interest-rates.html
-
-**The Clint Squint**\
-`When Clint Eastwood narrows his eyes, pay attention. A master of the big screen is using them to convey seduction, intimidation, mystery and more.`\
-https://nytimes.com/interactive/2024/11/07/movies/clint-eastwood-squint.html
-
-**Friday Briefing: Biden promises a peaceful transition**\
-`Plus, the readers turning to “healing fiction.”`\
-https://nytimes.com/2024/11/07/briefing/donald-trump-climate-australia.html
 
