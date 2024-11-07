@@ -1,3 +1,7 @@
+**Bruce Arena returns to management with San Jose Earthquakes**\
+`Bruce Arena has returned to management after being appointed as the new head coach and sporting director of MLS side San Jose Earthquakes.`\
+https://nytimes.com/athletic/5906722/2024/11/07/bruce-arena-san-jose-earthquakes-coach-new/
+
 **Cardinals keep Diamond Sports as TV home, grant streaming rights**\
 `Fans in Cardinals territory will now be able to subscribe to games without having to sign up for a full cable or satellite package.`\
 https://nytimes.com/athletic/5906665/2024/11/07/cardinals-tv-diamond-sports-streaming-rights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5900210/2024/11/07/college-football-best-bets-week-
 **Lower Rates, Rising Yields: What to Make of the Bond Market Right Now**\
 `Yields on government bonds — which underpin all kinds of borrowing in the economy — are rising. But the Fed is cutting rates. What gives?`\
 https://nytimes.com/2024/11/07/business/bond-market-trump.html
-
-**What I learned from Netflix's 'The Kiss That Changed Spanish Football' documentary**\
-`A new documentary sheds light on the scandal that followed Spain's Women's World Cup win last year`\
-https://nytimes.com/athletic/5906229/2024/11/07/hermoso-rubiales-kiss-netflix-documentary/
 
