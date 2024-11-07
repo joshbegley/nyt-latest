@@ -1,3 +1,11 @@
+**Israeli Strikes Killed at Least 40 in Eastern Lebanon, Health Ministry Says**\
+`The deadliest strikes hit the Bekaa Valley, which is home to the historic city of Baalbek.`\
+https://nytimes.com/2024/11/07/world/israel-lebanon-hezbollah-gaza.html
+
+**Bank of England Cuts Interest Rates, but Warns Inflation Will Fall Slowly**\
+`The central bank said that future cuts would be gradual after spending increases were introduced in the government’s new budget.`\
+https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation.html
+
 **Bank of England Cuts Interest Rates, but Warns Inflation Will Fall Slowly**\
 `The central bank cut interest rates a quarter point on Thursday, but it said that future cuts would be gradual.`\
 https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation.html
