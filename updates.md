@@ -1,3 +1,7 @@
+**Florida sticking with Billy Napier as football coach**\
+`Napier’s future has been questioned since going 11-14 in his first two seasons and had an elite recruiting class crumbled before signing day`\
+https://nytimes.com/athletic/5906242/2024/11/07/billy-napier-florida-football-coach/
+
 **A Violinist on a Mission to Capture America, Division and All**\
 `Johnny Gandelsman has commissioned 28 pieces for his project “This Is America,” which explores themes of love, hope, inequality and injustice.`\
 https://nytimes.com/2024/11/07/arts/music/johnny-gandelsman-this-is-america.html
