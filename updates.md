@@ -1,3 +1,7 @@
+**Expecting Clemency From Trump, Jan. 6 Defendant Requests Sentencing Delay**\
+`A federal judge promptly denied Christopher Carnell’s request, which was filed hours after President Donald J. Trump won re-election.`\
+https://nytimes.com/2024/11/06/us/jan-6-rioter-trump-pardon-judge-denies.html
+
 **2024 Temperatures Are on Track for a Record High, Researchers Find**\
 `The new report also says that global warming has hit a threshold, at least temporarily, that countries had pledged to avoid.`\
 https://nytimes.com/2024/11/06/climate/2024-temperatures-hottest-year.html
