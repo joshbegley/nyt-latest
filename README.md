@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5904751/2024/11/07/warriors-road-win-celtics/
 `“Trump returning to the White House is a huge historic comeback for someone who literally never went away,” Jimmy Fallon said.`\
 https://nytimes.com/2024/11/07/arts/television/late-night-trump-election.html
 
-**The four stages of Aston Villa's most concerning performance yet under Unai Emery**\
+**The four stages of Villa's most concerning performance yet under Emery**\
 `Breaking down the reasons behind Aston Villa's first defeat in this season's Champions League`\
 https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
 
