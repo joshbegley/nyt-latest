@@ -1,3 +1,7 @@
+**Voters Poised to Reject Private School Vouchers in Three States**\
+`The results were part of a wave of ballot measure outcomes that teachers’ unions had sought. Nevertheless, private-school choice is growing nationwide.`\
+https://nytimes.com/2024/11/07/us/private-school-funding-election-rejection.html
+
 **College football best bets Week 11: Rebels overvalued, Wolverines undervalued**\
 `Austin Mock picks four bets to start our college football betting slate this week.`\
 https://nytimes.com/athletic/5900210/2024/11/07/college-football-best-bets-week-11-georgia-ole-miss-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/dining/no-rules-friendsgiving.html
 **Gillen Defeats D’Esposito in New York, Flipping House Seat for Democrats**\
 `Laura Gillen unseated Representative Anthony D’Esposito, a first-term Republican, on Long Island. Her campaign focused on abortion and the border.`\
 https://nytimes.com/2024/11/07/nyregion/ny-house-laura-gillen-desposito.html
-
-**Disappointment Looks Different This Time Around**\
-`In 2016, social media was awash in calls to protest the day after Donald J. Trump’s victory. On Wednesday, many said it seemed like business as usual.`\
-https://nytimes.com/2024/11/07/style/social-media-trump-reaction.html
 
