@@ -1,3 +1,11 @@
+**For Rent: 4-Bedroom London House. The Owner? Britain’s Prime Minister.**\
+`Keir Starmer has rented out his home in north London since moving to Downing Street, according to newly published official records.`\
+https://nytimes.com/2024/11/07/world/europe/uk-keir-starmer-home-rent.html
+
+**Lions' Branch apologizes for flipping off Packers fans**\
+`"I feel like that was just a heat of the moment for me," Branch said. "And I apologize to everyone that seen that. That won’t happen again."`\
+https://nytimes.com/athletic/5906117/2024/11/07/lions-brian-branch-apology-ejection-packers/
+
 **Inside Edu's Arsenal exit: Shock among staff, autonomy over transfers and what it means for Arteta**\
 `Why the sporting director left, the fallout from the decision, plus what it means for Mikel Arteta's team and January recruitment`\
 https://nytimes.com/athletic/5903783/2024/11/07/edu-arsenal-exit-inside-story/
