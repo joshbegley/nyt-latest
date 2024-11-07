@@ -1,3 +1,7 @@
+**The four stages of Aston Villa's most concerning performance yet under Unai Emery**\
+`Breaking down the reasons behind Aston Villa's first defeat in this season's Champions League`\
+https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
+
 **Chile’s Stolen Children Deserve Justice**\
 `There could have been as many 50,000 babies trafficked out of Chile between the 1950s and the 1990s.`\
 https://nytimes.com/2024/11/07/opinion/chile-adoption-scandal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902673/2024/11/07/newcastle-guimaraes-joelinton-go
 **Why Taylor's appointment to a Nottingham Forest game has caused controversy**\
 `There has been a lot of anger on social media at Anthony Taylor being put in charge of Forest's game against Newcastle`\
 https://nytimes.com/athletic/5904002/2024/11/07/nottingham-forest-anthony-taylor/
-
-**Viktor Gyokeres: Is European football's most in-form striker finally ready for the Premier League?**\
-`The Swede was unable to break through at Brighton but his sensational displays for Sporting have got Europe's elite on high-alert `\
-https://nytimes.com/athletic/5903347/2024/11/07/viktor-gyokeres-analysis-profile/
 

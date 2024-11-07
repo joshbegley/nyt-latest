@@ -1,3 +1,7 @@
+**The four stages of Aston Villa's most concerning performance yet under Unai Emery**\
+`Breaking down the reasons behind Aston Villa's first defeat in this season's Champions League`\
+https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
+
 **Chile’s Stolen Children Deserve Justice**\
 `There could have been as many 50,000 babies trafficked out of Chile between the 1950s and the 1990s.`\
 https://nytimes.com/2024/11/07/opinion/chile-adoption-scandal.html
