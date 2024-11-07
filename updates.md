@@ -1,3 +1,12 @@
+**This Is Not a Beauty Podcast: More Than Skin Deep
+**\
+`Some think of science as clinical, but as far as scientists are concerned, there’s still beauty to be found in the patterns that explain our world.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/more-than-skin-deep.html
+
+**The Pulse: A dynasty's latest combeack**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5905123/2024/11/07/warriors-steph-curry-buddy-hield-the-pulse/
+
 **F1 drivers' union hits back at FIA after 'misconduct' punishments: 'Our members are adults'**\
 `Recent controversies include Max Verstappen and Charles Leclerc being sanctioned by the FIA for swearing.`\
 https://nytimes.com/athletic/5905686/2024/11/07/f1-drivers-punishments-fia-protest/
