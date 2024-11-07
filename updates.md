@@ -1,3 +1,19 @@
+**Fed Chair Says He Won’t Leave if Trump Asks**\
+`Jerome H. Powell, the chairman of the central bank, has been a frequent target of the president-elect, who appointed him in 2018.`\
+https://nytimes.com/2024/11/07/us/politics/jerome-powell-trump-fed.html
+
+**A Union Square Date Night for Inter-Borough Relationships**\
+`Find love in a hopeless place (where the subway lines intersect).`\
+https://nytimes.com/2024/11/07/dining/a-union-square-date-night-for-inter-borough-relationships.html
+
+**A Week of Hope and Disappointment at Howard University**\
+`Times Opinion sent student photographers to capture the mood on campus.`\
+https://nytimes.com/live/2024/11/05/opinion/thepoint/kamala-defeat-howard-university
+
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/11/07/books/review/new-books-recommendations.html
+
 **Galatasaray 3-2 Spurs: Mixed night for Lankshear, as Maddison and Dragusin struggle**\
 `Injury-hit Spurs were forced to make a host of changes for their Europa League trip to Turkey, and it did not pay off`\
 https://nytimes.com/athletic/5906825/2024/11/07/galatasaray-3-2-spurs-will-lankshear/
