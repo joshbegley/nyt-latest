@@ -1,40 +1,40 @@
-**Jean Hanff Korelitz Gave Spreadsheets a ‘Workout’ to Plan Her New Book**\
-`A novel within a novel fueled her hit thriller, “The Plot.” Keeping the stories straight was even harder for “The Sequel.”`\
-https://nytimes.com/2024/11/07/books/review/jean-hanff-korelitz-the-sequel-by-the-book.html
+**Fun has returned to Michigan basketball. How successful will Dusty May's debut be?**\
+`Michigan’s first game did nothing to dampen expectations for a turnaround in May’s first season, but we'll find out a lot more soon.`\
+https://nytimes.com/athletic/5904189/2024/11/07/michigan-basketball-dusty-may-preview-predictions/
 
-**The Watch Industry’s Role in Your Speeding Ticket**\
-`It was the development of the chronograph, essentially a stopwatch, that laid the groundwork for automobile speed limits.`\
-https://nytimes.com/2024/11/07/fashion/watches-breitling-vehicular-speed.html
+**A year after selling off players, Commanders have come a long way: Aldridge**\
+`Washington took the big swing of a team that believes in its coaches and players, and not just for this season. `\
+https://nytimes.com/athletic/5903793/2024/11/07/commanders-trade-deadline-aldridge/
 
-**Brighton's Hinshelwood can become England regular, says Hurzeler**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler is backing Jack Hinshelwood to become a full England international.`\
-https://nytimes.com/athletic/5905637/2024/11/07/jack-hinshelwood-england-brighton/
+**We Don’t Have Time to Waste Time in Despair**\
+`What should Trump’s opponents do next?`\
+https://nytimes.com/2024/11/07/opinion/donald-trump-opponents-democracy.html
 
-**How the first CFP rankings affect the Big Ten's other bowl projections**\
-`How the CFP, the league’s current bowls and prospects for the former Pac-12 teams affect where Big Ten fans may spend their late Decembers.`\
-https://nytimes.com/athletic/5904208/2024/11/07/big-ten-bowl-projections-cfp/
+**Before the Election, Tech C.E.O.s Were Quietly Courting Trump**\
+`The executives of tech’s biggest companies largely ignored Donald Trump before the 2016 election. This time around, they’re far more friendly.`\
+https://nytimes.com/2024/11/07/technology/trump-tech-ceos.html
 
-**Lessons for World Leaders From Japan’s Former Trump-Whisperer**\
-`Shinzo Abe, then the prime minister of Japan, succeeded in making friends with Mr. Trump through golf, entertainment and appealing to his vanity.`\
-https://nytimes.com/2024/11/07/world/asia/japan-trump-shinzo-abe.html
+**Kamala Harris Was the Establishment in an Anti-Establishment Election**\
+`It was the wrong time to be the defender and champion of the country’s governing establishment.`\
+https://nytimes.com/2024/11/07/opinion/kamala-harris-election.html
 
-**Explained: Mendy's legal win over Manchester City - and what it could mean for football**\
-`We break down why the French defender secured a majority victory in his tribunal and whether this could have a wider impact in the game`\
-https://nytimes.com/athletic/5903504/2024/11/07/manchester-city-benjamin-mendy-wages-explained/
+**A Master of the Media Evolved Yet Again in 2024**\
+`Donald J. Trump has embraced tabloids, reality TV, Twitter and cable news. This year, he moved on to podcasts and online streamers.`\
+https://nytimes.com/2024/11/07/business/media/trump-media-strategy-podcasts.html
 
-**Trump’s Win Is Likely to Prolong Gaza Talks Uncertainty**\
-`Any serious advancement on a cease-fire will likely have to wait for Mr. Trump to reach office in January, analysts said.`\
-https://nytimes.com/2024/11/07/world/middleeast/trump-israel-gaza-ceasefire-talks.html
+**Tech Giants Face a Familiar Uncertainty With Trump**\
+`Apple, Amazon, Google, Meta and others learned during the last Trump administration to expect the unexpected when it came to Washington scrutiny and support.`\
+https://nytimes.com/2024/11/07/technology/trump-apple-amazon-google-meta.html
 
-**Nissan Cuts 9,000 Jobs and Slashes C.E.O.’s Pay in Half**\
-`The Japanese automaker is carving out its global operations as it struggles with a steep drop in sales.`\
-https://nytimes.com/2024/11/07/business/nissan-job-cuts.html
+**What Is the Worst Version of a Second Trump Administration?**\
+`Opinion columnists break down what the worst version of a second Trump administration would be.`\
+https://nytimes.com/video/opinion/100000009811484/trump-worst-case.html
 
-**Canada Shuts TikTok’s Offices Over National Security Risks**\
-`The order, which will allow people to still use the app, cited concerns about TikTok’s owner, the Chinese tech giant ByteDance.`\
-https://nytimes.com/2024/11/07/business/canada-tiktok.html
+**Democrats Ignored Gaza and Brought Down Their Party**\
+`The war in the Middle East has become this era’s most important progressive cause.`\
+https://nytimes.com/2024/11/07/opinion/democrats-israel-gaza-war.html
 
-**Two Empty Nesters Flew to the City With $600,000 for an East Side Studio**\
-`With their daughter in college on Long Island, an Atlanta couple looked for a modest second home in Manhattan so they could visit more often. Here’s what they found.`\
-https://nytimes.com/interactive/2024/11/07/realestate/east-side-studio-apartment-sale.html
+**What Trump’s Win Means for Fed Independence**\
+`Donald J. Trump spent his first presidency on a collision course with America’s central bank. Will it intensify?`\
+https://nytimes.com/2024/11/07/business/economy/trump-federal-reserve-powell-interest-rates.html
 
