@@ -1,3 +1,15 @@
+**At Salon Art + Design, Nature and Beauty Come Center Stage**\
+`More than 50 galleries tease the lines between function and decoration, in a year when the fair has a far-reaching mission: to give more artists a chance to be seen.`\
+https://nytimes.com/2024/11/07/arts/design/salon-art-design-fair-park-avenue-armory.html
+
+**NASCAR driver fined for absence at media event says he traveled home to vote**\
+`Majeski was docked money for “Failure to complete media obligations,” which falls under NASCAR’s member conduct code.`\
+https://nytimes.com/athletic/5906483/2024/11/07/nascar-driver-fined-voting-majeski/
+
+**No-Rules Friendsgiving**\
+`A November dinner with friends is for cooking whatever you want, like roasted brussels sprouts Caesar or a caramelized onion tachin.`\
+https://nytimes.com/2024/11/07/dining/no-rules-friendsgiving.html
+
 **Gillen Defeats D’Esposito in New York, Flipping House Seat for Democrats**\
 `Laura Gillen unseated Representative Anthony D’Esposito, a first-term Republican, on Long Island. Her campaign focused on abortion and the border.`\
 https://nytimes.com/2024/11/07/nyregion/ny-house-laura-gillen-desposito.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5906480/2024/11/07/tyrese-maxey-injury-sixers/
 **When Is a Cult Brand No Longer a Cult Brand? When LVMH Comes Knocking.**\
 `The Swedish brand Our Legacy finally gets investment from the big guys.`\
 https://nytimes.com/2024/11/07/style/lvmh-our-legacy.html
-
-**Trump’s economic plans could worsen inflation, economists say.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/11/07/business/fed-interest-rates/trumps-economic-plans-could-worsen-inflation-economists-say
-
-**Australia Moves to Ban Young Teens From Social Media**\
-`The proposed legislation would put the country at the forefront of regulating social media access for children.`\
-https://nytimes.com/2024/11/07/world/australia/australia-teens-social-media.html
-
-**Man Shoots Another Man Before Fleeing Into Manhattan Subway Station**\
-`The gunman was still at large, the police said, and the victim was in stable condition. The episode left New Yorkers sheltering on subway cars and led to delays across the transit system.`\
-https://nytimes.com/2024/11/07/nyregion/nyc-shooting-subway-delays.html
 
