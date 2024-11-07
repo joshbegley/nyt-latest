@@ -1,3 +1,7 @@
+**Florida sticking with Billy Napier as football coach**\
+`Napier’s future has been questioned since going 11-14 in his first two seasons and had an elite recruiting class crumbled before signing day`\
+https://nytimes.com/athletic/5906242/2024/11/07/billy-napier-florida-football-coach/
+
 **A Violinist on a Mission to Capture America, Division and All**\
 `Johnny Gandelsman has commissioned 28 pieces for his project “This Is America,” which explores themes of love, hope, inequality and injustice.`\
 https://nytimes.com/2024/11/07/arts/music/johnny-gandelsman-this-is-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5905767/2024/11/07/stephen-curry-warriors-clippers-
 **Philadelphia Union parts ways with head coach Curtin after 10 years at MLS club**\
 `The Union underperformed in the 2024 season and missed the playoffs for the first time since 2017.`\
 https://nytimes.com/athletic/5906223/2024/11/07/jim-curtin-philadelphia-union-leaves/
-
-**Edwards: The pros and cons of the Knicks' up-and-down start**\
-`It's far too early to make sweeping conclusions, but these trends (good and bad) are worth watching.`\
-https://nytimes.com/athletic/5904970/2024/11/07/new-york-knicks-start-nba-season-hart/
 

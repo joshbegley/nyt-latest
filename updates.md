@@ -1,3 +1,11 @@
+**A Violinist on a Mission to Capture America, Division and All**\
+`Johnny Gandelsman has commissioned 28 pieces for his project “This Is America,” which explores themes of love, hope, inequality and injustice.`\
+https://nytimes.com/2024/11/07/arts/music/johnny-gandelsman-this-is-america.html
+
+**Champions League projections: All the talking points after matchday four**\
+`Paris Saint-Germain and Real Madrid are just two of the big names in trouble as we reach the halfway point of the league phase`\
+https://nytimes.com/athletic/5905934/2024/11/07/champions-league-projections-matchday-four/
+
 **How Did This Penguin End Up on a Beach in Australia?**\
 `“This is the furthest north I’ve heard of an emperor penguin,” an expert said.`\
 https://nytimes.com/2024/11/07/world/australia/emperor-penguin-australia-antarctica.html

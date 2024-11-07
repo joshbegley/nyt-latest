@@ -1,3 +1,7 @@
+**A Violinist on a Mission to Capture America, Division and All**\
+`Johnny Gandelsman has commissioned 28 pieces for his project “This Is America,” which explores themes of love, hope, inequality and injustice.`\
+https://nytimes.com/2024/11/07/arts/music/johnny-gandelsman-this-is-america.html
+
 **How Did This Penguin End Up on a Beach in Australia?**\
 `“This is the furthest north I’ve heard of an emperor penguin,” an expert said.`\
 https://nytimes.com/2024/11/07/world/australia/emperor-penguin-australia-antarctica.html
@@ -5,6 +9,10 @@ https://nytimes.com/2024/11/07/world/australia/emperor-penguin-australia-antarct
 **With DNA, Pompeii Narratives Take a Twist**\
 `In 79 A.D., a volcanic eruption engulfed a town’s residents. They weren’t all who scientists thought, newly extracted genetic material suggests.`\
 https://nytimes.com/2024/11/07/science/archaeology-dna-pompeii.html
+
+**Champions League projections: All the talking points after matchday four**\
+`Paris Saint-Germain and Real Madrid are just two of the big names in trouble as we reach the halfway point of the league phase`\
+https://nytimes.com/athletic/5905934/2024/11/07/champions-league-projections-matchday-four/
 
 **This Sesame Salmon Bowl Feels Like a Treat**\
 `Inspired by chirashi, Kay Chun’s one-pot dinner combines plump, silky salmon with vinegared rice, crunchy cucumbers, cabbage and a sesame-soy vinaigrette.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5906223/2024/11/07/jim-curtin-philadelphia-union-le
 **Edwards: The pros and cons of the Knicks' up-and-down start**\
 `It's far too early to make sweeping conclusions, but these trends (good and bad) are worth watching.`\
 https://nytimes.com/athletic/5904970/2024/11/07/new-york-knicks-start-nba-season-hart/
-
-**Cowboys' Dak Prescott partially tears hamstring tendon off bone**\
-`Prescott exited the Cowboys' Week 9 game against the Atlanta Falcons at the end of the third quarter.`\
-https://nytimes.com/athletic/5904778/2024/11/07/dak-prescott-hamstring-injury-cowboys/
-
-**Panthers, RB Chuba Hubbard agree to terms on 4-year deal**\
-`Hubbard, 25, is averaging 5.0 yards per carry this season tallying 665 yards (fifth in the NFL) on 133 carries with five rushing touchdowns.`\
-https://nytimes.com/athletic/5906123/2024/11/07/chuba-hubbard-contract-panthers/
 
