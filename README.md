@@ -1,3 +1,11 @@
+**Thick Smog Blankets Pakistani City**\
+`Residents of Lahore are suffering from the toxic haze that has pushed the city’s Air Quality Index to off-the-chart levels by U.S. standards.`\
+https://nytimes.com/video/world/asia/100000009813321/pakistan-lahore-pollution-smog.html
+
+**Leeds United's away-day struggles are a growing concern**\
+`Leeds have won just two of their seven Championship away games so far this season - their record needs to improve`\
+https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/
+
 **The Briefing: Red Star 2 Barcelona 5 - Another Yamal milestone, 10 Cubarsi stitches, and 99 goals for Lewandowski**\
 `Breaking down another impressive night for Hansi Flick's side in this season's Champions League`\
 https://nytimes.com/athletic/5905037/2024/11/07/red-star-barcelona-champions-league-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/arts/television/late-night-trump-election.html
 **The four stages of Aston Villa's most concerning performance yet under Unai Emery**\
 `Breaking down the reasons behind Aston Villa's first defeat in this season's Champions League`\
 https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
-
-**Chile’s Stolen Children Deserve Justice**\
-`There could have been as many 50,000 babies trafficked out of Chile between the 1950s and the 1990s.`\
-https://nytimes.com/2024/11/07/opinion/chile-adoption-scandal.html
-
-**Spanish Floods Have Opened the Door to Populism**\
-`Rage can be a dangerous political tool.`\
-https://nytimes.com/2024/11/07/opinion/spain-floods-valencia-populism.html
 
