@@ -1,3 +1,7 @@
+**Teen hockey phenom Chloe Primerano makes Team Canada debut in Rivalry Series**\
+`It’s yet another benchmark for the 17-year-old University of Minnesota defender who is charting a unique path in women’s hockey.`\
+https://nytimes.com/athletic/5904742/2024/11/06/chloe-primerano-rivalry-series-canada-hockey/
+
 **2024 Temperatures Are on Track for a Record High, Researchers Find**\
 `The new report also says that global warming has hit a threshold, at least temporarily, that countries had pledged to avoid.`\
 https://nytimes.com/2024/11/06/climate/2024-temperatures-hottest-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/trump-president-agenda.html
 **'Road To The NHL Winter Classic' TV series to return ahead of Blackhawks vs. Blues at Wrigley Field**\
 `The first of four episodes will debut on Dec. 4 on TNT in the United States and Dec. 5 on Sportsnet in Canada.`\
 https://nytimes.com/athletic/5904368/2024/11/06/road-to-the-nhl-winter-classic-tnt-hbo-max/
-
-**Expecting Clemency From Trump, Jan. 6 Defendant Requests Sentencing Delay**\
-`A federal judge promptly denied Christopher Carnell’s request, which was filed hours after President Donald J. Trump won re-election.`\
-https://nytimes.com/2024/11/06/us/jan-6-rioter-trump-pardon-judge-denies.html
 
