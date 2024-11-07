@@ -1,3 +1,11 @@
+**NBA Lookahead: Revenge is a dish best served during the regular season**\
+`The Cavs try to stay unbeaten, the Warriors and Thunder square off and more of the must-see games on tap.`\
+https://nytimes.com/athletic/5899732/2024/11/07/nba-lookahead-jayson-tatum-cavaliers-weekend/
+
+**England draw Spain in Women's Nations League**\
+`England have been drawn alongside 2023 World Cup winners Spain in the league stage of the Women&#8217;s Nations League.`\
+https://nytimes.com/athletic/5905742/2024/11/07/womens-nations-league-draw-england-spain/
+
 **What it's like competing in NASCAR under Michael Jordan's watch**\
 `The six-time NBA champ will try Sunday to win his first title as NASCAR team owner. Tyler Reddick's No. 45 crew is glad he's on their side.`\
 https://nytimes.com/athletic/5905130/2024/11/07/michael-jordan-nascar-23xi-tyler-reddick-team/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5903637/2024/11/07/broncos-midseason-predictions-bo
 **The World Isn’t Spending Nearly Enough to Adapt to Climate Shocks, U.N. Says**\
 `A new report, urging rich nations to give more climate aid to poorer ones, comes as Donald Trump’s election throws global climate talks into disarray.`\
 https://nytimes.com/2024/11/07/climate/climate-adaptation-cop29-trump-un.html
-
-**‘The Last Rifleman’ Review: A World War II Veteran Hits the Road**\
-`Pierce Brosnan plays a man who sneaks out of his retirement home to attend the 75th anniversary of the D-Day landings in this charming, but corny drama.`\
-https://nytimes.com/2024/11/07/movies/the-last-rifleman-review.html
-
-**‘Meanwhile on Earth’ Review: Outer Space and Inner Turmoil**\
-`A bereaved young woman faces terrible choices in this dreamily uncertain blend of science fiction and moral philosophy.`\
-https://nytimes.com/2024/11/07/movies/meanwhile-on-earth-review.html
 
