@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/07/world/pakistan-air-pollution-punjab.html
 `The Tottenham and Australia forward discusses leaving Real Madrid and explains why she felt north London was the right place for her`\
 https://nytimes.com/athletic/5904139/2024/11/07/hayley-raso-tottenham-manchester-city-real-madrid/
 
-**Momentum continues to elude Blackhawks in lifeless loss to Kane, Red Wings: Observations**\
+**Momentum still eludes Blackhawks in lifeless loss to Patrick Kane, Red Wings: Observations**\
 `The next step for the Blackhawks is consistency, and it's one they're struggling with.`\
 https://nytimes.com/athletic/5905350/2024/11/07/blackhawks-momentum-streaks-red-wings/
 
