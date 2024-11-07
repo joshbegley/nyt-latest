@@ -1,3 +1,7 @@
+**Bronny James heading to G League's South Bay Lakers**\
+`The Los Angeles Lakers assigned the the No. 55 pick in the 2024 NBA Draft, and the 20-year-old son of LeBron James, to the South Bay Lakers.`\
+https://nytimes.com/athletic/5888933/2024/11/07/bronny-james-lakers-g-league/
+
 **‘Alan Cumming’s Paradise Homes’ Is a Cheeky and Fabulous Distraction**\
 `Need a healthy does of escapism right about now? Look no further than this series on BritBox.`\
 https://nytimes.com/2024/11/07/arts/television/alan-cummings-paradise-homes-britbox.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/07/movies/clint-eastwood-squint.html
 **Friday Briefing: Biden promises a peaceful transition**\
 `Plus, the readers turning to “healing fiction.”`\
 https://nytimes.com/2024/11/07/briefing/donald-trump-climate-australia.html
-
-**Fed Chair Says He Won’t Leave if Trump Asks**\
-`Jerome H. Powell, the chairman of the central bank, has been a frequent target of the president-elect, who appointed him in 2018.`\
-https://nytimes.com/2024/11/07/us/politics/jerome-powell-trump-fed.html
 
