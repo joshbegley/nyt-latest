@@ -1,3 +1,11 @@
+**2024 Temperatures Are on Track for a Record High, Researchers Find**\
+`The new report also says that global warming has hit a threshold, at least temporarily, that countries had pledged to avoid.`\
+https://nytimes.com/2024/11/06/climate/2024-temperatures-hottest-year.html
+
+**Rave Party**\
+`Joe Deeney shows us where we’re going (to.)`\
+https://nytimes.com/2024/11/06/crosswords/daily-puzzle-2024-11-07.html
+
 **Corrections: Nov. 7, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 7, 2024.`\
 https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-7-2024.html
