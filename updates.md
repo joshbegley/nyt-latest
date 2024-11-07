@@ -1,3 +1,15 @@
+**Man Shoots Another Man Before Fleeing Into Manhattan Subway Station**\
+`The gunman was still at large, the police said, and the victim was in stable condition. The episode left New Yorkers sheltering on subway cars and led to delays across the transit system.`\
+https://nytimes.com/2024/11/07/nyregion/nyc-shooting-subway-delays.html
+
+**WTA Tour Finals: Gauff, Sabalenka, Zheng and Krejcikova make semifinals, Swiatek out**\
+`The season-ending event pits the best players on the WTA Tour against each other in Riyadh, Saudi Arabia.`\
+https://nytimes.com/athletic/5882196/2024/11/07/wta-finals-draw-results-analysis/
+
+**Fantasy football rest-of-season rankings: RBs Saquon Barkley, Derrick Henry lead top 100**\
+`With the stretch run of the fantasy season near, Brandon Funston shares his rest-of-season rankings, with RBs clocking in early and often.`\
+https://nytimes.com/athletic/5905256/2024/11/07/fantasy-football-rest-of-season-rankings-big-board/
+
 **The Fed’s balance sheet is starting to worry some investors again.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2024/11/07/business/fed-interest-rates/the-feds-balance-sheet-is-starting-to-worry-some-investors-again
