@@ -1,3 +1,15 @@
+**JJ Redick rips Lakers' effort as loss to Grizzlies closes their 1-4 road trip**\
+`Missing two frontcourt starters, the Lakers had little response in Memphis. `\
+https://nytimes.com/athletic/5904449/2024/11/07/lakers-jj-redick-grizzlies-loss/
+
+**Claude Giroux Q&A: Travis Green, arm-wrestling the Eagles and will he play next season?**\
+`Giroux sat down with The Athletic to discuss the Senators' identity, offseason training and if Gritty is the league's most annoying mascot.`\
+https://nytimes.com/athletic/5901992/2024/11/07/senators-claude-giroux-contract-flyers-eagles/
+
+**Israeli Strikes Killed at Least 40 in Eastern Lebanon, Health Ministry Says**\
+`The deadliest strikes hit the Bekaa Valley, which is home to the historic city of Baalbek.`\
+https://nytimes.com/2024/11/07/world/israel-lebanon-hezbollah-gaza.html
+
 **Bank of England Cuts Interest Rates, but Warns of Sticky Inflation**\
 `The central bank said that future cuts would be gradual after spending increases were introduced in the government’s new budget.`\
 https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5903908/2024/11/07/milne-ohgren-fleury-rossi-wild/
 **‘Christmas Eve in Miller’s Point’ Review: Home for the Holidays**\
 `Tyler Taormina’s third theatrical feature is a lightly nostalgic ensemble piece set on Long Island.`\
 https://nytimes.com/2024/11/07/movies/christmas-eve-in-millers-point-review.html
-
-**Oilers kicking themselves again after big mistakes in both ends**\
-`Edmonton entered the third period with a lead Wednesday but watched it disappear with penalties, miscues and a feeble offense.`\
-https://nytimes.com/athletic/5905452/2024/11/07/edmonton-oilers-penalty-goal-vegas/
-
-**As BYU-Utah returns, it's the Cougars who are playing for an undefeated season**\
-`Kalani Sitake and several of his staffers have experience with an undefeated season thanks to time spent at rival Utah. `\
-https://nytimes.com/athletic/5903688/2024/11/07/byu-football-utah-rivalry-undefeated/
-
-**ATP Tour Finals draw pits Sinner against Medvedev, Alcaraz vs. Zverev**\
-`Defending champion Novak Djokovic misses the event with injury.`\
-https://nytimes.com/athletic/5905649/2024/11/07/atp-tour-finals-draw-results-analysis/
 
