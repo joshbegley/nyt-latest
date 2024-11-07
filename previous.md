@@ -1,3 +1,7 @@
+**Corrections: Nov. 7, 2024**\
+`Corrections that appeared in print on Thursday, Nov. 7, 2024.`\
+https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-7-2024.html
+
 **Will 49ers' Christian McCaffrey get a 2023-like workload? Kyle Shanahan is mum for now**\
 `McCaffrey, Deebo Samuel and Jauan Jennings were all on the practice field on Wednesday, though none of them practiced in full.`\
 https://nytimes.com/athletic/5905029/2024/11/06/christian-mccaffrey-49ers-workload-buccaneers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/donald-trump-2024-campaign-coalition.
 **The Second Pandemic Election**\
 `Covid cost Trump the presidency in 2020, and it may have cleared the path for his return.`\
 https://nytimes.com/2024/11/06/us/politics/trump-election-covid-2020.html
-
-**Jacky Rosen fights to hang on to her Senate seat in Nevada, with ballots still trickling in.**\
-`By Benjamin Oreskes and Danny Hakim`\
-https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jacky-rosen-fights-to-hang-on-to-her-senate-seat-in-nevada-with-ballots-still-trickling-in
 

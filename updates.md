@@ -1,3 +1,7 @@
+**Corrections: Nov. 7, 2024**\
+`Corrections that appeared in print on Thursday, Nov. 7, 2024.`\
+https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-7-2024.html
+
 **Will 49ers' Christian McCaffrey get a 2023-like workload? Kyle Shanahan is mum for now**\
 `McCaffrey, Deebo Samuel and Jauan Jennings were all on the practice field on Wednesday, though none of them practiced in full.`\
 https://nytimes.com/athletic/5905029/2024/11/06/christian-mccaffrey-49ers-workload-buccaneers/
