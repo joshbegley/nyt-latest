@@ -1,3 +1,7 @@
+**Dodger Details, GM meetings edition: Betts in the infield, Ohtani's surgery and more**\
+`The Betts move exacerbates the Dodgers' outfield situation. Plus, the Dodgers expect Ohtani to be part of the Opening Day lineup.`\
+https://nytimes.com/athletic/5904954/2024/11/06/dodgers-mookie-betts-infield-shohei-ohtani-surgery/
+
 **For Many Arab Americans in Dearborn, Trump Made the Case for Their Votes**\
 `After supporting Joe Biden in 2020, the majority-Arab American city outside Detroit delivered an unlikely win for Donald Trump, who promised to bring peace to the Middle East.`\
 https://nytimes.com/2024/11/06/us/dearborn-michigan-trump-arab-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jacky-rosen-fi
 **Her absentee ballot never arrived. So she flew from Chicago to Pennsylvania to vote.**\
 `A University of Chicago student tried for weeks to get an absentee that never came, so she spent hundreds on a last-minute plane ticket. She was not alone.`\
 https://nytimes.com/2024/11/06/us/politics/montgomery-county-pa-absentee-ballots.html
-
-**Trump Weighs Personnel Choices and Fields Congratulatory Calls**\
-`On his first day as president-elect after his victory in the 2024 campaign, Donald Trump took calls from Vice President Kamala Harris and President Biden as his transition planning ramped up.`\
-https://nytimes.com/2024/11/06/us/politics/trump-transition.html
 
