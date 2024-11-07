@@ -1,3 +1,19 @@
+**Inside Edu's Arsenal exit: Shock among staff, autonomy over transfers and what it means for Arteta**\
+`Why the sporting director left, the fallout from the decision, plus what it means for Mikel Arteta's team and January recruitment`\
+https://nytimes.com/athletic/5903783/2024/11/07/edu-arsenal-exit-inside-story/
+
+**Penguins Today: The irreplaceable Bryan Rust**\
+`Rust isn’t Sidney Crosby, but he fills so many roles — and he could return from injury as soon as tonight.`\
+https://nytimes.com/athletic/5906060/2024/11/07/penguins-today-bryan-rust/
+
+**Ranking PWHL jerseys: Which of the 6 new looks is our No. 1?**\
+`The six PWHL teams released their new jerseys on Thursday ahead of the Nov. 30 season opener. Let's break them down.`\
+https://nytimes.com/athletic/5904763/2024/11/07/pwhl-jersey-release-ranking/
+
+**One City’s Secret to Happiness: The Annual Burning of a 50-Foot Effigy**\
+`Every year, Santa Fe incinerates a giant puppet of Zozobra — a ritual meant to purge anxiety and promote a reset.`\
+https://nytimes.com/2024/11/07/magazine/santa-fe-zozobra-burning.html
+
 **Trump Is On Track to Win the Popular Vote**\
 `The projection was a further sign of the scale of Mr. Trump’s victory. In his first successful White House run in 2016, he received fewer votes nationally than Hillary Clinton.`\
 https://nytimes.com/2024/11/07/us/politics/trump-popular-vote-election-2024.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5901100/2024/11/07/college-football-week-11-odds-pi
 **Six reasons why the Ducks are the NHL's worst offensive team**\
 `Twelve games in, the Ducks have only scored 25 goals. What's at the root of their offensive woes?`\
 https://nytimes.com/athletic/5905582/2024/11/07/anaheim-ducks-nhl-offense-loss-analysis/
-
-**Jan. 6 Defendants Are Already Angling for Pardons From Trump**\
-`The president-elect said during the campaign that he would grant clemency to some of those who took part in the assault by his supporters on the Capitol nearly four years ago.`\
-https://nytimes.com/2024/11/07/us/politics/trump-jan-6-pardons.html
-
-**Mbappe left out of second consecutive France squad**\
-`France captain Kylian Mbappe has been left out of Didier Deschamps’s squad for their upcoming Nations League fixtures.`\
-https://nytimes.com/athletic/5905986/2024/11/07/kylian-mbappe-france-squad-november/
-
-**What the Collapse of Germany’s Ruling Coalition Means**\
-`After decades of relative stability, the country has entered a new era of political fragmentation and will hold new elections at a precarious time.`\
-https://nytimes.com/2024/11/07/world/europe/germany-coalition-collapse-explained.html
-
-**NFL Draft watch: 'The Beast' early tidbits; 3 prospects to track this weekend**\
-`Did you know these details about 2025 NFL Draft prospects Tre Harris, Malaki Starks and Wyatt Milum? Plus, a preview of the weekend.`\
-https://nytimes.com/athletic/5903482/2024/11/07/nfl-draft-watch-2025-malaki-starks-tre-harris/
 
