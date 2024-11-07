@@ -1,3 +1,7 @@
+**The Second Pandemic Election**\
+`Covid cost Trump the presidency in 2020, and it may have cleared the path for his return.`\
+https://nytimes.com/2024/11/06/us/politics/trump-election-covid-2020.html
+
 **Jacky Rosen fights to hang on to her Senate seat in Nevada, with ballots still trickling in.**\
 `By Benjamin Oreskes and Danny Hakim`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jacky-rosen-fights-to-hang-on-to-her-senate-seat-in-nevada-with-ballots-still-trickling-in
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/05/opinion/thepoint/dollar-value-rise-trump
 **What to watch in college football this week: Alabama-LSU rivalry leads Week 11 matchups**\
 `What to watch – and why to watch – as college football amps up to Week 11.`\
 https://nytimes.com/athletic/5901919/2024/11/06/college-football-watch-guide-week-11-alabama-lsu-odds/
-
-**A GM on the brink: Joe Douglas on the state of the Jets' season**\
-`Even after a big win on Halloween night, the Jets are still climbing a steep hill to get to the playoffs.`\
-https://nytimes.com/athletic/5904514/2024/11/06/joe-douglas-jets-gm-state-of-jets-season/
 
