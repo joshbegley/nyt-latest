@@ -1,3 +1,11 @@
+**NFL Draft watch: 'The Beast' early tidbits; 3 prospects to track this weekend**\
+`Did you know these details about 2025 NFL Draft prospects Tre Harris, Malaki Starks and Wyatt Milum? Plus, a preview of the weekend.`\
+https://nytimes.com/athletic/5903482/2024/11/07/nfl-draft-watch-2025-malaki-starks-tre-harris/
+
+**Hall, Harwood-Bellis handed first England call-ups in Carsley's final squad**\
+`Lee Carsley has named his final England squad as interim manager for the upcoming Nations League games against Republic of Ireland and Greece.`\
+https://nytimes.com/athletic/5900008/2024/11/07/england-squad-hall-harwood-bellis/
+
 **What Kamala Harris’s Loss Means To Black Women**\
 `Vice President Kamala Harris ran a 107-day campaign under extraordinarily rare circumstances after President Biden dropped out of the race.`\
 https://nytimes.com/video/us/elections/100000009812803/kamala-harris-concession-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5904668/2024/11/07/pwhl-jerseys-uniforms-design/
 **Robert Bortuzzo's 10-year run with Blues was built on 'hard work and sacrifice'**\
 `Bortuzzo returns to St. Louis with the Utah Hockey Club on Thursday, following a 10-year run with the Blues.`\
 https://nytimes.com/athletic/5893602/2024/11/07/robert-bortuzzo-blues-utah/
-
-**DeMar DeRozan is an all-time Toronto Raptor, and figuring it out with the Kings, too**\
-`DeRozan is off to a good start with his third team in his seventh season away from Toronto.`\
-https://nytimes.com/athletic/5905435/2024/11/07/demar-derozan-kings-raptors/
-
-**NBA Lookahead: Revenge is a dish best served during the regular season**\
-`The Cavs try to stay unbeaten, the Warriors and Thunder square off and more of the must-see games on tap.`\
-https://nytimes.com/athletic/5899732/2024/11/07/nba-lookahead-jayson-tatum-cavaliers-weekend/
 
