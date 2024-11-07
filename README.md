@@ -1,3 +1,19 @@
+**How Did This Penguin End Up on a Beach in Australia?**\
+`“This is the furthest north I’ve heard of an emperor penguin,” an expert said.`\
+https://nytimes.com/2024/11/07/world/australia/emperor-penguin-australia-antarctica.html
+
+**With DNA, Pompeii Narratives Take a Twist**\
+`In 79 A.D., a volcanic eruption engulfed a town’s residents. They weren’t all who scientists thought, newly extracted genetic material suggests.`\
+https://nytimes.com/2024/11/07/science/archaeology-dna-pompeii.html
+
+**This Sesame Salmon Bowl Feels Like a Treat**\
+`Inspired by chirashi, Kay Chun’s one-pot dinner combines plump, silky salmon with vinegared rice, crunchy cucumbers, cabbage and a sesame-soy vinaigrette.`\
+https://nytimes.com/2024/11/07/dining/this-sesame-salmon-bowl-feels-like-a-treat.html
+
+**The former advertising man who got the Olympics sold on flag football**\
+`Brett Gosper, NFL's head in Europe & Asia-Pacific, talks to The Athletic about how he helped bring flag football to the Olympics`\
+https://nytimes.com/athletic/5903062/2024/11/07/brett-gosper-flag-football/
+
 **Trump’s ‘Drill, Baby, Drill’ Cuts Two Ways for Oil Companies**\
 `The president-elect has promised to make it easier to build energy infrastructure and secure drilling leases. But higher production could hurt prices and profits.`\
 https://nytimes.com/2024/11/07/business/energy-environment/trump-oil-gas.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5904778/2024/11/07/dak-prescott-hamstring-injury-co
 **Panthers, RB Chuba Hubbard agree to terms on 4-year deal**\
 `Hubbard, 25, is averaging 5.0 yards per carry this season tallying 665 yards (fifth in the NFL) on 133 carries with five rushing touchdowns.`\
 https://nytimes.com/athletic/5906123/2024/11/07/chuba-hubbard-contract-panthers/
-
-**For Rent: 4-Bedroom London House. The Owner? Britain’s Prime Minister.**\
-`Keir Starmer has rented out his home in north London since moving to Downing Street, according to newly published official records.`\
-https://nytimes.com/2024/11/07/world/europe/uk-keir-starmer-home-rent.html
-
-**Lions' Branch apologizes for flipping off Packers fans**\
-`"I feel like that was just a heat of the moment for me," Branch said. "And I apologize to everyone that seen that. That won’t happen again."`\
-https://nytimes.com/athletic/5906117/2024/11/07/lions-brian-branch-apology-ejection-packers/
-
-**Inside Edu's Arsenal exit: Shock among staff, autonomy over transfers and what it means for Arteta**\
-`Why the sporting director left, the fallout from the decision, plus what it means for Mikel Arteta's team and January recruitment`\
-https://nytimes.com/athletic/5903783/2024/11/07/edu-arsenal-exit-inside-story/
-
-**Penguins Today: The irreplaceable Bryan Rust**\
-`Rust isn’t Sidney Crosby, but he fills so many roles — and he could return from injury as soon as tonight.`\
-https://nytimes.com/athletic/5906060/2024/11/07/penguins-today-bryan-rust/
 

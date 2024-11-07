@@ -1,3 +1,7 @@
+**Philadelphia Union parts ways with head coach Curtin after 10 years at MLS club**\
+`The Union underperformed in the 2024 season and missed the playoffs for the first time since 2017.`\
+https://nytimes.com/athletic/5906223/2024/11/07/jim-curtin-philadelphia-union-leaves/
+
 **Trump’s ‘Drill, Baby, Drill’ Cuts Two Ways for Oil Companies**\
 `The president-elect has promised to make it easier to build energy infrastructure and secure drilling leases. But higher production could hurt prices and profits.`\
 https://nytimes.com/2024/11/07/business/energy-environment/trump-oil-gas.html
