@@ -1,3 +1,19 @@
+**How Did This Penguin End Up on a Beach in Australia?**\
+`“This is the furthest north I’ve heard of an emperor penguin,” an expert said.`\
+https://nytimes.com/2024/11/07/world/australia/emperor-penguin-australia-antarctica.html
+
+**With DNA, Pompeii Narratives Take a Twist**\
+`In 79 A.D., a volcanic eruption engulfed a town’s residents. They weren’t all who scientists thought, newly extracted genetic material suggests.`\
+https://nytimes.com/2024/11/07/science/archaeology-dna-pompeii.html
+
+**This Sesame Salmon Bowl Feels Like a Treat**\
+`Inspired by chirashi, Kay Chun’s one-pot dinner combines plump, silky salmon with vinegared rice, crunchy cucumbers, cabbage and a sesame-soy vinaigrette.`\
+https://nytimes.com/2024/11/07/dining/this-sesame-salmon-bowl-feels-like-a-treat.html
+
+**The former advertising man who got the Olympics sold on flag football**\
+`Brett Gosper, NFL's head in Europe & Asia-Pacific, talks to The Athletic about how he helped bring flag football to the Olympics`\
+https://nytimes.com/athletic/5903062/2024/11/07/brett-gosper-flag-football/
+
 **Philadelphia Union parts ways with head coach Curtin after 10 years at MLS club**\
 `The Union underperformed in the 2024 season and missed the playoffs for the first time since 2017.`\
 https://nytimes.com/athletic/5906223/2024/11/07/jim-curtin-philadelphia-union-leaves/
