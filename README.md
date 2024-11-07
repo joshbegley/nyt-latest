@@ -1,3 +1,7 @@
+**The Short Campaign May Have Been Harris’s Undoing — and Biden’s Fault**\
+`By seeking re-election, Biden deprived Harris of months of campaigning that might have helped her.`\
+https://nytimes.com/2024/11/07/us/politics/biden-harris-campaign.html
+
 **Trump’s Strange Bedfellows: Arab Americans and Right-Leaning Jews**\
 `Donald J. Trump won votes from Arab Americans and pro-Israel American Jews. Someone is likely to be disappointed.`\
 https://nytimes.com/2024/11/07/us/politics/trump-arab-american-jews.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009814822/giuliani-speaks-after-miss
 **Man United's Onana hopes Van Nistelrooy stays at club**\
 `Andre Onana hopes that Manchester United interim coach Ruud van Nistelrooy remains at the club after Ruben Amorim&#8217;s permanent arrival next week.`\
 https://nytimes.com/athletic/5907294/2024/11/07/ruud-van-nistelrooy-manchester-united-future/
-
-**Trump Names Susie Wiles as His White House Chief of Staff**\
-`The president-elect turned to his top political aide to fill a key post managing the White House when he returns to office.`\
-https://nytimes.com/2024/11/07/us/politics/susie-wiles-trump-white-house-chief-of-staff.html
 
