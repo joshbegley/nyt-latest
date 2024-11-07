@@ -1,3 +1,7 @@
+**F1 drivers' union hits back at FIA after 'misconduct' punishments: 'Our members are adults'**\
+`Recent controversies include Max Verstappen and Charles Leclerc being sanctioned by the FIA for swearing.`\
+https://nytimes.com/athletic/5905686/2024/11/07/f1-drivers-punishments-fia-protest/
+
 **Several Feet of Snow Are Forecast in New Mexico and Colorado**\
 `A slow-moving winter storm was expected to drop up to three feet of snow in parts of the two states through Saturday, causing perilous road conditions and power outages.`\
 https://nytimes.com/2024/11/07/weather/snow-storm-new-mexico-colorado.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902290/2024/11/07/atlanta-uniteds-stand-in-coach-r
 **Packers second-half predictions: Jordan Love's rebound, playoff finish and more**\
 `The Packers are 6-3 entering their bye week and travel to Chicago next Sunday for their first matchup this season against the Bears.`\
 https://nytimes.com/athletic/5903775/2024/11/07/packers-midseason-predictions-jordan-love/
-
-**Red Wings stock watch: Who's trending up and down 12 games in?**\
-`Detroit is back above .500 thanks in part to good goaltending and an impressive young defense pairing, but other issues remain.`\
-https://nytimes.com/athletic/5905342/2024/11/07/red-wings-stock-watch-12-games/
 
