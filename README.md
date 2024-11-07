@@ -1,3 +1,11 @@
+**2024 Temperatures Are on Track for a Record High, Researchers Find**\
+`The new report also says that global warming has hit a threshold, at least temporarily, that countries had pledged to avoid.`\
+https://nytimes.com/2024/11/06/climate/2024-temperatures-hottest-year.html
+
+**Rave Party**\
+`Joe Deeney shows us where we’re going (to.)`\
+https://nytimes.com/2024/11/06/crosswords/daily-puzzle-2024-11-07.html
+
 **Corrections: Nov. 7, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 7, 2024.`\
 https://nytimes.com/2024/11/06/pageoneplus/corrections-nov-7-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5904368/2024/11/06/road-to-the-nhl-winter-classic-t
 **Expecting Clemency From Trump, Jan 6. Defendant Requests Sentencing Delay**\
 `A federal judge promptly denied Christopher Carnell’s request, which was filed hours after President Donald J. Trump won re-election.`\
 https://nytimes.com/2024/11/06/us/jan-6-rioter-trump-pardon-judge-denies.html
-
-**In Trump’s Win, G.O.P. Sees Signs of a Game-Changing New Coalition**\
-`Donald J. Trump picked up support among Latino and Black working-class voters, giving the party hope for a new way to win in a diversifying nation.`\
-https://nytimes.com/2024/11/06/us/politics/donald-trump-2024-campaign-coalition.html
-
-**The Second Pandemic Election**\
-`Covid cost Trump the presidency in 2020, and it may have cleared the path for his return.`\
-https://nytimes.com/2024/11/06/us/politics/trump-election-covid-2020.html
 
