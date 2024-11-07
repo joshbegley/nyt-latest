@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/06/us/politics/trump-president-agenda.html
 `The first of four episodes will debut on Dec. 4 on TNT in the United States and Dec. 5 on Sportsnet in Canada.`\
 https://nytimes.com/athletic/5904368/2024/11/06/road-to-the-nhl-winter-classic-tnt-hbo-max/
 
-**Expecting Clemency From Trump, Jan 6. Defendant Requests Sentencing Delay**\
+**Expecting Clemency From Trump, Jan. 6 Defendant Requests Sentencing Delay**\
 `A federal judge promptly denied Christopher Carnell’s request, which was filed hours after President Donald J. Trump won re-election.`\
 https://nytimes.com/2024/11/06/us/jan-6-rioter-trump-pardon-judge-denies.html
 
