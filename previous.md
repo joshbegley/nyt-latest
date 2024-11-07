@@ -1,3 +1,23 @@
+**Dozens of Israeli Strikes Hit the Beirut Area and Eastern Lebanon**\
+`The airstrikes caused damage in Beirut’s southern suburbs and in the eastern city of Baalbek in the Bekaa region, where the Israeli military said it was targeting Hezbollah positions.`\
+https://nytimes.com/video/world/middleeast/100000009813433/dozens-of-israeli-strikes-hit-the-beirut-area-and-eastern-lebanon.html
+
+**Here’s the latest on the election.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/11/07/us/trump-election/heres-the-latest-on-the-election
+
+**PWHL unveils new jerseys ahead of 2024-25 season**\
+`The Professional Women’s Hockey League has unveiled new-look uniforms for its six franchises ahead of the 2024-25 season.`\
+https://nytimes.com/athletic/5904668/2024/11/07/pwhl-jerseys-uniforms-design/
+
+**Robert Bortuzzo's 10-year run with Blues was built on 'hard work and sacrifice'**\
+`Bortuzzo returns to St. Louis with the Utah Hockey Club on Thursday, following a 10-year run with the Blues.`\
+https://nytimes.com/athletic/5893602/2024/11/07/robert-bortuzzo-blues-utah/
+
+**DeMar DeRozan is an all-time Toronto Raptor, and figuring it out with the Kings, too**\
+`DeRozan is off to a good start with his third team in his seventh season away from Toronto.`\
+https://nytimes.com/athletic/5905435/2024/11/07/demar-derozan-kings-raptors/
+
 **NBA Lookahead: Revenge is a dish best served during the regular season**\
 `The Cavs try to stay unbeaten, the Warriors and Thunder square off and more of the must-see games on tap.`\
 https://nytimes.com/athletic/5899732/2024/11/07/nba-lookahead-jayson-tatum-cavaliers-weekend/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5905671/2024/11/07/clippers-paul-george-sixers-warr
 **JJ Redick rips Lakers' effort as loss to Grizzlies closes their 1-4 road trip**\
 `Missing two frontcourt starters, the Lakers had little response in Memphis. `\
 https://nytimes.com/athletic/5904449/2024/11/07/lakers-jj-redick-grizzlies-loss/
-
-**Claude Giroux Q&A: Travis Green, arm-wrestling the Eagles and will he play next season?**\
-`Giroux sat down with The Athletic to discuss the Senators' identity, offseason training and if Gritty is the league's most annoying mascot.`\
-https://nytimes.com/athletic/5901992/2024/11/07/senators-claude-giroux-contract-flyers-eagles/
-
-**Israeli Strikes Killed at Least 40 in Eastern Lebanon, Health Ministry Says**\
-`The deadliest strikes hit the Bekaa Valley, which is home to the historic city of Baalbek.`\
-https://nytimes.com/2024/11/07/world/israel-lebanon-hezbollah-gaza.html
-
-**Bank of England Cuts Interest Rates, but Warns of Sticky Inflation**\
-`The central bank said that future cuts would be gradual after spending increases were introduced in the government’s new budget.`\
-https://nytimes.com/2024/11/07/business/bank-of-england-interest-rates-inflation.html
-
-**Broncos second-half predictions: Bo Nix's numbers, milestone for WR and ... playoffs?**\
-`The Broncos may not reach the golden 10-win threshold, but in a down year in the AFC, nine victories could break the playoff drought.`\
-https://nytimes.com/athletic/5903637/2024/11/07/broncos-midseason-predictions-bo-nix/
-
-**The World Isn’t Spending Nearly Enough to Adapt to Climate Shocks, U.N. Says**\
-`A new report, urging rich nations to give more climate aid to poorer ones, comes as Donald Trump’s election throws global climate talks into disarray.`\
-https://nytimes.com/2024/11/07/climate/climate-adaptation-cop29-trump-un.html
 
