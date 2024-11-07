@@ -1,3 +1,7 @@
+**Canada Shuts TikTok’s Offices Over National Security Risks**\
+`The order, which will allow people to still use the app, cited concerns about TikTok’s owner, the Chinese tech giant ByteDance.`\
+https://nytimes.com/2024/11/07/business/canada-tiktok.html
+
 **Two Empty Nesters Flew to the City With $600,000 for an East Side Studio**\
 `With their daughter in college on Long Island, an Atlanta couple looked for a modest second home in Manhattan so they could visit more often. Here’s what they found.`\
 https://nytimes.com/interactive/2024/11/07/realestate/east-side-studio-apartment-sale.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonym
 **Thick Smog Blankets Pakistani City**\
 `Residents of Lahore are suffering from the toxic haze that has pushed the city’s Air Quality Index to off-the-chart levels by U.S. standards.`\
 https://nytimes.com/video/world/asia/100000009813321/pakistan-lahore-pollution-smog.html
-
-**Leeds' away-day struggles are a growing concern**\
-`Daniel Farke's men have now won just two of seven Championship games on the road this season - their record needs to improve`\
-https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/
 

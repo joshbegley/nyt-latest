@@ -1,3 +1,7 @@
+**Canada Shuts TikTok’s Offices Over National Security Risks**\
+`The order, which will allow people to still use the app, cited concerns about TikTok’s owner, the Chinese tech giant ByteDance.`\
+https://nytimes.com/2024/11/07/business/canada-tiktok.html
+
 **Two Empty Nesters Flew to the City With $600,000 for an East Side Studio**\
 `With their daughter in college on Long Island, an Atlanta couple looked for a modest second home in Manhattan so they could visit more often. Here’s what they found.`\
 https://nytimes.com/interactive/2024/11/07/realestate/east-side-studio-apartment-sale.html
