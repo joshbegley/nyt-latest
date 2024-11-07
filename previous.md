@@ -1,3 +1,27 @@
+**Washington Post Employees Ordered Back to Office 5 Days a Week**\
+`All employees at The Post will be expected to return to the office by June 2. Managers must be back in the office full time by Feb. 3.`\
+https://nytimes.com/2024/11/07/business/media/washington-post-return-to-office.html
+
+**Elwood Edwards, Voice of AOL’s ‘You’ve Got Mail’ Alert, Dies at 74**\
+`He was also behind the company’s “Welcome,” “File’s done” and “Goodbye” messages.`\
+https://nytimes.com/2024/11/07/technology/elwood-edwards-aol-dead.html
+
+**Lee Carsley: I’ve only spoken with Tuchel by text**\
+`Lee Carsley has revealed that his only communication with incoming England head coach Thomas Tuchel has been a brief exchange of messages, rather than a phone call.`\
+https://nytimes.com/athletic/5906974/2024/11/07/thomas-tuchel-england-manager-carsley/
+
+**Photographing the Newsroom on Election Night**\
+`Simbarashe Cha and Sara Krulwich, two New York Times photographers, documented Tuesday evening in the newsroom.`\
+https://nytimes.com/2024/11/07/insider/photographing-times-newsroom-election-night.html
+
+**Mets owner Steve Cohen sets meeting with top free agent Juan Soto: Sources**\
+`Soto, 26, is expected to command a multiyear deal worth more than $600 million.`\
+https://nytimes.com/athletic/5907214/2024/11/07/juan-soto-meeting-mets-steve-cohen/
+
+**A Nervous World Braces Itself for Trump II**\
+`Leaders have given up trying to predict what the next president will do.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/global-reaction-trump-leaders
+
 **Democrats Play the Blame Game**\
 `Also, another interest rate cut. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/11/07/briefing/democrats-trump-election.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5906532/2024/11/07/sf-giants-juan-soto-free-agent-p
 **Submit your Red Wings questions for Max Bultman's mailbag**\
 `Drop your questions here, and Max Bultman may answer them in an upcoming Red Wings mailbag. `\
 https://nytimes.com/athletic/5906147/2024/11/07/red-wings-mailbag-questions-max-bultman/
-
-**The Briefing: Man Utd 2 PAOK 0 - Amad proves his worth as European hoodoo ends**\
-`The major talking points from Thursday's Europa League clash at Old Trafford`\
-https://nytimes.com/athletic/5900491/2024/11/07/man-utd-paok-result-analysis/
-
-**Voters Send Mixed Message on Crime and Law Enforcement**\
-`Targeting crime was a central part of the Trump campaign’s message, but some left-leaning prosecutors and measures survived a Republican wave on Election Day.`\
-https://nytimes.com/2024/11/07/us/prosecutors-law-enforcement-measures-voters.html
-
-**Thompson: Stephen Curry and the Warriors prove their viability in a big test vs. Celtics**\
-`In their toughest game so far this season, the new-look Warriors showed their plan is workable with a rousing win in Boston.`\
-https://nytimes.com/athletic/5907032/2024/11/07/stephen-curry-warriors-celtics-viability/
-
-**A Door Is Unlocked, and 43 Monkeys Make a Bid for Freedom**\
-`Dozens of rhesus macaques escaped a research facility in South Carolina. They’re still on the lam.`\
-https://nytimes.com/2024/11/07/science/escaped-monkeys-south-carolina.html
-
-**Bronny James heading to G League's South Bay Lakers**\
-`The Los Angeles Lakers assigned the the No. 55 pick in the 2024 NBA Draft, and the 20-year-old son of LeBron James, to the South Bay Lakers.`\
-https://nytimes.com/athletic/5888933/2024/11/07/bronny-james-lakers-g-league/
-
-**‘Alan Cumming’s Paradise Homes’ Is a Cheeky and Fabulous Distraction**\
-`Need a healthy does of escapism right about now? Look no further than this series on BritBox.`\
-https://nytimes.com/2024/11/07/arts/television/alan-cummings-paradise-homes-britbox.html
 
