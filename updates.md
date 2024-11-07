@@ -1,3 +1,7 @@
+**Trump’s Win Is Likely to Prolong Gaza Talks Uncertainty**\
+`Any serious advancement on a cease-fire will likely have to wait for Mr. Trump to reach office in January, analysts said.`\
+https://nytimes.com/2024/11/07/world/middleeast/trump-israel-gaza-ceasefire-talks.html
+
 **Nissan Cuts 9,000 Jobs and Slashes C.E.O.’s Pay in Half**\
 `The Japanese automaker is carving out its global operations as it struggles with a steep drop in sales.`\
 https://nytimes.com/2024/11/07/business/nissan-job-cuts.html
