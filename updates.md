@@ -1,3 +1,11 @@
+**A Spike in Demand, and Fees, for Lobbyists With Ties to Trump**\
+`Corporations and foreign governments are offering to pay steep prices for help dealing with the unpredictable president-elect.`\
+https://nytimes.com/2024/11/07/us/politics/trump-lobbyists.html
+
+**Devastated Democrats Play the Blame Game, and Stare at a Dark Future**\
+`In interviews, lawmakers and strategists tried to explain Kamala Harris’s defeat, pointing to misinformation, the Gaza war, a toxic Democratic brand and the party’s approach to transgender issues.`\
+https://nytimes.com/2024/11/07/us/politics/democrats-kamala-harris.html
+
 **Florida sticking with Billy Napier as football coach**\
 `Napier’s future has been questioned since going 11-14 in his first two seasons and had an elite recruiting class crumbled before signing day`\
 https://nytimes.com/athletic/5906242/2024/11/07/billy-napier-florida-football-coach/
