@@ -6,7 +6,7 @@ https://nytimes.com/2024/11/07/business/fed-mortgage-rates.html
 `Americans aren’t joyful. They’re angry. And they’ve been telling us that all along.`\
 https://nytimes.com/2024/11/07/opinion/trump-harris-joy-anger.html
 
-**Rice expected play against Chelsea despite toe injury**\
+**Rice expected to play against Chelsea despite toe injury**\
 `Declan Rice is expected to play for Arsenal against Chelsea on Sunday, despite managing a toe injury.`\
 https://nytimes.com/athletic/5902704/2024/11/07/arsenals-declan-rice-injury-chelsea/
 
