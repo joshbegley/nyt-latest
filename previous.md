@@ -1,3 +1,11 @@
+**Democrats Play the Blame Game**\
+`Also, another interest rate cut. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/11/07/briefing/democrats-trump-election.html
+
+**Here’s what Trump’s victory could mean for New York City.**\
+`By Emma Fitzsimmons and Luis Ferré-Sadurní`\
+https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/heres-what-trumps-victory-could-mean-for-new-york-city
+
 **San Francisco Giants free-agent profile: Juan Soto, OF**\
 `Signing Soto is a risky idea, even with his talent and youth. But it’s just so wacky it might work.`\
 https://nytimes.com/athletic/5906532/2024/11/07/sf-giants-juan-soto-free-agent-profile/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5888933/2024/11/07/bronny-james-lakers-g-league/
 **‘Alan Cumming’s Paradise Homes’ Is a Cheeky and Fabulous Distraction**\
 `Need a healthy does of escapism right about now? Look no further than this series on BritBox.`\
 https://nytimes.com/2024/11/07/arts/television/alan-cummings-paradise-homes-britbox.html
-
-**‘Total Nightmare’ as Wildfire Burns Through Southern California Homes**\
-`The fast-moving Mountain fire forced thousands to evacuate and destroyed neighborhoods in the hilly communities of Ventura County. “We barely made it out,” one resident said.`\
-https://nytimes.com/2024/11/07/us/mountain-fire-ventura-california.html
-
-**Powell Says He Will Not Resign if Trump Asks**\
-`President-elect Donald J. Trump appointed Jerome H. Powell, the chairman of the Federal Reserve, in 2018.`\
-https://nytimes.com/video/business/economy/100000009814742/powell-fed-chair.html
 

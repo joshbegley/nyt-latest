@@ -1,3 +1,11 @@
+**Democrats Play the Blame Game**\
+`Also, another interest rate cut. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/11/07/briefing/democrats-trump-election.html
+
+**Here’s what Trump’s victory could mean for New York City.**\
+`By Emma Fitzsimmons and Luis Ferré-Sadurní`\
+https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/heres-what-trumps-victory-could-mean-for-new-york-city
+
 **San Francisco Giants free-agent profile: Juan Soto, OF**\
 `Signing Soto is a risky idea, even with his talent and youth. But it’s just so wacky it might work.`\
 https://nytimes.com/athletic/5906532/2024/11/07/sf-giants-juan-soto-free-agent-profile/
