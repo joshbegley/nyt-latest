@@ -1,3 +1,11 @@
+**Philadelphia Union part ways with head coach Curtin after 10 years at MLS club**\
+`The Union underperformed in the 2024 season and missed the playoffs for the first time since 2017.`\
+https://nytimes.com/athletic/5906223/2024/11/07/jim-curtin-philadelphia-union-leaves/
+
+**Edwards: The pros and cons of the Knicks' up-and-down start**\
+`It's far too early to make sweeping conclusions, but these trends (good and bad) are worth watching.`\
+https://nytimes.com/athletic/5904970/2024/11/07/new-york-knicks-start-nba-season-hart/
+
 **Cowboys' Dak Prescott partially tears hamstring tendon off bone**\
 `Prescott exited the Cowboys' Week 9 game against the Atlanta Falcons at the end of the third quarter.`\
 https://nytimes.com/athletic/5904778/2024/11/07/dak-prescott-hamstring-injury-cowboys/
