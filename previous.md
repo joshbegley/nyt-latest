@@ -22,11 +22,11 @@ https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonym
 `Residents of Lahore are suffering from the toxic haze that has pushed the city’s Air Quality Index to off-the-chart levels by U.S. standards.`\
 https://nytimes.com/video/world/asia/100000009813321/pakistan-lahore-pollution-smog.html
 
-**Leeds United's away-day struggles are a growing concern**\
+**Leeds' away-day struggles are a growing concern**\
 `Leeds have won just two of their seven Championship away games so far this season - their record needs to improve`\
 https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/
 
-**The Briefing: Red Star 2 Barcelona 5 - Another Yamal milestone, 10 Cubarsi stitches, and 99 goals for Lewandowski**\
+**Red Star 2 Barcelona 5: Another Yamal milestone, 10 Cubarsi stitches, and 99 goals for Lewandowski**\
 `Breaking down another impressive night for Hansi Flick's side in this season's Champions League`\
 https://nytimes.com/athletic/5905037/2024/11/07/red-star-barcelona-champions-league-result-analysis/
 

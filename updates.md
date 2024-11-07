@@ -1,3 +1,11 @@
+**Leeds' away-day struggles are a growing concern**\
+`Leeds have won just two of their seven Championship away games so far this season - their record needs to improve`\
+https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/
+
+**Red Star 2 Barcelona 5: Another Yamal milestone, 10 Cubarsi stitches, and 99 goals for Lewandowski**\
+`Breaking down another impressive night for Hansi Flick's side in this season's Champions League`\
+https://nytimes.com/athletic/5905037/2024/11/07/red-star-barcelona-champions-league-result-analysis/
+
 **Kevin Durant, among the NBA's best closers, is boosting the Suns when it matters most**\
 `He’s been an elite shot-maker for years. It’s just that everyone keeps waiting for Durant to slow down. That day is not yet here.`\
 https://nytimes.com/athletic/5905468/2024/11/07/kevin-durant-boosts-suns-over-heat/
