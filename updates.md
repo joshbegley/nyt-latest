@@ -1,3 +1,7 @@
+**Gillen Defeats D’Esposito in New York, Flipping House Seat for Democrats**\
+`Laura Gillen unseated Representative Anthony D’Esposito, a first-term Republican, on Long Island. Her campaign focused on abortion and the border.`\
+https://nytimes.com/2024/11/07/nyregion/ny-house-laura-gillen-desposito.html
+
 **Disappointment Looks Different This Time Around**\
 `In 2016, social media was awash in calls to protest the day after Donald J. Trump’s victory. On Wednesday, many said it seemed like business as usual.`\
 https://nytimes.com/2024/11/07/style/social-media-trump-reaction.html
