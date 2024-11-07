@@ -1,3 +1,7 @@
+**Claude Giroux Q&A: Travis Green, arm-wrestling the Eagles and will he play next season?**\
+`Giroux sat down with The Athletic to discuss the Senators' identity, offseason training and if Gritty is the league's most annoying mascot.`\
+https://nytimes.com/athletic/5901992/2024/11/07/senators-claude-giroux-contract-flyers-eagles/
+
 **Israeli Strikes Killed at Least 40 in Eastern Lebanon, Health Ministry Says**\
 `The deadliest strikes hit the Bekaa Valley, which is home to the historic city of Baalbek.`\
 https://nytimes.com/2024/11/07/world/israel-lebanon-hezbollah-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/movies/christmas-eve-in-millers-point-review.html
 **Oilers kicking themselves again after big mistakes in both ends**\
 `Edmonton entered the third period with a lead Wednesday but watched it disappear with penalties, miscues and a feeble offense.`\
 https://nytimes.com/athletic/5905452/2024/11/07/edmonton-oilers-penalty-goal-vegas/
-
-**As BYU-Utah returns, it's the Cougars who are playing for an undefeated season**\
-`Kalani Sitake and several of his staffers have experience with an undefeated season thanks to time spent at rival Utah. `\
-https://nytimes.com/athletic/5903688/2024/11/07/byu-football-utah-rivalry-undefeated/
 
