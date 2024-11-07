@@ -1,3 +1,7 @@
+**Trump Will Return to Power With a More Expansive Agenda**\
+`The president-elect could reshape government and may dramatically transform foreign and domestic policy in a second term.`\
+https://nytimes.com/2024/11/06/us/politics/trump-president-agenda.html
+
 **'Road To The NHL Winter Classic' TV series to return ahead of Blackhawks vs. Blues at Wrigley Field**\
 `The first of four episodes will debut on Dec. 4 on TNT in the United States and Dec. 5 on Sportsnet in Canada.`\
 https://nytimes.com/athletic/5904368/2024/11/06/road-to-the-nhl-winter-classic-tnt-hbo-max/
