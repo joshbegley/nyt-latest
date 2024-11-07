@@ -1,3 +1,7 @@
+**Trump’s Win Is Likely to Prolong Gaza Talks Uncertainty**\
+`Any serious advancement on a cease-fire will likely have to wait for Mr. Trump to reach office in January, analysts said.`\
+https://nytimes.com/2024/11/07/world/middleeast/trump-israel-gaza-ceasefire-talks.html
+
 **Nissan Cuts 9,000 Jobs and Slashes C.E.O.’s Pay in Half**\
 `The Japanese automaker is carving out its global operations as it struggles with a steep drop in sales.`\
 https://nytimes.com/2024/11/07/business/nissan-job-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/nyregion/trump-nj-votes-election.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/07/crosswords/spelling-bee-forum.html
-
-**FA opens inquiry into leading Premier League figure to decide 'risk to children or adults within football'**\
-`The man, whom we cannot identify, has previously been investigated by police but has never been charged and denies any wrongdoing.`\
-https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonymous/
 
