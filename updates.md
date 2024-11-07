@@ -1,3 +1,7 @@
+**Mayor of Jackson, Miss., Is Indicted on Federal Corruption Charges**\
+`The mayor and two other local officials pleaded not guilty on Thursday after being accused of taking part in a scheme in which F.B.I. agents posing as real estate developers offered bribes.`\
+https://nytimes.com/2024/11/07/us/jackson-mayor-indicted-federal-corruption.html
+
 **Giuliani Speaks After Missing Court Deadline for $148 Million Payment**\
 `Rudy Giuliani, the former New York City mayor, owes $148 million from a 2021 defamation case, which he called “a political vendetta.”`\
 https://nytimes.com/video/us/politics/100000009814822/giuliani-speaks-after-missing-court-deadline-for-148-million-payment.html
