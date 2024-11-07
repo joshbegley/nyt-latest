@@ -1,3 +1,11 @@
+**For Rent: 4-Bedroom London House. The Owner? Britain’s Prime Minister.**\
+`Keir Starmer has rented out his home in north London since moving to Downing Street, according to newly published official records.`\
+https://nytimes.com/2024/11/07/world/europe/uk-keir-starmer-home-rent.html
+
+**Lions' Branch apologizes for flipping off Packers fans**\
+`"I feel like that was just a heat of the moment for me," Branch said. "And I apologize to everyone that seen that. That won’t happen again."`\
+https://nytimes.com/athletic/5906117/2024/11/07/lions-brian-branch-apology-ejection-packers/
+
 **Inside Edu's Arsenal exit: Shock among staff, autonomy over transfers and what it means for Arteta**\
 `Why the sporting director left, the fallout from the decision, plus what it means for Mikel Arteta's team and January recruitment`\
 https://nytimes.com/athletic/5903783/2024/11/07/edu-arsenal-exit-inside-story/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/business/economy/trump-tariffs-trade-what-to-know
 **Raygun retires from competitive breaking after Olympic backlash**\
 `Gunn said she originally planned to keep competing but changed her mind after the "upsetting" experience.`\
 https://nytimes.com/athletic/5905910/2024/11/07/raygun-retires-breaking-olympics/
-
-**College football Week 11 odds, picks ATS: Ole Miss-Georgia, Alabama-LSU and more**\
-`Two big SEC games, Alabama at LSU and Georgia at Ole Miss, highlight college football's Week 11 slate. Both road teams are small favorites.`\
-https://nytimes.com/athletic/5901100/2024/11/07/college-football-week-11-odds-picks-ole-miss-georgia-alabama-lsu/
-
-**Six reasons why the Ducks are the NHL's worst offensive team**\
-`Twelve games in, the Ducks have only scored 25 goals. What's at the root of their offensive woes?`\
-https://nytimes.com/athletic/5905582/2024/11/07/anaheim-ducks-nhl-offense-loss-analysis/
 
