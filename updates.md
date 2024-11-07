@@ -1,3 +1,7 @@
+**Kevin Durant, among the NBA's best closers, is boosting the Suns when it matters most**\
+`He’s been an elite shot-maker for years. It’s just that everyone keeps waiting for Durant to slow down. That day is not yet here.`\
+https://nytimes.com/athletic/5905468/2024/11/07/kevin-durant-boosts-suns-over-heat/
+
 **A Silver Lining for New York Democrats**\
 `Proposition 1, meant to expand equal rights and codify the protections of Roe v. Wade in the State Constitution, passed easily despite a Republican campaign against trans rights.`\
 https://nytimes.com/2024/11/07/nyregion/ny-prop-1-abortion-rights.html
