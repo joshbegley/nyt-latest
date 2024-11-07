@@ -1,3 +1,11 @@
+**For Many Arab Americans in Dearborn, Trump Made the Case for Their Votes**\
+`After supporting Joe Biden in 2020, the majority-Arab American city outside Detroit delivered an unlikely win for Donald Trump, who promised to bring peace to the Middle East.`\
+https://nytimes.com/2024/11/06/us/dearborn-michigan-trump-arab-voters.html
+
+**A Dark Suit and a Weary Smile**\
+`In her concession speech, Kamala Harris offered an image for a long fight.`\
+https://nytimes.com/2024/11/06/style/kamala-harris-concession-speech.html
+
 **Trump Will Return to Power With a More Expansive Agenda**\
 `The president-elect could reshape government and may dramatically transform foreign and domestic policy in a second term.`\
 https://nytimes.com/2024/11/06/us/politics/trump-president-agenda.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/06/us/politics/montgomery-county-pa-absentee-ballots
 **Trump Weighs Personnel Choices and Fields Congratulatory Calls**\
 `On his first day as president-elect after his victory in the 2024 campaign, Donald Trump took calls from Vice President Kamala Harris and President Biden as his transition planning ramped up.`\
 https://nytimes.com/2024/11/06/us/politics/trump-transition.html
-
-**How Trump Connected With So Many Americans**\
-`Donald Trump’s campaign was a blend of comedy, fury, optimism, darkness and cynicism. “He gets us,” some voters concluded.`\
-https://nytimes.com/2024/11/06/us/elections/donald-trump-supporters.html
-
-**Resist or Retreat? Democratic Voters Are Torn About Whether to Keep Fighting.**\
-`Many who became activists during the first Trump administration are questioning if they can summon the strength to do it all over again.`\
-https://nytimes.com/2024/11/06/us/democrats-election-activism.html
 
