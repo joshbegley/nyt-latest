@@ -1,3 +1,9 @@
+**When Is a Cult Brand No Longer a Cult Brand? When LVMH Comes Knocking.**\
+`The Swedish brand Our Legacy finally gets investment from the big guys.`\
+https://nytimes.com/2024/11/07/style/when-is-a-cult-brand-no-longer-a-cult-brand-when-lvmh-comes-knocking.html
+
+**Trump’s economic plans could worsen inflation, economists say.**\
+
 **Man Shoots Another Man Before Fleeing Into Manhattan Subway Station**\
 `The gunman was still at large, the police said, and the victim was in stable condition. The episode left New Yorkers sheltering on subway cars and led to delays across the transit system.`\
 https://nytimes.com/2024/11/07/nyregion/nyc-shooting-subway-delays.html
