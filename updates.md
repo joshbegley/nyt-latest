@@ -1,3 +1,7 @@
+**Nissan Cuts 9,000 Jobs and Slashes C.E.O.’s Pay in Half**\
+`The Japanese automaker is carving out its global operations as it struggles with a steep drop in sales.`\
+https://nytimes.com/2024/11/07/business/nissan-job-cuts.html
+
 **Canada Shuts TikTok’s Offices Over National Security Risks**\
 `The order, which will allow people to still use the app, cited concerns about TikTok’s owner, the Chinese tech giant ByteDance.`\
 https://nytimes.com/2024/11/07/business/canada-tiktok.html

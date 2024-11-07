@@ -1,3 +1,7 @@
+**Nissan Cuts 9,000 Jobs and Slashes C.E.O.’s Pay in Half**\
+`The Japanese automaker is carving out its global operations as it struggles with a steep drop in sales.`\
+https://nytimes.com/2024/11/07/business/nissan-job-cuts.html
+
 **Canada Shuts TikTok’s Offices Over National Security Risks**\
 `The order, which will allow people to still use the app, cited concerns about TikTok’s owner, the Chinese tech giant ByteDance.`\
 https://nytimes.com/2024/11/07/business/canada-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/crosswords/spelling-bee-forum.html
 **FA opens inquiry into leading Premier League figure to decide 'risk to children or adults within football'**\
 `The man, whom we cannot identify, has previously been investigated by police but has never been charged and denies any wrongdoing.`\
 https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonymous/
-
-**Thick Smog Blankets Pakistani City**\
-`Residents of Lahore are suffering from the toxic haze that has pushed the city’s Air Quality Index to off-the-chart levels by U.S. standards.`\
-https://nytimes.com/video/world/asia/100000009813321/pakistan-lahore-pollution-smog.html
 
