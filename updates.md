@@ -1,3 +1,7 @@
+**Voters Poised to Reject Private School Vouchers in Three States**\
+`The results were part of a wave of ballot measure outcomes that teachers’ unions had sought. Nevertheless, private-school choice is growing nationwide.`\
+https://nytimes.com/2024/11/07/us/private-school-funding-election-rejection.html
+
 **College football best bets Week 11: Rebels overvalued, Wolverines undervalued**\
 `Austin Mock picks four bets to start our college football betting slate this week.`\
 https://nytimes.com/athletic/5900210/2024/11/07/college-football-best-bets-week-11-georgia-ole-miss-michigan/
