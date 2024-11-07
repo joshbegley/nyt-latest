@@ -1,3 +1,15 @@
+**At Salon Art + Design, Nature and Beauty Come Center Stage**\
+`More than 50 galleries tease the lines between function and decoration, in a year when the fair has a far-reaching mission: to give more artists a chance to be seen.`\
+https://nytimes.com/2024/11/07/arts/design/salon-art-design-fair-park-avenue-armory.html
+
+**NASCAR driver fined for absence at media event says he traveled home to vote**\
+`Majeski was docked money for “Failure to complete media obligations,” which falls under NASCAR’s member conduct code.`\
+https://nytimes.com/athletic/5906483/2024/11/07/nascar-driver-fined-voting-majeski/
+
+**No-Rules Friendsgiving**\
+`A November dinner with friends is for cooking whatever you want, like roasted brussels sprouts Caesar or a caramelized onion tachin.`\
+https://nytimes.com/2024/11/07/dining/no-rules-friendsgiving.html
+
 **Gillen Defeats D’Esposito in New York, Flipping House Seat for Democrats**\
 `Laura Gillen unseated Representative Anthony D’Esposito, a first-term Republican, on Long Island. Her campaign focused on abortion and the border.`\
 https://nytimes.com/2024/11/07/nyregion/ny-house-laura-gillen-desposito.html
