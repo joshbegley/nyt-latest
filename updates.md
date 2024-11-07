@@ -1,3 +1,7 @@
+**Jacky Rosen fights to hang on to her Senate seat in Nevada, with ballots still trickling in.**\
+`By Benjamin Oreskes and Danny Hakim`\
+https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jacky-rosen-fights-to-hang-on-to-her-senate-seat-in-nevada-with-ballots-still-trickling-in
+
 **Her absentee ballot never arrived. So she flew from Chicago to Pennsylvania to vote.**\
 `A University of Chicago student tried for weeks to get an absentee that never came, so she spent hundreds on a last-minute plane ticket. She was not alone.`\
 https://nytimes.com/2024/11/06/us/politics/montgomery-county-pa-absentee-ballots.html
