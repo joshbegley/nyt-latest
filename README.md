@@ -1,3 +1,11 @@
+**San Francisco Giants free-agent profile: Juan Soto, OF**\
+`Signing Soto is a risky idea, even with his talent and youth. But it’s just so wacky it might work.`\
+https://nytimes.com/athletic/5906532/2024/11/07/sf-giants-juan-soto-free-agent-profile/
+
+**Submit your Red Wings questions for Max Bultman's mailbag**\
+`Drop your questions here, and Max Bultman may answer them in an upcoming Red Wings mailbag. `\
+https://nytimes.com/athletic/5906147/2024/11/07/red-wings-mailbag-questions-max-bultman/
+
 **The Briefing: Man Utd 2 PAOK 0 - Amad proves his worth as European hoodoo ends**\
 `The major talking points from Thursday's Europa League clash at Old Trafford`\
 https://nytimes.com/athletic/5900491/2024/11/07/man-utd-paok-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/us/mountain-fire-ventura-california.html
 **Powell Says He Will Not Resign if Trump Asks**\
 `President-elect Donald J. Trump appointed Jerome H. Powell, the chairman of the Federal Reserve, in 2018.`\
 https://nytimes.com/video/business/economy/100000009814742/powell-fed-chair.html
-
-**Swansea lead investors agree to sell stake in Championship club**\
-`Swansea City’s lead investors Steve Kaplan and Jason Levien have agreed to sell their stake in the Championship club, subject to English Football League (EFL) ratification.`\
-https://nytimes.com/athletic/5906617/2024/11/07/swansea-city-sale-kaplan-levien/
-
-**College football Week 11 model-projected point differentials, totals for every game**\
-`Austin Mock's projection model takes a look at every FBS vs. FBS game in college football's Week 11.`\
-https://nytimes.com/athletic/5906848/2024/11/07/college-football-week-11-model-projections/
 
