@@ -1,3 +1,7 @@
+**Man United's Onana hopes Van Nistelrooy stays at club**\
+`Andre Onana hopes that Manchester United interim coach Ruud van Nistelrooy remains at the club after Ruben Amorim&#8217;s permanent arrival next week.`\
+https://nytimes.com/athletic/5907294/2024/11/07/ruud-van-nistelrooy-manchester-united-future/
+
 **Trump Names Susie Wiles as His White House Chief of Staff**\
 `The president-elect turned to his top political aide to fill a key post managing the White House when he returns to office.`\
 https://nytimes.com/2024/11/07/us/politics/susie-wiles-trump-white-house-chief-of-staff.html
