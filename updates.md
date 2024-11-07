@@ -1,3 +1,7 @@
+**The Second Pandemic Election**\
+`Covid cost Trump the presidency in 2020, and it may have cleared the path for his return.`\
+https://nytimes.com/2024/11/06/us/politics/trump-election-covid-2020.html
+
 **Jacky Rosen fights to hang on to her Senate seat in Nevada, with ballots still trickling in.**\
 `By Benjamin Oreskes and Danny Hakim`\
 https://nytimes.com/live/2024/11/06/us/trump-election-harris-news/jacky-rosen-fights-to-hang-on-to-her-senate-seat-in-nevada-with-ballots-still-trickling-in
