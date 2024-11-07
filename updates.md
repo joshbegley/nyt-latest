@@ -1,3 +1,15 @@
+**Bresnahan Beats Cartwright in Pennsylvania, Handing G.O.P. a Key Seat**\
+`Rob Bresnahan Jr., a Republican and business executive, ousted the Democratic incumbent who had kept the Scranton-based district blue for more than a decade.`\
+https://nytimes.com/2024/11/07/us/elections/pennsylvania-house-cartwright-bresnahan.html
+
+**Mackenzie Beats Wild in Pennsylvania, Scoring a Key Pickup for House G.O.P.**\
+`Ryan Mackenzie, a 2020 election denier who aligned himself with President-elect Donald J. Trump during his congressional campaign, flipped a competitive seat in the Lehigh Valley.`\
+https://nytimes.com/2024/11/07/us/elections/pennsylvania-house-wild-mackenzie.html
+
+**'Buffalo Joe' Andreessen gets his rookie card wish fulfilled**\
+`An avid collector, Andreessen dreamed of getting his own rookie card but knew it was far from guaranteed `\
+https://nytimes.com/athletic/5905615/2024/11/07/buffalo-bills-joe-andreessen-rookie-card-panini/
+
 **Bruce Arena returns to management with San Jose Earthquakes**\
 `Bruce Arena has returned to management after being appointed as the new head coach and sporting director of MLS side San Jose Earthquakes ahead of the 2025 season.`\
 https://nytimes.com/athletic/5906722/2024/11/07/bruce-arena-san-jose-earthquakes-coach-new/

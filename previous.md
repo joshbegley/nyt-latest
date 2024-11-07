@@ -1,3 +1,11 @@
+**Bresnahan Beats Cartwright in Pennsylvania, Handing G.O.P. a Key Seat**\
+`Rob Bresnahan Jr., a Republican and business executive, ousted the Democratic incumbent who had kept the Scranton-based district blue for more than a decade.`\
+https://nytimes.com/2024/11/07/us/elections/pennsylvania-house-cartwright-bresnahan.html
+
+**Mackenzie Beats Wild in Pennsylvania, Scoring a Key Pickup for House G.O.P.**\
+`Ryan Mackenzie, a 2020 election denier who aligned himself with President-elect Donald J. Trump during his congressional campaign, flipped a competitive seat in the Lehigh Valley.`\
+https://nytimes.com/2024/11/07/us/elections/pennsylvania-house-wild-mackenzie.html
+
 **Bruce Arena returns to management with San Jose Earthquakes**\
 `Bruce Arena has returned to management after being appointed as the new head coach and sporting director of MLS side San Jose Earthquakes ahead of the 2025 season.`\
 https://nytimes.com/athletic/5906722/2024/11/07/bruce-arena-san-jose-earthquakes-coach-new/
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/5900639/2024/11/07/ben-herbstreit-dog-dies-college-
 https://nytimes.com/2024/11/07/us/politics/trump-aca-obamacare.html
 
 **'Buffalo Joe' Andreessen gets his rookie card wish fulfilled**\
-`An avid collector, Andreesssen dreamed of getting his own rookie card but knew it was far from guaranteed `\
+`An avid collector, Andreessen dreamed of getting his own rookie card but knew it was far from guaranteed `\
 https://nytimes.com/athletic/5905615/2024/11/07/buffalo-bills-joe-andreessen-rookie-card-panini/
 
 **Biden Promises Americans an Orderly Transition of Power to Trump**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5906598/2024/11/07/nfl-best-bets-week-10-dolphins-b
 **Voters Poised to Reject Private School Vouchers in Three States**\
 `The results were part of a wave of ballot measure outcomes that teachers’ unions had sought. Nevertheless, private-school choice is growing nationwide.`\
 https://nytimes.com/2024/11/07/us/private-school-funding-election-rejection.html
-
-**College football best bets Week 11: Rebels overvalued, Wolverines undervalued**\
-`Austin Mock picks four bets to start our college football betting slate this week.`\
-https://nytimes.com/athletic/5900210/2024/11/07/college-football-best-bets-week-11-georgia-ole-miss-michigan/
-
-**Lower Rates, Rising Yields: What to Make of the Bond Market Right Now**\
-`Yields on government bonds — which underpin all kinds of borrowing in the economy — are rising. But the Fed is cutting rates. What gives?`\
-https://nytimes.com/2024/11/07/business/bond-market-trump.html
 
