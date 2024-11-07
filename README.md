@@ -1,3 +1,7 @@
+**The Wall Street Leaders Who Could Play a Role in Trump’s New Administration**\
+`Lobbyists are trying to connect executives with the Trump transition team, and some familiar names are in the mix for top jobs.`\
+https://nytimes.com/2024/11/07/business/dealbook/cohn-warsh-trump-cabinet.html
+
 **Dozens of Israeli Strikes Hit the Beirut Area and Eastern Lebanon**\
 `The airstrikes caused damage in Beirut’s southern suburbs and in the eastern city of Baalbek in the Bekaa region, where the Israeli military said it was targeting Hezbollah positions.`\
 https://nytimes.com/video/world/middleeast/100000009813433/dozens-of-israeli-strikes-hit-the-beirut-area-and-eastern-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5905130/2024/11/07/michael-jordan-nascar-23xi-tyler
 **The Clippers don't regret saying goodbye to Paul George, and no to the Warriors**\
 `Conventional wisdom says you don't let a star leave for nothing. But for the Clippers, nothing seemed better than something.`\
 https://nytimes.com/athletic/5905671/2024/11/07/clippers-paul-george-sixers-warriors-trade/
-
-**JJ Redick rips Lakers' effort as loss to Grizzlies closes their 1-4 road trip**\
-`Missing two frontcourt starters, the Lakers had little response in Memphis. `\
-https://nytimes.com/athletic/5904449/2024/11/07/lakers-jj-redick-grizzlies-loss/
 
