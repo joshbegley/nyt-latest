@@ -1,3 +1,7 @@
+**The Wall Street Leaders Who Could Play a Role in Trump’s New Administration**\
+`Lobbyists are trying to connect executives with the Trump transition team, and some familiar names are in the mix for top jobs.`\
+https://nytimes.com/2024/11/07/business/dealbook/cohn-warsh-trump-cabinet.html
+
 **Dozens of Israeli Strikes Hit the Beirut Area and Eastern Lebanon**\
 `The airstrikes caused damage in Beirut’s southern suburbs and in the eastern city of Baalbek in the Bekaa region, where the Israeli military said it was targeting Hezbollah positions.`\
 https://nytimes.com/video/world/middleeast/100000009813433/dozens-of-israeli-strikes-hit-the-beirut-area-and-eastern-lebanon.html
