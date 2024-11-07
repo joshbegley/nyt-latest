@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5904342/2024/11/07/premier-league-fa-inquiry-anonym
 https://nytimes.com/video/world/asia/100000009813321/pakistan-lahore-pollution-smog.html
 
 **Leeds' away-day struggles are a growing concern**\
-`Leeds have won just two of their seven Championship away games this season - their record needs to improve`\
+`Daniel Farke's men have now won just two of seven Championship games on the road this season - their record needs to improve`\
 https://nytimes.com/athletic/5902858/2024/11/07/millwall-leeds-united-defeat-away/
 
 **Red Star 2 Barcelona 5: Another Yamal milestone, 10 Cubarsi stitches, and 99 goals for Lewandowski**\
