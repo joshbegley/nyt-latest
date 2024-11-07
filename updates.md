@@ -1,3 +1,7 @@
+**Trump’s ‘Drill, Baby, Drill’ Cuts Two Ways for Oil Companies**\
+`The president-elect has promised to make it easier to build energy infrastructure and secure drilling leases. But higher production could hurt prices and profits.`\
+https://nytimes.com/2024/11/07/business/energy-environment/trump-oil-gas.html
+
 **The Bounce: Why the Warriors can win another NBA title**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5905767/2024/11/07/stephen-curry-warriors-clippers-paul-george-76ers-nba-the-bounce/
