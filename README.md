@@ -1,7 +1,3 @@
-**How much restraint should the Maple Leafs show with Auston Matthews?**\
-`The Leafs should think bigger picture right now with their best player.`\
-https://nytimes.com/athletic/5906634/2024/11/07/maple-leafs-auston-matthews-injury-2/
-
 **Jim Hoagland, Distinguished Journalist on World Affairs, Dies at 84**\
 `A two-time Pulitzer Prize winner, he was a reporter, editor and columnist for The Washington Post, renowned for his deeply sourced dispatches.`\
 https://nytimes.com/2024/11/07/business/media/jim-hoagland-dead.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5906665/2024/11/07/cardinals-tv-diamond-sports-stre
 **Kirk Herbstreit's dog Ben, beloved for crashing CFB, NFL broadcasts, dies at 10**\
 `Ben, who first joined Herbstreit on set of “College GameDay” in November 2021, was previously diagnosed with leukemia and lymphoma.`\
 https://nytimes.com/athletic/5900639/2024/11/07/ben-herbstreit-dog-dies-college-football/
+
+**Will Trump Have a New Opening to Repeal Obamacare?**\
+`Even without congressional action, a second Trump administration will likely support major changes to Medicaid and the Affordable Care Act’s marketplaces, affecting millions of Americans.`\
+https://nytimes.com/2024/11/07/us/politics/trump-aca-obamacare.html
 
