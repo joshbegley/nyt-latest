@@ -1,3 +1,7 @@
+**Her absentee ballot never arrived. So she flew from Chicago to Pennsylvania to vote.**\
+`A University of Chicago student tried for weeks to get an absentee that never came, so she spent hundreds on a last-minute plane ticket. She was not alone.`\
+https://nytimes.com/2024/11/06/us/politics/montgomery-county-pa-absentee-ballots.html
+
 **Trump Weighs Personnel Choices and Fields Congratulatory Calls**\
 `On his first day as president-elect after his victory in the 2024 campaign, Donald Trump took calls from Vice President Kamala Harris and President Biden as his transition planning ramped up.`\
 https://nytimes.com/2024/11/06/us/politics/trump-transition.html
