@@ -1,3 +1,7 @@
+**Several Feet of Snow Are Forecast in New Mexico and Colorado**\
+`A slow-moving winter storm was expected to drop up to three feet of snow in parts of the two states through Saturday, causing perilous road conditions and power outages.`\
+https://nytimes.com/2024/11/07/weather/snow-storm-new-mexico-colorado.html
+
 **Lloris reveals Tottenham players' concerns over Amazon documentary**\
 `Hugo Lloris has revealed the concerns Tottenham Hotspur players had with the club&#8217;s decision to allow an all-access documentary to follow them during the 2019-20 season.`\
 https://nytimes.com/athletic/5905657/2024/11/07/tottenham-amazon-documentary-hugo-lloris/
