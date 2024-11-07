@@ -1,3 +1,7 @@
+**Dodger Details, GM meetings edition: Betts in the infield, Ohtani's surgery and more**\
+`The Betts move exacerbates the Dodgers' outfield situation. Plus, the Dodgers expect Ohtani to be part of the Opening Day lineup.`\
+https://nytimes.com/athletic/5904954/2024/11/06/dodgers-mookie-betts-infield-shohei-ohtani-surgery/
+
 **For Many Arab Americans in Dearborn, Trump Made the Case for Their Votes**\
 `After supporting Joe Biden in 2020, the majority-Arab American city outside Detroit delivered an unlikely win for Donald Trump, who promised to bring peace to the Middle East.`\
 https://nytimes.com/2024/11/06/us/dearborn-michigan-trump-arab-voters.html
