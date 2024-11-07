@@ -1,3 +1,11 @@
+**Philadelphia Union part ways with head coach Curtin after 10 years at MLS club**\
+`The Union underperformed in the 2024 season and missed the playoffs for the first time since 2017.`\
+https://nytimes.com/athletic/5906223/2024/11/07/jim-curtin-philadelphia-union-leaves/
+
+**Edwards: The pros and cons of the Knicks' up-and-down start**\
+`It's far too early to make sweeping conclusions, but these trends (good and bad) are worth watching.`\
+https://nytimes.com/athletic/5904970/2024/11/07/new-york-knicks-start-nba-season-hart/
+
 **Cowboys' Dak Prescott partially tears hamstring tendon off bone**\
 `Prescott exited the Cowboys' Week 9 game against the Atlanta Falcons at the end of the third quarter.`\
 https://nytimes.com/athletic/5904778/2024/11/07/dak-prescott-hamstring-injury-cowboys/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5904763/2024/11/07/pwhl-jersey-release-ranking/
 **One City’s Secret to Happiness: The Annual Burning of a 50-Foot Effigy**\
 `Every year, Santa Fe incinerates a giant puppet of Zozobra — a ritual meant to purge anxiety and promote a reset.`\
 https://nytimes.com/2024/11/07/magazine/santa-fe-zozobra-burning.html
-
-**Trump Is On Track to Win the Popular Vote**\
-`The projection was a further sign of the scale of Mr. Trump’s victory. In his first successful White House run in 2016, he received fewer votes nationally than Hillary Clinton.`\
-https://nytimes.com/2024/11/07/us/politics/trump-popular-vote-election-2024.html
-
-**What Is COP29? Here’s What to Know About Global Climate Talks Next Week.**\
-`Diplomats and leaders from around the world are gathering for annual climate negotiations. Here’s what they’re all about and what Donald Trump’s victory means for the meeting.`\
-https://nytimes.com/2024/11/07/climate/cop29-baku-azerbaijan.html
 
