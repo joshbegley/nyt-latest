@@ -1,3 +1,7 @@
+**Word of the Day: pollinator**\
+`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/07/learning/word-of-the-day-pollinator.html
+
 **A perfect 'robbery': How Diego Simeone masterminded yet another smash-and-grab win**\
 `Atletico Madrid produced an almost perfectly-controlled performance to pile more pressure on the French champions`\
 https://nytimes.com/athletic/5904876/2024/11/07/paris-saint-germain-atletico-madrid-analysis-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5834883/2024/11/07/nhl-standings-playoffs-projectio
 **Creighton's Ryan Kalkbrenner scores 49 points in season-opening victory**\
 `Kalkbrenner's 49 points is the most by any Division I player on 90 percent shooting in a game in the last 40 years.`\
 https://nytimes.com/athletic/5905344/2024/11/07/creighton-ryan-kalkbrenner-49-points/
-
-**FPL: The best differential captaincy picks for the rest of the month**\
-`From Dominic Solanke to Alexander Isak to Antoine Semenyo, Holly Shand picks out the best differential captains for the next three gameweeks`\
-https://nytimes.com/athletic/5897301/2024/11/07/fantasy-premier-league-captains-differentials/
 
