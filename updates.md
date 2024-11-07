@@ -1,3 +1,7 @@
+**Prince William Says Past Year Was Probably the Hardest ‘in My Life’**\
+`While in South Africa for the Earthshot Prize, the prince told reporters that the cancer diagnoses of his wife, Catherine, and his father, King Charles, had been “brutal.”`\
+https://nytimes.com/2024/11/07/world/europe/prince-william-princess-kate-king-charles.html
+
 **Giuliani’s Delay in Handing Over Prized Assets Makes Judge Livid**\
 `A federal judge threatened Rudolph W. Giuliani with a contempt charge after a missed deadline to hand over prized possessions, including Yankees swag.`\
 https://nytimes.com/2024/11/07/nyregion/rudy-giuliani-court-hearing.html
