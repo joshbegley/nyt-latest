@@ -1,3 +1,7 @@
+**Trump Agenda Faces a Fiscal Reckoning**\
+`Advisers to President-elect Donald J. Trump and Republicans on Capitol Hill are already looking at ways to scale back some of his more expensive ideas.`\
+https://nytimes.com/2024/11/07/us/politics/trump-fiscal-republicans.html
+
 **A Spike in Demand, and Fees, for Lobbyists With Ties to Trump**\
 `Corporations and foreign governments are offering to pay steep prices for help dealing with the unpredictable president-elect.`\
 https://nytimes.com/2024/11/07/us/politics/trump-lobbyists.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/dining/this-sesame-salmon-bowl-feels-like-a-treat
 **The former advertising man who got the Olympics sold on flag football**\
 `Brett Gosper, NFL's head in Europe & Asia-Pacific, talks to The Athletic about how he helped bring flag football to the Olympics`\
 https://nytimes.com/athletic/5903062/2024/11/07/brett-gosper-flag-football/
-
-**Trump’s ‘Drill, Baby, Drill’ Cuts Two Ways for Oil Companies**\
-`The president-elect has promised to make it easier to build energy infrastructure and secure drilling leases. But higher production could hurt prices and profits.`\
-https://nytimes.com/2024/11/07/business/energy-environment/trump-oil-gas.html
 

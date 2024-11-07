@@ -1,3 +1,7 @@
+**Trump Agenda Faces a Fiscal Reckoning**\
+`Advisers to President-elect Donald J. Trump and Republicans on Capitol Hill are already looking at ways to scale back some of his more expensive ideas.`\
+https://nytimes.com/2024/11/07/us/politics/trump-fiscal-republicans.html
+
 **A Spike in Demand, and Fees, for Lobbyists With Ties to Trump**\
 `Corporations and foreign governments are offering to pay steep prices for help dealing with the unpredictable president-elect.`\
 https://nytimes.com/2024/11/07/us/politics/trump-lobbyists.html
