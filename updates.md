@@ -1,3 +1,11 @@
+**‘Alan Cumming’s Paradise Homes’ Is a Cheeky and Fabulous Distraction**\
+`Need a healthy does of escapism right about now? Look no further than this series on BritBox.`\
+https://nytimes.com/2024/11/07/arts/television/alan-cummings-paradise-homes-britbox.html
+
+**‘Total Nightmare’ as Wildfire Burns Through Southern California Homes**\
+`The fast-moving Mountain fire forced thousands to evacuate and destroyed neighborhoods in the hilly communities of Ventura County. “We barely made it out,” one resident said.`\
+https://nytimes.com/2024/11/07/us/mountain-fire-ventura-california.html
+
 **Powell Says He Will Not Resign if Trump Asks**\
 `President-elect Donald J. Trump appointed Jerome H. Powell, the chairman of the Federal Reserve, in 2018.`\
 https://nytimes.com/video/business/economy/100000009814742/powell-fed-chair.html
