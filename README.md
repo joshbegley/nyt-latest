@@ -1,3 +1,19 @@
+**Lloris reveals Tottenham players' concerns over Amazon documentary**\
+`Hugo Lloris has revealed the concerns Tottenham Hotspur players had with the club&#8217;s decision to allow an all-access documentary to follow them during the 2019-20 season.`\
+https://nytimes.com/athletic/5905657/2024/11/07/tottenham-amazon-documentary-hugo-lloris/
+
+**Bears predictions at NFL midseason: Chicago will pull off another upset of the Lions**\
+`Our Bears second-half predictions include items on Cole Kmet, the Packers, Rome Odunze and Jaylon Johnson.`\
+https://nytimes.com/athletic/5902296/2024/11/07/bears-predictions-2024-nfl-midseason/
+
+**Jalen Green is reaching a new level, and he could take the Rockets with him**\
+`"He’s just grown up," says Rockets teammate Fred VanVleet. "We’re watching him turn a corner and grow into a man."`\
+https://nytimes.com/athletic/5844068/2024/11/07/jalen-green-houston-rockets-exclusive/
+
+**Chiefs predictions at NFL midseason: Kansas City will host Ravens in AFC title game rematch**\
+`Our Chiefs second-half predictions include items on Travis Kelce, DeAndre Hopkins and Trent McDuffie. `\
+https://nytimes.com/athletic/5902632/2024/11/07/chiefs-predictions-2024-nfl-midseason/
+
 **Vikings predictions at NFL midseason: How about 11 wins — and a playoff victory?**\
 `What can we expect from the Vikings in the season's second half? Can Sam Darnold stay hot? Is Jonathan Greenard a sneaky DPOY candidate?`\
 https://nytimes.com/athletic/5904395/2024/11/07/vikings-predictions-nfl-midseason-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5905342/2024/11/07/red-wings-stock-watch-12-games/
 **After rough debut with Chicago, Cubs expect Isaac Paredes to bounce back**\
 `Said Jed Hoyer: “He has a track record. He’s a really good hitter and covers the zone. That’s what I expect.”`\
 https://nytimes.com/athletic/5904820/2024/11/07/cubs-isaac-paredes-struggles-bounce-back/
-
-**Andrew Whitworth on the Bengals' past, present and future: 'This is it'**\
-`Cincinnati's longtime captain talks about his history with the team, contract situations and Thursday's pivotal matchup vs. the Ravens.`\
-https://nytimes.com/athletic/5905039/2024/11/07/andrew-whitworth-bengals-ravens-thursday-night-football/
-
-**NFL strength of schedule takeaways: Which teams have the toughest remaining games?**\
-`The road to the playoffs looks tough for teams like the Steelers and 49ers. `\
-https://nytimes.com/athletic/5903722/2024/11/07/nfl-toughest-schedules-halfway-point-2024-season/
-
-**Canada Could Use a New Approach to Dealing With Trump This Time**\
-`While Canadian lawmakers are publicly sanguine about the incoming U.S. administration, several experts say that Canada faces significant challenges.`\
-https://nytimes.com/2024/11/07/world/canada/canada-could-use-a-new-approach-to-dealing-with-trump-this-time.html
-
-**Democrats Begin the Blame Game, and What Happens to Trump’s Legal Woes**\
-`Plus, pickleball’s Super Bowl.`\
-https://nytimes.com/2024/11/07/podcasts/democrats-trump-legal-cases.html
 
