@@ -1,3 +1,15 @@
+**Shola Shoretire on leaving Man United: 'I just had to know my worth as a player'**\
+`The former United young player of the year is back in Manchester with Greek side PAOK`\
+https://nytimes.com/athletic/5902781/2024/11/07/manchester-united-shola-shoretire-interview/
+
+**Newcastle's 'brothers in harm': how their team play is being influenced by fouls**\
+`Bruno Guimaraes and Joelinton are at different ends of the spectrum when it comes to fouls, but remain key to Newcastle's approach`\
+https://nytimes.com/athletic/5902673/2024/11/07/newcastle-guimaraes-joelinton-gordon-fouls/
+
+**Why Taylor's appointment to a Nottingham Forest game has caused controversy**\
+`There has been a lot of anger on social media at Anthony Taylor being put in charge of Forest's game against Newcastle`\
+https://nytimes.com/athletic/5904002/2024/11/07/nottingham-forest-anthony-taylor/
+
 **Viktor Gyokeres: Is European football's most in-form striker finally ready for the Premier League?**\
 `The Swede was unable to break through at Brighton but his sensational displays for Sporting have got Europe's elite on high-alert `\
 https://nytimes.com/athletic/5903347/2024/11/07/viktor-gyokeres-analysis-profile/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/07/briefing/trump-election-special-briefing.html
 **Behind the scenes in the Champions League with Amazon Prime**\
 `Amazon Prime Video have joined the group of broadcasters for the Champions League in the UK this season`\
 https://nytimes.com/athletic/5903989/2024/11/07/champions-league-liverpool-bayer-leverkusen-amazon-prime/
-
-**Hundreds Hospitalized in Pakistan’s Largest Province as Pollution Worsens**\
-`The authorities in Punjab, home to 130 million people, have told half the province’s work force to stay at home in areas with severe air pollution.`\
-https://nytimes.com/2024/11/07/world/pakistan-air-pollution-punjab.html
-
-**Raso on being offered 'faith and freedom' at Tottenham: 'I wanted to go where I felt valued'**\
-`The Tottenham and Australia forward discusses leaving Real Madrid and explains why she felt north London was the right place for her`\
-https://nytimes.com/athletic/5904139/2024/11/07/hayley-raso-tottenham-manchester-city-real-madrid/
-
-**Momentum still eludes Blackhawks in lifeless loss to Patrick Kane, Red Wings: Observations**\
-`The next step for the Blackhawks is consistency, and it's one they're struggling with.`\
-https://nytimes.com/athletic/5905350/2024/11/07/blackhawks-momentum-streaks-red-wings/
 
