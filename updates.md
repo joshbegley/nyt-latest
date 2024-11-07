@@ -1,3 +1,15 @@
+**Typhoon Yinxing Approaches the Philippines as a Category 4 Storm**\
+`More than 160,000 people have been evacuated to prepare for the tropical cyclone. It is forecast to make landfall by Friday morning.`\
+https://nytimes.com/2024/11/07/world/asia/philipines-typhoon-yinxing.html
+
+**Warriors (7-1) make a statement with focus, discipline in road win against Celtics**\
+`This win felt validating for Golden State veterans and decision-makers, a sign that this season's hot start had some substance to it. `\
+https://nytimes.com/athletic/5904751/2024/11/07/warriors-road-win-celtics/
+
+**Late Night Processes Donald Trump’s Re-Election**\
+`“Trump returning to the White House is a huge historic comeback for someone who literally never went away,” Jimmy Fallon said.`\
+https://nytimes.com/2024/11/07/arts/television/late-night-trump-election.html
+
 **The four stages of Aston Villa's most concerning performance yet under Unai Emery**\
 `Breaking down the reasons behind Aston Villa's first defeat in this season's Champions League`\
 https://nytimes.com/athletic/5902660/2024/11/07/aston-villa-brugge-champions-league-concerns/
