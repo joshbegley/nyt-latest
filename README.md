@@ -1,3 +1,7 @@
+**Man Shoots Another Man Before Fleeing Into Manhattan Subway Station**\
+`The gunman was still at large, the police said, and the victim was in stable condition. The episode left New Yorkers sheltering on subway cars and led to delays across the transit system.`\
+https://nytimes.com/2024/11/07/nyregion/nyc-shooting-subway-delays.html
+
 **WTA Tour Finals: Gauff, Sabalenka, Zheng and Krejcikova make semifinals, Swiatek out**\
 `The season-ending event pits the best players on the WTA Tour against each other in Riyadh, Saudi Arabia.`\
 https://nytimes.com/athletic/5882196/2024/11/07/wta-finals-draw-results-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/business/interest-rates-consumers-savings-loans.h
 **Live Updates: Fed Expected to Cut Rates**\
 `A quarter-point cut is widely expected, but a combination of strong economic data and President-elect Donald J. Trump’s return to the White House muddles the outlook on what comes next.`\
 https://nytimes.com/live/2024/11/07/business/fed-interest-rates
-
-**The Best Place to Find ‘Somebody’s Son’? Try ‘A Black Love Party.’**\
-`After the success of MeAndSomebodySon, her Instagram page dedicated to Black romantic relationships, Zemirah Moffett is taking the party offline.`\
-https://nytimes.com/2024/11/07/style/black-love-party-meandsomebodyson.html
 
