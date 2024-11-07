@@ -1,3 +1,11 @@
+**‘Alan Cumming’s Paradise Homes’ Is a Cheeky and Fabulous Distraction**\
+`Need a healthy does of escapism right about now? Look no further than this series on BritBox.`\
+https://nytimes.com/2024/11/07/arts/television/alan-cummings-paradise-homes-britbox.html
+
+**‘Total Nightmare’ as Wildfire Burns Through Southern California Homes**\
+`The fast-moving Mountain fire forced thousands to evacuate and destroyed neighborhoods in the hilly communities of Ventura County. “We barely made it out,” one resident said.`\
+https://nytimes.com/2024/11/07/us/mountain-fire-ventura-california.html
+
 **Powell Says He Will Not Resign if Trump Asks**\
 `President-elect Donald J. Trump appointed Jerome H. Powell, the chairman of the Federal Reserve, in 2018.`\
 https://nytimes.com/video/business/economy/100000009814742/powell-fed-chair.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/07/briefing/donald-trump-climate-australia.html
 **Fed Chair Says He Won’t Leave if Trump Asks**\
 `Jerome H. Powell, the chairman of the central bank, has been a frequent target of the president-elect, who appointed him in 2018.`\
 https://nytimes.com/2024/11/07/us/politics/jerome-powell-trump-fed.html
-
-**A Union Square Date Night for Inter-Borough Relationships**\
-`Find love in a hopeless place (where the subway lines intersect).`\
-https://nytimes.com/2024/11/07/dining/a-union-square-date-night-for-inter-borough-relationships.html
-
-**A Week of Hope and Disappointment at Howard University**\
-`Times Opinion sent student photographers to capture the mood on campus.`\
-https://nytimes.com/live/2024/11/05/opinion/thepoint/kamala-defeat-howard-university
 
