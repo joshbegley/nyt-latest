@@ -1,7 +1,3 @@
-**What Is COP29? Here’s What to Know About Next Week’s Global Climate Talks.**\
-`Diplomats and leaders from around the world are gathering for annual climate negotiations. Here’s what they’re all about and what Donald Trump’s victory means for the meeting.`\
-https://nytimes.com/2024/11/07/climate/cop29-baku-azerbaijan.html
-
 **Higher Prices, Trade Wars and More: What to Know About Trump’s Tariffs**\
 `The president-elect says that tariff is “the most beautiful word in the dictionary.” You may be hearing it a lot.`\
 https://nytimes.com/2024/11/07/business/economy/trump-tariffs-trade-what-to-know.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5903482/2024/11/07/nfl-draft-watch-2025-malaki-star
 **Hall, Harwood-Bellis handed first England call-ups in Carsley's final squad**\
 `Lee Carsley has named his final England squad as interim manager for the upcoming Nations League games against Republic of Ireland and Greece.`\
 https://nytimes.com/athletic/5900008/2024/11/07/england-squad-hall-harwood-bellis/
+
+**What Kamala Harris’s Loss Means To Black Women**\
+`Vice President Kamala Harris ran a 107-day campaign under extraordinarily rare circumstances after President Biden dropped out of the race.`\
+https://nytimes.com/video/us/elections/100000009812803/kamala-harris-concession-speech.html
 
