@@ -1,3 +1,7 @@
+**Her absentee ballot never arrived. So she flew from Chicago to Pennsylvania to vote.**\
+`A University of Chicago student tried for weeks to get an absentee that never came, so she spent hundreds on a last-minute plane ticket. She was not alone.`\
+https://nytimes.com/2024/11/06/us/politics/montgomery-county-pa-absentee-ballots.html
+
 **Trump Weighs Personnel Choices and Fields Congratulatory Calls**\
 `On his first day as president-elect after his victory in the 2024 campaign, Donald Trump took calls from Vice President Kamala Harris and President Biden as his transition planning ramped up.`\
 https://nytimes.com/2024/11/06/us/politics/trump-transition.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904514/2024/11/06/joe-douglas-jets-gm-state-of-jet
 **Plea Deals for Accused 9/11 Plotters Are Valid, Judge Rules**\
 `A military judge said he would move forward with accepting guilty pleas from three defendants in exchange for life sentences. The agreements had been rescinded by the defense secretary.`\
 https://nytimes.com/2024/11/06/us/politics/gitmo-plea-agreement.html
-
-**Joseph Rykwert, Architectural Historian Who Challenged Modernism, Dies at 98**\
-`A “gloriously erudite” critic, he denounced the embrace of blandly functional architecture in efforts to rebuild after World War II.`\
-https://nytimes.com/2024/11/06/arts/design/joseph-rykwert-dead.html
 

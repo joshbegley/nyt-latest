@@ -1,3 +1,7 @@
+**Trump Weighs Personnel Choices and Fields Congratulatory Calls**\
+`On his first day as president-elect after his victory in the 2024 campaign, Donald Trump took calls from Vice President Kamala Harris and President Biden as his transition planning ramped up.`\
+https://nytimes.com/2024/11/06/us/politics/trump-transition.html
+
 **How Trump Connected With So Many Americans**\
 `Donald Trump’s campaign was a blend of comedy, fury, optimism, darkness and cynicism. “He gets us,” some voters concluded.`\
 https://nytimes.com/2024/11/06/us/elections/donald-trump-supporters.html
