@@ -1,3 +1,15 @@
+**Chile’s Stolen Children Deserve Justice**\
+`There could have been as many 50,000 babies trafficked out of Chile between the 1950s and the 1990s.`\
+https://nytimes.com/2024/11/07/opinion/chile-adoption-scandal.html
+
+**Spanish Floods Have Opened the Door to Populism**\
+`Rage can be a dangerous political tool.`\
+https://nytimes.com/2024/11/07/opinion/spain-floods-valencia-populism.html
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/07/nhl-standings-playoffs-projections-odds/
+
 **Creighton's Ryan Kalkbrenner scores 49 points in season-opening victory**\
 `Kalkbrenner's 49 points is the most by any Division I player on 90 percent shooting in a game in the last 40 years.`\
 https://nytimes.com/athletic/5905344/2024/11/07/creighton-ryan-kalkbrenner-49-points/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5904002/2024/11/07/nottingham-forest-anthony-taylor
 **Viktor Gyokeres: Is European football's most in-form striker finally ready for the Premier League?**\
 `The Swede was unable to break through at Brighton but his sensational displays for Sporting have got Europe's elite on high-alert `\
 https://nytimes.com/athletic/5903347/2024/11/07/viktor-gyokeres-analysis-profile/
-
-**Tuchel is wasting precious time by not taking charge of England this month**\
-`New head coach should be finding out about his players and instilling his ideas now rather than waiting until January`\
-https://nytimes.com/athletic/5900266/2024/11/07/thomas-tuchel-england-fixtures/
-
-**The Business of Football: Todd Boehly's Chelsea stake, Infantino and Trump reunited**\
-`What Matt Slater is hearing about the business of football this week....`\
-https://nytimes.com/athletic/5902955/2024/11/07/chelsea-boehly-eghbali-trump-infantino/
-
-**Decoding Salah: The riddles, relationships and insatiable desire for success**\
-`Simon Hughes, author of a new book about the Liverpool and Egypt forward, reveals what he learnt in writing it`\
-https://nytimes.com/athletic/5899885/2024/11/07/mo-salah-liverpool-decoding/
 
