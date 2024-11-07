@@ -1,3 +1,7 @@
+**Man Who Illegally Accessed Ginsburg’s Medical Records Gets 2 Years in Prison**\
+`The man, a former health care worker, was convicted in July on two charges stemming from the privacy breach and his attempts to cover it up.`\
+https://nytimes.com/2024/11/07/us/ruth-bader-ginsburg-medical-records.html
+
 **Prince William Says Past Year Was Probably the Hardest ‘in My Life’**\
 `While in South Africa for the Earthshot Prize, the prince told reporters that the cancer diagnoses of his wife, Catherine, and his father, King Charles, had been “brutal.”`\
 https://nytimes.com/2024/11/07/world/europe/prince-william-princess-kate-king-charles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/us/politics/susie-wiles-trump-white-house-chief-o
 **Hector Herrera spitting at referee played a part in Houston Dynamo exit, club say**\
 `Mexican international Hector Herrera will likely be remembered as a transformational player for the Houston Dynamo, having led them to the playoffs and an Open Cup title after nearly a decade of irrelevance.`\
 https://nytimes.com/athletic/5907248/2024/11/07/hector-herrera-spitting-referee-houston-dynamo/
-
-**Everton's McNeil a doubt for West Ham match with knee injury**\
-`Everton winger Dwight McNeil is a doubt for Saturday&#8217;s Premier League match against West Ham United due to a knee injury.`\
-https://nytimes.com/athletic/5906523/2024/11/07/dwight-mcneil-injury-everton/
 

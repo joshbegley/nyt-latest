@@ -1,3 +1,7 @@
+**Man Who Illegally Accessed Ginsburg’s Medical Records Gets 2 Years in Prison**\
+`The man, a former health care worker, was convicted in July on two charges stemming from the privacy breach and his attempts to cover it up.`\
+https://nytimes.com/2024/11/07/us/ruth-bader-ginsburg-medical-records.html
+
 **Prince William Says Past Year Was Probably the Hardest ‘in My Life’**\
 `While in South Africa for the Earthshot Prize, the prince told reporters that the cancer diagnoses of his wife, Catherine, and his father, King Charles, had been “brutal.”`\
 https://nytimes.com/2024/11/07/world/europe/prince-william-princess-kate-king-charles.html
