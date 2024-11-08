@@ -1,3 +1,19 @@
+**Jota's injury return expected in December**\
+`Arne Slot doesn&#8217;t expect to have Liverpool attacker Diogo Jota back available until December.`\
+https://nytimes.com/athletic/5908084/2024/11/08/diogo-jota-injury-return/
+
+**Playoff stakes for Alabama and LSU in Death Valley: 3 keys and a prediction**\
+`Can Alabama keep its composure on the road with a live tiger watching? Which quarterback will shine brightest?`\
+https://nytimes.com/athletic/5907787/2024/11/08/alabama-crimson-tide-lsu-tigers-college-football-playoff/
+
+**All-Free-Agent Team: Closers and corner outfielders aplenty, harder to fill up the middle**\
+`Here's our 26-man roster made entirely of free agents, illustrating the ample options for a needy rotation, bullpen or outfield corner.`\
+https://nytimes.com/athletic/5901520/2024/11/08/free-agent-options-2025-positions/
+
+**Court Vision: 7 thoughts from opening week, from Kalkbrenner's 49 points to what's next**\
+`It's difficult to see a future at Villanova for Kyle Neptune, who went 35-33 his first two seasons after replacing Jay Wright.`\
+https://nytimes.com/athletic/5907405/2024/11/08/college-basketball-villanova-creighton-schedule-top-games/
+
 **Lamar Jackson's heroics lift Ravens over Bengals, but the defense has to start doing its part**\
 `Baltimore's pass defense, which ranks last in the NFL, surrendered 428 yards to Joe Burrow, Ja'Marr Chase and company. `\
 https://nytimes.com/athletic/5908004/2024/11/08/lamar-jackson-ravens-defense-bengals/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5907068/2024/11/08/steelers-nfl-midseason-predictio
 **Eight Browns midseason predictions: Dorian Thompson-Robinson takes over as starting QB**\
 `What will be Cleveland's record when the season comes to an end, and which young players will cement themselves as long-term roster pieces?`\
 https://nytimes.com/athletic/5906843/2024/11/08/browns-predictions-nfl-midseason-2024/
-
-**MLB GM meetings: Diamondbacks and Pirates attracting early trade interest for arms**\
-`Could Devin Williams, the Brewers' All-Star closer, be on the move? What are Kris Bryant and the Rockies doing differently this winter?`\
-https://nytimes.com/athletic/5907567/2024/11/08/diamondbacks-pirates-trade-pitching/
-
-**Falcons' improved pass protection 'the reason we are where we are': 5 factors**\
-`The Falcons are sixth in the NFL in sack percentage allowed. On Sunday, they face the banged-up Saints, who have an interim head coach.`\
-https://nytimes.com/athletic/5906435/2024/11/08/falcons-pass-protection-kirk-cousins/
-
-**USC recruiting reset: Where do the Trojans stand with the Class of 2025?**\
-`The Trojans' class ranks No. 9 nationally a month before signing day but lacks elite talent in a few critical areas. `\
-https://nytimes.com/athletic/5906645/2024/11/08/usc-recruiting-football-2025-class/
-
-**Raptors rookie Jonathan Mogbo is getting a crash course in the NBA — and surviving**\
-`Jonathan Mogbo needs to develop a 3-point shot, but he has more pressing concerns to deal with first. `\
-https://nytimes.com/athletic/5907299/2024/11/08/raptors-rookie-jonathan-mogbo-nba/
 
