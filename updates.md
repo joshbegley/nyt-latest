@@ -1,3 +1,15 @@
+**Stock Market Rallies to Its Best Week in Over a Year**\
+`President-elect Donald Trump’s win, coupled with a quarter-point interest rate cut from the Federal Reserve, pushed major stock indexes into record territory.`\
+https://nytimes.com/2024/11/08/business/stock-market-trump-fed.html
+
+**Wildfires Spread Across New Jersey and Connecticut: ‘No End in Sight’**\
+`Firefighters in the two states have battled hundreds of blazes during an unseasonably dry fall.`\
+https://nytimes.com/2024/11/08/nyregion/wildfires-drought-new-jersey-connecticut.html
+
+**Maple Leafs place Auston Matthews on IR: Why it's no cause for panic**\
+`Overall, in 57 missed career games, the Maple Leafs boast a surprising 36-19-2 record without Matthews.`\
+https://nytimes.com/athletic/5909326/2024/11/08/auston-matthews-injury-ir-leafs/
+
 **Judge denies teams' request in NASCAR antitrust case**\
 `The request is part of a larger antitrust lawsuit two teams have filed against NASCAR and CEO Jim France.`\
 https://nytimes.com/athletic/5909153/2024/11/08/nascar-antitrust-lawsuit-michael-jordan/
