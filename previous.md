@@ -1,3 +1,7 @@
+**Jake DeBrusk is heating up, and have the Canucks found their top gear? 3 takeaways**\
+`Vancouver’s 4-2 win against Los Angeles will halt any early concerns about the club’s performance against the league’s top half.`\
+https://nytimes.com/athletic/5907719/2024/11/08/canucks-win-kings-jake-debrusk/
+
 **Wild continue success on road, overcome pair of overturned goals: 3 takeaways**\
 `The Wild finally pulled away from the Sharks for a 5-2 victory, which featured good nights from the special teams.`\
 https://nytimes.com/athletic/5907825/2024/11/08/wild-kirill-kaprizov-sharks-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906260/2024/11/08/next-weeks-waiver-wire-ray-davis
 **From 'closers' to 'human shields' - how Slot uses substitutes at Liverpool**\
 `Dutchman's use of replacements is carefully choreographed - and it is having a marked effect`\
 https://nytimes.com/athletic/5901781/2024/11/08/arne-slot-liverpool-substitutes/
-
-**Cooper has instilled resilience but Leicester need to become more than comeback kings**\
-`Leicester are nearly halfway to their total of points gained from losing positions from their disastrous relegation season of 2022-23`\
-https://nytimes.com/athletic/5905918/2024/11/08/steve-cooper-has-instilled-resilience-but-leicester-need-to-become-more-than-comeback-kings/
 

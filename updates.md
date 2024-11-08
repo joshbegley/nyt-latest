@@ -1,3 +1,7 @@
+**Jake DeBrusk is heating up, and have the Canucks found their top gear? 3 takeaways**\
+`Vancouver’s 4-2 win against Los Angeles will halt any early concerns about the club’s performance against the league’s top half.`\
+https://nytimes.com/athletic/5907719/2024/11/08/canucks-win-kings-jake-debrusk/
+
 **Violent Attacks in Amsterdam Tied to Antisemitism**\
 `The police said 57 people were arrested amid violence tied to a soccer game between Dutch and Israeli teams. Israel said it was sending planes to rescue its citizens.`\
 https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
