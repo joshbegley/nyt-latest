@@ -1,3 +1,7 @@
+**How DeAndre Hopkins gives the Chiefs offense another Travis Kelce**\
+`The newly acquired veteran receiver quickly has found chemistry with Patrick Mahomes and is adept at finding holes in defenses.`\
+https://nytimes.com/athletic/5905387/2024/11/08/deandre-hopkins-chiefs-offense/
+
 **Kellen Moore returns to Dallas, still a PowerPoint wiz and meticulous whisperer of offenses**\
 `Kellen Moore developed his skills as a coach while he was still in the NFL as a player.`\
 https://nytimes.com/athletic/5903409/2024/11/08/kellen-moore-eagles-offense-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908004/2024/11/08/lamar-jackson-ravens-defense-ben
 **Cooper Rush, CeeDee Lamb connection is one of few bright spots for Cowboys**\
 `The veteran backup quarterback has a 5-1 record as a starter for Dallas but his one loss came against Sunday's foe, the Philadelphia Eagles.`\
 https://nytimes.com/athletic/5907269/2024/11/08/cowboys-cooper-rush-ceedee-lamb-connection/
-
-**'Never in a million years': How the Bengals wasted latest Burrow-Chase masterpiece**\
-`Joe Burrow and Ja'Marr Chase were on fire and had the Ravens on the ropes, but a series of failures knocked Cincinnati to 4-6.`\
-https://nytimes.com/athletic/5908034/2024/11/08/bengals-ravens-jamarr-chase-joe-burrow/
 
