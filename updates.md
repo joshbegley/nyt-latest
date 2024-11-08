@@ -1,3 +1,11 @@
+**NBA closing academies in Mexico, Australia**\
+`The NBA will keep its academy in Senegal open as the league has made Africa a larger part of its global focus.`\
+https://nytimes.com/athletic/5909527/2024/11/08/nba-closing-academies-mexico-australia/
+
+**49ers RB Christian McCaffrey expected to make season debut Sunday**\
+`“I feel good now,” McCaffrey said after Friday’s practice. “No, I wouldn’t be out here if it was still bothering me. I feel great.”`\
+https://nytimes.com/athletic/5909586/2024/11/08/49ers-christian-mccaffrey-season-debut/
+
 **Voters in Red and Blue States Repudiate Lenient Drug Policies**\
 `Californians voted for tougher penalties for dealers. Florida, North Dakota and South Dakota rejected proposals to legalize marijuana. Massachusetts denied a measure allowing possession of psychedelics.`\
 https://nytimes.com/2024/11/08/health/drugs-election-cannabis-penalties.html
