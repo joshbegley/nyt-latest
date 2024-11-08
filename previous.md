@@ -1,3 +1,11 @@
+**7 Deep Cuts From the 2025 Grammy Nominations**\
+`Big names dominate the biggest categories, but lovely discoveries await on the ballot too. Hear tracks from Arooj Aftab, Sierra Ferrell, Tems, Idles and more.`\
+https://nytimes.com/2024/11/08/arts/music/amplifier-newsletter-grammy-nominations.html
+
+**Texans designate WR Nico Collins to return to practice**\
+`Houston now has 21 days to activate Collins to the active roster.`\
+https://nytimes.com/athletic/5908933/2024/11/08/texans-nico-collins-practice-return/
+
 **Grammys Snubs and Surprises: Charli XCX Levels Up, Beyoncé Spreads Out and the Beatles Persist**\
 `A look at the nominations’ unexpected and intriguing story lines, including the role of an absent Drake, the validation of André 3000’s flute music and overlooked gems.`\
 https://nytimes.com/2024/11/08/arts/music/grammy-awards-snubs-surprises.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/world/europe/academy-soccer-americans-england.htm
 **Pelosi Laments Biden’s Late Exit and the Lack of an ‘Open Primary’**\
 `“Had the president gotten out sooner, there may have been other candidates in the race,” the former House speaker said in an interview with The New York Times, suggesting she had anticipated an “open primary.”`\
 https://nytimes.com/2024/11/08/us/politics/pelosi-harris-biden-open-primary.html
-
-**Read the Special Counsel’s Filing**\
-`Jack Smith, the special counsel, asked a judge to put on hold all filing deadlines in the federal case accusing President-elect Donald J. Trump of plotting to overturn the 2020 election.`\
-https://nytimes.com/interactive/2024/11/08/us/politics/smith-jan-6-filing.html
-
-**Old-School Celebrities Could Not Move the Needle**\
-`Hollywood endorsements, once an essential part of a campaign playbook, may have backfired in this election.`\
-https://nytimes.com/2024/11/08/style/celebrity-endorsements-trump-harris.html
 

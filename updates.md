@@ -1,3 +1,11 @@
+**7 Deep Cuts From the 2025 Grammy Nominations**\
+`Big names dominate the biggest categories, but lovely discoveries await on the ballot too. Hear tracks from Arooj Aftab, Sierra Ferrell, Tems, Idles and more.`\
+https://nytimes.com/2024/11/08/arts/music/amplifier-newsletter-grammy-nominations.html
+
+**Texans designate WR Nico Collins to return to practice**\
+`Houston now has 21 days to activate Collins to the active roster.`\
+https://nytimes.com/athletic/5908933/2024/11/08/texans-nico-collins-practice-return/
+
 **Grammys Snubs and Surprises: Charli XCX Levels Up, Beyoncé Spreads Out and the Beatles Persist**\
 `A look at the nominations’ unexpected and intriguing story lines, including the role of an absent Drake, the validation of André 3000’s flute music and overlooked gems.`\
 https://nytimes.com/2024/11/08/arts/music/grammy-awards-snubs-surprises.html
