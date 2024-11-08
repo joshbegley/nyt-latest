@@ -1,3 +1,15 @@
+**Here’s the latest on the election.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news/heres-the-latest-on-the-election
+
+**Election Live Updates: Control of House Remains Up for Grabs**\
+`President-elect Donald J. Trump and the Republican Party, which has already won a majority in the Senate, are awaiting race calls in California, Arizona and other states that could give them full control of the next Congress.`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news
+
+**Giants anticipate a payroll reduction in 2025: Source**\
+`The potential payroll reduction comes on the heels of a season where the team saw an attendance increase but also a revenue deficit.`\
+https://nytimes.com/athletic/5905307/2024/11/08/sf-giants-payroll-reduction-2025/
+
 **Forget a Soft Landing. The Fed’s Biggest Challenge May Be Trump.**\
 `The chair of the Federal Reserve made clear he would not resign, even under pressure. But pressure from the White House is likely, market watchers say.`\
 https://nytimes.com/2024/11/08/business/dealbook/powell-trump-white-house-pressure.html
