@@ -1,3 +1,15 @@
+**Read the Special Counsel’s Filing**\
+`Jack Smith, the special counsel, asked a judge to put on hold all filing deadlines in the federal case accusing President-elect Donald J. Trump of plotting to overturn the 2020 election.`\
+https://nytimes.com/interactive/2024/11/08/us/politics/smith-jan-6-filing.html
+
+**Old-School Celebrities Could Not Move the Needle**\
+`Hollywood endorsements, once an essential part of a campaign playbook, may have backfired in this election.`\
+https://nytimes.com/2024/11/08/style/celebrity-endorsements-trump-harris.html
+
+**Jonathan Haze, Star of ‘The Little Shop of Horrors,’ Dies at 95**\
+`Best known for his star turn in the cult film about a flesh-eating plant, he was a go-to member of the low-budget auteur Roger Corman’s repertory company.`\
+https://nytimes.com/2024/11/08/movies/jonathan-haze-dead.html
+
 **Fantasy Football Flex Fliers: Add Legette, Spears for Week 10, and Audric Estime for later**\
 `Scott Engel runs through top Week 10 flex options for those who missed out in the early waiver run, including an emerging Carolina rookie.`\
 https://nytimes.com/athletic/5908841/2024/11/08/fantasy-football-week-10-flex-options/
