@@ -1,3 +1,7 @@
+**Palace's Nketiah out of Fulham gam with hamstring injury - Glasner**\
+`Oliver Glasner is facing an injury crisis with Eddie Nketiah the latest Crystal Palace player to be ruled out of action.`\
+https://nytimes.com/athletic/5908485/2024/11/08/eddie-nketiah-injury-update-crystal-palace/
+
 **Fourth-quarter rally had Anthony Edwards, Wolves roaring as Bulls look for answers**\
 `The Bulls hung with the Timberwolves for three quarters, but a 45-point fourth, led by Edwards, decided the game.`\
 https://nytimes.com/athletic/5907903/2024/11/08/anthony-edwards-timberwolves-bulls-nba/
