@@ -1,3 +1,8 @@
+**What to watch in college basketball this weekend: UNC-Kansas and Calipari's first big test**\
+`There are three big college hoops games this weekend: Kansas hosts UNC, Auburn faces Houston and Scott Drew takes on John Calipari.
+`\
+https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-blood-showdown-john-calipari-unc-kansas/
+
 **What It’s Like to Write a New John le Carré Novel**\
 `Nick Harkaway is an accomplished author who also happens to be le Carré’s son. In his latest book, “Karla’s Choice,” he revisits his father’s great spy protagonist, George Smiley.`\
 https://nytimes.com/2024/11/08/books/review/what-its-like-to-write-a-new-john-le-carre-novel.html
