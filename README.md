@@ -1,3 +1,7 @@
+**Trump Put Musk on Phone With Zelensky During Call**\
+`Elon Musk was with Donald Trump at Mar-a-Lago when the president-elect spoke with Ukraine’s leader. It is not clear if they discussed any change in U.S. policy toward Ukraine.`\
+https://nytimes.com/2024/11/08/us/politics/trump-musk-zelensky.html
+
 **Painting by A.I.-Powered Robot Sells for $1.1 Million**\
 `The portrait depicts the British mathematician Alan Turing as the god of artificial intelligence. Its creator is a robot named Ai-Da that resembles a woman with a bob haircut.`\
 https://nytimes.com/2024/11/08/arts/ai-painting-alan-turing-auction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/movies/jonathan-haze-dead.html
 **Fantasy Football Flex Fliers: Add Legette, Spears for Week 10, and Audric Estime for later**\
 `Scott Engel runs through top Week 10 flex options for those who missed out in the early waiver run, including an emerging Carolina rookie.`\
 https://nytimes.com/athletic/5908841/2024/11/08/fantasy-football-week-10-flex-options/
-
-**Iranian Agents Plotted to Kill Trump, U.S. Says in Unsealed Charges**\
-`The allegation came in a complaint that said Masih Alinejad, a Brooklyn activist, had been the target of a second assassination attempt.`\
-https://nytimes.com/2024/11/08/nyregion/iran-trump-assassination-plot.html
 
