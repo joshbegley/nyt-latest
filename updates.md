@@ -1,3 +1,15 @@
+**Did Beyoncé’s Grammy Nods Really Top Michael Jackson’s for ‘Thriller’?**\
+`Not exactly. But in Grammyland, nothing is simple.`\
+https://nytimes.com/2024/11/08/arts/music/grammys-beyonce-cowboy-carter-michael-jackson-thriller.html
+
+**Gauff continues resurgence by beating Sabalenka at WTA Tour Finals to set up Zheng final**\
+`Coco Gauff may be saving the best for last.`\
+https://nytimes.com/athletic/5909184/2024/11/08/wta-tour-finals-gauff-sabalenka-result-analysis/
+
+**Colts' Michael Pittman Jr. ruled out vs. Bills with back injury**\
+`The Colts’ top wideout has only missed five games in his first five NFL seasons.`\
+https://nytimes.com/athletic/5909284/2024/11/08/colts-michael-pittman-out-bills/
+
 **Phillies promote Preston Mattingly to GM; Sam Fuld to move to business side in 2026**\
 `The Phillies promoted Preston Mattingly, their farm director, to general manager Friday afternoon in a front-office shakeup.`\
 https://nytimes.com/athletic/5909272/2024/11/08/phillies-promote-preston-mattingly-sam-fuld/
