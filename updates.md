@@ -1,3 +1,7 @@
+**Commanders' Brian Robinson Jr., Marshon Lattimore ruled out vs. Steelers**\
+`Both Robinson and Lattimore have been ruled out for Sunday's game against the Steelers, the team announced Friday.`\
+https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-marshon-lattimore-out-steelers/
+
 **Shaboozey Has Something New to Toast: 6 Grammy Nominations**\
 `The country singer’s “A Bar Song (Tipsy)” has been omnipresent; now it’s up for song of the year in February.`\
 https://nytimes.com/2024/11/08/arts/music/shaboozey-grammys-a-bar-song.html

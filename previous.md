@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5908844/2024/11/08/james-maddison-england-ange-post
 
 **Commanders' Brian Robinson Jr., Marshon Lattimore ruled out vs. Steelers**\
 `Both Robinson and Lattimore have been ruled out for Sunday's game against the Steelers, the team announced Friday.`\
-https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-marshon-lattimore-ruled-out-steelers/
+https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-marshon-lattimore-out-steelers/
 
 **What Experts Want You to Know About Plan B**\
 `We asked experts how it works, when you should take it, how much it costs and more.`\
