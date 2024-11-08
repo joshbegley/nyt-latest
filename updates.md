@@ -1,3 +1,7 @@
+**Rangers' poor defense in front of Igor Shesterkin, line switches, more: 4 takeaways**\
+`“There’s no excuse for what happened today,” Mika Zibanejad said after the Rangers' 6-1 loss to the Sabres. `\
+https://nytimes.com/athletic/5907775/2024/11/07/rangers-sabres-igor-shesterkin/
+
 **Have the Bruins turned a corner? Three signs of progress**\
 `The Bruins improved to 7-7-1 on the season and their latest win over the Flames might signal traction.`\
 https://nytimes.com/athletic/5907767/2024/11/07/bruins-flames-brad-marchand/

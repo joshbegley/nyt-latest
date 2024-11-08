@@ -1,3 +1,7 @@
+**Rangers' poor defense in front of Igor Shesterkin, line switches, more: 4 takeaways**\
+`“There’s no excuse for what happened today,” Mika Zibanejad said after the Rangers' 6-1 loss to the Sabres. `\
+https://nytimes.com/athletic/5907775/2024/11/07/rangers-sabres-igor-shesterkin/
+
 **Have the Bruins turned a corner? Three signs of progress**\
 `The Bruins improved to 7-7-1 on the season and their latest win over the Flames might signal traction.`\
 https://nytimes.com/athletic/5907767/2024/11/07/bruins-flames-brad-marchand/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/theater/walden-review-emmy-rossum-zoe-winters.htm
 **Read the Judge’s Ruling**\
 `A federal judge in Texas struck down a new Biden administration program that sought to provide a path to U.S. citizenship for hundreds of thousands of undocumented immigrants married to American citizens.`\
 https://nytimes.com/interactive/2024/11/07/us/biden-undocumented-spouses-program.html
-
-**Judge Tosses Out Biden Program for Undocumented Spouses**\
-`The ruling issued by a federal judge in Texas struck down a new initiative aimed at helping undocumented spouses of U.S. citizens stay in the country.`\
-https://nytimes.com/2024/11/07/us/biden-undocumented-spouses-program.html
 
