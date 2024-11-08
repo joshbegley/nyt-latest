@@ -1,3 +1,7 @@
+**Shaw returns to Man Utd training after nine-month club absence**\
+`Luke Shaw has returned to team training as the Manchester United full-back continues his recovery from a calf injury.`\
+https://nytimes.com/athletic/5908209/2024/11/08/luke-shaw-injury-update-manchester-united/
+
 **The Athletic’s Friday football quiz question #29**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5908145/2024/11/08/the-athletics-friday-football-quiz-question-29/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/podcasts/hardfork-trump-musk-tech.html
 **Last N.I.H. Chimps to Move From New Mexico Facility**\
 `The retired research chimpanzees, which had previously been deemed too frail to move, will be relocated to a Louisiana sanctuary.`\
 https://nytimes.com/2024/11/08/science/chimps-alamogordo-haven.html
-
-**Live Q&A: FPL Gameweek 11 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 11 Q&A from 4-5pm UK time `\
-https://nytimes.com/athletic/5899766/2024/11/08/fantasy-premier-league-advice-injury-news-gw11/
 
