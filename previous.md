@@ -1,3 +1,15 @@
+**A Coming-of-Age Novel That Crosses America’s Impossible Divide**\
+`“Us Fools,” by Nora Lange, is a tale of two sisters living through the diseased expanse of the country’s recent history.`\
+https://nytimes.com/2024/11/08/books/review/nora-lange-us-fools.html
+
+**Damian Lillard, Giannis star as Bucks snap losing streak: 'I think we needed it bad'**\
+`Buoyed by Andre Jackson Jr.'s energy in the starting lineup, the Bucks' superstar duo dominated in a win Milwaukee desperately needed.`\
+https://nytimes.com/athletic/5908077/2024/11/08/bucks-damian-lillard-giannis-antetokounmpo-2/
+
+**Fantasy trends and hidden gems: Eyeing the Penguins' and Capitals' top lines**\
+`Pittsburgh is loading all its big guns onto the top line, while Alex Ovechkin's linemates are still widely available.`\
+https://nytimes.com/athletic/5907828/2024/11/08/fantasy-trends-and-hidden-gems-week-7/
+
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/08/nhl-standings-playoffs-projections-odds/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5908528/2024/11/08/gary-oneil-wolves-manager-update
 **Penguins Today: Crosby vs. Ovechkin is a welcome distraction**\
 `Anything to avoid talking about last night's game in Carolina.`\
 https://nytimes.com/athletic/5908470/2024/11/08/penguins-today-sidney-crosby-alex-ovechkin/
-
-**Biden Administration Restricts Development in West to Protect Sage Grouse**\
-`Limits on building energy projects on at least 34.5 million acres could strongly protect the iconic Western bird. But the incoming Trump administration may reverse the rule.`\
-https://nytimes.com/2024/11/08/climate/biden-sage-grouse-drilling-oil-environment.html
-
-**NHL Power Rankings: A new No. 1 plus one reason to be optimistic about each team**\
-`Whether it’s a lethal power play, a breakout season or strong goaltending, there’s reason for positivity across the board.`\
-https://nytimes.com/athletic/5907942/2024/11/08/nhl-power-rankings-jets/
-
-**Tottenham charged by FA over homophobic chants at Manchester United**\
-`The Football Association (FA) has charged Tottenham Hotspur in relation to homophobic chanting during their Premier League game against Manchester United in September.`\
-https://nytimes.com/athletic/5908448/2024/11/08/tottenham-fa-charge-homophobic-chants/
 

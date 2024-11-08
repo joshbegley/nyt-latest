@@ -1,3 +1,15 @@
+**A Coming-of-Age Novel That Crosses America’s Impossible Divide**\
+`“Us Fools,” by Nora Lange, is a tale of two sisters living through the diseased expanse of the country’s recent history.`\
+https://nytimes.com/2024/11/08/books/review/nora-lange-us-fools.html
+
+**Damian Lillard, Giannis star as Bucks snap losing streak: 'I think we needed it bad'**\
+`Buoyed by Andre Jackson Jr.'s energy in the starting lineup, the Bucks' superstar duo dominated in a win Milwaukee desperately needed.`\
+https://nytimes.com/athletic/5908077/2024/11/08/bucks-damian-lillard-giannis-antetokounmpo-2/
+
+**Fantasy trends and hidden gems: Eyeing the Penguins' and Capitals' top lines**\
+`Pittsburgh is loading all its big guns onto the top line, while Alex Ovechkin's linemates are still widely available.`\
+https://nytimes.com/athletic/5907828/2024/11/08/fantasy-trends-and-hidden-gems-week-7/
+
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/08/nhl-standings-playoffs-projections-odds/
