@@ -1,3 +1,7 @@
+**New York City Will Stop Giving Debit Cards to Migrants**\
+`Mayor Eric Adams is ending a contentious pilot program that gave 2,600 migrant families debit cards to purchase food.`\
+https://nytimes.com/2024/11/07/nyregion/migrant-debit-cards-nyc.html
+
 **The Short Campaign May Have Been Harris’s Undoing — and Biden’s Fault**\
 `By seeking re-election, Biden deprived Harris of months of campaigning that might have helped her.`\
 https://nytimes.com/2024/11/07/us/politics/biden-harris-campaign.html
