@@ -1,3 +1,11 @@
+**49ers mailbag: Why no splashy trade? Which players are on the chopping blocking?**\
+`Among the questions this week: How will the 49ers divide the running back snaps and is Brock Purdy bummed that "Outer Banks" is ending?`\
+https://nytimes.com/athletic/5907332/2024/11/07/49ers-mailbag-trades-jordan-mason-talanoa-hufanga/
+
+**San Francisco Mayor Concedes Race to Levi Strauss Heir**\
+`Mayor London Breed acknowledged on Thursday that Daniel Lurie, a first-time candidate, would succeed her in office.`\
+https://nytimes.com/2024/11/07/us/politics/san-francisco-mayor-breed-lurie.html
+
 **San Francisco Mayor Concedes Race to Levi Strauss Heir**\
 `Mayor London Breed acknowledged on Thursday that Daniel Lurie, a first-time candidate, would succeed her in office.`\
 https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/san-francisco-mayor-breed-lurie

@@ -1,6 +1,10 @@
+**49ers mailbag: Why no splashy trade? Which players are on the chopping blocking?**\
+`Among the questions this week: How will the 49ers divide the running back snaps and is Brock Purdy bummed that "Outer Banks" is ending?`\
+https://nytimes.com/athletic/5907332/2024/11/07/49ers-mailbag-trades-jordan-mason-talanoa-hufanga/
+
 **San Francisco Mayor Concedes Race to Levi Strauss Heir**\
 `Mayor London Breed acknowledged on Thursday that Daniel Lurie, a first-time candidate, would succeed her in office.`\
-https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/san-francisco-mayor-breed-lurie
+https://nytimes.com/2024/11/07/us/politics/san-francisco-mayor-breed-lurie.html
 
 **New York City Will Stop Giving Debit Cards to Migrants**\
 `Mayor Eric Adams is ending a contentious pilot program that gave 2,600 migrant families debit cards to purchase food.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/us/politics/kamala-harris-2028-run-for-president.
 **Keep Fluoride in New York Water? Mayor Adams Hesitates, Then Weighs In.**\
 `President-elect Donald J. Trump has indicated that he would support ending water fluoridation. Mayor Eric Adams was reticent on the issue, before eventually taking a side.`\
 https://nytimes.com/2024/11/07/nyregion/fluoride-water-eric-adams.html
-
-**Mayor of Jackson, Miss., Is Indicted on Federal Corruption Charges**\
-`The mayor and two other local officials pleaded not guilty on Thursday after being accused of taking part in a scheme in which F.B.I. agents posing as real estate developers offered bribes.`\
-https://nytimes.com/2024/11/07/us/jackson-mayor-indicted-federal-corruption.html
 
