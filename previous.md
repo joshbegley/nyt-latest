@@ -1,3 +1,7 @@
+**One Who’s on a Roll**\
+`Evans Clinchy opens our solving weekend.`\
+https://nytimes.com/2024/11/07/crosswords/daily-puzzle-2024-11-08.html
+
 **What we're hearing about the Mets at the GM meetings**\
 `Some industry sources say the Mets will either land Juan Soto or at least raise the price tag and make it harder on the Yankees.`\
 https://nytimes.com/athletic/5907573/2024/11/07/mets-juan-soto-gm-meetings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/us/politics/san-francisco-mayor-breed-lurie.html
 **New York City Will Stop Giving Debit Cards to Migrants**\
 `Mayor Eric Adams is ending a contentious pilot program that gave 2,600 migrant families debit cards to purchase food.`\
 https://nytimes.com/2024/11/07/nyregion/migrant-debit-cards-nyc.html
-
-**The Short Campaign May Have Been Harris’s Undoing — and Biden’s Fault**\
-`By seeking re-election, Biden deprived Harris of months of campaigning that might have helped her.`\
-https://nytimes.com/2024/11/07/us/politics/biden-harris-campaign.html
 
