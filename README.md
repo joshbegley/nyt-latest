@@ -1,3 +1,15 @@
+**Omorodion, Casado handed first Spain call-ups**\
+`Barcelona midfielder Marc Casado and Porto striker Samu Omorodion have been named in Spain&#8217;s senior squad for the first time for November&#8217;s Nations League matches.`\
+https://nytimes.com/athletic/5908135/2024/11/08/spain-squad-nations-league-samu-omorodion/
+
+**India Drops 36-Year Ban on Rushdie Book, Saying It Can’t Find the Order**\
+`In 1988, India ruled Salman Rushdie’s “Satanic Verses” could not be imported. This week, the ban was lifted because officials could not find the original order.`\
+https://nytimes.com/2024/11/08/world/asia/india-salman-rushdie-satanic-verses-book-ban.html
+
+**Twins free-agent targets: 15 fits for a front office shopping in the discount aisle again**\
+`Trying to find the next Carlos Santana-level bargain as ownership's payroll puts the Twins' front office in a difficult spot.`\
+https://nytimes.com/athletic/5892854/2024/11/08/minnesota-twins-free-agent-targets/
+
 **How Inflation Shaped Voting**\
 `We explain inflation’s role in the election.`\
 https://nytimes.com/2024/11/08/briefing/how-inflation-shaped-voting.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/08/world/europe/ukraine-reporter-home-airstrike.html
 **Can the Vikings beat the Jaguars and push for an undefeated November?**\
 `Minnesota seems to match up well against Jacksonville, even on the road. But is there reason for concern ahead of their Week 10 game?`\
 https://nytimes.com/athletic/5906482/2024/11/08/vikings-jaguars-preview-predictions-week-10/
-
-**A tribute to Eric Duhatschek from his friends and colleagues**\
-`After 46 years behind a computer (or typewriter), The Athletic's Eric Duhatschek is retiring.`\
-https://nytimes.com/athletic/5866778/2024/11/08/a-tribute-to-eric-duhatschek-from-his-friends-and-colleagues/
-
-**Lions Super Bowl? McCarthy’s seat the hottest? The Athletic NFL staff's midseason picks**\
-`Plus, a pair of Ravens in the MVP running, and the team most likely to turn it around in the second half.`\
-https://nytimes.com/athletic/5905300/2024/11/08/nfl-midseason-predictions-super-bowl-awards-staff-poll/
-
-**After 46 years as a sportswriter, Eric Duhatschek is signing off**\
-`In his final Friday NHL notebook, Eric Duhatschek recounts his long and storied sportswriting career.`\
-https://nytimes.com/athletic/5901088/2024/11/08/eric-duhtaschek-farewell/
 
