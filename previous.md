@@ -1,3 +1,11 @@
+**Lager, lederhosen and lots of build-up: Panthers touch down in Germany**\
+`Expanding their brand in Germany was appealing to the Carolina Panthers from both a football and financial perspective.`\
+https://nytimes.com/athletic/5908245/2024/11/08/carolina-panthers-germany-nfl-fans-giants/
+
+**Multiple CFP bids? Coach Prime to the Playoff? Is BYU for real? Big 12 mailbag**\
+`Why did Iowa State look flat-footed vs. Texas Tech? What's next for Mike Gundy?`\
+https://nytimes.com/athletic/5907960/2024/11/08/big-12-playoff-colorado-byu/
+
 **New York’s Wu-Tang Clan Street Signs Sell Out in a Blink**\
 `The 100 replicas of the “Wu-Tang Clan District” sign on Staten Island, where the group was formed in 1992, were gone in less than two hours.`\
 https://nytimes.com/2024/11/08/arts/music/wu-tang-clan-street-sign-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/business/dealbook/powell-trump-white-house-pressu
 **Emergency Responders Have Stopped Operating in Northern Gaza**\
 `People have been forced to dig through rubble in search of their neighbors after the main emergency service in Gaza said it had stopped operations there because of Israeli attacks.`\
 https://nytimes.com/2024/11/08/world/middleeast/emergency-responders-northern-gaza.html
-
-**The Athletic FC: Why Edu left Arsenal, Mbappe left out of France squad**\
-`Today in TAFC: The reasons Edu departed Arsenal, Mbappe left out of France squad, Chelsea hammer Noah, and a shock MLS sacking.`\
-https://nytimes.com/athletic/5908108/2024/11/08/edu-arsenal-mbappe-france-squad/
-
-**Arsenal managerial target Cushing says he expects to stay at NYCFC**\
-`Nick Cushing, Arsenal’s primary target to replace Jonas Eidevall as their new women’s team manager, has said he expects to remain with New York City FC.`\
-https://nytimes.com/athletic/5908203/2024/11/08/nick-cushing-arsenal-nycfc/
 
