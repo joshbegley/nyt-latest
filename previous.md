@@ -1,3 +1,7 @@
+**How Sabres chased Igor Shesterkin in lopsided win over Rangers: 4 takeaways**\
+`Buffalo chased Shesterkin from the game in the second period of a dominant 6-1 win over the Rangers.`\
+https://nytimes.com/athletic/5907766/2024/11/07/sabres-rangers-igor-shesterkin-takeaways/
+
 **Rangers' poor defense in front of Igor Shesterkin, line switches, more: 4 takeaways**\
 `“There’s no excuse for what happened today,” Mika Zibanejad said after the Rangers' 6-1 loss to the Sabres. `\
 https://nytimes.com/athletic/5907775/2024/11/07/rangers-sabres-igor-shesterkin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907573/2024/11/07/mets-juan-soto-gm-meetings/
 **‘Walden’ Review: My Sister! My Twin! My Astronaut!**\
 `Emmy Rossum and Zoë Winters star in a new Off Broadway play that’s a climate disaster drama cohabiting with a domestic soap opera.`\
 https://nytimes.com/2024/11/07/theater/walden-review-emmy-rossum-zoe-winters.html
-
-**Read the Judge’s Ruling**\
-`A federal judge in Texas struck down a new Biden administration program that sought to provide a path to U.S. citizenship for hundreds of thousands of undocumented immigrants married to American citizens.`\
-https://nytimes.com/interactive/2024/11/07/us/biden-undocumented-spouses-program.html
 

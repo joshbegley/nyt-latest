@@ -1,3 +1,7 @@
+**How Sabres chased Igor Shesterkin in lopsided win over Rangers: 4 takeaways**\
+`Buffalo chased Shesterkin from the game in the second period of a dominant 6-1 win over the Rangers.`\
+https://nytimes.com/athletic/5907766/2024/11/07/sabres-rangers-igor-shesterkin-takeaways/
+
 **Wave of Racist Texts After Election Prompts Scrutiny of F.B.I.**\
 `Offensive messages were reported across the South, Midwest, Mid-Atlantic and as far west as Texas.`\
 https://nytimes.com/2024/11/07/us/politics/a-wave-of-racist-texts-after-the-election-prompts-the-scrutiny-of-the-fbi.html
