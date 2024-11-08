@@ -1,3 +1,7 @@
+**What Experts Want You to Know About Plan B**\
+`We asked experts how it works, when you should take it, how much it costs and more.`\
+https://nytimes.com/article/plan-b-contraception-morning-after-pill.html
+
 **Votes in House and Senate Races Are Still Being Tallied. Here’s the Latest.**\
 `Control of the House remains in the balance, and three Senate seats in swing states have yet to be called.`\
 https://nytimes.com/2024/11/08/us/elections/house-senate-election-races.html
