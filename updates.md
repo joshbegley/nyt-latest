@@ -1,3 +1,7 @@
+**Amad has given Amorim his first selection problem at United - four into two won't go**\
+`The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
+https://nytimes.com/athletic/5907631/2024/11/08/amad-amorin-manchester-united-attackers/
+
 **Even with stitches and a missing tooth, Kirill Kaprizov is his dominant self on the road**\
 `Not only did Kaprizov assist on three of the Wild’s goals in a 5-2 victory, he made magic with good friend Mats Zuccarello.`\
 https://nytimes.com/athletic/5907983/2024/11/08/kirill-kaprizov-three-points-wild-road-win/
