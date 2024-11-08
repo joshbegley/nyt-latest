@@ -1,3 +1,7 @@
+**Shaboozey Has Something New to Toast: 6 Grammy Nominations**\
+`The country singer’s “A Bar Song (Tipsy)” has been omnipresent; now it’s up for song of the year in February.`\
+https://nytimes.com/2024/11/08/arts/music/shaboozey-grammys-a-bar-song.html
+
 **Walz Offers Minnesota as a Liberal Escape From Trump**\
 `Speaking in his home state after he and Vice President Kamala Harris lost this week, Gov. Tim Walz of Minnesota vowed to “stand ready to stand up and fight.”`\
 https://nytimes.com/2024/11/08/us/elections/tim-walz-kamala-harris-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/us/university-of-southern-california-president-re
 **A Massachusetts Couple Called Off Their Wedding. Who Keeps the $70,000 Ring?**\
 `The state’s Supreme Judicial Court ruled that if wedding plans crumble, the engagement ring must be returned to the person who purchased it.`\
 https://nytimes.com/2024/11/08/us/massachusetts-engagement-ring.html
-
-**Ja'Marr Chase didn't crack the top 5 fantasy football outings. Here's who did**\
-`Ja'Marr Chase had a historical night on Thursday Night Football, but where do his 55.4 PPR points rank on the all-time list?`\
-https://nytimes.com/athletic/5909338/2024/11/08/top-20-fantasy-football-performances-jamarr-chase-bengals/
 
