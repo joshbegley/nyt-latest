@@ -1,3 +1,7 @@
+**Clashes Linked to Soccer Game Between Dutch and Israeli Teams**\
+`Footage shows a crowd appearing to attack a person and then scattering as emergency sirens could be heard approaching. Israeli and Dutch officials have said the violence was driven by antisemitism.`\
+https://nytimes.com/video/world/middleeast/100000009815418/amsterdam-clash-soccer-israel.html
+
 **Steven Madden C.E.O. Says It Is Moving Production Out of China**\
 `The prospect of higher tariffs under President-elect Trump spurred the company to accelerate its plan to shift where its shoes are made.`\
 https://nytimes.com/2024/11/08/business/steve-madden-ceo-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5905727/2024/11/08/jarrod-bowen-west-ham-captain/
 **FPL: The Erling Haaland conundrum**\
 `In FPL, all roads often lead back to Haaland - Abdul Rehman analyses the pros of cons of selling the game's most expensive ever player`\
 https://nytimes.com/athletic/5901587/2024/11/08/fantasy-premier-league-erling-haaland-keep-sell/
-
-**Jackson outduels Burrow as Ravens top Bengals in 35-34 thriller: Takeaways**\
-`Jackson threw three of his four touchdowns on consecutive fourth-quarter drives to put Baltimore out of reach.`\
-https://nytimes.com/athletic/5907555/2024/11/08/ravens-bengals-score-result-takeaways-tnf/
 

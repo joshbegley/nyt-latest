@@ -1,3 +1,7 @@
+**Clashes Linked to Soccer Game Between Dutch and Israeli Teams**\
+`Footage shows a crowd appearing to attack a person and then scattering as emergency sirens could be heard approaching. Israeli and Dutch officials have said the violence was driven by antisemitism.`\
+https://nytimes.com/video/world/middleeast/100000009815418/amsterdam-clash-soccer-israel.html
+
 **Steven Madden C.E.O. Says It Is Moving Production Out of China**\
 `The prospect of higher tariffs under President-elect Trump spurred the company to accelerate its plan to shift where its shoes are made.`\
 https://nytimes.com/2024/11/08/business/steve-madden-ceo-china.html
