@@ -1,3 +1,7 @@
+**Trump Put Musk on Phone With Zelensky During Call**\
+`Elon Musk was with Donald Trump at Mar-a-Lago when the president-elect spoke with Ukraine’s leader. It is not clear if they discussed any change in U.S. policy toward Ukraine.`\
+https://nytimes.com/2024/11/08/us/politics/trump-musk-zelensky.html
+
 **Painting by A.I.-Powered Robot Sells for $1.1 Million**\
 `The portrait depicts the British mathematician Alan Turing as the god of artificial intelligence. Its creator is a robot named Ai-Da that resembles a woman with a bob haircut.`\
 https://nytimes.com/2024/11/08/arts/ai-painting-alan-turing-auction.html
