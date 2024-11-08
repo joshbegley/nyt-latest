@@ -1,3 +1,15 @@
+**Arsenal boosted by recent record against Chelsea ahead of Sunday's clash - Arteta**\
+`Mikel Arteta says that his Arsenal squad are heading into their game against Chelsea on Sunday &#8220;really believing that&#8221; they can win the game and spoke on his side&#8217;s recent results against their London rivals.`\
+https://nytimes.com/athletic/5909092/2024/11/08/arsenal-chelsea-premier-league-record/
+
+**Tielemans set to feature at Liverpool despite skipping Belgium duty**\
+`Youri Tielemans has ruled himself out of Belgium’s upcoming international fixtures due to a &#8220;small pain&#8221; but Unai Emery is hopeful he will be available for Aston Villa’s trip to Liverpool.`\
+https://nytimes.com/athletic/5908628/2024/11/08/aston-villa-youri-tielemans-injury/
+
+**Maddison needs to provide 'compelling evidence' for England recall - Postecoglou**\
+`Tottenham Hotspur manager Ange Postecoglou says James Maddison, like any player struggling to force his way into an international squad, must provide &#8220;compelling evidence&#8221; to win selection.`\
+https://nytimes.com/athletic/5908844/2024/11/08/james-maddison-england-ange-postecoglou/
+
 **Commanders' Brian Robinson Jr., Marshon Lattimore ruled out vs. Steelers**\
 `Both Robinson and Lattimore have been ruled out for Sunday's game against the Steelers, the team announced Friday.`\
 https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-marshon-lattimore-ruled-out-steelers/

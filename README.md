@@ -1,3 +1,7 @@
+**Walz Offers Minnesota as a Liberal Escape From Trump**\
+`Speaking in his home state after he and Vice President Kamala Harris lost this week, Gov. Tim Walz of Minnesota vowed to “stand ready to stand up and fight.”`\
+https://nytimes.com/2024/11/08/us/elections/tim-walz-kamala-harris-election.html
+
 **Arsenal boosted by recent record against Chelsea ahead of Sunday's clash - Arteta**\
 `Mikel Arteta says that his Arsenal squad are heading into their game against Chelsea on Sunday &#8220;really believing that&#8221; they can win the game and spoke on his side&#8217;s recent results against their London rivals.`\
 https://nytimes.com/athletic/5909092/2024/11/08/arsenal-chelsea-premier-league-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/us/massachusetts-engagement-ring.html
 **Ja'Marr Chase didn't crack the top 5 fantasy football outings. Here's who did**\
 `Ja'Marr Chase had a historical night on Thursday Night Football, but where do his 55.4 PPR points rank on the all-time list?`\
 https://nytimes.com/athletic/5909338/2024/11/08/top-20-fantasy-football-performances-jamarr-chase-bengals/
-
-**Who Is Viktor Orban, Hungary’s Authoritarian Leader and Friend of Trump?**\
-`The long-serving prime minister, a champion of ‘illiberal democracy,’ has been politically isolated in much of Europe. But he has found common ground with the former and soon-to-be new U.S. president.`\
-https://nytimes.com/2024/11/08/world/europe/hungary-viktor-orban-trump.html
 
