@@ -1,3 +1,7 @@
+**Even with stitches and a missing tooth, Kirill Kaprizov is his dominant self on the road**\
+`Not only did Kaprizov assist on three of the Wild’s goals in a 5-2 victory, he made magic with good friend Mats Zuccarello.`\
+https://nytimes.com/athletic/5907983/2024/11/08/kirill-kaprizov-three-points-wild-road-win/
+
 **Jump**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/11/08/learning/jump.html
