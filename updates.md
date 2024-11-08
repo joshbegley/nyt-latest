@@ -1,3 +1,7 @@
+**Violent Attacks in Amsterdam Tied to Antisemitism**\
+`The police said 57 people were arrested amid violence tied to a soccer game between Dutch and Israeli teams. Israel said it was sending planes to rescue its citizens.`\
+https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
+
 **Wild continue success on road, overcome pair of overturned goals: 3 takeaways**\
 `The Wild finally pulled away from the Sharks for a 5-2 victory, which featured good nights from the special teams.`\
 https://nytimes.com/athletic/5907825/2024/11/08/wild-kirill-kaprizov-sharks-takeaways/
