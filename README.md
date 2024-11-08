@@ -1,40 +1,40 @@
-**With Trump’s Victory, Europe’s Populist Right Sees Return of a Fellow Believer**\
-`Viktor Orban of Hungary and other right-wing European politicians hail the return of a U.S. president who shares their tough views on issues like immigration.`\
-https://nytimes.com/2024/11/08/world/europe/trump-populist-far-right-leaders.html
+**How My War Came Home**\
+`A reporter thought of his city in the west of Ukraine as a haven from Russian bombs — until a strike hit his street.`\
+https://nytimes.com/2024/11/08/world/europe/ukraine-reporter-home-airstrike.html
 
-**How DeAndre Hopkins gives the Chiefs offense another Travis Kelce**\
-`The newly acquired veteran receiver quickly has found chemistry with Patrick Mahomes and is adept at finding holes in defenses.`\
-https://nytimes.com/athletic/5905387/2024/11/08/deandre-hopkins-chiefs-offense/
+**Can the Vikings beat the Jaguars and push for an undefeated November?**\
+`Minnesota seems to match up well against Jacksonville, even on the road. But is there reason for concern ahead of their Week 10 game?`\
+https://nytimes.com/athletic/5906482/2024/11/08/vikings-jaguars-preview-predictions-week-10/
 
-**Kellen Moore returns to Dallas, still a PowerPoint wiz and meticulous whisperer of offenses**\
-`Kellen Moore developed his skills as a coach while he was still in the NFL as a player.`\
-https://nytimes.com/athletic/5903409/2024/11/08/kellen-moore-eagles-offense-cowboys/
+**A tribute to Eric Duhatschek from his friends and colleagues**\
+`After 46 years behind a computer (or typewriter), The Athletic's Eric Duhatschek is retiring.`\
+https://nytimes.com/athletic/5866778/2024/11/08/a-tribute-to-eric-duhatschek-from-his-friends-and-colleagues/
 
-**The New York Jets bond that gave Rocco Becht a plan to help lift Iowa State to new heights**\
-`Behind Iowa State's push for a first conference title in a century is QB prep inspired by former Jets Anthony Becht and Chad Pennington.`\
-https://nytimes.com/athletic/5906741/2024/11/08/rocco-becht-iowa-state-college-football-playoff/
+**Lions Super Bowl? McCarthy’s seat the hottest? The Athletic NFL staff's midseason picks**\
+`Plus, a pair of Ravens in the MVP running, and the team most likely to turn it around in the second half.`\
+https://nytimes.com/athletic/5905300/2024/11/08/nfl-midseason-predictions-super-bowl-awards-staff-poll/
 
-**Commanders midseason predictions: Terry McLaurin makes Pro Bowl, Washington wins NFC East**\
-`Plus, why Johnny Newton's performance over the second half of the season could spell the end of Jonathan Allen's time in Washington. `\
-https://nytimes.com/athletic/5906918/2024/11/08/commanders-predictions-nfl-midseason-2024/
+**After 46 years as a sportswriter, Eric Duhatschek is signing off**\
+`In his final Friday NHL notebook, Eric Duhatschek recounts his long and storied sportswriting career.`\
+https://nytimes.com/athletic/5901088/2024/11/08/eric-duhtaschek-farewell/
 
-**Jota's injury return expected in December**\
-`Arne Slot doesn&#8217;t expect to have Liverpool attacker Diogo Jota back available until December.`\
-https://nytimes.com/athletic/5908084/2024/11/08/diogo-jota-injury-return/
+**Why Shaquille O'Neal checks in at No. 7 in The Athletic's The Basketball 100: 'Star of stars'**\
+`For a certain generation, it’s hard to imagine O’Neal as one of the greatest players. In his prime, he was a punishing, dominant athlete.`\
+https://nytimes.com/athletic/5892778/2024/11/08/shaquille-oneal-the-basketball-100-excerpt/
 
-**Playoff stakes for Alabama and LSU in Death Valley: 3 keys and a prediction**\
-`Can Alabama keep its composure on the road with a live tiger watching? Which quarterback will shine brightest?`\
-https://nytimes.com/athletic/5907787/2024/11/08/alabama-crimson-tide-lsu-tigers-college-football-playoff/
+**Trump’s Historic Chief of Staff Pick, and What Elon Musk Wants Now**\
+`Plus, for $200, he was the voice of the internet.`\
+https://nytimes.com/2024/11/08/podcasts/trump-chief-of-staff-musk.html
 
-**All-Free-Agent Team: Closers and corner outfielders aplenty, harder to fill up the middle**\
-`Here's our 26-man roster made entirely of free agents, illustrating the ample options for a needy rotation, bullpen or outfield corner.`\
-https://nytimes.com/athletic/5901520/2024/11/08/free-agent-options-2025-positions/
+**Inside Trump World as the Next Chapter Begins**\
+`In the days following the election, the president-elect has been gearing up for a second administration.`\
+https://nytimes.com/2024/11/08/podcasts/the-daily/trump-second-administration.html
 
-**Court Vision: 7 thoughts from opening week, from Kalkbrenner's 49 points to what's next**\
-`It's difficult to see a future at Villanova for Kyle Neptune, who went 35-33 his first two seasons after replacing Jay Wright.`\
-https://nytimes.com/athletic/5907405/2024/11/08/college-basketball-villanova-creighton-schedule-top-games/
+**How the New York Giants are trying to win more than a game in Germany**\
+`Like many franchises around the NFL, the Giants are determined to grow fan bases outside of the United States. `\
+https://nytimes.com/athletic/5905922/2024/11/08/new-york-giants-germany-nfl-fans-munich/
 
-**Lamar Jackson's heroics lift Ravens over Bengals, but the defense has to start doing its part**\
-`Baltimore's pass defense, which ranks last in the NFL, surrendered 428 yards to Joe Burrow, Ja'Marr Chase and company. `\
-https://nytimes.com/athletic/5908004/2024/11/08/lamar-jackson-ravens-defense-bengals/
+**The Connections Companion No. 517**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 9, 2024.`\
+https://nytimes.com/2024/11/08/crosswords/connections-companion-517.html
 
