@@ -1,3 +1,7 @@
+**Suit Against Meta, Using a Tech Shield Law, Is Dismissed**\
+`A professor sued pre-emptively to release software that would let users automatically unfollow everyone in their Facebook feed.`\
+https://nytimes.com/2024/11/07/technology/meta-section-230-lawsuit.html
+
 **One Who’s on a Roll**\
 `Evans Clinchy opens our solving weekend.`\
 https://nytimes.com/2024/11/07/crosswords/daily-puzzle-2024-11-08.html
