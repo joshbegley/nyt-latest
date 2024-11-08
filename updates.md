@@ -1,3 +1,7 @@
+**How DeAndre Hopkins gives the Chiefs offense another Travis Kelce**\
+`The newly acquired veteran receiver quickly has found chemistry with Patrick Mahomes and is adept at finding holes in defenses.`\
+https://nytimes.com/athletic/5905387/2024/11/08/deandre-hopkins-chiefs-offense/
+
 **Kellen Moore returns to Dallas, still a PowerPoint wiz and meticulous whisperer of offenses**\
 `Kellen Moore developed his skills as a coach while he was still in the NFL as a player.`\
 https://nytimes.com/athletic/5903409/2024/11/08/kellen-moore-eagles-offense-cowboys/
