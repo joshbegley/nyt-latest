@@ -1,3 +1,7 @@
+**‘Walden’ Review: My Sister! My Twin! My Astronaut!**\
+`Emmy Rossum and Zoë Winters star in a new Off Broadway play that’s a climate disaster drama cohabiting with a domestic soap opera.`\
+https://nytimes.com/2024/11/07/theater/walden-review-emmy-rossum-zoe-winters.html
+
 **Read the Judge’s Ruling**\
 `A federal judge in Texas struck down a new Biden administration program that sought to provide a path to U.S. citizenship for hundreds of thousands of undocumented immigrants married to American citizens.`\
 https://nytimes.com/interactive/2024/11/07/us/biden-undocumented-spouses-program.html
