@@ -1,8 +1,20 @@
+**Yankees' Aaron Boone will return in 2025 after club exercises option**\
+`Boone will return to manage the Yankees in 2025, with the possibility of a longer extension coming later this offseason.`\
+https://nytimes.com/athletic/5906971/2024/11/08/yankees-aaron-boone-manager-option/
+
+**Grammy Awards 2025: The Nominees**\
+`Artists, albums and songs competing for trophies at the 67th annual ceremony are being announced on Friday. The show will take place on Feb. 2 at Crypto.com Arena in Los Angeles.`\
+https://nytimes.com/2024/11/08/arts/music/grammys-nominee-list-2025.html
+
+**Revisiting the lost Paul George trade. Plus, hidden NBA League Pass gems**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5908291/2024/11/08/paul-george-76ers-clippers-league-pass-nba-the-bounce/
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 11?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5899813/2024/11/08/premier-league-predicted-line-ups-gameweek-11/
 
-**Notre Dame’s Bells Ring Together for First Time Since Fire**\
+**Notre-Dame’s Bells Ring Together for First Time Since Fire**\
 `The sound of Notre-Dame’s bells pealed throughout Paris for the first time since 2019 — a symbol of rebirth as it prepares to reopen next month.`\
 https://nytimes.com/2024/11/08/world/europe/notre-dame-bells-cathedral-paris.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/08/science/elephants-hose-shower-berlin-zoo.html
 **Five Horror Movies to Stream Now**\
 `This month’s picks include 2000s nostalgia, feminist thrills and the one and only Corey Feldman.`\
 https://nytimes.com/2024/11/08/movies/great-horror-movies-streaming.html
-
-**R.F.K. Jr. lays out possible public health changes he might oversee under Trump.**\
-`By Remy Tumin`\
-https://nytimes.com/live/2024/11/08/us/trump-election-news/rfk-jr-lays-out-possible-public-health-changes-he-might-oversee-under-trump
-
-**The Best Movies and TV Shows Coming to Netflix in November**\
-`A parade of notable new titles are coming for U.S. subscribers all month. Here’s a roundup of the most promising.`\
-https://nytimes.com/2024/11/08/arts/television/netflix-new-november-shows-movies.html
-
-**Ukraine Hit Again Overnight by Deadly Barrage From Russia**\
-`Millions trek to shelters nightly or take their chances at home as unceasing missile and drone attacks drag on. Some Ukrainians are looking — with hope or sarcasm — to Trump for respite.`\
-https://nytimes.com/2024/11/08/world/europe/ukraine-drones-missiles-barrage.html
 
