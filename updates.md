@@ -1,3 +1,15 @@
+**Judge denies teams' request in NASCAR antitrust case**\
+`The request is part of a larger antitrust lawsuit two teams have filed against NASCAR and CEO Jim France.`\
+https://nytimes.com/athletic/5909153/2024/11/08/nascar-antitrust-lawsuit-michael-jordan/
+
+**America’s Wobbly Democracy**\
+`Lessons from a London bridge.`\
+https://nytimes.com/2024/11/08/world/americas/americas-wobbly-democracy.html
+
+**With Ready Orders and an Energy Czar, Trump Plots Pivot to Fossil Fuels**\
+`President-elect Donald J. Trump’s transition team for climate and the environment is considering relocating the E.P.A. out of Washington and other drastic changes.`\
+https://nytimes.com/2024/11/08/climate/trump-transition-epa-interior-energy.html
+
 **Is Door-Knocking Dead? No, It Made One Big Difference.**\
 `Political campaigns shouldn’t give up on door-knocking yet.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/ground-game-campaigns-senate
