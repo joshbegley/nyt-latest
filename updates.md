@@ -1,3 +1,7 @@
+**Amad has given Amorim his first selection problem at United - four into two won't go**\
+`The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
+https://nytimes.com/athletic/5907631/2024/11/08/amad-amorim-manchester-united-attackers/
+
 **Amad on Man Utd future: 'I want to stay here for a long time'**\
 `Amad says he wants to stay at Manchester United for a “long, long, long time” after scoring a brace to give the club its first European win in more than a year.`\
 https://nytimes.com/athletic/5908041/2024/11/08/amad-manchester-united-future/
