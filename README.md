@@ -1,3 +1,7 @@
+**Brooklyn Man Charged With Staging Car Crash Shown in TikTok Video**\
+`The crash, which prosecutors said was staged, was captured by dash cameras. The footage was uploaded to TikTok, where it has since been viewed more than 74 million times.`\
+https://nytimes.com/2024/11/08/nyregion/insurance-fraud-car-crash-brooklyn.html
+
 **Did Beyoncé’s Grammy Nods Really Top Michael Jackson’s for ‘Thriller’?**\
 `Not exactly. But in Grammyland, nothing is simple.`\
 https://nytimes.com/2024/11/08/arts/music/grammys-beyonce-cowboy-carter-michael-jackson-thriller.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909192/2024/11/08/todd-golden-florida-sexual-haras
 **First Major Snow of the Season Pummels Denver Region**\
 `The National Weather Service said snowfall accumulations from Friday into Saturday morning could be significant, with 12 to 20 inches expected south of Denver.`\
 https://nytimes.com/2024/11/08/weather/colorado-new-mexico-snowstorm.html
-
-**Titans QB Will Levis to start vs. Chargers, coach Brian Callahan says**\
-`The 25-year-old was listed as a full participant on the practice report Thursday for the first time since Week 7.`\
-https://nytimes.com/athletic/5909137/2024/11/08/will-levis-titans-starting-quarterback-injury-update/
 
