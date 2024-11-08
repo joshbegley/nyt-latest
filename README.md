@@ -2,7 +2,7 @@
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5899813/2024/11/08/premier-league-predicted-line-ups-gameweek-11/
 
-**Notre Dame’s Bells Ring Together for First Time Since Fire**\
+**Notre-Dame’s Bells Ring Together for First Time Since Fire**\
 `The sound of Notre-Dame’s bells pealed throughout Paris for the first time since 2019 — a symbol of rebirth as it prepares to reopen next month.`\
 https://nytimes.com/2024/11/08/world/europe/notre-dame-bells-cathedral-paris.html
 
@@ -32,7 +32,7 @@ https://nytimes.com/live/2024/11/08/us/trump-election-news/rfk-jr-lays-out-possi
 
 **The Best Movies and TV Shows Coming to Netflix in November**\
 `A parade of notable new titles are coming for U.S. subscribers all month. Here’s a roundup of the most promising.`\
-https://nytimes.com/2024/11/08/arts/television/netflix-new-november-shows-movies.html
+https://nytimes.com/2024/11/08/arts/television/new-netflix-movies-shows-november.html
 
 **Ukraine Hit Again Overnight by Deadly Barrage From Russia**\
 `Millions trek to shelters nightly or take their chances at home as unceasing missile and drone attacks drag on. Some Ukrainians are looking — with hope or sarcasm — to Trump for respite.`\
