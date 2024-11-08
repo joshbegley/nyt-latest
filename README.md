@@ -2,8 +2,8 @@
 `The Manhattan church said it would turn over administration of its boarding school for choristers, one of only a few of its kind remaining, because of financial woes.`\
 https://nytimes.com/2024/11/08/arts/music/st-thomas-church-choir-school.html
 
-**$7 Million Deal Is Reached for Upper West Side Movie Theater**\
-`A nonprofit group’s agreement with the owners of the shuttered Metro Theater is contingent on its raising the money by the end of the year.`\
+**$7 Million Deal Is Reached for Upper West Side Movie Theater, Nonprofit Says**\
+`A nonprofit group says it has reached an agreement to buy the shuttered Metro Theater from its owners, but the deal is contingent on raising the money by the end of the year.`\
 https://nytimes.com/2024/11/08/movies/metro-theater-upper-west-side.html
 
 **Reds leave Diamond Sports; MLB objects to broadcaster's bankruptcy plan**\
