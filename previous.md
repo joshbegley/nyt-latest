@@ -1,3 +1,15 @@
+**Jump**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/11/08/learning/jump.html
+
+**Former Adams Aide Is in Plea Talks in Federal Witness Tampering Case**\
+`Mohamed Bahi was accused of tampering with witnesses and destroying evidence in the corruption investigation into Mayor Eric Adams and his campaign fund-raising.`\
+https://nytimes.com/2024/11/08/nyregion/adams-corruption-aide-plea.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/08/crosswords/spelling-bee-forum.html
+
 **Chelsea signed potential in Mykhailo Mudryk - they hope their patience will pay off**\
 `There is a lot of love for the Ukraine forward at Stamford Bridge despite his difficult time at the club`\
 https://nytimes.com/athletic/5907445/2024/11/08/mykhailo-mudryk-chelsea-potential-patience/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/08/arts/television/jimmy-fallon-biden.html
 **Clashes Linked to Soccer Game Between Dutch and Israeli Teams**\
 `Footage shows a crowd appearing to attack a person and then scattering as emergency sirens could be heard approaching. Israeli and Dutch officials have said the violence was driven by antisemitism.`\
 https://nytimes.com/video/world/middleeast/100000009815418/amsterdam-clash-soccer-israel.html
-
-**Steven Madden C.E.O. Says It Is Moving Production Out of China**\
-`The prospect of higher tariffs under President-elect Trump spurred the company to accelerate its plan to shift where its shoes are made.`\
-https://nytimes.com/2024/11/08/business/steve-madden-ceo-china.html
-
-**Democracy Is Still Thriving. But for How Long?**\
-`In a year filled with elections, the state of democracy is thriving by many measures. But there are dark clouds on the horizon.`\
-https://nytimes.com/2024/11/08/opinion/trump-democracy-elections.html
-
-**Violent Attacks in Amsterdam Tied to Antisemitism**\
-`The police said 57 people were arrested amid violence tied to a soccer game between Dutch and Israeli teams. Israel said it was sending planes to rescue its citizens.`\
-https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
 

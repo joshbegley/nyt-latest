@@ -1,3 +1,15 @@
+**Jump**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/11/08/learning/jump.html
+
+**Former Adams Aide Is in Plea Talks in Federal Witness Tampering Case**\
+`Mohamed Bahi was accused of tampering with witnesses and destroying evidence in the corruption investigation into Mayor Eric Adams and his campaign fund-raising.`\
+https://nytimes.com/2024/11/08/nyregion/adams-corruption-aide-plea.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/08/crosswords/spelling-bee-forum.html
+
 **Chelsea signed potential in Mykhailo Mudryk - they hope their patience will pay off**\
 `There is a lot of love for the Ukraine forward at Stamford Bridge despite his difficult time at the club`\
 https://nytimes.com/athletic/5907445/2024/11/08/mykhailo-mudryk-chelsea-potential-patience/
