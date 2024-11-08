@@ -1,3 +1,7 @@
+**Residents Return to Find Homes Reduced to Rubble After California Fire**\
+`The Mountain fire destroyed more than 130 structures in Ventura County and was only 7 percent contained. “It’s just devastating,” one resident said.`\
+https://nytimes.com/2024/11/08/us/california-mountain-fire-residents-return.html
+
 **How Media Outlets on the Right and Left Explained Trump’s Win**\
 `Media outlets on the right said Mr. Trump won because of the left’s embrace of what they called extreme political views. Left-leaning outlets offered a broader variety of explanations.`\
 https://nytimes.com/2024/11/08/business/media/trumps-victory-media-outlets-explain.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-c
 **NBA closing academies in Mexico, Australia**\
 `The NBA will keep its academy in Senegal open as the league has made Africa a larger part of its global focus.`\
 https://nytimes.com/athletic/5909527/2024/11/08/nba-closing-academies-mexico-australia/
-
-**Voters in Red and Blue States Repudiate Lenient Drug Policies**\
-`Californians voted for tougher penalties for dealers. Florida, North Dakota and South Dakota rejected proposals to legalize marijuana. Massachusetts denied a measure allowing possession of psychedelics.`\
-https://nytimes.com/2024/11/08/health/drugs-election-cannabis-penalties.html
 
