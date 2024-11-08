@@ -1,3 +1,7 @@
+**Nuno: Nottingham Forest must 'stay humble' amid strong Premier League start**\
+`Nuno Espirito Santo says Nottingham Forest must remain humble and focussed following their impressive start to the season, which has left the club third in the Premier League.`\
+https://nytimes.com/athletic/5908496/2024/11/08/nottingham-forest-premier-league-nuno/
+
 **Church in Egyptian Desert Reveals Early Christian Burial Practices**\
 `A basilica from the 4th century held a surprising number of tombs with women and children, researchers found.`\
 https://nytimes.com/2024/11/08/science/amheida-trimithis-christian-church-egypt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908448/2024/11/08/tottenham-fa-charge-homophobic-c
 **Palace's Nketiah out of Fulham gam with hamstring injury - Glasner**\
 `Oliver Glasner is facing an injury crisis with Eddie Nketiah the latest Crystal Palace player to be ruled out of action.`\
 https://nytimes.com/athletic/5908485/2024/11/08/eddie-nketiah-injury-update-crystal-palace/
-
-**Fourth-quarter rally had Anthony Edwards, Wolves roaring as Bulls look for answers**\
-`The Bulls hung with the Timberwolves for three quarters, but a 45-point fourth, led by Edwards, decided the game.`\
-https://nytimes.com/athletic/5907903/2024/11/08/anthony-edwards-timberwolves-bulls-nba/
 

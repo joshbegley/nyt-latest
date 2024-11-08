@@ -1,3 +1,7 @@
+**Nuno: Nottingham Forest must 'stay humble' amid strong Premier League start**\
+`Nuno Espirito Santo says Nottingham Forest must remain humble and focussed following their impressive start to the season, which has left the club third in the Premier League.`\
+https://nytimes.com/athletic/5908496/2024/11/08/nottingham-forest-premier-league-nuno/
+
 **Church in Egyptian Desert Reveals Early Christian Burial Practices**\
 `A basilica from the 4th century held a surprising number of tombs with women and children, researchers found.`\
 https://nytimes.com/2024/11/08/science/amheida-trimithis-christian-church-egypt.html
