@@ -1,3 +1,15 @@
+**Who will land Juan Soto? The odds reveal three real contenders and three others to watch**\
+`Juan Soto is a free agent this offseason. What do the odds say about where he might go next — and which team could he impact the most?`\
+https://nytimes.com/athletic/5906995/2024/11/08/juan-soto-yankees-dodgers-mets-odds/
+
+**Wings hiring former Sparks coach Curt Miller as GM**\
+`Miller has previous experience in the role, having worked a dual coach/GM job with the Connecticut Sun beginning in September 2016.`\
+https://nytimes.com/athletic/5908833/2024/11/08/curt-miller-wings-general-manager-wnba/
+
+**The New York Steakhouse That’s Served Everyone From Theodore Roosevelt to Liza Minnelli**\
+`Keens, a fixture in midtown Manhattan since 1885, is a shrine to a bygone city.`\
+https://nytimes.com/2024/11/08/t-magazine/keens-steakhouse-new-york.html
+
 **‘Hippo’ Review: This Coming-of-Age Tale Can Go**\
 `Trafficking in irreverence, the film follows a pair of stepsiblings with sexual tension.`\
 https://nytimes.com/2024/11/08/movies/hippo-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/08/world/europe/lithuania-coalition-antisemitism.htm
 **Is a New Wave of Digital Nomadism Coming? Interest in Moving Abroad Is on the Rise.**\
 `Google searches for “best countries to move to” peaked immediately after the election. Here’s what you need to know about digital nomad visas.`\
 https://nytimes.com/2024/11/08/travel/digital-nomad-visas-moving-abroad-election.html
-
-**Notre-Dame Cathedral’s Bells Ring as Restoration Nears Completion**\
-`The ringing of Notre-Dame’s bells sounded throughout Paris for the first time since the fire in 2019.`\
-https://nytimes.com/video/world/europe/100000009815624/notre-dame-cathedral-bells.html
-
-**Beyoncé and Young Women Pop Sensations Lead 2025 Grammy Nominees**\
-`Charli XCX, Billie Eilish, Chappell Roan and Sabrina Carpenter will compete in the biggest categories, along with Taylor Swift and Kendrick Lamar.`\
-https://nytimes.com/2024/11/08/arts/music/grammy-awards-nominations.html
-
-**Yankees' Aaron Boone will return in 2025 after club exercises option**\
-`Boone will return to manage the Yankees in 2025, with the possibility of a longer extension coming later this offseason.`\
-https://nytimes.com/athletic/5906971/2024/11/08/yankees-aaron-boone-manager-option/
 
