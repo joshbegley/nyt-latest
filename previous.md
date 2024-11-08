@@ -1,3 +1,7 @@
+**From a Celebrated Chef, a New Line of Home Goods**\
+`Clare de Boer and her husband, Luke Sherwin, have launched Roseland, a company selling furniture inspired by early American design.`\
+https://nytimes.com/2024/11/08/t-magazine/roseland-home-goods.html
+
 **Party Whose Leader Is Known for Antisemitism Joins Lithuanian Government**\
 `A new coalition includes a party led by a politician notorious for antisemitic remarks, another blow to the longstanding refusal by Europe’s mainstream parties to join with those seen as extremist.`\
 https://nytimes.com/2024/11/08/world/europe/lithuania-coalition-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5899813/2024/11/08/premier-league-predicted-line-up
 **Notre-Dame’s Bells Ring Together for First Time Since Fire**\
 `The sound of Notre-Dame’s bells pealed throughout Paris for the first time since 2019 — a symbol of rebirth as it prepares to reopen next month.`\
 https://nytimes.com/2024/11/08/world/europe/notre-dame-bells-cathedral-paris.html
-
-**Canucks observations: Quinn Hughes' continued dominance, Tanner Jeannot's bad hit and more**\
-`After a perfect California road trip, the Canucks return home this weekend to face Edmonton.`\
-https://nytimes.com/athletic/5907938/2024/11/08/quinn-hughes-canucks-tanner-jeannot/
 

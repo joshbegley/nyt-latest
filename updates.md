@@ -1,3 +1,7 @@
+**From a Celebrated Chef, a New Line of Home Goods**\
+`Clare de Boer and her husband, Luke Sherwin, have launched Roseland, a company selling furniture inspired by early American design.`\
+https://nytimes.com/2024/11/08/t-magazine/roseland-home-goods.html
+
 **Party Whose Leader Is Known for Antisemitism Joins Lithuanian Government**\
 `A new coalition includes a party led by a politician notorious for antisemitic remarks, another blow to the longstanding refusal by Europe’s mainstream parties to join with those seen as extremist.`\
 https://nytimes.com/2024/11/08/world/europe/lithuania-coalition-antisemitism.html
