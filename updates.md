@@ -1,3 +1,7 @@
+**What we're hearing about the Mets at the GM meetings**\
+`Some industry sources say the Mets will either land Juan Soto or at least raise the price tag and make it harder on the Yankees.`\
+https://nytimes.com/athletic/5907573/2024/11/07/mets-juan-soto-gm-meetings/
+
 **What we're hearing about the Mets at the GM Meetings**\
 `Some industry sources say the Mets will either land Juan Soto or at least raise the price tag and make it harder on the Yankees.`\
 https://nytimes.com/athletic/5907573/2024/11/07/mets-juan-soto-gm-meetings/
