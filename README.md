@@ -1,3 +1,7 @@
+**Who Is Viktor Orban, Hungary’s Authoritarian Leader and Friend of Trump?**\
+`The long-serving prime minister, a champion of ‘illiberal democracy,’ has been politically isolated in much of Europe. But he has found common ground with the former and soon-to-be new U.S. president.`\
+https://nytimes.com/2024/11/08/world/europe/hungary-viktor-orban-trump.html
+
 **Yankees' Steinbrenner sets meeting with Soto, Boras**\
 `Steinbrenner will meet with the star outfielder and his agent after they meet with Mets owner Steve Cohen next week.`\
 https://nytimes.com/athletic/5909447/2024/11/08/yankees-hal-steinbrenner-juan-soto-scott-boras-meeting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909326/2024/11/08/auston-matthews-injury-ir-leafs/
 **Judge denies teams' request in NASCAR antitrust case**\
 `The request is part of a larger antitrust lawsuit two teams have filed against NASCAR and CEO Jim France.`\
 https://nytimes.com/athletic/5909153/2024/11/08/nascar-antitrust-lawsuit-michael-jordan/
-
-**America’s Wobbly Democracy**\
-`Lessons from a London bridge.`\
-https://nytimes.com/2024/11/08/world/americas/americas-wobbly-democracy.html
 
