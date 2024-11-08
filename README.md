@@ -1,3 +1,7 @@
+**Reds leave Diamond Sports; MLB objects to broadcaster's bankruptcy plan**\
+`It wasn’t immediately clear whether the Reds would join the ranks of six other teams whose games will be broadcast and produced by MLB.`\
+https://nytimes.com/athletic/5906864/2024/11/08/reds-leave-broadcaster-diamond-mlb/
+
 **Shaboozey Has Something New to Toast: 6 Grammy Nominations**\
 `The country singer’s “A Bar Song (Tipsy)” has been omnipresent; now it’s up for song of the year in February.`\
 https://nytimes.com/2024/11/08/arts/music/shaboozey-grammys-a-bar-song.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/briefing/trump-transition-musk-israel.html
 **University of Southern California President Will Retire in July**\
 `Carol Folt took over in 2019, often steadying the university but drawing criticism for her handling of campus protests last spring.`\
 https://nytimes.com/2024/11/08/us/university-of-southern-california-president-retirement-carol-folt.html
-
-**A Massachusetts Couple Called Off Their Wedding. Who Keeps the $70,000 Ring?**\
-`The state’s Supreme Judicial Court ruled that if wedding plans crumble, the engagement ring must be returned to the person who purchased it.`\
-https://nytimes.com/2024/11/08/us/massachusetts-engagement-ring.html
 
