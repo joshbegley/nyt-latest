@@ -1,6 +1,6 @@
 **Ja'Marr Chase makes history with monstrous stats in Bengals' loss**\
 `Chase became the first player in NFL history to record multiple games of 250-plus receiving yards and two-plus touchdowns in a career.`\
-https://nytimes.com/athletic/5907833/2024/11/08/jamarr-chase-makes-history-with-monstrous-stats-in-bengals-loss-to-ravens-on-tnf/
+https://nytimes.com/athletic/5907833/2024/11/08/jamarr-chase-bengals-stats-ravens-tnf/
 
 **England's young player pathway is open - but for how much longer?**\
 `Thomas Tuchel's focus will naturally be on the here and now - and that could mean fewer chances for young stars`\
