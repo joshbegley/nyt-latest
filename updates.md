@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-blood-showdown-john-calipari-unc-kansas/
 
+**What to watch in college basketball this weekend: UNC-Kansas and Calipari's first big test**\
+`There are three big college hoops games this weekend: Kansas hosts UNC, Auburn faces Houston and Scott Drew takes on John Calipari.
+`\
+https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-blood-showdown-john-calipari-unc-kansas/
+
 **With Trump Tariffs Looming, Businesses Try to ‘Run From a Moving Target’**\
 `Companies are filling their warehouses or looking into moving factories as they weigh President-elect Donald J. Trump’s threats to impose tariffs on foreign goods.`\
 https://nytimes.com/2024/11/08/us/politics/trump-tariffs-china.html
