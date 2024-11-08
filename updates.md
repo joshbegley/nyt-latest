@@ -1,3 +1,7 @@
+**Shaboozey Has Something New to Toast: 6 Grammy Nominations**\
+`The country singer’s “A Bar Song (Tipsy)” has been omnipresent; now it’s up for song of the year in February.`\
+https://nytimes.com/2024/11/08/arts/music/shaboozey-grammys-a-bar-song.html
+
 **Walz Offers Minnesota as a Liberal Escape From Trump**\
 `Speaking in his home state after he and Vice President Kamala Harris lost this week, Gov. Tim Walz of Minnesota vowed to “stand ready to stand up and fight.”`\
 https://nytimes.com/2024/11/08/us/elections/tim-walz-kamala-harris-election.html
