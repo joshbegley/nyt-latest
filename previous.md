@@ -1,3 +1,11 @@
+**Have the Bruins turned a corner? Three signs of progress**\
+`The Bruins improved to 7-7-1 on the season and their latest win over the Flames might signal traction.`\
+https://nytimes.com/athletic/5907767/2024/11/07/bruins-flames-brad-marchand/
+
+**A wave of racist texts after the election prompts the scrutiny of the F.B.I.**\
+`Offensive messages were reported across the South, Midwest, Mid-Atlantic and as far west as Texas.`\
+https://nytimes.com/2024/11/07/us/politics/a-wave-of-racist-texts-after-the-election-prompts-the-scrutiny-of-the-fbi.html
+
 **Furious Mike Sullivan calls out some Penguins players after loss to Hurricanes**\
 `Sullivan fumed about certain members of the Penguins and their effort level after a 5-1 loss Thursday in Raleigh.`\
 https://nytimes.com/athletic/5906610/2024/11/07/penguins-hurricanes-coach-mike-sullivan/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/11/07/us/biden-undocumented-spouses-program
 **Judge Tosses Out Biden Program for Undocumented Spouses**\
 `The ruling issued by a federal judge in Texas struck down a new initiative aimed at helping undocumented spouses of U.S. citizens stay in the country.`\
 https://nytimes.com/2024/11/07/us/biden-undocumented-spouses-program.html
-
-**On the Ballot, Abortion Rights Proved More Popular Than Kamala Harris**\
-`In states like Arizona and Nevada, some voters split their tickets, supporting abortion rights measures while also backing Donald Trump.`\
-https://nytimes.com/2024/11/07/us/elections/abortion-ballot-harris-democrats.html
-
-**Kyle Shanahan: Christian McCaffrey expected to make season debut Sunday**\
-`Jordan Mason, who has taken McCaffrey's mantle as San Francisco's leading rusher this season, has been limited in practice this week.`\
-https://nytimes.com/athletic/5907464/2024/11/07/christian-mccaffrey-injury-update-status-49ers/
 

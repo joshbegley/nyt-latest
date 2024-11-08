@@ -1,3 +1,11 @@
+**Have the Bruins turned a corner? Three signs of progress**\
+`The Bruins improved to 7-7-1 on the season and their latest win over the Flames might signal traction.`\
+https://nytimes.com/athletic/5907767/2024/11/07/bruins-flames-brad-marchand/
+
+**A wave of racist texts after the election prompts the scrutiny of the F.B.I.**\
+`Offensive messages were reported across the South, Midwest, Mid-Atlantic and as far west as Texas.`\
+https://nytimes.com/2024/11/07/us/politics/a-wave-of-racist-texts-after-the-election-prompts-the-scrutiny-of-the-fbi.html
+
 **Furious Mike Sullivan calls out some Penguins players after loss to Hurricanes**\
 `Sullivan fumed about certain members of the Penguins and their effort level after a 5-1 loss Thursday in Raleigh.`\
 https://nytimes.com/athletic/5906610/2024/11/07/penguins-hurricanes-coach-mike-sullivan/
