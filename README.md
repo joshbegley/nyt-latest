@@ -1,3 +1,7 @@
+**Fourth-quarter rally had Anthony Edwards, Wolves roaring as Bulls look for answers**\
+`The Bulls hung with the Timberwolves for three quarters, but a 45-point fourth, led by Edwards, decided the game.`\
+https://nytimes.com/athletic/5907903/2024/11/08/anthony-edwards-timberwolves-bulls-nba/
+
 **California Shifts Rightward on Crime in an Election Fueled by Frustration**\
 `Voters in the Democratic-run state overwhelmingly approved a measure to impose harsher sentences for crimes and were on their way to ousting two progressive district attorneys.`\
 https://nytimes.com/2024/11/08/us/california-crime-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/arts/music/wu-tang-clan-street-sign-nyc.html
 **Ancelotti says Madrid believe they have 'found solution to defensive problem'**\
 `Carlo Ancelotti believes Real Madrid have &#8220;found the solution&#8221; to their problems following a talk with his players and the head coach insisted: &#8220;It is a defensive problem, not offensive.`\
 https://nytimes.com/athletic/5908305/2024/11/08/real-madrid-form-carlo-ancelotti/
-
-**German politician resigns over St Pauli sex doll social media post**\
-`A politician from Delmenhorst in north west Germany has been forced to resign after publishing a photo on his Facebook account in which a sex doll dressed in a St Pauli shirt was shown with a noose around its neck, hanging from a gallows and with a Nazi symbol drawn on its forehead.`\
-https://nytimes.com/athletic/5908172/2024/11/08/german-politician-resigns-st-pauli/
 
