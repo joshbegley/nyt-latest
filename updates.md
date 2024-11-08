@@ -1,3 +1,15 @@
+**The Athletic FC: Why Edu left Arsenal, Mbappe left out of France squad**\
+`Today in TAFC: The reasons Edu departed Arsenal, Mbappe left out of France squad, Chelsea hammer Noah, and a shock MLS sacking.`\
+https://nytimes.com/athletic/5908108/2024/11/08/edu-arsenal-mbappe-france-squad/
+
+**Arsenal managerial target Cushing says he expects to stay at NYCFC**\
+`Nick Cushing, Arsenal’s primary target to replace Jonas Eidevall as their new women’s team manager, has said he expects to remain with New York City FC.`\
+https://nytimes.com/athletic/5908203/2024/11/08/nick-cushing-arsenal-nycfc/
+
+**Richarlison out with 'significant hamstring injury' - Postecoglou**\
+`Tottenham Hotspur manager Ange Postecoglou has confirmed that Richarlison will be out for a &#8220;significant amount of time&#8221; after sustaining a hamstring injury last Sunday.`\
+https://nytimes.com/athletic/5908204/2024/11/08/tottenham-richarlison-hamstring-injury/
+
 **Shaw returns to Man Utd training after nine-month club absence**\
 `Luke Shaw has returned to team training as the Manchester United full-back continues his recovery from a calf injury.`\
 https://nytimes.com/athletic/5908209/2024/11/08/luke-shaw-injury-update-manchester-united/

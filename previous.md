@@ -1,3 +1,15 @@
+**The Athletic FC: Why Edu left Arsenal, Mbappe left out of France squad**\
+`Today in TAFC: The reasons Edu departed Arsenal, Mbappe left out of France squad, Chelsea hammer Noah, and a shock MLS sacking.`\
+https://nytimes.com/athletic/5908108/2024/11/08/edu-arsenal-mbappe-france-squad/
+
+**Arsenal managerial target Cushing says he expects to stay at NYCFC**\
+`Nick Cushing, Arsenal’s primary target to replace Jonas Eidevall as their new women’s team manager, has said he expects to remain with New York City FC.`\
+https://nytimes.com/athletic/5908203/2024/11/08/nick-cushing-arsenal-nycfc/
+
+**Richarlison out with 'significant hamstring injury' - Postecoglou**\
+`Tottenham Hotspur manager Ange Postecoglou has confirmed that Richarlison will be out for a &#8220;significant amount of time&#8221; after sustaining a hamstring injury last Sunday.`\
+https://nytimes.com/athletic/5908204/2024/11/08/tottenham-richarlison-hamstring-injury/
+
 **Shaw returns to Man Utd training after nine-month club absence**\
 `Luke Shaw has returned to team training as the Manchester United full-back continues his recovery from a calf injury.`\
 https://nytimes.com/athletic/5908209/2024/11/08/luke-shaw-injury-update-manchester-united/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5906927/2024/11/08/broncos-rookies-chiefs-sean-payt
 **Lowetide: Should the Oilers be worried about their goaltending?**\
 `The Oilers' goaltending has come under fire from fans as the team scuffles to start the season.`\
 https://nytimes.com/athletic/5906505/2024/11/08/edmonton-oilers-goalie-stats-skinner/
-
-**Does Indiana QB Kurtis Rourke deserve more hype as a 2025 NFL Draft sleeper?**\
-`Indiana is 9-0 and the biggest surprise in college football. Has the Hoosiers' QB done enough during this run to impress NFL teams?`\
-https://nytimes.com/athletic/5906237/2024/11/08/nfl-draft-2025-kurtis-rourke-scouting-report/
-
-**What Trump 2.0 Means for Tech + A.I. Made Me Basic + HatGPT!**\
-`A shake-up is coming for Silicon Valley.`\
-https://nytimes.com/2024/11/08/podcasts/hardfork-trump-musk-tech.html
-
-**Last N.I.H. Chimps to Move From New Mexico Facility**\
-`The retired research chimpanzees, which had previously been deemed too frail to move, will be relocated to a Louisiana sanctuary.`\
-https://nytimes.com/2024/11/08/science/chimps-alamogordo-haven.html
 
