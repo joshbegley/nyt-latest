@@ -1,3 +1,7 @@
+**Chelsea signed potential in Mykhailo Mudryk - they hope their patience will pay off**\
+`There is a lot of love for the Ukraine forward at Stamford Bridge despite his difficult time at the club`\
+https://nytimes.com/athletic/5907445/2024/11/08/mykhailo-mudryk-chelsea-potential-patience/
+
 **Amad has given Amorin his first selection problem at United - four into two won't go**\
 `The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
 https://nytimes.com/athletic/5907631/2024/11/08/amad-amorin-manchester-united-attackers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/opinion/trump-democracy-elections.html
 **Violent Attacks in Amsterdam Tied to Antisemitism**\
 `The police said 57 people were arrested amid violence tied to a soccer game between Dutch and Israeli teams. Israel said it was sending planes to rescue its citizens.`\
 https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
-
-**'Now I can breathe a bit more': Alison Van Uytvanck on life after tennis and Grand Slam anxiety**\
-`The Belgian embraced tennis as a passion and a career, but the heights of the sport brought some of her lowest moments.`\
-https://nytimes.com/athletic/5872560/2024/11/08/alison-van-uytvanck-tennis/
 
