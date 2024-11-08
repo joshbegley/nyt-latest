@@ -1,3 +1,7 @@
+**Linda LaFlamme Dies at 85; Her ‘White Bird’ Reflected a Hippie Fantasy**\
+`With her husband, David LaFlamme, she founded the rock band It’s a Wonderful Day and wrote a soaring paean to a generation’s dreams of escape.`\
+https://nytimes.com/2024/11/08/arts/music/linda-laflamme-dead.html
+
 **Trump Put Musk on Phone With Zelensky During Call**\
 `Elon Musk was with Donald Trump at Mar-a-Lago when the president-elect spoke with Ukraine’s leader. It is not clear if they discussed any change in U.S. policy toward Ukraine.`\
 https://nytimes.com/2024/11/08/us/politics/trump-musk-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/style/celebrity-endorsements-trump-harris.html
 **Jonathan Haze, Star of ‘The Little Shop of Horrors,’ Dies at 95**\
 `Best known for his star turn in the cult film about a flesh-eating plant, he was a go-to member of the low-budget auteur Roger Corman’s repertory company.`\
 https://nytimes.com/2024/11/08/movies/jonathan-haze-dead.html
-
-**Fantasy Football Flex Fliers: Add Legette, Spears for Week 10, and Audric Estime for later**\
-`Scott Engel runs through top Week 10 flex options for those who missed out in the early waiver run, including an emerging Carolina rookie.`\
-https://nytimes.com/athletic/5908841/2024/11/08/fantasy-football-week-10-flex-options/
 

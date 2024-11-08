@@ -1,3 +1,7 @@
+**Linda LaFlamme Dies at 85; Her ‘White Bird’ Reflected a Hippie Fantasy**\
+`With her husband, David LaFlamme, she founded the rock band It’s a Wonderful Day and wrote a soaring paean to a generation’s dreams of escape.`\
+https://nytimes.com/2024/11/08/arts/music/linda-laflamme-dead.html
+
 **Trump Put Musk on Phone With Zelensky During Call**\
 `Elon Musk was with Donald Trump at Mar-a-Lago when the president-elect spoke with Ukraine’s leader. It is not clear if they discussed any change in U.S. policy toward Ukraine.`\
 https://nytimes.com/2024/11/08/us/politics/trump-musk-zelensky.html
