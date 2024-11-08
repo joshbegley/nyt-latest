@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5907800/2024/11/08/flyers-matvei-michkov-scratch-jo
 `\
 https://nytimes.com/athletic/5907800/2024/11/08/flyers-matvei-michkov-scratch-john-tortorella/
 
+**Why John Tortorella's decision to scratch Matvei Michkov isn't shocking — or alarming**\
+`The Flyers coach knows Michkov is the future of the organization, but there are going to be speed bumps on his path.
+`\
+https://nytimes.com/athletic/5907800/2024/11/08/flyers-matvei-michkov-scratch-john-tortorella/
+
 **Ja'Marr Chase makes history with monstrous stats in Bengals' loss**\
 `Chase became the first player in NFL history to record multiple games of 250-plus receiving yards and two-plus touchdowns in a career.`\
 https://nytimes.com/athletic/5907833/2024/11/08/jamarr-chase-bengals-stats-ravens-tnf/
