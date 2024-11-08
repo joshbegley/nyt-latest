@@ -1,3 +1,7 @@
+**Jack Smith Seeks Pause in Jan. 6 Case After Trump’s Election**\
+`The special counsel asked for time to assess how to proceed now that Donald Trump is returning the White House, triggering a Justice Department policy against prosecuting a sitting president.`\
+https://nytimes.com/2024/11/08/us/politics/jack-smith-trump-jan-6-case.html
+
 **Who will land Juan Soto? The odds reveal three real contenders and three others to watch**\
 `Juan Soto is a free agent this offseason. What do the odds say about where he might go next — and which team could he impact the most?`\
 https://nytimes.com/athletic/5906995/2024/11/08/juan-soto-yankees-dodgers-mets-odds/
