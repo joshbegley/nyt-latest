@@ -1,3 +1,11 @@
+**Playing Out a Dream, a Long, Long Way From Home**\
+`An academy of a team in England’s lower leagues offers Americans at the end of their collegiate eligibility a chance to continue their soccer careers.`\
+https://nytimes.com/2024/11/08/world/europe/academy-soccer-americans-england.html
+
+**Pelosi Laments Biden’s Late Exit and the Lack of an ‘Open Primary’**\
+`“Had the president gotten out sooner, there may have been other candidates in the race,” the former House speaker said in an interview with The New York Times, suggesting she had anticipated an “open primary.”`\
+https://nytimes.com/2024/11/08/us/politics/pelosi-harris-biden-open-primary.html
+
 **Read the Special Counsel’s Filing**\
 `Jack Smith, the special counsel, asked a judge to put on hold all filing deadlines in the federal case accusing President-elect Donald J. Trump of plotting to overturn the 2020 election.`\
 https://nytimes.com/interactive/2024/11/08/us/politics/smith-jan-6-filing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/us/politics/jack-smith-trump-jan-6-case.html
 **Who will land Juan Soto? The odds reveal three real contenders and three others to watch**\
 `Juan Soto is a free agent this offseason. What do the odds say about where he might go next — and which team could he impact the most?`\
 https://nytimes.com/athletic/5906995/2024/11/08/juan-soto-yankees-dodgers-mets-odds/
-
-**Wings hiring former Sparks coach Curt Miller as GM**\
-`Miller has previous experience in the role, having worked a dual coach/GM job with the Connecticut Sun beginning in September 2016.`\
-https://nytimes.com/athletic/5908833/2024/11/08/curt-miller-wings-general-manager-wnba/
-
-**The New York Steakhouse That’s Served Everyone From Theodore Roosevelt to Liza Minnelli**\
-`Keens, a fixture in midtown Manhattan since 1885, is a shrine to a bygone city.`\
-https://nytimes.com/2024/11/08/t-magazine/keens-steakhouse-new-york.html
 
