@@ -1,3 +1,7 @@
+**German politician resigns over St Pauli sex doll social media post**\
+`A politician from Delmenhorst in north west Germany has been forced to resign after publishing a photo on his Facebook account in which a sex doll dressed in a St Pauli shirt was shown with a noose around its neck, hanging from a gallows and with a Nazi symbol drawn on its forehead.`\
+https://nytimes.com/athletic/5908172/2024/11/08/german-politician-resigns-st-pauli/
+
 **Here’s the latest on the election.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/11/08/us/trump-election-news/heres-the-latest-on-the-election
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908204/2024/11/08/tottenham-richarlison-hamstring-
 **Shaw returns to Man Utd training after nine-month club absence**\
 `Luke Shaw has returned to team training as the Manchester United full-back continues his recovery from a calf injury.`\
 https://nytimes.com/athletic/5908209/2024/11/08/luke-shaw-injury-update-manchester-united/
-
-**The Athletic’s Friday football quiz question #29**\
-`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/5908145/2024/11/08/the-athletics-friday-football-quiz-question-29/
 

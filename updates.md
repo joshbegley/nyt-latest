@@ -1,3 +1,7 @@
+**German politician resigns over St Pauli sex doll social media post**\
+`A politician from Delmenhorst in north west Germany has been forced to resign after publishing a photo on his Facebook account in which a sex doll dressed in a St Pauli shirt was shown with a noose around its neck, hanging from a gallows and with a Nazi symbol drawn on its forehead.`\
+https://nytimes.com/athletic/5908172/2024/11/08/german-politician-resigns-st-pauli/
+
 **Here’s the latest on the election.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/11/08/us/trump-election-news/heres-the-latest-on-the-election
