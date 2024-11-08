@@ -1,3 +1,7 @@
+**André 3000 on 3 Grammy Nods for His Flute Album: ‘Super Duper Cool’**\
+`He was half of Outkast, the last rap act to win album of the year — 20 years ago. His latest nominations are for “New Blue Sun,” an expression of ultimate freedom.`\
+https://nytimes.com/2024/11/08/arts/music/andre-3000-grammys-new-blue-sun.html
+
 **We’re Getting an Induction Range. Is It All Right to Sell Our Old Gas One?**\
 `The magazine’s Ethicist columnist on the responsibility one has to dispose of an outmoded appliance.`\
 https://nytimes.com/2024/11/08/magazine/induction-range-gas-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/world/americas/americas-wobbly-democracy.html
 **With Ready Orders and an Energy Czar, Trump Plots Pivot to Fossil Fuels**\
 `President-elect Donald J. Trump’s transition team for climate and the environment is considering relocating the E.P.A. out of Washington and other drastic changes.`\
 https://nytimes.com/2024/11/08/climate/trump-transition-epa-interior-energy.html
-
-**Did Beyoncé’s Grammy Nods Really Top Michael Jackson’s for ‘Thriller’?**\
-`Not exactly. But in Grammyland, nothing is simple.`\
-https://nytimes.com/2024/11/08/arts/music/grammys-beyonce-cowboy-carter-michael-jackson-thriller.html
 
