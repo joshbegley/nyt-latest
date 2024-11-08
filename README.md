@@ -1,3 +1,7 @@
+**Jonathan Haze, Star of ‘The Little Shop of Horrors,’ Dies at 95**\
+`Best known for his star turn in the cult film about a flesh-eating plant, he was a go-to member of the low-budget auteur Roger Corman’s repertory company.`\
+https://nytimes.com/2024/11/08/movies/jonathan-haze-dead.html
+
 **Fantasy Football Flex Fliers: Add Legette, Spears for Week 10, and Audric Estime for later**\
 `Scott Engel runs through top Week 10 flex options for those who missed out in the early waiver run, including an emerging Carolina rookie.`\
 https://nytimes.com/athletic/5908841/2024/11/08/fantasy-football-week-10-flex-options/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/movies/hippo-review.html
 **Finnish Conductors Take Over the New York Philharmonic**\
 `Susanna Mälkki and Santtu-Matias Rouvali made back-to-back appearances with the orchestra, leading similar programs with distinct style.`\
 https://nytimes.com/2024/11/08/arts/music/new-york-philharmonic-malkki-rouvali.html
-
-**Trump Win Shows Political Limits of Biden’s Industrial Policy Vision**\
-`Long-term economic investments in domestic manufacturing were overshadowed by real-time anxiety over rent and grocery prices.`\
-https://nytimes.com/2024/11/08/us/politics/trump-biden-economy-manufacturing.html
 
