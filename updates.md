@@ -1,3 +1,11 @@
+**With Trump Tariffs Looming, Business Try to ‘Run From a Moving Target’**\
+`Companies are filling their warehouses or looking into moving factories as they weigh President-elect Donald J. Trump’s threats to impose tariffs on foreign goods`\
+https://nytimes.com/2024/11/08/us/politics/trump-tariffs-china.html
+
+**After the Election, a Call for Women to Swear Off Men**\
+`Interest in South Korea’s 4B feminist movement, which rejects dating, marriage, sex and childbirth, has risen in the United States.`\
+https://nytimes.com/2024/11/08/style/4b-movement.html
+
 **A Coming-of-Age Novel That Crosses America’s Impossible Divide**\
 `“Us Fools,” by Nora Lange, is a tale of two sisters living through the diseased expanse of the country’s recent history.`\
 https://nytimes.com/2024/11/08/books/review/nora-lange-us-fools.html
