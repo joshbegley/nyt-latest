@@ -1,3 +1,7 @@
+**After G.O.P. Wins, Senate Democrats Eye Major Push to Confirm Biden Judges**\
+`The loss of the White House and the Senate majority will end Democrats’ ability to fill judicial vacancies come January. They say they want to confirm as many as possible in the coming weeks.`\
+https://nytimes.com/2024/11/08/us/politics/senate-democrats-judges.html
+
 **7 Deep Cuts From the 2025 Grammy Nominations**\
 `Big names dominate the biggest categories, but lovely discoveries await on the ballot too. Hear tracks from Arooj Aftab, Sierra Ferrell, Tems, Idles and more.`\
 https://nytimes.com/2024/11/08/arts/music/amplifier-newsletter-grammy-nominations.html

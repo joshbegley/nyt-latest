@@ -1,3 +1,7 @@
+**After G.O.P. Wins, Senate Democrats Eye Major Push to Confirm Biden Judges**\
+`The loss of the White House and the Senate majority will end Democrats’ ability to fill judicial vacancies come January. They say they want to confirm as many as possible in the coming weeks.`\
+https://nytimes.com/2024/11/08/us/politics/senate-democrats-judges.html
+
 **7 Deep Cuts From the 2025 Grammy Nominations**\
 `Big names dominate the biggest categories, but lovely discoveries await on the ballot too. Hear tracks from Arooj Aftab, Sierra Ferrell, Tems, Idles and more.`\
 https://nytimes.com/2024/11/08/arts/music/amplifier-newsletter-grammy-nominations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/arts/design/vanessa-bell-exhibition-bloomsbury-gr
 **Playing Out a Dream, a Long, Long Way From Home**\
 `An academy of a team in England’s lower leagues offers Americans at the end of their collegiate eligibility a chance to continue their soccer careers.`\
 https://nytimes.com/2024/11/08/world/europe/academy-soccer-americans-england.html
-
-**Pelosi Laments Biden’s Late Exit and the Lack of an ‘Open Primary’**\
-`“Had the president gotten out sooner, there may have been other candidates in the race,” the former House speaker said in an interview with The New York Times, suggesting she had anticipated an “open primary.”`\
-https://nytimes.com/2024/11/08/us/politics/pelosi-harris-biden-open-primary.html
 
