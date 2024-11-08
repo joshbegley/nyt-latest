@@ -1,3 +1,7 @@
+**Fourth-quarter rally had Anthony Edwards, Wolves roaring as Bulls look for answers**\
+`The Bulls hung with the Timberwolves for three quarters, but a 45-point fourth, led by Edwards, decided the game.`\
+https://nytimes.com/athletic/5907903/2024/11/08/anthony-edwards-timberwolves-bulls-nba/
+
 **California Shifts Rightward on Crime in an Election Fueled by Frustration**\
 `Voters in the Democratic-run state overwhelmingly approved a measure to impose harsher sentences for crimes and were on their way to ousting two progressive district attorneys.`\
 https://nytimes.com/2024/11/08/us/california-crime-election.html
