@@ -1,3 +1,19 @@
+**Phillies promote Preston Mattingly to GM; Sam Fuld will move to business side in 2026**\
+`The Phillies promoted Preston Mattingly, their farm director, to general manager Friday afternoon in a front-office shakeup.`\
+https://nytimes.com/athletic/5909272/2024/11/08/phillies-promote-preston-mattingly-sam-fuld/
+
+**Mayor Adams’s Longtime Girlfriend Retires From Highly Paid Schools Job**\
+`Tracey Collins, a high-ranking Department of Education adviser, stepped down amid allegations that her position was a “no-show” job.`\
+https://nytimes.com/2024/11/08/nyregion/tracey-collins-eric-adams-retire.html
+
+**Ben Baldanza, Who Brought No-Frills Flying to Spirit Airlines, Dies at 62**\
+`He introduced ticket prices that couldn’t be beat, but asked fliers to pay extra for nearly everything, including water, carry-ons and printed tickets.`\
+https://nytimes.com/2024/11/08/business/ben-baldanza-dead.html
+
+**Panthers in Munich: Jadeveon Clowney stays put, Bryce Young eyes Giants' pass rush**\
+`The Panthers also signed RB Chuba Hubbard to an extension ahead of Sunday's game against the Giants in Germany.`\
+https://nytimes.com/athletic/5909194/2024/11/08/carolina-panthers-new-york-giants-munich-bryce-young/
+
 **UF men's basketball coach Golden accused of sexual harassment: Report**\
 `A formal complaint was filed with Florida’s Title IX office on Sept. 27, The Alligator reported.`\
 https://nytimes.com/athletic/5909192/2024/11/08/todd-golden-florida-sexual-harassment-complaint/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5909245/2024/11/08/angels-zach-neto-shoulder-surger
 **Who Is Susie Wiles, Trump’s Pick for White House Chief of Staff?**\
 `Ms. Wiles, a principal architect of Donald J. Trump’s 2024 presidential campaign, will become the first woman to hold the job.`\
 https://nytimes.com/2024/11/08/us/elections/who-is-susie-wiles-trump-chief-of-staff.html
-
-**After G.O.P. Wins, Senate Democrats Eye Major Push to Confirm Biden Judges**\
-`The loss of the White House and the Senate majority will end Democrats’ ability to fill judicial vacancies come January. They say they want to confirm as many as possible in the coming weeks.`\
-https://nytimes.com/2024/11/08/us/politics/senate-democrats-judges.html
-
-**7 Deep Cuts From the 2025 Grammy Nominations**\
-`Big names dominate the biggest categories, but lovely discoveries await on the ballot too. Hear tracks from Arooj Aftab, Sierra Ferrell, Tems, Idles and more.`\
-https://nytimes.com/2024/11/08/arts/music/amplifier-newsletter-grammy-nominations.html
-
-**Texans designate WR Nico Collins to return to practice**\
-`Houston now has 21 days to activate Collins to the active roster.`\
-https://nytimes.com/athletic/5908933/2024/11/08/texans-nico-collins-practice-return/
-
-**Grammys Snubs and Surprises: Charli XCX Levels Up, Beyoncé Spreads Out and the Beatles Persist**\
-`A look at the nominations’ unexpected and intriguing story lines, including the role of an absent Drake, the validation of André 3000’s flute music and overlooked gems.`\
-https://nytimes.com/2024/11/08/arts/music/grammy-awards-snubs-surprises.html
 
