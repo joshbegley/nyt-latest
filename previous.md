@@ -1,3 +1,11 @@
+**Trump’s Supreme Court Agenda Is Likely to Include Legal U-Turns**\
+`In recent years, new administrations have not been shy about disavowing positions taken by their predecessors.`\
+https://nytimes.com/2024/11/08/us/politics/trump-supreme-court.html
+
+**A Pioneer of California Cuisine Turns 35**\
+`Michael McCarty and Kim McCarty will celebrate the New York outpost of Michael’s, their Santa Monica restaurant, with a few hundred regulars.`\
+https://nytimes.com/2024/11/08/dining/michaels-santa-monica-california-cuisine.html
+
 **Ex-Newcastle defender Dummett set to join Wigan**\
 `Former Newcastle United defender Paul Dummett has agreed to join League One side Wigan Athletic on an initial short-term deal.`\
 https://nytimes.com/athletic/5908658/2024/11/08/paul-dummett-wigan-athletic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5834883/2024/11/08/nhl-standings-playoffs-projectio
 **Nuno: Nottingham Forest must 'stay humble' amid strong Premier League start**\
 `Nuno Espirito Santo says Nottingham Forest must remain humble and focussed following their impressive start to the season, which has left the club third in the Premier League.`\
 https://nytimes.com/athletic/5908496/2024/11/08/nottingham-forest-premier-league-nuno/
-
-**Church in Egyptian Desert Reveals Early Christian Burial Practices**\
-`A basilica from the 4th century held a surprising number of tombs with women and children, researchers found.`\
-https://nytimes.com/2024/11/08/science/amheida-trimithis-christian-church-egypt.html
-
-**Scoop City: Best 31 moments, players and coaches of NFL season so far**\
-`A look at the best catch, throw and run of the season, plus awards for best coach, quarterback, cornerback and more.`\
-https://nytimes.com/athletic/5908442/2024/11/08/scoop-city-best-31-moments-players-and-coaches-of-nfl-season-so-far/
 

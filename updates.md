@@ -1,3 +1,11 @@
+**Trump’s Supreme Court Agenda Is Likely to Include Legal U-Turns**\
+`In recent years, new administrations have not been shy about disavowing positions taken by their predecessors.`\
+https://nytimes.com/2024/11/08/us/politics/trump-supreme-court.html
+
+**A Pioneer of California Cuisine Turns 35**\
+`Michael McCarty and Kim McCarty will celebrate the New York outpost of Michael’s, their Santa Monica restaurant, with a few hundred regulars.`\
+https://nytimes.com/2024/11/08/dining/michaels-santa-monica-california-cuisine.html
+
 **Ex-Newcastle defender Dummett set to join Wigan**\
 `Former Newcastle United defender Paul Dummett has agreed to join League One side Wigan Athletic on an initial short-term deal.`\
 https://nytimes.com/athletic/5908658/2024/11/08/paul-dummett-wigan-athletic/
