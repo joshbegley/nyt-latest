@@ -1,3 +1,11 @@
+**Walz Offers Minnesota as a Liberal Escape From Trump**\
+`Speaking in his home state after he and Vice President Kamala Harris lost this week, Gov. Tim Walz of Minnesota vowed to “stand ready to stand up and fight.”`\
+https://nytimes.com/2024/11/08/us/elections/tim-walz-kamala-harris-election.html
+
+**Arsenal full of belief for trip to Chelsea despite recent results, says Mikel Arteta**\
+`Arsenal are heading into their game against Chelsea on Sunday &#8220;really believing&#8221; they can win, according to manager Mikel Arteta.`\
+https://nytimes.com/athletic/5909092/2024/11/08/arsenal-chelsea-premier-league-belief/
+
 **Arsenal boosted by recent record against Chelsea ahead of Sunday's clash - Arteta**\
 `Mikel Arteta says that his Arsenal squad are heading into their game against Chelsea on Sunday &#8220;really believing that&#8221; they can win the game and spoke on his side&#8217;s recent results against their London rivals.`\
 https://nytimes.com/athletic/5909092/2024/11/08/arsenal-chelsea-premier-league-record/
