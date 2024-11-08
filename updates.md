@@ -1,3 +1,7 @@
+**Violence Tied to Soccer Game Prompts Dozens of Arrests in Amsterdam**\
+`The police said 57 people were arrested amid violence tied to a game between Dutch and Israeli teams. Israel’s government said the attacks were driven by antisemitism.`\
+https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
+
 **'Now I can breathe a bit more': Alison Van Uytvanck on life after tennis and Grand Slam anxiety**\
 `The Belgian embraced tennis as a passion and a career, but the heights of the sport brought some of her lowest moments.`\
 https://nytimes.com/athletic/5872560/2024/11/08/alison-van-uytvanck-tennis/

@@ -1,3 +1,7 @@
+**Violence Tied to Soccer Game Prompts Dozens of Arrests in Amsterdam**\
+`The police said 57 people were arrested amid violence tied to a game between Dutch and Israeli teams. Israel’s government said the attacks were driven by antisemitism.`\
+https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
+
 **'Now I can breathe a bit more': Alison Van Uytvanck on life after tennis and Grand Slam anxiety**\
 `The Belgian embraced tennis as a passion and a career, but the heights of the sport brought some of her lowest moments.`\
 https://nytimes.com/athletic/5872560/2024/11/08/alison-van-uytvanck-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5903997/2024/11/08/wolves-oneil-fosun-molineux-sack
 **Who do Crystal Palace miss more, Joachim Andersen or Jordan Ayew?**\
 `Oliver Glasner's team are set to come up against a familiar foe on Saturday as the Danish defender returns to Selhurst Park`\
 https://nytimes.com/athletic/5893553/2024/11/08/palace-andersen-ayew-fulham/
-
-**Pep Guardiola's future at Manchester City: Is he preparing to stay and rebuild?**\
-`Sam Lee looks at various factors affecting the club and how they might impact Guardiola's future`\
-https://nytimes.com/athletic/5902882/2024/11/08/pep-guardiola-future-manchester-city/
 
