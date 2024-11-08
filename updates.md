@@ -1,3 +1,7 @@
+**Ja'Marr Chase didn't crack the top 5 fantasy football outings. Here's who did**\
+`Ja'Marr Chase had a historical night on Thursday Night Football, but where do his 55.4 PPR points rank on the all-time list?`\
+https://nytimes.com/athletic/5909338/2024/11/08/top-20-fantasy-football-performances-jamarr-chase-bengals/
+
 **Who Is Viktor Orban, Hungary’s Authoritarian Leader and Friend of Trump?**\
 `The long-serving prime minister, a champion of ‘illiberal democracy,’ has been politically isolated in much of Europe. But he has found common ground with the former and soon-to-be new U.S. president.`\
 https://nytimes.com/2024/11/08/world/europe/hungary-viktor-orban-trump.html
