@@ -1,3 +1,7 @@
+**Leeds technical director Steinsson to join 49ers Enterprises global football group**\
+`Leeds United technical director Gretar Steinsson is to leave his role with the club to move to a new position within the 49ers Enterprises global football group.`\
+https://nytimes.com/athletic/5907170/2024/11/08/gretar-steinsson-leeds-united-49ers-group/
+
 **The Pulse: The best game of the NFL season**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5907641/2024/11/08/bengals-ravens-burrow-jackson-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907273/2024/11/08/chiefs-long-drive-touchdowns-pat
 **Caleb Williams' accuracy, Shane Waldron's job security: Bears mailbag, Week 10 picks**\
 `The Bears have found themselves in another week of conversations about potential coach firings. Can they get back on track vs. the Patriots?`\
 https://nytimes.com/athletic/5907084/2024/11/08/bears-mailbag-caleb-williams-shane-waldron/
-
-**How My War Came Home**\
-`A reporter thought of his city in the west of Ukraine as a haven from Russian bombs — until a strike hit his street.`\
-https://nytimes.com/2024/11/08/world/europe/ukraine-reporter-home-airstrike.html
 

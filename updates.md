@@ -1,3 +1,7 @@
+**Leeds technical director Steinsson to join 49ers Enterprises global football group**\
+`Leeds United technical director Gretar Steinsson is to leave his role with the club to move to a new position within the 49ers Enterprises global football group.`\
+https://nytimes.com/athletic/5907170/2024/11/08/gretar-steinsson-leeds-united-49ers-group/
+
 **The Pulse: The best game of the NFL season**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5907641/2024/11/08/bengals-ravens-burrow-jackson-the-pulse/
