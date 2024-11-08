@@ -1,3 +1,7 @@
+**China Reveals $1.4 Trillion Plan to Bail Out Local Governments**\
+`The massive support package came after a series of smaller measures in recent weeks were announced to jump-start growth in China’s sluggish economy.`\
+https://nytimes.com/2024/11/08/business/china-stimulus-economy-debt.html
+
 **Postecoglou will understand his Tottenham squad much more after bruising experience**\
 `There were positives and problems for Spurs after Postecoglou rang the changes against Galatasaray`\
 https://nytimes.com/athletic/5907288/2024/11/08/ange-postecoglou-tottenham-squad-galatasaray/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907631/2024/11/08/amad-amorin-manchester-united-at
 **Word of the Day: geothermal**\
 `This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/08/learning/word-of-the-day-geothermal.html
-
-**Jake DeBrusk is heating up, and have the Canucks found their top gear? 3 takeaways**\
-`Vancouver’s 4-2 win against Los Angeles will halt any early concerns about the club’s performance against the league’s top half.`\
-https://nytimes.com/athletic/5907719/2024/11/08/canucks-win-kings-jake-debrusk/
 
