@@ -8,7 +8,7 @@ https://nytimes.com/video/world/europe/100000009815624/notre-dame-cathedral-bell
 
 **Beyoncé and Young Women Pop Sensations Lead 2025 Grammy Nominees**\
 `Charli XCX, Billie Eilish, Chappell Roan and Sabrina Carpenter will compete in the biggest categories, along with Taylor Swift and Kendrick Lamar.`\
-https://nytimes.com/2024/11/08/arts/music/grammy-awards-nominees.html
+https://nytimes.com/2024/11/08/arts/music/grammy-awards-nominations.html
 
 **Yankees' Aaron Boone will return in 2025 after club exercises option**\
 `Boone will return to manage the Yankees in 2025, with the possibility of a longer extension coming later this offseason.`\
