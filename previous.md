@@ -1,3 +1,15 @@
+**'Now I can breathe a bit more': Alison Van Uytvanck on life after tennis and Grand Slam anxiety**\
+`The Belgian embraced tennis as a passion and a career, but the heights of the sport brought some of her lowest moments.`\
+https://nytimes.com/athletic/5872560/2024/11/08/alison-van-uytvanck-tennis/
+
+**Next week’s waiver wire: Ray Davis, Noah Brown and more players to add now — before the Week 11 rush**\
+`John Laghezza shares his top expected future waiver wire plays, including Noah Brown, who is expanding his role for the Commanders.`\
+https://nytimes.com/athletic/5906260/2024/11/08/next-weeks-waiver-wire-ray-davis-noah-brown-players-to-add/
+
+**From 'closers' to 'human shields' - how Slot uses substitutes at Liverpool**\
+`Dutchman's use of replacements is carefully choreographed - and it is having a marked effect`\
+https://nytimes.com/athletic/5901781/2024/11/08/arne-slot-liverpool-substitutes/
+
 **Cooper has instilled resilience but Leicester need to become more than comeback kings**\
 `Leicester are nearly halfway to their total of points gained from losing positions from their disastrous relegation season of 2022-23`\
 https://nytimes.com/athletic/5905918/2024/11/08/steve-cooper-has-instilled-resilience-but-leicester-need-to-become-more-than-comeback-kings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5893553/2024/11/08/palace-andersen-ayew-fulham/
 **Pep Guardiola's future at Manchester City: Is he preparing to stay and rebuild?**\
 `Sam Lee looks at various factors affecting the club and how they might impact Guardiola's future`\
 https://nytimes.com/athletic/5902882/2024/11/08/pep-guardiola-future-manchester-city/
-
-**Arsenal need to get their shape right - even if Martin Odegaard isn't fit to start yet**\
-`Odegaard's Inter cameo offered a tantalising glimpse into what Arsenal have missed but their approach needs refinement with our without him`\
-https://nytimes.com/athletic/5905712/2024/11/08/arsenal-martin-odegaard-formation-shape-midfield/
-
-**Ja'Marr Chase makes history with monstrous stats in Bengals' loss**\
-`Chase became the first player in NFL history to record multiple games of 250-plus receiving yards and two-plus touchdowns in a career.`\
-https://nytimes.com/athletic/5907833/2024/11/08/jamarr-chase-bengals-stats-ravens-tnf/
-
-**England's young player pathway is open - but for how much longer?**\
-`Thomas Tuchel's focus will naturally be on the here and now - and that could mean fewer chances for young stars`\
-https://nytimes.com/athletic/5903133/2024/11/08/england-young-players-thomas-tuchel/
 
