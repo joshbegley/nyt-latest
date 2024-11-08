@@ -1,3 +1,7 @@
+**Forget a Soft Landing. The Fed’s Biggest Challenge May Be Trump.**\
+`The chair of the Federal Reserve made clear he would not resign, even under pressure. But pressure from the White House is likely, market watchers say.`\
+https://nytimes.com/2024/11/08/business/dealbook/powell-trump-white-house-pressure.html
+
 **Emergency Responders Have Stopped Operating in Northern Gaza**\
 `People have been forced to dig through rubble in search of their neighbors after the main emergency service in Gaza said it had stopped operations there because of Israeli attacks.`\
 https://nytimes.com/2024/11/08/world/middleeast/emergency-responders-northern-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907576/2024/11/08/trinity-rodman-analysis-uswnt-sp
 **Row Z: Mbappe and Deschamps, everything's fine - plus Gerrard discovers his inner Brent**\
 `Tim Spiers' weekly look at football's weirder side - also featuring a Brazilian pig's head`\
 https://nytimes.com/athletic/5902703/2024/11/08/kylian-mbappe-didier-deschamps-france/
-
-**'No more rookies anymore': Broncos' playoff hopes could hinge on draft class's growth**\
-`The Chiefs defense has been playing together for years. It presents a massive challenge for a Broncos offense that is still growing up.`\
-https://nytimes.com/athletic/5906927/2024/11/08/broncos-rookies-chiefs-sean-payton/
 
