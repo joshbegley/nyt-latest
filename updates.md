@@ -1,3 +1,11 @@
+**Steven Madden C.E.O. Says It Is Moving Production Out of China**\
+`The prospect of higher tariffs under President-elect Trump spurred the company to accelerate its plan to shift where its shoes are made.`\
+https://nytimes.com/2024/11/08/business/steve-madden-ceo-china.html
+
+**Violent Attacks in Amsterdam Driven by Antisemitism, Israel Says**\
+`The police said 57 people were arrested amid violence tied to a soccer game between Dutch and Israeli teams. Israel said it was sending planes to rescue its citizens.`\
+https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
+
 **Democracy Is Still Thriving. But for How Long?**\
 `In a year filled with elections, the state of democracy is thriving by many measures. But there are dark clouds on the horizon.`\
 https://nytimes.com/2024/11/08/opinion/trump-democracy-elections.html
