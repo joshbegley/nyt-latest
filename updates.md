@@ -1,3 +1,7 @@
+**Postecoglou will understand his Tottenham squad much more after bruising experience**\
+`There were positives and problems for Spurs after Postecoglou rang the changes against Galatasaray`\
+https://nytimes.com/athletic/5907288/2024/11/08/ange-postecoglou-tottenham-squad-galatasaray/
+
 **Connor Hellebuyck steals 'revenge game,' Winnipeg continues historic start: 3 takeaways**\
 `The Jets won their league-leading 13th game of the season against the team that dominated them in the playoffs.`\
 https://nytimes.com/athletic/5904097/2024/11/08/connor-hellebuyck-revenge-winnipeg-historic-start-takeaways/

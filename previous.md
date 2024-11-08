@@ -1,3 +1,7 @@
+**Postecoglou will understand his Tottenham squad much more after bruising experience**\
+`There were positives and problems for Spurs after Postecoglou rang the changes against Galatasaray`\
+https://nytimes.com/athletic/5907288/2024/11/08/ange-postecoglou-tottenham-squad-galatasaray/
+
 **Connor Hellebuyck steals 'revenge game,' Winnipeg continues historic start: 3 takeaways**\
 `The Jets won their league-leading 13th game of the season against the team that dominated them in the playoffs.`\
 https://nytimes.com/athletic/5904097/2024/11/08/connor-hellebuyck-revenge-winnipeg-historic-start-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/learning/word-of-the-day-geothermal.html
 **Jake DeBrusk is heating up, and have the Canucks found their top gear? 3 takeaways**\
 `Vancouver’s 4-2 win against Los Angeles will halt any early concerns about the club’s performance against the league’s top half.`\
 https://nytimes.com/athletic/5907719/2024/11/08/canucks-win-kings-jake-debrusk/
-
-**Wild continue success on road, overcome pair of overturned goals: 3 takeaways**\
-`The Wild finally pulled away from the Sharks for a 5-2 victory, which featured good nights from the special teams.`\
-https://nytimes.com/athletic/5907825/2024/11/08/wild-kirill-kaprizov-sharks-takeaways/
 
