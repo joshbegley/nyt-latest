@@ -1,3 +1,7 @@
+**Tottenham charged by FA over homophobic chants at Manchester United**\
+`The Football Association (FA) has charged Tottenham Hotspur in relation to homophobic chanting during their Premier League game against Manchester United in September.`\
+https://nytimes.com/athletic/5908448/2024/11/08/tottenham-fa-charge-homophobic-chants/
+
 **Palace's Nketiah out of Fulham gam with hamstring injury - Glasner**\
 `Oliver Glasner is facing an injury crisis with Eddie Nketiah the latest Crystal Palace player to be ruled out of action.`\
 https://nytimes.com/athletic/5908485/2024/11/08/eddie-nketiah-injury-update-crystal-palace/
