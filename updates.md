@@ -1,3 +1,15 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 11?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/5899813/2024/11/08/premier-league-predicted-line-ups-gameweek-11/
+
+**Notre Dame’s Bells Ring Together for First Time Since Fire**\
+`The sound of Notre-Dame’s bells pealed throughout Paris for the first time since 2019 — a symbol of rebirth as it prepares to reopen next month.`\
+https://nytimes.com/2024/11/08/world/europe/notre-dame-bells-cathedral-paris.html
+
+**Canucks observations: Quinn Hughes' continued dominance, Tanner Jeannot's bad hit and more**\
+`After a perfect California road trip, the Canucks return home this weekend to face Edmonton.`\
+https://nytimes.com/athletic/5907938/2024/11/08/quinn-hughes-canucks-tanner-jeannot/
+
 **Buchanan, Kone return to Canada squad for Nations League matches**\
 `Inter Milan&#8217;s Tajon Buchanan and Olympique Marseille&#8217;s Ismael Kone, two of Canada&#8217;s most impactful players at the 2022 World Cup, will return to the squad after recent injuries.`\
 https://nytimes.com/athletic/5908428/2024/11/08/canada-squad-nations-league/
