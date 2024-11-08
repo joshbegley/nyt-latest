@@ -1,3 +1,7 @@
+**With Trump’s Victory, Europe’s Populist Right Sees Return of a Fellow Believer**\
+`Viktor Orban of Hungary and other right-wing European politicians hail the return of a U.S. president who shares their tough views on issues like immigration.`\
+https://nytimes.com/2024/11/08/world/europe/trump-populist-far-right-leaders.html
+
 **How DeAndre Hopkins gives the Chiefs offense another Travis Kelce**\
 `The newly acquired veteran receiver quickly has found chemistry with Patrick Mahomes and is adept at finding holes in defenses.`\
 https://nytimes.com/athletic/5905387/2024/11/08/deandre-hopkins-chiefs-offense/
