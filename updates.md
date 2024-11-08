@@ -1,3 +1,7 @@
+**Trump has spoken with at least six world leaders since his election.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls
+
 **NBA closing academies in Mexico, Australia**\
 `The NBA will keep its academy in Senegal open as the league has made Africa a larger part of its global focus.`\
 https://nytimes.com/athletic/5909527/2024/11/08/nba-closing-academies-mexico-australia/
