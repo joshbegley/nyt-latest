@@ -1,3 +1,11 @@
+**Ex-Newcastle defender Dummett set to join Wigan**\
+`Former Newcastle United defender Paul Dummett has agreed to join League One side Wigan Athletic on an initial short-term deal.`\
+https://nytimes.com/athletic/5908658/2024/11/08/paul-dummett-wigan-athletic/
+
+**With Trump Tariffs Looming, Businesses Try to ‘Run From a Moving Target’**\
+`Companies are filling their warehouses or looking into moving factories as they weigh President-elect Donald J. Trump’s threats to impose tariffs on foreign goods`\
+https://nytimes.com/2024/11/08/us/politics/trump-tariffs-china.html
+
 **With Trump Tariffs Looming, Business Try to ‘Run From a Moving Target’**\
 `Companies are filling their warehouses or looking into moving factories as they weigh President-elect Donald J. Trump’s threats to impose tariffs on foreign goods`\
 https://nytimes.com/2024/11/08/us/politics/trump-tariffs-china.html

@@ -1,4 +1,8 @@
-**With Trump Tariffs Looming, Business Try to ‘Run From a Moving Target’**\
+**Ex-Newcastle defender Dummett set to join Wigan**\
+`Former Newcastle United defender Paul Dummett has agreed to join League One side Wigan Athletic on an initial short-term deal.`\
+https://nytimes.com/athletic/5908658/2024/11/08/paul-dummett-wigan-athletic/
+
+**With Trump Tariffs Looming, Businesses Try to ‘Run From a Moving Target’**\
 `Companies are filling their warehouses or looking into moving factories as they weigh President-elect Donald J. Trump’s threats to impose tariffs on foreign goods`\
 https://nytimes.com/2024/11/08/us/politics/trump-tariffs-china.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/science/amheida-trimithis-christian-church-egypt.
 **Scoop City: Best 31 moments, players and coaches of NFL season so far**\
 `A look at the best catch, throw and run of the season, plus awards for best coach, quarterback, cornerback and more.`\
 https://nytimes.com/athletic/5908442/2024/11/08/scoop-city-best-31-moments-players-and-coaches-of-nfl-season-so-far/
-
-**Heat Today: Miami's offense needs a (Tyler) Herro right now. Plus, 3 keys vs. Nuggets**\
-`Despite the Miami Heat's slow start, Tyler Herro's game continues showing strides`\
-https://nytimes.com/athletic/5907627/2024/11/08/tyler-herro-miami-heat-jimmy-butler-bam-adebayo-nikola-jokic-nuggets/
 
