@@ -1,3 +1,15 @@
+**California Shifts Rightward on Crime in an Election Fueled by Frustration**\
+`Voters in the Democratic-run state overwhelmingly approved a measure to impose harsher sentences for crimes and were on their way to ousting two progressive district attorneys.`\
+https://nytimes.com/2024/11/08/us/california-crime-election.html
+
+**Older Workers to Get ‘Super’ 401(k) Catch-Up Contributions in 2025**\
+`Workers who are 60 to 63 will be able to put in up to $11,250 in extra contributions, if they can afford it.`\
+https://nytimes.com/2024/11/08/your-money/401k-catch-up-contributions-2025.html
+
+**Fantasy football injury report: Quarterback concerns, running back returns and more**\
+`Greg Scholz of Inside Injuries breaks down the injuries to QBs Dak Prescott and Trevor Lawrence, weighs in on the return of CMC and more.`\
+https://nytimes.com/athletic/5907729/2024/11/08/fantasy-football-injury-report-week-10/
+
 **The HHOF case against stars like Pekka Rinne, P.K. Subban and even Alexander Mogilny**\
 `Making the case against the Hockey Hall of Fame candidacies of 10 NHL stars — just for argument’s sake.`\
 https://nytimes.com/athletic/5906496/2024/11/08/hockey-hall-of-fame-rinne-subban-mogilny/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5908305/2024/11/08/real-madrid-form-carlo-ancelotti
 **German politician resigns over St Pauli sex doll social media post**\
 `A politician from Delmenhorst in north west Germany has been forced to resign after publishing a photo on his Facebook account in which a sex doll dressed in a St Pauli shirt was shown with a noose around its neck, hanging from a gallows and with a Nazi symbol drawn on its forehead.`\
 https://nytimes.com/athletic/5908172/2024/11/08/german-politician-resigns-st-pauli/
-
-**Here’s the latest on the election.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/11/08/us/trump-election-news/heres-the-latest-on-the-election
-
-**Election Live Updates: Control of House Remains Up for Grabs**\
-`President-elect Donald J. Trump and the Republican Party, which has already won a majority in the Senate, are awaiting race calls in California, Arizona and other states that could give them full control of the next Congress.`\
-https://nytimes.com/live/2024/11/08/us/trump-election-news
-
-**Giants anticipate a payroll reduction in 2025: Source**\
-`The potential payroll reduction comes on the heels of a season where the team saw an attendance increase but also a revenue deficit.`\
-https://nytimes.com/athletic/5905307/2024/11/08/sf-giants-payroll-reduction-2025/
 
