@@ -1,3 +1,7 @@
+**Iranian Agents Plotted to Kill Trump, U.S. Says in Unsealed Charges**\
+`The allegation came in a complaint that said Masih Alinejad, a Brooklyn activist, had been the target of a second assassination attempt.`\
+https://nytimes.com/2024/11/08/nyregion/iran-trump-assassination-plot.html
+
 **Toto Wolff admits Lewis Hamilton's Mercedes exit was ‘on my radar’**\
 `The Mercedes boss shared more about the lead-up to Hamilton's exit and why he liked the situation it left Mercedes in.`\
 https://nytimes.com/athletic/5908883/2024/11/08/toto-wolff-lewis-hamilton-f1-mercedes-ferrari-book/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/us/politics/trump-biden-economy-manufacturing.htm
 **The Age of the Pogrom Returns**\
 `The attack on Israeli soccer fans comes after years of rising antisemitism in Europe, much within Muslim communities.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/israeli-attack-soccer-amsterdam-pogrom
-
-**From a Celebrated Chef, a New Line of Home Goods**\
-`Clare de Boer and her husband, Luke Sherwin, have launched Roseland, a company selling furniture inspired by early American design.`\
-https://nytimes.com/2024/11/08/t-magazine/roseland-home-goods.html
 
