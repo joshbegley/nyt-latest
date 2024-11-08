@@ -1,3 +1,7 @@
+**China Reveals $1.4 Trillion Plan to Bail Out Local Governments**\
+`The massive support package came after a series of smaller measures in recent weeks were announced to jump-start growth in China’s sluggish economy.`\
+https://nytimes.com/2024/11/08/business/china-stimulus-economy-debt.html
+
 **Postecoglou will understand his Tottenham squad much more after bruising experience**\
 `There were positives and problems for Spurs after Postecoglou rang the changes against Galatasaray`\
 https://nytimes.com/athletic/5907288/2024/11/08/ange-postecoglou-tottenham-squad-galatasaray/
