@@ -1,3 +1,11 @@
+**Playing Out a Dream, a Long, Long Way From Home**\
+`An academy of a team in England’s lower leagues offers Americans at the end of their collegiate eligibility a chance to continue their soccer careers.`\
+https://nytimes.com/2024/11/08/world/europe/academy-soccer-americans-england.html
+
+**Pelosi Laments Biden’s Late Exit and the Lack of an ‘Open Primary’**\
+`“Had the president gotten out sooner, there may have been other candidates in the race,” the former House speaker said in an interview with The New York Times, suggesting she had anticipated an “open primary.”`\
+https://nytimes.com/2024/11/08/us/politics/pelosi-harris-biden-open-primary.html
+
 **Read the Special Counsel’s Filing**\
 `Jack Smith, the special counsel, asked a judge to put on hold all filing deadlines in the federal case accusing President-elect Donald J. Trump of plotting to overturn the 2020 election.`\
 https://nytimes.com/interactive/2024/11/08/us/politics/smith-jan-6-filing.html
