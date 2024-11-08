@@ -1,3 +1,12 @@
+**What It’s Like to Write a New John le Carré Novel**\
+`Nick Harkaway is an accomplished author who also happens to be le Carré’s son. In his latest book, “Karla’s Choice,” he revisits his father’s great spy protagonist, George Smiley.`\
+https://nytimes.com/2024/11/08/books/review/what-its-like-to-write-a-new-john-le-carre-novel.html
+
+**What to watch in college basketball this weekend: UNC-Kansas and Calipari's first big test**\
+`There are three big college hoops games this weekend: Kansas hosts UNC, Auburn faces Houston and Scott Drew takes on John Calipari.
+`\
+https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-blood-showdown-john-calipari-unc-kansas/
+
 **Trump’s Supreme Court Agenda Is Likely to Include Legal U-Turns**\
 `In recent years, new administrations have not been shy about disavowing positions taken by their predecessors.`\
 https://nytimes.com/2024/11/08/us/politics/trump-supreme-court.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5908077/2024/11/08/bucks-damian-lillard-giannis-ant
 **Fantasy trends and hidden gems: Eyeing the Penguins' and Capitals' top lines**\
 `Pittsburgh is loading all its big guns onto the top line, while Alex Ovechkin's linemates are still widely available.`\
 https://nytimes.com/athletic/5907828/2024/11/08/fantasy-trends-and-hidden-gems-week-7/
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/11/08/nhl-standings-playoffs-projections-odds/
-
-**Nuno: Nottingham Forest must 'stay humble' amid strong Premier League start**\
-`Nuno Espirito Santo says Nottingham Forest must remain humble and focussed following their impressive start to the season, which has left the club third in the Premier League.`\
-https://nytimes.com/athletic/5908496/2024/11/08/nottingham-forest-premier-league-nuno/
 
