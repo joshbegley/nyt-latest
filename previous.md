@@ -1,3 +1,7 @@
+**The HHOF case against stars like Pekka Rinne, P.K. Subban and even Alexander Mogilny**\
+`Making the case against the Hockey Hall of Fame candidacies of 10 NHL stars — just for argument’s sake.`\
+https://nytimes.com/athletic/5906496/2024/11/08/hockey-hall-of-fame-rinne-subban-mogilny/
+
 **Why clinching your Championship 4 spot early can make all the difference**\
 `Four of the last eight NASCAR Cup Series champions won the first semifinal race, earning a potentially trophy-tilting edge for the finale.`\
 https://nytimes.com/athletic/5908179/2024/11/08/nascar-championship-4-advantage-joey-logano/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/08/us/trump-election-news
 **Giants anticipate a payroll reduction in 2025: Source**\
 `The potential payroll reduction comes on the heels of a season where the team saw an attendance increase but also a revenue deficit.`\
 https://nytimes.com/athletic/5905307/2024/11/08/sf-giants-payroll-reduction-2025/
-
-**Forget a Soft Landing. The Fed’s Biggest Challenge May Be Trump.**\
-`The chair of the Federal Reserve made clear he would not resign, even under pressure. But pressure from the White House is likely, market watchers say.`\
-https://nytimes.com/2024/11/08/business/dealbook/powell-trump-white-house-pressure.html
 
