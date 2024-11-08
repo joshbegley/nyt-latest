@@ -1,3 +1,7 @@
+**Yankees' Steinbrenner sets meeting with Soto, Boras**\
+`Steinbrenner will meet with the star outfielder and his agent after they meet with Mets owner Steve Cohen next week.`\
+https://nytimes.com/athletic/5909447/2024/11/08/yankees-hal-steinbrenner-juan-soto-scott-boras-meeting/
+
 **André 3000 on 3 Grammy Nods for His Flute Album: ‘Super Duper Cool’**\
 `He was half of Outkast, the last rap act to win album of the year — 20 years ago. His latest nominations are for “New Blue Sun,” an expression of ultimate freedom.`\
 https://nytimes.com/2024/11/08/arts/music/andre-3000-grammys-new-blue-sun.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909153/2024/11/08/nascar-antitrust-lawsuit-michael
 **America’s Wobbly Democracy**\
 `Lessons from a London bridge.`\
 https://nytimes.com/2024/11/08/world/americas/americas-wobbly-democracy.html
-
-**With Ready Orders and an Energy Czar, Trump Plots Pivot to Fossil Fuels**\
-`President-elect Donald J. Trump’s transition team for climate and the environment is considering relocating the E.P.A. out of Washington and other drastic changes.`\
-https://nytimes.com/2024/11/08/climate/trump-transition-epa-interior-energy.html
 
