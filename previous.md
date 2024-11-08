@@ -1,3 +1,7 @@
+**A New Broadway Musical Asks: Can Robots Fall in Love?**\
+`“Maybe Happy Ending” had an initial Korean-language production in Seoul in 2016. Here are five things to know about the show.`\
+https://nytimes.com/2024/11/08/theater/maybe-happy-ending-broadway-criss.html
+
 **A Mainstay of the Bloomsbury Group, With a Show of Her Own**\
 `Vanessa Bell is often best remembered for the creative milieu she cultivated, but a new exhibition of her work makes a case for her as a groundbreaking artist.`\
 https://nytimes.com/2024/11/08/arts/design/vanessa-bell-exhibition-bloomsbury-group.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/nyregion/iran-trump-assassination-plot.html
 **Toto Wolff admits Lewis Hamilton's Mercedes exit was ‘on my radar’**\
 `The Mercedes boss shared more about the lead-up to Hamilton's exit and why he liked the situation it left Mercedes in.`\
 https://nytimes.com/athletic/5908883/2024/11/08/toto-wolff-lewis-hamilton-f1-mercedes-ferrari-book/
-
-**Jack Smith Seeks Pause in Jan. 6 Case After Trump’s Election**\
-`The special counsel asked for time to assess how to proceed now that Donald Trump is returning the White House, triggering a Justice Department policy against prosecuting a sitting president.`\
-https://nytimes.com/2024/11/08/us/politics/jack-smith-trump-jan-6-case.html
 

@@ -1,3 +1,7 @@
+**A New Broadway Musical Asks: Can Robots Fall in Love?**\
+`“Maybe Happy Ending” had an initial Korean-language production in Seoul in 2016. Here are five things to know about the show.`\
+https://nytimes.com/2024/11/08/theater/maybe-happy-ending-broadway-criss.html
+
 **A Mainstay of the Bloomsbury Group, With a Show of Her Own**\
 `Vanessa Bell is often best remembered for the creative milieu she cultivated, but a new exhibition of her work makes a case for her as a groundbreaking artist.`\
 https://nytimes.com/2024/11/08/arts/design/vanessa-bell-exhibition-bloomsbury-group.html
