@@ -1,3 +1,7 @@
+**Jack Smith Seeks Pause in Jan. 6 Case After Trump’s Election**\
+`The special counsel asked for time to assess how to proceed now that Donald Trump is returning the White House, triggering a Justice Department policy against prosecuting a sitting president.`\
+https://nytimes.com/2024/11/08/us/politics/jack-smith-trump-jan-6-case.html
+
 **Who will land Juan Soto? The odds reveal three real contenders and three others to watch**\
 `Juan Soto is a free agent this offseason. What do the odds say about where he might go next — and which team could he impact the most?`\
 https://nytimes.com/athletic/5906995/2024/11/08/juan-soto-yankees-dodgers-mets-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/t-magazine/roseland-home-goods.html
 **Party Whose Leader Is Known for Antisemitism Joins Lithuanian Government**\
 `A new coalition includes a party led by a politician notorious for antisemitic remarks, another blow to the longstanding refusal by Europe’s mainstream parties to join with those seen as extremist.`\
 https://nytimes.com/2024/11/08/world/europe/lithuania-coalition-antisemitism.html
-
-**Is a New Wave of Digital Nomadism Coming? Interest in Moving Abroad Is on the Rise.**\
-`Google searches for “best countries to move to” peaked immediately after the election. Here’s what you need to know about digital nomad visas.`\
-https://nytimes.com/2024/11/08/travel/digital-nomad-visas-moving-abroad-election.html
 
