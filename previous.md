@@ -1,40 +1,40 @@
-**How Sabres chased Igor Shesterkin in lopsided win over Rangers: 4 takeaways**\
-`Buffalo chased Shesterkin from the game in the second period of a dominant 6-1 win over the Rangers.`\
-https://nytimes.com/athletic/5907766/2024/11/07/sabres-rangers-igor-shesterkin-takeaways/
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/11/08/briefing/trump-tax-cuts-ukraine-russia.html
 
-**Rangers' poor defense in front of Igor Shesterkin, line switches, more: 4 takeaways**\
-`“There’s no excuse for what happened today,” Mika Zibanejad said after the Rangers' 6-1 loss to the Sabres. `\
-https://nytimes.com/athletic/5907775/2024/11/07/rangers-sabres-igor-shesterkin/
+**Argentina’s Leader Takes Ax to Program That Drove Down Teen Pregnancy**\
+`Argentina has been known as one of Latin America’s most socially progressive countries. But President Javier Milei’s austerity measures have cut programs aimed at helping women.`\
+https://nytimes.com/2024/11/08/world/americas/argentina-javier-milei-abortion-access.html
 
-**Have the Bruins turned a corner? Three signs of progress**\
-`The Bruins improved to 7-7-1 on the season and their latest win over the Flames might signal traction.`\
-https://nytimes.com/athletic/5907767/2024/11/07/bruins-flames-brad-marchand/
+**What to Know About Ireland’s Snap General Election**\
+`The Republic of Ireland will hold its first general election in almost five years on Nov. 29, after Prime Minister Simon Harris said he would dissolve parliament on Friday.`\
+https://nytimes.com/article/ireland-general-election.html
 
-**Wave of Racist Texts After Election Prompts Scrutiny of F.B.I.**\
-`Offensive messages were reported across the South, Midwest, Mid-Atlantic and as far west as Texas.`\
-https://nytimes.com/2024/11/07/us/politics/a-wave-of-racist-texts-after-the-election-prompts-the-scrutiny-of-the-fbi.html
+**Companies Brace for the Return of Trump’s Old Trade Gripes**\
+`The president-elect is again calling out companies by name in his campaign against what he sees as other countries’ unfair practices.`\
+https://nytimes.com/2024/11/08/business/trump-komatsu.html
 
-**Furious Mike Sullivan calls out some Penguins players after loss to Hurricanes**\
-`Sullivan fumed about certain members of the Penguins and their effort level after a 5-1 loss Thursday in Raleigh.`\
-https://nytimes.com/athletic/5906610/2024/11/07/penguins-hurricanes-coach-mike-sullivan/
+**Men, Please Stop Talking About Burning Man**\
+`Am I the only woman meeting Burning Mansplainers on dates?`\
+https://nytimes.com/2024/11/08/style/modern-love-burning-man-mansplainers.html
 
-**Until Saturday: Coaching carousel news, sort of**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/5907703/2024/11/07/billy-napier-florida-college-football-until-saturday/
+**Two Bar Patrons Step Into a Twitter Feed**\
+`Tina Survilla Lindell and Cesar Kuriyama, who met at the start of the pandemic, connected over the temporary closing of their favorite bar.`\
+https://nytimes.com/2024/11/08/style/tina-survilla-lindell-cesar-kuriyama-wedding.html
 
-**Suit Against Meta, Using a Tech Shield Law, Is Dismissed**\
-`A professor sued pre-emptively to release software that would let users automatically unfollow everyone in their Facebook feed.`\
-https://nytimes.com/2024/11/07/technology/meta-section-230-lawsuit.html
+**First They Built a Relationship. Then They Built a Brand.**\
+`When Barry Bordelon and Jordan Slocum connected on Grindr, becoming the Brownstone Boys was not on their bingo card.`\
+https://nytimes.com/2024/11/08/style/barry-bordelon-jordan-slocum-wedding.html
 
-**One Who’s on a Roll**\
-`Evans Clinchy opens our solving weekend.`\
-https://nytimes.com/2024/11/07/crosswords/daily-puzzle-2024-11-08.html
+**All It Took Was 10 Days of Dating**\
+`When Saira Badat and Raed Khan met in July, they knew almost immediately that they would be married — ideally this year.`\
+https://nytimes.com/2024/11/08/style/saira-badat-raed-khan-wedding.html
 
-**What we're hearing about the Mets at the GM meetings**\
-`Some industry sources say the Mets will either land Juan Soto or at least raise the price tag and make it harder on the Yankees.`\
-https://nytimes.com/athletic/5907573/2024/11/07/mets-juan-soto-gm-meetings/
+**’Til Death (and Maybe Not Even Then) Do They Part**\
+`Brandon Hupp and Lyle Shearer found kindred spirits in each other. What could be more fitting than a wedding on Halloween?`\
+https://nytimes.com/2024/11/08/style/brandon-hupp-lyle-shearer-wedding.html
 
-**‘Walden’ Review: My Sister! My Twin! My Astronaut!**\
-`Emmy Rossum and Zoë Winters star in a new Off Broadway play that’s a climate disaster drama cohabiting with a domestic soap opera.`\
-https://nytimes.com/2024/11/07/theater/walden-review-emmy-rossum-zoe-winters.html
+**Quote of the Day: Pakistani City’s Pollution Hospitalizes Hundreds**\
+`Quotation of the Day for Friday, November 8, 2024`\
+https://nytimes.com/2024/11/07/pageoneplus/quote-of-the-day-pakistani-citys-pollution-hospitalizes-hundreds.html
 
