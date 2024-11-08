@@ -1,3 +1,7 @@
+**Connor Hellebuyck steals 'revenge game,' Winnipeg continues historic start: 3 takeaways**\
+`The Jets won their league-leading 13th game of the season against the team that dominated them in the playoffs.`\
+https://nytimes.com/athletic/5904097/2024/11/08/connor-hellebuyck-revenge-winnipeg-historic-start-takeaways/
+
 **Amad has given Amorim his first selection problem at United - four into two won't go**\
 `The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
 https://nytimes.com/athletic/5907631/2024/11/08/amad-amorin-manchester-united-attackers/
