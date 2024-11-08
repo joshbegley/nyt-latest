@@ -1,3 +1,19 @@
+**Cooper has instilled resilience but Leicester need to become more than comeback kings**\
+`Leicester are nearly halfway to their total of points gained from losing positions from their disastrous relegation season of 2022-23`\
+https://nytimes.com/athletic/5905918/2024/11/08/steve-cooper-has-instilled-resilience-but-leicester-need-to-become-more-than-comeback-kings/
+
+**Is Jarrod Bowen captain material?**\
+`Forward has a heck of a job trying to lift spirits in the coming weeks. Only time will tell if he will grow into the leader West Ham need`\
+https://nytimes.com/athletic/5905727/2024/11/08/jarrod-bowen-west-ham-captain/
+
+**FPL: The Erling Haaland conundrum**\
+`In FPL, all roads often lead back to Haaland - Abdul Rehman analyses the pros of cons of selling the game's most expensive ever player`\
+https://nytimes.com/athletic/5901587/2024/11/08/fantasy-premier-league-erling-haaland-keep-sell/
+
+**Jackson outduels Burrow as Ravens top Bengals in 35-34 thriller: Takeaways**\
+`Jackson threw three of his four touchdowns on consecutive fourth-quarter drives to put Baltimore out of reach.`\
+https://nytimes.com/athletic/5907555/2024/11/08/ravens-bengals-score-result-takeaways-tnf/
+
 **Why John Tortorella's decision to scratch Matvei Michkov isn't shocking — or alarming**\
 `The Flyers coach knows Michkov is the future of the organization, but there are going to be speed bumps on his path.
 `\
