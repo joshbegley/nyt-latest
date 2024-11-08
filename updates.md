@@ -1,3 +1,11 @@
+**Wild continue success on road, overcome pair of overturned goals: 3 takeaways**\
+`The Wild finally pulled away from the Sharks for a 5-2 victory, which featured good nights from the special teams.`\
+https://nytimes.com/athletic/5907825/2024/11/08/wild-kirill-kaprizov-sharks-takeaways/
+
+**Jimmy Fallon Relays Biden’s Promise of a Peaceful Transfer of Power**\
+`“Democrats were like, ‘Well, I guess at this point we can let him speak again,’” the “Tonight Show” host said.`\
+https://nytimes.com/2024/11/08/arts/television/jimmy-fallon-biden.html
+
 **Clashes Linked to Soccer Game Between Dutch and Israeli Teams**\
 `Footage shows a crowd appearing to attack a person and then scattering as emergency sirens could be heard approaching. Israeli and Dutch officials have said the violence was driven by antisemitism.`\
 https://nytimes.com/video/world/middleeast/100000009815418/amsterdam-clash-soccer-israel.html
