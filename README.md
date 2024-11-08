@@ -1,3 +1,11 @@
+**The Election’s Other Biggest Losers? Economists.**\
+`Democrats have to reckon with the fact that voters don’t want what economists think is best.`\
+https://nytimes.com/2024/11/08/opinion/election-economists-populism.html
+
+**Angels' Zach Neto could miss start of 2025 season following shoulder surgery**\
+`Angels GM Perry Minasian declined to say what the injury was, what procedure Neto received or how long he could be out.`\
+https://nytimes.com/athletic/5909245/2024/11/08/angels-zach-neto-shoulder-surgery/
+
 **Who Is Susie Wiles, Trump’s Pick for White House Chief of Staff?**\
 `Ms. Wiles, a principal architect of Donald J. Trump’s 2024 presidential campaign, will become the first woman to hold the job.`\
 https://nytimes.com/2024/11/08/us/elections/who-is-susie-wiles-trump-chief-of-staff.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/us/politics/trump-musk-zelensky.html
 **Painting by A.I.-Powered Robot Sells for $1.1 Million**\
 `The portrait depicts the British mathematician Alan Turing as the god of artificial intelligence. Its creator is a robot named Ai-Da that resembles a woman with a bob haircut.`\
 https://nytimes.com/2024/11/08/arts/ai-painting-alan-turing-auction.html
-
-**A New Broadway Musical Asks: Can Robots Fall in Love?**\
-`“Maybe Happy Ending” had an initial Korean-language production in Seoul in 2016. Here are five things to know about the show.`\
-https://nytimes.com/2024/11/08/theater/maybe-happy-ending-broadway-criss.html
-
-**A Mainstay of the Bloomsbury Group, With a Show of Her Own**\
-`Vanessa Bell is often best remembered for the creative milieu she cultivated, but a new exhibition of her work makes a case for her as a groundbreaking artist.`\
-https://nytimes.com/2024/11/08/arts/design/vanessa-bell-exhibition-bloomsbury-group.html
 
