@@ -1,3 +1,11 @@
+**‘It’s demoralizing to a defense’: Chiefs becoming masters of the long-play touchdown drive**\
+`The Chiefs lead the NFL with 11 touchdown drives featuring 10 or more plays, thanks in large part to Kareem Hunt and the ground game.`\
+https://nytimes.com/athletic/5907273/2024/11/08/chiefs-long-drive-touchdowns-patrick-mahomes/
+
+**Caleb Williams' accuracy, Shane Waldron's job security: Bears mailbag, Week 10 picks**\
+`The Bears have found themselves in another week of conversations about potential coach firings. Can they get back on track vs. the Patriots?`\
+https://nytimes.com/athletic/5907084/2024/11/08/bears-mailbag-caleb-williams-shane-waldron/
+
 **How My War Came Home**\
 `A reporter thought of his city in the west of Ukraine as a haven from Russian bombs — until a strike hit his street.`\
 https://nytimes.com/2024/11/08/world/europe/ukraine-reporter-home-airstrike.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/podcasts/trump-chief-of-staff-musk.html
 **Inside Trump World as the Next Chapter Begins**\
 `In the days following the election, the president-elect has been gearing up for a second administration.`\
 https://nytimes.com/2024/11/08/podcasts/the-daily/trump-second-administration.html
-
-**How the New York Giants are trying to win more than a game in Germany**\
-`Like many franchises around the NFL, the Giants are determined to grow fan bases outside of the United States. `\
-https://nytimes.com/athletic/5905922/2024/11/08/new-york-giants-germany-nfl-fans-munich/
-
-**The Connections Companion No. 517**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 9, 2024.`\
-https://nytimes.com/2024/11/08/crosswords/connections-companion-517.html
 
