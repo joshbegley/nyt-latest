@@ -1,3 +1,7 @@
+**Suit Against Meta, Using a Tech Shield Law, Is Dismissed**\
+`A professor sued pre-emptively to release software that would let users automatically unfollow everyone in their Facebook feed.`\
+https://nytimes.com/2024/11/07/technology/meta-section-230-lawsuit.html
+
 **One Who’s on a Roll**\
 `Evans Clinchy opens our solving weekend.`\
 https://nytimes.com/2024/11/07/crosswords/daily-puzzle-2024-11-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907332/2024/11/07/49ers-mailbag-trades-jordan-maso
 **San Francisco Mayor Concedes Race to Levi Strauss Heir**\
 `Mayor London Breed acknowledged on Thursday that Daniel Lurie, a first-time candidate, would succeed her in office.`\
 https://nytimes.com/2024/11/07/us/politics/san-francisco-mayor-breed-lurie.html
-
-**New York City Will Stop Giving Debit Cards to Migrants**\
-`Mayor Eric Adams is ending a contentious pilot program that gave 2,600 migrant families debit cards to purchase food.`\
-https://nytimes.com/2024/11/07/nyregion/migrant-debit-cards-nyc.html
 
