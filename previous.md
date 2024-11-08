@@ -1,3 +1,19 @@
+**Wolves yearn for first Premier League win of season as deeper concerns loom**\
+`Gary O'Neil has overseen one win in 20 league games, but short-term issues are compounded by off-field uncertainties at Molineux`\
+https://nytimes.com/athletic/5903997/2024/11/08/wolves-oneil-fosun-molineux-sack/
+
+**Who do Crystal Palace miss more, Joachim Andersen or Jordan Ayew?**\
+`Oliver Glasner's team are set to come up against a familiar foe on Saturday as the Danish defender returns to Selhurst Park`\
+https://nytimes.com/athletic/5893553/2024/11/08/palace-andersen-ayew-fulham/
+
+**Pep Guardiola's future at Manchester City: Is he preparing to stay and rebuild?**\
+`Sam Lee looks at various factors affecting the club and how they might impact Guardiola's future`\
+https://nytimes.com/athletic/5902882/2024/11/08/pep-guardiola-future-manchester-city/
+
+**Arsenal need to get their shape right - even if Martin Odegaard isn't fit to start yet**\
+`Odegaard's Inter cameo offered a tantalising glimpse into what Arsenal have missed but their approach needs refinement with our without him`\
+https://nytimes.com/athletic/5905712/2024/11/08/arsenal-martin-odegaard-formation-shape-midfield/
+
 **Ja'Marr Chase makes history with monstrous stats in Bengals' loss**\
 `Chase became the first player in NFL history to record multiple games of 250-plus receiving yards and two-plus touchdowns in a career.`\
 https://nytimes.com/athletic/5907833/2024/11/08/jamarr-chase-bengals-stats-ravens-tnf/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/5907800/2024/11/08/flyers-matvei-michkov-scratch-jo
 **Whistled by the Bernabeu - so what's next for Tchouameni? And who replaces him now he's injured?**\
 `Against Milan, Tchouameni suffered the same fate as many former Madrid icons. But he's still an important part of how the team play`\
 https://nytimes.com/athletic/5906491/2024/11/08/real-madrid-aurelien-tchouameni-injury/
-
-**Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/11/08/briefing/trump-tax-cuts-ukraine-russia.html
-
-**Argentina’s Leader Takes Ax to Program That Drove Down Teen Pregnancy**\
-`Argentina has been known as one of Latin America’s most socially progressive countries. But President Javier Milei’s austerity measures have cut programs aimed at helping women.`\
-https://nytimes.com/2024/11/08/world/americas/argentina-javier-milei-abortion-access.html
-
-**What to Know About Ireland’s Snap General Election**\
-`The Republic of Ireland will hold its first general election in almost five years on Nov. 29, after Prime Minister Simon Harris said he would dissolve parliament on Friday.`\
-https://nytimes.com/article/ireland-general-election.html
-
-**Companies Brace for the Return of Trump’s Old Trade Gripes**\
-`The president-elect is again calling out companies by name in his campaign against what he sees as other countries’ unfair practices.`\
-https://nytimes.com/2024/11/08/business/trump-komatsu.html
 
