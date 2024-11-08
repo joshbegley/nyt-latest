@@ -1,3 +1,7 @@
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/08/nhl-standings-playoffs-projections-odds/
+
 **Nuno: Nottingham Forest must 'stay humble' amid strong Premier League start**\
 `Nuno Espirito Santo says Nottingham Forest must remain humble and focussed following their impressive start to the season, which has left the club third in the Premier League.`\
 https://nytimes.com/athletic/5908496/2024/11/08/nottingham-forest-premier-league-nuno/
