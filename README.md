@@ -1,3 +1,15 @@
+**Did Beyoncé’s Grammy Nods Really Top Michael Jackson’s for ‘Thriller’?**\
+`Not exactly. But in Grammyland, nothing is simple.`\
+https://nytimes.com/2024/11/08/arts/music/grammys-beyonce-cowboy-carter-michael-jackson-thriller.html
+
+**Gauff continues resurgence by beating Sabalenka at WTA Tour Finals to set up Zheng final**\
+`Coco Gauff may be saving the best for last.`\
+https://nytimes.com/athletic/5909184/2024/11/08/wta-tour-finals-gauff-sabalenka-result-analysis/
+
+**Colts' Michael Pittman Jr. ruled out vs. Bills with back injury**\
+`The Colts’ top wideout has only missed five games in his first five NFL seasons.`\
+https://nytimes.com/athletic/5909284/2024/11/08/colts-michael-pittman-out-bills/
+
 **Phillies promote Preston Mattingly to GM; Sam Fuld to move to business side in 2026**\
 `The Phillies promoted Preston Mattingly, their farm director, to general manager Friday afternoon in a front-office shakeup.`\
 https://nytimes.com/athletic/5909272/2024/11/08/phillies-promote-preston-mattingly-sam-fuld/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/08/weather/colorado-new-mexico-snowstorm.html
 **Titans QB Will Levis to start vs. Chargers, coach Brian Callahan says**\
 `The 25-year-old was listed as a full participant on the practice report Thursday for the first time since Week 7.`\
 https://nytimes.com/athletic/5909137/2024/11/08/will-levis-titans-starting-quarterback-injury-update/
-
-**The Election’s Other Biggest Losers? Economists.**\
-`Democrats have to reckon with the fact that voters don’t want what economists think is best.`\
-https://nytimes.com/2024/11/08/opinion/election-economists-populism.html
-
-**Angels' Zach Neto could miss start of 2025 season following shoulder surgery**\
-`Angels GM Perry Minasian declined to say what the injury was, what procedure Neto received or how long he could be out.`\
-https://nytimes.com/athletic/5909245/2024/11/08/angels-zach-neto-shoulder-surgery/
-
-**Who Is Susie Wiles, Trump’s Pick for White House Chief of Staff?**\
-`Ms. Wiles, a principal architect of Donald J. Trump’s 2024 presidential campaign, will become the first woman to hold the job.`\
-https://nytimes.com/2024/11/08/us/elections/who-is-susie-wiles-trump-chief-of-staff.html
 
