@@ -1,3 +1,15 @@
+**R.F.K. Jr. lays out possible public health changes he might oversee under Trump.**\
+`By Remy Tumin`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news/rfk-jr-lays-out-possible-public-health-changes-he-might-oversee-under-trump
+
+**The Best Movies and TV Shows Coming to Netflix in November**\
+`A parade of notable new titles are coming for U.S. subscribers all month. Here’s a roundup of the most promising.`\
+https://nytimes.com/2024/11/08/arts/television/netflix-new-november-shows-movies.html
+
+**Ukraine Hit Again Overnight by Deadly Barrage From Russia**\
+`Millions trek to shelters nightly or take their chances at home as unceasing missile and drone attacks drag on. Some Ukrainians are looking — with hope or sarcasm — to Trump for respite.`\
+https://nytimes.com/2024/11/08/world/europe/ukraine-drones-missiles-barrage.html
+
 **Watch Mikey Madison Take a Mansion Tour in ‘Anora’**\
 `The writer, director and editor Sean Baker narrates an early sequence from his film, which also features Mark Eydelshteyn.`\
 https://nytimes.com/2024/11/08/movies/anora-clip-mikey-madison.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-bl
 **Trump’s Supreme Court Agenda Is Likely to Include Legal U-Turns**\
 `In recent years, new administrations have not been shy about disavowing positions taken by their predecessors.`\
 https://nytimes.com/2024/11/08/us/politics/trump-supreme-court.html
-
-**A Pioneer of California Cuisine Turns 35**\
-`Michael McCarty and Kim McCarty will celebrate the New York outpost of Michael’s, their Santa Monica restaurant, with a few hundred regulars.`\
-https://nytimes.com/2024/11/08/dining/michaels-santa-monica-california-cuisine.html
-
-**Ex-Newcastle defender Dummett set to join Wigan**\
-`Former Newcastle United defender Paul Dummett has agreed to join League One side Wigan Athletic on an initial short-term deal.`\
-https://nytimes.com/athletic/5908658/2024/11/08/paul-dummett-wigan-athletic/
-
-**With Trump Tariffs Looming, Businesses Try to ‘Run From a Moving Target’**\
-`Companies are filling their warehouses or looking into moving factories as they weigh President-elect Donald J. Trump’s threats to impose tariffs on foreign goods.`\
-https://nytimes.com/2024/11/08/us/politics/trump-tariffs-china.html
 
