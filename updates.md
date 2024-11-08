@@ -1,3 +1,11 @@
+**Kyle Shanahan: Christian McCaffrey expected to make season debut Sunday**\
+`Jordan Mason, who has taken McCaffrey's mantle as San Francisco's leading rusher this season, has been limited in practice this week.`\
+https://nytimes.com/athletic/5907464/2024/11/07/christian-mccaffrey-injury-update-status-49ers/
+
+**49ers mailbag: Why no splashy trade? Which players are on the chopping block?**\
+`Among the questions this week: How will the 49ers divide the running back snaps and is Brock Purdy bummed that "Outer Banks" is ending?`\
+https://nytimes.com/athletic/5907332/2024/11/07/49ers-mailbag-trades-jordan-mason-talanoa-hufanga/
+
 **49ers mailbag: Why no splashy trade? Which players are on the chopping blocking?**\
 `Among the questions this week: How will the 49ers divide the running back snaps and is Brock Purdy bummed that "Outer Banks" is ending?`\
 https://nytimes.com/athletic/5907332/2024/11/07/49ers-mailbag-trades-jordan-mason-talanoa-hufanga/
