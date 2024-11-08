@@ -1,3 +1,7 @@
+**$7 Million Deal Is Reached for Upper West Side Movie Theater**\
+`A nonprofit group’s agreement with the owners of the shuttered Metro Theater is contingent on its raising the money by the end of the year.`\
+https://nytimes.com/2024/11/08/movies/metro-theater-upper-west-side.html
+
 **Reds leave Diamond Sports; MLB objects to broadcaster's bankruptcy plan**\
 `It wasn’t immediately clear whether the Reds would join the ranks of six other teams whose games will be broadcast and produced by MLB.`\
 https://nytimes.com/athletic/5906864/2024/11/08/reds-leave-broadcaster-diamond-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/article/plan-b-contraception-morning-after-pill.html
 **Trump Makes His First Moves**\
 `Also, an attack on Israeli soccer fans. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/11/08/briefing/trump-transition-musk-israel.html
-
-**University of Southern California President Will Retire in July**\
-`Carol Folt took over in 2019, often steadying the university but drawing criticism for her handling of campus protests last spring.`\
-https://nytimes.com/2024/11/08/us/university-of-southern-california-president-retirement-carol-folt.html
 

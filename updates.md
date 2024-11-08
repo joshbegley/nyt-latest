@@ -1,3 +1,7 @@
+**$7 Million Deal Is Reached for Upper West Side Movie Theater**\
+`A nonprofit group’s agreement with the owners of the shuttered Metro Theater is contingent on its raising the money by the end of the year.`\
+https://nytimes.com/2024/11/08/movies/metro-theater-upper-west-side.html
+
 **Reds leave Diamond Sports; MLB objects to broadcaster's bankruptcy plan**\
 `It wasn’t immediately clear whether the Reds would join the ranks of six other teams whose games will be broadcast and produced by MLB.`\
 https://nytimes.com/athletic/5906864/2024/11/08/reds-leave-broadcaster-diamond-mlb/
