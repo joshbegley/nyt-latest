@@ -1,3 +1,7 @@
+**A Mainstay of the Bloomsbury Group, With a Show of Her Own**\
+`Vanessa Bell is often best remembered for the creative milieu she cultivated, but a new exhibition of her work makes a case for her as a groundbreaking artist.`\
+https://nytimes.com/2024/11/08/arts/design/vanessa-bell-exhibition-bloomsbury-group.html
+
 **Playing Out a Dream, a Long, Long Way From Home**\
 `An academy of a team in England’s lower leagues offers Americans at the end of their collegiate eligibility a chance to continue their soccer careers.`\
 https://nytimes.com/2024/11/08/world/europe/academy-soccer-americans-england.html
