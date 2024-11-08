@@ -1,3 +1,7 @@
+**Tottenham charged by FA over homophobic chants at Manchester United**\
+`The Football Association (FA) has charged Tottenham Hotspur in relation to homophobic chanting during their Premier League game against Manchester United in September.`\
+https://nytimes.com/athletic/5908448/2024/11/08/tottenham-fa-charge-homophobic-chants/
+
 **Palace's Nketiah out of Fulham gam with hamstring injury - Glasner**\
 `Oliver Glasner is facing an injury crisis with Eddie Nketiah the latest Crystal Palace player to be ruled out of action.`\
 https://nytimes.com/athletic/5908485/2024/11/08/eddie-nketiah-injury-update-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908245/2024/11/08/carolina-panthers-germany-nfl-fa
 **Multiple CFP bids? Coach Prime to the Playoff? Is BYU for real? Big 12 mailbag**\
 `Why did Iowa State look flat-footed vs. Texas Tech? What's next for Mike Gundy?`\
 https://nytimes.com/athletic/5907960/2024/11/08/big-12-playoff-colorado-byu/
-
-**New York’s Wu-Tang Clan Street Signs Sell Out in a Blink**\
-`The 100 replicas of the “Wu-Tang Clan District” sign on Staten Island, where the group was formed in 1992, were gone in less than two hours.`\
-https://nytimes.com/2024/11/08/arts/music/wu-tang-clan-street-sign-nyc.html
 
