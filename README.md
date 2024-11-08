@@ -1,3 +1,7 @@
+**Toto Wolff admits Lewis Hamilton's Mercedes exit was ‘on my radar’**\
+`The Mercedes boss shared more about the lead-up to Hamilton's exit and why he liked the situation it left Mercedes in.`\
+https://nytimes.com/athletic/5908883/2024/11/08/toto-wolff-lewis-hamilton-f1-mercedes-ferrari-book/
+
 **Jack Smith Seeks Pause in Jan. 6 Case After Trump’s Election**\
 `The special counsel asked for time to assess how to proceed now that Donald Trump is returning the White House, triggering a Justice Department policy against prosecuting a sitting president.`\
 https://nytimes.com/2024/11/08/us/politics/jack-smith-trump-jan-6-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/07/opinion/thepoint/israeli-attack-soccer-amste
 **From a Celebrated Chef, a New Line of Home Goods**\
 `Clare de Boer and her husband, Luke Sherwin, have launched Roseland, a company selling furniture inspired by early American design.`\
 https://nytimes.com/2024/11/08/t-magazine/roseland-home-goods.html
-
-**Party Whose Leader Is Known for Antisemitism Joins Lithuanian Government**\
-`A new coalition includes a party led by a politician notorious for antisemitic remarks, another blow to the longstanding refusal by Europe’s mainstream parties to join with those seen as extremist.`\
-https://nytimes.com/2024/11/08/world/europe/lithuania-coalition-antisemitism.html
 
