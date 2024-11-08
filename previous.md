@@ -23,7 +23,7 @@ https://nytimes.com/2024/11/07/nyregion/migrant-debit-cards-nyc.html
 https://nytimes.com/2024/11/07/us/politics/biden-harris-campaign.html
 
 **Trump’s Strange Bedfellows: Arab Americans and Right-Leaning Jews**\
-`Donald J. Trump won votes from Arab Americans and pro-Israel American Jews. Someone is likely to be disappointed.`\
+`Donald J. Trump won votes from Arab Americans and conservative pro-Israel Jews. Someone is likely to be disappointed.`\
 https://nytimes.com/2024/11/07/us/politics/trump-arab-american-jews.html
 
 **Man Who Illegally Accessed Ginsburg’s Medical Records Gets 2 Years in Prison**\

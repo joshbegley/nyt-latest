@@ -1,3 +1,7 @@
+**Trump’s Strange Bedfellows: Arab Americans and Right-Leaning Jews**\
+`Donald J. Trump won votes from Arab Americans and conservative pro-Israel Jews. Someone is likely to be disappointed.`\
+https://nytimes.com/2024/11/07/us/politics/trump-arab-american-jews.html
+
 **On the Ballot, Abortion Rights Proved More Popular Than Kamala Harris**\
 `In states like Arizona and Nevada, some voters split their tickets, supporting abortion rights measures while also backing Donald Trump.`\
 https://nytimes.com/2024/11/07/us/elections/abortion-ballot-harris-democrats.html
