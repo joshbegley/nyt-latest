@@ -1,3 +1,15 @@
+**Here’s the latest on the election.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news/heres-the-latest-on-the-election
+
+**Election Live Updates: Control of House Remains Up for Grabs**\
+`President-elect Donald J. Trump and the Republican Party, which has already won a majority in the Senate, are awaiting race calls in California, Arizona and other states that could give them full control of the next Congress.`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news
+
+**Giants anticipate a payroll reduction in 2025: Source**\
+`The potential payroll reduction comes on the heels of a season where the team saw an attendance increase but also a revenue deficit.`\
+https://nytimes.com/athletic/5905307/2024/11/08/sf-giants-payroll-reduction-2025/
+
 **Forget a Soft Landing. The Fed’s Biggest Challenge May Be Trump.**\
 `The chair of the Federal Reserve made clear he would not resign, even under pressure. But pressure from the White House is likely, market watchers say.`\
 https://nytimes.com/2024/11/08/business/dealbook/powell-trump-white-house-pressure.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5908209/2024/11/08/luke-shaw-injury-update-manchest
 **The Athletic’s Friday football quiz question #29**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5908145/2024/11/08/the-athletics-friday-football-quiz-question-29/
-
-**Once again, Justin Herbert is the engine of the Chargers offense**\
-`The star quarterback is driving and elevating the offense with his playmaking in the passing game.`\
-https://nytimes.com/athletic/5907359/2024/11/08/chargers-justin-herbert-offense-playmaking/
-
-**Trinity Rodman: My game in my words**\
-`Rodman is a student of the game. She sat down with The Athletic to analyze her first four years as a professional`\
-https://nytimes.com/athletic/5907576/2024/11/08/trinity-rodman-analysis-uswnt-spirit/
-
-**Row Z: Mbappe and Deschamps, everything's fine - plus Gerrard discovers his inner Brent**\
-`Tim Spiers' weekly look at football's weirder side - also featuring a Brazilian pig's head`\
-https://nytimes.com/athletic/5902703/2024/11/08/kylian-mbappe-didier-deschamps-france/
 
