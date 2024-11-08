@@ -1,3 +1,15 @@
+**Kellen Moore returns to Dallas, still a PowerPoint wiz and meticulous whisperer of offenses**\
+`Kellen Moore developed his skills as a coach while he was still in the NFL as a player.`\
+https://nytimes.com/athletic/5903409/2024/11/08/kellen-moore-eagles-offense-cowboys/
+
+**The New York Jets bond that gave Rocco Becht a plan to help lift Iowa State to new heights**\
+`Behind Iowa State's push for a first conference title in a century is QB prep inspired by former Jets Anthony Becht and Chad Pennington.`\
+https://nytimes.com/athletic/5906741/2024/11/08/rocco-becht-iowa-state-college-football-playoff/
+
+**Commanders midseason predictions: Terry McLaurin makes Pro Bowl, Washington wins NFC East**\
+`Plus, why Johnny Newton's performance over the second half of the season could spell the end of Jonathan Allen's time in Washington. `\
+https://nytimes.com/athletic/5906918/2024/11/08/commanders-predictions-nfl-midseason-2024/
+
 **Jota's injury return expected in December**\
 `Arne Slot doesn&#8217;t expect to have Liverpool attacker Diogo Jota back available until December.`\
 https://nytimes.com/athletic/5908084/2024/11/08/diogo-jota-injury-return/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5907269/2024/11/08/cowboys-cooper-rush-ceedee-lamb-
 **'Never in a million years': How the Bengals wasted latest Burrow-Chase masterpiece**\
 `Joe Burrow and Ja'Marr Chase were on fire and had the Ravens on the ropes, but a series of failures knocked Cincinnati to 4-6.`\
 https://nytimes.com/athletic/5908034/2024/11/08/bengals-ravens-jamarr-chase-joe-burrow/
-
-**The Louisville revival project: Pat Kelsey’s vision to turn the Cards (back) into contenders**\
-`Louisville needed someone who understands what one of college basketball's most storied brands is supposed to look like, and feel like.`\
-https://nytimes.com/athletic/5906765/2024/11/08/louisville-mens-basketball-coach-pat-kelsey/
-
-**Steelers predictions at NFL midseason: Mike Tomlin wins award, first playoff game since 2016**\
-`With the season halfway through, let's look into the Steelers' second half, key players, and why Pittsburgh can win a playoff game. `\
-https://nytimes.com/athletic/5907068/2024/11/08/steelers-nfl-midseason-predictions-mike-tomlin/
-
-**Eight Browns midseason predictions: Dorian Thompson-Robinson takes over as starting QB**\
-`What will be Cleveland's record when the season comes to an end, and which young players will cement themselves as long-term roster pieces?`\
-https://nytimes.com/athletic/5906843/2024/11/08/browns-predictions-nfl-midseason-2024/
 
