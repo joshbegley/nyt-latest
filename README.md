@@ -1,3 +1,7 @@
+**Kyle Shanahan: Christian McCaffrey expected to make season debut Sunday**\
+`Jordan Mason, who has taken McCaffrey's mantle as San Francisco's leading rusher this season, has been limited in practice this week.`\
+https://nytimes.com/athletic/5907464/2024/11/07/christian-mccaffrey-injury-update-status-49ers/
+
 **49ers mailbag: Why no splashy trade? Which players are on the chopping blocking?**\
 `Among the questions this week: How will the 49ers divide the running back snaps and is Brock Purdy bummed that "Outer Banks" is ending?`\
 https://nytimes.com/athletic/5907332/2024/11/07/49ers-mailbag-trades-jordan-mason-talanoa-hufanga/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/nyregion/rudy-giuliani-court-hearing.html
 **What’s Next for Kamala Harris? Here Are Six Options.**\
 `Her friends, aides and political allies say it’s too soon for her to even contemplate her next career move. But the speculation has already begun.`\
 https://nytimes.com/2024/11/07/us/politics/kamala-harris-2028-run-for-president.html
-
-**Keep Fluoride in New York Water? Mayor Adams Hesitates, Then Weighs In.**\
-`President-elect Donald J. Trump has indicated that he would support ending water fluoridation. Mayor Eric Adams was reticent on the issue, before eventually taking a side.`\
-https://nytimes.com/2024/11/07/nyregion/fluoride-water-eric-adams.html
 
