@@ -1,3 +1,7 @@
+**The Age of the Pogrom Returns**\
+`The attack on Israeli soccer fans comes after years of rising antisemitism in Europe, much within Muslim communities.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/israeli-attack-soccer-amsterdam-pogrom
+
 **From a Celebrated Chef, a New Line of Home Goods**\
 `Clare de Boer and her husband, Luke Sherwin, have launched Roseland, a company selling furniture inspired by early American design.`\
 https://nytimes.com/2024/11/08/t-magazine/roseland-home-goods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908291/2024/11/08/paul-george-76ers-clippers-leagu
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 11?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5899813/2024/11/08/premier-league-predicted-line-ups-gameweek-11/
-
-**Notre-Dame’s Bells Ring Together for First Time Since Fire**\
-`The sound of Notre-Dame’s bells pealed throughout Paris for the first time since 2019 — a symbol of rebirth as it prepares to reopen next month.`\
-https://nytimes.com/2024/11/08/world/europe/notre-dame-bells-cathedral-paris.html
 
