@@ -1,40 +1,40 @@
+**Lamar Jackson's heroics lift Ravens over Bengals, but the defense has to start doing its part**\
+`Baltimore's pass defense, which ranks last in the NFL, surrendered 428 yards to Joe Burrow, Ja'Marr Chase and company. `\
+https://nytimes.com/athletic/5908004/2024/11/08/lamar-jackson-ravens-defense-bengals/
+
+**Cooper Rush, CeeDee Lamb connection is one of few bright spots for Cowboys**\
+`The veteran backup quarterback has a 5-1 record as a starter for Dallas but his one loss came against Sunday's foe, the Philadelphia Eagles.`\
+https://nytimes.com/athletic/5907269/2024/11/08/cowboys-cooper-rush-ceedee-lamb-connection/
+
+**'Never in a million years': How the Bengals wasted latest Burrow-Chase masterpiece**\
+`Joe Burrow and Ja'Marr Chase were on fire and had the Ravens on the ropes, but a series of failures knocked Cincinnati to 4-6.`\
+https://nytimes.com/athletic/5908034/2024/11/08/bengals-ravens-jamarr-chase-joe-burrow/
+
+**The Louisville revival project: Pat Kelsey’s vision to turn the Cards (back) into contenders**\
+`Louisville needed someone who understands what one of college basketball's most storied brands is supposed to look like, and feel like.`\
+https://nytimes.com/athletic/5906765/2024/11/08/louisville-mens-basketball-coach-pat-kelsey/
+
+**Steelers predictions at NFL midseason: Mike Tomlin wins award, first playoff game since 2016**\
+`With the season halfway through, let's look into the Steelers' second half, key players, and why Pittsburgh can win a playoff game. `\
+https://nytimes.com/athletic/5907068/2024/11/08/steelers-nfl-midseason-predictions-mike-tomlin/
+
+**Eight Browns midseason predictions: Dorian Thompson-Robinson takes over as starting QB**\
+`What will be Cleveland's record when the season comes to an end, and which young players will cement themselves as long-term roster pieces?`\
+https://nytimes.com/athletic/5906843/2024/11/08/browns-predictions-nfl-midseason-2024/
+
+**MLB GM meetings: Diamondbacks and Pirates attracting early trade interest for arms**\
+`Could Devin Williams, the Brewers' All-Star closer, be on the move? What are Kris Bryant and the Rockies doing differently this winter?`\
+https://nytimes.com/athletic/5907567/2024/11/08/diamondbacks-pirates-trade-pitching/
+
+**Falcons' improved pass protection 'the reason we are where we are': 5 factors**\
+`The Falcons are sixth in the NFL in sack percentage allowed. On Sunday, they face the banged-up Saints, who have an interim head coach.`\
+https://nytimes.com/athletic/5906435/2024/11/08/falcons-pass-protection-kirk-cousins/
+
 **USC recruiting reset: Where do the Trojans stand with the Class of 2025?**\
 `The Trojans' class ranks No. 9 nationally a month before signing day but lacks elite talent in a few critical areas. `\
 https://nytimes.com/athletic/5906645/2024/11/08/usc-recruiting-football-2025-class/
 
-**Democrats Walked Into a Trap Republicans Set for Them**\
-`They walked into the trap of defending the very institutions most Americans distrust.`\
-https://nytimes.com/2024/11/08/opinion/republicans-democrats-trump.html
-
-**The New York Times News Quiz, Nov. 8, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/11/08/briefing/trump-president-election-news-quiz.html
-
-**Yes, There Are Things to Love About Winter**\
-`It’s not all dark mornings and bulky coats.`\
-https://nytimes.com/2024/11/08/well/how-to-love-winter.html
-
-**This Rout Is an Opportunity for Democrats**\
-`Resistance politics inevitably feels conservative. It’s reactionary in a literal sense, and this week, it ended in disaster for the Democrats.`\
-https://nytimes.com/2024/11/08/opinion/democrats-resistance-trump.html
-
-**Let’s Not Lose Sight of Who Trump Is**\
-`The 2024 election has the potential to challenge the New Deal realignment of 1932 as the most consequential election of the past 100 years.`\
-https://nytimes.com/2024/11/08/opinion/trump-second-term-agenda.html
-
-**A Red-District Conqueror Wants Fellow Democrats to Look in the Mirror**\
-`Representative Marie Gluesenkamp Perez, who is on track to win re-election in a rural Washington district, says her party needs to stop demonizing others and change the candidates it supports.`\
-https://nytimes.com/2024/11/08/us/politics/marie-gluesenkamp-perez-interview.html
-
-**‘An Earthquake’ Along the Border: Trump Flipped Hispanic South Texas**\
-`Donald J. Trump’s biggest gains anywhere were along the Texas border, a Democratic stronghold where most voters are Hispanic. He won 12 of the region’s 14 counties, up from five in 2016.`\
-https://nytimes.com/2024/11/08/us/texas-border-latinos-election.html
-
-**Musk Worries About Global Warming. Trump Doesn’t. Will That Change?**\
-`The Tesla billionaire is a key figure in the president-elect’s orbit. One question is whether his views on climate and clean energy will have any sway.`\
-https://nytimes.com/2024/11/08/climate/elon-musk-trump-tesla.html
-
-**TL;DR: Blame Biden**\
-`Trump is on track to win the popular vote. There’s a lesson there.`\
-https://nytimes.com/2024/11/08/opinion/popular-vote-trump-election-biden.html
+**Raptors rookie Jonathan Mogbo is getting a crash course in the NBA — and surviving**\
+`Jonathan Mogbo needs to develop a 3-point shot, but he has more pressing concerns to deal with first. `\
+https://nytimes.com/athletic/5907299/2024/11/08/raptors-rookie-jonathan-mogbo-nba/
 
