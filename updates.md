@@ -1,3 +1,11 @@
+**The Election’s Other Biggest Losers? Economists.**\
+`Democrats have to reckon with the fact that voters don’t want what economists think is best.`\
+https://nytimes.com/2024/11/08/opinion/election-economists-populism.html
+
+**Angels' Zach Neto could miss start of 2025 season following shoulder surgery**\
+`Angels GM Perry Minasian declined to say what the injury was, what procedure Neto received or how long he could be out.`\
+https://nytimes.com/athletic/5909245/2024/11/08/angels-zach-neto-shoulder-surgery/
+
 **Who Is Susie Wiles, Trump’s Pick for White House Chief of Staff?**\
 `Ms. Wiles, a principal architect of Donald J. Trump’s 2024 presidential campaign, will become the first woman to hold the job.`\
 https://nytimes.com/2024/11/08/us/elections/who-is-susie-wiles-trump-chief-of-staff.html
