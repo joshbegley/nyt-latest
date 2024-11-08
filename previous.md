@@ -1,3 +1,7 @@
+**St. Thomas Church Will Outsource Choir School in Bid to Save It**\
+`The Manhattan church said it would turn over administration of its boarding school for choristers, one of only a few of its kind remaining, because of financial woes.`\
+https://nytimes.com/2024/11/08/arts/music/st-thomas-church-choir-school.html
+
 **$7 Million Deal Is Reached for Upper West Side Movie Theater**\
 `A nonprofit group’s agreement with the owners of the shuttered Metro Theater is contingent on its raising the money by the end of the year.`\
 https://nytimes.com/2024/11/08/movies/metro-theater-upper-west-side.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-mar
 **What Experts Want You to Know About Plan B**\
 `We asked experts how it works, when you should take it, how much it costs and more.`\
 https://nytimes.com/article/plan-b-contraception-morning-after-pill.html
-
-**Trump Makes His First Moves**\
-`Also, an attack on Israeli soccer fans. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/11/08/briefing/trump-transition-musk-israel.html
 
