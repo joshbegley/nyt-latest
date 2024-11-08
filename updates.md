@@ -1,3 +1,7 @@
+**Emergency Responders Have Stopped Operating in Northern Gaza**\
+`People have been forced to dig through rubble in search of their neighbors after the main emergency service in Gaza said it had stopped operations there because of Israeli attacks.`\
+https://nytimes.com/2024/11/08/world/middleeast/emergency-responders-have-stopped-operating-in-northern-gaza.html
+
 **The Athletic FC: Why Edu left Arsenal, Mbappe left out of France squad**\
 `Today in TAFC: The reasons Edu departed Arsenal, Mbappe left out of France squad, Chelsea hammer Noah, and a shock MLS sacking.`\
 https://nytimes.com/athletic/5908108/2024/11/08/edu-arsenal-mbappe-france-squad/

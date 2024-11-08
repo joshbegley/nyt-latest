@@ -1,3 +1,7 @@
+**Emergency Responders Have Stopped Operating in Northern Gaza**\
+`People have been forced to dig through rubble in search of their neighbors after the main emergency service in Gaza said it had stopped operations there because of Israeli attacks.`\
+https://nytimes.com/2024/11/08/world/middleeast/emergency-responders-have-stopped-operating-in-northern-gaza.html
+
 **The Athletic FC: Why Edu left Arsenal, Mbappe left out of France squad**\
 `Today in TAFC: The reasons Edu departed Arsenal, Mbappe left out of France squad, Chelsea hammer Noah, and a shock MLS sacking.`\
 https://nytimes.com/athletic/5908108/2024/11/08/edu-arsenal-mbappe-france-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902703/2024/11/08/kylian-mbappe-didier-deschamps-f
 **'No more rookies anymore': Broncos' playoff hopes could hinge on draft class's growth**\
 `The Chiefs defense has been playing together for years. It presents a massive challenge for a Broncos offense that is still growing up.`\
 https://nytimes.com/athletic/5906927/2024/11/08/broncos-rookies-chiefs-sean-payton/
-
-**Lowetide: Should the Oilers be worried about their goaltending?**\
-`The Oilers' goaltending has come under fire from fans as the team scuffles to start the season.`\
-https://nytimes.com/athletic/5906505/2024/11/08/edmonton-oilers-goalie-stats-skinner/
 
