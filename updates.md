@@ -1,3 +1,7 @@
+**The Pulse: The best game of the NFL season**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5907641/2024/11/08/bengals-ravens-burrow-jackson-the-pulse/
+
 **Omorodion, Casado handed first Spain call-ups**\
 `Barcelona midfielder Marc Casado and Porto striker Samu Omorodion have been named in Spain&#8217;s senior squad for the first time for November&#8217;s Nations League matches.`\
 https://nytimes.com/athletic/5908135/2024/11/08/spain-squad-nations-league-samu-omorodion/
