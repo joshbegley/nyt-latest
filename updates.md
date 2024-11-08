@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-bl
 `\
 https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-blood-showdown-john-calipari-unc-kansas/
 
+**What to watch in college basketball this weekend: UNC-Kansas and Calipari's first big test**\
+`There are three big college hoops games this weekend: Kansas hosts UNC, Auburn faces Houston and Scott Drew takes on John Calipari.
+`\
+https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-blood-showdown-john-calipari-unc-kansas/
+
 **Watch Mikey Madison Take a Mansion Tour in ‘Anora’**\
 `The writer, director and editor Sean Baker narrates an early sequence from his film, which also features Mark Eydelshteyn.`\
 https://nytimes.com/2024/11/08/movies/anora-clip-mikey-madison.html
