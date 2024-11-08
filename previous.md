@@ -1,3 +1,7 @@
+**Fantasy Football Flex Fliers: Add Legette, Spears for Week 10, and Audric Estime for later**\
+`Scott Engel runs through top Week 10 flex options for those who missed out in the early waiver run, including an emerging Carolina rookie.`\
+https://nytimes.com/athletic/5908841/2024/11/08/fantasy-football-week-10-flex-options/
+
 **Iranian Agents Plotted to Kill Trump, U.S. Says in Unsealed Charges**\
 `The allegation came in a complaint that said Masih Alinejad, a Brooklyn activist, had been the target of a second assassination attempt.`\
 https://nytimes.com/2024/11/08/nyregion/iran-trump-assassination-plot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/arts/music/new-york-philharmonic-malkki-rouvali.h
 **Trump Win Shows Political Limits of Biden’s Industrial Policy Vision**\
 `Long-term economic investments in domestic manufacturing were overshadowed by real-time anxiety over rent and grocery prices.`\
 https://nytimes.com/2024/11/08/us/politics/trump-biden-economy-manufacturing.html
-
-**The Age of the Pogrom Returns**\
-`The attack on Israeli soccer fans comes after years of rising antisemitism in Europe, much within Muslim communities.`\
-https://nytimes.com/live/2024/11/07/opinion/thepoint/israeli-attack-soccer-amsterdam-pogrom
 
