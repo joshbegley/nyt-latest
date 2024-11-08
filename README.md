@@ -1,3 +1,11 @@
+**Wild continue success on road, overcome pair of overturned goals: 3 takeaways**\
+`The Wild finally pulled away from the Sharks for a 5-2 victory, which featured good nights from the special teams.`\
+https://nytimes.com/athletic/5907825/2024/11/08/wild-kirill-kaprizov-sharks-takeaways/
+
+**Jimmy Fallon Relays Biden’s Promise of a Peaceful Transfer of Power**\
+`“Democrats were like, ‘Well, I guess at this point we can let him speak again,’” the “Tonight Show” host said.`\
+https://nytimes.com/2024/11/08/arts/television/jimmy-fallon-biden.html
+
 **Clashes Linked to Soccer Game Between Dutch and Israeli Teams**\
 `Footage shows a crowd appearing to attack a person and then scattering as emergency sirens could be heard approaching. Israeli and Dutch officials have said the violence was driven by antisemitism.`\
 https://nytimes.com/video/world/middleeast/100000009815418/amsterdam-clash-soccer-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5901781/2024/11/08/arne-slot-liverpool-substitutes/
 **Cooper has instilled resilience but Leicester need to become more than comeback kings**\
 `Leicester are nearly halfway to their total of points gained from losing positions from their disastrous relegation season of 2022-23`\
 https://nytimes.com/athletic/5905918/2024/11/08/steve-cooper-has-instilled-resilience-but-leicester-need-to-become-more-than-comeback-kings/
-
-**Is Jarrod Bowen captain material?**\
-`Forward has a heck of a job trying to lift spirits in the coming weeks. Only time will tell if he will grow into the leader West Ham need`\
-https://nytimes.com/athletic/5905727/2024/11/08/jarrod-bowen-west-ham-captain/
-
-**FPL: The Erling Haaland conundrum**\
-`In FPL, all roads often lead back to Haaland - Abdul Rehman analyses the pros of cons of selling the game's most expensive ever player`\
-https://nytimes.com/athletic/5901587/2024/11/08/fantasy-premier-league-erling-haaland-keep-sell/
 
