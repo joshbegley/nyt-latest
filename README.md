@@ -1,3 +1,7 @@
+**Connor Hellebuyck steals 'revenge game,' Winnipeg continues historic start: 3 takeaways**\
+`The Jets won their league-leading 13th game of the season against the team that dominated them in the playoffs.`\
+https://nytimes.com/athletic/5904097/2024/11/08/connor-hellebuyck-revenge-winnipeg-historic-start-takeaways/
+
 **Even with stitches and a missing tooth, Kirill Kaprizov is his dominant self on the road**\
 `Not only did Kaprizov assist on three of the Wild’s goals in a 5-2 victory, he made magic with good friend Mats Zuccarello.`\
 https://nytimes.com/athletic/5907983/2024/11/08/kirill-kaprizov-three-points-wild-road-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907719/2024/11/08/canucks-win-kings-jake-debrusk/
 **Wild continue success on road, overcome pair of overturned goals: 3 takeaways**\
 `The Wild finally pulled away from the Sharks for a 5-2 victory, which featured good nights from the special teams.`\
 https://nytimes.com/athletic/5907825/2024/11/08/wild-kirill-kaprizov-sharks-takeaways/
-
-**Jimmy Fallon Relays Biden’s Promise of a Peaceful Transfer of Power**\
-`“Democrats were like, ‘Well, I guess at this point we can let him speak again,’” the “Tonight Show” host said.`\
-https://nytimes.com/2024/11/08/arts/television/jimmy-fallon-biden.html
 
