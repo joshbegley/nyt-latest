@@ -1,3 +1,7 @@
+**Shaw returns to Man Utd training after nine-month club absence**\
+`Luke Shaw has returned to team training as the Manchester United full-back continues his recovery from a calf injury.`\
+https://nytimes.com/athletic/5908209/2024/11/08/luke-shaw-injury-update-manchester-united/
+
 **The Athletic’s Friday football quiz question #29**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5908145/2024/11/08/the-athletics-friday-football-quiz-question-29/

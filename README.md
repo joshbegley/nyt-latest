@@ -1,3 +1,7 @@
+**Richarlison out with 'significant hamstring injury' - Postecoglou**\
+`Tottenham Hotspur manager Ange Postecoglou has confirmed that Richarlison will be out for a &#8220;significant amount of time&#8221; after sustaining a hamstring injury last Sunday.`\
+https://nytimes.com/athletic/5908204/2024/11/08/tottenhams-richarlison-out-with-significant-hamstring-injury-says-ange-postecoglou/
+
 **Shaw returns to Man Utd training after nine-month club absence**\
 `Luke Shaw has returned to team training as the Manchester United full-back continues his recovery from a calf injury.`\
 https://nytimes.com/athletic/5908209/2024/11/08/luke-shaw-injury-update-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906237/2024/11/08/nfl-draft-2025-kurtis-rourke-sco
 **What Trump 2.0 Means for Tech + A.I. Made Me Basic + HatGPT!**\
 `A shake-up is coming for Silicon Valley.`\
 https://nytimes.com/2024/11/08/podcasts/hardfork-trump-musk-tech.html
-
-**Last N.I.H. Chimps to Move From New Mexico Facility**\
-`The retired research chimpanzees, which had previously been deemed too frail to move, will be relocated to a Louisiana sanctuary.`\
-https://nytimes.com/2024/11/08/science/chimps-alamogordo-haven.html
 
