@@ -1,3 +1,11 @@
+**With Trump Tariffs Looming, Business Try to ‘Run From a Moving Target’**\
+`Companies are filling their warehouses or looking into moving factories as they weigh President-elect Donald J. Trump’s threats to impose tariffs on foreign goods`\
+https://nytimes.com/2024/11/08/us/politics/trump-tariffs-china.html
+
+**After the Election, a Call for Women to Swear Off Men**\
+`Interest in South Korea’s 4B feminist movement, which rejects dating, marriage, sex and childbirth, has risen in the United States.`\
+https://nytimes.com/2024/11/08/style/4b-movement.html
+
 **A Coming-of-Age Novel That Crosses America’s Impossible Divide**\
 `“Us Fools,” by Nora Lange, is a tale of two sisters living through the diseased expanse of the country’s recent history.`\
 https://nytimes.com/2024/11/08/books/review/nora-lange-us-fools.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5908442/2024/11/08/scoop-city-best-31-moments-playe
 **Heat Today: Miami's offense needs a (Tyler) Herro right now. Plus, 3 keys vs. Nuggets**\
 `Despite the Miami Heat's slow start, Tyler Herro's game continues showing strides`\
 https://nytimes.com/athletic/5907627/2024/11/08/tyler-herro-miami-heat-jimmy-butler-bam-adebayo-nikola-jokic-nuggets/
-
-**O'Neil says questions on his Wolves position 'the least of my worries'**\
-`Wolverhampton Wanderers head coach Gary O’Neil says the prospect of losing his job is “the least of my worries” as he prepares to face Southampton with pressure on his position mounting.`\
-https://nytimes.com/athletic/5908528/2024/11/08/gary-oneil-wolves-manager-update/
-
-**Penguins Today: Crosby vs. Ovechkin is a welcome distraction**\
-`Anything to avoid talking about last night's game in Carolina.`\
-https://nytimes.com/athletic/5908470/2024/11/08/penguins-today-sidney-crosby-alex-ovechkin/
 
