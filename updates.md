@@ -1,3 +1,7 @@
+**Party Whose Leader Is Known for Antisemitism Joins Lithuanian Government**\
+`A new coalition includes a party led by a politician notorious for antisemitic remarks, another blow to the longstanding refusal by Europe’s mainstream parties to join with those seen as extremist.`\
+https://nytimes.com/2024/11/08/world/europe/lithuania-coalition-antisemitism.html
+
 **Is a New Wave of Digital Nomadism Coming? Interest in Moving Abroad Is on the Rise.**\
 `Google searches for “best countries to move to” peaked immediately after the election. Here’s what you need to know about digital nomad visas.`\
 https://nytimes.com/2024/11/08/travel/digital-nomad-visas-moving-abroad-election.html
