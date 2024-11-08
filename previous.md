@@ -1,3 +1,11 @@
+**Read the Trump Assassination Plot Criminal Complaint**\
+`The U.S. charged three men with plotting to kill Donald J. Trump on behalf of Iran.`\
+https://nytimes.com/interactive/2024/11/08/nyregion/us-v-shakeri-et-al-complaint.html
+
+**Inside the Federal Work Force That Trump Has Promised to Eviscerate**\
+`President-elect Donald J. Trump and his allies have pledged to strike fear in the heart of what they term “the deep state.” They have already succeeded.`\
+https://nytimes.com/2024/11/08/us/politics/trump-federal-bureaucracy.html
+
 **Kings' Tanner Jeannot suspended for 3 games following illegal check**\
 `Jeannot was assessed a match penalty and ejected from Thursday's game against the Canucks for an illegal check to Brock Boeser.`\
 https://nytimes.com/athletic/5909335/2024/11/08/tanner-jeannot-los-angeles-kings-suspension-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909586/2024/11/08/49ers-christian-mccaffrey-season
 **Votes in House and Senate Races Are Still Being Tallied. Here’s the Latest.**\
 `Control of the House remains in the balance, and three Senate seats in swing states have yet to be called.`\
 https://nytimes.com/2024/11/08/us/elections/house-senate-election-races.html
-
-**St. Thomas Church Will Outsource Choir School in Bid to Save It**\
-`The Manhattan church said it would turn over administration of its boarding school for choristers, one of only a few of its kind remaining, because of financial woes.`\
-https://nytimes.com/2024/11/08/arts/music/st-thomas-church-choir-school.html
-
-**$7 Million Deal Is Reached for Upper West Side Movie Theater, Nonprofit Says**\
-`A nonprofit group says it has reached an agreement to buy the shuttered Metro Theater from its owners, but the deal is contingent on raising the money by the end of the year.`\
-https://nytimes.com/2024/11/08/movies/metro-theater-upper-west-side.html
 
