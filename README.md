@@ -1,3 +1,11 @@
+**Trump Makes His First Moves**\
+`Also, an attack on Israeli soccer fans. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/11/08/briefing/trump-transition-musk-israel.html
+
+**University of Southern California President Will Retire in July**\
+`Carol Folt took over in 2019, often steadying the university but drawing criticism for her handling of campus protests last spring.`\
+https://nytimes.com/2024/11/08/us/university-of-southern-california-president-retirement-carol-folt.html
+
 **A Massachusetts Couple Called Off Their Wedding. Who Keeps the $70,000 Ring?**\
 `The state’s Supreme Judicial Court ruled that if wedding plans crumble, the engagement ring must be returned to the person who purchased it.`\
 https://nytimes.com/2024/11/08/us/massachusetts-engagement-ring.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacks
 **What Trump’s Win Tells Us About the Democratic Party**\
 `What lessons can Democrats take from the 2024 election? Astead W. Herndon, a national politics reporter and the host of the politics podcast “The Run-Up,” gives his analysis.`\
 https://nytimes.com/video/us/elections/100000009812485/what-trumps-win-tells-us-about-the-democratic-party.html
-
-**Stock Market Rallies to Its Best Week in Over a Year**\
-`President-elect Donald Trump’s win, coupled with a quarter-point interest rate cut from the Federal Reserve, pushed major stock indexes into record territory.`\
-https://nytimes.com/2024/11/08/business/stock-market-trump-fed.html
-
-**Wildfires Spread Across New Jersey and Connecticut: ‘No End in Sight’**\
-`Firefighters in the two states have battled hundreds of blazes during an unseasonably dry fall.`\
-https://nytimes.com/2024/11/08/nyregion/wildfires-drought-new-jersey-connecticut.html
 
