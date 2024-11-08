@@ -1,3 +1,7 @@
+**Colts' Michael Pittman Jr. ruled out vs. Bills with back injury**\
+`The Colts’ top wideout has only missed five games in his first five NFL seasons.`\
+https://nytimes.com/athletic/5909284/2024/11/08/colts-michael-pittman-out-bills/
+
 **Phillies promote Preston Mattingly to GM; Sam Fuld will move to business side in 2026**\
 `The Phillies promoted Preston Mattingly, their farm director, to general manager Friday afternoon in a front-office shakeup.`\
 https://nytimes.com/athletic/5909272/2024/11/08/phillies-promote-preston-mattingly-sam-fuld/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/opinion/election-economists-populism.html
 **Angels' Zach Neto could miss start of 2025 season following shoulder surgery**\
 `Angels GM Perry Minasian declined to say what the injury was, what procedure Neto received or how long he could be out.`\
 https://nytimes.com/athletic/5909245/2024/11/08/angels-zach-neto-shoulder-surgery/
-
-**Who Is Susie Wiles, Trump’s Pick for White House Chief of Staff?**\
-`Ms. Wiles, a principal architect of Donald J. Trump’s 2024 presidential campaign, will become the first woman to hold the job.`\
-https://nytimes.com/2024/11/08/us/elections/who-is-susie-wiles-trump-chief-of-staff.html
 
