@@ -1,3 +1,11 @@
+**Votes in House and Senate Races Are Still Being Tallied. Here’s the Latest.**\
+`Control of the House remains in the balance, and three Senate seats in swing states have yet to be called.`\
+https://nytimes.com/2024/11/08/us/elections/house-senate-election-races.html
+
+**$7 Million Deal Is Reached for Upper West Side Movie Theater, Nonprofit Says**\
+`A nonprofit group says it has reached an agreement to buy the shuttered Metro Theater from its owners, but the deal is contingent on raising the money by the end of the year.`\
+https://nytimes.com/2024/11/08/movies/metro-theater-upper-west-side.html
+
 **St. Thomas Church Will Outsource Choir School in Bid to Save It**\
 `The Manhattan church said it would turn over administration of its boarding school for choristers, one of only a few of its kind remaining, because of financial woes.`\
 https://nytimes.com/2024/11/08/arts/music/st-thomas-church-choir-school.html

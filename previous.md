@@ -1,9 +1,13 @@
+**Votes in House and Senate Races Are Still Being Tallied. Here’s the Latest.**\
+`Control of the House remains in the balance, and three Senate seats in swing states have yet to be called.`\
+https://nytimes.com/2024/11/08/us/elections/house-senate-election-races.html
+
 **St. Thomas Church Will Outsource Choir School in Bid to Save It**\
 `The Manhattan church said it would turn over administration of its boarding school for choristers, one of only a few of its kind remaining, because of financial woes.`\
 https://nytimes.com/2024/11/08/arts/music/st-thomas-church-choir-school.html
 
-**$7 Million Deal Is Reached for Upper West Side Movie Theater**\
-`A nonprofit group’s agreement with the owners of the shuttered Metro Theater is contingent on its raising the money by the end of the year.`\
+**$7 Million Deal Is Reached for Upper West Side Movie Theater, Nonprofit Says**\
+`A nonprofit group says it has reached an agreement to buy the shuttered Metro Theater from its owners, but the deal is contingent on raising the money by the end of the year.`\
 https://nytimes.com/2024/11/08/movies/metro-theater-upper-west-side.html
 
 **Reds leave Diamond Sports; MLB objects to broadcaster's bankruptcy plan**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908844/2024/11/08/james-maddison-england-ange-post
 **Commanders' Brian Robinson Jr., Marshon Lattimore ruled out vs. Steelers**\
 `Both Robinson and Lattimore have been ruled out for Sunday's game against the Steelers, the team announced Friday.`\
 https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-marshon-lattimore-out-steelers/
-
-**What Experts Want You to Know About Plan B**\
-`We asked experts how it works, when you should take it, how much it costs and more.`\
-https://nytimes.com/article/plan-b-contraception-morning-after-pill.html
 
