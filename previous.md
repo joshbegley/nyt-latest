@@ -1,5 +1,9 @@
-**Violence Tied to Soccer Game Prompts Dozens of Arrests in Amsterdam**\
-`The police said 57 people were arrested amid violence tied to a game between Dutch and Israeli teams. Israel’s government said the attacks were driven by antisemitism.`\
+**Democracy Is Still Thriving. But for How Long?**\
+`In a year filled with elections, the state of democracy is thriving by many measures. But there are dark clouds on the horizon.`\
+https://nytimes.com/2024/11/08/opinion/trump-democracy-elections.html
+
+**Violent Attacks in Amsterdam Driven by Antisemitism, Israel Says**\
+`The police said 57 people were arrested amid violence tied to a soccer game between Dutch and Israeli teams. Israel said it was sending planes to help its injured citizens.`\
 https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
 
 **'Now I can breathe a bit more': Alison Van Uytvanck on life after tennis and Grand Slam anxiety**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907555/2024/11/08/ravens-bengals-score-result-take
 **Wolves yearn for first Premier League win of season as deeper concerns loom**\
 `Gary O'Neil has overseen one win in 20 league games, but short-term issues are compounded by off-field uncertainties at Molineux`\
 https://nytimes.com/athletic/5903997/2024/11/08/wolves-oneil-fosun-molineux-sack/
-
-**Who do Crystal Palace miss more, Joachim Andersen or Jordan Ayew?**\
-`Oliver Glasner's team are set to come up against a familiar foe on Saturday as the Danish defender returns to Selhurst Park`\
-https://nytimes.com/athletic/5893553/2024/11/08/palace-andersen-ayew-fulham/
 
