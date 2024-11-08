@@ -1,3 +1,11 @@
+**Commanders' Brian Robinson Jr., Marshon Lattimore ruled out vs. Steelers**\
+`Both Robinson and Lattimore have been ruled out for Sunday's game against the Steelers, the team announced Friday.`\
+https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-marshon-lattimore-ruled-out-steelers/
+
+**What Experts Want You to Know About Plan B**\
+`We asked experts how it works, when you should take it, how much it costs and more.`\
+https://nytimes.com/article/plan-b-contraception-morning-after-pill.html
+
 **Trump Makes His First Moves**\
 `Also, an attack on Israeli soccer fans. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/11/08/briefing/trump-transition-musk-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/arts/music/andre-3000-grammys-new-blue-sun.html
 **We’re Getting an Induction Range. Is It All Right to Sell Our Old Gas One?**\
 `The magazine’s Ethicist columnist on the responsibility one has to dispose of an outmoded appliance.`\
 https://nytimes.com/2024/11/08/magazine/induction-range-gas-ethics.html
-
-**What to Know About the Attacks on Israeli Soccer Fans in Amsterdam**\
-`Dutch and Israeli officials described the clashes after a soccer match as antisemitic.`\
-https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacks.html
-
-**What Trump’s Win Tells Us About the Democratic Party**\
-`What lessons can Democrats take from the 2024 election? Astead W. Herndon, a national politics reporter and the host of the politics podcast “The Run-Up,” gives his analysis.`\
-https://nytimes.com/video/us/elections/100000009812485/what-trumps-win-tells-us-about-the-democratic-party.html
 

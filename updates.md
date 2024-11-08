@@ -1,3 +1,11 @@
+**Commanders' Brian Robinson Jr., Marshon Lattimore ruled out vs. Steelers**\
+`Both Robinson and Lattimore have been ruled out for Sunday's game against the Steelers, the team announced Friday.`\
+https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-marshon-lattimore-ruled-out-steelers/
+
+**What Experts Want You to Know About Plan B**\
+`We asked experts how it works, when you should take it, how much it costs and more.`\
+https://nytimes.com/article/plan-b-contraception-morning-after-pill.html
+
 **Trump Makes His First Moves**\
 `Also, an attack on Israeli soccer fans. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/11/08/briefing/trump-transition-musk-israel.html
