@@ -1,3 +1,7 @@
+**Steven Madden C.E.O. Says It Is Moving Production Out of China**\
+`The prospect of higher tariffs under President-elect Trump spurred the company to accelerate its plan to shift where its shoes are made.`\
+https://nytimes.com/2024/11/08/business/steve-madden-ceo-china.html
+
 **Democracy Is Still Thriving. But for How Long?**\
 `In a year filled with elections, the state of democracy is thriving by many measures. But there are dark clouds on the horizon.`\
 https://nytimes.com/2024/11/08/opinion/trump-democracy-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5901587/2024/11/08/fantasy-premier-league-erling-ha
 **Jackson outduels Burrow as Ravens top Bengals in 35-34 thriller: Takeaways**\
 `Jackson threw three of his four touchdowns on consecutive fourth-quarter drives to put Baltimore out of reach.`\
 https://nytimes.com/athletic/5907555/2024/11/08/ravens-bengals-score-result-takeaways-tnf/
-
-**Wolves yearn for first Premier League win of season as deeper concerns loom**\
-`Gary O'Neil has overseen one win in 20 league games, but short-term issues are compounded by off-field uncertainties at Molineux`\
-https://nytimes.com/athletic/5903997/2024/11/08/wolves-oneil-fosun-molineux-sack/
 
