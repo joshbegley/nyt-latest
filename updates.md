@@ -1,3 +1,7 @@
+**Read the Judge’s Ruling**\
+`A federal judge in Texas struck down a new Biden administration program that sought to provide a path to U.S. citizenship for hundreds of thousands of undocumented immigrants married to American citizens.`\
+https://nytimes.com/interactive/2024/11/07/us/biden-undocumented-spouses-program.html
+
 **Judge Tosses Out Biden Program for Undocumented Spouses**\
 `The ruling issued by a federal judge in Texas struck down a new initiative aimed at helping undocumented spouses of U.S. citizens stay in the country.`\
 https://nytimes.com/2024/11/07/us/biden-undocumented-spouses-program.html
