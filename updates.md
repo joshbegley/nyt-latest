@@ -1,3 +1,7 @@
+**Forget a Soft Landing. The Fed’s Biggest Challenge May Be Trump.**\
+`The chair of the Federal Reserve made clear he would not resign, even under pressure. But pressure from the White House is likely, market watchers say.`\
+https://nytimes.com/2024/11/08/business/dealbook/powell-trump-white-house-pressure.html
+
 **Emergency Responders Have Stopped Operating in Northern Gaza**\
 `People have been forced to dig through rubble in search of their neighbors after the main emergency service in Gaza said it had stopped operations there because of Israeli attacks.`\
 https://nytimes.com/2024/11/08/world/middleeast/emergency-responders-northern-gaza.html
