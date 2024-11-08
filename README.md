@@ -1,3 +1,11 @@
+**‘Hippo’ Review: This Coming-of-Age Tale Can Go**\
+`Trafficking in irreverence, the film follows a pair of stepsiblings with sexual tension.`\
+https://nytimes.com/2024/11/08/movies/hippo-review.html
+
+**Finnish Conductors Take Over the New York Philharmonic**\
+`Susanna Mälkki and Santtu-Matias Rouvali made back-to-back appearances with the orchestra, leading similar programs with distinct style.`\
+https://nytimes.com/2024/11/08/arts/music/new-york-philharmonic-malkki-rouvali.html
+
 **Trump Win Shows Political Limits of Biden’s Industrial Policy Vision**\
 `Long-term economic investments in domestic manufacturing were overshadowed by real-time anxiety over rent and grocery prices.`\
 https://nytimes.com/2024/11/08/us/politics/trump-biden-economy-manufacturing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/arts/music/grammy-awards-nominations.html
 **Yankees' Aaron Boone will return in 2025 after club exercises option**\
 `Boone will return to manage the Yankees in 2025, with the possibility of a longer extension coming later this offseason.`\
 https://nytimes.com/athletic/5906971/2024/11/08/yankees-aaron-boone-manager-option/
-
-**Grammy Awards 2025: The Full List of Nominees**\
-`Artists, albums and songs competing for trophies at the 67th annual ceremony were announced on Friday. The show will take place on Feb. 2 at Crypto.com Arena in Los Angeles.`\
-https://nytimes.com/2024/11/08/arts/music/grammys-nominee-list-2025.html
-
-**Revisiting the lost Paul George trade. Plus, hidden NBA League Pass gems**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5908291/2024/11/08/paul-george-76ers-clippers-league-pass-nba-the-bounce/
 
