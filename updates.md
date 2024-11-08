@@ -1,4 +1,8 @@
 **Furious Mike Sullivan calls out some Penguins players after loss to Hurricanes**\
+`Sullivan fumed about certain members of the Penguins and their effort level after a 5-1 loss Thursday in Raleigh.`\
+https://nytimes.com/athletic/5906610/2024/11/07/penguins-hurricanes-coach-mike-sullivan/
+
+**Furious Mike Sullivan calls out some Penguins players after loss to Hurricanes**\
 `Sullivan fumed about certain members of the Penguins and their effort level following a 5-1 loss in Raleigh on Thursday.`\
 https://nytimes.com/athletic/5906610/2024/11/07/penguins-hurricanes-coach-mike-sullivan/
 
