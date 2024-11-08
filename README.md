@@ -1,3 +1,7 @@
+**Amad on Man Utd future: 'I want to stay here for a long time'**\
+`Amad says he wants to stay at Manchester United for a “long, long, long time” after scoring a brace to give the club its first European win in more than a year.`\
+https://nytimes.com/athletic/5908041/2024/11/08/amad-manchester-united-future/
+
 **China Reveals $1.4 Trillion Plan to Bail Out Local Governments**\
 `The massive support package came after a series of smaller measures in recent weeks were announced to jump-start growth in China’s sluggish economy.`\
 https://nytimes.com/2024/11/08/business/china-stimulus-economy-debt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907445/2024/11/08/mykhailo-mudryk-chelsea-potentia
 **Amad has given Amorim his first selection problem at United - four into two won't go**\
 `The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
 https://nytimes.com/athletic/5907631/2024/11/08/amad-amorin-manchester-united-attackers/
-
-**Word of the Day: geothermal**\
-`This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/08/learning/word-of-the-day-geothermal.html
 
