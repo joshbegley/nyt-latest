@@ -1,3 +1,11 @@
+**How Media Outlets on the Right and Left Explained Trump’s Win**\
+`Media outlets on the right said Mr. Trump won because of the left’s embrace of what they called extreme political views. Left-leaning outlets offered a broader variety of explanations.`\
+https://nytimes.com/2024/11/08/business/media/trumps-victory-media-outlets-explain.html
+
+**A Los Angeles leader who was involved in a racist conversation is close to being ousted.**\
+`Kevin de León, a Los Angeles councilman, was the last elected official still in office among the politicians caught on an audio recording that leaked two years ago.`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news/a-los-angeles-leader-who-was-involved-in-a-racist-conversation-is-close-to-being-ousted
+
 **Read the Trump Assassination Plot Criminal Complaint**\
 `The U.S. charged three men with plotting to kill Donald J. Trump on behalf of Iran.`\
 https://nytimes.com/interactive/2024/11/08/nyregion/us-v-shakeri-et-al-complaint.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909527/2024/11/08/nba-closing-academies-mexico-aus
 **Voters in Red and Blue States Repudiate Lenient Drug Policies**\
 `Californians voted for tougher penalties for dealers. Florida, North Dakota and South Dakota rejected proposals to legalize marijuana. Massachusetts denied a measure allowing possession of psychedelics.`\
 https://nytimes.com/2024/11/08/health/drugs-election-cannabis-penalties.html
-
-**49ers RB Christian McCaffrey expected to make season debut Sunday**\
-`“I feel good now,” McCaffrey said after Friday’s practice. “No, I wouldn’t be out here if it was still bothering me. I feel great.”`\
-https://nytimes.com/athletic/5909586/2024/11/08/49ers-christian-mccaffrey-season-debut/
-
-**Votes in House and Senate Races Are Still Being Tallied. Here’s the Latest.**\
-`Control of the House remains in the balance, and three Senate seats in swing states have yet to be called.`\
-https://nytimes.com/2024/11/08/us/elections/house-senate-election-races.html
 

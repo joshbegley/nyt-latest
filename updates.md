@@ -1,3 +1,11 @@
+**How Media Outlets on the Right and Left Explained Trump’s Win**\
+`Media outlets on the right said Mr. Trump won because of the left’s embrace of what they called extreme political views. Left-leaning outlets offered a broader variety of explanations.`\
+https://nytimes.com/2024/11/08/business/media/trumps-victory-media-outlets-explain.html
+
+**A Los Angeles leader who was involved in a racist conversation is close to being ousted.**\
+`Kevin de León, a Los Angeles councilman, was the last elected official still in office among the politicians caught on an audio recording that leaked two years ago.`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news/a-los-angeles-leader-who-was-involved-in-a-racist-conversation-is-close-to-being-ousted
+
 **Read the Trump Assassination Plot Criminal Complaint**\
 `The U.S. charged three men with plotting to kill Donald J. Trump on behalf of Iran.`\
 https://nytimes.com/interactive/2024/11/08/nyregion/us-v-shakeri-et-al-complaint.html
