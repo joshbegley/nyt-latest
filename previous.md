@@ -1,3 +1,7 @@
+**UF men's basketball coach Golden accused of sexual harassment: Report**\
+`A formal complaint was filed with Florida’s Title IX office on Sept. 27, The Alligator reported.`\
+https://nytimes.com/athletic/5909192/2024/11/08/todd-golden-florida-sexual-harassment-complaint/
+
 **First Major Snow of the Season Pummels Denver Region**\
 `The National Weather Service said snowfall accumulations from Friday into Saturday morning could be significant, with 12 to 20 inches expected south of Denver.`\
 https://nytimes.com/2024/11/08/weather/colorado-new-mexico-snowstorm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908933/2024/11/08/texans-nico-collins-practice-ret
 **Grammys Snubs and Surprises: Charli XCX Levels Up, Beyoncé Spreads Out and the Beatles Persist**\
 `A look at the nominations’ unexpected and intriguing story lines, including the role of an absent Drake, the validation of André 3000’s flute music and overlooked gems.`\
 https://nytimes.com/2024/11/08/arts/music/grammy-awards-snubs-surprises.html
-
-**Linda LaFlamme Dies at 85; Her ‘White Bird’ Reflected a Hippie Fantasy**\
-`With her husband, David LaFlamme, she founded the rock band It’s a Beautiful Day and wrote a soaring paean to a generation’s dreams of escape.`\
-https://nytimes.com/2024/11/08/arts/music/linda-laflamme-dead.html
 

@@ -1,3 +1,7 @@
+**UF men's basketball coach Golden accused of sexual harassment: Report**\
+`A formal complaint was filed with Florida’s Title IX office on Sept. 27, The Alligator reported.`\
+https://nytimes.com/athletic/5909192/2024/11/08/todd-golden-florida-sexual-harassment-complaint/
+
 **First Major Snow of the Season Pummels Denver Region**\
 `The National Weather Service said snowfall accumulations from Friday into Saturday morning could be significant, with 12 to 20 inches expected south of Denver.`\
 https://nytimes.com/2024/11/08/weather/colorado-new-mexico-snowstorm.html
