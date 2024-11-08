@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5908041/2024/11/08/amad-manchester-united-future/
 
 **China Reveals $1.4 Trillion Plan to Bail Out Local Governments**\
-`The massive support package came after a series of smaller measures in recent weeks were announced to jump-start growth in China’s sluggish economy.`\
+`The enormous support package came after a series of smaller measures in recent weeks were announced to jump-start growth in China’s sluggish economy.`\
 https://nytimes.com/2024/11/08/business/china-stimulus-economy-debt.html
 
 **Postecoglou will understand his Tottenham squad much more after bruising experience**\

@@ -1,3 +1,7 @@
+**China Reveals $1.4 Trillion Plan to Bail Out Local Governments**\
+`The enormous support package came after a series of smaller measures in recent weeks were announced to jump-start growth in China’s sluggish economy.`\
+https://nytimes.com/2024/11/08/business/china-stimulus-economy-debt.html
+
 **Amad has given Amorim his first selection problem at United - four into two won't go**\
 `The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
 https://nytimes.com/athletic/5907631/2024/11/08/amad-amorim-manchester-united-attackers/
