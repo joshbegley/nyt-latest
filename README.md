@@ -1,11 +1,3 @@
-**Wildfires Spread Across New Jersey and Connecticut: ‘No End in Sight’**\
-`Firefighters in the two states have battled hundreds of blazes during an unseasonably dry fall.`\
-https://nytimes.com/2024/11/08/nyregion/wildfires-drought-new-jersey-connecticut.html
-
-**Maple Leafs place Auston Matthews on IR: Why it's no cause for panic**\
-`Overall, in 57 missed career games, the Maple Leafs boast a surprising 36-19-2 record without Matthews.`\
-https://nytimes.com/athletic/5909326/2024/11/08/auston-matthews-injury-ir-leafs/
-
 **Judge denies teams' request in NASCAR antitrust case**\
 `The request is part of a larger antitrust lawsuit two teams have filed against NASCAR and CEO Jim France.`\
 https://nytimes.com/athletic/5909153/2024/11/08/nascar-antitrust-lawsuit-michael-jordan/
@@ -37,4 +29,12 @@ https://nytimes.com/2024/11/08/nyregion/insurance-fraud-car-crash-brooklyn.html
 **Gauff continues resurgence by beating Sabalenka at WTA Tour Finals to set up Zheng final**\
 `Coco Gauff may be saving the best for last.`\
 https://nytimes.com/athletic/5909184/2024/11/08/wta-tour-finals-gauff-sabalenka-result-analysis/
+
+**Colts' Michael Pittman Jr. ruled out vs. Bills with back injury**\
+`The Colts’ top wideout has only missed five games in his first five NFL seasons.`\
+https://nytimes.com/athletic/5909284/2024/11/08/colts-michael-pittman-out-bills/
+
+**Phillies promote Preston Mattingly to GM; Sam Fuld to move to business side in 2026**\
+`The Phillies promoted Preston Mattingly, their farm director, to general manager Friday afternoon in a front-office shakeup.`\
+https://nytimes.com/athletic/5909272/2024/11/08/phillies-promote-preston-mattingly-sam-fuld/
 
