@@ -1,3 +1,19 @@
+**Watch Mikey Madison Take a Mansion Tour in ‘Anora’**\
+`The writer, director and editor Sean Baker narrates an early sequence from his film, which also features Mark Eydelshteyn.`\
+https://nytimes.com/2024/11/08/movies/anora-clip-mikey-madison.html
+
+**‘Anora’ | Anatomy of a Scene**\
+`The writer, director and editor Sean Baker narrates a sequence from his comedy featuring Mikey Madison and Mark Eydelshteyn.`\
+https://nytimes.com/video/movies/100000009814094/anora-scene.html
+
+**Analyzing Why Trump Won the Election**\
+`Readers point to Joe Biden, the economy, “hate and fear” and no-show voters. Also: How Roe v. Wade saved a woman’s life.`\
+https://nytimes.com/2024/11/08/opinion/trump-election-victory.html
+
+**Man Utd's Fletcher given three-game ban by FA**\
+`Manchester United first-team coach Darren Fletcher has been handed a three-game touchline ban and fined £7,500 by the Football Association (FA).`\
+https://nytimes.com/athletic/5908648/2024/11/08/darren-fletcher-manchester-united-banned/
+
 **What It’s Like to Write a New John le Carré Novel**\
 `Nick Harkaway is an accomplished author who also happens to be le Carré’s son. In his latest book, “Karla’s Choice,” he revisits his father’s great spy protagonist, George Smiley.`\
 https://nytimes.com/2024/11/08/books/review/what-its-like-to-write-a-new-john-le-carre-novel.html
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/5908658/2024/11/08/paul-dummett-wigan-athletic/
 **With Trump Tariffs Looming, Businesses Try to ‘Run From a Moving Target’**\
 `Companies are filling their warehouses or looking into moving factories as they weigh President-elect Donald J. Trump’s threats to impose tariffs on foreign goods`\
 https://nytimes.com/2024/11/08/us/politics/trump-tariffs-china.html
-
-**After the Election, a Call for Women to Swear Off Men**\
-`Interest in South Korea’s 4B feminist movement, which rejects dating, marriage, sex and childbirth, has risen in the United States.`\
-https://nytimes.com/2024/11/08/style/4b-movement.html
-
-**A Coming-of-Age Novel That Crosses America’s Impossible Divide**\
-`“Us Fools,” by Nora Lange, is a tale of two sisters living through the diseased expanse of the country’s recent history.`\
-https://nytimes.com/2024/11/08/books/review/nora-lange-us-fools.html
-
-**Damian Lillard, Giannis star as Bucks snap losing streak: 'I think we needed it bad'**\
-`Buoyed by Andre Jackson Jr.'s energy in the starting lineup, the Bucks' superstar duo dominated in a win Milwaukee desperately needed.`\
-https://nytimes.com/athletic/5908077/2024/11/08/bucks-damian-lillard-giannis-antetokounmpo-2/
-
-**Fantasy trends and hidden gems: Eyeing the Penguins' and Capitals' top lines**\
-`Pittsburgh is loading all its big guns onto the top line, while Alex Ovechkin's linemates are still widely available.`\
-https://nytimes.com/athletic/5907828/2024/11/08/fantasy-trends-and-hidden-gems-week-7/
 

@@ -1,3 +1,24 @@
+**Watch Mikey Madison Take a Mansion Tour in ‘Anora’**\
+`The writer, director and editor Sean Baker narrates an early sequence from his film, which also features Mark Eydelshteyn.`\
+https://nytimes.com/2024/11/08/movies/anora-clip-mikey-madison.html
+
+**‘Anora’ | Anatomy of a Scene**\
+`The writer, director and editor Sean Baker narrates a sequence from his comedy featuring Mikey Madison and Mark Eydelshteyn.`\
+https://nytimes.com/video/movies/100000009814094/anora-scene.html
+
+**Analyzing Why Trump Won the Election**\
+`Readers point to Joe Biden, the economy, “hate and fear” and no-show voters. Also: How Roe v. Wade saved a woman’s life.`\
+https://nytimes.com/2024/11/08/opinion/trump-election-victory.html
+
+**Man Utd's Fletcher given three-game ban by FA**\
+`Manchester United first-team coach Darren Fletcher has been handed a three-game touchline ban and fined £7,500 by the Football Association (FA).`\
+https://nytimes.com/athletic/5908648/2024/11/08/darren-fletcher-manchester-united-banned/
+
+**What to watch in college basketball this weekend: UNC-Kansas and Calipari's first big test**\
+`There are three big college hoops games this weekend: Kansas hosts UNC, Auburn faces Houston and Scott Drew takes on John Calipari.
+`\
+https://nytimes.com/athletic/5907904/2024/11/08/watch-college-basketball-blue-blood-showdown-john-calipari-unc-kansas/
+
 **What to watch in college basketball this weekend: UNC-Kansas and Calipari's first big test**\
 `There are three big college hoops games this weekend: Kansas hosts UNC, Auburn faces Houston and Scott Drew takes on John Calipari.
 `\
