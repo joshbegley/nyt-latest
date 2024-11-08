@@ -1,3 +1,11 @@
+**‘Hippo’ Review: This Coming-of-Age Tale Can Go**\
+`Trafficking in irreverence, the film follows a pair of stepsiblings with sexual tension.`\
+https://nytimes.com/2024/11/08/movies/hippo-review.html
+
+**Finnish Conductors Take Over the New York Philharmonic**\
+`Susanna Mälkki and Santtu-Matias Rouvali made back-to-back appearances with the orchestra, leading similar programs with distinct style.`\
+https://nytimes.com/2024/11/08/arts/music/new-york-philharmonic-malkki-rouvali.html
+
 **Trump Win Shows Political Limits of Biden’s Industrial Policy Vision**\
 `Long-term economic investments in domestic manufacturing were overshadowed by real-time anxiety over rent and grocery prices.`\
 https://nytimes.com/2024/11/08/us/politics/trump-biden-economy-manufacturing.html
