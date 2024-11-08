@@ -1,3 +1,11 @@
+**Judge denies teams' request in NASCAR antitrust case**\
+`The request is part of a larger antitrust lawsuit two teams have filed against NASCAR and CEO Jim France.`\
+https://nytimes.com/athletic/5909153/2024/11/08/nascar-antitrust-lawsuit-michael-jordan/
+
+**America’s Wobbly Democracy**\
+`Lessons from a London bridge.`\
+https://nytimes.com/2024/11/08/world/americas/americas-wobbly-democracy.html
+
 **With Ready Orders and an Energy Czar, Trump Plots Pivot to Fossil Fuels**\
 `President-elect Donald J. Trump’s transition team for climate and the environment is considering relocating the E.P.A. out of Washington and other drastic changes.`\
 https://nytimes.com/2024/11/08/climate/trump-transition-epa-interior-energy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909284/2024/11/08/colts-michael-pittman-out-bills/
 **Phillies promote Preston Mattingly to GM; Sam Fuld to move to business side in 2026**\
 `The Phillies promoted Preston Mattingly, their farm director, to general manager Friday afternoon in a front-office shakeup.`\
 https://nytimes.com/athletic/5909272/2024/11/08/phillies-promote-preston-mattingly-sam-fuld/
-
-**Mayor Adams’s Longtime Girlfriend Retires From Highly Paid Schools Job**\
-`Tracey Collins, a high-ranking Department of Education adviser, stepped down amid allegations that her position was a “no-show” job.`\
-https://nytimes.com/2024/11/08/nyregion/tracey-collins-eric-adams-retire.html
-
-**Ben Baldanza, Who Brought No-Frills Flying to Spirit Airlines, Dies at 62**\
-`He introduced ticket prices that couldn’t be beat, but asked fliers to pay extra for nearly everything, including water, carry-ons and printed tickets.`\
-https://nytimes.com/2024/11/08/business/ben-baldanza-dead.html
 
