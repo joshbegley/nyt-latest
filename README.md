@@ -1,3 +1,7 @@
+**Painting by A.I.-Powered Robot Sells for $1.1 Million**\
+`The portrait depicts the British mathematician Alan Turing as the god of artificial intelligence. Its creator is a robot named Ai-Da that resembles a woman with a bob haircut.`\
+https://nytimes.com/2024/11/08/arts/ai-painting-alan-turing-auction.html
+
 **A New Broadway Musical Asks: Can Robots Fall in Love?**\
 `“Maybe Happy Ending” had an initial Korean-language production in Seoul in 2016. Here are five things to know about the show.`\
 https://nytimes.com/2024/11/08/theater/maybe-happy-ending-broadway-criss.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908841/2024/11/08/fantasy-football-week-10-flex-op
 **Iranian Agents Plotted to Kill Trump, U.S. Says in Unsealed Charges**\
 `The allegation came in a complaint that said Masih Alinejad, a Brooklyn activist, had been the target of a second assassination attempt.`\
 https://nytimes.com/2024/11/08/nyregion/iran-trump-assassination-plot.html
-
-**Toto Wolff admits Lewis Hamilton's Mercedes exit was ‘on my radar’**\
-`The Mercedes boss shared more about the lead-up to Hamilton's exit and why he liked the situation it left Mercedes in.`\
-https://nytimes.com/athletic/5908883/2024/11/08/toto-wolff-lewis-hamilton-f1-mercedes-ferrari-book/
 
