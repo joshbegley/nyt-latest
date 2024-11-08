@@ -1,3 +1,7 @@
+**Amad on Man Utd future: 'I want to stay here for a long time'**\
+`Amad says he wants to stay at Manchester United for a “long, long, long time” after scoring a brace to give the club its first European win in more than a year.`\
+https://nytimes.com/athletic/5908041/2024/11/08/amad-manchester-united-future/
+
 **China Reveals $1.4 Trillion Plan to Bail Out Local Governments**\
 `The massive support package came after a series of smaller measures in recent weeks were announced to jump-start growth in China’s sluggish economy.`\
 https://nytimes.com/2024/11/08/business/china-stimulus-economy-debt.html

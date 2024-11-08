@@ -36,5 +36,5 @@ https://nytimes.com/athletic/5907445/2024/11/08/mykhailo-mudryk-chelsea-potentia
 
 **Amad has given Amorim his first selection problem at United - four into two won't go**\
 `The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
-https://nytimes.com/athletic/5907631/2024/11/08/amad-amorin-manchester-united-attackers/
+https://nytimes.com/athletic/5907631/2024/11/08/amad-amorim-manchester-united-attackers/
 
