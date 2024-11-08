@@ -1,3 +1,7 @@
+**With Trump’s Victory, Europe’s Populist Right Sees Return of a Fellow Believer**\
+`Viktor Orban of Hungary and other right-wing European politicians hail the return of a U.S. president who shares their tough views on issues like immigration.`\
+https://nytimes.com/2024/11/08/world/europe/trump-populist-far-right-leaders.html
+
 **How DeAndre Hopkins gives the Chiefs offense another Travis Kelce**\
 `The newly acquired veteran receiver quickly has found chemistry with Patrick Mahomes and is adept at finding holes in defenses.`\
 https://nytimes.com/athletic/5905387/2024/11/08/deandre-hopkins-chiefs-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907405/2024/11/08/college-basketball-villanova-cre
 **Lamar Jackson's heroics lift Ravens over Bengals, but the defense has to start doing its part**\
 `Baltimore's pass defense, which ranks last in the NFL, surrendered 428 yards to Joe Burrow, Ja'Marr Chase and company. `\
 https://nytimes.com/athletic/5908004/2024/11/08/lamar-jackson-ravens-defense-bengals/
-
-**Cooper Rush, CeeDee Lamb connection is one of few bright spots for Cowboys**\
-`The veteran backup quarterback has a 5-1 record as a starter for Dallas but his one loss came against Sunday's foe, the Philadelphia Eagles.`\
-https://nytimes.com/athletic/5907269/2024/11/08/cowboys-cooper-rush-ceedee-lamb-connection/
 
