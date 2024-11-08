@@ -1,40 +1,40 @@
-**Amad on Man Utd future: 'I want to stay here for a long time'**\
-`Amad says he wants to stay at Manchester United for a “long, long, long time” after scoring a brace to give the club its first European win in more than a year.`\
-https://nytimes.com/athletic/5908041/2024/11/08/amad-manchester-united-future/
+**‘Dune: Prophecy’ Faced a Pitiless Terrain: Adapting Anything ‘Dune’**\
+`The novels were famously tough to adapt until Denis Villeneuve came along. Can an HBO prequel about the origins of the Bene Gesserit follow suit?`\
+https://nytimes.com/2024/11/08/arts/television/dune-prophecy-hbo-prequel.html
 
-**China Reveals $1.4 Trillion Plan to Bail Out Local Governments**\
-`The enormous support package came after a series of smaller measures in recent weeks were announced to jump-start growth in China’s sluggish economy.`\
-https://nytimes.com/2024/11/08/business/china-stimulus-economy-debt.html
+**Chopin Drops a New Single**\
+`Nearly 200 years after his death, the piano master is back.`\
+https://nytimes.com/2024/11/08/podcasts/chopin-drops-a-new-single.html
 
-**Postecoglou will understand his Tottenham squad much more after bruising experience**\
-`There were positives and problems for Spurs after Postecoglou rang the changes against Galatasaray`\
-https://nytimes.com/athletic/5907288/2024/11/08/ange-postecoglou-tottenham-squad-galatasaray/
+**Seeking Serenity at the Longevity World’s Lollapalooza**\
+`Thousands of health seekers, many of them distrustful of the medical system, made a pilgrimage to Florida to commune with the influencers and the self-proclaimed healers they believe in most.`\
+https://nytimes.com/2024/11/08/well/eudemonia-summit-wellness-palm-beach.html
 
-**Connor Hellebuyck steals 'revenge game,' Winnipeg continues historic start: 3 takeaways**\
-`The Jets won their league-leading 13th game of the season against the team that dominated them in the playoffs.`\
-https://nytimes.com/athletic/5904097/2024/11/08/connor-hellebuyck-revenge-winnipeg-historic-start-takeaways/
+**Luxury Mountain Apartments in Switzerland**\
+`From the Schanfigg Valley to the Matterhorn and Mont Blanc, Switzerland offers slopes, hikes and views galore.`\
+https://nytimes.com/2024/11/08/realestate/luxury-mountain-apartments-in-switzerland.html
 
-**Even with stitches and a missing tooth, Kirill Kaprizov is his dominant self on the road**\
-`Not only did Kaprizov assist on three of the Wild’s goals in a 5-2 victory, he made magic with good friend Mats Zuccarello.`\
-https://nytimes.com/athletic/5907983/2024/11/08/kirill-kaprizov-three-points-wild-road-win/
+**Turning a Backhand Into a Forehand**\
+`Experts say hitting what’s called an inside-out forehand to an opponent’s backhand gives a player an edge.`\
+https://nytimes.com/2024/11/08/sports/tennis/backhand-forehand-shots.html
 
-**Jump**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/11/08/learning/jump.html
+**A Chinese Homecoming Story That’s Universal**\
+`In the finale of Wang Bing’s nonfiction trilogy, garment-factory workers return to their families and wrestle with the questions all young people do.`\
+https://nytimes.com/2024/11/08/movies/youth-homecoming-wang-bing.html
 
-**Former Adams Aide Is in Plea Talks in Federal Witness Tampering Case**\
-`Mohamed Bahi was accused of tampering with witnesses and destroying evidence in the corruption investigation into Mayor Eric Adams and his campaign fund-raising.`\
-https://nytimes.com/2024/11/08/nyregion/adams-corruption-aide-plea.html
+**Rapunzel’s Got Nothing on These Picture Books’ African Heroines**\
+`In “Freedom Braids” and “The Magic Callaloo,” young girls follow cornrowed maps to escape slavery.`\
+https://nytimes.com/2024/11/08/books/review/freedom-braids-monique-duncan-oboh-moses.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/08/crosswords/spelling-bee-forum.html
+**The Many Trials of Alexander Zverev**\
+`He has not won a Grand Slam, but has taken an Olympic gold. He’s ranked No. 2, but has been fined over his temper on the court. He also has settled domestic abuse charges.`\
+https://nytimes.com/2024/11/08/sports/tennis/alexander-zverev-atp-finals.html
 
-**Chelsea signed potential in Mykhailo Mudryk - they hope their patience will pay off**\
-`There is a lot of love for the Ukraine forward at Stamford Bridge despite his difficult time at the club`\
-https://nytimes.com/athletic/5907445/2024/11/08/mykhailo-mudryk-chelsea-potential-patience/
+**House Committee Targets Chip Technology Firms for China Ties**\
+`It requested information from a handful of firms that make chip manufacturing possible about their commercial ties to China.`\
+https://nytimes.com/2024/11/08/business/economy/house-committee-china-semiconductor-manufacturing.html
 
-**Amad has given Amorim his first selection problem at United - four into two won't go**\
-`The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
-https://nytimes.com/athletic/5907631/2024/11/08/amad-amorim-manchester-united-attackers/
+**Don’t Say ‘Macbeth’ and Other Strange Rituals of the Theater World**\
+`Pulling back the curtain on the peculiar customs and enduring superstitions that help define life backstage.`\
+https://nytimes.com/2024/11/08/t-magazine/theater-rituals-superstitions.html
 
