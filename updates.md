@@ -1,5 +1,9 @@
 **San Francisco Mayor Concedes Race to Levi Strauss Heir**\
 `Mayor London Breed acknowledged on Thursday that Daniel Lurie, a first-time candidate, would succeed her in office.`\
+https://nytimes.com/live/2024/11/07/us/trump-harris-election-news/san-francisco-mayor-breed-lurie
+
+**San Francisco Mayor Concedes Race to Levi Strauss Heir**\
+`Mayor London Breed acknowledged on Thursday that Daniel Lurie, a first-time candidate, would succeed her in office.`\
 https://nytimes.com/2024/11/07/us/politics/san-francisco-mayor-breed-lurie.html
 
 **New York City Will Stop Giving Debit Cards to Migrants**\
