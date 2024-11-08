@@ -1,3 +1,7 @@
+**Judge Tosses Out Biden Program for Undocumented Spouses**\
+`The ruling issued by a federal judge in Texas struck down a new initiative aimed at helping undocumented spouses of U.S. citizens stay in the country.`\
+https://nytimes.com/2024/11/07/us/biden-undocumented-spouses-program.html
+
 **Trump’s Strange Bedfellows: Arab Americans and Right-Leaning Jews**\
 `Donald J. Trump won votes from Arab Americans and conservative pro-Israel Jews. Someone is likely to be disappointed.`\
 https://nytimes.com/2024/11/07/us/politics/trump-arab-american-jews.html

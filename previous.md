@@ -1,3 +1,7 @@
+**Judge Tosses Out Biden Program for Undocumented Spouses**\
+`The ruling issued by a federal judge in Texas struck down a new initiative aimed at helping undocumented spouses of U.S. citizens stay in the country.`\
+https://nytimes.com/2024/11/07/us/biden-undocumented-spouses-program.html
+
 **On the Ballot, Abortion Rights Proved More Popular Than Kamala Harris**\
 `In states like Arizona and Nevada, some voters split their tickets, supporting abortion rights measures while also backing Donald Trump.`\
 https://nytimes.com/2024/11/07/us/elections/abortion-ballot-harris-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/us/ruth-bader-ginsburg-medical-records.html
 **Prince William Says Past Year Was Probably the Hardest ‘in My Life’**\
 `While in South Africa for the Earthshot Prize, the prince told reporters that the cancer diagnoses of his wife, Catherine, and his father, King Charles, had been “brutal.”`\
 https://nytimes.com/2024/11/07/world/europe/prince-william-princess-kate-king-charles.html
-
-**Giuliani’s Delay in Handing Over Prized Assets Makes Judge Livid**\
-`A federal judge threatened Rudolph W. Giuliani with a contempt charge after a missed deadline to hand over prized possessions, including Yankees swag.`\
-https://nytimes.com/2024/11/07/nyregion/rudy-giuliani-court-hearing.html
 
