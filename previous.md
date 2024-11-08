@@ -1,5 +1,9 @@
+**Grammys Snubs and Surprises: Charli XCX Levels Up, Beyoncé Spreads Out and the Beatles Persist**\
+`A look at the nominations’ unexpected and intriguing story lines, including the role of an absent Drake, the validation of André 3000’s flute music and overlooked gems.`\
+https://nytimes.com/2024/11/08/arts/music/grammy-awards-snubs-surprises.html
+
 **Linda LaFlamme Dies at 85; Her ‘White Bird’ Reflected a Hippie Fantasy**\
-`With her husband, David LaFlamme, she founded the rock band It’s a Wonderful Day and wrote a soaring paean to a generation’s dreams of escape.`\
+`With her husband, David LaFlamme, she founded the rock band It’s a Beautiful Day and wrote a soaring paean to a generation’s dreams of escape.`\
 https://nytimes.com/2024/11/08/arts/music/linda-laflamme-dead.html
 
 **Trump Put Musk on Phone With Zelensky During Call**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/08/us/politics/smith-jan-6-filing.html
 **Old-School Celebrities Could Not Move the Needle**\
 `Hollywood endorsements, once an essential part of a campaign playbook, may have backfired in this election.`\
 https://nytimes.com/2024/11/08/style/celebrity-endorsements-trump-harris.html
-
-**Jonathan Haze, Star of ‘The Little Shop of Horrors,’ Dies at 95**\
-`Best known for his star turn in the cult film about a flesh-eating plant, he was a go-to member of the low-budget auteur Roger Corman’s repertory company.`\
-https://nytimes.com/2024/11/08/movies/jonathan-haze-dead.html
 
