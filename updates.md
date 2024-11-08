@@ -1,3 +1,15 @@
+**Voters in Red and Blue States Repudiate Lenient Drug Policies**\
+`Californians voted for tougher penalties for dealers. Florida, North Dakota and South Dakota rejected proposals to legalize marijuana. Massachusetts denied a measure allowing possession of psychedelics.`\
+https://nytimes.com/2024/11/08/health/drugs-election-cannabis-penalties.html
+
+**49ers RB McCaffrey expected to make season debut Sunday**\
+`“I feel good now,” McCaffrey said after Friday’s practice. “No, I wouldn’t be out here if it was still bothering me. I feel great.”`\
+https://nytimes.com/athletic/5909586/2024/11/08/49ers-christian-mccaffrey-season-debut/
+
+**Votes in House and Senate Races Are Still Being Tallied. Here’s the Latest.**\
+`Control of the House remains in the balance, and three Senate seats in swing states have yet to be called.`\
+https://nytimes.com/2024/11/08/us/elections/house-senate-election-races.html
+
 **What Experts Want You to Know About Plan B**\
 `We asked experts how it works, when you should take it, how much it costs and more.`\
 https://nytimes.com/article/plan-b-contraception-morning-after-pill.html
