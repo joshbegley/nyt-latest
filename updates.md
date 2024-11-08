@@ -1,3 +1,7 @@
+**The Age of the Pogrom Returns**\
+`The attack on Israeli soccer fans comes after years of rising antisemitism in Europe, much within Muslim communities.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/israeli-attack-soccer-amsterdam-pogrom
+
 **From a Celebrated Chef, a New Line of Home Goods**\
 `Clare de Boer and her husband, Luke Sherwin, have launched Roseland, a company selling furniture inspired by early American design.`\
 https://nytimes.com/2024/11/08/t-magazine/roseland-home-goods.html
