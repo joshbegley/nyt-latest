@@ -1,3 +1,7 @@
+**Palace's Nketiah out of Fulham gam with hamstring injury - Glasner**\
+`Oliver Glasner is facing an injury crisis with Eddie Nketiah the latest Crystal Palace player to be ruled out of action.`\
+https://nytimes.com/athletic/5908485/2024/11/08/eddie-nketiah-injury-update-crystal-palace/
+
 **Fourth-quarter rally had Anthony Edwards, Wolves roaring as Bulls look for answers**\
 `The Bulls hung with the Timberwolves for three quarters, but a 45-point fourth, led by Edwards, decided the game.`\
 https://nytimes.com/athletic/5907903/2024/11/08/anthony-edwards-timberwolves-bulls-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907960/2024/11/08/big-12-playoff-colorado-byu/
 **New York’s Wu-Tang Clan Street Signs Sell Out in a Blink**\
 `The 100 replicas of the “Wu-Tang Clan District” sign on Staten Island, where the group was formed in 1992, were gone in less than two hours.`\
 https://nytimes.com/2024/11/08/arts/music/wu-tang-clan-street-sign-nyc.html
-
-**Ancelotti says Madrid believe they have 'found solution to defensive problem'**\
-`Carlo Ancelotti believes Real Madrid have &#8220;found the solution&#8221; to their problems following a talk with his players and the head coach insisted: &#8220;It is a defensive problem, not offensive.`\
-https://nytimes.com/athletic/5908305/2024/11/08/real-madrid-form-carlo-ancelotti/
 
