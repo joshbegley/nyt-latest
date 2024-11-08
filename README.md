@@ -7,7 +7,7 @@ https://nytimes.com/2024/11/08/business/steve-madden-ceo-china.html
 https://nytimes.com/2024/11/08/opinion/trump-democracy-elections.html
 
 **Violent Attacks in Amsterdam Driven by Antisemitism, Israel Says**\
-`The police said 57 people were arrested amid violence tied to a soccer game between Dutch and Israeli teams. Israel said it was sending planes to help its injured citizens.`\
+`The police said 57 people were arrested amid violence tied to a soccer game between Dutch and Israeli teams. Israel said it was sending planes to rescue its citizens.`\
 https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacked.html
 
 **'Now I can breathe a bit more': Alison Van Uytvanck on life after tennis and Grand Slam anxiety**\
