@@ -1,3 +1,11 @@
+**Amad has given Amorin his first selection problem at United - four into two won't go**\
+`The forward is into his fifth year as a United player - he needs to play more but incoming coach Amorin is not short of options in attack`\
+https://nytimes.com/athletic/5907631/2024/11/08/amad-amorin-manchester-united-attackers/
+
+**Word of the Day: geothermal**\
+`This word has appeared in 63 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/08/learning/word-of-the-day-geothermal.html
+
 **Jake DeBrusk is heating up, and have the Canucks found their top gear? 3 takeaways**\
 `Vancouver’s 4-2 win against Los Angeles will halt any early concerns about the club’s performance against the league’s top half.`\
 https://nytimes.com/athletic/5907719/2024/11/08/canucks-win-kings-jake-debrusk/
