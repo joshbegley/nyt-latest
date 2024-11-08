@@ -1,3 +1,7 @@
+**Wave of Racist Texts After Election Prompts Scrutiny of F.B.I.**\
+`Offensive messages were reported across the South, Midwest, Mid-Atlantic and as far west as Texas.`\
+https://nytimes.com/2024/11/07/us/politics/a-wave-of-racist-texts-after-the-election-prompts-the-scrutiny-of-the-fbi.html
+
 **Rangers' poor defense in front of Igor Shesterkin, line switches, more: 4 takeaways**\
 `“There’s no excuse for what happened today,” Mika Zibanejad said after the Rangers' 6-1 loss to the Sabres. `\
 https://nytimes.com/athletic/5907775/2024/11/07/rangers-sabres-igor-shesterkin/
