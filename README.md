@@ -1,3 +1,7 @@
+**‘Walden’ Review: My Sister! My Twin! My Astronaut!**\
+`Emmy Rossum and Zoë Winters star in a new Off Broadway play that’s a climate disaster drama cohabiting with a domestic soap opera.`\
+https://nytimes.com/2024/11/07/theater/walden-review-emmy-rossum-zoe-winters.html
+
 **Read the Judge’s Ruling**\
 `A federal judge in Texas struck down a new Biden administration program that sought to provide a path to U.S. citizenship for hundreds of thousands of undocumented immigrants married to American citizens.`\
 https://nytimes.com/interactive/2024/11/07/us/biden-undocumented-spouses-program.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/us/politics/biden-harris-campaign.html
 **Trump’s Strange Bedfellows: Arab Americans and Right-Leaning Jews**\
 `Donald J. Trump won votes from Arab Americans and conservative pro-Israel Jews. Someone is likely to be disappointed.`\
 https://nytimes.com/2024/11/07/us/politics/trump-arab-american-jews.html
-
-**Man Who Illegally Accessed Ginsburg’s Medical Records Gets 2 Years in Prison**\
-`The man, a former health care worker, was convicted in July on two charges stemming from the privacy breach and his attempts to cover it up.`\
-https://nytimes.com/2024/11/07/us/ruth-bader-ginsburg-medical-records.html
 
