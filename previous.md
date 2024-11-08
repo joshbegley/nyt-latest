@@ -1,3 +1,7 @@
+**How Inflation Shaped Voting**\
+`We explain inflation’s role in the election.`\
+https://nytimes.com/2024/11/08/briefing/how-inflation-shaped-voting.html
+
 **Bellingham, Dibling receive first England U21 call-ups**\
 `Sunderland midfielder Jobe Bellingham and Southampton winger Tyler Dibling have received their first England Under-21 call-ups for November&#8217;s fixtures against Spain and the Netherlands.`\
 https://nytimes.com/athletic/5908147/2024/11/08/jobe-bellingham-england-u21-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5905300/2024/11/08/nfl-midseason-predictions-super-
 **After 46 years as a sportswriter, Eric Duhatschek is signing off**\
 `In his final Friday NHL notebook, Eric Duhatschek recounts his long and storied sportswriting career.`\
 https://nytimes.com/athletic/5901088/2024/11/08/eric-duhtaschek-farewell/
-
-**Why Shaquille O'Neal checks in at No. 7 in The Athletic's The Basketball 100: 'Star of stars'**\
-`For a certain generation, it’s hard to imagine O’Neal as one of the greatest players. In his prime, he was a punishing, dominant athlete.`\
-https://nytimes.com/athletic/5892778/2024/11/08/shaquille-oneal-the-basketball-100-excerpt/
 

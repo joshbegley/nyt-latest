@@ -1,3 +1,7 @@
+**How Inflation Shaped Voting**\
+`We explain inflation’s role in the election.`\
+https://nytimes.com/2024/11/08/briefing/how-inflation-shaped-voting.html
+
 **Bellingham, Dibling receive first England U21 call-ups**\
 `Sunderland midfielder Jobe Bellingham and Southampton winger Tyler Dibling have received their first England Under-21 call-ups for November&#8217;s fixtures against Spain and the Netherlands.`\
 https://nytimes.com/athletic/5908147/2024/11/08/jobe-bellingham-england-u21-squad/
