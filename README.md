@@ -1,3 +1,7 @@
+**Party Whose Leader Is Known for Antisemitism Joins Lithuanian Government**\
+`A new coalition includes a party led by a politician notorious for antisemitic remarks, another blow to the longstanding refusal by Europe’s mainstream parties to join with those seen as extremist.`\
+https://nytimes.com/2024/11/08/world/europe/lithuania-coalition-antisemitism.html
+
 **Is a New Wave of Digital Nomadism Coming? Interest in Moving Abroad Is on the Rise.**\
 `Google searches for “best countries to move to” peaked immediately after the election. Here’s what you need to know about digital nomad visas.`\
 https://nytimes.com/2024/11/08/travel/digital-nomad-visas-moving-abroad-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/world/europe/notre-dame-bells-cathedral-paris.htm
 **Canucks observations: Quinn Hughes' continued dominance, Tanner Jeannot's bad hit and more**\
 `After a perfect California road trip, the Canucks return home this weekend to face Edmonton.`\
 https://nytimes.com/athletic/5907938/2024/11/08/quinn-hughes-canucks-tanner-jeannot/
-
-**Buchanan, Kone return to Canada squad for Nations League matches**\
-`Inter Milan&#8217;s Tajon Buchanan and Olympique Marseille&#8217;s Ismael Kone, two of Canada&#8217;s most impactful players at the 2022 World Cup, will return to the squad after recent injuries.`\
-https://nytimes.com/athletic/5908428/2024/11/08/canada-squad-nations-league/
 
