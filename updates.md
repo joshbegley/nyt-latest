@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5907800/2024/11/08/flyers-matvei-michkov-scratch-jo
 `\
 https://nytimes.com/athletic/5907800/2024/11/08/flyers-matvei-michkov-scratch-john-tortorella/
 
+**Why John Tortorella's decision to scratch Matvei Michkov isn't shocking — or alarming**\
+`The Flyers coach knows Michkov is the future of the organization, but there are going to be speed bumps on his path.
+`\
+https://nytimes.com/athletic/5907800/2024/11/08/flyers-matvei-michkov-scratch-john-tortorella/
+
 **Wolves yearn for first Premier League win of season as deeper concerns loom**\
 `Gary O'Neil has overseen one win in 20 league games, but short-term issues are compounded by off-field uncertainties at Molineux`\
 https://nytimes.com/athletic/5903997/2024/11/08/wolves-oneil-fosun-molineux-sack/
