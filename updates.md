@@ -1,3 +1,7 @@
+**Ancelotti says Madrid believe they have 'found solution to defensive problem'**\
+`Carlo Ancelotti believes Real Madrid have &#8220;found the solution&#8221; to their problems following a talk with his players and the head coach insisted: &#8220;It is a defensive problem, not offensive.`\
+https://nytimes.com/athletic/5908305/2024/11/08/real-madrid-form-carlo-ancelotti/
+
 **German politician resigns over St Pauli sex doll social media post**\
 `A politician from Delmenhorst in north west Germany has been forced to resign after publishing a photo on his Facebook account in which a sex doll dressed in a St Pauli shirt was shown with a noose around its neck, hanging from a gallows and with a Nazi symbol drawn on its forehead.`\
 https://nytimes.com/athletic/5908172/2024/11/08/german-politician-resigns-st-pauli/
