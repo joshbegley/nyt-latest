@@ -1,3 +1,7 @@
+**Police make 62 arrests after attacks on Israeli fans in Amsterdam**\
+`Dutch police have made 62 arrests and confirmed five people have been injured after Maccabi Tel Aviv supporters were attacked in Amsterdam following their Europa League tie with Ajax on Thursday.`\
+https://nytimes.com/athletic/5908079/2024/11/08/dutch-police-arrests-maccabi-tel-aviv/
+
 **‘It’s demoralizing to a defense’: Chiefs becoming masters of the long-play touchdown drive**\
 `The Chiefs lead the NFL with 11 touchdown drives featuring 10 or more plays, thanks in large part to Kareem Hunt and the ground game.`\
 https://nytimes.com/athletic/5907273/2024/11/08/chiefs-long-drive-touchdowns-patrick-mahomes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892778/2024/11/08/shaquille-oneal-the-basketball-1
 **Trump’s Historic Chief of Staff Pick, and What Elon Musk Wants Now**\
 `Plus, for $200, he was the voice of the internet.`\
 https://nytimes.com/2024/11/08/podcasts/trump-chief-of-staff-musk.html
-
-**Inside Trump World as the Next Chapter Begins**\
-`In the days following the election, the president-elect has been gearing up for a second administration.`\
-https://nytimes.com/2024/11/08/podcasts/the-daily/trump-second-administration.html
 
