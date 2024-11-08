@@ -1,3 +1,7 @@
+**On the Ballot, Abortion Rights Proved More Popular Than Kamala Harris**\
+`In states like Arizona and Nevada, some voters split their tickets, supporting abortion rights measures while also backing Donald Trump.`\
+https://nytimes.com/2024/11/07/us/elections/abortion-ballot-harris-democrats.html
+
 **Kyle Shanahan: Christian McCaffrey expected to make season debut Sunday**\
 `Jordan Mason, who has taken McCaffrey's mantle as San Francisco's leading rusher this season, has been limited in practice this week.`\
 https://nytimes.com/athletic/5907464/2024/11/07/christian-mccaffrey-injury-update-status-49ers/

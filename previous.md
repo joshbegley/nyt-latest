@@ -1,3 +1,7 @@
+**On the Ballot, Abortion Rights Proved More Popular Than Kamala Harris**\
+`In states like Arizona and Nevada, some voters split their tickets, supporting abortion rights measures while also backing Donald Trump.`\
+https://nytimes.com/2024/11/07/us/elections/abortion-ballot-harris-democrats.html
+
 **Kyle Shanahan: Christian McCaffrey expected to make season debut Sunday**\
 `Jordan Mason, who has taken McCaffrey's mantle as San Francisco's leading rusher this season, has been limited in practice this week.`\
 https://nytimes.com/athletic/5907464/2024/11/07/christian-mccaffrey-injury-update-status-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/world/europe/prince-william-princess-kate-king-ch
 **Giuliani’s Delay in Handing Over Prized Assets Makes Judge Livid**\
 `A federal judge threatened Rudolph W. Giuliani with a contempt charge after a missed deadline to hand over prized possessions, including Yankees swag.`\
 https://nytimes.com/2024/11/07/nyregion/rudy-giuliani-court-hearing.html
-
-**What’s Next for Kamala Harris? Here Are Six Options.**\
-`Her friends, aides and political allies say it’s too soon for her to even contemplate her next career move. But the speculation has already begun.`\
-https://nytimes.com/2024/11/07/us/politics/kamala-harris-2028-run-for-president.html
 
