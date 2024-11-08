@@ -1,3 +1,11 @@
+**Iranian Agents Plotted to Kill Trump, U.S. Says in Unsealed Charges**\
+`The allegation came in a complaint that said Masih Alinejad, a Brooklyn activist, had been the target of a second assassination attempt.`\
+https://nytimes.com/2024/11/08/nyregion/iran-trump-assassination-plot.html
+
+**Toto Wolff admits Lewis Hamilton's Mercedes exit was ‘on my radar’**\
+`The Mercedes boss shared more about the lead-up to Hamilton's exit and why he liked the situation it left Mercedes in.`\
+https://nytimes.com/athletic/5908883/2024/11/08/toto-wolff-lewis-hamilton-f1-mercedes-ferrari-book/
+
 **Jack Smith Seeks Pause in Jan. 6 Case After Trump’s Election**\
 `The special counsel asked for time to assess how to proceed now that Donald Trump is returning the White House, triggering a Justice Department policy against prosecuting a sitting president.`\
 https://nytimes.com/2024/11/08/us/politics/jack-smith-trump-jan-6-case.html
