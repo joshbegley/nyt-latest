@@ -1,3 +1,15 @@
+**Omorodion, Casado handed first Spain call-ups**\
+`Barcelona midfielder Marc Casado and Porto striker Samu Omorodion have been named in Spain&#8217;s senior squad for the first time for November&#8217;s Nations League matches.`\
+https://nytimes.com/athletic/5908135/2024/11/08/spain-squad-nations-league-samu-omorodion/
+
+**India Drops 36-Year Ban on Rushdie Book, Saying It Can’t Find the Order**\
+`In 1988, India ruled Salman Rushdie’s “Satanic Verses” could not be imported. This week, the ban was lifted because officials could not find the original order.`\
+https://nytimes.com/2024/11/08/world/asia/india-salman-rushdie-satanic-verses-book-ban.html
+
+**Twins free-agent targets: 15 fits for a front office shopping in the discount aisle again**\
+`Trying to find the next Carlos Santana-level bargain as ownership's payroll puts the Twins' front office in a difficult spot.`\
+https://nytimes.com/athletic/5892854/2024/11/08/minnesota-twins-free-agent-targets/
+
 **How Inflation Shaped Voting**\
 `We explain inflation’s role in the election.`\
 https://nytimes.com/2024/11/08/briefing/how-inflation-shaped-voting.html
