@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5907775/2024/11/07/rangers-sabres-igor-shesterkin/
 `The Bruins improved to 7-7-1 on the season and their latest win over the Flames might signal traction.`\
 https://nytimes.com/athletic/5907767/2024/11/07/bruins-flames-brad-marchand/
 
-**A wave of racist texts after the election prompts the scrutiny of the F.B.I.**\
+**Wave of Racist Texts After Election Prompts Scrutiny of F.B.I.**\
 `Offensive messages were reported across the South, Midwest, Mid-Atlantic and as far west as Texas.`\
 https://nytimes.com/2024/11/07/us/politics/a-wave-of-racist-texts-after-the-election-prompts-the-scrutiny-of-the-fbi.html
 
