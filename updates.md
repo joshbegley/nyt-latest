@@ -1,3 +1,7 @@
+**Reds leave Diamond Sports; MLB objects to broadcaster's bankruptcy plan**\
+`It wasn’t immediately clear whether the Reds would join the ranks of six other teams whose games will be broadcast and produced by MLB.`\
+https://nytimes.com/athletic/5906864/2024/11/08/reds-leave-broadcaster-diamond-mlb/
+
 **Commanders' Brian Robinson Jr., Marshon Lattimore ruled out vs. Steelers**\
 `Both Robinson and Lattimore have been ruled out for Sunday's game against the Steelers, the team announced Friday.`\
 https://nytimes.com/athletic/5909374/2024/11/08/commanders-brian-robinson-jr-marshon-lattimore-out-steelers/
