@@ -1,3 +1,11 @@
+**First Major Snow of the Season Pummels Denver Region**\
+`The National Weather Service said snowfall accumulations from Friday into Saturday morning could be significant, with 12 to 20 inches expected south of Denver.`\
+https://nytimes.com/2024/11/08/weather/colorado-new-mexico-snowstorm.html
+
+**Titans QB Will Levis to start vs. Chargers, coach Brian Callahan says**\
+`The 25-year-old was listed as a full participant on the practice report Thursday for the first time since Week 7.`\
+https://nytimes.com/athletic/5909137/2024/11/08/will-levis-titans-starting-quarterback-injury-update/
+
 **The Election’s Other Biggest Losers? Economists.**\
 `Democrats have to reckon with the fact that voters don’t want what economists think is best.`\
 https://nytimes.com/2024/11/08/opinion/election-economists-populism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/arts/music/grammy-awards-snubs-surprises.html
 **Linda LaFlamme Dies at 85; Her ‘White Bird’ Reflected a Hippie Fantasy**\
 `With her husband, David LaFlamme, she founded the rock band It’s a Beautiful Day and wrote a soaring paean to a generation’s dreams of escape.`\
 https://nytimes.com/2024/11/08/arts/music/linda-laflamme-dead.html
-
-**Trump Put Musk on Phone With Zelensky During Call**\
-`Elon Musk was with Donald Trump at Mar-a-Lago when the president-elect spoke with Ukraine’s leader. It is not clear if they discussed any change in U.S. policy toward Ukraine.`\
-https://nytimes.com/2024/11/08/us/politics/trump-musk-zelensky.html
-
-**Painting by A.I.-Powered Robot Sells for $1.1 Million**\
-`The portrait depicts the British mathematician Alan Turing as the god of artificial intelligence. Its creator is a robot named Ai-Da that resembles a woman with a bob haircut.`\
-https://nytimes.com/2024/11/08/arts/ai-painting-alan-turing-auction.html
 

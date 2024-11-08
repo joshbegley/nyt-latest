@@ -1,3 +1,11 @@
+**First Major Snow of the Season Pummels Denver Region**\
+`The National Weather Service said snowfall accumulations from Friday into Saturday morning could be significant, with 12 to 20 inches expected south of Denver.`\
+https://nytimes.com/2024/11/08/weather/colorado-new-mexico-snowstorm.html
+
+**Titans QB Will Levis to start vs. Chargers, coach Brian Callahan says**\
+`The 25-year-old was listed as a full participant on the practice report Thursday for the first time since Week 7.`\
+https://nytimes.com/athletic/5909137/2024/11/08/will-levis-titans-starting-quarterback-injury-update/
+
 **The Election’s Other Biggest Losers? Economists.**\
 `Democrats have to reckon with the fact that voters don’t want what economists think is best.`\
 https://nytimes.com/2024/11/08/opinion/election-economists-populism.html
