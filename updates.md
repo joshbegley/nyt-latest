@@ -1,3 +1,19 @@
+**Is a New Wave of Digital Nomadism Coming? Interest in Moving Abroad Is on the Rise.**\
+`Google searches for “best countries to move to” peaked immediately after the election. Here’s what you need to know about digital nomad visas.`\
+https://nytimes.com/2024/11/08/travel/digital-nomad-visas-moving-abroad-election.html
+
+**Notre-Dame Cathedral’s Bells Ring as Restoration Nears Completion**\
+`The ringing of Notre-Dame’s bells sounded throughout Paris for the first time since the fire in 2019.`\
+https://nytimes.com/video/world/europe/100000009815624/notre-dame-cathedral-bells.html
+
+**Beyoncé and Young Women Pop Sensations Lead 2025 Grammy Nominees**\
+`Charli XCX, Billie Eilish, Chappell Roan and Sabrina Carpenter will compete in the biggest categories, along with Taylor Swift and Kendrick Lamar.`\
+https://nytimes.com/2024/11/08/arts/music/grammy-awards-nominations.html
+
+**Grammy Awards 2025: The Full List of Nominees**\
+`Artists, albums and songs competing for trophies at the 67th annual ceremony were announced on Friday. The show will take place on Feb. 2 at Crypto.com Arena in Los Angeles.`\
+https://nytimes.com/2024/11/08/arts/music/grammys-nominee-list-2025.html
+
 **Yankees' Aaron Boone will return in 2025 after club exercises option**\
 `Boone will return to manage the Yankees in 2025, with the possibility of a longer extension coming later this offseason.`\
 https://nytimes.com/athletic/5906971/2024/11/08/yankees-aaron-boone-manager-option/
