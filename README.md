@@ -1,8 +1,12 @@
+**NBA closing academies in Mexico, Australia**\
+`The NBA will keep its academy in Senegal open as the league has made Africa a larger part of its global focus.`\
+https://nytimes.com/athletic/5909527/2024/11/08/nba-closing-academies-mexico-australia/
+
 **Voters in Red and Blue States Repudiate Lenient Drug Policies**\
 `Californians voted for tougher penalties for dealers. Florida, North Dakota and South Dakota rejected proposals to legalize marijuana. Massachusetts denied a measure allowing possession of psychedelics.`\
 https://nytimes.com/2024/11/08/health/drugs-election-cannabis-penalties.html
 
-**49ers RB McCaffrey expected to make season debut Sunday**\
+**49ers RB Christian McCaffrey expected to make season debut Sunday**\
 `“I feel good now,” McCaffrey said after Friday’s practice. “No, I wouldn’t be out here if it was still bothering me. I feel great.”`\
 https://nytimes.com/athletic/5909586/2024/11/08/49ers-christian-mccaffrey-season-debut/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/us/elections/tim-walz-kamala-harris-election.html
 **Arsenal full of belief for trip to Chelsea despite recent results, says Mikel Arteta**\
 `Arsenal are heading into their game against Chelsea on Sunday &#8220;really believing&#8221; they can win, according to manager Mikel Arteta.`\
 https://nytimes.com/athletic/5909092/2024/11/08/arsenal-chelsea-premier-league-belief/
-
-**Tielemans set to feature at Liverpool despite skipping Belgium duty**\
-`Youri Tielemans has ruled himself out of Belgium’s upcoming international fixtures due to a &#8220;small pain&#8221; but Unai Emery is hopeful he will be available for Aston Villa’s trip to Liverpool.`\
-https://nytimes.com/athletic/5908628/2024/11/08/aston-villa-youri-tielemans-injury/
 
