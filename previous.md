@@ -2,6 +2,18 @@
 `Not exactly. But in Grammyland, nothing is simple.`\
 https://nytimes.com/2024/11/08/arts/music/grammys-beyonce-cowboy-carter-michael-jackson-thriller.html
 
+**Is Door-Knocking Dead? No, It Made One Big Difference.**\
+`Political campaigns shouldn’t give up on door-knocking yet.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/ground-game-campaigns-senate
+
+**San Francisco Mayor-Elect Wants to Declare a ‘Fentanyl State of Emergency’**\
+`Daniel Lurie, San Francisco’s mayor-elect and heir to the Levi Strauss fortune, expressed his commitment to fighting crime and drugs in the city.`\
+https://nytimes.com/video/us/elections/100000009816424/san-francisco-mayor-elect-drugs-crime.html
+
+**Brooklyn Man Charged With Staging Car Crash Shown in TikTok Video**\
+`The crash, which prosecutors said was staged, was captured by dash cameras. The footage was uploaded to TikTok, where it has since been viewed more than 74 million times.`\
+https://nytimes.com/2024/11/08/nyregion/insurance-fraud-car-crash-brooklyn.html
+
 **Gauff continues resurgence by beating Sabalenka at WTA Tour Finals to set up Zheng final**\
 `Coco Gauff may be saving the best for last.`\
 https://nytimes.com/athletic/5909184/2024/11/08/wta-tour-finals-gauff-sabalenka-result-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/08/business/ben-baldanza-dead.html
 **Panthers in Munich: Jadeveon Clowney stays put, Bryce Young eyes Giants' pass rush**\
 `The Panthers also signed RB Chuba Hubbard to an extension ahead of Sunday's game against the Giants in Germany.`\
 https://nytimes.com/athletic/5909194/2024/11/08/carolina-panthers-new-york-giants-munich-bryce-young/
-
-**UF men's basketball coach Golden accused of sexual harassment: Report**\
-`A formal complaint was filed with Florida’s Title IX office on Sept. 27, The Alligator reported.`\
-https://nytimes.com/athletic/5909192/2024/11/08/todd-golden-florida-sexual-harassment-complaint/
-
-**First Major Snow of the Season Pummels Denver Region**\
-`The National Weather Service said snowfall accumulations from Friday into Saturday morning could be significant, with 12 to 20 inches expected south of Denver.`\
-https://nytimes.com/2024/11/08/weather/colorado-new-mexico-snowstorm.html
-
-**Titans QB Will Levis to start vs. Chargers, coach Brian Callahan says**\
-`The 25-year-old was listed as a full participant on the practice report Thursday for the first time since Week 7.`\
-https://nytimes.com/athletic/5909137/2024/11/08/will-levis-titans-starting-quarterback-injury-update/
 

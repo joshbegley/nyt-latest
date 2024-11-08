@@ -1,3 +1,15 @@
+**Is Door-Knocking Dead? No, It Made One Big Difference.**\
+`Political campaigns shouldn’t give up on door-knocking yet.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/ground-game-campaigns-senate
+
+**San Francisco Mayor-Elect Wants to Declare a ‘Fentanyl State of Emergency’**\
+`Daniel Lurie, San Francisco’s mayor-elect and heir to the Levi Strauss fortune, expressed his commitment to fighting crime and drugs in the city.`\
+https://nytimes.com/video/us/elections/100000009816424/san-francisco-mayor-elect-drugs-crime.html
+
+**Brooklyn Man Charged With Staging Car Crash Shown in TikTok Video**\
+`The crash, which prosecutors said was staged, was captured by dash cameras. The footage was uploaded to TikTok, where it has since been viewed more than 74 million times.`\
+https://nytimes.com/2024/11/08/nyregion/insurance-fraud-car-crash-brooklyn.html
+
 **Did Beyoncé’s Grammy Nods Really Top Michael Jackson’s for ‘Thriller’?**\
 `Not exactly. But in Grammyland, nothing is simple.`\
 https://nytimes.com/2024/11/08/arts/music/grammys-beyonce-cowboy-carter-michael-jackson-thriller.html
