@@ -1,3 +1,7 @@
+**Trump has spoken with at least six world leaders since his election.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls
+
 **NBA closing academies in Mexico, Australia**\
 `The NBA will keep its academy in Senegal open as the league has made Africa a larger part of its global focus.`\
 https://nytimes.com/athletic/5909527/2024/11/08/nba-closing-academies-mexico-australia/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/arts/music/shaboozey-grammys-a-bar-song.html
 **Walz Offers Minnesota as a Liberal Escape From Trump**\
 `Speaking in his home state after he and Vice President Kamala Harris lost this week, Gov. Tim Walz of Minnesota vowed to “stand ready to stand up and fight.”`\
 https://nytimes.com/2024/11/08/us/elections/tim-walz-kamala-harris-election.html
-
-**Arsenal full of belief for trip to Chelsea despite recent results, says Mikel Arteta**\
-`Arsenal are heading into their game against Chelsea on Sunday &#8220;really believing&#8221; they can win, according to manager Mikel Arteta.`\
-https://nytimes.com/athletic/5909092/2024/11/08/arsenal-chelsea-premier-league-belief/
 
