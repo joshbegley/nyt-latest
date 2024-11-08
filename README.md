@@ -1,3 +1,7 @@
+**With Ready Orders and an Energy Czar, Trump Plots Pivot to Fossil Fuels**\
+`President-elect Donald J. Trump’s transition team for climate and the environment is considering relocating the E.P.A. out of Washington and other drastic changes.`\
+https://nytimes.com/2024/11/08/climate/trump-transition-epa-interior-energy.html
+
 **Did Beyoncé’s Grammy Nods Really Top Michael Jackson’s for ‘Thriller’?**\
 `Not exactly. But in Grammyland, nothing is simple.`\
 https://nytimes.com/2024/11/08/arts/music/grammys-beyonce-cowboy-carter-michael-jackson-thriller.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/nyregion/tracey-collins-eric-adams-retire.html
 **Ben Baldanza, Who Brought No-Frills Flying to Spirit Airlines, Dies at 62**\
 `He introduced ticket prices that couldn’t be beat, but asked fliers to pay extra for nearly everything, including water, carry-ons and printed tickets.`\
 https://nytimes.com/2024/11/08/business/ben-baldanza-dead.html
-
-**Panthers in Munich: Jadeveon Clowney stays put, Bryce Young eyes Giants' pass rush**\
-`The Panthers also signed RB Chuba Hubbard to an extension ahead of Sunday's game against the Giants in Germany.`\
-https://nytimes.com/athletic/5909194/2024/11/08/carolina-panthers-new-york-giants-munich-bryce-young/
 
