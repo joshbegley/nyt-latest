@@ -1,3 +1,7 @@
+**Painting by A.I.-Powered Robot Sells for $1.1 Million**\
+`The portrait depicts the British mathematician Alan Turing as the god of artificial intelligence. Its creator is a robot named Ai-Da that resembles a woman with a bob haircut.`\
+https://nytimes.com/2024/11/08/arts/ai-painting-alan-turing-auction.html
+
 **A New Broadway Musical Asks: Can Robots Fall in Love?**\
 `“Maybe Happy Ending” had an initial Korean-language production in Seoul in 2016. Here are five things to know about the show.`\
 https://nytimes.com/2024/11/08/theater/maybe-happy-ending-broadway-criss.html
