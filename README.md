@@ -1,3 +1,7 @@
+**San Francisco Mayor Concedes Race to Levi Strauss Heir**\
+`Mayor London Breed acknowledged on Thursday that Daniel Lurie, a first-time candidate, would succeed her in office.`\
+https://nytimes.com/2024/11/07/us/politics/san-francisco-mayor-breed-lurie.html
+
 **New York City Will Stop Giving Debit Cards to Migrants**\
 `Mayor Eric Adams is ending a contentious pilot program that gave 2,600 migrant families debit cards to purchase food.`\
 https://nytimes.com/2024/11/07/nyregion/migrant-debit-cards-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/07/nyregion/fluoride-water-eric-adams.html
 **Mayor of Jackson, Miss., Is Indicted on Federal Corruption Charges**\
 `The mayor and two other local officials pleaded not guilty on Thursday after being accused of taking part in a scheme in which F.B.I. agents posing as real estate developers offered bribes.`\
 https://nytimes.com/2024/11/07/us/jackson-mayor-indicted-federal-corruption.html
-
-**Giuliani Speaks After Missing Court Deadline for $148 Million Payment**\
-`Rudy Giuliani, the former New York City mayor, owes $148 million from a 2021 defamation case, which he called “a political vendetta.”`\
-https://nytimes.com/video/us/politics/100000009814822/giuliani-speaks-after-missing-court-deadline-for-148-million-payment.html
 
