@@ -1,3 +1,15 @@
+**Kings' Tanner Jeannot suspended for 3 games following illegal check**\
+`Jeannot was assessed a match penalty and ejected from Thursday's game against the Canucks for an illegal check to Brock Boeser.`\
+https://nytimes.com/athletic/5909335/2024/11/08/tanner-jeannot-los-angeles-kings-suspension-nhl/
+
+**Disillusioned Young Voters Focus on ‘Community’**\
+`Mutual aid, grass-roots organizing and a belief that people need to take care of each other have been popular topics on social media.`\
+https://nytimes.com/2024/11/08/style/community-organizing.html
+
+**Cowboys to place Prescott on IR, timetable uncertain, says EVP Jones**\
+`“Right now, I don’t think anyone knows whether it will be four weeks, six weeks or the season," Cowboys EVP Stephen Jones said Friday.`\
+https://nytimes.com/athletic/5909541/2024/11/08/cowboys-dak-prescott-injured-reserve-timetable-uncertain/
+
 **Trump has spoken with at least six world leaders since his election.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/08/arts/music/st-thomas-church-choir-school.html
 **$7 Million Deal Is Reached for Upper West Side Movie Theater, Nonprofit Says**\
 `A nonprofit group says it has reached an agreement to buy the shuttered Metro Theater from its owners, but the deal is contingent on raising the money by the end of the year.`\
 https://nytimes.com/2024/11/08/movies/metro-theater-upper-west-side.html
-
-**Reds leave Diamond Sports; MLB objects to broadcaster's bankruptcy plan**\
-`It wasn’t immediately clear whether the Reds would join the ranks of six other teams whose games will be broadcast and produced by MLB.`\
-https://nytimes.com/athletic/5906864/2024/11/08/reds-leave-broadcaster-diamond-mlb/
-
-**Shaboozey Has Something New to Toast: 6 Grammy Nominations**\
-`The country singer’s “A Bar Song (Tipsy)” has been omnipresent; now it’s up for song of the year in February.`\
-https://nytimes.com/2024/11/08/arts/music/shaboozey-grammys-a-bar-song.html
-
-**Walz Offers Minnesota as a Liberal Escape From Trump**\
-`Speaking in his home state after he and Vice President Kamala Harris lost this week, Gov. Tim Walz of Minnesota vowed to “stand ready to stand up and fight.”`\
-https://nytimes.com/2024/11/08/us/elections/tim-walz-kamala-harris-election.html
 

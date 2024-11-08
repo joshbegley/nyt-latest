@@ -1,3 +1,15 @@
+**Kings' Tanner Jeannot suspended for 3 games following illegal check**\
+`Jeannot was assessed a match penalty and ejected from Thursday's game against the Canucks for an illegal check to Brock Boeser.`\
+https://nytimes.com/athletic/5909335/2024/11/08/tanner-jeannot-los-angeles-kings-suspension-nhl/
+
+**Disillusioned Young Voters Focus on ‘Community’**\
+`Mutual aid, grass-roots organizing and a belief that people need to take care of each other have been popular topics on social media.`\
+https://nytimes.com/2024/11/08/style/community-organizing.html
+
+**Cowboys to place Prescott on IR, timetable uncertain, says EVP Jones**\
+`“Right now, I don’t think anyone knows whether it will be four weeks, six weeks or the season," Cowboys EVP Stephen Jones said Friday.`\
+https://nytimes.com/athletic/5909541/2024/11/08/cowboys-dak-prescott-injured-reserve-timetable-uncertain/
+
 **Trump has spoken with at least six world leaders since his election.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls
