@@ -1,3 +1,15 @@
+**We’re Getting an Induction Range. Is It All Right to Sell Our Old Gas One?**\
+`The magazine’s Ethicist columnist on the responsibility one has to dispose of an outmoded appliance.`\
+https://nytimes.com/2024/11/08/magazine/induction-range-gas-ethics.html
+
+**What to Know About the Attacks on Israeli Soccer Fans in Amsterdam**\
+`Dutch and Israeli officials described the clashes after a soccer match as antisemitic.`\
+https://nytimes.com/2024/11/08/world/europe/amsterdam-israel-soccer-fans-attacks.html
+
+**What Trump’s Win Tells Us About the Democratic Party**\
+`What lessons can Democrats take from the 2024 election? Astead W. Herndon, a national politics reporter and the host of the politics podcast “The Run-Up,” gives his analysis.`\
+https://nytimes.com/video/us/elections/100000009812485/what-trumps-win-tells-us-about-the-democratic-party.html
+
 **Stock Market Rallies to Its Best Week in Over a Year**\
 `President-elect Donald Trump’s win, coupled with a quarter-point interest rate cut from the Federal Reserve, pushed major stock indexes into record territory.`\
 https://nytimes.com/2024/11/08/business/stock-market-trump-fed.html
