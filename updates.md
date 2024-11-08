@@ -1,3 +1,7 @@
+**Trump Win Shows Political Limits of Biden’s Industrial Policy Vision**\
+`Long-term economic investments in domestic manufacturing were overshadowed by real-time anxiety over rent and grocery prices.`\
+https://nytimes.com/2024/11/08/us/politics/trump-biden-economy-manufacturing.html
+
 **The Age of the Pogrom Returns**\
 `The attack on Israeli soccer fans comes after years of rising antisemitism in Europe, much within Muslim communities.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/israeli-attack-soccer-amsterdam-pogrom

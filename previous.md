@@ -1,3 +1,7 @@
+**Trump Win Shows Political Limits of Biden’s Industrial Policy Vision**\
+`Long-term economic investments in domestic manufacturing were overshadowed by real-time anxiety over rent and grocery prices.`\
+https://nytimes.com/2024/11/08/us/politics/trump-biden-economy-manufacturing.html
+
 **The Age of the Pogrom Returns**\
 `The attack on Israeli soccer fans comes after years of rising antisemitism in Europe, much within Muslim communities.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/israeli-attack-soccer-amsterdam-pogrom
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/arts/music/grammys-nominee-list-2025.html
 **Revisiting the lost Paul George trade. Plus, hidden NBA League Pass gems**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5908291/2024/11/08/paul-george-76ers-clippers-league-pass-nba-the-bounce/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 11?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/5899813/2024/11/08/premier-league-predicted-line-ups-gameweek-11/
 
