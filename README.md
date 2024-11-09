@@ -1,3 +1,7 @@
+**Seattle Police Arrest Man in Connection With Five Stabbings**\
+`Five people were injured in attacks in the city’s Chinatown-International District on Friday, the police said.`\
+https://nytimes.com/2024/11/08/us/seattle-chinatown-stabbings.html
+
 **NWSL playoffs: Orlando scores four goals to secure semifinal spot**\
 `The latest on the NWSL quarterfinal matches `\
 https://nytimes.com/athletic/5909759/2024/11/08/nwsl-playoffs-quarterfinal-results-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/world/americas/trump-foreign-policy-assessment.ht
 **Corrections: Nov. 9, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 9, 2024.`\
 https://nytimes.com/2024/11/08/pageoneplus/corrections-nov-9-2024.html
-
-**Dorothy Allison, Author of ‘Bastard Out of Carolina,’ Dies at 75**\
-`She wrote lovingly and often hilariously about her harrowing childhood in a working-class Southern family, as well as about the violence and incest she suffered.`\
-https://nytimes.com/2024/11/08/books/dorothy-allison-dead.html
 
