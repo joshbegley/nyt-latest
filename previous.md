@@ -1,3 +1,7 @@
+**Depth and shooting — or at least the threat of it — allow Kansas to hold off North Carolina**\
+`Bill Self finally has the pieces to play chess late in games, allowing him to save his best for last in a big November matchup against UNC.`\
+https://nytimes.com/athletic/5909852/2024/11/09/kansas-holds-off-unc-depth-shooting/
+
 **Jacky Rosen Narrowly Defeats Sam Brown in Nevada’s Senate Race**\
 `Ms. Rosen, the low-key Democratic incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
 https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/world/europe/trump-presidency-global-reaction.htm
 **Liverpool vs Aston Villa preview: Storylines, odds, prediction as Reds try to stay top**\
 `Liverpool are top of the Premier League table, but face tough opposition in the form of Aston Villa on Saturday.`\
 https://nytimes.com/athletic/5908826/2024/11/09/liverpool-aston-villa-preview-odds-prediction/
-
-**Michigan at Indiana: How to watch, picks, odds as Hoosiers try to stay undefeated**\
-`Indiana is still undefeated and is favored by two touchdowns against the defending national champs. Who'd have thought that?`\
-https://nytimes.com/athletic/5909400/2024/11/09/michigan-indiana-how-to-watch-picks-odds/
 
