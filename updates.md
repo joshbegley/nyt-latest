@@ -1,3 +1,7 @@
+**Penguins recall Tristan Jarry from AHL after 2-week stint**\
+`The Penguins called on Jarry after two weeks in the American Hockey League, where he was sent to find his game after a disastrous NHL start.`\
+https://nytimes.com/athletic/5910193/2024/11/09/tristan-jarry-penguins-recalled-nhl/
+
 **Saints placing Chris Olave on IR a week after being stretchered off field**\
 `After taking a hit from Panthers DB Xavier Woods in Week 9, Olave was ruled out of the game with a concussion.`\
 https://nytimes.com/athletic/5910175/2024/11/09/chris-olave-saints-injured-reserve/
