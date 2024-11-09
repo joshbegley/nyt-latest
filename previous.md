@@ -1,3 +1,7 @@
+**From Start to Finish**\
+`Sam Ezersky’s Sunday puzzle flips the script.`\
+https://nytimes.com/2024/11/09/crosswords/daily-puzzle-2024-11-10.html
+
 **NFL fines 49ers' Nick Bosa $11,255 for wearing 'MAGA' hat postgame**\
 `Bosa's behavior violated the NFL's rules prohibiting players from wearing or displaying items related to political causes.`\
 https://nytimes.com/athletic/5910508/2024/11/09/nfl-fines-49ers-nick-bosa-maga-hat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-project
 **Miami’s magic runs out at Georgia Tech. Can Canes still make College Football Playoff?**\
 `Cam Ward engineered comeback wins over Virginia Tech, Cal and Duke earlier this season, but the Canes came up short against Georgia Tech.`\
 https://nytimes.com/athletic/5910372/2024/11/09/miami-georgia-tech-college-football-cameron-ward/
-
-**Ohio State takeaways: Defense experiments in Purdue shutout as Jeremiah Smith sets records**\
-`No. 2 Ohio State easily dominated Purdue 45-0 on Saturday behind a well-rounded effort that included Smith breaking freshman records.`\
-https://nytimes.com/athletic/5910329/2024/11/09/ohio-state-purdue-score-jeremiah-smith/
 

@@ -1,3 +1,7 @@
+**From Start to Finish**\
+`Sam Ezersky’s Sunday puzzle flips the script.`\
+https://nytimes.com/2024/11/09/crosswords/daily-puzzle-2024-11-10.html
+
 **NFL fines 49ers' Nick Bosa $11,255 for wearing 'MAGA' hat postgame**\
 `Bosa's behavior violated the NFL's rules prohibiting players from wearing or displaying items related to political causes.`\
 https://nytimes.com/athletic/5910508/2024/11/09/nfl-fines-49ers-nick-bosa-maga-hat/
