@@ -1,3 +1,11 @@
+**Smoky Smell Engulfs New York City After Fires in Brooklyn and New Jersey**\
+`New Yorkers were hit with an unsettling smell on Saturday morning after fires broke out on Friday in Prospect Park and across the Hudson River.`\
+https://nytimes.com/2024/11/09/nyregion/fire-smoke-nj-prospect-park-brooklyn.html
+
+**Big 12 commissioner Brett Yormark 'surprised' by BYU's low CFP ranking**\
+`"When you think about BYU specifically, I would say that they should have been a little higher (than No. 9),” Yormark said.`\
+https://nytimes.com/athletic/5910336/2024/11/09/byu-college-football-playoff-ranking-brett-yormark-comments/
+
 **Pelicans' Zion Williamson out indefinitely with hamstring strain**\
 `New Orleans' disappointing start is partially due to Williamson, Dejounte Murray, CJ McCollum and others missing time due to injury.`\
 https://nytimes.com/athletic/5910309/2024/11/09/zion-williamson-injury-new-orleans-pelicans/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/09/us/fema-trump-signs.html
 **Kenneth Bronstein, Who Put His Faith in Atheism, Dies at 85**\
 `The organization that he led advocated the separation of church and state, with no exceptions for holidays, currency, symbolism or blessings.`\
 https://nytimes.com/2024/11/09/nyregion/kenneth-bronstein-dead.html
-
-**Qatar Pauses Role as Mediator in Gaza Cease-Fire Talks, Citing Deadlock**\
-`The Qatari Foreign Ministry announced it had stepped back from talks, saying it would resume once Israel and Hamas “show willingness and seriousness.”`\
-https://nytimes.com/2024/11/09/world/middleeast/qatar-israel-hamas-gaza-ceasefire-talks.html
-
-**Bayern expected to sign Darboe from LAFC**\
-`Bayern Munich are expected to complete a deal to sign 18-year-old American forward Bajung Darboe from LAFC.`\
-https://nytimes.com/athletic/5910006/2024/11/09/bajung-darboe-bayern-munich-transfer/
 
