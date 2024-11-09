@@ -1,3 +1,7 @@
+**Militao leaves Real Madrid vs Osasuna on stretcher after injury**\
+`Eder Militao left Real Madrid&#8217;s La Liga game with Osasuna on Saturday on a stretcher after suffering what appeared to be a serious knee injury.`\
+https://nytimes.com/athletic/5910067/2024/11/09/eder-militao-injury-real-madrid/
+
 **A Banker Is Scouting Trump’s Nominees. Some Will Oversee His Interests.**\
 `Howard Lutnick, co-chair of the president-elect’s transition team and a Wall Street financier, is leading the search for appointees while still running his businesses.`\
 https://nytimes.com/2024/11/09/us/politics/howard-lutnick-transition-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/07/opinion/thepoint/johnson-house-speaker-trump
 **We’re About to Find Out Who Trump’s Victory Belongs To**\
 `Electoral success has a thousand fathers, each with his own agenda.`\
 https://nytimes.com/2024/11/09/opinion/trump-republicans-presidency-goals.html
-
-**The Elites Had It Coming**\
-`Democrats got exactly what they set out to get, and now here we are.`\
-https://nytimes.com/2024/11/09/opinion/democrats-trump-elites-centrism.html
 
