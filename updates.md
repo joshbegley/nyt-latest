@@ -1,3 +1,7 @@
+**Spill**\
+`Chandi Deitmer and Hoang-Kim Vu’s Saturday collaboration might make solvers take a tumble or two.`\
+https://nytimes.com/2024/11/08/crosswords/daily-puzzle-2024-11-09.html
+
 **Democrats Consider an Autopsy, but Who’s the Coroner?**\
 `The Democratic Party agrees it needs to figure out what went wrong. The question is how.`\
 https://nytimes.com/2024/11/08/us/politics/harris-trump-democrats-election.html
