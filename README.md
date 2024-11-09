@@ -1,3 +1,11 @@
+**Will the Leafs trade for a 3C? Kaprizov contract over/under? Will Daly succeed Bettman? Ask CJ**\
+`Also: Will the Jets go all in to try to solve their attendance issues? Will Crosby hit 1,700 points before Ovechkin hits 895 goals?`\
+https://nytimes.com/athletic/5904864/2024/11/09/maple-leafs-trade-kaprizov-contract-daly-bettman/
+
+**Could the Bond Market Stymie Trump’s Economic Plans?**\
+`Some fiscal hawks worry that Trump’s policies would increase the deficit and fuel inflation.`\
+https://nytimes.com/2024/11/09/business/dealbook/trump-economy-bonds.html
+
 **Harper: Cleveland Cavaliers are 10-0. Are they for real?**\
 `How seriously should we take this Cavs start? How much of this is an indication of a leap being taken by the team?`\
 https://nytimes.com/athletic/5909397/2024/11/09/cavs-10-0-start/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/09/opinion/joe-biden-kamala-harris-trump.html
 **NHL predictions 2.0: A new Cup favorite, surprise Hart Trophy front-runner and more**\
 `A month into the season, our staff's revised picks for Cup winner, dark horse, biggest disappointment, awards, full playoff fields and more.`\
 https://nytimes.com/athletic/5902047/2024/11/09/nhl-season-predictions-november-stanley-cup-hart-trophy/
-
-**Scenes From America on the Edge, Partying and Despairing**\
-`Election night and the day after, 2024.`\
-https://nytimes.com/2024/11/09/opinion/photos-harris-trump-party.html
-
-**Democrats Need Working-Class Voters. Maybe Now They’ll Act Like It.**\
-`Democrats can compete if they focus more on minimum wages and child care than pronouns and purity.`\
-https://nytimes.com/2024/11/09/opinion/democrats-working-class.html
 
