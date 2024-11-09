@@ -1,3 +1,11 @@
+**Will the Leafs trade for a 3C? Kaprizov contract over/under? Will Daly succeed Bettman? Ask CJ**\
+`Also: Will the Jets go all in to try to solve their attendance issues? Will Crosby hit 1,700 points before Ovechkin hits 895 goals?`\
+https://nytimes.com/athletic/5904864/2024/11/09/maple-leafs-trade-kaprizov-contract-daly-bettman/
+
+**Could the Bond Market Stymie Trump’s Economic Plans?**\
+`Some fiscal hawks worry that Trump’s policies would increase the deficit and fuel inflation.`\
+https://nytimes.com/2024/11/09/business/dealbook/trump-economy-bonds.html
+
 **Harper: Cleveland Cavaliers are 10-0. Are they for real?**\
 `How seriously should we take this Cavs start? How much of this is an indication of a leap being taken by the team?`\
 https://nytimes.com/athletic/5909397/2024/11/09/cavs-10-0-start/
