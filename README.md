@@ -1,3 +1,7 @@
+**Roger Goodell on rumors of 2025 NFL game in Berlin: 'Believe them'**\
+`While Berlin hosting an NFL game in 2025 is a strong possibility, nothing is finalized, Goodell said.`\
+https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany-2025/
+
 **Biden and Trump to Meet at White House on Wednesday**\
 `President Biden extended the invitation to his former rival as part of a longstanding tradition to help ease the transition to a new administration.`\
 https://nytimes.com/2024/11/09/us/politics/biden-trump-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/t-magazine/edible-weeds.html
 **Bacon Defeats Vargas in Nebraska, Holding a Key House Seat for Republicans**\
 `The victory of the four-term Republican, who has resisted his party’s veer to the right, dashed Democratic hopes of flipping a critical district.`\
 https://nytimes.com/2024/11/09/us/elections/nebraska-house-bacon-vargas.html
-
-**'Did we compete today? No': Giannis expresses frustration after another Bucks loss**\
-`Antetokounmpo, after the Bucks were listless against the Knicks on Friday: "If you’re not frustrated with losing, get the f--- out of here."`\
-https://nytimes.com/athletic/5909885/2024/11/09/giannis-antetokounmpo-bucks-knicks/
 
