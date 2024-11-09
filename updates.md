@@ -1,3 +1,7 @@
+**Roger Goodell on rumors of 2025 NFL game in Berlin: 'Believe them'**\
+`While Berlin hosting an NFL game in 2025 is a strong possibility, Goodell said nothing is finalized.`\
+https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany-2025/
+
 **Penguins recall Tristan Jarry from AHL after 2-week stint**\
 `The Penguins called on Jarry after two weeks in the American Hockey League, where he was sent to find his game after a disastrous NHL start.`\
 https://nytimes.com/athletic/5910193/2024/11/09/tristan-jarry-penguins-recalled-nhl/
