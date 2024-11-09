@@ -1,3 +1,11 @@
+**Jets achieve best start in NHL history at 14-1-0**\
+`The Jets are off to the best 15-game start in NHL history, winning 14 of their first 15 games to build a record of 14-1-0.`\
+https://nytimes.com/athletic/5909152/2024/11/09/winnipeg-jets-record-start/
+
+**Judith Jamison, Alvin Ailey Dancer of ‘Power and Radiance,’ Dies at 81**\
+`She became an international star as a member of the company and later directed it, guiding it out of debt and boosting its popularity.`\
+https://nytimes.com/2024/11/09/arts/dance/judith-jamison-dead.html
+
 **UF men's basketball coach Golden accused of sexual harassment: Report**\
 `A formal complaint was filed with Florida’s Title IX office on Sept. 27, The Alligator reported.`\
 https://nytimes.com/athletic/5909192/2024/11/09/todd-golden-florida-sexual-harassment-complaint/
