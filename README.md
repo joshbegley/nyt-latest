@@ -1,3 +1,11 @@
+**Jets achieve best start in NHL history at 14-1-0**\
+`The Jets are off to the best 15-game start in NHL history, winning 14 of their first 15 games to build a record of 14-1-0.`\
+https://nytimes.com/athletic/5909152/2024/11/09/winnipeg-jets-record-start/
+
+**Judith Jamison, Alvin Ailey Dancer of ‘Power and Radiance,’ Dies at 81**\
+`She became an international star as a member of the company and later directed it, guiding it out of debt and boosting its popularity.`\
+https://nytimes.com/2024/11/09/arts/dance/judith-jamison-dead.html
+
 **At Women’s March Event, Organizers Say They Are Preparing a ‘Comeback Tour’**\
 `At a demonstration on Saturday, the crowd was small and enthusiasm was lacking. But organizers are planning a big march ahead of the inauguration.`\
 https://nytimes.com/2024/11/09/us/politics/womens-march-trump-future.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910508/2024/11/09/nfl-fines-49ers-nick-bosa-maga-h
 **Baltazar Ushca, Who Kept Andean Ice Harvesting Alive, Dies at 80**\
 `He trekked up Ecuador’s tallest mountain twice a week for six decades to hack ice off a glacier with a pickax. He is believed to have been the last of his breed.`\
 https://nytimes.com/2024/11/09/world/americas/baltazar-ushca-dead.html
-
-**Guardiola relishing challenge of ending Man City losing streak**\
-`Pep Guardiola says he is relishing the challenge of turning Manchester City&#8217;s fortunes around after suffering a fourth consecutive defeat for the first time in his managerial career.`\
-https://nytimes.com/athletic/5910496/2024/11/09/pep-guardiola-man-city-losing-streak/
-
-**Tony Todd, Prolific Actor Best Known for ‘Candyman,’ Dies at 69**\
-`Mr. Todd’s decades-long career spanned across mediums and genres, but he was largely associated with a scary figure summoned in front of a mirror.`\
-https://nytimes.com/2024/11/09/movies/tony-todd-dead.html
 
