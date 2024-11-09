@@ -1,3 +1,7 @@
+**Two Militia Founders Are Convicted of Plot to Kill Federal Agents**\
+`“We were going out huntin’,” one of the men said in a video before a planned trip to the Mexico border, where they intended to shoot at immigrants and officials who might stop them, prosecutors said.`\
+https://nytimes.com/2024/11/09/us/militia-border-convictions.html
+
 **Jets achieve best start in NHL history at 14-1-0**\
 `The Jets are off to the best 15-game start in NHL history, winning 14 of their first 15 games to build a record of 14-1-0.`\
 https://nytimes.com/athletic/5909152/2024/11/09/winnipeg-jets-record-start/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/crosswords/daily-puzzle-2024-11-10.html
 **NFL fines 49ers' Nick Bosa $11,255 for wearing 'MAGA' hat postgame**\
 `Bosa's behavior violated the NFL's rules prohibiting players from wearing or displaying items related to political causes.`\
 https://nytimes.com/athletic/5910508/2024/11/09/nfl-fines-49ers-nick-bosa-maga-hat/
-
-**Baltazar Ushca, Who Kept Andean Ice Harvesting Alive, Dies at 80**\
-`He trekked up Ecuador’s tallest mountain twice a week for six decades to hack ice off a glacier with a pickax. He is believed to have been the last of his breed.`\
-https://nytimes.com/2024/11/09/world/americas/baltazar-ushca-dead.html
 
