@@ -1,3 +1,7 @@
+**Bayern expected to sign Darboe from LAFC**\
+`Bayern Munich are expected to complete a deal to sign 18-year-old American forward Bajung Darboe from LAFC.`\
+https://nytimes.com/athletic/5910006/2024/11/09/bajung-darboe-bayern-munich-transfer/
+
 **Overlooked No More: Go-won-go Mohawk, Trailblazing Indigenous Actress**\
 `In the 1880s, the only roles for Indigenous performers were laden with negative stereotypes. So Mohawk decided to write her own narratives.`\
 https://nytimes.com/2024/11/09/obituaries/gowongo-mohawk-overlooked.html
