@@ -1,3 +1,7 @@
+**At Least Two Dozen People Killed in Suicide Bombing in Pakistan**\
+`The Baloch Liberation Army, a banned ethnic separatist group, claimed responsibility for the attack at a railway station in the southwestern Pakistani city of Quetta.`\
+https://nytimes.com/video/world/asia/100000009817451/pakistan-suicide-bombing.html
+
 **Wrexham 1 Mansfield 0: History in the making? And James McClean is at home in Wales**\
 `Wrexham managed a 1-0 win over Mansfield Town on Saturday afternoon to pick up three crucial points`\
 https://nytimes.com/athletic/5908463/2024/11/09/wrexham-mansfield-report-analysis/

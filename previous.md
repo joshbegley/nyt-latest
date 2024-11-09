@@ -1,3 +1,7 @@
+**At Least Two Dozen People Killed in Suicide Bombing in Pakistan**\
+`The Baloch Liberation Army, a banned ethnic separatist group, claimed responsibility for the attack at a railway station in the southwestern Pakistani city of Quetta.`\
+https://nytimes.com/video/world/asia/100000009817451/pakistan-suicide-bombing.html
+
 **Wrexham 1 Mansfield 0: History in the making? And James McClean is at home in Wales**\
 `Wrexham managed a 1-0 win over Mansfield Town on Saturday afternoon to pick up three crucial points`\
 https://nytimes.com/athletic/5908463/2024/11/09/wrexham-mansfield-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909885/2024/11/09/giannis-antetokounmpo-bucks-knic
 **Roki Sasaki, coveted Japanese ace, will be made available to MLB teams**\
 `Sasaki, 23, is the No. 3 ranked player on The Athletic's top 40 MLB free agent big board, behind only Juan Soto and Corbin Burnes.`\
 https://nytimes.com/athletic/5910075/2024/11/09/roki-sasaki-pitcher-posted-mlb/
-
-**Militao suffers knee injury, leaves Real Madrid vs Osasuna on stretcher**\
-`Eder Militao left Real Madrid&#8217;s La Liga game with Osasuna on Saturday on a stretcher after suffering what appeared to be a serious knee injury.`\
-https://nytimes.com/athletic/5910067/2024/11/09/eder-militao-injury-real-madrid/
 
