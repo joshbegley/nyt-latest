@@ -1,3 +1,7 @@
+**A Banker Is Scouting Trump’s Nominees. Some Will Oversee His Interests.**\
+`Howard Lutnick, co-chair of the president-elect’s transition team and a Wall Street financier, is leading the search for appointees while still running his businesses.`\
+https://nytimes.com/2024/11/09/us/politics/howard-lutnick-transition-ethics.html
+
 **Lakers' bold starting lineup change immediately provides positive returns**\
 `The Lakers have been concerned about benching D’Angelo Russell. JJ Redick ultimately took the risk — and much earlier than expected.`\
 https://nytimes.com/athletic/5909783/2024/11/09/lakers-starting-lineup-dangelo-russell-cam-reddish/
