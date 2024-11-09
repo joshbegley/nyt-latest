@@ -1,3 +1,7 @@
+**Another Kirill Kaprizov 3-point game, another Wild road win in Anaheim: 5 takeaways**\
+`The Wild jumped out to a three-goal first-period lead, then were buoyed by great goaltending and a solid PK in a 5-2 win Friday night.`\
+https://nytimes.com/athletic/5909827/2024/11/09/wild-ducks-kirill-kaprizov-3-points/
+
 **Khadija Shaw and Lauren Hemp's partnership is key to Man City's hopes of success**\
 `Manchester City beat Spurs 4-0 on Friday night, with Shaw and Hemp starring for the hosts`\
 https://nytimes.com/athletic/5909683/2024/11/09/khadija-shaw-lauren-hemp-manchester-city/
