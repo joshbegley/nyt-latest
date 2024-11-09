@@ -1,3 +1,7 @@
+**Militao suffers knee injury, leaves Real Madrid vs Osasuna on stretcher**\
+`Eder Militao left Real Madrid&#8217;s La Liga game with Osasuna on Saturday on a stretcher after suffering what appeared to be a serious knee injury.`\
+https://nytimes.com/athletic/5910067/2024/11/09/eder-militao-injury-real-madrid/
+
 **Weeds Are Everywhere. Why Aren’t We Eating Them More?**\
 `Fast-growing and prolific, these plants are the next frontier in foraging.`\
 https://nytimes.com/2024/11/09/t-magazine/edible-weeds.html
