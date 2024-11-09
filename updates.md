@@ -1,3 +1,7 @@
+**Wrexham 1 Mansfield 0: History in the making? And James McClean is at home in Wales**\
+`Wrexham managed a 1-0 win over Mansfield Town on Saturday afternoon to pick up three crucial points`\
+https://nytimes.com/athletic/5908463/2024/11/09/wrexham-mansfield-report-analysis/
+
 **Auburn basketball team's plane grounded after in-flight scuffle**\
 `The team took off on another flight to Houston on Friday night, ESPN reported.`\
 https://nytimes.com/athletic/5909812/2024/11/09/auburn-basketball-team-flight-grounded-altercation/

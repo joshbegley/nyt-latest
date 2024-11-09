@@ -1,3 +1,7 @@
+**Wrexham 1 Mansfield 0: History in the making? And James McClean is at home in Wales**\
+`Wrexham managed a 1-0 win over Mansfield Town on Saturday afternoon to pick up three crucial points`\
+https://nytimes.com/athletic/5908463/2024/11/09/wrexham-mansfield-report-analysis/
+
 **Auburn basketball team's plane grounded after in-flight scuffle**\
 `The team took off on another flight to Houston on Friday night, ESPN reported.`\
 https://nytimes.com/athletic/5909812/2024/11/09/auburn-basketball-team-flight-grounded-altercation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910075/2024/11/09/roki-sasaki-pitcher-posted-mlb/
 **Militao suffers knee injury, leaves Real Madrid vs Osasuna on stretcher**\
 `Eder Militao left Real Madrid&#8217;s La Liga game with Osasuna on Saturday on a stretcher after suffering what appeared to be a serious knee injury.`\
 https://nytimes.com/athletic/5910067/2024/11/09/eder-militao-injury-real-madrid/
-
-**A Banker Is Scouting Trump’s Nominees. Some Will Oversee His Interests.**\
-`Howard Lutnick, co-chair of the president-elect’s transition team and a Wall Street financier, is leading the search for appointees while still running his businesses.`\
-https://nytimes.com/2024/11/09/us/politics/howard-lutnick-transition-ethics.html
 
