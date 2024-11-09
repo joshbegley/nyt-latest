@@ -1,5 +1,25 @@
+**How to watch Bronny James' G League debut Saturday**\
+`James and the South Bay Lakers will face the Salt Lake City Stars in El Segundo, Calif.`\
+https://nytimes.com/athletic/5909664/2024/11/09/bronny-james-g-league-debut-how-to-watch-time/
+
+**One telling stat for every Blackhawks player**\
+`Let’s take a look at all the smaller stats — good, bad and indifferent — that make up the Blackhawks' 5-9-1 record.`\
+https://nytimes.com/athletic/5909084/2024/11/09/blackhawks-stats/
+
+**Canada Sends Mixed Signals With TikTok Shutdown Order**\
+`The industry minister closed TikTok’s offices in Toronto and Vancouver over security concerns, but Canadians can still download and use the app.`\
+https://nytimes.com/2024/11/09/world/canada/canada-tiktok-china-security.html
+
+**The Connections Companion No. 518**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 10, 2024.`\
+https://nytimes.com/2024/11/09/crosswords/connections-companion-518.html
+
+**Wordle Review No. 1,240**\
+`Scroll down for hints and conversation about the puzzle for Nov. 10, 2024.`\
+https://nytimes.com/2024/11/09/crosswords/wordle-review-1240.html
+
 **Train Station Suicide Bombing Leaves Dozens Dead or Wounded in Pakistan**\
-`A banned ethnic separatist group in the restive province of Baluchistan claimed responsibility for the deadly attack in Quetta, the provincial capital.`\
+`A banned ethnic separatist group in a restive province claimed responsibility for the deadly attack in Quetta, the provincial capital.`\
 https://nytimes.com/2024/11/09/world/asia/pakistan-suicide-bombing.html
 
 **Russia Sentences Soldiers Over Killing of Ukrainian Family**\
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/09/magazine/nancy-pelosi-interview-takeaways.html
 **Should Alito and Thomas Be Pushed to Retire? Conservatives Are Divided.**\
 `Coaxing aging Supreme Court justices to give up their power and status during a window of political opportunity can be a delicate endeavor.`\
 https://nytimes.com/2024/11/09/us/politics/alito-thomas-retire-debate.html
-
-**Trump Holds Up Transition Process Over Ethics Code**\
-`President-elect Donald J. Trump has not submitted a required ethics plan stating he will avoid conflicts of interest.`\
-https://nytimes.com/2024/11/09/us/politics/donald-trump-ethics-transition.html
-
-**13 insights fantasy football managers need to know ahead of Week 10**\
-`After a grounded start to the season, Theo Gremminger shines a light on how the Chargers have freed up Justin Herbert in the passing game.`\
-https://nytimes.com/athletic/5909675/2024/11/09/13-insights-fantasy-football-week-10/
-
-**Trump Has Made His View of Migrants Clear. Will It Stop Them From Coming?**\
-`The incoming president has promised the largest deportation effort in U.S. history. Now migrants are weighing a new Trump administration in deciding whether to trek to the United States.`\
-https://nytimes.com/2024/11/09/world/americas/trump-immigration-migrants-border.html
-
-**Biden and Environmental Groups Try to Protect Climate Policies from Trump**\
-`John Podesta, President Biden’s clean energy adviser, said agencies were racing to deliver money from the 2022 climate law before Donald Trump arrives.`\
-https://nytimes.com/2024/11/09/climate/biden-environmental-groups-climate-policies-trump.html
-
-**58 Movies to Watch This Winter: Bob Dylan Biopic, ‘Moana 2’ and More**\
-`From life stories (“A Complete Unknown,” “The Fire Inside”) to animated tales (“Moana 2,” “Mufasa”), these are the films we can’t wait to see this season.`\
-https://nytimes.com/2024/11/09/movies/new-movie-releases-winter-streaming-theaters.html
 
