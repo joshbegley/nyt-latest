@@ -1,3 +1,7 @@
+**Days after Billy Napier vote of confidence, Florida gets owned by rested Texas**\
+`No.`\
+https://nytimes.com/athletic/5910519/2024/11/09/texas-florida-football-analysis-score/
+
 **Christopher Bell says he was 'cheated' out of spot in NASCAR championship**\
 `“This has been one of the hardest things I have had to go through as a race car driver,” Bell said. “I believe cheated is the right word."`\
 https://nytimes.com/athletic/5910434/2024/11/09/christopher-bell-nascar-championship-chevrolet-comments/

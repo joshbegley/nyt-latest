@@ -1,3 +1,7 @@
+**Days after Billy Napier vote of confidence, Florida gets owned by rested Texas**\
+`No.`\
+https://nytimes.com/athletic/5910519/2024/11/09/texas-florida-football-analysis-score/
+
 **Christopher Bell says he was 'cheated' out of spot in NASCAR championship**\
 `“This has been one of the hardest things I have had to go through as a race car driver,” Bell said. “I believe cheated is the right word."`\
 https://nytimes.com/athletic/5910434/2024/11/09/christopher-bell-nascar-championship-chevrolet-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910309/2024/11/09/zion-williamson-injury-new-orlea
 **Vinicius Jr's golden hat-trick, Ancelotti finds 'solution', injury crisis deepens**\
 `Real Madrid found the 'solutions' to their recent poor form, with a Vinicius Jr hat-trick sinking Osasuna. But more injury problems emerged.`\
 https://nytimes.com/athletic/5910184/2024/11/09/vincius-hat-trick-real-madrid-injuries/
-
-**Brighton 2 Manchester City 1: Creaky defence, Guardiola's worst run, is title slipping?**\
-`Brighton and Hove Albion beat Manchester City 2-1 to go fourth in the Premier League and put a dent in the champions' title chances.`\
-https://nytimes.com/athletic/5903868/2024/11/09/brighton-manchester-city-result-premier-league-oriley/
 
