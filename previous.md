@@ -1,3 +1,7 @@
+**After signing with Angels, Kyle Hendricks reflects on end of Cubs tenure**\
+`Hendricks joined the Angels on a one-year deal after spending the first 11 seasons of his career in Chicago.`\
+https://nytimes.com/athletic/5909703/2024/11/08/angels-kyle-hendricks-cubs-tenure/
+
 **Trump Weighs Key Personnel Choices, Schooled by His First-Term Experience**\
 `The president-elect held his first formal transition meetings and has been given lists of candidates, but is calling around to friends and allies for ideas.`\
 https://nytimes.com/2024/11/08/us/politics/trump-personnel-cabinet-candidates.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/08/nyregion/us-v-shakeri-et-al-complaint
 **Inside the Federal Work Force That Trump Has Promised to Eviscerate**\
 `President-elect Donald J. Trump and his allies have pledged to strike fear in the heart of what they term “the deep state.” They have already succeeded.`\
 https://nytimes.com/2024/11/08/us/politics/trump-federal-bureaucracy.html
-
-**Kings' Tanner Jeannot suspended for 3 games following illegal check**\
-`Jeannot was assessed a match penalty and ejected from Thursday's game against the Canucks for an illegal check to Brock Boeser.`\
-https://nytimes.com/athletic/5909335/2024/11/08/tanner-jeannot-los-angeles-kings-suspension-nhl/
 

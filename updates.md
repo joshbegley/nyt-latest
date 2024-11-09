@@ -1,3 +1,7 @@
+**After signing with Angels, Kyle Hendricks reflects on end of Cubs tenure**\
+`Hendricks joined the Angels on a one-year deal after spending the first 11 seasons of his career in Chicago.`\
+https://nytimes.com/athletic/5909703/2024/11/08/angels-kyle-hendricks-cubs-tenure/
+
 **Trump Weighs Key Personnel Choices, Schooled by His First-Term Experience**\
 `The president-elect held his first formal transition meetings and has been given lists of candidates, but is calling around to friends and allies for ideas.`\
 https://nytimes.com/2024/11/08/us/politics/trump-personnel-cabinet-candidates.html
