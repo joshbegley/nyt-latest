@@ -1,3 +1,7 @@
+**Weeds Are Everywhere. Why Aren’t We Eating Them More?**\
+`Fast-growing and prolific, these plants are the next frontier in foraging.`\
+https://nytimes.com/2024/11/09/t-magazine/edible-weeds.html
+
 **Bacon Defeats Vargas in Nebraska, Holding a Key House Seat for Republicans**\
 `The victory of the four-term Republican, who has resisted his party’s veer to the right, dashed Democratic hopes of flipping a critical district.`\
 https://nytimes.com/2024/11/09/us/elections/nebraska-house-bacon-vargas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/business/dealbook/trump-economy-bonds.html
 **Harper: Cleveland Cavaliers are 10-0. Are they for real?**\
 `How seriously should we take this Cavs start? How much of this is an indication of a leap being taken by the team?`\
 https://nytimes.com/athletic/5909397/2024/11/09/cavs-10-0-start/
-
-**Steve Kerr believes Kenny Atkinson has made Cavs 'clearly one of the best teams in the league'**\
-`The Warriors began winning championships after Kerr inherited a really good roster and made it great. Could that be starting in Cleveland?`\
-https://nytimes.com/athletic/5909901/2024/11/09/cavs-warriors-steve-kerr-kenny-atkinson/
 

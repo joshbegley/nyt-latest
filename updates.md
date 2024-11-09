@@ -1,3 +1,7 @@
+**Weeds Are Everywhere. Why Aren’t We Eating Them More?**\
+`Fast-growing and prolific, these plants are the next frontier in foraging.`\
+https://nytimes.com/2024/11/09/t-magazine/edible-weeds.html
+
 **Bacon Defeats Vargas in Nebraska, Holding a Key House Seat for Republicans**\
 `The victory of the four-term Republican, who has resisted his party’s veer to the right, dashed Democratic hopes of flipping a critical district.`\
 https://nytimes.com/2024/11/09/us/elections/nebraska-house-bacon-vargas.html
