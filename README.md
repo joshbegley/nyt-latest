@@ -1,3 +1,7 @@
+**Baltazar Ushca, Who Kept Andean Ice Harvesting Alive, Dies at 80**\
+`He trekked up Ecuador’s tallest mountain twice a week for six decades to hack ice off a glacier with a pickax. He is believed to have been the last of his breed.`\
+https://nytimes.com/2024/11/09/world/americas/baltazar-ushca-dead.html
+
 **Guardiola relishing challenge of ending Man City losing streak**\
 `Pep Guardiola says he is relishing the challenge of turning Manchester City&#8217;s fortunes around after suffering a fourth consecutive defeat for the first time in his managerial career.`\
 https://nytimes.com/athletic/5910496/2024/11/09/pep-guardiola-man-city-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910329/2024/11/09/ohio-state-purdue-score-jeremiah
 **Congestion Pricing Will Help New York Democrats Show They Can Govern**\
 `But time is running out to do it before Trump becomes president.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/congestion-pricing-hochul-trump
-
-**Smoky Smell Engulfs New York City After Fires in Brooklyn and New Jersey**\
-`New Yorkers were hit with an unsettling smell on Saturday after fires broke out on Friday in Prospect Park and across the Hudson River.`\
-https://nytimes.com/2024/11/09/nyregion/fire-smoke-nj-prospect-park-brooklyn.html
 
