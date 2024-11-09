@@ -1,3 +1,11 @@
+**NWSL playoffs: Orlando scores four goals to secure semifinal spot**\
+`The latest on the NWSL quarterfinal matches `\
+https://nytimes.com/athletic/5909759/2024/11/08/nwsl-playoffs-quarterfinal-results-2024/
+
+**Cunningham caps off historic triple-double with game-winning layup, block**\
+`Cunningham joins Grant Hill as the only players in Pistons franchise history to record three straight triple-doubles.`\
+https://nytimes.com/athletic/5909772/2024/11/08/cade-cunningham-pistons-triple-double-block/
+
 **Maple Leafs report cards: Red-hot power play fuels win**\
 `After a horrendous start to the season, Toronto's power play is officially on fire with another pair of goals in a 3-1 win over Detroit.`\
 https://nytimes.com/athletic/5909791/2024/11/08/maple-leafs-red-wings-power-play/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/pageoneplus/corrections-nov-9-2024.html
 **Dorothy Allison, Author of ‘Bastard Out of Carolina,’ Dies at 75**\
 `She wrote lovingly and often hilariously about her harrowing childhood in a working-class Southern family, as well as about the violence and incest she suffered.`\
 https://nytimes.com/2024/11/08/books/dorothy-allison-dead.html
-
-**Vanderbilt QB Diego Pavia sues NCAA for extra year of eligibility**\
-`Pavia argues that junior college years shouldn't count against NCAA eligibility because it restricts NIL earning potential.`\
-https://nytimes.com/athletic/5909729/2024/11/08/vanderbilt-commodores-quarterback-diego-pavia-ncaa-lawsuit-eligibility/
-
-**After signing with Angels, Kyle Hendricks reflects on end of Cubs tenure**\
-`Hendricks joined the Angels on a one-year deal after spending the first 11 seasons of his career in Chicago.`\
-https://nytimes.com/athletic/5909703/2024/11/08/angels-kyle-hendricks-cubs-tenure/
 
