@@ -1,3 +1,11 @@
+**Pelicans' Zion Williamson out indefinitely with hamstring strain**\
+`New Orleans' disappointing start is partially due to Williamson, Dejounte Murray, CJ McCollum and others missing time due to injury.`\
+https://nytimes.com/athletic/5910309/2024/11/09/zion-williamson-injury-new-orleans-pelicans/
+
+**Vinicius Jr's golden hat-trick, Ancelotti finds 'solution', injury crisis deepens**\
+`Real Madrid found the 'solutions' to their recent poor form, with a Vinicius Jr hat-trick sinking Osasuna. But more injury problems emerged.`\
+https://nytimes.com/athletic/5910184/2024/11/09/vincius-hat-trick-real-madrid-injuries/
+
 **Brighton 2 Manchester City 1: Creaky defence, Guardiola's worst run, is title slipping?**\
 `Brighton and Hove Albion beat Manchester City 2-1 to go fourth in the Premier League and put a dent in the champions' title chances.`\
 https://nytimes.com/athletic/5903868/2024/11/09/brighton-manchester-city-result-premier-league-oriley/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/09/world/middleeast/qatar-israel-hamas-gaza-ceasefir
 **Bayern expected to sign Darboe from LAFC**\
 `Bayern Munich are expected to complete a deal to sign 18-year-old American forward Bajung Darboe from LAFC.`\
 https://nytimes.com/athletic/5910006/2024/11/09/bajung-darboe-bayern-munich-transfer/
-
-**Overlooked No More: Go-won-go Mohawk, Trailblazing Indigenous Actress**\
-`In the 1880s, the only roles for Indigenous performers were laden with negative stereotypes. So Mohawk decided to write her own narratives.`\
-https://nytimes.com/2024/11/09/obituaries/gowongo-mohawk-overlooked.html
-
-**Penguins recall Tristan Jarry from AHL after 2-week stint**\
-`The Penguins called on Jarry after two weeks in the American Hockey League, where he was sent to find his game after a disastrous NHL start.`\
-https://nytimes.com/athletic/5910193/2024/11/09/tristan-jarry-penguins-recalled-nhl/
 
