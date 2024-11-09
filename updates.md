@@ -1,3 +1,7 @@
+**Ohio State takeaways: Purdue shutout a chance to experiment as Jeremiah Smith set records**\
+`No. 2 Ohio State easily dominated Purdue 45-0 on Saturday behind a well-rounded effort that included Smith breaking freshman records.`\
+https://nytimes.com/athletic/5910329/2024/11/09/ohio-state-purdue-score-jeremiah-smith/
+
 **Congestion Pricing Will Help New York Democrats Show They Can Govern**\
 `But time is running out to do it before Trump becomes president.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/congestion-pricing-hochul-trump
