@@ -7,7 +7,7 @@ https://nytimes.com/2024/11/09/us/elections/nebraska-house-bacon-vargas.html
 https://nytimes.com/athletic/5909885/2024/11/09/giannis-antetokounmpo-bucks-knicks/
 
 **Roki Sasaki, coveted Japanese ace, will be made available to MLB teams**\
-`Sasaki, 23, is the No. 3 ranked player on The Athletic's Top 40 MLB free agent big board, behind only Juan Soto and Corbin Burnes.`\
+`Sasaki, 23, is the No. 3 ranked player on The Athletic's top 40 MLB free agent big board, behind only Juan Soto and Corbin Burnes.`\
 https://nytimes.com/athletic/5910075/2024/11/09/roki-sasaki-pitcher-posted-mlb/
 
 **Militao leaves Real Madrid vs Osasuna on stretcher after injury**\
