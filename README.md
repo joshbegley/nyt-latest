@@ -1,3 +1,11 @@
+**Indiana's Cinderella run reaches 10-0 for first time after rare win against Michigan**\
+`Indiana kept its unlikely undefeated season going with a 20-15 win against Michigan despite being limited to 18 second-half yards.`\
+https://nytimes.com/athletic/5910591/2024/11/09/indiana-michigan-football-score-recap/
+
+**Four signs of progress during Sabres' latest 3-game winning streak**\
+`The Sabres’ 3-2 shootout win over the Flames wasn’t pretty, but it extended their winning streak and improved their record to 7-7-1.`\
+https://nytimes.com/athletic/5910636/2024/11/09/sabres-flames-winning-streak/
+
 **Grizzlies' Ja Morant week to week with hip injury**\
 `Morant suffered the injury during Wednesday's game against the Lakers after landing awkwardly on a dunk attempt.`\
 https://nytimes.com/athletic/5910661/2024/11/09/grizzlies-ja-morant-injury-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/09/arts/dance/judith-jamison-dead.html
 **At Women’s March Event, Organizers Say They Are Preparing a ‘Comeback Tour’**\
 `At a demonstration on Saturday, the crowd was small and enthusiasm was lacking. But organizers are planning a big march ahead of the inauguration.`\
 https://nytimes.com/2024/11/09/us/politics/womens-march-trump-future.html
-
-**UF men's basketball coach Golden accused of sexual harassment: Report**\
-`A formal complaint was filed with Florida’s Title IX office on Sept. 27, The Alligator reported.`\
-https://nytimes.com/athletic/5909192/2024/11/09/todd-golden-florida-sexual-harassment-complaint/
-
-**Emery: Aston Villa denied 'clear penalty' in Liverpool loss**\
-`Unai Emery says Aston Villa were denied a “clear penalty” in the team&#8217;s 2-0 defeat to Liverpool.`\
-https://nytimes.com/athletic/5910638/2024/11/09/unai-emery-aston-villa-penalty-liverpool/
 
