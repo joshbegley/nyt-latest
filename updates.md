@@ -1,3 +1,7 @@
+**Anthony Edwards has opened the season on a Steph Curry-like shooting spree**\
+`Edwards buried 9 of 15 3-pointers on his way to 37 points Friday in Minnesota's 127-102 victory over Portland.`\
+https://nytimes.com/athletic/5907663/2024/11/09/timberwolves-trail-blazers-anthony-edwards/
+
 **Reggie Jackson announces he's leaving Astros' front office: Report**\
 `Mr. October joined the Astros as a "special advisor" before the 2021 season.`\
 https://nytimes.com/athletic/5909889/2024/11/09/reggie-jackson-astros-front-office/
