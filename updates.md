@@ -1,3 +1,11 @@
+**Leeds's Firpo to serve three-match ban after violent conduct charge**\
+`Leeds United will be without Junior Firpo for the next three games after the defender was hit with a violent conduct charge by the Football Association (FA).`\
+https://nytimes.com/athletic/5909958/2024/11/09/junior-firpo-ban-leeds/
+
+**Brighton add Niedzkowski to Hurzeler's coaching staff**\
+`Brighton &amp; Hove Albion are adding German coaching guru Daniel Niedzkowski to Fabian Hurzeler&#8217;s backroom team.`\
+https://nytimes.com/athletic/5909968/2024/11/09/brighton-daniel-niedzkowski-who/
+
 **Jacky Rosen Holds Off Sam Brown in Nevada, Keeping a Democratic Senate Seat**\
 `Ms. Rosen, the low-key incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
 https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html

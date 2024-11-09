@@ -1,3 +1,11 @@
+**Leeds's Firpo to serve three-match ban after violent conduct charge**\
+`Leeds United will be without Junior Firpo for the next three games after the defender was hit with a violent conduct charge by the Football Association (FA).`\
+https://nytimes.com/athletic/5909958/2024/11/09/junior-firpo-ban-leeds/
+
+**Brighton add Niedzkowski to Hurzeler's coaching staff**\
+`Brighton &amp; Hove Albion are adding German coaching guru Daniel Niedzkowski to Fabian Hurzeler&#8217;s backroom team.`\
+https://nytimes.com/athletic/5909968/2024/11/09/brighton-daniel-niedzkowski-who/
+
 **How an Off Broadway Drag Show Choreographer Spends His Sundays**\
 `Spencer Liff, who choreographed “Drag: The Musical,” searches for New York’s best Bloody Mary, stops by the theater and tries to find his next great jacket at the flea market.`\
 https://nytimes.com/2024/11/09/nyregion/spencer-liff-drag-musical-off-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909889/2024/11/09/reggie-jackson-astros-front-offi
 **Trump Wins Nevada, Flipping a Battleground State**\
 `President-elect Donald J. Trump’s victory in Nevada was the first for Republicans in a presidential election since 2004.`\
 https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html
-
-**Depth and shooting — or at least the threat of it — allow Kansas to hold off North Carolina**\
-`Bill Self finally has the pieces to play chess late in games, allowing him to save his best for last in a big November matchup against UNC.`\
-https://nytimes.com/athletic/5909852/2024/11/09/kansas-holds-off-unc-depth-shooting/
-
-**Jacky Rosen Holds Off Sam Brown in Nevada, Keeping a Democratic Senate Seat**\
-`Ms. Rosen, the low-key incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
-https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
 
