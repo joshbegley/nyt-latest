@@ -1,3 +1,7 @@
+**Mourinho fined and banned following criticism of Turkish refereeing**\
+`Jose Mourinho has been fined and must serve a one-match ban following his reaction to Fenerbahce&#8217;s win over Trabzonspor.`\
+https://nytimes.com/athletic/5909993/2024/11/09/jose-mourinho-ban-fenerbahce-referee/
+
 **U.N.-Backed Panel Warns Action Needed in ‘Days, Not Weeks’ to Avert Gaza Famine**\
 `The Biden administration has set a mid-November deadline for Israel to deliver more humanitarian supplies to the enclave or face a cutoff of weapons aid.`\
 https://nytimes.com/2024/11/09/world/middleeast/un-panel-gaza-famine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/world/asia/pakistan-suicide-bombing.html
 **Russia Sentences Soldiers Over Killing of Ukrainian Family**\
 `The case, in which two soldiers murdered nine members of a family after breaking into their home, was a rare prosecution over crimes against civilians in Ukraine.`\
 https://nytimes.com/2024/11/09/world/europe/russia-ukraine-war-soldiers-family-killing.html
-
-**Nancy Pelosi Insists the Election Was Not a Rebuke of the Democrats**\
-`The former House Speaker reflects on Donald Trump’s victory, Kamala Harris’s candidacy and the future of the Democratic Party.`\
-https://nytimes.com/2024/11/09/magazine/nancy-pelosi-election-interview.html
 
