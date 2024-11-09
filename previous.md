@@ -1,3 +1,7 @@
+**Jacky Rosen Narrowly Defeats Sam Brown in Nevada’s Senate Race**\
+`Ms. Rosen, the low-key Democratic incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
+https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
+
 **How can Amorim get the best out of Garnacho at Man Utd?**\
 `Even on his off days, Garnacho typically makes things happen. It’s why he became a mainstay in the starting line-up sooner than expected`\
 https://nytimes.com/athletic/5908175/2024/11/09/garnacho-amorim-manchester-united/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5906280/2024/11/09/liverpool-arne-slot-underlapping
 https://nytimes.com/athletic/5908678/2024/11/09/steph-houghton-interview-reaction-england/
 
 **Yohe's 10 observations: Penguins shut down Capitals for season's most impressive win**\
-`The Penguins earned their most impressive win of the season, taking down the Capitals 4-2 on Friday in Washington.`\
+`The Penguins earned their finest win so far, taking down the Capitals 4-2 on Friday in Washington.`\
 https://nytimes.com/athletic/5891543/2024/11/09/penguins-capitals-win-observations/
 
 **Smile, Flatter and Barter: How the World Is Prepping for Trump Part II**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908826/2024/11/09/liverpool-aston-villa-preview-od
 **Michigan at Indiana: How to watch, picks, odds as Hoosiers try to stay undefeated**\
 `Indiana is still undefeated and is favored by two touchdowns against the defending national champs. Who'd have thought that?`\
 https://nytimes.com/athletic/5909400/2024/11/09/michigan-indiana-how-to-watch-picks-odds/
-
-**Brighton vs Man City preview: Storylines, odds, prediction for slumping City's away test**\
-`Manchester City have lost three in a row and don't have an easy match ahead at Brighton on Saturday.`\
-https://nytimes.com/athletic/5909105/2024/11/09/brighton-manchester-city-preview-odds-prediction/
 

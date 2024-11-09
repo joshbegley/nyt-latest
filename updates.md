@@ -1,3 +1,11 @@
+**Jacky Rosen Narrowly Defeats Sam Brown in Nevada’s Senate Race**\
+`Ms. Rosen, the low-key Democratic incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
+https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
+
+**Yohe's 10 observations: Penguins shut down Capitals for season's most impressive win**\
+`The Penguins earned their finest win so far, taking down the Capitals 4-2 on Friday in Washington.`\
+https://nytimes.com/athletic/5891543/2024/11/09/penguins-capitals-win-observations/
+
 **How can Amorim get the best out of Garnacho at Man Utd?**\
 `Even on his off days, Garnacho typically makes things happen. It’s why he became a mainstay in the starting line-up sooner than expected`\
 https://nytimes.com/athletic/5908175/2024/11/09/garnacho-amorim-manchester-united/
