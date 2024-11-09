@@ -1,3 +1,7 @@
+**Dutch Police Hold 4 People Over Antisemitic Attacks on Soccer Fans**\
+`Physical and verbal violence erupted around a soccer match between an Israeli team and a Dutch team in Amsterdam on Thursday.`\
+https://nytimes.com/2024/11/09/world/europe/amsterdam-israel-soccer-attacks.html
+
 **Mourinho fined and banned following criticism of Turkish refereeing**\
 `Jose Mourinho has been fined and must serve a one-match ban following his reaction to Fenerbahce&#8217;s win over Trabzonspor.`\
 https://nytimes.com/athletic/5909993/2024/11/09/jose-mourinho-ban-fenerbahce-referee/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/crosswords/wordle-review-1240.html
 **Train Station Suicide Bombing Leaves Dozens Dead or Wounded in Pakistan**\
 `A banned ethnic separatist group in a restive province claimed responsibility for the deadly attack in Quetta, the provincial capital.`\
 https://nytimes.com/2024/11/09/world/asia/pakistan-suicide-bombing.html
-
-**Russia Sentences Soldiers Over Killing of Ukrainian Family**\
-`The case, in which two soldiers murdered nine members of a family after breaking into their home, was a rare prosecution over crimes against civilians in Ukraine.`\
-https://nytimes.com/2024/11/09/world/europe/russia-ukraine-war-soldiers-family-killing.html
 
