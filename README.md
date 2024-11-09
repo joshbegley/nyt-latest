@@ -1,3 +1,7 @@
+**Playing Favorites**\
+`The foods and music and culture that move us most might not be very good, but that doesn’t diminish their power to comfort and delight.`\
+https://nytimes.com/2024/11/09/briefing/playing-favorites.html
+
 **How to watch Bronny James' G League debut Saturday**\
 `James and the South Bay Lakers will face the Salt Lake City Stars in El Segundo, Calif.`\
 https://nytimes.com/athletic/5909664/2024/11/09/bronny-james-g-league-debut-how-to-watch-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/magazine/nancy-pelosi-election-interview.html
 **5 Takeaways From Nancy Pelosi’s Interview With The New York Times**\
 `In her first extended interview after the election, the former House speaker was not interested in analyzing Democratic losses and was eager to put a sunny spin on the future.`\
 https://nytimes.com/2024/11/09/magazine/nancy-pelosi-interview-takeaways.html
-
-**Should Alito and Thomas Be Pushed to Retire? Conservatives Are Divided.**\
-`Coaxing aging Supreme Court justices to give up their power and status during a window of political opportunity can be a delicate endeavor.`\
-https://nytimes.com/2024/11/09/us/politics/alito-thomas-retire-debate.html
 
