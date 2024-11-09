@@ -31,7 +31,7 @@ https://nytimes.com/2024/11/08/nyregion/trump-congestion-pricing-nyc.html
 https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
 
 **Residents Return to Find Homes Reduced to Rubble After California Fire**\
-`The Mountain fire destroyed more than 130 structures in Ventura County and was 14 percent contained. “It’s just devastating,” one resident said.`\
+`The Mountain fire has torn through more than 20,000 acres and destroyed more than 130 structures in Ventura County. “It’s just devastating,” one resident said.`\
 https://nytimes.com/2024/11/08/us/california-mountain-fire-residents-return.html
 
 **How Media Outlets on the Right and Left Explained Trump’s Win**\
