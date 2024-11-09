@@ -1,3 +1,7 @@
+**Canucks trade Daniel Sprong to Kraken for future considerations**\
+`The 27-year-old forward's Canucks tenure ended after just nine appearances.`\
+https://nytimes.com/athletic/5909699/2024/11/08/canucks-kraken-daniel-sprong-trade/
+
 **The Long Global Trail of Resentment Behind Trump’s Resurrection**\
 `Disillusionment with the world that emerged from the Cold War has fueled a long-gathering revolt against the established order.`\
 https://nytimes.com/2024/11/08/world/americas/trump-foreign-policy-assessment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/nyregion/trump-congestion-pricing-nyc.html
 **San Francisco Mayor-Elect Plans to Declare Fentanyl Emergency on Day 1**\
 `Daniel Lurie held his first news conference since Mayor London Breed conceded the mayoral race this week.`\
 https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
-
-**Residents Return to Find Homes Reduced to Rubble After California Fire**\
-`The Mountain fire has torn through more than 20,000 acres and destroyed more than 130 structures in Ventura County. “It’s just devastating,” one resident said.`\
-https://nytimes.com/2024/11/08/us/california-mountain-fire-residents-return.html
 
