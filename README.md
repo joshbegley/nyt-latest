@@ -1,3 +1,7 @@
+**Lopetegui preaches patience after slow West Ham start: ''Many competitions end in May'**\
+`West Ham United head coach Julen Lopetegui wants supporters to reserve judgement on him and his side until the end of the season.`\
+https://nytimes.com/athletic/5910284/2024/11/09/julen-lopetegui-west-ham-fans/
+
 **FEMA Fires Employee for Telling Milton Relief Workers to Skip Houses With Trump Signs**\
 `The agency said it was investigating the incident in the aftermath of the Category 3 hurricane that hit Florida in October.`\
 https://nytimes.com/2024/11/09/us/fema-trump-signs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/opinion/trump-voters-future-plan.html
 **Roger Goodell on rumors of 2025 NFL game in Berlin: 'Believe them'**\
 `While Berlin hosting an NFL game in 2025 is a strong possibility, Goodell said nothing is finalized.`\
 https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany-2025/
-
-**Biden and Trump to Meet at White House on Wednesday**\
-`President Biden extended the invitation to his former rival as part of a longstanding tradition to help ease the transition to a new administration.`\
-https://nytimes.com/2024/11/09/us/politics/biden-trump-meeting.html
 
