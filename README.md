@@ -1,3 +1,7 @@
+**Spill**\
+`Chandi Deitmer and Hoang-Kim Vu’s Saturday collaboration might make solvers take a tumble or two.`\
+https://nytimes.com/2024/11/08/crosswords/daily-puzzle-2024-11-09.html
+
 **Democrats Consider an Autopsy, but Who’s the Coroner?**\
 `The Democratic Party agrees it needs to figure out what went wrong. The question is how.`\
 https://nytimes.com/2024/11/08/us/politics/harris-trump-democrats-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/us/politics/trump-personnel-cabinet-candidates.ht
 **Walz Offers Hope to Minnesota in Concession Speech**\
 `Gov. Tim Walz, the former vice presidential candidate, gave a concession speech in his home state on Friday, in which he vowed to “stand ready to stand up and fight.”`\
 https://nytimes.com/video/us/elections/100000009817195/walz-concession-remarks.html
-
-**As Trump’s New Term Looms, Hochul Considers Reviving Congestion Pricing**\
-`Gov. Kathy Hochul, facing pressure from supporters of the contentious tolling plan, is said to be exploring options for adopting it in some form.`\
-https://nytimes.com/2024/11/08/nyregion/trump-congestion-pricing-nyc.html
 
