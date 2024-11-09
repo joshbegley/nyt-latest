@@ -1,3 +1,7 @@
+**Quote of the Day: For Harris, Star Endorsements Didn’t Shine as They Used To**\
+`Quotation of the Day for Saturday, November 9, 2024`\
+https://nytimes.com/2024/11/08/pageoneplus/quote-of-the-day-for-harris-star-endorsements-didnt-shine-as-they-used-to.html
+
 **NWSL playoffs: Orlando scores 4 goals to secure semifinal spot**\
 `The latest on the NWSL quarterfinal matches `\
 https://nytimes.com/athletic/5909759/2024/11/08/nwsl-playoffs-quarterfinal-results-2024/
