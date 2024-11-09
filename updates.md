@@ -1,3 +1,15 @@
+**Russia Sentences Soldiers Over Killing of Ukrainian Family**\
+`The case, in which two soldiers murdered nine members of a family after breaking into their home, was a rare prosecution over crimes against civilians in Ukraine.`\
+https://nytimes.com/2024/11/09/world/europe/russia-ukraine-war-soldiers-family-killing.html
+
+**Nancy Pelosi Insists the Election Was Not a Rebuke of the Democrats**\
+`The former House Speaker reflects on Donald Trump’s victory, Kamala Harris’s candidacy and the future of the Democratic Party.`\
+https://nytimes.com/2024/11/09/magazine/nancy-pelosi-election-interview.html
+
+**5 Takeaways From Nancy Pelosi’s Interview With The New York Times**\
+`In her first extended interview after the election, the former House speaker was not interested in analyzing Democratic losses and was eager to put a sunny spin on the future.`\
+https://nytimes.com/2024/11/09/magazine/nancy-pelosi-interview-takeaways.html
+
 **Should Alito and Thomas Be Pushed to Retire? Conservatives Are Divided.**\
 `Coaxing aging Supreme Court justices to give up their power and status during a window of political opportunity can be a delicate endeavor.`\
 https://nytimes.com/2024/11/09/us/politics/alito-thomas-retire-debate.html

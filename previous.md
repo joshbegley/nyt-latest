@@ -1,3 +1,15 @@
+**Russia Sentences Soldiers Over Killing of Ukrainian Family**\
+`The case, in which two soldiers murdered nine members of a family after breaking into their home, was a rare prosecution over crimes against civilians in Ukraine.`\
+https://nytimes.com/2024/11/09/world/europe/russia-ukraine-war-soldiers-family-killing.html
+
+**Nancy Pelosi Insists the Election Was Not a Rebuke of the Democrats**\
+`The former House Speaker reflects on Donald Trump’s victory, Kamala Harris’s candidacy and the future of the Democratic Party.`\
+https://nytimes.com/2024/11/09/magazine/nancy-pelosi-election-interview.html
+
+**5 Takeaways From Nancy Pelosi’s Interview With The New York Times**\
+`In her first extended interview after the election, the former House speaker was not interested in analyzing Democratic losses and was eager to put a sunny spin on the future.`\
+https://nytimes.com/2024/11/09/magazine/nancy-pelosi-interview-takeaways.html
+
 **Should Alito and Thomas Be Pushed to Retire? Conservatives Are Divided.**\
 `Coaxing aging Supreme Court justices to give up their power and status during a window of political opportunity can be a delicate endeavor.`\
 https://nytimes.com/2024/11/09/us/politics/alito-thomas-retire-debate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/09/movies/new-movie-releases-winter-streaming-theate
 **An Earthling Tunes In to a Hidden Universal Message**\
 `Wonderful ideas are available to all of us, says the singer-songwriter Beverly Glenn-Copeland, a terrestrial fellow traveler.`\
 https://nytimes.com/2024/11/09/arts/scratchpad-earthling-letter.html
-
-**NFL Week 10 roundtable: Cowboys' downfall, Christian McCaffrey's return, Lions-Texans**\
-`The trade deadline has passed, and the playoff hunt revs up. Our NFL writers discuss Lions-Texans, Eagles-Cowboys and more ahead of Sunday.`\
-https://nytimes.com/athletic/5909119/2024/11/09/nfl-week-10-preview-cowboys-eagles-christian-mccaffrey-lions-texans/
-
-**Harris Had a Wall Street-Approved Economic Pitch. It Fell Flat.**\
-`The vice president vacillated on how to talk about the economy, and ended up adopting marginal pro-business tweaks that both corporate and progressive allies agreed made for a muddled message.`\
-https://nytimes.com/2024/11/09/us/politics/harris-trump-economy.html
-
-**Big Tech’s Hotbeds of Employee Activism Quiet After Trump’s Victory**\
-`Eight years ago, workers loudly protested White House policies. This time around, the companies are trying to keep a lid on activism.`\
-https://nytimes.com/2024/11/09/technology/tech-employee-activism-trump.html
 
