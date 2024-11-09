@@ -1,3 +1,7 @@
+**Overlooked No More: Go-won-go Mohawk, Trailblazing Indigenous Actress**\
+`In the 1880s, the only roles for Indigenous performers were laden with negative stereotypes. So Mohawk decided to write her own narratives.`\
+https://nytimes.com/2024/11/09/obituaries/gowongo-mohawk-overlooked.html
+
 **Roger Goodell on rumors of 2025 NFL game in Berlin: 'Believe them'**\
 `While Berlin hosting an NFL game in 2025 is a strong possibility, Goodell said nothing is finalized.`\
 https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany-2025/

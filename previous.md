@@ -1,3 +1,7 @@
+**Overlooked No More: Go-won-go Mohawk, Trailblazing Indigenous Actress**\
+`In the 1880s, the only roles for Indigenous performers were laden with negative stereotypes. So Mohawk decided to write her own narratives.`\
+https://nytimes.com/2024/11/09/obituaries/gowongo-mohawk-overlooked.html
+
 **Penguins recall Tristan Jarry from AHL after 2-week stint**\
 `The Penguins called on Jarry after two weeks in the American Hockey League, where he was sent to find his game after a disastrous NHL start.`\
 https://nytimes.com/athletic/5910193/2024/11/09/tristan-jarry-penguins-recalled-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909812/2024/11/09/auburn-basketball-team-flight-gr
 **Easy Hand-Pulled Noodles (With Video!)**\
 `This wonderfully doable recipe from Vivian Chan-Tam is a fun bit of kitchen craft time.`\
 https://nytimes.com/2024/11/09/dining/easy-hand-pulled-noodles-with-video.html
-
-**For embattled 76ers, 'the ship hasn't sunk' but tough times continue**\
-`"We know that we have to remain positive," Paul George said after Friday night's loss to the Lakers dropped the team to 1-7.`\
-https://nytimes.com/athletic/5909750/2024/11/09/76ers-loss-lakers/
 
