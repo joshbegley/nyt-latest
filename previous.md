@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2 Aston Villa 0 - Salah stars and Kelleher makes key saves as Slot's side go five points clear**\
+`Liverpool are five points clear of Man City at the top of the Premier League after beating Villa. Gregg Evans analyses the talking points`\
+https://nytimes.com/athletic/5903869/2024/11/09/liverpool-top-table-villa-salah-slot-kelleher/
+
 **Days after Billy Napier vote of confidence, Florida gets owned by rested Texas**\
 `No.`\
 https://nytimes.com/athletic/5910519/2024/11/09/texas-florida-football-analysis-score/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910336/2024/11/09/byu-college-football-playoff-ran
 **Pelicans' Zion Williamson out indefinitely with hamstring strain**\
 `New Orleans' disappointing start is partially due to Williamson, Dejounte Murray, CJ McCollum and others missing time due to injury.`\
 https://nytimes.com/athletic/5910309/2024/11/09/zion-williamson-injury-new-orleans-pelicans/
-
-**Vinicius Jr's golden hat-trick, Ancelotti finds 'solution', injury crisis deepens**\
-`Real Madrid found the 'solutions' to their recent poor form, with a Vinicius Jr hat-trick sinking Osasuna. But more injury problems emerged.`\
-https://nytimes.com/athletic/5910184/2024/11/09/vincius-hat-trick-real-madrid-injuries/
 
