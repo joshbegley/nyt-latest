@@ -1,3 +1,7 @@
+**Harper: Cleveland Cavaliers are 10-0. Are they for real?**\
+`How seriously should we take this Cavs start? How much of this is an indication of a leap being taken by the team?`\
+https://nytimes.com/athletic/5909397/2024/11/09/cavs-10-0-start/
+
 **Steve Kerr believes Kenny Atkinson has made Cavs 'clearly one of the best teams in the league'**\
 `The Warriors began winning championships after Kerr inherited a really good roster and made it great. Could that be starting in Cleveland?`\
 https://nytimes.com/athletic/5909901/2024/11/09/cavs-warriors-steve-kerr-kenny-atkinson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/opinion/photos-harris-trump-party.html
 **Democrats Need Working-Class Voters. Maybe Now They’ll Act Like It.**\
 `Democrats can compete if they focus more on minimum wages and child care than pronouns and purity.`\
 https://nytimes.com/2024/11/09/opinion/democrats-working-class.html
-
-**A.I. Companions and the Mental Health Risks for the Young**\
-`Readers discuss an article about a teenager’s suicide.`\
-https://nytimes.com/2024/11/09/opinion/ai-mental-health-teens.html
 
