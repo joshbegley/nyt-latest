@@ -1,3 +1,7 @@
+**Congestion Pricing Will Help New York Democrats Show They Can Govern**\
+`But time is running out to do it before Trump becomes president.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/congestion-pricing-hochul-trump
+
 **Smoky Smell Engulfs New York City After Fires in Brooklyn and New Jersey**\
 `New Yorkers were hit with an unsettling smell on Saturday morning after fires broke out on Friday in Prospect Park and across the Hudson River.`\
 https://nytimes.com/2024/11/09/nyregion/fire-smoke-nj-prospect-park-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910284/2024/11/09/julen-lopetegui-west-ham-fans/
 **FEMA Fires Employee for Telling Milton Relief Workers to Skip Houses With Trump Signs**\
 `The agency said it was investigating the incident in the aftermath of the Category 3 hurricane that hit Florida in October.`\
 https://nytimes.com/2024/11/09/us/fema-trump-signs.html
-
-**Kenneth Bronstein, Who Put His Faith in Atheism, Dies at 85**\
-`The organization that he led advocated the separation of church and state, with no exceptions for holidays, currency, symbolism or blessings.`\
-https://nytimes.com/2024/11/09/nyregion/kenneth-bronstein-dead.html
 
