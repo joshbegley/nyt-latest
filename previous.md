@@ -2,6 +2,10 @@
 `At a demonstration on Saturday, the crowd was small and enthusiasm was lacking. But organizers are planning a big march ahead of the inauguration.`\
 https://nytimes.com/2024/11/09/us/politics/womens-march-trump-future.html
 
+**UF men's basketball coach Golden accused of sexual harassment: Report**\
+`A formal complaint was filed with Florida’s Title IX office on Sept. 27, The Alligator reported.`\
+https://nytimes.com/athletic/5909192/2024/11/09/todd-golden-florida-sexual-harassment-complaint/
+
 **Emery: Aston Villa denied 'clear penalty' in Liverpool loss**\
 `Unai Emery says Aston Villa were denied a “clear penalty” in the team&#8217;s 2-0 defeat to Liverpool.`\
 https://nytimes.com/athletic/5910638/2024/11/09/unai-emery-aston-villa-penalty-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910496/2024/11/09/pep-guardiola-man-city-losing-st
 **Tony Todd, Prolific Actor Best Known for ‘Candyman,’ Dies at 69**\
 `Mr. Todd’s decades-long career spanned across mediums and genres, but he was largely associated with a scary figure summoned in front of a mirror.`\
 https://nytimes.com/2024/11/09/movies/tony-todd-dead.html
-
-**The Briefing: Liverpool 2 Aston Villa 0 - Salah stars and Kelleher makes key saves as Slot's side go five points clear**\
-`Liverpool are five points clear of Man City at the top of the Premier League after beating Villa. Gregg Evans analyses the talking points`\
-https://nytimes.com/athletic/5903869/2024/11/09/liverpool-top-table-villa-salah-slot-kelleher/
 

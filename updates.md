@@ -1,3 +1,7 @@
+**UF men's basketball coach Golden accused of sexual harassment: Report**\
+`A formal complaint was filed with Florida’s Title IX office on Sept. 27, The Alligator reported.`\
+https://nytimes.com/athletic/5909192/2024/11/09/todd-golden-florida-sexual-harassment-complaint/
+
 **At Women’s March Event, Organizers Say They Are Preparing a ‘Comeback Tour’**\
 `At a demonstration on Saturday, the crowd was small and enthusiasm was lacking. But organizers are planning a big march ahead of the inauguration.`\
 https://nytimes.com/2024/11/09/us/politics/womens-march-trump-future.html
