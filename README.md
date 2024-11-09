@@ -1,3 +1,7 @@
+**U.N.-Backed Panel Warns Action Needed in ‘Days, Not Weeks’ to Avert Gaza Famine**\
+`The Biden administration has set a mid-November deadline for Israel to deliver more humanitarian supplies to the enclave or face a cutoff of weapons aid.`\
+https://nytimes.com/2024/11/09/world/middleeast/un-panel-gaza-famine.html
+
 **Playing Favorites**\
 `The foods and music and culture that move us most might not be very good, but that doesn’t diminish their power to comfort and delight.`\
 https://nytimes.com/2024/11/09/briefing/playing-favorites.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/world/europe/russia-ukraine-war-soldiers-family-k
 **Nancy Pelosi Insists the Election Was Not a Rebuke of the Democrats**\
 `The former House Speaker reflects on Donald Trump’s victory, Kamala Harris’s candidacy and the future of the Democratic Party.`\
 https://nytimes.com/2024/11/09/magazine/nancy-pelosi-election-interview.html
-
-**5 Takeaways From Nancy Pelosi’s Interview With The New York Times**\
-`In her first extended interview after the election, the former House speaker was not interested in analyzing Democratic losses and was eager to put a sunny spin on the future.`\
-https://nytimes.com/2024/11/09/magazine/nancy-pelosi-interview-takeaways.html
 
