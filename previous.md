@@ -30,7 +30,7 @@ https://nytimes.com/2024/11/08/style/community-organizing.html
 `“Right now, I don’t think anyone knows whether it will be four weeks, six weeks or the season," Cowboys EVP Stephen Jones said Friday.`\
 https://nytimes.com/athletic/5909541/2024/11/08/cowboys-dak-prescott-injured-reserve-timetable-uncertain/
 
-**Trump has spoken with at least six world leaders since his election.**\
+**Trump has spoken with at least seven world leaders since his election.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls
 

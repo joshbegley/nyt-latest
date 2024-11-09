@@ -1,3 +1,7 @@
+**Trump has spoken with at least seven world leaders since his election.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls
+
 **Residents Return to Find Homes Reduced to Rubble After California Fire**\
 `The Mountain fire destroyed more than 130 structures in Ventura County and was only 7 percent contained. “It’s just devastating,” one resident said.`\
 https://nytimes.com/2024/11/08/us/california-mountain-fire-residents-return.html
