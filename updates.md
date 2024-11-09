@@ -1,3 +1,7 @@
+**Train Station Suicide Bombing Leaves Dozens Dead or Wounded in Pakistan**\
+`A banned ethnic separatist group in the restive province of Baluchistan claimed responsibility for the deadly attack in Quetta, the provincial capital.`\
+https://nytimes.com/2024/11/09/world/asia/pakistan-suicide-bombing.html
+
 **Russia Sentences Soldiers Over Killing of Ukrainian Family**\
 `The case, in which two soldiers murdered nine members of a family after breaking into their home, was a rare prosecution over crimes against civilians in Ukraine.`\
 https://nytimes.com/2024/11/09/world/europe/russia-ukraine-war-soldiers-family-killing.html
