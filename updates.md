@@ -1,3 +1,15 @@
+**Christopher Bell says he was 'cheated' out of spot in NASCAR championship**\
+`“This has been one of the hardest things I have had to go through as a race car driver,” Bell said. “I believe cheated is the right word."`\
+https://nytimes.com/athletic/5910434/2024/11/09/christopher-bell-nascar-championship-chevrolet-comments/
+
+**College Football Playoff 2024 projections: Predicting the bracket with Week 11 underway**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
+
+**Smoky Smell Engulfs New York City After Fires in Brooklyn and New Jersey**\
+`New Yorkers were hit with an unsettling smell on Saturday after fires broke out on Friday in Prospect Park and across the Hudson River.`\
+https://nytimes.com/2024/11/09/nyregion/fire-smoke-nj-prospect-park-brooklyn.html
+
 **Miami’s magic runs out at Georgia Tech. Can Canes still make College Football Playoff?**\
 `Cam Ward engineered comeback wins over Virginia Tech, Cal and Duke earlier this season, but the Canes came up short against Georgia Tech.`\
 https://nytimes.com/athletic/5910372/2024/11/09/miami-georgia-tech-college-football-cameron-ward/
