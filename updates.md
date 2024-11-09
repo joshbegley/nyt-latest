@@ -1,3 +1,7 @@
+**Harper: Cleveland Cavaliers are 10-0. Are they for real?**\
+`How seriously should we take this Cavs start? How much of this is an indication of a leap being taken by the team?`\
+https://nytimes.com/athletic/5909397/2024/11/09/cavs-10-0-start/
+
 **We’re About to Find Out Who Trump’s Victory Belongs To**\
 `Electoral success has a thousand fathers, each with his own agenda.`\
 https://nytimes.com/2024/11/09/opinion/trump-republicans-presidency-goals.html
