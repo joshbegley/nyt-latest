@@ -1,3 +1,7 @@
+**Trump Wins Nevada, Flipping a Battleground State**\
+`President-elect Donald J. Trump’s victory in Nevada was the first for Republicans in a presidential election since 2004.`\
+https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html
+
 **Depth and shooting — or at least the threat of it — allow Kansas to hold off North Carolina**\
 `Bill Self finally has the pieces to play chess late in games, allowing him to save his best for last in a big November matchup against UNC.`\
 https://nytimes.com/athletic/5909852/2024/11/09/kansas-holds-off-unc-depth-shooting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891543/2024/11/09/penguins-capitals-win-observatio
 **Smile, Flatter and Barter: How the World Is Prepping for Trump Part II**\
 `Foreign leaders have rushed to ingratiate themselves with Donald J. Trump in recent days, nervously recalling the clashes, insults and feuds of his first presidency.`\
 https://nytimes.com/2024/11/09/world/europe/trump-presidency-global-reaction.html
-
-**Liverpool vs Aston Villa preview: Storylines, odds, prediction as Reds try to stay top**\
-`Liverpool are top of the Premier League table, but face tough opposition in the form of Aston Villa on Saturday.`\
-https://nytimes.com/athletic/5908826/2024/11/09/liverpool-aston-villa-preview-odds-prediction/
 

@@ -1,3 +1,7 @@
+**Trump Wins Nevada, Flipping a Battleground State**\
+`President-elect Donald J. Trump’s victory in Nevada was the first for Republicans in a presidential election since 2004.`\
+https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html
+
 **Depth and shooting — or at least the threat of it — allow Kansas to hold off North Carolina**\
 `Bill Self finally has the pieces to play chess late in games, allowing him to save his best for last in a big November matchup against UNC.`\
 https://nytimes.com/athletic/5909852/2024/11/09/kansas-holds-off-unc-depth-shooting/
