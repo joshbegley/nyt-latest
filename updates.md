@@ -1,3 +1,7 @@
+**Mourinho fined and banned following criticism of Turkish refereeing**\
+`Jose Mourinho has been fined and must serve a one-match ban following his reaction to Fenerbahce&#8217;s win over Trabzonspor.`\
+https://nytimes.com/athletic/5909993/2024/11/09/jose-mourinho-ban-fenerbahce-referee/
+
 **U.N.-Backed Panel Warns Action Needed in ‘Days, Not Weeks’ to Avert Gaza Famine**\
 `The Biden administration has set a mid-November deadline for Israel to deliver more humanitarian supplies to the enclave or face a cutoff of weapons aid.`\
 https://nytimes.com/2024/11/09/world/middleeast/un-panel-gaza-famine.html
