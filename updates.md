@@ -1,3 +1,7 @@
+**De Zerbi offers to quit at Marseille: 'If I'm the problem, I'm ready to leave'**\
+`Roberto De Zerbi has offered to leave his position as Marseille head coach if he is deemed to be &#8220;the problem&#8221; behind the club&#8217;s struggles at home.`\
+https://nytimes.com/athletic/5909985/2024/11/09/marseille-de-zerbi-home-form/
+
 **Leeds's Firpo to serve three-match ban after violent conduct charge**\
 `Leeds United will be without Junior Firpo for the next three games after the defender was hit with a violent conduct charge by the Football Association (FA).`\
 https://nytimes.com/athletic/5909958/2024/11/09/junior-firpo-ban-leeds/
