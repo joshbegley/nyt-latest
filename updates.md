@@ -1,3 +1,7 @@
+**Government Moves to Thwart Guilty Plea Proceedings in Sept. 11 Case**\
+`Prosecutors plan to appeal the trial judge’s ruling that the defense secretary had not lawfully rescinded the government plea deal with Khalid Shaikh Mohammed.`\
+https://nytimes.com/2024/11/09/us/politics/sept-11-guantanamo-plea.html
+
 **Lopetegui preaches patience after slow West Ham start: ''Many competitions end in May'**\
 `West Ham United head coach Julen Lopetegui wants supporters to reserve judgement on him and his side until the end of the season.`\
 https://nytimes.com/athletic/5910284/2024/11/09/julen-lopetegui-west-ham-fans/

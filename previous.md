@@ -1,3 +1,7 @@
+**Government Moves to Thwart Guilty Plea Proceedings in Sept. 11 Case**\
+`Prosecutors plan to appeal the trial judge’s ruling that the defense secretary had not lawfully rescinded the government plea deal with Khalid Shaikh Mohammed.`\
+https://nytimes.com/2024/11/09/us/politics/sept-11-guantanamo-plea.html
+
 **Lopetegui preaches patience after slow West Ham start: ''Many competitions end in May'**\
 `West Ham United head coach Julen Lopetegui wants supporters to reserve judgement on him and his side until the end of the season.`\
 https://nytimes.com/athletic/5910284/2024/11/09/julen-lopetegui-west-ham-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910175/2024/11/09/chris-olave-saints-injured-reser
 **What Do Trump Voters Know About the Future He Has Planned for Them?**\
 `Be careful what you wish for, Part 99.`\
 https://nytimes.com/2024/11/09/opinion/trump-voters-future-plan.html
-
-**Roger Goodell on rumors of 2025 NFL game in Berlin: 'Believe them'**\
-`While Berlin hosting an NFL game in 2025 is a strong possibility, Goodell said nothing is finalized.`\
-https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany-2025/
 
