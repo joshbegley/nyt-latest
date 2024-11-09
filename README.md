@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5910175/2024/11/09/chris-olave-saints-injured-reser
 https://nytimes.com/2024/11/09/opinion/trump-voters-future-plan.html
 
 **Roger Goodell on rumors of 2025 NFL game in Berlin: 'Believe them'**\
-`While Berlin hosting an NFL game in 2025 is a strong possibility, nothing is finalized, Goodell said.`\
+`While Berlin hosting an NFL game in 2025 is a strong possibility, Goodell said nothing is finalized.`\
 https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany-2025/
 
 **Biden and Trump to Meet at White House on Wednesday**\
