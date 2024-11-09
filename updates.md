@@ -1,3 +1,7 @@
+**Trevor Sorbie, Creator of the Dorothy Hamill ‘Wedge’ Cut, Dies at 75**\
+`Mr. Sorbie, who styled hair for Helen Mirren, the Beach Boys and others, was honored by Queen Elizabeth II for services to British hairdressing.`\
+https://nytimes.com/2024/11/09/style/trevor-sorbie-dead.html
+
 **Qatar Pauses Role as Mediator in Gaza Cease-Fire Talks, Citing Deadlock**\
 `The Qatari Foreign Ministry announced it had stepped back from talks, saying it would resume once Israel and Hamas “show willingness and seriousness.”`\
 https://nytimes.com/2024/11/09/world/middleeast/qatar-israel-hamas-gaza-ceasefire-talks.html

@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5910184/2024/11/09/vincius-hat-trick-real-madrid-in
 `Brighton and Hove Albion beat Manchester City 2-1 to go fourth in the Premier League and put a dent in the champions' title chances.`\
 https://nytimes.com/athletic/5903868/2024/11/09/brighton-manchester-city-result-premier-league-oriley/
 
-**Trevor Sorbie, Hairstylist Who Created ‘Wedge’ Cut Worn by Dorothy Hamill, Dies at 75**\
-`Mr. Sorbie, who styled hair for Dame Helen Mirren, the Beach Boys and others, was honored by Queen Elizabeth II for services to British hairdressing.`\
+**Trevor Sorbie, Creator of the Dorothy Hamill ‘Wedge’ Cut, Dies at 75**\
+`Mr. Sorbie, who styled hair for Helen Mirren, the Beach Boys and others, was honored by Queen Elizabeth II for services to British hairdressing.`\
 https://nytimes.com/2024/11/09/style/trevor-sorbie-dead.html
 
 **Government Moves to Thwart Guilty Plea Proceedings in Sept. 11 Case**\
