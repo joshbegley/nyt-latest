@@ -1,3 +1,7 @@
+**Lopetegui preaches patience after slow West Ham start: ''Many competitions end in May'**\
+`West Ham United head coach Julen Lopetegui wants supporters to reserve judgement on him and his side until the end of the season.`\
+https://nytimes.com/athletic/5910284/2024/11/09/julen-lopetegui-west-ham-fans/
+
 **FEMA Fires Employee for Telling Milton Relief Workers to Skip Houses With Trump Signs**\
 `The agency said it was investigating the incident in the aftermath of the Category 3 hurricane that hit Florida in October.`\
 https://nytimes.com/2024/11/09/us/fema-trump-signs.html
