@@ -1,3 +1,7 @@
+**San Francisco Mayor-elect Plans to Declare Fentanyl Emergency on Day 1**\
+`Daniel Lurie held his first news conference since Mayor London Breed conceded the mayoral race this week.`\
+https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
+
 **Trump has spoken with at least seven world leaders since his election.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls

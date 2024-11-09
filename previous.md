@@ -1,3 +1,7 @@
+**San Francisco Mayor-elect Plans to Declare Fentanyl Emergency on Day 1**\
+`Daniel Lurie held his first news conference since Mayor London Breed conceded the mayoral race this week.`\
+https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
+
 **Residents Return to Find Homes Reduced to Rubble After California Fire**\
 `The Mountain fire destroyed more than 130 structures in Ventura County and was only 7 percent contained. “It’s just devastating,” one resident said.`\
 https://nytimes.com/2024/11/08/us/california-mountain-fire-residents-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909541/2024/11/08/cowboys-dak-prescott-injured-res
 **Trump has spoken with at least seven world leaders since his election.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls
-
-**NBA closing academies in Mexico, Australia**\
-`The NBA will keep its academy in Senegal open as the league has made Africa a larger part of its global focus.`\
-https://nytimes.com/athletic/5909527/2024/11/08/nba-closing-academies-mexico-australia/
 
