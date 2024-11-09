@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5906280/2024/11/09/liverpool-arne-slot-underlapping
 https://nytimes.com/athletic/5908678/2024/11/09/steph-houghton-interview-reaction-england/
 
 **Yohe's 10 observations: Penguins shut down Capitals for season's most impressive win**\
-`The Penguins earned their most impressive win of the season, taking down the Capitals 4-2 on Friday in Washington.`\
+`The Penguins earned their finest win so far, taking down the Capitals 4-2 on Friday in Washington.`\
 https://nytimes.com/athletic/5891543/2024/11/09/penguins-capitals-win-observations/
 
 **Smile, Flatter and Barter: How the World Is Prepping for Trump Part II**\

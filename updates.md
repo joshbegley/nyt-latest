@@ -1,3 +1,11 @@
+**How can Amorim get the best out of Garnacho at Man Utd?**\
+`Even on his off days, Garnacho typically makes things happen. It’s why he became a mainstay in the starting line-up sooner than expected`\
+https://nytimes.com/athletic/5908175/2024/11/09/garnacho-amorim-manchester-united/
+
+**What happened with Maccabi Tel Aviv fans in Amsterdam and how will football react?**\
+`Events in the Dutch capital on Thursday shocked the world - and asked serious questions of the sport's governing bodies`\
+https://nytimes.com/athletic/5908576/2024/11/09/maccabi-tel-aviv-fans-attacked-why/
+
 **Why Sterling joined Arsenal and what the future holds after lack of playing time**\
 `The winger moved late in the summer window and has hardly featured but is comfortable with his role under Mikel Arteta`\
 https://nytimes.com/athletic/5908537/2024/11/09/raheem-sterling-arsenal-chelsea/
