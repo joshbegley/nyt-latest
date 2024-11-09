@@ -1,3 +1,11 @@
+**Trump Should Not Let Putin Claim Victory in Ukraine, Says NATO Official**\
+`Adm. Rob Bauer warned against any peace deal that was too favorable to Russia, arguing that it could undermine American interests.`\
+https://nytimes.com/2024/11/09/world/europe/trump-nato-putin-ukraine.html
+
+**Giants vs. Panthers: How to watch, odds, expert picks for NFL's Germany game**\
+`The Giants and Panthers play their Week 10 matchup in Munich.`\
+https://nytimes.com/athletic/5904893/2024/11/09/giants-panthers-how-to-watch-odds-picks-germany-game/
+
 **Two Militia Founders Are Convicted of Plot to Kill Federal Agents**\
 `“We were going out huntin’,” one of the men said in a video before a planned trip to the Mexico border, where they intended to shoot at immigrants and officials who might stop them, prosecutors said.`\
 https://nytimes.com/2024/11/09/us/militia-border-convictions.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910408/2024/11/09/trent-alexander-arnold-liverpool
 **Teoscar Hernández wants to stay with Dodgers, though 4 other teams have interest**\
 `Hernández, The Athletic's No. 11 ranked free agent, is coming off a World Series run and one of the best seasons of his career.`\
 https://nytimes.com/athletic/5910641/2024/11/09/teoscar-hernandez-free-agency-dodgers/
-
-**From Start to Finish**\
-`Sam Ezersky’s Sunday puzzle flips the script.`\
-https://nytimes.com/2024/11/09/crosswords/daily-puzzle-2024-11-10.html
-
-**NFL fines 49ers' Nick Bosa $11,255 for wearing 'MAGA' hat postgame**\
-`Bosa's behavior violated the NFL's rules prohibiting players from wearing or displaying items related to political causes.`\
-https://nytimes.com/athletic/5910508/2024/11/09/nfl-fines-49ers-nick-bosa-maga-hat/
 
