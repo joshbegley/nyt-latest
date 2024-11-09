@@ -1,3 +1,7 @@
+**Miami’s magic runs out at Georgia Tech. Can Canes still make College Football Playoff?**\
+`Cam Ward engineered comeback wins over Virginia Tech, Cal and Duke earlier this season, but the Canes came up short against Georgia Tech.`\
+https://nytimes.com/athletic/5910372/2024/11/09/miami-georgia-tech-college-football-cameron-ward/
+
 **Ohio State takeaways: Purdue shutout a chance to experiment as Jeremiah Smith set records**\
 `No. 2 Ohio State easily dominated Purdue 45-0 on Saturday behind a well-rounded effort that included Smith breaking freshman records.`\
 https://nytimes.com/athletic/5910329/2024/11/09/ohio-state-purdue-score-jeremiah-smith/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/style/trevor-sorbie-dead.html
 **Government Moves to Thwart Guilty Plea Proceedings in Sept. 11 Case**\
 `Prosecutors plan to appeal the trial judge’s ruling that the defense secretary had not lawfully rescinded the government plea deal with Khalid Shaikh Mohammed.`\
 https://nytimes.com/2024/11/09/us/politics/sept-11-guantanamo-plea.html
-
-**Lopetegui preaches patience after slow West Ham start: ''Many competitions end in May'**\
-`West Ham United head coach Julen Lopetegui wants supporters to reserve judgement on him and his side until the end of the season.`\
-https://nytimes.com/athletic/5910284/2024/11/09/julen-lopetegui-west-ham-fans/
 
