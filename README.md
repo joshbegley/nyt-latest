@@ -1,3 +1,11 @@
+**Christopher Bell says he was 'cheated' out of spot in NASCAR championship**\
+`“This has been one of the hardest things I have had to go through as a race car driver,” Bell said. “I believe cheated is the right word."`\
+https://nytimes.com/athletic/5910434/2024/11/09/christopher-bell-nascar-championship-chevrolet-comments/
+
+**College Football Playoff 2024 projections: Predicting the bracket with Week 11 underway**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
+
 **Miami’s magic runs out at Georgia Tech. Can Canes still make College Football Playoff?**\
 `Cam Ward engineered comeback wins over Virginia Tech, Cal and Duke earlier this season, but the Canes came up short against Georgia Tech.`\
 https://nytimes.com/athletic/5910372/2024/11/09/miami-georgia-tech-college-football-cameron-ward/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910184/2024/11/09/vincius-hat-trick-real-madrid-in
 **Brighton 2 Manchester City 1: Creaky defence, Guardiola's worst run, is title slipping?**\
 `Brighton and Hove Albion beat Manchester City 2-1 to go fourth in the Premier League and put a dent in the champions' title chances.`\
 https://nytimes.com/athletic/5903868/2024/11/09/brighton-manchester-city-result-premier-league-oriley/
-
-**Trevor Sorbie, Creator of the Dorothy Hamill ‘Wedge’ Cut, Dies at 75**\
-`Mr. Sorbie, who styled hair for Helen Mirren, the Beach Boys and others, was honored by Queen Elizabeth II for services to British hairdressing.`\
-https://nytimes.com/2024/11/09/style/trevor-sorbie-dead.html
-
-**Government Moves to Thwart Guilty Plea Proceedings in Sept. 11 Case**\
-`Prosecutors plan to appeal the trial judge’s ruling that the defense secretary had not lawfully rescinded the government plea deal with Khalid Shaikh Mohammed.`\
-https://nytimes.com/2024/11/09/us/politics/sept-11-guantanamo-plea.html
 
