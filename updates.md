@@ -1,3 +1,7 @@
+**Tony Todd, Prolific Actor Best Known for ‘Candyman,’ Dies at 69**\
+`Mr. Todd’s decades-long career spanned across mediums and genres, but he was largely associated with a scary figure summoned in front of a mirror.`\
+https://nytimes.com/2024/11/09/movies/tony-todd-dead.html
+
 **The Briefing: Liverpool 2 Aston Villa 0 - Salah stars and Kelleher makes key saves as Slot's side go five points clear**\
 `Liverpool are five points clear of Man City at the top of the Premier League after beating Villa. Gregg Evans analyses the talking points`\
 https://nytimes.com/athletic/5903869/2024/11/09/liverpool-top-table-villa-salah-slot-kelleher/

@@ -1,3 +1,7 @@
+**Tony Todd, Prolific Actor Best Known for ‘Candyman,’ Dies at 69**\
+`Mr. Todd’s decades-long career spanned across mediums and genres, but he was largely associated with a scary figure summoned in front of a mirror.`\
+https://nytimes.com/2024/11/09/movies/tony-todd-dead.html
+
 **The Briefing: Liverpool 2 Aston Villa 0 - Salah stars and Kelleher makes key saves as Slot's side go five points clear**\
 `Liverpool are five points clear of Man City at the top of the Premier League after beating Villa. Gregg Evans analyses the talking points`\
 https://nytimes.com/athletic/5903869/2024/11/09/liverpool-top-table-villa-salah-slot-kelleher/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/nyregion/fire-smoke-nj-prospect-park-brooklyn.htm
 **Big 12 commissioner Brett Yormark 'surprised' by BYU's low CFP ranking**\
 `"When you think about BYU specifically, I would say that they should have been a little higher (than No. 9),” Yormark said.`\
 https://nytimes.com/athletic/5910336/2024/11/09/byu-college-football-playoff-ranking-brett-yormark-comments/
-
-**Pelicans' Zion Williamson out indefinitely with hamstring strain**\
-`New Orleans' disappointing start is partially due to Williamson, Dejounte Murray, CJ McCollum and others missing time due to injury.`\
-https://nytimes.com/athletic/5910309/2024/11/09/zion-williamson-injury-new-orleans-pelicans/
 
