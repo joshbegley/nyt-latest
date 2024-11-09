@@ -1,3 +1,7 @@
+**NWSL playoffs: Orlando scores 4 goals to secure semifinal spot**\
+`The latest on the NWSL quarterfinal matches `\
+https://nytimes.com/athletic/5909759/2024/11/08/nwsl-playoffs-quarterfinal-results-2024/
+
 **Seattle Police Arrest Man in Connection With Five Stabbings**\
 `Five people were injured in attacks in the city’s Chinatown-International District on Friday, the police said.`\
 https://nytimes.com/2024/11/08/us/seattle-chinatown-stabbings.html
