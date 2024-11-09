@@ -1,3 +1,7 @@
+**Steve Kerr believes Kenny Atkinson has made Cavs 'clearly one of the best teams in the league'**\
+`The Warriors began winning championships after Kerr inherited a really good roster and made it great. Could that be starting in Cleveland?`\
+https://nytimes.com/athletic/5909901/2024/11/09/cavs-warriors-steve-kerr-kenny-atkinson/
+
 **Democrats and the Case of Mistaken Identity Politics**\
 `The post mortem is a wake for woke.`\
 https://nytimes.com/2024/11/09/opinion/democrats-identity-politics.html

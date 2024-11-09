@@ -1,3 +1,7 @@
+**Steve Kerr believes Kenny Atkinson has made Cavs 'clearly one of the best teams in the league'**\
+`The Warriors began winning championships after Kerr inherited a really good roster and made it great. Could that be starting in Cleveland?`\
+https://nytimes.com/athletic/5909901/2024/11/09/cavs-warriors-steve-kerr-kenny-atkinson/
+
 **Democrats and the Case of Mistaken Identity Politics**\
 `The post mortem is a wake for woke.`\
 https://nytimes.com/2024/11/09/opinion/democrats-identity-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/opinion/democrats-working-class.html
 **A.I. Companions and the Mental Health Risks for the Young**\
 `Readers discuss an article about a teenager’s suicide.`\
 https://nytimes.com/2024/11/09/opinion/ai-mental-health-teens.html
-
-**The Book That Predicted the 2024 Election**\
-`The G.O.P. pollster Patrick Ruffini’s book “Party of the People” outlined the realignments reflected in this year’s election results.`\
-https://nytimes.com/2024/11/09/opinion/ezra-klein-podcast-patrick-ruffini.html
 
