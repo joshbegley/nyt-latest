@@ -1,3 +1,11 @@
+**The underlap - and how Liverpool use it to potent effect**\
+`Arne Slot's side are causing havoc out wide and it is often an unheralded off-the-ball run doing the damage`\
+https://nytimes.com/athletic/5906280/2024/11/09/liverpool-arne-slot-underlapping-runs/
+
+**Houghton spoke from the heart - why have people been so quick to judge or condemn?**\
+`The ex-England captain has been criticised for comments in her book, raising questions about what we want from our leading female athletes`\
+https://nytimes.com/athletic/5908678/2024/11/09/steph-houghton-interview-reaction-england/
+
 **Yohe's 10 observations: Penguins shut down Capitals for season's most impressive win**\
 `The Penguins earned their most impressive win of the season, taking down the Capitals 4-2 on Friday in Washington.`\
 https://nytimes.com/athletic/5891543/2024/11/09/penguins-capitals-win-observations/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/08/us/seattle-chinatown-stabbings.html
 **NWSL playoffs: Orlando scores 4 goals to secure semifinal spot**\
 `The latest on the NWSL quarterfinal matches `\
 https://nytimes.com/athletic/5909759/2024/11/08/nwsl-playoffs-quarterfinal-results-2024/
-
-**Cunningham caps off historic triple-double with game-winning layup, block**\
-`Cunningham joins Grant Hill as the only players in Pistons franchise history to record three straight triple-doubles.`\
-https://nytimes.com/athletic/5909772/2024/11/08/cade-cunningham-pistons-triple-double-block/
-
-**Maple Leafs report cards: Red-hot power play fuels win**\
-`After a horrendous start to the season, Toronto's power play is officially on fire with another pair of goals in a 3-1 win over Detroit.`\
-https://nytimes.com/athletic/5909791/2024/11/08/maple-leafs-red-wings-power-play/
 
