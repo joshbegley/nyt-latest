@@ -1,3 +1,15 @@
+**Easy Hand-Pulled Noodles (With Video!)**\
+`This wonderfully doable recipe from Vivian Chan-Tam is a fun bit of kitchen craft time.`\
+https://nytimes.com/2024/11/09/dining/easy-hand-pulled-noodles-with-video.html
+
+**For embattled 76ers, 'the ship hasn't sunk' but tough times continue**\
+`"We know that we have to remain positive," Paul George said after Friday night's loss to the Lakers dropped the team to 1-7.`\
+https://nytimes.com/athletic/5909750/2024/11/09/76ers-loss-lakers/
+
+**Barcelona announce new multi-year partnership with Nike**\
+`Barcelona have announced a new multi-year partnership with kit supplier Nike.`\
+https://nytimes.com/athletic/5910116/2024/11/09/barcelona-nike-deal-new/
+
 **Militao suffers knee injury, leaves Real Madrid vs Osasuna on stretcher**\
 `Eder Militao left Real Madrid&#8217;s La Liga game with Osasuna on Saturday on a stretcher after suffering what appeared to be a serious knee injury.`\
 https://nytimes.com/athletic/5910067/2024/11/09/eder-militao-injury-real-madrid/

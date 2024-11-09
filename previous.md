@@ -1,3 +1,15 @@
+**Easy Hand-Pulled Noodles (With Video!)**\
+`This wonderfully doable recipe from Vivian Chan-Tam is a fun bit of kitchen craft time.`\
+https://nytimes.com/2024/11/09/dining/easy-hand-pulled-noodles-with-video.html
+
+**For embattled 76ers, 'the ship hasn't sunk' but tough times continue**\
+`"We know that we have to remain positive," Paul George said after Friday night's loss to the Lakers dropped the team to 1-7.`\
+https://nytimes.com/athletic/5909750/2024/11/09/76ers-loss-lakers/
+
+**Barcelona announce new multi-year partnership with Nike**\
+`Barcelona have announced a new multi-year partnership with kit supplier Nike.`\
+https://nytimes.com/athletic/5910116/2024/11/09/barcelona-nike-deal-new/
+
 **Weeds Are Everywhere. Why Aren’t We Eating Them More?**\
 `Fast-growing and prolific, these plants are the next frontier in foraging.`\
 https://nytimes.com/2024/11/09/t-magazine/edible-weeds.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/09/us/politics/howard-lutnick-transition-ethics.html
 **Lakers' bold starting lineup change immediately provides positive returns**\
 `The Lakers have been concerned about benching D’Angelo Russell. JJ Redick ultimately took the risk — and much earlier than expected.`\
 https://nytimes.com/athletic/5909783/2024/11/09/lakers-starting-lineup-dangelo-russell-cam-reddish/
-
-**Will the Leafs trade for a 3C? Kaprizov contract over/under? Will Daly succeed Bettman? Ask CJ**\
-`Also: Will the Jets go all in to try to solve their attendance issues? Will Crosby hit 1,700 points before Ovechkin hits 895 goals?`\
-https://nytimes.com/athletic/5904864/2024/11/09/maple-leafs-trade-kaprizov-contract-daly-bettman/
-
-**Could the Bond Market Stymie Trump’s Economic Plans?**\
-`Some fiscal hawks worry that Trump’s policies would increase the deficit and fuel inflation.`\
-https://nytimes.com/2024/11/09/business/dealbook/trump-economy-bonds.html
-
-**Harper: Cleveland Cavaliers are 10-0. Are they for real?**\
-`How seriously should we take this Cavs start? How much of this is an indication of a leap being taken by the team?`\
-https://nytimes.com/athletic/5909397/2024/11/09/cavs-10-0-start/
 
