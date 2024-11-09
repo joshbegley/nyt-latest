@@ -1,3 +1,11 @@
+**How can Amorim get the best out of Garnacho at Man Utd?**\
+`Even on his off days, Garnacho typically makes things happen. It’s why he became a mainstay in the starting line-up sooner than expected`\
+https://nytimes.com/athletic/5908175/2024/11/09/garnacho-amorim-manchester-united/
+
+**What happened with Maccabi Tel Aviv fans in Amsterdam and how will football react?**\
+`Events in the Dutch capital on Thursday shocked the world - and asked serious questions of the sport's governing bodies`\
+https://nytimes.com/athletic/5908576/2024/11/09/maccabi-tel-aviv-fans-attacked-why/
+
 **Why Sterling joined Arsenal and what the future holds after lack of playing time**\
 `The winger moved late in the summer window and has hardly featured but is comfortable with his role under Mikel Arteta`\
 https://nytimes.com/athletic/5908537/2024/11/09/raheem-sterling-arsenal-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909400/2024/11/09/michigan-indiana-how-to-watch-pi
 **Brighton vs Man City preview: Storylines, odds, prediction for slumping City's away test**\
 `Manchester City have lost three in a row and don't have an easy match ahead at Brighton on Saturday.`\
 https://nytimes.com/athletic/5909105/2024/11/09/brighton-manchester-city-preview-odds-prediction/
-
-**Quote of the Day: For Harris, Star Endorsements Didn’t Shine as They Used To**\
-`Quotation of the Day for Saturday, November 9, 2024`\
-https://nytimes.com/2024/11/08/pageoneplus/quote-of-the-day-for-harris-star-endorsements-didnt-shine-as-they-used-to.html
-
-**Seattle Police Arrest Man in Connection With Five Stabbings**\
-`Five people were injured in attacks in the city’s Chinatown-International District on Friday, the police said.`\
-https://nytimes.com/2024/11/08/us/seattle-chinatown-stabbings.html
 
