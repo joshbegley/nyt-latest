@@ -1,3 +1,7 @@
+**Khadija Shaw and Lauren Hemp's partnership is key to Man City's hopes of success**\
+`Manchester City beat Spurs 4-0 on Friday night, with Shaw and Hemp starring for the hosts`\
+https://nytimes.com/athletic/5909683/2024/11/09/khadija-shaw-lauren-hemp-manchester-city/
+
 **Anthony Edwards has opened the season on a Steph Curry-like shooting streak**\
 `Edwards buried 9 of 15 3-pointers on his way to 37 points Friday in Minnesota's 127-102 victory over Portland.`\
 https://nytimes.com/athletic/5907663/2024/11/09/timberwolves-trail-blazers-anthony-edwards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908537/2024/11/09/raheem-sterling-arsenal-chelsea/
 **The underlap - and how Liverpool use it to potent effect**\
 `Arne Slot's side are causing havoc out wide and it is often an unheralded off-the-ball run doing the damage`\
 https://nytimes.com/athletic/5906280/2024/11/09/liverpool-arne-slot-underlapping-runs/
-
-**Houghton spoke from the heart - why have people been so quick to judge or condemn?**\
-`The ex-England captain has been criticised for comments in her book, raising questions about what we want from our leading female athletes`\
-https://nytimes.com/athletic/5908678/2024/11/09/steph-houghton-interview-reaction-england/
 
