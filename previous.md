@@ -1,3 +1,7 @@
+**Gazans Are Living Through a Yearlong Blackout**\
+`Israel cut off electricity in the first days of the war, leaving Palestinians to light the dark with cellphones and to cook over open flames.`\
+https://nytimes.com/2024/11/09/world/middleeast/gaza-electricity.html
+
 **De Zerbi offers to quit at Marseille: 'If I'm the problem, I'm ready to leave'**\
 `Roberto De Zerbi has offered to leave his position as Marseille head coach if he is deemed to be &#8220;the problem&#8221; behind the club&#8217;s struggles at home.`\
 https://nytimes.com/athletic/5909985/2024/11/09/marseille-de-zerbi-home-form/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909827/2024/11/09/wild-ducks-kirill-kaprizov-3-poi
 **Anthony Edwards has opened the season on a Steph Curry-like shooting streak**\
 `Edwards buried 9 of 15 3-pointers on his way to 37 points Friday in Minnesota's 127-102 victory over Portland.`\
 https://nytimes.com/athletic/5907663/2024/11/09/timberwolves-trail-blazers-anthony-edwards/
-
-**Reggie Jackson announces he's leaving Astros' front office: Report**\
-`Mr. October joined the Astros as a "special advisor" before the 2021 season.`\
-https://nytimes.com/athletic/5909889/2024/11/09/reggie-jackson-astros-front-office/
 
