@@ -1,3 +1,7 @@
+**Pelicans' Zion Williamson out indefinitely with hamstring strain**\
+`New Orleans' disappointing start is partially due to Williamson, Dejounte Murray, CJ McCollum and others missing time due to injury.`\
+https://nytimes.com/athletic/5910309/2024/11/09/zion-williamson-injury-new-orleans-pelicans/
+
 **Vinicius Jr's golden hat-trick, Ancelotti finds 'solution', injury crisis deepens**\
 `Real Madrid found the 'solutions' to their recent poor form, with a Vinicius Jr hat-trick sinking Osasuna. But more injury problems emerged.`\
 https://nytimes.com/athletic/5910184/2024/11/09/vincius-hat-trick-real-madrid-injuries/
