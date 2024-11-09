@@ -1,3 +1,7 @@
+**Train Station Suicide Bombing Leaves Dozens Dead or Wounded in Pakistan**\
+`A banned ethnic separatist group in the restive province of Baluchistan claimed responsibility for the deadly attack in Quetta, the provincial capital.`\
+https://nytimes.com/2024/11/09/world/asia/pakistan-suicide-bombing.html
+
 **Russia Sentences Soldiers Over Killing of Ukrainian Family**\
 `The case, in which two soldiers murdered nine members of a family after breaking into their home, was a rare prosecution over crimes against civilians in Ukraine.`\
 https://nytimes.com/2024/11/09/world/europe/russia-ukraine-war-soldiers-family-killing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/climate/biden-environmental-groups-climate-polici
 **58 Movies to Watch This Winter: Bob Dylan Biopic, ‘Moana 2’ and More**\
 `From life stories (“A Complete Unknown,” “The Fire Inside”) to animated tales (“Moana 2,” “Mufasa”), these are the films we can’t wait to see this season.`\
 https://nytimes.com/2024/11/09/movies/new-movie-releases-winter-streaming-theaters.html
-
-**An Earthling Tunes In to a Hidden Universal Message**\
-`Wonderful ideas are available to all of us, says the singer-songwriter Beverly Glenn-Copeland, a terrestrial fellow traveler.`\
-https://nytimes.com/2024/11/09/arts/scratchpad-earthling-letter.html
 
