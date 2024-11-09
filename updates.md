@@ -1,3 +1,15 @@
+**How an Off Broadway Drag Show Choreographer Spends His Sundays**\
+`Spencer Liff, who choreographed “Drag: The Musical,” searches for New York’s best Bloody Mary, stops by the theater and tries to find his next great jacket at the flea market.`\
+https://nytimes.com/2024/11/09/nyregion/spencer-liff-drag-musical-off-broadway.html
+
+**Trump’s Deportation Vow Fuels Fear and a Potential Showdown in New York**\
+`Mayor Eric Adams of New York City has vowed to prevent mass deportations, but migrants and immigration lawyers are preparing for them.`\
+https://nytimes.com/2024/11/09/nyregion/trump-migrants-deportation-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/09/crosswords/spelling-bee-forum.html
+
 **Another Kirill Kaprizov 3-point game, another Wild road win in Anaheim: 5 takeaways**\
 `The Wild jumped out to a three-goal first-period lead, then were buoyed by great goaltending and a solid PK in a 5-2 win Friday night.`\
 https://nytimes.com/athletic/5909827/2024/11/09/wild-ducks-kirill-kaprizov-3-points/
