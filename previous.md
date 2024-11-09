@@ -1,3 +1,7 @@
+**Guardiola relishing challenge of ending Man City losing streak**\
+`Pep Guardiola says he is relishing the challenge of turning Manchester City&#8217;s fortunes around after suffering a fourth consecutive defeat for the first time in his managerial career.`\
+https://nytimes.com/athletic/5910496/2024/11/09/pep-guardiola-man-city-losing-streak/
+
 **Tony Todd, Prolific Actor Best Known for ‘Candyman,’ Dies at 69**\
 `Mr. Todd’s decades-long career spanned across mediums and genres, but he was largely associated with a scary figure summoned in front of a mirror.`\
 https://nytimes.com/2024/11/09/movies/tony-todd-dead.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-project
 `Cam Ward engineered comeback wins over Virginia Tech, Cal and Duke earlier this season, but the Canes came up short against Georgia Tech.`\
 https://nytimes.com/athletic/5910372/2024/11/09/miami-georgia-tech-college-football-cameron-ward/
 
-**Ohio State takeaways: Purdue shutout a chance to experiment as Jeremiah Smith set records**\
+**Ohio State takeaways: Defense experiments in Purdue shutout as Jeremiah Smith sets records**\
 `No. 2 Ohio State easily dominated Purdue 45-0 on Saturday behind a well-rounded effort that included Smith breaking freshman records.`\
 https://nytimes.com/athletic/5910329/2024/11/09/ohio-state-purdue-score-jeremiah-smith/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/07/opinion/thepoint/congestion-pricing-hochul-t
 **Smoky Smell Engulfs New York City After Fires in Brooklyn and New Jersey**\
 `New Yorkers were hit with an unsettling smell on Saturday after fires broke out on Friday in Prospect Park and across the Hudson River.`\
 https://nytimes.com/2024/11/09/nyregion/fire-smoke-nj-prospect-park-brooklyn.html
-
-**Big 12 commissioner Brett Yormark 'surprised' by BYU's low CFP ranking**\
-`"When you think about BYU specifically, I would say that they should have been a little higher (than No. 9),” Yormark said.`\
-https://nytimes.com/athletic/5910336/2024/11/09/byu-college-football-playoff-ranking-brett-yormark-comments/
 

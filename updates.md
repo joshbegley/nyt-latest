@@ -1,3 +1,11 @@
+**Guardiola relishing challenge of ending Man City losing streak**\
+`Pep Guardiola says he is relishing the challenge of turning Manchester City&#8217;s fortunes around after suffering a fourth consecutive defeat for the first time in his managerial career.`\
+https://nytimes.com/athletic/5910496/2024/11/09/pep-guardiola-man-city-losing-streak/
+
+**Ohio State takeaways: Defense experiments in Purdue shutout as Jeremiah Smith sets records**\
+`No. 2 Ohio State easily dominated Purdue 45-0 on Saturday behind a well-rounded effort that included Smith breaking freshman records.`\
+https://nytimes.com/athletic/5910329/2024/11/09/ohio-state-purdue-score-jeremiah-smith/
+
 **Tony Todd, Prolific Actor Best Known for ‘Candyman,’ Dies at 69**\
 `Mr. Todd’s decades-long career spanned across mediums and genres, but he was largely associated with a scary figure summoned in front of a mirror.`\
 https://nytimes.com/2024/11/09/movies/tony-todd-dead.html
