@@ -1,3 +1,15 @@
+**Saints placing Chris Olave on IR a week after being stretchered off field**\
+`After taking a hit from Panthers DB Xavier Woods in Week 9, Olave was ruled out of the game with a concussion.`\
+https://nytimes.com/athletic/5910175/2024/11/09/chris-olave-saints-injured-reserve/
+
+**What Do Trump Voters Know About the Future He Has Planned for Them?**\
+`Be careful what you wish for, Part 99.`\
+https://nytimes.com/2024/11/09/opinion/trump-voters-future-plan.html
+
+**At Least Two Dozen People Killed in Suicide Bombing in Pakistan**\
+`The Baloch Liberation Army, a banned ethnic separatist group, claimed responsibility for the attack, which occurred at a railway station in the southwestern Pakistani city of Quetta.`\
+https://nytimes.com/video/world/asia/100000009817451/pakistan-suicide-bombing.html
+
 **Roger Goodell on rumors of 2025 NFL game in Berlin: 'Believe them'**\
 `While Berlin hosting an NFL game in 2025 is a strong possibility, nothing is finalized, Goodell said.`\
 https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany-2025/
