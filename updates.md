@@ -1,3 +1,7 @@
+**Dorothy Allison, Author of ‘Bastard Out of Carolina,’ Dies at 75**\
+`She wrote lovingly and often hilariously about her harrowing childhood in a working-class Southern family, as well as about the violence and incest she suffered.`\
+https://nytimes.com/2024/11/08/books/dorothy-allison-dead.html
+
 **Vanderbilt QB Diego Pavia sues NCAA for extra year of eligibility**\
 `Pavia argues that junior college years shouldn't count against NCAA eligibility because it restricts NIL earning potential.`\
 https://nytimes.com/athletic/5909729/2024/11/08/vanderbilt-commodores-quarterback-diego-pavia-ncaa-lawsuit-eligibility/

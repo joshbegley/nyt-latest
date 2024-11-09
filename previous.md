@@ -1,3 +1,7 @@
+**Dorothy Allison, Author of ‘Bastard Out of Carolina,’ Dies at 75**\
+`She wrote lovingly and often hilariously about her harrowing childhood in a working-class Southern family, as well as about the violence and incest she suffered.`\
+https://nytimes.com/2024/11/08/books/dorothy-allison-dead.html
+
 **Vanderbilt QB Diego Pavia sues NCAA for extra year of eligibility**\
 `Pavia argues that junior college years shouldn't count against NCAA eligibility because it restricts NIL earning potential.`\
 https://nytimes.com/athletic/5909729/2024/11/08/vanderbilt-commodores-quarterback-diego-pavia-ncaa-lawsuit-eligibility/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/business/media/trumps-victory-media-outlets-expla
 **A Los Angeles leader who was involved in a racist conversation is close to being ousted.**\
 `Kevin de León, a Los Angeles councilman, was the last elected official still in office among the politicians caught on an audio recording that leaked two years ago.`\
 https://nytimes.com/live/2024/11/08/us/trump-election-news/a-los-angeles-leader-who-was-involved-in-a-racist-conversation-is-close-to-being-ousted
-
-**Read the Trump Assassination Plot Criminal Complaint**\
-`The U.S. charged three men with plotting to kill Donald J. Trump on behalf of Iran.`\
-https://nytimes.com/interactive/2024/11/08/nyregion/us-v-shakeri-et-al-complaint.html
 
