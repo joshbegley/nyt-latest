@@ -1,3 +1,7 @@
+**Why Sterling joined Arsenal and what the future holds after lack of playing time**\
+`The winger moved late in the summer window and has hardly featured but is comfortable with his role under Mikel Arteta`\
+https://nytimes.com/athletic/5908537/2024/11/09/raheem-sterling-arsenal-chelsea/
+
 **The underlap - and how Liverpool use it to potent effect**\
 `Arne Slot's side are causing havoc out wide and it is often an unheralded off-the-ball run doing the damage`\
 https://nytimes.com/athletic/5906280/2024/11/09/liverpool-arne-slot-underlapping-runs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/pageoneplus/quote-of-the-day-for-harris-star-endo
 **Seattle Police Arrest Man in Connection With Five Stabbings**\
 `Five people were injured in attacks in the city’s Chinatown-International District on Friday, the police said.`\
 https://nytimes.com/2024/11/08/us/seattle-chinatown-stabbings.html
-
-**NWSL playoffs: Orlando scores 4 goals to secure semifinal spot**\
-`The latest on the NWSL quarterfinal matches `\
-https://nytimes.com/athletic/5909759/2024/11/08/nwsl-playoffs-quarterfinal-results-2024/
 
