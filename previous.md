@@ -1,3 +1,7 @@
+**Vanderbilt QB Diego Pavia sues NCAA for extra year of eligibility**\
+`Pavia argues that junior college years shouldn't count against NCAA eligibility because it restricts NIL earning potential.`\
+https://nytimes.com/athletic/5909729/2024/11/08/vanderbilt-commodores-quarterback-diego-pavia-ncaa-lawsuit-eligibility/
+
 **After signing with Angels, Kyle Hendricks reflects on end of Cubs tenure**\
 `Hendricks joined the Angels on a one-year deal after spending the first 11 seasons of his career in Chicago.`\
 https://nytimes.com/athletic/5909703/2024/11/08/angels-kyle-hendricks-cubs-tenure/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/08/us/trump-election-news/a-los-angeles-leader-
 **Read the Trump Assassination Plot Criminal Complaint**\
 `The U.S. charged three men with plotting to kill Donald J. Trump on behalf of Iran.`\
 https://nytimes.com/interactive/2024/11/08/nyregion/us-v-shakeri-et-al-complaint.html
-
-**Inside the Federal Work Force That Trump Has Promised to Eviscerate**\
-`President-elect Donald J. Trump and his allies have pledged to strike fear in the heart of what they term “the deep state.” They have already succeeded.`\
-https://nytimes.com/2024/11/08/us/politics/trump-federal-bureaucracy.html
 

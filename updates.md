@@ -1,3 +1,7 @@
+**Vanderbilt QB Diego Pavia sues NCAA for extra year of eligibility**\
+`Pavia argues that junior college years shouldn't count against NCAA eligibility because it restricts NIL earning potential.`\
+https://nytimes.com/athletic/5909729/2024/11/08/vanderbilt-commodores-quarterback-diego-pavia-ncaa-lawsuit-eligibility/
+
 **After signing with Angels, Kyle Hendricks reflects on end of Cubs tenure**\
 `Hendricks joined the Angels on a one-year deal after spending the first 11 seasons of his career in Chicago.`\
 https://nytimes.com/athletic/5909703/2024/11/08/angels-kyle-hendricks-cubs-tenure/
