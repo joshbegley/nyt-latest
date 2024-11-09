@@ -1,3 +1,7 @@
+**Baltazar Ushca, Who Kept Andean Ice Harvesting Alive, Dies at 80**\
+`He trekked up Ecuador’s tallest mountain twice a week for six decades to hack ice off a glacier with a pickax. He is believed to have been the last of his breed.`\
+https://nytimes.com/2024/11/09/world/americas/baltazar-ushca-dead.html
+
 **Guardiola relishing challenge of ending Man City losing streak**\
 `Pep Guardiola says he is relishing the challenge of turning Manchester City&#8217;s fortunes around after suffering a fourth consecutive defeat for the first time in his managerial career.`\
 https://nytimes.com/athletic/5910496/2024/11/09/pep-guardiola-man-city-losing-streak/
