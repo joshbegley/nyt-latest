@@ -1,3 +1,7 @@
+**U.N.-Backed Panel Warns Action Needed in ‘Days, Not Weeks’ to Avert Gaza Famine**\
+`The Biden administration has set a mid-November deadline for Israel to deliver more humanitarian supplies to the enclave or face a cutoff of weapons aid.`\
+https://nytimes.com/2024/11/09/world/middleeast/un-panel-gaza-famine.html
+
 **Playing Favorites**\
 `The foods and music and culture that move us most might not be very good, but that doesn’t diminish their power to comfort and delight.`\
 https://nytimes.com/2024/11/09/briefing/playing-favorites.html
