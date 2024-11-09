@@ -1,3 +1,7 @@
+**Vinicius Jr's golden hat-trick, Ancelotti finds 'solution', injury crisis deepens**\
+`Real Madrid found the 'solutions' to their recent poor form, with a Vinicius Jr hat-trick sinking Osasuna. But more injury problems emerged.`\
+https://nytimes.com/athletic/5910184/2024/11/09/vincius-hat-trick-real-madrid-injuries/
+
 **Brighton 2 Manchester City 1: Creaky defence, Guardiola's worst run, is title slipping?**\
 `Brighton and Hove Albion beat Manchester City 2-1 to go fourth in the Premier League and put a dent in the champions' title chances.`\
 https://nytimes.com/athletic/5903868/2024/11/09/brighton-manchester-city-result-premier-league-oriley/

@@ -1,7 +1,3 @@
-**Vinicius Jr's golden hat-trick, Ancelotti finds 'solution', injury crisis deepens**\
-`Real Madrid found the 'solutions' to their recent poor form, with a Vinicius Jr hat-trick sinking Osasuna. But more injury problems emerged.`\
-https://nytimes.com/athletic/5910184/2024/11/09/vincius-hat-trick-real-madrid-injuries/
-
 **Brighton 2 Manchester City 1: Creaky defence, Guardiola's worst run, is title slipping?**\
 `Brighton and Hove Albion beat Manchester City 2-1 to go fourth in the Premier League and put a dent in the champions' title chances.`\
 https://nytimes.com/athletic/5903868/2024/11/09/brighton-manchester-city-result-premier-league-oriley/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5910006/2024/11/09/bajung-darboe-bayern-munich-tran
 **Overlooked No More: Go-won-go Mohawk, Trailblazing Indigenous Actress**\
 `In the 1880s, the only roles for Indigenous performers were laden with negative stereotypes. So Mohawk decided to write her own narratives.`\
 https://nytimes.com/2024/11/09/obituaries/gowongo-mohawk-overlooked.html
+
+**Penguins recall Tristan Jarry from AHL after 2-week stint**\
+`The Penguins called on Jarry after two weeks in the American Hockey League, where he was sent to find his game after a disastrous NHL start.`\
+https://nytimes.com/athletic/5910193/2024/11/09/tristan-jarry-penguins-recalled-nhl/
 
