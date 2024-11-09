@@ -1,3 +1,7 @@
+**Another Kirill Kaprizov 3-point game, another Wild road win in Anaheim: 5 takeaways**\
+`The Wild jumped out to a three-goal first-period lead, then were buoyed by great goaltending and a solid PK in a 5-2 win Friday night.`\
+https://nytimes.com/athletic/5909827/2024/11/09/wild-ducks-kirill-kaprizov-3-points/
+
 **Khadija Shaw and Lauren Hemp's partnership is key to Man City's hopes of success**\
 `Manchester City beat Spurs 4-0 on Friday night, with Shaw and Hemp starring for the hosts`\
 https://nytimes.com/athletic/5909683/2024/11/09/khadija-shaw-lauren-hemp-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908576/2024/11/09/maccabi-tel-aviv-fans-attacked-w
 **Why Sterling joined Arsenal and what the future holds after lack of playing time**\
 `The winger moved late in the summer window and has hardly featured but is comfortable with his role under Mikel Arteta`\
 https://nytimes.com/athletic/5908537/2024/11/09/raheem-sterling-arsenal-chelsea/
-
-**The underlap - and how Liverpool use it to potent effect**\
-`Arne Slot's side are causing havoc out wide and it is often an unheralded off-the-ball run doing the damage`\
-https://nytimes.com/athletic/5906280/2024/11/09/liverpool-arne-slot-underlapping-runs/
 
