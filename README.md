@@ -1,3 +1,7 @@
+**FEMA Fires Employee for Telling Milton Relief Workers to Skip Houses With Trump Signs**\
+`The agency said it was investigating the incident in the aftermath of the Category 3 hurricane that hit Florida in October.`\
+https://nytimes.com/2024/11/09/us/fema-trump-signs.html
+
 **Kenneth Bronstein, Who Put His Faith in Atheism, Dies at 85**\
 `The organization that he led advocated the separation of church and state, with no exceptions for holidays, currency, symbolism or blessings.`\
 https://nytimes.com/2024/11/09/nyregion/kenneth-bronstein-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany
 **Biden and Trump to Meet at White House on Wednesday**\
 `President Biden extended the invitation to his former rival as part of a longstanding tradition to help ease the transition to a new administration.`\
 https://nytimes.com/2024/11/09/us/politics/biden-trump-meeting.html
-
-**At Least Two Dozen People Killed in Suicide Bombing in Pakistan**\
-`The Baloch Liberation Army, a banned ethnic separatist group, claimed responsibility for the attack, which occurred at a railway station in the southwestern Pakistani city of Quetta.`\
-https://nytimes.com/video/world/asia/100000009817451/pakistan-suicide-bombing.html
 
