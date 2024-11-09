@@ -1,3 +1,7 @@
+**San Francisco Mayor-Elect Plans to Declare Fentanyl Emergency on Day 1**\
+`Daniel Lurie held his first news conference since Mayor London Breed conceded the mayoral race this week.`\
+https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
+
 **San Francisco Mayor-elect Plans to Declare Fentanyl Emergency on Day 1**\
 `Daniel Lurie held his first news conference since Mayor London Breed conceded the mayoral race this week.`\
 https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
