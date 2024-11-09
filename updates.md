@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Red-hot power play fuels win**\
+`After a horrendous start to the season, Toronto's power play is officially on fire with another pair of goals in a 3-1 win over Detroit.`\
+https://nytimes.com/athletic/5909791/2024/11/08/maple-leafs-red-wings-power-play/
+
 **Brush Fire in Brooklyn’s Prospect Park May Burn All Night**\
 `The fire drew almost 100 firefighters, the commissioner said. The cause was not immediately determined.`\
 https://nytimes.com/2024/11/08/nyregion/prospect-park-fire.html

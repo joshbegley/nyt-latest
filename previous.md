@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Red-hot power play fuels win**\
+`After a horrendous start to the season, Toronto's power play is officially on fire with another pair of goals in a 3-1 win over Detroit.`\
+https://nytimes.com/athletic/5909791/2024/11/08/maple-leafs-red-wings-power-play/
+
 **Brush Fire in Brooklyn’s Prospect Park May Burn All Night**\
 `The fire drew almost 100 firefighters, the commissioner said. The cause was not immediately determined.`\
 https://nytimes.com/2024/11/08/nyregion/prospect-park-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909729/2024/11/08/vanderbilt-commodores-quarterbac
 **After signing with Angels, Kyle Hendricks reflects on end of Cubs tenure**\
 `Hendricks joined the Angels on a one-year deal after spending the first 11 seasons of his career in Chicago.`\
 https://nytimes.com/athletic/5909703/2024/11/08/angels-kyle-hendricks-cubs-tenure/
-
-**Trump Weighs Key Personnel Choices, Schooled by His First-Term Experience**\
-`The president-elect held his first formal transition meetings and has been given lists of candidates, but is calling around to friends and allies for ideas.`\
-https://nytimes.com/2024/11/08/us/politics/trump-personnel-cabinet-candidates.html
 
