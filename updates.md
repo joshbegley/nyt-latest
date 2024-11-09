@@ -1,3 +1,11 @@
+**NWSL playoffs: Orlando scores four goals to secure semifinal spot**\
+`The latest on the NWSL quarterfinal matches `\
+https://nytimes.com/athletic/5909759/2024/11/08/nwsl-playoffs-quarterfinal-results-2024/
+
+**Cunningham caps off historic triple-double with game-winning layup, block**\
+`Cunningham joins Grant Hill as the only players in Pistons franchise history to record three straight triple-doubles.`\
+https://nytimes.com/athletic/5909772/2024/11/08/cade-cunningham-pistons-triple-double-block/
+
 **Maple Leafs report cards: Red-hot power play fuels win**\
 `After a horrendous start to the season, Toronto's power play is officially on fire with another pair of goals in a 3-1 win over Detroit.`\
 https://nytimes.com/athletic/5909791/2024/11/08/maple-leafs-red-wings-power-play/
