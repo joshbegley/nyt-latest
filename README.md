@@ -1,3 +1,7 @@
+**Anthony Edwards has opened the season on a Steph Curry-like shooting spree**\
+`Edwards buried 9 of 15 3-pointers on his way to 37 points Friday in Minnesota's 127-102 victory over Portland.`\
+https://nytimes.com/athletic/5907663/2024/11/09/timberwolves-trail-blazers-anthony-edwards/
+
 **Reggie Jackson announces he's leaving Astros' front office: Report**\
 `Mr. October joined the Astros as a "special advisor" before the 2021 season.`\
 https://nytimes.com/athletic/5909889/2024/11/09/reggie-jackson-astros-front-office/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906280/2024/11/09/liverpool-arne-slot-underlapping
 **Houghton spoke from the heart - why have people been so quick to judge or condemn?**\
 `The ex-England captain has been criticised for comments in her book, raising questions about what we want from our leading female athletes`\
 https://nytimes.com/athletic/5908678/2024/11/09/steph-houghton-interview-reaction-england/
-
-**Yohe's 10 observations: Penguins shut down Capitals for season's most impressive win**\
-`The Penguins earned their finest win so far, taking down the Capitals 4-2 on Friday in Washington.`\
-https://nytimes.com/athletic/5891543/2024/11/09/penguins-capitals-win-observations/
 
