@@ -1,3 +1,11 @@
+**Grizzlies' Ja Morant week to week with hip injury**\
+`Morant suffered the injury during Wednesday's game against the Lakers after landing awkwardly on a dunk attempt.`\
+https://nytimes.com/athletic/5910661/2024/11/09/grizzlies-ja-morant-injury-nba/
+
+**Takeaways: Ole Miss' Playoff hopes soar. Loss encapsulates Georgia's frustrations**\
+`Georgia lost to a team other than Alabama for the first time since 2020. Lane Kiffin beat a top-five team for the first time since 2011.`\
+https://nytimes.com/athletic/5910613/2024/11/09/ole-miss-georgia-playoff-result/
+
 **Trump Should Not Let Putin Claim Victory in Ukraine, Says NATO Official**\
 `Adm. Rob Bauer warned against any peace deal that was too favorable to Russia, arguing that it could undermine American interests.`\
 https://nytimes.com/2024/11/09/world/europe/trump-nato-putin-ukraine.html
