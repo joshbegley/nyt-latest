@@ -1,3 +1,11 @@
+**Kenneth Bronstein, Who Put His Faith in Atheism, Dies at 85**\
+`The organization that he led advocated the separation of church and state, with no exceptions for holidays, currency, symbolism or blessings.`\
+https://nytimes.com/2024/11/09/nyregion/kenneth-bronstein-dead.html
+
+**Qatar Tells Hamas Leaders They Are Unwelcome, Officials Say**\
+`Hosting exiled Hamas leaders for years, Qatar has been a key mediator in talks to end the war in Gaza. Facing deadlock, it has now sent a warning to those leaders, U.S. and Israeli officials said.`\
+https://nytimes.com/2024/11/09/world/middleeast/qatar-israel-hamas-gaza-ceasefire-talks.html
+
 **Bayern expected to sign Darboe from LAFC**\
 `Bayern Munich are expected to complete a deal to sign 18-year-old American forward Bajung Darboe from LAFC.`\
 https://nytimes.com/athletic/5910006/2024/11/09/bajung-darboe-bayern-munich-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/09/us/politics/biden-trump-meeting.html
 **At Least Two Dozen People Killed in Suicide Bombing in Pakistan**\
 `The Baloch Liberation Army, a banned ethnic separatist group, claimed responsibility for the attack, which occurred at a railway station in the southwestern Pakistani city of Quetta.`\
 https://nytimes.com/video/world/asia/100000009817451/pakistan-suicide-bombing.html
-
-**Wrexham 1 Mansfield 0: History in the making? And James McClean is at home in Wales**\
-`Wrexham managed a 1-0 win over Mansfield Town on Saturday afternoon to pick up three crucial points`\
-https://nytimes.com/athletic/5908463/2024/11/09/wrexham-mansfield-report-analysis/
-
-**Auburn basketball team's plane grounded after in-flight scuffle**\
-`The team took off on another flight to Houston on Friday night, ESPN reported.`\
-https://nytimes.com/athletic/5909812/2024/11/09/auburn-basketball-team-flight-grounded-altercation/
 
