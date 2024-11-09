@@ -1,3 +1,7 @@
+**Roger Goodell on rumors of 2025 NFL game in Berlin: 'Believe them'**\
+`While Berlin hosting an NFL game in 2025 is a strong possibility, nothing is finalized, Goodell said.`\
+https://nytimes.com/athletic/5910113/2024/11/09/roger-goodell-nfl-berlin-germany-2025/
+
 **Biden and Trump to Meet at White House on Wednesday**\
 `President Biden extended the invitation to his former rival as part of a longstanding tradition to help ease the transition to a new administration.`\
 https://nytimes.com/2024/11/09/us/politics/biden-trump-meeting.html
