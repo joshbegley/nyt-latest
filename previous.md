@@ -1,3 +1,7 @@
+**Brush Fire in Brooklyn’s Prospect Park May Burn All Night**\
+`The fire drew almost 100 firefighters, the commissioner said. The cause was not immediately determined.`\
+https://nytimes.com/2024/11/08/nyregion/prospect-park-fire.html
+
 **Spill**\
 `Chandi Deitmer and Hoang-Kim Vu’s Saturday collaboration might make solvers take a tumble or two.`\
 https://nytimes.com/2024/11/08/crosswords/daily-puzzle-2024-11-09.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909703/2024/11/08/angels-kyle-hendricks-cubs-tenur
 **Trump Weighs Key Personnel Choices, Schooled by His First-Term Experience**\
 `The president-elect held his first formal transition meetings and has been given lists of candidates, but is calling around to friends and allies for ideas.`\
 https://nytimes.com/2024/11/08/us/politics/trump-personnel-cabinet-candidates.html
-
-**Walz Offers Hope to Minnesota in Concession Speech**\
-`Gov. Tim Walz, the former vice presidential candidate, gave a concession speech in his home state on Friday, in which he vowed to “stand ready to stand up and fight.”`\
-https://nytimes.com/video/us/elections/100000009817195/walz-concession-remarks.html
 

@@ -1,3 +1,7 @@
+**Brush Fire in Brooklyn’s Prospect Park May Burn All Night**\
+`The fire drew almost 100 firefighters, the commissioner said. The cause was not immediately determined.`\
+https://nytimes.com/2024/11/08/nyregion/prospect-park-fire.html
+
 **Spill**\
 `Chandi Deitmer and Hoang-Kim Vu’s Saturday collaboration might make solvers take a tumble or two.`\
 https://nytimes.com/2024/11/08/crosswords/daily-puzzle-2024-11-09.html
