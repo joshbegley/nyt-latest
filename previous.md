@@ -1,3 +1,7 @@
+**At Women’s March Event, Organizers Say They Are Preparing a ‘Comeback Tour’**\
+`At a demonstration on Saturday, the crowd was small and enthusiasm was lacking. But organizers are planning a big march ahead of the inauguration.`\
+https://nytimes.com/2024/11/09/us/politics/womens-march-trump-future.html
+
 **Emery: Aston Villa denied 'clear penalty' in Liverpool loss**\
 `Unai Emery says Aston Villa were denied a “clear penalty” in the team&#8217;s 2-0 defeat to Liverpool.`\
 https://nytimes.com/athletic/5910638/2024/11/09/unai-emery-aston-villa-penalty-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/movies/tony-todd-dead.html
 **The Briefing: Liverpool 2 Aston Villa 0 - Salah stars and Kelleher makes key saves as Slot's side go five points clear**\
 `Liverpool are five points clear of Man City at the top of the Premier League after beating Villa. Gregg Evans analyses the talking points`\
 https://nytimes.com/athletic/5903869/2024/11/09/liverpool-top-table-villa-salah-slot-kelleher/
-
-**Days after Billy Napier vote of confidence, Florida gets owned by rested Texas**\
-`No.`\
-https://nytimes.com/athletic/5910519/2024/11/09/texas-florida-football-analysis-score/
 

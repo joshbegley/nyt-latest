@@ -1,3 +1,7 @@
+**At Women’s March Event, Organizers Say They Are Preparing a ‘Comeback Tour’**\
+`At a demonstration on Saturday, the crowd was small and enthusiasm was lacking. But organizers are planning a big march ahead of the inauguration.`\
+https://nytimes.com/2024/11/09/us/politics/womens-march-trump-future.html
+
 **Emery: Aston Villa denied 'clear penalty' in Liverpool loss**\
 `Unai Emery says Aston Villa were denied a “clear penalty” in the team&#8217;s 2-0 defeat to Liverpool.`\
 https://nytimes.com/athletic/5910638/2024/11/09/unai-emery-aston-villa-penalty-liverpool/
