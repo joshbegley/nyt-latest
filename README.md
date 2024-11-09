@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-project
 `Cam Ward engineered comeback wins over Virginia Tech, Cal and Duke earlier this season, but the Canes came up short against Georgia Tech.`\
 https://nytimes.com/athletic/5910372/2024/11/09/miami-georgia-tech-college-football-cameron-ward/
 
-**Ohio State takeaways: Purdue shutout a chance to experiment as Jeremiah Smith set records**\
+**Ohio State takeaways: Defense experiments in Purdue shutout as Jeremiah Smith sets records**\
 `No. 2 Ohio State easily dominated Purdue 45-0 on Saturday behind a well-rounded effort that included Smith breaking freshman records.`\
 https://nytimes.com/athletic/5910329/2024/11/09/ohio-state-purdue-score-jeremiah-smith/
 
