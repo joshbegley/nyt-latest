@@ -1,3 +1,11 @@
+**Corrections: Nov. 9, 2024**\
+`Corrections that appeared in print on Saturday, Nov. 9, 2024.`\
+https://nytimes.com/2024/11/08/pageoneplus/corrections-nov-9-2024.html
+
+**Residents Return to Find Homes Reduced to Rubble After California Fire**\
+`The Mountain fire destroyed more than 130 structures in Ventura County and was 14 percent contained. “It’s just devastating,” one resident said.`\
+https://nytimes.com/2024/11/08/us/california-mountain-fire-residents-return.html
+
 **Dorothy Allison, Author of ‘Bastard Out of Carolina,’ Dies at 75**\
 `She wrote lovingly and often hilariously about her harrowing childhood in a working-class Southern family, as well as about the violence and incest she suffered.`\
 https://nytimes.com/2024/11/08/books/dorothy-allison-dead.html
