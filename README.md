@@ -1,40 +1,40 @@
-**Dutch Police Hold 4 People Over Antisemitic Attacks on Soccer Fans**\
-`Physical and verbal violence erupted around a soccer match between an Israeli team and a Dutch team in Amsterdam on Thursday.`\
-https://nytimes.com/2024/11/09/world/europe/amsterdam-israel-soccer-attacks.html
+**Democrats and the Case of Mistaken Identity Politics**\
+`The post mortem is a wake for woke.`\
+https://nytimes.com/2024/11/09/opinion/democrats-identity-politics.html
 
-**Mourinho fined and banned following criticism of Turkish refereeing**\
-`Jose Mourinho has been fined and must serve a one-match ban following his reaction to Fenerbahce&#8217;s win over Trabzonspor.`\
-https://nytimes.com/athletic/5909993/2024/11/09/jose-mourinho-ban-fenerbahce-referee/
+**Mike Johnson May Win the House but Lose His Dignity**\
+`He may be about to star in a new role as Trump’s legislative puppet.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/johnson-house-speaker-trump
 
-**U.N.-Backed Panel Warns Action Needed in ‘Days, Not Weeks’ to Avert Gaza Famine**\
-`The Biden administration has set a mid-November deadline for Israel to deliver more humanitarian supplies to the enclave or face a cutoff of weapons aid.`\
-https://nytimes.com/2024/11/09/world/middleeast/un-panel-gaza-famine.html
+**How Republicans Can Avoid Learning the Wrong Lessons From Their Victory**\
+`Electoral success has a thousand fathers, each with his own agenda.`\
+https://nytimes.com/2024/11/09/opinion/trump-republicans-presidency-goals.html
 
-**Playing Favorites**\
-`The foods and music and culture that move us most might not be very good, but that doesn’t diminish their power to comfort and delight.`\
-https://nytimes.com/2024/11/09/briefing/playing-favorites.html
+**The Elites Had It Coming**\
+`Democrats got exactly what they set out to get, and now here we are.`\
+https://nytimes.com/2024/11/09/opinion/democrats-trump-elites-centrism.html
 
-**How to watch Bronny James' G League debut Saturday**\
-`James and the South Bay Lakers will face the Salt Lake City Stars in El Segundo, Calif.`\
-https://nytimes.com/athletic/5909664/2024/11/09/bronny-james-g-league-debut-how-to-watch-time/
+**This Is All Biden’s Fault**\
+`Biden too often could not find the best way to help Democrats win.`\
+https://nytimes.com/2024/11/09/opinion/joe-biden-kamala-harris-trump.html
 
-**One telling stat for every Blackhawks player**\
-`Let’s take a look at all the smaller stats — good, bad and indifferent — that make up the Blackhawks' 5-9-1 record.`\
-https://nytimes.com/athletic/5909084/2024/11/09/blackhawks-stats/
+**NHL predictions 2.0: A new Cup favorite, surprise Hart Trophy front-runner and more**\
+`A month into the season, our staff's revised picks for Cup winner, dark horse, biggest disappointment, awards, full playoff fields and more.`\
+https://nytimes.com/athletic/5902047/2024/11/09/nhl-season-predictions-november-stanley-cup-hart-trophy/
 
-**Canada Sends Mixed Signals With TikTok Shutdown Order**\
-`The industry minister closed TikTok’s offices in Toronto and Vancouver over security concerns, but Canadians can still download and use the app.`\
-https://nytimes.com/2024/11/09/world/canada/canada-tiktok-china-security.html
+**Scenes From America on the Edge, Partying and Despairing**\
+`Election night and the day after, 2024.`\
+https://nytimes.com/2024/11/09/opinion/photos-harris-trump-party.html
 
-**The Connections Companion No. 518**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 10, 2024.`\
-https://nytimes.com/2024/11/09/crosswords/connections-companion-518.html
+**Democrats Need Working-Class Voters. Maybe Now They’ll Act Like It.**\
+`Democrats can compete if they focus more on minimum wages and child care than pronouns and purity.`\
+https://nytimes.com/2024/11/09/opinion/democrats-working-class.html
 
-**Wordle Review No. 1,240**\
-`Scroll down for hints and conversation about the puzzle for Nov. 10, 2024.`\
-https://nytimes.com/2024/11/09/crosswords/wordle-review-1240.html
+**A.I. Companions and the Mental Health Risks for the Young**\
+`Readers discuss an article about a teenager’s suicide.`\
+https://nytimes.com/2024/11/09/opinion/ai-mental-health-teens.html
 
-**Train Station Suicide Bombing Leaves Dozens Dead or Wounded in Pakistan**\
-`A banned ethnic separatist group in a restive province claimed responsibility for the deadly attack in Quetta, the provincial capital.`\
-https://nytimes.com/2024/11/09/world/asia/pakistan-suicide-bombing.html
+**The Book That Predicted the 2024 Election**\
+`The G.O.P. pollster Patrick Ruffini’s book “Party of the People” outlined the realignments reflected in this year’s election results.`\
+https://nytimes.com/2024/11/09/opinion/ezra-klein-podcast-patrick-ruffini.html
 
