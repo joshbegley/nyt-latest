@@ -10,7 +10,7 @@ https://nytimes.com/2024/11/09/opinion/democrats-identity-politics.html
 `He may be about to star in a new role as Trump’s legislative puppet.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/johnson-house-speaker-trump
 
-**How Republicans Can Avoid Learning the Wrong Lessons From Their Victory**\
+**We’re About to Find Out Who Trump’s Victory Belongs To**\
 `Electoral success has a thousand fathers, each with his own agenda.`\
 https://nytimes.com/2024/11/09/opinion/trump-republicans-presidency-goals.html
 
