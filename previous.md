@@ -1,5 +1,13 @@
-**Roki Sasaki, the highly coveted Japanese ace, will be posted to MLB**\
-`Sasaki, 23, is the No. 3 ranked player on The Athletic's Top 40 MLB free agent big board, behind only Juan Soto and Corbin Burnes.`\
+**Bacon Defeats Vargas in Nebraska, Holding a Key House Seat for Republicans**\
+`The victory of the four-term Republican, who has resisted his party’s veer to the right, dashed Democratic hopes of flipping a critical district.`\
+https://nytimes.com/2024/11/09/us/elections/nebraska-house-bacon-vargas.html
+
+**'Did we compete today? No': Giannis expresses frustration after another Bucks loss**\
+`Antetokounmpo, after the Bucks were listless against the Knicks on Friday: "If you’re not frustrated with losing, get the f--- out of here."`\
+https://nytimes.com/athletic/5909885/2024/11/09/giannis-antetokounmpo-bucks-knicks/
+
+**Roki Sasaki, coveted Japanese ace, will be made available to MLB teams**\
+`Sasaki, 23, is the No. 3 ranked player on The Athletic's top 40 MLB free agent big board, behind only Juan Soto and Corbin Burnes.`\
 https://nytimes.com/athletic/5910075/2024/11/09/roki-sasaki-pitcher-posted-mlb/
 
 **Militao leaves Real Madrid vs Osasuna on stretcher after injury**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909397/2024/11/09/cavs-10-0-start/
 **Steve Kerr believes Kenny Atkinson has made Cavs 'clearly one of the best teams in the league'**\
 `The Warriors began winning championships after Kerr inherited a really good roster and made it great. Could that be starting in Cleveland?`\
 https://nytimes.com/athletic/5909901/2024/11/09/cavs-warriors-steve-kerr-kenny-atkinson/
-
-**Democrats and the Case of Mistaken Identity Politics**\
-`The post mortem is a wake for woke.`\
-https://nytimes.com/2024/11/09/opinion/democrats-identity-politics.html
-
-**Mike Johnson May Win the House but Lose His Dignity**\
-`He may be about to star in a new role as Trump’s legislative puppet.`\
-https://nytimes.com/live/2024/11/07/opinion/thepoint/johnson-house-speaker-trump
 
