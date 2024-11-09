@@ -1,3 +1,7 @@
+**Lakers' bold starting lineup change immediately provides positive returns**\
+`The Lakers have been concerned about benching D’Angelo Russell. JJ Redick ultimately took the risk — and much earlier than expected.`\
+https://nytimes.com/athletic/5909783/2024/11/09/lakers-starting-lineup-dangelo-russell-cam-reddish/
+
 **Will the Leafs trade for a 3C? Kaprizov contract over/under? Will Daly succeed Bettman? Ask CJ**\
 `Also: Will the Jets go all in to try to solve their attendance issues? Will Crosby hit 1,700 points before Ovechkin hits 895 goals?`\
 https://nytimes.com/athletic/5904864/2024/11/09/maple-leafs-trade-kaprizov-contract-daly-bettman/
