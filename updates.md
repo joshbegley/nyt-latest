@@ -1,3 +1,7 @@
+**Two Militia Founders Are Convicted of Plot to Kill Federal Agents**\
+`“We were going out huntin’,” one of the men said in a video before a planned trip to the Mexico border, where they intended to shoot at immigrants and officials who might stop them, prosecutors said.`\
+https://nytimes.com/2024/11/09/us/militia-border-convictions.html
+
 **Jets achieve best start in NHL history at 14-1-0**\
 `The Jets are off to the best 15-game start in NHL history, winning 14 of their first 15 games to build a record of 14-1-0.`\
 https://nytimes.com/athletic/5909152/2024/11/09/winnipeg-jets-record-start/
