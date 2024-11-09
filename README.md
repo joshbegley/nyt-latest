@@ -1,3 +1,15 @@
+**Trump Weighs Key Personnel Choices, Schooled by His First-Term Experience**\
+`The president-elect held his first formal transition meetings and has been given lists of candidates, but is calling around to friends and allies for ideas.`\
+https://nytimes.com/2024/11/08/us/politics/trump-personnel-cabinet-candidates.html
+
+**Walz Offers Hope to Minnesota in Concession Speech**\
+`Gov. Tim Walz, the former vice presidential candidate, gave a concession speech in his home state on Friday, in which he vowed to “stand ready to stand up and fight.”`\
+https://nytimes.com/video/us/elections/100000009817195/walz-concession-remarks.html
+
+**As Trump’s New Term Looms, Hochul Considers Reviving Congestion Pricing**\
+`Gov. Kathy Hochul, facing pressure from supporters of the contentious tolling plan, is said to be exploring options for adopting it in some form.`\
+https://nytimes.com/2024/11/08/nyregion/trump-congestion-pricing-nyc.html
+
 **San Francisco Mayor-Elect Plans to Declare Fentanyl Emergency on Day 1**\
 `Daniel Lurie held his first news conference since Mayor London Breed conceded the mayoral race this week.`\
 https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/08/us/politics/trump-federal-bureaucracy.html
 **Kings' Tanner Jeannot suspended for 3 games following illegal check**\
 `Jeannot was assessed a match penalty and ejected from Thursday's game against the Canucks for an illegal check to Brock Boeser.`\
 https://nytimes.com/athletic/5909335/2024/11/08/tanner-jeannot-los-angeles-kings-suspension-nhl/
-
-**Disillusioned Young Voters Focus on ‘Community’**\
-`Mutual aid, grass-roots organizing and a belief that people need to take care of each other have been popular topics on social media.`\
-https://nytimes.com/2024/11/08/style/community-organizing.html
-
-**Cowboys to place Prescott on IR, timetable uncertain, says EVP Jones**\
-`“Right now, I don’t think anyone knows whether it will be four weeks, six weeks or the season," Cowboys EVP Stephen Jones said Friday.`\
-https://nytimes.com/athletic/5909541/2024/11/08/cowboys-dak-prescott-injured-reserve-timetable-uncertain/
-
-**Trump has spoken with at least seven world leaders since his election.**\
-`By Eve Sampson`\
-https://nytimes.com/live/2024/11/08/us/trump-election-news/trump-world-leaders-calls
 
