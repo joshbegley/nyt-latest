@@ -1,3 +1,7 @@
+**Quote of the Day: For Harris, Star Endorsements Didn’t Shine as They Used To**\
+`Quotation of the Day for Saturday, November 9, 2024`\
+https://nytimes.com/2024/11/08/pageoneplus/quote-of-the-day-for-harris-star-endorsements-didnt-shine-as-they-used-to.html
+
 **Seattle Police Arrest Man in Connection With Five Stabbings**\
 `Five people were injured in attacks in the city’s Chinatown-International District on Friday, the police said.`\
 https://nytimes.com/2024/11/08/us/seattle-chinatown-stabbings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909699/2024/11/08/canucks-kraken-daniel-sprong-tra
 **The Long Global Trail of Resentment Behind Trump’s Resurrection**\
 `Disillusionment with the world that emerged from the Cold War has fueled a long-gathering revolt against the established order.`\
 https://nytimes.com/2024/11/08/world/americas/trump-foreign-policy-assessment.html
-
-**Corrections: Nov. 9, 2024**\
-`Corrections that appeared in print on Saturday, Nov. 9, 2024.`\
-https://nytimes.com/2024/11/08/pageoneplus/corrections-nov-9-2024.html
 
