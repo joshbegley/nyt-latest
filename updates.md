@@ -1,3 +1,11 @@
+**Reggie Jackson announces he's leaving Astros' front office: Report**\
+`Mr. October joined the Astros as a "special advisor" before the 2021 season.`\
+https://nytimes.com/athletic/5909889/2024/11/09/reggie-jackson-astros-front-office/
+
+**Jacky Rosen Holds Off Sam Brown in Nevada, Keeping a Democratic Senate Seat**\
+`Ms. Rosen, the low-key incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
+https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
+
 **Trump Wins Nevada, Flipping a Battleground State**\
 `President-elect Donald J. Trump’s victory in Nevada was the first for Republicans in a presidential election since 2004.`\
 https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html

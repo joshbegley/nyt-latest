@@ -1,3 +1,7 @@
+**Reggie Jackson announces he's leaving Astros' front office: Report**\
+`Mr. October joined the Astros as a "special advisor" before the 2021 season.`\
+https://nytimes.com/athletic/5909889/2024/11/09/reggie-jackson-astros-front-office/
+
 **Trump Wins Nevada, Flipping a Battleground State**\
 `President-elect Donald J. Trump’s victory in Nevada was the first for Republicans in a presidential election since 2004.`\
 https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html
@@ -6,8 +10,8 @@ https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html
 `Bill Self finally has the pieces to play chess late in games, allowing him to save his best for last in a big November matchup against UNC.`\
 https://nytimes.com/athletic/5909852/2024/11/09/kansas-holds-off-unc-depth-shooting/
 
-**Jacky Rosen Narrowly Defeats Sam Brown in Nevada’s Senate Race**\
-`Ms. Rosen, the low-key Democratic incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
+**Jacky Rosen Holds Off Sam Brown in Nevada, Keeping a Democratic Senate Seat**\
+`Ms. Rosen, the low-key incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
 https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
 
 **How can Amorim get the best out of Garnacho at Man Utd?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908678/2024/11/09/steph-houghton-interview-reactio
 **Yohe's 10 observations: Penguins shut down Capitals for season's most impressive win**\
 `The Penguins earned their finest win so far, taking down the Capitals 4-2 on Friday in Washington.`\
 https://nytimes.com/athletic/5891543/2024/11/09/penguins-capitals-win-observations/
-
-**Smile, Flatter and Barter: How the World Is Prepping for Trump Part II**\
-`Foreign leaders have rushed to ingratiate themselves with Donald J. Trump in recent days, nervously recalling the clashes, insults and feuds of his first presidency.`\
-https://nytimes.com/2024/11/09/world/europe/trump-presidency-global-reaction.html
 
