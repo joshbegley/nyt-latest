@@ -1,3 +1,7 @@
+**Roki Sasaki, the highly coveted Japanese ace, will be posted to MLB**\
+`Sasaki, 23, is the No. 3 ranked player on The Athletic's Top 40 MLB free agent big board, behind only Juan Soto and Corbin Burnes.`\
+https://nytimes.com/athletic/5910075/2024/11/09/roki-sasaki-pitcher-posted-mlb/
+
 **Militao leaves Real Madrid vs Osasuna on stretcher after injury**\
 `Eder Militao left Real Madrid&#8217;s La Liga game with Osasuna on Saturday on a stretcher after suffering what appeared to be a serious knee injury.`\
 https://nytimes.com/athletic/5910067/2024/11/09/eder-militao-injury-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/opinion/democrats-identity-politics.html
 **Mike Johnson May Win the House but Lose His Dignity**\
 `He may be about to star in a new role as Trump’s legislative puppet.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/johnson-house-speaker-trump
-
-**We’re About to Find Out Who Trump’s Victory Belongs To**\
-`Electoral success has a thousand fathers, each with his own agenda.`\
-https://nytimes.com/2024/11/09/opinion/trump-republicans-presidency-goals.html
 

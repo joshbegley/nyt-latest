@@ -1,3 +1,7 @@
+**Roki Sasaki, the highly coveted Japanese ace, will be posted to MLB**\
+`Sasaki, 23, is the No. 3 ranked player on The Athletic's Top 40 MLB free agent big board, behind only Juan Soto and Corbin Burnes.`\
+https://nytimes.com/athletic/5910075/2024/11/09/roki-sasaki-pitcher-posted-mlb/
+
 **Militao leaves Real Madrid vs Osasuna on stretcher after injury**\
 `Eder Militao left Real Madrid&#8217;s La Liga game with Osasuna on Saturday on a stretcher after suffering what appeared to be a serious knee injury.`\
 https://nytimes.com/athletic/5910067/2024/11/09/eder-militao-injury-real-madrid/
