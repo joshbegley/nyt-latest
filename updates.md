@@ -1,3 +1,11 @@
+**Democrats Consider an Autopsy, but Who’s the Coroner?**\
+`The Democratic Party agrees it needs to figure out what went wrong. The question is how.`\
+https://nytimes.com/2024/11/08/us/politics/harris-trump-democrats-election.html
+
+**Canucks trade Daniel Sprong to Kraken for future considerations**\
+`The 27-year-old forward's Canucks tenure ended after just nine appearances.`\
+https://nytimes.com/athletic/5909699/2024/11/08/canucks-kraken-daniel-sprong-trade/
+
 **The Long Global Trail of Resentment Behind Trump’s Resurrection**\
 `Disillusionment with the world that emerged from the Cold War has fueled a long-gathering revolt against the established order.`\
 https://nytimes.com/2024/11/08/world/americas/trump-foreign-policy-assessment.html
