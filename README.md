@@ -10,8 +10,8 @@ https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html
 `Bill Self finally has the pieces to play chess late in games, allowing him to save his best for last in a big November matchup against UNC.`\
 https://nytimes.com/athletic/5909852/2024/11/09/kansas-holds-off-unc-depth-shooting/
 
-**Jacky Rosen Narrowly Defeats Sam Brown in Nevada’s Senate Race**\
-`Ms. Rosen, the low-key Democratic incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
+**Jacky Rosen Holds Off Sam Brown in Nevada, Keeping a Democratic Senate Seat**\
+`Ms. Rosen, the low-key incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
 https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
 
 **How can Amorim get the best out of Garnacho at Man Utd?**\
