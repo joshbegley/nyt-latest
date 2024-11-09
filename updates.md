@@ -1,3 +1,7 @@
+**Dutch Police Hold 4 People Over Antisemitic Attacks on Soccer Fans**\
+`Physical and verbal violence erupted around a soccer match between an Israeli team and a Dutch team in Amsterdam on Thursday.`\
+https://nytimes.com/2024/11/09/world/europe/amsterdam-israel-soccer-attacks.html
+
 **Mourinho fined and banned following criticism of Turkish refereeing**\
 `Jose Mourinho has been fined and must serve a one-match ban following his reaction to Fenerbahce&#8217;s win over Trabzonspor.`\
 https://nytimes.com/athletic/5909993/2024/11/09/jose-mourinho-ban-fenerbahce-referee/
