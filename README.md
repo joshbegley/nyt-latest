@@ -1,3 +1,7 @@
+**The Long Global Trail of Resentment Behind Trump’s Resurrection**\
+`Disillusionment with the world that emerged from the Cold War has fueled a long-gathering revolt against the established order.`\
+https://nytimes.com/2024/11/08/world/americas/trump-foreign-policy-assessment.html
+
 **Corrections: Nov. 9, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 9, 2024.`\
 https://nytimes.com/2024/11/08/pageoneplus/corrections-nov-9-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.
 **Residents Return to Find Homes Reduced to Rubble After California Fire**\
 `The Mountain fire has torn through more than 20,000 acres and destroyed more than 130 structures in Ventura County. “It’s just devastating,” one resident said.`\
 https://nytimes.com/2024/11/08/us/california-mountain-fire-residents-return.html
-
-**How Media Outlets on the Right and Left Explained Trump’s Win**\
-`Media outlets on the right said Mr. Trump won because of the left’s embrace of what they called extreme political views. Left-leaning outlets offered a broader variety of explanations.`\
-https://nytimes.com/2024/11/08/business/media/trumps-victory-media-outlets-explain.html
 
