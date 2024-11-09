@@ -1,3 +1,7 @@
+**Auburn basketball team's plane grounded after in-flight scuffle**\
+`The team took off on another flight to Houston on Friday night, ESPN reported.`\
+https://nytimes.com/athletic/5909812/2024/11/09/auburn-basketball-team-flight-grounded-altercation/
+
 **Easy Hand-Pulled Noodles (With Video!)**\
 `This wonderfully doable recipe from Vivian Chan-Tam is a fun bit of kitchen craft time.`\
 https://nytimes.com/2024/11/09/dining/easy-hand-pulled-noodles-with-video.html
