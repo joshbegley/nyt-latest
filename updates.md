@@ -1,3 +1,11 @@
+**Alexander-Arnold likely out of England squad after injury - Arne Slot**\
+`Arne Slot says it’s unlikely Trent Alexander-Arnold will feature for England during the international break after being forced off early into Liverpool’s 2-0 win over Aston Villa.`\
+https://nytimes.com/athletic/5910408/2024/11/09/trent-alexander-arnold-liverpool-injury-update/
+
+**Teoscar Hernández wants to stay with Dodgers, though 4 other teams have interest**\
+`Hernández, The Athletic's No. 11 ranked free agent, is coming off a World Series run and one of the best seasons of his career.`\
+https://nytimes.com/athletic/5910641/2024/11/09/teoscar-hernandez-free-agency-dodgers/
+
 **From Start to Finish**\
 `Sam Ezersky’s Sunday puzzle flips the script.`\
 https://nytimes.com/2024/11/09/crosswords/daily-puzzle-2024-11-10.html

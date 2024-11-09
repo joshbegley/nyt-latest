@@ -1,3 +1,11 @@
+**Alexander-Arnold likely out of England squad after injury - Arne Slot**\
+`Arne Slot says it’s unlikely Trent Alexander-Arnold will feature for England during the international break after being forced off early into Liverpool’s 2-0 win over Aston Villa.`\
+https://nytimes.com/athletic/5910408/2024/11/09/trent-alexander-arnold-liverpool-injury-update/
+
+**Teoscar Hernández wants to stay with Dodgers, though 4 other teams have interest**\
+`Hernández, The Athletic's No. 11 ranked free agent, is coming off a World Series run and one of the best seasons of his career.`\
+https://nytimes.com/athletic/5910641/2024/11/09/teoscar-hernandez-free-agency-dodgers/
+
 **From Start to Finish**\
 `Sam Ezersky’s Sunday puzzle flips the script.`\
 https://nytimes.com/2024/11/09/crosswords/daily-puzzle-2024-11-10.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910519/2024/11/09/texas-florida-football-analysis-
 **Christopher Bell says he was 'cheated' out of spot in NASCAR championship**\
 `“This has been one of the hardest things I have had to go through as a race car driver,” Bell said. “I believe cheated is the right word."`\
 https://nytimes.com/athletic/5910434/2024/11/09/christopher-bell-nascar-championship-chevrolet-comments/
-
-**College Football Playoff 2024 projections: Predicting the bracket with Week 11 underway**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
-
-**Miami’s magic runs out at Georgia Tech. Can Canes still make College Football Playoff?**\
-`Cam Ward engineered comeback wins over Virginia Tech, Cal and Duke earlier this season, but the Canes came up short against Georgia Tech.`\
-https://nytimes.com/athletic/5910372/2024/11/09/miami-georgia-tech-college-football-cameron-ward/
 
