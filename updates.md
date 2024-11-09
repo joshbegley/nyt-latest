@@ -1,3 +1,11 @@
+**Kenneth Bronstein, Who Put His Faith in Atheism, Dies at 85**\
+`The organization that he led advocated the separation of church and state, with no exceptions for holidays, currency, symbolism or blessings.`\
+https://nytimes.com/2024/11/09/nyregion/kenneth-bronstein-dead.html
+
+**Qatar Tells Hamas Leaders They Are Unwelcome, Officials Say**\
+`Hosting exiled Hamas leaders for years, Qatar has been a key mediator in talks to end the war in Gaza. Facing deadlock, it has now sent a warning to those leaders, U.S. and Israeli officials said.`\
+https://nytimes.com/2024/11/09/world/middleeast/qatar-israel-hamas-gaza-ceasefire-talks.html
+
 **Bayern expected to sign Darboe from LAFC**\
 `Bayern Munich are expected to complete a deal to sign 18-year-old American forward Bajung Darboe from LAFC.`\
 https://nytimes.com/athletic/5910006/2024/11/09/bajung-darboe-bayern-munich-transfer/
