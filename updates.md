@@ -1,3 +1,7 @@
+**Congestion Pricing Will Help New York Democrats Show They Can Govern**\
+`But time is running out to do it before Trump becomes president.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/congestion-pricing-hochul-trump
+
 **Smoky Smell Engulfs New York City After Fires in Brooklyn and New Jersey**\
 `New Yorkers were hit with an unsettling smell on Saturday morning after fires broke out on Friday in Prospect Park and across the Hudson River.`\
 https://nytimes.com/2024/11/09/nyregion/fire-smoke-nj-prospect-park-brooklyn.html
