@@ -30,8 +30,8 @@ https://nytimes.com/2024/11/09/us/fema-trump-signs.html
 `The organization that he led advocated the separation of church and state, with no exceptions for holidays, currency, symbolism or blessings.`\
 https://nytimes.com/2024/11/09/nyregion/kenneth-bronstein-dead.html
 
-**Qatar Tells Hamas Leaders They Are Unwelcome, Officials Say**\
-`Hosting exiled Hamas leaders for years, Qatar has been a key mediator in talks to end the war in Gaza. Facing deadlock, it has now sent a warning to those leaders, U.S. and Israeli officials said.`\
+**Qatar Pauses Role as Mediator in Gaza Cease-Fire Talks, Citing Deadlock**\
+`The Qatari Foreign Ministry announced it had stepped back from talks, saying it would resume once Israel and Hamas “show willingness and seriousness.”`\
 https://nytimes.com/2024/11/09/world/middleeast/qatar-israel-hamas-gaza-ceasefire-talks.html
 
 **Bayern expected to sign Darboe from LAFC**\

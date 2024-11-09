@@ -1,3 +1,7 @@
+**Qatar Pauses Role as Mediator in Gaza Cease-Fire Talks, Citing Deadlock**\
+`The Qatari Foreign Ministry announced it had stepped back from talks, saying it would resume once Israel and Hamas “show willingness and seriousness.”`\
+https://nytimes.com/2024/11/09/world/middleeast/qatar-israel-hamas-gaza-ceasefire-talks.html
+
 **Pelicans' Zion Williamson out indefinitely with hamstring strain**\
 `New Orleans' disappointing start is partially due to Williamson, Dejounte Murray, CJ McCollum and others missing time due to injury.`\
 https://nytimes.com/athletic/5910309/2024/11/09/zion-williamson-injury-new-orleans-pelicans/
