@@ -1,3 +1,7 @@
+**FEMA Fires Employee for Telling Milton Relief Workers to Skip Houses With Trump Signs**\
+`The agency said it was investigating the incident in the aftermath of the Category 3 hurricane that hit Florida in October.`\
+https://nytimes.com/2024/11/09/us/fema-trump-signs.html
+
 **Kenneth Bronstein, Who Put His Faith in Atheism, Dies at 85**\
 `The organization that he led advocated the separation of church and state, with no exceptions for holidays, currency, symbolism or blessings.`\
 https://nytimes.com/2024/11/09/nyregion/kenneth-bronstein-dead.html
