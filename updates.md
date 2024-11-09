@@ -1,3 +1,15 @@
+**Trump Weighs Key Personnel Choices, Schooled by His First-Term Experience**\
+`The president-elect held his first formal transition meetings and has been given lists of candidates, but is calling around to friends and allies for ideas.`\
+https://nytimes.com/2024/11/08/us/politics/trump-personnel-cabinet-candidates.html
+
+**Walz Offers Hope to Minnesota in Concession Speech**\
+`Gov. Tim Walz, the former vice presidential candidate, gave a concession speech in his home state on Friday, in which he vowed to “stand ready to stand up and fight.”`\
+https://nytimes.com/video/us/elections/100000009817195/walz-concession-remarks.html
+
+**As Trump’s New Term Looms, Hochul Considers Reviving Congestion Pricing**\
+`Gov. Kathy Hochul, facing pressure from supporters of the contentious tolling plan, is said to be exploring options for adopting it in some form.`\
+https://nytimes.com/2024/11/08/nyregion/trump-congestion-pricing-nyc.html
+
 **San Francisco Mayor-Elect Plans to Declare Fentanyl Emergency on Day 1**\
 `Daniel Lurie held his first news conference since Mayor London Breed conceded the mayoral race this week.`\
 https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
