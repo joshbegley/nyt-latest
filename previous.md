@@ -1,3 +1,7 @@
+**Emery: Aston Villa denied 'clear penalty' in Liverpool loss**\
+`Unai Emery says Aston Villa were denied a “clear penalty” in the team&#8217;s 2-0 defeat to Liverpool.`\
+https://nytimes.com/athletic/5910638/2024/11/09/unai-emery-aston-villa-penalty-liverpool/
+
 **Alexander-Arnold likely out of England squad after injury - Arne Slot**\
 `Arne Slot says it’s unlikely Trent Alexander-Arnold will feature for England during the international break after being forced off early into Liverpool’s 2-0 win over Aston Villa.`\
 https://nytimes.com/athletic/5910408/2024/11/09/trent-alexander-arnold-liverpool-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5903869/2024/11/09/liverpool-top-table-villa-salah-
 **Days after Billy Napier vote of confidence, Florida gets owned by rested Texas**\
 `No.`\
 https://nytimes.com/athletic/5910519/2024/11/09/texas-florida-football-analysis-score/
-
-**Christopher Bell says he was 'cheated' out of spot in NASCAR championship**\
-`“This has been one of the hardest things I have had to go through as a race car driver,” Bell said. “I believe cheated is the right word."`\
-https://nytimes.com/athletic/5910434/2024/11/09/christopher-bell-nascar-championship-chevrolet-comments/
 

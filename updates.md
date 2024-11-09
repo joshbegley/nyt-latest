@@ -1,3 +1,7 @@
+**Emery: Aston Villa denied 'clear penalty' in Liverpool loss**\
+`Unai Emery says Aston Villa were denied a “clear penalty” in the team&#8217;s 2-0 defeat to Liverpool.`\
+https://nytimes.com/athletic/5910638/2024/11/09/unai-emery-aston-villa-penalty-liverpool/
+
 **Alexander-Arnold likely out of England squad after injury - Arne Slot**\
 `Arne Slot says it’s unlikely Trent Alexander-Arnold will feature for England during the international break after being forced off early into Liverpool’s 2-0 win over Aston Villa.`\
 https://nytimes.com/athletic/5910408/2024/11/09/trent-alexander-arnold-liverpool-injury-update/
