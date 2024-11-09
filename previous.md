@@ -6,6 +6,10 @@ https://nytimes.com/2024/11/09/nyregion/spencer-liff-drag-musical-off-broadway.h
 `Mayor Eric Adams of New York City has vowed to prevent mass deportations, but migrants and immigration lawyers are preparing for them.`\
 https://nytimes.com/2024/11/09/nyregion/trump-migrants-deportation-nyc.html
 
+**Brighton's March on schedule to make comeback from knee injury - Hurzeler**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says Solly March&#8217;s comeback is on schedule after more than a year out with a serious knee injury.`\
+https://nytimes.com/athletic/5905863/2024/11/09/brighton-solly-march-injury-return-update/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/09/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html
 **Depth and shooting — or at least the threat of it — allow Kansas to hold off North Carolina**\
 `Bill Self finally has the pieces to play chess late in games, allowing him to save his best for last in a big November matchup against UNC.`\
 https://nytimes.com/athletic/5909852/2024/11/09/kansas-holds-off-unc-depth-shooting/
-
-**Jacky Rosen Holds Off Sam Brown in Nevada, Keeping a Democratic Senate Seat**\
-`Ms. Rosen, the low-key incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
-https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
 

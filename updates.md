@@ -1,3 +1,7 @@
+**Brighton's March on schedule to make comeback from knee injury - Hurzeler**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says Solly March&#8217;s comeback is on schedule after more than a year out with a serious knee injury.`\
+https://nytimes.com/athletic/5905863/2024/11/09/brighton-solly-march-injury-return-update/
+
 **How an Off Broadway Drag Show Choreographer Spends His Sundays**\
 `Spencer Liff, who choreographed “Drag: The Musical,” searches for New York’s best Bloody Mary, stops by the theater and tries to find his next great jacket at the flea market.`\
 https://nytimes.com/2024/11/09/nyregion/spencer-liff-drag-musical-off-broadway.html
