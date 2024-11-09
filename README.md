@@ -1,3 +1,11 @@
+**Grizzlies' Ja Morant week to week with hip injury**\
+`Morant suffered the injury during Wednesday's game against the Lakers after landing awkwardly on a dunk attempt.`\
+https://nytimes.com/athletic/5910661/2024/11/09/grizzlies-ja-morant-injury-nba/
+
+**Takeaways: Ole Miss' Playoff hopes soar. Loss encapsulates Georgia's frustrations**\
+`Georgia lost to a team other than Alabama for the first time since 2020. Lane Kiffin beat a top-five team for the first time since 2011.`\
+https://nytimes.com/athletic/5910613/2024/11/09/ole-miss-georgia-playoff-result/
+
 **Trump Should Not Let Putin Claim Victory in Ukraine, Says NATO Official**\
 `Adm. Rob Bauer warned against any peace deal that was too favorable to Russia, arguing that it could undermine American interests.`\
 https://nytimes.com/2024/11/09/world/europe/trump-nato-putin-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909192/2024/11/09/todd-golden-florida-sexual-haras
 **Emery: Aston Villa denied 'clear penalty' in Liverpool loss**\
 `Unai Emery says Aston Villa were denied a “clear penalty” in the team&#8217;s 2-0 defeat to Liverpool.`\
 https://nytimes.com/athletic/5910638/2024/11/09/unai-emery-aston-villa-penalty-liverpool/
-
-**Alexander-Arnold likely out of England squad after injury - Arne Slot**\
-`Arne Slot says it’s unlikely Trent Alexander-Arnold will feature for England during the international break after being forced off early into Liverpool’s 2-0 win over Aston Villa.`\
-https://nytimes.com/athletic/5910408/2024/11/09/trent-alexander-arnold-liverpool-injury-update/
-
-**Teoscar Hernández wants to stay with Dodgers, though 4 other teams have interest**\
-`Hernández, The Athletic's No. 11 ranked free agent, is coming off a World Series run and one of the best seasons of his career.`\
-https://nytimes.com/athletic/5910641/2024/11/09/teoscar-hernandez-free-agency-dodgers/
 
