@@ -1,3 +1,7 @@
+**Corrections: Nov. 9, 2024**\
+`Corrections that appeared in print on Saturday, Nov. 9, 2024.`\
+https://nytimes.com/2024/11/08/pageoneplus/corrections-nov-9-2024.html
+
 **Dorothy Allison, Author of ‘Bastard Out of Carolina,’ Dies at 75**\
 `She wrote lovingly and often hilariously about her harrowing childhood in a working-class Southern family, as well as about the violence and incest she suffered.`\
 https://nytimes.com/2024/11/08/books/dorothy-allison-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/08/us/california-mountain-fire-residents-return.html
 **How Media Outlets on the Right and Left Explained Trump’s Win**\
 `Media outlets on the right said Mr. Trump won because of the left’s embrace of what they called extreme political views. Left-leaning outlets offered a broader variety of explanations.`\
 https://nytimes.com/2024/11/08/business/media/trumps-victory-media-outlets-explain.html
-
-**A Los Angeles leader who was involved in a racist conversation is close to being ousted.**\
-`Kevin de León, a Los Angeles councilman, was the last elected official still in office among the politicians caught on an audio recording that leaked two years ago.`\
-https://nytimes.com/live/2024/11/08/us/trump-election-news/a-los-angeles-leader-who-was-involved-in-a-racist-conversation-is-close-to-being-ousted
 
