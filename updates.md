@@ -1,3 +1,7 @@
+**Biden and Trump to Meet at White House on Wednesday**\
+`President Biden extended the invitation to his former rival as part of a longstanding tradition to help ease the transition to a new administration.`\
+https://nytimes.com/2024/11/09/us/politics/biden-trump-meeting.html
+
 **At Least Two Dozen People Killed in Suicide Bombing in Pakistan**\
 `The Baloch Liberation Army, a banned ethnic separatist group, claimed responsibility for the attack at a railway station in the southwestern Pakistani city of Quetta.`\
 https://nytimes.com/video/world/asia/100000009817451/pakistan-suicide-bombing.html
