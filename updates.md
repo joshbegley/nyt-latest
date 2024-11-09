@@ -1,3 +1,7 @@
+**Jacky Rosen Holds Off Sam Brown in Nevada, Keeping a Democratic Senate Seat**\
+`Ms. Rosen, the low-key incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
+https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
+
 **Brighton's March on schedule to make comeback from knee injury - Hurzeler**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler says Solly March&#8217;s comeback is on schedule after more than a year out with a serious knee injury.`\
 https://nytimes.com/athletic/5905863/2024/11/09/brighton-solly-march-injury-return-update/

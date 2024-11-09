@@ -18,10 +18,6 @@ https://nytimes.com/2024/11/09/crosswords/spelling-bee-forum.html
 `The Wild jumped out to a three-goal first-period lead, then were buoyed by great goaltending and a solid PK in a 5-2 win Friday night.`\
 https://nytimes.com/athletic/5909827/2024/11/09/wild-ducks-kirill-kaprizov-3-points/
 
-**Khadija Shaw and Lauren Hemp's partnership is key to Man City's hopes of success**\
-`Manchester City beat Spurs 4-0 on Friday night, with Shaw and Hemp starring for the hosts`\
-https://nytimes.com/athletic/5909683/2024/11/09/khadija-shaw-lauren-hemp-manchester-city/
-
 **Anthony Edwards has opened the season on a Steph Curry-like shooting streak**\
 `Edwards buried 9 of 15 3-pointers on his way to 37 points Friday in Minnesota's 127-102 victory over Portland.`\
 https://nytimes.com/athletic/5907663/2024/11/09/timberwolves-trail-blazers-anthony-edwards/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/09/us/politics/nevada-harris-trump.html
 **Depth and shooting — or at least the threat of it — allow Kansas to hold off North Carolina**\
 `Bill Self finally has the pieces to play chess late in games, allowing him to save his best for last in a big November matchup against UNC.`\
 https://nytimes.com/athletic/5909852/2024/11/09/kansas-holds-off-unc-depth-shooting/
+
+**Jacky Rosen Holds Off Sam Brown in Nevada, Keeping a Democratic Senate Seat**\
+`Ms. Rosen, the low-key incumbent, hung on, but the race was closer than expected amid President-elect Donald J. Trump’s strength.`\
+https://nytimes.com/2024/11/09/us/politics/nevada-senate-election-rosen-brown.html
 
