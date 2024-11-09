@@ -1,3 +1,7 @@
+**Democrats Consider an Autopsy, but Who’s the Coroner?**\
+`The Democratic Party agrees it needs to figure out what went wrong. The question is how.`\
+https://nytimes.com/2024/11/08/us/politics/harris-trump-democrats-election.html
+
 **Canucks trade Daniel Sprong to Kraken for future considerations**\
 `The 27-year-old forward's Canucks tenure ended after just nine appearances.`\
 https://nytimes.com/athletic/5909699/2024/11/08/canucks-kraken-daniel-sprong-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009817195/walz-concession-remarks.h
 **As Trump’s New Term Looms, Hochul Considers Reviving Congestion Pricing**\
 `Gov. Kathy Hochul, facing pressure from supporters of the contentious tolling plan, is said to be exploring options for adopting it in some form.`\
 https://nytimes.com/2024/11/08/nyregion/trump-congestion-pricing-nyc.html
-
-**San Francisco Mayor-Elect Plans to Declare Fentanyl Emergency on Day 1**\
-`Daniel Lurie held his first news conference since Mayor London Breed conceded the mayoral race this week.`\
-https://nytimes.com/2024/11/08/us/elections/san-francisco-daniel-lurie-fentanyl.html
 
