@@ -1,3 +1,7 @@
+**The Giants are getting worse, so what exactly is the case for retaining Brian Daboll, Joe Schoen?**\
+`Nothing about the Giants signals things are headed in the right direction. They are regressing in the Year 3 of this regime. `\
+https://nytimes.com/athletic/5912694/2024/11/10/giants-brian-daboll-joe-schoen-panthers-loss/
+
 **NFL Week 10 takeaways: Do Steelers belong in Super Bowl talk? How do Chiefs keep doing this?**\
 `Plus, will Bryce Young or Daniel Jones have starting jobs when next season starts?`\
 https://nytimes.com/athletic/5912856/2024/11/10/nfl-week-10-scores-takeaways-steelers-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-ta
 **After historic start, how will the Jets tackle the most difficult stretch of their season?**\
 `Winnipeg's 14-1-0 stretch set an NHL record for best 15-game start, but coach Scott Arniel knows the difficulty is about to skyrocket.`\
 https://nytimes.com/athletic/5912272/2024/11/10/winnipeg-jets-nhl-history-record-season/
-
-**One Escaped Monkey of 43 Is Captured in South Carolina**\
-`The monkeys escaped after a worker at a research center left an enclosure unlocked. One monkey was captured Saturday while the rest remain at large.`\
-https://nytimes.com/2024/11/10/us/monkey-captured-south-carolina.html
 
