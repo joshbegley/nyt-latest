@@ -1,3 +1,7 @@
+**Juric sacked by Roma after Bologna defeat**\
+`Ivan Juric has been sacked as head coach of Roma after defeat to Bologna on Sunday.`\
+https://nytimes.com/athletic/5879126/2024/11/10/ivan-juric-roma-sacked/
+
 **NFL Week 10 inactives and fantasy tips: Christian McCaffrey, Deebo Samuel active in Week 10**\
 `Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
 https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/dining/best-bolognese-sauce.html
 **Man United 3 Leicester 0: Fernandes stars as Van Nistelrooy leaves positive mood for Amorim**\
 `We break down the action from a United victory at Old Trafford as they await the arrival of Ruben Amorim.`\
 https://nytimes.com/athletic/5908783/2024/11/10/manchester-united-van-nistelrooy-fernandes/
-
-**Until Saturday: College football gets weird, plus Playoff predictions for Tuesday**\
-`Welcome to Until Saturday, the five-star college football newsletter: Upsets, squirrels, tortillas and more in college football's Week 11.`\
-https://nytimes.com/athletic/5910950/2024/11/10/college-football-week-11-playoff-predictions-until-saturday/
 
