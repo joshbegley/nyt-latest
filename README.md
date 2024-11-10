@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5912856/2024/11/10/nfl-week-10-scores-takeaways-ste
 https://nytimes.com/athletic/5912589/2024/11/10/deebo-samuel-jake-moody-swipe-missed-field-goal-49ers/
 
 **Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
-`Pittsburgh's newest receiver makes a big impact, while a late fourth-down decision erases any chance of a Washington comeback.`\
+`Pittsburgh's newest receiver made a big impact, while a late fourth-down decision erased any chance of a Washington comeback.`\
 https://nytimes.com/athletic/5911921/2024/11/10/steelers-commanders-score-result-takeaways/
 
 **Amorim to hold talks with Van Nistelrooy over Man Utd future**\
