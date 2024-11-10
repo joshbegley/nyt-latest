@@ -1,4 +1,4 @@
-**Colorado rallies past Texas Tech, takes another step toward College Football Playoff**\
+**Colorado rallies past Texas Tech, takes another step toward CFP**\
 `The Buffaloes are in sole possession of second place in the Big 12 and in position to play in the league title game.`\
 https://nytimes.com/athletic/5910862/2024/11/09/colorado-texas-tech-deion-sanders-playoff/
 
