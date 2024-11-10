@@ -1,3 +1,11 @@
+**Bills hold off Colts, 30-20, to win fifth straight: Key takeaways**\
+`Buffalo muscled its way to another victory behind a standout showing from its defense.`\
+https://nytimes.com/athletic/5911868/2024/11/10/bills-colts-score-takeaways-result/
+
+**Chiefs survive Broncos with late blocked field goal, win 16-14: Takeaways**\
+`The tight victory continued the Chiefs' knack for winning close finishes, giving the Chiefs their seventh one-possession win this season.`\
+https://nytimes.com/athletic/5911894/2024/11/10/chiefs-broncos-score-result-takeaways/
+
 **Patriots, Drake Maye knock off Bears, Caleb Williams: Takeaways**\
 `Chicago has lost three games in a row and has scored one touchdown in two weeks.`\
 https://nytimes.com/athletic/5911857/2024/11/10/patriots-bears-score-takeaways-result/

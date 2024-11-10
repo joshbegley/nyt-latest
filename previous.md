@@ -1,3 +1,11 @@
+**Bills hold off Colts, 30-20, to win fifth straight: Key takeaways**\
+`Buffalo muscled its way to another victory behind a standout showing from its defense.`\
+https://nytimes.com/athletic/5911868/2024/11/10/bills-colts-score-takeaways-result/
+
+**Chiefs survive Broncos with late blocked field goal, win 16-14: Takeaways**\
+`The tight victory continued the Chiefs' knack for winning close finishes, giving the Chiefs their seventh one-possession win this season.`\
+https://nytimes.com/athletic/5911894/2024/11/10/chiefs-broncos-score-result-takeaways/
+
 **Patriots, Drake Maye knock off Bears, Caleb Williams: Takeaways**\
 `Chicago has lost three games in a row and has scored one touchdown in two weeks.`\
 https://nytimes.com/athletic/5911857/2024/11/10/patriots-bears-score-takeaways-result/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5912402/2024/11/10/tristan-jarry-penguins-nhl-ahl-g
 **Palace investiging alleged racist abuse of Kamada**\
 `Crystal Palace have launched an investigation into allegations that midfielder Daichi Kamada was the subject of racist abuse.`\
 https://nytimes.com/athletic/5912523/2024/11/10/crystal-palace-kamada-abuse-investigation/
-
-**Arteta expects Saka, Rice to miss England games**\
-`Mikel Arteta says he does not expect Bukayo Saka or Declan Rice to be fit for England&#8217;s upcoming Nations League games after they were forced off during Arsenal&#8217;s 1-1 draw with Chelsea on Sunday.`\
-https://nytimes.com/athletic/5912286/2024/11/10/saka-rice-arsenal-injury-england/
-
-**As Trump Returns to Power, Allies and Adversaries Expect a Wave of Revenge**\
-`President-elect Donald J. Trump’s momentary talk of unity on election night may underestimate the depth of his resentment after multiple impeachments, investigations, indictments and lawsuits.`\
-https://nytimes.com/2024/11/10/us/politics/trump-enemies-prosecution.html
 
