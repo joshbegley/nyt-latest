@@ -1,3 +1,7 @@
+**Florida State fires three assistants, including two coordinators**\
+`Coach Mike Norvell dismissed OC Alex Atkins, DC Adam Fuller and wide receivers coach Ron Dugans a day after a 52-3 loss at Notre Dame.`\
+https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defense-coordinators/
+
 **With Chuba Hubbard and improving D, Panthers still not a good team, but they're taking steps**\
 `Chuba Hubbard's career day and two timely takeaways from the defense propelled the Panthers to a rare back-to-back victory.`\
 https://nytimes.com/athletic/5912605/2024/11/10/panthers-win-chuba-hubbard-defense-giants/
