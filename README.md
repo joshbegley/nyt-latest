@@ -1,3 +1,7 @@
+**NFL Week 10 inactives and fantasy tips: Will Levis back from injury, starting vs. Chargers**\
+`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
+https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
+
 **Stewart Mandel's 12-team Playoff projections after Week 11**\
 `Oregon has done nothing wrong, but Ohio State is once again the projected Big Ten champ and the No. 1 overall seed. `\
 https://nytimes.com/athletic/5912381/2024/11/10/college-football-playoff-2024-projections-hello-deion-colorado-is-in-as-the-no-4-seed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911981/2024/11/10/georgia-miami-college-football-n
 **Notre Dame looks and sounds like a team that is mastering winning**\
 `Saturday night at Notre Dame Stadium felt like a big game without a big opponent, as the Irish trampled Florida State with remarkable ease.`\
 https://nytimes.com/athletic/5912119/2024/11/10/notre-dame-fsu-marcus-freeman-playoff/
-
-**Fernandes supports 'special player' Garnacho after muted goal celebration**\
-`Bruno Fernandes offered his support to Alejandro Garnacho after the Manchester United winger appeared to celebrate his goal against Leicester City in a muted fashion.`\
-https://nytimes.com/athletic/5912072/2024/11/10/garnacho-goal-celebration-bruno-fernandes/
 
