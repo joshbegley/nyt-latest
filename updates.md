@@ -1,3 +1,7 @@
+**Paul Stephenson, 87, Dies; Advanced Britain’s Civil Rights Movement**\
+`The bus boycott and one-man pub sit-in that he led in the mid-1960s helped pave the way for a law outlawing discrimination in public places.`\
+https://nytimes.com/2024/11/10/world/europe/paul-stephenson-dead.html
+
 **Reimagining How to Dress a Pope**\
 `In the film “Conclave,” the costume designer Lisy Christl clothed an army of catty cardinals, from their miters down to their quirky glasses.`\
 https://nytimes.com/2024/11/10/style/conclave-movie-costumes-pope.html
