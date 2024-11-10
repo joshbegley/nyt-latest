@@ -1,3 +1,7 @@
+**As Wildfire Burns in New Jersey and New York, Rain Offers Little Relief**\
+`The fire, the latest of several in the region over the weekend, had caused one death and was not contained as of Sunday afternoon, officials said.`\
+https://nytimes.com/2024/11/10/nyregion/wildfires-ny-nj-drought.html
+
 **2 New York Men Charged in Monthslong Plot to Kill Iranian Activist**\
 `The men were receiving orders from a third man, who was working as an Iranian operative and was also involved in a plot to assassinate Donald J. Trump, federal prosecutors said.`\
 https://nytimes.com/2024/11/10/nyregion/iran-assassination-plot-masih-alinejad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912381/2024/11/10/college-football-playoff-2024-pr
 **AP Top 25: Indiana gives Big Ten 4 of top 5 as Georgia tumbles**\
 `Indiana moved into the top five of the AP poll for the first time since 1967 while Georgia's streak of 60 straight top-10 appearances ended.`\
 https://nytimes.com/athletic/5912300/2024/11/10/ap-top-25-poll-indiana-big-ten/
-
-**After the Triumph of Tetris, an Unsolved Puzzle**\
-`Alexey Pajitnov, who created the ubiquitous game in 1984, opens up about his failed projects and his desire to design another hit.`\
-https://nytimes.com/2024/11/10/arts/tetris-forever-alexey-pajitnov.html
 
