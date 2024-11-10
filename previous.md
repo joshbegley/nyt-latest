@@ -1,3 +1,7 @@
+**Steelers at Commanders: How to watch, odds, expert picks with Washington as close home favorite**\
+`Who saw Washington and Pittsburgh as first-place teams in November? They face each other in Week 10. `\
+https://nytimes.com/athletic/5909061/2024/11/10/steelers-commanders-how-to-watch-odds-picks-betting/
+
 **49ers at Buccaneers: How to watch, odds, expert picks with Niners favored in CMC return**\
 `Christian McCaffrey returns for the Niners, who are big favorites over the Buccaneers. Will Baker Mayfield continue his success?`\
 https://nytimes.com/athletic/5907144/2024/11/10/49ers-buccaneers-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910083/2024/11/10/premier-league-goals-entertainme
 **Once China’s ‘Worst Nightmare,’ Labor Activist Refuses to Back Down**\
 `Neither jail nor exile to Hong Kong have stopped Han Dongfang, a former Tiananmen Square protest leader, from championing workers’ rights. “If you’re born stubborn, you go everywhere stubborn.”`\
 https://nytimes.com/2024/11/10/world/asia/china-labor-rights-han-dongfang.html
-
-**Taiwan Sees a Higher Price for U.S. Support as Trump Returns to Power**\
-`The president-elect’s call for Taiwan to spend more on its own defense and his complaints about its semiconductor dominance may herald a tenser relationship.`\
-https://nytimes.com/2024/11/10/world/asia/taiwan-sees-a-higher-price-for-us-support-as-trump-returns-to-power.html
 

@@ -1,3 +1,7 @@
+**Steelers at Commanders: How to watch, odds, expert picks with Washington as close home favorite**\
+`Who saw Washington and Pittsburgh as first-place teams in November? They face each other in Week 10. `\
+https://nytimes.com/athletic/5909061/2024/11/10/steelers-commanders-how-to-watch-odds-picks-betting/
+
 **49ers at Buccaneers: How to watch, odds, expert picks with Niners favored in CMC return**\
 `Christian McCaffrey returns for the Niners, who are big favorites over the Buccaneers. Will Baker Mayfield continue his success?`\
 https://nytimes.com/athletic/5907144/2024/11/10/49ers-buccaneers-how-to-watch-odds-picks-betting/
