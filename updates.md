@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Arsenal 1: Big game woes and Neto most dangerous winger**\
+`Chelsea and Arsenal played out a 1-1 draw at Stamford Bridge on Sunday afternoon`\
+https://nytimes.com/athletic/5908786/2024/11/10/chelsea-arsenal-result-report-analysis/
+
 **Panthers stave off Giants with 20-17 OT victory in Germany: Takeaways**\
 `With the win in the 2024 International Series finale, the Panthers improve to 3-8 while the Giants drop to 2-8.`\
 https://nytimes.com/athletic/5911723/2024/11/10/giants-panthers-score-result-takeaways-nfl-germany/
