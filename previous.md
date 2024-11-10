@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5912807/2024/11/10/ruben-amorim-van-nistelrooy/
 
 **Florida State fires three assistants, including two coordinators**\
 `Coach Mike Norvell dismissed OC Alex Atkins, DC Adam Fuller and wide receivers coach Ron Dugans a day after a 52-3 loss at Notre Dame.`\
-https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defense-coordinators/
+https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defensive-coordinators/
 
 **With Chuba Hubbard and improving D, Panthers still not a good team, but they're taking steps**\
 `Chuba Hubbard's career day and two timely takeaways from the defense propelled the Panthers to a rare back-to-back victory.`\
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5912605/2024/11/10/panthers-win-chuba-hubbard-defen
 https://nytimes.com/athletic/5911885/2024/11/10/vikings-jaguars-score-result-takeaways/
 
 **Moody's game-winning FG coats miscues in 49ers' 23-20 win vs. Bucs: Takeaways**\
-`Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after a nine-game absence with Achilles tendon injury.`\
+`Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after an eight-game absence with Achilles tendon injury.`\
 https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-takeaways/
 
 **After historic start, how will the Jets tackle the most difficult stretch of their season?**\

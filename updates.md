@@ -1,3 +1,11 @@
+**Florida State fires three assistants, including two coordinators**\
+`Coach Mike Norvell dismissed OC Alex Atkins, DC Adam Fuller and wide receivers coach Ron Dugans a day after a 52-3 loss at Notre Dame.`\
+https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defensive-coordinators/
+
+**Moody's game-winning FG coats miscues in 49ers' 23-20 win vs. Bucs: Takeaways**\
+`Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after an eight-game absence with Achilles tendon injury.`\
+https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-takeaways/
+
 **Deebo Samuel swipes at 49ers long snapper’s throat after Moody missed FG**\
 `"I'll talk to Moody and we'll get past it," Samuel said, later adding Moody "had a little dog in him" to go hit the game-winner.`\
 https://nytimes.com/athletic/5912589/2024/11/10/deebo-samuel-jake-moody-swipe-missed-field-goal-49ers/
