@@ -1,3 +1,7 @@
+**Pochettino calls up USMNT roster for Nations League, including Weah, Richards**\
+`U.`\
+https://nytimes.com/athletic/5911668/2024/11/10/usmnt-roster-nations-league-weah-richards/
+
 **Live Q&A: Week 10 fantasy football start/sit chat with Jay Felicio, Sunday 11/10 at 11 a.m. ET**\
 `Submit your Week 10 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5906319/2024/11/10/live-qa-week-10-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-7-at-11-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantas
 **Revisiting the Harlem Renaissance**\
 `Why the era still resonates a century later.`\
 https://nytimes.com/2024/11/10/briefing/revisiting-the-harlem-renaissance.html
-
-**There's no evidence Lopetegui should carry on**\
-`Lopetegui is only a few months into a two-year contract, yet his appointment appears to have been an expensive mistake`\
-https://nytimes.com/athletic/5910108/2024/11/10/theres-no-evidence-julen-lopetegui-should-carry-on/
 
