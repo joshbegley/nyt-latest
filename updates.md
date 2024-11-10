@@ -1,3 +1,7 @@
+**NFL Week 10 takeaways: Do Steelers belong in Super Bowl talk? How do Chiefs keep doing this?**\
+`Plus, will Bryce Young or Daniel Jones have starting jobs when next season starts?`\
+https://nytimes.com/athletic/5912856/2024/11/10/nfl-week-10-scores-takeaways-steelers-chiefs/
+
 **Florida State fires three assistants, including two coordinators**\
 `Coach Mike Norvell dismissed OC Alex Atkins, DC Adam Fuller and wide receivers coach Ron Dugans a day after a 52-3 loss at Notre Dame.`\
 https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defensive-coordinators/
