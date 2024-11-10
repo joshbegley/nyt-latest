@@ -1,3 +1,19 @@
+**Forest 1 Newcastle United 3: Joelinton and Barnes seal comeback win for Howe's patient side**\
+`Newcastle United head into the international break buoyed by victory against Nottingham Forest after a comeback win against a stubborn side.`\
+https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
+
+**Lowetide: Why a Stan Bowman strength may benefit Oilers in a big way**\
+`Bowman's first opportunity to show Edmonton this particular ability may come this summer.`\
+https://nytimes.com/athletic/5909569/2024/11/10/oilers-stan-bowman-europe/
+
+**‘This Is the Best of the Best’**\
+`Marcella Hazan’s Bolognese sauce, tomato-rich and smoothed with milk, remains a reader favorite.`\
+https://nytimes.com/2024/11/10/dining/best-bolognese-sauce.html
+
+**Man United 3 Leicester 0: Fernandes stars as Van Nistelrooy leaves positive mood for Amorim**\
+`We break down the action from a United victory at Old Trafford as they await the arrival of Ruben Amorim.`\
+https://nytimes.com/athletic/5908783/2024/11/10/manchester-united-van-nistelrooy-fernandes/
+
 **Until Saturday: College football gets weird, plus Playoff predictions for Tuesday**\
 `Welcome to Until Saturday, the five-star college football newsletter: Upsets, squirrels, tortillas and more in college football's Week 11.`\
 https://nytimes.com/athletic/5910950/2024/11/10/college-football-week-11-playoff-predictions-until-saturday/
