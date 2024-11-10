@@ -1,3 +1,11 @@
+**NYCFC advances to Eastern Conference semifinals after 9-round penalty kick shootout**\
+`NYCFC will host its rival, the New York Red Bulls, in an Eastern Conference semifinal.`\
+https://nytimes.com/athletic/5910767/2024/11/09/nycfc-fc-cincinnati-mls-cup-playoffs/
+
+**NASCAR Hall of Famer Bobby Allison dies at 86**\
+`Allison won three Daytona 500s (1978, ’82, ’88), the 1983 Cup championship and '85 Cup races during his Hall of Fame career.`\
+https://nytimes.com/athletic/5910760/2024/11/09/bobby-allison-dies-nascar/
+
 **Women’s March Holds Rally in Washington**\
 `A few hundred people showed up to the Women’s March protest and dance party in Washington. The goal of the event was to reinvigorate the organization’s progressive base after the election.`\
 https://nytimes.com/video/us/politics/100000009817648/womens-march-washington.html
