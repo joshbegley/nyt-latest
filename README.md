@@ -1,3 +1,7 @@
+**Immanuel Quickley is back to help save the Raptors' half-court offence**\
+`The Raptors lost again, but Quickley's return should animate the Raptors when their offence bogs down. `\
+https://nytimes.com/athletic/5911285/2024/11/10/raptors-immanuel-quickley-is-back/
+
 **Quote of the Day: A Child Influencer Whose Avid Fans Were Men**\
 `Quotation of the Day for Sunday, November 10, 2024.`\
 https://nytimes.com/2024/11/10/pageoneplus/quote-of-the-day-a-child-influencer-whose-avid-fans-were-men.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/crosswords/spelling-bee-forum.html
 **When Anna Wintour Let Marc Jacobs Do Her Job**\
 `Vogue has its first guest editor. Just call it “The December Issue.”`\
 https://nytimes.com/2024/11/10/style/anna-wintour-marc-jacobs-vogue.html
-
-**She Was a Child Instagram Influencer. Her Fans Were Grown Men.**\
-`“Jacky Dejo” was introduced to social media by her parents as a snowboarding prodigy. Now 18, she has seen the dark side of the internet — and turned a profit from it.`\
-https://nytimes.com/2024/11/10/us/child-influencer.html
 
