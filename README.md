@@ -1,3 +1,7 @@
+**After the Triumph of Tetris, an Unsolved Puzzle**\
+`Alexey Pajitnov, who created the ubiquitous game in 1984, opens up about his failed projects and his desire to design another hit.`\
+https://nytimes.com/2024/11/10/arts/tetris-forever-alexey-pajitnov.html
+
 **49ers' Pearsall scores first career touchdown just 10 weeks after shooting**\
 `Pearsall, a first-round pick in April's NFL Draft, was shot on Aug. 31 during an attempted robbery while shopping in San Francisco.`\
 https://nytimes.com/athletic/5912341/2024/11/10/ricky-pearsall-49ers-player-shot-td/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/world/middleeast/saudi-arabia-womens-tennis-assoc
 **Alexander-Arnold confident hamstring issue is not serious**\
 `Trent Alexander-Arnold is confident that he isn’t facing a lengthy spell on the sidelines after being forced off in Liverpool’s 2-0 win over Aston Villa at Anfield.`\
 https://nytimes.com/athletic/5911632/2024/11/10/alexander-arnold-injury-latest-liverpool/
-
-**Pereira out for four months with hamstring injury**\
-`Leicester City defender Ricardo Pereira has been ruled out for four months with a hamstring injury.`\
-https://nytimes.com/athletic/5912110/2024/11/10/ricardo-pereira-jamie-vardy-injuries/
 
