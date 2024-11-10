@@ -1,3 +1,7 @@
+**The Briefing: Spurs 1 Ipswich 2: Spurs still inconsistent? Conceding first issue?**\
+`Tottenham Hotspur fell to a shock 2-1 defeat against Ipswich Town on Sunday afternoon`\
+https://nytimes.com/athletic/5908785/2024/11/10/tottenham-hotspur-ipswich-town-result-report-analysis/
+
 **Forest 1 Newcastle United 3: Joelinton and Barnes seal comeback win for Howe's patient side**\
 `Newcastle United head into the international break buoyed by victory against Nottingham Forest after a comeback win against a stubborn side.`\
 https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911581/2024/11/10/sec-championship-tiebreaker-scen
 **Jaguars' Lawrence out vs. Vikings, could miss rest of season**\
 `With Lawrence out, Mac Jones is expected to start at quarterback against Minnesota.`\
 https://nytimes.com/athletic/5911582/2024/11/10/trevor-lawrence-injury-jaguars/
-
-**Where did Miami go wrong and what does playoff exit mean for Messi and Martino?**\
-`Atlanta United's 3-2 Game 3 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
-https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-playoffs/
 
