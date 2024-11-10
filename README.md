@@ -1,3 +1,7 @@
+**Suns' Kevin Durant out for two weeks with calf strain**\
+`Durant suffered the left calf strain in Friday’s win against the Dallas Mavericks.`\
+https://nytimes.com/athletic/5910763/2024/11/09/kevin-durant-hurt-injury-calf-suns-nba/
+
 **Firefighters Gain More Control of Southern California Blaze That Spread Rapidly**\
 `After the Mountain fire ballooned to more than 20,000 acres in less than 24 hours, improving weather conditions helped crews contain more of the blaze on Saturday.`\
 https://nytimes.com/2024/11/09/us/california-mountain-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910613/2024/11/09/ole-miss-georgia-playoff-result/
 **Trump Should Not Let Putin Claim Victory in Ukraine, Says NATO Official**\
 `Adm. Rob Bauer warned against any peace deal that was too favorable to Russia, arguing that it could undermine American interests.`\
 https://nytimes.com/2024/11/09/world/europe/trump-nato-putin-ukraine.html
-
-**Giants vs. Panthers: How to watch, odds, expert picks for NFL's Germany game**\
-`The Giants and Panthers play their Week 10 matchup in Munich.`\
-https://nytimes.com/athletic/5904893/2024/11/09/giants-panthers-how-to-watch-odds-picks-germany-game/
 
