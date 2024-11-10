@@ -1,3 +1,7 @@
+**Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
+`Pittsburgh's newest receiver made a big impact, while a late fourth-down decision erased any chance of a Washington comeback.`\
+https://nytimes.com/athletic/5911921/2024/11/10/steelers-commanders-score-result-takeaways/
+
 **The Giants are getting worse, so what is the case for retaining Brian Daboll and Joe Schoen?**\
 `Nothing about the Giants signals things are headed in the right direction. They are regressing in Year 3 of this regime. `\
 https://nytimes.com/athletic/5912694/2024/11/10/giants-brian-daboll-joe-schoen-panthers-loss/
