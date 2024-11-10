@@ -1,3 +1,7 @@
+**Tennessee's Iamaleava leaves vs. Mississippi State with upper-body injury**\
+`It wasn’t immediately clear on which play the injury occurred, and the broadcast said Iamaleava was not expected to return to the game.`\
+https://nytimes.com/athletic/5910930/2024/11/09/nico-iamaleava-injury-tennessee-mississippi-state/
+
 **Donald Trump Wins Arizona, Reversing the State’s Blue Trend**\
 `The victory added to the list of battleground states that Mr. Trump lost in 2020 and flipped back four years later.`\
 https://nytimes.com/2024/11/09/us/politics/arizona-election-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/us/politics/trump-haley-pompeo.html
 **Suns' Kevin Durant out for 2 weeks with calf strain**\
 `Durant suffered the left calf strain in Friday’s win against the Dallas Mavericks.`\
 https://nytimes.com/athletic/5910763/2024/11/09/kevin-durant-hurt-injury-calf-suns-nba/
-
-**Firefighters Gain More Control of Southern California Blaze That Spread Rapidly**\
-`After the Mountain fire ballooned to more than 20,000 acres in less than 24 hours, improving weather conditions helped crews contain more of the blaze on Saturday.`\
-https://nytimes.com/2024/11/09/us/california-mountain-fire.html
 

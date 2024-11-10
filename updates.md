@@ -1,3 +1,7 @@
+**Tennessee's Iamaleava leaves vs. Mississippi State with upper-body injury**\
+`It wasn’t immediately clear on which play the injury occurred, and the broadcast said Iamaleava was not expected to return to the game.`\
+https://nytimes.com/athletic/5910930/2024/11/09/nico-iamaleava-injury-tennessee-mississippi-state/
+
 **College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
