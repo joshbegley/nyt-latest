@@ -1,3 +1,7 @@
+**Momentum and courage key to incredible Brighton comeback - how far can Hurzeler take them?**\
+`Hurzeler and his players rose to the biggest challenge of all by coming from behind to beat the side that has won four titles in a row.`\
+https://nytimes.com/athletic/5910178/2024/11/10/brighton-man-city-hurzeler-momentum/
+
 **Rutherford: Third period of Blues' loss to Caps was the worst effort I've seen in 20 years**\
 `St. Louis has lost by a score of 8-1 twice in just 12 days, to Ottawa and Washington. `\
 https://nytimes.com/athletic/5910835/2024/11/10/blues-capitals-third-period-effort/

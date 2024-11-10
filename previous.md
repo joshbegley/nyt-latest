@@ -1,3 +1,7 @@
+**Momentum and courage key to incredible Brighton comeback - how far can Hurzeler take them?**\
+`Hurzeler and his players rose to the biggest challenge of all by coming from behind to beat the side that has won four titles in a row.`\
+https://nytimes.com/athletic/5910178/2024/11/10/brighton-man-city-hurzeler-momentum/
+
 **Rutherford: Third period of Blues' loss to Caps was the worst effort I've seen in 20 years**\
 `St. Louis has lost by a score of 8-1 twice in just 12 days, to Ottawa and Washington. `\
 https://nytimes.com/athletic/5910835/2024/11/10/blues-capitals-third-period-effort/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/opinion/diagnosis-clarity-cancer-illness.html
 **Canadiens are not good enough, and the worst part is they don’t know it**\
 `The Canadiens, despite incremental gains to their collective game, consistently find a way a way to continue losing.`\
 https://nytimes.com/athletic/5911161/2024/11/10/canadiens-loss-maple-leafs/
-
-**Steelers at Commanders: How to watch, odds, expert picks with Washington as close home favorite**\
-`Who saw Washington and Pittsburgh as first-place teams in November? They face each other in Week 10. `\
-https://nytimes.com/athletic/5909061/2024/11/10/steelers-commanders-how-to-watch-odds-picks-betting/
 
