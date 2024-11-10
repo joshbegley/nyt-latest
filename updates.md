@@ -1,3 +1,7 @@
+**'The same people who allow women to play tennis are also torturing the activists'**\
+`The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality`\
+https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
+
 **Pochettino calls up USMNT roster for Nations League, including Weah, Richards**\
 `U.`\
 https://nytimes.com/athletic/5911668/2024/11/10/usmnt-roster-nations-league-weah-richards/
