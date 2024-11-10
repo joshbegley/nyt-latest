@@ -1,9 +1,13 @@
+**Jeremy Swayman and Linus Ullmark: 2 average goalies on 2 average teams**\
+`For three years, Swayman and Ullmark made goaltending a position of strength for the Bruins. That is not the case anymore.`\
+https://nytimes.com/athletic/5911031/2024/11/09/bruins-senators-jeremy-swayman-linus-ullmark/
+
 **After falling short last week, Penn State finds answers in win against Washington**\
 `The Nittany Lions beat Washington 35-6 and held the Huskies without a touchdown. `\
 https://nytimes.com/athletic/5911040/2024/11/09/penn-state-washington-score-analysis-college-football/
 
-**Indiana edges Michigan to reach 10 wins, likely the Playoff and wants more: What is this world?**\
-`Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things?”`\
+**Indiana edges Michigan to reach 10 wins, likely Playoff and wants more: What is this world?**\
+`Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things”?`\
 https://nytimes.com/athletic/5911024/2024/11/09/indiana-michigan-curt-cignetti-playoff/
 
 **Notre Dame takeaways after FSU: Imperfect but dominant Irish have Playoff within reach**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910952/2024/11/09/inter-miami-messi-eliminated-mls
 **Tennessee's Iamaleava leaves vs. Mississippi State with upper-body injury**\
 `It wasn’t immediately clear on which play the injury occurred, and the broadcast said Iamaleava was not expected to return to the game.`\
 https://nytimes.com/athletic/5910930/2024/11/09/nico-iamaleava-injury-tennessee-mississippi-state/
-
-**Donald Trump Wins Arizona, Reversing the State’s Blue Trend**\
-`The victory added to the list of battleground states that Mr. Trump lost in 2020 and flipped back four years later.`\
-https://nytimes.com/2024/11/09/us/politics/arizona-election-harris-trump.html
 
