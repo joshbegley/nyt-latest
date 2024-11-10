@@ -1,3 +1,7 @@
+**Map: 5.9-Magnitude Earthquake Strikes Near Cuba**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/11/10/world/americas/10wea-quake-tracker-cuba.html
+
 **What's Babe Ruth's rookie card? Originally a means to getting a free jump rope**\
 `Now highly valuable, Babe Ruth's earliest trading cards originally served other purposes`\
 https://nytimes.com/athletic/5911783/2024/11/10/babe-ruth-rookie-card-red-sox/
