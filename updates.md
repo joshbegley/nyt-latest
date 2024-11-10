@@ -1,3 +1,15 @@
+**Deebo Samuel swipes at 49ers long snapper’s throat after Moody missed FG**\
+`"I'll talk to Moody and we'll get past it," Samuel said, later adding Moody "had a little dog in him" to go hit the game-winner.`\
+https://nytimes.com/athletic/5912589/2024/11/10/deebo-samuel-jake-moody-swipe-missed-field-goal-49ers/
+
+**Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
+`Pittsburgh's newest receiver makes a big impact, while a late fourth-down decision erases any chance of a Washington comeback.`\
+https://nytimes.com/athletic/5911921/2024/11/10/steelers-commanders-score-result-takeaways/
+
+**Amorim to hold talks with Van Nistelrooy over Man Utd future**\
+`Ruben Amorim will talk with Ruud van Nistelrooy about his Manchester United future when he flies in to England on Monday.`\
+https://nytimes.com/athletic/5912807/2024/11/10/ruben-amorim-van-nistelrooy/
+
 **Florida State fires three assistants, including two coordinators**\
 `Coach Mike Norvell dismissed OC Alex Atkins, DC Adam Fuller and wide receivers coach Ron Dugans a day after a 52-3 loss at Notre Dame.`\
 https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defense-coordinators/
