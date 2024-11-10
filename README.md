@@ -1,3 +1,19 @@
+**Once China’s ‘Worst Nightmare,’ Labor Activist Refuses to Back Down**\
+`Neither jail nor exile to Hong Kong have stopped Han Dongfang, a former Tiananmen Square protest leader, from championing workers’ rights. “If you’re born stubborn, you go everywhere stubborn.”`\
+https://nytimes.com/2024/11/10/world/asia/china-labor-rights-han-dongfang.html
+
+**Taiwan Sees a Higher Price for U.S. Support as Trump Returns to Power**\
+`The president-elect’s call for Taiwan to spend more on its own defense and his complaints about its semiconductor dominance may herald a turbulent relationship.`\
+https://nytimes.com/2024/11/10/world/asia/taiwan-sees-a-higher-price-for-us-support-as-trump-returns-to-power.html
+
+**Chelsea vs Arsenal preview: Storylines, odds, prediction for match with top 4 implications**\
+`Arsenal's title hopes appear to be fading fast, but the Gunners are still in the thick of the top four race. So are Chelsea.`\
+https://nytimes.com/athletic/5909364/2024/11/10/chelsea-arsenal-preview-odds-prediction/
+
+**Bills at Colts: How to watch, odds, expert picks with Buffalo as road favorites**\
+`Josh Allen and the Bills are favored while traveling to the Colts this weekend.`\
+https://nytimes.com/athletic/5906724/2024/11/10/bills-colts-how-to-watch-odds-picks-betting/
+
 **No easy answers for Red Wings after dropping below .500**\
 `After being shut out by the Rangers Saturday, the Red Wings' slow start hasn't come with many clear solutions or answers. `\
 https://nytimes.com/athletic/5910975/2024/11/09/red-wings-rangers-season-crossroads/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5911040/2024/11/09/penn-state-washington-score-anal
 **Indiana edges Michigan to reach 10 wins, likely Playoff and wants more: What is this world?**\
 `Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things”?`\
 https://nytimes.com/athletic/5911024/2024/11/09/indiana-michigan-curt-cignetti-playoff/
-
-**Notre Dame takeaways after FSU: Imperfect but dominant Irish have Playoff within reach**\
-`Not only did Notre Dame embarrass Florida State 52-3, but it got Playoff help elsewhere with results like Miami's loss to Georgia Tech.`\
-https://nytimes.com/athletic/5911021/2024/11/09/notre-dame-florida-state-score-recap/
-
-**Jalen Milroe, Alabama send LSU to brink of CFP elimination in rout**\
-`Crimson Tide quarterback Jalen Milroe ran for four touchdowns against LSU for the second consecutive season`\
-https://nytimes.com/athletic/5910963/2024/11/09/jalen-milroe-alabama-lsu/
-
-**TSMC Stops Advanced Chip Shipments to Chinese Customers**\
-`The Taiwanese chip giant will halt shipments to Chinese companies after some of its most advanced chips ended up with Huawei.`\
-https://nytimes.com/2024/11/09/business/tsmc-ai-chips-china.html
-
-**Maple Leafs report cards: Power play stays hot in victory over Canadiens**\
-`Toronto did what it was supposed to do against a team at the bottom of the division in a 4-1 win over Montreal.`\
-https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-analysis/
 
