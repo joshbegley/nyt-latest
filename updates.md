@@ -1,3 +1,11 @@
+**Patriots at Bears: How to watch, odds, expert picks as Caleb Williams faces Drake Maye**\
+`The first and third overall picks from the 2024 NFL Draft face off in Chicago.`\
+https://nytimes.com/athletic/5904964/2024/11/09/patriots-bears-how-to-watch-odds-picks-betting/
+
+**Missouri beats Oklahoma with late scoop and score, teams combine for 34-point fourth quarter**\
+`Tigers DE Zion Young picked up the ball and ran 17 yards for the game-winning TD after Triston Newson stripped Oklahoma QB Jackson Arnold.`\
+https://nytimes.com/athletic/5911083/2024/11/09/missouris-scoop-and-score-leads-tigers-past-oklahoma-in-wild-finish/
+
 **Jeremy Swayman and Linus Ullmark: 2 average goalies on 2 average teams**\
 `For three years, Swayman and Ullmark made goaltending a position of strength for the Bruins. That is not the case anymore.`\
 https://nytimes.com/athletic/5911031/2024/11/09/bruins-senators-jeremy-swayman-linus-ullmark/
