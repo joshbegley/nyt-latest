@@ -1,3 +1,7 @@
+**Panthers stave off Giants with 20-17 OT victory in Germany: Takeaways**\
+`With the win in the 2024 International Series finale, the Panthers improve to 3-8 while the Giants drop to 2-8.`\
+https://nytimes.com/athletic/5911723/2024/11/10/giants-panthers-score-result-takeaways-nfl-germany/
+
 **What Is Paul Taylor Without Paul Taylor? Full of Bumps.**\
 `The Taylor company returns to Lincoln Center with four premieres and a new resident choreographer: Robert Battle, the former director of Alvin Ailey.`\
 https://nytimes.com/2024/11/10/arts/dance/paul-taylor-premieres.html
