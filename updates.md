@@ -1,3 +1,7 @@
+**Patriots, Drake Maye knock off Bears, Caleb Williams: Takeaways**\
+`Chicago has lost three games in a row and has scored one touchdown in two weeks.`\
+https://nytimes.com/athletic/5911857/2024/11/10/patriots-bears-score-takeaways-result/
+
 **In Roki Sasaki sweepstakes, could Yu Darvish and A.J. Preller be difference makers for Padres?**\
 `Every team would like to land Sasaki. Can his relationship with Darvish, and Darvish's admiration of Preller, give the Padres an edge?`\
 https://nytimes.com/athletic/5912593/2024/11/10/roki-sasaki-padres-yu-darvish-aj-preller/
