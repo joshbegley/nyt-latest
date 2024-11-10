@@ -1,40 +1,40 @@
-**‘S.N.L.’ Cast Makes Its Case to Stay off Trump’s Enemies List**\
-`The show parodied its own history of mawkish self-seriousness in an episode that often avoided the topic of the presidential election.`\
-https://nytimes.com/2024/11/10/arts/television/saturday-night-live-election-bill-burr.html
+**Quote of the Day: A Child Influencer Whose Avid Fans Were Men**\
+`Quotation of the Day for Sunday, November 10, 2024.`\
+https://nytimes.com/2024/11/10/pageoneplus/quote-of-the-day-a-child-influencer-whose-avid-fans-were-men.html
 
-**Utah AD rips officials, Big 12 after holding call aids BYU comeback**\
-`A holding penalty on Utah cornerback Zemaiah Vaughn on a fourth-and-10 from BYU’s 9-yard line gave the Cougars new life.`\
-https://nytimes.com/athletic/5911288/2024/11/10/utah-byu-penalty-mark-harlan-officials/
+**Unions on Strike and a Newspaper on Pause**\
+`The New York Times and the unions representing its workers have had a handful of labor disputes, including one that left the city without The Times for 114 days.`\
+https://nytimes.com/2024/11/10/insider/new-york-times-strike.html
 
-**Senators defence keeps Bruins at bay in much-needed win: 5 takeaways**\
-`Just like the 2023-24 team, Ottawa won its 14th game of the NHL season in overtime. This time at the expense of the Bruins.`\
-https://nytimes.com/athletic/5910734/2024/11/10/senators-bruins-ullmark-defence/
+**Hochul, in Unwanted Position, Says She Is Ready to Work With Trump**\
+`While other big state Democrats are reviving the resistance, Gov. Kathy Hochul of New York says she is open to working with Donald J. Trump where possible.`\
+https://nytimes.com/2024/11/10/nyregion/hochul-trump-ny.html
 
-**Momentum and courage key to incredible Brighton comeback - how far can Hurzeler take them?**\
-`Hurzeler and his players rose to the biggest challenge of all by coming from behind to beat the side that has won four titles in a row.`\
-https://nytimes.com/athletic/5910178/2024/11/10/brighton-man-city-hurzeler-momentum/
+**What a Trump Presidency Might Mean for Mayor Adams’s Criminal Case**\
+`Would Donald J. Trump come to the aid of Mayor Eric Adams of New York, an embattled Democrat indicted on federal corruption charges?`\
+https://nytimes.com/2024/11/10/nyregion/adams-trump-prosecution-election.html
 
-**Rutherford: Third period of Blues' loss to Caps was the worst effort I've seen in 20 years**\
-`St. Louis has lost by a score of 8-1 twice in just 12 days, to Ottawa and Washington. `\
-https://nytimes.com/athletic/5910835/2024/11/10/blues-capitals-third-period-effort/
+**‘I Can Still Recall One Subway Ride I Took After Moving to New York’**\
+`A trip with an unusual passenger, voices from a Brooklyn past and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/11/10/nyregion/metropolitan-diary.html
 
-**Elias Pettersson's spark, and is J.T. Miller's line in trouble? 3 Canucks takeaways**\
-`Coming off one of their most complete performances of the season, the Canucks were lethargic and inept offensively Saturday.`\
-https://nytimes.com/athletic/5910954/2024/11/10/canucks-oilers-jt-miller-elias-pettersson/
+**How Can I Manage a ‘Challenging’ Employee?**\
+`Health issues are affecting a worker’s performance. But is the real problem her supervisor’s handling of the situation?`\
+https://nytimes.com/2024/11/10/business/employee-health-issues-manager-advice.html
 
-**Blue Jackets mistakes exacerbated by slumping offense in loss to L.A. Kings**\
-`Columbus' explosive goal scoring output to start the season seemed too good to be true. Too bad it was.`\
-https://nytimes.com/athletic/5911134/2024/11/10/blue-jackets-lose-to-la-kings/
+**Emma Chamberlain Is Reconsidering Her Dream Job**\
+`The YouTube star has a coffee company, a podcast and a new collaboration with Warby Parker. One thing she isn’t doing much? Posting.`\
+https://nytimes.com/2024/11/10/style/emma-chamberlain-warby-parker.html
 
-**Auburn outlasts Houston one day after altercation grounds team plane**\
-`The win is Auburn’s third over a top-five opponent under coach Bruce Pearl.`\
-https://nytimes.com/athletic/5911189/2024/11/10/auburn-houston-plane-altercation/
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/10/crosswords/spelling-bee-forum.html
 
-**New York State Parks Worker Dies While Fighting Wildfire**\
-`The blaze in Orange County, N.Y., was the latest in a series of recent wildfires in the region.`\
-https://nytimes.com/2024/11/10/nyregion/orange-county-fire-sterling-forest.html
+**When Anna Wintour Let Marc Jacobs Do Her Job**\
+`Vogue has its first guest editor. Just call it “The December Issue.”`\
+https://nytimes.com/2024/11/10/style/anna-wintour-marc-jacobs-vogue.html
 
-**Vikings at Jaguars: How to watch, odds, expert picks for Justin Jefferson in Jacksonville**\
-`Justin Jefferson against a dreadful pass defense is a terrifying matchup for Jacksonville.`\
-https://nytimes.com/athletic/5909124/2024/11/10/vikings-jaguars-how-to-watch-odds-picks-betting/
+**She Was a Child Instagram Influencer. Her Fans Were Grown Men.**\
+`“Jacky Dejo” was introduced to social media by her parents as a snowboarding prodigy. Now 18, she has seen the dark side of the internet — and turned a profit from it.`\
+https://nytimes.com/2024/11/10/us/child-influencer.html
 
