@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Power play stays hot in victory over Canadiens**\
+`Toronto did what it was supposed to do against a team at the bottom of the division in a 4-1 win over Montreal.`\
+https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-analysis/
+
 **Ole Miss fans carried out the goal posts — and the Rebels could be Playoff-bound**\
 `Ole Miss, a program with high ambitions, which looked poised to not reach them again, deserves to celebrate. `\
 https://nytimes.com/athletic/5910936/2024/11/09/ole-miss-georgia-playoff-celebration/
