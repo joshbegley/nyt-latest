@@ -1,3 +1,11 @@
+**Russia Says It Shot Down Waves of Drones Above Moscow**\
+`Officials said that more than 30 drones had been intercepted over suburban areas of the Russian capital in what was the biggest such attack since the invasion of Ukraine in 2022.`\
+https://nytimes.com/2024/11/10/world/europe/moscow-drone-attack-ukraine-russia.html
+
+**Week 11 CFP race lessons: Mizzou in the 'Playoff hunt'? One-bid ACC?**\
+`In Week 11, we learned that using the phrase “if they win out” is fraught with peril and the SEC seems to be headed for a massive logjam.`\
+https://nytimes.com/athletic/5911284/2024/11/10/college-football-playoff-projections-missouri-miami/
+
 **Mandel's Final Thoughts: Alabama got its act together and looks Playoff bound ... again**\
 `While the Crimson Tide beat LSU, two top-five teams lost on Saturday and shook up the College Football Playoff race.`\
 https://nytimes.com/athletic/5911325/2024/11/10/alabama-lsu-college-football-week-11-takeaways-mandel/
