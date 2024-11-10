@@ -1,3 +1,7 @@
+**Arteta expects Saka, Rice to miss England games**\
+`Mikel Arteta says he does not expect Bukayo Saka or Declan Rice to be fit for England&#8217;s upcoming Nations League games after they were forced off during Arsenal&#8217;s 1-1 draw with Chelsea on Sunday.`\
+https://nytimes.com/athletic/5912286/2024/11/10/saka-rice-arsenal-injury-england/
+
 **As Trump Returns to Power, Allies and Adversaries Expect a Wave of Revenge**\
 `President-elect Donald J. Trump’s momentary talk of unity on election night may underestimate the depth of his resentment after multiple impeachments, investigations, indictments and lawsuits.`\
 https://nytimes.com/2024/11/10/us/politics/trump-enemies-prosecution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908786/2024/11/10/chelsea-arsenal-result-report-an
 **Panthers stave off Giants with 20-17 OT victory in Germany: Takeaways**\
 `With the win in the 2024 International Series finale, the Panthers improve to 3-8 while the Giants drop to 2-8.`\
 https://nytimes.com/athletic/5911723/2024/11/10/giants-panthers-score-result-takeaways-nfl-germany/
-
-**What Is Paul Taylor Without Paul Taylor? Full of Bumps.**\
-`The Taylor company returns to Lincoln Center with four premieres and a new resident choreographer: Robert Battle, the former director of Alvin Ailey.`\
-https://nytimes.com/2024/11/10/arts/dance/paul-taylor-premieres.html
 
