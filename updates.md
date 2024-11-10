@@ -1,3 +1,11 @@
+**Bobby Allison, Hall of Fame NASCAR Driver, Is Dead at 86**\
+`A three-time winner of the Daytona 500, he was ranked as one of NASCAR’s greatest drivers, with 84 victories. But his career was marred by tragedy and injuries.`\
+https://nytimes.com/2024/11/09/sports/autoracing/bobby-allison-dead.html
+
+**College Football Playoff 2024 projections: Where bracket stands after Miami, Georgia losses**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
+
 **Colorado rallies past Texas Tech, takes another step toward CFP**\
 `The Buffaloes are in sole possession of second place in the Big 12 and in position to play in the league title game.`\
 https://nytimes.com/athletic/5910862/2024/11/09/colorado-texas-tech-deion-sanders-playoff/

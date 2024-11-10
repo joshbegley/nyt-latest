@@ -1,3 +1,11 @@
+**Bobby Allison, Hall of Fame NASCAR Driver, Is Dead at 86**\
+`A three-time winner of the Daytona 500, he was ranked as one of NASCAR’s greatest drivers, with 84 victories. But his career was marred by tragedy and injuries.`\
+https://nytimes.com/2024/11/09/sports/autoracing/bobby-allison-dead.html
+
+**College Football Playoff 2024 projections: Where bracket stands after Miami, Georgia losses**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
+
 **Colorado rallies past Texas Tech, takes another step toward CFP**\
 `The Buffaloes are in sole possession of second place in the Big 12 and in position to play in the league title game.`\
 https://nytimes.com/athletic/5910862/2024/11/09/colorado-texas-tech-deion-sanders-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909074/2024/11/09/manchester-united-leicester-city
 **NYCFC advances to Eastern Conference semifinals after 9-round penalty-kick shootout**\
 `NYCFC will host its rival, the New York Red Bulls, in an Eastern Conference semifinal.`\
 https://nytimes.com/athletic/5910767/2024/11/09/nycfc-fc-cincinnati-mls-cup-playoffs/
-
-**NASCAR Hall of Famer Bobby Allison dies at 86**\
-`Allison won three Daytona 500s (1978, ’82, ’88), the 1983 Cup championship and '85 Cup races during his Hall of Fame career.`\
-https://nytimes.com/athletic/5910760/2024/11/09/bobby-allison-dies-nascar/
-
-**Indiana's Cinderella run reaches 10-0 for first time after rare win against Michigan**\
-`Indiana kept its unlikely undefeated season going with a 20-15 win against Michigan despite being limited to 18 second-half yards.`\
-https://nytimes.com/athletic/5910591/2024/11/09/indiana-michigan-football-score-recap/
 
