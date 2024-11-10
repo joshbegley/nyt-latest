@@ -1,3 +1,7 @@
+**Elias Pettersson's spark, and is J.T. Miller's line in trouble? 3 Canucks takeaways**\
+`Coming off one of their most complete performances of the season, the Canucks were lethargic and inept offensively Saturday.`\
+https://nytimes.com/athletic/5910954/2024/11/10/canucks-oilers-jt-miller-elias-pettersson/
+
 **Elias Pettersson's spark, and is J.T. Miller's line in trouble? 3 takeaways**\
 `Coming off one of their most complete performances of the season, the Canucks were lethargic and inept offensively Saturday.`\
 https://nytimes.com/athletic/5910954/2024/11/10/canucks-oilers-jt-miller-elias-pettersson/
