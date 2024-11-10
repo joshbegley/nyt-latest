@@ -1,3 +1,11 @@
+**Ole Miss fans carried out the goal posts — and the Rebels could be Playoff-bound**\
+`Ole Miss, a program with high ambitions, which looked poised to not reach them again, deserves to celebrate. `\
+https://nytimes.com/athletic/5910936/2024/11/09/ole-miss-georgia-playoff-celebration/
+
+**Atlanta United knocks Inter Miami and Messi out of MLS Cup Playoffs**\
+`Lionel Messi and Miami exit the MLS playoffs in the first round.`\
+https://nytimes.com/athletic/5910952/2024/11/09/inter-miami-messi-eliminated-mls-cup-playoffs/
+
 **Tennessee's Iamaleava leaves vs. Mississippi State with upper-body injury**\
 `It wasn’t immediately clear on which play the injury occurred, and the broadcast said Iamaleava was not expected to return to the game.`\
 https://nytimes.com/athletic/5910930/2024/11/09/nico-iamaleava-injury-tennessee-mississippi-state/
