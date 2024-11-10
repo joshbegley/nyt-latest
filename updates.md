@@ -1,3 +1,7 @@
+**Blue Jackets mistakes exacerbated by slumping offense in 5-2 loss to L.A. Kings**\
+`Columbus' explosive goal scoring output to start the season seemed too good to be true. Too bad it was.`\
+https://nytimes.com/athletic/5911134/2024/11/10/blue-jackets-lose-to-la-kings/
+
 **Auburn outlasts Houston one day after altercation grounds team plane**\
 `The win is Auburn’s third over a top-five opponent under coach Bruce Pearl.`\
 https://nytimes.com/athletic/5911189/2024/11/10/auburn-houston-plane-altercation/

@@ -1,3 +1,7 @@
+**Blue Jackets mistakes exacerbated by slumping offense in 5-2 loss to L.A. Kings**\
+`Columbus' explosive goal scoring output to start the season seemed too good to be true. Too bad it was.`\
+https://nytimes.com/athletic/5911134/2024/11/10/blue-jackets-lose-to-la-kings/
+
 **Auburn outlasts Houston one day after altercation grounds team plane**\
 `The win is Auburn’s third over a top-five opponent under coach Bruce Pearl.`\
 https://nytimes.com/athletic/5911189/2024/11/10/auburn-houston-plane-altercation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5907144/2024/11/10/49ers-buccaneers-how-to-watch-od
 **Ranking and rating Leeds's four substitutes from their 2-0 win over QPR**\
 `Farke's four substitutes all came on and made a point by adding to the havoc of the final 15 minutes. The Athletic has graded their impact`\
 https://nytimes.com/athletic/5910056/2024/11/10/leeds-qpr-substitutes-piroe-guilavogui-james-schmidt/
-
-**Falcons at Saints: How to watch, odds, picks with Atlanta favored in NFC South clash**\
-`Kirk Cousins and the Falcons offense are clicking of late. Atlanta is favored to win in New Orleans this weekend.`\
-https://nytimes.com/athletic/5906894/2024/11/10/falcons-saints-how-to-watch-odds-picks-betting/
 
