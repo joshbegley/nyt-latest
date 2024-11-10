@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5909152/2024/11/09/winnipeg-jets-record-start/
 `She became an international star as a member of the company and later directed it, guiding it out of debt and boosting its popularity.`\
 https://nytimes.com/2024/11/09/arts/dance/judith-jamison-dead.html
 
-**At Women’s March Event, Organizers Say They Are Preparing a ‘Comeback Tour’**\
-`At a demonstration on Saturday, the crowd was small and enthusiasm was lacking. But organizers are planning a big march ahead of the inauguration.`\
-https://nytimes.com/2024/11/09/us/politics/womens-march-trump-future.html
+**Women’s March Holds Rally in Washington**\
+`A few hundred people showed up to the Women’s March protest and dance party in Washington. The goal of the event was to reinvigorate the organization’s progressive base after the election.`\
+https://nytimes.com/video/us/politics/100000009817648/womens-march-washington.html
 

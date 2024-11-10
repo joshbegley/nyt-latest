@@ -1,3 +1,7 @@
+**Women’s March Holds Rally in Washington**\
+`A few hundred people showed up to the Women’s March protest and dance party in Washington. The goal of the event was to reinvigorate the organization’s progressive base after the election.`\
+https://nytimes.com/video/us/politics/100000009817648/womens-march-washington.html
+
 **Four signs of progress during Sabres' latest 3-game winning streak**\
 `The Sabres' 3-2 shootout win over the Flames wasn't pretty, but it extended their winning streak and improved their record to 7-7-1.`\
 https://nytimes.com/athletic/5910636/2024/11/09/sabres-flames-winning-streak/
