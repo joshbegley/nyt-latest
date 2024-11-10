@@ -1,3 +1,11 @@
+**As Trump Returns to Power, Allies and Adversaries Expect a Wave of Revenge**\
+`President-elect Donald J. Trump’s momentary talk of unity on election night may underestimate the depth of his resentment after multiple impeachments, investigations, indictments and lawsuits.`\
+https://nytimes.com/2024/11/10/us/politics/trump-enemies-prosecution.html
+
+**Wildfires Spread Across Northeastern U.S. Amid Drought**\
+`Firefighters in New York, New Jersey, Massachusetts and Connecticut battled hundreds of blazes during an unseasonably dry fall.`\
+https://nytimes.com/video/weather/100000009818664/wildfires-northeast-us.html
+
 **NFL Week 10 inactives and fantasy tips: Will Levis back from injury, starting vs. Chargers**\
 `Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
 https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
