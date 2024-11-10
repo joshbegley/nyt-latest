@@ -1,3 +1,7 @@
+**Taiwan Sees a Higher Price for U.S. Support as Trump Returns to Power**\
+`The president-elect’s call for Taiwan to spend more on its own defense and his complaints about its semiconductor dominance may herald a tenser relationship.`\
+https://nytimes.com/2024/11/10/world/asia/taiwan-sees-a-higher-price-for-us-support-as-trump-returns-to-power.html
+
 **Once China’s ‘Worst Nightmare,’ Labor Activist Refuses to Back Down**\
 `Neither jail nor exile to Hong Kong have stopped Han Dongfang, a former Tiananmen Square protest leader, from championing workers’ rights. “If you’re born stubborn, you go everywhere stubborn.”`\
 https://nytimes.com/2024/11/10/world/asia/china-labor-rights-han-dongfang.html

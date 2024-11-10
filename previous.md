@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/10/world/asia/china-labor-rights-han-dongfang.html
 
 **Taiwan Sees a Higher Price for U.S. Support as Trump Returns to Power**\
-`The president-elect’s call for Taiwan to spend more on its own defense and his complaints about its semiconductor dominance may herald a turbulent relationship.`\
+`The president-elect’s call for Taiwan to spend more on its own defense and his complaints about its semiconductor dominance may herald a tenser relationship.`\
 https://nytimes.com/2024/11/10/world/asia/taiwan-sees-a-higher-price-for-us-support-as-trump-returns-to-power.html
 
 **Chelsea vs Arsenal preview: Storylines, odds, prediction for match with top 4 implications**\
