@@ -1,3 +1,7 @@
+**One Escaped Monkey of 43 Is Captured in South Carolina**\
+`The monkeys escaped after a worker at a research center left an enclosure unlocked. One monkey was captured Saturday while the rest remain at large.`\
+https://nytimes.com/2024/11/10/us/monkey-captured-south-carolina.html
+
 **Haitian Prime Minister Is Fired, Adding to the Nation’s Turmoil**\
 `As killings and hunger soar in Haiti, a political power struggle has cost the prime minister his job, another setback for a country plagued by gang violence.`\
 https://nytimes.com/2024/11/10/us/haiti-prime-minister-garry-conille-fired.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912329/2024/11/10/kennesaw-state-football-coach-br
 **As Wildfire Burns in New Jersey and New York, Rain Offers Little Relief**\
 `The fire, the latest of several in the region over the weekend, had caused one death and was not contained as of Sunday afternoon, officials said.`\
 https://nytimes.com/2024/11/10/nyregion/wildfires-ny-nj-drought.html
-
-**2 New York Men Charged in Monthslong Plot to Kill Iranian Activist**\
-`The men were receiving orders from a third man, who was working as an Iranian operative and was also involved in a plot to assassinate Donald J. Trump, federal prosecutors said.`\
-https://nytimes.com/2024/11/10/nyregion/iran-assassination-plot-masih-alinejad.html
 
