@@ -1,3 +1,11 @@
+**A Sex Strike Is a Losing Strategy for American Women**\
+`The philosophy is shortsighted and insufficient for our times.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/4b-movement-south-korea-trump
+
+**Unexpected Clarity From a Life Upended**\
+`We are lost without human connection.`\
+https://nytimes.com/2024/11/10/opinion/diagnosis-clarity-cancer-illness.html
+
 **Canadiens are not good enough, and the worst part is they don’t know it**\
 `The Canadiens, despite incremental gains to their collective game, consistently find a way a way to continue losing.`\
 https://nytimes.com/athletic/5911161/2024/11/10/canadiens-loss-maple-leafs/

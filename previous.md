@@ -1,3 +1,11 @@
+**A Sex Strike Is a Losing Strategy for American Women**\
+`The philosophy is shortsighted and insufficient for our times.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/4b-movement-south-korea-trump
+
+**Unexpected Clarity From a Life Upended**\
+`We are lost without human connection.`\
+https://nytimes.com/2024/11/10/opinion/diagnosis-clarity-cancer-illness.html
+
 **Canadiens are not good enough, and the worst part is they don’t know it**\
 `The Canadiens, despite incremental gains to their collective game, consistently find a way a way to continue losing.`\
 https://nytimes.com/athletic/5911161/2024/11/10/canadiens-loss-maple-leafs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5865944/2024/11/10/alberth-elis-coma-interview/
 **Man City and Pep Guardiola have lost four in a row. How much should they panic?**\
 `After the international break, City face Tottenham and Liverpool. The big question is how quickly injured players can get back up to speed`\
 https://nytimes.com/athletic/5910465/2024/11/10/man-city-pep-guardiola-defeats/
-
-**Broncos at Chiefs: How to watch, odds, expert picks as Kansas City favored to stay undefeated**\
-`The Chiefs play their first divisional home game in pursuit of a perfect season.`\
-https://nytimes.com/athletic/5906867/2024/11/10/broncos-chiefs-how-to-watch-odds-picks-betting/
-
-**The Premier League's great entertainers are 10th in the table**\
-`Brentford's matches this season average four goals per game. They are surprising their own manager – and certainly surprising everyone else`\
-https://nytimes.com/athletic/5910083/2024/11/10/premier-league-goals-entertainment/
 
