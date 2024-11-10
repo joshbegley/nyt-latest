@@ -1,7 +1,3 @@
-**Chelsea squad could finish 1st and 2nd in WSL - Beard**\
-`Liverpool manager Matt Beard believes Chelsea have grown stronger since the arrival of Sonia Bompastor in the summer, claiming the squad could be split into two Women’s Super League (WSL) teams and &#8220;finish first and second&#8221;.`\
-https://nytimes.com/athletic/5911819/2024/11/10/chelsea-womens-super-league-squad-matt-beard/
-
 **The Briefing: Spurs 1 Ipswich 2: Spurs still inconsistent? Conceding first issue?**\
 `Tottenham Hotspur fell to a shock 2-1 defeat against Ipswich Town on Sunday afternoon`\
 https://nytimes.com/athletic/5908785/2024/11/10/tottenham-hotspur-ipswich-town-result-report-analysis/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5906319/2024/11/10/live-qa-week-10-fantasy-football
 **SEC championship and tiebreaker update: Why it all matters now**\
 `What we’ve seen so far indicates more upsets are coming, which could help clear up the SEC logjam … or maybe not.`\
 https://nytimes.com/athletic/5911581/2024/11/10/sec-championship-tiebreaker-scenarios/
+
+**Jaguars' Lawrence out vs. Vikings, could miss rest of season**\
+`With Lawrence out, Mac Jones is expected to start at quarterback against Minnesota.`\
+https://nytimes.com/athletic/5911582/2024/11/10/trevor-lawrence-injury-jaguars/
 
