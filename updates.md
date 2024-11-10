@@ -1,3 +1,11 @@
+**NFL Week 10 inactives and fantasy tips: Christian McCaffrey, Deebo Samuel active in Week 10**\
+`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
+https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
+
+**Map: 5.9-Magnitude Earthquake Strikes Near Cuba**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/11/10/world/americas/quake-tracker-cuba.html
+
 **Map: 5.9-Magnitude Earthquake Strikes Near Cuba**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/11/10/world/americas/10wea-quake-tracker-cuba.html

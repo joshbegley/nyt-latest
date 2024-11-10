@@ -1,6 +1,10 @@
+**NFL Week 10 inactives and fantasy tips: Christian McCaffrey, Deebo Samuel active in Week 10**\
+`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
+https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
+
 **Map: 5.9-Magnitude Earthquake Strikes Near Cuba**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/11/10/world/americas/10wea-quake-tracker-cuba.html
+https://nytimes.com/interactive/2024/11/10/world/americas/quake-tracker-cuba.html
 
 **What's Babe Ruth's rookie card? Originally a means to getting a free jump rope**\
 `Now highly valuable, Babe Ruth's earliest trading cards originally served other purposes`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908783/2024/11/10/manchester-united-van-nistelrooy
 **Until Saturday: College football gets weird, plus Playoff predictions for Tuesday**\
 `Welcome to Until Saturday, the five-star college football newsletter: Upsets, squirrels, tortillas and more in college football's Week 11.`\
 https://nytimes.com/athletic/5910950/2024/11/10/college-football-week-11-playoff-predictions-until-saturday/
-
-**Pochettino calls up USMNT roster for Nations League, including Weah, Richards**\
-`U.`\
-https://nytimes.com/athletic/5911668/2024/11/10/usmnt-roster-nations-league-weah-richards/
 
