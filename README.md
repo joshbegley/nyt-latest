@@ -1,3 +1,11 @@
+**NYCFC advances to Eastern Conference semifinals after 9-round penalty kick shootout**\
+`NYCFC will host its rival, the New York Red Bulls, in an Eastern Conference semifinal.`\
+https://nytimes.com/athletic/5910767/2024/11/09/nycfc-fc-cincinnati-mls-cup-playoffs/
+
+**NASCAR Hall of Famer Bobby Allison dies at 86**\
+`Allison won three Daytona 500s (1978, ’82, ’88), the 1983 Cup championship and '85 Cup races during his Hall of Fame career.`\
+https://nytimes.com/athletic/5910760/2024/11/09/bobby-allison-dies-nascar/
+
 **Indiana's Cinderella run reaches 10-0 for first time after rare win against Michigan**\
 `Indiana kept its unlikely undefeated season going with a 20-15 win against Michigan despite being limited to 18 second-half yards.`\
 https://nytimes.com/athletic/5910591/2024/11/09/indiana-michigan-football-score-recap/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/09/us/militia-border-convictions.html
 **Jets achieve best start in NHL history at 14-1-0**\
 `The Jets are off to the best 15-game start in NHL history, winning 14 of their first 15 games to build a record of 14-1-0.`\
 https://nytimes.com/athletic/5909152/2024/11/09/winnipeg-jets-record-start/
-
-**Judith Jamison, Alvin Ailey Dancer of ‘Power and Radiance,’ Dies at 81**\
-`She became an international star as a member of the company and later directed it, guiding it out of debt and boosting its popularity.`\
-https://nytimes.com/2024/11/09/arts/dance/judith-jamison-dead.html
-
-**Women’s March Holds Rally in Washington**\
-`A few hundred people showed up to the Women’s March protest and dance party in Washington. The goal of the event was to reinvigorate the organization’s progressive base after the election.`\
-https://nytimes.com/video/us/politics/100000009817648/womens-march-washington.html
 
