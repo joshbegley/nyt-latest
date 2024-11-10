@@ -1,3 +1,11 @@
+**The Bears offense is broken. They can't afford to let it break Caleb Williams, too**\
+`The Bears were supposed to be ready for their rookie quarterback this time, but we're seeing the same ugly pattern repeat itself.`\
+https://nytimes.com/athletic/5913051/2024/11/10/bears-caleb-williams-broken-offense-patriots/
+
+**Giants to 'evaluate' at QB after Daniel Jones' struggles vs. Panthers**\
+`"We got a lot of work to do here in the next few days ... we'll evaluate where we're at and what we need to do," coach Brian Daboll said.`\
+https://nytimes.com/athletic/5913036/2024/11/10/giants-quarterback-daniel-jones-brian-daboll/
+
 **Florida men's basketball coach Todd Golden will continue to coach amid investigation**\
 `Golden acknowledged the university’s investigation Saturday and said that he has been participating in the inquiry over the last month.`\
 https://nytimes.com/athletic/5913110/2024/11/10/todd-golden-florida-sexual-harassment-coach/
