@@ -1,40 +1,40 @@
-**Calling All Misfits: When Greenwich Village Conquered the Music Scene**\
-`In his latest book, the Rolling Stone writer David Browne tracks three decades of folk, blues, rock and jazz below 14th Street.`\
-https://nytimes.com/2024/11/10/books/review/talkin-greenwich-village-david-browne.html
+**50,000 Russian and North Korean Troops Mass Ahead of Attack, U.S. Says**\
+`Ukrainian officials expect a counteroffensive in western Russia to begin in the coming days as North Korea’s troops train with Russian forces.`\
+https://nytimes.com/2024/11/10/us/politics/russia-north-korea-troops-ukraine.html
 
-**A Real Estate Queen and the Secret She Couldn’t Keep Hidden**\
-`Alice Mason was New York City’s broker to the elite and a master at the art of hosting. One fête would alter her legacy and strain her relationship with her daughter.`\
-https://nytimes.com/2024/11/10/realestate/a-real-estate-queen-and-the-secret-she-couldnt-keep-hidden.html
+**Was Martha Stewart Really the Original Influencer?**\
+`The new Netflix documentary “Martha” examines the homemaking diva’s illustrious, and complicated, career and personal life.`\
+https://nytimes.com/2024/11/10/style/martha-stewart-netflix-documentary-influencer.html
 
-**Joan Didion and Eve Babitz: Contemporaries, Peers, Rivals — and Soul Mates?**\
-`In a dual biography, the journalist Lili Anolik casts the two writers as opposite sides of the same ambitious, 1960s-Hollywood coin.`\
-https://nytimes.com/2024/11/10/books/review/didion-babitz-lili-anolik.html
+**Unions Bet Big on Harris. Now They’re Bracing for Consequences.**\
+`Government unions, service worker unions and industrial unions all face possible repercussions from Donald Trump’s victory, but not necessarily all the same kind.`\
+https://nytimes.com/2024/11/10/us/politics/trump-unions.html
 
-**A Heady History of the Novel Embraces Works That Shock, Not Soothe**\
-`In “Stranger Than Fiction,” Edwin Frank maps a path from Dostoyevsky to Sebald, finding mystical power and surprising ties among 20th-century writers.`\
-https://nytimes.com/2024/11/10/books/review/stranger-than-fiction-edwin-frank.html
+**The White House Will Be Shedding Its Union Label**\
+`After gains by organized labor under President Biden, a second Trump administration is likely to change course on regulation and enforcement.`\
+https://nytimes.com/2024/11/10/business/economy/trump-biden-labor-unions.html
 
-**Eagles at Cowboys: How to watch, odds, expert picks with Dak Prescott out for rivalry matchup**\
-`Jalen Hurts and Co. are heavy favorites to win in Dallas against a team without its franchise QB.`\
-https://nytimes.com/athletic/5909388/2024/11/10/eagles-cowboys-how-to-watch-odds-picks-betting/
+**Immigration Lawyers Prepare to Battle Trump in Court Again**\
+`Nearly eight years after the first challenges to his immigration policies, Donald Trump is returning to the White House promising a more aggressive crackdown.`\
+https://nytimes.com/2024/11/10/us/trump-immigration-court-lawsuits.html
 
-**Titans at Chargers: How to watch, odds, expert picks with LA rolling**\
-`The Chargers have won three of their last four and take on a struggling Titans offense at home. `\
-https://nytimes.com/athletic/5909361/2024/11/10/titans-chargers-how-to-watch-odds-picks-betting/
+**Missing in Europe: A Strong Leader for a New Trump Era**\
+`Internal political squabbles — and the fallout from a global backlash to inflation, immigration and ruling elites — are hobbling Germany and France.`\
+https://nytimes.com/2024/11/10/world/europe/missing-in-europe-a-strong-leader-for-a-new-trump-era.html
 
-**Immanuel Quickley is back to help save the Raptors' half-court offence**\
-`The Raptors lost again, but Quickley's return should animate the Raptors when their offence bogs down. `\
-https://nytimes.com/athletic/5911285/2024/11/10/raptors-immanuel-quickley-is-back/
+**Palestinians Try to Sway Trump, Reaching Out to Tiffany Trump’s Relative**\
+`The Palestinian leader Mahmoud Abbas has met with Tiffany Trump’s father-in-law and written conciliatory letters to the president-elect, a strong supporter of Israel.`\
+https://nytimes.com/2024/11/10/world/middleeast/trump-palestinians-abbas-gaza-war.html
 
-**Quote of the Day: A Child Influencer Whose Avid Fans Were Men**\
-`Quotation of the Day for Sunday, November 10, 2024.`\
-https://nytimes.com/2024/11/10/pageoneplus/quote-of-the-day-a-child-influencer-whose-avid-fans-were-men.html
+**Still Freddy After All These Years**\
+`With the release of “A Nightmare on Elm Street” 40 years ago, the horror villain Freddy Krueger clawed his way to becoming a pop culture phenomenon.`\
+https://nytimes.com/2024/11/10/movies/freddy-krueger-nightmare-on-elm-street-anniversary.html
 
-**Unions on Strike and a Newspaper on Pause**\
-`The New York Times and the unions representing its workers have had a handful of labor disputes, including one that left the city without The Times for 114 days.`\
-https://nytimes.com/2024/11/10/insider/new-york-times-strike.html
+**For Older Unmarried Couples, Caregiving Obligations Can Be Murky**\
+`What should be expected of an intimate partner when a companion suffers a health crisis? Seniors and their families increasingly confront the question.`\
+https://nytimes.com/2024/11/10/health/for-older-unmarried-couples-caregiving-obligations-can-be-murky.html
 
-**Hochul, in Unwanted Position, Says She Is Ready to Work With Trump**\
-`While other big state Democrats are reviving the resistance, Gov. Kathy Hochul of New York says she is open to working with Donald J. Trump where possible.`\
-https://nytimes.com/2024/11/10/nyregion/hochul-trump-ny.html
+**To Help Fund Stadium, Bills Fans Buy Bonds ‘With an Attitude’**\
+`Critics of using public money to build sports facilities dismissed the bond sale, but some of the team’s devoted followers eagerly paid in.`\
+https://nytimes.com/2024/11/10/business/buffalo-bills-stadium-municipal-bonds.html
 
