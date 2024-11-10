@@ -1,3 +1,7 @@
+**Patriots, Drake Maye knock off Bears, Caleb Williams: Takeaways**\
+`Chicago has lost three games in a row and has scored one touchdown in two weeks.`\
+https://nytimes.com/athletic/5911857/2024/11/10/patriots-bears-score-takeaways-result/
+
 **In Roki Sasaki sweepstakes, could Yu Darvish and A.J. Preller be difference makers for Padres?**\
 `Every team would like to land Sasaki. Can his relationship with Darvish, and Darvish's admiration of Preller, give the Padres an edge?`\
 https://nytimes.com/athletic/5912593/2024/11/10/roki-sasaki-padres-yu-darvish-aj-preller/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912286/2024/11/10/saka-rice-arsenal-injury-england
 **As Trump Returns to Power, Allies and Adversaries Expect a Wave of Revenge**\
 `President-elect Donald J. Trump’s momentary talk of unity on election night may underestimate the depth of his resentment after multiple impeachments, investigations, indictments and lawsuits.`\
 https://nytimes.com/2024/11/10/us/politics/trump-enemies-prosecution.html
-
-**Wildfires Spread Across Northeastern U.S. Amid Drought**\
-`Firefighters in New York, New Jersey, Massachusetts and Connecticut battled hundreds of blazes during an unseasonably dry fall.`\
-https://nytimes.com/video/weather/100000009818664/wildfires-northeast-us.html
 
