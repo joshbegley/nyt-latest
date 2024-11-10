@@ -2,8 +2,8 @@
 `The Nittany Lions beat Washington 35-6 and held the Huskies without a touchdown. `\
 https://nytimes.com/athletic/5911040/2024/11/09/penn-state-washington-score-analysis-college-football/
 
-**Indiana edges Michigan to reach 10 wins, likely the Playoff and wants more: What is this world?**\
-`Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things?”`\
+**Indiana edges Michigan to reach 10 wins, likely Playoff and wants more: What is this world?**\
+`Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things”?`\
 https://nytimes.com/athletic/5911024/2024/11/09/indiana-michigan-curt-cignetti-playoff/
 
 **Notre Dame takeaways after FSU: Imperfect but dominant Irish have Playoff within reach**\
