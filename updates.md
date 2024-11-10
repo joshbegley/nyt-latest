@@ -1,3 +1,15 @@
+**Fernandes supports 'special player' Garnacho after muted goal celebration**\
+`Bruno Fernandes offered his support to Alejandro Garnacho after the Manchester United winger appeared to celebrate his goal against Leicester City in a muted fashion.`\
+https://nytimes.com/athletic/5912072/2024/11/10/garnacho-goal-celebration-bruno-fernandes/
+
+**‘Change the Game’: Saudi Arabia Takes a Stride Into Women’s Tennis**\
+`The kingdom, which has been accused of trying to “sportswash” its human rights record, hosted the WTA Finals, part of its unstoppable advance into the world of sports.`\
+https://nytimes.com/2024/11/10/world/middleeast/saudi-arabia-womens-tennis-association.html
+
+**Alexander-Arnold confident hamstring issue is not serious**\
+`Trent Alexander-Arnold is confident that he isn’t facing a lengthy spell on the sidelines after being forced off in Liverpool’s 2-0 win over Aston Villa at Anfield.`\
+https://nytimes.com/athletic/5911632/2024/11/10/alexander-arnold-injury-latest-liverpool/
+
 **Pereira out for four months with hamstring injury**\
 `Leicester City defender Ricardo Pereira has been ruled out for four months with a hamstring injury.`\
 https://nytimes.com/athletic/5912110/2024/11/10/ricardo-pereira-jamie-vardy-injuries/
