@@ -1,3 +1,7 @@
+**After falling short last week, Penn State finds answers in win against Washington**\
+`The Nittany Lions beat Washington 35-6 and held the Huskies without a touchdown. `\
+https://nytimes.com/athletic/5911040/2024/11/09/penn-state-washington-score-analysis-college-football/
+
 **Indiana edges Michigan to reach 10 wins, likely the Playoff and wants more: What is this world?**\
 `Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things?”`\
 https://nytimes.com/athletic/5911024/2024/11/09/indiana-michigan-curt-cignetti-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910930/2024/11/09/nico-iamaleava-injury-tennessee-
 **Donald Trump Wins Arizona, Reversing the State’s Blue Trend**\
 `The victory added to the list of battleground states that Mr. Trump lost in 2020 and flipped back four years later.`\
 https://nytimes.com/2024/11/09/us/politics/arizona-election-harris-trump.html
-
-**Corrections: Nov. 10, 2024**\
-`Corrections that appeared in print on Sunday, Nov. 10, 2024.`\
-https://nytimes.com/2024/11/09/pageoneplus/corrections-nov-10-2024.html
 
