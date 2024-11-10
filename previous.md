@@ -1,3 +1,7 @@
+**Jets at Cardinals: How to watch, odds, expert picks for one of Sunday's tightest games**\
+`The 5-4 Cardinals and 3-6 Jets both need wins this week and the spread predicts a close matchup.`\
+https://nytimes.com/athletic/5909435/2024/11/10/jets-cardinals-how-to-watch-odds-picks-betting/
+
 **50,000 Russian and North Korean Troops Mass Ahead of Attack, U.S. Says**\
 `Ukrainian officials expect a counteroffensive in western Russia to begin in the coming days as North Korea’s troops train with Russian forces.`\
 https://nytimes.com/2024/11/10/us/politics/russia-north-korea-troops-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/movies/freddy-krueger-nightmare-on-elm-street-ann
 **For Older Unmarried Couples, Caregiving Obligations Can Be Murky**\
 `What should be expected of an intimate partner when a companion suffers a health crisis? Seniors and their families increasingly confront the question.`\
 https://nytimes.com/2024/11/10/health/for-older-unmarried-couples-caregiving-obligations-can-be-murky.html
-
-**To Help Fund Stadium, Bills Fans Buy Bonds ‘With an Attitude’**\
-`Critics of using public money to build sports facilities dismissed the bond sale, but some of the team’s devoted followers eagerly paid in.`\
-https://nytimes.com/2024/11/10/business/buffalo-bills-stadium-municipal-bonds.html
 
