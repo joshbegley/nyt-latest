@@ -1,3 +1,15 @@
+**Auburn outlasts Houston one day after altercation grounds team plane**\
+`The win is Auburn’s third over a top-five opponent under coach Bruce Pearl.`\
+https://nytimes.com/athletic/5911189/2024/11/10/auburn-houston-plane-altercation/
+
+**New York State Parks Worker Dies While Fighting Wildfire**\
+`The blaze in Orange County, N.Y., was the latest in a series of recent wildfires in the region.`\
+https://nytimes.com/2024/11/10/nyregion/orange-county-fire-sterling-forest.html
+
+**Vikings at Jaguars: How to watch, odds, expert picks for Justin Jefferson in Jacksonville**\
+`Justin Jefferson against a dreadful pass defense is a terrifying matchup for Jacksonville.`\
+https://nytimes.com/athletic/5909124/2024/11/10/vikings-jaguars-how-to-watch-odds-picks-betting/
+
 **A Sex Strike Is a Losing Strategy for American Women**\
 `The philosophy is shortsighted and insufficient for our times.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/4b-movement-south-korea-trump
