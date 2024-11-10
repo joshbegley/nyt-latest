@@ -2,7 +2,7 @@
 `Liverpool manager Matt Beard believes Chelsea have grown stronger since the arrival of Sonia Bompastor in the summer, claiming the squad could be split into two Women’s Super League (WSL) teams and &#8220;finish first and second&#8221;.`\
 https://nytimes.com/athletic/5911819/2024/11/10/chelsea-womens-super-league-squad-matt-beard/
 
-**The Briefing: Spurs 1 Ipswich 2: Spurs still inconsistent? Conceding first issue?**\
+**The Briefing: Tottenham 1 Ipswich 2: Spurs' inconsistency and slow starts are a big problem**\
 `Tottenham Hotspur fell to a shock 2-1 defeat against Ipswich Town on Sunday afternoon`\
 https://nytimes.com/athletic/5908785/2024/11/10/tottenham-hotspur-ipswich-town-result-report-analysis/
 
