@@ -1,3 +1,7 @@
+**Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
+`McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
+https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-managr/
+
 **Blue Jackets claim defenseman Dante Fabbro off waivers from Nashville**\
 `The former 2016 first-round pick played 315 games for Nashville before Sunday's claim.`\
 https://nytimes.com/athletic/5912873/2024/11/10/blue-jackets-dante-fabbro-waivers-claim-predators/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911921/2024/11/10/steelers-commanders-score-result
 **Amorim to hold talks with Van Nistelrooy over Man Utd future**\
 `Ruben Amorim will talk with Ruud van Nistelrooy about his Manchester United future when he flies in to England on Monday.`\
 https://nytimes.com/athletic/5912807/2024/11/10/ruben-amorim-van-nistelrooy/
-
-**Florida State fires three assistants, including two coordinators**\
-`Coach Mike Norvell dismissed OC Alex Atkins, DC Adam Fuller and wide receivers coach Ron Dugans a day after a 52-3 loss at Notre Dame.`\
-https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defensive-coordinators/
 
