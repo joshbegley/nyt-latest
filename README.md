@@ -1,3 +1,11 @@
+**Patriots at Bears: How to watch, odds, expert picks as Caleb Williams faces Drake Maye**\
+`The first and third overall picks from the 2024 NFL Draft face off in Chicago.`\
+https://nytimes.com/athletic/5904964/2024/11/09/patriots-bears-how-to-watch-odds-picks-betting/
+
+**Missouri beats Oklahoma with late scoop and score, teams combine for 34-point fourth quarter**\
+`Tigers DE Zion Young picked up the ball and ran 17 yards for the game-winning TD after Triston Newson stripped Oklahoma QB Jackson Arnold.`\
+https://nytimes.com/athletic/5911083/2024/11/09/missouris-scoop-and-score-leads-tigers-past-oklahoma-in-wild-finish/
+
 **Jeremy Swayman and Linus Ullmark: 2 average goalies on 2 average teams**\
 `For three years, Swayman and Ullmark made goaltending a position of strength for the Bruins. That is not the case anymore.`\
 https://nytimes.com/athletic/5911031/2024/11/09/bruins-senators-jeremy-swayman-linus-ullmark/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-ana
 **Ole Miss fans carried out the goal posts — and the Rebels could be Playoff-bound**\
 `Ole Miss, a program with high ambitions, which looked poised to not reach them again, deserves to celebrate. `\
 https://nytimes.com/athletic/5910936/2024/11/09/ole-miss-georgia-playoff-celebration/
-
-**Atlanta United knocks Inter Miami and Messi out of MLS Cup Playoffs**\
-`Lionel Messi and top-seeded Miami exit the MLS playoffs in the first round.`\
-https://nytimes.com/athletic/5910952/2024/11/09/inter-miami-messi-eliminated-mls-cup-playoffs/
-
-**Tennessee's Iamaleava leaves vs. Mississippi State with upper-body injury**\
-`It wasn’t immediately clear on which play the injury occurred, and the broadcast said Iamaleava was not expected to return to the game.`\
-https://nytimes.com/athletic/5910930/2024/11/09/nico-iamaleava-injury-tennessee-mississippi-state/
 
