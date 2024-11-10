@@ -1,3 +1,11 @@
+**Oilers, hoping to turn season around again, find another gear and crush Canucks**\
+`Getting a win against Vancouver on the road might have just woken Edmonton from its early-season slumber.`\
+https://nytimes.com/athletic/5911294/2024/11/10/oilers-defeat-canucks/
+
+**Are Liverpool's owners really ready to lose Mohamed Salah?**\
+`Liverpool should enhance the feel-good factor around the club by ending the impasse over Salah's future. Give Mo his dough.`\
+https://nytimes.com/athletic/5910805/2024/11/10/mohamed-salah-liverpool-future/
+
 **How did Alabama get its season back on track at LSU?**\
 `How exactly did it all come together for Alabama at LSU? The Tide were focused on Saturday and are locked in for November.`\
 https://nytimes.com/athletic/5911411/2024/11/10/alabama-football-lsu-kalen-deboer/
