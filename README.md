@@ -1,3 +1,11 @@
+**‘S.N.L.’ Cast Makes Its Case to Stay off Trump’s Enemies List**\
+`The show parodied its own history of mawkish self-seriousness in an episode that often avoided the topic of the presidential election.`\
+https://nytimes.com/2024/11/10/arts/television/saturday-night-live-election-bill-burr.html
+
+**Utah AD rips officials, Big 12 after holding call aids BYU comeback**\
+`A holding penalty on Utah cornerback Zemaiah Vaughn on a fourth-and-10 from BYU’s 9-yard line gave the Cougars new life.`\
+https://nytimes.com/athletic/5911288/2024/11/10/utah-byu-penalty-mark-harlan-officials/
+
 **Senators defence keeps Bruins at bay in much-needed win: 5 takeaways**\
 `Just like the 2023-24 team, Ottawa won its 14th game of the NHL season in overtime. This time at the expense of the Bruins.`\
 https://nytimes.com/athletic/5910734/2024/11/10/senators-bruins-ullmark-defence/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/10/nyregion/orange-county-fire-sterling-forest.html
 **Vikings at Jaguars: How to watch, odds, expert picks for Justin Jefferson in Jacksonville**\
 `Justin Jefferson against a dreadful pass defense is a terrifying matchup for Jacksonville.`\
 https://nytimes.com/athletic/5909124/2024/11/10/vikings-jaguars-how-to-watch-odds-picks-betting/
-
-**A Sex Strike Is a Losing Strategy for American Women**\
-`The philosophy is shortsighted and insufficient for our times.`\
-https://nytimes.com/live/2024/11/07/opinion/thepoint/4b-movement-south-korea-trump
-
-**Unexpected Clarity From a Life Upended**\
-`We are lost without human connection.`\
-https://nytimes.com/2024/11/10/opinion/diagnosis-clarity-cancer-illness.html
 
