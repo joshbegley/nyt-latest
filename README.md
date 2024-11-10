@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-pla
 https://nytimes.com/athletic/5701128/2024/11/10/college-football-playoff-projections-odds/
 
 **'The same people who allow women to play tennis are also torturing the activists'**\
-`The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality.`\
+`The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality`\
 https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
 
 **Israeli Strike in Gaza Kills Over 30 Palestinians, Emergency Services Say**\
