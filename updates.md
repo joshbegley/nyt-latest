@@ -1,3 +1,7 @@
+**No easy answers for Red Wings after dropping below .500**\
+`After being shut out by the Rangers Saturday, the Red Wings' slow start hasn't come with many clear solutions or answers. `\
+https://nytimes.com/athletic/5910975/2024/11/09/red-wings-rangers-season-crossroads/
+
 **Patriots at Bears: How to watch, odds, expert picks as Caleb Williams faces Drake Maye**\
 `The first and third overall picks from the 2024 NFL Draft face off in Chicago.`\
 https://nytimes.com/athletic/5904964/2024/11/09/patriots-bears-how-to-watch-odds-picks-betting/
