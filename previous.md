@@ -1,3 +1,11 @@
+**'The people who allow women to play tennis are also torturing activists': Can WTA really bring change to Saudi Arabia?**\
+`The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality.`\
+https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
+
+**Israeli Strike in Gaza Kills Over 30 Palestinians, Emergency Services Say**\
+`The strike hit a house in the city of Jabaliya, which has repeatedly come under attack as the Israeli military presses an offensive in northern Gaza.`\
+https://nytimes.com/2024/11/10/world/middleeast/gaza-jabaliya-israel.html
+
 **NFL Week 10 inactives and fantasy tips: Adam Thielen still out, Darius Slayton will miss Giants' Munich game**\
 `Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
 https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/5906434/2024/11/10/nfl-week-10-top-storylines-steel
 `Getting a win against Vancouver on the road might have just woken Edmonton from its early-season slumber.`\
 https://nytimes.com/athletic/5911294/2024/11/10/oilers-defeat-canucks/
 
-**Are Liverpool's owners really ready to lose Mohamed Salah?**\
+**Is Liverpool's owner really ready to lose Mohamed Salah?**\
 `Liverpool should enhance the feel-good factor around the club by ending the impasse over Salah's future. Give Mo his dough.`\
 https://nytimes.com/athletic/5910805/2024/11/10/mohamed-salah-liverpool-future/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5911411/2024/11/10/alabama-football-lsu-kalen-deboe
 **Russia Says It Shot Down Waves of Drones Above Moscow**\
 `Officials said that more than 30 drones had been intercepted over suburban areas of the Russian capital in what was the biggest such attack since the invasion of Ukraine in 2022.`\
 https://nytimes.com/2024/11/10/world/europe/moscow-drone-attack-ukraine-russia.html
-
-**Week 11 CFP race lessons: Mizzou in the 'Playoff hunt'? One-bid ACC?**\
-`In Week 11, we learned that using the phrase “if they win out” is fraught with peril and the SEC seems to be headed for a massive logjam.`\
-https://nytimes.com/athletic/5911284/2024/11/10/college-football-playoff-projections-missouri-miami/
-
-**Mandel's Final Thoughts: Alabama got its act together and looks Playoff bound ... again**\
-`While the Crimson Tide beat LSU, two top-five teams lost on Saturday and shook up the College Football Playoff race.`\
-https://nytimes.com/athletic/5911325/2024/11/10/alabama-lsu-college-football-week-11-takeaways-mandel/
 

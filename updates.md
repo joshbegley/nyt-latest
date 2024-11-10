@@ -1,3 +1,15 @@
+**'The people who allow women to play tennis are also torturing activists': Can WTA really bring change to Saudi Arabia?**\
+`The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality.`\
+https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
+
+**Israeli Strike in Gaza Kills Over 30 Palestinians, Emergency Services Say**\
+`The strike hit a house in the city of Jabaliya, which has repeatedly come under attack as the Israeli military presses an offensive in northern Gaza.`\
+https://nytimes.com/2024/11/10/world/middleeast/gaza-jabaliya-israel.html
+
+**Is Liverpool's owner really ready to lose Mohamed Salah?**\
+`Liverpool should enhance the feel-good factor around the club by ending the impasse over Salah's future. Give Mo his dough.`\
+https://nytimes.com/athletic/5910805/2024/11/10/mohamed-salah-liverpool-future/
+
 **There's no evidence Lopetegui should carry on**\
 `Lopetegui is only a few months into a two-year contract, yet his appointment appears to have been an expensive mistake`\
 https://nytimes.com/athletic/5910108/2024/11/10/theres-no-evidence-julen-lopetegui-should-carry-on/
