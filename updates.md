@@ -1,3 +1,7 @@
+**Where did Miami go wrong and what does playoff exit mean for Messi and Martino?**\
+`Atlanta United's 3-2 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
+https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-playoffs/
+
 **College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/10/college-football-playoff-projections-odds/

@@ -1,3 +1,7 @@
+**Where did Miami go wrong and what does playoff exit mean for Messi and Martino?**\
+`Atlanta United's 3-2 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
+https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-playoffs/
+
 **College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/10/college-football-playoff-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911294/2024/11/10/oilers-defeat-canucks/
 **Is Liverpool's owner really ready to lose Mohamed Salah?**\
 `Liverpool should enhance the feel-good factor around the club by ending the impasse over Salah's future. Give Mo his dough.`\
 https://nytimes.com/athletic/5910805/2024/11/10/mohamed-salah-liverpool-future/
-
-**How did Alabama get its season back on track at LSU?**\
-`How exactly did it all come together for Alabama at LSU? The Tide were focused on Saturday and are locked in for November.`\
-https://nytimes.com/athletic/5911411/2024/11/10/alabama-football-lsu-kalen-deboer/
 
