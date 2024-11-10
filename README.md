@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Power play stays hot in victory over Canadiens**\
+`Toronto did what it was supposed to do against a team at the bottom of the division in a 4-1 win over Montreal.`\
+https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-analysis/
+
 **Ole Miss fans carried out the goal posts — and the Rebels could be Playoff-bound**\
 `Ole Miss, a program with high ambitions, which looked poised to not reach them again, deserves to celebrate. `\
 https://nytimes.com/athletic/5910936/2024/11/09/ole-miss-georgia-playoff-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910862/2024/11/09/colorado-texas-tech-deion-sander
 **The Roki Sasaki MLB sweepstakes: Teams to watch and what could influence his decision**\
 `The Dodgers may be perceived as favorites, but league sources note the Mets are well positioned, while the Phillies could be in the mix`\
 https://nytimes.com/athletic/5910744/2024/11/09/roki-sasaki-mlb-teams/
-
-**Travis Hunter tracker: Clutch TD reception helps Colorado continue its playoff push**\
-`Hunter put a couple more highlight-reel plays on his resume, including a key touchdown reception in a comeback win.`\
-https://nytimes.com/athletic/5910818/2024/11/09/travis-hunter-nfl-draft-2025-texas-tech/
 
