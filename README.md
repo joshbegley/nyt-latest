@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Arsenal 1: Big game woes and Neto most dangerous winger**\
+`Chelsea and Arsenal played out a 1-1 draw at Stamford Bridge on Sunday afternoon`\
+https://nytimes.com/athletic/5908786/2024/11/10/chelsea-arsenal-result-report-analysis/
+
 **Panthers stave off Giants with 20-17 OT victory in Germany: Takeaways**\
 `With the win in the 2024 International Series finale, the Panthers improve to 3-8 while the Giants drop to 2-8.`\
 https://nytimes.com/athletic/5911723/2024/11/10/giants-panthers-score-result-takeaways-nfl-germany/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912110/2024/11/10/ricardo-pereira-jamie-vardy-inju
 **Paul Stephenson, 87, Dies; Advanced Britain’s Civil Rights Movement**\
 `The bus boycott and one-man pub sit-in that he led in the mid-1960s helped pave the way for a law outlawing discrimination in public places.`\
 https://nytimes.com/2024/11/10/world/europe/paul-stephenson-dead.html
-
-**Reimagining How to Dress a Pope**\
-`In the film “Conclave,” the costume designer Lisy Christl clothed an army of catty cardinals, from their miters down to their quirky glasses.`\
-https://nytimes.com/2024/11/10/style/conclave-movie-costumes-pope.html
 
