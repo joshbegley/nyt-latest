@@ -1,3 +1,7 @@
+**Colorado rallies past Texas Tech, takes another step toward College Football Playoff**\
+`The Buffaloes are in sole possession of second place in the Big 12 and in position to play in the league title game.`\
+https://nytimes.com/athletic/5910862/2024/11/09/colorado-texas-tech-deion-sanders-playoff/
+
 **The Roki Sasaki MLB sweepstakes: Teams to watch and what could influence his decision**\
 `The Dodgers may be perceived as favorites, but league sources note the Mets are well positioned, while the Phillies could be in the mix`\
 https://nytimes.com/athletic/5910744/2024/11/09/roki-sasaki-mlb-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910760/2024/11/09/bobby-allison-dies-nascar/
 **Indiana's Cinderella run reaches 10-0 for first time after rare win against Michigan**\
 `Indiana kept its unlikely undefeated season going with a 20-15 win against Michigan despite being limited to 18 second-half yards.`\
 https://nytimes.com/athletic/5910591/2024/11/09/indiana-michigan-football-score-recap/
-
-**Four signs of progress during Sabres' latest 3-game winning streak**\
-`The Sabres' 3-2 shootout win over the Flames wasn't pretty, but it extended their winning streak and improved their record to 7-7-1.`\
-https://nytimes.com/athletic/5910636/2024/11/09/sabres-flames-winning-streak/
 
