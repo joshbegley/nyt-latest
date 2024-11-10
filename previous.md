@@ -1,3 +1,19 @@
+**After falling short last week, Penn State finds answers in win against Washington**\
+`The Nittany Lions beat Washington 35-6 and held the Huskies without a touchdown. `\
+https://nytimes.com/athletic/5911040/2024/11/09/penn-state-washington-score-analysis-college-football/
+
+**Indiana edges Michigan to reach 10 wins, likely the Playoff and wants more: What is this world?**\
+`Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things?”`\
+https://nytimes.com/athletic/5911024/2024/11/09/indiana-michigan-curt-cignetti-playoff/
+
+**Notre Dame takeaways after FSU: Imperfect but dominant Irish have Playoff within reach**\
+`Not only did Notre Dame embarrass Florida State 52-3, but it got Playoff help elsewhere with results like Miami's loss to Georgia Tech.`\
+https://nytimes.com/athletic/5911021/2024/11/09/notre-dame-florida-state-score-recap/
+
+**Jalen Milroe, Alabama send LSU to brink of CFP elimination in rout**\
+`Crimson Tide quarterback Jalen Milroe ran for four touchdowns against LSU for the second consecutive season`\
+https://nytimes.com/athletic/5910963/2024/11/09/jalen-milroe-alabama-lsu/
+
 **TSMC Stops Advanced Chip Shipments to Chinese Customers**\
 `The Taiwanese chip giant will halt shipments to Chinese companies after some of its most advanced chips ended up with Huawei.`\
 https://nytimes.com/2024/11/09/business/tsmc-ai-chips-china.html
@@ -11,7 +27,7 @@ https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-ana
 https://nytimes.com/athletic/5910936/2024/11/09/ole-miss-georgia-playoff-celebration/
 
 **Atlanta United knocks Inter Miami and Messi out of MLS Cup Playoffs**\
-`Lionel Messi and Miami exit the MLS playoffs in the first round.`\
+`Lionel Messi and top-seeded Miami exit the MLS playoffs in the first round.`\
 https://nytimes.com/athletic/5910952/2024/11/09/inter-miami-messi-eliminated-mls-cup-playoffs/
 
 **Tennessee's Iamaleava leaves vs. Mississippi State with upper-body injury**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5910930/2024/11/09/nico-iamaleava-injury-tennessee-
 **Donald Trump Wins Arizona, Reversing the State’s Blue Trend**\
 `The victory added to the list of battleground states that Mr. Trump lost in 2020 and flipped back four years later.`\
 https://nytimes.com/2024/11/09/us/politics/arizona-election-harris-trump.html
-
-**Corrections: Nov. 10, 2024**\
-`Corrections that appeared in print on Sunday, Nov. 10, 2024.`\
-https://nytimes.com/2024/11/09/pageoneplus/corrections-nov-10-2024.html
-
-**Bobby Allison, Hall of Fame NASCAR Driver, Is Dead at 86**\
-`A three-time winner of the Daytona 500, he was ranked as one of NASCAR’s greatest drivers, with 84 victories. But his career was marred by tragedy and injuries.`\
-https://nytimes.com/2024/11/09/sports/autoracing/bobby-allison-dead.html
-
-**College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
-
-**Colorado rallies past Texas Tech, takes another step toward CFP**\
-`The Buffaloes are in sole possession of second place in the Big 12 and in position to play in the league title game.`\
-https://nytimes.com/athletic/5910862/2024/11/09/colorado-texas-tech-deion-sanders-playoff/
 

@@ -1,3 +1,23 @@
+**After falling short last week, Penn State finds answers in win against Washington**\
+`The Nittany Lions beat Washington 35-6 and held the Huskies without a touchdown. `\
+https://nytimes.com/athletic/5911040/2024/11/09/penn-state-washington-score-analysis-college-football/
+
+**Indiana edges Michigan to reach 10 wins, likely the Playoff and wants more: What is this world?**\
+`Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things?”`\
+https://nytimes.com/athletic/5911024/2024/11/09/indiana-michigan-curt-cignetti-playoff/
+
+**Notre Dame takeaways after FSU: Imperfect but dominant Irish have Playoff within reach**\
+`Not only did Notre Dame embarrass Florida State 52-3, but it got Playoff help elsewhere with results like Miami's loss to Georgia Tech.`\
+https://nytimes.com/athletic/5911021/2024/11/09/notre-dame-florida-state-score-recap/
+
+**Jalen Milroe, Alabama send LSU to brink of CFP elimination in rout**\
+`Crimson Tide quarterback Jalen Milroe ran for four touchdowns against LSU for the second consecutive season`\
+https://nytimes.com/athletic/5910963/2024/11/09/jalen-milroe-alabama-lsu/
+
+**Atlanta United knocks Inter Miami and Messi out of MLS Cup Playoffs**\
+`Lionel Messi and top-seeded Miami exit the MLS playoffs in the first round.`\
+https://nytimes.com/athletic/5910952/2024/11/09/inter-miami-messi-eliminated-mls-cup-playoffs/
+
 **TSMC Stops Advanced Chip Shipments to Chinese Customers**\
 `The Taiwanese chip giant will halt shipments to Chinese companies after some of its most advanced chips ended up with Huawei.`\
 https://nytimes.com/2024/11/09/business/tsmc-ai-chips-china.html
