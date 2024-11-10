@@ -1,3 +1,7 @@
+**Senators defence keeps Bruins at bay in much-needed win: 5 takeaways**\
+`Just like the 2023-24 team, Ottawa won its 14th game of the NHL season in overtime. This time at the expense of the Bruins.`\
+https://nytimes.com/athletic/5910734/2024/11/10/senators-bruins-ullmark-defence/
+
 **Momentum and courage key to incredible Brighton comeback - how far can Hurzeler take them?**\
 `Hurzeler and his players rose to the biggest challenge of all by coming from behind to beat the side that has won four titles in a row.`\
 https://nytimes.com/athletic/5910178/2024/11/10/brighton-man-city-hurzeler-momentum/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/07/opinion/thepoint/4b-movement-south-korea-tru
 **Unexpected Clarity From a Life Upended**\
 `We are lost without human connection.`\
 https://nytimes.com/2024/11/10/opinion/diagnosis-clarity-cancer-illness.html
-
-**Canadiens are not good enough, and the worst part is they don’t know it**\
-`The Canadiens, despite incremental gains to their collective game, consistently find a way a way to continue losing.`\
-https://nytimes.com/athletic/5911161/2024/11/10/canadiens-loss-maple-leafs/
 
