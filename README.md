@@ -1,3 +1,15 @@
+**Auburn outlasts Houston one day after altercation grounds team plane**\
+`The win is Auburn’s third over a top-five opponent under coach Bruce Pearl.`\
+https://nytimes.com/athletic/5911189/2024/11/10/auburn-houston-plane-altercation/
+
+**New York State Parks Worker Dies While Fighting Wildfire**\
+`The blaze in Orange County, N.Y., was the latest in a series of recent wildfires in the region.`\
+https://nytimes.com/2024/11/10/nyregion/orange-county-fire-sterling-forest.html
+
+**Vikings at Jaguars: How to watch, odds, expert picks for Justin Jefferson in Jacksonville**\
+`Justin Jefferson against a dreadful pass defense is a terrifying matchup for Jacksonville.`\
+https://nytimes.com/athletic/5909124/2024/11/10/vikings-jaguars-how-to-watch-odds-picks-betting/
+
 **A Sex Strike Is a Losing Strategy for American Women**\
 `The philosophy is shortsighted and insufficient for our times.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/4b-movement-south-korea-trump
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5910056/2024/11/10/leeds-qpr-substitutes-piroe-guil
 **Falcons at Saints: How to watch, odds, picks with Atlanta favored in NFC South clash**\
 `Kirk Cousins and the Falcons offense are clicking of late. Atlanta is favored to win in New Orleans this weekend.`\
 https://nytimes.com/athletic/5906894/2024/11/10/falcons-saints-how-to-watch-odds-picks-betting/
-
-**Family, retirement, injury, social media and more - the fears and anxieties of footballers in 2024**\
-`The Athletic has spent weeks talking to players about the issues that cause them concern - this is the result of those conversations`\
-https://nytimes.com/athletic/5888090/2024/11/10/fears-anxieties-players-men-women/
-
-**'I woke from the coma… and didn't remember I was a footballer'**\
-`The Honduras international had to learn to read and write again after a terrible head injury - but now he is targeting a return to the pitch`\
-https://nytimes.com/athletic/5865944/2024/11/10/alberth-elis-coma-interview/
-
-**Man City and Pep Guardiola have lost four in a row. How much should they panic?**\
-`After the international break, City face Tottenham and Liverpool. The big question is how quickly injured players can get back up to speed`\
-https://nytimes.com/athletic/5910465/2024/11/10/man-city-pep-guardiola-defeats/
 
