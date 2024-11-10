@@ -1,3 +1,7 @@
+**The Pulse: 2 top-4 teams go down**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5911981/2024/11/10/georgia-miami-college-football-nfl-the-pulse/
+
 **Notre Dame looks and sounds like a team that is mastering winning**\
 `Saturday night at Notre Dame Stadium felt like a big game without a big opponent, as the Irish trampled Florida State with remarkable ease.`\
 https://nytimes.com/athletic/5912119/2024/11/10/notre-dame-fsu-marcus-freeman-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5879126/2024/11/10/ivan-juric-roma-sacked/
 **NFL Week 10 inactives and fantasy tips: Christian McCaffrey, Deebo Samuel active in Week 10**\
 `Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
 https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
-
-**Map: 5.9-Magnitude Earthquake Strikes Near Cuba**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/11/10/world/americas/quake-tracker-cuba.html
 

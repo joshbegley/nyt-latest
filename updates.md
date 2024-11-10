@@ -1,3 +1,7 @@
+**The Pulse: 2 top-4 teams go down**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5911981/2024/11/10/georgia-miami-college-football-nfl-the-pulse/
+
 **Notre Dame looks and sounds like a team that is mastering winning**\
 `Saturday night at Notre Dame Stadium felt like a big game without a big opponent, as the Irish trampled Florida State with remarkable ease.`\
 https://nytimes.com/athletic/5912119/2024/11/10/notre-dame-fsu-marcus-freeman-playoff/
