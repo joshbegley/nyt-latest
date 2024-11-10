@@ -1,3 +1,7 @@
+**Kennesaw State football coach steps down after 1-8 start in first FBS season**\
+`Bohannon was the first and only coach in the history of the program, which began play in 2015.`\
+https://nytimes.com/athletic/5912329/2024/11/10/kennesaw-state-football-coach-brian-bohannon-steps-down/
+
 **As Wildfire Burns in New Jersey and New York, Rain Offers Little Relief**\
 `The fire, the latest of several in the region over the weekend, had caused one death and was not contained as of Sunday afternoon, officials said.`\
 https://nytimes.com/2024/11/10/nyregion/wildfires-ny-nj-drought.html
