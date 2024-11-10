@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5911819/2024/11/10/chelsea-womens-super-league-squa
 `Tottenham Hotspur fell to a shock 2-1 defeat against Ipswich Town on Sunday afternoon`\
 https://nytimes.com/athletic/5908785/2024/11/10/tottenham-hotspur-ipswich-town-result-report-analysis/
 
-**Forest 1 Newcastle United 3: Joelinton and Barnes seal comeback win for Howe's patient side**\
+**Forest 1 Newcastle 3: Joelinton and Barnes seal comeback win for patient visitors**\
 `Newcastle United head into the international break buoyed by victory against Nottingham Forest after a comeback win against a stubborn side.`\
 https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
 

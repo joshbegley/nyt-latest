@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5911819/2024/11/10/chelsea-womens-super-league-squa
 https://nytimes.com/athletic/5908785/2024/11/10/tottenham-hotspur-ipswich-town-result-report-analysis/
 
 **Forest 1 Newcastle 3: Joelinton and Barnes seal comeback win for patient visitors**\
-`Newcastle United head into the international break buoyed by victory against Nottingham Forest after a comeback win against a stubborn side.`\
+`Newcastle head into the international break buoyed by victory at Nottingham Forest after a comeback win against a stubborn home side`\
 https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
 
 **Lowetide: Why a Stan Bowman strength may benefit Oilers in a big way**\

@@ -1,3 +1,7 @@
+**Forest 1 Newcastle 3: Joelinton and Barnes seal comeback win for patient visitors**\
+`Newcastle United head into the international break buoyed by victory against Nottingham Forest after a comeback win against a stubborn side.`\
+https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
+
 **Chelsea squad could finish 1st and 2nd in WSL - Beard**\
 `Liverpool manager Matt Beard believes Chelsea have grown stronger since the arrival of Sonia Bompastor in the summer, claiming the squad could be split into two Women’s Super League (WSL) teams and &#8220;finish first and second&#8221;.`\
 https://nytimes.com/athletic/5911819/2024/11/10/chelsea-womens-super-league-squad-matt-beard/
