@@ -1,3 +1,7 @@
+**What Is Paul Taylor Without Paul Taylor? Full of Bumps.**\
+`The Taylor company returns to Lincoln Center with four premieres and a new resident choreographer: Robert Battle, the former director of Alvin Ailey.`\
+https://nytimes.com/2024/11/10/arts/dance/paul-taylor-premieres.html
+
 **The Pulse: 2 top-4 teams go down**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5911981/2024/11/10/georgia-miami-college-football-nfl-the-pulse/
