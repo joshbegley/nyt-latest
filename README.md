@@ -1,3 +1,7 @@
+**'One you're sick over': How the Falcons managed to hand a win to their most bitter rival**\
+`The Falcons had a slow start, failed on three of four field goal attempts and lost a sloppy game to the Saints and their interim coach.`\
+https://nytimes.com/athletic/5913007/2024/11/10/falcons-saints-kirk-cousins-frustration/
+
 **Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
 `McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
 https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912589/2024/11/10/deebo-samuel-jake-moody-swipe-mi
 **Mike Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
 `Pittsburgh's newest receiver made a big impact, while a late fourth-down decision erased any chance of a Washington comeback.`\
 https://nytimes.com/athletic/5911921/2024/11/10/steelers-commanders-score-result-takeaways/
-
-**Amorim to hold talks with Van Nistelrooy over Man Utd future**\
-`Ruben Amorim will talk with Ruud van Nistelrooy about his Manchester United future when he flies in to England on Monday.`\
-https://nytimes.com/athletic/5912807/2024/11/10/ruben-amorim-van-nistelrooy/
 

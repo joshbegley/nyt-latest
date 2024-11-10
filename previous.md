@@ -1,6 +1,6 @@
 **Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
 `McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
-https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-managr/
+https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-manager/
 
 **Blue Jackets claim defenseman Dante Fabbro off waivers from Nashville**\
 `The former 2016 first-round pick played 315 games for Nashville before Sunday's claim.`\
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5912856/2024/11/10/nfl-week-10-scores-takeaways-ste
 `"I'll talk to Moody and we'll get past it," Samuel said, later adding Moody "had a little dog in him" to go hit the game-winner.`\
 https://nytimes.com/athletic/5912589/2024/11/10/deebo-samuel-jake-moody-swipe-missed-field-goal-49ers/
 
-**Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
+**Mike Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
 `Pittsburgh's newest receiver made a big impact, while a late fourth-down decision erased any chance of a Washington comeback.`\
 https://nytimes.com/athletic/5911921/2024/11/10/steelers-commanders-score-result-takeaways/
 

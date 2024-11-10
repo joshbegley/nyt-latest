@@ -1,5 +1,13 @@
 **Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
 `McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
+https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-manager/
+
+**Mike Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
+`Pittsburgh's newest receiver made a big impact, while a late fourth-down decision erased any chance of a Washington comeback.`\
+https://nytimes.com/athletic/5911921/2024/11/10/steelers-commanders-score-result-takeaways/
+
+**Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
+`McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
 https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-managr/
 
 **Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
