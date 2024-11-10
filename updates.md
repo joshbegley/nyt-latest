@@ -1,3 +1,11 @@
+**The Roki Sasaki MLB sweepstakes: Teams to watch and what could influence his decision**\
+`The Dodgers may be perceived as favorites, but league sources note the Mets are well positioned, while the Phillies could be in the mix`\
+https://nytimes.com/athletic/5910744/2024/11/09/roki-sasaki-mlb-teams/
+
+**Travis Hunter tracker: Clutch TD reception helps Colorado continue its playoff push**\
+`Hunter put a couple more highlight-reel plays on his resume, including a key touchdown reception in a comeback win.`\
+https://nytimes.com/athletic/5910818/2024/11/09/travis-hunter-nfl-draft-2025-texas-tech/
+
 **Trump Won’t Have Haley or Pompeo in New Administration**\
 `President-elect Donald J. Trump ruled out roles for Nikki Haley and Mike Pompeo, who served in his previous administration.`\
 https://nytimes.com/2024/11/09/us/politics/trump-haley-pompeo.html

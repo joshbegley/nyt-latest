@@ -1,3 +1,11 @@
+**The Roki Sasaki MLB sweepstakes: Teams to watch and what could influence his decision**\
+`The Dodgers may be perceived as favorites, but league sources note the Mets are well positioned, while the Phillies could be in the mix`\
+https://nytimes.com/athletic/5910744/2024/11/09/roki-sasaki-mlb-teams/
+
+**Travis Hunter tracker: Clutch TD reception helps Colorado continue its playoff push**\
+`Hunter put a couple more highlight-reel plays on his resume, including a key touchdown reception in a comeback win.`\
+https://nytimes.com/athletic/5910818/2024/11/09/travis-hunter-nfl-draft-2025-texas-tech/
+
 **Trump Won’t Have Haley or Pompeo in New Administration**\
 `President-elect Donald J. Trump ruled out roles for Nikki Haley and Mike Pompeo, who served in his previous administration.`\
 https://nytimes.com/2024/11/09/us/politics/trump-haley-pompeo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910591/2024/11/09/indiana-michigan-football-score-
 **Four signs of progress during Sabres' latest 3-game winning streak**\
 `The Sabres' 3-2 shootout win over the Flames wasn't pretty, but it extended their winning streak and improved their record to 7-7-1.`\
 https://nytimes.com/athletic/5910636/2024/11/09/sabres-flames-winning-streak/
-
-**Grizzlies' Ja Morant week to week with hip injury**\
-`Morant suffered the injury during Wednesday's game against the Lakers after landing awkwardly on a dunk attempt.`\
-https://nytimes.com/athletic/5910661/2024/11/09/grizzlies-ja-morant-injury-nba/
-
-**Takeaways: Ole Miss' Playoff hopes soar. Loss encapsulates Georgia's frustrations**\
-`Georgia lost to a team other than Alabama for the first time since 2020. Lane Kiffin beat a top-five team for the first time since 2011.`\
-https://nytimes.com/athletic/5910613/2024/11/09/ole-miss-georgia-playoff-result/
 
