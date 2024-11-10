@@ -1,3 +1,7 @@
+**Paul Stephenson, 87, Dies; Advanced Britain’s Civil Rights Movement**\
+`The bus boycott and one-man pub sit-in that he led in the mid-1960s helped pave the way for a law outlawing discrimination in public places.`\
+https://nytimes.com/2024/11/10/world/europe/paul-stephenson-dead.html
+
 **Reimagining How to Dress a Pope**\
 `In the film “Conclave,” the costume designer Lisy Christl clothed an army of catty cardinals, from their miters down to their quirky glasses.`\
 https://nytimes.com/2024/11/10/style/conclave-movie-costumes-pope.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-un
 **Lowetide: Why a Stan Bowman strength may benefit Oilers in a big way**\
 `Bowman's first opportunity to show Edmonton this particular ability may come this summer.`\
 https://nytimes.com/athletic/5909569/2024/11/10/oilers-stan-bowman-europe/
-
-**‘This Is the Best of the Best’**\
-`Marcella Hazan’s Bolognese sauce, tomato-rich and smoothed with milk, remains a reader favorite.`\
-https://nytimes.com/2024/11/10/dining/best-bolognese-sauce.html
 
