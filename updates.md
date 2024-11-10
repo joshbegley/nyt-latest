@@ -1,3 +1,7 @@
+**Canadiens are not good enough, and the worst part is they don’t know it**\
+`The Canadiens, despite incremental gains to their collective game, consistently find a way a way to continue losing.`\
+https://nytimes.com/athletic/5911161/2024/11/10/canadiens-loss-maple-leafs/
+
 **Steelers at Commanders: How to watch, odds, expert picks with Washington as close home favorite**\
 `Who saw Washington and Pittsburgh as first-place teams in November? They face each other in Week 10. `\
 https://nytimes.com/athletic/5909061/2024/11/10/steelers-commanders-how-to-watch-odds-picks-betting/
