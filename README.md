@@ -1,3 +1,7 @@
+**Revisiting the Harlem Renaissance**\
+`Why the era still resonates a century later.`\
+https://nytimes.com/2024/11/10/briefing/revisiting-the-harlem-renaissance.html
+
 **NFL Week 10 top storylines: Russell Wilson vs. Commanders, Broncos-Chiefs, can Lions stay hot?**\
 `Also on tap: Our first look at some trade deadline acquisitions with their new teams and the Cardinals try to win a fourth straight game.`\
 https://nytimes.com/athletic/5906434/2024/11/10/nfl-week-10-top-storylines-steelers-commanders-chiefs-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910800/2024/11/10/roki-sasaki-mlb-contract-signing
 **Success in 2022 Planted the Seeds of Failure in 2024**\
 `Maybe it would have been better if the “red wave” had crashed over us in 2022.`\
 https://nytimes.com/2024/11/10/opinion/trump-harris-presidential-election-midterms.html
-
-**The Curling Theory of Campaigns Proves Itself Again**\
-`There were two huge problems Harris could not escape.`\
-https://nytimes.com/2024/11/10/opinion/harris-trump-campaign-curling.html
 
