@@ -1,3 +1,7 @@
+**Firefighters Gain More Control of Southern California Blaze That Spread Rapidly**\
+`After the Mountain fire ballooned to more than 20,000 acres in less than 24 hours, improving weather conditions helped crews contain more of the blaze on Saturday.`\
+https://nytimes.com/2024/11/09/us/california-mountain-fire.html
+
 **NYCFC advances to Eastern Conference semifinals after 9-round penalty-kick shootout**\
 `NYCFC will host its rival, the New York Red Bulls, in an Eastern Conference semifinal.`\
 https://nytimes.com/athletic/5910767/2024/11/09/nycfc-fc-cincinnati-mls-cup-playoffs/

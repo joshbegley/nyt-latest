@@ -1,3 +1,7 @@
+**Firefighters Gain More Control of Southern California Blaze That Spread Rapidly**\
+`After the Mountain fire ballooned to more than 20,000 acres in less than 24 hours, improving weather conditions helped crews contain more of the blaze on Saturday.`\
+https://nytimes.com/2024/11/09/us/california-mountain-fire.html
+
 **Man United vs Leicester preview, odds, prediction: Red Devils continue to chase top half**\
 `Manchester United have a new manager coming, but the Red Devils are still floundering in the bottom half of the table.`\
 https://nytimes.com/athletic/5909074/2024/11/09/manchester-united-leicester-city-preview-odds-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/world/europe/trump-nato-putin-ukraine.html
 **Giants vs. Panthers: How to watch, odds, expert picks for NFL's Germany game**\
 `The Giants and Panthers play their Week 10 matchup in Munich.`\
 https://nytimes.com/athletic/5904893/2024/11/09/giants-panthers-how-to-watch-odds-picks-germany-game/
-
-**Two Militia Founders Are Convicted of Plot to Kill Federal Agents**\
-`“We were going out huntin’,” one of the men said in a video before a planned trip to the Mexico border, where they intended to shoot at immigrants and officials who might stop them, prosecutors said.`\
-https://nytimes.com/2024/11/09/us/militia-border-convictions.html
 
