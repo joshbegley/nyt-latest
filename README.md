@@ -1,3 +1,11 @@
+**Painter’s Propper-Upper**\
+`Patrick Gramza and John Kugelman make their collaboration debut.`\
+https://nytimes.com/2024/11/10/crosswords/daily-puzzle-2024-11-11.html
+
+**Senators Vying to Be G.O.P. Leader Vow to Quickly Confirm Trump Nominees**\
+`Senators Rick Scott, John Thune and John Cornyn quickly responded to President-elect Donald J. Trump’s demand on social media, the latest example of his influence over Republican lawmakers.`\
+https://nytimes.com/2024/11/10/us/politics/republican-senators-trump-scott-thune-cornyn.html
+
 **Ella Jenkins, Musician Who Found an Audience in Children, Dies at 100**\
 `Performing and recording, she transformed what was seen as a marginal genre in the music industry into a celebration of shared humanity.`\
 https://nytimes.com/2024/11/10/obituaries/ella-jenkins-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-off
 **With Chuba Hubbard and improving D, Panthers still not a good team, but they're taking steps**\
 `Chuba Hubbard's career day and two timely takeaways from the defense propelled the Panthers to a rare back-to-back victory.`\
 https://nytimes.com/athletic/5912605/2024/11/10/panthers-win-chuba-hubbard-defense-giants/
-
-**Vikings overcome Sam Darnold's 3 INTs to beat Jaguars 12-7: Takeaways**\
-`On Sunday, Darnold threw three picks, all of which came in Jacksonville territory.`\
-https://nytimes.com/athletic/5911885/2024/11/10/vikings-jaguars-score-result-takeaways/
-
-**Moody's game-winning FG coats miscues in 49ers' 23-20 win vs. Bucs: Takeaways**\
-`Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after an eight-game absence with Achilles tendon injury.`\
-https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-takeaways/
 
