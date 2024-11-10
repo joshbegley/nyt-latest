@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 Ipswich 2: Spurs' inconsistency and slow starts are a big problem**\
+`Tottenham Hotspur fell to a shock 2-1 defeat against Ipswich Town on Sunday afternoon`\
+https://nytimes.com/athletic/5908785/2024/11/10/tottenham-hotspur-ipswich-town-result-report-analysis/
+
+**Forest 1 Newcastle 3: Joelinton and Barnes seal comeback win for patient visitors**\
+`Newcastle head into the international break buoyed by victory at Nottingham Forest after a comeback win against a stubborn home side`\
+https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
+
 **Forest 1 Newcastle 3: Joelinton and Barnes seal comeback win for patient visitors**\
 `Newcastle United head into the international break buoyed by victory against Nottingham Forest after a comeback win against a stubborn side.`\
 https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
