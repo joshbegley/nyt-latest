@@ -1,3 +1,15 @@
+**SEC championship and tiebreaker update: Why it all matters now**\
+`What we’ve seen so far indicates more upsets are coming, which could help clear up the SEC logjam … or maybe not.`\
+https://nytimes.com/athletic/5911581/2024/11/10/sec-championship-tiebreaker-scenarios/
+
+**Where did Miami go wrong and what does playoff exit mean for Messi and Martino?**\
+`Atlanta United's 3-2 Game 3 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
+https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-playoffs/
+
+**'The same people who allow women to play tennis are also torturing the activists'**\
+`The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality.`\
+https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
+
 **Jaguars' Lawrence out vs. Vikings, could miss rest of season**\
 `With Lawrence out, Mac Jones is expected to start at quarterback against Minnesota.`\
 https://nytimes.com/athletic/5911582/2024/11/10/trevor-lawrence-injury-jaguars/
