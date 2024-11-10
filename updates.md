@@ -1,3 +1,7 @@
+**After the Triumph of Tetris, an Unsolved Puzzle**\
+`Alexey Pajitnov, who created the ubiquitous game in 1984, opens up about his failed projects and his desire to design another hit.`\
+https://nytimes.com/2024/11/10/arts/tetris-forever-alexey-pajitnov.html
+
 **49ers' Pearsall scores first career touchdown just 10 weeks after shooting**\
 `Pearsall, a first-round pick in April's NFL Draft, was shot on Aug. 31 during an attempted robbery while shopping in San Francisco.`\
 https://nytimes.com/athletic/5912341/2024/11/10/ricky-pearsall-49ers-player-shot-td/
