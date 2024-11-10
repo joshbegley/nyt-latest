@@ -1,3 +1,7 @@
+**Pereira out for four months with hamstring injury**\
+`Leicester City defender Ricardo Pereira has been ruled out for four months with a hamstring injury.`\
+https://nytimes.com/athletic/5912110/2024/11/10/ricardo-pereira-jamie-vardy-injuries/
+
 **Paul Stephenson, 87, Dies; Advanced Britain’s Civil Rights Movement**\
 `The bus boycott and one-man pub sit-in that he led in the mid-1960s helped pave the way for a law outlawing discrimination in public places.`\
 https://nytimes.com/2024/11/10/world/europe/paul-stephenson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908785/2024/11/10/tottenham-hotspur-ipswich-town-r
 **Forest 1 Newcastle 3: Joelinton and Barnes seal comeback win for patient visitors**\
 `Newcastle head into the international break buoyed by victory at Nottingham Forest after a comeback win against a stubborn home side`\
 https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
-
-**Lowetide: Why a Stan Bowman strength may benefit Oilers in a big way**\
-`Bowman's first opportunity to show Edmonton this particular ability may come this summer.`\
-https://nytimes.com/athletic/5909569/2024/11/10/oilers-stan-bowman-europe/
 

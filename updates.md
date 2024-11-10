@@ -1,3 +1,7 @@
+**Pereira out for four months with hamstring injury**\
+`Leicester City defender Ricardo Pereira has been ruled out for four months with a hamstring injury.`\
+https://nytimes.com/athletic/5912110/2024/11/10/ricardo-pereira-jamie-vardy-injuries/
+
 **Paul Stephenson, 87, Dies; Advanced Britain’s Civil Rights Movement**\
 `The bus boycott and one-man pub sit-in that he led in the mid-1960s helped pave the way for a law outlawing discrimination in public places.`\
 https://nytimes.com/2024/11/10/world/europe/paul-stephenson-dead.html
