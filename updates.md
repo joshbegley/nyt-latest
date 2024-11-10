@@ -1,3 +1,7 @@
+**Revisiting the Harlem Renaissance**\
+`Why the era still resonates a century later.`\
+https://nytimes.com/2024/11/10/briefing/revisiting-the-harlem-renaissance.html
+
 **NFL Week 10 top storylines: Russell Wilson vs. Commanders, Broncos-Chiefs, can Lions stay hot?**\
 `Also on tap: Our first look at some trade deadline acquisitions with their new teams and the Cardinals try to win a fourth straight game.`\
 https://nytimes.com/athletic/5906434/2024/11/10/nfl-week-10-top-storylines-steelers-commanders-chiefs-lions/
