@@ -1,3 +1,7 @@
+**Four signs of progress during Sabres' latest 3-game winning streak**\
+`The Sabres' 3-2 shootout win over the Flames wasn't pretty, but it extended their winning streak and improved their record to 7-7-1.`\
+https://nytimes.com/athletic/5910636/2024/11/09/sabres-flames-winning-streak/
+
 **Indiana's Cinderella run reaches 10-0 for first time after rare win against Michigan**\
 `Indiana kept its unlikely undefeated season going with a 20-15 win against Michigan despite being limited to 18 second-half yards.`\
 https://nytimes.com/athletic/5910591/2024/11/09/indiana-michigan-football-score-recap/

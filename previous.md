@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5910591/2024/11/09/indiana-michigan-football-score-recap/
 
 **Four signs of progress during Sabres' latest 3-game winning streak**\
-`The Sabres’ 3-2 shootout win over the Flames wasn’t pretty, but it extended their winning streak and improved their record to 7-7-1.`\
+`The Sabres' 3-2 shootout win over the Flames wasn't pretty, but it extended their winning streak and improved their record to 7-7-1.`\
 https://nytimes.com/athletic/5910636/2024/11/09/sabres-flames-winning-streak/
 
 **Grizzlies' Ja Morant week to week with hip injury**\
