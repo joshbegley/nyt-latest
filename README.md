@@ -1,3 +1,19 @@
+**Indiana edges Michigan to reach 10 wins, likely the Playoff and wants more: What is this world?**\
+`Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things?”`\
+https://nytimes.com/athletic/5911024/2024/11/09/indiana-michigan-curt-cignetti-playoff/
+
+**Notre Dame takeaways after FSU: Imperfect but dominant Irish have Playoff within reach**\
+`Not only did Notre Dame embarrass Florida State 52-3, but it got Playoff help elsewhere with results like Miami's loss to Georgia Tech.`\
+https://nytimes.com/athletic/5911021/2024/11/09/notre-dame-florida-state-score-recap/
+
+**Jalen Milroe, Alabama send LSU to brink of CFP elimination in rout**\
+`Crimson Tide quarterback Jalen Milroe ran for four touchdowns against LSU for the second consecutive season`\
+https://nytimes.com/athletic/5910963/2024/11/09/jalen-milroe-alabama-lsu/
+
+**TSMC Stops Advanced Chip Shipments to Chinese Customers**\
+`The Taiwanese chip giant will halt shipments to Chinese companies after some of its most advanced chips ended up with Huawei.`\
+https://nytimes.com/2024/11/09/business/tsmc-ai-chips-china.html
+
 **Maple Leafs report cards: Power play stays hot in victory over Canadiens**\
 `Toronto did what it was supposed to do against a team at the bottom of the division in a 4-1 win over Montreal.`\
 https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/09/us/politics/arizona-election-harris-trump.html
 **Corrections: Nov. 10, 2024**\
 `Corrections that appeared in print on Sunday, Nov. 10, 2024.`\
 https://nytimes.com/2024/11/09/pageoneplus/corrections-nov-10-2024.html
-
-**Bobby Allison, Hall of Fame NASCAR Driver, Is Dead at 86**\
-`A three-time winner of the Daytona 500, he was ranked as one of NASCAR’s greatest drivers, with 84 victories. But his career was marred by tragedy and injuries.`\
-https://nytimes.com/2024/11/09/sports/autoracing/bobby-allison-dead.html
-
-**College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
-
-**Colorado rallies past Texas Tech, takes another step toward CFP**\
-`The Buffaloes are in sole possession of second place in the Big 12 and in position to play in the league title game.`\
-https://nytimes.com/athletic/5910862/2024/11/09/colorado-texas-tech-deion-sanders-playoff/
-
-**The Roki Sasaki MLB sweepstakes: Teams to watch and what could influence his decision**\
-`The Dodgers may be perceived as favorites, but league sources note the Mets are well positioned, while the Phillies could be in the mix`\
-https://nytimes.com/athletic/5910744/2024/11/09/roki-sasaki-mlb-teams/
 
