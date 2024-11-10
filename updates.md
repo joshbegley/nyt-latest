@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 11**\
+`Oregon has done nothing wrong, but Ohio State is once again the projected Big Ten champ and the No. 1 overall seed. `\
+https://nytimes.com/athletic/5912381/2024/11/10/college-football-playoff-2024-projections-hello-deion-colorado-is-in-as-the-no-4-seed/
+
 **AP Top 25: Indiana gives Big Ten 4 of top 5 as Georgia tumbles**\
 `Indiana moved into the top five of the AP poll for the first time since 1967 while Georgia's streak of 60 straight top-10 appearances ended.`\
 https://nytimes.com/athletic/5912300/2024/11/10/ap-top-25-poll-indiana-big-ten/
