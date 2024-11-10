@@ -1,3 +1,11 @@
+**Painter’s Propper-Upper**\
+`Patrick Gramza and John Kugelman make their collaboration debut.`\
+https://nytimes.com/2024/11/10/crosswords/daily-puzzle-2024-11-11.html
+
+**Senators Vying to Be G.O.P. Leader Vow to Quickly Confirm Trump Nominees**\
+`Senators Rick Scott, John Thune and John Cornyn quickly responded to President-elect Donald J. Trump’s demand on social media, the latest example of his influence over Republican lawmakers.`\
+https://nytimes.com/2024/11/10/us/politics/republican-senators-trump-scott-thune-cornyn.html
+
 **Ella Jenkins, Musician Who Found an Audience in Children, Dies at 100**\
 `Performing and recording, she transformed what was seen as a marginal genre in the music industry into a celebration of shared humanity.`\
 https://nytimes.com/2024/11/10/obituaries/ella-jenkins-dead.html
