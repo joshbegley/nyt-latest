@@ -1,3 +1,7 @@
+**In Roki Sasaki sweepstakes, could Yu Darvish and A.J. Preller be difference makers for Padres?**\
+`Every team would like to land Sasaki. Can his relationship with Darvish, and Darvish's admiration of Preller, give the Padres an edge?`\
+https://nytimes.com/athletic/5912593/2024/11/10/roki-sasaki-padres-yu-darvish-aj-preller/
+
 **Monday Briefing: Russian and North Korean Troops Assemble**\
 `Plus, does tech make us feel lonely?`\
 https://nytimes.com/2024/11/10/briefing/russia-north-korea-trump-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/us/politics/trump-enemies-prosecution.html
 **Wildfires Spread Across Northeastern U.S. Amid Drought**\
 `Firefighters in New York, New Jersey, Massachusetts and Connecticut battled hundreds of blazes during an unseasonably dry fall.`\
 https://nytimes.com/video/weather/100000009818664/wildfires-northeast-us.html
-
-**NFL Week 10 inactives and fantasy tips: Will Levis back from injury, starting vs. Chargers**\
-`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
-https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
 
