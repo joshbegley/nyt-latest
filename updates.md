@@ -1,3 +1,7 @@
+**49ers' Pearsall scores first career touchdown just 10 weeks after shooting**\
+`Pearsall, a first-round pick in April's NFL Draft, was shot on Aug. 31 during an attempted robbery while shopping in San Francisco.`\
+https://nytimes.com/athletic/5912341/2024/11/10/ricky-pearsall-49ers-player-shot-td/
+
 **The Briefing: Chelsea 1 Arsenal 1: Big game woes and Neto most dangerous winger**\
 `Chelsea and Arsenal played out a 1-1 draw at Stamford Bridge on Sunday afternoon`\
 https://nytimes.com/athletic/5908786/2024/11/10/chelsea-arsenal-result-report-analysis/
