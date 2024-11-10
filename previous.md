@@ -1,3 +1,7 @@
+**Ella Jenkins, Musician Who Found an Audience in Children, Dies at 100**\
+`Performing and recording, she transformed what was seen as a marginal genre in the music industry into a celebration of shared humanity.`\
+https://nytimes.com/2024/11/10/obituaries/ella-jenkins-dead.html
+
 **The Giants are getting worse, so what exactly is the case for retaining Brian Daboll, Joe Schoen?**\
 `Nothing about the Giants signals things are headed in the right direction. They are regressing in the Year 3 of this regime. `\
 https://nytimes.com/athletic/5912694/2024/11/10/giants-brian-daboll-joe-schoen-panthers-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911885/2024/11/10/vikings-jaguars-score-result-tak
 **Moody's game-winning FG coats miscues in 49ers' 23-20 win vs. Bucs: Takeaways**\
 `Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after an eight-game absence with Achilles tendon injury.`\
 https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-takeaways/
-
-**After historic start, how will the Jets tackle the most difficult stretch of their season?**\
-`Winnipeg's 14-1-0 stretch set an NHL record for best 15-game start, but coach Scott Arniel knows the difficulty is about to skyrocket.`\
-https://nytimes.com/athletic/5912272/2024/11/10/winnipeg-jets-nhl-history-record-season/
 
