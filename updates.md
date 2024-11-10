@@ -1,3 +1,7 @@
+**NFL Week 10 top storylines: Russell Wilson vs. Commanders, Broncos-Chiefs, can Lions stay hot?**\
+`Also on tap: Our first look at some trade deadline acquisitions with their new teams and the Cardinals try to win a fourth straight game.`\
+https://nytimes.com/athletic/5906434/2024/11/10/nfl-week-10-top-storylines-steelers-commanders-chiefs-lions/
+
 **Oilers, hoping to turn season around again, find another gear and crush Canucks**\
 `Getting a win against Vancouver on the road might have just woken Edmonton from its early-season slumber.`\
 https://nytimes.com/athletic/5911294/2024/11/10/oilers-defeat-canucks/

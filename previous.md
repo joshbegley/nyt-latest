@@ -1,3 +1,7 @@
+**NFL Week 10 top storylines: Russell Wilson vs. Commanders, Broncos-Chiefs, can Lions stay hot?**\
+`Also on tap: Our first look at some trade deadline acquisitions with their new teams and the Cardinals try to win a fourth straight game.`\
+https://nytimes.com/athletic/5906434/2024/11/10/nfl-week-10-top-storylines-steelers-commanders-chiefs-lions/
+
 **Oilers, hoping to turn season around again, find another gear and crush Canucks**\
 `Getting a win against Vancouver on the road might have just woken Edmonton from its early-season slumber.`\
 https://nytimes.com/athletic/5911294/2024/11/10/oilers-defeat-canucks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/opinion/trump-harris-presidential-election-midter
 **The Curling Theory of Campaigns Proves Itself Again**\
 `There were two huge problems Harris could not escape.`\
 https://nytimes.com/2024/11/10/opinion/harris-trump-campaign-curling.html
-
-**Why We Turn to Crosswords in Times of Crisis**\
-`When life gets tough, we tackle grids for good reason. They offer a singular combination of erudition and escape.`\
-https://nytimes.com/2024/11/10/opinion/crosswords-comfort-crisis.html
 
