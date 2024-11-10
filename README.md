@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 11**\
+`Oregon has done nothing wrong, but Ohio State is once again the projected Big Ten champ and the No. 1 overall seed. `\
+https://nytimes.com/athletic/5912381/2024/11/10/college-football-playoff-2024-projections-hello-deion-colorado-is-in-as-the-no-4-seed/
+
 **AP Top 25: Indiana gives Big Ten 4 of top 5 as Georgia tumbles**\
 `Indiana moved into the top five of the AP poll for the first time since 1967 while Georgia's streak of 60 straight top-10 appearances ended.`\
 https://nytimes.com/athletic/5912300/2024/11/10/ap-top-25-poll-indiana-big-ten/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912119/2024/11/10/notre-dame-fsu-marcus-freeman-pl
 **Fernandes supports 'special player' Garnacho after muted goal celebration**\
 `Bruno Fernandes offered his support to Alejandro Garnacho after the Manchester United winger appeared to celebrate his goal against Leicester City in a muted fashion.`\
 https://nytimes.com/athletic/5912072/2024/11/10/garnacho-goal-celebration-bruno-fernandes/
-
-**‘Change the Game’: Saudi Arabia Takes a Stride Into Women’s Tennis**\
-`The kingdom, which has been accused of trying to “sportswash” its human rights record, hosted the WTA Finals, part of its unstoppable advance into the world of sports.`\
-https://nytimes.com/2024/11/10/world/middleeast/saudi-arabia-womens-tennis-association.html
 
