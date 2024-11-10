@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/10/college-football-playoff-projections-odds/
+
 **'The people who allow women to play tennis are also torturing activists': Can WTA really bring change to Saudi Arabia?**\
 `The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality.`\
 https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/

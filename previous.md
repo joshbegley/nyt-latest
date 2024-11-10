@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/10/college-football-playoff-projections-odds/
+
 **'The people who allow women to play tennis are also torturing activists': Can WTA really bring change to Saudi Arabia?**\
 `The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality.`\
 https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910805/2024/11/10/mohamed-salah-liverpool-future/
 **How did Alabama get its season back on track at LSU?**\
 `How exactly did it all come together for Alabama at LSU? The Tide were focused on Saturday and are locked in for November.`\
 https://nytimes.com/athletic/5911411/2024/11/10/alabama-football-lsu-kalen-deboer/
-
-**Russia Says It Shot Down Waves of Drones Above Moscow**\
-`Officials said that more than 30 drones had been intercepted over suburban areas of the Russian capital in what was the biggest such attack since the invasion of Ukraine in 2022.`\
-https://nytimes.com/2024/11/10/world/europe/moscow-drone-attack-ukraine-russia.html
 
