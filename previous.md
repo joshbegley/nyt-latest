@@ -1,3 +1,11 @@
+**Florida men's basketball coach Todd Golden will continue to coach amid investigation**\
+`Golden acknowledged the university’s investigation Saturday and said that he has been participating in the inquiry over the last month.`\
+https://nytimes.com/athletic/5913110/2024/11/10/todd-golden-florida-sexual-harassment-coach/
+
+**FIFA urged to postpone confirmation of Saudi as World Cup hosts**\
+`FIFA should postpone next month’s vote to confirm Saudi Arabia as the host of the 2034 men’s World Cup until the Gulf state introduces major reforms to protect human rights, according to a report from nine global campaign groups, including Amnesty International and Human Rights Watch.`\
+https://nytimes.com/athletic/5912565/2024/11/10/saudi-world-cup-bid-human-rights/
+
 **'One you're sick over': How the Falcons managed to hand a win to their most bitter rival**\
 `The Falcons had a slow start, failed on three of four field goal attempts and lost a sloppy game to the Saints and their interim coach.`\
 https://nytimes.com/athletic/5913007/2024/11/10/falcons-saints-kirk-cousins-frustration/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5912694/2024/11/10/giants-brian-daboll-joe-schoen-p
 **NFL Week 10 takeaways: Do Steelers belong in Super Bowl talk? How do Chiefs keep doing this?**\
 `Plus, will Bryce Young or Daniel Jones have starting jobs when next season starts?`\
 https://nytimes.com/athletic/5912856/2024/11/10/nfl-week-10-scores-takeaways-steelers-chiefs/
-
-**Deebo Samuel swipes at 49ers long snapper’s throat after Moody missed FG**\
-`"I'll talk to Moody and we'll get past it," Samuel said, later adding Moody "had a little dog in him" to go hit the game-winner.`\
-https://nytimes.com/athletic/5912589/2024/11/10/deebo-samuel-jake-moody-swipe-missed-field-goal-49ers/
-
-**Mike Williams' late TD lifts Steelers over Commanders 28-27: Takeaways**\
-`Pittsburgh's newest receiver made a big impact, while a late fourth-down decision erased any chance of a Washington comeback.`\
-https://nytimes.com/athletic/5911921/2024/11/10/steelers-commanders-score-result-takeaways/
 

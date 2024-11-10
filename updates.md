@@ -1,3 +1,11 @@
+**Florida men's basketball coach Todd Golden will continue to coach amid investigation**\
+`Golden acknowledged the university’s investigation Saturday and said that he has been participating in the inquiry over the last month.`\
+https://nytimes.com/athletic/5913110/2024/11/10/todd-golden-florida-sexual-harassment-coach/
+
+**FIFA urged to postpone confirmation of Saudi as World Cup hosts**\
+`FIFA should postpone next month’s vote to confirm Saudi Arabia as the host of the 2034 men’s World Cup until the Gulf state introduces major reforms to protect human rights, according to a report from nine global campaign groups, including Amnesty International and Human Rights Watch.`\
+https://nytimes.com/athletic/5912565/2024/11/10/saudi-world-cup-bid-human-rights/
+
 **'One you're sick over': How the Falcons managed to hand a win to their most bitter rival**\
 `The Falcons had a slow start, failed on three of four field goal attempts and lost a sloppy game to the Saints and their interim coach.`\
 https://nytimes.com/athletic/5913007/2024/11/10/falcons-saints-kirk-cousins-frustration/
