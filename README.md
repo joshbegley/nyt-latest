@@ -1,3 +1,7 @@
+**Reimagining How to Dress a Pope**\
+`In the film “Conclave,” the costume designer Lisy Christl clothed an army of catty cardinals, from their miters down to their quirky glasses.`\
+https://nytimes.com/2024/11/10/style/conclave-movie-costumes-pope.html
+
 **Juric sacked by Roma after Bologna defeat**\
 `Ivan Juric has been sacked as head coach of Roma after defeat to Bologna on Sunday.`\
 https://nytimes.com/athletic/5879126/2024/11/10/ivan-juric-roma-sacked/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909569/2024/11/10/oilers-stan-bowman-europe/
 **‘This Is the Best of the Best’**\
 `Marcella Hazan’s Bolognese sauce, tomato-rich and smoothed with milk, remains a reader favorite.`\
 https://nytimes.com/2024/11/10/dining/best-bolognese-sauce.html
-
-**Man United 3 Leicester 0: Fernandes stars as Van Nistelrooy leaves positive mood for Amorim**\
-`We break down the action from a United victory at Old Trafford as they await the arrival of Ruben Amorim.`\
-https://nytimes.com/athletic/5908783/2024/11/10/manchester-united-van-nistelrooy-fernandes/
 
