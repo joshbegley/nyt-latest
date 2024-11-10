@@ -1,3 +1,15 @@
+**Man City and Pep Guardiola have lost four in a row. How much should they panic?**\
+`After the international break, City face Tottenham and Liverpool. The big question is how quickly injured players can get back up to speed`\
+https://nytimes.com/athletic/5910465/2024/11/10/man-city-pep-guardiola-defeats/
+
+**Broncos at Chiefs: How to watch, odds, expert picks as Kansas City favored to stay undefeated**\
+`The Chiefs play their first divisional home game in pursuit of a perfect season.`\
+https://nytimes.com/athletic/5906867/2024/11/10/broncos-chiefs-how-to-watch-odds-picks-betting/
+
+**The Premier League's great entertainers are 10th in the table**\
+`Brentford's matches this season average four goals per game. They are surprising their own manager – and certainly surprising everyone else`\
+https://nytimes.com/athletic/5910083/2024/11/10/premier-league-goals-entertainment/
+
 **Once China’s ‘Worst Nightmare,’ Labor Activist Refuses to Back Down**\
 `Neither jail nor exile to Hong Kong have stopped Han Dongfang, a former Tiananmen Square protest leader, from championing workers’ rights. “If you’re born stubborn, you go everywhere stubborn.”`\
 https://nytimes.com/2024/11/10/world/asia/china-labor-rights-han-dongfang.html
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/5910975/2024/11/09/red-wings-rangers-season-crossro
 `The first and third overall picks from the 2024 NFL Draft face off in Chicago.`\
 https://nytimes.com/athletic/5904964/2024/11/09/patriots-bears-how-to-watch-odds-picks-betting/
 
-**Missouri beats Oklahoma with late scoop and score, teams combine for 34-point fourth quarter**\
+**Missouri beats Oklahoma on scoop and score in wild finish**\
 `Tigers DE Zion Young picked up the ball and ran 17 yards for the game-winning TD after Triston Newson stripped Oklahoma QB Jackson Arnold.`\
-https://nytimes.com/athletic/5911083/2024/11/09/missouris-scoop-and-score-leads-tigers-past-oklahoma-in-wild-finish/
-
-**Jeremy Swayman and Linus Ullmark: 2 average goalies on 2 average teams**\
-`For three years, Swayman and Ullmark made goaltending a position of strength for the Bruins. That is not the case anymore.`\
-https://nytimes.com/athletic/5911031/2024/11/09/bruins-senators-jeremy-swayman-linus-ullmark/
-
-**After falling short last week, Penn State finds answers in win against Washington**\
-`The Nittany Lions beat Washington 35-6 and held the Huskies without a touchdown. `\
-https://nytimes.com/athletic/5911040/2024/11/09/penn-state-washington-score-analysis-college-football/
-
-**Indiana edges Michigan to reach 10 wins, likely Playoff and wants more: What is this world?**\
-`Are we in The Upside Down? How far away from Bloomington is Hawkins, Ind., the supernatural setting for “Stranger Things”?`\
-https://nytimes.com/athletic/5911024/2024/11/09/indiana-michigan-curt-cignetti-playoff/
+https://nytimes.com/athletic/5911083/2024/11/09/missouri-oklahoma-result-takeaways/
 

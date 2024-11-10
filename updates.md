@@ -1,3 +1,19 @@
+**Man City and Pep Guardiola have lost four in a row. How much should they panic?**\
+`After the international break, City face Tottenham and Liverpool. The big question is how quickly injured players can get back up to speed`\
+https://nytimes.com/athletic/5910465/2024/11/10/man-city-pep-guardiola-defeats/
+
+**Broncos at Chiefs: How to watch, odds, expert picks as Kansas City favored to stay undefeated**\
+`The Chiefs play their first divisional home game in pursuit of a perfect season.`\
+https://nytimes.com/athletic/5906867/2024/11/10/broncos-chiefs-how-to-watch-odds-picks-betting/
+
+**The Premier League's great entertainers are 10th in the table**\
+`Brentford's matches this season average four goals per game. They are surprising their own manager – and certainly surprising everyone else`\
+https://nytimes.com/athletic/5910083/2024/11/10/premier-league-goals-entertainment/
+
+**Missouri beats Oklahoma on scoop and score in wild finish**\
+`Tigers DE Zion Young picked up the ball and ran 17 yards for the game-winning TD after Triston Newson stripped Oklahoma QB Jackson Arnold.`\
+https://nytimes.com/athletic/5911083/2024/11/09/missouri-oklahoma-result-takeaways/
+
 **Taiwan Sees a Higher Price for U.S. Support as Trump Returns to Power**\
 `The president-elect’s call for Taiwan to spend more on its own defense and his complaints about its semiconductor dominance may herald a tenser relationship.`\
 https://nytimes.com/2024/11/10/world/asia/taiwan-sees-a-higher-price-for-us-support-as-trump-returns-to-power.html
