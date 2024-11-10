@@ -1,3 +1,11 @@
+**Moody's game-winning FG coats miscues in 49ers' 23-20 win vs. Bucs: Takeaways**\
+`Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after a nine-game absence with Achilles tendon injury.`\
+https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-takeaways/
+
+**After historic start, how will the Jets tackle the most difficult stretch of their season?**\
+`Winnipeg's 14-1-0 stretch set an NHL record for best 15-game start, but coach Scott Arniel knows the difficulty is about to skyrocket.`\
+https://nytimes.com/athletic/5912272/2024/11/10/winnipeg-jets-nhl-history-record-season/
+
 **One Escaped Monkey of 43 Is Captured in South Carolina**\
 `The monkeys escaped after a worker at a research center left an enclosure unlocked. One monkey was captured Saturday while the rest remain at large.`\
 https://nytimes.com/2024/11/10/us/monkey-captured-south-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5912593/2024/11/10/roki-sasaki-padres-yu-darvish-aj
 **Monday Briefing: Russian and North Korean Troops Assemble**\
 `Plus, does tech make us feel lonely?`\
 https://nytimes.com/2024/11/10/briefing/russia-north-korea-trump-india.html
-
-**Kennesaw State football coach steps down after 1-8 start in first FBS season**\
-`Bohannon was the first and only coach in the history of the program, which began play in 2015.`\
-https://nytimes.com/athletic/5912329/2024/11/10/kennesaw-state-football-coach-brian-bohannon-steps-down/
-
-**As Wildfire Burns in New Jersey and New York, Rain Offers Little Relief**\
-`The fire, the latest of several in the region over the weekend, had caused one death and was not contained as of Sunday afternoon, officials said.`\
-https://nytimes.com/2024/11/10/nyregion/wildfires-ny-nj-drought.html
 

@@ -1,3 +1,11 @@
+**Moody's game-winning FG coats miscues in 49ers' 23-20 win vs. Bucs: Takeaways**\
+`Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after a nine-game absence with Achilles tendon injury.`\
+https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-takeaways/
+
+**After historic start, how will the Jets tackle the most difficult stretch of their season?**\
+`Winnipeg's 14-1-0 stretch set an NHL record for best 15-game start, but coach Scott Arniel knows the difficulty is about to skyrocket.`\
+https://nytimes.com/athletic/5912272/2024/11/10/winnipeg-jets-nhl-history-record-season/
+
 **One Escaped Monkey of 43 Is Captured in South Carolina**\
 `The monkeys escaped after a worker at a research center left an enclosure unlocked. One monkey was captured Saturday while the rest remain at large.`\
 https://nytimes.com/2024/11/10/us/monkey-captured-south-carolina.html
