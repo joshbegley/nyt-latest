@@ -1,3 +1,7 @@
+**49ers' Pearsall scores first career touchdown just 10 weeks after shooting**\
+`Pearsall, a first-round pick in April's NFL Draft, was shot on Aug. 31 during an attempted robbery while shopping in San Francisco.`\
+https://nytimes.com/athletic/5912341/2024/11/10/ricky-pearsall-49ers-player-shot-td/
+
 **The Briefing: Chelsea 1 Arsenal 1: Big game woes and Neto most dangerous winger**\
 `Chelsea and Arsenal played out a 1-1 draw at Stamford Bridge on Sunday afternoon`\
 https://nytimes.com/athletic/5908786/2024/11/10/chelsea-arsenal-result-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911632/2024/11/10/alexander-arnold-injury-latest-l
 **Pereira out for four months with hamstring injury**\
 `Leicester City defender Ricardo Pereira has been ruled out for four months with a hamstring injury.`\
 https://nytimes.com/athletic/5912110/2024/11/10/ricardo-pereira-jamie-vardy-injuries/
-
-**Paul Stephenson, 87, Dies; Advanced Britain’s Civil Rights Movement**\
-`The bus boycott and one-man pub sit-in that he led in the mid-1960s helped pave the way for a law outlawing discrimination in public places.`\
-https://nytimes.com/2024/11/10/world/europe/paul-stephenson-dead.html
 
