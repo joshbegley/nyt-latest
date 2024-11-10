@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantas
 `Why the era still resonates a century later.`\
 https://nytimes.com/2024/11/10/briefing/revisiting-the-harlem-renaissance.html
 
+**There's no evidence Lopetegui should carry on**\
+`Lopetegui is only a few months into a two-year contract, yet his appointment appears to have been an expensive mistake`\
+https://nytimes.com/athletic/5910108/2024/11/10/theres-no-evidence-julen-lopetegui-should-carry-on/
+
 **NFL Week 10 top storylines: Russell Wilson vs. Commanders, Broncos-Chiefs, can Lions stay hot?**\
 `Also on tap: Our first look at some trade deadline acquisitions with their new teams and the Cardinals try to win a fourth straight game.`\
 https://nytimes.com/athletic/5906434/2024/11/10/nfl-week-10-top-storylines-steelers-commanders-chiefs-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911284/2024/11/10/college-football-playoff-project
 **Mandel's Final Thoughts: Alabama got its act together and looks Playoff bound ... again**\
 `While the Crimson Tide beat LSU, two top-five teams lost on Saturday and shook up the College Football Playoff race.`\
 https://nytimes.com/athletic/5911325/2024/11/10/alabama-lsu-college-football-week-11-takeaways-mandel/
-
-**Roki Sasaki's contract situation, signing process and suitors, explained**\
-`How much will it cost for a team to sign Sasaki? Why is he leaving Japan now? We answer these questions and more.`\
-https://nytimes.com/athletic/5910800/2024/11/10/roki-sasaki-mlb-contract-signing-process/
 
