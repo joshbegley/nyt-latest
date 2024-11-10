@@ -1,3 +1,15 @@
+**Falcons at Saints: How to watch, odds, picks with Atlanta favored in NFC South clash**\
+`Kirk Cousins and the Falcons offense are clicking of late. Atlanta is favored to win in New Orleans this weekend.`\
+https://nytimes.com/athletic/5906894/2024/11/10/falcons-saints-how-to-watch-odds-picks-betting/
+
+**Family, retirement, injury, social media and more - the fears and anxieties of footballers in 2024**\
+`The Athletic has spent weeks talking to players about the issues that cause them concern - this is the result of those conversations`\
+https://nytimes.com/athletic/5888090/2024/11/10/fears-anxieties-players-men-women/
+
+**'I woke from the coma… and didn't remember I was a footballer'**\
+`The Honduras international had to learn to read and write again after a terrible head injury - but now he is targeting a return to the pitch`\
+https://nytimes.com/athletic/5865944/2024/11/10/alberth-elis-coma-interview/
+
 **Man City and Pep Guardiola have lost four in a row. How much should they panic?**\
 `After the international break, City face Tottenham and Liverpool. The big question is how quickly injured players can get back up to speed`\
 https://nytimes.com/athletic/5910465/2024/11/10/man-city-pep-guardiola-defeats/
