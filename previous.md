@@ -1,3 +1,7 @@
+**AP Top 25: Indiana gives Big Ten 4 of top 5 as Georgia tumbles**\
+`Indiana moved into the top five of the AP poll for the first time since 1967 while Georgia's streak of 60 straight top-10 appearances ended.`\
+https://nytimes.com/athletic/5912300/2024/11/10/ap-top-25-poll-indiana-big-ten/
+
 **After the Triumph of Tetris, an Unsolved Puzzle**\
 `Alexey Pajitnov, who created the ubiquitous game in 1984, opens up about his failed projects and his desire to design another hit.`\
 https://nytimes.com/2024/11/10/arts/tetris-forever-alexey-pajitnov.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912072/2024/11/10/garnacho-goal-celebration-bruno-
 **‘Change the Game’: Saudi Arabia Takes a Stride Into Women’s Tennis**\
 `The kingdom, which has been accused of trying to “sportswash” its human rights record, hosted the WTA Finals, part of its unstoppable advance into the world of sports.`\
 https://nytimes.com/2024/11/10/world/middleeast/saudi-arabia-womens-tennis-association.html
-
-**Alexander-Arnold confident hamstring issue is not serious**\
-`Trent Alexander-Arnold is confident that he isn’t facing a lengthy spell on the sidelines after being forced off in Liverpool’s 2-0 win over Aston Villa at Anfield.`\
-https://nytimes.com/athletic/5911632/2024/11/10/alexander-arnold-injury-latest-liverpool/
 
