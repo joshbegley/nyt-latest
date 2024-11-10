@@ -1,3 +1,19 @@
+**One Escaped Monkey of 43 Is Captured in South Carolina**\
+`The monkeys escaped after a worker at a research center left an enclosure unlocked. One monkey was captured Saturday while the rest remain at large.`\
+https://nytimes.com/2024/11/10/us/monkey-captured-south-carolina.html
+
+**Haitian Prime Minister Is Fired, Adding to the Nation’s Turmoil**\
+`As killings and hunger soar in Haiti, a political power struggle has cost the prime minister his job, another setback for a country plagued by gang violence.`\
+https://nytimes.com/2024/11/10/us/haiti-prime-minister-garry-conille-fired.html
+
+**Saints snap skid with 20-17 win against Falcons: Takeaways**\
+`The Saints were playing their first game under Darren Rizzi who was named the interim head coach this week`\
+https://nytimes.com/athletic/5911901/2024/11/10/falcons-saints-score-takeaways-result/
+
+**Patriots, Drake Maye knock off Bears, Caleb Williams 19-3: Takeaways**\
+`Chicago has lost three games in a row and has scored one touchdown in two weeks.`\
+https://nytimes.com/athletic/5911857/2024/11/10/patriots-bears-score-takeaways-result/
+
 **Bills hold off Colts, 30-20, to win fifth straight: Key takeaways**\
 `Buffalo muscled its way to another victory behind a standout showing from its defense.`\
 https://nytimes.com/athletic/5911868/2024/11/10/bills-colts-score-takeaways-result/
