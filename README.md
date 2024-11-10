@@ -1,3 +1,7 @@
+**Canadiens are not good enough, and the worst part is they don’t know it**\
+`The Canadiens, despite incremental gains to their collective game, consistently find a way a way to continue losing.`\
+https://nytimes.com/athletic/5911161/2024/11/10/canadiens-loss-maple-leafs/
+
 **Steelers at Commanders: How to watch, odds, expert picks with Washington as close home favorite**\
 `Who saw Washington and Pittsburgh as first-place teams in November? They face each other in Week 10. `\
 https://nytimes.com/athletic/5909061/2024/11/10/steelers-commanders-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906867/2024/11/10/broncos-chiefs-how-to-watch-odds
 **The Premier League's great entertainers are 10th in the table**\
 `Brentford's matches this season average four goals per game. They are surprising their own manager – and certainly surprising everyone else`\
 https://nytimes.com/athletic/5910083/2024/11/10/premier-league-goals-entertainment/
-
-**Once China’s ‘Worst Nightmare,’ Labor Activist Refuses to Back Down**\
-`Neither jail nor exile to Hong Kong have stopped Han Dongfang, a former Tiananmen Square protest leader, from championing workers’ rights. “If you’re born stubborn, you go everywhere stubborn.”`\
-https://nytimes.com/2024/11/10/world/asia/china-labor-rights-han-dongfang.html
 
