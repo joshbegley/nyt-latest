@@ -1,3 +1,11 @@
+**Tristan Jarry returns to Penguins after successful AHL loan: 'Hopefully it translates'**\
+`Jarry is back in the NHL and the Penguins are carrying three goalies (for now). Will it work?`\
+https://nytimes.com/athletic/5912402/2024/11/10/tristan-jarry-penguins-nhl-ahl-goaltending/
+
+**Palace investiging alleged racist abuse of Kamada**\
+`Crystal Palace have launched an investigation into allegations that midfielder Daichi Kamada was the subject of racist abuse.`\
+https://nytimes.com/athletic/5912523/2024/11/10/crystal-palace-kamada-abuse-investigation/
+
 **Arteta expects Saka, Rice to miss England games**\
 `Mikel Arteta says he does not expect Bukayo Saka or Declan Rice to be fit for England&#8217;s upcoming Nations League games after they were forced off during Arsenal&#8217;s 1-1 draw with Chelsea on Sunday.`\
 https://nytimes.com/athletic/5912286/2024/11/10/saka-rice-arsenal-injury-england/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/10/arts/tetris-forever-alexey-pajitnov.html
 **49ers' Pearsall scores first career touchdown just 10 weeks after shooting**\
 `Pearsall, a first-round pick in April's NFL Draft, was shot on Aug. 31 during an attempted robbery while shopping in San Francisco.`\
 https://nytimes.com/athletic/5912341/2024/11/10/ricky-pearsall-49ers-player-shot-td/
-
-**The Briefing: Chelsea 1 Arsenal 1: Big game woes and Neto most dangerous winger**\
-`Chelsea and Arsenal played out a 1-1 draw at Stamford Bridge on Sunday afternoon`\
-https://nytimes.com/athletic/5908786/2024/11/10/chelsea-arsenal-result-report-analysis/
-
-**Panthers stave off Giants with 20-17 OT victory in Germany: Takeaways**\
-`With the win in the 2024 International Series finale, the Panthers improve to 3-8 while the Giants drop to 2-8.`\
-https://nytimes.com/athletic/5911723/2024/11/10/giants-panthers-score-result-takeaways-nfl-germany/
 
