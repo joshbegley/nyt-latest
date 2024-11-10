@@ -1,3 +1,7 @@
+**NFL Week 10 takeaways: Do Steelers belong in Super Bowl talk? How do Chiefs keep doing this?**\
+`Plus, will Bryce Young or Daniel Jones have starting jobs when next season starts?`\
+https://nytimes.com/athletic/5912856/2024/11/10/nfl-week-10-scores-takeaways-steelers-chiefs/
+
 **Deebo Samuel swipes at 49ers long snapper’s throat after Moody missed FG**\
 `"I'll talk to Moody and we'll get past it," Samuel said, later adding Moody "had a little dog in him" to go hit the game-winner.`\
 https://nytimes.com/athletic/5912589/2024/11/10/deebo-samuel-jake-moody-swipe-missed-field-goal-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912272/2024/11/10/winnipeg-jets-nhl-history-record
 **One Escaped Monkey of 43 Is Captured in South Carolina**\
 `The monkeys escaped after a worker at a research center left an enclosure unlocked. One monkey was captured Saturday while the rest remain at large.`\
 https://nytimes.com/2024/11/10/us/monkey-captured-south-carolina.html
-
-**Haitian Prime Minister Is Fired, Adding to the Nation’s Turmoil**\
-`As killings and hunger soar in Haiti, a political power struggle has cost the prime minister his job, another setback for a country plagued by gang violence.`\
-https://nytimes.com/2024/11/10/us/haiti-prime-minister-garry-conille-fired.html
 
