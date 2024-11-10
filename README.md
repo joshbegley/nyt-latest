@@ -1,3 +1,7 @@
+**Jaguars' Lawrence out vs. Vikings, could miss rest of season**\
+`With Lawrence out, Mac Jones is expected to start at quarterback against Minnesota.`\
+https://nytimes.com/athletic/5911582/2024/11/10/trevor-lawrence-injury-jaguars/
+
 **Where did Miami go wrong and what does playoff exit mean for Messi and Martino?**\
 `Atlanta United's 3-2 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
 https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906434/2024/11/10/nfl-week-10-top-storylines-steel
 **Oilers, hoping to turn season around again, find another gear and crush Canucks**\
 `Getting a win against Vancouver on the road might have just woken Edmonton from its early-season slumber.`\
 https://nytimes.com/athletic/5911294/2024/11/10/oilers-defeat-canucks/
-
-**Is Liverpool's owner really ready to lose Mohamed Salah?**\
-`Liverpool should enhance the feel-good factor around the club by ending the impasse over Salah's future. Give Mo his dough.`\
-https://nytimes.com/athletic/5910805/2024/11/10/mohamed-salah-liverpool-future/
 
