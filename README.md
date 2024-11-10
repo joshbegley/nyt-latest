@@ -1,3 +1,11 @@
+**With Chuba Hubbard and improving D, Panthers still not a good team, but they're taking steps**\
+`Chuba Hubbard's career day and two timely takeaways from the defense propelled the Panthers to a rare back-to-back victory.`\
+https://nytimes.com/athletic/5912605/2024/11/10/panthers-win-chuba-hubbard-defense-giants/
+
+**Vikings overcome Sam Darnold's 3 INTs to beat Jaguars 12-7: Takeaways**\
+`On Sunday, Darnold threw three picks, all of which came in Jacksonville territory.`\
+https://nytimes.com/athletic/5911885/2024/11/10/vikings-jaguars-score-result-takeaways/
+
 **Moody's game-winning FG coats miscues in 49ers' 23-20 win vs. Bucs: Takeaways**\
 `Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after a nine-game absence with Achilles tendon injury.`\
 https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-takeaways/
@@ -18,7 +26,7 @@ https://nytimes.com/2024/11/10/us/haiti-prime-minister-garry-conille-fired.html
 `The Saints were playing their first game under Darren Rizzi who was named the interim head coach this week`\
 https://nytimes.com/athletic/5911901/2024/11/10/falcons-saints-score-takeaways-result/
 
-**Bills hold off Colts, 30-20, to win fifth straight: Key takeaways**\
+**Bills hold off Colts 30-20 to win fifth straight: Takeaways**\
 `Buffalo muscled its way to another victory behind a standout showing from its defense.`\
 https://nytimes.com/athletic/5911868/2024/11/10/bills-colts-score-takeaways-result/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5911894/2024/11/10/chiefs-broncos-score-result-take
 **Patriots, Drake Maye knock off Bears, Caleb Williams 19-3: Takeaways**\
 `Chicago has lost three games in a row and has scored one touchdown in two weeks.`\
 https://nytimes.com/athletic/5911857/2024/11/10/patriots-bears-score-takeaways-result/
-
-**In Roki Sasaki sweepstakes, could Yu Darvish and A.J. Preller be difference makers for Padres?**\
-`Every team would like to land Sasaki. Can his relationship with Darvish, and Darvish's admiration of Preller, give the Padres an edge?`\
-https://nytimes.com/athletic/5912593/2024/11/10/roki-sasaki-padres-yu-darvish-aj-preller/
-
-**Monday Briefing: Russian and North Korean Troops Assemble**\
-`Plus, does tech make us feel lonely?`\
-https://nytimes.com/2024/11/10/briefing/russia-north-korea-trump-india.html
 
