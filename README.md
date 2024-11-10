@@ -1,3 +1,19 @@
+**Forest 1 Newcastle United 3: Joelinton and Barnes seal comeback win for Howe's patient side**\
+`Newcastle United head into the international break buoyed by victory against Nottingham Forest after a comeback win against a stubborn side.`\
+https://nytimes.com/athletic/5908781/2024/11/10/nottingham-forest-1-newcastle-united-3-premier-league/
+
+**Lowetide: Why a Stan Bowman strength may benefit Oilers in a big way**\
+`Bowman's first opportunity to show Edmonton this particular ability may come this summer.`\
+https://nytimes.com/athletic/5909569/2024/11/10/oilers-stan-bowman-europe/
+
+**‘This Is the Best of the Best’**\
+`Marcella Hazan’s Bolognese sauce, tomato-rich and smoothed with milk, remains a reader favorite.`\
+https://nytimes.com/2024/11/10/dining/best-bolognese-sauce.html
+
+**Man United 3 Leicester 0: Fernandes stars as Van Nistelrooy leaves positive mood for Amorim**\
+`We break down the action from a United victory at Old Trafford as they await the arrival of Ruben Amorim.`\
+https://nytimes.com/athletic/5908783/2024/11/10/manchester-united-van-nistelrooy-fernandes/
+
 **Until Saturday: College football gets weird, plus Playoff predictions for Tuesday**\
 `Welcome to Until Saturday, the five-star college football newsletter: Upsets, squirrels, tortillas and more in college football's Week 11.`\
 https://nytimes.com/athletic/5910950/2024/11/10/college-football-week-11-playoff-predictions-until-saturday/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5911582/2024/11/10/trevor-lawrence-injury-jaguars/
 **Where did Miami go wrong and what does playoff exit mean for Messi and Martino?**\
 `Atlanta United's 3-2 Game 3 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
 https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-playoffs/
-
-**College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/10/college-football-playoff-projections-odds/
-
-**'The same people who allow women to play tennis are also torturing the activists'**\
-`The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality`\
-https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
-
-**Israeli Strike in Gaza Kills Over 30 Palestinians, Emergency Services Say**\
-`The strike hit a house in the city of Jabaliya, which has repeatedly come under attack as the Israeli military presses an offensive in northern Gaza.`\
-https://nytimes.com/2024/11/10/world/middleeast/gaza-jabaliya-israel.html
-
-**NFL Week 10 inactives and fantasy tips: Adam Thielen still out, Darius Slayton will miss Giants' Munich game**\
-`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
-https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
 
