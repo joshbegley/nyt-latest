@@ -1,3 +1,7 @@
+**Jaguars' Lawrence out vs. Vikings, could miss rest of season**\
+`With Lawrence out, Mac Jones is expected to start at quarterback against Minnesota.`\
+https://nytimes.com/athletic/5911582/2024/11/10/trevor-lawrence-injury-jaguars/
+
 **Where did Miami go wrong and what does playoff exit mean for Messi and Martino?**\
 `Atlanta United's 3-2 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
 https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-playoffs/
