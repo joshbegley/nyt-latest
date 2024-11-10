@@ -1,3 +1,7 @@
+**Saints snap skid with 20-17 win against Falcons: Takeaways**\
+`The Saints were playing their first game under Darren Rizzi who was named the interim head coach this week`\
+https://nytimes.com/athletic/5911901/2024/11/10/falcons-saints-score-takeaways-result/
+
 **Bills hold off Colts, 30-20, to win fifth straight: Key takeaways**\
 `Buffalo muscled its way to another victory behind a standout showing from its defense.`\
 https://nytimes.com/athletic/5911868/2024/11/10/bills-colts-score-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/nyregion/iran-assassination-plot-masih-alinejad.h
 **Tristan Jarry returns to Penguins after successful AHL loan: 'Hopefully it translates'**\
 `Jarry is back in the NHL and the Penguins are carrying three goalies (for now). Will it work?`\
 https://nytimes.com/athletic/5912402/2024/11/10/tristan-jarry-penguins-nhl-ahl-goaltending/
-
-**Palace investiging alleged racist abuse of Kamada**\
-`Crystal Palace have launched an investigation into allegations that midfielder Daichi Kamada was the subject of racist abuse.`\
-https://nytimes.com/athletic/5912523/2024/11/10/crystal-palace-kamada-abuse-investigation/
 
