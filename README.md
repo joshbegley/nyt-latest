@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5912807/2024/11/10/ruben-amorim-van-nistelrooy/
 
 **Florida State fires three assistants, including two coordinators**\
 `Coach Mike Norvell dismissed OC Alex Atkins, DC Adam Fuller and wide receivers coach Ron Dugans a day after a 52-3 loss at Notre Dame.`\
-https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defense-coordinators/
+https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defensive-coordinators/
 
 **With Chuba Hubbard and improving D, Panthers still not a good team, but they're taking steps**\
 `Chuba Hubbard's career day and two timely takeaways from the defense propelled the Panthers to a rare back-to-back victory.`\
