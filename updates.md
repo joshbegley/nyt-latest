@@ -1,3 +1,7 @@
+**What's Babe Ruth's rookie card? Originally a means to getting a free jump rope**\
+`Now highly valuable, Babe Ruth's earliest trading cards originally served other purposes`\
+https://nytimes.com/athletic/5911783/2024/11/10/babe-ruth-rookie-card-red-sox/
+
 **The Briefing: Tottenham 1 Ipswich 2: Spurs' inconsistency and slow starts are a big problem**\
 `Tottenham Hotspur fell to a shock 2-1 defeat against Ipswich Town on Sunday afternoon`\
 https://nytimes.com/athletic/5908785/2024/11/10/tottenham-hotspur-ipswich-town-result-report-analysis/
