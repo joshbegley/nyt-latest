@@ -1,3 +1,11 @@
+**Ole Miss fans carried out the goal posts — and the Rebels could be Playoff-bound**\
+`Ole Miss, a program with high ambitions, which looked poised to not reach them again, deserves to celebrate. `\
+https://nytimes.com/athletic/5910936/2024/11/09/ole-miss-georgia-playoff-celebration/
+
+**Atlanta United knocks Inter Miami and Messi out of MLS Cup Playoffs**\
+`Lionel Messi and Miami exit the MLS playoffs in the first round.`\
+https://nytimes.com/athletic/5910952/2024/11/09/inter-miami-messi-eliminated-mls-cup-playoffs/
+
 **Tennessee's Iamaleava leaves vs. Mississippi State with upper-body injury**\
 `It wasn’t immediately clear on which play the injury occurred, and the broadcast said Iamaleava was not expected to return to the game.`\
 https://nytimes.com/athletic/5910930/2024/11/09/nico-iamaleava-injury-tennessee-mississippi-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910744/2024/11/09/roki-sasaki-mlb-teams/
 **Travis Hunter tracker: Clutch TD reception helps Colorado continue its playoff push**\
 `Hunter put a couple more highlight-reel plays on his resume, including a key touchdown reception in a comeback win.`\
 https://nytimes.com/athletic/5910818/2024/11/09/travis-hunter-nfl-draft-2025-texas-tech/
-
-**Trump Won’t Have Haley or Pompeo in New Administration**\
-`President-elect Donald J. Trump ruled out roles for Nikki Haley and Mike Pompeo, who served in his previous administration.`\
-https://nytimes.com/2024/11/09/us/politics/trump-haley-pompeo.html
-
-**Suns' Kevin Durant out for 2 weeks with calf strain**\
-`Durant suffered the left calf strain in Friday’s win against the Dallas Mavericks.`\
-https://nytimes.com/athletic/5910763/2024/11/09/kevin-durant-hurt-injury-calf-suns-nba/
 
