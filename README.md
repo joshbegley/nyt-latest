@@ -1,3 +1,7 @@
+**Trump Won’t Have Haley or Pompeo in New Administration**\
+`President-elect Donald J. Trump ruled out roles for Nikki Haley and Mike Pompeo, who served in his previous administration.`\
+https://nytimes.com/2024/11/09/us/politics/trump-haley-pompeo.html
+
 **Suns' Kevin Durant out for 2 weeks with calf strain**\
 `Durant suffered the left calf strain in Friday’s win against the Dallas Mavericks.`\
 https://nytimes.com/athletic/5910763/2024/11/09/kevin-durant-hurt-injury-calf-suns-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910661/2024/11/09/grizzlies-ja-morant-injury-nba/
 **Takeaways: Ole Miss' Playoff hopes soar. Loss encapsulates Georgia's frustrations**\
 `Georgia lost to a team other than Alabama for the first time since 2020. Lane Kiffin beat a top-five team for the first time since 2011.`\
 https://nytimes.com/athletic/5910613/2024/11/09/ole-miss-georgia-playoff-result/
-
-**Trump Should Not Let Putin Claim Victory in Ukraine, Says NATO Official**\
-`Adm. Rob Bauer warned against any peace deal that was too favorable to Russia, arguing that it could undermine American interests.`\
-https://nytimes.com/2024/11/09/world/europe/trump-nato-putin-ukraine.html
 
