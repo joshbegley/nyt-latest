@@ -1,3 +1,7 @@
+**NFL Week 10 inactives and fantasy tips: Adam Thielen still out, Darius Slayton will miss Giants' Munich game**\
+`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
+https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
+
 **Revisiting the Harlem Renaissance**\
 `Why the era still resonates a century later.`\
 https://nytimes.com/2024/11/10/briefing/revisiting-the-harlem-renaissance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911325/2024/11/10/alabama-lsu-college-football-wee
 **Roki Sasaki's contract situation, signing process and suitors, explained**\
 `How much will it cost for a team to sign Sasaki? Why is he leaving Japan now? We answer these questions and more.`\
 https://nytimes.com/athletic/5910800/2024/11/10/roki-sasaki-mlb-contract-signing-process/
-
-**Success in 2022 Planted the Seeds of Failure in 2024**\
-`Maybe it would have been better if the “red wave” had crashed over us in 2022.`\
-https://nytimes.com/2024/11/10/opinion/trump-harris-presidential-election-midterms.html
 

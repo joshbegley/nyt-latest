@@ -1,3 +1,7 @@
+**NFL Week 10 inactives and fantasy tips: Adam Thielen still out, Darius Slayton will miss Giants' Munich game**\
+`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
+https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
+
 **Revisiting the Harlem Renaissance**\
 `Why the era still resonates a century later.`\
 https://nytimes.com/2024/11/10/briefing/revisiting-the-harlem-renaissance.html
