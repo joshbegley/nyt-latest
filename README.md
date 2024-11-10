@@ -1,40 +1,40 @@
-**Lions at Texans: How to watch, odds, expert picks for meeting of two of NFL's best teams**\
-`The Lions are 4-0 on the road and the Texans are 4-0 at home. Detroit is favored for what could be a good Sunday Night Football.`\
-https://nytimes.com/athletic/5909493/2024/11/10/lions-texans-how-to-watch-odds-picks-betting/
+**Mandel's Final Thoughts: Alabama got its act together and looks Playoff bound ... again**\
+`While the Crimson Tide beat LSU, two top-five teams lost on Saturday and shook up the College Football Playoff race.`\
+https://nytimes.com/athletic/5911325/2024/11/10/alabama-lsu-college-football-week-11-takeaways-mandel/
 
-**Israeli Strikes Killed 20 People in Northeastern Lebanon, Health Ministry Says**\
-`The strikes on Saturday targeted the ancient city of Baalbek and the surrounding areas.`\
-https://nytimes.com/2024/11/10/world/europe/lebanon-gaza-israel.html
+**Roki Sasaki's contract situation, signing process and suitors, explained**\
+`How much will it cost for a team to sign Sasaki? Why is he leaving Japan now? We answer these questions and more.`\
+https://nytimes.com/athletic/5910800/2024/11/10/roki-sasaki-mlb-contract-signing-process/
 
-**Jets at Cardinals: How to watch, odds, expert picks for one of Sunday's tightest games**\
-`The 5-4 Cardinals and 3-6 Jets both need wins this week and the spread predicts a close matchup.`\
-https://nytimes.com/athletic/5909435/2024/11/10/jets-cardinals-how-to-watch-odds-picks-betting/
+**Success in 2022 Planted the Seeds of Failure in 2024**\
+`Maybe it would have been better if the “red wave” had crashed over us in 2022.`\
+https://nytimes.com/2024/11/10/opinion/trump-harris-presidential-election-midterms.html
 
-**50,000 Russian and North Korean Troops Mass Ahead of Attack, U.S. Says**\
-`Ukrainian officials expect a counteroffensive in western Russia to begin in the coming days as North Korea’s troops train with Russian forces.`\
-https://nytimes.com/2024/11/10/us/politics/russia-north-korea-troops-ukraine.html
+**The Curling Theory of Campaigns Proves Itself Again**\
+`There were two huge problems Harris could not escape.`\
+https://nytimes.com/2024/11/10/opinion/harris-trump-campaign-curling.html
 
-**Was Martha Stewart Really the Original Influencer?**\
-`The new Netflix documentary “Martha” examines the homemaking diva’s illustrious, and complicated, career and personal life.`\
-https://nytimes.com/2024/11/10/style/martha-stewart-netflix-documentary-influencer.html
+**Why We Turn to Crosswords in Times of Crisis**\
+`When life gets tough, we tackle grids for good reason. They offer a singular combination of erudition and escape.`\
+https://nytimes.com/2024/11/10/opinion/crosswords-comfort-crisis.html
 
-**Unions Bet Big on Harris. Now They’re Bracing for Consequences.**\
-`Government unions, service worker unions and industrial unions all face possible repercussions from Donald Trump’s victory, but not necessarily all the same kind.`\
-https://nytimes.com/2024/11/10/us/politics/trump-unions.html
+**Does Michigan have a Sherrone Moore game management problem?**\
+`Michigan needs to find out if Moore can push the right buttons under pressure. Saturday at Indiana showed he needs to get better.`\
+https://nytimes.com/athletic/5910953/2024/11/10/michigan-indiana-football-sherrone-moore/
 
-**The White House Will Be Shedding Its Union Label**\
-`After gains by organized labor under President Biden, a second Trump administration is likely to change course on regulation and enforcement.`\
-https://nytimes.com/2024/11/10/business/economy/trump-biden-labor-unions.html
+**Why Shakespeare Remains Relevant Today**\
+`Readers discuss the production of the Bard’s plays today. Also: Elderly and physically active; investing in youth to reduce crime; political corruption.`\
+https://nytimes.com/2024/11/10/opinion/shakespeare-plays.html
 
-**Immigration Lawyers Prepare to Battle Trump in Court Again**\
-`Nearly eight years after the first challenges to his immigration policies, Donald Trump is returning to the White House promising a more aggressive crackdown.`\
-https://nytimes.com/2024/11/10/us/trump-immigration-court-lawsuits.html
+**The Connections Companion No. 519**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 11, 2024.`\
+https://nytimes.com/2024/11/10/crosswords/connections-companion-519.html
 
-**Missing in Europe: A Strong Leader for a New Trump Era**\
-`Internal political squabbles — and the fallout from a global backlash to inflation, immigration and ruling elites — are hobbling Germany and France.`\
-https://nytimes.com/2024/11/10/world/europe/missing-in-europe-a-strong-leader-for-a-new-trump-era.html
+**When Did Liberals Become So Comfortable With War?**\
+`If liberals won’t discuss the devastating human costs of war, who will?`\
+https://nytimes.com/2024/11/10/opinion/liberals-war-ukraine-gaza-israel.html
 
-**Palestinians Try to Sway Trump, Reaching Out to Tiffany Trump’s Relative**\
-`The Palestinian leader Mahmoud Abbas has met with Tiffany Trump’s father-in-law and written conciliatory letters to the president-elect, a strong supporter of Israel.`\
-https://nytimes.com/2024/11/10/world/middleeast/trump-palestinians-abbas-gaza-war.html
+**Israel Keeps Attacking Journalists. When Will the U.S. Intervene?**\
+`Dozens of journalists have been killed as a result of the Israeli military in Gaza. The Biden administration is not doing enough to stop it.`\
+https://nytimes.com/2024/11/10/opinion/israel-war-journalists-killed-gaza.html
 
