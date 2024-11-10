@@ -1,3 +1,7 @@
+**Live Q&A: Week 10 fantasy football start/sit chat with Jay Felicio, Sunday 11/10 at 11 a.m. ET**\
+`Submit your Week 10 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5906319/2024/11/10/live-qa-week-10-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-7-at-11-a-m-et/
+
 **SEC championship and tiebreaker update: Why it all matters now**\
 `What we’ve seen so far indicates more upsets are coming, which could help clear up the SEC logjam … or maybe not.`\
 https://nytimes.com/athletic/5911581/2024/11/10/sec-championship-tiebreaker-scenarios/
