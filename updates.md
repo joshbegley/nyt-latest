@@ -1,3 +1,7 @@
+**Until Saturday: College football gets weird, plus Playoff predictions for Tuesday**\
+`Welcome to Until Saturday, the five-star college football newsletter: Upsets, squirrels, tortillas and more in college football's Week 11.`\
+https://nytimes.com/athletic/5910950/2024/11/10/college-football-week-11-playoff-predictions-until-saturday/
+
 **'The same people who allow women to play tennis are also torturing the activists'**\
 `The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality`\
 https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
