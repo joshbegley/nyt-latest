@@ -1,3 +1,11 @@
+**Lions at Texans: How to watch, odds, expert picks for meeting of two of NFL's best teams**\
+`The Lions are 4-0 on the road and the Texans are 4-0 at home. Detroit is favored for what could be a good Sunday Night Football.`\
+https://nytimes.com/athletic/5909493/2024/11/10/lions-texans-how-to-watch-odds-picks-betting/
+
+**Israeli Strikes Killed 20 People in Northeastern Lebanon, Health Ministry Says**\
+`The strikes on Saturday targeted the ancient city of Baalbek and the surrounding areas.`\
+https://nytimes.com/2024/11/10/world/europe/lebanon-gaza-israel.html
+
 **Jets at Cardinals: How to watch, odds, expert picks for one of Sunday's tightest games**\
 `The 5-4 Cardinals and 3-6 Jets both need wins this week and the spread predicts a close matchup.`\
 https://nytimes.com/athletic/5909435/2024/11/10/jets-cardinals-how-to-watch-odds-picks-betting/
