@@ -1,3 +1,7 @@
+**Falcons at Saints: How to watch, odds, picks with Atlanta favored in NFC South clash**\
+`Kirk Cousins and the Falcons offense are clicking of late. Atlanta is favored to win in New Orleans this weekend.`\
+https://nytimes.com/athletic/5906894/2024/11/10/falcons-saints-how-to-watch-odds-picks-betting/
+
 **Family, retirement, injury, social media and more - the fears and anxieties of footballers in 2024**\
 `The Athletic has spent weeks talking to players about the issues that cause them concern - this is the result of those conversations`\
 https://nytimes.com/athletic/5888090/2024/11/10/fears-anxieties-players-men-women/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909364/2024/11/10/chelsea-arsenal-preview-odds-pre
 **Bills at Colts: How to watch, odds, expert picks with Buffalo as road favorites**\
 `Josh Allen and the Bills are favored while traveling to the Colts this weekend.`\
 https://nytimes.com/athletic/5906724/2024/11/10/bills-colts-how-to-watch-odds-picks-betting/
-
-**No easy answers for Red Wings after dropping below .500**\
-`After being shut out by the Rangers Saturday, the Red Wings' slow start hasn't come with many clear solutions or answers. `\
-https://nytimes.com/athletic/5910975/2024/11/09/red-wings-rangers-season-crossroads/
 
