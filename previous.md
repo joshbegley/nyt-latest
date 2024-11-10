@@ -14,8 +14,8 @@ https://nytimes.com/2024/11/10/us/politics/republican-senators-trump-scott-thune
 `Performing and recording, she transformed what was seen as a marginal genre in the music industry into a celebration of shared humanity.`\
 https://nytimes.com/2024/11/10/obituaries/ella-jenkins-dead.html
 
-**The Giants are getting worse, so what exactly is the case for retaining Brian Daboll, Joe Schoen?**\
-`Nothing about the Giants signals things are headed in the right direction. They are regressing in the Year 3 of this regime. `\
+**The Giants are getting worse, so what is the case for retaining Brian Daboll and Joe Schoen?**\
+`Nothing about the Giants signals things are headed in the right direction. They are regressing in Year 3 of this regime. `\
 https://nytimes.com/athletic/5912694/2024/11/10/giants-brian-daboll-joe-schoen-panthers-loss/
 
 **NFL Week 10 takeaways: Do Steelers belong in Super Bowl talk? How do Chiefs keep doing this?**\

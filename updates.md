@@ -1,3 +1,7 @@
+**The Giants are getting worse, so what is the case for retaining Brian Daboll and Joe Schoen?**\
+`Nothing about the Giants signals things are headed in the right direction. They are regressing in Year 3 of this regime. `\
+https://nytimes.com/athletic/5912694/2024/11/10/giants-brian-daboll-joe-schoen-panthers-loss/
+
 **Blue Jackets claim defenseman Dante Fabbro off waivers from Nashville**\
 `The former 2016 first-round pick played 315 games for Nashville before Sunday's claim.`\
 https://nytimes.com/athletic/5912873/2024/11/10/blue-jackets-dante-fabbro-waivers-claim-predators/
