@@ -1,3 +1,7 @@
+**Blue Jackets claim defenseman Dante Fabbro off waivers from Nashville**\
+`The former 2016 first-round pick played 315 games for Nashville before Sunday's claim.`\
+https://nytimes.com/athletic/5912873/2024/11/10/blue-jackets-dante-fabbro-waivers-claim-predators/
+
 **Painter’s Propper-Upper**\
 `Patrick Gramza and John Kugelman make their collaboration debut.`\
 https://nytimes.com/2024/11/10/crosswords/daily-puzzle-2024-11-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912807/2024/11/10/ruben-amorim-van-nistelrooy/
 **Florida State fires three assistants, including two coordinators**\
 `Coach Mike Norvell dismissed OC Alex Atkins, DC Adam Fuller and wide receivers coach Ron Dugans a day after a 52-3 loss at Notre Dame.`\
 https://nytimes.com/athletic/5912839/2024/11/10/florida-state-football-fires-offensive-defensive-coordinators/
-
-**With Chuba Hubbard and improving D, Panthers still not a good team, but they're taking steps**\
-`Chuba Hubbard's career day and two timely takeaways from the defense propelled the Panthers to a rare back-to-back victory.`\
-https://nytimes.com/athletic/5912605/2024/11/10/panthers-win-chuba-hubbard-defense-giants/
 

@@ -1,3 +1,7 @@
+**Blue Jackets claim defenseman Dante Fabbro off waivers from Nashville**\
+`The former 2016 first-round pick played 315 games for Nashville before Sunday's claim.`\
+https://nytimes.com/athletic/5912873/2024/11/10/blue-jackets-dante-fabbro-waivers-claim-predators/
+
 **Painter’s Propper-Upper**\
 `Patrick Gramza and John Kugelman make their collaboration debut.`\
 https://nytimes.com/2024/11/10/crosswords/daily-puzzle-2024-11-11.html
