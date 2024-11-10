@@ -1,3 +1,7 @@
+**NYCFC advances to Eastern Conference semifinals after 9-round penalty-kick shootout**\
+`NYCFC will host its rival, the New York Red Bulls, in an Eastern Conference semifinal.`\
+https://nytimes.com/athletic/5910767/2024/11/09/nycfc-fc-cincinnati-mls-cup-playoffs/
+
 **Man United vs Leicester preview, odds, prediction: Red Devils continue to chase top half**\
 `Manchester United have a new manager coming, but the Red Devils are still floundering in the bottom half of the table.`\
 https://nytimes.com/athletic/5909074/2024/11/09/manchester-united-leicester-city-preview-odds-prediction/
