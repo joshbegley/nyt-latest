@@ -1,3 +1,7 @@
+**How did Alabama get its season back on track at LSU?**\
+`How exactly did it all come together for Alabama at LSU? The Tide were focused on Saturday and are locked in for November.`\
+https://nytimes.com/athletic/5911411/2024/11/10/alabama-football-lsu-kalen-deboer/
+
 **Russia Says It Shot Down Waves of Drones Above Moscow**\
 `Officials said that more than 30 drones had been intercepted over suburban areas of the Russian capital in what was the biggest such attack since the invasion of Ukraine in 2022.`\
 https://nytimes.com/2024/11/10/world/europe/moscow-drone-attack-ukraine-russia.html

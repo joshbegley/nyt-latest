@@ -1,3 +1,7 @@
+**How did Alabama get its season back on track at LSU?**\
+`How exactly did it all come together for Alabama at LSU? The Tide were focused on Saturday and are locked in for November.`\
+https://nytimes.com/athletic/5911411/2024/11/10/alabama-football-lsu-kalen-deboer/
+
 **Russia Says It Shot Down Waves of Drones Above Moscow**\
 `Officials said that more than 30 drones had been intercepted over suburban areas of the Russian capital in what was the biggest such attack since the invasion of Ukraine in 2022.`\
 https://nytimes.com/2024/11/10/world/europe/moscow-drone-attack-ukraine-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910953/2024/11/10/michigan-indiana-football-sherro
 **Why Shakespeare Remains Relevant Today**\
 `Readers discuss the production of the Bard’s plays today. Also: Elderly and physically active; investing in youth to reduce crime; political corruption.`\
 https://nytimes.com/2024/11/10/opinion/shakespeare-plays.html
-
-**The Connections Companion No. 519**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 11, 2024.`\
-https://nytimes.com/2024/11/10/crosswords/connections-companion-519.html
 
