@@ -1,3 +1,7 @@
+**In Roki Sasaki sweepstakes, could Yu Darvish and A.J. Preller be difference makers for Padres?**\
+`Every team would like to land Sasaki. Can his relationship with Darvish, and Darvish's admiration of Preller, give the Padres an edge?`\
+https://nytimes.com/athletic/5912593/2024/11/10/roki-sasaki-padres-yu-darvish-aj-preller/
+
 **Monday Briefing: Russian and North Korean Troops Assemble**\
 `Plus, does tech make us feel lonely?`\
 https://nytimes.com/2024/11/10/briefing/russia-north-korea-trump-india.html
