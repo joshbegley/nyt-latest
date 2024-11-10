@@ -1,6 +1,6 @@
 **Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
 `McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
-https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-managr/
+https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-manager/
 
 **Blue Jackets claim defenseman Dante Fabbro off waivers from Nashville**\
 `The former 2016 first-round pick played 315 games for Nashville before Sunday's claim.`\
