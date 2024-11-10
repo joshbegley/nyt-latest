@@ -1,3 +1,7 @@
+**Suns' Kevin Durant out for two weeks with calf strain**\
+`Durant suffered the left calf strain in Friday’s win against the Dallas Mavericks.`\
+https://nytimes.com/athletic/5910763/2024/11/09/kevin-durant-hurt-injury-calf-suns-nba/
+
 **Firefighters Gain More Control of Southern California Blaze That Spread Rapidly**\
 `After the Mountain fire ballooned to more than 20,000 acres in less than 24 hours, improving weather conditions helped crews contain more of the blaze on Saturday.`\
 https://nytimes.com/2024/11/09/us/california-mountain-fire.html
