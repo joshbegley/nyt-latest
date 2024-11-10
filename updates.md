@@ -1,3 +1,7 @@
+**2 New York Men Charged in Monthslong Plot to Kill Iranian Activist**\
+`The men were receiving orders from a third man, who was working as an Iranian operative and was also involved in a plot to assassinate Donald J. Trump, federal prosecutors said.`\
+https://nytimes.com/2024/11/10/nyregion/iran-assassination-plot-masih-alinejad.html
+
 **Tristan Jarry returns to Penguins after successful AHL loan: 'Hopefully it translates'**\
 `Jarry is back in the NHL and the Penguins are carrying three goalies (for now). Will it work?`\
 https://nytimes.com/athletic/5912402/2024/11/10/tristan-jarry-penguins-nhl-ahl-goaltending/
