@@ -1,3 +1,7 @@
+**What Is Paul Taylor Without Paul Taylor? Full of Bumps.**\
+`The Taylor company returns to Lincoln Center with four premieres and a new resident choreographer: Robert Battle, the former director of Alvin Ailey.`\
+https://nytimes.com/2024/11/10/arts/dance/paul-taylor-premieres.html
+
 **The Pulse: 2 top-4 teams go down**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5911981/2024/11/10/georgia-miami-college-football-nfl-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/style/conclave-movie-costumes-pope.html
 **Juric sacked by Roma after Bologna defeat**\
 `Ivan Juric has been sacked as head coach of Roma after defeat to Bologna on Sunday.`\
 https://nytimes.com/athletic/5879126/2024/11/10/ivan-juric-roma-sacked/
-
-**NFL Week 10 inactives and fantasy tips: Christian McCaffrey, Deebo Samuel active in Week 10**\
-`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
-https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
 
