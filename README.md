@@ -1,3 +1,7 @@
+**Man United vs Leicester preview, odds, prediction: Red Devils continue to chase top half**\
+`Manchester United have a new manager coming, but the Red Devils are still floundering in the bottom half of the table.`\
+https://nytimes.com/athletic/5909074/2024/11/09/manchester-united-leicester-city-preview-odds-prediction/
+
 **NYCFC advances to Eastern Conference semifinals after 9-round penalty kick shootout**\
 `NYCFC will host its rival, the New York Red Bulls, in an Eastern Conference semifinal.`\
 https://nytimes.com/athletic/5910767/2024/11/09/nycfc-fc-cincinnati-mls-cup-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5904893/2024/11/09/giants-panthers-how-to-watch-odd
 **Two Militia Founders Are Convicted of Plot to Kill Federal Agents**\
 `“We were going out huntin’,” one of the men said in a video before a planned trip to the Mexico border, where they intended to shoot at immigrants and officials who might stop them, prosecutors said.`\
 https://nytimes.com/2024/11/09/us/militia-border-convictions.html
-
-**Jets achieve best start in NHL history at 14-1-0**\
-`The Jets are off to the best 15-game start in NHL history, winning 14 of their first 15 games to build a record of 14-1-0.`\
-https://nytimes.com/athletic/5909152/2024/11/09/winnipeg-jets-record-start/
 
