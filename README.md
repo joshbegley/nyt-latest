@@ -1,3 +1,7 @@
+**No easy answers for Red Wings after dropping below .500**\
+`After being shut out by the Rangers Saturday, the Red Wings' slow start hasn't come with many clear solutions or answers. `\
+https://nytimes.com/athletic/5910975/2024/11/09/red-wings-rangers-season-crossroads/
+
 **Patriots at Bears: How to watch, odds, expert picks as Caleb Williams faces Drake Maye**\
 `The first and third overall picks from the 2024 NFL Draft face off in Chicago.`\
 https://nytimes.com/athletic/5904964/2024/11/09/patriots-bears-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/09/business/tsmc-ai-chips-china.html
 **Maple Leafs report cards: Power play stays hot in victory over Canadiens**\
 `Toronto did what it was supposed to do against a team at the bottom of the division in a 4-1 win over Montreal.`\
 https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-analysis/
-
-**Ole Miss fans carried out the goal posts — and the Rebels could be Playoff-bound**\
-`Ole Miss, a program with high ambitions, which looked poised to not reach them again, deserves to celebrate. `\
-https://nytimes.com/athletic/5910936/2024/11/09/ole-miss-georgia-playoff-celebration/
 
