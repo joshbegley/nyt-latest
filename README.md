@@ -1,3 +1,7 @@
+**Titans at Chargers: How to watch, odds, expert picks with LA rolling**\
+`The Chargers have won three of their last four and take on a struggling Titans offense at home. `\
+https://nytimes.com/athletic/5909361/2024/11/10/titans-chargers-how-to-watch-odds-picks-betting/
+
 **Immanuel Quickley is back to help save the Raptors' half-court offence**\
 `The Raptors lost again, but Quickley's return should animate the Raptors when their offence bogs down. `\
 https://nytimes.com/athletic/5911285/2024/11/10/raptors-immanuel-quickley-is-back/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/style/emma-chamberlain-warby-parker.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/10/crosswords/spelling-bee-forum.html
-
-**When Anna Wintour Let Marc Jacobs Do Her Job**\
-`Vogue has its first guest editor. Just call it “The December Issue.”`\
-https://nytimes.com/2024/11/10/style/anna-wintour-marc-jacobs-vogue.html
 
