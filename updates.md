@@ -1,3 +1,7 @@
+**Suns' Kevin Durant out for 2 weeks with calf strain**\
+`Durant suffered the left calf strain in Friday’s win against the Dallas Mavericks.`\
+https://nytimes.com/athletic/5910763/2024/11/09/kevin-durant-hurt-injury-calf-suns-nba/
+
 **Suns' Kevin Durant out for two weeks with calf strain**\
 `Durant suffered the left calf strain in Friday’s win against the Dallas Mavericks.`\
 https://nytimes.com/athletic/5910763/2024/11/09/kevin-durant-hurt-injury-calf-suns-nba/
