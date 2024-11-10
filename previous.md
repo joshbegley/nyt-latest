@@ -1,3 +1,7 @@
+**Ranking and rating Leeds's four substitutes from their 2-0 win over QPR**\
+`Farke's four substitutes all came on and made a point by adding to the havoc of the final 15 minutes. The Athletic has graded their impact`\
+https://nytimes.com/athletic/5910056/2024/11/10/leeds-qpr-substitutes-piroe-guilavogui-james-schmidt/
+
 **Falcons at Saints: How to watch, odds, picks with Atlanta favored in NFC South clash**\
 `Kirk Cousins and the Falcons offense are clicking of late. Atlanta is favored to win in New Orleans this weekend.`\
 https://nytimes.com/athletic/5906894/2024/11/10/falcons-saints-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/world/asia/taiwan-sees-a-higher-price-for-us-supp
 **Chelsea vs Arsenal preview: Storylines, odds, prediction for match with top 4 implications**\
 `Arsenal's title hopes appear to be fading fast, but the Gunners are still in the thick of the top four race. So are Chelsea.`\
 https://nytimes.com/athletic/5909364/2024/11/10/chelsea-arsenal-preview-odds-prediction/
-
-**Bills at Colts: How to watch, odds, expert picks with Buffalo as road favorites**\
-`Josh Allen and the Bills are favored while traveling to the Colts this weekend.`\
-https://nytimes.com/athletic/5906724/2024/11/10/bills-colts-how-to-watch-odds-picks-betting/
 

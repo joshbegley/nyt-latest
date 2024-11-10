@@ -1,3 +1,7 @@
+**Ranking and rating Leeds's four substitutes from their 2-0 win over QPR**\
+`Farke's four substitutes all came on and made a point by adding to the havoc of the final 15 minutes. The Athletic has graded their impact`\
+https://nytimes.com/athletic/5910056/2024/11/10/leeds-qpr-substitutes-piroe-guilavogui-james-schmidt/
+
 **Falcons at Saints: How to watch, odds, picks with Atlanta favored in NFC South clash**\
 `Kirk Cousins and the Falcons offense are clicking of late. Atlanta is favored to win in New Orleans this weekend.`\
 https://nytimes.com/athletic/5906894/2024/11/10/falcons-saints-how-to-watch-odds-picks-betting/
