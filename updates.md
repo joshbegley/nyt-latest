@@ -1,3 +1,7 @@
+**TSMC Stops Advanced Chip Shipments to Chinese Customers**\
+`The Taiwanese chip giant will halt shipments to Chinese companies after some of its most advanced chips ended up with Huawei.`\
+https://nytimes.com/2024/11/09/business/tsmc-ai-chips-china.html
+
 **Maple Leafs report cards: Power play stays hot in victory over Canadiens**\
 `Toronto did what it was supposed to do against a team at the bottom of the division in a 4-1 win over Montreal.`\
 https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-analysis/
