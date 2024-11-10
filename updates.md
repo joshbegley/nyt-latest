@@ -1,3 +1,7 @@
+**Monday Briefing: Russian and North Korean Troops Assemble**\
+`Plus, does tech make us feel lonely?`\
+https://nytimes.com/2024/11/10/briefing/russia-north-korea-trump-india.html
+
 **Kennesaw State football coach steps down after 1-8 start in first FBS season**\
 `Bohannon was the first and only coach in the history of the program, which began play in 2015.`\
 https://nytimes.com/athletic/5912329/2024/11/10/kennesaw-state-football-coach-brian-bohannon-steps-down/
