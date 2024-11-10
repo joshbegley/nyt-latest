@@ -1,3 +1,7 @@
+**Until Saturday: College football gets weird, plus Playoff predictions for Tuesday**\
+`Welcome to Until Saturday, the five-star college football newsletter: Upsets, squirrels, tortillas and more in college football's Week 11.`\
+https://nytimes.com/athletic/5910950/2024/11/10/college-football-week-11-playoff-predictions-until-saturday/
+
 **Pochettino calls up USMNT roster for Nations League, including Weah, Richards**\
 `U.`\
 https://nytimes.com/athletic/5911668/2024/11/10/usmnt-roster-nations-league-weah-richards/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/world/middleeast/gaza-jabaliya-israel.html
 **NFL Week 10 inactives and fantasy tips: Adam Thielen still out, Darius Slayton will miss Giants' Munich game**\
 `Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
 https://nytimes.com/athletic/5909628/2024/11/10/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
-
-**Revisiting the Harlem Renaissance**\
-`Why the era still resonates a century later.`\
-https://nytimes.com/2024/11/10/briefing/revisiting-the-harlem-renaissance.html
 
