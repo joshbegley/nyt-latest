@@ -1,3 +1,7 @@
+**49ers at Buccaneers: How to watch, odds, expert picks with Niners favored in CMC return**\
+`Christian McCaffrey returns for the Niners, who are big favorites over the Buccaneers. Will Baker Mayfield continue his success?`\
+https://nytimes.com/athletic/5907144/2024/11/10/49ers-buccaneers-how-to-watch-odds-picks-betting/
+
 **Ranking and rating Leeds's four substitutes from their 2-0 win over QPR**\
 `Farke's four substitutes all came on and made a point by adding to the havoc of the final 15 minutes. The Athletic has graded their impact`\
 https://nytimes.com/athletic/5910056/2024/11/10/leeds-qpr-substitutes-piroe-guilavogui-james-schmidt/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/world/asia/china-labor-rights-han-dongfang.html
 **Taiwan Sees a Higher Price for U.S. Support as Trump Returns to Power**\
 `The president-elect’s call for Taiwan to spend more on its own defense and his complaints about its semiconductor dominance may herald a tenser relationship.`\
 https://nytimes.com/2024/11/10/world/asia/taiwan-sees-a-higher-price-for-us-support-as-trump-returns-to-power.html
-
-**Chelsea vs Arsenal preview: Storylines, odds, prediction for match with top 4 implications**\
-`Arsenal's title hopes appear to be fading fast, but the Gunners are still in the thick of the top four race. So are Chelsea.`\
-https://nytimes.com/athletic/5909364/2024/11/10/chelsea-arsenal-preview-odds-prediction/
 
