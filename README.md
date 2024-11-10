@@ -1,3 +1,11 @@
+**Haitian Prime Minister Is Fired, Adding to the Nation’s Turmoil**\
+`As killings and hunger soar in Haiti, a political power struggle has cost the prime minister his job, another setback for a country plagued by gang violence.`\
+https://nytimes.com/2024/11/10/us/haiti-prime-minister-garry-conille-fired.html
+
+**Saints snap skid with 20-17 win against Falcons: Takeaways**\
+`The Saints were playing their first game under Darren Rizzi who was named the interim head coach this week`\
+https://nytimes.com/athletic/5911901/2024/11/10/falcons-saints-score-takeaways-result/
+
 **Bills hold off Colts, 30-20, to win fifth straight: Key takeaways**\
 `Buffalo muscled its way to another victory behind a standout showing from its defense.`\
 https://nytimes.com/athletic/5911868/2024/11/10/bills-colts-score-takeaways-result/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/5911868/2024/11/10/bills-colts-score-takeaways-resu
 `The tight victory continued the Chiefs' knack for winning close finishes, giving the Chiefs their seventh one-possession win this season.`\
 https://nytimes.com/athletic/5911894/2024/11/10/chiefs-broncos-score-result-takeaways/
 
-**Patriots, Drake Maye knock off Bears, Caleb Williams: Takeaways**\
+**Patriots, Drake Maye knock off Bears, Caleb Williams 19-3: Takeaways**\
 `Chicago has lost three games in a row and has scored one touchdown in two weeks.`\
 https://nytimes.com/athletic/5911857/2024/11/10/patriots-bears-score-takeaways-result/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/10/nyregion/wildfires-ny-nj-drought.html
 **2 New York Men Charged in Monthslong Plot to Kill Iranian Activist**\
 `The men were receiving orders from a third man, who was working as an Iranian operative and was also involved in a plot to assassinate Donald J. Trump, federal prosecutors said.`\
 https://nytimes.com/2024/11/10/nyregion/iran-assassination-plot-masih-alinejad.html
-
-**Tristan Jarry returns to Penguins after successful AHL loan: 'Hopefully it translates'**\
-`Jarry is back in the NHL and the Penguins are carrying three goalies (for now). Will it work?`\
-https://nytimes.com/athletic/5912402/2024/11/10/tristan-jarry-penguins-nhl-ahl-goaltending/
-
-**Palace investiging alleged racist abuse of Kamada**\
-`Crystal Palace have launched an investigation into allegations that midfielder Daichi Kamada was the subject of racist abuse.`\
-https://nytimes.com/athletic/5912523/2024/11/10/crystal-palace-kamada-abuse-investigation/
 
