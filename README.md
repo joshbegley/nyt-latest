@@ -1,7 +1,3 @@
-**TSMC Stops Advanced Chip Shipments to Chinese Customers**\
-`The Taiwanese chip giant will halt shipments to Chinese companies after some of its most advanced chips ended up with Huawei.`\
-https://nytimes.com/2024/11/09/business/tsmc-ai-chips-china.html
-
 **Maple Leafs report cards: Power play stays hot in victory over Canadiens**\
 `Toronto did what it was supposed to do against a team at the bottom of the division in a 4-1 win over Montreal.`\
 https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-analysis/
@@ -11,7 +7,7 @@ https://nytimes.com/athletic/5910902/2024/11/09/maple-leafs-canadiens-grades-ana
 https://nytimes.com/athletic/5910936/2024/11/09/ole-miss-georgia-playoff-celebration/
 
 **Atlanta United knocks Inter Miami and Messi out of MLS Cup Playoffs**\
-`Lionel Messi and Miami exit the MLS playoffs in the first round.`\
+`Lionel Messi and top-seeded Miami exit the MLS playoffs in the first round.`\
 https://nytimes.com/athletic/5910952/2024/11/09/inter-miami-messi-eliminated-mls-cup-playoffs/
 
 **Tennessee's Iamaleava leaves vs. Mississippi State with upper-body injury**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-project
 **Colorado rallies past Texas Tech, takes another step toward CFP**\
 `The Buffaloes are in sole possession of second place in the Big 12 and in position to play in the league title game.`\
 https://nytimes.com/athletic/5910862/2024/11/09/colorado-texas-tech-deion-sanders-playoff/
+
+**The Roki Sasaki MLB sweepstakes: Teams to watch and what could influence his decision**\
+`The Dodgers may be perceived as favorites, but league sources note the Mets are well positioned, while the Phillies could be in the mix`\
+https://nytimes.com/athletic/5910744/2024/11/09/roki-sasaki-mlb-teams/
 
