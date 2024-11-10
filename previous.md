@@ -10,7 +10,7 @@ https://nytimes.com/2024/11/09/pageoneplus/corrections-nov-10-2024.html
 `A three-time winner of the Daytona 500, he was ranked as one of NASCAR’s greatest drivers, with 84 victories. But his career was marred by tragedy and injuries.`\
 https://nytimes.com/2024/11/09/sports/autoracing/bobby-allison-dead.html
 
-**College Football Playoff 2024 projections: Where bracket stands after Miami, Georgia losses**\
+**College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
 

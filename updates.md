@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/09/college-football-playoff-projections-odds/
+
 **Donald Trump Wins Arizona, Reversing the State’s Blue Trend**\
 `The victory added to the list of battleground states that Mr. Trump lost in 2020 and flipped back four years later.`\
 https://nytimes.com/2024/11/09/us/politics/arizona-election-harris-trump.html
