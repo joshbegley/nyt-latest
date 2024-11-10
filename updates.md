@@ -1,3 +1,7 @@
+**Notre Dame looks and sounds like a team that is mastering winning**\
+`Saturday night at Notre Dame Stadium felt like a big game without a big opponent, as the Irish trampled Florida State with remarkable ease.`\
+https://nytimes.com/athletic/5912119/2024/11/10/notre-dame-fsu-marcus-freeman-playoff/
+
 **Fernandes supports 'special player' Garnacho after muted goal celebration**\
 `Bruno Fernandes offered his support to Alejandro Garnacho after the Manchester United winger appeared to celebrate his goal against Leicester City in a muted fashion.`\
 https://nytimes.com/athletic/5912072/2024/11/10/garnacho-goal-celebration-bruno-fernandes/
