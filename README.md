@@ -1,16 +1,20 @@
+**SEC championship and tiebreaker update: Why it all matters now**\
+`What we’ve seen so far indicates more upsets are coming, which could help clear up the SEC logjam … or maybe not.`\
+https://nytimes.com/athletic/5911581/2024/11/10/sec-championship-tiebreaker-scenarios/
+
 **Jaguars' Lawrence out vs. Vikings, could miss rest of season**\
 `With Lawrence out, Mac Jones is expected to start at quarterback against Minnesota.`\
 https://nytimes.com/athletic/5911582/2024/11/10/trevor-lawrence-injury-jaguars/
 
 **Where did Miami go wrong and what does playoff exit mean for Messi and Martino?**\
-`Atlanta United's 3-2 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
+`Atlanta United's 3-2 Game 3 win left the MLS Cup without its biggest star - but Messi will forever be linked to Inter Miami`\
 https://nytimes.com/athletic/5911359/2024/11/10/inter-miami-messi-future-mls-playoffs/
 
 **College Football Playoff 2024 projections: Indiana up to 96 percent chance to make field**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/10/college-football-playoff-projections-odds/
 
-**'The people who allow women to play tennis are also torturing activists': Can WTA really bring change to Saudi Arabia?**\
+**'The same people who allow women to play tennis are also torturing the activists'**\
 `The WTA believes that tennis can contribute to change in Saudi Arabia. Human rights groups say that is not conversant with reality.`\
 https://nytimes.com/athletic/5906190/2024/11/10/saudi-arabia-tennis-wta-tour-finals-women-rights-sportswashing/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910108/2024/11/10/theres-no-evidence-julen-lopeteg
 **NFL Week 10 top storylines: Russell Wilson vs. Commanders, Broncos-Chiefs, can Lions stay hot?**\
 `Also on tap: Our first look at some trade deadline acquisitions with their new teams and the Cardinals try to win a fourth straight game.`\
 https://nytimes.com/athletic/5906434/2024/11/10/nfl-week-10-top-storylines-steelers-commanders-chiefs-lions/
-
-**Oilers, hoping to turn season around again, find another gear and crush Canucks**\
-`Getting a win against Vancouver on the road might have just woken Edmonton from its early-season slumber.`\
-https://nytimes.com/athletic/5911294/2024/11/10/oilers-defeat-canucks/
 
