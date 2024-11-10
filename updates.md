@@ -1,3 +1,11 @@
+**Donald Trump Wins Arizona, Reversing the State’s Blue Trend**\
+`The victory added to the list of battleground states that Mr. Trump lost in 2020 and flipped back four years later.`\
+https://nytimes.com/2024/11/09/us/politics/arizona-election-harris-trump.html
+
+**Corrections: Nov. 10, 2024**\
+`Corrections that appeared in print on Sunday, Nov. 10, 2024.`\
+https://nytimes.com/2024/11/09/pageoneplus/corrections-nov-10-2024.html
+
 **Bobby Allison, Hall of Fame NASCAR Driver, Is Dead at 86**\
 `A three-time winner of the Daytona 500, he was ranked as one of NASCAR’s greatest drivers, with 84 victories. But his career was marred by tragedy and injuries.`\
 https://nytimes.com/2024/11/09/sports/autoracing/bobby-allison-dead.html

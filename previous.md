@@ -1,3 +1,11 @@
+**Donald Trump Wins Arizona, Reversing the State’s Blue Trend**\
+`The victory added to the list of battleground states that Mr. Trump lost in 2020 and flipped back four years later.`\
+https://nytimes.com/2024/11/09/us/politics/arizona-election-harris-trump.html
+
+**Corrections: Nov. 10, 2024**\
+`Corrections that appeared in print on Sunday, Nov. 10, 2024.`\
+https://nytimes.com/2024/11/09/pageoneplus/corrections-nov-10-2024.html
+
 **Bobby Allison, Hall of Fame NASCAR Driver, Is Dead at 86**\
 `A three-time winner of the Daytona 500, he was ranked as one of NASCAR’s greatest drivers, with 84 victories. But his career was marred by tragedy and injuries.`\
 https://nytimes.com/2024/11/09/sports/autoracing/bobby-allison-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910763/2024/11/09/kevin-durant-hurt-injury-calf-su
 **Firefighters Gain More Control of Southern California Blaze That Spread Rapidly**\
 `After the Mountain fire ballooned to more than 20,000 acres in less than 24 hours, improving weather conditions helped crews contain more of the blaze on Saturday.`\
 https://nytimes.com/2024/11/09/us/california-mountain-fire.html
-
-**Man United vs Leicester preview, odds, prediction: Red Devils continue to chase top half**\
-`Manchester United have a new manager coming, but the Red Devils are still floundering in the bottom half of the table.`\
-https://nytimes.com/athletic/5909074/2024/11/09/manchester-united-leicester-city-preview-odds-prediction/
-
-**NYCFC advances to Eastern Conference semifinals after 9-round penalty-kick shootout**\
-`NYCFC will host its rival, the New York Red Bulls, in an Eastern Conference semifinal.`\
-https://nytimes.com/athletic/5910767/2024/11/09/nycfc-fc-cincinnati-mls-cup-playoffs/
 
