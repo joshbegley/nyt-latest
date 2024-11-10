@@ -1,4 +1,8 @@
-**Blue Jackets mistakes exacerbated by slumping offense in 5-2 loss to L.A. Kings**\
+**Elias Pettersson's spark, and is J.T. Miller's line in trouble? 3 takeaways**\
+`Coming off one of their most complete performances of the season, the Canucks were lethargic and inept offensively Saturday.`\
+https://nytimes.com/athletic/5910954/2024/11/10/canucks-oilers-jt-miller-elias-pettersson/
+
+**Blue Jackets mistakes exacerbated by slumping offense in loss to L.A. Kings**\
 `Columbus' explosive goal scoring output to start the season seemed too good to be true. Too bad it was.`\
 https://nytimes.com/athletic/5911134/2024/11/10/blue-jackets-lose-to-la-kings/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909061/2024/11/10/steelers-commanders-how-to-watch
 **49ers at Buccaneers: How to watch, odds, expert picks with Niners favored in CMC return**\
 `Christian McCaffrey returns for the Niners, who are big favorites over the Buccaneers. Will Baker Mayfield continue his success?`\
 https://nytimes.com/athletic/5907144/2024/11/10/49ers-buccaneers-how-to-watch-odds-picks-betting/
-
-**Ranking and rating Leeds's four substitutes from their 2-0 win over QPR**\
-`Farke's four substitutes all came on and made a point by adding to the havoc of the final 15 minutes. The Athletic has graded their impact`\
-https://nytimes.com/athletic/5910056/2024/11/10/leeds-qpr-substitutes-piroe-guilavogui-james-schmidt/
 
