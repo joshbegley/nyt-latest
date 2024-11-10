@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5912605/2024/11/10/panthers-win-chuba-hubbard-defen
 https://nytimes.com/athletic/5911885/2024/11/10/vikings-jaguars-score-result-takeaways/
 
 **Moody's game-winning FG coats miscues in 49ers' 23-20 win vs. Bucs: Takeaways**\
-`Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after a nine-game absence with Achilles tendon injury.`\
+`Christian McCaffrey eclipses the 100-yard mark in his 2024 season debut after an eight-game absence with Achilles tendon injury.`\
 https://nytimes.com/athletic/5911910/2024/11/10/buccaneers-49ers-score-result-takeaways/
 
 **After historic start, how will the Jets tackle the most difficult stretch of their season?**\
