@@ -1,3 +1,19 @@
+**Trey Lance replaces Cooper Rush at QB for Cowboys**\
+`The fourth-year quarterback sees first regular season action for Dallas in Week 10 game against Eagles. `\
+https://nytimes.com/athletic/5913165/2024/11/10/trey-lance-cowboys-qb/
+
+**Bruce Degen, Who Drew ‘The Magic School Bus,’ Dies at 79**\
+`He memorably portrayed a frizzy-haired science teacher roping her elementary school class into adventures aboard a shape-shifting yellow bus.`\
+https://nytimes.com/2024/11/10/obituaries/bruce-degen-dead.html
+
+**Broncos heartbroken by blocked field goal loss to Chiefs: 'We were right there'**\
+`The harassment of Patrick Mahomes? The leaps by Bo Nix and Denver's young offensive weapons? None of it eased the pain of Sunday's loss.`\
+https://nytimes.com/athletic/5912797/2024/11/10/broncos-loss-chiefs-blocked-field-goal-devastating/
+
+**Chargers' defensive dominance continues in 27-17 win over Titans: Takeaways**\
+`The Chargers leaned heavily on their run game to total 145 rushing yards and win the time-of-possession battle while playing turnover-free.`\
+https://nytimes.com/athletic/5911928/2024/11/10/titans-chargers-score-takeaways-result/
+
 **The Bears offense is broken. They can't afford to let it break Caleb Williams, too**\
 `The Bears were supposed to be ready for their rookie quarterback this time, but we're seeing the same ugly pattern repeat itself.`\
 https://nytimes.com/athletic/5913051/2024/11/10/bears-caleb-williams-broken-offense-patriots/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5913007/2024/11/10/falcons-saints-kirk-cousins-frus
 **Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
 `McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
 https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-manager/
-
-**Blue Jackets claim defenseman Dante Fabbro off waivers from Nashville**\
-`The former 2016 first-round pick played 315 games for Nashville before Sunday's claim.`\
-https://nytimes.com/athletic/5912873/2024/11/10/blue-jackets-dante-fabbro-waivers-claim-predators/
-
-**Painter’s Propper-Upper**\
-`Patrick Gramza and John Kugelman make their collaboration debut.`\
-https://nytimes.com/2024/11/10/crosswords/daily-puzzle-2024-11-11.html
-
-**Senators Vying to Be G.O.P. Leader Vow to Quickly Confirm Trump Nominees**\
-`Senators Rick Scott, John Thune and John Cornyn quickly responded to President-elect Donald J. Trump’s demand on social media, the latest example of his influence over Republican lawmakers.`\
-https://nytimes.com/2024/11/10/us/politics/republican-senators-trump-scott-thune-cornyn.html
-
-**Ella Jenkins, Musician Who Found an Audience in Children, Dies at 100**\
-`Performing and recording, she transformed what was seen as a marginal genre in the music industry into a celebration of shared humanity.`\
-https://nytimes.com/2024/11/10/obituaries/ella-jenkins-dead.html
 

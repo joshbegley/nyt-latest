@@ -1,3 +1,19 @@
+**Trey Lance replaces Cooper Rush at QB for Cowboys**\
+`The fourth-year quarterback sees first regular season action for Dallas in Week 10 game against Eagles. `\
+https://nytimes.com/athletic/5913165/2024/11/10/trey-lance-cowboys-qb/
+
+**Bruce Degen, Who Drew ‘The Magic School Bus,’ Dies at 79**\
+`He memorably portrayed a frizzy-haired science teacher roping her elementary school class into adventures aboard a shape-shifting yellow bus.`\
+https://nytimes.com/2024/11/10/obituaries/bruce-degen-dead.html
+
+**Broncos heartbroken by blocked field goal loss to Chiefs: 'We were right there'**\
+`The harassment of Patrick Mahomes? The leaps by Bo Nix and Denver's young offensive weapons? None of it eased the pain of Sunday's loss.`\
+https://nytimes.com/athletic/5912797/2024/11/10/broncos-loss-chiefs-blocked-field-goal-devastating/
+
+**Chargers' defensive dominance continues in 27-17 win over Titans: Takeaways**\
+`The Chargers leaned heavily on their run game to total 145 rushing yards and win the time-of-possession battle while playing turnover-free.`\
+https://nytimes.com/athletic/5911928/2024/11/10/titans-chargers-score-takeaways-result/
+
 **The Bears offense is broken. They can't afford to let it break Caleb Williams, too**\
 `The Bears were supposed to be ready for their rookie quarterback this time, but we're seeing the same ugly pattern repeat itself.`\
 https://nytimes.com/athletic/5913051/2024/11/10/bears-caleb-williams-broken-offense-patriots/
