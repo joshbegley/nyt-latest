@@ -1,3 +1,7 @@
+**Mattel Mistakenly Lists Porn Site on Packaging for ‘Wicked’ Dolls**\
+`The site has a similar address to one that promotes a film adaptation of the hit musical. The toymaker apologized for the “unfortunate error.”`\
+https://nytimes.com/2024/11/11/movies/mattel-wicked-porn-site-mistake.html
+
 **Amorim shows magic touch at Sporting farewell - and hints at Man Utd plans**\
 `Ruben Amorim oversaw a 4-2 win — coming back from 2-0 down — in his final match as Sporting head coach`\
 https://nytimes.com/athletic/5913761/2024/11/11/ruben-amorim-manchester-united-sporting-lisbon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910628/2024/11/11/everton-west-ham-recap/
 **A lengthy injury list is not the only reason Crystal Palace's failings**\
 `An inability to learn from previous situations is Palace's ultimate failing as they continue to struggle in the 2024-25 Premier League`\
 https://nytimes.com/athletic/5903519/2024/11/11/palace-injuries-fulham-recap/
-
-**'He was too good for us': Matt O'Riley's winding road to Brighton and the Premier League**\
-`O'Riley is still only 24 but his career has taken many twists after he decided to leave Fulham despite having no other club to join`\
-https://nytimes.com/athletic/5844784/2024/11/11/oriley-brighton-city-premier-league/
 
