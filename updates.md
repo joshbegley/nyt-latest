@@ -1,3 +1,11 @@
+**"Enough of the moral victories": Blue Jackets show no finishing touch in loss to Anaheim**\
+`Despite mustering 42 shots, the Blue Jackets struggled to convert on their offensive dominance in Anaheim.`\
+https://nytimes.com/athletic/5913799/2024/11/10/blue-jackets-moral-victories-anaheim/
+
+**How Jim Harbaugh channeled a folk rock ballad to lead Chargers to third straight win**\
+`"The Wreck of Edmund Fitzgerald" served as Harbaugh's latest dose of inspiration for a Chargers team that improved to 6-3.`\
+https://nytimes.com/athletic/5913904/2024/11/10/chargers-jim-harbaugh-edmund-fitzgerald-win/
+
 **Blackhawks pull out much-needed win at home against Wild: Observations**\
 `The Blackhawks earned their first win at home since Oct. 17 with an overtime push against the Wild.`\
 https://nytimes.com/athletic/5913532/2024/11/10/blackhawks-kurashev-mrazek-wild/

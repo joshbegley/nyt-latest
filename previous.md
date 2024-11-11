@@ -1,3 +1,7 @@
+**"Enough of the moral victories": Blue Jackets show no finishing touch in loss to Anaheim**\
+`Despite mustering 42 shots, the Blue Jackets struggled to convert on their offensive dominance in Anaheim.`\
+https://nytimes.com/athletic/5913799/2024/11/10/blue-jackets-moral-victories-anaheim/
+
 **'Frustrated' Jerry Jones on Cowboys' struggles: 'I had a lot to do with what we're seeing'**\
 `AT&T Stadium has curtains, but the Cowboys' owner isn't interested in using them despite CeeDee Lamb losing sight of an end zone pass.`\
 https://nytimes.com/athletic/5913827/2024/11/10/cowboys-jerry-jones-sun-stadium-mike-mccarthy/
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/5913233/2024/11/10/christian-mccaffrey-is-back-to-r
 
 **How Jim Harbaugh channeled a folk rock ballad to lead Chargers to third straight win**\
 `"The Wreck of Edmund Fitzgerald" served as Harbaugh's latest dose of inspiration for a Chargers team that improved to 6-3.`\
-https://nytimes.com/athletic/5913904/2024/11/10/chargers-jim-harbaugh-edmund-fitzgerald-wi/
+https://nytimes.com/athletic/5913904/2024/11/10/chargers-jim-harbaugh-edmund-fitzgerald-win/
 
 **Blackhawks pull out much-needed win at home against Wild: Observations**\
 `The Blackhawks earned their first win at home since Oct. 17 with an overtime push against the Wild.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913739/2024/11/10/celtics-slow-start-road-win-buck
 **Ahead of Veterans Day, Arizona Cardinals fans honor Pat Tillman's spirit**\
 `Each NFL Sunday, fans rep jerseys from yesteryear, the past meeting the present, a statement of respect. In Arizona, it's different. `\
 https://nytimes.com/athletic/5913435/2024/11/10/arizona-cardinals-pat-tillman-veterans-day/
-
-**Marlins to add Giants' Pedro Guerrero as new hitting coach: Source**\
-`Guerrero has several ties to Marlins assistant general manager Gabe Kapler.`\
-https://nytimes.com/athletic/5913713/2024/11/10/marlins-hire-pedro-guerrero-hitting-coach/
 
