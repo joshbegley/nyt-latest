@@ -1,3 +1,11 @@
+**Thunder's Chet Holmgren injures hip after hard fall vs. Warriors**\
+`The 22-year-old Thunder big man could not put any weight on his right leg as he left the floor. `\
+https://nytimes.com/athletic/5913365/2024/11/10/chet-holmgren-injury-thunder-warriors/
+
+**Jalen Hurts' 4 TDs pace Eagles in 34-6 win vs. Cowboys: Takeaways**\
+`As the Eagles round into form for a playoff push, the Cowboys fall to 0-4 at home and post one of the franchise's worst offensive outings. `\
+https://nytimes.com/athletic/5911939/2024/11/10/eagles-cowboys-score-takeaways-result/
+
 **Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
 `Matt Eberflus likely will make it to season's end, but after the Bears' freefall continued with a lopsided loss to Pats, changes are needed.`\
 https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-everflus-coaches-under-fire/

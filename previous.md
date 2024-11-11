@@ -1,3 +1,11 @@
+**Thunder's Chet Holmgren injures hip after hard fall vs. Warriors**\
+`The 22-year-old Thunder big man could not put any weight on his right leg as he left the floor. `\
+https://nytimes.com/athletic/5913365/2024/11/10/chet-holmgren-injury-thunder-warriors/
+
+**Jalen Hurts' 4 TDs pace Eagles in 34-6 win vs. Cowboys: Takeaways**\
+`As the Eagles round into form for a playoff push, the Cowboys fall to 0-4 at home and post one of the franchise's worst offensive outings. `\
+https://nytimes.com/athletic/5911939/2024/11/10/eagles-cowboys-score-takeaways-result/
+
 **Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
 `Matt Eberflus likely will make it to season's end, but after the Bears' freefall continued with a lopsided loss to Pats, changes are needed.`\
 https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-everflus-coaches-under-fire/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5912678/2024/11/10/tyrone-tracy-giants-fumble-pathe
 **The Patriots are becoming Drake Maye's team: Inside the meeting that led to a huge win**\
 `The rookie quarterback called out the Patriots offense after a bad practice, then helped his team deliver its best game of the season.`\
 https://nytimes.com/athletic/5913056/2024/11/10/drake-maye-patriots-bears-meeting/
-
-**Joey Logano fends off Ryan Blaney to claim third NASCAR Cup Series**\
-`The championship is Logano’s third, making him the 10th driver to win three or more championships, giving Penske three consecutive titles. `\
-https://nytimes.com/athletic/5913195/2024/11/10/joey-logano-nascar-cup-series-championship/
-
-**Cardinals blow out Jets 31-6 for fourth straight win: Takeaways**\
-`Quarterback Kyler Murray's three touchdowns and precision passing helped the Cardinals blow out Aaron Rodgers and the Jets.`\
-https://nytimes.com/athletic/5911933/2024/11/10/jets-cardinals-score-result-takeaways/
 
