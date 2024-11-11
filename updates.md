@@ -1,3 +1,7 @@
+**Ahead of Veterans Day, Arizona Cardinals fans honor Pat Tillman's spirit**\
+`Each NFL Sunday, fans rep jerseys from yesteryear, the past meeting the present, a statement of respect. In Arizona, it's different. `\
+https://nytimes.com/athletic/5913435/2024/11/10/arizona-cardinals-pat-tillman-veterans-day/
+
 **Wild settle for a tired point with overtime loss in Chicago: 3 takeaways**\
 `The Wild couldn't quite keep up their winning ways in their third game in four nights, but Matt Boldy earned them a point.`\
 https://nytimes.com/athletic/5913161/2024/11/10/wild-boldy-gustavsson-overtime-chicago/
