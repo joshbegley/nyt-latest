@@ -1,3 +1,7 @@
+**Democrats, Reliable as an Anti-Trump Bulwark for Years, Sat Out This Time**\
+`Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
+https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
+
 **Rogers handed first England call-up amid eight withdrawals**\
 `Aston Villa midfielder Morgan Rogers has received his first England call-up for the upcoming Nations League games against Greece and Republic of Ireland.`\
 https://nytimes.com/athletic/5915594/2024/11/11/morgan-rogers-england-squad/
