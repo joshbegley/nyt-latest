@@ -1,3 +1,7 @@
+**Klay returns to the Bay: The moment that made Thompson an all-time Warriors legend**\
+`As Klay Thompson returns to San Francisco as a member of the Mavericks, leftover curiosity remains about how it ever got to this point.`\
+https://nytimes.com/athletic/5910332/2024/11/11/klay-thompson-bay-area-return-tribute/
+
 **Fantasy Premier League: What we learnt from Gameweek 11**\
 `We look at Manchester United, Manchester City and Liverpool options - plus Brighton's no-brainer bargain`\
 https://nytimes.com/athletic/5912398/2024/11/11/fantasy-premier-league-what-we-learnt-from-gameweek-11-joao-pedro/

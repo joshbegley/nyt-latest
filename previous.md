@@ -1,3 +1,7 @@
+**Klay returns to the Bay: The moment that made Thompson an all-time Warriors legend**\
+`As Klay Thompson returns to San Francisco as a member of the Mavericks, leftover curiosity remains about how it ever got to this point.`\
+https://nytimes.com/athletic/5910332/2024/11/11/klay-thompson-bay-area-return-tribute/
+
 **Trump Offers Elise Stefanik Role as U.N. Ambassador**\
 `In one of his first cabinet-level personnel decisions, the president-elect has chosen the Republican member of Congress from New York to represent the United States at the United Nations.`\
 https://nytimes.com/2024/11/11/us/politics/trump-stefanik-un-ambassador.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909367/2024/11/11/raiders-shedeur-sanders-mock-dra
 **How the Kings' defense stepped up to cover Drew Doughty's absence with aplomb**\
 `The Kings lost their longtime defensive stalwart before the season began. 16 games in, it's not much of a problem.`\
 https://nytimes.com/athletic/5913966/2024/11/11/kings-defense-doughty-gavrikov-anderson/
-
-**Seven things I think I know about the Toronto Raptors through 10 (plus one) games**\
-`Agbaji is shining while the defence is struggling as the Raptors fight through a rough schedule and injuries. `\
-https://nytimes.com/athletic/5914124/2024/11/11/ochai-agbajis-raptors-early-lessons/
 
