@@ -1,3 +1,7 @@
+**What happened to Carson Beck? Coaches and scouts on Georgia’s “struggling” QB**\
+`Carson Beck seemed an assured NFL Draft first-rounder entering the season. Can he change the narrative?`\
+https://nytimes.com/athletic/5912743/2024/11/11/carson-beck-georgia-nfl-draft-status/
+
 **Kamara, Ramsey set for period out with hamstring injuries**\
 `Boubacar Kamara and Jacob Ramsey are set to be out for the next couple of weeks with hamstring injuries.`\
 https://nytimes.com/athletic/5914345/2024/11/11/aston-villa-injury-kamara-ramsey-update/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/07/opinion/thepoint/trump-civil-service-employe
 **What’s the Best Thing to Wear on a First Date?**\
 `A reader wonders if received wisdom about a certain “ideal outfit” still holds true. Our fashion critic offers a first-date fashion philosophy.`\
 https://nytimes.com/2024/11/11/style/first-date-outfit.html
-
-**Democrats Could Have Won. Our Excuses Mask a Devastating Reality.**\
-`Many young voters didn’t perceive the tangible impact of their 2020 support for Joe Biden, which eroded their faith in the Democratic Party.`\
-https://nytimes.com/2024/11/11/opinion/kamala-harris-young-voters.html
 
