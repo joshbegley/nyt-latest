@@ -1,3 +1,7 @@
+**'Just to be here is surreal': Jake Bates, Lions end tough stretch 5-0 with wild comeback vs. Texans**\
+`The Lions are 8-1 for the first time since 1954.`\
+https://nytimes.com/athletic/5914176/2024/11/11/lions-texans-comeback-jake-bates-kicker/
+
 **Canadiens weekly notebook: Manufacturing confidence, underlying numbers improving and more**\
 `Also in this week's notebook, Shea Weber's legendary pain tolerance and Arber Xhekaj has turned an important corner.`\
 https://nytimes.com/athletic/5914188/2024/11/11/canadiens-maple-leafs-loss-suzuki-numbers/

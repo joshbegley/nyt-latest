@@ -1,3 +1,7 @@
+**'Just to be here is surreal': Jake Bates, Lions end tough stretch 5-0 with wild comeback vs. Texans**\
+`The Lions are 8-1 for the first time since 1954.`\
+https://nytimes.com/athletic/5914176/2024/11/11/lions-texans-comeback-jake-bates-kicker/
+
 **Canadiens weekly notebook: Manufacturing confidence, underlying numbers improving and more**\
 `Also in this week's notebook, Shea Weber's legendary pain tolerance and Arber Xhekaj has turned an important corner.`\
 https://nytimes.com/athletic/5914188/2024/11/11/canadiens-maple-leafs-loss-suzuki-numbers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912943/2024/11/11/chelsea-pellegrini-offside-trap-
 **How Austria's positive results and Euro 2024 are being undermined by FA conflict**\
 `Austria have had positive results on the pitch but off pitch issues are rearing their head`\
 https://nytimes.com/athletic/5905929/2024/11/11/austria-ralf-rangnick-fa/
-
-**Lowetide: The Oilers' new approach to Darnell Nurse deployment and what may come**\
-`Nurse has been in search of a consistent and effective partner for years and the Oilers' coaching staff is experimenting.`\
-https://nytimes.com/athletic/5876412/2024/11/11/oilers-darnell-nurse-pairing/
 
