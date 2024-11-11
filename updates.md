@@ -1,3 +1,7 @@
+**The Singular Force That Was Judith Jamison**\
+`She was always a goddess of dance — even before her triumph in “Cry.” The Ailey star turned artistic director stretched like there was no tomorrow.`\
+https://nytimes.com/2024/11/11/arts/dance/judith-jamison-appraisal.html
+
 **Self-inflicted wounds plague Pistons' otherwise promising start to season**\
 `Five of Detroit's seven losses have been by eight points or fewer.`\
 https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
