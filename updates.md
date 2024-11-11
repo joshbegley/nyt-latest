@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Week 10**\
+`A quick look at the risers (Cardinals, Lions, Steelers), fallers (Jets, Cowboys, Bears) and just how close it's been for Kansas City.`\
+https://nytimes.com/athletic/5915333/2024/11/11/nfl-week-10-trending-up-down-chiefs-scoop-city/
+
 **USMNT Player Tracker: The return of the Brothers Aaronson, Pepi progress and outsider Weah**\
 `Our roundup of the weekend action also sees Tanner Tessmann help win the Rhone-Alpes derby and Haji Wright depart Sunderland on a stretcher`\
 https://nytimes.com/athletic/5914775/2024/11/11/usmnt-aaronson-pepi-pulisic-weah-player-tracker/
