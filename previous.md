@@ -1,3 +1,11 @@
+**Tyrone Tracy Jr.'s back-breaking OT fumble a painful reminder of rookie growing pains**\
+`“No matter how many times people come up to you and tell you it's not your fault, you still got that feeling inside that it was your fault."`\
+https://nytimes.com/athletic/5912678/2024/11/10/tyrone-tracy-giants-fumble-pathers-loss/
+
+**The Patriots are becoming Drake Maye's team: Inside the meeting that led to a huge win**\
+`The rookie quarterback called out the Patriots offense after a bad practice, then helped his team deliver its best game of the season.`\
+https://nytimes.com/athletic/5913056/2024/11/10/drake-maye-patriots-bears-meeting/
+
 **Joey Logano fends off Ryan Blaney to claim third NASCAR Cup Series**\
 `The championship is Logano’s third, making him the 10th driver to win three or more championships, giving Penske three consecutive titles. `\
 https://nytimes.com/athletic/5913195/2024/11/10/joey-logano-nascar-cup-series-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5911928/2024/11/10/titans-chargers-score-takeaways-
 **The Bears offense is broken. They can't afford to let it break Caleb Williams, too**\
 `The Bears were supposed to be ready for their rookie quarterback this time, but we're seeing the same ugly pattern repeat itself.`\
 https://nytimes.com/athletic/5913051/2024/11/10/bears-caleb-williams-broken-offense-patriots/
-
-**Giants to 'evaluate' at QB after Daniel Jones' struggles vs. Panthers**\
-`"We got a lot of work to do here in the next few days ... we'll evaluate where we're at and what we need to do," coach Brian Daboll said.`\
-https://nytimes.com/athletic/5913036/2024/11/10/giants-quarterback-daniel-jones-brian-daboll/
-
-**Florida men's basketball coach Todd Golden will continue to coach amid investigation**\
-`Golden acknowledged the university’s investigation Saturday and said that he has been participating in the inquiry over the last month.`\
-https://nytimes.com/athletic/5913110/2024/11/10/todd-golden-florida-sexual-harassment-coach/
 

@@ -1,3 +1,11 @@
+**Tyrone Tracy Jr.'s back-breaking OT fumble a painful reminder of rookie growing pains**\
+`“No matter how many times people come up to you and tell you it's not your fault, you still got that feeling inside that it was your fault."`\
+https://nytimes.com/athletic/5912678/2024/11/10/tyrone-tracy-giants-fumble-pathers-loss/
+
+**The Patriots are becoming Drake Maye's team: Inside the meeting that led to a huge win**\
+`The rookie quarterback called out the Patriots offense after a bad practice, then helped his team deliver its best game of the season.`\
+https://nytimes.com/athletic/5913056/2024/11/10/drake-maye-patriots-bears-meeting/
+
 **Joey Logano fends off Ryan Blaney to claim third NASCAR Cup Series**\
 `The championship is Logano’s third, making him the 10th driver to win three or more championships, giving Penske three consecutive titles. `\
 https://nytimes.com/athletic/5913195/2024/11/10/joey-logano-nascar-cup-series-championship/
