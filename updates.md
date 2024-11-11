@@ -1,3 +1,7 @@
+**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
+`The Seahawks are coming out of their bye week at 4-5 and last in the NFC West. It's a great time to submit questions to Michael-Shawn Dugar.`\
+https://nytimes.com/athletic/5915797/2024/11/11/seahawks-mailbag-bye-week/
+
 **Trump Plans Series of Executive Orders for Day 1, Susie Wiles Tells Donors**\
 `Ms. Wiles, the next White House chief of staff, said Donald Trump would move quickly to reinstate orders from his first term that President Biden had revoked, though she did not specify which ones.`\
 https://nytimes.com/2024/11/11/us/politics/trump-executive-orders-susie-wiles.html
