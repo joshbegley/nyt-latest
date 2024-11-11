@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5913713/2024/11/10/marlins-hire-pedro-guerrero-hitt
 `Washington fell to 7-3 and, combined with Philadelphia hammering Dallas, dropped to second place in the NFC East ahead of Thursday night.`\
 https://nytimes.com/athletic/5913454/2024/11/10/commanders-loss-steelers-russell-wilson/
 
-**Wild settle for tired point with overtime loss in Chicago : 3 takeaways**\
+**Wild settle for a tired point with overtime loss in Chicago: 3 takeaways**\
 `The Wild couldn't quite keep up their winning ways in their third game in four nights, but Matt Boldy earned them a point.`\
 https://nytimes.com/athletic/5913161/2024/11/10/wild-boldy-gustavsson-overtime-chicago/
 

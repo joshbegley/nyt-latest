@@ -1,3 +1,7 @@
+**Wild settle for a tired point with overtime loss in Chicago: 3 takeaways**\
+`The Wild couldn't quite keep up their winning ways in their third game in four nights, but Matt Boldy earned them a point.`\
+https://nytimes.com/athletic/5913161/2024/11/10/wild-boldy-gustavsson-overtime-chicago/
+
 **Marlins to add Giants' Pedro Guerrero as new hitting coach: Source**\
 `Guerrero has several ties to Marlins assistant general manager Gabe Kapler.`\
 https://nytimes.com/athletic/5913713/2024/11/10/marlins-hire-pedro-guerrero-hitting-coach/
