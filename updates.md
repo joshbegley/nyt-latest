@@ -1,3 +1,7 @@
+**Georgia's Kirby Smart on player celebrating after loss to Ole Miss: 'Just stupid'**\
+`Backup safety Jake Pope later clarified that he was celebrating with a former friend and teammate who he saw on the field. `\
+https://nytimes.com/athletic/5916100/2024/11/11/georgia-jake-pope-celebrating-ole-miss/
+
 **Trump Chooses Lee Zeldin to Run E.P.A.**\
 `The former congressman from New York is a strong supporter of Donald Trump and voted against certifying the 2020 election.`\
 https://nytimes.com/2024/11/11/climate/trump-chooses-lee-zeldin-to-run-epa.html

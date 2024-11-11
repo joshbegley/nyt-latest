@@ -1,3 +1,7 @@
+**Georgia's Kirby Smart on player celebrating after loss to Ole Miss: 'Just stupid'**\
+`Backup safety Jake Pope later clarified that he was celebrating with a former friend and teammate who he saw on the field. `\
+https://nytimes.com/athletic/5916100/2024/11/11/georgia-jake-pope-celebrating-ole-miss/
+
 **At the Pandemic’s Start, Americans Began Drinking More. They Still Are.**\
 `Excessive drinking persisted in the years after Covid arrived, according to a new data.`\
 https://nytimes.com/2024/11/11/health/alcohol-misuse-pandemic.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009819989/veterans-day-biden-arlington-nation
 **Former Staten Island Representative Is Paralyzed After Fall From Horse**\
 `Michael Grimm, a Republican who resigned in 2015 after pleading guilty to felony tax evasion, was paralyzed from the chest down during a polo competition in September.`\
 https://nytimes.com/2024/11/11/nyregion/michael-grimm-paralyzed-staten-island.html
-
-**Biden Honors Veterans in Ceremony at Arlington Cemetery**\
-`“This is the last time I will stand here at Arlington as commander in chief,” President Biden said in remembering service members who have served the country.`\
-https://nytimes.com/2024/11/11/us/politics/biden-veterans-day.html
 
