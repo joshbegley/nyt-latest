@@ -1,3 +1,11 @@
+**What to watch this week in NBA: The NBA Cup starts plus LeBron vs. Wemby**\
+`What to watch, and why to watch, as the NBA Cup tips off this week.`\
+https://nytimes.com/athletic/5909427/2024/11/11/nba-cup-what-to-watch/
+
+**Rogers handed first England call-up**\
+`Aston Villa midfielder Morgan Rogers has received his first England call-up for the upcoming Nations League games against Greece and Republic of Ireland.`\
+https://nytimes.com/athletic/5915594/2024/11/11/morgan-rogers-england-squad/
+
 **Southampton's Ramsdale set to undergo surgery on suspected fractured finger**\
 `Southampton goalkeeper Aaron Ramsdale is set to undergo surgery on a suspected fractured finger.`\
 https://nytimes.com/athletic/5915599/2024/11/11/england-ramsdale-injury-surgery/
