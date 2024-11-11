@@ -1,3 +1,11 @@
+**Cardinals blow out Jets 31-6 for fourth straight win: Takeaways**\
+`Quarterback Kyler Murray's three touchdowns and precision passing helped the Cardinals blow out Aaron Rodgers and the Jets.`\
+https://nytimes.com/athletic/5911933/2024/11/10/jets-cardinals-score-result-takeaways/
+
+**'We were right there': Broncos heartbroken by blocked field goal loss to Chiefs**\
+`The harassment of Patrick Mahomes? The leaps by Bo Nix and Denver's young offensive weapons? None of it eased the pain of Sunday's loss.`\
+https://nytimes.com/athletic/5912797/2024/11/10/broncos-loss-chiefs-blocked-field-goal-devastating/
+
 **Man Arrested in Shooting That Killed One at Tuskegee University**\
 `The shooting, which wounded 12 people, happened early on Sunday as crowds gathered at the historically Black school to celebrate the final day of its 100th homecoming week.`\
 https://nytimes.com/2024/11/10/us/tuskegee-university-shooting-alabama.html
