@@ -1,3 +1,7 @@
+**Fofana withdrawn from France squad with knee issue**\
+`Chelsea defender Wesley Fofana has been withdrawn from France duty for their upcoming Nations League games against Israel and Italy.`\
+https://nytimes.com/athletic/5914714/2024/11/11/wesley-fofana-injury-france/
+
 **'I thought we lost our pace': Bucks offense fizzles in second half against Celtics**\
 `After holding an 11-point lead at halftime, the Bucks' offense ground to a halt in the second half against an aggressive Celtics defense.`\
 https://nytimes.com/athletic/5913217/2024/11/11/bucks-giannis-antetokounmpo-celtics-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910332/2024/11/11/klay-thompson-bay-area-return-tr
 **Trump Offers Elise Stefanik Role as U.N. Ambassador**\
 `In one of his first cabinet-level personnel decisions, the president-elect has chosen the Republican member of Congress from New York to represent the United States at the United Nations.`\
 https://nytimes.com/2024/11/11/us/politics/trump-stefanik-un-ambassador.html
-
-**Fantasy Premier League: What we learnt from Gameweek 11**\
-`We look at Manchester United, Manchester City and Liverpool options - plus Brighton's no-brainer bargain`\
-https://nytimes.com/athletic/5912398/2024/11/11/fantasy-premier-league-what-we-learnt-from-gameweek-11-joao-pedro/
 
