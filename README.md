@@ -1,3 +1,11 @@
+**Spirit Airlines Plane Hit by Gunfire in Haiti and Forced to Divert**\
+`A day after the prime minister of Haiti was fired, the airport in Port-au-Prince was closed after the plane was shot at. The country has been under siege from gangs.`\
+https://nytimes.com/2024/11/11/us/haiti-spirit-airlines-plane-shot-at.html
+
+**Who is David Coote, the referee under investigation for Liverpool video outburst?**\
+`Coote has been suspended after footage appearing to show him voicing criticism of former Jurgen Klopp spread on social media.`\
+https://nytimes.com/athletic/5915433/2024/11/11/david-coote-referee-liverpool-profile/
+
 **Democrats, Reliable as an Anti-Trump Bulwark for Years, Sat Out This Time**\
 `Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
 https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915594/2024/11/11/morgan-rogers-england-squad/
 **Southampton's Ramsdale set to undergo surgery on suspected fractured finger**\
 `Southampton goalkeeper Aaron Ramsdale is set to undergo surgery on a suspected fractured finger.`\
 https://nytimes.com/athletic/5915599/2024/11/11/england-ramsdale-injury-surgery/
-
-**Liverpool's Robertson addresses doubters: 'I'm trying to prove people wrong'**\
-`Andy Robertson has vowed to prove his doubters wrong after being &#8220;written off&#8221; for the first time in his Liverpool career.`\
-https://nytimes.com/athletic/5915537/2024/11/11/andy-robertson-liverpool-slot/
-
-**Kansas remains at No. 1 in first men's AP Top 25 of '24-25 season**\
-`Auburn had the most impressive first week of any team in the country and was rewarded by moving up X spots.`\
-https://nytimes.com/athletic/5915215/2024/11/11/college-basketball-ap-top-25-rankings-kansas/
 
