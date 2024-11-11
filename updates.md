@@ -1,3 +1,7 @@
+**Gotham FC's home playoff win exemplifies its 'swell of momentum' on and off the field**\
+`A record crowd saw Gotham beat Portland Thorns in its first home playoff game. It's a sign of the team's continued growth`\
+https://nytimes.com/athletic/5913881/2024/11/11/gotham-fc-home-playoff-win-progress/
+
 **What happened to Carson Beck? Coaches and scouts on Georgia’s “struggling” QB**\
 `Carson Beck seemed an assured NFL Draft first-rounder entering the season. Can he change the narrative?`\
 https://nytimes.com/athletic/5912743/2024/11/11/carson-beck-georgia-nfl-draft-status/

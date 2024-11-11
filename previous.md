@@ -1,3 +1,7 @@
+**Gotham FC's home playoff win exemplifies its 'swell of momentum' on and off the field**\
+`A record crowd saw Gotham beat Portland Thorns in its first home playoff game. It's a sign of the team's continued growth`\
+https://nytimes.com/athletic/5913881/2024/11/11/gotham-fc-home-playoff-win-progress/
+
 **What happened to Carson Beck? Coaches and scouts on Georgia’s “struggling” QB**\
 `Carson Beck seemed an assured NFL Draft first-rounder entering the season. Can he change the narrative?`\
 https://nytimes.com/athletic/5912743/2024/11/11/carson-beck-georgia-nfl-draft-status/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/realestate/865000-homes-in-california.html
 **Trump’s Civil Service Plan: ‘A Train Wreck You Can See Coming’**\
 `It’s very possible that new Trump officials will simply move in with their desk décor on Inauguration Day and not worry about procedure.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/trump-civil-service-employees
-
-**What’s the Best Thing to Wear on a First Date?**\
-`A reader wonders if received wisdom about a certain “ideal outfit” still holds true. Our fashion critic offers a first-date fashion philosophy.`\
-https://nytimes.com/2024/11/11/style/first-date-outfit.html
 
