@@ -1,3 +1,7 @@
+**Throngs of Cyclists Ride for Hours Between Two Chinese Cities**\
+`They were making the 40-mile journey from Zhengzhou, the capital of Henan Province, to the neighboring city of Kaifeng, a cycling trip that can take up to five hours one-way.`\
+https://nytimes.com/video/world/asia/100000009819274/china-bicycle-zhengzhou-kaifeng.html
+
 **Shigeru Ishiba Wins Vote to Remain as Japan’s Prime Minister**\
 `Parliament voted Monday to stick with Ishiba, who will lead a minority government after his party suffered heavy losses in an election last month.`\
 https://nytimes.com/2024/11/11/world/asia/japan-prime-minister.html
