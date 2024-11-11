@@ -1,3 +1,11 @@
+**Yankees' Aaron Boone to meet with Juan Soto during club's free-agency pursuit**\
+`Boone will join owner Hal Steinbrenner as part of the Yankees' delegation pitching Soto on a much-longer tenure in the Bronx. `\
+https://nytimes.com/athletic/5915260/2024/11/11/yankees-aaron-boone-juan-soto-free-agency/
+
+**What to Know About Elise Stefanik, Trump’s Pick for U.N. Ambassador**\
+`Ms. Stefanik, who chairs the House Republican Conference, undertook a dramatic transformation that brought her to the center of Donald J. Trump’s orbit.`\
+https://nytimes.com/2024/11/11/nyregion/elise-stefanik-trump-un.html
+
 **Lou Donaldson, Soulful Master of the Alto Saxophone, Dies at 98**\
 `A player of impeccable technique and a mainstay of the Blue Note label, he recorded constantly as both a leader and a sideman beginning in 1952.`\
 https://nytimes.com/2024/11/11/arts/music/lou-donaldson-dead.html

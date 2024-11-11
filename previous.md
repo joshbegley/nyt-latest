@@ -1,3 +1,11 @@
+**Yankees' Aaron Boone to meet with Juan Soto during club's free-agency pursuit**\
+`Boone will join owner Hal Steinbrenner as part of the Yankees' delegation pitching Soto on a much-longer tenure in the Bronx. `\
+https://nytimes.com/athletic/5915260/2024/11/11/yankees-aaron-boone-juan-soto-free-agency/
+
+**What to Know About Elise Stefanik, Trump’s Pick for U.N. Ambassador**\
+`Ms. Stefanik, who chairs the House Republican Conference, undertook a dramatic transformation that brought her to the center of Donald J. Trump’s orbit.`\
+https://nytimes.com/2024/11/11/nyregion/elise-stefanik-trump-un.html
+
 **Lou Donaldson, Soulful Master of the Alto Saxophone, Dies at 98**\
 `A player of impeccable technique and a mainstay of the Blue Note label, he recorded constantly as both a leader and a sideman beginning in 1952.`\
 https://nytimes.com/2024/11/11/arts/music/lou-donaldson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915333/2024/11/11/nfl-week-10-trending-up-down-chi
 **USMNT Player Tracker: The return of the Brothers Aaronson, Pepi progress and outsider Weah**\
 `Our roundup of the weekend action also sees Tanner Tessmann help win the Rhone-Alpes derby and Haji Wright depart Sunderland on a stretcher`\
 https://nytimes.com/athletic/5914775/2024/11/11/usmnt-aaronson-pepi-pulisic-weah-player-tracker/
-
-**Paul Mescal Rides ‘A Streetcar Named Desire’ to Brooklyn**\
-`The award-winning production will begin performances in February as part of Brooklyn Academy of Music’s next season.`\
-https://nytimes.com/2024/11/11/theater/paul-mescal-streetcar-bam.html
-
-**Van Nistelrooy to depart Man United following interim spell in charge**\
-`Ruud van Nistelrooy is set to depart Manchester United following Ruben Amorim&#8217;s arrival as head coach.`\
-https://nytimes.com/athletic/5912207/2024/11/11/van-nistelrooy-manchester-united-coach/
 
