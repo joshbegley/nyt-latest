@@ -1,3 +1,7 @@
+**After a prayer and a prediction, Leo Chenal rescues Chiefs with walk-off blocked field goal**\
+`Patrick Mahomes wasn't at his best in the fourth quarter, but the Chiefs found a way to stay unbeaten against a frisky division opponent.`\
+https://nytimes.com/athletic/5913311/2024/11/10/chiefs-blocked-field-goal-leo-chenal/
+
 **Jaylen Brown calls Giannis Antetokounmpo a 'child' after high-five fake-out**\
 `When told of Brown's comments, Antetokounmpo was taken aback. "Oh, that's what he said? Dang."`\
 https://nytimes.com/athletic/5913499/2024/11/10/giannis-jaylen-brown-trolling-celtics-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/10/us/politics/sept-11-plea-deal-guantanamo.html
 **49ers, Jake Moody deliver wobbly win but team is still trying to find its dominant self**\
 `Moody said his game-winning kick was from the same spot as his third miss, which sparked a sideline confrontation with Deebo Samuel. `\
 https://nytimes.com/athletic/5913230/2024/11/10/49ers-jake-moody-win-buccaneers-wobbly/
-
-**This Is the Cake We Baked**\
-`Talking to people who helped make Donald Trump’s victory happen.`\
-https://nytimes.com/2024/11/10/podcasts/this-is-the-cake-we-baked-this-american-life-nyt-audio.html
 
