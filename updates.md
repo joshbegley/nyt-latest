@@ -1,3 +1,7 @@
+**Netanyahu Seeks to Delay Testifying at His Corruption Trial**\
+`Benjamin Netanyahu, the Israeli prime minister, is on trial for bribery and fraud. Now he wants to delay giving testimony.`\
+https://nytimes.com/2024/11/11/world/middleeast/netanyahu-corruption-trial-israel.html
+
 **Ohio State film study: Breaking down how the Buckeyes shut out Purdue**\
 `It was the Buckeyes' second shutout of the season and first against a Big Ten opponent since a 56-0 win over Rutgers in 2017.`\
 https://nytimes.com/athletic/5914884/2024/11/11/ohio-state-purdue-defense-shutout/
