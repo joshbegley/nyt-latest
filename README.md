@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5915691/2024/11/11/dana-holgorsen-nebraska-offensiv
 `What to watch, and why to watch, as the NBA Cup tips off this week.`\
 https://nytimes.com/athletic/5909427/2024/11/11/nba-cup-what-to-watch/
 
-**Rogers handed first England call-up**\
+**Rogers handed first England call-up amid eight withdrawals**\
 `Aston Villa midfielder Morgan Rogers has received his first England call-up for the upcoming Nations League games against Greece and Republic of Ireland.`\
 https://nytimes.com/athletic/5915594/2024/11/11/morgan-rogers-england-squad/
 
