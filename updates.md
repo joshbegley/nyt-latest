@@ -1,3 +1,7 @@
+**Adam Johnson: Man arrested on suspicion of manslaughter re-bailed until January**\
+`A man arrested on suspicion of manslaughter following the death of Adam Johnson has been re-bailed until January.`\
+https://nytimes.com/athletic/5914475/2024/11/11/adam-johnson-hockey-bail/
+
 **A Potential Fight Over the Fed’s Future Ramps Up**\
 `As Trump allies including Elon Musk endorse ending the Federal Reserve’s independence, the central bank’s chair is reportedly ready to go to court to fight back.`\
 https://nytimes.com/2024/11/11/business/dealbook/fed-powell-trump.html
