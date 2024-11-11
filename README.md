@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5913319/2024/11/10/bills-josh-allen-run-defense-obs
 https://nytimes.com/athletic/5913365/2024/11/10/chet-holmgren-injury-thunder-warriors/
 
 **Jalen Hurts' 4 TDs pace Eagles in 34-6 win vs. Cowboys: Takeaways**\
-`As the Eagles round into form for a playoff push, the Cowboys fall to 0-4 at home and post one of the franchise's worst offensive outings. `\
+`The Eagles are rounding into form for a playoff push; the Cowboys fell to 0-4 at home and posted one of their worst offensive outings. `\
 https://nytimes.com/athletic/5911939/2024/11/10/eagles-cowboys-score-takeaways-result/
 
 **Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
