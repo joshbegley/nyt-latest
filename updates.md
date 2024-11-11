@@ -1,3 +1,7 @@
+**The Athletic 134: Crowded SEC leaves little margin for error elsewhere**\
+`The crowd of two-loss SEC teams has the potential to bump out not only ACC and Big 12 at-large hopes but a team like Indiana, too.`\
+https://nytimes.com/athletic/5913460/2024/11/11/college-football-fbs-team-rankings-week-12/
+
 **How the Hawks are rebuilding around Trae Young by taking the ball out of his hands**\
 `Atlanta wants to build an identity. This season isn’t so much about mastering a scheme as it is a mindset.`\
 https://nytimes.com/athletic/5910719/2024/11/11/hawks-rebuilding-trae-young/

@@ -1,3 +1,7 @@
+**The Athletic 134: Crowded SEC leaves little margin for error elsewhere**\
+`The crowd of two-loss SEC teams has the potential to bump out not only ACC and Big 12 at-large hopes but a team like Indiana, too.`\
+https://nytimes.com/athletic/5913460/2024/11/11/college-football-fbs-team-rankings-week-12/
+
 **How the Hawks are rebuilding around Trae Young by taking the ball out of his hands**\
 `Atlanta wants to build an identity. This season isn’t so much about mastering a scheme as it is a mindset.`\
 https://nytimes.com/athletic/5910719/2024/11/11/hawks-rebuilding-trae-young/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/crosswords/spelling-bee-forum.html
 **Trump’s Gains Among Latinos Push a Civil Rights Group to Reflect on Its Past**\
 `From its founding nearly a century ago, LULAC encouraged Hispanic people to embrace American identity even as it fought discrimination. The 2024 election result presents a dilemma on both fronts.`\
 https://nytimes.com/2024/11/11/us/politics/trump-latino-voters-lulac.html
-
-**He’s Eric Adams’s Third N.Y.P.D. Boss. Does He Have Staying Power?**\
-`Thomas Donlon wants the job permanently, and he’s been acting as though he has it as he navigates friction and uncertainty.`\
-https://nytimes.com/2024/11/11/nyregion/thomas-donlon-nypd-eric-adams.html
 
