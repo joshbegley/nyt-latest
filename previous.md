@@ -1,3 +1,7 @@
+**Trump Plans Series of Executive Orders for Day 1, Susie Wiles Tells Donors**\
+`Ms. Wiles, the next White House chief of staff, said Donald Trump would move quickly to reinstate orders from his first term that President Biden had revoked, though she did not specify which ones.`\
+https://nytimes.com/2024/11/11/us/politics/trump-executive-orders-susie-wiles.html
+
 **Wander Franco detained in Dominican Republic after fight**\
 `Authorities are investigating the incident, said a spokesperson for the public ministry.`\
 https://nytimes.com/athletic/5915194/2024/11/11/wander-franco-arrest-dominican-republic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/us/delphi-murders-richard-allen-trial.html
 **An important week for the narrative of this Georgia season**\
 `Beat Tennessee, and all is OK. Lose, and the narrative on this Georgia season is all but set, not in a good way. `\
 https://nytimes.com/athletic/5915783/2024/11/11/georgia-tennessee-college-football-playoff-implications/
-
-**Bishop Calls on Anglican Leader to Quit Over Handling of Abuse Scandal**\
-`An independent report last week said that Justin Welby, the archbishop of Canterbury, took insufficient action after learning of alleged abuse decades ago at Christian summer camps.`\
-https://nytimes.com/2024/11/11/world/europe/archbishop-canterbury-abuse-scandal.html
 

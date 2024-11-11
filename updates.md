@@ -1,3 +1,7 @@
+**Trump Plans Series of Executive Orders for Day 1, Susie Wiles Tells Donors**\
+`Ms. Wiles, the next White House chief of staff, said Donald Trump would move quickly to reinstate orders from his first term that President Biden had revoked, though she did not specify which ones.`\
+https://nytimes.com/2024/11/11/us/politics/trump-executive-orders-susie-wiles.html
+
 **Trump Chooses Lee Zeldin to Run E.P.A.**\
 `The former congressman from New York is a strong supporter of Mr. Trump and voted against certifying the 2020 election.`\
 https://nytimes.com/2024/11/11/climate/trump-chooses-lee-zeldin-to-run-epa.html
