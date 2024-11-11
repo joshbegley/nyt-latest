@@ -1,3 +1,11 @@
+**Submit questions for Richard Deitsch's latest sports media mailbag**\
+`Have questions about anything in sports media? Leave them here and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
+https://nytimes.com/athletic/5914798/2024/11/11/submit-questions-for-richard-deitschs-latest-sports-media-mailbag/
+
+**Joey Logano is a three-time NASCAR champion. He doesn't care about the rest**\
+`Joey Logano knows the playoff-system critics will have their say after he won his third Cup Series title. He just doesn't care.`\
+https://nytimes.com/athletic/5914253/2024/11/11/joey-logano-nascar-champion-playoffs-criticism/
+
 **Klay returns to the Bay: The moment that made Thompson an all-time Warriors legend**\
 `As Klay Thompson returns to San Francisco as a member of the Mavericks, leftover curiosity remains about how it ever got to this point.`\
 https://nytimes.com/athletic/5910332/2024/11/11/klay-thompson-bay-area-return-tribute/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909079/2024/11/11/sf-giants-willy-adames-free-agen
 **Israel’s Military Announces Small Expansion of Gaza Humanitarian Zone**\
 `The move comes just before a Biden administration deadline for Israel to deliver more aid to the enclave or risk a cutoff of military supplies.`\
 https://nytimes.com/2024/11/11/world/middleeast/israel-gaza-humanitarian-zone.html
-
-**Raiders mock draft reaction: Is Shedeur Sanders the answer at quarterback?**\
-`In The Athletic's latest post-NFL trade deadline mock draft, the Raiders took the Colorado QB with the No. 3 pick.`\
-https://nytimes.com/athletic/5909367/2024/11/11/raiders-shedeur-sanders-mock-draft/
-
-**How the Kings' defense stepped up to cover Drew Doughty's absence with aplomb**\
-`The Kings lost their longtime defensive stalwart before the season began. 16 games in, it's not much of a problem.`\
-https://nytimes.com/athletic/5913966/2024/11/11/kings-defense-doughty-gavrikov-anderson/
 

@@ -1,3 +1,11 @@
+**Submit questions for Richard Deitsch's latest sports media mailbag**\
+`Have questions about anything in sports media? Leave them here and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
+https://nytimes.com/athletic/5914798/2024/11/11/submit-questions-for-richard-deitschs-latest-sports-media-mailbag/
+
+**Joey Logano is a three-time NASCAR champion. He doesn't care about the rest**\
+`Joey Logano knows the playoff-system critics will have their say after he won his third Cup Series title. He just doesn't care.`\
+https://nytimes.com/athletic/5914253/2024/11/11/joey-logano-nascar-champion-playoffs-criticism/
+
 **Klay returns to the Bay: The moment that made Thompson an all-time Warriors legend**\
 `As Klay Thompson returns to San Francisco as a member of the Mavericks, leftover curiosity remains about how it ever got to this point.`\
 https://nytimes.com/athletic/5910332/2024/11/11/klay-thompson-bay-area-return-tribute/
