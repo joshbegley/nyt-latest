@@ -1,3 +1,7 @@
+**Leeds head of recruitment Miles set to leave club**\
+`Leeds United head of recruitment Jordan Miles is set to leave after nine months at the Championship club.`\
+https://nytimes.com/athletic/5910439/2024/11/11/jordan-miles-leeds-exit/
+
 **Throngs of Cyclists Ride for Hours Between Two Chinese Cities**\
 `They were making the 40-mile journey from Zhengzhou, the capital of Henan Province, to the neighboring city of Kaifeng, a cycling trip that can take up to five hours one-way.`\
 https://nytimes.com/video/world/asia/100000009819274/china-bicycle-zhengzhou-kaifeng.html
