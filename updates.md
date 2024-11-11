@@ -1,3 +1,7 @@
+**Nebraska appoints Dana Holgorsen to OC, Marcus Satterfield demoted**\
+`Holgorsen will call plays this weekend against USC, which Nebraska enters with a question at QB as Dylan Raiola recovers from injury.`\
+https://nytimes.com/athletic/5915691/2024/11/11/dana-holgorsen-nebraska-offensive-coordinator-college-football/
+
 **What to watch this week in NBA: The NBA Cup starts plus LeBron vs. Wemby**\
 `What to watch, and why to watch, as the NBA Cup tips off this week.`\
 https://nytimes.com/athletic/5909427/2024/11/11/nba-cup-what-to-watch/
