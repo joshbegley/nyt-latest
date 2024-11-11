@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5915433/2024/11/11/david-coote-referee-liverpool-pr
 `Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
 https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
 
-**Analysing Lewandowski’s offside goal against Real Sociedad - 'It's clear what I saw'**\
+**Analysing Lewandowski’s offside goal against Real Sociedad: 'It's clear what I saw'**\
 `Barcelona lost 1-0 in San Sebastian on Sunday but all the focus has been on a controversial decision to rule out an effort by Lewandowski`\
 https://nytimes.com/athletic/5915500/2024/11/11/robert-lewandowski-barcelona-real-sociedad/
 
