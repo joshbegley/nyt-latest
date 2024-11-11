@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: Manufacturing confidence, underlying numbers improving and more**\
+`Also in this week's notebook, Shea Weber's legendary pain tolerance and Arber Xhekaj has turned an important corner.`\
+https://nytimes.com/athletic/5914188/2024/11/11/canadiens-maple-leafs-loss-suzuki-numbers/
+
 **Tactics and data live Q&A: Our writers answer your questions**\
 `Post your tactics and data questions to Thom Harris and Anantaajith Raghuraman today`\
 https://nytimes.com/athletic/5914340/2024/11/11/tactics-data-premier-league-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5905929/2024/11/11/austria-ralf-rangnick-fa/
 **Lowetide: The Oilers' new approach to Darnell Nurse deployment and what may come**\
 `Nurse has been in search of a consistent and effective partner for years and the Oilers' coaching staff is experimenting.`\
 https://nytimes.com/athletic/5876412/2024/11/11/oilers-darnell-nurse-pairing/
-
-**Hoffenheim to sack American head coach Matarazzo**\
-`Hoffenheim are set to sack American head coach Pellegrino Matarazzo.`\
-https://nytimes.com/athletic/5914281/2024/11/11/pellegrino-matarazzo-hoffenheim-manager-sacked/
 

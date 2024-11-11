@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: Manufacturing confidence, underlying numbers improving and more**\
+`Also in this week's notebook, Shea Weber's legendary pain tolerance and Arber Xhekaj has turned an important corner.`\
+https://nytimes.com/athletic/5914188/2024/11/11/canadiens-maple-leafs-loss-suzuki-numbers/
+
 **Tactics and data live Q&A: Our writers answer your questions**\
 `Post your tactics and data questions to Thom Harris and Anantaajith Raghuraman today`\
 https://nytimes.com/athletic/5914340/2024/11/11/tactics-data-premier-league-questions/
