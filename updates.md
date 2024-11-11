@@ -1,3 +1,7 @@
+**Why Do So Many Americans Pass Up Bigger Social Security Checks?**\
+`It shouldn’t be so easy to leave benefits on the table.`\
+https://nytimes.com/2024/11/11/opinion/social-security-age.html
+
 **Max Pacioretty update: How long the Maple Leafs' winger is out and who might step in**\
 `Max Pacioretty’s absence leaves the door open for multiple players to step up.`\
 https://nytimes.com/athletic/5915716/2024/11/11/maple-leafs-max-pacioretty-injury/
