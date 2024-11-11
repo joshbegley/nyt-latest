@@ -1,3 +1,15 @@
+**Why Everton need better performances before stadium move**\
+`Turgid performances from Everton are a distinct possibility in the short term, but the future will need to be brighter and more vibrant`\
+https://nytimes.com/athletic/5910628/2024/11/11/everton-west-ham-recap/
+
+**A lengthy injury list is not the only reason Crystal Palace's failings**\
+`An inability to learn from previous situations is Palace's ultimate failing as they continue to struggle in the 2024-25 Premier League`\
+https://nytimes.com/athletic/5903519/2024/11/11/palace-injuries-fulham-recap/
+
+**'He was too good for us': Matt O'Riley's winding road to Brighton and the Premier League**\
+`O'Riley is still only 24 but his career has taken many twists after he decided to leave Fulham despite having no other club to join`\
+https://nytimes.com/athletic/5844784/2024/11/11/oriley-brighton-city-premier-league/
+
 **Defeat and 'improvements' needed - but Forest's progress under Nuno is clear**\
 `Forest lost to Newcastle but conceding three goals has become a rarity and, after 38 games under Nuno, it's clear how far they have come`\
 https://nytimes.com/athletic/5912182/2024/11/11/forest-newcastle-nuno-improvements/
