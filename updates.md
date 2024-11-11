@@ -1,3 +1,7 @@
+**Kamara, Ramsey set for period out with hamstring injuries**\
+`Boubacar Kamara and Jacob Ramsey are set to be out for the next couple of weeks with hamstring injuries.`\
+https://nytimes.com/athletic/5914345/2024/11/11/aston-villa-injury-kamara-ramsey-update/
+
 **Sporting appoint Joao Pereira to replace Amorim after Man Utd move**\
 `Sporting Lisbon have appointed Joao Pereira to replace Ruben Amorim as the club&#8217;s head coach.`\
 https://nytimes.com/athletic/5882220/2024/11/11/ruben-amorim-sporting-replacement/
