@@ -1,3 +1,7 @@
+**Self-inflicted wounds plague Pistons' otherwise promising start to season**\
+`Five of Detroit's seven losses have been by eight points or fewer.`\
+https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
+
 **Bears' Matt Eberflus evaluating offensive play caller change**\
 `Bears rookie quarterback Caleb Williams hasn't thrown a touchdown pass since Week 6. Chicago hasn't scored a touchdown since Week 8.`\
 https://nytimes.com/athletic/5914963/2024/11/11/bears-coaching-staff-changes-offense-play-caller/
