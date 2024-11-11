@@ -2,7 +2,7 @@
 `For the first time in years, the Steelers are showing they can win because of the offense, not in spite of it.`\
 https://nytimes.com/athletic/5913348/2024/11/10/steelers-russell-wilson-mike-williams-commanders/
 
-**Josh Allen's brilliance overshadows two INTs, run defense shows signs of hope: Bills observations**\
+**Josh Allen's brilliance overshadows 2 INTs, run defense shows signs of hope: Bills observations**\
 `Plus, how the new defensive tackles fit in.`\
 https://nytimes.com/athletic/5913319/2024/11/10/bills-josh-allen-run-defense-observations-colts/
 
