@@ -1,3 +1,7 @@
+**Trump Chooses Lee Zeldin to Run E.P.A.**\
+`The former congressman from New York is a strong supporter of Donald Trump and voted against certifying the 2020 election.`\
+https://nytimes.com/2024/11/11/climate/trump-chooses-lee-zeldin-to-run-epa.html
+
 **At the Pandemic’s Start, Americans Began Drinking More. They Still Are.**\
 `Excessive drinking persisted in the years after Covid arrived, according to a new data.`\
 https://nytimes.com/2024/11/11/health/alcohol-misuse-pandemic.html

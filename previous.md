@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5915194/2024/11/11/wander-franco-arrest-dominican-r
 https://nytimes.com/athletic/5915956/2024/11/11/chicago-bears-matt-eberflus-coaching-staff/
 
 **Trump Chooses Lee Zeldin to Run E.P.A.**\
-`The former congressman from New York is a strong supporter of Mr. Trump and voted against certifying the 2020 election.`\
+`The former congressman from New York is a strong supporter of Donald Trump and voted against certifying the 2020 election.`\
 https://nytimes.com/2024/11/11/climate/trump-chooses-lee-zeldin-to-run-epa.html
 
 **Tuesday Briefing: Trump Starts Building His Cabinet**\
