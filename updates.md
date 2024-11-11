@@ -1,3 +1,11 @@
+**Wisconsin staffer Jack Del Rio arrested on operating while intoxicated charge**\
+`Wisconsin said in a statement Monday: "We take matters like this very seriously and we are continuing to gather information."`\
+https://nytimes.com/athletic/5915412/2024/11/11/jack-del-rio-arrest-wisconsin/
+
+**Democrats Need to Make Their Peace With a Clear and Fair Election**\
+`Politics did not fail.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/democrats-free-fair-election
+
 **Netanyahu Seeks to Delay Testifying at His Corruption Trial**\
 `Benjamin Netanyahu, the Israeli prime minister, is on trial for bribery and fraud. Now he wants to delay giving testimony.`\
 https://nytimes.com/2024/11/11/world/middleeast/netanyahu-corruption-trial-israel.html

@@ -1,3 +1,11 @@
+**Wisconsin staffer Jack Del Rio arrested on operating while intoxicated charge**\
+`Wisconsin said in a statement Monday: "We take matters like this very seriously and we are continuing to gather information."`\
+https://nytimes.com/athletic/5915412/2024/11/11/jack-del-rio-arrest-wisconsin/
+
+**Democrats Need to Make Their Peace With a Clear and Fair Election**\
+`Politics did not fail.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/democrats-free-fair-election
+
 **Netanyahu Seeks to Delay Testifying at His Corruption Trial**\
 `Benjamin Netanyahu, the Israeli prime minister, is on trial for bribery and fraud. Now he wants to delay giving testimony.`\
 https://nytimes.com/2024/11/11/world/middleeast/netanyahu-corruption-trial-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5912207/2024/11/11/van-nistelrooy-manchester-united
 **Pistons' Ausar Thompson cleared to play after blood clot issue**\
 `The 21-year-old started 38 of the 63 games he appeared in last year, averaging 8.8 points, 6.4 rebounds and 1.9 assists.`\
 https://nytimes.com/athletic/5915180/2024/11/11/pistons-ausar-thompson-cleared-return-nba/
-
-**Yohannes, 17, declares for USWNT over the Netherlands**\
-`Yohannes was previously keeping her options open as the teenager considered potential paths for her future`\
-https://nytimes.com/athletic/5915066/2024/11/11/lily-yohannes-uswnt-netherlands/
-
-**Gluck: NASCAR's broken playoff system should be at a tipping point**\
-`Is it time to revamp NASCAR's method of crowning a champion? After another year with a winner who struggled during the season, it should be.`\
-https://nytimes.com/athletic/5914726/2024/11/11/nascar-playoffs-system-joey-logano-champion/
 
