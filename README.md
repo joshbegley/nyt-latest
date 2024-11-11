@@ -1,3 +1,7 @@
+**Cowboys won't fire Mike McCarthy midseason: Jerry Jones**\
+`"I haven't had good experience changing coaches in the middle of the season," Jerry Jones said after Sunday's blowout loss to the Eagles.`\
+https://nytimes.com/athletic/5913377/2024/11/10/jerry-jones-cowboys-coaching-change-mike-mccarthy/
+
 **With Chiefs clash on horizon, Bills gut out win over Colts with 'long, grueling drive'**\
 `The defense provided much of the highlight reel material against a struggling Colts team.`\
 https://nytimes.com/athletic/5913281/2024/11/10/bills-win-colts-grueling-drive/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5911939/2024/11/10/eagles-cowboys-score-takeaways-r
 **Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
 `Matt Eberflus likely will make it to season's end, but after the Bears' freefall continued with a lopsided loss to Pats, changes are needed.`\
 https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-eberflus-coaches-under-fire/
-
-**Who's to blame on the Bears? Accountability for such a bad loss goes through whole franchise**\
-`This disastrous loss falls on everyone, from George McCaskey to Caleb Williams, and the process that led to Shane Waldron deserves scrutiny.`\
-https://nytimes.com/athletic/5913112/2024/11/10/bears-loss-blame-game-matt-eberflus-ryan-poles/
 
