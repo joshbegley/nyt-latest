@@ -1,4 +1,24 @@
-**Hoffenheim sack American head coach Matarazzo**\
+**Twins, Royce Lewis have a second shot at the second base move this offseason**\
+`The Twins haven’t made up their minds about moving Lewis, but they intend to at least talk to him about the possibility to help him prepare.`\
+https://nytimes.com/athletic/5909538/2024/11/11/royce-lewis-twins-second-base/
+
+**WSL Briefing: The gap between the top three and the rest of the league is stark**\
+`Even with seven gameweeks gone, it feels almost certain that, come May, Chelsea, City and Arsenal will finish in the WSL top three`\
+https://nytimes.com/athletic/5913346/2024/11/11/wsl-arsenal-manchester-city-chelsea/
+
+**What is the 'Pellegrini offside trap' and why is it undermining Chelsea this season?**\
+`Top-class defenders must be capable of setting their own offside line, rather than working to the geometry of the penalty box`\
+https://nytimes.com/athletic/5912943/2024/11/11/chelsea-pellegrini-offside-trap-maresca/
+
+**How Austria's positive results and Euro 2024 are being undermined by FA conflict**\
+`Austria have had positive results on the pitch but off pitch issues are rearing their head`\
+https://nytimes.com/athletic/5905929/2024/11/11/austria-ralf-rangnick-fa/
+
+**Lowetide: The Oilers' new approach to Darnell Nurse deployment and what may come**\
+`Nurse has been in search of a consistent and effective partner for years and the Oilers' coaching staff is experimenting.`\
+https://nytimes.com/athletic/5876412/2024/11/11/oilers-darnell-nurse-pairing/
+
+**Hoffenheim to sack American head coach Matarazzo**\
 `Hoffenheim are set to sack American head coach Pellegrino Matarazzo.`\
 https://nytimes.com/athletic/5914281/2024/11/11/pellegrino-matarazzo-hoffenheim-manager-sacked/
 
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/11/briefing/democrats-who-won.html
 **The Pulse: Week 10's most baffling results**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5913481/2024/11/11/lions-texans-jake-bates-the-pulse/
-
-**Are the Cardinals the new Lions? Jonathan Gannon's path starting to resemble Dan Campbell's**\
-`Gannon and Campbell each got off to awful starts with rebuilding franchises. Now, like the Lions, the Cardinals might have found something.`\
-https://nytimes.com/athletic/5914261/2024/11/11/cardinals-lions-jonathan-gannon-dan-campbell/
-
-**Is Joe Burrow clutch? The answer is complicated (and might point to a broader issue)**\
-`The Bengals are 1-10 with Burrow when trailing by one score and taking over with 1-8 minutes left, but that doesn't tell the whole story.`\
-https://nytimes.com/athletic/5914230/2024/11/11/joe-burrow-bengals-ravens-zac-taylor/
-
-**Is a Chiefs loss even possible? How they compare to the '72 Dolphins and '07 Pats**\
-`The Chiefs are somehow 9-0 after yet another white-knuckle victory, something that history's two undefeated teams rarely needed.`\
-https://nytimes.com/athletic/5914246/2024/11/11/chiefs-undefeated-win-streak-broncos/
-
-**The sky is falling on the Bears, but should we be shocked? Sando’s Pick Six**\
-`Preseason Bears optimism feels like ages ago after another debacle for Caleb Williams and the offense. Let's sort through the wreckage.`\
-https://nytimes.com/athletic/5910313/2024/11/11/bears-caleb-williams-shane-waldron-matt-eberflus/
-
-**What I'm hearing about Penguins' Erik Karlsson, Tristan Jarry situations**\
-`Internally, the Penguins are concerned with Erik Karlsson's defensive work. Here's what else I've learned in recent talks with sources.`\
-https://nytimes.com/athletic/5910124/2024/11/11/penguins-erik-karlsson-tristan-jarry/
 
