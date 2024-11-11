@@ -1,3 +1,7 @@
+**Kamara, Ramsey set for period out with hamstring injuries**\
+`Boubacar Kamara and Jacob Ramsey are set to be out for the next couple of weeks with hamstring injuries.`\
+https://nytimes.com/athletic/5914345/2024/11/11/aston-villa-injury-kamara-ramsey-update/
+
 **Sporting appoint Joao Pereira to replace Amorim after Man Utd move**\
 `Sporting Lisbon have appointed Joao Pereira to replace Ruben Amorim as the club&#8217;s head coach.`\
 https://nytimes.com/athletic/5882220/2024/11/11/ruben-amorim-sporting-replacement/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/style/first-date-outfit.html
 **Democrats Could Have Won. Our Excuses Mask a Devastating Reality.**\
 `Many young voters didn’t perceive the tangible impact of their 2020 support for Joe Biden, which eroded their faith in the Democratic Party.`\
 https://nytimes.com/2024/11/11/opinion/kamala-harris-young-voters.html
-
-**The Trump Era Never Really Ended**\
-`Should we even call it a comeback?`\
-https://nytimes.com/2024/11/11/opinion/trump-harris-republicans-democrats.html
 
