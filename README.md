@@ -1,3 +1,7 @@
+**Democrats Who Won**\
+`We’re covering this year’s successful Democratic campaigns.`\
+https://nytimes.com/2024/11/11/briefing/democrats-who-won.html
+
 **The Pulse: Week 10's most baffling results**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5913481/2024/11/11/lions-texans-jake-bates-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/podcasts/the-daily/democrats-blame-answers.html
 **Trump Transition Stalls Over Ethics Code, and a New Russian Offensive**\
 `Plus, Saudi Arabia’s “sportswashing” controversy.`\
 https://nytimes.com/2024/11/11/podcasts/trump-border-czar-russia-north-korea.html
-
-**Brothers up front, Tyler Linderbaum and Patrick Mekari, are Ravens' 'Tom and Jerry'**\
-`The two O-linemen who have taken dramatically different paths to the NFL are good friends who engage in constant banter on myriad topics. `\
-https://nytimes.com/athletic/5910360/2024/11/11/tyler-linderbaum-patrick-mekari-ravens-offensive-line/
 
