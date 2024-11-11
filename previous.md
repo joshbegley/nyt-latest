@@ -1,3 +1,7 @@
+**Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
+`Law enforcement authorities announced that Nicholas Wayne Hamlett, 45, had been taken into custody in Columbia, S.C.`\
+https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
+
 **Amsterdam Police Arrest 5 More Men Over Antisemitic Attacks**\
 `A total of eight people were being held in connection with last week’s violence, and unrest in the largest city in the Netherlands continued on Monday night.`\
 https://nytimes.com/2024/11/11/world/europe/amsterdam-antisemitic-attacks-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915194/2024/11/11/wander-franco-arrest-dominican-r
 **Greenberg: For Bears and Matt Eberflus' coaching staff, the end looks and sounds near**\
 `There have been no real highs to the Eberflus “era.” We’re at the stage where everything he says is just kindling for the fire. Or firing.`\
 https://nytimes.com/athletic/5915956/2024/11/11/chicago-bears-matt-eberflus-coaching-staff/
-
-**Trump Chooses Lee Zeldin to Run E.P.A. as He Plans to Gut Climate Rules**\
-`The former congressman from New York is a strong supporter of Donald Trump and voted against certifying the 2020 election.`\
-https://nytimes.com/2024/11/11/climate/trump-chooses-lee-zeldin-to-run-epa.html
 

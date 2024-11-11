@@ -1,3 +1,7 @@
+**Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
+`Law enforcement authorities announced that Nicholas Wayne Hamlett, 45, had been taken into custody in Columbia, S.C.`\
+https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
+
 **Amsterdam Police Arrest 5 More Men Over Antisemitic Attacks**\
 `A total of eight people were being held in connection with last week’s violence, and unrest in the largest city in the Netherlands continued on Monday night.`\
 https://nytimes.com/2024/11/11/world/europe/amsterdam-antisemitic-attacks-arrests.html
