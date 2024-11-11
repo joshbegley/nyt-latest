@@ -1,3 +1,11 @@
+**Steelers' new-look offense proves it can finally carry the defense when needed**\
+`For the first time in years, the Steelers are showing they can win because of the offense, not in spite of it.`\
+https://nytimes.com/athletic/5913348/2024/11/10/steelers-russell-wilson-mike-williams-commanders/
+
+**Josh Allen's brilliance overshadows two INTs, run defense shows signs of hope: Bills observations**\
+`Plus, how the new defensive tackles fit in.`\
+https://nytimes.com/athletic/5913319/2024/11/10/bills-josh-allen-run-defense-observations-colts/
+
 **Thunder's Chet Holmgren injures hip after hard fall vs. Warriors**\
 `The 22-year-old Thunder big man could not put any weight on his right leg as he left the floor. `\
 https://nytimes.com/athletic/5913365/2024/11/10/chet-holmgren-injury-thunder-warriors/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/10/podcasts/this-is-the-cake-we-baked-this-american-
 **Chaos, Provocations and Violence: How Attacks on Israeli Soccer Fans Unfolded**\
 `Antisemitic assaults on visiting Israeli soccer fans, and incendiary chants and attacks by some Israelis: Here’s what we know so far about the violence in Amsterdam last week.`\
 https://nytimes.com/2024/11/10/world/europe/israeli-soccer-fans-amsterdam-attack.html
-
-**Tyrone Tracy Jr.'s back-breaking OT fumble a painful reminder of rookie growing pains**\
-`“No matter how many times people come up to you and tell you it's not your fault, you still got that feeling inside that it was your fault."`\
-https://nytimes.com/athletic/5912678/2024/11/10/tyrone-tracy-giants-fumble-pathers-loss/
-
-**The Patriots are becoming Drake Maye's team: Inside the meeting that led to a huge win**\
-`The rookie quarterback called out the Patriots offense after a bad practice, then helped his team deliver its best game of the season.`\
-https://nytimes.com/athletic/5913056/2024/11/10/drake-maye-patriots-bears-meeting/
 
