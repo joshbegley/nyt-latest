@@ -1,3 +1,7 @@
+**Joey Logano fends off Ryan Blaney to claim third NASCAR Cup Series**\
+`The championship is Logano’s third, making him the 10th driver to win three or more championships, giving Penske three consecutive titles. `\
+https://nytimes.com/athletic/5913195/2024/11/10/joey-logano-nascar-cup-series-championship/
+
 **Cardinals blow out Jets 31-6 for fourth straight win: Takeaways**\
 `Quarterback Kyler Murray's three touchdowns and precision passing helped the Cardinals blow out Aaron Rodgers and the Jets.`\
 https://nytimes.com/athletic/5911933/2024/11/10/jets-cardinals-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913036/2024/11/10/giants-quarterback-daniel-jones-
 **Florida men's basketball coach Todd Golden will continue to coach amid investigation**\
 `Golden acknowledged the university’s investigation Saturday and said that he has been participating in the inquiry over the last month.`\
 https://nytimes.com/athletic/5913110/2024/11/10/todd-golden-florida-sexual-harassment-coach/
-
-**FIFA urged to postpone confirmation of Saudi as World Cup hosts**\
-`FIFA should postpone next month’s vote to confirm Saudi Arabia as the host of the 2034 men’s World Cup until the Gulf state introduces major reforms to protect human rights, according to a report from nine global campaign groups, including Amnesty International and Human Rights Watch.`\
-https://nytimes.com/athletic/5912565/2024/11/10/saudi-world-cup-bid-human-rights/
 
