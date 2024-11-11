@@ -1,3 +1,7 @@
+**An important week for the narrative of this Georgia season**\
+`Beat Tennessee, and all is OK. Lose, and the narrative on this Georgia season is all but set, not in a good way. `\
+https://nytimes.com/athletic/5915783/2024/11/11/georgia-tennessee-college-football-playoff-implications/
+
 **Why Was There a Broad Drop-Off in Democratic Turnout in 2024?**\
 `Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
 https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
