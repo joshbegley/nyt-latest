@@ -1,3 +1,7 @@
+**Ahead of Veterans Day, Arizona Cardinals fans honor Pat Tillman's spirit**\
+`Each NFL Sunday, fans rep jerseys from yesteryear, the past meeting the present, a statement of respect. In Arizona, it's different. `\
+https://nytimes.com/athletic/5913435/2024/11/10/arizona-cardinals-pat-tillman-veterans-day/
+
 **Marlins to add Giants' Pedro Guerrero as new hitting coach: Source**\
 `Guerrero has several ties to Marlins assistant general manager Gabe Kapler.`\
 https://nytimes.com/athletic/5913713/2024/11/10/marlins-hire-pedro-guerrero-hitting-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913311/2024/11/10/chiefs-blocked-field-goal-leo-ch
 **Jaylen Brown calls Giannis Antetokounmpo a 'child' after high-five fake-out**\
 `When told of Brown's comments, Antetokounmpo was taken aback. "Oh, that's what he said? Dang."`\
 https://nytimes.com/athletic/5913499/2024/11/10/giannis-jaylen-brown-trolling-celtics-bucks/
-
-**Steelers' new-look offense proves it can finally carry the defense when needed**\
-`For the first time in years, the Steelers are showing they can win because of the offense, not in spite of it.`\
-https://nytimes.com/athletic/5913348/2024/11/10/steelers-russell-wilson-mike-williams-commanders/
 
