@@ -1,3 +1,7 @@
+**Lions beat Texans 26-23 on walk-off field goal: Key takeaways**\
+`The Lions' Jake Bates kicked a 52-yard field goal to lift Detroit past the Houston Texans at NRG Stadium.`\
+https://nytimes.com/athletic/5912898/2024/11/11/lions-texans-score-result-takeaways-snf/
+
 **Why Everton need better performances before stadium move**\
 `Turgid performances from Everton are a distinct possibility in the short term, but the future will need to be brighter and more vibrant`\
 https://nytimes.com/athletic/5910628/2024/11/11/everton-west-ham-recap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902690/2024/11/11/ruben-amorim-manchester-united-a
 **Leicester are being repeatedly punished down their right - Cooper must fix this**\
 `The promoted side have a glaring weakness in one area of the pitch and it's threatening their bid to avoid an instant return to the EFL`\
 https://nytimes.com/athletic/5912114/2024/11/11/leicester-right-hand-side-cooper/
-
-**Arteta is demanding more and more from his players - only time will tell how they respond**\
-`The Arsenal manager is determined to squeeze every last drop of talent and effort from his players, but he still has a long way to go`\
-https://nytimes.com/athletic/5912461/2024/11/11/arteta-demanding-more-from-arsenal-players/
 

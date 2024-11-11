@@ -1,3 +1,7 @@
+**Lions beat Texans 26-23 on walk-off field goal: Key takeaways**\
+`The Lions' Jake Bates kicked a 52-yard field goal to lift Detroit past the Houston Texans at NRG Stadium.`\
+https://nytimes.com/athletic/5912898/2024/11/11/lions-texans-score-result-takeaways-snf/
+
 **Why Everton need better performances before stadium move**\
 `Turgid performances from Everton are a distinct possibility in the short term, but the future will need to be brighter and more vibrant`\
 https://nytimes.com/athletic/5910628/2024/11/11/everton-west-ham-recap/
