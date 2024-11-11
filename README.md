@@ -1,3 +1,7 @@
+**Trey Lance replaces Cooper Rush at QB for Cowboys**\
+`The fourth-year quarterback sees first regular season action for Dallas in Week 10 game against Eagles. `\
+https://nytimes.com/athletic/5913165/2024/11/10/trey-lance-cowboys-qb/
+
 **Bruce Degen, Who Drew ‘The Magic School Bus,’ Dies at 79**\
 `He memorably portrayed a frizzy-haired science teacher roping her elementary school class into adventures aboard a shape-shifting yellow bus.`\
 https://nytimes.com/2024/11/10/obituaries/bruce-degen-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913007/2024/11/10/falcons-saints-kirk-cousins-frus
 **Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
 `McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
 https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-manager/
-
-**Blue Jackets claim defenseman Dante Fabbro off waivers from Nashville**\
-`The former 2016 first-round pick played 315 games for Nashville before Sunday's claim.`\
-https://nytimes.com/athletic/5912873/2024/11/10/blue-jackets-dante-fabbro-waivers-claim-predators/
 
