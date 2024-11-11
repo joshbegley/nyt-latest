@@ -1,3 +1,11 @@
+**Tactics and data live Q&A: Our writers answer your questions**\
+`Post your tactics and data questions to Thom Harris and Anantaajith Raghuraman today`\
+https://nytimes.com/athletic/5914340/2024/11/11/tactics-data-premier-league-questions/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`After the 3-1 victory over Nottingham Forest, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5914324/2024/11/11/newcastle-joelinton-champions-league/
+
 **The Athletic FC: What now for Messi and Miami? Premier League's trending teams**\
 `Today in TAFC: Repercussions of Messi and Inter Miami exit from MLS Cup, Premier League state of play, player's coma trauma`\
 https://nytimes.com/athletic/5914355/2024/11/11/the-athletic-fc-what-now-for-messi-and-miami-premier-leagues-trending-teams/
