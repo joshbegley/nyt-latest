@@ -1,3 +1,7 @@
+**Stephen Miller Expected to Be Named a Trump Deputy Chief of Staff**\
+`The adviser and speechwriter, who has been with President-elect Donald J. Trump since his first term in 2016, is anticipated to have a vast portfolio and influence.`\
+https://nytimes.com/2024/11/11/us/politics/stephen-miller-trump.html
+
 **Scoop City: Risers and fallers after Week 10**\
 `A quick look at the risers (Cardinals, Lions, Steelers), fallers (Jets, Cowboys, Bears) and just how close it's been for Kansas City.`\
 https://nytimes.com/athletic/5915333/2024/11/11/nfl-week-10-trending-up-down-chiefs-scoop-city/
