@@ -1,3 +1,15 @@
+**‘Dune: Prophecy,’ Plus 6 Things to Watch on TV this Week**\
+`Tune into the premiere of the HBO series, see whom Joan Vassos picks for her final rose on “The Bachelorette” and catch up on news.`\
+https://nytimes.com/2024/11/11/arts/television/dune-prophecy-tv-this-week.html
+
+**America’s Allies Are Hedging, and It Has Very Little to Do With Trump**\
+`The United States can no longer depend on the loyalty of its friends.`\
+https://nytimes.com/2024/11/11/opinion/trump-america-allies.html
+
+**Fantasy football Week 10 takeaways: Backfield shakeups for Denver and the Chargers — is Carolina next?**\
+`Michael Salfino weighs in on the Broncos' and Chargers' backfield changes, and wonders if Chuba Hubbard's bell-cow role is safe in Carolina.`\
+https://nytimes.com/athletic/5913170/2024/11/11/fantasy-football-week-10-takeaways/
+
 **Lions beat Texans 26-23 on walk-off field goal: Key takeaways**\
 `The Lions' Jake Bates kicked a 52-yard field goal to lift Detroit past Houston at NRG Stadium.`\
 https://nytimes.com/athletic/5912898/2024/11/11/lions-texans-score-result-takeaways-snf/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5910581/2024/11/11/aston-villa-leon-bailey-analysis
 **Tottenham's inconsistency is costing them - Postecoglou needs to find a solution**\
 `Tottenham have struggled to follow up big wins so far this season`\
 https://nytimes.com/athletic/5912168/2024/11/11/tottenham-hotspur-inconsistency-analysis/
-
-**Chelsea have dealt with a tough run - and now there's an opportunity**\
-`Chelsea managed a 1-1 draw against Arsenal — and are now third in the Premier League table`\
-https://nytimes.com/athletic/5912383/2024/11/11/chelsea-enzo-maresca-champions-league/
-
-**Amorim's first United issue: Getting the best out of Amad and Ugarte**\
-`Manchester United managed a 3-0 win against Leicester in Ruud van Nistelrooy's final game in caretaker charge`\
-https://nytimes.com/athletic/5902690/2024/11/11/ruben-amorim-manchester-united-analysis/
-
-**Leicester are being repeatedly punished down their right - Cooper must fix this**\
-`The promoted side have a glaring weakness in one area of the pitch and it's threatening their bid to avoid an instant return to the EFL`\
-https://nytimes.com/athletic/5912114/2024/11/11/leicester-right-hand-side-cooper/
 
