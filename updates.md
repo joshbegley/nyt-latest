@@ -1,3 +1,7 @@
+**Joey Logano fends off Ryan Blaney to claim third NASCAR Cup Series**\
+`The championship is Logano’s third, making him the 10th driver to win three or more championships, giving Penske three consecutive titles. `\
+https://nytimes.com/athletic/5913195/2024/11/10/joey-logano-nascar-cup-series-championship/
+
 **Cardinals blow out Jets 31-6 for fourth straight win: Takeaways**\
 `Quarterback Kyler Murray's three touchdowns and precision passing helped the Cardinals blow out Aaron Rodgers and the Jets.`\
 https://nytimes.com/athletic/5911933/2024/11/10/jets-cardinals-score-result-takeaways/
