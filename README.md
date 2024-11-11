@@ -1,3 +1,7 @@
+**Iran and Trump Are Front of Mind at Saudi Summit**\
+`Leaders from across the Arab and Muslim world were in Riyadh for a meeting officially convened to discuss the fighting in Gaza and Lebanon.`\
+https://nytimes.com/2024/11/11/world/middleeast/saudi-riyadh-iran-trump.html
+
 **Fantasy football Week 10 recap: 5 sneaky smart QBs to start in the stretch run**\
 `Some eye-catching stats show that these five signal callers deserve to be in more starting lineups.`\
 https://nytimes.com/athletic/5914720/2024/11/11/fantasy-football-week-10-recap-5-sneaky-smart-qbs-to-start-in-the-stretch-run/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/business/dealbook/fed-powell-trump.html
 **NBA Rewind: The Cavs are unstoppable, and the NBA Cup returns for Year 2**\
 `Who's hot and who's not as the in-season tournament prepares to tip off on Tuesday.`\
 https://nytimes.com/athletic/5906533/2024/11/11/nba-rewind-cavaliers-nba-cup-preview/
-
-**San Francisco Giants free-agent profile: Willy Adames, SS**\
-`Adames is a well-rounded player, and he fits just about everything the Giants are looking for.`\
-https://nytimes.com/athletic/5909079/2024/11/11/sf-giants-willy-adames-free-agency/
 
