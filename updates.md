@@ -1,3 +1,11 @@
+**In loss to Steelers, Commanders reminded that the 'little things always add up'**\
+`Washington fell to 7-3 and, combined with Philadelphia hammering Dallas, dropped to second place in the NFC East ahead of Thursday night.`\
+https://nytimes.com/athletic/5913454/2024/11/10/commanders-loss-steelers-russell-wilson/
+
+**Wild settle for tired point with overtime loss in Chicago : 3 takeaways**\
+`The Wild couldn't quite keep up their winning ways in their third game in four nights, but Matt Boldy earned them a point.`\
+https://nytimes.com/athletic/5913161/2024/11/10/wild-boldy-gustavsson-overtime-chicago/
+
 **Sam Darnold's turnovers nearly doom Vikings in narrow win over Jaguars**\
 `Darnold's three interceptions stalled the offense in the red zone, but Minnesota's defense and special teams came through in a 12-7 triumph.`\
 https://nytimes.com/athletic/5913400/2024/11/10/sam-darnold-turnovers-vikings-jaguars/
