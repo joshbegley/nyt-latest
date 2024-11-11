@@ -1,3 +1,7 @@
+**Fantasy football Week 10 recap: 5 sneaky smart QBs to start in the stretch run**\
+`Some eye-catching stats show that these five signal callers deserve to be in more starting lineups.`\
+https://nytimes.com/athletic/5914720/2024/11/11/fantasy-football-week-10-recap-5-sneaky-smart-qbs-to-start-in-the-stretch-run/
+
 **Submit questions for Richard Deitsch's latest sports media mailbag**\
 `Have questions about anything in sports media? Leave them here and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
 https://nytimes.com/athletic/5914798/2024/11/11/submit-questions-for-richard-deitschs-latest-sports-media-mailbag/
