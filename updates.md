@@ -1,3 +1,7 @@
+**Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
+`The suspect was taken into custody, ending a multistate manhunt in a case involving a suspicious emergency call, a false identity and a fake bear attack.`\
+https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
+
 **Democrats Pick Up Seat in Newly Drawn Louisiana District**\
 `Cleo Fields, a longtime Baton Rouge politician, won more than 50 percent of the vote in an open primary, negating the need for a runoff.`\
 https://nytimes.com/2024/11/11/us/politics/louisiana-house-cleo-fields.html
