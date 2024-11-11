@@ -1,3 +1,7 @@
+**How the Hawks are rebuilding around Trae Young by taking the ball out of his hands**\
+`Atlanta wants to build an identity. This season isn’t so much about mastering a scheme as it is a mindset.`\
+https://nytimes.com/athletic/5910719/2024/11/11/hawks-rebuilding-trae-young/
+
 **Leeds head of recruitment Miles set to leave club**\
 `Leeds United head of recruitment Jordan Miles is set to leave after nine months at the Championship club.`\
 https://nytimes.com/athletic/5910439/2024/11/11/jordan-miles-leeds-exit/
