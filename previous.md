@@ -1,3 +1,7 @@
+**PGMOL suspend referee Coote over alleged comments on Klopp, Liverpool**\
+`Premier League official David Coote has been suspended with immediate effect after footage appearing to show him voicing foul-mouthed criticism of former Liverpool manager Jurgen Klopp appeared on social media.`\
+https://nytimes.com/athletic/5914912/2024/11/11/david-coote-video-liverpool-jurgen-klopp/
+
 **Kennesaw State coaching job profile: Pluses, minuses and candidates to replace Brian Bohannon**\
 `There are parts to like about this job, but it’s behind its new peers financially. The upside is obvious. The timeline is less clear.`\
 https://nytimes.com/athletic/5914711/2024/11/11/kennesaw-state-football-job-coaching-search/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
 **'I don't need the lights on me': Casper Ruud steps out of the shadows in Turin**\
 `The Norwegian's low-key demeanor and thoughtfulness sometimes allow his tennis talents to go under the radar.`\
 https://nytimes.com/athletic/5908812/2024/11/11/casper-ruud-tennis-atp-tour-finals/
-
-**Fofana withdrawn from France squad with knee issue**\
-`Chelsea defender Wesley Fofana has been withdrawn from France duty for their upcoming Nations League games against Israel and Italy.`\
-https://nytimes.com/athletic/5914714/2024/11/11/wesley-fofana-injury-france/
 

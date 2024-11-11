@@ -1,3 +1,7 @@
+**PGMOL suspend referee Coote over alleged comments on Klopp, Liverpool**\
+`Premier League official David Coote has been suspended with immediate effect after footage appearing to show him voicing foul-mouthed criticism of former Liverpool manager Jurgen Klopp appeared on social media.`\
+https://nytimes.com/athletic/5914912/2024/11/11/david-coote-video-liverpool-jurgen-klopp/
+
 **Kennesaw State coaching job profile: Pluses, minuses and candidates to replace Brian Bohannon**\
 `There are parts to like about this job, but it’s behind its new peers financially. The upside is obvious. The timeline is less clear.`\
 https://nytimes.com/athletic/5914711/2024/11/11/kennesaw-state-football-job-coaching-search/
