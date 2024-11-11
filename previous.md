@@ -1,3 +1,7 @@
+**Jaylen Brown calls Giannis Antetokounmpo a 'child' after high-five fake-out**\
+`When told of Brown's comments, Antetokounmpo was taken aback. "Oh, that's what he said? Dang."`\
+https://nytimes.com/athletic/5913499/2024/11/10/giannis-jaylen-brown-trolling-celtics-bucks/
+
 **Steelers' new-look offense proves it can finally carry the defense when needed**\
 `For the first time in years, the Steelers are showing they can win because of the offense, not in spite of it.`\
 https://nytimes.com/athletic/5913348/2024/11/10/steelers-russell-wilson-mike-williams-commanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913230/2024/11/10/49ers-jake-moody-win-buccaneers-
 **This Is the Cake We Baked**\
 `Talking to people who helped make Donald Trump’s victory happen.`\
 https://nytimes.com/2024/11/10/podcasts/this-is-the-cake-we-baked-this-american-life-nyt-audio.html
-
-**Chaos, Provocations and Violence: How Attacks on Israeli Soccer Fans Unfolded**\
-`Antisemitic assaults on visiting Israeli soccer fans, and incendiary chants and attacks by some Israelis: Here’s what we know so far about the violence in Amsterdam last week.`\
-https://nytimes.com/2024/11/10/world/europe/israeli-soccer-fans-amsterdam-attack.html
 

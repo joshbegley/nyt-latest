@@ -1,3 +1,7 @@
+**Jaylen Brown calls Giannis Antetokounmpo a 'child' after high-five fake-out**\
+`When told of Brown's comments, Antetokounmpo was taken aback. "Oh, that's what he said? Dang."`\
+https://nytimes.com/athletic/5913499/2024/11/10/giannis-jaylen-brown-trolling-celtics-bucks/
+
 **Josh Allen's brilliance overshadows 2 INTs, run defense shows signs of hope: Bills observations**\
 `Plus, how the new defensive tackles fit in.`\
 https://nytimes.com/athletic/5913319/2024/11/10/bills-josh-allen-run-defense-observations-colts/
