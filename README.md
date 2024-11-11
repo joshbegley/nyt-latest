@@ -1,3 +1,7 @@
+**Warriors defeat Thunder with De'Anthony Melton at shooting guard in starting lineup**\
+`After Melton scored 19 points against OKC, Steve Kerr essentially named him starting shooting guard: "I like this lineup with Melt."`\
+https://nytimes.com/athletic/5913215/2024/11/11/deanthony-melton-warriors-win-in-okc/
+
 **Trump Names Thomas Homan ‘Border Czar’ With a Wide Portfolio**\
 `Mr. Homan, a senior immigration official in the last Trump administration, has said that workplace raids would restart under the new government.`\
 https://nytimes.com/2024/11/11/us/politics/trump-homan-immigration-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5844784/2024/11/11/oriley-brighton-city-premier-lea
 **Defeat and 'improvements' needed - but Forest's progress under Nuno is clear**\
 `Forest lost to Newcastle but conceding three goals has become a rarity and, after 38 games under Nuno, it's clear how far they have come`\
 https://nytimes.com/athletic/5912182/2024/11/11/forest-newcastle-nuno-improvements/
-
-**What's going on with Leon Bailey?**\
-`The Jamaican's toils have characterised Villa's broader attacking struggles`\
-https://nytimes.com/athletic/5910581/2024/11/11/aston-villa-leon-bailey-analysis/
 
