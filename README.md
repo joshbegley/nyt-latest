@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5913233/2024/11/10/christian-mccaffrey-is-back-to-r
 https://nytimes.com/athletic/5913904/2024/11/10/chargers-jim-harbaugh-edmund-fitzgerald-wi/
 
 **Blackhawks pull out much-needed win at home against Wild: Observations**\
-`CHICAGO — The sample size is large enough now to make a declaration about the Chicago Blackhawks this season.`\
+`The Blackhawks earned their first win at home since Oct. 17 with an overtime push against the Wild.`\
 https://nytimes.com/athletic/5913532/2024/11/10/blackhawks-kurashev-mrazek-wild/
 
 **After blowout loss in Arizona, Jets are out of time and Aaron Rodgers is out of answers**\
