@@ -1,3 +1,7 @@
+**Throngs of Cyclists Ride for Hours Between Two Chinese Cities**\
+`They were making the 40-mile journey from Zhengzhou, the capital of Henan Province, to the neighboring city of Kaifeng, a cycling trip that can take up to five hours one-way.`\
+https://nytimes.com/video/world/asia/100000009819274/china-bicycle-zhengzhou-kaifeng.html
+
 **Shigeru Ishiba Wins Vote to Remain as Japan’s Prime Minister**\
 `Parliament voted Monday to stick with Ishiba, who will lead a minority government after his party suffered heavy losses in an election last month.`\
 https://nytimes.com/2024/11/11/world/asia/japan-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913721/2024/11/11/real-sociedad-barcelona-lewandow
 **Mattel Mistakenly Lists Porn Site on Packaging for ‘Wicked’ Dolls**\
 `The site has a similar address to one that promotes a film adaptation of the hit musical. The toymaker apologized for the “unfortunate error.”`\
 https://nytimes.com/2024/11/11/movies/mattel-wicked-porn-site-mistake.html
-
-**Amorim shows magic touch at Sporting farewell - and hints at Man Utd plans**\
-`Sporting won 4-2 win away at Braga - coming back from 2-0 down - in his Amorim’s final match as head coach`\
-https://nytimes.com/athletic/5913761/2024/11/11/ruben-amorim-manchester-united-sporting-lisbon/
 
