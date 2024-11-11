@@ -1,3 +1,7 @@
+**Pistons' Ausar Thompson cleared to play after blood clot issue**\
+`The 21-year-old started 38 of the 63 games he appeared in last year, averaging 8.8 points, 6.4 rebounds and 1.9 assists.`\
+https://nytimes.com/athletic/5915180/2024/11/11/pistons-ausar-thompson-cleared-return-nba/
+
 **Yohannes, 17, declares for USWNT over the Netherlands**\
 `Yohannes was previously keeping her options open as the teenager considered potential paths for her future`\
 https://nytimes.com/athletic/5915066/2024/11/11/lily-yohannes-uswnt-netherlands/
