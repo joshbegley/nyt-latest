@@ -1,3 +1,11 @@
+**Tactics and data live Q&A: Our writers answer your questions**\
+`Post your tactics and data questions to Thom Harris and Anantaajith Raghuraman today`\
+https://nytimes.com/athletic/5914340/2024/11/11/tactics-data-premier-league-questions/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`After the 3-1 victory over Nottingham Forest, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5914324/2024/11/11/newcastle-joelinton-champions-league/
+
 **The Athletic FC: What now for Messi and Miami? Premier League's trending teams**\
 `Today in TAFC: Repercussions of Messi and Inter Miami exit from MLS Cup, Premier League state of play, player's coma trauma`\
 https://nytimes.com/athletic/5914355/2024/11/11/the-athletic-fc-what-now-for-messi-and-miami-premier-leagues-trending-teams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5876412/2024/11/11/oilers-darnell-nurse-pairing/
 **Hoffenheim to sack American head coach Matarazzo**\
 `Hoffenheim are set to sack American head coach Pellegrino Matarazzo.`\
 https://nytimes.com/athletic/5914281/2024/11/11/pellegrino-matarazzo-hoffenheim-manager-sacked/
-
-**Weekend NHL rankings: Canucks, Predators and 5 way-too-early offseason lessons**\
-`Everything we assumed must be true during the offseason is always correct ... except when it's not.`\
-https://nytimes.com/athletic/5912782/2024/11/11/nhl-rankings-canucks-predators-offseason/
-
-**Yamal out of Spain squad with ankle injury, expected to miss 2-3 weeks**\
-`Lamine Yamal has been withdrawn from the Spain squad for the upcoming Nations League fixtures with an ankle injury that is expected to keep him out for two to three weeks.`\
-https://nytimes.com/athletic/5914435/2024/11/11/barcelona-lamine-yamal-injury-spain/
 
