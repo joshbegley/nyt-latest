@@ -1,3 +1,7 @@
+**With Chiefs clash on horizon, Bills gut out win over Colts with 'long, grueling drive'**\
+`The defense provided much of the highlight reel material against a struggling Colts team.`\
+https://nytimes.com/athletic/5913281/2024/11/10/bills-win-colts-grueling-drive/
+
 **Does Joe Flacco still give Colts 'best chance to win'? Hard to make case after another loss**\
 `In two weeks since replacing Anthony Richardson as the starter, Flacco has committed six turnovers and been sacked seven times. `\
 https://nytimes.com/athletic/5913427/2024/11/10/colts-joe-flacco-anthony-richardson-shane-steichen/
