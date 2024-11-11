@@ -1,3 +1,7 @@
+**Blackhawks pull out much-needed win at home against Wild: Observations**\
+`The Blackhawks earned their first win at home since Oct. 17 with an overtime push against the Wild.`\
+https://nytimes.com/athletic/5913532/2024/11/10/blackhawks-kurashev-mrazek-wild/
+
 **'Frustrated' Jerry Jones on Cowboys' struggles: 'I had a lot to do with what we're seeing'**\
 `AT&T Stadium has curtains, but the Cowboys' owner isn't interested in using them despite CeeDee Lamb losing sight of an end zone pass.`\
 https://nytimes.com/athletic/5913827/2024/11/10/cowboys-jerry-jones-sun-stadium-mike-mccarthy/
