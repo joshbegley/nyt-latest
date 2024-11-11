@@ -1,3 +1,7 @@
+**Yamal out of Spain squad with ankle injury, expected to miss 2-3 weeks**\
+`Lamine Yamal has been withdrawn from the Spain squad for the upcoming Nations League fixtures with an ankle injury that is expected to keep him out for two to three weeks.`\
+https://nytimes.com/athletic/5914435/2024/11/11/barcelona-lamine-yamal-injury-spain/
+
 **Democrats Who Won**\
 `We’re covering this year’s successful Democratic campaigns.`\
 https://nytimes.com/2024/11/11/briefing/democrats-who-won.html
