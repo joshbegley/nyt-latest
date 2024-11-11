@@ -1,3 +1,15 @@
+**Military Judge Postpones Guilty Plea Proceedings in Sept. 11 Case**\
+`The judge asked defense and prosecution lawyers to settle on a date for the accused mastermind of the terrorist attacks to plead guilty.`\
+https://nytimes.com/2024/11/10/us/politics/sept-11-plea-deal-guantanamo.html
+
+**49ers, Jake Moody deliver wobbly win but team is still trying to find its dominant self**\
+`Moody said his game-winning kick was from the same spot as his third miss, which sparked a sideline confrontation with Deebo Samuel. `\
+https://nytimes.com/athletic/5913230/2024/11/10/49ers-jake-moody-win-buccaneers-wobbly/
+
+**This Is the Cake We Baked**\
+`Talking to people who helped make Donald Trump’s victory happen.`\
+https://nytimes.com/2024/11/10/podcasts/this-is-the-cake-we-baked-this-american-life-nyt-audio.html
+
 **Chaos, Provocations and Violence: How Attacks on Israeli Soccer Fans Unfolded**\
 `Antisemitic assaults on visiting Israeli soccer fans, and incendiary chants and attacks by some Israelis: Here’s what we know so far about the violence in Amsterdam last week.`\
 https://nytimes.com/2024/11/10/world/europe/israeli-soccer-fans-amsterdam-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/10/us/tuskegee-university-shooting-alabama.html
 **Trey Lance replaces Cooper Rush at QB for Cowboys**\
 `The fourth-year quarterback sees first regular season action for Dallas in Week 10 game against Eagles. `\
 https://nytimes.com/athletic/5913165/2024/11/10/trey-lance-cowboys-qb/
-
-**Bruce Degen, Who Drew ‘The Magic School Bus,’ Dies at 79**\
-`He memorably portrayed a frizzy-haired science teacher roping her elementary school class into adventures aboard a shape-shifting yellow bus.`\
-https://nytimes.com/2024/11/10/obituaries/bruce-degen-dead.html
-
-**'We were right there': Broncos heartbroken by blocked field goal loss to Chiefs**\
-`The harassment of Patrick Mahomes? The leaps by Bo Nix and Denver's young offensive weapons? None of it eased the pain of Sunday's loss.`\
-https://nytimes.com/athletic/5912797/2024/11/10/broncos-loss-chiefs-blocked-field-goal-devastating/
-
-**Chargers' defensive dominance continues in 27-17 win over Titans: Takeaways**\
-`The Chargers leaned heavily on their run game to total 145 rushing yards and win the time-of-possession battle while playing turnover-free.`\
-https://nytimes.com/athletic/5911928/2024/11/10/titans-chargers-score-takeaways-result/
 
