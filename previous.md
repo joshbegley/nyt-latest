@@ -1,3 +1,7 @@
+**Democrats Pick Up Seat in Newly Drawn Louisiana District**\
+`Cleo Fields, a longtime Baton Rouge politician, won more than 50 percent of the vote in an open primary, negating the need for a runoff.`\
+https://nytimes.com/2024/11/11/us/politics/louisiana-house-cleo-fields.html
+
 **Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
 `Law enforcement authorities announced that Nicholas Wayne Hamlett, 45, had been taken into custody in Columbia, S.C.`\
 https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/us/politics/trump-executive-orders-susie-wiles.ht
 **Wander Franco detained in Dominican Republic after fight**\
 `Authorities are investigating the incident, said a spokesperson for the public ministry.`\
 https://nytimes.com/athletic/5915194/2024/11/11/wander-franco-arrest-dominican-republic/
-
-**Greenberg: For Bears and Matt Eberflus' coaching staff, the end looks and sounds near**\
-`There have been no real highs to the Eberflus “era.” We’re at the stage where everything he says is just kindling for the fire. Or firing.`\
-https://nytimes.com/athletic/5915956/2024/11/11/chicago-bears-matt-eberflus-coaching-staff/
 

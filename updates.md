@@ -1,3 +1,7 @@
+**Democrats Pick Up Seat in Newly Drawn Louisiana District**\
+`Cleo Fields, a longtime Baton Rouge politician, won more than 50 percent of the vote in an open primary, negating the need for a runoff.`\
+https://nytimes.com/2024/11/11/us/politics/louisiana-house-cleo-fields.html
+
 **Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
 `Law enforcement authorities announced that Nicholas Wayne Hamlett, 45, had been taken into custody in Columbia, S.C.`\
 https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
