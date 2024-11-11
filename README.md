@@ -1,3 +1,7 @@
+**Stephen Miller Expected to Be Named a Trump Deputy Chief of Staff**\
+`The adviser and speechwriter, who has been with President-elect Donald J. Trump since his first term in 2016, is anticipated to have a vast portfolio and influence.`\
+https://nytimes.com/2024/11/11/us/politics/stephen-miller-trump.html
+
 **Scoop City: Risers and fallers after Week 10**\
 `A quick look at the risers (Cardinals, Lions, Steelers), fallers (Jets, Cowboys, Bears) and just how close it's been for Kansas City.`\
 https://nytimes.com/athletic/5915333/2024/11/11/nfl-week-10-trending-up-down-chiefs-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5902241/2024/11/11/seattle-kraken-samantha-holloway
 **The Trump Insiders Who Have Outsize Influence as He Chooses His Cabinet**\
 `Aides like Susie Wiles and advisers like Elon Musk are weighing in as the president-elect shapes his new administration.`\
 https://nytimes.com/2024/11/11/us/politics/trump-administration-insiders.html
-
-**Cowboys Today: 4 consecutive losses and things are not pretty in Dallas**\
-`The Cowboys missed opportunities in the first half and things were all downhill from there against the Eagles.`\
-https://nytimes.com/athletic/5914217/2024/11/11/cowboys-today-losing-streak-quarterbacks/
 
