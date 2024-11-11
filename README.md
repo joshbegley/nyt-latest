@@ -1,3 +1,7 @@
+**'I don't need the lights on me': Casper Ruud steps out of the shadows in Turin**\
+`The Norwegian's low-key demeanor and thoughtfulness sometimes allow his tennis talents to go under the radar.`\
+https://nytimes.com/athletic/5908812/2024/11/11/casper-ruud-tennis-atp-tour-finals/
+
 **Fofana withdrawn from France squad with knee issue**\
 `Chelsea defender Wesley Fofana has been withdrawn from France duty for their upcoming Nations League games against Israel and Italy.`\
 https://nytimes.com/athletic/5914714/2024/11/11/wesley-fofana-injury-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5914253/2024/11/11/joey-logano-nascar-champion-play
 **Klay returns to the Bay: The moment that made Thompson an all-time Warriors legend**\
 `As Klay Thompson returns to San Francisco as a member of the Mavericks, leftover curiosity remains about how it ever got to this point.`\
 https://nytimes.com/athletic/5910332/2024/11/11/klay-thompson-bay-area-return-tribute/
-
-**Trump Offers Elise Stefanik Role as U.N. Ambassador**\
-`In one of his first cabinet-level personnel decisions, the president-elect has chosen the Republican member of Congress from New York to represent the United States at the United Nations.`\
-https://nytimes.com/2024/11/11/us/politics/trump-stefanik-un-ambassador.html
 
