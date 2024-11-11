@@ -1,3 +1,7 @@
+**Analysing Lewandowski’s offside goal against Real Sociedad - 'It's clear what I saw'**\
+`Barca lost 1-0 to Real Sociedad, but all the focus has been on a controversial decision to rule out an effort from Lewandowski`\
+https://nytimes.com/athletic/5915500/2024/11/11/robert-lewandowski-barcelona-real-sociedad/
+
 **California Counts Methodically as House Control Hangs in the Balance**\
 `Ten of the 18 races that will determine which party controls the House of Representatives are in California. No state takes longer to tally votes.`\
 https://nytimes.com/2024/11/11/us/california-ballot-count-house-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915215/2024/11/11/college-basketball-ap-top-25-ran
 **Review: A Superficial Take on Migration as Movement**\
 `At the Brooklyn Academy of Music, the highlight of Dana Gingras’s “Frontera” may well be the lighting design.`\
 https://nytimes.com/2024/11/11/arts/dance/dana-gingras-frontera.html
-
-**Blue Jackets Monday Gathering: Adding Dante Fabbro will have interesting ripple effect**\
-`The Blue Jackets claimed Fabbro off waivers from the Predators on Sunday. The ripple effect of the defenseman's acquisition bears watching.`\
-https://nytimes.com/athletic/5914578/2024/11/11/blue-jackets-dante-fabbro-nhl/
 
