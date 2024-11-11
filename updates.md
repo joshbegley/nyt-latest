@@ -1,3 +1,7 @@
+**California Counts Methodically as House Control Hangs in the Balance**\
+`Ten of the 18 races that will determine which party controls the House of Representatives are in California. No state takes longer to tally votes.`\
+https://nytimes.com/2024/11/11/us/california-ballot-count-house-election.html
+
 **Broncos' Sean Payton accepts blame for FG gaffe in loss: 'It's not on the player'**\
 `The Broncos believed they had their field-goal protection in working order, but Kansas City's game-saving block proved otherwise.`\
 https://nytimes.com/athletic/5914385/2024/11/11/broncos-sean-payton-blocked-field-goal-chiefs/
