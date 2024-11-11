@@ -1,3 +1,7 @@
+**The Trump Insiders Who Have Outsize Influence as He Chooses His Cabinet**\
+`Aides like Susie Wiles and advisers like Elon Musk are weighing in as the president-elect shapes his new administration.`\
+https://nytimes.com/2024/11/11/us/politics/trump-administration-insiders.html
+
 **Cowboys Today: 4 consecutive losses and things are not pretty in Dallas**\
 `The Cowboys missed opportunities in the first half and things were all downhill from there against the Eagles.`\
 https://nytimes.com/athletic/5914217/2024/11/11/cowboys-today-losing-streak-quarterbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/arts/dance/judith-jamison-appraisal.html
 **Bears' Matt Eberflus evaluating offensive play caller change**\
 `Bears rookie quarterback Caleb Williams hasn't thrown a touchdown pass since Week 6. Chicago hasn't scored a touchdown since Week 8.`\
 https://nytimes.com/athletic/5914963/2024/11/11/bears-coaching-staff-changes-offense-play-caller/
-
-**PGMOL suspend referee Coote after alleged comments on Klopp, Liverpool**\
-`Premier League official David Coote has been suspended with immediate effect after footage appearing to show him voicing foul-mouthed criticism of former Liverpool manager Jurgen Klopp appeared on social media.`\
-https://nytimes.com/athletic/5914912/2024/11/11/david-coote-video-liverpool-jurgen-klopp/
 
