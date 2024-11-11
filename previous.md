@@ -1,3 +1,7 @@
+**Self-inflicted wounds plague Pistons' otherwise promising start to season**\
+`Five of Detroit's seven losses have been by eight points or fewer, being outscored by a total of 22 points in those fourth quarters.`\
+https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
+
 **'I don't need the lights on me': Casper Ruud steps out of the shadows in Turin**\
 `The Norwegian's low-key demeanor and thoughtfulness sometimes allow his tennis talents to go under the radar.`\
 https://nytimes.com/athletic/5908812/2024/11/11/casper-ruud-tennis-atp-tour-finals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5914798/2024/11/11/submit-questions-for-richard-dei
 **Joey Logano is a three-time NASCAR champion. He doesn't care about the rest**\
 `Joey Logano knows the playoff-system critics will have their say after he won his third Cup Series title. He just doesn't care.`\
 https://nytimes.com/athletic/5914253/2024/11/11/joey-logano-nascar-champion-playoffs-criticism/
-
-**Klay returns to the Bay: The moment that made Thompson an all-time Warriors legend**\
-`As Klay Thompson returns to San Francisco as a member of the Mavericks, leftover curiosity remains about how it ever got to this point.`\
-https://nytimes.com/athletic/5910332/2024/11/11/klay-thompson-bay-area-return-tribute/
 

@@ -1,3 +1,7 @@
+**Self-inflicted wounds plague Pistons' otherwise promising start to season**\
+`Five of Detroit's seven losses have been by eight points or fewer, being outscored by a total of 22 points in those fourth quarters.`\
+https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
+
 **'I don't need the lights on me': Casper Ruud steps out of the shadows in Turin**\
 `The Norwegian's low-key demeanor and thoughtfulness sometimes allow his tennis talents to go under the radar.`\
 https://nytimes.com/athletic/5908812/2024/11/11/casper-ruud-tennis-atp-tour-finals/
