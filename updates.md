@@ -1,3 +1,7 @@
+**After a prayer and a prediction, Leo Chenal rescues Chiefs with walk-off blocked field goal**\
+`Patrick Mahomes wasn't at his best in the fourth quarter, but the Chiefs found a way to stay unbeaten against a frisky division opponent.`\
+https://nytimes.com/athletic/5913311/2024/11/10/chiefs-blocked-field-goal-leo-chenal/
+
 **Jaylen Brown calls Giannis Antetokounmpo a 'child' after high-five fake-out**\
 `When told of Brown's comments, Antetokounmpo was taken aback. "Oh, that's what he said? Dang."`\
 https://nytimes.com/athletic/5913499/2024/11/10/giannis-jaylen-brown-trolling-celtics-bucks/
