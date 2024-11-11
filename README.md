@@ -1,3 +1,11 @@
+**Biden Honors Veterans in Ceremony at Arlington Cemetery**\
+`“This is the last time I will stand here at Arlington as commander in chief,” President Biden said in remembering service members who have served the country.`\
+https://nytimes.com/2024/11/11/us/politics/biden-veterans-day.html
+
+**Indiana Man Convicted of Killing 2 Girls After Video Found on Victim’s Phone**\
+`A jury on Monday found Richard Allen guilty of killing Liberty German and Abigail William, who were on a hike in 2017. Video showed a man following the girls.`\
+https://nytimes.com/2024/11/11/us/delphi-murders-richard-allen-trial.html
+
 **An important week for the narrative of this Georgia season**\
 `Beat Tennessee, and all is OK. Lose, and the narrative on this Georgia season is all but set, not in a good way. `\
 https://nytimes.com/athletic/5915783/2024/11/11/georgia-tennessee-college-football-playoff-implications/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915433/2024/11/11/david-coote-referee-liverpool-pr
 **Why Was There a Broad Drop-Off in Democratic Turnout in 2024?**\
 `Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
 https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
-
-**Analysing Lewandowski’s offside goal against Real Sociedad: 'It's clear what I saw'**\
-`Barcelona lost 1-0 in San Sebastian on Sunday but all the focus has been on a controversial decision to rule out an effort by Lewandowski`\
-https://nytimes.com/athletic/5915500/2024/11/11/robert-lewandowski-barcelona-real-sociedad/
-
-**California Counts Methodically as House Control Hangs in the Balance**\
-`Ten of the 18 races that will determine which party controls the House of Representatives are in California. No state takes longer to tally votes.`\
-https://nytimes.com/2024/11/11/us/california-ballot-count-house-election.html
 
