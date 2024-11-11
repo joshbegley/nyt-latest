@@ -1,3 +1,15 @@
+**Sporting appoint Joao Pereira to replace Amorim after Man Utd move**\
+`Sporting Lisbon have appointed Joao Pereira to replace Ruben Amorim as the club&#8217;s head coach.`\
+https://nytimes.com/athletic/5882220/2024/11/11/ruben-amorim-sporting-replacement/
+
+**Purdue is having a banner year for bad football. But fans can't stay away**\
+`Fans "want to support Walters and what he's trying to build," but Purdue is looking down at a dubious winless Big Ten schedule. `\
+https://nytimes.com/athletic/5901313/2024/11/11/purdue-football-big-ten-ryan-walters/
+
+**How Juan Soto would fit 9 potential suitors, from the Yankees to, yes, the Nationals**\
+`Many, many teams would want Soto. But how would he fit their rosters and budgets in the short and long term?`\
+https://nytimes.com/athletic/5912814/2024/11/11/juan-soto-nine-free-agency-fits/
+
 **Against Panic: A Survival Kit**\
 `There is no cure for profound grief, but beauty and love and tenderness can walk alongside it and ease the solitude.`\
 https://nytimes.com/2024/11/11/opinion/against-panic-a-survival-kit.html

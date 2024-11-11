@@ -1,3 +1,15 @@
+**Sporting appoint Joao Pereira to replace Amorim after Man Utd move**\
+`Sporting Lisbon have appointed Joao Pereira to replace Ruben Amorim as the club&#8217;s head coach.`\
+https://nytimes.com/athletic/5882220/2024/11/11/ruben-amorim-sporting-replacement/
+
+**Purdue is having a banner year for bad football. But fans can't stay away**\
+`Fans "want to support Walters and what he's trying to build," but Purdue is looking down at a dubious winless Big Ten schedule. `\
+https://nytimes.com/athletic/5901313/2024/11/11/purdue-football-big-ten-ryan-walters/
+
+**How Juan Soto would fit 9 potential suitors, from the Yankees to, yes, the Nationals**\
+`Many, many teams would want Soto. But how would he fit their rosters and budgets in the short and long term?`\
+https://nytimes.com/athletic/5912814/2024/11/11/juan-soto-nine-free-agency-fits/
+
 **Against Panic: A Survival Kit**\
 `There is no cure for profound grief, but beauty and love and tenderness can walk alongside it and ease the solitude.`\
 https://nytimes.com/2024/11/11/opinion/against-panic-a-survival-kit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/11/opinion/kamala-harris-young-voters.html
 **The Trump Era Never Really Ended**\
 `Should we even call it a comeback?`\
 https://nytimes.com/2024/11/11/opinion/trump-harris-republicans-democrats.html
-
-**Do You Know What It Takes to Close on a New Home? Take Our Quiz.**\
-`The final step of a real estate purchase can be the most complicated.`\
-https://nytimes.com/interactive/2024/11/11/realestate/Real-Estate-Closing-Quiz.html
-
-**As Trump Threatens a Wider Trade War, the U.S. Confronts a Changed China**\
-`The Chinese economy is more dependent on exports, making tariffs more potent, yet it’s less reliant on American markets and increasingly bent on self-sufficiency.`\
-https://nytimes.com/2024/11/11/business/trump-china-trade-war.html
-
-**Army Private Is Identified Almost 80 Years After Death in World War II**\
-`Jeremiah P. Mahoney had been missing in action since 1945. His remains will be interred in Arlington National Cemetery in 2025.`\
-https://nytimes.com/2024/11/11/us/army-private-identified-dna-wwii.html
 
