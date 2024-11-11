@@ -1,3 +1,7 @@
+**What happened to Carson Beck? Coaches and scouts on Georgia’s “struggling” QB**\
+`Carson Beck seemed an assured NFL Draft first-rounder entering the season. Can he change the narrative?`\
+https://nytimes.com/athletic/5912743/2024/11/11/carson-beck-georgia-nfl-draft-status/
+
 **Kamara, Ramsey set for period out with hamstring injuries**\
 `Boubacar Kamara and Jacob Ramsey are set to be out for the next couple of weeks with hamstring injuries.`\
 https://nytimes.com/athletic/5914345/2024/11/11/aston-villa-injury-kamara-ramsey-update/
