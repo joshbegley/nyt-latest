@@ -1,3 +1,15 @@
+**Steelers' new-look offense proves it can finally carry the defense when needed**\
+`For the first time in years, the Steelers are showing they can win because of the offense, not in spite of it.`\
+https://nytimes.com/athletic/5913348/2024/11/10/steelers-russell-wilson-mike-williams-commanders/
+
+**Josh Allen's brilliance overshadows two INTs, run defense shows signs of hope: Bills observations**\
+`Plus, how the new defensive tackles fit in.`\
+https://nytimes.com/athletic/5913319/2024/11/10/bills-josh-allen-run-defense-observations-colts/
+
+**Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
+`Matt Eberflus likely will make it to season's end, but after the Bears' freefall continued with a lopsided loss to Pats, changes are needed.`\
+https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-eberflus-coaches-under-fire/
+
 **Thunder's Chet Holmgren injures hip after hard fall vs. Warriors**\
 `The 22-year-old Thunder big man could not put any weight on his right leg as he left the floor. `\
 https://nytimes.com/athletic/5913365/2024/11/10/chet-holmgren-injury-thunder-warriors/
