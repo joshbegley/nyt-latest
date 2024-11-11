@@ -1,3 +1,11 @@
+**The Bounce: Is Anthony Edwards the next Steph Curry?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5914506/2024/11/11/anthony-edwards-timberwolves-nba-cup-stephen-curry-nba-the-bounce/
+
+**Iran Debates Whether It Could Make a Deal With Trump**\
+`Some in Iran’s new, more moderate government think the result of the presidential election provides an opportunity to make a lasting deal with the United States.`\
+https://nytimes.com/2024/11/11/world/middleeast/iran-trump-election-deal.html
+
 **Self-inflicted wounds plague Pistons' otherwise promising start to season**\
 `Five of Detroit's seven losses have been by eight points or fewer, being outscored by a total of 22 points in those fourth quarters.`\
 https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/11/world/middleeast/saudi-riyadh-iran-trump.html
 **Fantasy football Week 10 recap: 5 sneaky smart QBs to start in the stretch run**\
 `Some eye-catching stats show that these five signal callers deserve to be in more starting lineups.`\
 https://nytimes.com/athletic/5914720/2024/11/11/fantasy-football-week-10-recap-5-sneaky-smart-qbs-to-start-in-the-stretch-run/
-
-**Submit questions for Richard Deitsch's latest sports media mailbag**\
-`Have questions about anything in sports media? Leave them here and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
-https://nytimes.com/athletic/5914798/2024/11/11/submit-questions-for-richard-deitschs-latest-sports-media-mailbag/
-
-**Joey Logano is a three-time NASCAR champion. He doesn't care about the rest**\
-`Joey Logano knows the playoff-system critics will have their say after he won his third Cup Series title. He just doesn't care.`\
-https://nytimes.com/athletic/5914253/2024/11/11/joey-logano-nascar-champion-playoffs-criticism/
 

@@ -1,3 +1,11 @@
+**The Bounce: Is Anthony Edwards the next Steph Curry?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5914506/2024/11/11/anthony-edwards-timberwolves-nba-cup-stephen-curry-nba-the-bounce/
+
+**Iran Debates Whether It Could Make a Deal With Trump**\
+`Some in Iran’s new, more moderate government think the result of the presidential election provides an opportunity to make a lasting deal with the United States.`\
+https://nytimes.com/2024/11/11/world/middleeast/iran-trump-election-deal.html
+
 **Self-inflicted wounds plague Pistons' otherwise promising start to season**\
 `Five of Detroit's seven losses have been by eight points or fewer, being outscored by a total of 22 points in those fourth quarters.`\
 https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
