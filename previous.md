@@ -1,3 +1,7 @@
+**Does Joe Flacco still give Colts 'best chance to win'? Hard to make case after another loss**\
+`In two weeks since replacing Anthony Richardson as the starter, Flacco has committed six turnovers and been sacked seven times. `\
+https://nytimes.com/athletic/5913427/2024/11/10/colts-joe-flacco-anthony-richardson-shane-steichen/
+
 **After a prayer and a prediction, Leo Chenal rescues Chiefs with walk-off blocked field goal**\
 `Patrick Mahomes wasn't at his best in the fourth quarter, but the Chiefs found a way to stay unbeaten against a frisky division opponent.`\
 https://nytimes.com/athletic/5913311/2024/11/10/chiefs-blocked-field-goal-leo-chenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913112/2024/11/10/bears-loss-blame-game-matt-eberf
 **Military Judge Postpones Guilty Plea Proceedings in Sept. 11 Case**\
 `The judge asked defense and prosecution lawyers to settle on a date for the accused mastermind of the terrorist attacks to plead guilty.`\
 https://nytimes.com/2024/11/10/us/politics/sept-11-plea-deal-guantanamo.html
-
-**49ers, Jake Moody deliver wobbly win but team is still trying to find its dominant self**\
-`Moody said his game-winning kick was from the same spot as his third miss, which sparked a sideline confrontation with Deebo Samuel. `\
-https://nytimes.com/athletic/5913230/2024/11/10/49ers-jake-moody-win-buccaneers-wobbly/
 

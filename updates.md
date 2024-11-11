@@ -1,3 +1,7 @@
+**Does Joe Flacco still give Colts 'best chance to win'? Hard to make case after another loss**\
+`In two weeks since replacing Anthony Richardson as the starter, Flacco has committed six turnovers and been sacked seven times. `\
+https://nytimes.com/athletic/5913427/2024/11/10/colts-joe-flacco-anthony-richardson-shane-steichen/
+
 **After a prayer and a prediction, Leo Chenal rescues Chiefs with walk-off blocked field goal**\
 `Patrick Mahomes wasn't at his best in the fourth quarter, but the Chiefs found a way to stay unbeaten against a frisky division opponent.`\
 https://nytimes.com/athletic/5913311/2024/11/10/chiefs-blocked-field-goal-leo-chenal/
