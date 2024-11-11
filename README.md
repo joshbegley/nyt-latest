@@ -1,3 +1,7 @@
+**With Chiefs clash on horizon, Bills gut out win over Colts with 'long, grueling drive'**\
+`The defense provided much of the highlight reel material against a struggling Colts team.`\
+https://nytimes.com/athletic/5913281/2024/11/10/bills-win-colts-grueling-drive/
+
 **Does Joe Flacco still give Colts 'best chance to win'? Hard to make case after another loss**\
 `In two weeks since replacing Anthony Richardson as the starter, Flacco has committed six turnovers and been sacked seven times. `\
 https://nytimes.com/athletic/5913427/2024/11/10/colts-joe-flacco-anthony-richardson-shane-steichen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-eberflus-coa
 **Who's to blame on the Bears? Accountability for such a bad loss goes through whole franchise**\
 `This disastrous loss falls on everyone, from George McCaskey to Caleb Williams, and the process that led to Shane Waldron deserves scrutiny.`\
 https://nytimes.com/athletic/5913112/2024/11/10/bears-loss-blame-game-matt-eberflus-ryan-poles/
-
-**Military Judge Postpones Guilty Plea Proceedings in Sept. 11 Case**\
-`The judge asked defense and prosecution lawyers to settle on a date for the accused mastermind of the terrorist attacks to plead guilty.`\
-https://nytimes.com/2024/11/10/us/politics/sept-11-plea-deal-guantanamo.html
 
