@@ -1,3 +1,7 @@
+**Democrats Who Won**\
+`We’re covering this year’s successful Democratic campaigns.`\
+https://nytimes.com/2024/11/11/briefing/democrats-who-won.html
+
 **The Pulse: Week 10's most baffling results**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5913481/2024/11/11/lions-texans-jake-bates-the-pulse/
