@@ -1,3 +1,7 @@
+**Ohio State film study: Breaking down how the Buckeyes shut out Purdue**\
+`It was the Buckeyes' second shutout of the season and first against a Big Ten opponent since a 56-0 win over Rutgers in 2017.`\
+https://nytimes.com/athletic/5914884/2024/11/11/ohio-state-purdue-defense-shutout/
+
 **Stephen Miller Expected to Be Named a Trump Deputy Chief of Staff**\
 `The adviser and speechwriter, who has been with President-elect Donald J. Trump since his first term in 2016, is anticipated to have a vast portfolio and influence.`\
 https://nytimes.com/2024/11/11/us/politics/stephen-miller-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5914726/2024/11/11/nascar-playoffs-system-joey-loga
 **Kraken co-owner Samantha Holloway on building a team from the ground up, culture and more**\
 `With the Kraken, Holloway has been all in on learning the unique lessons of the sports world with hopes to expand ownership in the future.`\
 https://nytimes.com/athletic/5902241/2024/11/11/seattle-kraken-samantha-holloway-team-culture/
-
-**The Trump Insiders Who Have Outsize Influence as He Chooses His Cabinet**\
-`Aides like Susie Wiles and advisers like Elon Musk are weighing in as the president-elect shapes his new administration.`\
-https://nytimes.com/2024/11/11/us/politics/trump-administration-insiders.html
 
