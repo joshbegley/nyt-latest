@@ -1,3 +1,7 @@
+**Barca briefing: A controversial Lewandowski offside and missing Yamal on a night to forget**\
+`A run of seven wins in a row came to an end for Hansi Flick's side in frustrating circumstances against Real Sociedad`\
+https://nytimes.com/athletic/5913721/2024/11/11/real-sociedad-barcelona-lewandowski-yamal/
+
 **Mattel Mistakenly Lists Porn Site on Packaging for ‘Wicked’ Dolls**\
 `The site has a similar address to one that promotes a film adaptation of the hit musical. The toymaker apologized for the “unfortunate error.”`\
 https://nytimes.com/2024/11/11/movies/mattel-wicked-porn-site-mistake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912898/2024/11/11/lions-texans-score-result-takeaw
 **Why Everton need better performances before stadium move**\
 `Turgid performances from Everton are a distinct possibility in the short term, but the future will need to be brighter and more vibrant`\
 https://nytimes.com/athletic/5910628/2024/11/11/everton-west-ham-recap/
-
-**A lengthy injury list is not the only reason Crystal Palace's failings**\
-`An inability to learn from previous situations is Palace's ultimate failing as they continue to struggle in the 2024-25 Premier League`\
-https://nytimes.com/athletic/5903519/2024/11/11/palace-injuries-fulham-recap/
 

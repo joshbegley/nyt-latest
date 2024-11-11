@@ -1,3 +1,7 @@
+**Barca briefing: A controversial Lewandowski offside and missing Yamal on a night to forget**\
+`A run of seven wins in a row came to an end for Hansi Flick's side in frustrating circumstances against Real Sociedad`\
+https://nytimes.com/athletic/5913721/2024/11/11/real-sociedad-barcelona-lewandowski-yamal/
+
 **Mattel Mistakenly Lists Porn Site on Packaging for ‘Wicked’ Dolls**\
 `The site has a similar address to one that promotes a film adaptation of the hit musical. The toymaker apologized for the “unfortunate error.”`\
 https://nytimes.com/2024/11/11/movies/mattel-wicked-porn-site-mistake.html
