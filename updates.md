@@ -1,3 +1,11 @@
+**Lakers' Anthony Davis exits vs. Raptors with eye injury**\
+`Davis suffered a left corneal abrasion in the same eye twice last season.`\
+https://nytimes.com/athletic/5914013/2024/11/11/anthony-davis-eye-injury-lakers-raptors/
+
+**Monday Briefing**\
+`What Trump means for the Middle East.`\
+https://nytimes.com/2024/11/11/briefing/middle-east-trump-amsterdam.html
+
 **How City's drop in intensity and Hurzeler's clever Brighton tweaks led to comeback**\
 `Champions City fell to a fourth defeat in a row on Saturday against Brighton - here's what our tactical analyst made of it`\
 https://nytimes.com/athletic/5911360/2024/11/11/manchester-city-brighton-analysis/

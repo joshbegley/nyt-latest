@@ -1,3 +1,11 @@
+**Lakers' Anthony Davis exits vs. Raptors with eye injury**\
+`Davis suffered a left corneal abrasion in the same eye twice last season.`\
+https://nytimes.com/athletic/5914013/2024/11/11/anthony-davis-eye-injury-lakers-raptors/
+
+**Monday Briefing**\
+`What Trump means for the Middle East.`\
+https://nytimes.com/2024/11/11/briefing/middle-east-trump-amsterdam.html
+
 **How City's drop in intensity and Hurzeler's clever Brighton tweaks led to comeback**\
 `Champions City fell to a fourth defeat in a row on Saturday against Brighton - here's what our tactical analyst made of it`\
 https://nytimes.com/athletic/5911360/2024/11/11/manchester-city-brighton-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5913799/2024/11/10/blue-jackets-moral-victories-ana
 **'Frustrated' Jerry Jones on Cowboys' struggles: 'I had a lot to do with what we're seeing'**\
 `AT&T Stadium has curtains, but the Cowboys' owner isn't interested in using them despite CeeDee Lamb losing sight of an end zone pass.`\
 https://nytimes.com/athletic/5913827/2024/11/10/cowboys-jerry-jones-sun-stadium-mike-mccarthy/
-
-**There's no rule against having 2 superstars, and Matt Boldy is starting to play like one**\
-`Kirill Kaprizov is the biggest name in St. Paul. But Boldy just keeps making things happen for the Wild.`\
-https://nytimes.com/athletic/5913886/2024/11/10/wild-matt-boldy-superstar-blackhawks/
-
-**Thompson: Christian McCaffrey is back to remind the 49ers of the possibilities that remain**\
-`On Sunday, Christian McCaffrey made his 2024 debut for the 49ers, and it showed what this team might still be able to accomplish.`\
-https://nytimes.com/athletic/5913233/2024/11/10/christian-mccaffrey-is-back-to-remind-the-49ers-of-the-possibilities-that-still-remain/
 
