@@ -1,5 +1,9 @@
+**Blackhawks pull out much-needed win at home against Wild: Observations**\
+`CHICAGO — The sample size is large enough now to make a declaration about the Chicago Blackhawks this season.`\
+https://nytimes.com/athletic/5913532/2024/11/10/blackhawks-kurashev-mrazek-wild/
+
 **After blowout loss in Arizona, Jets are out of time and Aaron Rodgers is out of answers**\
-`A season that started with Super Bowl hopes all but ended in a loss to the Cardinals.`\
+`A season that started with Super Bowl hopes all but ended in Sunday's loss to the Cardinals.`\
 https://nytimes.com/athletic/5913675/2024/11/10/jets-loss-cardinals-playoff-hopes/
 
 **The Eagles are 'building that bully' after an overdue Cowboys beatdown in Dallas**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913400/2024/11/10/sam-darnold-turnovers-vikings-ja
 **Cowboys won't fire Mike McCarthy midseason: Jerry Jones**\
 `"I haven't had good experience changing coaches in the middle of the season," Jerry Jones said after Sunday's blowout loss to the Eagles.`\
 https://nytimes.com/athletic/5913377/2024/11/10/jerry-jones-cowboys-coaching-change-mike-mccarthy/
-
-**With Chiefs clash on horizon, Bills gut out win over Colts with 'long, grueling drive'**\
-`The defense provided much of the highlight reel material against a struggling Colts team.`\
-https://nytimes.com/athletic/5913281/2024/11/10/bills-win-colts-grueling-drive/
 

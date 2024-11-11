@@ -1,3 +1,11 @@
+**Blackhawks pull out much-needed win at home against Wild: Observations**\
+`CHICAGO — The sample size is large enough now to make a declaration about the Chicago Blackhawks this season.`\
+https://nytimes.com/athletic/5913532/2024/11/10/blackhawks-kurashev-mrazek-wild/
+
+**After blowout loss in Arizona, Jets are out of time and Aaron Rodgers is out of answers**\
+`A season that started with Super Bowl hopes all but ended in Sunday's loss to the Cardinals.`\
+https://nytimes.com/athletic/5913675/2024/11/10/jets-loss-cardinals-playoff-hopes/
+
 **After blowout loss in Arizona, Jets are out of time and Aaron Rodgers is out of answers**\
 `A season that started with Super Bowl hopes all but ended in a loss to the Cardinals.`\
 https://nytimes.com/athletic/5913675/2024/11/10/jets-loss-cardinals-playoff-hopes/
