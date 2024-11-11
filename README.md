@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5911939/2024/11/10/eagles-cowboys-score-takeaways-r
 
 **Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
 `Matt Eberflus likely will make it to season's end, but after the Bears' freefall continued with a lopsided loss to Pats, changes are needed.`\
-https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-everflus-coaches-under-fire/
+https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-eberflus-coaches-under-fire/
 
 **Who's to blame on the Bears? Accountability for such a bad loss goes through whole franchise**\
 `This disastrous loss falls on everyone, from George McCaskey to Caleb Williams, and the process that led to Shane Waldron deserves scrutiny.`\
