@@ -1,40 +1,40 @@
-**Gotham FC's home playoff win exemplifies its 'swell of momentum' on and off the field**\
-`A record crowd saw Gotham beat Portland Thorns in its first home playoff game. It's a sign of the team's continued growth`\
-https://nytimes.com/athletic/5913881/2024/11/11/gotham-fc-home-playoff-win-progress/
+**Are the Cardinals the new Lions? Jonathan Gannon's path starting to resemble Dan Campbell's**\
+`Gannon and Campbell each got off to awful starts with rebuilding franchises. Now, like the Lions, the Cardinals might have found something.`\
+https://nytimes.com/athletic/5914261/2024/11/11/cardinals-lions-jonathan-gannon-dan-campbell/
 
-**What happened to Carson Beck? Coaches and scouts on Georgia’s “struggling” QB**\
-`Carson Beck seemed an assured NFL Draft first-rounder entering the season. Can he change the narrative?`\
-https://nytimes.com/athletic/5912743/2024/11/11/carson-beck-georgia-nfl-draft-status/
+**Is Joe Burrow clutch? The answer is complicated (and might point to a broader issue)**\
+`The Bengals are 1-10 with Burrow when trailing by one score and taking over with 1-8 minutes left, but that doesn't tell the whole story.`\
+https://nytimes.com/athletic/5914230/2024/11/11/joe-burrow-bengals-ravens-zac-taylor/
 
-**Kamara, Ramsey set for period out with hamstring injuries**\
-`Boubacar Kamara and Jacob Ramsey are set to be out for the next couple of weeks with hamstring injuries.`\
-https://nytimes.com/athletic/5914345/2024/11/11/aston-villa-injury-kamara-ramsey-update/
+**Is a Chiefs loss even possible? How they compare to the '72 Dolphins and '07 Pats**\
+`The Chiefs are somehow 9-0 after yet another white-knuckle victory, something that history's two undefeated teams rarely needed.`\
+https://nytimes.com/athletic/5914246/2024/11/11/chiefs-undefeated-win-streak-broncos/
 
-**Sporting appoint Joao Pereira to replace Amorim after Man Utd move**\
-`Sporting Lisbon have appointed Joao Pereira to replace Ruben Amorim as the club&#8217;s head coach.`\
-https://nytimes.com/athletic/5882220/2024/11/11/ruben-amorim-sporting-replacement/
+**The sky is falling on the Bears, but should we be shocked? Sando’s Pick Six**\
+`Preseason Bears optimism feels like ages ago after another debacle for Caleb Williams and the offense. Let's sort through the wreckage.`\
+https://nytimes.com/athletic/5910313/2024/11/11/bears-caleb-williams-shane-waldron-matt-eberflus/
 
-**Purdue is having a banner year for bad football. But fans can't stay away**\
-`Fans "want to support Walters and what he's trying to build," but Purdue is looking down at a dubious winless Big Ten schedule. `\
-https://nytimes.com/athletic/5901313/2024/11/11/purdue-football-big-ten-ryan-walters/
+**What I'm hearing about Penguins' Erik Karlsson, Tristan Jarry situations**\
+`Internally, the Penguins are concerned with Erik Karlsson's defensive work. Here's what else I've learned in recent talks with sources.`\
+https://nytimes.com/athletic/5910124/2024/11/11/penguins-erik-karlsson-tristan-jarry/
 
-**How Juan Soto would fit 9 potential suitors, from the Yankees to, yes, the Nationals**\
-`Many, many teams would want Soto. But how would he fit their rosters and budgets in the short and long term?`\
-https://nytimes.com/athletic/5912814/2024/11/11/juan-soto-nine-free-agency-fits/
+**‘One of the more talented players on the planet’: Jayson Tatum checks in at No. 91 on ‘The Basketball 100’**\
+`Whether experiencing great success or significant failure, Tatum has scaled the NBA hierarchy through diligence and hard work.`\
+https://nytimes.com/athletic/5903307/2024/11/11/jayson-tatum-the-basketball-100-book/
 
-**Against Panic: A Survival Kit**\
-`There is no cure for profound grief, but beauty and love and tenderness can walk alongside it and ease the solitude.`\
-https://nytimes.com/2024/11/11/opinion/against-panic-a-survival-kit.html
+**Democrats Search for Answers**\
+`After their election loss, the party’s leaders are pointing fingers and wrestling with what it stands for.`\
+https://nytimes.com/2024/11/11/podcasts/the-daily/democrats-blame-answers.html
 
-**Trump and Musk: The Bromance That Cannot Last**\
-`Now that he has been elected, Donald Trump will probably not honor the promises he made to Elon Musk.`\
-https://nytimes.com/2024/11/11/opinion/elon-musk-trump-election.html
+**Trump Transition Stalls Over Ethics Code, and a New Russian Offensive**\
+`Plus, Saudi Arabia’s “sportswashing” controversy.`\
+https://nytimes.com/2024/11/11/podcasts/trump-border-czar-russia-north-korea.html
 
-**$865,000 Homes in California**\
-`A Queen Anne Revival-style house in Oakland, a manufactured home from 1962 in Newport Beach, and a one-bedroom condo in the Hollywood Hills.`\
-https://nytimes.com/2024/11/11/realestate/865000-homes-in-california.html
+**Brothers up front, Tyler Linderbaum and Patrick Mekari, are Ravens' 'Tom and Jerry'**\
+`The two O-linemen who have taken dramatically different paths to the NFL are good friends who engage in constant banter on myriad topics. `\
+https://nytimes.com/athletic/5910360/2024/11/11/tyler-linderbaum-patrick-mekari-ravens-offensive-line/
 
-**Trump’s Civil Service Plan: ‘A Train Wreck You Can See Coming’**\
-`It’s very possible that new Trump officials will simply move in with their desk décor on Inauguration Day and not worry about procedure.`\
-https://nytimes.com/live/2024/11/07/opinion/thepoint/trump-civil-service-employees
+**The Connections Companion No. 520**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 12, 2024.`\
+https://nytimes.com/2024/11/11/crosswords/connections-companion-520.html
 
