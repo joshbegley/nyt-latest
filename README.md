@@ -1,3 +1,15 @@
+**Wander Franco detained in Dominican Republic after fight**\
+`Authorities are investigating the incident, said a spokesperson for the public ministry.`\
+https://nytimes.com/athletic/5915194/2024/11/11/wander-franco-arrest-dominican-republic/
+
+**Greenberg: For Bears and Matt Eberflus' coaching staff, the end looks and sounds near**\
+`There have been no real highs to the Eberflus “era.” We’re at the stage where everything he says is just kindling for the fire. Or firing.`\
+https://nytimes.com/athletic/5915956/2024/11/11/chicago-bears-matt-eberflus-coaching-staff/
+
+**Trump Chooses Lee Zeldin to Run E.P.A.**\
+`Zeldin, a former congressman from New York, is a strong supporter of Mr. Trump and voted against certifying the 2020 election.`\
+https://nytimes.com/2024/11/11/climate/trump-chooses-lee-zeldin-to-run-epa.html
+
 **Tuesday Briefing: Trump Starts Building His Cabinet**\
 `Plus, West African fine dining.`\
 https://nytimes.com/2024/11/11/briefing/trump-administration-climate-amsterdam.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5915783/2024/11/11/georgia-tennessee-college-footba
 **Bishop Calls on Anglican Leader to Quit Over Handling of Abuse Scandal**\
 `An independent report last week said that Justin Welby, the archbishop of Canterbury, took insufficient action after learning of alleged abuse decades ago at Christian summer camps.`\
 https://nytimes.com/2024/11/11/world/europe/archbishop-canterbury-abuse-scandal.html
-
-**MLS playoffs without Lionel Messi could be a welcome reality check**\
-`The Argentine won't be in MLS forever and his shock early exit from the playoffs is an opportunity to really evaluate 'the Messi effect' `\
-https://nytimes.com/athletic/5915634/2024/11/11/lionel-messi-mls-playoffs-inter-miami/
-
-**Why Do So Many Americans Pass Up Bigger Social Security Checks?**\
-`It shouldn’t be so easy to leave benefits on the table.`\
-https://nytimes.com/2024/11/11/opinion/social-security-age.html
-
-**Max Pacioretty update: How long the Maple Leafs' winger is out and who might step in**\
-`Max Pacioretty’s absence leaves the door open for multiple players to step up.`\
-https://nytimes.com/athletic/5915716/2024/11/11/maple-leafs-max-pacioretty-injury/
 
