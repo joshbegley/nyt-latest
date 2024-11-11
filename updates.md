@@ -1,3 +1,7 @@
+**Fofana withdrawn from France squad with knee issue**\
+`Chelsea defender Wesley Fofana has been withdrawn from France duty for their upcoming Nations League games against Israel and Italy.`\
+https://nytimes.com/athletic/5914714/2024/11/11/wesley-fofana-injury-france/
+
 **'I thought we lost our pace': Bucks offense fizzles in second half against Celtics**\
 `After holding an 11-point lead at halftime, the Bucks' offense ground to a halt in the second half against an aggressive Celtics defense.`\
 https://nytimes.com/athletic/5913217/2024/11/11/bucks-giannis-antetokounmpo-celtics-2/
