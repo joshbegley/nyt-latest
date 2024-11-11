@@ -1,3 +1,11 @@
+**In loss to Steelers, Commanders reminded that the 'little things always add up'**\
+`Washington fell to 7-3 and, combined with Philadelphia hammering Dallas, dropped to second place in the NFC East ahead of Thursday night.`\
+https://nytimes.com/athletic/5913454/2024/11/10/commanders-loss-steelers-russell-wilson/
+
+**Wild settle for tired point with overtime loss in Chicago : 3 takeaways**\
+`The Wild couldn't quite keep up their winning ways in their third game in four nights, but Matt Boldy earned them a point.`\
+https://nytimes.com/athletic/5913161/2024/11/10/wild-boldy-gustavsson-overtime-chicago/
+
 **Sam Darnold's turnovers nearly doom Vikings in narrow win over Jaguars**\
 `Darnold's three interceptions stalled the offense in the red zone, but Minnesota's defense and special teams came through in a 12-7 triumph.`\
 https://nytimes.com/athletic/5913400/2024/11/10/sam-darnold-turnovers-vikings-jaguars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5913348/2024/11/10/steelers-russell-wilson-mike-wil
 **Josh Allen's brilliance overshadows 2 INTs, run defense shows signs of hope: Bills observations**\
 `Plus, how the new defensive tackles fit in.`\
 https://nytimes.com/athletic/5913319/2024/11/10/bills-josh-allen-run-defense-observations-colts/
-
-**Thunder's Chet Holmgren injures hip after hard fall vs. Warriors**\
-`The 22-year-old Thunder big man could not put any weight on his right leg as he left the floor. `\
-https://nytimes.com/athletic/5913365/2024/11/10/chet-holmgren-injury-thunder-warriors/
-
-**Jalen Hurts' 4 TDs pace Eagles in 34-6 win vs. Cowboys: Takeaways**\
-`The Eagles are rounding into form for a playoff push; the Cowboys fell to 0-4 at home and posted one of their worst offensive outings. `\
-https://nytimes.com/athletic/5911939/2024/11/10/eagles-cowboys-score-takeaways-result/
 
