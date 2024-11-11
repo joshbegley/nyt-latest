@@ -1,3 +1,7 @@
+**Warriors defeat Thunder with De'Anthony Melton at shooting guard in starting lineup**\
+`After Melton scored 19 points against OKC, Steve Kerr essentially named him starting shooting guard: "I like this lineup with Melt."`\
+https://nytimes.com/athletic/5913215/2024/11/11/deanthony-melton-warriors-win-in-okc/
+
 **Trump Names Thomas Homan ‘Border Czar’ With a Wide Portfolio**\
 `Mr. Homan, a senior immigration official in the last Trump administration, has said that workplace raids would restart under the new government.`\
 https://nytimes.com/2024/11/11/us/politics/trump-homan-immigration-border.html
