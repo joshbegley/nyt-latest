@@ -1,3 +1,7 @@
+**Kraken co-owner Samantha Holloway on building a team from the ground up, culture and more**\
+`With the Kraken, Holloway has been all in on learning the unique lessons of the sports world with hopes to expand ownership in the future.`\
+https://nytimes.com/athletic/5902241/2024/11/11/seattle-kraken-samantha-holloway-team-culture/
+
 **The Trump Insiders Who Have Outsize Influence as He Chooses His Cabinet**\
 `Aides like Susie Wiles and advisers like Elon Musk are weighing in as the president-elect shapes his new administration.`\
 https://nytimes.com/2024/11/11/us/politics/trump-administration-insiders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/opinion/trump-deportation-inflation-grocery-bills
 **The Singular Force That Was Judith Jamison**\
 `She was always a goddess of dance — even before her triumph in “Cry.” The Ailey star turned artistic director stretched like there was no tomorrow.`\
 https://nytimes.com/2024/11/11/arts/dance/judith-jamison-appraisal.html
-
-**Bears' Matt Eberflus evaluating offensive play caller change**\
-`Bears rookie quarterback Caleb Williams hasn't thrown a touchdown pass since Week 6. Chicago hasn't scored a touchdown since Week 8.`\
-https://nytimes.com/athletic/5914963/2024/11/11/bears-coaching-staff-changes-offense-play-caller/
 
