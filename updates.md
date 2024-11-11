@@ -1,3 +1,7 @@
+**Cowboys won't fire Mike McCarthy midseason: Jerry Jones**\
+`"I haven't had good experience changing coaches in the middle of the season," Jerry Jones said after Sunday's blowout loss to the Eagles.`\
+https://nytimes.com/athletic/5913377/2024/11/10/jerry-jones-cowboys-coaching-change-mike-mccarthy/
+
 **With Chiefs clash on horizon, Bills gut out win over Colts with 'long, grueling drive'**\
 `The defense provided much of the highlight reel material against a struggling Colts team.`\
 https://nytimes.com/athletic/5913281/2024/11/10/bills-win-colts-grueling-drive/
