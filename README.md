@@ -1,3 +1,7 @@
+**Fantasy football Week 10 recap: 5 sneaky smart QBs to start in the stretch run**\
+`Some eye-catching stats show that these five signal callers deserve to be in more starting lineups.`\
+https://nytimes.com/athletic/5914720/2024/11/11/fantasy-football-week-10-recap-5-sneaky-smart-qbs-to-start-in-the-stretch-run/
+
 **Submit questions for Richard Deitsch's latest sports media mailbag**\
 `Have questions about anything in sports media? Leave them here and senior writer Richard Deitsch will answer some in an upcoming mailbag.`\
 https://nytimes.com/athletic/5914798/2024/11/11/submit-questions-for-richard-deitschs-latest-sports-media-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906533/2024/11/11/nba-rewind-cavaliers-nba-cup-pre
 **San Francisco Giants free-agent profile: Willy Adames, SS**\
 `Adames is a well-rounded player, and he fits just about everything the Giants are looking for.`\
 https://nytimes.com/athletic/5909079/2024/11/11/sf-giants-willy-adames-free-agency/
-
-**Israel’s Military Announces Small Expansion of Gaza Humanitarian Zone**\
-`The move comes just before a Biden administration deadline for Israel to deliver more aid to the enclave or risk a cutoff of military supplies.`\
-https://nytimes.com/2024/11/11/world/middleeast/israel-gaza-humanitarian-zone.html
 
