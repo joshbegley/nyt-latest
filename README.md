@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/11/us/politics/louisiana-house-cleo-fields.html
 
 **Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
-`Law enforcement authorities announced that Nicholas Wayne Hamlett, 45, had been taken into custody in Columbia, S.C.`\
+`The suspect was taken into custody, ending a multistate manhunt in a case involving a suspicious emergency call, a false identity and a fake bear attack.`\
 https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
 
 **Amsterdam Police Arrest 5 More Men Over Antisemitic Attacks**\
