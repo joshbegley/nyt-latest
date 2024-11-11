@@ -1,3 +1,7 @@
+**Amorim shows magic touch at Sporting farewell - and hints at Man Utd plans**\
+`Ruben Amorim oversaw a 4-2 win — coming back from 2-0 down — in his final match as Sporting head coach`\
+https://nytimes.com/athletic/5913761/2024/11/11/ruben-amorim-manchester-united-sporting-lisbon/
+
 **Warriors defeat Thunder with De'Anthony Melton at shooting guard in starting lineup**\
 `After Melton scored 19 points against OKC, Steve Kerr essentially named him starting shooting guard: "I like this lineup with Melt."`\
 https://nytimes.com/athletic/5913215/2024/11/11/deanthony-melton-warriors-win-in-okc/
