@@ -1,3 +1,7 @@
+**Iran and Trump Are Front of Mind at Saudi Summit**\
+`Leaders from across the Arab and Muslim world were in Riyadh for a meeting officially convened to discuss the fighting in Gaza and Lebanon.`\
+https://nytimes.com/2024/11/11/world/middleeast/saudi-riyadh-iran-trump.html
+
 **Fantasy football Week 10 recap: 5 sneaky smart QBs to start in the stretch run**\
 `Some eye-catching stats show that these five signal callers deserve to be in more starting lineups.`\
 https://nytimes.com/athletic/5914720/2024/11/11/fantasy-football-week-10-recap-5-sneaky-smart-qbs-to-start-in-the-stretch-run/
