@@ -1,3 +1,7 @@
+**Kennesaw State coaching job profile: Pluses, minuses and candidates to replace Brian Bohannon**\
+`There are parts to like about this job, but it’s behind its new peers financially. The upside is obvious. The timeline is less clear.`\
+https://nytimes.com/athletic/5914711/2024/11/11/kennesaw-state-football-job-coaching-search/
+
 **Jamie Oliver Pulls Children’s Book Amid Criticism of Insensitivity**\
 `The celebrity chef’s second children’s book, “Billy and the Epic Escape,” faced accusations that it stereotyped First Nations people in Australia.`\
 https://nytimes.com/2024/11/11/books/jamie-oliver-book-australia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908812/2024/11/11/casper-ruud-tennis-atp-tour-fina
 **Fofana withdrawn from France squad with knee issue**\
 `Chelsea defender Wesley Fofana has been withdrawn from France duty for their upcoming Nations League games against Israel and Italy.`\
 https://nytimes.com/athletic/5914714/2024/11/11/wesley-fofana-injury-france/
-
-**'I thought we lost our pace': Bucks offense fizzles in second half against Celtics**\
-`After holding an 11-point lead at halftime, the Bucks' offense ground to a halt in the second half against an aggressive Celtics defense.`\
-https://nytimes.com/athletic/5913217/2024/11/11/bucks-giannis-antetokounmpo-celtics-2/
 

@@ -1,3 +1,7 @@
+**Kennesaw State coaching job profile: Pluses, minuses and candidates to replace Brian Bohannon**\
+`There are parts to like about this job, but it’s behind its new peers financially. The upside is obvious. The timeline is less clear.`\
+https://nytimes.com/athletic/5914711/2024/11/11/kennesaw-state-football-job-coaching-search/
+
 **Jamie Oliver Pulls Children’s Book Amid Criticism of Insensitivity**\
 `The celebrity chef’s second children’s book, “Billy and the Epic Escape,” faced accusations that it stereotyped First Nations people in Australia.`\
 https://nytimes.com/2024/11/11/books/jamie-oliver-book-australia.html
