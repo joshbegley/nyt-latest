@@ -1,3 +1,7 @@
+**'I don't need the lights on me': Casper Ruud steps out of the shadows in Turin**\
+`The Norwegian's low-key demeanor and thoughtfulness sometimes allow his tennis talents to go under the radar.`\
+https://nytimes.com/athletic/5908812/2024/11/11/casper-ruud-tennis-atp-tour-finals/
+
 **Fofana withdrawn from France squad with knee issue**\
 `Chelsea defender Wesley Fofana has been withdrawn from France duty for their upcoming Nations League games against Israel and Italy.`\
 https://nytimes.com/athletic/5914714/2024/11/11/wesley-fofana-injury-france/
