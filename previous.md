@@ -1,3 +1,7 @@
+**Biden Honors Veterans and Lays Wreath at Arlington Cemetery**\
+`President Biden acknowledged that it would be his last time at the Arlington National Cemetery on Veterans Day as the country’s commander in chief.`\
+https://nytimes.com/video/us/100000009819989/veterans-day-biden-arlington-national-cemetery.html
+
 **Former Staten Island Representative Is Paralyzed After Fall From Horse**\
 `Michael Grimm, a Republican who resigned in 2015 after pleading guilty to felony tax evasion, was paralyzed from the chest down during a polo competition in September.`\
 https://nytimes.com/2024/11/11/nyregion/michael-grimm-paralyzed-staten-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915716/2024/11/11/maple-leafs-max-pacioretty-injur
 **Spirit Airlines Plane Hit by Gunfire in Haiti and Forced to Divert**\
 `A day after the prime minister of Haiti was fired, the airport in Port-au-Prince was closed after the plane was shot at. The country has been under siege from gangs.`\
 https://nytimes.com/2024/11/11/us/haiti-spirit-airlines-plane-shot-at.html
-
-**Who is David Coote, the referee under investigation for Liverpool video outburst?**\
-`Coote has been suspended after footage appearing to show him voicing criticism of former Jurgen Klopp spread on social media.`\
-https://nytimes.com/athletic/5915433/2024/11/11/david-coote-referee-liverpool-profile/
 
