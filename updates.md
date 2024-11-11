@@ -1,3 +1,15 @@
+**Bishop Calls on Anglican Leader to Quit Over Handling of Abuse Scandal**\
+`An independent report last week said that Justin Welby, the archbishop of Canterbury, took insufficient action after learning of alleged abuse decades ago at Christian summer camps.`\
+https://nytimes.com/2024/11/11/world/europe/archbishop-canterbury-abuse-scandal.html
+
+**MLS playoffs without Lionel Messi could be a welcome reality check**\
+`The Argentine won't be in MLS forever and his shock early exit from the playoffs is an opportunity to really evaluate 'the Messi effect' `\
+https://nytimes.com/athletic/5915634/2024/11/11/lionel-messi-mls-playoffs-inter-miami/
+
+**Many Democrats Who Reliably Turned Out Against Trump Sat This One Out**\
+`Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
+https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
+
 **Many Democrats Who Reliably Turned Against Trump Sat This One Out**\
 `Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
 https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
