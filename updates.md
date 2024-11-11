@@ -1,3 +1,7 @@
+**Celtics shrug off slow start for road win over Bucks: 'We won't just give in'**\
+`Despite shooting just 40.7 percent from the field, the Celtics won with defense and a late-game push.`\
+https://nytimes.com/athletic/5913739/2024/11/10/celtics-slow-start-road-win-bucks/
+
 **Ahead of Veterans Day, Arizona Cardinals fans honor Pat Tillman's spirit**\
 `Each NFL Sunday, fans rep jerseys from yesteryear, the past meeting the present, a statement of respect. In Arizona, it's different. `\
 https://nytimes.com/athletic/5913435/2024/11/10/arizona-cardinals-pat-tillman-veterans-day/

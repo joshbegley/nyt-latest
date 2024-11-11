@@ -1,3 +1,7 @@
+**Celtics shrug off slow start for road win over Bucks: 'We won't just give in'**\
+`Despite shooting just 40.7 percent from the field, the Celtics won with defense and a late-game push.`\
+https://nytimes.com/athletic/5913739/2024/11/10/celtics-slow-start-road-win-bucks/
+
 **Ahead of Veterans Day, Arizona Cardinals fans honor Pat Tillman's spirit**\
 `Each NFL Sunday, fans rep jerseys from yesteryear, the past meeting the present, a statement of respect. In Arizona, it's different. `\
 https://nytimes.com/athletic/5913435/2024/11/10/arizona-cardinals-pat-tillman-veterans-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913427/2024/11/10/colts-joe-flacco-anthony-richard
 **After a prayer and a prediction, Leo Chenal rescues Chiefs with walk-off blocked field goal**\
 `Patrick Mahomes wasn't at his best in the fourth quarter, but the Chiefs found a way to stay unbeaten against a frisky division opponent.`\
 https://nytimes.com/athletic/5913311/2024/11/10/chiefs-blocked-field-goal-leo-chenal/
-
-**Jaylen Brown calls Giannis Antetokounmpo a 'child' after high-five fake-out**\
-`When told of Brown's comments, Antetokounmpo was taken aback. "Oh, that's what he said? Dang."`\
-https://nytimes.com/athletic/5913499/2024/11/10/giannis-jaylen-brown-trolling-celtics-bucks/
 
