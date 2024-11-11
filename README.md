@@ -1,3 +1,27 @@
+**A Potential Fight Over the Fed’s Future Ramps Up**\
+`As Trump allies including Elon Musk endorse ending the Federal Reserve’s independence, the central bank’s chair is reportedly ready to go to court to fight back.`\
+https://nytimes.com/2024/11/11/business/dealbook/fed-powell-trump.html
+
+**NBA Rewind: The Cavs are unstoppable, and the NBA Cup returns for Year 2**\
+`Who's hot and who's not as the in-season tournament prepares to tip off on Tuesday.`\
+https://nytimes.com/athletic/5906533/2024/11/11/nba-rewind-cavaliers-nba-cup-preview/
+
+**San Francisco Giants free-agent profile: Willy Adames, SS**\
+`Adames is a well-rounded player, and he fits just about everything the Giants are looking for.`\
+https://nytimes.com/athletic/5909079/2024/11/11/sf-giants-willy-adames-free-agency/
+
+**Israel’s Military Announces Small Expansion of Gaza Humanitarian Zone**\
+`The move comes just before a Biden administration deadline for Israel to deliver more aid to the enclave or risk a cutoff of military supplies.`\
+https://nytimes.com/2024/11/11/world/middleeast/israel-gaza-humanitarian-zone.html
+
+**Raiders mock draft reaction: Is Shedeur Sanders the answer at quarterback?**\
+`In The Athletic's latest post-NFL trade deadline mock draft, the Raiders took the Colorado QB with the No. 3 pick.`\
+https://nytimes.com/athletic/5909367/2024/11/11/raiders-shedeur-sanders-mock-draft/
+
+**How the Kings' defense stepped up to cover Drew Doughty's absence with aplomb**\
+`The Kings lost their longtime defensive stalwart before the season began. 16 games in, it's not much of a problem.`\
+https://nytimes.com/athletic/5913966/2024/11/11/kings-defense-doughty-gavrikov-anderson/
+
 **Seven things I think I know about the Toronto Raptors through 10 (plus one) games**\
 `Agbaji is shining while the defence is struggling as the Raptors fight through a rough schedule and injuries. `\
 https://nytimes.com/athletic/5914124/2024/11/11/ochai-agbajis-raptors-early-lessons/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5914176/2024/11/11/lions-texans-comeback-jake-bates
 **Canadiens weekly notebook: Manufacturing confidence, underlying numbers improving and more**\
 `Also in this week's notebook, Shea Weber's legendary pain tolerance and Arber Xhekaj has turned an important corner.`\
 https://nytimes.com/athletic/5914188/2024/11/11/canadiens-maple-leafs-loss-suzuki-numbers/
-
-**Tactics and data live Q&A: Our writers answer your questions**\
-`Post your tactics and data questions to Thom Harris and Anantaajith Raghuraman today`\
-https://nytimes.com/athletic/5914340/2024/11/11/tactics-data-premier-league-questions/
-
-**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
-`After the 3-1 victory over Nottingham Forest, post your Newcastle-related questions to Chris`\
-https://nytimes.com/athletic/5914324/2024/11/11/newcastle-joelinton-champions-league/
-
-**The Athletic FC: What now for Messi and Miami? Premier League's trending teams**\
-`Today in TAFC: Repercussions of Messi and Inter Miami exit from MLS Cup, Premier League state of play, player's coma trauma`\
-https://nytimes.com/athletic/5914355/2024/11/11/the-athletic-fc-what-now-for-messi-and-miami-premier-leagues-trending-teams/
-
-**Tennis Briefing: Krejcikova criticizes 'unprofessional' commentary, Medvedev spirals in Turin**\
-`The Wimbledon champion responded to remarks made about her appearance on Tennis Channel.`\
-https://nytimes.com/athletic/5911854/2024/11/11/krejcikova-appearance-comments-tennis-channel-wertheim/
-
-**Twins, Royce Lewis have a second shot at the second base move this offseason**\
-`The Twins haven’t made up their minds about moving Lewis, but they intend to at least talk to him about the possibility to help him prepare.`\
-https://nytimes.com/athletic/5909538/2024/11/11/royce-lewis-twins-second-base/
-
-**WSL Briefing: The gap between the top three and the rest of the league is stark**\
-`Even with seven gameweeks gone, it feels almost certain that, come May, Chelsea, City and Arsenal will finish in the WSL top three`\
-https://nytimes.com/athletic/5913346/2024/11/11/wsl-arsenal-manchester-city-chelsea/
 
