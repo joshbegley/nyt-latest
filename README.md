@@ -1,3 +1,15 @@
+**Why Everton need better performances before stadium move**\
+`Turgid performances from Everton are a distinct possibility in the short term, but the future will need to be brighter and more vibrant`\
+https://nytimes.com/athletic/5910628/2024/11/11/everton-west-ham-recap/
+
+**A lengthy injury list is not the only reason Crystal Palace's failings**\
+`An inability to learn from previous situations is Palace's ultimate failing as they continue to struggle in the 2024-25 Premier League`\
+https://nytimes.com/athletic/5903519/2024/11/11/palace-injuries-fulham-recap/
+
+**'He was too good for us': Matt O'Riley's winding road to Brighton and the Premier League**\
+`O'Riley is still only 24 but his career has taken many twists after he decided to leave Fulham despite having no other club to join`\
+https://nytimes.com/athletic/5844784/2024/11/11/oriley-brighton-city-premier-league/
+
 **Defeat and 'improvements' needed - but Forest's progress under Nuno is clear**\
 `Forest lost to Newcastle but conceding three goals has become a rarity and, after 38 games under Nuno, it's clear how far they have come`\
 https://nytimes.com/athletic/5912182/2024/11/11/forest-newcastle-nuno-improvements/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5912114/2024/11/11/leicester-right-hand-side-cooper
 **Arteta is demanding more and more from his players - only time will tell how they respond**\
 `The Arsenal manager is determined to squeeze every last drop of talent and effort from his players, but he still has a long way to go`\
 https://nytimes.com/athletic/5912461/2024/11/11/arteta-demanding-more-from-arsenal-players/
-
-**Wolves' win over Southampton can be a turning point - but only if they seize the opportunity**\
-`Despite picking up their first league victory of the season the club's position is mostly unchanged, but much-needed positivity has returned`\
-https://nytimes.com/athletic/5910655/2024/11/11/wolves-oneil-win-turning-point/
-
-**Why Did Tens of Thousands of Chinese Students Go on Night Bike Rides?**\
-`Making the impromptu five-hour ride between two Chinese cities became a craze among young people. But as their numbers swelled, the authorities shut it down.`\
-https://nytimes.com/2024/11/11/world/asia/china-bike-ride.html
-
-**The Briefing: Are Arsenal out of title race? No excuses for Messi and Inter Miami**\
-`Tim Spiers breaks down the big talking points from the weekend including Manchester City losing and Messi's MLS Cup exit`\
-https://nytimes.com/athletic/5911521/2024/11/11/arsenal-title-race-premier-league-messi-miami/
 
