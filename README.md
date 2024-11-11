@@ -1,3 +1,7 @@
+**Chaos, Provocations and Violence: How Attacks on Israeli Soccer Fans Unfolded**\
+`Antisemitic assaults on visiting Israeli soccer fans, and incendiary chants and attacks by some Israelis: Here’s what we know so far about the violence in Amsterdam last week.`\
+https://nytimes.com/2024/11/10/world/europe/israeli-soccer-fans-amsterdam-attack.html
+
 **Tyrone Tracy Jr.'s back-breaking OT fumble a painful reminder of rookie growing pains**\
 `“No matter how many times people come up to you and tell you it's not your fault, you still got that feeling inside that it was your fault."`\
 https://nytimes.com/athletic/5912678/2024/11/10/tyrone-tracy-giants-fumble-pathers-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912797/2024/11/10/broncos-loss-chiefs-blocked-fiel
 **Chargers' defensive dominance continues in 27-17 win over Titans: Takeaways**\
 `The Chargers leaned heavily on their run game to total 145 rushing yards and win the time-of-possession battle while playing turnover-free.`\
 https://nytimes.com/athletic/5911928/2024/11/10/titans-chargers-score-takeaways-result/
-
-**The Bears offense is broken. They can't afford to let it break Caleb Williams, too**\
-`The Bears were supposed to be ready for their rookie quarterback this time, but we're seeing the same ugly pattern repeat itself.`\
-https://nytimes.com/athletic/5913051/2024/11/10/bears-caleb-williams-broken-offense-patriots/
 
