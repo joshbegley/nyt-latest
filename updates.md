@@ -1,3 +1,7 @@
+**Trump Offers Elise Stefanik Role as U.N. Ambassador**\
+`In one of his first cabinet-level personnel decisions, the president-elect has chosen the Republican member of Congress from New York to represent the United States at the United Nations.`\
+https://nytimes.com/2024/11/11/us/politics/trump-stefanik-un-ambassador.html
+
 **Adam Johnson: Man arrested on suspicion of manslaughter re-bailed until January**\
 `A man arrested on suspicion of manslaughter following the death of Adam Johnson has been re-bailed until January.`\
 https://nytimes.com/athletic/5914475/2024/11/11/adam-johnson-hockey-bail/
