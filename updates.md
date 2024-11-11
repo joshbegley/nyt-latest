@@ -1,3 +1,7 @@
+**Tage Thompson injury is the Sabres' latest adversity in ugly loss to Canadiens**\
+`The Sabres' matinee matchup against the Canadiens quickly turned into a messy, chaotic game that only seemed to get worse as it went along.`\
+https://nytimes.com/athletic/5916160/2024/11/11/sabres-canadiens-tage-thompson-injury/
+
 **I.C.C. Prosecutor Seeking Arrest of Israeli Leaders Faces Own Inquiry**\
 `The International Criminal Court said there will be an investigation into sexual misconduct allegations against Karim Khan, the court’s chief prosecutor.`\
 https://nytimes.com/2024/11/11/world/middleeast/icc-prosecutor-misconduct-investigation.html
