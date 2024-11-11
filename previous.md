@@ -1,3 +1,7 @@
+**Broncos' Sean Payton accepts blame for FG gaffe in loss: 'It's not on the player'**\
+`The Broncos believed they had their field-goal protection in working order, but Kansas City's game-saving block proved otherwise.`\
+https://nytimes.com/athletic/5914385/2024/11/11/broncos-sean-payton-blocked-field-goal-chiefs/
+
 **Nebraska appoints Dana Holgorsen to OC, Marcus Satterfield demoted**\
 `Holgorsen will call plays this weekend against USC, which Nebraska enters with a question at QB as Dylan Raiola recovers from injury.`\
 https://nytimes.com/athletic/5915691/2024/11/11/dana-holgorsen-nebraska-offensive-coordinator-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5914578/2024/11/11/blue-jackets-dante-fabbro-nhl/
 **Yankees' Aaron Boone to meet with Juan Soto during club's free-agency pursuit**\
 `Boone will join owner Hal Steinbrenner as part of the Yankees' delegation pitching Soto on a much-longer tenure in the Bronx. `\
 https://nytimes.com/athletic/5915260/2024/11/11/yankees-aaron-boone-juan-soto-free-agency/
-
-**What to Know About Elise Stefanik, Trump’s Pick for U.N. Ambassador**\
-`Ms. Stefanik, who chairs the House Republican Conference, undertook a dramatic transformation that brought her to the center of Donald J. Trump’s orbit.`\
-https://nytimes.com/2024/11/11/nyregion/elise-stefanik-trump-un.html
 

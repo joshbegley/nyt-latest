@@ -1,3 +1,7 @@
+**Broncos' Sean Payton accepts blame for FG gaffe in loss: 'It's not on the player'**\
+`The Broncos believed they had their field-goal protection in working order, but Kansas City's game-saving block proved otherwise.`\
+https://nytimes.com/athletic/5914385/2024/11/11/broncos-sean-payton-blocked-field-goal-chiefs/
+
 **Nebraska appoints Dana Holgorsen to OC, Marcus Satterfield demoted**\
 `Holgorsen will call plays this weekend against USC, which Nebraska enters with a question at QB as Dylan Raiola recovers from injury.`\
 https://nytimes.com/athletic/5915691/2024/11/11/dana-holgorsen-nebraska-offensive-coordinator-college-football/
