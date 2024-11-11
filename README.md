@@ -1,3 +1,7 @@
+**Democrats, Reliable as an Anti-Trump Bulwark for Years, Sat Out This Time**\
+`Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
+https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
+
 **Analysing Lewandowski’s offside goal against Real Sociedad - 'It's clear what I saw'**\
 `Barcelona lost 1-0 in San Sebastian on Sunday but all the focus has been on a controversial decision to rule out an effort by Lewandowski`\
 https://nytimes.com/athletic/5915500/2024/11/11/robert-lewandowski-barcelona-real-sociedad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915537/2024/11/11/andy-robertson-liverpool-slot/
 **Kansas remains at No. 1 in first men's AP Top 25 of '24-25 season**\
 `Auburn had the most impressive first week of any team in the country and was rewarded by moving up X spots.`\
 https://nytimes.com/athletic/5915215/2024/11/11/college-basketball-ap-top-25-rankings-kansas/
-
-**Review: A Superficial Take on Migration as Movement**\
-`At the Brooklyn Academy of Music, the highlight of Dana Gingras’s “Frontera” may well be the lighting design.`\
-https://nytimes.com/2024/11/11/arts/dance/dana-gingras-frontera.html
 
