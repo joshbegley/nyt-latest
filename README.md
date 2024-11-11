@@ -1,3 +1,11 @@
+**Amsterdam Police Arrest 5 More Men Over Antisemitic Attacks**\
+`A total of eight people were being held in connection with last week’s violence, and unrest in the largest city in the Netherlands continued on Monday night.`\
+https://nytimes.com/2024/11/11/world/europe/amsterdam-antisemitic-attacks-arrests.html
+
+**New York Times Tech Guild Ends Strike**\
+`The union said its members would return to work on Tuesday, even though it had not yet reached a contract deal with the company.`\
+https://nytimes.com/2024/11/11/business/media/new-york-times-tech-guild-ends-strike.html
+
 **John Gibson's return gives Ducks a boost, but how much will he play?**\
 `Gibson, who had an emergency appendectomy on Sept. 25, saved 38 of 40 shots in his season debut.`\
 https://nytimes.com/athletic/5916080/2024/11/11/ducks-goalie-gibson-dostal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915956/2024/11/11/chicago-bears-matt-eberflus-coac
 **Trump Chooses Lee Zeldin to Run E.P.A.**\
 `The former congressman from New York is a strong supporter of Donald Trump and voted against certifying the 2020 election.`\
 https://nytimes.com/2024/11/11/climate/trump-chooses-lee-zeldin-to-run-epa.html
-
-**Tuesday Briefing: Trump Starts Building His Cabinet**\
-`Plus, West African fine dining.`\
-https://nytimes.com/2024/11/11/briefing/trump-administration-climate-amsterdam.html
-
-**Biden Honors Veterans and Lays Wreath at Arlington Cemetery**\
-`President Biden acknowledged that it would be his last time at the Arlington National Cemetery on Veterans Day as the country’s commander in chief.`\
-https://nytimes.com/video/us/100000009819989/veterans-day-biden-arlington-national-cemetery.html
 
