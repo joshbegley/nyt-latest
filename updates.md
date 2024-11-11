@@ -1,3 +1,7 @@
+**Trump Chooses Lee Zeldin to Run E.P.A.**\
+`The former congressman from New York is a strong supporter of Mr. Trump and voted against certifying the 2020 election.`\
+https://nytimes.com/2024/11/11/climate/trump-chooses-lee-zeldin-to-run-epa.html
+
 **Wander Franco detained in Dominican Republic after fight**\
 `Authorities are investigating the incident, said a spokesperson for the public ministry.`\
 https://nytimes.com/athletic/5915194/2024/11/11/wander-franco-arrest-dominican-republic/
