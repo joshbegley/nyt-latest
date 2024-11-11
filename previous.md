@@ -1,3 +1,11 @@
+**I.C.C. Prosecutor Seeking Arrest of Israeli Leaders Faces Own Inquiry**\
+`The International Criminal Court said there will be an investigation into sexual misconduct allegations against Karim Khan, the court’s chief prosecutor.`\
+https://nytimes.com/2024/11/11/world/middleeast/icc-prosecutor-misconduct-investigation.html
+
+**Remembering Quincy Jones, a Bridge Between Genres and Generations**\
+`A conversation about his long and unique footprint in music, and how he discussed it later in his career.`\
+https://nytimes.com/2024/11/11/arts/music/popcast-quincy-jones.html
+
 **Democrats Pick Up Seat in Newly Drawn Louisiana District**\
 `Cleo Fields, a longtime Baton Rouge politician, won more than 50 percent of the vote in an open primary, negating the need for a runoff.`\
 https://nytimes.com/2024/11/11/us/politics/louisiana-house-cleo-fields.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/11/health/alcohol-misuse-pandemic.html
 **Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
 `The Seahawks are coming out of their bye week at 4-5 and last in the NFC West. It's a great time to submit questions to Michael-Shawn Dugar.`\
 https://nytimes.com/athletic/5915797/2024/11/11/seahawks-mailbag-bye-week/
-
-**Trump Plans Series of Executive Orders for Day 1, Susie Wiles Tells Donors**\
-`Ms. Wiles, the next White House chief of staff, said Donald Trump would move quickly to reinstate orders from his first term that President Biden had revoked, though she did not specify which ones.`\
-https://nytimes.com/2024/11/11/us/politics/trump-executive-orders-susie-wiles.html
-
-**Wander Franco detained in Dominican Republic after fight**\
-`Authorities are investigating the incident, said a spokesperson for the public ministry.`\
-https://nytimes.com/athletic/5915194/2024/11/11/wander-franco-arrest-dominican-republic/
 

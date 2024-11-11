@@ -1,3 +1,11 @@
+**I.C.C. Prosecutor Seeking Arrest of Israeli Leaders Faces Own Inquiry**\
+`The International Criminal Court said there will be an investigation into sexual misconduct allegations against Karim Khan, the court’s chief prosecutor.`\
+https://nytimes.com/2024/11/11/world/middleeast/icc-prosecutor-misconduct-investigation.html
+
+**Remembering Quincy Jones, a Bridge Between Genres and Generations**\
+`A conversation about his long and unique footprint in music, and how he discussed it later in his career.`\
+https://nytimes.com/2024/11/11/arts/music/popcast-quincy-jones.html
+
 **Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
 `The suspect was taken into custody, ending a multistate manhunt in a case involving a suspicious emergency call, a false identity and a fake bear attack.`\
 https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
