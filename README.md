@@ -1,3 +1,7 @@
+**Former Staten Island Representative Is Paralyzed After Fall From Horse**\
+`Michael Grimm, a Republican who resigned in 2015 after pleading guilty to felony tax evasion, was paralyzed from the chest down during a polo competition in September.`\
+https://nytimes.com/2024/11/11/nyregion/michael-grimm-paralyzed-staten-island.html
+
 **Biden Honors Veterans in Ceremony at Arlington Cemetery**\
 `“This is the last time I will stand here at Arlington as commander in chief,” President Biden said in remembering service members who have served the country.`\
 https://nytimes.com/2024/11/11/us/politics/biden-veterans-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/us/haiti-spirit-airlines-plane-shot-at.html
 **Who is David Coote, the referee under investigation for Liverpool video outburst?**\
 `Coote has been suspended after footage appearing to show him voicing criticism of former Jurgen Klopp spread on social media.`\
 https://nytimes.com/athletic/5915433/2024/11/11/david-coote-referee-liverpool-profile/
-
-**Why Was There a Broad Drop-Off in Democratic Turnout in 2024?**\
-`Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
-https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
 
