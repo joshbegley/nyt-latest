@@ -1,3 +1,11 @@
+**The Briefing: Are Arsenal out of title race? No excuses for Messi and Inter Miami**\
+`Tim Spiers breaks down the big talking points from the weekend including Manchester City losing and Messi's MLS Cup exit`\
+https://nytimes.com/athletic/5911521/2024/11/11/arsenal-title-race-premier-league-messi-miami/
+
+**Are Newcastle slowly learning the art of the comeback win?**\
+`Newcastle are learning to win after going behind - and that resilience has helped them turn their form around`\
+https://nytimes.com/athletic/5905632/2024/11/11/newcastle-nottingham-forest-comeback-win/
+
 **Lakers' Anthony Davis exits vs. Raptors with eye injury**\
 `Davis suffered a left corneal abrasion in the same eye twice last season.`\
 https://nytimes.com/athletic/5914013/2024/11/11/anthony-davis-eye-injury-lakers-raptors/
