@@ -1,3 +1,15 @@
+**Southampton's Ramsdale set to undergo surgery on suspected fractured finger**\
+`Southampton goalkeeper Aaron Ramsdale is set to undergo surgery on a suspected fractured finger.`\
+https://nytimes.com/athletic/5915599/2024/11/11/england-ramsdale-injury-surgery/
+
+**Liverpool's Robertson addresses doubters: 'I'm trying to prove people wrong'**\
+`Andy Robertson has vowed to prove his doubters wrong after being &#8220;written off&#8221; for the first time in his Liverpool career.`\
+https://nytimes.com/athletic/5915537/2024/11/11/andy-robertson-liverpool-slot/
+
+**Jack Del Rio to resign as Wisconsin senior adviser after arrest**\
+`Wisconsin said in a statement Monday: "We take matters like this very seriously and we are continuing to gather information."`\
+https://nytimes.com/athletic/5915412/2024/11/11/jack-del-rio-arrest-wisconsin/
+
 **Kansas remains at No. 1 in first men's AP Top 25 of '24-25 season**\
 `Auburn had the most impressive first week of any team in the country and was rewarded by moving up X spots.`\
 https://nytimes.com/athletic/5915215/2024/11/11/college-basketball-ap-top-25-rankings-kansas/
