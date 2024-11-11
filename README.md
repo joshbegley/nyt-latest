@@ -1,3 +1,7 @@
+**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
+`The Seahawks are coming out of their bye week at 4-5 and last in the NFC West. It's a great time to submit questions to Michael-Shawn Dugar.`\
+https://nytimes.com/athletic/5915797/2024/11/11/seahawks-mailbag-bye-week/
+
 **Trump Plans Series of Executive Orders for Day 1, Susie Wiles Tells Donors**\
 `Ms. Wiles, the next White House chief of staff, said Donald Trump would move quickly to reinstate orders from his first term that President Biden had revoked, though she did not specify which ones.`\
 https://nytimes.com/2024/11/11/us/politics/trump-executive-orders-susie-wiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/us/politics/biden-veterans-day.html
 **Indiana Man Convicted of Killing 2 Girls After Video Found on Victim’s Phone**\
 `A jury on Monday found Richard Allen guilty of killing Liberty German and Abigail William, who were on a hike in 2017. Video showed a man following the girls.`\
 https://nytimes.com/2024/11/11/us/delphi-murders-richard-allen-trial.html
-
-**An important week for the narrative of this Georgia season**\
-`Beat Tennessee, and all is OK. Lose, and the narrative on this Georgia season is all but set, not in a good way. `\
-https://nytimes.com/athletic/5915783/2024/11/11/georgia-tennessee-college-football-playoff-implications/
 
