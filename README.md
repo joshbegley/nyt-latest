@@ -2,6 +2,10 @@
 `In one of his first cabinet-level personnel decisions, the president-elect has chosen the Republican member of Congress from New York to represent the United States at the United Nations.`\
 https://nytimes.com/2024/11/11/us/politics/trump-stefanik-un-ambassador.html
 
+**Fantasy Premier League: What we learnt from Gameweek 11**\
+`We look at Manchester United, Manchester City and Liverpool options - plus Brighton's no-brainer bargain`\
+https://nytimes.com/athletic/5912398/2024/11/11/fantasy-premier-league-what-we-learnt-from-gameweek-11-joao-pedro/
+
 **Adam Johnson: Man arrested on suspicion of manslaughter re-bailed until January**\
 `A man arrested on suspicion of manslaughter following the death of Adam Johnson has been re-bailed until January.`\
 https://nytimes.com/athletic/5914475/2024/11/11/adam-johnson-hockey-bail/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913966/2024/11/11/kings-defense-doughty-gavrikov-a
 **Seven things I think I know about the Toronto Raptors through 10 (plus one) games**\
 `Agbaji is shining while the defence is struggling as the Raptors fight through a rough schedule and injuries. `\
 https://nytimes.com/athletic/5914124/2024/11/11/ochai-agbajis-raptors-early-lessons/
-
-**Ten Clippers takes after 10 games: Kawhi will return slowly, Harden's turnovers and more**\
-`Norman Powell's shot to be an All-Star, Ivica Zubac's heavy workload and more thoughts on the 6-4 Clippers.`\
-https://nytimes.com/athletic/5913999/2024/11/11/clippers-kawhi-leonard-first-10-games/
 
