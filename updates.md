@@ -1,3 +1,11 @@
+**After blowout loss in Arizona, Jets are out of time and Aaron Rodgers is out of answers**\
+`A season that started with Super Bowl hopes all but ended in a loss to the Cardinals.`\
+https://nytimes.com/athletic/5913675/2024/11/10/jets-loss-cardinals-playoff-hopes/
+
+**The Eagles are 'building that bully' after an overdue Cowboys beatdown in Dallas**\
+`Plus, Jalen Hurts' ankle appeared fine as he had a passing and a rushing touchdown.`\
+https://nytimes.com/athletic/5913025/2024/11/10/eagles-win-cowboys-beatdown-key-numbers/
+
 **'We won't just give in': Celtics shrug off slow start for road win over Bucks**\
 `Despite shooting just 40.7 percent from the field, the Celtics won with defense and a late-game push.`\
 https://nytimes.com/athletic/5913739/2024/11/10/celtics-slow-start-road-win-bucks/
