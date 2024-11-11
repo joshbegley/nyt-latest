@@ -1,3 +1,7 @@
+**At the Pandemic’s Start, Americans Began Drinking More. They Still Are.**\
+`Excessive drinking persisted in the years after Covid arrived, according to a new data.`\
+https://nytimes.com/2024/11/11/health/alcohol-misuse-pandemic.html
+
 **Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
 `The Seahawks are coming out of their bye week at 4-5 and last in the NFC West. It's a great time to submit questions to Michael-Shawn Dugar.`\
 https://nytimes.com/athletic/5915797/2024/11/11/seahawks-mailbag-bye-week/
