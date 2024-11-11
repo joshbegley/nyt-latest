@@ -1,3 +1,7 @@
+**Gluck: NASCAR's broken playoff system should be at a tipping point**\
+`Is it time to revamp NASCAR's method of crowning a champion? After another year with a winner who struggled during the season, it should be.`\
+https://nytimes.com/athletic/5914726/2024/11/11/nascar-playoffs-system-joey-logano-champion/
+
 **Kraken co-owner Samantha Holloway on building a team from the ground up, culture and more**\
 `With the Kraken, Holloway has been all in on learning the unique lessons of the sports world with hopes to expand ownership in the future.`\
 https://nytimes.com/athletic/5902241/2024/11/11/seattle-kraken-samantha-holloway-team-culture/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/t-magazine/dye-hair-at-home.html
 **Why Trump’s Deportations Will Drive Up Your Grocery Bill**\
 `How will voters react?`\
 https://nytimes.com/2024/11/11/opinion/trump-deportation-inflation-grocery-bills.html
-
-**The Singular Force That Was Judith Jamison**\
-`She was always a goddess of dance — even before her triumph in “Cry.” The Ailey star turned artistic director stretched like there was no tomorrow.`\
-https://nytimes.com/2024/11/11/arts/dance/judith-jamison-appraisal.html
 
