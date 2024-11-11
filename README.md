@@ -1,3 +1,7 @@
+**Why Do So Many Americans Pass Up Bigger Social Security Checks?**\
+`It shouldn’t be so easy to leave benefits on the table.`\
+https://nytimes.com/2024/11/11/opinion/social-security-age.html
+
 **Max Pacioretty update: How long the Maple Leafs' winger is out and who might step in**\
 `Max Pacioretty’s absence leaves the door open for multiple players to step up.`\
 https://nytimes.com/athletic/5915716/2024/11/11/maple-leafs-max-pacioretty-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915691/2024/11/11/dana-holgorsen-nebraska-offensiv
 **What to watch this week in NBA: The NBA Cup starts plus LeBron vs. Wemby**\
 `What to watch, and why to watch, as the NBA Cup tips off this week.`\
 https://nytimes.com/athletic/5909427/2024/11/11/nba-cup-what-to-watch/
-
-**Rogers handed first England call-up amid eight withdrawals**\
-`Aston Villa midfielder Morgan Rogers has received his first England call-up for the upcoming Nations League games against Greece and Republic of Ireland.`\
-https://nytimes.com/athletic/5915594/2024/11/11/morgan-rogers-england-squad/
 
