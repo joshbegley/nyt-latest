@@ -1,3 +1,7 @@
+**Trump Names Thomas Homan ‘Border Czar’ With a Wide Portfolio**\
+`Mr. Homan, a senior immigration official in the last Trump administration, has said that workplace raids would restart under the new government.`\
+https://nytimes.com/2024/11/11/us/politics/trump-homan-immigration-border.html
+
 **‘Dune: Prophecy,’ Plus 6 Things to Watch on TV this Week**\
 `Tune into the premiere of the HBO series, see whom Joan Vassos picks for her final rose on “The Bachelorette” and catch up on news.`\
 https://nytimes.com/2024/11/11/arts/television/dune-prophecy-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912182/2024/11/11/forest-newcastle-nuno-improvemen
 **What's going on with Leon Bailey?**\
 `The Jamaican's toils have characterised Villa's broader attacking struggles`\
 https://nytimes.com/athletic/5910581/2024/11/11/aston-villa-leon-bailey-analysis/
-
-**Tottenham's inconsistency is costing them - Postecoglou needs to find a solution**\
-`Tottenham have struggled to follow up big wins so far this season`\
-https://nytimes.com/athletic/5912168/2024/11/11/tottenham-hotspur-inconsistency-analysis/
 
