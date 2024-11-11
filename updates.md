@@ -1,3 +1,7 @@
+**Why Was There a Broad Drop-Off in Democratic Turnout in 2024?**\
+`Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
+https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
+
 **Bishop Calls on Anglican Leader to Quit Over Handling of Abuse Scandal**\
 `An independent report last week said that Justin Welby, the archbishop of Canterbury, took insufficient action after learning of alleged abuse decades ago at Christian summer camps.`\
 https://nytimes.com/2024/11/11/world/europe/archbishop-canterbury-abuse-scandal.html
