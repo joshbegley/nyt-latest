@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Canucks, Predators and 5 way-too-early offseason lessons**\
+`Everything we assumed must be true during the offseason is always correct ... except when it's not.`\
+https://nytimes.com/athletic/5912782/2024/11/11/nhl-rankings-canucks-predators-offseason/
+
 **Yamal out of Spain squad with ankle injury, expected to miss 2-3 weeks**\
 `Lamine Yamal has been withdrawn from the Spain squad for the upcoming Nations League fixtures with an ankle injury that is expected to keep him out for two to three weeks.`\
 https://nytimes.com/athletic/5914435/2024/11/11/barcelona-lamine-yamal-injury-spain/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910124/2024/11/11/penguins-erik-karlsson-tristan-j
 **‘One of the more talented players on the planet’: Jayson Tatum checks in at No. 91 on ‘The Basketball 100’**\
 `Whether experiencing great success or significant failure, Tatum has scaled the NBA hierarchy through diligence and hard work.`\
 https://nytimes.com/athletic/5903307/2024/11/11/jayson-tatum-the-basketball-100-book/
-
-**Democrats Search for Answers**\
-`After their election loss, the party’s leaders are pointing fingers and wrestling with what it stands for.`\
-https://nytimes.com/2024/11/11/podcasts/the-daily/democrats-blame-answers.html
 
