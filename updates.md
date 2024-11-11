@@ -1,3 +1,7 @@
+**Kraken co-owner Samantha Holloway on building a team from the ground up, culture and more**\
+`With the Kraken, Holloway has been all in on learning the unique lessons of the sports world with hopes to expand ownership in the future.`\
+https://nytimes.com/athletic/5902241/2024/11/11/seattle-kraken-samantha-holloway-team-culture/
+
 **The Trump Insiders Who Have Outsize Influence as He Chooses His Cabinet**\
 `Aides like Susie Wiles and advisers like Elon Musk are weighing in as the president-elect shapes his new administration.`\
 https://nytimes.com/2024/11/11/us/politics/trump-administration-insiders.html
