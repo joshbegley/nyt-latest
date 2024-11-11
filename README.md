@@ -1,3 +1,15 @@
+**Trump to Name Michael Waltz as His National Security Adviser**\
+`The president-elect has chosen a Republican member of Congress from Florida to oversee national security policy in the White House.`\
+https://nytimes.com/2024/11/11/us/politics/trump-michael-waltz-national-security-adviser.html
+
+**Tyreek Hill playing through torn wrist ligament, active vs. Rams for 'MNF'**\
+`Hill did not participate in team practices on Friday and Saturday but was not listed on the injury report Thursday.`\
+https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injury/
+
+**Some Arizona Latinos Find New Home Within Republican Party**\
+`President-elect Donald J. Trump won Arizona, flipping the swing state back to red. Younger Latino voters, like José Castro, were among those who shifted to the right, turning to older Republicans like Gerry Navarro, who were ready and willing to welcome him into their party.`\
+https://nytimes.com/video/world/americas/100000009815630/arizona-latino-vote-trump.html
+
 **John Robinson, legendary USC and LA Rams coach, dies at 89**\
 `John Robinson, who successfully coached at all levels of football, is one of the most successful CFB coaches ever.`\
 https://nytimes.com/athletic/5908522/2024/11/11/john-robinson-usc-la-rams-football-coach-dead/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/11/us/politics/louisiana-house-cleo-fields.html
 **Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
 `The suspect was taken into custody, ending a multistate manhunt in a case involving a suspicious emergency call, a false identity and a fake bear attack.`\
 https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
-
-**Amsterdam Police Arrest 5 More Men Over Antisemitic Attacks**\
-`A total of eight people were being held in connection with last week’s violence, and unrest in the largest city in the Netherlands continued on Monday night.`\
-https://nytimes.com/2024/11/11/world/europe/amsterdam-antisemitic-attacks-arrests.html
-
-**New York Times Tech Guild Ends Strike**\
-`The union said its members would return to work on Tuesday, even though it had not yet reached a contract deal with the company.`\
-https://nytimes.com/2024/11/11/business/media/new-york-times-tech-guild-ends-strike.html
-
-**John Gibson's return gives Ducks a boost, but how much will he play?**\
-`Gibson, who had an emergency appendectomy on Sept. 25, saved 38 of 40 shots in his season debut.`\
-https://nytimes.com/athletic/5916080/2024/11/11/ducks-goalie-gibson-dostal/
 
