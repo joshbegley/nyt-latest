@@ -1,3 +1,7 @@
+**Former Staten Island Representative Is Paralyzed After Fall From Horse**\
+`Michael Grimm, a Republican who resigned in 2015 after pleading guilty to felony tax evasion, was paralyzed from the chest down during a polo competition in September.`\
+https://nytimes.com/2024/11/11/nyregion/michael-grimm-paralyzed-staten-island.html
+
 **Biden Honors Veterans in Ceremony at Arlington Cemetery**\
 `“This is the last time I will stand here at Arlington as commander in chief,” President Biden said in remembering service members who have served the country.`\
 https://nytimes.com/2024/11/11/us/politics/biden-veterans-day.html
