@@ -1,3 +1,7 @@
+**Bears' Matt Eberflus evaluating offensive play caller change**\
+`Bears rookie quarterback Caleb Williams hasn't thrown a touchdown pass since Week 6. Chicago hasn't scored a touchdown since Week 8.`\
+https://nytimes.com/athletic/5914963/2024/11/11/bears-coaching-staff-changes-offense-play-caller/
+
 **PGMOL suspend referee Coote after alleged comments on Klopp, Liverpool**\
 `Premier League official David Coote has been suspended with immediate effect after footage appearing to show him voicing foul-mouthed criticism of former Liverpool manager Jurgen Klopp appeared on social media.`\
 https://nytimes.com/athletic/5914912/2024/11/11/david-coote-video-liverpool-jurgen-klopp/

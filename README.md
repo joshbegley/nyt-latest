@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5914506/2024/11/11/anthony-edwards-timberwolves-nba
 https://nytimes.com/2024/11/11/world/middleeast/iran-trump-election-deal.html
 
 **Self-inflicted wounds plague Pistons' otherwise promising start to season**\
-`Five of Detroit's seven losses have been by eight points or fewer, being outscored by a total of 22 points in those fourth quarters.`\
+`Five of Detroit's seven losses have been by eight points or fewer.`\
 https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
 

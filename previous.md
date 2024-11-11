@@ -1,3 +1,7 @@
+**Bears' Matt Eberflus evaluating offensive play caller change**\
+`Bears rookie quarterback Caleb Williams hasn't thrown a touchdown pass since Week 6. Chicago hasn't scored a touchdown since Week 8.`\
+https://nytimes.com/athletic/5914963/2024/11/11/bears-coaching-staff-changes-offense-play-caller/
+
 **PGMOL suspend referee Coote after alleged comments on Klopp, Liverpool**\
 `Premier League official David Coote has been suspended with immediate effect after footage appearing to show him voicing foul-mouthed criticism of former Liverpool manager Jurgen Klopp appeared on social media.`\
 https://nytimes.com/athletic/5914912/2024/11/11/david-coote-video-liverpool-jurgen-klopp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/world/middleeast/iran-trump-election-deal.html
 **Self-inflicted wounds plague Pistons' otherwise promising start to season**\
 `Five of Detroit's seven losses have been by eight points or fewer, being outscored by a total of 22 points in those fourth quarters.`\
 https://nytimes.com/athletic/5913977/2024/11/11/pistons-self-inflicted-wounds/
-
-**'I don't need the lights on me': Casper Ruud steps out of the shadows in Turin**\
-`The Norwegian's low-key demeanor and thoughtfulness sometimes allow his tennis talents to go under the radar.`\
-https://nytimes.com/athletic/5908812/2024/11/11/casper-ruud-tennis-atp-tour-finals/
 
