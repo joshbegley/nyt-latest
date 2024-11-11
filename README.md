@@ -1,3 +1,7 @@
+**Cardinals blow out Jets 31-6 for fourth straight win: Takeaways**\
+`Quarterback Kyler Murray's three touchdowns and precision passing helped the Cardinals blow out Aaron Rodgers and the Jets.`\
+https://nytimes.com/athletic/5911933/2024/11/10/jets-cardinals-score-result-takeaways/
+
 **Man Arrested in Shooting That Killed One at Tuskegee University**\
 `The shooting, which wounded 12 people, happened early on Sunday as crowds gathered at the historically Black school to celebrate the final day of its 100th homecoming week.`\
 https://nytimes.com/2024/11/10/us/tuskegee-university-shooting-alabama.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5913165/2024/11/10/trey-lance-cowboys-qb/
 `He memorably portrayed a frizzy-haired science teacher roping her elementary school class into adventures aboard a shape-shifting yellow bus.`\
 https://nytimes.com/2024/11/10/obituaries/bruce-degen-dead.html
 
-**Broncos heartbroken by blocked field goal loss to Chiefs: 'We were right there'**\
+**'We were right there': Broncos heartbroken by blocked field goal loss to Chiefs**\
 `The harassment of Patrick Mahomes? The leaps by Bo Nix and Denver's young offensive weapons? None of it eased the pain of Sunday's loss.`\
 https://nytimes.com/athletic/5912797/2024/11/10/broncos-loss-chiefs-blocked-field-goal-devastating/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913110/2024/11/10/todd-golden-florida-sexual-haras
 **FIFA urged to postpone confirmation of Saudi as World Cup hosts**\
 `FIFA should postpone next month’s vote to confirm Saudi Arabia as the host of the 2034 men’s World Cup until the Gulf state introduces major reforms to protect human rights, according to a report from nine global campaign groups, including Amnesty International and Human Rights Watch.`\
 https://nytimes.com/athletic/5912565/2024/11/10/saudi-world-cup-bid-human-rights/
-
-**'One you're sick over': How the Falcons managed to hand a win to their most bitter rival**\
-`The Falcons had a slow start, failed on three of four field goal attempts and lost a sloppy game to the Saints and their interim coach.`\
-https://nytimes.com/athletic/5913007/2024/11/10/falcons-saints-kirk-cousins-frustration/
 

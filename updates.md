@@ -1,3 +1,7 @@
+**Man Arrested in Shooting That Killed One at Tuskegee University**\
+`The shooting, which wounded 12 people, happened early on Sunday as crowds gathered at the historically Black school to celebrate the final day of its 100th homecoming week.`\
+https://nytimes.com/2024/11/10/us/tuskegee-university-shooting-alabama.html
+
 **Trey Lance replaces Cooper Rush at QB for Cowboys**\
 `The fourth-year quarterback sees first regular season action for Dallas in Week 10 game against Eagles. `\
 https://nytimes.com/athletic/5913165/2024/11/10/trey-lance-cowboys-qb/

@@ -1,3 +1,7 @@
+**Man Arrested in Shooting That Killed One at Tuskegee University**\
+`The shooting, which wounded 12 people, happened early on Sunday as crowds gathered at the historically Black school to celebrate the final day of its 100th homecoming week.`\
+https://nytimes.com/2024/11/10/us/tuskegee-university-shooting-alabama.html
+
 **Trey Lance replaces Cooper Rush at QB for Cowboys**\
 `The fourth-year quarterback sees first regular season action for Dallas in Week 10 game against Eagles. `\
 https://nytimes.com/athletic/5913165/2024/11/10/trey-lance-cowboys-qb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5912565/2024/11/10/saudi-world-cup-bid-human-rights
 **'One you're sick over': How the Falcons managed to hand a win to their most bitter rival**\
 `The Falcons had a slow start, failed on three of four field goal attempts and lost a sloppy game to the Saints and their interim coach.`\
 https://nytimes.com/athletic/5913007/2024/11/10/falcons-saints-kirk-cousins-frustration/
-
-**Marlins set to hire Dodgers' Clayton McCullough as new manager: Sources**\
-`McCullough replaces Skip Schumaker, whose Marlins had a 62-100 record this year.`\
-https://nytimes.com/athletic/5912987/2024/11/10/marlins-hire-clayton-mccullough-manager/
 
