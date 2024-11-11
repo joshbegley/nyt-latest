@@ -1,3 +1,7 @@
+**Lou Donaldson, Soulful Master of the Alto Saxophone, Dies at 98**\
+`A player of impeccable technique and a mainstay of the Blue Note label, he recorded constantly as both a leader and a sideman beginning in 1952.`\
+https://nytimes.com/2024/11/11/arts/music/lou-donaldson-dead.html
+
 **Wisconsin staffer Jack Del Rio arrested on operating while intoxicated charge**\
 `Wisconsin said in a statement Monday: "We take matters like this very seriously and we are continuing to gather information."`\
 https://nytimes.com/athletic/5915412/2024/11/11/jack-del-rio-arrest-wisconsin/

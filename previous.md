@@ -1,3 +1,7 @@
+**Lou Donaldson, Soulful Master of the Alto Saxophone, Dies at 98**\
+`A player of impeccable technique and a mainstay of the Blue Note label, he recorded constantly as both a leader and a sideman beginning in 1952.`\
+https://nytimes.com/2024/11/11/arts/music/lou-donaldson-dead.html
+
 **Wisconsin staffer Jack Del Rio arrested on operating while intoxicated charge**\
 `Wisconsin said in a statement Monday: "We take matters like this very seriously and we are continuing to gather information."`\
 https://nytimes.com/athletic/5915412/2024/11/11/jack-del-rio-arrest-wisconsin/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/theater/paul-mescal-streetcar-bam.html
 **Van Nistelrooy to depart Man United following interim spell in charge**\
 `Ruud van Nistelrooy is set to depart Manchester United following Ruben Amorim&#8217;s arrival as head coach.`\
 https://nytimes.com/athletic/5912207/2024/11/11/van-nistelrooy-manchester-united-coach/
-
-**Pistons' Ausar Thompson cleared to play after blood clot issue**\
-`The 21-year-old started 38 of the 63 games he appeared in last year, averaging 8.8 points, 6.4 rebounds and 1.9 assists.`\
-https://nytimes.com/athletic/5915180/2024/11/11/pistons-ausar-thompson-cleared-return-nba/
 
