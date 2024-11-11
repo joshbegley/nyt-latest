@@ -1,3 +1,15 @@
+**Trump to Name Michael Waltz as His National Security Adviser**\
+`The president-elect has chosen a Republican member of Congress from Florida to oversee national security policy in the White House.`\
+https://nytimes.com/2024/11/11/us/politics/trump-michael-waltz-national-security-adviser.html
+
+**Tyreek Hill playing through torn wrist ligament, active vs. Rams for 'MNF'**\
+`Hill did not participate in team practices on Friday and Saturday but was not listed on the injury report Thursday.`\
+https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injury/
+
+**Some Arizona Latinos Find New Home Within Republican Party**\
+`President-elect Donald J. Trump won Arizona, flipping the swing state back to red. Younger Latino voters, like José Castro, were among those who shifted to the right, turning to older Republicans like Gerry Navarro, who were ready and willing to welcome him into their party.`\
+https://nytimes.com/video/world/americas/100000009815630/arizona-latino-vote-trump.html
+
 **John Robinson, legendary USC and LA Rams coach, dies at 89**\
 `John Robinson, who successfully coached at all levels of football, is one of the most successful CFB coaches ever.`\
 https://nytimes.com/athletic/5908522/2024/11/11/john-robinson-usc-la-rams-football-coach-dead/
