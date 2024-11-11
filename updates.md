@@ -1,3 +1,7 @@
+**John Gibson's return gives Ducks a boost, but how much will he play?**\
+`Gibson, who had an emergency appendectomy on Sept. 25, saved 38 of 40 shots in his season debut.`\
+https://nytimes.com/athletic/5916080/2024/11/11/ducks-goalie-gibson-dostal/
+
 **Georgia's Kirby Smart on player celebrating after loss to Ole Miss: 'Just stupid'**\
 `Backup safety Jake Pope later clarified that he was celebrating with a former friend and teammate who he saw on the field. `\
 https://nytimes.com/athletic/5916100/2024/11/11/georgia-jake-pope-celebrating-ole-miss/

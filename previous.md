@@ -1,3 +1,7 @@
+**John Gibson's return gives Ducks a boost, but how much will he play?**\
+`Gibson, who had an emergency appendectomy on Sept. 25, saved 38 of 40 shots in his season debut.`\
+https://nytimes.com/athletic/5916080/2024/11/11/ducks-goalie-gibson-dostal/
+
 **Georgia's Kirby Smart on player celebrating after loss to Ole Miss: 'Just stupid'**\
 `Backup safety Jake Pope later clarified that he was celebrating with a former friend and teammate who he saw on the field. `\
 https://nytimes.com/athletic/5916100/2024/11/11/georgia-jake-pope-celebrating-ole-miss/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/briefing/trump-administration-climate-amsterdam.h
 **Biden Honors Veterans and Lays Wreath at Arlington Cemetery**\
 `President Biden acknowledged that it would be his last time at the Arlington National Cemetery on Veterans Day as the country’s commander in chief.`\
 https://nytimes.com/video/us/100000009819989/veterans-day-biden-arlington-national-cemetery.html
-
-**Former Staten Island Representative Is Paralyzed After Fall From Horse**\
-`Michael Grimm, a Republican who resigned in 2015 after pleading guilty to felony tax evasion, was paralyzed from the chest down during a polo competition in September.`\
-https://nytimes.com/2024/11/11/nyregion/michael-grimm-paralyzed-staten-island.html
 
