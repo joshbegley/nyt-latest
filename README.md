@@ -1,3 +1,7 @@
+**An important week for the narrative of this Georgia season**\
+`Beat Tennessee, and all is OK. Lose, and the narrative on this Georgia season is all but set, not in a good way. `\
+https://nytimes.com/athletic/5915783/2024/11/11/georgia-tennessee-college-football-playoff-implications/
+
 **Bishop Calls on Anglican Leader to Quit Over Handling of Abuse Scandal**\
 `An independent report last week said that Justin Welby, the archbishop of Canterbury, took insufficient action after learning of alleged abuse decades ago at Christian summer camps.`\
 https://nytimes.com/2024/11/11/world/europe/archbishop-canterbury-abuse-scandal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915500/2024/11/11/robert-lewandowski-barcelona-rea
 **California Counts Methodically as House Control Hangs in the Balance**\
 `Ten of the 18 races that will determine which party controls the House of Representatives are in California. No state takes longer to tally votes.`\
 https://nytimes.com/2024/11/11/us/california-ballot-count-house-election.html
-
-**Broncos' Sean Payton accepts blame for FG gaffe in loss: 'It's not on the player'**\
-`The Broncos believed they had their field-goal protection in working order, but Kansas City's game-saving block proved otherwise.`\
-https://nytimes.com/athletic/5914385/2024/11/11/broncos-sean-payton-blocked-field-goal-chiefs/
 
