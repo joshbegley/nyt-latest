@@ -1,3 +1,11 @@
+**Seven things I think I know about the Toronto Raptors through 10 (plus one) games**\
+`Agbaji is shining while the defence is struggling as the Raptors fight through a rough schedule and injuries. `\
+https://nytimes.com/athletic/5914124/2024/11/11/ochai-agbajis-raptors-early-lessons/
+
+**Ten Clippers takes after 10 games: Kawhi will return slowly, Harden's turnovers and more**\
+`Norman Powell's shot to be an All-Star, Ivica Zubac's heavy workload and more thoughts on the 6-4 Clippers.`\
+https://nytimes.com/athletic/5913999/2024/11/11/clippers-kawhi-leonard-first-10-games/
+
 **'Just to be here is surreal': Jake Bates, Lions end tough stretch 5-0 with wild comeback vs. Texans**\
 `The Lions are 8-1 for the first time since 1954.`\
 https://nytimes.com/athletic/5914176/2024/11/11/lions-texans-comeback-jake-bates-kicker/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5909538/2024/11/11/royce-lewis-twins-second-base/
 **WSL Briefing: The gap between the top three and the rest of the league is stark**\
 `Even with seven gameweeks gone, it feels almost certain that, come May, Chelsea, City and Arsenal will finish in the WSL top three`\
 https://nytimes.com/athletic/5913346/2024/11/11/wsl-arsenal-manchester-city-chelsea/
-
-**What is the 'Pellegrini offside trap' and why is it undermining Chelsea this season?**\
-`Top-class defenders must be capable of setting their own offside line, rather than working to the geometry of the penalty box`\
-https://nytimes.com/athletic/5912943/2024/11/11/chelsea-pellegrini-offside-trap-maresca/
-
-**How Austria's positive results and Euro 2024 are being undermined by FA conflict**\
-`Austria have had positive results on the pitch but off pitch issues are rearing their head`\
-https://nytimes.com/athletic/5905929/2024/11/11/austria-ralf-rangnick-fa/
 
