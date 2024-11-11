@@ -1,3 +1,7 @@
+**The Pulse: Week 10's most baffling results**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5913481/2024/11/11/lions-texans-jake-bates-the-pulse/
+
 **Are the Cardinals the new Lions? Jonathan Gannon's path starting to resemble Dan Campbell's**\
 `Gannon and Campbell each got off to awful starts with rebuilding franchises. Now, like the Lions, the Cardinals might have found something.`\
 https://nytimes.com/athletic/5914261/2024/11/11/cardinals-lions-jonathan-gannon-dan-campbell/

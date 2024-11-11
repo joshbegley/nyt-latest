@@ -1,3 +1,7 @@
+**The Pulse: Week 10's most baffling results**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5913481/2024/11/11/lions-texans-jake-bates-the-pulse/
+
 **Are the Cardinals the new Lions? Jonathan Gannon's path starting to resemble Dan Campbell's**\
 `Gannon and Campbell each got off to awful starts with rebuilding franchises. Now, like the Lions, the Cardinals might have found something.`\
 https://nytimes.com/athletic/5914261/2024/11/11/cardinals-lions-jonathan-gannon-dan-campbell/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/podcasts/trump-border-czar-russia-north-korea.htm
 **Brothers up front, Tyler Linderbaum and Patrick Mekari, are Ravens' 'Tom and Jerry'**\
 `The two O-linemen who have taken dramatically different paths to the NFL are good friends who engage in constant banter on myriad topics. `\
 https://nytimes.com/athletic/5910360/2024/11/11/tyler-linderbaum-patrick-mekari-ravens-offensive-line/
-
-**The Connections Companion No. 520**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 12, 2024.`\
-https://nytimes.com/2024/11/11/crosswords/connections-companion-520.html
 
