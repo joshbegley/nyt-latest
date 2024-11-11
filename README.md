@@ -1,3 +1,7 @@
+**At the Pandemic’s Start, Americans Began Drinking More. They Still Are.**\
+`Excessive drinking persisted in the years after Covid arrived, according to a new data.`\
+https://nytimes.com/2024/11/11/health/alcohol-misuse-pandemic.html
+
 **Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
 `The Seahawks are coming out of their bye week at 4-5 and last in the NFC West. It's a great time to submit questions to Michael-Shawn Dugar.`\
 https://nytimes.com/athletic/5915797/2024/11/11/seahawks-mailbag-bye-week/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/nyregion/michael-grimm-paralyzed-staten-island.ht
 **Biden Honors Veterans in Ceremony at Arlington Cemetery**\
 `“This is the last time I will stand here at Arlington as commander in chief,” President Biden said in remembering service members who have served the country.`\
 https://nytimes.com/2024/11/11/us/politics/biden-veterans-day.html
-
-**Indiana Man Convicted of Killing 2 Girls After Video Found on Victim’s Phone**\
-`A jury on Monday found Richard Allen guilty of killing Liberty German and Abigail William, who were on a hike in 2017. Video showed a man following the girls.`\
-https://nytimes.com/2024/11/11/us/delphi-murders-richard-allen-trial.html
 
