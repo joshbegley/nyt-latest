@@ -1,3 +1,7 @@
+**Marlins to add Giants' Pedro Guerrero as new hitting coach: Source**\
+`Guerrero has several ties to Marlins assistant general manager Gabe Kapler.`\
+https://nytimes.com/athletic/5913713/2024/11/10/marlins-hire-pedro-guerrero-hitting-coach/
+
 **In loss to Steelers, Commanders reminded that the 'little things always add up'**\
 `Washington fell to 7-3 and, combined with Philadelphia hammering Dallas, dropped to second place in the NFC East ahead of Thursday night.`\
 https://nytimes.com/athletic/5913454/2024/11/10/commanders-loss-steelers-russell-wilson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913499/2024/11/10/giannis-jaylen-brown-trolling-ce
 **Steelers' new-look offense proves it can finally carry the defense when needed**\
 `For the first time in years, the Steelers are showing they can win because of the offense, not in spite of it.`\
 https://nytimes.com/athletic/5913348/2024/11/10/steelers-russell-wilson-mike-williams-commanders/
-
-**Josh Allen's brilliance overshadows 2 INTs, run defense shows signs of hope: Bills observations**\
-`Plus, how the new defensive tackles fit in.`\
-https://nytimes.com/athletic/5913319/2024/11/10/bills-josh-allen-run-defense-observations-colts/
 

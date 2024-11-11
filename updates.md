@@ -1,3 +1,7 @@
+**Marlins to add Giants' Pedro Guerrero as new hitting coach: Source**\
+`Guerrero has several ties to Marlins assistant general manager Gabe Kapler.`\
+https://nytimes.com/athletic/5913713/2024/11/10/marlins-hire-pedro-guerrero-hitting-coach/
+
 **In loss to Steelers, Commanders reminded that the 'little things always add up'**\
 `Washington fell to 7-3 and, combined with Philadelphia hammering Dallas, dropped to second place in the NFC East ahead of Thursday night.`\
 https://nytimes.com/athletic/5913454/2024/11/10/commanders-loss-steelers-russell-wilson/
