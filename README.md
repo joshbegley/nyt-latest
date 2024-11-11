@@ -1,5 +1,5 @@
 **Analysing Lewandowski’s offside goal against Real Sociedad - 'It's clear what I saw'**\
-`Barcelona lost 1-0 to Real Sociedad on Sunday but all the focus has been on a controversial decision to rule out an effort by Lewandowski`\
+`Barcelona lost 1-0 in San Sebastian on Sunday but all the focus has been on a controversial decision to rule out an effort by Lewandowski`\
 https://nytimes.com/athletic/5915500/2024/11/11/robert-lewandowski-barcelona-real-sociedad/
 
 **California Counts Methodically as House Control Hangs in the Balance**\
