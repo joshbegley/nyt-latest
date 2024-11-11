@@ -1,3 +1,7 @@
+**John Robinson, legendary USC and LA Rams coach, dies at 89**\
+`John Robinson, who successfully coached at all levels of football, is one of the most successful CFB coaches ever.`\
+https://nytimes.com/athletic/5908522/2024/11/11/john-robinson-usc-la-rams-football-coach-dead/
+
 **NFL Week 10 inactives and fantasy tips: Tyreek Hill is active for Monday Night Football**\
 `Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
 https://nytimes.com/athletic/5909628/2024/11/11/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
