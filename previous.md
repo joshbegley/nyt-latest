@@ -1,4 +1,4 @@
-**Celtics shrug off slow start for road win over Bucks: 'We won't just give in'**\
+**'We won't just give in': Celtics shrug off slow start for road win over Bucks**\
 `Despite shooting just 40.7 percent from the field, the Celtics won with defense and a late-game push.`\
 https://nytimes.com/athletic/5913739/2024/11/10/celtics-slow-start-road-win-bucks/
 
