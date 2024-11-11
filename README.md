@@ -1,3 +1,15 @@
+**'I thought we lost our pace': Bucks offense fizzles in second half against Celtics**\
+`After holding an 11-point lead at halftime, the Bucks' offense ground to a halt in the second half against an aggressive Celtics defense.`\
+https://nytimes.com/athletic/5913217/2024/11/11/bucks-giannis-antetokounmpo-celtics-2/
+
+**Wolves' Chris Finch still searching for the right answers: 'I didn't get it right'**\
+`"End of the game, I’ve got to be clearer about what we’re trying to do on both sides of the ball and get us some help there," Finch said.`\
+https://nytimes.com/athletic/5913183/2024/11/11/timberwolves-chris-finch-loss-heat/
+
+**Real Madrid not budgeting for any income from Club World Cup**\
+`Real Madrid have not budgeted for any income from the upcoming FIFA Club World Cup in their club accounts &#8220;as there is no precise information on the subject.`\
+https://nytimes.com/athletic/5914364/2024/11/11/real-madrid-club-world-cup-accounts/
+
 **Iran and Trump Are Front of Mind at Saudi Summit**\
 `Leaders from across the Arab and Muslim world were in Riyadh for a meeting officially convened to discuss the fighting in Gaza and Lebanon.`\
 https://nytimes.com/2024/11/11/world/middleeast/saudi-riyadh-iran-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/11/us/politics/trump-stefanik-un-ambassador.html
 **Fantasy Premier League: What we learnt from Gameweek 11**\
 `We look at Manchester United, Manchester City and Liverpool options - plus Brighton's no-brainer bargain`\
 https://nytimes.com/athletic/5912398/2024/11/11/fantasy-premier-league-what-we-learnt-from-gameweek-11-joao-pedro/
-
-**Adam Johnson: Man arrested on suspicion of manslaughter re-bailed until January**\
-`A man arrested on suspicion of manslaughter following the death of Adam Johnson has been re-bailed until January.`\
-https://nytimes.com/athletic/5914475/2024/11/11/adam-johnson-hockey-bail/
-
-**A Potential Fight Over the Fed’s Future Ramps Up**\
-`As Trump allies including Elon Musk endorse ending the Federal Reserve’s independence, the central bank’s chair is reportedly ready to go to court to fight back.`\
-https://nytimes.com/2024/11/11/business/dealbook/fed-powell-trump.html
-
-**NBA Rewind: The Cavs are unstoppable, and the NBA Cup returns for Year 2**\
-`Who's hot and who's not as the in-season tournament prepares to tip off on Tuesday.`\
-https://nytimes.com/athletic/5906533/2024/11/11/nba-rewind-cavaliers-nba-cup-preview/
 
