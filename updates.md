@@ -1,3 +1,7 @@
+**Hoffenheim sack American head coach Matarazzo**\
+`Hoffenheim are set to sack American head coach Pellegrino Matarazzo.`\
+https://nytimes.com/athletic/5914281/2024/11/11/pellegrino-matarazzo-hoffenheim-manager-sacked/
+
 **Weekend NHL rankings: Canucks, Predators and 5 way-too-early offseason lessons**\
 `Everything we assumed must be true during the offseason is always correct ... except when it's not.`\
 https://nytimes.com/athletic/5912782/2024/11/11/nhl-rankings-canucks-predators-offseason/

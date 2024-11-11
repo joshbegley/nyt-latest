@@ -1,3 +1,7 @@
+**Hoffenheim sack American head coach Matarazzo**\
+`Hoffenheim are set to sack American head coach Pellegrino Matarazzo.`\
+https://nytimes.com/athletic/5914281/2024/11/11/pellegrino-matarazzo-hoffenheim-manager-sacked/
+
 **Weekend NHL rankings: Canucks, Predators and 5 way-too-early offseason lessons**\
 `Everything we assumed must be true during the offseason is always correct ... except when it's not.`\
 https://nytimes.com/athletic/5912782/2024/11/11/nhl-rankings-canucks-predators-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5910313/2024/11/11/bears-caleb-williams-shane-waldr
 **What I'm hearing about Penguins' Erik Karlsson, Tristan Jarry situations**\
 `Internally, the Penguins are concerned with Erik Karlsson's defensive work. Here's what else I've learned in recent talks with sources.`\
 https://nytimes.com/athletic/5910124/2024/11/11/penguins-erik-karlsson-tristan-jarry/
-
-**‘One of the more talented players on the planet’: Jayson Tatum checks in at No. 91 on ‘The Basketball 100’**\
-`Whether experiencing great success or significant failure, Tatum has scaled the NBA hierarchy through diligence and hard work.`\
-https://nytimes.com/athletic/5903307/2024/11/11/jayson-tatum-the-basketball-100-book/
 
