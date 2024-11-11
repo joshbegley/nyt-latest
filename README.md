@@ -1,3 +1,31 @@
+**Cowboys Today: 4 consecutive losses and things are not pretty in Dallas**\
+`The Cowboys missed opportunities in the first half and things were all downhill from there against the Eagles.`\
+https://nytimes.com/athletic/5914217/2024/11/11/cowboys-today-losing-streak-quarterbacks/
+
+**Zhuzh Up This Risotto However You Like**\
+`Or don’t: A bowl of classic, creamy risotto is perfect on its own.`\
+https://nytimes.com/2024/11/11/dining/risotto.html
+
+**Hama Amadou, West African Political ‘Phoenix,’ Dies at 74**\
+`An embattled leader for decades in Niger’s rough-and-tumble politics, he alternated stints in high office with prison and exile.`\
+https://nytimes.com/2024/11/11/world/africa/hama-amadou-dead.html
+
+**Healing the Political Divide and Despair**\
+`Readers discuss the rancor and mistrust and suggest ways to come together. Also: Floods in America; support for youths; the arbitration illusion.`\
+https://nytimes.com/2024/11/11/opinion/election-political-divide-despair.html
+
+**Uranus Might Have Experienced a Freak Event When Voyager 2 Visited**\
+`Much of the understanding of the seventh planet comes from a brief flyby nearly 40 years ago, which researchers now say overlapped with an exceptional solar event.`\
+https://nytimes.com/2024/11/11/science/uranus-voyager-2-flyby.html
+
+**How to Dye Your Own Hair and Not Regret It**\
+`At-home tips from a model, an artist and a professional colorist.`\
+https://nytimes.com/2024/11/11/t-magazine/dye-hair-at-home.html
+
+**Why Trump’s Deportations Will Drive Up Your Grocery Bill**\
+`How will voters react?`\
+https://nytimes.com/2024/11/11/opinion/trump-deportation-inflation-grocery-bills.html
+
 **The Singular Force That Was Judith Jamison**\
 `She was always a goddess of dance — even before her triumph in “Cry.” The Ailey star turned artistic director stretched like there was no tomorrow.`\
 https://nytimes.com/2024/11/11/arts/dance/judith-jamison-appraisal.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5914963/2024/11/11/bears-coaching-staff-changes-off
 **PGMOL suspend referee Coote after alleged comments on Klopp, Liverpool**\
 `Premier League official David Coote has been suspended with immediate effect after footage appearing to show him voicing foul-mouthed criticism of former Liverpool manager Jurgen Klopp appeared on social media.`\
 https://nytimes.com/athletic/5914912/2024/11/11/david-coote-video-liverpool-jurgen-klopp/
-
-**Kennesaw State coaching job profile: Pluses, minuses and candidates to replace Brian Bohannon**\
-`There are parts to like about this job, but it’s behind its new peers financially. The upside is obvious. The timeline is less clear.`\
-https://nytimes.com/athletic/5914711/2024/11/11/kennesaw-state-football-job-coaching-search/
-
-**Jamie Oliver Pulls Children’s Book Amid Criticism of Insensitivity**\
-`The celebrity chef’s second children’s book, “Billy and the Epic Escape,” faced accusations that it stereotyped First Nations people in Australia.`\
-https://nytimes.com/2024/11/11/books/jamie-oliver-book-australia.html
-
-**Israel Orders New Evacuations in Lebanon as Diplomacy Ramps Up**\
-`The widespread orders across southern Lebanon were the first such warnings in nearly a month and came amid what appeared to be intensifying efforts to reach a cease-fire.`\
-https://nytimes.com/2024/11/11/world/middleeast/israel-lebanon-hezbollah.html
-
-**Bitcoin Sets Another Record as Bullish Bets Continue**\
-`The cryptocurrency hit $82,000 as a rally that began after President-elect Donald J. Trump’s election gained steam.`\
-https://nytimes.com/2024/11/11/business/dealbook/bitcoin-price-record-high.html
-
-**College Football Playoff 2024 projections: Indiana up to 92 percent chance to make field**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/11/college-football-playoff-projections-odds/
-
-**The Bounce: Is Anthony Edwards the next Steph Curry?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5914506/2024/11/11/anthony-edwards-timberwolves-nba-cup-stephen-curry-nba-the-bounce/
-
-**Iran Debates Whether It Could Make a Deal With Trump**\
-`Some in Iran’s new, more moderate government think the result of the presidential election provides an opportunity to make a lasting deal with the United States.`\
-https://nytimes.com/2024/11/11/world/middleeast/iran-trump-election-deal.html
 
