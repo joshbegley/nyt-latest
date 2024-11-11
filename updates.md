@@ -1,3 +1,7 @@
+**Shigeru Ishiba Wins Vote to Remain as Japan’s Prime Minister**\
+`Parliament voted Monday to stick with Ishiba, who will lead a minority government after his party suffered heavy losses in an election last month.`\
+https://nytimes.com/2024/11/11/world/asia/japan-prime-minister.html
+
 **Who Has the Best View of the Chrysler Building? These Bees.**\
 `On and around some of New York City’s most iconic buildings, beehives are buzzing.`\
 https://nytimes.com/2024/11/11/nyregion/chrysler-building-urban-beekeeping.html
