@@ -1,3 +1,19 @@
+**Military Judge Postpones Guilty Plea Proceedings in Sept. 11 Case**\
+`The judge asked defense and prosecution lawyers to settle on a date for the accused mastermind of the terrorist attacks to plead guilty.`\
+https://nytimes.com/2024/11/10/us/politics/sept-11-plea-deal-guantanamo.html
+
+**49ers, Jake Moody deliver wobbly win but team is still trying to find its dominant self**\
+`Moody said his game-winning kick was from the same spot as his third miss, which sparked a sideline confrontation with Deebo Samuel. `\
+https://nytimes.com/athletic/5913230/2024/11/10/49ers-jake-moody-win-buccaneers-wobbly/
+
+**This Is the Cake We Baked**\
+`Talking to people who helped make Donald Trump’s victory happen.`\
+https://nytimes.com/2024/11/10/podcasts/this-is-the-cake-we-baked-this-american-life-nyt-audio.html
+
+**Chaos, Provocations and Violence: How Attacks on Israeli Soccer Fans Unfolded**\
+`Antisemitic assaults on visiting Israeli soccer fans, and incendiary chants and attacks by some Israelis: Here’s what we know so far about the violence in Amsterdam last week.`\
+https://nytimes.com/2024/11/10/world/europe/israeli-soccer-fans-amsterdam-attack.html
+
 **Tyrone Tracy Jr.'s back-breaking OT fumble a painful reminder of rookie growing pains**\
 `“No matter how many times people come up to you and tell you it's not your fault, you still got that feeling inside that it was your fault."`\
 https://nytimes.com/athletic/5912678/2024/11/10/tyrone-tracy-giants-fumble-pathers-loss/
