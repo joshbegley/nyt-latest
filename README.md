@@ -1,3 +1,7 @@
+**Nebraska appoints Dana Holgorsen to OC, Marcus Satterfield demoted**\
+`Holgorsen will call plays this weekend against USC, which Nebraska enters with a question at QB as Dylan Raiola recovers from injury.`\
+https://nytimes.com/athletic/5915691/2024/11/11/dana-holgorsen-nebraska-offensive-coordinator-college-football/
+
 **What to watch this week in NBA: The NBA Cup starts plus LeBron vs. Wemby**\
 `What to watch, and why to watch, as the NBA Cup tips off this week.`\
 https://nytimes.com/athletic/5909427/2024/11/11/nba-cup-what-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915260/2024/11/11/yankees-aaron-boone-juan-soto-fr
 **What to Know About Elise Stefanik, Trump’s Pick for U.N. Ambassador**\
 `Ms. Stefanik, who chairs the House Republican Conference, undertook a dramatic transformation that brought her to the center of Donald J. Trump’s orbit.`\
 https://nytimes.com/2024/11/11/nyregion/elise-stefanik-trump-un.html
-
-**Lou Donaldson, Soulful Master of the Alto Saxophone, Dies at 98**\
-`A player of impeccable technique and a mainstay of the Blue Note label, he recorded constantly as both a leader and a sideman beginning in 1952.`\
-https://nytimes.com/2024/11/11/arts/music/lou-donaldson-dead.html
 
