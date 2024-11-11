@@ -1,3 +1,7 @@
+**Leeds head of recruitment Miles set to leave club**\
+`Leeds United head of recruitment Jordan Miles is set to leave after nine months at the Championship club.`\
+https://nytimes.com/athletic/5910439/2024/11/11/jordan-miles-leeds-exit/
+
 **Throngs of Cyclists Ride for Hours Between Two Chinese Cities**\
 `They were making the 40-mile journey from Zhengzhou, the capital of Henan Province, to the neighboring city of Kaifeng, a cycling trip that can take up to five hours one-way.`\
 https://nytimes.com/video/world/asia/100000009819274/china-bicycle-zhengzhou-kaifeng.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/nyregion/thomas-donlon-nypd-eric-adams.html
 **Barca briefing: A controversial Lewandowski offside and missing Yamal on a night to forget**\
 `A run of seven wins in a row came to an end for Hansi Flick's side in frustrating circumstances against Real Sociedad`\
 https://nytimes.com/athletic/5913721/2024/11/11/real-sociedad-barcelona-lewandowski-yamal/
-
-**Mattel Mistakenly Lists Porn Site on Packaging for ‘Wicked’ Dolls**\
-`The site has a similar address to one that promotes a film adaptation of the hit musical. The toymaker apologized for the “unfortunate error.”`\
-https://nytimes.com/2024/11/11/movies/mattel-wicked-porn-site-mistake.html
 
