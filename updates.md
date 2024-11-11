@@ -1,3 +1,7 @@
+**Yohannes, 17, declares for USWNT over the Netherlands**\
+`Yohannes was previously keeping her options open as the teenager considered potential paths for her future`\
+https://nytimes.com/athletic/5915066/2024/11/11/lily-yohannes-uswnt-netherlands/
+
 **Gluck: NASCAR's broken playoff system should be at a tipping point**\
 `Is it time to revamp NASCAR's method of crowning a champion? After another year with a winner who struggled during the season, it should be.`\
 https://nytimes.com/athletic/5914726/2024/11/11/nascar-playoffs-system-joey-logano-champion/
