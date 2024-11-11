@@ -1,3 +1,11 @@
+**Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
+`Matt Eberflus likely will make it to season's end, but after the Bears' freefall continued with a lopsided loss to Pats, changes are needed.`\
+https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-everflus-coaches-under-fire/
+
+**Who's to blame on the Bears? Accountability for such a bad loss goes through whole franchise**\
+`This disastrous loss falls on everyone, from George McCaskey to Caleb Williams, and the process that led to Shane Waldron deserves scrutiny.`\
+https://nytimes.com/athletic/5913112/2024/11/10/bears-loss-blame-game-matt-eberflus-ryan-poles/
+
 **Military Judge Postpones Guilty Plea Proceedings in Sept. 11 Case**\
 `The judge asked defense and prosecution lawyers to settle on a date for the accused mastermind of the terrorist attacks to plead guilty.`\
 https://nytimes.com/2024/11/10/us/politics/sept-11-plea-deal-guantanamo.html

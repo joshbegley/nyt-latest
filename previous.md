@@ -1,3 +1,11 @@
+**Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
+`Matt Eberflus likely will make it to season's end, but after the Bears' freefall continued with a lopsided loss to Pats, changes are needed.`\
+https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-everflus-coaches-under-fire/
+
+**Who's to blame on the Bears? Accountability for such a bad loss goes through whole franchise**\
+`This disastrous loss falls on everyone, from George McCaskey to Caleb Williams, and the process that led to Shane Waldron deserves scrutiny.`\
+https://nytimes.com/athletic/5913112/2024/11/10/bears-loss-blame-game-matt-eberflus-ryan-poles/
+
 **Military Judge Postpones Guilty Plea Proceedings in Sept. 11 Case**\
 `The judge asked defense and prosecution lawyers to settle on a date for the accused mastermind of the terrorist attacks to plead guilty.`\
 https://nytimes.com/2024/11/10/us/politics/sept-11-plea-deal-guantanamo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5913195/2024/11/10/joey-logano-nascar-cup-series-ch
 **Cardinals blow out Jets 31-6 for fourth straight win: Takeaways**\
 `Quarterback Kyler Murray's three touchdowns and precision passing helped the Cardinals blow out Aaron Rodgers and the Jets.`\
 https://nytimes.com/athletic/5911933/2024/11/10/jets-cardinals-score-result-takeaways/
-
-**Man Arrested in Shooting That Killed One at Tuskegee University**\
-`The shooting, which wounded 12 people, happened early on Sunday as crowds gathered at the historically Black school to celebrate the final day of its 100th homecoming week.`\
-https://nytimes.com/2024/11/10/us/tuskegee-university-shooting-alabama.html
-
-**Trey Lance replaces Cooper Rush at QB for Cowboys**\
-`The fourth-year quarterback sees first regular season action for Dallas in Week 10 game against Eagles. `\
-https://nytimes.com/athletic/5913165/2024/11/10/trey-lance-cowboys-qb/
 
