@@ -1,3 +1,7 @@
+**Van Nistelrooy to depart Man United following interim coach spell**\
+`Ruud van Nistelrooy is set to depart Manchester United following Ruben Amorim&#8217;s arrival as head coach.`\
+https://nytimes.com/athletic/5912207/2024/11/11/van-nistelrooy-manchester-united-coach/
+
 **Pistons' Ausar Thompson cleared to play after blood clot issue**\
 `The 21-year-old started 38 of the 63 games he appeared in last year, averaging 8.8 points, 6.4 rebounds and 1.9 assists.`\
 https://nytimes.com/athletic/5915180/2024/11/11/pistons-ausar-thompson-cleared-return-nba/
