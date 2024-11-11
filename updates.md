@@ -1,3 +1,7 @@
+**NFL Week 10 inactives and fantasy tips: Tyreek Hill is active for Monday Night Football**\
+`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
+https://nytimes.com/athletic/5909628/2024/11/11/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
+
 **Tage Thompson injury is the Sabres' latest adversity in ugly loss to Canadiens**\
 `The Sabres' matinee matchup against the Canadiens quickly turned into a messy, chaotic game that only seemed to get worse as it went along.`\
 https://nytimes.com/athletic/5916160/2024/11/11/sabres-canadiens-tage-thompson-injury/
