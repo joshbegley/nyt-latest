@@ -1,3 +1,7 @@
+**Many Democrats Who Reliably Turned Against Trump Sat This One Out**\
+`Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
+https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
+
 **Why Do So Many Americans Pass Up Bigger Social Security Checks?**\
 `It shouldn’t be so easy to leave benefits on the table.`\
 https://nytimes.com/2024/11/11/opinion/social-security-age.html

@@ -14,7 +14,7 @@ https://nytimes.com/2024/11/11/us/haiti-spirit-airlines-plane-shot-at.html
 `Coote has been suspended after footage appearing to show him voicing criticism of former Jurgen Klopp spread on social media.`\
 https://nytimes.com/athletic/5915433/2024/11/11/david-coote-referee-liverpool-profile/
 
-**Democrats, Reliable as an Anti-Trump Bulwark for Years, Sat Out This Time**\
+**Many Democrats Who Reliably Turned Against Trump Sat This One Out**\
 `Many Democrats failed to turn out to vote at the rate they did in 2020 when they ousted Donald Trump, according to an analysis of election data.`\
 https://nytimes.com/2024/11/11/us/politics/democrats-trump-harris-turnout.html
 
