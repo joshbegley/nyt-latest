@@ -1,3 +1,7 @@
+**Sam Darnold's turnovers nearly doom Vikings in narrow win over Jaguars**\
+`Darnold's three interceptions stalled the offense in the red zone, but Minnesota's defense and special teams came through in a 12-7 triumph.`\
+https://nytimes.com/athletic/5913400/2024/11/10/sam-darnold-turnovers-vikings-jaguars/
+
 **Cowboys won't fire Mike McCarthy midseason: Jerry Jones**\
 `"I haven't had good experience changing coaches in the middle of the season," Jerry Jones said after Sunday's blowout loss to the Eagles.`\
 https://nytimes.com/athletic/5913377/2024/11/10/jerry-jones-cowboys-coaching-change-mike-mccarthy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5913365/2024/11/10/chet-holmgren-injury-thunder-war
 **Jalen Hurts' 4 TDs pace Eagles in 34-6 win vs. Cowboys: Takeaways**\
 `The Eagles are rounding into form for a playoff push; the Cowboys fell to 0-4 at home and posted one of their worst offensive outings. `\
 https://nytimes.com/athletic/5911939/2024/11/10/eagles-cowboys-score-takeaways-result/
-
-**Greenberg: After 9 games, we've reached the 'fire everybody' stage for the Chicago Bears**\
-`Matt Eberflus likely will make it to season's end, but after the Bears' freefall continued with a lopsided loss to Pats, changes are needed.`\
-https://nytimes.com/athletic/5913037/2024/11/10/bears-patriots-matt-eberflus-coaches-under-fire/
 

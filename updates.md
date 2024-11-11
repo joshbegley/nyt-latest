@@ -1,3 +1,7 @@
+**Sam Darnold's turnovers nearly doom Vikings in narrow win over Jaguars**\
+`Darnold's three interceptions stalled the offense in the red zone, but Minnesota's defense and special teams came through in a 12-7 triumph.`\
+https://nytimes.com/athletic/5913400/2024/11/10/sam-darnold-turnovers-vikings-jaguars/
+
 **Cowboys won't fire Mike McCarthy midseason: Jerry Jones**\
 `"I haven't had good experience changing coaches in the middle of the season," Jerry Jones said after Sunday's blowout loss to the Eagles.`\
 https://nytimes.com/athletic/5913377/2024/11/10/jerry-jones-cowboys-coaching-change-mike-mccarthy/
