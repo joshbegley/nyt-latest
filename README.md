@@ -1,3 +1,7 @@
+**Max Pacioretty update: How long the Maple Leafs' winger is out and who might step in**\
+`Max Pacioretty’s absence leaves the door open for multiple players to step up.`\
+https://nytimes.com/athletic/5915716/2024/11/11/maple-leafs-max-pacioretty-injury/
+
 **Spirit Airlines Plane Hit by Gunfire in Haiti and Forced to Divert**\
 `A day after the prime minister of Haiti was fired, the airport in Port-au-Prince was closed after the plane was shot at. The country has been under siege from gangs.`\
 https://nytimes.com/2024/11/11/us/haiti-spirit-airlines-plane-shot-at.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909427/2024/11/11/nba-cup-what-to-watch/
 **Rogers handed first England call-up amid eight withdrawals**\
 `Aston Villa midfielder Morgan Rogers has received his first England call-up for the upcoming Nations League games against Greece and Republic of Ireland.`\
 https://nytimes.com/athletic/5915594/2024/11/11/morgan-rogers-england-squad/
-
-**Southampton's Ramsdale set to undergo surgery on suspected fractured finger**\
-`Southampton goalkeeper Aaron Ramsdale is set to undergo surgery on a suspected fractured finger.`\
-https://nytimes.com/athletic/5915599/2024/11/11/england-ramsdale-injury-surgery/
 
