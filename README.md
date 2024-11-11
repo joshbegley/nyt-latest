@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5913233/2024/11/10/christian-mccaffrey-is-back-to-r
 
 **How Jim Harbaugh channeled a folk rock ballad to lead Chargers to third straight win**\
 `"The Wreck of Edmund Fitzgerald" served as Harbaugh's latest dose of inspiration for a Chargers team that improved to 6-3.`\
-https://nytimes.com/athletic/5913904/2024/11/10/chargers-jim-harbaugh-edmund-fitzgerald-wi/
+https://nytimes.com/athletic/5913904/2024/11/10/chargers-jim-harbaugh-edmund-fitzgerald-win/
 
 **Blackhawks pull out much-needed win at home against Wild: Observations**\
 `The Blackhawks earned their first win at home since Oct. 17 with an overtime push against the Wild.`\
