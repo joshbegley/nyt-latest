@@ -1,3 +1,11 @@
+**The Athletic FC: What now for Messi and Miami? Premier League's trending teams**\
+`Today in TAFC: Repercussions of Messi and Inter Miami exit from MLS Cup, Premier League state of play, player's coma trauma`\
+https://nytimes.com/athletic/5914355/2024/11/11/the-athletic-fc-what-now-for-messi-and-miami-premier-leagues-trending-teams/
+
+**Tennis Briefing: Krejcikova criticizes 'unprofessional' commentary, Medvedev spirals in Turin**\
+`The Wimbledon champion responded to remarks made about her appearance on Tennis Channel.`\
+https://nytimes.com/athletic/5911854/2024/11/11/krejcikova-appearance-comments-tennis-channel-wertheim/
+
 **Twins, Royce Lewis have a second shot at the second base move this offseason**\
 `The Twins haven’t made up their minds about moving Lewis, but they intend to at least talk to him about the possibility to help him prepare.`\
 https://nytimes.com/athletic/5909538/2024/11/11/royce-lewis-twins-second-base/
