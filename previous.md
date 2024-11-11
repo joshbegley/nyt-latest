@@ -1,4 +1,12 @@
-**Van Nistelrooy to depart Man United following interim coach spell**\
+**USMNT Player Tracker: The return of the Brothers Aaronson, Pepi progress and outsider Weah**\
+`Our roundup of the weekend action also sees Tanner Tessmann help win the Rhone-Alpes derby and Haji Wright depart Sunderland on a stretcher`\
+https://nytimes.com/athletic/5914775/2024/11/11/usmnt-aaronson-pepi-pulisic-weah-player-tracker/
+
+**Paul Mescal Rides ‘A Streetcar Named Desire’ to Brooklyn**\
+`The award-winning production will begin performances in February as part of Brooklyn Academy of Music’s next season.`\
+https://nytimes.com/2024/11/11/theater/paul-mescal-streetcar-bam.html
+
+**Van Nistelrooy to depart Man United following interim spell in charge**\
 `Ruud van Nistelrooy is set to depart Manchester United following Ruben Amorim&#8217;s arrival as head coach.`\
 https://nytimes.com/athletic/5912207/2024/11/11/van-nistelrooy-manchester-united-coach/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5914217/2024/11/11/cowboys-today-losing-streak-quar
 **Zhuzh Up This Risotto However You Like**\
 `Or don’t: A bowl of classic, creamy risotto is perfect on its own.`\
 https://nytimes.com/2024/11/11/dining/risotto.html
-
-**Hama Amadou, West African Political ‘Phoenix,’ Dies at 74**\
-`An embattled leader for decades in Niger’s rough-and-tumble politics, he alternated stints in high office with prison and exile.`\
-https://nytimes.com/2024/11/11/world/africa/hama-amadou-dead.html
-
-**Healing the Political Divide and Despair**\
-`Readers discuss the rancor and mistrust and suggest ways to come together. Also: Floods in America; support for youths; the arbitration illusion.`\
-https://nytimes.com/2024/11/11/opinion/election-political-divide-despair.html
 
