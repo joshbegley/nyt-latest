@@ -1,3 +1,11 @@
+**Biden Honors Veterans in Ceremony at Arlington Cemetery**\
+`“This is the last time I will stand here at Arlington as commander in chief,” President Biden said in remembering service members who have served the country.`\
+https://nytimes.com/2024/11/11/us/politics/biden-veterans-day.html
+
+**Indiana Man Convicted of Killing 2 Girls After Video Found on Victim’s Phone**\
+`A jury on Monday found Richard Allen guilty of killing Liberty German and Abigail William, who were on a hike in 2017. Video showed a man following the girls.`\
+https://nytimes.com/2024/11/11/us/delphi-murders-richard-allen-trial.html
+
 **An important week for the narrative of this Georgia season**\
 `Beat Tennessee, and all is OK. Lose, and the narrative on this Georgia season is all but set, not in a good way. `\
 https://nytimes.com/athletic/5915783/2024/11/11/georgia-tennessee-college-football-playoff-implications/
