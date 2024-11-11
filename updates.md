@@ -1,3 +1,7 @@
+**Fantasy Premier League: What we learnt from Gameweek 11**\
+`We look at Manchester United, Manchester City and Liverpool options - plus Brighton's no-brainer bargain`\
+https://nytimes.com/athletic/5912398/2024/11/11/fantasy-premier-league-what-we-learnt-from-gameweek-11-joao-pedro/
+
 **Trump Offers Elise Stefanik Role as U.N. Ambassador**\
 `In one of his first cabinet-level personnel decisions, the president-elect has chosen the Republican member of Congress from New York to represent the United States at the United Nations.`\
 https://nytimes.com/2024/11/11/us/politics/trump-stefanik-un-ambassador.html
