@@ -1,3 +1,7 @@
+**Shigeru Ishiba Wins Vote to Remain as Japan’s Prime Minister**\
+`Parliament voted Monday to stick with Ishiba, who will lead a minority government after his party suffered heavy losses in an election last month.`\
+https://nytimes.com/2024/11/11/world/asia/japan-prime-minister.html
+
 **Who Has the Best View of the Chrysler Building? These Bees.**\
 `On and around some of New York City’s most iconic buildings, beehives are buzzing.`\
 https://nytimes.com/2024/11/11/nyregion/chrysler-building-urban-beekeeping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/movies/mattel-wicked-porn-site-mistake.html
 **Amorim shows magic touch at Sporting farewell - and hints at Man Utd plans**\
 `Sporting won 4-2 win away at Braga - coming back from 2-0 down - in his Amorim’s final match as head coach`\
 https://nytimes.com/athletic/5913761/2024/11/11/ruben-amorim-manchester-united-sporting-lisbon/
-
-**Warriors defeat Thunder with De'Anthony Melton at shooting guard in starting lineup**\
-`After Melton scored 19 points against OKC, Steve Kerr essentially named him starting shooting guard: "I like this lineup with Melt."`\
-https://nytimes.com/athletic/5913215/2024/11/11/deanthony-melton-warriors-win-in-okc/
 
