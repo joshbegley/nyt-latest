@@ -1,40 +1,40 @@
-**The Athletic 134: Crowded SEC leaves little margin for error elsewhere**\
-`The crowd of two-loss SEC teams has the potential to bump out not only ACC and Big 12 at-large hopes but a team like Indiana, too.`\
-https://nytimes.com/athletic/5913460/2024/11/11/college-football-fbs-team-rankings-week-12/
+**Against Panic: A Survival Kit**\
+`There is no cure for profound grief, but beauty and love and tenderness can walk alongside it and ease the solitude.`\
+https://nytimes.com/2024/11/11/opinion/against-panic-a-survival-kit.html
 
-**How the Hawks are rebuilding around Trae Young by taking the ball out of his hands**\
-`Atlanta wants to build an identity. This season isn’t so much about mastering a scheme as it is a mindset.`\
-https://nytimes.com/athletic/5910719/2024/11/11/hawks-rebuilding-trae-young/
+**Trump and Musk: The Bromance That Cannot Last**\
+`Now that he has been elected, Donald Trump will probably not honor the promises he made to Elon Musk.`\
+https://nytimes.com/2024/11/11/opinion/elon-musk-trump-election.html
 
-**Leeds head of recruitment Miles set to leave club**\
-`Leeds United head of recruitment Jordan Miles is set to leave after nine months at the Championship club.`\
-https://nytimes.com/athletic/5910439/2024/11/11/jordan-miles-leeds-exit/
+**$865,000 Homes in California**\
+`A Queen Anne Revival-style house in Oakland, a manufactured home from 1962 in Newport Beach, and a one-bedroom condo in the Hollywood Hills.`\
+https://nytimes.com/2024/11/11/realestate/865000-homes-in-california.html
 
-**Throngs of Cyclists Ride for Hours Between Two Chinese Cities**\
-`They were making the 40-mile journey from Zhengzhou, the capital of Henan Province, to the neighboring city of Kaifeng, a cycling trip that can take up to five hours one-way.`\
-https://nytimes.com/video/world/asia/100000009819274/china-bicycle-zhengzhou-kaifeng.html
+**Trump’s Civil Service Plan: ‘A Train Wreck You Can See Coming’**\
+`It’s very possible that new Trump officials will simply move in with their desk décor on Inauguration Day and not worry about procedure.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/trump-civil-service-employees
 
-**Shigeru Ishiba Wins Vote to Remain as Japan’s Prime Minister**\
-`Parliament voted Monday to stick with Ishiba, who will lead a minority government after his party suffered heavy losses in an election last month.`\
-https://nytimes.com/2024/11/11/world/asia/japan-prime-minister.html
+**What’s the Best Thing to Wear on a First Date?**\
+`A reader wonders if received wisdom about a certain “ideal outfit” still holds true. Our fashion critic offers a first-date fashion philosophy.`\
+https://nytimes.com/2024/11/11/style/first-date-outfit.html
 
-**Who Has the Best View of the Chrysler Building? These Bees.**\
-`On and around some of New York City’s most iconic buildings, beehives are buzzing.`\
-https://nytimes.com/2024/11/11/nyregion/chrysler-building-urban-beekeeping.html
+**Democrats Could Have Won. Our Excuses Mask a Devastating Reality.**\
+`Many young voters didn’t perceive the tangible impact of their 2020 support for Joe Biden, which eroded their faith in the Democratic Party.`\
+https://nytimes.com/2024/11/11/opinion/kamala-harris-young-voters.html
 
-**After Trump’s Victory, Mayoral Candidates Unite Against Adams and Cuomo**\
-`Unseating Eric Adams as mayor of New York was a hot topic at a political gathering in Puerto Rico, as Democrats reflected on the impact of Donald J. Trump’s win.`\
-https://nytimes.com/2024/11/11/nyregion/mayor-race-nyc-somos.html
+**The Trump Era Never Really Ended**\
+`Should we even call it a comeback?`\
+https://nytimes.com/2024/11/11/opinion/trump-harris-republicans-democrats.html
 
-**How Trump Divides Chinese Who Aspire to Democracy**\
-`A new HBO documentary about opposition to autocrats says a lot about the complex politics the president-elect inspires for people fleeing countries.`\
-https://nytimes.com/2024/11/11/business/china-cuba-night-is-not-eternal.html
+**Do You Know What It Takes to Close on a New Home? Take Our Quiz.**\
+`The final step of a real estate purchase can be the most complicated.`\
+https://nytimes.com/interactive/2024/11/11/realestate/Real-Estate-Closing-Quiz.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/11/crosswords/spelling-bee-forum.html
+**As Trump Threatens a Wider Trade War, the U.S. Confronts a Changed China**\
+`The Chinese economy is more dependent on exports, making tariffs more potent, yet it’s less reliant on American markets and increasingly bent on self-sufficiency.`\
+https://nytimes.com/2024/11/11/business/trump-china-trade-war.html
 
-**Trump’s Gains Among Latinos Push a Civil Rights Group to Reflect on Its Past**\
-`From its founding nearly a century ago, LULAC encouraged Hispanic people to embrace American identity even as it fought discrimination. The 2024 election result presents a dilemma on both fronts.`\
-https://nytimes.com/2024/11/11/us/politics/trump-latino-voters-lulac.html
+**Army Private Is Identified Almost 80 Years After Death in World War II**\
+`Jeremiah P. Mahoney had been missing in action since 1945. His remains will be interred in Arlington National Cemetery in 2025.`\
+https://nytimes.com/2024/11/11/us/army-private-identified-dna-wwii.html
 
