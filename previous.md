@@ -1,3 +1,11 @@
+**Why ‘Affordable Housing’ in New York City Can Still Cost $3,500 a Month**\
+`Soaring rents and few options have made it hard for average people to live in the city. Even “affordable” units often cost too much.`\
+https://nytimes.com/2024/11/12/nyregion/housing-crunch-affordable-housing.html
+
+**Cat Psychology**\
+`What cats have you known well in your life? What has puzzled you about their behavior?`\
+https://nytimes.com/2024/11/12/learning/cat-psychology.html
+
 **Late Night Weighs in on Trump’s Cabinet Picks**\
 `Jimmy Kimmel called President-elect Trump’s choices thus far “a real cast of no character.”`\
 https://nytimes.com/2024/11/12/arts/television/late-night-trump-cabinet.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5914369/2024/11/12/premier-league-top-half-seasons-
 **A 'bulls***' radar, no ranting and half-time videos: Inside Arne Slot's brain**\
 `Liverpool have been a projection of their cool, composed coach this season - and to startling effect`\
 https://nytimes.com/athletic/5914391/2024/11/12/arne-slot-liverpool-psychology/
-
-**'Football was his life, and the water took his life away'**\
-`The Athletic reports from the Valencia region on the devastating impact that flooding has had on communities and football clubs`\
-https://nytimes.com/athletic/5892529/2024/11/12/valencia-flooding-football-paiporta-alfafar/
-
-**The David Coote videos have just made the debate around refereeing decisions so much more tedious**\
-`David Coote's suspension following videos that emerged on Monday will fuel the conspiracy theories that exist around referees`\
-https://nytimes.com/athletic/5915448/2024/11/12/david-coote-jurgen-klopp-liverpool-referee/
 

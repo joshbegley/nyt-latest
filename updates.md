@@ -1,3 +1,11 @@
+**Why ‘Affordable Housing’ in New York City Can Still Cost $3,500 a Month**\
+`Soaring rents and few options have made it hard for average people to live in the city. Even “affordable” units often cost too much.`\
+https://nytimes.com/2024/11/12/nyregion/housing-crunch-affordable-housing.html
+
+**Cat Psychology**\
+`What cats have you known well in your life? What has puzzled you about their behavior?`\
+https://nytimes.com/2024/11/12/learning/cat-psychology.html
+
 **Late Night Weighs in on Trump’s Cabinet Picks**\
 `Jimmy Kimmel called President-elect Trump’s choices thus far “a real cast of no character.”`\
 https://nytimes.com/2024/11/12/arts/television/late-night-trump-cabinet.html
