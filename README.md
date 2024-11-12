@@ -1,3 +1,7 @@
+**Trump Raises TikTok’s Hopes for a Rescue in the United States**\
+`When asked about whether President-elect Donald Trump would prevent a TikTok ban in the United States, a spokeswoman told The New York Times: “He will deliver.”`\
+https://nytimes.com/2024/11/12/technology/trump-tiktok-ban.html
+
 **How line changes have been a common denominator in Blues' wins and losses lately**\
 `Drew Bannister and Joe Vitale break down how goals have been scored by the Blues and against them because of line changes recently.`\
 https://nytimes.com/athletic/5915786/2024/11/12/blues-line-changes-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/nyregion/zeldin-epa-trump.html
 **Bernie Sanders Is Wrong That Democrats Abandoned the Working Class**\
 `The party’s record is clear and strong.`\
 https://nytimes.com/live/2024/11/12/opinion/thepoint/sanders-democrats-working-class
-
-**Teixeira Is Sentenced to 15 Years in Prison**\
-`The disclosures that Jack Teixeira shared on a social media platform raised questions over how a relatively low-ranking Air National Guardsman had access to some of the country’s most sensitive secrets.`\
-https://nytimes.com/2024/11/12/us/politics/jack-teixeira-national-security-leak.html
 
