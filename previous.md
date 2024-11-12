@@ -1,5 +1,5 @@
 **She Beat the Odds to Upend a Male Political Dynasty in Japan**\
-`Hanako Okada was one of 73 women to win seats at the general election last month, a record number in a parliament long dominated by men`\
+`Hanako Okada was one of 73 women to win seats at the general election last month, a record number in a Parliament long dominated by men.`\
 https://nytimes.com/2024/11/12/world/asia/she-beat-the-odds-to-upend-a-male-political-dynasty-in-japan.html
 
 **Tuesday Briefing**\
