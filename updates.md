@@ -1,3 +1,7 @@
+**Twins promote Derek Falvey, Jeremy Zoll as president Dave St. Peter prepares to step aside**\
+`The Twins’ club president since 2002 will transition into an advisory role. Falvey will take over St. Peter’s role and Zoll will be the GM. `\
+https://nytimes.com/athletic/5917361/2024/11/12/twins-dave-st-peter-derek-falvey-jeremy-zoll/
+
 **E.P.A. to Charge Oil Companies First-Ever Methane Fee, but Will It Last?**\
 `The Biden administration is imposing a fee on large energy companies that spew excess methane, a potent greenhouse gas. Republicans may be able to repeal it.`\
 https://nytimes.com/2024/11/12/climate/methane-fee-epa-oil.html

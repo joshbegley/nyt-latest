@@ -6,7 +6,7 @@ https://nytimes.com/2024/11/12/climate/methane-fee-epa-oil.html
 `Lamar Jackson is the favorite to win NFL MVP, but can a matchup between Josh Allen and Patrick Mahomes help decide the race?`\
 https://nytimes.com/athletic/5917357/2024/11/12/nfl-2024-mvp-betting-odds-patrick-mahomes/
 
-**Twins promote Derek Falvey, Jeremy Zoll as team president Dave St. Peter steps aside**\
+**Twins promote Derek Falvey, Jeremy Zoll as president Dave St. Peter prepares to step aside**\
 `The Twins’ club president since 2002 will transition into an advisory role. Falvey will take over St. Peter’s role and Zoll will be the GM. `\
 https://nytimes.com/athletic/5917361/2024/11/12/twins-dave-st-peter-derek-falvey-jeremy-zoll/
 
