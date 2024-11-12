@@ -1,3 +1,11 @@
+**Andrew Carmellini Expands His Locanda Verde to Hudson Yards**\
+`The two-story space, adorned with paintings and drawings by Robert De Niro Sr., will serve a larger menu.`\
+https://nytimes.com/2024/11/12/dining/nyc-restaurant-news.html
+
+**U.S. Allows Americans to Hold Foreign Conferences With Speakers Under Sanctions**\
+`Reversing itself, the Treasury Department said U.S. sanctions do not prohibit hearing from foreigners deemed to be terrorists or other offenders.`\
+https://nytimes.com/2024/11/12/us/foreign-speakers-sanctions-treasury.html
+
 **NFL rescinds Roquan Smith's fine for Week 7 hip-drop tackle**\
 `Smith was slated to pay a $16,833 fine for the hit which ended Godwin's season, but Smith appealed that penalty.`\
 https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
