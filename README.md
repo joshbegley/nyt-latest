@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
 `The home décor staple of the 1960s and early ’70s counterculture is making a comeback.`\
 https://nytimes.com/2024/11/12/fashion/lava-lamps-mathmos-england.html
 
-**Woman Accuses Al-Fayed of Rape and Says His Brother Knew of Trafficking at Harrods**\
-`In a U.S. court filing, a former employee says Mohamed al-Fayed raped her when he owned Harrods, and that his brother Ali may have evidence of the abuse.`\
+**Woman Accuses Al-Fayed of Abuse and Says His Brother Knew of Trafficking at Harrods**\
+`In a U.S. court filing, a former employee says she was trafficked, raped and abused when Mohamed al-Fayed owned Harrods, and that his brother Ali may have evidence of the abuse.`\
 https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
 
 **In Search of Ways to Cope in the Trump Era**\
