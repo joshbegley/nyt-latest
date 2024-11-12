@@ -1,3 +1,7 @@
+**Van Nistelrooy departs after successfully starting the healing process at Manchester United**\
+`Previously adored as a player, the Dutchman only strengthened his bond with Old Trafford by picking up the pieces after Ten Hag's departure`\
+https://nytimes.com/athletic/5916728/2024/11/12/van-nistelrooy-manchester-united-leaves-amorim/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/12/crosswords/spelling-bee-forum.html

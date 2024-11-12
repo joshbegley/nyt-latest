@@ -1,3 +1,7 @@
+**Van Nistelrooy departs after successfully starting the healing process at Manchester United**\
+`Previously adored as a player, the Dutchman only strengthened his bond with Old Trafford by picking up the pieces after Ten Hag's departure`\
+https://nytimes.com/athletic/5916728/2024/11/12/van-nistelrooy-manchester-united-leaves-amorim/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/12/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5914254/2024/11/12/inside-newcastle-questions-qnasw
 **Fear and loathing in academy football: Scouts in a pen, no team sheets and denying access**\
 `New rules at academy level and other issues have led to tension across the Premier League`\
 https://nytimes.com/athletic/5908431/2024/11/12/premier-league-academy-transfers/
-
-**The Premier League elite's levels have dropped - but why?**\
-`Why have so many of last season's front-runners dropped a level this season? Our experts explain all...`\
-https://nytimes.com/athletic/5914369/2024/11/12/premier-league-top-half-seasons-compared/
 
