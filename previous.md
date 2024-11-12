@@ -1,3 +1,19 @@
+**NFL rescinds Roquan Smith's fine for Week 7 hip drop tackle**\
+`Smith was slated to pay a $16,833 fine for the hit which ended Godwin's season, but Smith appealed that penalty.`\
+https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
+
+**‘Everybody Has a Lava Lamp Story’**\
+`The home décor staple of the 1960s and early ’70s counterculture is making a comeback.`\
+https://nytimes.com/2024/11/12/fashion/lava-lamps-mathmos-england.html
+
+**Woman Accuses Al-Fayed of Rape and Says His Brother Knew of Trafficking at Harrods**\
+`In a U.S. court filing, a former employee says Mohamed al-Fayed raped her when he owned Harrods, and that his brother Ali may have evidence of the abuse.`\
+https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
+
+**In Search of Ways to Cope in the Trump Era**\
+`Readers offer various strategies, including retreat, engagement, art and grief. Also: The ways to pray; regrowing New York City.`\
+https://nytimes.com/2024/11/12/opinion/trump-coping.html
+
 **Louisiana governor defends live tiger at LSU's blowout loss to Alabama**\
 `LSU previously ended the tradition of bringing a live tiger to the sidelines of games in 2016, when Mike VI died.`\
 https://nytimes.com/athletic/5917697/2024/11/12/jeff-landry-louisiana-governor-live-tiger-lsu-alabama-comments/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5917619/2024/11/12/bears-fire-shane-waldron-matt-eb
 **College football national title odds: Ohio State is favored, but CFP race could get messy**\
 `Ohio State lost at Oregon, but is just ahead of the Ducks and a slew of SEC teams in the odds to win the national title.`\
 https://nytimes.com/athletic/5917577/2024/11/12/college-football-playoff-national-title-odds-ohio-state/
-
-**‘The Vegetarian’ Review: Putting a Nobel Prize Winner’s Work Onstage**\
-`After Han Kang won the Prize in Literature last month, a stage version of her novel “The Vegetarian” sold out its run at a struggling Paris theater.`\
-https://nytimes.com/2024/11/12/theater/the-vegetarian-paris-odeon-han-kang.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/11/12/opinion/thepoint
-
-**Scoop City: Grading 15 midseason acquisitions, so far**\
-`What we've seen from key deadline acquisitions, Week 11 fantasy prep and voting on the NFL's most disappointing roster.`\
-https://nytimes.com/athletic/5917686/2024/11/12/deandre-hopkins-nfl-miseason-acquisitions-how-they-looked-scoop-city/
-
-**Fantasy basketball roundup: Thunder roiling after Chet Holmgren injury; Target the Thompson twins**\
-`Eric Wong breaks down what Chet Holmgren's injury means for Oklahoma City, and offers up 15 players to consider on the waiver wire.`\
-https://nytimes.com/athletic/5917544/2024/11/12/fantasy-basketball-adds-pickups-chet-holmgren-injury/
 

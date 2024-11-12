@@ -1,3 +1,19 @@
+**NFL rescinds Roquan Smith's fine for Week 7 hip drop tackle**\
+`Smith was slated to pay a $16,833 fine for the hit which ended Godwin's season, but Smith appealed that penalty.`\
+https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
+
+**‘Everybody Has a Lava Lamp Story’**\
+`The home décor staple of the 1960s and early ’70s counterculture is making a comeback.`\
+https://nytimes.com/2024/11/12/fashion/lava-lamps-mathmos-england.html
+
+**Woman Accuses Al-Fayed of Rape and Says His Brother Knew of Trafficking at Harrods**\
+`In a U.S. court filing, a former employee says Mohamed al-Fayed raped her when he owned Harrods, and that his brother Ali may have evidence of the abuse.`\
+https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
+
+**In Search of Ways to Cope in the Trump Era**\
+`Readers offer various strategies, including retreat, engagement, art and grief. Also: The ways to pray; regrowing New York City.`\
+https://nytimes.com/2024/11/12/opinion/trump-coping.html
+
 **Louisiana governor defends live tiger at LSU's blowout loss to Alabama**\
 `LSU previously ended the tradition of bringing a live tiger to the sidelines of games in 2016, when Mike VI died.`\
 https://nytimes.com/athletic/5917697/2024/11/12/jeff-landry-louisiana-governor-live-tiger-lsu-alabama-comments/
