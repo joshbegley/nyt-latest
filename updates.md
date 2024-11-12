@@ -1,3 +1,7 @@
+**Review: Blowing Louis Armstrong’s Horn Isn’t Enough in ‘A Wonderful World’**\
+`The great jazz trumpeter and sandpaper vocalist gets the old jukebox treatment in a new Broadway musical starring James Monroe Iglehart.`\
+https://nytimes.com/2024/11/11/theater/a-wonderful-world-review-louis-armstrong.html
+
 **Wildfire Grows in New Jersey and New York, Despite Modest Rainfall**\
 `The Jennings Creek fire nearly doubled in size on Monday to 5,000 acres, according to Gov. Kathy Hochul of New York, though the estimate included areas that had stopped burning.`\
 https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-york-despite-modest-rainfall.html

@@ -1,3 +1,7 @@
+**Review: Blowing Louis Armstrong’s Horn Isn’t Enough in ‘A Wonderful World’**\
+`The great jazz trumpeter and sandpaper vocalist gets the old jukebox treatment in a new Broadway musical starring James Monroe Iglehart.`\
+https://nytimes.com/2024/11/11/theater/a-wonderful-world-review-louis-armstrong.html
+
 **Wildfire Grows in New Jersey and New York, Despite Modest Rainfall**\
 `The Jennings Creek fire nearly doubled in size on Monday to 5,000 acres, according to Gov. Kathy Hochul of New York, though the estimate included areas that had stopped burning.`\
 https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-york-despite-modest-rainfall.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/11/us/politics/trump-michael-waltz-national-security
 **Tyreek Hill playing through torn wrist ligament, active vs. Rams for 'MNF'**\
 `Dolphins leading receiver did not participate in team practices on Friday and Saturday.`\
 https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injury/
-
-**Some Arizona Latinos Find New Home Within Republican Party**\
-`President-elect Donald J. Trump won Arizona, flipping the swing state back to red. Younger Latino voters, like José Castro, were among those who shifted to the right, turning to older Republicans like Gerry Navarro who were ready and willing to welcome him into the party.`\
-https://nytimes.com/video/world/americas/100000009815630/arizona-latino-vote-trump.html
 
