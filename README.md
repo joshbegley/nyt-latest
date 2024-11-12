@@ -6,7 +6,7 @@ https://nytimes.com/2024/11/12/world/europe/german-lawmakers-election-scholz.htm
 `Austin Mock's model predicts value in six bets for CFB Week 12. `\
 https://nytimes.com/athletic/5917554/2024/11/12/college-football-best-bets-week-12-buffalo-arizona-colorado/
 
-**Who Is Michael Waltz, Trump’s Pick To Be National Security Adviser?**\
+**Who Is Michael Waltz, Trump’s Pick to Be National Security Adviser?**\
 `The former Green Beret and three-term congressman from Florida has established himself as a hawkish Republican voice on matters of national security.`\
 https://nytimes.com/2024/11/12/us/politics/who-is-michael-waltz-trump.html
 
