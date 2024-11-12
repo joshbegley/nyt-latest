@@ -1,40 +1,40 @@
-**‘Larger Than Life: Reign of the Boybands’ Review: The Wrong Stuff**\
-`The boy band stories in Tamra Davis’s documentary rarely intersect in a way that builds a meaningful or compelling perspective.`\
-https://nytimes.com/2024/11/12/movies/larger-than-life-reign-of-the-boybands-review.html
+**If You Thought Trump Wasn’t Serious, Look at His First Appointments**\
+`No one should be shocked when the first migrants are sent to military camps before deportation.`\
+https://nytimes.com/live/2024/11/07/opinion/thepoint/trump-immigration-appointments-miller
 
-**After Harris’s Loss, a Liberal Icon Ponders Life on the Outside**\
-`Kamala Harris’s defeat is personal for Representative Barbara Lee, a California Democrat retiring this year. But after five decades in the fight, she says she is undaunted.`\
-https://nytimes.com/2024/11/12/us/politics/barbara-lee-kamala-harris.html
+**I’m the Governor of Kentucky. Here’s How Democrats Can Win Again.**\
+`I won re-election last year in a state that Trump just carried by 30 points. Here’s how.`\
+https://nytimes.com/2024/11/12/opinion/democratic-party-future-kentucky.html
 
-**Where on Earth Are We Going? This Geographer’s Not Sure.**\
-`In “Four Points of the Compass,” Jerry Brotton explores the disorienting, dizzying history of our relationship to direction.`\
-https://nytimes.com/2024/11/12/books/review/jerry-brotton-four-points-of-the-compass.html
+**New York City Democrats Grapple With Trump’s Victory**\
+`Our City Hall bureau chief discusses how Democrats are processing Donald Trump’s win and what it might mean for Mayor Eric Adams’s legal troubles.`\
+https://nytimes.com/2024/11/12/nyregion/new-york-city-democrats-grapple-with-trumps-victory.html
 
-**Airlines Hate ‘Skiplagging.’ Meet the Man Who Helps Travelers Pull It Off.**\
-`Aktarer Zaman is the founder of a controversial website that unearths airfare hacks, most notably skipping the last leg of a flight for a cheaper price.`\
-https://nytimes.com/2024/11/12/travel/skiplagged-flights-hacks.html
+**If You’re Sure How the Next Four Years Will Play Out, I Promise: You’re Wrong**\
+`You can’t see far enough ahead to trust the image in your mind’s eye.`\
+https://nytimes.com/2024/11/12/opinion/donald-trump-election.html
 
-**In Every World-Weary Private Eye Is an Errant Philosopher**\
-`Sergio De La Pava’s novel “Every Arc Bends Its Radian” is a detective story that takes a strange turn in Colombia’s dark underbelly.`\
-https://nytimes.com/2024/11/12/books/review/sergio-delapava-every-arc-bends-its-radian.html
+**‘People Are in for a Really Rude Shock’ on Trump’s Economy**\
+`The economist and Times Opinion columnist Paul Krugman details the president-elect’s “seriously inflationary” economic plans.`\
+https://nytimes.com/2024/11/12/opinion/trump-economy-inflation.html
 
-**A New Set of Gits Releases Gives Mia Zapata Her Voice Back**\
-`The Seattle frontwoman was killed in 1993, as her punk band was on the cusp of a breakthrough. Remastered recordings provide a chance to rewrite her story.`\
-https://nytimes.com/2024/11/12/arts/music/the-gits-mia-zapata-reissues.html
+**From Raw Denim to Natural Wine**\
+`Jean Touitou, the creator of A.P.C., knows how to make something perfectly minimal.`\
+https://nytimes.com/2024/11/12/style/apc-wine.html
 
-**The Lesson of This Election: We Must Stop Inflation Before It Starts**\
-`Our nation needs an economic disaster preparedness tool kit to avoid the scourge of inflation.`\
-https://nytimes.com/2024/11/12/opinion/election-inflation-cost-shock.html
+**Will the Supreme Court Stand Up to Trump? Can It?**\
+`The Supreme Court is largely to blame for the challenges it may face over the next four years.`\
+https://nytimes.com/2024/11/12/opinion/donald-trump-supreme-court.html
 
-**A Secret Masterpiece by the Father of Hawaiian Modernism**\
-`This hexagonal home, hidden on an Oahu mountaintop, is the best example of Vladimir Ossipoff’s blend of Japanese and American midcentury design.`\
-https://nytimes.com/2024/11/12/t-magazine/hawaii-modernist-house-vladimir-ossipoff.html
+**He Thought He Knew Horses. Then He Learned to Really Listen.**\
+`Warwick Schiller made his name as an expert trainer. An enigmatic little horse completely changed his outlook.`\
+https://nytimes.com/2024/11/12/magazine/warwick-schiller-horses.html
 
-**Hong Kong’s Tycoons Are Selling Trophy Homes at Fire Sale Prices**\
-`China’s economic downturn has not been kind to the ultrarich who made their wealth on its rise. In their haste to cough up cash, Hong Kong’s luxury property market has had some fire sales.`\
-https://nytimes.com/2024/11/12/business/hong-kong-luxury-property.html
+**When the World Feels Messy, I Turn to Power Wash Simulator**\
+`A low-stress video game that’s cleansing in more than one sense.`\
+https://nytimes.com/2024/11/12/magazine/power-wash-simulator.html
 
-**Gifts for the Host: Beeswax Candles or Cocktail Napkins**\
-`Stephanie Nass, a culinary influencer known as Chefanie, recommends some presents to bring along on holiday visits.`\
-https://nytimes.com/2024/11/12/fashion/gifts-holiday-entertaining-stephanie-nass.html
+**Attack, Withdraw, Return: Israel’s Bloody Cycle of War in North Gaza**\
+`Israel said its forces had returned to northern Gaza to fight a Hamas resurgence. That has brought a new round of suffering for residents.`\
+https://nytimes.com/2024/11/12/world/middleeast/israel-north-gaza-hamas-war.html
 
