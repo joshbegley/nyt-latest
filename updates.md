@@ -1,3 +1,23 @@
+**'Football was his life, and the water took his life away'**\
+`The Athletic reports from the Valencia region on the devastating impact that flooding has had on communities and football clubs`\
+https://nytimes.com/athletic/5892529/2024/11/12/valencia-flooding-football-paiporta-alfafar/
+
+**The David Coote videos have just made the debate around refereeing decisions so much more tedious**\
+`David Coote's suspension following videos that emerged on Monday will fuel the conspiracy theories that exist around referees`\
+https://nytimes.com/athletic/5915448/2024/11/12/david-coote-jurgen-klopp-liverpool-referee/
+
+**'What the hell are you doing in Romford?’ - when Messi played West Ham U21s**\
+`Ten years ago this week, Messi and Argentina's first team took on West Ham's youngsters in a training game - here, some of them recall it`\
+https://nytimes.com/athletic/5812084/2024/11/12/messi-playing-at-west-ham-2014/
+
+**Former Notre Dame coach Gerry Faust dies at 89**\
+`Faust coached Notre Dame from 1981-85 and compiled a 30-26-1 record.`\
+https://nytimes.com/athletic/5916622/2024/11/12/gerry-faust-notre-dame-akron-college-football/
+
+**She Beat the Odds to Upend a Male Political Dynasty in Japan**\
+`Hanako Okada was one of 73 women to win seats at the general election last month, a record number in a Parliament long dominated by men.`\
+https://nytimes.com/2024/11/12/world/asia/japan-women-politics-election.html
+
 **She Beat the Odds to Upend a Male Political Dynasty in Japan**\
 `Hanako Okada was one of 73 women to win seats at the general election last month, a record number in a Parliament long dominated by men.`\
 https://nytimes.com/2024/11/12/world/asia/she-beat-the-odds-to-upend-a-male-political-dynasty-in-japan.html
