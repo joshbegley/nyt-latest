@@ -1,6 +1,22 @@
+**'Football was his life, and the water took his life away'**\
+`The Athletic reports from the Valencia region on the devastating impact that flooding has had on communities and football clubs`\
+https://nytimes.com/athletic/5892529/2024/11/12/valencia-flooding-football-paiporta-alfafar/
+
+**The David Coote videos have just made the debate around refereeing decisions so much more tedious**\
+`David Coote's suspension following videos that emerged on Monday will fuel the conspiracy theories that exist around referees`\
+https://nytimes.com/athletic/5915448/2024/11/12/david-coote-jurgen-klopp-liverpool-referee/
+
+**'What the hell are you doing in Romford?’ - when Messi played West Ham U21s**\
+`Ten years ago this week, Messi and Argentina's first team took on West Ham's youngsters in a training game - here, some of them recall it`\
+https://nytimes.com/athletic/5812084/2024/11/12/messi-playing-at-west-ham-2014/
+
+**Former Notre Dame coach Gerry Faust dies at 89**\
+`Faust coached Notre Dame from 1981-85 and compiled a 30-26-1 record.`\
+https://nytimes.com/athletic/5916622/2024/11/12/gerry-faust-notre-dame-akron-college-football/
+
 **She Beat the Odds to Upend a Male Political Dynasty in Japan**\
 `Hanako Okada was one of 73 women to win seats at the general election last month, a record number in a Parliament long dominated by men.`\
-https://nytimes.com/2024/11/12/world/asia/she-beat-the-odds-to-upend-a-male-political-dynasty-in-japan.html
+https://nytimes.com/2024/11/12/world/asia/japan-women-politics-election.html
 
 **Tuesday Briefing**\
 `Key figures in the next Trump administration.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5916119/2024/11/12/fantasy-football-week-11-waiver-
 **Europe Braces for Trump: ‘Worst Economic Nightmare Has Come True’**\
 `The United States is the biggest trading partner for the European Union and Britain, whose economies could be at risk from the president-elect’s policies.`\
 https://nytimes.com/2024/11/12/business/economy/europe-economy-donald-trump.html
-
-**Quote of the Day: Rural Missouri Town Fights Big Tech, and Itself**\
-`Quotation of the Day for Tuesday, November 12, 2024`\
-https://nytimes.com/2024/11/11/pageoneplus/quote-of-the-day-rural-missouri-town-fights-big-tech-and-itself.html
-
-**Ruben Gallego Wins Arizona Senate Race, Defeating Kari Lake**\
-`The Democratic congressman had led Ms. Lake, a former television anchor and bombastic Trump ally, in most polls.`\
-https://nytimes.com/2024/11/11/us/politics/ruben-gallego-kari-lake-arizona-senate.html
-
-**Dolphins defense neutralizes Rams in 23-15 win to snap streak: Takeaways**\
-`The Dolphins held Rams quarterback Matthew Stafford and the Los Angeles offense out of the end zone all night.`\
-https://nytimes.com/athletic/5916127/2024/11/11/dolphins-rams-score-result-takeaways-mnf/
-
-**Full Time: The NWSL Championship won't have an underdog**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5916627/2024/11/11/nwsl-playoffs-semifinals-bracket-full-time/
 
