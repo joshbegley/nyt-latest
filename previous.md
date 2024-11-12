@@ -1,3 +1,11 @@
+**As Browns navigate tough times, can their second-year players continue to ascend?**\
+`Cedric Tillman, Dawand Jones and Isaiah McGuire are among the players who can prove they deserve to be part of Cleveland's long-term plans.`\
+https://nytimes.com/athletic/5916075/2024/11/12/browns-second-year-players-cedric-tillman/
+
+**Lineker standing down as Match of the Day host at end of season**\
+`Gary Lineker will stand down as host of the BBC’s flagship football show Match of the Day at the end of the season.`\
+https://nytimes.com/athletic/5915918/2024/11/12/gary-lineker-leaves-bbc-motd-host-next/
+
 **If You Thought Trump Wasn’t Serious, Look at His First Appointments**\
 `No one should be shocked when the first migrants are sent to military camps before deportation.`\
 https://nytimes.com/live/2024/11/07/opinion/thepoint/trump-immigration-appointments-miller
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/opinion/donald-trump-supreme-court.html
 **He Thought He Knew Horses. Then He Learned to Really Listen.**\
 `Warwick Schiller made his name as an expert trainer. An enigmatic little horse completely changed his outlook.`\
 https://nytimes.com/2024/11/12/magazine/warwick-schiller-horses.html
-
-**When the World Feels Messy, I Turn to Power Wash Simulator**\
-`A low-stress video game that’s cleansing in more than one sense.`\
-https://nytimes.com/2024/11/12/magazine/power-wash-simulator.html
-
-**Attack, Withdraw, Return: Israel’s Bloody Cycle of War in North Gaza**\
-`Israel said its forces had returned to northern Gaza to fight a Hamas resurgence. That has brought a new round of suffering for residents.`\
-https://nytimes.com/2024/11/12/world/middleeast/israel-north-gaza-hamas-war.html
 
