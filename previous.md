@@ -1,3 +1,7 @@
+**Late Night Weighs in on Trump’s Cabinet Picks**\
+`Jimmy Kimmel called President-elect Trump’s choices thus far “a real cast of no character.”`\
+https://nytimes.com/2024/11/12/arts/television/late-night-trump-cabinet.html
+
 **Word of the Day: encumbered**\
 `This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/12/learning/word-of-the-day-encumbered.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5892529/2024/11/12/valencia-flooding-football-paipo
 **The David Coote videos have just made the debate around refereeing decisions so much more tedious**\
 `David Coote's suspension following videos that emerged on Monday will fuel the conspiracy theories that exist around referees`\
 https://nytimes.com/athletic/5915448/2024/11/12/david-coote-jurgen-klopp-liverpool-referee/
-
-**'What the hell are you doing in Romford?’ - when Messi played West Ham U21s**\
-`Ten years ago this week, Messi and Argentina's first team took on West Ham's youngsters in a training game - here, some of them recall it`\
-https://nytimes.com/athletic/5812084/2024/11/12/messi-playing-at-west-ham-2014/
 
