@@ -1,4 +1,4 @@
-**Flyers' rookies Matvei Michkov, Emil Andrae thrive amid challenges in win vs. Sharks**\
+**Flyers rookies Matvei Michkov, Emil Andrae thrive amid challenges in win vs. Sharks**\
 `Michkov and Andrae could be huge keys to the Flyers' future.`\
 https://nytimes.com/athletic/5915979/2024/11/12/flyers-rookies-matvei-michkov-emil-andrae/
 
