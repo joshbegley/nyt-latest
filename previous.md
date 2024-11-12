@@ -1,3 +1,7 @@
+**Wildfire Grows in New Jersey and New York, Despite Modest Rainfall**\
+`The Jennings Creek fire nearly doubled in size on Monday to 5,000 acres, according to Gov. Kathy Hochul of New York, though the estimate included areas that had stopped burning.`\
+https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-york-despite-modest-rainfall.html
+
 **Trump Allies Push Him to Block Thune From Becoming Senate G.O.P. Leader**\
 `Advisers to the president-elect, who already has a strong hold on congressional Republicans, want him to tighten his grip by torpedoing the bid of the establishment front-runner for the post.`\
 https://nytimes.com/2024/11/11/us/politics/trump-senate-thune-scott.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injur
 **Some Arizona Latinos Find New Home Within Republican Party**\
 `President-elect Donald J. Trump won Arizona, flipping the swing state back to red. Younger Latino voters, like José Castro, were among those who shifted to the right, turning to older Republicans like Gerry Navarro who were ready and willing to welcome him into the party.`\
 https://nytimes.com/video/world/americas/100000009815630/arizona-latino-vote-trump.html
-
-**John Robinson, legendary USC and LA Rams coach, dies at 89**\
-`John Robinson, who successfully coached at all levels of football, is one of the most successful CFB coaches ever.`\
-https://nytimes.com/athletic/5908522/2024/11/11/john-robinson-usc-la-rams-football-coach-dead/
 

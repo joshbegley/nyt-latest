@@ -1,3 +1,7 @@
+**Wildfire Grows in New Jersey and New York, Despite Modest Rainfall**\
+`The Jennings Creek fire nearly doubled in size on Monday to 5,000 acres, according to Gov. Kathy Hochul of New York, though the estimate included areas that had stopped burning.`\
+https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-york-despite-modest-rainfall.html
+
 **Trump Allies Push Him to Block Thune From Becoming Senate G.O.P. Leader**\
 `Advisers to the president-elect, who already has a strong hold on congressional Republicans, want him to tighten his grip by torpedoing the bid of the establishment front-runner for the post.`\
 https://nytimes.com/2024/11/11/us/politics/trump-senate-thune-scott.html
