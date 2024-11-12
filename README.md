@@ -1,3 +1,11 @@
+**Submit your questions for Audrey Snyder's Penn State mailbag**\
+`Penn State has a favorable path to 11-1 and would be in line to host a College Football Playoff game in Beaver Stadium.`\
+https://nytimes.com/athletic/5917375/2024/11/12/penn-state-football-questions-mailbag/
+
+**Senate Republicans return to Washington and prepare to pick McConnell’s successor.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/11/12/us/trump-news-house-election/senate-republicans-return-to-washington-and-prepare-to-pick-mcconnells-successor
+
 **Who Are the Next Leaders of the Democratic Party?**\
 `Democrats will soon have a leadership vacuum, and there will be no shortage of highly ambitious governors, senators and transportation secretaries looking to fill it.`\
 https://nytimes.com/2024/11/12/us/politics/democratic-party-next-leaders.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/business/energy-environment/exxon-mobil-baku-clim
 **Blinken Heads to NATO as Alliance Prepares for Trump’s Return**\
 `Officials meeting in Brussels will discuss Ukraine’s war against Russia amid concerns that the new administration will slash U.S. support for Kyiv.`\
 https://nytimes.com/2024/11/12/us/politics/blinken-nato-ukraine-russia.html
-
-**Submit your questions for The Athletic’s SEC mailbag**\
-`Send us your questions about SEC football, and we'll answer them later this week.`\
-https://nytimes.com/athletic/5917245/2024/11/12/sec-football-week-11-questions/
-
-**Amsterdam Authorities Say They Expect More Arrests Related to Violent Clashes**\
-`So far, 62 people have been detained in connection with unrest surrounding a soccer match as officials said they continue to investigate antisemitic attacks, as well as incendiary behavior by both sides.`\
-https://nytimes.com/2024/11/12/world/europe/amsterdam-israeli-soccer-attack-report.html
 
