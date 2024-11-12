@@ -1,3 +1,7 @@
+**Israel and Hezbollah Trade Deadly Attacks**\
+`Israeli strikes pounded areas in the southern suburbs of Beirut, a day after eight people were killed, according to the authorities, in the northernmost attack on Lebanese soil since the start of the war. Israeli officials said two men were killed in a rocket attack from Lebanon on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000009820672/israel-and-hezbollah-deadly-rocket-attacks-lebanon.html
+
 **Andrew Carmellini Expands His Locanda Verde to Hudson Yards**\
 `The two-story space, adorned with paintings and drawings by Robert De Niro Sr., will serve a larger menu.`\
 https://nytimes.com/2024/11/12/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917591/2024/11/12/alex-highsmith-injury-preston-sm
 **Federal Judge Blocks Louisiana Law Requiring Ten Commandments in Classrooms**\
 `The ruling is likely the first in what could be a long legal fight for conservative Christian groups hoping to amplify public expressions of faith.`\
 https://nytimes.com/2024/11/12/us/louisiana-ten-commandments-ruling.html
-
-**No More Rat Buffets: What to Know About New York City’s New Trash Rules**\
-`The trash from buildings with fewer than 10 units must now be set out in bins with lids, sold by the city for $47 and up.`\
-https://nytimes.com/2024/11/12/nyregion/nyc-trash-bin-rules.html
 
