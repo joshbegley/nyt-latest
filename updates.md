@@ -1,3 +1,11 @@
+**Lineker was really good on Match Of The Day - good luck to whoever has to replace him**\
+`Long-time host Lineker's departure from Match Of The Day when this season ends in May has now been confirmed by the BBC`\
+https://nytimes.com/athletic/5916918/2024/11/12/gary-lineker-match-of-the-day/
+
+**Russian Doctor, Accused of Antiwar Stance, Is Jailed After Child’s Testimony**\
+`The mother of a 7-year-old boy accused the Moscow pediatrician, Nadezhda Buyanova, of telling him that his father’s death while fighting in Ukraine was justified.`\
+https://nytimes.com/2024/11/12/world/europe/russia-ukraine-war-doctor-prison.html
+
 **Try again, fail better: Hope and frustration for the tennis sandwich generation in Turin**\
 `In the first ATP Tour Finals without a 'Big Three' player since 2001, the players whose hopes they crushed try to figure out their heirs`\
 https://nytimes.com/athletic/5916067/2024/11/12/atp-tour-finals-tennis-sandwich-generation/
