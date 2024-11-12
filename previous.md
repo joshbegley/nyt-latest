@@ -1,3 +1,11 @@
+**Lee Zeldin Knows How to Defend Trump. Will He Defend the Environment?**\
+`The choice of Mr. Zeldin, a former Republican congressman of New York, to be the next E.P.A. administrator caught even some of his closest allies by surprise.`\
+https://nytimes.com/2024/11/12/nyregion/zeldin-epa-trump.html
+
+**Bernie Sanders Is Wrong That Democrats Abandoned the Working Class**\
+`The party’s record is clear and strong.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/sanders-democrats-working-class
+
 **Teixeira Is Sentenced to 15 Years in Prison**\
 `The disclosures that Jack Teixeira shared on a social media platform raised questions over how a relatively low-ranking Air National Guardsman had access to some of the country’s most sensitive secrets.`\
 https://nytimes.com/2024/11/12/us/politics/jack-teixeira-national-security-leak.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/dining/restaurant-review-le-veau-dor-nyc.html
 **It Was Once Britain’s ‘Best’ Building. Soon, It May Be Reduced to Rubble.**\
 `A building, once celebrated for its innovation, is deemed obsolete. Those trying to save it ask what its demolition means for British architecture.`\
 https://nytimes.com/2024/11/12/world/europe/centenary-building-salford-manchester.html
-
-**Market share report: Buying Broncos Estime and Sutton, selling CMC's backups**\
-`Michael Salfino prioritizes Broncos in his latest market report, saying to make moves this week to add Audric Estime and Courtland Sutton.`\
-https://nytimes.com/athletic/5917991/2024/11/12/market-share-report-buying-broncos-estime-and-sutton-selling-cmcs-backups/
-
-**Judge Schedules Plea Hearing in 9/11 Case for Early January**\
-`The timetable could partially resolve the case before the inauguration of President-elect Donald J. Trump.`\
-https://nytimes.com/2024/11/12/us/politics/sept-11-plea-hearings.html
 
