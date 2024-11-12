@@ -4,7 +4,7 @@ https://nytimes.com/2024/11/12/style/bluesky-users-election.html
 
 **Firefighters Battle Large Blaze in New York and New Jersey**\
 `Gusts of wind up to 35 miles per hour, coupled with a weekslong drought, threatened to hasten the spread of the 5,000-acre Jennings Creek fire along the border of New York and New Jersey on Tuesday.`\
-https://nytimes.com/video/weather/100000009821570/firefighters-battle-large-blaze-in-new-york-and-new-jersey.html
+https://nytimes.com/video/weather/100000009821570/new-york-new-jersey-wildfire.html
 
 **Trump’s Recess Demand Is Early Test of Prospects for More Radical Second Term**\
 `The once and future president is pushing Republicans to systematically abdicate the Senate’s constitutional role in vetting his nominees.`\
