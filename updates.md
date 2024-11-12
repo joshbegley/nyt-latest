@@ -1,3 +1,7 @@
+**NFL Week 11 odds, schedule: Bills favored to end Chiefs' streak**\
+`Can the Bills end the Chiefs' undefeated streak? Can Chicago right the ship? We've got the odds for every NFL Week 11 game.`\
+https://nytimes.com/athletic/5917352/2024/11/12/nfl-week-11-odds-spreads-schedule-bears-bills-chiefs/
+
 **Super Bowl 2025 odds: How long can the Chiefs walk the wire?**\
 `The Chiefs continued their escape act to remain undefeated. But they weren't the only Super Bowl favorites to record a comeback win.`\
 https://nytimes.com/athletic/5917453/2024/11/12/super-bowl-2025-odds-how-long-can-the-kansas-city-chiefs-walk-the-wire/
