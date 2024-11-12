@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5916201/2024/11/12/justin-jefferson-vikings-jaguars
 `After being a strength last season, the Knicks' defense has been rough so far this campaign. Why is that? A lot of the mistakes are fixable.`\
 https://nytimes.com/athletic/5915004/2024/11/12/knicks-defense-video-3s-bad/
 
-**NFL QB stock report, Week 11: Bears QB Caleb Williams' flaws have followed him from college**\
+**NFL QB stock report, Week 11: Caleb Williams' flaws have followed him from college**\
 `Williams' struggles are not entirely his fault. He's not getting a lot of help from the supporting cast in Chicago.`\
 https://nytimes.com/athletic/5915524/2024/11/12/nfl-qb-stock-report-caleb-williams-bears/
 

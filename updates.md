@@ -1,3 +1,11 @@
+**At Least 35 Killed After Man Drives Into Crowd in Southern China**\
+`The police in the city of Zhuhai detained a man who they said had driven into people who were exercising at a sports center, a state news agency reported.`\
+https://nytimes.com/2024/11/12/world/asia/china-car-attack-zhuhai.html
+
+**The Pulse: Don't forget about the Dolphins**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5916471/2024/11/12/dolphins-rams-tua-tagovailoa-the-pulse/
+
 **A Republican Trifecta**\
 `With the House, Republicans would have full control of the federal government next year.`\
 https://nytimes.com/2024/11/12/briefing/a-republican-trifecta.html
