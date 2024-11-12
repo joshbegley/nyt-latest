@@ -1,3 +1,7 @@
+**First Half of an Alley-Oop**\
+`You heard it here first: Avery Gee Katz and Aaron Gee make their collaboration debut.`\
+https://nytimes.com/2024/11/11/crosswords/daily-puzzle-2024-11-12.html
+
 **'It feels good to win': Canadiens snap losing 6-game losing skid against Sabres**\
 `The Canadiens showed resiliency and toughness in pulling out a victory they might not have deserved, but that they desperately needed. `\
 https://nytimes.com/athletic/5916460/2024/11/11/canadiens-end-losing-skid-vs-sabres/
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/5916328/2024/11/11/submit-a-question-for-stewart-mandels-college-football-mailbag-281/
-
-**‘We Welcomed Them’: G.O.P. Embraces New Latino Voters in Arizona**\
-`Days ago, President-elect Donald J. Trump won swing-state Arizona, flipping the state back to red.`\
-https://nytimes.com/2024/11/11/world/americas/arizona-latino-vote.html
 
