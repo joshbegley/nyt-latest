@@ -1,3 +1,7 @@
+**Super Bowl 2025 odds: How long can the Chiefs walk the wire?**\
+`The Chiefs continued their escape act to remain undefeated. But they weren't the only Super Bowl favorites to record a comeback win.`\
+https://nytimes.com/athletic/5917453/2024/11/12/super-bowl-2025-odds-how-long-can-the-kansas-city-chiefs-walk-the-wire/
+
 **Many Kids’ Melatonin Supplements Don’t Contain the Doses They Claim**\
 `A new study by F.D.A. scientists found that some products contained more than six times the amount on the label.`\
 https://nytimes.com/2024/11/12/well/melatonin-childrens-supplements.html
