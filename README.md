@@ -1,3 +1,7 @@
+**It Was Once Britain’s ‘Best’ Building. Soon, It May Be Reduced to Rubble.**\
+`A building, once celebrated for its innovation, is deemed obsolete. Those trying to save it ask what its demolition means for British architecture.`\
+https://nytimes.com/2024/11/12/world/europe/centenary-building-salford-manchester.html
+
 **Market share report: Buying Broncos Estime and Sutton, selling CMC's backups**\
 `Michael Salfino prioritizes Broncos in his latest market report, saying to make moves this week to add Audric Estime and Courtland Sutton.`\
 https://nytimes.com/athletic/5917991/2024/11/12/market-share-report-buying-broncos-estime-and-sutton-selling-cmcs-backups/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/who-is-marco-rubio.html
 **Colleges Wonder if They Will Be ‘the Enemy’ Under Trump**\
 `Higher education has been a favorite target of Republicans who believe schools have tilted leftward. Now, colleges and universities are bracing for the Trump administration to take action.`\
 https://nytimes.com/2024/11/12/us/trump-higher-education-policy-universities.html
-
-**USC football placed on 1-year probation, fined $50K for violations**\
-`Trojans coach Lincoln Riley will not be suspended. USC’s probation will last from November 12, 2024, through Nov. 11, 2025.`\
-https://nytimes.com/athletic/5917956/2024/11/12/usc-football-probation-fine-ncaa/
 
