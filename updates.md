@@ -1,3 +1,11 @@
+**Israel Strikes South of Beirut Amid Push for Cease-Fire in Lebanon**\
+`The conflict between Israel and Hezbollah has intensified in recent days, despite diplomatic efforts to move toward a temporary cease-fire.`\
+https://nytimes.com/2024/11/12/world/middleeast/israel-lebanon-strikes-hezbollah.html
+
+**At Least 35 Killed After Man Drives Into Crowd in Southern China**\
+`The police in the city of Zhuhai detained a man who they said had driven into people who were exercising at a sports center, state news media reported.`\
+https://nytimes.com/2024/11/12/world/asia/china-car-attack-zhuhai.html
+
 **At Least 35 Killed After Man Drives Into Crowd in Southern China**\
 `The police in the city of Zhuhai detained a man who they said had driven into people who were exercising at a sports center, a state news agency reported.`\
 https://nytimes.com/2024/11/12/world/asia/china-car-attack-zhuhai.html
