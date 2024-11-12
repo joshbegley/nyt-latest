@@ -1,3 +1,7 @@
+**Coote controversy, how players in Valencia reacted to Spain floods**\
+`Today in TAFC: Explaining the Coote controversy, the reaction to tragedy in Spain and the latest news`\
+https://nytimes.com/athletic/5916914/2024/11/12/coote-suspended-spanish-floods/
+
 **Lineker was really good on Match Of The Day - good luck to whoever has to replace him**\
 `Long-time host Lineker's departure from Match Of The Day when this season ends in May has now been confirmed by the BBC`\
 https://nytimes.com/athletic/5916918/2024/11/12/gary-lineker-match-of-the-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5916950/2024/11/12/alpine-f1-mercedes-engine-deal/
 **Kazuyoshi Miura, 57, set for 40th season as professional soccer player**\
 `Japanese forward Kazuyoshi Miura plans to extend his professional soccer career into his 40th season.`\
 https://nytimes.com/athletic/5916857/2024/11/12/kazuyoshi-miura-oldest-footballer-who-is/
-
-**Gary Lineker to Leave BBC’s ‘Match of the Day’**\
-`After a 26-year run, the voice of the broadcaster’s popular soccer highlights show will leave at the end of the 2025 season, the network said Tuesday.`\
-https://nytimes.com/2024/11/12/business/media/gary-lineker-bbc-soccer-motd.html
 
