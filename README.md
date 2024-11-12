@@ -1,3 +1,7 @@
+**Ruben Gallego Wins Arizona Senate Race, Defeating Kari Lake**\
+`The Democratic congressman had led Ms. Lake, a former television anchor and bombastic Trump ally, in most polls.`\
+https://nytimes.com/2024/11/11/us/politics/ruben-gallego-kari-lake-arizona-senate.html
+
 **Dolphins defense neutralizes Rams in 23-15 win to snap streak: Takeaways**\
 `The Dolphins held Rams quarterback Matthew Stafford and the Los Angeles offense out of the end zone all night.`\
 https://nytimes.com/athletic/5916127/2024/11/11/dolphins-rams-score-result-takeaways-mnf/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/theater/a-wonderful-world-review-louis-armstrong.
 **Wildfire Grows in New Jersey and New York, Despite Modest Rainfall**\
 `The Jennings Creek fire is currently burning across 3,500 acres, officials said, and is expected to grow to over 5,000 acres.`\
 https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-york-despite-modest-rainfall.html
-
-**Trump Allies Push Him to Block Thune From Becoming Senate G.O.P. Leader**\
-`Advisers to the president-elect, who already has a strong hold on congressional Republicans, want him to tighten his grip by torpedoing the bid of the establishment front-runner for the post.`\
-https://nytimes.com/2024/11/11/us/politics/trump-senate-thune-scott.html
 
