@@ -1,3 +1,11 @@
+**Lineker was really good on Match Of The Day - good luck to whoever has to replace him**\
+`Long-time host Lineker's departure from Match Of The Day when this season ends in May has now been confirmed by the BBC`\
+https://nytimes.com/athletic/5916918/2024/11/12/gary-lineker-match-of-the-day/
+
+**Russian Doctor, Accused of Antiwar Stance, Is Jailed After Child’s Testimony**\
+`The mother of a 7-year-old boy accused the Moscow pediatrician, Nadezhda Buyanova, of telling him that his father’s death while fighting in Ukraine was justified.`\
+https://nytimes.com/2024/11/12/world/europe/russia-ukraine-war-doctor-prison.html
+
 **Try again, fail better: Hope and frustration for the tennis sandwich generation in Turin**\
 `In the first ATP Tour Finals without a 'Big Three' player since 2001, the players whose hopes they crushed try to figure out their heirs`\
 https://nytimes.com/athletic/5916067/2024/11/12/atp-tour-finals-tennis-sandwich-generation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5916857/2024/11/12/kazuyoshi-miura-oldest-footballe
 **Gary Lineker to Leave BBC’s ‘Match of the Day’**\
 `After a 26-year run, the voice of the broadcaster’s popular soccer highlights show will leave at the end of the 2025 season, the network said Tuesday.`\
 https://nytimes.com/2024/11/12/business/media/gary-lineker-bbc-soccer-motd.html
-
-**Israel Strikes South of Beirut Amid Push for Cease-Fire in Lebanon**\
-`The conflict between Israel and Hezbollah has intensified in recent days, despite diplomatic efforts to move toward a temporary cease-fire.`\
-https://nytimes.com/2024/11/12/world/middleeast/israel-lebanon-strikes-hezbollah.html
-
-**At Least 35 Killed After Man Drives Into Crowd in Southern China**\
-`The police in the city of Zhuhai detained a man who they said had driven into people who were exercising at a sports center, state news media reported.`\
-https://nytimes.com/2024/11/12/world/asia/china-car-attack-zhuhai.html
 
