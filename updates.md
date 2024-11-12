@@ -1,3 +1,11 @@
+**Bears fire OC Shane Waldron, Thomas Brown to call plays**\
+`The move comes after the Bears (4-5) only scored three points against the New England Patriots on Sunday.`\
+https://nytimes.com/athletic/5917311/2024/11/12/bears-offensive-coordinator-shane-waldron-thomas-brown-2/
+
+**Kennedy’s F.D.A.Wish List: Raw Milk, Stem Cells, Heavy Metals**\
+`Robert F. Kennedy Jr., one of President-elect Donald J. Trump’s advisers on health, is taking aim at the agency’s oversight on many fronts.`\
+https://nytimes.com/2024/11/12/health/robert-kennedy-jr-fda.html
+
 **Cowboys Today: Dissecting Micah Parsons' intention with his Mike McCarthy comments**\
 `Two things can be true when it comes to what Micah Parsons said about Mike McCarthy after the game Sunday.`\
 https://nytimes.com/athletic/5916576/2024/11/12/cowboys-today-micah-parsons-mike-mccarthy/
