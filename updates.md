@@ -1,3 +1,11 @@
+**LeBrun rumblings: Ken Holland's new role, early trade market, tampering, CBA and more from GMs meeting**\
+`Deputy commissioner Bill Daly said a potential change to contract term limits was discussed Tuesday with general managers.`\
+https://nytimes.com/athletic/5918446/2024/11/12/nhl-rumblings-holland-trades-tampering-cba/
+
+**Trump Picks John Ratcliffe, His Former Intelligence Director, for C.I.A. Chief**\
+`Mr. Ratcliffe, who was also a former Texas congressman, fought fiercely for Mr. Trump during his first term.`\
+https://nytimes.com/2024/11/12/us/politics/john-ratcliffe-cia-director-trump.html
+
 **Amtrak Suspends Service Between New York and New Haven Because of Fire**\
 `A brush fire apparently connected to an Amtrak substation in the Bronx caused a power outage and a disruption that was expected to last through the day.`\
 https://nytimes.com/2024/11/12/nyregion/amtrak-fire-nyc-new-haven.html
