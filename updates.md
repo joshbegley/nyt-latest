@@ -1,3 +1,7 @@
+**49ers minutia minute: Christian McCaffrey's big snap count; kicker beef 'squashed'**\
+`Both Jauan Jennings and Ricky Pearsall stepped up on Sunday. Jennings will be in Brandon Aiyuk's "X" receiver role from here on out.`\
+https://nytimes.com/athletic/5916238/2024/11/11/49ers-snap-counts-christian-mccaffrey-buccaneers/
+
 **Trump Expected to Name Marco Rubio as Secretary of State**\
 `The president-elect appears to have settled on the Florida senator to be the nation’s top diplomat.`\
 https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
