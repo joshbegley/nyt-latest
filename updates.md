@@ -1,3 +1,7 @@
+**Natasha Alexenko, Who Helped Cut Backlog in Rape-Kit Testing, Dies at 51**\
+`Ten years after her sexual assault, she discovered that the evidence in her rape kit hadn’t been tested — and neither had thousands of others nationwide.`\
+https://nytimes.com/2024/11/12/us/natasha-alexenko-dead.html
+
 **Lee Zeldin Knows How to Defend Trump. Will He Defend the Environment?**\
 `The choice of Mr. Zeldin, a former Republican congressman of New York, to be the next E.P.A. administrator caught even some of his closest allies by surprise.`\
 https://nytimes.com/2024/11/12/nyregion/zeldin-epa-trump.html

@@ -1,3 +1,7 @@
+**Natasha Alexenko, Who Helped Cut Backlog in Rape-Kit Testing, Dies at 51**\
+`Ten years after her sexual assault, she discovered that the evidence in her rape kit hadn’t been tested — and neither had thousands of others nationwide.`\
+https://nytimes.com/2024/11/12/us/natasha-alexenko-dead.html
+
 **Lee Zeldin Knows How to Defend Trump. Will He Defend the Environment?**\
 `The choice of Mr. Zeldin, a former Republican congressman of New York, to be the next E.P.A. administrator caught even some of his closest allies by surprise.`\
 https://nytimes.com/2024/11/12/nyregion/zeldin-epa-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917610/2024/11/12/sf-giants-roki-sasaki-free-agenc
 **Can Le Veau d’Or Turn Back Time? It’s Trying.**\
 `An Upper East Side celebrity hangout of the past has been lovingly recreated by the Frenchette team. But it’s hard to keep the present from intruding.`\
 https://nytimes.com/2024/11/12/dining/restaurant-review-le-veau-dor-nyc.html
-
-**It Was Once Britain’s ‘Best’ Building. Soon, It May Be Reduced to Rubble.**\
-`A building, once celebrated for its innovation, is deemed obsolete. Those trying to save it ask what its demolition means for British architecture.`\
-https://nytimes.com/2024/11/12/world/europe/centenary-building-salford-manchester.html
 
