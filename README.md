@@ -1,3 +1,7 @@
+**49ers minutia minute: Christian McCaffrey's big snap count; kicker beef 'squashed'**\
+`Both Jauan Jennings and Ricky Pearsall stepped up on Sunday. Jennings will be in Brandon Aiyuk's "X" receiver role from here on out.`\
+https://nytimes.com/athletic/5916238/2024/11/11/49ers-snap-counts-christian-mccaffrey-buccaneers/
+
 **Trump Expected to Name Marco Rubio as Secretary of State**\
 `The president-elect appears to have settled on the Florida senator to be the nation’s top diplomat.`\
 https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5916160/2024/11/11/sabres-canadiens-tage-thompson-i
 **I.C.C. Prosecutor Seeking Arrest of Israeli Leaders Faces Own Inquiry**\
 `The International Criminal Court said there will be an investigation into sexual misconduct allegations against Karim Khan, the court’s chief prosecutor.`\
 https://nytimes.com/2024/11/11/world/middleeast/icc-prosecutor-misconduct-investigation.html
-
-**Remembering Quincy Jones, a Bridge Between Genres and Generations**\
-`A conversation about his long and unique footprint in music, and how he discussed it later in his career.`\
-https://nytimes.com/2024/11/11/arts/music/popcast-quincy-jones.html
 
