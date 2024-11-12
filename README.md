@@ -1,3 +1,15 @@
+**Ranieri in talks to come out of retirement and take charge of Roma**\
+`Roma are working on a deal to appoint Claudio Ranieri as their new manager in a caretaker role until the end of the 2024-25 season.`\
+https://nytimes.com/athletic/5918476/2024/11/12/roma-claudio-ranieri-talks-appoint/
+
+**A Man Was Missing for Months. Investigators Say He Faked His Death.**\
+`The authorities spent weeks searching a Wisconsin lake for the man’s body before discovering that he had moved money into a foreign bank account and had been communicating with a woman in Uzbekistan.`\
+https://nytimes.com/2024/11/12/us/kayaker-faked-death-wisconsin.html
+
+**A small Shea Weber detail that underlines his leadership in a Hall of Fame career**\
+`Shea Weber's induction into the Hockey Hall of Fame was earned by what he did on the ice. But what he did off the ice mattered too.`\
+https://nytimes.com/athletic/5918386/2024/11/12/shea-weber-leadership-hall-of-fame-induction/
+
 **Georgia Election Case Against Trump Could Survive, but With a Long Delay**\
 `How far the state’s election interference case gets remains to be seen, but the president-elect almost certainly will not face trial during his term.`\
 https://nytimes.com/2024/11/12/us/trump-georgia-prosecution-delay.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/12/nyregion/gusty-winds-stoke-5000-acre-wildfire-at-
 **Trump Begins to Fill Top Posts With Loyal Defenders**\
 `Also, a judge blocked a Louisiana law requiring Ten Commandments in classrooms. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/11/12/briefing/trump-appointees-louisiana-ten-commandments.html
-
-**Trump Raises TikTok’s Hopes for a Rescue in the United States**\
-`When asked about whether President-elect Donald Trump would prevent a TikTok ban in the United States, a spokeswoman told The New York Times: “He will deliver.”`\
-https://nytimes.com/2024/11/12/technology/trump-tiktok-ban.html
-
-**How line changes have been a common denominator in Blues' wins and losses lately**\
-`Drew Bannister and Joe Vitale break down how goals have been scored by the Blues and against them because of line changes recently.`\
-https://nytimes.com/athletic/5915786/2024/11/12/blues-line-changes-analysis/
-
-**Tropicana Field will not be ready for Rays to play until 2026**\
-`A three-week damage assessment report was recently provided to the St. Petersburg City Council. `\
-https://nytimes.com/athletic/5918326/2024/11/12/tropicana-field-rays-damage-report/
 
