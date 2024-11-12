@@ -1,3 +1,11 @@
+**Who Are the Next Leaders of the Democratic Party?**\
+`Democrats will soon have a leadership vacuum, and there will be no shortage of highly ambitious governors, senators and transportation secretaries looking to fill it.`\
+https://nytimes.com/2024/11/12/us/politics/democratic-party-next-leaders.html
+
+**Emboldened by Re-election, Trump Renews Bid to Overturn His Conviction**\
+`Donald J. Trump’s lawyers have moved in recent days to throw out his criminal case in Manhattan, underscoring his expansive view of presidential power and its supremacy over the rule of law.`\
+https://nytimes.com/2024/11/12/nyregion/trump-criminal-conviction-overturn-manhattan.html
+
 **F1 race director Niels Wittich steps down; Rui Marques to take over**\
 `In a statement issued by the FIA, F1’s governing body said Wittich had left the role "to pursue new opportunities.”`\
 https://nytimes.com/athletic/5917307/2024/11/12/f1-race-director-change/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5917245/2024/11/12/sec-football-week-11-questions/
 **Amsterdam Authorities Say They Expect More Arrests Related to Violent Clashes**\
 `So far, 62 people have been detained in connection with unrest surrounding a soccer match as officials said they continue to investigate antisemitic attacks, as well as incendiary behavior by both sides.`\
 https://nytimes.com/2024/11/12/world/europe/amsterdam-israeli-soccer-attack-report.html
-
-**Archbishop of Canterbury Resigns Over U.K. Church Abuse Scandal**\
-`Justin Welby, the leader of 85 million Anglicans worldwide, announced his resignation days after a report found he had taken insufficient action over claims of abuse.`\
-https://nytimes.com/2024/11/12/world/europe/archbishop-canterbury-resigns-abuse-scandal.html
-
-**What's gone wrong with the Bucks, and do they have time to fix it?**\
-`The Bucks started the season with title expectations. After a 2-8 start, they're in a hole that will be tough to climb out of.`\
-https://nytimes.com/athletic/5917043/2024/11/12/milwaukee-bucks-giannis-antetokounmpo-damian-lillard-analysis/
 
