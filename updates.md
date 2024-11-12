@@ -1,3 +1,15 @@
+**LeBrun: Paul Maurice on what fuels the Panthers now that they've lost their 'angst'**\
+`Maurice's team hasn't missed a beat early in its title-defense season, currently riding a seven-game winning streak.`\
+https://nytimes.com/athletic/5916070/2024/11/12/paul-maurice-panthers-lebrun/
+
+**Kazuyoshi Miura set for 40th season as professional soccer player**\
+`Japanese forward Kazuyoshi Miura plans to extend his professional soccer career into his 40th season.`\
+https://nytimes.com/athletic/5916857/2024/11/12/kazuyoshi-miura-oldest-footballer-who-is/
+
+**Gary Lineker to Leave BBC’s ‘Match of the Day’**\
+`After a 26-year run, the voice of the broadcaster’s popular soccer highlights show will leave at the end of the 2025 season, the network said Tuesday.`\
+https://nytimes.com/2024/11/12/business/media/gary-lineker-bbc-soccer-motd.html
+
 **Biden Team Tries to Buoy Climate Talks Jolted by ‘Bitterly Disappointing’ Election**\
 `Negotiators at the summit in Azerbaijan fear that the return of Donald Trump will sap momentum for global climate action.`\
 https://nytimes.com/2024/11/12/climate/cop29-baku-world-leaders.html
