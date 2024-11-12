@@ -1,3 +1,11 @@
+**Amsterdam Authorities Say They Expect More Arrests Related to Violent Clashes**\
+`So far, 62 people have been detained in connection with unrest surrounding a soccer match as officials said they continue to investigate antisemitic attacks, as well as incendiary behavior by both sides.`\
+https://nytimes.com/2024/11/12/world/europe/amsterdam-israeli-soccer-attack-report.html
+
+**Archbishop of Canterbury Resigns Over U.K. Church Abuse Scandal**\
+`Justin Welby, the leader of 85 million Anglicans worldwide, announced his resignation days after a report found he had taken insufficient action over claims of abuse.`\
+https://nytimes.com/2024/11/12/world/europe/archbishop-canterbury-resigns-abuse-scandal.html
+
 **What's gone wrong with the Bucks, and do they have time to fix it?**\
 `The Bucks started the season with title expectations. After a 2-8 start, they're in a hole that will be tough to climb out of.`\
 https://nytimes.com/athletic/5917043/2024/11/12/milwaukee-bucks-giannis-antetokounmpo-damian-lillard-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/12/us/trump-news-house-election/here-are-the-la
 **Pressure shifts to Antonio Pierce as Raiders play out another likely losing season**\
 `The Raiders return from the bye looking to snap a five-game losing streak and Pierce is looking to lead another turnaround. `\
 https://nytimes.com/athletic/5916038/2024/11/12/antonio-pierce-raiders-pressure/
-
-**Jim Harbaugh has raised the Chargers' floor — the next 5 weeks will determine their ceiling**\
-`The Chargers host the Bengals on "Sunday Night Football" before facing the Ravens, Falcons, Chiefs and Buccaneers. `\
-https://nytimes.com/athletic/5916265/2024/11/12/jim-harbaugh-chargers-ceiling/
-
-**Doubts Grow Over the Booming Trump Trade, and Trumponomics**\
-`The stunning post-election stock market rally could be in jeopardy if the president-elect’s agenda spurs inflation, and adds to the deficit, analysts warn.`\
-https://nytimes.com/2024/11/12/business/dealbook/inflation-trump-trade.html
 
