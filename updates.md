@@ -1,3 +1,7 @@
+**Tracking Trump’s Cabinet Nominations**\
+`These are President-elect Donald J. Trump’s intended nominees and appointees for his second-term cabinet and other high-level positions.`\
+https://nytimes.com/interactive/2024/us/politics/trump-administration-cabinet-appointees.html
+
 **How to watch Kentucky vs. Duke, tonight's college basketball blockbuster matchup**\
 `Cooper Flagg, Kon Knueppel and Duke face a big test. Koby Brea and Kentucky are scoring in droves. Tuesday's game is loaded with intrigue.`\
 https://nytimes.com/athletic/5918370/2024/11/12/kentucky-duke-watch-college-basketball/
