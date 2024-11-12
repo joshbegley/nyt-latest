@@ -1,3 +1,7 @@
+**Man Who Helped Restrain Jordan Neely Says He Expected Chokehold to Stop**\
+`Eric Gonzalez testified at Daniel Penny’s manslaughter trial that he had initially lied to investigators, saying Mr. Neely had struck him before he and Mr. Penny pinned him to a subway car’s floor.`\
+https://nytimes.com/2024/11/12/nyregion/daniel-penny-trial-jordan-neely-chokehold.html
+
 **Mexico Signals It Could Hit Back at U.S. With Tariffs of Its Own**\
 `Could a tariff war erupt between the United States and Mexico? A top Mexican official said his country might retaliate if the Trump administration placed steep tariffs on Mexico.`\
 https://nytimes.com/2024/11/12/world/americas/mexico-tariffs-trump.html
