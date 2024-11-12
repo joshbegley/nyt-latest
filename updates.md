@@ -1,3 +1,7 @@
+**Samantha Harvey’s ‘Orbital’ Wins Booker Prize**\
+`Most bets were on Percival Everett’s “James,” but the judges chose Harvey’s “beautiful, miraculous” novel, which is set aboard a space station.`\
+https://nytimes.com/2024/11/12/arts/booker-prize-winner-orbital-samantha-harvey.html
+
 **Angels sign veteran catcher Travis d'Arnaud to 2-year deal**\
 `D'Arnaud would presumably serve as a backup to Logan O'Hoppe.`\
 https://nytimes.com/athletic/5918318/2024/11/12/angels-sign-travis-darnaud-two-year-deal/

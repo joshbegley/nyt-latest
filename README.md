@@ -1,3 +1,11 @@
+**How line changes have been a common denominator in Blues' wins and losses lately**\
+`Drew Bannister and Joe Vitale break down how goals have been scored by the Blues and against them because of line changes recently.`\
+https://nytimes.com/athletic/5915786/2024/11/12/blues-line-changes-analysis/
+
+**Tropicana Field will not be ready for Rays to play until 2026**\
+`A three-week damage assessment report was recently provided to the St. Petersburg City Council. `\
+https://nytimes.com/athletic/5918326/2024/11/12/tropicana-field-rays-damage-report/
+
 **Samantha Harvey’s ‘Orbital’ Wins Booker Prize**\
 `Most bets were on Percival Everett’s “James,” but the judges chose Harvey’s “beautiful, miraculous” novel, which is set aboard a space station.`\
 https://nytimes.com/2024/11/12/arts/booker-prize-winner-orbital-samantha-harvey.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/12/opinion/thepoint/sanders-democrats-working-c
 **Teixeira Is Sentenced to 15 Years in Prison**\
 `The disclosures that Jack Teixeira shared on a social media platform raised questions over how a relatively low-ranking Air National Guardsman had access to some of the country’s most sensitive secrets.`\
 https://nytimes.com/2024/11/12/us/politics/jack-teixeira-national-security-leak.html
-
-**Volkswagen and Rivian Form Joint Venture, Deepening Alliance**\
-`The new agreement builds on an earlier announcement in which the German automaker said it would invest up to $5 billion in Rivian, a maker of electric vehicles. The new venture brings them closer.`\
-https://nytimes.com/2024/11/12/business/volkswagen-rivian-electric-vehicles.html
-
-**Roy Haynes, a Giant of Jazz Drumming, Is Dead at 99**\
-`An irrepressible force who remained relevant over the course of a seven-decade career, he had a hand in every major development in modern jazz.`\
-https://nytimes.com/2024/11/12/arts/music/roy-haynes-dead.html
 
