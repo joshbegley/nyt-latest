@@ -1,3 +1,15 @@
+**Trump Allies Push Him to Block Thune From Becoming Senate G.O.P. Leader**\
+`Advisers to the president-elect, who already has a strong hold on congressional Republicans, want him to tighten his grip by torpedoing the bid of the establishment front-runner for the post.`\
+https://nytimes.com/2024/11/11/us/politics/trump-senate-thune-scott.html
+
+**Donald Trump Jr. Is Joining a Venture Capital Firm**\
+`The firm, 1789 Capital, invests in products and companies aimed at conservative audiences.`\
+https://nytimes.com/2024/11/11/us/donald-trump-jr-firm.html
+
+**49ers minutia minute: Christian McCaffrey's big snap count; kicker beef 'squashed'**\
+`Jauan Jennings and Ricky Pearsall stepped up on Sunday. Jennings will be in Brandon Aiyuk's "X" receiver role from here on out.`\
+https://nytimes.com/athletic/5916238/2024/11/11/49ers-snap-counts-christian-mccaffrey-buccaneers/
+
 **I.C.C. Prosecutor Seeking Arrest of Israeli Leaders Faces Own Inquiry**\
 `The International Criminal Court said there will be an investigation into sexual misconduct allegations against Karim Khan, the court’s chief prosecutor.`\
 https://nytimes.com/2024/11/11/world/middleeast/icc-prosecutor-misconduct-investigation.html
