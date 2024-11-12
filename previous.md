@@ -1,3 +1,7 @@
+**Klay Thompson's Warriors reunion to be 'one of those games,' Kyrie Irving says**\
+`Thompson previously said facing the Warriors for the first time would be “just another regular-season game in November.”`\
+https://nytimes.com/athletic/5918110/2024/11/12/klay-thompson-warriors-reunion-mavericks/
+
 **U.S. Regulators Seek to Block UnitedHealth’s $3.3 Billion Purchase of Home Care Company**\
 `The Justice Department and four Democratic state attorneys general argued that United’s takeover would limit competition and harm consumers needing home or hospice care.`\
 https://nytimes.com/2024/11/12/health/united-health-home-care-antitrust.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918062/2024/11/12/brian-kaplan-phillies-diamonback
 **Canada Women's coaches 'directed, approved and condoned' using drones, report finds**\
 `An independent report in Canada Soccer's use of drones found it was an ‘expected’ practice on the women's side`\
 https://nytimes.com/athletic/5917574/2024/11/12/canada-soccer-olympics-drones/
-
-**Live Q&A: Week 11 fantasy football add/drop chat with Jay Felicio, Tuesday 11/12 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5918050/2024/11/12/live-qa-week-11-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-11-12-at-5-p-m-et/
 

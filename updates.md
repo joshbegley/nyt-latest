@@ -1,3 +1,7 @@
+**Klay Thompson's Warriors reunion to be 'one of those games,' Kyrie Irving says**\
+`Thompson previously said facing the Warriors for the first time would be “just another regular-season game in November.”`\
+https://nytimes.com/athletic/5918110/2024/11/12/klay-thompson-warriors-reunion-mavericks/
+
 **U.S. Regulators Seek to Block UnitedHealth’s $3.3 Billion Purchase of Home Care Company**\
 `The Justice Department and four Democratic state attorneys general argued that United’s takeover would limit competition and harm consumers needing home or hospice care.`\
 https://nytimes.com/2024/11/12/health/united-health-home-care-antitrust.html
