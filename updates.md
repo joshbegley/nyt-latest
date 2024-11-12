@@ -1,3 +1,7 @@
+**Trump Expected to Name Marco Rubio as Secretary of State**\
+`The president-elect appears to have settled on the Florida senator, who has taken hard-line positions on China, Iran and Venezuela, to be the nation’s top diplomat.`\
+https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
+
 **First Half of an Alley-Oop**\
 `You heard it here first: Avery Gee Katz and Aaron Gee make their collaboration debut.`\
 https://nytimes.com/2024/11/11/crosswords/daily-puzzle-2024-11-12.html
