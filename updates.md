@@ -1,3 +1,7 @@
+**How to watch Kentucky vs. Duke, tonight's college basketball blockbuster matchup**\
+`Cooper Flagg, Kon Knueppel and Duke face a big test. Koby Brea and Kentucky are scoring in droves. Tuesday's game is loaded with intrigue.`\
+https://nytimes.com/athletic/5918370/2024/11/12/kentucky-duke-watch-college-basketball/
+
 **Bill McGinley, a cabinet secretary in Trump’s first term, is named White House counsel.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2024/11/12/us/trump-news-house-election/mcginley-white-house-counsel
