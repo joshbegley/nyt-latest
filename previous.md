@@ -1,3 +1,7 @@
+**Roy Haynes, a Giant of Jazz Drumming, Is Dead at 99**\
+`An irrepressible force who remained relevant over the course of a seven-decade career, he had a hand in every major development in modern jazz.`\
+https://nytimes.com/2024/11/12/arts/music/roy-haynes-dead.html
+
 **Klay Thompson's Warriors reunion to be 'one of those games,' Kyrie Irving says**\
 `Thompson previously said facing the Warriors for the first time would be “just another regular-season game in November.”`\
 https://nytimes.com/athletic/5918110/2024/11/12/klay-thompson-warriors-reunion-mavericks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/mike-huckabee-ambassador-to-israel.ht
 **Phillies lose Brian Kaplan, who joins Diamondbacks as pitching coach**\
 `It's the first time in at least five years that another club has hired away a coach from the Phillies' MLB staff.`\
 https://nytimes.com/athletic/5918062/2024/11/12/brian-kaplan-phillies-diamonbacks-pitching-coach/
-
-**Canada Women's coaches 'directed, approved and condoned' using drones, report finds**\
-`An independent report in Canada Soccer's use of drones found it was an ‘expected’ practice on the women's side`\
-https://nytimes.com/athletic/5917574/2024/11/12/canada-soccer-olympics-drones/
 

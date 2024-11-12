@@ -1,3 +1,7 @@
+**Roy Haynes, a Giant of Jazz Drumming, Is Dead at 99**\
+`An irrepressible force who remained relevant over the course of a seven-decade career, he had a hand in every major development in modern jazz.`\
+https://nytimes.com/2024/11/12/arts/music/roy-haynes-dead.html
+
 **Klay Thompson's Warriors reunion to be 'one of those games,' Kyrie Irving says**\
 `Thompson previously said facing the Warriors for the first time would be “just another regular-season game in November.”`\
 https://nytimes.com/athletic/5918110/2024/11/12/klay-thompson-warriors-reunion-mavericks/

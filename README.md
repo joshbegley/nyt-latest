@@ -1,3 +1,11 @@
+**Teixeira Is Sentenced to 15 Years in Prison**\
+`The disclosures that Jack Teixeira shared on a social media platform raised questions over how a relatively low-ranking Air National Guardsman had access to some of the country’s most sensitive secrets.`\
+https://nytimes.com/2024/11/12/us/politics/jack-teixeira-national-security-leak.html
+
+**Volkswagen and Rivian Form Joint Venture, Deepening Alliance**\
+`The new agreement builds on an earlier announcement in which the German automaker said it would invest up to $5 billion in Rivian, a maker of electric vehicles. The new venture brings them closer.`\
+https://nytimes.com/2024/11/12/business/volkswagen-rivian-electric-vehicles.html
+
 **Roy Haynes, a Giant of Jazz Drumming, Is Dead at 99**\
 `An irrepressible force who remained relevant over the course of a seven-decade career, he had a hand in every major development in modern jazz.`\
 https://nytimes.com/2024/11/12/arts/music/roy-haynes-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5917991/2024/11/12/market-share-report-buying-bronc
 **Judge Schedules Plea Hearing in 9/11 Case for Early January**\
 `The timetable could partially resolve the case before the inauguration of President-elect Donald J. Trump.`\
 https://nytimes.com/2024/11/12/us/politics/sept-11-plea-hearings.html
-
-**Mike Huckabee, Former Arkansas Governor, Is Trump’s Choice for Ambassador to Israel**\
-`If confirmed, Mr. Huckabee, a former pastor who has never served as an overseas diplomat, would play a crucial role in helping Mr. Trump try to end the war in Gaza.`\
-https://nytimes.com/2024/11/12/us/politics/mike-huckabee-ambassador-to-israel.html
-
-**Phillies lose Brian Kaplan, who joins Diamondbacks as pitching coach**\
-`It's the first time in at least five years that another club has hired away a coach from the Phillies' MLB staff.`\
-https://nytimes.com/athletic/5918062/2024/11/12/brian-kaplan-phillies-diamonbacks-pitching-coach/
 
