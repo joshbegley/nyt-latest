@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Usagi**\
+`See the likely path and wind arrival times for Usagi.`\
+https://nytimes.com/interactive/2024/11/12/weather/usagi-map-path-tracker.html
+
+**Corporate America Bets on a Market-Friendly Trump 2.0**\
+`Investors have been comforted by a clear election result and are anticipating tax cuts and deregulation from a second Trump administration.`\
+https://nytimes.com/2024/11/12/business/trump-stock-market-tariffs.html
+
 **‘Devious’ New Deep Sea Creature Hid Its Identity From Scientists**\
 `It took nearly 25 years for biologists to discover that a swimming and glowing organism in the ocean’s midnight zone was actually a sea slug.`\
 https://nytimes.com/2024/11/12/science/sea-slug-nudibranch-deep-sea.html
