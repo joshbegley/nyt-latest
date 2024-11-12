@@ -1,3 +1,11 @@
+**Phillies lose Brian Kaplan, who joins Diamondbacks as pitching coach**\
+`It's the first time in at least five years that another club has hired away a coach from the Phillies' MLB staff.`\
+https://nytimes.com/athletic/5918062/2024/11/12/brian-kaplan-phillies-diamonbacks-pitching-coach/
+
+**Canada Women's coaches 'directed, approved and condoned' using drones, report finds**\
+`An independent report in Canada Soccer's use of drones found it was an ‘expected’ practice on the women's side`\
+https://nytimes.com/athletic/5917574/2024/11/12/canada-soccer-olympics-drones/
+
 **Live Q&A: Week 11 fantasy football add/drop chat with Jay Felicio, Tuesday 11/12 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5918050/2024/11/12/live-qa-week-11-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-11-12-at-5-p-m-et/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/trump-house-majority.html
 **Man Found Living in Crawl Space of Los Angeles Home**\
 `A 92-year-old woman had heard strange noises late at night for weeks before the police arrested a naked man who they said had been living under her house.`\
 https://nytimes.com/2024/11/12/us/man-crawl-space-arrested-los-angeles.html
-
-**Man Who Helped Restrain Jordan Neely Testifies About Fatal Chokehold**\
-`Eric Gonzalez, who helped Daniel Penny pin Mr. Neely to the floor of a subway car, also said he had lied when he told investigators Mr. Neely had hit him.`\
-https://nytimes.com/2024/11/12/nyregion/daniel-penny-trial-jordan-neely-chokehold.html
-
-**Mexico Signals It Could Hit Back at U.S. With Tariffs of Its Own**\
-`Could a tariff war erupt between the United States and Mexico? A top Mexican official said his country might retaliate if the Trump administration placed steep tariffs on Mexico.`\
-https://nytimes.com/2024/11/12/world/americas/mexico-tariffs-trump.html
 
