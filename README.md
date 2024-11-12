@@ -1,3 +1,7 @@
+**How to watch Kentucky vs. Duke, tonight's college basketball blockbuster matchup**\
+`Cooper Flagg, Kon Knueppel and Duke face a big test. Koby Brea and Kentucky are scoring in droves. Tuesday's game is loaded with intrigue.`\
+https://nytimes.com/athletic/5918370/2024/11/12/kentucky-duke-watch-college-basketball/
+
 **Bill McGinley, a cabinet secretary in Trump’s first term, is named White House counsel.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2024/11/12/us/trump-news-house-election/mcginley-white-house-counsel
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918476/2024/11/12/roma-claudio-ranieri-talks-appoi
 **A Man Was Missing for Months. Investigators Say He Faked His Death.**\
 `The authorities spent weeks searching a Wisconsin lake for the man’s body before discovering that he had moved money into a foreign bank account and had been communicating with a woman in Uzbekistan.`\
 https://nytimes.com/2024/11/12/us/kayaker-faked-death-wisconsin.html
-
-**A small Shea Weber detail that underlines his leadership in a Hall of Fame career**\
-`Shea Weber's induction into the Hockey Hall of Fame was earned by what he did on the ice. But what he did off the ice mattered too.`\
-https://nytimes.com/athletic/5918386/2024/11/12/shea-weber-leadership-hall-of-fame-induction/
 
