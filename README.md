@@ -1,3 +1,11 @@
+**In This Tokyo Rock Novel, the Cool Kids Are Not All Right**\
+`“Set My Heart on Fire” follows a young woman through a world of drugs, music and highly conditional relationships.`\
+https://nytimes.com/2024/11/12/books/review/izumi-suzuki-set-my-heart-on-fire.html
+
+**Submit your questions for Jordan Bianchi's end-of-season NASCAR mailbag**\
+`Have a question about the 2024 NASCAR season or what's next? Submit it here for Jordan Bianchi's end-of-season NASCAR mailbag.`\
+https://nytimes.com/athletic/5917834/2024/11/12/submit-your-questions-for-jordan-bianchis-end-of-season-nascar-mailbag/
+
 **Heisman Trophy Odds: Travis Hunter takes control heading into final stretch**\
 `Travis Hunter is even money to win the Heisman Trophy, and the top four candidates seem mostly clear, but the race is far from over.`\
 https://nytimes.com/athletic/5917693/2024/11/12/heisman-trophy-odds-travis-hunter/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
 `The home décor staple of the 1960s and early ’70s counterculture is making a comeback.`\
 https://nytimes.com/2024/11/12/fashion/lava-lamps-mathmos-england.html
 
-**Woman Accuses Al-Fayed of Abuse and Says His Brother Knew of Trafficking at Harrods**\
+**A Former Harrods Employee Accuses Al-Fayed of Trafficking and Says His Brother Knew**\
 `In a U.S. court filing, a former employee says she was trafficked, raped and abused when Mohamed al-Fayed owned Harrods, and that his brother Ali may have evidence of the abuse.`\
 https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
 
 **In Search of Ways to Cope in the Trump Era**\
 `Readers offer various strategies, including retreat, engagement, art and grief. Also: The ways to pray; regrowing New York City.`\
 https://nytimes.com/2024/11/12/opinion/trump-coping.html
-
-**Louisiana governor defends live tiger at LSU's blowout loss to Alabama**\
-`LSU previously ended the tradition of bringing a live tiger to the sidelines of games in 2016, when Mike VI died.`\
-https://nytimes.com/athletic/5917697/2024/11/12/jeff-landry-louisiana-governor-live-tiger-lsu-alabama-comments/
-
-**Alex Highsmith out 'a couple weeks,' per source, thrusting Preston Smith into larger role**\
-`Acquired in a trade with the Packers last week, Smith will take on significant responsibilities in Pittsburgh right away.`\
-https://nytimes.com/athletic/5917591/2024/11/12/alex-highsmith-injury-preston-smith/
 
