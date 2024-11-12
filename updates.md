@@ -1,3 +1,11 @@
+**As Trump Staffs Up, House Republicans Watch Their Expected Majority Shrink**\
+`After the president-elect named two G.O.P. representatives to top posts, party leaders warned they may not be able to spare many — or any — more.`\
+https://nytimes.com/2024/11/12/us/politics/trump-house-majority.html
+
+**Man Found Living in Crawl Space of Los Angeles Home**\
+`A 92-year-old woman had heard strange noises late at night for weeks before the police arrested a naked man who they said had been living under her house.`\
+https://nytimes.com/2024/11/12/us/man-crawl-space-arrested-los-angeles.html
+
 **Man Who Helped Restrain Jordan Neely Says He Expected Chokehold to Stop**\
 `Eric Gonzalez testified at Daniel Penny’s manslaughter trial that he had initially lied to investigators, saying Mr. Neely had struck him before he and Mr. Penny pinned him to a subway car’s floor.`\
 https://nytimes.com/2024/11/12/nyregion/daniel-penny-trial-jordan-neely-chokehold.html
