@@ -1,3 +1,7 @@
+**Wildfire Grows in New Jersey and New York, Despite Modest Rainfall**\
+`The Jennings Creek fire is currently burning across 3,500 acres, officials said, and is expected to grow to over 5,000 acres.`\
+https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-york-despite-modest-rainfall.html
+
 **Tyreek Hill has torn wrist ligament, says it was aggravated in arrest**\
 `Dolphins leading receiver did not participate in team practices on Friday and Saturday.`\
 https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injury/
