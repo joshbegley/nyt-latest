@@ -1,3 +1,7 @@
+**Bill McGinley, a cabinet secretary in Trump’s first term, is named White House counsel.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/11/12/us/trump-news-house-election/mcginley-white-house-counsel
+
 **LeBrun rumblings: Ken Holland's new role, early trade market, tampering, CBA and more from GMs meeting**\
 `Deputy commissioner Bill Daly said a potential change to contract term limits was discussed Tuesday with general managers.`\
 https://nytimes.com/athletic/5918446/2024/11/12/nhl-rumblings-holland-trades-tampering-cba/

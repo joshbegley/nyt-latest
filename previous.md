@@ -1,3 +1,7 @@
+**Bill McGinley, a cabinet secretary in Trump’s first term, is named White House counsel.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/11/12/us/trump-news-house-election/mcginley-white-house-counsel
+
 **LeBrun rumblings: Ken Holland's new role, early trade market, tampering, CBA and more from GMs meeting**\
 `Deputy commissioner Bill Daly said a potential change to contract term limits was discussed Tuesday with general managers.`\
 https://nytimes.com/athletic/5918446/2024/11/12/nhl-rumblings-holland-trades-tampering-cba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/kayaker-faked-death-wisconsin.html
 **A small Shea Weber detail that underlines his leadership in a Hall of Fame career**\
 `Shea Weber's induction into the Hockey Hall of Fame was earned by what he did on the ice. But what he did off the ice mattered too.`\
 https://nytimes.com/athletic/5918386/2024/11/12/shea-weber-leadership-hall-of-fame-induction/
-
-**Georgia Election Case Against Trump Could Survive, but With a Long Delay**\
-`How far the state’s election interference case gets remains to be seen, but the president-elect almost certainly will not face trial during his term.`\
-https://nytimes.com/2024/11/12/us/trump-georgia-prosecution-delay.html
 
