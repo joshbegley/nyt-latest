@@ -1,3 +1,11 @@
+**Heisman Trophy Odds: Travis Hunter takes control heading into final stretch**\
+`Travis Hunter is even money to win the Heisman Trophy, and the top four candidates seem mostly clear, but the race is far from over.`\
+https://nytimes.com/athletic/5917693/2024/11/12/heisman-trophy-odds-travis-hunter/
+
+**Israel and Hezbollah Trade Deadly Attacks**\
+`Israeli strikes pounded areas in the southern suburbs of Beirut, a day after eight people were killed, according to the authorities, in the northernmost attack on Lebanese soil since the start of the war. Israeli officials said two men were killed in a rocket attack from Lebanon on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000009820672/israel-and-hezbollah-deadly-rocket-attacks-lebanon.html
+
 **Andrew Carmellini Expands His Locanda Verde to Hudson Yards**\
 `The two-story space, adorned with paintings and drawings by Robert De Niro Sr., will serve a larger menu.`\
 https://nytimes.com/2024/11/12/dining/nyc-restaurant-news.html
