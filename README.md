@@ -1,3 +1,7 @@
+**‘Devious’ New Deep Sea Creature Hid Its Identity From Scientists**\
+`It took nearly 25 years for biologists to discover that a swimming and glowing organism in the ocean’s midnight zone was actually a sea slug.`\
+https://nytimes.com/2024/11/12/science/sea-slug-nudibranch-deep-sea.html
+
 **Canucks notebook: Dakota Joshua's return and why blowout loss to Oilers matters**\
 `Plus, Erik Brännström's hold on a spot in the lineup and what's shaping up to be a high-stakes week for Artūrs Šilovs.`\
 https://nytimes.com/athletic/5916707/2024/11/12/canucks-dakota-joshua-arturs-silovs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917361/2024/11/12/twins-dave-st-peter-derek-falvey
 **Texas Attorney General Seeks Order to Preserve Jack Smith’s Trump Records**\
 `Ken Paxton asked a judge to order Mr. Smith, the special counsel who brought two criminal cases against Donald J. Trump, to preserve his records and avoid “obstruction of accountability.”`\
 https://nytimes.com/2024/11/12/us/politics/jack-smith-trump-ken-paxton.html
-
-**At Long Last, the Surge in S.T.I.s May Be Leveling Off**\
-`Rates of gonorrhea declined in 2023, while diagnoses of syphilis and chlamydia held roughly steady, according to new C.D.C. data.`\
-https://nytimes.com/2024/11/12/health/syphilis-gonorrhea-chlamydia-cdc.html
 
