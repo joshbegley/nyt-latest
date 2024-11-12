@@ -1,3 +1,7 @@
+**Why is Connor Bedard's play trending in the wrong direction? Competition? Linemates?**\
+`Bedard isn't producing at the rate expected in his second NHL season and can sense his game is off. What is happening?`\
+https://nytimes.com/athletic/5915286/2024/11/12/connor-bedard-blackhawks-game-analysis/
+
 **Here are the latest developments.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/11/12/us/trump-news-house-election/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/world/europe/russia-ukraine-war-doctor-prison.htm
 **Try again, fail better: Hope and frustration for the tennis sandwich generation in Turin**\
 `In the first ATP Tour Finals without any of the 'Big Three' since 2001, the players whose hopes they crushed try to figure out their heirs`\
 https://nytimes.com/athletic/5916067/2024/11/12/atp-tour-finals-tennis-sandwich-generation/
-
-**Where Asia Meets Europe, Allies Become Rivals in a Tangle of Interests**\
-`In the volatile Caucasus region, Russia and Iran, often seen as united in their aims, are vying to secure trade routes and influence. That leaves Western countries facing an unusual dilemma.`\
-https://nytimes.com/2024/11/12/world/europe/armenia-azerbaijan-russia-iran-cop.html
 
