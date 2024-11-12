@@ -1,3 +1,19 @@
+**Britain Sets Out to Be a Clean Energy Destination**\
+`The prime minister announced more ambitious climate targets, charting a very different course from the United States, which is expected to roll back its energy transition plans.`\
+https://nytimes.com/2024/11/12/climate/kier-starmer-uk-emissions.html
+
+**U.S. Jury Awards $42 Million to Iraqi Men Abused at Abu Ghraib**\
+`A Virginia-based military contractor that supplied interrogators to the Army at a notorious prison was found liable for the abuse of three men there.`\
+https://nytimes.com/2024/11/12/us/abu-ghraib-abuse-caci-international.html
+
+**A Worldwide ‘Jew Hunt’**\
+`Antisemitism is reaching the point of catastrophe, for Jews and for Europe itself.`\
+https://nytimes.com/2024/11/12/opinion/amsterdam-antisemitism-jews-israel.html
+
+**At 80, a Concert Singer Finds Herself a Hot Commodity in Opera**\
+`Lucy Shelton, a soprano known for her work in the contemporary repertoire, has had a role tailor-made for her in “Lucidity,” an opera about identity and dementia.`\
+https://nytimes.com/2024/11/12/arts/music/lucy-shelton-lucidity-laura-kaminsky.html
+
 **In This Tokyo Rock Novel, the Cool Kids Are Not All Right**\
 `“Set My Heart on Fire” follows a young woman through a world of drugs, music and highly conditional relationships.`\
 https://nytimes.com/2024/11/12/books/review/izumi-suzuki-set-my-heart-on-fire.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/12/dining/nyc-restaurant-news.html
 **U.S. Allows Americans to Hold Foreign Conferences With Speakers Under Sanctions**\
 `Reversing itself, the Treasury Department said U.S. sanctions do not prohibit hearing from foreigners deemed to be terrorists or other offenders.`\
 https://nytimes.com/2024/11/12/us/foreign-speakers-sanctions-treasury.html
-
-**NFL rescinds Roquan Smith's fine for Week 7 hip-drop tackle**\
-`Smith was slated to pay a $16,833 fine for the hit which ended Godwin's season, but Smith appealed that penalty.`\
-https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
-
-**‘Everybody Has a Lava Lamp Story’**\
-`The home décor staple of the 1960s and early ’70s counterculture is making a comeback.`\
-https://nytimes.com/2024/11/12/fashion/lava-lamps-mathmos-england.html
-
-**A Former Harrods Employee Accuses Al-Fayed of Trafficking and Says His Brother Knew**\
-`In a U.S. court filing, a former employee says she was trafficked, raped and abused when Mohamed al-Fayed owned Harrods, and that his brother Ali may have evidence of the abuse.`\
-https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
-
-**In Search of Ways to Cope in the Trump Era**\
-`Readers offer various strategies, including retreat, engagement, art and grief. Also: The ways to pray; regrowing New York City.`\
-https://nytimes.com/2024/11/12/opinion/trump-coping.html
 
