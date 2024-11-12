@@ -1,3 +1,7 @@
+**Final thoughts on Notre Dame's win vs. Florida State: How good was Riley Leonard?**\
+`Notre Dame blew out Florida State 52-3 on Saturday. Here's what it means for the rest of this month and potentially beyond it.`\
+https://nytimes.com/athletic/5917147/2024/11/12/notre-dame-florida-state-final-analysis-marcus-freeman/
+
 **Do You Know These World-Famous Children’s Books?**\
 `Folk tales and beloved characters from cultures around the globe can are celebrated in popular books for young readers. Test your knowledge of them with this short quiz.`\
 https://nytimes.com/interactive/2024/11/12/books/review/world-childrens-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5914178/2024/11/12/nfl-week-10-worst-best-coaching-
 **Coote controversy, how players in Valencia reacted to Spain floods**\
 `Today in TAFC: Explaining the Coote controversy, the reaction to tragedy in Spain and the latest news`\
 https://nytimes.com/athletic/5916914/2024/11/12/coote-suspended-spanish-floods/
-
-**Lineker was really good on Match of the Day - good luck to whoever has to replace him**\
-`Long-time host Lineker's departure from Match Of The Day when this season ends in May has now been confirmed by the BBC`\
-https://nytimes.com/athletic/5916918/2024/11/12/gary-lineker-match-of-the-day/
 

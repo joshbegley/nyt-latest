@@ -1,3 +1,7 @@
+**Final thoughts on Notre Dame's win vs. Florida State: How good was Riley Leonard?**\
+`Notre Dame blew out Florida State 52-3 on Saturday. Here's what it means for the rest of this month and potentially beyond it.`\
+https://nytimes.com/athletic/5917147/2024/11/12/notre-dame-florida-state-final-analysis-marcus-freeman/
+
 **Do You Know These World-Famous Children’s Books?**\
 `Folk tales and beloved characters from cultures around the globe can are celebrated in popular books for young readers. Test your knowledge of them with this short quiz.`\
 https://nytimes.com/interactive/2024/11/12/books/review/world-childrens-books.html
