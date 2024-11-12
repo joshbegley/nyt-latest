@@ -1,3 +1,7 @@
+**Coote controversy, how players in Valencia reacted to Spain floods**\
+`Today in TAFC: Explaining the Coote controversy, the reaction to tragedy in Spain and the latest news`\
+https://nytimes.com/athletic/5916914/2024/11/12/coote-suspended-spanish-floods/
+
 **Lineker was really good on Match Of The Day - good luck to whoever has to replace him**\
 `Long-time host Lineker's departure from Match Of The Day when this season ends in May has now been confirmed by the BBC`\
 https://nytimes.com/athletic/5916918/2024/11/12/gary-lineker-match-of-the-day/
