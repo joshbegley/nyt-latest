@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/12/crosswords/spelling-bee-forum.html
+
 **Why ‘Affordable Housing’ in New York City Can Still Cost $3,500 a Month**\
 `Soaring rents and few options have made it hard for average people to live in the city. Even “affordable” units often cost too much.`\
 https://nytimes.com/2024/11/12/nyregion/housing-crunch-affordable-housing.html

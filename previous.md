@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/12/crosswords/spelling-bee-forum.html
+
 **Why ‘Affordable Housing’ in New York City Can Still Cost $3,500 a Month**\
 `Soaring rents and few options have made it hard for average people to live in the city. Even “affordable” units often cost too much.`\
 https://nytimes.com/2024/11/12/nyregion/housing-crunch-affordable-housing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908431/2024/11/12/premier-league-academy-transfers
 **The Premier League elite's levels have dropped - but why?**\
 `Why have so many of last season's front-runners dropped a level this season? Our experts explain all...`\
 https://nytimes.com/athletic/5914369/2024/11/12/premier-league-top-half-seasons-compared/
-
-**A 'bulls***' radar, no ranting and half-time videos: Inside Arne Slot's brain**\
-`Liverpool have been a projection of their cool, composed coach this season - and to startling effect`\
-https://nytimes.com/athletic/5914391/2024/11/12/arne-slot-liverpool-psychology/
 
