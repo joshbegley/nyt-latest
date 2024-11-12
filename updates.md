@@ -1,3 +1,7 @@
+**'It feels good to win': Canadiens snap losing 6-game losing skid against Sabres**\
+`The Canadiens showed resiliency and toughness in pulling out a victory they might not have deserved, but that they desperately needed. `\
+https://nytimes.com/athletic/5916460/2024/11/11/canadiens-end-losing-skid-vs-sabres/
+
 **Former Fox News Host Chris Wallace to Quit CNN After 3 Years**\
 `The 77-year-old veteran anchor told The Daily Beast that he planned to venture into streaming or podcasting.`\
 https://nytimes.com/2024/11/11/business/media/chris-wallace-cnn.html

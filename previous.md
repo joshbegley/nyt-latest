@@ -1,3 +1,7 @@
+**'It feels good to win': Canadiens snap losing 6-game losing skid against Sabres**\
+`The Canadiens showed resiliency and toughness in pulling out a victory they might not have deserved, but that they desperately needed. `\
+https://nytimes.com/athletic/5916460/2024/11/11/canadiens-end-losing-skid-vs-sabres/
+
 **Former Fox News Host Chris Wallace to Quit CNN After 3 Years**\
 `The 77-year-old veteran anchor told The Daily Beast that he planned to venture into streaming or podcasting.`\
 https://nytimes.com/2024/11/11/business/media/chris-wallace-cnn.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5916328/2024/11/11/submit-a-question-for-stewart-ma
 **‘We Welcomed Them’: G.O.P. Embraces New Latino Voters in Arizona**\
 `Days ago, President-elect Donald J. Trump won swing-state Arizona, flipping the state back to red.`\
 https://nytimes.com/2024/11/11/world/americas/arizona-latino-vote.html
-
-**Trump to Name Michael Waltz as His National Security Adviser**\
-`The president-elect has chosen a Republican member of Congress from Florida to oversee national security policy in the White House.`\
-https://nytimes.com/2024/11/11/us/politics/trump-michael-waltz-national-security-adviser.html
 
