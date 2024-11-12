@@ -1,3 +1,11 @@
+**‘Fossil Fuels Are Still Winning’: Global Emissions Head for a Record**\
+`Countries promised to move away from coal, oil and natural gas at last year’s climate summit. New research shows they’re are burning more than ever before.`\
+https://nytimes.com/2024/11/12/climate/fossil-fuel-emissions-2024-record.html
+
+**‘Hot Frosty’ Review: The 8 Abs of Christmas**\
+`A hunky snowman comes to life in this Netflix holiday rom-com that strikes a certain muscle tone.`\
+https://nytimes.com/2024/11/12/movies/hot-frosty-review.html
+
 **Reds hire Brad Mills as bench coach, reuniting him with Terry Francona**\
 `Mills managed the Astros from 2010 to 2012 and was on Francona's staffs in Boston, Cleveland and Philadelphia.`\
 https://nytimes.com/athletic/5918534/2024/11/12/reds-hire-brad-mills-bench-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/nyregion/amtrak-fire-nyc-new-haven.html
 **With Surge in New Users, Bluesky Emerges as X Alternative**\
 `With one million new accounts added since the U.S. elections, Bluesky has solidified itself as an option for people looking to change their social media service.`\
 https://nytimes.com/2024/11/12/style/bluesky-users-election.html
-
-**Firefighters Battle Large Blaze in New York and New Jersey**\
-`Gusts of wind up to 35 miles per hour, coupled with a weekslong drought, threatened to hasten the spread of the 5,000-acre Jennings Creek fire along the border of New York and New Jersey on Tuesday.`\
-https://nytimes.com/video/weather/100000009821570/new-york-new-jersey-wildfire.html
-
-**Trump’s Demand to Skirt Senate Confirmations Poses Early Test of a Radical Second Term**\
-`The once and future president is pushing Republicans to systematically abdicate the Senate’s constitutional role in vetting his nominees.`\
-https://nytimes.com/2024/11/12/us/politics/trump-republicans-senate.html
 
