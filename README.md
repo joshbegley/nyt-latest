@@ -24,7 +24,7 @@ https://nytimes.com/athletic/5918050/2024/11/12/live-qa-week-11-fantasy-football
 
 **Some Black Voters Ask, What Have Democrats Done for Us?**\
 `In interviews, these voters, especially men, questioned what dividends have come from their loyalty: “I’m just kind of over it all.”`\
-https://nytimes.com/2024/11/12/us/black-voters-democrats-results.html
+https://nytimes.com/2024/11/12/us/politics/black-voters-democrats-results.html
 
 **What to Know About Marco Rubio, Said to Be Trump’s Pick for Secretary of State**\
 `The three-term senator from Florida viciously criticized Donald J. Trump during the 2016 campaign but has since ingratiated himself and become a foreign policy adviser to Mr. Trump.`\
