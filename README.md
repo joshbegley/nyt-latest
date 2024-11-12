@@ -1,7 +1,3 @@
-**College football Week 12 odds, schedule: Georgia in must-win mode against Tennessee**\
-`The biggest game of Week 12 puts Georgia on the ropes against one-loss Tennessee. The Bulldogs are favored by more than a touchdown at home.`\
-https://nytimes.com/athletic/5917495/2024/11/12/college-football-week-12-odds-schedule-georgia-in-must-win-mode-against-tennessee/
-
 **NFL Week 11 odds, schedule: Bills favored to end Chiefs' streak**\
 `Can the Bills end the Chiefs' undefeated streak? Can Chicago right the ship? We've got the odds for every NFL Week 11 game.`\
 https://nytimes.com/athletic/5917352/2024/11/12/nfl-week-11-odds-spreads-schedule-bears-bills-chiefs/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/12/health/syphilis-gonorrhea-chlamydia-cdc.html
 **Five-Star Coconut Curry Chickpeas With Pumpkin and Lime**\
 `This 30-minute vegan dinner boasts five stars and over 10,000 reviews: “This recipe is WOW!,” one reader wrote.`\
 https://nytimes.com/2024/11/12/dining/five-star-coconut-curry-chickpeas-with-pumpkin-and-lime.html
+
+**NBA Power Rankings: Saying something nice about every team (even the last-place ones)**\
+`The Rockets and Grizzlies climb, while the Mavs and Heat fall in our latest breakdown of all 30 NBA teams.`\
+https://nytimes.com/athletic/5916890/2024/11/12/nba-power-rankings-cavaliers-warriors-lakers/
 
