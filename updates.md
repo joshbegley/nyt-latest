@@ -1,3 +1,7 @@
+**Full Time: The NWSL Championship won't have an underdog**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5916627/2024/11/11/nwsl-playoffs-semifinals-bracket-full-time/
+
 **Yohe: It's time for Kyle Dubas to have some difficult but necessary conversations**\
 `The Penguins endured a humiliating 7-1 loss to the Stars on Monday, and it's time for Dubas to engage in full rebuild mode.`\
 https://nytimes.com/athletic/5916390/2024/11/11/penguins-stars-kyle-dubas-difficult-decisions-yohe/
