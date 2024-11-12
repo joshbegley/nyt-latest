@@ -1,3 +1,19 @@
+**Cowboys' Dak Prescott to have season-ending hamstring surgery**\
+`Prescott suffered the injury in the Cowboys’ Week 9 loss to the Atlanta Falcons at the end of the third quarter.`\
+https://nytimes.com/athletic/5910524/2024/11/12/dak-prescott-season-ending-surgery-hamstring-injury/
+
+**Italian City in Amanda Knox Case Wants to Move On. A New Series Won’t Let It.**\
+`When a show produced by Ms. Knox about the murder of Meredith Kercher was filmed in Perugia, an outcry by residents led the mayor to apologize.`\
+https://nytimes.com/2024/11/12/world/europe/amanda-knox-perugia-italy.html
+
+**Submit your questions for Audrey Snyder's Penn State mailbag**\
+`Penn State has a favorable path to 11-1 and would be in line to host a College Football Playoff game in Beaver Stadium.`\
+https://nytimes.com/athletic/5917375/2024/11/12/penn-state-football-questions-mailbag/
+
+**Senate Republicans return to Washington and prepare to pick McConnell’s successor.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/11/12/us/trump-news-house-election/senate-republicans-return-to-washington-and-prepare-to-pick-mcconnells-successor
+
 **Who Are the Next Leaders of the Democratic Party?**\
 `Democrats will soon have a leadership vacuum, and there will be no shortage of highly ambitious governors, senators and transportation secretaries looking to fill it.`\
 https://nytimes.com/2024/11/12/us/politics/democratic-party-next-leaders.html
