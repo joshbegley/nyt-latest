@@ -1,3 +1,11 @@
+**Reds hire Brad Mills as bench coach, reuniting him with manager Terry Francona**\
+`Mills managed the Astros from 2010 to 2012 and was on Francona's staffs in Boston, Cleveland and Philadelphia.`\
+https://nytimes.com/athletic/5918534/2024/11/12/reds-hire-brad-mills-bench-coach/
+
+**Trump’s Demand for Recess Appointments Poses Early Test of a Radical Second Term**\
+`The once and future president is pushing Republicans to systematically abdicate the Senate’s constitutional role in vetting his nominees.`\
+https://nytimes.com/2024/11/12/us/politics/trump-republicans-senate.html
+
 **Tracking Trump’s Cabinet Nominations**\
 `These are President-elect Donald J. Trump’s intended nominees and appointees for his second-term cabinet and other high-level positions.`\
 https://nytimes.com/interactive/2024/us/politics/trump-administration-cabinet-appointees.html
