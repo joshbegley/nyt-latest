@@ -1,3 +1,7 @@
+**Dolphins defense neutralizes Rams in 23-15 win to snap streak: Takeaways**\
+`The Dolphins held Rams quarterback Matthew Stafford and the Los Angeles offense out of the end zone all night.`\
+https://nytimes.com/athletic/5916127/2024/11/11/dolphins-rams-score-result-takeaways-mnf/
+
 **Full Time: The NWSL Championship won't have an underdog**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5916627/2024/11/11/nwsl-playoffs-semifinals-bracket-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-yor
 **Trump Allies Push Him to Block Thune From Becoming Senate G.O.P. Leader**\
 `Advisers to the president-elect, who already has a strong hold on congressional Republicans, want him to tighten his grip by torpedoing the bid of the establishment front-runner for the post.`\
 https://nytimes.com/2024/11/11/us/politics/trump-senate-thune-scott.html
-
-**Donald Trump Jr. Is Joining a Venture Capital Firm**\
-`The firm, 1789 Capital, invests in products and companies aimed at conservative audiences.`\
-https://nytimes.com/2024/11/11/us/donald-trump-jr-firm.html
 
