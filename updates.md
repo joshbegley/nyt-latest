@@ -1,3 +1,11 @@
+**Who Are the Next Leaders of the Democratic Party?**\
+`Democrats will soon have a leadership vacuum, and there will be no shortage of highly ambitious governors, senators and transportation secretaries looking to fill it.`\
+https://nytimes.com/2024/11/12/us/politics/democratic-party-next-leaders.html
+
+**Emboldened by Re-election, Trump Renews Bid to Overturn His Conviction**\
+`Donald J. Trump’s lawyers have moved in recent days to throw out his criminal case in Manhattan, underscoring his expansive view of presidential power and its supremacy over the rule of law.`\
+https://nytimes.com/2024/11/12/nyregion/trump-criminal-conviction-overturn-manhattan.html
+
 **F1 race director Niels Wittich steps down; Rui Marques to take over**\
 `In a statement issued by the FIA, F1’s governing body said Wittich had left the role "to pursue new opportunities.”`\
 https://nytimes.com/athletic/5917307/2024/11/12/f1-race-director-change/
