@@ -1,3 +1,7 @@
+**‘We Welcomed Them’: G.O.P. Embraces New Latino Voters in Arizona**\
+`Days ago, President-elect Donald J. Trump won swing-state Arizona, flipping the state back to red.`\
+https://nytimes.com/2024/11/11/world/americas/arizona-latino-vote.html
+
 **Trump to Name Michael Waltz as His National Security Adviser**\
 `The president-elect has chosen a Republican member of Congress from Florida to oversee national security policy in the White House.`\
 https://nytimes.com/2024/11/11/us/politics/trump-michael-waltz-national-security-adviser.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/11/11/us/politics/trump-michael-waltz-national-security
 https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injury/
 
 **Some Arizona Latinos Find New Home Within Republican Party**\
-`President-elect Donald J. Trump won Arizona, flipping the swing state back to red. Younger Latino voters, like José Castro, were among those who shifted to the right, turning to older Republicans like Gerry Navarro, who were ready and willing to welcome him into their party.`\
+`President-elect Donald J. Trump won Arizona, flipping the swing state back to red. Younger Latino voters, like José Castro, were among those who shifted to the right, turning to older Republicans like Gerry Navarro who were ready and willing to welcome him into the party.`\
 https://nytimes.com/video/world/americas/100000009815630/arizona-latino-vote-trump.html
 
 **John Robinson, legendary USC and LA Rams coach, dies at 89**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909628/2024/11/11/nfl-week-10-inactives-and-fantas
 **Democrats Pick Up Seat in Newly Drawn Louisiana District**\
 `Cleo Fields, a longtime Baton Rouge politician, won more than 50 percent of the vote in an open primary, negating the need for a runoff.`\
 https://nytimes.com/2024/11/11/us/politics/louisiana-house-cleo-fields.html
-
-**Murder Suspect Who Alleged Bear Attack Is Captured in South Carolina**\
-`The suspect was taken into custody, ending a multistate manhunt in a case involving a suspicious emergency call, a false identity and a fake bear attack.`\
-https://nytimes.com/2024/11/11/us/fake-bear-attack-murder-tennessee-arrest.html
 
