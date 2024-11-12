@@ -1,3 +1,7 @@
+**Super Bowl 2025 odds: How long can the Chiefs walk the wire?**\
+`The Chiefs continued their escape act to remain undefeated. But they weren't the only Super Bowl favorites to record a comeback win.`\
+https://nytimes.com/athletic/5917453/2024/11/12/super-bowl-2025-odds-how-long-can-the-kansas-city-chiefs-walk-the-wire/
+
 **Many Kids’ Melatonin Supplements Don’t Contain the Doses They Claim**\
 `A new study by F.D.A. scientists found that some products contained more than six times the amount on the label.`\
 https://nytimes.com/2024/11/12/well/melatonin-childrens-supplements.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5916890/2024/11/12/nba-power-rankings-cavaliers-war
 **Premier League player facing rape allegations questioned further by police**\
 `A Premier League footballer accused of rape was questioned by police last week as the investigation into allegations against him continues.`\
 https://nytimes.com/athletic/5916846/2024/11/12/premier-league-player-rape-questioned-police/
-
-**Its Birthrate Falling, Russia Targets Child-Free Lifestyles**\
-`The country’s lower house of Parliament passed a law that would ban what it calls “propaganda” discouraging Russians from having children.`\
-https://nytimes.com/2024/11/12/world/europe/russia-child-free-lifestyles.html
 
