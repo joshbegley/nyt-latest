@@ -1,3 +1,11 @@
+**Fifteen notable MLB players who could be traded this offseason**\
+`To set the stage for trade season, here's what I'm hearing and my thoughts on 15 players who could be dealt this winter. `\
+https://nytimes.com/athletic/5916441/2024/11/12/mlb-players-trade-offseason-2024-25/
+
+**Alpine signs F1 engine deal with Mercedes from 2026**\
+`Alpine has signed an agreement to race with Mercedes Formula One power units from the start of the 2026 season after opting to close its factory engine program.`\
+https://nytimes.com/athletic/5916950/2024/11/12/alpine-f1-mercedes-engine-deal/
+
 **LeBrun: Paul Maurice on what fuels the Panthers now that they've lost their 'angst'**\
 `Maurice's team hasn't missed a beat early in its title-defense season, currently riding a seven-game winning streak.`\
 https://nytimes.com/athletic/5916070/2024/11/12/paul-maurice-panthers-lebrun/

@@ -1,6 +1,14 @@
+**Fifteen notable MLB players who could be traded this offseason**\
+`To set the stage for trade season, here's what I'm hearing and my thoughts on 15 players who could be dealt this winter. `\
+https://nytimes.com/athletic/5916441/2024/11/12/mlb-players-trade-offseason-2024-25/
+
 **LeBrun: Paul Maurice on what fuels the Panthers now that they've lost their 'angst'**\
 `Maurice's team hasn't missed a beat early in its title-defense season, currently riding a seven-game winning streak.`\
 https://nytimes.com/athletic/5916070/2024/11/12/paul-maurice-panthers-lebrun/
+
+**Alpine signs F1 engine deal with Mercedes from 2026**\
+`Alpine has signed an agreement to race with Mercedes Formula One power units from the start of the 2026 season after opting to close its factory engine program.`\
+https://nytimes.com/athletic/5916950/2024/11/12/alpine-f1-mercedes-engine-deal/
 
 **Kazuyoshi Miura set for 40th season as professional soccer player**\
 `Japanese forward Kazuyoshi Miura plans to extend his professional soccer career into his 40th season.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/briefing/a-republican-trifecta.html
 **Biden Team Tries to Buoy Climate Talks Jolted by ‘Bitterly Disappointing’ Election**\
 `Negotiators at the summit in Azerbaijan fear that the return of Donald Trump will sap momentum for global climate action.`\
 https://nytimes.com/2024/11/12/climate/cop29-baku-world-leaders.html
-
-**As uninspiring results pile up, will Phil Longo get Wisconsin's offense to the other side?**\
-`Wisconsin likely will need to score at a rate that has been significantly lacking in big moments this season under Longo.`\
-https://nytimes.com/athletic/5916202/2024/11/12/wisconsin-offense-phil-longo-coordinator/
-
-**Meet Spurs interim coach Mitch Johnson, through those who work with him daily**\
-`"His energy has been amazing, and I’m excited to see what we do," Chris Paul says of Johnson and his interim role.`\
-https://nytimes.com/athletic/5915311/2024/11/12/spurs-mitch-johnson-interim-coach/
 
