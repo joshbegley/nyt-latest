@@ -1,3 +1,15 @@
+**German Lawmakers Agree on Date for Snap Election in New Year**\
+`After the collapse of Chancellor Olaf Scholz’s governing coalition, the balloting will be held on Feb. 23, about seven months before it had been scheduled.`\
+https://nytimes.com/2024/11/12/world/europe/german-lawmakers-election-scholz.html
+
+**College football best bets Week 12: Expecting MACtion craziness, Colorado under among 6 picks**\
+`Austin Mock's model predicts value in six bets for CFB Week 12. `\
+https://nytimes.com/athletic/5917554/2024/11/12/college-football-best-bets-week-12-buffalo-arizona-colorado/
+
+**Who Is Michael Waltz, Trump’s Pick to Be National Security Adviser?**\
+`The former Green Beret and three-term congressman from Florida has established himself as a hawkish Republican voice on matters of national security.`\
+https://nytimes.com/2024/11/12/us/politics/who-is-michael-waltz-trump.html
+
 **Tracking Tropical Storm Usagi**\
 `See the likely path and wind arrival times for Usagi.`\
 https://nytimes.com/interactive/2024/11/12/weather/usagi-map-path-tracker.html
