@@ -1,3 +1,7 @@
+**Many Kids’ Melatonin Supplements Don’t Contain the Doses They Claim**\
+`A new study by F.D.A. scientists found that some products contained more than six times the amount on the label.`\
+https://nytimes.com/2024/11/12/well/melatonin-childrens-supplements.html
+
 **E.P.A. to Charge Oil Companies First-Ever Methane Fee, but Will It Last?**\
 `The Biden administration is imposing a fee on large energy companies that spew excess methane, a potent greenhouse gas. Republicans may be able to repeal it.`\
 https://nytimes.com/2024/11/12/climate/methane-fee-epa-oil.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5916846/2024/11/12/premier-league-player-rape-quest
 **Its Birthrate Falling, Russia Targets Child-Free Lifestyles**\
 `The country’s lower house of Parliament passed a law that would ban what it calls “propaganda” discouraging Russians from having children.`\
 https://nytimes.com/2024/11/12/world/europe/russia-child-free-lifestyles.html
-
-**Julio Bocca, Former Star Dancer, to Run Argentina’s National Ballet**\
-`Bocca, who retired from American Ballet Theater in 2006, will lead the company at Teatro Colón in Buenos Aires.`\
-https://nytimes.com/2024/11/12/arts/dance/julio-bocca-national-ballet-of-argentina.html
 
