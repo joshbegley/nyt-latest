@@ -1,3 +1,7 @@
+**Word of the Day: encumbered**\
+`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/12/learning/word-of-the-day-encumbered.html
+
 **Flyers rookies Matvei Michkov, Emil Andrae thrive amid challenges in win vs. Sharks**\
 `Michkov and Andrae could be huge keys to the Flyers' future.`\
 https://nytimes.com/athletic/5915979/2024/11/12/flyers-rookies-matvei-michkov-emil-andrae/

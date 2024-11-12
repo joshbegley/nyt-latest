@@ -1,3 +1,7 @@
+**Word of the Day: encumbered**\
+`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/12/learning/word-of-the-day-encumbered.html
+
 **Flyers rookies Matvei Michkov, Emil Andrae thrive amid challenges in win vs. Sharks**\
 `Michkov and Andrae could be huge keys to the Flyers' future.`\
 https://nytimes.com/athletic/5915979/2024/11/12/flyers-rookies-matvei-michkov-emil-andrae/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915448/2024/11/12/david-coote-jurgen-klopp-liverpo
 **'What the hell are you doing in Romford?’ - when Messi played West Ham U21s**\
 `Ten years ago this week, Messi and Argentina's first team took on West Ham's youngsters in a training game - here, some of them recall it`\
 https://nytimes.com/athletic/5812084/2024/11/12/messi-playing-at-west-ham-2014/
-
-**Former Notre Dame coach Gerry Faust dies at 89**\
-`Faust coached Notre Dame from 1981-85 and compiled a 30-26-1 record.`\
-https://nytimes.com/athletic/5916622/2024/11/12/gerry-faust-notre-dame-akron-college-football/
 
