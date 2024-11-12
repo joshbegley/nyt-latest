@@ -36,7 +36,7 @@ https://nytimes.com/2024/11/11/world/americas/arizona-latino-vote.html
 `The president-elect has chosen a Republican member of Congress from Florida to oversee national security policy in the White House.`\
 https://nytimes.com/2024/11/11/us/politics/trump-michael-waltz-national-security-adviser.html
 
-**Tyreek Hill playing through torn wrist ligament, active vs. Rams for 'MNF'**\
+**Tyreek Hill has torn wrist ligament, says it was aggravated in arrest**\
 `Dolphins leading receiver did not participate in team practices on Friday and Saturday.`\
 https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injury/
 

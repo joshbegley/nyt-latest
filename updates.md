@@ -1,3 +1,7 @@
+**Tyreek Hill has torn wrist ligament, says it was aggravated in arrest**\
+`Dolphins leading receiver did not participate in team practices on Friday and Saturday.`\
+https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injury/
+
 **Review: Blowing Louis Armstrong’s Horn Isn’t Enough in ‘A Wonderful World’**\
 `The great jazz trumpeter and sandpaper vocalist gets the old jukebox treatment in a new Broadway musical starring James Monroe Iglehart.`\
 https://nytimes.com/2024/11/11/theater/a-wonderful-world-review-louis-armstrong.html
