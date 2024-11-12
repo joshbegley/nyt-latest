@@ -1,3 +1,7 @@
+**Tracking Trump’s Cabinet Nominations**\
+`These are President-elect Donald J. Trump’s intended nominees and appointees for his second-term cabinet and other high-level positions.`\
+https://nytimes.com/interactive/2024/us/politics/trump-administration-cabinet-appointees.html
+
 **How to watch Kentucky vs. Duke, tonight's college basketball blockbuster matchup**\
 `Cooper Flagg, Kon Knueppel and Duke face a big test. Koby Brea and Kentucky are scoring in droves. Tuesday's game is loaded with intrigue.`\
 https://nytimes.com/athletic/5918370/2024/11/12/kentucky-duke-watch-college-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/trump-republicans-senate.html
 **Ranieri in talks to come out of retirement and take charge of Roma**\
 `Roma are working on a deal to appoint Claudio Ranieri as their new manager in a caretaker role until the end of the 2024-25 season.`\
 https://nytimes.com/athletic/5918476/2024/11/12/roma-claudio-ranieri-talks-appoint/
-
-**A Man Was Missing for Months. Investigators Say He Faked His Death.**\
-`The authorities spent weeks searching a Wisconsin lake for the man’s body before discovering that he had moved money into a foreign bank account and had been communicating with a woman in Uzbekistan.`\
-https://nytimes.com/2024/11/12/us/kayaker-faked-death-wisconsin.html
 
