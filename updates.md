@@ -1,3 +1,7 @@
+**Saks Fifth Avenue Calls Off Holiday Light Show**\
+`The department store is canceling an annual show that has long drawn tourists to its flagship store in New York City.`\
+https://nytimes.com/2024/11/12/nyregion/saks-light-show-canceled.html
+
 **Man Who Helped Restrain Jordan Neely Testifies About Fatal Chokehold**\
 `Eric Gonzalez, who helped Daniel Penny pin Mr. Neely to the floor of a subway car, also said he had lied when he told investigators Mr. Neely had hit him.`\
 https://nytimes.com/2024/11/12/nyregion/daniel-penny-trial-jordan-neely-chokehold.html
