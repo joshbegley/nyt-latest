@@ -1,3 +1,11 @@
+**At Least 35 Killed After Man Drives Into Crowd in Southern China**\
+`The police in the city of Zhuhai detained a man who they said had driven into people who were exercising at a sports center, a state news agency reported.`\
+https://nytimes.com/2024/11/12/world/asia/china-car-attack-zhuhai.html
+
+**The Pulse: Don't forget about the Dolphins**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5916471/2024/11/12/dolphins-rams-tua-tagovailoa-the-pulse/
+
 **A Republican Trifecta**\
 `With the House, Republicans would have full control of the federal government next year.`\
 https://nytimes.com/2024/11/12/briefing/a-republican-trifecta.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915004/2024/11/12/knicks-defense-video-3s-bad/
 **NFL QB stock report, Week 11: Bears QB Caleb Williams' flaws have followed him from college**\
 `Williams' struggles are not entirely his fault. He's not getting a lot of help from the supporting cast in Chicago.`\
 https://nytimes.com/athletic/5915524/2024/11/12/nfl-qb-stock-report-caleb-williams-bears/
-
-**Commanders in midst of record stretch of facing Heisman Trophy winners**\
-`There are 11 Heisman winners in the NFL, and two reside in Washington. Come Thursday, it will have faced all nine of the others this season.`\
-https://nytimes.com/athletic/5910237/2024/11/12/commanders-heisman-winners-jayden-daniels/
-
-**The Batman writer who puts UVA basketball Easter eggs in his work**\
-`Long before Sam Hamm wrote one of the greatest superhero movies ever, he was a fan of Virginia basketball.`\
-https://nytimes.com/athletic/5908955/2024/11/12/batman-virginia-basketball-comics/
 
