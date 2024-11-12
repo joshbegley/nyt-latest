@@ -1,3 +1,7 @@
+**5 Years After Killing Driver, Officer Fights at Trial to Keep His Job**\
+`In an internal trial, Lt. Jonathan Rivera of the New York Police Department faces charges that he acted rashly when he shot Allan Feliz during an altercation.`\
+https://nytimes.com/2024/11/12/nyregion/nypd-shooting-trial-allan-feliz.html
+
 **‘Fossil Fuels Are Still Winning’: Global Emissions Head for a Record**\
 `Countries promised to move away from coal, oil and natural gas at last year’s climate summit. New research shows they’re are burning more than ever before.`\
 https://nytimes.com/2024/11/12/climate/fossil-fuel-emissions-2024-record.html

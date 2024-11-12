@@ -1,3 +1,7 @@
+**5 Years After Killing Driver, Officer Fights at Trial to Keep His Job**\
+`In an internal trial, Lt. Jonathan Rivera of the New York Police Department faces charges that he acted rashly when he shot Allan Feliz during an altercation.`\
+https://nytimes.com/2024/11/12/nyregion/nypd-shooting-trial-allan-feliz.html
+
 **‘Fossil Fuels Are Still Winning’: Global Emissions Head for a Record**\
 `Countries promised to move away from coal, oil and natural gas at last year’s climate summit. New research shows they’re are burning more than ever before.`\
 https://nytimes.com/2024/11/12/climate/fossil-fuel-emissions-2024-record.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/john-ratcliffe-cia-director-trump.htm
 **Amtrak Suspends Service Between New York and New Haven Because of Fire**\
 `A brush fire apparently connected to an Amtrak substation in the Bronx caused a power outage and a disruption that was expected to last through the day.`\
 https://nytimes.com/2024/11/12/nyregion/amtrak-fire-nyc-new-haven.html
-
-**With Surge in New Users, Bluesky Emerges as X Alternative**\
-`With one million new accounts added since the U.S. elections, Bluesky has solidified itself as an option for people looking to change their social media service.`\
-https://nytimes.com/2024/11/12/style/bluesky-users-election.html
 
