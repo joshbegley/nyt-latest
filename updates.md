@@ -1,3 +1,7 @@
+**Cowboys Today: Dissecting Micah Parsons' intention with his Mike McCarthy comments**\
+`Two things can be true when it comes to what Micah Parsons said about Mike McCarthy after the game Sunday.`\
+https://nytimes.com/athletic/5916576/2024/11/12/cowboys-today-micah-parsons-mike-mccarthy/
+
 **Exxon Chief to Trump: Don’t Withdraw From Paris Climate Deal**\
 `Darren Woods was one of only a few Western oil executives attending a global climate conference in Baku, Azerbaijan.`\
 https://nytimes.com/2024/11/12/business/energy-environment/exxon-mobil-baku-climate-cop29.html
