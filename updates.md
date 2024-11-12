@@ -1,3 +1,11 @@
+**‘Fossil Fuels Are Still Winning’: Global Emissions Head for a Record**\
+`Countries promised to move away from coal, oil and natural gas at last year’s climate summit. New research shows they’re are burning more than ever before.`\
+https://nytimes.com/2024/11/12/climate/fossil-fuel-emissions-2024-record.html
+
+**‘Hot Frosty’ Review: The 8 Abs of Christmas**\
+`A hunky snowman comes to life in this Netflix holiday rom-com that strikes a certain muscle tone.`\
+https://nytimes.com/2024/11/12/movies/hot-frosty-review.html
+
 **Reds hire Brad Mills as bench coach, reuniting him with Terry Francona**\
 `Mills managed the Astros from 2010 to 2012 and was on Francona's staffs in Boston, Cleveland and Philadelphia.`\
 https://nytimes.com/athletic/5918534/2024/11/12/reds-hire-brad-mills-bench-coach/
