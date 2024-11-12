@@ -1,5 +1,5 @@
-**Who should replace Gary Lineker as Match of the Day presenter?**\
-`With the presenter standing down as MOTD presenter, who would you pick to replace him?`\
+**Who should replace Gary Lineker as Match Of The Day presenter?**\
+`With the presenter standing down as MOTD's main presenter at the end of this season, who would you pick to take over?`\
 https://nytimes.com/athletic/5916837/2024/11/12/gary-lineker-match-of-the-day-replacement/
 
 **As Browns navigate tough times, can their second-year players continue to ascend?**\
