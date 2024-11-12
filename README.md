@@ -1,3 +1,7 @@
+**Cowboys Today: Dissecting Micah Parsons' intention with his Mike McCarthy comments**\
+`Two things can be true when it comes to what Micah Parsons said about Mike McCarthy after the game Sunday.`\
+https://nytimes.com/athletic/5916576/2024/11/12/cowboys-today-micah-parsons-mike-mccarthy/
+
 **Exxon Chief to Trump: Don’t Withdraw From Paris Climate Deal**\
 `Darren Woods was one of only a few Western oil executives attending a global climate conference in Baku, Azerbaijan.`\
 https://nytimes.com/2024/11/12/business/energy-environment/exxon-mobil-baku-climate-cop29.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917147/2024/11/12/notre-dame-florida-state-final-a
 **Do You Know These World-Famous Children’s Books?**\
 `Folk tales and beloved characters from cultures around the globe can are celebrated in popular books for young readers. Test your knowledge of them with this short quiz.`\
 https://nytimes.com/interactive/2024/11/12/books/review/world-childrens-books.html
-
-**Fantasy football Week 11 drops: Xavier Worthy unworthy of rosters. Cut Jonathon Brooks**\
-`Gary Davenport recommends dropping Xavier Worthy, not holding your breath on Jonathon Brooks' debut. `\
-https://nytimes.com/athletic/5917021/2024/11/12/nfl-fantasy-football-week-11-drops/
 
