@@ -1,3 +1,11 @@
+**LeBrun rumblings: Ken Holland's new role, early trade market, tampering, CBA and more from GMs meeting**\
+`Deputy commissioner Bill Daly said a potential change to contract term limits was discussed Tuesday with general managers.`\
+https://nytimes.com/athletic/5918446/2024/11/12/nhl-rumblings-holland-trades-tampering-cba/
+
+**Trump Picks John Ratcliffe, His Former Intelligence Director, for C.I.A. Chief**\
+`Mr. Ratcliffe, who was also a former Texas congressman, fought fiercely for Mr. Trump during his first term.`\
+https://nytimes.com/2024/11/12/us/politics/john-ratcliffe-cia-director-trump.html
+
 **Amtrak Suspends Service Between New York and New Haven Because of Fire**\
 `A brush fire apparently connected to an Amtrak substation in the Bronx caused a power outage and a disruption that was expected to last through the day.`\
 https://nytimes.com/2024/11/12/nyregion/amtrak-fire-nyc-new-haven.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5918386/2024/11/12/shea-weber-leadership-hall-of-fa
 **Georgia Election Case Against Trump Could Survive, but With a Long Delay**\
 `How far the state’s election interference case gets remains to be seen, but the president-elect almost certainly will not face trial during his term.`\
 https://nytimes.com/2024/11/12/us/trump-georgia-prosecution-delay.html
-
-**Political Reporter Olivia Nuzzi Drops Protective Order Against Ex-Fiancé**\
-`Ms. Nuzzi, a former writer for New York magazine embroiled in a scandal involving Robert F. Kennedy Jr., had accused her ex-fiancé of harassment and blackmail.`\
-https://nytimes.com/2024/11/12/business/media/olivia-nuzzi-ryan-lizza.html
-
-**Hall 'a completely different player' from Chelsea debut under Tuchel**\
-`Lewis Hall believes that he is a “completely different player” now from the one who was given his Chelsea debut by Thomas Tuchel almost three years ago.`\
-https://nytimes.com/athletic/5917817/2024/11/12/england-squad-lewis-hall/
 
