@@ -1,3 +1,7 @@
+**Former Fox News Host Chris Wallace to Quit CNN After 3 Years**\
+`The 77-year-old veteran anchor told The Daily Beast that he planned to venture into streaming or podcasting.`\
+https://nytimes.com/2024/11/11/business/media/chris-wallace-cnn.html
+
 **Wildfire Grows in New Jersey and New York, Despite Modest Rainfall**\
 `The Jennings Creek fire is currently burning across 3,500 acres, officials said, and is expected to grow to over 5,000 acres.`\
 https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-york-despite-modest-rainfall.html
