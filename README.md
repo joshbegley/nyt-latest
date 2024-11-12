@@ -1,3 +1,7 @@
+**F1 race director Niels Wittich steps down; Rui Marques to take over**\
+`In a statement issued by the FIA, F1’s governing body said Wittich had left the role "to pursue new opportunities.”`\
+https://nytimes.com/athletic/5917307/2024/11/12/f1-race-director-change/
+
 **Bears fire OC Shane Waldron, Thomas Brown to call plays**\
 `The move comes after the Bears (4-5) only scored three points against the New England Patriots on Sunday.`\
 https://nytimes.com/athletic/5917311/2024/11/12/bears-offensive-coordinator-shane-waldron-thomas-brown-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/world/europe/archbishop-canterbury-resigns-abuse-
 **What's gone wrong with the Bucks, and do they have time to fix it?**\
 `The Bucks started the season with title expectations. After a 2-8 start, they're in a hole that will be tough to climb out of.`\
 https://nytimes.com/athletic/5917043/2024/11/12/milwaukee-bucks-giannis-antetokounmpo-damian-lillard-analysis/
-
-**Sharath Jois, Yoga Master and Heir to Ashtanga’s Founder, Dies at 53**\
-`He became one of the world’s most sought-after teachers of a style of yoga that his grandfather helped turn into a popular form of exercise worldwide.`\
-https://nytimes.com/2024/11/12/us/sharath-jois-dead-ashtanga.html
 
