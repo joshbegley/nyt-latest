@@ -1,3 +1,11 @@
+**Cucurella has become Chelsea's irritant-in-chief - and may be what Maresca needs**\
+`After a tough start, Cucurella has endeared himself to Chelsea fans - even if opposition ones see him as a footballing pantomime villain`\
+https://nytimes.com/athletic/5914713/2024/11/12/chelsea-marc-cucurella-dennis-wise-john-terry/
+
+**Inside Newcastle Q&A: Isak's future, the Mourinho rumour, and Krafth's injury**\
+`Chris Waugh answers your latest questions about Newcastle - from January transfer plans to the next youngster to break through`\
+https://nytimes.com/athletic/5914254/2024/11/12/inside-newcastle-questions-qnaswers-isak-mourinho-krafth/
+
 **Fear and loathing in academy football: Scouts in a pen, no team sheets and denying access**\
 `New rules at academy level and other issues have led to tension across the Premier League`\
 https://nytimes.com/athletic/5908431/2024/11/12/premier-league-academy-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5916622/2024/11/12/gerry-faust-notre-dame-akron-col
 **She Beat the Odds to Upend a Male Political Dynasty in Japan**\
 `Hanako Okada was one of 73 women to win seats at the general election last month, a record number in a Parliament long dominated by men.`\
 https://nytimes.com/2024/11/12/world/asia/japan-women-politics-election.html
-
-**Tuesday Briefing**\
-`Key figures in the next Trump administration.`\
-https://nytimes.com/2024/11/12/briefing/trump-iran-climate.html
-
-**Attending five football matches (almost six) in 48 hours**\
-`From an U13s game, to non-League, to Old Trafford - the characters you meet while attending five games in two days`\
-https://nytimes.com/athletic/5914939/2024/11/12/watching-five-football-matches/
 

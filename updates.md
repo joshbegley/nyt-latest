@@ -1,3 +1,11 @@
+**Cucurella has become Chelsea's irritant-in-chief - and may be what Maresca needs**\
+`After a tough start, Cucurella has endeared himself to Chelsea fans - even if opposition ones see him as a footballing pantomime villain`\
+https://nytimes.com/athletic/5914713/2024/11/12/chelsea-marc-cucurella-dennis-wise-john-terry/
+
+**Inside Newcastle Q&A: Isak's future, the Mourinho rumour, and Krafth's injury**\
+`Chris Waugh answers your latest questions about Newcastle - from January transfer plans to the next youngster to break through`\
+https://nytimes.com/athletic/5914254/2024/11/12/inside-newcastle-questions-qnaswers-isak-mourinho-krafth/
+
 **Fear and loathing in academy football: Scouts in a pen, no team sheets and denying access**\
 `New rules at academy level and other issues have led to tension across the Premier League`\
 https://nytimes.com/athletic/5908431/2024/11/12/premier-league-academy-transfers/
