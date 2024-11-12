@@ -1,3 +1,7 @@
+**Trump Expected to Name Marco Rubio as Secretary of State**\
+`The president-elect appears to have settled on the Florida senator to be the nation’s top diplomat.`\
+https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Last weekend saw a rogue live tiger, an AD going scorched earth on his conference, Lane Kiffin winning a big game and much more. What could this week do to top it?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/11/world/middleeast/icc-prosecutor-misconduct-invest
 **Remembering Quincy Jones, a Bridge Between Genres and Generations**\
 `A conversation about his long and unique footprint in music, and how he discussed it later in his career.`\
 https://nytimes.com/2024/11/11/arts/music/popcast-quincy-jones.html
-
-**NFL Week 10 inactives and fantasy tips: Tyreek Hill is active for Monday Night Football**\
-`Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
-https://nytimes.com/athletic/5909628/2024/11/11/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
 

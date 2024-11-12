@@ -1,3 +1,7 @@
+**Trump Expected to Name Marco Rubio as Secretary of State**\
+`The president-elect appears to have settled on the Florida senator to be the nation’s top diplomat.`\
+https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Last weekend saw a rogue live tiger, an AD going scorched earth on his conference, Lane Kiffin winning a big game and much more. What could this week do to top it?</p>
 <p>Leave your questions here. Please include your city.</p>
