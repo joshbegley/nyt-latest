@@ -1,3 +1,7 @@
+**Van Nistelrooy departs after successfully starting the healing process at Manchester United**\
+`Previously adored as a United player, the Dutchman only strengthened his bond with the fans by picking up the pieces after Ten Hag's sacking`\
+https://nytimes.com/athletic/5916728/2024/11/12/van-nistelrooy-manchester-united-leaves-amorim/
+
 **Odegaard won't play for Norway during international break**\
 `Arsenal captain Martin Odegaard will not feature for Norway in their upcoming Nations League matches as he continues his recovery back to full fitness.`\
 https://nytimes.com/athletic/5914363/2024/11/12/martin-odegaard-norway-squad-arsenal/
