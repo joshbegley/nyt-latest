@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Last weekend saw a rogue live tiger, an AD going scorched earth on his conference, Lane Kiffin winning a big game and much more. What could this week do to top it?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5916328/2024/11/11/submit-a-question-for-stewart-mandels-college-football-mailbag-281/
+
 **‘We Welcomed Them’: G.O.P. Embraces New Latino Voters in Arizona**\
 `Days ago, President-elect Donald J. Trump won swing-state Arizona, flipping the state back to red.`\
 https://nytimes.com/2024/11/11/world/americas/arizona-latino-vote.html
@@ -33,8 +39,4 @@ https://nytimes.com/2024/11/11/arts/music/popcast-quincy-jones.html
 **NFL Week 10 inactives and fantasy tips: Tyreek Hill is active for Monday Night Football**\
 `Who's in and who's out in Week 10. Plus, Ciely's Week 10 player rankings, Funston's rest-of-season big board, weather reports and more.`\
 https://nytimes.com/athletic/5909628/2024/11/11/nfl-week-10-inactives-and-fantasy-tips-adam-thielen-stays-on-ir-darius-slayton-out-for-morning-game-in-munich/
-
-**Democrats Pick Up Seat in Newly Drawn Louisiana District**\
-`Cleo Fields, a longtime Baton Rouge politician, won more than 50 percent of the vote in an open primary, negating the need for a runoff.`\
-https://nytimes.com/2024/11/11/us/politics/louisiana-house-cleo-fields.html
 

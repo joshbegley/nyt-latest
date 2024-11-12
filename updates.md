@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Last weekend saw a rogue live tiger, an AD going scorched earth on his conference, Lane Kiffin winning a big game and much more. What could this week do to top it?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5916328/2024/11/11/submit-a-question-for-stewart-mandels-college-football-mailbag-281/
+
 **‘We Welcomed Them’: G.O.P. Embraces New Latino Voters in Arizona**\
 `Days ago, President-elect Donald J. Trump won swing-state Arizona, flipping the state back to red.`\
 https://nytimes.com/2024/11/11/world/americas/arizona-latino-vote.html
