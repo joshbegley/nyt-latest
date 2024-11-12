@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5916471/2024/11/12/dolphins-rams-tua-tagovailoa-the
 https://nytimes.com/2024/11/12/briefing/a-republican-trifecta.html
 
 **Biden Team Tries to Buoy Climate Talks Jolted by ‘Bitterly Disappointing’ Election**\
-`Negotiators at the COP29 summit in Azerbaijan fear that the return of Donald J. Trump will sap momentum for global climate action.`\
+`Negotiators at the summit in Azerbaijan fear that the return of Donald Trump will sap momentum for global climate action.`\
 https://nytimes.com/2024/11/12/climate/cop29-baku-world-leaders.html
 
 **As uninspiring results pile up, will Phil Longo get Wisconsin's offense to the other side?**\

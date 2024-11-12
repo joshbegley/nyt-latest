@@ -1,3 +1,7 @@
+**Biden Team Tries to Buoy Climate Talks Jolted by ‘Bitterly Disappointing’ Election**\
+`Negotiators at the summit in Azerbaijan fear that the return of Donald Trump will sap momentum for global climate action.`\
+https://nytimes.com/2024/11/12/climate/cop29-baku-world-leaders.html
+
 **Israel Strikes South of Beirut Amid Push for Cease-Fire in Lebanon**\
 `The conflict between Israel and Hezbollah has intensified in recent days, despite diplomatic efforts to move toward a temporary cease-fire.`\
 https://nytimes.com/2024/11/12/world/middleeast/israel-lebanon-strikes-hezbollah.html
