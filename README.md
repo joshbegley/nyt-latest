@@ -1,7 +1,3 @@
-**This ‘Ghost’ Fish Seemed Extinct, Until It Turned Up in Unexpected Places**\
-`No one saw a Mekong giant salmon carp for 15 years, but then the species was spotted in areas of Cambodia that suggest it may be found in more locations.`\
-https://nytimes.com/2024/11/12/science/mekong-giant-salmon-carp-cambodia.html
-
 **Cowboys' Dak Prescott to have season-ending hamstring surgery**\
 `Prescott suffered the injury in the Cowboys’ Week 9 loss to the Atlanta Falcons at the end of the third quarter.`\
 https://nytimes.com/athletic/5910524/2024/11/12/dak-prescott-season-ending-surgery-hamstring-injury/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5917311/2024/11/12/bears-offensive-coordinator-shan
 **Kennedy’s F.D.A.Wish List: Raw Milk, Stem Cells, Heavy Metals**\
 `Robert F. Kennedy Jr., one of President-elect Donald J. Trump’s advisers on health, is taking aim at the agency’s oversight on many fronts.`\
 https://nytimes.com/2024/11/12/health/robert-kennedy-jr-fda.html
+
+**Cowboys Today: Dissecting Micah Parsons' intention with his Mike McCarthy comments**\
+`Two things can be true when it comes to what Micah Parsons said about Mike McCarthy after the game Sunday.`\
+https://nytimes.com/athletic/5916576/2024/11/12/cowboys-today-micah-parsons-mike-mccarthy/
 

@@ -1,3 +1,7 @@
+**This ‘Ghost’ Fish Seemed Extinct, Until It Turned Up in Unexpected Places**\
+`No one saw a Mekong giant salmon carp for 15 years, but then the species was spotted in areas of Cambodia that suggest it may be found in more locations.`\
+https://nytimes.com/2024/11/12/science/mekong-giant-salmon-carp-cambodia.html
+
 **Cowboys' Dak Prescott to have season-ending hamstring surgery**\
 `Prescott suffered the injury in the Cowboys’ Week 9 loss to the Atlanta Falcons at the end of the third quarter.`\
 https://nytimes.com/athletic/5910524/2024/11/12/dak-prescott-season-ending-surgery-hamstring-injury/
