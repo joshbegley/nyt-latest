@@ -1,3 +1,7 @@
+**Who should replace Gary Lineker as Match of the Day presenter?**\
+`With the presenter standing down as MOTD presenter, who would you pick to replace him?`\
+https://nytimes.com/athletic/5916837/2024/11/12/gary-lineker-match-of-the-day-replacement/
+
 **As Browns navigate tough times, can their second-year players continue to ascend?**\
 `Cedric Tillman, Dawand Jones and Isaiah McGuire are among the players who can prove they deserve to be part of Cleveland's long-term plans.`\
 https://nytimes.com/athletic/5916075/2024/11/12/browns-second-year-players-cedric-tillman/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/style/apc-wine.html
 **Will the Supreme Court Stand Up to Trump? Can It?**\
 `The Supreme Court is largely to blame for the challenges it may face over the next four years.`\
 https://nytimes.com/2024/11/12/opinion/donald-trump-supreme-court.html
-
-**He Thought He Knew Horses. Then He Learned to Really Listen.**\
-`Warwick Schiller made his name as an expert trainer. An enigmatic little horse completely changed his outlook.`\
-https://nytimes.com/2024/11/12/magazine/warwick-schiller-horses.html
 
