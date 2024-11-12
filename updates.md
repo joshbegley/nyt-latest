@@ -1,3 +1,23 @@
+**Political Reporter Olivia Nuzzi Drops Protective Order Against Ex-Fiancé**\
+`Ms. Nuzzi, a former writer for New York magazine embroiled in a scandal involving Robert F. Kennedy Jr., had accused her ex-fiancé of harassment and blackmail.`\
+https://nytimes.com/2024/11/12/business/media/olivia-nuzzi-ryan-lizza.html
+
+**Hall 'a completely different player' from Chelsea debut under Tuchel**\
+`Lewis Hall believes that he is a “completely different player” now from the one who was given his Chelsea debut by Thomas Tuchel almost three years ago.`\
+https://nytimes.com/athletic/5917817/2024/11/12/england-squad-lewis-hall/
+
+**Noem is emerging as the nominee for homeland security secretary.**\
+`By Maggie Haberman`\
+https://nytimes.com/2024/11/12/us/politics/noem-is-emerging-as-the-nominee-for-homeland-security-secretary.html
+
+**Trump Had It Easy the First Time**\
+`A host of problems that will need more subtle and sophisticated uses of force and coercive diplomacy will confront the new president.`\
+https://nytimes.com/2024/11/12/opinion/trump-had-it-easy-the-first-time.html
+
+**Gusty Winds Stoke 5,000-Acre Wildfire at New York-New Jersey Border**\
+`Known as the Jennings Creek fire, it started Friday and quickly spread. The rugged terrain has made it more difficult for emergency workers to respond.`\
+https://nytimes.com/2024/11/12/nyregion/gusty-winds-stoke-5000-acre-wildfire-at-new-york-new-jersey-border.html
+
 **Angels sign veteran catcher Travis d'Arnaud to 2-year deal**\
 `D'Arnaud would serve as a backup to Logan O'Hoppe.`\
 https://nytimes.com/athletic/5918318/2024/11/12/angels-sign-travis-darnaud-two-year-deal/
