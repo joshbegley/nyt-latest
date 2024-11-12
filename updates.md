@@ -1,3 +1,7 @@
+**Flyers' rookies Matvei Michkov, Emil Andrae thrive amid challenges in win vs. Sharks**\
+`Michkov and Andrae could be huge keys to the Flyers' future.`\
+https://nytimes.com/athletic/5915979/2024/11/12/flyers-rookies-matvei-michkov-emil-andrae/
+
 **Cucurella has become Chelsea's irritant-in-chief - and may be what Maresca needs**\
 `After a tough start, Cucurella has endeared himself to Chelsea fans - even if opposition ones see him as a footballing pantomime villain`\
 https://nytimes.com/athletic/5914713/2024/11/12/chelsea-marc-cucurella-dennis-wise-john-terry/

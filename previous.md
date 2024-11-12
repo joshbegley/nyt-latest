@@ -1,3 +1,7 @@
+**Flyers' rookies Matvei Michkov, Emil Andrae thrive amid challenges in win vs. Sharks**\
+`Michkov and Andrae could be huge keys to the Flyers' future.`\
+https://nytimes.com/athletic/5915979/2024/11/12/flyers-rookies-matvei-michkov-emil-andrae/
+
 **Cucurella has become Chelsea's irritant-in-chief - and may be what Maresca needs**\
 `After a tough start, Cucurella has endeared himself to Chelsea fans - even if opposition ones see him as a footballing pantomime villain`\
 https://nytimes.com/athletic/5914713/2024/11/12/chelsea-marc-cucurella-dennis-wise-john-terry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812084/2024/11/12/messi-playing-at-west-ham-2014/
 **Former Notre Dame coach Gerry Faust dies at 89**\
 `Faust coached Notre Dame from 1981-85 and compiled a 30-26-1 record.`\
 https://nytimes.com/athletic/5916622/2024/11/12/gerry-faust-notre-dame-akron-college-football/
-
-**She Beat the Odds to Upend a Male Political Dynasty in Japan**\
-`Hanako Okada was one of 73 women to win seats at the general election last month, a record number in a Parliament long dominated by men.`\
-https://nytimes.com/2024/11/12/world/asia/japan-women-politics-election.html
 
