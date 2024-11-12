@@ -1,3 +1,11 @@
+**Colleges Wonder if They Will Be ‘the Enemy’ Under Trump**\
+`Higher education has been a favorite target of Republicans who believe schools have tilted leftward. Now, colleges and universities are bracing for the Trump administration to take action.`\
+https://nytimes.com/2024/11/12/us/trump-higher-education-policy-universities.html
+
+**USC football placed on 1-year probation, fined $50K for violations**\
+`Trojans coach Lincoln Riley will not be suspended. USC’s probation will last from November 12, 2024, through Nov. 11, 2025.`\
+https://nytimes.com/athletic/5917956/2024/11/12/usc-football-probation-fine-ncaa/
+
 **Saks Fifth Avenue Calls Off Holiday Light Show**\
 `The department store is canceling an annual show that has long drawn tourists to its flagship store in New York City.`\
 https://nytimes.com/2024/11/12/nyregion/saks-light-show-canceled.html
