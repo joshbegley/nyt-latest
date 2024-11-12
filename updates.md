@@ -1,3 +1,15 @@
+**U.S. Regulators Seek to Block UnitedHealth’s $3.3 Billion Purchase of Home Care Company**\
+`The Justice Department and four Democratic state attorneys general argued that United’s takeover would limit competition and harm consumers needing home or hospice care.`\
+https://nytimes.com/2024/11/12/health/united-health-home-care-antitrust.html
+
+**San Francisco Giants free-agent profile: Roki Sasaki, RHP**\
+`There are a lot of reasons Sasaki won't be a San Francisco Giant — but one compelling reason why he might choose the orange and black.`\
+https://nytimes.com/athletic/5917610/2024/11/12/sf-giants-roki-sasaki-free-agency/
+
+**Can Le Veau d’Or Turn Back Time? It’s Trying.**\
+`An Upper East Side celebrity hangout of the past has been lovingly recreated by the Frenchette team. But it’s hard to keep the present from intruding.`\
+https://nytimes.com/2024/11/12/dining/restaurant-review-le-veau-dor-nyc.html
+
 **It Was Once Britain’s ‘Best’ Building. Soon, It May Be Reduced to Rubble.**\
 `A building, once celebrated for its innovation, is deemed obsolete. Those trying to save it ask what its demolition means for British architecture.`\
 https://nytimes.com/2024/11/12/world/europe/centenary-building-salford-manchester.html
