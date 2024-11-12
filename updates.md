@@ -1,3 +1,11 @@
+**Odegaard won't play for Norway during international break**\
+`Arsenal captain Martin Odegaard will not feature for Norway in their upcoming Nations League matches as he continues his recovery back to full fitness.`\
+https://nytimes.com/athletic/5914363/2024/11/12/martin-odegaard-norway-squad-arsenal/
+
+**Man City's Rodri aims for return from ACL injury this season**\
+`Manchester City midfielder Rodri is targeting a return to action before the end of the 2024-25 season.`\
+https://nytimes.com/athletic/5916782/2024/11/12/rodri-acl-injury-update-manchester-city/
+
 **Van Nistelrooy departs after successfully starting the healing process at Manchester United**\
 `Previously adored as a player, the Dutchman only strengthened his bond with Old Trafford by picking up the pieces after Ten Hag's departure`\
 https://nytimes.com/athletic/5916728/2024/11/12/van-nistelrooy-manchester-united-leaves-amorim/

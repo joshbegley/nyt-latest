@@ -1,3 +1,11 @@
+**Odegaard won't play for Norway during international break**\
+`Arsenal captain Martin Odegaard will not feature for Norway in their upcoming Nations League matches as he continues his recovery back to full fitness.`\
+https://nytimes.com/athletic/5914363/2024/11/12/martin-odegaard-norway-squad-arsenal/
+
+**Man City's Rodri aims for return from ACL injury this season**\
+`Manchester City midfielder Rodri is targeting a return to action before the end of the 2024-25 season.`\
+https://nytimes.com/athletic/5916782/2024/11/12/rodri-acl-injury-update-manchester-city/
+
 **Van Nistelrooy departs after successfully starting the healing process at Manchester United**\
 `Previously adored as a player, the Dutchman only strengthened his bond with Old Trafford by picking up the pieces after Ten Hag's departure`\
 https://nytimes.com/athletic/5916728/2024/11/12/van-nistelrooy-manchester-united-leaves-amorim/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915979/2024/11/12/flyers-rookies-matvei-michkov-em
 **Cucurella has become Chelsea's irritant-in-chief - and may be what Maresca needs**\
 `After a tough start, Cucurella has endeared himself to Chelsea fans - even if opposition ones see him as a footballing pantomime villain`\
 https://nytimes.com/athletic/5914713/2024/11/12/chelsea-marc-cucurella-dennis-wise-john-terry/
-
-**Inside Newcastle Q&A: Isak's future, the Mourinho rumour, and Krafth's injury**\
-`Chris Waugh answers your latest questions about Newcastle - from January transfer plans to the next youngster to break through`\
-https://nytimes.com/athletic/5914254/2024/11/12/inside-newcastle-questions-qnaswers-isak-mourinho-krafth/
-
-**Fear and loathing in academy football: Scouts in a pen, no team sheets and denying access**\
-`New rules at academy level and other issues have led to tension across the Premier League`\
-https://nytimes.com/athletic/5908431/2024/11/12/premier-league-academy-transfers/
 
