@@ -1,3 +1,7 @@
+**F1 race director Niels Wittich steps down; Rui Marques to take over**\
+`In a statement issued by the FIA, F1’s governing body said Wittich had left the role "to pursue new opportunities.”`\
+https://nytimes.com/athletic/5917307/2024/11/12/f1-race-director-change/
+
 **Bears fire OC Shane Waldron, Thomas Brown to call plays**\
 `The move comes after the Bears (4-5) only scored three points against the New England Patriots on Sunday.`\
 https://nytimes.com/athletic/5917311/2024/11/12/bears-offensive-coordinator-shane-waldron-thomas-brown-2/
