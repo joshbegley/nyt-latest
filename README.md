@@ -6,9 +6,9 @@ https://nytimes.com/2024/11/12/business/media/olivia-nuzzi-ryan-lizza.html
 `Lewis Hall believes that he is a “completely different player” now from the one who was given his Chelsea debut by Thomas Tuchel almost three years ago.`\
 https://nytimes.com/athletic/5917817/2024/11/12/england-squad-lewis-hall/
 
-**Noem is emerging as the nominee for homeland security secretary.**\
-`By Maggie Haberman`\
-https://nytimes.com/2024/11/12/us/politics/noem-is-emerging-as-the-nominee-for-homeland-security-secretary.html
+**Kristi Noem Is Emerging as Trump’s Nominee for Homeland Security Secretary**\
+`Ms. Noem, the governor of South Dakota, is a loyalist who has vocally supported Donald J. Trump’s pledges regarding undocumented immigrants.`\
+https://nytimes.com/2024/11/12/us/politics/kristi-noem-homeland-security-secretary.html
 
 **Trump Had It Easy the First Time**\
 `A host of problems that will need more subtle and sophisticated uses of force and coercive diplomacy will confront the new president.`\
