@@ -1,3 +1,7 @@
+**Woman Accuses Al-Fayed of Abuse and Says His Brother Knew of Trafficking at Harrods**\
+`In a U.S. court filing, a former employee says she was trafficked, raped and abused when Mohamed al-Fayed owned Harrods, and that his brother Ali may have evidence of the abuse.`\
+https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
+
 **Heisman Trophy Odds: Travis Hunter takes control heading into final stretch**\
 `Travis Hunter is even money to win the Heisman Trophy, and the top four candidates seem mostly clear, but the race is far from over.`\
 https://nytimes.com/athletic/5917693/2024/11/12/heisman-trophy-odds-travis-hunter/
