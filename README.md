@@ -1,3 +1,7 @@
+**What's gone wrong with the Bucks, and do they have time to fix it?**\
+`The Bucks started the season with title expectations. After a 2-8 start, they're in a hole that will be tough to climb out of.`\
+https://nytimes.com/athletic/5917043/2024/11/12/milwaukee-bucks-giannis-antetokounmpo-damian-lillard-analysis/
+
 **Sharath Jois, Yoga Master and Heir to Ashtanga’s Founder, Dies at 53**\
 `He became one of the world’s most sought-after teachers of a style of yoga that his grandfather helped turn into a popular form of exercise worldwide.`\
 https://nytimes.com/2024/11/12/us/sharath-jois-dead-ashtanga.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5916265/2024/11/12/jim-harbaugh-chargers-ceiling/
 **Doubts Grow Over the Booming Trump Trade, and Trumponomics**\
 `The stunning post-election stock market rally could be in jeopardy if the president-elect’s agenda spurs inflation, and adds to the deficit, analysts warn.`\
 https://nytimes.com/2024/11/12/business/dealbook/inflation-trump-trade.html
-
-**NFL Week 10 best and worst coaching decisions: Pros and cons of 49ers' blitz plan**\
-`Also, how Steve Spagnuolo's defense locked down a win for the Chiefs and the Ravens' inability to stop Ja'Marr Chase.`\
-https://nytimes.com/athletic/5914178/2024/11/12/nfl-week-10-worst-best-coaching-decisions-nguyen/
 
