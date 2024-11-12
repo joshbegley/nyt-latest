@@ -1,3 +1,11 @@
+**Scouting notes on Cesar Prieto, Johnny Cueto and others from the LIDOM game at Citi Field**\
+`The two teams with the most LIDOM championships in league history — Licey and Águilas — squared off at Citi Field on Sunday.`\
+https://nytimes.com/athletic/5916657/2024/11/12/licey-tigres-aguilas-cibaenas-citi-field-scouting/
+
+**Kazuyoshi Miura, 57, set for 40th season as professional soccer player**\
+`Japanese forward Kazuyoshi Miura plans to extend his professional soccer career into his 40th season.`\
+https://nytimes.com/athletic/5916857/2024/11/12/kazuyoshi-miura-oldest-footballer-who-is/
+
 **Fifteen notable MLB players who could be traded this offseason**\
 `To set the stage for trade season, here's what I'm hearing and my thoughts on 15 players who could be dealt this winter. `\
 https://nytimes.com/athletic/5916441/2024/11/12/mlb-players-trade-offseason-2024-25/
