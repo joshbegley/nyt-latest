@@ -1,3 +1,7 @@
+**‘Devious’ New Deep Sea Creature Hid Its Identity From Scientists**\
+`It took nearly 25 years for biologists to discover that a swimming and glowing organism in the ocean’s midnight zone was actually a sea slug.`\
+https://nytimes.com/2024/11/12/science/sea-slug-nudibranch-deep-sea.html
+
 **Canucks notebook: Dakota Joshua's return and why blowout loss to Oilers matters**\
 `Plus, Erik Brännström's hold on a spot in the lineup and what's shaping up to be a high-stakes week for Artūrs Šilovs.`\
 https://nytimes.com/athletic/5916707/2024/11/12/canucks-dakota-joshua-arturs-silovs/
