@@ -1,3 +1,7 @@
+**Man Who Helped Restrain Jordan Neely Testifies About Fatal Chokehold**\
+`Eric Gonzalez, who helped Daniel Penny pin Mr. Neely to the floor of a subway car, also said he had lied when he told investigators Mr. Neely had hit him.`\
+https://nytimes.com/2024/11/12/nyregion/daniel-penny-trial-jordan-neely-chokehold.html
+
 **As Trump Staffs Up, House Republicans Watch Their Expected Majority Shrink**\
 `After the president-elect named two G.O.P. representatives to top posts, party leaders warned they may not be able to spare many — or any — more.`\
 https://nytimes.com/2024/11/12/us/politics/trump-house-majority.html
