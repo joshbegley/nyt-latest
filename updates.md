@@ -1,3 +1,11 @@
+**It Was Once Britain’s ‘Best’ Building. Soon, It May Be Reduced to Rubble.**\
+`A building, once celebrated for its innovation, is deemed obsolete. Those trying to save it ask what its demolition means for British architecture.`\
+https://nytimes.com/2024/11/12/world/europe/centenary-building-salford-manchester.html
+
+**Some Black Voters Ask, What Have Democrats Done for Us?**\
+`In interviews, these voters, especially men, questioned what dividends have come from their loyalty: “I’m just kind of over it all.”`\
+https://nytimes.com/2024/11/12/us/politics/black-voters-democrats-results.html
+
 **What to Know About Marco Rubio, Said to Be Trump’s Pick for Secretary of State**\
 `The three-term senator from Florida viciously criticized Donald J. Trump during the 2016 campaign but has since ingratiated himself and become a foreign policy adviser to Mr. Trump.`\
 https://nytimes.com/2024/11/12/us/politics/who-is-marco-rubio.html
