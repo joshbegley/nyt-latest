@@ -1,3 +1,7 @@
+**Sharath Jois, Yoga Master and Heir to Ashtanga’s Founder, Dies at 53**\
+`He became one of the world’s most sought-after teachers of a style of yoga that his grandfather helped turn into a popular form of exercise worldwide.`\
+https://nytimes.com/2024/11/12/us/sharath-jois-dead-ashtanga.html
+
 **Final thoughts on Notre Dame's win vs. Florida State: How good was Riley Leonard?**\
 `Notre Dame blew out Florida State 52-3 on Saturday. Here's what it means for the rest of this month and potentially beyond it.`\
 https://nytimes.com/athletic/5917147/2024/11/12/notre-dame-florida-state-final-analysis-marcus-freeman/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/business/dealbook/inflation-trump-trade.html
 **NFL Week 10 best and worst coaching decisions: Pros and cons of 49ers' blitz plan**\
 `Also, how Steve Spagnuolo's defense locked down a win for the Chiefs and the Ravens' inability to stop Ja'Marr Chase.`\
 https://nytimes.com/athletic/5914178/2024/11/12/nfl-week-10-worst-best-coaching-decisions-nguyen/
-
-**Coote controversy, how players in Valencia reacted to Spain floods**\
-`Today in TAFC: Explaining the Coote controversy, the reaction to tragedy in Spain and the latest news`\
-https://nytimes.com/athletic/5916914/2024/11/12/coote-suspended-spanish-floods/
 

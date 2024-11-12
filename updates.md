@@ -1,3 +1,7 @@
+**Sharath Jois, Yoga Master and Heir to Ashtanga’s Founder, Dies at 53**\
+`He became one of the world’s most sought-after teachers of a style of yoga that his grandfather helped turn into a popular form of exercise worldwide.`\
+https://nytimes.com/2024/11/12/us/sharath-jois-dead-ashtanga.html
+
 **Final thoughts on Notre Dame's win vs. Florida State: How good was Riley Leonard?**\
 `Notre Dame blew out Florida State 52-3 on Saturday. Here's what it means for the rest of this month and potentially beyond it.`\
 https://nytimes.com/athletic/5917147/2024/11/12/notre-dame-florida-state-final-analysis-marcus-freeman/
