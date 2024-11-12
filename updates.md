@@ -1,3 +1,7 @@
+**Ruben Gallego Wins Arizona Senate Race, Defeating Kari Lake**\
+`The Democratic congressman had led Ms. Lake, a former television anchor and bombastic Trump ally, in most polls.`\
+https://nytimes.com/2024/11/11/us/politics/ruben-gallego-kari-lake-arizona-senate.html
+
 **Dolphins defense neutralizes Rams in 23-15 win to snap streak: Takeaways**\
 `The Dolphins held Rams quarterback Matthew Stafford and the Los Angeles offense out of the end zone all night.`\
 https://nytimes.com/athletic/5916127/2024/11/11/dolphins-rams-score-result-takeaways-mnf/
