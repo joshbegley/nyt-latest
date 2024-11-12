@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/11/theater/a-wonderful-world-review-louis-armstrong.html
 
 **Wildfire Grows in New Jersey and New York, Despite Modest Rainfall**\
-`The Jennings Creek fire nearly doubled in size on Monday to 5,000 acres, according to Gov. Kathy Hochul of New York, though the estimate included areas that had stopped burning.`\
+`The Jennings Creek fire is currently burning across 3,500 acres, officials said, and is expected to grow to over 5,000 acres.`\
 https://nytimes.com/2024/11/11/nyregion/wildfire-grows-in-new-jersey-and-new-york-despite-modest-rainfall.html
 
 **Trump Allies Push Him to Block Thune From Becoming Senate G.O.P. Leader**\
