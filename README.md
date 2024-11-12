@@ -1,3 +1,11 @@
+**Kazuyoshi Miura to play 40th season as professional soccer player**\
+`Japanese forward Kazuyoshi Miura plans to extend his professional soccer career into his 40th season.`\
+https://nytimes.com/athletic/5916857/2024/11/12/kazuyoshi-miura-oldest-footballer-who-is/
+
+**Gary Lineker to Leave BBC’s ‘Match of the Day’**\
+`After a 25-year run, the voice of the broadcaster’s popular soccer highlights show will leave at the end of the 2025 season, the network said Tuesday.`\
+https://nytimes.com/2024/11/12/business/media/gary-lineker-bbc-soccer-motd.html
+
 **Israel Strikes South of Beirut Amid Push for Cease-Fire in Lebanon**\
 `The conflict between Israel and Hezbollah has intensified in recent days, despite diplomatic efforts to move toward a temporary cease-fire.`\
 https://nytimes.com/2024/11/12/world/middleeast/israel-lebanon-strikes-hezbollah.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/5916471/2024/11/12/dolphins-rams-tua-tagovailoa-the
 https://nytimes.com/2024/11/12/briefing/a-republican-trifecta.html
 
 **Biden Team Tries to Buoy Climate Talks Jolted by ‘Bitterly Disappointing’ Election**\
-`Negotiators at the COP29 summit in Azerbaijan fear that the return of Donald J. Trump will sap momentum for global climate action.`\
+`Negotiators at the summit in Azerbaijan fear that the return of Donald Trump will sap momentum for global climate action.`\
 https://nytimes.com/2024/11/12/climate/cop29-baku-world-leaders.html
 
 **As uninspiring results pile up, will Phil Longo get Wisconsin's offense to the other side?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915311/2024/11/12/spurs-mitch-johnson-interim-coac
 **Shell Wins Appeal in Landmark Dutch Climate Case**\
 `A lower court had ordered the company to cut emissions by 45 percent by 2030, but the oil giant argued that a single firm should not be hit with arbitrary pollution-reduction requirements.`\
 https://nytimes.com/2024/11/12/business/shell-emissions-ruling.html
-
-**Did Jaguars find formula for slowing down Justin Jefferson and Vikings offense?**\
-`Using two high safeties and forcing the Vikings to nickel-and-dime their way upfield almost worked. Can other teams follow their blueprint?`\
-https://nytimes.com/athletic/5916201/2024/11/12/justin-jefferson-vikings-jaguars-two-high-safeties/
-
-**What's wrong with the Knicks' defense and can it be fixed?**\
-`After being a strength last season, the Knicks' defense has been rough so far this campaign. Why is that? A lot of the mistakes are fixable.`\
-https://nytimes.com/athletic/5915004/2024/11/12/knicks-defense-video-3s-bad/
 
