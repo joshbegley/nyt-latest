@@ -1,3 +1,7 @@
+**Fantasy football Week 11 drops: Xavier Worthy unworthy of rosters. Cut Jonathon Brooks**\
+`Gary Davenport recommends dropping Xavier Worthy, not holding your breath on Jonathon Brooks' debut. `\
+https://nytimes.com/athletic/5917021/2024/11/12/nfl-fantasy-football-week-11-drops/
+
 **Why is Connor Bedard's play trending in the wrong direction? Competition? Linemates?**\
 `Bedard isn't producing at the rate expected in his second NHL season and can sense his game is off. What is happening?`\
 https://nytimes.com/athletic/5915286/2024/11/12/connor-bedard-blackhawks-game-analysis/
