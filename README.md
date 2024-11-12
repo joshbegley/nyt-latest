@@ -1,3 +1,11 @@
+**Andrew Carmellini Expands His Locanda Verde to Hudson Yards**\
+`The two-story space, adorned with paintings and drawings by Robert De Niro Sr., will serve a larger menu.`\
+https://nytimes.com/2024/11/12/dining/nyc-restaurant-news.html
+
+**U.S. Allows Americans to Hold Foreign Conferences With Speakers Under Sanctions**\
+`Reversing itself, the Treasury Department said U.S. sanctions do not prohibit hearing from foreigners deemed to be terrorists or other offenders.`\
+https://nytimes.com/2024/11/12/us/foreign-speakers-sanctions-treasury.html
+
 **NFL rescinds Roquan Smith's fine for Week 7 hip-drop tackle**\
 `Smith was slated to pay a $16,833 fine for the hit which ended Godwin's season, but Smith appealed that penalty.`\
 https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/us/louisiana-ten-commandments-ruling.html
 **No More Rat Buffets: What to Know About New York City’s New Trash Rules**\
 `The trash from buildings with fewer than 10 units must now be set out in bins with lids, sold by the city for $47 and up.`\
 https://nytimes.com/2024/11/12/nyregion/nyc-trash-bin-rules.html
-
-**Bears fire Shane Waldron: How much does it matter for Matt Eberflus, Caleb Williams?**\
-`Eberflus needed to make this move, even if he didn't want to. But how much can Thomas Brown do with the Bears facing a daunting schedule?`\
-https://nytimes.com/athletic/5917619/2024/11/12/bears-fire-shane-waldron-matt-eberflus/
-
-**College football national title odds: Ohio State is favored, but CFP race could get messy**\
-`Ohio State lost at Oregon, but is just ahead of the Ducks and a slew of SEC teams in the odds to win the national title.`\
-https://nytimes.com/athletic/5917577/2024/11/12/college-football-playoff-national-title-odds-ohio-state/
 
