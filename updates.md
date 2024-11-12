@@ -1,3 +1,7 @@
+**Do You Know These World-Famous Children’s Books?**\
+`Folk tales and beloved characters from cultures around the globe can are celebrated in popular books for young readers. Test your knowledge of them with this short quiz.`\
+https://nytimes.com/interactive/2024/11/12/books/review/world-childrens-books.html
+
 **Fantasy football Week 11 drops: Xavier Worthy unworthy of rosters. Cut Jonathon Brooks**\
 `Gary Davenport recommends dropping Xavier Worthy, not holding your breath on Jonathon Brooks' debut. `\
 https://nytimes.com/athletic/5917021/2024/11/12/nfl-fantasy-football-week-11-drops/
