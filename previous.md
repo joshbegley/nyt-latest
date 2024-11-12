@@ -1,3 +1,31 @@
+**Stephen Curry shoots to No. 12 on The Athletic's 'The Basketball 100': 'A calmness about him'**\
+`“He’s incredibly arrogant on the floor and humble off the court,” Steve Kerr said. “I think that’s a really powerful combination."`\
+https://nytimes.com/athletic/5907669/2024/11/12/stephen-curry-the-basketball-100-book-excerpt/
+
+**Why Abortion Rights Won Even as Kamala Harris Lost**\
+`Voters in red and blue states supported abortion rights, but the movement’s winning streak came to an end.`\
+https://nytimes.com/2024/11/12/podcasts/the-daily/abortion-rights-election.html
+
+**The Who’s Who of Trump’s Staff Picks, and Bitcoin and Stocks Set Records**\
+`Plus, Israel’s cycle of war in North Gaza.`\
+https://nytimes.com/2024/11/12/podcasts/trump-staff-bitcoin.html
+
+**Are the Washington Capitals actually good? Analyzing their 2024-25 start**\
+`The Capitals have to find ways to sustain their level and build on it to go from being in the playoff picture to a threat in the spring.`\
+https://nytimes.com/athletic/5915663/2024/11/12/are-the-washington-capitals-actually-good/
+
+**Wordle Review No. 1,243**\
+`Scroll down for hints and conversation about the puzzle for Nov. 13, 2024.`\
+https://nytimes.com/2024/11/12/crosswords/wordle-review-1243.html
+
+**The Connections Companion No. 521**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 13, 2024.`\
+https://nytimes.com/2024/11/12/crosswords/connections-companion-521.html
+
+**12 and Oh! Donovan Mitchell dazzles versus Bulls as Cavaliers reach a perfect dozen**\
+`"It’s great to be a part of history," Mitchell said as Cleveland became just the eighth team in NBA history to win its first 12 games.`\
+https://nytimes.com/athletic/5916774/2024/11/12/donovan-mitchell-cleveland-cavaliers-12-0/
+
 **Who should replace Gary Lineker as Match Of The Day presenter?**\
 `With the presenter standing down as MOTD's main presenter at the end of this season, who would you pick to take over?`\
 https://nytimes.com/athletic/5916837/2024/11/12/gary-lineker-match-of-the-day-replacement/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5916075/2024/11/12/browns-second-year-players-cedri
 **Lineker standing down as Match of the Day host at end of season**\
 `Gary Lineker will stand down as host of the BBC’s flagship football show Match of the Day at the end of the season.`\
 https://nytimes.com/athletic/5915918/2024/11/12/gary-lineker-leaves-bbc-motd-host-next/
-
-**If You Thought Trump Wasn’t Serious, Look at His First Appointments**\
-`No one should be shocked when the first migrants are sent to military camps before deportation.`\
-https://nytimes.com/live/2024/11/07/opinion/thepoint/trump-immigration-appointments-miller
-
-**I’m the Governor of Kentucky. Here’s How Democrats Can Win Again.**\
-`I won re-election last year in a state that Trump just carried by 30 points. Here’s how.`\
-https://nytimes.com/2024/11/12/opinion/democratic-party-future-kentucky.html
-
-**New York City Democrats Grapple With Trump’s Victory**\
-`Our City Hall bureau chief discusses how Democrats are processing Donald Trump’s win and what it might mean for Mayor Eric Adams’s legal troubles.`\
-https://nytimes.com/2024/11/12/nyregion/new-york-city-democrats-grapple-with-trumps-victory.html
-
-**If You’re Sure How the Next Four Years Will Play Out, I Promise: You’re Wrong**\
-`You can’t see far enough ahead to trust the image in your mind’s eye.`\
-https://nytimes.com/2024/11/12/opinion/donald-trump-election.html
-
-**‘People Are in for a Really Rude Shock’ on Trump’s Economy**\
-`The economist and Times Opinion columnist Paul Krugman details the president-elect’s “seriously inflationary” economic plans.`\
-https://nytimes.com/2024/11/12/opinion/trump-economy-inflation.html
-
-**From Raw Denim to Natural Wine**\
-`Jean Touitou, the creator of A.P.C., knows how to make something perfectly minimal.`\
-https://nytimes.com/2024/11/12/style/apc-wine.html
-
-**Will the Supreme Court Stand Up to Trump? Can It?**\
-`The Supreme Court is largely to blame for the challenges it may face over the next four years.`\
-https://nytimes.com/2024/11/12/opinion/donald-trump-supreme-court.html
 
