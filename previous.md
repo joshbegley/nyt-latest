@@ -1,3 +1,7 @@
+**Louisiana governor defends live tiger at LSU's blowout loss to Alabama**\
+`LSU previously ended the tradition of bringing a live tiger to the sidelines of games in 2016, when Mike VI died.`\
+https://nytimes.com/athletic/5917697/2024/11/12/jeff-landry-louisiana-governor-live-tiger-lsu-alabama-comments/
+
 **Alex Highsmith out 'a couple weeks,' per source, thrusting Preston Smith into larger role**\
 `Acquired in a trade with the Packers last week, Smith will take on significant responsibilities in Pittsburgh right away.`\
 https://nytimes.com/athletic/5917591/2024/11/12/alex-highsmith-injury-preston-smith/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917686/2024/11/12/deandre-hopkins-nfl-miseason-acq
 **Fantasy basketball roundup: Thunder roiling after Chet Holmgren injury; Target the Thompson twins**\
 `Eric Wong breaks down what Chet Holmgren's injury means for Oklahoma City, and offers up 15 players to consider on the waiver wire.`\
 https://nytimes.com/athletic/5917544/2024/11/12/fantasy-basketball-adds-pickups-chet-holmgren-injury/
-
-**German Lawmakers Agree on Date for Snap Election in New Year**\
-`After the collapse of Chancellor Olaf Scholz’s governing coalition, the balloting will be held on Feb. 23, about seven months before it had been scheduled.`\
-https://nytimes.com/2024/11/12/world/europe/german-lawmakers-election-scholz.html
 

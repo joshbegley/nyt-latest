@@ -1,3 +1,7 @@
+**Louisiana governor defends live tiger at LSU's blowout loss to Alabama**\
+`LSU previously ended the tradition of bringing a live tiger to the sidelines of games in 2016, when Mike VI died.`\
+https://nytimes.com/athletic/5917697/2024/11/12/jeff-landry-louisiana-governor-live-tiger-lsu-alabama-comments/
+
 **Alex Highsmith out 'a couple weeks,' per source, thrusting Preston Smith into larger role**\
 `Acquired in a trade with the Packers last week, Smith will take on significant responsibilities in Pittsburgh right away.`\
 https://nytimes.com/athletic/5917591/2024/11/12/alex-highsmith-injury-preston-smith/
