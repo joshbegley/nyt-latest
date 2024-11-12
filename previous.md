@@ -1,3 +1,7 @@
+**Trump Begins to Fill Top Posts With Loyal Defenders**\
+`Also, a judge blocked a Louisiana law requiring Ten Commandments in classrooms. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/11/12/briefing/trump-appointees-louisiana-ten-commandments.html
+
 **Trump Raises TikTok’s Hopes for a Rescue in the United States**\
 `When asked about whether President-elect Donald Trump would prevent a TikTok ban in the United States, a spokeswoman told The New York Times: “He will deliver.”`\
 https://nytimes.com/2024/11/12/technology/trump-tiktok-ban.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5915786/2024/11/12/blues-line-changes-analysis/
 `A three-week damage assessment report was recently provided to the St. Petersburg City Council. `\
 https://nytimes.com/athletic/5918326/2024/11/12/tropicana-field-rays-damage-report/
 
-**Samantha Harvey’s ‘Orbital’ Wins Booker Prize**\
+**Samantha Harvey’s ‘Orbital’ Wins the Booker Prize**\
 `Most bets were on Percival Everett’s “James,” but the judges chose Harvey’s “beautiful, miraculous” novel, which is set aboard a space station.`\
 https://nytimes.com/2024/11/12/arts/booker-prize-winner-orbital-samantha-harvey.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/natasha-alexenko-dead.html
 **Lee Zeldin Knows How to Defend Trump. Will He Defend the Environment?**\
 `The choice of Mr. Zeldin, a former Republican congressman of New York, to be the next E.P.A. administrator caught even some of his closest allies by surprise.`\
 https://nytimes.com/2024/11/12/nyregion/zeldin-epa-trump.html
-
-**Bernie Sanders Is Wrong That Democrats Abandoned the Working Class**\
-`The party’s record is clear and strong.`\
-https://nytimes.com/live/2024/11/12/opinion/thepoint/sanders-democrats-working-class
 

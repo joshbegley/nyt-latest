@@ -1,3 +1,11 @@
+**Trump Begins to Fill Top Posts With Loyal Defenders**\
+`Also, a judge blocked a Louisiana law requiring Ten Commandments in classrooms. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/11/12/briefing/trump-appointees-louisiana-ten-commandments.html
+
+**Samantha Harvey’s ‘Orbital’ Wins the Booker Prize**\
+`Most bets were on Percival Everett’s “James,” but the judges chose Harvey’s “beautiful, miraculous” novel, which is set aboard a space station.`\
+https://nytimes.com/2024/11/12/arts/booker-prize-winner-orbital-samantha-harvey.html
+
 **Trump Raises TikTok’s Hopes for a Rescue in the United States**\
 `When asked about whether President-elect Donald Trump would prevent a TikTok ban in the United States, a spokeswoman told The New York Times: “He will deliver.”`\
 https://nytimes.com/2024/11/12/technology/trump-tiktok-ban.html
