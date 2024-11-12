@@ -1,3 +1,7 @@
+**Dolphins defense neutralizes Rams in 23-15 win to snap streak: Takeaways**\
+`The Dolphins held Rams quarterback Matthew Stafford and the Los Angeles offense out of the end zone all night.`\
+https://nytimes.com/athletic/5916127/2024/11/11/dolphins-rams-score-result-takeaways-mnf/
+
 **Full Time: The NWSL Championship won't have an underdog**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5916627/2024/11/11/nwsl-playoffs-semifinals-bracket-full-time/
