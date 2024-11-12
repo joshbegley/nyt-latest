@@ -1,3 +1,15 @@
+**Heat Today: Without Jimmy Butler, Miami trusts its depth on the road**\
+`Butler is battling an ankle injury, but players like Nikola Jović stepped up in his absence.`\
+https://nytimes.com/athletic/5917386/2024/11/12/jimmy-butler-heat-tyler-herro-nikola-jovic-bam-adebayo/
+
+**Hollinger's Week That Was: Holmgren's injury highlights trend; scouting V.J. Edgecombe**\
+`The OKC big man's injury was a freak play, but it puts the spotlight on the abundance of injuries we've seen so far this season.`\
+https://nytimes.com/athletic/5916349/2024/11/12/chet-holmgren-injury-nba-vj-edgecombe-baylor/
+
+**Trump’s Win a Worry for an Already Struggling Wind Industry**\
+`Faced with rising costs and thin margins, wind energy developers have lately been reducing their ambitions.`\
+https://nytimes.com/2024/11/12/business/trump-wind-power-turbines.html
+
 **Turkish club defend ex-president sentenced to jail after punching referee**\
 `Turkish football club MKE Ankaragucu have defended their former president Faruk Koca as being the &#8220;target of one-sided public perception&#8221; after he was sentenced to more than three years in prison for assaulting a referee last year.`\
 https://nytimes.com/athletic/5914777/2024/11/12/turkey-club-president-jailed-referee-punch/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5917375/2024/11/12/penn-state-football-questions-ma
 **Senate Republicans return to Washington and prepare to pick McConnell’s successor.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/11/12/us/trump-news-house-election/senate-republicans-return-to-washington-and-prepare-to-pick-mcconnells-successor
-
-**Who Are the Next Leaders of the Democratic Party?**\
-`Democrats will soon have a leadership vacuum, and there will be no shortage of highly ambitious governors, senators and transportation secretaries looking to fill it.`\
-https://nytimes.com/2024/11/12/us/politics/democratic-party-next-leaders.html
-
-**Emboldened by Re-election, Trump Renews Bid to Overturn His Conviction**\
-`Donald J. Trump’s lawyers have moved in recent days to throw out his criminal case in Manhattan, underscoring his expansive view of presidential power and its supremacy over the rule of law.`\
-https://nytimes.com/2024/11/12/nyregion/trump-criminal-conviction-overturn-manhattan.html
-
-**F1 race director Niels Wittich steps down; Rui Marques to take over**\
-`In a statement issued by the FIA, F1’s governing body said Wittich had left the role "to pursue new opportunities.”`\
-https://nytimes.com/athletic/5917307/2024/11/12/f1-race-director-change/
 
