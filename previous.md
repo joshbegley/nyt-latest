@@ -1,3 +1,7 @@
+**Man Kills Dozens in China Car Ramming Attack**\
+`A man drove a vehicle into a crowd of people exercising at a sports center in Zhuhai, China, killing at least 35 people, the police in China said.`\
+https://nytimes.com/video/world/asia/100000009820811/zhuhai-china-car-attack.html
+
 **Britain Sets Out to Be a Clean Energy Destination**\
 `The prime minister announced more ambitious climate targets, charting a very different course from the United States, which is expected to roll back its energy transition plans.`\
 https://nytimes.com/2024/11/12/climate/kier-starmer-uk-emissions.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009820672/israel-and-hezbollah-
 **Andrew Carmellini Expands His Locanda Verde to Hudson Yards**\
 `The two-story space, adorned with paintings and drawings by Robert De Niro Sr., will serve a larger menu.`\
 https://nytimes.com/2024/11/12/dining/nyc-restaurant-news.html
-
-**U.S. Allows Americans to Hold Foreign Conferences With Speakers Under Sanctions**\
-`Reversing itself, the Treasury Department said U.S. sanctions do not prohibit hearing from foreigners deemed to be terrorists or other offenders.`\
-https://nytimes.com/2024/11/12/us/foreign-speakers-sanctions-treasury.html
 
