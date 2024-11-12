@@ -1,3 +1,7 @@
+**Bernie Sanders Is Wrong That Democrats Abandoned the Working Class**\
+`The party’s record is clear and strong.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/sanders-democrats-working-class
+
 **Teixeira Is Sentenced to 15 Years in Prison**\
 `The disclosures that Jack Teixeira shared on a social media platform raised questions over how a relatively low-ranking Air National Guardsman had access to some of the country’s most sensitive secrets.`\
 https://nytimes.com/2024/11/12/us/politics/jack-teixeira-national-security-leak.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/world/europe/centenary-building-salford-mancheste
 **Market share report: Buying Broncos Estime and Sutton, selling CMC's backups**\
 `Michael Salfino prioritizes Broncos in his latest market report, saying to make moves this week to add Audric Estime and Courtland Sutton.`\
 https://nytimes.com/athletic/5917991/2024/11/12/market-share-report-buying-broncos-estime-and-sutton-selling-cmcs-backups/
-
-**Judge Schedules Plea Hearing in 9/11 Case for Early January**\
-`The timetable could partially resolve the case before the inauguration of President-elect Donald J. Trump.`\
-https://nytimes.com/2024/11/12/us/politics/sept-11-plea-hearings.html
 
