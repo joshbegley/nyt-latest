@@ -1,3 +1,7 @@
+**Amtrak Suspends Service Between New York and New Haven Because of Fire**\
+`A brush fire apparently connected to an Amtrak substation in the Bronx caused a power outage and a disruption that was expected to last through the day.`\
+https://nytimes.com/2024/11/12/nyregion/amtrak-fire-nyc-new-haven.html
+
 **With Surge in New Users, Bluesky Emerges as X Alternative**\
 `With one million new accounts added since the U.S. elections, Bluesky has solidified itself as an option for people looking to change their social media service.`\
 https://nytimes.com/2024/11/12/style/bluesky-users-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/business/media/olivia-nuzzi-ryan-lizza.html
 **Hall 'a completely different player' from Chelsea debut under Tuchel**\
 `Lewis Hall believes that he is a “completely different player” now from the one who was given his Chelsea debut by Thomas Tuchel almost three years ago.`\
 https://nytimes.com/athletic/5917817/2024/11/12/england-squad-lewis-hall/
-
-**Kristi Noem Is Emerging as Trump’s Nominee for Homeland Security Secretary**\
-`Ms. Noem, the governor of South Dakota, is a loyalist who has vocally supported Donald J. Trump’s pledges regarding undocumented immigrants.`\
-https://nytimes.com/2024/11/12/us/politics/kristi-noem-homeland-security-secretary.html
 

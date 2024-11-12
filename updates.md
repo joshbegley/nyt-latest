@@ -1,3 +1,7 @@
+**Amtrak Suspends Service Between New York and New Haven Because of Fire**\
+`A brush fire apparently connected to an Amtrak substation in the Bronx caused a power outage and a disruption that was expected to last through the day.`\
+https://nytimes.com/2024/11/12/nyregion/amtrak-fire-nyc-new-haven.html
+
 **With Surge in New Users, Bluesky Emerges as X Alternative**\
 `With one million new accounts added since the U.S. elections, Bluesky has solidified itself as an option for people looking to change their social media service.`\
 https://nytimes.com/2024/11/12/style/bluesky-users-election.html
