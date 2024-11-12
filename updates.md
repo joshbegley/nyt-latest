@@ -1,3 +1,15 @@
+**Fear and loathing in academy football: Scouts in a pen, no team sheets and denying access**\
+`New rules at academy level and other issues have led to tension across the Premier League`\
+https://nytimes.com/athletic/5908431/2024/11/12/premier-league-academy-transfers/
+
+**The Premier League elite's levels have dropped - but why?**\
+`Why have so many of last season's front-runners dropped a level this season? Our experts explain all...`\
+https://nytimes.com/athletic/5914369/2024/11/12/premier-league-top-half-seasons-compared/
+
+**A 'bulls***' radar, no ranting and half-time videos: Inside Arne Slot's brain**\
+`Liverpool have been a projection of their cool, composed coach this season - and to startling effect`\
+https://nytimes.com/athletic/5914391/2024/11/12/arne-slot-liverpool-psychology/
+
 **'Football was his life, and the water took his life away'**\
 `The Athletic reports from the Valencia region on the devastating impact that flooding has had on communities and football clubs`\
 https://nytimes.com/athletic/5892529/2024/11/12/valencia-flooding-football-paiporta-alfafar/

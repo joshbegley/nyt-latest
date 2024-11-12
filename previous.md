@@ -1,3 +1,15 @@
+**Fear and loathing in academy football: Scouts in a pen, no team sheets and denying access**\
+`New rules at academy level and other issues have led to tension across the Premier League`\
+https://nytimes.com/athletic/5908431/2024/11/12/premier-league-academy-transfers/
+
+**The Premier League elite's levels have dropped - but why?**\
+`Why have so many of last season's front-runners dropped a level this season? Our experts explain all...`\
+https://nytimes.com/athletic/5914369/2024/11/12/premier-league-top-half-seasons-compared/
+
+**A 'bulls***' radar, no ranting and half-time videos: Inside Arne Slot's brain**\
+`Liverpool have been a projection of their cool, composed coach this season - and to startling effect`\
+https://nytimes.com/athletic/5914391/2024/11/12/arne-slot-liverpool-psychology/
+
 **'Football was his life, and the water took his life away'**\
 `The Athletic reports from the Valencia region on the devastating impact that flooding has had on communities and football clubs`\
 https://nytimes.com/athletic/5892529/2024/11/12/valencia-flooding-football-paiporta-alfafar/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/12/briefing/trump-iran-climate.html
 **Attending five football matches (almost six) in 48 hours**\
 `From an U13s game, to non-League, to Old Trafford - the characters you meet while attending five games in two days`\
 https://nytimes.com/athletic/5914939/2024/11/12/watching-five-football-matches/
-
-**Trump’s Tariffs Could Deal a Blow to Mexico’s Car Factories**\
-`The president-elect has said he could impose tariffs as high as 200 percent on car imports from Mexico, a move that could hurt factories and workers on both sides of the border.`\
-https://nytimes.com/2024/11/12/business/economy/trump-mexico-trade-tariffs-car-factories.html
-
-**Fantasy football Week 11 waiver wire: Streamers, Audric Estime, Marquez Valdes-Scantling**\
-`Jake Ciely runs through his top options on the Week 11 waiver wire, including Denver rookie Audric Estime, who has an intriguing ceiling.`\
-https://nytimes.com/athletic/5916119/2024/11/12/fantasy-football-week-11-waiver-wire-streamers-audric-estime-marquez-valdes-scantling/
-
-**Europe Braces for Trump: ‘Worst Economic Nightmare Has Come True’**\
-`The United States is the biggest trading partner for the European Union and Britain, whose economies could be at risk from the president-elect’s policies.`\
-https://nytimes.com/2024/11/12/business/economy/europe-economy-donald-trump.html
 
