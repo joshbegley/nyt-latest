@@ -1,3 +1,7 @@
+**As uninspiring results pile up, will Phil Longo get Wisconsin's offense to the other side?**\
+`Wisconsin likely will need to score at a rate that has been significantly lacking in big moments this season under Longo.`\
+https://nytimes.com/athletic/5916202/2024/11/12/wisconsin-offense-phil-longo-coordinator/
+
 **Meet Spurs interim coach Mitch Johnson, through those who work with him daily**\
 `"His energy has been amazing, and I’m excited to see what we do," Chris Paul says of Johnson and his interim role.`\
 https://nytimes.com/athletic/5915311/2024/11/12/spurs-mitch-johnson-interim-coach/
