@@ -1,3 +1,7 @@
+**Why is Connor Bedard's play trending in the wrong direction? Competition? Linemates?**\
+`Bedard isn't producing at the rate expected in his second NHL season and can sense his game is off. What is happening?`\
+https://nytimes.com/athletic/5915286/2024/11/12/connor-bedard-blackhawks-game-analysis/
+
 **Here are the latest developments.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/11/12/us/trump-news-house-election/here-are-the-latest-developments
