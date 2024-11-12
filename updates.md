@@ -1,3 +1,11 @@
+**Its Birthrate Falling, Russia Targets Child-Free Lifestyles**\
+`The country’s lower house of Parliament passed a law that would ban what it calls “propaganda” discouraging Russians from having children.`\
+https://nytimes.com/2024/11/12/world/europe/russia-child-free-lifestyles.html
+
+**Premier League player facing rape allegations questioned further by police**\
+`A Premier League footballer accused of rape was questioned by police last week as the investigation into allegations against him continues.`\
+https://nytimes.com/athletic/5916846/2024/11/12/premier-league-player-rape-questioned-police/
+
 **Julio Bocca, Former Star Dancer, to Run Argentina’s National Ballet**\
 `Bocca, who retired from American Ballet Theater in 2006, will lead the company at Teatro Colón in Buenos Aires.`\
 https://nytimes.com/2024/11/12/arts/dance/julio-bocca-national-ballet-of-argentina.html
