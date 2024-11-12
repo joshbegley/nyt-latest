@@ -1,3 +1,7 @@
+**Yohe: It's time for Kyle Dubas to have some difficult but necessary conversations**\
+`The Penguins endured a humiliating 7-1 loss to the Stars on Monday, and it's time for Dubas to engage in full rebuild mode.`\
+https://nytimes.com/athletic/5916390/2024/11/11/penguins-stars-kyle-dubas-difficult-decisions-yohe/
+
 **Todd Golden coaches UF during Title IX investigation, declines to comment**\
 `When Golden walked out of the tunnel with 2:07 left on the pregame clock, he was welcomed by a smattering of applause.`\
 https://nytimes.com/athletic/5916487/2024/11/11/todd-golden-florida-coach-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/11/us/donald-trump-jr-firm.html
 **49ers minutia minute: Christian McCaffrey's big snap count; kicker beef 'squashed'**\
 `Jauan Jennings and Ricky Pearsall stepped up on Sunday. Jennings will be in Brandon Aiyuk's "X" receiver role from here on out.`\
 https://nytimes.com/athletic/5916238/2024/11/11/49ers-snap-counts-christian-mccaffrey-buccaneers/
-
-**Trump Expected to Name Marco Rubio as Secretary of State**\
-`The president-elect appears to have settled on the Florida senator, who has taken hard-line positions on China, Iran and Venezuela, to be the nation’s top diplomat.`\
-https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
 
