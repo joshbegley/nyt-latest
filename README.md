@@ -1,5 +1,9 @@
+**Israel Strikes South of Beirut Amid Push for Cease-Fire in Lebanon**\
+`The conflict between Israel and Hezbollah has intensified in recent days, despite diplomatic efforts to move toward a temporary cease-fire.`\
+https://nytimes.com/2024/11/12/world/middleeast/israel-lebanon-strikes-hezbollah.html
+
 **At Least 35 Killed After Man Drives Into Crowd in Southern China**\
-`The police in the city of Zhuhai detained a man who they said had driven into people who were exercising at a sports center, a state news agency reported.`\
+`The police in the city of Zhuhai detained a man who they said had driven into people who were exercising at a sports center, state news media reported.`\
 https://nytimes.com/2024/11/12/world/asia/china-car-attack-zhuhai.html
 
 **The Pulse: Don't forget about the Dolphins**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5916201/2024/11/12/justin-jefferson-vikings-jaguars
 **What's wrong with the Knicks' defense and can it be fixed?**\
 `After being a strength last season, the Knicks' defense has been rough so far this campaign. Why is that? A lot of the mistakes are fixable.`\
 https://nytimes.com/athletic/5915004/2024/11/12/knicks-defense-video-3s-bad/
-
-**NFL QB stock report, Week 11: Caleb Williams' flaws have followed him from college**\
-`Williams' struggles are not entirely his fault. He's not getting a lot of help from the supporting cast in Chicago.`\
-https://nytimes.com/athletic/5915524/2024/11/12/nfl-qb-stock-report-caleb-williams-bears/
 
