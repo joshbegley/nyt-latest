@@ -1,3 +1,11 @@
+**A Republican Trifecta**\
+`With the House, Republicans would have full control of the federal government next year.`\
+https://nytimes.com/2024/11/12/briefing/a-republican-trifecta.html
+
+**Biden Team Tries to Buoy Climate Talks Jolted by ‘Bitterly Disappointing’ Election**\
+`Negotiators at the COP29 summit in Azerbaijan fear that the return of Donald J. Trump will sap momentum for global climate action.`\
+https://nytimes.com/2024/11/12/climate/cop29-baku-world-leaders.html
+
 **As uninspiring results pile up, will Phil Longo get Wisconsin's offense to the other side?**\
 `Wisconsin likely will need to score at a rate that has been significantly lacking in big moments this season under Longo.`\
 https://nytimes.com/athletic/5916202/2024/11/12/wisconsin-offense-phil-longo-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910237/2024/11/12/commanders-heisman-winners-jayde
 **The Batman writer who puts UVA basketball Easter eggs in his work**\
 `Long before Sam Hamm wrote one of the greatest superhero movies ever, he was a fan of Virginia basketball.`\
 https://nytimes.com/athletic/5908955/2024/11/12/batman-virginia-basketball-comics/
-
-**The story behind the Wild victory chain: 'Choose your hard,' Hartzy's workshop and a new team attitude**\
-`Ryan Hartman crafted the trophy the Wild give out after wins. It's not, coach John Hynes says, "a goofy thing. … This has meaning."`\
-https://nytimes.com/athletic/5916085/2024/11/12/wild-victory-chain/
-
-**NFL Draft 2025 Big Board: Travis Hunter takes No. 1 spot, 5 QBs in updated top 50**\
-`As college football's regular season winds down, which prospects are in the best shape headed into the draft process?`\
-https://nytimes.com/athletic/5910260/2024/11/12/nfl-draft-2025-prospect-rankings-dane-brugler/
 

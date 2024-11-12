@@ -1,3 +1,11 @@
+**A Republican Trifecta**\
+`With the House, Republicans would have full control of the federal government next year.`\
+https://nytimes.com/2024/11/12/briefing/a-republican-trifecta.html
+
+**Biden Team Tries to Buoy Climate Talks Jolted by ‘Bitterly Disappointing’ Election**\
+`Negotiators at the COP29 summit in Azerbaijan fear that the return of Donald J. Trump will sap momentum for global climate action.`\
+https://nytimes.com/2024/11/12/climate/cop29-baku-world-leaders.html
+
 **As uninspiring results pile up, will Phil Longo get Wisconsin's offense to the other side?**\
 `Wisconsin likely will need to score at a rate that has been significantly lacking in big moments this season under Longo.`\
 https://nytimes.com/athletic/5916202/2024/11/12/wisconsin-offense-phil-longo-coordinator/
