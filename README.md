@@ -1,3 +1,7 @@
+**Saks Fifth Avenue Calls Off Holiday Light Show**\
+`The department store is canceling an annual show that has long drawn tourists to its flagship store in New York City.`\
+https://nytimes.com/2024/11/12/nyregion/saks-light-show-canceled.html
+
 **As Trump Staffs Up, House Republicans Watch Their Expected Majority Shrink**\
 `After the president-elect named two G.O.P. representatives to top posts, party leaders warned they may not be able to spare many — or any — more.`\
 https://nytimes.com/2024/11/12/us/politics/trump-house-majority.html
