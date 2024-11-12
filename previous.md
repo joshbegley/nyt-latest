@@ -1,4 +1,4 @@
-**Reds hire Brad Mills as bench coach, reuniting him with manager Terry Francona**\
+**Reds hire Brad Mills as bench coach, reuniting him with Terry Francona**\
 `Mills managed the Astros from 2010 to 2012 and was on Francona's staffs in Boston, Cleveland and Philadelphia.`\
 https://nytimes.com/athletic/5918534/2024/11/12/reds-hire-brad-mills-bench-coach/
 
@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/12/style/bluesky-users-election.html
 `Gusts of wind up to 35 miles per hour, coupled with a weekslong drought, threatened to hasten the spread of the 5,000-acre Jennings Creek fire along the border of New York and New Jersey on Tuesday.`\
 https://nytimes.com/video/weather/100000009821570/new-york-new-jersey-wildfire.html
 
-**Trump’s Demand for Recess Appointments Poses Early Test of a Radical Second Term**\
+**Trump’s Demand to Skirt Senate Confirmations Poses Early Test of a Radical Second Term**\
 `The once and future president is pushing Republicans to systematically abdicate the Senate’s constitutional role in vetting his nominees.`\
 https://nytimes.com/2024/11/12/us/politics/trump-republicans-senate.html
 
