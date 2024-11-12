@@ -1,3 +1,11 @@
+**Georgia Election Case Against Trump Could Survive, but With a Long Delay**\
+`How far the state’s election interference case gets remains to be seen, but the president-elect almost certainly will not face trial during his term.`\
+https://nytimes.com/2024/11/12/us/trump-georgia-prosecution-delay.html
+
+**Kristi Noem Is Emerging as Trump’s Nominee for Homeland Security Secretary**\
+`Ms. Noem, the governor of South Dakota, is a loyalist who has vocally supported Donald J. Trump’s pledges regarding undocumented immigrants.`\
+https://nytimes.com/2024/11/12/us/politics/kristi-noem-homeland-security-secretary.html
+
 **Political Reporter Olivia Nuzzi Drops Protective Order Against Ex-Fiancé**\
 `Ms. Nuzzi, a former writer for New York magazine embroiled in a scandal involving Robert F. Kennedy Jr., had accused her ex-fiancé of harassment and blackmail.`\
 https://nytimes.com/2024/11/12/business/media/olivia-nuzzi-ryan-lizza.html
