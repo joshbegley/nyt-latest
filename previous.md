@@ -1,3 +1,7 @@
+**Todd Golden coaches UF during Title IX investigation, declines to comment**\
+`When Golden walked out of the tunnel with 2:07 left on the pregame clock, he was welcomed by a smattering of applause.`\
+https://nytimes.com/athletic/5916487/2024/11/11/todd-golden-florida-coach-basketball/
+
 **First Half of an Alley-Oop**\
 `You heard it here first: Avery Gee Katz and Aaron Gee make their collaboration debut.`\
 https://nytimes.com/2024/11/11/crosswords/daily-puzzle-2024-11-12.html
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/5916238/2024/11/11/49ers-snap-counts-christian-mcca
 **Trump Expected to Name Marco Rubio as Secretary of State**\
 `The president-elect appears to have settled on the Florida senator, who has taken hard-line positions on China, Iran and Venezuela, to be the nation’s top diplomat.`\
 https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Last weekend saw a rogue live tiger, an AD going scorched earth on his conference, Lane Kiffin winning a big game and much more. What could this week do to top it?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/5916328/2024/11/11/submit-a-question-for-stewart-mandels-college-football-mailbag-281/
 

@@ -1,3 +1,7 @@
+**Todd Golden coaches UF during Title IX investigation, declines to comment**\
+`When Golden walked out of the tunnel with 2:07 left on the pregame clock, he was welcomed by a smattering of applause.`\
+https://nytimes.com/athletic/5916487/2024/11/11/todd-golden-florida-coach-basketball/
+
 **Trump Expected to Name Marco Rubio as Secretary of State**\
 `The president-elect appears to have settled on the Florida senator, who has taken hard-line positions on China, Iran and Venezuela, to be the nation’s top diplomat.`\
 https://nytimes.com/2024/11/11/us/politics/trump-rubio-secretary-of-state.html
