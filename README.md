@@ -1,3 +1,11 @@
+**Try again, fail better: Hope and frustration for the tennis sandwich generation in Turin**\
+`In the first ATP Tour Finals without a 'Big Three' player since 2001, the players whose hopes they crushed try to figure out their heirs`\
+https://nytimes.com/athletic/5916067/2024/11/12/atp-tour-finals-tennis-sandwich-generation/
+
+**Where Asia Meets Europe, Allies Become Rivals in a Tangle of Interests**\
+`In the volatile Caucasus region, Russia and Iran, often seen as united in their aims, are vying to secure trade routes and influence. That leaves Western countries facing an unusual dilemma.`\
+https://nytimes.com/2024/11/12/world/europe/armenia-azerbaijan-russia-iran-cop.html
+
 **Scouting notes on Cesar Prieto, Johnny Cueto and others from the LIDOM game at Citi Field**\
 `The two teams with the most LIDOM championships in league history — Licey and Águilas — squared off at Citi Field on Sunday.`\
 https://nytimes.com/athletic/5916657/2024/11/12/licey-tigres-aguilas-cibaenas-citi-field-scouting/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/world/middleeast/israel-lebanon-strikes-hezbollah
 **At Least 35 Killed After Man Drives Into Crowd in Southern China**\
 `The police in the city of Zhuhai detained a man who they said had driven into people who were exercising at a sports center, state news media reported.`\
 https://nytimes.com/2024/11/12/world/asia/china-car-attack-zhuhai.html
-
-**The Pulse: Don't forget about the Dolphins**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5916471/2024/11/12/dolphins-rams-tua-tagovailoa-the-pulse/
-
-**A Republican Trifecta**\
-`With the House, Republicans would have full control of the federal government next year.`\
-https://nytimes.com/2024/11/12/briefing/a-republican-trifecta.html
 
