@@ -1,3 +1,11 @@
+**Julio Bocca, Former Star Dancer, to Run Argentina’s National Ballet**\
+`Bocca, who retired from American Ballet Theater in 2006, will lead the company at Teatro Colón in Buenos Aires.`\
+https://nytimes.com/2024/11/12/arts/dance/julio-bocca-national-ballet-of-argentina.html
+
+**FA launch investigation over Coote's alleged comments about Klopp**\
+`The Football Association (FA) has launched its own investigation after a video appeared to show Premier League referee David Coote criticising former Liverpool manager Jurgen Klopp.`\
+https://nytimes.com/athletic/5915378/2024/11/12/david-coote-liverpool-video-football-association/
+
 **Heat Today: Without Jimmy Butler, Miami trusts its depth on the road**\
 `Butler is battling an ankle injury, but players like Nikola Jović stepped up in his absence.`\
 https://nytimes.com/athletic/5917386/2024/11/12/jimmy-butler-heat-tyler-herro-nikola-jovic-bam-adebayo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5910524/2024/11/12/dak-prescott-season-ending-surge
 **Italian City in Amanda Knox Case Wants to Move On. A New Series Won’t Let It.**\
 `When a show produced by Ms. Knox about the murder of Meredith Kercher was filmed in Perugia, an outcry by residents led the mayor to apologize.`\
 https://nytimes.com/2024/11/12/world/europe/amanda-knox-perugia-italy.html
-
-**Submit your questions for Audrey Snyder's Penn State mailbag**\
-`Penn State has a favorable path to 11-1 and would be in line to host a College Football Playoff game in Beaver Stadium.`\
-https://nytimes.com/athletic/5917375/2024/11/12/penn-state-football-questions-mailbag/
-
-**Senate Republicans return to Washington and prepare to pick McConnell’s successor.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2024/11/12/us/trump-news-house-election/senate-republicans-return-to-washington-and-prepare-to-pick-mcconnells-successor
 
