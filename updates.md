@@ -1,3 +1,7 @@
+**NFL rescinds Roquan Smith's fine for Week 7 hip-drop tackle**\
+`Smith was slated to pay a $16,833 fine for the hit which ended Godwin's season, but Smith appealed that penalty.`\
+https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
+
 **NFL rescinds Roquan Smith's fine for Week 7 hip drop tackle**\
 `Smith was slated to pay a $16,833 fine for the hit which ended Godwin's season, but Smith appealed that penalty.`\
 https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
