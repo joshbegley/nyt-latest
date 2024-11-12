@@ -1,3 +1,11 @@
+**A Worldwide ‘Jew Hunt’**\
+`Antisemitism is reaching the point of catastrophe, for Jews and for Europe itself.`\
+https://nytimes.com/2024/11/12/opinion/amsterdam-antisemitism-jews-israel.html
+
+**At 80, a Concert Singer Finds Herself a Hot Commodity in Opera**\
+`Lucy Shelton, a soprano known for her work in the contemporary repertoire, has had a role tailor-made for her in “Lucidity,” an opera about identity and dementia.`\
+https://nytimes.com/2024/11/12/arts/music/lucy-shelton-lucidity-laura-kaminsky.html
+
 **In This Tokyo Rock Novel, the Cool Kids Are Not All Right**\
 `“Set My Heart on Fire” follows a young woman through a world of drugs, music and highly conditional relationships.`\
 https://nytimes.com/2024/11/12/books/review/izumi-suzuki-set-my-heart-on-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5917678/2024/11/12/roquan-smith-fine-rescinded-nfl/
 **‘Everybody Has a Lava Lamp Story’**\
 `The home décor staple of the 1960s and early ’70s counterculture is making a comeback.`\
 https://nytimes.com/2024/11/12/fashion/lava-lamps-mathmos-england.html
-
-**A Former Harrods Employee Accuses Al-Fayed of Trafficking and Says His Brother Knew**\
-`In a U.S. court filing, a former employee says she was trafficked, raped and abused when Mohamed al-Fayed owned Harrods, and that his brother Ali may have evidence of the abuse.`\
-https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
-
-**In Search of Ways to Cope in the Trump Era**\
-`Readers offer various strategies, including retreat, engagement, art and grief. Also: The ways to pray; regrowing New York City.`\
-https://nytimes.com/2024/11/12/opinion/trump-coping.html
 
