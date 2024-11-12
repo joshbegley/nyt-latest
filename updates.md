@@ -1,3 +1,15 @@
+**Angels sign veteran catcher Travis d'Arnaud to 2-year deal**\
+`D'Arnaud would presumably serve as a backup to Logan O'Hoppe.`\
+https://nytimes.com/athletic/5918318/2024/11/12/angels-sign-travis-darnaud-two-year-deal/
+
+**A Diver and His Metal Detector Solved This Nearly 50-Year-Old Mystery**\
+`Alex Davis, a Barbados-based dive instructor, returned a ring to a man who had lost it while on vacation decades prior.`\
+https://nytimes.com/2024/11/12/world/americas/diver-finds-graduation-ring-barbados.html
+
+**Wednesday Briefing: Trump’s Team of Loyalists**\
+`Plus, the new series “Say Nothing.”`\
+https://nytimes.com/2024/11/12/briefing/trump-israel-gaza-archbishop-canterbury.html
+
 **Natasha Alexenko, Who Helped Cut Backlog in Rape-Kit Testing, Dies at 51**\
 `Ten years after her sexual assault, she discovered that the evidence in her rape kit hadn’t been tested — and neither had thousands of others nationwide.`\
 https://nytimes.com/2024/11/12/us/natasha-alexenko-dead.html
