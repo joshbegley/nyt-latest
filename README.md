@@ -1,3 +1,7 @@
+**As uninspiring results pile up, will Phil Longo get Wisconsin's offense to the other side?**\
+`Wisconsin likely will need to score at a rate that has been significantly lacking in big moments this season under Longo.`\
+https://nytimes.com/athletic/5916202/2024/11/12/wisconsin-offense-phil-longo-coordinator/
+
 **Meet Spurs interim coach Mitch Johnson, through those who work with him daily**\
 `"His energy has been amazing, and I’m excited to see what we do," Chris Paul says of Johnson and his interim role.`\
 https://nytimes.com/athletic/5915311/2024/11/12/spurs-mitch-johnson-interim-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5916085/2024/11/12/wild-victory-chain/
 **NFL Draft 2025 Big Board: Travis Hunter takes No. 1 spot, 5 QBs in updated top 50**\
 `As college football's regular season winds down, which prospects are in the best shape headed into the draft process?`\
 https://nytimes.com/athletic/5910260/2024/11/12/nfl-draft-2025-prospect-rankings-dane-brugler/
-
-**It's time to take Colorado seriously in the College Football Playoff race: Stock watch**\
-`Colorado and Ole Miss are surging back into the College Football Playoff picture, while Miami has lost its margin for error.`\
-https://nytimes.com/athletic/5915853/2024/11/12/college-football-playoff-odds-colorado-miami/
 
