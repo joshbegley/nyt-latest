@@ -1,3 +1,15 @@
+**Exxon Chief to Trump: Don’t Withdraw From Paris Climate Deal**\
+`Darren Woods was one of only a few Western oil executives attending a global climate conference in Baku, Azerbaijan.`\
+https://nytimes.com/2024/11/12/business/energy-environment/exxon-mobil-baku-climate-cop29.html
+
+**Blinken Heads to NATO as Alliance Prepares for Trump’s Return**\
+`Officials meeting in Brussels will discuss Ukraine’s war against Russia amid concerns that the new administration will slash U.S. support for Kyiv.`\
+https://nytimes.com/2024/11/12/us/politics/blinken-nato-ukraine-russia.html
+
+**Submit your questions for The Athletic’s SEC mailbag**\
+`Send us your questions about SEC football, and we'll answer them later this week.`\
+https://nytimes.com/athletic/5917245/2024/11/12/sec-football-week-11-questions/
+
 **Amsterdam Authorities Say They Expect More Arrests Related to Violent Clashes**\
 `So far, 62 people have been detained in connection with unrest surrounding a soccer match as officials said they continue to investigate antisemitic attacks, as well as incendiary behavior by both sides.`\
 https://nytimes.com/2024/11/12/world/europe/amsterdam-israeli-soccer-attack-report.html

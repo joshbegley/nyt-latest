@@ -1,3 +1,15 @@
+**Exxon Chief to Trump: Don’t Withdraw From Paris Climate Deal**\
+`Darren Woods was one of only a few Western oil executives attending a global climate conference in Baku, Azerbaijan.`\
+https://nytimes.com/2024/11/12/business/energy-environment/exxon-mobil-baku-climate-cop29.html
+
+**Blinken Heads to NATO as Alliance Prepares for Trump’s Return**\
+`Officials meeting in Brussels will discuss Ukraine’s war against Russia amid concerns that the new administration will slash U.S. support for Kyiv.`\
+https://nytimes.com/2024/11/12/us/politics/blinken-nato-ukraine-russia.html
+
+**Submit your questions for The Athletic’s SEC mailbag**\
+`Send us your questions about SEC football, and we'll answer them later this week.`\
+https://nytimes.com/athletic/5917245/2024/11/12/sec-football-week-11-questions/
+
 **Amsterdam Authorities Say They Expect More Arrests Related to Violent Clashes**\
 `So far, 62 people have been detained in connection with unrest surrounding a soccer match as officials said they continue to investigate antisemitic attacks, as well as incendiary behavior by both sides.`\
 https://nytimes.com/2024/11/12/world/europe/amsterdam-israeli-soccer-attack-report.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/11/12/books/review/world-childrens-books.ht
 **Fantasy football Week 11 drops: Xavier Worthy unworthy of rosters. Cut Jonathon Brooks**\
 `Gary Davenport recommends dropping Xavier Worthy, not holding your breath on Jonathon Brooks' debut. `\
 https://nytimes.com/athletic/5917021/2024/11/12/nfl-fantasy-football-week-11-drops/
-
-**Why is Connor Bedard's play trending in the wrong direction? Competition? Linemates?**\
-`Bedard isn't producing at the rate expected in his second NHL season and can sense his game is off. What is happening?`\
-https://nytimes.com/athletic/5915286/2024/11/12/connor-bedard-blackhawks-game-analysis/
-
-**Here are the latest developments.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/11/12/us/trump-news-house-election/here-are-the-latest-developments
-
-**Pressure shifts to Antonio Pierce as Raiders play out another likely losing season**\
-`The Raiders return from the bye looking to snap a five-game losing streak and Pierce is looking to lead another turnaround. `\
-https://nytimes.com/athletic/5916038/2024/11/12/antonio-pierce-raiders-pressure/
 
