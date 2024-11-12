@@ -1,3 +1,15 @@
+**Market share report: Buying Broncos Estime and Sutton, selling CMC's backups**\
+`Michael Salfino prioritizes Broncos in his latest market report, saying to make moves this week to add Audric Estime and Courtland Sutton.`\
+https://nytimes.com/athletic/5917991/2024/11/12/market-share-report-buying-broncos-estime-and-sutton-selling-cmcs-backups/
+
+**Judge Schedules Plea Hearing in 9/11 Case for Early January**\
+`The timetable could partially resolve the case before the inauguration of President-elect Donald J. Trump.`\
+https://nytimes.com/2024/11/12/us/politics/sept-11-plea-hearings.html
+
+**Mike Huckabee, Former Arkansas Governor, Is Trump’s Choice for Ambassador to Israel**\
+`If confirmed, Mr. Huckabee, a former pastor who has never served as an overseas diplomat, would play a crucial role in helping Mr. Trump try to end the war in Gaza.`\
+https://nytimes.com/2024/11/12/us/politics/mike-huckabee-ambassador-to-israel.html
+
 **Phillies lose Brian Kaplan, who joins Diamondbacks as pitching coach**\
 `It's the first time in at least five years that another club has hired away a coach from the Phillies' MLB staff.`\
 https://nytimes.com/athletic/5918062/2024/11/12/brian-kaplan-phillies-diamonbacks-pitching-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/12/us/trump-higher-education-policy-universities.htm
 **USC football placed on 1-year probation, fined $50K for violations**\
 `Trojans coach Lincoln Riley will not be suspended. USC’s probation will last from November 12, 2024, through Nov. 11, 2025.`\
 https://nytimes.com/athletic/5917956/2024/11/12/usc-football-probation-fine-ncaa/
-
-**Saks Fifth Avenue Calls Off Holiday Light Show**\
-`The department store is canceling an annual show that has long drawn tourists to its flagship store in New York City.`\
-https://nytimes.com/2024/11/12/nyregion/saks-light-show-canceled.html
-
-**As Trump Staffs Up, House Republicans Watch Their Expected Majority Shrink**\
-`After the president-elect named two G.O.P. representatives to top posts, party leaders warned they may not be able to spare many — or any — more.`\
-https://nytimes.com/2024/11/12/us/politics/trump-house-majority.html
-
-**Man Found Living in Crawl Space of Los Angeles Home**\
-`A 92-year-old woman had heard strange noises late at night for weeks before the police arrested a naked man who they said had been living under her house.`\
-https://nytimes.com/2024/11/12/us/man-crawl-space-arrested-los-angeles.html
 
