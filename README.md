@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Usagi**\
+`See the likely path and wind arrival times for Usagi.`\
+https://nytimes.com/interactive/2024/11/12/weather/usagi-map-path-tracker.html
+
+**Corporate America Bets on a Market-Friendly Trump 2.0**\
+`Investors have been comforted by a clear election result and are anticipating tax cuts and deregulation from a second Trump administration.`\
+https://nytimes.com/2024/11/12/business/trump-stock-market-tariffs.html
+
 **‘Devious’ New Deep Sea Creature Hid Its Identity From Scientists**\
 `It took nearly 25 years for biologists to discover that a swimming and glowing organism in the ocean’s midnight zone was actually a sea slug.`\
 https://nytimes.com/2024/11/12/science/sea-slug-nudibranch-deep-sea.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/climate/methane-fee-epa-oil.html
 **How a matchup between Josh Allen and Patrick Mahomes could help decide the NFL MVP race**\
 `Lamar Jackson is the favorite to win NFL MVP, but can a matchup between Josh Allen and Patrick Mahomes help decide the race?`\
 https://nytimes.com/athletic/5917357/2024/11/12/nfl-2024-mvp-betting-odds-patrick-mahomes/
-
-**Twins promote Derek Falvey, Jeremy Zoll as president Dave St. Peter prepares to step aside**\
-`The Twins’ club president since 2002 will transition into an advisory role. Falvey will take over St. Peter’s role and Zoll will be the GM. `\
-https://nytimes.com/athletic/5917361/2024/11/12/twins-dave-st-peter-derek-falvey-jeremy-zoll/
-
-**Texas Attorney General Seeks Order to Preserve Jack Smith’s Trump Records**\
-`Ken Paxton asked a judge to order Mr. Smith, the special counsel who brought two criminal cases against Donald J. Trump, to preserve his records and avoid “obstruction of accountability.”`\
-https://nytimes.com/2024/11/12/us/politics/jack-smith-trump-ken-paxton.html
 
