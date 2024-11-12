@@ -1,3 +1,7 @@
+**Many Kids’ Melatonin Supplements Don’t Contain the Doses They Claim**\
+`A new study by F.D.A. scientists found that some products contained more than six times the amount on the label.`\
+https://nytimes.com/2024/11/12/well/melatonin-childrens-supplements.html
+
 **Twins promote Derek Falvey, Jeremy Zoll as president Dave St. Peter prepares to step aside**\
 `The Twins’ club president since 2002 will transition into an advisory role. Falvey will take over St. Peter’s role and Zoll will be the GM. `\
 https://nytimes.com/athletic/5917361/2024/11/12/twins-dave-st-peter-derek-falvey-jeremy-zoll/
