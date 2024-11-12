@@ -1,3 +1,19 @@
+**Texas Attorney General Seeks Order to Preserve Jack Smith’s Trump Records**\
+`Ken Paxton asked a judge to order Mr. Smith, the special counsel who brought two criminal cases against Donald J. Trump, to preserve his records and avoid “obstruction of accountability.”`\
+https://nytimes.com/2024/11/12/us/politics/jack-smith-trump-ken-paxton.html
+
+**At Long Last, the Surge in S.T.I.s May Be Leveling Off**\
+`Rates of gonorrhea declined in 2023, while diagnoses of syphilis and chlamydia held roughly steady, according to new C.D.C. data.`\
+https://nytimes.com/2024/11/12/health/syphilis-gonorrhea-chlamydia-cdc.html
+
+**Five-Star Coconut Curry Chickpeas With Pumpkin and Lime**\
+`This 30-minute vegan dinner boasts five stars and over 10,000 reviews: “This recipe is WOW!,” one reader wrote.`\
+https://nytimes.com/2024/11/12/dining/five-star-coconut-curry-chickpeas-with-pumpkin-and-lime.html
+
+**NBA Power Rankings: Saying something nice about every team (even the last-place ones)**\
+`The Rockets and Grizzlies climb, while the Mavs and Heat fall in our latest breakdown of all 30 NBA teams.`\
+https://nytimes.com/athletic/5916890/2024/11/12/nba-power-rankings-cavaliers-warriors-lakers/
+
 **Its Birthrate Falling, Russia Targets Child-Free Lifestyles**\
 `The country’s lower house of Parliament passed a law that would ban what it calls “propaganda” discouraging Russians from having children.`\
 https://nytimes.com/2024/11/12/world/europe/russia-child-free-lifestyles.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5917386/2024/11/12/jimmy-butler-heat-tyler-herro-ni
 **Hollinger's Week That Was: Holmgren's injury highlights trend; scouting V.J. Edgecombe**\
 `The OKC big man's injury was a freak play, but it puts the spotlight on the abundance of injuries we've seen so far this season.`\
 https://nytimes.com/athletic/5916349/2024/11/12/chet-holmgren-injury-nba-vj-edgecombe-baylor/
-
-**Trump’s Win a Worry for an Already Struggling Wind Industry**\
-`Faced with rising costs and thin margins, wind energy developers have lately been reducing their ambitions.`\
-https://nytimes.com/2024/11/12/business/trump-wind-power-turbines.html
-
-**Turkish club defend ex-president sentenced to jail after punching referee**\
-`Turkish football club MKE Ankaragucu have defended their former president Faruk Koca as being the &#8220;target of one-sided public perception&#8221; after he was sentenced to more than three years in prison for assaulting a referee last year.`\
-https://nytimes.com/athletic/5914777/2024/11/12/turkey-club-president-jailed-referee-punch/
-
-**Frank Auerbach, One of Britain’s Most Celebrated Artists, Dies at 93**\
-`Known for his unyielding seven-day-a-week work schedule, he returned again and again to the same models and London street scenes.`\
-https://nytimes.com/2024/11/12/arts/frank-auerbach-dead.html
-
-**This ‘Ghost’ Fish Seemed Extinct, Until It Turned Up in Unexpected Places**\
-`No one saw a Mekong giant salmon carp for 15 years, but then the species was spotted in areas of Cambodia that suggest it may be found in more locations.`\
-https://nytimes.com/2024/11/12/science/mekong-giant-salmon-carp-cambodia.html
 

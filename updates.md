@@ -1,3 +1,19 @@
+**Texas Attorney General Seeks Order to Preserve Jack Smith’s Trump Records**\
+`Ken Paxton asked a judge to order Mr. Smith, the special counsel who brought two criminal cases against Donald J. Trump, to preserve his records and avoid “obstruction of accountability.”`\
+https://nytimes.com/2024/11/12/us/politics/jack-smith-trump-ken-paxton.html
+
+**At Long Last, the Surge in S.T.I.s May Be Leveling Off**\
+`Rates of gonorrhea declined in 2023, while diagnoses of syphilis and chlamydia held roughly steady, according to new C.D.C. data.`\
+https://nytimes.com/2024/11/12/health/syphilis-gonorrhea-chlamydia-cdc.html
+
+**Five-Star Coconut Curry Chickpeas With Pumpkin and Lime**\
+`This 30-minute vegan dinner boasts five stars and over 10,000 reviews: “This recipe is WOW!,” one reader wrote.`\
+https://nytimes.com/2024/11/12/dining/five-star-coconut-curry-chickpeas-with-pumpkin-and-lime.html
+
+**NBA Power Rankings: Saying something nice about every team (even the last-place ones)**\
+`The Rockets and Grizzlies climb, while the Mavs and Heat fall in our latest breakdown of all 30 NBA teams.`\
+https://nytimes.com/athletic/5916890/2024/11/12/nba-power-rankings-cavaliers-warriors-lakers/
+
 **Its Birthrate Falling, Russia Targets Child-Free Lifestyles**\
 `The country’s lower house of Parliament passed a law that would ban what it calls “propaganda” discouraging Russians from having children.`\
 https://nytimes.com/2024/11/12/world/europe/russia-child-free-lifestyles.html
