@@ -1,40 +1,40 @@
-**Odegaard won't play for Norway during international break**\
-`Arsenal captain Martin Odegaard will not feature for Norway in their upcoming Nations League matches as he continues his recovery back to full fitness.`\
-https://nytimes.com/athletic/5914363/2024/11/12/martin-odegaard-norway-squad-arsenal/
+**‘Larger Than Life: Reign of the Boybands’ Review: The Wrong Stuff**\
+`The boy band stories in Tamra Davis’s documentary rarely intersect in a way that builds a meaningful or compelling perspective.`\
+https://nytimes.com/2024/11/12/movies/larger-than-life-reign-of-the-boybands-review.html
 
-**Man City's Rodri aims for return from ACL injury this season**\
-`Manchester City midfielder Rodri is targeting a return to action before the end of the 2024-25 season.`\
-https://nytimes.com/athletic/5916782/2024/11/12/rodri-acl-injury-update-manchester-city/
+**After Harris’s Loss, a Liberal Icon Ponders Life on the Outside**\
+`Kamala Harris’s defeat is personal for Representative Barbara Lee, a California Democrat retiring this year. But after five decades in the fight, she says she is undaunted.`\
+https://nytimes.com/2024/11/12/us/politics/barbara-lee-kamala-harris.html
 
-**Van Nistelrooy departs after successfully starting the healing process at Manchester United**\
-`Previously adored as a United player, the Dutchman only strengthened his bond with the fans by picking up the pieces after Ten Hag's sacking`\
-https://nytimes.com/athletic/5916728/2024/11/12/van-nistelrooy-manchester-united-leaves-amorim/
+**Where on Earth Are We Going? This Geographer’s Not Sure.**\
+`In “Four Points of the Compass,” Jerry Brotton explores the disorienting, dizzying history of our relationship to direction.`\
+https://nytimes.com/2024/11/12/books/review/jerry-brotton-four-points-of-the-compass.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/12/crosswords/spelling-bee-forum.html
+**Airlines Hate ‘Skiplagging.’ Meet the Man Who Helps Travelers Pull It Off.**\
+`Aktarer Zaman is the founder of a controversial website that unearths airfare hacks, most notably skipping the last leg of a flight for a cheaper price.`\
+https://nytimes.com/2024/11/12/travel/skiplagged-flights-hacks.html
 
-**Why ‘Affordable Housing’ in New York City Can Still Cost $3,500 a Month**\
-`Soaring rents and few options have made it hard for average people to live in the city. Even “affordable” units often cost too much.`\
-https://nytimes.com/2024/11/12/nyregion/housing-crunch-affordable-housing.html
+**In Every World-Weary Private Eye Is an Errant Philosopher**\
+`Sergio De La Pava’s novel “Every Arc Bends Its Radian” is a detective story that takes a strange turn in Colombia’s dark underbelly.`\
+https://nytimes.com/2024/11/12/books/review/sergio-delapava-every-arc-bends-its-radian.html
 
-**Cat Psychology**\
-`What cats have you known well in your life? What has puzzled you about their behavior?`\
-https://nytimes.com/2024/11/12/learning/cat-psychology.html
+**A New Set of Gits Releases Gives Mia Zapata Her Voice Back**\
+`The Seattle frontwoman was killed in 1993, as her punk band was on the cusp of a breakthrough. Remastered recordings provide a chance to rewrite her story.`\
+https://nytimes.com/2024/11/12/arts/music/the-gits-mia-zapata-reissues.html
 
-**Late Night Weighs in on Trump’s Cabinet Picks**\
-`Jimmy Kimmel called President-elect Trump’s choices thus far “a real cast of no character.”`\
-https://nytimes.com/2024/11/12/arts/television/late-night-trump-cabinet.html
+**The Lesson of This Election: We Must Stop Inflation Before It Starts**\
+`Our nation needs an economic disaster preparedness tool kit to avoid the scourge of inflation.`\
+https://nytimes.com/2024/11/12/opinion/election-inflation-cost-shock.html
 
-**Word of the Day: encumbered**\
-`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/12/learning/word-of-the-day-encumbered.html
+**A Secret Masterpiece by the Father of Hawaiian Modernism**\
+`This hexagonal home, hidden on an Oahu mountaintop, is the best example of Vladimir Ossipoff’s blend of Japanese and American midcentury design.`\
+https://nytimes.com/2024/11/12/t-magazine/hawaii-modernist-house-vladimir-ossipoff.html
 
-**Flyers rookies Matvei Michkov, Emil Andrae thrive amid challenges in win vs. Sharks**\
-`Michkov and Andrae could be huge keys to the Flyers' future.`\
-https://nytimes.com/athletic/5915979/2024/11/12/flyers-rookies-matvei-michkov-emil-andrae/
+**Hong Kong’s Tycoons Are Selling Trophy Homes at Fire Sale Prices**\
+`China’s economic downturn has not been kind to the ultrarich who made their wealth on its rise. In their haste to cough up cash, Hong Kong’s luxury property market has had some fire sales.`\
+https://nytimes.com/2024/11/12/business/hong-kong-luxury-property.html
 
-**Cucurella has become Chelsea's irritant-in-chief - and may be what Maresca needs**\
-`After a tough start, Cucurella has endeared himself to Chelsea fans - even if opposition ones see him as a footballing pantomime villain`\
-https://nytimes.com/athletic/5914713/2024/11/12/chelsea-marc-cucurella-dennis-wise-john-terry/
+**Gifts for the Host: Beeswax Candles or Cocktail Napkins**\
+`Stephanie Nass, a culinary influencer known as Chefanie, recommends some presents to bring along on holiday visits.`\
+https://nytimes.com/2024/11/12/fashion/gifts-holiday-entertaining-stephanie-nass.html
 
