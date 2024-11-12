@@ -1,3 +1,7 @@
+**What to Know About Marco Rubio, Said to Be Trump’s Pick for Secretary of State**\
+`The three-term senator from Florida viciously criticized Donald J. Trump during the 2016 campaign but has since ingratiated himself and become a foreign policy adviser to Mr. Trump.`\
+https://nytimes.com/2024/11/12/us/politics/who-is-marco-rubio.html
+
 **Market share report: Buying Broncos Estime and Sutton, selling CMC's backups**\
 `Michael Salfino prioritizes Broncos in his latest market report, saying to make moves this week to add Audric Estime and Courtland Sutton.`\
 https://nytimes.com/athletic/5917991/2024/11/12/market-share-report-buying-broncos-estime-and-sutton-selling-cmcs-backups/
