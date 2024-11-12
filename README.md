@@ -1,3 +1,7 @@
+**Former Fox News Host Chris Wallace to Quit CNN After 3 Years**\
+`The 77-year-old veteran anchor told The Daily Beast that he planned to venture into streaming or podcasting.`\
+https://nytimes.com/2024/11/11/business/media/chris-wallace-cnn.html
+
 **Review: Blowing Louis Armstrong’s Horn Isn’t Enough in ‘A Wonderful World’**\
 `The great jazz trumpeter and sandpaper vocalist gets the old jukebox treatment in a new Broadway musical starring James Monroe Iglehart.`\
 https://nytimes.com/2024/11/11/theater/a-wonderful-world-review-louis-armstrong.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/11/world/americas/arizona-latino-vote.html
 **Trump to Name Michael Waltz as His National Security Adviser**\
 `The president-elect has chosen a Republican member of Congress from Florida to oversee national security policy in the White House.`\
 https://nytimes.com/2024/11/11/us/politics/trump-michael-waltz-national-security-adviser.html
-
-**Tyreek Hill has torn wrist ligament, says it was aggravated in arrest**\
-`Dolphins leading receiver did not participate in team practices on Friday and Saturday.`\
-https://nytimes.com/athletic/5916252/2024/11/11/tyreek-hill-dolphins-wrist-injury/
 
