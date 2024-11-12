@@ -1,3 +1,7 @@
+**Angels sign veteran catcher Travis d'Arnaud to 2-year deal**\
+`D'Arnaud would serve as a backup to Logan O'Hoppe.`\
+https://nytimes.com/athletic/5918318/2024/11/12/angels-sign-travis-darnaud-two-year-deal/
+
 **Trump Begins to Fill Top Posts With Loyal Defenders**\
 `Also, a judge blocked a Louisiana law requiring Ten Commandments in classrooms. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/11/12/briefing/trump-appointees-louisiana-ten-commandments.html

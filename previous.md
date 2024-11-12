@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5918326/2024/11/12/tropicana-field-rays-damage-repo
 https://nytimes.com/2024/11/12/arts/booker-prize-winner-orbital-samantha-harvey.html
 
 **Angels sign veteran catcher Travis d'Arnaud to 2-year deal**\
-`D'Arnaud would presumably serve as a backup to Logan O'Hoppe.`\
+`D'Arnaud would serve as a backup to Logan O'Hoppe.`\
 https://nytimes.com/athletic/5918318/2024/11/12/angels-sign-travis-darnaud-two-year-deal/
 
 **A Diver and His Metal Detector Solved This Nearly 50-Year-Old Mystery**\
