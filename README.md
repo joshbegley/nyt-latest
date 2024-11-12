@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5917817/2024/11/12/england-squad-lewis-hall/
 
 **Noem is emerging as the nominee for homeland security secretary.**\
 `By Maggie Haberman`\
-https://nytimes.com/live/2024/11/12/us/trump-news-house-election/noem-is-emerging-as-the-nominee-for-homeland-security-secretary
+https://nytimes.com/2024/11/12/us/politics/noem-is-emerging-as-the-nominee-for-homeland-security-secretary.html
 
 **Trump Had It Easy the First Time**\
 `A host of problems that will need more subtle and sophisticated uses of force and coercive diplomacy will confront the new president.`\
