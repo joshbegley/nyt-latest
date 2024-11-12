@@ -1,3 +1,11 @@
+**Turkish club defend ex-president sentenced to jail after punching referee**\
+`Turkish football club MKE Ankaragucu have defended their former president Faruk Koca as being the &#8220;target of one-sided public perception&#8221; after he was sentenced to more than three years in prison for assaulting a referee last year.`\
+https://nytimes.com/athletic/5914777/2024/11/12/turkey-club-president-jailed-referee-punch/
+
+**Frank Auerbach, One of Britain’s Most Celebrated Artists, Dies at 93**\
+`Known for his unyielding seven-day-a-week work schedule, he returned again and again to the same models and London street scenes.`\
+https://nytimes.com/2024/11/12/arts/frank-auerbach-dead.html
+
 **This ‘Ghost’ Fish Seemed Extinct, Until It Turned Up in Unexpected Places**\
 `No one saw a Mekong giant salmon carp for 15 years, but then the species was spotted in areas of Cambodia that suggest it may be found in more locations.`\
 https://nytimes.com/2024/11/12/science/mekong-giant-salmon-carp-cambodia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/12/nyregion/trump-criminal-conviction-overturn-manha
 **F1 race director Niels Wittich steps down; Rui Marques to take over**\
 `In a statement issued by the FIA, F1’s governing body said Wittich had left the role "to pursue new opportunities.”`\
 https://nytimes.com/athletic/5917307/2024/11/12/f1-race-director-change/
-
-**Bears fire OC Shane Waldron, Thomas Brown to call plays**\
-`The move comes after the Bears (4-5) only scored three points against the New England Patriots on Sunday.`\
-https://nytimes.com/athletic/5917311/2024/11/12/bears-offensive-coordinator-shane-waldron-thomas-brown-2/
-
-**Kennedy’s F.D.A.Wish List: Raw Milk, Stem Cells, Heavy Metals**\
-`Robert F. Kennedy Jr., one of President-elect Donald J. Trump’s advisers on health, is taking aim at the agency’s oversight on many fronts.`\
-https://nytimes.com/2024/11/12/health/robert-kennedy-jr-fda.html
 

@@ -1,3 +1,11 @@
+**Turkish club defend ex-president sentenced to jail after punching referee**\
+`Turkish football club MKE Ankaragucu have defended their former president Faruk Koca as being the &#8220;target of one-sided public perception&#8221; after he was sentenced to more than three years in prison for assaulting a referee last year.`\
+https://nytimes.com/athletic/5914777/2024/11/12/turkey-club-president-jailed-referee-punch/
+
+**Frank Auerbach, One of Britain’s Most Celebrated Artists, Dies at 93**\
+`Known for his unyielding seven-day-a-week work schedule, he returned again and again to the same models and London street scenes.`\
+https://nytimes.com/2024/11/12/arts/frank-auerbach-dead.html
+
 **This ‘Ghost’ Fish Seemed Extinct, Until It Turned Up in Unexpected Places**\
 `No one saw a Mekong giant salmon carp for 15 years, but then the species was spotted in areas of Cambodia that suggest it may be found in more locations.`\
 https://nytimes.com/2024/11/12/science/mekong-giant-salmon-carp-cambodia.html
