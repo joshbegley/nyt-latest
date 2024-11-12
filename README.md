@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5915786/2024/11/12/blues-line-changes-analysis/
 `A three-week damage assessment report was recently provided to the St. Petersburg City Council. `\
 https://nytimes.com/athletic/5918326/2024/11/12/tropicana-field-rays-damage-report/
 
-**Samantha Harvey’s ‘Orbital’ Wins Booker Prize**\
+**Samantha Harvey’s ‘Orbital’ Wins the Booker Prize**\
 `Most bets were on Percival Everett’s “James,” but the judges chose Harvey’s “beautiful, miraculous” novel, which is set aboard a space station.`\
 https://nytimes.com/2024/11/12/arts/booker-prize-winner-orbital-samantha-harvey.html
 
