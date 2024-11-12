@@ -1,3 +1,15 @@
+**In This Tokyo Rock Novel, the Cool Kids Are Not All Right**\
+`“Set My Heart on Fire” follows a young woman through a world of drugs, music and highly conditional relationships.`\
+https://nytimes.com/2024/11/12/books/review/izumi-suzuki-set-my-heart-on-fire.html
+
+**Submit your questions for Jordan Bianchi's end-of-season NASCAR mailbag**\
+`Have a question about the 2024 NASCAR season or what's next? Submit it here for Jordan Bianchi's end-of-season NASCAR mailbag.`\
+https://nytimes.com/athletic/5917834/2024/11/12/submit-your-questions-for-jordan-bianchis-end-of-season-nascar-mailbag/
+
+**A Former Harrods Employee Accuses Al-Fayed of Trafficking and Says His Brother Knew**\
+`In a U.S. court filing, a former employee says she was trafficked, raped and abused when Mohamed al-Fayed owned Harrods, and that his brother Ali may have evidence of the abuse.`\
+https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
+
 **Woman Accuses Al-Fayed of Abuse and Says His Brother Knew of Trafficking at Harrods**\
 `In a U.S. court filing, a former employee says she was trafficked, raped and abused when Mohamed al-Fayed owned Harrods, and that his brother Ali may have evidence of the abuse.`\
 https://nytimes.com/2024/11/12/world/europe/fayed-harrods-sexual-assault.html
