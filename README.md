@@ -1,3 +1,15 @@
+**A Project 2025 Leader’s Exile Ends**\
+`At his book party, the Heritage Foundation president said he’ll soon speak with the President-elect.`\
+https://nytimes.com/2024/11/13/us/politics/project-2025-leader-exile.html
+
+**Marco Rubio Is Trump’s Pick for Secretary of State**\
+`The president-elect said Senator Rubio would be “a strong advocate for our nation, a true friend to our allies and a fearless warrior who will never back down to our adversaries.”`\
+https://nytimes.com/2024/11/13/us/politics/marco-rubio-trump-secretary-of-state.html
+
+**2 Workers Are Killed in ‘Tremendous Explosion’ at Kentucky Plant**\
+`The explosion at a food-coloring facility in Louisville also injured several others and caused widespread destruction.`\
+https://nytimes.com/2024/11/13/us/kentucky-louisville-factory-explosion.html
+
 **Climate Change Is Losing Its Grip on Our Politics**\
 `Trump’s election merely confirms a shift that’s been happening for years.`\
 https://nytimes.com/2024/11/13/opinion/climate-change-politics-trump-cop29.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/13/t-magazine/gift-guide-questions-christmas-shoppin
 **Canada Detects Its First Human Case of Bird Flu**\
 `A teenager in British Columbia was hospitalized in critical condition with the disease, and officials were working to find out how the person was exposed to the virus.`\
 https://nytimes.com/2024/11/13/world/canada/british-columbia-bird-flu-teenager.html
-
-**Nearly Half of California Voters Would Back Harris for Governor, Poll Shows**\
-`A late-October survey in Vice President Kamala Harris’s home state showed strong Democratic backing if she ran in the 2026 race for governor. She has not said what she plans to do next.`\
-https://nytimes.com/2024/11/13/us/politics/harris-california-governor-voters-poll.html
-
-**Caitlin Clark’s morning on the LPGA Tour: Shanked shots, pured drives and so many fans**\
-`Clark played with world No. 1 Nelly Korda and legend Annika Sorenstam at The Annika on Wednesday, driving thousands to the tournament.`\
-https://nytimes.com/athletic/5920207/2024/11/13/caitlin-clark-lpga-golf-annika/
-
-**Patrick Mahomes, Travis Kelce's homes burglarized last month**\
-`A Cass County Sheriff’s Office spokesperson said an investigation into the reported burglary at Mahomes' home is ongoing.`\
-https://nytimes.com/athletic/5919923/2024/11/13/mahomes-kelce-home-burglaries/
 

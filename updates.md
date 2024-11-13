@@ -1,3 +1,7 @@
+**Climate Change Is Losing Its Grip on Our Politics**\
+`Trump’s election merely confirms a shift that’s been happening for years.`\
+https://nytimes.com/2024/11/13/opinion/climate-change-politics-trump-cop29.html
+
 **Dynasty league football 2025 rookie draft update: Is it Ashton Jeanty or bust?**\
 `Jeff Haverlack checks in on the 2025 rookie class for dynasty leagues, and he struggles to find optimism outside running back Ashton Jeanty.`\
 https://nytimes.com/athletic/5920279/2024/11/13/dynasty-league-update-2025-draft-class-ashton-jeanty/
