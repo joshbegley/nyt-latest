@@ -1,3 +1,19 @@
+**Biden to Meet With China’s Leader During Summit This Weekend**\
+`The meeting with President Xi Jinping comes as President-elect Donald J. Trump has promised a much more aggressive approach to China that includes vast tariffs on Chinese goods.`\
+https://nytimes.com/2024/11/13/us/politics/biden-xi-china-meeting.html
+
+**Arbitrator sides with baseball union in Bad Bunny agency flap**\
+`Rimas Sports, the agency co-founded by the musician Bad Bunny, had been accused of giving players money, care packages and concert tickets.`\
+https://nytimes.com/athletic/5920104/2024/11/13/mlbpa-bad-bunny-gift-violations-ruling/
+
+**Liverpool deserve to be Premier League title favourites - Salah**\
+`Mohamed Salah insists Liverpool are not &#8220;underdogs&#8221; in the Premier League title race as they have one of the best squads in the world.`\
+https://nytimes.com/athletic/5920075/2024/11/13/mohamed-salah-liverpool-premier-league-title/
+
+**Thompson: Klay Thompson returned to the Bay, but the night belonged to Stephen Curry**\
+`Tuesday started as a ballad to their returning dynasty mate. It ended with a reminder that this is still very much Stephen Curry's ship.`\
+https://nytimes.com/athletic/5919987/2024/11/13/stephen-curry-klay-thompson-return-warriors-mavericks/
+
 **'We have the right coach': Oklahoma president, AD back Brent Venables**\
 `Heading toward the worst season Oklahoma football has had in decades, the school’s president and athletic director both threw their support behind coach Brent Venables and put to rest speculation that a coaching change could be coming.`\
 https://nytimes.com/athletic/5920130/2024/11/13/oklahoma-football-brent-venables-confidence/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/13/arts/dance/vicky-holt-takamine-hawaiian-gish-priz
 **EA Sports to add PWHL teams and players to NHL 25**\
 `All six PWHL teams will be integrated into the game as part of a multiyear partnership between the video game developer and the league.`\
 https://nytimes.com/athletic/5918884/2024/11/13/ea-sports-pwhl-nhl-25-release/
-
-**Are You a Member of Gen Z? Tell Us About the Trends You’re Seeing.**\
-`Fashion, slang, social media, activism: We want to hear what young people are thinking and talking about.`\
-https://nytimes.com/2024/11/13/style/gen-z-trends-fashion-social-media.html
-
-**Colts returning to Anthony Richardson as QB1 vs. Jets**\
-`Following Sunday's loss, Joe Flacco's record as Indianapolis' starter is 1-3, while Anthony Richardson is 3-3 for the team.`\
-https://nytimes.com/athletic/5915662/2024/11/13/anthony-richardson-colts-starter-return/
-
-**What to Know About Trump Media Now That the Election Is Over**\
-`Truth Social still has paltry revenues and a limited advertising base, and the president-elect’s majority stake raises the potential for conflicts of interest.`\
-https://nytimes.com/2024/11/13/business/trump-media-truth-social.html
-
-**Tage Thompson or Vincent Trocheck? Brock Nelson or Cole Caufield? Bill Guerin talks U.S. 4 Nations roster**\
-`Guerin, the U.S. GM, on management's tough decisions: "We’ll just start laughing and be like, ‘Listen to us nitpick this superstar player.'"`\
-https://nytimes.com/athletic/5919918/2024/11/13/united-states-4-nations-roster/
 
