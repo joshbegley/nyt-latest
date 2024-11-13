@@ -1,3 +1,19 @@
+**Tesla Issues Sixth Cybertruck Recall This Year**\
+`Tesla said a defect could cause the electric truck to lose driver power and pledged to replace the affected part for free.`\
+https://nytimes.com/2024/11/13/business/tesla-cybertruck-recall.html
+
+**As Trump Jokes About Third Term, Democrat Wants to Leave No Constitutional Loophole**\
+`Representative Daniel Goldman of New York plans to introduce a resolution clarifying that the Constitution’s two-term limit for presidents applies even if the terms are not consecutive.`\
+https://nytimes.com/2024/11/13/us/politics/congress-resolution-22nd-amendment-loophole.html
+
+**Until Saturday: A Playoff without Georgia?**\
+`Welcome to Until Saturday, The Athletic's college football newsletter.`\
+https://nytimes.com/athletic/5920197/2024/11/13/college-football-rankings-georgia-until-saturday/
+
+**Israeli Court Rejects Netanyahu’s Bid to Delay Corruption Trial Testimony**\
+`The court ruled that Prime Minister Benjamin Netanyahu must take the stand on Dec. 2 in a trial that has stretched out for more than four years.`\
+https://nytimes.com/2024/11/13/world/middleeast/israel-netanyahu-trial.html
+
 **Tiny Love Stories: ‘Our Unspoken Sibling Sign’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/11/13/style/tiny-modern-love-stories-our-unspoken-sibling-sign.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/biden-xi-china-meeting.html
 **Arbitrator sides with baseball union in Bad Bunny agency flap**\
 `Rimas Sports, the agency co-founded by the musician Bad Bunny, had been accused of giving players money, care packages and concert tickets.`\
 https://nytimes.com/athletic/5920104/2024/11/13/mlbpa-bad-bunny-gift-violations-ruling/
-
-**Liverpool deserve to be Premier League title favourites - Salah**\
-`Mohamed Salah insists Liverpool are not &#8220;underdogs&#8221; in the Premier League title race as they have one of the best squads in the world.`\
-https://nytimes.com/athletic/5920075/2024/11/13/mohamed-salah-liverpool-premier-league-title/
-
-**Thompson: Klay Thompson returned to the Bay, but the night belonged to Stephen Curry**\
-`Tuesday started as a ballad to their returning dynasty mate. It ended with a reminder that this is still very much Stephen Curry's ship.`\
-https://nytimes.com/athletic/5919987/2024/11/13/stephen-curry-klay-thompson-return-warriors-mavericks/
-
-**'We have the right coach': Oklahoma president, AD back Brent Venables**\
-`Heading toward the worst season Oklahoma football has had in decades, the school’s president and athletic director both threw their support behind coach Brent Venables and put to rest speculation that a coaching change could be coming.`\
-https://nytimes.com/athletic/5920130/2024/11/13/oklahoma-football-brent-venables-confidence/
-
-**Jaguars QB Trevor Lawrence out vs. Lions, could return after bye week**\
-`Mac Jones is expected to start against Detroit this week.`\
-https://nytimes.com/athletic/5920012/2024/11/13/trevor-lawrence-out-jaguars-lions/
 
