@@ -1,3 +1,8 @@
+**'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
+`It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
+`\
+https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
+
 **Ozempic Could Prevent Diabetes. Should It Be Used for That?**\
 `New research shows that weight loss medications can stop the progression of prediabetes. Experts don’t all agree on such a use for the drugs.`\
 https://nytimes.com/2024/11/13/well/ozempic-prediabetes.html
