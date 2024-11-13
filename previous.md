@@ -1,3 +1,7 @@
+**Celtics lose to short-handed Hawks who outshot them and dominated the glass**\
+`The loss left Boston 0-1 in the group stage of the NBA Cup with games still to play against the Cavaliers and Wizards.`\
+https://nytimes.com/athletic/5919176/2024/11/13/celtics-lose-outshot-by-hawks/
+
 **Airport Hugs**\
 `A new rule at a New Zealand airport limits curbside embraces to three minutes. What’s your reaction?`\
 https://nytimes.com/2024/11/13/learning/airport-hugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/arts/television/jordan-klepper-elon-musk.html
 **We Spoke With 13 Young Undecided Americans for Months. Here’s How They Voted.**\
 `The group of young undecided voters meets for the final time.`\
 https://nytimes.com/interactive/2024/11/13/opinion/focusgroup-young-undecided-voters.html
-
-**Can Boubakary Soumare finally establish himself at Leicester City?**\
-`French midfielder has been given a chance by Steve Cooper in recent weeks but is nearing the final 18 months of his contract`\
-https://nytimes.com/athletic/5917036/2024/11/13/boubakary-soumare-leicester-city-steve-cooper/
 

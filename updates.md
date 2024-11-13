@@ -1,3 +1,7 @@
+**Celtics lose to short-handed Hawks who outshot them and dominated the glass**\
+`The loss left Boston 0-1 in the group stage of the NBA Cup with games still to play against the Cavaliers and Wizards.`\
+https://nytimes.com/athletic/5919176/2024/11/13/celtics-lose-outshot-by-hawks/
+
 **Airport Hugs**\
 `A new rule at a New Zealand airport limits curbside embraces to three minutes. What’s your reaction?`\
 https://nytimes.com/2024/11/13/learning/airport-hugs.html
