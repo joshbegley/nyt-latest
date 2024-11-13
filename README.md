@@ -1,3 +1,7 @@
+**Canada Detects Its First Human Case of Bird Flu**\
+`A teenager in British Columbia was hospitalized in critical condition with the disease, and officials were working to find out how the person was exposed to the virus.`\
+https://nytimes.com/2024/11/13/world/canada/british-columbia-bird-flu-teenager.html
+
 **Nearly Half of California Voters Would Back Harris for Governor, Poll Shows**\
 `A late-October survey in Vice President Kamala Harris’s home state showed strong Democratic backing if she ran in the 2026 race for governor. She has not said what she plans to do next.`\
 https://nytimes.com/2024/11/13/us/politics/harris-california-governor-voters-poll.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/world/asia/india-supreme-court-bulldozer-justice.
 **Ole Miss flips in-state 5-star wide receiver Caleb Cunningham from Alabama**\
 `Cunningham, the nation's No. 16 prospect and No. 2 wide receiver in the 247Sports Composite, visited Ole Miss over the weekend.`\
 https://nytimes.com/athletic/5920276/2024/11/13/ole-miss-flips-caleb-cunningham-alabama-recruiting/
-
-**Ukraine Prioritizes Security, Not Territory, as Trump Pushes Truce Talks**\
-`President-elect Donald J. Trump may accelerate the timetable for a truce. Kyiv views guarantees against renewed aggression as crucial to any settlement.`\
-https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
 
