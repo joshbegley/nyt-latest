@@ -1,3 +1,7 @@
+**'I think we can beat any team': Senators are showing what they can be**\
+`The Sens' 3-0 win over the Toronto Maple Leafs should serve as a model for how they need to play to make the playoffs again.`\
+https://nytimes.com/athletic/5918672/2024/11/12/senators-maple-leafs-norris-stutzle/
+
 **"I think we can beat any team": The Senators are showing what they can be**\
 `The Sens' 3-0 win over the Toronto Maple Leafs should serve as a model for how they need to play to make the playoffs again.`\
 https://nytimes.com/athletic/5918672/2024/11/12/senators-maple-leafs-norris-stutzle/
