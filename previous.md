@@ -1,3 +1,15 @@
+**‘Cross’ and ‘The Lincoln Lawyer’ Offer Different Spins on the Same Formula**\
+`Within the boundaries of the crime-solving genius genre, “Cross” represents the dark yin and “The Lincoln Lawyer” the bright yang.`\
+https://nytimes.com/2024/11/13/arts/television/cross-the-lincoln-lawyer.html
+
+**Tracking Tropical Storm Man-yi**\
+`See the likely path and wind arrival times for Man-yi.`\
+https://nytimes.com/interactive/2024/11/13/weather/man-yi-map-path-tracker.html
+
+**Notre-Dame Ready to Welcome ‘Whole World,’ Officials Say**\
+`Millions of visitors are expected at the cathedral after it reopens in December for the first time since the devastating 2019 fire.`\
+https://nytimes.com/2024/11/13/world/europe/notre-dame-cathedral-reopening.html
+
 **Scoop City: Five more coaches to watch**\
 `A look at why five coaches are on the hot seat, plus a quick mock of the 2025 QB class. `\
 https://nytimes.com/athletic/5919868/2024/11/13/five-nfl-coaches-hot-seat-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/13/arts/music/daniele-rustioni-met-opera.html
 **A Sheet-Pan Dinner That’s as Pretty as It Is Fast**\
 `My recipe for roasted sausages with grapes and onions works well with any type of sausage and any color grape (though red and purple are the prettiest).`\
 https://nytimes.com/2024/11/13/dining/easy-sausage-dinner-recipe.html
-
-**How Topps' Debut Patches became the 'ultimate rookie cards'**\
-`The MLB Debut Patch cards began in 2023, but could taking a firmer hold of high-end collecting in 2024`\
-https://nytimes.com/athletic/5919761/2024/11/13/elly-skenes-topps-chrome-update/
-
-**Trump’s Immigration Plans Could Bring an Economic Toll**\
-`Expelling noncitizens on a mass scale is likely to raise prices on goods and services and lower employment rates for U.S. workers, many economists say.`\
-https://nytimes.com/2024/11/13/business/economy/trump-immigration-inflation-prices.html
-
-**Workers in China Remove Flowers at Memorial for Car Attack Victims**\
-`Flowers placed at the site of a deadly car attack in Zhuhai, China, were cleared as officials turned away bystanders and discouraged them from taking photos.`\
-https://nytimes.com/video/world/asia/100000009823051/china-car-attack-flowers-removed.html
 
