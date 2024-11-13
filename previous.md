@@ -1,3 +1,7 @@
+**Here's how the Flyers seem to be finding their identity again**\
+`After a disappointing start to the season, the Flyers have a three-game point streak, with several on-ice improvements.`\
+https://nytimes.com/athletic/5920536/2024/11/13/philadelphia-flyers-goals-senators/
+
 **Vikings' J.J. McCarthy undergoes procedure, receives injection amid rehab from meniscus tear**\
 `McCarthy underwent a minor procedure and received a biologic injection this week after an uptick in rehab led to swelling in his knee. `\
 https://nytimes.com/athletic/5920526/2024/11/13/vikings-jj-mccarthy-meniscus-injury-knee/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/election-wisconsin-senate-eric-hovde.
 **Trump Chooses Tulsi Gabbard for Director of National Intelligence**\
 `Ms. Gabbard, a former congresswoman who left the Democratic Party, would hold a top job in the administration, overseeing 18 spy agencies.`\
 https://nytimes.com/2024/11/13/us/politics/trump-tulsi-gabbard-director-national-intelligence.html
-
-**‘Emilia Pérez’ Review: A Song and Dance of Transformation**\
-`The star of Jacques Audiard’s showy new musical about a trans Mexican crime boss, Karla Sofía Gascón, adds soul to the melodrama. Zoe Saldaña also shines.`\
-https://nytimes.com/2024/11/13/movies/emilia-perez-review.html
 

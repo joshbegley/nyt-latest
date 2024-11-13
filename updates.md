@@ -1,3 +1,7 @@
+**Here's how the Flyers seem to be finding their identity again**\
+`After a disappointing start to the season, the Flyers have a three-game point streak, with several on-ice improvements.`\
+https://nytimes.com/athletic/5920536/2024/11/13/philadelphia-flyers-goals-senators/
+
 **Vikings' J.J. McCarthy undergoes procedure, receives injection amid rehab from meniscus tear**\
 `McCarthy underwent a minor procedure and received a biologic injection this week after an uptick in rehab led to swelling in his knee. `\
 https://nytimes.com/athletic/5920526/2024/11/13/vikings-jj-mccarthy-meniscus-injury-knee/
