@@ -1,3 +1,11 @@
+**How the public’s fury over inflation shaped the vote.**\
+`By German Lopez`\
+https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/how-the-publics-fury-over-inflation-shaped-the-vote
+
+**Trump Transition Live Updates: Biden and Trump to Meet, Honoring a Tradition**\
+`The president and his successor were scheduled to meet Wednesday at the White House, a courtesy Mr. Trump did not extend to Mr. Biden after losing in 2020.`\
+https://nytimes.com/live/2024/11/13/us/trump-news
+
 **2,100 Fakes Rounded Up in Art Forgeries Bust**\
 `Italian officials said they had dismantled a Europe-wide network of forgers and dealers selling works purported to be by A-list artists, mostly through auction houses.`\
 https://nytimes.com/2024/11/13/world/europe/italy-art-forgeries.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/israel-iran-leak.html
 **Mr. Musk Goes to Washington — With a $2 Trillion Agenda**\
 `Donald Trump tapped the tech mogul to co-lead an effort to slash government spending, but questions abound over how such an initiative would actually work.`\
 https://nytimes.com/2024/11/13/business/dealbook/musk-trump-government-spending.html
-
-**Climate Summit, in Early Days, Is Already on a ‘Knife Edge’**\
-`Negotiators agree that trillions are needed to help lower-income countries adapt and cope, but not on who should pay.`\
-https://nytimes.com/2024/11/13/climate/cop24-climate-finance.html
-
-**Gaza Militants Release Video of Israeli Russian Hostage**\
-`It was the first sign of Sasha Troufanov since May, when the Palestinian Islamic Jihad militant group posted two videos of him. His family pressed for the release of all the hostages in Gaza.`\
-https://nytimes.com/2024/11/13/world/middleeast/gaza-israeli-hostage-video-troufanov.html
 

@@ -1,3 +1,11 @@
+**How the public’s fury over inflation shaped the vote.**\
+`By German Lopez`\
+https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/how-the-publics-fury-over-inflation-shaped-the-vote
+
+**Trump Transition Live Updates: Biden and Trump to Meet, Honoring a Tradition**\
+`The president and his successor were scheduled to meet Wednesday at the White House, a courtesy Mr. Trump did not extend to Mr. Biden after losing in 2020.`\
+https://nytimes.com/live/2024/11/13/us/trump-news
+
 **2,100 Fakes Rounded Up in Art Forgeries Bust**\
 `Italian officials said they had dismantled a Europe-wide network of forgers and dealers selling works purported to be by A-list artists, mostly through auction houses.`\
 https://nytimes.com/2024/11/13/world/europe/italy-art-forgeries.html
