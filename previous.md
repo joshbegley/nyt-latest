@@ -1,3 +1,7 @@
+**Word of the Day: juvenile**\
+`This word has appeared in 193 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/13/learning/word-of-the-day-juvenile.html
+
 **Jordan Klepper Isn’t Wild About the ‘First Buddy,’ Elon Musk**\
 `“Trump’s been getting something that Elon’s 11 children will never receive: his full attention,” Klepper said on “The Daily Show.”`\
 https://nytimes.com/2024/11/13/arts/television/jordan-klepper-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5916797/2024/11/13/mika-biereth-interview-arsenal-s
 **Hurzeler's Brighton have made a daunting start look easy - so what next?**\
 `Hurzeler's first 11 Premier League games saw him face most of the division's established elite - yet Brighton are an encouraging sixth`\
 https://nytimes.com/athletic/5869206/2024/11/13/fabian-hurzeler-brighton-premier-league/
-
-**'Take me back to the 2000s': Premier League nostalgia and the perils of comparing different eras**\
-`Trying to evaluate the football of the Noughties through a modern lens - and vice versa - is fraught with difficulty. We gave it a try…`\
-https://nytimes.com/athletic/5917161/2024/11/13/premier-league-best-era-comparison-nostalgia/
 

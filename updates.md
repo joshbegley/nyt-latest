@@ -1,3 +1,7 @@
+**Word of the Day: juvenile**\
+`This word has appeared in 193 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/13/learning/word-of-the-day-juvenile.html
+
 **Jordan Klepper Isn’t Wild About the ‘First Buddy,’ Elon Musk**\
 `“Trump’s been getting something that Elon’s 11 children will never receive: his full attention,” Klepper said on “The Daily Show.”`\
 https://nytimes.com/2024/11/13/arts/television/jordan-klepper-elon-musk.html
