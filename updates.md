@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Split on Bills-Chiefs, united on Kansas and 'Grey Cup' action**\
+`Jon Greenberg and Zac Jackson are back with their football betting picks for college, NFL and yes, CFL.`\
+https://nytimes.com/athletic/5920299/2024/11/13/betting-for-by-dummies-odds-picks-nfl-cfb-cfl/
+
 **John Robinson, Inspiring Coach of U.S.C. and L.A. Rams, Dies at 89**\
 `His Trojans won four Rose Bowls during his two stints at Southern California and shared one national championship. He took the Rams to two conference championships.`\
 https://nytimes.com/2024/11/13/sports/ncaafootball/john-robinson-dead.html
