@@ -1,3 +1,15 @@
+**How California’s New Fuel Standards Could Affect Drivers**\
+`Regulators say the changes are essential to reducing carbon emissions. But political leaders in both parties are worried that gas prices could further increase.`\
+https://nytimes.com/2024/11/13/us/california-gas-prices-fuel-standard.html
+
+**Italy’s President Rebukes Musk for Chiming In on Immigration Debate**\
+`Sergio Mattarella said Italy “can take care” of itself after Elon Musk criticized Italian judges who did not approve a government request to hold a group of migrants in Albania.`\
+https://nytimes.com/2024/11/13/world/europe/italy-musk-immigration.html
+
+**Puzzle Mania 2024: Contest Rules, Clues and Answers**\
+`Everything you need to know about the ninth special print puzzle section.`\
+https://nytimes.com/2024/11/13/crosswords/puzzle-mania-2024-faq.html
+
 **Betting for (by) dummies: Split on Bills-Chiefs, united on Kansas and 'Grey Cup' action**\
 `Jon Greenberg and Zac Jackson are back with their football betting picks for college, NFL and yes, CFL.`\
 https://nytimes.com/athletic/5920299/2024/11/13/betting-for-by-dummies-odds-picks-nfl-cfb-cfl/
