@@ -1,3 +1,11 @@
+**What Strings of Random Letters Make**\
+`Todd Gross reviews the state of things.`\
+https://nytimes.com/2024/11/12/crosswords/daily-puzzle-2024-11-13.html
+
+**Evans Defeats Caraveo in Colorado, Flipping a Key House Seat for the G.O.P.**\
+`Gabe Evans, a right-wing state representative, defeated Representative Yadira Caraveo, a first-term Democrat who was the first Latina elected to federal office in Colorado.`\
+https://nytimes.com/2024/11/12/us/elections/colorado-house-evans-caraveo.html
+
 **Trump Taps Elon Musk and Vivek Ramaswamy to Slash Government**\
 `The two wealthy entrepreneurs will lead what the president-elect called the Department of Government Efficiency, which he said would seek “drastic change.” But the announcement left a lot unanswered.`\
 https://nytimes.com/2024/11/12/us/politics/elon-musk-vivek-ramaswamy-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hol
 **Gerry Faust, Coach Who Lived a Dream at Notre Dame, Dies at 89**\
 `Jumping from the high school ranks to lead one of the most storied programs in college football, he lost games but rarely lost hope.`\
 https://nytimes.com/2024/11/12/sports/ncaafootball/gerry-faust-dead.html
-
-**Whitesides Defeats Garcia in California, Handing House Democrats a Win**\
-`George Whitesides, the former NASA chief of staff, defeated Representative Mike Garcia, a Republican, flipping a hotly contested seat in the northern suburbs of Los Angeles.`\
-https://nytimes.com/2024/11/12/us/elections/california-house-garcia-whitesides.html
-
-**Cook What You Love (Pies)**\
-`This year’s batch of Thanksgiving pies is particularly lovable: butterscotch banana cream pie, coffee and maple chess pie and pomegranate cardamom apple pie, to name a few.`\
-https://nytimes.com/2024/11/12/dining/thanksgiving-pie-recipes.html
 

@@ -1,3 +1,11 @@
+**What Strings of Random Letters Make**\
+`Todd Gross reviews the state of things.`\
+https://nytimes.com/2024/11/12/crosswords/daily-puzzle-2024-11-13.html
+
+**Evans Defeats Caraveo in Colorado, Flipping a Key House Seat for the G.O.P.**\
+`Gabe Evans, a right-wing state representative, defeated Representative Yadira Caraveo, a first-term Democrat who was the first Latina elected to federal office in Colorado.`\
+https://nytimes.com/2024/11/12/us/elections/colorado-house-evans-caraveo.html
+
 **Trump Taps Elon Musk and Vivek Ramaswamy to Slash Government**\
 `The two wealthy entrepreneurs will lead what the president-elect called the Department of Government Efficiency, which he said would seek “drastic change.” But the announcement left a lot unanswered.`\
 https://nytimes.com/2024/11/12/us/politics/elon-musk-vivek-ramaswamy-trump.html
