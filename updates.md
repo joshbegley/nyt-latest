@@ -1,3 +1,7 @@
+**Canada Detects Its First Human Case of Bird Flu**\
+`A teenager in British Columbia was hospitalized in critical condition with the disease, and officials were working to find out how the person was exposed to the virus.`\
+https://nytimes.com/2024/11/13/world/canada/british-columbia-bird-flu-teenager.html
+
 **Nearly Half of California Voters Would Back Harris for Governor, Poll Shows**\
 `A late-October survey in Vice President Kamala Harris’s home state showed strong Democratic backing if she ran in the 2026 race for governor. She has not said what she plans to do next.`\
 https://nytimes.com/2024/11/13/us/politics/harris-california-governor-voters-poll.html
