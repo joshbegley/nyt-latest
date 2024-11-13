@@ -1,3 +1,7 @@
+**Mark Zuckerberg and T-Pain ‘Get Low’ in Anniversary Post**\
+`As he continues to shake up his old image, Meta’s chief executive has collaborated with the singer on a version of the hit song that was playing when he met his wife.`\
+https://nytimes.com/2024/11/13/style/mark-zuckerberg-tpain-get-low.html
+
 **Rancher, Politician, Trump Ally: Who Is Kristi Noem, the Homeland Security Pick?**\
 `The governor of South Dakota has defied coronavirus restrictions and been a vocal critic of President Biden’s immigration policies.`\
 https://nytimes.com/2024/11/13/us/politics/kristi-noem-homeland-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/california-gas-prices-fuel-standard.html
 **Italy’s President Rebukes Musk for Chiming In on Immigration Debate**\
 `Sergio Mattarella said Italy “can take care” of itself after Elon Musk criticized Italian judges who did not approve a government request to hold a group of migrants in Albania.`\
 https://nytimes.com/2024/11/13/world/europe/italy-musk-immigration.html
-
-**Puzzle Mania 2024: Contest Rules, Clues and Answers**\
-`Everything you need to know about the ninth special print puzzle section.`\
-https://nytimes.com/2024/11/13/crosswords/puzzle-mania-2024-faq.html
 
