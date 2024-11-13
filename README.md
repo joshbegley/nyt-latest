@@ -1,3 +1,7 @@
+**Blinken Pays a Visit to NATO Amid High Anxiety Over Trump**\
+`The U.S. secretary of state met with European allies rattled by the American election results at a critical moment for Ukraine and the alliance.`\
+https://nytimes.com/2024/11/13/world/europe/blinken-nato-ukraine-trump.html
+
 **What to know about the inflation report.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/what-to-know-about-the-inflation-report
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919396/2024/11/13/stephen-curry-warriors-klay-thom
 **Can the Miami Heat fix their current issues or is it time for a change?**\
 `The Miami Heat are struggling and in many cases it's their own doing. Maybe it's time to shake things up, writes Will Guillory. `\
 https://nytimes.com/athletic/5919377/2024/11/13/miami-heat-erik-spoelstra-time-out/
-
-**The CFP selection committee glossary: 12 terms to know for the 12-team field**\
-`ESPN’s weekly romp through the selection committee’s latest Top 25 is littered with vague analysis and poorly defined terminology.`\
-https://nytimes.com/athletic/5919621/2024/11/13/cfp-selection-committee-rankings-metrics/
 
