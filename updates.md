@@ -1,3 +1,7 @@
+**Forest's Alternative XI shows how far they've come Nuno is blessed with strength in depth**\
+`When it comes to strength in depth, this is the best squad Forest have had in decades.`\
+https://nytimes.com/athletic/5917521/2024/11/13/nuno-nottingham-forest-squad/
+
 **Is this a typical Guardiola-era autumn slump for City - or something worse?**\
 `Early-season struggles are not unknown at City in recent years but their defensive numbers so far in this one are of particular concern`\
 https://nytimes.com/athletic/5915498/2024/11/13/manchester-city-autumn-form-injuries-defence/
