@@ -1,3 +1,7 @@
+**Ole Miss flips in-state 5-star wide receiver Caleb Cunningham from Alabama**\
+`Cunningham, the nation's No. 16 prospect and No. 2 wide receiver in the 247Sports Composite, visited Ole Miss over the weekend.`\
+https://nytimes.com/athletic/5920276/2024/11/13/ole-miss-flips-caleb-cunningham-alabama-recruiting/
+
 **As Trump Pushes Peace Talks, Ukraine Prioritizes Security Guarantees**\
 `President-elect Donald J. Trump may accelerate the timetable for a truce. Kyiv views guarantees against renewed aggression as crucial to any settlement.`\
 https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920257/2024/11/13/bronny-james-g-league-lakers-hom
 **Kane frustrated by England squad withdrawals: 'I don't really like it'**\
 `England captain Harry Kane has expressed his frustration after nine players were withdrawn from international duty through injury.`\
 https://nytimes.com/athletic/5920137/2024/11/13/england-squad-injuries-harry-kane/
-
-**Man United coach Fletcher 'needed to be held back' from referee, report reveals**\
-`Darren Fletcher launched a foul-mouthed tirade at referee Samuel Barrott and had to be restrained by Manchester United staff during the club’s victory over Brentford last month.`\
-https://nytimes.com/athletic/5920239/2024/11/13/darren-fletcher-ban-manchester-united/
 
