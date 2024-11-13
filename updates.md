@@ -1,3 +1,19 @@
+**Ground Game in Pennsylvania Was No Match for Groundswell of Grievances**\
+`Democrats knocked on a lot more doors in Pennsylvania than Republicans did. It wasn’t enough to overcome a wave of support for Donald Trump.`\
+https://nytimes.com/2024/11/13/us/trump-harris-pennsylvania.html
+
+**Review: Lise Davidsen Meets Puccini in ‘Tosca’ at the Met**\
+`The powerhouse soprano, already a company stalwart at 37, still seems to be figuring out a character whose moods change on a dime.`\
+https://nytimes.com/2024/11/13/arts/music/review-lise-davidsen-tosca-met.html
+
+**‘Where We Are’: A Photo Essay Contest for Exploring Community**\
+`For the second year in a row, we invite students to document the local, offline communities that interest them. Contest dates: Dec. 4, 2024, to Jan. 15, 2025.`\
+https://nytimes.com/2024/11/13/learning/where-we-are-a-photo-essay-contest-for-exploring-community.html
+
+**What to Know About Pete Hegseth, Trump’s Pick for Defense Secretary**\
+`The choice of the Fox News host and veteran was outside the norm. But he was a dedicated supporter of President-elect Donald J. Trump during his first term.`\
+https://nytimes.com/2024/11/13/us/politics/trump-defense-pete-hegseth.html
+
 **I Made an Appointment With My Dentist. I Got His Son. Is That OK?**\
 `The magazine’s Ethicist columnist on whether a patient is entitled to be informed of provider changes.`\
 https://nytimes.com/2024/11/13/magazine/dentist-appointment-son-ethics.html
