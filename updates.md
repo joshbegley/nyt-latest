@@ -1,3 +1,23 @@
+**Carsley promises to pick attacking team for Greece clash**\
+`Lee Carsley has promised that England will attack Greece again on Thursday night as they aim for the two-goal win that will get them back to the top of their Nations League group.`\
+https://nytimes.com/athletic/5920426/2024/11/13/lee-carsley-england-greece-team/
+
+**Trump Took a Victory Lap in Washington**\
+`Also, Ukraine is now prioritizing security, not land, in truce talks. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/11/13/briefing/trump-biden-white-house-ukraine-peace-talks.html
+
+**Here’s the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/11/13/weather/tropical-storm-sara-hurricane/heres-the-latest-on-the-storm
+
+**Raiders tight end Michael Mayer returns to practice after 7-week absence**\
+`The tight end was out for seven weeks for personal reasons.`\
+https://nytimes.com/athletic/5920851/2024/11/13/las-vegas-raiders-michael-mayer-return/
+
+**Weather System in the Caribbean Could Become Tropical Storm Sara**\
+`The governments of Honduras and Nicaragua have warned residents of a potential hurricane.`\
+https://nytimes.com/live/2024/11/13/weather/tropical-storm-sara-hurricane
+
 **'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
 `It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
 `\

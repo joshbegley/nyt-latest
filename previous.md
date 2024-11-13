@@ -1,3 +1,23 @@
+**Carsley promises to pick attacking team for Greece clash**\
+`Lee Carsley has promised that England will attack Greece again on Thursday night as they aim for the two-goal win that will get them back to the top of their Nations League group.`\
+https://nytimes.com/athletic/5920426/2024/11/13/lee-carsley-england-greece-team/
+
+**Trump Took a Victory Lap in Washington**\
+`Also, Ukraine is now prioritizing security, not land, in truce talks. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/11/13/briefing/trump-biden-white-house-ukraine-peace-talks.html
+
+**Here’s the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/11/13/weather/tropical-storm-sara-hurricane/heres-the-latest-on-the-storm
+
+**Raiders tight end Michael Mayer returns to practice after 7-week absence**\
+`The tight end was out for seven weeks for personal reasons.`\
+https://nytimes.com/athletic/5920851/2024/11/13/las-vegas-raiders-michael-mayer-return/
+
+**Weather System in the Caribbean Could Become Tropical Storm Sara**\
+`The governments of Honduras and Nicaragua have warned residents of a potential hurricane.`\
+https://nytimes.com/live/2024/11/13/weather/tropical-storm-sara-hurricane
+
 **What the Bears' switch at play caller means for Caleb Williams with season at crossroads**\
 `The Bears need a spark and better play from Williams. The hope is new offensive coordinator Thomas Brown can help them get there.`\
 https://nytimes.com/athletic/5920742/2024/11/13/bears-caleb-williams-thomas-brown/
@@ -17,25 +37,4 @@ https://nytimes.com/2024/11/13/well/ozempic-prediabetes.html
 **New York to Revive Congestion Pricing With $9 Toll**\
 `Gov. Kathy Hochul is expected to announce the revised program on Thursday with the aim of putting it in place before Donald Trump takes office.`\
 https://nytimes.com/2024/11/13/nyregion/congestion-pricing-nine-dollars.html
-
-**'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
-`It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
-`\
-https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
-
-**Brian Robinson Jr. expected to play vs. Eagles, Marshon Lattimore out**\
-`Robinson missed the last two weeks with a hamstring injury`\
-https://nytimes.com/athletic/5920750/2024/11/13/commanders-brian-robinson-marshon-lattimore/
-
-**Blues' Robert Thomas takes big step in return from fractured ankle: 'It's a good sign'**\
-`The forward skated with the club Wednesday for the first time since suffering a fractured ankle on Oct. 22.`\
-https://nytimes.com/athletic/5920100/2024/11/13/robert-thomas-fractured-ankle-recovery/
-
-**After a Mayor’s Beheading, Mexican Authorities Arrest His Top Security Official**\
-`Mayor Alejandro Arcos Catalán was killed less than a week after taking office in Chilpancingo. On Tuesday, the authorities arrested the city’s public security minister in connection with his death.`\
-https://nytimes.com/2024/11/13/world/americas/chilpancingo-mayor-beheaded-mexico-arrest.html
-
-**Trump and Biden Make Nice at the White House, at Least for 29 Seconds**\
-`President Biden and President-elect Donald J. Trump’s brief public display of civility was followed by a two-hour meeting behind closed doors.`\
-https://nytimes.com/2024/11/13/us/politics/trump-biden-white-house.html
 
