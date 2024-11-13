@@ -1,3 +1,11 @@
+**As Trump Pushes Peace Talks, Ukraine Prioritizes Security Guarantees**\
+`President-elect Donald J. Trump may accelerate the timetable for a truce. Kyiv views guarantees against renewed aggression as crucial to any settlement.`\
+https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
+
+**Viewers Flee MSNBC, and Flock to Fox News, in Wake of Election**\
+`Prime-time viewership at MSNBC has fallen 53 percent compared with October, and jumped 21 percent on Fox News.`\
+https://nytimes.com/2024/11/13/business/media/msnbc-fox-news-ratings-election.html
+
 **MLS investigating physical altercation involving Twellman during Inter Miami game**\
 `The alleged incident occurred around game one of the Eastern Conference quarterfinals between Miami and Atlanta United on October 25`\
 https://nytimes.com/athletic/5919690/2024/11/13/taylor-twellman-altercation-mls-miami-atlanta/
