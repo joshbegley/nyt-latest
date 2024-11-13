@@ -1,3 +1,11 @@
+**Duke asked Cooper Flagg to go win the game. Despite result, he'll be asked again and again**\
+`Cooper Flagg's two late turnovers are moments that will endure in loss to Kentucky but freshman star and Blue Devils will be better for it.`\
+https://nytimes.com/athletic/5919416/2024/11/13/duke-basketball-cooper-flagg-kentucky/
+
+**Dodgers pitching thoughts: On Roki Sasaki, Bobby Miller's year and the wave of injuries**\
+`Will the billion-dollar offseason the Los Angeles Dodgers orchestrated last winter get an encore?`\
+https://nytimes.com/athletic/5918724/2024/11/13/dodgers-pitching-plans-roki-sasaki-bobby-miller/
+
 **How the public’s fury over inflation shaped the vote.**\
 `By German Lopez`\
 https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/how-the-publics-fury-over-inflation-shaped-the-vote
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/13/arts/design/leonardo-michelangelo-raphael-royal-a
 **Courtois tells Belgium he remains unavailable for selection in meeting over future**\
 `Thibaut Courtois has told Belgium he still doesn&#8217;t want to be considered for selection while Domenico Tedesco is the head coach.`\
 https://nytimes.com/athletic/5919465/2024/11/13/thibaut-courtois-belgium-international/
-
-**Man Charged in Leak of Classified Documents About Israeli Military Plans**\
-`The man, who worked overseas for the U.S. government, was arrested on Tuesday by the F.B.I. and faces two counts of violating the Espionage Act.`\
-https://nytimes.com/2024/11/13/us/politics/israel-iran-leak.html
-
-**Mr. Musk Goes to Washington — With a $2 Trillion Agenda**\
-`Donald Trump tapped the tech mogul to co-lead an effort to slash government spending, but questions abound over how such an initiative would actually work.`\
-https://nytimes.com/2024/11/13/business/dealbook/musk-trump-government-spending.html
 
