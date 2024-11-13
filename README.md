@@ -1,3 +1,7 @@
+**Trump Chooses Tulsi Gabbard for Director of National Intelligence**\
+`Ms. Gabbard, a former congresswoman who left the Democratic Party, would hold a top job in the administration, overseeing 18 spy agencies.`\
+https://nytimes.com/2024/11/13/us/politics/trump-tulsi-gabbard-director-national-intelligence.html
+
 **‘Emilia Pérez’ Review: A Song and Dance of Transformation**\
 `The star of Jacques Audiard’s showy new musical about a trans Mexican crime boss, Karla Sofía Gascón, adds soul to the melodrama. Zoe Saldaña also shines.`\
 https://nytimes.com/2024/11/13/movies/emilia-perez-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weat
 **Supreme Court Seems Ready to Allow Securities Fraud Case Against Nvidia**\
 `The case, which is in an early stage, accused the giant technology company of misleading investors about its exposure to the cryptocurrency industry.`\
 https://nytimes.com/2024/11/13/us/politics/supreme-court-nvidia-securities-fraud.html
-
-**We Asked For Your Toughest Gifting Questions. Here Are Our Responses.**\
-`What do you get for a sick loved one? A group of remote colleagues? A teenager interested in fashion?`\
-https://nytimes.com/2024/11/13/t-magazine/gift-guide-questions-christmas-shopping.html
 
