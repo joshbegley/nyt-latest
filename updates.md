@@ -1,3 +1,7 @@
+**Hunter Dickinson lifts Kansas past Michigan State in ugly Champions Classic opener**\
+`The win pushed Bill Self past legendary coach Phog Allen for the most wins by any coach in KU history (591).`\
+https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hold-off-michigan-state-in-champions-classic-rock-fight/
+
 **Gerry Faust, Coach Who Lived a Dream at Notre Dame, Dies at 89**\
 `Jumping from the high school ranks to lead one of the most storied programs in college football, he lost games but rarely lost hope.`\
 https://nytimes.com/2024/11/12/sports/ncaafootball/gerry-faust-dead.html

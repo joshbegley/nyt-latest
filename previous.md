@@ -1,3 +1,7 @@
+**Hunter Dickinson lifts Kansas past Michigan State in ugly Champions Classic opener**\
+`The win pushed Bill Self past legendary coach Phog Allen for the most wins by any coach in KU history (591).`\
+https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hold-off-michigan-state-in-champions-classic-rock-fight/
+
 **Gerry Faust, Coach Who Lived a Dream at Notre Dame, Dies at 89**\
 `Jumping from the high school ranks to lead one of the most storied programs in college football, he lost games but rarely lost hope.`\
 https://nytimes.com/2024/11/12/sports/ncaafootball/gerry-faust-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/uss-edsall-sunken-ship-world-war-two.html
 **Staten Island St. Patrick’s Day Parade Ends 60-Year Ban on Gay Groups**\
 `After years of controversy and boycotts, the parade’s organizers said it was time to change the exclusionary policy.`\
 https://nytimes.com/2024/11/12/nyregion/staten-island-st-patricks-parade-lgbtq.html
-
-**49ers, Deommodore Lenoir agree to 5-year, $92 million extension**\
-`Lenoir has blossomed into one of the NFL's premier, young corners while playing both the outside cornerback and nickel cornerback positions.`\
-https://nytimes.com/athletic/5918635/2024/11/12/deommodore-lenoir-49ers-extension-source/
 
