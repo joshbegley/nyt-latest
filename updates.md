@@ -1,3 +1,7 @@
+**Climate Summit, in Early Days, Is Already on a ‘Knife Edge’**\
+`Negotiators agree that trillions are needed to help lower-income countries adapt and cope, but not on who should pay.`\
+https://nytimes.com/2024/11/13/climate/cop24-climate-finance.html
+
 **Gaza Militants Release Video of Israeli Russian Hostage**\
 `It was the first sign of Sasha Troufanov since May, when the Palestinian Islamic Jihad militant group posted two videos of him. His family pressed for the release of all the hostages in Gaza.`\
 https://nytimes.com/2024/11/13/world/middleeast/gaza-israeli-hostage-video-troufanov.html

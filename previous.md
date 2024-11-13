@@ -1,3 +1,7 @@
+**Climate Summit, in Early Days, Is Already on a ‘Knife Edge’**\
+`Negotiators agree that trillions are needed to help lower-income countries adapt and cope, but not on who should pay.`\
+https://nytimes.com/2024/11/13/climate/cop24-climate-finance.html
+
 **Gaza Militants Release Video of Israeli Russian Hostage**\
 `It was the first sign of Sasha Troufanov since May, when the Palestinian Islamic Jihad militant group posted two videos of him. His family pressed for the release of all the hostages in Gaza.`\
 https://nytimes.com/2024/11/13/world/middleeast/gaza-israeli-hostage-video-troufanov.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917185/2024/11/13/phoenix-suns-nba-bradley-beal-ke
 **Wolves sporting director banned for swearing at match officials, report reveals**\
 `Wolves sporting director Matt Hobbs was banned for two games for swearing at match officials as they left the field, an independent regulatory commission report has revealed.`\
 https://nytimes.com/athletic/5919342/2024/11/13/wolves-matt-hobbs-ban-report/
-
-**West Ham penalty in Ten Hag's final game was VAR mistake - Webb**\
-`English football&#8217;s refereeing chief Howard Webb says the decision to award West Ham United a penalty in their controversial 2-1 victory over Manchester United in October was a mistake.`\
-https://nytimes.com/athletic/5919327/2024/11/13/manchester-united-west-ham-penalty-var-webb/
 
