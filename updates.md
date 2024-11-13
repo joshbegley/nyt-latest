@@ -1,3 +1,11 @@
+**A $4 Billion Plan to Settle Fire Claims Is Heading to Hawaii’s Supreme Court**\
+`Insurers that paid claims in Maui say a deal unfairly keeps them from recouping their own losses.`\
+https://nytimes.com/2024/11/13/business/lahaina-fire-settlement-court-battle-insurers.html
+
+**Barcelona's Ansu Fati out for four weeks with hamstring injury**\
+`Barcelona winger Ansu Fatu will be unavailable for the next four weeks due to a hamstring injury.`\
+https://nytimes.com/athletic/5919704/2024/11/13/ansu-fati-injury-barcelona/
+
 **After Deadly Car Rampage, Chinese Officials Try to Erase Any Hint of It**\
 `Workers cleared away flowers laid at the site of the attack, while censors scrubbed online criticism. The goal is to stifle potential questions and criticism.`\
 https://nytimes.com/2024/11/13/world/asia/china-car-zhuhai-ramming.html
