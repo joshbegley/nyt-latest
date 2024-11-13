@@ -1,3 +1,27 @@
+**All-MLB team 2024: Ohtani, Soto only repeat winners as Bowden picks the best at each position**\
+`Jim Bowden picks the best player in baseball at each position in 2024, plus his choices for top owner, front office executive and manager. `\
+https://nytimes.com/athletic/5919262/2024/11/13/all-mlb-team-2024-ohtani-soto/
+
+**Villa's Torres withdraws from Spain squad due to injury**\
+`Aston Villa defender Pau Torres has withdrawn from the Spain squad for their upcoming Nations League games against Denmark and Switzerland.`\
+https://nytimes.com/athletic/5919468/2024/11/13/pau-torres-injury-spain-villa/
+
+**One City, Three Great Artists: Reuniting Leonardo, Michelangelo and Raphael**\
+`A London exhibition shows how the three painters circled one another as rivals and role models in 16th-century Florence.`\
+https://nytimes.com/2024/11/13/arts/design/leonardo-michelangelo-raphael-royal-academy.html
+
+**Courtois tells Belgium he remains unavailable for selection in meeting over future**\
+`Thibaut Courtois has told Belgium he still doesn&#8217;t want to be considered for selection while Domenico Tedesco is the head coach.`\
+https://nytimes.com/athletic/5919465/2024/11/13/thibaut-courtois-belgium-international/
+
+**Man Charged in Leak of Classified Documents About Israeli Military Plans**\
+`The man, who worked overseas for the U.S. government, was arrested on Tuesday by the F.B.I. and faces two counts of violating the Espionage Act.`\
+https://nytimes.com/2024/11/13/us/politics/israel-iran-leak.html
+
+**Mr. Musk Goes to Washington — With a $2 Trillion Agenda**\
+`Donald Trump tapped the tech mogul to co-lead an effort to slash government spending, but questions abound over how such an initiative would actually work.`\
+https://nytimes.com/2024/11/13/business/dealbook/musk-trump-government-spending.html
+
 **Climate Summit, in Early Days, Is Already on a ‘Knife Edge’**\
 `Negotiators agree that trillions are needed to help lower-income countries adapt and cope, but not on who should pay.`\
 https://nytimes.com/2024/11/13/climate/cop24-climate-finance.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5919247/2024/11/13/klay-thompson-warriors-steph-cur
 **Joe Schoen says 2-8 Giants aren't 'far off.' The evidence suggests otherwise**\
 `Schoen's bye week news conference was a no-win situation for the GM. Unfortunately, that made it a lot like the team he has assembled.`\
 https://nytimes.com/athletic/5918841/2024/11/13/new-york-giants-joe-schoen-takeaways-far-off/
-
-**Four Tropical Storms Rage Simultaneously Near the Philippines**\
-`It is the first time on record that more than three tropical storms have occurred at the same time in November in the region.`\
-https://nytimes.com/2024/11/13/world/asia/typhoon-storms-philippines-pacific.html
-
-**Lowetide: How many more scoring titles does Connor McDavid have in his future?**\
-`McDavid is entering a period of his career when even the greatest players begin to fade from peak-level production.`\
-https://nytimes.com/athletic/5917278/2024/11/13/oilers-connor-mcdavid-scoring-art-ross/
-
-**Wishful Thinking on Abortion Politics**\
-`We explain why the issue of abortion didn’t necessarily help Democrats win this election.`\
-https://nytimes.com/2024/11/13/briefing/wishful-thinking-on-abortion-politics.html
-
-**Billie Jean King Cup postpones opening tie after red weather warning in Malaga**\
-`Severe rain and flooding are expected in southern Spain, where the international team event is being held.`\
-https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
-
-**Bradley Beal pledged to 'have fun' this season, and Suns finally look as good as expected**\
-`The vibes are good in Phoenix again. Bradley Beal is operating differently, and so are the Suns.`\
-https://nytimes.com/athletic/5917185/2024/11/13/phoenix-suns-nba-bradley-beal-kevin-durant/
-
-**Wolves sporting director banned for swearing at match officials, report reveals**\
-`Wolves sporting director Matt Hobbs was banned for two games for swearing at match officials as they left the field, an independent regulatory commission report has revealed.`\
-https://nytimes.com/athletic/5919342/2024/11/13/wolves-matt-hobbs-ban-report/
 
