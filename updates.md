@@ -1,3 +1,11 @@
+**Commanders notebook: Wide receiver production encouraging post-Jahan Dotson**\
+`Plus, when will Washington get Pro Bowl CB Marshon Lattimore on the field? And could power back Brian Robinson Jr. return vs. the Eagles?`\
+https://nytimes.com/athletic/5918563/2024/11/13/commanders-receivers-jahan-dotson-eagles/
+
+**Aldridge: Embiid's return gives Sixers hope again — but they've heard this song before**\
+`"He is the piece. He is The Process," Paul George said of his Philly co-star, who made his season debut Tuesday.`\
+https://nytimes.com/athletic/5918424/2024/11/13/joel-embiid-return-sixers-nba/
+
 **Bengals' Lou Anarumo shuffles rotations seeking defensive solutions**\
 `Different players are getting their chance in the secondary, in particular, with multiple starters struggling.`\
 https://nytimes.com/athletic/5918751/2024/11/13/bengals-lou-anarumo-defense-rotations/

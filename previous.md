@@ -1,3 +1,11 @@
+**Commanders notebook: Wide receiver production encouraging post-Jahan Dotson**\
+`Plus, when will Washington get Pro Bowl CB Marshon Lattimore on the field? And could power back Brian Robinson Jr. return vs. the Eagles?`\
+https://nytimes.com/athletic/5918563/2024/11/13/commanders-receivers-jahan-dotson-eagles/
+
+**Aldridge: Embiid's return gives Sixers hope again — but they've heard this song before**\
+`"He is the piece. He is The Process," Paul George said of his Philly co-star, who made his season debut Tuesday.`\
+https://nytimes.com/athletic/5918424/2024/11/13/joel-embiid-return-sixers-nba/
+
 **Bengals' Lou Anarumo shuffles rotations seeking defensive solutions**\
 `Different players are getting their chance in the secondary, in particular, with multiple starters struggling.`\
 https://nytimes.com/athletic/5918751/2024/11/13/bengals-lou-anarumo-defense-rotations/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/11/13/climate/cop-climate-summit-attendance
 **Republicans See a Great Economic Outlook. Democrats, Not So Much.**\
 `Consumer sentiment among Republicans has soared to its highest point since Donald J. Trump left the White House, while declining among Democrats.`\
 https://nytimes.com/2024/11/13/business/economy/consumer-sentiment-trump.html
-
-**Biden and Trump to Meet Today, Honoring a Presidential Tradition**\
-`It is unclear what President Biden and his successor, Donald J. Trump, will say to each other in their Oval Office meeting.`\
-https://nytimes.com/2024/11/13/us/politics/trump-biden-meeting.html
-
-**Democratic Governors Form a Group to Oppose the Trump Administration**\
-`The group’s leaders, Govs. JB Pritzker of Illinois and Jared Polis of Colorado, are ambitious Democrats likely to try to fill the party’s looming leadership void.`\
-https://nytimes.com/2024/11/13/us/politics/democratic-governors-trump.html
 
