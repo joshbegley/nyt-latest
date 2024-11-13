@@ -1,3 +1,7 @@
+**How Rangers failed to overcome Mika Zibanejad's rough night in loss to Jets: 3 takeaways**\
+`The Rangers weren't responsible enough to support one another and prevent the opportunities the Jets cashed in on. `\
+https://nytimes.com/athletic/5918928/2024/11/12/rangers-jets-mika-zibanejad/
+
 **Spoelstra commits 'horrendous' timeout gaffe to seal Heat's OT NBA Cup loss**\
 `Malik Beasley and Cade Cunningham were the high scorers for the Pistons with 21 points apiece.`\
 https://nytimes.com/athletic/5918912/2024/11/12/pistons-heat-takeaways-timeout/
