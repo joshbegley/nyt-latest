@@ -1,3 +1,19 @@
+**Man United coach Fletcher 'needed to be held back' from referee, report reveals**\
+`Darren Fletcher launched a foul-mouthed tirade at referee Samuel Barrott and had to be restrained by Manchester United staff during the club’s victory over Brentford last month.`\
+https://nytimes.com/athletic/5920239/2024/11/13/darren-fletcher-ban-manchester-united/
+
+**Their Pissarro Is Staying in Germany, but Their Story Is Getting Out**\
+`A woman whose family had to sell a painting in the Holocaust and a museum have struck a deal. The museum will keep the work but will help to publish a book telling the family’s story.`\
+https://nytimes.com/2024/11/13/arts/design/pissarro-heirs-germany-museum-holocaust.html
+
+**What’s in Our Queue? ‘My Brilliant Friend’ and More **\
+`By Tiffany May`\
+https://nytimes.com/card/2024/11/13/arts/editors-recommendations-brilliantfriend
+
+**Jury trial for Canada’s 2018 world junior players to start April 2025**\
+`A Superior Court jury trial was previously slated to begin in London, Ontario, in September 2025.`\
+https://nytimes.com/athletic/5918127/2024/11/13/hockey-canada-trial-april-2025-sexual-assault/
+
 **Tesla Issues Sixth Cybertruck Recall This Year**\
 `Tesla said a defect could cause the electric truck to lose driver power and pledged to replace the affected part for free.`\
 https://nytimes.com/2024/11/13/business/tesla-cybertruck-recall.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/13/style/tiny-modern-love-stories-our-unspoken-sibli
 **20 Years of Modern Love**\
 `A special package of articles exploring the history and impact of the beloved column.`\
 https://nytimes.com/spotlight/20-years-of-modern-love
-
-**Could Trump Shut Down the Department of Education?**\
-`Donald Trump said he would use the department to further his priorities. He also said he would close it. Both options would face difficulties.`\
-https://nytimes.com/2024/11/13/us/trump-close-department-of-education.html
-
-**Trump Meets With Jubilant House G.O.P. and Jokes About a Third Term**\
-`“Isn’t it nice to win?” the president-elect asked to raucous applause by fellow Republicans. The influential billionaire Elon Musk joined him at the meeting and also received a standing ovation.`\
-https://nytimes.com/2024/11/13/us/politics/trump-house-elon-musk.html
-
-**Biden to Meet With China’s Leader During Summit This Weekend**\
-`The meeting with President Xi Jinping comes as President-elect Donald J. Trump has promised a much more aggressive approach to China that includes vast tariffs on Chinese goods.`\
-https://nytimes.com/2024/11/13/us/politics/biden-xi-china-meeting.html
-
-**Arbitrator sides with baseball union in Bad Bunny agency flap**\
-`Rimas Sports, the agency co-founded by the musician Bad Bunny, had been accused of giving players money, care packages and concert tickets.`\
-https://nytimes.com/athletic/5920104/2024/11/13/mlbpa-bad-bunny-gift-violations-ruling/
 

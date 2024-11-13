@@ -1,3 +1,19 @@
+**Man United coach Fletcher 'needed to be held back' from referee, report reveals**\
+`Darren Fletcher launched a foul-mouthed tirade at referee Samuel Barrott and had to be restrained by Manchester United staff during the club’s victory over Brentford last month.`\
+https://nytimes.com/athletic/5920239/2024/11/13/darren-fletcher-ban-manchester-united/
+
+**Their Pissarro Is Staying in Germany, but Their Story Is Getting Out**\
+`A woman whose family had to sell a painting in the Holocaust and a museum have struck a deal. The museum will keep the work but will help to publish a book telling the family’s story.`\
+https://nytimes.com/2024/11/13/arts/design/pissarro-heirs-germany-museum-holocaust.html
+
+**What’s in Our Queue? ‘My Brilliant Friend’ and More **\
+`By Tiffany May`\
+https://nytimes.com/card/2024/11/13/arts/editors-recommendations-brilliantfriend
+
+**Jury trial for Canada’s 2018 world junior players to start April 2025**\
+`A Superior Court jury trial was previously slated to begin in London, Ontario, in September 2025.`\
+https://nytimes.com/athletic/5918127/2024/11/13/hockey-canada-trial-april-2025-sexual-assault/
+
 **Tesla Issues Sixth Cybertruck Recall This Year**\
 `Tesla said a defect could cause the electric truck to lose driver power and pledged to replace the affected part for free.`\
 https://nytimes.com/2024/11/13/business/tesla-cybertruck-recall.html
