@@ -1,3 +1,19 @@
+**More than a year on from Women's World Cup win, why can't Spain see change back home?**\
+`We consulted 12 of 16 clubs that made up Liga F in the 2023-24 season to find out about the state of top-flight women’s football in Spain`\
+https://nytimes.com/athletic/5917873/2024/11/13/spain-womens-world-cup-liga-f/
+
+**Ruben Amorim, Matt Busby and the men who managed Manchester United in their thirties**\
+`The Portuguese will be the eighth man in his 30s to take charge of Manchester United - and his predecessors faced very different challenges`\
+https://nytimes.com/athletic/5902920/2024/11/13/amorim-manchester-united-busby-albut/
+
+**Arne Slot and why a manager's first Premier League season is often their best chance to win it**\
+`Leading the way after 11 games, this might turn out to be Liverpool’s best opportunity to win the Premier League under Slot`\
+https://nytimes.com/athletic/5917473/2024/11/13/liverpool-premier-league-title-chances-slot/
+
+**Tactics mailbag: Maresca's full-backs, analysing fixture difficulty, and a La Liga coach to watch**\
+`We asked for your questions regarding tactics and data across the Premier League and beyond. Here are our writers’ answers to a selection`\
+https://nytimes.com/athletic/5916901/2024/11/13/tactics-maresca-chelsea-full-backs/
+
 **U.K. Plans to Fine Tech Executives for Illegal Weapon Sales Online**\
 `In a bid to curb knife crime, the government would hold officials of tech companies personally liable for illicit sales on their platforms, a significant shift in internet regulation.`\
 https://nytimes.com/2024/11/13/world/europe/uk-tech-fines-knives.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/12/pageoneplus/quote-of-the-day-many-women-see-a-set
 **Explosion in the Bronx Disrupts Amtrak Service**\
 `A thick column of smoke billowed from the tracks before bursting into flames.`\
 https://nytimes.com/video/nyregion/100000009822651/amtrak-bronx-explosion-fire.html
-
-**Mark Pope pushes all the right buttons in Kentucky's rally past Duke**\
-`New Wildcats head man Mark Pope made all the right decisions down the stretch of a 77-72 win over No. 6 Duke.`\
-https://nytimes.com/athletic/5919023/2024/11/12/duke-kentucky-mens-basketball-champions-classic/
-
-**'I think we can beat any team': Senators are showing what they can be**\
-`The Sens' 3-0 win over the Toronto Maple Leafs should serve as a model for how they need to play to make the playoffs again.`\
-https://nytimes.com/athletic/5918672/2024/11/12/senators-maple-leafs-norris-stutzle/
-
-**How Rangers failed to overcome Mika Zibanejad's rough night in loss to Jets: 3 takeaways**\
-`The Rangers weren't responsible enough to support one another and prevent the opportunities the Jets cashed in on. `\
-https://nytimes.com/athletic/5918928/2024/11/12/rangers-jets-mika-zibanejad/
-
-**Knicks spoil Joel Embiid's debut with 111-99 win; Takeaways**\
-`Embiid finished with 13 points and five assists along with three rebounds in his return, while the 76ers fell to 2-8.`\
-https://nytimes.com/athletic/5918593/2024/11/12/joel-embiid-76ers-knicks-nba-cup/
 
