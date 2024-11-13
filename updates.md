@@ -1,3 +1,7 @@
+**MLS investigating physical altercation involving Twellman during Inter Miami game**\
+`The alleged incident occurred around game one of the Eastern Conference quarterfinals between Miami and Atlanta United on October 25`\
+https://nytimes.com/athletic/5919690/2024/11/13/taylor-twellman-altercation-mls-miami-atlanta/
+
 **Trump’s Pick for Ambassador to Israel Sells a Children’s Book Praising Him**\
 `Mike Huckabee, the former governor of Arkansas whom Mr. Trump has selected for a crucial diplomatic role, co-founded a company selling a cartoon “Kids Guide to President Trump.”`\
 https://nytimes.com/2024/11/13/us/politics/huckabee-trump-kids-books.html
