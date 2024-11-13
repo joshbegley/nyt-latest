@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5918424/2024/11/13/joel-embiid-return-sixers-nba/
 https://nytimes.com/athletic/5918751/2024/11/13/bengals-lou-anarumo-defense-rotations/
 
 **Aid Deliveries to Gaza Remain Low Despite U.S. Warning to Israel**\
-`In an Oct. 13 letter, the Biden administration gave Israel 30 days to increase the flow of aid, warning that aid shipments into Gaza in September had reached their lowest level at any time since the Hamas-led attacks.`\
+`The Biden administration gave Israel 30 days to increase the flow of aid, warning that aid shipments into Gaza in September had reached an alarmingly low level.`\
 https://nytimes.com/2024/11/13/world/middleeast/gaza-aid-us-israel.html
 
 **Examining the Cowboys' atrocious turnover margin: 'Makes me sick'**\
