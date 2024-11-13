@@ -1,3 +1,11 @@
+**Knicks spoil Joel Embiid's debut with 111-99 win; Takeaways**\
+`Embiid finished with 13 points and five assists along with three rebounds in his return, while the 76ers fell to 2-8.`\
+https://nytimes.com/athletic/5918593/2024/11/12/joel-embiid-76ers-knicks-nba-cup/
+
+**Pistons defeat Heat in overtime in wild fashion**\
+`Malik Beasley and Cade Cunningham were the high scorers for the Pistons with 21 points apiece.`\
+https://nytimes.com/athletic/5918912/2024/11/12/pistons-heat-takeaways-timeout/
+
 **College Football Playoff rankings, ranked: Texas has done what to deserve this?**\
 `We want the weekly Playoff rankings. We want to complain about them. In fact, we like these rankings so much, how about we rank them?`\
 https://nytimes.com/athletic/5918776/2024/11/12/college-football-playoff-rankings-texas-oregon-ohio-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5918690/2024/11/12/college-football-playoff-ranking
 **College Football Playoff 2024 projections: Will Miami, Georgia make it after losses?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/12/college-football-playoff-projections-odds/
-
-**Broncos assistant Mike Westhoff resigning for medical reasons**\
-`Westhoff began experiencing blurry vision during a team meeting last week. `\
-https://nytimes.com/athletic/5918760/2024/11/12/broncos-assistant-head-coach-mike-westhoff-resigning-medical-reasons/
-
-**U.S. to Keep Sending Arms to Israel Despite Dire Conditions in Gaza**\
-`The State Department said Israel needs to take more steps to improve the situation among Palestinians. The United States had given the country 30 days to meet aid criteria.`\
-https://nytimes.com/2024/11/12/us/politics/israel-weapons-gaza-aid.html
 
