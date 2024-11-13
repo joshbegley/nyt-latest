@@ -35,6 +35,6 @@ https://nytimes.com/live/2024/11/12/us/trump-news-house-election/mcginley-white-
 https://nytimes.com/athletic/5918446/2024/11/12/nhl-rumblings-holland-trades-tampering-cba/
 
 **Trump Picks John Ratcliffe, His Former Intelligence Director, for C.I.A. Chief**\
-`Mr. Ratcliffe, who was also a former Texas congressman, fought fiercely for Mr. Trump during his first term.`\
+`Mr. Ratcliffe, who was also a Texas congressman, fought fiercely for Donald Trump during his first term.`\
 https://nytimes.com/2024/11/12/us/politics/john-ratcliffe-cia-director-trump.html
 
