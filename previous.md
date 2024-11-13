@@ -1,3 +1,7 @@
+**Ozempic Could Prevent Diabetes. Should It Be Used for That?**\
+`New research shows that weight loss medications can stop the progression of prediabetes. Experts don’t all agree on such a use for the drugs.`\
+https://nytimes.com/2024/11/13/well/ozempic-prediabetes.html
+
 **New York to Revive Congestion Pricing With $9 Toll**\
 `Gov. Kathy Hochul is expected to announce the revised program on Thursday after having put the original $15 toll on hold.`\
 https://nytimes.com/2024/11/13/nyregion/congestion-pricing-nine-dollars.html
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2024/11/13/weather/nineteen-map-path-tracker.htm
 **Penn State details ticket plans for hosting a College Football Playoff game**\
 `What will hosting a College Football Playoff game look like? Penn State sent details to its season ticket holders on Wednesday.`\
 https://nytimes.com/athletic/5920050/2024/11/13/penn-state-college-football-playoff-host/
-
-**Broadway Shows Closing Soon: ‘Suffs,’ ‘Stereophonic’ and More**\
-`Many Tony Award-winning musicals and starry plays (Robert Downey Jr., anyone?) are wrapping up their runs in January. Catch them while you can.`\
-https://nytimes.com/2024/11/13/arts/broadway-shows-closing-winter.html
 
