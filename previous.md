@@ -1,3 +1,7 @@
+**The Rangers are very good, and it's clearly not enough this season**\
+`Fourteen games in, the Rangers' record is very good. But none of it matters if the defense and key players can't get their act together.`\
+https://nytimes.com/athletic/5919640/2024/11/13/new-york-rangers-nhl-season-analysis/
+
 **Trump’s Middle East Picks Signal Staunch Pro-Israel Policy**\
 `Mike Huckabee and Steven Witkoff have both made pro-Israel statements. Here’s a closer look at the two men who will help shape Mr. Trump’s approach in the Middle East.`\
 https://nytimes.com/2024/11/13/world/middleeast/huckabee-israel-witkoff-middle-east-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919773/2024/11/13/penguins-today-lars-eller-trade-
 **Nonprofits Vow a New Resistance. Will Donors Pay Up?**\
 `Groups that used lawsuits and protests to stymie the first Trump administration will face longer odds this time. The courts are more conservative, and patrons are dejected.`\
 https://nytimes.com/2024/11/13/us/politics/trump-nonprofits-resistance.html
-
-**Blinken Pays a Visit to NATO Amid High Anxiety Over Trump**\
-`The U.S. secretary of state met with European allies rattled by the American election results at a critical moment for Ukraine and the alliance.`\
-https://nytimes.com/2024/11/13/world/europe/blinken-nato-ukraine-trump.html
 

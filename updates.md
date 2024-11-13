@@ -1,3 +1,7 @@
+**The Rangers are very good, and it's clearly not enough this season**\
+`Fourteen games in, the Rangers' record is very good. But none of it matters if the defense and key players can't get their act together.`\
+https://nytimes.com/athletic/5919640/2024/11/13/new-york-rangers-nhl-season-analysis/
+
 **Trump’s Middle East Picks Signal Staunch Pro-Israel Policy**\
 `Mike Huckabee and Steven Witkoff have both made pro-Israel statements. Here’s a closer look at the two men who will help shape Mr. Trump’s approach in the Middle East.`\
 https://nytimes.com/2024/11/13/world/middleeast/huckabee-israel-witkoff-middle-east-us.html
