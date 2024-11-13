@@ -1,3 +1,7 @@
+**Trump’s Choice of Matt Gaetz Should Surprise No One**\
+`He’s doing exactly what he said he would.`\
+https://nytimes.com/2024/11/13/opinion/matt-gaetz-attorney-general-trump.html
+
 **Brush Fire Burns in Manhattan, the Latest of Several Blazes in the Region**\
 `The fire, in Inwood Hill Park at the northern tip of Manhattan, followed brush fires that burned in Brooklyn, the Bronx and New Jersey over the past week.`\
 https://nytimes.com/2024/11/13/nyregion/inwood-hill-park-fire-nyc.html
