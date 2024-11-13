@@ -1,3 +1,7 @@
+**Wolves sporting director banned for swearing at match officials, report reveals**\
+`Wolves sporting director Matt Hobbs was banned for two games for swearing at match officials as they left the field, an independent regulatory commission report has revealed.`\
+https://nytimes.com/athletic/5919342/2024/11/13/wolves-matt-hobbs-ban-report/
+
 **West Ham penalty in Ten Hag's final game was VAR mistake - Webb**\
 `English football&#8217;s refereeing chief Howard Webb says the decision to award West Ham United a penalty in their controversial 2-1 victory over Manchester United in October was a mistake.`\
 https://nytimes.com/athletic/5919327/2024/11/13/manchester-united-west-ham-penalty-var-webb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918431/2024/11/13/jets-owner-woody-johnson-trump-a
 **John Havlicek runs to No. 29 on The Athletic's 'The Basketball 100': 'His body wasn’t normal'**\
 `Throughout Havlicek’s Hall of Fame career, teammates marveled at his dependability, mental toughness, and physical endurance.`\
 https://nytimes.com/athletic/5909357/2024/11/13/john-havlicek-runs-to-no-29-on-the-athletics-the-basketball-100-his-body-wasnt-normal/
-
-**The skills that make Sidney Crosby an elite goal scorer**\
-`Sidney Crosby is on the doorstep of 600 career goals. Here are the habits that define him as a goal scorer.`\
-https://nytimes.com/athletic/5915203/2024/11/13/sidney-crosby-600-goals-penguins/
 
