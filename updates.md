@@ -1,3 +1,7 @@
+**After falling for months, mortgage rates are rising again. Why?**\
+`By Jeanna Smialek and Danielle Kaye`\
+https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/after-falling-for-months-mortgage-rates-are-rising-again-why
+
 **Duke asked Cooper Flagg to go win the game. Despite result, he'll be asked again and again**\
 `Cooper Flagg's two late turnovers are moments that will endure in loss to Kentucky but freshman star and Blue Devils will be better for it.`\
 https://nytimes.com/athletic/5919416/2024/11/13/duke-basketball-cooper-flagg-kentucky/

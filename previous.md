@@ -1,3 +1,7 @@
+**After falling for months, mortgage rates are rising again. Why?**\
+`By Jeanna Smialek and Danielle Kaye`\
+https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/after-falling-for-months-mortgage-rates-are-rising-again-why
+
 **Duke asked Cooper Flagg to go win the game. Despite result, he'll be asked again and again**\
 `Cooper Flagg's two late turnovers are moments that will endure in loss to Kentucky but freshman star and Blue Devils will be better for it.`\
 https://nytimes.com/athletic/5919416/2024/11/13/duke-basketball-cooper-flagg-kentucky/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919468/2024/11/13/pau-torres-injury-spain-villa/
 **One City, Three Great Artists: Reuniting Leonardo, Michelangelo and Raphael**\
 `A London exhibition shows how the three painters circled one another as rivals and role models in 16th-century Florence.`\
 https://nytimes.com/2024/11/13/arts/design/leonardo-michelangelo-raphael-royal-academy.html
-
-**Courtois tells Belgium he remains unavailable for selection in meeting over future**\
-`Thibaut Courtois has told Belgium he still doesn&#8217;t want to be considered for selection while Domenico Tedesco is the head coach.`\
-https://nytimes.com/athletic/5919465/2024/11/13/thibaut-courtois-belgium-international/
 
