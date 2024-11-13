@@ -1,3 +1,7 @@
+**‘Emilia Pérez’ Review: A Song and Dance of Transformation**\
+`The star of Jacques Audiard’s showy new musical about a trans Mexican crime boss, Karla Sofía Gascón, adds soul to the melodrama. Zoe Saldaña also shines.`\
+https://nytimes.com/2024/11/13/movies/emilia-perez-review.html
+
 **A Project 2025 Leader’s Exile Ends**\
 `At his book party, the Heritage Foundation president said he’ll soon speak with the President-elect.`\
 https://nytimes.com/2024/11/13/us/politics/project-2025-leader-exile.html
