@@ -1,3 +1,11 @@
+**Billie Jean King Cup postpones opening tie after red weather warning in Malaga**\
+`A red weather warning in Malaga has led to the postponement of the women's team tennis event.`\
+https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
+
+**Bradley Beal pledged to 'have fun' this season, and Suns finally look as good as expected**\
+`The vibes are good in Phoenix again. Bradley Beal is operating differently, and so are the Suns.`\
+https://nytimes.com/athletic/5917185/2024/11/13/phoenix-suns-nba-bradley-beal-kevin-durant/
+
 **Wolves sporting director banned for swearing at match officials, report reveals**\
 `Wolves sporting director Matt Hobbs was banned for two games for swearing at match officials as they left the field, an independent regulatory commission report has revealed.`\
 https://nytimes.com/athletic/5919342/2024/11/13/wolves-matt-hobbs-ban-report/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5918579/2024/11/13/astros-third-base-options-alex-b
 **Where the Chicago Cubs fit in the Roki Sasaki sweepstakes **\
 `The Cubs have made themselves desirable to Japanese players, and their infrastructure might make a logical fit for Sasaki.`\
 https://nytimes.com/athletic/5918987/2024/11/13/cubs-roki-sasaki-fit/
-
-**What happens if Jets owner Woody Johnson leaves for the Trump administration again**\
-`Last week's election could result in an ownership change for the Jets — as the head coach, GM and quarterback hang in the balance.`\
-https://nytimes.com/athletic/5918431/2024/11/13/jets-owner-woody-johnson-trump-administration/
-
-**John Havlicek runs to No. 29 on The Athletic's 'The Basketball 100': 'His body wasn’t normal'**\
-`Throughout Havlicek’s Hall of Fame career, teammates marveled at his dependability, mental toughness, and physical endurance.`\
-https://nytimes.com/athletic/5909357/2024/11/13/john-havlicek-runs-to-no-29-on-the-athletics-the-basketball-100-his-body-wasnt-normal/
 
