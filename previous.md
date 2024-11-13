@@ -1,3 +1,7 @@
+**Gerry Faust, Coach Who Lived a Dream at Notre Dame, Dies at 89**\
+`Jumping from the high school ranks to lead one of the most storied programs in college football, he lost games but rarely lost hope.`\
+https://nytimes.com/2024/11/12/sports/ncaafootball/gerry-faust-dead.html
+
 **Whitesides Defeats Garcia in California, Handing House Democrats a Win**\
 `George Whitesides, the former NASA chief of staff, defeated Representative Mike Garcia, a Republican, flipping a hotly contested seat in the northern suburbs of Los Angeles.`\
 https://nytimes.com/2024/11/12/us/elections/california-house-garcia-whitesides.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/nyregion/staten-island-st-patricks-parade-lgbtq.h
 **49ers, Deommodore Lenoir agree to 5-year, $92 million extension**\
 `Lenoir has blossomed into one of the NFL's premier, young corners while playing both the outside cornerback and nickel cornerback positions.`\
 https://nytimes.com/athletic/5918635/2024/11/12/deommodore-lenoir-49ers-extension-source/
-
-**Trump Picks Pete Hegseth, a Veteran and Fox News Host, for Defense Secretary**\
-`The choice of Mr. Hegseth, a dedicated supporter of the president-elect in his first term, is outside the norm of the traditional choice for the post.`\
-https://nytimes.com/2024/11/12/us/politics/pete-hegseth-defense-secretary-trump.html
 

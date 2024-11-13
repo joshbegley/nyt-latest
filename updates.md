@@ -1,3 +1,7 @@
+**Gerry Faust, Coach Who Lived a Dream at Notre Dame, Dies at 89**\
+`Jumping from the high school ranks to lead one of the most storied programs in college football, he lost games but rarely lost hope.`\
+https://nytimes.com/2024/11/12/sports/ncaafootball/gerry-faust-dead.html
+
 **Whitesides Defeats Garcia in California, Handing House Democrats a Win**\
 `George Whitesides, the former NASA chief of staff, defeated Representative Mike Garcia, a Republican, flipping a hotly contested seat in the northern suburbs of Los Angeles.`\
 https://nytimes.com/2024/11/12/us/elections/california-house-garcia-whitesides.html
