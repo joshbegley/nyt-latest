@@ -1,3 +1,7 @@
+**Corrections: No. 13, 2024**\
+`Corrections that appeared in print on Wednesday, Nov. 13, 2024.`\
+https://nytimes.com/2024/11/12/pageoneplus/corrections-no-13-2024.html
+
 **CFP rankings: Georgia bumped out of bracket, Indiana climbs to No. 5**\
 `The Big Ten boasts four of the top five teams with Indiana climbing to the fifth spot behind No. 4 Penn State.`\
 https://nytimes.com/athletic/5918690/2024/11/12/college-football-playoff-rankings-georgia-boise-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/dining/thanksgiving-pie-recipes.html
 **Airport Food Prices, Already High, Are Set to Rise in New York Area**\
 `The three big airports that serve New York City have proposed allowing concession prices to rise and adding a surcharge to cover higher wages and improved worker benefits.`\
 https://nytimes.com/2024/11/12/nyregion/jfk-lga-food-prices.html
-
-**Trump Picks Kristi Noem for Homeland Security Secretary**\
-`Ms. Noem, the governor of South Dakota, would play a major role in carrying out the president-elect’s promises to crack down on the border and deport millions of people.`\
-https://nytimes.com/2024/11/12/us/politics/kristi-noem-homeland-security-secretary-trump.html
 
