@@ -1,5 +1,5 @@
-**To Slash Government, Trump Taps 2 Wealthy Entrepreneurs**\
-`Elon Musk and Vivek Ramaswamy will lead what the president-elect called the Department of Government Efficiency, which he said would seek “drastic change.” But the announcement left a lot unanswered.`\
+**Trump Taps Elon Musk and Vivek Ramaswamy to Slash Government**\
+`The two wealthy entrepreneurs will lead what the president-elect called the Department of Government Efficiency, which he said would seek “drastic change.” But the announcement left a lot unanswered.`\
 https://nytimes.com/2024/11/12/us/politics/elon-musk-vivek-ramaswamy-trump.html
 
 **Corrections: No. 13, 2024**\
