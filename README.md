@@ -1,3 +1,7 @@
+**How J.T. Miller, Elias Pettersson crushed Flames in key Canucks win: 3 takeaways**\
+`Miller and Pettersson were Vancouver's best skaters in a 3-1 win over Calgary on Tuesday.`\
+https://nytimes.com/athletic/5918920/2024/11/13/j-t-miller-elias-pettersson-canucks-win-takeaways/
+
 **Despite Blue Jackets' fast start, their offensive funk vs. Kraken extends losing skid**\
 `Columbus hasn't won a game since Oct. 30, and the last road win came more than a month ago in Colorado.`\
 https://nytimes.com/athletic/5919126/2024/11/13/blue-jackets-lose-to-kraken/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915498/2024/11/13/manchester-city-autumn-form-inju
 **Rogers' senior England call is a fitting reward - and will quell Emery's frustrations**\
 `Manager and other senior Villa figures have been frustrated with the under-21s use of Rogers - but a senior call is very different`\
 https://nytimes.com/athletic/5908625/2024/11/13/morgan-rogers-england-unai-emery-aston-villa/
-
-**Mika Biereth interview: 'Making it at Arsenal isn't the be-all and end-all'**\
-`The forward on winning trophies and playing in the Champions League`\
-https://nytimes.com/athletic/5916797/2024/11/13/mika-biereth-interview-arsenal-sturm-graz/
 
