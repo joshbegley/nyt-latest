@@ -1,3 +1,7 @@
+**Blinken Pays a Visit to NATO Amid High Anxiety Over Trump**\
+`The U.S. secretary of state met with European allies rattled by the American election results at a critical moment for Ukraine and the alliance.`\
+https://nytimes.com/2024/11/13/world/europe/blinken-nato-ukraine-trump.html
+
 **What to know about the inflation report.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/what-to-know-about-the-inflation-report
