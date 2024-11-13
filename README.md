@@ -1,7 +1,3 @@
-**How Rangers failed to overcome Mika Zibanejad's rough night in loss to Jets: 3 takeaways**\
-`The Rangers weren't responsible enough to support one another and prevent the opportunities the Jets cashed in on. `\
-https://nytimes.com/athletic/5918928/2024/11/12/rangers-jets-mika-zibanejad/
-
 **Knicks spoil Joel Embiid's debut with 111-99 win; Takeaways**\
 `Embiid finished with 13 points and five assists along with three rebounds in his return, while the 76ers fell to 2-8.`\
 https://nytimes.com/athletic/5918593/2024/11/12/joel-embiid-76ers-knicks-nba-cup/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/12/pageoneplus/corrections-no-13-2024.html
 **CFP rankings: Georgia bumped out of bracket, Indiana climbs to No. 5**\
 `The Big Ten boasts four of the top five teams with Indiana climbing to the fifth spot behind No. 4 Penn State.`\
 https://nytimes.com/athletic/5918690/2024/11/12/college-football-playoff-rankings-georgia-boise-state/
+
+**College Football Playoff 2024 projections: Will Miami, Georgia make it after losses?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/12/college-football-playoff-projections-odds/
 
