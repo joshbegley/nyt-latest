@@ -1,3 +1,7 @@
+**"I think we can beat any team": The Senators are showing what they can be**\
+`The Sens' 3-0 win over the Toronto Maple Leafs should serve as a model for how they need to play to make the playoffs again.`\
+https://nytimes.com/athletic/5918672/2024/11/12/senators-maple-leafs-norris-stutzle/
+
 **How Rangers failed to overcome Mika Zibanejad's rough night in loss to Jets: 3 takeaways**\
 `The Rangers weren't responsible enough to support one another and prevent the opportunities the Jets cashed in on. `\
 https://nytimes.com/athletic/5918928/2024/11/12/rangers-jets-mika-zibanejad/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/elon-musk-vivek-ramaswamy-trump.html
 **Corrections: No. 13, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 13, 2024.`\
 https://nytimes.com/2024/11/12/pageoneplus/corrections-no-13-2024.html
-
-**CFP rankings: Georgia bumped out of bracket, Indiana climbs to No. 5**\
-`The Big Ten boasts four of the top five teams with Indiana climbing to the fifth spot behind No. 4 Penn State.`\
-https://nytimes.com/athletic/5918690/2024/11/12/college-football-playoff-rankings-georgia-boise-state/
 
