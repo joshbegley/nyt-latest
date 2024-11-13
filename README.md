@@ -1,3 +1,7 @@
+**Mark Pope pushes all the right buttons in Kentucky's rally past Duke**\
+`New Wildcats head man Mark Pope made all the right decisions down the stretch of a 77-72 win over No. 6 Duke.`\
+https://nytimes.com/athletic/5919023/2024/11/12/duke-kentucky-mens-basketball-champions-classic/
+
 **'I think we can beat any team': Senators are showing what they can be**\
 `The Sens' 3-0 win over the Toronto Maple Leafs should serve as a model for how they need to play to make the playoffs again.`\
 https://nytimes.com/athletic/5918672/2024/11/12/senators-maple-leafs-norris-stutzle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/elections/colorado-house-evans-caraveo.html
 **Trump Taps Elon Musk and Vivek Ramaswamy to Slash Government**\
 `The two wealthy entrepreneurs will lead what the president-elect called the Department of Government Efficiency, which he said would seek “drastic change.” But the announcement left a lot unanswered.`\
 https://nytimes.com/2024/11/12/us/politics/elon-musk-vivek-ramaswamy-trump.html
-
-**Corrections: No. 13, 2024**\
-`Corrections that appeared in print on Wednesday, Nov. 13, 2024.`\
-https://nytimes.com/2024/11/12/pageoneplus/corrections-no-13-2024.html
 
