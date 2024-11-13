@@ -1,3 +1,15 @@
+**Is this a typical Guardiola-era autumn slump for City - or something worse?**\
+`Early-season struggles are not unknown at City in recent years but their defensive numbers so far in this one are of particular concern`\
+https://nytimes.com/athletic/5915498/2024/11/13/manchester-city-autumn-form-injuries-defence/
+
+**Rogers' senior England call is a fitting reward - and will quell Emery's frustrations**\
+`Manager and other senior Villa figures have been frustrated with the under-21s use of Rogers - but a senior call is very different`\
+https://nytimes.com/athletic/5908625/2024/11/13/morgan-rogers-england-unai-emery-aston-villa/
+
+**Mika Biereth interview: 'Making it at Arsenal isn't the be-all and end-all'**\
+`The forward on winning trophies and playing in the Champions League`\
+https://nytimes.com/athletic/5916797/2024/11/13/mika-biereth-interview-arsenal-sturm-graz/
+
 **Hurzeler's Brighton have made a daunting start look easy - so what next?**\
 `Hurzeler's first 11 Premier League games saw him face most of the division's established elite - yet Brighton are an encouraging sixth`\
 https://nytimes.com/athletic/5869206/2024/11/13/fabian-hurzeler-brighton-premier-league/
