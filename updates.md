@@ -1,3 +1,11 @@
+**Billie Jean King Cup postpones opening tie after red weather warning in Malaga**\
+`A red weather warning in Malaga has led to the postponement of the women's team tennis event.`\
+https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
+
+**Bradley Beal pledged to 'have fun' this season, and Suns finally look as good as expected**\
+`The vibes are good in Phoenix again. Bradley Beal is operating differently, and so are the Suns.`\
+https://nytimes.com/athletic/5917185/2024/11/13/phoenix-suns-nba-bradley-beal-kevin-durant/
+
 **Wolves sporting director banned for swearing at match officials, report reveals**\
 `Wolves sporting director Matt Hobbs was banned for two games for swearing at match officials as they left the field, an independent regulatory commission report has revealed.`\
 https://nytimes.com/athletic/5919342/2024/11/13/wolves-matt-hobbs-ban-report/
