@@ -1,3 +1,7 @@
+**Forest's Alternative XI shows how far they've come Nuno is blessed with strength in depth**\
+`When it comes to strength in depth, this is the best squad Forest have had in decades.`\
+https://nytimes.com/athletic/5917521/2024/11/13/nuno-nottingham-forest-squad/
+
 **Is this a typical Guardiola-era autumn slump for City - or something worse?**\
 `Early-season struggles are not unknown at City in recent years but their defensive numbers so far in this one are of particular concern`\
 https://nytimes.com/athletic/5915498/2024/11/13/manchester-city-autumn-form-injuries-defence/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917473/2024/11/13/liverpool-premier-league-title-c
 **Tactics mailbag: Maresca's full-backs, analysing fixture difficulty, and a La Liga coach to watch**\
 `We asked for your questions regarding tactics and data across the Premier League and beyond. Here are our writers’ answers to a selection`\
 https://nytimes.com/athletic/5916901/2024/11/13/tactics-maresca-chelsea-full-backs/
-
-**U.K. Plans to Fine Tech Executives for Illegal Weapon Sales Online**\
-`In a bid to curb knife crime, the government would hold officials of tech companies personally liable for illicit sales on their platforms, a significant shift in internet regulation.`\
-https://nytimes.com/2024/11/13/world/europe/uk-tech-fines-knives.html
 
