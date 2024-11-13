@@ -1,3 +1,7 @@
+**John Malone Reorders Media Empire as C.E.O. Exits**\
+`Liberty Media, which owns stakes in Formula One and Live Nation, is spinning off some of its assets in a corporate restructuring.`\
+https://nytimes.com/2024/11/13/business/liberty-media-john-malone.html
+
 **Why the Messy Cardinals of ‘Conclave’ Make for Great Memes**\
 `Thanks to characters we recognize from reality TV, the Vatican intrigues have jumped from stuffy prestige drama to the social-media scrum.`\
 https://nytimes.com/2024/11/13/movies/conclave-memes.html
