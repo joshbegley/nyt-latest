@@ -1,3 +1,11 @@
+**Wishful Thinking on Abortion Politics**\
+`We explain why the issue of abortion didn’t necessarily help Democrats win this election.`\
+https://nytimes.com/2024/11/13/briefing/wishful-thinking-on-abortion-politics.html
+
+**Billie Jean King Cup postpones opening tie after red weather warning in Malaga**\
+`Severe rain and flooding are expected in southern Spain, where the international team event is being held.`\
+https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
+
 **Billie Jean King Cup postpones opening tie after red weather warning in Malaga**\
 `A red weather warning in Malaga has led to the postponement of the women's team tennis event.`\
 https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/

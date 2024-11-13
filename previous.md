@@ -1,5 +1,9 @@
+**Wishful Thinking on Abortion Politics**\
+`We explain why the issue of abortion didn’t necessarily help Democrats win this election.`\
+https://nytimes.com/2024/11/13/briefing/wishful-thinking-on-abortion-politics.html
+
 **Billie Jean King Cup postpones opening tie after red weather warning in Malaga**\
-`A red weather warning in Malaga has led to the postponement of the women's team tennis event.`\
+`Severe rain and flooding are expected in southern Spain, where the international team event is being held.`\
 https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
 
 **Bradley Beal pledged to 'have fun' this season, and Suns finally look as good as expected**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918519/2024/11/13/baltimore-ravens-pittsburgh-stee
 **If not Alex Bregman, who? How the Astros could handle third base**\
 `Houston must have alternate plans for life without Bregman. Here are three avenues it could explore.`\
 https://nytimes.com/athletic/5918579/2024/11/13/astros-third-base-options-alex-bregman/
-
-**Where the Chicago Cubs fit in the Roki Sasaki sweepstakes **\
-`The Cubs have made themselves desirable to Japanese players, and their infrastructure might make a logical fit for Sasaki.`\
-https://nytimes.com/athletic/5918987/2024/11/13/cubs-roki-sasaki-fit/
 
