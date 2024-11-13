@@ -1,3 +1,11 @@
+**Duke asked Cooper Flagg to go win the game. Despite result, he'll be asked again and again**\
+`Cooper Flagg's two late turnovers are moments that will endure in loss to Kentucky but freshman star and Blue Devils will be better for it.`\
+https://nytimes.com/athletic/5919416/2024/11/13/duke-basketball-cooper-flagg-kentucky/
+
+**Dodgers pitching thoughts: On Roki Sasaki, Bobby Miller's year and the wave of injuries**\
+`Will the billion-dollar offseason the Los Angeles Dodgers orchestrated last winter get an encore?`\
+https://nytimes.com/athletic/5918724/2024/11/13/dodgers-pitching-plans-roki-sasaki-bobby-miller/
+
 **How the public’s fury over inflation shaped the vote.**\
 `By German Lopez`\
 https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/how-the-publics-fury-over-inflation-shaped-the-vote
