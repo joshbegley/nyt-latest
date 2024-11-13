@@ -1,3 +1,7 @@
+**Bengals' Lou Anarumo shuffles rotations seeking defensive solutions**\
+`Different players are getting their chance in the secondary, in particular, with multiple starters struggling.`\
+https://nytimes.com/athletic/5918751/2024/11/13/bengals-lou-anarumo-defense-rotations/
+
 **Aid Deliveries to Gaza Remain Low Despite U.S. Warning to Israel**\
 `In an Oct. 13 letter, the Biden administration gave Israel 30 days to increase the flow of aid, warning that aid shipments into Gaza in September had reached their lowest level at any time since the Hamas-led attacks.`\
 https://nytimes.com/2024/11/13/world/middleeast/gaza-aid-us-israel.html
