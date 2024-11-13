@@ -1,3 +1,7 @@
+**Brush Fire Burns in Manhattan, the Latest of Several Blazes in the Region**\
+`The fire, in Inwood Hill Park at the northern tip of Manhattan, followed brush fires that burned in Brooklyn, the Bronx and New Jersey over the past week.`\
+https://nytimes.com/2024/11/13/nyregion/inwood-hill-park-fire-nyc.html
+
 **John Thune Rises to the Senate Top**\
 `The South Dakota Republican failed in his first try for the Senate but came back to defeat a chamber leader. Now he will be the leader himself.`\
 https://nytimes.com/2024/11/13/us/john-thune-rises-to-the-senate-top.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000009824708/inwood-hill-new-york-fire.html
 **Palm Springs Reaches Nearly $27 Million Reparations Deal With Former Residents**\
 `The City Council will vote on a package for former Black and Latino residents of a neighborhood that burned more than 50 years ago.`\
 https://nytimes.com/2024/11/13/us/california-palm-springs-reparations.html
-
-**Shohei Ohtani's 50th home run ball put on display in Taiwan**\
-`The historic baseball that commanded a record price is now on public display for the first time`\
-https://nytimes.com/athletic/5920566/2024/11/13/shohei-ohtanis-50-home-run-ball-taiwan/
 

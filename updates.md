@@ -1,3 +1,7 @@
+**Brush Fire Burns in Manhattan, the Latest of Several Blazes in the Region**\
+`The fire, in Inwood Hill Park at the northern tip of Manhattan, followed brush fires that burned in Brooklyn, the Bronx and New Jersey over the past week.`\
+https://nytimes.com/2024/11/13/nyregion/inwood-hill-park-fire-nyc.html
+
 **John Thune Rises to the Senate Top**\
 `The South Dakota Republican failed in his first try for the Senate but came back to defeat a chamber leader. Now he will be the leader himself.`\
 https://nytimes.com/2024/11/13/us/john-thune-rises-to-the-senate-top.html
