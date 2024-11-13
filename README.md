@@ -1,3 +1,7 @@
+**N.L.R.B. Says Employers Can’t Hold Mandatory Anti-Union Meetings**\
+`The ruling, stemming from a complaint against Amazon, bars companies from compelling workers to attend meetings on unionization’s downsides.`\
+https://nytimes.com/2024/11/13/business/economy/nlrb-meetings-unions-amazon.html
+
 **Billie Jean King Cup will begin Thursday after red weather warning in Malaga delays start**\
 `Severe rain and flooding are expected in southern Spain, where the international women's tennis team event is being held.`\
 https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918964/2024/11/13/draymond-green-warriors-klay-tho
 **Wins in the West Bring Republicans Closer to a House Majority**\
 `With a dozen races still to be called, the G.O.P. was two seats away from the 218 that would allow the party to claim a coveted governing trifecta: control of the House, Senate and White House.`\
 https://nytimes.com/2024/11/13/us/politics/republicans-closer-near-house-majority.html
-
-**Hadji, Mets announcer Keith Hernandez's internet-famous cat, dies**\
-`"It was his time to go," Hernandez said in a post on X about his 22-year-old cat.`\
-https://nytimes.com/athletic/5920307/2024/11/13/hadji-keith-hernandez-cat-dead/
 
