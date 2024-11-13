@@ -1,3 +1,7 @@
+**Billie Jean King Cup will begin Thursday after red weather warning in Malaga delays start**\
+`Severe rain and flooding are expected in southern Spain, where the international women's tennis team event is being held.`\
+https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
+
 **Supreme Court Seems Ready to Allow Securities Fraud Case Against Nvidia**\
 `The case, which is in an early stage, accused the giant technology company of misleading investors about its exposure to the cryptocurrency industry.`\
 https://nytimes.com/2024/11/13/us/politics/supreme-court-nvidia-securities-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/republicans-closer-near-house-majorit
 **Hadji, Mets announcer Keith Hernandez's internet-famous cat, dies**\
 `"It was his time to go," Hernandez said in a post on X about his 22-year-old cat.`\
 https://nytimes.com/athletic/5920307/2024/11/13/hadji-keith-hernandez-cat-dead/
-
-**For Now, Senate Republicans Say No to MAGA Excess**\
-`Rick Scott, who would have agreed to Trump’s idea of bypassing the Senate for nominations, lost his bid to become leader.`\
-https://nytimes.com/2024/11/13/opinion/senate-republican-leader.html
 
