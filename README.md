@@ -1,3 +1,15 @@
+**Amazon Is Phasing Out Its Freevee Streaming Service**\
+`Its shows have moved to Amazon Prime, where they will remain free.`\
+https://nytimes.com/2024/11/13/arts/television/13xp-amazon-freevee-shut-down.html
+
+**Haiti: ‘It’s Not Back to Where We Started — It’s Worse’**\
+`The country’s security situation has deteriorated even further since Monday when at least three planes were shot at, forcing the closure of its main airport.`\
+https://nytimes.com/2024/11/13/world/americas/haiti-gangs-airlines-doctors-without-borders.html
+
+**Deion Sanders says he'll 'privately' intervene if wrong team drafts his son**\
+`Deion Sanders said he wants Shedeur to go to an NFL team that "can handle the quarterback he is" and has a solid infrastructure.`\
+https://nytimes.com/athletic/5921084/2024/11/13/deion-sanders-shedeur-sanders-travis-hunter-nfl-draft/
+
 **Trump’s Choice of Matt Gaetz Should Surprise No One**\
 `He’s doing exactly what he said he would.`\
 https://nytimes.com/2024/11/13/opinion/matt-gaetz-attorney-general-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/13/business/vardis-vardinoyannis-dead.html
 **Trump’s Win Leaves Democrats Asking: Where Are Our Bro Whisperers?**\
 `Democrats have widely acknowledged that they have no answer for the online ecosystem of conservative influencers popular with Gen Z men. Some have argued for a rethink of media strategy.`\
 https://nytimes.com/2024/11/13/us/politics/trump-gen-z-influencers-democrats.html
-
-**People Went With Mass Appeal for Its ‘Sexiest Man’**\
-`John Krasinski may not have the raw energy of Glen Powell, but a collaboration with the stylist Ilaria Urbinati has paid huge dividends.`\
-https://nytimes.com/2024/11/13/style/john-krasinski-sexiest-man-people.html
-
-**In the Slightly Dark ‘Strategic Love Play,’ a Not-Quite-Romance Blooms**\
-`In this first-date comedy, Michael Zegen and Heléne Yorke play people who might just be willing to settle for each other.`\
-https://nytimes.com/2024/11/13/theater/strategic-love-play-review.html
-
-**Firefighters Battle Wildfire in New York City**\
-`Emergency responders worked to contain a brush fire in Inwood Hill Park in Manhattan on Wednesday afternoon.`\
-https://nytimes.com/video/weather/100000009824708/inwood-hill-new-york-fire.html
 
