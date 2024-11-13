@@ -1,3 +1,7 @@
+**Firefighter Charged With Arson Said He Put Lit Cotton Balls Under Car**\
+`A volunteer firefighter on Long Island was arrested after the police said he intentionally set a brush fire. The New York area has contended with numerous fires during an unusually dry fall.`\
+https://nytimes.com/2024/11/13/nyregion/firefighter-arson-long-island-cotton-balls.html
+
 **Ozempic Could Prevent Diabetes. Should It Be Used for That?**\
 `New research shows that weight loss medications can stop the progression of prediabetes. Experts don’t all agree on such a use for the drugs.`\
 https://nytimes.com/2024/11/13/well/ozempic-prediabetes.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/11/13/arts/design/british-museum-donation-ceramics.html
 **Tracking Potential Tropical Cyclone Nineteen**\
 `See the likely path and wind arrival times for Nineteen.`\
 https://nytimes.com/interactive/2024/11/13/weather/nineteen-map-path-tracker.html
-
-**Penn State details ticket plans for hosting a College Football Playoff game**\
-`What will hosting a College Football Playoff game look like? Penn State sent details to its season ticket holders on Wednesday.`\
-https://nytimes.com/athletic/5920050/2024/11/13/penn-state-college-football-playoff-host/
 
