@@ -1,3 +1,15 @@
+**How California’s New Fuel Standards Could Affect Drivers**\
+`Regulators say the changes are essential to reducing carbon emissions. But political leaders in both parties are worried that gas prices could further increase.`\
+https://nytimes.com/2024/11/13/us/california-gas-prices-fuel-standard.html
+
+**Italy’s President Rebukes Musk for Chiming In on Immigration Debate**\
+`Sergio Mattarella said Italy “can take care” of itself after Elon Musk criticized Italian judges who did not approve a government request to hold a group of migrants in Albania.`\
+https://nytimes.com/2024/11/13/world/europe/italy-musk-immigration.html
+
+**Puzzle Mania 2024: Contest Rules, Clues and Answers**\
+`Everything you need to know about the ninth special print puzzle section.`\
+https://nytimes.com/2024/11/13/crosswords/puzzle-mania-2024-faq.html
+
 **Betting for (by) dummies: Split on Bills-Chiefs, united on Kansas and 'Grey Cup' action**\
 `Jon Greenberg and Zac Jackson are back with their football betting picks for college, NFL and yes, CFL.`\
 https://nytimes.com/athletic/5920299/2024/11/13/betting-for-by-dummies-odds-picks-nfl-cfb-cfl/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/project-2025-leader-exile.html
 **Marco Rubio Is Trump’s Pick for Secretary of State**\
 `The president-elect said Senator Rubio would be “a strong advocate for our nation, a true friend to our allies and a fearless warrior who will never back down to our adversaries.”`\
 https://nytimes.com/2024/11/13/us/politics/marco-rubio-trump-secretary-of-state.html
-
-**2 Workers Are Killed in ‘Tremendous Explosion’ at Kentucky Plant**\
-`The explosion at a food-coloring facility in Louisville also injured several others and caused widespread destruction.`\
-https://nytimes.com/2024/11/13/us/kentucky-louisville-factory-explosion.html
-
-**Climate Change Is Losing Its Grip on Our Politics**\
-`Trump’s election merely confirms a shift that’s been happening for years.`\
-https://nytimes.com/2024/11/13/opinion/climate-change-politics-trump-cop29.html
-
-**Dynasty league football 2025 rookie draft update: Is it Ashton Jeanty or bust?**\
-`Jeff Haverlack checks in on the 2025 rookie class for dynasty leagues, and he struggles to find optimism outside running back Ashton Jeanty.`\
-https://nytimes.com/athletic/5920279/2024/11/13/dynasty-league-update-2025-draft-class-ashton-jeanty/
 
