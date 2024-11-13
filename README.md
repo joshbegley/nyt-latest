@@ -1,3 +1,7 @@
+**Trump’s Middle East Picks Signal Staunch Pro-Israel Policy**\
+`Mike Huckabee and Steven Witkoff have both made pro-Israel statements. Here’s a closer look at the two men who will help shape Mr. Trump’s approach in the Middle East.`\
+https://nytimes.com/2024/11/13/world/middleeast/huckabee-israel-witkoff-middle-east-us.html
+
 **Josh Hart was 'lost' before the season. Now he's on pace for a career year**\
 `The veteran wasn't sure how he'd fit around New York's big acquisitions. But he's finding his way, like the Knicks knew he would.`\
 https://nytimes.com/athletic/5919608/2024/11/13/josh-hart-knicks-role-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/trump-nonprofits-resistance.html
 **Blinken Pays a Visit to NATO Amid High Anxiety Over Trump**\
 `The U.S. secretary of state met with European allies rattled by the American election results at a critical moment for Ukraine and the alliance.`\
 https://nytimes.com/2024/11/13/world/europe/blinken-nato-ukraine-trump.html
-
-**What to know about the inflation report.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/what-to-know-about-the-inflation-report
 
