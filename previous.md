@@ -1,3 +1,15 @@
+**John Thune Rises to the Senate Top**\
+`The South Dakota Republican failed in his first try for the Senate but came back to defeat a chamber leader. Now he will be the leader himself.`\
+https://nytimes.com/2024/11/13/us/john-thune-rises-to-the-senate-top.html
+
+**A Project 2025 Leader Is Back in the Fold**\
+`At his book party, the Heritage Foundation president said he’ll soon speak with the president-elect.`\
+https://nytimes.com/2024/11/13/us/politics/project-2025-trump-heritage-foundation.html
+
+**Teen Who Made Nearly 400 Swatting Calls to Schools and Officials Pleads Guilty**\
+`Alan W. Filion, 18, of California, called in false reports of bombings and mass shootings across the country, the authorities said.`\
+https://nytimes.com/2024/11/13/us/swatting-calls-california-teen-guilty.html
+
 **Vardis Vardinoyannis, Greek Tycoon With Ties to the Kennedys, Dies at 90**\
 `He built his family’s oil-refining operation into one of the largest companies in the country, and then used his wealth to benefit charitable causes.`\
 https://nytimes.com/2024/11/13/business/vardis-vardinoyannis-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/13/us/california-palm-springs-reparations.html
 **Shohei Ohtani's 50th home run ball put on display in Taiwan**\
 `The historic baseball that commanded a record price is now on public display for the first time`\
 https://nytimes.com/athletic/5920566/2024/11/13/shohei-ohtanis-50-home-run-ball-taiwan/
-
-**Theodore B. Olson, Conservative Lawyer Who Took Up Liberal Causes, Dies at 84**\
-`A renowned Supreme Court litigator, he argued the Republican side in Bush v. Gore, but later championed gay rights and undocumented children.`\
-https://nytimes.com/2024/11/13/us/theodore-olson-dead.html
-
-**Why Xavier McKinney took aim at D.J. Moore, spicing up Sunday's Bears-Packers clash**\
-`The Green Bay safety took umbrage Wednesday to comments made by the Chicago receiver before the season.`\
-https://nytimes.com/athletic/5920806/2024/11/13/d-j-moore-xavier-mckinney-comments-packers-bears/
-
-**C.D.C. Director Fears R.F.K. Jr. May Share ‘Misinformation From a Place of Power’**\
-`The prospect of a second Trump administration, and Robert F. Kennedy Jr.’s role in it, has rattled many people in public health.`\
-https://nytimes.com/2024/11/13/us/politics/cdc-director-rfk-jr-misinformation.html
 
