@@ -1,3 +1,7 @@
+**Patrick Mahomes, Travis Kelce's homes burglarized last month**\
+`A Cass County Sheriff’s Office spokesperson said an investigation into the reported burglary at Mahomes' home is ongoing.`\
+https://nytimes.com/athletic/5919923/2024/11/13/mahomes-kelce-home-burglaries/
+
 **Draymond Green puts defensive stamp on Klay Thompson's big night**\
 `"Unreal" is how Steph Curry described Green's start to the season: "He's been all-world defensively."`\
 https://nytimes.com/athletic/5918964/2024/11/13/draymond-green-warriors-klay-thompson-return/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/5920276/2024/11/13/ole-miss-flips-caleb-cunningham-
 https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
 
 **Viewers Flee MSNBC, and Flock to Fox News, in Wake of Election**\
-`Prime-time viewership at MSNBC has fallen 53 percent compared with October, and jumped 21 percent on Fox News.`\
+`Prime-time viewership at MSNBC has fallen 53 percent from October, and jumped 21 percent on Fox News.`\
 https://nytimes.com/2024/11/13/business/media/msnbc-fox-news-ratings-election.html
 
 **MLS investigating physical altercation involving Twellman during Inter Miami game**\
 `The alleged incident occurred around game one of the Eastern Conference quarterfinals between Miami and Atlanta United on October 25`\
 https://nytimes.com/athletic/5919690/2024/11/13/taylor-twellman-altercation-mls-miami-atlanta/
-
-**Trump’s Pick for Ambassador to Israel Sells a Children’s Book Praising Him**\
-`Mike Huckabee, the former governor of Arkansas whom Mr. Trump has selected for a crucial diplomatic role, co-founded a company selling a cartoon “Kids Guide to President Trump.”`\
-https://nytimes.com/2024/11/13/us/politics/huckabee-trump-kids-books.html
 
