@@ -1,3 +1,7 @@
+**Vardis Vardinoyannis, Greek Tycoon With Ties to the Kennedys, Dies at 90**\
+`He built his family’s oil-refining operation into one of the largest companies in the country, and then used his wealth to benefit charitable causes.`\
+https://nytimes.com/2024/11/13/business/vardis-vardinoyannis-dead.html
+
 **Trump’s Win Leaves Democrats Asking: Where Are Our Bro Whisperers?**\
 `Democrats have widely acknowledged that they have no answer for the online ecosystem of conservative influencers popular with Gen Z men. Some have argued for a rethink of media strategy.`\
 https://nytimes.com/2024/11/13/us/politics/trump-gen-z-influencers-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920806/2024/11/13/d-j-moore-xavier-mckinney-commen
 **C.D.C. Director Fears R.F.K. Jr. May Share ‘Misinformation From a Place of Power’**\
 `The prospect of a second Trump administration, and Robert F. Kennedy Jr.’s role in it, has rattled many people in public health.`\
 https://nytimes.com/2024/11/13/us/politics/cdc-director-rfk-jr-misinformation.html
-
-**Oakland Airport Can’t Use San Francisco in Its Name, Judge Rules**\
-`The airport’s name, San Francisco Bay Oakland International, suggested that the “lower rated airport” was associated with San Francisco, a federal judge said in a temporary order.`\
-https://nytimes.com/2024/11/13/us/san-francisco-oakland-airport-lawsuit.html
 

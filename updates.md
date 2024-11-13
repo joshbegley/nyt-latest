@@ -1,3 +1,7 @@
+**Vardis Vardinoyannis, Greek Tycoon With Ties to the Kennedys, Dies at 90**\
+`He built his family’s oil-refining operation into one of the largest companies in the country, and then used his wealth to benefit charitable causes.`\
+https://nytimes.com/2024/11/13/business/vardis-vardinoyannis-dead.html
+
 **Trump’s Win Leaves Democrats Asking: Where Are Our Bro Whisperers?**\
 `Democrats have widely acknowledged that they have no answer for the online ecosystem of conservative influencers popular with Gen Z men. Some have argued for a rethink of media strategy.`\
 https://nytimes.com/2024/11/13/us/politics/trump-gen-z-influencers-democrats.html
