@@ -1,3 +1,19 @@
+**Tracking Potential Tropical Cyclone Nineteen**\
+`See the likely path and wind arrival times for Nineteen.`\
+https://nytimes.com/interactive/2024/11/13/weather/nineteen-map-path-tracker.html
+
+**Penn State details ticket plans for hosting a College Football Playoff game**\
+`What will hosting a College Football Playoff game look like? Penn State sent details to its season ticket holders on Wednesday.`\
+https://nytimes.com/athletic/5920050/2024/11/13/penn-state-college-football-playoff-host/
+
+**Broadway Shows Closing Soon: ‘Suffs,’ ‘Stereophonic’ and More**\
+`Many Tony Award-winning musicals and starry plays (Robert Downey Jr., anyone?) are wrapping up their runs in January. Catch them while you can.`\
+https://nytimes.com/2024/11/13/arts/broadway-shows-closing-winter.html
+
+**Did P’Nut Die for Nothing? Test Shows Squirrel Did Not Have Rabies.**\
+`Officials released a timeline of the decision to euthanize the squirrel, whose confiscation led to outrage from some on the right and death threats to those deemed responsible.`\
+https://nytimes.com/2024/11/13/nyregion/peanut-squirrel-rabies.html
+
 **Mark Zuckerberg and T-Pain ‘Get Low’ in Anniversary Post**\
 `As he continues to shake up his old image, Meta’s chief executive has collaborated with the singer on a version of the hit song that was playing when he met his wife.`\
 https://nytimes.com/2024/11/13/style/mark-zuckerberg-tpain-get-low.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/13/crosswords/wordle-review-1244.html
 **Here's how the Flyers seem to be finding their identity again**\
 `After a disappointing start to the season, the Flyers have a three-game point streak, with several on-ice improvements.`\
 https://nytimes.com/athletic/5920536/2024/11/13/philadelphia-flyers-goals-senators/
-
-**Vikings' J.J. McCarthy undergoes procedure, receives injection amid rehab from meniscus tear**\
-`McCarthy underwent a minor procedure and received a biologic injection this week after an uptick in rehab led to swelling in his knee. `\
-https://nytimes.com/athletic/5920526/2024/11/13/vikings-jj-mccarthy-meniscus-injury-knee/
-
-**Matt Gaetz Is Trump’s Pick for Attorney General**\
-`President-elect Donald J. Trump has made clear his view of the Justice Department’s importance and has complained that his past attorneys general fell far short of his expectations.`\
-https://nytimes.com/2024/11/13/us/politics/matt-gaetz-trump-attorney-general.html
-
-**How California’s New Fuel Standards Could Affect Drivers**\
-`Regulators say the changes are essential to reducing carbon emissions. But political leaders in both parties are worried that gas prices could further increase.`\
-https://nytimes.com/2024/11/13/us/california-gas-prices-fuel-standard.html
-
-**Italy’s President Rebukes Musk for Chiming In on Immigration Debate**\
-`Sergio Mattarella said Italy “can take care” of itself after Elon Musk criticized Italian judges who did not approve a government request to hold a group of migrants in Albania.`\
-https://nytimes.com/2024/11/13/world/europe/italy-musk-immigration.html
 
