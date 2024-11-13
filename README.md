@@ -1,3 +1,7 @@
+**Senate Republicans Alarmed by Gaetz Pick as Attorney General Nominee**\
+`Many Republican senators were stunned that Representative Matt Gaetz, Republican of Florida, had been chosen as the nominee, and expressed skepticism that he could secure enough votes for confirmation.`\
+https://nytimes.com/2024/11/13/us/politics/matt-gaetz-attorney-general-senate-republicans.html
+
 **Carsley promises to pick attacking team for Greece clash**\
 `Lee Carsley has promised that England will attack Greece again on Thursday night as they aim for the two-goal win that will get them back to the top of their Nations League group.`\
 https://nytimes.com/athletic/5920426/2024/11/13/lee-carsley-england-greece-team/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/nyregion/firefighter-arson-long-island-cotton-bal
 **Ozempic Could Prevent Diabetes. Should It Be Used for That?**\
 `New research shows that weight loss medications can stop the progression of prediabetes. Experts don’t all agree on such a use for the drugs.`\
 https://nytimes.com/2024/11/13/well/ozempic-prediabetes.html
-
-**New York to Revive Congestion Pricing With $9 Toll**\
-`Gov. Kathy Hochul is expected to announce the revised program on Thursday with the aim of putting it in place before Donald Trump takes office.`\
-https://nytimes.com/2024/11/13/nyregion/congestion-pricing-nine-dollars.html
 
