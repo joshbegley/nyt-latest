@@ -1,3 +1,19 @@
+**Cowboys Today: The distracting sun remains a major storyline and Deion deflects**\
+`Also, in a conversation with Deion Sanders, Michael Irvin asked the Colorado Buffaloes coach about his interest in coaching the Cowboys.`\
+https://nytimes.com/athletic/5919141/2024/11/13/cowboys-today-the-distracting-sun-remains-a-major-storyline-and-deion-deflects/
+
+**Trump’s visit with Obama 8 years ago was surprisingly cordial.**\
+`The last time`\
+https://nytimes.com/live/2024/11/13/us/trump-news/trumps-visit-with-obama-8-years-ago-was-surprisingly-cordial
+
+**Penguins Today: Fallout from the Lars Eller trade**\
+`One thing is certain: Kyle Dubas is open for business.`\
+https://nytimes.com/athletic/5919773/2024/11/13/penguins-today-lars-eller-trade-capitals/
+
+**Nonprofits Vow a New Resistance. Will Donors Pay Up?**\
+`Groups that used lawsuits and protests to stymie the first Trump administration will face longer odds this time. The courts are more conservative, and patrons are dejected.`\
+https://nytimes.com/2024/11/13/us/politics/trump-nonprofits-resistance.html
+
 **Blinken Pays a Visit to NATO Amid High Anxiety Over Trump**\
 `The U.S. secretary of state met with European allies rattled by the American election results at a critical moment for Ukraine and the alliance.`\
 https://nytimes.com/2024/11/13/world/europe/blinken-nato-ukraine-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5919704/2024/11/13/ansu-fati-injury-barcelona/
 **After Deadly Car Rampage, Chinese Officials Try to Erase Any Hint of It**\
 `Workers cleared away flowers laid at the site of the attack, while censors scrubbed online criticism. The goal is to stifle potential questions and criticism.`\
 https://nytimes.com/2024/11/13/world/asia/china-car-zhuhai-ramming.html
-
-**Thompson: Why Giannis offers first case in how NBA's new rules impact stars**\
-`If Dame and Giannis aren’t the takeover-the-league duo we thought, what is the Bucks’ next move? Whatever it is, Giannis should stay put.`\
-https://nytimes.com/athletic/5916112/2024/11/13/giannis-antetokounmpo-bucks-nba-cba-rules/
-
-**Who Might Be the Next Archbishop of Canterbury?**\
-`The leader of the Anglican Church, Justin Welby, announced he would resign on Tuesday. Here’s what happens next.`\
-https://nytimes.com/2024/11/13/world/europe/archbishop-canterbury-candidates.html
-
-**The Bounce: Steph Curry said,'Night, night' to Klay Thompson**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5919396/2024/11/13/stephen-curry-warriors-klay-thompson-mavericks-joel-embiid-76ers-nba-the-bounce/
-
-**Can the Miami Heat fix their current issues or is it time for a change?**\
-`The Miami Heat are struggling and in many cases it's their own doing. Maybe it's time to shake things up, writes Will Guillory. `\
-https://nytimes.com/athletic/5919377/2024/11/13/miami-heat-erik-spoelstra-time-out/
 
