@@ -1,3 +1,11 @@
+**Once They Were Neocons. Now Trump’s Foreign Policy Picks Are All ‘America First.’**\
+`President-elect Donald J. Trump is considering nominees who fit more comfortably within his often erratic worldview, in which deal-making reigns over ideology.`\
+https://nytimes.com/2024/11/12/us/politics/trump-foreign-policy-neocons-america-first.html
+
+**U.S. Destroyer That Sank During World War II Is Found Off Australian Coast**\
+`More than 200 servicemen were killed when the U.S.S. Edsall was struck by Japanese dive bombers in March 1942.`\
+https://nytimes.com/2024/11/12/us/uss-edsall-sunken-ship-world-war-two.html
+
 **Staten Island St. Patrick’s Day Parade Ends 60-Year Ban on Gay Groups**\
 `After years of controversy and boycotts, the parade’s organizers said it was time to change the exclusionary policy.`\
 https://nytimes.com/2024/11/12/nyregion/staten-island-st-patricks-parade-lgbtq.html
