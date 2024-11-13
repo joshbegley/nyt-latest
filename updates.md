@@ -1,3 +1,7 @@
+**Nearly Half of California Voters Would Back Harris for Governor, Poll Shows**\
+`A late-October survey in Vice President Kamala Harris’s home state showed strong Democratic backing if she ran in the 2026 race for governor. She has not said what she plans to do next.`\
+https://nytimes.com/2024/11/13/us/politics/harris-california-governor-voters-poll.html
+
 **Caitlin Clark’s morning on the LPGA Tour: Shanked shots, pured drives and so many fans**\
 `Clark played with world No. 1 Nelly Korda and legend Annika Sorenstam at The Annika on Wednesday, driving thousands to the tournament.`\
 https://nytimes.com/athletic/5920207/2024/11/13/caitlin-clark-lpga-golf-annika/
