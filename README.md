@@ -1,3 +1,7 @@
+**49ers, Deommodore Lenoir agree to 5-year, $92 million extension**\
+`Lenoir has blossomed into one of the NFL's premier corners while playing both the outside cornerback and nickel cornerback positions.`\
+https://nytimes.com/athletic/5918635/2024/11/12/deommodore-lenoir-49ers-extension-source/
+
 **Trump Picks Pete Hegseth, a Veteran and Fox News Host, for Defense Secretary**\
 `The choice of Mr. Hegseth, a dedicated supporter of the president-elect in his first term, was outside the norm of the traditional choice for the post.`\
 https://nytimes.com/2024/11/12/us/politics/pete-hegseth-defense-secretary-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/12/us/trump-news-house-election/mcginley-white-
 **LeBrun rumblings: Ken Holland's new role, early trade market, tampering, CBA and more from GMs meeting**\
 `Deputy commissioner Bill Daly said a potential change to contract term limits was discussed Tuesday with general managers.`\
 https://nytimes.com/athletic/5918446/2024/11/12/nhl-rumblings-holland-trades-tampering-cba/
-
-**Trump Picks John Ratcliffe, His Former Intelligence Director, for C.I.A. Chief**\
-`Mr. Ratcliffe, who was also a Texas congressman, fought fiercely for Donald Trump during his first term.`\
-https://nytimes.com/2024/11/12/us/politics/john-ratcliffe-cia-director-trump.html
 
