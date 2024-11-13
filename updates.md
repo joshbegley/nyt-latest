@@ -1,3 +1,7 @@
+**Explosion in the Bronx Disrupts Amtrak Service**\
+`A thick column of smoke billowed from the tracks before bursting into flames.`\
+https://nytimes.com/video/nyregion/100000009822651/amtrak-bronx-explosion-fire.html
+
 **Mark Pope pushes all the right buttons in Kentucky's rally past Duke**\
 `New Wildcats head man Mark Pope made all the right decisions down the stretch of a 77-72 win over No. 6 Duke.`\
 https://nytimes.com/athletic/5919023/2024/11/12/duke-kentucky-mens-basketball-champions-classic/
