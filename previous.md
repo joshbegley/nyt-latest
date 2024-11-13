@@ -1,3 +1,7 @@
+**Scoop City: Five more coaches to watch**\
+`A look at why five coaches are on the hot seat, plus a quick mock of the 2025 QB class. `\
+https://nytimes.com/athletic/5919868/2024/11/13/five-nfl-coaches-hot-seat-scoop-city/
+
 **How Did a Golf Course in the Desert Get So Lush? Let Us Explain.**\
 `For the DP World Tour Championship in Dubai, it took planning and water. “The desert golf courses are actually the most efficient users of water out of necessity,” a U.S.G.A. official said.`\
 https://nytimes.com/2024/11/13/sports/golf/dubai-golf-course-desert-water.html
@@ -27,14 +31,10 @@ https://nytimes.com/2024/11/13/dining/easy-sausage-dinner-recipe.html
 https://nytimes.com/athletic/5919761/2024/11/13/elly-skenes-topps-chrome-update/
 
 **Trump’s Immigration Plans Could Bring an Economic Toll**\
-`Expelling noncitizens on a mass scale is likely to raise prices on goods and services and lower employment rates for U.S. workers, economists say.`\
+`Expelling noncitizens on a mass scale is likely to raise prices on goods and services and lower employment rates for U.S. workers, many economists say.`\
 https://nytimes.com/2024/11/13/business/economy/trump-immigration-inflation-prices.html
 
 **Workers in China Remove Flowers at Memorial for Car Attack Victims**\
 `Flowers placed at the site of a deadly car attack in Zhuhai, China, were cleared as officials turned away bystanders and discouraged them from taking photos.`\
 https://nytimes.com/video/world/asia/100000009823051/china-car-attack-flowers-removed.html
-
-**Amsterdam Is About Jew Hatred — and Gaza**\
-`It’s not just about antisemitism.`\
-https://nytimes.com/live/2024/11/12/opinion/thepoint/friedman-gaza-amsterdam-antisemitism
 

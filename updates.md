@@ -1,3 +1,11 @@
+**Scoop City: Five more coaches to watch**\
+`A look at why five coaches are on the hot seat, plus a quick mock of the 2025 QB class. `\
+https://nytimes.com/athletic/5919868/2024/11/13/five-nfl-coaches-hot-seat-scoop-city/
+
+**Trump’s Immigration Plans Could Bring an Economic Toll**\
+`Expelling noncitizens on a mass scale is likely to raise prices on goods and services and lower employment rates for U.S. workers, many economists say.`\
+https://nytimes.com/2024/11/13/business/economy/trump-immigration-inflation-prices.html
+
 **How Did a Golf Course in the Desert Get So Lush? Let Us Explain.**\
 `For the DP World Tour Championship in Dubai, it took planning and water. “The desert golf courses are actually the most efficient users of water out of necessity,” a U.S.G.A. official said.`\
 https://nytimes.com/2024/11/13/sports/golf/dubai-golf-course-desert-water.html
