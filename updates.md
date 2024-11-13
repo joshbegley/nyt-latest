@@ -1,3 +1,7 @@
+**CFP rankings: Georgia bumped out of bracket, Indiana climbs to No. 5**\
+`The Big Ten boasts four of the top five teams with Indiana climbing to the fifth spot behind No. 4 Penn State.`\
+https://nytimes.com/athletic/5918690/2024/11/12/college-football-playoff-rankings-georgia-boise-state/
+
 **Broncos assistant Mike Westhoff resigning for medical reasons**\
 `Westhoff began experiencing blurry vision during a team meeting last week. `\
 https://nytimes.com/athletic/5918760/2024/11/12/broncos-assistant-head-coach-mike-westhoff-resigning-medical-reasons/

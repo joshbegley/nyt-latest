@@ -1,3 +1,7 @@
+**CFP rankings: Georgia bumped out of bracket, Indiana climbs to No. 5**\
+`The Big Ten boasts four of the top five teams with Indiana climbing to the fifth spot behind No. 4 Penn State.`\
+https://nytimes.com/athletic/5918690/2024/11/12/college-football-playoff-rankings-georgia-boise-state/
+
 **Broncos assistant Mike Westhoff resigning for medical reasons**\
 `Westhoff began experiencing blurry vision during a team meeting last week. `\
 https://nytimes.com/athletic/5918760/2024/11/12/broncos-assistant-head-coach-mike-westhoff-resigning-medical-reasons/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/kristi-noem-homeland-security-secreta
 **Penguins trade Lars Eller to Capitals for draft picks**\
 `The forward previously spent seven seasons with Washington earlier in his career and won the Stanley Cup with the team in 2018.`\
 https://nytimes.com/athletic/5918594/2024/11/12/penguins-capitals-lars-eller-trade/
-
-**Once They Were Neocons. Now Trump’s Foreign Policy Picks Are All ‘America First.’**\
-`President-elect Donald J. Trump is considering nominees who fit more comfortably within his often erratic worldview, in which deal-making reigns over ideology.`\
-https://nytimes.com/2024/11/12/us/politics/trump-foreign-policy-neocons-america-first.html
 
