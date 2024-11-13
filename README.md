@@ -1,3 +1,7 @@
+**Jordan Klepper Isn’t Wild About the ‘First Buddy,’ Elon Musk**\
+`“Trump’s been getting something that Elon’s 11 children will never receive: his full attention,” Klepper said on “The Daily Show.”`\
+https://nytimes.com/2024/11/13/arts/television/jordan-klepper-elon-musk.html
+
 **We Spoke With 13 Young Undecided Americans for Months. Here’s How They Voted.**\
 `The group of young undecided voters meets for the final time.`\
 https://nytimes.com/interactive/2024/11/13/opinion/focusgroup-young-undecided-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869206/2024/11/13/fabian-hurzeler-brighton-premier
 **'Take me back to the 2000s': Premier League nostalgia and the perils of comparing different eras**\
 `Trying to evaluate the football of the Noughties through a modern lens - and vice versa - is fraught with difficulty. We gave it a try…`\
 https://nytimes.com/athletic/5917161/2024/11/13/premier-league-best-era-comparison-nostalgia/
-
-**More than a year on from Women's World Cup win, why can't Spain see change back home?**\
-`We consulted 12 of 16 clubs that made up Liga F in the 2023-24 season to find out about the state of top-flight women’s football in Spain`\
-https://nytimes.com/athletic/5917873/2024/11/13/spain-womens-world-cup-liga-f/
 
