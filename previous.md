@@ -2,6 +2,10 @@
 `The Big Ten boasts four of the top five teams with Indiana climbing to the fifth spot behind No. 4 Penn State.`\
 https://nytimes.com/athletic/5918690/2024/11/12/college-football-playoff-rankings-georgia-boise-state/
 
+**College Football Playoff 2024 projections: Will Miami, Georgia make it after losses?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/12/college-football-playoff-projections-odds/
+
 **Broncos assistant Mike Westhoff resigning for medical reasons**\
 `Westhoff began experiencing blurry vision during a team meeting last week. `\
 https://nytimes.com/athletic/5918760/2024/11/12/broncos-assistant-head-coach-mike-westhoff-resigning-medical-reasons/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5918760/2024/11/12/broncos-assistant-head-coach-mik
 `The State Department said Israel needs to take more steps to improve the situation among Palestinians. The United States had given the country 30 days to meet aid criteria.`\
 https://nytimes.com/2024/11/12/us/politics/israel-weapons-gaza-aid.html
 
-**Hunter Dickinson lifts Kansas past Michigan State in ugly Champions Classic opener**\
+**What we learned about Kansas, Michigan State in a Champions Classic rock fight**\
 `The win pushed Bill Self past legendary coach Phog Allen for the most wins by any coach in KU history (591).`\
 https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hold-off-michigan-state-in-champions-classic-rock-fight/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/nyregion/jfk-lga-food-prices.html
 **Trump Picks Kristi Noem for Homeland Security Secretary**\
 `Ms. Noem, the governor of South Dakota, would play a major role in carrying out the president-elect’s promises to crack down on the border and deport millions of people.`\
 https://nytimes.com/2024/11/12/us/politics/kristi-noem-homeland-security-secretary-trump.html
-
-**Penguins trade Lars Eller to Capitals for draft picks**\
-`The forward previously spent seven seasons with Washington earlier in his career and won the Stanley Cup with the team in 2018.`\
-https://nytimes.com/athletic/5918594/2024/11/12/penguins-capitals-lars-eller-trade/
 

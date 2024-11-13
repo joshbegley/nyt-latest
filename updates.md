@@ -1,3 +1,11 @@
+**College Football Playoff 2024 projections: Will Miami, Georgia make it after losses?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/12/college-football-playoff-projections-odds/
+
+**What we learned about Kansas, Michigan State in a Champions Classic rock fight**\
+`The win pushed Bill Self past legendary coach Phog Allen for the most wins by any coach in KU history (591).`\
+https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hold-off-michigan-state-in-champions-classic-rock-fight/
+
 **CFP rankings: Georgia bumped out of bracket, Indiana climbs to No. 5**\
 `The Big Ten boasts four of the top five teams with Indiana climbing to the fifth spot behind No. 4 Penn State.`\
 https://nytimes.com/athletic/5918690/2024/11/12/college-football-playoff-rankings-georgia-boise-state/
