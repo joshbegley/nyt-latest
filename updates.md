@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Biden and Trump to Meet, Honoring a Tradition**\
+`The president was scheduled to host his successor at the White House, a courtesy Mr. Trump did not extend to Mr. Biden after losing in 2020. Elon Musk was expected to join Mr. Trump in a meeting with House Republicans.`\
+https://nytimes.com/live/2024/11/13/us/trump-news
+
 **After falling for months, mortgage rates are rising again. Why?**\
 `By Jeanna Smialek and Danielle Kaye`\
 https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/after-falling-for-months-mortgage-rates-are-rising-again-why

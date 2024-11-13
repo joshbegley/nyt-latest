@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5918724/2024/11/13/dodgers-pitching-plans-roki-sasa
 https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/how-the-publics-fury-over-inflation-shaped-the-vote
 
 **Trump Transition Live Updates: Biden and Trump to Meet, Honoring a Tradition**\
-`The president and his successor were scheduled to meet Wednesday at the White House, a courtesy Mr. Trump did not extend to Mr. Biden after losing in 2020.`\
+`The president was scheduled to host his successor at the White House, a courtesy Mr. Trump did not extend to Mr. Biden after losing in 2020. Elon Musk was expected to join Mr. Trump in a meeting with House Republicans.`\
 https://nytimes.com/live/2024/11/13/us/trump-news
 
 **2,100 Fakes Rounded Up in Art Forgeries Bust**\
