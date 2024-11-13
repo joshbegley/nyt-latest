@@ -1,3 +1,11 @@
+**What to know about the inflation report.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/what-to-know-about-the-inflation-report
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/13/nhl-standings-playoffs-projections-odds/
+
 **A $4 Billion Plan to Settle Fire Claims Is Heading to Hawaii’s Supreme Court**\
 `Insurers that paid claims in Maui say a deal unfairly keeps them from recouping their own losses.`\
 https://nytimes.com/2024/11/13/business/lahaina-fire-settlement-court-battle-insurers.html
