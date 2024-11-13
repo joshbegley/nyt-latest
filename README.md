@@ -1,3 +1,7 @@
+**Viewers Flee MSNBC, and Flock to Fox News, in Wake of Election**\
+`Prime-time viewership at MSNBC has fallen 53 percent compared with October, and jumped 21 percent on Fox News.`\
+https://nytimes.com/2024/11/13/business/media/msnbc-fox-news-ratings-election.html
+
 **MLS investigating physical altercation involving Twellman during Inter Miami game**\
 `The alleged incident occurred around game one of the Eastern Conference quarterfinals between Miami and Atlanta United on October 25`\
 https://nytimes.com/athletic/5919690/2024/11/13/taylor-twellman-altercation-mls-miami-atlanta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920239/2024/11/13/darren-fletcher-ban-manchester-u
 **Their Pissarro Is Staying in Germany, but Their Story Is Getting Out**\
 `A woman whose family had to sell a painting in the Holocaust and a museum have struck a deal. The museum will keep the work but will help to publish a book telling the family’s story.`\
 https://nytimes.com/2024/11/13/arts/design/pissarro-heirs-germany-museum-holocaust.html
-
-**What’s in Our Queue? ‘My Brilliant Friend’ and More **\
-`By Tiffany May`\
-https://nytimes.com/card/2024/11/13/arts/editors-recommendations-brilliantfriend
 
