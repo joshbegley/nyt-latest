@@ -1,3 +1,15 @@
+**Workers in China Remove Flowers at Memorial for Car Attack Victims**\
+`Flowers placed at the site of a deadly car attack in Zhuhai, China, were cleared as officials turned away bystanders and discouraged them from taking photos.`\
+https://nytimes.com/video/world/asia/100000009823051/china-car-attack-flowers-removed.html
+
+**Amsterdam Is About Jew Hatred — and Gaza**\
+`It’s not just about antisemitism.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/friedman-gaza-amsterdam-antisemitism
+
+**Bucks get contributions across the board in much-needed win against Raptors**\
+`Without Damian Lillard, the Bucks would need to find offense anywhere they could against Toronto. They did it by keeping things simple.`\
+https://nytimes.com/athletic/5919108/2024/11/13/bucks-giannis-antetokounmpo-ryan-rollins/
+
 **The Rangers are very good, and it's clearly not enough this season**\
 `Fourteen games in, the Rangers' record is very good. But none of it matters if the defense and key players can't get their act together.`\
 https://nytimes.com/athletic/5919640/2024/11/13/new-york-rangers-nhl-season-analysis/

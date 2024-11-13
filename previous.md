@@ -1,3 +1,15 @@
+**Workers in China Remove Flowers at Memorial for Car Attack Victims**\
+`Flowers placed at the site of a deadly car attack in Zhuhai, China, were cleared as officials turned away bystanders and discouraged them from taking photos.`\
+https://nytimes.com/video/world/asia/100000009823051/china-car-attack-flowers-removed.html
+
+**Amsterdam Is About Jew Hatred — and Gaza**\
+`It’s not just about antisemitism.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/friedman-gaza-amsterdam-antisemitism
+
+**Bucks get contributions across the board in much-needed win against Raptors**\
+`Without Damian Lillard, the Bucks would need to find offense anywhere they could against Toronto. They did it by keeping things simple.`\
+https://nytimes.com/athletic/5919108/2024/11/13/bucks-giannis-antetokounmpo-ryan-rollins/
+
 **The Rangers are very good, and it's clearly not enough this season**\
 `Fourteen games in, the Rangers' record is very good. But none of it matters if the defense and key players can't get their act together.`\
 https://nytimes.com/athletic/5919640/2024/11/13/new-york-rangers-nhl-season-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5919107/2024/11/13/atlanta-dream-coach-hire-karl-sm
 **Cowboys Today: The distracting sun remains a major storyline and Deion deflects**\
 `Also, in a conversation with Deion Sanders, Michael Irvin asked the Colorado Buffaloes coach about his interest in coaching the Cowboys.`\
 https://nytimes.com/athletic/5919141/2024/11/13/cowboys-today-the-distracting-sun-remains-a-major-storyline-and-deion-deflects/
-
-**Trump’s visit with Obama 8 years ago was surprisingly cordial.**\
-`The last time`\
-https://nytimes.com/live/2024/11/13/us/trump-news/trumps-visit-with-obama-8-years-ago-was-surprisingly-cordial
-
-**Penguins Today: Fallout from the Lars Eller trade**\
-`One thing is certain: Kyle Dubas is open for business.`\
-https://nytimes.com/athletic/5919773/2024/11/13/penguins-today-lars-eller-trade-capitals/
-
-**Nonprofits Vow a New Resistance. Will Donors Pay Up?**\
-`Groups that used lawsuits and protests to stymie the first Trump administration will face longer odds this time. The courts are more conservative, and patrons are dejected.`\
-https://nytimes.com/2024/11/13/us/politics/trump-nonprofits-resistance.html
 
