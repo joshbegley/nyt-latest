@@ -1,3 +1,7 @@
+**Trump Chooses Tulsi Gabbard for Director of National Intelligence**\
+`Ms. Gabbard, a former congresswoman who left the Democratic Party, would hold a top job in the administration, overseeing 18 spy agencies.`\
+https://nytimes.com/2024/11/13/us/politics/trump-tulsi-gabbard-director-national-intelligence.html
+
 **‘Emilia Pérez’ Review: A Song and Dance of Transformation**\
 `The star of Jacques Audiard’s showy new musical about a trans Mexican crime boss, Karla Sofía Gascón, adds soul to the melodrama. Zoe Saldaña also shines.`\
 https://nytimes.com/2024/11/13/movies/emilia-perez-review.html
