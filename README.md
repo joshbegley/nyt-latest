@@ -1,3 +1,7 @@
+**Explosion in the Bronx Disrupts Amtrak Service**\
+`A thick column of smoke billowed from the tracks before bursting into flames.`\
+https://nytimes.com/video/nyregion/100000009822651/amtrak-bronx-explosion-fire.html
+
 **Mark Pope pushes all the right buttons in Kentucky's rally past Duke**\
 `New Wildcats head man Mark Pope made all the right decisions down the stretch of a 77-72 win over No. 6 Duke.`\
 https://nytimes.com/athletic/5919023/2024/11/12/duke-kentucky-mens-basketball-champions-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/crosswords/daily-puzzle-2024-11-13.html
 **Evans Defeats Caraveo in Colorado, Flipping a Key House Seat for the G.O.P.**\
 `Gabe Evans, a right-wing state representative, defeated Representative Yadira Caraveo, a first-term Democrat who was the first Latina elected to federal office in Colorado.`\
 https://nytimes.com/2024/11/12/us/elections/colorado-house-evans-caraveo.html
-
-**Trump Taps Elon Musk and Vivek Ramaswamy to Slash Government**\
-`The two wealthy entrepreneurs will lead what the president-elect called the Department of Government Efficiency, which he said would seek “drastic change.” But the announcement left a lot unanswered.`\
-https://nytimes.com/2024/11/12/us/politics/elon-musk-vivek-ramaswamy-trump.html
 
