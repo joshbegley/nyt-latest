@@ -1,3 +1,7 @@
+**Ukraine Prioritizes Security, Not Territory, as Trump Pushes Truce Talks**\
+`President-elect Donald J. Trump may accelerate the timetable for a truce. Kyiv views guarantees against renewed aggression as crucial to any settlement.`\
+https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
+
 **For Now, Senate Republicans Say No to MAGA Excess**\
 `Rick Scott, who would have agreed to Trump’s idea of bypassing the Senate for nominations, lost his bid to become leader.`\
 https://nytimes.com/2024/11/13/opinion/senate-republican-leader.html

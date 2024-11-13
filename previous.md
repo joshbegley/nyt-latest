@@ -14,7 +14,7 @@ https://nytimes.com/2024/11/13/world/asia/india-supreme-court-bulldozer-justice.
 `Cunningham, the nation's No. 16 prospect and No. 2 wide receiver in the 247Sports Composite, visited Ole Miss over the weekend.`\
 https://nytimes.com/athletic/5920276/2024/11/13/ole-miss-flips-caleb-cunningham-alabama-recruiting/
 
-**As Trump Pushes Peace Talks, Ukraine Prioritizes Security Guarantees**\
+**Ukraine Prioritizes Security, Not Territory, as Trump Pushes Truce Talks**\
 `President-elect Donald J. Trump may accelerate the timetable for a truce. Kyiv views guarantees against renewed aggression as crucial to any settlement.`\
 https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
 
