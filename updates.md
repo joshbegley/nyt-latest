@@ -1,3 +1,7 @@
+**After Deadly Car Rampage, Chinese Officials Try to Erase Any Hint of It**\
+`Workers cleared away flowers laid at the site of the attack, while censors scrubbed online criticism. The goal is to stifle potential questions and criticism.`\
+https://nytimes.com/2024/11/13/world/asia/china-car-zhuhai-ramming.html
+
 **Thompson: Why Giannis offers first case in how NBA's new rules impact stars**\
 `If Dame and Giannis aren’t the takeover-the-league duo we thought, what is the Bucks’ next move? Whatever it is, Giannis should stay put.`\
 https://nytimes.com/athletic/5916112/2024/11/13/giannis-antetokounmpo-bucks-nba-cba-rules/
