@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Whole team falls flat in dismal loss to Senators**\
+`The Leafs were shut out at home for the first time since November of 2021.`\
+https://nytimes.com/athletic/5918576/2024/11/12/maple-leafs-report-cards-senators-shutout/
+
 **What Strings of Random Letters Make**\
 `Todd Gross reviews the state of things.`\
 https://nytimes.com/2024/11/12/crosswords/daily-puzzle-2024-11-13.html

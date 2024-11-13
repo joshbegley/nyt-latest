@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Whole team falls flat in dismal loss to Senators**\
+`The Leafs were shut out at home for the first time since November of 2021.`\
+https://nytimes.com/athletic/5918576/2024/11/12/maple-leafs-report-cards-senators-shutout/
+
 **What Strings of Random Letters Make**\
 `Todd Gross reviews the state of things.`\
 https://nytimes.com/2024/11/12/crosswords/daily-puzzle-2024-11-13.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/israel-weapons-gaza-aid.html
 **What we learned about Kansas, Michigan State in a Champions Classic rock fight**\
 `The win pushed Bill Self past legendary coach Phog Allen for the most wins by any coach in KU history (591).`\
 https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hold-off-michigan-state-in-champions-classic-rock-fight/
-
-**Gerry Faust, Coach Who Lived a Dream at Notre Dame, Dies at 89**\
-`Jumping from the high school ranks to lead one of the most storied programs in college football, he lost games but rarely lost hope.`\
-https://nytimes.com/2024/11/12/sports/ncaafootball/gerry-faust-dead.html
 
