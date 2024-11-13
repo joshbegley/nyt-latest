@@ -7,7 +7,7 @@ https://nytimes.com/2024/11/13/nyregion/firefighter-arson-long-island-cotton-bal
 https://nytimes.com/2024/11/13/well/ozempic-prediabetes.html
 
 **New York to Revive Congestion Pricing With $9 Toll**\
-`Gov. Kathy Hochul is expected to announce the revised program on Thursday after having put the original $15 toll on hold.`\
+`Gov. Kathy Hochul is expected to announce the revised program on Thursday with the aim of putting it in place before Donald Trump takes office.`\
 https://nytimes.com/2024/11/13/nyregion/congestion-pricing-nine-dollars.html
 
 **'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
