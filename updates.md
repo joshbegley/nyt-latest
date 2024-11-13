@@ -1,3 +1,11 @@
+**Draymond Green puts defensive stamp on Klay Thompson's big night**\
+`"Unreal" is how Steph Curry described Green's start to the season: "He's been all-world defensively."`\
+https://nytimes.com/athletic/5918964/2024/11/13/draymond-green-warriors-klay-thompson-return/
+
+**Wins in the West Bring Republicans Closer to a House Majority**\
+`With a dozen races still to be called, the G.O.P. was two seats away from the 218 that would allow the party to claim a coveted governing trifecta: control of the House, Senate and White House.`\
+https://nytimes.com/2024/11/13/us/politics/republicans-closer-near-house-majority.html
+
 **Ukraine Prioritizes Security, Not Territory, as Trump Pushes Truce Talks**\
 `President-elect Donald J. Trump may accelerate the timetable for a truce. Kyiv views guarantees against renewed aggression as crucial to any settlement.`\
 https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
