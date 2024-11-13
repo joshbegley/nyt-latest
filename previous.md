@@ -1,3 +1,7 @@
+**We Spoke With 13 Young Undecided Americans for Months. Here’s How They Voted.**\
+`The group of young undecided voters meets for the final time.`\
+https://nytimes.com/interactive/2024/11/13/opinion/focusgroup-young-undecided-voters.html
+
 **Can Boubakary Soumare finally establish himself at Leicester City?**\
 `French midfielder has been given a chance by Steve Cooper in recent weeks but is nearing the final 18 months of his contract`\
 https://nytimes.com/athletic/5917036/2024/11/13/boubakary-soumare-leicester-city-steve-cooper/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917161/2024/11/13/premier-league-best-era-comparis
 **More than a year on from Women's World Cup win, why can't Spain see change back home?**\
 `We consulted 12 of 16 clubs that made up Liga F in the 2023-24 season to find out about the state of top-flight women’s football in Spain`\
 https://nytimes.com/athletic/5917873/2024/11/13/spain-womens-world-cup-liga-f/
-
-**Ruben Amorim, Matt Busby and the men who managed Manchester United in their thirties**\
-`The Portuguese will be the eighth man in his 30s to take charge of Manchester United - and his predecessors faced very different challenges`\
-https://nytimes.com/athletic/5902920/2024/11/13/amorim-manchester-united-busby-albut/
 

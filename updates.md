@@ -1,3 +1,7 @@
+**We Spoke With 13 Young Undecided Americans for Months. Here’s How They Voted.**\
+`The group of young undecided voters meets for the final time.`\
+https://nytimes.com/interactive/2024/11/13/opinion/focusgroup-young-undecided-voters.html
+
 **Can Boubakary Soumare finally establish himself at Leicester City?**\
 `French midfielder has been given a chance by Steve Cooper in recent weeks but is nearing the final 18 months of his contract`\
 https://nytimes.com/athletic/5917036/2024/11/13/boubakary-soumare-leicester-city-steve-cooper/
