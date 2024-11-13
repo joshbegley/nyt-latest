@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5919621/2024/11/13/cfp-selection-committee-rankings
 
 **Russia Launches Missiles Against Ukraine’s Capital**\
 `The attack ended a two-month pause in missile strikes on Kyiv, which had only been hit by Russian drones during that period.`\
-https://nytimes.com/2024/11/13/world/europe/russia-launches-missiles-against-ukraines-capital.html
+https://nytimes.com/2024/11/13/world/europe/russia-missiles-ukraine-kyiv.html
 
 **The Fashion World Fears High Tariffs**\
 `President-elect Donald J. Trump has threatened a tax of at least 60 percent on goods from China — a move with the potential to decimate small American brands.`\
