@@ -1,3 +1,7 @@
+**Why the Messy Cardinals of ‘Conclave’ Make for Great Memes**\
+`Thanks to characters we recognize from reality TV, the Vatican intrigues have jumped from stuffy prestige drama to the social-media scrum.`\
+https://nytimes.com/2024/11/13/movies/conclave-memes.html
+
 **One of basketball's most exciting offenses is coming to the WNBA after Atlanta Dream hire**\
 `Karl Smesko's efficient shooting teams made him a standout at FGCU. Will it translate to the pros?`\
 https://nytimes.com/athletic/5919107/2024/11/13/atlanta-dream-coach-hire-karl-smesko-wnba/

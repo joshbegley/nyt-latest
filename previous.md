@@ -1,3 +1,7 @@
+**Why the Messy Cardinals of ‘Conclave’ Make for Great Memes**\
+`Thanks to characters we recognize from reality TV, the Vatican intrigues have jumped from stuffy prestige drama to the social-media scrum.`\
+https://nytimes.com/2024/11/13/movies/conclave-memes.html
+
 **One of basketball's most exciting offenses is coming to the WNBA after Atlanta Dream hire**\
 `Karl Smesko's efficient shooting teams made him a standout at FGCU. Will it translate to the pros?`\
 https://nytimes.com/athletic/5919107/2024/11/13/atlanta-dream-coach-hire-karl-smesko-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5834883/2024/11/13/nhl-standings-playoffs-projectio
 **A $4 Billion Plan to Settle Fire Claims Is Heading to Hawaii’s Supreme Court**\
 `Insurers that paid claims in Maui say a deal unfairly keeps them from recouping their own losses.`\
 https://nytimes.com/2024/11/13/business/lahaina-fire-settlement-court-battle-insurers.html
-
-**Barcelona's Ansu Fati out for four weeks with hamstring injury**\
-`Barcelona winger Ansu Fatu will be unavailable for the next four weeks due to a hamstring injury.`\
-https://nytimes.com/athletic/5919704/2024/11/13/ansu-fati-injury-barcelona/
 
