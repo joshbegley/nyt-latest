@@ -1,3 +1,11 @@
+**What to know about the inflation report.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/what-to-know-about-the-inflation-report
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/13/nhl-standings-playoffs-projections-odds/
+
 **A $4 Billion Plan to Settle Fire Claims Is Heading to Hawaii’s Supreme Court**\
 `Insurers that paid claims in Maui say a deal unfairly keeps them from recouping their own losses.`\
 https://nytimes.com/2024/11/13/business/lahaina-fire-settlement-court-battle-insurers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5919377/2024/11/13/miami-heat-erik-spoelstra-time-o
 **The CFP selection committee glossary: 12 terms to know for the 12-team field**\
 `ESPN’s weekly romp through the selection committee’s latest Top 25 is littered with vague analysis and poorly defined terminology.`\
 https://nytimes.com/athletic/5919621/2024/11/13/cfp-selection-committee-rankings-metrics/
-
-**Ubben: Goodbye what-ifs, college football's champion will finally be decided on the field**\
-`With the expanded 12-team Playoff, teams will finally get the chance to prove how worthy they are of the sport's biggest prize.`\
-https://nytimes.com/athletic/5918134/2024/11/13/college-football-playoff-expansion-national-championship/
-
-**Russia Launches Missiles Against Ukraine’s Capital**\
-`The attack ended a two-month pause in missile strikes on Kyiv, which had only been hit by Russian drones during that period.`\
-https://nytimes.com/2024/11/13/world/europe/russia-missiles-ukraine-kyiv.html
 
