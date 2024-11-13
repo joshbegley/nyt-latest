@@ -1,3 +1,7 @@
+**Blues' Robert Thomas takes big step in return from fractured ankle: 'It's a good sign'**\
+`The forward skated with the club Wednesday for the first time since suffering a fractured ankle on Oct. 22.`\
+https://nytimes.com/athletic/5920100/2024/11/13/robert-thomas-fractured-ankle-recovery/
+
 **After a Mayor’s Beheading, Mexican Authorities Arrest His Top Security Official**\
 `Mayor Alejandro Arcos Catalán was killed less than a week after taking office in Chilpancingo. On Tuesday, the authorities arrested the city’s public security minister in connection with his death.`\
 https://nytimes.com/2024/11/13/world/americas/chilpancingo-mayor-beheaded-mexico-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/style/mark-zuckerberg-tpain-get-low.html
 **Rancher, Politician, Trump Ally: Who Is Kristi Noem, the Homeland Security Pick?**\
 `The governor of South Dakota has defied coronavirus restrictions and been a vocal critic of President Biden’s immigration policies.`\
 https://nytimes.com/2024/11/13/us/politics/kristi-noem-homeland-security.html
-
-**Thursday Briefing: Trump’s Victory Lap**\
-`Plus, an artist sticks up for A.I.`\
-https://nytimes.com/2024/11/13/briefing/trump-ukraine-netanyahu.html
 

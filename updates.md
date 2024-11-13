@@ -1,3 +1,7 @@
+**Blues' Robert Thomas takes big step in return from fractured ankle: 'It's a good sign'**\
+`The forward skated with the club Wednesday for the first time since suffering a fractured ankle on Oct. 22.`\
+https://nytimes.com/athletic/5920100/2024/11/13/robert-thomas-fractured-ankle-recovery/
+
 **After a Mayor’s Beheading, Mexican Authorities Arrest His Top Security Official**\
 `Mayor Alejandro Arcos Catalán was killed less than a week after taking office in Chilpancingo. On Tuesday, the authorities arrested the city’s public security minister in connection with his death.`\
 https://nytimes.com/2024/11/13/world/americas/chilpancingo-mayor-beheaded-mexico-arrest.html
