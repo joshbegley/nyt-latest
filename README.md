@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Our Unspoken Sibling Sign’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/11/13/style/tiny-modern-love-stories-our-unspoken-sibling-sign.html
+
 **20 Years of Modern Love**\
 `A special package of articles exploring the history and impact of the beloved column.`\
 https://nytimes.com/spotlight/20-years-of-modern-love
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920130/2024/11/13/oklahoma-football-brent-venables
 **Jaguars QB Trevor Lawrence out vs. Lions, could return after bye week**\
 `Mac Jones is expected to start against Detroit this week.`\
 https://nytimes.com/athletic/5920012/2024/11/13/trevor-lawrence-out-jaguars-lions/
-
-**Republican Senators Elect Thune as Next Majority Leader**\
-`Senator John Thune of South Dakota emerged victorious over a right-wing challenge from Senator Rick Scott of Florida.`\
-https://nytimes.com/2024/11/13/us/politics/trump-senate-thune-cornyn-scott.html
 
