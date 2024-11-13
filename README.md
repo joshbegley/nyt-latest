@@ -1,3 +1,11 @@
+**Draymond Green puts defensive stamp on Klay Thompson's big night**\
+`"Unreal" is how Steph Curry described Green's start to the season: "He's been all-world defensively."`\
+https://nytimes.com/athletic/5918964/2024/11/13/draymond-green-warriors-klay-thompson-return/
+
+**Wins in the West Bring Republicans Closer to a House Majority**\
+`With a dozen races still to be called, the G.O.P. was two seats away from the 218 that would allow the party to claim a coveted governing trifecta: control of the House, Senate and White House.`\
+https://nytimes.com/2024/11/13/us/politics/republicans-closer-near-house-majority.html
+
 **Hadji, Mets announcer Keith Hernandez's internet-famous cat, dies**\
 `"It was his time to go," Hernandez said in a post on X about his 22-year-old cat.`\
 https://nytimes.com/athletic/5920307/2024/11/13/hadji-keith-hernandez-cat-dead/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5919690/2024/11/13/taylor-twellman-altercation-mls-
 **Trump’s Pick for Ambassador to Israel Sells a Children’s Book Praising Him**\
 `Mike Huckabee, the former governor of Arkansas whom Mr. Trump has selected for a crucial diplomatic role, co-founded a company selling a cartoon “Kids Guide to President Trump.”`\
 https://nytimes.com/2024/11/13/us/politics/huckabee-trump-kids-books.html
-
-**Big Apple Circus Review: A City Tour, Pizza Rats Included**\
-`This year’s show is an underwhelming exercise in nostalgia. But it’s still a joy to be under the big top with acts like the Wheel of Destiny.`\
-https://nytimes.com/2024/11/13/theater/big-apple-circus-review.html
-
-**NFL best bets Week 11: Patrick Mahomes as an underdog is too good to pass up**\
-`Austin Mock has three best bets to start Week 11, including again taking Patrick Mahomes as an underdog.`\
-https://nytimes.com/athletic/5920169/2024/11/13/nfl-best-bets-week-11-patrick-mahomes/
 
