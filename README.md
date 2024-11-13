@@ -1,3 +1,11 @@
+**Bronny James plans to only play in G League home games**\
+`The South Bay Lakers play 24 home games this season, with their next scheduled for Sunday against the Stockton Kings.`\
+https://nytimes.com/athletic/5920257/2024/11/13/bronny-james-g-league-lakers-home-games/
+
+**Kane frustrated by England squad withdrawals: 'I don't really like it'**\
+`England captain Harry Kane has expressed his frustration after eight players were withdrawn from international duty through injury.`\
+https://nytimes.com/athletic/5920137/2024/11/13/england-squad-injuries-harry-kane/
+
 **Man United coach Fletcher 'needed to be held back' from referee, report reveals**\
 `Darren Fletcher launched a foul-mouthed tirade at referee Samuel Barrott and had to be restrained by Manchester United staff during the club’s victory over Brentford last month.`\
 https://nytimes.com/athletic/5920239/2024/11/13/darren-fletcher-ban-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5920197/2024/11/13/college-football-rankings-georgi
 **Israeli Court Rejects Netanyahu’s Bid to Delay Corruption Trial Testimony**\
 `The court ruled that Prime Minister Benjamin Netanyahu must take the stand on Dec. 2 in a trial that has stretched out for more than four years.`\
 https://nytimes.com/2024/11/13/world/middleeast/israel-netanyahu-trial.html
-
-**Tiny Love Stories: ‘Our Unspoken Sibling Sign’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/11/13/style/tiny-modern-love-stories-our-unspoken-sibling-sign.html
-
-**20 Years of Modern Love**\
-`A special package of articles exploring the history and impact of the beloved column.`\
-https://nytimes.com/spotlight/20-years-of-modern-love
 
