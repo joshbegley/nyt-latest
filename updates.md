@@ -1,3 +1,11 @@
+**20 Years of Modern Love**\
+`A special package of articles exploring the history and impact of the beloved column.`\
+https://nytimes.com/spotlight/20-years-of-modern-love
+
+**Could Trump Shut Down the Department of Education?**\
+`Donald Trump said he would use the department to further his priorities. He also said he would close it. Both options would face difficulties.`\
+https://nytimes.com/2024/11/13/us/trump-close-department-of-education.html
+
 **Trump Meets With Jubilant House G.O.P. and Jokes About a Third Term**\
 `“Isn’t it nice to win?” the president-elect asked to raucous applause by fellow Republicans. The influential billionaire Elon Musk joined him at the meeting and also received a standing ovation.`\
 https://nytimes.com/2024/11/13/us/politics/trump-house-elon-musk.html
