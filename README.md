@@ -1,3 +1,7 @@
+**Caitlin Clark’s morning on the LPGA Tour: Shanked shots, pured drives and so many fans**\
+`Clark played with world No. 1 Nelly Korda and legend Annika Sorenstam at The Annika on Wednesday, driving thousands to the tournament.`\
+https://nytimes.com/athletic/5920207/2024/11/13/caitlin-clark-lpga-golf-annika/
+
 **Patrick Mahomes, Travis Kelce's homes burglarized last month**\
 `A Cass County Sheriff’s Office spokesperson said an investigation into the reported burglary at Mahomes' home is ongoing.`\
 https://nytimes.com/athletic/5919923/2024/11/13/mahomes-kelce-home-burglaries/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
 **Viewers Flee MSNBC, and Flock to Fox News, in Wake of Election**\
 `Prime-time viewership at MSNBC has fallen 53 percent from October, and jumped 21 percent on Fox News.`\
 https://nytimes.com/2024/11/13/business/media/msnbc-fox-news-ratings-election.html
-
-**MLS investigating physical altercation involving Twellman during Inter Miami game**\
-`The alleged incident occurred around game one of the Eastern Conference quarterfinals between Miami and Atlanta United on October 25`\
-https://nytimes.com/athletic/5919690/2024/11/13/taylor-twellman-altercation-mls-miami-atlanta/
 
