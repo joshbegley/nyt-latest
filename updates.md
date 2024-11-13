@@ -1,3 +1,7 @@
+**Firefighters Battle Wildfire in New York City**\
+`Emergency responders worked to contain a brush fire in Inwood Hill Park in Manhattan on Wednesday afternoon.`\
+https://nytimes.com/video/weather/100000009824708/inwood-hill-new-york-fire.html
+
 **Palm Springs Reaches Nearly $27 Million Reparations Deal With Former Residents**\
 `The City Council will vote on a package for former Black and Latino residents of a neighborhood that burned more than 50 years ago.`\
 https://nytimes.com/2024/11/13/us/california-palm-springs-reparations.html
