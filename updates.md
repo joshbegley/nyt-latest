@@ -1,3 +1,43 @@
+**Blackhawks future roster, salary cap projection: Part 1**\
+`A time will come when the present will matter to the Chicago Blackhawks.`\
+https://nytimes.com/athletic/5917329/2024/11/13/blackhawks-roster-salary-cap-projection-2025-26/
+
+**Russell Wilson finds a way, Jets' defense unravels, Week 10 thoughts: Quick Outs**\
+`Wilson has raised the ceiling for the Steelers' offense since returning, while the Jets have gotten nothing of the Robert Saleh firing.`\
+https://nytimes.com/athletic/5917905/2024/11/13/nfl-week-10-russell-wilson-quick-outs/
+
+**It's time Ravens measure up to Steelers with first place in AFC North at stake**\
+`Baltimore has lost three straight to Pittsburgh and been swept in the season series in three of the past four years.`\
+https://nytimes.com/athletic/5918519/2024/11/13/baltimore-ravens-pittsburgh-steelers-mike-tomlin/
+
+**If not Alex Bregman, who? How the Astros could handle third base**\
+`Houston must have alternate plans for life without Bregman. Here are three avenues it could explore.`\
+https://nytimes.com/athletic/5918579/2024/11/13/astros-third-base-options-alex-bregman/
+
+**Where the Chicago Cubs fit in the Roki Sasaki sweepstakes **\
+`The Cubs have made themselves desirable to Japanese players, and their infrastructure might make a logical fit for Sasaki.`\
+https://nytimes.com/athletic/5918987/2024/11/13/cubs-roki-sasaki-fit/
+
+**What happens if Jets owner Woody Johnson leaves for the Trump administration again**\
+`Last week's election could result in an ownership change for the Jets — as the head coach, GM and quarterback hang in the balance.`\
+https://nytimes.com/athletic/5918431/2024/11/13/jets-owner-woody-johnson-trump-administration/
+
+**John Havlicek runs to No. 29 on The Athletic's 'The Basketball 100': 'His body wasn’t normal'**\
+`Throughout Havlicek’s Hall of Fame career, teammates marveled at his dependability, mental toughness, and physical endurance.`\
+https://nytimes.com/athletic/5909357/2024/11/13/john-havlicek-runs-to-no-29-on-the-athletics-the-basketball-100-his-body-wasnt-normal/
+
+**The skills that make Sidney Crosby an elite goal scorer**\
+`Sidney Crosby is on the doorstep of 600 career goals. Here are the habits that define him as a goal scorer.`\
+https://nytimes.com/athletic/5915203/2024/11/13/sidney-crosby-600-goals-penguins/
+
+**Trump’s Department for ‘Drastic Change,’ and the Race for Senate Leadership**\
+`Plus, the streaming services you never knew about.`\
+https://nytimes.com/2024/11/13/podcasts/trump-musk-senate.html
+
+**What Elon Musk Stands to Gain**\
+`The world’s richest man may now be the single most influential figure in the emerging White House of Donald Trump.`\
+https://nytimes.com/2024/11/13/podcasts/the-daily/elon-musk-trump.html
+
 **Republicans See a Great Economic Outlook. Now It’s Democrats Who Don’t.**\
 `Consumer sentiment among Republicans has soared to its highest point since Donald J. Trump left the White House, while declining among Democrats.`\
 https://nytimes.com/2024/11/13/business/economy/consumer-sentiment-trump.html

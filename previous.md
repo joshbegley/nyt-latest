@@ -1,40 +1,40 @@
-**Commanders notebook: Wide receiver production encouraging post-Jahan Dotson**\
-`Plus, when will Washington get Pro Bowl CB Marshon Lattimore on the field? And could power back Brian Robinson Jr. return vs. the Eagles?`\
-https://nytimes.com/athletic/5918563/2024/11/13/commanders-receivers-jahan-dotson-eagles/
+**Blackhawks future roster, salary cap projection: Part 1**\
+`A time will come when the present will matter to the Chicago Blackhawks.`\
+https://nytimes.com/athletic/5917329/2024/11/13/blackhawks-roster-salary-cap-projection-2025-26/
 
-**Aldridge: Embiid's return gives Sixers hope again — but they've heard this song before**\
-`"He is the piece. He is The Process," Paul George said of his Philly co-star, who made his season debut Tuesday.`\
-https://nytimes.com/athletic/5918424/2024/11/13/joel-embiid-return-sixers-nba/
+**Russell Wilson finds a way, Jets' defense unravels, Week 10 thoughts: Quick Outs**\
+`Wilson has raised the ceiling for the Steelers' offense since returning, while the Jets have gotten nothing of the Robert Saleh firing.`\
+https://nytimes.com/athletic/5917905/2024/11/13/nfl-week-10-russell-wilson-quick-outs/
 
-**Bengals' Lou Anarumo shuffles rotations seeking defensive solutions**\
-`Different players are getting their chance in the secondary, in particular, with multiple starters struggling.`\
-https://nytimes.com/athletic/5918751/2024/11/13/bengals-lou-anarumo-defense-rotations/
+**It's time Ravens measure up to Steelers with first place in AFC North at stake**\
+`Baltimore has lost three straight to Pittsburgh and been swept in the season series in three of the past four years.`\
+https://nytimes.com/athletic/5918519/2024/11/13/baltimore-ravens-pittsburgh-steelers-mike-tomlin/
 
-**Aid Deliveries to Gaza Remain Low Despite U.S. Warning to Israel**\
-`The Biden administration gave Israel 30 days to increase the flow of aid, warning that aid shipments into Gaza in September had reached an alarmingly low level.`\
-https://nytimes.com/2024/11/13/world/middleeast/gaza-aid-us-israel.html
+**If not Alex Bregman, who? How the Astros could handle third base**\
+`Houston must have alternate plans for life without Bregman. Here are three avenues it could explore.`\
+https://nytimes.com/athletic/5918579/2024/11/13/astros-third-base-options-alex-bregman/
 
-**Examining the Cowboys' atrocious turnover margin: 'Makes me sick'**\
-`The Cowboys are minus-10 in turnover margin this season and have only created eight takeaways through nine games.`\
-https://nytimes.com/athletic/5918700/2024/11/13/cowboys-turnover-margin-fumbles-interceptions/
+**Where the Chicago Cubs fit in the Roki Sasaki sweepstakes **\
+`The Cubs have made themselves desirable to Japanese players, and their infrastructure might make a logical fit for Sasaki.`\
+https://nytimes.com/athletic/5918987/2024/11/13/cubs-roki-sasaki-fit/
 
-**Ranking the Patriots' biggest positions of need for 2025: What will they do in the draft?**\
-`After 10 games, we're starting to get an idea of the Patriots' biggest needs for next season. How can they best help QB Drake Maye?`\
-https://nytimes.com/athletic/5917673/2024/11/13/patriots-positions-nfl-draft-free-agency/
+**What happens if Jets owner Woody Johnson leaves for the Trump administration again**\
+`Last week's election could result in an ownership change for the Jets — as the head coach, GM and quarterback hang in the balance.`\
+https://nytimes.com/athletic/5918431/2024/11/13/jets-owner-woody-johnson-trump-administration/
 
-**Panthers' bye-week thoughts: Bryce Young's confidence, money well spent, D.J. Wonnum's return**\
-`The Panthers have won two in a row and can feel good about investing in Chuba Hubbard along with several offseason additions on defense.`\
-https://nytimes.com/athletic/5917848/2024/11/13/panthers-bye-week-bryce-young-chuba-hubbard/
+**John Havlicek runs to No. 29 on The Athletic's 'The Basketball 100': 'His body wasn’t normal'**\
+`Throughout Havlicek’s Hall of Fame career, teammates marveled at his dependability, mental toughness, and physical endurance.`\
+https://nytimes.com/athletic/5909357/2024/11/13/john-havlicek-runs-to-no-29-on-the-athletics-the-basketball-100-his-body-wasnt-normal/
 
-**How Resilient Is the Emerging Trump Coalition?**\
-`It will be difficult for Democrats to reverse these dynamics.`\
-https://nytimes.com/2024/11/13/opinion/democrats-republicans-class-realignment.html
+**The skills that make Sidney Crosby an elite goal scorer**\
+`Sidney Crosby is on the doorstep of 600 career goals. Here are the habits that define him as a goal scorer.`\
+https://nytimes.com/athletic/5915203/2024/11/13/sidney-crosby-600-goals-penguins/
 
-**This Is 29 Years of International Climate Summits, Visualized**\
-`The U.N.’s annual climate conference has swelled over three decades, with governments, fossil fuel interests and others vying for influence.`\
-https://nytimes.com/interactive/2024/11/13/climate/cop-climate-summit-attendance.html
+**Trump’s Department for ‘Drastic Change,’ and the Race for Senate Leadership**\
+`Plus, the streaming services you never knew about.`\
+https://nytimes.com/2024/11/13/podcasts/trump-musk-senate.html
 
-**Republicans See a Great Economic Outlook. Now It’s Democrats Who Don’t.**\
-`Consumer sentiment among Republicans has soared to its highest point since Donald J. Trump left the White House, while declining among Democrats.`\
-https://nytimes.com/2024/11/13/business/economy/consumer-sentiment-trump.html
+**What Elon Musk Stands to Gain**\
+`The world’s richest man may now be the single most influential figure in the emerging White House of Donald Trump.`\
+https://nytimes.com/2024/11/13/podcasts/the-daily/elon-musk-trump.html
 
