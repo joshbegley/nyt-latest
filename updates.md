@@ -1,3 +1,7 @@
+**What Democrats Should Learn From Their Loss**\
+`Readers point to campaign missteps and offer advice for winning back voters. Also: Robert F. Kennedy Jr.’s role in health policy; closing local pharmacies.`\
+https://nytimes.com/2024/11/13/opinion/democrats-election-loss-lessons.html
+
 **Timothy West, Who Portrayed Kings and Prime Ministers, Dies at 90**\
 `A staple of British television, he played Churchill three times over a long career. Onstage, he was King Lear, Macbeth and Willy Loman.`\
 https://nytimes.com/2024/11/13/theater/timothy-west-dead.html

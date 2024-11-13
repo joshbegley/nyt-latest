@@ -1,3 +1,7 @@
+**What Democrats Should Learn From Their Loss**\
+`Readers point to campaign missteps and offer advice for winning back voters. Also: Robert F. Kennedy Jr.’s role in health policy; closing local pharmacies.`\
+https://nytimes.com/2024/11/13/opinion/democrats-election-loss-lessons.html
+
 **Timothy West, Who Portrayed Kings and Prime Ministers, Dies at 90**\
 `A staple of British television, he played Churchill three times over a long career. Onstage, he was King Lear, Macbeth and Willy Loman.`\
 https://nytimes.com/2024/11/13/theater/timothy-west-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/arts/television/cross-the-lincoln-lawyer.html
 **Tracking Tropical Storm Man-yi**\
 `See the likely path and wind arrival times for Man-yi.`\
 https://nytimes.com/interactive/2024/11/13/weather/man-yi-map-path-tracker.html
-
-**Notre-Dame Ready to Welcome ‘Whole World,’ Officials Say**\
-`Millions of visitors are expected at the cathedral after it reopens in December for the first time since the devastating 2019 fire.`\
-https://nytimes.com/2024/11/13/world/europe/notre-dame-cathedral-reopening.html
 
