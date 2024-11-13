@@ -1,3 +1,7 @@
+**Timothy West, Who Portrayed Kings and Prime Ministers, Dies at 90**\
+`A staple of British television, he played Churchill three times over a long career. Onstage, he was King Lear, Macbeth and Willy Loman.`\
+https://nytimes.com/2024/11/13/theater/timothy-west-dead.html
+
 **Ground Game in Pennsylvania Was No Match for Groundswell of Grievances**\
 `Democrats knocked on a lot more doors in Pennsylvania than Republicans did. It wasn’t enough to overcome a wave of support for Donald Trump.`\
 https://nytimes.com/2024/11/13/us/trump-harris-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/13/weather/man-yi-map-path-tracker.html
 **Notre-Dame Ready to Welcome ‘Whole World,’ Officials Say**\
 `Millions of visitors are expected at the cathedral after it reopens in December for the first time since the devastating 2019 fire.`\
 https://nytimes.com/2024/11/13/world/europe/notre-dame-cathedral-reopening.html
-
-**Scoop City: Five more coaches to watch**\
-`A look at why five coaches are on the hot seat, plus a quick mock of the 2025 QB class. `\
-https://nytimes.com/athletic/5919868/2024/11/13/five-nfl-coaches-hot-seat-scoop-city/
 
