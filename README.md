@@ -1,3 +1,7 @@
+**Real Sociedad director of football Olabe to leave at end of season**\
+`Real Sociedad’s renowned director of football Roberto Olabe is to leave his post at the end of this season, in a surprise development that will place some of the game’s leading clubs on high alert.`\
+https://nytimes.com/athletic/5919215/2024/11/13/roberto-olabe-real-sociedad-exit/
+
 **Celtics lose to short-handed Hawks who outshot them and dominated the glass**\
 `The loss left Boston 0-1 in the group stage of the NBA Cup with games still to play against the Cavaliers and Wizards.`\
 https://nytimes.com/athletic/5919176/2024/11/13/celtics-lose-outshot-by-hawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/learning/word-of-the-day-juvenile.html
 **Jordan Klepper Isn’t Wild About the ‘First Buddy,’ Elon Musk**\
 `“Trump’s been getting something that Elon’s 11 children will never receive: his full attention,” Klepper said on “The Daily Show.”`\
 https://nytimes.com/2024/11/13/arts/television/jordan-klepper-elon-musk.html
-
-**We Spoke With 13 Young Undecided Americans for Months. Here’s How They Voted.**\
-`The group of young undecided voters meets for the final time.`\
-https://nytimes.com/interactive/2024/11/13/opinion/focusgroup-young-undecided-voters.html
 
