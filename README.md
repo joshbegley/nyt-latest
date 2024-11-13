@@ -1,3 +1,7 @@
+**Tottenham expecting significant Bentancur ban after Son comments**\
+`Tottenham Hotspur are expecting midfielder Rodrigo Bentancur to be hit with a lengthy ban over comments he made relating to team-mate Son Heung-min.`\
+https://nytimes.com/athletic/5762309/2024/11/13/rodrigo-bentancur-ban-tottenham/
+
 **Melania Trump Will Not Meet With Jill Biden at White House**\
 `Mrs. Trump declined the invitation for the traditional meeting between the incoming and outgoing presidential spouses.`\
 https://nytimes.com/2024/11/13/us/politics/melania-trump-biden-white-house-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919174/2024/11/13/kansas-michigan-state-hunter-dic
 **All-MLB team 2024: Ohtani, Soto only repeat winners as Bowden picks the best at each position**\
 `Jim Bowden picks the best player in baseball at each position in 2024, plus his choices for top owner, front office executive and manager. `\
 https://nytimes.com/athletic/5919262/2024/11/13/all-mlb-team-2024-ohtani-soto/
-
-**Villa's Torres withdraws from Spain squad due to injury**\
-`Aston Villa defender Pau Torres has withdrawn from the Spain squad for their upcoming Nations League games against Denmark and Switzerland.`\
-https://nytimes.com/athletic/5919468/2024/11/13/pau-torres-injury-spain-villa/
 
