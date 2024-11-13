@@ -1,3 +1,15 @@
+**Trump’s Win Leaves Democrats Asking: Where Are Our Bro Whisperers?**\
+`Democrats have widely acknowledged that they have no answer for the online ecosystem of conservative influencers popular with Gen Z men. Some have argued for a rethink of media strategy.`\
+https://nytimes.com/2024/11/13/us/politics/trump-gen-z-influencers-democrats.html
+
+**People Went With Mass Appeal for Its ‘Sexiest Man’**\
+`John Krasinski may not have the raw energy of Glen Powell, but a collaboration with the stylist Ilaria Urbinati has paid huge dividends.`\
+https://nytimes.com/2024/11/13/style/john-krasinski-sexiest-man-people.html
+
+**In the Slightly Dark ‘Strategic Love Play,’ a Not-Quite-Romance Blooms**\
+`In this first-date comedy, Michael Zegen and Heléne Yorke play people who might just be willing to settle for each other.`\
+https://nytimes.com/2024/11/13/theater/strategic-love-play-review.html
+
 **Firefighters Battle Wildfire in New York City**\
 `Emergency responders worked to contain a brush fire in Inwood Hill Park in Manhattan on Wednesday afternoon.`\
 https://nytimes.com/video/weather/100000009824708/inwood-hill-new-york-fire.html
