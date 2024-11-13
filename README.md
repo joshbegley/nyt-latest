@@ -1,3 +1,19 @@
+**Airport Hugs**\
+`A new rule at a New Zealand airport limits curbside embraces to three minutes. What’s your reaction?`\
+https://nytimes.com/2024/11/13/learning/airport-hugs.html
+
+**Bill That Shifts Broker Fees to Landlords Is Expected to Pass**\
+`The City Council is expected to approve a bill on Wednesday that would curb a loathed New York City real estate practice: broker fees paid by renters.`\
+https://nytimes.com/2024/11/13/nyregion/new-york-city-broker-fee-city-council.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/13/crosswords/spelling-bee-forum.html
+
+**Sheffield United were warned about Morgan's 'bullying' before Maddy Cusack suicide**\
+`Exclusive: Club agreed a financial settlement that included an NDA with a player who complained about manager's conduct`\
+https://nytimes.com/athletic/5805721/2024/11/13/sheffield-united-jonathan-morgan-maddy-cusack/
+
 **How J.T. Miller, Elias Pettersson crushed Flames in key Canucks win: 3 takeaways**\
 `Miller and Pettersson were Vancouver's best skaters in a 3-1 win over Calgary on Tuesday.`\
 https://nytimes.com/athletic/5918920/2024/11/13/j-t-miller-elias-pettersson-canucks-win-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/11/13/opinion/focusgroup-young-undecided-vo
 **Can Boubakary Soumare finally establish himself at Leicester City?**\
 `French midfielder has been given a chance by Steve Cooper in recent weeks but is nearing the final 18 months of his contract`\
 https://nytimes.com/athletic/5917036/2024/11/13/boubakary-soumare-leicester-city-steve-cooper/
-
-**O'Brien is in the shadows at Everton, patiently learning and hoping for a chance**\
-`Everton spent £17m on a centre-back who has played just 26 minutes in the Premier League - but who was a signing for the long term `\
-https://nytimes.com/athletic/5916972/2024/11/13/jake-obrien-everton-centre-backs/
-
-**Forest's Alternative XI shows how far they've come Nuno is blessed with strength in depth**\
-`When it comes to strength in depth, this is the best squad Forest have had in decades.`\
-https://nytimes.com/athletic/5917521/2024/11/13/nuno-nottingham-forest-squad/
-
-**Is this a typical Guardiola-era autumn slump for City - or something worse?**\
-`Early-season struggles are not unknown at City in recent years but their defensive numbers so far in this one are of particular concern`\
-https://nytimes.com/athletic/5915498/2024/11/13/manchester-city-autumn-form-injuries-defence/
-
-**Rogers' senior England call is a fitting reward - and will quell Emery's frustrations**\
-`Manager and other senior Villa figures have been frustrated with the under-21s use of Rogers - but a senior call is very different`\
-https://nytimes.com/athletic/5908625/2024/11/13/morgan-rogers-england-unai-emery-aston-villa/
 
