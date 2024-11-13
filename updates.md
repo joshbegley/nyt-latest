@@ -1,3 +1,7 @@
+**Tage Thompson or Vincent Trocheck? Brock Nelson or Cole Caufield? Bill Guerin talks U.S. 4 Nations roster**\
+`Guerin, the U.S. GM, on management's tough decisions: "We’ll just start laughing and be like, ‘Listen to us nitpick this superstar player.'"`\
+https://nytimes.com/athletic/5919918/2024/11/13/united-states-4-nations-roster/
+
 **What Democrats Should Learn From Their Loss**\
 `Readers point to campaign missteps and offer advice for winning back voters. Also: Robert F. Kennedy Jr.’s role in health policy; closing local pharmacies.`\
 https://nytimes.com/2024/11/13/opinion/democrats-election-loss-lessons.html
