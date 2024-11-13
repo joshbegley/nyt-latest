@@ -1,3 +1,7 @@
+**Amtrak Says Service Between New York and New Haven Will Return in Afternoon**\
+`The train service suspension, caused by a fire in the Bronx, was expected to disrupt the Wednesday morning commute in the New York City area.`\
+https://nytimes.com/2024/11/13/nyregion/amtrak-service-fire-nyc-new-haven.html
+
 **Blackhawks future roster, salary cap projection: Part 1**\
 `A time will come when the present will matter to the Chicago Blackhawks.`\
 https://nytimes.com/athletic/5917329/2024/11/13/blackhawks-roster-salary-cap-projection-2025-26/
