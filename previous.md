@@ -1,3 +1,11 @@
+**Gaza Militants Release Video of Israeli Russian Hostage**\
+`It was the first sign of Sasha Troufanov since May, when the Palestinian Islamic Jihad militant group posted two videos of him. His family pressed for the release of all the hostages in Gaza.`\
+https://nytimes.com/2024/11/13/world/middleeast/gaza-israeli-hostage-video-troufanov.html
+
+**Amick: Thompson wanted low-key Warriors homecoming, but warm embrace could help heal wounds**\
+`Thompson’s willingness to share warm feelings about the Warriors organization signaled a thawing of the iciness in the relationship.`\
+https://nytimes.com/athletic/5919247/2024/11/13/klay-thompson-warriors-steph-curry-homecoming/
+
 **Joe Schoen says 2-8 Giants aren't 'far off.' The evidence suggests otherwise**\
 `Schoen's bye week news conference was a no-win situation for the GM. Unfortunately, that made it a lot like the team he has assembled.`\
 https://nytimes.com/athletic/5918841/2024/11/13/new-york-giants-joe-schoen-takeaways-far-off/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5919342/2024/11/13/wolves-matt-hobbs-ban-report/
 **West Ham penalty in Ten Hag's final game was VAR mistake - Webb**\
 `English football&#8217;s refereeing chief Howard Webb says the decision to award West Ham United a penalty in their controversial 2-1 victory over Manchester United in October was a mistake.`\
 https://nytimes.com/athletic/5919327/2024/11/13/manchester-united-west-ham-penalty-var-webb/
-
-**Amtrak Says Service Between New York and New Haven Will Return in Afternoon**\
-`The train service suspension, caused by a fire in the Bronx, was expected to disrupt the Wednesday morning commute in the New York City area.`\
-https://nytimes.com/2024/11/13/nyregion/amtrak-service-fire-nyc-new-haven.html
-
-**Blackhawks future roster, salary cap projection: Part 1**\
-`A time will come when the present will matter to the Chicago Blackhawks.`\
-https://nytimes.com/athletic/5917329/2024/11/13/blackhawks-roster-salary-cap-projection-2025-26/
 
