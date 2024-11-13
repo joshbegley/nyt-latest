@@ -1,3 +1,11 @@
+**Knicks spoil Joel Embiid's debut with 111-99 win; Takeaways**\
+`Embiid finished with 13 points and five assists along with three rebounds in his return, while the 76ers fell to 2-8.`\
+https://nytimes.com/athletic/5918593/2024/11/12/joel-embiid-76ers-knicks-nba-cup/
+
+**Pistons defeat Heat in overtime in wild fashion**\
+`Malik Beasley and Cade Cunningham were the high scorers for the Pistons with 21 points apiece.`\
+https://nytimes.com/athletic/5918912/2024/11/12/pistons-heat-takeaways-timeout/
+
 **College Football Playoff rankings, ranked: Texas has done what to deserve this?**\
 `We want the weekly Playoff rankings. We want to complain about them. In fact, we like these rankings so much, how about we rank them?`\
 https://nytimes.com/athletic/5918776/2024/11/12/college-football-playoff-rankings-texas-oregon-ohio-state/
