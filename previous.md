@@ -1,3 +1,7 @@
+**Quote of the Day: Many Women See a Setback; Many Disagree**\
+`Quotation of the Day for Wednesday, November 13, 2024`\
+https://nytimes.com/2024/11/12/pageoneplus/quote-of-the-day-many-women-see-a-setback-many-disagree.html
+
 **Explosion in the Bronx Disrupts Amtrak Service**\
 `A thick column of smoke billowed from the tracks before bursting into flames.`\
 https://nytimes.com/video/nyregion/100000009822651/amtrak-bronx-explosion-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918576/2024/11/12/maple-leafs-report-cards-senator
 **What Strings of Random Letters Make**\
 `Todd Gross reviews the state of things.`\
 https://nytimes.com/2024/11/12/crosswords/daily-puzzle-2024-11-13.html
-
-**Evans Defeats Caraveo in Colorado, Flipping a Key House Seat for the G.O.P.**\
-`Gabe Evans, a right-wing state representative, defeated Representative Yadira Caraveo, a first-term Democrat who was the first Latina elected to federal office in Colorado.`\
-https://nytimes.com/2024/11/12/us/elections/colorado-house-evans-caraveo.html
 

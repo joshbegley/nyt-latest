@@ -1,3 +1,7 @@
+**Quote of the Day: Many Women See a Setback; Many Disagree**\
+`Quotation of the Day for Wednesday, November 13, 2024`\
+https://nytimes.com/2024/11/12/pageoneplus/quote-of-the-day-many-women-see-a-setback-many-disagree.html
+
 **Explosion in the Bronx Disrupts Amtrak Service**\
 `A thick column of smoke billowed from the tracks before bursting into flames.`\
 https://nytimes.com/video/nyregion/100000009822651/amtrak-bronx-explosion-fire.html
