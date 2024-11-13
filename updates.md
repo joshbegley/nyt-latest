@@ -1,3 +1,7 @@
+**U.S. to Keep Sending Arms to Israel Despite Dire Conditions in Gaza**\
+`The State Department said Israel needs to take more steps to improve the situation among Palestinians. The United States had given the country 30 days to meet aid criteria.`\
+https://nytimes.com/2024/11/12/us/politics/israel-weapons-gaza-aid.html
+
 **Hunter Dickinson lifts Kansas past Michigan State in ugly Champions Classic opener**\
 `The win pushed Bill Self past legendary coach Phog Allen for the most wins by any coach in KU history (591).`\
 https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hold-off-michigan-state-in-champions-classic-rock-fight/

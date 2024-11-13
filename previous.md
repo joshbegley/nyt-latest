@@ -1,3 +1,7 @@
+**U.S. to Keep Sending Arms to Israel Despite Dire Conditions in Gaza**\
+`The State Department said Israel needs to take more steps to improve the situation among Palestinians. The United States had given the country 30 days to meet aid criteria.`\
+https://nytimes.com/2024/11/12/us/politics/israel-weapons-gaza-aid.html
+
 **Hunter Dickinson lifts Kansas past Michigan State in ugly Champions Classic opener**\
 `The win pushed Bill Self past legendary coach Phog Allen for the most wins by any coach in KU history (591).`\
 https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hold-off-michigan-state-in-champions-classic-rock-fight/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/politics/trump-foreign-policy-neocons-america-
 **U.S. Destroyer That Sank During World War II Is Found Off Australian Coast**\
 `More than 200 servicemen were killed when the U.S.S. Edsall was struck by Japanese dive bombers in March 1942.`\
 https://nytimes.com/2024/11/12/us/uss-edsall-sunken-ship-world-war-two.html
-
-**Staten Island St. Patrick’s Day Parade Ends 60-Year Ban on Gay Groups**\
-`After years of controversy and boycotts, the parade’s organizers said it was time to change the exclusionary policy.`\
-https://nytimes.com/2024/11/12/nyregion/staten-island-st-patricks-parade-lgbtq.html
 
