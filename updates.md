@@ -1,3 +1,11 @@
+**Trump Meets With Jubilant House G.O.P. and Jokes About a Third Term**\
+`“Isn’t it nice to win?” the president-elect asked to raucous applause by fellow Republicans. The influential billionaire Elon Musk joined him at the meeting and also received a standing ovation.`\
+https://nytimes.com/2024/11/13/us/politics/trump-house-elon-musk.html
+
+**Republican Senators Elect Thune as Next Majority Leader**\
+`Senator John Thune of South Dakota emerged victorious over a right-wing challenge from Senator Rick Scott of Florida.`\
+https://nytimes.com/2024/11/13/us/politics/trump-senate-thune-cornyn-scott.html
+
 **Biden to Meet With China’s Leader During Summit This Weekend**\
 `The meeting with President Xi Jinping comes as President-elect Donald J. Trump has promised a much more aggressive approach to China that includes vast tariffs on Chinese goods.`\
 https://nytimes.com/2024/11/13/us/politics/biden-xi-china-meeting.html
