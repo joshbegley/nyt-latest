@@ -1,3 +1,7 @@
+**Dynasty league football 2025 rookie draft update: Is it Ashton Jeanty or bust?**\
+`Jeff Haverlack checks in on the 2025 rookie class for dynasty leagues, and he struggles to find optimism outside running back Ashton Jeanty.`\
+https://nytimes.com/athletic/5920279/2024/11/13/dynasty-league-update-2025-draft-class-ashton-jeanty/
+
 **N.L.R.B. Says Employers Can’t Hold Mandatory Anti-Union Meetings**\
 `The ruling, stemming from a complaint against Amazon, bars companies from compelling workers to attend meetings on unionization’s downsides.`\
 https://nytimes.com/2024/11/13/business/economy/nlrb-meetings-unions-amazon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919923/2024/11/13/mahomes-kelce-home-burglaries/
 **Draymond Green puts defensive stamp on Klay Thompson's big night**\
 `"Unreal" is how Steph Curry described Green's start to the season: "He's been all-world defensively."`\
 https://nytimes.com/athletic/5918964/2024/11/13/draymond-green-warriors-klay-thompson-return/
-
-**Wins in the West Bring Republicans Closer to a House Majority**\
-`With a dozen races still to be called, the G.O.P. was two seats away from the 218 that would allow the party to claim a coveted governing trifecta: control of the House, Senate and White House.`\
-https://nytimes.com/2024/11/13/us/politics/republicans-closer-near-house-majority.html
 
