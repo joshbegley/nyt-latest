@@ -1,3 +1,7 @@
+**Staten Island St. Patrick’s Day Parade Ends 60-Year Ban on Gay Groups**\
+`After years of controversy and boycotts, the parade’s organizers said it was time to change the exclusionary policy.`\
+https://nytimes.com/2024/11/12/nyregion/staten-island-st-patricks-parade-lgbtq.html
+
 **49ers, Deommodore Lenoir agree to 5-year, $92 million extension**\
 `Lenoir has blossomed into one of the NFL's premier corners while playing both the outside cornerback and nickel cornerback positions.`\
 https://nytimes.com/athletic/5918635/2024/11/12/deommodore-lenoir-49ers-extension-source/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918370/2024/11/12/kentucky-duke-watch-college-bask
 **Bill McGinley, a cabinet secretary in Trump’s first term, is named White House counsel.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2024/11/12/us/trump-news-house-election/mcginley-white-house-counsel
-
-**LeBrun rumblings: Ken Holland's new role, early trade market, tampering, CBA and more from GMs meeting**\
-`Deputy commissioner Bill Daly said a potential change to contract term limits was discussed Tuesday with general managers.`\
-https://nytimes.com/athletic/5918446/2024/11/12/nhl-rumblings-holland-trades-tampering-cba/
 

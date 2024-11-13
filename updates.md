@@ -1,3 +1,7 @@
+**Staten Island St. Patrick’s Day Parade Ends 60-Year Ban on Gay Groups**\
+`After years of controversy and boycotts, the parade’s organizers said it was time to change the exclusionary policy.`\
+https://nytimes.com/2024/11/12/nyregion/staten-island-st-patricks-parade-lgbtq.html
+
 **49ers, Deommodore Lenoir agree to 5-year, $92 million extension**\
 `Lenoir has blossomed into one of the NFL's premier corners while playing both the outside cornerback and nickel cornerback positions.`\
 https://nytimes.com/athletic/5918635/2024/11/12/deommodore-lenoir-49ers-extension-source/
