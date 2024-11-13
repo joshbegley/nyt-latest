@@ -1,3 +1,7 @@
+**Vikings' J.J. McCarthy undergoes procedure, receives injection amid rehab from meniscus tear**\
+`McCarthy underwent a minor procedure and received a biologic injection this week after an uptick in rehab led to swelling in his knee. `\
+https://nytimes.com/athletic/5920526/2024/11/13/vikings-jj-mccarthy-meniscus-injury-knee/
+
 **Matt Gaetz Is Trump’s Pick for Attorney General**\
 `President-elect Donald J. Trump has made clear his view of the Justice Department’s importance and has complained that his past attorneys general fell far short of his expectations.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-trump-attorney-general.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/trump-tulsi-gabbard-director-national
 **‘Emilia Pérez’ Review: A Song and Dance of Transformation**\
 `The star of Jacques Audiard’s showy new musical about a trans Mexican crime boss, Karla Sofía Gascón, adds soul to the melodrama. Zoe Saldaña also shines.`\
 https://nytimes.com/2024/11/13/movies/emilia-perez-review.html
-
-**A Project 2025 Leader’s Exile Ends**\
-`At his book party, the Heritage Foundation president said he’ll soon speak with the President-elect.`\
-https://nytimes.com/2024/11/13/us/politics/project-2025-leader-exile.html
 
