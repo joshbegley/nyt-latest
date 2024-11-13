@@ -1,3 +1,11 @@
+**20 Years of Modern Love**\
+`A special package of articles exploring the history and impact of the beloved column.`\
+https://nytimes.com/spotlight/20-years-of-modern-love
+
+**Could Trump Shut Down the Department of Education?**\
+`Donald Trump said he would use the department to further his priorities. He also said he would close it. Both options would face difficulties.`\
+https://nytimes.com/2024/11/13/us/trump-close-department-of-education.html
+
 **Trump Meets With Jubilant House G.O.P. and Jokes About a Third Term**\
 `“Isn’t it nice to win?” the president-elect asked to raucous applause by fellow Republicans. The influential billionaire Elon Musk joined him at the meeting and also received a standing ovation.`\
 https://nytimes.com/2024/11/13/us/politics/trump-house-elon-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5920012/2024/11/13/trevor-lawrence-out-jaguars-lion
 **Republican Senators Elect Thune as Next Majority Leader**\
 `Senator John Thune of South Dakota emerged victorious over a right-wing challenge from Senator Rick Scott of Florida.`\
 https://nytimes.com/2024/11/13/us/politics/trump-senate-thune-cornyn-scott.html
-
-**R.F.K. Jr. Scorns Trump’s Fast Food Habit: ‘Really, Like, Bad’ and ‘Poison’**\
-`Intent on changing the U.S. food supply under the incoming Trump administration, Robert F. Kennedy Jr. passed judgment on the president-elect’s culinary choices during a recent podcast interview.`\
-https://nytimes.com/2024/11/13/us/politics/rfk-jr-trumps-fast-food.html
-
-**A Master of Hawaiian Dance Wins the Gish Prize**\
-`Vicky Holt Takamine, a renowned teacher of hula dance and a champion for Indigenous culture, will receive a cash award of more than $450,000.`\
-https://nytimes.com/2024/11/13/arts/dance/vicky-holt-takamine-hawaiian-gish-prize.html
 
