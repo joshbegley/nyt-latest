@@ -1,3 +1,16 @@
+**New York to Revive Congestion Pricing With $9 Toll**\
+`Gov. Kathy Hochul is expected to announce the revised program on Thursday after having put the original $15 toll on hold.`\
+https://nytimes.com/2024/11/13/nyregion/congestion-pricing-nine-dollars.html
+
+**'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
+`It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
+`\
+https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
+
+**Brian Robinson Jr. expected to play vs. Eagles, Marshon Lattimore out**\
+`Robinson missed the last two weeks with a hamstring injury`\
+https://nytimes.com/athletic/5920750/2024/11/13/commanders-brian-robinson-marshon-lattimore/
+
 **Blues' Robert Thomas takes big step in return from fractured ankle: 'It's a good sign'**\
 `The forward skated with the club Wednesday for the first time since suffering a fractured ankle on Oct. 22.`\
 https://nytimes.com/athletic/5920100/2024/11/13/robert-thomas-fractured-ankle-recovery/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5920050/2024/11/13/penn-state-college-football-play
 **Broadway Shows Closing Soon: ‘Suffs,’ ‘Stereophonic’ and More**\
 `Many Tony Award-winning musicals and starry plays (Robert Downey Jr., anyone?) are wrapping up their runs in January. Catch them while you can.`\
 https://nytimes.com/2024/11/13/arts/broadway-shows-closing-winter.html
-
-**Did P’Nut Die for Nothing? Test Shows Squirrel Did Not Have Rabies.**\
-`Officials released a timeline of the decision to euthanize the squirrel, whose confiscation led to outrage from some on the right and death threats to those deemed responsible.`\
-https://nytimes.com/2024/11/13/nyregion/peanut-squirrel-rabies.html
-
-**Mark Zuckerberg and T-Pain ‘Get Low’ in Anniversary Post**\
-`As he continues to shake up his old image, Meta’s chief executive has collaborated with the singer on a version of the hit song that was playing when he met his wife.`\
-https://nytimes.com/2024/11/13/style/mark-zuckerberg-tpain-get-low.html
-
-**Rancher, Politician, Trump Ally: Who Is Kristi Noem, the Homeland Security Pick?**\
-`The governor of South Dakota has defied coronavirus restrictions and been a vocal critic of President Biden’s immigration policies.`\
-https://nytimes.com/2024/11/13/us/politics/kristi-noem-homeland-security.html
 
