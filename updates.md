@@ -1,3 +1,7 @@
+**Krawczynski: New-look Wolves need to rediscover what took them so far last season**\
+`Minnesota is not playing with the motivation of a team that was bounced in the conference finals last season.`\
+https://nytimes.com/athletic/5919058/2024/11/13/timberwolves-rediscover-edge/
+
 **Tottenham expecting significant Bentancur ban after Son comments**\
 `Tottenham Hotspur are expecting midfielder Rodrigo Bentancur to be hit with a lengthy ban over comments he made relating to team-mate Son Heung-min.`\
 https://nytimes.com/athletic/5762309/2024/11/13/rodrigo-bentancur-ban-tottenham/
