@@ -1,3 +1,7 @@
+**Dynasty league football 2025 rookie draft update: Is it Ashton Jeanty or bust?**\
+`Jeff Haverlack checks in on the 2025 rookie class for dynasty leagues, and he struggles to find optimism outside running back Ashton Jeanty.`\
+https://nytimes.com/athletic/5920279/2024/11/13/dynasty-league-update-2025-draft-class-ashton-jeanty/
+
 **N.L.R.B. Says Employers Can’t Hold Mandatory Anti-Union Meetings**\
 `The ruling, stemming from a complaint against Amazon, bars companies from compelling workers to attend meetings on unionization’s downsides.`\
 https://nytimes.com/2024/11/13/business/economy/nlrb-meetings-unions-amazon.html

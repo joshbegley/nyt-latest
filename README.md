@@ -1,3 +1,7 @@
+**Climate Change Is Losing Its Grip on Our Politics**\
+`Trump’s election merely confirms a shift that’s been happening for years.`\
+https://nytimes.com/2024/11/13/opinion/climate-change-politics-trump-cop29.html
+
 **Dynasty league football 2025 rookie draft update: Is it Ashton Jeanty or bust?**\
 `Jeff Haverlack checks in on the 2025 rookie class for dynasty leagues, and he struggles to find optimism outside running back Ashton Jeanty.`\
 https://nytimes.com/athletic/5920279/2024/11/13/dynasty-league-update-2025-draft-class-ashton-jeanty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920207/2024/11/13/caitlin-clark-lpga-golf-annika/
 **Patrick Mahomes, Travis Kelce's homes burglarized last month**\
 `A Cass County Sheriff’s Office spokesperson said an investigation into the reported burglary at Mahomes' home is ongoing.`\
 https://nytimes.com/athletic/5919923/2024/11/13/mahomes-kelce-home-burglaries/
-
-**Draymond Green puts defensive stamp on Klay Thompson's big night**\
-`"Unreal" is how Steph Curry described Green's start to the season: "He's been all-world defensively."`\
-https://nytimes.com/athletic/5918964/2024/11/13/draymond-green-warriors-klay-thompson-return/
 
