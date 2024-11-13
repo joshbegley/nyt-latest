@@ -1,3 +1,11 @@
+**2,100 Fakes Rounded Up in Art Forgeries Bust**\
+`Italian officials said they had dismantled a Europe-wide network of forgers and dealers selling works purported to be by A-list artists, mostly through auction houses.`\
+https://nytimes.com/2024/11/13/world/europe/italy-art-forgeries.html
+
+**The No. 1 team is a one-man show right now. Is he a security blanket or a crutch?**\
+`Bill Self's Jayhawks might be ranked No. 1, but they aren’t going to hit their stride until Dickinson gets some consistent help.`\
+https://nytimes.com/athletic/5919174/2024/11/13/kansas-michigan-state-hunter-dickinson-bill-self/
+
 **All-MLB team 2024: Ohtani, Soto only repeat winners as Bowden picks the best at each position**\
 `Jim Bowden picks the best player in baseball at each position in 2024, plus his choices for top owner, front office executive and manager. `\
 https://nytimes.com/athletic/5919262/2024/11/13/all-mlb-team-2024-ohtani-soto/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/13/climate/cop24-climate-finance.html
 **Gaza Militants Release Video of Israeli Russian Hostage**\
 `It was the first sign of Sasha Troufanov since May, when the Palestinian Islamic Jihad militant group posted two videos of him. His family pressed for the release of all the hostages in Gaza.`\
 https://nytimes.com/2024/11/13/world/middleeast/gaza-israeli-hostage-video-troufanov.html
-
-**Amick: Thompson wanted low-key Warriors homecoming, but warm embrace could help heal wounds**\
-`Thompson’s willingness to share warm feelings about the Warriors organization signaled a thawing of the iciness in the relationship.`\
-https://nytimes.com/athletic/5919247/2024/11/13/klay-thompson-warriors-steph-curry-homecoming/
-
-**Joe Schoen says 2-8 Giants aren't 'far off.' The evidence suggests otherwise**\
-`Schoen's bye week news conference was a no-win situation for the GM. Unfortunately, that made it a lot like the team he has assembled.`\
-https://nytimes.com/athletic/5918841/2024/11/13/new-york-giants-joe-schoen-takeaways-far-off/
 

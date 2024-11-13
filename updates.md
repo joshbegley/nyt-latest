@@ -1,3 +1,11 @@
+**2,100 Fakes Rounded Up in Art Forgeries Bust**\
+`Italian officials said they had dismantled a Europe-wide network of forgers and dealers selling works purported to be by A-list artists, mostly through auction houses.`\
+https://nytimes.com/2024/11/13/world/europe/italy-art-forgeries.html
+
+**The No. 1 team is a one-man show right now. Is he a security blanket or a crutch?**\
+`Bill Self's Jayhawks might be ranked No. 1, but they aren’t going to hit their stride until Dickinson gets some consistent help.`\
+https://nytimes.com/athletic/5919174/2024/11/13/kansas-michigan-state-hunter-dickinson-bill-self/
+
 **All-MLB team 2024: Ohtani, Soto only repeat winners as Bowden picks the best at each position**\
 `Jim Bowden picks the best player in baseball at each position in 2024, plus his choices for top owner, front office executive and manager. `\
 https://nytimes.com/athletic/5919262/2024/11/13/all-mlb-team-2024-ohtani-soto/
