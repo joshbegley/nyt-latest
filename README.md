@@ -1,3 +1,7 @@
+**It’s Been an Exciting Year for the DP World Tour**\
+`Here are five tournaments that stood out in 2024.`\
+https://nytimes.com/2024/11/13/sports/golf/dp-world-tour-best.html
+
 **Daniele Rustioni, Fixture at the Met Opera, Will Be Its Guest Conductor**\
 `Beginning next fall, Rustioni will lead at least two operas each season and help provide continuity for the Met as it rebuilds after a wave of retirements.`\
 https://nytimes.com/2024/11/13/arts/music/daniele-rustioni-met-opera.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919640/2024/11/13/new-york-rangers-nhl-season-anal
 **Trump’s Middle East Picks Signal Staunch Pro-Israel Policy**\
 `Mike Huckabee and Steven Witkoff have both made pro-Israel statements. Here’s a closer look at the two men who will help shape Mr. Trump’s approach in the Middle East.`\
 https://nytimes.com/2024/11/13/world/middleeast/huckabee-israel-witkoff-middle-east-us.html
-
-**Josh Hart was 'lost' before the season. Now he's on pace for a career year**\
-`The veteran wasn't sure how he'd fit around New York's big acquisitions. But he's finding his way, like the Knicks knew he would.`\
-https://nytimes.com/athletic/5919608/2024/11/13/josh-hart-knicks-role-nba/
 
