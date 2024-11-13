@@ -1,3 +1,43 @@
+**Aid Deliveries to Gaza Remain Low Despite U.S. Warning to Israel**\
+`In an Oct. 13 letter, the Biden administration gave Israel 30 days to increase the flow of aid, warning that aid shipments into Gaza in September had reached their lowest level at any time since the Hamas-led attacks.`\
+https://nytimes.com/2024/11/13/world/middleeast/gaza-aid-us-israel.html
+
+**Examining the Cowboys' atrocious turnover margin: 'Makes me sick'**\
+`The Cowboys are minus-10 in turnover margin this season and have only created eight takeaways through nine games.`\
+https://nytimes.com/athletic/5918700/2024/11/13/cowboys-turnover-margin-fumbles-interceptions/
+
+**Ranking the Patriots' biggest positions of need for 2025: What will they do in the draft?**\
+`After 10 games, we're starting to get an idea of the Patriots' biggest needs for next season. How can they best help QB Drake Maye?`\
+https://nytimes.com/athletic/5917673/2024/11/13/patriots-positions-nfl-draft-free-agency/
+
+**Panthers' bye-week thoughts: Bryce Young's confidence, money well spent, D.J. Wonnum's return**\
+`The Panthers have won two in a row and can feel good about investing in Chuba Hubbard along with several offseason additions on defense.`\
+https://nytimes.com/athletic/5917848/2024/11/13/panthers-bye-week-bryce-young-chuba-hubbard/
+
+**How Resilient Is the Emerging Trump Coalition?**\
+`It will be difficult for Democrats to reverse these dynamics.`\
+https://nytimes.com/2024/11/13/opinion/democrats-republicans-class-realignment.html
+
+**This Is 29 Years of International Climate Summits, Visualized**\
+`The U.N.’s annual climate conference has swelled over three decades, with governments, fossil fuel interests and others vying for influence.`\
+https://nytimes.com/interactive/2024/11/13/climate/cop-climate-summit-attendance.html
+
+**Republicans See a Great Economic Outlook. Democrats, Not So Much.**\
+`Consumer sentiment among Republicans has soared to its highest point since Donald J. Trump left the White House, while declining among Democrats.`\
+https://nytimes.com/2024/11/13/business/economy/consumer-sentiment-trump.html
+
+**Biden and Trump to Meet Today, Honoring a Presidential Tradition**\
+`It is unclear what President Biden and his successor, Donald J. Trump, will say to each other in their Oval Office meeting.`\
+https://nytimes.com/2024/11/13/us/politics/trump-biden-meeting.html
+
+**Democratic Governors Form a Group to Oppose the Trump Administration**\
+`The group’s leaders, Govs. JB Pritzker of Illinois and Jared Polis of Colorado, are ambitious Democrats likely to try to fill the party’s looming leadership void.`\
+https://nytimes.com/2024/11/13/us/politics/democratic-governors-trump.html
+
+**Liberal California Kept Prison Slavery, and Lost Its Way**\
+`It was in California, after all, that liberal politics gave birth to law-and-order politics.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/california-slavery-prison
+
 **American Wine Trade Steels Itself for Possible Tariffs**\
 `President-elect Trump says tariffs will help American businesses, but many in the wine industry foresee few benefits and a lot of pain for all involved.`\
 https://nytimes.com/2024/11/13/dining/drinks/trump-tariffs-wine-cost.html
