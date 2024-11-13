@@ -1,3 +1,11 @@
+**Can Boubakary Soumare finally establish himself at Leicester City?**\
+`French midfielder has been given a chance by Steve Cooper in recent weeks but is nearing the final 18 months of his contract`\
+https://nytimes.com/athletic/5917036/2024/11/13/boubakary-soumare-leicester-city-steve-cooper/
+
+**O'Brien is in the shadows at Everton, patiently learning and hoping for a chance**\
+`Everton spent £17m on a centre-back who has played just 26 minutes in the Premier League - but who was a signing for the long term `\
+https://nytimes.com/athletic/5916972/2024/11/13/jake-obrien-everton-centre-backs/
+
 **Forest's Alternative XI shows how far they've come Nuno is blessed with strength in depth**\
 `When it comes to strength in depth, this is the best squad Forest have had in decades.`\
 https://nytimes.com/athletic/5917521/2024/11/13/nuno-nottingham-forest-squad/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5917873/2024/11/13/spain-womens-world-cup-liga-f/
 **Ruben Amorim, Matt Busby and the men who managed Manchester United in their thirties**\
 `The Portuguese will be the eighth man in his 30s to take charge of Manchester United - and his predecessors faced very different challenges`\
 https://nytimes.com/athletic/5902920/2024/11/13/amorim-manchester-united-busby-albut/
-
-**Arne Slot and why a manager's first Premier League season is often their best chance to win it**\
-`Leading the way after 11 games, this might turn out to be Liverpool’s best opportunity to win the Premier League under Slot`\
-https://nytimes.com/athletic/5917473/2024/11/13/liverpool-premier-league-title-chances-slot/
-
-**Tactics mailbag: Maresca's full-backs, analysing fixture difficulty, and a La Liga coach to watch**\
-`We asked for your questions regarding tactics and data across the Premier League and beyond. Here are our writers’ answers to a selection`\
-https://nytimes.com/athletic/5916901/2024/11/13/tactics-maresca-chelsea-full-backs/
 

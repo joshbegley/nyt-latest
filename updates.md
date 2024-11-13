@@ -1,3 +1,11 @@
+**Can Boubakary Soumare finally establish himself at Leicester City?**\
+`French midfielder has been given a chance by Steve Cooper in recent weeks but is nearing the final 18 months of his contract`\
+https://nytimes.com/athletic/5917036/2024/11/13/boubakary-soumare-leicester-city-steve-cooper/
+
+**O'Brien is in the shadows at Everton, patiently learning and hoping for a chance**\
+`Everton spent £17m on a centre-back who has played just 26 minutes in the Premier League - but who was a signing for the long term `\
+https://nytimes.com/athletic/5916972/2024/11/13/jake-obrien-everton-centre-backs/
+
 **Forest's Alternative XI shows how far they've come Nuno is blessed with strength in depth**\
 `When it comes to strength in depth, this is the best squad Forest have had in decades.`\
 https://nytimes.com/athletic/5917521/2024/11/13/nuno-nottingham-forest-squad/
