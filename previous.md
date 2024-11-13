@@ -2,7 +2,7 @@
 `Miller and Pettersson were Vancouver's best skaters in a 3-1 win over Calgary on Tuesday.`\
 https://nytimes.com/athletic/5918920/2024/11/13/j-t-miller-elias-pettersson-canucks-win-takeaways/
 
-**Despite Blue Jackets' fast start, their offensive funk vs. Kraken extends losing skid**\
+**Despite Blue Jackets' fast start vs. Kraken, their offensive funk extends losing skid**\
 `Columbus hasn't won a game since Oct. 30, and the last road win came more than a month ago in Colorado.`\
 https://nytimes.com/athletic/5919126/2024/11/13/blue-jackets-lose-to-kraken/
 
