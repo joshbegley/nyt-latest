@@ -1,3 +1,7 @@
+**Republicans See a Great Economic Outlook. Now It’s Democrats Who Don’t.**\
+`Consumer sentiment among Republicans has soared to its highest point since Donald J. Trump left the White House, while declining among Democrats.`\
+https://nytimes.com/2024/11/13/business/economy/consumer-sentiment-trump.html
+
 **Aid Deliveries to Gaza Remain Low Despite U.S. Warning to Israel**\
 `The Biden administration gave Israel 30 days to increase the flow of aid, warning that aid shipments into Gaza in September had reached an alarmingly low level.`\
 https://nytimes.com/2024/11/13/world/middleeast/gaza-aid-us-israel.html
