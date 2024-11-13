@@ -1,3 +1,11 @@
+**Four Tropical Storms Rage Simultaneously Near the Philippines**\
+`It is the first time on record that more than three tropical storms have occurred at the same time in November in the region.`\
+https://nytimes.com/2024/11/13/world/asia/typhoon-storms-philippines-pacific.html
+
+**Lowetide: How many more scoring titles does Connor McDavid have in his future?**\
+`McDavid is entering a period of his career when even the greatest players begin to fade from peak-level production.`\
+https://nytimes.com/athletic/5917278/2024/11/13/oilers-connor-mcdavid-scoring-art-ross/
+
 **Wishful Thinking on Abortion Politics**\
 `We explain why the issue of abortion didn’t necessarily help Democrats win this election.`\
 https://nytimes.com/2024/11/13/briefing/wishful-thinking-on-abortion-politics.html

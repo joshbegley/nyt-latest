@@ -1,3 +1,11 @@
+**Four Tropical Storms Rage Simultaneously Near the Philippines**\
+`It is the first time on record that more than three tropical storms have occurred at the same time in November in the region.`\
+https://nytimes.com/2024/11/13/world/asia/typhoon-storms-philippines-pacific.html
+
+**Lowetide: How many more scoring titles does Connor McDavid have in his future?**\
+`McDavid is entering a period of his career when even the greatest players begin to fade from peak-level production.`\
+https://nytimes.com/athletic/5917278/2024/11/13/oilers-connor-mcdavid-scoring-art-ross/
+
 **Wishful Thinking on Abortion Politics**\
 `We explain why the issue of abortion didn’t necessarily help Democrats win this election.`\
 https://nytimes.com/2024/11/13/briefing/wishful-thinking-on-abortion-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5917329/2024/11/13/blackhawks-roster-salary-cap-pro
 **Russell Wilson finds a way, Jets' defense unravels, Week 10 thoughts: Quick Outs**\
 `Wilson has raised the ceiling for the Steelers' offense since returning, while the Jets have gotten nothing of the Robert Saleh firing.`\
 https://nytimes.com/athletic/5917905/2024/11/13/nfl-week-10-russell-wilson-quick-outs/
-
-**It's time Ravens measure up to Steelers with first place in AFC North at stake**\
-`Baltimore has lost three straight to Pittsburgh and been swept in the season series in three of the past four years.`\
-https://nytimes.com/athletic/5918519/2024/11/13/baltimore-ravens-pittsburgh-steelers-mike-tomlin/
-
-**If not Alex Bregman, who? How the Astros could handle third base**\
-`Houston must have alternate plans for life without Bregman. Here are three avenues it could explore.`\
-https://nytimes.com/athletic/5918579/2024/11/13/astros-third-base-options-alex-bregman/
 
