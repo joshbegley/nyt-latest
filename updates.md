@@ -1,3 +1,19 @@
+**Airport Hugs**\
+`A new rule at a New Zealand airport limits curbside embraces to three minutes. What’s your reaction?`\
+https://nytimes.com/2024/11/13/learning/airport-hugs.html
+
+**Bill That Shifts Broker Fees to Landlords Is Expected to Pass**\
+`The City Council is expected to approve a bill on Wednesday that would curb a loathed New York City real estate practice: broker fees paid by renters.`\
+https://nytimes.com/2024/11/13/nyregion/new-york-city-broker-fee-city-council.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/13/crosswords/spelling-bee-forum.html
+
+**Sheffield United were warned about Morgan's 'bullying' before Maddy Cusack suicide**\
+`Exclusive: Club agreed a financial settlement that included an NDA with a player who complained about manager's conduct`\
+https://nytimes.com/athletic/5805721/2024/11/13/sheffield-united-jonathan-morgan-maddy-cusack/
+
 **Despite Blue Jackets' fast start vs. Kraken, their offensive funk extends losing skid**\
 `Columbus hasn't won a game since Oct. 30, and the last road win came more than a month ago in Colorado.`\
 https://nytimes.com/athletic/5919126/2024/11/13/blue-jackets-lose-to-kraken/
