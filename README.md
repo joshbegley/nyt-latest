@@ -1,3 +1,7 @@
+**As Trump Pushes Peace Talks, Ukraine Prioritizes Security Guarantees**\
+`President-elect Donald J. Trump may accelerate the timetable for a truce. Kyiv views guarantees against renewed aggression as crucial to any settlement.`\
+https://nytimes.com/2024/11/13/world/europe/trump-ukraine-russia-peace.html
+
 **Viewers Flee MSNBC, and Flock to Fox News, in Wake of Election**\
 `Prime-time viewership at MSNBC has fallen 53 percent compared with October, and jumped 21 percent on Fox News.`\
 https://nytimes.com/2024/11/13/business/media/msnbc-fox-news-ratings-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920137/2024/11/13/england-squad-injuries-harry-kan
 **Man United coach Fletcher 'needed to be held back' from referee, report reveals**\
 `Darren Fletcher launched a foul-mouthed tirade at referee Samuel Barrott and had to be restrained by Manchester United staff during the club’s victory over Brentford last month.`\
 https://nytimes.com/athletic/5920239/2024/11/13/darren-fletcher-ban-manchester-united/
-
-**Their Pissarro Is Staying in Germany, but Their Story Is Getting Out**\
-`A woman whose family had to sell a painting in the Holocaust and a museum have struck a deal. The museum will keep the work but will help to publish a book telling the family’s story.`\
-https://nytimes.com/2024/11/13/arts/design/pissarro-heirs-germany-museum-holocaust.html
 
