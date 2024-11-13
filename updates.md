@@ -1,3 +1,7 @@
+**Corrections: No. 13, 2024**\
+`Corrections that appeared in print on Wednesday, Nov. 13, 2024.`\
+https://nytimes.com/2024/11/12/pageoneplus/corrections-no-13-2024.html
+
 **College Football Playoff 2024 projections: Will Miami, Georgia make it after losses?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/12/college-football-playoff-projections-odds/
