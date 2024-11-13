@@ -1,3 +1,19 @@
+**Rancher, Politician, Trump Ally: Who Is Kristi Noem, the Homeland Security Pick?**\
+`The governor of South Dakota has defied coronavirus restrictions and been a vocal critic of President Biden’s immigration policies.`\
+https://nytimes.com/2024/11/13/us/politics/kristi-noem-homeland-security.html
+
+**Thursday Briefing: Trump’s Victory Lap**\
+`Plus, an artist sticks up for A.I.`\
+https://nytimes.com/2024/11/13/briefing/trump-ukraine-netanyahu.html
+
+**A Foul Fireside Chat**\
+`Biden followed protocol; Trump does so only when he wins.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/a-foul-fireside-chat
+
+**Wordle Review No. 1,244**\
+`Scroll down for hints and conversation about the puzzle for Nov. 14, 2024.`\
+https://nytimes.com/2024/11/13/crosswords/wordle-review-1244.html
+
 **Here's how the Flyers seem to be finding their identity again**\
 `After a disappointing start to the season, the Flyers have a three-game point streak, with several on-ice improvements.`\
 https://nytimes.com/athletic/5920536/2024/11/13/philadelphia-flyers-goals-senators/

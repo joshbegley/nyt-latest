@@ -1,3 +1,19 @@
+**Rancher, Politician, Trump Ally: Who Is Kristi Noem, the Homeland Security Pick?**\
+`The governor of South Dakota has defied coronavirus restrictions and been a vocal critic of President Biden’s immigration policies.`\
+https://nytimes.com/2024/11/13/us/politics/kristi-noem-homeland-security.html
+
+**Thursday Briefing: Trump’s Victory Lap**\
+`Plus, an artist sticks up for A.I.`\
+https://nytimes.com/2024/11/13/briefing/trump-ukraine-netanyahu.html
+
+**A Foul Fireside Chat**\
+`Biden followed protocol; Trump does so only when he wins.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/a-foul-fireside-chat
+
+**Wordle Review No. 1,244**\
+`Scroll down for hints and conversation about the puzzle for Nov. 14, 2024.`\
+https://nytimes.com/2024/11/13/crosswords/wordle-review-1244.html
+
 **Here's how the Flyers seem to be finding their identity again**\
 `After a disappointing start to the season, the Flyers have a three-game point streak, with several on-ice improvements.`\
 https://nytimes.com/athletic/5920536/2024/11/13/philadelphia-flyers-goals-senators/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/13/world/europe/italy-musk-immigration.html
 **Puzzle Mania 2024: Contest Rules, Clues and Answers**\
 `Everything you need to know about the ninth special print puzzle section.`\
 https://nytimes.com/2024/11/13/crosswords/puzzle-mania-2024-faq.html
-
-**Betting for (by) dummies: Split on Bills-Chiefs, united on Kansas and 'Grey Cup' action**\
-`Jon Greenberg and Zac Jackson are back with their football betting picks for college, NFL and yes, CFL.`\
-https://nytimes.com/athletic/5920299/2024/11/13/betting-for-by-dummies-odds-picks-nfl-cfb-cfl/
-
-**John Robinson, Inspiring Coach of U.S.C. and L.A. Rams, Dies at 89**\
-`His Trojans won four Rose Bowls during his two stints at Southern California and shared one national championship. He took the Rams to two conference championships.`\
-https://nytimes.com/2024/11/13/sports/ncaafootball/john-robinson-dead.html
-
-**Election Officials Say Wisconsin Republican’s Claims ‘Lack Any Merit’**\
-`Eric Hovde, who lost his Senate campaign, is the first prominent candidate to suggest his race was rigged. We fact-checked his case.`\
-https://nytimes.com/2024/11/13/us/politics/election-wisconsin-senate-eric-hovde.html
-
-**Trump Chooses Tulsi Gabbard for Director of National Intelligence**\
-`Ms. Gabbard, a former congresswoman who left the Democratic Party, would hold a top job in the administration, overseeing 18 spy agencies.`\
-https://nytimes.com/2024/11/13/us/politics/trump-tulsi-gabbard-director-national-intelligence.html
 
