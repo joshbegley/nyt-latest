@@ -1,3 +1,11 @@
+**The CFP selection committee glossary: 12 terms to know for the 12-team field**\
+`ESPN’s weekly romp through the selection committee’s latest Top 25 is littered with vague analysis and poorly defined terminology.`\
+https://nytimes.com/athletic/5919621/2024/11/13/cfp-selection-committee-rankings-metrics/
+
+**Russia Launches Missiles Against Ukraine’s Capital**\
+`The attack ended a two-month pause in missile strikes on Kyiv, which had only been hit by Russian drones during that period.`\
+https://nytimes.com/2024/11/13/world/europe/russia-launches-missiles-against-ukraines-capital.html
+
 **The Fashion World Fears High Tariffs**\
 `President-elect Donald J. Trump has threatened a tax of at least 60 percent on goods from China — a move with the potential to decimate small American brands.`\
 https://nytimes.com/2024/11/13/style/fashion-tariffs.html

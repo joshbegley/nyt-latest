@@ -1,3 +1,11 @@
+**The CFP selection committee glossary: 12 terms to know for the 12-team field**\
+`ESPN’s weekly romp through the selection committee’s latest Top 25 is littered with vague analysis and poorly defined terminology.`\
+https://nytimes.com/athletic/5919621/2024/11/13/cfp-selection-committee-rankings-metrics/
+
+**Russia Launches Missiles Against Ukraine’s Capital**\
+`The attack ended a two-month pause in missile strikes on Kyiv, which had only been hit by Russian drones during that period.`\
+https://nytimes.com/2024/11/13/world/europe/russia-launches-missiles-against-ukraines-capital.html
+
 **The Fashion World Fears High Tariffs**\
 `President-elect Donald J. Trump has threatened a tax of at least 60 percent on goods from China — a move with the potential to decimate small American brands.`\
 https://nytimes.com/2024/11/13/style/fashion-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762309/2024/11/13/rodrigo-bentancur-ban-tottenham/
 **Melania Trump Will Not Meet With Jill Biden at White House**\
 `Mrs. Trump declined the invitation for the traditional meeting between the incoming and outgoing presidential spouses.`\
 https://nytimes.com/2024/11/13/us/politics/melania-trump-biden-white-house-meeting.html
-
-**After falling for months, mortgage rates are rising again. Why?**\
-`By Jeanna Smialek and Danielle Kaye`\
-https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/after-falling-for-months-mortgage-rates-are-rising-again-why
-
-**Duke asked Cooper Flagg to go win the game. Despite result, he'll be asked again and again**\
-`Cooper Flagg's two late turnovers are moments that will endure in loss to Kentucky but freshman star and Blue Devils will be better for it.`\
-https://nytimes.com/athletic/5919416/2024/11/13/duke-basketball-cooper-flagg-kentucky/
 
