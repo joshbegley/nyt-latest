@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-r
 `\
 https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
 
+**'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
+`It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
+`\
+https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
+
 **New York to Revive Congestion Pricing With $9 Toll**\
 `Gov. Kathy Hochul is expected to announce the revised program on Thursday after having put the original $15 toll on hold.`\
 https://nytimes.com/2024/11/13/nyregion/congestion-pricing-nine-dollars.html
