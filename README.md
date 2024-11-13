@@ -1,3 +1,7 @@
+**Firefighters Battle Wildfire in New York City**\
+`Emergency responders worked to contain a brush fire in Inwood Hill Park in Manhattan on Wednesday afternoon.`\
+https://nytimes.com/video/weather/100000009824708/inwood-hill-new-york-fire.html
+
 **Palm Springs Reaches Nearly $27 Million Reparations Deal With Former Residents**\
 `The City Council will vote on a package for former Black and Latino residents of a neighborhood that burned more than 50 years ago.`\
 https://nytimes.com/2024/11/13/us/california-palm-springs-reparations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920426/2024/11/13/lee-carsley-england-greece-team/
 **Trump Took a Victory Lap in Washington**\
 `Also, Ukraine is now prioritizing security, not land, in truce talks. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/11/13/briefing/trump-biden-white-house-ukraine-peace-talks.html
-
-**Here’s the latest on the storm.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/11/13/weather/tropical-storm-sara-hurricane/heres-the-latest-on-the-storm
 
