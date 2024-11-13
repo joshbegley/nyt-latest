@@ -1,3 +1,11 @@
+**Why Xavier McKinney took aim at D.J. Moore, spicing up Sunday's Bears-Packers clash**\
+`The Green Bay safety took umbrage Wednesday to comments made by the Chicago receiver before the season.`\
+https://nytimes.com/athletic/5920806/2024/11/13/d-j-moore-xavier-mckinney-comments-packers-bears/
+
+**C.D.C. Director Fears R.F.K. Jr. May Share ‘Misinformation From a Place of Power’**\
+`The prospect of a second Trump administration, and Robert F. Kennedy Jr.’s role in it, has rattled many people in public health.`\
+https://nytimes.com/2024/11/13/us/politics/cdc-director-rfk-jr-misinformation.html
+
 **Oakland Airport Can’t Use San Francisco in Its Name, Judge Rules**\
 `The airport’s name, San Francisco Bay Oakland International, suggested that the “lower rated airport” was associated with San Francisco, a federal judge said in a temporary order.`\
 https://nytimes.com/2024/11/13/us/san-francisco-oakland-airport-lawsuit.html
