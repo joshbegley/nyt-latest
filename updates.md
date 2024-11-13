@@ -1,3 +1,15 @@
+**Hadji, Mets announcer Keith Hernandez's internet-famous cat, dies**\
+`"It was his time to go," Hernandez said in a post on X about his 22-year-old cat.`\
+https://nytimes.com/athletic/5920307/2024/11/13/hadji-keith-hernandez-cat-dead/
+
+**For Now, Senate Republicans Say No to MAGA Excess**\
+`Rick Scott, who would have agreed to Trump’s idea of bypassing the Senate for nominations, lost his bid to become leader.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/senate-republican-leader
+
+**India Court Bans ‘Bulldozer Justice’ Often Used Against Muslims**\
+`So-called bulldozer justice, in which state governments raze the homes and businesses of people as acts of retribution, has steadily increased in India in recent years.`\
+https://nytimes.com/2024/11/13/world/asia/india-supreme-court-bulldozer-justice.html
+
 **Ole Miss flips in-state 5-star wide receiver Caleb Cunningham from Alabama**\
 `Cunningham, the nation's No. 16 prospect and No. 2 wide receiver in the 247Sports Composite, visited Ole Miss over the weekend.`\
 https://nytimes.com/athletic/5920276/2024/11/13/ole-miss-flips-caleb-cunningham-alabama-recruiting/
