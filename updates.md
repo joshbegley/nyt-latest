@@ -1,3 +1,7 @@
+**Matt Gaetz Is Trump’s Pick for Attorney General**\
+`President-elect Donald J. Trump has made clear his view of the Justice Department’s importance and has complained that his past attorneys general fell far short of his expectations.`\
+https://nytimes.com/2024/11/13/us/politics/matt-gaetz-trump-attorney-general.html
+
 **How California’s New Fuel Standards Could Affect Drivers**\
 `Regulators say the changes are essential to reducing carbon emissions. But political leaders in both parties are worried that gas prices could further increase.`\
 https://nytimes.com/2024/11/13/us/california-gas-prices-fuel-standard.html
