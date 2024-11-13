@@ -1,3 +1,7 @@
+**John Thune Rises to the Senate Top**\
+`The South Dakota Republican failed in his first try for the Senate but came back to defeat a chamber leader. Now he will be the leader himself.`\
+https://nytimes.com/2024/11/13/us/john-tune-senate-republican-leader.html
+
 **Trump’s Choice of Matt Gaetz Should Surprise No One**\
 `He’s doing exactly what he said he would.`\
 https://nytimes.com/2024/11/13/opinion/matt-gaetz-attorney-general-trump.html

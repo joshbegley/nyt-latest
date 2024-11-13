@@ -8,7 +8,7 @@ https://nytimes.com/2024/11/13/nyregion/inwood-hill-park-fire-nyc.html
 
 **John Thune Rises to the Senate Top**\
 `The South Dakota Republican failed in his first try for the Senate but came back to defeat a chamber leader. Now he will be the leader himself.`\
-https://nytimes.com/2024/11/13/us/john-thune-rises-to-the-senate-top.html
+https://nytimes.com/2024/11/13/us/john-tune-senate-republican-leader.html
 
 **A Project 2025 Leader Is Back in the Fold**\
 `At his book party, the Heritage Foundation president said he’ll soon speak with the president-elect.`\
