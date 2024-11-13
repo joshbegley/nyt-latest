@@ -1,3 +1,7 @@
+**49ers, Deommodore Lenoir agree to 5-year, $92 million extension**\
+`Lenoir has blossomed into one of the NFL's premier corners while playing both the outside cornerback and nickel cornerback positions.`\
+https://nytimes.com/athletic/5918635/2024/11/12/deommodore-lenoir-49ers-extension-source/
+
 **Trump Picks Pete Hegseth, a Veteran and Fox News Host, for Defense Secretary**\
 `The choice of Mr. Hegseth, a dedicated supporter of the president-elect in his first term, was outside the norm of the traditional choice for the post.`\
 https://nytimes.com/2024/11/12/us/politics/pete-hegseth-defense-secretary-trump.html
