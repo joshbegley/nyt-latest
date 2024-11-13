@@ -1,3 +1,7 @@
+**MLS investigating physical altercation involving Twellman during Inter Miami game**\
+`The alleged incident occurred around game one of the Eastern Conference quarterfinals between Miami and Atlanta United on October 25`\
+https://nytimes.com/athletic/5919690/2024/11/13/taylor-twellman-altercation-mls-miami-atlanta/
+
 **Trump’s Pick for Ambassador to Israel Sells a Children’s Book Praising Him**\
 `Mike Huckabee, the former governor of Arkansas whom Mr. Trump has selected for a crucial diplomatic role, co-founded a company selling a cartoon “Kids Guide to President Trump.”`\
 https://nytimes.com/2024/11/13/us/politics/huckabee-trump-kids-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/arts/design/pissarro-heirs-germany-museum-holocau
 **What’s in Our Queue? ‘My Brilliant Friend’ and More **\
 `By Tiffany May`\
 https://nytimes.com/card/2024/11/13/arts/editors-recommendations-brilliantfriend
-
-**Jury trial for Canada’s 2018 world junior players to start April 2025**\
-`A Superior Court jury trial was previously slated to begin in London, Ontario, in September 2025.`\
-https://nytimes.com/athletic/5918127/2024/11/13/hockey-canada-trial-april-2025-sexual-assault/
 
