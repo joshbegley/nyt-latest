@@ -1,3 +1,7 @@
+**Palm Springs Reaches Nearly $27 Million Reparations Deal With Former Residents**\
+`The City Council will vote on a package for former Black and Latino residents of a neighborhood that burned more than 50 years ago.`\
+https://nytimes.com/2024/11/13/us/california-palm-springs-reparations.html
+
 **Shohei Ohtani's 50th home run ball put on display in Taiwan**\
 `The historic baseball that commanded a record price is now on public display for the first time`\
 https://nytimes.com/athletic/5920566/2024/11/13/shohei-ohtanis-50-home-run-ball-taiwan/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/briefing/trump-biden-white-house-ukraine-peace-ta
 **Here’s the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/11/13/weather/tropical-storm-sara-hurricane/heres-the-latest-on-the-storm
-
-**Raiders tight end Michael Mayer returns to practice after 7-week absence**\
-`The tight end was out for seven weeks for personal reasons.`\
-https://nytimes.com/athletic/5920851/2024/11/13/las-vegas-raiders-michael-mayer-return/
 

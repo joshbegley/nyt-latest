@@ -1,3 +1,7 @@
+**Palm Springs Reaches Nearly $27 Million Reparations Deal With Former Residents**\
+`The City Council will vote on a package for former Black and Latino residents of a neighborhood that burned more than 50 years ago.`\
+https://nytimes.com/2024/11/13/us/california-palm-springs-reparations.html
+
 **Shohei Ohtani's 50th home run ball put on display in Taiwan**\
 `The historic baseball that commanded a record price is now on public display for the first time`\
 https://nytimes.com/athletic/5920566/2024/11/13/shohei-ohtanis-50-home-run-ball-taiwan/
