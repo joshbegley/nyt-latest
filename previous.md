@@ -1,3 +1,11 @@
+**Hurzeler's Brighton have made a daunting start look easy - so what next?**\
+`Hurzeler's first 11 Premier League games saw him face most of the division's established elite - yet Brighton are an encouraging sixth`\
+https://nytimes.com/athletic/5869206/2024/11/13/fabian-hurzeler-brighton-premier-league/
+
+**'Take me back to the 2000s': Premier League nostalgia and the perils of comparing different eras**\
+`Trying to evaluate the football of the Noughties through a modern lens - and vice versa - is fraught with difficulty. We gave it a try…`\
+https://nytimes.com/athletic/5917161/2024/11/13/premier-league-best-era-comparison-nostalgia/
+
 **More than a year on from Women's World Cup win, why can't Spain see change back home?**\
 `We consulted 12 of 16 clubs that made up Liga F in the 2023-24 season to find out about the state of top-flight women’s football in Spain`\
 https://nytimes.com/athletic/5917873/2024/11/13/spain-womens-world-cup-liga-f/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/5916901/2024/11/13/tactics-maresca-chelsea-full-bac
 `In a bid to curb knife crime, the government would hold officials of tech companies personally liable for illicit sales on their platforms, a significant shift in internet regulation.`\
 https://nytimes.com/2024/11/13/world/europe/uk-tech-fines-knives.html
 
-**The Leafs have a new problem this season: They can't score**\
+**Leafs have a new problem this season: They can't score**\
 `The Leafs have scored one goal at five-on-five, total, in their last five games.`\
 https://nytimes.com/athletic/5919056/2024/11/13/maple-leafs-scoring-problems-berube/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5918433/2024/11/13/fantasy-football-rankings-week-1
 **Wednesday Briefing**\
 `Donald Trump’s new appointments.`\
 https://nytimes.com/2024/11/13/briefing/trump-gaza-justin-welby.html
-
-**Quote of the Day: Many Women See a Setback; Many Disagree**\
-`Quotation of the Day for Wednesday, November 13, 2024`\
-https://nytimes.com/2024/11/12/pageoneplus/quote-of-the-day-many-women-see-a-setback-many-disagree.html
-
-**Explosion in the Bronx Disrupts Amtrak Service**\
-`A thick column of smoke billowed from the tracks before bursting into flames.`\
-https://nytimes.com/video/nyregion/100000009822651/amtrak-bronx-explosion-fire.html
 
