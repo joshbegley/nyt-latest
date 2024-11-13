@@ -1,3 +1,7 @@
+**‘Emilia Pérez’ Review: A Song and Dance of Transformation**\
+`The star of Jacques Audiard’s showy new musical about a trans Mexican crime boss, Karla Sofía Gascón, adds soul to the melodrama. Zoe Saldaña also shines.`\
+https://nytimes.com/2024/11/13/movies/emilia-perez-review.html
+
 **A Project 2025 Leader’s Exile Ends**\
 `At his book party, the Heritage Foundation president said he’ll soon speak with the President-elect.`\
 https://nytimes.com/2024/11/13/us/politics/project-2025-leader-exile.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/supreme-court-nvidia-securities-fraud
 **We Asked For Your Toughest Gifting Questions. Here Are Our Responses.**\
 `What do you get for a sick loved one? A group of remote colleagues? A teenager interested in fashion?`\
 https://nytimes.com/2024/11/13/t-magazine/gift-guide-questions-christmas-shopping.html
-
-**Canada Detects Its First Human Case of Bird Flu**\
-`A teenager in British Columbia was hospitalized in critical condition with the disease, and officials were working to find out how the person was exposed to the virus.`\
-https://nytimes.com/2024/11/13/world/canada/british-columbia-bird-flu-teenager.html
 

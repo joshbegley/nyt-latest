@@ -1,3 +1,15 @@
+**A Project 2025 Leader’s Exile Ends**\
+`At his book party, the Heritage Foundation president said he’ll soon speak with the President-elect.`\
+https://nytimes.com/2024/11/13/us/politics/project-2025-leader-exile.html
+
+**Marco Rubio Is Trump’s Pick for Secretary of State**\
+`The president-elect said Senator Rubio would be “a strong advocate for our nation, a true friend to our allies and a fearless warrior who will never back down to our adversaries.”`\
+https://nytimes.com/2024/11/13/us/politics/marco-rubio-trump-secretary-of-state.html
+
+**2 Workers Are Killed in ‘Tremendous Explosion’ at Kentucky Plant**\
+`The explosion at a food-coloring facility in Louisville also injured several others and caused widespread destruction.`\
+https://nytimes.com/2024/11/13/us/kentucky-louisville-factory-explosion.html
+
 **Climate Change Is Losing Its Grip on Our Politics**\
 `Trump’s election merely confirms a shift that’s been happening for years.`\
 https://nytimes.com/2024/11/13/opinion/climate-change-politics-trump-cop29.html
