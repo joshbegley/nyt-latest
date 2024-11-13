@@ -1,3 +1,7 @@
+**Billie Jean King Cup will begin Thursday after red weather warning in Malaga delays start**\
+`Severe rain and flooding are expected in southern Spain, where the international women's tennis team event is being held.`\
+https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
+
 **Supreme Court Seems Ready to Allow Securities Fraud Case Against Nvidia**\
 `The case, which is in an early stage, accused the giant technology company of misleading investors about its exposure to the cryptocurrency industry.`\
 https://nytimes.com/2024/11/13/us/politics/supreme-court-nvidia-securities-fraud.html
