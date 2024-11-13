@@ -1,3 +1,7 @@
+**Joe Schoen says 2-8 Giants aren't 'far off.' The evidence suggests otherwise**\
+`Schoen's bye week news conference was a no-win situation for the GM. Unfortunately, that made it a lot like the team he has assembled.`\
+https://nytimes.com/athletic/5918841/2024/11/13/new-york-giants-joe-schoen-takeaways-far-off/
+
 **Four Tropical Storms Rage Simultaneously Near the Philippines**\
 `It is the first time on record that more than three tropical storms have occurred at the same time in November in the region.`\
 https://nytimes.com/2024/11/13/world/asia/typhoon-storms-philippines-pacific.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/nyregion/amtrak-service-fire-nyc-new-haven.html
 **Blackhawks future roster, salary cap projection: Part 1**\
 `A time will come when the present will matter to the Chicago Blackhawks.`\
 https://nytimes.com/athletic/5917329/2024/11/13/blackhawks-roster-salary-cap-projection-2025-26/
-
-**Russell Wilson finds a way, Jets' defense unravels, Week 10 thoughts: Quick Outs**\
-`Wilson has raised the ceiling for the Steelers' offense since returning, while the Jets have gotten nothing of the Robert Saleh firing.`\
-https://nytimes.com/athletic/5917905/2024/11/13/nfl-week-10-russell-wilson-quick-outs/
 
