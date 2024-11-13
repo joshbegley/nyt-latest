@@ -1,3 +1,11 @@
+**Jaguars QB Trevor Lawrence out vs. Lions, could return after bye week**\
+`Mac Jones is expected to start against Detroit this week.`\
+https://nytimes.com/athletic/5920012/2024/11/13/trevor-lawrence-out-jaguars-lions/
+
+**Republican Senators Elect Thune as Next Majority Leader**\
+`Senator John Thune of South Dakota emerged victorious over a right-wing challenge from Senator Rick Scott of Florida.`\
+https://nytimes.com/2024/11/13/us/politics/trump-senate-thune-cornyn-scott.html
+
 **R.F.K. Jr. Scorns Trump’s Fast Food Habit: ‘Really, Like, Bad’ and ‘Poison’**\
 `Intent on changing the U.S. food supply under the incoming Trump administration, Robert F. Kennedy Jr. passed judgment on the president-elect’s culinary choices during a recent podcast interview.`\
 https://nytimes.com/2024/11/13/us/politics/rfk-jr-trumps-fast-food.html
