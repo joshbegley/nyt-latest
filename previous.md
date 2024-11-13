@@ -1,3 +1,7 @@
+**Josh Hart was 'lost' before the season. Now he's on pace for a career year**\
+`The veteran wasn't sure how he'd fit around New York's big acquisitions. But he's finding his way, like the Knicks knew he would.`\
+https://nytimes.com/athletic/5919608/2024/11/13/josh-hart-knicks-role-nba/
+
 **John Malone Reorders Media Empire as C.E.O. Exits**\
 `Liberty Media, which owns stakes in Formula One and Live Nation, is spinning off some of its assets in a corporate restructuring.`\
 https://nytimes.com/2024/11/13/business/liberty-media-john-malone.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/world/europe/blinken-nato-ukraine-trump.html
 **What to know about the inflation report.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/what-to-know-about-the-inflation-report
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/11/13/nhl-standings-playoffs-projections-odds/
 
