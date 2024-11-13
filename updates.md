@@ -1,3 +1,7 @@
+**Aid Deliveries to Gaza Remain Low Despite U.S. Warning to Israel**\
+`The Biden administration gave Israel 30 days to increase the flow of aid, warning that aid shipments into Gaza in September had reached an alarmingly low level.`\
+https://nytimes.com/2024/11/13/world/middleeast/gaza-aid-us-israel.html
+
 **Commanders notebook: Wide receiver production encouraging post-Jahan Dotson**\
 `Plus, when will Washington get Pro Bowl CB Marshon Lattimore on the field? And could power back Brian Robinson Jr. return vs. the Eagles?`\
 https://nytimes.com/athletic/5918563/2024/11/13/commanders-receivers-jahan-dotson-eagles/
