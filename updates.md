@@ -1,3 +1,7 @@
+**Vikings' J.J. McCarthy undergoes procedure, receives injection amid rehab from meniscus tear**\
+`McCarthy underwent a minor procedure and received a biologic injection this week after an uptick in rehab led to swelling in his knee. `\
+https://nytimes.com/athletic/5920526/2024/11/13/vikings-jj-mccarthy-meniscus-injury-knee/
+
 **Matt Gaetz Is Trump’s Pick for Attorney General**\
 `President-elect Donald J. Trump has made clear his view of the Justice Department’s importance and has complained that his past attorneys general fell far short of his expectations.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-trump-attorney-general.html
