@@ -1,3 +1,11 @@
+**Supreme Court Seems Ready to Allow Securities Fraud Case Against Nvidia**\
+`The case, which is in an early stage, accused the giant technology company of misleading investors about its exposure to the cryptocurrency industry.`\
+https://nytimes.com/2024/11/13/us/politics/supreme-court-nvidia-securities-fraud.html
+
+**We Asked For Your Toughest Gifting Questions. Here Are Our Responses.**\
+`What do you get for a sick loved one? A group of remote colleagues? A teenager interested in fashion?`\
+https://nytimes.com/2024/11/13/t-magazine/gift-guide-questions-christmas-shopping.html
+
 **Canada Detects Its First Human Case of Bird Flu**\
 `A teenager in British Columbia was hospitalized in critical condition with the disease, and officials were working to find out how the person was exposed to the virus.`\
 https://nytimes.com/2024/11/13/world/canada/british-columbia-bird-flu-teenager.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5920307/2024/11/13/hadji-keith-hernandez-cat-dead/
 **For Now, Senate Republicans Say No to MAGA Excess**\
 `Rick Scott, who would have agreed to Trump’s idea of bypassing the Senate for nominations, lost his bid to become leader.`\
 https://nytimes.com/2024/11/13/opinion/senate-republican-leader.html
-
-**India Court Bans ‘Bulldozer Justice’ Often Used Against Muslims**\
-`So-called bulldozer justice, in which state governments raze the homes and businesses of people as acts of retribution, has steadily increased in India in recent years.`\
-https://nytimes.com/2024/11/13/world/asia/india-supreme-court-bulldozer-justice.html
-
-**Ole Miss flips in-state 5-star wide receiver Caleb Cunningham from Alabama**\
-`Cunningham, the nation's No. 16 prospect and No. 2 wide receiver in the 247Sports Composite, visited Ole Miss over the weekend.`\
-https://nytimes.com/athletic/5920276/2024/11/13/ole-miss-flips-caleb-cunningham-alabama-recruiting/
 
