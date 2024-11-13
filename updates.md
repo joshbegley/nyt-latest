@@ -1,3 +1,7 @@
+**Jordan Klepper Isn’t Wild About the ‘First Buddy,’ Elon Musk**\
+`“Trump’s been getting something that Elon’s 11 children will never receive: his full attention,” Klepper said on “The Daily Show.”`\
+https://nytimes.com/2024/11/13/arts/television/jordan-klepper-elon-musk.html
+
 **We Spoke With 13 Young Undecided Americans for Months. Here’s How They Voted.**\
 `The group of young undecided voters meets for the final time.`\
 https://nytimes.com/interactive/2024/11/13/opinion/focusgroup-young-undecided-voters.html
