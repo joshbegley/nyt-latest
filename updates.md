@@ -48,6 +48,11 @@ https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-r
 `\
 https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
 
+**'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
+`It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
+`\
+https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
+
 **What the Bears' switch at play caller means for Caleb Williams with season at crossroads**\
 `The Bears need a spark and better play from Williams. The hope is new offensive coordinator Thomas Brown can help them get there.`\
 https://nytimes.com/athletic/5920742/2024/11/13/bears-caleb-williams-thomas-brown/
