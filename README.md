@@ -1,3 +1,7 @@
+**John Malone Reorders Media Empire as C.E.O. Exits**\
+`Liberty Media, which owns stakes in Formula One and Live Nation, is spinning off some of its assets in a corporate restructuring.`\
+https://nytimes.com/2024/11/13/business/liberty-media-john-malone.html
+
 **Why the Messy Cardinals of ‘Conclave’ Make for Great Memes**\
 `Thanks to characters we recognize from reality TV, the Vatican intrigues have jumped from stuffy prestige drama to the social-media scrum.`\
 https://nytimes.com/2024/11/13/movies/conclave-memes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/what-to-know-abou
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/13/nhl-standings-playoffs-projections-odds/
-
-**A $4 Billion Plan to Settle Fire Claims Is Heading to Hawaii’s Supreme Court**\
-`Insurers that paid claims in Maui say a deal unfairly keeps them from recouping their own losses.`\
-https://nytimes.com/2024/11/13/business/lahaina-fire-settlement-court-battle-insurers.html
 
