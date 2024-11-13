@@ -1,3 +1,11 @@
+**Supreme Court Seems Ready to Allow Securities Fraud Case Against Nvidia**\
+`The case, which is in an early stage, accused the giant technology company of misleading investors about its exposure to the cryptocurrency industry.`\
+https://nytimes.com/2024/11/13/us/politics/supreme-court-nvidia-securities-fraud.html
+
+**We Asked For Your Toughest Gifting Questions. Here Are Our Responses.**\
+`What do you get for a sick loved one? A group of remote colleagues? A teenager interested in fashion?`\
+https://nytimes.com/2024/11/13/t-magazine/gift-guide-questions-christmas-shopping.html
+
 **Canada Detects Its First Human Case of Bird Flu**\
 `A teenager in British Columbia was hospitalized in critical condition with the disease, and officials were working to find out how the person was exposed to the virus.`\
 https://nytimes.com/2024/11/13/world/canada/british-columbia-bird-flu-teenager.html
