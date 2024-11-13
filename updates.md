@@ -1,3 +1,11 @@
+**Trump Picks Pete Hegseth, a Veteran and Fox News Host, for Defense Secretary**\
+`The choice of Mr. Hegseth, a dedicated supporter of the president-elect in his first term, was outside the norm of the traditional choice for the post.`\
+https://nytimes.com/2024/11/12/us/politics/pete-hegseth-defense-secretary-trump.html
+
+**Trump Picks John Ratcliffe, His Former Intelligence Director, for C.I.A. Chief**\
+`Mr. Ratcliffe, who was also a Texas congressman, fought fiercely for Donald Trump during his first term.`\
+https://nytimes.com/2024/11/12/us/politics/john-ratcliffe-cia-director-trump.html
+
 **5 Years After Killing Driver, Officer Fights at Trial to Keep His Job**\
 `In an internal trial, Lt. Jonathan Rivera of the New York Police Department faces charges that he acted rashly when he shot Allan Feliz during an altercation.`\
 https://nytimes.com/2024/11/12/nyregion/nypd-shooting-trial-allan-feliz.html
