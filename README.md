@@ -1,3 +1,7 @@
+**To Slash Government, Trump Taps 2 Wealthy Entrepreneurs**\
+`Elon Musk and Vivek Ramaswamy will lead what the president-elect called the Department of Government Efficiency, which he said would seek “drastic change.” But the announcement left a lot unanswered.`\
+https://nytimes.com/2024/11/12/us/politics/elon-musk-vivek-ramaswamy-trump.html
+
 **Corrections: No. 13, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 13, 2024.`\
 https://nytimes.com/2024/11/12/pageoneplus/corrections-no-13-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/12/us/elections/california-house-garcia-whitesides.h
 **Cook What You Love (Pies)**\
 `This year’s batch of Thanksgiving pies is particularly lovable: butterscotch banana cream pie, coffee and maple chess pie and pomegranate cardamom apple pie, to name a few.`\
 https://nytimes.com/2024/11/12/dining/thanksgiving-pie-recipes.html
-
-**Airport Food Prices, Already High, Are Set to Rise in New York Area**\
-`The three big airports that serve New York City have proposed allowing concession prices to rise and adding a surcharge to cover higher wages and improved worker benefits.`\
-https://nytimes.com/2024/11/12/nyregion/jfk-lga-food-prices.html
 
