@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/13/opinion/democrats-republicans-class-realignment.h
 `The U.N.’s annual climate conference has swelled over three decades, with governments, fossil fuel interests and others vying for influence.`\
 https://nytimes.com/interactive/2024/11/13/climate/cop-climate-summit-attendance.html
 
-**Republicans See a Great Economic Outlook. Democrats, Not So Much.**\
+**Republicans See a Great Economic Outlook. Now It’s Democrats Who Don’t.**\
 `Consumer sentiment among Republicans has soared to its highest point since Donald J. Trump left the White House, while declining among Democrats.`\
 https://nytimes.com/2024/11/13/business/economy/consumer-sentiment-trump.html
 
