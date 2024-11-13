@@ -1,3 +1,16 @@
+**New York to Revive Congestion Pricing With $9 Toll**\
+`Gov. Kathy Hochul is expected to announce the revised program on Thursday after having put the original $15 toll on hold.`\
+https://nytimes.com/2024/11/13/nyregion/congestion-pricing-nine-dollars.html
+
+**'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
+`It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
+`\
+https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
+
+**Brian Robinson Jr. expected to play vs. Eagles, Marshon Lattimore out**\
+`Robinson missed the last two weeks with a hamstring injury`\
+https://nytimes.com/athletic/5920750/2024/11/13/commanders-brian-robinson-marshon-lattimore/
+
 **Blues' Robert Thomas takes big step in return from fractured ankle: 'It's a good sign'**\
 `The forward skated with the club Wednesday for the first time since suffering a fractured ankle on Oct. 22.`\
 https://nytimes.com/athletic/5920100/2024/11/13/robert-thomas-fractured-ankle-recovery/
