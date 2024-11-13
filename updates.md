@@ -1,3 +1,11 @@
+**R.F.K. Jr. Scorns Trump’s Fast Food Habit: ‘Really, Like, Bad’ and ‘Poison’**\
+`Intent on changing the U.S. food supply under the incoming Trump administration, Robert F. Kennedy Jr. passed judgment on the president-elect’s culinary choices during a recent podcast interview.`\
+https://nytimes.com/2024/11/13/us/politics/rfk-jr-trumps-fast-food.html
+
+**What to Know About Trump Media Now That the Election Is Over**\
+`Truth Social still has paltry revenues and a limited advertising base, and the president-elect’s majority stake raises the potential for conflicts of interest.`\
+https://nytimes.com/2024/11/13/business/trump-media-truth-social.html
+
 **A Master of Hawaiian Dance Wins the Gish Prize**\
 `Vicky Holt Takamine, a renowned teacher of hula dance and a champion for Indigenous culture, will receive a cash award of more than $450,000.`\
 https://nytimes.com/2024/11/13/arts/dance/vicky-holt-takamine-hawaiian-gish-prize.html
