@@ -1,3 +1,15 @@
+**Whitesides Defeats Garcia in California, Handing House Democrats a Win**\
+`George Whitesides, the former NASA chief of staff, defeated Representative Mike Garcia, a Republican, flipping a hotly contested seat in the northern suburbs of Los Angeles.`\
+https://nytimes.com/2024/11/12/us/elections/california-house-garcia-whitesides.html
+
+**Cook What You Love (Pies)**\
+`This year’s batch of Thanksgiving pies is particularly lovable: butterscotch banana cream pie, coffee and maple chess pie and pomegranate cardamom apple pie, to name a few.`\
+https://nytimes.com/2024/11/12/dining/thanksgiving-pie-recipes.html
+
+**Airport Food Prices, Already High, Are Set to Rise in New York Area**\
+`The three big airports that serve New York City have proposed allowing concession prices to rise and adding a surcharge to cover higher wages and improved worker benefits.`\
+https://nytimes.com/2024/11/12/nyregion/jfk-lga-food-prices.html
+
 **Trump Picks Kristi Noem for Homeland Security Secretary**\
 `Ms. Noem, the governor of South Dakota, would play a major role in carrying out the president-elect’s promises to crack down on the border and deport millions of people.`\
 https://nytimes.com/2024/11/12/us/politics/kristi-noem-homeland-security-secretary-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5918635/2024/11/12/deommodore-lenoir-49ers-extensio
 **Trump Picks Pete Hegseth, a Veteran and Fox News Host, for Defense Secretary**\
 `The choice of Mr. Hegseth, a dedicated supporter of the president-elect in his first term, is outside the norm of the traditional choice for the post.`\
 https://nytimes.com/2024/11/12/us/politics/pete-hegseth-defense-secretary-trump.html
-
-**5 Years After Killing Driver, Officer Fights at Trial to Keep His Job**\
-`In an internal trial, Lt. Jonathan Rivera of the New York Police Department faces charges that he acted rashly when he shot Allan Feliz during an altercation.`\
-https://nytimes.com/2024/11/12/nyregion/nypd-shooting-trial-allan-feliz.html
-
-**‘Fossil Fuels Are Still Winning’: Global Emissions Head for a Record**\
-`Countries promised to move away from coal, oil and natural gas at last year’s climate summit. New research shows they’re are burning more than ever before.`\
-https://nytimes.com/2024/11/12/climate/fossil-fuel-emissions-2024-record.html
-
-**‘Hot Frosty’ Review: The 8 Abs of Christmas**\
-`A hunky snowman comes to life in this Netflix holiday rom-com that strikes a certain muscle tone.`\
-https://nytimes.com/2024/11/12/movies/hot-frosty-review.html
 
