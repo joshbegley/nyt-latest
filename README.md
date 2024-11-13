@@ -1,3 +1,15 @@
+**Ground Game in Pennsylvania Was No Match for Groundswell of Grievances**\
+`Democrats knocked on a lot more doors in Pennsylvania than Republicans did. It wasn’t enough to overcome a wave of support for Donald Trump.`\
+https://nytimes.com/2024/11/13/us/trump-harris-pennsylvania.html
+
+**Review: Lise Davidsen Meets Puccini in ‘Tosca’ at the Met**\
+`The powerhouse soprano, already a company stalwart at 37, still seems to be figuring out a character whose moods change on a dime.`\
+https://nytimes.com/2024/11/13/arts/music/review-lise-davidsen-tosca-met.html
+
+**‘Where We Are’: A Photo Essay Contest for Exploring Community**\
+`For the second year in a row, we invite students to document the local, offline communities that interest them. Contest dates: Dec. 4, 2024, to Jan. 15, 2025.`\
+https://nytimes.com/2024/11/13/learning/where-we-are-a-photo-essay-contest-for-exploring-community.html
+
 **I Made an Appointment With My Dentist. I Got His Son. Is That OK?**\
 `The magazine’s Ethicist columnist on whether a patient is entitled to be informed of provider changes.`\
 https://nytimes.com/2024/11/13/magazine/dentist-appointment-son-ethics.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/13/world/europe/notre-dame-cathedral-reopening.html
 **Scoop City: Five more coaches to watch**\
 `A look at why five coaches are on the hot seat, plus a quick mock of the 2025 QB class. `\
 https://nytimes.com/athletic/5919868/2024/11/13/five-nfl-coaches-hot-seat-scoop-city/
-
-**How Did a Golf Course in the Desert Get So Lush? Let Us Explain.**\
-`For the DP World Tour Championship in Dubai, it took planning and water. “The desert golf courses are actually the most efficient users of water out of necessity,” a U.S.G.A. official said.`\
-https://nytimes.com/2024/11/13/sports/golf/dubai-golf-course-desert-water.html
-
-**Cryptocurrency’s Latest Disruption: A Dog Popularity Contest**\
-`Did a fun event involving cute dogs turn into a pump-and-dump scheme?`\
-https://nytimes.com/2024/11/13/nyregion/new-york-mayor-voting-dog.html
-
-**The Five Players to Watch at the DP World Tour Championship**\
-`The tournament will also determine the winner of the Race to Dubai.`\
-https://nytimes.com/2024/11/13/sports/golf/dp-world-tour-championship-players.html
 
