@@ -1,3 +1,11 @@
+**Trump and Biden Make Nice at the White House, at Least for 29 Seconds**\
+`President Biden and President-elect Donald J. Trump’s brief public display of civility was followed by a two-hour meeting behind closed doors.`\
+https://nytimes.com/2024/11/13/us/politics/trump-biden-white-house.html
+
+**The British Museum Gets a Giant Gift: $1.27 Billion of Chinese Ceramics**\
+`Sir Percival David’s collection, amassed in the early 1900s, includes prized vases and wine cups. “You simply couldn’t build up a collection like this today,” one expert said.`\
+https://nytimes.com/2024/11/13/arts/design/british-museum-donation-ceramics.html
+
 **Tracking Potential Tropical Cyclone Nineteen**\
 `See the likely path and wind arrival times for Nineteen.`\
 https://nytimes.com/interactive/2024/11/13/weather/nineteen-map-path-tracker.html

@@ -1,3 +1,11 @@
+**Trump and Biden Make Nice at the White House, at Least for 29 Seconds**\
+`President Biden and President-elect Donald J. Trump’s brief public display of civility was followed by a two-hour meeting behind closed doors.`\
+https://nytimes.com/2024/11/13/us/politics/trump-biden-white-house.html
+
+**The British Museum Gets a Giant Gift: $1.27 Billion of Chinese Ceramics**\
+`Sir Percival David’s collection, amassed in the early 1900s, includes prized vases and wine cups. “You simply couldn’t build up a collection like this today,” one expert said.`\
+https://nytimes.com/2024/11/13/arts/design/british-museum-donation-ceramics.html
+
 **Tracking Potential Tropical Cyclone Nineteen**\
 `See the likely path and wind arrival times for Nineteen.`\
 https://nytimes.com/interactive/2024/11/13/weather/nineteen-map-path-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/13/briefing/trump-ukraine-netanyahu.html
 **A Foul Fireside Chat**\
 `Biden followed protocol; Trump does so only when he wins.`\
 https://nytimes.com/live/2024/11/12/opinion/thepoint/a-foul-fireside-chat
-
-**Wordle Review No. 1,244**\
-`Scroll down for hints and conversation about the puzzle for Nov. 14, 2024.`\
-https://nytimes.com/2024/11/13/crosswords/wordle-review-1244.html
-
-**Here's how the Flyers seem to be finding their identity again**\
-`After a disappointing start to the season, the Flyers have a three-game point streak, with several on-ice improvements.`\
-https://nytimes.com/athletic/5920536/2024/11/13/philadelphia-flyers-goals-senators/
 
