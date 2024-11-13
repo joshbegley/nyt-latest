@@ -1,3 +1,11 @@
+**'We have the right coach': Oklahoma president, AD back Brent Venables**\
+`Heading toward the worst season Oklahoma football has had in decades, the school’s president and athletic director both threw their support behind coach Brent Venables and put to rest speculation that a coaching change could be coming.`\
+https://nytimes.com/athletic/5920130/2024/11/13/oklahoma-football-brent-venables-confidence/
+
+**Republican Senators Elect John Thune as Next Majority Leader**\
+`Senator John Thune of South Dakota emerged victorious over a right-wing challenge from Senator Rick Scott of Florida.`\
+https://nytimes.com/2024/11/13/us/politics/trump-senate-thune-cornyn-scott.html
+
 **Jaguars QB Trevor Lawrence out vs. Lions, could return after bye week**\
 `Mac Jones is expected to start against Detroit this week.`\
 https://nytimes.com/athletic/5920012/2024/11/13/trevor-lawrence-out-jaguars-lions/
