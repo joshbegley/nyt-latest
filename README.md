@@ -1,3 +1,15 @@
+**I Made an Appointment With My Dentist. I Got His Son. Is That OK?**\
+`The magazine’s Ethicist columnist on whether a patient is entitled to be informed of provider changes.`\
+https://nytimes.com/2024/11/13/magazine/dentist-appointment-son-ethics.html
+
+**Heat Today: 5 key takeaways from Miami's up-and-down first 10 games**\
+`Rebounding and clutch time are two areas of concern in the team's 4-6 start.`\
+https://nytimes.com/athletic/5919617/2024/11/13/miami-heat-tyler-herro-jimmy-butler-bam-adebayo/
+
+**What to Know About Trump’s Pick for Defense Secretary**\
+`The choice of Pete Hegseth, a Fox News host and veteran, was outside the norm. But he was a dedicated supporter of President-elect Donald J. Trump during his first term.`\
+https://nytimes.com/2024/11/13/us/politics/trump-defense-pete-hegseth.html
+
 **‘Cross’ and ‘The Lincoln Lawyer’ Offer Different Spins on the Same Formula**\
 `Within the boundaries of the crime-solving genius genre, “Cross” represents the dark yin and “The Lincoln Lawyer” the bright yang.`\
 https://nytimes.com/2024/11/13/arts/television/cross-the-lincoln-lawyer.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/13/nyregion/new-york-mayor-voting-dog.html
 **The Five Players to Watch at the DP World Tour Championship**\
 `The tournament will also determine the winner of the Race to Dubai.`\
 https://nytimes.com/2024/11/13/sports/golf/dp-world-tour-championship-players.html
-
-**It’s Been an Exciting Year for the DP World Tour**\
-`Here are five tournaments that stood out in 2024.`\
-https://nytimes.com/2024/11/13/sports/golf/dp-world-tour-best.html
-
-**Daniele Rustioni, Fixture at the Met Opera, Will Be Its Guest Conductor**\
-`Beginning next fall, Rustioni will lead at least two operas each season and help provide continuity for the Met as it rebuilds after a wave of retirements.`\
-https://nytimes.com/2024/11/13/arts/music/daniele-rustioni-met-opera.html
-
-**A Sheet-Pan Dinner That’s as Pretty as It Is Fast**\
-`My recipe for roasted sausages with grapes and onions works well with any type of sausage and any color grape (though red and purple are the prettiest).`\
-https://nytimes.com/2024/11/13/dining/easy-sausage-dinner-recipe.html
 
