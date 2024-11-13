@@ -1,3 +1,23 @@
+**A Master of Hawaiian Dance Wins the Gish Prize**\
+`Vicky Holt Takamine, a renowned teacher of hula dance and a champion for Indigenous culture, will receive a cash award of more than $450,000.`\
+https://nytimes.com/2024/11/13/arts/dance/vicky-holt-takamine-hawaiian-gish-prize.html
+
+**EA Sports to add PWHL teams and players to NHL 25**\
+`All six PWHL teams will be integrated into the game as part of a multiyear partnership between the video game developer and the league.`\
+https://nytimes.com/athletic/5918884/2024/11/13/ea-sports-pwhl-nhl-25-release/
+
+**Are You a Member of Gen Z? Tell Us About the Trends You’re Seeing.**\
+`Fashion, slang, social media, activism: We want to hear what young people are thinking and talking about.`\
+https://nytimes.com/2024/11/13/style/gen-z-trends-fashion-social-media.html
+
+**Colts returning to Anthony Richardson as QB1 vs. Jets**\
+`Following Sunday's loss, Joe Flacco's record as Indianapolis' starter is 1-3, while Anthony Richardson is 3-3 for the team.`\
+https://nytimes.com/athletic/5915662/2024/11/13/anthony-richardson-colts-starter-return/
+
+**What to Know About Trump Media Now That the Election Is Over**\
+`Truth Social still has paltry revenues and a limited advertising base, and the president-elect’s majority stake raises the potential for conflicts of interest.`\
+https://nytimes.com/2024/11/13/business/what-to-know-about-trump-media.html
+
 **Tage Thompson or Vincent Trocheck? Brock Nelson or Cole Caufield? Bill Guerin talks U.S. 4 Nations roster**\
 `Guerin, the U.S. GM, on management's tough decisions: "We’ll just start laughing and be like, ‘Listen to us nitpick this superstar player.'"`\
 https://nytimes.com/athletic/5919918/2024/11/13/united-states-4-nations-roster/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/13/us/trump-harris-pennsylvania.html
 **Review: Lise Davidsen Meets Puccini in ‘Tosca’ at the Met**\
 `The powerhouse soprano, already a company stalwart at 37, still seems to be figuring out a character whose moods change on a dime.`\
 https://nytimes.com/2024/11/13/arts/music/review-lise-davidsen-tosca-met.html
-
-**‘Where We Are’: A Photo Essay Contest for Exploring Community**\
-`For the second year in a row, we invite students to document the local, offline communities that interest them. Contest dates: Dec. 4, 2024, to Jan. 15, 2025.`\
-https://nytimes.com/2024/11/13/learning/where-we-are-a-photo-essay-contest-for-exploring-community.html
-
-**I Made an Appointment With My Dentist. I Got His Son. Is That OK?**\
-`The magazine’s Ethicist columnist on whether a patient is entitled to be informed of provider changes.`\
-https://nytimes.com/2024/11/13/magazine/dentist-appointment-son-ethics.html
-
-**Heat Today: 5 key takeaways from Miami's up-and-down first 10 games**\
-`Rebounding and clutch time are two areas of concern in the team's 4-6 start.`\
-https://nytimes.com/athletic/5919617/2024/11/13/miami-heat-tyler-herro-jimmy-butler-bam-adebayo/
-
-**What to Know About Pete Hegseth, Trump’s Pick for Defense Secretary**\
-`The choice of the Fox News host and veteran was outside the norm. But he was a dedicated supporter of President-elect Donald J. Trump during his first term.`\
-https://nytimes.com/2024/11/13/us/politics/trump-defense-pete-hegseth.html
-
-**‘Cross’ and ‘The Lincoln Lawyer’ Offer Different Spins on the Same Formula**\
-`Within the boundaries of the crime-solving genius genre, “Cross” represents the dark yin and “The Lincoln Lawyer” the bright yang.`\
-https://nytimes.com/2024/11/13/arts/television/cross-the-lincoln-lawyer.html
 
