@@ -1,3 +1,7 @@
+**Melania Trump Will Not Meet With Jill Biden at White House**\
+`Mrs. Trump declined the invitation for the traditional meeting between the incoming and outgoing presidential spouses.`\
+https://nytimes.com/2024/11/13/us/politics/melania-trump-biden-white-house-meeting.html
+
 **Trump Transition Live Updates: Biden and Trump to Meet, Honoring a Tradition**\
 `The president was scheduled to host his successor at the White House, a courtesy Mr. Trump did not extend to Mr. Biden after losing in 2020. Elon Musk was expected to join Mr. Trump in a meeting with House Republicans.`\
 https://nytimes.com/live/2024/11/13/us/trump-news

@@ -1,3 +1,7 @@
+**Melania Trump Will Not Meet With Jill Biden at White House**\
+`Mrs. Trump declined the invitation for the traditional meeting between the incoming and outgoing presidential spouses.`\
+https://nytimes.com/2024/11/13/us/politics/melania-trump-biden-white-house-meeting.html
+
 **After falling for months, mortgage rates are rising again. Why?**\
 `By Jeanna Smialek and Danielle Kaye`\
 https://nytimes.com/live/2024/11/13/business/cpi-inflation-fed/after-falling-for-months-mortgage-rates-are-rising-again-why
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919262/2024/11/13/all-mlb-team-2024-ohtani-soto/
 **Villa's Torres withdraws from Spain squad due to injury**\
 `Aston Villa defender Pau Torres has withdrawn from the Spain squad for their upcoming Nations League games against Denmark and Switzerland.`\
 https://nytimes.com/athletic/5919468/2024/11/13/pau-torres-injury-spain-villa/
-
-**One City, Three Great Artists: Reuniting Leonardo, Michelangelo and Raphael**\
-`A London exhibition shows how the three painters circled one another as rivals and role models in 16th-century Florence.`\
-https://nytimes.com/2024/11/13/arts/design/leonardo-michelangelo-raphael-royal-academy.html
 
