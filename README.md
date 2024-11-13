@@ -1,3 +1,7 @@
+**After a Mayor’s Beheading, Mexican Authorities Arrest His Top Security Official**\
+`Mayor Alejandro Arcos Catalán was killed less than a week after taking office in Chilpancingo. On Tuesday, the authorities arrested the city’s public security minister in connection with his death.`\
+https://nytimes.com/2024/11/13/world/americas/chilpancingo-mayor-beheaded-mexico-arrest.html
+
 **Trump and Biden Make Nice at the White House, at Least for 29 Seconds**\
 `President Biden and President-elect Donald J. Trump’s brief public display of civility was followed by a two-hour meeting behind closed doors.`\
 https://nytimes.com/2024/11/13/us/politics/trump-biden-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/kristi-noem-homeland-security.html
 **Thursday Briefing: Trump’s Victory Lap**\
 `Plus, an artist sticks up for A.I.`\
 https://nytimes.com/2024/11/13/briefing/trump-ukraine-netanyahu.html
-
-**A Foul Fireside Chat**\
-`Biden followed protocol; Trump does so only when he wins.`\
-https://nytimes.com/live/2024/11/12/opinion/thepoint/a-foul-fireside-chat
 
