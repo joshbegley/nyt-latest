@@ -1,3 +1,7 @@
+**College Football Playoff rankings, ranked: Texas has done what to deserve this?**\
+`We want the weekly Playoff rankings. We want to complain about them. In fact, we like these rankings so much, how about we rank them?`\
+https://nytimes.com/athletic/5918776/2024/11/12/college-football-playoff-rankings-texas-oregon-ohio-state/
+
 **Maple Leafs report cards: Whole team falls flat in dismal loss to Senators**\
 `The Leafs were shut out at home for the first time since November of 2021.`\
 https://nytimes.com/athletic/5918576/2024/11/12/maple-leafs-report-cards-senators-shutout/

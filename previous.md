@@ -1,3 +1,7 @@
+**College Football Playoff rankings, ranked: Texas has done what to deserve this?**\
+`We want the weekly Playoff rankings. We want to complain about them. In fact, we like these rankings so much, how about we rank them?`\
+https://nytimes.com/athletic/5918776/2024/11/12/college-football-playoff-rankings-texas-oregon-ohio-state/
+
 **Maple Leafs report cards: Whole team falls flat in dismal loss to Senators**\
 `The Leafs were shut out at home for the first time since November of 2021.`\
 https://nytimes.com/athletic/5918576/2024/11/12/maple-leafs-report-cards-senators-shutout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918760/2024/11/12/broncos-assistant-head-coach-mik
 **U.S. to Keep Sending Arms to Israel Despite Dire Conditions in Gaza**\
 `The State Department said Israel needs to take more steps to improve the situation among Palestinians. The United States had given the country 30 days to meet aid criteria.`\
 https://nytimes.com/2024/11/12/us/politics/israel-weapons-gaza-aid.html
-
-**What we learned about Kansas, Michigan State in a Champions Classic rock fight**\
-`The win pushed Bill Self past legendary coach Phog Allen for the most wins by any coach in KU history (591).`\
-https://nytimes.com/athletic/5918697/2024/11/12/hunter-dickinson-no-1-kansas-hold-off-michigan-state-in-champions-classic-rock-fight/
 
