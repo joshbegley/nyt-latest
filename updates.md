@@ -1,3 +1,7 @@
+**For Now, Senate Republicans Say No to MAGA Excess**\
+`Rick Scott, who would have agreed to Trump’s idea of bypassing the Senate for nominations, lost his bid to become leader.`\
+https://nytimes.com/2024/11/13/opinion/senate-republican-leader.html
+
 **Hadji, Mets announcer Keith Hernandez's internet-famous cat, dies**\
 `"It was his time to go," Hernandez said in a post on X about his 22-year-old cat.`\
 https://nytimes.com/athletic/5920307/2024/11/13/hadji-keith-hernandez-cat-dead/

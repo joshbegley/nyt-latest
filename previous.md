@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5920307/2024/11/13/hadji-keith-hernandez-cat-dead/
 
 **For Now, Senate Republicans Say No to MAGA Excess**\
 `Rick Scott, who would have agreed to Trump’s idea of bypassing the Senate for nominations, lost his bid to become leader.`\
-https://nytimes.com/live/2024/11/12/opinion/thepoint/senate-republican-leader
+https://nytimes.com/2024/11/13/opinion/senate-republican-leader.html
 
 **India Court Bans ‘Bulldozer Justice’ Often Used Against Muslims**\
 `So-called bulldozer justice, in which state governments raze the homes and businesses of people as acts of retribution, has steadily increased in India in recent years.`\
