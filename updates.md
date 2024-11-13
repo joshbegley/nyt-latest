@@ -1,3 +1,7 @@
+**Broncos assistant Mike Westhoff resigning for medical reasons**\
+`Westhoff began experiencing blurry vision during a team meeting last week. `\
+https://nytimes.com/athletic/5918760/2024/11/12/broncos-assistant-head-coach-mike-westhoff-resigning-medical-reasons/
+
 **U.S. to Keep Sending Arms to Israel Despite Dire Conditions in Gaza**\
 `The State Department said Israel needs to take more steps to improve the situation among Palestinians. The United States had given the country 30 days to meet aid criteria.`\
 https://nytimes.com/2024/11/12/us/politics/israel-weapons-gaza-aid.html

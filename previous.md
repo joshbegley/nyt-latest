@@ -1,3 +1,7 @@
+**Broncos assistant Mike Westhoff resigning for medical reasons**\
+`Westhoff began experiencing blurry vision during a team meeting last week. `\
+https://nytimes.com/athletic/5918760/2024/11/12/broncos-assistant-head-coach-mike-westhoff-resigning-medical-reasons/
+
 **U.S. to Keep Sending Arms to Israel Despite Dire Conditions in Gaza**\
 `The State Department said Israel needs to take more steps to improve the situation among Palestinians. The United States had given the country 30 days to meet aid criteria.`\
 https://nytimes.com/2024/11/12/us/politics/israel-weapons-gaza-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918594/2024/11/12/penguins-capitals-lars-eller-tra
 **Once They Were Neocons. Now Trump’s Foreign Policy Picks Are All ‘America First.’**\
 `President-elect Donald J. Trump is considering nominees who fit more comfortably within his often erratic worldview, in which deal-making reigns over ideology.`\
 https://nytimes.com/2024/11/12/us/politics/trump-foreign-policy-neocons-america-first.html
-
-**U.S. Destroyer That Sank During World War II Is Found Off Australian Coast**\
-`More than 200 servicemen were killed when the U.S.S. Edsall was struck by Japanese dive bombers in March 1942.`\
-https://nytimes.com/2024/11/12/us/uss-edsall-sunken-ship-world-war-two.html
 
