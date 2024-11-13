@@ -1,3 +1,7 @@
+**Mark Zuckerberg and T-Pain ‘Get Low’ in Anniversary Post**\
+`As he continues to shake up his old image, Meta’s chief executive has collaborated with the singer on a version of the hit song that was playing when he met his wife.`\
+https://nytimes.com/2024/11/13/style/mark-zuckerberg-tpain-get-low.html
+
 **Rancher, Politician, Trump Ally: Who Is Kristi Noem, the Homeland Security Pick?**\
 `The governor of South Dakota has defied coronavirus restrictions and been a vocal critic of President Biden’s immigration policies.`\
 https://nytimes.com/2024/11/13/us/politics/kristi-noem-homeland-security.html
