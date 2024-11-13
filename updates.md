@@ -1,3 +1,11 @@
+**Spoelstra commits 'horrendous' timeout gaffe to seal Heat's OT NBA Cup loss**\
+`Malik Beasley and Cade Cunningham were the high scorers for the Pistons with 21 points apiece.`\
+https://nytimes.com/athletic/5918912/2024/11/12/pistons-heat-takeaways-timeout/
+
+**Maple Leafs report cards: Whole team falls flat in dismal loss to Senators**\
+`Toronto was shut out at home for the first time since November of 2021.`\
+https://nytimes.com/athletic/5918576/2024/11/12/maple-leafs-report-cards-senators-shutout/
+
 **Knicks spoil Joel Embiid's debut with 111-99 win; Takeaways**\
 `Embiid finished with 13 points and five assists along with three rebounds in his return, while the 76ers fell to 2-8.`\
 https://nytimes.com/athletic/5918593/2024/11/12/joel-embiid-76ers-knicks-nba-cup/
