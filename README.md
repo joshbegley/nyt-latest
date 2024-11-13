@@ -1,3 +1,7 @@
+**Oakland Airport Can’t Use San Francisco in Its Name, Judge Rules**\
+`The airport’s name, San Francisco Bay Oakland International, suggested that the “lower rated airport” was associated with San Francisco, a federal judge said in a temporary order.`\
+https://nytimes.com/2024/11/13/us/san-francisco-oakland-airport-lawsuit.html
+
 **Senate Republicans Alarmed by Gaetz Pick as Attorney General Nominee**\
 `Many Republican senators were stunned that Representative Matt Gaetz, Republican of Florida, had been chosen as the nominee, and expressed skepticism that he could secure enough votes for confirmation.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-attorney-general-senate-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920859/2024/11/13/blackhawks-chsn-app-subscription
 **Firefighter Charged With Arson Said He Put Lit Cotton Balls Under Car**\
 `A volunteer firefighter on Long Island was arrested after the police said he intentionally set a brush fire. The New York area has contended with numerous fires during an unusually dry fall.`\
 https://nytimes.com/2024/11/13/nyregion/firefighter-arson-long-island-cotton-balls.html
-
-**Ozempic Could Prevent Diabetes. Should It Be Used for That?**\
-`New research shows that weight loss medications can stop the progression of prediabetes. Experts don’t all agree on such a use for the drugs.`\
-https://nytimes.com/2024/11/13/well/ozempic-prediabetes.html
 
