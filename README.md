@@ -1,3 +1,7 @@
+**Bengals' Lou Anarumo shuffles rotations seeking defensive solutions**\
+`Different players are getting their chance in the secondary, in particular, with multiple starters struggling.`\
+https://nytimes.com/athletic/5918751/2024/11/13/bengals-lou-anarumo-defense-rotations/
+
 **Aid Deliveries to Gaza Remain Low Despite U.S. Warning to Israel**\
 `In an Oct. 13 letter, the Biden administration gave Israel 30 days to increase the flow of aid, warning that aid shipments into Gaza in September had reached their lowest level at any time since the Hamas-led attacks.`\
 https://nytimes.com/2024/11/13/world/middleeast/gaza-aid-us-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/trump-biden-meeting.html
 **Democratic Governors Form a Group to Oppose the Trump Administration**\
 `The group’s leaders, Govs. JB Pritzker of Illinois and Jared Polis of Colorado, are ambitious Democrats likely to try to fill the party’s looming leadership void.`\
 https://nytimes.com/2024/11/13/us/politics/democratic-governors-trump.html
-
-**Liberal California Kept Prison Slavery, and Lost Its Way**\
-`It was in California, after all, that liberal politics gave birth to law-and-order politics.`\
-https://nytimes.com/live/2024/11/12/opinion/thepoint/california-slavery-prison
 
