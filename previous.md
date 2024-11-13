@@ -1,3 +1,11 @@
+**John Robinson, Inspiring Coach of U.S.C. and L.A. Rams, Dies at 89**\
+`His Trojans won four Rose Bowls during his two stints at Southern California and shared one national championship. He took the Rams to two conference championships.`\
+https://nytimes.com/2024/11/13/sports/ncaafootball/john-robinson-dead.html
+
+**Election Officials Say Wisconsin Republican’s Claims ‘Lack Any Merit’**\
+`Eric Hovde, who lost his Senate campaign, is the first prominent candidate to suggest his race was rigged. We fact-checked his case.`\
+https://nytimes.com/2024/11/13/us/politics/election-wisconsin-senate-eric-hovde.html
+
 **Trump Chooses Tulsi Gabbard for Director of National Intelligence**\
 `Ms. Gabbard, a former congresswoman who left the Democratic Party, would hold a top job in the administration, overseeing 18 spy agencies.`\
 https://nytimes.com/2024/11/13/us/politics/trump-tulsi-gabbard-director-national-intelligence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5920279/2024/11/13/dynasty-league-update-2025-draft
 **N.L.R.B. Says Employers Can’t Hold Mandatory Anti-Union Meetings**\
 `The ruling, stemming from a complaint against Amazon, bars companies from compelling workers to attend meetings on unionization’s downsides.`\
 https://nytimes.com/2024/11/13/business/economy/nlrb-meetings-unions-amazon.html
-
-**Billie Jean King Cup will begin Thursday after red weather warning in Malaga delays start**\
-`Severe rain and flooding are expected in southern Spain, where the international women's tennis team event is being held.`\
-https://nytimes.com/athletic/5919320/2024/11/13/billie-jean-king-cup-malaga-weather-warning/
-
-**Supreme Court Seems Ready to Allow Securities Fraud Case Against Nvidia**\
-`The case, which is in an early stage, accused the giant technology company of misleading investors about its exposure to the cryptocurrency industry.`\
-https://nytimes.com/2024/11/13/us/politics/supreme-court-nvidia-securities-fraud.html
 

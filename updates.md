@@ -1,3 +1,11 @@
+**John Robinson, Inspiring Coach of U.S.C. and L.A. Rams, Dies at 89**\
+`His Trojans won four Rose Bowls during his two stints at Southern California and shared one national championship. He took the Rams to two conference championships.`\
+https://nytimes.com/2024/11/13/sports/ncaafootball/john-robinson-dead.html
+
+**Election Officials Say Wisconsin Republican’s Claims ‘Lack Any Merit’**\
+`Eric Hovde, who lost his Senate campaign, is the first prominent candidate to suggest his race was rigged. We fact-checked his case.`\
+https://nytimes.com/2024/11/13/us/politics/election-wisconsin-senate-eric-hovde.html
+
 **Trump Chooses Tulsi Gabbard for Director of National Intelligence**\
 `Ms. Gabbard, a former congresswoman who left the Democratic Party, would hold a top job in the administration, overseeing 18 spy agencies.`\
 https://nytimes.com/2024/11/13/us/politics/trump-tulsi-gabbard-director-national-intelligence.html
