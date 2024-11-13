@@ -1,3 +1,7 @@
+**Timothy West, Who Portrayed Kings and Prime Ministers, Dies at 90**\
+`A staple of British television, he played Churchill three times over a long career. Onstage, he was King Lear, Macbeth and Willy Loman.`\
+https://nytimes.com/2024/11/13/theater/timothy-west-dead.html
+
 **Ground Game in Pennsylvania Was No Match for Groundswell of Grievances**\
 `Democrats knocked on a lot more doors in Pennsylvania than Republicans did. It wasn’t enough to overcome a wave of support for Donald Trump.`\
 https://nytimes.com/2024/11/13/us/trump-harris-pennsylvania.html
