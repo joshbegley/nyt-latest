@@ -1,3 +1,20 @@
+**What the Bears' switch at play caller means for Caleb Williams with season at crossroads**\
+`The Bears need a spark and better play from Williams. The hope is new offensive coordinator Thomas Brown can help them get there.`\
+https://nytimes.com/athletic/5920742/2024/11/13/bears-caleb-williams-thomas-brown/
+
+**Blackhawks offering season-ticket holders subscription to CHSN app**\
+`The long-awaited direct-to-consumer app will launch on Friday.`\
+https://nytimes.com/athletic/5920859/2024/11/13/blackhawks-chsn-app-subscription/
+
+**New York to Revive Congestion Pricing With $9 Toll**\
+`Gov. Kathy Hochul is expected to announce the revised program on Thursday with the aim of putting it in place before Donald Trump takes office.`\
+https://nytimes.com/2024/11/13/nyregion/congestion-pricing-nine-dollars.html
+
+**'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
+`It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
+`\
+https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
+
 **'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
 `It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
 `\
