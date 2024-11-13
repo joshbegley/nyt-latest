@@ -1,3 +1,11 @@
+**Shohei Ohtani's 50th home run ball put on display in Taiwan**\
+`The historic baseball that commanded a record price is now on public display for the first time`\
+https://nytimes.com/athletic/5920566/2024/11/13/shohei-ohtanis-50-home-run-ball-taiwan/
+
+**Theodore B. Olson, Conservative Lawyer Who Took Up Liberal Causes, Dies at 84**\
+`A renowned Supreme Court litigator, he argued the Republican side in Bush v. Gore, but later championed gay rights and undocumented children.`\
+https://nytimes.com/2024/11/13/us/theodore-olson-dead.html
+
 **Why Xavier McKinney took aim at D.J. Moore, spicing up Sunday's Bears-Packers clash**\
 `The Green Bay safety took umbrage Wednesday to comments made by the Chicago receiver before the season.`\
 https://nytimes.com/athletic/5920806/2024/11/13/d-j-moore-xavier-mckinney-comments-packers-bears/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/13/weather/tropical-storm-sara-hurricane/heres-
 **Raiders tight end Michael Mayer returns to practice after 7-week absence**\
 `The tight end was out for seven weeks for personal reasons.`\
 https://nytimes.com/athletic/5920851/2024/11/13/las-vegas-raiders-michael-mayer-return/
-
-**Weather System in the Caribbean Could Become Tropical Storm Sara**\
-`The governments of Honduras and Nicaragua have warned residents of a potential hurricane.`\
-https://nytimes.com/live/2024/11/13/weather/tropical-storm-sara-hurricane
-
-**What the Bears' switch at play caller means for Caleb Williams with season at crossroads**\
-`The Bears need a spark and better play from Williams. The hope is new offensive coordinator Thomas Brown can help them get there.`\
-https://nytimes.com/athletic/5920742/2024/11/13/bears-caleb-williams-thomas-brown/
 

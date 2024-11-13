@@ -1,3 +1,11 @@
+**Shohei Ohtani's 50th home run ball put on display in Taiwan**\
+`The historic baseball that commanded a record price is now on public display for the first time`\
+https://nytimes.com/athletic/5920566/2024/11/13/shohei-ohtanis-50-home-run-ball-taiwan/
+
+**Theodore B. Olson, Conservative Lawyer Who Took Up Liberal Causes, Dies at 84**\
+`A renowned Supreme Court litigator, he argued the Republican side in Bush v. Gore, but later championed gay rights and undocumented children.`\
+https://nytimes.com/2024/11/13/us/theodore-olson-dead.html
+
 **Why Xavier McKinney took aim at D.J. Moore, spicing up Sunday's Bears-Packers clash**\
 `The Green Bay safety took umbrage Wednesday to comments made by the Chicago receiver before the season.`\
 https://nytimes.com/athletic/5920806/2024/11/13/d-j-moore-xavier-mckinney-comments-packers-bears/
