@@ -1,3 +1,7 @@
+**West Ham penalty in Ten Hag's final game was VAR mistake - Webb**\
+`English football&#8217;s refereeing chief Howard Webb says the decision to award West Ham United a penalty in their controversial 2-1 victory over Manchester United in October was a mistake.`\
+https://nytimes.com/athletic/5919327/2024/11/13/manchester-united-west-ham-penalty-var-webb/
+
 **Amtrak Says Service Between New York and New Haven Will Return in Afternoon**\
 `The train service suspension, caused by a fire in the Bronx, was expected to disrupt the Wednesday morning commute in the New York City area.`\
 https://nytimes.com/2024/11/13/nyregion/amtrak-service-fire-nyc-new-haven.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5909357/2024/11/13/john-havlicek-runs-to-no-29-on-t
 **The skills that make Sidney Crosby an elite goal scorer**\
 `Sidney Crosby is on the doorstep of 600 career goals. Here are the habits that define him as a goal scorer.`\
 https://nytimes.com/athletic/5915203/2024/11/13/sidney-crosby-600-goals-penguins/
-
-**Trump’s Department for ‘Drastic Change,’ and the Race for Senate Leadership**\
-`Plus, the streaming services you never knew about.`\
-https://nytimes.com/2024/11/13/podcasts/trump-musk-senate.html
 
