@@ -1,3 +1,11 @@
+**What the Bears' switch at play caller means for Caleb Williams with season at crossroads**\
+`The Bears need a spark and better play from Williams. The hope is new offensive coordinator Thomas Brown can help them get there.`\
+https://nytimes.com/athletic/5920742/2024/11/13/bears-caleb-williams-thomas-brown/
+
+**Blackhawks offering season-ticket holders subscription to CHSN app**\
+`The long-awaited direct-to-consumer app will launch on Friday.`\
+https://nytimes.com/athletic/5920859/2024/11/13/blackhawks-chsn-app-subscription/
+
 **Firefighter Charged With Arson Said He Put Lit Cotton Balls Under Car**\
 `A volunteer firefighter on Long Island was arrested after the police said he intentionally set a brush fire. The New York area has contended with numerous fires during an unusually dry fall.`\
 https://nytimes.com/2024/11/13/nyregion/firefighter-arson-long-island-cotton-balls.html
@@ -30,12 +38,4 @@ https://nytimes.com/2024/11/13/world/americas/chilpancingo-mayor-beheaded-mexico
 **Trump and Biden Make Nice at the White House, at Least for 29 Seconds**\
 `President Biden and President-elect Donald J. Trump’s brief public display of civility was followed by a two-hour meeting behind closed doors.`\
 https://nytimes.com/2024/11/13/us/politics/trump-biden-white-house.html
-
-**The British Museum Gets a Giant Gift: $1.27 Billion of Chinese Ceramics**\
-`Sir Percival David’s collection, amassed in the early 1900s, includes prized vases and wine cups. “You simply couldn’t build up a collection like this today,” one expert said.`\
-https://nytimes.com/2024/11/13/arts/design/british-museum-donation-ceramics.html
-
-**Tracking Potential Tropical Cyclone Nineteen**\
-`See the likely path and wind arrival times for Nineteen.`\
-https://nytimes.com/interactive/2024/11/13/weather/nineteen-map-path-tracker.html
 

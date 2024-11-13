@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-r
 `\
 https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
 
+**'I didn't like how things were handled': Barclay Goodrow returns to MSG with something to prove**\
+`It's been a bit less than five months since New York dumped Goodrow to San Jose via waivers.
+`\
+https://nytimes.com/athletic/5920680/2024/11/13/rangers-sharks-barclay-goodrow-return/
+
 **Firefighter Charged With Arson Said He Put Lit Cotton Balls Under Car**\
 `A volunteer firefighter on Long Island was arrested after the police said he intentionally set a brush fire. The New York area has contended with numerous fires during an unusually dry fall.`\
 https://nytimes.com/2024/11/13/nyregion/firefighter-arson-long-island-cotton-balls.html
