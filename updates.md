@@ -1,3 +1,7 @@
+**Wolves sporting director banned for swearing at match officials, report reveals**\
+`Wolves sporting director Matt Hobbs was banned for two games for swearing at match officials as they left the field, an independent regulatory commission report has revealed.`\
+https://nytimes.com/athletic/5919342/2024/11/13/wolves-matt-hobbs-ban-report/
+
 **West Ham penalty in Ten Hag's final game was VAR mistake - Webb**\
 `English football&#8217;s refereeing chief Howard Webb says the decision to award West Ham United a penalty in their controversial 2-1 victory over Manchester United in October was a mistake.`\
 https://nytimes.com/athletic/5919327/2024/11/13/manchester-united-west-ham-penalty-var-webb/
