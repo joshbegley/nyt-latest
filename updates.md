@@ -1,3 +1,7 @@
+**Despite Blue Jackets' fast start, their offensive funk vs. Kraken extends losing skid**\
+`Columbus hasn't won a game since Oct. 30, and the last road win came more than a month ago in Colorado.`\
+https://nytimes.com/athletic/5919126/2024/11/13/blue-jackets-lose-to-kraken/
+
 **Word of the Day: juvenile**\
 `This word has appeared in 193 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/13/learning/word-of-the-day-juvenile.html

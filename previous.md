@@ -1,3 +1,7 @@
+**Despite Blue Jackets' fast start, their offensive funk vs. Kraken extends losing skid**\
+`Columbus hasn't won a game since Oct. 30, and the last road win came more than a month ago in Colorado.`\
+https://nytimes.com/athletic/5919126/2024/11/13/blue-jackets-lose-to-kraken/
+
 **Word of the Day: juvenile**\
 `This word has appeared in 193 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/13/learning/word-of-the-day-juvenile.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5908625/2024/11/13/morgan-rogers-england-unai-emery
 **Mika Biereth interview: 'Making it at Arsenal isn't the be-all and end-all'**\
 `The forward on winning trophies and playing in the Champions League`\
 https://nytimes.com/athletic/5916797/2024/11/13/mika-biereth-interview-arsenal-sturm-graz/
-
-**Hurzeler's Brighton have made a daunting start look easy - so what next?**\
-`Hurzeler's first 11 Premier League games saw him face most of the division's established elite - yet Brighton are an encouraging sixth`\
-https://nytimes.com/athletic/5869206/2024/11/13/fabian-hurzeler-brighton-premier-league/
 
