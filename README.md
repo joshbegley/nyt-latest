@@ -18,8 +18,8 @@ https://nytimes.com/2024/11/13/magazine/dentist-appointment-son-ethics.html
 `Rebounding and clutch time are two areas of concern in the team's 4-6 start.`\
 https://nytimes.com/athletic/5919617/2024/11/13/miami-heat-tyler-herro-jimmy-butler-bam-adebayo/
 
-**What to Know About Trump’s Pick for Defense Secretary**\
-`The choice of Pete Hegseth, a Fox News host and veteran, was outside the norm. But he was a dedicated supporter of President-elect Donald J. Trump during his first term.`\
+**What to Know About Pete Hegseth, Trump’s Pick for Defense Secretary**\
+`The choice of the Fox News host and veteran was outside the norm. But he was a dedicated supporter of President-elect Donald J. Trump during his first term.`\
 https://nytimes.com/2024/11/13/us/politics/trump-defense-pete-hegseth.html
 
 **‘Cross’ and ‘The Lincoln Lawyer’ Offer Different Spins on the Same Formula**\
