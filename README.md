@@ -1,40 +1,40 @@
-**Real Sociedad director of football Olabe to leave at end of season**\
-`Real Sociedad’s renowned director of football Roberto Olabe is to leave his post at the end of this season, in a surprise development that will place some of the game’s leading clubs on high alert.`\
-https://nytimes.com/athletic/5919215/2024/11/13/roberto-olabe-real-sociedad-exit/
+**American Wine Trade Steels Itself for Possible Tariffs**\
+`President-elect Trump says tariffs will help American businesses, but many in the wine industry foresee few benefits and a lot of pain for all involved.`\
+https://nytimes.com/2024/11/13/dining/drinks/trump-tariffs-wine-cost.html
 
-**Celtics lose to short-handed Hawks who outshot them and dominated the glass**\
-`The loss left Boston 0-1 in the group stage of the NBA Cup with games still to play against the Cavaliers and Wizards.`\
-https://nytimes.com/athletic/5919176/2024/11/13/celtics-lose-outshot-by-hawks/
+**Trump Called His Win a ‘Historic Realignment’ of U.S. Politics. We Have Our Doubts.**\
+`There are reasons to doubt that what happened in the election is a durable party realignment.`\
+https://nytimes.com/2024/11/13/opinion/trump-republicans-realignment.html
 
-**Airport Hugs**\
-`A new rule at a New Zealand airport limits curbside embraces to three minutes. What’s your reaction?`\
-https://nytimes.com/2024/11/13/learning/airport-hugs.html
+**Could a Contest Lure More A.I. Companies Here?**\
+`A report suggests a competition where the prize is a multimillion-dollar city contract.`\
+https://nytimes.com/2024/11/13/nyregion/ai-companies-competition.html
 
-**Bill That Shifts Broker Fees to Landlords Is Expected to Pass**\
-`The City Council is expected to approve a bill on Wednesday that would curb a loathed New York City real estate practice: broker fees paid by renters.`\
-https://nytimes.com/2024/11/13/nyregion/new-york-city-broker-fee-city-council.html
+**Jack Smith Plans to Step Down as Special Counsel Before Trump Takes Office**\
+`The prosecutor who investigated and charged Donald J. Trump plans to finish his report and leave the job before he can be fired.`\
+https://nytimes.com/2024/11/13/us/politics/jack-smith-special-counsel.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/13/crosswords/spelling-bee-forum.html
+**We Study Climate Change. We Can’t Explain What We’re Seeing.**\
+`We need more timely updates in response to the rapid changes to the climate.`\
+https://nytimes.com/2024/11/13/opinion/climate-change-heat-planet.html
 
-**Sheffield United were warned about Morgan's 'bullying' before Maddy Cusack suicide**\
-`Exclusive: Club agreed a financial settlement that included an NDA with a player who complained about manager's conduct`\
-https://nytimes.com/athletic/5805721/2024/11/13/sheffield-united-jonathan-morgan-maddy-cusack/
+**David Brooks: Maybe Bernie Sanders Is Right**\
+`Democrats need to disrupt the system to start winning elections.`\
+https://nytimes.com/2024/11/13/opinion/united-states-education-divide.html
 
-**How J.T. Miller, Elias Pettersson crushed Flames in key Canucks win: 3 takeaways**\
-`Miller and Pettersson were Vancouver's best skaters in a 3-1 win over Calgary on Tuesday.`\
-https://nytimes.com/athletic/5918920/2024/11/13/j-t-miller-elias-pettersson-canucks-win-takeaways/
+**There’s a Better Way to Talk About Fluoride, Vaccines and Raw Milk**\
+`How to build trust and make America healthy again.`\
+https://nytimes.com/2024/11/13/opinion/vaccines-fluoride-raw-milk.html
 
-**Despite Blue Jackets' fast start vs. Kraken, their offensive funk extends losing skid**\
-`Columbus hasn't won a game since Oct. 30, and the last road win came more than a month ago in Colorado.`\
-https://nytimes.com/athletic/5919126/2024/11/13/blue-jackets-lose-to-kraken/
+**Is It Ethical for Teachers to Use A.I. to Grade Papers?**\
+`Many schools do not allow students to use artificial intelligence to complete their assignments. Should teachers be held to the same standard?`\
+https://nytimes.com/2024/11/13/learning/is-it-ethical-for-teachers-to-use-ai-to-grade-papers.html
 
-**Word of the Day: juvenile**\
-`This word has appeared in 193 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/13/learning/word-of-the-day-juvenile.html
+**Crypto Industry Lobbies Trump and His Allies to Capitalize on Election Wins**\
+`As Bitcoin soars to record highs, cryptocurrency executives are maneuvering to influence Donald J. Trump’s transition and secure their policy goals.`\
+https://nytimes.com/2024/11/13/technology/trump-crypto-bitcoin.html
 
-**Jordan Klepper Isn’t Wild About the ‘First Buddy,’ Elon Musk**\
-`“Trump’s been getting something that Elon’s 11 children will never receive: his full attention,” Klepper said on “The Daily Show.”`\
-https://nytimes.com/2024/11/13/arts/television/jordan-klepper-elon-musk.html
+**The Surprising Social Lives of Pythons**\
+`Ball pythons were long assumed to be solitary, but scientists discovered the snakes in captivity prefer each others’ company when given the chance to live socially.`\
+https://nytimes.com/2024/11/13/science/ball-pythons-social-snakes.html
 
