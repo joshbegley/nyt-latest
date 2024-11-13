@@ -23,7 +23,7 @@ https://nytimes.com/2024/11/12/nyregion/staten-island-st-patricks-parade-lgbtq.h
 https://nytimes.com/athletic/5918635/2024/11/12/deommodore-lenoir-49ers-extension-source/
 
 **Trump Picks Pete Hegseth, a Veteran and Fox News Host, for Defense Secretary**\
-`The choice of Mr. Hegseth, a dedicated supporter of the president-elect in his first term, was outside the norm of the traditional choice for the post.`\
+`The choice of Mr. Hegseth, a dedicated supporter of the president-elect in his first term, is outside the norm of the traditional choice for the post.`\
 https://nytimes.com/2024/11/12/us/politics/pete-hegseth-defense-secretary-trump.html
 
 **5 Years After Killing Driver, Officer Fights at Trial to Keep His Job**\
