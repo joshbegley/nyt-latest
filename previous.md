@@ -1,3 +1,15 @@
+**How Did a Golf Course in the Desert Get So Lush? Let Us Explain.**\
+`For the DP World Tour Championship in Dubai, it took planning and water. “The desert golf courses are actually the most efficient users of water out of necessity,” a U.S.G.A. official said.`\
+https://nytimes.com/2024/11/13/sports/golf/dubai-golf-course-desert-water.html
+
+**Cryptocurrency’s Latest Disruption: A Dog Popularity Contest**\
+`Did a fun event involving cute dogs turn into a pump-and-dump scheme?`\
+https://nytimes.com/2024/11/13/nyregion/new-york-mayor-voting-dog.html
+
+**The Five Players to Watch at the DP World Tour Championship**\
+`The tournament will also determine the winner of the Race to Dubai.`\
+https://nytimes.com/2024/11/13/sports/golf/dp-world-tour-championship-players.html
+
 **It’s Been an Exciting Year for the DP World Tour**\
 `Here are five tournaments that stood out in 2024.`\
 https://nytimes.com/2024/11/13/sports/golf/dp-world-tour-best.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/asia/100000009823051/china-car-attack-flowers-re
 **Amsterdam Is About Jew Hatred — and Gaza**\
 `It’s not just about antisemitism.`\
 https://nytimes.com/live/2024/11/12/opinion/thepoint/friedman-gaza-amsterdam-antisemitism
-
-**Bucks get contributions across the board in much-needed win against Raptors**\
-`Without Damian Lillard, the Bucks would need to find offense anywhere they could against Toronto. They did it by keeping things simple.`\
-https://nytimes.com/athletic/5919108/2024/11/13/bucks-giannis-antetokounmpo-ryan-rollins/
-
-**The Rangers are very good, and it's clearly not enough this season**\
-`Fourteen games in, the Rangers' record is very good. But none of it matters if the defense and key players can't get their act together.`\
-https://nytimes.com/athletic/5919640/2024/11/13/new-york-rangers-nhl-season-analysis/
-
-**Trump’s Middle East Picks Signal Staunch Pro-Israel Policy**\
-`Mike Huckabee and Steven Witkoff have both made pro-Israel statements. Here’s a closer look at the two men who will help shape Mr. Trump’s approach in the Middle East.`\
-https://nytimes.com/2024/11/13/world/middleeast/huckabee-israel-witkoff-middle-east-us.html
 
