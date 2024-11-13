@@ -1,3 +1,7 @@
+**After Deadly Car Rampage, Chinese Officials Try to Erase Any Hint of It**\
+`Workers cleared away flowers laid at the site of the attack, while censors scrubbed online criticism. The goal is to stifle potential questions and criticism.`\
+https://nytimes.com/2024/11/13/world/asia/china-car-zhuhai-ramming.html
+
 **Thompson: Why Giannis offers first case in how NBA's new rules impact stars**\
 `If Dame and Giannis aren’t the takeover-the-league duo we thought, what is the Bucks’ next move? Whatever it is, Giannis should stay put.`\
 https://nytimes.com/athletic/5916112/2024/11/13/giannis-antetokounmpo-bucks-nba-cba-rules/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/style/fashion-tariffs.html
 **Why F1 isn’t considering a sprint race for the Las Vegas GP**\
 `Once again, the Las Vegas Grand Prix will be the only American F1 race weekend without a sprint race. `\
 https://nytimes.com/athletic/5917234/2024/11/13/f1-las-vegas-gp-2024-sprint-race/
-
-**Trump Doesn’t Care Enough About K-12 Education to Break It**\
-`Is the best we can hope for the failing status quo?`\
-https://nytimes.com/2024/11/13/opinion/trump-k-12-education.html
 

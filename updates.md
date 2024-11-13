@@ -1,3 +1,23 @@
+**Thompson: Why Giannis offers first case in how NBA's new rules impact stars**\
+`If Dame and Giannis aren’t the takeover-the-league duo we thought, what is the Bucks’ next move? Whatever it is, Giannis should stay put.`\
+https://nytimes.com/athletic/5916112/2024/11/13/giannis-antetokounmpo-bucks-nba-cba-rules/
+
+**Who Might Be the Next Archbishop of Canterbury?**\
+`The leader of the Anglican Church, Justin Welby, announced he would resign on Tuesday. Here’s what happens next.`\
+https://nytimes.com/2024/11/13/world/europe/archbishop-canterbury-candidates.html
+
+**The Bounce: Steph Curry said,'Night, night' to Klay Thompson**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5919396/2024/11/13/stephen-curry-warriors-klay-thompson-mavericks-joel-embiid-76ers-nba-the-bounce/
+
+**Can the Miami Heat fix their current issues or is it time for a change?**\
+`The Miami Heat are struggling and in many cases it's their own doing. Maybe it's time to shake things up, writes Will Guillory. `\
+https://nytimes.com/athletic/5919377/2024/11/13/miami-heat-erik-spoelstra-time-out/
+
+**Ubben: Goodbye what-ifs, college football's champion will finally be decided on the field**\
+`With the expanded 12-team Playoff, teams will finally get the chance to prove how worthy they are of the sport's biggest prize.`\
+https://nytimes.com/athletic/5918134/2024/11/13/college-football-playoff-expansion-national-championship/
+
 **Russia Launches Missiles Against Ukraine’s Capital**\
 `The attack ended a two-month pause in missile strikes on Kyiv, which had only been hit by Russian drones during that period.`\
 https://nytimes.com/2024/11/13/world/europe/russia-missiles-ukraine-kyiv.html
