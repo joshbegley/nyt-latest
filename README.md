@@ -1,3 +1,7 @@
+**Amtrak Says Service Between New York and New Haven Will Return in Afternoon**\
+`The train service suspension, caused by a fire in the Bronx, was expected to disrupt the Wednesday morning commute in the New York City area.`\
+https://nytimes.com/2024/11/13/nyregion/amtrak-service-fire-nyc-new-haven.html
+
 **Blackhawks future roster, salary cap projection: Part 1**\
 `A time will come when the present will matter to the Chicago Blackhawks.`\
 https://nytimes.com/athletic/5917329/2024/11/13/blackhawks-roster-salary-cap-projection-2025-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915203/2024/11/13/sidney-crosby-600-goals-penguins
 **Trump’s Department for ‘Drastic Change,’ and the Race for Senate Leadership**\
 `Plus, the streaming services you never knew about.`\
 https://nytimes.com/2024/11/13/podcasts/trump-musk-senate.html
-
-**What Elon Musk Stands to Gain**\
-`The world’s richest man may now be the single most influential figure in the emerging White House of Donald Trump.`\
-https://nytimes.com/2024/11/13/podcasts/the-daily/elon-musk-trump.html
 
