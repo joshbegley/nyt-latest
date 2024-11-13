@@ -1,3 +1,7 @@
+**One of basketball's most exciting offenses is coming to the WNBA after Atlanta Dream hire**\
+`Karl Smesko's efficient shooting teams made him a standout at FGCU. Will it translate to the pros?`\
+https://nytimes.com/athletic/5919107/2024/11/13/atlanta-dream-coach-hire-karl-smesko-wnba/
+
 **Cowboys Today: The distracting sun remains a major storyline and Deion deflects**\
 `Also, in a conversation with Deion Sanders, Michael Irvin asked the Colorado Buffaloes coach about his interest in coaching the Cowboys.`\
 https://nytimes.com/athletic/5919141/2024/11/13/cowboys-today-the-distracting-sun-remains-a-major-storyline-and-deion-deflects/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/business/lahaina-fire-settlement-court-battle-ins
 **Barcelona's Ansu Fati out for four weeks with hamstring injury**\
 `Barcelona winger Ansu Fatu will be unavailable for the next four weeks due to a hamstring injury.`\
 https://nytimes.com/athletic/5919704/2024/11/13/ansu-fati-injury-barcelona/
-
-**After Deadly Car Rampage, Chinese Officials Try to Erase Any Hint of It**\
-`Workers cleared away flowers laid at the site of the attack, while censors scrubbed online criticism. The goal is to stifle potential questions and criticism.`\
-https://nytimes.com/2024/11/13/world/asia/china-car-zhuhai-ramming.html
 

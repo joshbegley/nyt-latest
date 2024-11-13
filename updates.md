@@ -1,3 +1,7 @@
+**One of basketball's most exciting offenses is coming to the WNBA after Atlanta Dream hire**\
+`Karl Smesko's efficient shooting teams made him a standout at FGCU. Will it translate to the pros?`\
+https://nytimes.com/athletic/5919107/2024/11/13/atlanta-dream-coach-hire-karl-smesko-wnba/
+
 **Cowboys Today: The distracting sun remains a major storyline and Deion deflects**\
 `Also, in a conversation with Deion Sanders, Michael Irvin asked the Colorado Buffaloes coach about his interest in coaching the Cowboys.`\
 https://nytimes.com/athletic/5919141/2024/11/13/cowboys-today-the-distracting-sun-remains-a-major-storyline-and-deion-deflects/
