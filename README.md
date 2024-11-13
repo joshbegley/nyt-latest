@@ -1,3 +1,15 @@
+**Is this a typical Guardiola-era autumn slump for City - or something worse?**\
+`Early-season struggles are not unknown at City in recent years but their defensive numbers so far in this one are of particular concern`\
+https://nytimes.com/athletic/5915498/2024/11/13/manchester-city-autumn-form-injuries-defence/
+
+**Rogers' senior England call is a fitting reward - and will quell Emery's frustrations**\
+`Manager and other senior Villa figures have been frustrated with the under-21s use of Rogers - but a senior call is very different`\
+https://nytimes.com/athletic/5908625/2024/11/13/morgan-rogers-england-unai-emery-aston-villa/
+
+**Mika Biereth interview: 'Making it at Arsenal isn't the be-all and end-all'**\
+`The forward on winning trophies and playing in the Champions League`\
+https://nytimes.com/athletic/5916797/2024/11/13/mika-biereth-interview-arsenal-sturm-graz/
+
 **Hurzeler's Brighton have made a daunting start look easy - so what next?**\
 `Hurzeler's first 11 Premier League games saw him face most of the division's established elite - yet Brighton are an encouraging sixth`\
 https://nytimes.com/athletic/5869206/2024/11/13/fabian-hurzeler-brighton-premier-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5916901/2024/11/13/tactics-maresca-chelsea-full-bac
 **U.K. Plans to Fine Tech Executives for Illegal Weapon Sales Online**\
 `In a bid to curb knife crime, the government would hold officials of tech companies personally liable for illicit sales on their platforms, a significant shift in internet regulation.`\
 https://nytimes.com/2024/11/13/world/europe/uk-tech-fines-knives.html
-
-**Leafs have a new problem this season: They can't score**\
-`The Leafs have scored one goal at five-on-five, total, in their last five games.`\
-https://nytimes.com/athletic/5919056/2024/11/13/maple-leafs-scoring-problems-berube/
-
-**Fantasy football rankings Week 11: Sleepers, projections, starts, Russell Wilson, Calvin Ridley**\
-`Jake Ciely offers game-by-game statistical nuggets to help you with your Week 11 lineups, in addition to rankings, sleepers and more.`\
-https://nytimes.com/athletic/5918433/2024/11/13/fantasy-football-rankings-week-11-sleepers-projections-starts-russell-wilson-calvin-ridley-and-more/
-
-**Wednesday Briefing**\
-`Donald Trump’s new appointments.`\
-https://nytimes.com/2024/11/13/briefing/trump-gaza-justin-welby.html
 
