@@ -1,8 +1,12 @@
+**'We have the right coach': Oklahoma president, AD back Brent Venables**\
+`Heading toward the worst season Oklahoma football has had in decades, the school’s president and athletic director both threw their support behind coach Brent Venables and put to rest speculation that a coaching change could be coming.`\
+https://nytimes.com/athletic/5920130/2024/11/13/oklahoma-football-brent-venables-confidence/
+
 **Jaguars QB Trevor Lawrence out vs. Lions, could return after bye week**\
 `Mac Jones is expected to start against Detroit this week.`\
 https://nytimes.com/athletic/5920012/2024/11/13/trevor-lawrence-out-jaguars-lions/
 
-**Republican Senators Elect Thune as Next Majority Leader**\
+**Republican Senators Elect John Thune as Next Majority Leader**\
 `Senator John Thune of South Dakota emerged victorious over a right-wing challenge from Senator Rick Scott of Florida.`\
 https://nytimes.com/2024/11/13/us/politics/trump-senate-thune-cornyn-scott.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/business/trump-media-truth-social.html
 **Tage Thompson or Vincent Trocheck? Brock Nelson or Cole Caufield? Bill Guerin talks U.S. 4 Nations roster**\
 `Guerin, the U.S. GM, on management's tough decisions: "We’ll just start laughing and be like, ‘Listen to us nitpick this superstar player.'"`\
 https://nytimes.com/athletic/5919918/2024/11/13/united-states-4-nations-roster/
-
-**What Democrats Should Learn From Their Loss**\
-`Readers point to campaign missteps and offer advice for winning back voters. Also: Robert F. Kennedy Jr.’s role in health policy; closing local pharmacies.`\
-https://nytimes.com/2024/11/13/opinion/democrats-election-loss-lessons.html
 
