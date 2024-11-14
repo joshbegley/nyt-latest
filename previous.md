@@ -1,3 +1,7 @@
+**It's on college football's adults to tone down rising tide of officiating call-outs**\
+`College football doesn’t have an officiating crisis, but it could be heading for a crisis in confidence if coaches and ADs keep talking.`\
+https://nytimes.com/athletic/5920569/2024/11/14/college-football-officiating-mark-harlan-kirby-smart/
+
 **Takeaways from Mercedes F1’s all-access book: Hamilton’s exit, Toto Wolff’s candor**\
 `Here's what we learned from the new book out on Mercedes' turbulent recent seasons. `\
 https://nytimes.com/athletic/5917996/2024/11/14/mercedes-f1-book-review-lewis-hamilton-toto-wolff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/learning/house-trees-sky.html
 **Newsletter as Dinner Party: Serving Up Science and Health Advice**\
 `Jancee Dunn dispenses tips, tricks and advice on how to build a sounder mind and body in The Times’s Well newsletter.`\
 https://nytimes.com/2024/11/14/insider/jancee-dunn-well.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/14/crosswords/spelling-bee-forum.html
 

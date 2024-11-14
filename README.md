@@ -1,40 +1,40 @@
-**It's on college football's adults to tone down rising tide of officiating call-outs**\
-`College football doesn’t have an officiating crisis, but it could be heading for a crisis in confidence if coaches and ADs keep talking.`\
-https://nytimes.com/athletic/5920569/2024/11/14/college-football-officiating-mark-harlan-kirby-smart/
+**For Sale: 12 Dynamic Sketches From the Woman Who Dressed Hollywood**\
+`Can you put a price on showbiz history? Bidders will try on Thursday, when a dozen sketches by the legendary costume designer Edith Head go under the gavel.`\
+https://nytimes.com/2024/11/14/style/edith-head-costume-designer-sketches-auction.html
 
-**Takeaways from Mercedes F1’s all-access book: Hamilton’s exit, Toto Wolff’s candor**\
-`Here's what we learned from the new book out on Mercedes' turbulent recent seasons. `\
-https://nytimes.com/athletic/5917996/2024/11/14/mercedes-f1-book-review-lewis-hamilton-toto-wolff/
+**Why the Dollar Keeps Getting Stronger**\
+`President-elect Donald J. Trump often says he prefers a weaker dollar, but economists and investors think his proposed policies will have the opposite effect.`\
+https://nytimes.com/2024/11/14/business/strong-dollar-trump.html
 
-**Laporte on potential Real Madrid transfer interest: 'I would listen to a call'**\
-`Al Nassr defender Aymeric Laporte says he would listen to a call from Real Madrid if the Spanish club approached him.`\
-https://nytimes.com/athletic/5921831/2024/11/14/aymeric-laporte-real-madrid-transfer/
+**On Transgender Issues, Voters Want Common Sense**\
+`Rather than pushing Americans in a direction they oppose, Democrats should endorse nuanced and humane alternatives.`\
+https://nytimes.com/2024/11/14/opinion/trump-democrats-transgender.html
 
-**PGMOL taking new Coote allegations 'very seriously'**\
-`New allegations surrounding Premier League referee David Coote are being taken “very seriously”, says the Professional Game Match Officials Ltd (PGMOL).`\
-https://nytimes.com/athletic/5920534/2024/11/14/david-coote-video-allegations-euro-2024/
+**An Auctioneer as Rare as Any Antique**\
+`For some, an even bigger draw than the silver, furniture and artwork at Michael Corcoran’s auctions is the 96-year-old auctioneer himself.`\
+https://nytimes.com/2024/11/14/style/michael-coorcoran-gustave-white-auctioneers-antiques.html
 
-**UWCL Briefing: Hemp worry for City, Chelsea's rotation, goals galore - but zero jeopardy**\
-`Change of format of the Women's Champions League can't come soon enough. As the group tables show, there's not enough competition`\
-https://nytimes.com/athletic/5921352/2024/11/14/womens-champions-league-man-city-lauren-hemp/
+**The Man Is Gone, but His Voice Will Keep Riding the Rails**\
+`Van Ritshie, who recorded the announcements on Long Island Rail Road and Metro-North trains, died this month at age 80.`\
+https://nytimes.com/2024/11/14/nyregion/van-ritshie-lirr-metro-north.html
 
-**Why is Thomas Tuchel not overseeing England's Nations League games?**\
-`Thomas Tuchel was named as England's new manager in October, so why is the German not overseeing the team's Nations League fixtures?`\
-https://nytimes.com/athletic/5919333/2024/11/14/thomas-tuchel-england-nations-league/
+**How to Pick a Personal Trainer**\
+`First, decide what kind of support you really need.`\
+https://nytimes.com/2024/11/14/well/move/personal-trainer-fitness-coach.html
 
-**Man Convicted in 1989 Killing of Black Teen Will Present New Evidence**\
-`The death of Yusuf Hawkins in Brooklyn set off months of protests. Joseph Fama, who prosecutors say shot the 16-year-old in a melee, will get a chance to prove his innocence.`\
-https://nytimes.com/2024/11/14/nyregion/yusuf-hawkins-murder-hearing.html
+**Two Boxing Rivals Are Ready for a Rematch. Hold the Trash Talk.**\
+`Fierce rivalries are a cornerstone of boxing. But Katie Taylor and Amanda Serrano, who will fight for a championship title on Netflix on Friday, are going about it differently.`\
+https://nytimes.com/2024/11/14/arts/television/amanda-serrano-katie-taylor-womens-boxing.html
 
-**New York Doesn’t Have Enough Housing. Why Is It So Expensive to Build?**\
-`The scarcity of apartments makes it easy for landlords to raise rents, but building new developments comes with high costs and regulatory hurdles.`\
-https://nytimes.com/2024/11/14/nyregion/housing-crunch-zoning-new-york.html
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a seven-bedroom in West Islip, N.Y., and a seven-bedroom in Westfield, N.J.`\
+https://nytimes.com/2024/11/14/realestate/housing-market-near-nyc.html
 
-**House, Trees, Sky**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/11/14/learning/house-trees-sky.html
+**You Know What You Need? A Fried Chicken Thanksgiving.**\
+`It’s something turkey often isn’t — undeniably juicy and a guaranteed crowd-pleaser.`\
+https://nytimes.com/2024/11/14/dining/fried-chicken-thanksgiving.html
 
-**Newsletter as Dinner Party: Serving Up Science and Health Advice**\
-`Jancee Dunn dispenses tips, tricks and advice on how to build a sounder mind and body in The Times’s Well newsletter.`\
-https://nytimes.com/2024/11/14/insider/jancee-dunn-well.html
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in Inwood, the East Village and Jackson Heights.`\
+https://nytimes.com/2024/11/14/realestate/housing-market-nyc.html
 
