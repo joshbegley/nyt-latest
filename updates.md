@@ -1,3 +1,11 @@
+**Spy Agency Memo Sets Rules for Artificial Intelligence and Americans’ Private Data**\
+`The administration held back the guidance last month when unveiling a presidential directive pushing security agencies to use the technology.`\
+https://nytimes.com/2024/11/14/us/ai-privacy-guidelines-intelligence.html
+
+**Trump Picks R.F.K. Jr. to Be Head of Health and Human Services Dept.**\
+`Whether the Senate would confirm Robert F. Kennedy Jr., a vaccine skeptic who has unorthodox views about medicine, is an open question.`\
+https://nytimes.com/2024/11/14/us/politics/rfk-jr-trump-hhs.html
+
 **Friday Briefing: Dismay Over Trump’s Picks**\
 `Plus, when shopping meets gambling.`\
 https://nytimes.com/2024/11/14/briefing/trump-cabinet-netanyahu-climate.html
