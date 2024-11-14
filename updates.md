@@ -1,3 +1,15 @@
+**What Will Happen to Social Security After Trump Takes Office?**\
+`Readers are concerned that his campaign proposals would put Social Security’s finances on thinner ice, endangering their payments.`\
+https://nytimes.com/2024/11/14/business/trump-social-security-benefits.html
+
+**What Will Trump Do With the Public Service Loan Forgiveness Program?**\
+`There is widespread concern that President-elect Donald J. Trump may end it, since he has tried before. But that may be the wrong thing to fear.`\
+https://nytimes.com/2024/11/14/business/trump-public-service-loan-forgiveness.html
+
+**Heat Today: How Haywood Highsmith epitomizes Heat Culture as a role player**\
+`Highsmith and Duncan Robinson can help Miami stay afloat through struggles. The franchise has a knack for finding those kinds of guys.`\
+https://nytimes.com/athletic/5922149/2024/11/14/heat-today-haywood-highsmith/
+
 **Angels, infielder Kevin Newman nearing deal: Sources**\
 `Early in the offseason, the Angels have already made a few notable moves involving veterans.`\
 https://nytimes.com/athletic/5922170/2024/11/14/kevin-newman-angels-contract/
