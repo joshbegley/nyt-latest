@@ -1,3 +1,7 @@
+**Tapestry and Capri End Plans for ‘Accessible Luxury’ Merger**\
+`Tapestry, the owner of Coach, said it would abandon its $8.5 billion deal to buy Capri, the parent company of Michael Kors, after the Federal Trade Commission successfully sued to stop the transaction.`\
+https://nytimes.com/2024/11/14/business/dealbook/tapestry-capri-merger-luxury.html
+
 **Former NFL coach Jon Gruden joins Barstool Sports**\
 `Gruden, who resigned from his role with the Raiders in 2021, previously said he wanted to return to coaching.`\
 https://nytimes.com/athletic/5922164/2024/11/14/jon-gruden-barstool-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922287/2024/11/14/christian-barmore-practice-retur
 **Do the Mets have enough to swing a deal for White Sox ace Garrett Crochet?**\
 `The Mets may have as many as three vacancies in their rotation, making interest in Crochet a no-brainer.`\
 https://nytimes.com/athletic/5918747/2024/11/14/new-york-mets-garrett-crochet-trade-rumors/
-
-**'It's so special': How Giannis Antetokounmpo scored 59 points to carry Bucks past Pistons**\
-`"I'm not well versed enough in the English language ... to find new ways to describe Giannis' brilliance," Brook Lopez said.`\
-https://nytimes.com/athletic/5921851/2024/11/14/how-giannis-antetokounmpo-scored-59-points-to-carry-bucks-past-pistons-its-so-special/
 
