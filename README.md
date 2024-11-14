@@ -1,3 +1,11 @@
+**Trump’s Picks: Loyalty Over Competence**\
+`Readers criticize the choice of Matt Gaetz, Pete Hegseth and others. Also: Anger over the election; protecting kids online; ripped jeans.`\
+https://nytimes.com/2024/11/14/opinion/donald-trump-matt-gaetz-pete-hegseth.html
+
+**Scoop City: How the playoff picture could change**\
+`A quick look at the current playoff picture, as well as the schedules for teams outside the bracket (including the Bengals, Buccaneers)`\
+https://nytimes.com/athletic/5922543/2024/11/14/nfl-playoff-current-standings-bracket-bengals-chargers-jets-scoop-city/
+
 **The Maple Leafs changed their plan on defence and unlocked a defensive monster**\
 `Chris Tanev and Jake McCabe are not only winning their minutes as a pairing — they're dominating.`\
 https://nytimes.com/athletic/5922213/2024/11/14/maple-leafs-defense-chris-tanev-jake-mccabe/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/arts/donald-trump-podcasts-men.html
 **Heat Today: How Haywood Highsmith epitomizes Heat Culture as a role player**\
 `Highsmith and Duncan Robinson can help Miami stay afloat through struggles. The franchise has a knack for finding those kinds of guys.`\
 https://nytimes.com/athletic/5922149/2024/11/14/heat-today-haywood-highsmith/
-
-**The Bounce: About Victor Wembanyama's speedy 50 burger**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5921985/2024/11/14/victor-wembanyama-spurs-cleveland-cavaliers-nba-the-bounce/
-
-**Tapestry and Capri End Plans for ‘Accessible Luxury’ Merger**\
-`Tapestry, the owner of Coach, said it would abandon its $8.5 billion deal to buy Capri, the parent company of Michael Kors, after the Federal Trade Commission successfully sued to stop the transaction.`\
-https://nytimes.com/2024/11/14/business/dealbook/tapestry-capri-merger-luxury.html
 
