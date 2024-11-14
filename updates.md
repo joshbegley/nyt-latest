@@ -1,3 +1,11 @@
+**Three-Quarters of U.S. Adults Are Now Overweight or Obese**\
+`A sweeping new paper reveals the dramatic rise of obesity rates nationwide since 1990.`\
+https://nytimes.com/2024/11/14/well/obesity-epidemic-america.html
+
+**Murray Sinclair, Who Reframed Indigenous Relations in Canada, Dies at 73**\
+`He headed a commission that documented widespread abuse in Canada’s boarding schools for Indigenous children and sought to correct the history of Indigenous people.`\
+https://nytimes.com/2024/11/14/world/canada/murray-sinclair-dead.html
+
 **What to Know About Congestion Pricing**\
 `Gov. Kathy Hochul is fast-tracking new tolls to enter Midtown and Lower Manhattan. Drivers could be charged beginning in January.`\
 https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc.html
