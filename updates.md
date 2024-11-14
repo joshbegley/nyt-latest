@@ -1,3 +1,11 @@
+**Why We Got It So Wrong**\
+`It turns out a lot of people don’t behave like ambassadors from this or that group. They think for themselves in unexpected ways.`\
+https://nytimes.com/2024/11/14/opinion/identity-groups-politics.html
+
+**Here’s How Trump Could Lose the Coming Trade War**\
+`Economic conflict is coming. He is utterly unsuited to manage it.`\
+https://nytimes.com/2024/11/14/opinion/trump-china-tariffs.html
+
 **Stress From Fireworks Killed Baby Red Panda, Zoo in Scotland Says**\
 `Camera footage showed Roxie, a three-month-old, agitated by the noise. She died shortly afterward.`\
 https://nytimes.com/2024/11/14/world/14xp-red-panda-death-edinburgh-zoo.html
