@@ -1,3 +1,7 @@
+**Takeaways from Mercedes F1’s all-access book: Hamilton’s exit, Toto Wolff’s candor**\
+`Here's what we learned from the new book out on Mercedes' turbulent recent seasons. `\
+https://nytimes.com/athletic/5917996/2024/11/14/mercedes-f1-book-review-lewis-hamilton-toto-wolff/
+
 **Laporte on potential Real Madrid transfer interest: 'I would listen to a call'**\
 `Al Nassr defender Aymeric Laporte says he would listen to a call from Real Madrid if the Spanish club approached him.`\
 https://nytimes.com/athletic/5921831/2024/11/14/aymeric-laporte-real-madrid-transfer/
