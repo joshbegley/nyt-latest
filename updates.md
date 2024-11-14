@@ -1,3 +1,7 @@
+**At France-Israel Game, Soccer Takes a Back Seat to Politics and Security**\
+`After the recent violence around an Israeli team’s game in Amsterdam, French leaders insisted on proceeding under   security with a France-Israel match, and on showing up, themselves.`\
+https://nytimes.com/2024/11/14/world/europe/france-israel-soccer-security.html
+
 **Mike Tyson’s Inspiration for a Comeback? Smoking Toad Venom.**\
 `The former heavyweight champion told Interview magazine his experiences with a hallucinogenic poison played a role in his agreeing to fight the YouTuber Jake Paul.`\
 https://nytimes.com/2024/11/14/style/mike-tyson-jake-paul-toad-venom.html
