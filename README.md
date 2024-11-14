@@ -1,3 +1,7 @@
+**Matt Gaetz Resigns From Congress After Trump Picks Him for Attorney General**\
+`The Florida Republican’s departure effectively ends the House Ethics Committee’s investigation of allegations that include sexual misconduct and illicit drug use.`\
+https://nytimes.com/2024/11/13/us/politics/matt-gaetz-resign-congress-trump.html
+
 **At Least 1 Killed in Explosions in Brazil’s Capital**\
 `Two explosions rocked the area near the heart of the Brazilian government’s offices.`\
 https://nytimes.com/2024/11/13/world/americas/brasilia-explosion-car-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/matt-gaetz.html
 **49ers' Deommodore Lenoir jokes he can now repay Kyle Shanahan after rookie miscue**\
 `Lenoir's social media miscue in 2021 cost the 49ers a $100,000 fine and Shanahan an additional $50,000. `\
 https://nytimes.com/athletic/5921170/2024/11/13/deommodore-lenoir-49ers-contract-kyle-shanahan/
-
-**Amazon Is Phasing Out Its Freevee Streaming Service**\
-`Its shows have moved to Amazon Prime, where they will remain free.`\
-https://nytimes.com/2024/11/13/arts/television/13xp-amazon-freevee-shut-down.html
 
