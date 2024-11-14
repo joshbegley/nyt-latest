@@ -1,4 +1,20 @@
-**Claudio Ranieri returns as Roma head coach**\
+**The Onion Says It Has Bought Infowars, Alex Jones’s Site, Out of Bankruptcy**\
+`The satirical news site planned to turn Infowars into a parody of itself, mocking “weird internet personalities” who peddle conspiracy theories and health supplements.`\
+https://nytimes.com/2024/11/14/business/media/alex-jones-infowars-the-onion.html
+
+**Cowboys Today: Open the roof Monday night? Top college RB wants to play in Dallas**\
+`How has Dallas fared with the roof open? Three players to watch Monday and what doors could the Cowboys' draft position open for them?`\
+https://nytimes.com/athletic/5921745/2024/11/14/cowboys-today-stadium-roof-mnf-nfl-draft-ashton-jeanty/
+
+**Ben & Jerry’s Accuses Unilever of Seeking to Muzzle Its Gaza Stance**\
+`The ice cream maker claimed in a lawsuit that its parent company tried to stop it from expressing support for Palestinian refugees.`\
+https://nytimes.com/2024/11/14/business/ben-and-jerrys-unilever-lawsuit-israel-gaza.html
+
+**What the film says about all four teams at the Champions Classic**\
+`Kentucky's ceiling rests on the shoulders of Amari Williams. Duke is talented, but needs more creativity. And Michigan State has work to do.`\
+https://nytimes.com/athletic/5921230/2024/11/14/champions-classic-kentucky-duke-kansas-michigan-state/
+
+**Ranieri comes out of retirement to take over at Roma**\
 `Claudio Ranieri has been appointed as the new the head coach of Roma.`\
 https://nytimes.com/athletic/5921844/2024/11/14/claudio-ranieri-roma/
 
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/14/business/media/craig-melvin-hoda-kotb-today.html
 **Kane criticism of England pullouts does not take into account player workloads or priorities**\
 `Kane is presumably doing what he thinks is his duty as England captain, but the squad's culture post-Southgate may have changed`\
 https://nytimes.com/athletic/5921956/2024/11/14/kane-england-squad-pullouts/
-
-**Here’s the latest on the next administration.**\
-`By Michael Gold and Karoun Demirjian`\
-https://nytimes.com/live/2024/11/14/us/trump-news/heres-the-latest-on-the-next-administration
-
-**Trump Transition Live Updates: Some in G.O.P. Balk at Choice of Gaetz for Attorney General**\
-`President-elect Donald J. Trump’s choice of former Representative Matt Gaetz to lead the Justice Department surprised and dismayed some Senate Republicans, casting doubt on his confirmation.`\
-https://nytimes.com/live/2024/11/14/us/trump-news
-
-**NBA Lookahead: Victor Wembanyama's slow start to the season? Yeah, about that ...**\
-`Wembanyama seems to be figuring things out. He and the Spurs play the Lakers as part of a big NBA Cup Friday schedule.`\
-https://nytimes.com/athletic/5919187/2024/11/14/nba-lookahead-victor-wembanyama-nba-cup-weekend/
-
-**What Would a Matt Gaetz Justice Department Mean for Business?**\
-`The Trump loyalist supports an “aggressive” antitrust approach and has called for breaking up Big Tech. But can the controversial nominee win Senate approval?`\
-https://nytimes.com/2024/11/14/business/dealbook/trump-gaetz-justice-department-antitrust.html
 

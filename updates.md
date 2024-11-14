@@ -1,3 +1,23 @@
+**The Onion Says It Has Bought Infowars, Alex Jones’s Site, Out of Bankruptcy**\
+`The satirical news site planned to turn Infowars into a parody of itself, mocking “weird internet personalities” who peddle conspiracy theories and health supplements.`\
+https://nytimes.com/2024/11/14/business/media/alex-jones-infowars-the-onion.html
+
+**Cowboys Today: Open the roof Monday night? Top college RB wants to play in Dallas**\
+`How has Dallas fared with the roof open? Three players to watch Monday and what doors could the Cowboys' draft position open for them?`\
+https://nytimes.com/athletic/5921745/2024/11/14/cowboys-today-stadium-roof-mnf-nfl-draft-ashton-jeanty/
+
+**Ben & Jerry’s Accuses Unilever of Seeking to Muzzle Its Gaza Stance**\
+`The ice cream maker claimed in a lawsuit that its parent company tried to stop it from expressing support for Palestinian refugees.`\
+https://nytimes.com/2024/11/14/business/ben-and-jerrys-unilever-lawsuit-israel-gaza.html
+
+**What the film says about all four teams at the Champions Classic**\
+`Kentucky's ceiling rests on the shoulders of Amari Williams. Duke is talented, but needs more creativity. And Michigan State has work to do.`\
+https://nytimes.com/athletic/5921230/2024/11/14/champions-classic-kentucky-duke-kansas-michigan-state/
+
+**Ranieri comes out of retirement to take over at Roma**\
+`Claudio Ranieri has been appointed as the new the head coach of Roma.`\
+https://nytimes.com/athletic/5921844/2024/11/14/claudio-ranieri-roma/
+
 **Claudio Ranieri returns as Roma head coach**\
 `Claudio Ranieri has been appointed as the new the head coach of Roma.`\
 https://nytimes.com/athletic/5921844/2024/11/14/claudio-ranieri-roma/
