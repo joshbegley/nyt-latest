@@ -1,3 +1,7 @@
+**Typhoon Usagi Slams Into the Philippines**\
+`The storm made landfall on the island of Luzon. Forecasters warned of torrential rain and landslides in the north of the country.`\
+https://nytimes.com/2024/11/14/world/asia/typhoon-usagi-philippines.html
+
 **Late Night Chides Biden for Keeping His Cool With Trump**\
 `“I’m not saying booby-trap the place, but you don’t have to be overly helpful,” Seth Meyers said after the president welcomed Donald Trump to the White House.`\
 https://nytimes.com/2024/11/14/arts/television/late-night-biden-trump-meeting.html

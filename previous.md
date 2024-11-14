@@ -18,8 +18,8 @@ https://nytimes.com/2024/11/14/opinion/china-trump-us-rivalry.html
 `Wednesday's feat marked James' 116th triple-double of his career and his 40th 30-point triple-double.`\
 https://nytimes.com/athletic/5921724/2024/11/14/lebron-james-lakers-triple-doubles-nba-history-grizzlies/
 
-**Typhoon Usagi Threatens Floods and Landslides in the Philippines**\
-`The storm had winds equivalent to those of a Category 4 hurricane on Thursday. Forecasters warned of torrential rain in the north of the country.`\
+**Typhoon Usagi Slams Into the Philippines**\
+`The storm made landfall on the island of Luzon. Forecasters warned of torrential rain and landslides in the north of the country.`\
 https://nytimes.com/2024/11/14/world/asia/typhoon-usagi-philippines.html
 
 **Oliver Glasner, Crystal Palace and the familiar failings undermining hopes of progress**\
