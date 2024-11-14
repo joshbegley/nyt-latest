@@ -1,3 +1,11 @@
+**Brooklyn Man Charged With Murdering Father in Luxury Irish Hotel**\
+`Henry McGowan, Irish officials said, “did murder one John McGowan, contrary to common law,” on Tuesday night.`\
+https://nytimes.com/2024/11/14/nyregion/henry-mcgowan-murder-father-ireland.html
+
+**Former Suns employee sues team alleging discrimination, retaliation**\
+`Andrea Trischan filed a complaint Wednesday against the Suns, seeking unspecified damages.`\
+https://nytimes.com/athletic/5922977/2024/11/14/suns-discrimination-lawsuit/
+
 **What to Know About Broker Fees in New York City**\
 `The City Council overwhelmingly passed a measure to shift the burden of broker fees to landlords. Here’s what that means for renters.`\
 https://nytimes.com/2024/11/14/nyregion/broker-fees-nyc.html
