@@ -1,3 +1,7 @@
+**Republicans Win Control of House, Cementing a G.O.P. Trifecta Under Trump**\
+`The party protected vulnerable incumbents and picked off Democrats in competitive districts, handing the president-elect a unified Congress to enact his agenda.`\
+https://nytimes.com/2024/11/13/us/elections/republican-house-trifecta.html
+
 **Make Some Noise**\
 `Matthew Faiella makes his New York Times Crossword debut. I sincerely hope he comes back.`\
 https://nytimes.com/2024/11/13/crosswords/daily-puzzle-2024-11-14.html

@@ -1,3 +1,7 @@
+**Republicans Win Control of House, Cementing a G.O.P. Trifecta Under Trump**\
+`The party protected vulnerable incumbents and picked off Democrats in competitive districts, handing the president-elect a unified Congress to enact his agenda.`\
+https://nytimes.com/2024/11/13/us/elections/republican-house-trifecta.html
+
 **Make Some Noise**\
 `Matthew Faiella makes his New York Times Crossword debut. I sincerely hope he comes back.`\
 https://nytimes.com/2024/11/13/crosswords/daily-puzzle-2024-11-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921373/2024/11/13/rays-tigers-diamond-broadcast-de
 **Matt Gaetz suggested in 2020 that Trump should pick him for attorney general.**\
 `By Sharon LaFraniere`\
 https://nytimes.com/live/2024/11/13/us/trump-news/matt-gaetz-suggested-in-2020-that-trump-should-pick-him-for-attorney-general
-
-**Tennessee QB Nico Iamaleava listed as questionable for Georgia game**\
-`Tennessee coach Josh Heupel has been coy regarding Iamaleava's status. Georgia running back Trevor Etienne is also questionable.`\
-https://nytimes.com/athletic/5921243/2024/11/13/tennessee-volunteers-quarterback-nico-iamaleava-injury/
 
