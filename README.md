@@ -1,3 +1,11 @@
+**Three-Quarters of U.S. Adults Are Now Overweight or Obese**\
+`A sweeping new paper reveals the dramatic rise of obesity rates nationwide since 1990.`\
+https://nytimes.com/2024/11/14/well/obesity-epidemic-america.html
+
+**Murray Sinclair, Who Reframed Indigenous Relations in Canada, Dies at 73**\
+`He headed a commission that documented widespread abuse in Canada’s boarding schools for Indigenous children and sought to correct the history of Indigenous people.`\
+https://nytimes.com/2024/11/14/world/canada/murray-sinclair-dead.html
+
 **What to Know About Congestion Pricing**\
 `Gov. Kathy Hochul is fast-tracking new tolls to enter Midtown and Lower Manhattan. Drivers could be charged beginning in January.`\
 https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5922620/2024/11/14/college-football-week-12-until-s
 **Kennedy stuck to his message about concerns over the U.S. food supply.**\
 `By Christina Jewett`\
 https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/kennedy-stuck-to-his-message-about-concerns-over-the-us-food-supply
-
-**Marine Who Trained Penny in Chokeholds Testifies at Manslaughter Trial**\
-`The military trainer said that Marines are taught to render a person unconscious in seconds. Mr. Penny held Jordan Neely, a homeless man, for six minutes.`\
-https://nytimes.com/2024/11/14/nyregion/daniel-penny-trial-jordan-neely.html
-
-**Elizabeth Nunez, Who Chronicled the Immigrant’s Challenges, Dies at 80**\
-`In “Prospero’s Daughter” and other novels, she explored the legacy of colonialism in her native Trinidad and the struggle for belonging in an adopted country.`\
-https://nytimes.com/2024/11/14/books/elizabeth-nunez-dead.html
 
