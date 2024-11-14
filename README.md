@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/11/13/us/trump-news/giulianis-lawyers-ask-judge-fo
 `The Florida Republican’s departure effectively ends the House Ethics Committee’s investigation of allegations that include sexual misconduct and illicit drug use.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-resign-congress-trump.html
 
-**At Least 1 Killed in Explosions in Brazil’s Capital**\
-`Two blasts rocked an area near the heart of the Brazilian government’s offices.`\
+**Explosions in Brazil’s Capital Leave at Least One Dead**\
+`Two blasts, coming 20 seconds apart, rocked an area of Brasília near the heart of the government’s offices.`\
 https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
 
 **Proud Boys Leader Convicted of Sedition for Role in Jan. 6 Attack Asks Trump for Pardon**\
