@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins secure a point, but it's hard to feel good about this team**\
+`Pittsburgh came back from a two-goal deficit to force overtime but fell 3-2 to Detroit.`\
+https://nytimes.com/athletic/5921393/2024/11/13/penguins-progress-overtime-red-wings/
+
 **Trump plans to install an ally who publishes his books as the head of personnel.**\
 `By Maggie Haberman and Jonathan Swan`\
 https://nytimes.com/live/2024/11/13/us/trump-news/personnel-office-filled
