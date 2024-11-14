@@ -1,3 +1,7 @@
+**Justice Dept. Reports Broad Civil Rights Abuses at Georgia Jail System**\
+`In a blunt report released on Thursday, the department said officials in Fulton County have had “deliberate indifference to the risks of harms.”`\
+https://nytimes.com/2024/11/14/us/politics/fulton-county-georgia-jail-justice-department.html
+
 **Thomas Castellanos leaves BC after being replaced at QB**\
 `James is a transfer from Florida International, while Castellanos was in his second season as BC's starter.`\
 https://nytimes.com/athletic/5922645/2024/11/14/bc-football-quarterback-thomas-castellanos-grayson-james/
@@ -16,7 +20,7 @@ https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/republicans-house-majori
 
 **An Election Is No Reason to Postpone Trump’s Felony Sentencing**\
 `He was lawfully convicted, and his sentence should be determined before he takes office.`\
-https://nytimes.com/live/2024/11/12/opinion/thepoint/trump-felony-sentence-postponed
+https://nytimes.com/2024/11/14/opinion/trump-felony-sentence-postponed.html
 
 **NFL Week 11 fantasy football, betting cheat sheet: Prepare for fireworks between Eagles, Commanders**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/arts/television/bad-sisters-anne-marie-duff.html
 **Liberal Legal Group Positions Itself as a Top Trump Administration Foe**\
 `Using Project 2025 as a blueprint, the group Democracy Forward says it has prepared a raft of potential legal challenges to respond to the Trump-Vance agenda as soon as Day 1.`\
 https://nytimes.com/2024/11/14/us/politics/democracy-forward-trump-administration.html
-
-**Lindsey Vonn, 40, ending retirement ahead of 2026 Olympics**\
-`"My goal is to enjoy this, and hopefully that road takes me to World Cup races," Vonn said in an interview with the New York Times.`\
-https://nytimes.com/athletic/5922421/2024/11/14/lindsey-vonn-return-olympics-skiing/
 
