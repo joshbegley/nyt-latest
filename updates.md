@@ -1,3 +1,7 @@
+**Twins offseason trade block: The 9 players most likely to be shopped**\
+`With no payroll room and lots of motivation to make changes, the Twins' front office could be forced to make some tough trade decisions.`\
+https://nytimes.com/athletic/5908568/2024/11/14/twins-offseason-trades-players-carlos-correa/
+
 **'We've made huge strides': How the Orlando Magic are surviving without Paolo Banchero**\
 `Led by Franz Wagner, Jalen Suggs and a ferocious defense, the Magic have won their last four games. `\
 https://nytimes.com/athletic/5921777/2024/11/14/orlando-magic-without-paolo-banchero/

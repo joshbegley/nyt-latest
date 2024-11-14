@@ -1,3 +1,7 @@
+**Twins offseason trade block: The 9 players most likely to be shopped**\
+`With no payroll room and lots of motivation to make changes, the Twins' front office could be forced to make some tough trade decisions.`\
+https://nytimes.com/athletic/5908568/2024/11/14/twins-offseason-trades-players-carlos-correa/
+
 **'We've made huge strides': How the Orlando Magic are surviving without Paolo Banchero**\
 `Led by Franz Wagner, Jalen Suggs and a ferocious defense, the Magic have won their last four games. `\
 https://nytimes.com/athletic/5921777/2024/11/14/orlando-magic-without-paolo-banchero/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918365/2024/11/14/kevin-garnett-the-basketball-100
 **Simon Edvinsson rising to the challenge at crucial moment for Red Wings**\
 `Detroit's young blueliner has been given a challenging role early in his career, but he's quickly made a major impact.`\
 https://nytimes.com/athletic/5921522/2024/11/14/simon-edvinsson-red-wings-overtime-goal/
-
-**Buzzers and shopping malls: League 1 America, the failed attempt to revolutionize soccer**\
-`Thirty years ago, American businessman Jim Paglia attempted to fully rework the rules of soccer, but his dream fell apart. `\
-https://nytimes.com/athletic/5914807/2024/11/14/league-1-america-mls/
 
