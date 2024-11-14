@@ -1,3 +1,19 @@
+**Moise Kean exclusive: From not getting in Everton's team to flourishing at Fiorentina**\
+`Moise Kean has done a lot for a 24-year-old. He sits down with The Athletic to discuss debuting at 16 for Juventus and learning from Mbappe`\
+https://nytimes.com/athletic/5919241/2024/11/14/moise-kean-fiorentina-italy-everton/
+
+**The availability of sporting director Roberto Olabe will put Europe's top clubs on high alert**\
+`The sporting director is likely to be in demand after he decided to leave his role at Real Sociedad`\
+https://nytimes.com/athletic/5916911/2024/11/14/roberto-olabe-real-sociedad-arsenal-manchester-city-premier-league/
+
+**Barca's new Nike deal explained: Is it really worth €1.7billion? And is it bigger than Real Madrid's?**\
+`What Barcelona have agreed with Nike, what it means for the club's future, and what it means for registering players`\
+https://nytimes.com/athletic/5908242/2024/11/14/barca-nike-kit-deal-explainer/
+
+**Which Premier League player has surprised you this season (for good or bad)?**\
+`Has a new signing hit the ground running? Or is last season's star player struggling for form? Our writers give their views`\
+https://nytimes.com/athletic/5914650/2024/11/14/premier-league-players-surprise/
+
 **Key questions for England's latest internationals: Will Lee Carsley roll the dice one last time?**\
 `We are now in the final days of Lee Carsley's stint as interim England head coach - will he be bold or reserved in his team selection?`\
 https://nytimes.com/athletic/5917735/2024/11/14/england-nations-league-lee-carsley-morgan-rogers/
