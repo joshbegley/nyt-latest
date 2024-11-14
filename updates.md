@@ -1,3 +1,15 @@
+**Trump Talked Twice as Much as Harris on the Campaign Trail**\
+`A detailed analysis shows the gap in speaking times across various platforms.`\
+https://nytimes.com/2024/11/14/upshot/trump-harris-campaign-speaking.html
+
+**Broadcaster Diamond will emerge from bankruptcy after judge approves plan**\
+`The broadcaster will now be able to emerge from bankruptcy with a reduced portfolio of 13 NBA teams, eight NHL teams and six MLB teams.`\
+https://nytimes.com/athletic/5922803/2024/11/14/broadcaster-diamond-bankruptcy-approval-plan/
+
+**Gaetz Pick Unnerves an Already Jittery Justice Dept. and F.B.I.**\
+`Senior law enforcement officials face a wave of uncertainty as Donald J. Trump moves to nominate a fierce partisan and a longtime ally to fill one of the most powerful cabinet posts.`\
+https://nytimes.com/2024/11/14/us/politics/gaetz-attorney-general-justice-department-fbi.html
+
 **Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
 `A researcher thinks he knows what has been coming ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
 https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
