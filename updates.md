@@ -1,3 +1,7 @@
+**Meta Fined $840 Million in Europe for Boosting Marketplace Unfairly**\
+`Meta said it would appeal the decision by the European Union, which said the company had abused its dominance in social networking to strengthen its shopping and classified ads service.`\
+https://nytimes.com/2024/11/14/business/meta-european-union-facebook-marketplace-fine.html
+
 **Canucks notebook: Is Marcus Pettersson a trade fit? Is Nils Höglander in the doghouse?**\
 `Would a trade between the Canucks and Penguins make sense? Is Pettersson a fit for what Vancouver needs most on the back end?`\
 https://nytimes.com/athletic/5921806/2024/11/14/canucks-marcus-pettersson-trade-nils-hoglander/

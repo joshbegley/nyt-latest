@@ -1,3 +1,7 @@
+**Meta Fined $840 Million in Europe for Boosting Marketplace Unfairly**\
+`Meta said it would appeal the decision by the European Union, which said the company had abused its dominance in social networking to strengthen its shopping and classified ads service.`\
+https://nytimes.com/2024/11/14/business/meta-european-union-facebook-marketplace-fine.html
+
 **Canucks notebook: Is Marcus Pettersson a trade fit? Is Nils Höglander in the doghouse?**\
 `Would a trade between the Canucks and Penguins make sense? Is Pettersson a fit for what Vancouver needs most on the back end?`\
 https://nytimes.com/athletic/5921806/2024/11/14/canucks-marcus-pettersson-trade-nils-hoglander/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/world/europe/norway-sami-kvens-forest-finns-apolo
 **Wimbledon junior finalist Nikola Bartunkova accepts doping ban, can return to tennis**\
 `Bartunkova was provisionally suspended in May and her ban covers the length of that suspension.`\
 https://nytimes.com/athletic/5922031/2024/11/14/nikola-bartunkova-tennis-doping-ban/
-
-**Where Are Property Taxes Rising the Most?**\
-`They’re up in nearly every major U.S. metro area, but homeowners in the South have seen especially large increases.`\
-https://nytimes.com/2024/11/14/realestate/property-taxes-rising-states.html
 
