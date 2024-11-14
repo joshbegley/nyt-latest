@@ -1,3 +1,7 @@
+**Letters of a Literary Titan Read by Da’Vine Joy Randolph, Emma Roberts and More**\
+`An event at L.A.’s Chateau Marmont celebrated an upcoming book about Eve Babitz and Joan Didion, two writers who documented the magic of California.`\
+https://nytimes.com/2024/11/14/style/didion-babitz-book-party.html
+
 **Pope Francis Wants to Save the Environment. He Can Start With a Tree.**\
 `Environmentalists have called on the pope to halt the chopping down of a tree destined for St. Peter’s Square this Christmas, but the town providing the tree says it was doomed anyway.`\
 https://nytimes.com/2024/11/14/world/europe/pope-christmas-tree-vatican.html
