@@ -1,3 +1,7 @@
+**Trump Talked Twice as Much as Harris on the Campaign Trail**\
+`A detailed analysis shows the gap in speaking times across various platforms.`\
+https://nytimes.com/2024/11/14/upshot/trump-harris-campaign-speaking.html
+
 **Broadcaster Diamond will emerge from bankruptcy after judge approves plan**\
 `The broadcaster will now be able to emerge from bankruptcy with a reduced portfolio of 13 NBA teams, eight NHL teams and six MLB teams.`\
 https://nytimes.com/athletic/5922803/2024/11/14/broadcaster-diamond-bankruptcy-approval-plan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922719/2024/11/14/red-sox-justin-wilson-free-agent
 **Will Bill Belichick return to coaching? Bill Cowher thinks so**\
 `Cowher, an NFL analyst, also confirmed he will be back at CBS for the 2025 season.`\
 https://nytimes.com/athletic/5922696/2024/11/14/bill-cowher-bill-belichick-comments/
-
-**What Kind of Crier Are You?**\
-`Take our quiz to find out which types of situations tend to make you teary — and what that says about you.`\
-https://nytimes.com/interactive/2024/11/14/well/mind/crying-quiz-tears.html
 
