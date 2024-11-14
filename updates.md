@@ -1,5 +1,9 @@
 **Gavin Newsom Once Again Becomes a Meme**\
 `Old photos of the California governor (and navy-suit enthusiast) are being widely shared as bruised Democrats seek a savior.`\
+https://nytimes.com/2024/11/14/style/gavin-newsom-suits-memes.html
+
+**Gavin Newsom Once Again Becomes a Meme**\
+`Old photos of the California governor (and navy-suit enthusiast) are being widely shared as bruised Democrats seek a savior.`\
 https://nytimes.com/2024/11/14/style/gavin-newsom-once-again-becomes-a-meme.html
 
 **Finding Lagavulin at the Edge of the World**\
