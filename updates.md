@@ -1,3 +1,15 @@
+**Wines and Ciders for the Thanksgiving Feast**\
+`Choosing what to drink should be the easiest part of your holiday planning. Here’s a guide to making it even more so.`\
+https://nytimes.com/2024/11/14/dining/drinks/thanksgiving-wines-ciders.html
+
+**Fried Chicken Thanksgiving**\
+`If you’d like your holiday bird to be smaller, craggy-coated and scattered with crispy sage, Sohla El-Waylly has a recipe for you.`\
+https://nytimes.com/2024/11/14/fried-chicken-thanksgiving.html
+
+**What Will Trump Do With the Public Service Loan Forgiveness Program?**\
+`There is widespread concern that President-elect Trump may end it, since he has tried before. But that may be the wrong thing to fear.`\
+https://nytimes.com/2024/11/14/business/trump-public-service-loan-forgiveness.html
+
 **Where to Find the Avuncular Donald Trump? Check the Manosphere.**\
 `In the months leading up to the election, Donald J. Trump sat for a slew of casual and unconventional conversations with podcasters and streamers. We watched them all.`\
 https://nytimes.com/2024/11/14/arts/donald-trump-podcasts-men.html

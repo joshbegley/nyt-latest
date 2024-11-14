@@ -1,3 +1,15 @@
+**Wines and Ciders for the Thanksgiving Feast**\
+`Choosing what to drink should be the easiest part of your holiday planning. Here’s a guide to making it even more so.`\
+https://nytimes.com/2024/11/14/dining/drinks/thanksgiving-wines-ciders.html
+
+**Fried Chicken Thanksgiving**\
+`If you’d like your holiday bird to be smaller, craggy-coated and scattered with crispy sage, Sohla El-Waylly has a recipe for you.`\
+https://nytimes.com/2024/11/14/fried-chicken-thanksgiving.html
+
+**What Will Trump Do With the Public Service Loan Forgiveness Program?**\
+`There is widespread concern that President-elect Trump may end it, since he has tried before. But that may be the wrong thing to fear.`\
+https://nytimes.com/2024/11/14/business/trump-public-service-loan-forgiveness.html
+
 **Where to Find the Avuncular Donald Trump? Check the Manosphere.**\
 `In the months leading up to the election, Donald J. Trump sat for a slew of casual and unconventional conversations with podcasters and streamers. We watched them all.`\
 https://nytimes.com/2024/11/14/arts/donald-trump-podcasts-men.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5922289/2024/11/14/penguins-today-trade-rumors/
 **Americans Have Regained Modest Trust in Scientists, Survey Finds**\
 `A sharp partisan divide remains over how involved researchers should be in policy decisions.`\
 https://nytimes.com/2024/11/14/health/trust-science-americans.html
-
-**Israeli Airstrikes Hit Suburbs South of Beirut**\
-`The Dahiya, an area just outside Beirut, has been a frequent target of airstrikes since Israel stepped up its air war in Lebanon in September.`\
-https://nytimes.com/video/world/middleeast/100000009825503/beirut-lebanon-dahiya-strikes.html
-
-**Tari Eason's active hands, Keldon Johnson in driver's seat and more: The IkoSystem**\
-`"At times, he'll get burned for it but more often than not, he'll make a play out of it," says coach Ime Udoka of Eason's defensive acumen.`\
-https://nytimes.com/athletic/5918330/2024/11/14/rockets-tari-eason-spurs-keldon-johnson-wembanyama/
-
-**Israel Strikes Humanitarian Zone in Gaza**\
-`The Israeli military said it had been targeting a loaded weapons launcher in the area, where thousands of displaced people are sheltering in a tent camp.`\
-https://nytimes.com/2024/11/14/world/middleeast/israel-airstrike-humanitarian-zone-gaza.html
 
