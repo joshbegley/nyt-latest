@@ -1,3 +1,7 @@
+**Fragments of Up to 20 Human Skulls Are Found in New Mexico Home**\
+`The Lea County sheriff said his office was exploring whether the bones might be linked to any homicides or missing persons.`\
+https://nytimes.com/2024/11/14/us/new-mexico-human-skulls.html
+
 **Spy Agency Memo Sets Rules for Artificial Intelligence and Americans’ Private Data**\
 `The administration held back the guidance last month when unveiling a presidential directive pushing security agencies to use the technology.`\
 https://nytimes.com/2024/11/14/us/ai-privacy-guidelines-intelligence.html
