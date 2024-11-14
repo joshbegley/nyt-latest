@@ -1,3 +1,11 @@
+**Kennedy stuck to his message about concerns over the U.S. food supply.**\
+`By Christina Jewett`\
+https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/kennedy-stuck-to-his-message-about-concerns-over-the-us-food-supply
+
+**Marine Who Trained Penny in Chokeholds Testifies at Manslaughter Trial**\
+`The military trainer said that Marines are taught to render a person unconscious in seconds. Mr. Penny held Jordan Neely, a homeless man, for six minutes.`\
+https://nytimes.com/2024/11/14/nyregion/daniel-penny-trial-jordan-neely.html
+
 **Elizabeth Nunez, Who Chronicled the Immigrant’s Challenges, Dies at 80**\
 `In “Prospero’s Daughter” and other novels, she explored the legacy of colonialism in her native Trinidad and the struggle for belonging in an adopted country.`\
 https://nytimes.com/2024/11/14/books/elizabeth-nunez-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/trump-gaetz-gabbard-hegseth-deep-stat
 **30 People Charged in Manhattan Gang War That Killed 7**\
 `Washington Heights and Inwood were the scene of deadly feuds that began six years ago after a killing. Thursday’s charges were just the latest in a series of gang takedowns.`\
 https://nytimes.com/2024/11/14/nyregion/nyc-gangs-charges-alvin-bragg.html
-
-**Trump Wants Former S.E.C. Chief as Manhattan’s Top Federal Prosecutor**\
-`Jay Clayton, a former corporate lawyer, would be in a critical position for the president-elect, who has promised revenge on those who prosecuted him in New York.`\
-https://nytimes.com/2024/11/14/us/politics/trump-jay-clayton-attorney-southern-district-ny.html
-
-**Why Humans Cry**\
-`We’re the only species that sheds emotional tears, but much about them remains an enigma.`\
-https://nytimes.com/2024/11/14/well/mind/why-people-cry-tears.html
 

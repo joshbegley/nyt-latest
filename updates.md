@@ -1,3 +1,11 @@
+**Kennedy stuck to his message about concerns over the U.S. food supply.**\
+`By Christina Jewett`\
+https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/kennedy-stuck-to-his-message-about-concerns-over-the-us-food-supply
+
+**Marine Who Trained Penny in Chokeholds Testifies at Manslaughter Trial**\
+`The military trainer said that Marines are taught to render a person unconscious in seconds. Mr. Penny held Jordan Neely, a homeless man, for six minutes.`\
+https://nytimes.com/2024/11/14/nyregion/daniel-penny-trial-jordan-neely.html
+
 **Elizabeth Nunez, Who Chronicled the Immigrant’s Challenges, Dies at 80**\
 `In “Prospero’s Daughter” and other novels, she explored the legacy of colonialism in her native Trinidad and the struggle for belonging in an adopted country.`\
 https://nytimes.com/2024/11/14/books/elizabeth-nunez-dead.html
