@@ -1,40 +1,40 @@
-**Monaco GP moving to June from 2026**\
-`Formula One’s most iconic race, the Monaco Grand Prix, will be staged in June from 2026 as part of a new six-year agreement to remain on the calendar.`\
-https://nytimes.com/athletic/5921870/2024/11/14/monaco-gp-f1-june-contract/
+**Why isolation ball works for Shai Gilgeous-Alexander and Thunder**\
+`Chet Holmgren's injury likely puts more on Shai Gilgeous-Alexander's shoulders to create for himself more often.`\
+https://nytimes.com/athletic/5918974/2024/11/14/why-isolation-ball-works-for-shai-gilgeous-alexander-and-oklahoma-city-thunder/
 
-**Chaos brackets: 5 unlikely — but plausible! — College Football Playoff scenarios**\
-`Could the Big 12 champion be left out of the College Football Playoff? How high can Indiana climb? We ran the numbers to find chaos.`\
-https://nytimes.com/athletic/5920684/2024/11/14/college-football-playoff-chaos-scenarios-brackets/
+**2025 NFL Draft: Projection model ranks 5 teams most likely to pick No. 1**\
+`Despite both teams sitting at 2-8, neither the Giants nor the Jaguars are the favorites to land the No. 1 pick. `\
+https://nytimes.com/athletic/5917663/2024/11/14/nfl-draft-top-pick-raiders-giants-panthers-browns-jaguars/
 
-**Switching sides in the Bears-Packers rivalry can be painful ... or rewarding**\
-`Those who have played in Chicago and Green Bay have done so for lots of reasons, but most say joining the enemy felt strange.`\
-https://nytimes.com/athletic/5872828/2024/11/14/bears-packers-rivalry-switching-sides/
+**QB Betrayal Index: Lamar Jackson acing his toughest test; Justin Herbert finally gets a break**\
+`Jackson's MVP case is even stronger than you think. Meanwhile, the man he's outdueled twice this season, Joe Burrow, could use more help.`\
+https://nytimes.com/athletic/5920003/2024/11/14/lamar-jackson-joe-burrow-justin-herbert/
 
-**Five Michigan players to watch who are crucial to Wolverines' future**\
-`Michigan’s slide to 5-5 has made a roster overhaul all but inevitable, but there are a handful of rising players worth watching.`\
-https://nytimes.com/athletic/5920280/2024/11/14/michigan-football-roster-future-2025/
+**‘It ain’t about me. It’s about us’: Kevin Garnett checks in at No. 18 on ‘The Basketball 100’**\
+`In the mid-1990s, Garnett revitalized a moribund Timberwolves franchise before winning an NBA championship with the Celtics in 2008.`\
+https://nytimes.com/athletic/5918365/2024/11/14/kevin-garnett-the-basketball-100-book-excerpt/
 
-**NFC East Roundtable: Commanders-Eagles showdown, how to fix Cowboys and Giants**\
-`What's one thing each team in the division can be encouraged by? And who has the upper hand when Washington and Philly meet Thursday night?`\
-https://nytimes.com/athletic/5920262/2024/11/14/eagles-commanders-giants-cowboys-nfc-east/
+**Simon Edvinsson rising to the challenge at crucial moment for Red Wings**\
+`Detroit's young blueliner has been given a challenging role early in his career, but he's quickly made a major impact.`\
+https://nytimes.com/athletic/5921522/2024/11/14/simon-edvinsson-red-wings-overtime-goal/
 
-**I Believe in Miracles. Just Not All of Them.**\
-`Let’s not become the supernatural states of America.`\
-https://nytimes.com/2024/11/14/opinion/christianity-spirituality-psychedelics-trump.html
+**Buzzers and shopping malls: League 1 America, the failed attempt to revolutionize soccer**\
+`Thirty years ago, American businessman Jim Paglia attempted to fully rework the rules of soccer, but his dream fell apart. `\
+https://nytimes.com/athletic/5914807/2024/11/14/league-1-america-mls/
 
-**Mr. Trump’s Reckless Choices for National Leadership**\
-`Three extreme cabinet nominations demonstrate his contempt for a responsible executive branch.`\
-https://nytimes.com/2024/11/14/opinion/editorials/matt-gaetz-nomination-senate.html
+**A Republican Trifecta, and Trump’s Latest Pick Creates Shock Waves**\
+`Plus, a Chinese government cover-up.`\
+https://nytimes.com/2024/11/14/podcasts/trump-gop-senate.html
 
-**West Bank Annexation in 2025? Trump’s Mideast Team Has Israeli Right Exulting.**\
-`Arab Americans and liberal Jewish voters, however, have ample reason to fear the naming of pro-settlement, pro-Netanyahu officials to top foreign policy posts in the new administration.`\
-https://nytimes.com/2024/11/14/us/politics/israel-trump-administration.html
+**Five Browns thoughts: Jameis Winston back in New Orleans, a new LT situation and more**\
+`Will Winston prove he's the answer at QB for Cleveland down the stretch? Also, can the team get Nick Chubb going on the ground this week?`\
+https://nytimes.com/athletic/5920691/2024/11/14/browns-jameis-winston-saints-nick-chubb/
 
-**Searching for a ‘Forever Home’ in Boston, a Family Played the Long Game**\
-`A couple with a young son hoped to size up in historic Charlestown, aiming for more space and good light. Here’s what they found.`\
-https://nytimes.com/interactive/2024/11/14/realestate/boston-charlestown-home-sale.html
+**Lindsey Vonn Plans a World Cup Return as She Rejoins the U.S. Ski Team**\
+`Five years ago the American ski racer left the sport, but a new right knee has her aiming to compete this year on the World Cup circuit, and possibly, in the 2026 Olympics.`\
+https://nytimes.com/2024/11/14/us/lindsey-vonn-world-cup-retirement.html
 
-**The Man in Charge of Trump’s Border Policy**\
-`An interview with Tom Homan.`\
-https://nytimes.com/2024/11/14/podcasts/the-man-in-charge-of-trumps-border-policy.html
+**Trump 2.0: A Cabinet Full of Surprises and an Awkward Visit With Joe Biden**\
+`Listen to our political round table on Donald J. Trump’s first week as president-elect.`\
+https://nytimes.com/2024/11/14/podcasts/the-daily/trump-cabinet.html
 
