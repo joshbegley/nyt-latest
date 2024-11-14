@@ -1,3 +1,11 @@
+**Rays to play 2025 home games at Steinbrenner Field in Tampa**\
+`The team needed to find an alternate home ballpark after Tropicana Field sustained major damage from Hurricane Milton.`\
+https://nytimes.com/athletic/5922676/2024/11/14/tampa-bay-rays-steinbrenner-field-yankees/
+
+**Biden’s Swan Song: A Diplomatic Trip Overshadowed by Trump’s Victory**\
+`President Biden will attend global summits in Peru and Brazil as world leaders prepare for the return of Donald Trump’s isolationist foreign policy.`\
+https://nytimes.com/2024/11/14/us/politics/biden-south-america.html
+
 **Justice Dept. Reports Broad Civil Rights Abuses at Georgia Jail System**\
 `In a blunt report released on Thursday, the department said officials in Fulton County have had “deliberate indifference to the risks of harms.”`\
 https://nytimes.com/2024/11/14/us/politics/fulton-county-georgia-jail-justice-department.html
