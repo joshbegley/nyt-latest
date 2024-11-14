@@ -1,3 +1,11 @@
+**Elon Musk Met With Iran’s U.N. Ambassador, Iranian Officials Say**\
+`The tech billionaire, a top adviser to President-elect Donald J. Trump, was reported to have discussed ways to defuse tensions between Iran and the United States.`\
+https://nytimes.com/2024/11/14/world/middleeast/elon-musk-iran-trump.html
+
+**Trump’s Nominees Pose Dilemma for Senate G.O.P., Testing Their Deference**\
+`The president-elect’s choice of combative loyalists who could have trouble being confirmed has raised constitutional questions about executive power and the Senate’s prerogatives.`\
+https://nytimes.com/2024/11/14/us/trumps-nominees-test-republicans.html
+
 **Fragments of Up to 20 Human Skulls Are Found in New Mexico Home**\
 `The Lea County sheriff said his office was exploring whether the bones might be linked to any homicides or missing persons.`\
 https://nytimes.com/2024/11/14/us/new-mexico-human-skulls.html
