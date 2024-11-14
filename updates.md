@@ -1,3 +1,7 @@
+**Canucks notebook: Is Marcus Pettersson a trade fit? Is Nils Höglander in the doghouse?**\
+`Would a trade between the Canucks and Penguins make sense? Is Pettersson a fit for what Vancouver needs most on the back end?`\
+https://nytimes.com/athletic/5921806/2024/11/14/canucks-marcus-pettersson-trade-nils-hoglander/
+
 **How the Cardinals shed their slow start and jumped to the top of the NFC West**\
 `On Oct. 13, the Cardinals had their worst game in two years. Since then, they've ripped off four wins in a row to take the division lead.`\
 https://nytimes.com/athletic/5920928/2024/11/14/arizona-cardinals-winning-streak-nfc-west-leaders/
