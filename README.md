@@ -1,3 +1,11 @@
+**Victor Wembanyama becomes fourth-youngest player with 50-point game**\
+`Wembanyama's previous career high was a 40-point game in late March against the New York Knicks.`\
+https://nytimes.com/athletic/5921484/2024/11/13/victor-wembanyama-career-high-points-stats-spurs/
+
+**House Ethics Committee Was Set to Vote to Release Critical Report on Matt Gaetz**\
+`The committee has been investigating allegations that Mr. Gaetz, President-elect Donald J. Trump’s pick for attorney general, engaged in sexual misconduct and illicit drug use.`\
+https://nytimes.com/2024/11/13/us/politics/matt-gaetz-ethics-committee-report.html
+
 **Republicans Win Control of House, Cementing a G.O.P. Trifecta Under Trump**\
 `The party protected vulnerable incumbents and picked off Democrats in competitive districts, handing the president-elect a unified Congress to enact his agenda.`\
 https://nytimes.com/2024/11/13/us/elections/republican-house-trifecta.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.ht
 **Proud Boys Leader Convicted of Sedition for Role in Jan. 6 Attack Asks Trump for Pardon**\
 `Other high-ranking members of the extremist organization have signaled they intend to seek pardons, too.`\
 https://nytimes.com/2024/11/13/us/politics/proud-boys-biggs-pardon.html
-
-**Rays, Tigers reach broadcast deals with Diamond Sports Group ahead of bankruptcy hearing**\
-`The deals came ahead of a hearing where a judge will rule whether the embattled broadcaster has a viable business plan to escape Chapter 11.`\
-https://nytimes.com/athletic/5921373/2024/11/13/rays-tigers-diamond-broadcast-deals/
-
-**Matt Gaetz suggested in 2020 that Trump should pick him for attorney general.**\
-`By Sharon LaFraniere`\
-https://nytimes.com/live/2024/11/13/us/trump-news/matt-gaetz-suggested-in-2020-that-trump-should-pick-him-for-attorney-general
 
