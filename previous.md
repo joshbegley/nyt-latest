@@ -1,3 +1,7 @@
+**Martin Scorsese on His Tour of Catholic Saints**\
+`The Fox Nation series “Martin Scorsese Presents: The Saints” emphasizes the human struggles behind religious legends.`\
+https://nytimes.com/2024/11/14/arts/martin-scorsese-saints.html
+
 **New York Joins a Global City Club, With a Deal on Congestion Pricing**\
 `The city will be the first in the U.S. to adopt a fee on driving in certain areas, with the aim of reducing traffic and pollution. For some other cities, that has long been the norm.`\
 https://nytimes.com/2024/11/14/climate/new-york-congestion-pricing.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/11/14/climate/new-york-congestion-pricing.html
 https://nytimes.com/2024/11/14/arts/design/math-museum-new-location.html
 
 **Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
-`A researcher thinks he knows what has been come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
+`A researcher thinks he knows what has come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
 https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
 
 **Outgoing Liberty CEO Greg Maffei says he doesn’t see any plan to sell F1**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/movies/all-we-imagine-as-light-review.html
 **Trotter: Joel Embiid shoving incident a microcosm of our society's loss of respect for one another**\
 `All-Star's clash with columnist is sad sign of the times and another indication that the decline in decorum is bleeding deeper into sports.`\
 https://nytimes.com/athletic/5921454/2024/11/14/joel-embiid-athlete-media-relationships/
-
-**Season 2 of ‘Bad Sisters’ Is Still Stylish and Thrilling**\
-`There is a sense, however, that the most important events in this offbeat Apple TV+ drama happened in Season 1.`\
-https://nytimes.com/2024/11/14/arts/television/bad-sisters-season-2-apple-tv-plus.html
 

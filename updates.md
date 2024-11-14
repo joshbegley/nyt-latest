@@ -1,3 +1,11 @@
+**Martin Scorsese on His Tour of Catholic Saints**\
+`The Fox Nation series “Martin Scorsese Presents: The Saints” emphasizes the human struggles behind religious legends.`\
+https://nytimes.com/2024/11/14/arts/martin-scorsese-saints.html
+
+**Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
+`A researcher thinks he knows what has come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
+https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
+
 **New York Joins a Global City Club, With a Deal on Congestion Pricing**\
 `The city will be the first in the U.S. to adopt a fee on driving in certain areas, with the aim of reducing traffic and pollution. For some other cities, that has long been the norm.`\
 https://nytimes.com/2024/11/14/climate/new-york-congestion-pricing.html
