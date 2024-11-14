@@ -1,3 +1,7 @@
+**Pope Francis Wants to Save the Environment. He Can Start With a Tree.**\
+`Environmentalists have called on the pope to halt the chopping down of a tree destined for St. Peter’s Square this Christmas, but the town providing the tree says it was doomed anyway.`\
+https://nytimes.com/2024/11/14/world/europe/pope-christmas-tree-vatican.html
+
 **Button Up, Baby**\
 `The humble button mushroom can steal the show — it just needs the right recipes.`\
 https://nytimes.com/2024/11/14/dining/how-to-cook-mushrooms.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922645/2024/11/14/bc-football-quarterback-thomas-c
 **Ford Fined Up to $165 Million by Safety Agency Over Camera Recalls**\
 `The regulator faulted the automaker for not recalling cars with defective rearview cameras quickly enough and for providing incomplete and inaccurate information.`\
 https://nytimes.com/2024/11/14/business/economy/ford-nhtsa-camera-recall.html
-
-**Hochul Brings Back Congestion Pricing Plan After Months of Suspense**\
-`The governor is renewing plans to start the tolling program, but at discounted rates. It is not clear whether the lower tolls could generate the $15 billion needed for mass transit repairs.`\
-https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc-hochul.html
 
