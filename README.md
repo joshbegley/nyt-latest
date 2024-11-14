@@ -1,3 +1,7 @@
+**Gaetz, Gabbard and Hegseth: Trump’s Appointments Are a Show of Force**\
+`President-elect Donald J. Trump’s cabinet picks show that he prizes loyalty over experience and is fueled by retribution.`\
+https://nytimes.com/2024/11/13/us/politics/gaetz-gabbard-hegseth-trump-appointees.html
+
 **Diego Forlan's pro tennis debut ends in defeat for former Man United and Uruguay footballer**\
 `Forlan has been playing on the International Tennis Federation tour for over-45s, but received a wildcard to his home tournament.`\
 https://nytimes.com/athletic/5920561/2024/11/13/diego-forlan-tennis-debut-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/nyregion/inwood-hill-park-fire-nyc.html
 **John Thune Rises to the Senate Top**\
 `The South Dakota Republican failed in his first try for the Senate but came back to defeat a chamber leader. Now he will be the leader himself.`\
 https://nytimes.com/2024/11/13/us/john-tune-senate-republican-leader.html
-
-**A Project 2025 Leader Is Back in the Fold**\
-`At his book party, the Heritage Foundation president said he’ll soon speak with the president-elect.`\
-https://nytimes.com/2024/11/13/us/politics/project-2025-trump-heritage-foundation.html
 
