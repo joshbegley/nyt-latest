@@ -1,3 +1,15 @@
+**Trump Picks Doug Collins, Former Congressman and Impeachment Defender, to Lead V.A.**\
+`Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment in 2019.`\
+https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
+
+**Greg Sankey sees SEC Championship Game ‘as a reward,’ not a penalty**\
+`Sankey reiterated that the championship game — which makes the SEC a lot of money in attendance and TV ratings — remains important.`\
+https://nytimes.com/athletic/5923590/2024/11/14/sec-championship-game-greg-sankey/
+
+**MLBPA will no longer give licensing money to managers, coaches and trainers**\
+`Eight personnel per team were previously eligible for the licensing money, which one recipient estimated at roughly $50,000 annually`\
+https://nytimes.com/athletic/5923635/2024/11/14/mlbpa-licensing-money-managers-coaches-trainers/
+
 **Nebraska recruiting: Huskers flip 4-star LB Dawson Merritt from Alabama**\
 `Merritt is the highest-rated player in the Huskers’ 20-man recruiting class for 2025.`\
 https://nytimes.com/athletic/5923638/2024/11/14/dawson-merritt-college-football-recruit-nebraska-football/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/14/world/canada/murray-sinclair-dead.html
 **What to Know About Congestion Pricing**\
 `Gov. Kathy Hochul is fast-tracking new tolls to enter Midtown and Lower Manhattan. Drivers could be charged beginning in January.`\
 https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc.html
-
-**Brooklyn Man Charged With Murdering Father in Luxury Irish Hotel**\
-`Henry McGowan, Irish officials said, “did murder one John McGowan, contrary to common law,” on Tuesday night.`\
-https://nytimes.com/2024/11/14/nyregion/henry-mcgowan-murder-father-ireland.html
-
-**Former Suns employee sues team alleging discrimination, retaliation**\
-`Andrea Trischan filed a complaint Wednesday against the Suns, seeking unspecified damages.`\
-https://nytimes.com/athletic/5922977/2024/11/14/suns-discrimination-lawsuit/
-
-**What to Know About Broker Fees in New York City**\
-`The City Council overwhelmingly passed a measure to shift the burden of broker fees to landlords. Here’s what that means for renters.`\
-https://nytimes.com/2024/11/14/nyregion/broker-fees-nyc.html
 

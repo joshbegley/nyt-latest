@@ -1,3 +1,15 @@
+**Trump Picks Doug Collins, Former Congressman and Impeachment Defender, to Lead V.A.**\
+`Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment in 2019.`\
+https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
+
+**Greg Sankey sees SEC Championship Game ‘as a reward,’ not a penalty**\
+`Sankey reiterated that the championship game — which makes the SEC a lot of money in attendance and TV ratings — remains important.`\
+https://nytimes.com/athletic/5923590/2024/11/14/sec-championship-game-greg-sankey/
+
+**MLBPA will no longer give licensing money to managers, coaches and trainers**\
+`Eight personnel per team were previously eligible for the licensing money, which one recipient estimated at roughly $50,000 annually`\
+https://nytimes.com/athletic/5923635/2024/11/14/mlbpa-licensing-money-managers-coaches-trainers/
+
 **Nebraska recruiting: Huskers flip 4-star LB Dawson Merritt from Alabama**\
 `Merritt is the highest-rated player in the Huskers’ 20-man recruiting class for 2025.`\
 https://nytimes.com/athletic/5923638/2024/11/14/dawson-merritt-college-football-recruit-nebraska-football/
