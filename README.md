@@ -1,10 +1,14 @@
+**Giuliani’s lawyers ask judge for permission to withdraw as counsel in assets case.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/11/13/us/trump-news/giulianis-lawyers-ask-judge-for-permission-to-withdraw-as-counsel-in-assets-case
+
 **Matt Gaetz Resigns From Congress After Trump Picks Him for Attorney General**\
 `The Florida Republican’s departure effectively ends the House Ethics Committee’s investigation of allegations that include sexual misconduct and illicit drug use.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-resign-congress-trump.html
 
 **At Least 1 Killed in Explosions in Brazil’s Capital**\
 `Two explosions rocked the area near the heart of the Brazilian government’s offices.`\
-https://nytimes.com/2024/11/13/world/americas/brasilia-explosion-car-supreme-court.html
+https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
 
 **Proud Boys Leader Convicted of Sedition for Role in Jan. 6 Attack Asks Trump for Pardon**\
 `Other high-ranking members of the extremist organization have signaled they intend to seek pardons, too.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920561/2024/11/13/diego-forlan-tennis-debut-result
 **Matt Gaetz, a Bomb-Thrower for the Justice Department**\
 `President-elect Donald Trump’s pick to be attorney general has set a new bar for in-your-face nominations.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz.html
-
-**49ers' Deommodore Lenoir jokes he can now repay Kyle Shanahan after rookie miscue**\
-`Lenoir's social media miscue in 2021 cost the 49ers a $100,000 fine and Shanahan an additional $50,000. `\
-https://nytimes.com/athletic/5921170/2024/11/13/deommodore-lenoir-49ers-contract-kyle-shanahan/
 
