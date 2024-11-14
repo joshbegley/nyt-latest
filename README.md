@@ -7,7 +7,7 @@ https://nytimes.com/2024/11/14/climate/new-york-congestion-pricing.html
 https://nytimes.com/2024/11/14/arts/design/math-museum-new-location.html
 
 **Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
-`A researcher thinks he has knows what has been come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
+`A researcher thinks he knows what has been come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
 https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
 
 **Outgoing Liberty CEO Greg Maffei says he doesn’t see any plan to sell F1**\
