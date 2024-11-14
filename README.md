@@ -1,3 +1,7 @@
+**How the Cardinals shed their slow start and jumped to the top of the NFC West**\
+`On Oct. 13, the Cardinals had their worst game in two years. Since then, they've ripped off four wins in a row to take the division lead.`\
+https://nytimes.com/athletic/5920928/2024/11/14/arizona-cardinals-winning-streak-nfc-west-leaders/
+
 **The Onion Says It Has Bought Infowars, Alex Jones’s Site, Out of Bankruptcy**\
 `The satirical news site planned to turn Infowars into a parody of itself, mocking “weird internet personalities” who peddle conspiracy theories and health supplements.`\
 https://nytimes.com/2024/11/14/business/media/alex-jones-infowars-the-onion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/realestate/property-taxes-rising-states.html
 **Craig Melvin Is Named Hoda Kotb’s Replacement on ‘Today’**\
 `By selecting Mr. Melvin, a familiar face on the show, network executives chose to go the steadiest route possible.`\
 https://nytimes.com/2024/11/14/business/media/craig-melvin-hoda-kotb-today.html
-
-**Kane criticism of England pullouts does not take into account player workloads or priorities**\
-`Kane is presumably doing what he thinks is his duty as England captain, but the squad's culture post-Southgate may have changed`\
-https://nytimes.com/athletic/5921956/2024/11/14/kane-england-squad-pullouts/
 
