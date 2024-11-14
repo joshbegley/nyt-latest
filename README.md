@@ -1,11 +1,3 @@
-**Broadcaster Diamond will emerge from bankruptcy after judge approves plan**\
-`The broadcaster will now be able to emerge from bankruptcy with a reduced portfolio of 13 NBA teams, eight NHL teams and six MLB teams.`\
-https://nytimes.com/athletic/5922803/2024/11/14/broadcaster-diamond-bankruptcy-approval-plan/
-
-**Gaetz Pick Unnerves an Already Jittery Justice Dept. and F.B.I.**\
-`Senior law enforcement officials face a wave of uncertainty as Donald J. Trump moves to nominate a fierce partisan and a longtime ally to fill one of the most powerful cabinet posts.`\
-https://nytimes.com/2024/11/14/us/politics/gaetz-attorney-general-justice-department-fbi.html
-
 **Martin Scorsese on His Tour of Catholic Saints**\
 `The Fox Nation series “Martin Scorsese Presents: The Saints” emphasizes the human struggles behind religious legends.`\
 https://nytimes.com/2024/11/14/arts/martin-scorsese-saints.html
@@ -19,7 +11,7 @@ https://nytimes.com/2024/11/14/climate/new-york-congestion-pricing.html
 https://nytimes.com/2024/11/14/arts/design/math-museum-new-location.html
 
 **Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
-`A researcher thinks he knows what has come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
+`A researcher thinks he knows what has been coming ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
 https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
 
 **Outgoing Liberty CEO Greg Maffei says he doesn’t see any plan to sell F1**\
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5922696/2024/11/14/bill-cowher-bill-belichick-comme
 **What Kind of Crier Are You?**\
 `Take our quiz to find out which types of situations tend to make you teary — and what that says about you.`\
 https://nytimes.com/interactive/2024/11/14/well/mind/crying-quiz-tears.html
+
+**‘All We Imagine as Light’ Review: Tender Comrades**\
+`In Payal Kapadia’s extraordinary drama, three women in Mumbai search for connections amid the city’s vibrant and darkly alienating churn.`\
+https://nytimes.com/2024/11/14/movies/all-we-imagine-as-light-review.html
+
+**Trotter: Joel Embiid shoving incident a microcosm of our society's loss of respect for one another**\
+`All-Star's clash with columnist is sad sign of the times and another indication that the decline in decorum is bleeding deeper into sports.`\
+https://nytimes.com/athletic/5921454/2024/11/14/joel-embiid-athlete-media-relationships/
 
