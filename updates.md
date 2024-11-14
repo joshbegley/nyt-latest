@@ -1,3 +1,7 @@
+**Explosions in Brazil’s Capital Leave One Dead**\
+`Two blasts went off in Brasília, near the Supreme Court. The authorities were treating it as the work of a lone bomber, who was believed to have been the person killed.`\
+https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
+
 **House Ethics Panel Was Set to Vote to Release Report Critical of Matt Gaetz**\
 `The committee has been investigating allegations that Mr. Gaetz, President-elect Donald J. Trump’s pick for attorney general, engaged in sexual misconduct and illicit drug use.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-ethics-committee-report.html

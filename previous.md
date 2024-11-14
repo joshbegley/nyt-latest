@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/11/13/us/trump-news/giulianis-lawyers-ask-judge-fo
 `The Florida Republican’s departure effectively ends the House Ethics Committee’s investigation of allegations that include sexual misconduct and illicit drug use.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-resign-congress-trump.html
 
-**Explosions in Brazil’s Capital Leave at Least One Dead**\
-`Two blasts, coming 20 seconds apart, rocked an area of Brasília near the heart of the government’s offices.`\
+**Explosions in Brazil’s Capital Leave One Dead**\
+`Two blasts went off in Brasília, near the Supreme Court. The authorities were treating it as the work of a lone bomber, who was believed to have been the person killed.`\
 https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
 
