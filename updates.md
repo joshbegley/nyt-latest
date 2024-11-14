@@ -1,3 +1,7 @@
+**Republicans Ran a Dysfunctional House. Voters Shrugged and Re-elected Them.**\
+`The success of the G.O.P. push to keep the majority suggests that it paid no political price for the chaos and paralysis of its past two years in control of the House.`\
+https://nytimes.com/2024/11/13/us/politics/republican-house-majority.html
+
 **Victor Wembanyama becomes fourth-youngest player with 50-point game**\
 `Wembanyama's previous career high was a 40-point game in late March against the New York Knicks.`\
 https://nytimes.com/athletic/5921484/2024/11/13/victor-wembanyama-career-high-points-stats-spurs/

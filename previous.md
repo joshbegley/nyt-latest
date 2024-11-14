@@ -1,3 +1,7 @@
+**Republicans Ran a Dysfunctional House. Voters Shrugged and Re-elected Them.**\
+`The success of the G.O.P. push to keep the majority suggests that it paid no political price for the chaos and paralysis of its past two years in control of the House.`\
+https://nytimes.com/2024/11/13/us/politics/republican-house-majority.html
+
 **Victor Wembanyama becomes fourth-youngest player with 50-point game**\
 `Wembanyama's previous career high was a 40-point game in late March against the New York Knicks.`\
 https://nytimes.com/athletic/5921484/2024/11/13/victor-wembanyama-career-high-points-stats-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/politics/matt-gaetz-resign-congress-trump.html
 **Explosions in Brazil’s Capital Leave at Least One Dead**\
 `Two blasts, coming 20 seconds apart, rocked an area of Brasília near the heart of the government’s offices.`\
 https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
-
-**Proud Boys Leader Convicted of Sedition for Role in Jan. 6 Attack Asks Trump for Pardon**\
-`Other high-ranking members of the extremist organization have signaled they intend to seek pardons, too.`\
-https://nytimes.com/2024/11/13/us/politics/proud-boys-biggs-pardon.html
 
