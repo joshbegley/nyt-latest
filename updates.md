@@ -1,3 +1,11 @@
+**Trump’s Picks: Loyalty Over Competence**\
+`Readers criticize the choice of Matt Gaetz, Pete Hegseth and others. Also: Anger over the election; protecting kids online; ripped jeans.`\
+https://nytimes.com/2024/11/14/opinion/donald-trump-matt-gaetz-pete-hegseth.html
+
+**Scoop City: How the playoff picture could change**\
+`A quick look at the current playoff picture, as well as the schedules for teams outside the bracket (including the Bengals, Buccaneers)`\
+https://nytimes.com/athletic/5922543/2024/11/14/nfl-playoff-current-standings-bracket-bengals-chargers-jets-scoop-city/
+
 **The Maple Leafs changed their plan on defence and unlocked a defensive monster**\
 `Chris Tanev and Jake McCabe are not only winning their minutes as a pairing — they're dominating.`\
 https://nytimes.com/athletic/5922213/2024/11/14/maple-leafs-defense-chris-tanev-jake-mccabe/
