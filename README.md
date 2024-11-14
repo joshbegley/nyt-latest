@@ -19,7 +19,7 @@ https://nytimes.com/2024/11/14/dining/certain-days-call-for-afternoon-tea.html
 https://nytimes.com/2024/11/14/style/mike-tyson-jake-paul-toad-venom.html
 
 **Fragments of Up to 20 Human Skulls Are Found in New Mexico Home**\
-`The Lea County sheriff said his office was exploring whether the bones might be linked to any homicides or missing persons, including the disappearance of a local woman in 2019.`\
+`The Lea County sheriff said his office was exploring whether the bones might be linked to any homicides or missing persons.`\
 https://nytimes.com/2024/11/14/us/new-mexico-human-skulls.html
 
 **Dave Sims, 71, getting Yankees' radio job, succeeding John Sterling**\
