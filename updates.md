@@ -1,3 +1,7 @@
+**Gaetz, Gabbard and Hegseth: Trump’s Appointments Are a Show of Force**\
+`President-elect Donald J. Trump’s cabinet picks show that he prizes loyalty over experience and is fueled by retribution.`\
+https://nytimes.com/2024/11/13/us/politics/gaetz-gabbard-hegseth-trump-appointees.html
+
 **Diego Forlan's pro tennis debut ends in defeat for former Man United and Uruguay footballer**\
 `Forlan has been playing on the International Tennis Federation tour for over-45s, but received a wildcard to his home tournament.`\
 https://nytimes.com/athletic/5920561/2024/11/13/diego-forlan-tennis-debut-result/
