@@ -1,3 +1,7 @@
+**Where Are Property Taxes Rising the Most?**\
+`They’re up in nearly every major U.S. metro area, but homeowners in the South have seen especially large increases.`\
+https://nytimes.com/2024/11/14/realestate/property-taxes-rising-states.html
+
 **Craig Melvin Is Named Hoda Kotb’s Replacement on ‘Today’**\
 `By selecting Mr. Melvin, a familiar face on the show, network executives chose to go the steadiest route possible.`\
 https://nytimes.com/2024/11/14/business/media/craig-melvin-hoda-kotb-today.html
