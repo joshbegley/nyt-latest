@@ -1,3 +1,7 @@
+**Certain Days Call for Afternoon Tea**\
+`The city is overflowing with options for a warm pot and small bites that won’t empty your bank account.`\
+https://nytimes.com/2024/11/14/dining/certain-days-call-for-afternoon-tea.html
+
 **Mike Tyson’s Inspiration for a Comeback? Smoking Toad Venom.**\
 `The former heavyweight champion told Interview magazine his experiences with a hallucinogenic poison played a role in his agreeing to fight the YouTuber Jake Paul.`\
 https://nytimes.com/2024/11/14/style/mike-tyson-jake-paul-toad-venom.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009825987/israel-strike-gaza-ma
 **LSU student senate unanimously opposes Gov. Jeff Landry's plan to bring live tigers to football games**\
 `LSU lost to Alabama, 42-13, on Saturday night.`\
 https://nytimes.com/athletic/5922888/2024/11/14/lsu-senate-opposes-live-tiger-jeff-landry/
-
-**Could Trump’s Return Pose a Threat to Climate and Weather Data?**\
-`Project 2025, the conservative playbook, calls for breaking up the federal agency that maintains weather data and collects climate change information.`\
-https://nytimes.com/2024/11/14/climate/trump-noaa-climate-data-weather.html
 
