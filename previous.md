@@ -1,3 +1,11 @@
+**PGMOL taking new Coote allegations 'very seriously'**\
+`New allegations surrounding Premier League referee David Coote are being taken “very seriously”, says the Professional Game Match Officials Ltd (PGMOL).`\
+https://nytimes.com/athletic/5920534/2024/11/14/david-coote-video-allegations-euro-2024/
+
+**UWCL Briefing: Hemp worry for City, Chelsea's rotation, goals galore - but zero jeopardy**\
+`Change of format of the Women's Champions League can't come soon enough. As the group tables show, there's not enough competition`\
+https://nytimes.com/athletic/5921352/2024/11/14/womens-champions-league-man-city-lauren-hemp/
+
 **Why is Thomas Tuchel not overseeing England's Nations League games?**\
 `Thomas Tuchel was named as England's new manager in October, so why is the German not overseeing the team's Nations League fixtures?`\
 https://nytimes.com/athletic/5919333/2024/11/14/thomas-tuchel-england-nations-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/arts/television/late-night-biden-trump-meeting.ht
 **Word of the Day: complacent**\
 `This word has appeared in 143 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/14/learning/word-of-the-day-complacent.html
-
-**Louis Vuitton’s Luxury Pit Stop**\
-`Who says a temporary space needs to look undone?`\
-https://nytimes.com/2024/11/14/style/louis-vuittons-luxury-pit-stop.html
-
-**Trump Changed the Game With China. Now He Could Win It.**\
-`His bluster and unpredictability, combined with strategic discipline, could permanently tilt the rivalry with China in America’s favor.`\
-https://nytimes.com/2024/11/14/opinion/china-trump-us-rivalry.html
 
