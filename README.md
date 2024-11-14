@@ -1,3 +1,7 @@
+**The Briefing: Greece 0 England 3: Lee Carsley's Watkins gamble pays off as Pickford and Curtis Jones impress**\
+`The key talking points from England's Nations League game in Athens`\
+https://nytimes.com/athletic/5919871/2024/11/14/greece-england-nations-league-result-analysis/
+
 **Tiafoe fined $120,000 for swearing repeatedly at umpire in Shanghai Masters**\
 `Tiafoe's fine is the second-biggest in the history of the ATP Tour.`\
 https://nytimes.com/athletic/5923099/2024/11/14/frances-tiafoe-fine-swearing-umpire-shanghai-masters/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/dining/certain-days-call-for-afternoon-tea.html
 **Mike Tyson’s Inspiration for a Comeback? Smoking Toad Venom.**\
 `The former heavyweight champion told Interview magazine his experiences with a hallucinogenic poison played a role in his agreeing to fight the YouTuber Jake Paul.`\
 https://nytimes.com/2024/11/14/style/mike-tyson-jake-paul-toad-venom.html
-
-**Fragments of Up to 20 Human Skulls Are Found in New Mexico Home**\
-`The Lea County sheriff said his office was exploring whether the bones might be linked to any homicides or missing persons.`\
-https://nytimes.com/2024/11/14/us/new-mexico-human-skulls.html
 
