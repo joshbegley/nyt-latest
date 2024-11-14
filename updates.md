@@ -1,3 +1,7 @@
+**Explosions in Brazil’s Capital Leave at Least One Dead**\
+`Two blasts, coming 20 seconds apart, rocked an area of Brasília near the heart of the government’s offices.`\
+https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
+
 **Giuliani’s lawyers ask judge for permission to withdraw as counsel in assets case.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/11/13/us/trump-news/giulianis-lawyers-ask-judge-for-permission-to-withdraw-as-counsel-in-assets-case
