@@ -1,3 +1,7 @@
+**Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
+`A researcher thinks he knows what has been coming ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
+https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
+
 **Martin Scorsese on His Tour of Catholic Saints**\
 `The Fox Nation series “Martin Scorsese Presents: The Saints” emphasizes the human struggles behind religious legends.`\
 https://nytimes.com/2024/11/14/arts/martin-scorsese-saints.html
