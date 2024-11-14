@@ -1,3 +1,7 @@
+**Laporte on potential Real Madrid transfer interest: 'I would listen to a call'**\
+`Al Nassr defender Aymeric Laporte says he would listen to a call from Real Madrid if the Spanish club approached him.`\
+https://nytimes.com/athletic/5921831/2024/11/14/aymeric-laporte-real-madrid-transfer/
+
 **PGMOL taking new Coote allegations 'very seriously'**\
 `New allegations surrounding Premier League referee David Coote are being taken “very seriously”, says the Professional Game Match Officials Ltd (PGMOL).`\
 https://nytimes.com/athletic/5920534/2024/11/14/david-coote-video-allegations-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/crosswords/spelling-bee-forum.html
 **Late Night Chides Biden for Keeping His Cool With Trump**\
 `“I’m not saying booby-trap the place, but you don’t have to be overly helpful,” Seth Meyers said after the president welcomed Donald Trump to the White House.`\
 https://nytimes.com/2024/11/14/arts/television/late-night-biden-trump-meeting.html
-
-**Word of the Day: complacent**\
-`This word has appeared in 143 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/14/learning/word-of-the-day-complacent.html
 
