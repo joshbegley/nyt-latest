@@ -1,3 +1,7 @@
+**Video Captures Israeli Strike on Humanitarian Zone in Gaza**\
+`Video on social media, verified by The New York Times, captured a large explosion in a densely populated tent camp. The Israeli military said it targeted a loaded weapons launcher.`\
+https://nytimes.com/video/world/middleeast/100000009825987/israel-strike-gaza-mawasi.html
+
 **LSU student senate unanimously opposes Gov. Jeff Landry's plan to bring live tigers to football games**\
 `LSU lost to Alabama, 42-13, on Saturday night.`\
 https://nytimes.com/athletic/5922888/2024/11/14/lsu-senate-opposes-live-tiger-jeff-landry/

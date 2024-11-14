@@ -1,3 +1,7 @@
+**Video Captures Israeli Strike on Humanitarian Zone in Gaza**\
+`Video on social media, verified by The New York Times, captured a large explosion in a densely populated tent camp. The Israeli military said it targeted a loaded weapons launcher.`\
+https://nytimes.com/video/world/middleeast/100000009825987/israel-strike-gaza-mawasi.html
+
 **LSU student senate unanimously opposes Gov. Jeff Landry's plan to bring live tigers to football games**\
 `LSU lost to Alabama, 42-13, on Saturday night.`\
 https://nytimes.com/athletic/5922888/2024/11/14/lsu-senate-opposes-live-tiger-jeff-landry/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/upshot/trump-harris-campaign-speaking.html
 **Broadcaster Diamond will emerge from bankruptcy after judge approves plan**\
 `The broadcaster will now be able to emerge from bankruptcy with a reduced portfolio of 13 NBA teams, eight NHL teams and six MLB teams.`\
 https://nytimes.com/athletic/5922803/2024/11/14/broadcaster-diamond-bankruptcy-approval-plan/
-
-**Gaetz Pick Unnerves an Already Jittery Justice Dept. and F.B.I.**\
-`Senior law enforcement officials face a wave of uncertainty as Donald J. Trump moves to nominate a fierce partisan and a longtime ally to fill one of the most powerful cabinet posts.`\
-https://nytimes.com/2024/11/14/us/politics/gaetz-attorney-general-justice-department-fbi.html
 
