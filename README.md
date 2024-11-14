@@ -1,3 +1,7 @@
+**4-Month-Old Dies From Cocaine Intoxication**\
+`Ariel Gonzalez died in the Bronx in August. There have been no arrests in the case, which the New York City medical examiner said on Thursday was a homicide.`\
+https://nytimes.com/2024/11/14/nyregion/4-month-old-cocaine-death.html
+
 **Trump Picks Todd Blanche, His Defense Lawyer, to Be Deputy Attorney General**\
 `Mr. Blanche, a former supervising federal prosecutor in Manhattan, oversaw the president-elect’s legal defense against multiple indictments.`\
 https://nytimes.com/2024/11/14/us/politics/todd-blanche-deputy-attorney-general-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/matt-gaetz-investigations-explainer.h
 **‘There Were Signs’: How the Polls Anticipated Some of Trump’s Key Gains**\
 `The available data confirms that Donald Trump made inroads among Hispanic, Black and big-city voters. The results mean that, to a great extent, the pre-election polls had it right.`\
 https://nytimes.com/2024/11/14/us/elections/polls-trump-gains.html
-
-**I Can’t Wait for Matt Gaetz’s Confirmation Hearings**\
-`Trump’s choice to lead the Justice Department is a flagrant provocation that is, like a pulpy B movie, so bad it’s good.`\
-https://nytimes.com/2024/11/14/opinion/i-cant-wait-for-matt-gaetzs-confirmation-hearings.html
 
