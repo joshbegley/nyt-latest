@@ -1,3 +1,15 @@
+**Former NFL coach Jon Gruden joins Barstool Sports**\
+`Gruden, who resigned from his role with the Raiders in 2021, previously said he wanted to return to coaching.`\
+https://nytimes.com/athletic/5922164/2024/11/14/jon-gruden-barstool-sports/
+
+**Jets' Rodgers on whether he'll play in 2025: 'I think so, yeah'**\
+`Rodgers, in the midst of one of his worst NFL seasons, was asked about his future on Wednesday.`\
+https://nytimes.com/athletic/5922232/2024/11/14/aaron-rodgers-jets-2025/
+
+**Penguins Today: The elephant in the room**\
+`Things are very, very bad in Pittsburgh. Change is likely coming.`\
+https://nytimes.com/athletic/5922289/2024/11/14/penguins-today-trade-rumors/
+
 **Americans Have Regained Modest Trust in Scientists, Survey Finds**\
 `A sharp partisan divide remains over how involved researchers should be in policy decisions.`\
 https://nytimes.com/2024/11/14/health/trust-science-americans.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5918747/2024/11/14/new-york-mets-garrett-crochet-tr
 **'It's so special': How Giannis Antetokounmpo scored 59 points to carry Bucks past Pistons**\
 `"I'm not well versed enough in the English language ... to find new ways to describe Giannis' brilliance," Brook Lopez said.`\
 https://nytimes.com/athletic/5921851/2024/11/14/how-giannis-antetokounmpo-scored-59-points-to-carry-bucks-past-pistons-its-so-special/
-
-**NFL Scouting Combine to remain in Indianapolis through 2026**\
-`The Indiana capital has hosted the event since 1987.`\
-https://nytimes.com/athletic/5922218/2024/11/14/nfl-combine-2026-indianapolis/
-
-**The Curious Fight Between Jake Paul and Mike Tyson**\
-`Meet the 27-year-old social media influencer and 58-year-old former heavyweight champion who are gearing up for a bizarre boxing match.`\
-https://nytimes.com/2024/11/14/arts/television/jake-paul-mike-tyson-fight-netflix.html
-
-**Meta Fined $840 Million in Europe for Boosting Marketplace Unfairly**\
-`Meta said it would appeal the decision by the European Union, which said the company had abused its dominance in social networking to strengthen its shopping and classified ads service.`\
-https://nytimes.com/2024/11/14/business/meta-european-union-facebook-marketplace-fine.html
 
