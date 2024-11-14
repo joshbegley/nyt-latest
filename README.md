@@ -1,3 +1,7 @@
+**Monaco GP moving to June from 2026**\
+`Formula One’s most iconic race, the Monaco Grand Prix, will be staged in June from 2026 as part of a new six-year agreement to remain on the calendar.`\
+https://nytimes.com/athletic/5921870/2024/11/14/monaco-gp-f1-june-contract/
+
 **Chaos brackets: 5 unlikely — but plausible! — College Football Playoff scenarios**\
 `Could the Big 12 champion be left out of the College Football Playoff? How high can Indiana climb? We ran the numbers to find chaos.`\
 https://nytimes.com/athletic/5920684/2024/11/14/college-football-playoff-chaos-scenarios-brackets/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/14/realestate/boston-charlestown-home-sa
 **The Man in Charge of Trump’s Border Policy**\
 `An interview with Tom Homan.`\
 https://nytimes.com/2024/11/14/podcasts/the-man-in-charge-of-trumps-border-policy.html
-
-**Universities Like Yale Need a Reckoning**\
-`We must look in the mirror to know why we have already lost some battles and social respect and part of our democracy`\
-https://nytimes.com/2024/11/14/opinion/yale-ivy-league-liberals-democrats.html
 
