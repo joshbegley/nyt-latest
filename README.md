@@ -1,3 +1,7 @@
+**Matt Gaetz suggested in 2020 that Trump should pick him for attorney general.**\
+`By Sharon LaFraniere`\
+https://nytimes.com/live/2024/11/13/us/trump-news/matt-gaetz-suggested-in-2020-that-trump-should-pick-him-for-attorney-general
+
 **Tennessee QB Nico Iamaleava listed as questionable for Georgia game**\
 `Tennessee coach Josh Heupel has been coy regarding Iamaleava's status. Georgia running back Trevor Etienne is also questionable.`\
 https://nytimes.com/athletic/5921243/2024/11/13/tennessee-volunteers-quarterback-nico-iamaleava-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921084/2024/11/13/deion-sanders-shedeur-sanders-tr
 **Trump’s Choice of Matt Gaetz Should Surprise No One**\
 `He’s doing exactly what he said he would.`\
 https://nytimes.com/2024/11/13/opinion/matt-gaetz-attorney-general-trump.html
-
-**Brush Fire Burns in Manhattan, the Latest of Several Blazes in the Region**\
-`The fire, in Inwood Hill Park at the northern tip of Manhattan, followed brush fires that burned in Brooklyn, the Bronx and New Jersey over the past week.`\
-https://nytimes.com/2024/11/13/nyregion/inwood-hill-park-fire-nyc.html
 
