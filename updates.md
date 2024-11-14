@@ -1,3 +1,7 @@
+**House Ethics Panel Was Set to Vote to Release Report Critical of Matt Gaetz**\
+`The committee has been investigating allegations that Mr. Gaetz, President-elect Donald J. Trump’s pick for attorney general, engaged in sexual misconduct and illicit drug use.`\
+https://nytimes.com/2024/11/13/us/politics/matt-gaetz-ethics-committee-report.html
+
 **Republicans Ran a Dysfunctional House. Voters Shrugged and Re-elected Them.**\
 `The success of the G.O.P. push to keep the majority suggests that it paid no political price for the chaos and paralysis of its past two years in control of the House.`\
 https://nytimes.com/2024/11/13/us/politics/republican-house-majority.html
