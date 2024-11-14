@@ -1,3 +1,11 @@
+**Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
+`A researcher thinks he has knows what has been come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
+https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
+
+**Outgoing Liberty CEO Greg Maffei says he doesn’t see any plan to sell F1**\
+`In recent years, F1’s commercial boom has led to suggestions that it could be subject to a takeover bid.`\
+https://nytimes.com/athletic/5922721/2024/11/14/f1-future-liberty-media-greg-maffei-ceo/
+
 **Red Sox sign left-handed reliever Justin Wilson: Reports**\
 `In his first season back from Tommy John surgery, Wilson had a 5.59 ERA but decent underlying statistics.`\
 https://nytimes.com/athletic/5922719/2024/11/14/red-sox-justin-wilson-free-agent-signing/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/style/didion-babitz-book-party.html
 **Pope Francis Wants to Save the Environment. He Can Start With a Tree.**\
 `Environmentalists have called on the pope to halt the chopping down of a tree destined for St. Peter’s Square this Christmas, but the town providing the tree says it was doomed anyway.`\
 https://nytimes.com/2024/11/14/world/europe/pope-christmas-tree-vatican.html
-
-**Button Up, Baby**\
-`The humble button mushroom can steal the show — it just needs the right recipes.`\
-https://nytimes.com/2024/11/14/dining/how-to-cook-mushrooms.html
-
-**‘The Day of the Jackal’ Is a Cat-and-Mouse Thriller**\
-`The new Peacock series, starring Eddie Redmayne and Lashana Lynch, adapts the 1971 Frederick Forsyth novel and sets the action in the present day.`\
-https://nytimes.com/2024/11/14/arts/television/the-day-of-the-jackal.html
 

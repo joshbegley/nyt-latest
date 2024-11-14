@@ -1,3 +1,11 @@
+**Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
+`A researcher thinks he has knows what has been come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
+https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
+
+**Outgoing Liberty CEO Greg Maffei says he doesn’t see any plan to sell F1**\
+`In recent years, F1’s commercial boom has led to suggestions that it could be subject to a takeover bid.`\
+https://nytimes.com/athletic/5922721/2024/11/14/f1-future-liberty-media-greg-maffei-ceo/
+
 **Red Sox sign left-handed reliever Justin Wilson: Reports**\
 `In his first season back from Tommy John surgery, Wilson had a 5.59 ERA but decent underlying statistics.`\
 https://nytimes.com/athletic/5922719/2024/11/14/red-sox-justin-wilson-free-agent-signing/
