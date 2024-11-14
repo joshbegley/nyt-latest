@@ -1,3 +1,11 @@
+**Football, fatherhood and new opportunities: Get to know new Bears OC Thomas Brown**\
+`Brown was a college coach before Sean McVay gave him a chance in the NFL. Now the Bears are hoping he can turn around their offense.`\
+https://nytimes.com/athletic/5921002/2024/11/14/bears-offensive-coordinator-thomas-brown/
+
+**Twenty NFL draft prospects I hated leaving off my updated top-50 board**\
+`Drew Allar, Quinn Ewers and TreVeyon Henderson are among the players who just missed out on the top 50.`\
+https://nytimes.com/athletic/5919845/2024/11/14/nfl-draft-2025-prospects-big-board-drew-allar/
+
 **Bo Nix's 'race to improve' during trying first month paying dividends for Broncos**\
 `Nix's growth as a passer has been eye-opening following a rocky first month, and his leadership continues to awe teammates.`\
 https://nytimes.com/athletic/5920366/2024/11/14/bo-nix-improvement-broncos-falcons/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5921801/2024/11/14/washington-wizards-bilal-couliab
 **Disney Paints a Rosy Picture for Coming Years**\
 `The company, which does not typically release guidance to investors, said that profit would jump over the next three years.`\
 https://nytimes.com/2024/11/14/business/disney-profit-earnings-report.html
-
-**Twins offseason trade block: The 9 players most likely to be shopped**\
-`With no payroll room and lots of motivation to make changes, the Twins' front office could be forced to make some tough trade decisions.`\
-https://nytimes.com/athletic/5908568/2024/11/14/twins-offseason-trades-players-carlos-correa/
-
-**'We've made huge strides': How the Orlando Magic are surviving without Paolo Banchero**\
-`Led by Franz Wagner, Jalen Suggs and a ferocious defense, the Magic have won their last four games. `\
-https://nytimes.com/athletic/5921777/2024/11/14/orlando-magic-without-paolo-banchero/
 

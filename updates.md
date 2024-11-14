@@ -1,3 +1,11 @@
+**Football, fatherhood and new opportunities: Get to know new Bears OC Thomas Brown**\
+`Brown was a college coach before Sean McVay gave him a chance in the NFL. Now the Bears are hoping he can turn around their offense.`\
+https://nytimes.com/athletic/5921002/2024/11/14/bears-offensive-coordinator-thomas-brown/
+
+**Twenty NFL draft prospects I hated leaving off my updated top-50 board**\
+`Drew Allar, Quinn Ewers and TreVeyon Henderson are among the players who just missed out on the top 50.`\
+https://nytimes.com/athletic/5919845/2024/11/14/nfl-draft-2025-prospects-big-board-drew-allar/
+
 **Bo Nix's 'race to improve' during trying first month paying dividends for Broncos**\
 `Nix's growth as a passer has been eye-opening following a rocky first month, and his leadership continues to awe teammates.`\
 https://nytimes.com/athletic/5920366/2024/11/14/bo-nix-improvement-broncos-falcons/
