@@ -1,3 +1,7 @@
+**Tapestry and Capri End Plans for ‘Accessible Luxury’ Merger**\
+`Tapestry, the owner of Coach, said it would abandon its $8.5 billion deal to buy Capri, the parent company of Michael Kors, after the Federal Trade Commission successfully sued to stop the transaction.`\
+https://nytimes.com/2024/11/14/business/dealbook/tapestry-capri-merger-luxury.html
+
 **Former NFL coach Jon Gruden joins Barstool Sports**\
 `Gruden, who resigned from his role with the Raiders in 2021, previously said he wanted to return to coaching.`\
 https://nytimes.com/athletic/5922164/2024/11/14/jon-gruden-barstool-sports/
