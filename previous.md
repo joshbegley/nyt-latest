@@ -1,3 +1,11 @@
+**Liverpool mailbag: Salah future, Marmoush interest and January plans**\
+`The Athletic's Liverpool expert James Pearce answers your questions about Arne Slot's side`\
+https://nytimes.com/athletic/5914405/2024/11/14/liverpool-mailbag-mohamed-salah-omar-marmoush-transfer/
+
+**Robert Sanchez has lost the Chelsea fans - is there anything he can do to win them back?**\
+`The crowd have firmly turned against the goalkeeper — piling more pressure on his shoulders and leaving Enzo Maresca with a decision to make`\
+https://nytimes.com/athletic/5919329/2024/11/14/sanchez-lost-chelsea-fans/
+
 **Moise Kean exclusive: From not getting in Everton's team to flourishing at Fiorentina**\
 `Moise Kean has done a lot for a 24-year-old. He sits down with The Athletic to discuss debuting at 16 for Juventus and learning from Mbappe`\
 https://nytimes.com/athletic/5919241/2024/11/14/moise-kean-fiorentina-italy-everton/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/briefing/house-republicans-ukraine-israel.html
 **China’s Latest Livestream Sensation: Shopping With a Game of Chance**\
 `Selling products on livestream video has been a big business in China for years. The latest e-commerce trend adds a game of chance to the mix and leaves many addicted.`\
 https://nytimes.com/interactive/2024/11/14/world/asia/china-livestream-blind-box.html
-
-**Lewis Hall: From fourth-choice Newcastle left-back to England call-up**\
-`The unusual nature of Hall's development may have been challenging, but it has also been the making of him as a left-back.`\
-https://nytimes.com/athletic/5919239/2024/11/14/lewis-hall-newcastle-england/
-
-**Danielle Collins is ready to play on**\
-`The American was supposed to be starting a farewell tour. Instead, she's embracing the complexity of her life off-court to help others.`\
-https://nytimes.com/athletic/5917229/2024/11/14/danielle-collins-tennis-player-retirement-interview/
 

@@ -1,3 +1,11 @@
+**Liverpool mailbag: Salah future, Marmoush interest and January plans**\
+`The Athletic's Liverpool expert James Pearce answers your questions about Arne Slot's side`\
+https://nytimes.com/athletic/5914405/2024/11/14/liverpool-mailbag-mohamed-salah-omar-marmoush-transfer/
+
+**Robert Sanchez has lost the Chelsea fans - is there anything he can do to win them back?**\
+`The crowd have firmly turned against the goalkeeper — piling more pressure on his shoulders and leaving Enzo Maresca with a decision to make`\
+https://nytimes.com/athletic/5919329/2024/11/14/sanchez-lost-chelsea-fans/
+
 **Moise Kean exclusive: From not getting in Everton's team to flourishing at Fiorentina**\
 `Moise Kean has done a lot for a 24-year-old. He sits down with The Athletic to discuss debuting at 16 for Juventus and learning from Mbappe`\
 https://nytimes.com/athletic/5919241/2024/11/14/moise-kean-fiorentina-italy-everton/
