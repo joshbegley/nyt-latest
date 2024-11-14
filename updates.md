@@ -1,3 +1,7 @@
+**NBA Lookahead: Victor Wembanyama's slow start to the season? Yeah, about that ...**\
+`Wembanyama seems to be figuring things out. He and the Spurs play the Lakers as part of a big NBA Cup Friday schedule.`\
+https://nytimes.com/athletic/5919187/2024/11/14/nba-lookahead-victor-wembanyama-nba-cup-weekend/
+
 **What Would a Matt Gaetz Justice Department Mean for Business?**\
 `The Trump loyalist supports an “aggressive” antitrust approach and has called for breaking up Big Tech. But can the controversial nominee win Senate approval?`\
 https://nytimes.com/2024/11/14/business/dealbook/trump-gaetz-justice-department-antitrust.html
