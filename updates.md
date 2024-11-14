@@ -1,3 +1,7 @@
+**Diego Forlan's pro tennis debut ends in defeat for former Man United and Uruguay footballer**\
+`Forlan has been playing on the International Tennis Federation tour for over-45s, but received a wildcard to his home tournament.`\
+https://nytimes.com/athletic/5920561/2024/11/13/diego-forlan-tennis-debut-result/
+
 **Matt Gaetz, a Bomb-Thrower for the Justice Department**\
 `President-elect Donald Trump’s pick to be attorney general has set a new bar for in-your-face nominations.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz.html
