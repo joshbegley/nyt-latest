@@ -1,3 +1,7 @@
+**Gavin Newsom Once Again Becomes a Meme**\
+`Old photos of the California governor (and navy-suit enthusiast) are being widely shared as bruised Democrats seek a savior.`\
+https://nytimes.com/2024/11/14/style/gavin-newsom-once-again-becomes-a-meme.html
+
 **Finding Lagavulin at the Edge of the World**\
 `From the remote Isle of Islay, a storied distillery redefines Single Malt Scotch Whisky.`\
 https://nytimes.com/paidpost/lagavulin/finding-lagavulin-at-the-edge-of-the-world.html

@@ -1,3 +1,7 @@
+**Gavin Newsom Once Again Becomes a Meme**\
+`Old photos of the California governor (and navy-suit enthusiast) are being widely shared as bruised Democrats seek a savior.`\
+https://nytimes.com/2024/11/14/style/gavin-newsom-once-again-becomes-a-meme.html
+
 **Finding Lagavulin at the Edge of the World**\
 `From the remote Isle of Islay, a storied distillery redefines Single Malt Scotch Whisky.`\
 https://nytimes.com/paidpost/lagavulin/finding-lagavulin-at-the-edge-of-the-world.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/arts/design/math-museum-new-location.html
 **Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
 `A researcher thinks he knows what has been coming ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
 https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
-
-**Outgoing Liberty CEO Greg Maffei says he doesn’t see any plan to sell F1**\
-`In recent years, F1’s commercial boom has led to suggestions that it could be subject to a takeover bid.`\
-https://nytimes.com/athletic/5922721/2024/11/14/f1-future-liberty-media-greg-maffei-ceo/
 
