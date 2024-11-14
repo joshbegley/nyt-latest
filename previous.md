@@ -1,3 +1,15 @@
+**Could Trump’s Return Pose a Threat to Climate and Weather Data?**\
+`Project 2025, the conservative playbook, calls for breaking up the federal agency that maintains weather data and collects climate change information.`\
+https://nytimes.com/2024/11/14/climate/trump-noaa-climate-data-weather.html
+
+**Fed Chair Powell Says There’s No Need to ‘Hurry’ to Cut Rates**\
+`A strong economy is giving Federal Reserve officials room to move “carefully” as they lower interest rates, the central bank chair said.`\
+https://nytimes.com/2024/11/14/business/economy/fed-jerome-powell-rate-cuts.html
+
+**How a Shocking Insult Gave Me Reason to Hope**\
+`Two new stage productions have a lot to say about where we are as a country`\
+https://nytimes.com/2024/11/14/opinion/broadway-ragtime-racial-slur.html
+
 **Gavin Newsom Once Again Becomes a Meme**\
 `Old photos of the California governor (and navy-suit enthusiast) are being widely shared as bruised Democrats seek a savior.`\
 https://nytimes.com/2024/11/14/style/gavin-newsom-suits-memes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/gaetz-attorney-general-justice-depart
 **Martin Scorsese on His Tour of Catholic Saints**\
 `The Fox Nation series “Martin Scorsese Presents: The Saints” emphasizes the human struggles behind religious legends.`\
 https://nytimes.com/2024/11/14/arts/martin-scorsese-saints.html
-
-**New York Joins a Global City Club, With a Deal on Congestion Pricing**\
-`The city will be the first in the U.S. to adopt a fee on driving in certain areas, with the aim of reducing traffic and pollution. For some other cities, that has long been the norm.`\
-https://nytimes.com/2024/11/14/climate/new-york-congestion-pricing.html
-
-**Math Museum Announces Move to New Location**\
-`The National Museum of Mathematics in New York is expected to open a 34,363-square-foot building in 2026.`\
-https://nytimes.com/2024/11/14/arts/design/math-museum-new-location.html
-
-**Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
-`A researcher thinks he knows what has been coming ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
-https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
 
