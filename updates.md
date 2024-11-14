@@ -1,3 +1,11 @@
+**What to watch in college basketball this weekend: Alabama-Purdue, Pitino face-off and more**\
+`How to watch, and why to watch, this weekend's biggest college basketball games, including Alabama at Purdue.`\
+https://nytimes.com/athletic/5920764/2024/11/14/watch-college-basketball-alabama-purdue/
+
+**Lawmakers Demand Ethics Report on Gaetz, Trump’s Attorney General Pick**\
+`Republicans and Democrats alike insisted that the findings of the House Ethics Committee, which has been investigating the Florida Republican for years over sexual misconduct and other charges, be made public.`\
+https://nytimes.com/2024/11/14/us/lawmakers-demand-ethics-report-gaetz.html
+
 **Video Captures Israeli Strike on Humanitarian Zone in Gaza**\
 `Video on social media, verified by The New York Times, captured a large explosion in a densely populated tent camp. The Israeli military said it targeted a loaded weapons launcher.`\
 https://nytimes.com/video/world/middleeast/100000009825987/israel-strike-gaza-mawasi.html

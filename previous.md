@@ -1,3 +1,11 @@
+**What to watch in college basketball this weekend: Alabama-Purdue, Pitino face-off and more**\
+`How to watch, and why to watch, this weekend's biggest college basketball games, including Alabama at Purdue.`\
+https://nytimes.com/athletic/5920764/2024/11/14/watch-college-basketball-alabama-purdue/
+
+**Lawmakers Demand Ethics Report on Gaetz, Trump’s Attorney General Pick**\
+`Republicans and Democrats alike insisted that the findings of the House Ethics Committee, which has been investigating the Florida Republican for years over sexual misconduct and other charges, be made public.`\
+https://nytimes.com/2024/11/14/us/lawmakers-demand-ethics-report-gaetz.html
+
 **Video Captures Israeli Strike on Humanitarian Zone in Gaza**\
 `Video on social media, verified by The New York Times, captured a large explosion in a densely populated tent camp. The Israeli military said it targeted a loaded weapons launcher.`\
 https://nytimes.com/video/world/middleeast/100000009825987/israel-strike-gaza-mawasi.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/lagavulin/finding-lagavulin-at-the-edge-of-the-worl
 **​Trump Keeps Turning to Florida for His Administration Picks**\
 `The state has a deep bench of Republican elected officials, many of whom have gotten to know the president-elect by visiting him at Mar-a-Lago.`\
 https://nytimes.com/2024/11/14/us/politics/trump-florida-cabinet-staff-picks.html
-
-**Trump Talked Twice as Much as Harris on the Campaign Trail**\
-`A detailed analysis shows the gap in speaking times across various platforms.`\
-https://nytimes.com/2024/11/14/upshot/trump-harris-campaign-speaking.html
-
-**Broadcaster Diamond will emerge from bankruptcy after judge approves plan**\
-`The broadcaster will now be able to emerge from bankruptcy with a reduced portfolio of 13 NBA teams, eight NHL teams and six MLB teams.`\
-https://nytimes.com/athletic/5922803/2024/11/14/broadcaster-diamond-bankruptcy-approval-plan/
 
