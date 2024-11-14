@@ -1,3 +1,11 @@
+**Yohe's 10 observations: Penguins secure point, but it's hard to feel good about this team**\
+`The Penguins came back from a two-goal deficit to force overtime but fell 3-2 to the Red Wings.`\
+https://nytimes.com/athletic/5921393/2024/11/13/penguins-progress-overtime-red-wings/
+
+**Antetokounmpo scores 59, just short of career high, as Bucks win in OT**\
+`Giannis Antetokounmpo finished five points shy of tying his career-high 64-point game against the Indiana Pacers last season.`\
+https://nytimes.com/athletic/5921559/2024/11/13/giannis-antetokounmpo-career-high-points-bucks-pistons/
+
 **Republicans Ran a Dysfunctional House. Voters Shrugged and Re-elected Them.**\
 `The success of the G.O.P. push to keep the majority suggests that it paid no political price for the chaos and paralysis of its past two years in control of the House.`\
 https://nytimes.com/2024/11/13/us/politics/republican-house-majority.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/13/pageoneplus/corrections-nov-14-2024.html
 **Giuliani’s lawyers ask judge for permission to withdraw as counsel in assets case.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/11/13/us/trump-news/giulianis-lawyers-ask-judge-for-permission-to-withdraw-as-counsel-in-assets-case
-
-**Matt Gaetz Resigns From Congress After Trump Picks Him for Attorney General**\
-`The Florida Republican’s departure effectively ends the House Ethics Committee’s investigation of allegations that include sexual misconduct and illicit drug use.`\
-https://nytimes.com/2024/11/13/us/politics/matt-gaetz-resign-congress-trump.html
-
-**Explosions in Brazil’s Capital Leave One Dead**\
-`Two blasts went off in Brasília, near the Supreme Court. The authorities were treating it as the work of a lone bomber, who was believed to have been the person killed.`\
-https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
 
