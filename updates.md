@@ -1,3 +1,7 @@
+**What to Know About Congestion Pricing**\
+`Gov. Kathy Hochul is fast-tracking new tolls to enter Midtown and Lower Manhattan. Drivers could be charged beginning in January.`\
+https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc.html
+
 **Brooklyn Man Charged With Murdering Father in Luxury Irish Hotel**\
 `Henry McGowan, Irish officials said, “did murder one John McGowan, contrary to common law,” on Tuesday night.`\
 https://nytimes.com/2024/11/14/nyregion/henry-mcgowan-murder-father-ireland.html
