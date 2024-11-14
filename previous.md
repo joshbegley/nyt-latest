@@ -1,3 +1,7 @@
+**Picking Matt Gaetz**\
+`Donald Trump has nominated a loyalist to be his attorney general.`\
+https://nytimes.com/2024/11/14/briefing/picking-matt-gaetz.html
+
 **Washington Wizards stock watch: Who’s trending up or down after 10 games?**\
 `The Wizards have opened their season 2-8, but there have been bright spots, including several recent draft picks.`\
 https://nytimes.com/athletic/5921801/2024/11/14/washington-wizards-bilal-couliably-stock-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918974/2024/11/14/why-isolation-ball-works-for-sha
 **2025 NFL Draft: Projection model ranks 5 teams most likely to pick No. 1**\
 `Despite both teams sitting at 2-8, neither the Giants nor the Jaguars are the favorites to land the No. 1 pick. `\
 https://nytimes.com/athletic/5917663/2024/11/14/nfl-draft-top-pick-raiders-giants-panthers-browns-jaguars/
-
-**QB Betrayal Index: Lamar Jackson acing his toughest test; Justin Herbert finally gets a break**\
-`Jackson's MVP case is even stronger than you think. Meanwhile, the man he's outdueled twice this season, Joe Burrow, could use more help.`\
-https://nytimes.com/athletic/5920003/2024/11/14/lamar-jackson-joe-burrow-justin-herbert/
 

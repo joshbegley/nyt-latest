@@ -1,3 +1,7 @@
+**Picking Matt Gaetz**\
+`Donald Trump has nominated a loyalist to be his attorney general.`\
+https://nytimes.com/2024/11/14/briefing/picking-matt-gaetz.html
+
 **Washington Wizards stock watch: Who’s trending up or down after 10 games?**\
 `The Wizards have opened their season 2-8, but there have been bright spots, including several recent draft picks.`\
 https://nytimes.com/athletic/5921801/2024/11/14/washington-wizards-bilal-couliably-stock-watch/
