@@ -1,3 +1,7 @@
+**What Will Happen to Social Security After Trump Takes Office?**\
+`Readers are concerned that his campaign proposals would put Social Security’s finances on thinner ice, endangering their payments.`\
+https://nytimes.com/2024/11/14/business/trump-social-security-benefits.html
+
 **Angels, infielder Kevin Newman nearing deal: Sources**\
 `Early in the offseason, the Angels have already made a few notable moves involving veterans.`\
 https://nytimes.com/athletic/5922170/2024/11/14/kevin-newman-angels-contract/
@@ -18,6 +22,10 @@ https://nytimes.com/2024/11/14/business/trump-public-service-loan-forgiveness.ht
 `In the months leading up to the election, Donald J. Trump sat for a slew of casual and unconventional conversations with podcasters and streamers. We watched them all.`\
 https://nytimes.com/2024/11/14/arts/donald-trump-podcasts-men.html
 
+**Heat Today: How Haywood Highsmith epitomizes Heat Culture as a role player**\
+`Highsmith and Duncan Robinson can help Miami stay afloat through struggles. The franchise has a knack for finding those kinds of guys.`\
+https://nytimes.com/athletic/5922149/2024/11/14/heat-today-haywood-highsmith/
+
 **The Bounce: About Victor Wembanyama's speedy 50 burger**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5921985/2024/11/14/victor-wembanyama-spurs-cleveland-cavaliers-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/business/dealbook/tapestry-capri-merger-luxury.ht
 **Former NFL coach Jon Gruden joins Barstool Sports**\
 `Gruden, who resigned from his role with the Raiders in 2021, previously said he wanted to return to coaching.`\
 https://nytimes.com/athletic/5922164/2024/11/14/jon-gruden-barstool-sports/
-
-**Jets' Rodgers on whether he'll play in 2025: 'I think so, yeah'**\
-`Rodgers, in the midst of one of his worst NFL seasons, was asked about his future on Wednesday.`\
-https://nytimes.com/athletic/5922232/2024/11/14/aaron-rodgers-jets-2025/
-
-**Penguins Today: The elephant in the room**\
-`Things are very, very bad in Pittsburgh. Change is likely coming.`\
-https://nytimes.com/athletic/5922289/2024/11/14/penguins-today-trade-rumors/
 
