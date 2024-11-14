@@ -1,3 +1,7 @@
+**F.B.I. Searches Home of Founder of Polymarket Betting Website**\
+`The search involving Shayne Coplan, the founder of Polymarket, known for its presidential election odds, was part of a criminal investigation, three people said.`\
+https://nytimes.com/2024/11/13/technology/polymarket-shayne-coplan-fbi-search.html
+
 **Corrections: Nov. 14, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 14, 2024.`\
 https://nytimes.com/2024/11/13/pageoneplus/corrections-nov-14-2024.html
