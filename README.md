@@ -1,3 +1,7 @@
+**Make Some Noise**\
+`Matthew Faiella makes his New York Times Crossword debut. I sincerely hope he comes back.`\
+https://nytimes.com/2024/11/13/crosswords/daily-puzzle-2024-11-14.html
+
 **F.B.I. Searches Home of Founder of Polymarket Betting Website**\
 `The search involving Shayne Coplan, the founder of Polymarket, known for its presidential election odds, was part of a criminal investigation, three people said.`\
 https://nytimes.com/2024/11/13/technology/polymarket-shayne-coplan-fbi-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/13/us/trump-news/matt-gaetz-suggested-in-2020-t
 **Tennessee QB Nico Iamaleava listed as questionable for Georgia game**\
 `Tennessee coach Josh Heupel has been coy regarding Iamaleava's status. Georgia running back Trevor Etienne is also questionable.`\
 https://nytimes.com/athletic/5921243/2024/11/13/tennessee-volunteers-quarterback-nico-iamaleava-injury/
-
-**Gaetz, Gabbard and Hegseth: Trump’s Appointments Are a Show of Force**\
-`President-elect Donald J. Trump’s cabinet picks show that he prizes loyalty over experience and is fueled by retribution.`\
-https://nytimes.com/2024/11/13/us/politics/gaetz-gabbard-hegseth-trump-appointees.html
 
