@@ -1,3 +1,19 @@
+**Elizabeth Nunez, Who Chronicled the Immigrant’s Challenges, Dies at 80**\
+`In “Prospero’s Daughter” and other novels, she explored the legacy of colonialism in her native Trinidad and the struggle for belonging in an adopted country.`\
+https://nytimes.com/2024/11/14/books/elizabeth-nunez-dead.html
+
+**Alarm Grows Over Trump’s Pick for Defense Secretary**\
+`Pete Hegseth has criticized the Pentagon leadership for its diversity efforts and vocally supported service members accused of war crimes.`\
+https://nytimes.com/2024/11/14/us/politics/pete-hegseth-defense-criticism.html
+
+**The best NFL quarterbacks at covering the spread**\
+`Ben Fawkes breaks down NFL quarterbacks who perform well against the spread in three categories. `\
+https://nytimes.com/athletic/5922974/2024/11/14/nfl-best-quarterbacks-covering-spread-mahomes-jackson-burrow/
+
+**The Investigations Into Matt Gaetz: What to Know**\
+`Federal prosecutors scrutinized claims that Donald Trump’s choice for attorney general had sex with an underage girl, but did not charge him. The House Ethics Committee had its own inquiry.`\
+https://nytimes.com/2024/11/14/us/politics/matt-gaetz-investigations-explainer.html
+
 **‘There Were Signs’: How the Polls Anticipated Some of Trump’s Key Gains**\
 `The available data confirms that Donald Trump made inroads among Hispanic, Black and big-city voters. The results mean that, to a great extent, the pre-election polls had it right.`\
 https://nytimes.com/2024/11/14/us/elections/polls-trump-gains.html

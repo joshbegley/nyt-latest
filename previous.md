@@ -1,3 +1,19 @@
+**Elizabeth Nunez, Who Chronicled the Immigrant’s Challenges, Dies at 80**\
+`In “Prospero’s Daughter” and other novels, she explored the legacy of colonialism in her native Trinidad and the struggle for belonging in an adopted country.`\
+https://nytimes.com/2024/11/14/books/elizabeth-nunez-dead.html
+
+**Alarm Grows Over Trump’s Pick for Defense Secretary**\
+`Pete Hegseth has criticized the Pentagon leadership for its diversity efforts and vocally supported service members accused of war crimes.`\
+https://nytimes.com/2024/11/14/us/politics/pete-hegseth-defense-criticism.html
+
+**The best NFL quarterbacks at covering the spread**\
+`Ben Fawkes breaks down NFL quarterbacks who perform well against the spread in three categories. `\
+https://nytimes.com/athletic/5922974/2024/11/14/nfl-best-quarterbacks-covering-spread-mahomes-jackson-burrow/
+
+**The Investigations Into Matt Gaetz: What to Know**\
+`Federal prosecutors scrutinized claims that Donald Trump’s choice for attorney general had sex with an underage girl, but did not charge him. The House Ethics Committee had its own inquiry.`\
+https://nytimes.com/2024/11/14/us/politics/matt-gaetz-investigations-explainer.html
+
 **‘There Were Signs’: How the Polls Anticipated Some of Trump’s Key Gains**\
 `The available data confirms that Donald Trump made inroads among Hispanic, Black and big-city voters. The results mean that, to a great extent, the pre-election polls had it right.`\
 https://nytimes.com/2024/11/14/us/elections/polls-trump-gains.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/trump-jay-clayton-attorney-southern-d
 **Why Humans Cry**\
 `We’re the only species that sheds emotional tears, but much about them remains an enigma.`\
 https://nytimes.com/2024/11/14/well/mind/why-people-cry-tears.html
-
-**Girl’s Remains From a 1985 Bombing Are Found in Philadelphia**\
-`They are believed to be from a 12-year-old who was among 11 people killed during a police-led confrontation with the anti-government group MOVE.`\
-https://nytimes.com/2024/11/14/us/philadelphia-move-bombing-remains.html
-
-**Hockey Canada summit tackles cultural issues within the sport. What's been done? And what's next?**\
-`Hockey Canada president Katherine Henderson says the federation wants to "drive change" around discriminatory behaviours.`\
-https://nytimes.com/athletic/5922267/2024/11/14/hockey-canada-summit-gender-sexism/
-
-**Kennedy Could Save Gaetz**\
-`Trump doesn’t really care about Kennedy’s issues, but would like to look as if he does.`\
-https://nytimes.com/live/2024/11/12/opinion/thepoint/rfk-health-trump-gaetz
-
-**Trump Picked R.F.K. Jr. to Be Health Secretary**\
-`Also, Gov. Kathy Hochul revived New York’s congestion pricing plan. Here’s the latest at the end of Thursday,`\
-https://nytimes.com/2024/11/14/briefing/trump-rfk-jr-new-york-congestion-pricing.html
 
