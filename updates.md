@@ -1,3 +1,15 @@
+**Amazon Is Phasing Out Its Freevee Streaming Service**\
+`Its shows have moved to Amazon Prime, where they will remain free.`\
+https://nytimes.com/2024/11/13/arts/television/13xp-amazon-freevee-shut-down.html
+
+**Haiti: ‘It’s Not Back to Where We Started — It’s Worse’**\
+`The country’s security situation has deteriorated even further since Monday when at least three planes were shot at, forcing the closure of its main airport.`\
+https://nytimes.com/2024/11/13/world/americas/haiti-gangs-airlines-doctors-without-borders.html
+
+**Deion Sanders says he'll 'privately' intervene if wrong team drafts his son**\
+`Deion Sanders said he wants Shedeur to go to an NFL team that "can handle the quarterback he is" and has a solid infrastructure.`\
+https://nytimes.com/athletic/5921084/2024/11/13/deion-sanders-shedeur-sanders-travis-hunter-nfl-draft/
+
 **John Thune Rises to the Senate Top**\
 `The South Dakota Republican failed in his first try for the Senate but came back to defeat a chamber leader. Now he will be the leader himself.`\
 https://nytimes.com/2024/11/13/us/john-tune-senate-republican-leader.html
