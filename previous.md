@@ -1,3 +1,11 @@
+**Trump plans to install an ally who publishes his books as the head of personnel.**\
+`By Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/11/13/us/trump-news/personnel-office-filled
+
+**Maple Leafs report cards: John Tavares seals comeback OT win**\
+`The fight Toronto showed in the third period paid off in a 4-3 overtime win over Washington.`\
+https://nytimes.com/athletic/5921577/2024/11/13/maple-leafs-capitals-john-tavares/
+
 **Yohe's 10 observations: Penguins secure point, but it's hard to feel good about this team**\
 `The Penguins came back from a two-goal deficit to force overtime but fell 3-2 to the Red Wings.`\
 https://nytimes.com/athletic/5921393/2024/11/13/penguins-progress-overtime-red-wings/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/13/crosswords/daily-puzzle-2024-11-14.html
 **F.B.I. Searches Home of Founder of Polymarket Betting Website**\
 `The search involving Shayne Coplan, the founder of Polymarket, known for its presidential election odds, was part of a criminal investigation, three people said.`\
 https://nytimes.com/2024/11/13/technology/polymarket-shayne-coplan-fbi-search.html
-
-**Corrections: Nov. 14, 2024**\
-`Corrections that appeared in print on Thursday, Nov. 14, 2024.`\
-https://nytimes.com/2024/11/13/pageoneplus/corrections-nov-14-2024.html
-
-**Giuliani’s lawyers ask judge for permission to withdraw as counsel in assets case.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2024/11/13/us/trump-news/giulianis-lawyers-ask-judge-for-permission-to-withdraw-as-counsel-in-assets-case
 
