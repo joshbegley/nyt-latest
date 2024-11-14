@@ -1,3 +1,7 @@
+**New York Joins a Global City Club, With a Deal on Congestion Pricing**\
+`The city will be the first in the U.S. to adopt a fee on driving in certain areas, with the aim of reducing traffic and pollution. For some other cities, that has long been the norm.`\
+https://nytimes.com/2024/11/14/climate/new-york-congestion-pricing.html
+
 **Math Museum Announces Move to New Location**\
 `The National Museum of Mathematics in New York is expected to open a 34,363-square-foot building in 2026.`\
 https://nytimes.com/2024/11/14/arts/design/math-museum-new-location.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921454/2024/11/14/joel-embiid-athlete-media-relati
 **Season 2 of ‘Bad Sisters’ Is Still Stylish and Thrilling**\
 `There is a sense, however, that the most important events in this offbeat Apple TV+ drama happened in Season 1.`\
 https://nytimes.com/2024/11/14/arts/television/bad-sisters-season-2-apple-tv-plus.html
-
-**Letters of a Literary Titan Read by Da’Vine Joy Randolph, Emma Roberts and More**\
-`An event at L.A.’s Chateau Marmont celebrated an upcoming book about Eve Babitz and Joan Didion, two writers who documented the magic of California.`\
-https://nytimes.com/2024/11/14/style/didion-babitz-book-party.html
 
