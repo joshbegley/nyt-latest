@@ -1,3 +1,7 @@
+**Matt Gaetz, a Bomb-Thrower for the Justice Department**\
+`President-elect Donald Trump’s pick to be attorney general has set a new bar for in-your-face nominations.`\
+https://nytimes.com/2024/11/13/us/politics/matt-gaetz.html
+
 **49ers' Deommodore Lenoir jokes he can now repay Kyle Shanahan after rookie miscue**\
 `Lenoir's social media miscue in 2021 cost the 49ers a $100,000 fine and Shanahan an additional $50,000. `\
 https://nytimes.com/athletic/5921170/2024/11/13/deommodore-lenoir-49ers-contract-kyle-shanahan/
