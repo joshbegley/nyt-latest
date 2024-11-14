@@ -1,3 +1,7 @@
+**Late Night Chides Biden for Keeping His Cool With Trump**\
+`“I’m not saying booby-trap the place, but you don’t have to be overly helpful,” Seth Meyers said after the president welcomed Donald Trump to the White House.`\
+https://nytimes.com/2024/11/14/arts/television/late-night-biden-trump-meeting.html
+
 **Word of the Day: complacent**\
 `This word has appeared in 143 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/14/learning/word-of-the-day-complacent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919278/2024/11/14/leeds-united-recruitment-structu
 **Liverpool mailbag: Salah future, Marmoush interest and January plans**\
 `The Athletic's Liverpool expert James Pearce answers your questions about Arne Slot's side`\
 https://nytimes.com/athletic/5914405/2024/11/14/liverpool-mailbag-mohamed-salah-omar-marmoush-transfer/
-
-**Robert Sanchez has lost the Chelsea fans - is there anything he can do to win them back?**\
-`The crowd have firmly turned against the goalkeeper — piling more pressure on his shoulders and leaving Enzo Maresca with a decision to make`\
-https://nytimes.com/athletic/5919329/2024/11/14/sanchez-lost-chelsea-fans/
 
