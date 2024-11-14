@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/11/13/us/trump-news/giulianis-lawyers-ask-judge-fo
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-resign-congress-trump.html
 
 **At Least 1 Killed in Explosions in Brazil’s Capital**\
-`Two explosions rocked the area near the heart of the Brazilian government’s offices.`\
+`Two blasts rocked an area near the heart of the Brazilian government’s offices.`\
 https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
 
 **Proud Boys Leader Convicted of Sedition for Role in Jan. 6 Attack Asks Trump for Pardon**\
