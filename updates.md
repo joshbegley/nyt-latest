@@ -1,3 +1,7 @@
+**LSU student senate unanimously opposes Gov. Jeff Landry's plan to bring live tigers to football games**\
+`LSU lost to Alabama, 42-13, on Saturday night.`\
+https://nytimes.com/athletic/5922888/2024/11/14/lsu-senate-opposes-live-tiger-jeff-landry/
+
 **Could Trump’s Return Pose a Threat to Climate and Weather Data?**\
 `Project 2025, the conservative playbook, calls for breaking up the federal agency that maintains weather data and collects climate change information.`\
 https://nytimes.com/2024/11/14/climate/trump-noaa-climate-data-weather.html
