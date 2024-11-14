@@ -1,3 +1,11 @@
+**Giuliani’s lawyers ask judge for permission to withdraw as counsel in assets case.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/11/13/us/trump-news/giulianis-lawyers-ask-judge-for-permission-to-withdraw-as-counsel-in-assets-case
+
+**At Least 1 Killed in Explosions in Brazil’s Capital**\
+`Two blasts rocked an area near the heart of the Brazilian government’s offices.`\
+https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
+
 **Matt Gaetz Resigns From Congress After Trump Picks Him for Attorney General**\
 `The Florida Republican’s departure effectively ends the House Ethics Committee’s investigation of allegations that include sexual misconduct and illicit drug use.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz-resign-congress-trump.html
