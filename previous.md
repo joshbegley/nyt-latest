@@ -1,3 +1,7 @@
+**Craig Melvin Is Named Hoda Kotb’s Replacement on ‘Today’**\
+`By selecting Mr. Melvin, a familiar face on the show, network executives chose to go the steadiest route possible.`\
+https://nytimes.com/2024/11/14/business/media/craig-melvin-hoda-kotb-today.html
+
 **Kane criticism of England pullouts does not take into account player workloads or priorities**\
 `Kane is presumably doing what he thinks is his duty as England captain, but the squad's culture post-Southgate may have changed`\
 https://nytimes.com/athletic/5921956/2024/11/14/kane-england-squad-pullouts/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/business/dealbook/homeland-security-department-to
 **Football, fatherhood and new opportunities: Get to know new Bears OC Thomas Brown**\
 `Brown was a college coach before Sean McVay gave him a chance in the NFL. Now the Bears are hoping he can turn around their offense.`\
 https://nytimes.com/athletic/5921002/2024/11/14/bears-offensive-coordinator-thomas-brown/
-
-**Twenty NFL draft prospects I hated leaving off my updated top-50 board**\
-`Drew Allar, Quinn Ewers and TreVeyon Henderson are among the players who just missed out on the top 50.`\
-https://nytimes.com/athletic/5919845/2024/11/14/nfl-draft-2025-prospects-big-board-drew-allar/
 

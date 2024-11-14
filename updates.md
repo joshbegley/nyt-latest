@@ -1,3 +1,7 @@
+**Craig Melvin Is Named Hoda Kotb’s Replacement on ‘Today’**\
+`By selecting Mr. Melvin, a familiar face on the show, network executives chose to go the steadiest route possible.`\
+https://nytimes.com/2024/11/14/business/media/craig-melvin-hoda-kotb-today.html
+
 **Kane criticism of England pullouts does not take into account player workloads or priorities**\
 `Kane is presumably doing what he thinks is his duty as England captain, but the squad's culture post-Southgate may have changed`\
 https://nytimes.com/athletic/5921956/2024/11/14/kane-england-squad-pullouts/
