@@ -1,3 +1,7 @@
+**For One of the ‘Bad Sisters,’ Things Have Gotten Even Worse**\
+`Anne-Marie Duff, who won a BAFTA for her performance in this black comedy last season, discusses her character’s darker turn in Season 2.`\
+https://nytimes.com/2024/11/14/arts/television/bad-sisters-anne-marie-duff.html
+
 **Liberal Legal Group Positions Itself as a Top Trump Administration Foe**\
 `Using Project 2025 as a blueprint, the group Democracy Forward says it has prepared a raft of potential legal challenges to respond to the Trump-Vance agenda as soon as Day 1.`\
 https://nytimes.com/2024/11/14/us/politics/democracy-forward-trump-administration.html

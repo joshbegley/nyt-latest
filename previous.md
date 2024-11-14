@@ -1,3 +1,7 @@
+**For One of the ‘Bad Sisters,’ Things Have Gotten Even Worse**\
+`Anne-Marie Duff, who won a BAFTA for her performance in this black comedy last season, discusses her character’s darker turn in Season 2.`\
+https://nytimes.com/2024/11/14/arts/television/bad-sisters-anne-marie-duff.html
+
 **Liberal Legal Group Positions Itself as a Top Trump Administration Foe**\
 `Using Project 2025 as a blueprint, the group Democracy Forward says it has prepared a raft of potential legal challenges to respond to the Trump-Vance agenda as soon as Day 1.`\
 https://nytimes.com/2024/11/14/us/politics/democracy-forward-trump-administration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/dining/drinks/thanksgiving-wines-ciders.html
 **Fried Chicken Thanksgiving**\
 `If you’d like your holiday bird to be smaller, craggy-coated and scattered with crispy sage, Sohla El-Waylly has a recipe for you.`\
 https://nytimes.com/2024/11/14/fried-chicken-thanksgiving.html
-
-**What Will Trump Do With the Public Service Loan Forgiveness Program?**\
-`There is widespread concern that President-elect Donald J. Trump may end it, since he has tried before. But that may be the wrong thing to fear.`\
-https://nytimes.com/2024/11/14/business/trump-public-service-loan-forgiveness.html
 
