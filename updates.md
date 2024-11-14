@@ -1,3 +1,15 @@
+**At Least 1 Killed in Explosions in Brazil’s Capital**\
+`Two explosions rocked the area near the heart of the Brazilian government’s offices.`\
+https://nytimes.com/2024/11/13/world/americas/brasilia-explosion-car-supreme-court.html
+
+**Proud Boys Leader Convicted of Sedition for Role in Jan. 6 Attack Asks Trump for Pardon**\
+`Other high-ranking members of the extremist organization have signaled they intend to seek pardons, too.`\
+https://nytimes.com/2024/11/13/us/politics/proud-boys-biggs-pardon.html
+
+**Rays, Tigers reach broadcast deals with Diamond Sports Group ahead of bankruptcy hearing**\
+`The deals came ahead of a hearing where a judge will rule whether the embattled broadcaster has a viable business plan to escape Chapter 11.`\
+https://nytimes.com/athletic/5921373/2024/11/13/rays-tigers-diamond-broadcast-deals/
+
 **Matt Gaetz suggested in 2020 that Trump should pick him for attorney general.**\
 `By Sharon LaFraniere`\
 https://nytimes.com/live/2024/11/13/us/trump-news/matt-gaetz-suggested-in-2020-that-trump-should-pick-him-for-attorney-general

@@ -1,3 +1,15 @@
+**At Least 1 Killed in Explosions in Brazil’s Capital**\
+`Two explosions rocked the area near the heart of the Brazilian government’s offices.`\
+https://nytimes.com/2024/11/13/world/americas/brasilia-explosion-car-supreme-court.html
+
+**Proud Boys Leader Convicted of Sedition for Role in Jan. 6 Attack Asks Trump for Pardon**\
+`Other high-ranking members of the extremist organization have signaled they intend to seek pardons, too.`\
+https://nytimes.com/2024/11/13/us/politics/proud-boys-biggs-pardon.html
+
+**Rays, Tigers reach broadcast deals with Diamond Sports Group ahead of bankruptcy hearing**\
+`The deals came ahead of a hearing where a judge will rule whether the embattled broadcaster has a viable business plan to escape Chapter 11.`\
+https://nytimes.com/athletic/5921373/2024/11/13/rays-tigers-diamond-broadcast-deals/
+
 **Matt Gaetz suggested in 2020 that Trump should pick him for attorney general.**\
 `By Sharon LaFraniere`\
 https://nytimes.com/live/2024/11/13/us/trump-news/matt-gaetz-suggested-in-2020-that-trump-should-pick-him-for-attorney-general
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5921170/2024/11/13/deommodore-lenoir-49ers-contract
 **Amazon Is Phasing Out Its Freevee Streaming Service**\
 `Its shows have moved to Amazon Prime, where they will remain free.`\
 https://nytimes.com/2024/11/13/arts/television/13xp-amazon-freevee-shut-down.html
-
-**Haiti: ‘It’s Not Back to Where We Started — It’s Worse’**\
-`The country’s security situation has deteriorated even further since Monday when at least three planes were shot at, forcing the closure of its main airport.`\
-https://nytimes.com/2024/11/13/world/americas/haiti-gangs-airlines-doctors-without-borders.html
-
-**Deion Sanders says he'll 'privately' intervene if wrong team drafts his son**\
-`Deion Sanders said he wants Shedeur to go to an NFL team that "can handle the quarterback he is" and has a solid infrastructure.`\
-https://nytimes.com/athletic/5921084/2024/11/13/deion-sanders-shedeur-sanders-travis-hunter-nfl-draft/
-
-**Trump’s Choice of Matt Gaetz Should Surprise No One**\
-`He’s doing exactly what he said he would.`\
-https://nytimes.com/2024/11/13/opinion/matt-gaetz-attorney-general-trump.html
 
