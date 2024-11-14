@@ -1,3 +1,7 @@
+**Friday Briefing: Dismay Over Trump’s Picks**\
+`Plus, when shopping meets gambling.`\
+https://nytimes.com/2024/11/14/briefing/trump-cabinet-netanyahu-climate.html
+
 **Certain Days Call for Afternoon Tea**\
 `The city is overflowing with options for a warm pot and small bites that won’t empty your bank account.`\
 https://nytimes.com/2024/11/14/dining/certain-days-call-for-afternoon-tea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/us/lawmakers-demand-ethics-report-gaetz.html
 **Video Captures Israeli Strike on Humanitarian Zone in Gaza**\
 `Video on social media, verified by The New York Times, captured a large explosion in a densely populated tent camp. The Israeli military said it targeted a loaded weapons launcher.`\
 https://nytimes.com/video/world/middleeast/100000009825987/israel-strike-gaza-mawasi.html
-
-**LSU student senate unanimously opposes Gov. Jeff Landry's plan to bring live tigers to football games**\
-`LSU lost to Alabama, 42-13, on Saturday night.`\
-https://nytimes.com/athletic/5922888/2024/11/14/lsu-senate-opposes-live-tiger-jeff-landry/
 

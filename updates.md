@@ -1,3 +1,7 @@
+**Friday Briefing: Dismay Over Trump’s Picks**\
+`Plus, when shopping meets gambling.`\
+https://nytimes.com/2024/11/14/briefing/trump-cabinet-netanyahu-climate.html
+
 **Certain Days Call for Afternoon Tea**\
 `The city is overflowing with options for a warm pot and small bites that won’t empty your bank account.`\
 https://nytimes.com/2024/11/14/dining/certain-days-call-for-afternoon-tea.html
