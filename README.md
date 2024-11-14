@@ -1,3 +1,7 @@
+**Elon Musk Met With Iran’s U.N. Ambassador, Iranian Officials Say**\
+`The tech billionaire, a top adviser to President-elect Donald J. Trump, was reported to have discussed ways to defuse tensions between Iran and the United States.`\
+https://nytimes.com/2024/11/14/world/middleeast/elon-musk-iran-trump.html
+
 **Trump’s Nominees Pose Dilemma for Senate G.O.P., Testing Their Deference**\
 `The president-elect’s choice of combative loyalists who could have trouble being confirmed has raised constitutional questions about executive power and the Senate’s prerogatives.`\
 https://nytimes.com/2024/11/14/us/trumps-nominees-test-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923012/2024/11/14/dave-sims-yankees-john-sterling-
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/11/14/books/review/new-books-recommendations.html
-
-**At France-Israel Game, Soccer Takes a Back Seat to Politics and Security**\
-`After the recent violence around an Israeli team’s game in Amsterdam, French leaders insisted on proceeding under   security with a France-Israel match, and on showing up, themselves.`\
-https://nytimes.com/2024/11/14/world/europe/france-israel-soccer-security.html
 
