@@ -1,3 +1,15 @@
+**Louis Vuitton’s Luxury Pit Stop**\
+`Who says a temporary space needs to look undone?`\
+https://nytimes.com/2024/11/14/style/louis-vuittons-luxury-pit-stop.html
+
+**Trump Changed the Game With China. Now He Could Win It.**\
+`His bluster and unpredictability, combined with strategic discipline, could permanently tilt the rivalry with China in America’s favor.`\
+https://nytimes.com/2024/11/14/opinion/china-trump-us-rivalry.html
+
+**LeBron James becomes oldest player to record 3 straight triple-doubles**\
+`Wednesday's feat marked James' 116th triple-double of his career and his 40th 30-point triple-double.`\
+https://nytimes.com/athletic/5921724/2024/11/14/lebron-james-lakers-triple-doubles-nba-history-grizzlies/
+
 **Typhoon Usagi Threatens Floods and Landslides in the Philippines**\
 `The storm had winds equivalent to those of a Category 4 hurricane on Thursday. Forecasters warned of torrential rain in the north of the country.`\
 https://nytimes.com/2024/11/14/world/asia/typhoon-usagi-philippines.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5919329/2024/11/14/sanchez-lost-chelsea-fans/
 **Moise Kean exclusive: From not getting in Everton's team to flourishing at Fiorentina**\
 `Moise Kean has done a lot for a 24-year-old. He sits down with The Athletic to discuss debuting at 16 for Juventus and learning from Mbappe`\
 https://nytimes.com/athletic/5919241/2024/11/14/moise-kean-fiorentina-italy-everton/
-
-**The availability of sporting director Roberto Olabe will put Europe's top clubs on high alert**\
-`The sporting director is likely to be in demand after he decided to leave his role at Real Sociedad`\
-https://nytimes.com/athletic/5916911/2024/11/14/roberto-olabe-real-sociedad-arsenal-manchester-city-premier-league/
-
-**Barca's new Nike deal explained: Is it really worth €1.7billion? And is it bigger than Real Madrid's?**\
-`What Barcelona have agreed with Nike, what it means for the club's future, and what it means for registering players`\
-https://nytimes.com/athletic/5908242/2024/11/14/barca-nike-kit-deal-explainer/
-
-**Key questions for England's latest internationals: Will Lee Carsley roll the dice one last time?**\
-`We are now in the final days of Lee Carsley's stint as interim England head coach - will he be bold or reserved in his team selection?`\
-https://nytimes.com/athletic/5917735/2024/11/14/england-nations-league-lee-carsley-morgan-rogers/
 
