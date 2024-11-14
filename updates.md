@@ -1,3 +1,11 @@
+**Liberal Legal Group Positions Itself as a Top Trump Administration Foe**\
+`Using Project 2025 as a blueprint, the group Democracy Forward says it has prepared a raft of potential legal challenges to respond to the Trump-Vance agenda as soon as Day 1.`\
+https://nytimes.com/2024/11/14/us/politics/democracy-forward-trump-administration.html
+
+**Lindsey Vonn, 40, ending retirement ahead of 2026 Olympics**\
+`"My goal is to enjoy this, and hopefully that road takes me to World Cup races," Vonn said in an interview with the New York Times.`\
+https://nytimes.com/athletic/5922421/2024/11/14/lindsey-vonn-return-olympics-skiing/
+
 **Trump’s Picks: Loyalty Over Competence**\
 `Readers criticize the choice of Matt Gaetz, Pete Hegseth and others. Also: Anger over the election; protecting kids online; ripped jeans.`\
 https://nytimes.com/2024/11/14/opinion/donald-trump-matt-gaetz-pete-hegseth.html
