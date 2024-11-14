@@ -1,3 +1,11 @@
+**Five Michigan players to watch who are crucial to Wolverines' future**\
+`Michigan’s slide to 5-5 has made a roster overhaul all but inevitable, but there are a handful of rising players worth watching.`\
+https://nytimes.com/athletic/5920280/2024/11/14/michigan-football-roster-future-2025/
+
+**NFC East Roundtable: Commanders-Eagles showdown, how to fix Cowboys and Giants**\
+`What's one thing each team in the division can be encouraged by? And who has the upper hand when Washington and Philly meet Thursday night?`\
+https://nytimes.com/athletic/5920262/2024/11/14/eagles-commanders-giants-cowboys-nfc-east/
+
 **I Believe in Miracles. Just Not All of Them.**\
 `Let’s not become the supernatural states of America.`\
 https://nytimes.com/2024/11/14/opinion/christianity-spirituality-psychedelics-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/opinion/rfk-jr-vaccines-trump-health.html
 **Have You Ever Gone Hunting? Would You Ever Want to?**\
 `A small cohort of turkey hunters wants more people to understand the beauty and challenge of hunting for your supper. What are your thoughts on hunting?`\
 https://nytimes.com/2024/11/14/learning/have-you-ever-gone-hunting-would-you-ever-want-to.html
-
-**36 Hours in Atlanta**\
-`This Southern hub of creativity, nightlife and civil rights history is showing it has an outdoorsy side too, with the Beltline, a popular biking and walking path.`\
-https://nytimes.com/interactive/2024/11/14/travel/things-to-do-atlanta.html
-
-**Anthony Richardson must remember 'superpowers' aren't enough amid QB change**\
-`After a two-week benching, Richardson is back as the Colts' starter. This second shot needs to be different. `\
-https://nytimes.com/athletic/5921089/2024/11/14/anthony-richardson-colts-quarterback-change-superpowers/
 
