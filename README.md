@@ -6,8 +6,8 @@ https://nytimes.com/2024/11/14/us/politics/trump-gaetz-gabbard-hegseth-deep-stat
 `Washington Heights and Inwood were the scene of deadly feuds that began six years ago after a killing. Thursday’s charges were just the latest in a series of gang takedowns.`\
 https://nytimes.com/2024/11/14/nyregion/nyc-gangs-charges-alvin-bragg.html
 
-**Trump Names Former S.E.C. Chief as Manhattan’s Top Federal Prosecutor**\
-`Jay Clayton, a former corporate lawyer, will be in a critical position for the president-elect, who has promised revenge on those who prosecuted him in New York.`\
+**Trump Wants Former S.E.C. Chief as Manhattan’s Top Federal Prosecutor**\
+`Jay Clayton, a former corporate lawyer, would be in a critical position for the president-elect, who has promised revenge on those who prosecuted him in New York.`\
 https://nytimes.com/2024/11/14/us/politics/trump-jay-clayton-attorney-southern-district-ny.html
 
 **Why Humans Cry**\
