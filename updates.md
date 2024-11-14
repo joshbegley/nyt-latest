@@ -1,3 +1,7 @@
+**Ford Fined Up to $165 Million by Safety Agency Over Camera Recalls**\
+`The regulator faulted the automaker for not recalling cars with defective rearview cameras quickly enough and for providing incomplete and inaccurate information.`\
+https://nytimes.com/2024/11/14/business/economy/ford-nhtsa-camera-recall.html
+
 **Hochul Brings Back Congestion Pricing Plan After Months of Suspense**\
 `The governor is renewing plans to start the tolling program, but at discounted rates. It is not clear whether the lower tolls could generate the $15 billion needed for mass transit repairs.`\
 https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc-hochul.html

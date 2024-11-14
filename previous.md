@@ -1,3 +1,7 @@
+**Ford Fined Up to $165 Million by Safety Agency Over Camera Recalls**\
+`The regulator faulted the automaker for not recalling cars with defective rearview cameras quickly enough and for providing incomplete and inaccurate information.`\
+https://nytimes.com/2024/11/14/business/economy/ford-nhtsa-camera-recall.html
+
 **Hochul Brings Back Congestion Pricing Plan After Months of Suspense**\
 `The governor is renewing plans to start the tolling program, but at discounted rates. It is not clear whether the lower tolls could generate the $15 billion needed for mass transit repairs.`\
 https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922421/2024/11/14/lindsey-vonn-return-olympics-ski
 **Trump’s Picks: Loyalty Over Competence**\
 `Readers criticize the choice of Matt Gaetz, Pete Hegseth and others. Also: Anger over the election; protecting kids online; ripped jeans.`\
 https://nytimes.com/2024/11/14/opinion/donald-trump-matt-gaetz-pete-hegseth.html
-
-**Scoop City: How the playoff picture could change**\
-`A quick look at the current playoff picture, as well as the schedules for teams outside the bracket (including the Bengals, Buccaneers)`\
-https://nytimes.com/athletic/5922543/2024/11/14/nfl-playoff-current-standings-bracket-bengals-chargers-jets-scoop-city/
 
