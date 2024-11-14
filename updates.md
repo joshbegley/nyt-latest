@@ -1,3 +1,7 @@
+**Newsom? Whitmer? Shapiro? 2024 Could Kill Their 2028 Dreams.**\
+`Trump’s big victory is sure to scramble the Democrats’ bench.`\
+https://nytimes.com/2024/11/14/opinion/2028-democrats-newsom-whitmer.html
+
 **For One of the ‘Bad Sisters,’ Things Have Gotten Even Worse**\
 `Anne-Marie Duff, who won a BAFTA for her performance in this black comedy last season, discusses her character’s darker turn in Season 2.`\
 https://nytimes.com/2024/11/14/arts/television/bad-sisters-anne-marie-duff.html
