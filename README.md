@@ -1,3 +1,7 @@
+**Chiefs lose Harrison Butker to IR, sign Spencer Shrader as fill-in: Source**\
+`Butker will miss at least the next four games and can return as early as Kansas City's Week 15 road matchup against the Cleveland Browns.`\
+https://nytimes.com/athletic/5923278/2024/11/14/chiefs-harrison-butker-injured-reserve-spencer-shrader/
+
 **Why still no CHSN on Comcast? Hulu, YouTube TV? App price?: Q&A with network president**\
 `CHSN president Kevin Coyle spoke with The Athletic to explain a number of issues with the network as its app launches Friday.`\
 https://nytimes.com/athletic/5923232/2024/11/14/chsn-comcast-hulu-youtube-tv/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923099/2024/11/14/frances-tiafoe-fine-swearing-ump
 **NASA Says Space Station Astronaut Is in ‘Incredible Health’**\
 `The agency’s top medical official was responding to rumors that Suni Williams had lost an unusual amount of weight during an extended stay in orbit.`\
 https://nytimes.com/2024/11/14/science/nasa-suni-williams-healthy.html
-
-**Elon Musk Met With Iran’s U.N. Ambassador, Iranian Officials Say**\
-`The tech billionaire, a top adviser to President-elect Donald J. Trump, was reported to have discussed ways to defuse tensions between Iran and the United States.`\
-https://nytimes.com/2024/11/14/world/middleeast/elon-musk-iran-trump.html
 
