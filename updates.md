@@ -1,3 +1,7 @@
+**Corrections: Nov. 14, 2024**\
+`Corrections that appeared in print on Thursday, Nov. 14, 2024.`\
+https://nytimes.com/2024/11/13/pageoneplus/corrections-nov-14-2024.html
+
 **Explosions in Brazil’s Capital Leave at Least One Dead**\
 `Two blasts, coming 20 seconds apart, rocked an area of Brasília near the heart of the government’s offices.`\
 https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
