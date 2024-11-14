@@ -1,3 +1,11 @@
+**Justice Dept. Reports Broad Civil Rights Abuses at Georgia Jail System**\
+`In a blunt report released on Thursday, the department said officials in Fulton County have had “deliberate indifference to the risks of harms.”`\
+https://nytimes.com/2024/11/14/us/politics/fulton-county-georgia-jail-justice-department.html
+
+**An Election Is No Reason to Postpone Trump’s Felony Sentencing**\
+`He was lawfully convicted, and his sentence should be determined before he takes office.`\
+https://nytimes.com/2024/11/14/opinion/trump-felony-sentence-postponed.html
+
 **Thomas Castellanos leaves BC after being replaced at QB**\
 `James is a transfer from Florida International, while Castellanos was in his second season as BC's starter.`\
 https://nytimes.com/athletic/5922645/2024/11/14/bc-football-quarterback-thomas-castellanos-grayson-james/
