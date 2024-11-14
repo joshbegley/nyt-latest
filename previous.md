@@ -1,3 +1,7 @@
+**What Would a Matt Gaetz Justice Department Mean for Business?**\
+`The Trump loyalist supports an “aggressive” antitrust approach and has called for breaking up Big Tech. But can the controversial nominee win Senate approval?`\
+https://nytimes.com/2024/11/14/business/dealbook/trump-gaetz-justice-department-antitrust.html
+
 **The NHL's 9 most impressive bounce-back players this season**\
 `These players have responded to down/injury-plagued 2023-24 seasons with impressive showings so far.`\
 https://nytimes.com/athletic/5917838/2024/11/14/nhl-players-bounce-back-season-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920558/2024/11/14/ibrahim-diarra-barcelona-african
 **Sotheby’s Settles Tax Fraud Lawsuit for $6.25 Million**\
 `New York’s attorney general said in a lawsuit that the auction house had helped collectors avoid tax payments on art purchases.`\
 https://nytimes.com/2024/11/14/arts/design/sothebys-tax-fraud-settlement-new-york.html
-
-**‘Bogart: Life Comes in Flashes’ Review: The Stuff That Dreams Are Made Of**\
-`A new documentary traces Humphrey Bogart’s development from stage actor to the embodiment of brooding cinematic cool.`\
-https://nytimes.com/2024/11/14/movies/bogart-life-comes-in-flashes-review.html
 

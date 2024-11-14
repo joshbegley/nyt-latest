@@ -1,3 +1,7 @@
+**What Would a Matt Gaetz Justice Department Mean for Business?**\
+`The Trump loyalist supports an “aggressive” antitrust approach and has called for breaking up Big Tech. But can the controversial nominee win Senate approval?`\
+https://nytimes.com/2024/11/14/business/dealbook/trump-gaetz-justice-department-antitrust.html
+
 **The NHL's 9 most impressive bounce-back players this season**\
 `These players have responded to down/injury-plagued 2023-24 seasons with impressive showings so far.`\
 https://nytimes.com/athletic/5917838/2024/11/14/nhl-players-bounce-back-season-2024/
