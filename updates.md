@@ -1,3 +1,11 @@
+**Key questions for England's latest internationals: Will Lee Carsley roll the dice one last time?**\
+`We are now in the final days of Lee Carsley's stint as interim England head coach - will he be bold or reserved in his team selection?`\
+https://nytimes.com/athletic/5917735/2024/11/14/england-nations-league-lee-carsley-morgan-rogers/
+
+**Explained: The drive for women's football to be a €1bn industry by 2030**\
+`UEFA's Unstoppable strategy sets out ambitious plans for growth and is also seeking to put women and players at the heart of decision-making`\
+https://nytimes.com/athletic/5919228/2024/11/14/uefa-womens-football-billion-euro-industry/
+
 **Thursday Briefing**\
 `A victory for the Republican Party.`\
 https://nytimes.com/2024/11/14/briefing/house-republicans-ukraine-israel.html
