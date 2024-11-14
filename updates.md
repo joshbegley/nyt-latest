@@ -1,3 +1,7 @@
+**Stress From Fireworks Killed Baby Red Panda, Zoo in Scotland Says**\
+`Camera footage showed Roxie, a three-month-old, agitated by the noise. She died shortly afterward.`\
+https://nytimes.com/2024/11/14/world/red-panda-death-edinburgh-zoo.html
+
 **Trump Picks Doug Collins, Former Congressman and Impeachment Defender, to Lead V.A.**\
 `Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment in 2019.`\
 https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
