@@ -1,3 +1,7 @@
+**30 People Charged in Manhattan Gang War That Killed 7**\
+`Washington Heights and Inwood were the scene of deadly feuds that began six years ago after a killing. Thursday’s charges were just the latest in a series of gang takedowns.`\
+https://nytimes.com/2024/11/14/nyregion/nyc-gangs-charges-alvin-bragg.html
+
 **Trump Names Former S.E.C. Chief as Manhattan’s Top Federal Prosecutor**\
 `Jay Clayton, a former corporate lawyer, will be in a critical position for the president-elect, who has promised revenge on those who prosecuted him in New York.`\
 https://nytimes.com/2024/11/14/us/politics/trump-jay-clayton-attorney-southern-district-ny.html
@@ -31,10 +35,6 @@ https://nytimes.com/2024/11/14/style/eli-zabars-substack-night.html
 https://nytimes.com/athletic/5923278/2024/11/14/chiefs-harrison-butker-injured-reserve-spencer-shrader/
 
 **Why still no CHSN on Comcast? Hulu, YouTube TV? App price?: Q&A with network president**\
-`CHSN president Kevin Coyle spoke with The Athletic to explain a number of issues with the network as its app launches Friday.`\
+`CHSN president Jason Coyle spoke with The Athletic to explain a number of issues with the network as its app launches Friday.`\
 https://nytimes.com/athletic/5923232/2024/11/14/chsn-comcast-hulu-youtube-tv/
-
-**Tech Elite Push Tech Elite to Elon Musk for Cabinet Positions**\
-`Tech leaders are recommending their own brethren to Mr. Musk and others, as they aim to leave a Silicon Valley imprint on Donald Trump’s new administration.`\
-https://nytimes.com/2024/11/14/technology/trump-elon-musk-silicon-valley.html
 
