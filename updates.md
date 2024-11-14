@@ -1,3 +1,7 @@
+**Laporte on potential Real Madrid transfer interest: 'I would listen to a call'**\
+`Al Nassr defender Aymeric Laporte says he would listen to a call from Real Madrid if the Spanish club approached him.`\
+https://nytimes.com/athletic/5921831/2024/11/14/aymeric-laporte-real-madrid-transfer/
+
 **PGMOL taking new Coote allegations 'very seriously'**\
 `New allegations surrounding Premier League referee David Coote are being taken “very seriously”, says the Professional Game Match Officials Ltd (PGMOL).`\
 https://nytimes.com/athletic/5920534/2024/11/14/david-coote-video-allegations-euro-2024/
