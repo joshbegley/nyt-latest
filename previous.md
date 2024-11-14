@@ -1,3 +1,15 @@
+**DeAndre Hopkins already a difference-maker for the Chiefs and GM Brett Veach**\
+`Hopkins could be the best midseason acquisition of Veach's tenure. Since his arrival, he leads Chiefs receivers with 171 yards and two TDs.`\
+https://nytimes.com/athletic/5921100/2024/11/14/chiefs-deandre-hopkins-brett-veach/
+
+**Israeli Military Warns of More Strikes Near Beirut After 6 Soldiers Are Killed**\
+`The deaths on Wednesday made it one of the most lethal days for the Israeli military since it invaded Lebanon last month to battle Hezbollah fighters.`\
+https://nytimes.com/2024/11/14/world/middleeast/israel-lebanon-strikes.html
+
+**What does the Vikings' financial future look like for 2025 and beyond?**\
+`Thanks to some shrewd front-office maneuvering, the Vikings' cap situation is good. How will they use their money in the coming seasons?`\
+https://nytimes.com/athletic/5920433/2024/11/14/vikings-future-contracts-salary-cap-nfl-draft/
+
 **Why isolation ball works for Shai Gilgeous-Alexander and Thunder**\
 `Chet Holmgren's injury likely puts more on Shai Gilgeous-Alexander's shoulders to create for himself more often.`\
 https://nytimes.com/athletic/5918974/2024/11/14/why-isolation-ball-works-for-shai-gilgeous-alexander-and-oklahoma-city-thunder/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5914807/2024/11/14/league-1-america-mls/
 **A Republican Trifecta, and Trump’s Latest Pick Creates Shock Waves**\
 `Plus, a Chinese government cover-up.`\
 https://nytimes.com/2024/11/14/podcasts/trump-gop-senate.html
-
-**Five Browns thoughts: Jameis Winston back in New Orleans, a new LT situation and more**\
-`Will Winston prove he's the answer at QB for Cleveland down the stretch? Also, can the team get Nick Chubb going on the ground this week?`\
-https://nytimes.com/athletic/5920691/2024/11/14/browns-jameis-winston-saints-nick-chubb/
-
-**Lindsey Vonn Plans a World Cup Return as She Rejoins the U.S. Ski Team**\
-`Five years ago the American ski racer left the sport, but a new right knee has her aiming to compete this year on the World Cup circuit, and possibly, in the 2026 Olympics.`\
-https://nytimes.com/2024/11/14/us/lindsey-vonn-world-cup-retirement.html
-
-**Trump 2.0: A Cabinet Full of Surprises and an Awkward Visit With Joe Biden**\
-`Listen to our political round table on Donald J. Trump’s first week as president-elect.`\
-https://nytimes.com/2024/11/14/podcasts/the-daily/trump-cabinet.html
 
