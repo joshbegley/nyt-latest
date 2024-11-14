@@ -1,3 +1,7 @@
+**The Bounce: About Victor Wembanyama's speedy 50 burger**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5921985/2024/11/14/victor-wembanyama-spurs-cleveland-cavaliers-nba-the-bounce/
+
 **Tapestry and Capri End Plans for ‘Accessible Luxury’ Merger**\
 `Tapestry, the owner of Coach, said it would abandon its $8.5 billion deal to buy Capri, the parent company of Michael Kors, after the Federal Trade Commission successfully sued to stop the transaction.`\
 https://nytimes.com/2024/11/14/business/dealbook/tapestry-capri-merger-luxury.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/world/middleeast/israel-airstrike-humanitarian-zo
 **Patriots DT Christian Barmore expected to return to practice Thursday**\
 `The move opens up a potential return to games for Barmore as soon as the end of this month.`\
 https://nytimes.com/athletic/5922287/2024/11/14/christian-barmore-practice-return-patriots/
-
-**Do the Mets have enough to swing a deal for White Sox ace Garrett Crochet?**\
-`The Mets may have as many as three vacancies in their rotation, making interest in Crochet a no-brainer.`\
-https://nytimes.com/athletic/5918747/2024/11/14/new-york-mets-garrett-crochet-trade-rumors/
 
