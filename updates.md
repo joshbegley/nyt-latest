@@ -1,3 +1,11 @@
+**What to Know About Broker Fees in New York City**\
+`The City Council overwhelmingly passed a measure to shift the burden of broker fees to landlords. Here’s what that means for renters.`\
+https://nytimes.com/2024/11/14/nyregion/broker-fees-nyc.html
+
+**4-Month-Old Dies From Cocaine Intoxication**\
+`Ariel Gonzalez died in the Bronx in August. There have been no arrests in the case, which the New York City medical examiner said on Thursday was a homicide.`\
+https://nytimes.com/2024/11/14/nyregion/4-month-old-cocaine-death.html
+
 **Trump Picks Todd Blanche, His Defense Lawyer, to Be Deputy Attorney General**\
 `Mr. Blanche, a former supervising federal prosecutor in Manhattan, oversaw the president-elect’s legal defense against multiple indictments.`\
 https://nytimes.com/2024/11/14/us/politics/todd-blanche-deputy-attorney-general-trump.html
