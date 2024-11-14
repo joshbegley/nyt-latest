@@ -1,3 +1,7 @@
+**Angels, infielder Kevin Newman nearing deal: Sources**\
+`Early in the offseason, the Angels have already made a few notable moves involving veterans.`\
+https://nytimes.com/athletic/5922170/2024/11/14/kevin-newman-angels-contract/
+
 **Wines and Ciders for the Thanksgiving Feast**\
 `Choosing what to drink should be the easiest part of your holiday planning. Here’s a guide to making it even more so.`\
 https://nytimes.com/2024/11/14/dining/drinks/thanksgiving-wines-ciders.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922232/2024/11/14/aaron-rodgers-jets-2025/
 **Penguins Today: The elephant in the room**\
 `Things are very, very bad in Pittsburgh. Change is likely coming.`\
 https://nytimes.com/athletic/5922289/2024/11/14/penguins-today-trade-rumors/
-
-**Americans Have Regained Modest Trust in Scientists, Survey Finds**\
-`A sharp partisan divide remains over how involved researchers should be in policy decisions.`\
-https://nytimes.com/2024/11/14/health/trust-science-americans.html
 

@@ -1,3 +1,7 @@
+**Angels, infielder Kevin Newman nearing deal: Sources**\
+`Early in the offseason, the Angels have already made a few notable moves involving veterans.`\
+https://nytimes.com/athletic/5922170/2024/11/14/kevin-newman-angels-contract/
+
 **Wines and Ciders for the Thanksgiving Feast**\
 `Choosing what to drink should be the easiest part of your holiday planning. Here’s a guide to making it even more so.`\
 https://nytimes.com/2024/11/14/dining/drinks/thanksgiving-wines-ciders.html
