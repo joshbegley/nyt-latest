@@ -1,8 +1,12 @@
+**Claudio Ranieri returns as Roma head coach**\
+`Claudio Ranieri has been appointed as the new the head coach of Roma.`\
+https://nytimes.com/athletic/5921844/2024/11/14/claudio-ranieri-roma/
+
 **Norway Apologizes for Forced Assimilation of Sami and Other Minorities**\
 `A policy of “Norwegianization” silenced the languages of Indigenous people and forced their children into boarding schools. The long-awaited apology avoided the issue of land rights.`\
 https://nytimes.com/2024/11/14/world/europe/norway-sami-kvens-forest-finns-apology.html
 
-**Wimbledon junior finalist Nikola Bartunkova accepts doping ban**\
+**Wimbledon junior finalist Nikola Bartunkova accepts doping ban, can return to tennis**\
 `Bartunkova was provisionally suspended in May and her ban covers the length of that suspension.`\
 https://nytimes.com/athletic/5922031/2024/11/14/nikola-bartunkova-tennis-doping-ban/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919187/2024/11/14/nba-lookahead-victor-wembanyama-
 **What Would a Matt Gaetz Justice Department Mean for Business?**\
 `The Trump loyalist supports an “aggressive” antitrust approach and has called for breaking up Big Tech. But can the controversial nominee win Senate approval?`\
 https://nytimes.com/2024/11/14/business/dealbook/trump-gaetz-justice-department-antitrust.html
-
-**The NHL's 9 most impressive bounce-back players this season**\
-`These players have responded to down/injury-plagued 2023-24 seasons with impressive showings so far.`\
-https://nytimes.com/athletic/5917838/2024/11/14/nhl-players-bounce-back-season-2024/
 
