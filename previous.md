@@ -1,3 +1,19 @@
+**Button Up, Baby**\
+`The humble button mushroom can steal the show — it just needs the right recipes.`\
+https://nytimes.com/2024/11/14/dining/how-to-cook-mushrooms.html
+
+**‘The Day of the Jackal’ Is a Cat-and-Mouse Thriller**\
+`The new Peacock series, starring Eddie Redmayne and Lashana Lynch, adapts the 1971 Frederick Forsyth novel and sets the action in the present day.`\
+https://nytimes.com/2024/11/14/arts/television/the-day-of-the-jackal.html
+
+**Bynum Defeats Chavez-DeRemer in Oregon, Flipping a Seat for Democrats**\
+`State Representative Janelle Bynum, a Democrat and the first Black woman elected to represent Oregon in Congress, ousted the freshman Republican Lori Chavez-DeRemer.`\
+https://nytimes.com/2024/11/14/us/elections/oregon-house-chavez-deremer-bynum.html
+
+**With Potential Pardons by Trump Coming, Judge Delays Jan. 6 Trial**\
+`A Kansas man accused of attacking the Capitol in 2021 argued the trial should be delayed since President-elect Donald J. Trump has pledged that he would pardon rioters who stormed the building.`\
+https://nytimes.com/2024/11/14/us/politics/jan-6-trial-delay-trump.html
+
 **Rays to play 2025 home games at Steinbrenner Field in Tampa**\
 `The team needed to find an alternate home ballpark after Tropicana Field sustained major damage from Hurricane Milton.`\
 https://nytimes.com/athletic/5922676/2024/11/14/tampa-bay-rays-steinbrenner-field-yankees/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/14/business/economy/ford-nhtsa-camera-recall.html
 **Hochul Brings Back Congestion Pricing Plan After Months of Suspense**\
 `The governor is renewing plans to start the tolling program, but at discounted rates. It is not clear whether the lower tolls could generate the $15 billion needed for mass transit repairs.`\
 https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc-hochul.html
-
-**Republicans have the House majority, but by how big a margin is still unclear.**\
-`With Trump’s plans to nominate Matt Gaetz, Elise Stefanik and Michael Waltz, special elections would need to be called to fill vacant seats.`\
-https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/republicans-house-majority-remaining-races
-
-**An Election Is No Reason to Postpone Trump’s Felony Sentencing**\
-`He was lawfully convicted, and his sentence should be determined before he takes office.`\
-https://nytimes.com/2024/11/14/opinion/trump-felony-sentence-postponed.html
-
-**NFL Week 11 fantasy football, betting cheat sheet: Prepare for fireworks between Eagles, Commanders**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
-https://nytimes.com/athletic/5917115/2024/11/14/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
-
-**Newsom? Whitmer? Shapiro? 2024 Could Kill Their 2028 Dreams.**\
-`Trump’s big victory is sure to scramble the Democrats’ bench.`\
-https://nytimes.com/2024/11/14/opinion/2028-democrats-newsom-whitmer.html
 
