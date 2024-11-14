@@ -1,3 +1,11 @@
+**Norway Apologizes for Forced Assimilation of Sami and Other Minorities**\
+`A policy of “Norwegianization” silenced the languages of Indigenous people and forced their children into boarding schools. The long-awaited apology avoided the issue of land rights.`\
+https://nytimes.com/2024/11/14/world/europe/norway-sami-kvens-forest-finns-apology.html
+
+**Wimbledon junior finalist Nikola Bartunkova accepts doping ban**\
+`Bartunkova was provisionally suspended in May and her ban covers the length of that suspension.`\
+https://nytimes.com/athletic/5922031/2024/11/14/nikola-bartunkova-tennis-doping-ban/
+
 **Where Are Property Taxes Rising the Most?**\
 `They’re up in nearly every major U.S. metro area, but homeowners in the South have seen especially large increases.`\
 https://nytimes.com/2024/11/14/realestate/property-taxes-rising-states.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/business/dealbook/trump-gaetz-justice-department-
 **The NHL's 9 most impressive bounce-back players this season**\
 `These players have responded to down/injury-plagued 2023-24 seasons with impressive showings so far.`\
 https://nytimes.com/athletic/5917838/2024/11/14/nhl-players-bounce-back-season-2024/
-
-**Brad Guzan interview: 'A USMNT recall? It's a bit of a joke'**\
-`By knocking out Inter Miami, Atlanta United recorded one of the biggest upsets in MLS history - and goalkeeper Guzan was a major reason why`\
-https://nytimes.com/athletic/5921671/2024/11/14/brad-guzan-interview-atlanta-united-messi/
-
-**Homeland Security Department to Release New A.I. Guidance**\
-`The voluntary best practices are aimed at companies that own or operate critical infrastructure.`\
-https://nytimes.com/2024/11/14/business/dealbook/homeland-security-department-to-release-new-ai-guidance.html
 
