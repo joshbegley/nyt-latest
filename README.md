@@ -1,3 +1,7 @@
+**Math Museum Announces Move to New Location**\
+`The National Museum of Mathematics in New York is expected to open a 34,363-square-foot building in 2026.`\
+https://nytimes.com/2024/11/14/arts/design/math-museum-new-location.html
+
 **Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
 `A researcher thinks he has knows what has been come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
 https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/arts/television/bad-sisters-season-2-apple-tv-plu
 **Letters of a Literary Titan Read by Da’Vine Joy Randolph, Emma Roberts and More**\
 `An event at L.A.’s Chateau Marmont celebrated an upcoming book about Eve Babitz and Joan Didion, two writers who documented the magic of California.`\
 https://nytimes.com/2024/11/14/style/didion-babitz-book-party.html
-
-**Pope Francis Wants to Save the Environment. He Can Start With a Tree.**\
-`Environmentalists have called on the pope to halt the chopping down of a tree destined for St. Peter’s Square this Christmas, but the town providing the tree says it was doomed anyway.`\
-https://nytimes.com/2024/11/14/world/europe/pope-christmas-tree-vatican.html
 
