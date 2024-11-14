@@ -1,3 +1,15 @@
+**Claudio Ranieri returns as Roma head coach**\
+`Claudio Ranieri has been appointed as the new the head coach of Roma.`\
+https://nytimes.com/athletic/5921844/2024/11/14/claudio-ranieri-roma/
+
+**Norway Apologizes for Forced Assimilation of Sami and Other Minorities**\
+`A policy of “Norwegianization” silenced the languages of Indigenous people and forced their children into boarding schools. The long-awaited apology avoided the issue of land rights.`\
+https://nytimes.com/2024/11/14/world/europe/norway-sami-kvens-forest-finns-apology.html
+
+**Wimbledon junior finalist Nikola Bartunkova accepts doping ban, can return to tennis**\
+`Bartunkova was provisionally suspended in May and her ban covers the length of that suspension.`\
+https://nytimes.com/athletic/5922031/2024/11/14/nikola-bartunkova-tennis-doping-ban/
+
 **Where Are Property Taxes Rising the Most?**\
 `They’re up in nearly every major U.S. metro area, but homeowners in the South have seen especially large increases.`\
 https://nytimes.com/2024/11/14/realestate/property-taxes-rising-states.html
