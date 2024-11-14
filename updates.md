@@ -1,3 +1,7 @@
+**Nebraska recruiting: Huskers flip 4-star LB Dawson Merritt from Alabama**\
+`Merritt is the highest-rated player in the Huskers’ 20-man recruiting class for 2025.`\
+https://nytimes.com/athletic/5923638/2024/11/14/dawson-merritt-college-football-recruit-nebraska-football/
+
 **Why We Got It So Wrong**\
 `It turns out a lot of people don’t behave like ambassadors from this or that group. They think for themselves in unexpected ways.`\
 https://nytimes.com/2024/11/14/opinion/identity-groups-politics.html
