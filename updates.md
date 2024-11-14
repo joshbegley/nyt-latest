@@ -1,3 +1,7 @@
+**Monaco GP moving to June from 2026**\
+`Formula One’s most iconic race, the Monaco Grand Prix, will be staged in June from 2026 as part of a new six-year agreement to remain on the calendar.`\
+https://nytimes.com/athletic/5921870/2024/11/14/monaco-gp-f1-june-contract/
+
 **Chaos brackets: 5 unlikely — but plausible! — College Football Playoff scenarios**\
 `Could the Big 12 champion be left out of the College Football Playoff? How high can Indiana climb? We ran the numbers to find chaos.`\
 https://nytimes.com/athletic/5920684/2024/11/14/college-football-playoff-chaos-scenarios-brackets/
