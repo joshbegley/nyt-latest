@@ -1,3 +1,11 @@
+**Rays to play 2025 home games at Steinbrenner Field in Tampa**\
+`The team needed to find an alternate home ballpark after Tropicana Field sustained major damage from Hurricane Milton.`\
+https://nytimes.com/athletic/5922676/2024/11/14/tampa-bay-rays-steinbrenner-field-yankees/
+
+**Biden’s Swan Song: A Diplomatic Trip Overshadowed by Trump’s Victory**\
+`President Biden will attend global summits in Peru and Brazil as world leaders prepare for the return of Donald Trump’s isolationist foreign policy.`\
+https://nytimes.com/2024/11/14/us/politics/biden-south-america.html
+
 **Justice Dept. Reports Broad Civil Rights Abuses at Georgia Jail System**\
 `In a blunt report released on Thursday, the department said officials in Fulton County have had “deliberate indifference to the risks of harms.”`\
 https://nytimes.com/2024/11/14/us/politics/fulton-county-georgia-jail-justice-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5917115/2024/11/14/nfl-week-11-fantasy-football-che
 **Newsom? Whitmer? Shapiro? 2024 Could Kill Their 2028 Dreams.**\
 `Trump’s big victory is sure to scramble the Democrats’ bench.`\
 https://nytimes.com/2024/11/14/opinion/2028-democrats-newsom-whitmer.html
-
-**For One of the ‘Bad Sisters,’ Things Have Gotten Even Worse**\
-`Anne-Marie Duff, who won a BAFTA for her performance in this black comedy last season, discusses her character’s darker turn in Season 2.`\
-https://nytimes.com/2024/11/14/arts/television/bad-sisters-anne-marie-duff.html
-
-**Liberal Legal Group Positions Itself as a Top Trump Administration Foe**\
-`Using Project 2025 as a blueprint, the group Democracy Forward says it has prepared a raft of potential legal challenges to respond to the Trump-Vance agenda as soon as Day 1.`\
-https://nytimes.com/2024/11/14/us/politics/democracy-forward-trump-administration.html
 
