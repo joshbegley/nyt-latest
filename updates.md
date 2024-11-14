@@ -1,3 +1,11 @@
+**Brad Guzan interview: 'A USMNT recall? It's a bit of a joke'**\
+`By knocking out Inter Miami, Atlanta United recorded one of the biggest upsets in MLS history - and goalkeeper Guzan was a major reason why`\
+https://nytimes.com/athletic/5921671/2024/11/14/brad-guzan-interview-atlanta-united-messi/
+
+**Homeland Security Department to Release New A.I. Guidance**\
+`The voluntary best practices are aimed at companies that own or operate critical infrastructure.`\
+https://nytimes.com/2024/11/14/business/dealbook/homeland-security-department-to-release-new-ai-guidance.html
+
 **Football, fatherhood and new opportunities: Get to know new Bears OC Thomas Brown**\
 `Brown was a college coach before Sean McVay gave him a chance in the NFL. Now the Bears are hoping he can turn around their offense.`\
 https://nytimes.com/athletic/5921002/2024/11/14/bears-offensive-coordinator-thomas-brown/
