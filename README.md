@@ -1,3 +1,7 @@
+**Diego Forlan's pro tennis debut ends in defeat for former Man United and Uruguay footballer**\
+`Forlan has been playing on the International Tennis Federation tour for over-45s, but received a wildcard to his home tournament.`\
+https://nytimes.com/athletic/5920561/2024/11/13/diego-forlan-tennis-debut-result/
+
 **Matt Gaetz, a Bomb-Thrower for the Justice Department**\
 `President-elect Donald Trump’s pick to be attorney general has set a new bar for in-your-face nominations.`\
 https://nytimes.com/2024/11/13/us/politics/matt-gaetz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/john-tune-senate-republican-leader.html
 **A Project 2025 Leader Is Back in the Fold**\
 `At his book party, the Heritage Foundation president said he’ll soon speak with the president-elect.`\
 https://nytimes.com/2024/11/13/us/politics/project-2025-trump-heritage-foundation.html
-
-**Teen Who Made Nearly 400 Swatting Calls to Schools and Officials Pleads Guilty**\
-`Alan W. Filion, 18, of California, called in false reports of bombings and mass shootings across the country, the authorities said.`\
-https://nytimes.com/2024/11/13/us/swatting-calls-california-teen-guilty.html
 
