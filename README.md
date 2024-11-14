@@ -1,3 +1,11 @@
+**Brooklyn Man Charged With Murdering Father in Luxury Irish Hotel**\
+`Henry McGowan, Irish officials said, “did murder one John McGowan, contrary to common law,” on Tuesday night.`\
+https://nytimes.com/2024/11/14/nyregion/henry-mcgowan-murder-father-ireland.html
+
+**Former Suns employee sues team alleging discrimination, retaliation**\
+`Andrea Trischan filed a complaint Wednesday against the Suns, seeking unspecified damages.`\
+https://nytimes.com/athletic/5922977/2024/11/14/suns-discrimination-lawsuit/
+
 **What to Know About Broker Fees in New York City**\
 `The City Council overwhelmingly passed a measure to shift the burden of broker fees to landlords. Here’s what that means for renters.`\
 https://nytimes.com/2024/11/14/nyregion/broker-fees-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/books/elizabeth-nunez-dead.html
 **Alarm Grows Over Trump’s Pick for Defense Secretary**\
 `Pete Hegseth has criticized the Pentagon leadership for its diversity efforts and vocally supported service members accused of war crimes.`\
 https://nytimes.com/2024/11/14/us/politics/pete-hegseth-defense-criticism.html
-
-**The best NFL quarterbacks at covering the spread**\
-`Ben Fawkes breaks down NFL quarterbacks who perform well against the spread in three categories. `\
-https://nytimes.com/athletic/5922974/2024/11/14/nfl-best-quarterbacks-covering-spread-mahomes-jackson-burrow/
-
-**The Investigations Into Matt Gaetz: What to Know**\
-`Federal prosecutors scrutinized claims that Donald Trump’s choice for attorney general had sex with an underage girl, but did not charge him. The House Ethics Committee had its own inquiry.`\
-https://nytimes.com/2024/11/14/us/politics/matt-gaetz-investigations-explainer.html
 
