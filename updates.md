@@ -1,3 +1,11 @@
+**Trump Takes on the Pillars of the ‘Deep State’**\
+`The Justice Department, Pentagon and intelligence agencies were the three areas of government that proved to be the most stubborn obstacles to Mr. Trump in his first term.`\
+https://nytimes.com/2024/11/14/us/politics/trump-gaetz-gabbard-hegseth-deep-state.html
+
+**Trump Wants Former S.E.C. Chief as Manhattan’s Top Federal Prosecutor**\
+`Jay Clayton, a former corporate lawyer, would be in a critical position for the president-elect, who has promised revenge on those who prosecuted him in New York.`\
+https://nytimes.com/2024/11/14/us/politics/trump-jay-clayton-attorney-southern-district-ny.html
+
 **30 People Charged in Manhattan Gang War That Killed 7**\
 `Washington Heights and Inwood were the scene of deadly feuds that began six years ago after a killing. Thursday’s charges were just the latest in a series of gang takedowns.`\
 https://nytimes.com/2024/11/14/nyregion/nyc-gangs-charges-alvin-bragg.html
