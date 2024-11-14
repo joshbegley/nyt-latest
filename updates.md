@@ -1,3 +1,11 @@
+**30 People Charged in Manhattan Gang War That Killed 7**\
+`Washington Heights and Inwood were the scene of deadly feuds that began six years ago after a killing. Thursday’s charges were just the latest in a series of gang takedowns.`\
+https://nytimes.com/2024/11/14/nyregion/nyc-gangs-charges-alvin-bragg.html
+
+**Why still no CHSN on Comcast? Hulu, YouTube TV? App price?: Q&A with network president**\
+`CHSN president Jason Coyle spoke with The Athletic to explain a number of issues with the network as its app launches Friday.`\
+https://nytimes.com/athletic/5923232/2024/11/14/chsn-comcast-hulu-youtube-tv/
+
 **Trump Names Former S.E.C. Chief as Manhattan’s Top Federal Prosecutor**\
 `Jay Clayton, a former corporate lawyer, will be in a critical position for the president-elect, who has promised revenge on those who prosecuted him in New York.`\
 https://nytimes.com/2024/11/14/us/politics/trump-jay-clayton-attorney-southern-district-ny.html
