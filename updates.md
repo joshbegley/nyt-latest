@@ -1,3 +1,7 @@
+**Pope Francis Wants to Save the Environment. He Can Start With a Tree.**\
+`Environmentalists have called on the pope to halt the chopping down of a tree destined for St. Peter’s Square this Christmas, but the town providing the tree says it was doomed anyway.`\
+https://nytimes.com/2024/11/14/world/europe/pope-christmas-tree-vatican.html
+
 **Button Up, Baby**\
 `The humble button mushroom can steal the show — it just needs the right recipes.`\
 https://nytimes.com/2024/11/14/dining/how-to-cook-mushrooms.html
