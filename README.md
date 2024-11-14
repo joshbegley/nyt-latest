@@ -1,3 +1,7 @@
+**What to Know About Congestion Pricing**\
+`Gov. Kathy Hochul is fast-tracking new tolls to enter Midtown and Lower Manhattan. Drivers could be charged beginning in January.`\
+https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc.html
+
 **Brooklyn Man Charged With Murdering Father in Luxury Irish Hotel**\
 `Henry McGowan, Irish officials said, “did murder one John McGowan, contrary to common law,” on Tuesday night.`\
 https://nytimes.com/2024/11/14/nyregion/henry-mcgowan-murder-father-ireland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/nyregion/daniel-penny-trial-jordan-neely.html
 **Elizabeth Nunez, Who Chronicled the Immigrant’s Challenges, Dies at 80**\
 `In “Prospero’s Daughter” and other novels, she explored the legacy of colonialism in her native Trinidad and the struggle for belonging in an adopted country.`\
 https://nytimes.com/2024/11/14/books/elizabeth-nunez-dead.html
-
-**Alarm Grows Over Trump’s Pick for Defense Secretary**\
-`Pete Hegseth has criticized the Pentagon leadership for its diversity efforts and vocally supported service members accused of war crimes.`\
-https://nytimes.com/2024/11/14/us/politics/pete-hegseth-defense-criticism.html
 
