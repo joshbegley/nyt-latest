@@ -1,3 +1,7 @@
+**Red Sox sign left-handed reliever Justin Wilson: Reports**\
+`In his first season back from Tommy John surgery, Wilson had a 5.59 ERA but decent underlying statistics.`\
+https://nytimes.com/athletic/5922719/2024/11/14/red-sox-justin-wilson-free-agent-signing/
+
 **Will Bill Belichick return to coaching? Bill Cowher thinks so**\
 `Cowher, an NFL analyst, also confirmed he will be back at CBS for the 2025 season.`\
 https://nytimes.com/athletic/5922696/2024/11/14/bill-cowher-bill-belichick-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/dining/how-to-cook-mushrooms.html
 **‘The Day of the Jackal’ Is a Cat-and-Mouse Thriller**\
 `The new Peacock series, starring Eddie Redmayne and Lashana Lynch, adapts the 1971 Frederick Forsyth novel and sets the action in the present day.`\
 https://nytimes.com/2024/11/14/arts/television/the-day-of-the-jackal.html
-
-**Bynum Defeats Chavez-DeRemer in Oregon, Flipping a Seat for Democrats**\
-`State Representative Janelle Bynum, a Democrat and the first Black woman elected to represent Oregon in Congress, ousted the freshman Republican Lori Chavez-DeRemer.`\
-https://nytimes.com/2024/11/14/us/elections/oregon-house-chavez-deremer-bynum.html
 
