@@ -1,3 +1,7 @@
+**'We've made huge strides': How the Orlando Magic are surviving without Paolo Banchero**\
+`Led by Franz Wagner, Jalen Suggs and a ferocious defense, the Magic have won their last four games. `\
+https://nytimes.com/athletic/5921777/2024/11/14/orlando-magic-without-paolo-banchero/
+
 **DeAndre Hopkins already a difference-maker for the Chiefs and GM Brett Veach**\
 `Hopkins could be the best midseason acquisition of Veach's tenure. Since his arrival, he leads Chiefs receivers with 171 yards and two TDs.`\
 https://nytimes.com/athletic/5921100/2024/11/14/chiefs-deandre-hopkins-brett-veach/
