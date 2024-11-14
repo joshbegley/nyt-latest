@@ -1,3 +1,7 @@
+**Stress From Fireworks Killed Baby Red Panda, Zoo in Scotland Says**\
+`Camera footage showed Roxie, a three-month-old, agitated by the noise. She died shortly afterward.`\
+https://nytimes.com/2024/11/14/world/14xp-red-panda-death-edinburgh-zoo.html
+
 **Three-Quarters of U.S. Adults Are Now Overweight or Obese**\
 `A sweeping new paper reveals the dramatic rise of obesity rates nationwide since 1990.`\
 https://nytimes.com/2024/11/14/well/obesity-epidemic-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/todd-blanche-deputy-attorney-general-
 **Until Saturday: Why do fans hate noon games? Plus, Week 12's viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Why do noon games cause so much angst for fans?`\
 https://nytimes.com/athletic/5922620/2024/11/14/college-football-week-12-until-saturday/
-
-**Kennedy stuck to his message about concerns over the U.S. food supply.**\
-`By Christina Jewett`\
-https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/kennedy-stuck-to-his-message-about-concerns-over-the-us-food-supply
 
