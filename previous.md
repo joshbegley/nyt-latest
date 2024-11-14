@@ -1,3 +1,11 @@
+**Chaos brackets: 5 unlikely — but plausible! — College Football Playoff scenarios**\
+`Could the Big 12 champion be left out of the College Football Playoff? How high can Indiana climb? We ran the numbers to find chaos.`\
+https://nytimes.com/athletic/5920684/2024/11/14/college-football-playoff-chaos-scenarios-brackets/
+
+**Switching sides in the Bears-Packers rivalry can be painful ... or rewarding**\
+`Those who have played in Chicago and Green Bay have done so for lots of reasons, but most say joining the enemy felt strange.`\
+https://nytimes.com/athletic/5872828/2024/11/14/bears-packers-rivalry-switching-sides/
+
 **Five Michigan players to watch who are crucial to Wolverines' future**\
 `Michigan’s slide to 5-5 has made a roster overhaul all but inevitable, but there are a handful of rising players worth watching.`\
 https://nytimes.com/athletic/5920280/2024/11/14/michigan-football-roster-future-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/podcasts/the-man-in-charge-of-trumps-border-polic
 **Universities Like Yale Need a Reckoning**\
 `We must look in the mirror to know why we have already lost some battles and social respect and part of our democracy`\
 https://nytimes.com/2024/11/14/opinion/yale-ivy-league-liberals-democrats.html
-
-**Robert F. Kennedy Jr. Revealed What Is Missing in Public Health Messaging**\
-`Why health leaders should embrace nuance.`\
-https://nytimes.com/2024/11/14/opinion/rfk-jr-vaccines-trump-health.html
-
-**Have You Ever Gone Hunting? Would You Ever Want to?**\
-`A small cohort of turkey hunters wants more people to understand the beauty and challenge of hunting for your supper. What are your thoughts on hunting?`\
-https://nytimes.com/2024/11/14/learning/have-you-ever-gone-hunting-would-you-ever-want-to.html
 
