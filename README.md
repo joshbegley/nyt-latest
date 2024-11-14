@@ -1,3 +1,7 @@
+**Quote of the Day: New York City Council Passes Bill to Transfer Fee Loathed by Renters**\
+`Quotation of the Day for Thursday, November 14, 2024`\
+https://nytimes.com/2024/11/13/pageoneplus/quote-of-the-day-new-york-city-council-passes-bill-to-transfer-fee-loathed-by-renters.html
+
 **Trump plans to install an ally who publishes his books as the head of personnel.**\
 `By Maggie Haberman and Jonathan Swan`\
 https://nytimes.com/live/2024/11/13/us/trump-news/personnel-office-filled
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/us/elections/republican-house-trifecta.html
 **Make Some Noise**\
 `Matthew Faiella makes his New York Times Crossword debut. I sincerely hope he comes back.`\
 https://nytimes.com/2024/11/13/crosswords/daily-puzzle-2024-11-14.html
-
-**F.B.I. Searches Home of Founder of Polymarket Betting Website**\
-`The search involving Shayne Coplan, the founder of Polymarket, known for its presidential election odds, was part of a criminal investigation, three people said.`\
-https://nytimes.com/2024/11/13/technology/polymarket-shayne-coplan-fbi-search.html
 
