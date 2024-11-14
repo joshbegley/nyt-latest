@@ -1,3 +1,11 @@
+**Key questions for England's latest internationals: Will Lee Carsley roll the dice one last time?**\
+`We are now in the final days of Lee Carsley's stint as interim England head coach - will he be bold or reserved in his team selection?`\
+https://nytimes.com/athletic/5917735/2024/11/14/england-nations-league-lee-carsley-morgan-rogers/
+
+**Explained: The drive for women's football to be a €1bn industry by 2030**\
+`UEFA's Unstoppable strategy sets out ambitious plans for growth and is also seeking to put women and players at the heart of decision-making`\
+https://nytimes.com/athletic/5919228/2024/11/14/uefa-womens-football-billion-euro-industry/
+
 **Thursday Briefing**\
 `A victory for the Republican Party.`\
 https://nytimes.com/2024/11/14/briefing/house-republicans-ukraine-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5920016/2024/11/14/belgium-italy-preview-odds-predi
 **Quote of the Day: New York City Council Passes Bill to Transfer Fee Loathed by Renters**\
 `Quotation of the Day for Thursday, November 14, 2024`\
 https://nytimes.com/2024/11/13/pageoneplus/quote-of-the-day-new-york-city-council-passes-bill-to-transfer-fee-loathed-by-renters.html
-
-**Trump plans to install an ally who publishes his books as the head of personnel.**\
-`By Maggie Haberman and Jonathan Swan`\
-https://nytimes.com/live/2024/11/13/us/trump-news/personnel-office-filled
-
-**Maple Leafs report cards: John Tavares seals comeback OT win**\
-`The fight Toronto showed in the third period paid off in a 4-3 overtime win over Washington.`\
-https://nytimes.com/athletic/5921577/2024/11/13/maple-leafs-capitals-john-tavares/
 
