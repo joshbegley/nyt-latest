@@ -1,3 +1,11 @@
+**Fragments of Up to 20 Human Skulls Are Found in New Mexico Home**\
+`The Lea County sheriff said his office was exploring whether the bones might be linked to any homicides or missing persons, including the disappearance of a local woman in 2019.`\
+https://nytimes.com/2024/11/14/us/new-mexico-human-skulls.html
+
+**Dave Sims, 71, getting Yankees' radio job, succeeding John Sterling**\
+`Sterling had been the voice of the Yankees on the radio since 1989.`\
+https://nytimes.com/athletic/5923012/2024/11/14/dave-sims-yankees-john-sterling-replacement/
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/11/14/books/review/new-books-recommendations.html

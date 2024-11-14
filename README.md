@@ -1,3 +1,7 @@
+**Mike Tyson’s Inspiration for a Comeback? Smoking Toad Venom.**\
+`The former heavyweight champion told Interview magazine his experiences with a hallucinogenic poison played a role in his agreeing to fight the YouTuber Jake Paul.`\
+https://nytimes.com/2024/11/14/style/mike-tyson-jake-paul-toad-venom.html
+
 **Fragments of Up to 20 Human Skulls Are Found in New Mexico Home**\
 `The Lea County sheriff said his office was exploring whether the bones might be linked to any homicides or missing persons, including the disappearance of a local woman in 2019.`\
 https://nytimes.com/2024/11/14/us/new-mexico-human-skulls.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922888/2024/11/14/lsu-senate-opposes-live-tiger-je
 **Could Trump’s Return Pose a Threat to Climate and Weather Data?**\
 `Project 2025, the conservative playbook, calls for breaking up the federal agency that maintains weather data and collects climate change information.`\
 https://nytimes.com/2024/11/14/climate/trump-noaa-climate-data-weather.html
-
-**Fed Chair Powell Says There’s No Need to ‘Hurry’ to Cut Rates**\
-`A strong economy is giving Federal Reserve officials room to move “carefully” as they lower interest rates, the central bank chair said.`\
-https://nytimes.com/2024/11/14/business/economy/fed-jerome-powell-rate-cuts.html
 

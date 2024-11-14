@@ -1,3 +1,11 @@
+**Fragments of Up to 20 Human Skulls Are Found in New Mexico Home**\
+`The Lea County sheriff said his office was exploring whether the bones might be linked to any homicides or missing persons, including the disappearance of a local woman in 2019.`\
+https://nytimes.com/2024/11/14/us/new-mexico-human-skulls.html
+
+**Dave Sims, 71, getting Yankees' radio job, succeeding John Sterling**\
+`Sterling had been the voice of the Yankees on the radio since 1989.`\
+https://nytimes.com/athletic/5923012/2024/11/14/dave-sims-yankees-john-sterling-replacement/
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/11/14/books/review/new-books-recommendations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/climate/trump-noaa-climate-data-weather.html
 **Fed Chair Powell Says There’s No Need to ‘Hurry’ to Cut Rates**\
 `A strong economy is giving Federal Reserve officials room to move “carefully” as they lower interest rates, the central bank chair said.`\
 https://nytimes.com/2024/11/14/business/economy/fed-jerome-powell-rate-cuts.html
-
-**How a Shocking Insult Gave Me Reason to Hope**\
-`Two new stage productions have a lot to say about where we are as a country`\
-https://nytimes.com/2024/11/14/opinion/broadway-ragtime-racial-slur.html
-
-**Gavin Newsom Once Again Becomes a Meme**\
-`Old photos of the California governor (and navy-suit enthusiast) are being widely shared as bruised Democrats seek a savior.`\
-https://nytimes.com/2024/11/14/style/gavin-newsom-suits-memes.html
 
