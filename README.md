@@ -1,3 +1,7 @@
+**The NHL's 9 most impressive bounce-back players this season**\
+`These players have responded to down/injury-plagued 2023-24 seasons with impressive showings so far.`\
+https://nytimes.com/athletic/5917838/2024/11/14/nhl-players-bounce-back-season-2024/
+
 **Brad Guzan interview: 'A USMNT recall? It's a bit of a joke'**\
 `By knocking out Inter Miami, Atlanta United recorded one of the biggest upsets in MLS history - and goalkeeper Guzan was a major reason why`\
 https://nytimes.com/athletic/5921671/2024/11/14/brad-guzan-interview-atlanta-united-messi/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/arts/design/sothebys-tax-fraud-settlement-new-yor
 **‘Bogart: Life Comes in Flashes’ Review: The Stuff That Dreams Are Made Of**\
 `A new documentary traces Humphrey Bogart’s development from stage actor to the embodiment of brooding cinematic cool.`\
 https://nytimes.com/2024/11/14/movies/bogart-life-comes-in-flashes-review.html
-
-**Picking Matt Gaetz**\
-`Donald Trump has nominated a loyalist to be his attorney general.`\
-https://nytimes.com/2024/11/14/briefing/picking-matt-gaetz.html
 
