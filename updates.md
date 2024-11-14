@@ -1,3 +1,11 @@
+**Trump Picked R.F.K. Jr. to Be Health Secretary**\
+`Also, Gov. Kathy Hochul revived New York’s congestion pricing plan. Here’s the latest at the end of Thursday,`\
+https://nytimes.com/2024/11/14/briefing/trump-rfk-jr-new-york-congestion-pricing.html
+
+**Eli Zabar’s Substack Night**\
+`A food king of Manhattan welcomes the newsletter crowd for a party celebrating the 50th anniversary of his Upper East Side cafe.`\
+https://nytimes.com/2024/11/14/style/eli-zabars-substack-night.html
+
 **Chiefs lose Harrison Butker to IR, sign Spencer Shrader as fill-in: Source**\
 `Butker will miss at least the next four games and can return as early as Kansas City's Week 15 road matchup against the Cleveland Browns.`\
 https://nytimes.com/athletic/5923278/2024/11/14/chiefs-harrison-butker-injured-reserve-spencer-shrader/
