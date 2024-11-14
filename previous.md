@@ -1,3 +1,7 @@
+**NFL Week 11 fantasy football, betting cheat sheet: Prepare for fireworks between Eagles, Commanders**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5917115/2024/11/14/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
+
 **Newsom? Whitmer? Shapiro? 2024 Could Kill Their 2028 Dreams.**\
 `Trump’s big victory is sure to scramble the Democrats’ bench.`\
 https://nytimes.com/2024/11/14/opinion/2028-democrats-newsom-whitmer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/business/trump-social-security-benefits.html
 **Angels, infielder Kevin Newman nearing deal: Sources**\
 `Early in the offseason, the Angels have already made a few notable moves involving veterans.`\
 https://nytimes.com/athletic/5922170/2024/11/14/kevin-newman-angels-contract/
-
-**Wines and Ciders for the Thanksgiving Feast**\
-`Choosing what to drink should be the easiest part of your holiday planning. Here’s a guide to making it even more so.`\
-https://nytimes.com/2024/11/14/dining/drinks/thanksgiving-wines-ciders.html
 

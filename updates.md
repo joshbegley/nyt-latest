@@ -1,3 +1,7 @@
+**NFL Week 11 fantasy football, betting cheat sheet: Prepare for fireworks between Eagles, Commanders**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5917115/2024/11/14/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
+
 **Newsom? Whitmer? Shapiro? 2024 Could Kill Their 2028 Dreams.**\
 `Trump’s big victory is sure to scramble the Democrats’ bench.`\
 https://nytimes.com/2024/11/14/opinion/2028-democrats-newsom-whitmer.html
