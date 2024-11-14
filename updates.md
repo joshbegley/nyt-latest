@@ -1,3 +1,7 @@
+**Thomas Castellanos leaves BC after being replaced at QB**\
+`James is a transfer from Florida International, while Castellanos was in his second season as BC's starter.`\
+https://nytimes.com/athletic/5922645/2024/11/14/bc-football-quarterback-thomas-castellanos-grayson-james/
+
 **Ford Fined Up to $165 Million by Safety Agency Over Camera Recalls**\
 `The regulator faulted the automaker for not recalling cars with defective rearview cameras quickly enough and for providing incomplete and inaccurate information.`\
 https://nytimes.com/2024/11/14/business/economy/ford-nhtsa-camera-recall.html
