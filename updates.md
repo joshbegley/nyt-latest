@@ -1,3 +1,7 @@
+**The NHL's 9 most impressive bounce-back players this season**\
+`These players have responded to down/injury-plagued 2023-24 seasons with impressive showings so far.`\
+https://nytimes.com/athletic/5917838/2024/11/14/nhl-players-bounce-back-season-2024/
+
 **Brad Guzan interview: 'A USMNT recall? It's a bit of a joke'**\
 `By knocking out Inter Miami, Atlanta United recorded one of the biggest upsets in MLS history - and goalkeeper Guzan was a major reason why`\
 https://nytimes.com/athletic/5921671/2024/11/14/brad-guzan-interview-atlanta-united-messi/
