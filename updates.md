@@ -1,3 +1,7 @@
+**The Maple Leafs changed their plan on defence and unlocked a defensive monster**\
+`Chris Tanev and Jake McCabe are not only winning their minutes as a pairing — they're dominating.`\
+https://nytimes.com/athletic/5922213/2024/11/14/maple-leafs-defense-chris-tanev-jake-mccabe/
+
 **What Will Happen to Social Security After Trump Takes Office?**\
 `Readers are concerned that his campaign proposals would put Social Security’s finances on thinner ice, endangering their payments.`\
 https://nytimes.com/2024/11/14/business/trump-social-security-benefits.html
