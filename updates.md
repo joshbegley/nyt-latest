@@ -1,3 +1,15 @@
+**The Briefing: Greece 0 England 3: Lee Carsley's Watkins gamble pays off as Pickford and Curtis Jones impress**\
+`The key talking points from England's Nations League game in Athens`\
+https://nytimes.com/athletic/5919871/2024/11/14/greece-england-nations-league-result-analysis/
+
+**Tiafoe fined $120,000 for swearing repeatedly at umpire in Shanghai Masters**\
+`Tiafoe's fine is the second-biggest in the history of the ATP Tour.`\
+https://nytimes.com/athletic/5923099/2024/11/14/frances-tiafoe-fine-swearing-umpire-shanghai-masters/
+
+**NASA Says Space Station Astronaut Is in ‘Incredible Health’**\
+`The agency’s top medical official was responding to rumors that Suni Williams had lost an unusual amount of weight during an extended stay in orbit.`\
+https://nytimes.com/2024/11/14/science/nasa-suni-williams-healthy.html
+
 **Elon Musk Met With Iran’s U.N. Ambassador, Iranian Officials Say**\
 `The tech billionaire, a top adviser to President-elect Donald J. Trump, was reported to have discussed ways to defuse tensions between Iran and the United States.`\
 https://nytimes.com/2024/11/14/world/middleeast/elon-musk-iran-trump.html
