@@ -1,3 +1,23 @@
+**Patriots DT Christian Barmore expected to return to practice Thursday**\
+`The move opens up a potential return to games for Barmore as soon as the end of this month.`\
+https://nytimes.com/athletic/5922287/2024/11/14/christian-barmore-practice-return-patriots/
+
+**Do the Mets have enough to swing a deal for White Sox ace Garrett Crochet?**\
+`The Mets may have as many as three vacancies in their rotation, making interest in Crochet a no-brainer.`\
+https://nytimes.com/athletic/5918747/2024/11/14/new-york-mets-garrett-crochet-trade-rumors/
+
+**'It's so special': How Giannis Antetokounmpo scored 59 points to carry Bucks past Pistons**\
+`"I'm not well versed enough in the English language ... to find new ways to describe Giannis' brilliance," Brook Lopez said.`\
+https://nytimes.com/athletic/5921851/2024/11/14/how-giannis-antetokounmpo-scored-59-points-to-carry-bucks-past-pistons-its-so-special/
+
+**NFL Scouting Combine to remain in Indianapolis through 2026**\
+`The Indiana capital has hosted the event since 1987.`\
+https://nytimes.com/athletic/5922218/2024/11/14/nfl-combine-2026-indianapolis/
+
+**The Curious Fight Between Jake Paul and Mike Tyson**\
+`Meet the 27-year-old social media influencer and 58-year-old former heavyweight champion who are gearing up for a bizarre boxing match.`\
+https://nytimes.com/2024/11/14/arts/television/jake-paul-mike-tyson-fight-netflix.html
+
 **Meta Fined $840 Million in Europe for Boosting Marketplace Unfairly**\
 `Meta said it would appeal the decision by the European Union, which said the company had abused its dominance in social networking to strengthen its shopping and classified ads service.`\
 https://nytimes.com/2024/11/14/business/meta-european-union-facebook-marketplace-fine.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/14/business/media/alex-jones-infowars-the-onion.html
 **Cowboys Today: Open the roof Monday night? Top college RB wants to play in Dallas**\
 `How has Dallas fared with the roof open? Three players to watch Monday and what doors could the Cowboys' draft position open for them?`\
 https://nytimes.com/athletic/5921745/2024/11/14/cowboys-today-stadium-roof-mnf-nfl-draft-ashton-jeanty/
-
-**Ben & Jerry’s Accuses Unilever of Seeking to Muzzle Its Gaza Stance**\
-`The ice cream maker claimed in a lawsuit that its parent company tried to stop it from expressing support for Palestinian refugees.`\
-https://nytimes.com/2024/11/14/business/ben-and-jerrys-unilever-lawsuit-israel-gaza.html
-
-**What the film says about all four teams at the Champions Classic**\
-`Kentucky's ceiling rests on the shoulders of Amari Williams. Duke is talented, but needs more creativity. And Michigan State has work to do.`\
-https://nytimes.com/athletic/5921230/2024/11/14/champions-classic-kentucky-duke-kansas-michigan-state/
-
-**Ranieri comes out of retirement to take over at Roma**\
-`Claudio Ranieri has been appointed as the new the head coach of Roma.`\
-https://nytimes.com/athletic/5921844/2024/11/14/claudio-ranieri-roma/
-
-**Norway Apologizes for Forced Assimilation of Sami and Other Minorities**\
-`A policy of “Norwegianization” silenced the languages of Indigenous people and forced their children into boarding schools. The long-awaited apology avoided the issue of land rights.`\
-https://nytimes.com/2024/11/14/world/europe/norway-sami-kvens-forest-finns-apology.html
-
-**Wimbledon junior finalist Nikola Bartunkova accepts doping ban, can return to tennis**\
-`Bartunkova was provisionally suspended in May and her ban covers the length of that suspension.`\
-https://nytimes.com/athletic/5922031/2024/11/14/nikola-bartunkova-tennis-doping-ban/
 
