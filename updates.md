@@ -1,3 +1,7 @@
+**Typhoon Usagi Threatens Floods and Landslides in the Philippines**\
+`The storm had winds equivalent to those of a Category 4 hurricane on Thursday. Forecasters warned of torrential rain in the north of the country.`\
+https://nytimes.com/2024/11/14/world/asia/typhoon-usagi-philippines.html
+
 **Oliver Glasner, Crystal Palace and the familiar failings undermining hopes of progress**\
 `A failure to build on the momentum from a run in with insufficient recruitment and uncertainty over the ownership are recurring themes`\
 https://nytimes.com/athletic/5910548/2024/11/14/palace-glasner-vieira-hodgson-parish/
