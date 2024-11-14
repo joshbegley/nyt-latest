@@ -1,3 +1,7 @@
+**Math Museum Announces Move to New Location**\
+`The National Museum of Mathematics in New York is expected to open a 34,363-square-foot building in 2026.`\
+https://nytimes.com/2024/11/14/arts/design/math-museum-new-location.html
+
 **Chemist Identifies Mystery ‘Blobs’ Washing Up in Newfoundland**\
 `A researcher thinks he has knows what has been come ashore on miles of beaches. Canada’s environmental agency says it is still looking into it.`\
 https://nytimes.com/2024/11/14/world/canada/blobs-canada-newfoundland.html
