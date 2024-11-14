@@ -1,3 +1,11 @@
+**‘There Were Signs’: How the Polls Anticipated Some of Trump’s Key Gains**\
+`The available data confirms that Donald Trump made inroads among Hispanic, Black and big-city voters. The results mean that, to a great extent, the pre-election polls had it right.`\
+https://nytimes.com/2024/11/14/us/elections/polls-trump-gains.html
+
+**I Can’t Wait for Matt Gaetz’s Confirmation Hearings**\
+`Trump’s choice to lead the Justice Department is a flagrant provocation that is, like a pulpy B movie, so bad it’s good.`\
+https://nytimes.com/2024/11/14/opinion/i-cant-wait-for-matt-gaetzs-confirmation-hearings.html
+
 **Trump Takes on the Pillars of the ‘Deep State’**\
 `The Justice Department, Pentagon and intelligence agencies were the three areas of government that proved to be the most stubborn obstacles to Mr. Trump in his first term.`\
 https://nytimes.com/2024/11/14/us/politics/trump-gaetz-gabbard-hegseth-deep-state.html
