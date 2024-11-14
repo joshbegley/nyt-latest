@@ -1,3 +1,7 @@
+**NBA Lookahead: Victor Wembanyama's slow start to the season? Yeah, about that ...**\
+`Wembanyama seems to be figuring things out. He and the Spurs play the Lakers as part of a big NBA Cup Friday schedule.`\
+https://nytimes.com/athletic/5919187/2024/11/14/nba-lookahead-victor-wembanyama-nba-cup-weekend/
+
 **What Would a Matt Gaetz Justice Department Mean for Business?**\
 `The Trump loyalist supports an “aggressive” antitrust approach and has called for breaking up Big Tech. But can the controversial nominee win Senate approval?`\
 https://nytimes.com/2024/11/14/business/dealbook/trump-gaetz-justice-department-antitrust.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921866/2024/11/14/mbappe-tuchel-bentancur-league-1
 **Ibrahim Diarra arrives in Barcelona, the latest product of the club's changed scouting strategy**\
 `The Mali forward's move to Barcelona is the result of the club's increased focus on talent emerging out of Africa`\
 https://nytimes.com/athletic/5920558/2024/11/14/ibrahim-diarra-barcelona-african-scouting/
-
-**Sotheby’s Settles Tax Fraud Lawsuit for $6.25 Million**\
-`New York’s attorney general said in a lawsuit that the auction house had helped collectors avoid tax payments on art purchases.`\
-https://nytimes.com/2024/11/14/arts/design/sothebys-tax-fraud-settlement-new-york.html
 
