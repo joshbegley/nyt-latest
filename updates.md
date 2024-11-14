@@ -1,3 +1,7 @@
+**Word of the Day: complacent**\
+`This word has appeared in 143 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/14/learning/word-of-the-day-complacent.html
+
 **Louis Vuitton’s Luxury Pit Stop**\
 `Who says a temporary space needs to look undone?`\
 https://nytimes.com/2024/11/14/style/louis-vuittons-luxury-pit-stop.html
