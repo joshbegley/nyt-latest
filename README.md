@@ -1,3 +1,7 @@
+**F.B.I. Searches Home of Founder of Polymarket Betting Website**\
+`The search involving Shayne Coplan, the founder of Polymarket, known for its presidential election odds, was part of a criminal investigation, three people said.`\
+https://nytimes.com/2024/11/13/technology/polymarket-shayne-coplan-fbi-search.html
+
 **Corrections: Nov. 14, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 14, 2024.`\
 https://nytimes.com/2024/11/13/pageoneplus/corrections-nov-14-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921243/2024/11/13/tennessee-volunteers-quarterback
 **Gaetz, Gabbard and Hegseth: Trump’s Appointments Are a Show of Force**\
 `President-elect Donald J. Trump’s cabinet picks show that he prizes loyalty over experience and is fueled by retribution.`\
 https://nytimes.com/2024/11/13/us/politics/gaetz-gabbard-hegseth-trump-appointees.html
-
-**Diego Forlan's pro tennis debut ends in defeat for former Man United and Uruguay footballer**\
-`Forlan has been playing on the International Tennis Federation tour for over-45s, but received a wildcard to his home tournament.`\
-https://nytimes.com/athletic/5920561/2024/11/13/diego-forlan-tennis-debut-result/
 
