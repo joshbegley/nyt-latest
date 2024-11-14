@@ -1,3 +1,11 @@
+**Five Michigan players to watch who are crucial to Wolverines' future**\
+`Michigan’s slide to 5-5 has made a roster overhaul all but inevitable, but there are a handful of rising players worth watching.`\
+https://nytimes.com/athletic/5920280/2024/11/14/michigan-football-roster-future-2025/
+
+**NFC East Roundtable: Commanders-Eagles showdown, how to fix Cowboys and Giants**\
+`What's one thing each team in the division can be encouraged by? And who has the upper hand when Washington and Philly meet Thursday night?`\
+https://nytimes.com/athletic/5920262/2024/11/14/eagles-commanders-giants-cowboys-nfc-east/
+
 **I Believe in Miracles. Just Not All of Them.**\
 `Let’s not become the supernatural states of America.`\
 https://nytimes.com/2024/11/14/opinion/christianity-spirituality-psychedelics-trump.html
