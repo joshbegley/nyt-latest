@@ -1,3 +1,7 @@
+**Where Are Property Taxes Rising the Most?**\
+`They’re up in nearly every major U.S. metro area, but homeowners in the South have seen especially large increases.`\
+https://nytimes.com/2024/11/14/realestate/property-taxes-rising-states.html
+
 **Craig Melvin Is Named Hoda Kotb’s Replacement on ‘Today’**\
 `By selecting Mr. Melvin, a familiar face on the show, network executives chose to go the steadiest route possible.`\
 https://nytimes.com/2024/11/14/business/media/craig-melvin-hoda-kotb-today.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921671/2024/11/14/brad-guzan-interview-atlanta-uni
 **Homeland Security Department to Release New A.I. Guidance**\
 `The voluntary best practices are aimed at companies that own or operate critical infrastructure.`\
 https://nytimes.com/2024/11/14/business/dealbook/homeland-security-department-to-release-new-ai-guidance.html
-
-**Football, fatherhood and new opportunities: Get to know new Bears OC Thomas Brown**\
-`Brown was a college coach before Sean McVay gave him a chance in the NFL. Now the Bears are hoping he can turn around their offense.`\
-https://nytimes.com/athletic/5921002/2024/11/14/bears-offensive-coordinator-thomas-brown/
 
