@@ -1,3 +1,11 @@
+**Why We Got It So Wrong**\
+`It turns out a lot of people don’t behave like ambassadors from this or that group. They think for themselves in unexpected ways.`\
+https://nytimes.com/2024/11/14/opinion/identity-groups-politics.html
+
+**Here’s How Trump Could Lose the Coming Trade War**\
+`Economic conflict is coming. He is utterly unsuited to manage it.`\
+https://nytimes.com/2024/11/14/opinion/trump-china-tariffs.html
+
 **Stress From Fireworks Killed Baby Red Panda, Zoo in Scotland Says**\
 `Camera footage showed Roxie, a three-month-old, agitated by the noise. She died shortly afterward.`\
 https://nytimes.com/2024/11/14/world/14xp-red-panda-death-edinburgh-zoo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/nyregion/broker-fees-nyc.html
 **4-Month-Old Dies From Cocaine Intoxication**\
 `Ariel Gonzalez died in the Bronx in August. There have been no arrests in the case, which the New York City medical examiner said on Thursday was a homicide.`\
 https://nytimes.com/2024/11/14/nyregion/4-month-old-cocaine-death.html
-
-**Trump Picks Todd Blanche, His Defense Lawyer, to Be Deputy Attorney General**\
-`Mr. Blanche, a former supervising federal prosecutor in Manhattan, oversaw the president-elect’s legal defense against multiple indictments.`\
-https://nytimes.com/2024/11/14/us/politics/todd-blanche-deputy-attorney-general-trump.html
-
-**Until Saturday: Why do fans hate noon games? Plus, Week 12's viewer guide**\
-`Welcome to Until Saturday, the five-star college football newsletter: Why do noon games cause so much angst for fans?`\
-https://nytimes.com/athletic/5922620/2024/11/14/college-football-week-12-until-saturday/
 
