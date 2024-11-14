@@ -1,3 +1,7 @@
+**Oliver Glasner, Crystal Palace and the familiar failings undermining hopes of progress**\
+`A failure to build on the momentum from a run in with insufficient recruitment and uncertainty over the ownership are recurring themes`\
+https://nytimes.com/athletic/5910548/2024/11/14/palace-glasner-vieira-hodgson-parish/
+
 **What England need to do to secure UEFA Nations League promotion**\
 `With automatic promotion on the line, a depleted England travel to Athens to face a Greece side unbeaten in this season's Nations League`\
 https://nytimes.com/athletic/5917476/2024/11/14/greece-england-uefa-nations-league-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917735/2024/11/14/england-nations-league-lee-carsl
 **Explained: The drive for women's football to be a €1bn industry by 2030**\
 `UEFA's Unstoppable strategy sets out ambitious plans for growth and is also seeking to put women and players at the heart of decision-making`\
 https://nytimes.com/athletic/5919228/2024/11/14/uefa-womens-football-billion-euro-industry/
-
-**Which Premier League player has surprised you this season (for good or bad)?**\
-`Has a new signing hit the ground running? Or is last season's star player struggling for form? Our writers give their views`\
-https://nytimes.com/athletic/5914650/2024/11/14/premier-league-players-surprise/
 
