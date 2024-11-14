@@ -1,3 +1,7 @@
+**What to Know About Broker Fees in New York City**\
+`The City Council overwhelmingly passed a measure to shift the burden of broker fees to landlords. Here’s what that means for renters.`\
+https://nytimes.com/2024/11/14/nyregion/broker-fees-nyc.html
+
 **4-Month-Old Dies From Cocaine Intoxication**\
 `Ariel Gonzalez died in the Bronx in August. There have been no arrests in the case, which the New York City medical examiner said on Thursday was a homicide.`\
 https://nytimes.com/2024/11/14/nyregion/4-month-old-cocaine-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922974/2024/11/14/nfl-best-quarterbacks-covering-s
 **The Investigations Into Matt Gaetz: What to Know**\
 `Federal prosecutors scrutinized claims that Donald Trump’s choice for attorney general had sex with an underage girl, but did not charge him. The House Ethics Committee had its own inquiry.`\
 https://nytimes.com/2024/11/14/us/politics/matt-gaetz-investigations-explainer.html
-
-**‘There Were Signs’: How the Polls Anticipated Some of Trump’s Key Gains**\
-`The available data confirms that Donald Trump made inroads among Hispanic, Black and big-city voters. The results mean that, to a great extent, the pre-election polls had it right.`\
-https://nytimes.com/2024/11/14/us/elections/polls-trump-gains.html
 
