@@ -1,3 +1,7 @@
+**Trump Takes on the Pillars of the ‘Deep State’**\
+`The Justice Department, Pentagon and intelligence agencies were the three areas of government that proved to be the most stubborn obstacles to Mr. Trump in his first term.`\
+https://nytimes.com/2024/11/14/us/politics/trump-gaetz-gabbard-hegseth-deep-state.html
+
 **30 People Charged in Manhattan Gang War That Killed 7**\
 `Washington Heights and Inwood were the scene of deadly feuds that began six years ago after a killing. Thursday’s charges were just the latest in a series of gang takedowns.`\
 https://nytimes.com/2024/11/14/nyregion/nyc-gangs-charges-alvin-bragg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/style/eli-zabars-substack-night.html
 **Chiefs lose Harrison Butker to IR, sign Spencer Shrader as fill-in: Source**\
 `Butker will miss at least the next four games and can return as early as Kansas City's Week 15 road matchup against the Cleveland Browns.`\
 https://nytimes.com/athletic/5923278/2024/11/14/chiefs-harrison-butker-injured-reserve-spencer-shrader/
-
-**Why still no CHSN on Comcast? Hulu, YouTube TV? App price?: Q&A with network president**\
-`CHSN president Jason Coyle spoke with The Athletic to explain a number of issues with the network as its app launches Friday.`\
-https://nytimes.com/athletic/5923232/2024/11/14/chsn-comcast-hulu-youtube-tv/
 
