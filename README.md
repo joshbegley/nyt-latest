@@ -1,3 +1,11 @@
+**Trump Picked R.F.K. Jr. to Be Health Secretary**\
+`Also, Gov. Kathy Hochul revived New York’s congestion pricing plan. Here’s the latest at the end of Thursday,`\
+https://nytimes.com/2024/11/14/briefing/trump-rfk-jr-new-york-congestion-pricing.html
+
+**Eli Zabar’s Substack Night**\
+`A food king of Manhattan welcomes the newsletter crowd for a party celebrating the 50th anniversary of his Upper East Side cafe.`\
+https://nytimes.com/2024/11/14/style/eli-zabars-substack-night.html
+
 **Chiefs lose Harrison Butker to IR, sign Spencer Shrader as fill-in: Source**\
 `Butker will miss at least the next four games and can return as early as Kansas City's Week 15 road matchup against the Cleveland Browns.`\
 https://nytimes.com/athletic/5923278/2024/11/14/chiefs-harrison-butker-injured-reserve-spencer-shrader/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/trump-gaetz-decision-plane.html
 **The Briefing: Greece 0 England 3: Carsley's Watkins gamble pays off as Pickford and Jones impress**\
 `The key talking points from England's Nations League game in Athens`\
 https://nytimes.com/athletic/5919871/2024/11/14/greece-england-nations-league-result-analysis/
-
-**Tiafoe fined $120,000 for swearing repeatedly at umpire in Shanghai Masters**\
-`Tiafoe's fine is the second-biggest in the history of the ATP Tour.`\
-https://nytimes.com/athletic/5923099/2024/11/14/frances-tiafoe-fine-swearing-umpire-shanghai-masters/
-
-**NASA Says Space Station Astronaut Is in ‘Incredible Health’**\
-`The agency’s top medical official was responding to rumors that Suni Williams had lost an unusual amount of weight during an extended stay in orbit.`\
-https://nytimes.com/2024/11/14/science/nasa-suni-williams-healthy.html
 
