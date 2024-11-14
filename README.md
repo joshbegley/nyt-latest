@@ -1,3 +1,7 @@
+**As French and Israeli Teams Meet, Soccer Takes a Back Seat to Politics and Security**\
+`After the recent violence around an Israeli team’s game in Amsterdam, French leaders insisted on proceeding under heavy security with a France-Israel match, and on showing up, themselves.`\
+https://nytimes.com/2024/11/14/world/europe/france-israel-soccer-security.html
+
 **What to watch in college basketball this weekend: Alabama-Purdue, Pitino face-off and more**\
 `How to watch, and why to watch, this weekend's biggest college basketball games, including Alabama at Purdue.`\
 https://nytimes.com/athletic/5920764/2024/11/14/watch-college-basketball-alabama-purdue/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/style/gavin-newsom-suits-memes.html
 **Finding Lagavulin at the Edge of the World**\
 `From the remote Isle of Islay, a storied distillery redefines Single Malt Scotch Whisky.`\
 https://nytimes.com/paidpost/lagavulin/finding-lagavulin-at-the-edge-of-the-world.html
-
-**​Trump Keeps Turning to Florida for His Administration Picks**\
-`The state has a deep bench of Republican elected officials, many of whom have gotten to know the president-elect by visiting him at Mar-a-Lago.`\
-https://nytimes.com/2024/11/14/us/politics/trump-florida-cabinet-staff-picks.html
 
