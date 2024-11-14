@@ -24,7 +24,7 @@ https://nytimes.com/2024/11/14/opinion/trump-china-tariffs.html
 
 **Stress From Fireworks Killed Baby Red Panda, Zoo in Scotland Says**\
 `Camera footage showed Roxie, a three-month-old, agitated by the noise. She died shortly afterward.`\
-https://nytimes.com/2024/11/14/world/14xp-red-panda-death-edinburgh-zoo.html
+https://nytimes.com/2024/11/14/world/red-panda-death-edinburgh-zoo.html
 
 **Three-Quarters of U.S. Adults Are Now Overweight or Obese**\
 `A sweeping new paper reveals the dramatic rise of obesity rates nationwide since 1990.`\
