@@ -1,3 +1,11 @@
+**Yohe's 10 observations: Penguins secure point, but it's hard to feel good about this team**\
+`The Penguins came back from a two-goal deficit to force overtime but fell 3-2 to the Red Wings.`\
+https://nytimes.com/athletic/5921393/2024/11/13/penguins-progress-overtime-red-wings/
+
+**Antetokounmpo scores 59, just short of career high, as Bucks win in OT**\
+`Giannis Antetokounmpo finished five points shy of tying his career-high 64-point game against the Indiana Pacers last season.`\
+https://nytimes.com/athletic/5921559/2024/11/13/giannis-antetokounmpo-career-high-points-bucks-pistons/
+
 **Explosions in Brazil’s Capital Leave One Dead**\
 `Two blasts went off in Brasília, near the Supreme Court. The authorities were treating it as the work of a lone bomber, who was believed to have been the person killed.`\
 https://nytimes.com/2024/11/13/world/americas/brazil-supreme-court-explosions.html
