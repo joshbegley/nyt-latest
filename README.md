@@ -1,6 +1,6 @@
 **Trump Picks Todd Blanche, His Defense Lawyer, to Be Deputy Attorney General**\
 `Mr. Blanche, a former supervising federal prosecutor in Manhattan, oversaw the president-elect’s legal defense against multiple indictments.`\
-https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/todd-blanche-deputy-attorney-general-trump
+https://nytimes.com/2024/11/14/us/politics/todd-blanche-deputy-attorney-general-trump.html
 
 **Until Saturday: Why do fans hate noon games? Plus, Week 12's viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Why do noon games cause so much angst for fans?`\
