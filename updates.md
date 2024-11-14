@@ -1,3 +1,11 @@
+**Finding Lagavulin at the Edge of the World**\
+`From the remote Isle of Islay, a storied distillery redefines Single Malt Scotch Whisky.`\
+https://nytimes.com/paidpost/lagavulin/finding-lagavulin-at-the-edge-of-the-world.html
+
+**​Trump Keeps Turning to Florida for His Administration Picks**\
+`The state has a deep bench of Republican elected officials, many of whom have gotten to know the president-elect by visiting him at Mar-a-Lago.`\
+https://nytimes.com/2024/11/14/us/politics/trump-florida-cabinet-staff-picks.html
+
 **Trump Talked Twice as Much as Harris on the Campaign Trail**\
 `A detailed analysis shows the gap in speaking times across various platforms.`\
 https://nytimes.com/2024/11/14/upshot/trump-harris-campaign-speaking.html
