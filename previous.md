@@ -1,3 +1,7 @@
+**Tennessee QB Nico Iamaleava listed as questionable for Georgia game**\
+`Tennessee coach Josh Heupel has been coy regarding Iamaleava's status. Georgia running back Trevor Etienne is also questionable.`\
+https://nytimes.com/athletic/5921243/2024/11/13/tennessee-volunteers-quarterback-nico-iamaleava-injury/
+
 **Gaetz, Gabbard and Hegseth: Trump’s Appointments Are a Show of Force**\
 `President-elect Donald J. Trump’s cabinet picks show that he prizes loyalty over experience and is fueled by retribution.`\
 https://nytimes.com/2024/11/13/us/politics/gaetz-gabbard-hegseth-trump-appointees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/13/opinion/matt-gaetz-attorney-general-trump.html
 **Brush Fire Burns in Manhattan, the Latest of Several Blazes in the Region**\
 `The fire, in Inwood Hill Park at the northern tip of Manhattan, followed brush fires that burned in Brooklyn, the Bronx and New Jersey over the past week.`\
 https://nytimes.com/2024/11/13/nyregion/inwood-hill-park-fire-nyc.html
-
-**John Thune Rises to the Senate Top**\
-`The South Dakota Republican failed in his first try for the Senate but came back to defeat a chamber leader. Now he will be the leader himself.`\
-https://nytimes.com/2024/11/13/us/john-tune-senate-republican-leader.html
 

@@ -1,3 +1,7 @@
+**Tennessee QB Nico Iamaleava listed as questionable for Georgia game**\
+`Tennessee coach Josh Heupel has been coy regarding Iamaleava's status. Georgia running back Trevor Etienne is also questionable.`\
+https://nytimes.com/athletic/5921243/2024/11/13/tennessee-volunteers-quarterback-nico-iamaleava-injury/
+
 **Gaetz, Gabbard and Hegseth: Trump’s Appointments Are a Show of Force**\
 `President-elect Donald J. Trump’s cabinet picks show that he prizes loyalty over experience and is fueled by retribution.`\
 https://nytimes.com/2024/11/13/us/politics/gaetz-gabbard-hegseth-trump-appointees.html
