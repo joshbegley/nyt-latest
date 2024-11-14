@@ -1,3 +1,19 @@
+**Will Bill Belichick return to coaching? Bill Cowher thinks so**\
+`Cowher, an NFL analyst, also confirmed he will be back at CBS for the 2025 season.`\
+https://nytimes.com/athletic/5922696/2024/11/14/bill-cowher-bill-belichick-comments/
+
+**What Kind of Crier Are You?**\
+`Take our quiz to find out which types of situations tend to make you teary — and what that says about you.`\
+https://nytimes.com/interactive/2024/11/14/well/mind/crying-quiz-tears.html
+
+**‘All We Imagine as Light’ Review: Tender Comrades**\
+`In Payal Kapadia’s extraordinary drama, three women in Mumbai search for connections amid the city’s vibrant and darkly alienating churn.`\
+https://nytimes.com/2024/11/14/movies/all-we-imagine-as-light-review.html
+
+**Trotter: Joel Embiid shoving incident a microcosm of our society's loss of respect for one another**\
+`All-Star's clash with columnist is sad sign of the times and another indication that the decline in decorum is bleeding deeper into sports.`\
+https://nytimes.com/athletic/5921454/2024/11/14/joel-embiid-athlete-media-relationships/
+
 **Season 2 of ‘Bad Sisters’ Is Still Stylish and Thrilling**\
 `There is a sense, however, that the most important events in this offbeat Apple TV+ drama happened in Season 1.`\
 https://nytimes.com/2024/11/14/arts/television/bad-sisters-season-2-apple-tv-plus.html
