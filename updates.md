@@ -1,3 +1,11 @@
+**What England need to do to secure UEFA Nations League promotion**\
+`With automatic promotion on the line, a depleted England travel to Athens to face a Greece side unbeaten in this season's Nations League`\
+https://nytimes.com/athletic/5917476/2024/11/14/greece-england-uefa-nations-league-game/
+
+**How Leeds United's restructured recruitment department now works**\
+`We break down the key figures at the club and their roles in transfer activity at Elland Road`\
+https://nytimes.com/athletic/5919278/2024/11/14/leeds-united-recruitment-structure-explained/
+
 **Liverpool mailbag: Salah future, Marmoush interest and January plans**\
 `The Athletic's Liverpool expert James Pearce answers your questions about Arne Slot's side`\
 https://nytimes.com/athletic/5914405/2024/11/14/liverpool-mailbag-mohamed-salah-omar-marmoush-transfer/

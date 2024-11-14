@@ -1,3 +1,11 @@
+**What England need to do to secure UEFA Nations League promotion**\
+`With automatic promotion on the line, a depleted England travel to Athens to face a Greece side unbeaten in this season's Nations League`\
+https://nytimes.com/athletic/5917476/2024/11/14/greece-england-uefa-nations-league-game/
+
+**How Leeds United's restructured recruitment department now works**\
+`We break down the key figures at the club and their roles in transfer activity at Elland Road`\
+https://nytimes.com/athletic/5919278/2024/11/14/leeds-united-recruitment-structure-explained/
+
 **Liverpool mailbag: Salah future, Marmoush interest and January plans**\
 `The Athletic's Liverpool expert James Pearce answers your questions about Arne Slot's side`\
 https://nytimes.com/athletic/5914405/2024/11/14/liverpool-mailbag-mohamed-salah-omar-marmoush-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5919228/2024/11/14/uefa-womens-football-billion-eur
 **Which Premier League player has surprised you this season (for good or bad)?**\
 `Has a new signing hit the ground running? Or is last season's star player struggling for form? Our writers give their views`\
 https://nytimes.com/athletic/5914650/2024/11/14/premier-league-players-surprise/
-
-**Thursday Briefing**\
-`A victory for the Republican Party.`\
-https://nytimes.com/2024/11/14/briefing/house-republicans-ukraine-israel.html
-
-**China’s Latest Livestream Sensation: Shopping With a Game of Chance**\
-`Selling products on livestream video has been a big business in China for years. The latest e-commerce trend adds a game of chance to the mix and leaves many addicted.`\
-https://nytimes.com/interactive/2024/11/14/world/asia/china-livestream-blind-box.html
 
