@@ -1,3 +1,19 @@
+**Americans Have Regained Modest Trust in Scientists, Survey Finds**\
+`A sharp partisan divide remains over how involved researchers should be in policy decisions.`\
+https://nytimes.com/2024/11/14/health/trust-science-americans.html
+
+**Israeli Airstrikes Hit Suburbs South of Beirut**\
+`The Dahiya, an area just outside Beirut, has been a frequent target of airstrikes since Israel stepped up its air war in Lebanon in September.`\
+https://nytimes.com/video/world/middleeast/100000009825503/beirut-lebanon-dahiya-strikes.html
+
+**Tari Eason's active hands, Keldon Johnson in driver's seat and more: The IkoSystem**\
+`"At times, he'll get burned for it but more often than not, he'll make a play out of it," says coach Ime Udoka of Eason's defensive acumen.`\
+https://nytimes.com/athletic/5918330/2024/11/14/rockets-tari-eason-spurs-keldon-johnson-wembanyama/
+
+**Israel Strikes Humanitarian Zone in Gaza**\
+`The Israeli military said it had been targeting a loaded weapons launcher in the area, where thousands of displaced people are sheltering in a tent camp.`\
+https://nytimes.com/2024/11/14/world/middleeast/israel-airstrike-humanitarian-zone-gaza.html
+
 **Patriots DT Christian Barmore expected to return to practice Thursday**\
 `The move opens up a potential return to games for Barmore as soon as the end of this month.`\
 https://nytimes.com/athletic/5922287/2024/11/14/christian-barmore-practice-return-patriots/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/14/arts/television/jake-paul-mike-tyson-fight-netfli
 **Meta Fined $840 Million in Europe for Boosting Marketplace Unfairly**\
 `Meta said it would appeal the decision by the European Union, which said the company had abused its dominance in social networking to strengthen its shopping and classified ads service.`\
 https://nytimes.com/2024/11/14/business/meta-european-union-facebook-marketplace-fine.html
-
-**Canucks notebook: Is Marcus Pettersson a trade fit? Is Nils Höglander in the doghouse?**\
-`Would a trade between the Canucks and Penguins make sense? Is Pettersson a fit for what Vancouver needs most on the back end?`\
-https://nytimes.com/athletic/5921806/2024/11/14/canucks-marcus-pettersson-trade-nils-hoglander/
-
-**How the Cardinals shed their slow start and jumped to the top of the NFC West**\
-`On Oct. 13, the Cardinals had their worst game in two years. Since then, they've ripped off four wins in a row to take the division lead.`\
-https://nytimes.com/athletic/5920928/2024/11/14/arizona-cardinals-winning-streak-nfc-west-leaders/
-
-**The Onion Says It Has Bought Infowars, Alex Jones’s Site, Out of Bankruptcy**\
-`The satirical news site planned to turn Infowars into a parody of itself, mocking “weird internet personalities” who peddle conspiracy theories and health supplements.`\
-https://nytimes.com/2024/11/14/business/media/alex-jones-infowars-the-onion.html
-
-**Cowboys Today: Open the roof Monday night? Top college RB wants to play in Dallas**\
-`How has Dallas fared with the roof open? Three players to watch Monday and what doors could the Cowboys' draft position open for them?`\
-https://nytimes.com/athletic/5921745/2024/11/14/cowboys-today-stadium-roof-mnf-nfl-draft-ashton-jeanty/
 
