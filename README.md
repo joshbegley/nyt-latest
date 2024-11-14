@@ -1,3 +1,7 @@
+**Canucks notebook: Is Marcus Pettersson a trade fit? Is Nils Höglander in the doghouse?**\
+`Would a trade between the Canucks and Penguins make sense? Is Pettersson a fit for what Vancouver needs most on the back end?`\
+https://nytimes.com/athletic/5921806/2024/11/14/canucks-marcus-pettersson-trade-nils-hoglander/
+
 **How the Cardinals shed their slow start and jumped to the top of the NFC West**\
 `On Oct. 13, the Cardinals had their worst game in two years. Since then, they've ripped off four wins in a row to take the division lead.`\
 https://nytimes.com/athletic/5920928/2024/11/14/arizona-cardinals-winning-streak-nfc-west-leaders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922031/2024/11/14/nikola-bartunkova-tennis-doping-
 **Where Are Property Taxes Rising the Most?**\
 `They’re up in nearly every major U.S. metro area, but homeowners in the South have seen especially large increases.`\
 https://nytimes.com/2024/11/14/realestate/property-taxes-rising-states.html
-
-**Craig Melvin Is Named Hoda Kotb’s Replacement on ‘Today’**\
-`By selecting Mr. Melvin, a familiar face on the show, network executives chose to go the steadiest route possible.`\
-https://nytimes.com/2024/11/14/business/media/craig-melvin-hoda-kotb-today.html
 
