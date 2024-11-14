@@ -1,3 +1,11 @@
+**Washington Wizards stock watch: Who’s trending up or down after 10 games?**\
+`The Wizards have opened their season 2-8, but there have been bright spots, including several recent draft picks.`\
+https://nytimes.com/athletic/5921801/2024/11/14/washington-wizards-bilal-couliably-stock-watch/
+
+**Disney Paints a Rosy Picture for Coming Years**\
+`The company, which does not typically release guidance to investors, said that profit would jump over the next three years.`\
+https://nytimes.com/2024/11/14/business/disney-profit-earnings-report.html
+
 **Twins offseason trade block: The 9 players most likely to be shopped**\
 `With no payroll room and lots of motivation to make changes, the Twins' front office could be forced to make some tough trade decisions.`\
 https://nytimes.com/athletic/5908568/2024/11/14/twins-offseason-trades-players-carlos-correa/

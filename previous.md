@@ -1,3 +1,11 @@
+**Washington Wizards stock watch: Who’s trending up or down after 10 games?**\
+`The Wizards have opened their season 2-8, but there have been bright spots, including several recent draft picks.`\
+https://nytimes.com/athletic/5921801/2024/11/14/washington-wizards-bilal-couliably-stock-watch/
+
+**Disney Paints a Rosy Picture for Coming Years**\
+`The company, which does not typically release guidance to investors, said that profit would jump over the next three years.`\
+https://nytimes.com/2024/11/14/business/disney-profit-earnings-report.html
+
 **Twins offseason trade block: The 9 players most likely to be shopped**\
 `With no payroll room and lots of motivation to make changes, the Twins' front office could be forced to make some tough trade decisions.`\
 https://nytimes.com/athletic/5908568/2024/11/14/twins-offseason-trades-players-carlos-correa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5917663/2024/11/14/nfl-draft-top-pick-raiders-giant
 **QB Betrayal Index: Lamar Jackson acing his toughest test; Justin Herbert finally gets a break**\
 `Jackson's MVP case is even stronger than you think. Meanwhile, the man he's outdueled twice this season, Joe Burrow, could use more help.`\
 https://nytimes.com/athletic/5920003/2024/11/14/lamar-jackson-joe-burrow-justin-herbert/
-
-**‘It ain’t about me. It’s about us’: Kevin Garnett checks in at No. 18 on ‘The Basketball 100’**\
-`In the mid-1990s, Garnett revitalized a moribund Timberwolves franchise before winning an NBA championship with the Celtics in 2008.`\
-https://nytimes.com/athletic/5918365/2024/11/14/kevin-garnett-the-basketball-100-book-excerpt/
-
-**Simon Edvinsson rising to the challenge at crucial moment for Red Wings**\
-`Detroit's young blueliner has been given a challenging role early in his career, but he's quickly made a major impact.`\
-https://nytimes.com/athletic/5921522/2024/11/14/simon-edvinsson-red-wings-overtime-goal/
 
