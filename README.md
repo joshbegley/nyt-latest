@@ -1,3 +1,31 @@
+**Thursday Briefing**\
+`A victory for the Republican Party.`\
+https://nytimes.com/2024/11/14/briefing/house-republicans-ukraine-israel.html
+
+**China’s Latest Livestream Sensation: Shopping With a Game of Chance**\
+`Selling products on livestream video has been a big business in China for years. The latest e-commerce trend adds a game of chance to the mix and leaves many addicted.`\
+https://nytimes.com/interactive/2024/11/14/world/asia/china-livestream-blind-box.html
+
+**Lewis Hall: From fourth-choice Newcastle left-back to England call-up**\
+`The unusual nature of Hall's development may have been challenging, but it has also been the making of him as a left-back.`\
+https://nytimes.com/athletic/5919239/2024/11/14/lewis-hall-newcastle-england/
+
+**Danielle Collins is ready to play on**\
+`The American was supposed to be starting a farewell tour. Instead, she's embracing the complexity of her life off-court to help others.`\
+https://nytimes.com/athletic/5917229/2024/11/14/danielle-collins-tennis-player-retirement-interview/
+
+**A Big Climate Goal Is Getting Farther Out of Reach**\
+`A new report forecasts global temperature increases well above the level that world leaders have pledged to avoid.`\
+https://nytimes.com/2024/11/14/climate/climate-action-tracker-temperatures-emissions.html
+
+**Greece vs England preview, odds, prediction: Top teams in Nations League group meet**\
+`England face a Greece team that the Three Lions in Wembley last month. Will England flip the reverse fixture in Athens?`\
+https://nytimes.com/athletic/5920080/2024/11/14/greece-england-preview-odds-prediction/
+
+**Belgium vs Italy storylines, odds, prediction: Italians can clinch quarter-final berth**\
+`Italy can clinch a spot in the Nations League quarter-finals with a draw while Belgium need a win to stay in contention.`\
+https://nytimes.com/athletic/5920016/2024/11/14/belgium-italy-preview-odds-prediction/
+
 **Quote of the Day: New York City Council Passes Bill to Transfer Fee Loathed by Renters**\
 `Quotation of the Day for Thursday, November 14, 2024`\
 https://nytimes.com/2024/11/13/pageoneplus/quote-of-the-day-new-york-city-council-passes-bill-to-transfer-fee-loathed-by-renters.html
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/11/13/us/trump-news/personnel-office-filled
 **Maple Leafs report cards: John Tavares seals comeback OT win**\
 `The fight Toronto showed in the third period paid off in a 4-3 overtime win over Washington.`\
 https://nytimes.com/athletic/5921577/2024/11/13/maple-leafs-capitals-john-tavares/
-
-**Yohe's 10 observations: Penguins secure a point, but it's hard to feel good about this team**\
-`Pittsburgh came back from a two-goal deficit to force overtime but fell 3-2 to Detroit.`\
-https://nytimes.com/athletic/5921393/2024/11/13/penguins-progress-overtime-red-wings/
-
-**Antetokounmpo scores 59, just short of career high, as Bucks win in OT**\
-`Giannis Antetokounmpo finished five points shy of tying his career-high 64-point game against the Indiana Pacers last season.`\
-https://nytimes.com/athletic/5921559/2024/11/13/giannis-antetokounmpo-career-high-points-bucks-pistons/
-
-**Republicans Ran a Dysfunctional House. Voters Shrugged and Re-elected Them.**\
-`The success of the G.O.P. push to keep the majority suggests that it paid no political price for the chaos and paralysis of its past two years in control of the House.`\
-https://nytimes.com/2024/11/13/us/politics/republican-house-majority.html
-
-**Victor Wembanyama becomes fourth-youngest player with 50-point game**\
-`Wembanyama's previous career high was a 40-point game in late March against the New York Knicks.`\
-https://nytimes.com/athletic/5921484/2024/11/13/victor-wembanyama-career-high-points-stats-spurs/
-
-**House Ethics Panel Was Set to Vote to Release Report Critical of Matt Gaetz**\
-`The committee has been investigating allegations that Mr. Gaetz, President-elect Donald J. Trump’s pick for attorney general, engaged in sexual misconduct and illicit drug use.`\
-https://nytimes.com/2024/11/13/us/politics/matt-gaetz-ethics-committee-report.html
-
-**Republicans Win Control of House, Cementing a G.O.P. Trifecta Under Trump**\
-`The party protected vulnerable incumbents and picked off Democrats in competitive districts, handing the president-elect a unified Congress to enact his agenda.`\
-https://nytimes.com/2024/11/13/us/elections/republican-house-trifecta.html
-
-**Make Some Noise**\
-`Matthew Faiella makes his New York Times Crossword debut. I sincerely hope he comes back.`\
-https://nytimes.com/2024/11/13/crosswords/daily-puzzle-2024-11-14.html
 
