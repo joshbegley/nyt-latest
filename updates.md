@@ -1,3 +1,7 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/11/14/books/review/new-books-recommendations.html
+
 **As French and Israeli Teams Meet, Soccer Takes a Back Seat to Politics and Security**\
 `After the recent violence around an Israeli team’s game in Amsterdam, French leaders insisted on proceeding under heavy security with a France-Israel match, and on showing up, themselves.`\
 https://nytimes.com/2024/11/14/world/europe/france-israel-soccer-security.html
