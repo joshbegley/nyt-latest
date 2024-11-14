@@ -1,3 +1,7 @@
+**Season 2 of ‘Bad Sisters’ Is Still Stylish and Thrilling**\
+`There is a sense, however, that the most important events in this offbeat Apple TV+ drama happened in Season 1.`\
+https://nytimes.com/2024/11/14/arts/television/bad-sisters-season-2-apple-tv-plus.html
+
 **Letters of a Literary Titan Read by Da’Vine Joy Randolph, Emma Roberts and More**\
 `An event at L.A.’s Chateau Marmont celebrated an upcoming book about Eve Babitz and Joan Didion, two writers who documented the magic of California.`\
 https://nytimes.com/2024/11/14/style/didion-babitz-book-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/biden-south-america.html
 **Justice Dept. Reports Broad Civil Rights Abuses at Georgia Jail System**\
 `In a blunt report released on Thursday, the department said officials in Fulton County have had “deliberate indifference to the risks of harms.”`\
 https://nytimes.com/2024/11/14/us/politics/fulton-county-georgia-jail-justice-department.html
-
-**Thomas Castellanos leaves BC after being replaced at QB**\
-`James is a transfer from Florida International, while Castellanos was in his second season as BC's starter.`\
-https://nytimes.com/athletic/5922645/2024/11/14/bc-football-quarterback-thomas-castellanos-grayson-james/
 

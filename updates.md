@@ -1,3 +1,7 @@
+**Season 2 of ‘Bad Sisters’ Is Still Stylish and Thrilling**\
+`There is a sense, however, that the most important events in this offbeat Apple TV+ drama happened in Season 1.`\
+https://nytimes.com/2024/11/14/arts/television/bad-sisters-season-2-apple-tv-plus.html
+
 **Letters of a Literary Titan Read by Da’Vine Joy Randolph, Emma Roberts and More**\
 `An event at L.A.’s Chateau Marmont celebrated an upcoming book about Eve Babitz and Joan Didion, two writers who documented the magic of California.`\
 https://nytimes.com/2024/11/14/style/didion-babitz-book-party.html
