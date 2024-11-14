@@ -1,3 +1,7 @@
+**The Bounce: About Victor Wembanyama's speedy 50 burger**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5921985/2024/11/14/victor-wembanyama-spurs-cleveland-cavaliers-nba-the-bounce/
+
 **Tapestry and Capri End Plans for ‘Accessible Luxury’ Merger**\
 `Tapestry, the owner of Coach, said it would abandon its $8.5 billion deal to buy Capri, the parent company of Michael Kors, after the Federal Trade Commission successfully sued to stop the transaction.`\
 https://nytimes.com/2024/11/14/business/dealbook/tapestry-capri-merger-luxury.html
