@@ -1,3 +1,7 @@
+**How the Cardinals shed their slow start and jumped to the top of the NFC West**\
+`On Oct. 13, the Cardinals had their worst game in two years. Since then, they've ripped off four wins in a row to take the division lead.`\
+https://nytimes.com/athletic/5920928/2024/11/14/arizona-cardinals-winning-streak-nfc-west-leaders/
+
 **The Onion Says It Has Bought Infowars, Alex Jones’s Site, Out of Bankruptcy**\
 `The satirical news site planned to turn Infowars into a parody of itself, mocking “weird internet personalities” who peddle conspiracy theories and health supplements.`\
 https://nytimes.com/2024/11/14/business/media/alex-jones-infowars-the-onion.html
