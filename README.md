@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/14/dining/drinks/thanksgiving-wines-ciders.html
 https://nytimes.com/2024/11/14/fried-chicken-thanksgiving.html
 
 **What Will Trump Do With the Public Service Loan Forgiveness Program?**\
-`There is widespread concern that President-elect Trump may end it, since he has tried before. But that may be the wrong thing to fear.`\
+`There is widespread concern that President-elect Donald J. Trump may end it, since he has tried before. But that may be the wrong thing to fear.`\
 https://nytimes.com/2024/11/14/business/trump-public-service-loan-forgiveness.html
 
 **Where to Find the Avuncular Donald Trump? Check the Manosphere.**\
