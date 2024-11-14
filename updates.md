@@ -1,3 +1,7 @@
+**Certain Days Call for Afternoon Tea**\
+`The city is overflowing with options for a warm pot and small bites that won’t empty your bank account.`\
+https://nytimes.com/2024/11/14/dining/certain-days-call-for-afternoon-tea.html
+
 **At France-Israel Game, Soccer Takes a Back Seat to Politics and Security**\
 `After the recent violence around an Israeli team’s game in Amsterdam, French leaders insisted on proceeding under   security with a France-Israel match, and on showing up, themselves.`\
 https://nytimes.com/2024/11/14/world/europe/france-israel-soccer-security.html
