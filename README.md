@@ -1,3 +1,7 @@
+**How Trump Picked Gaetz**\
+`President-elect Donald J. Trump appeared to have gained some clarity on what he wanted in an attorney general while he was in Washington, the city he left in 2020 after weeks of his election lies.`\
+https://nytimes.com/2024/11/14/us/politics/trump-gaetz-decision-plane.html
+
 **The Briefing: Greece 0 England 3: Lee Carsley's Watkins gamble pays off as Pickford and Curtis Jones impress**\
 `The key talking points from England's Nations League game in Athens`\
 https://nytimes.com/athletic/5919871/2024/11/14/greece-england-nations-league-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/briefing/trump-cabinet-netanyahu-climate.html
 **Certain Days Call for Afternoon Tea**\
 `The city is overflowing with options for a warm pot and small bites that won’t empty your bank account.`\
 https://nytimes.com/2024/11/14/dining/certain-days-call-for-afternoon-tea.html
-
-**Mike Tyson’s Inspiration for a Comeback? Smoking Toad Venom.**\
-`The former heavyweight champion told Interview magazine his experiences with a hallucinogenic poison played a role in his agreeing to fight the YouTuber Jake Paul.`\
-https://nytimes.com/2024/11/14/style/mike-tyson-jake-paul-toad-venom.html
 
