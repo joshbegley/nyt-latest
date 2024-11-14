@@ -1,3 +1,7 @@
+**Where to Find the Avuncular Donald Trump? Check the Manosphere.**\
+`In the months leading up to the election, Donald J. Trump sat for a slew of casual and unconventional conversations with podcasters and streamers. We watched them all.`\
+https://nytimes.com/2024/11/14/arts/donald-trump-podcasts-men.html
+
 **The Bounce: About Victor Wembanyama's speedy 50 burger**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5921985/2024/11/14/victor-wembanyama-spurs-cleveland-cavaliers-nba-the-bounce/

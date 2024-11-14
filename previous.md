@@ -1,3 +1,7 @@
+**Where to Find the Avuncular Donald Trump? Check the Manosphere.**\
+`In the months leading up to the election, Donald J. Trump sat for a slew of casual and unconventional conversations with podcasters and streamers. We watched them all.`\
+https://nytimes.com/2024/11/14/arts/donald-trump-podcasts-men.html
+
 **The Bounce: About Victor Wembanyama's speedy 50 burger**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5921985/2024/11/14/victor-wembanyama-spurs-cleveland-cavaliers-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5918330/2024/11/14/rockets-tari-eason-spurs-keldon-
 **Israel Strikes Humanitarian Zone in Gaza**\
 `The Israeli military said it had been targeting a loaded weapons launcher in the area, where thousands of displaced people are sheltering in a tent camp.`\
 https://nytimes.com/2024/11/14/world/middleeast/israel-airstrike-humanitarian-zone-gaza.html
-
-**Patriots DT Christian Barmore expected to return to practice Thursday**\
-`The move opens up a potential return to games for Barmore as soon as the end of this month.`\
-https://nytimes.com/athletic/5922287/2024/11/14/christian-barmore-practice-return-patriots/
 
