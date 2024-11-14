@@ -1,3 +1,15 @@
+**Louis Vuitton’s Luxury Pit Stop**\
+`Who says a temporary space needs to look undone?`\
+https://nytimes.com/2024/11/14/style/louis-vuittons-luxury-pit-stop.html
+
+**Trump Changed the Game With China. Now He Could Win It.**\
+`His bluster and unpredictability, combined with strategic discipline, could permanently tilt the rivalry with China in America’s favor.`\
+https://nytimes.com/2024/11/14/opinion/china-trump-us-rivalry.html
+
+**LeBron James becomes oldest player to record 3 straight triple-doubles**\
+`Wednesday's feat marked James' 116th triple-double of his career and his 40th 30-point triple-double.`\
+https://nytimes.com/athletic/5921724/2024/11/14/lebron-james-lakers-triple-doubles-nba-history-grizzlies/
+
 **Typhoon Usagi Threatens Floods and Landslides in the Philippines**\
 `The storm had winds equivalent to those of a Category 4 hurricane on Thursday. Forecasters warned of torrential rain in the north of the country.`\
 https://nytimes.com/2024/11/14/world/asia/typhoon-usagi-philippines.html
