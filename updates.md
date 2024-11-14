@@ -1,3 +1,7 @@
+**Red Sox sign left-handed reliever Justin Wilson: Reports**\
+`In his first season back from Tommy John surgery, Wilson had a 5.59 ERA but decent underlying statistics.`\
+https://nytimes.com/athletic/5922719/2024/11/14/red-sox-justin-wilson-free-agent-signing/
+
 **Will Bill Belichick return to coaching? Bill Cowher thinks so**\
 `Cowher, an NFL analyst, also confirmed he will be back at CBS for the 2025 season.`\
 https://nytimes.com/athletic/5922696/2024/11/14/bill-cowher-bill-belichick-comments/
