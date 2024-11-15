@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Trump Plans to Pick Doug Burgum for Interior Secretary**\
+`The president-elect announced his choice of Gov. Doug Burgum of North Dakota at his Mar-a-Lago club. He has yet to name his choices for several cabinet-level jobs, including leaders of Treasury and Labor.`\
+https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates
+
 **Why States Are Offering Workers at Private Companies Access to I.R.A.s**\
 `With the plans, workers are automatically enrolled and contribute through payroll deductions. The goal is to help more Americans save for retirement.`\
 https://nytimes.com/2024/11/15/your-money/ira-retirement-plans.html
