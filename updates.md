@@ -1,3 +1,11 @@
+**The Rise of Malört, an Unexpected Midwest Princess**\
+`The divisive yet beloved liquor, once available only in Chicago, has gained devotees nationally. Can it retain its roots?`\
+https://nytimes.com/2024/11/15/dining/malort.html
+
+**Caramelized Squash With Cinnamon Toasted Nuts; Scalloped Potatoes With Horseradish**\
+`Thanksgiving rehearsals are underway, and they’re delicious.`\
+https://nytimes.com/2024/11/15/dining/get-ready-for-thanksgiving.html
+
 **Beware the Trifecta: History Shows Full Control of Government Is Fleeting**\
 `The last five presidents have all had periods where both the House and the Senate were in friendly hands — but most lasted just two years before the backlash set in.`\
 https://nytimes.com/2024/11/15/us/politics/republicans-full-control-government.html

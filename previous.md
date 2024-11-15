@@ -1,3 +1,11 @@
+**The Rise of Malört, an Unexpected Midwest Princess**\
+`The divisive yet beloved liquor, once available only in Chicago, has gained devotees nationally. Can it retain its roots?`\
+https://nytimes.com/2024/11/15/dining/malort.html
+
+**Caramelized Squash With Cinnamon Toasted Nuts; Scalloped Potatoes With Horseradish**\
+`Thanksgiving rehearsals are underway, and they’re delicious.`\
+https://nytimes.com/2024/11/15/dining/get-ready-for-thanksgiving.html
+
 **Beware the Trifecta: History Shows Full Control of Government Is Fleeting**\
 `The last five presidents have all had periods where both the House and the Senate were in friendly hands — but most lasted just two years before the backlash set in.`\
 https://nytimes.com/2024/11/15/us/politics/republicans-full-control-government.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5924557/2024/11/15/gianni-infantino-club-world-cup-
 **Fantasy football flex fliers: Ride with Bateman, consider Mike Williams in Week 11**\
 `Scott Engel gives advice on who to target in free agency for those who have roster holes after the early waiver wire run. `\
 https://nytimes.com/athletic/5924521/2024/11/15/fantasy-football-flex-fliers-week-11/
-
-**The Bounce: Steph Curry shares his new all-time starting five**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5924372/2024/11/15/steph-curry-warriors-jaylen-brown-celtics-nba-the-bounce/
-
-**Both Right- and Left-Leaning Media Criticize Trump Elevating Matt Gaetz**\
-`President-elect Donald J. Trump selected Matt Gaetz, a former Florida congressman, as his attorney general, a pick that drew a rare bipartisan rebuke from both conservative and liberal media outlets.`\
-https://nytimes.com/2024/11/15/business/media/matt-gaetz-trump-media-coverage.html
 
