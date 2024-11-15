@@ -1,3 +1,7 @@
+**Bills TE Dalton Kincaid ruled out Sunday vs. Chiefs**\
+`Kincaid's absence this coming Sunday was the expected move after the tight end left last weekend's game twice with a knee injury.`\
+https://nytimes.com/athletic/5924862/2024/11/15/bills-dalton-kincaid-injury-update-chiefs/
+
 **Mike Tyson vs. Jake Paul fight odds: Tyson is a popular bet, moving lines sharply in lead up**\
 `Mike Tyson and Jake Paul are set for one of the most anticipated, and weirder, boxing matchups in years. Paul is a clear favorite.`\
 https://nytimes.com/athletic/5924728/2024/11/15/mike-tyson-jake-paul-odds-fight-netflix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921150/2024/11/15/teresa-weatherspoon-unrivaled-co
 **Kennedy’s Vow to Take On Big Food Could Face Resistance**\
 `Processed foods are in the cross hairs of Robert F. Kennedy Jr., but battling major companies could collide with President-elect Donald J. Trump’s corporate-friendly goals.`\
 https://nytimes.com/2024/11/15/health/rfk-big-food-artificial-dyes-trump.html
-
-**The 25th Latin Grammys Showed Their Age**\
-`While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
-https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
 
