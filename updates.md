@@ -1,3 +1,11 @@
+**The 25th Latin Grammys Showed Their Age**\
+`While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
+https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
+
+**Shaboozey Seeks ‘Good News’ in Another Bar, and 7 More New Songs**\
+`Hear tracks by Yola, Julia Holter, Angel Olsen and others.`\
+https://nytimes.com/2024/11/15/arts/music/playlist-shaboozey-lil-nas-x.html
+
 **Why Kennedy Sees an ‘Epidemic’ of Chronic Disease Among Children**\
 `Trends in child health are in fact worrisome, and scientists welcome a renewed focus on foods and environmental toxins. But vaccines and fluoride are not the cause.`\
 https://nytimes.com/2024/11/15/health/rfk-chronic-diseases-children.html
