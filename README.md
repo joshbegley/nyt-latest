@@ -7,8 +7,8 @@ https://nytimes.com/2024/11/15/health/rfk-big-food-artificial-dyes-trump.html
 https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
 
 **Pence urges Republican senators not to confirm R.F.K. Jr., citing his support of abortion rights.**\
-`By Jonathan Swan`\
-https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/pence-urges-republican-senators-not-to-confirm-rfk-jr-citing-his-support-of-abortion-rights
+`Former Vice President Mike Pence described Mr. Kennedy, who does not support a federal abortion ban, as a choice unlike any in the modern era of the G.O.P.`\
+https://nytimes.com/2024/11/15/us/politics/pence-rfk-jr-abortion-rights.html
 
 **What Donald Trump’s Team Picks Say About His Foreign Policy**\
 `The world has changed since Donald J. Trump’s last term as president. Mark Landler, the London bureau chief of The New York Times, describes what Mr. Trump’s choices so far say about his foreign policy ambitions.`\
