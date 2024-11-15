@@ -1,3 +1,19 @@
+**Seahawks center Connor Williams retiring from NFL at 27**\
+`Williams started 86 games across his seven-year NFL career, including all nine games this season for Seattle.`\
+https://nytimes.com/athletic/5925424/2024/11/15/seahawks-center-connor-williams-retiring/
+
+**Biden Discusses With Allies ‘Dangerous’ Cooperation Between Russia, North Korea**\
+`The president said stronger ties with South Korea and Japan are working, but did not address whether President-elect Donald J. Trump would continue his approach when he takes office in January.`\
+https://nytimes.com/2024/11/15/us/politics/biden-north-korea-russia.html
+
+**Drowning Death of 11-Month-Old Girl in the Bronx Is Ruled a Homicide**\
+`The finding in the case of Jazeli Mirabal is the third death of an infant in New York City over the summer to be labeled a homicide this month.`\
+https://nytimes.com/2024/11/15/nyregion/bronx-baby-drowning-death-homicide.html
+
+**House and Senate Clash Over Ethics Report on Gaetz**\
+`Also, nuclear power went from pariah to rising star. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/11/15/briefing/gaetz-ethics-report-house-senate-nuclear-power.html
+
 **Three keys and a prediction for Notre Dame's senior day game vs. Virginia**\
 `Notre Dame has won its past six home finales by an average of 37.2 points. Can it continue that success against Virginia?`\
 https://nytimes.com/athletic/5925381/2024/11/15/notre-dame-football-virginia-preview/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5924985/2024/11/15/carlos-alcaraz-tennis-highlights
 **MLS clears commentator Taylor Twellman to resume calling games**\
 `Twellman had previously been removed from calling matches after that technician alleged that he and Twellman had a physical altercation.`\
 https://nytimes.com/athletic/5925450/2024/11/15/taylor-twellman-mls-season-pass-investigation/
-
-**Lyon handed provisional Ligue 1 relegation and transfer ban over financial situation**\
-`Lyon have been handed a provisional relegation to Ligue 2, the second division of French football, and will observe a transfer ban following an audit of their finances.`\
-https://nytimes.com/athletic/5925146/2024/11/15/lyon-relegation-transfer-ban-france-football/
-
-**ATP Tour Finals qualification: Sinner, Fritz make semifinals**\
-`The ATP Finals semifinals are set, with an exit for Carlos Alcaraz.`\
-https://nytimes.com/athletic/5905649/2024/11/15/atp-tour-finals-qualification-results-analysis/
-
-**Lions TE Sam LaPorta ruled out Sunday vs. Jaguars**\
-`LaPorta left Sunday’s win over the Texans with a shoulder injury, one coach Dan Campbell said after the game could sideline him for a week.`\
-https://nytimes.com/athletic/5925328/2024/11/15/lions-sam-laporta-injury-jaguars/
-
-**Packers' plans for RB Lloyd in flux after appendicitis diagnosis**\
-`Matt LaFleur says the Packers are in contact with the NFL about Lloyd's 21-day window to return from IR.`\
-https://nytimes.com/athletic/5925237/2024/11/15/packers-marshawn-lloyd-appendicitis/
 
