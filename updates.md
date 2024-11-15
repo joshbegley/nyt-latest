@@ -1,3 +1,19 @@
+**Seahawks center Connor Williams retiring from NFL at 27**\
+`Williams started 86 games across his seven-year NFL career, including all nine games this season for Seattle.`\
+https://nytimes.com/athletic/5925424/2024/11/15/seahawks-center-connor-williams-retiring/
+
+**Biden Discusses With Allies ‘Dangerous’ Cooperation Between Russia and North Korea**\
+`The president said stronger ties with South Korea and Japan are working, but did not address whether President-elect Donald J. Trump would continue his approach when he takes office in January.`\
+https://nytimes.com/2024/11/15/us/politics/biden-north-korea-russia.html
+
+**Drowning Death of 11-Month-Old Girl in the Bronx Is Ruled a Homicide**\
+`The finding in the case of Jazeli Mirabal is the third death of an infant in New York City over the summer to be labeled a homicide this month.`\
+https://nytimes.com/2024/11/15/nyregion/bronx-baby-drowning-death-homicide.html
+
+**House and Senate Clash Over Ethics Report on Gaetz**\
+`Also, nuclear power went from pariah to rising star. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/11/15/briefing/gaetz-ethics-report-house-senate-nuclear-power.html
+
 **ATP Tour Finals qualification: Sinner, Fritz make semifinals**\
 `The ATP Finals semifinals are set, with an exit for Carlos Alcaraz.`\
 https://nytimes.com/athletic/5905649/2024/11/15/atp-tour-finals-qualification-results-analysis/

@@ -1,3 +1,7 @@
+**NFL Week 11 fantasy football, betting cheat sheet: TE trouble with Kincaid, LaPorta out**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5917115/2024/11/15/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
+
 **Seahawks center Connor Williams retiring from NFL at 27**\
 `Williams started 86 games across his seven-year NFL career, including all nine games this season for Seattle.`\
 https://nytimes.com/athletic/5925424/2024/11/15/seahawks-center-connor-williams-retiring/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/us/politics/harris-future-forward.html
 **Carlos Alcaraz isn't the finished article. Knowing that may be enough**\
 `Alcaraz's recent struggles on fast hard courts are a welcome reminder that he has plenty of runway to improve.`\
 https://nytimes.com/athletic/5924985/2024/11/15/carlos-alcaraz-tennis-highlights-atp-tour-finals-result/
-
-**MLS clears commentator Taylor Twellman to resume calling games**\
-`Twellman had previously been removed from calling matches after that technician alleged that he and Twellman had a physical altercation.`\
-https://nytimes.com/athletic/5925450/2024/11/15/taylor-twellman-mls-season-pass-investigation/
 
