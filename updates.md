@@ -1,3 +1,7 @@
+**Volleyball players, coach sue SJSU, Mountain West over transgender athlete**\
+`The plaintiffs include SJSU co-captain Brooke Slusser, assistant coach Melissa Batie-Smoose and two former Spartans players.`\
+https://nytimes.com/athletic/5923566/2024/11/14/san-jose-state-volleyball-lawsuit-transgender-player/
+
 **Stress From Fireworks Killed Baby Red Panda, Zoo in Scotland Says**\
 `Camera footage showed Roxie, a three-month-old, agitated by the noise. She died shortly afterward.`\
 https://nytimes.com/2024/11/14/world/red-panda-death-edinburgh-zoo.html

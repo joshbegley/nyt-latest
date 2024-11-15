@@ -1,3 +1,7 @@
+**Volleyball players, coach sue SJSU, Mountain West over transgender athlete**\
+`The plaintiffs include SJSU co-captain Brooke Slusser, assistant coach Melissa Batie-Smoose and two former Spartans players.`\
+https://nytimes.com/athletic/5923566/2024/11/14/san-jose-state-volleyball-lawsuit-transgender-player/
+
 **Trump Picks Doug Collins, Former Congressman and Impeachment Defender, to Lead V.A.**\
 `Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment in 2019.`\
 https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/well/obesity-epidemic-america.html
 **Murray Sinclair, Who Reframed Indigenous Relations in Canada, Dies at 73**\
 `He headed a commission that documented widespread abuse in Canada’s boarding schools for Indigenous children and sought to correct the history of Indigenous people.`\
 https://nytimes.com/2024/11/14/world/canada/murray-sinclair-dead.html
-
-**What to Know About Congestion Pricing**\
-`Gov. Kathy Hochul is fast-tracking new tolls to enter Midtown and Lower Manhattan. Drivers could be charged beginning in January.`\
-https://nytimes.com/2024/11/14/nyregion/congestion-pricing-nyc.html
 
