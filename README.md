@@ -1,3 +1,7 @@
+**49ers' Kittle, Bosa, Williams questionable vs. Seahawks**\
+`Of the three high-profile 49ers questionable for Sunday, Trent Williams seems the most iffy.`\
+https://nytimes.com/athletic/5925370/2024/11/15/49ers-george-kittle-nick-bosa-trent-williams-seahawks/
+
 **Government by Bro**\
 `The hyper-macho and online energy of the Trump campaign is now aimed at Washington.`\
 https://nytimes.com/2024/11/15/us/politics/trump-cabinet-picks-men.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5917115/2024/11/15/nfl-week-11-fantasy-football-che
 **Seahawks center Connor Williams retiring from NFL at 27**\
 `Williams started 86 games across his seven-year NFL career, including all nine games this season for Seattle.`\
 https://nytimes.com/athletic/5925424/2024/11/15/seahawks-center-connor-williams-retiring/
-
-**Biden Discusses With Allies ‘Dangerous’ Cooperation Between Russia and North Korea**\
-`The president said stronger ties with South Korea and Japan are working, but did not address whether President-elect Donald J. Trump would continue his approach when he takes office in January.`\
-https://nytimes.com/2024/11/15/us/politics/biden-north-korea-russia.html
 
