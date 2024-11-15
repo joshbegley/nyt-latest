@@ -1,3 +1,7 @@
+**USMNT 1, Jamaica 0: Pepi, Turner help U.S. secure win in Jamaica**\
+`U.S. heads into second leg against Jamaica with a goal advantage `\
+https://nytimes.com/athletic/5923895/2024/11/14/usmnt-jamaica-ricardo-pepi-matt-turner/
+
 **You Might Use It to Walk the Dog**\
 `Alina Abidi opens our solving weekend with a very chatty puzzle.`\
 https://nytimes.com/2024/11/14/crosswords/daily-puzzle-2024-11-15.html
