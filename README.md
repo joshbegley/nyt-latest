@@ -27,7 +27,7 @@ https://nytimes.com/2024/11/15/business/dealbook/trump-robert-f-kennedy-stocks.h
 https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/here-is-the-latest-on-the-next-administration
 
 **Trump Transition Live Updates: Trump Plans to Pick Doug Burgum for Interior Secretary**\
-`The president-elect announced his choice of Gov. Doug Burgum of North Dakota at his Mar-a-Lago club. He has yet to name his choices for several Cabinet-level jobs, including leaders of Treasury and Labor.`\
+`The president-elect announced his choice of Gov. Doug Burgum of North Dakota at his Mar-a-Lago club. He has yet to name his choices for several cabinet-level jobs, including leaders of Treasury and Labor.`\
 https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates
 
 **A deep dive into Patrick Bailey's second-half offensive struggles**\
