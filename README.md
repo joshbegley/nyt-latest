@@ -1,3 +1,7 @@
+**Lyon handed provisional Ligue 1 relegation and transfer ban over financial situation**\
+`Lyon have been handed a provisional relegation to Ligue 2, the second division of French football, and will observe a transfer ban following an audit of their finances.`\
+https://nytimes.com/athletic/5925146/2024/11/15/lyon-relegation-transfer-ban-france-football/
+
 **Lions TE Sam LaPorta ruled out Sunday vs. Jaguars**\
 `LaPorta left Sunday’s win over the Texans with a shoulder injury, one coach Dan Campbell said after the game could sideline him for a week.`\
 https://nytimes.com/athletic/5925328/2024/11/15/lions-sam-laporta-injury-jaguars/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/business/stock-market-election-trump-economy.html
 **How to watch UConn vs. North Carolina, tonight's women's basketball headliner**\
 `Friday night's matchup features two of the best teams in women's college basketball.`\
 https://nytimes.com/athletic/5925241/2024/11/15/uconn-unc-how-to-watch-odds/
-
-**Yes, Most People Probably Should Hold Off on Claiming Social Security**\
-`Readers had a lot of thoughtful objections to this idea. As a general rule, I stand by it.`\
-https://nytimes.com/2024/11/15/opinion/social-security-age-claim.html
 
