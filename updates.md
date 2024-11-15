@@ -1,3 +1,12 @@
+**Senators' Linus Ullmark 'not his best' in OT loss to Flyers**\
+`Ullmark made 14 saves on 19 shots and the Senators lost 5-4 in overtime to the Flyers in a game that should have been theirs.
+`\
+https://nytimes.com/athletic/5923943/2024/11/14/senators-flyers-linus-ullmark/
+
+**Sabres overcome questionable goalie interference call to beat Blues: 3 takeaways**\
+`One particularly effective shift from Dylan Cozens helped spark the Sabres to a 4-3 overtime win.`\
+https://nytimes.com/athletic/5924063/2024/11/14/sabres-goalie-interference-cozens-blues/
+
 **Mats Zuccarello and Joel Eriksson Ek injured, but Wild shut out Habs: 3 takeaways**\
 `The Wild played most of the game without two of their top six forwards but managed to dispatch the Canadiens thanks to Matt Boldy.`\
 https://nytimes.com/athletic/5923846/2024/11/14/wild-zuccarello-eriksson-ek-injury-canadiens/
