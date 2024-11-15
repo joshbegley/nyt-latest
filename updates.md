@@ -1,3 +1,7 @@
+**Review: ‘King Lear,’ Faster and Less Furious**\
+`Kenneth Branagh’s production of the Shakespeare classic speeds through the material and can’t quite figure out its tone.`\
+https://nytimes.com/2024/11/14/theater/king-lear-review-kenneth-branagh.html
+
 **Georgia's Trevor Etienne ruled against Tennessee**\
 `Etienne has been a bright spot for Georgia's offense, rushing for 477 yards in seven starts, with 23 catches for 140 yards.`\
 https://nytimes.com/athletic/5923820/2024/11/14/trevor-etienne-georgia-tennessee/
