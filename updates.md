@@ -1,3 +1,19 @@
+**Don’t Blame Biden for Trump’s Victory**\
+`Readers respond to a guest essay by Josh Barro. Also: Elon Musk and America’s birthrate; a pharmacist’s view; the danger of extreme heat.`\
+https://nytimes.com/2024/11/15/opinion/biden-trump-election-blame.html
+
+**Fighting Gentrification With Folk Music**\
+`Sophie Straat is reviving a style of music once popular in the working-class bars of Amsterdam to protest an increasingly expensive and homogenized city.`\
+https://nytimes.com/2024/11/15/arts/music/sophie-straat-amsterdam.html
+
+**What England need to do to secure UEFA Nations League promotion**\
+`England's host the Republic of Ireland in their final Nations League league phase match on Sunday. These are the permutations`\
+https://nytimes.com/athletic/5924576/2024/11/15/england-ireland-uefa-nations-league-game/
+
+**FIFA president Infantino’s name engraved on new CWC trophy**\
+`FIFA president Gianni Infantino&#8217;s name has been engraved on the new Club World Cup trophy.`\
+https://nytimes.com/athletic/5924557/2024/11/15/gianni-infantino-club-world-cup-trophy/
+
 **Fantasy football flex fliers: Ride with Bateman, consider Mike Williams in Week 11**\
 `Scott Engel gives advice on who to target in free agency for those who have roster holes after the early waiver wire run. `\
 https://nytimes.com/athletic/5924521/2024/11/15/fantasy-football-flex-fliers-week-11/
