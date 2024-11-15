@@ -1,3 +1,7 @@
+**Conan O’Brien Will Host the Next Academy Awards**\
+`Mr. O’Brien, the former late-night host, will take over from Jimmy Kimmel, who served as M.C. for the last two Oscar ceremonies, organizers said on Friday.`\
+https://nytimes.com/2024/11/15/business/media/conan-obrien-oscars-host.html
+
 **A Translation of a Translation of a Novel Within a Novel**\
 `Yang Shuang-zi’s “Taiwan Travelogue,” a National Book Award finalist, is a nesting-doll narrative about colonial power in its many forms.`\
 https://nytimes.com/2024/11/15/books/review/yang-shuangzi-taiwan-travelogue.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923831/2024/11/15/chargers-defense-derwin-james-bi
 **55,000 Postal Workers in Canada Strike Over Pay**\
 `The union walked out after talks with the country’s main mail operator failed. The stoppage could disrupt deliveries before the holidays.`\
 https://nytimes.com/2024/11/15/business/canada-post-workers-strike.html
-
-**Eagles outlast Commanders and seize control of the NFC East**\
-`The Eagles overcame some mishaps on offense to beat their division rival.`\
-https://nytimes.com/athletic/5923770/2024/11/15/eagles-commanders-control-nfc-east/
 
