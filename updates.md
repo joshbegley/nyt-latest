@@ -1,3 +1,11 @@
+**Trump’s Defense Secretary Pick Faced Sexual Assault Claim in 2017**\
+`A complaint involving Pete Hegseth was filed with the police in Monterey, Calif., but it led to no charges, according to public records and Mr. Hegseth’s lawyer.`\
+https://nytimes.com/2024/11/15/us/politics/trump-pete-hegseth-defense-secretary-sexual-assault.html
+
+**Conan O’Brien Will Host the Next Academy Awards**\
+`Mr. O’Brien, the former late-night host, will take over from Jimmy Kimmel, who served as M.C. for the last two Oscar ceremonies, organizers said on Friday.`\
+https://nytimes.com/2024/11/15/business/media/conan-obrien-oscars-host.html
+
 **A Translation of a Translation of a Novel Within a Novel**\
 `Yang Shuang-zi’s “Taiwan Travelogue,” a National Book Award finalist, is a nesting-doll narrative about colonial power in its many forms.`\
 https://nytimes.com/2024/11/15/books/review/yang-shuangzi-taiwan-travelogue.html
