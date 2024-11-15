@@ -1,3 +1,7 @@
+**Trump Picks Burgum for Interior Secretary**\
+`The North Dakota governor helped strengthen ties between the oil industry and President-elect Donald J. Trump.`\
+https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
+
 **USMNT 1, Jamaica 0: Ricardo Pepi, Matt Turner help U.S. secure win in Jamaica**\
 `The U.S. heads into a second leg against Jamaica with a goal advantage. `\
 https://nytimes.com/athletic/5923895/2024/11/14/usmnt-jamaica-ricardo-pepi-matt-turner/
