@@ -1,3 +1,7 @@
+**Trump’s Tax Plans**\
+`Three scenarios for how Republicans could approach cutting taxes next year.`\
+https://nytimes.com/2024/11/15/briefing/trumps-tax-plans.html
+
 **Twins say they plan to keep Carlos Correa and the core, but also an open mind on trades**\
 `Despite the club being in a financial bind, Derek Falvey said his highest-priced players remain part of the plan — for now. `\
 https://nytimes.com/athletic/5923848/2024/11/15/twins-carlos-correa-trade-possibility/
