@@ -1,3 +1,11 @@
+**Zuccarello and Eriksson Ek injured, but Wild shut out Habs: 3 takeaways**\
+`The Wild played most of the game without two of their top-six forwards but managed to dispatch the Canadiens thanks to Matt Boldy.`\
+https://nytimes.com/athletic/5923846/2024/11/14/wild-zuccarello-eriksson-ek-injury-canadiens/
+
+**How Filip Chytil's injury overshadowed Rangers' workmanlike win: 4 takeaways**\
+`The concern after the Rangers' 3-2 win over the Sharks centered around Chytil, who left the game following a big collision.`\
+https://nytimes.com/athletic/5923916/2024/11/14/rangers-filip-chytil-injury/
+
 **Trump takes a victory lap before a friendly audience at Mar-a-Lago.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/trump-takes-a-victory-lap-before-a-friendly-audience-at-mar-a-lago
