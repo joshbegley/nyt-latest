@@ -1,3 +1,7 @@
+**Three keys and a prediction for Notre Dame's senior day game vs. Virginia**\
+`Notre Dame has won its past six home finales by an average of 37.2 points. Can it continue that success against Virginia?`\
+https://nytimes.com/athletic/5925381/2024/11/15/notre-dame-football-virginia-preview/
+
 **Have You Ever Ghosted Somebody? We Want to Hear About It.**\
 `Tell us about your experience for a New York Times Magazine article about how we communicate in our dating lives and relationships.`\
 https://nytimes.com/2024/11/15/us/ghosting-dating-relationships.html
