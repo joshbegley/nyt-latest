@@ -1,3 +1,7 @@
+**Yes, Most People Probably Should Hold Off on Claiming Social Security**\
+`Readers had a lot of thoughtful objections to this idea. As a general rule, I stand by it.`\
+https://nytimes.com/2024/11/15/opinion/social-security-age-claim.html
+
 **Burgum Will Be Trump’s ‘Energy Czar’**\
 `The North Dakota governor, who helped strengthen ties between the oil industry and President-elect Donald J. Trump, will do double duty as Interior secretary.`\
 https://nytimes.com/2024/11/15/climate/burgum-trump-energy-czar.html

@@ -1,3 +1,7 @@
+**Yes, Most People Probably Should Hold Off on Claiming Social Security**\
+`Readers had a lot of thoughtful objections to this idea. As a general rule, I stand by it.`\
+https://nytimes.com/2024/11/15/opinion/social-security-age-claim.html
+
 **Burgum Will Be Trump’s ‘Energy Czar’**\
 `The North Dakota governor, who helped strengthen ties between the oil industry and President-elect Donald J. Trump, will do double duty as Interior secretary.`\
 https://nytimes.com/2024/11/15/climate/burgum-trump-energy-czar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925038/2024/11/15/grizzlies-warriors-watch-odds-be
 **Colorado’s Democratic governor praises Kennedy, then has to explain it.**\
 `Jared Polis’s support reflects a libertarian streak, even as he helps lead a new group of governors opposing the incoming Trump administration.`\
 https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/colorados-democratic-governor-praises-kennedy-then-has-to-explain-it
-
-**Can I Lie About My Academic Interests on My College Application?**\
-`The magazine’s Ethicist columnist on conveying the truth on a pivotal form.`\
-https://nytimes.com/2024/11/15/magazine/academic-interests-college-application-ethics.html
 
