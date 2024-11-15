@@ -1,3 +1,11 @@
+**Trump takes a victory lap before a friendly audience at Mar-a-Lago.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/11/14/us/trump-gaetz-news/trump-takes-a-victory-lap-before-a-friendly-audience-at-mar-a-lago
+
+**Robert F. Kennedy Jr. Would Have Wide Purview as H.H.S. Secretary**\
+`President-elect Donald Trump’s nominee would oversee agencies that regulate food, vaccines and medicine and were instrumental during the pandemic.`\
+https://nytimes.com/2024/11/14/us/rfk-jr-hhs-agencies.html
+
 **Trump Picks Burgum for Interior Secretary**\
 `The North Dakota governor helped strengthen ties between the oil industry and President-elect Donald J. Trump.`\
 https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
