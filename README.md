@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5920391/2024/11/15/england-carsley-kane-greece-gamb
 `Analysts say the low-cost weapons are attractive to Mr. Kim, who is intent on modernizing North Korea’s military.`\
 https://nytimes.com/2024/11/15/world/asia/north-korea-drones.html
 
+**Real Madrid's internal tensions: 25 injuries, concerns over running stats and divisive Pintus**\
+`Madrid are experiencing a troubled season on and off the pitch. Here, we explain the divisions happening behind the scenes`\
+https://nytimes.com/athletic/5922217/2024/11/15/real-madrid-pintus-fitness-injuries/
+
 **Word of the Day: lichen**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/15/learning/word-of-the-day-lichen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/opinion/ukraine-trump-election.html
 **Thanks to exceptional structure, Wild's 'plug and play' mantra keeps leading to wins**\
 `After losing Mats Zuccarello and Joel Eriksson Ek, the Wild got creative with their line combinations for a 3-0 win over the Canadiens.`\
 https://nytimes.com/athletic/5924150/2024/11/15/minnesota-wild-win-canadiens-zuccarello-eriksson-ek/
-
-**Nottingham Forest's defining seven-match run**\
-`Forest have a daunting seven-match run on the horizon - one that will determine whether they can maintain their fine start to the season `\
-https://nytimes.com/athletic/5922144/2024/11/15/nottingham-forest-fixtures-premier-league/
 
