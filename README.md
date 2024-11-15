@@ -1,3 +1,11 @@
+**Princess Yuriko, Oldest Member of Japan’s Imperial Family, Dies at 101**\
+`Her death reduces Japan’s rapidly dwindling imperial family to 16 people, and only 4 men, as the country faces questions about the future under a male-only succession law.`\
+https://nytimes.com/2024/11/15/world/asia/princess-yuriko-dead.html
+
+**Leicy Santos has proven herself to be a game changer for the Washington Spirit**\
+`Santos and the Spirit face Gotham FC in an NWSL playoffs semifinal on Saturday with the title game just a week away`\
+https://nytimes.com/athletic/5925057/2024/11/15/leicy-santos-washington-spirit-game-changer/
+
 **How to watch Grizzlies vs. Warriors as Golden State tries to stay hot**\
 `The red-hot Warriors host the gritty Grizzlies in Friday's NBA Cup action.`\
 https://nytimes.com/athletic/5925038/2024/11/15/grizzlies-warriors-watch-odds-bet/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/15/us/politics/steven-cheung-trump-white-house-commu
 **Watch Zoe Saldaña Confront Corrupt Politicians in ‘Emilia Pérez’**\
 `The director Jacques Audiard narrates the star’s passionate musical performance from the film.`\
 https://nytimes.com/2024/11/15/movies/emilia-perez-clip-zoe-saldana.html
-
-**‘Emilia Pérez’ | Anatomy of a Scene**\
-`The director Jacques Audiard narrates a sequence from his film featuring Zoe Saldaña and Karla Sofía Gascón.`\
-https://nytimes.com/video/movies/100000009828358/emilia-perez-scene.html
-
-**Wild's Mats Zuccarello out 3 to 4 weeks after undergoing surgery**\
-`Coach John Hynes made clear Friday that Zuccarello's timetable is very much an estimate depending on his recovery from a tough injury.`\
-https://nytimes.com/athletic/5924921/2024/11/15/wild-mats-zuccarello-joel-eriksson-ek-injuries/
 
