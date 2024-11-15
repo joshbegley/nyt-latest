@@ -1,3 +1,15 @@
+**Playing WSL matches at 'main' stadiums brings problems. The way they are solved is crucial**\
+`How top-level women's football decides where to play its club fixtures could have a huge impact on the game's future`\
+https://nytimes.com/athletic/5922009/2024/11/15/wsl-championship-stadia-problems-solutions/
+
+**Shopping for Rodri replacements: Who should Manchester City consider in January?**\
+`Nobody can emulate Rodri's unique skill set, but these replacements would help smooth over his absence in the second half of the season...`\
+https://nytimes.com/athletic/5922349/2024/11/15/rodri-replacements-transfer-market-manchester-city/
+
+**Why an NFL star fell in love with Wrexham: 'They could lose every match and I would still support this club'**\
+`The story of Joey Harrington and the Welsh soccer club`\
+https://nytimes.com/athletic/5881961/2024/11/15/wrexham-nfl-joey-harrington/
+
 **Friday Briefing**\
 `Donald Trump’s provocative cabinet picks.`\
 https://nytimes.com/2024/11/15/briefing/trump-kennedy-israel-soccer.html

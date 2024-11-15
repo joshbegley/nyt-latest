@@ -1,3 +1,15 @@
+**Playing WSL matches at 'main' stadiums brings problems. The way they are solved is crucial**\
+`How top-level women's football decides where to play its club fixtures could have a huge impact on the game's future`\
+https://nytimes.com/athletic/5922009/2024/11/15/wsl-championship-stadia-problems-solutions/
+
+**Shopping for Rodri replacements: Who should Manchester City consider in January?**\
+`Nobody can emulate Rodri's unique skill set, but these replacements would help smooth over his absence in the second half of the season...`\
+https://nytimes.com/athletic/5922349/2024/11/15/rodri-replacements-transfer-market-manchester-city/
+
+**Why an NFL star fell in love with Wrexham: 'They could lose every match and I would still support this club'**\
+`The story of Joey Harrington and the Welsh soccer club`\
+https://nytimes.com/athletic/5881961/2024/11/15/wrexham-nfl-joey-harrington/
+
 **Friday Briefing**\
 `Donald Trump’s provocative cabinet picks.`\
 https://nytimes.com/2024/11/15/briefing/trump-kennedy-israel-soccer.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/15/world/europe/trump-russia-moscow-war.html
 **A Surprise at the Federalist Society Gala: Justice Breyer, a Retired Liberal**\
 `The conservative legal group’s annual dinner featured a conversation between Justices Stephen G. Breyer and Neil M. Gorsuch, a conservative. Both stressed the importance of an independent judiciary.`\
 https://nytimes.com/2024/11/15/us/breyer-gorsuch-federalist-society.html
-
-**Even His Parents Were Younger Than I Was**\
-`No matter. We were crazy for each other.`\
-https://nytimes.com/2024/11/15/style/modern-love-even-his-parents-were-younger-than-i-was.html
-
-**A Tale of Two Kelseys**\
-`Kelsey Castañon and Kelsey Whitaker had a lot in common — and a lot of differences.`\
-https://nytimes.com/2024/11/15/style/kelsey-castanon-kelsey-whitaker-wedding.html
-
-**Thanks to the ‘Little Gay Book,’ a Love Match**\
-`Dorie Clark and Alexis Redding met on a Zoom speed-dating event two years ago. Among all of the tiny video boxes, they were immediately drawn to each other.`\
-https://nytimes.com/2024/11/15/style/dorie-clark-alexis-redding-wedding.html
 
