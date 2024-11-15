@@ -1,3 +1,7 @@
+**Trudeau Issued a Plea to Taylor Swift: Please Come. She Did.**\
+`Ms. Swift is performing six shows in Toronto before heading to Vancouver, the final stop in her blockbuster Eras Tour.`\
+https://nytimes.com/2024/11/15/world/canada/taylor-swift-eras-tour-toronto-vancouver.html
+
 **Auston Matthews' mysterious absence from the Leafs continues**\
 `Matthew will end up missing more than two weeks, at the very least, with a chance to play next on Wednesday against Vegas.`\
 https://nytimes.com/athletic/5924942/2024/11/15/maple-leafs-auston-matthews-injury-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5924862/2024/11/15/bills-dalton-kincaid-injury-upda
 **Mike Tyson vs. Jake Paul fight odds: Tyson is a popular bet, moving lines sharply in lead up**\
 `Mike Tyson and Jake Paul are set for one of the most anticipated, and weirder, boxing matchups in years. Paul is a clear favorite.`\
 https://nytimes.com/athletic/5924728/2024/11/15/mike-tyson-jake-paul-odds-fight-netflix/
-
-**JuJu Watkins becomes first active NCAA athlete to inspire a Funko Pop**\
-`Watkins continues to rack up firsts both on and off the court `\
-https://nytimes.com/athletic/5924515/2024/11/15/juju-watkins-funko-pop-usc/
 

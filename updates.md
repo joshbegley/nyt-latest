@@ -1,3 +1,7 @@
+**Trudeau Issued a Plea to Taylor Swift: Please Come. She Did.**\
+`Ms. Swift is performing six shows in Toronto before heading to Vancouver, the final stop in her blockbuster Eras Tour.`\
+https://nytimes.com/2024/11/15/world/canada/taylor-swift-eras-tour-toronto-vancouver.html
+
 **Auston Matthews' mysterious absence from the Leafs continues**\
 `Matthew will end up missing more than two weeks, at the very least, with a chance to play next on Wednesday against Vegas.`\
 https://nytimes.com/athletic/5924942/2024/11/15/maple-leafs-auston-matthews-injury-3/
