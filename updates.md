@@ -1,3 +1,7 @@
+**The Trump Lawyer Who Wields Outsize Influence on the Next White House**\
+`Boris Epshteyn has quickly become one of the most powerful figures in the early days of the presidential transition, even floating his own name to help broker peace between Russia and Ukraine.`\
+https://nytimes.com/2024/11/15/us/politics/boris-epshteyn-trump.html
+
 **College football Week 12 model-projected point differentials, totals for every game**\
 `Austin Mock's projection model takes a look at every FBS vs. FBS game in college football's Week 12.`\
 https://nytimes.com/athletic/5924669/2024/11/15/college-football-week-12-model-projections/
