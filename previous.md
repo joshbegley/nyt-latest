@@ -1,3 +1,7 @@
+**Four scenarios for F1's constructor championship. Plus, the Las Vegas GP beckons**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/5924601/2024/11/15/f1-constructor-championship-scenarios-prime-tire-las-vegas-gp/
+
 **Teresa Weatherspoon joins Unrivaled 3x3 league**\
 `Weatherspoon will be one of the six coaches for Unrivaled, the new 3x3 winter basketball league.`\
 https://nytimes.com/athletic/5921150/2024/11/15/teresa-weatherspoon-unrivaled-coaching/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/15/arts/music/review-new-york-philharmonic-john-adam
 **Five International Movies to Stream Now**\
 `This month’s picks include coming-of-age stories from India, Italy, Canada, Switzerland and Poland, in which children and teens learn truths about adulthood the hard way.`\
 https://nytimes.com/2024/11/15/movies/international-movies-streaming.html
-
-**Heat Today: Bam Adebayo, rest of team eyes early solutions before facing Pacers**\
-`What does Miami need to correct against Indiana and going forward? Adebayo has an idea.`\
-https://nytimes.com/athletic/5924550/2024/11/15/bam-adebayo-heat-pacers-tyrese-haliburton/
 

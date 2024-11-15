@@ -1,3 +1,7 @@
+**Four scenarios for F1's constructor championship. Plus, the Las Vegas GP beckons**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/5924601/2024/11/15/f1-constructor-championship-scenarios-prime-tire-las-vegas-gp/
+
 **Vivek Ramaswamy Returns to Push His Plans to Downsize the Government**\
 `The wealthy entrepreneur, tapped by Donald Trump to co-lead an outside effort focused on “efficiency,” campaigned on an assertion that the president has the power to fire 75 percent of the federal work force.`\
 https://nytimes.com/2024/11/15/us/politics/vivek-ramaswamy-doge.html
