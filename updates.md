@@ -1,3 +1,7 @@
+**Pence urges Republican senators not to confirm R.F.K. Jr., citing his support of abortion rights.**\
+`Former Vice President Mike Pence described Mr. Kennedy, who does not support a federal abortion ban, as a choice unlike any in the modern era of the G.O.P.`\
+https://nytimes.com/2024/11/15/us/politics/pence-rfk-jr-abortion-rights.html
+
 **Kennedy’s Vow to Take On Big Food Could Face Resistance**\
 `Processed foods are in the cross hairs of Robert F. Kennedy Jr., but battling major companies could collide with President-elect Donald J. Trump’s corporate-friendly goals.`\
 https://nytimes.com/2024/11/15/health/rfk-big-food-artificial-dyes-trump.html
