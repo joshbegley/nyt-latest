@@ -1,3 +1,19 @@
+**Don’t Blame Biden for Trump’s Victory**\
+`Readers respond to a guest essay by Josh Barro. Also: Elon Musk and America’s birthrate; a pharmacist’s view; the danger of extreme heat.`\
+https://nytimes.com/2024/11/15/opinion/biden-trump-election-blame.html
+
+**Fighting Gentrification With Folk Music**\
+`Sophie Straat is reviving a style of music once popular in the working-class bars of Amsterdam to protest an increasingly expensive and homogenized city.`\
+https://nytimes.com/2024/11/15/arts/music/sophie-straat-amsterdam.html
+
+**What England need to do to secure UEFA Nations League promotion**\
+`England's host the Republic of Ireland in their final Nations League league phase match on Sunday. These are the permutations`\
+https://nytimes.com/athletic/5924576/2024/11/15/england-ireland-uefa-nations-league-game/
+
+**FIFA president Infantino’s name engraved on new CWC trophy**\
+`FIFA president Gianni Infantino&#8217;s name has been engraved on the new Club World Cup trophy.`\
+https://nytimes.com/athletic/5924557/2024/11/15/gianni-infantino-club-world-cup-trophy/
+
 **Fantasy football flex fliers: Ride with Bateman, consider Mike Williams in Week 11**\
 `Scott Engel gives advice on who to target in free agency for those who have roster holes after the early waiver wire run. `\
 https://nytimes.com/athletic/5924521/2024/11/15/fantasy-football-flex-fliers-week-11/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5924200/2024/11/15/sebastian-aho-hurricanes-goals-p
 **Can Sam Darnold and the Vikings right the ship in Tennessee?**\
 `Will the Vikings quarterback avoid the turnovers that hobbled the offense last week? Or are we in for another slog against the AFC South?`\
 https://nytimes.com/athletic/5923644/2024/11/15/vikings-titans-preview-predictions-sam-darnold/
-
-**Scoop City: Outlook for NFL's 4 biggest disappointments**\
-`This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
-https://nytimes.com/athletic/5924608/2024/11/15/cowboys-jets-bears-bengals-scoop-city/
-
-**A Whole New Ballgame**\
-`What soccer, a recent foray into coaching and years of writing this newsletter taught our columnist about the game, and himself.`\
-https://nytimes.com/2024/11/15/world/europe/soccer-rory-smith.html
-
-**Gaza War Strains Europe’s Efforts at Social Cohesion**\
-`Institutions meant to promote civility, from soccer to song, have come under severe stress from rising antisemitism and anti-immigrant politics.`\
-https://nytimes.com/2024/11/15/world/europe/israel-gaza-war-europe.html
-
-**Penguins promote 2022 first-round pick Owen Pickering to the NHL**\
-`Defenseman Owen Pickering, the team's first-round selection in the 2022 NHL Draft, has been recalled from Wilkes-Barre/Scranton.`\
-https://nytimes.com/athletic/5924577/2024/11/15/penguins-owen-pickering-nhl-promotion/
 
