@@ -1,3 +1,7 @@
+**Lee Carsley risked it all by omitting Harry Kane - and England reaped the dividends**\
+`England's interim manager was supposed to be a 'safe pair of hands', but his stint in charge has actually been marked by bold selections `\
+https://nytimes.com/athletic/5920391/2024/11/15/england-carsley-kane-greece-gambler/
+
 **​Kim Jong-un’s Lesson From Ukraine War: Make More Drones**\
 `Analysts say the low-cost weapons are attractive to Mr. Kim, who is intent on modernizing North Korea’s military.`\
 https://nytimes.com/2024/11/15/world/asia/north-korea-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5906696/2024/11/15/erik-meijer-liverpool-interview/
 **Mike Tyson vs Jake Paul: What to know about boxing's controversial fight**\
 `Mike Tyson and Jake Paul's controversial fight takes place in Texas later today, but there is a more significant bout on the card`\
 https://nytimes.com/athletic/5921976/2024/11/15/jake-paul-mike-tyson-netflix-boxing/
-
-**Why do Tottenham keep conceding the first goal in their Premier League matches?**\
-`Spurs’ in-possession approach breeds difficulties when they lose the ball - and it is an issue they must fix`\
-https://nytimes.com/athletic/5922478/2024/11/15/tottenham-conceding-first-goal/
 
