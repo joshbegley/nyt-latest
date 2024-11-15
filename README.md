@@ -1,3 +1,7 @@
+**The Trump Lawyer Who Wields Outsize Influence on the Next White House**\
+`Boris Epshteyn has quickly become one of the most powerful figures in the early days of the presidential transition, even floating his own name to help broker peace between Russia and Ukraine.`\
+https://nytimes.com/2024/11/15/us/politics/boris-epshteyn-trump.html
+
 **College football Week 12 model-projected point differentials, totals for every game**\
 `Austin Mock's projection model takes a look at every FBS vs. FBS game in college football's Week 12.`\
 https://nytimes.com/athletic/5924669/2024/11/15/college-football-week-12-model-projections/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009820568/trump-foreign-policy.html
 **Vivek Ramaswamy Returns to Push His Plans to Downsize the Government**\
 `The wealthy entrepreneur, tapped by Donald Trump to co-lead an outside effort focused on “efficiency,” campaigned on an assertion that the president has the power to fire 75 percent of the federal work force.`\
 https://nytimes.com/2024/11/15/us/politics/vivek-ramaswamy-doge.html
-
-**Review: The Philharmonic Gives a Master Class in Programming**\
-`The composer John Adams led the New York Philharmonic in a program of contemporary works that didn’t make a big deal of contemporary music.`\
-https://nytimes.com/2024/11/15/arts/music/review-new-york-philharmonic-john-adams.html
 
