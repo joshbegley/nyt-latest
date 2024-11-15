@@ -1,3 +1,7 @@
+**You Might Use It to Walk the Dog**\
+`Alina Abidi opens our solving weekend with a very chatty puzzle.`\
+https://nytimes.com/2024/11/14/crosswords/daily-puzzle-2024-11-15.html
+
 **Argentina Mulls Exiting Paris Climate Deal**\
 `The South American nation says it is considering withdrawing from the landmark agreement, which aims to limit carbon emissions and slow global warming.`\
 https://nytimes.com/2024/11/14/world/americas/argentina-exit-climate-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923566/2024/11/14/san-jose-state-volleyball-lawsui
 **Trump Picks Doug Collins, Ex-Congressman and Impeachment Defender, to Lead V.A.**\
 `Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment inquiry in 2019.`\
 https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
-
-**Greg Sankey sees SEC Championship Game ‘as a reward,’ not a penalty**\
-`Sankey reiterated that the championship game — which makes the SEC a lot of money in attendance and TV ratings — remains important.`\
-https://nytimes.com/athletic/5923590/2024/11/14/sec-championship-game-greg-sankey/
 
