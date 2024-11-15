@@ -1,3 +1,7 @@
+**Aldridge: Can a team of nice guys win an NBA title? Cavs aim to find out**\
+`Cleveland has raced to a 13-0 start by unlocking Evan Mobley and using a collaborative approach that works for this "selfless group."`\
+https://nytimes.com/athletic/5920228/2024/11/15/cleveland-cavaliers-undefeated-playoffs-nba/
+
 **Sri Lankan Leader’s Leftist Coalition Wins Elections**\
 `The National People’s Power won a parliamentary election that will allow the country’s new president to unroll his reform agenda, including broader welfare assistance.`\
 https://nytimes.com/2024/11/15/world/asia/sri-lanka-election.html
