@@ -1,3 +1,7 @@
+**Jonathan Lekkerimäki's first goal, and was that Canucks' worst game of season? 3 takeaways**\
+`Thursday was a brutal showing against a mediocre Islanders roster that didn't even come close to icing its best, most healthy lineup.`\
+https://nytimes.com/athletic/5923924/2024/11/15/canucks-islanders-jonathan-lekkerimaki-first-goal/
+
 **Ukraine Is Running Out of Optimists**\
 `There is safety in simply trusting that the worst will happen. To dare to hope has always been the risk.`\
 https://nytimes.com/2024/11/15/opinion/ukraine-trump-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922349/2024/11/15/rodri-replacements-transfer-mark
 **Why an NFL star fell in love with Wrexham: 'They could lose every match and I would still support this club'**\
 `The story of Joey Harrington and the Welsh soccer club`\
 https://nytimes.com/athletic/5881961/2024/11/15/wrexham-nfl-joey-harrington/
-
-**Friday Briefing**\
-`Donald Trump’s provocative cabinet picks.`\
-https://nytimes.com/2024/11/15/briefing/trump-kennedy-israel-soccer.html
 
