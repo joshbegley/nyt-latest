@@ -1,3 +1,15 @@
+**Iran Told U.S. That It’s Not Trying to Kill Trump**\
+`The Biden administration had warned that the United States would consider any Iranian attempt on Mr. Trump’s life to be “an act of war,” officials said.`\
+https://nytimes.com/2024/11/15/world/middleeast/iran-trump-assassinate.html
+
+**Trump Will Encounter a Very Different Middle East in His Second Term**\
+`The region has changed dramatically since the Oct. 7 attacks.`\
+https://nytimes.com/2024/11/15/world/middleeast/trump-will-encounter-a-very-different-middle-east-in-his-second-term.html
+
+**What R.F.K. Jr. Gets Right — and Wrong — About Nutrition**\
+`We fact checked five of his most repeated claims.`\
+https://nytimes.com/2024/11/15/well/eat/rfk-jr-food-nutrition-health.html
+
 **Colts WR Pittman to return vs. Jets, LT Raimann ruled out**\
 `The receiver's return against the Jets will coincide with quarterback Anthony Richardson's return to the starting lineup.`\
 https://nytimes.com/athletic/5925218/2024/11/15/colts-michael-pittman-bernhard-raimann/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/15/magazine/academic-interests-college-application-e
 **Republicans Are Leaving Office for Trump Posts. How Will the Vacancies Be Filled?**\
 `The president-elect has selected several allies in Congress, along with a current governor, to join his administration.`\
 https://nytimes.com/2024/11/15/us/politics/how-the-trump-vacancies-will-be-filled.html
-
-**‘An Absolute Mess’: Brokers Assess the Shift in Fees**\
-`The New York City Council has passed a bill that would require landlords to pay for the rental brokers they hire. Some brokers believe it will hurt tenants in the long run.`\
-https://nytimes.com/2024/11/15/realestate/nyc-brokers-fees-reaction.html
-
-**Patrick Radden Keefe on Taking ‘Say Nothing’ From Acclaimed Book to TV Show**\
-`Keefe’s narrative history, which was No. 19 on our list of the 100 Best Books of the 21st Century, has now been adapted into a streaming series.`\
-https://nytimes.com/2024/11/15/books/review/podcast-patrick-radden-keefe-say-nothing-interview.html
-
-**Trump Asks Steven Cheung to Lead White House Communications**\
-`After serving as the president-elect’s chief campaign spokesman, Mr. Cheung will return to the White House next year.`\
-https://nytimes.com/2024/11/15/us/politics/steven-cheung-trump-white-house-communications.html
 
