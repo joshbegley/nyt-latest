@@ -1,3 +1,7 @@
+**Ex-N.F.L. Linebacker Hit and Pushed Police During Jan. 6 Riot, U.S. Says**\
+`Antwione Williams, who played a season with the Detroit Lions, is charged with assaulting officers at the U.S. Capitol.`\
+https://nytimes.com/2024/11/15/us/antwione-williams-jan-6-arrested.html
+
 **Four-star Kiyan Anthony, son of Carmelo Anthony, commits to Syracuse**\
 `Anthony is the No. 32 player in the 2025 recruiting class.`\
 https://nytimes.com/athletic/5925608/2024/11/15/kiyan-anthony-commits-syracuse/
