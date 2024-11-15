@@ -1,3 +1,7 @@
+**Republicans Are Leaving Office for Trump Posts. How Will the Vacancies Be Filled?**\
+`The president-elect has selected several allies in Congress, along with a current governor, to join his administration.`\
+https://nytimes.com/2024/11/15/us/politics/how-the-trump-vacancies-will-be-filled.html
+
 **‘An Absolute Mess’: Brokers Assess the Shift in Fees**\
 `The New York City Council has passed a bill that would require landlords to pay for the rental brokers they hire. Some brokers believe it will hurt tenants in the long run.`\
 https://nytimes.com/2024/11/15/realestate/nyc-brokers-fees-reaction.html

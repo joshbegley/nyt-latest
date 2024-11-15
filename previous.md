@@ -1,3 +1,7 @@
+**Republicans Are Leaving Office for Trump Posts. How Will the Vacancies Be Filled?**\
+`The president-elect has selected several allies in Congress, along with a current governor, to join his administration.`\
+https://nytimes.com/2024/11/15/us/politics/how-the-trump-vacancies-will-be-filled.html
+
 **‘An Absolute Mess’: Brokers Assess the Shift in Fees**\
 `The New York City Council has passed a bill that would require landlords to pay for the rental brokers they hire. Some brokers believe it will hurt tenants in the long run.`\
 https://nytimes.com/2024/11/15/realestate/nyc-brokers-fees-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/us/politics/kamala-harris-immigration-campaign-is
 **Golf Carts, Loudspeakers, Lockboxes: Florence Says ‘No, Grazie’ to Tourism Headaches**\
 `The popular Tuscan destination is the most recent European city to consider measures aimed at making life in a tourism hot spot more bearable.`\
 https://nytimes.com/2024/11/15/travel/florence-tourism-ban-rules.html
-
-**What I'm hearing about the Flyers: Sanheim impressing, Michkov's meetings, Ristolainen's future**\
-`Some interesting roster decisions are on the horizon for John Tortorella and the Flyers.`\
-https://nytimes.com/athletic/5924928/2024/11/15/philadelphia-flyers-sanheim-michkov-ristolainen/
 
