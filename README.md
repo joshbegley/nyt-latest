@@ -1,3 +1,7 @@
+**USMNT 1, Jamaica 0: Pepi, Turner help U.S. secure win in Jamaica**\
+`U.S. heads into second leg against Jamaica with a goal advantage `\
+https://nytimes.com/athletic/5923895/2024/11/14/usmnt-jamaica-ricardo-pepi-matt-turner/
+
 **You Might Use It to Walk the Dog**\
 `Alina Abidi opens our solving weekend with a very chatty puzzle.`\
 https://nytimes.com/2024/11/14/crosswords/daily-puzzle-2024-11-15.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/lara-trump-marco-rubio-florida-senate
 **Volleyball players, coach sue SJSU, Mountain West over transgender athlete**\
 `The plaintiffs include SJSU co-captain Brooke Slusser, assistant coach Melissa Batie-Smoose and two former Spartans players.`\
 https://nytimes.com/athletic/5923566/2024/11/14/san-jose-state-volleyball-lawsuit-transgender-player/
-
-**Trump Picks Doug Collins, Ex-Congressman and Impeachment Defender, to Lead V.A.**\
-`Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment inquiry in 2019.`\
-https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
 
