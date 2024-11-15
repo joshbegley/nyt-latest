@@ -30,8 +30,8 @@ https://nytimes.com/2024/11/15/opinion/biden-trump-election-blame.html
 `Sophie Straat is reviving a style of music once popular in the working-class bars of Amsterdam to protest an increasingly expensive and homogenized city.`\
 https://nytimes.com/2024/11/15/arts/music/sophie-straat-amsterdam.html
 
-**What England need to do to secure UEFA Nations League promotion**\
-`England's host the Republic of Ireland in their final Nations League league phase match on Sunday. These are the permutations`\
+**What England need to do in their final group game to secure Nations League promotion**\
+`England's host the Republic of Ireland in their final Nations League group phase match on Sunday. These are the permutations...`\
 https://nytimes.com/athletic/5924576/2024/11/15/england-ireland-uefa-nations-league-game/
 
 **FIFA president Infantino’s name engraved on new CWC trophy**\
