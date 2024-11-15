@@ -1,3 +1,7 @@
+**Nuclear Power Was Once Shunned at Climate Talks. Now, It’s a Rising Star.**\
+`Growing worldwide energy demand and other factors have shifted the calculus, but hurdles still lie ahead.`\
+https://nytimes.com/2024/11/15/climate/cop29-climate-nuclear-power.html
+
 **What’s Your ‘Romeo and Juliet’ I.Q.?**\
 `Test your knowledge, for never was a quiz of more woe than this of Juliet and her Romeo.`\
 https://nytimes.com/interactive/2024/11/15/theater/romeo-juliet-shakespeare-broadway-quiz.html
