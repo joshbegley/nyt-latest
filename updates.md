@@ -1,3 +1,7 @@
+**Review: The Philharmonic Gives a Master Class in Programming**\
+`The composer John Adams led the New York Philharmonic in a program of contemporary works that didn’t make a big deal of contemporary music.`\
+https://nytimes.com/2024/11/15/arts/music/review-new-york-philharmonic-john-adams.html
+
 **Five International Movies to Stream Now**\
 `This month’s picks include coming-of-age stories from India, Italy, Canada, Switzerland and Poland, in which children and teens learn truths about adulthood the hard way.`\
 https://nytimes.com/2024/11/15/movies/international-movies-streaming.html
