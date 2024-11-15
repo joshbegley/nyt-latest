@@ -1,3 +1,11 @@
+**Mike Tyson vs Jake Paul: What to know about boxing's controversial fight**\
+`Mike Tyson and Jake Paul's controversial fight takes place in Texas later today, but there is a more significant bout on the card`\
+https://nytimes.com/athletic/5921976/2024/11/15/jake-paul-mike-tyson-netflix-boxing/
+
+**Why do Tottenham keep conceding the first goal in their Premier League matches?**\
+`Spurs’ in-possession approach breeds difficulties when they lose the ball - and it is an issue they must fix`\
+https://nytimes.com/athletic/5922478/2024/11/15/tottenham-conceding-first-goal/
+
 **Playing WSL matches at 'main' stadiums brings problems. The way they are solved is crucial**\
 `How top-level women's football decides where to play its club fixtures could have a huge impact on the game's future`\
 https://nytimes.com/athletic/5922009/2024/11/15/wsl-championship-stadia-problems-solutions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5922224/2024/11/15/arsenal-sporting-director-search
 **Saquon Barkley's huge fourth quarter keys win over Commanders: Takeaways**\
 `The Eagles trailed 10-6 heading into the fourth quarter but scored three TDs in the final frame to secure their sixth straight victory.`\
 https://nytimes.com/athletic/5923816/2024/11/15/eagles-commanders-score-result-takeaways-tnf/
-
-**In Moscow, Trump’s Victory Is Welcomed, but Warily**\
-`Donald Trump’s re-election victory has dominated media coverage in Russia, where there is restrained optimism about the prospect for better relations.`\
-https://nytimes.com/2024/11/15/world/europe/trump-russia-moscow-war.html
-
-**A Surprise at the Federalist Society Gala: Justice Breyer, a Retired Liberal**\
-`The conservative legal group’s annual dinner featured a conversation between Justices Stephen G. Breyer and Neil M. Gorsuch, a conservative. Both stressed the importance of an independent judiciary.`\
-https://nytimes.com/2024/11/15/us/breyer-gorsuch-federalist-society.html
 
