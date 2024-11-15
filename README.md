@@ -1,3 +1,7 @@
+**Three keys and a prediction for Notre Dame's senior day game vs. Virginia**\
+`Notre Dame has won its past six home finales by an average of 37.2 points. Can it continue that success against Virginia?`\
+https://nytimes.com/athletic/5925381/2024/11/15/notre-dame-football-virginia-preview/
+
 **Have You Ever Ghosted Somebody? We Want to Hear About It.**\
 `Tell us about your experience for a New York Times Magazine article about how we communicate in our dating lives and relationships.`\
 https://nytimes.com/2024/11/15/us/ghosting-dating-relationships.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925237/2024/11/15/packers-marshawn-lloyd-appendici
 **Claire Gaudiani, Embattled Connecticut College President, Dies at 79**\
 `Her unusual approach to building bridges between her wealthy campus and its beleaguered hometown led to a Supreme Court case and a faculty revolt.`\
 https://nytimes.com/2024/11/15/education/claire-gaudiani-dead.html
-
-**Editor Resigns After Calling Some Trump Supporters ‘Fascists’**\
-`Laura Helmuth, the editor in chief of Scientific American, apologized and attributed her comments, which she shared on social media, to “shock and confusion about the election results.”`\
-https://nytimes.com/2024/11/15/business/media/laura-helmuth-resigns-scientific-american.html
 
