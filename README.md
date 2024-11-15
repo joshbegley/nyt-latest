@@ -1,3 +1,7 @@
+**Colts WR Pittman to return vs. Jets, LT Raimann ruled out**\
+`The receiver's return against the Jets will coincide with quarterback Anthony Richardson's return to the starting lineup.`\
+https://nytimes.com/athletic/5925218/2024/11/15/colts-michael-pittman-bernhard-raimann/
+
 **Princess Yuriko, Oldest Member of Japan’s Imperial Family, Dies at 101**\
 `Her death reduces Japan’s rapidly dwindling imperial family to 16 people, and only 4 men, as the country faces questions about the future under a male-only succession law.`\
 https://nytimes.com/2024/11/15/world/asia/princess-yuriko-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/books/review/podcast-patrick-radden-keefe-say-not
 **Trump Asks Steven Cheung to Lead White House Communications**\
 `After serving as the president-elect’s chief campaign spokesman, Mr. Cheung will return to the White House next year.`\
 https://nytimes.com/2024/11/15/us/politics/steven-cheung-trump-white-house-communications.html
-
-**Watch Zoe Saldaña Confront Corrupt Politicians in ‘Emilia Pérez’**\
-`The director Jacques Audiard narrates the star’s passionate musical performance from the film.`\
-https://nytimes.com/2024/11/15/movies/emilia-perez-clip-zoe-saldana.html
 
