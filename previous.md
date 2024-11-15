@@ -1,3 +1,7 @@
+**Tyrell Malacia on his injury nightmare and conspiracy theories that ran wild: 'There’s no way I could ever give up'**\
+`Left-back stayed almost silent during his long absence as rumours about his whereabouts swirled. Now he tells of what really happened...`\
+https://nytimes.com/athletic/5919997/2024/11/15/manchester-united-tyrell-malacia-interview/
+
 **Why Maori Protested With a Haka in New Zealand’s Parliament**\
 `Opposition lawmakers performed the traditional dance during a reading of a bill that would redefine the country’s founding treaty with its Indigenous people.`\
 https://nytimes.com/2024/11/15/world/asia/new-zealand-parliament-maori-haka.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923924/2024/11/15/canucks-islanders-jonathan-lekke
 **Ukraine Is Running Out of Optimists**\
 `There is safety in simply trusting that the worst will happen. To dare to hope has always been the risk.`\
 https://nytimes.com/2024/11/15/opinion/ukraine-trump-election.html
-
-**Thanks to exceptional structure, Wild's 'plug and play' mantra keeps leading to wins**\
-`After losing Mats Zuccarello and Joel Eriksson Ek, the Wild got creative with their line combinations for a 3-0 win over the Canadiens.`\
-https://nytimes.com/athletic/5924150/2024/11/15/minnesota-wild-win-canadiens-zuccarello-eriksson-ek/
 

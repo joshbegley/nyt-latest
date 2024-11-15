@@ -1,3 +1,7 @@
+**Tyrell Malacia on his injury nightmare and conspiracy theories that ran wild: 'There’s no way I could ever give up'**\
+`Left-back stayed almost silent during his long absence as rumours about his whereabouts swirled. Now he tells of what really happened...`\
+https://nytimes.com/athletic/5919997/2024/11/15/manchester-united-tyrell-malacia-interview/
+
 **Real Madrid's internal tensions: 25 injuries, concerns over running stats and divisive Pintus**\
 `Madrid are experiencing a troubled season on and off the pitch. Here, we explain the divisions happening behind the scenes`\
 https://nytimes.com/athletic/5922217/2024/11/15/real-madrid-pintus-fitness-injuries/
