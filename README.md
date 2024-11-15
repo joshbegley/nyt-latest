@@ -1,3 +1,7 @@
+**More early overreactions: Darius Garland and KAT get physical; Hawks show flashes**\
+`Plus: Are the Nets too frisky for their own good?`\
+https://nytimes.com/athletic/5924458/2024/11/15/nba-overreactions-darius-garland-cavaliers-karl-anthony-towns/
+
 **Putin Talks With German Chancellor, Breaking Ice With the West**\
 `The hourlong call centered on what German officials said was a push to end the war in Ukraine. It was the first in two years between Mr. Putin and Chancellor Olaf Scholz`\
 https://nytimes.com/2024/11/15/world/europe/scholz-putin-russia-germany-call.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/business/media/matt-gaetz-trump-media-coverage.ht
 **NHL Power Rankings: Jets stay on top, Wild rise, plus our early MVPs**\
 `Here are our picks for each team’s MVP from the season's first quarter.`\
 https://nytimes.com/athletic/5924186/2024/11/15/nhl-power-rankings-jets-wild/
-
-**Why does Sebastian Aho feel like an afterthought for the Hurricanes?**\
-`Aho has totaled 14 points in 15 games, but his past suggests that his goal-scoring will pick up.`\
-https://nytimes.com/athletic/5924200/2024/11/15/sebastian-aho-hurricanes-goals-points/
 
