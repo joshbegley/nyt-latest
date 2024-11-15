@@ -1,3 +1,19 @@
+**How to watch Grizzlies vs. Warriors as Golden State tries to stay hot**\
+`The red-hot Warriors host the gritty Grizzlies in Friday's NBA Cup action.`\
+https://nytimes.com/athletic/5925038/2024/11/15/grizzlies-warriors-watch-odds-bet/
+
+**Colorado’s Democratic governor praises Kennedy, then has to explain it.**\
+`Jared Polis’s support reflects a libertarian streak, even as he helps lead a new group of governors opposing the incoming Trump administration.`\
+https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/colorados-democratic-governor-praises-kennedy-then-has-to-explain-it
+
+**Can I Lie About My Academic Interests on My College Application?**\
+`The magazine’s Ethicist columnist on conveying the truth on a pivotal form.`\
+https://nytimes.com/2024/11/15/magazine/academic-interests-college-application-ethics.html
+
+**Trump asks Steven Cheung, his chief campaign spokesman, to lead White House communications.**\
+`By Michael Gold`\
+https://nytimes.com/2024/11/15/us/politics/trump-asks-steven-cheung-his-chief-campaign-spokesman-to-lead-white-house-communications.html
+
 **Republicans Are Leaving Office for Trump Posts. How Will the Vacancies Be Filled?**\
 `The president-elect has selected several allies in Congress, along with a current governor, to join his administration.`\
 https://nytimes.com/2024/11/15/us/politics/how-the-trump-vacancies-will-be-filled.html
