@@ -1,3 +1,7 @@
+**Trump’s Tax Plans**\
+`Three scenarios for how Republicans could approach cutting taxes next year.`\
+https://nytimes.com/2024/11/15/briefing/trumps-tax-plans.html
+
 **Twins say they plan to keep Carlos Correa and the core, but also an open mind on trades**\
 `Despite the club being in a financial bind, Derek Falvey said his highest-priced players remain part of the plan — for now. `\
 https://nytimes.com/athletic/5923848/2024/11/15/twins-carlos-correa-trade-possibility/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923854/2024/11/15/san-diego-wave-alex-morgan-jerse
 **Lazerus: Even players know CHSN fiasco risks sending Blackhawks back into 'oblivion'**\
 `Danny Wirtz has to figure out a way to keep the Blackhawks in the public eye, or risk fading into irrelevance.`\
 https://nytimes.com/athletic/5923353/2024/11/15/chicago-blackhawks-chsn-app-subscription/
-
-**Bernie Sanders Says Democrats Have Lost Their Way**\
-`An interview with the Vermont senator on the fallout of the election defeat.`\
-https://nytimes.com/2024/11/15/podcasts/the-daily/bernie-sanders-democratic-party.html
 
