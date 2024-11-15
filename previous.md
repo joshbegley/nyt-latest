@@ -1,3 +1,11 @@
+**Word of the Day: lichen**\
+`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/15/learning/word-of-the-day-lichen.html
+
+**Elon Musk Adds Microsoft to Suit Against OpenAI**\
+`In a new legal filing, the Tesla chief executive accuses the A.I. start-up of undermining antitrust law.`\
+https://nytimes.com/2024/11/15/technology/elon-musk-microsoft-openai.html
+
 **Jonathan Lekkerimäki's first goal, and was that Canucks' worst game of season? 3 takeaways**\
 `Thursday was a brutal showing against a mediocre Islanders roster that didn't even come close to icing its best, most healthy lineup.`\
 https://nytimes.com/athletic/5923924/2024/11/15/canucks-islanders-jonathan-lekkerimaki-first-goal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5922478/2024/11/15/tottenham-conceding-first-goal/
 **Playing WSL matches at 'main' stadiums brings problems. The way they are solved is crucial**\
 `How top-level women's football decides where to play its club fixtures could have a huge impact on the game's future`\
 https://nytimes.com/athletic/5922009/2024/11/15/wsl-championship-stadia-problems-solutions/
-
-**Shopping for Rodri replacements: Who should Manchester City consider in January?**\
-`Nobody can emulate Rodri's unique skill set, but these replacements would help smooth over his absence in the second half of the season...`\
-https://nytimes.com/athletic/5922349/2024/11/15/rodri-replacements-transfer-market-manchester-city/
-
-**Why an NFL star fell in love with Wrexham: 'They could lose every match and I would still support this club'**\
-`The story of Joey Harrington and the Welsh soccer club`\
-https://nytimes.com/athletic/5881961/2024/11/15/wrexham-nfl-joey-harrington/
 

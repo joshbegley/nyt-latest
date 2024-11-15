@@ -1,3 +1,11 @@
+**Word of the Day: lichen**\
+`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/15/learning/word-of-the-day-lichen.html
+
+**Elon Musk Adds Microsoft to Suit Against OpenAI**\
+`In a new legal filing, the Tesla chief executive accuses the A.I. start-up of undermining antitrust law.`\
+https://nytimes.com/2024/11/15/technology/elon-musk-microsoft-openai.html
+
 **Jonathan Lekkerimäki's first goal, and was that Canucks' worst game of season? 3 takeaways**\
 `Thursday was a brutal showing against a mediocre Islanders roster that didn't even come close to icing its best, most healthy lineup.`\
 https://nytimes.com/athletic/5923924/2024/11/15/canucks-islanders-jonathan-lekkerimaki-first-goal/
