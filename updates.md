@@ -1,3 +1,11 @@
+**Georgia Poll Workers Defamed by Giuliani Receive Some of His Assets**\
+`A watch collection, a ring and a vintage Mercedes-Benz belonging to the former Trump lawyer were delivered nearly a year after he was ordered to pay $148 million to the workers he had spread lies about.`\
+https://nytimes.com/2024/11/15/us/politics/rudy-giuliani-georgia-poll-workers.html
+
+**Trump Names Karoline Leavitt as His White House Press Secretary**\
+`Ms. Leavitt, 27, served as his campaign’s press secretary and worked in the White House during his first administration.`\
+https://nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html
+
 **Former Reds manager David Bell joins Blue Jays' front office**\
 `Bell will serve as Toronto's vice president of baseball operations and assistant general manager after six seasons managing the Reds.`\
 https://nytimes.com/athletic/5925700/2024/11/15/david-bell-blue-jays-front-office/
