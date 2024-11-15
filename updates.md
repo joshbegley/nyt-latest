@@ -1,3 +1,7 @@
+**Real Madrid's internal tensions: 25 injuries, concerns over running stats and divisive Pintus**\
+`Madrid are experiencing a troubled season on and off the pitch. Here, we explain the divisions happening behind the scenes`\
+https://nytimes.com/athletic/5922217/2024/11/15/real-madrid-pintus-fitness-injuries/
+
 **Why Maori Protested With a Haka in New Zealand’s Parliament**\
 `Opposition lawmakers performed the traditional dance during a reading of a bill that would redefine the country’s founding treaty with its Indigenous people.`\
 https://nytimes.com/2024/11/15/world/asia/new-zealand-parliament-maori-haka.html
