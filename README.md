@@ -1,3 +1,11 @@
+**The 25th Latin Grammys Showed Their Age**\
+`While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
+https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
+
+**Shaboozey Seeks ‘Good News’ in Another Bar, and 7 More New Songs**\
+`Hear tracks by Yola, Julia Holter, Angel Olsen and others.`\
+https://nytimes.com/2024/11/15/arts/music/playlist-shaboozey-lil-nas-x.html
+
 **Why Kennedy Sees an ‘Epidemic’ of Chronic Disease Among Children**\
 `Trends in child health are in fact worrisome, and scientists welcome a renewed focus on foods and environmental toxins. But vaccines and fluoride are not the cause.`\
 https://nytimes.com/2024/11/15/health/rfk-chronic-diseases-children.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/15/arts/dance/ralph-lemon-tell-it-anyway-review-moma
 **The Trump Lawyer Who Wields Outsize Influence on the Next White House**\
 `Boris Epshteyn has quickly become one of the most powerful figures in the early days of the presidential transition, even floating his own name to help broker peace between Russia and Ukraine.`\
 https://nytimes.com/2024/11/15/us/politics/boris-epshteyn-trump.html
-
-**College football Week 12 model-projected point differentials, totals for every game**\
-`Austin Mock's projection model takes a look at every FBS vs. FBS game in college football's Week 12.`\
-https://nytimes.com/athletic/5924669/2024/11/15/college-football-week-12-model-projections/
-
-**Juan Soto, Red Sox have 'productive' meeting: Report**\
-`According to MassLive, Boston leadership met with Soto — who grew up a Red Sox fan — for more than three hours.`\
-https://nytimes.com/athletic/5924852/2024/11/15/red-sox-juan-soto-meeting-free-agent/
 
