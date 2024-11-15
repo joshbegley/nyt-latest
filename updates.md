@@ -1,3 +1,7 @@
+**Thanks to exceptional structure, Wild's 'plug and play' mantra keeps leading to wins**\
+`After losing Mats Zuccarello and Joel Eriksson Ek, the Wild got creative with their line combinations for a 3-0 win over the Canadiens.`\
+https://nytimes.com/athletic/5924150/2024/11/15/minnesota-wild-win-canadiens-zuccarello-eriksson-ek/
+
 **Nottingham Forest's defining seven-match run**\
 `Forest have a daunting seven-match run on the horizon - one that will determine whether they can maintain their fine start to the season `\
 https://nytimes.com/athletic/5922144/2024/11/15/nottingham-forest-fixtures-premier-league/

@@ -1,3 +1,7 @@
+**Thanks to exceptional structure, Wild's 'plug and play' mantra keeps leading to wins**\
+`After losing Mats Zuccarello and Joel Eriksson Ek, the Wild got creative with their line combinations for a 3-0 win over the Canadiens.`\
+https://nytimes.com/athletic/5924150/2024/11/15/minnesota-wild-win-canadiens-zuccarello-eriksson-ek/
+
 **Nottingham Forest's defining seven-match run**\
 `Forest have a daunting seven-match run on the horizon - one that will determine whether they can maintain their fine start to the season `\
 https://nytimes.com/athletic/5922144/2024/11/15/nottingham-forest-fixtures-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/briefing/trump-kennedy-israel-soccer.html
 **How the role of the 'loan and pathways manager' is improving footballers' career prospects**\
 `With the value of young talented players rising in the PSR era, parent clubs are taking more care of their footballing education`\
 https://nytimes.com/athletic/5888428/2024/11/15/loan-pathway-manager-premier-league-youngsters/
-
-**Next week’s waiver wire: Tyjae Spears, Elijah Moore and more players to add now — before the Week 12 rush**\
-`John Laghezza shares his top expected future waiver wire plays, including Elijah Moore, who is arrowing up with Jameis Winston.`\
-https://nytimes.com/athletic/5922400/2024/11/15/week-12-waiver-wire-tyjae-spears-elijah-moore-players-adds/
 
