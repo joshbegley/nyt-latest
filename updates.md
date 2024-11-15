@@ -1,3 +1,7 @@
+**Florida QB DJ Lagway to return Saturday against LSU**\
+`Lagway, a former five-star recruit, missed last week's game against Texas. Receiver Elijhah Badger is also expected to be available.`\
+https://nytimes.com/athletic/5923750/2024/11/14/florida-gators-quarterback-dj-lagway-billy-napier-lsu/
+
 **Giants elevate Randy Winn to top role in player development**\
 `Winn played five of his 13 seasons in San Francisco and has been involved in the Giants organization in different capacities since 2018.`\
 https://nytimes.com/athletic/5923664/2024/11/14/randy-winn-sf-giants-player-development/
