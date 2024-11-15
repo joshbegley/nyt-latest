@@ -1,3 +1,11 @@
+**Teresa Weatherspoon joins Unrivaled 3x3 league**\
+`Weatherspoon will be one of the six coaches for Unrivaled, the new 3x3 winter basketball league.`\
+https://nytimes.com/athletic/5921150/2024/11/15/teresa-weatherspoon-unrivaled-coaching/
+
+**Pence Urges Republican Senators Not to Confirm R.F.K. Jr., Citing His Support of Abortion Rights**\
+`Former Vice President Mike Pence described Mr. Kennedy, who does not support a federal abortion ban, as a choice unlike any in the modern era of the G.O.P.`\
+https://nytimes.com/2024/11/15/us/politics/pence-rfk-jr-abortion-rights.html
+
 **Pence urges Republican senators not to confirm R.F.K. Jr., citing his support of abortion rights.**\
 `Former Vice President Mike Pence described Mr. Kennedy, who does not support a federal abortion ban, as a choice unlike any in the modern era of the G.O.P.`\
 https://nytimes.com/2024/11/15/us/politics/pence-rfk-jr-abortion-rights.html

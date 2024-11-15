@@ -1,3 +1,7 @@
+**Teresa Weatherspoon joins Unrivaled 3x3 league**\
+`Weatherspoon will be one of the six coaches for Unrivaled, the new 3x3 winter basketball league.`\
+https://nytimes.com/athletic/5921150/2024/11/15/teresa-weatherspoon-unrivaled-coaching/
+
 **Kennedy’s Vow to Take On Big Food Could Face Resistance**\
 `Processed foods are in the cross hairs of Robert F. Kennedy Jr., but battling major companies could collide with President-elect Donald J. Trump’s corporate-friendly goals.`\
 https://nytimes.com/2024/11/15/health/rfk-big-food-artificial-dyes-trump.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/11/15/health/rfk-big-food-artificial-dyes-trump.html
 `While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
 https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
 
-**Pence urges Republican senators not to confirm R.F.K. Jr., citing his support of abortion rights.**\
+**Pence Urges Republican Senators Not to Confirm R.F.K. Jr., Citing His Support of Abortion Rights**\
 `Former Vice President Mike Pence described Mr. Kennedy, who does not support a federal abortion ban, as a choice unlike any in the modern era of the G.O.P.`\
 https://nytimes.com/2024/11/15/us/politics/pence-rfk-jr-abortion-rights.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/15/movies/international-movies-streaming.html
 **Heat Today: Bam Adebayo, rest of team eyes early solutions before facing Pacers**\
 `What does Miami need to correct against Indiana and going forward? Adebayo has an idea.`\
 https://nytimes.com/athletic/5924550/2024/11/15/bam-adebayo-heat-pacers-tyrese-haliburton/
-
-**NFL Week 11 fantasy football, betting cheat sheet: Trevor Lawrence remains out, LaPorta at risk of sitting**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
-https://nytimes.com/athletic/5917115/2024/11/15/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
 
