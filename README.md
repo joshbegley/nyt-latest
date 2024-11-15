@@ -1,3 +1,7 @@
+**Trump Names Karoline Leavitt as His White House Press Secretary**\
+`Ms. Leavitt, 27, served as his campaign’s press secretary and worked in the White House during his first administration.`\
+https://nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html
+
 **Former Reds manager David Bell joins Blue Jays' front office**\
 `Bell will serve as Toronto's vice president of baseball operations and assistant general manager after six seasons managing the Reds.`\
 https://nytimes.com/athletic/5925700/2024/11/15/david-bell-blue-jays-front-office/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/us/politics/trump-cabinet-picks-men.html
 **As Rams OL struggles with continuity, more changes could come in Week 11**\
 `The Rams travel to play New England on Sunday.`\
 https://nytimes.com/athletic/5925514/2024/11/15/rams-sean-mcvay-offensive-line-center/
-
-**Trump Turns to His Personal Lawyers to Stock Top Ranks of Justice Dept.**\
-`The president-elect intends to nominate three members of his criminal defense team to senior roles, raising further concerns about politicization of the department.`\
-https://nytimes.com/2024/11/15/us/politics/trump-lawyers-justice-department.html
 

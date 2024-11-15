@@ -1,3 +1,7 @@
+**Former Reds manager David Bell joins Blue Jays' front office**\
+`Bell will serve as Toronto's vice president of baseball operations and assistant general manager after six seasons managing the Reds.`\
+https://nytimes.com/athletic/5925700/2024/11/15/david-bell-blue-jays-front-office/
+
 **Orioles announce plans to change left-field wall dimensions for 2025 season**\
 `The Orioles raised the height of the wall and moved it back between the 2021 and 2022 seasons. Now the wall is getting moved in.`\
 https://nytimes.com/athletic/5925662/2024/11/15/orioles-left-field-wall-dimensions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925514/2024/11/15/rams-sean-mcvay-offensive-line-c
 **Trump Turns to His Personal Lawyers to Stock Top Ranks of Justice Dept.**\
 `The president-elect intends to nominate three members of his criminal defense team to senior roles, raising further concerns about politicization of the department.`\
 https://nytimes.com/2024/11/15/us/politics/trump-lawyers-justice-department.html
-
-**Judge John Hodgman on Humorous Bathroom Signs**\
-`If you make the request funny, can you tell your guests how to use your toilet?`\
-https://nytimes.com/2024/11/15/magazine/judge-john-hodgman-on-humorous-bathroom-signs.html
 

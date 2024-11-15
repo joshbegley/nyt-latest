@@ -1,3 +1,7 @@
+**Former Reds manager David Bell joins Blue Jays' front office**\
+`Bell will serve as Toronto's vice president of baseball operations and assistant general manager after six seasons managing the Reds.`\
+https://nytimes.com/athletic/5925700/2024/11/15/david-bell-blue-jays-front-office/
+
 **Orioles announce plans to change left-field wall dimensions for 2025 season**\
 `The Orioles raised the height of the wall and moved it back between the 2021 and 2022 seasons. Now the wall is getting moved in.`\
 https://nytimes.com/athletic/5925662/2024/11/15/orioles-left-field-wall-dimensions/
