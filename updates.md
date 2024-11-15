@@ -1,3 +1,7 @@
+**Bird, Fowles headline 2025 Women's Basketball HOF class**\
+`Alana Beard, Cappie Pondexter, Mark Campbell, Lucille Kyvallosare and Danielle Donehew also a part of the 2025 class`\
+https://nytimes.com/athletic/5925539/2024/11/15/sue-bird-sylvia-fowles-hall-of-fame/
+
 **Ex-N.F.L. Linebacker Hit and Pushed Police During Jan. 6 Riot, U.S. Says**\
 `Antwione Williams, who played a season with the Detroit Lions, is charged with assaulting officers at the U.S. Capitol.`\
 https://nytimes.com/2024/11/15/us/antwione-williams-jan-6-arrested.html

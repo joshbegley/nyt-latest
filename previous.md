@@ -1,3 +1,7 @@
+**Bird, Fowles headline 2025 Women's Basketball HOF class**\
+`Alana Beard, Cappie Pondexter, Mark Campbell, Lucille Kyvallosare and Danielle Donehew also a part of the 2025 class`\
+https://nytimes.com/athletic/5925539/2024/11/15/sue-bird-sylvia-fowles-hall-of-fame/
+
 **Ex-N.F.L. Linebacker Hit and Pushed Police During Jan. 6 Riot, U.S. Says**\
 `Antwione Williams, who played a season with the Detroit Lions, is charged with assaulting officers at the U.S. Capitol.`\
 https://nytimes.com/2024/11/15/us/antwione-williams-jan-6-arrested.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/magazine/judge-john-hodgman-on-humorous-bathroom-
 **Activists Sent to Prison for Pouring Powder Over Case Holding U.S. Constitution**\
 `One climate activist was sentenced to 18 months in prison, the other to two years. They said that they had meant to draw attention to climate change.`\
 https://nytimes.com/2024/11/15/us/constitution-red-powder-activists-sentenced.html
-
-**NBA considering tournament-style format for 2025 All-Star Game: Sources**\
-`The changes would be the league’s latest attempt to rejuvenate the All-Star Game, which has fallen flat over the last few seasons.`\
-https://nytimes.com/athletic/5925571/2024/11/15/nba-all-star-game-changes-tournament-style-2025/
 
