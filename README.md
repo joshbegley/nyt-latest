@@ -1,3 +1,7 @@
+**Review: The Philharmonic Gives a Master Class in Programming**\
+`The composer John Adams led the New York Philharmonic in a program of contemporary works that didn’t make a big deal of contemporary music.`\
+https://nytimes.com/2024/11/15/arts/music/review-new-york-philharmonic-john-adams.html
+
 **Five International Movies to Stream Now**\
 `This month’s picks include coming-of-age stories from India, Italy, Canada, Switzerland and Poland, in which children and teens learn truths about adulthood the hard way.`\
 https://nytimes.com/2024/11/15/movies/international-movies-streaming.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/15/world/europe/scholz-putin-russia-germany-call.htm
 **Don’t Blame Biden for Trump’s Victory**\
 `Readers respond to a guest essay by Josh Barro. Also: Elon Musk and America’s birthrate; a pharmacist’s view; the danger of extreme heat.`\
 https://nytimes.com/2024/11/15/opinion/biden-trump-election-blame.html
-
-**Fighting Gentrification With Folk Music**\
-`Sophie Straat is reviving a style of music once popular in the working-class bars of Amsterdam to protest an increasingly expensive and homogenized city.`\
-https://nytimes.com/2024/11/15/arts/music/sophie-straat-amsterdam.html
 
