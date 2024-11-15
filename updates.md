@@ -1,3 +1,7 @@
+**Ukraine Is Running Out of Optimists**\
+`There is safety in simply trusting that the worst will happen. To dare to hope has always been the risk.`\
+https://nytimes.com/2024/11/15/opinion/ukraine-trump-election.html
+
 **Thanks to exceptional structure, Wild's 'plug and play' mantra keeps leading to wins**\
 `After losing Mats Zuccarello and Joel Eriksson Ek, the Wild got creative with their line combinations for a 3-0 win over the Canadiens.`\
 https://nytimes.com/athletic/5924150/2024/11/15/minnesota-wild-win-canadiens-zuccarello-eriksson-ek/
