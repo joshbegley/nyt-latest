@@ -1,3 +1,7 @@
+**Burgum Will Be Trump’s ‘Energy Czar’**\
+`The North Dakota governor, who helped strengthen ties between the oil industry and President-elect Donald J. Trump, will do double duty as Interior secretary.`\
+https://nytimes.com/2024/11/15/climate/burgum-trump-energy-czar.html
+
 **Colts WR Pittman to return vs. Jets, LT Raimann ruled out**\
 `The receiver's return against the Jets will coincide with the reinsertion of quarterback Anthony Richardson into the starting lineup.`\
 https://nytimes.com/athletic/5925218/2024/11/15/colts-michael-pittman-bernhard-raimann/
