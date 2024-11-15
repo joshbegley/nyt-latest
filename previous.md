@@ -1,3 +1,11 @@
+**Auston Matthews' mysterious absence from the Leafs continues**\
+`Matthew will end up missing more than two weeks, at the very least, with a chance to play next on Wednesday against Vegas.`\
+https://nytimes.com/athletic/5924942/2024/11/15/maple-leafs-auston-matthews-injury-3/
+
+**Why 2 Big-League Teams Will Squeeze Into Small Homes in 2025**\
+`The A’s and Tampa Bay Rays will play in minor league ballparks next season, one because of hurricane damage and the other because of an interstate move.`\
+https://nytimes.com/2024/11/15/sports/oakland-as-tampa-rays-new-stadiums.html
+
 **The 25th Latin Grammys Showed Their Age**\
 `While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
 https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5924728/2024/11/15/mike-tyson-jake-paul-odds-fight-
 **JuJu Watkins becomes first active NCAA athlete to inspire a Funko Pop**\
 `Watkins continues to rack up firsts both on and off the court `\
 https://nytimes.com/athletic/5924515/2024/11/15/juju-watkins-funko-pop-usc/
-
-**Review: In ‘Tell It Anyway,’ Freedom Is Power**\
-`This Ralph Lemon work, part of a MoMA PS1 exhibition, is an experience of sound as much as dance. His collaborators can lead an audience to ecstasy.`\
-https://nytimes.com/2024/11/15/arts/dance/ralph-lemon-tell-it-anyway-review-moma.html
-
-**The Trump Lawyer Who Wields Outsize Influence on the Next White House**\
-`Boris Epshteyn has quickly become one of the most powerful figures in the early days of the presidential transition, even floating his own name to help broker peace between Russia and Ukraine.`\
-https://nytimes.com/2024/11/15/us/politics/boris-epshteyn-trump.html
 

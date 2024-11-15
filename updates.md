@@ -1,3 +1,11 @@
+**Auston Matthews' mysterious absence from the Leafs continues**\
+`Matthew will end up missing more than two weeks, at the very least, with a chance to play next on Wednesday against Vegas.`\
+https://nytimes.com/athletic/5924942/2024/11/15/maple-leafs-auston-matthews-injury-3/
+
+**Why 2 Big-League Teams Will Squeeze Into Small Homes in 2025**\
+`The A’s and Tampa Bay Rays will play in minor league ballparks next season, one because of hurricane damage and the other because of an interstate move.`\
+https://nytimes.com/2024/11/15/sports/oakland-as-tampa-rays-new-stadiums.html
+
 **The 25th Latin Grammys Showed Their Age**\
 `While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
 https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
