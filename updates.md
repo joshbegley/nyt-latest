@@ -1,3 +1,7 @@
+**Stocks Fall as Wall Street’s Election Enthusiasm Subsides**\
+`The post-election rally has lost steam, with the S&P 500 down 2 percent for the week. But major stock indexes are still up since Election Day.`\
+https://nytimes.com/2024/11/15/business/stock-market-election-trump-economy.html
+
 **How to watch UConn vs. North Carolina, tonight's women's basketball headliner**\
 `Friday night's matchup features two of the best teams in women's college basketball.`\
 https://nytimes.com/athletic/5925241/2024/11/15/uconn-unc-how-to-watch-odds/

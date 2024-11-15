@@ -1,3 +1,7 @@
+**Stocks Fall as Wall Street’s Election Enthusiasm Subsides**\
+`The post-election rally has lost steam, with the S&P 500 down 2 percent for the week. But major stock indexes are still up since Election Day.`\
+https://nytimes.com/2024/11/15/business/stock-market-election-trump-economy.html
+
 **How to watch UConn vs. North Carolina, tonight's women's basketball headliner**\
 `Friday night's matchup features two of the best teams in women's college basketball.`\
 https://nytimes.com/athletic/5925241/2024/11/15/uconn-unc-how-to-watch-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/world/asia/princess-yuriko-dead.html
 **Leicy Santos has proven herself to be a game changer for the Washington Spirit**\
 `Santos and the Spirit face Gotham FC in an NWSL playoffs semifinal on Saturday with the title game just a week away`\
 https://nytimes.com/athletic/5925057/2024/11/15/leicy-santos-washington-spirit-game-changer/
-
-**How to watch Grizzlies vs. Warriors as Golden State tries to stay hot**\
-`The red-hot Warriors host the gritty Grizzlies in Friday's NBA Cup action.`\
-https://nytimes.com/athletic/5925038/2024/11/15/grizzlies-warriors-watch-odds-bet/
 
