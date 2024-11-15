@@ -1,3 +1,7 @@
+**You Might Use It to Walk the Dog**\
+`Alina Abidi opens our solving weekend with a very chatty puzzle.`\
+https://nytimes.com/2024/11/14/crosswords/daily-puzzle-2024-11-15.html
+
 **Argentina Mulls Exiting Paris Climate Deal**\
 `The South American nation says it is considering withdrawing from the landmark agreement, which aims to limit carbon emissions and slow global warming.`\
 https://nytimes.com/2024/11/14/world/americas/argentina-exit-climate-deal.html
