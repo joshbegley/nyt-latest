@@ -1,3 +1,7 @@
+**Georgia's Trevor Etienne ruled against Tennessee**\
+`Etienne has been a bright spot for Georgia's offense, rushing for 477 yards in seven starts, with 23 catches for 140 yards.`\
+https://nytimes.com/athletic/5923820/2024/11/14/trevor-etienne-georgia-tennessee/
+
 **Trump Picks Doug Collins, Ex-Congressman and Impeachment Defender, to Lead V.A.**\
 `Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment inquiry in 2019.`\
 https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html

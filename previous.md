@@ -1,3 +1,7 @@
+**Georgia's Trevor Etienne ruled against Tennessee**\
+`Etienne has been a bright spot for Georgia's offense, rushing for 477 yards in seven starts, with 23 catches for 140 yards.`\
+https://nytimes.com/athletic/5923820/2024/11/14/trevor-etienne-georgia-tennessee/
+
 **Florida QB DJ Lagway to return Saturday against LSU**\
 `Lagway, a former five-star recruit, missed last week's game against Texas. Receiver Elijhah Badger is also expected to be available.`\
 https://nytimes.com/athletic/5923750/2024/11/14/florida-gators-quarterback-dj-lagway-billy-napier-lsu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923638/2024/11/14/dawson-merritt-college-football-
 **Why We Got It So Wrong**\
 `It turns out a lot of people don’t behave like ambassadors from this or that group. They think for themselves in unexpected ways.`\
 https://nytimes.com/2024/11/14/opinion/identity-groups-politics.html
-
-**Here’s How Trump Could Lose the Coming Trade War**\
-`Economic conflict is coming. He is utterly unsuited to manage it.`\
-https://nytimes.com/2024/11/14/opinion/trump-china-tariffs.html
 

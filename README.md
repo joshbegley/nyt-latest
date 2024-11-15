@@ -1,3 +1,7 @@
+**Review: ‘King Lear,’ Faster and Less Furious**\
+`Kenneth Branagh’s production of the Shakespeare classic speeds through the material and can’t quite figure out its tone.`\
+https://nytimes.com/2024/11/14/theater/king-lear-review-kenneth-branagh.html
+
 **Georgia's Trevor Etienne ruled against Tennessee**\
 `Etienne has been a bright spot for Georgia's offense, rushing for 477 yards in seven starts, with 23 catches for 140 yards.`\
 https://nytimes.com/athletic/5923820/2024/11/14/trevor-etienne-georgia-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923635/2024/11/14/mlbpa-licensing-money-managers-c
 **Nebraska recruiting: Huskers flip 4-star LB Dawson Merritt from Alabama**\
 `Merritt is the highest-rated player in the Huskers’ 20-man recruiting class for 2025.`\
 https://nytimes.com/athletic/5923638/2024/11/14/dawson-merritt-college-football-recruit-nebraska-football/
-
-**Why We Got It So Wrong**\
-`It turns out a lot of people don’t behave like ambassadors from this or that group. They think for themselves in unexpected ways.`\
-https://nytimes.com/2024/11/14/opinion/identity-groups-politics.html
 
