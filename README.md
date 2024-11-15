@@ -1,4 +1,4 @@
-**Wild lose Mats Zuccarello, Joel Eriksson Ek to long-term injuries**\
+**Wild's Mats Zuccarello out 3 to 4 weeks after undergoing surgery**\
 `Coach John Hynes made clear Friday that Zuccarello's timetable is very much an estimate depending on his recovery from a tough injury.`\
 https://nytimes.com/athletic/5924921/2024/11/15/wild-mats-zuccarello-joel-eriksson-ek-injuries/
 
