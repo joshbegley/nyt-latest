@@ -1,3 +1,15 @@
+**Pogba leaves Juventus by mutual agreement**\
+`Paul Pogba will leave Juventus by mutual agreement at the end of the month, after having his four-year ban for failing an anti-doping test reduced to 18 months in October.`\
+https://nytimes.com/athletic/5921962/2024/11/15/paul-pogba-juventus-exit/
+
+**'I was first choice', bond with hierarchy, backing youth - analysing Amorim's first words at United**\
+`The new Manchester United head coach has laid out his vision for the team with his first interview - what exactly did he say and mean?`\
+https://nytimes.com/athletic/5925069/2024/11/15/ruben-amorim-manchester-united-first-words/
+
+**Johnson Says He Will Object to Release of Ethics Report on Gaetz**\
+`The House speaker said revealing the findings of a yearslong inquiry into allegations of sexual misconduct and drug use would be a ‘terrible breach of protocol’ because Matt Gaetz had resigned.`\
+https://nytimes.com/2024/11/15/us/politics/johnson-gaetz-ethics-report.html
+
 **7 New Songs You Should Hear Now**\
 `Catch up on the latest from Soccer Mommy, Haley Heynderickx, Tyler, the Creator and more.`\
 https://nytimes.com/2024/11/15/arts/music/amplifer-newsletter-new-songs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5924942/2024/11/15/maple-leafs-auston-matthews-inju
 **Why 2 Big-League Teams Will Squeeze Into Small Homes in 2025**\
 `The A’s and Tampa Bay Rays will play in minor league ballparks next season, one because of hurricane damage and the other because of an interstate move.`\
 https://nytimes.com/2024/11/15/sports/oakland-as-tampa-rays-new-stadiums.html
-
-**The 25th Latin Grammys Showed Their Age**\
-`While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
-https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
-
-**Shaboozey Seeks ‘Good News’ in Another Bar, and 7 More New Songs**\
-`Hear tracks by Yola, Julia Holter, Angel Olsen and others.`\
-https://nytimes.com/2024/11/15/arts/music/playlist-shaboozey-lil-nas-x.html
-
-**Why Kennedy Sees an ‘Epidemic’ of Chronic Disease Among Children**\
-`Trends in child health are in fact worrisome, and scientists welcome a renewed focus on foods and environmental toxins. But vaccines and fluoride are not the cause.`\
-https://nytimes.com/2024/11/15/health/rfk-chronic-diseases-children.html
 
