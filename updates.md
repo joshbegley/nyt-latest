@@ -1,3 +1,11 @@
+**Princess Yuriko, Oldest Member of Japan’s Imperial Family, Dies at 101**\
+`Her death reduces Japan’s rapidly dwindling imperial family to 16 people, and only 4 men, as the country faces questions about the future under a male-only succession law.`\
+https://nytimes.com/2024/11/15/world/asia/princess-yuriko-dead.html
+
+**Leicy Santos has proven herself to be a game changer for the Washington Spirit**\
+`Santos and the Spirit face Gotham FC in an NWSL playoffs semifinal on Saturday with the title game just a week away`\
+https://nytimes.com/athletic/5925057/2024/11/15/leicy-santos-washington-spirit-game-changer/
+
 **Trump Asks Steven Cheung to Lead White House Communications**\
 `After serving as the president-elect’s chief campaign spokesman, Mr. Cheung will return to the White House next year.`\
 https://nytimes.com/2024/11/15/us/politics/steven-cheung-trump-white-house-communications.html
