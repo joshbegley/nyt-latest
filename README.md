@@ -1,3 +1,7 @@
+**Government by Bro**\
+`The hyper-macho and online energy of the Trump campaign is now aimed at Washington.`\
+https://nytimes.com/2024/11/15/us/politics/trump-cabinet-picks-men.html
+
 **As Rams OL struggles with continuity, more changes could come in Week 11**\
 `The Rams travel to play New England on Sunday.`\
 https://nytimes.com/athletic/5925514/2024/11/15/rams-sean-mcvay-offensive-line-center/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925424/2024/11/15/seahawks-center-connor-williams-
 **Biden Discusses With Allies ‘Dangerous’ Cooperation Between Russia and North Korea**\
 `The president said stronger ties with South Korea and Japan are working, but did not address whether President-elect Donald J. Trump would continue his approach when he takes office in January.`\
 https://nytimes.com/2024/11/15/us/politics/biden-north-korea-russia.html
-
-**Drowning Death of 11-Month-Old Girl in the Bronx Is Ruled a Homicide**\
-`The finding in the case of Jazeli Mirabal is the third death of an infant in New York City over the summer to be labeled a homicide this month.`\
-https://nytimes.com/2024/11/15/nyregion/bronx-baby-drowning-death-homicide.html
 
