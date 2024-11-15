@@ -1,3 +1,7 @@
+**55,000 Postal Workers in Canada Strike Over Pay**\
+`The union walked out after talks with the country’s main mail operator failed. The stoppage could disrupt deliveries before the holidays.`\
+https://nytimes.com/2024/11/15/business/canada-post-workers-strike.html
+
 **Eagles outlast Commanders and seize control of the NFC East**\
 `The Eagles overcame some mishaps on offense to beat their division rival.`\
 https://nytimes.com/athletic/5923770/2024/11/15/eagles-commanders-control-nfc-east/
