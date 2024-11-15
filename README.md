@@ -1,3 +1,15 @@
+**How to watch Grizzlies vs. Warriors as Golden State tries to stay hot**\
+`The red-hot Warriors host the gritty Grizzlies in Friday's NBA Cup action.`\
+https://nytimes.com/athletic/5925038/2024/11/15/grizzlies-warriors-watch-odds-bet/
+
+**Colorado’s Democratic governor praises Kennedy, then has to explain it.**\
+`Jared Polis’s support reflects a libertarian streak, even as he helps lead a new group of governors opposing the incoming Trump administration.`\
+https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/colorados-democratic-governor-praises-kennedy-then-has-to-explain-it
+
+**Can I Lie About My Academic Interests on My College Application?**\
+`The magazine’s Ethicist columnist on conveying the truth on a pivotal form.`\
+https://nytimes.com/2024/11/15/magazine/academic-interests-college-application-ethics.html
+
 **Republicans Are Leaving Office for Trump Posts. How Will the Vacancies Be Filled?**\
 `The president-elect has selected several allies in Congress, along with a current governor, to join his administration.`\
 https://nytimes.com/2024/11/15/us/politics/how-the-trump-vacancies-will-be-filled.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/movies/100000009828358/emilia-perez-scene.html
 **Wild's Mats Zuccarello out 3 to 4 weeks after undergoing surgery**\
 `Coach John Hynes made clear Friday that Zuccarello's timetable is very much an estimate depending on his recovery from a tough injury.`\
 https://nytimes.com/athletic/5924921/2024/11/15/wild-mats-zuccarello-joel-eriksson-ek-injuries/
-
-**Becoming Trump Country**\
-`Two weeks in the life of Pennsylvania’s Luzerne County, one of the many places that shifted to the right in this year’s election.`\
-https://nytimes.com/interactive/2024/11/15/magazine/pennsylvania-luzerne-county-trump.html
-
-**How Harris’s Effort to Neutralize Immigration as a Campaign Issue Failed**\
-`Democrats struggled to respond to real and manufactured challenges as voters grew more concerned over the number of people crossing the border.`\
-https://nytimes.com/2024/11/15/us/politics/kamala-harris-immigration-campaign-issue.html
-
-**Golf Carts, Loudspeakers, Lockboxes: Florence Says ‘No, Grazie’ to Tourism Headaches**\
-`The popular Tuscan destination is the most recent European city to consider measures aimed at making life in a tourism hot spot more bearable.`\
-https://nytimes.com/2024/11/15/travel/florence-tourism-ban-rules.html
 
