@@ -1,3 +1,11 @@
+**Giants elevate Randy Winn to top role in player development**\
+`Winn played five of his 13 seasons in San Francisco and has been involved in the Giants organization in different capacities since 2018.`\
+https://nytimes.com/athletic/5923664/2024/11/14/randy-winn-sf-giants-player-development/
+
+**Republicans Float Lara Trump to Fill Rubio’s Senate Seat**\
+`If Senator Marco Rubio becomes secretary of state, Gov. Ron DeSantis of Florida will choose his replacement. Some lawmakers are pushing for the president-elect’s daughter-in-law.`\
+https://nytimes.com/2024/11/14/us/politics/lara-trump-marco-rubio-florida-senate.html
+
 **Volleyball players, coach sue SJSU, Mountain West over transgender athlete**\
 `The plaintiffs include SJSU co-captain Brooke Slusser, assistant coach Melissa Batie-Smoose and two former Spartans players.`\
 https://nytimes.com/athletic/5923566/2024/11/14/san-jose-state-volleyball-lawsuit-transgender-player/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/14/opinion/trump-china-tariffs.html
 **Stress From Fireworks Killed Baby Red Panda, Zoo in Scotland Says**\
 `Camera footage showed Roxie, a three-month-old, agitated by the noise. She died shortly afterward.`\
 https://nytimes.com/2024/11/14/world/red-panda-death-edinburgh-zoo.html
-
-**Three-Quarters of U.S. Adults Are Now Overweight or Obese**\
-`A sweeping new paper reveals the dramatic rise of obesity rates nationwide since 1990.`\
-https://nytimes.com/2024/11/14/well/obesity-epidemic-america.html
-
-**Murray Sinclair, Who Reframed Indigenous Relations in Canada, Dies at 73**\
-`He headed a commission that documented widespread abuse in Canada’s boarding schools for Indigenous children and sought to correct the history of Indigenous people.`\
-https://nytimes.com/2024/11/14/world/canada/murray-sinclair-dead.html
 

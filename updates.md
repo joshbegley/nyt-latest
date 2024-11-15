@@ -1,3 +1,11 @@
+**Giants elevate Randy Winn to top role in player development**\
+`Winn played five of his 13 seasons in San Francisco and has been involved in the Giants organization in different capacities since 2018.`\
+https://nytimes.com/athletic/5923664/2024/11/14/randy-winn-sf-giants-player-development/
+
+**Republicans Float Lara Trump to Fill Rubio’s Senate Seat**\
+`If Senator Marco Rubio becomes secretary of state, Gov. Ron DeSantis of Florida will choose his replacement. Some lawmakers are pushing for the president-elect’s daughter-in-law.`\
+https://nytimes.com/2024/11/14/us/politics/lara-trump-marco-rubio-florida-senate.html
+
 **Volleyball players, coach sue SJSU, Mountain West over transgender athlete**\
 `The plaintiffs include SJSU co-captain Brooke Slusser, assistant coach Melissa Batie-Smoose and two former Spartans players.`\
 https://nytimes.com/athletic/5923566/2024/11/14/san-jose-state-volleyball-lawsuit-transgender-player/
