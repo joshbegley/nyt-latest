@@ -1,3 +1,7 @@
+**Vivek Ramaswamy Returns to Push His Plans to Downsize the Government**\
+`The wealthy entrepreneur, tapped by Donald Trump to co-lead an outside effort focused on “efficiency,” campaigned on an assertion that the president has the power to fire 75 percent of the federal work force.`\
+https://nytimes.com/2024/11/15/us/politics/vivek-ramaswamy-doge.html
+
 **Teresa Weatherspoon joins Unrivaled 3x3 league**\
 `Weatherspoon will be one of the six coaches for Unrivaled, the new 3x3 winter basketball league.`\
 https://nytimes.com/athletic/5921150/2024/11/15/teresa-weatherspoon-unrivaled-coaching/

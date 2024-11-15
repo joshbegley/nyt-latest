@@ -18,7 +18,7 @@ https://nytimes.com/2024/11/15/us/politics/pence-rfk-jr-abortion-rights.html
 `The world has changed since Donald J. Trump’s last term as president. Mark Landler, the London bureau chief of The New York Times, describes what Mr. Trump’s choices so far say about his foreign policy ambitions.`\
 https://nytimes.com/video/us/politics/100000009820568/trump-foreign-policy.html
 
-**Vivek Ramaswamy Returns to Push His Plans to Decimate the Government**\
+**Vivek Ramaswamy Returns to Push His Plans to Downsize the Government**\
 `The wealthy entrepreneur, tapped by Donald Trump to co-lead an outside effort focused on “efficiency,” campaigned on an assertion that the president has the power to fire 75 percent of the federal work force.`\
 https://nytimes.com/2024/11/15/us/politics/vivek-ramaswamy-doge.html
 
