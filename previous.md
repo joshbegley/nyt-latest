@@ -1,3 +1,11 @@
+**How linebacker Nik Bonitto turned into jewel of Von Miller trade for Broncos**\
+`Bonitto is challenging to become the Broncos' first player with 10 sacks since Miller and Bradley Chubb did it in 2018`\
+https://nytimes.com/athletic/5922840/2024/11/15/broncos-nik-bonitto-linebacker-von-miller-trade/
+
+**How a Corruption ‘Carousel’ Got Fugitives Off Interpol’s Red Notice List**\
+`Suspects sought on various charges, including drug trafficking, paid officials to exploit a mechanism intended to protect asylum seekers, according to Moldovan and French investigators.`\
+https://nytimes.com/2024/11/15/world/europe/moldova-interpol-fraud-scheme.html
+
 **Bears' 2024 measures of success begin with Caleb Williams' progress: Mailbag, Week 11 picks**\
 `The Bears need a win, but it's the Packers coming to town. A look at the rivalry and what Williams can do with a new play caller.`\
 https://nytimes.com/athletic/5923474/2024/11/15/bears-mailbag-caleb-williams-2024-success/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/15/podcasts/kennedy-health-policy-onion-infowars.htm
 **The 12 NFL teams that could have new starting quarterbacks in 2025**\
 `The Athletic's team of beat writers identifies which draft prospects and free agents could be behind center when next season opens.`\
 https://nytimes.com/athletic/5920425/2024/11/15/nfl-2025-quarterback-free-agents-draft/
-
-**Maple Leafs' Simon Benoit on challenges on and off the ice as a new father**\
-`Benoit discusses his early season stumbles and the emotional and physical toll that has come with being a first-time father.`\
-https://nytimes.com/athletic/5916295/2024/11/15/maple-leafs-simon-benoit/
-
-**Wordle Review No. 1,246**\
-`Scroll down for hints and conversation about the puzzle for Nov. 16, 2024.`\
-https://nytimes.com/2024/11/15/crosswords/wordle-review-1246.html
 

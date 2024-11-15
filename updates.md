@@ -1,3 +1,11 @@
+**How linebacker Nik Bonitto turned into jewel of Von Miller trade for Broncos**\
+`Bonitto is challenging to become the Broncos' first player with 10 sacks since Miller and Bradley Chubb did it in 2018`\
+https://nytimes.com/athletic/5922840/2024/11/15/broncos-nik-bonitto-linebacker-von-miller-trade/
+
+**How a Corruption ‘Carousel’ Got Fugitives Off Interpol’s Red Notice List**\
+`Suspects sought on various charges, including drug trafficking, paid officials to exploit a mechanism intended to protect asylum seekers, according to Moldovan and French investigators.`\
+https://nytimes.com/2024/11/15/world/europe/moldova-interpol-fraud-scheme.html
+
 **Bears' 2024 measures of success begin with Caleb Williams' progress: Mailbag, Week 11 picks**\
 `The Bears need a win, but it's the Packers coming to town. A look at the rivalry and what Williams can do with a new play caller.`\
 https://nytimes.com/athletic/5923474/2024/11/15/bears-mailbag-caleb-williams-2024-success/
