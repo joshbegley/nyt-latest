@@ -1,3 +1,7 @@
+**New York Times Takes European Commission to Court Over Covid Vaccine Deal**\
+`The news outlet is pushing the Commission to release text messages between the E.U.’s top official and Pfizer as they negotiated a vaccine contract.`\
+https://nytimes.com/2024/11/15/world/europe/new-york-times-european-commission-covid-vaccine-lawsuit.html
+
 **Dyson Daniels, Tyler Herro and more emerging players to know from season's first few weeks**\
 `Across the league, more than a few players we didn't quite expect have emerged as big-time contributors.`\
 https://nytimes.com/athletic/5922809/2024/11/15/nba-under-the-radar-players-dyson-daniels-tyler-herro/
