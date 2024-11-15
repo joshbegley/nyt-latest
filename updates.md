@@ -1,3 +1,19 @@
+**Friday Briefing**\
+`Donald Trump’s provocative cabinet picks.`\
+https://nytimes.com/2024/11/15/briefing/trump-kennedy-israel-soccer.html
+
+**How the role of the 'loan and pathways manager' is improving footballers' career prospects**\
+`With the value of young talented players rising in the PSR era, parent clubs are taking more care of their footballing education`\
+https://nytimes.com/athletic/5888428/2024/11/15/loan-pathway-manager-premier-league-youngsters/
+
+**Next week’s waiver wire: Tyjae Spears, Elijah Moore and more players to add now — before the Week 12 rush**\
+`John Laghezza shares his top expected future waiver wire plays, including Elijah Moore, who is arrowing up with Jameis Winston.`\
+https://nytimes.com/athletic/5922400/2024/11/15/week-12-waiver-wire-tyjae-spears-elijah-moore-players-adds/
+
+**What type of sporting director do Arsenal want and who are the contenders?**\
+`The club's football leadership team fly to the U.S. this month and replacing Edu will be at the top of their list of topics to discuss`\
+https://nytimes.com/athletic/5922224/2024/11/15/arsenal-sporting-director-search-edu-replacement/
+
 **Saquon Barkley's huge fourth quarter keys win over Commanders: Takeaways**\
 `The Eagles trailed 10-6 heading into the fourth quarter but scored three TDs in the final frame to secure their sixth straight victory.`\
 https://nytimes.com/athletic/5923816/2024/11/15/eagles-commanders-score-result-takeaways-tnf/
