@@ -1,3 +1,7 @@
+**49ers' Kittle, Bosa, Williams questionable vs. Seahawks**\
+`Of the three high-profile 49ers questionable for Sunday, Trent Williams seems the most iffy.`\
+https://nytimes.com/athletic/5925370/2024/11/15/49ers-george-kittle-nick-bosa-trent-williams-seahawks/
+
 **Government by Bro**\
 `The hyper-macho and online energy of the Trump campaign is now aimed at Washington.`\
 https://nytimes.com/2024/11/15/us/politics/trump-cabinet-picks-men.html
