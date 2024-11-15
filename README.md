@@ -1,3 +1,15 @@
+**Mike Tyson vs. Jake Paul fight odds: Tyson is a popular bet, moving lines sharply in lead up**\
+`Mike Tyson and Jake Paul are set for one of the most anticipated, and weirder, boxing matchups in years. Paul is a clear favorite.`\
+https://nytimes.com/athletic/5924728/2024/11/15/mike-tyson-jake-paul-odds-fight-netflix/
+
+**JuJu Watkins becomes first active NCAA athlete to inspire a Funko Pop**\
+`Watkins continues to rack up firsts both on and off the court `\
+https://nytimes.com/athletic/5924515/2024/11/15/juju-watkins-funko-pop-usc/
+
+**Review: In ‘Tell It Anyway,’ Freedom Is Power**\
+`This Ralph Lemon work, part of a MoMA PS1 exhibition, is an experience of sound as much as dance. His collaborators can lead an audience to ecstasy.`\
+https://nytimes.com/2024/11/15/arts/dance/ralph-lemon-tell-it-anyway-review-moma.html
+
 **The Trump Lawyer Who Wields Outsize Influence on the Next White House**\
 `Boris Epshteyn has quickly become one of the most powerful figures in the early days of the presidential transition, even floating his own name to help broker peace between Russia and Ukraine.`\
 https://nytimes.com/2024/11/15/us/politics/boris-epshteyn-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/15/health/rfk-big-food-artificial-dyes-trump.html
 **The 25th Latin Grammys Showed Their Age**\
 `While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
 https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
-
-**Pence Urges Republican Senators Not to Confirm R.F.K. Jr., Citing His Support of Abortion Rights**\
-`Former Vice President Mike Pence described Mr. Kennedy, who does not support a federal abortion ban, as a choice unlike any in the modern era of the G.O.P.`\
-https://nytimes.com/2024/11/15/us/politics/pence-rfk-jr-abortion-rights.html
-
-**What Donald Trump’s Team Picks Say About His Foreign Policy**\
-`The world has changed since Donald J. Trump’s last term as president. Mark Landler, the London bureau chief of The New York Times, describes what Mr. Trump’s choices so far say about his foreign policy ambitions.`\
-https://nytimes.com/video/us/politics/100000009820568/trump-foreign-policy.html
-
-**Vivek Ramaswamy Returns to Push His Plans to Downsize the Government**\
-`The wealthy entrepreneur, tapped by Donald Trump to co-lead an outside effort focused on “efficiency,” campaigned on an assertion that the president has the power to fire 75 percent of the federal work force.`\
-https://nytimes.com/2024/11/15/us/politics/vivek-ramaswamy-doge.html
 
