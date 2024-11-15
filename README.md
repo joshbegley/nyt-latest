@@ -1,3 +1,7 @@
+**Nuclear Power Was Once Shunned at Climate Talks. Now, It’s a Rising Star.**\
+`Growing worldwide energy demand and other factors have shifted the calculus, but hurdles still lie ahead.`\
+https://nytimes.com/2024/11/15/climate/cop29-climate-nuclear-power.html
+
 **What’s Your ‘Romeo and Juliet’ I.Q.?**\
 `Test your knowledge, for never was a quiz of more woe than this of Juliet and her Romeo.`\
 https://nytimes.com/interactive/2024/11/15/theater/romeo-juliet-shakespeare-broadway-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/business/media/conan-obrien-oscars-host.html
 **A Translation of a Translation of a Novel Within a Novel**\
 `Yang Shuang-zi’s “Taiwan Travelogue,” a National Book Award finalist, is a nesting-doll narrative about colonial power in its many forms.`\
 https://nytimes.com/2024/11/15/books/review/yang-shuangzi-taiwan-travelogue.html
-
-**Robert F. Kennedy Jr.’s Billion-Dollar Hit to Big Pharma**\
-`Donald Trump’s choice to run the Department of Health and Human Services spooked investors who worry what Kennedy would do.`\
-https://nytimes.com/2024/11/15/business/dealbook/trump-robert-f-kennedy-stocks.html
 
