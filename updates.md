@@ -1,3 +1,7 @@
+**Jonathan Lekkerimäki's first goal, and was that Canucks' worst game of season? 3 takeaways**\
+`Thursday was a brutal showing against a mediocre Islanders roster that didn't even come close to icing its best, most healthy lineup.`\
+https://nytimes.com/athletic/5923924/2024/11/15/canucks-islanders-jonathan-lekkerimaki-first-goal/
+
 **Ukraine Is Running Out of Optimists**\
 `There is safety in simply trusting that the worst will happen. To dare to hope has always been the risk.`\
 https://nytimes.com/2024/11/15/opinion/ukraine-trump-election.html
