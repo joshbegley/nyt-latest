@@ -1,3 +1,7 @@
+**How to watch UConn vs. North Carolina, tonight's women's basketball headliner**\
+`Friday night's matchup features two of the best teams in women's college basketball.`\
+https://nytimes.com/athletic/5925241/2024/11/15/uconn-unc-how-to-watch-odds/
+
 **Yes, Most People Probably Should Hold Off on Claiming Social Security**\
 `Readers had a lot of thoughtful objections to this idea. As a general rule, I stand by it.`\
 https://nytimes.com/2024/11/15/opinion/social-security-age-claim.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925057/2024/11/15/leicy-santos-washington-spirit-g
 **How to watch Grizzlies vs. Warriors as Golden State tries to stay hot**\
 `The red-hot Warriors host the gritty Grizzlies in Friday's NBA Cup action.`\
 https://nytimes.com/athletic/5925038/2024/11/15/grizzlies-warriors-watch-odds-bet/
-
-**Colorado’s Democratic governor praises Kennedy, then has to explain it.**\
-`Jared Polis’s support reflects a libertarian streak, even as he helps lead a new group of governors opposing the incoming Trump administration.`\
-https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/colorados-democratic-governor-praises-kennedy-then-has-to-explain-it
 
