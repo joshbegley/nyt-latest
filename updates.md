@@ -1,3 +1,11 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include coming-of-age stories from India, Italy, Canada, Switzerland and Poland, in which children and teens learn truths about adulthood the hard way.`\
+https://nytimes.com/2024/11/15/movies/international-movies-streaming.html
+
+**Putin Talks With German Chancellor, Breaking Ice With the West**\
+`The hourlong call centered on what German officials said was a push to end the war in Ukraine. It was the first in two years between Mr. Putin and Chancellor Olaf Scholz.`\
+https://nytimes.com/2024/11/15/world/europe/scholz-putin-russia-germany-call.html
+
 **Heat Today: Bam Adebayo, rest of team eyes early solutions before facing Pacers**\
 `What does Miami need to correct against Indiana and going forward? Adebayo has an idea.`\
 https://nytimes.com/athletic/5924550/2024/11/15/bam-adebayo-heat-pacers-tyrese-haliburton/
