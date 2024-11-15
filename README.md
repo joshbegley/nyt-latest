@@ -1,3 +1,7 @@
+**Wild lose Mats Zuccarello, Joel Eriksson Ek to long-term injuries**\
+`Coach John Hynes made clear Friday that Zuccarello's timetable is very much an estimate depending on his recovery from a tough injury.`\
+https://nytimes.com/athletic/5924921/2024/11/15/wild-mats-zuccarello-joel-eriksson-ek-injuries/
+
 **Becoming Trump Country**\
 `Two weeks in the life of Pennsylvania’s Luzerne County, one of the many places that shifted to the right in this year’s election.`\
 https://nytimes.com/interactive/2024/11/15/magazine/pennsylvania-luzerne-county-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/arts/music/amplifer-newsletter-new-songs.html
 **Carsley: I definitely didn't drop Kane, will start against Republic of Ireland**\
 `Lee Carsley has insisted that he &#8220;definitely didn&#8217;t drop&#8221; Harry Kane, and reiterated that England’s captain will return to the starting line-up against the Republic of Ireland on Sunday.`\
 https://nytimes.com/athletic/5924356/2024/11/15/lee-carsley-harry-kane/
-
-**How to watch Lakers vs. Spurs in tonight's NBA Cup**\
-`The Lakers and Spurs are both trending up heading into their Friday night NBA Cup game.`\
-https://nytimes.com/athletic/5924878/2024/11/15/how-to-watch-lakers-spurs-lebron-wermbanyama-nba-cup/
 
