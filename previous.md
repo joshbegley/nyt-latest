@@ -1,3 +1,11 @@
+**Why Maori Protested With a Haka in New Zealand’s Parliament**\
+`Opposition lawmakers performed the traditional dance during a reading of a bill that would redefine the country’s founding treaty with its Indigenous people.`\
+https://nytimes.com/2024/11/15/world/asia/new-zealand-parliament-maori-haka.html
+
+**Māori Haka Protest Erupts in New Zealand Parliament**\
+`Member of Parliament Hana-Rawhiti Maipi-Clarke led the ceremonial performance of Māori culture, tearing up a controversial bill as other lawmakers joined her in protest.`\
+https://nytimes.com/video/world/asia/100000009827387/maori-haka-protest-erupts-in-new-zealand-parliament.html
+
 **Lee Carsley risked it all by omitting Harry Kane - and England reaped the dividends**\
 `England's interim manager was supposed to be a 'safe pair of hands', but his stint in charge has actually been marked by bold selections `\
 https://nytimes.com/athletic/5920391/2024/11/15/england-carsley-kane-greece-gambler/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5924150/2024/11/15/minnesota-wild-win-canadiens-zuc
 **Nottingham Forest's defining seven-match run**\
 `Forest have a daunting seven-match run on the horizon - one that will determine whether they can maintain their fine start to the season `\
 https://nytimes.com/athletic/5922144/2024/11/15/nottingham-forest-fixtures-premier-league/
-
-**An audience with 'Mad Erik' - featuring Ronaldo, shootings and why he had to leave Liverpool**\
-`Former Dutch striker admits he was never good enough for club - but is still adored by fans who saw him`\
-https://nytimes.com/athletic/5906696/2024/11/15/erik-meijer-liverpool-interview/
-
-**Mike Tyson vs Jake Paul: What to know about boxing's controversial fight**\
-`Mike Tyson and Jake Paul's controversial fight takes place in Texas later today, but there is a more significant bout on the card`\
-https://nytimes.com/athletic/5921976/2024/11/15/jake-paul-mike-tyson-netflix-boxing/
 

@@ -1,3 +1,11 @@
+**Why Maori Protested With a Haka in New Zealand’s Parliament**\
+`Opposition lawmakers performed the traditional dance during a reading of a bill that would redefine the country’s founding treaty with its Indigenous people.`\
+https://nytimes.com/2024/11/15/world/asia/new-zealand-parliament-maori-haka.html
+
+**Māori Haka Protest Erupts in New Zealand Parliament**\
+`Member of Parliament Hana-Rawhiti Maipi-Clarke led the ceremonial performance of Māori culture, tearing up a controversial bill as other lawmakers joined her in protest.`\
+https://nytimes.com/video/world/asia/100000009827387/maori-haka-protest-erupts-in-new-zealand-parliament.html
+
 **Lee Carsley risked it all by omitting Harry Kane - and England reaped the dividends**\
 `England's interim manager was supposed to be a 'safe pair of hands', but his stint in charge has actually been marked by bold selections `\
 https://nytimes.com/athletic/5920391/2024/11/15/england-carsley-kane-greece-gambler/
