@@ -1,3 +1,7 @@
+**Seduced by a $190 Soap Dispenser**\
+`The ceramic vessel made by a former fashion designer has become the hit product at a new shop in Downtown Manhattan.`\
+https://nytimes.com/2024/11/15/style/soap-dispenser-gem-home-flynn-mcgarry.html
+
 **A Tiny Gladiator Uncovered in England Tells of the Reach of Roman Celebrity**\
 `A 2,000-year-old copper knife handle depicting a gladiator will go on display at Hadrian’s Wall, in the north of England, next year.`\
 https://nytimes.com/2024/11/15/world/europe/uk-roman-gladiator-knife-handle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/your-money/ira-retirement-plans.html
 **What we're seeing with the Bucks: AJ Green's screens, Gary Trent Jr. and more deflections**\
 `Getting Green clean 3-point looks is just one of the benefits the Bucks' offense gets when the shooting guard is involved.`\
 https://nytimes.com/athletic/5923444/2024/11/15/bucks-aj-green-gary-trent-jr-ones/
-
-**Trump’s Defense Secretary Pick Faced Sexual Assault Claim in 2017**\
-`A complaint involving Pete Hegseth was filed with the police in Monterey, Calif., but it led to no charges, according to public records and Mr. Hegseth’s lawyer.`\
-https://nytimes.com/2024/11/15/us/politics/trump-pete-hegseth-defense-secretary-sexual-assault.html
 
