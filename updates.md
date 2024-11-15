@@ -1,3 +1,15 @@
+**Sri Lankan Leader’s Leftist Coalition Wins Elections**\
+`The National People’s Power won a parliamentary election that will allow the country’s new president to unroll his reform agenda, including broader welfare assistance.`\
+https://nytimes.com/2024/11/15/world/asia/sri-lanka-election.html
+
+**What Bills-Chiefs means for playoff seeding, A.J. Epenesa potential and more**\
+`Plus, an outlook for linebacker Matt Milano's long-awaited return. `\
+https://nytimes.com/athletic/5923855/2024/11/15/bills-chiefs-josh-allen-aj-epenesa-matt-milano-update/
+
+**Why Notre Dame and the ACC's unique partnership still makes sense**\
+`A decade into Notre Dame and the ACC's unique partnership, both parties remain committed to each other for the foreseeable future.`\
+https://nytimes.com/athletic/5924140/2024/11/15/notre-dame-fighting-irish-acc-scheduling-jim-phillips/
+
 **New York Times Takes European Commission to Court Over Covid Vaccine Deal**\
 `The news outlet is pushing the Commission to release text messages between the E.U.’s top official and Pfizer as they negotiated a vaccine contract.`\
 https://nytimes.com/2024/11/15/world/europe/new-york-times-european-commission-covid-vaccine-lawsuit.html

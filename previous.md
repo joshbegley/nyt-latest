@@ -1,3 +1,15 @@
+**Sri Lankan Leader’s Leftist Coalition Wins Elections**\
+`The National People’s Power won a parliamentary election that will allow the country’s new president to unroll his reform agenda, including broader welfare assistance.`\
+https://nytimes.com/2024/11/15/world/asia/sri-lanka-election.html
+
+**What Bills-Chiefs means for playoff seeding, A.J. Epenesa potential and more**\
+`Plus, an outlook for linebacker Matt Milano's long-awaited return. `\
+https://nytimes.com/athletic/5923855/2024/11/15/bills-chiefs-josh-allen-aj-epenesa-matt-milano-update/
+
+**Why Notre Dame and the ACC's unique partnership still makes sense**\
+`A decade into Notre Dame and the ACC's unique partnership, both parties remain committed to each other for the foreseeable future.`\
+https://nytimes.com/athletic/5924140/2024/11/15/notre-dame-fighting-irish-acc-scheduling-jim-phillips/
+
 **New York Times Takes European Commission to Court Over Covid Vaccine Deal**\
 `The news outlet is pushing the Commission to release text messages between the E.U.’s top official and Pfizer as they negotiated a vaccine contract.`\
 https://nytimes.com/2024/11/15/world/europe/new-york-times-european-commission-covid-vaccine-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5921505/2024/11/15/nets-revitalized-defense-nba-sur
 **5 blind resume scenarios to clarify the College Football Playoff's key debates**\
 `To truly evaluate these teams, it makes sense to remove conference affiliations and logos and just examine what they've done so far.`\
 https://nytimes.com/athletic/5922941/2024/11/15/college-football-playoff-rankings-blind-resumes/
-
-**Murder Trial for Man Charged With Killing Laken Riley Is Set to Begin**\
-`The case was swept up in the debate over immigration after investigators said the perpetrator was a migrant from Venezuela who entered the U.S. illegally.`\
-https://nytimes.com/2024/11/15/us/laken-riley-murder-trial-uga.html
-
-**'Today was Mike Tyson day' as Falcons defense seeks more fight early: 5 factors**\
-`Justin Simmons returns to Denver, where rookie quarterback Bo Nix has the Broncos in the playoff hunt.`\
-https://nytimes.com/athletic/5922627/2024/11/15/falcons-defense-early-fight-broncos/
-
-**Engineers Discover a 132-Year-Old Message in a Bottle in a Scottish Lighthouse**\
-`Mechanical engineers inspecting a lighthouse found a surprising message: a handwritten missive from workers of another age.`\
-https://nytimes.com/2024/11/15/world/europe/message-in-bottle-lighthouse-scotland.html
 
