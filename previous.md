@@ -1,3 +1,7 @@
+**Trump Picks Burgum For Interior Secretary**\
+`The North Dakota governor helped strengthened ties between the oil industry and President-elect Donald J. Trump`\
+https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
+
 **Review: ‘King Lear,’ Faster and Less Furious**\
 `Kenneth Branagh’s production of the Shakespeare classic speeds through the material and can’t quite figure out its tone.`\
 https://nytimes.com/2024/11/14/theater/king-lear-review-kenneth-branagh.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923590/2024/11/14/sec-championship-game-greg-sanke
 **MLBPA will no longer give licensing money to managers, coaches and trainers**\
 `Eight personnel per team were previously eligible for the licensing money, which one recipient estimated at roughly $50,000 annually`\
 https://nytimes.com/athletic/5923635/2024/11/14/mlbpa-licensing-money-managers-coaches-trainers/
-
-**Nebraska recruiting: Huskers flip 4-star LB Dawson Merritt from Alabama**\
-`Merritt is the highest-rated player in the Huskers’ 20-man recruiting class for 2025.`\
-https://nytimes.com/athletic/5923638/2024/11/14/dawson-merritt-college-football-recruit-nebraska-football/
 

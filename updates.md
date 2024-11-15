@@ -1,3 +1,7 @@
+**Trump Picks Burgum For Interior Secretary**\
+`The North Dakota governor helped strengthened ties between the oil industry and President-elect Donald J. Trump`\
+https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
+
 **Review: ‘King Lear,’ Faster and Less Furious**\
 `Kenneth Branagh’s production of the Shakespeare classic speeds through the material and can’t quite figure out its tone.`\
 https://nytimes.com/2024/11/14/theater/king-lear-review-kenneth-branagh.html
