@@ -1,3 +1,7 @@
+**What I'm hearing about the Flyers: Sanheim impressing, Michkov's meetings, Ristolainen's future**\
+`Some interesting roster decisions are on the horizon for John Tortorella and the Flyers.`\
+https://nytimes.com/athletic/5924928/2024/11/15/philadelphia-flyers-sanheim-michkov-ristolainen/
+
 **Pogba leaves Juventus by mutual agreement**\
 `Paul Pogba will leave Juventus by mutual agreement at the end of the month, after having his four-year ban for failing an anti-doping test reduced to 18 months in October.`\
 https://nytimes.com/athletic/5921962/2024/11/15/paul-pogba-juventus-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/world/canada/taylor-swift-eras-tour-toronto-vanco
 **Auston Matthews' mysterious absence from the Leafs continues**\
 `Matthew will end up missing more than two weeks, at the very least, with a chance to play next on Wednesday against Vegas.`\
 https://nytimes.com/athletic/5924942/2024/11/15/maple-leafs-auston-matthews-injury-3/
-
-**Why 2 Big-League Teams Will Squeeze Into Small Homes in 2025**\
-`The A’s and Tampa Bay Rays will play in minor league ballparks next season, one because of hurricane damage and the other because of an interstate move.`\
-https://nytimes.com/2024/11/15/sports/oakland-as-tampa-rays-new-stadiums.html
 

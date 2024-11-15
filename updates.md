@@ -1,3 +1,7 @@
+**What I'm hearing about the Flyers: Sanheim impressing, Michkov's meetings, Ristolainen's future**\
+`Some interesting roster decisions are on the horizon for John Tortorella and the Flyers.`\
+https://nytimes.com/athletic/5924928/2024/11/15/philadelphia-flyers-sanheim-michkov-ristolainen/
+
 **Pogba leaves Juventus by mutual agreement**\
 `Paul Pogba will leave Juventus by mutual agreement at the end of the month, after having his four-year ban for failing an anti-doping test reduced to 18 months in October.`\
 https://nytimes.com/athletic/5921962/2024/11/15/paul-pogba-juventus-exit/
