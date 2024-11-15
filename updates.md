@@ -1,3 +1,7 @@
+**Why States Are Offering Workers at Private Companies Access to I.R.A.s**\
+`With the plans, workers are automatically enrolled and contribute through payroll deductions. The goal is to help more Americans save for retirement.`\
+https://nytimes.com/2024/11/15/your-money/ira-retirement-plans.html
+
 **What we're seeing with the Bucks: AJ Green's screens, Gary Trent Jr. and more deflections**\
 `Getting Green clean 3-point looks is just one of the benefits the Bucks' offense gets when the shooting guard is involved.`\
 https://nytimes.com/athletic/5923444/2024/11/15/bucks-aj-green-gary-trent-jr-ones/
