@@ -15,7 +15,7 @@ https://nytimes.com/2024/11/14/crosswords/daily-puzzle-2024-11-15.html
 https://nytimes.com/2024/11/14/world/americas/argentina-exit-climate-deal.html
 
 **Trump Picks Burgum for Interior Secretary**\
-`The North Dakota governor helped strengthened ties between the oil industry and President-elect Donald J. Trump`\
+`The North Dakota governor helped strengthen ties between the oil industry and President-elect Donald J. Trump.`\
 https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
 
 **Review: ‘King Lear,’ Faster and Less Furious**\
