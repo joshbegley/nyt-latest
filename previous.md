@@ -1,3 +1,7 @@
+**Lions TE Sam LaPorta ruled out Sunday vs. Jaguars**\
+`LaPorta left Sunday’s win over the Texans with a shoulder injury, one coach Dan Campbell said after the game could sideline him for a week.`\
+https://nytimes.com/athletic/5925328/2024/11/15/lions-sam-laporta-injury-jaguars/
+
 **Packers' plans for RB Lloyd in flux after appendicitis diagnosis**\
 `Matt LaFleur says the Packers are in contact with the NFL about Lloyd's 21-day window to return from IR.`\
 https://nytimes.com/athletic/5925237/2024/11/15/packers-marshawn-lloyd-appendicitis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925241/2024/11/15/uconn-unc-how-to-watch-odds/
 **Yes, Most People Probably Should Hold Off on Claiming Social Security**\
 `Readers had a lot of thoughtful objections to this idea. As a general rule, I stand by it.`\
 https://nytimes.com/2024/11/15/opinion/social-security-age-claim.html
-
-**Burgum Will Be Trump’s ‘Energy Czar’**\
-`The North Dakota governor, who helped strengthen ties between the oil industry and President-elect Donald J. Trump, will do double duty as Interior secretary.`\
-https://nytimes.com/2024/11/15/climate/burgum-trump-energy-czar.html
 

@@ -1,3 +1,7 @@
+**Lions TE Sam LaPorta ruled out Sunday vs. Jaguars**\
+`LaPorta left Sunday’s win over the Texans with a shoulder injury, one coach Dan Campbell said after the game could sideline him for a week.`\
+https://nytimes.com/athletic/5925328/2024/11/15/lions-sam-laporta-injury-jaguars/
+
 **Packers' plans for RB Lloyd in flux after appendicitis diagnosis**\
 `Matt LaFleur says the Packers are in contact with the NFL about Lloyd's 21-day window to return from IR.`\
 https://nytimes.com/athletic/5925237/2024/11/15/packers-marshawn-lloyd-appendicitis/
