@@ -1,3 +1,7 @@
+**Trump’s Defense Secretary Pick Faced Sexual Assault Claim in 2017**\
+`A complaint involving Pete Hegseth was filed with the police in Monterey, Calif., but it led to no charges, according to public records and Mr. Hegseth’s lawyer.`\
+https://nytimes.com/2024/11/15/us/politics/trump-pete-hegseth-defense-secretary-sexual-assault.html
+
 **Conan O’Brien Will Host the Next Academy Awards**\
 `Mr. O’Brien, the former late-night host, will take over from Jimmy Kimmel, who served as M.C. for the last two Oscar ceremonies, organizers said on Friday.`\
 https://nytimes.com/2024/11/15/business/media/conan-obrien-oscars-host.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922978/2024/11/15/scott-turner-raiders-offensive-c
 **Why Derwin James and Chargers' big nickel package is the best bet against Bengals**\
 `“That’s our best combination,” coach Jim Harbaugh said of getting James, Alohi Gilman and Elijah Molden on the field together. `\
 https://nytimes.com/athletic/5923831/2024/11/15/chargers-defense-derwin-james-big-nickel/
-
-**55,000 Postal Workers in Canada Strike Over Pay**\
-`The union walked out after talks with the country’s main mail operator failed. The stoppage could disrupt deliveries before the holidays.`\
-https://nytimes.com/2024/11/15/business/canada-post-workers-strike.html
 
