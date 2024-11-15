@@ -1,3 +1,7 @@
+**NFL Week 11 fantasy football, betting cheat sheet: Trevor Lawrence remains out, LaPorta at risk of sitting**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5917115/2024/11/15/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
+
 **Review: The Philharmonic Gives a Master Class in Programming**\
 `The composer John Adams led the New York Philharmonic in a program of contemporary works that didn’t make a big deal of contemporary music.`\
 https://nytimes.com/2024/11/15/arts/music/review-new-york-philharmonic-john-adams.html
