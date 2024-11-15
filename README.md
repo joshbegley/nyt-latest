@@ -1,3 +1,7 @@
+**Ukraine Is Running Out of Optimists**\
+`There is safety in simply trusting that the worst will happen. To dare to hope has always been the risk.`\
+https://nytimes.com/2024/11/15/opinion/ukraine-trump-election.html
+
 **Thanks to exceptional structure, Wild's 'plug and play' mantra keeps leading to wins**\
 `After losing Mats Zuccarello and Joel Eriksson Ek, the Wild got creative with their line combinations for a 3-0 win over the Canadiens.`\
 https://nytimes.com/athletic/5924150/2024/11/15/minnesota-wild-win-canadiens-zuccarello-eriksson-ek/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5881961/2024/11/15/wrexham-nfl-joey-harrington/
 **Friday Briefing**\
 `Donald Trump’s provocative cabinet picks.`\
 https://nytimes.com/2024/11/15/briefing/trump-kennedy-israel-soccer.html
-
-**How the role of the 'loan and pathways manager' is improving footballers' career prospects**\
-`With the value of young talented players rising in the PSR era, parent clubs are taking more care of their footballing education`\
-https://nytimes.com/athletic/5888428/2024/11/15/loan-pathway-manager-premier-league-youngsters/
 
