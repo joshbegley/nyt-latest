@@ -1,3 +1,7 @@
+**Chiefs-Bills: How reporters approach one of the biggest NFL games of the year**\
+`What's different about covering a massive game like Chiefs-Bills? The Athletic's Kansas City and Buffalo beat reporters give their thoughts.`\
+https://nytimes.com/athletic/5916579/2024/11/15/chiefs-bills-nfl-reporters-big-game/
+
 **Ex-Man Utd Women midfielder says she cried in bathroom during training sessions**\
 `Former Manchester United Women midfielder Irene Guerrero says she cried in the bathroom during training sessions while at the club last season.`\
 https://nytimes.com/athletic/5924354/2024/11/15/irene-guerrero-man-utd-women/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5924289/2024/11/15/the-athletics-friday-football-qu
 **A Secretary of Defense Pick With a Full MAGA Look**\
 `Pete Hegseth, a Fox News host and military veteran who Donald Trump put forward for this cabinet this week, encapsulates the virile image of modern conservatism.`\
 https://nytimes.com/2024/11/15/style/pete-hegseth-secretary-of-defense-trump-pick-maga.html
-
-**The Pulse: A new NFL MVP candidate**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5924039/2024/11/15/saquon-barkley-nfl-mvp-the-pulse/
 
