@@ -1,3 +1,7 @@
+**Eagles outlast Commanders and seize control of the NFC East**\
+`The Eagles overcame some mishaps on offense to beat their division rival.`\
+https://nytimes.com/athletic/5923770/2024/11/15/eagles-commanders-control-nfc-east/
+
 **Chiefs-Bills: How reporters approach one of the biggest NFL games of the year**\
 `What's different about covering a massive game like Chiefs-Bills? The Athletic's Kansas City and Buffalo beat reporters give their thoughts.`\
 https://nytimes.com/athletic/5916579/2024/11/15/chiefs-bills-nfl-reporters-big-game/
