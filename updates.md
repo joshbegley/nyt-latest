@@ -1,3 +1,7 @@
+**A Translation of a Translation of a Novel Within a Novel**\
+`Yang Shuang-zi’s “Taiwan Travelogue,” a National Book Award finalist, is a nesting-doll narrative about colonial power in its many forms.`\
+https://nytimes.com/2024/11/15/books/review/yang-shuangzi-taiwan-travelogue.html
+
 **Robert F. Kennedy Jr.’s Billion-Dollar Hit to Big Pharma**\
 `Donald Trump’s choice to run the Department of Health and Human Services spooked investors who worry what Kennedy would do.`\
 https://nytimes.com/2024/11/15/business/dealbook/trump-robert-f-kennedy-stocks.html
