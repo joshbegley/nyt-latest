@@ -1,3 +1,11 @@
+**The Pulse: A new NFL MVP candidate**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5924039/2024/11/15/saquon-barkley-nfl-mvp-the-pulse/
+
+**Trump’s Tax Plans**\
+`Three scenarios for how Republicans could approach cutting taxes next year.`\
+https://nytimes.com/2024/11/15/briefing/trump-tax-plans.html
+
 **Trump’s Tax Plans**\
 `Three scenarios for how Republicans could approach cutting taxes next year.`\
 https://nytimes.com/2024/11/15/briefing/trumps-tax-plans.html
