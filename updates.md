@@ -1,3 +1,7 @@
+**Twins say they plan to keep Carlos Correa and the core, but also an open mind on trades**\
+`Despite the club being in a financial bind, Derek Falvey said his highest-priced players remain part of the plan — for now. `\
+https://nytimes.com/athletic/5923848/2024/11/15/twins-carlos-correa-trade-possibility/
+
 **The Chicago Bulls are scrappy and surprising — but are they too good for their own good?**\
 `Playing fast and hoisting lots of 3s, the Bulls are a tougher out than expected. But is it worth it to stay in the murky middle?`\
 https://nytimes.com/athletic/5922674/2024/11/15/chicago-bulls-nba-12-games-in/
