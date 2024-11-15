@@ -1,3 +1,7 @@
+**Trump Turns to His Personal Lawyers to Stock Top Ranks of Justice Dept.**\
+`The president-elect intends to nominate three members of his criminal defense team to senior roles, raising further concerns about politicization of the department.`\
+https://nytimes.com/2024/11/15/us/politics/trump-lawyers-justice-department.html
+
 **Judge John Hodgman on Humorous Bathroom Signs**\
 `If you make the request funny, can you tell your guests how to use your toilet?`\
 https://nytimes.com/2024/11/15/magazine/judge-john-hodgman-on-humorous-bathroom-signs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/nyregion/bronx-baby-drowning-death-homicide.html
 **House and Senate Clash Over Ethics Report on Gaetz**\
 `Also, nuclear power went from pariah to rising star. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/11/15/briefing/gaetz-ethics-report-house-senate-nuclear-power.html
-
-**Three keys and a prediction for Notre Dame's senior day game vs. Virginia**\
-`Notre Dame has won its past six home finales by an average of 37.2 points. Can it continue that success against Virginia?`\
-https://nytimes.com/athletic/5925381/2024/11/15/notre-dame-football-virginia-preview/
 

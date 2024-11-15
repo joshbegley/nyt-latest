@@ -1,3 +1,7 @@
+**Trump Turns to His Personal Lawyers to Stock Top Ranks of Justice Dept.**\
+`The president-elect intends to nominate three members of his criminal defense team to senior roles, raising further concerns about politicization of the department.`\
+https://nytimes.com/2024/11/15/us/politics/trump-lawyers-justice-department.html
+
 **Judge John Hodgman on Humorous Bathroom Signs**\
 `If you make the request funny, can you tell your guests how to use your toilet?`\
 https://nytimes.com/2024/11/15/magazine/judge-john-hodgman-on-humorous-bathroom-signs.html
