@@ -1,3 +1,7 @@
+**What’s Your ‘Romeo and Juliet’ I.Q.?**\
+`Test your knowledge, for never was a quiz of more woe than this of Juliet and her Romeo.`\
+https://nytimes.com/interactive/2024/11/15/theater/romeo-juliet-shakespeare-broadway-quiz.html
+
 **Fantasy trends and hidden gems: Maximizing Darnell Nurse, player projection risers, fallers and more**\
 `Shayna Goldman says the Oilers have figured out how to maximize Darnell Nurse as she weighs in on this week's fantasy hockey waiver wire.`\
 https://nytimes.com/athletic/5923935/2024/11/15/fantasy-trends-and-hidden-gems-maximizing-darnell-nurse-player-projection-risers-fallers-and-more/
