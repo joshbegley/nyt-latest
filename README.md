@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: AJ Green's screens, Gary Trent Jr. and more deflections**\
+`Getting Green clean 3-point looks is just one of the benefits the Bucks' offense gets when the shooting guard is involved.`\
+https://nytimes.com/athletic/5923444/2024/11/15/bucks-aj-green-gary-trent-jr-ones/
+
 **Trump’s Defense Secretary Pick Faced Sexual Assault Claim in 2017**\
 `A complaint involving Pete Hegseth was filed with the police in Monterey, Calif., but it led to no charges, according to public records and Mr. Hegseth’s lawyer.`\
 https://nytimes.com/2024/11/15/us/politics/trump-pete-hegseth-defense-secretary-sexual-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923211/2024/11/15/49ers-evan-anderson-dj-jones/
 **Raiders' Scott Turner will stress communication in 8-game audition as interim OC**\
 `"There might be a couple of new things here and there, and we'll see how that grows as the season goes on."`\
 https://nytimes.com/athletic/5922978/2024/11/15/scott-turner-raiders-offensive-coordinator/
-
-**Why Derwin James and Chargers' big nickel package is the best bet against Bengals**\
-`“That’s our best combination,” coach Jim Harbaugh said of getting James, Alohi Gilman and Elijah Molden on the field together. `\
-https://nytimes.com/athletic/5923831/2024/11/15/chargers-defense-derwin-james-big-nickel/
 
