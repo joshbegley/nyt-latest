@@ -1,3 +1,11 @@
+**College football Week 12 model-projected point differentials, totals for every game**\
+`Austin Mock's projection model takes a look at every FBS vs. FBS game in college football's Week 12.`\
+https://nytimes.com/athletic/5924669/2024/11/15/college-football-week-12-model-projections/
+
+**Juan Soto, Red Sox have 'productive' meeting: Report**\
+`According to MassLive, Boston leadership met with Soto — who grew up a Red Sox fan — for more than three hours.`\
+https://nytimes.com/athletic/5924852/2024/11/15/red-sox-juan-soto-meeting-free-agent/
+
 **Four scenarios for F1's constructor championship. Plus, the Las Vegas GP beckons**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/5924601/2024/11/15/f1-constructor-championship-scenarios-prime-tire-las-vegas-gp/
