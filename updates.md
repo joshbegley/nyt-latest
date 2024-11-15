@@ -1,3 +1,11 @@
+**Judge John Hodgman on Humorous Bathroom Signs**\
+`If you make the request funny, can you tell your guests how to use your toilet?`\
+https://nytimes.com/2024/11/15/magazine/judge-john-hodgman-on-humorous-bathroom-signs.html
+
+**Activists Sent to Prison for Pouring Powder Over Case Holding U.S. Constitution**\
+`One climate activist was sentenced to 18 months in prison, the other to two years. They said that they had meant to draw attention to climate change.`\
+https://nytimes.com/2024/11/15/us/constitution-red-powder-activists-sentenced.html
+
 **NBA considering tournament-style format for 2025 All-Star Game: Sources**\
 `The changes would be the league’s latest attempt to rejuvenate the All-Star Game, which has fallen flat over the last few seasons.`\
 https://nytimes.com/athletic/5925571/2024/11/15/nba-all-star-game-changes-tournament-style-2025/
