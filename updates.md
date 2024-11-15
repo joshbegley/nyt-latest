@@ -1,3 +1,7 @@
+**Wild lose Mats Zuccarello, Joel Eriksson Ek to long-term injuries**\
+`Coach John Hynes made clear Friday that Zuccarello's timetable is very much an estimate depending on his recovery from a tough injury.`\
+https://nytimes.com/athletic/5924921/2024/11/15/wild-mats-zuccarello-joel-eriksson-ek-injuries/
+
 **Becoming Trump Country**\
 `Two weeks in the life of Pennsylvania’s Luzerne County, one of the many places that shifted to the right in this year’s election.`\
 https://nytimes.com/interactive/2024/11/15/magazine/pennsylvania-luzerne-county-trump.html
