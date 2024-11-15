@@ -1,3 +1,7 @@
+**Fire in Retirement Home in Spain Leaves at Least 10 Dead**\
+`Emergency services said the blaze had broken out in the early hours of the morning. The cause was still being investigated.`\
+https://nytimes.com/2024/11/15/world/europe/spain-fire-retirement-home.html
+
 **At the Met, Black Artists Salute an Enduring Affinity With Egypt**\
 `A shimmering dream on the Nile has inspired creativity from the Harlem Renaissance to Kara Walker to Beyoncé. But how much can you play with the past?`\
 https://nytimes.com/2024/11/15/arts/design/black-artists-ancient-egypt-metropolitan-museum.html
