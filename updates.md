@@ -1,3 +1,11 @@
+**Lee Carsley risked it all by omitting Harry Kane - and England reaped the dividends**\
+`England's interim manager was supposed to be a 'safe pair of hands', but his stint in charge has actually been marked by bold selections `\
+https://nytimes.com/athletic/5920391/2024/11/15/england-carsley-kane-greece-gambler/
+
+**​Kim Jong-un’s Lesson From Ukraine War: Make More Drones**\
+`Analysts say the low-cost weapons are attractive to Mr. Kim, who is intent on modernizing North Korea’s military.`\
+https://nytimes.com/2024/11/15/world/asia/north-korea-drones.html
+
 **Word of the Day: lichen**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/15/learning/word-of-the-day-lichen.html
