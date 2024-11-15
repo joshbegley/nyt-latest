@@ -1,3 +1,11 @@
+**NBA considering tournament-style format for 2025 All-Star Game: Source**\
+`The changes would be the league’s latest attempt to rejuvenate the All-Star Game, which has fallen flat over the last few seasons.`\
+https://nytimes.com/athletic/5925571/2024/11/15/nba-all-star-game-changes-tournament-style-2025/
+
+**NFL Week 11 fantasy football, betting cheat sheet: TE trouble with Kincaid, LaPorta out**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5917115/2024/11/15/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
+
 **Seahawks center Connor Williams retiring from NFL at 27**\
 `Williams started 86 games across his seven-year NFL career, including all nine games this season for Seattle.`\
 https://nytimes.com/athletic/5925424/2024/11/15/seahawks-center-connor-williams-retiring/
