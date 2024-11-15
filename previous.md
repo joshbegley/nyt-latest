@@ -1,3 +1,7 @@
+**Argentina Mulls Exiting Paris Climate Deal**\
+`The South American nation says it is considering withdrawing from the landmark agreement, which aims to limit carbon emissions and slow global warming.`\
+https://nytimes.com/2024/11/14/world/americas/argentina-exit-climate-deal.html
+
 **Trump Picks Burgum for Interior Secretary**\
 `The North Dakota governor helped strengthened ties between the oil industry and President-elect Donald J. Trump`\
 https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
 **Greg Sankey sees SEC Championship Game ‘as a reward,’ not a penalty**\
 `Sankey reiterated that the championship game — which makes the SEC a lot of money in attendance and TV ratings — remains important.`\
 https://nytimes.com/athletic/5923590/2024/11/14/sec-championship-game-greg-sankey/
-
-**MLBPA will no longer give licensing money to managers, coaches and trainers**\
-`Eight personnel per team were previously eligible for the licensing money, which one recipient estimated at roughly $50,000 annually`\
-https://nytimes.com/athletic/5923635/2024/11/14/mlbpa-licensing-money-managers-coaches-trainers/
 

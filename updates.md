@@ -1,3 +1,7 @@
+**Argentina Mulls Exiting Paris Climate Deal**\
+`The South American nation says it is considering withdrawing from the landmark agreement, which aims to limit carbon emissions and slow global warming.`\
+https://nytimes.com/2024/11/14/world/americas/argentina-exit-climate-deal.html
+
 **Trump Picks Burgum for Interior Secretary**\
 `The North Dakota governor helped strengthened ties between the oil industry and President-elect Donald J. Trump`\
 https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
