@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/15/world/middleeast/trump-will-encounter-a-very-diff
 https://nytimes.com/2024/11/15/well/eat/rfk-jr-food-nutrition-health.html
 
 **Colts WR Pittman to return vs. Jets, LT Raimann ruled out**\
-`The receiver's return against the Jets will coincide with quarterback Anthony Richardson's return to the starting lineup.`\
+`The receiver's return against the Jets will coincide with the reinsertion of quarterback Anthony Richardson into the starting lineup.`\
 https://nytimes.com/athletic/5925218/2024/11/15/colts-michael-pittman-bernhard-raimann/
 
 **Princess Yuriko, Oldest Member of Japan’s Imperial Family, Dies at 101**\

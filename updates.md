@@ -1,3 +1,7 @@
+**Colts WR Pittman to return vs. Jets, LT Raimann ruled out**\
+`The receiver's return against the Jets will coincide with the reinsertion of quarterback Anthony Richardson into the starting lineup.`\
+https://nytimes.com/athletic/5925218/2024/11/15/colts-michael-pittman-bernhard-raimann/
+
 **Iran Told U.S. That It’s Not Trying to Kill Trump**\
 `The Biden administration had warned that the United States would consider any Iranian attempt on Mr. Trump’s life to be “an act of war,” officials said.`\
 https://nytimes.com/2024/11/15/world/middleeast/iran-trump-assassinate.html
