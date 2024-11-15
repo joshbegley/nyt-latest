@@ -1,3 +1,11 @@
+**Four-star Kiyan Anthony, son of Carmelo Anthony, commits to Syracuse**\
+`Anthony is the No. 32 player in the 2025 recruiting class.`\
+https://nytimes.com/athletic/5925608/2024/11/15/kiyan-anthony-commits-syracuse/
+
+**5 Takeaways From Bernie Sanders’s Interview on ‘The Daily’**\
+`“There was no appreciation — no appreciation — of the struggling and the suffering of millions and millions of working-class people,” the senator said.`\
+https://nytimes.com/2024/11/15/podcasts/bernie-sanders-democratic-party-daily.html
+
 **49ers' Kittle, Bosa, Williams questionable vs. Seahawks**\
 `Of the three high-profile 49ers questionable for Sunday, Trent Williams seems the most iffy.`\
 https://nytimes.com/athletic/5925370/2024/11/15/49ers-george-kittle-nick-bosa-trent-williams-seahawks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5925571/2024/11/15/nba-all-star-game-changes-tourna
 **Harris’s Main Allied Group Raised Over $900 Million to Aid Her Bid**\
 `The powerful super PAC, Future Forward, was sure to take much credit or much blame depending on how election night unfolded.`\
 https://nytimes.com/2024/11/15/us/politics/harris-future-forward.html
-
-**NFL Week 11 fantasy football, betting cheat sheet: TE trouble with Kincaid, LaPorta out**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
-https://nytimes.com/athletic/5917115/2024/11/15/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
-
-**Seahawks center Connor Williams retiring from NFL at 27**\
-`Williams started 86 games across his seven-year NFL career, including all nine games this season for Seattle.`\
-https://nytimes.com/athletic/5925424/2024/11/15/seahawks-center-connor-williams-retiring/
 
