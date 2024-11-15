@@ -1,3 +1,7 @@
+**Trump Asks Steven Cheung to Lead White House Communications**\
+`After serving as the president-elect’s chief campaign spokesman, Mr. Cheung will return to the White House next year.`\
+https://nytimes.com/2024/11/15/us/politics/steven-cheung-trump-white-house-communications.html
+
 **How to watch Grizzlies vs. Warriors as Golden State tries to stay hot**\
 `The red-hot Warriors host the gritty Grizzlies in Friday's NBA Cup action.`\
 https://nytimes.com/athletic/5925038/2024/11/15/grizzlies-warriors-watch-odds-bet/
