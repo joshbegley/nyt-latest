@@ -1,3 +1,7 @@
+**Late Night Feels Queasy About America’s Next Health Czar, R.F.K. Jr.**\
+`Stephen Colbert urged viewers to keep an open mind about the pick, “because that’s how the worm gets in.”`\
+https://nytimes.com/2024/11/15/arts/television/late-night-rfk-jr.html
+
 **Tyrell Malacia on his injury nightmare and conspiracy theories that ran wild: 'There’s no way I could ever give up'**\
 `Left-back stayed almost silent during his long absence as rumours about his whereabouts swirled. Now he tells of what really happened...`\
 https://nytimes.com/athletic/5919997/2024/11/15/manchester-united-tyrell-malacia-interview/
