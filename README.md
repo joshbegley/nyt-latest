@@ -19,7 +19,7 @@ https://nytimes.com/2024/11/15/us/politics/republicans-full-control-government.h
 https://nytimes.com/athletic/5924458/2024/11/15/nba-overreactions-darius-garland-cavaliers-karl-anthony-towns/
 
 **Putin Talks With German Chancellor, Breaking Ice With the West**\
-`The hourlong call centered on what German officials said was a push to end the war in Ukraine. It was the first in two years between Mr. Putin and Chancellor Olaf Scholz`\
+`The hourlong call centered on what German officials said was a push to end the war in Ukraine. It was the first in two years between Mr. Putin and Chancellor Olaf Scholz.`\
 https://nytimes.com/2024/11/15/world/europe/scholz-putin-russia-germany-call.html
 
 **Don’t Blame Biden for Trump’s Victory**\
