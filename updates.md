@@ -1,3 +1,7 @@
+**Orioles announce plans to change left-field wall dimensions for 2025 season**\
+`The Orioles raised the height of the wall and moved it back between the 2021 and 2022 seasons. Now the wall is getting moved in.`\
+https://nytimes.com/athletic/5925662/2024/11/15/orioles-left-field-wall-dimensions/
+
 **Bird, Fowles headline 2025 Women's Basketball HOF class**\
 `Alana Beard, Cappie Pondexter, Mark Campbell, Lucille Kyvallosare and Danielle Donehew also a part of the 2025 class`\
 https://nytimes.com/athletic/5925539/2024/11/15/sue-bird-sylvia-fowles-hall-of-fame/
