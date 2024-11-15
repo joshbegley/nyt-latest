@@ -1,3 +1,7 @@
+**Why States Are Offering Workers at Private Companies Access to I.R.A.s**\
+`With the plans, workers are automatically enrolled and contribute through payroll deductions. The goal is to help more Americans save for retirement.`\
+https://nytimes.com/2024/11/15/your-money/ira-retirement-plans.html
+
 **What we're seeing with the Bucks: AJ Green's screens, Gary Trent Jr. and more deflections**\
 `Getting Green clean 3-point looks is just one of the benefits the Bucks' offense gets when the shooting guard is involved.`\
 https://nytimes.com/athletic/5923444/2024/11/15/bucks-aj-green-gary-trent-jr-ones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922471/2024/11/15/sf-giants-patrick-bailey-second-
 **Why the 49ers were determined to land Evan Anderson: 'Kept reminding me of D.J.'**\
 `The competition for Anderson was intense, which is why he got so much guaranteed money. One of the teams the 49ers had to beat out: Seattle.`\
 https://nytimes.com/athletic/5923211/2024/11/15/49ers-evan-anderson-dj-jones/
-
-**Raiders' Scott Turner will stress communication in 8-game audition as interim OC**\
-`"There might be a couple of new things here and there, and we'll see how that grows as the season goes on."`\
-https://nytimes.com/athletic/5922978/2024/11/15/scott-turner-raiders-offensive-coordinator/
 
