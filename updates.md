@@ -1,3 +1,7 @@
+**ATP Tour Finals qualification: Sinner, Fritz make semifinals**\
+`The ATP Finals semifinals are set, with an exit for Carlos Alcaraz.`\
+https://nytimes.com/athletic/5905649/2024/11/15/atp-tour-finals-qualification-results-analysis/
+
 **Three keys and a prediction for Notre Dame's senior day game vs. Virginia**\
 `Notre Dame has won its past six home finales by an average of 37.2 points. Can it continue that success against Virginia?`\
 https://nytimes.com/athletic/5925381/2024/11/15/notre-dame-football-virginia-preview/
