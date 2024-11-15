@@ -1,3 +1,7 @@
+**Fantasy football flex fliers: Ride with Bateman, consider Mike Williams in Week 11**\
+`Scott Engel gives advice on who to target in free agency for those who have roster holes after the early waiver wire run. `\
+https://nytimes.com/athletic/5924521/2024/11/15/fantasy-football-flex-fliers-week-11/
+
 **The Bounce: Steph Curry shares his new all-time starting five**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5924372/2024/11/15/steph-curry-warriors-jaylen-brown-celtics-nba-the-bounce/
