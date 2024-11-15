@@ -24,7 +24,7 @@ https://nytimes.com/2024/11/15/books/review/podcast-patrick-radden-keefe-say-not
 
 **Trump asks Steven Cheung, his chief campaign spokesman, to lead White House communications.**\
 `By Michael Gold`\
-https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/trump-asks-steven-cheung-his-chief-campaign-spokesman-to-lead-white-house-communications
+https://nytimes.com/2024/11/15/us/politics/trump-asks-steven-cheung-his-chief-campaign-spokesman-to-lead-white-house-communications.html
 
 **Watch Zoe Saldaña Confront Corrupt Politicians in ‘Emilia Pérez’**\
 `The director Jacques Audiard narrates the star’s passionate musical performance from the film.`\
