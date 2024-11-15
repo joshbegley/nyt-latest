@@ -1,3 +1,7 @@
+**Putin Talks With German Chancellor, Breaking Ice With the West**\
+`The hourlong call centered on what German officials said was a push to end the war in Ukraine. It was the first in two years between Mr. Putin and Chancellor Olaf Scholz`\
+https://nytimes.com/2024/11/15/world/europe/scholz-putin-russia-germany-call.html
+
 **Don’t Blame Biden for Trump’s Victory**\
 `Readers respond to a guest essay by Josh Barro. Also: Elon Musk and America’s birthrate; a pharmacist’s view; the danger of extreme heat.`\
 https://nytimes.com/2024/11/15/opinion/biden-trump-election-blame.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5924186/2024/11/15/nhl-power-rankings-jets-wild/
 **Why does Sebastian Aho feel like an afterthought for the Hurricanes?**\
 `Aho has totaled 14 points in 15 games, but his past suggests that his goal-scoring will pick up.`\
 https://nytimes.com/athletic/5924200/2024/11/15/sebastian-aho-hurricanes-goals-points/
-
-**Can Sam Darnold and the Vikings right the ship in Tennessee?**\
-`Will the Vikings quarterback avoid the turnovers that hobbled the offense last week? Or are we in for another slog against the AFC South?`\
-https://nytimes.com/athletic/5923644/2024/11/15/vikings-titans-preview-predictions-sam-darnold/
 
