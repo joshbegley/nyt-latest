@@ -1,3 +1,7 @@
+**Fantasy football flex fliers: Ride with Bateman, consider Mike Williams in Week 11**\
+`Scott Engel gives advice on who to target in free agency for those who have roster holes after the early waiver wire run. `\
+https://nytimes.com/athletic/5924521/2024/11/15/fantasy-football-flex-fliers-week-11/
+
 **The Bounce: Steph Curry shares his new all-time starting five**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5924372/2024/11/15/steph-curry-warriors-jaylen-brown-celtics-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/world/europe/israel-gaza-war-europe.html
 **Penguins promote 2022 first-round pick Owen Pickering to the NHL**\
 `Defenseman Owen Pickering, the team's first-round selection in the 2022 NHL Draft, has been recalled from Wilkes-Barre/Scranton.`\
 https://nytimes.com/athletic/5924577/2024/11/15/penguins-owen-pickering-nhl-promotion/
-
-**How to Watch the Leonids Meteor Shower Peak This Weekend**\
-`The event produces some of the year’s fastest meteors, although the nearly full moon may make them challenging to spot.`\
-https://nytimes.com/2024/11/15/science/leonid-meteor-shower-how-to-watch.html
 
