@@ -2,8 +2,8 @@
 `“Tammy Faye,” a bland, tonal mishmash of a show opening on Broadway, seems afraid to lean into what made the televangelist so distinctive.`\
 https://nytimes.com/2024/11/14/theater/tammy-faye-review.html
 
-**Zuccarello and Eriksson Ek injured, but Wild shut out Habs: 3 takeaways**\
-`The Wild played most of the game without two of their top-six forwards but managed to dispatch the Canadiens thanks to Matt Boldy.`\
+**Mats Zuccarello and Joel Eriksson Ek injured, but Wild shut out Habs: 3 takeaways**\
+`The Wild played most of the game without two of their top six forwards but managed to dispatch the Canadiens thanks to Matt Boldy.`\
 https://nytimes.com/athletic/5923846/2024/11/14/wild-zuccarello-eriksson-ek-injury-canadiens/
 
 **How Filip Chytil's injury overshadowed Rangers' workmanlike win: 4 takeaways**\
