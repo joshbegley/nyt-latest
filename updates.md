@@ -1,3 +1,7 @@
+**NBA considering tournament-style format for 2025 All-Star Game: Sources**\
+`The changes would be the league’s latest attempt to rejuvenate the All-Star Game, which has fallen flat over the last few seasons.`\
+https://nytimes.com/athletic/5925571/2024/11/15/nba-all-star-game-changes-tournament-style-2025/
+
 **NBA considering tournament-style format for 2025 All-Star Game: Source**\
 `The changes would be the league’s latest attempt to rejuvenate the All-Star Game, which has fallen flat over the last few seasons.`\
 https://nytimes.com/athletic/5925571/2024/11/15/nba-all-star-game-changes-tournament-style-2025/
