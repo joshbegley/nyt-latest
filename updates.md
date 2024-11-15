@@ -1,3 +1,15 @@
+**Iran Told U.S. That It’s Not Trying to Kill Trump**\
+`The Biden administration had warned that the United States would consider any Iranian attempt on Mr. Trump’s life to be “an act of war,” officials said.`\
+https://nytimes.com/2024/11/15/world/middleeast/iran-trump-assassinate.html
+
+**Trump Will Encounter a Very Different Middle East in His Second Term**\
+`The region has changed dramatically since the Oct. 7 attacks.`\
+https://nytimes.com/2024/11/15/world/middleeast/trump-will-encounter-a-very-different-middle-east-in-his-second-term.html
+
+**What R.F.K. Jr. Gets Right — and Wrong — About Nutrition**\
+`We fact checked five of his most repeated claims.`\
+https://nytimes.com/2024/11/15/well/eat/rfk-jr-food-nutrition-health.html
+
 **Colts WR Pittman to return vs. Jets, LT Raimann ruled out**\
 `The receiver's return against the Jets will coincide with quarterback Anthony Richardson's return to the starting lineup.`\
 https://nytimes.com/athletic/5925218/2024/11/15/colts-michael-pittman-bernhard-raimann/
