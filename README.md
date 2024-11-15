@@ -1,3 +1,7 @@
+**New York Times Takes European Commission to Court Over Covid Vaccine Deal**\
+`The news outlet is pushing the Commission to release text messages between the E.U.’s top official and Pfizer as they negotiated a vaccine contract.`\
+https://nytimes.com/2024/11/15/world/europe/new-york-times-european-commission-covid-vaccine-lawsuit.html
+
 **Dyson Daniels, Tyler Herro and more emerging players to know from season's first few weeks**\
 `Across the league, more than a few players we didn't quite expect have emerged as big-time contributors.`\
 https://nytimes.com/athletic/5922809/2024/11/15/nba-under-the-radar-players-dyson-daniels-tyler-herro/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922627/2024/11/15/falcons-defense-early-fight-bron
 **Engineers Discover a 132-Year-Old Message in a Bottle in a Scottish Lighthouse**\
 `Mechanical engineers inspecting a lighthouse found a surprising message: a handwritten missive from workers of another age.`\
 https://nytimes.com/2024/11/15/world/europe/message-in-bottle-lighthouse-scotland.html
-
-**Humans Are Divided and Unhappy. What Better Time to Contact Alien Life?**\
-`Fifty years ago, the famed Arecibo message was fired into space to make contact with intelligent extraterrestrials. Now is the time to try again.`\
-https://nytimes.com/2024/11/15/opinion/alien-extraterrestrial-arecibo-seti.html
 
