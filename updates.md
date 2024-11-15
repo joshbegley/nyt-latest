@@ -1,3 +1,7 @@
+**Bills TE Dalton Kincaid ruled out Sunday vs. Chiefs**\
+`Kincaid's absence this coming Sunday was the expected move after the tight end left last weekend's game twice with a knee injury.`\
+https://nytimes.com/athletic/5924862/2024/11/15/bills-dalton-kincaid-injury-update-chiefs/
+
 **Mike Tyson vs. Jake Paul fight odds: Tyson is a popular bet, moving lines sharply in lead up**\
 `Mike Tyson and Jake Paul are set for one of the most anticipated, and weirder, boxing matchups in years. Paul is a clear favorite.`\
 https://nytimes.com/athletic/5924728/2024/11/15/mike-tyson-jake-paul-odds-fight-netflix/
