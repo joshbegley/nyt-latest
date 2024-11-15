@@ -1,6 +1,10 @@
+**The Pulse: A new NFL MVP candidate**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5924039/2024/11/15/saquon-barkley-nfl-mvp-the-pulse/
+
 **Trump’s Tax Plans**\
 `Three scenarios for how Republicans could approach cutting taxes next year.`\
-https://nytimes.com/2024/11/15/briefing/trumps-tax-plans.html
+https://nytimes.com/2024/11/15/briefing/trump-tax-plans.html
 
 **Twins say they plan to keep Carlos Correa and the core, but also an open mind on trades**\
 `Despite the club being in a financial bind, Derek Falvey said his highest-priced players remain part of the plan — for now. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/world/middleeast/israel-lebanon-strikes-hezbollah
 **What factors influence NWSL player and team jersey sales?**\
 `Growing interest in women's soccer and NWSL is starting to show in jersey sales `\
 https://nytimes.com/athletic/5923854/2024/11/15/san-diego-wave-alex-morgan-jersey-sales/
-
-**Lazerus: Even players know CHSN fiasco risks sending Blackhawks back into 'oblivion'**\
-`Danny Wirtz has to figure out a way to keep the Blackhawks in the public eye, or risk fading into irrelevance.`\
-https://nytimes.com/athletic/5923353/2024/11/15/chicago-blackhawks-chsn-app-subscription/
 
