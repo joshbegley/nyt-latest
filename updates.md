@@ -1,3 +1,19 @@
+**‘An Absolute Mess’: Brokers Assess the Shift in Fees**\
+`The New York City Council has passed a bill that would require landlords to pay for the rental brokers they hire. Some brokers believe it will hurt tenants in the long run.`\
+https://nytimes.com/2024/11/15/realestate/nyc-brokers-fees-reaction.html
+
+**Patrick Radden Keefe on Taking ‘Say Nothing’ From Acclaimed Book to TV Show**\
+`Keefe’s narrative history, which was No. 19 on our list of the 100 Best Books of the 21st Century, has now been adapted into a streaming series.`\
+https://nytimes.com/2024/11/15/books/review/podcast-patrick-radden-keefe-say-nothing-interview.html
+
+**Trump asks Steven Cheung, his chief campaign spokesman, to lead White House communications.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/trump-asks-steven-cheung-his-chief-campaign-spokesman-to-lead-white-house-communications
+
+**Watch Zoe Saldaña Confront Corrupt Politicians in ‘Emilia Pérez’**\
+`The director Jacques Audiard narrates the star’s passionate musical performance from the film.`\
+https://nytimes.com/2024/11/15/movies/emilia-perez-clip-zoe-saldana.html
+
 **‘Emilia Pérez’ | Anatomy of a Scene**\
 `The director Jacques Audiard narrates a sequence from his film featuring Zoe Saldaña and Karla Sofía Gascón.`\
 https://nytimes.com/video/movies/100000009828358/emilia-perez-scene.html
