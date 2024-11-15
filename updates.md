@@ -1,3 +1,19 @@
+**7 New Songs You Should Hear Now**\
+`Catch up on the latest from Soccer Mommy, Haley Heynderickx, Tyler, the Creator and more.`\
+https://nytimes.com/2024/11/15/arts/music/amplifer-newsletter-new-songs.html
+
+**Carsley: I definitely didn't drop Kane, will start against Republic of Ireland**\
+`Lee Carsley has insisted that he &#8220;definitely didn&#8217;t drop&#8221; Harry Kane, and reiterated that England’s captain will return to the starting line-up against the Republic of Ireland on Sunday.`\
+https://nytimes.com/athletic/5924356/2024/11/15/lee-carsley-harry-kane/
+
+**How to watch Lakers vs. Spurs in tonight's NBA Cup**\
+`The Lakers and Spurs are both trending up heading into their Friday night NBA Cup game.`\
+https://nytimes.com/athletic/5924878/2024/11/15/how-to-watch-lakers-spurs-lebron-wermbanyama-nba-cup/
+
+**Johnson Kept the Gavel but Faces Steep Challenges Atop Slim G.O.P. Majority**\
+`The Republican speaker, once viewed as an interim figure, maintained the House majority and his job. But his narrow margin of control could pose major difficulties.`\
+https://nytimes.com/2024/11/15/us/politics/mike-johnson-speaker-challenges.html
+
 **Trudeau Issued a Plea to Taylor Swift: Please Come. She Did.**\
 `Ms. Swift is performing six shows in Toronto before heading to Vancouver, the final stop in her blockbuster Eras Tour.`\
 https://nytimes.com/2024/11/15/world/canada/taylor-swift-eras-tour-toronto-vancouver.html

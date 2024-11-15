@@ -1,3 +1,19 @@
+**7 New Songs You Should Hear Now**\
+`Catch up on the latest from Soccer Mommy, Haley Heynderickx, Tyler, the Creator and more.`\
+https://nytimes.com/2024/11/15/arts/music/amplifer-newsletter-new-songs.html
+
+**Carsley: I definitely didn't drop Kane, will start against Republic of Ireland**\
+`Lee Carsley has insisted that he &#8220;definitely didn&#8217;t drop&#8221; Harry Kane, and reiterated that England’s captain will return to the starting line-up against the Republic of Ireland on Sunday.`\
+https://nytimes.com/athletic/5924356/2024/11/15/lee-carsley-harry-kane/
+
+**How to watch Lakers vs. Spurs in tonight's NBA Cup**\
+`The Lakers and Spurs are both trending up heading into their Friday night NBA Cup game.`\
+https://nytimes.com/athletic/5924878/2024/11/15/how-to-watch-lakers-spurs-lebron-wermbanyama-nba-cup/
+
+**Johnson Kept the Gavel but Faces Steep Challenges Atop Slim G.O.P. Majority**\
+`The Republican speaker, once viewed as an interim figure, maintained the House majority and his job. But his narrow margin of control could pose major difficulties.`\
+https://nytimes.com/2024/11/15/us/politics/mike-johnson-speaker-challenges.html
+
 **Trudeau Issued a Plea to Taylor Swift: Please Come. She Did.**\
 `Ms. Swift is performing six shows in Toronto before heading to Vancouver, the final stop in her blockbuster Eras Tour.`\
 https://nytimes.com/2024/11/15/world/canada/taylor-swift-eras-tour-toronto-vancouver.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/15/arts/music/playlist-shaboozey-lil-nas-x.html
 **Why Kennedy Sees an ‘Epidemic’ of Chronic Disease Among Children**\
 `Trends in child health are in fact worrisome, and scientists welcome a renewed focus on foods and environmental toxins. But vaccines and fluoride are not the cause.`\
 https://nytimes.com/2024/11/15/health/rfk-chronic-diseases-children.html
-
-**Texas Supreme Court Paves Way for Execution in ‘Shaken Baby’ Case**\
-`Texas lawmakers exceeded their power when they intervened last month to stop the execution of Robert Roberson by summoning him to testify, the court found.`\
-https://nytimes.com/2024/11/15/us/texas-roberson-execution-shaken-baby.html
-
-**Something in the Air? Moonwalks and Mandalas in Ralph Lemon’s Show**\
-`The choreographer and visual artist brings performance and paintings to a meteor shower of an exhibition at MoMA PS1.`\
-https://nytimes.com/2024/11/15/arts/design/ralph-lemon-artist-moma-ps1.html
-
-**Bills TE Dalton Kincaid ruled out Sunday vs. Chiefs**\
-`Kincaid's absence this coming Sunday was the expected move after the tight end left last weekend's game twice with a knee injury.`\
-https://nytimes.com/athletic/5924862/2024/11/15/bills-dalton-kincaid-injury-update-chiefs/
-
-**Mike Tyson vs. Jake Paul fight odds: Tyson is a popular bet, moving lines sharply in lead up**\
-`Mike Tyson and Jake Paul are set for one of the most anticipated, and weirder, boxing matchups in years. Paul is a clear favorite.`\
-https://nytimes.com/athletic/5924728/2024/11/15/mike-tyson-jake-paul-odds-fight-netflix/
 
