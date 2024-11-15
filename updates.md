@@ -1,3 +1,7 @@
+**Ghana fail to qualify for AFCON 2025 after draw against Angola**\
+`Ghana have failed to qualify for the 2025 Africa Cup of Nations (AFCON).`\
+https://nytimes.com/athletic/5922531/2024/11/15/ghana-fail-afcon-qualification-south-sudan/
+
 **Stocks Fall as Wall Street’s Election Enthusiasm Subsides**\
 `The post-election rally has lost steam, with the S&P 500 down 2 percent for the week. But major stock indexes are still up since Election Day.`\
 https://nytimes.com/2024/11/15/business/stock-market-election-trump-economy.html

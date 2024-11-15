@@ -1,3 +1,7 @@
+**Ghana fail to qualify for AFCON 2025 after draw against Angola**\
+`Ghana have failed to qualify for the 2025 Africa Cup of Nations (AFCON).`\
+https://nytimes.com/athletic/5922531/2024/11/15/ghana-fail-afcon-qualification-south-sudan/
+
 **Stocks Fall as Wall Street’s Election Enthusiasm Subsides**\
 `The post-election rally has lost steam, with the S&P 500 down 2 percent for the week. But major stock indexes are still up since Election Day.`\
 https://nytimes.com/2024/11/15/business/stock-market-election-trump-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925218/2024/11/15/colts-michael-pittman-bernhard-r
 **Princess Yuriko, Oldest Member of Japan’s Imperial Family, Dies at 101**\
 `Her death reduces Japan’s rapidly dwindling imperial family to 16 people, and only 4 men, as the country faces questions about the future under a male-only succession law.`\
 https://nytimes.com/2024/11/15/world/asia/princess-yuriko-dead.html
-
-**Leicy Santos has proven herself to be a game changer for the Washington Spirit**\
-`Santos and the Spirit face Gotham FC in an NWSL playoffs semifinal on Saturday with the title game just a week away`\
-https://nytimes.com/athletic/5925057/2024/11/15/leicy-santos-washington-spirit-game-changer/
 
