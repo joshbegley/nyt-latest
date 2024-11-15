@@ -1,3 +1,7 @@
+**55,000 Postal Workers in Canada Strike Over Pay**\
+`The union walked out after talks with the country’s main mail operator failed. The stoppage could disrupt deliveries before the holidays.`\
+https://nytimes.com/2024/11/15/business/canada-post-workers-strike.html
+
 **Eagles outlast Commanders and seize control of the NFC East**\
 `The Eagles overcame some mishaps on offense to beat their division rival.`\
 https://nytimes.com/athletic/5923770/2024/11/15/eagles-commanders-control-nfc-east/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922583/2024/11/15/nfl-draft-2025-cam-ward-miami-sc
 **Crypto Congress + HBD ChatGPT + What Social Media Platform Should I Be On?**\
 `Cryptocurrency is poised to have a huge year in 2025.`\
 https://nytimes.com/2024/11/15/podcasts/crypto-congress-hbd-chatgpt-what-social-media-platform-should-i-be-on.html
-
-**The Athletic’s Friday football quiz question #30**\
-`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/5924289/2024/11/15/the-athletics-friday-football-quiz-question-30/
 
