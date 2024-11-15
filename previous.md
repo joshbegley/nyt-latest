@@ -1,3 +1,7 @@
+**As Rams OL struggles with continuity, more changes could come in Week 11**\
+`The Rams travel to play New England on Sunday.`\
+https://nytimes.com/athletic/5925514/2024/11/15/rams-sean-mcvay-offensive-line-center/
+
 **Trump Turns to His Personal Lawyers to Stock Top Ranks of Justice Dept.**\
 `The president-elect intends to nominate three members of his criminal defense team to senior roles, raising further concerns about politicization of the department.`\
 https://nytimes.com/2024/11/15/us/politics/trump-lawyers-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/us/politics/biden-north-korea-russia.html
 **Drowning Death of 11-Month-Old Girl in the Bronx Is Ruled a Homicide**\
 `The finding in the case of Jazeli Mirabal is the third death of an infant in New York City over the summer to be labeled a homicide this month.`\
 https://nytimes.com/2024/11/15/nyregion/bronx-baby-drowning-death-homicide.html
-
-**House and Senate Clash Over Ethics Report on Gaetz**\
-`Also, nuclear power went from pariah to rising star. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/11/15/briefing/gaetz-ethics-report-house-senate-nuclear-power.html
 
