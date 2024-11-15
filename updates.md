@@ -1,3 +1,11 @@
+**Scoop City: Outlook for NFL's 4 biggest disappointments**\
+`This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/5924608/2024/11/15/cowboys-jets-bears-bengals-scoop-city/
+
+**A Whole New Ballgame**\
+`What soccer, a recent foray into coaching and years of writing this newsletter taught our columnist about the game, and himself.`\
+https://nytimes.com/2024/11/15/world/europe/soccer-rory-smith.html
+
 **Gaza War Strains Europe’s Efforts at Social Cohesion**\
 `Institutions meant to promote civility, from soccer to song, have come under severe stress from rising antisemitism and anti-immigrant politics.`\
 https://nytimes.com/2024/11/15/world/europe/israel-gaza-war-europe.html
