@@ -1,3 +1,7 @@
+**Trump Picks Doug Collins, Ex-Congressman and Impeachment Defender, to Lead V.A.**\
+`Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment inquiry in 2019.`\
+https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
+
 **Florida QB DJ Lagway to return Saturday against LSU**\
 `Lagway, a former five-star recruit, missed last week's game against Texas. Receiver Elijhah Badger is also expected to be available.`\
 https://nytimes.com/athletic/5923750/2024/11/14/florida-gators-quarterback-dj-lagway-billy-napier-lsu/

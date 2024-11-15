@@ -14,8 +14,8 @@ https://nytimes.com/2024/11/14/us/politics/lara-trump-marco-rubio-florida-senate
 `The plaintiffs include SJSU co-captain Brooke Slusser, assistant coach Melissa Batie-Smoose and two former Spartans players.`\
 https://nytimes.com/athletic/5923566/2024/11/14/san-jose-state-volleyball-lawsuit-transgender-player/
 
-**Trump Picks Doug Collins, Former Congressman and Impeachment Defender, to Lead V.A.**\
-`Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment in 2019.`\
+**Trump Picks Doug Collins, Ex-Congressman and Impeachment Defender, to Lead V.A.**\
+`Mr. Collins, a chaplain in the Air Force Reserve, became the face of the president-elect’s defense in his first impeachment inquiry in 2019.`\
 https://nytimes.com/2024/11/14/us/politics/doug-collins-va-secretary.html
 
 **Greg Sankey sees SEC Championship Game ‘as a reward,’ not a penalty**\
