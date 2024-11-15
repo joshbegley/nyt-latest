@@ -1,3 +1,27 @@
+**Here is the latest on the next administration.**\
+`By Michael Gold and Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/here-is-the-latest-on-the-next-administration
+
+**Trump Transition Live Updates: Trump Plans to Pick Doug Burgum for Interior Secretary**\
+`The president-elect announced his choice of Gov. Doug Burgum of North Dakota at his Mar-a-Lago club. He has yet to name his choices for several Cabinet-level jobs, including leaders of Treasury and Labor.`\
+https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates
+
+**A deep dive into Patrick Bailey's second-half offensive struggles**\
+`Bailey's second half was noticeably awful for the second year in a row, but is that predictive of how his seasons will always go?`\
+https://nytimes.com/athletic/5922471/2024/11/15/sf-giants-patrick-bailey-second-half-struggles/
+
+**Why the 49ers were determined to land Evan Anderson: 'Kept reminding me of D.J.'**\
+`The competition for Anderson was intense, which is why he got so much guaranteed money. One of the teams the 49ers had to beat out: Seattle.`\
+https://nytimes.com/athletic/5923211/2024/11/15/49ers-evan-anderson-dj-jones/
+
+**Raiders' Scott Turner will stress communication in 8-game audition as interim OC**\
+`"There might be a couple of new things here and there, and we'll see how that grows as the season goes on."`\
+https://nytimes.com/athletic/5922978/2024/11/15/scott-turner-raiders-offensive-coordinator/
+
+**Why Derwin James and Chargers' big nickel package is the best bet against Bengals**\
+`“That’s our best combination,” coach Jim Harbaugh said of getting James, Alohi Gilman and Elijah Molden on the field together. `\
+https://nytimes.com/athletic/5923831/2024/11/15/chargers-defense-derwin-james-big-nickel/
+
 **55,000 Postal Workers in Canada Strike Over Pay**\
 `The union walked out after talks with the country’s main mail operator failed. The stoppage could disrupt deliveries before the holidays.`\
 https://nytimes.com/2024/11/15/business/canada-post-workers-strike.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5916579/2024/11/15/chiefs-bills-nfl-reporters-big-g
 **Ex-Man Utd Women midfielder says she cried in bathroom during training sessions**\
 `Former Manchester United Women midfielder Irene Guerrero says she cried in the bathroom during training sessions while at the club last season.`\
 https://nytimes.com/athletic/5924354/2024/11/15/irene-guerrero-man-utd-women/
-
-**The Athletic FC - Malacia: Truth behind ridiculous rumours, inside Real Madrid's injury crisis**\
-`Today in TAFC: Malacia on his injury nightmare and strange conspiracy theories, Real Madrid's injury nightmare explained, Ranieri is back.`\
-https://nytimes.com/athletic/5924269/2024/11/15/malacia-interview-conspiracy-theories-manchester-united/
-
-**The long and winding road that led USC to Jayden Maiava as its starting quarterback**\
-`Maiava was a three-star prospect in the 2022 recruiting cycle with only two FBS offers. Now, he's the starting QB at USC. `\
-https://nytimes.com/athletic/5923269/2024/11/15/jayden-maiava-usc-quarterback-lincoln-riley/
-
-**Lowetide: How Mattias Ekholm has been so valuable to the Oilers**\
-`Ekholm is once again playing big minutes and delivering elite results for Edmonton no matter the competition.`\
-https://nytimes.com/athletic/5922198/2024/11/15/mattias-ekholm-oilers-value/
-
-**'It’s LeBron James-like': Luka Dončić debuts at No. 53 in The Athletic's 'The Basketball 100'**\
-`The awards and records that Dončić has already set in Europe and the U.S. are impressive, even if they weren’t tied to his age.`\
-https://nytimes.com/athletic/5921073/2024/11/15/luka-doncic-the-basketball-100-book-excerpt/
-
-**Cam Ward keeps getting better, so why is his NFL Draft evaluation so tricky?**\
-`Ward has emerged as a potential QB1 in the 2025 draft. But there still are several questions hanging over his scouting report.`\
-https://nytimes.com/athletic/5922583/2024/11/15/nfl-draft-2025-cam-ward-miami-scouting-report/
-
-**Crypto Congress + HBD ChatGPT + What Social Media Platform Should I Be On?**\
-`Cryptocurrency is poised to have a huge year in 2025.`\
-https://nytimes.com/2024/11/15/podcasts/crypto-congress-hbd-chatgpt-what-social-media-platform-should-i-be-on.html
 
