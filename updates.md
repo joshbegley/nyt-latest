@@ -1,3 +1,11 @@
+**Kennedy’s Vow to Take On Big Food Could Face Resistance**\
+`Processed foods are in the cross hairs of Robert F. Kennedy Jr., but battling major companies could collide with President-elect Donald J. Trump’s corporate-friendly goals.`\
+https://nytimes.com/2024/11/15/health/rfk-big-food-artificial-dyes-trump.html
+
+**The 25th Latin Grammys Showed Their Age**\
+`While Latin music looks ahead, its biggest awards show, broadcast live from Miami on Thursday night, looked back.`\
+https://nytimes.com/2024/11/15/arts/music/latin-grammy-awards-winners-performances.html
+
 **Pence urges Republican senators not to confirm R.F.K. Jr., citing his support of abortion rights.**\
 `By Jonathan Swan`\
 https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/pence-urges-republican-senators-not-to-confirm-rfk-jr-citing-his-support-of-abortion-rights
