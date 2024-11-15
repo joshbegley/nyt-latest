@@ -1,3 +1,15 @@
+**Fantasy trends and hidden gems: Maximizing Darnell Nurse, player projection risers, fallers and more**\
+`Shayna Goldman says the Oilers have figured out how to maximize Darnell Nurse as she weighs in on this week's fantasy hockey waiver wire.`\
+https://nytimes.com/athletic/5923935/2024/11/15/fantasy-trends-and-hidden-gems-maximizing-darnell-nurse-player-projection-risers-fallers-and-more/
+
+**What's gone wrong for Mavericks in midst of 'emotional week,' 4-game losing skid**\
+`The reigning Western Conference champions have been lousy in close games and looked drained from Klay Thompson's homecoming game.`\
+https://nytimes.com/athletic/5924352/2024/11/15/mavericks-losing-streak-luka-doncic-klay-thompson/
+
+**Fantasy football injury report: Prepare to be without TEs LaPorta, Kincaid in Week 11**\
+`Greg Scholz of Inside Injuries breaks down the key injuries in Week11, offering a pessimistic outlook for a pair of second-year tight ends.`\
+https://nytimes.com/athletic/5923586/2024/11/15/fantasy-football-injury-report-week-11-tyreek-hill-sam-laporta/
+
 **Why States Are Offering Workers at Private Companies Access to I.R.A.s**\
 `With the plans, workers are automatically enrolled and contribute through payroll deductions. The goal is to help more Americans save for retirement.`\
 https://nytimes.com/2024/11/15/your-money/ira-retirement-plans.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/15/business/dealbook/trump-robert-f-kennedy-stocks.h
 **Here is the latest on the next administration.**\
 `By Michael Gold and Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/here-is-the-latest-on-the-next-administration
-
-**Trump Transition Live Updates: Trump Plans to Pick Doug Burgum for Interior Secretary**\
-`The president-elect announced his choice of Gov. Doug Burgum of North Dakota at his Mar-a-Lago club. He has yet to name his choices for several cabinet-level jobs, including leaders of Treasury and Labor.`\
-https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates
-
-**A deep dive into Patrick Bailey's second-half offensive struggles**\
-`Bailey's second half was noticeably awful for the second year in a row, but is that predictive of how his seasons will always go?`\
-https://nytimes.com/athletic/5922471/2024/11/15/sf-giants-patrick-bailey-second-half-struggles/
-
-**Why the 49ers were determined to land Evan Anderson: 'Kept reminding me of D.J.'**\
-`The competition for Anderson was intense, which is why he got so much guaranteed money. One of the teams the 49ers had to beat out: Seattle.`\
-https://nytimes.com/athletic/5923211/2024/11/15/49ers-evan-anderson-dj-jones/
 
