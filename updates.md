@@ -1,3 +1,7 @@
+**‘Emilia Pérez’ | Anatomy of a Scene**\
+`The director Jacques Audiard narrates a sequence from his film featuring Zoe Saldaña and Karla Sofía Gascón.`\
+https://nytimes.com/video/movies/100000009828358/emilia-perez-scene.html
+
 **Wild's Mats Zuccarello out 3 to 4 weeks after undergoing surgery**\
 `Coach John Hynes made clear Friday that Zuccarello's timetable is very much an estimate depending on his recovery from a tough injury.`\
 https://nytimes.com/athletic/5924921/2024/11/15/wild-mats-zuccarello-joel-eriksson-ek-injuries/
