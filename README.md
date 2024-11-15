@@ -1,3 +1,11 @@
+**Scoop City: Outlook for NFL's 4 biggest disappointments**\
+`This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/5924608/2024/11/15/cowboys-jets-bears-bengals-scoop-city/
+
+**A Whole New Ballgame**\
+`What soccer, a recent foray into coaching and years of writing this newsletter taught our columnist about the game, and himself.`\
+https://nytimes.com/2024/11/15/world/europe/soccer-rory-smith.html
+
 **Gaza War Strains Europe’s Efforts at Social Cohesion**\
 `Institutions meant to promote civility, from soccer to song, have come under severe stress from rising antisemitism and anti-immigrant politics.`\
 https://nytimes.com/2024/11/15/world/europe/israel-gaza-war-europe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/15/climate/cop29-climate-nuclear-power.html
 **What’s Your ‘Romeo and Juliet’ I.Q.?**\
 `Test your knowledge, for never was a quiz of more woe than this of Juliet and her Romeo.`\
 https://nytimes.com/interactive/2024/11/15/theater/romeo-juliet-shakespeare-broadway-quiz.html
-
-**Fantasy trends and hidden gems: Maximizing Darnell Nurse, player projection risers, fallers and more**\
-`Shayna Goldman says the Oilers have figured out how to maximize Darnell Nurse as she weighs in on this week's fantasy hockey waiver wire.`\
-https://nytimes.com/athletic/5923935/2024/11/15/fantasy-trends-and-hidden-gems-maximizing-darnell-nurse-player-projection-risers-fallers-and-more/
-
-**Fantasy football injury report: Prepare to be without TEs LaPorta, Kincaid in Week 11**\
-`Greg Scholz of Inside Injuries breaks down the key injuries in Week11, offering a pessimistic outlook for a pair of second-year tight ends.`\
-https://nytimes.com/athletic/5923586/2024/11/15/fantasy-football-injury-report-week-11-tyreek-hill-sam-laporta/
 
