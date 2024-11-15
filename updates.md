@@ -1,3 +1,7 @@
+**Government by Bro**\
+`The hyper-macho and online energy of the Trump campaign is now aimed at Washington.`\
+https://nytimes.com/2024/11/15/us/politics/trump-cabinet-picks-men.html
+
 **As Rams OL struggles with continuity, more changes could come in Week 11**\
 `The Rams travel to play New England on Sunday.`\
 https://nytimes.com/athletic/5925514/2024/11/15/rams-sean-mcvay-offensive-line-center/
