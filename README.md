@@ -1,3 +1,7 @@
+**How to Watch the Leonids Meteor Shower Peak This Weekend**\
+`The event produces some of the year’s fastest meteors, although the nearly full moon may make them challenging to spot.`\
+https://nytimes.com/2024/11/15/science/leonid-meteor-shower-how-to-watch.html
+
 **Seduced by a $190 Soap Dispenser**\
 `The ceramic vessel made by a former fashion designer has become the hit product at a new shop in Downtown Manhattan.`\
 https://nytimes.com/2024/11/15/style/soap-dispenser-gem-home-flynn-mcgarry.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5924352/2024/11/15/mavericks-losing-streak-luka-don
 **Why States Are Offering Workers at Private Companies Access to I.R.A.s**\
 `With the plans, workers are automatically enrolled and contribute through payroll deductions. The goal is to help more Americans save for retirement.`\
 https://nytimes.com/2024/11/15/your-money/ira-retirement-plans.html
-
-**What we're seeing with the Bucks: AJ Green's screens, Gary Trent Jr. and more deflections**\
-`Getting Green clean 3-point looks is just one of the benefits the Bucks' offense gets when the shooting guard is involved.`\
-https://nytimes.com/athletic/5923444/2024/11/15/bucks-aj-green-gary-trent-jr-ones/
 

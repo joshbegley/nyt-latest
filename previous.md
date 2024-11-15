@@ -1,3 +1,15 @@
+**Seduced by a $190 Soap Dispenser**\
+`The ceramic vessel made by a former fashion designer has become the hit product at a new shop in Downtown Manhattan.`\
+https://nytimes.com/2024/11/15/style/soap-dispenser-gem-home-flynn-mcgarry.html
+
+**A Tiny Gladiator Uncovered in England Tells of the Reach of Roman Celebrity**\
+`A 2,000-year-old copper knife handle depicting a gladiator will go on display at Hadrian’s Wall, in the north of England, next year.`\
+https://nytimes.com/2024/11/15/world/europe/uk-roman-gladiator-knife-handle.html
+
+**Richard Price’s New Novel Is Full of Color but Short on Drama**\
+`“Lazarus Man” follows several characters in Harlem in the wake of a building collapse.`\
+https://nytimes.com/2024/11/15/books/review/richard-price-lazarus-man.html
+
 **Nuclear Power Was Once Shunned at Climate Talks. Now, It’s a Rising Star.**\
 `Growing worldwide energy demand and other factors have shifted the calculus, but hurdles still lie ahead.`\
 https://nytimes.com/2024/11/15/climate/cop29-climate-nuclear-power.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/15/your-money/ira-retirement-plans.html
 **What we're seeing with the Bucks: AJ Green's screens, Gary Trent Jr. and more deflections**\
 `Getting Green clean 3-point looks is just one of the benefits the Bucks' offense gets when the shooting guard is involved.`\
 https://nytimes.com/athletic/5923444/2024/11/15/bucks-aj-green-gary-trent-jr-ones/
-
-**Trump’s Defense Secretary Pick Faced Sexual Assault Claim in 2017**\
-`A complaint involving Pete Hegseth was filed with the police in Monterey, Calif., but it led to no charges, according to public records and Mr. Hegseth’s lawyer.`\
-https://nytimes.com/2024/11/15/us/politics/trump-pete-hegseth-defense-secretary-sexual-assault.html
-
-**Conan O’Brien Will Host the Next Academy Awards**\
-`Mr. O’Brien, the former late-night host, will take over from Jimmy Kimmel, who served as M.C. for the last two Oscar ceremonies, organizers said on Friday.`\
-https://nytimes.com/2024/11/15/business/media/conan-obrien-oscars-host.html
-
-**A Translation of a Translation of a Novel Within a Novel**\
-`Yang Shuang-zi’s “Taiwan Travelogue,” a National Book Award finalist, is a nesting-doll narrative about colonial power in its many forms.`\
-https://nytimes.com/2024/11/15/books/review/yang-shuangzi-taiwan-travelogue.html
 

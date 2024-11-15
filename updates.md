@@ -1,3 +1,15 @@
+**Seduced by a $190 Soap Dispenser**\
+`The ceramic vessel made by a former fashion designer has become the hit product at a new shop in Downtown Manhattan.`\
+https://nytimes.com/2024/11/15/style/soap-dispenser-gem-home-flynn-mcgarry.html
+
+**A Tiny Gladiator Uncovered in England Tells of the Reach of Roman Celebrity**\
+`A 2,000-year-old copper knife handle depicting a gladiator will go on display at Hadrian’s Wall, in the north of England, next year.`\
+https://nytimes.com/2024/11/15/world/europe/uk-roman-gladiator-knife-handle.html
+
+**Richard Price’s New Novel Is Full of Color but Short on Drama**\
+`“Lazarus Man” follows several characters in Harlem in the wake of a building collapse.`\
+https://nytimes.com/2024/11/15/books/review/richard-price-lazarus-man.html
+
 **Nuclear Power Was Once Shunned at Climate Talks. Now, It’s a Rising Star.**\
 `Growing worldwide energy demand and other factors have shifted the calculus, but hurdles still lie ahead.`\
 https://nytimes.com/2024/11/15/climate/cop29-climate-nuclear-power.html
