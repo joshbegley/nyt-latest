@@ -1,3 +1,11 @@
+**Carlos Alcaraz isn't the finished article. Knowing that may be enough**\
+`Alcaraz's recent struggles on fast hard courts are a welcome reminder that he has plenty of runway to improve.`\
+https://nytimes.com/athletic/5924985/2024/11/15/carlos-alcaraz-tennis-highlights-atp-tour-finals-result/
+
+**MLS clears commentator Taylor Twellman to resume calling games**\
+`Twellman had previously been removed from calling matches after that technician alleged that he and Twellman had a physical altercation.`\
+https://nytimes.com/athletic/5925450/2024/11/15/taylor-twellman-mls-season-pass-investigation/
+
 **Lyon handed provisional Ligue 1 relegation and transfer ban over financial situation**\
 `Lyon have been handed a provisional relegation to Ligue 2, the second division of French football, and will observe a transfer ban following an audit of their finances.`\
 https://nytimes.com/athletic/5925146/2024/11/15/lyon-relegation-transfer-ban-france-football/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/15/us/national-bible-bee-christian.html
 **Ghana fail to qualify for AFCON 2025 after draw against Angola**\
 `Ghana have failed to qualify for the 2025 Africa Cup of Nations (AFCON).`\
 https://nytimes.com/athletic/5922531/2024/11/15/ghana-fail-afcon-qualification-south-sudan/
-
-**Stocks Fall as Wall Street’s Election Enthusiasm Subsides**\
-`The post-election rally has lost steam, with the S&P 500 down 2 percent for the week. But major stock indexes are still up since Election Day.`\
-https://nytimes.com/2024/11/15/business/stock-market-election-trump-economy.html
-
-**How to watch UConn vs. North Carolina, tonight's women's basketball headliner**\
-`Friday night's matchup features two of the best teams in women's college basketball.`\
-https://nytimes.com/athletic/5925241/2024/11/15/uconn-unc-how-to-watch-odds/
 

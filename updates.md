@@ -1,3 +1,7 @@
+**Lyon handed provisional Ligue 1 relegation and transfer ban over financial situation**\
+`Lyon have been handed a provisional relegation to Ligue 2, the second division of French football, and will observe a transfer ban following an audit of their finances.`\
+https://nytimes.com/athletic/5925146/2024/11/15/lyon-relegation-transfer-ban-france-football/
+
 **Lions TE Sam LaPorta ruled out Sunday vs. Jaguars**\
 `LaPorta left Sunday’s win over the Texans with a shoulder injury, one coach Dan Campbell said after the game could sideline him for a week.`\
 https://nytimes.com/athletic/5925328/2024/11/15/lions-sam-laporta-injury-jaguars/
