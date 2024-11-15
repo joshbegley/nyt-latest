@@ -1,3 +1,19 @@
+**‘An Absolute Mess’: Brokers Assess the Shift in Fees**\
+`The New York City Council has passed a bill that would require landlords to pay for the rental brokers they hire. Some brokers believe it will hurt tenants in the long run.`\
+https://nytimes.com/2024/11/15/realestate/nyc-brokers-fees-reaction.html
+
+**Patrick Radden Keefe on Taking ‘Say Nothing’ From Acclaimed Book to TV Show**\
+`Keefe’s narrative history, which was No. 19 on our list of the 100 Best Books of the 21st Century, has now been adapted into a streaming series.`\
+https://nytimes.com/2024/11/15/books/review/podcast-patrick-radden-keefe-say-nothing-interview.html
+
+**Trump asks Steven Cheung, his chief campaign spokesman, to lead White House communications.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/trump-asks-steven-cheung-his-chief-campaign-spokesman-to-lead-white-house-communications
+
+**Watch Zoe Saldaña Confront Corrupt Politicians in ‘Emilia Pérez’**\
+`The director Jacques Audiard narrates the star’s passionate musical performance from the film.`\
+https://nytimes.com/2024/11/15/movies/emilia-perez-clip-zoe-saldana.html
+
 **‘Emilia Pérez’ | Anatomy of a Scene**\
 `The director Jacques Audiard narrates a sequence from his film featuring Zoe Saldaña and Karla Sofía Gascón.`\
 https://nytimes.com/video/movies/100000009828358/emilia-perez-scene.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/15/travel/florence-tourism-ban-rules.html
 **What I'm hearing about the Flyers: Sanheim impressing, Michkov's meetings, Ristolainen's future**\
 `Some interesting roster decisions are on the horizon for John Tortorella and the Flyers.`\
 https://nytimes.com/athletic/5924928/2024/11/15/philadelphia-flyers-sanheim-michkov-ristolainen/
-
-**Pogba leaves Juventus by mutual agreement**\
-`Paul Pogba will leave Juventus by mutual agreement at the end of the month, after having his four-year ban for failing an anti-doping test reduced to 18 months in October.`\
-https://nytimes.com/athletic/5921962/2024/11/15/paul-pogba-juventus-exit/
-
-**'I was first choice', bond with hierarchy, backing youth - analysing Amorim's first words at United**\
-`The new Manchester United head coach has laid out his vision for the team with his first interview - what exactly did he say and mean?`\
-https://nytimes.com/athletic/5925069/2024/11/15/ruben-amorim-manchester-united-first-words/
-
-**Johnson Says He Will Object to Release of Ethics Report on Gaetz**\
-`The House speaker said revealing the findings of a yearslong inquiry into allegations of sexual misconduct and drug use would be a ‘terrible breach of protocol’ because Matt Gaetz had resigned.`\
-https://nytimes.com/2024/11/15/us/politics/johnson-gaetz-ethics-report.html
-
-**7 New Songs You Should Hear Now**\
-`Catch up on the latest from Soccer Mommy, Haley Heynderickx, Tyler, the Creator and more.`\
-https://nytimes.com/2024/11/15/arts/music/amplifer-newsletter-new-songs.html
 
