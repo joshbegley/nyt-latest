@@ -1,3 +1,7 @@
+**Heat Today: Bam Adebayo, rest of team eyes early solutions before facing Pacers**\
+`What does Miami need to correct against Indiana and going forward? Adebayo has an idea.`\
+https://nytimes.com/athletic/5924550/2024/11/15/bam-adebayo-heat-pacers-tyrese-haliburton/
+
 **The Rise of Malört, an Unexpected Midwest Princess**\
 `The divisive yet beloved liquor, once available only in Chicago, has gained devotees nationally. Can it retain its roots?`\
 https://nytimes.com/2024/11/15/dining/malort.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/11/15/opinion/biden-trump-election-blame.html
 `Sophie Straat is reviving a style of music once popular in the working-class bars of Amsterdam to protest an increasingly expensive and homogenized city.`\
 https://nytimes.com/2024/11/15/arts/music/sophie-straat-amsterdam.html
 
-**What England need to do to secure UEFA Nations League promotion**\
-`England's host the Republic of Ireland in their final Nations League league phase match on Sunday. These are the permutations`\
+**What England need to do in their final group game to secure Nations League promotion**\
+`England's host the Republic of Ireland in their final Nations League group phase match on Sunday. These are the permutations...`\
 https://nytimes.com/athletic/5924576/2024/11/15/england-ireland-uefa-nations-league-game/
 
 **FIFA president Infantino’s name engraved on new CWC trophy**\
 `FIFA president Gianni Infantino&#8217;s name has been engraved on the new Club World Cup trophy.`\
 https://nytimes.com/athletic/5924557/2024/11/15/gianni-infantino-club-world-cup-trophy/
-
-**Fantasy football flex fliers: Ride with Bateman, consider Mike Williams in Week 11**\
-`Scott Engel gives advice on who to target in free agency for those who have roster holes after the early waiver wire run. `\
-https://nytimes.com/athletic/5924521/2024/11/15/fantasy-football-flex-fliers-week-11/
 

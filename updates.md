@@ -1,3 +1,11 @@
+**Heat Today: Bam Adebayo, rest of team eyes early solutions before facing Pacers**\
+`What does Miami need to correct against Indiana and going forward? Adebayo has an idea.`\
+https://nytimes.com/athletic/5924550/2024/11/15/bam-adebayo-heat-pacers-tyrese-haliburton/
+
+**What England need to do in their final group game to secure Nations League promotion**\
+`England's host the Republic of Ireland in their final Nations League group phase match on Sunday. These are the permutations...`\
+https://nytimes.com/athletic/5924576/2024/11/15/england-ireland-uefa-nations-league-game/
+
 **The Rise of Malört, an Unexpected Midwest Princess**\
 `The divisive yet beloved liquor, once available only in Chicago, has gained devotees nationally. Can it retain its roots?`\
 https://nytimes.com/2024/11/15/dining/malort.html
