@@ -1,3 +1,15 @@
+**Pence urges Republican senators not to confirm R.F.K. Jr., citing his support of abortion rights.**\
+`By Jonathan Swan`\
+https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/pence-urges-republican-senators-not-to-confirm-rfk-jr-citing-his-support-of-abortion-rights
+
+**What Donald Trump’s Team Picks Say About His Foreign Policy**\
+`The world has changed since Donald J. Trump’s last term as president. Mark Landler, the London bureau chief of The New York Times, describes what Mr. Trump’s choices so far say about his foreign policy ambitions.`\
+https://nytimes.com/video/us/politics/100000009820568/trump-foreign-policy.html
+
+**Vivek Ramaswamy Returns to Push His Plans to Decimate the Government**\
+`The wealthy entrepreneur, tapped by Donald Trump to co-lead an outside effort focused on “efficiency,” campaigned on an assertion that the president has the power to fire 75 percent of the federal work force.`\
+https://nytimes.com/2024/11/15/us/politics/vivek-ramaswamy-doge.html
+
 **Review: The Philharmonic Gives a Master Class in Programming**\
 `The composer John Adams led the New York Philharmonic in a program of contemporary works that didn’t make a big deal of contemporary music.`\
 https://nytimes.com/2024/11/15/arts/music/review-new-york-philharmonic-john-adams.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/11/15/dining/malort.html
 **Caramelized Squash With Cinnamon Toasted Nuts; Scalloped Potatoes With Horseradish**\
 `Thanksgiving rehearsals are underway, and they’re delicious.`\
 https://nytimes.com/2024/11/15/dining/get-ready-for-thanksgiving.html
-
-**Beware the Trifecta: History Shows Full Control of Government Is Fleeting**\
-`The last five presidents have all had periods where both the House and the Senate were in friendly hands — but most lasted just two years before the backlash set in.`\
-https://nytimes.com/2024/11/15/us/politics/republicans-full-control-government.html
-
-**More early overreactions: Darius Garland and KAT get physical; Hawks show flashes**\
-`Plus: Are the Nets too frisky for their own good?`\
-https://nytimes.com/athletic/5924458/2024/11/15/nba-overreactions-darius-garland-cavaliers-karl-anthony-towns/
-
-**Putin Talks With German Chancellor, Breaking Ice With the West**\
-`The hourlong call centered on what German officials said was a push to end the war in Ukraine. It was the first in two years between Mr. Putin and Chancellor Olaf Scholz.`\
-https://nytimes.com/2024/11/15/world/europe/scholz-putin-russia-germany-call.html
 
