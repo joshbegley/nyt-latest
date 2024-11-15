@@ -1,3 +1,7 @@
+**‘Emilia Pérez’ | Anatomy of a Scene**\
+`The director Jacques Audiard narrates a sequence from his film featuring Zoe Saldaña and Karla Sofía Gascón.`\
+https://nytimes.com/video/movies/100000009828358/emilia-perez-scene.html
+
 **Wild's Mats Zuccarello out 3 to 4 weeks after undergoing surgery**\
 `Coach John Hynes made clear Friday that Zuccarello's timetable is very much an estimate depending on his recovery from a tough injury.`\
 https://nytimes.com/athletic/5924921/2024/11/15/wild-mats-zuccarello-joel-eriksson-ek-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/us/politics/johnson-gaetz-ethics-report.html
 **7 New Songs You Should Hear Now**\
 `Catch up on the latest from Soccer Mommy, Haley Heynderickx, Tyler, the Creator and more.`\
 https://nytimes.com/2024/11/15/arts/music/amplifer-newsletter-new-songs.html
-
-**Carsley: I definitely didn't drop Kane, will start against Republic of Ireland**\
-`Lee Carsley has insisted that he &#8220;definitely didn&#8217;t drop&#8221; Harry Kane, and reiterated that England’s captain will return to the starting line-up against the Republic of Ireland on Sunday.`\
-https://nytimes.com/athletic/5924356/2024/11/15/lee-carsley-harry-kane/
 
