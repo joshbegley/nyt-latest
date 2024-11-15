@@ -1,3 +1,11 @@
+**Judge John Hodgman on Humorous Bathroom Signs**\
+`If you make the request funny, can you tell your guests how to use your toilet?`\
+https://nytimes.com/2024/11/15/magazine/judge-john-hodgman-on-humorous-bathroom-signs.html
+
+**Activists Sent to Prison for Pouring Powder Over Case Holding U.S. Constitution**\
+`One climate activist was sentenced to 18 months in prison, the other to two years. They said that they had meant to draw attention to climate change.`\
+https://nytimes.com/2024/11/15/us/constitution-red-powder-activists-sentenced.html
+
 **NBA considering tournament-style format for 2025 All-Star Game: Sources**\
 `The changes would be the league’s latest attempt to rejuvenate the All-Star Game, which has fallen flat over the last few seasons.`\
 https://nytimes.com/athletic/5925571/2024/11/15/nba-all-star-game-changes-tournament-style-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/15/briefing/gaetz-ethics-report-house-senate-nuclear
 **Three keys and a prediction for Notre Dame's senior day game vs. Virginia**\
 `Notre Dame has won its past six home finales by an average of 37.2 points. Can it continue that success against Virginia?`\
 https://nytimes.com/athletic/5925381/2024/11/15/notre-dame-football-virginia-preview/
-
-**Have You Ever Ghosted Somebody? We Want to Hear About It.**\
-`Tell us about your experience for a New York Times Magazine article about how we communicate in our dating lives and relationships.`\
-https://nytimes.com/2024/11/15/us/ghosting-dating-relationships.html
-
-**Trump Wants to Kill the E.V. Tax Credit. Here’s What to Know.**\
-`President-elect Donald J. Trump wants Congress to repeal a $7,500 electric vehicle tax credit. Doing so would hurt American automakers.`\
-https://nytimes.com/2024/11/15/climate/electric-vehicles-trump-tax-credit.html
 
