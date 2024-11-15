@@ -10,6 +10,10 @@ https://nytimes.com/2024/11/15/movies/international-movies-streaming.html
 `What does Miami need to correct against Indiana and going forward? Adebayo has an idea.`\
 https://nytimes.com/athletic/5924550/2024/11/15/bam-adebayo-heat-pacers-tyrese-haliburton/
 
+**NFL Week 11 fantasy football, betting cheat sheet: Trevor Lawrence remains out, LaPorta at risk of sitting**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more.`\
+https://nytimes.com/athletic/5917115/2024/11/15/nfl-week-11-fantasy-football-cheat-sheet-betting-injuries-weather/
+
 **The Rise of Malört, an Unexpected Midwest Princess**\
 `The divisive yet beloved liquor, once available only in Chicago, has gained devotees nationally. Can it retain its roots?`\
 https://nytimes.com/2024/11/15/dining/malort.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5924458/2024/11/15/nba-overreactions-darius-garland
 **Putin Talks With German Chancellor, Breaking Ice With the West**\
 `The hourlong call centered on what German officials said was a push to end the war in Ukraine. It was the first in two years between Mr. Putin and Chancellor Olaf Scholz.`\
 https://nytimes.com/2024/11/15/world/europe/scholz-putin-russia-germany-call.html
-
-**Don’t Blame Biden for Trump’s Victory**\
-`Readers respond to a guest essay by Josh Barro. Also: Elon Musk and America’s birthrate; a pharmacist’s view; the danger of extreme heat.`\
-https://nytimes.com/2024/11/15/opinion/biden-trump-election-blame.html
 
