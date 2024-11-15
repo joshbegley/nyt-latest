@@ -1,3 +1,7 @@
+**Review: Tammy Faye Was Over-the-Top. This Musical Makes Her Small.**\
+`“Tammy Faye,” a bland, tonal mishmash of a show opening on Broadway, seems afraid to lean into what made the televangelist so distinctive.`\
+https://nytimes.com/2024/11/14/theater/tammy-faye-review.html
+
 **Zuccarello and Eriksson Ek injured, but Wild shut out Habs: 3 takeaways**\
 `The Wild played most of the game without two of their top-six forwards but managed to dispatch the Canadiens thanks to Matt Boldy.`\
 https://nytimes.com/athletic/5923846/2024/11/14/wild-zuccarello-eriksson-ek-injury-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/14/world/americas/argentina-exit-climate-deal.html
 **Trump Picks Burgum for Interior Secretary**\
 `The North Dakota governor helped strengthen ties between the oil industry and President-elect Donald J. Trump.`\
 https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
-
-**Review: ‘King Lear,’ Faster and Less Furious**\
-`Kenneth Branagh’s production of the Shakespeare classic speeds through the material and can’t quite figure out its tone.`\
-https://nytimes.com/2024/11/14/theater/king-lear-review-kenneth-branagh.html
 
