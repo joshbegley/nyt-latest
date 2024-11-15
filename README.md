@@ -1,3 +1,7 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include coming-of-age stories from India, Italy, Canada, Switzerland and Poland, in which children and teens learn truths about adulthood the hard way.`\
+https://nytimes.com/2024/11/15/movies/international-movies-streaming.html
+
 **Heat Today: Bam Adebayo, rest of team eyes early solutions before facing Pacers**\
 `What does Miami need to correct against Indiana and going forward? Adebayo has an idea.`\
 https://nytimes.com/athletic/5924550/2024/11/15/bam-adebayo-heat-pacers-tyrese-haliburton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/arts/music/sophie-straat-amsterdam.html
 **What England need to do in their final group game to secure Nations League promotion**\
 `England's host the Republic of Ireland in their final Nations League group phase match on Sunday. These are the permutations...`\
 https://nytimes.com/athletic/5924576/2024/11/15/england-ireland-uefa-nations-league-game/
-
-**FIFA president Infantino’s name engraved on new CWC trophy**\
-`FIFA president Gianni Infantino&#8217;s name has been engraved on the new Club World Cup trophy.`\
-https://nytimes.com/athletic/5924557/2024/11/15/gianni-infantino-club-world-cup-trophy/
 
