@@ -1,3 +1,23 @@
+**The Bounce: Steph Curry shares his new all-time starting five**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5924372/2024/11/15/steph-curry-warriors-jaylen-brown-celtics-nba-the-bounce/
+
+**Both Right- and Left-Leaning Media Criticize Trump Elevating Matt Gaetz**\
+`President-elect Donald J. Trump selected Matt Gaetz, a former Florida congressman, as his attorney general, a pick that drew a rare bipartisan rebuke from both conservative and liberal media outlets.`\
+https://nytimes.com/2024/11/15/business/media/matt-gaetz-trump-media-coverage.html
+
+**NHL Power Rankings: Jets stay on top, Wild rise, plus our early MVPs**\
+`Here are our picks for each team’s MVP from the season's first quarter.`\
+https://nytimes.com/athletic/5924186/2024/11/15/nhl-power-rankings-jets-wild/
+
+**Why does Sebastian Aho feel like an afterthought for the Hurricanes?**\
+`Aho has totaled 14 points in 15 games, but his past suggests that his goal-scoring will pick up.`\
+https://nytimes.com/athletic/5924200/2024/11/15/sebastian-aho-hurricanes-goals-points/
+
+**Can Sam Darnold and the Vikings right the ship in Tennessee?**\
+`Will the Vikings quarterback avoid the turnovers that hobbled the offense last week? Or are we in for another slog against the AFC South?`\
+https://nytimes.com/athletic/5923644/2024/11/15/vikings-titans-preview-predictions-sam-darnold/
+
 **Scoop City: Outlook for NFL's 4 biggest disappointments**\
 `This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
 https://nytimes.com/athletic/5924608/2024/11/15/cowboys-jets-bears-bengals-scoop-city/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5924577/2024/11/15/penguins-owen-pickering-nhl-prom
 **How to Watch the Leonids Meteor Shower Peak This Weekend**\
 `The event produces some of the year’s fastest meteors, although the nearly full moon may make them challenging to spot.`\
 https://nytimes.com/2024/11/15/science/leonid-meteor-shower-how-to-watch.html
-
-**Seduced by a $190 Soap Dispenser**\
-`The ceramic vessel made by a former fashion designer has become the hit product at a new shop in Downtown Manhattan.`\
-https://nytimes.com/2024/11/15/style/soap-dispenser-gem-home-flynn-mcgarry.html
-
-**A Tiny Gladiator Uncovered in England Tells of the Reach of Roman Celebrity**\
-`A 2,000-year-old copper knife handle depicting a gladiator will go on display at Hadrian’s Wall, in the north of England, next year.`\
-https://nytimes.com/2024/11/15/world/europe/uk-roman-gladiator-knife-handle.html
-
-**Richard Price’s New Novel Is Full of Color but Short on Drama**\
-`“Lazarus Man” follows several characters in Harlem in the wake of a building collapse.`\
-https://nytimes.com/2024/11/15/books/review/richard-price-lazarus-man.html
-
-**Nuclear Power Was Once Shunned at Climate Talks. Now, It’s a Rising Star.**\
-`Growing worldwide energy demand and other factors have shifted the calculus, but hurdles still lie ahead.`\
-https://nytimes.com/2024/11/15/climate/cop29-climate-nuclear-power.html
-
-**What’s Your ‘Romeo and Juliet’ I.Q.?**\
-`Test your knowledge, for never was a quiz of more woe than this of Juliet and her Romeo.`\
-https://nytimes.com/interactive/2024/11/15/theater/romeo-juliet-shakespeare-broadway-quiz.html
 
