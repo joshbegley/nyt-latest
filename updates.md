@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr.’s Billion-Dollar Hit to Big Pharma**\
+`Donald Trump’s choice to run the Department of Health and Human Services spooked investors who worry what Kennedy would do.`\
+https://nytimes.com/2024/11/15/business/dealbook/trump-robert-f-kennedy-stocks.html
+
 **Here is the latest on the next administration.**\
 `By Michael Gold and Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/here-is-the-latest-on-the-next-administration

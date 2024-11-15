@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr.’s Billion-Dollar Hit to Big Pharma**\
+`Donald Trump’s choice to run the Department of Health and Human Services spooked investors who worry what Kennedy would do.`\
+https://nytimes.com/2024/11/15/business/dealbook/trump-robert-f-kennedy-stocks.html
+
 **Here is the latest on the next administration.**\
 `By Michael Gold and Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/here-is-the-latest-on-the-next-administration
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923770/2024/11/15/eagles-commanders-control-nfc-ea
 **Chiefs-Bills: How reporters approach one of the biggest NFL games of the year**\
 `What's different about covering a massive game like Chiefs-Bills? The Athletic's Kansas City and Buffalo beat reporters give their thoughts.`\
 https://nytimes.com/athletic/5916579/2024/11/15/chiefs-bills-nfl-reporters-big-game/
-
-**Ex-Man Utd Women midfielder says she cried in bathroom during training sessions**\
-`Former Manchester United Women midfielder Irene Guerrero says she cried in the bathroom during training sessions while at the club last season.`\
-https://nytimes.com/athletic/5924354/2024/11/15/irene-guerrero-man-utd-women/
 
