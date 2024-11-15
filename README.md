@@ -1,3 +1,12 @@
+**Senators' Linus Ullmark 'not his best' in OT loss to Flyers**\
+`Ullmark made 14 saves on 19 shots and the Senators lost 5-4 in overtime to the Flyers in a game that should have been theirs.
+`\
+https://nytimes.com/athletic/5923943/2024/11/14/senators-flyers-linus-ullmark/
+
+**Sabres overcome questionable goalie interference call to beat Blues: 3 takeaways**\
+`One particularly effective shift from Dylan Cozens helped spark the Sabres to a 4-3 overtime win.`\
+https://nytimes.com/athletic/5924063/2024/11/14/sabres-goalie-interference-cozens-blues/
+
 **Review: Tammy Faye Was Over-the-Top. This Musical Makes Her Small.**\
 `“Tammy Faye,” a bland, tonal mishmash of a show opening on Broadway, seems afraid to lean into what made the televangelist so distinctive.`\
 https://nytimes.com/2024/11/14/theater/tammy-faye-review.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5923895/2024/11/14/usmnt-jamaica-ricardo-pepi-matt-
 **You Might Use It to Walk the Dog**\
 `Alina Abidi opens our solving weekend with a very chatty puzzle.`\
 https://nytimes.com/2024/11/14/crosswords/daily-puzzle-2024-11-15.html
-
-**Argentina Mulls Exiting Paris Climate Deal**\
-`The South American nation says it is considering withdrawing from the landmark agreement, which aims to limit carbon emissions and slow global warming.`\
-https://nytimes.com/2024/11/14/world/americas/argentina-exit-climate-deal.html
-
-**Trump Picks Burgum for Interior Secretary**\
-`The North Dakota governor helped strengthen ties between the oil industry and President-elect Donald J. Trump.`\
-https://nytimes.com/2024/11/14/climate/trump-burgum-for-interior-secretary.html
 
