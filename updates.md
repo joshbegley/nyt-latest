@@ -1,3 +1,7 @@
+**The Chicago Bulls are scrappy and surprising — but are they too good for their own good?**\
+`Playing fast and hoisting lots of 3s, the Bulls are a tougher out than expected. But is it worth it to stay in the murky middle?`\
+https://nytimes.com/athletic/5922674/2024/11/15/chicago-bulls-nba-12-games-in/
+
 **How linebacker Nik Bonitto turned into jewel of Von Miller trade for Broncos**\
 `Bonitto is challenging to become the Broncos' first player with 10 sacks since Miller and Bradley Chubb did it in 2018`\
 https://nytimes.com/athletic/5922840/2024/11/15/broncos-nik-bonitto-linebacker-von-miller-trade/

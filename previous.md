@@ -1,3 +1,7 @@
+**The Chicago Bulls are scrappy and surprising — but are they too good for their own good?**\
+`Playing fast and hoisting lots of 3s, the Bulls are a tougher out than expected. But is it worth it to stay in the murky middle?`\
+https://nytimes.com/athletic/5922674/2024/11/15/chicago-bulls-nba-12-games-in/
+
 **How linebacker Nik Bonitto turned into jewel of Von Miller trade for Broncos**\
 `Bonitto is challenging to become the Broncos' first player with 10 sacks since Miller and Bradley Chubb did it in 2018`\
 https://nytimes.com/athletic/5922840/2024/11/15/broncos-nik-bonitto-linebacker-von-miller-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/podcasts/the-daily/bernie-sanders-democratic-part
 **How Kennedy Could ‘Go Wild on Health,’ and The Onion’s Infowars Bid**\
 `Plus, a dramatic rise in U.S. obesity.`\
 https://nytimes.com/2024/11/15/podcasts/kennedy-health-policy-onion-infowars.html
-
-**The 12 NFL teams that could have new starting quarterbacks in 2025**\
-`The Athletic's team of beat writers identifies which draft prospects and free agents could be behind center when next season opens.`\
-https://nytimes.com/athletic/5920425/2024/11/15/nfl-2025-quarterback-free-agents-draft/
 
