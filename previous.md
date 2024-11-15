@@ -1,3 +1,7 @@
+**Beware the Trifecta: History Shows Full Control of Government Is Fleeting**\
+`The last five presidents have all had periods where both the House and the Senate were in friendly hands — but most lasted just two years before the backlash set in.`\
+https://nytimes.com/2024/11/15/us/politics/republicans-full-control-government.html
+
 **More early overreactions: Darius Garland and KAT get physical; Hawks show flashes**\
 `Plus: Are the Nets too frisky for their own good?`\
 https://nytimes.com/athletic/5924458/2024/11/15/nba-overreactions-darius-garland-cavaliers-karl-anthony-towns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5924372/2024/11/15/steph-curry-warriors-jaylen-brow
 **Both Right- and Left-Leaning Media Criticize Trump Elevating Matt Gaetz**\
 `President-elect Donald J. Trump selected Matt Gaetz, a former Florida congressman, as his attorney general, a pick that drew a rare bipartisan rebuke from both conservative and liberal media outlets.`\
 https://nytimes.com/2024/11/15/business/media/matt-gaetz-trump-media-coverage.html
-
-**NHL Power Rankings: Jets stay on top, Wild rise, plus our early MVPs**\
-`Here are our picks for each team’s MVP from the season's first quarter.`\
-https://nytimes.com/athletic/5924186/2024/11/15/nhl-power-rankings-jets-wild/
 
