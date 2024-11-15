@@ -1,3 +1,7 @@
+**Georgia Poll Workers Defamed by Giuliani Receive Some of His Assets**\
+`A watch collection, a ring and a vintage Mercedes-Benz belonging to the former Trump lawyer were delivered nearly a year after he was ordered to pay $148 million to the workers he had spread lies about.`\
+https://nytimes.com/2024/11/15/us/politics/rudy-giuliani-georgia-poll-workers.html
+
 **Trump Names Karoline Leavitt as His White House Press Secretary**\
 `Ms. Leavitt, 27, served as his campaign’s press secretary and worked in the White House during his first administration.`\
 https://nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925370/2024/11/15/49ers-george-kittle-nick-bosa-tr
 **Government by Bro**\
 `The hyper-macho and online energy of the Trump campaign is now aimed at Washington.`\
 https://nytimes.com/2024/11/15/us/politics/trump-cabinet-picks-men.html
-
-**As Rams OL struggles with continuity, more changes could come in Week 11**\
-`The Rams travel to play New England on Sunday.`\
-https://nytimes.com/athletic/5925514/2024/11/15/rams-sean-mcvay-offensive-line-center/
 
