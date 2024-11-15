@@ -1,3 +1,15 @@
+**Ex-Man Utd Women midfielder says she cried in bathroom during training sessions**\
+`Former Manchester United Women midfielder Irene Guerrero says she cried in the bathroom during training sessions while at the club last season.`\
+https://nytimes.com/athletic/5924354/2024/11/15/irene-guerrero-man-utd-women/
+
+**The Athletic FC - Malacia: Truth behind ridiculous rumours, inside Real Madrid's injury crisis**\
+`Today in TAFC: Malacia on his injury nightmare and strange conspiracy theories, Real Madrid's injury nightmare explained, Ranieri is back.`\
+https://nytimes.com/athletic/5924269/2024/11/15/malacia-interview-conspiracy-theories-manchester-united/
+
+**The long and winding road that led USC to Jayden Maiava as its starting quarterback**\
+`Maiava was a three-star prospect in the 2022 recruiting cycle with only two FBS offers. Now, he's the starting QB at USC. `\
+https://nytimes.com/athletic/5923269/2024/11/15/jayden-maiava-usc-quarterback-lincoln-riley/
+
 **Lowetide: How Mattias Ekholm has been so valuable to the Oilers**\
 `Ekholm is once again playing big minutes and delivering elite results for Edmonton no matter the competition.`\
 https://nytimes.com/athletic/5922198/2024/11/15/mattias-ekholm-oilers-value/
