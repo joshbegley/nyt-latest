@@ -1,3 +1,11 @@
+**Four-star Kiyan Anthony, son of Carmelo Anthony, commits to Syracuse**\
+`Anthony is the No. 32 player in the 2025 recruiting class.`\
+https://nytimes.com/athletic/5925608/2024/11/15/kiyan-anthony-commits-syracuse/
+
+**5 Takeaways From Bernie Sanders’s Interview on ‘The Daily’**\
+`“There was no appreciation — no appreciation — of the struggling and the suffering of millions and millions of working-class people,” the senator said.`\
+https://nytimes.com/2024/11/15/podcasts/bernie-sanders-democratic-party-daily.html
+
 **49ers' Kittle, Bosa, Williams questionable vs. Seahawks**\
 `Of the three high-profile 49ers questionable for Sunday, Trent Williams seems the most iffy.`\
 https://nytimes.com/athletic/5925370/2024/11/15/49ers-george-kittle-nick-bosa-trent-williams-seahawks/
