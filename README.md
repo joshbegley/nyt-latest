@@ -1,3 +1,7 @@
+**Burgum Will Be Trump’s ‘Energy Czar’**\
+`The North Dakota governor, who helped strengthen ties between the oil industry and President-elect Donald J. Trump, will do double duty as Interior secretary.`\
+https://nytimes.com/2024/11/15/climate/burgum-trump-energy-czar.html
+
 **Iran Told U.S. That It’s Not Trying to Kill Trump**\
 `The Biden administration had warned that the United States would consider any Iranian attempt on Mr. Trump’s life to be “an act of war,” officials said.`\
 https://nytimes.com/2024/11/15/world/middleeast/iran-trump-assassinate.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/15/us/trump-cabinet-live-updates/colorados-demo
 **Can I Lie About My Academic Interests on My College Application?**\
 `The magazine’s Ethicist columnist on conveying the truth on a pivotal form.`\
 https://nytimes.com/2024/11/15/magazine/academic-interests-college-application-ethics.html
-
-**Republicans Are Leaving Office for Trump Posts. How Will the Vacancies Be Filled?**\
-`The president-elect has selected several allies in Congress, along with a current governor, to join his administration.`\
-https://nytimes.com/2024/11/15/us/politics/how-the-trump-vacancies-will-be-filled.html
 
