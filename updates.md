@@ -1,3 +1,7 @@
+**Connor McDavid becomes fourth fastest player to reach 1,000 NHL points**\
+`McDavid has solidified his status as one of the most prolific offensive producers in NHL history.`\
+https://nytimes.com/athletic/5920427/2024/11/14/connor-mcdavid-1000-points-oilers-stats/
+
 **USMNT 1, Jamaica 0: Pepi, Turner help U.S. secure win in Jamaica**\
 `U.S. heads into second leg against Jamaica with a goal advantage `\
 https://nytimes.com/athletic/5923895/2024/11/14/usmnt-jamaica-ricardo-pepi-matt-turner/
