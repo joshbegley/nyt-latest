@@ -1,3 +1,7 @@
+**Thomas E. Kurtz, a Creator of BASIC Computer Language, Dies at 96**\
+`At Dartmouth, long before the days of laptops and smartphones, he worked to give more students access to computers. That work helped propel generations into a new world.`\
+https://nytimes.com/2024/11/16/technology/thomas-kurtz-dead.html
+
 **Ex-Officer Took Nude Images From Women’s Phones in Traffic Stops, U.S. Says**\
 `In an unrelated case also in Missouri, a former state trooper was charged with searching the phones of female drivers to acquire explicit images.`\
 https://nytimes.com/2024/11/16/us/missouri-police-nude-photos-traffic-stops.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/arts/music/sean-combs-diddy-accused-witnesses-jai
 **Patriots activate Christian Barmore to make season debut vs. Rams**\
 `The Patriots activated Barmore, arguably their best overall player, from the league’s non-football illness list on Saturday.`\
 https://nytimes.com/athletic/5926147/2024/11/16/christian-barmore-activated-patriots/
-
-**Trump Relished, and Rewarded, Kennedy’s Endorsement. Did It Matter?**\
-`In the backing of Robert F. Kennedy Jr., Donald J. Trump found the kind of name-brand validation he covets. But polls suggest Mr. Kennedy’s supporters didn’t race to the ballot box.`\
-https://nytimes.com/2024/11/16/us/politics/trump-kennedy-health.html
 
