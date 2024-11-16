@@ -1,3 +1,7 @@
+**Trump Names Karoline Leavitt as His White House Press Secretary**\
+`Ms. Leavitt, 27, who served as his campaign’s press secretary and worked in the White House during his first administration, will be the youngest person ever to assume the role.`\
+https://nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html
+
 **Georgia Poll Workers Defamed by Giuliani Receive Some of His Assets**\
 `A watch collection, a ring and a vintage Mercedes-Benz belonging to the former Trump lawyer were delivered nearly a year after he was ordered to pay $148 million to the workers he had spread lies about.`\
 https://nytimes.com/2024/11/15/us/politics/rudy-giuliani-georgia-poll-workers.html
