@@ -1,3 +1,7 @@
+**Indiana nearly doubles Curt Cignetti's salary in new contract through 2023**\
+`After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
+https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
+
 **A Palestinian Refugee Becomes a Jewish Israeli in This Novel**\
 `Elias Khoury’s “Children of the Ghetto” series continues with a young man switching identities in a society seeking to erase him.`\
 https://nytimes.com/2024/11/16/books/review/elias-khoury-star-of-the-sea.html

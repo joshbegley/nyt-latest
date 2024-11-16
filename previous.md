@@ -1,3 +1,7 @@
+**Indiana nearly doubles Curt Cignetti's salary in new contract through 2023**\
+`After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
+https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
+
 **A Palestinian Refugee Becomes a Jewish Israeli in This Novel**\
 `Elias Khoury’s “Children of the Ghetto” series continues with a young man switching identities in a society seeking to erase him.`\
 https://nytimes.com/2024/11/16/books/review/elias-khoury-star-of-the-sea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/books/read-like-wind-recommendations.html
 **Anthony Edwards' greatness is one reason for optimism in Timberwolves' slow start**\
 `A potentially catastrophic road loss was avoided after Minnesota led by 20 points in the third quarter against the Kings.`\
 https://nytimes.com/athletic/5921693/2024/11/16/anthony-edwards-greatness-timberwolves-slow-start/
-
-**Why Women Find Watching True Crime Comforting**\
-`It’s a black and white moral universe where victims get justice.`\
-https://nytimes.com/2024/11/16/opinion/women-true-crime-victims.html
 
