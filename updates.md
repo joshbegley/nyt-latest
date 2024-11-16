@@ -1,3 +1,7 @@
+**Prosecutors Accuse Sean Combs of Trying to Contact Witnesses From Jail**\
+`The government said the music mogul had been attempting to obstruct federal prosecutors by instructing others to make three-way calls and securing help from other inmates.`\
+https://nytimes.com/2024/11/16/arts/music/sean-combs-diddy-accused-witnesses-jail.html
+
 **Patriots activate Christian Barmore to make season debut vs. Rams**\
 `The Patriots activated Barmore, arguably their best overall player, from the league’s non-football illness list on Saturday.`\
 https://nytimes.com/athletic/5926147/2024/11/16/christian-barmore-activated-patriots/
