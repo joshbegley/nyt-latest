@@ -1,3 +1,7 @@
+**China Hit Again With Fatal Violence as at Least 8 Die in Stabbing**\
+`Another 17 people were injured in the attack, in the eastern Chinese city of Wuxi, the police said. The stabbing took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
+https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
+
 **Kane says England players know team culture can be lost if they are 'not careful'**\
 `Harry Kane has said that England’s senior players know that the team culture can be lost quickly if they are “not careful”.`\
 https://nytimes.com/athletic/5926128/2024/11/16/harry-kane-england-team-culture/
