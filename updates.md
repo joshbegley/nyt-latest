@@ -1,3 +1,7 @@
+**Alabama takeaways: Defense extends turnover streak, freshmen continue to star**\
+`The No. 10 Crimson Tide are 8-2 on the season with a road trip to Oklahoma next week before closing the regular season against Auburn.`\
+https://nytimes.com/athletic/5926399/2024/11/16/alabama-football-mercer-takeaways-result/
+
 **Tuchel will bring 'injection of energy' to England role - Kane**\
 `Harry Kane expects Thomas Tuchel to be a “real injection of energy” when he takes over as England head coach next year.`\
 https://nytimes.com/athletic/5926176/2024/11/16/thomas-tuchel-england-manager-harry-kane/
