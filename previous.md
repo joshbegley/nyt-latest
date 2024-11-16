@@ -1,3 +1,11 @@
+**Bill Belichick wants to return as NFL coach in 2025**\
+`“Coaching is in his blood. He wants this,” a person close to Belichick told The Athletic over text.`\
+https://nytimes.com/athletic/5926050/2024/11/16/bill-belichick-nfl-coach-return-2025/
+
+**So-Good, Can’t-Miss NYT Cooking Thanksgiving Classics**\
+`Beginning with Julia Moskin’s five-star, truly easy creamy macaroni and cheese.`\
+https://nytimes.com/2024/11/16/dining/easy-mac-and-cheese-thanksgiving-classics.html
+
 **Bayern's Grohs sidelined indefinitely after cancer diagnosis**\
 `Bayern Munich Women goalkeeper Maria Luisa &#8216;Mala&#8217; Grohs has been diagnosed with a malignant tumour.`\
 https://nytimes.com/athletic/5926032/2024/11/16/mala-grohs-cancer-bayern-munich/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/16/books/review/elias-khoury-star-of-the-sea.html
 **Cade Cunningham, defense are difference as Pistons improve to 2-0 in NBA Cup**\
 `Beasley scored 20 points and the Pistons limited the Raptors to 7-of-25 shooting and 1 of 9 on 3-pointers for 17 points in the fourth.`\
 https://nytimes.com/athletic/5925856/2024/11/16/pistons-raptors-nba-cup/
-
-**Confident Anthony Davis 'just letting it fly' helps lead Lakers past Spurs in NBA Cup opener**\
-`Davis coined "'ooter" as shorthand for "shooter." After scoring 40 vs. the Spurs, "'ooter" was a buzzword in the Lakers locker room again.`\
-https://nytimes.com/athletic/5925833/2024/11/16/anthony-davis-lebron-james-lakers-spurs/
-
-**Here is the latest on the next administration.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/us/trump-live-updates/here-is-the-latest-on-the-next-administration
 
