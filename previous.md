@@ -10,6 +10,10 @@ https://nytimes.com/2024/11/16/opinion/rfk-jr-health-secretary-trump.html
 `Who’s taking Melania’s place at Trump’s side?`\
 https://nytimes.com/2024/11/16/opinion/trump-cabinet-musk.html
 
+**Who’s the fastest-rising prospect in each NHL team’s pipeline?**\
+`From top picks ready to make the leap to hidden gems ready for a bigger chance, here's each NHL team's fastest-rising prospect.`\
+https://nytimes.com/athletic/5921369/2024/11/16/nhl-prospects-pipeline-top-risers-player-stars/
+
 **I’m 16. On Nov. 5 the Girls Cried, and the Boys Played Minecraft.**\
 `On the day after the election, it seemed boys and girls woke to a new reality.`\
 https://nytimes.com/2024/11/16/opinion/donald-trump-women-girls.html
@@ -33,9 +37,4 @@ https://nytimes.com/2024/11/16/briefing/satisfying-vs-productive.html
 **Mexico coach Aguirre struck by projectile, bloodied after Honduras game**\
 `The incident happened shortly after full time at the match at Estadio Francisco Morazan, which Honduras won 2-0.`\
 https://nytimes.com/athletic/5925948/2024/11/16/javier-aguirre-mexico-honduras/
-
-**Russo: It's been a terrific start for the Wild, but it's about time they beat the Stars**\
-`The Wild's matchup against the Stars will be a true test to see if they’re on par with one of the top teams in the West.
-`\
-https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
 
