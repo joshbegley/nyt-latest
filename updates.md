@@ -1,3 +1,11 @@
+**Mike Tyson and Netflix Are Sluggish During a Hyped Fight**\
+`Tyson looked slow and unsteady in a dull loss to Jake Paul. For many, Netflix’s latest live programming was hindered by buffering.`\
+https://nytimes.com/2024/11/16/arts/television/jake-paul-wins-mike-tyson-fight-netflix.html
+
+**Bullet Hits Southwest Plane at Dallas Love Field Airport**\
+`No injuries were reported, and the aircraft safely returned to the terminal.`\
+https://nytimes.com/2024/11/16/us/dallas-southwest-plane-bullet.html
+
 **De'Aaron Fox scores 60 in thrilling OT loss vs. Minnesota Timberwolves**\
 `The Timberwolves snapped a three-game losing skid and will face the Phoenix Suns on Sunday.`\
 https://nytimes.com/athletic/5925887/2024/11/16/deaaron-fox-career-high-points-kings-timberwolves/

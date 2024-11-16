@@ -1,3 +1,11 @@
+**Mike Tyson and Netflix Are Sluggish During a Hyped Fight**\
+`Tyson looked slow and unsteady in a dull loss to Jake Paul. For many, Netflix’s latest live programming was hindered by buffering.`\
+https://nytimes.com/2024/11/16/arts/television/jake-paul-wins-mike-tyson-fight-netflix.html
+
+**Bullet Hits Southwest Plane at Dallas Love Field Airport**\
+`No injuries were reported, and the aircraft safely returned to the terminal.`\
+https://nytimes.com/2024/11/16/us/dallas-southwest-plane-bullet.html
+
 **De'Aaron Fox scores 60 in thrilling OT loss vs. Minnesota Timberwolves**\
 `The Timberwolves snapped a three-game losing skid and will face the Phoenix Suns on Sunday.`\
 https://nytimes.com/athletic/5925887/2024/11/16/deaaron-fox-career-high-points-kings-timberwolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5925028/2024/11/16/13-insights-fantasy-football-wee
 **Leeds United Women and the 'crazy' battle for promotion: 'This is a perfect time to go to Elland Road'**\
 `What it means for Leeds' women's team to play at Elland Road for the first time in over two years as they bid to go up to the third division`\
 https://nytimes.com/athletic/5914308/2024/11/16/leeds-united-women-elland-road/
-
-**North Korea Deploys a New Weapon Against the South: Unbearable Noise**\
-`Relations between the neighbors have sunk to the lowest level in years. Now, Pyongyang is blaring eerie sounds across the border that villagers say is making their lives hell.`\
-https://nytimes.com/2024/11/16/world/asia/north-korea-noise-weapon.html
-
-**As Xi and Biden Meet, Trump and Uncertainty Loom Large**\
-`The two leaders will meet in Peru, where China has steadily expanded its influence in a challenge to the United States in its own region.`\
-https://nytimes.com/2024/11/16/world/asia/biden-xi-china-trump.html
 
