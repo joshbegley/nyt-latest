@@ -1,3 +1,11 @@
+**Nico Iamaleava cleared to play for Tennessee vs. Georgia**\
+`The redshirt freshman has thrown for 1,879 yards and 11 touchdowns with four interceptions in nine games.`\
+https://nytimes.com/athletic/5925763/2024/11/15/tennessee-nico-iamaleava-available-georgia/
+
+**Corrections: Nov. 16, 2024**\
+`Corrections that appeared in print on Saturday, Nov. 16, 2024.`\
+https://nytimes.com/2024/11/15/pageoneplus/corrections-nov-16-2024.html
+
 **Golden Holds Off Challenge in Maine, Denying House G.O.P. a Key Pickup**\
 `Representative Jared Golden, a three-term Democrat, defeated Austin Theriault, a former NASCAR driver, in one of a handful of districts held by Democrats that Donald J. Trump won in 2020.`\
 https://nytimes.com/2024/11/15/us/elections/maine-house-golden-theriault.html

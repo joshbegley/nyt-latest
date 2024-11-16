@@ -1,3 +1,11 @@
+**Nico Iamaleava cleared to play for Tennessee vs. Georgia**\
+`The redshirt freshman has thrown for 1,879 yards and 11 touchdowns with four interceptions in nine games.`\
+https://nytimes.com/athletic/5925763/2024/11/15/tennessee-nico-iamaleava-available-georgia/
+
+**Corrections: Nov. 16, 2024**\
+`Corrections that appeared in print on Saturday, Nov. 16, 2024.`\
+https://nytimes.com/2024/11/15/pageoneplus/corrections-nov-16-2024.html
+
 **Golden Holds Off Challenge in Maine, Denying House G.O.P. a Key Pickup**\
 `Representative Jared Golden, a three-term Democrat, defeated Austin Theriault, a former NASCAR driver, in one of a handful of districts held by Democrats that Donald J. Trump won in 2020.`\
 https://nytimes.com/2024/11/15/us/elections/maine-house-golden-theriault.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5925539/2024/11/15/sue-bird-sylvia-fowles-hall-of-f
 **Ex-N.F.L. Linebacker Hit and Pushed Police During Jan. 6 Riot, U.S. Says**\
 `Antwione Williams, who played a season with the Detroit Lions, is charged with assaulting officers at the U.S. Capitol.`\
 https://nytimes.com/2024/11/15/us/antwione-williams-jan-6-arrested.html
-
-**Four-star Kiyan Anthony, son of Carmelo Anthony, commits to Syracuse**\
-`Anthony is the No. 32 player in the 2025 recruiting class.`\
-https://nytimes.com/athletic/5925608/2024/11/15/kiyan-anthony-commits-syracuse/
-
-**5 Takeaways From Bernie Sanders’s Interview on ‘The Daily’**\
-`“There was no appreciation — no appreciation — of the struggling and the suffering of millions and millions of working-class people,” the senator said.`\
-https://nytimes.com/2024/11/15/podcasts/bernie-sanders-democratic-party-daily.html
 
