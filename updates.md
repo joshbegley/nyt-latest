@@ -1,3 +1,7 @@
+**Lyon owner Textor insists 'no chance' French side will be relegated**\
+`Lyon’s American owner John Textor has insisted there is “no chance” the French side will be relegated from Ligue 1.`\
+https://nytimes.com/athletic/5926036/2024/11/16/john-textor-lyon-relegation/
+
 **Both teams suing NASCAR will race in 2025**\
 `While it seemed the likely outcome, the teams can reassure their drivers and sponsors they’ll still compete as the lawsuit continues.`\
 https://nytimes.com/athletic/5925996/2024/11/16/nascar-23xi-racing-front-row-motorsports-antitrust-lawsuit-update/
