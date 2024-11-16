@@ -1,3 +1,7 @@
+**India Hospital Fire Kills 10 Newborn Babies**\
+`The deadly episode was reportedly caused by a short circuit. Hospital fires are not uncommon in India, which lags in fire preparedness and building safety.`\
+https://nytimes.com/2024/11/16/world/asia/babies-killed-india-hospital-fire.html
+
 **How a Park Avenue Doorman (and Salsa Dancer) Spends His Sundays**\
 `Stephen Bruno, who wrote a book about his life as a doorman, helps people head to brunch, then gets ready for a day of religious worship and a night of dancing.`\
 https://nytimes.com/2024/11/16/nyregion/stephen-bruno-park-avenue-doorman.html

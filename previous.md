@@ -1,3 +1,7 @@
+**India Hospital Fire Kills 10 Newborn Babies**\
+`The deadly episode was reportedly caused by a short circuit. Hospital fires are not uncommon in India, which lags in fire preparedness and building safety.`\
+https://nytimes.com/2024/11/16/world/asia/babies-killed-india-hospital-fire.html
+
 **How a Park Avenue Doorman (and Salsa Dancer) Spends His Sundays**\
 `Stephen Bruno, who wrote a book about his life as a doorman, helps people head to brunch, then gets ready for a day of religious worship and a night of dancing.`\
 https://nytimes.com/2024/11/16/nyregion/stephen-bruno-park-avenue-doorman.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/business/media/netflix-outage-crash-boxing.html
 **Lucas Paqueta's drop in form, the assumed cause, and whether he can find a way back**\
 `The Brazilian is unplayable on his day, but that has only happened fleetingly this year. He’s an asset, but one that has dropped in value`\
 https://nytimes.com/athletic/5924320/2024/11/16/lucas-paqueta-west-ham-form/
-
-**Four women runners brutally killed in Kenya: 'It’s no longer safe for any athlete'**\
-`Four female runners lost their lives in brutal attacks after financial disputes with partners. What is being done to keep athletes safe?`\
-https://nytimes.com/athletic/5915075/2024/11/16/olympics-athletes-kenya-cheptegei/
 
