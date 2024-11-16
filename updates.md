@@ -1,3 +1,7 @@
+**Trump Relished, and Rewarded, Kennedy’s Endorsement. Did It Matter?**\
+`In the backing of Robert F. Kennedy Jr., Donald J. Trump found the kind of name-brand validation he covets. But polls suggest Mr. Kennedy’s supporters didn’t race to the ballot box.`\
+https://nytimes.com/2024/11/16/us/politics/trump-kennedy-health.html
+
 **China Hit Again With Fatal Violence as at Least 8 Die in Stabbing**\
 `Another 17 people were injured in the attack, in the eastern Chinese city of Wuxi, the police said. The stabbing took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
 https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
