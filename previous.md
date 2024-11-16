@@ -1,3 +1,7 @@
+**Anthony Edwards' greatness is one reason for optimism in Timberwolves' slow start**\
+`A potentially catastrophic road loss was avoided after Minnesota led by 20 points in the third quarter against the Kings.`\
+https://nytimes.com/athletic/5921693/2024/11/16/anthony-edwards-greatness-timberwolves-slow-start/
+
 **Why Women Find Watching True Crime Comforting**\
 `It’s a black and white moral universe where victims get justice.`\
 https://nytimes.com/2024/11/16/opinion/women-true-crime-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/opinion/educated-2024-election.html
 **Satisfying vs. Productive**\
 `Weekends are, ostensibly, for relaxation. But the impulse to make every moment productive can make guilt-free leisure a challenge.`\
 https://nytimes.com/2024/11/16/briefing/satisfying-vs-productive.html
-
-**Mexico coach Aguirre struck by projectile, bloodied after Honduras game**\
-`The incident happened shortly after full time at the match at Estadio Francisco Morazan, which Honduras won 2-0.`\
-https://nytimes.com/athletic/5925948/2024/11/16/javier-aguirre-mexico-honduras/
 

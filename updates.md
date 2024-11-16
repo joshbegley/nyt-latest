@@ -1,3 +1,7 @@
+**Anthony Edwards' greatness is one reason for optimism in Timberwolves' slow start**\
+`A potentially catastrophic road loss was avoided after Minnesota led by 20 points in the third quarter against the Kings.`\
+https://nytimes.com/athletic/5921693/2024/11/16/anthony-edwards-greatness-timberwolves-slow-start/
+
 **Who’s the fastest-rising prospect in each NHL team’s pipeline?**\
 `From top picks ready to make the leap to hidden gems ready for a bigger chance, here's each NHL team's fastest-rising prospect.`\
 https://nytimes.com/athletic/5921369/2024/11/16/nhl-prospects-pipeline-top-risers-player-stars/
