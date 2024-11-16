@@ -1,3 +1,7 @@
+**Cade Cunningham, defense are difference as Pistons improve to 2-0 in NBA Cup**\
+`Beasley scored 20 points and the Pistons limited the Raptors to 7-of-25 shooting and 1 of 9 on 3-pointers for 17 points in the fourth.`\
+https://nytimes.com/athletic/5925856/2024/11/16/pistons-raptors-nba-cup/
+
 **Confident Anthony Davis 'just letting it fly' helps lead Lakers past Spurs in NBA Cup opener**\
 `Davis coined "'ooter" as shorthand for "shooter." After scoring 40 vs. the Spurs, "'ooter" was a buzzword in the Lakers locker room again.`\
 https://nytimes.com/athletic/5925833/2024/11/16/anthony-davis-lebron-james-lakers-spurs/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5921693/2024/11/16/anthony-edwards-greatness-timber
 `It’s a black and white moral universe where victims get justice.`\
 https://nytimes.com/2024/11/16/opinion/women-true-crime-victims.html
 
-**Robert F. Kennedy Jr. Could Do Almost Limitless Harm**\
-`Our public health system is imperfect, but it’s also a miracle that can be easily broken.`\
+**How Robert F. Kennedy Jr. Could Destroy One of Civilization’s Best Achievements**\
+`Let’s not make child mortality great again.`\
 https://nytimes.com/2024/11/16/opinion/rfk-jr-health-secretary-trump.html
-
-**Trump’s New Cologne: Eau de Musk**\
-`Who’s taking Melania’s place at Trump’s side?`\
-https://nytimes.com/2024/11/16/opinion/trump-cabinet-musk.html
 
