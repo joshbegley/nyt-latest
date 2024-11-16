@@ -1,3 +1,7 @@
+**Biden’s Policies Offer a Starting Point for Trump’s Border Crackdown**\
+`Mr. Trump has criticized the Biden administration for what he calls its lax handling of the border — but it has left him with tools he can use to shut down the border.`\
+https://nytimes.com/2024/11/16/us/politics/biden-trump-border-crackdown.html
+
 **Bucks, Doc Rivers livid after controversial call in loss to Hornets**\
 `Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte. `\
 https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul-video/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926392/2024/11/16/bruins-blues-offense-trent-frede
 **Alabama takeaways: Defense extends turnover streak, freshmen continue to star**\
 `The No. 10 Crimson Tide are 8-2 on the season with a road trip to Oklahoma next week before closing the regular season against Auburn.`\
 https://nytimes.com/athletic/5926399/2024/11/16/alabama-football-mercer-takeaways-result/
-
-**Tuchel will bring 'injection of energy' to England role - Kane**\
-`Harry Kane expects Thomas Tuchel to be a “real injection of energy” when he takes over as England head coach next year.`\
-https://nytimes.com/athletic/5926176/2024/11/16/thomas-tuchel-england-manager-harry-kane/
 

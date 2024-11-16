@@ -1,3 +1,7 @@
+**Biden’s Policies Offer a Starting Point for Trump’s Border Crackdown**\
+`Mr. Trump has criticized the Biden administration for what he calls its lax handling of the border — but it has left him with tools he can use to shut down the border.`\
+https://nytimes.com/2024/11/16/us/politics/biden-trump-border-crackdown.html
+
 **Bucks, Doc Rivers livid after controversial call in loss to Hornets**\
 `Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte. `\
 https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul-video/
