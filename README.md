@@ -1,3 +1,7 @@
+**Eight People Killed in Stabbing in China, Police Say**\
+`Another 17 people were injured in the attack, in the eastern Chinese city of Wuxi, the police said. The stabbing took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
+https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
+
 **Charlotte's Swiderski misses Poland game due to teamsheet error**\
 `Charlotte FC striker Karol Swiderski was denied the opportunity to play for Poland in Friday&#8217;s Nations League defeat to Portugal due to a &#8220;human error&#8221; regarding the team sheet.`\
 https://nytimes.com/athletic/5926085/2024/11/16/karol-swiderski-poland-portugal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
 **Russini’s what I’m hearing: This NFL coach hiring cycle is going to be huge**\
 `The latest on Belichick, Vrabel and Deion. Plus, Jets in limbo, Daniel Jones’ future, what the QB flip-flop means for Colts, and more.`\
 https://nytimes.com/athletic/5925832/2024/11/16/nfl-coach-hiring-cycle-belichick-vrabel-deion-sanders/
-
-**Indiana to pay coach Curt Cignetti $8 million per year in new contract through 2032**\
-`After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
-https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
 
