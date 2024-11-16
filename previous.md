@@ -1,3 +1,7 @@
+**Katie Taylor wins controversial rematch with Amanda Serrano**\
+`Taylor’s combinations came to life in the final four rounds, much like she did in the pair’s first bout, to pull off another comeback.`\
+https://nytimes.com/athletic/5925791/2024/11/15/katie-taylor-amanda-serrano-womens-boxing-results/
+
 **Yohe's 10 observations: Penguins' season on the brink after loss in Columbus**\
 `The Penguins are 6-10-3 and are only 3 points away from being at the bottom of the NHL standings.`\
 https://nytimes.com/athletic/5925773/2024/11/15/penguins-blue-jackets-season-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/us/politics/rudy-giuliani-georgia-poll-workers.ht
 **Trump Names Karoline Leavitt as His White House Press Secretary**\
 `Ms. Leavitt, 27, who served as his campaign’s press secretary and worked in the White House during his first administration, will be the youngest person ever to assume the role.`\
 https://nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html
-
-**Former Reds manager David Bell joins Blue Jays' front office**\
-`Bell will serve as Toronto's vice president of baseball operations and assistant general manager after six seasons managing the Reds.`\
-https://nytimes.com/athletic/5925700/2024/11/15/david-bell-blue-jays-front-office/
 

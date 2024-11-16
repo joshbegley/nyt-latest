@@ -1,3 +1,7 @@
+**Katie Taylor wins controversial rematch with Amanda Serrano**\
+`Taylor’s combinations came to life in the final four rounds, much like she did in the pair’s first bout, to pull off another comeback.`\
+https://nytimes.com/athletic/5925791/2024/11/15/katie-taylor-amanda-serrano-womens-boxing-results/
+
 **Yohe's 10 observations: Penguins' season on the brink after loss in Columbus**\
 `The Penguins are 6-10-3 and are only 3 points away from being at the bottom of the NHL standings.`\
 https://nytimes.com/athletic/5925773/2024/11/15/penguins-blue-jackets-season-loss/
