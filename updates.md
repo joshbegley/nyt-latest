@@ -1,3 +1,7 @@
+**Thomas E. Kurtz, a Creator of BASIC Computer Language, Dies at 96**\
+`At Dartmouth, long before the days of laptops and smartphones, he worked to give more students access to computers. That work helped propel generations into a new world.`\
+https://nytimes.com/2024/11/16/technology/thomas-kurtz-dead.html
+
 **Ex-Officer Took Nude Images From Women’s Phones in Traffic Stops, U.S. Says**\
 `In an unrelated case also in Missouri, a former state trooper was charged with searching the phones of female drivers to acquire explicit images.`\
 https://nytimes.com/2024/11/16/us/missouri-police-nude-photos-traffic-stops.html
