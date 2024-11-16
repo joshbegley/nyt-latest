@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-bro
 `\
 https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
 
+**Russo: It's been a terrific start for the Wild, but it's about time they beat the Stars**\
+`The Wild's matchup against the Stars will be a true test to see if they’re on par with one of the top teams in the West.
+`\
+https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
+
 **Prolonged scoring slump looms over Connor Bedard's Vancouver homecoming**\
 `Bedard is playing better hockey this season than as a rookie but is struggling to do the thing that is supposed to come easy to him — score.`\
 https://nytimes.com/athletic/5925658/2024/11/16/blackhawks-canucks-connor-bedard-goals/
