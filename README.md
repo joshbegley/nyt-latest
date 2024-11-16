@@ -1,3 +1,7 @@
+**Prosecutors Accuse Sean Combs of Trying to Contact Witnesses From Jail**\
+`The government said the music mogul had been attempting to obstruct federal prosecutors by instructing others to make three-way calls and securing help from other inmates.`\
+https://nytimes.com/2024/11/16/arts/music/sean-combs-diddy-accused-witnesses-jail.html
+
 **Patriots activate Christian Barmore to make season debut vs. Rams**\
 `The Patriots activated Barmore, arguably their best overall player, from the league’s non-football illness list on Saturday.`\
 https://nytimes.com/athletic/5926147/2024/11/16/christian-barmore-activated-patriots/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/dining/easy-mac-and-cheese-thanksgiving-classics.
 **Bayern's Grohs sidelined indefinitely after cancer diagnosis**\
 `Bayern Munich Women goalkeeper Maria Luisa &#8216;Mala&#8217; Grohs has been diagnosed with a malignant tumour.`\
 https://nytimes.com/athletic/5926032/2024/11/16/mala-grohs-cancer-bayern-munich/
-
-**Lyon owner Textor insists 'no chance' French side will be relegated**\
-`Lyon’s American owner John Textor has insisted there is “no chance” the French side will be relegated from Ligue 1.`\
-https://nytimes.com/athletic/5926036/2024/11/16/john-textor-lyon-relegation/
 
