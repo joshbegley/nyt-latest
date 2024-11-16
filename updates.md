@@ -1,3 +1,11 @@
+**Bitter Infighting Divides Anti-Putin Opposition**\
+`Accusations of betrayal have already tarnished the movement once led by Aleksei Navalny. Now, the election of Donald J. Trump, a Putin admirer, further complicates the opposition efforts.`\
+https://nytimes.com/2024/11/16/world/europe/navalny-russia-opposition-divided.html
+
+**Democrats Land at Climate Talks With a Message: Don’t Panic**\
+`American officials are seeking to assure the world that U.S. climate action won’t end with the return of Donald Trump as president.`\
+https://nytimes.com/2024/11/16/climate/democrats-cop29-baku-climate.html
+
 **The Doctor Who Helped Me Understand My Mom’s Choice to Die**\
 `Dr. Ellen Wiebe, who has performed hundreds of medical aid in dying (or MAID) procedures, discusses what constitutes a good death.`\
 https://nytimes.com/2024/11/16/magazine/doctor-ellen-wiebe-maid-interview.html
