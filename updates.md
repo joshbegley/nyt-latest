@@ -1,3 +1,7 @@
+**What are the Rangers' next steps with Filip Chytil's uncertain status?**\
+`As concern grows about Chytil's future even without a long-term diagnosis, the Rangers might need to start thinking about filling his spot.`\
+https://nytimes.com/athletic/5926167/2024/11/16/rangers-filip-chytil-injury-status/
+
 **Trump’s Cabinet Picks, Panned in Washington, Thrill Many of His Voters**\
 `Where Donald J. Trump’s critics see underqualified nominees with questionable judgment, his voters described them as mavericks recruited to shake up Washington.`\
 https://nytimes.com/2024/11/16/us/trump-cabinet-picks-voter-reactions.html

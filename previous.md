@@ -1,3 +1,7 @@
+**What are the Rangers' next steps with Filip Chytil's uncertain status?**\
+`As concern grows about Chytil's future even without a long-term diagnosis, the Rangers might need to start thinking about filling his spot.`\
+https://nytimes.com/athletic/5926167/2024/11/16/rangers-filip-chytil-injury-status/
+
 **Trump’s Cabinet Picks, Panned in Washington, Thrill Many of His Voters**\
 `Where Donald J. Trump’s critics see underqualified nominees with questionable judgment, his voters described them as mavericks recruited to shake up Washington.`\
 https://nytimes.com/2024/11/16/us/trump-cabinet-picks-voter-reactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926205/2024/11/16/taylor-fritz-atp-tour-finals/
 **College Football Playoff 2024 projections: Where bracket stands with Week 12 underway**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-projections-odds/
-
-**Lowetide: How the Oilers' improvement in drafting goaltenders could pay off**\
-`In recent years, the Oilers have found some traction with goaltending prospects in the pipeline.`\
-https://nytimes.com/athletic/5925772/2024/11/16/oilers-goaltending-draft-develop/
 
