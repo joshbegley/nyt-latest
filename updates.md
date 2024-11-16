@@ -1,3 +1,7 @@
+**Cutter Gauthier gets his first NHL goal — is it time for Teemu Selanne's 'ketchup splat'?**\
+`The Ducks have stayed patient with Gauthier, and have worked with him to round out his game beyond scoring.`\
+https://nytimes.com/athletic/5926196/2024/11/16/cutter-gauthier-first-goal-ducks/
+
 **Omnivore, Intermittent Faster, Reformed Twinkie Lover: the R.F.K. Jr. Diet**\
 `Mr. Kennedy, Donald Trump’s pick to lead the Department of Health and Human Services, could wield considerable influence over the nation’s food supply. Here’s what we know about his own habits.`\
 https://nytimes.com/2024/11/16/us/politics/robert-kennedy-diet-eating-habits-trump.html
