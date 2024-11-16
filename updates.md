@@ -1,3 +1,7 @@
+**Man Hiding Tarantulas, Centipedes and Ants Is Stopped From Boarding Flight**\
+`Officials in Lima, Peru, said the endangered spiders had been taken from the Amazon basin. The man was flying to South Korea.`\
+https://nytimes.com/2024/11/16/world/americas/tarantulas-centipedes-smuggling-arrest-peru.html
+
 **Biden’s Policies Offer a Starting Point for Trump’s Border Crackdown**\
 `Mr. Trump has criticized the Biden administration for what he calls its lax handling of the border — but it has left him with tools he can use to shut down the border.`\
 https://nytimes.com/2024/11/16/us/politics/biden-trump-border-crackdown.html
