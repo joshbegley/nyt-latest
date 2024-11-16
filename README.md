@@ -1,3 +1,7 @@
+**2 Novels That Could Almost Be Diaries**\
+`Barry Gifford’s bohemian scrapbook; Elizabeth McCracken’s eulogy for a mother.`\
+https://nytimes.com/2024/11/16/books/read-like-wind-recommendations.html
+
 **Anthony Edwards' greatness is one reason for optimism in Timberwolves' slow start**\
 `A potentially catastrophic road loss was avoided after Minnesota led by 20 points in the third quarter against the Kings.`\
 https://nytimes.com/athletic/5921693/2024/11/16/anthony-edwards-greatness-timberwolves-slow-start/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/opinion/democrats-interest-groups-majority.html
 **The ‘Diploma Divide’ and the 2024 Election**\
 `Readers discuss a David Brooks column about how the less educated are being left behind.`\
 https://nytimes.com/2024/11/16/opinion/educated-2024-election.html
-
-**Satisfying vs. Productive**\
-`Weekends are, ostensibly, for relaxation. But the impulse to make every moment productive can make guilt-free leisure a challenge.`\
-https://nytimes.com/2024/11/16/briefing/satisfying-vs-productive.html
 
