@@ -1,3 +1,7 @@
+**First U.S. Case of Severe Form of Mpox Reported in California**\
+`The unidentified patient had recently returned from Africa, where the virus has caused a deadly epidemic, health officials said.`\
+https://nytimes.com/2024/11/16/health/mpox-california.html
+
 **'We haven't been there all year': Bruins' struggling offense may never show up**\
 `The Bruins need more from their go-to players for a real turnaround. Whether that’s coming remains to be seen.`\
 https://nytimes.com/athletic/5926392/2024/11/16/bruins-blues-offense-trent-frederic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/world/americas/biden-xi-meeting.html
 **Trump Picks Gas Executive as Energy Secretary**\
 `Chris Wright is a TV-ready evangelist for fossil fuels who lacks government experience.`\
 https://nytimes.com/2024/11/16/climate/trump-picks-chris-wright.html
-
-**Matt Gaetz, Master of Insults, Now Needs Support From Senators He Bashed**\
-`The right-wing mudslinger built his brand on mercilessly trolling his adversaries, including some Republican senators, on TV and social media. Now he needs their votes to be confirmed.`\
-https://nytimes.com/2024/11/16/us/matt-gaetz-senators-insults.html
 
