@@ -1,3 +1,16 @@
+**Kylian Mbappe and France - what's happened?**\
+`Mbappe was left out of the France squad for the second time in a row by Deschamps, a decision that has been a major talking point this week`\
+https://nytimes.com/athletic/5924583/2024/11/16/kylian-mbappe-france-deschamps-real-madrid/
+
+**13 insights fantasy football managers need to know ahead of Week 11**\
+`Chase Brown can be overlooked in Cincy's offense, but Theo Gremminger says his production of late is making him hard to ignore.`\
+https://nytimes.com/athletic/5925028/2024/11/16/13-insights-fantasy-football-week-11/
+
+**Blue Jackets end losing streak and scoring drought with rout of Penguins**\
+`The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
+`\
+https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
+
 **Blue Jackets end losing streak and scoring drought with rout of Penguins**\
 `The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
 `\

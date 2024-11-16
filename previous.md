@@ -1,3 +1,11 @@
+**Kylian Mbappe and France - what's happened?**\
+`Mbappe was left out of the France squad for the second time in a row by Deschamps, a decision that has been a major talking point this week`\
+https://nytimes.com/athletic/5924583/2024/11/16/kylian-mbappe-france-deschamps-real-madrid/
+
+**13 insights fantasy football managers need to know ahead of Week 11**\
+`Chase Brown can be overlooked in Cincy's offense, but Theo Gremminger says his production of late is making him hard to ignore.`\
+https://nytimes.com/athletic/5925028/2024/11/16/13-insights-fantasy-football-week-11/
+
 **Leeds United Women and the 'crazy' battle for promotion: 'This is a perfect time to go to Elland Road'**\
 `What it means for Leeds' women's team to play at Elland Road for the first time in over two years as they bid to go up to the third division`\
 https://nytimes.com/athletic/5914308/2024/11/16/leeds-united-women-elland-road/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/11/15/pageoneplus/quote-of-the-day-a-green-solution-in-
 `The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
 `\
 https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
-
-**Katie Taylor wins controversial rematch with Amanda Serrano**\
-`Taylor’s combinations came to life in the final four rounds, much like she did in the pair’s first bout, to pull off another comeback.`\
-https://nytimes.com/athletic/5925791/2024/11/15/katie-taylor-amanda-serrano-womens-boxing-results/
-
-**Yohe's 10 observations: Penguins' season on the brink after loss in Columbus**\
-`The Penguins are 6-10-3 and are only 3 points away from being at the bottom of the NHL standings.`\
-https://nytimes.com/athletic/5925773/2024/11/15/penguins-blue-jackets-season-loss/
 
