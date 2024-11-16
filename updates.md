@@ -1,3 +1,11 @@
+**Ball State fires coach Mike Neu with 3-7 record in 9th season**\
+`Mike Neu had a 40-63 record at his alma mater before Ball State announced on Saturday it had fired him as football coach.`\
+https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
+
+**Indiana nearly doubles Curt Cignetti's salary in new contract through 2032**\
+`After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
+https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
+
 **Ball State fires coach Mike Neu amid 9th season**\
 `Mike Neu had a 40-63 record at his alma mater before Ball State announced on Saturday it had fired him as football coach.`\
 https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
