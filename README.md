@@ -1,3 +1,7 @@
+**Ex-Officer Faces Charges of Taking Nude Images From Drivers’ Phones**\
+`In an unrelated case also in Missouri, a former state trooper was also charged with searching the phones of female drivers during traffic stop to acquire explicit images.`\
+https://nytimes.com/2024/11/16/us/missouri-police-nude-photos-traffic-stops.html
+
 **Cutter Gauthier gets his first NHL goal — is it time for Teemu Selanne's 'ketchup splat'?**\
 `The Ducks have stayed patient with Gauthier, and have worked with him to round out his game beyond scoring.`\
 https://nytimes.com/athletic/5926196/2024/11/16/cutter-gauthier-first-goal-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926147/2024/11/16/christian-barmore-activated-patr
 **Trump Relished, and Rewarded, Kennedy’s Endorsement. Did It Matter?**\
 `In the backing of Robert F. Kennedy Jr., Donald J. Trump found the kind of name-brand validation he covets. But polls suggest Mr. Kennedy’s supporters didn’t race to the ballot box.`\
 https://nytimes.com/2024/11/16/us/politics/trump-kennedy-health.html
-
-**Kane says England players know team culture can be lost if they are 'not careful'**\
-`Harry Kane has said that England’s senior players know that the team culture can be lost quickly if they are “not careful”.`\
-https://nytimes.com/athletic/5926128/2024/11/16/harry-kane-england-team-culture/
 
