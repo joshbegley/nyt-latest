@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
 
+**Russo: It's been a terrific start for the Wild, but it's about time they beat the Stars**\
+`The Wild's matchup against the Stars will be a true test to see if they’re on par with one of the top teams in the West.
+`\
+https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
+
 **Why Women Find Watching True Crime Comforting**\
 `It’s a black and white moral universe where victims get justice.`\
 https://nytimes.com/2024/11/16/opinion/women-true-crime-victims.html
