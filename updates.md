@@ -1,3 +1,19 @@
+**Blackhawks' Seth Jones heads to IR, former MVP Taylor Hall benched**\
+`Chicago will be without four-time All-Star defenseman Seth Jones and former MVP Taylor Hall vs. Vancouver on Saturday, and possibly longer.`\
+https://nytimes.com/athletic/5926317/2024/11/16/blackhawks-seth-jones-injury-taylor-hall-benched/
+
+**Ex-Officer of Detroit Nonprofit Pleads Guilty to Stealing More Than $40 Million**\
+`William A. Smith, the former chief financial officer for the Detroit Riverfront Conservancy, was accused of embezzling funds meant to support efforts to beautify the city’s waterfront.`\
+https://nytimes.com/2024/11/16/us/detroit-riverfront-conservancy-cfo-embezzlement-guilty.html
+
+**Hungary coach Szalai 'awake and conscious' after medical emergency in Netherlands**\
+`Hungary coach Adam Szalai is &#8220;stable and conscious&#8221; after becoming unwell in the first half of the team&#8217;s Nations League match against the Netherlands.`\
+https://nytimes.com/athletic/5926289/2024/11/16/hungary-coach-adam-szalai-medical-and-conscious-after-medical-emergency/
+
+**Tulane shuts out Navy, clinches AAC title matchup vs. Army**\
+`No. 25 Tulane routed Navy 35-0 Saturday to clinch a spot for both the Green Wave and No. 24 Army in the AAC championship game.`\
+https://nytimes.com/athletic/5926291/2024/11/16/tulane-navy-score-aac-championship-army/
+
 **Travis Hunter tracker: Heisman frontrunner dazzles again as Colorado keeps rolling**\
 `Hunter is closing in 1,000 yards receiving this season — and Colorado is now three wins away from a College Football Playoff berth.`\
 https://nytimes.com/athletic/5926324/2024/11/16/travis-hunter-nfl-draft-2025-utah-heisman/
