@@ -1,3 +1,7 @@
+**NWSL commissioner addresses San Diego Wave lawsuit, field conditions**\
+`In early October, five former Wave employees filed a lawsuit against the club in the San Diego Superior Court.`\
+https://nytimes.com/athletic/5926137/2024/11/16/san-diego-wave-jessica-berman-lawsuit-field-conditions/
+
 **Huskers quarterback commit TJ Lateef ready to compete at Nebraska**\
 `Lateef accounted for three touchdowns and led Orange Lutheran High School to a 42-20 victory on Friday night in the state playoffs. `\
 https://nytimes.com/athletic/5926158/2024/11/16/nebraska-recruiting-qb-tj-lateef/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926085/2024/11/16/karol-swiderski-poland-portugal/
 **South Africa Police Try Siege Tactics on Illegal Mining, Igniting Debate**\
 `The police have cut off food and water to miners for weeks in a bid to force them out of an abandoned mine. Human rights advocates and community leaders call the tactics inhumane.`\
 https://nytimes.com/2024/11/16/world/africa/south-africa-illegal-mining-seige.html
-
-**Bill Belichick wants to return as NFL coach in 2025**\
-`“Coaching is in his blood. He wants this,” a person close to Belichick told The Athletic over text.`\
-https://nytimes.com/athletic/5926050/2024/11/16/bill-belichick-nfl-coach-return-2025/
 
