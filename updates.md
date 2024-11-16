@@ -1,3 +1,7 @@
+**Amorim adds five Sporting coaches to Man Utd backroom staff**\
+`Ruben Amorim has added five coaches who he worked alongside at Sporting Lisbon to his new-look Manchester United backroom staff.`\
+https://nytimes.com/athletic/5926194/2024/11/16/ruben-amorim-manchester-united-coaches/
+
 **NWSL commissioner addresses San Diego Wave lawsuit, field conditions**\
 `In early October, five former Wave employees filed a lawsuit against the club in the San Diego Superior Court.`\
 https://nytimes.com/athletic/5926137/2024/11/16/san-diego-wave-jessica-berman-lawsuit-field-conditions/
