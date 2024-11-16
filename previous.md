@@ -1,3 +1,7 @@
+**Adam 'Pacman' Jones arrested after Mike Tyson-Jake Paul fight, police say**\
+`Jones was booked into Arlington City Jail on one count of assault on a peace officer, public intoxication and evading and resisting arrest.`\
+https://nytimes.com/athletic/5926230/2024/11/16/adam-pacman-arrested-mike-tyson-jake-paul-fight-arlington/
+
 **Thomas E. Kurtz, a Creator of BASIC Computer Language, Dies at 96**\
 `At Dartmouth, long before the days of laptops and smartphones, he worked to give more students access to computers. That work helped propel generations into a new world.`\
 https://nytimes.com/2024/11/16/technology/thomas-kurtz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/arts/sim-van-der-ryn-dead.html
 **Prosecutors Accuse Sean Combs of Trying to Contact Witnesses From Jail**\
 `The government said the music mogul had been attempting to obstruct federal prosecutors by instructing others to make three-way calls and securing help from other inmates.`\
 https://nytimes.com/2024/11/16/arts/music/sean-combs-diddy-accused-witnesses-jail.html
-
-**Patriots activate Christian Barmore to make season debut vs. Rams**\
-`The Patriots activated Barmore, arguably their best overall player, from the league’s non-football illness list on Saturday.`\
-https://nytimes.com/athletic/5926147/2024/11/16/christian-barmore-activated-patriots/
 
