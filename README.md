@@ -1,3 +1,7 @@
+**Bayern's Grohs sidelined indefinitely after cancer diagnosis**\
+`Bayern Munich Women goalkeeper Maria Luisa &#8216;Mala&#8217; Grohs has been diagnosed with a malignant tumour.`\
+https://nytimes.com/athletic/5926032/2024/11/16/mala-grohs-cancer-bayern-munich/
+
 **Lyon owner Textor insists 'no chance' French side will be relegated**\
 `Lyon’s American owner John Textor has insisted there is “no chance” the French side will be relegated from Ligue 1.`\
 https://nytimes.com/athletic/5926036/2024/11/16/john-textor-lyon-relegation/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
 `The latest on Belichick, Vrabel and Deion. Plus, Jets in limbo, Daniel Jones’ future, what the QB flip-flop means for Colts, and more.`\
 https://nytimes.com/athletic/5925832/2024/11/16/nfl-coach-hiring-cycle-belichick-vrabel-deion-sanders/
 
-**Indiana nearly doubles Curt Cignetti's salary in new contract through 2032**\
+**Indiana to pay coach Curt Cignetti $8 million per year in new contract through 2032**\
 `After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
 https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925833/2024/11/16/anthony-davis-lebron-james-laker
 **Here is the latest on the next administration.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/us/trump-live-updates/here-is-the-latest-on-the-next-administration
-
-**Trump Transition Live Updates: After a Whirlwind Week of Cabinet Picks, Several More to Go**\
-`President-elect Donald J. Trump still has choices to make for about a dozen cabinet or cabinet-level roles, including the leaders of the Treasury, Commerce and Labor Departments.`\
-https://nytimes.com/live/2024/us/trump-live-updates
 
