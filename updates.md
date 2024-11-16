@@ -1,3 +1,7 @@
+**Confident Anthony Davis 'just letting it fly' helps lead Lakers past Spurs in NBA Cup opener**\
+`Davis coined "'ooter" as shorthand for "shooter." After scoring 40 vs. the Spurs, "'ooter" was a buzzword in the Lakers locker room again.`\
+https://nytimes.com/athletic/5925833/2024/11/16/anthony-davis-lebron-james-lakers-spurs/
+
 **Here is the latest on the next administration.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/us/trump-live-updates/here-is-the-latest-on-the-next-administration

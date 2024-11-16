@@ -1,3 +1,7 @@
+**Confident Anthony Davis 'just letting it fly' helps lead Lakers past Spurs in NBA Cup opener**\
+`Davis coined "'ooter" as shorthand for "shooter." After scoring 40 vs. the Spurs, "'ooter" was a buzzword in the Lakers locker room again.`\
+https://nytimes.com/athletic/5925833/2024/11/16/anthony-davis-lebron-james-lakers-spurs/
+
 **Here is the latest on the next administration.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/us/trump-live-updates/here-is-the-latest-on-the-next-administration
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/opinion/rfk-jr-health-secretary-trump.html
 **Trump’s New Cologne: Eau de Musk**\
 `Who’s taking Melania’s place at Trump’s side?`\
 https://nytimes.com/2024/11/16/opinion/trump-cabinet-musk.html
-
-**Who’s the fastest-rising prospect in each NHL team’s pipeline?**\
-`From top picks ready to make the leap to hidden gems ready for a bigger chance, here's each NHL team's fastest-rising prospect.`\
-https://nytimes.com/athletic/5921369/2024/11/16/nhl-prospects-pipeline-top-risers-player-stars/
 
