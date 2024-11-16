@@ -1,3 +1,7 @@
+**Thousands Report Netflix Livestream Crashes Before Mike Tyson-Jake Paul Fight**\
+`Users across the U.S. reported being unable to load the high-profile boxing match.`\
+https://nytimes.com/2024/11/16/business/media/netflix-outage-crash-boxing.html
+
 **Lucas Paqueta's drop in form, the assumed cause, and whether he can find a way back**\
 `The Brazilian is unplayable on his day, but that has only happened fleetingly this year. He’s an asset, but one that has dropped in value`\
 https://nytimes.com/athletic/5924320/2024/11/16/lucas-paqueta-west-ham-form/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5924474/2024/11/16/england-goal-training-ground-car
 **Utah at Colorado: How to watch, picks, odds as Buffs continue to chase Big 12 title game**\
 `Colorado continues its chase for a spot in the Big 12 title game. The Buffaloes are favored by two scores against Utah.`\
 https://nytimes.com/athletic/5925280/2024/11/16/utah-colorado-how-to-watch-picks-odds/
-
-**Slash First, Fix Later: How Elon Musk Cuts Costs**\
-`Mr. Musk dug into his companies’ budgets, preferring to cut too much rather than too little and to deal with the fallout later. Under Donald Trump, he is set to apply those tactics to the U.S. government.`\
-https://nytimes.com/2024/11/16/technology/elon-musk-cost-cuts.html
 
