@@ -1,3 +1,7 @@
+**Man With Neo-Nazi Ties Sentenced to Life in Killing of Gay Ex-Classmate**\
+`Samuel Woodward, who espoused anti-gay rhetoric and had ties to Atomwaffen, a neo-Nazi group, stabbed his victim 28 times in a hate-fueled murder, prosecutors said.`\
+https://nytimes.com/2024/11/16/us/samuel-woodward-hate-crime-life-sentence.html
+
 **Why Whoopi Goldberg Is Feuding With a Staten Island Bakery**\
 `The left-leaning host of “The View” said the business in a Republican stronghold declined to take an order under her name. The bakery said politics had nothing to do with it.`\
 https://nytimes.com/2024/11/16/nyregion/whoopi-goldberg-staten-island-bakery.html
