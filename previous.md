@@ -8,7 +8,7 @@ https://nytimes.com/2024/11/16/us/detroit-riverfront-conservancy-cfo-embezzlemen
 
 **Hungary coach Szalai 'awake and conscious' after medical emergency in Netherlands**\
 `Hungary coach Adam Szalai is &#8220;stable and conscious&#8221; after becoming unwell in the first half of the team&#8217;s Nations League match against the Netherlands.`\
-https://nytimes.com/athletic/5926289/2024/11/16/hungary-coach-adam-szalai-medical-and-conscious-after-medical-emergency/
+https://nytimes.com/athletic/5926289/2024/11/16/hungary-coach-adam-szalai-medical-emergency/
 
 **Tulane shuts out Navy, clinches AAC title matchup vs. Army**\
 `No. 25 Tulane routed Navy 35-0 Saturday to clinch a spot for both the Green Wave and No. 24 Army in the AAC championship game.`\

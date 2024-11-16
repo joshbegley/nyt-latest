@@ -1,3 +1,7 @@
+**Hungary coach Szalai 'awake and conscious' after medical emergency in Netherlands**\
+`Hungary coach Adam Szalai is &#8220;stable and conscious&#8221; after becoming unwell in the first half of the team&#8217;s Nations League match against the Netherlands.`\
+https://nytimes.com/athletic/5926289/2024/11/16/hungary-coach-adam-szalai-medical-emergency/
+
 **Blackhawks' Seth Jones heads to IR, former MVP Taylor Hall benched**\
 `Chicago will be without four-time All-Star defenseman Seth Jones and former MVP Taylor Hall vs. Vancouver on Saturday, and possibly longer.`\
 https://nytimes.com/athletic/5926317/2024/11/16/blackhawks-seth-jones-injury-taylor-hall-benched/
