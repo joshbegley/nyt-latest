@@ -1,3 +1,7 @@
+**Trump’s Cabinet Picks, Panned in Washington, Thrill Many of His Voters**\
+`Where Donald J. Trump’s critics see underqualified nominees with questionable judgment, his voters described them as mavericks recruited to shake up Washington.`\
+https://nytimes.com/2024/11/16/us/trump-cabinet-picks-voter-reactions.html
+
 **Washington Spirit outlast Gotham FC to advance to NWSL final**\
 `The Spirit converted its first three attempts in alternating order to end the shootout sequence with the fewest rounds necessary.`\
 https://nytimes.com/athletic/5926362/2024/11/16/washington-spirit-gotham-fc-nwsl-semifinal-results-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-project
 **Lowetide: How the Oilers' improvement in drafting goaltenders could pay off**\
 `In recent years, the Oilers have found some traction with goaltending prospects in the pipeline.`\
 https://nytimes.com/athletic/5925772/2024/11/16/oilers-goaltending-draft-develop/
-
-**The Democrat Picking a Fight With His Party Over Transgender Rights**\
-`Even as Democrats rebuked Representative Seth Moulton of Massachusetts for saying he didn’t want his daughters “getting run over” by “formerly male” athletes, he defended his remarks.`\
-https://nytimes.com/2024/11/16/us/politics/democrats-transgender-rights-moulton.html
 
