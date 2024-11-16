@@ -7,7 +7,7 @@ https://nytimes.com/2024/11/16/us/politics/trump-kennedy-health.html
 https://nytimes.com/athletic/5926128/2024/11/16/harry-kane-england-team-culture/
 
 **China Hit Again With Fatal Violence as at Least 8 Die in Stabbing**\
-`Another 17 people were injured in the attack, in the eastern Chinese city of Wuxi, the police said. The stabbing took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
+`The stabbing, in the eastern city of Wuxi, took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
 https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
 
 **Charlotte's Swiderski misses Poland game due to teamsheet error**\
