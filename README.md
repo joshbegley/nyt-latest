@@ -1,3 +1,8 @@
+**Blue Jackets end losing streak and scoring drought with rout of Penguins**\
+`The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
+`\
+https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
+
 **Katie Taylor wins controversial rematch with Amanda Serrano**\
 `Taylor’s combinations came to life in the final four rounds, much like she did in the pair’s first bout, to pull off another comeback.`\
 https://nytimes.com/athletic/5925791/2024/11/15/katie-taylor-amanda-serrano-womens-boxing-results/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5925705/2024/11/15/canada-suriname-concacaf-nations
 **Georgia Poll Workers Defamed by Giuliani Receive Some of His Assets**\
 `A watch collection, a ring and a vintage Mercedes-Benz belonging to the former Trump lawyer were delivered nearly a year after he was ordered to pay $148 million to the workers he had spread lies about.`\
 https://nytimes.com/2024/11/15/us/politics/rudy-giuliani-georgia-poll-workers.html
-
-**Trump Names Karoline Leavitt as His White House Press Secretary**\
-`Ms. Leavitt, 27, who served as his campaign’s press secretary and worked in the White House during his first administration, will be the youngest person ever to assume the role.`\
-https://nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html
 
