@@ -1,3 +1,7 @@
+**Both teams suing NASCAR will race in 2025**\
+`While it seemed the likely outcome, the teams can reassure their drivers and sponsors they’ll still compete as the lawsuit continues.`\
+https://nytimes.com/athletic/5925996/2024/11/16/nascar-23xi-racing-front-row-motorsports-antitrust-lawsuit-update/
+
 **Ball State fires coach Mike Neu with 3-7 record in 9th season**\
 `Mike Neu had a 40-63 record at his alma mater before Ball State announced on Saturday it had fired him as football coach.`\
 https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/us/trump-live-updates
 **The Giants' hitting philosophy in 2025: More dynamism, fewer strikeouts**\
 `The Giants will be looking to do more of the little things well, including moving runners over and making contact with two strikes.`\
 https://nytimes.com/athletic/5925711/2024/11/16/sf-giants-new-hitting-philosophy/
-
-**What Can the Department of Government Efficiency Do?**\
-`President-elect Trump has indicated the entity will operate outside the government, a position that comes with legal limits.`\
-https://nytimes.com/2024/11/16/business/dealbook/what-can-the-department-of-government-efficiency-do.html
 
