@@ -1,3 +1,7 @@
+**Washington Spirit outlast Gotham FC to advance to NWSL final**\
+`The Spirit converted its first three attempts in alternating order to end the shootout sequence with the fewest rounds necessary.`\
+https://nytimes.com/athletic/5926362/2024/11/16/washington-spirit-gotham-fc-nwsl-semifinal-results-analysis/
+
 **Vladimir Shklyarov, Star Russian Ballet Dancer, Dies at 39**\
 `The Mariinsky Theater in St. Petersburg, which announced the death, did not say how or where he died.`\
 https://nytimes.com/2024/11/16/world/europe/vladimir-shklyarov-dead.html
