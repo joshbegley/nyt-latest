@@ -1,3 +1,11 @@
+**Ohio State takeaways: Secondary needs work, Will Howard strong ahead of another top-5 matchup**\
+`Ohio State, which hosts Indiana next week, is the third team ever to play in three top-five regular-season matchups in a season.`\
+https://nytimes.com/athletic/5926238/2024/11/16/ohio-state-rolls-over-northwestern-as-it-readies-for-yet-another-top-5-matchup/
+
+**Malcolm X’s Daughters Sue F.B.I., C.I.A. and Police**\
+`A suit filed in Manhattan federal court Friday accuses law enforcement of intentionally failing to protect him and stymying efforts to identify his killers.`\
+https://nytimes.com/2024/11/16/nyregion/malcolm-x-suit-fbi-cia-police.html
+
 **Reds, Royals discussing trade of Jonathan India, Brady Singer**\
 `A trade involving India and Singer was not close on Saturday, and is just one of several possibilities under consideration for both clubs.`\
 https://nytimes.com/athletic/5926126/2024/11/16/jonathan-india-brady-singer-reds-royals-trade/
