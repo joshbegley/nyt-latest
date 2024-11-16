@@ -1,3 +1,7 @@
+**Israel Strikes South of Beirut Amid Questions About Cease-Fire Push**\
+`Israel’s bombing campaign in the Dahiya area south of the Lebanese capital, Beirut, has complicated U.S. diplomacy to stop the Israel-Hezbollah war.`\
+https://nytimes.com/2024/11/16/nyregion/israel-strikes-south-of-beirut-amid-questions-about-cease-fire-push.html
+
 **Bitter Infighting Divides Anti-Putin Opposition**\
 `Accusations of betrayal have already tarnished the movement once led by Aleksei Navalny. Now, the election of Donald J. Trump, a Putin admirer, further complicates the opposition efforts.`\
 https://nytimes.com/2024/11/16/world/europe/navalny-russia-opposition-divided.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/us/politics/dept-government-efficiency-explainer.
 **When Your Landlord Raises the Rent, How Much Is Too Much?**\
 `Landlords of rent-stabilized units are generally not able to increase the rent by more than what is allowed. But there are some exceptions.`\
 https://nytimes.com/2024/11/16/realestate/rent-stabilized-landlord-increases.html
-
-**The crowd of Turin: Jannik Sinner's sea of green, white, red and orange**\
-`In Turin, Jannik Sinner is like a politician on the campaign trail, barely able to speak for the roars of his fans`\
-https://nytimes.com/athletic/5922257/2024/11/16/jannik-sinner-italy-tennis-sport-celebrity/
 
