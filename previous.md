@@ -1,3 +1,7 @@
+**Satisfying vs. Productive**\
+`Weekends are, ostensibly, for relaxation. But the impulse to make every moment productive can make guilt-free leisure a challenge.`\
+https://nytimes.com/2024/11/16/briefing/satisfying-vs-productive.html
+
 **Mexico coach Aguirre struck by projectile, bloodied after Honduras game**\
 `The incident happened shortly after full time at the match at Estadio Francisco Morazan, which Honduras won 2-0.`\
 https://nytimes.com/athletic/5925948/2024/11/16/javier-aguirre-mexico-honduras/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/11/16/crosswords/connections-companion-525.html
 **Kosovo players abandon Romania match due to 'Serbia' chants**\
 `Romania&#8217;s home match against Kosovo in the Nations League was abandoned after the away team refused to complete the fixture following chants from the home fans.`\
 https://nytimes.com/athletic/5925576/2024/11/16/romania-kosovo-serbia-chants-abandoned/
-
-**Israel Strikes South of Beirut Amid Questions About Cease-Fire Push**\
-`Israel’s bombing campaign in the Dahiya area south of the Lebanese capital, Beirut, has complicated U.S. diplomacy to stop the Israel-Hezbollah war.`\
-https://nytimes.com/2024/11/16/world/middleeast/israel-lebanon-strikes-cease-fire.html
 
