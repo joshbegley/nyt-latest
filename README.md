@@ -1,3 +1,7 @@
+**Kennedy’s Views Mix Mistrust of Business With Bizarre Health Claims**\
+`President-elect Donald J. Trump’s pick for health secretary opposes fluoride in water, promotes unproven Covid therapies and has threatened to prosecute medical journals.`\
+https://nytimes.com/2024/11/15/us/politics/rfk-jr-hhs-health-goals.html
+
 **Angel Hair Topper?**\
 `Peter Gordon’s latest themeless puzzle is a rare bird.`\
 https://nytimes.com/2024/11/15/crosswords/daily-puzzle-2024-11-16.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925700/2024/11/15/david-bell-blue-jays-front-offic
 **Orioles announce plans to change left-field wall dimensions for 2025 season**\
 `The Orioles raised the height of the wall and moved it back between the 2021 and 2022 seasons. Now the wall is getting moved in.`\
 https://nytimes.com/athletic/5925662/2024/11/15/orioles-left-field-wall-dimensions/
-
-**Bird, Fowles headline 2025 Women's Basketball HOF class**\
-`Alana Beard, Cappie Pondexter, Mark Campbell, Lucille Kyvallosare and Danielle Donehew also a part of the 2025 class`\
-https://nytimes.com/athletic/5925539/2024/11/15/sue-bird-sylvia-fowles-hall-of-fame/
 
