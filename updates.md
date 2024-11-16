@@ -1,3 +1,7 @@
+**First U.S. Case of Severe Form of Mpox Reported in California**\
+`The unidentified patient had recently returned from Africa, where the virus has caused a deadly epidemic, health officials said.`\
+https://nytimes.com/2024/11/16/health/mpox-california.html
+
 **'We haven't been there all year': Bruins' struggling offense may never show up**\
 `The Bruins need more from their go-to players for a real turnaround. Whether that’s coming remains to be seen.`\
 https://nytimes.com/athletic/5926392/2024/11/16/bruins-blues-offense-trent-frederic/
