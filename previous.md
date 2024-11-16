@@ -1,3 +1,11 @@
+**Vladimir Shklyarov, Star Russian Ballet Dancer, Dies at 39**\
+`The Mariinsky Theater in St. Petersburg, which announced the death, did not say how or where he died.`\
+https://nytimes.com/2024/11/16/world/europe/vladimir-shklyarov-dead.html
+
+**Biden and Xi Meet as U.S.-China Relationship Faces New Uncertainty**\
+`Donald J. Trump has promised a more aggressive approach, after the Biden administration worked to avoid open conflict with Beijing.`\
+https://nytimes.com/2024/11/16/world/americas/biden-xi-meeting.html
+
 **Trump Picks Gas Executive as Energy Secretary**\
 `Chris Wright is a TV-ready evangelist for fossil fuels who lacks government experience.`\
 https://nytimes.com/2024/11/16/climate/trump-picks-chris-wright.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/16/us/politics/democrats-transgender-rights-moulton.
 **Chelsea's Kadeisha Buchanan suffers ACL injury**\
 `Chelsea Women defender Kadeisha Buchanan has suffered an anterior cruciate ligament (ACL) injury, manager Sonia Bompastor has confirmed.`\
 https://nytimes.com/athletic/5926322/2024/11/16/kadeisha-buchanan-acl-injury-chelsea/
-
-**Blackhawks' Seth Jones heads to IR, former MVP Taylor Hall benched**\
-`Chicago will be without four-time All-Star defenseman Seth Jones and former MVP Taylor Hall vs. Vancouver on Saturday, and possibly longer.`\
-https://nytimes.com/athletic/5926317/2024/11/16/blackhawks-seth-jones-injury-taylor-hall-benched/
-
-**Ex-Officer of Detroit Nonprofit Pleads Guilty to Stealing More Than $40 Million**\
-`William A. Smith, the former chief financial officer for the Detroit Riverfront Conservancy, was accused of embezzling funds meant to support efforts to beautify the city’s waterfront.`\
-https://nytimes.com/2024/11/16/us/detroit-riverfront-conservancy-cfo-embezzlement-guilty.html
 

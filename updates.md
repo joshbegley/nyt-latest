@@ -1,3 +1,11 @@
+**Vladimir Shklyarov, Star Russian Ballet Dancer, Dies at 39**\
+`The Mariinsky Theater in St. Petersburg, which announced the death, did not say how or where he died.`\
+https://nytimes.com/2024/11/16/world/europe/vladimir-shklyarov-dead.html
+
+**Biden and Xi Meet as U.S.-China Relationship Faces New Uncertainty**\
+`Donald J. Trump has promised a more aggressive approach, after the Biden administration worked to avoid open conflict with Beijing.`\
+https://nytimes.com/2024/11/16/world/americas/biden-xi-meeting.html
+
 **Trump Picks Gas Executive as Energy Secretary**\
 `Chris Wright is a TV-ready evangelist for fossil fuels who lacks government experience.`\
 https://nytimes.com/2024/11/16/climate/trump-picks-chris-wright.html
