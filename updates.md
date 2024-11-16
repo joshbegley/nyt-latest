@@ -1,3 +1,7 @@
+**Trump’s Cabinet Picks, Panned in Washington, Thrill Many of His Voters**\
+`Where Donald J. Trump’s critics see underqualified nominees with questionable judgment, his voters described them as mavericks recruited to shake up Washington.`\
+https://nytimes.com/2024/11/16/us/trump-cabinet-picks-voter-reactions.html
+
 **Washington Spirit outlast Gotham FC to advance to NWSL final**\
 `The Spirit converted its first three attempts in alternating order to end the shootout sequence with the fewest rounds necessary.`\
 https://nytimes.com/athletic/5926362/2024/11/16/washington-spirit-gotham-fc-nwsl-semifinal-results-analysis/
