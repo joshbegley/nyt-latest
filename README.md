@@ -1,3 +1,31 @@
+**Leeds United Women and the 'crazy' battle for promotion: 'This is a perfect time to go to Elland Road'**\
+`What it means for Leeds' women's team to play at Elland Road for the first time in over two years as they bid to go up to the third division`\
+https://nytimes.com/athletic/5914308/2024/11/16/leeds-united-women-elland-road/
+
+**North Korea Deploys a New Weapon Against the South: Unbearable Noise**\
+`Relations between the neighbors have sunk to the lowest level in years. Now, Pyongyang is blaring eerie sounds across the border that villagers say is making their lives hell.`\
+https://nytimes.com/2024/11/16/world/asia/north-korea-noise-weapon.html
+
+**As Xi and Biden Meet, Trump and Uncertainty Loom Large**\
+`The two leaders will meet in Peru, where China has steadily expanded its influence in a challenge to the United States in its own region.`\
+https://nytimes.com/2024/11/16/world/asia/biden-xi-china-trump.html
+
+**England's pitch-perfect training-ground goal that Carsley will rightly be proud of**\
+`The team's second goal against Greece was beautifully crafted and one that jumped straight out of the coaching manual`\
+https://nytimes.com/athletic/5924474/2024/11/16/england-goal-training-ground-carsley/
+
+**Utah at Colorado: How to watch, picks, odds as Buffs continue to chase Big 12 title game**\
+`Colorado continues its chase for a spot in the Big 12 title game. The Buffaloes are favored by two scores against Utah.`\
+https://nytimes.com/athletic/5925280/2024/11/16/utah-colorado-how-to-watch-picks-odds/
+
+**Slash First, Fix Later: How Elon Musk Cuts Costs**\
+`Mr. Musk dug into his companies’ budgets, preferring to cut too much rather than too little and to deal with the fallout later. Under Donald Trump, he is set to apply those tactics to the U.S. government.`\
+https://nytimes.com/2024/11/16/technology/elon-musk-cost-cuts.html
+
+**Quote of the Day: A ‘Green’ Solution in India Is Fouling Its Capital**\
+`Quotation of the Day for Saturday, November 16, 2024`\
+https://nytimes.com/2024/11/15/pageoneplus/quote-of-the-day-a-green-solution-in-india-is-fouling-its-capital.html
+
 **Blue Jackets end losing streak and scoring drought with rout of Penguins**\
 `The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
 `\
@@ -10,32 +38,4 @@ https://nytimes.com/athletic/5925791/2024/11/15/katie-taylor-amanda-serrano-wome
 **Yohe's 10 observations: Penguins' season on the brink after loss in Columbus**\
 `The Penguins are 6-10-3 and are only 3 points away from being at the bottom of the NHL standings.`\
 https://nytimes.com/athletic/5925773/2024/11/15/penguins-blue-jackets-season-loss/
-
-**Kennedy’s Views Mix Mistrust of Business With Unfounded Health Claims**\
-`President-elect Donald J. Trump’s pick for health secretary opposes fluoride in water, promotes unproven Covid therapies and has threatened to prosecute medical journals.`\
-https://nytimes.com/2024/11/15/us/politics/rfk-jr-hhs-health-goals.html
-
-**Angel Hair Topper?**\
-`Peter Gordon’s latest themeless puzzle is a rare bird.`\
-https://nytimes.com/2024/11/15/crosswords/daily-puzzle-2024-11-16.html
-
-**Nico Iamaleava cleared to play for Tennessee vs. Georgia**\
-`The redshirt freshman has thrown for 1,879 yards and 11 touchdowns with four interceptions in nine games.`\
-https://nytimes.com/athletic/5925763/2024/11/15/tennessee-nico-iamaleava-available-georgia/
-
-**Corrections: Nov. 16, 2024**\
-`Corrections that appeared in print on Saturday, Nov. 16, 2024.`\
-https://nytimes.com/2024/11/15/pageoneplus/corrections-nov-16-2024.html
-
-**Golden Holds Off Challenge in Maine, Denying House G.O.P. a Key Pickup**\
-`Representative Jared Golden, a three-term Democrat, defeated Austin Theriault, a former NASCAR driver, in one of a handful of districts held by Democrats that Donald J. Trump won in 2020.`\
-https://nytimes.com/2024/11/15/us/elections/maine-house-golden-theriault.html
-
-**Canada downs Suriname in first leg of CONCACAF Nations League quarterfinal**\
-`Hoilett’s 82nd minute goal was the difference for Canada in a 1-0 win.`\
-https://nytimes.com/athletic/5925705/2024/11/15/canada-suriname-concacaf-nations-league-quarterfinal/
-
-**Georgia Poll Workers Defamed by Giuliani Receive Some of His Assets**\
-`A watch collection, a ring and a vintage Mercedes-Benz belonging to the former Trump lawyer were delivered nearly a year after he was ordered to pay $148 million to the workers he had spread lies about.`\
-https://nytimes.com/2024/11/15/us/politics/rudy-giuliani-georgia-poll-workers.html
 
