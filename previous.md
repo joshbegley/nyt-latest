@@ -1,3 +1,7 @@
+**Super Typhoon Man-yi Barrels Toward the Philippines**\
+`The storm was packing destructive winds with speeds equivalent to a Category 5 hurricane. Forecasters warned of a “potentially catastrophic” situation.`\
+https://nytimes.com/2024/11/16/world/asia/typhoon-man-yi-pepito-philippines.html
+
 **India Hospital Fire Kills 10 Newborn Babies**\
 `The deadly episode was reportedly caused by a short circuit. Hospital fires are not uncommon in India, which lags in fire preparedness and building safety.`\
 https://nytimes.com/2024/11/16/world/asia/babies-killed-india-hospital-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925790/2024/11/16/jake-paul-mike-tyson-boxing-resu
 **Thousands Report Netflix Livestream Crashes During Mike Tyson-Jake Paul Fight**\
 `Users across the U.S. reported being unable to load the high-profile boxing match.`\
 https://nytimes.com/2024/11/16/business/media/netflix-outage-crash-boxing.html
-
-**Lucas Paqueta's drop in form, the assumed cause, and whether he can find a way back**\
-`The Brazilian is unplayable on his day, but that has only happened fleetingly this year. He’s an asset, but one that has dropped in value`\
-https://nytimes.com/athletic/5924320/2024/11/16/lucas-paqueta-west-ham-form/
 

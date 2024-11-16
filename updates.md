@@ -1,3 +1,7 @@
+**Super Typhoon Man-yi Barrels Toward the Philippines**\
+`The storm was packing destructive winds with speeds equivalent to a Category 5 hurricane. Forecasters warned of a “potentially catastrophic” situation.`\
+https://nytimes.com/2024/11/16/world/asia/typhoon-man-yi-pepito-philippines.html
+
 **India Hospital Fire Kills 10 Newborn Babies**\
 `The deadly episode was reportedly caused by a short circuit. Hospital fires are not uncommon in India, which lags in fire preparedness and building safety.`\
 https://nytimes.com/2024/11/16/world/asia/babies-killed-india-hospital-fire.html
