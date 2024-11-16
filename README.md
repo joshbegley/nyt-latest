@@ -1,3 +1,7 @@
+**Washington Spirit outlast Gotham FC to advance to NWSL final**\
+`The Spirit converted its first three attempts in alternating order to end the shootout sequence with the fewest rounds necessary.`\
+https://nytimes.com/athletic/5926362/2024/11/16/washington-spirit-gotham-fc-nwsl-semifinal-results-analysis/
+
 **Vladimir Shklyarov, Star Russian Ballet Dancer, Dies at 39**\
 `The Mariinsky Theater in St. Petersburg, which announced the death, did not say how or where he died.`\
 https://nytimes.com/2024/11/16/world/europe/vladimir-shklyarov-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925772/2024/11/16/oilers-goaltending-draft-develop
 **The Democrat Picking a Fight With His Party Over Transgender Rights**\
 `Even as Democrats rebuked Representative Seth Moulton of Massachusetts for saying he didn’t want his daughters “getting run over” by “formerly male” athletes, he defended his remarks.`\
 https://nytimes.com/2024/11/16/us/politics/democrats-transgender-rights-moulton.html
-
-**Chelsea's Kadeisha Buchanan suffers ACL injury**\
-`Chelsea Women defender Kadeisha Buchanan has suffered an anterior cruciate ligament (ACL) injury, manager Sonia Bompastor has confirmed.`\
-https://nytimes.com/athletic/5926322/2024/11/16/kadeisha-buchanan-acl-injury-chelsea/
 
