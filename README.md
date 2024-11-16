@@ -1,3 +1,7 @@
+**NFL Week 11 roundtable: Harbaugh's Chargers, Mahomes and Allen meet again, Ravens-Steelers**\
+`Week 11 feels like a turning point for a few division and conference races. Our NFL writers discuss.`\
+https://nytimes.com/athletic/5925086/2024/11/16/nfl-week-11-patrick-mahomes-josh-allen-steelers-ravens-chargers/
+
 **How do the Bears fix their offense? Two experts have ideas for new OC Thomas Brown**\
 `The Bears are turning to Brown as their offensive coordinator after firing Shane Waldron.`\
 https://nytimes.com/athletic/5925174/2024/11/16/chicago-bears-caleb-williams-offense-thomas-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/arts/design/flight-into-egypt-performance-met-art
 **Uncovering Gay and Lesbian History in a 1941 ‘Sex Variants’ Study**\
 `The Civilians theater group has adapted a study of homosexuality into a work that explores the lives of lesbians and gay men in the early 20th century.`\
 https://nytimes.com/2024/11/16/theater/gay-lesbian-history-theater.html
-
-**After long week of soul-searching, Ravens defense looking to get right against Steelers**\
-`“Time is clicking,” Orr said. “It’s only seven weeks left in the season, and things are not where they need to be.”`\
-https://nytimes.com/athletic/5924992/2024/11/16/raven-steelers-preview-defense/
 
