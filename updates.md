@@ -1,3 +1,7 @@
+**NFL Week 11 roundtable: Harbaugh's Chargers, Mahomes and Allen meet again, Ravens-Steelers**\
+`Week 11 feels like a turning point for a few division and conference races. Our NFL writers discuss.`\
+https://nytimes.com/athletic/5925086/2024/11/16/nfl-week-11-patrick-mahomes-josh-allen-steelers-ravens-chargers/
+
 **How do the Bears fix their offense? Two experts have ideas for new OC Thomas Brown**\
 `The Bears are turning to Brown as their offensive coordinator after firing Shane Waldron.`\
 https://nytimes.com/athletic/5925174/2024/11/16/chicago-bears-caleb-williams-offense-thomas-brown/
