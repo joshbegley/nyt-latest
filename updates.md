@@ -1,3 +1,7 @@
+**Huskers quarterback commit TJ Lateef ready to compete at Nebraska**\
+`Lateef accounted for three touchdowns and led Orange Lutheran High School to a 42-20 victory on Friday night in the state playoffs. `\
+https://nytimes.com/athletic/5926158/2024/11/16/nebraska-recruiting-qb-tj-lateef/
+
 **Sim Van der Ryn, Early Practitioner of Green Architecture, Dies at 89**\
 `Credited with designing the first eco-friendly office building, he never forgot the lessons he learned observing communes in the 1960s.`\
 https://nytimes.com/2024/11/16/arts/sim-van-der-ryn-dead.html
