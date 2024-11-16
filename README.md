@@ -1,3 +1,7 @@
+**Angel Hair Topper?**\
+`Peter Gordon’s latest themeless puzzle is a rare bird.`\
+https://nytimes.com/2024/11/15/crosswords/daily-puzzle-2024-11-16.html
+
 **Nico Iamaleava cleared to play for Tennessee vs. Georgia**\
 `The redshirt freshman has thrown for 1,879 yards and 11 touchdowns with four interceptions in nine games.`\
 https://nytimes.com/athletic/5925763/2024/11/15/tennessee-nico-iamaleava-available-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925662/2024/11/15/orioles-left-field-wall-dimensio
 **Bird, Fowles headline 2025 Women's Basketball HOF class**\
 `Alana Beard, Cappie Pondexter, Mark Campbell, Lucille Kyvallosare and Danielle Donehew also a part of the 2025 class`\
 https://nytimes.com/athletic/5925539/2024/11/15/sue-bird-sylvia-fowles-hall-of-fame/
-
-**Ex-N.F.L. Linebacker Hit and Pushed Police During Jan. 6 Riot, U.S. Says**\
-`Antwione Williams, who played a season with the Detroit Lions, is charged with assaulting officers at the U.S. Capitol.`\
-https://nytimes.com/2024/11/15/us/antwione-williams-jan-6-arrested.html
 
