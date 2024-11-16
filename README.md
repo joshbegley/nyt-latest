@@ -1,3 +1,7 @@
+**Patriots activate Christian Barmore to make season debut vs. Rams**\
+`The Patriots activated Barmore, arguably their best overall player, from the league’s non-football illness list on Saturday.`\
+https://nytimes.com/athletic/5926147/2024/11/16/christian-barmore-activated-patriots/
+
 **Trump Relished, and Rewarded, Kennedy’s Endorsement. Did It Matter?**\
 `In the backing of Robert F. Kennedy Jr., Donald J. Trump found the kind of name-brand validation he covets. But polls suggest Mr. Kennedy’s supporters didn’t race to the ballot box.`\
 https://nytimes.com/2024/11/16/us/politics/trump-kennedy-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926032/2024/11/16/mala-grohs-cancer-bayern-munich/
 **Lyon owner Textor insists 'no chance' French side will be relegated**\
 `Lyon’s American owner John Textor has insisted there is “no chance” the French side will be relegated from Ligue 1.`\
 https://nytimes.com/athletic/5926036/2024/11/16/john-textor-lyon-relegation/
-
-**Both teams suing NASCAR will race in 2025**\
-`While it seemed the likely outcome, the teams can reassure their drivers and sponsors they’ll still compete as the lawsuit continues.`\
-https://nytimes.com/athletic/5925996/2024/11/16/nascar-23xi-racing-front-row-motorsports-antitrust-lawsuit-update/
 
