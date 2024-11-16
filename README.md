@@ -1,4 +1,4 @@
-**Ball State fires coach Mike Neu amid 9th season**\
+**Ball State fires coach Mike Neu with 3-7 record in 9th season**\
 `Mike Neu had a 40-63 record at his alma mater before Ball State announced on Saturday it had fired him as football coach.`\
 https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
 
