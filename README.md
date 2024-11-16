@@ -1,3 +1,7 @@
+**Canada downs Suriname in first leg of CONCACAF Nations League quarterfinal**\
+`Hoilett’s 82nd minute goal was the difference for Canada in a 1-0 win.`\
+https://nytimes.com/athletic/5925705/2024/11/15/canada-suriname-concacaf-nations-league-quarterfinal/
+
 **Georgia Poll Workers Defamed by Giuliani Receive Some of His Assets**\
 `A watch collection, a ring and a vintage Mercedes-Benz belonging to the former Trump lawyer were delivered nearly a year after he was ordered to pay $148 million to the workers he had spread lies about.`\
 https://nytimes.com/2024/11/15/us/politics/rudy-giuliani-georgia-poll-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/podcasts/bernie-sanders-democratic-party-daily.ht
 **49ers' Kittle, Bosa, Williams questionable vs. Seahawks**\
 `Of the three high-profile 49ers questionable for Sunday, Trent Williams seems the most iffy.`\
 https://nytimes.com/athletic/5925370/2024/11/15/49ers-george-kittle-nick-bosa-trent-williams-seahawks/
-
-**Government by Bro**\
-`The hyper-macho and online energy of the Trump campaign is now aimed at Washington.`\
-https://nytimes.com/2024/11/15/us/politics/trump-cabinet-picks-men.html
 
