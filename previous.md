@@ -1,3 +1,7 @@
+**A Palestinian Refugee Becomes a Jewish Israeli in This Novel**\
+`Elias Khoury’s “Children of the Ghetto” series continues with a young man switching identities in a society seeking to erase him.`\
+https://nytimes.com/2024/11/16/books/review/elias-khoury-star-of-the-sea.html
+
 **Cade Cunningham, defense are difference as Pistons improve to 2-0 in NBA Cup**\
 `Beasley scored 20 points and the Pistons limited the Raptors to 7-of-25 shooting and 1 of 9 on 3-pointers for 17 points in the fourth.`\
 https://nytimes.com/athletic/5925856/2024/11/16/pistons-raptors-nba-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921693/2024/11/16/anthony-edwards-greatness-timber
 **Why Women Find Watching True Crime Comforting**\
 `It’s a black and white moral universe where victims get justice.`\
 https://nytimes.com/2024/11/16/opinion/women-true-crime-victims.html
-
-**How Robert F. Kennedy Jr. Could Destroy One of Civilization’s Best Achievements**\
-`Let’s not make child mortality great again.`\
-https://nytimes.com/2024/11/16/opinion/rfk-jr-health-secretary-trump.html
 
