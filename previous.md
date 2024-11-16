@@ -1,3 +1,7 @@
+**Sim Van der Ryn, Early Practitioner of Green Architecture, Dies at 89**\
+`Credited with designing the first eco-friendly office building, he never forgot the lessons he learned observing communes in the 1960s.`\
+https://nytimes.com/2024/11/16/arts/sim-van-der-ryn-dead.html
+
 **Prosecutors Accuse Sean Combs of Trying to Contact Witnesses From Jail**\
 `The government said the music mogul had been attempting to obstruct federal prosecutors by instructing others to make three-way calls and securing help from other inmates.`\
 https://nytimes.com/2024/11/16/arts/music/sean-combs-diddy-accused-witnesses-jail.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926050/2024/11/16/bill-belichick-nfl-coach-return-
 **So-Good, Can’t-Miss NYT Cooking Thanksgiving Classics**\
 `Beginning with Julia Moskin’s five-star, truly easy creamy macaroni and cheese.`\
 https://nytimes.com/2024/11/16/dining/easy-mac-and-cheese-thanksgiving-classics.html
-
-**Bayern's Grohs sidelined indefinitely after cancer diagnosis**\
-`Bayern Munich Women goalkeeper Maria Luisa &#8216;Mala&#8217; Grohs has been diagnosed with a malignant tumour.`\
-https://nytimes.com/athletic/5926032/2024/11/16/mala-grohs-cancer-bayern-munich/
 
