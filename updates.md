@@ -1,3 +1,7 @@
+**Patriots activate Christian Barmore to make season debut vs. Rams**\
+`The Patriots activated Barmore, arguably their best overall player, from the league’s non-football illness list on Saturday.`\
+https://nytimes.com/athletic/5926147/2024/11/16/christian-barmore-activated-patriots/
+
 **China Hit Again With Fatal Violence as at Least 8 Die in Stabbing**\
 `The stabbing, in the eastern city of Wuxi, took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
 https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
