@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins' season on the brink after loss in Columbus**\
+`The Penguins are now 6-10-3 and are only three points away from being at the bottom of the NHL standings.`\
+https://nytimes.com/athletic/5925773/2024/11/15/penguins-blue-jackets-season-loss/
+
 **Kennedy’s Views Mix Mistrust of Business With Unfounded Health Claims**\
 `President-elect Donald J. Trump’s pick for health secretary opposes fluoride in water, promotes unproven Covid therapies and has threatened to prosecute medical journals.`\
 https://nytimes.com/2024/11/15/us/politics/rfk-jr-hhs-health-goals.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-pr
 **Former Reds manager David Bell joins Blue Jays' front office**\
 `Bell will serve as Toronto's vice president of baseball operations and assistant general manager after six seasons managing the Reds.`\
 https://nytimes.com/athletic/5925700/2024/11/15/david-bell-blue-jays-front-office/
-
-**Orioles announce plans to change left-field wall dimensions for 2025 season**\
-`The Orioles raised the height of the wall and moved it back between the 2021 and 2022 seasons. Now the wall is getting moved in.`\
-https://nytimes.com/athletic/5925662/2024/11/15/orioles-left-field-wall-dimensions/
 
