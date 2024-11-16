@@ -1,3 +1,7 @@
+**Eight People Killed in Stabbing in China, Police Say**\
+`Another 17 people were injured in the attack, in the eastern Chinese city of Wuxi, the police said. The stabbing took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
+https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
+
 **Charlotte's Swiderski misses Poland game due to teamsheet error**\
 `Charlotte FC striker Karol Swiderski was denied the opportunity to play for Poland in Friday&#8217;s Nations League defeat to Portugal due to a &#8220;human error&#8221; regarding the team sheet.`\
 https://nytimes.com/athletic/5926085/2024/11/16/karol-swiderski-poland-portugal/
