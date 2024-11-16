@@ -1,3 +1,7 @@
+**Mexico coach Aguirre struck by projectile, bloodied after Honduras game**\
+`The incident happened shortly after full time at the match at Estadio Francisco Morazan, which Honduras won 2-0.`\
+https://nytimes.com/athletic/5925948/2024/11/16/javier-aguirre-mexico-honduras/
+
 **Russo: It's been a terrific start for the Wild, but it's about time they beat the Stars**\
 `The Wild's matchup against the Stars will be a true test to see if they’re on par with one of the top teams in the West.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5925576/2024/11/16/romania-kosovo-serbia-chants-aba
 **Israel Strikes South of Beirut Amid Questions About Cease-Fire Push**\
 `Israel’s bombing campaign in the Dahiya area south of the Lebanese capital, Beirut, has complicated U.S. diplomacy to stop the Israel-Hezbollah war.`\
 https://nytimes.com/2024/11/16/world/middleeast/israel-lebanon-strikes-cease-fire.html
-
-**Bitter Infighting Divides Anti-Putin Opposition**\
-`Accusations of betrayal have already tarnished the movement once led by Aleksei Navalny. Now, the election of Donald J. Trump, a Putin admirer, further complicates the opposition efforts.`\
-https://nytimes.com/2024/11/16/world/europe/navalny-russia-opposition-divided.html
 
