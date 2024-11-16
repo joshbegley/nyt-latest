@@ -1,3 +1,15 @@
+**How a Park Avenue Doorman (and Salsa Dancer) Spends His Sundays**\
+`Stephen Bruno, who wrote a book about his life as a doorman, helps people head to brunch, then gets ready for a day of religious worship and a night of dancing.`\
+https://nytimes.com/2024/11/16/nyregion/stephen-bruno-park-avenue-doorman.html
+
+**Trump’s Victory Could Mean End of Inquiry Into N.Y.P.D. Sex Crimes Unit**\
+`President-elect Donald J. Trump has vowed to end the sweeping scrutiny of the police that President Biden used to uproot abuse.`\
+https://nytimes.com/2024/11/16/nyregion/trump-nypd-rape-kit.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/16/crosswords/spelling-bee-forum.html
+
 **Mike Tyson and Netflix Are Sluggish During a Hyped Fight**\
 `Tyson looked slow and unsteady in a dull loss to Jake Paul. For many, Netflix’s latest live programming was hindered by buffering.`\
 https://nytimes.com/2024/11/16/arts/television/jake-paul-wins-mike-tyson-fight-netflix.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5924320/2024/11/16/lucas-paqueta-west-ham-form/
 **Four women runners brutally killed in Kenya: 'It’s no longer safe for any athlete'**\
 `Four female runners lost their lives in brutal attacks after financial disputes with partners. What is being done to keep athletes safe?`\
 https://nytimes.com/athletic/5915075/2024/11/16/olympics-athletes-kenya-cheptegei/
-
-**Kylian Mbappe and France - what's happened?**\
-`Mbappe was left out of the France squad for the second time in a row by Deschamps, a decision that has been a major talking point this week`\
-https://nytimes.com/athletic/5924583/2024/11/16/kylian-mbappe-france-deschamps-real-madrid/
-
-**13 insights fantasy football managers need to know ahead of Week 11**\
-`Chase Brown can be overlooked in Cincy's offense, but Theo Gremminger says his production of late is making him hard to ignore.`\
-https://nytimes.com/athletic/5925028/2024/11/16/13-insights-fantasy-football-week-11/
-
-**Leeds United Women and the 'crazy' battle for promotion: 'This is a perfect time to go to Elland Road'**\
-`What it means for Leeds' women's team to play at Elland Road for the first time in over two years as they bid to go up to the third division`\
-https://nytimes.com/athletic/5914308/2024/11/16/leeds-united-women-elland-road/
 

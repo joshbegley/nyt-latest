@@ -1,3 +1,15 @@
+**How a Park Avenue Doorman (and Salsa Dancer) Spends His Sundays**\
+`Stephen Bruno, who wrote a book about his life as a doorman, helps people head to brunch, then gets ready for a day of religious worship and a night of dancing.`\
+https://nytimes.com/2024/11/16/nyregion/stephen-bruno-park-avenue-doorman.html
+
+**Trump’s Victory Could Mean End of Inquiry Into N.Y.P.D. Sex Crimes Unit**\
+`President-elect Donald J. Trump has vowed to end the sweeping scrutiny of the police that President Biden used to uproot abuse.`\
+https://nytimes.com/2024/11/16/nyregion/trump-nypd-rape-kit.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/16/crosswords/spelling-bee-forum.html
+
 **Mike Tyson and Netflix Are Sluggish During a Hyped Fight**\
 `Tyson looked slow and unsteady in a dull loss to Jake Paul. For many, Netflix’s latest live programming was hindered by buffering.`\
 https://nytimes.com/2024/11/16/arts/television/jake-paul-wins-mike-tyson-fight-netflix.html
