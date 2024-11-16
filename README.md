@@ -1,5 +1,5 @@
-**Ex-Officer Faces Charges of Taking Nude Images From Drivers’ Phones**\
-`In an unrelated case also in Missouri, a former state trooper was also charged with searching the phones of female drivers during traffic stop to acquire explicit images.`\
+**Ex-Officer Took Nude Images From Women’s Phones in Traffic Stops, U.S. Says**\
+`In an unrelated case also in Missouri, a former state trooper was charged with searching the phones of female drivers to acquire explicit images.`\
 https://nytimes.com/2024/11/16/us/missouri-police-nude-photos-traffic-stops.html
 
 **Cutter Gauthier gets his first NHL goal — is it time for Teemu Selanne's 'ketchup splat'?**\
