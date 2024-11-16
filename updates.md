@@ -1,3 +1,7 @@
+**NWSL commissioner addresses San Diego Wave lawsuit, field conditions**\
+`In early October, five former Wave employees filed a lawsuit against the club in the San Diego Superior Court.`\
+https://nytimes.com/athletic/5926137/2024/11/16/san-diego-wave-jessica-berman-lawsuit-field-conditions/
+
 **Huskers quarterback commit TJ Lateef ready to compete at Nebraska**\
 `Lateef accounted for three touchdowns and led Orange Lutheran High School to a 42-20 victory on Friday night in the state playoffs. `\
 https://nytimes.com/athletic/5926158/2024/11/16/nebraska-recruiting-qb-tj-lateef/
