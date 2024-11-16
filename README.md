@@ -1,3 +1,7 @@
+**Amorim adds five Sporting coaches to Man Utd backroom staff**\
+`Ruben Amorim has added five coaches who he worked alongside at Sporting Lisbon to his new-look Manchester United backroom staff.`\
+https://nytimes.com/athletic/5926194/2024/11/16/ruben-amorim-manchester-united-coaches/
+
 **NWSL commissioner addresses San Diego Wave lawsuit, field conditions**\
 `In early October, five former Wave employees filed a lawsuit against the club in the San Diego Superior Court.`\
 https://nytimes.com/athletic/5926137/2024/11/16/san-diego-wave-jessica-berman-lawsuit-field-conditions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
 **Charlotte's Swiderski misses Poland game due to teamsheet error**\
 `Charlotte FC striker Karol Swiderski was denied the opportunity to play for Poland in Friday&#8217;s Nations League defeat to Portugal due to a &#8220;human error&#8221; regarding the team sheet.`\
 https://nytimes.com/athletic/5926085/2024/11/16/karol-swiderski-poland-portugal/
-
-**South Africa Police Try Siege Tactics on Illegal Mining, Igniting Debate**\
-`The police have cut off food and water to miners for weeks in a bid to force them out of an abandoned mine. Human rights advocates and community leaders call the tactics inhumane.`\
-https://nytimes.com/2024/11/16/world/africa/south-africa-illegal-mining-seige.html
 
