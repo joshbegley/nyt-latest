@@ -1,3 +1,7 @@
+**Jake Paul defeats Mike Tyson with ease in Netflix spectacle**\
+`Against the 27-year-old Paul on Friday night, each one of Tyson’s four decades of in-ring damage was evident.`\
+https://nytimes.com/athletic/5925790/2024/11/16/jake-paul-mike-tyson-boxing-results/
+
 **Thousands Report Netflix Livestream Crashes During Mike Tyson-Jake Paul Fight**\
 `Users across the U.S. reported being unable to load the high-profile boxing match.`\
 https://nytimes.com/2024/11/16/business/media/netflix-outage-crash-boxing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/world/asia/biden-xi-china-trump.html
 **England's pitch-perfect training-ground goal that Carsley will rightly be proud of**\
 `The team's second goal against Greece was beautifully crafted and one that jumped straight out of the coaching manual`\
 https://nytimes.com/athletic/5924474/2024/11/16/england-goal-training-ground-carsley/
-
-**Utah at Colorado: How to watch, picks, odds as Buffs continue to chase Big 12 title game**\
-`Colorado continues its chase for a spot in the Big 12 title game. The Buffaloes are favored by two scores against Utah.`\
-https://nytimes.com/athletic/5925280/2024/11/16/utah-colorado-how-to-watch-picks-odds/
 

@@ -1,3 +1,7 @@
+**Jake Paul defeats Mike Tyson with ease in Netflix spectacle**\
+`Against the 27-year-old Paul on Friday night, each one of Tyson’s four decades of in-ring damage was evident.`\
+https://nytimes.com/athletic/5925790/2024/11/16/jake-paul-mike-tyson-boxing-results/
+
 **Thousands Report Netflix Livestream Crashes During Mike Tyson-Jake Paul Fight**\
 `Users across the U.S. reported being unable to load the high-profile boxing match.`\
 https://nytimes.com/2024/11/16/business/media/netflix-outage-crash-boxing.html
