@@ -1,4 +1,4 @@
-**Thousands Report Netflix Livestream Crashes Before Mike Tyson-Jake Paul Fight**\
+**Thousands Report Netflix Livestream Crashes During Mike Tyson-Jake Paul Fight**\
 `Users across the U.S. reported being unable to load the high-profile boxing match.`\
 https://nytimes.com/2024/11/16/business/media/netflix-outage-crash-boxing.html
 
