@@ -1,3 +1,7 @@
+**Thousands Report Netflix Livestream Crashes Before Mike Tyson-Jake Paul Fight**\
+`Users across the U.S. reported being unable to load the high-profile boxing match.`\
+https://nytimes.com/2024/11/16/business/media/netflix-outage-crash-boxing.html
+
 **Lucas Paqueta's drop in form, the assumed cause, and whether he can find a way back**\
 `The Brazilian is unplayable on his day, but that has only happened fleetingly this year. He’s an asset, but one that has dropped in value`\
 https://nytimes.com/athletic/5924320/2024/11/16/lucas-paqueta-west-ham-form/
