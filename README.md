@@ -1,3 +1,15 @@
+**Ex-Officer of Detroit Nonprofit Pleads Guilty to Stealing More Than $40 Million**\
+`William A. Smith, the former chief financial officer for the Detroit Riverfront Conservancy, was accused of embezzling funds meant to support efforts to beautify the city’s waterfront.`\
+https://nytimes.com/2024/11/16/us/detroit-riverfront-conservancy-cfo-embezzlement-guilty.html
+
+**Hungary coach Szalai 'awake and conscious' after medical emergency in Netherlands**\
+`Hungary coach Adam Szalai is &#8220;stable and conscious&#8221; after becoming unwell in the first half of the team&#8217;s Nations League match against the Netherlands.`\
+https://nytimes.com/athletic/5926289/2024/11/16/hungary-coach-adam-szalai-medical-and-conscious-after-medical-emergency/
+
+**Tulane shuts out Navy, clinches AAC title matchup vs. Army**\
+`No. 25 Tulane routed Navy 35-0 Saturday to clinch a spot for both the Green Wave and No. 24 Army in the AAC championship game.`\
+https://nytimes.com/athletic/5926291/2024/11/16/tulane-navy-score-aac-championship-army/
+
 **Travis Hunter tracker: Heisman frontrunner dazzles again as Colorado keeps rolling**\
 `Hunter is closing in 1,000 yards receiving this season — and Colorado is now three wins away from a College Football Playoff berth.`\
 https://nytimes.com/athletic/5926324/2024/11/16/travis-hunter-nfl-draft-2025-utah-heisman/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/16/technology/thomas-kurtz-dead.html
 **Ex-Officer Took Nude Images From Women’s Phones in Traffic Stops, U.S. Says**\
 `In an unrelated case also in Missouri, a former state trooper was charged with searching the phones of female drivers to acquire explicit images.`\
 https://nytimes.com/2024/11/16/us/missouri-police-nude-photos-traffic-stops.html
-
-**Cutter Gauthier gets his first NHL goal — is it time for Teemu Selanne's 'ketchup splat'?**\
-`The Ducks have stayed patient with Gauthier, and have worked with him to round out his game beyond scoring.`\
-https://nytimes.com/athletic/5926196/2024/11/16/cutter-gauthier-first-goal-ducks/
-
-**Omnivore, Intermittent Faster, Reformed Twinkie Lover: the R.F.K. Jr. Diet**\
-`Mr. Kennedy, Donald Trump’s pick to lead the Department of Health and Human Services, could wield considerable influence over the nation’s food supply. Here’s what we know about his own habits.`\
-https://nytimes.com/2024/11/16/us/politics/robert-kennedy-diet-eating-habits-trump.html
-
-**Amorim adds five Sporting coaches to Man Utd backroom staff**\
-`Ruben Amorim has added five coaches who he worked alongside at Sporting Lisbon to his new-look Manchester United backroom staff.`\
-https://nytimes.com/athletic/5926194/2024/11/16/ruben-amorim-manchester-united-coaches/
 
