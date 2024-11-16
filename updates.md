@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-bro
 `\
 https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
 
+**Russo: It's been a terrific start for the Wild, but it's about time they beat the Stars**\
+`The Wild's matchup against the Stars will be a true test to see if they’re on par with one of the top teams in the West.
+`\
+https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
+
 **Mexico coach Aguirre struck by projectile, bloodied after Honduras game**\
 `The incident happened shortly after full time at the match at Estadio Francisco Morazan, which Honduras won 2-0.`\
 https://nytimes.com/athletic/5925948/2024/11/16/javier-aguirre-mexico-honduras/
