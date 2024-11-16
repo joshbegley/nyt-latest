@@ -1,3 +1,15 @@
+**Lowetide: How the Oilers' improvement in drafting goaltenders could pay off**\
+`In recent years, the Oilers have found some traction with goaltending prospects in the pipeline.`\
+https://nytimes.com/athletic/5925772/2024/11/16/oilers-goaltending-draft-develop/
+
+**The Democrat Picking a Fight With His Party Over Transgender Rights**\
+`Even as Democrats rebuked Representative Seth Moulton of Massachusetts for saying he didn’t want his daughters “getting run over” by “formerly male” athletes, he defended his remarks.`\
+https://nytimes.com/2024/11/16/us/politics/democrats-transgender-rights-moulton.html
+
+**Chelsea's Kadeisha Buchanan suffers ACL injury**\
+`Chelsea Women defender Kadeisha Buchanan has suffered an anterior cruciate ligament (ACL) injury, manager Sonia Bompastor has confirmed.`\
+https://nytimes.com/athletic/5926322/2024/11/16/kadeisha-buchanan-acl-injury-chelsea/
+
 **Hungary coach Szalai 'awake and conscious' after medical emergency in Netherlands**\
 `Hungary coach Adam Szalai is &#8220;stable and conscious&#8221; after becoming unwell in the first half of the team&#8217;s Nations League match against the Netherlands.`\
 https://nytimes.com/athletic/5926289/2024/11/16/hungary-coach-adam-szalai-medical-emergency/

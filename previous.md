@@ -1,3 +1,15 @@
+**Lowetide: How the Oilers' improvement in drafting goaltenders could pay off**\
+`In recent years, the Oilers have found some traction with goaltending prospects in the pipeline.`\
+https://nytimes.com/athletic/5925772/2024/11/16/oilers-goaltending-draft-develop/
+
+**The Democrat Picking a Fight With His Party Over Transgender Rights**\
+`Even as Democrats rebuked Representative Seth Moulton of Massachusetts for saying he didn’t want his daughters “getting run over” by “formerly male” athletes, he defended his remarks.`\
+https://nytimes.com/2024/11/16/us/politics/democrats-transgender-rights-moulton.html
+
+**Chelsea's Kadeisha Buchanan suffers ACL injury**\
+`Chelsea Women defender Kadeisha Buchanan has suffered an anterior cruciate ligament (ACL) injury, manager Sonia Bompastor has confirmed.`\
+https://nytimes.com/athletic/5926322/2024/11/16/kadeisha-buchanan-acl-injury-chelsea/
+
 **Blackhawks' Seth Jones heads to IR, former MVP Taylor Hall benched**\
 `Chicago will be without four-time All-Star defenseman Seth Jones and former MVP Taylor Hall vs. Vancouver on Saturday, and possibly longer.`\
 https://nytimes.com/athletic/5926317/2024/11/16/blackhawks-seth-jones-injury-taylor-hall-benched/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5926238/2024/11/16/ohio-state-rolls-over-northweste
 **Malcolm X’s Daughters Sue F.B.I., C.I.A. and Police**\
 `A suit filed in Manhattan federal court Friday accuses law enforcement of intentionally failing to protect him and stymying efforts to identify his killers.`\
 https://nytimes.com/2024/11/16/nyregion/malcolm-x-suit-fbi-cia-police.html
-
-**Reds, Royals discussing trade of Jonathan India, Brady Singer**\
-`A trade involving India and Singer was not close on Saturday, and is just one of several possibilities under consideration for both clubs.`\
-https://nytimes.com/athletic/5926126/2024/11/16/jonathan-india-brady-singer-reds-royals-trade/
-
-**Adam 'Pacman' Jones arrested after Mike Tyson-Jake Paul fight, police say**\
-`Jones was booked into Arlington City Jail on one count of assault on a peace officer, public intoxication and evading and resisting arrest.`\
-https://nytimes.com/athletic/5926230/2024/11/16/adam-pacman-arrested-mike-tyson-jake-paul-fight-arlington/
-
-**Thomas E. Kurtz, a Creator of BASIC Computer Language, Dies at 96**\
-`At Dartmouth, long before the days of laptops and smartphones, he worked to give more students access to computers. That work helped propel generations into a new world.`\
-https://nytimes.com/2024/11/16/technology/thomas-kurtz-dead.html
 
