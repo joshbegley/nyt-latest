@@ -1,3 +1,7 @@
+**Kennedy’s Views Mix Mistrust of Business With Bizarre Health Claims**\
+`President-elect Donald J. Trump’s pick for health secretary opposes fluoride in water, promotes unproven Covid therapies and has threatened to prosecute medical journals.`\
+https://nytimes.com/2024/11/15/us/politics/rfk-jr-hhs-health-goals.html
+
 **Angel Hair Topper?**\
 `Peter Gordon’s latest themeless puzzle is a rare bird.`\
 https://nytimes.com/2024/11/15/crosswords/daily-puzzle-2024-11-16.html
