@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
 `The latest on Belichick, Vrabel and Deion. Plus, Jets in limbo, Daniel Jones’ future, what the QB flip-flop means for Colts, and more.`\
 https://nytimes.com/athletic/5925832/2024/11/16/nfl-coach-hiring-cycle-belichick-vrabel-deion-sanders/
 
-**Indiana nearly doubles Curt Cignetti's salary in new contract through 2023**\
+**Indiana nearly doubles Curt Cignetti's salary in new contract through 2032**\
 `After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
 https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
 
