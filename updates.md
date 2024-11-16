@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
 
+**Blue Jackets end losing streak and scoring drought with rout of Penguins**\
+`The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
+`\
+https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
+
 **Katie Taylor wins controversial rematch with Amanda Serrano**\
 `Taylor’s combinations came to life in the final four rounds, much like she did in the pair’s first bout, to pull off another comeback.`\
 https://nytimes.com/athletic/5925791/2024/11/15/katie-taylor-amanda-serrano-womens-boxing-results/
