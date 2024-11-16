@@ -1,3 +1,7 @@
+**De'Aaron Fox scores 60 in thrilling OT loss vs. Minnesota Timberwolves**\
+`The Timberwolves snapped a three-game losing skid and will face the Phoenix Suns on Sunday.`\
+https://nytimes.com/athletic/5925887/2024/11/16/deaaron-fox-career-high-points-kings-timberwolves/
+
 **Jake Paul defeats Mike Tyson with ease in Netflix spectacle**\
 `Against the 27-year-old Paul on Friday night, each one of Tyson’s four decades of in-ring damage was evident.`\
 https://nytimes.com/athletic/5925790/2024/11/16/jake-paul-mike-tyson-boxing-results/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/world/asia/north-korea-noise-weapon.html
 **As Xi and Biden Meet, Trump and Uncertainty Loom Large**\
 `The two leaders will meet in Peru, where China has steadily expanded its influence in a challenge to the United States in its own region.`\
 https://nytimes.com/2024/11/16/world/asia/biden-xi-china-trump.html
-
-**England's pitch-perfect training-ground goal that Carsley will rightly be proud of**\
-`The team's second goal against Greece was beautifully crafted and one that jumped straight out of the coaching manual`\
-https://nytimes.com/athletic/5924474/2024/11/16/england-goal-training-ground-carsley/
 
