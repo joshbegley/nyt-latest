@@ -48,6 +48,11 @@ https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-str
 `\
 https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
 
+**Blue Jackets end losing streak and scoring drought with rout of Penguins**\
+`The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
+`\
+https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
+
 **Leeds United Women and the 'crazy' battle for promotion: 'This is a perfect time to go to Elland Road'**\
 `What it means for Leeds' women's team to play at Elland Road for the first time in over two years as they bid to go up to the third division`\
 https://nytimes.com/athletic/5914308/2024/11/16/leeds-united-women-elland-road/
