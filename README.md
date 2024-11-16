@@ -1,3 +1,7 @@
+**Kane says England players know team culture can be lost if they are 'not careful'**\
+`Harry Kane has said that England’s senior players know that the team culture can be lost quickly if they are “not careful”.`\
+https://nytimes.com/athletic/5926128/2024/11/16/harry-kane-england-team-culture/
+
 **Eight People Killed in Stabbing in China, Police Say**\
 `Another 17 people were injured in the attack, in the eastern Chinese city of Wuxi, the police said. The stabbing took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
 https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925996/2024/11/16/nascar-23xi-racing-front-row-mot
 **Ball State fires coach Mike Neu with 3-7 record in 9th season**\
 `Mike Neu had a 40-63 record at his alma mater before Ball State announced on Saturday it had fired him as football coach.`\
 https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
-
-**Russini’s what I’m hearing: This NFL coach hiring cycle is going to be huge**\
-`The latest on Belichick, Vrabel and Deion. Plus, Jets in limbo, Daniel Jones’ future, what the QB flip-flop means for Colts, and more.`\
-https://nytimes.com/athletic/5925832/2024/11/16/nfl-coach-hiring-cycle-belichick-vrabel-deion-sanders/
 
