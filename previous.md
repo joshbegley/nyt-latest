@@ -1,3 +1,7 @@
+**Reds, Royals discussing trade of Jonathan India, Brady Singer**\
+`A trade involving India and Singer was not close on Saturday, and is just one of several possibilities under consideration for both clubs.`\
+https://nytimes.com/athletic/5926126/2024/11/16/jonathan-india-brady-singer-reds-royals-trade/
+
 **Adam 'Pacman' Jones arrested after Mike Tyson-Jake Paul fight, police say**\
 `Jones was booked into Arlington City Jail on one count of assault on a peace officer, public intoxication and evading and resisting arrest.`\
 https://nytimes.com/athletic/5926230/2024/11/16/adam-pacman-arrested-mike-tyson-jake-paul-fight-arlington/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926158/2024/11/16/nebraska-recruiting-qb-tj-lateef
 **Sim Van der Ryn, Early Practitioner of Green Architecture, Dies at 89**\
 `Credited with designing the first eco-friendly office building, he never forgot the lessons he learned observing communes in the 1960s.`\
 https://nytimes.com/2024/11/16/arts/sim-van-der-ryn-dead.html
-
-**Prosecutors Accuse Sean Combs of Trying to Contact Witnesses From Jail**\
-`The government said the music mogul had been attempting to obstruct federal prosecutors by instructing others to make three-way calls and securing help from other inmates.`\
-https://nytimes.com/2024/11/16/arts/music/sean-combs-diddy-accused-witnesses-jail.html
 

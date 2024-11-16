@@ -1,3 +1,7 @@
+**Reds, Royals discussing trade of Jonathan India, Brady Singer**\
+`A trade involving India and Singer was not close on Saturday, and is just one of several possibilities under consideration for both clubs.`\
+https://nytimes.com/athletic/5926126/2024/11/16/jonathan-india-brady-singer-reds-royals-trade/
+
 **Adam 'Pacman' Jones arrested after Mike Tyson-Jake Paul fight, police say**\
 `Jones was booked into Arlington City Jail on one count of assault on a peace officer, public intoxication and evading and resisting arrest.`\
 https://nytimes.com/athletic/5926230/2024/11/16/adam-pacman-arrested-mike-tyson-jake-paul-fight-arlington/

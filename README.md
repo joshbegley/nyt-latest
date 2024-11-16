@@ -1,3 +1,11 @@
+**Ohio State takeaways: Secondary needs work, Will Howard strong ahead of another top-5 matchup**\
+`Ohio State, which hosts Indiana next week, is the third team ever to play in three top-five regular-season matchups in a season.`\
+https://nytimes.com/athletic/5926238/2024/11/16/ohio-state-rolls-over-northwestern-as-it-readies-for-yet-another-top-5-matchup/
+
+**Malcolm X’s Daughters Sue F.B.I., C.I.A. and Police**\
+`A suit filed in Manhattan federal court Friday accuses law enforcement of intentionally failing to protect him and stymying efforts to identify his killers.`\
+https://nytimes.com/2024/11/16/nyregion/malcolm-x-suit-fbi-cia-police.html
+
 **Reds, Royals discussing trade of Jonathan India, Brady Singer**\
 `A trade involving India and Singer was not close on Saturday, and is just one of several possibilities under consideration for both clubs.`\
 https://nytimes.com/athletic/5926126/2024/11/16/jonathan-india-brady-singer-reds-royals-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5926194/2024/11/16/ruben-amorim-manchester-united-c
 **NWSL commissioner addresses San Diego Wave lawsuit, field conditions**\
 `In early October, five former Wave employees filed a lawsuit against the club in the San Diego Superior Court.`\
 https://nytimes.com/athletic/5926137/2024/11/16/san-diego-wave-jessica-berman-lawsuit-field-conditions/
-
-**Huskers quarterback commit TJ Lateef ready to compete at Nebraska**\
-`Lateef accounted for three touchdowns and led Orange Lutheran High School to a 42-20 victory on Friday night in the state playoffs. `\
-https://nytimes.com/athletic/5926158/2024/11/16/nebraska-recruiting-qb-tj-lateef/
-
-**Sim Van der Ryn, Early Practitioner of Green Architecture, Dies at 89**\
-`Credited with designing the first eco-friendly office building, he never forgot the lessons he learned observing communes in the 1960s.`\
-https://nytimes.com/2024/11/16/arts/sim-van-der-ryn-dead.html
 
