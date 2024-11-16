@@ -1,3 +1,7 @@
+**Charlotte's Swiderski misses Poland game due to teamsheet error**\
+`Charlotte FC striker Karol Swiderski was denied the opportunity to play for Poland in Friday&#8217;s Nations League defeat to Portugal due to a &#8220;human error&#8221; regarding the team sheet.`\
+https://nytimes.com/athletic/5926085/2024/11/16/karol-swiderski-poland-portugal/
+
 **South Africa Police Try Siege Tactics on Illegal Mining, Igniting Debate**\
 `The police have cut off food and water to miners for weeks in a bid to force them out of an abandoned mine. Human rights advocates and community leaders call the tactics inhumane.`\
 https://nytimes.com/2024/11/16/world/africa/south-africa-illegal-mining-seige.html

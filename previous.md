@@ -1,3 +1,7 @@
+**Charlotte's Swiderski misses Poland game due to teamsheet error**\
+`Charlotte FC striker Karol Swiderski was denied the opportunity to play for Poland in Friday&#8217;s Nations League defeat to Portugal due to a &#8220;human error&#8221; regarding the team sheet.`\
+https://nytimes.com/athletic/5926085/2024/11/16/karol-swiderski-poland-portugal/
+
 **South Africa Police Try Siege Tactics on Illegal Mining, Igniting Debate**\
 `The police have cut off food and water to miners for weeks in a bid to force them out of an abandoned mine. Human rights advocates and community leaders call the tactics inhumane.`\
 https://nytimes.com/2024/11/16/world/africa/south-africa-illegal-mining-seige.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925832/2024/11/16/nfl-coach-hiring-cycle-belichick
 **Indiana to pay coach Curt Cignetti $8 million per year in new contract through 2032**\
 `After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
 https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
-
-**A Palestinian Refugee Becomes a Jewish Israeli in This Novel**\
-`Elias Khoury’s “Children of the Ghetto” series continues with a young man switching identities in a society seeking to erase him.`\
-https://nytimes.com/2024/11/16/books/review/elias-khoury-star-of-the-sea.html
 
