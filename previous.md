@@ -1,3 +1,11 @@
+**Ball State fires coach Mike Neu amid 9th season**\
+`Mike Neu had a 40-63 record at his alma mater before Ball State announced on Saturday it had fired him as football coach.`\
+https://nytimes.com/athletic/5925993/2024/11/16/ball-state-mike-neu-fired-coach/
+
+**Russini’s what I’m hearing: This NFL coach hiring cycle is going to be huge**\
+`The latest on Belichick, Vrabel and Deion. Plus, Jets in limbo, Daniel Jones’ future, what the QB flip-flop means for Colts, and more.`\
+https://nytimes.com/athletic/5925832/2024/11/16/nfl-coach-hiring-cycle-belichick-vrabel-deion-sanders/
+
 **Indiana nearly doubles Curt Cignetti's salary in new contract through 2023**\
 `After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
 https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5925711/2024/11/16/sf-giants-new-hitting-philosophy
 **What Can the Department of Government Efficiency Do?**\
 `President-elect Trump has indicated the entity will operate outside the government, a position that comes with legal limits.`\
 https://nytimes.com/2024/11/16/business/dealbook/what-can-the-department-of-government-efficiency-do.html
-
-**2 Novels That Could Almost Be Diaries**\
-`Barry Gifford’s bohemian scrapbook; Elizabeth McCracken’s eulogy for a mother.`\
-https://nytimes.com/2024/11/16/books/read-like-wind-recommendations.html
-
-**Anthony Edwards' greatness is one reason for optimism in Timberwolves' slow start**\
-`A potentially catastrophic road loss was avoided after Minnesota led by 20 points in the third quarter against the Kings.`\
-https://nytimes.com/athletic/5921693/2024/11/16/anthony-edwards-greatness-timberwolves-slow-start/
 
