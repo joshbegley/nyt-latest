@@ -1,3 +1,7 @@
+**The Doctor Who Helped Me Understand My Mom’s Choice to Die**\
+`Dr. Ellen Wiebe, who has performed hundreds of medical aid in dying (or MAID) procedures, discusses what constitutes a good death.`\
+https://nytimes.com/2024/11/16/magazine/doctor-ellen-wiebe-maid-interview.html
+
 **NFL Week 11 roundtable: Harbaugh's Chargers, Mahomes and Allen meet again, Ravens-Steelers**\
 `Week 11 feels like a turning point for a few division and conference races. Our NFL writers discuss.`\
 https://nytimes.com/athletic/5925086/2024/11/16/nfl-week-11-patrick-mahomes-josh-allen-steelers-ravens-chargers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/style/women-trump-4b-movement-heteropessimism.htm
 **The Biggest Surprise at the Met’s Egypt Show? Live Performance**\
 `Black artists have long claimed ancient Egypt as their own. Now they’re telling their stories in person on the museum’s floor.`\
 https://nytimes.com/2024/11/16/arts/design/flight-into-egypt-performance-met-art.html
-
-**Uncovering Gay and Lesbian History in a 1941 ‘Sex Variants’ Study**\
-`The Civilians theater group has adapted a study of homosexuality into a work that explores the lives of lesbians and gay men in the early 20th century.`\
-https://nytimes.com/2024/11/16/theater/gay-lesbian-history-theater.html
 

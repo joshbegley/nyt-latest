@@ -1,3 +1,7 @@
+**The Doctor Who Helped Me Understand My Mom’s Choice to Die**\
+`Dr. Ellen Wiebe, who has performed hundreds of medical aid in dying (or MAID) procedures, discusses what constitutes a good death.`\
+https://nytimes.com/2024/11/16/magazine/doctor-ellen-wiebe-maid-interview.html
+
 **NFL Week 11 roundtable: Harbaugh's Chargers, Mahomes and Allen meet again, Ravens-Steelers**\
 `Week 11 feels like a turning point for a few division and conference races. Our NFL writers discuss.`\
 https://nytimes.com/athletic/5925086/2024/11/16/nfl-week-11-patrick-mahomes-josh-allen-steelers-ravens-chargers/
