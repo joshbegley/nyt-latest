@@ -1,3 +1,11 @@
+**Bitter Infighting Divides Anti-Putin Opposition**\
+`Accusations of betrayal have already tarnished the movement once led by Aleksei Navalny. Now, the election of Donald J. Trump, a Putin admirer, further complicates the opposition efforts.`\
+https://nytimes.com/2024/11/16/world/europe/navalny-russia-opposition-divided.html
+
+**Democrats Land at Climate Talks With a Message: Don’t Panic**\
+`American officials are seeking to assure the world that U.S. climate action won’t end with the return of Donald Trump as president.`\
+https://nytimes.com/2024/11/16/climate/democrats-cop29-baku-climate.html
+
 **The Doctor Who Helped Me Understand My Mom’s Choice to Die**\
 `Dr. Ellen Wiebe, who has performed hundreds of medical aid in dying (or MAID) procedures, discusses what constitutes a good death.`\
 https://nytimes.com/2024/11/16/magazine/doctor-ellen-wiebe-maid-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/16/realestate/rent-stabilized-landlord-increases.htm
 **The crowd of Turin: Jannik Sinner's sea of green, white, red and orange**\
 `In Turin, Jannik Sinner is like a politician on the campaign trail, barely able to speak for the roars of his fans`\
 https://nytimes.com/athletic/5922257/2024/11/16/jannik-sinner-italy-tennis-sport-celebrity/
-
-**Men? Maybe Not.**\
-`The election made clear that America’s gender divide is stark. What’s a heterosexual woman to do?`\
-https://nytimes.com/2024/11/16/style/women-trump-4b-movement-heteropessimism.html
-
-**The Biggest Surprise at the Met’s Egypt Show? Live Performance**\
-`Black artists have long claimed ancient Egypt as their own. Now they’re telling their stories in person on the museum’s floor.`\
-https://nytimes.com/2024/11/16/arts/design/flight-into-egypt-performance-met-art.html
 
