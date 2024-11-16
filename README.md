@@ -1,3 +1,11 @@
+**Lucas Paqueta's drop in form, the assumed cause, and whether he can find a way back**\
+`The Brazilian is unplayable on his day, but that has only happened fleetingly this year. He’s an asset, but one that has dropped in value`\
+https://nytimes.com/athletic/5924320/2024/11/16/lucas-paqueta-west-ham-form/
+
+**Four women runners brutally killed in Kenya: 'It’s no longer safe for any athlete'**\
+`Four female runners lost their lives in brutal attacks after financial disputes with partners. What is being done to keep athletes safe?`\
+https://nytimes.com/athletic/5915075/2024/11/16/olympics-athletes-kenya-cheptegei/
+
 **Kylian Mbappe and France - what's happened?**\
 `Mbappe was left out of the France squad for the second time in a row by Deschamps, a decision that has been a major talking point this week`\
 https://nytimes.com/athletic/5924583/2024/11/16/kylian-mbappe-france-deschamps-real-madrid/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/5925280/2024/11/16/utah-colorado-how-to-watch-picks
 **Slash First, Fix Later: How Elon Musk Cuts Costs**\
 `Mr. Musk dug into his companies’ budgets, preferring to cut too much rather than too little and to deal with the fallout later. Under Donald Trump, he is set to apply those tactics to the U.S. government.`\
 https://nytimes.com/2024/11/16/technology/elon-musk-cost-cuts.html
-
-**Quote of the Day: A ‘Green’ Solution in India Is Fouling Its Capital**\
-`Quotation of the Day for Saturday, November 16, 2024`\
-https://nytimes.com/2024/11/15/pageoneplus/quote-of-the-day-a-green-solution-in-india-is-fouling-its-capital.html
-
-**Blue Jackets end losing streak and scoring drought with rout of Penguins**\
-`The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
-`\
-https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
 
