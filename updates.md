@@ -1,3 +1,11 @@
+**Lucas Paqueta's drop in form, the assumed cause, and whether he can find a way back**\
+`The Brazilian is unplayable on his day, but that has only happened fleetingly this year. He’s an asset, but one that has dropped in value`\
+https://nytimes.com/athletic/5924320/2024/11/16/lucas-paqueta-west-ham-form/
+
+**Four women runners brutally killed in Kenya: 'It’s no longer safe for any athlete'**\
+`Four female runners lost their lives in brutal attacks after financial disputes with partners. What is being done to keep athletes safe?`\
+https://nytimes.com/athletic/5915075/2024/11/16/olympics-athletes-kenya-cheptegei/
+
 **Blue Jackets end losing streak and scoring drought with rout of Penguins**\
 `The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
 `\
