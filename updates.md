@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-str
 `\
 https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
 
+**Blue Jackets end losing streak and scoring drought with rout of Penguins**\
+`The Blue Jackets' 6-2 win over the Penguins ended Columbus' six-game losing streak.
+`\
+https://nytimes.com/athletic/5925825/2024/11/15/blue-jackets-penguins-losing-streak/
+
 **Kylian Mbappe and France - what's happened?**\
 `Mbappe was left out of the France squad for the second time in a row by Deschamps, a decision that has been a major talking point this week`\
 https://nytimes.com/athletic/5924583/2024/11/16/kylian-mbappe-france-deschamps-real-madrid/
