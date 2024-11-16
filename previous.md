@@ -1,3 +1,7 @@
+**Travis Hunter tracker: Heisman frontrunner dazzles again as Colorado keeps rolling**\
+`Hunter is closing in 1,000 yards receiving this season — and Colorado is now three wins away from a College Football Playoff berth.`\
+https://nytimes.com/athletic/5926324/2024/11/16/travis-hunter-nfl-draft-2025-utah-heisman/
+
 **Ohio State takeaways: Secondary needs work, Will Howard strong ahead of another top-5 matchup**\
 `Ohio State, which hosts Indiana next week, is the third team ever to play in three top-five regular-season matchups in a season.`\
 https://nytimes.com/athletic/5926238/2024/11/16/ohio-state-rolls-over-northwestern-as-it-readies-for-yet-another-top-5-matchup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/us/politics/robert-kennedy-diet-eating-habits-tru
 **Amorim adds five Sporting coaches to Man Utd backroom staff**\
 `Ruben Amorim has added five coaches who he worked alongside at Sporting Lisbon to his new-look Manchester United backroom staff.`\
 https://nytimes.com/athletic/5926194/2024/11/16/ruben-amorim-manchester-united-coaches/
-
-**NWSL commissioner addresses San Diego Wave lawsuit, field conditions**\
-`In early October, five former Wave employees filed a lawsuit against the club in the San Diego Superior Court.`\
-https://nytimes.com/athletic/5926137/2024/11/16/san-diego-wave-jessica-berman-lawsuit-field-conditions/
 
