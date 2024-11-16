@@ -1,3 +1,11 @@
+**Nothing but Blue Skies**\
+`Rebecca Goldstein and Ariela Perlman’s puzzle takes us on a buoyant family excursion.`\
+https://nytimes.com/2024/11/16/crosswords/daily-puzzle-2024-11-17.html
+
+**Texas Judge Finds Mother on Death Row Innocent in Daughter’s Death**\
+`In a court filing, the judge said the conviction of Melissa Lucio, whose scheduled execution in 2022 was halted, should be overturned. The state’s highest criminal court will now decide.`\
+https://nytimes.com/2024/11/16/us/melissa-lucio-texas-death-row-innocent.html
+
 **First U.S. Case of Severe Form of Mpox Reported in California**\
 `The unidentified patient had recently returned from Africa, where the virus has caused a deadly epidemic, health officials said.`\
 https://nytimes.com/2024/11/16/health/mpox-california.html
