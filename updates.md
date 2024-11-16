@@ -1,3 +1,7 @@
+**South Africa Police Try Siege Tactics on Illegal Mining, Igniting Debate**\
+`The police have cut off food and water to miners for weeks in a bid to force them out of an abandoned mine. Human rights advocates and community leaders call the tactics inhumane.`\
+https://nytimes.com/2024/11/16/world/africa/south-africa-illegal-mining-seige.html
+
 **Bill Belichick wants to return as NFL coach in 2025**\
 `“Coaching is in his blood. He wants this,” a person close to Belichick told The Athletic over text.`\
 https://nytimes.com/athletic/5926050/2024/11/16/bill-belichick-nfl-coach-return-2025/
