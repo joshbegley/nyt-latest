@@ -1,4 +1,4 @@
-**Kennedy’s Views Mix Mistrust of Business With Bizarre Health Claims**\
+**Kennedy’s Views Mix Mistrust of Business With Unfounded Health Claims**\
 `President-elect Donald J. Trump’s pick for health secretary opposes fluoride in water, promotes unproven Covid therapies and has threatened to prosecute medical journals.`\
 https://nytimes.com/2024/11/15/us/politics/rfk-jr-hhs-health-goals.html
 
