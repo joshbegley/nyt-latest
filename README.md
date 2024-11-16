@@ -1,3 +1,7 @@
+**Golden Holds Off Challenge in Maine, Denying House G.O.P. a Key Pickup**\
+`Representative Jared Golden, a three-term Democrat, defeated Austin Theriault, a former NASCAR driver, in one of a handful of districts held by Democrats that Donald J. Trump won in 2020.`\
+https://nytimes.com/2024/11/15/us/elections/maine-house-golden-theriault.html
+
 **Canada downs Suriname in first leg of CONCACAF Nations League quarterfinal**\
 `Hoilett’s 82nd minute goal was the difference for Canada in a 1-0 win.`\
 https://nytimes.com/athletic/5925705/2024/11/15/canada-suriname-concacaf-nations-league-quarterfinal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925608/2024/11/15/kiyan-anthony-commits-syracuse/
 **5 Takeaways From Bernie Sanders’s Interview on ‘The Daily’**\
 `“There was no appreciation — no appreciation — of the struggling and the suffering of millions and millions of working-class people,” the senator said.`\
 https://nytimes.com/2024/11/15/podcasts/bernie-sanders-democratic-party-daily.html
-
-**49ers' Kittle, Bosa, Williams questionable vs. Seahawks**\
-`Of the three high-profile 49ers questionable for Sunday, Trent Williams seems the most iffy.`\
-https://nytimes.com/athletic/5925370/2024/11/15/49ers-george-kittle-nick-bosa-trent-williams-seahawks/
 
