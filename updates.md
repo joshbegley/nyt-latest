@@ -1,3 +1,7 @@
+**Angel Hair Topper?**\
+`Peter Gordon’s latest themeless puzzle is a rare bird.`\
+https://nytimes.com/2024/11/15/crosswords/daily-puzzle-2024-11-16.html
+
 **Nico Iamaleava cleared to play for Tennessee vs. Georgia**\
 `The redshirt freshman has thrown for 1,879 yards and 11 touchdowns with four interceptions in nine games.`\
 https://nytimes.com/athletic/5925763/2024/11/15/tennessee-nico-iamaleava-available-georgia/
