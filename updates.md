@@ -1,3 +1,7 @@
+**De'Aaron Fox scores 60 in thrilling OT loss vs. Minnesota Timberwolves**\
+`The Timberwolves snapped a three-game losing skid and will face the Phoenix Suns on Sunday.`\
+https://nytimes.com/athletic/5925887/2024/11/16/deaaron-fox-career-high-points-kings-timberwolves/
+
 **Jake Paul defeats Mike Tyson with ease in Netflix spectacle**\
 `Against the 27-year-old Paul on Friday night, each one of Tyson’s four decades of in-ring damage was evident.`\
 https://nytimes.com/athletic/5925790/2024/11/16/jake-paul-mike-tyson-boxing-results/
