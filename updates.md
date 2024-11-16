@@ -1,3 +1,7 @@
+**Golden Holds Off Challenge in Maine, Denying House G.O.P. a Key Pickup**\
+`Representative Jared Golden, a three-term Democrat, defeated Austin Theriault, a former NASCAR driver, in one of a handful of districts held by Democrats that Donald J. Trump won in 2020.`\
+https://nytimes.com/2024/11/15/us/elections/maine-house-golden-theriault.html
+
 **Canada downs Suriname in first leg of CONCACAF Nations League quarterfinal**\
 `Hoilett’s 82nd minute goal was the difference for Canada in a 1-0 win.`\
 https://nytimes.com/athletic/5925705/2024/11/15/canada-suriname-concacaf-nations-league-quarterfinal/
