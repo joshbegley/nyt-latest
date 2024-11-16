@@ -1,3 +1,11 @@
+**Bayern's Grohs sidelined indefinitely after cancer diagnosis**\
+`Bayern Munich Women goalkeeper Maria Luisa &#8216;Mala&#8217; Grohs has been diagnosed with a malignant tumour.`\
+https://nytimes.com/athletic/5926032/2024/11/16/mala-grohs-cancer-bayern-munich/
+
+**Indiana to pay coach Curt Cignetti $8 million per year in new contract through 2032**\
+`After a 10-0 start in his first year, Curt Cignetti agreed to a new deal at Indiana through 2032 with an average salary of $8 million.`\
+https://nytimes.com/athletic/5925991/2024/11/16/curt-cignetti-indiana-football-contract-extension/
+
 **Lyon owner Textor insists 'no chance' French side will be relegated**\
 `Lyon’s American owner John Textor has insisted there is “no chance” the French side will be relegated from Ligue 1.`\
 https://nytimes.com/athletic/5926036/2024/11/16/john-textor-lyon-relegation/
