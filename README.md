@@ -1,40 +1,40 @@
-**Super Typhoon Man-yi Barrels Toward the Philippines**\
-`The storm was packing destructive winds with speeds equivalent to a Category 5 hurricane. Forecasters warned of a “potentially catastrophic” situation.`\
-https://nytimes.com/2024/11/16/world/asia/typhoon-man-yi-pepito-philippines.html
+**Men? Maybe Not.**\
+`The election made clear that America’s gender divide is stark. What’s a heterosexual woman to do?`\
+https://nytimes.com/2024/11/16/style/women-trump-4b-movement-heteropessimism.html
 
-**India Hospital Fire Kills 10 Newborn Babies**\
-`The deadly episode was reportedly caused by a short circuit. Hospital fires are not uncommon in India, which lags in fire preparedness and building safety.`\
-https://nytimes.com/2024/11/16/world/asia/babies-killed-india-hospital-fire.html
+**The Biggest Surprise at the Met’s Egypt Show? Live Performance**\
+`Black artists have long claimed ancient Egypt as their own. Now they’re telling their stories in person on the museum’s floor.`\
+https://nytimes.com/2024/11/16/arts/design/flight-into-egypt-performance-met-art.html
 
-**How a Park Avenue Doorman (and Salsa Dancer) Spends His Sundays**\
-`Stephen Bruno, who wrote a book about his life as a doorman, helps people head to brunch, then gets ready for a day of religious worship and a night of dancing.`\
-https://nytimes.com/2024/11/16/nyregion/stephen-bruno-park-avenue-doorman.html
+**Uncovering Gay and Lesbian History in a 1941 ‘Sex Variants’ Study**\
+`The Civilians theater group has adapted a study of homosexuality into a work that explores the lives of lesbians and gay men in the early 20th century.`\
+https://nytimes.com/2024/11/16/theater/gay-lesbian-history-theater.html
 
-**Trump’s Victory Could Mean End of Inquiry Into N.Y.P.D. Sex Crimes Unit**\
-`President-elect Donald J. Trump has vowed to end the sweeping scrutiny of the police that President Biden used to uproot abuse.`\
-https://nytimes.com/2024/11/16/nyregion/trump-nypd-rape-kit.html
+**After long week of soul-searching, Ravens defense looking to get right against Steelers**\
+`“Time is clicking,” Orr said. “It’s only seven weeks left in the season, and things are not where they need to be.”`\
+https://nytimes.com/athletic/5924992/2024/11/16/raven-steelers-preview-defense/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/16/crosswords/spelling-bee-forum.html
+**When Garrett Hedlund’s Friends Call at 3 a.m., He Picks Up**\
+`To have people like that in your life “is a damn special thing,” said the actor, one of the stars of “Tulsa King.”`\
+https://nytimes.com/2024/11/16/arts/television/garrett-hedlund-tulsa-king.html
 
-**Mike Tyson and Netflix Are Sluggish During a Hyped Fight**\
-`Tyson looked slow and unsteady in a dull loss to Jake Paul. For many, Netflix’s latest live programming was hindered by buffering.`\
-https://nytimes.com/2024/11/16/arts/television/jake-paul-wins-mike-tyson-fight-netflix.html
+**Are Shellfish Good for You?**\
+`Oysters, clams and scallops are a seafood success story.`\
+https://nytimes.com/2024/11/16/well/eat/bivalve-clams-scallops.html
 
-**Bullet Hits Southwest Plane at Dallas Love Field Airport**\
-`No injuries were reported, and the aircraft safely returned to the terminal.`\
-https://nytimes.com/2024/11/16/us/dallas-southwest-plane-bullet.html
+**Their Lives Were Bound by a Fraud Case; Their Fates by a Sinking Yacht**\
+`Mike Lynch and Christopher Morvillo spent 12 years together fighting a legal battle over two continents. Their victory celebration ended in tragedy.`\
+https://nytimes.com/2024/11/16/business/mike-lynch-yacht-sinking.html
 
-**De'Aaron Fox scores 60 in thrilling OT loss vs. Minnesota Timberwolves**\
-`The Timberwolves snapped a three-game losing skid and will face the Phoenix Suns on Sunday.`\
-https://nytimes.com/athletic/5925887/2024/11/16/deaaron-fox-career-high-points-kings-timberwolves/
+**The Prado, Renowned for Its Art, Tries a New Role: Muse to Authors**\
+`Spain’s most storied museum has been inviting writers, including Nobel laureates, to live nearby and take inspiration from its paintings.`\
+https://nytimes.com/2024/11/16/books/booksupdate/the-prado-writing-residence.html
 
-**Jake Paul defeats Mike Tyson with ease in Netflix spectacle**\
-`Against the 27-year-old Paul on Friday night, each one of Tyson’s four decades of in-ring damage was evident.`\
-https://nytimes.com/athletic/5925790/2024/11/16/jake-paul-mike-tyson-boxing-results/
+**Tennessee at Georgia: How to watch, picks, odds as Bulldogs look to bounce back**\
+`Georgia is coming off its second loss of the season, but the Bulldogs are still favored by more than a touchdown against Tennessee.`\
+https://nytimes.com/athletic/5925444/2024/11/16/tennessee-georgia-how-to-watch-picks-odds/
 
-**Thousands Report Netflix Livestream Crashes During Mike Tyson-Jake Paul Fight**\
-`Users across the U.S. reported being unable to load the high-profile boxing match.`\
-https://nytimes.com/2024/11/16/business/media/netflix-outage-crash-boxing.html
+**Liberal Berkeley’s Toughened Stance on Homeless Camps Is a Bellwether**\
+`The progressive stronghold in California plans to target large encampments, relying on a Supreme Court decision handed down by a conservative majority.`\
+https://nytimes.com/2024/11/16/us/homeless-berkeley-california-enforcement.html
 
