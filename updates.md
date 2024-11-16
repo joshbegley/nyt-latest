@@ -1,3 +1,7 @@
+**Why Whoopi Goldberg Is Feuding With a Staten Island Bakery**\
+`The left-leaning host of “The View” said the business in a Republican stronghold declined to take an order under her name. The bakery said politics had nothing to do with it.`\
+https://nytimes.com/2024/11/16/nyregion/whoopi-goldberg-staten-island-bakery.html
+
 **Nothing but Blue Skies**\
 `Rebecca Goldstein and Ariela Perlman’s puzzle takes us on a buoyant family excursion.`\
 https://nytimes.com/2024/11/16/crosswords/daily-puzzle-2024-11-17.html
