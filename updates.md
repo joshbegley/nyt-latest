@@ -1,5 +1,9 @@
 **Israel Strikes South of Beirut Amid Questions About Cease-Fire Push**\
 `Israel’s bombing campaign in the Dahiya area south of the Lebanese capital, Beirut, has complicated U.S. diplomacy to stop the Israel-Hezbollah war.`\
+https://nytimes.com/2024/11/16/world/middleeast/israel-lebanon-strikes-cease-fire.html
+
+**Israel Strikes South of Beirut Amid Questions About Cease-Fire Push**\
+`Israel’s bombing campaign in the Dahiya area south of the Lebanese capital, Beirut, has complicated U.S. diplomacy to stop the Israel-Hezbollah war.`\
 https://nytimes.com/2024/11/16/nyregion/israel-strikes-south-of-beirut-amid-questions-about-cease-fire-push.html
 
 **Bitter Infighting Divides Anti-Putin Opposition**\
