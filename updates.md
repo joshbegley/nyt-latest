@@ -1,3 +1,7 @@
+**Canada downs Suriname in first leg of CONCACAF Nations League quarterfinal**\
+`Hoilett’s 82nd minute goal was the difference for Canada in a 1-0 win.`\
+https://nytimes.com/athletic/5925705/2024/11/15/canada-suriname-concacaf-nations-league-quarterfinal/
+
 **Trump Names Karoline Leavitt as His White House Press Secretary**\
 `Ms. Leavitt, 27, who served as his campaign’s press secretary and worked in the White House during his first administration, will be the youngest person ever to assume the role.`\
 https://nytimes.com/2024/11/15/us/politics/karoline-leavitt-trump-white-house-press-secretary.html
