@@ -1,3 +1,11 @@
+**Bucks, Doc Rivers livid after controversial call in loss to Hornets**\
+`Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte. `\
+https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul-video/
+
+**Paul vs. Tyson draws 60 million viewers on Netflix amid streaming issues**\
+`Netflix called it a "record-breaking night" and said the bout peaked at 65 million concurrent streams.`\
+https://nytimes.com/athletic/5926460/2024/11/16/jake-paul-mike-tyson-ratings-viewers-netflix/
+
 **Man With Neo-Nazi Ties Sentenced to Life in Killing of Gay Ex-Classmate**\
 `Samuel Woodward, who espoused anti-gay rhetoric and had ties to Atomwaffen, a neo-Nazi group, stabbed his victim 28 times in a hate-fueled murder, prosecutors said.`\
 https://nytimes.com/2024/11/16/us/samuel-woodward-hate-crime-life-sentence.html

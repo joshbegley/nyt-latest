@@ -1,3 +1,11 @@
+**Bucks, Doc Rivers livid after controversial call in loss to Hornets**\
+`Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte. `\
+https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul-video/
+
+**Paul vs. Tyson draws 60 million viewers on Netflix amid streaming issues**\
+`Netflix called it a "record-breaking night" and said the bout peaked at 65 million concurrent streams.`\
+https://nytimes.com/athletic/5926460/2024/11/16/jake-paul-mike-tyson-ratings-viewers-netflix/
+
 **Man With Neo-Nazi Ties Sentenced to Life in Killing of Gay Ex-Classmate**\
 `Samuel Woodward, who espoused anti-gay rhetoric and had ties to Atomwaffen, a neo-Nazi group, stabbed his victim 28 times in a hate-fueled murder, prosecutors said.`\
 https://nytimes.com/2024/11/16/us/samuel-woodward-hate-crime-life-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5926399/2024/11/16/alabama-football-mercer-takeaway
 **Tuchel will bring 'injection of energy' to England role - Kane**\
 `Harry Kane expects Thomas Tuchel to be a “real injection of energy” when he takes over as England head coach next year.`\
 https://nytimes.com/athletic/5926176/2024/11/16/thomas-tuchel-england-manager-harry-kane/
-
-**What are the Rangers' next steps with Filip Chytil's uncertain status?**\
-`As concern grows about Chytil's future even without a long-term diagnosis, the Rangers might need to start thinking about filling his spot.`\
-https://nytimes.com/athletic/5926167/2024/11/16/rangers-filip-chytil-injury-status/
-
-**Trump’s Cabinet Picks, Panned in Washington, Thrill Many of His Voters**\
-`Where Donald J. Trump’s critics see underqualified nominees with questionable judgment, his voters described them as mavericks recruited to shake up Washington.`\
-https://nytimes.com/2024/11/16/us/trump-cabinet-picks-voter-reactions.html
 
