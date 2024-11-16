@@ -1,3 +1,36 @@
+**Why Women Find Watching True Crime Comforting**\
+`It’s a black and white moral universe where victims get justice.`\
+https://nytimes.com/2024/11/16/opinion/women-true-crime-victims.html
+
+**Robert F. Kennedy Jr. Could Do Almost Limitless Harm**\
+`Our public health system is imperfect, but it’s also a miracle that can be easily broken.`\
+https://nytimes.com/2024/11/16/opinion/rfk-jr-health-secretary-trump.html
+
+**Trump’s New Cologne: Eau de Musk**\
+`Who’s taking Melania’s place at Trump’s side?`\
+https://nytimes.com/2024/11/16/opinion/trump-cabinet-musk.html
+
+**I’m 16. On Nov. 5 the Girls Cried, and the Boys Played Minecraft.**\
+`On the day after the election, it seemed boys and girls woke to a new reality.`\
+https://nytimes.com/2024/11/16/opinion/donald-trump-women-girls.html
+
+**Trump Has Put an End to an Era. The Future Is Up for Grabs.**\
+`The post-Cold War era has ended, and we’re not going back.`\
+https://nytimes.com/2024/11/16/opinion/donald-trump-election-new-era.html
+
+**When Will Democrats Learn to Say No?**\
+`Why supermajority thinking is urgently needed on the left.`\
+https://nytimes.com/2024/11/16/opinion/democrats-interest-groups-majority.html
+
+**The ‘Diploma Divide’ and the 2024 Election**\
+`Readers discuss a David Brooks column about how the less educated are being left behind.`\
+https://nytimes.com/2024/11/16/opinion/educated-2024-election.html
+
+**Russo: It's been a terrific start for the Wild, but it's about time they beat the Stars**\
+`The Wild's matchup against the Stars will be a true test to see if they’re on par with one of the top teams in the West.
+`\
+https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
+
 **Russo: It's been a terrific start for the Wild, but it's about time they beat the Stars**\
 `The Wild's matchup against the Stars will be a true test to see if they’re on par with one of the top teams in the West.
 `\

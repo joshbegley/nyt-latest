@@ -1,3 +1,31 @@
+**Why Women Find Watching True Crime Comforting**\
+`It’s a black and white moral universe where victims get justice.`\
+https://nytimes.com/2024/11/16/opinion/women-true-crime-victims.html
+
+**Robert F. Kennedy Jr. Could Do Almost Limitless Harm**\
+`Our public health system is imperfect, but it’s also a miracle that can be easily broken.`\
+https://nytimes.com/2024/11/16/opinion/rfk-jr-health-secretary-trump.html
+
+**Trump’s New Cologne: Eau de Musk**\
+`Who’s taking Melania’s place at Trump’s side?`\
+https://nytimes.com/2024/11/16/opinion/trump-cabinet-musk.html
+
+**I’m 16. On Nov. 5 the Girls Cried, and the Boys Played Minecraft.**\
+`On the day after the election, it seemed boys and girls woke to a new reality.`\
+https://nytimes.com/2024/11/16/opinion/donald-trump-women-girls.html
+
+**Trump Has Put an End to an Era. The Future Is Up for Grabs.**\
+`The post-Cold War era has ended, and we’re not going back.`\
+https://nytimes.com/2024/11/16/opinion/donald-trump-election-new-era.html
+
+**When Will Democrats Learn to Say No?**\
+`Why supermajority thinking is urgently needed on the left.`\
+https://nytimes.com/2024/11/16/opinion/democrats-interest-groups-majority.html
+
+**The ‘Diploma Divide’ and the 2024 Election**\
+`Readers discuss a David Brooks column about how the less educated are being left behind.`\
+https://nytimes.com/2024/11/16/opinion/educated-2024-election.html
+
 **Satisfying vs. Productive**\
 `Weekends are, ostensibly, for relaxation. But the impulse to make every moment productive can make guilt-free leisure a challenge.`\
 https://nytimes.com/2024/11/16/briefing/satisfying-vs-productive.html
@@ -10,32 +38,4 @@ https://nytimes.com/athletic/5925948/2024/11/16/javier-aguirre-mexico-honduras/
 `The Wild's matchup against the Stars will be a true test to see if they’re on par with one of the top teams in the West.
 `\
 https://nytimes.com/athletic/5925579/2024/11/16/wild-stars-eriksson-ek-jonas-brodin/
-
-**Prolonged scoring slump looms over Connor Bedard's Vancouver homecoming**\
-`Bedard is playing better hockey this season than as a rookie but is struggling to do the thing that is supposed to come easy to him — score.`\
-https://nytimes.com/athletic/5925658/2024/11/16/blackhawks-canucks-connor-bedard-goals/
-
-**Jets free-agent stock watch: Can Winnipeg keep its No. 1 roster together long-term?**\
-`Taking a long-term view of the Jets, projecting cap hits for their 2025-26 team and assessing their future based on next year's salary cap.`\
-https://nytimes.com/athletic/5923368/2024/11/16/winnipeg-jets-free-agents/
-
-**Former Angel City head coach Freya Coombe is having fun with KC Current**\
-`After getting fired from Angel City FC, Freya Coombe is having fun in new role with KC Current`\
-https://nytimes.com/athletic/5925747/2024/11/16/kc-current-freya-coombe-nwsl/
-
-**Conversations With Murray Sinclair**\
-`Thoughts from the former head of Canada’s Truth and Reconciliation Commission, who was also a former senator and the first Indigenous person in Manitoba to become a judge.`\
-https://nytimes.com/2024/11/16/world/canada/conversations-with-murray-sinclair.html
-
-**Wordle Review No. 1,247**\
-`Scroll down for hints and conversation about the puzzle for Nov. 17, 2024.`\
-https://nytimes.com/2024/11/16/crosswords/wordle-review-1247.html
-
-**The Connections Companion No. 525**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 17, 2024.`\
-https://nytimes.com/2024/11/16/crosswords/connections-companion-525.html
-
-**Kosovo players abandon Romania match due to 'Serbia' chants**\
-`Romania&#8217;s home match against Kosovo in the Nations League was abandoned after the away team refused to complete the fixture following chants from the home fans.`\
-https://nytimes.com/athletic/5925576/2024/11/16/romania-kosovo-serbia-chants-abandoned/
 
