@@ -1,3 +1,7 @@
+**'We haven't been there all year': Bruins' struggling offense may never show up**\
+`The Bruins need more from their go-to players for a real turnaround. Whether that’s coming remains to be seen.`\
+https://nytimes.com/athletic/5926392/2024/11/16/bruins-blues-offense-trent-frederic/
+
 **Alabama takeaways: Defense extends turnover streak, freshmen continue to star**\
 `The No. 10 Crimson Tide are 8-2 on the season with a road trip to Oklahoma next week before closing the regular season against Auburn.`\
 https://nytimes.com/athletic/5926399/2024/11/16/alabama-football-mercer-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/climate/trump-picks-chris-wright.html
 **Matt Gaetz, Master of Insults, Now Needs Support From Senators He Bashed**\
 `The right-wing mudslinger built his brand on mercilessly trolling his adversaries, including some Republican senators, on TV and social media. Now he needs their votes to be confirmed.`\
 https://nytimes.com/2024/11/16/us/matt-gaetz-senators-insults.html
-
-**Clemson rallies past Pitt, stays in the hunt for ACC title game appearance**\
-`The Tigers, who finished 7-1 in the ACC, will need some help to keep their slim College Football Playoff hopes alive. `\
-https://nytimes.com/athletic/5926302/2024/11/16/clemson-pitt-cade-klubnik-acc-title-game-playoff/
 
