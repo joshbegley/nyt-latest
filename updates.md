@@ -1,3 +1,7 @@
+**Omnivore, Intermittent Faster, Reformed Twinkie Lover: the R.F.K. Jr. Diet**\
+`Mr. Kennedy, Donald Trump’s pick to lead the Department of Health and Human Services, could wield considerable influence over the nation’s food supply. Here’s what we know about his own habits.`\
+https://nytimes.com/2024/11/16/us/politics/robert-kennedy-diet-eating-habits-trump.html
+
 **Amorim adds five Sporting coaches to Man Utd backroom staff**\
 `Ruben Amorim has added five coaches who he worked alongside at Sporting Lisbon to his new-look Manchester United backroom staff.`\
 https://nytimes.com/athletic/5926194/2024/11/16/ruben-amorim-manchester-united-coaches/

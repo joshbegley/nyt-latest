@@ -1,3 +1,7 @@
+**Omnivore, Intermittent Faster, Reformed Twinkie Lover: the R.F.K. Jr. Diet**\
+`Mr. Kennedy, Donald Trump’s pick to lead the Department of Health and Human Services, could wield considerable influence over the nation’s food supply. Here’s what we know about his own habits.`\
+https://nytimes.com/2024/11/16/us/politics/robert-kennedy-diet-eating-habits-trump.html
+
 **Amorim adds five Sporting coaches to Man Utd backroom staff**\
 `Ruben Amorim has added five coaches who he worked alongside at Sporting Lisbon to his new-look Manchester United backroom staff.`\
 https://nytimes.com/athletic/5926194/2024/11/16/ruben-amorim-manchester-united-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926128/2024/11/16/harry-kane-england-team-culture/
 **China Hit Again With Fatal Violence as at Least 8 Die in Stabbing**\
 `The stabbing, in the eastern city of Wuxi, took place days after a man drove a vehicle into a crowd in southern China, killing dozens.`\
 https://nytimes.com/2024/11/16/world/asia/wuxi-china-stabbing.html
-
-**Charlotte's Swiderski misses Poland game due to teamsheet error**\
-`Charlotte FC striker Karol Swiderski was denied the opportunity to play for Poland in Friday&#8217;s Nations League defeat to Portugal due to a &#8220;human error&#8221; regarding the team sheet.`\
-https://nytimes.com/athletic/5926085/2024/11/16/karol-swiderski-poland-portugal/
 
