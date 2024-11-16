@@ -1,7 +1,3 @@
-**Blackhawks' Seth Jones heads to IR, former MVP Taylor Hall benched**\
-`Chicago will be without four-time All-Star defenseman Seth Jones and former MVP Taylor Hall vs. Vancouver on Saturday, and possibly longer.`\
-https://nytimes.com/athletic/5926317/2024/11/16/blackhawks-seth-jones-injury-taylor-hall-benched/
-
 **Ex-Officer of Detroit Nonprofit Pleads Guilty to Stealing More Than $40 Million**\
 `William A. Smith, the former chief financial officer for the Detroit Riverfront Conservancy, was accused of embezzling funds meant to support efforts to beautify the city’s waterfront.`\
 https://nytimes.com/2024/11/16/us/detroit-riverfront-conservancy-cfo-embezzlement-guilty.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5926230/2024/11/16/adam-pacman-arrested-mike-tyson-
 **Thomas E. Kurtz, a Creator of BASIC Computer Language, Dies at 96**\
 `At Dartmouth, long before the days of laptops and smartphones, he worked to give more students access to computers. That work helped propel generations into a new world.`\
 https://nytimes.com/2024/11/16/technology/thomas-kurtz-dead.html
+
+**Ex-Officer Took Nude Images From Women’s Phones in Traffic Stops, U.S. Says**\
+`In an unrelated case also in Missouri, a former state trooper was charged with searching the phones of female drivers to acquire explicit images.`\
+https://nytimes.com/2024/11/16/us/missouri-police-nude-photos-traffic-stops.html
 
