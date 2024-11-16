@@ -1,3 +1,7 @@
+**Alabama takeaways: Defense extends turnover streak, freshmen continue to star**\
+`The No. 10 Crimson Tide are 8-2 on the season with a road trip to Oklahoma next week before closing the regular season against Auburn.`\
+https://nytimes.com/athletic/5926399/2024/11/16/alabama-football-mercer-takeaways-result/
+
 **Tuchel will bring 'injection of energy' to England role - Kane**\
 `Harry Kane expects Thomas Tuchel to be a “real injection of energy” when he takes over as England head coach next year.`\
 https://nytimes.com/athletic/5926176/2024/11/16/thomas-tuchel-england-manager-harry-kane/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/us/matt-gaetz-senators-insults.html
 **Clemson rallies past Pitt, stays in the hunt for ACC title game appearance**\
 `The Tigers, who finished 7-1 in the ACC, will need some help to keep their slim College Football Playoff hopes alive. `\
 https://nytimes.com/athletic/5926302/2024/11/16/clemson-pitt-cade-klubnik-acc-title-game-playoff/
-
-**Taylor Fritz is running out of players to beat, but the next step is the biggest**\
-`Fritz has Alexander Zverev's number in a matchup that could define their next years on the ATP Tour.`\
-https://nytimes.com/athletic/5926205/2024/11/16/taylor-fritz-atp-tour-finals/
 

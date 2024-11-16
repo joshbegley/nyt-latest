@@ -1,3 +1,7 @@
+**Tuchel will bring 'injection of energy' to England role - Kane**\
+`Harry Kane expects Thomas Tuchel to be a “real injection of energy” when he takes over as England head coach next year.`\
+https://nytimes.com/athletic/5926176/2024/11/16/thomas-tuchel-england-manager-harry-kane/
+
 **What are the Rangers' next steps with Filip Chytil's uncertain status?**\
 `As concern grows about Chytil's future even without a long-term diagnosis, the Rangers might need to start thinking about filling his spot.`\
 https://nytimes.com/athletic/5926167/2024/11/16/rangers-filip-chytil-injury-status/

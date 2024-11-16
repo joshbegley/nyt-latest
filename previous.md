@@ -1,3 +1,7 @@
+**Tuchel will bring 'injection of energy' to England role - Kane**\
+`Harry Kane expects Thomas Tuchel to be a “real injection of energy” when he takes over as England head coach next year.`\
+https://nytimes.com/athletic/5926176/2024/11/16/thomas-tuchel-england-manager-harry-kane/
+
 **What are the Rangers' next steps with Filip Chytil's uncertain status?**\
 `As concern grows about Chytil's future even without a long-term diagnosis, the Rangers might need to start thinking about filling his spot.`\
 https://nytimes.com/athletic/5926167/2024/11/16/rangers-filip-chytil-injury-status/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926302/2024/11/16/clemson-pitt-cade-klubnik-acc-ti
 **Taylor Fritz is running out of players to beat, but the next step is the biggest**\
 `Fritz has Alexander Zverev's number in a matchup that could define their next years on the ATP Tour.`\
 https://nytimes.com/athletic/5926205/2024/11/16/taylor-fritz-atp-tour-finals/
-
-**College Football Playoff 2024 projections: Where bracket stands with Week 12 underway**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-projections-odds/
 
