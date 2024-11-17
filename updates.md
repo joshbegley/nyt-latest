@@ -1,3 +1,7 @@
+**Shane Beamer, South Carolina celebrate another thrilling win in Columbia**\
+`The Gamecocks, who are 5-3 in the SEC, have won four consecutive games. `\
+https://nytimes.com/athletic/5926601/2024/11/16/south-carolina-missouri-shane-beamer-lanorris-sellers/
+
 **'Inside the NBA' moving to ABC and ESPN as TNT, NBA settle suit**\
 `"Inside the NBA" panelists Charles Barkley, Shaquille O'Neal, Ernie Johnson and Kenny Smith will remain with the show, sources said.`\
 https://nytimes.com/athletic/5926632/2024/11/16/inside-the-nba-abc-espn-tnt-lawsuit/
