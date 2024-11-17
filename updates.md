@@ -1,3 +1,7 @@
+**Live Q&A: Week 11 fantasy football start/sit chat with Jay Felicio, Sunday 11/17 at 11 a.m. ET**\
+`Submit your Week 11 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5920144/2024/11/17/live-qa-week-11-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-17-at-11-a-m-et/
+
 **Cowboys Today: Preparing for brutal stretch of 3 games in 11 days and is there a LT battle?**\
 `Playing Monday, Sunday and then Thursday isn't great for getting players healthy, but that's what the Cowboys' upcoming task.`\
 https://nytimes.com/athletic/5926864/2024/11/17/cowboys-today-schedule-thanksgiving-left-tackle/
