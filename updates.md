@@ -1,3 +1,11 @@
+**Blue Jackets 'went rogue' in Montreal, dashing hope of an offensive resurgence**\
+`Which team will show up when Columbus faces Boston on Monday?`\
+https://nytimes.com/athletic/5926660/2024/11/16/blue-jackets-canadiens-loss/
+
+**Maple Leafs report cards: Mitch Marner secures well-fought and deserved win**\
+`Mitch Marner's 200th career goal lifted the Maple Leafs past the Oilers 4-3 in overtime.`\
+https://nytimes.com/athletic/5926700/2024/11/16/maple-leafs-oilers-ryan-reaves-darnell-nurse/
+
 **Jaguars at Lions: How to watch, odds, expert picks with Detroit as big favorite**\
 `The Lions will hope to avoid a trap game hosting the Jaguars this Sunday.`\
 https://nytimes.com/athletic/5922927/2024/11/16/jaguars-lions-how-to-watch-odds-picks-betting/
