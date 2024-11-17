@@ -1,3 +1,7 @@
+**In Wisconsin's struggle to win big games, Oregon loss is biggest gut punch yet**\
+`Wisconsin, which hasn't beaten a ranked opponent under Luke Fickell, led No. 1 Oregon entering the fourth quarter but couldn't hold on.`\
+https://nytimes.com/athletic/5927221/2024/11/17/wisconsin-football-oregon-luke-fickell/
+
 **On ‘S.N.L.,’ a Peaceful Transition to Trump’s Cabinet of Curiosities**\
 `Sarah Sherman plays Matt Gaetz as well as the widow of P’Nut, the conservative darling of the rodent world, while Charli XCX and pals serenade a mom-to-be.`\
 https://nytimes.com/2024/11/17/arts/television/snl-charli-xcx-dana-carvey-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/17/us/trump-news
 **Blast Hits Central Beirut for First Time in Weeks**\
 `The attack came as Israel’s military has been pounding an area just outside the Lebanese capital with some of the heaviest waves of bombardment in months.`\
 https://nytimes.com/2024/11/17/world/europe/beirut-lebanon-israel-hezbollah.html
-
-**Tottenham's Odobert undergoes surgery on hamstring injury**\
-`Tottenham Hotpsur winger Wilson Odobert has undergone surgery on a right hamstring injury.`\
-https://nytimes.com/athletic/5927098/2024/11/17/wilson-odobert-injury-tottenham/
 
