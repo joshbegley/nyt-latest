@@ -1,3 +1,15 @@
+**Luis Severino unlikely to accept Mets' qualifying offer: Source**\
+`Severino is expected to test the free-agent market after a season in which he had a 3.91 ERA over 182 innings.`\
+https://nytimes.com/athletic/5926573/2024/11/16/luis-severino-mets-qualifying-offer/
+
+**Leafs' Ryan Reaves ejected for hit that injures Oilers' Darnell Nurse**\
+`Reaves could be facing supplemental discipline from the NHL's Department of Player Safety as a result of the hit.`\
+https://nytimes.com/athletic/5926591/2024/11/16/maple-leafs-ryan-reaves-oilers-darnell-nurse/
+
+**Trump’s Pick for Pentagon Paid an Accuser but Denies It Was Sexual Assault**\
+`The Trump transition team was only recently alerted to the payment by Pete Hegseth, President-elect Donald J. Trump’s choice for secretary of defense.`\
+https://nytimes.com/2024/11/16/us/politics/hegseth-sexual-assault.html
+
 **Wisconsin takes surprise halftime lead over No. 1 Oregon**\
 `Wisconsin scored a touchdown with 25 seconds left in the second quarter to pull ahead of No. 1 Oregon at halftime.`\
 https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
