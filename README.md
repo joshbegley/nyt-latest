@@ -1,3 +1,19 @@
+**Is Harry Kane still England's best option at No 9?**\
+`What is Kane's standing after Lee Carsley benched him against Greece? Should Watkins start? Or is Bellingham the answer?`\
+https://nytimes.com/athletic/5924369/2024/11/17/is-harry-kane-still-best-striker-england/
+
+**The Man Utd fan who designed their record-selling kit: 'Football was a religion, but so was Adidas'**\
+`Inigo Turner became one of Adidas' top designers - then he got his dream gig, designing kits for his boyhood club`\
+https://nytimes.com/athletic/5885793/2024/11/17/man-utd-kit-designer-interview/
+
+**Raiders at Dolphins: How to watch, odds, expert picks as Miami tries to turn season around**\
+`If the Dolphins are to turn their season around, they'll have to avoid a trap game against the Raiders.`\
+https://nytimes.com/athletic/5923101/2024/11/17/raiders-dolphins-how-to-watch-odds-picks-betting/
+
+**College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/17/college-football-playoff-projections-odds/
+
 **How Penguins survived another blown lead against Sharks: 3 takeaways**\
 `For a change, a blown multi-goal lead to the Sharks wasn't costly for the Penguins.
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/5925053/2024/11/17/england-ireland-preview-odds-pre
 **Italy vs France preview: Storylines, odds, prediction as European powers meet**\
 `France visits Italy in the finale in Nations League group play. Both teams have advanced to the quarter-finals.`\
 https://nytimes.com/athletic/5924958/2024/11/17/italy-france-preview-odds-prediction/
-
-**Footballers have a key accessory - a PlayStation (and they may hold a secret role in success)**\
-`Footballers take PlayStations away on international breaks and trips abroad — and teams have bonded through it`\
-https://nytimes.com/athletic/5917188/2024/11/17/football-playstation-video-games/
-
-**Vikings at Titans: How to watch, odds, expert picks for Minnesota's potential trap game**\
-`The Vikings are big road favorites against the Titans on Sunday.`\
-https://nytimes.com/athletic/5922976/2024/11/17/vikings-titans-how-to-watch-odds-picks-betting/
-
-**Blue Jackets 'went rogue' in Montreal, dashing hope of an offensive resurgence**\
-`Which team will show up when Columbus faces Boston on Monday?`\
-https://nytimes.com/athletic/5926660/2024/11/16/blue-jackets-canadiens-loss/
-
-**Maple Leafs report cards: Mitch Marner secures well-fought and deserved win**\
-`Mitch Marner's 200th career goal lifted the Maple Leafs past the Oilers 4-3 in overtime.`\
-https://nytimes.com/athletic/5926700/2024/11/16/maple-leafs-oilers-ryan-reaves-darnell-nurse/
 
