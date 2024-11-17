@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5926955/2024/11/17/byu-kansas-score-analysis-upset-
 https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
 
 **SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
-`But that's if no more upsets occur and it goes to the newly installed SEC tiebreakers. A potential six-team tie remains very much alive.`\
+`All of the SEC's three-loss teams have officially been eliminated from contention, but the potential six-team tie remains very much alive.`\
 https://nytimes.com/athletic/5926924/2024/11/17/sec-tiebreaker-scenarios-update-alabama-texas-texas-am/
 
 **Devon Levi wasn't sharp and Sabres' defense didn't help much in loss to Flyers**\
