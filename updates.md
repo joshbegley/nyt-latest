@@ -1,3 +1,7 @@
+**Until Saturday: Colorado's Playoff path, plus some Week 12 questions**\
+`Welcome to Until Saturday, the five-star college football newsletter: What is Colorado's path to the College Football Playoff?`\
+https://nytimes.com/athletic/5927069/2024/11/17/colorado-college-football-playoff-until-saturday/
+
 **In Wisconsin's struggle to win big games, Oregon loss is biggest gut punch yet**\
 `Wisconsin, which hasn't beaten a ranked opponent under Luke Fickell, led No. 1 Oregon entering the fourth quarter but couldn't hold on.`\
 https://nytimes.com/athletic/5927221/2024/11/17/wisconsin-football-oregon-luke-fickell/

@@ -1,3 +1,7 @@
+**Until Saturday: Colorado's Playoff path, plus some Week 12 questions**\
+`Welcome to Until Saturday, the five-star college football newsletter: What is Colorado's path to the College Football Playoff?`\
+https://nytimes.com/athletic/5927069/2024/11/17/colorado-college-football-playoff-until-saturday/
+
 **In Wisconsin's struggle to win big games, Oregon loss is biggest gut punch yet**\
 `Wisconsin, which hasn't beaten a ranked opponent under Luke Fickell, led No. 1 Oregon entering the fourth quarter but couldn't hold on.`\
 https://nytimes.com/athletic/5927221/2024/11/17/wisconsin-football-oregon-luke-fickell/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/17/us/trump-news/here-is-the-latest-on-the-next
 **Trump Transition Live Updates: President-Elect Names Gas Executive as Energy Secretary**\
 `Donald J. Trump has yet to announce the next leaders of the Treasury, Commerce, and Labor Departments, among other roles.`\
 https://nytimes.com/live/2024/11/17/us/trump-news
-
-**Blast Hits Central Beirut for First Time in Weeks**\
-`The attack came as Israel’s military has been pounding an area just outside the Lebanese capital with some of the heaviest waves of bombardment in months.`\
-https://nytimes.com/2024/11/17/world/europe/beirut-lebanon-israel-hezbollah.html
 
