@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5926915/2024/11/17/devon-levi-sabres-lose-to-flyers
 
 **How the Canucks won ugly against Connor Bedard, lowly Blackhawks: 3 takeaways**\
 `The Canucks were able to get back in the win column in just about the least inspiring way possible in a 4-1 rout of the Blackhawks. `\
-https://nytimes.com/athletic/5926686/2024/11/17/how-the-canucks-won-ugly-against-connor-bedard-lowly-blackhawks-3-takeaways/
+https://nytimes.com/athletic/5926686/2024/11/17/canucks-ugly-win-blackhawks-connor-bedard/
 
 **Short-handed Wild saw a lot of progress, but the outcome was familiar for the Stars**\
 `The Wild have now gone 12 regular-season meetings since beating the Stars in regulation.`\
