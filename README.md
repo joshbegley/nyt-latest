@@ -1,3 +1,7 @@
+**Clifton R. Wharton Jr., Who Broke Racial Barriers, Is Dead at 98**\
+`He was the first African American to become president of a large white university, C.E.O. of a major corporation and deputy secretary of state.`\
+https://nytimes.com/2024/11/17/us/politics/clifton-r-wharton-jr-dead.html
+
 **NFL Week 11 inactives and fantasy tips: Davante Adams active, Sam LaPorta out**\
 `Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/arts/television/snl-charli-xcx-dana-carvey-biden.
 **Live Q&A: Week 11 fantasy football start/sit chat with Jay Felicio, Sunday 11/17 at 11 a.m. ET**\
 `Submit your Week 11 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5920144/2024/11/17/live-qa-week-11-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-17-at-11-a-m-et/
-
-**Cowboys Today: Preparing for brutal stretch of 3 games in 11 days and is there a LT battle?**\
-`Playing Monday, Sunday and then Thursday isn't great for getting players healthy, but that's what the Cowboys' upcoming task.`\
-https://nytimes.com/athletic/5926864/2024/11/17/cowboys-today-schedule-thanksgiving-left-tackle/
 
