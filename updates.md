@@ -1,3 +1,7 @@
+**Former gymnastics coach Béla Károlyi dies at 82**\
+`Károlyi rose to prominence by training Olympic all-around champions Nadia Comăneci and Mary Lou Retton.`\
+https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-dies/
+
 **Donald Trump to attend UFC 309 in New York**\
 `Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
 https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
