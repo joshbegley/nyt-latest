@@ -1,5 +1,5 @@
 **Bela Karolyi, 82, Dies; Gymnastics Coach Was Revered, Then Repudiated**\
-`He rose to  fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
+`He rose to fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
 https://nytimes.com/2024/11/17/obituaries/bela-karolyi-dead.html
 
 **Stewart Mandel's 12-team Playoff projections after Week 12**\
