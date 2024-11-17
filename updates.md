@@ -1,3 +1,7 @@
+**Clifton R. Wharton Jr., Who Broke Racial Barriers, Is Dead at 98**\
+`He was the first African American to become president of a large white university, C.E.O. of a major corporation and deputy secretary of state.`\
+https://nytimes.com/2024/11/17/us/politics/clifton-r-wharton-jr-dead.html
+
 **NFL Week 11 inactives and fantasy tips: Davante Adams active, Sam LaPorta out**\
 `Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
