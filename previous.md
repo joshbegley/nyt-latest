@@ -1,3 +1,7 @@
+**Temple fires coach Stan Drayton amid 3-7 season**\
+`Defensive coordinator Everett Withers was named the team's interim head coach for the remainder of the season.`\
+https://nytimes.com/athletic/5927295/2024/11/17/temple-football-stan-drayton-fired/
+
 **Taking Away the Car Keys: Is It the Doctor’s Duty?**\
 `Readers disagree with a guest essay urging mandatory reporting of impaired drivers. Also: The power of plutocrats; a suicide in jail; jaywalking in New York.`\
 https://nytimes.com/2024/11/17/opinion/impaired-drivers-doctors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926864/2024/11/17/cowboys-today-schedule-thanksgiv
 **College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/17/college-football-playoff-projections-odds/
-
-**Jayson Tatum's buzzer-beater lifts Celtics over Raptors in OT, but paint problems persist**\
-`"I know what I’m capable of, and you always believe that the next one is going in," says Jayson Tatum of his overtime winner. `\
-https://nytimes.com/athletic/5927085/2024/11/17/jayson-tatum-celtics-raptors-buzzer-beater-ot/
 

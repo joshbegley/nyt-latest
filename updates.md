@@ -1,3 +1,7 @@
+**Temple fires coach Stan Drayton amid 3-7 season**\
+`Defensive coordinator Everett Withers was named the team's interim head coach for the remainder of the season.`\
+https://nytimes.com/athletic/5927295/2024/11/17/temple-football-stan-drayton-fired/
+
 **Taking Away the Car Keys: Is It the Doctor’s Duty?**\
 `Readers disagree with a guest essay urging mandatory reporting of impaired drivers. Also: The power of plutocrats; a suicide in jail; jaywalking in New York.`\
 https://nytimes.com/2024/11/17/opinion/impaired-drivers-doctors.html
