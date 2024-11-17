@@ -1,3 +1,11 @@
+**Erik Johnson, Matvei Michkov and how the Flyers' culture is turning around their season**\
+`"We talk about it a lot, the culture," Erik Johnson said, "but here in this room, it's special. I think it's going to go a long way."`\
+https://nytimes.com/athletic/5926750/2024/11/17/erik-johnson-matvei-michkov-flyers-culture/
+
+**Browns at Saints: How to watch, odds, expert picks for Jameis Winston revenge game**\
+`Both teams will be playing for pride on Sunday, with Browns QB Jameis Winston facing his former team in the Saints.`\
+https://nytimes.com/athletic/5923468/2024/11/17/browns-saints-how-to-watch-odds-picks-betting/
+
 **Rams at Patriots: How to watch, odds, expert picks with LA favored on the road**\
 `Drake Maye is one of the league's youngest QBs. Matthew Stafford is one of its oldest. They square off Sunday.`\
 https://nytimes.com/athletic/5923442/2024/11/17/rams-patriots-how-to-watch-odds-picks-betting/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/11/17/world/europe/ukraine-clinic-missile-russia.html
 **Quote of the Day: Blaring Dreadful Noise Across Border, North Korea Adds Insomnia to Its Arsenal**\
 `Quotation of the Day for Sunday, November 17, 2024.`\
 https://nytimes.com/2024/11/17/pageoneplus/quote-of-the-day-blaring-dreadful-noise-across-border-north-korea-adds-insomnia-to-its-arsenal.html
-
-**‘No Use for Hatred’: A Village Seeks to Move On From a U.S. Massacre**\
-`The hamlet of My Lai is infamous for American war crimes, but now it holds lessons in resilience and how to let go of anger.`\
-https://nytimes.com/2024/11/17/world/asia/my-lai-massacre-vietman-museum.html
-
-**England vs Ireland preview: Storylines, odds, prediction as Three Lions go for promotion**\
-`England hope to lock up promotion in the Nations League with a win against Ireland at Wembley.`\
-https://nytimes.com/athletic/5925053/2024/11/17/england-ireland-preview-odds-prediction/
 
