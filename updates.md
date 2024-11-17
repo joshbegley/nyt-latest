@@ -1,3 +1,11 @@
+**Florida deals LSU knockout blow in SEC title race**\
+`Billy Napier and Florida earned a crucial win to get a step closer to a bowl, while LSU and Brian Kelly are left searching for answers.`\
+https://nytimes.com/athletic/5926491/2024/11/16/florida-lsu-football-score-recap-sec/
+
+**Bucks, Doc Rivers livid after controversial call in loss to Hornets**\
+`Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte.`\
+https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul-video/
+
 **Man Hiding Tarantulas, Centipedes and Ants Is Stopped From Boarding Flight**\
 `Officials in Lima, Peru, said the endangered spiders had been taken from the Amazon basin. The man was flying to South Korea.`\
 https://nytimes.com/2024/11/16/world/americas/tarantulas-centipedes-smuggling-arrest-peru.html
