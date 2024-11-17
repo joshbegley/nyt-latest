@@ -1,3 +1,11 @@
+**Taking Away the Car Keys: Is It the Doctor’s Duty?**\
+`Readers disagree with a guest essay urging mandatory reporting of impaired drivers. Also: The power of plutocrats; a suicide in jail; jaywalking in New York.`\
+https://nytimes.com/2024/11/17/opinion/impaired-drivers-doctors.html
+
+**Grand Ole Onions**\
+`Tennessee onions are a golden casserole of thinly sliced onions, loads of butter, a spray of spices and a whole lot of cheese. Make them tonight.`\
+https://nytimes.com/2024/11/17/dining/tennessee-onions.html
+
 **McIlroy wins sixth Race to Dubai title after DP World Tour Championship victory**\
 `McIlroy shot a three-under final round in Dubai to seal victory ahead of Rasmus Hojgaard.`\
 https://nytimes.com/athletic/5927215/2024/11/17/rory-mcilroy-race-to-dubai-dp-world-tour-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701128/2024/11/17/college-football-playoff-project
 **Jayson Tatum's buzzer-beater lifts Celtics over Raptors in OT, but paint problems persist**\
 `"I know what I’m capable of, and you always believe that the next one is going in," says Jayson Tatum of his overtime winner. `\
 https://nytimes.com/athletic/5927085/2024/11/17/jayson-tatum-celtics-raptors-buzzer-beater-ot/
-
-**NFL Week 11 inactives and fantasy tips: LaPorta out for Week 11, Adams still questionable**\
-`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
-https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips-sam-laporta-out-for-week-11-davante-adams-remains-questionable/
-
-**Here is the latest on the next administration.**\
-`By Michael Gold`\
-https://nytimes.com/live/2024/11/17/us/trump-news/here-is-the-latest-on-the-next-administration
 

@@ -1,3 +1,11 @@
+**Taking Away the Car Keys: Is It the Doctor’s Duty?**\
+`Readers disagree with a guest essay urging mandatory reporting of impaired drivers. Also: The power of plutocrats; a suicide in jail; jaywalking in New York.`\
+https://nytimes.com/2024/11/17/opinion/impaired-drivers-doctors.html
+
+**Grand Ole Onions**\
+`Tennessee onions are a golden casserole of thinly sliced onions, loads of butter, a spray of spices and a whole lot of cheese. Make them tonight.`\
+https://nytimes.com/2024/11/17/dining/tennessee-onions.html
+
 **McIlroy wins sixth Race to Dubai title after DP World Tour Championship victory**\
 `McIlroy shot a three-under final round in Dubai to seal victory ahead of Rasmus Hojgaard.`\
 https://nytimes.com/athletic/5927215/2024/11/17/rory-mcilroy-race-to-dubai-dp-world-tour-championship/
