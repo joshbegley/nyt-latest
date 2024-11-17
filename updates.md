@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni
 `\
 https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni-malkin/
 
+**How Penguins survived another blown lead against Sharks: 3 takeaways**\
+`For a change, a blown multi-goal lead to the Sharks wasn't costly for the Penguins.
+`\
+https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni-malkin/
+
 **Erik Johnson, Matvei Michkov and how the Flyers' culture is turning around their season**\
 `"We talk about it a lot, the culture," Erik Johnson said, "but here in this room, it's special. I think it's going to go a long way."`\
 https://nytimes.com/athletic/5926750/2024/11/17/erik-johnson-matvei-michkov-flyers-culture/
