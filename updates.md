@@ -1,3 +1,7 @@
+**Lions hand Jags worst loss in team history in 52-6 drubbing: Takeaways**\
+`Jacksonville’s 46-point loss was the worst loss in franchise history, surpassing the 44-point loss in 1995.`\
+https://nytimes.com/athletic/5927301/2024/11/17/jaguars-lions-score-result-takeaways/
+
 **Ryan Reaves suspended 5 games for 'dangerous' hit on Darnell Nurse**\
 `Nurse was knocked out of Saturday’s game after taking the hit from Reaves early in the second period. `\
 https://nytimes.com/athletic/5926591/2024/11/17/maple-leafs-ryan-reaves-oilers-darnell-nurse/
