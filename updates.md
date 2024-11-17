@@ -1,3 +1,7 @@
+**Trump, Visiting New York, Finds a Friendly Crowd at a Fight**\
+`President-elect Donald J. Trump arrived at Madison Square Garden for an Ultimate Fighting Championship event, which for a brief moment resembled one of his campaign rallies.`\
+https://nytimes.com/2024/11/17/us/politics/donald-trump-msg-ufc.html
+
 **Bengals at Chargers: How to watch, odds, expert picks with LA slightly favored**\
 `The playoffs are still within reach for the Bengals, while the Chargers are rolling under Jim Harbaugh.`\
 https://nytimes.com/athletic/5923762/2024/11/17/bengals-chargers-how-to-watch-odds-picks-betting/

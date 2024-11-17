@@ -1,3 +1,7 @@
+**Trump, Visiting New York, Finds a Friendly Crowd at a Fight**\
+`President-elect Donald J. Trump arrived at Madison Square Garden for an Ultimate Fighting Championship event, which for a brief moment resembled one of his campaign rallies.`\
+https://nytimes.com/2024/11/17/us/politics/donald-trump-msg-ufc.html
+
 **Bengals at Chargers: How to watch, odds, expert picks with LA slightly favored**\
 `The playoffs are still within reach for the Bengals, while the Chargers are rolling under Jim Harbaugh.`\
 https://nytimes.com/athletic/5923762/2024/11/17/bengals-chargers-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/technology/bluesky-growing-pains.html
 **How Kamala Harris Burned Through $1.5 Billion in 15 Weeks**\
 `Her frenzied spending has led to second-guessing among some Democrats and questions as she has pressed for more cash since the election.`\
 https://nytimes.com/2024/11/17/us/politics/harris-campaign-finances.html
-
-**Morales: USC needed its win against Nebraska — even if the Trojans still have a ways to go**\
-`The Trojans sealed a 28-20 victory on Saturday that shifted the mood around the program.`\
-https://nytimes.com/athletic/5926807/2024/11/17/usc-nebraska-college-football-lincoln-riley-win/
 
