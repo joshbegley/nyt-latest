@@ -1,3 +1,7 @@
+**Tottenham's Odobert undergoes surgery on hamstring injury**\
+`Tottenham Hotpsur winger Wilson Odobert has undergone surgery on a right hamstring injury.`\
+https://nytimes.com/athletic/5927098/2024/11/17/wilson-odobert-injury-tottenham/
+
 **Slaying Dragons for 20 Years**\
 `World of Warcraft was first released two decades ago.`\
 https://nytimes.com/2024/11/17/briefing/world-of-warcraft-20th-anniversary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/podcasts/the-daily/cheerleading-dangerous-popular
 **How to Save Opera in America? Make It New Again.**\
 `To survive and thrive, we can’t rely on the glories of the past.`\
 https://nytimes.com/2024/11/17/opinion/opera-crisis-new-works.html
-
-**Trump, Visiting New York, Finds a Friendly Crowd at a Fight**\
-`President-elect Donald J. Trump arrived at Madison Square Garden for an Ultimate Fighting Championship event, which for a brief moment resembled one of his campaign rallies.`\
-https://nytimes.com/2024/11/17/us/politics/donald-trump-msg-ufc.html
 

@@ -1,3 +1,7 @@
+**Tottenham's Odobert undergoes surgery on hamstring injury**\
+`Tottenham Hotpsur winger Wilson Odobert has undergone surgery on a right hamstring injury.`\
+https://nytimes.com/athletic/5927098/2024/11/17/wilson-odobert-injury-tottenham/
+
 **Slaying Dragons for 20 Years**\
 `World of Warcraft was first released two decades ago.`\
 https://nytimes.com/2024/11/17/briefing/world-of-warcraft-20th-anniversary.html
