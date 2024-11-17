@@ -1,3 +1,7 @@
+**Bela Karolyi, 82, Dies; Gymnastics Coach Was Revered, Then Repudiated**\
+`He rose to  fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
+https://nytimes.com/2024/11/17/obituaries/bela-karolyi-dead.html
+
 **Stewart Mandel's 12-team Playoff projections after Week 12**\
 `The Rebels have two Top 25 wins to Tennessee’s one, but they also have a bad home loss to 4-6 Kentucky. It's a fascinating debate.`\
 https://nytimes.com/athletic/5927449/2024/11/17/college-football-playoff-bracket-projections-week-12/
