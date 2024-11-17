@@ -1,3 +1,15 @@
+**Luis Severino unlikely to accept Mets' qualifying offer: Source**\
+`Severino is expected to test the free-agent market after a season in which he had a 3.91 ERA over 182 innings.`\
+https://nytimes.com/athletic/5926573/2024/11/16/luis-severino-mets-qualifying-offer/
+
+**Leafs' Ryan Reaves ejected for hit that injures Oilers' Darnell Nurse**\
+`Reaves could be facing supplemental discipline from the NHL's Department of Player Safety as a result of the hit.`\
+https://nytimes.com/athletic/5926591/2024/11/16/maple-leafs-ryan-reaves-oilers-darnell-nurse/
+
+**Trump’s Pick for Pentagon Paid an Accuser but Denies It Was Sexual Assault**\
+`The Trump transition team was only recently alerted to the payment by Pete Hegseth, President-elect Donald J. Trump’s choice for secretary of defense.`\
+https://nytimes.com/2024/11/16/us/politics/hegseth-sexual-assault.html
+
 **Wisconsin takes surprise halftime lead over No. 1 Oregon**\
 `Wisconsin scored a touchdown with 25 seconds left in the second quarter to pull ahead of No. 1 Oregon at halftime.`\
 https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5926443/2024/11/16/notre-dame-virginia-football-sco
 **Shel Talmy, Who Produced the Who and the Kinks, Dies at 87**\
 `Though he was American, he helped define the sound of the British Invasion after settling in London in the early 1960s.`\
 https://nytimes.com/2024/11/16/arts/music/shel-talmy-dead.html
-
-**Penn State dominates Purdue: Takeaways from the Nittany Lions' 49-10 win in West Lafayette**\
-`It was another stress-free Saturday for the Nittany Lions, who remain in a favorable position to host a first-round Playoff game.`\
-https://nytimes.com/athletic/5926452/2024/11/16/penn-state-tyler-warren-purdue-playoff/
-
-**Florida deals LSU knockout blow in SEC title race**\
-`Billy Napier and Florida earned a crucial win to get a step closer to a bowl, while LSU and Brian Kelly are left searching for answers.`\
-https://nytimes.com/athletic/5926491/2024/11/16/florida-lsu-football-score-recap-sec/
-
-**Man Hiding Tarantulas, Centipedes and Ants Is Stopped From Boarding Flight**\
-`Officials in Lima, Peru, said the endangered spiders had been taken from the Amazon basin. The man was flying to South Korea.`\
-https://nytimes.com/2024/11/16/world/americas/tarantulas-centipedes-smuggling-arrest-peru.html
 
