@@ -1,3 +1,7 @@
+**Man Utd's Toone sidelined with calf injury**\
+`Manchester United Women midfielder Ella Toone is set for a spell on the sidelines with a calf injury.`\
+https://nytimes.com/athletic/5927359/2024/11/17/ella-toone-injury-manchester-united/
+
 **U.S. Opens Investigation Into Killing of Sonya Massey**\
 `The Justice Department notified Sangamon County, Ill., that it had opened a civil rights investigation after reports about the shooting raised “serious concerns.”`\
 https://nytimes.com/2024/11/17/us/sonya-massey-shooting-investigation.html
