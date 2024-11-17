@@ -1,3 +1,7 @@
+**Israel Strikes Building in Central Beirut**\
+`The attack came as Israel’s military has been pounding an area just outside the Lebanese capital with some of the heaviest waves of bombardment in months.`\
+https://nytimes.com/2024/11/17/world/europe/beirut-lebanon-israel-hezbollah.html
+
 **Tottenham's Odobert undergoes surgery on hamstring injury**\
 `Tottenham Hotpsur winger Wilson Odobert has undergone surgery on a right hamstring injury.`\
 https://nytimes.com/athletic/5927098/2024/11/17/wilson-odobert-injury-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/crosswords/connections-companion-526.html
 **The Sunday Read: ‘How Cheerleading Became So Acrobatic, Dangerous and Popular’**\
 `For decades, the sport has been shaped in large part by one company — and one man.`\
 https://nytimes.com/2024/11/17/podcasts/the-daily/cheerleading-dangerous-popular.html
-
-**How to Save Opera in America? Make It New Again.**\
-`To survive and thrive, we can’t rely on the glories of the past.`\
-https://nytimes.com/2024/11/17/opinion/opera-crisis-new-works.html
 
