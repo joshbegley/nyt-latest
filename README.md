@@ -1,3 +1,11 @@
+**Trump Can Speed Up the Inevitable in Ukraine**\
+`He should force a settlement to save lives and avoid more destruction.`\
+https://nytimes.com/2024/11/17/opinion/trump-ukraine-russia-war.html
+
+**Enough**\
+`To suggest we should yield even a little to Trump’s odious politics is unacceptable. Even if we did, it would never be enough.`\
+https://nytimes.com/2024/11/17/opinion/america-trump-tolerance.html
+
 **Ravens at Steelers: How to watch, odds, expert picks as Lamar Jackson faces Pittsburgh defense**\
 `Another chapter in the storied Ravens-Steelers rivalry, this time for first place in the AFC North.`\
 https://nytimes.com/athletic/5923659/2024/11/17/ravens-steelers-how-to-watch-odds-picks-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5923468/2024/11/17/browns-saints-how-to-watch-odds-
 **Rams at Patriots: How to watch, odds, expert picks with LA favored on the road**\
 `Drake Maye is one of the league's youngest QBs. Matthew Stafford is one of its oldest. They square off Sunday.`\
 https://nytimes.com/athletic/5923442/2024/11/17/rams-patriots-how-to-watch-odds-picks-betting/
-
-**Is Harry Kane still England's best option at No 9?**\
-`What is Kane's standing after Lee Carsley benched him against Greece? Should Watkins start? Or is Bellingham the answer?`\
-https://nytimes.com/athletic/5924369/2024/11/17/is-harry-kane-still-best-striker-england/
-
-**The Man Utd fan who designed their record-selling kit: 'Football was a religion, but so was Adidas'**\
-`Inigo Turner became one of Adidas' top designers - then he got his dream gig, designing kits for his boyhood club`\
-https://nytimes.com/athletic/5885793/2024/11/17/man-utd-kit-designer-interview/
 
