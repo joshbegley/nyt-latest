@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Jody Shelley embraces second career as national broadcaster**\
+`Since retiring as a player after 2012-13, Shelley, 48, is having a blast as one of the NHL's most recognized (and busiest) national voices.`\
+https://nytimes.com/athletic/5927145/2024/11/17/blue-jackets-jody-shelley-nhl-broadcast/
+
 **Biden Allows Ukraine to Strike Russia With Long-Range U.S. Missiles**\
 `With two months left in office, the president for the first time authorized the Ukrainian military to use the system known as ATACMS to help defend its forces in the Kursk region of Russia.`\
 https://nytimes.com/2024/11/17/us/politics/biden-ukraine-russia-atacms-missiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantas
 **Temple fires coach Stan Drayton amid 3-7 season**\
 `Defensive coordinator Everett Withers was named the team's interim head coach for the remainder of the season.`\
 https://nytimes.com/athletic/5927295/2024/11/17/temple-football-stan-drayton-fired/
-
-**Taking Away the Car Keys: Is It the Doctor’s Duty?**\
-`Readers disagree with a guest essay urging mandatory reporting of impaired drivers. Also: The power of plutocrats; a suicide in jail; jaywalking in New York.`\
-https://nytimes.com/2024/11/17/opinion/impaired-drivers-doctors.html
 
