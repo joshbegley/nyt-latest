@@ -1,3 +1,7 @@
+**New Wave of Offensive Texts Targets Hispanic and L.G.B.T.Q. People**\
+`The F.B.I. is investigating messages that told people they would be deported or transported to a “re-education camp.” They came after racist texts were sent to Black people.`\
+https://nytimes.com/2024/11/17/us/election-texts-hispanic-lgbtq.html
+
 **1 Dead and Dozens Ill in E. Coli Outbreak Linked to Organic Carrots**\
 `The outbreak, which has sickened nearly 40 people, has been tied to multiple brands of recalled organic carrots sold by Grimmway Farms, officials said.`\
 https://nytimes.com/2024/11/17/well/carrots-ecoli-outbreak.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927392/2024/11/17/ap-top-25-rankings-football-indi
 **Jannik Sinner wins ATP Tour Finals with serve masterclass against Taylor Fritz**\
 `The Italian crowd watched their sporting hero confirm his supremacy in men's tennis on home soil`\
 https://nytimes.com/athletic/5927447/2024/11/17/sinner-fritz-atp-tour-finals-result-analysis/
-
-**Bela Karolyi, 82, Dies; Gymnastics Coach Was Revered, Then Repudiated**\
-`He rose to fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
-https://nytimes.com/2024/11/17/obituaries/bela-karolyi-dead.html
 

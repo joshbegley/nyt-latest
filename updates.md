@@ -1,3 +1,7 @@
+**New Wave of Offensive Texts Targets Hispanic and L.G.B.T.Q. People**\
+`The F.B.I. is investigating messages that told people they would be deported or transported to a “re-education camp.” They came after racist texts were sent to Black people.`\
+https://nytimes.com/2024/11/17/us/election-texts-hispanic-lgbtq.html
+
 **1 Dead and Dozens Ill in E. Coli Outbreak Linked to Organic Carrots**\
 `The outbreak, which has sickened nearly 40 people, has been tied to multiple brands of recalled organic carrots sold by Grimmway Farms, officials said.`\
 https://nytimes.com/2024/11/17/well/carrots-ecoli-outbreak.html
