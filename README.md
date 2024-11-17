@@ -1,3 +1,7 @@
+**No. 6 BYU loses first game of season to Kansas: Playoff, Big 12 title implications**\
+`The Cougars lost 17-13 at home to the Jayhawks on Saturday night.`\
+https://nytimes.com/athletic/5926955/2024/11/17/byu-kansas-score-analysis-upset-college-football/
+
 **Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
 `After the bout was stopped, Jones shimmied for President-elect Donald Trump, who sat at the side of the octagon.`\
 https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923659/2024/11/17/ravens-steelers-how-to-watch-odd
 **Calm, clear, ruthless – Alessia Russo is the symbol of Arsenal's new-found swagger**\
 `Russo's opener in Arsenal's 3-0 win over Spurs signified everything they have looked to implement since Renee Slegers took interim charge`\
 https://nytimes.com/athletic/5926084/2024/11/17/alessia-russo-arsenal-spurs/
-
-**Darnell Nurse injury leaves concern for Oilers — and a hole in their lineup**\
-`The Oilers defenceman was helped off the ice vs. the Maple Leafs after taking a hit to the head from Ryan Reaves.`\
-https://nytimes.com/athletic/5926787/2024/11/17/oilers-darnell-nurse-injury/
 
