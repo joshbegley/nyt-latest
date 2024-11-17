@@ -1,4 +1,8 @@
 **Wisconsin fires offensive coordinator Phil Longo: What's next for Badgers?**\
+`In 23 games as the Badgers' OC, Longo's offense never fully meshed.`\
+https://nytimes.com/athletic/5927965/2024/11/17/wisconsin-football-phil-longo-fired/
+
+**Wisconsin fires offensive coordinator Phil Longo: What's next for Badgers?**\
 `In 23 games as the Badgers' OC, Longo's offense never fulled meshed.`\
 https://nytimes.com/athletic/5927965/2024/11/17/wisconsin-football-phil-longo-fired/
 
