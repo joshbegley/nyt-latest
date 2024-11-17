@@ -1,3 +1,7 @@
+**Trump Rethinks Candidates for Treasury Secretary**\
+`President-elect Donald J. Trump is expected to invite the contenders for the role, including Kevin Warsh and Marc Rowan, to Mar-a-Lago this week.`\
+https://nytimes.com/2024/11/17/us/politics/trump-treasury-candidates.html
+
 **Julius Randle hits buzzer beater to cap Timberwolves' rally over Suns**\
 `Randle, a former New York Knicks forward, capped a breakout performance with a stepback 3 in just his 14th game with the Timberwolves.`\
 https://nytimes.com/athletic/5928032/2024/11/17/julius-randle-buzzer-beater-timberwolves-suns/
