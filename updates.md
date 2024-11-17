@@ -1,3 +1,7 @@
+**E. Coli Outbreak Linked to Organic Carrots**\
+`One person has died and nearly 40 people have been sickened in an E. coli outbreak tied to multiple brands of recalled organic carrots sold by Grimmway Farms, officials said.`\
+https://nytimes.com/2024/11/17/well/carrots-ecoli-outbreak.html
+
 **Residents Evacuated Because of Fire on New York-New Jersey Border**\
 `The voluntary evacuation plan was put in place in areas affected by the Jennings Creek wildfire. Officials encouraged residents of 165 homes to move out temporarily.`\
 https://nytimes.com/2024/11/17/nyregion/fires-new-york-new-jersey-evacuations.html
