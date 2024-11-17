@@ -1,3 +1,11 @@
+**In a battle of new-look offenses, USC tops Nebraska: Instant analysis**\
+`LOS ANGELES — USC’s Greedy Vance Jr.`\
+https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-college-football/
+
+**Notre Dame proving it has one of nation's best defenses: Virginia takeaways**\
+`Notre Dame dominated Virginia 35-14 for its eighth consecutive win. Will the Irish return for one more home game in the Playoff?`\
+https://nytimes.com/athletic/5926443/2024/11/16/notre-dame-virginia-football-score-recap/
+
 **Shel Talmy, Who Produced the Who and the Kinks, Dies at 87**\
 `Though he was American, he helped define the sound of the British Invasion after settling in London in the early 1960s.`\
 https://nytimes.com/2024/11/16/arts/music/shel-talmy-dead.html
