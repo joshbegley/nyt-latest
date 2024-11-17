@@ -1,3 +1,7 @@
+**Chiefs at Bills: How to watch, odds, expert picks for the next chapter of Mahomes-Allen**\
+`If some extraterrestrial life form wondered why we human beings like the NFL so much — well, we’d show them Chiefs vs. Bills.`\
+https://nytimes.com/athletic/5923736/2024/11/17/chiefs-bills-how-to-watch-odds-picks-betting/
+
 **A Global Fund for Climate Disasters Is Taking Shape in Trump’s Shadow**\
 `The U.N. climate summit in Azerbaijan has cleared the for way aid to flow when lower-income countries are hit.`\
 https://nytimes.com/2024/11/17/climate/loss-damage-fund-cop29-baku.html
