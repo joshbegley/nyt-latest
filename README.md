@@ -1,3 +1,7 @@
+**Former gymnastics coach Béla Károlyi dies at 82**\
+`Károlyi rose to prominence by training Olympic all-around champions Nadia Comăneci and Mary Lou Retton.`\
+https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-dies/
+
 **Donald Trump to attend UFC 309 in New York**\
 `Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
 https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/us/politics/biden-trump-border-crackdown.html
 **Bucks, Doc Rivers livid after controversial call in loss to Hornets**\
 `Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte.`\
 https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul-video/
-
-**Paul vs. Tyson draws 60 million viewers on Netflix amid streaming issues**\
-`Netflix called it a "record-breaking night" and said the bout peaked at 65 million concurrent streams.`\
-https://nytimes.com/athletic/5926460/2024/11/16/jake-paul-mike-tyson-ratings-viewers-netflix/
 
