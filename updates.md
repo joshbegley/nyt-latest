@@ -1,3 +1,7 @@
+**What’s New in the Case of the Document Leaks Roiling Israel**\
+`A judge revealed more details about how and why an aide to Prime Minister Benjamin Netanyahu gave sensitive information to the news media.`\
+https://nytimes.com/2024/11/17/world/middleeast/israel-document-leaks.html
+
 **NFL Week 11 inactives and fantasy tips: George Kittle out, Amari Cooper active**\
 `Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
