@@ -1,3 +1,7 @@
+**Falcons at Broncos: How to watch, odds, expert picks with Denver as small favorite**\
+`Falcons-Broncos is expected to be one of the closer and more intriguing matchups of the Week 11 slate.`\
+https://nytimes.com/athletic/5923691/2024/11/17/falcons-broncos-how-to-watch-odds-picks-betting/
+
 **Russia Launches Major Attack on Power Grid, Ukraine Says**\
 `Ukrainian energy infrastructure was the target of an hourslong attack involving around 120 missiles and 90 drones, officials in the country said. At least five people were killed.`\
 https://nytimes.com/2024/11/17/world/europe/russia-ukraine-war-power-grid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/us/immigration-undocumented-migrants-jobs.html
 **A Star President’s Resignation Was a Mystery. Was It All About Rankings?**\
 `Florida’s star president, Ben Sasse, was among the best paid university presidents ever. He promised a conservative overhaul, but then he resigned, leaving controversy and an embarrassing drop in the U.S. News rankings.`\
 https://nytimes.com/2024/11/17/us/politics/rankings-university-of-florida-ben-sasse.html
-
-**Shen Yun’s Longstanding Labor Practices Attract Regulators’ Scrutiny**\
-`The New York State Department of Labor has opened an inquiry into the global dance group and its treatment of the children and teenagers who stage its shows worldwide.`\
-https://nytimes.com/2024/11/17/nyregion/shen-yun-child-labor-regulator.html
 

@@ -1,3 +1,7 @@
+**Falcons at Broncos: How to watch, odds, expert picks with Denver as small favorite**\
+`Falcons-Broncos is expected to be one of the closer and more intriguing matchups of the Week 11 slate.`\
+https://nytimes.com/athletic/5923691/2024/11/17/falcons-broncos-how-to-watch-odds-picks-betting/
+
 **Russia Launches Major Attack on Power Grid, Ukraine Says**\
 `Ukrainian energy infrastructure was the target of an hourslong attack involving around 120 missiles and 90 drones, officials in the country said. At least five people were killed.`\
 https://nytimes.com/2024/11/17/world/europe/russia-ukraine-war-power-grid.html
