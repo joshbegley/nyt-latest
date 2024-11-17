@@ -1,3 +1,7 @@
+**How the Canucks won ugly against Connor Bedard, lowly Blackhawks: 3 takeaways**\
+`The Canucks were able to get back in the win column in just about the least inspiring way possible in a 4-1 rout of the Blackhawks. `\
+https://nytimes.com/athletic/5926686/2024/11/17/canucks-ugly-win-blackhawks-connor-bedard/
+
 **Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
 `After the bout was stopped, Jones shimmied for President-elect Donald Trump, who sat next to the octagon.`\
 https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
