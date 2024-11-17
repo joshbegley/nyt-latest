@@ -1,6 +1,6 @@
 **What Arizona State's upset of No. 16 Kansas State means for Big 12 title race**\
 `The Sun Devils topped the Wildcats 24-14 on the road, a result that puts Kansas State’s Big 12 title hopes on life support.`\
-https://nytimes.com/athletic/5926707/2024/11/16/arizona-state-upsets-no-16-kansas-state-what-this-means-for-big-12-title-race/
+https://nytimes.com/athletic/5926707/2024/11/16/arizona-state-kansas-state-big-12-title-race-standings/
 
 **No. 1 Oregon survives at Wisconsin with second-half comeback**\
 `No. 1 Oregon scored 10 unanswered fourth-quarter points to fend off an upset bid by Wisconsin at Camp Randall Stadium.`\
