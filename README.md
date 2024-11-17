@@ -1,40 +1,40 @@
-**In a Sea of Neutral Tones, a Real Housewife Chooses Color**\
-`The addition of Bronwyn Newport to the cast of “The Real Housewives of Salt Lake City” has added a maximalist approach to a series known for its understated aesthetic.`\
-https://nytimes.com/2024/11/17/style/bronwyn-newport-real-housewives.html
+**Haiti’s Many Problems and Very Few Solutions, Explained**\
+`A search for a solution to the crisis in Haiti is growing more urgent as gangs gain territory and thousands more flee their homes.`\
+https://nytimes.com/2024/11/17/world/americas/haitis-many-problems-and-very-few-solutions-explained.html
 
-**A.I. Chatbots Defeated Doctors at Diagnosing Illness**\
-`A small study found ChatGPT outdid human physicians when assessing medical case histories, even when those doctors were using a chatbot.`\
-https://nytimes.com/2024/11/17/health/chatgpt-ai-doctors-diagnosis.html
+**Trump Signals a ‘Seismic Shift,’ Shocking the Washington Establishment**\
+`The president-elect’s early transition moves amount to a generational test of a system as he seeks to rewrite the balance of power and install lieutenants to blow up key parts of government.`\
+https://nytimes.com/2024/11/17/us/politics/trump-signals-a-seismic-shift-shocking-the-washington-establishment.html
 
-**Cher Can, and Does, Turn Back Time**\
-`In the first volume of her memoir (which she hasn’t read), she explores her difficult childhood, her fraught marriage to Sonny Bono and how she found her voice.`\
-https://nytimes.com/2024/11/17/books/cher-memoir.html
+**In Pennsylvania, the Election Litigation Continues, With a Twist**\
+`As a Senate recount plays out, at least four counties are ignoring an order from the State Supreme Court that undated or misdated mail ballots cannot be counted.`\
+https://nytimes.com/2024/11/17/us/pennsylvania-election-ballots-recount.html
 
-**Barnard’s Star Finally Has a Planet, and Possibly More**\
-`For a century, exoplanet hunters have “discovered” planets around a nearby star, only to retract the claims. But the latest find is for real.`\
-https://nytimes.com/2024/11/17/science/space/barnards-star-planets.html
+**Paramount Takes Promotional Stunt to New Level for ‘Gladiator II’**\
+`The studio plans to air the same 60-second trailer on 4,000 TV, radio and digital channels on Monday.`\
+https://nytimes.com/2024/11/17/business/media/gladiator-2-marketing-stunt-paramount.html
 
-**Inside a teaching moment for Juraj Slafkovský and what it meant for the Canadiens**\
-`Benching a No. 1 pick is not easy, but Martin St. Louis felt it was necessary for a rebuilding Canadiens team, and it paid off.`\
-https://nytimes.com/athletic/5926937/2024/11/17/canadiens-win-blue-jackets-juraj-slafkovsky/
+**Bluesky Is Growing Up. Maybe Too Fast.**\
+`The fledgling social media site has been flooded by people seeking alternatives to Facebook, X and Threads. It hasn’t all been easy.`\
+https://nytimes.com/2024/11/17/technology/bluesky-growing-pains.html
 
-**20 Years of Orcs, Guilds and Memes in World of Warcraft**\
-`The online role-playing game is more than just a game. It changed how we talk, love, grieve, spend money and hang out.`\
-https://nytimes.com/2024/11/17/arts/world-of-warcraft-20th-anniversary.html
+**How Kamala Harris Burned Through $1.5 Billion in 15 Weeks**\
+`Her frenzied spending has led to second-guessing among some Democrats and questions as she has pressed for more cash since the election.`\
+https://nytimes.com/2024/11/17/us/politics/harris-campaign-finances.html
 
-**The New Chip Shot in the N.F.L.: 50-Yard Field Goals**\
-`Kickers are better than ever, but the record pace of long attempts this season has been remarkable.`\
-https://nytimes.com/2024/11/17/upshot/nfl-field-goal-kickers-records.html
+**Morales: USC needed its win against Nebraska — even if the Trojans still have a ways to go**\
+`The Trojans sealed a 28-20 victory on Saturday that shifted the mood around the program.`\
+https://nytimes.com/athletic/5926807/2024/11/17/usc-nebraska-college-football-lincoln-riley-win/
 
-**How good is the Ball State job? Grading the gig and breaking down candidates**\
-`Within the MAC, Ball State is one of the more difficult jobs. Still, each of the last three head coaches have had breakout seasons.`\
-https://nytimes.com/athletic/5926418/2024/11/17/ball-state-coaching-search-job-profile/
+**Why ‘Tammy Faye’ the Musical Feels Like a Redemption**\
+`The televangelist defended gay men during the AIDS crisis. Now she’s getting perhaps the gayest tribute: a Broadway show led by Elton John.`\
+https://nytimes.com/2024/11/17/theater/why-tammy-faye-the-musical-feels-like-a-redemption.html
 
-**To Save More Water, American Homes Need Smaller Pipes**\
-`Most of the plumbing pipes in the United States are oversize, wasting water in a time of increasing drought.`\
-https://nytimes.com/2024/11/17/realestate/to-save-more-water-american-homes-need-smaller-pipes.html
+**At COP29, Climate ‘Optimism Has Been Dampened’**\
+`Brad Plumer is reporting from Azerbaijan, where the annual U.N. climate summit got underway this week.`\
+https://nytimes.com/2024/11/17/insider/cop29-climate-optimism.html
 
-**The Broken Promises of a Table Tennis Olympian**\
-`Michael Hyatt used his charisma and tales of athletic prowess to persuade a string of women to open up their homes and wallets, leaving them disillusioned, bitter and in debt.`\
-https://nytimes.com/2024/11/17/business/michael-hyatt-table-tennis-fraud.html
+**Liberals Are Left Out in the Cold as Social Media Veers Right**\
+`If the election underscored anything about the internet, it was the ascendancy of social platforms for the right. That puts Democrats at a disadvantage.`\
+https://nytimes.com/2024/11/17/technology/election-right-wing-social-media.html
 

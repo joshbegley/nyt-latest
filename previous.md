@@ -1,40 +1,40 @@
-**Falcons at Broncos: How to watch, odds, expert picks with Denver as small favorite**\
-`Falcons-Broncos is expected to be one of the closer and more intriguing matchups of the Week 11 slate.`\
-https://nytimes.com/athletic/5923691/2024/11/17/falcons-broncos-how-to-watch-odds-picks-betting/
+**In a Sea of Neutral Tones, a Real Housewife Chooses Color**\
+`The addition of Bronwyn Newport to the cast of “The Real Housewives of Salt Lake City” has added a maximalist approach to a series known for its understated aesthetic.`\
+https://nytimes.com/2024/11/17/style/bronwyn-newport-real-housewives.html
 
-**Russia Launches Major Attack on Power Grid, Ukraine Says**\
-`Ukrainian energy infrastructure was the target of an hourslong attack involving around 120 missiles and 90 drones, officials in the country said. At least five people were killed.`\
-https://nytimes.com/2024/11/17/world/europe/russia-ukraine-war-power-grid.html
+**A.I. Chatbots Defeated Doctors at Diagnosing Illness**\
+`A small study found ChatGPT outdid human physicians when assessing medical case histories, even when those doctors were using a chatbot.`\
+https://nytimes.com/2024/11/17/health/chatgpt-ai-doctors-diagnosis.html
 
-**Pat Koch Thaler, Sister to a Famed Mayor, Chose to Die on a Saturday**\
-`Ms. Thaler, a former dean at N.Y.U., used her last interview to reminisce about her brother, Ed, and to publicize the alternatives to prolonging pain and suffering.`\
-https://nytimes.com/2024/11/17/nyregion/pat-koch-thaler-dead.html
+**Cher Can, and Does, Turn Back Time**\
+`In the first volume of her memoir (which she hasn’t read), she explores her difficult childhood, her fraught marriage to Sonny Bono and how she found her voice.`\
+https://nytimes.com/2024/11/17/books/cher-memoir.html
 
-**Jim Hendricks? Oh, Jimi Hendrix.**\
-`A misspelled name meant photos of one of the musician’s most memorable performances, at Woodstock, were hiding in plain sight for three decades.`\
-https://nytimes.com/2024/11/17/insider/jim-hendricks-oh-jimi-hendrix.html
+**Barnard’s Star Finally Has a Planet, and Possibly More**\
+`For a century, exoplanet hunters have “discovered” planets around a nearby star, only to retract the claims. But the latest find is for real.`\
+https://nytimes.com/2024/11/17/science/space/barnards-star-planets.html
 
-**Trump Boosters Expect Big Returns on Their Investment: ‘The Shackles Are Off’**\
-`Wealthy donors to the president-elect’s campaign anticipate a more business-friendly atmosphere, including the firing of Biden-era regulators.`\
-https://nytimes.com/2024/11/17/us/politics/trump-presidency-billionaires.html
+**Inside a teaching moment for Juraj Slafkovský and what it meant for the Canadiens**\
+`Benching a No. 1 pick is not easy, but Martin St. Louis felt it was necessary for a rebuilding Canadiens team, and it paid off.`\
+https://nytimes.com/athletic/5926937/2024/11/17/canadiens-win-blue-jackets-juraj-slafkovsky/
 
-**‘A Woman in the Middle of the Crowded Car Began to Hyperventilate.’**\
-`Calming a subway panic attack, contemplating a Bronx bullfrog and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/11/17/nyregion/metropolitan-diary.html
+**20 Years of Orcs, Guilds and Memes in World of Warcraft**\
+`The online role-playing game is more than just a game. It changed how we talk, love, grieve, spend money and hang out.`\
+https://nytimes.com/2024/11/17/arts/world-of-warcraft-20th-anniversary.html
 
-**How to Stop a Late-in-Life Divorce From Ruining Your Retirement**\
-`As the number of couples who split after the age of 50 rises, more Americans are looking at a retirement that is drastically different than they had expected.`\
-https://nytimes.com/2024/11/17/business/divorce-retirement-savings.html
+**The New Chip Shot in the N.F.L.: 50-Yard Field Goals**\
+`Kickers are better than ever, but the record pace of long attempts this season has been remarkable.`\
+https://nytimes.com/2024/11/17/upshot/nfl-field-goal-kickers-records.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/17/crosswords/spelling-bee-forum.html
+**How good is the Ball State job? Grading the gig and breaking down candidates**\
+`Within the MAC, Ball State is one of the more difficult jobs. Still, each of the last three head coaches have had breakout seasons.`\
+https://nytimes.com/athletic/5926418/2024/11/17/ball-state-coaching-search-job-profile/
 
-**The Hidden Truth Linking the Broken Border to Your Online Shopping Cart**\
-`The incoming Trump administration promises an immigration crackdown. But for years, the on-demand economy has been fueled by unscrupulous staffing agencies exploiting migrant workers.`\
-https://nytimes.com/2024/11/17/us/immigration-undocumented-migrants-jobs.html
+**To Save More Water, American Homes Need Smaller Pipes**\
+`Most of the plumbing pipes in the United States are oversize, wasting water in a time of increasing drought.`\
+https://nytimes.com/2024/11/17/realestate/to-save-more-water-american-homes-need-smaller-pipes.html
 
-**A Star President’s Resignation Was a Mystery. Was It All About Rankings?**\
-`Florida’s star president, Ben Sasse, was among the best paid university presidents ever. He promised a conservative overhaul, but then he resigned, leaving controversy and an embarrassing drop in the U.S. News rankings.`\
-https://nytimes.com/2024/11/17/us/politics/rankings-university-of-florida-ben-sasse.html
+**The Broken Promises of a Table Tennis Olympian**\
+`Michael Hyatt used his charisma and tales of athletic prowess to persuade a string of women to open up their homes and wallets, leaving them disillusioned, bitter and in debt.`\
+https://nytimes.com/2024/11/17/business/michael-hyatt-table-tennis-fraud.html
 
