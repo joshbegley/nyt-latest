@@ -1,3 +1,7 @@
+**Wisconsin takes surprise halftime lead over No. 1 Oregon**\
+`Wisconsin scored a touchdown with 25 seconds left in the second quarter to pull ahead of No. 1 Oregon at halftime.`\
+https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
+
 **In a battle of new-look offenses, USC tops Nebraska: Instant analysis**\
 `USC’s Greedy Vance Jr. iced the Trojans’ 28-20 win against Nebraska with an interception of Huskers quarterback Dylan Raiola.`\
 https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-college-football/
