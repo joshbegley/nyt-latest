@@ -1,3 +1,7 @@
+**Slaying Dragons for 20 Years**\
+`World of Warcraft was first released two decades ago.`\
+https://nytimes.com/2024/11/17/briefing/world-of-warcraft-20th-anniversary.html
+
 **Week 12 CFP race lessons: Georgia’s still alive, an SEC-Big Ten debate looms**\
 `There are two weeks left in the regular season and there appear to be more teams hanging around Playoff contention than falling out.`\
 https://nytimes.com/athletic/5927008/2024/11/17/college-football-playoff-week-12-race-sec-big-ten-rankings/
