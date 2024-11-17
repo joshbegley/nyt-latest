@@ -1,3 +1,11 @@
+**Gaetz Report Drama Brings a House Republican Feud Full Circle**\
+`A vendetta over the congressional ethics investigation into Matt Gaetz helped sink the last speaker. The new speaker has moved to quash it.`\
+https://nytimes.com/2024/11/17/us/politics/gaetz-mccarthy-johnson-ethics-report.html
+
+**Rooney's time as Plymouth manager being recorded for documentary**\
+`TV cameras are tracking Wayne Rooney this season for a documentary series that will follow his time as manager of Plymouth Argyle.`\
+https://nytimes.com/athletic/5927372/2024/11/17/wayne-rooney-tv-documentary-plymouth/
+
 **Ann Selzer Announces End of Election Polling Operation**\
 `Her final poll of Iowa before the election showed Kamala Harris leading Donald Trump, an outlier and a major miss.`\
 https://nytimes.com/2024/11/17/us/politics/ann-selzer-ends-election-polls.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5927215/2024/11/17/rory-mcilroy-race-to-dubai-dp-wo
 **Until Saturday: Colorado's Playoff path, plus some Week 12 questions**\
 `Welcome to Until Saturday, the five-star college football newsletter: What is Colorado's path to the College Football Playoff?`\
 https://nytimes.com/athletic/5927069/2024/11/17/colorado-college-football-playoff-until-saturday/
-
-**In Wisconsin's struggle to win big games, Oregon loss is biggest gut punch yet**\
-`Wisconsin, which hasn't beaten a ranked opponent under Luke Fickell, led No. 1 Oregon entering the fourth quarter but couldn't hold on.`\
-https://nytimes.com/athletic/5927221/2024/11/17/wisconsin-football-oregon-luke-fickell/
-
-**On ‘S.N.L.,’ a Peaceful Transition to Trump’s Cabinet of Curiosities**\
-`Sarah Sherman plays Matt Gaetz as well as the widow of P’Nut, the conservative darling of the rodent world, while Charli XCX and pals serenade a mom-to-be.`\
-https://nytimes.com/2024/11/17/arts/television/snl-charli-xcx-dana-carvey-biden.html
 
