@@ -1,3 +1,7 @@
+**Celeste Caeiro, Whose Flowers Gave a Name to a Revolt, Dies at 91**\
+`In Portugal in 1974, she spontaneously gave red carnations to soldiers on their way to ending a dictatorship in what became known as the Carnation Revolution.`\
+https://nytimes.com/2024/11/17/world/europe/celeste-caeiro-dead.html
+
 **Stafford tosses 4 TDs as Rams hold off Patriots 28-22: Takeaways**\
 `The back-and-forth passing affair between Matthew Stafford and Drake Maye was won by Stafford in his second-ever trip to Gillette Stadium.`\
 https://nytimes.com/athletic/5927307/2024/11/17/rams-patriots-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/briefing/ukraine-russia-trump-shen-yun.html
 **Biden Visits Amazon, Vowing Help to Fight Climate Change**\
 `The president toured the rainforest and promised Brazil funds for environmental initiatives, even as the incoming Trump administration appears poised to roll them back.`\
 https://nytimes.com/2024/11/17/world/americas/biden-amazon-climate.html
-
-**Lawrence Robbins, Lawyer for Prominent D.C. Figures, Dies at 72**\
-`He argued 20 cases before the Supreme Court and prepared witnesses like Marie Yovanovitch and Christine Blasey Ford for their congressional testimony.`\
-https://nytimes.com/2024/11/17/obituaries/lawrence-robbins-dead.html
 
