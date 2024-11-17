@@ -1,3 +1,7 @@
+**A Global Fund for Climate Disasters Is Taking Shape in Trump’s Shadow**\
+`The U.N. climate summit in Azerbaijan has cleared the for way aid to flow when lower-income countries are hit.`\
+https://nytimes.com/2024/11/17/climate/loss-damage-fund-cop29-baku.html
+
 **Haiti’s Many Problems and Very Few Solutions, Explained**\
 `A search for a solution to the crisis in Haiti is growing more urgent as gangs gain territory and thousands more flee their homes.`\
 https://nytimes.com/2024/11/17/world/americas/haitis-many-problems-and-very-few-solutions-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/theater/why-tammy-faye-the-musical-feels-like-a-r
 **At COP29, Climate ‘Optimism Has Been Dampened’**\
 `Brad Plumer is reporting from Azerbaijan, where the annual U.N. climate summit got underway this week.`\
 https://nytimes.com/2024/11/17/insider/cop29-climate-optimism.html
-
-**Liberals Are Left Out in the Cold as Social Media Veers Right**\
-`If the election underscored anything about the internet, it was the ascendancy of social platforms for the right. That puts Democrats at a disadvantage.`\
-https://nytimes.com/2024/11/17/technology/election-right-wing-social-media.html
 
