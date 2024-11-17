@@ -1,4 +1,8 @@
-**NFL Week 11 inactives and fantasy tips: George Kittle out for contest against Seattle**\
+**What’s New in the Case of the Document Leaks Roiling Israel**\
+`A judge revealed more details about how and why an aide to Prime Minister Benjamin Netanyahu gave sensitive information to the news media.`\
+https://nytimes.com/2024/11/17/world/middleeast/israel-document-leaks.html
+
+**NFL Week 11 inactives and fantasy tips: George Kittle out, Amari Cooper active**\
 `Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/arts/betty-white-postage-stamp.html
 **Anthony Edwards fined $35K for giving fan middle finger**\
 `The fine isn't the first of Edwards' career.`\
 https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-finger/
-
-**USC flips 5-star QB Husan Longstreet from Texas A&M: What this means for the Trojans**\
-`Longstreet, who plays at Corona (Calif.) Centennial, is ranked No. 34 overall and the No. 6 quarterback in the Class of 2025.`\
-https://nytimes.com/athletic/5920030/2024/11/17/usc-recruiting-husan-longstreet-julian-lewis/
 
