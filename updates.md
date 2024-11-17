@@ -1,3 +1,7 @@
+**Residents Evacuated Because of Fire on New York-New Jersey Border**\
+`The voluntary evacuation plan was put in place in areas affected by the Jennings Creek wildfire. Officials encouraged residents of 165 homes to move out temporarily.`\
+https://nytimes.com/2024/11/17/nyregion/fires-new-york-new-jersey-evacuations.html
+
 **Monday Briefing: Ukraine Can Hit Russia With U.S. Long-Range Weapons**\
 `Plus, World of Warcraft turned 20.`\
 https://nytimes.com/2024/11/17/briefing/ukraine-russia-trump-shen-yun.html
