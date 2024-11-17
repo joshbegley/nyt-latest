@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Jody Shelley embraces second career as national broadcaster**\
+`Since retiring as a player after 2012-13, Shelley, 48, is having a blast as one of the NHL's most recognized (and busiest) national voices.`\
+https://nytimes.com/athletic/5927145/2024/11/17/blue-jackets-jody-shelley-nhl-broadcast/
+
 **Biden Allows Ukraine to Strike Russia With Long-Range U.S. Missiles**\
 `With two months left in office, the president for the first time authorized the Ukrainian military to use the system known as ATACMS to help defend its forces in the Kursk region of Russia.`\
 https://nytimes.com/2024/11/17/us/politics/biden-ukraine-russia-atacms-missiles.html
