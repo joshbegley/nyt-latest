@@ -1,3 +1,7 @@
+**Ann Selzer Announces End of Election Polling Operation**\
+`Her final poll of Iowa before the election showed Kamala Harris leading Donald Trump, an outlier and a major miss.`\
+https://nytimes.com/2024/11/17/us/politics/ann-selzer-ends-election-polls.html
+
 **Clifton R. Wharton Jr., Who Broke Racial Barriers, Is Dead at 98**\
 `He was the first African American to become president of a large white university, C.E.O. of a major corporation and deputy secretary of state.`\
 https://nytimes.com/2024/11/17/us/politics/clifton-r-wharton-jr-dead.html
