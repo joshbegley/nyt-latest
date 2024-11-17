@@ -1,3 +1,7 @@
+**Trump Rethinks Candidates for Treasury Secretary**\
+`President-elect Donald J. Trump is expected to invite the contenders for the role, including Kevin Warsh and Marc Rowan, to Mar-a-Lago this week.`\
+https://nytimes.com/2024/11/17/us/politics/trump-treasury-candidates.html
+
 **Julius Randle hits buzzer beater to cap Timberwolves' rally over Suns**\
 `Randle, a former New York Knicks forward, capped a breakout performance with a stepback 3 in just his 14th game with the Timberwolves.`\
 https://nytimes.com/athletic/5928032/2024/11/17/julius-randle-buzzer-beater-timberwolves-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927748/2024/11/17/lamelo-ball-fine-interview-comme
 **Biden Pledges New Funding to Protect the Amazon**\
 `President Biden pledged financial help to protect the Amazon during a visit to Brazil, making one final push to combat climate change before the end of his term.`\
 https://nytimes.com/video/science/earth/100000009830482/biden-pledges-new-funding-to-protect-the-amazon.html
-
-**Marta's GOAT goal fires Orlando Pride to NWSL final**\
-`There was a moment in the 2024 NWSL semifinal, when Barbra Banda was receiving treatment, that the cameras zoomed in on a set of water bottles.`\
-https://nytimes.com/athletic/5927882/2024/11/17/marta-nwsl-goal-play-off-orlando/
 
