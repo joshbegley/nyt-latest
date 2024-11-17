@@ -1,3 +1,7 @@
+**Donald Trump to attend UFC 309 in New York**\
+`Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
+https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
+
 **In a battle of new-look offenses, USC tops Nebraska: Instant analysis**\
 `LOS ANGELES — USC’s Greedy Vance Jr.`\
 https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul
 **Paul vs. Tyson draws 60 million viewers on Netflix amid streaming issues**\
 `Netflix called it a "record-breaking night" and said the bout peaked at 65 million concurrent streams.`\
 https://nytimes.com/athletic/5926460/2024/11/16/jake-paul-mike-tyson-ratings-viewers-netflix/
-
-**Man With Neo-Nazi Ties Sentenced to Life in Killing of Gay Ex-Classmate**\
-`Samuel Woodward, who espoused anti-gay rhetoric and had ties to Atomwaffen, a neo-Nazi group, stabbed his victim 28 times in a hate-fueled murder, prosecutors said.`\
-https://nytimes.com/2024/11/16/us/samuel-woodward-hate-crime-life-sentence.html
 
