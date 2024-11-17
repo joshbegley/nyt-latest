@@ -1,3 +1,7 @@
+**U.S. Opens Investigation Into Killing of Sonya Massey**\
+`The Justice Department notified Sangamon County, Ill., that it had opened a civil rights investigation after reports about the shooting raised “serious concerns.”`\
+https://nytimes.com/2024/11/17/us/sonya-massey-shooting-investigation.html
+
 **Gaetz Report Drama Brings a House Republican Feud Full Circle**\
 `A vendetta over the congressional ethics investigation into Matt Gaetz helped sink the last speaker. The new speaker has moved to quash it.`\
 https://nytimes.com/2024/11/17/us/politics/gaetz-mccarthy-johnson-ethics-report.html
