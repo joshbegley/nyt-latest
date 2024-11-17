@@ -1,3 +1,7 @@
+**Florida deals LSU knockout blow in SEC title race**\
+`Billy Napier and Florida earned a crucial win to get a step closer to a bowl, while LSU and Brian Kelly are left searching for answers.`\
+https://nytimes.com/athletic/5926491/2024/11/16/florida-lsu-football-score-recap-sec/
+
 **Man Hiding Tarantulas, Centipedes and Ants Is Stopped From Boarding Flight**\
 `Officials in Lima, Peru, said the endangered spiders had been taken from the Amazon basin. The man was flying to South Korea.`\
 https://nytimes.com/2024/11/16/world/americas/tarantulas-centipedes-smuggling-arrest-peru.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/us/melissa-lucio-texas-death-row-innocent.html
 **First U.S. Case of Severe Form of Mpox Reported in California**\
 `The unidentified patient had recently returned from Africa, where the virus has caused a deadly epidemic, health officials said.`\
 https://nytimes.com/2024/11/16/health/mpox-california.html
-
-**'We haven't been there all year': Bruins' struggling offense may never show up**\
-`The Bruins need more from their go-to players for a real turnaround. Whether that’s coming remains to be seen.`\
-https://nytimes.com/athletic/5926392/2024/11/16/bruins-blues-offense-trent-frederic/
 
