@@ -1,3 +1,7 @@
+**How short-handed Wild lost yet again to their rival Stars: 3 takeaways**\
+`Without three of their best players, the Wild were defeated 2-1 by the Stars thanks to a two-goal night from Mason Marchment.`\
+https://nytimes.com/athletic/5926552/2024/11/16/wild-stars-takeaways-mason-marchment/
+
 **'Inside the NBA' moving to ABC and ESPN as TNT, NBA settle suit**\
 `"Inside the NBA" panelists Charles Barkley, Shaquille O'Neal, Ernie Johnson and Kenny Smith will remain with the show, sources said.`\
 https://nytimes.com/athletic/5926632/2024/11/16/inside-the-nba-abc-espn-tnt-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-di
 **College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-projections-odds/
-
-**Donald Trump attends UFC 309 in New York**\
-`Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
-https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
 
