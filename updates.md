@@ -1,3 +1,7 @@
+**AP Top 25: Ohio State, Indiana set for top-5 showdown**\
+`Oregon, Ohio State, Texas, Penn State and Indiana make up an unchanged top five in the AP poll, with plenty of SEC debates to be had.`\
+https://nytimes.com/athletic/5927392/2024/11/17/ap-top-25-rankings-football-indiana-osu/
+
 **Bela Karolyi, 82, Dies; Gymnastics Coach Was Revered, Then Repudiated**\
 `He rose to fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
 https://nytimes.com/2024/11/17/obituaries/bela-karolyi-dead.html

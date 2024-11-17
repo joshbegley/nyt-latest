@@ -1,3 +1,7 @@
+**AP Top 25: Ohio State, Indiana set for top-5 showdown**\
+`Oregon, Ohio State, Texas, Penn State and Indiana make up an unchanged top five in the AP poll, with plenty of SEC debates to be had.`\
+https://nytimes.com/athletic/5927392/2024/11/17/ap-top-25-rankings-football-indiana-osu/
+
 **Jannik Sinner wins ATP Tour Finals with serve masterclass against Taylor Fritz**\
 `The Italian crowd watched their sporting hero confirm his supremacy in men's tennis at home.`\
 https://nytimes.com/athletic/5927447/2024/11/17/sinner-fritz-atp-tour-finals-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920030/2024/11/17/usc-recruiting-husan-longstreet-
 **Liverpool boss Beard suggests WSL referees have personal agenda against him**\
 `Liverpool Women manager Matt Beard has suggested referees may have a personal agenda against him after his side’s controversial Women’s Super League (WSL) defeat to Everton.`\
 https://nytimes.com/athletic/5927471/2024/11/17/matt-beard-referees-liverpool/
-
-**Blue Jackets Sunday Gathering: Jody Shelley embraces second career as national broadcaster**\
-`Since retiring as a player after 2012-13, Shelley, 48, is having a blast as one of the NHL's most recognized (and busiest) national voices.`\
-https://nytimes.com/athletic/5927145/2024/11/17/blue-jackets-jody-shelley-nhl-broadcast/
 
