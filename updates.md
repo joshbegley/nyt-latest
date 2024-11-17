@@ -1,4 +1,8 @@
 **Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
+`After the bout was stopped, Jones shimmied for President-elect Donald Trump, who sat at the side of the octagon.`\
+https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
+
+**Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
 `NEW YORK — Combat sports fans love a dominant heavyweight champ.`\
 https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
 
