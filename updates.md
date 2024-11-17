@@ -1,3 +1,7 @@
+**Julius Randle hits buzzer beater to cap Timberwolves' rally over Suns**\
+`Randle, a former New York Knicks forward, capped a breakout performance with a stepback 3 in just his 14th game with the Timberwolves.`\
+https://nytimes.com/athletic/5928032/2024/11/17/julius-randle-buzzer-beater-timberwolves-suns/
+
 **Wisconsin fires offensive coordinator Phil Longo: What's next for Badgers?**\
 `In 23 games as the Badgers' OC, Longo's offense never fully meshed.`\
 https://nytimes.com/athletic/5927965/2024/11/17/wisconsin-football-phil-longo-fired/
