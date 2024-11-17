@@ -1,3 +1,7 @@
+**Ann Selzer Announces End of Election Polling Operation**\
+`Her final poll of Iowa before the election showed Kamala Harris leading Donald Trump, an outlier and a major miss.`\
+https://nytimes.com/2024/11/17/us/politics/ann-selzer-ends-election-polls.html
+
 **Clifton R. Wharton Jr., Who Broke Racial Barriers, Is Dead at 98**\
 `He was the first African American to become president of a large white university, C.E.O. of a major corporation and deputy secretary of state.`\
 https://nytimes.com/2024/11/17/us/politics/clifton-r-wharton-jr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927221/2024/11/17/wisconsin-football-oregon-luke-f
 **On ‘S.N.L.,’ a Peaceful Transition to Trump’s Cabinet of Curiosities**\
 `Sarah Sherman plays Matt Gaetz as well as the widow of P’Nut, the conservative darling of the rodent world, while Charli XCX and pals serenade a mom-to-be.`\
 https://nytimes.com/2024/11/17/arts/television/snl-charli-xcx-dana-carvey-biden.html
-
-**Live Q&A: Week 11 fantasy football start/sit chat with Jay Felicio, Sunday 11/17 at 11 a.m. ET**\
-`Submit your Week 11 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5920144/2024/11/17/live-qa-week-11-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-17-at-11-a-m-et/
 
