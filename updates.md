@@ -1,3 +1,11 @@
+**Stafford tosses 4 TDs as Rams hold off Patriots 28-22: Takeaways**\
+`The back-and-forth passing affair between Matthew Stafford and Drake Maye was won by Stafford in his second-ever trip to Gillette Stadium.`\
+https://nytimes.com/athletic/5927307/2024/11/17/rams-patriots-score-result-takeaways/
+
+**Families of American Victims of Oct. 7 Attack Sue Iran**\
+`The lawsuit aims to highlight Iran’s role in the attack that killed about 1,200 people as well as its support for Hamas and other terrorist groups.`\
+https://nytimes.com/2024/11/17/us/politics/iran-oct-7-families-lawsuit.html
+
 **Lions hand Jags worst loss in team history in 52-6 drubbing: Takeaways**\
 `Jacksonville’s 46-point loss was the worst loss in franchise history, surpassing the 44-point loss in 1995.`\
 https://nytimes.com/athletic/5927301/2024/11/17/jaguars-lions-score-result-takeaways/
