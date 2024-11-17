@@ -1,3 +1,7 @@
+**Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
+`NEW YORK — Combat sports fans love a dominant heavyweight champ.`\
+https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
+
 **SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
 `But that's if no more upsets occur and it goes to the newly installed SEC tiebreakers. A potential six-team tie remains very much alive.`\
 https://nytimes.com/athletic/5926924/2024/11/17/sec-tiebreaker-scenarios-update-alabama-texas-texas-am/
