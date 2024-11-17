@@ -1,3 +1,36 @@
+**How Penguins survived another blown lead against Sharks: 3 takeaways**\
+`For a change, a blown multi-goal lead to the Sharks wasn't costly for the Penguins.
+`\
+https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni-malkin/
+
+**They Cared for New Life. Then Death Came to Their Clinic.**\
+`It was one horrific day of the war in Ukraine when a missile fell on the Adonis clinic in Kyiv.`\
+https://nytimes.com/2024/11/17/world/europe/ukraine-clinic-missile-russia.html
+
+**Quote of the Day: Blaring Dreadful Noise Across Border, North Korea Adds Insomnia to Its Arsenal**\
+`Quotation of the Day for Sunday, November 17, 2024.`\
+https://nytimes.com/2024/11/17/pageoneplus/quote-of-the-day-blaring-dreadful-noise-across-border-north-korea-adds-insomnia-to-its-arsenal.html
+
+**‘No Use for Hatred’: A Village Seeks to Move On From a U.S. Massacre**\
+`The hamlet of My Lai is infamous for American war crimes, but now it holds lessons in resilience and how to let go of anger.`\
+https://nytimes.com/2024/11/17/world/asia/my-lai-massacre-vietman-museum.html
+
+**England vs Ireland preview: Storylines, odds, prediction as Three Lions go for promotion**\
+`England hope to lock up promotion in the Nations League with a win against Ireland at Wembley.`\
+https://nytimes.com/athletic/5925053/2024/11/17/england-ireland-preview-odds-prediction/
+
+**Italy vs France preview: Storylines, odds, prediction as European powers meet**\
+`France visits Italy in the finale in Nations League group play. Both teams have advanced to the quarter-finals.`\
+https://nytimes.com/athletic/5924958/2024/11/17/italy-france-preview-odds-prediction/
+
+**Footballers have a key accessory - a PlayStation (and they may hold a secret role in success)**\
+`Footballers take PlayStations away on international breaks and trips abroad — and teams have bonded through it`\
+https://nytimes.com/athletic/5917188/2024/11/17/football-playstation-video-games/
+
+**Vikings at Titans: How to watch, odds, expert picks for Minnesota's potential trap game**\
+`The Vikings are big road favorites against the Titans on Sunday.`\
+https://nytimes.com/athletic/5922976/2024/11/17/vikings-titans-how-to-watch-odds-picks-betting/
+
 **Blue Jackets 'went rogue' in Montreal, dashing hope of an offensive resurgence**\
 `Which team will show up when Columbus faces Boston on Monday?`\
 https://nytimes.com/athletic/5926660/2024/11/16/blue-jackets-canadiens-loss/
@@ -5,36 +38,4 @@ https://nytimes.com/athletic/5926660/2024/11/16/blue-jackets-canadiens-loss/
 **Maple Leafs report cards: Mitch Marner secures well-fought and deserved win**\
 `Mitch Marner's 200th career goal lifted the Maple Leafs past the Oilers 4-3 in overtime.`\
 https://nytimes.com/athletic/5926700/2024/11/16/maple-leafs-oilers-ryan-reaves-darnell-nurse/
-
-**Jaguars at Lions: How to watch, odds, expert picks with Detroit as big favorite**\
-`The Lions will hope to avoid a trap game hosting the Jaguars this Sunday.`\
-https://nytimes.com/athletic/5922927/2024/11/16/jaguars-lions-how-to-watch-odds-picks-betting/
-
-**Ashton Jeanty breaks Boise State rushing record as Broncos roll past SJSU**\
-`Jeanty now has 1,893 rushing yards through Boise State’s first 10 games of the season.`\
-https://nytimes.com/athletic/5926777/2024/11/16/boise-state-san-jose-state-ashton-jeanty/
-
-**Packers at Bears: How to watch, odds, expert picks with Green Bay favored over reeling Chicago**\
-`It’s hard to imagine worse vibes around the Chicago Bears — but another home blowout, to the arch-rival Green Bay Packers, would do it.`\
-https://nytimes.com/athletic/5922872/2024/11/16/packers-bears-how-to-watch-odds-picks-betting/
-
-**Where Georgia, Tennessee stand in CFP, SEC after Bulldogs' win**\
-`Saturday night's showdown gave Georgia a third win this season over a current Top 25 team and put Tennessee squarely on the bubble.`\
-https://nytimes.com/athletic/5926682/2024/11/16/georgia-tennessee-football-sec-playoff-picture/
-
-**What Arizona State's upset of No. 16 Kansas State means for Big 12 title race**\
-`The Sun Devils topped the Wildcats 24-14 on the road, a result that puts Kansas State’s Big 12 title hopes on life support.`\
-https://nytimes.com/athletic/5926707/2024/11/16/arizona-state-kansas-state-big-12-title-race-standings/
-
-**No. 1 Oregon survives at Wisconsin with second-half comeback**\
-`No. 1 Oregon scored 10 unanswered fourth-quarter points to fend off an upset bid by Wisconsin at Camp Randall Stadium.`\
-https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
-
-**How short-handed Wild lost yet again to their rival Stars: 3 takeaways**\
-`Without three of their best players, the Wild were defeated 2-1 by the Stars thanks to a two-goal night from Mason Marchment.`\
-https://nytimes.com/athletic/5926552/2024/11/16/wild-stars-takeaways-mason-marchment/
-
-**'Inside the NBA' moving to ABC and ESPN as TNT, NBA settle suit**\
-`"Inside the NBA" panelists Charles Barkley, Shaquille O'Neal, Ernie Johnson and Kenny Smith will remain with the show, sources said.`\
-https://nytimes.com/athletic/5926632/2024/11/16/inside-the-nba-abc-espn-tnt-lawsuit/
 
