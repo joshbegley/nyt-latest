@@ -1,3 +1,15 @@
+**Monday Briefing: Ukraine Can Hit Russia With U.S. Long-Range Weapons**\
+`Plus, World of Warcraft turned 20.`\
+https://nytimes.com/2024/11/17/briefing/ukraine-russia-trump-shen-yun.html
+
+**Biden Visits Amazon, Vowing Help to Fight Climate Change**\
+`The president toured the rainforest and promised Brazil funds for environmental initiatives, even as the incoming Trump administration appears poised to roll them back.`\
+https://nytimes.com/2024/11/17/world/americas/biden-amazon-climate.html
+
+**Lawrence Robbins, Lawyer for Prominent D.C. Figures, Dies at 72**\
+`He argued 20 cases before the Supreme Court and prepared witnesses like Marie Yovanovitch and Christine Blasey Ford for their congressional testimony.`\
+https://nytimes.com/2024/11/17/obituaries/lawrence-robbins-dead.html
+
 **What’s New in the Case of the Document Leaks Roiling Israel**\
 `A judge revealed more details about how and why an aide to Prime Minister Benjamin Netanyahu gave sensitive information to the news media.`\
 https://nytimes.com/2024/11/17/world/middleeast/israel-document-leaks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5927449/2024/11/17/college-football-playoff-bracket
 **The Briefing: England 5-0 Republic of Ireland - Carsley enhances reputation, two sides of Harry Kane**\
 `A second-half surge saw England breeze back into the top tier of the UEFA Nations League`\
 https://nytimes.com/athletic/5919873/2024/11/17/england-5-0-republic-of-ireland-carsley-kane/
-
-**ATP Tour Finals will stay in Italy until 2030, Turin will host for 2025**\
-`The host city has not been confirmed from 2026 onwards.`\
-https://nytimes.com/athletic/5921188/2024/11/17/atp-tour-finals-venue-milan-turin/
-
-**Betty White Stamp to Be Released in 2025**\
-`The U.S. Postal Service announced it would honor the actress known for her comedic work on shows such as “The Golden Girls” and “The Mary Tyler Moore Show.”`\
-https://nytimes.com/2024/11/17/arts/betty-white-postage-stamp.html
-
-**Anthony Edwards fined $35K for giving fan middle finger**\
-`The fine isn't the first of Edwards' career.`\
-https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-finger/
 
