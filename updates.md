@@ -1,3 +1,15 @@
+**Israeli Airstrikes Hit Central Beirut and Its Southern Suburbs**\
+`Israel’s strikes killed Hezbollah’s de facto spokesman in central Beirut and flattened buildings south of Lebanon’s capital.`\
+https://nytimes.com/video/world/middleeast/100000009830498/beirut-lebanon-israel-strikes.html
+
+**Trump Stands by Defense Pick Who Says Encounter With Woman Was Not Sexual Assault**\
+`A detailed memo sent to the Trump transition team claims the incident occurred when Pete Hegseth, President-elect Donald J. Trump’s choice for defense secretary, spoke in Monterey, Calif., in 2017.`\
+https://nytimes.com/2024/11/17/us/politics/hegseth-sexual-assault-accuser.html
+
+**Taysom Hill's career game fuels Saints' 35-14 win vs. Browns: Takeaways**\
+`Hill rushed for a career-high 138 yards and matched a career best with three touchdowns on just seven carries.`\
+https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takeaways/
+
 **Dallas Wings score No. 1 pick in 2025 WNBA Draft Lottery**\
 `The Wings had 45.4 percent odds to land the top pick.`\
 https://nytimes.com/athletic/5927939/2024/11/17/wnba-draft-2025-dallas-wings/
