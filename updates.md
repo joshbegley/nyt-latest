@@ -1,3 +1,11 @@
+**What Arizona State's upset of No. 16 Kansas State means for Big 12 title race**\
+`The Sun Devils topped the Wildcats 24-14 on the road, a result that puts Kansas State’s Big 12 title hopes on life support.`\
+https://nytimes.com/athletic/5926707/2024/11/16/arizona-state-upsets-no-16-kansas-state-what-this-means-for-big-12-title-race/
+
+**No. 1 Oregon survives at Wisconsin with second-half comeback**\
+`Wisconsin scored a touchdown with 25 seconds left in the second quarter to pull ahead of No. 1 Oregon at halftime.`\
+https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
+
 **How short-handed Wild lost yet again to their rival Stars: 3 takeaways**\
 `Without three of their best players, the Wild were defeated 2-1 by the Stars thanks to a two-goal night from Mason Marchment.`\
 https://nytimes.com/athletic/5926552/2024/11/16/wild-stars-takeaways-mason-marchment/

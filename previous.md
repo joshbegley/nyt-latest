@@ -1,3 +1,11 @@
+**What Arizona State's upset of No. 16 Kansas State means for Big 12 title race**\
+`The Sun Devils topped the Wildcats 24-14 on the road, a result that puts Kansas State’s Big 12 title hopes on life support.`\
+https://nytimes.com/athletic/5926707/2024/11/16/arizona-state-upsets-no-16-kansas-state-what-this-means-for-big-12-title-race/
+
+**No. 1 Oregon survives at Wisconsin with second-half comeback**\
+`Wisconsin scored a touchdown with 25 seconds left in the second quarter to pull ahead of No. 1 Oregon at halftime.`\
+https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
+
 **How short-handed Wild lost yet again to their rival Stars: 3 takeaways**\
 `Without three of their best players, the Wild were defeated 2-1 by the Stars thanks to a two-goal night from Mason Marchment.`\
 https://nytimes.com/athletic/5926552/2024/11/16/wild-stars-takeaways-mason-marchment/
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/5926591/2024/11/16/maple-leafs-ryan-reaves-oilers-d
 `The Trump transition team was only recently alerted to the payment by Pete Hegseth, President-elect Donald J. Trump’s choice for secretary of defense.`\
 https://nytimes.com/2024/11/16/us/politics/hegseth-sexual-assault.html
 
-**Wisconsin takes surprise halftime lead over No. 1 Oregon**\
-`Wisconsin scored a touchdown with 25 seconds left in the second quarter to pull ahead of No. 1 Oregon at halftime.`\
-https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
-
 **Former gymnastics coach Béla Károlyi dies at 82**\
 `Károlyi rose to prominence by training Olympic all-around champions Nadia Comăneci and Mary Lou Retton.`\
 https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-dies/
-
-**College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-projections-odds/
 
