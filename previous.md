@@ -1,3 +1,7 @@
+**After poor communication leads Raiders to another loss, 'pride' is all that's left to play for**\
+`When the Raiders needed a defensive stop, they left Jonnu Smith wide open for a touchdown. Their sixth straight loss drops them to 2-8.`\
+https://nytimes.com/athletic/5928041/2024/11/17/raiders-loss-miscommunication-dolphins-pride/
+
 **Trump Rethinks Candidates for Treasury Secretary**\
 `President-elect Donald J. Trump is expected to invite the contenders for the role, including Kevin Warsh and Marc Rowan, to Mar-a-Lago this week.`\
 https://nytimes.com/2024/11/17/us/politics/trump-treasury-candidates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927939/2024/11/17/wnba-draft-2025-dallas-wings/
 **LaMelo Ball fined $100k for using anti-gay language in interview**\
 `The NBA said that comment was "offensive and derogatory" when it levied the fine. `\
 https://nytimes.com/athletic/5927748/2024/11/17/lamelo-ball-fine-interview-comments/
-
-**Biden Pledges New Funding to Protect the Amazon**\
-`President Biden pledged financial help to protect the Amazon during a visit to Brazil, making one final push to combat climate change before the end of his term.`\
-https://nytimes.com/video/science/earth/100000009830482/biden-pledges-new-funding-to-protect-the-amazon.html
 

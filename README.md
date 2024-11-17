@@ -2,7 +2,7 @@
 `When the Raiders needed a defensive stop, they left Jonnu Smith wide open for a touchdown. Their sixth straight loss drops them to 2-8.`\
 https://nytimes.com/athletic/5928041/2024/11/17/raiders-loss-miscommunication-dolphins-pride/
 
-**Trump Rethinks Candidates for Treasury Secretary**\
+**After Flurry of Cabinet Picks, Trump Rethinks Candidates for Treasury Secretary**\
 `President-elect Donald J. Trump is expected to invite the contenders for the role, including Kevin Warsh and Marc Rowan, to Mar-a-Lago this week.`\
 https://nytimes.com/2024/11/17/us/politics/trump-treasury-candidates.html
 
