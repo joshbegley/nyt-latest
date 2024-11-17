@@ -1,3 +1,11 @@
+**Betty White Stamp to Be Released in 2025**\
+`The U.S. Postal Service announced it would honor the actress known for her comedic work on shows such as “The Golden Girls” and “The Mary Tyler Moore Show.”`\
+https://nytimes.com/2024/11/17/arts/betty-white-postage-stamp.html
+
+**Anthony Edwards fined $35K for giving fan middle finger**\
+`Edwards, 23, raised his middle finger to the officials after being called for a charge with 3:15 remaining in the first quarter.`\
+https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-finger/
+
 **USC flips 5-star QB Husan Longstreet from Texas A&M: What this means for the Trojans**\
 `Longstreet, who plays at Corona (Calif.) Centennial, is ranked No. 34 overall and the No. 6 quarterback in the Class of 2025.`\
 https://nytimes.com/athletic/5920030/2024/11/17/usc-recruiting-husan-longstreet-julian-lewis/
