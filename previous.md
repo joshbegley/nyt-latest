@@ -1,3 +1,11 @@
+**Spheres of Study**\
+`Rajeswari Rajamani calls this meeting to order.`\
+https://nytimes.com/2024/11/17/crosswords/daily-puzzle-2024-11-18.html
+
+**NFL Week 11 takeaways: Are Steelers kings of the AFC North? Packers in for another playoff run?**\
+`Plus, the AFC playoff race is wide-open.`\
+https://nytimes.com/athletic/5927963/2024/11/17/nfl-week-11-scores-takeaways-steelers-ravens-packers/
+
 **Israeli Airstrikes Hit Central Beirut and Its Southern Suburbs**\
 `Israel’s strikes killed Hezbollah’s de facto spokesman in central Beirut and flattened buildings south of Lebanon’s capital.`\
 https://nytimes.com/video/world/middleeast/100000009830498/beirut-lebanon-israel-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takea
 **Richardson leads late Colts TD drive in 28-27 win vs. Jets: Takeaways**\
 `Richardson posted a career day and led his second-ever game-winning drive over the reeling Jets.`\
 https://nytimes.com/athletic/5927316/2024/11/17/colts-jets-score-result-takeaways/
-
-**Blocked kick as time expires helps Packers edge Bears 20-19: Takeaways**\
-`Late-game heroics lifted Green Bay to its 11th straight win over longtime divisional rival Chicago.`\
-https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
-
-**Vikings win third straight with 23-13 victory over Titans: Takeaways**\
-`The Vikings recorded five sacks and hit Titans QB Will Levis nine times while completing the sweep of the AFC South in 2024.`\
-https://nytimes.com/athletic/5927327/2024/11/17/vikings-titans-score-result-takeaways/
 
