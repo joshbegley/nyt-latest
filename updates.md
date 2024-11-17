@@ -1,3 +1,11 @@
+**Trump Can Speed Up the Inevitable in Ukraine**\
+`He should force a settlement to save lives and avoid more destruction.`\
+https://nytimes.com/2024/11/17/opinion/trump-ukraine-russia-war.html
+
+**Enough**\
+`To suggest we should yield even a little to Trump’s odious politics is unacceptable. Even if we did, it would never be enough.`\
+https://nytimes.com/2024/11/17/opinion/america-trump-tolerance.html
+
 **Ravens at Steelers: How to watch, odds, expert picks as Lamar Jackson faces Pittsburgh defense**\
 `Another chapter in the storied Ravens-Steelers rivalry, this time for first place in the AFC North.`\
 https://nytimes.com/athletic/5923659/2024/11/17/ravens-steelers-how-to-watch-odds-picks-betting/
