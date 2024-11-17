@@ -1,3 +1,7 @@
+**On ‘S.N.L.,’ a Peaceful Transition to Trump’s Cabinet of Curiosities**\
+`Sarah Sherman plays Matt Gaetz as well as the widow of P’Nut, the conservative darling of the rodent world, while Charli XCX and pals serenade a mom-to-be.`\
+https://nytimes.com/2024/11/17/arts/television/snl-charli-xcx-dana-carvey-biden.html
+
 **Live Q&A: Week 11 fantasy football start/sit chat with Jay Felicio, Sunday 11/17 at 11 a.m. ET**\
 `Submit your Week 11 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5920144/2024/11/17/live-qa-week-11-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-17-at-11-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/world/europe/beirut-lebanon-israel-hezbollah.html
 **Tottenham's Odobert undergoes surgery on hamstring injury**\
 `Tottenham Hotpsur winger Wilson Odobert has undergone surgery on a right hamstring injury.`\
 https://nytimes.com/athletic/5927098/2024/11/17/wilson-odobert-injury-tottenham/
-
-**Slaying Dragons for 20 Years**\
-`World of Warcraft was first released two decades ago.`\
-https://nytimes.com/2024/11/17/briefing/world-of-warcraft-20th-anniversary.html
 
