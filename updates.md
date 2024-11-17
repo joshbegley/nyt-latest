@@ -1,3 +1,7 @@
+**Russia Launches Major Attack on Power Grid, Ukraine Says**\
+`Ukrainian energy infrastructure was the target of an hourslong attack involving around 120 missiles and 90 drones, officials in the country said. At least five people were killed.`\
+https://nytimes.com/2024/11/17/world/europe/russia-ukraine-war-power-grid.html
+
 **Pat Koch Thaler, Sister to a Famed Mayor, Chose to Die on a Saturday**\
 `Ms. Thaler, a former dean at N.Y.U., used her last interview to reminisce about her brother, Ed, and to publicize the alternatives to prolonging pain and suffering.`\
 https://nytimes.com/2024/11/17/nyregion/pat-koch-thaler-dead.html
