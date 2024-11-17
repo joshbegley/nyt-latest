@@ -1,3 +1,7 @@
+**Biden Allows Ukraine to Strike Russia With Long-Range U.S. Missiles**\
+`With two months left in office, the president for the first time authorized the Ukrainian military to use the system known as ATACMS to help defend its forces in the Kursk region of Russia.`\
+https://nytimes.com/2024/11/17/us/politics/biden-ukraine-russia-atacms-missiles.html
+
 **Man Utd's Toone sidelined with calf injury**\
 `Manchester United Women midfielder Ella Toone is set for a spell on the sidelines with a calf injury.`\
 https://nytimes.com/athletic/5927359/2024/11/17/ella-toone-injury-manchester-united/
