@@ -1,3 +1,31 @@
+**Mandel's Final Thoughts: Arizona State on fire, Tennessee on the bubble**\
+`The SEC and Big 12 standings got messier, the Big Ten avoided a similar fate, and some unlikely hot streaks are making November waves.`\
+https://nytimes.com/athletic/5927038/2024/11/17/college-football-scores-final-thoughts-bubble/
+
+**Israeli Strikes in Central and Northern Gaza Kill More Than 30 People**\
+`As Israel’s military wages a renewed offensive in the northern part of the enclave, Al Bureij and Nuseirat in central Gaza came under attack.`\
+https://nytimes.com/2024/11/17/world/europe/gaza-nuseirat-bureij-israel.html
+
+**Donald Trump Is Already Starting to Fail**\
+`The president-elect is planting the seeds of his own political demise.`\
+https://nytimes.com/2024/11/17/opinion/trump-kennedy-gaetz-hegseth.html
+
+**Jared Polis Wants to Win Back the Hippies**\
+`The governor’s embrace of Robert F. Kennedy Jr. may be no less significant to his success than his attention to affordability.`\
+https://nytimes.com/2024/11/17/opinion/jared-polis-robert-kennedy-democrats.html
+
+**The Connections Companion No. 526**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 18, 2024.`\
+https://nytimes.com/2024/11/17/crosswords/connections-companion-526.html
+
+**The Sunday Read: ‘How Cheerleading Became So Acrobatic, Dangerous and Popular’**\
+`For decades, the sport has been shaped in large part by one company — and one man.`\
+https://nytimes.com/2024/11/17/podcasts/the-daily/cheerleading-dangerous-popular.html
+
+**How to Save Opera in America? Make It New Again.**\
+`To survive and thrive, we can’t rely on the glories of the past.`\
+https://nytimes.com/2024/11/17/opinion/opera-crisis-new-works.html
+
 **Trump, Visiting New York, Finds a Friendly Crowd at a Fight**\
 `President-elect Donald J. Trump arrived at Madison Square Garden for an Ultimate Fighting Championship event, which for a brief moment resembled one of his campaign rallies.`\
 https://nytimes.com/2024/11/17/us/politics/donald-trump-msg-ufc.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5923762/2024/11/17/bengals-chargers-how-to-watch-od
 **Chiefs at Bills: How to watch, odds, expert picks for the next chapter of Mahomes-Allen**\
 `If some extraterrestrial life form wondered why we human beings like the NFL so much — well, we’d show them Chiefs vs. Bills.`\
 https://nytimes.com/athletic/5923736/2024/11/17/chiefs-bills-how-to-watch-odds-picks-betting/
-
-**A Global Fund for Climate Disasters Is Taking Shape in Trump’s Shadow**\
-`The U.N. climate summit in Azerbaijan has cleared the for way aid to flow when lower-income countries are hit.`\
-https://nytimes.com/2024/11/17/climate/loss-damage-fund-cop29-baku.html
-
-**Haiti’s Many Problems and Very Few Solutions, Explained**\
-`A search for a solution to the crisis in Haiti is growing more urgent as gangs gain territory and thousands more flee their homes.`\
-https://nytimes.com/2024/11/17/world/americas/haitis-many-problems-and-very-few-solutions-explained.html
-
-**Trump Signals a ‘Seismic Shift,’ Shocking the Washington Establishment**\
-`The president-elect’s early transition moves amount to a generational test of a system as he seeks to rewrite the balance of power and install lieutenants to blow up key parts of government.`\
-https://nytimes.com/2024/11/17/us/politics/trump-signals-a-seismic-shift-shocking-the-washington-establishment.html
-
-**In Pennsylvania, the Election Litigation Continues, With a Twist**\
-`As a Senate recount plays out, at least four counties are ignoring an order from the State Supreme Court that undated or misdated mail ballots cannot be counted.`\
-https://nytimes.com/2024/11/17/us/pennsylvania-election-ballots-recount.html
-
-**Paramount Takes Promotional Stunt to New Level for ‘Gladiator II’**\
-`The studio plans to air the same 60-second trailer on 4,000 TV, radio and digital channels on Monday.`\
-https://nytimes.com/2024/11/17/business/media/gladiator-2-marketing-stunt-paramount.html
-
-**Bluesky Is Growing Up. Maybe Too Fast.**\
-`The fledgling social media site has been flooded by people seeking alternatives to Facebook, X and Threads. It hasn’t all been easy.`\
-https://nytimes.com/2024/11/17/technology/bluesky-growing-pains.html
-
-**How Kamala Harris Burned Through $1.5 Billion in 15 Weeks**\
-`Her frenzied spending has led to second-guessing among some Democrats and questions as she has pressed for more cash since the election.`\
-https://nytimes.com/2024/11/17/us/politics/harris-campaign-finances.html
 
