@@ -1,40 +1,40 @@
+**Pat Koch Thaler, Sister to a Famed Mayor, Chose to Die on a Saturday**\
+`Ms. Thaler, a former dean at N.Y.U., used her last interview to reminisce about her brother, Ed, and to publicize the alternatives to prolonging pain and suffering.`\
+https://nytimes.com/2024/11/17/nyregion/pat-koch-thaler-dead.html
+
+**Jim Hendricks? Oh, Jimi Hendrix.**\
+`A misspelled name meant photos of one of the musician’s most memorable performances, at Woodstock, were hiding in plain sight for three decades.`\
+https://nytimes.com/2024/11/17/insider/jim-hendricks-oh-jimi-hendrix.html
+
+**Trump Boosters Expect Big Returns on Their Investment: ‘The Shackles Are Off’**\
+`Wealthy donors to the president-elect’s campaign anticipate a more business-friendly atmosphere, including the firing of Biden-era regulators.`\
+https://nytimes.com/2024/11/17/us/politics/trump-presidency-billionaires.html
+
+**‘A Woman in the Middle of the Crowded Car Began to Hyperventilate.’**\
+`Calming a subway panic attack, contemplating a Bronx bullfrog and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/11/17/nyregion/metropolitan-diary.html
+
+**How to Stop a Late-in-Life Divorce From Ruining Your Retirement**\
+`As the number of couples who split after the age of 50 rises, more Americans are looking at a retirement that is drastically different than they had expected.`\
+https://nytimes.com/2024/11/17/business/divorce-retirement-savings.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/17/crosswords/spelling-bee-forum.html
+
+**The Hidden Truth Linking the Broken Border to Your Online Shopping Cart**\
+`The incoming Trump administration promises an immigration crackdown. But for years, the on-demand economy has been fueled by unscrupulous staffing agencies exploiting migrant workers.`\
+https://nytimes.com/2024/11/17/us/immigration-undocumented-migrants-jobs.html
+
+**A Star President’s Resignation Was a Mystery. Was It All About Rankings?**\
+`Florida’s star president, Ben Sasse, was among the best paid university presidents ever. He promised a conservative overhaul, but then he resigned, leaving controversy and an embarrassing drop in the U.S. News rankings.`\
+https://nytimes.com/2024/11/17/us/politics/rankings-university-of-florida-ben-sasse.html
+
+**Shen Yun’s Longstanding Labor Practices Attract Regulators’ Scrutiny**\
+`The New York State Department of Labor has opened an inquiry into the global dance group and its treatment of the children and teenagers who stage its shows worldwide.`\
+https://nytimes.com/2024/11/17/nyregion/shen-yun-child-labor-regulator.html
+
 **No. 6 BYU loses first game of season to Kansas: Playoff, Big 12 title implications**\
 `The Cougars lost 17-13 at home to the Jayhawks on Saturday night.`\
 https://nytimes.com/athletic/5926955/2024/11/17/byu-kansas-score-analysis-upset-college-football/
-
-**Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
-`After the bout was stopped, Jones shimmied for President-elect Donald Trump, who sat next to the octagon.`\
-https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
-
-**SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
-`All of the SEC's three-loss teams have officially been eliminated from contention, but the potential six-team tie remains very much alive.`\
-https://nytimes.com/athletic/5926924/2024/11/17/sec-tiebreaker-scenarios-update-alabama-texas-texas-am/
-
-**Devon Levi wasn't sharp and Sabres' defense didn't help much in loss to Flyers**\
-`Levi, in his first consecutive start this season, stopped 26 of 30 shots in Buffalo's lopsided 5-2 loss to Philadelphia.`\
-https://nytimes.com/athletic/5926915/2024/11/17/devon-levi-sabres-lose-to-flyers/
-
-**How the Canucks won ugly against Connor Bedard, lowly Blackhawks: 3 takeaways**\
-`The Canucks were able to get back in the win column in just about the least inspiring way possible in a 4-1 rout of the Blackhawks. `\
-https://nytimes.com/athletic/5926686/2024/11/17/canucks-ugly-win-blackhawks-connor-bedard/
-
-**Short-handed Wild saw a lot of progress, but the outcome was familiar for the Stars**\
-`The Wild have now gone 12 regular-season meetings since beating the Stars in regulation.`\
-https://nytimes.com/athletic/5926705/2024/11/17/wild-stars-familiar-outcome/
-
-**Trump Can Speed Up the Inevitable in Ukraine**\
-`He should force a settlement to save lives and avoid more destruction.`\
-https://nytimes.com/2024/11/17/opinion/trump-ukraine-russia-war.html
-
-**Enough**\
-`To suggest we should yield even a little to Trump’s odious politics is unacceptable. Even if we did, it would never be enough.`\
-https://nytimes.com/2024/11/17/opinion/america-trump-tolerance.html
-
-**Ravens at Steelers: How to watch, odds, expert picks as Lamar Jackson faces Pittsburgh defense**\
-`Another chapter in the storied Ravens-Steelers rivalry, this time for first place in the AFC North.`\
-https://nytimes.com/athletic/5923659/2024/11/17/ravens-steelers-how-to-watch-odds-picks-betting/
-
-**Calm, clear, ruthless – Alessia Russo is the symbol of Arsenal's new-found swagger**\
-`Russo's opener in Arsenal's 3-0 win over Spurs signified everything they have looked to implement since Renee Slegers took interim charge`\
-https://nytimes.com/athletic/5926084/2024/11/17/alessia-russo-arsenal-spurs/
 
