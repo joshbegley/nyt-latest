@@ -1,3 +1,11 @@
+**Gaetz Report Drama Brings a House Republican Feud Full Circle**\
+`A vendetta over the congressional ethics investigation into Matt Gaetz helped sink the last speaker. The new speaker has moved to quash it.`\
+https://nytimes.com/2024/11/17/us/politics/gaetz-mccarthy-johnson-ethics-report.html
+
+**Rooney's time as Plymouth manager being recorded for documentary**\
+`TV cameras are tracking Wayne Rooney this season for a documentary series that will follow his time as manager of Plymouth Argyle.`\
+https://nytimes.com/athletic/5927372/2024/11/17/wayne-rooney-tv-documentary-plymouth/
+
 **Ann Selzer Announces End of Election Polling Operation**\
 `Her final poll of Iowa before the election showed Kamala Harris leading Donald Trump, an outlier and a major miss.`\
 https://nytimes.com/2024/11/17/us/politics/ann-selzer-ends-election-polls.html
