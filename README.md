@@ -1,3 +1,7 @@
+**Shane Beamer, South Carolina celebrate another thrilling win in Columbia**\
+`South Carolina has won four consecutive games and closed out its 2024 SEC season with a 5-3 record. `\
+https://nytimes.com/athletic/5926601/2024/11/16/south-carolina-missouri-shane-beamer-lanorris-sellers/
+
 **Baylor bringing back head coach Dave Aranda for 2025**\
 `After a 3-9 finish in 2023, the Bears will go bowling this season after beating West Virginia in Morgantown on Saturday.`\
 https://nytimes.com/athletic/5926623/2024/11/16/baylor-dave-aranda-returning-hot-seat/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-di
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-projections-odds/
 
-**Donald Trump to attend UFC 309 in New York**\
+**Donald Trump attends UFC 309 in New York**\
 `Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
 https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
 
 **In a battle of new-look offenses, USC tops Nebraska: Instant analysis**\
 `USC’s Greedy Vance Jr. iced the Trojans’ 28-20 win against Nebraska with an interception of Huskers quarterback Dylan Raiola.`\
 https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-college-football/
-
-**Notre Dame proving it has one of nation's best defenses: Virginia takeaways**\
-`Notre Dame dominated Virginia 35-14 for its eighth consecutive win. Will the Irish return for one more home game in the Playoff?`\
-https://nytimes.com/athletic/5926443/2024/11/16/notre-dame-virginia-football-score-recap/
 
