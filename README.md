@@ -1,3 +1,7 @@
+**NFL Week 11 inactives and fantasy tips: George Kittle out for contest against Seattle**\
+`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
+
 **AP Top 25: Ohio State, Indiana set for top-5 showdown**\
 `Oregon, Ohio State, Texas, Penn State and Indiana make up an unchanged top five in the AP poll, with plenty of SEC debates to be had.`\
 https://nytimes.com/athletic/5927392/2024/11/17/ap-top-25-rankings-football-indiana-osu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-fin
 **USC flips 5-star QB Husan Longstreet from Texas A&M: What this means for the Trojans**\
 `Longstreet, who plays at Corona (Calif.) Centennial, is ranked No. 34 overall and the No. 6 quarterback in the Class of 2025.`\
 https://nytimes.com/athletic/5920030/2024/11/17/usc-recruiting-husan-longstreet-julian-lewis/
-
-**Liverpool boss Beard suggests WSL referees have personal agenda against him**\
-`Liverpool Women manager Matt Beard has suggested referees may have a personal agenda against him after his side’s controversial Women’s Super League (WSL) defeat to Everton.`\
-https://nytimes.com/athletic/5927471/2024/11/17/matt-beard-referees-liverpool/
 
