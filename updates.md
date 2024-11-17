@@ -1,3 +1,11 @@
+**Cowboys Today: Preparing for brutal stretch of 3 games in 11 days and is there a LT battle?**\
+`Playing Monday, Sunday and then Thursday isn't great for getting players healthy, but that's what the Cowboys' upcoming task.`\
+https://nytimes.com/athletic/5926864/2024/11/17/cowboys-today-schedule-thanksgiving-left-tackle/
+
+**Week 12 CFP race lessons: Georgia’s still alive, an SEC-Big Ten debate looms**\
+`There are two weeks left in the regular season, and there appear to be more teams hanging around Playoff contention than falling out.`\
+https://nytimes.com/athletic/5927008/2024/11/17/college-football-playoff-week-12-race-sec-big-ten-rankings/
+
 **College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/17/college-football-playoff-projections-odds/
