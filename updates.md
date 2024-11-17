@@ -1,3 +1,7 @@
+**Ashton Jeanty breaks Boise State rushing record as Broncos roll past SJSU**\
+`Jeanty now has 1,893 rushing yards through Boise State’s first 10 games of the season.`\
+https://nytimes.com/athletic/5926777/2024/11/16/boise-state-san-jose-state-ashton-jeanty/
+
 **Packers at Bears: How to watch, odds, expert picks with Green Bay favored over reeling Chicago**\
 `It’s hard to imagine worse vibes around the Chicago Bears — but another home blowout, to the arch-rival Green Bay Packers, would do it.`\
 https://nytimes.com/athletic/5922872/2024/11/16/packers-bears-how-to-watch-odds-picks-betting/
