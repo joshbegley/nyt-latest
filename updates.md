@@ -1,3 +1,7 @@
+**Toronto's Ryan Reaves ejected for hit that injures Edmonton's Darnell Nurse**\
+`Reaves could be facing supplemental discipline from the NHL's Department of Player Safety as a result of the hit.`\
+https://nytimes.com/athletic/5926591/2024/11/16/maple-leafs-ryan-reaves-oilers-darnell-nurse/
+
 **Baylor bringing back head coach Dave Aranda for 2025**\
 `After a 3-9 finish in 2023, the Bears will go bowling this season after beating West Virginia in Morgantown on Saturday.`\
 https://nytimes.com/athletic/5926623/2024/11/16/baylor-dave-aranda-returning-hot-seat/

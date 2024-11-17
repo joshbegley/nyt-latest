@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5926623/2024/11/16/baylor-dave-aranda-returning-hot
 `Severino is expected to test the free-agent market after a season in which he had a 3.91 ERA over 182 innings.`\
 https://nytimes.com/athletic/5926573/2024/11/16/luis-severino-mets-qualifying-offer/
 
-**Leafs' Ryan Reaves ejected for hit that injures Oilers' Darnell Nurse**\
+**Toronto's Ryan Reaves ejected for hit that injures Edmonton's Darnell Nurse**\
 `Reaves could be facing supplemental discipline from the NHL's Department of Player Safety as a result of the hit.`\
 https://nytimes.com/athletic/5926591/2024/11/16/maple-leafs-ryan-reaves-oilers-darnell-nurse/
 
