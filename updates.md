@@ -1,3 +1,7 @@
+**SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
+`All of the SEC's three-loss teams have officially been eliminated from contention, but the potential six-team tie remains very much alive.`\
+https://nytimes.com/athletic/5926924/2024/11/17/sec-tiebreaker-scenarios-update-alabama-texas-texas-am/
+
 **No. 6 BYU loses first game of season to Kansas: Playoff, Big 12 title implications**\
 `The Cougars lost 17-13 at home to the Jayhawks on Saturday night.`\
 https://nytimes.com/athletic/5926955/2024/11/17/byu-kansas-score-analysis-upset-college-football/
