@@ -1,3 +1,7 @@
+**In a battle of new-look offenses, USC tops Nebraska: Instant analysis**\
+`USC’s Greedy Vance Jr. iced the Trojans’ 28-20 win against Nebraska with an interception of Huskers quarterback Dylan Raiola.`\
+https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-college-football/
+
 **College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-projections-odds/
