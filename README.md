@@ -1,3 +1,11 @@
+**Blue Jackets 'went rogue' in Montreal, dashing hope of an offensive resurgence**\
+`Which team will show up when Columbus faces Boston on Monday?`\
+https://nytimes.com/athletic/5926660/2024/11/16/blue-jackets-canadiens-loss/
+
+**Maple Leafs report cards: Mitch Marner secures well-fought and deserved win**\
+`Mitch Marner's 200th career goal lifted the Maple Leafs past the Oilers 4-3 in overtime.`\
+https://nytimes.com/athletic/5926700/2024/11/16/maple-leafs-oilers-ryan-reaves-darnell-nurse/
+
 **Jaguars at Lions: How to watch, odds, expert picks with Detroit as big favorite**\
 `The Lions will hope to avoid a trap game hosting the Jaguars this Sunday.`\
 https://nytimes.com/athletic/5922927/2024/11/16/jaguars-lions-how-to-watch-odds-picks-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5926552/2024/11/16/wild-stars-takeaways-mason-march
 **'Inside the NBA' moving to ABC and ESPN as TNT, NBA settle suit**\
 `"Inside the NBA" panelists Charles Barkley, Shaquille O'Neal, Ernie Johnson and Kenny Smith will remain with the show, sources said.`\
 https://nytimes.com/athletic/5926632/2024/11/16/inside-the-nba-abc-espn-tnt-lawsuit/
-
-**Shane Beamer, South Carolina celebrate another thrilling win in Columbia**\
-`The Gamecocks, who are 5-3 in the SEC, have won four consecutive games. `\
-https://nytimes.com/athletic/5926601/2024/11/16/south-carolina-missouri-shane-beamer-lanorris-sellers/
-
-**Baylor bringing back head coach Dave Aranda for 2025**\
-`After a 3-9 finish in 2023, the Bears will go bowling this season after beating West Virginia in Morgantown on Saturday.`\
-https://nytimes.com/athletic/5926623/2024/11/16/baylor-dave-aranda-returning-hot-seat/
 
