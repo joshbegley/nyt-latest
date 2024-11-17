@@ -1,5 +1,5 @@
 **SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
-`But that's if no more upsets occur and it goes to the newly installed SEC tiebreakers . A potential six-team tie remains very much alive.`\
+`But that's if no more upsets occur and it goes to the newly installed SEC tiebreakers. A potential six-team tie remains very much alive.`\
 https://nytimes.com/athletic/5926924/2024/11/17/sec-tiebreaker-scenarios-update-alabama-texas-texas-am/
 
 **Devon Levi wasn't sharp and Sabres' defense didn't help much in loss to Flyers**\
