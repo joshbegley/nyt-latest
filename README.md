@@ -1,5 +1,5 @@
-**E. Coli Outbreak Linked to Organic Carrots**\
-`One person has died and nearly 40 people have been sickened in an E. coli outbreak tied to multiple brands of recalled organic carrots sold by Grimmway Farms, officials said.`\
+**1 Dead and Dozens Ill in E. Coli Outbreak Linked to Organic Carrots**\
+`The outbreak, which has sickened nearly 40 people, has been tied to multiple brands of recalled organic carrots sold by Grimmway Farms, officials said.`\
 https://nytimes.com/2024/11/17/well/carrots-ecoli-outbreak.html
 
 **Residents Evacuated Because of Fire on New York-New Jersey Border**\
