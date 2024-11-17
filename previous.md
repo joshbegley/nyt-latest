@@ -1,3 +1,7 @@
+**Wisconsin fires offensive coordinator Phil Longo: What's next for Badgers?**\
+`In 23 games as the Badgers' OC, Longo's offense never fulled meshed.`\
+https://nytimes.com/athletic/5927965/2024/11/17/wisconsin-football-phil-longo-fired/
+
 **Spheres of Study**\
 `Rajeswari Rajamani calls this meeting to order.`\
 https://nytimes.com/2024/11/17/crosswords/daily-puzzle-2024-11-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927882/2024/11/17/marta-nwsl-goal-play-off-orlando
 **Taysom Hill's career game fuels Saints' 35-14 win vs. Browns: Takeaways**\
 `Hill rushed for a career-high 138 yards and matched a career best with three touchdowns on just seven carries.`\
 https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takeaways/
-
-**Richardson leads late Colts TD drive in 28-27 win vs. Jets: Takeaways**\
-`Richardson posted a career day and led his second-ever game-winning drive over the reeling Jets.`\
-https://nytimes.com/athletic/5927316/2024/11/17/colts-jets-score-result-takeaways/
 
