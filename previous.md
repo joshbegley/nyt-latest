@@ -1,3 +1,7 @@
+**Steelers hold off Ravens in 18-16 AFC North win: Takeaways**\
+`Pittsburgh's defense quieted a typically stout Ravens offense that struggled to find the end zone.`\
+https://nytimes.com/athletic/5927321/2024/11/17/ravens-steelers-score-result-takeaways/
+
 **Tagovailoa, Smith lead Dolphins in 34-19 win vs. Raiders: Takeaways**\
 `Miami improves to 4-6 with the win, while Las Vegas drops to 2-8 this season.`\
 https://nytimes.com/athletic/5927303/2024/11/17/raiders-dolphins-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/well/carrots-ecoli-outbreak.html
 **Residents Evacuated Because of Fire on New York-New Jersey Border**\
 `The voluntary evacuation plan was put in place in areas affected by the Jennings Creek wildfire. Officials encouraged residents of 165 homes to move out temporarily.`\
 https://nytimes.com/2024/11/17/nyregion/fires-new-york-new-jersey-evacuations.html
-
-**Monday Briefing: Ukraine Can Hit Russia With U.S. Long-Range Weapons**\
-`Plus, World of Warcraft turned 20.`\
-https://nytimes.com/2024/11/17/briefing/ukraine-russia-trump-shen-yun.html
 
