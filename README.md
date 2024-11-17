@@ -1,3 +1,7 @@
+**U.S. Opens Investigation Into Killing of Sonya Massey**\
+`The Justice Department notified Sangamon County, Ill., that it had opened a civil rights investigation after reports about the shooting raised “serious concerns.”`\
+https://nytimes.com/2024/11/17/us/sonya-massey-shooting-investigation.html
+
 **Gaetz Report Drama Brings a House Republican Feud Full Circle**\
 `A vendetta over the congressional ethics investigation into Matt Gaetz helped sink the last speaker. The new speaker has moved to quash it.`\
 https://nytimes.com/2024/11/17/us/politics/gaetz-mccarthy-johnson-ethics-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/dining/tennessee-onions.html
 **McIlroy wins sixth Race to Dubai title after DP World Tour Championship victory**\
 `McIlroy shot a three-under final round in Dubai to seal victory ahead of Rasmus Hojgaard.`\
 https://nytimes.com/athletic/5927215/2024/11/17/rory-mcilroy-race-to-dubai-dp-world-tour-championship/
-
-**Until Saturday: Colorado's Playoff path, plus some Week 12 questions**\
-`Welcome to Until Saturday, the five-star college football newsletter: What is Colorado's path to the College Football Playoff?`\
-https://nytimes.com/athletic/5927069/2024/11/17/colorado-college-football-playoff-until-saturday/
 
