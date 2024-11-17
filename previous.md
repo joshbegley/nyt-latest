@@ -1,3 +1,7 @@
+**'Inside the NBA' moving to ABC and ESPN as TNT, NBA settle suit**\
+`"Inside the NBA" panelists Charles Barkley, Shaquille O'Neal, Ernie Johnson and Kenny Smith will remain with the show, sources said.`\
+https://nytimes.com/athletic/5926632/2024/11/16/inside-the-nba-abc-espn-tnt-lawsuit/
+
 **Shane Beamer, South Carolina celebrate another thrilling win in Columbia**\
 `South Carolina has won four consecutive games and closed out its 2024 SEC season with a 5-3 record. `\
 https://nytimes.com/athletic/5926601/2024/11/16/south-carolina-missouri-shane-beamer-lanorris-sellers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-project
 **Donald Trump attends UFC 309 in New York**\
 `Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
 https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
-
-**In a battle of new-look offenses, USC tops Nebraska: Instant analysis**\
-`USC’s Greedy Vance Jr. iced the Trojans’ 28-20 win against Nebraska with an interception of Huskers quarterback Dylan Raiola.`\
-https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-college-football/
 

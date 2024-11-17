@@ -1,3 +1,7 @@
+**'Inside the NBA' moving to ABC and ESPN as TNT, NBA settle suit**\
+`"Inside the NBA" panelists Charles Barkley, Shaquille O'Neal, Ernie Johnson and Kenny Smith will remain with the show, sources said.`\
+https://nytimes.com/athletic/5926632/2024/11/16/inside-the-nba-abc-espn-tnt-lawsuit/
+
 **Shane Beamer, South Carolina celebrate another thrilling win in Columbia**\
 `South Carolina has won four consecutive games and closed out its 2024 SEC season with a 5-3 record. `\
 https://nytimes.com/athletic/5926601/2024/11/16/south-carolina-missouri-shane-beamer-lanorris-sellers/
