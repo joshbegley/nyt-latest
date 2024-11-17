@@ -1,3 +1,7 @@
+**NFL Week 11 inactives and fantasy tips: Davante Adams active, Sam LaPorta out**\
+`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
+
 **Temple fires coach Stan Drayton amid 3-7 season**\
 `Defensive coordinator Everett Withers was named the team's interim head coach for the remainder of the season.`\
 https://nytimes.com/athletic/5927295/2024/11/17/temple-football-stan-drayton-fired/
