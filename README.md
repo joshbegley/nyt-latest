@@ -1,3 +1,11 @@
+**Stafford tosses 4 TDs as Rams hold off Patriots 28-22: Takeaways**\
+`The back-and-forth passing affair between Matthew Stafford and Drake Maye was won by Stafford in his second-ever trip to Gillette Stadium.`\
+https://nytimes.com/athletic/5927307/2024/11/17/rams-patriots-score-result-takeaways/
+
+**Families of American Victims of Oct. 7 Attack Sue Iran**\
+`The lawsuit aims to highlight Iran’s role in the attack that killed about 1,200 people as well as its support for Hamas and other terrorist groups.`\
+https://nytimes.com/2024/11/17/us/politics/iran-oct-7-families-lawsuit.html
+
 **Lions hand Jags worst loss in team history in 52-6 drubbing: Takeaways**\
 `Jacksonville’s 46-point loss was the worst loss in franchise history, surpassing the 44-point loss in 1995.`\
 https://nytimes.com/athletic/5927301/2024/11/17/jaguars-lions-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/17/world/americas/biden-amazon-climate.html
 **Lawrence Robbins, Lawyer for Prominent D.C. Figures, Dies at 72**\
 `He argued 20 cases before the Supreme Court and prepared witnesses like Marie Yovanovitch and Christine Blasey Ford for their congressional testimony.`\
 https://nytimes.com/2024/11/17/obituaries/lawrence-robbins-dead.html
-
-**What’s New in the Case of the Document Leaks Roiling Israel**\
-`A judge revealed more details about how and why an aide to Prime Minister Benjamin Netanyahu gave sensitive information to the news media.`\
-https://nytimes.com/2024/11/17/world/middleeast/israel-document-leaks.html
-
-**NFL Week 11 inactives and fantasy tips: George Kittle out, Amari Cooper active**\
-`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
-https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
 
