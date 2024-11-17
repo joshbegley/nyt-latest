@@ -1,3 +1,7 @@
+**Tagovailoa, Smith lead Dolphins in 34-19 win vs. Raiders: Takeaways**\
+`Miami improves to 4-6 with the win, while Las Vegas drops to 2-8 this season.`\
+https://nytimes.com/athletic/5927303/2024/11/17/raiders-dolphins-score-result-takeaways/
+
 **Celeste Caeiro, Whose Flowers Gave a Name to a Revolt, Dies at 91**\
 `In Portugal in 1974, she spontaneously gave red carnations to soldiers on their way to ending a dictatorship in what became known as the Carnation Revolution.`\
 https://nytimes.com/2024/11/17/world/europe/celeste-caeiro-dead.html
