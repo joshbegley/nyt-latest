@@ -1,3 +1,7 @@
+**NFL Week 11 inactives and fantasy tips: LaPorta out for Week 11, Adams still questionable**\
+`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips-sam-laporta-out-for-week-11-davante-adams-remains-questionable/
+
 **Here is the latest on the next administration.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/11/17/us/trump-news/here-is-the-latest-on-the-next-administration
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/world/europe/gaza-nuseirat-bureij-israel.html
 **Donald Trump Is Already Starting to Fail**\
 `The president-elect is planting the seeds of his own political demise.`\
 https://nytimes.com/2024/11/17/opinion/trump-kennedy-gaetz-hegseth.html
-
-**Jared Polis Wants to Win Back the Hippies**\
-`The governor’s embrace of Robert F. Kennedy Jr. may be no less significant to his success than his attention to affordability.`\
-https://nytimes.com/2024/11/17/opinion/jared-polis-robert-kennedy-democrats.html
 
