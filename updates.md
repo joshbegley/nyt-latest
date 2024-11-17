@@ -1,3 +1,19 @@
+**Calm, clear, ruthless – Alessia Russo is the symbol of Arsenal's new-found swagger**\
+`Russo's opener in Arsenal's 3-0 win over Spurs signified everything they have looked to implement since Renee Slegers took interim charge`\
+https://nytimes.com/athletic/5926084/2024/11/17/alessia-russo-arsenal-spurs/
+
+**Darnell Nurse injury leaves concern for Oilers — and a hole in their lineup**\
+`The Oilers defenceman was helped off the ice vs. the Maple Leafs after taking a hit to the head from Ryan Reaves.`\
+https://nytimes.com/athletic/5926787/2024/11/17/oilers-darnell-nurse-injury/
+
+**Colts at Jets: How to watch, odds, expert picks as Richardson, Rodgers try to stop skids**\
+`The 4-6 Indianapolis Colts are four-point underdogs to the 3-7 New York Jets? Both teams have had disappointing seasons so far.`\
+https://nytimes.com/athletic/5923518/2024/11/17/colts-jets-how-to-watch-odds-picks-betting/
+
+**Doak gave Gvardiol a night to forget – so what now?**\
+`The youngster announced himself on the international stage with a supreme display against Manchester City's superstar`\
+https://nytimes.com/athletic/5926119/2024/11/17/ben-doak-liverpool-josko-gvardiol/
+
 **How Penguins survived another blown lead against Sharks: 3 takeaways**\
 `For a change, a blown multi-goal lead to the Sharks wasn't costly for the Penguins.
 `\
