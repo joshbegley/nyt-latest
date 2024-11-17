@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5926955/2024/11/17/byu-kansas-score-analysis-upset-college-football/
 
 **Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
-`After the bout was stopped, Jones shimmied for President-elect Donald Trump, who sat at the side of the octagon.`\
+`After the bout was stopped, Jones shimmied for President-elect Donald Trump, who sat next to the octagon.`\
 https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
 
 **SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
