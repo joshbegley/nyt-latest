@@ -1,3 +1,7 @@
+**Baylor bringing back head coach Dave Aranda for 2025**\
+`After a 3-9 finish in 2023, the Bears will go bowling this season after beating West Virginia in Morgantown on Saturday.`\
+https://nytimes.com/athletic/5926623/2024/11/16/baylor-dave-aranda-returning-hot-seat/
+
 **Luis Severino unlikely to accept Mets' qualifying offer: Source**\
 `Severino is expected to test the free-agent market after a season in which he had a 3.91 ERA over 182 innings.`\
 https://nytimes.com/athletic/5926573/2024/11/16/luis-severino-mets-qualifying-offer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-coll
 **Notre Dame proving it has one of nation's best defenses: Virginia takeaways**\
 `Notre Dame dominated Virginia 35-14 for its eighth consecutive win. Will the Irish return for one more home game in the Playoff?`\
 https://nytimes.com/athletic/5926443/2024/11/16/notre-dame-virginia-football-score-recap/
-
-**Shel Talmy, Who Produced the Who and the Kinks, Dies at 87**\
-`Though he was American, he helped define the sound of the British Invasion after settling in London in the early 1960s.`\
-https://nytimes.com/2024/11/16/arts/music/shel-talmy-dead.html
 

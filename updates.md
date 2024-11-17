@@ -1,3 +1,7 @@
+**Baylor bringing back head coach Dave Aranda for 2025**\
+`After a 3-9 finish in 2023, the Bears will go bowling this season after beating West Virginia in Morgantown on Saturday.`\
+https://nytimes.com/athletic/5926623/2024/11/16/baylor-dave-aranda-returning-hot-seat/
+
 **Luis Severino unlikely to accept Mets' qualifying offer: Source**\
 `Severino is expected to test the free-agent market after a season in which he had a 3.91 ERA over 182 innings.`\
 https://nytimes.com/athletic/5926573/2024/11/16/luis-severino-mets-qualifying-offer/
