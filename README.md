@@ -1,3 +1,7 @@
+**Lions hand Jags worst loss in team history in 52-6 drubbing: Takeaways**\
+`Jacksonville’s 46-point loss was the worst loss in franchise history, surpassing the 44-point loss in 1995.`\
+https://nytimes.com/athletic/5927301/2024/11/17/jaguars-lions-score-result-takeaways/
+
 **Ryan Reaves suspended 5 games for 'dangerous' hit on Darnell Nurse**\
 `Nurse was knocked out of Saturday’s game after taking the hit from Reaves early in the second period. `\
 https://nytimes.com/athletic/5926591/2024/11/17/maple-leafs-ryan-reaves-oilers-darnell-nurse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/world/middleeast/israel-document-leaks.html
 **NFL Week 11 inactives and fantasy tips: George Kittle out, Amari Cooper active**\
 `Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
-
-**AP Top 25: Ohio State, Indiana set for top-5 showdown**\
-`Oregon, Ohio State, Texas, Penn State and Indiana make up an unchanged top five in the AP poll, with plenty of SEC debates to be had.`\
-https://nytimes.com/athletic/5927392/2024/11/17/ap-top-25-rankings-football-indiana-osu/
 
