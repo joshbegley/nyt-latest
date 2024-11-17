@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/17/college-football-playoff-projections-odds/
+
 **Jayson Tatum's buzzer-beater lifts Celtics over Raptors in OT, but paint problems persist**\
 `"I know what I’m capable of, and you always believe that the next one is going in," says Jayson Tatum of his overtime winner. `\
 https://nytimes.com/athletic/5927085/2024/11/17/jayson-tatum-celtics-raptors-buzzer-beater-ot/
