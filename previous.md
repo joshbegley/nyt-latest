@@ -2,10 +2,6 @@
 `The Sun Devils topped the Wildcats 24-14 on the road, a result that puts Kansas State’s Big 12 title hopes on life support.`\
 https://nytimes.com/athletic/5926707/2024/11/16/arizona-state-upsets-no-16-kansas-state-what-this-means-for-big-12-title-race/
 
-**No. 1 Oregon survives at Wisconsin with second-half comeback**\
-`Wisconsin scored a touchdown with 25 seconds left in the second quarter to pull ahead of No. 1 Oregon at halftime.`\
-https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
-
 **How short-handed Wild lost yet again to their rival Stars: 3 takeaways**\
 `Without three of their best players, the Wild were defeated 2-1 by the Stars thanks to a two-goal night from Mason Marchment.`\
 https://nytimes.com/athletic/5926552/2024/11/16/wild-stars-takeaways-mason-marchment/
@@ -26,13 +22,17 @@ https://nytimes.com/athletic/5926623/2024/11/16/baylor-dave-aranda-returning-hot
 `Severino is expected to test the free-agent market after a season in which he had a 3.91 ERA over 182 innings.`\
 https://nytimes.com/athletic/5926573/2024/11/16/luis-severino-mets-qualifying-offer/
 
-**Toronto's Ryan Reaves ejected for hit that injures Edmonton's Darnell Nurse**\
+**Leafs' Ryan Reaves ejected for 'dangerous' hit that injures Oilers' Darnell Nurse**\
 `Reaves could be facing supplemental discipline from the NHL's Department of Player Safety as a result of the hit.`\
 https://nytimes.com/athletic/5926591/2024/11/16/maple-leafs-ryan-reaves-oilers-darnell-nurse/
 
 **Trump’s Pick for Pentagon Paid an Accuser but Denies It Was Sexual Assault**\
 `The Trump transition team was only recently alerted to the payment by Pete Hegseth, President-elect Donald J. Trump’s choice for secretary of defense.`\
 https://nytimes.com/2024/11/16/us/politics/hegseth-sexual-assault.html
+
+**No. 1 Oregon survives at Wisconsin with second-half comeback**\
+`No. 1 Oregon scored 10 unanswered fourth-quarter points to fend off an upset bid by Wisconsin at Camp Randall Stadium.`\
+https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
 
 **Former gymnastics coach Béla Károlyi dies at 82**\
 `Károlyi rose to prominence by training Olympic all-around champions Nadia Comăneci and Mary Lou Retton.`\
