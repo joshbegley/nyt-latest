@@ -1,3 +1,15 @@
+**Richardson leads late Colts TD drive in 28-27 win vs. Jets: Takeaways**\
+`Richardson posted a career day and led his second-ever game-winning drive over the reeling Jets.`\
+https://nytimes.com/athletic/5927316/2024/11/17/colts-jets-score-result-takeaways/
+
+**Blocked kick as time expires helps Packers edge Bears, 20-19: Takeaways**\
+`Late-game heroics lift Green Bay to its its 11th straight win over long-time divisional rival Chicago.`\
+https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
+
+**Vikings win third straight with 23-13 victory over Titans: Takeaways**\
+`The Vikings recorded five sacks and hit Titans QB Will Levis nine times while completing the sweep of the AFC South in 2024.`\
+https://nytimes.com/athletic/5927327/2024/11/17/vikings-titans-score-result-takeaways/
+
 **Steelers hold off Ravens in 18-16 AFC North win: Takeaways**\
 `Pittsburgh's defense quieted a typically stout Ravens offense that struggled to find the end zone.`\
 https://nytimes.com/athletic/5927321/2024/11/17/ravens-steelers-score-result-takeaways/
