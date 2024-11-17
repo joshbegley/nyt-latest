@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/17/college-football-playoff-projections-odds/
+
 **Jayson Tatum's buzzer-beater lifts Celtics over Raptors in OT, but paint problems persist**\
 `"I know what I’m capable of, and you always believe that the next one is going in," says Jayson Tatum of his overtime winner. `\
 https://nytimes.com/athletic/5927085/2024/11/17/jayson-tatum-celtics-raptors-buzzer-beater-ot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927008/2024/11/17/college-football-playoff-week-12
 **Mandel's Final Thoughts: Arizona State on fire, Tennessee on the bubble**\
 `The SEC and Big 12 standings got messier, the Big Ten avoided a similar fate, and some unlikely hot streaks are making November waves.`\
 https://nytimes.com/athletic/5927038/2024/11/17/college-football-scores-final-thoughts-bubble/
-
-**Over 30 People Killed in Israeli Strikes in Central and Northern Gaza**\
-`As Israel’s military wages a renewed offensive in the northern part of the enclave, Al Bureij and Nuseirat in central Gaza came under attack.`\
-https://nytimes.com/2024/11/17/world/europe/gaza-nuseirat-bureij-israel.html
 
