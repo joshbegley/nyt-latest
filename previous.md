@@ -1,3 +1,7 @@
+**Bengals at Chargers: How to watch, odds, expert picks with LA slightly favored**\
+`The playoffs are still within reach for the Bengals, while the Chargers are rolling under Jim Harbaugh.`\
+https://nytimes.com/athletic/5923762/2024/11/17/bengals-chargers-how-to-watch-odds-picks-betting/
+
 **Chiefs at Bills: How to watch, odds, expert picks for the next chapter of Mahomes-Allen**\
 `If some extraterrestrial life form wondered why we human beings like the NFL so much — well, we’d show them Chiefs vs. Bills.`\
 https://nytimes.com/athletic/5923736/2024/11/17/chiefs-bills-how-to-watch-odds-picks-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/us/politics/harris-campaign-finances.html
 **Morales: USC needed its win against Nebraska — even if the Trojans still have a ways to go**\
 `The Trojans sealed a 28-20 victory on Saturday that shifted the mood around the program.`\
 https://nytimes.com/athletic/5926807/2024/11/17/usc-nebraska-college-football-lincoln-riley-win/
-
-**Why ‘Tammy Faye’ the Musical Feels Like a Redemption**\
-`The televangelist defended gay men during the AIDS crisis. Now she’s getting perhaps the gayest tribute: a Broadway show led by Elton John.`\
-https://nytimes.com/2024/11/17/theater/why-tammy-faye-the-musical-feels-like-a-redemption.html
 
