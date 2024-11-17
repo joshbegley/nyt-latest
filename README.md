@@ -1,3 +1,7 @@
+**Residents Evacuated Because of Fire on New York-New Jersey Border**\
+`The voluntary evacuation plan was put in place in areas affected by the Jennings Creek wildfire. Officials encouraged residents of 165 homes to move out temporarily.`\
+https://nytimes.com/2024/11/17/nyregion/fires-new-york-new-jersey-evacuations.html
+
 **Monday Briefing: Ukraine Can Hit Russia With U.S. Long-Range Weapons**\
 `Plus, World of Warcraft turned 20.`\
 https://nytimes.com/2024/11/17/briefing/ukraine-russia-trump-shen-yun.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/obituaries/bela-karolyi-dead.html
 **Stewart Mandel's 12-team Playoff projections after Week 12**\
 `The Rebels have two Top 25 wins to Tennessee’s one, but they also have a bad home loss to 4-6 Kentucky. It's a fascinating debate.`\
 https://nytimes.com/athletic/5927449/2024/11/17/college-football-playoff-bracket-projections-week-12/
-
-**The Briefing: England 5-0 Republic of Ireland - Carsley enhances reputation, two sides of Harry Kane**\
-`A second-half surge saw England breeze back into the top tier of the UEFA Nations League`\
-https://nytimes.com/athletic/5919873/2024/11/17/england-5-0-republic-of-ireland-carsley-kane/
 
