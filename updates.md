@@ -1,3 +1,11 @@
+**Taysom Hill's career game fuels Saints 35-14 win vs. Browns: Takeaways**\
+`Hill rushed for a career-high 138 yards and matched a career best with three touchdowns on just seven carries.`\
+https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takeaways/
+
+**Blocked kick as time expires helps Packers edge Bears, 20-19: Takeaways**\
+`Late-game heroics lift Green Bay to its 11th straight win over long-time divisional rival Chicago.`\
+https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
+
 **Richardson leads late Colts TD drive in 28-27 win vs. Jets: Takeaways**\
 `Richardson posted a career day and led his second-ever game-winning drive over the reeling Jets.`\
 https://nytimes.com/athletic/5927316/2024/11/17/colts-jets-score-result-takeaways/
