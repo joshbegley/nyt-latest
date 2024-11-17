@@ -1,4 +1,12 @@
 **Bela Karolyi, 82, Dies; Gymnastics Coach Was Revered, Then Repudiated**\
+`He rose to fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
+https://nytimes.com/2024/11/17/obituaries/bela-karolyi-dead.html
+
+**ATP Tour Finals will stay in Italy until 2030, Turin will host for 2025**\
+`The host city has not been confirmed from 2026 onwards.`\
+https://nytimes.com/athletic/5921188/2024/11/17/atp-tour-finals-venue-milan-turin/
+
+**Bela Karolyi, 82, Dies; Gymnastics Coach Was Revered, Then Repudiated**\
 `He rose to  fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
 https://nytimes.com/2024/11/17/obituaries/bela-karolyi-dead.html
 

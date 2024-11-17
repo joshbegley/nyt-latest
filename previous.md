@@ -1,5 +1,5 @@
 **Bela Karolyi, 82, Dies; Gymnastics Coach Was Revered, Then Repudiated**\
-`He rose to  fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
+`He rose to fame leading the Romanian and U.S. Olympic teams. He was later caught up in scandals involving the abuse of young female gymnasts.`\
 https://nytimes.com/2024/11/17/obituaries/bela-karolyi-dead.html
 
 **Stewart Mandel's 12-team Playoff projections after Week 12**\
@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5927449/2024/11/17/college-football-playoff-bracket
 `A second-half surge saw England breeze back into the top tier of the UEFA Nations League`\
 https://nytimes.com/athletic/5919873/2024/11/17/england-5-0-republic-of-ireland-carsley-kane/
 
-**ATP Tour Finals will stay in Italy until 2030, Turin and Milan in contention**\
-`The ATP Tour Finals staying in Italy removes any imminent opportunity for Saudi Arabia to host the event.`\
+**ATP Tour Finals will stay in Italy until 2030, Turin will host for 2025**\
+`The host city has not been confirmed from 2026 onwards.`\
 https://nytimes.com/athletic/5921188/2024/11/17/atp-tour-finals-venue-milan-turin/
 
 **Betty White Stamp to Be Released in 2025**\
