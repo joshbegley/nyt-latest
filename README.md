@@ -1,7 +1,3 @@
-**Biden Pledges New Funding to Protect the Amazon**\
-`President Biden pledged financial help to protect the Amazon during a visit to Brazil, making one final push to combat climate change before the end of his term.`\
-https://nytimes.com/video/science/earth/100000009830482/biden-pledges-new-funding-to-protect-the-amazon.html
-
 **Marta's GOAT goal fires Orlando Pride to NWSL final**\
 `There was a moment in the 2024 NWSL semifinal, when Barbra Banda was receiving treatment, that the cameras zoomed in on a set of water bottles.`\
 https://nytimes.com/athletic/5927882/2024/11/17/marta-nwsl-goal-play-off-orlando/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/17/world/europe/celeste-caeiro-dead.html
 **Stafford tosses 4 TDs as Rams hold off Patriots 28-22: Takeaways**\
 `The back-and-forth passing affair between Matthew Stafford and Drake Maye was won by Stafford in his second-ever trip to Gillette Stadium.`\
 https://nytimes.com/athletic/5927307/2024/11/17/rams-patriots-score-result-takeaways/
+
+**Families of American Victims of Oct. 7 Attack Sue Iran**\
+`The lawsuit aims to highlight Iran’s role in the attack that killed about 1,200 people as well as its support for Hamas and other terrorist groups.`\
+https://nytimes.com/2024/11/17/us/politics/iran-oct-7-families-lawsuit.html
 
