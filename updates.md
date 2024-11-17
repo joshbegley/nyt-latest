@@ -1,3 +1,7 @@
+**How short-handed Wild lost yet again to their rival Stars: 3 takeaways**\
+`Without three of their best players, the Wild were defeated 2-1 by the Stars thanks to a two-goal night from Mason Marchment.`\
+https://nytimes.com/athletic/5926552/2024/11/16/wild-stars-takeaways-mason-marchment/
+
 **Shane Beamer, South Carolina celebrate another thrilling win in Columbia**\
 `The Gamecocks, who are 5-3 in the SEC, have won four consecutive games. `\
 https://nytimes.com/athletic/5926601/2024/11/16/south-carolina-missouri-shane-beamer-lanorris-sellers/
