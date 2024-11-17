@@ -1,3 +1,11 @@
+**Here is the latest on the next administration.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/11/17/us/trump-news/here-is-the-latest-on-the-next-administration
+
+**Trump Transition Live Updates: President-Elect Names Gas Executive as Energy Secretary**\
+`Donald J. Trump has yet to announce the next leaders of the Treasury, Commerce, and Labor Departments, among other roles.`\
+https://nytimes.com/live/2024/11/17/us/trump-news
+
 **Israel Strikes Building in Central Beirut**\
 `The attack came as Israel’s military has been pounding an area just outside the Lebanese capital with some of the heaviest waves of bombardment in months.`\
 https://nytimes.com/2024/11/17/world/europe/beirut-lebanon-israel-hezbollah.html

@@ -1,3 +1,11 @@
+**Here is the latest on the next administration.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/11/17/us/trump-news/here-is-the-latest-on-the-next-administration
+
+**Trump Transition Live Updates: President-Elect Names Gas Executive as Energy Secretary**\
+`Donald J. Trump has yet to announce the next leaders of the Treasury, Commerce, and Labor Departments, among other roles.`\
+https://nytimes.com/live/2024/11/17/us/trump-news
+
 **Israel Strikes Building in Central Beirut**\
 `The attack came as Israel’s military has been pounding an area just outside the Lebanese capital with some of the heaviest waves of bombardment in months.`\
 https://nytimes.com/2024/11/17/world/europe/beirut-lebanon-israel-hezbollah.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/17/opinion/trump-kennedy-gaetz-hegseth.html
 **Jared Polis Wants to Win Back the Hippies**\
 `The governor’s embrace of Robert F. Kennedy Jr. may be no less significant to his success than his attention to affordability.`\
 https://nytimes.com/2024/11/17/opinion/jared-polis-robert-kennedy-democrats.html
-
-**The Connections Companion No. 526**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 18, 2024.`\
-https://nytimes.com/2024/11/17/crosswords/connections-companion-526.html
-
-**The Sunday Read: ‘How Cheerleading Became So Acrobatic, Dangerous and Popular’**\
-`For decades, the sport has been shaped in large part by one company — and one man.`\
-https://nytimes.com/2024/11/17/podcasts/the-daily/cheerleading-dangerous-popular.html
 
