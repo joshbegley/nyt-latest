@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni
 `\
 https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni-malkin/
 
+**How Penguins survived another blown lead against Sharks: 3 takeaways**\
+`For a change, a blown multi-goal lead to the Sharks wasn't costly for the Penguins.
+`\
+https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni-malkin/
+
 **Rams at Patriots: How to watch, odds, expert picks with LA favored on the road**\
 `Drake Maye is one of the league's youngest QBs. Matthew Stafford is one of its oldest. They square off Sunday.`\
 https://nytimes.com/athletic/5923442/2024/11/17/rams-patriots-how-to-watch-odds-picks-betting/
