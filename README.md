@@ -1,3 +1,7 @@
+**Rams at Patriots: How to watch, odds, expert picks with LA favored on the road**\
+`Drake Maye is one of the league's youngest QBs. Matthew Stafford is one of its oldest. They square off Sunday.`\
+https://nytimes.com/athletic/5923442/2024/11/17/rams-patriots-how-to-watch-odds-picks-betting/
+
 **Is Harry Kane still England's best option at No 9?**\
 `What is Kane's standing after Lee Carsley benched him against Greece? Should Watkins start? Or is Bellingham the answer?`\
 https://nytimes.com/athletic/5924369/2024/11/17/is-harry-kane-still-best-striker-england/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/11/17/world/asia/my-lai-massacre-vietman-museum.html
 **England vs Ireland preview: Storylines, odds, prediction as Three Lions go for promotion**\
 `England hope to lock up promotion in the Nations League with a win against Ireland at Wembley.`\
 https://nytimes.com/athletic/5925053/2024/11/17/england-ireland-preview-odds-prediction/
-
-**Italy vs France preview: Storylines, odds, prediction as European powers meet**\
-`France visits Italy in the finale in Nations League group play. Both teams have advanced to the quarter-finals.`\
-https://nytimes.com/athletic/5924958/2024/11/17/italy-france-preview-odds-prediction/
 
