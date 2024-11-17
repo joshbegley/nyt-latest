@@ -1,3 +1,11 @@
+**SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
+`But that's if no more upsets occur and it goes to the newly installed SEC tiebreakers . A potential six-team tie remains very much alive.`\
+https://nytimes.com/athletic/5926924/2024/11/17/sec-tiebreaker-scenarios-update-alabama-texas-texas-am/
+
+**Devon Levi wasn't sharp and Sabres' defense didn't help much in loss to Flyers**\
+`Levi, in his first consecutive start this season, stopped 26 of 30 shots in Buffalo's lopsided 5-2 loss to Philadelphia.`\
+https://nytimes.com/athletic/5926915/2024/11/17/devon-levi-sabres-lose-to-flyers/
+
 **How the Canucks won ugly against Connor Bedard, lowly Blackhawks: 3 takeaways**\
 `The Canucks were able to get back in the win column in just about the least inspiring way possible in a 4-1 rout of the Blackhawks. `\
 https://nytimes.com/athletic/5926686/2024/11/17/how-the-canucks-won-ugly-against-connor-bedard-lowly-blackhawks-3-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5926787/2024/11/17/oilers-darnell-nurse-injury/
 **Colts at Jets: How to watch, odds, expert picks as Richardson, Rodgers try to stop skids**\
 `The 4-6 Indianapolis Colts are four-point underdogs to the 3-7 New York Jets? Both teams have had disappointing seasons so far.`\
 https://nytimes.com/athletic/5923518/2024/11/17/colts-jets-how-to-watch-odds-picks-betting/
-
-**Doak gave Gvardiol a night to forget – so what now?**\
-`The youngster announced himself on the international stage with a supreme display against Manchester City's superstar`\
-https://nytimes.com/athletic/5926119/2024/11/17/ben-doak-liverpool-josko-gvardiol/
-
-**Erik Johnson, Matvei Michkov and how the Flyers' culture is turning around their season**\
-`"We talk about it a lot, the culture," Erik Johnson said, "but here in this room, it's special. I think it's going to go a long way."`\
-https://nytimes.com/athletic/5926750/2024/11/17/erik-johnson-matvei-michkov-flyers-culture/
 

@@ -1,3 +1,11 @@
+**SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
+`But that's if no more upsets occur and it goes to the newly installed SEC tiebreakers . A potential six-team tie remains very much alive.`\
+https://nytimes.com/athletic/5926924/2024/11/17/sec-tiebreaker-scenarios-update-alabama-texas-texas-am/
+
+**Devon Levi wasn't sharp and Sabres' defense didn't help much in loss to Flyers**\
+`Levi, in his first consecutive start this season, stopped 26 of 30 shots in Buffalo's lopsided 5-2 loss to Philadelphia.`\
+https://nytimes.com/athletic/5926915/2024/11/17/devon-levi-sabres-lose-to-flyers/
+
 **How the Canucks won ugly against Connor Bedard, lowly Blackhawks: 3 takeaways**\
 `The Canucks were able to get back in the win column in just about the least inspiring way possible in a 4-1 rout of the Blackhawks. `\
 https://nytimes.com/athletic/5926686/2024/11/17/how-the-canucks-won-ugly-against-connor-bedard-lowly-blackhawks-3-takeaways/
