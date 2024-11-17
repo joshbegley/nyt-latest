@@ -1,3 +1,7 @@
+**Wisconsin takes surprise halftime lead over No. 1 Oregon**\
+`Wisconsin scored a touchdown with 25 seconds left in the second quarter to pull ahead of No. 1 Oregon at halftime.`\
+https://nytimes.com/athletic/5926595/2024/11/16/wisconsin-oregon-football-score-recap/
+
 **Former gymnastics coach Béla Károlyi dies at 82**\
 `Károlyi rose to prominence by training Olympic all-around champions Nadia Comăneci and Mary Lou Retton.`\
 https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-dies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926491/2024/11/16/florida-lsu-football-score-recap
 **Man Hiding Tarantulas, Centipedes and Ants Is Stopped From Boarding Flight**\
 `Officials in Lima, Peru, said the endangered spiders had been taken from the Amazon basin. The man was flying to South Korea.`\
 https://nytimes.com/2024/11/16/world/americas/tarantulas-centipedes-smuggling-arrest-peru.html
-
-**Biden’s Policies Offer a Starting Point for Trump’s Border Crackdown**\
-`Mr. Trump has criticized the Biden administration for what he calls its lax handling of the border — but it has left him with tools he can use to shut down the border.`\
-https://nytimes.com/2024/11/16/us/politics/biden-trump-border-crackdown.html
 
