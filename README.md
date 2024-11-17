@@ -1,3 +1,7 @@
+**NFL Week 11 inactives and fantasy tips: Davante Adams active, Sam LaPorta out**\
+`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
+
 **Temple fires coach Stan Drayton amid 3-7 season**\
 `Defensive coordinator Everett Withers was named the team's interim head coach for the remainder of the season.`\
 https://nytimes.com/athletic/5927295/2024/11/17/temple-football-stan-drayton-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5920144/2024/11/17/live-qa-week-11-fantasy-football
 **Cowboys Today: Preparing for brutal stretch of 3 games in 11 days and is there a LT battle?**\
 `Playing Monday, Sunday and then Thursday isn't great for getting players healthy, but that's what the Cowboys' upcoming task.`\
 https://nytimes.com/athletic/5926864/2024/11/17/cowboys-today-schedule-thanksgiving-left-tackle/
-
-**College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/17/college-football-playoff-projections-odds/
 
