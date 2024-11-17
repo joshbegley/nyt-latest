@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/17/arts/betty-white-postage-stamp.html
 
 **Anthony Edwards fined $35K for giving fan middle finger**\
-`Edwards, 23, raised his middle finger to the officials after being called for a charge with 3:15 remaining in the first quarter.`\
+`The fine isn't the first of Edwards' career.`\
 https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-finger/
 
 **USC flips 5-star QB Husan Longstreet from Texas A&M: What this means for the Trojans**\

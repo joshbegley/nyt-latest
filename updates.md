@@ -1,3 +1,7 @@
+**Anthony Edwards fined $35K for giving fan middle finger**\
+`The fine isn't the first of Edwards' career.`\
+https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-finger/
+
 **Betty White Stamp to Be Released in 2025**\
 `The U.S. Postal Service announced it would honor the actress known for her comedic work on shows such as “The Golden Girls” and “The Mary Tyler Moore Show.”`\
 https://nytimes.com/2024/11/17/arts/betty-white-postage-stamp.html
