@@ -1,3 +1,7 @@
+**Live Q&A: Week 11 fantasy football start/sit chat with Jay Felicio, Sunday 11/17 at 11 a.m. ET**\
+`Submit your Week 11 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5920144/2024/11/17/live-qa-week-11-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-17-at-11-a-m-et/
+
 **Cowboys Today: Preparing for brutal stretch of 3 games in 11 days and is there a LT battle?**\
 `Playing Monday, Sunday and then Thursday isn't great for getting players healthy, but that's what the Cowboys' upcoming task.`\
 https://nytimes.com/athletic/5926864/2024/11/17/cowboys-today-schedule-thanksgiving-left-tackle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927098/2024/11/17/wilson-odobert-injury-tottenham/
 **Slaying Dragons for 20 Years**\
 `World of Warcraft was first released two decades ago.`\
 https://nytimes.com/2024/11/17/briefing/world-of-warcraft-20th-anniversary.html
-
-**Week 12 CFP race lessons: Georgia’s still alive, an SEC-Big Ten debate looms**\
-`There are two weeks left in the regular season, and there appear to be more teams hanging around Playoff contention than falling out.`\
-https://nytimes.com/athletic/5927008/2024/11/17/college-football-playoff-week-12-race-sec-big-ten-rankings/
 
