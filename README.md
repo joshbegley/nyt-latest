@@ -1,3 +1,7 @@
+**Anthony Edwards fined $35K for giving fan middle finger**\
+`Edwards, 23, raised his middle finger to the officials after being called for a charge with 3:15 remaining in the first quarter.`\
+https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-finger/
+
 **USC flips 5-star QB Husan Longstreet from Texas A&M: What this means for the Trojans**\
 `Longstreet, who plays at Corona (Calif.) Centennial, is ranked No. 34 overall and the No. 6 quarterback in the Class of 2025.`\
 https://nytimes.com/athletic/5920030/2024/11/17/usc-recruiting-husan-longstreet-julian-lewis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/us/politics/gaetz-mccarthy-johnson-ethics-report.
 **Rooney's time as Plymouth manager being recorded for documentary**\
 `TV cameras are tracking Wayne Rooney this season for a documentary series that will follow his time as manager of Plymouth Argyle.`\
 https://nytimes.com/athletic/5927372/2024/11/17/wayne-rooney-tv-documentary-plymouth/
-
-**Ann Selzer Announces End of Election Polling Operation**\
-`Her final poll of Iowa before the election showed Kamala Harris leading Donald Trump, an outlier and a major miss.`\
-https://nytimes.com/2024/11/17/us/politics/ann-selzer-ends-election-polls.html
 
