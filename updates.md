@@ -1,3 +1,7 @@
+**A Global Fund for Climate Disasters Is Taking Shape in Trump’s Shadow**\
+`The U.N. climate summit in Azerbaijan has cleared the for way aid to flow when lower-income countries are hit.`\
+https://nytimes.com/2024/11/17/climate/loss-damage-fund-cop29-baku.html
+
 **Haiti’s Many Problems and Very Few Solutions, Explained**\
 `A search for a solution to the crisis in Haiti is growing more urgent as gangs gain territory and thousands more flee their homes.`\
 https://nytimes.com/2024/11/17/world/americas/haitis-many-problems-and-very-few-solutions-explained.html
