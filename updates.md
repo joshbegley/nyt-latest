@@ -1,3 +1,7 @@
+**Donald Trump to attend UFC 309 in New York**\
+`Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
+https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
+
 **In a battle of new-look offenses, USC tops Nebraska: Instant analysis**\
 `LOS ANGELES — USC’s Greedy Vance Jr.`\
 https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-college-football/
