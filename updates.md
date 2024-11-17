@@ -1,3 +1,11 @@
+**Shane Beamer, South Carolina celebrate another thrilling win in Columbia**\
+`South Carolina has won four consecutive games and closed out its 2024 SEC season with a 5-3 record. `\
+https://nytimes.com/athletic/5926601/2024/11/16/south-carolina-missouri-shane-beamer-lanorris-sellers/
+
+**Donald Trump attends UFC 309 in New York**\
+`Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
+https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
+
 **Toronto's Ryan Reaves ejected for hit that injures Edmonton's Darnell Nurse**\
 `Reaves could be facing supplemental discipline from the NHL's Department of Player Safety as a result of the hit.`\
 https://nytimes.com/athletic/5926591/2024/11/16/maple-leafs-ryan-reaves-oilers-darnell-nurse/
