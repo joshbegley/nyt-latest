@@ -1,3 +1,15 @@
+**Stewart Mandel's 12-team Playoff projections after Week 12**\
+`The Rebels have two Top 25 wins to Tennessee’s one, but they also have a bad home loss to 4-6 Kentucky. It's a fascinating debate.`\
+https://nytimes.com/athletic/5927449/2024/11/17/college-football-playoff-bracket-projections-week-12/
+
+**The Briefing: England 5-0 Republic of Ireland - Carsley enhances reputation, two sides of Harry Kane**\
+`A second-half surge saw England breeze back into the top tier of the UEFA Nations League`\
+https://nytimes.com/athletic/5919873/2024/11/17/england-5-0-republic-of-ireland-carsley-kane/
+
+**ATP Tour Finals will stay in Italy until 2030, Turin and Milan in contention**\
+`The ATP Tour Finals staying in Italy removes any imminent opportunity for Saudi Arabia to host the event.`\
+https://nytimes.com/athletic/5921188/2024/11/17/atp-tour-finals-venue-milan-turin/
+
 **Betty White Stamp to Be Released in 2025**\
 `The U.S. Postal Service announced it would honor the actress known for her comedic work on shows such as “The Golden Girls” and “The Mary Tyler Moore Show.”`\
 https://nytimes.com/2024/11/17/arts/betty-white-postage-stamp.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5927145/2024/11/17/blue-jackets-jody-shelley-nhl-br
 **Biden Allows Ukraine to Strike Russia With Long-Range U.S. Missiles**\
 `With two months left in office, the president for the first time authorized the Ukrainian military to use the system known as ATACMS to help defend its forces in the Kursk region of Russia.`\
 https://nytimes.com/2024/11/17/us/politics/biden-ukraine-russia-atacms-missiles.html
-
-**Man Utd's Toone sidelined with calf injury**\
-`Manchester United Women midfielder Ella Toone is set for a spell on the sidelines with a calf injury.`\
-https://nytimes.com/athletic/5927359/2024/11/17/ella-toone-injury-manchester-united/
-
-**U.S. Opens Investigation Into Killing of Sonya Massey**\
-`The Justice Department notified Sangamon County, Ill., that it had opened a civil rights investigation after reports about the shooting raised “serious concerns.”`\
-https://nytimes.com/2024/11/17/us/sonya-massey-shooting-investigation.html
-
-**Gaetz Report Drama Brings a House Republican Feud Full Circle**\
-`A vendetta over the congressional ethics investigation into Matt Gaetz helped sink the last speaker. The new speaker has moved to quash it.`\
-https://nytimes.com/2024/11/17/us/politics/gaetz-mccarthy-johnson-ethics-report.html
 

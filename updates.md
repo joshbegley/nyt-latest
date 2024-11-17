@@ -1,3 +1,15 @@
+**Stewart Mandel's 12-team Playoff projections after Week 12**\
+`The Rebels have two Top 25 wins to Tennessee’s one, but they also have a bad home loss to 4-6 Kentucky. It's a fascinating debate.`\
+https://nytimes.com/athletic/5927449/2024/11/17/college-football-playoff-bracket-projections-week-12/
+
+**The Briefing: England 5-0 Republic of Ireland - Carsley enhances reputation, two sides of Harry Kane**\
+`A second-half surge saw England breeze back into the top tier of the UEFA Nations League`\
+https://nytimes.com/athletic/5919873/2024/11/17/england-5-0-republic-of-ireland-carsley-kane/
+
+**ATP Tour Finals will stay in Italy until 2030, Turin and Milan in contention**\
+`The ATP Tour Finals staying in Italy removes any imminent opportunity for Saudi Arabia to host the event.`\
+https://nytimes.com/athletic/5921188/2024/11/17/atp-tour-finals-venue-milan-turin/
+
 **Anthony Edwards fined $35K for giving fan middle finger**\
 `The fine isn't the first of Edwards' career.`\
 https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-finger/
