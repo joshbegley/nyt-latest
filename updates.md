@@ -1,3 +1,15 @@
+**USC flips 5-star QB Husan Longstreet from Texas A&M: What this means for the Trojans**\
+`Longstreet, who plays at Corona (Calif.) Centennial, is ranked No. 34 overall and the No. 6 quarterback in the Class of 2025.`\
+https://nytimes.com/athletic/5920030/2024/11/17/usc-recruiting-husan-longstreet-julian-lewis/
+
+**Liverpool boss Beard suggests WSL referees have personal agenda against him**\
+`Liverpool Women manager Matt Beard has suggested referees may have a personal agenda against him after his side’s controversial Women’s Super League (WSL) defeat to Everton.`\
+https://nytimes.com/athletic/5927471/2024/11/17/matt-beard-referees-liverpool/
+
+**Jannik Sinner wins ATP Tour Finals with serve masterclass against Taylor Fritz**\
+`The Italian crowd watched their sporting hero confirm his supremacy in men's tennis at home.`\
+https://nytimes.com/athletic/5927447/2024/11/17/sinner-fritz-atp-tour-finals-result-analysis/
+
 **Blue Jackets Sunday Gathering: Jody Shelley embraces second career as national broadcaster**\
 `Since retiring as a player after 2012-13, Shelley, 48, is having a blast as one of the NHL's most recognized (and busiest) national voices.`\
 https://nytimes.com/athletic/5927145/2024/11/17/blue-jackets-jody-shelley-nhl-broadcast/
