@@ -1,3 +1,19 @@
+**Dallas Wings score No. 1 pick in 2025 WNBA Draft Lottery**\
+`The Wings had 45.4 percent odds to land the top pick.`\
+https://nytimes.com/athletic/5927939/2024/11/17/wnba-draft-2025-dallas-wings/
+
+**LaMelo Ball fined $100k for using anti-gay language in interview**\
+`The NBA said that comment was "offensive and derogatory" when it levied the fine. `\
+https://nytimes.com/athletic/5927748/2024/11/17/lamelo-ball-fine-interview-comments/
+
+**Biden Pledges New Funding to Protect the Amazon**\
+`President Biden pledged financial help to protect the Amazon during a visit to Brazil, making one final push to combat climate change before the end of his term.`\
+https://nytimes.com/video/science/earth/100000009830482/biden-pledges-new-funding-to-protect-the-amazon.html
+
+**Blocked kick as time expires helps Packers edge Bears 20-19: Takeaways**\
+`Late-game heroics lifted Green Bay to its 11th straight win over longtime divisional rival Chicago.`\
+https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
+
 **Marta's GOAT goal fires Orlando Pride to NWSL final**\
 `There was a moment in the 2024 NWSL semifinal, when Barbra Banda was receiving treatment, that the cameras zoomed in on a set of water bottles.`\
 https://nytimes.com/athletic/5927882/2024/11/17/marta-nwsl-goal-play-off-orlando/

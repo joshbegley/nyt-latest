@@ -1,3 +1,15 @@
+**Dallas Wings score No. 1 pick in 2025 WNBA Draft Lottery**\
+`The Wings had 45.4 percent odds to land the top pick.`\
+https://nytimes.com/athletic/5927939/2024/11/17/wnba-draft-2025-dallas-wings/
+
+**LaMelo Ball fined $100k for using anti-gay language in interview**\
+`The NBA said that comment was "offensive and derogatory" when it levied the fine. `\
+https://nytimes.com/athletic/5927748/2024/11/17/lamelo-ball-fine-interview-comments/
+
+**Biden Pledges New Funding to Protect the Amazon**\
+`President Biden pledged financial help to protect the Amazon during a visit to Brazil, making one final push to combat climate change before the end of his term.`\
+https://nytimes.com/video/science/earth/100000009830482/biden-pledges-new-funding-to-protect-the-amazon.html
+
 **Marta's GOAT goal fires Orlando Pride to NWSL final**\
 `There was a moment in the 2024 NWSL semifinal, when Barbra Banda was receiving treatment, that the cameras zoomed in on a set of water bottles.`\
 https://nytimes.com/athletic/5927882/2024/11/17/marta-nwsl-goal-play-off-orlando/
@@ -10,8 +22,8 @@ https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takea
 `Richardson posted a career day and led his second-ever game-winning drive over the reeling Jets.`\
 https://nytimes.com/athletic/5927316/2024/11/17/colts-jets-score-result-takeaways/
 
-**Blocked kick as time expires helps Packers edge Bears, 20-19: Takeaways**\
-`Late-game heroics lift Green Bay to its 11th straight win over longtime divisional rival Chicago.`\
+**Blocked kick as time expires helps Packers edge Bears 20-19: Takeaways**\
+`Late-game heroics lifted Green Bay to its 11th straight win over longtime divisional rival Chicago.`\
 https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
 
 **Vikings win third straight with 23-13 victory over Titans: Takeaways**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5927321/2024/11/17/ravens-steelers-score-result-tak
 **Tagovailoa, Smith lead Dolphins in 34-19 win vs. Raiders: Takeaways**\
 `Miami improves to 4-6 with the win, while Las Vegas drops to 2-8 this season.`\
 https://nytimes.com/athletic/5927303/2024/11/17/raiders-dolphins-score-result-takeaways/
-
-**Celeste Caeiro, Whose Flowers Gave a Name to a Revolt, Dies at 91**\
-`In Portugal in 1974, she spontaneously gave red carnations to soldiers on their way to ending a dictatorship in what became known as the Carnation Revolution.`\
-https://nytimes.com/2024/11/17/world/europe/celeste-caeiro-dead.html
-
-**Stafford tosses 4 TDs as Rams hold off Patriots 28-22: Takeaways**\
-`The back-and-forth passing affair between Matthew Stafford and Drake Maye was won by Stafford in his second-ever trip to Gillette Stadium.`\
-https://nytimes.com/athletic/5927307/2024/11/17/rams-patriots-score-result-takeaways/
-
-**Families of American Victims of Oct. 7 Attack Sue Iran**\
-`The lawsuit aims to highlight Iran’s role in the attack that killed about 1,200 people as well as its support for Hamas and other terrorist groups.`\
-https://nytimes.com/2024/11/17/us/politics/iran-oct-7-families-lawsuit.html
 
