@@ -1,3 +1,11 @@
+**How the Canucks won ugly against Connor Bedard, lowly Blackhawks: 3 takeaways**\
+`The Canucks were able to get back in the win column in just about the least inspiring way possible in a 4-1 rout of the Blackhawks. `\
+https://nytimes.com/athletic/5926686/2024/11/17/how-the-canucks-won-ugly-against-connor-bedard-lowly-blackhawks-3-takeaways/
+
+**Short-handed Wild saw a lot of progress, but the outcome was familiar for the Stars**\
+`The Wild have now gone 12 regular-season meetings since beating the Stars in regulation.`\
+https://nytimes.com/athletic/5926705/2024/11/17/wild-stars-familiar-outcome/
+
 **Trump Can Speed Up the Inevitable in Ukraine**\
 `He should force a settlement to save lives and avoid more destruction.`\
 https://nytimes.com/2024/11/17/opinion/trump-ukraine-russia-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5926119/2024/11/17/ben-doak-liverpool-josko-gvardio
 **Erik Johnson, Matvei Michkov and how the Flyers' culture is turning around their season**\
 `"We talk about it a lot, the culture," Erik Johnson said, "but here in this room, it's special. I think it's going to go a long way."`\
 https://nytimes.com/athletic/5926750/2024/11/17/erik-johnson-matvei-michkov-flyers-culture/
-
-**Browns at Saints: How to watch, odds, expert picks for Jameis Winston revenge game**\
-`Both teams will be playing for pride on Sunday, with Browns QB Jameis Winston facing his former team in the Saints.`\
-https://nytimes.com/athletic/5923468/2024/11/17/browns-saints-how-to-watch-odds-picks-betting/
-
-**Rams at Patriots: How to watch, odds, expert picks with LA favored on the road**\
-`Drake Maye is one of the league's youngest QBs. Matthew Stafford is one of its oldest. They square off Sunday.`\
-https://nytimes.com/athletic/5923442/2024/11/17/rams-patriots-how-to-watch-odds-picks-betting/
 
