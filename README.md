@@ -1,3 +1,15 @@
+**USC flips 5-star QB Husan Longstreet from Texas A&M: What this means for the Trojans**\
+`Longstreet, who plays at Corona (Calif.) Centennial, is ranked No. 34 overall and the No. 6 quarterback in the Class of 2025.`\
+https://nytimes.com/athletic/5920030/2024/11/17/usc-recruiting-husan-longstreet-julian-lewis/
+
+**Liverpool boss Beard suggests WSL referees have personal agenda against him**\
+`Liverpool Women manager Matt Beard has suggested referees may have a personal agenda against him after his side’s controversial Women’s Super League (WSL) defeat to Everton.`\
+https://nytimes.com/athletic/5927471/2024/11/17/matt-beard-referees-liverpool/
+
+**Jannik Sinner wins ATP Tour Finals with serve masterclass against Taylor Fritz**\
+`The Italian crowd watched their sporting hero confirm his supremacy in men's tennis at home.`\
+https://nytimes.com/athletic/5927447/2024/11/17/sinner-fritz-atp-tour-finals-result-analysis/
+
 **Blue Jackets Sunday Gathering: Jody Shelley embraces second career as national broadcaster**\
 `Since retiring as a player after 2012-13, Shelley, 48, is having a blast as one of the NHL's most recognized (and busiest) national voices.`\
 https://nytimes.com/athletic/5927145/2024/11/17/blue-jackets-jody-shelley-nhl-broadcast/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5927372/2024/11/17/wayne-rooney-tv-documentary-plym
 **Ann Selzer Announces End of Election Polling Operation**\
 `Her final poll of Iowa before the election showed Kamala Harris leading Donald Trump, an outlier and a major miss.`\
 https://nytimes.com/2024/11/17/us/politics/ann-selzer-ends-election-polls.html
-
-**Clifton R. Wharton Jr., Who Broke Racial Barriers, Is Dead at 98**\
-`He was the first African American to become president of a large white university, C.E.O. of a major corporation and deputy secretary of state.`\
-https://nytimes.com/2024/11/17/us/politics/clifton-r-wharton-jr-dead.html
-
-**NFL Week 11 inactives and fantasy tips: Davante Adams active, Sam LaPorta out**\
-`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
-https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantasy-tips/
-
-**Temple fires coach Stan Drayton amid 3-7 season**\
-`Defensive coordinator Everett Withers was named the team's interim head coach for the remainder of the season.`\
-https://nytimes.com/athletic/5927295/2024/11/17/temple-football-stan-drayton-fired/
 
