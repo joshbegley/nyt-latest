@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/16/world/americas/tarantulas-centipedes-smuggling-ar
 https://nytimes.com/2024/11/16/us/politics/biden-trump-border-crackdown.html
 
 **Bucks, Doc Rivers livid after controversial call in loss to Hornets**\
-`Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte. `\
+`Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte.`\
 https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul-video/
 
 **Paul vs. Tyson draws 60 million viewers on Netflix amid streaming issues**\
