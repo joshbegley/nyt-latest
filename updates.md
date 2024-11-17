@@ -1,3 +1,7 @@
+**No. 6 BYU loses first game of season to Kansas: Playoff, Big 12 title implications**\
+`The Cougars lost 17-13 at home to the Jayhawks on Saturday night.`\
+https://nytimes.com/athletic/5926955/2024/11/17/byu-kansas-score-analysis-upset-college-football/
+
 **Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
 `After the bout was stopped, Jones shimmied for President-elect Donald Trump, who sat at the side of the octagon.`\
 https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
