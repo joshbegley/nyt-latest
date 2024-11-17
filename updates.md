@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-projections-odds/
+
 **Former gymnastics coach Béla Károlyi dies at 82**\
 `Károlyi rose to prominence by training Olympic all-around champions Nadia Comăneci and Mary Lou Retton.`\
 https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-dies/

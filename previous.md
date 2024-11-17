@@ -2,6 +2,10 @@
 `Károlyi rose to prominence by training Olympic all-around champions Nadia Comăneci and Mary Lou Retton.`\
 https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-dies/
 
+**College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/16/college-football-playoff-projections-odds/
+
 **Donald Trump to attend UFC 309 in New York**\
 `Trump is flying from Florida to see the heavyweight title bout between Jon Jones and Stipe Miocic at Madison Square Garden.`\
 https://nytimes.com/athletic/5926551/2024/11/16/donald-trump-ufc-309-jones-miocic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/16/world/americas/tarantulas-centipedes-smuggling-ar
 **Biden’s Policies Offer a Starting Point for Trump’s Border Crackdown**\
 `Mr. Trump has criticized the Biden administration for what he calls its lax handling of the border — but it has left him with tools he can use to shut down the border.`\
 https://nytimes.com/2024/11/16/us/politics/biden-trump-border-crackdown.html
-
-**Bucks, Doc Rivers livid after controversial call in loss to Hornets**\
-`Rivers said Giannis Antetokounmpo did not foul LaMelo Ball at the end of Saturday's loss to Charlotte.`\
-https://nytimes.com/athletic/5926449/2024/11/16/giannis-antetokounmpo-bucks-foul-video/
 
