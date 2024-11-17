@@ -1,3 +1,7 @@
+**Jannik Sinner wins ATP Tour Finals with serve masterclass against Taylor Fritz**\
+`The Italian crowd watched their sporting hero confirm his supremacy in men's tennis on home soil`\
+https://nytimes.com/athletic/5927447/2024/11/17/sinner-fritz-atp-tour-finals-result-analysis/
+
 **AP Top 25: Ohio State, Indiana set for top-5 showdown**\
 `Oregon, Ohio State, Texas, Penn State and Indiana make up an unchanged top five in the AP poll, with plenty of SEC debates to be had.`\
 https://nytimes.com/athletic/5927392/2024/11/17/ap-top-25-rankings-football-indiana-osu/
