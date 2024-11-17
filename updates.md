@@ -1,3 +1,7 @@
+**Celeste Caeiro, Whose Flowers Gave a Name to a Revolt, Dies at 91**\
+`In Portugal in 1974, she spontaneously gave red carnations to soldiers on their way to ending a dictatorship in what became known as the Carnation Revolution.`\
+https://nytimes.com/2024/11/17/world/europe/celeste-caeiro-dead.html
+
 **Stafford tosses 4 TDs as Rams hold off Patriots 28-22: Takeaways**\
 `The back-and-forth passing affair between Matthew Stafford and Drake Maye was won by Stafford in his second-ever trip to Gillette Stadium.`\
 https://nytimes.com/athletic/5927307/2024/11/17/rams-patriots-score-result-takeaways/
