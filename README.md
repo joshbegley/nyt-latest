@@ -1,3 +1,7 @@
+**Betty White Stamp to Be Released in 2025**\
+`The U.S. Postal Service announced it would honor the actress known for her comedic work on shows such as “The Golden Girls” and “The Mary Tyler Moore Show.”`\
+https://nytimes.com/2024/11/17/arts/betty-white-postage-stamp.html
+
 **Anthony Edwards fined $35K for giving fan middle finger**\
 `Edwards, 23, raised his middle finger to the officials after being called for a charge with 3:15 remaining in the first quarter.`\
 https://nytimes.com/athletic/5927413/2024/11/17/anthony-edwards-fined-middle-finger/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/us/sonya-massey-shooting-investigation.html
 **Gaetz Report Drama Brings a House Republican Feud Full Circle**\
 `A vendetta over the congressional ethics investigation into Matt Gaetz helped sink the last speaker. The new speaker has moved to quash it.`\
 https://nytimes.com/2024/11/17/us/politics/gaetz-mccarthy-johnson-ethics-report.html
-
-**Rooney's time as Plymouth manager being recorded for documentary**\
-`TV cameras are tracking Wayne Rooney this season for a documentary series that will follow his time as manager of Plymouth Argyle.`\
-https://nytimes.com/athletic/5927372/2024/11/17/wayne-rooney-tv-documentary-plymouth/
 
