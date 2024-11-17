@@ -1,3 +1,15 @@
+**Richardson leads late Colts TD drive in 28-27 win vs. Jets: Takeaways**\
+`Richardson posted a career day and led his second-ever game-winning drive over the reeling Jets.`\
+https://nytimes.com/athletic/5927316/2024/11/17/colts-jets-score-result-takeaways/
+
+**Blocked kick as time expires helps Packers edge Bears, 20-19: Takeaways**\
+`Late-game heroics lift Green Bay to its its 11th straight win over long-time divisional rival Chicago.`\
+https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
+
+**Vikings win third straight with 23-13 victory over Titans: Takeaways**\
+`The Vikings recorded five sacks and hit Titans QB Will Levis nine times while completing the sweep of the AFC South in 2024.`\
+https://nytimes.com/athletic/5927327/2024/11/17/vikings-titans-score-result-takeaways/
+
 **Steelers hold off Ravens in 18-16 AFC North win: Takeaways**\
 `Pittsburgh's defense quieted a typically stout Ravens offense that struggled to find the end zone.`\
 https://nytimes.com/athletic/5927321/2024/11/17/ravens-steelers-score-result-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5927301/2024/11/17/jaguars-lions-score-result-takea
 **Ryan Reaves suspended 5 games for 'dangerous' hit on Darnell Nurse**\
 `Nurse was knocked out of Saturday’s game after taking the hit from Reaves early in the second period. `\
 https://nytimes.com/athletic/5926591/2024/11/17/maple-leafs-ryan-reaves-oilers-darnell-nurse/
-
-**New Wave of Offensive Texts Targets Hispanic and L.G.B.T.Q. People**\
-`The F.B.I. is investigating messages that told people they would be deported or transported to a “re-education camp.” They came after racist texts were sent to Black people.`\
-https://nytimes.com/2024/11/17/us/election-texts-hispanic-lgbtq.html
-
-**1 Dead and Dozens Ill in E. Coli Outbreak Linked to Organic Carrots**\
-`The outbreak, which has sickened nearly 40 people, has been tied to multiple brands of recalled organic carrots sold by Grimmway Farms, officials said.`\
-https://nytimes.com/2024/11/17/well/carrots-ecoli-outbreak.html
-
-**Residents Evacuated Because of Fire on New York-New Jersey Border**\
-`The voluntary evacuation plan was put in place in areas affected by the Jennings Creek wildfire. Officials encouraged residents of 165 homes to move out temporarily.`\
-https://nytimes.com/2024/11/17/nyregion/fires-new-york-new-jersey-evacuations.html
 
