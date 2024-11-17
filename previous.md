@@ -1,3 +1,11 @@
+**Shel Talmy, Who Produced the Who and the Kinks, Dies at 87**\
+`Though he was American, he helped define the sound of the British Invasion after settling in London in the early 1960s.`\
+https://nytimes.com/2024/11/16/arts/music/shel-talmy-dead.html
+
+**Penn State dominates Purdue: Takeaways from the Nittany Lions' 49-10 win in West Lafayette**\
+`It was another stress-free Saturday for the Nittany Lions, who remain in a favorable position to host a first-round Playoff game.`\
+https://nytimes.com/athletic/5926452/2024/11/16/penn-state-tyler-warren-purdue-playoff/
+
 **Florida deals LSU knockout blow in SEC title race**\
 `Billy Napier and Florida earned a crucial win to get a step closer to a bowl, while LSU and Brian Kelly are left searching for answers.`\
 https://nytimes.com/athletic/5926491/2024/11/16/florida-lsu-football-score-recap-sec/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/16/nyregion/whoopi-goldberg-staten-island-bakery.htm
 **Nothing but Blue Skies**\
 `Rebecca Goldstein and Ariela Perlman’s puzzle takes us on a buoyant family excursion.`\
 https://nytimes.com/2024/11/16/crosswords/daily-puzzle-2024-11-17.html
-
-**Texas Judge Finds Mother on Death Row Innocent in Daughter’s Death**\
-`In a court filing, the judge said the conviction of Melissa Lucio, whose scheduled execution in 2022 was halted, should be overturned. The state’s highest criminal court will now decide.`\
-https://nytimes.com/2024/11/16/us/melissa-lucio-texas-death-row-innocent.html
-
-**First U.S. Case of Severe Form of Mpox Reported in California**\
-`The unidentified patient had recently returned from Africa, where the virus has caused a deadly epidemic, health officials said.`\
-https://nytimes.com/2024/11/16/health/mpox-california.html
 

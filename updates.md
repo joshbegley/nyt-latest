@@ -1,3 +1,11 @@
+**Shel Talmy, Who Produced the Who and the Kinks, Dies at 87**\
+`Though he was American, he helped define the sound of the British Invasion after settling in London in the early 1960s.`\
+https://nytimes.com/2024/11/16/arts/music/shel-talmy-dead.html
+
+**Penn State dominates Purdue: Takeaways from the Nittany Lions' 49-10 win in West Lafayette**\
+`It was another stress-free Saturday for the Nittany Lions, who remain in a favorable position to host a first-round Playoff game.`\
+https://nytimes.com/athletic/5926452/2024/11/16/penn-state-tyler-warren-purdue-playoff/
+
 **Florida deals LSU knockout blow in SEC title race**\
 `Billy Napier and Florida earned a crucial win to get a step closer to a bowl, while LSU and Brian Kelly are left searching for answers.`\
 https://nytimes.com/athletic/5926491/2024/11/16/florida-lsu-football-score-recap-sec/
