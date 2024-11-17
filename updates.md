@@ -1,3 +1,11 @@
+**How the Canucks won ugly against Connor Bedard, lowly Blackhawks: 3 takeaways**\
+`The Canucks were able to get back in the win column in just about the least inspiring way possible in a 4-1 rout of the Blackhawks. `\
+https://nytimes.com/athletic/5926686/2024/11/17/how-the-canucks-won-ugly-against-connor-bedard-lowly-blackhawks-3-takeaways/
+
+**Short-handed Wild saw a lot of progress, but the outcome was familiar for the Stars**\
+`The Wild have now gone 12 regular-season meetings since beating the Stars in regulation.`\
+https://nytimes.com/athletic/5926705/2024/11/17/wild-stars-familiar-outcome/
+
 **Trump Can Speed Up the Inevitable in Ukraine**\
 `He should force a settlement to save lives and avoid more destruction.`\
 https://nytimes.com/2024/11/17/opinion/trump-ukraine-russia-war.html
