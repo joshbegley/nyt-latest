@@ -1,3 +1,7 @@
+**Jon Jones knocks out Stipe Miocic to defend heavyweight title at UFC 309**\
+`NEW YORK — Combat sports fans love a dominant heavyweight champ.`\
+https://nytimes.com/athletic/5926639/2024/11/17/jon-jones-stipe-miocic-ufc-309-results-analysis/
+
 **SEC tiebreakers: Alabama vs. Texas-Texas  A&M winner is likeliest title game scenario**\
 `But that's if no more upsets occur and it goes to the newly installed SEC tiebreakers. A potential six-team tie remains very much alive.`\
 https://nytimes.com/athletic/5926924/2024/11/17/sec-tiebreaker-scenarios-update-alabama-texas-texas-am/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926084/2024/11/17/alessia-russo-arsenal-spurs/
 **Darnell Nurse injury leaves concern for Oilers — and a hole in their lineup**\
 `The Oilers defenceman was helped off the ice vs. the Maple Leafs after taking a hit to the head from Ryan Reaves.`\
 https://nytimes.com/athletic/5926787/2024/11/17/oilers-darnell-nurse-injury/
-
-**Colts at Jets: How to watch, odds, expert picks as Richardson, Rodgers try to stop skids**\
-`The 4-6 Indianapolis Colts are four-point underdogs to the 3-7 New York Jets? Both teams have had disappointing seasons so far.`\
-https://nytimes.com/athletic/5923518/2024/11/17/colts-jets-how-to-watch-odds-picks-betting/
 
