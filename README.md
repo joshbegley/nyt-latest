@@ -1,3 +1,11 @@
+**In a battle of new-look offenses, USC tops Nebraska: Instant analysis**\
+`LOS ANGELES — USC’s Greedy Vance Jr.`\
+https://nytimes.com/athletic/5926513/2024/11/16/nebraska-usc-score-analysis-college-football/
+
+**Notre Dame proving it has one of nation's best defenses: Virginia takeaways**\
+`Notre Dame dominated Virginia 35-14 for its eighth consecutive win. Will the Irish return for one more home game in the Playoff?`\
+https://nytimes.com/athletic/5926443/2024/11/16/notre-dame-virginia-football-score-recap/
+
 **Shel Talmy, Who Produced the Who and the Kinks, Dies at 87**\
 `Though he was American, he helped define the sound of the British Invasion after settling in London in the early 1960s.`\
 https://nytimes.com/2024/11/16/arts/music/shel-talmy-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5926460/2024/11/16/jake-paul-mike-tyson-ratings-vie
 **Man With Neo-Nazi Ties Sentenced to Life in Killing of Gay Ex-Classmate**\
 `Samuel Woodward, who espoused anti-gay rhetoric and had ties to Atomwaffen, a neo-Nazi group, stabbed his victim 28 times in a hate-fueled murder, prosecutors said.`\
 https://nytimes.com/2024/11/16/us/samuel-woodward-hate-crime-life-sentence.html
-
-**Why Whoopi Goldberg Is Feuding With a Staten Island Bakery**\
-`The left-leaning host of “The View” said the business in a Republican stronghold declined to take an order under her name. The bakery said politics had nothing to do with it.`\
-https://nytimes.com/2024/11/16/nyregion/whoopi-goldberg-staten-island-bakery.html
-
-**Nothing but Blue Skies**\
-`Rebecca Goldstein and Ariela Perlman’s puzzle takes us on a buoyant family excursion.`\
-https://nytimes.com/2024/11/16/crosswords/daily-puzzle-2024-11-17.html
 
