@@ -1,3 +1,7 @@
+**Marta's GOAT goal fires Orlando Pride to NWSL final**\
+`There was a moment in the 2024 NWSL semifinal, when Barbra Banda was receiving treatment, that the cameras zoomed in on a set of water bottles.`\
+https://nytimes.com/athletic/5927882/2024/11/17/marta-nwsl-goal-play-off-orlando/
+
 **Taysom Hill's career game fuels Saints 35-14 win vs. Browns: Takeaways**\
 `Hill rushed for a career-high 138 yards and matched a career best with three touchdowns on just seven carries.`\
 https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takeaways/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takea
 https://nytimes.com/athletic/5927316/2024/11/17/colts-jets-score-result-takeaways/
 
 **Blocked kick as time expires helps Packers edge Bears, 20-19: Takeaways**\
-`Late-game heroics lift Green Bay to its 11th straight win over long-time divisional rival Chicago.`\
+`Late-game heroics lift Green Bay to its 11th straight win over longtime divisional rival Chicago.`\
 https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
 
 **Vikings win third straight with 23-13 victory over Titans: Takeaways**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927307/2024/11/17/rams-patriots-score-result-takea
 **Families of American Victims of Oct. 7 Attack Sue Iran**\
 `The lawsuit aims to highlight Iran’s role in the attack that killed about 1,200 people as well as its support for Hamas and other terrorist groups.`\
 https://nytimes.com/2024/11/17/us/politics/iran-oct-7-families-lawsuit.html
-
-**Lions hand Jags worst loss in team history in 52-6 drubbing: Takeaways**\
-`Jacksonville’s 46-point loss was the worst loss in franchise history, surpassing the 44-point loss in 1995.`\
-https://nytimes.com/athletic/5927301/2024/11/17/jaguars-lions-score-result-takeaways/
 

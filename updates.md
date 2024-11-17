@@ -1,3 +1,11 @@
+**Marta's GOAT goal fires Orlando Pride to NWSL final**\
+`There was a moment in the 2024 NWSL semifinal, when Barbra Banda was receiving treatment, that the cameras zoomed in on a set of water bottles.`\
+https://nytimes.com/athletic/5927882/2024/11/17/marta-nwsl-goal-play-off-orlando/
+
+**Blocked kick as time expires helps Packers edge Bears, 20-19: Takeaways**\
+`Late-game heroics lift Green Bay to its 11th straight win over longtime divisional rival Chicago.`\
+https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
+
 **Taysom Hill's career game fuels Saints 35-14 win vs. Browns: Takeaways**\
 `Hill rushed for a career-high 138 yards and matched a career best with three touchdowns on just seven carries.`\
 https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takeaways/
