@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5927312/2024/11/17/browns-saints-score-result-takea
 https://nytimes.com/athletic/5927316/2024/11/17/colts-jets-score-result-takeaways/
 
 **Blocked kick as time expires helps Packers edge Bears, 20-19: Takeaways**\
-`Late-game heroics lift Green Bay to its its 11th straight win over long-time divisional rival Chicago.`\
+`Late-game heroics lift Green Bay to its 11th straight win over long-time divisional rival Chicago.`\
 https://nytimes.com/athletic/5927297/2024/11/17/packers-bears-score-result-takeaways/
 
 **Vikings win third straight with 23-13 victory over Titans: Takeaways**\
