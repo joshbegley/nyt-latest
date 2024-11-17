@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5927008/2024/11/17/college-football-playoff-week-12
 `The SEC and Big 12 standings got messier, the Big Ten avoided a similar fate, and some unlikely hot streaks are making November waves.`\
 https://nytimes.com/athletic/5927038/2024/11/17/college-football-scores-final-thoughts-bubble/
 
-**Israeli Strikes in Central and Northern Gaza Kill More Than 30 People**\
+**Over 30 People Killed in Israeli Strikes in Central and Northern Gaza**\
 `As Israel’s military wages a renewed offensive in the northern part of the enclave, Al Bureij and Nuseirat in central Gaza came under attack.`\
 https://nytimes.com/2024/11/17/world/europe/gaza-nuseirat-bureij-israel.html
 
