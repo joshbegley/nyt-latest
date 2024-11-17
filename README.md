@@ -1,3 +1,7 @@
+**Where Georgia, Tennessee stand in CFP, SEC after Bulldogs' win**\
+`Saturday night's showdown gave Georgia a third win this season over a current Top 25 team and put Tennessee squarely on the bubble.`\
+https://nytimes.com/athletic/5926682/2024/11/16/georgia-tennessee-football-sec-playoff-picture/
+
 **What Arizona State's upset of No. 16 Kansas State means for Big 12 title race**\
 `The Sun Devils topped the Wildcats 24-14 on the road, a result that puts Kansas State’s Big 12 title hopes on life support.`\
 https://nytimes.com/athletic/5926707/2024/11/16/arizona-state-upsets-no-16-kansas-state-what-this-means-for-big-12-title-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926591/2024/11/16/maple-leafs-ryan-reaves-oilers-d
 **Trump’s Pick for Pentagon Paid an Accuser but Denies It Was Sexual Assault**\
 `The Trump transition team was only recently alerted to the payment by Pete Hegseth, President-elect Donald J. Trump’s choice for secretary of defense.`\
 https://nytimes.com/2024/11/16/us/politics/hegseth-sexual-assault.html
-
-**Former gymnastics coach Béla Károlyi dies at 82**\
-`Károlyi rose to prominence by training Olympic all-around champions Nadia Comăneci and Mary Lou Retton.`\
-https://nytimes.com/athletic/5926568/2024/11/16/bela-karolyi-gymnastics-coach-dies/
 
