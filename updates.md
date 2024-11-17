@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni
 `\
 https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni-malkin/
 
+**How Penguins survived another blown lead against Sharks: 3 takeaways**\
+`For a change, a blown multi-goal lead to the Sharks wasn't costly for the Penguins.
+`\
+https://nytimes.com/athletic/5926725/2024/11/17/penguins-sharks-takeaways-evgeni-malkin/
+
 **They Cared for New Life. Then Death Came to Their Clinic.**\
 `It was one horrific day of the war in Ukraine when a missile fell on the Adonis clinic in Kyiv.`\
 https://nytimes.com/2024/11/17/world/europe/ukraine-clinic-missile-russia.html
