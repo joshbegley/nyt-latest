@@ -1,3 +1,7 @@
+**McIlroy wins sixth Race to Dubai title after DP World Tour Championship victory**\
+`McIlroy shot a three-under final round in Dubai to seal victory ahead of Rasmus Hojgaard.`\
+https://nytimes.com/athletic/5927215/2024/11/17/rory-mcilroy-race-to-dubai-dp-world-tour-championship/
+
 **Until Saturday: Colorado's Playoff path, plus some Week 12 questions**\
 `Welcome to Until Saturday, the five-star college football newsletter: What is Colorado's path to the College Football Playoff?`\
 https://nytimes.com/athletic/5927069/2024/11/17/colorado-college-football-playoff-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925238/2024/11/17/nfl-week-11-inactives-and-fantas
 **Here is the latest on the next administration.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/11/17/us/trump-news/here-is-the-latest-on-the-next-administration
-
-**Trump Transition Live Updates: President-Elect Names Gas Executive as Energy Secretary**\
-`Donald J. Trump has yet to announce the next leaders of the Treasury, Commerce, and Labor Departments, among other roles.`\
-https://nytimes.com/live/2024/11/17/us/trump-news
 
