@@ -1,3 +1,7 @@
+**Ravens at Steelers: How to watch, odds, expert picks as Lamar Jackson faces Pittsburgh defense**\
+`Another chapter in the storied Ravens-Steelers rivalry, this time for first place in the AFC North.`\
+https://nytimes.com/athletic/5923659/2024/11/17/ravens-steelers-how-to-watch-odds-picks-betting/
+
 **Calm, clear, ruthless – Alessia Russo is the symbol of Arsenal's new-found swagger**\
 `Russo's opener in Arsenal's 3-0 win over Spurs signified everything they have looked to implement since Renee Slegers took interim charge`\
 https://nytimes.com/athletic/5926084/2024/11/17/alessia-russo-arsenal-spurs/

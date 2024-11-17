@@ -1,3 +1,7 @@
+**Ravens at Steelers: How to watch, odds, expert picks as Lamar Jackson faces Pittsburgh defense**\
+`Another chapter in the storied Ravens-Steelers rivalry, this time for first place in the AFC North.`\
+https://nytimes.com/athletic/5923659/2024/11/17/ravens-steelers-how-to-watch-odds-picks-betting/
+
 **Calm, clear, ruthless – Alessia Russo is the symbol of Arsenal's new-found swagger**\
 `Russo's opener in Arsenal's 3-0 win over Spurs signified everything they have looked to implement since Renee Slegers took interim charge`\
 https://nytimes.com/athletic/5926084/2024/11/17/alessia-russo-arsenal-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5924369/2024/11/17/is-harry-kane-still-best-striker
 **The Man Utd fan who designed their record-selling kit: 'Football was a religion, but so was Adidas'**\
 `Inigo Turner became one of Adidas' top designers - then he got his dream gig, designing kits for his boyhood club`\
 https://nytimes.com/athletic/5885793/2024/11/17/man-utd-kit-designer-interview/
-
-**Raiders at Dolphins: How to watch, odds, expert picks as Miami tries to turn season around**\
-`If the Dolphins are to turn their season around, they'll have to avoid a trap game against the Raiders.`\
-https://nytimes.com/athletic/5923101/2024/11/17/raiders-dolphins-how-to-watch-odds-picks-betting/
 
