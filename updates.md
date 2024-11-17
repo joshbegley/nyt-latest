@@ -1,3 +1,7 @@
+**Week 12 CFP race lessons: Georgia’s still alive, an SEC-Big Ten debate looms**\
+`There are two weeks left in the regular season and there appear to be more teams hanging around Playoff contention than falling out.`\
+https://nytimes.com/athletic/5927008/2024/11/17/college-football-playoff-week-12-race-sec-big-ten-rankings/
+
 **Mandel's Final Thoughts: Arizona State on fire, Tennessee on the bubble**\
 `The SEC and Big 12 standings got messier, the Big Ten avoided a similar fate, and some unlikely hot streaks are making November waves.`\
 https://nytimes.com/athletic/5927038/2024/11/17/college-football-scores-final-thoughts-bubble/

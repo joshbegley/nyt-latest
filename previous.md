@@ -1,3 +1,7 @@
+**Week 12 CFP race lessons: Georgia’s still alive, an SEC-Big Ten debate looms**\
+`There are two weeks left in the regular season and there appear to be more teams hanging around Playoff contention than falling out.`\
+https://nytimes.com/athletic/5927008/2024/11/17/college-football-playoff-week-12-race-sec-big-ten-rankings/
+
 **Mandel's Final Thoughts: Arizona State on fire, Tennessee on the bubble**\
 `The SEC and Big 12 standings got messier, the Big Ten avoided a similar fate, and some unlikely hot streaks are making November waves.`\
 https://nytimes.com/athletic/5927038/2024/11/17/college-football-scores-final-thoughts-bubble/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/us/politics/donald-trump-msg-ufc.html
 **Bengals at Chargers: How to watch, odds, expert picks with LA slightly favored**\
 `The playoffs are still within reach for the Bengals, while the Chargers are rolling under Jim Harbaugh.`\
 https://nytimes.com/athletic/5923762/2024/11/17/bengals-chargers-how-to-watch-odds-picks-betting/
-
-**Chiefs at Bills: How to watch, odds, expert picks for the next chapter of Mahomes-Allen**\
-`If some extraterrestrial life form wondered why we human beings like the NFL so much — well, we’d show them Chiefs vs. Bills.`\
-https://nytimes.com/athletic/5923736/2024/11/17/chiefs-bills-how-to-watch-odds-picks-betting/
 
