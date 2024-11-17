@@ -1,3 +1,7 @@
+**Jaguars at Lions: How to watch, odds, expert picks with Detroit as big favorite**\
+`The Lions will hope to avoid a trap game hosting the Jaguars this Sunday.`\
+https://nytimes.com/athletic/5922927/2024/11/16/jaguars-lions-how-to-watch-odds-picks-betting/
+
 **Ashton Jeanty breaks Boise State rushing record as Broncos roll past SJSU**\
 `Jeanty now has 1,893 rushing yards through Boise State’s first 10 games of the season.`\
 https://nytimes.com/athletic/5926777/2024/11/16/boise-state-san-jose-state-ashton-jeanty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5926601/2024/11/16/south-carolina-missouri-shane-be
 **Baylor bringing back head coach Dave Aranda for 2025**\
 `After a 3-9 finish in 2023, the Bears will go bowling this season after beating West Virginia in Morgantown on Saturday.`\
 https://nytimes.com/athletic/5926623/2024/11/16/baylor-dave-aranda-returning-hot-seat/
-
-**Luis Severino unlikely to accept Mets' qualifying offer: Source**\
-`Severino is expected to test the free-agent market after a season in which he had a 3.91 ERA over 182 innings.`\
-https://nytimes.com/athletic/5926573/2024/11/16/luis-severino-mets-qualifying-offer/
 
