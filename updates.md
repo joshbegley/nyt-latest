@@ -1,3 +1,7 @@
+**Ryan Reaves suspended 5 games for 'dangerous' hit on Darnell Nurse**\
+`Nurse was knocked out of Saturday’s game after taking the hit from Reaves early in the second period. `\
+https://nytimes.com/athletic/5926591/2024/11/17/maple-leafs-ryan-reaves-oilers-darnell-nurse/
+
 **New Wave of Offensive Texts Targets Hispanic and L.G.B.T.Q. People**\
 `The F.B.I. is investigating messages that told people they would be deported or transported to a “re-education camp.” They came after racist texts were sent to Black people.`\
 https://nytimes.com/2024/11/17/us/election-texts-hispanic-lgbtq.html
