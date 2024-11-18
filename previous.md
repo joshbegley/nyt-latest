@@ -1,3 +1,11 @@
+**Gaetz May Not Be Confirmed, Trump Admits. He’s Pushing Him and Others Anyway.**\
+`The president-elect is taking a flood-the-zone approach to his cabinet nominations, betting that the Senate won’t dare to turn them all down.`\
+https://nytimes.com/2024/11/18/us/politics/trump-cabinet.html
+
+**Biden Asks Congress for Nearly $100 Billion in Disaster Aid**\
+`The president said the aid was “urgently needed” as emergency programs face funding shortfalls amid the devastation after Hurricanes Helene and Milton and a string of other natural disasters.`\
+https://nytimes.com/2024/11/18/us/politics/biden-disaster-aid.html
+
 **Bruce Feldman's FAU coaching candidates: Who could replace Tom Herman?**\
 `The sense here is this job search will feature a bunch of assistant coaches looking for their first chance to run the show.`\
 https://nytimes.com/athletic/5930852/2024/11/18/fau-college-football-head-coach-candidates-job/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5930549/2024/11/18/commanders-jayden-daniels-dan-qu
 **Trump Said He Plans to Use ‘Military Assets’ for Deportations**\
 `Also, Ukraine is poised to strike Russia with U.S. weapons. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/18/briefing/trump-deportation-plans-ukraine-russia-weapons.html
-
-**Trump Plans to Attend Musk’s SpaceX Launch on Tuesday**\
-`The president-elect’s decision to witness the liftoff is another example of his close ties to the world’s wealthiest entrepreneur.`\
-https://nytimes.com/2024/11/18/us/politics/trump-musk-spacex-launch-texas.html
-
-**Pennsylvania’s Top Court Tells Counties to Stop Defying Its Ballot Order**\
-`The unanimous decision came after officials in at least four counties had ignored the court’s pre-election guidance not to count mail ballots that were undated or misdated.`\
-https://nytimes.com/2024/11/18/us/politics/pennsylvania-ballots-mccormick-casey-supreme-court.html
 

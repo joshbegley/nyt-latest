@@ -1,3 +1,11 @@
+**Gaetz May Not Be Confirmed, Trump Admits. He’s Pushing Him and Others Anyway.**\
+`The president-elect is taking a flood-the-zone approach to his cabinet nominations, betting that the Senate won’t dare to turn them all down.`\
+https://nytimes.com/2024/11/18/us/politics/trump-cabinet.html
+
+**Biden Asks Congress for Nearly $100 Billion in Disaster Aid**\
+`The president said the aid was “urgently needed” as emergency programs face funding shortfalls amid the devastation after Hurricanes Helene and Milton and a string of other natural disasters.`\
+https://nytimes.com/2024/11/18/us/politics/biden-disaster-aid.html
+
 **Bruce Feldman's FAU coaching candidates: Who could replace Tom Herman?**\
 `The sense here is this job search will feature a bunch of assistant coaches looking for their first chance to run the show.`\
 https://nytimes.com/athletic/5930852/2024/11/18/fau-college-football-head-coach-candidates-job/
