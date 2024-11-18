@@ -1,3 +1,11 @@
+**Normally 'automatic' kickers like Justin Tucker, Younghoe Koo are struggling in 2024**\
+`Here's a selection of names ranking Nos. 26-31: Jake Elliott, Younghoe Koo, Justin Tucker, Evan McPherson, Dustin Hopkins.`\
+https://nytimes.com/athletic/5929559/2024/11/18/nfl-kicker-struggles-justin-tucker-younghoe-koo/
+
+**Did School Battles Hurt Democrats in Liberal Strongholds?**\
+`Voters in the Virginia suburbs shifted toward Trump. Some said they were still frustrated by pandemic closures and fights over gender, race and testing in schools.`\
+https://nytimes.com/2024/11/18/us/schools-election-virginia-suburbs.html
+
 **Gold Watch, a Gift From Titanic Survivors, Sells for Nearly $2 Million**\
 `The gold watch was given to the captain of the Carpathia, the ship that responded to the Titanic’s distress call and rescued hundreds of people.`\
 https://nytimes.com/2024/11/18/business/titanic-watch-auction.html
