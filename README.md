@@ -1,3 +1,11 @@
+**Aid Convoy Was Violently Looted in Gaza, UNWRA Chief Says**\
+`The UNWRA commissioner general said that Gaza has become an “impossible environment to operate” in after a convoy of aid trucks was looted at gun point.`\
+https://nytimes.com/video/world/middleeast/100000009831525/gaza-aid-convoy-looting.html
+
+**UConn replaces Alabama at No. 2 in AP Top 25 after Purdue's big win**\
+`No. 6 Purdue joins No. 9 Kentucky in vaulting from the teens into the top 10 in this week's AP poll.`\
+https://nytimes.com/athletic/5930008/2024/11/18/ap-basketball-rankings-top-25-uconn-purdue/
+
 **‘Morning Joe’ Stars Reveal a Mar-a-Lago Reunion With Trump**\
 `The MSNBC hosts Mika Brzezinski and Joe Scarborough met with Donald Trump last week in Florida in an effort “to restart communications.”`\
 https://nytimes.com/2024/11/18/business/media/morning-joe-trump-mar-a-lago.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/us/politics/martin-omalley-dnc-chair-race.html
 **How Did Fans Dress for Tyler, the Creator’s L.A. Carnival?**\
 `Crowds filled Dodger Stadium for Camp Flog Gnaw, showing off their street style best.`\
 https://nytimes.com/2024/11/18/style/camp-flog-gnaw-2024-fashion.html
-
-**Normally 'automatic' kickers like Justin Tucker, Younghoe Koo are struggling in 2024**\
-`Here's a selection of names ranking Nos. 26-31: Jake Elliott, Younghoe Koo, Justin Tucker, Evan McPherson, Dustin Hopkins.`\
-https://nytimes.com/athletic/5929559/2024/11/18/nfl-kicker-struggles-justin-tucker-younghoe-koo/
-
-**Did School Battles Hurt Democrats in Liberal Strongholds?**\
-`Voters in the Virginia suburbs shifted toward Trump. Some said they were still frustrated by pandemic closures and fights over gender, race and testing in schools.`\
-https://nytimes.com/2024/11/18/us/schools-election-virginia-suburbs.html
 
