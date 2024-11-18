@@ -1,3 +1,15 @@
+**PWHL will play 'Takeover Tour' games in Seattle, Vancouver, St. Louis and more**\
+`The PWHL will play nine games at neutral sites, with each team playing at least two, in the league's second season.`\
+https://nytimes.com/athletic/5928720/2024/11/18/pwhl-takeover-tour-seattle-st-louis-vancouver/
+
+**Penguins Today: Silver linings and the Grateful Dead**\
+`With eyes on prospects and the trade deadline, here are the latest happenings with the Penguins.`\
+https://nytimes.com/athletic/5929543/2024/11/18/penguins-today-owen-pickering-debut/
+
+**'Inside the NBA' moving to ABC and ESPN as TNT, NBA settle suit**\
+`"Inside the NBA" panelists Charles Barkley, Shaquille O'Neal, Ernie Johnson and Kenny Smith will remain with the show, sources said.`\
+https://nytimes.com/athletic/5926632/2024/11/18/inside-the-nba-abc-espn-tnt-lawsuit/
+
 **Texas Education Board to Vote on Bible-Infused Lessons in Public Schools**\
 `A new curriculum would focus on Christianity more than other religions. A kindergarten lesson on the Golden Rule, for example, would teach about Jesus and his Sermon on the Mount.`\
 https://nytimes.com/2024/11/18/us/texas-bible-school-curriculum.html
