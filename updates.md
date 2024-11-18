@@ -1,3 +1,7 @@
+**Trump’s Signature Dance Move Finds Its Way to the Sports World**\
+`Jon Jones punctuated his U.F.C. win with the president-elect’s shimmy, and numerous N.F.L. players followed suit on Sunday.`\
+https://nytimes.com/2024/11/18/style/jon-jones-trump-dance-bowers-bosa.html
+
 **FIFA's lowest-ranked team San Marino earn UEFA Nations League promotion**\
 `San Marino, the world’s lowest-ranked international team, have won promotion to the third tier of the Nations League following their 3-1 victory over Liechtenstein.`\
 https://nytimes.com/athletic/5930705/2024/11/18/san-marino-nations-league/

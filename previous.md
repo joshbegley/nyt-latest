@@ -1,3 +1,7 @@
+**Trump’s Signature Dance Move Finds Its Way to the Sports World**\
+`Jon Jones punctuated his U.F.C. win with the president-elect’s shimmy, and numerous N.F.L. players followed suit on Sunday.`\
+https://nytimes.com/2024/11/18/style/jon-jones-trump-dance-bowers-bosa.html
+
 **FIFA's lowest-ranked team San Marino earn UEFA Nations League promotion**\
 `San Marino, the world’s lowest-ranked international team, have won promotion to the third tier of the Nations League following their 3-1 victory over Liechtenstein.`\
 https://nytimes.com/athletic/5930705/2024/11/18/san-marino-nations-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930452/2024/11/18/carolina-panthers-bryce-young-st
 **Mining Company Whose C.E.O. Was Detained Agrees to Pay Mali $160 Million**\
 `Three executives of the Australian company Resolute Mining were arrested this month. Mali, a major African gold producer, has been trying to increase its share of mining profits lately.`\
 https://nytimes.com/2024/11/18/world/africa/mali-mining-detensions.html
-
-**What went wrong for Phil Longo at Wisconsin? Who could replace him?**\
-`On Sunday, Fickell fired Longo 23 games into his tenure as offensive coordinator at Wisconsin.`\
-https://nytimes.com/athletic/5930481/2024/11/18/phil-longo-fired-luke-fickell-wisconsin-football-offensive-coordinator/
 
