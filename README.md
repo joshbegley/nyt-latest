@@ -1,3 +1,11 @@
+**Karl Brooks' field-goal block helps Packers escape Chicago with 20-19 win**\
+`Brooks, the 2023 sixth-round pick from Bowling Green, got his left middle finger on what could've been the game-winning field goal.`\
+https://nytimes.com/athletic/5928146/2024/11/17/packers-win-field-goal-block-bears/
+
+**What Are ATACMS, the U.S. Missiles That May Be Used Against Russia?**\
+`In a major policy shift, the Biden administration has authorized Ukraine to use the ballistic missiles within Russia.`\
+https://nytimes.com/2024/11/17/world/europe/what-are-atacms-missiles-ukraine-russia.html
+
 **After poor communication leads Raiders to another loss, 'pride' is all that's left to play for**\
 `When the Raiders needed a defensive stop, they left Jonnu Smith wide open for a touchdown. Their sixth straight loss drops them to 2-8.`\
 https://nytimes.com/athletic/5928041/2024/11/17/raiders-loss-miscommunication-dolphins-pride/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009830498/beirut-lebanon-israel
 **Trump Stands by Defense Pick Who Says Encounter With Woman Was Not Sexual Assault**\
 `A detailed memo sent to the Trump transition team claims the incident occurred when Pete Hegseth, President-elect Donald J. Trump’s choice for defense secretary, spoke in Monterey, Calif., in 2017.`\
 https://nytimes.com/2024/11/17/us/politics/hegseth-sexual-assault-accuser.html
-
-**Dallas Wings score No. 1 pick in 2025 WNBA Draft Lottery**\
-`The Wings had 45.4 percent odds to land the top pick.`\
-https://nytimes.com/athletic/5927939/2024/11/17/wnba-draft-2025-dallas-wings/
-
-**LaMelo Ball fined $100k for using anti-gay language in interview**\
-`The NBA said that comment was "offensive and derogatory" when it levied the fine. `\
-https://nytimes.com/athletic/5927748/2024/11/17/lamelo-ball-fine-interview-comments/
 
