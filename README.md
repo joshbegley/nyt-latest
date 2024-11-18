@@ -1,3 +1,11 @@
+**Cowboys close roof of AT&T Stadium after piece falls ahead of 'MNF' game**\
+`The incident occurred while the roof was opening and a decision regarding the ability to re-open the roof safely is being evaluated.`\
+https://nytimes.com/athletic/5930809/2024/11/18/cowboys-stadium-roof-fall-texans-mnf/
+
+**Pirates' Paul Skenes named NL Rookie of the Year after electric debut**\
+`Skenes is the first NL starting pitcher to win the award since another flame-throwing righty, the New York Mets’ Jacob deGrom, won in 2014.`\
+https://nytimes.com/athletic/5930088/2024/11/18/paul-skenes-nl-rookie-of-the-year/
+
 **Sandra M. Gilbert, Co-Author of ‘The Madwoman in the Attic,’ Dies at 87**\
 `A poet, scholar and literary critic, she turned a feminist lens on 19th-century writers like Jane Austen and Charlotte Brontë, creating a feminist classic.`\
 https://nytimes.com/2024/11/18/books/sandra-gilbert-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/style/jon-jones-trump-dance-bowers-bosa.html
 **FIFA's lowest-ranked team San Marino earn UEFA Nations League promotion**\
 `San Marino, the world’s lowest-ranked international team, have won promotion to the third tier of the Nations League following their 3-1 victory over Liechtenstein.`\
 https://nytimes.com/athletic/5930705/2024/11/18/san-marino-nations-league/
-
-**Biden’s Parting Gift to Ukraine Could Also Help Trump**\
-`Trump can stop the missiles to be used against Russia, but he may not want to.`\
-https://nytimes.com/live/2024/11/12/opinion/thepoint/biden-missiles-ukraine-trump
-
-**What to watch this week in NBA: Undefeated Cavs, scorching Warriors and more Cup games**\
-`What to watch, and why, this week in the NBA as the NBA Cup resumes and includes a banger in Boston.`\
-https://nytimes.com/athletic/5925629/2024/11/18/what-to-watch-nba-cavs-celtics-warriors/
 
