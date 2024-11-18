@@ -1,3 +1,7 @@
+**Nearly 100 Aid Trucks in Gaza Convoy Are Lost to Looters, U.N. Agency Says**\
+`UNRWA, the agency that helps Palestinians, said its drivers were forced to unload supplies at gunpoint, in what it called one of the worst such incidents of the war.`\
+https://nytimes.com/2024/11/18/world/middleeast/gaza-aid-convoy-looted-unrwa-israel.html
+
 **A Mummified Saber-Toothed Kitten Emerges in Siberia**\
 `The Homotherium cub was preserved in Siberian permafrost with its dark fur and flesh intact.`\
 https://nytimes.com/2024/11/18/science/saber-tooth-cat-mummy-siberia.html
