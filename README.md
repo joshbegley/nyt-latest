@@ -1,3 +1,15 @@
+**Associated Press to Cut Staff by 8%**\
+`The reductions come just two weeks after Election Day, when The A.P. played a key role in calling races across the United States.`\
+https://nytimes.com/2024/11/18/business/media/associated-press-staff-cuts.html
+
+**Elon Musk Asked People to Upload Their Health Data. X Users Obliged.**\
+`Privacy experts cringed when people started feeding their medical images to the A.I. tool Grok.`\
+https://nytimes.com/2024/11/18/well/x-grok-health-privacy.html
+
+**Arsenal fans' letter highlighting sexual violence concerns attracts 7,300 signatures**\
+`An Arsenal fan group has written an open letter to the club over what it describes as &#8220;deeply concerning&#8221; sexual violence allegations in the sport.`\
+https://nytimes.com/athletic/5929297/2024/11/18/arsenal-fan-group-sexual-offence-allegations/
+
 **Lowetide: How are the Oilers' 4 key new arrivals performing this season?**\
 `The Oilers' offseason transaction pace was furious compared to most teams who make the Stanley Cup Final.`\
 https://nytimes.com/athletic/5927438/2024/11/18/oilers-stats-skinner-arvidsson/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/18/arts/design/park-avenue-armory-jamie-xx-yoko-ono.
 **Five-Star, Five-Ingredient Creamy Miso Pasta**\
 `“Rarely have I found a recipe that delivers so deliciously in proportion to its simplicity.”`\
 https://nytimes.com/2024/11/18/dining/miso-pasta.html
-
-**Astros announce change to ballpark naming rights**\
-`Minute Maid will continue to be a team partner through 2029.`\
-https://nytimes.com/athletic/5926389/2024/11/18/astros-ballpark-naming-rights-change/
-
-**Robert F. Kennedy Jr.’s Views on Vaccination ‘Dangerous,’ Says His Ambassador Cousin**\
-`“Others are just getting to know him,” Caroline Kennedy, the U.S. ambassador to Australia, said of her cousin, President-elect Donald J. Trump’s pick for health secretary.`\
-https://nytimes.com/2024/11/18/us/politics/caroline-kennedy-rfk-jr-vaccines.html
-
-**Arsenal Women vs Bayern Munich moved to Meadow Park after clash with men's team**\
-`Arsenal Women’s Champions League game against Bayern Munich has been moved to Meadow Park to avoid an Emirates Stadium scheduling clash with the men’s team.`\
-https://nytimes.com/athletic/5904313/2024/11/18/arsenal-bayern-munich-emirates-date-when/
 
