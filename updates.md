@@ -1,3 +1,7 @@
+**Trump Plans to Attend Musk’s SpaceX Launch on Tuesday**\
+`The president-elect’s decision to witness the liftoff is another example of his close ties to the world’s wealthiest entrepreneur.`\
+https://nytimes.com/2024/11/18/us/politics/trump-musk-spacex-launch-texas.html
+
 **Pennsylvania’s Top Court Tells Counties to Stop Defying Its Ballot Order**\
 `The unanimous decision came after officials in at least four counties had ignored the court’s pre-election guidance not to count mail ballots that were undated or misdated.`\
 https://nytimes.com/2024/11/18/us/politics/pennsylvania-ballots-mccormick-casey-supreme-court.html
