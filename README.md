@@ -1,3 +1,7 @@
+**Man Is Accused of Killing 2 in Random Stabbings in Manhattan**\
+`The stabbings, which also left a third person critically injured, occurred across a broad swath of the borough over several hours on Monday morning.`\
+https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
+
 **Why Lindy Ruff put the standings in Sabres' locker room, Devon Levi sent down, injury updates and more**\
 `Ruff isn't one of those coaches who subscribes to the theory that players shouldn’t be worrying about the standings.`\
 https://nytimes.com/athletic/5930215/2024/11/18/sabres-lindy-ruff-standings-devon-levi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929906/2024/11/18/england-world-cup-2026-carsley/
 **Seahawks' defense shines after bye-week shake-up: 'We can be something special'**\
 `The new-look linebacker group of Ernest Jones IV and Tyrice Knight impressed against the 49ers, allowing others to thrive, too.`\
 https://nytimes.com/athletic/5929054/2024/11/18/seahawks-49ers-defense-mike-macdonald/
-
-**Trump Confirms Plans to Use the Military to Assist in Mass Deportations**\
-`Mr. Trump’s top immigration policy adviser has discussed using military assets to build detention centers and support civilian immigration agents.`\
-https://nytimes.com/2024/11/18/us/politics/trump-military-deportation.html
 
