@@ -1,3 +1,11 @@
+**Spirit Airlines Files for Bankruptcy**\
+`The low-fare carrier has struggled to find its footing after its planned merger with JetBlue was blocked by a federal judge.`\
+https://nytimes.com/2024/11/18/business/spirit-airlines-bankruptcy.html
+
+**Bengals beaten down with frustration after Chargers deal another one-score loss**\
+`Joe Burrow, Ja'Marr Chase and Trey Hendrickson were among those exasperated after a rousing second-half comeback came up short.`\
+https://nytimes.com/athletic/5929016/2024/11/18/bengals-chargers-joe-burrow-frustration/
+
 **As Trump Looms, Biden Makes a Last-Ditch Pitch to Global Leaders**\
 `The president approved Ukraine’s use of long-range missiles inside Russia, but that decision, among others, may soon be reversed.`\
 https://nytimes.com/2024/11/18/world/biden-g20-trump.html
