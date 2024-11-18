@@ -1,3 +1,7 @@
+**'Yeah, we need to win all 4 of them': Blackhawks feeling urgency with Thanksgiving approaching**\
+`The Blackhawks are tired of moral victories and want more real ones.`\
+https://nytimes.com/athletic/5930258/2024/11/18/blackhawks-standings-schedule/
+
 **SpaceX Starship’s Sonic Boom Creates Risk of Structural Damage, Test Finds**\
 `An independent researcher found that noise recorded miles away from the site of a recent test flight was equal to standing 200 feet from a Boeing 747 during takeoff.`\
 https://nytimes.com/2024/11/18/us/politics/spacex-starship-sonic-boom-damage.html
