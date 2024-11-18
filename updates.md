@@ -1,3 +1,7 @@
+**The Athletic FC: Doak - Liverpool's Salah successor? Plus: Who invests most in PL clubs**\
+`Today in TAFC: Ben Doak shows he may just help replace Salah at Liverpool, Bentacur's seven-game ban, and which PL club owners invest most?`\
+https://nytimes.com/athletic/5929073/2024/11/18/ben-doak-liverpools-salah-successor-plus-premier-league-owners-who-invest-most/
+
 **Tennis Briefing: Swiatek thrives with Poland, ATP Finals sets up Australian Open draw**\
 `The world No. 2 looks to end the season on a high in Malaga.`\
 https://nytimes.com/athletic/5927092/2024/11/18/iga-swiatek-finds-billie-jean-king-cup-joy-atp-tour-finals-sets-up-australian-open-draw/
