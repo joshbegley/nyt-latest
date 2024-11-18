@@ -1,3 +1,7 @@
+**Pennsylvania’s Top Court Tells Counties to Stop Defying Its Ballot Order**\
+`The unanimous decision came after officials in at least four counties had ignored the court’s pre-election guidance not to count mail ballots that were undated or misdated.`\
+https://nytimes.com/2024/11/18/us/politics/pennsylvania-ballots-mccormick-casey-supreme-court.html
+
 **Trump’s Signature Dance Move Finds Its Way to the Sports World**\
 `Jon Jones punctuated his U.F.C. win with the president-elect’s shimmy, and numerous N.F.L. players followed suit on Sunday.`\
 https://nytimes.com/2024/11/18/style/jon-jones-trump-dance-bowers-bosa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930557/2024/11/18/baseball-hall-reader-survey-2025
 **Panthers' Bryce Young gets shot vs. Chiefs, Jonathon Brooks to make debut: 5 things**\
 `Young's confidence and aggressiveness were among the reasons Dave Canales kept the second-year QB in the starting role this week.`\
 https://nytimes.com/athletic/5930452/2024/11/18/carolina-panthers-bryce-young-starting-jonathon-brooks/
-
-**Mining Company Whose C.E.O. Was Detained Agrees to Pay Mali $160 Million**\
-`Three executives of the Australian company Resolute Mining were arrested this month. Mali, a major African gold producer, has been trying to increase its share of mining profits lately.`\
-https://nytimes.com/2024/11/18/world/africa/mali-mining-detensions.html
 
