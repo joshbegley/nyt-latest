@@ -1,3 +1,7 @@
+**Broncos dominate Falcons 38-6 thanks to Bo Nix's performance: Ta**\
+`Nix's push for Offensive Rookie of the Year continued Sunday with a masterful game against Atlanta.`\
+https://nytimes.com/athletic/5927331/2024/11/17/falcons-broncos-score-result-takeaways/
+
 **Karl Brooks' field-goal block helps Packers escape Chicago with 20-19 win**\
 `Brooks, the 2023 sixth-round pick from Bowling Green, got his left middle finger on what could've been the game-winning field goal.`\
 https://nytimes.com/athletic/5928146/2024/11/17/packers-win-field-goal-block-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927963/2024/11/17/nfl-week-11-scores-takeaways-ste
 **Israeli Airstrikes Hit Central Beirut and Its Southern Suburbs**\
 `Israel’s strikes killed Hezbollah’s de facto spokesman in central Beirut and flattened buildings south of Lebanon’s capital.`\
 https://nytimes.com/video/world/middleeast/100000009830498/beirut-lebanon-israel-strikes.html
-
-**Trump Stands by Defense Pick Who Says Encounter With Woman Was Not Sexual Assault**\
-`A detailed memo sent to the Trump transition team claims the incident occurred when Pete Hegseth, President-elect Donald J. Trump’s choice for defense secretary, spoke in Monterey, Calif., in 2017.`\
-https://nytimes.com/2024/11/17/us/politics/hegseth-sexual-assault-accuser.html
 
