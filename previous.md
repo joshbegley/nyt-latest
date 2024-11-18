@@ -1,3 +1,7 @@
+**Kane statue unveiled after years in storage**\
+`A statue of England captain Harry Kane has been officially unveiled five years after it was commissioned by a London council.`\
+https://nytimes.com/athletic/5929382/2024/11/18/harry-kane-statue-unveiled-england/
+
 **Climate Talks Head Into the Final Stretch With Negotiators Far Apart**\
 `Senior ministers are arriving in an effort to break a deadlock over the summit’s main goal: funding to help lower-income countries hit hard by global warming.`\
 https://nytimes.com/2024/11/18/climate/cop29-climate-summit-final-stretch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/learning/what-do-you-hope-to-get-out-of-college.h
 **Trump signals a ‘seismic shift,’ shocking the Washington establishment.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/11/18/us/trump-news-live/trump-signals-a-seismic-shift-shocking-the-washington-establishment
-
-**The Gaetz report drama brings a House Republican feud full circle.**\
-`By Annie Karni`\
-https://nytimes.com/live/2024/11/18/us/trump-news-live/the-gaetz-report-drama-brings-a-house-republican-feud-full-circle
 
