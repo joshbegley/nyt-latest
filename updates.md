@@ -1,3 +1,23 @@
+**Shouting Racial Slurs, Neo-Nazi Marchers Shock Ohio’s Capital**\
+`The group’s actions in Columbus on Saturday, part of a recent pattern of white supremacist incidents in the country, were condemned by officials around the state.`\
+https://nytimes.com/2024/11/17/us/neo-nazi-march-ohio.html
+
+**Bills hand Chiefs first loss of 2024 with 30-21 win in Buffalo: Takeaways**\
+`Kansas City still holds the best record in the AFC, but the Bills now own the potential tiebreaker. `\
+https://nytimes.com/athletic/5927342/2024/11/17/chiefs-bills-score-results-takeaways/
+
+**Trump Picks Brendan Carr to Lead F.C.C.**\
+`Mr. Carr, who currently sits on the commission and is a vocal critic of Big Tech, has said the agency should regulate the tech industry.`\
+https://nytimes.com/2024/11/17/technology/fcc-nominee-brendan-carr-trump.html
+
+**Raiders' baby steps with new offensive staff aren't enough in sixth straight loss**\
+`Brock Bowers set a rookie NFL single-game record with his 13 catches, but the Raiders suffered another dispiriting loss. `\
+https://nytimes.com/athletic/5928167/2024/11/17/raiders-loss-dolphins-offense-scott-norv-turner/
+
+**Rodrigue: As Rams eye another playoff chase, the little details could make or break them**\
+`A key block and a game-sealing interception helped the Rams win Sunday. Avoiding negative details will help them see how good they can be.`\
+https://nytimes.com/athletic/5927881/2024/11/17/rams-win-offense-run-game-stafford-patriots/
+
 **Jerod Mayo, Patriots defense get schooled by Sean McVay, Rams in another loss**\
 `After a key early adjustment, the Rams offense dominated the Patriots on Sunday. And there was little the New England defense could do.`\
 https://nytimes.com/athletic/5928086/2024/11/17/jerod-mayo-patriots-defense-rams-sean-mcvay/
