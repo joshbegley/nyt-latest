@@ -1,3 +1,7 @@
+**FAU fires coach Tom Herman after 5th straight loss**\
+`Herman was 6-16 in just under two seasons in Boca Raton.`\
+https://nytimes.com/athletic/5930152/2024/11/18/tom-herman-fired-fau/
+
 **Aid Convoy Was Violently Looted in Gaza, UNWRA Chief Says**\
 `The UNWRA commissioner general said that Gaza has become an “impossible environment to operate” in after a convoy of aid trucks was looted at gun point.`\
 https://nytimes.com/video/world/middleeast/100000009831525/gaza-aid-convoy-looting.html
