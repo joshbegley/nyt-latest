@@ -1,3 +1,7 @@
+**Word of the Day: gesticulate**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/18/learning/word-of-the-day-gesticulate.html
+
 **Elias Pettersson coming alive, J.T. Miller benched: 3 Canucks takeaways**\
 `With five goals in his past seven games, Pettersson is rapidly heating up, but the Canucks fell to the Predators on Sunday night. `\
 https://nytimes.com/athletic/5928754/2024/11/18/canucks-elias-pettersson-jt-miller-takeaways/
