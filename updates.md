@@ -1,3 +1,11 @@
+**NBA Rewind: De'Aaron Fox's historic weekend, the 15-0 Cavs and your NBA Cup-date**\
+`Stock is up for the Rockets and Magic, and who's got the inside track for a trip to Las Vegas? `\
+https://nytimes.com/athletic/5927563/2024/11/18/nba-rewind-deaaron-fox-cavaliers-nba-cup/
+
+**Burglars Broke Into Windsor Castle Estate, Home of Prince William, Kate and Family**\
+`The intruders entered a farm building on the castle estate last month and stole an Isuzu pickup and a quad bike, according to the local police.`\
+https://nytimes.com/2024/11/18/world/europe/windsor-castle-estate-burglars-uk.html
+
 **Giants benching QB Daniel Jones, Tommy DeVito taking over as starter**\
 `Jones finished the Week 10 loss to Carolina with 190 passing yards and two interceptions, along with 26 rushing yards and one TD.`\
 https://nytimes.com/athletic/5915357/2024/11/18/giants-bench-daniel-jones/
