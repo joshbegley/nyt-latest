@@ -1,5 +1,5 @@
 **Bentancur banned for seven games with £100,000 fine for Son comments**\
-`Tottenham Hotspur midfielder Rodrigo Bentancur has been banned for seven matches by the Football Association (FA) and handed a £100,000 fine over comments he made about his team-mate Son Heung-Min.`\
+`Tottenham Hotspur midfielder Rodrigo Bentancur has been banned for seven matches by the Football Association (FA) and handed a £100,000 fine over comments he made about his team-mate Son Heung-min.`\
 https://nytimes.com/athletic/5929140/2024/11/18/rodrigo-bentancur-ban-son/
 
 **USWNT's Mewis and Australia Kerr expecting first child**\
