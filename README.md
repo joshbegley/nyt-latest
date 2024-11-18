@@ -1,3 +1,7 @@
+**The Athletic 134: Judgment week is here for top-5 Indiana**\
+`What if Indiana beats Ohio State? What if it loses? The two biggest questions of Week 13 each bring their own brand of unpredictability.`\
+https://nytimes.com/athletic/5928572/2024/11/18/college-football-fbs-team-rankings-indiana/
+
 **Will a $9 Congestion-Pricing Toll Yield Enough Money to Fix the Subway?**\
 `Slashing the original $15 toll raises questions about whether a smaller revenue stream could delay projects or lead to higher costs for New York’s public transit agency.`\
 https://nytimes.com/2024/11/18/nyregion/congestion-pricing-toll.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/learning/word-of-the-day-gesticulate.html
 **Elias Pettersson coming alive, J.T. Miller benched: 3 Canucks takeaways**\
 `With five goals in his past seven games, Pettersson is rapidly heating up, but the Canucks fell to the Predators on Sunday night. `\
 https://nytimes.com/athletic/5928754/2024/11/18/canucks-elias-pettersson-jt-miller-takeaways/
-
-**Bills observations: Plan to shut down Travis Kelce worked, backup OL comes up big**\
-`The Bills defense changed their approach compared to previous meetings with the Chiefs.`\
-https://nytimes.com/athletic/5928864/2024/11/18/bills-chiefs-travis-kelce-defense/
 
