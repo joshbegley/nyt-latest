@@ -1,3 +1,7 @@
+**She Moved to New Delhi for a Fresh Start, but the Air Made Her Sick**\
+`Since coming to New Delhi, which had the world’s worst air quality on Monday, Ameesha Munjal hasn’t been able to exercise or see friends. She has been on several medications to battle sickness caused by the pollution.`\
+https://nytimes.com/video/world/asia/100000009830791/india-smog-new-delhi-air.html
+
 **Alan Jones, Former Australian Shock Jock, Charged With Sexual Abuse**\
 `The retired radio host, who was granted bail after being arrested, was accused of abusing eight victims over nearly 20 years.`\
 https://nytimes.com/2024/11/18/world/australia/alan-jones-sexual-abuse-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928144/2024/11/18/bengals-chargers-score-result-ta
 **Martin Odegaard's return: Rehab, subterfuge and what it means for Arsenal's title challenge**\
 `How the Arsenal and Norway captain fought his way back to fitness after September's ankle injury`\
 https://nytimes.com/athletic/5924423/2024/11/18/martin-odegaard-arsenal-return-from-injury/
-
-**The Premier League Owners: Who has invested the most?**\
-`In part one of our series on who runs Premier League clubs, we examine who has invested the most in top-flight football...`\
-https://nytimes.com/athletic/5923137/2024/11/18/premier-league-investment-owner-ranking/
 
