@@ -1,3 +1,23 @@
+**The Premier League Owners: Who has invested the most?**\
+`In part one of our series on who runs Premier League clubs, we examine who has invested the most in top-flight football...`\
+https://nytimes.com/athletic/5923137/2024/11/18/premier-league-investment-owner-ranking/
+
+**Tuchel's England inheritance: Bigger talent pool, No 10 dilemma - and a post-Kane future?**\
+`Lee Carsley has solved many - if not all - problems for his long-term successor when he begins in January`\
+https://nytimes.com/athletic/5923690/2024/11/18/thomas-tuchel-england-kane-decisions/
+
+**Why do football managers lie about player injuries - and does it matter?**\
+`From mind games to player protection, there are many reasons why coaches feel the need to hide the truth from the media`\
+https://nytimes.com/athletic/5925045/2024/11/18/football-managers-lie-injuries/
+
+**The Slot Machine: How Liverpool set up against elite teams - and beat them**\
+`Dutch coach has shown he has the flexibility and pragmatism to pass big tests at his new club`\
+https://nytimes.com/athletic/5921332/2024/11/18/arne-slot-liverpool-machine/
+
+**Fantasy football Week 11 takeaways: Jared Goff has best MVP case, Bo Nix has turned a corner and more**\
+`Among his Week 11 takes, Michael Salfino says that Jared Goff is the most deserving MVP candidate and Bo Nix is a now a true dual-threat QB.`\
+https://nytimes.com/athletic/5928575/2024/11/18/fantasy-football-week-11-takeaways-jared-goff-has-best-mvp-case-bo-nix-has-turned-a-corner-and-more/
+
 **Everton beat Liverpool in the derby again. But more importantly, they built a sense of potential**\
 `Brian Sorensen’s side have the defensive strength to survive in the WSL, but they need to start scoring if they want to avoid the mire`\
 https://nytimes.com/athletic/5927692/2024/11/18/everton-liverpool-derby-wsl/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-how-harriss-campaign
 **Beyoncé to perform halftime show at Ravens-Texans on Christmas**\
 `Beyoncé will perform songs from her Cowboy Carter album during the halftime show on Netflix.`\
 https://nytimes.com/athletic/5928797/2024/11/17/beyonce-nfl-christmas-day-netflix-ravens-texans/
-
-**Josh Allen emerges as MVP favorite following signature play in win over Chiefs**\
-`More than 100 games in, teammate Dawson Knox said Josh Allen highlights don't get old.`\
-https://nytimes.com/athletic/5928738/2024/11/17/bills-win-josh-allen-chiefs/
-
-**How the Chiefs felt watching a different superstar QB beat them with a superstar play**\
-`Josh Allen's 26-yard TD run dealt the Chiefs their first loss since last Christmas. They allowed 30 points for the first time in 30 games.`\
-https://nytimes.com/athletic/5928663/2024/11/17/chiefs-loss-patrick-mahomes-bills/
-
-**How Geno Smith and the Seahawks saved their season: ‘He gets that look in his eyes’**\
-`In one fell swoop, Smith snapped the Seahawks' six-game skid against the 49ers and gave Seattle control of its playoff fate.`\
-https://nytimes.com/athletic/5928563/2024/11/17/seahawks-win-geno-smith-drive-49ers/
-
-**Blowout loss to Saints reinforces that the Browns are just a broken team**\
-`It's hard to imagine anything but major restructuring of the folks in charge and multiple levels of the roster given how things have gone.`\
-https://nytimes.com/athletic/5928322/2024/11/17/browns-blowout-loss-saints/
-
-**‘Dune: Prophecy’ Season 1 Premiere Recap: Sick Burn**\
-`The first installment of HBO’s “Dune” prequel series suggests there is a “burning truth” very few are capable of seeing. It may be too hot to handle.`\
-https://nytimes.com/2024/11/17/arts/television/dune-prophecy-recap-season-1-premiere.html
 

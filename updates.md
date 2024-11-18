@@ -1,3 +1,23 @@
+**The Premier League Owners: Who has invested the most?**\
+`In part one of our series on who runs Premier League clubs, we examine who has invested the most in top-flight football...`\
+https://nytimes.com/athletic/5923137/2024/11/18/premier-league-investment-owner-ranking/
+
+**Tuchel's England inheritance: Bigger talent pool, No 10 dilemma - and a post-Kane future?**\
+`Lee Carsley has solved many - if not all - problems for his long-term successor when he begins in January`\
+https://nytimes.com/athletic/5923690/2024/11/18/thomas-tuchel-england-kane-decisions/
+
+**Why do football managers lie about player injuries - and does it matter?**\
+`From mind games to player protection, there are many reasons why coaches feel the need to hide the truth from the media`\
+https://nytimes.com/athletic/5925045/2024/11/18/football-managers-lie-injuries/
+
+**The Slot Machine: How Liverpool set up against elite teams - and beat them**\
+`Dutch coach has shown he has the flexibility and pragmatism to pass big tests at his new club`\
+https://nytimes.com/athletic/5921332/2024/11/18/arne-slot-liverpool-machine/
+
+**Fantasy football Week 11 takeaways: Jared Goff has best MVP case, Bo Nix has turned a corner and more**\
+`Among his Week 11 takes, Michael Salfino says that Jared Goff is the most deserving MVP candidate and Bo Nix is a now a true dual-threat QB.`\
+https://nytimes.com/athletic/5928575/2024/11/18/fantasy-football-week-11-takeaways-jared-goff-has-best-mvp-case-bo-nix-has-turned-a-corner-and-more/
+
 **Everton beat Liverpool in the derby again. But more importantly, they built a sense of potential**\
 `Brian Sorensen’s side have the defensive strength to survive in the WSL, but they need to start scoring if they want to avoid the mire`\
 https://nytimes.com/athletic/5927692/2024/11/18/everton-liverpool-derby-wsl/
