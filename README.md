@@ -1,3 +1,7 @@
+**Possibility of picking Paige Bueckers No. 1 crystalizes Dallas Wings' future**\
+`Bueckers can influence the Wings' coaching hire, marketing strategies and overall direction. `\
+https://nytimes.com/athletic/5928248/2024/11/17/dallas-wings-paige-bueckers-wnba-draft-lottery/
+
 **Shouting Racial Slurs, Neo-Nazi Marchers Shock Ohio’s Capital**\
 `The group’s actions in Columbus on Saturday, part of a recent pattern of white supremacist incidents in the country, were condemned by officials around the state.`\
 https://nytimes.com/2024/11/17/us/neo-nazi-march-ohio.html
@@ -12,7 +16,7 @@ https://nytimes.com/2024/11/17/technology/fcc-nominee-brendan-carr-trump.html
 
 **Jerod Mayo, Patriots defense get schooled by Sean McVay, Rams in another loss**\
 `After a key early adjustment, the Rams offense dominated the Patriots on Sunday. And there was little the New England defense could do.`\
-https://nytimes.com/athletic/5928086/2024/11/17/jerod-mayo-patriots-defense-rams-sean-mcvay/
+https://nytimes.com/athletic/5928086/2024/11/17/patriots-loss-defense-decisions-rams/
 
 **Can't blame Caleb Williams for this Bears loss to the Packers**\
 `Thomas Brown’s first game as Bears offensive coordinator can be considered a success, but that won't make fans feel better about this loss.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927338/2024/11/17/49ers-seahawks-score-results-tak
 **Rodrigue: As Rams eye another playoff chase, the little details could make or break them**\
 `A key block and a game-sealing interception helped the Rams win Sunday. Avoiding negative details will help them see how good they can be.`\
 https://nytimes.com/athletic/5927881/2024/11/17/rams-win-offense-run-game-stafford-patriots/
-
-**Greenberg: Bears blow rare chance to beat Green Bay. How many more will Matt Eberflus get?**\
-`No one needed a win more than Eberflus. But after a stunning blocked kick at the end, he is 0-5 against Packers and 2-11 in the NFC North.`\
-https://nytimes.com/athletic/5928074/2024/11/17/bears-packers-wasted-chance-blocked-kick/
 
