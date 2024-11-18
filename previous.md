@@ -1,3 +1,7 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`As the international break draws to a close, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5929125/2024/11/18/newcastle-united-howe-joelinton-botman/
+
 **The Athletic FC: Doak - Liverpool's Salah successor? Plus: Who invests most in PL clubs**\
 `Today in TAFC: Ben Doak shows he may just help replace Salah at Liverpool, Bentacur's seven-game ban, and which PL club owners invest most?`\
 https://nytimes.com/athletic/5929073/2024/11/18/ben-doak-liverpools-salah-successor-plus-premier-league-owners-who-invest-most/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/briefing/elon-musk-donald-trump.html
 **The Pulse: Let's eliminate some NFL teams**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5928457/2024/11/18/bengals-chargers-burrow-herbert-the-pulse/
-
-**Van Dijk and De Jong out of Netherlands squad on "medical grounds"**\
-`Virgil van Dijk will return to Liverpool earlier than planned after leaving the Netherlands camp over the weekend.`\
-https://nytimes.com/athletic/5929183/2024/11/18/van-dijk-de-jong-netherlands-squad/
 
