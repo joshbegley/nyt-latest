@@ -1,3 +1,19 @@
+**Tariffs, Immigrants, Fed: Trump Plans Are an Economic Question Mark**\
+`Economists are trying to guess at how Trump policies could impact growth and inflation. The uncertainties are huge.`\
+https://nytimes.com/2024/11/18/us/politics/trump-economy-immigration-inflation-fed.html
+
+**Crazy Good! Pop-Tarts Bowl to showcase 3 flavored mascots**\
+`"Fans are hungry for more," the Pop-Tarts director of marketing said after the viral success of last year's campaign.`\
+https://nytimes.com/athletic/5929705/2024/11/18/pop-tarts-bowl-mascots/
+
+**Park Avenue Armory Will Host Yoko Ono’s ‘Wish Tree’ and Jamie xx**\
+`The Armory’s upcoming season also includes the world premiere of “DOOM,” a new work from the Golden Lion winner Anne Imhof.`\
+https://nytimes.com/2024/11/18/arts/design/park-avenue-armory-jamie-xx-yoko-ono.html
+
+**Five-Star, Five-Ingredient Creamy Miso Pasta**\
+`“Rarely have I found a recipe that delivers so deliciously in proportion to its simplicity.”`\
+https://nytimes.com/2024/11/18/dining/miso-pasta.html
+
 **Astros announce change to ballpark naming rights**\
 `Minute Maid will continue to be a team partner through 2029.`\
 https://nytimes.com/athletic/5926389/2024/11/18/astros-ballpark-naming-rights-change/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/18/science/saber-tooth-cat-mummy-siberia.html
 **Saudi Arabia Is a ‘Wrecking Ball’ in Global Climate Talks.**\
 `Despite endorsing a transition away from fossil fuels last year, Saudi officials have since worked to undermine it in at least five U.N. forums, diplomats said.`\
 https://nytimes.com/2024/11/18/climate/saudi-arabia-obstruction-fossil-fuels.html
-
-**PWHL will play 'Takeover Tour' games in Seattle, Vancouver, St. Louis and more**\
-`The PWHL will play nine games at neutral sites, with each team playing at least two, in the league's second season.`\
-https://nytimes.com/athletic/5928720/2024/11/18/pwhl-takeover-tour-seattle-st-louis-vancouver/
-
-**Penguins Today: Silver linings and the Grateful Dead**\
-`With eyes on prospects and the trade deadline, here are the latest happenings with the Penguins.`\
-https://nytimes.com/athletic/5929543/2024/11/18/penguins-today-owen-pickering-debut/
-
-**'Inside the NBA' moving to ABC and ESPN as TNT, NBA settle suit**\
-`"Inside the NBA" panelists Charles Barkley, Shaquille O'Neal, Ernie Johnson and Kenny Smith will remain with the show, sources said.`\
-https://nytimes.com/athletic/5926632/2024/11/18/inside-the-nba-abc-espn-tnt-lawsuit/
-
-**Texas Education Board to Vote on Bible-Infused Lessons in Public Schools**\
-`A new curriculum would focus on Christianity more than other religions. A kindergarten lesson on the Golden Rule, for example, would teach about Jesus and his Sermon on the Mount.`\
-https://nytimes.com/2024/11/18/us/texas-bible-school-curriculum.html
 
