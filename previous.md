@@ -1,3 +1,7 @@
+**Elias Pettersson coming alive, J.T. Miller benched: 3 Canucks takeaways**\
+`With five goals in his last seven games, Pettersson is rapidly heating up, but the Canucks fell to the Predators on Sunday night. `\
+https://nytimes.com/athletic/5928754/2024/11/18/canucks-elias-pettersson-jt-miller-takeaways/
+
 **Bills observations: Plan to shut down Travis Kelce worked, backup OL comes up big**\
 `The Bills defense changed their approach compared to previous meetings with the Chiefs.`\
 https://nytimes.com/athletic/5928864/2024/11/18/bills-chiefs-travis-kelce-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925045/2024/11/18/football-managers-lie-injuries/
 **The Slot Machine: How Liverpool set up against elite teams - and beat them**\
 `Dutch coach has shown he has the flexibility and pragmatism to pass big tests at his new club`\
 https://nytimes.com/athletic/5921332/2024/11/18/arne-slot-liverpool-machine/
-
-**Fantasy football Week 11 takeaways: Jared Goff has best MVP case, Bo Nix has turned a corner and more**\
-`Among his Week 11 takes, Michael Salfino says that Jared Goff is the most deserving MVP candidate and Bo Nix is a now a true dual-threat QB.`\
-https://nytimes.com/athletic/5928575/2024/11/18/fantasy-football-week-11-takeaways-jared-goff-has-best-mvp-case-bo-nix-has-turned-a-corner-and-more/
 

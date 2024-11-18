@@ -1,3 +1,7 @@
+**Elias Pettersson coming alive, J.T. Miller benched: 3 Canucks takeaways**\
+`With five goals in his last seven games, Pettersson is rapidly heating up, but the Canucks fell to the Predators on Sunday night. `\
+https://nytimes.com/athletic/5928754/2024/11/18/canucks-elias-pettersson-jt-miller-takeaways/
+
 **Bills observations: Plan to shut down Travis Kelce worked, backup OL comes up big**\
 `The Bills defense changed their approach compared to previous meetings with the Chiefs.`\
 https://nytimes.com/athletic/5928864/2024/11/18/bills-chiefs-travis-kelce-defense/
