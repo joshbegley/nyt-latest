@@ -1,3 +1,15 @@
+**Drought Warning Declared in New York City and 10 Counties in State**\
+`City officials announced the designation for the first time in more than 20 years as wildfires burned and residents continued to await meaningful rainfall.`\
+https://nytimes.com/2024/11/18/nyregion/drought-warning-new-york.html
+
+**NFL Week 11 inactives and fantasy tips: CeeDee Lamb, Nico Collins active for MNF**\
+`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5925238/2024/11/18/nfl-week-11-inactives-and-fantasy-tips/
+
+**Charlotte fires coach Biff Poggi after less than 2 seasons**\
+`Poggi went 6-16 in two years.`\
+https://nytimes.com/athletic/5930916/2024/11/18/biff-poggi-charlotte-college-football-coach-fired/
+
 **Gaetz May Not Be Confirmed, Trump Admits. He’s Pushing Him and Others Anyway.**\
 `The president-elect is taking a flood-the-zone approach to his cabinet nominations, betting that the Senate won’t dare to turn them all down.`\
 https://nytimes.com/2024/11/18/us/politics/trump-cabinet.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5930088/2024/11/18/paul-skenes-nl-rookie-of-the-yea
 **Sandra M. Gilbert, Co-Author of ‘The Madwoman in the Attic,’ Dies at 87**\
 `A poet, scholar and literary critic, she turned a feminist lens on 19th-century writers like Jane Austen and Charlotte Brontë, creating a feminist classic.`\
 https://nytimes.com/2024/11/18/books/sandra-gilbert-dead.html
-
-**Morgan Jenness, Whose Artistic Vision Influenced American Theater, Dies at 72**\
-`A beloved figure in the theatrical community, she redefined the role of dramaturg, influencing playwrights like David Adjmi and David Henry Hwang.`\
-https://nytimes.com/2024/11/18/theater/morgan-jenness-dead.html
-
-**Commanders coach: Rookie sensation Jayden Daniels 'is not injured'**\
-`In Washington's back-to-back losses, the first-year quarterback has just one touchdown pass and 23 rushing yards. `\
-https://nytimes.com/athletic/5930549/2024/11/18/commanders-jayden-daniels-dan-quinn-comments/
-
-**Trump Said He Plans to Use ‘Military Assets’ for Deportations**\
-`Also, Ukraine is poised to strike Russia with U.S. weapons. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/11/18/briefing/trump-deportation-plans-ukraine-russia-weapons.html
 
