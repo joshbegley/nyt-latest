@@ -1,3 +1,7 @@
+**The Premier League Owners: Who has invested the most?**\
+`In part one of our series on who runs Premier League clubs, we examine who has invested the most in top-flight football...`\
+https://nytimes.com/athletic/5923137/2024/11/18/premier-league-investment-owner-ranking/
+
 **Tuchel's England inheritance: Bigger talent pool, No 10 dilemma - and a post-Kane future?**\
 `Lee Carsley has solved many - if not all - problems for his long-term successor when he begins in January`\
 https://nytimes.com/athletic/5923690/2024/11/18/thomas-tuchel-england-kane-decisions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-how-harriss-campaign
 **Beyoncé to perform halftime show at Ravens-Texans on Christmas**\
 `Beyoncé will perform songs from her Cowboy Carter album during the halftime show on Netflix.`\
 https://nytimes.com/athletic/5928797/2024/11/17/beyonce-nfl-christmas-day-netflix-ravens-texans/
-
-**Josh Allen emerges as MVP favorite following signature play in win over Chiefs**\
-`More than 100 games in, teammate Dawson Knox said Josh Allen highlights don't get old.`\
-https://nytimes.com/athletic/5928738/2024/11/17/bills-win-josh-allen-chiefs/
 
