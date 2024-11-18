@@ -1,3 +1,15 @@
+**Submit your questions for Will Guillory's Pelicans mailbag**\
+`The New Orleans Pelicans are off to a rough start.`\
+https://nytimes.com/athletic/5930100/2024/11/18/pelicans-zion-williamson-mailbag-submission/
+
+**Martin O’Malley, Ex-Maryland Governor, Kicks Off Race to Lead D.N.C.**\
+`Mr. O’Malley, who ran for president in 2016, is the first candidate to announce a bid to lead the reeling Democratic Party as it faces two years of powerlessness in Washington.`\
+https://nytimes.com/2024/11/18/us/politics/martin-omalley-dnc-chair-race.html
+
+**How Did Fans Dress for Tyler, the Creator’s L.A. Carnival?**\
+`Crowds filled Dodger Stadium for Camp Flog Gnaw, showing off their street style best.`\
+https://nytimes.com/2024/11/18/style/how-did-fans-dress-for-tyler-the-creators-la-carnival.html
+
 **Normally 'automatic' kickers like Justin Tucker, Younghoe Koo are struggling in 2024**\
 `Here's a selection of names ranking Nos. 26-31: Jake Elliott, Younghoe Koo, Justin Tucker, Evan McPherson, Dustin Hopkins.`\
 https://nytimes.com/athletic/5929559/2024/11/18/nfl-kicker-struggles-justin-tucker-younghoe-koo/
