@@ -1,3 +1,7 @@
+**Bears add 'blocked field goal' to 2024 list of devastating losses**\
+`Matt Eberflus defended his decision to try the kick on third down, but with this team and this head coach, everything will be scrutinized.`\
+https://nytimes.com/athletic/5928187/2024/11/17/bears-packers-blocked-field-goal/
+
 **Steelers announce themselves as contenders with vintage defensive performance vs. Ravens**\
 `Newcomer Patrick Queen joined the Steelers' stars to stymie Lamar Jackson yet again and prove they are no fluke atop the AFC North.`\
 https://nytimes.com/athletic/5928273/2024/11/17/steelers-ravens-defense-afc-north/
