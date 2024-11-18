@@ -1,3 +1,7 @@
+**What went wrong for Phil Longo at Wisconsin? Who could replace him?**\
+`On Sunday, Fickell fired Longo 23 games into his tenure as offensive coordinator at Wisconsin.`\
+https://nytimes.com/athletic/5930481/2024/11/18/phil-longo-fired-luke-fickell-wisconsin-football-offensive-coordinator/
+
 **Should the Giants trade Lamonte Wade, Jr.? The pros and cons**\
 `Wade has given the Giants good value when on the field but he could also be a top trade chip.`\
 https://nytimes.com/athletic/5930108/2024/11/18/sf-giants-lamonte-wade-jr-trade-possibilities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930077/2024/11/18/sec-championship-teams-college-f
 **'Yeah, we need to win all 4 of them': Blackhawks feeling urgency with Thanksgiving approaching**\
 `The Blackhawks are tired of moral victories and want more real ones.`\
 https://nytimes.com/athletic/5930258/2024/11/18/blackhawks-standings-schedule/
-
-**SpaceX Starship’s Sonic Boom Creates Risk of Structural Damage, Test Finds**\
-`An independent researcher found that noise recorded miles away from the site of a recent test flight was equal to standing 200 feet from a Boeing 747 during takeoff.`\
-https://nytimes.com/2024/11/18/us/politics/spacex-starship-sonic-boom-damage.html
 
