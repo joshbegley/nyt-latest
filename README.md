@@ -1,7 +1,3 @@
-**Josh Giddey disappointed with Bulls' slow start, says he must 'be a lot better'**\
-`"I’ve got to find ways to help us win games, and so does everybody else," Giddey said after the Bulls lost to the Houston Rockets on Sunday.`\
-https://nytimes.com/athletic/5928783/2024/11/18/josh-giddey-chicago-bulls-slow-start/
-
 **Freed From Restraints, Ukraine Is Poised to Strike Into Russia**\
 `President Biden has granted permission for Kyiv to carry out long-range strikes, and his Ukrainian counterpart said the launches would come soon.`\
 https://nytimes.com/2024/11/18/world/europe/ukraine-russia-missiles.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/18/opinion/jake-paul-mike-tyson-fight.html
 **A Miniature New York Made of Bark and Acorns**\
 `At the New York Botanical Garden’s model train show, the city’s famous buildings cluster around the tracks.`\
 https://nytimes.com/2024/11/18/nyregion/botanical-garden-train-show-bronx.html
+
+**The Fight to Save a Decrepit Pink House by the Sea**\
+`The 99-year-old house on Boston’s North Shore is battered and uninhabited. And yet, it is beloved by artists and locals — so much that they helped pause its demolition.`\
+https://nytimes.com/2024/11/18/us/pink-house-massachusetts.html
 
