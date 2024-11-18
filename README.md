@@ -2,6 +2,10 @@
 `The stabbings, which also left a third person critically injured, occurred across a broad swath of the borough over several hours on Monday morning.`\
 https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
 
+**College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/18/college-football-playoff-projections-odds/
+
 **Why Lindy Ruff put the standings in Sabres' locker room, Devon Levi sent down, injury updates and more**\
 `Ruff isn't one of those coaches who subscribes to the theory that players shouldn’t be worrying about the standings.`\
 https://nytimes.com/athletic/5930215/2024/11/18/sabres-lindy-ruff-standings-devon-levi/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/insider/guns-america-ar-15.html
 **England 'have all the tools' to win 2026 World Cup - Carsley**\
 `Lee Carsley says England &#8220;have all the tools&#8221; to win the World Cup in 2026, as he prepares to hand the team over to Thomas Tuchel.`\
 https://nytimes.com/athletic/5929906/2024/11/18/england-world-cup-2026-carsley/
-
-**Seahawks' defense shines after bye-week shake-up: 'We can be something special'**\
-`The new-look linebacker group of Ernest Jones IV and Tyrice Knight impressed against the 49ers, allowing others to thrive, too.`\
-https://nytimes.com/athletic/5929054/2024/11/18/seahawks-49ers-defense-mike-macdonald/
 
