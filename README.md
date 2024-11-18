@@ -1,3 +1,7 @@
+**Bannon’s New York Trial on Fraud Charges Is Postponed Until February**\
+`The key adviser to Donald J. Trump is accused of cheating people who donated to build a border wall. Mr. Trump pardoned him when he faced similar federal charges in his first term.`\
+https://nytimes.com/2024/11/18/us/politics/bannon-fraud-trial-postponed-february.html
+
 **Man Is Accused of Killing 2 in Random Stabbings in Manhattan**\
 `A suspect was arrested Monday morning in connection with the stabbings, which occurred across a broad swath of the borough over several hours and left a third person critically injured.`\
 https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929272/2024/11/18/croydon-athletic-keith-millen/
 **Picking Up My Rifle Once More as I Cover Guns in America**\
 `A reporter and former infantryman in Afghanistan had let his AR-15, used for target shooting, collect dust. Then he began writing about gun culture.`\
 https://nytimes.com/2024/11/18/insider/guns-america-ar-15.html
-
-**England 'have all the tools' to win 2026 World Cup - Carsley**\
-`Lee Carsley says England &#8220;have all the tools&#8221; to win the World Cup in 2026, as he prepares to hand the team over to Thomas Tuchel.`\
-https://nytimes.com/athletic/5929906/2024/11/18/england-world-cup-2026-carsley/
 
