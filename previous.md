@@ -1,3 +1,19 @@
+**Man Is Accused of Killing 2 in Random Stabbings in Manhattan**\
+`The stabbings, which also left a third person critically injured, occurred across a broad swath of the borough over several hours on Monday morning.`\
+https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
+
+**Why Lindy Ruff put the standings in Sabres' locker room, Devon Levi sent down, injury updates and more**\
+`Ruff isn't one of those coaches who subscribes to the theory that players shouldn’t be worrying about the standings.`\
+https://nytimes.com/athletic/5930215/2024/11/18/sabres-lindy-ruff-standings-devon-levi/
+
+**The Windup: Ichiro leads Baseball Hall of Fame ballot**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5930264/2024/11/18/ichiro-mlb-hall-of-fame-ballot-the-windup/
+
+**Holloway vows to exorcise Swindon's 'haunted' training ground**\
+`Football coaches are never short on offering mitigation when results turn against their team.`\
+https://nytimes.com/athletic/5930180/2024/11/18/ian-holloway-swindon-town-curse/
+
 **Submit your questions for Austin Meek’s Michigan Wolverines mailbag**\
 `What's on your mind about the Wolverines?`\
 https://nytimes.com/athletic/5930252/2024/11/18/michigan-wolverines-football-basketball-mailbag-questions/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5929906/2024/11/18/england-world-cup-2026-carsley/
 **Seahawks' defense shines after bye-week shake-up: 'We can be something special'**\
 `The new-look linebacker group of Ernest Jones IV and Tyrice Knight impressed against the 49ers, allowing others to thrive, too.`\
 https://nytimes.com/athletic/5929054/2024/11/18/seahawks-49ers-defense-mike-macdonald/
-
-**Trump Confirms Plans to Use the Military to Assist in Mass Deportations**\
-`Mr. Trump’s top immigration policy adviser has discussed using military assets to build detention centers and support civilian immigration agents.`\
-https://nytimes.com/2024/11/18/us/politics/trump-military-deportation.html
-
-**What Travelers Should Know About the Spirit Airlines Bankruptcy**\
-`Flights will still take off and travelers can keep booking tickets, the low-cost carrier said, as the company enters Chapter 11 bankruptcy.`\
-https://nytimes.com/2024/11/18/business/spirit-airlines-bankruptcy-flights.html
-
-**FAU fires coach Tom Herman after 5th straight loss**\
-`Herman was 6-16 in just under two seasons in Boca Raton.`\
-https://nytimes.com/athletic/5930152/2024/11/18/tom-herman-fired-fau/
-
-**Aid Convoy Was Violently Looted in Gaza, UNWRA Chief Says**\
-`The UNWRA commissioner general said that Gaza has become an “impossible environment to operate” in after a convoy of aid trucks was looted at gun point.`\
-https://nytimes.com/video/world/middleeast/100000009831525/gaza-aid-convoy-looting.html
 

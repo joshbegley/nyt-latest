@@ -1,3 +1,19 @@
+**Man Is Accused of Killing 2 in Random Stabbings in Manhattan**\
+`The stabbings, which also left a third person critically injured, occurred across a broad swath of the borough over several hours on Monday morning.`\
+https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
+
+**Why Lindy Ruff put the standings in Sabres' locker room, Devon Levi sent down, injury updates and more**\
+`Ruff isn't one of those coaches who subscribes to the theory that players shouldn’t be worrying about the standings.`\
+https://nytimes.com/athletic/5930215/2024/11/18/sabres-lindy-ruff-standings-devon-levi/
+
+**The Windup: Ichiro leads Baseball Hall of Fame ballot**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5930264/2024/11/18/ichiro-mlb-hall-of-fame-ballot-the-windup/
+
+**Holloway vows to exorcise Swindon's 'haunted' training ground**\
+`Football coaches are never short on offering mitigation when results turn against their team.`\
+https://nytimes.com/athletic/5930180/2024/11/18/ian-holloway-swindon-town-curse/
+
 **Submit your questions for Austin Meek’s Michigan Wolverines mailbag**\
 `What's on your mind about the Wolverines?`\
 https://nytimes.com/athletic/5930252/2024/11/18/michigan-wolverines-football-basketball-mailbag-questions/
