@@ -1,3 +1,7 @@
+**Pancreatic Cancer Surge May Be Less Worrisome Than It Seemed**\
+`A rise in the disease in younger people was not followed by an increase in deaths, a study found, and might be a sign of overdiagnosis.`\
+https://nytimes.com/2024/11/18/health/pancreatic-cancer-younger-people.html
+
 **‘Leonardo da Vinci’ Is a Humanizing Look Into a Great Mind**\
 `Beyond the appropriate awe, this two-part PBS documentary, co-directed by Ken Burns, adds human texture to the hagiography.`\
 https://nytimes.com/2024/11/18/arts/television/leonardo-da-vinci-pbs-ken-burns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/briefing/ukraine-trump-deportation-gaza.html
 **How Tulsi Gabbard Became a Favorite of Russia’s State Media**\
 `President-elect Donald J. Trump’s pick to be the director of national intelligence has raised alarms among national security officials.`\
 https://nytimes.com/2024/11/18/us/politics/tulsi-gabbard-trump-russia.html
-
-**Veteran Who Was Court Martialed Gets 4 Years in Prison for Jan. 6 Attack**\
-`Edward Richmond Jr., 41, of Geismar, La., a former U.S. Army soldier who had served time in the killing of an Iraqi citizen, was sentenced to 51 months for assaulting police officers during the 2021 Capitol riot.`\
-https://nytimes.com/2024/11/18/us/army-veteran-jan-6-sentencing.html
 
