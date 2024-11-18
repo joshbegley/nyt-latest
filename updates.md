@@ -1,3 +1,19 @@
+**The Dollar Still Has Its Mojo. X, Not So Much.**\
+`Ruining a network is hard, but Elon Musk shows it’s possible.`\
+https://nytimes.com/2024/11/18/opinion/columnists/elon-musk-twitter-bluesky.html
+
+**What a School Performance Shows Us About Japanese Education**\
+`A look into the Japanese educational system’s delicate balance between teamwork, discipline and personal growth.`\
+https://nytimes.com/2024/11/18/opinion/japan-education-childhood.html
+
+**Instruments of a Beating Heart**\
+`A look into the Japanese educational system’s delicate balance between teamwork, discipline and personal growth.`\
+https://nytimes.com/video/opinion/100000009295681/instruments-of-a-beating-heart.html
+
+**Yankees' Luis Gil wins 2024 American League Rookie of the Year award**\
+`Gil is the first Yankee to win American League Rookie of the Year since Aaron Judge in 2017.`\
+https://nytimes.com/athletic/5930691/2024/11/18/yankees-luis-gil-al-rookie-of-the-year/
+
 **Drought Warning Declared in New York City and 10 Counties in State**\
 `City officials announced the designation for the first time in more than 20 years as wildfires burned and residents continued to await meaningful rainfall.`\
 https://nytimes.com/2024/11/18/nyregion/drought-warning-new-york.html
