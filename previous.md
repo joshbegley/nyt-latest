@@ -1,3 +1,7 @@
+**How Ohio State's adjustments vs. Northwestern can help vs. Indiana: Film study**\
+`What did we see from Ohio State's win over Northwestern that the Buckeyes can use this week against Indiana?`\
+https://nytimes.com/athletic/5929561/2024/11/18/ohio-state-northwestern-film-analysis-indiana/
+
 **Emma Hayes names USWNT roster: Yohannes first camp after commitment**\
 `Hayes extended two more first-time call-ups to Phallon Tullis-Joyce and Ally Sentnor.`\
 https://nytimes.com/athletic/5929500/2024/11/18/emma-hayes-uswnt-roster-final-friendlies/
