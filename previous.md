@@ -1,3 +1,11 @@
+**Bruce Feldman's FAU coaching candidates: Who could replace Tom Herman?**\
+`The sense here is this job search will feature a bunch of assistant coaches looking for their first chance to run the show.`\
+https://nytimes.com/athletic/5930852/2024/11/18/fau-college-football-head-coach-candidates-job/
+
+**The Governor Who Helped Trump Get Elected**\
+`Greg Abbott in Texas, sending busloads of migrants to blue cities, helped put the border crisis more fully into view for the nation.`\
+https://nytimes.com/2024/11/18/us/politics/trump-migrants-abbott-texas.html
+
 **Cowboys close roof of AT&T Stadium after piece falls ahead of 'MNF' game**\
 `The incident occurred while the roof was opening and a decision regarding the ability to re-open the roof safely is being evaluated.`\
 https://nytimes.com/athletic/5930809/2024/11/18/cowboys-stadium-roof-fall-texans-mnf/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/us/politics/trump-musk-spacex-launch-texas.html
 **Pennsylvania’s Top Court Tells Counties to Stop Defying Its Ballot Order**\
 `The unanimous decision came after officials in at least four counties had ignored the court’s pre-election guidance not to count mail ballots that were undated or misdated.`\
 https://nytimes.com/2024/11/18/us/politics/pennsylvania-ballots-mccormick-casey-supreme-court.html
-
-**Trump’s Signature Dance Move Finds Its Way to the Sports World**\
-`Jon Jones punctuated his U.F.C. win with the president-elect’s shimmy, and numerous N.F.L. players followed suit on Sunday.`\
-https://nytimes.com/2024/11/18/style/jon-jones-trump-dance-bowers-bosa.html
-
-**FIFA's lowest-ranked team San Marino earn UEFA Nations League promotion**\
-`San Marino, the world’s lowest-ranked international team, have won promotion to the third tier of the Nations League following their 3-1 victory over Liechtenstein.`\
-https://nytimes.com/athletic/5930705/2024/11/18/san-marino-nations-league/
 

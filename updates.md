@@ -1,3 +1,11 @@
+**Bruce Feldman's FAU coaching candidates: Who could replace Tom Herman?**\
+`The sense here is this job search will feature a bunch of assistant coaches looking for their first chance to run the show.`\
+https://nytimes.com/athletic/5930852/2024/11/18/fau-college-football-head-coach-candidates-job/
+
+**The Governor Who Helped Trump Get Elected**\
+`Greg Abbott in Texas, sending busloads of migrants to blue cities, helped put the border crisis more fully into view for the nation.`\
+https://nytimes.com/2024/11/18/us/politics/trump-migrants-abbott-texas.html
+
 **Cowboys close roof of AT&T Stadium after piece falls ahead of 'MNF' game**\
 `The incident occurred while the roof was opening and a decision regarding the ability to re-open the roof safely is being evaluated.`\
 https://nytimes.com/athletic/5930809/2024/11/18/cowboys-stadium-roof-fall-texans-mnf/
