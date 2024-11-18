@@ -1,3 +1,7 @@
+**Rodrigo Bentancur's seven-game ban explained: What the Spurs player did and what he'll miss**\
+`Tottenham midfielder Rodrigo Bentancur has been given a seven-game ban for a comment made about Son Heung-min - here is the background`\
+https://nytimes.com/athletic/5906726/2024/11/18/bentancur-explainer-spurs-son/
+
 **What Do You Hope to Get Out of College?**\
 `College is a big commitment, in terms of time and money. What do you think is the purpose of continuing your education after high school?`\
 https://nytimes.com/2024/11/18/learning/what-do-you-hope-to-get-out-of-college.html

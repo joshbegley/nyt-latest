@@ -1,3 +1,7 @@
+**Rodrigo Bentancur's seven-game ban explained: What the Spurs player did and what he'll miss**\
+`Tottenham midfielder Rodrigo Bentancur has been given a seven-game ban for a comment made about Son Heung-min - here is the background`\
+https://nytimes.com/athletic/5906726/2024/11/18/bentancur-explainer-spurs-son/
+
 **What Do You Hope to Get Out of College?**\
 `College is a big commitment, in terms of time and money. What do you think is the purpose of continuing your education after high school?`\
 https://nytimes.com/2024/11/18/learning/what-do-you-hope-to-get-out-of-college.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929230/2024/11/18/newcaste-england-livramento-gord
 **Without Nikola Jokić, the Nuggets have looked alarmingly helpless**\
 `The three-time MVP has missed the past two games for personal reasons. Denver can't get Jamal Murray or much else going without him.`\
 https://nytimes.com/athletic/5924064/2024/11/18/nuggets-nikola-jokic-losses-jamal-murray/
-
-**The Race to Lead Trump’s Treasury Dept. Is Becoming a Cliffhanger**\
-`Howard Lutnick? Scott Bessent? Marc Rowan? Kevin Warsh? The president-elect’s list of candidates has grown longer, clouding the future of the department.`\
-https://nytimes.com/2024/11/18/business/dealbook/trump-treasury-department-rowan-warsh.html
 
