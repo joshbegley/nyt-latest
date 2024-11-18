@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5928325/2024/11/17/anthony-richardson-colts-redempt
 https://nytimes.com/athletic/5925723/2024/11/17/james-harden-nba-threes-all-time-ray-allen/
 
 **Bears add 'blocked field goal' to 2024 list of devastating losses**\
-`Matt Eberflus defended his decision to try the kick on third down, but with this team and this head coach, everything will be scrutinized.`\
+`Matt Eberflus defended his decision to try the kick on second down, but with this team and this head coach, everything will be scrutinized.`\
 https://nytimes.com/athletic/5928187/2024/11/17/bears-packers-blocked-field-goal/
 
 **Steelers announce themselves as contenders with vintage defensive performance vs. Ravens**\
