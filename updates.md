@@ -1,3 +1,7 @@
+**Quincy Jones Receives Posthumous Oscar, and Daughter Gives His Speech**\
+`At the Governors Awards, Rashida Jones spoke on behalf of her father, who died earlier this month at the age of 91.`\
+https://nytimes.com/2024/11/18/movies/governors-awards-quincy-jones.html
+
 **What I'm hearing on the Penguins: More trades are coming**\
 `The Penguins can read the writing on the wall, which means more trades are coming.`\
 https://nytimes.com/athletic/5928920/2024/11/18/penguins-nhl-trade-deadline/
