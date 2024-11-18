@@ -1,3 +1,7 @@
+**Possibility of picking Paige Bueckers No. 1 crystalizes Dallas Wings' future**\
+`Paige Bueckers can influence the Wings' coaching hire, marketing strategies and overall direction. `\
+https://nytimes.com/athletic/5928248/2024/11/17/dallas-wings-paige-bueckers-wnba-draft-lottery/
+
 **Can't blame Caleb Williams for the Bears' loss to the Packers**\
 `Thomas Brown's first game as Bears offensive coordinator can be considered a success, but that won't make fans feel better about this loss.`\
 https://nytimes.com/athletic/5928105/2024/11/17/bears-packers-caleb-williams-thomas-brown/
