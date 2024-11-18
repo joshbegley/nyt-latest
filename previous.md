@@ -1,3 +1,7 @@
+**Opponents Renew Attacks as Congestion Pricing Plan Returns**\
+`Gov. Kathy Hochul is letting the paused tolling program move forward in January. Her critics have jumped on the chance to criticize the reversal.`\
+https://nytimes.com/2024/11/18/nyregion/congestion-pricing-vote-mta.html
+
 **Ichiro Suzuki, CC Sabathia headline the 2025 HOF ballot**\
 `The Athletic has a step-by-step guide to reaching Cooperstown.`\
 https://nytimes.com/athletic/5925060/2024/11/18/2025-baseball-hall-of-fame-ballot-election/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/us/schools-election-virginia-suburbs.html
 **Gold Watch, a Gift From Titanic Survivors, Sells for Nearly $2 Million**\
 `The gold watch was given to the captain of the Carpathia, the ship that responded to the Titanic’s distress call and rescued hundreds of people.`\
 https://nytimes.com/2024/11/18/business/titanic-watch-auction.html
-
-**Sons Tell of a ‘Devastated’ Family at Rape Trial in France**\
-`The men appeared in court, addressing their father, who admits to having drugged their mother over years and inviting scores of men to rape her while she was unconscious.`\
-https://nytimes.com/2024/11/18/world/europe/gisele-pelicot-rape-trial-france.html
 

@@ -1,3 +1,7 @@
+**Opponents Renew Attacks as Congestion Pricing Plan Returns**\
+`Gov. Kathy Hochul is letting the paused tolling program move forward in January. Her critics have jumped on the chance to criticize the reversal.`\
+https://nytimes.com/2024/11/18/nyregion/congestion-pricing-vote-mta.html
+
 **Ichiro Suzuki, CC Sabathia headline the 2025 HOF ballot**\
 `The Athletic has a step-by-step guide to reaching Cooperstown.`\
 https://nytimes.com/athletic/5925060/2024/11/18/2025-baseball-hall-of-fame-ballot-election/
