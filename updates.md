@@ -1,3 +1,11 @@
+**Ichiro Suzuki, CC Sabathia headline the 2025 HOF ballot**\
+`The Athletic has a step-by-step guide to reaching Cooperstown.`\
+https://nytimes.com/athletic/5925060/2024/11/18/2025-baseball-hall-of-fame-ballot-election/
+
+**Sudan qualify for AFCON 2025 despite ongoing Civil War**\
+`Sudan have qualified for the 2025 Africa Cup of Nations (AFCON).`\
+https://nytimes.com/athletic/5929596/2024/11/18/sudan-afcon-qualification-civil-war/
+
 **Yo-Yo Ma and Kathryn Stott Wrap Up a Partnership With Thanks**\
 `After 40 years of musical collaborations, this cellist and pianist have recorded their final album together, “Merci.”`\
 https://nytimes.com/2024/11/18/arts/music/yo-yo-ma-kathryn-stott.html

@@ -1,3 +1,11 @@
+**Ichiro Suzuki, CC Sabathia headline the 2025 HOF ballot**\
+`The Athletic has a step-by-step guide to reaching Cooperstown.`\
+https://nytimes.com/athletic/5925060/2024/11/18/2025-baseball-hall-of-fame-ballot-election/
+
+**Sudan qualify for AFCON 2025 despite ongoing Civil War**\
+`Sudan have qualified for the 2025 Africa Cup of Nations (AFCON).`\
+https://nytimes.com/athletic/5929596/2024/11/18/sudan-afcon-qualification-civil-war/
+
 **Yo-Yo Ma and Kathryn Stott Wrap Up a Partnership With Thanks**\
 `After 40 years of musical collaborations, this cellist and pianist have recorded their final album together, “Merci.”`\
 https://nytimes.com/2024/11/18/arts/music/yo-yo-ma-kathryn-stott.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/business/titanic-watch-auction.html
 **Sons Tell of a ‘Devastated’ Family at Rape Trial in France**\
 `The men appeared in court, addressing their father, who admits to having drugged their mother over years and inviting scores of men to rape her while she was unconscious.`\
 https://nytimes.com/2024/11/18/world/europe/gisele-pelicot-rape-trial-france.html
-
-**Astros owner: Bregman talks ongoing, team exploring backup plans**\
-`General manager Dana Brown and Scott Boras, Bregman’s agent, “have been visiting frequently,” Crane said.`\
-https://nytimes.com/athletic/5929991/2024/11/18/astros-jim-crane-alex-bregman-talks/
-
-**Georgia targeting Georgia Tech game for Dillon Bell return, postseason for Trevor Etienne**\
-`Georgia could get one of its best receivers back for its season finale. But its leading rusher likely won't be back until the postseason.`\
-https://nytimes.com/athletic/5930029/2024/11/18/georgia-football-dillon-bell-trevor-etienne/
 
