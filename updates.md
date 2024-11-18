@@ -1,3 +1,11 @@
+**Julius Randle has his first Minnesota moment in buzzer-beating game winner**\
+`Randle's heroics helped hide what was another underwhelming performance for much of the game.`\
+https://nytimes.com/athletic/5927709/2024/11/18/julius-randle-timberwolves-buzzer-beater/
+
+**Is rookie Yves Missi the solution to the Pelicans' problem at center?**\
+`The 21st pick in this year's draft has been a bright spot in an otherwise depressing start for New Orleans.`\
+https://nytimes.com/athletic/5929215/2024/11/18/pelicans-yves-missi-center-rookie/
+
 **FPL Gameweek 12 mailbag: Send in your questions for Holly Shand now**\
 `Submit your Fantasy Premier League questions for Holly Shand's Gameweek 12 mailbag now`\
 https://nytimes.com/athletic/5929379/2024/11/18/fantasy-premier-league-gameweek-12-mailbag-questions/
