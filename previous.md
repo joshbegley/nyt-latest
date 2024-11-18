@@ -1,3 +1,7 @@
+**James Harden passes Ray Allen for second on NBA's all-time made 3s list**\
+`In passing Allen, Harden only trails Steph Curry for the most made 3s in a career.`\
+https://nytimes.com/athletic/5925723/2024/11/17/james-harden-nba-threes-all-time-ray-allen/
+
 **Bears add 'blocked field goal' to 2024 list of devastating losses**\
 `Matt Eberflus defended his decision to try the kick on third down, but with this team and this head coach, everything will be scrutinized.`\
 https://nytimes.com/athletic/5928187/2024/11/17/bears-packers-blocked-field-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/us/neo-nazi-march-ohio.html
 **Bills hand Chiefs first loss of 2024 with 30-21 win in Buffalo: Takeaways**\
 `Kansas City still holds the best record in the AFC, but the Bills now own the potential tiebreaker. `\
 https://nytimes.com/athletic/5927342/2024/11/17/chiefs-bills-score-results-takeaways/
-
-**Trump Picks Brendan Carr to Lead F.C.C.**\
-`Mr. Carr, who currently sits on the commission and is a vocal critic of Big Tech, has said the agency should regulate the tech industry.`\
-https://nytimes.com/2024/11/17/technology/fcc-nominee-brendan-carr-trump.html
 

@@ -1,3 +1,7 @@
+**James Harden passes Ray Allen for second on NBA's all-time made 3s list**\
+`In passing Allen, Harden only trails Steph Curry for the most made 3s in a career.`\
+https://nytimes.com/athletic/5925723/2024/11/17/james-harden-nba-threes-all-time-ray-allen/
+
 **Bears add 'blocked field goal' to 2024 list of devastating losses**\
 `Matt Eberflus defended his decision to try the kick on third down, but with this team and this head coach, everything will be scrutinized.`\
 https://nytimes.com/athletic/5928187/2024/11/17/bears-packers-blocked-field-goal/
