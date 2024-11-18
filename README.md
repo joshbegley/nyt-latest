@@ -1,3 +1,7 @@
+**Josh Allen emerges as MVP favorite following signature play in win over Chiefs**\
+`More than 100 games in, teammate Dawson Knox said Josh Allen highlights don't get old.`\
+https://nytimes.com/athletic/5928738/2024/11/17/bills-win-josh-allen-chiefs/
+
 **How the Chiefs felt watching a different superstar QB beat them with a superstar play**\
 `Josh Allen's 26-yard TD run dealt the Chiefs their first loss since last Christmas. They allowed 30 points for the first time in 30 games.`\
 https://nytimes.com/athletic/5928663/2024/11/17/chiefs-loss-patrick-mahomes-bills/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928521/2024/11/17/49ers-loss-seahawks-knockout-pun
 **Vikings top Titans, earn AFC South sweep, but they know they have bigger fish to fry**\
 `The Vikings beat the Titans on Sunday, but they know they'll have to play better to live up to their heightened expectations this season.`\
 https://nytimes.com/athletic/5928164/2024/11/17/vikings-win-titans-sam-darnold/
-
-**After redemptive win, Colts QB Anthony Richardson lets emotion flow: This was a 'blessing'**\
-`The last few weeks have been a roller coaster for Richardson. "Lord knows, (it's been) challenging ... but I stuck with it."`\
-https://nytimes.com/athletic/5928325/2024/11/17/anthony-richardson-colts-redemption-jets-win/
 
