@@ -1,4 +1,8 @@
 **Elon Musk’s Political Influence**\
+`We explore Musk’s agenda and ideology.`\
+https://nytimes.com/2024/11/18/briefing/elon-musk-donald-trump.html
+
+**Elon Musk’s Political Influence**\
 `We explore will Musk’s agenda and ideology.`\
 https://nytimes.com/2024/11/18/briefing/elon-musk-donald-trump.html
 
