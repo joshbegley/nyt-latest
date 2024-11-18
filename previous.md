@@ -1,3 +1,7 @@
+**Panthers' Bryce Young gets shot vs. Chiefs, Jonathon Brooks to make debut: 5 things**\
+`Young's confidence and aggressiveness were among the reasons Dave Canales kept the second-year QB in the starting role this week.`\
+https://nytimes.com/athletic/5930452/2024/11/18/carolina-panthers-bryce-young-starting-jonathon-brooks/
+
 **Mining Company Whose C.E.O. Was Detained Agrees to Pay Mali $160 Million**\
 `Three executives of the Australian company Resolute Mining were arrested this month. Mali, a major African gold producer, has been trying to increase its share of mining profits lately.`\
 https://nytimes.com/2024/11/18/world/africa/mali-mining-detensions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930376/2024/11/18/lakers-pat-riley-statue/
 **Iowa quarterback shuffle continues as Cade McNamara to return from concussion**\
 `Injuries have left Iowa’s quarterback situation reeling this month.`\
 https://nytimes.com/athletic/5930407/2024/11/18/cade-mcnamara-iowa-quarterback-depth-chart/
-
-**The SEC championship conundrum: Should Playoff hopefuls want to avoid playing in Atlanta?**\
-`How much do the contenders want and need to make it to the SEC Championship Game?`\
-https://nytimes.com/athletic/5930077/2024/11/18/sec-championship-teams-college-football-playoff/
 

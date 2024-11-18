@@ -1,3 +1,7 @@
+**Panthers' Bryce Young gets shot vs. Chiefs, Jonathon Brooks to make debut: 5 things**\
+`Young's confidence and aggressiveness were among the reasons Dave Canales kept the second-year QB in the starting role this week.`\
+https://nytimes.com/athletic/5930452/2024/11/18/carolina-panthers-bryce-young-starting-jonathon-brooks/
+
 **Mining Company Whose C.E.O. Was Detained Agrees to Pay Mali $160 Million**\
 `Three executives of the Australian company Resolute Mining were arrested this month. Mali, a major African gold producer, has been trying to increase its share of mining profits lately.`\
 https://nytimes.com/2024/11/18/world/africa/mali-mining-detensions.html
