@@ -1,3 +1,7 @@
+**Elon Musk’s Political Influence**\
+`We explore will Musk’s agenda and ideology.`\
+https://nytimes.com/2024/11/18/briefing/elon-musk-donald-trump.html
+
 **The Pulse: Let's eliminate some NFL teams**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5928457/2024/11/18/bengals-chargers-burrow-herbert-the-pulse/
