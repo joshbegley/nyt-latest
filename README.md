@@ -1,3 +1,7 @@
+**49ers' lack of knockout punch haunts them again vs. Seahawks: 'It's not like us'**\
+`After 10 games it's clear the 2024 49ers are lacking something, something that goes beyond their missing personnel.`\
+https://nytimes.com/athletic/5928521/2024/11/17/49ers-loss-seahawks-knockout-punch-lacking/
+
 **Vikings top Titans, earn AFC South sweep, but they know they have bigger fish to fry**\
 `The Vikings beat the Titans on Sunday, but they know they'll have to play better to live up to their heightened expectations this season.`\
 https://nytimes.com/athletic/5928164/2024/11/17/vikings-win-titans-sam-darnold/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928183/2024/11/17/ravens-loss-steelers-lamar-jacks
 **Oregon School Leaders on Leave After 2 Teachers Charged With Sex Abuse**\
 `The police said the St. Helens School District was informed of the abuse allegations as early as 2019 but officials failed to alert the authorities.`\
 https://nytimes.com/2024/11/17/us/oregon-teachers-arrested-sexual-abuse.html
-
-**Possibility of picking Paige Bueckers No. 1 crystalizes Dallas Wings' future**\
-`Paige Bueckers can influence the Wings' coaching hire, marketing strategies and overall direction. `\
-https://nytimes.com/athletic/5928248/2024/11/17/dallas-wings-paige-bueckers-wnba-draft-lottery/
 
