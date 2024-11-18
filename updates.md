@@ -1,3 +1,7 @@
+**How Tulsi Gabbard Became a Favorite of Russia’s State Media**\
+`President-elect Donald J. Trump’s pick to be the director of national intelligence has raised alarms among national security officials.`\
+https://nytimes.com/2024/11/18/us/politics/tulsi-gabbard-trump-russia.html
+
 **Veteran Who Killed Iraqi Civilian Gets 4 Years in Prison for Jan. 6 Attack**\
 `Edward Richmond Jr., 41, of Geismar, La., was sentenced to 51 months for assaulting police officers during the 2021 Capitol riot.`\
 https://nytimes.com/2024/11/18/us/army-veteran-jan-6-sentencing.html
