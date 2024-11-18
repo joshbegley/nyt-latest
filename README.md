@@ -1,3 +1,11 @@
+**‘The Sex Lives of College Girls,’ Plus 7 Things to Watch on TV this Week**\
+`Catch up with the group from Essex College, go behind the scenes of Ridley Scott’s new movie and get your Bravo fill.`\
+https://nytimes.com/2024/11/18/arts/television/the-sex-lives-of-college-girls-plus-7-things-to-watch-on-tv-this-week.html
+
+**We’re About to Find Out How Much America’s Leadership Matters**\
+`Donald Trump’s re-election to the American presidency is a threat to global peace and security.`\
+https://nytimes.com/2024/11/18/opinion/trump-ukraine-china-middle-east.html
+
 **Chargers survive Bengals with J.K. Dobbins' late TD in 34-27 win: Takeaways**\
 `The Chargers survived a second-half comeback attempt by the Bengals to escape with a win on "Sunday Night Football."`\
 https://nytimes.com/athletic/5928144/2024/11/18/bengals-chargers-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5928575/2024/11/18/fantasy-football-week-11-takeawa
 **Everton beat Liverpool in the derby again. But more importantly, they built a sense of potential**\
 `Brian Sorensen’s side have the defensive strength to survive in the WSL, but they need to start scoring if they want to avoid the mire`\
 https://nytimes.com/athletic/5927692/2024/11/18/everton-liverpool-derby-wsl/
-
-**Monday Briefing**\
-`A major change in U.S. policy on Ukraine.`\
-https://nytimes.com/2024/11/18/briefing/ukraine-biden-trump-lebanon.html
-
-**On Migration, Europe Warms to Ideas Once Seen as Fringe**\
-`As in the United States, a decline in the numbers of migrants crossing borders has not stopped anti-migrant sentiments from gaining ground.`\
-https://nytimes.com/2024/11/18/world/europe/europe-migration-shift.html
 
