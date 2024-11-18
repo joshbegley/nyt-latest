@@ -1,3 +1,7 @@
+**Glitz, Glamour and Trash-Talk at the ‘Ultimate Fantasy Competition’**\
+`A fantasy football championship featured YouTubers, comedians and athletes, with ESPN’s Stephen A. Smith as its guest of honor.`\
+https://nytimes.com/2024/11/18/style/prize-picks-world-championships.html
+
 **Lakers to add Pat Riley statue outside Crypto.com Arena**\
 `Riley will be the eighth Laker honored with a statue.`\
 https://nytimes.com/athletic/5930376/2024/11/18/lakers-pat-riley-statue/

@@ -1,3 +1,7 @@
+**Glitz, Glamour and Trash-Talk at the ‘Ultimate Fantasy Competition’**\
+`A fantasy football championship featured YouTubers, comedians and athletes, with ESPN’s Stephen A. Smith as its guest of honor.`\
+https://nytimes.com/2024/11/18/style/prize-picks-world-championships.html
+
 **Lakers to add Pat Riley statue outside Crypto.com Arena**\
 `Riley will be the eighth Laker honored with a statue.`\
 https://nytimes.com/athletic/5930376/2024/11/18/lakers-pat-riley-statue/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
 **College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/18/college-football-playoff-projections-odds/
-
-**Why Lindy Ruff put the standings in Sabres' locker room, Devon Levi sent down, injury updates and more**\
-`Ruff isn't one of those coaches who subscribes to the theory that players shouldn’t be worrying about the standings.`\
-https://nytimes.com/athletic/5930215/2024/11/18/sabres-lindy-ruff-standings-devon-levi/
 
