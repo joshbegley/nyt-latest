@@ -1,3 +1,7 @@
+**Oregon School Leaders on Leave After 2 Teachers Charged With Sex Abuse**\
+`The police said the St. Helens School District was informed of the abuse allegations as early as 2019 but officials failed to alert the authorities.`\
+https://nytimes.com/2024/11/17/us/oregon-teachers-arrested-sexual-abuse.html
+
 **Possibility of picking Paige Bueckers No. 1 crystalizes Dallas Wings' future**\
 `Bueckers can influence the Wings' coaching hire, marketing strategies and overall direction. `\
 https://nytimes.com/athletic/5928248/2024/11/17/dallas-wings-paige-bueckers-wnba-draft-lottery/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/theater/elf-review-broadway.html
 **Last-minute Geno Smith TD seals Seahawks' 20-17 win over 49ers: Takeaways**\
 `Seattle pulled even with San Francisco at 5-5 after scoring both of their touchdowns following Nick Bosa's early exit in the second half.`\
 https://nytimes.com/athletic/5927338/2024/11/17/49ers-seahawks-score-results-takeaways/
-
-**Rodrigue: As Rams eye another playoff chase, the little details could make or break them**\
-`A key block and a game-sealing interception helped the Rams win Sunday. Avoiding negative details will help them see how good they can be.`\
-https://nytimes.com/athletic/5927881/2024/11/17/rams-win-offense-run-game-stafford-patriots/
 
