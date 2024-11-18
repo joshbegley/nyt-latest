@@ -1,3 +1,7 @@
+**Gaetz May Not Be Confirmed, Trump Admits. He’s Pushing Him and Others Anyway.**\
+`The president-elect is taking a flood-the-zone approach to his cabinet nominations, betting that the Senate won’t dare to turn them all down.`\
+https://nytimes.com/2024/11/18/us/politics/trump-cabinet.html
+
 **Biden Asks Congress for Nearly $100 Billion in Disaster Aid**\
 `The president said the aid was “urgently needed” as emergency programs face funding shortfalls amid the devastation after Hurricanes Helene and Milton and a string of other natural disasters.`\
 https://nytimes.com/2024/11/18/us/politics/biden-disaster-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930549/2024/11/18/commanders-jayden-daniels-dan-qu
 **Trump Said He Plans to Use ‘Military Assets’ for Deportations**\
 `Also, Ukraine is poised to strike Russia with U.S. weapons. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/18/briefing/trump-deportation-plans-ukraine-russia-weapons.html
-
-**Trump Plans to Attend Musk’s SpaceX Launch on Tuesday**\
-`The president-elect’s decision to witness the liftoff is another example of his close ties to the world’s wealthiest entrepreneur.`\
-https://nytimes.com/2024/11/18/us/politics/trump-musk-spacex-launch-texas.html
 
