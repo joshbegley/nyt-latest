@@ -1,3 +1,7 @@
+**Sean Duffy, a Fox News stalwart, gets Trump’s nod for transportation secretary.**\
+`President-elect Donald J. Trump nominated the former representative from Wisconsin, who is married to a Fox News host, to oversee a sprawling agency that includes aviation, rail and transit.`\
+https://nytimes.com/live/2024/11/18/us/trump-news-live/sean-duffy-trump-transportation-dot
+
 **The Dollar Still Has Its Mojo. X, Not So Much.**\
 `Ruining a network is hard, but Elon Musk shows it’s possible.`\
 https://nytimes.com/2024/11/18/opinion/columnists/elon-musk-twitter-bluesky.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/us/politics/trump-cabinet.html
 **Biden Asks Congress for Nearly $100 Billion in Disaster Aid**\
 `The president said the aid was “urgently needed” as emergency programs face funding shortfalls amid the devastation after Hurricanes Helene and Milton and a string of other natural disasters.`\
 https://nytimes.com/2024/11/18/us/politics/biden-disaster-aid.html
-
-**Bruce Feldman's FAU coaching candidates: Who could replace Tom Herman?**\
-`The sense here is this job search will feature a bunch of assistant coaches looking for their first chance to run the show.`\
-https://nytimes.com/athletic/5930852/2024/11/18/fau-college-football-head-coach-candidates-job/
 
