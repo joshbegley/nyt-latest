@@ -1,3 +1,7 @@
+**'They’ve had our number': Ravens again unable to overcome themselves in loss to Steelers**\
+`Baltimore, which is now 1 1/2 games out of first place in the AFC North, has lost eight of its last nine to Mike Tomlin and Pittsburgh. `\
+https://nytimes.com/athletic/5928183/2024/11/17/ravens-loss-steelers-lamar-jackson/
+
 **Oregon School Leaders on Leave After 2 Teachers Charged With Sex Abuse**\
 `The police said the St. Helens School District was informed of the abuse allegations as early as 2019 but officials failed to alert the authorities.`\
 https://nytimes.com/2024/11/17/us/oregon-teachers-arrested-sexual-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928167/2024/11/17/raiders-loss-dolphins-offense-sc
 **Review: In ‘Elf’ on Broadway, Buddy Lands on the Very, Very Nice List**\
 `The musical, starring Grey Henson, has gotten Buddy delightfully, entirely right. But he is trapped inside a creaky adaptation.`\
 https://nytimes.com/2024/11/17/theater/elf-review-broadway.html
-
-**Last-minute Geno Smith TD seals Seahawks' 20-17 win over 49ers: Takeaways**\
-`Seattle pulled even with San Francisco at 5-5 after scoring both of their touchdowns following Nick Bosa's early exit in the second half.`\
-https://nytimes.com/athletic/5927338/2024/11/17/49ers-seahawks-score-results-takeaways/
 
