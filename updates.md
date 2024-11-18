@@ -1,3 +1,7 @@
+**Climate Talks Head Into the Final Stretch With Negotiators Far Apart**\
+`Senior ministers are arriving in an effort to break a deadlock over the summit’s main goal: funding to help lower-income countries hit hard by global warming.`\
+https://nytimes.com/2024/11/18/climate/cop29-climate-summit-final-stretch.html
+
 **Fantasy football Week 11 recap: Are more struggles ahead for some star RBs?**\
 `After some disappointing showings in Week 11, it could be time to worry about some top-tier RBs heading into the fantasy stretch run.`\
 https://nytimes.com/athletic/5929359/2024/11/18/fantasy-football-week-11-recap-the-future-could-be-grim-for-some-star-rbs/
