@@ -1,3 +1,7 @@
+**Elon Musk’s Political Influence**\
+`We explore will Musk’s agenda and ideology.`\
+https://nytimes.com/2024/11/18/briefing/elon-musk-donald-trump.html
+
 **The Pulse: Let's eliminate some NFL teams**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5928457/2024/11/18/bengals-chargers-burrow-herbert-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929014/2024/11/18/caleb-williams-thomas-brown-bear
 **Packers' Christian Watson flashes No. 1 receiver promise in breakout vs. Bears**\
 `Watson caught four passes for a career-high 150 yards in Sunday's 20-19 win over the Bears.`\
 https://nytimes.com/athletic/5928804/2024/11/18/packers-christian-watson-receiver-bears/
-
-**Trump Taps a Fierce Ally for Attorney General**\
-`The choice of Matt Gaetz shocked Washington and raised questions about whether the Senate would approve him.`\
-https://nytimes.com/2024/11/18/podcasts/the-daily/gaetz-attorney-general.html
 
