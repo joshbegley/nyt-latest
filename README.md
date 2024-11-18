@@ -1,3 +1,11 @@
+**A Mummified Saber-Toothed Kitten Emerges in Siberia**\
+`The Homotherium cub was preserved in Siberian permafrost with its dark fur and flesh intact.`\
+https://nytimes.com/2024/11/18/science/saber-tooth-cat-mummy-siberia.html
+
+**Saudis Joined a Pledge to Quit Fossil Fuels. Then, They Worked to Kill It.**\
+`Despite endorsing the declaration at last year’s U.N. climate summit, officials have tried to eliminate the same language in at least five U.N. forums, diplomats said.`\
+https://nytimes.com/2024/11/18/climate/saudi-arabia-obstruction-fossil-fuels.html
+
 **PWHL will play 'Takeover Tour' games in Seattle, Vancouver, St. Louis and more**\
 `The PWHL will play nine games at neutral sites, with each team playing at least two, in the league's second season.`\
 https://nytimes.com/athletic/5928720/2024/11/18/pwhl-takeover-tour-seattle-st-louis-vancouver/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5929215/2024/11/18/pelicans-yves-missi-center-rooki
 **FPL Gameweek 12 mailbag: Send in your questions for Holly Shand now**\
 `Submit your Fantasy Premier League questions for Holly Shand's Gameweek 12 mailbag now`\
 https://nytimes.com/athletic/5929379/2024/11/18/fantasy-premier-league-gameweek-12-mailbag-questions/
-
-**Why the NHL's salary cap could be about to skyrocket**\
-`NHL revenues were up last season by more than 20 percent from pre-pandemic levels. What does this mean for cap growth?`\
-https://nytimes.com/athletic/5928742/2024/11/18/nhl-salary-cap-revenue/
-
-**NFL Survivor: Submit your questions for our Week 12 survivor mailbag**\
-`Ask your NFL survivor pool questions here by Tuesday morning and we'll answer them in our weekly NFL Survivor column.`\
-https://nytimes.com/athletic/5929535/2024/11/18/nfl-survivor-pool-mailbag-submit-your-questions-for-nfl-week-12/
 
