@@ -1,3 +1,11 @@
+**Mining Company Whose C.E.O. Was Detained Agrees to Pay Mali $160 Million**\
+`Three executives of the Australian company Resolute Mining were arrested this month. Mali, a major African gold producer, has been trying to increase its share of mining profits lately.`\
+https://nytimes.com/2024/11/18/world/africa/mali-mining-detensions.html
+
+**What went wrong for Phil Longo at Wisconsin? Who could replace him?**\
+`On Sunday, Fickell fired Longo 23 games into his tenure as offensive coordinator at Wisconsin.`\
+https://nytimes.com/athletic/5930481/2024/11/18/phil-longo-fired-luke-fickell-wisconsin-football-offensive-coordinator/
+
 **Should the Giants trade Lamonte Wade, Jr.? The pros and cons**\
 `Wade has given the Giants good value when on the field but he could also be a top trade chip.`\
 https://nytimes.com/athletic/5930108/2024/11/18/sf-giants-lamonte-wade-jr-trade-possibilities/
