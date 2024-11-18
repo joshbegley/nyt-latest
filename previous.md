@@ -1,5 +1,5 @@
 **Man Is Accused of Killing 2 in Random Stabbings in Manhattan**\
-`The stabbings, which also left a third person critically injured, occurred across a broad swath of the borough over several hours on Monday morning.`\
+`A suspect was arrested Monday morning in connection with the stabbings, which occurred across a broad swath of the borough over several hours and left a third person critically injured.`\
 https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
 
 **College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\

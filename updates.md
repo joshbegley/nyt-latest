@@ -1,3 +1,7 @@
+**Man Is Accused of Killing 2 in Random Stabbings in Manhattan**\
+`A suspect was arrested Monday morning in connection with the stabbings, which occurred across a broad swath of the borough over several hours and left a third person critically injured.`\
+https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
+
 **College Football Playoff 2024 projections: Colorado favored to win Big 12, earn bye**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/18/college-football-playoff-projections-odds/
