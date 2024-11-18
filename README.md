@@ -1,3 +1,7 @@
+**Morgan Jenness, Whose Artistic Vision Influenced American Theater, Dies at 72**\
+`A beloved figure in the theatrical community, she redefined the role of dramaturg, influencing playwrights like David Adjmi and David Henry Hwang.`\
+https://nytimes.com/2024/11/18/theater/morgan-jenness-dead.html
+
 **Commanders coach: Rookie sensation Jayden Daniels 'is not injured'**\
 `In Washington's back-to-back losses, the first-year quarterback has just one touchdown pass and 23 rushing yards. `\
 https://nytimes.com/athletic/5930549/2024/11/18/commanders-jayden-daniels-dan-quinn-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5925629/2024/11/18/what-to-watch-nba-cavs-celtics-w
 **Pancreatic Cancer Surge May Be Less Worrisome Than It Seemed**\
 `A rise in the disease in younger people was not followed by an increase in deaths, a study found, and might be a sign of overdiagnosis.`\
 https://nytimes.com/2024/11/18/health/pancreatic-cancer-younger-people.html
-
-**‘Leonardo da Vinci’ Is a Humanizing Look Into a Great Mind**\
-`Beyond the appropriate awe, this two-part PBS documentary, co-directed by Ken Burns, adds human texture to the hagiography.`\
-https://nytimes.com/2024/11/18/arts/television/leonardo-da-vinci-pbs-ken-burns.html
 
