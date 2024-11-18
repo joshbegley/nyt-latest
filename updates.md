@@ -1,3 +1,7 @@
+**49ers' lack of knockout punch haunts them again vs. Seahawks: 'It's not like us'**\
+`After 10 games it's clear the 2024 49ers are lacking something, something that goes beyond their missing personnel.`\
+https://nytimes.com/athletic/5928521/2024/11/17/49ers-loss-seahawks-knockout-punch-lacking/
+
 **After redemptive win, Colts QB Anthony Richardson lets emotion flow: This was a 'blessing'**\
 `The last few weeks have been a roller coaster for Richardson. "Lord knows, (it's been) challenging ... but I stuck with it."`\
 https://nytimes.com/athletic/5928325/2024/11/17/anthony-richardson-colts-redemption-jets-win/
