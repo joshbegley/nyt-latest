@@ -1,3 +1,11 @@
+**I Tried to Teach My Son Soccer. Here’s What He Taught Me.**\
+`After decades reporting on soccer, three months helping to coach a team of children under age 7 came as a revelation.`\
+https://nytimes.com/2024/11/18/world/europe/rory-smith-soccer-coaching.html
+
+**Israeli Strikes in Beirut’s Center Shatter a Tenuous Sense of Security**\
+`The strikes, the first for weeks inside Lebanon’s capital, forced residents to come to grips with another escalation of violence.`\
+https://nytimes.com/2024/11/18/world/middleeast/beirut-strikes-hezbollah-israel.html
+
 **Bentancur banned for seven games with £100,000 fine for Son comments**\
 `Tottenham Hotspur midfielder Rodrigo Bentancur has been banned for seven matches by the Football Association (FA) and handed a £100,000 fine over comments he made about his team-mate Son Heung-min.`\
 https://nytimes.com/athletic/5929140/2024/11/18/rodrigo-bentancur-ban-son/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/podcasts/bidens-ukraine-trump.html
 **Record 146,000 N.Y.C. Public School Students Were Homeless Last Year**\
 `The figure topped 100,000 for a ninth straight year, state data shows, as the city dealt with a continuing housing crisis and an influx of migrants.`\
 https://nytimes.com/2024/11/18/nyregion/new-york-city-homeless-children.html
-
-**Reassessing AFC contenders: Bills the best? How dangerous are the Steelers? Sando’s Pick Six**\
-`Josh Allen and the Bills have won four consecutive regular-season games against the Chiefs, but they know that's not what matters.`\
-https://nytimes.com/athletic/5926220/2024/11/18/bills-chiefs-steelers-ravens-afc-playoffs/
-
-**The Connections Companion No. 527**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 19, 2024.`\
-https://nytimes.com/2024/11/18/crosswords/connections-companion-527.html
 
