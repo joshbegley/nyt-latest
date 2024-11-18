@@ -1,3 +1,11 @@
+**I Tried to Teach My Son Soccer. Here’s What He Taught Me.**\
+`After decades reporting on soccer, three months helping to coach a team of children under age 7 came as a revelation.`\
+https://nytimes.com/2024/11/18/world/europe/rory-smith-soccer-coaching.html
+
+**Israeli Strikes in Beirut’s Center Shatter a Tenuous Sense of Security**\
+`The strikes, the first for weeks inside Lebanon’s capital, forced residents to come to grips with another escalation of violence.`\
+https://nytimes.com/2024/11/18/world/middleeast/beirut-strikes-hezbollah-israel.html
+
 **Reassessing AFC contenders: Bills the best? How dangerous are the Steelers? Sando’s Pick Six**\
 `Josh Allen and the Bills have won four consecutive regular-season games against the Chiefs, but they know that's not what matters.`\
 https://nytimes.com/athletic/5926220/2024/11/18/bills-chiefs-steelers-ravens-afc-playoffs/
