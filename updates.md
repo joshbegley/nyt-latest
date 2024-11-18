@@ -1,3 +1,7 @@
+**Chargers survive Bengals with J.K. Dobbins' late TD in 34-27 win: Takeaways**\
+`The Chargers survived a second-half comeback attempt by the Bengals to escape with a win on "Sunday Night Football."`\
+https://nytimes.com/athletic/5928144/2024/11/18/bengals-chargers-score-result-takeaways/
+
 **Martin Odegaard's return: Rehab, subterfuge and what it means for Arsenal's title challenge**\
 `How the Arsenal and Norway captain fought his way back to fitness after September's ankle injury`\
 https://nytimes.com/athletic/5924423/2024/11/18/martin-odegaard-arsenal-return-from-injury/
