@@ -1,3 +1,11 @@
+**‘Dune: Prophecy’ Season 1 Premiere Recap: Sick Burn**\
+`The first installment of HBO’s “Dune” prequel series suggests there is a “burning truth” very few are capable of seeing. It may be too hot to handle.`\
+https://nytimes.com/2024/11/17/arts/television/dune-prophecy-recap-season-1-premiere.html
+
+**Bo Nix’s latest career day illustrates Broncos' ceiling: ‘You’re trying to win MVP'**\
+`The rookie QB was nearly perfect in a blowout of the Falcons as Denver is showing lately that it's a legitimate playoff contender.`\
+https://nytimes.com/athletic/5928280/2024/11/17/broncos-win-bo-nix-peformance-falcons/
+
 **'I'm just glad I'm on this side, man': Lions dismantle Jaguars for yet another blowout win**\
 `The Lions bulldozed a Jaguars team that was without starting quarterback Trevor Lawrence.`\
 https://nytimes.com/athletic/5928015/2024/11/17/lions-win-blowout-jaguars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5928187/2024/11/17/bears-packers-blocked-field-goal
 **Steelers announce themselves as contenders with vintage defensive performance vs. Ravens**\
 `Newcomer Patrick Queen joined the Steelers' stars to stymie Lamar Jackson yet again and prove they are no fluke atop the AFC North.`\
 https://nytimes.com/athletic/5928273/2024/11/17/steelers-ravens-defense-afc-north/
-
-**After a year-long wait, the Aaron Rodgers-led New York Jets are a hard watch**\
-`A slow start by the offense, a late collapse by the defense, and another befuddling loss in a season full of them.`\
-https://nytimes.com/athletic/5928103/2024/11/17/jets-colts-loss-defense-collapse-aaron-rodgers/
-
-**Cavs improve to 15-0, join elite NBA club with season-opening record**\
-`The Cavaliers are one of four NBA teams to begin the season with 15 consecutive wins or more. `\
-https://nytimes.com/athletic/5928118/2024/11/17/cleveland-cavaliers-undefeated-streak-feat/
 
