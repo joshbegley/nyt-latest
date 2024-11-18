@@ -1,3 +1,7 @@
+**Arsenal Women vs Bayern Munich moved to Meadow Park after clash with men's team**\
+`Arsenal Women’s Champions League game against Bayern Munich has been moved to Meadow Park to avoid an Emirates Stadium scheduling clash with the men’s team.`\
+https://nytimes.com/athletic/5904313/2024/11/18/arsenal-bayern-munich-emirates-date-when/
+
 **Nearly 100 Aid Trucks in Gaza Convoy Are Lost to Looters, U.N. Agency Says**\
 `UNRWA, the agency that helps Palestinians, said its drivers were forced to unload supplies at gunpoint, in what it called one of the worst such incidents of the war.`\
 https://nytimes.com/2024/11/18/world/middleeast/gaza-aid-convoy-looted-unrwa-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927709/2024/11/18/julius-randle-timberwolves-buzze
 **Is rookie Yves Missi the solution to the Pelicans' problem at center?**\
 `The 21st pick in this year's draft has been a bright spot in an otherwise depressing start for New Orleans.`\
 https://nytimes.com/athletic/5929215/2024/11/18/pelicans-yves-missi-center-rookie/
-
-**FPL Gameweek 12 mailbag: Send in your questions for Holly Shand now**\
-`Submit your Fantasy Premier League questions for Holly Shand's Gameweek 12 mailbag now`\
-https://nytimes.com/athletic/5929379/2024/11/18/fantasy-premier-league-gameweek-12-mailbag-questions/
 
