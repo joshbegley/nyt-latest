@@ -1,3 +1,11 @@
+**FPL Gameweek 12 mailbag: Send in your questions for Holly Shand now**\
+`Submit your Fantasy Premier League questions for Holly Shand's Gameweek 12 mailbag now`\
+https://nytimes.com/athletic/5929379/2024/11/18/fantasy-premier-league-gameweek-12-mailbag-questions/
+
+**Why the NHL's salary cap could be about to skyrocket**\
+`NHL revenues were up last season by more than 20 percent from pre-pandemic levels. What does this mean for cap growth?`\
+https://nytimes.com/athletic/5928742/2024/11/18/nhl-salary-cap-revenue/
+
 **NFL Survivor: Submit your questions for our Week 12 survivor mailbag**\
 `Ask your NFL survivor pool questions here by Tuesday morning and we'll answer them in our weekly NFL Survivor column.`\
 https://nytimes.com/athletic/5929535/2024/11/18/nfl-survivor-pool-mailbag-submit-your-questions-for-nfl-week-12/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/5047927/2024/11/18/f1-las-vegas-grand-prix-failure/
 **Kane statue unveiled after years in storage**\
 `A statue of England captain Harry Kane has been officially unveiled five years after it was commissioned by a London council.`\
 https://nytimes.com/athletic/5929382/2024/11/18/harry-kane-statue-unveiled-england/
-
-**Climate Talks Head Into the Final Stretch With Negotiators Far Apart**\
-`Senior ministers are arriving in an effort to break a deadlock over the summit’s main goal: funding to help lower-income countries hit hard by global warming.`\
-https://nytimes.com/2024/11/18/climate/cop29-climate-summit-final-stretch.html
-
-**Fantasy football Week 11 recap: Are more struggles ahead for some star RBs?**\
-`After some disappointing showings in Week 11, it could be time to worry about some top-tier RBs heading into the fantasy stretch run.`\
-https://nytimes.com/athletic/5929359/2024/11/18/fantasy-football-week-11-recap-the-future-could-be-grim-for-some-star-rbs/
-
-**The Daniel Jones era is over. Giants bench QB after frustrating 6-year run**\
-`Jones’ time is up in New York. His failures weren't all his fault, but his inability to overcome his circumstances led to his demise. `\
-https://nytimes.com/athletic/5917454/2024/11/18/daniel-jones-giants-bench-tommy-devito/
 
