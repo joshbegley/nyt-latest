@@ -1,3 +1,11 @@
+**Freed From Restraints, Ukraine Is Poised to Strike Into Russia**\
+`President Biden has granted permission for Kyiv to carry out long-range strikes, and his Ukrainian counterpart said the launches would come soon.`\
+https://nytimes.com/2024/11/18/world/europe/ukraine-russia-missiles.html
+
+**Thompson: 49ers' struggling offense is a big red flag for their Super Bowl hopes**\
+`Sunday's loss to the Seahawks was another offensive slog for a team that isn't looking very Super Bowl-hopeful so far this season.`\
+https://nytimes.com/athletic/5928612/2024/11/18/san-francisco-49ers-struggling-offense-seahawks/
+
 **Coffee, Juice, Shawarma: Tiny Traces of Normal Life in a Ruined Gaza**\
 `Most people in the enclave are struggling just to survive Israel’s assault on Hamas, and experts say famine is imminent. Yet a few pockets of ordinary life have bloomed in defiance of the war.`\
 https://nytimes.com/2024/11/18/world/middleeast/central-gaza-life-israel-war.html
