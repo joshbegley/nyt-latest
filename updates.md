@@ -1,3 +1,15 @@
+**Oregon School Leaders on Leave After 2 Teachers Charged With Sex Abuse**\
+`The police said the St. Helens School District was informed of the abuse allegations as early as 2019 but officials failed to alert the authorities.`\
+https://nytimes.com/2024/11/17/us/oregon-teachers-arrested-sexual-abuse.html
+
+**Possibility of picking Paige Bueckers No. 1 crystalizes Dallas Wings' future**\
+`Bueckers can influence the Wings' coaching hire, marketing strategies and overall direction. `\
+https://nytimes.com/athletic/5928248/2024/11/17/dallas-wings-paige-bueckers-wnba-draft-lottery/
+
+**Jerod Mayo, Patriots defense get schooled by Sean McVay, Rams in another loss**\
+`After a key early adjustment, the Rams offense dominated the Patriots on Sunday. And there was little the New England defense could do.`\
+https://nytimes.com/athletic/5928086/2024/11/17/patriots-loss-defense-decisions-rams/
+
 **Shouting Racial Slurs, Neo-Nazi Marchers Shock Ohio’s Capital**\
 `The group’s actions in Columbus on Saturday, part of a recent pattern of white supremacist incidents in the country, were condemned by officials around the state.`\
 https://nytimes.com/2024/11/17/us/neo-nazi-march-ohio.html
