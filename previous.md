@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5925721/2024/11/18/kareem-abdul-jabbar-the-basketba
 `The Cowboys will be without DaRon Bland (again) and Jourdan Lewis will sit this one out, too.`\
 https://nytimes.com/athletic/5927762/2024/11/18/cowboys-today-predictions-houston-texans/
 
+**The Jonathan David interview: Dreams of Barcelona, scoring against Real Madrid, and his next move**\
+`The Canadian star on his career so far and what will happen when his contract runs out in summer`\
+https://nytimes.com/athletic/5927384/2024/11/18/jonathan-david-interview-lille-canada-barcelona-real-madrid/
+
 **Weekend NHL rankings: Pondering the Avalanche, the Blues and where we all went so wrong**\
 `Over a month into the NHL season and with U.S. Thanksgiving approaching, Colorado will (likely) be fine but is the season over in St. Louis?`\
 https://nytimes.com/athletic/5927725/2024/11/18/nhl-rankings-predictions-blues-avalanche/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/briefing/elon-musk-donald-trump.html
 **The Pulse: Let's eliminate some NFL teams**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5928457/2024/11/18/bengals-chargers-burrow-herbert-the-pulse/
-
-**Van Dijk and De Jong out of Netherlands squad on "medical grounds"**\
-`Virgil van Dijk will return to Liverpool earlier than planned after leaving the Netherlands camp over the weekend.`\
-https://nytimes.com/athletic/5929183/2024/11/18/van-dijk-de-jong-netherlands-squad/
 

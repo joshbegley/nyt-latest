@@ -1,3 +1,7 @@
+**The Jonathan David interview: Dreams of Barcelona, scoring against Real Madrid, and his next move**\
+`The Canadian star on his career so far and what will happen when his contract runs out in summer`\
+https://nytimes.com/athletic/5927384/2024/11/18/jonathan-david-interview-lille-canada-barcelona-real-madrid/
+
 **Van Dijk and De Jong out of Netherlands squad on "medical grounds"**\
 `Virgil van Dijk will return to Liverpool earlier than planned after leaving the Netherlands camp over the weekend.`\
 https://nytimes.com/athletic/5929183/2024/11/18/van-dijk-de-jong-netherlands-squad/
