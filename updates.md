@@ -1,3 +1,11 @@
+**Trump Confirms Plans to Use the Military to Assist in Mass Deportations**\
+`Mr. Trump’s top immigration policy adviser has discussed using military assets to build detention centers and support civilian immigration agents.`\
+https://nytimes.com/2024/11/18/us/politics/trump-military-deportation.html
+
+**What Travelers Should Know About the Spirit Airlines Bankruptcy**\
+`Flights will still take off and travelers can keep booking tickets, the low-cost carrier said, as the company enters Chapter 11 bankruptcy.`\
+https://nytimes.com/2024/11/18/business/spirit-airlines-bankruptcy-flights.html
+
 **FAU fires coach Tom Herman after 5th straight loss**\
 `Herman was 6-16 in just under two seasons in Boca Raton.`\
 https://nytimes.com/athletic/5930152/2024/11/18/tom-herman-fired-fau/

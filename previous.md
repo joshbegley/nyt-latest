@@ -1,3 +1,11 @@
+**Trump Confirms Plans to Use the Military to Assist in Mass Deportations**\
+`Mr. Trump’s top immigration policy adviser has discussed using military assets to build detention centers and support civilian immigration agents.`\
+https://nytimes.com/2024/11/18/us/politics/trump-military-deportation.html
+
+**What Travelers Should Know About the Spirit Airlines Bankruptcy**\
+`Flights will still take off and travelers can keep booking tickets, the low-cost carrier said, as the company enters Chapter 11 bankruptcy.`\
+https://nytimes.com/2024/11/18/business/spirit-airlines-bankruptcy-flights.html
+
 **FAU fires coach Tom Herman after 5th straight loss**\
 `Herman was 6-16 in just under two seasons in Boca Raton.`\
 https://nytimes.com/athletic/5930152/2024/11/18/tom-herman-fired-fau/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5929596/2024/11/18/sudan-afcon-qualification-civil-
 **Yo-Yo Ma and Kathryn Stott Wrap Up a Partnership With Thanks**\
 `After 40 years of musical collaborations, this cellist and pianist have recorded their final album together, “Merci.”`\
 https://nytimes.com/2024/11/18/arts/music/yo-yo-ma-kathryn-stott.html
-
-**Submit your questions for Will Guillory's Pelicans mailbag**\
-`The New Orleans Pelicans are off to a rough start.`\
-https://nytimes.com/athletic/5930100/2024/11/18/pelicans-zion-williamson-mailbag-submission/
-
-**Martin O’Malley, Ex-Maryland Governor, Kicks Off Race to Lead D.N.C.**\
-`Mr. O’Malley, who ran for president in 2016, is the first candidate to announce a bid to lead the reeling Democratic Party as it faces two years of powerlessness in Washington.`\
-https://nytimes.com/2024/11/18/us/politics/martin-omalley-dnc-chair-race.html
 
