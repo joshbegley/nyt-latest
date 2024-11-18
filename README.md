@@ -1,3 +1,7 @@
+**Should the Giants trade Lamonte Wade, Jr.? The pros and cons**\
+`Wade has given the Giants good value when on the field but he could also be a top trade chip.`\
+https://nytimes.com/athletic/5930108/2024/11/18/sf-giants-lamonte-wade-jr-trade-possibilities/
+
 **Tuesday Briefing: Ukraine is Poised to Strike inside Russia**\
 `Plus, revelations from a kids’ soccer coach.`\
 https://nytimes.com/2024/11/18/briefing/ukraine-trump-deportation-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930258/2024/11/18/blackhawks-standings-schedule/
 **SpaceX Starship’s Sonic Boom Creates Risk of Structural Damage, Test Finds**\
 `An independent researcher found that noise recorded miles away from the site of a recent test flight was equal to standing 200 feet from a Boeing 747 during takeoff.`\
 https://nytimes.com/2024/11/18/us/politics/spacex-starship-sonic-boom-damage.html
-
-**How Elon Musk’s and Vivek Ramaswamy’s Government-Slashing Spree Could Backfire**\
-`If they’re not careful, they could make the government’s efficiency problems worse.`\
-https://nytimes.com/2024/11/18/opinion/elon-must-vivek-ramaswamy.html
 
