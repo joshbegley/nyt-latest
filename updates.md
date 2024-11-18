@@ -1,3 +1,7 @@
+**Josh Allen emerges as MVP favorite following signature play in win over Chiefs**\
+`More than 100 games in, teammate Dawson Knox said Josh Allen highlights don't get old.`\
+https://nytimes.com/athletic/5928738/2024/11/17/bills-win-josh-allen-chiefs/
+
 **How the Chiefs felt watching a different superstar QB beat them with a superstar play**\
 `Josh Allen's 26-yard TD run dealt the Chiefs their first loss since last Christmas. They allowed 30 points for the first time in 30 games.`\
 https://nytimes.com/athletic/5928663/2024/11/17/chiefs-loss-patrick-mahomes-bills/
