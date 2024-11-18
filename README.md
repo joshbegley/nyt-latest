@@ -1,3 +1,11 @@
+**Coffee, Juice, Shawarma: Tiny Traces of Normal Life in a Ruined Gaza**\
+`Most people in the enclave are struggling just to survive Israel’s assault on Hamas, and experts say famine is imminent. Yet a few pockets of ordinary life have bloomed in defiance of the war.`\
+https://nytimes.com/2024/11/18/world/middleeast/central-gaza-life-israel-war.html
+
+**Why the SEC could stuff the bracket: College Football Playoff Bubble Watch**\
+`Would Indiana make the field with a close loss to Ohio State? Is Boise State all but assured of being the Group of 5 rep? `\
+https://nytimes.com/athletic/5927593/2024/11/18/college-football-playoff-bubble-watch-sec-bracket/
+
 **Spirit Airlines Files for Bankruptcy**\
 `The low-fare carrier has struggled to find its footing after its planned merger with JetBlue was blocked by a federal judge.`\
 https://nytimes.com/2024/11/18/business/spirit-airlines-bankruptcy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/style/socks-fashion.html
 **Hungary Shows Us How a Second Trump Term Might Play Out**\
 `Autocrats have a playbook.`\
 https://nytimes.com/2024/11/18/opinion/trump-orban-autocracy-hungary.html
-
-**Rosenthal: Why Jays may not make sense for Juan Soto, the case for Alex Bregman and more MLB notes**\
-`Plus why Willy Adames' market should be strong and the type of high-profile free agents the Orioles could target.`\
-https://nytimes.com/athletic/5927788/2024/11/18/blue-jays-juan-soto-alex-bregman-free-agency/
-
-**Wildfires in New York City? Something Has Changed.**\
-`We are being reminded the hard way that we share this world. Smoke knows no boundaries, and neither does fire.`\
-https://nytimes.com/2024/11/18/opinion/wildfires-new-jersey-new-york-climate-change.html
 
