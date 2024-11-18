@@ -1,3 +1,15 @@
+**Lakers to add Pat Riley statue outside Crypto.com Arena**\
+`Riley will be the eighth Laker honored with a statue.`\
+https://nytimes.com/athletic/5930376/2024/11/18/lakers-pat-riley-statue/
+
+**Iowa quarterback shuffle continues as Cade McNamara to return from concussion**\
+`Injuries have left Iowa’s quarterback situation reeling this month.`\
+https://nytimes.com/athletic/5930407/2024/11/18/cade-mcnamara-iowa-quarterback-depth-chart/
+
+**The SEC championship conundrum: Should Playoff hopefuls want to avoid playing in Atlanta?**\
+`How much do the contenders want and need to make it to the SEC Championship Game?`\
+https://nytimes.com/athletic/5930077/2024/11/18/sec-championship-teams-college-football-playoff/
+
 **'Yeah, we need to win all 4 of them': Blackhawks feeling urgency with Thanksgiving approaching**\
 `The Blackhawks are tired of moral victories and want more real ones.`\
 https://nytimes.com/athletic/5930258/2024/11/18/blackhawks-standings-schedule/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5701128/2024/11/18/college-football-playoff-project
 **Why Lindy Ruff put the standings in Sabres' locker room, Devon Levi sent down, injury updates and more**\
 `Ruff isn't one of those coaches who subscribes to the theory that players shouldn’t be worrying about the standings.`\
 https://nytimes.com/athletic/5930215/2024/11/18/sabres-lindy-ruff-standings-devon-levi/
-
-**The Windup: Ichiro leads Baseball Hall of Fame ballot**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5930264/2024/11/18/ichiro-mlb-hall-of-fame-ballot-the-windup/
-
-**Holloway vows to exorcise Swindon's 'haunted' training ground**\
-`Football coaches are never short on offering mitigation when results turn against their team.`\
-https://nytimes.com/athletic/5930180/2024/11/18/ian-holloway-swindon-town-curse/
-
-**Submit your questions for Austin Meek’s Michigan Wolverines mailbag**\
-`What's on your mind about the Wolverines?`\
-https://nytimes.com/athletic/5930252/2024/11/18/michigan-wolverines-football-basketball-mailbag-questions/
 
