@@ -1,3 +1,11 @@
+**Astros announce change to ballpark naming rights**\
+`Minute Maid will continue to be a team partner through 2029.`\
+https://nytimes.com/athletic/5926389/2024/11/18/astros-ballpark-naming-rights-change/
+
+**Robert F. Kennedy Jr.’s Views on Vaccination ‘Dangerous,’ Says His Ambassador Cousin**\
+`“Others are just getting to know him,” Caroline Kennedy, the U.S. ambassador to Australia, said of her cousin, President-elect Donald J. Trump’s pick for health secretary.`\
+https://nytimes.com/2024/11/18/us/politics/caroline-kennedy-rfk-jr-vaccines.html
+
 **Arsenal Women vs Bayern Munich moved to Meadow Park after clash with men's team**\
 `Arsenal Women’s Champions League game against Bayern Munich has been moved to Meadow Park to avoid an Emirates Stadium scheduling clash with the men’s team.`\
 https://nytimes.com/athletic/5904313/2024/11/18/arsenal-bayern-munich-emirates-date-when/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5926632/2024/11/18/inside-the-nba-abc-espn-tnt-laws
 **Texas Education Board to Vote on Bible-Infused Lessons in Public Schools**\
 `A new curriculum would focus on Christianity more than other religions. A kindergarten lesson on the Golden Rule, for example, would teach about Jesus and his Sermon on the Mount.`\
 https://nytimes.com/2024/11/18/us/texas-bible-school-curriculum.html
-
-**Julius Randle has his first Minnesota moment in buzzer-beating game winner**\
-`Randle's heroics helped hide what was another underwhelming performance for much of the game.`\
-https://nytimes.com/athletic/5927709/2024/11/18/julius-randle-timberwolves-buzzer-beater/
-
-**Is rookie Yves Missi the solution to the Pelicans' problem at center?**\
-`The 21st pick in this year's draft has been a bright spot in an otherwise depressing start for New Orleans.`\
-https://nytimes.com/athletic/5929215/2024/11/18/pelicans-yves-missi-center-rookie/
 

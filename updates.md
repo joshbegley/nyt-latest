@@ -1,3 +1,11 @@
+**Astros announce change to ballpark naming rights**\
+`Minute Maid will continue to be a team partner through 2029.`\
+https://nytimes.com/athletic/5926389/2024/11/18/astros-ballpark-naming-rights-change/
+
+**Robert F. Kennedy Jr.’s Views on Vaccination ‘Dangerous,’ Says His Ambassador Cousin**\
+`“Others are just getting to know him,” Caroline Kennedy, the U.S. ambassador to Australia, said of her cousin, President-elect Donald J. Trump’s pick for health secretary.`\
+https://nytimes.com/2024/11/18/us/politics/caroline-kennedy-rfk-jr-vaccines.html
+
 **Saudi Arabia Is a ‘Wrecking Ball’ in Global Climate Talks.**\
 `Despite endorsing a transition away from fossil fuels last year, Saudi officials have since worked to undermine it in at least five U.N. forums, diplomats said.`\
 https://nytimes.com/2024/11/18/climate/saudi-arabia-obstruction-fossil-fuels.html
