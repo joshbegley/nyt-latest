@@ -1,3 +1,7 @@
+**Bills observations: Plan to shut down Travis Kelce worked, backup OL comes up big**\
+`The Bills defense changed their approach compared to previous meetings with the Chiefs.`\
+https://nytimes.com/athletic/5928864/2024/11/18/bills-chiefs-travis-kelce-defense/
+
 **‘The Sex Lives of College Girls,’ Plus 7 Things to Watch on TV this Week**\
 `Catch up with the group from Essex College, go behind the scenes of Ridley Scott’s new movie and get your Bravo fill.`\
 https://nytimes.com/2024/11/18/arts/television/the-sex-lives-of-college-girls-plus-7-things-to-watch-on-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921332/2024/11/18/arne-slot-liverpool-machine/
 **Fantasy football Week 11 takeaways: Jared Goff has best MVP case, Bo Nix has turned a corner and more**\
 `Among his Week 11 takes, Michael Salfino says that Jared Goff is the most deserving MVP candidate and Bo Nix is a now a true dual-threat QB.`\
 https://nytimes.com/athletic/5928575/2024/11/18/fantasy-football-week-11-takeaways-jared-goff-has-best-mvp-case-bo-nix-has-turned-a-corner-and-more/
-
-**Everton beat Liverpool in the derby again. But more importantly, they built a sense of potential**\
-`Brian Sorensen’s side have the defensive strength to survive in the WSL, but they need to start scoring if they want to avoid the mire`\
-https://nytimes.com/athletic/5927692/2024/11/18/everton-liverpool-derby-wsl/
 
