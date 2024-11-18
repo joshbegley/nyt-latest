@@ -30,11 +30,11 @@ https://nytimes.com/2024/11/18/podcasts/bidens-ukraine-trump.html
 `The figure topped 100,000 for a ninth straight year, state data shows, as the city dealt with a continuing housing crisis and an influx of migrants.`\
 https://nytimes.com/2024/11/18/nyregion/new-york-city-homeless-children.html
 
+**Reassessing AFC contenders: Bills the best? How dangerous are the Steelers? Sando’s Pick Six**\
+`Josh Allen and the Bills have won four consecutive regular-season games against the Chiefs, but they know that's not what matters.`\
+https://nytimes.com/athletic/5926220/2024/11/18/bills-chiefs-steelers-ravens-afc-playoffs/
+
 **The Connections Companion No. 527**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 19, 2024.`\
 https://nytimes.com/2024/11/18/crosswords/connections-companion-527.html
-
-**Josh Giddey disappointed with Bulls' slow start, says he must 'be a lot better'**\
-`"I’ve got to find ways to help us win games, and so does everybody else," Giddey said after the Bulls lost to the Houston Rockets on Sunday.`\
-https://nytimes.com/athletic/5928783/2024/11/18/josh-giddey-chicago-bulls-slow-start/
 

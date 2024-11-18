@@ -1,3 +1,7 @@
+**Reassessing AFC contenders: Bills the best? How dangerous are the Steelers? Sando’s Pick Six**\
+`Josh Allen and the Bills have won four consecutive regular-season games against the Chiefs, but they know that's not what matters.`\
+https://nytimes.com/athletic/5926220/2024/11/18/bills-chiefs-steelers-ravens-afc-playoffs/
+
 **Bentancur banned for seven games with £100,000 fine for Son comments**\
 `Tottenham Hotspur midfielder Rodrigo Bentancur has been banned for seven matches by the Football Association (FA) and handed a £100,000 fine over comments he made about his team-mate Son Heung-min.`\
 https://nytimes.com/athletic/5929140/2024/11/18/rodrigo-bentancur-ban-son/
