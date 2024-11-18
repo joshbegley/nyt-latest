@@ -1,3 +1,7 @@
+**What to watch this week in NBA: Undefeated Cavs, scorching Warriors and more Cup games**\
+`What to watch, and why, this week in the NBA as the NBA Cup resumes and includes a banger in Boston.`\
+https://nytimes.com/athletic/5925629/2024/11/18/what-to-watch-nba-cavs-celtics-warriors/
+
 **Pancreatic Cancer Surge May Be Less Worrisome Than It Seemed**\
 `A rise in the disease in younger people was not followed by an increase in deaths, a study found, and might be a sign of overdiagnosis.`\
 https://nytimes.com/2024/11/18/health/pancreatic-cancer-younger-people.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930108/2024/11/18/sf-giants-lamonte-wade-jr-trade-
 **Tuesday Briefing: Ukraine is Poised to Strike inside Russia**\
 `Plus, revelations from a kids’ soccer coach.`\
 https://nytimes.com/2024/11/18/briefing/ukraine-trump-deportation-gaza.html
-
-**How Tulsi Gabbard Became a Favorite of Russia’s State Media**\
-`President-elect Donald J. Trump’s pick to be the director of national intelligence has raised alarms among national security officials.`\
-https://nytimes.com/2024/11/18/us/politics/tulsi-gabbard-trump-russia.html
 
