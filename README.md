@@ -1,3 +1,7 @@
+**‘Leonardo da Vinci’ Is a Humanizing Look Into a Great Mind**\
+`Beyond the appropriate awe, this two-part PBS documentary, co-directed by Ken Burns, adds human texture to the hagiography.`\
+https://nytimes.com/2024/11/18/arts/television/leonardo-da-vinci-pbs-ken-burns.html
+
 **Wild reunite Kaprizov, Eriksson Ek, Boldy and tweak power play ahead of road trip**\
 `The line also had the second-highest goals per 60 minutes in the league last season. But how much will it hurt the rest of the lineup?`\
 https://nytimes.com/athletic/5930447/2024/11/18/wild-top-line-reunited/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/us/politics/tulsi-gabbard-trump-russia.html
 **Veteran Who Was Court Martialed Gets 4 Years in Prison for Jan. 6 Attack**\
 `Edward Richmond Jr., 41, of Geismar, La., a former U.S. Army soldier who had served time in the killing of an Iraqi citizen, was sentenced to 51 months for assaulting police officers during the 2021 Capitol riot.`\
 https://nytimes.com/2024/11/18/us/army-veteran-jan-6-sentencing.html
-
-**Glitz, Glamour and Trash-Talk at the ‘Ultimate Fantasy Competition’**\
-`A fantasy football championship featured YouTubers, comedians and athletes, with ESPN’s Stephen A. Smith as its guest of honor.`\
-https://nytimes.com/2024/11/18/style/prize-picks-world-championships.html
 
