@@ -1,3 +1,23 @@
+**Packers' Christian Watson flashes No. 1 receiver promise in breakout vs. Bears**\
+`Watson caught four passes for a career-high 150 yards in Sunday's 20-19 win over the Bears.`\
+https://nytimes.com/athletic/5928804/2024/11/18/packers-christian-watson-receiver-bears/
+
+**Trump Taps a Fierce Ally for Attorney General**\
+`The choice of Matt Gaetz shocked Washington and raised questions about whether the Senate would approve him.`\
+https://nytimes.com/2024/11/18/podcasts/the-daily/gaetz-attorney-general.html
+
+**Biden’s Big Shift on Ukraine, and Neo-Nazi Marchers Shock Ohio**\
+`Plus, the 50-yard field goal phenomenon.`\
+https://nytimes.com/2024/11/18/podcasts/bidens-ukraine-trump.html
+
+**Record 146,000 N.Y.C. Public School Students Were Homeless Last Year**\
+`The figure topped 100,000 for a ninth straight year, state data shows, as the city dealt with a continuing housing crisis and an influx of migrants.`\
+https://nytimes.com/2024/11/18/nyregion/new-york-city-homeless-children.html
+
+**The Connections Companion No. 527**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Nov. 19, 2024.`\
+https://nytimes.com/2024/11/18/crosswords/connections-companion-527.html
+
 **Josh Giddey disappointed with Bulls' slow start, says he must 'be a lot better'**\
 `"I’ve got to find ways to help us win games, and so does everybody else," Giddey said after the Bulls lost to the Houston Rockets on Sunday.`\
 https://nytimes.com/athletic/5928783/2024/11/18/josh-giddey-chicago-bulls-slow-start/
