@@ -1,3 +1,11 @@
+**Wild reunite Kaprizov, Eriksson Ek, Boldy and tweak power play ahead of road trip**\
+`The line also had the second-highest goals per 60 minutes in the league last season. But how much will it hurt the rest of the lineup?`\
+https://nytimes.com/athletic/5930447/2024/11/18/wild-top-line-reunited/
+
+**The Athletic's 2025 Baseball Hall of Fame reader survey: Vote for your picks**\
+`Who should be headed to the Hall? We decided to survey our readers to find out who you believe is worthy of enshrinement in Cooperstown.`\
+https://nytimes.com/athletic/5930557/2024/11/18/baseball-hall-reader-survey-2025/
+
 **Panthers' Bryce Young gets shot vs. Chiefs, Jonathon Brooks to make debut: 5 things**\
 `Young's confidence and aggressiveness were among the reasons Dave Canales kept the second-year QB in the starting role this week.`\
 https://nytimes.com/athletic/5930452/2024/11/18/carolina-panthers-bryce-young-starting-jonathon-brooks/
