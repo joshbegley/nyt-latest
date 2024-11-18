@@ -1,3 +1,7 @@
+**Pancreatic Cancer Surge May Be Less Worrisome Than It Seemed**\
+`A rise in the disease in younger people was not followed by an increase in deaths, a study found, and might be a sign of overdiagnosis.`\
+https://nytimes.com/2024/11/18/health/pancreatic-cancer-younger-people.html
+
 **‘Leonardo da Vinci’ Is a Humanizing Look Into a Great Mind**\
 `Beyond the appropriate awe, this two-part PBS documentary, co-directed by Ken Burns, adds human texture to the hagiography.`\
 https://nytimes.com/2024/11/18/arts/television/leonardo-da-vinci-pbs-ken-burns.html
