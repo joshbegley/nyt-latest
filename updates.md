@@ -1,3 +1,11 @@
+**FPL Gameweek 12 mailbag: Send in your questions for Holly Shand now**\
+`Submit your Fantasy Premier League questions for Holly Shand's Gameweek 12 mailbag now`\
+https://nytimes.com/athletic/5929379/2024/11/18/fantasy-premier-league-gameweek-12-mailbag-questions/
+
+**Why the NHL's salary cap could be about to skyrocket**\
+`NHL revenues were up last season by more than 20 percent from pre-pandemic levels. What does this mean for cap growth?`\
+https://nytimes.com/athletic/5928742/2024/11/18/nhl-salary-cap-revenue/
+
 **NFL Survivor: Submit your questions for our Week 12 survivor mailbag**\
 `Ask your NFL survivor pool questions here by Tuesday morning and we'll answer them in our weekly NFL Survivor column.`\
 https://nytimes.com/athletic/5929535/2024/11/18/nfl-survivor-pool-mailbag-submit-your-questions-for-nfl-week-12/
