@@ -1,3 +1,7 @@
+**FAU fires coach Tom Herman after 5th straight loss**\
+`Herman was 6-16 in just under two seasons in Boca Raton.`\
+https://nytimes.com/athletic/5930152/2024/11/18/tom-herman-fired-fau/
+
 **Aid Convoy Was Violently Looted in Gaza, UNWRA Chief Says**\
 `The UNWRA commissioner general said that Gaza has become an “impossible environment to operate” in after a convoy of aid trucks was looted at gun point.`\
 https://nytimes.com/video/world/middleeast/100000009831525/gaza-aid-convoy-looting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930100/2024/11/18/pelicans-zion-williamson-mailbag
 **Martin O’Malley, Ex-Maryland Governor, Kicks Off Race to Lead D.N.C.**\
 `Mr. O’Malley, who ran for president in 2016, is the first candidate to announce a bid to lead the reeling Democratic Party as it faces two years of powerlessness in Washington.`\
 https://nytimes.com/2024/11/18/us/politics/martin-omalley-dnc-chair-race.html
-
-**How Did Fans Dress for Tyler, the Creator’s L.A. Carnival?**\
-`Crowds filled Dodger Stadium for Camp Flog Gnaw, showing off their street style best.`\
-https://nytimes.com/2024/11/18/style/camp-flog-gnaw-2024-fashion.html
 
