@@ -1,3 +1,15 @@
+**A salute to Ichiro, CC Sabathia and the other 10 newcomers to the Baseball Hall of Fame ballot**\
+`The Hall announced this year’s baseball writers’ ballot, with 14 new names joining 14 holdovers. Here are their stories.`\
+https://nytimes.com/athletic/5923084/2024/11/18/baseball-hall-of-fame-2025-newcomers-ichiro/
+
+**WC Gift Of The Day**\
+`Our experts review thousands of gifts a year. This season, follow their countdown of 15 favorites.`\
+https://nytimes.com/issue/smarter-living/wirecutter/2024/11/18/wc-gift-of-the-day-2024
+
+**Five things to watch on the 2025 Baseball Hall of Fame ballot**\
+`Will Ichiro be the first position player unanimously elected? Can Billy Wagner close it out? How will a special class of first-timers fare?`\
+https://nytimes.com/athletic/5929077/2024/11/18/baseball-hall-of-fame-2025-ballot-storylines/
+
 **UMass fires coach Don Brown amid 2-8 season**\
 `Offensive coordinator Shane Montgomery will serve as the team's interim head coach.`\
 https://nytimes.com/athletic/5929902/2024/11/18/don-brown-fired-umass/
@@ -26,4 +38,3 @@ https://nytimes.com/2024/11/18/opinion/donald-trump-cabinet-appointments.html
 `Experts say the release of some political prisoners may be an attempt by Venezuela’s autocrat to send a signal to President-elect Trump.`\
 https://nytimes.com/2024/11/18/world/americas/venezuela-prisoner-release-maduro.html
 
-**Does Ghost-Hunting Gear Work? We Tested Some in a Haunted Place to Find Out. **\
