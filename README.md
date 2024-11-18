@@ -12,7 +12,7 @@ https://nytimes.com/2024/11/18/business/titanic-watch-auction.html
 
 **Sons Tell of a ‘Devastated’ Family at Rape Trial in France**\
 `The men appeared in court, addressing their father, who admits to having drugged their mother over years and inviting scores of men to rape her while she was unconscious.`\
-https://nytimes.com/2024/11/18/world/europe/sons-tell-of-a-devastated-family-at-rape-trial-in-france.html
+https://nytimes.com/2024/11/18/world/europe/gisele-pelicot-rape-trial-france.html
 
 **Astros owner: Bregman talks ongoing, team exploring backup plans**\
 `General manager Dana Brown and Scott Boras, Bregman’s agent, “have been visiting frequently,” Crane said.`\
