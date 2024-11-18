@@ -1,3 +1,7 @@
+**Tennis Briefing: Swiatek thrives with Poland, ATP Finals sets up Australian Open draw**\
+`The world No. 2 looks to end the season on a high in Malaga.`\
+https://nytimes.com/athletic/5927092/2024/11/18/iga-swiatek-finds-billie-jean-king-cup-joy-atp-tour-finals-sets-up-australian-open-draw/
+
 **Tanner Tessmann interview: Lyon, the Olympics - and three texts that changed everything**\
 `USMNT defender is reaping the rewards of moving to Lyon and now has the World Cup in his sights`\
 https://nytimes.com/athletic/5927712/2024/11/18/tanner-tessmann-usmnt-lyon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929183/2024/11/18/van-dijk-de-jong-netherlands-squ
 **I Tried to Teach My Son Soccer. Here’s What He Taught Me.**\
 `After decades reporting on soccer, three months helping to coach a team of children under age 7 came as a revelation.`\
 https://nytimes.com/2024/11/18/world/europe/rory-smith-soccer-coaching.html
-
-**Israeli Strikes in Beirut’s Center Shatter a Tenuous Sense of Security**\
-`The strikes, the first for weeks inside Lebanon’s capital, forced residents to come to grips with another escalation of violence.`\
-https://nytimes.com/2024/11/18/world/middleeast/beirut-strikes-hezbollah-israel.html
 
