@@ -1,3 +1,7 @@
+**Saudi Arabia Is a ‘Wrecking Ball’ in Global Climate Talks.**\
+`Despite endorsing a transition away from fossil fuels last year, Saudi officials have since worked to undermine it in at least five U.N. forums, diplomats said.`\
+https://nytimes.com/2024/11/18/climate/saudi-arabia-obstruction-fossil-fuels.html
+
 **Arsenal Women vs Bayern Munich moved to Meadow Park after clash with men's team**\
 `Arsenal Women’s Champions League game against Bayern Munich has been moved to Meadow Park to avoid an Emirates Stadium scheduling clash with the men’s team.`\
 https://nytimes.com/athletic/5904313/2024/11/18/arsenal-bayern-munich-emirates-date-when/
