@@ -1,3 +1,7 @@
+**Vikings top Titans, earn AFC South sweep, but they know they have bigger fish to fry**\
+`The Vikings beat the Titans on Sunday, but they know they'll have to play better to live up to their heightened expectations this season.`\
+https://nytimes.com/athletic/5928164/2024/11/17/vikings-win-titans-sam-darnold/
+
 **After delivering clutch Colts win Anthony Richardson lets emotion flow: 'A blessing bro'**\
 `The last few weeks have been a roller coaster for Richardson. "Lord knows, (it's been) challenging ... but I stuck with it."`\
 https://nytimes.com/athletic/5928325/2024/11/17/anthony-richardson-colts-redemption-jets-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/us/oregon-teachers-arrested-sexual-abuse.html
 **Possibility of picking Paige Bueckers No. 1 crystalizes Dallas Wings' future**\
 `Paige Bueckers can influence the Wings' coaching hire, marketing strategies and overall direction. `\
 https://nytimes.com/athletic/5928248/2024/11/17/dallas-wings-paige-bueckers-wnba-draft-lottery/
-
-**Shouting Racial Slurs, Neo-Nazi Marchers Shock Ohio’s Capital**\
-`The group’s actions in Columbus on Saturday, part of a recent pattern of white supremacist incidents in the country, were condemned by officials around the state.`\
-https://nytimes.com/2024/11/17/us/neo-nazi-march-ohio.html
 
