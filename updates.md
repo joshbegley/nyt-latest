@@ -1,3 +1,7 @@
+**Blowout loss to Saints reinforces that the Browns are just a broken team**\
+`It's hard to imagine anything but major restructuring of the folks in charge and multiple levels of the roster given how things have gone.`\
+https://nytimes.com/athletic/5928322/2024/11/17/browns-blowout-loss-saints/
+
 **‘Dune: Prophecy’ Season 1 Premiere Recap: Sick Burn**\
 `The first installment of HBO’s “Dune” prequel series suggests there is a “burning truth” very few are capable of seeing. It may be too hot to handle.`\
 https://nytimes.com/2024/11/17/arts/television/dune-prophecy-recap-season-1-premiere.html
