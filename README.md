@@ -1,3 +1,7 @@
+**How Tulsi Gabbard Became a Favorite of Russia’s State Media**\
+`President-elect Donald J. Trump’s pick to be the director of national intelligence has raised alarms among national security officials.`\
+https://nytimes.com/2024/11/18/us/politics/tulsi-gabbard-trump-russia.html
+
 **Veteran Who Killed Iraqi Civilian Gets 4 Years in Prison for Jan. 6 Attack**\
 `Edward Richmond Jr., 41, of Geismar, La., was sentenced to 51 months for assaulting police officers during the 2021 Capitol riot.`\
 https://nytimes.com/2024/11/18/us/army-veteran-jan-6-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/opinion/elon-must-vivek-ramaswamy.html
 **Bannon’s New York Trial on Fraud Charges Is Postponed Until February**\
 `The key adviser to Donald J. Trump is accused of cheating people who donated to build a border wall. Mr. Trump pardoned him when he faced similar federal charges in his first term.`\
 https://nytimes.com/2024/11/18/us/politics/bannon-fraud-trial-postponed-february.html
-
-**Man Is Accused of Killing 2 in Random Stabbings in Manhattan**\
-`A suspect was arrested Monday morning in connection with the stabbings, which occurred across a broad swath of the borough over several hours and left a third person critically injured.`\
-https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
 
