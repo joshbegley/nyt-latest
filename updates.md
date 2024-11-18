@@ -1,3 +1,7 @@
+**Josh Giddey disappointed with Bulls' slow start, says he must 'be a lot better'**\
+`"I’ve got to find ways to help us win games, and so does everybody else," Giddey said after the Bulls lost to the Houston Rockets on Sunday.`\
+https://nytimes.com/athletic/5928783/2024/11/18/josh-giddey-chicago-bulls-slow-start/
+
 **Freed From Restraints, Ukraine Is Poised to Strike Into Russia**\
 `President Biden has granted permission for Kyiv to carry out long-range strikes, and his Ukrainian counterpart said the launches would come soon.`\
 https://nytimes.com/2024/11/18/world/europe/ukraine-russia-missiles.html
