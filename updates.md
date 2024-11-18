@@ -1,3 +1,15 @@
+**‘Morning Joe’ Stars Reveal a Mar-a-Lago Reunion With Trump**\
+`The MSNBC hosts Mika Brzezinski and Joe Scarborough met with Donald Trump last week in Florida in an effort “to restart communications.”`\
+https://nytimes.com/2024/11/18/business/media/morning-joe-trump-mar-a-lago.html
+
+**Opponents Renew Attacks as Congestion Pricing Plan Returns**\
+`Gov. Kathy Hochul is letting the paused tolling program move forward in January. Her critics have jumped on the chance to object to the reversal.`\
+https://nytimes.com/2024/11/18/nyregion/congestion-pricing-vote-mta.html
+
+**How Did Fans Dress for Tyler, the Creator’s L.A. Carnival?**\
+`Crowds filled Dodger Stadium for Camp Flog Gnaw, showing off their street style best.`\
+https://nytimes.com/2024/11/18/style/camp-flog-gnaw-2024-fashion.html
+
 **Opponents Renew Attacks as Congestion Pricing Plan Returns**\
 `Gov. Kathy Hochul is letting the paused tolling program move forward in January. Her critics have jumped on the chance to criticize the reversal.`\
 https://nytimes.com/2024/11/18/nyregion/congestion-pricing-vote-mta.html

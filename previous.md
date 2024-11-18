@@ -1,5 +1,9 @@
+**‘Morning Joe’ Stars Reveal a Mar-a-Lago Reunion With Trump**\
+`The MSNBC hosts Mika Brzezinski and Joe Scarborough met with Donald Trump last week in Florida in an effort “to restart communications.”`\
+https://nytimes.com/2024/11/18/business/media/morning-joe-trump-mar-a-lago.html
+
 **Opponents Renew Attacks as Congestion Pricing Plan Returns**\
-`Gov. Kathy Hochul is letting the paused tolling program move forward in January. Her critics have jumped on the chance to criticize the reversal.`\
+`Gov. Kathy Hochul is letting the paused tolling program move forward in January. Her critics have jumped on the chance to object to the reversal.`\
 https://nytimes.com/2024/11/18/nyregion/congestion-pricing-vote-mta.html
 
 **Ichiro Suzuki, CC Sabathia headline the 2025 HOF ballot**\
@@ -24,7 +28,7 @@ https://nytimes.com/2024/11/18/us/politics/martin-omalley-dnc-chair-race.html
 
 **How Did Fans Dress for Tyler, the Creator’s L.A. Carnival?**\
 `Crowds filled Dodger Stadium for Camp Flog Gnaw, showing off their street style best.`\
-https://nytimes.com/2024/11/18/style/how-did-fans-dress-for-tyler-the-creators-la-carnival.html
+https://nytimes.com/2024/11/18/style/camp-flog-gnaw-2024-fashion.html
 
 **Normally 'automatic' kickers like Justin Tucker, Younghoe Koo are struggling in 2024**\
 `Here's a selection of names ranking Nos. 26-31: Jake Elliott, Younghoe Koo, Justin Tucker, Evan McPherson, Dustin Hopkins.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929559/2024/11/18/nfl-kicker-struggles-justin-tuck
 **Did School Battles Hurt Democrats in Liberal Strongholds?**\
 `Voters in the Virginia suburbs shifted toward Trump. Some said they were still frustrated by pandemic closures and fights over gender, race and testing in schools.`\
 https://nytimes.com/2024/11/18/us/schools-election-virginia-suburbs.html
-
-**Gold Watch, a Gift From Titanic Survivors, Sells for Nearly $2 Million**\
-`The gold watch was given to the captain of the Carpathia, the ship that responded to the Titanic’s distress call and rescued hundreds of people.`\
-https://nytimes.com/2024/11/18/business/titanic-watch-auction.html
 
