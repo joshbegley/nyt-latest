@@ -1,3 +1,15 @@
+**Lakers to add Pat Riley statue outside Crypto.com Arena**\
+`Riley will be the eighth Laker honored with a statue.`\
+https://nytimes.com/athletic/5930376/2024/11/18/lakers-pat-riley-statue/
+
+**Iowa quarterback shuffle continues as Cade McNamara to return from concussion**\
+`Injuries have left Iowa’s quarterback situation reeling this month.`\
+https://nytimes.com/athletic/5930407/2024/11/18/cade-mcnamara-iowa-quarterback-depth-chart/
+
+**The SEC championship conundrum: Should Playoff hopefuls want to avoid playing in Atlanta?**\
+`How much do the contenders want and need to make it to the SEC Championship Game?`\
+https://nytimes.com/athletic/5930077/2024/11/18/sec-championship-teams-college-football-playoff/
+
 **'Yeah, we need to win all 4 of them': Blackhawks feeling urgency with Thanksgiving approaching**\
 `The Blackhawks are tired of moral victories and want more real ones.`\
 https://nytimes.com/athletic/5930258/2024/11/18/blackhawks-standings-schedule/
