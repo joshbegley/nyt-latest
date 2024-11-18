@@ -1,3 +1,7 @@
+**Alan Jones, Former Australian Shock Jock, Charged With Sexual Abuse**\
+`The retired radio host, who was granted bail after being arrested, was accused of abusing eight victims over nearly 20 years.`\
+https://nytimes.com/2024/11/18/world/australia/alan-jones-sexual-abuse-charges.html
+
 **Emergency Declared as Smog Chokes Parts of India and Pakistan**\
 `The authorities in New Delhi closed schools and urged residents to stay home. Similar measures have been implemented in Punjab, Pakistan’s largest province.`\
 https://nytimes.com/2024/11/18/world/asia/smog-india-new-delhi-pakistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5924423/2024/11/18/martin-odegaard-arsenal-return-f
 **The Premier League Owners: Who has invested the most?**\
 `In part one of our series on who runs Premier League clubs, we examine who has invested the most in top-flight football...`\
 https://nytimes.com/athletic/5923137/2024/11/18/premier-league-investment-owner-ranking/
-
-**Tuchel's England inheritance: Bigger talent pool, No 10 dilemma - and a post-Kane future?**\
-`Lee Carsley has solved many - if not all - problems for his long-term successor when he begins in January`\
-https://nytimes.com/athletic/5923690/2024/11/18/thomas-tuchel-england-kane-decisions/
 

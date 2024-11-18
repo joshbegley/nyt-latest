@@ -1,3 +1,7 @@
+**Alan Jones, Former Australian Shock Jock, Charged With Sexual Abuse**\
+`The retired radio host, who was granted bail after being arrested, was accused of abusing eight victims over nearly 20 years.`\
+https://nytimes.com/2024/11/18/world/australia/alan-jones-sexual-abuse-charges.html
+
 **Emergency Declared as Smog Chokes Parts of India and Pakistan**\
 `The authorities in New Delhi closed schools and urged residents to stay home. Similar measures have been implemented in Punjab, Pakistan’s largest province.`\
 https://nytimes.com/2024/11/18/world/asia/smog-india-new-delhi-pakistan.html
