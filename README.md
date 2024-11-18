@@ -1,3 +1,7 @@
+**'Yeah, we need to win all 4 of them': Blackhawks feeling urgency with Thanksgiving approaching**\
+`The Blackhawks are tired of moral victories and want more real ones.`\
+https://nytimes.com/athletic/5930258/2024/11/18/blackhawks-standings-schedule/
+
 **SpaceX Starship’s Sonic Boom Creates Risk of Structural Damage, Test Finds**\
 `An independent researcher found that noise recorded miles away from the site of a recent test flight was equal to standing 200 feet from a Boeing 747 during takeoff.`\
 https://nytimes.com/2024/11/18/us/politics/spacex-starship-sonic-boom-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930180/2024/11/18/ian-holloway-swindon-town-curse/
 **Submit your questions for Austin Meek’s Michigan Wolverines mailbag**\
 `What's on your mind about the Wolverines?`\
 https://nytimes.com/athletic/5930252/2024/11/18/michigan-wolverines-football-basketball-mailbag-questions/
-
-**Re-signing Necas, dealing with Andersen's latest injury and more: Catching up with Hurricanes GM Eric Tulsky**\
-`The first-year Carolina general manager had to deal with much drama in the offseason, but his club has come out of it still a contender.`\
-https://nytimes.com/athletic/5929974/2024/11/18/hurricanes-necas-andersen-tulsky/
 
