@@ -1,3 +1,7 @@
+**Beyoncé to perform halftime show at Ravens-Texans on Christmas**\
+`Beyoncé will perform songs from her Cowboy Carter album during the halftime show on Netflix.`\
+https://nytimes.com/athletic/5928797/2024/11/17/beyonce-nfl-christmas-day-netflix-ravens-texans/
+
 **Josh Allen emerges as MVP favorite following signature play in win over Chiefs**\
 `More than 100 games in, teammate Dawson Knox said Josh Allen highlights don't get old.`\
 https://nytimes.com/athletic/5928738/2024/11/17/bills-win-josh-allen-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928461/2024/11/17/falcons-blowout-loss-broncos-pla
 **49ers' lack of knockout punch haunts them again vs. Seahawks: 'It's not like us'**\
 `After 10 games it's clear the 2024 49ers are lacking something, something that goes beyond their missing personnel.`\
 https://nytimes.com/athletic/5928521/2024/11/17/49ers-loss-seahawks-knockout-punch-lacking/
-
-**Vikings top Titans, earn AFC South sweep, but they know they have bigger fish to fry**\
-`The Vikings beat the Titans on Sunday, but they know they'll have to play better to live up to their heightened expectations this season.`\
-https://nytimes.com/athletic/5928164/2024/11/17/vikings-win-titans-sam-darnold/
 
