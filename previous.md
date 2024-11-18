@@ -1,3 +1,7 @@
+**Steelers announce themselves as contenders with vintage defensive performance vs. Ravens**\
+`Newcomer Patrick Queen joined the Steelers' stars to stymie Lamar Jackson yet again and prove they are no fluke atop the AFC North.`\
+https://nytimes.com/athletic/5928273/2024/11/17/steelers-ravens-defense-afc-north/
+
 **After a year-long wait, the Aaron Rodgers-led New York Jets are a hard watch**\
 `A slow start by the offense, a late collapse by the defense, and another befuddling loss in a season full of them.`\
 https://nytimes.com/athletic/5928103/2024/11/17/jets-colts-loss-defense-collapse-aaron-rodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/17/technology/fcc-nominee-brendan-carr-trump.html
 **Jerod Mayo, Patriots defense get schooled by Sean McVay, Rams in another loss**\
 `After a key early adjustment, the Rams offense dominated the Patriots on Sunday. And there was little the New England defense could do.`\
 https://nytimes.com/athletic/5928086/2024/11/17/patriots-loss-defense-decisions-rams/
-
-**Can't blame Caleb Williams for the Bears' loss to the Packers**\
-`Thomas Brown's first game as Bears offensive coordinator can be considered a success, but that won't make fans feel better about this loss.`\
-https://nytimes.com/athletic/5928105/2024/11/17/bears-packers-caleb-williams-thomas-brown/
 

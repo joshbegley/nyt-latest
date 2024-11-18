@@ -1,3 +1,7 @@
+**Steelers announce themselves as contenders with vintage defensive performance vs. Ravens**\
+`Newcomer Patrick Queen joined the Steelers' stars to stymie Lamar Jackson yet again and prove they are no fluke atop the AFC North.`\
+https://nytimes.com/athletic/5928273/2024/11/17/steelers-ravens-defense-afc-north/
+
 **Possibility of picking Paige Bueckers No. 1 crystalizes Dallas Wings' future**\
 `Paige Bueckers can influence the Wings' coaching hire, marketing strategies and overall direction. `\
 https://nytimes.com/athletic/5928248/2024/11/17/dallas-wings-paige-bueckers-wnba-draft-lottery/
