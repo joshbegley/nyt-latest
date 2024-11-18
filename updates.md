@@ -1,3 +1,15 @@
+**After a year-long wait, the Aaron Rodgers-led New York Jets are a hard watch**\
+`A slow start by the offense, a late collapse by the defense, and another befuddling loss in a season full of them.`\
+https://nytimes.com/athletic/5928103/2024/11/17/jets-colts-loss-defense-collapse-aaron-rodgers/
+
+**Cavs improve to 15-0, join elite NBA club with season-opening record**\
+`The Cavaliers are one of four NBA teams to begin the season with 15 consecutive wins or more. `\
+https://nytimes.com/athletic/5928118/2024/11/17/cleveland-cavaliers-undefeated-streak-feat/
+
+**'They’ve had our number': Ravens again unable to overcome themselves in loss to Steelers**\
+`Baltimore, which is now 1 1/2 games out of first place in the AFC North, has lost eight of its last nine to Mike Tomlin and Pittsburgh. `\
+https://nytimes.com/athletic/5928183/2024/11/17/ravens-loss-steelers-lamar-jackson/
+
 **Oregon School Leaders on Leave After 2 Teachers Charged With Sex Abuse**\
 `The police said the St. Helens School District was informed of the abuse allegations as early as 2019 but officials failed to alert the authorities.`\
 https://nytimes.com/2024/11/17/us/oregon-teachers-arrested-sexual-abuse.html
