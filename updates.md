@@ -1,3 +1,7 @@
+**UMass fires coach Don Brown amid 2-8 season**\
+`Offensive coordinator Shane Montgomery will serve as the team's interim head coach.`\
+https://nytimes.com/athletic/5929902/2024/11/18/don-brown-fired-umass/
+
 **How Ohio State's adjustments vs. Northwestern can help vs. Indiana: Film study**\
 `What did we see from Ohio State's win over Northwestern that the Buckeyes can use this week against Indiana?`\
 https://nytimes.com/athletic/5929561/2024/11/18/ohio-state-northwestern-film-analysis-indiana/
