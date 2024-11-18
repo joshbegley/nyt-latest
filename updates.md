@@ -1,3 +1,7 @@
+**Giants benching QB Daniel Jones, Tommy DeVito taking over as starter**\
+`Jones finished the Week 10 loss to Carolina with 190 passing yards and two interceptions, along with 26 rushing yards and one TD.`\
+https://nytimes.com/athletic/5915357/2024/11/18/giants-bench-daniel-jones/
+
 **Why Newcastle having three England starters really matters**\
 `An 37-year international first was worth celebrating on Sunday - it's proof of Newcastle's development`\
 https://nytimes.com/athletic/5929230/2024/11/18/newcastle-england-livramento-gordon-hall/
