@@ -1,3 +1,7 @@
+**How Geno Smith and the Seahawks saved their season: ‘He gets that look in his eyes’**\
+`In one fell swoop, Smith snapped the Seahawks' six-game skid against the 49ers and gave Seattle control of its playoff fate.`\
+https://nytimes.com/athletic/5928563/2024/11/17/seahawks-win-geno-smith-drive-49ers/
+
 **Blowout loss to Saints reinforces that the Browns are just a broken team**\
 `It's hard to imagine anything but major restructuring of the folks in charge and multiple levels of the roster given how things have gone.`\
 https://nytimes.com/athletic/5928322/2024/11/17/browns-blowout-loss-saints/
