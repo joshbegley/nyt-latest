@@ -1,3 +1,11 @@
+**Julius Randle has his first Minnesota moment in buzzer-beating game winner**\
+`Randle's heroics helped hide what was another underwhelming performance for much of the game.`\
+https://nytimes.com/athletic/5927709/2024/11/18/julius-randle-timberwolves-buzzer-beater/
+
+**Is rookie Yves Missi the solution to the Pelicans' problem at center?**\
+`The 21st pick in this year's draft has been a bright spot in an otherwise depressing start for New Orleans.`\
+https://nytimes.com/athletic/5929215/2024/11/18/pelicans-yves-missi-center-rookie/
+
 **FPL Gameweek 12 mailbag: Send in your questions for Holly Shand now**\
 `Submit your Fantasy Premier League questions for Holly Shand's Gameweek 12 mailbag now`\
 https://nytimes.com/athletic/5929379/2024/11/18/fantasy-premier-league-gameweek-12-mailbag-questions/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5929000/2024/11/18/canadiens-christian-dvorak-kirby
 **With landmark 'Inside the NBA' trade, ESPN and boss Jimmy Pitaro win big**\
 `ESPN chairman Jimmy Pitaro's playbook has been to fortify from the outside. That hit a new level this weekend in his "Inside the NBA" trade.`\
 https://nytimes.com/athletic/5928432/2024/11/18/inside-the-nba-espn-jimmy-pitaro-trade/
-
-**F1's second Las Vegas bet is paying off. The first, 43 years ago, was a 'lesson learned'**\
-`Las Vegas' original F1 race, the Caesars Palace Grand Prix, met a swift and probably inevitable end. `\
-https://nytimes.com/athletic/5047927/2024/11/18/f1-las-vegas-grand-prix-failure/
-
-**Kane statue unveiled after years in storage**\
-`A statue of England captain Harry Kane has been officially unveiled five years after it was commissioned by a London council.`\
-https://nytimes.com/athletic/5929382/2024/11/18/harry-kane-statue-unveiled-england/
 
