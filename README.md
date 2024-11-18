@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Pondering the Avalanche, the Blues and where we all went so wrong**\
+`Over a month into the NHL season and with U.S. Thanksgiving approaching, Colorado will (likely) be fine but is the season over in St. Louis?`\
+https://nytimes.com/athletic/5927725/2024/11/18/nhl-rankings-predictions-blues-avalanche/
+
 **Elon Musk’s Political Influence**\
 `We explore Musk’s agenda and ideology.`\
 https://nytimes.com/2024/11/18/briefing/elon-musk-donald-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929028/2024/11/18/mike-macdonald-ryan-grubb-seahaw
 **Yes, the Bears lost, but not all was lost for Caleb Williams and Thomas Brown**\
 `There was a notable shift in the Bears' offense without Shane Waldron, both in the schematic approach and in the results.`\
 https://nytimes.com/athletic/5929014/2024/11/18/caleb-williams-thomas-brown-bears-packers/
-
-**Packers' Christian Watson flashes No. 1 receiver promise in breakout vs. Bears**\
-`Watson caught four passes for a career-high 150 yards in Sunday's 20-19 win over the Bears.`\
-https://nytimes.com/athletic/5928804/2024/11/18/packers-christian-watson-receiver-bears/
 
