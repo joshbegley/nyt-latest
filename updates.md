@@ -1,3 +1,7 @@
+**Bills observations: Plan to shut down Travis Kelce worked, backup OL comes up big**\
+`The Bills defense changed their approach compared to previous meetings with the Chiefs.`\
+https://nytimes.com/athletic/5928864/2024/11/18/bills-chiefs-travis-kelce-defense/
+
 **‘The Sex Lives of College Girls,’ Plus 7 Things to Watch on TV this Week**\
 `Catch up with the group from Essex College, go behind the scenes of Ridley Scott’s new movie and get your Bravo fill.`\
 https://nytimes.com/2024/11/18/arts/television/the-sex-lives-of-college-girls-plus-7-things-to-watch-on-tv-this-week.html
