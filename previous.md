@@ -1,3 +1,7 @@
+**After delivering clutch Colts win Anthony Richardson lets emotion flow: 'A blessing bro'**\
+`The last few weeks have been a roller coaster for Richardson. "Lord knows, (it's been) challenging ... but I stuck with it."`\
+https://nytimes.com/athletic/5928325/2024/11/17/anthony-richardson-colts-redemption-jets-win/
+
 **James Harden passes Ray Allen for second on NBA's all-time made 3s list**\
 `In passing Allen, Harden only trails Steph Curry for the most made 3s in a career.`\
 https://nytimes.com/athletic/5925723/2024/11/17/james-harden-nba-threes-all-time-ray-allen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928248/2024/11/17/dallas-wings-paige-bueckers-wnba
 **Shouting Racial Slurs, Neo-Nazi Marchers Shock Ohio’s Capital**\
 `The group’s actions in Columbus on Saturday, part of a recent pattern of white supremacist incidents in the country, were condemned by officials around the state.`\
 https://nytimes.com/2024/11/17/us/neo-nazi-march-ohio.html
-
-**Bills hand Chiefs first loss of 2024 with 30-21 win in Buffalo: Takeaways**\
-`Kansas City still holds the best record in the AFC, but the Bills now own the potential tiebreaker. `\
-https://nytimes.com/athletic/5927342/2024/11/17/chiefs-bills-score-results-takeaways/
 
