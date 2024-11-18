@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5928086/2024/11/17/jerod-mayo-patriots-defense-rams
 https://nytimes.com/athletic/5928105/2024/11/17/bears-packers-caleb-williams-thomas-brown/
 
 **Raiders' baby steps with new offensive staff aren't enough in sixth straight loss**\
-`Brock Bowers set a rookie NFL single-game record with his 13 catches but the Raiders suffered another dispiriting loss. `\
+`Brock Bowers set a rookie NFL single-game record with his 13 catches, but the Raiders suffered another dispiriting loss. `\
 https://nytimes.com/athletic/5928167/2024/11/17/raiders-loss-dolphins-offense-scott-norv-turner/
 
 **Review: In ‘Elf’ on Broadway, Buddy Lands on the Very, Very Nice List**\
