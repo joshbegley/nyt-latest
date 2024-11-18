@@ -1,3 +1,11 @@
+**Aid Convoy Was Violently Looted in Gaza, UNWRA Chief Says**\
+`The UNWRA commissioner general said that Gaza has become an “impossible environment to operate” in after a convoy of aid trucks was looted at gun point.`\
+https://nytimes.com/video/world/middleeast/100000009831525/gaza-aid-convoy-looting.html
+
+**UConn replaces Alabama at No. 2 in AP Top 25 after Purdue's big win**\
+`No. 6 Purdue joins No. 9 Kentucky in vaulting from the teens into the top 10 in this week's AP poll.`\
+https://nytimes.com/athletic/5930008/2024/11/18/ap-basketball-rankings-top-25-uconn-purdue/
+
 **‘Morning Joe’ Stars Reveal a Mar-a-Lago Reunion With Trump**\
 `The MSNBC hosts Mika Brzezinski and Joe Scarborough met with Donald Trump last week in Florida in an effort “to restart communications.”`\
 https://nytimes.com/2024/11/18/business/media/morning-joe-trump-mar-a-lago.html
