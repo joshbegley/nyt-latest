@@ -1,3 +1,11 @@
+**'I'm just glad I'm on this side, man': Lions dismantle Jaguars for yet another blowout win**\
+`The Lions bulldozed a Jaguars team that was without starting quarterback Trevor Lawrence.`\
+https://nytimes.com/athletic/5928015/2024/11/17/lions-win-blowout-jaguars/
+
+**Falcons' very bad day in Denver puts their playoff prospects in question**\
+`The Falcons have lost two in a row and must find some answers during their bye week, especially on defense.`\
+https://nytimes.com/athletic/5928461/2024/11/17/falcons-blowout-loss-broncos-playoff-picture/
+
 **49ers' lack of knockout punch haunts them again vs. Seahawks: 'It's not like us'**\
 `After 10 games it's clear the 2024 49ers are lacking something, something that goes beyond their missing personnel.`\
 https://nytimes.com/athletic/5928521/2024/11/17/49ers-loss-seahawks-knockout-punch-lacking/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5928103/2024/11/17/jets-colts-loss-defense-collapse
 **Cavs improve to 15-0, join elite NBA club with season-opening record**\
 `The Cavaliers are one of four NBA teams to begin the season with 15 consecutive wins or more. `\
 https://nytimes.com/athletic/5928118/2024/11/17/cleveland-cavaliers-undefeated-streak-feat/
-
-**'They’ve had our number': Ravens again unable to overcome themselves in loss to Steelers**\
-`Baltimore, which is now 1 1/2 games out of first place in the AFC North, has lost eight of its last nine to Mike Tomlin and Pittsburgh. `\
-https://nytimes.com/athletic/5928183/2024/11/17/ravens-loss-steelers-lamar-jackson/
-
-**Oregon School Leaders on Leave After 2 Teachers Charged With Sex Abuse**\
-`The police said the St. Helens School District was informed of the abuse allegations as early as 2019 but officials failed to alert the authorities.`\
-https://nytimes.com/2024/11/17/us/oregon-teachers-arrested-sexual-abuse.html
 
