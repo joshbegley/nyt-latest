@@ -32,7 +32,7 @@ https://nytimes.com/2024/11/18/crosswords/wordle-review-1248.html
 
 **Why Newcastle having three England starters really matters**\
 `An 37-year international first was worth celebrating on Sunday - it's proof of Newcastle's development`\
-https://nytimes.com/athletic/5929230/2024/11/18/newcaste-england-livramento-gordon-hall/
+https://nytimes.com/athletic/5929230/2024/11/18/newcastle-england-livramento-gordon-hall/
 
 **Without Nikola Jokić, the Nuggets have looked alarmingly helpless**\
 `The three-time MVP has missed the past two games for personal reasons. Denver can't get Jamal Murray or much else going without him.`\

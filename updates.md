@@ -1,3 +1,7 @@
+**Why Newcastle having three England starters really matters**\
+`An 37-year international first was worth celebrating on Sunday - it's proof of Newcastle's development`\
+https://nytimes.com/athletic/5929230/2024/11/18/newcastle-england-livramento-gordon-hall/
+
 **Rodrigo Bentancur's seven-game ban explained: What the Spurs player did and what he'll miss**\
 `Tottenham midfielder Rodrigo Bentancur has been given a seven-game ban for a comment made about Son Heung-min - here is the background`\
 https://nytimes.com/athletic/5906726/2024/11/18/bentancur-explainer-spurs-son/
