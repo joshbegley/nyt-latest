@@ -1,3 +1,19 @@
+**Bentancur banned for seven games with £100,000 fine for Son comments**\
+`Tottenham Hotspur midfielder Rodrigo Bentancur has been banned for seven matches by the Football Association (FA) and handed a £100,000 fine over comments he made about his team-mate Son Heung-Min.`\
+https://nytimes.com/athletic/5929140/2024/11/18/rodrigo-bentancur-ban-son/
+
+**USWNT's Mewis and Australia Kerr expecting first child**\
+`The USWNT&#8217;s Kristie Mewis and Australia captain Sam Kerr have announced they are expecting a baby next year.`\
+https://nytimes.com/athletic/5929097/2024/11/18/kristie-mewis-sam-kerr-pregnancy/
+
+**Is Seahawks' offensive shift a sign of Mike Macdonald asserting himself?**\
+`After a tumultuous bye week, the Seahawks made several changes in what became a signature victory for Macdonald over the 49ers.`\
+https://nytimes.com/athletic/5929028/2024/11/18/mike-macdonald-ryan-grubb-seahawks/
+
+**Yes, the Bears lost, but not all was lost for Caleb Williams and Thomas Brown**\
+`There was a notable shift in the Bears' offense without Shane Waldron, both in the schematic approach and in the results.`\
+https://nytimes.com/athletic/5929014/2024/11/18/caleb-williams-thomas-brown-bears-packers/
+
 **Packers' Christian Watson flashes No. 1 receiver promise in breakout vs. Bears**\
 `Watson caught four passes for a career-high 150 yards in Sunday's 20-19 win over the Bears.`\
 https://nytimes.com/athletic/5928804/2024/11/18/packers-christian-watson-receiver-bears/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/18/crosswords/connections-companion-527.html
 **Josh Giddey disappointed with Bulls' slow start, says he must 'be a lot better'**\
 `"I’ve got to find ways to help us win games, and so does everybody else," Giddey said after the Bulls lost to the Houston Rockets on Sunday.`\
 https://nytimes.com/athletic/5928783/2024/11/18/josh-giddey-chicago-bulls-slow-start/
-
-**Freed From Restraints, Ukraine Is Poised to Strike Into Russia**\
-`President Biden has granted permission for Kyiv to carry out long-range strikes, and his Ukrainian counterpart said the launches would come soon.`\
-https://nytimes.com/2024/11/18/world/europe/ukraine-russia-missiles.html
-
-**Thompson: 49ers' struggling offense is a big red flag for their Super Bowl hopes**\
-`Sunday's loss to the Seahawks was another offensive slog for a team that isn't looking very Super Bowl-hopeful so far this season.`\
-https://nytimes.com/athletic/5928612/2024/11/18/san-francisco-49ers-struggling-offense-seahawks/
-
-**Coffee, Juice, Shawarma: Tiny Traces of Normal Life in a Ruined Gaza**\
-`Most people in the enclave are struggling just to survive Israel’s assault on Hamas, and experts say famine is imminent. Yet a few pockets of ordinary life have bloomed in defiance of the war.`\
-https://nytimes.com/2024/11/18/world/middleeast/central-gaza-life-israel-war.html
-
-**Why the SEC could stuff the bracket: College Football Playoff Bubble Watch**\
-`Would Indiana make the field with a close loss to Ohio State? Is Boise State all but assured of being the Group of 5 rep? `\
-https://nytimes.com/athletic/5927593/2024/11/18/college-football-playoff-bubble-watch-sec-bracket/
 
