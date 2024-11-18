@@ -1,3 +1,7 @@
+**Mining Company Whose C.E.O. Was Detained Agrees to Pay Mali $160 Million**\
+`Three executives of the Australian company Resolute Mining were arrested this month. Mali, a major African gold producer, has been trying to increase its share of mining profits lately.`\
+https://nytimes.com/2024/11/18/world/africa/mali-mining-detensions.html
+
 **What went wrong for Phil Longo at Wisconsin? Who could replace him?**\
 `On Sunday, Fickell fired Longo 23 games into his tenure as offensive coordinator at Wisconsin.`\
 https://nytimes.com/athletic/5930481/2024/11/18/phil-longo-fired-luke-fickell-wisconsin-football-offensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930407/2024/11/18/cade-mcnamara-iowa-quarterback-d
 **The SEC championship conundrum: Should Playoff hopefuls want to avoid playing in Atlanta?**\
 `How much do the contenders want and need to make it to the SEC Championship Game?`\
 https://nytimes.com/athletic/5930077/2024/11/18/sec-championship-teams-college-football-playoff/
-
-**'Yeah, we need to win all 4 of them': Blackhawks feeling urgency with Thanksgiving approaching**\
-`The Blackhawks are tired of moral victories and want more real ones.`\
-https://nytimes.com/athletic/5930258/2024/11/18/blackhawks-standings-schedule/
 
