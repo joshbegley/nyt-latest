@@ -1,3 +1,7 @@
+**Yo-Yo Ma and Kathryn Stott Wrap Up a Partnership With Thanks**\
+`After 40 years of musical collaborations, this cellist and pianist have recorded their final album together, “Merci.”`\
+https://nytimes.com/2024/11/18/arts/music/yo-yo-ma-kathryn-stott.html
+
 **Submit your questions for Will Guillory's Pelicans mailbag**\
 `The New Orleans Pelicans are off to a rough start.`\
 https://nytimes.com/athletic/5930100/2024/11/18/pelicans-zion-williamson-mailbag-submission/
