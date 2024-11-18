@@ -1,3 +1,19 @@
+**Will a $9 Congestion-Pricing Toll Yield Enough Money to Fix the Subway?**\
+`Slashing the original $15 toll raises questions about whether a smaller revenue stream could delay projects or lead to higher costs for New York’s public transit agency.`\
+https://nytimes.com/2024/11/18/nyregion/congestion-pricing-toll.html
+
+**Substack’s Great, Big, Messy Political Experiment**\
+`The newsletter start-up, which once drew an overture from Elon Musk, is betting on politics content and recruiting stars. But profits remain elusive.`\
+https://nytimes.com/2024/11/18/business/media/substack-politics-newsletters.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/18/crosswords/spelling-bee-forum.html
+
+**Will a ‘Trump Bump’ Help the Art Market’s Biggest Week?**\
+`After the U.S. election, auctioneers are looking to woo reluctant bidders back. Watch these 6 bellwether artworks to see how the market performs.`\
+https://nytimes.com/2024/11/18/arts/sothebys-auction-art-market-biggest-week.html
+
 **She Moved to New Delhi for a Fresh Start, but the Air Made Her Sick**\
 `Since moving to New Delhi, which had the world’s worst air quality on Monday, Ameesha Munjal hasn’t been able to exercise or see friends. She has been on several medications to battle sickness caused by the pollution.`\
 https://nytimes.com/video/world/asia/100000009830791/india-smog-new-delhi-air.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5928754/2024/11/18/canucks-elias-pettersson-jt-mill
 **Bills observations: Plan to shut down Travis Kelce worked, backup OL comes up big**\
 `The Bills defense changed their approach compared to previous meetings with the Chiefs.`\
 https://nytimes.com/athletic/5928864/2024/11/18/bills-chiefs-travis-kelce-defense/
-
-**‘The Sex Lives of College Girls,’ Plus 7 Things to Watch on TV this Week**\
-`Catch up with the group from Essex College, go behind the scenes of Ridley Scott’s new movie and get your Bravo fill.`\
-https://nytimes.com/2024/11/18/arts/television/the-sex-lives-of-college-girls-plus-7-things-to-watch-on-tv-this-week.html
-
-**We’re About to Find Out How Much America’s Leadership Matters**\
-`Donald Trump’s re-election to the American presidency is a threat to global peace and security.`\
-https://nytimes.com/2024/11/18/opinion/trump-ukraine-china-middle-east.html
-
-**Chargers survive Bengals with J.K. Dobbins' late TD in 34-27 win: Takeaways**\
-`The Chargers survived a second-half comeback attempt by the Bengals to escape with a win on "Sunday Night Football."`\
-https://nytimes.com/athletic/5928144/2024/11/18/bengals-chargers-score-result-takeaways/
-
-**Martin Odegaard's return: Rehab, subterfuge and what it means for Arsenal's title challenge**\
-`How the Arsenal and Norway captain fought his way back to fitness after September's ankle injury`\
-https://nytimes.com/athletic/5924423/2024/11/18/martin-odegaard-arsenal-return-from-injury/
 

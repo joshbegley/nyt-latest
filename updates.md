@@ -1,3 +1,19 @@
+**Will a $9 Congestion-Pricing Toll Yield Enough Money to Fix the Subway?**\
+`Slashing the original $15 toll raises questions about whether a smaller revenue stream could delay projects or lead to higher costs for New York’s public transit agency.`\
+https://nytimes.com/2024/11/18/nyregion/congestion-pricing-toll.html
+
+**Substack’s Great, Big, Messy Political Experiment**\
+`The newsletter start-up, which once drew an overture from Elon Musk, is betting on politics content and recruiting stars. But profits remain elusive.`\
+https://nytimes.com/2024/11/18/business/media/substack-politics-newsletters.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/18/crosswords/spelling-bee-forum.html
+
+**Will a ‘Trump Bump’ Help the Art Market’s Biggest Week?**\
+`After the U.S. election, auctioneers are looking to woo reluctant bidders back. Watch these 6 bellwether artworks to see how the market performs.`\
+https://nytimes.com/2024/11/18/arts/sothebys-auction-art-market-biggest-week.html
+
 **She Moved to New Delhi for a Fresh Start, but the Air Made Her Sick**\
 `Since moving to New Delhi, which had the world’s worst air quality on Monday, Ameesha Munjal hasn’t been able to exercise or see friends. She has been on several medications to battle sickness caused by the pollution.`\
 https://nytimes.com/video/world/asia/100000009830791/india-smog-new-delhi-air.html
