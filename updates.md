@@ -1,3 +1,11 @@
+**Cowboys close roof of AT&T Stadium after piece falls ahead of 'MNF' game**\
+`The incident occurred while the roof was opening and a decision regarding the ability to re-open the roof safely is being evaluated.`\
+https://nytimes.com/athletic/5930809/2024/11/18/cowboys-stadium-roof-fall-texans-mnf/
+
+**Pirates' Paul Skenes named NL Rookie of the Year after electric debut**\
+`Skenes is the first NL starting pitcher to win the award since another flame-throwing righty, the New York Mets’ Jacob deGrom, won in 2014.`\
+https://nytimes.com/athletic/5930088/2024/11/18/paul-skenes-nl-rookie-of-the-year/
+
 **Sandra M. Gilbert, Co-Author of ‘The Madwoman in the Attic,’ Dies at 87**\
 `A poet, scholar and literary critic, she turned a feminist lens on 19th-century writers like Jane Austen and Charlotte Brontë, creating a feminist classic.`\
 https://nytimes.com/2024/11/18/books/sandra-gilbert-dead.html
