@@ -1,3 +1,11 @@
+**College football Week 13 odds, schedule: Ohio State's big spread against Indiana**\
+`Indiana at Ohio State is the featured game of college football's Week 13. There are several other CFP contenders hitting the road.`\
+https://nytimes.com/athletic/5929808/2024/11/18/college-football-week-13-odds-schedule/
+
+**NFL Week 12 odds, schedule: Do Steelers face 'trap' game vs. Browns?**\
+`Steelers vs. Browns kicks off a week of several critical conference matchups and a few double-digit spreads. `\
+https://nytimes.com/athletic/5929610/2024/11/18/nfl-week-12-odds-spreads-schedule-steelers-browns-ravens-chargers/
+
 **Quincy Jones Receives Posthumous Oscar, and Daughter Gives His Speech**\
 `At the Governors Awards, Rashida Jones spoke on behalf of her father, who died earlier this month at the age of 91.`\
 https://nytimes.com/2024/11/18/movies/governors-awards-quincy-jones.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5929561/2024/11/18/ohio-state-northwestern-film-ana
 **Emma Hayes names USWNT roster: Yohannes first camp after commitment**\
 `Hayes extended two more first-time call-ups to Phallon Tullis-Joyce and Ally Sentnor.`\
 https://nytimes.com/athletic/5929500/2024/11/18/emma-hayes-uswnt-roster-final-friendlies/
-
-**Chauffeured Cars and Broadway Tickets: Inside the National Realtors Group**\
-`The National Association of Realtors, a nonprofit trade organization, offers lavish perks and payouts to its executive staff and its leaders.`\
-https://nytimes.com/2024/11/18/realestate/national-association-realtors-spending.html
-
-**How Well Do You Know These Memorable Couples of Literature?**\
-`Fiction of full of love stories. Try this short quiz on the romantic pairings in five 20th-century novels.`\
-https://nytimes.com/interactive/2024/11/18/books/review/romantic-literary-couples.html
 
