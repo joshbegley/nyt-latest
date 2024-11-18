@@ -1,3 +1,7 @@
+**Bannon’s New York Trial on Fraud Charges Is Postponed Until February**\
+`The key adviser to Donald J. Trump is accused of cheating people who donated to build a border wall. Mr. Trump pardoned him when he faced similar federal charges in his first term.`\
+https://nytimes.com/2024/11/18/us/politics/bannon-fraud-trial-postponed-february.html
+
 **Man Is Accused of Killing 2 in Random Stabbings in Manhattan**\
 `A suspect was arrested Monday morning in connection with the stabbings, which occurred across a broad swath of the borough over several hours and left a third person critically injured.`\
 https://nytimes.com/2024/11/18/nyregion/nyc-stabbings-manhattan.html
