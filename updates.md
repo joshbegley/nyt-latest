@@ -1,3 +1,11 @@
+**FIFA's lowest-ranked team San Marino earn UEFA Nations League promotion**\
+`San Marino, the world’s lowest-ranked international team, have won promotion to the third tier of the Nations League following their 3-1 victory over Liechtenstein.`\
+https://nytimes.com/athletic/5930705/2024/11/18/san-marino-nations-league/
+
+**Biden’s Parting Gift to Ukraine Could Also Help Trump**\
+`Trump can stop the missiles to be used against Russia, but he may not want to.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/biden-missiles-ukraine-trump
+
 **What to watch this week in NBA: Undefeated Cavs, scorching Warriors and more Cup games**\
 `What to watch, and why, this week in the NBA as the NBA Cup resumes and includes a banger in Boston.`\
 https://nytimes.com/athletic/5925629/2024/11/18/what-to-watch-nba-cavs-celtics-warriors/

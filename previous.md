@@ -1,3 +1,11 @@
+**FIFA's lowest-ranked team San Marino earn UEFA Nations League promotion**\
+`San Marino, the world’s lowest-ranked international team, have won promotion to the third tier of the Nations League following their 3-1 victory over Liechtenstein.`\
+https://nytimes.com/athletic/5930705/2024/11/18/san-marino-nations-league/
+
+**Biden’s Parting Gift to Ukraine Could Also Help Trump**\
+`Trump can stop the missiles to be used against Russia, but he may not want to.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/biden-missiles-ukraine-trump
+
 **What to watch this week in NBA: Undefeated Cavs, scorching Warriors and more Cup games**\
 `What to watch, and why, this week in the NBA as the NBA Cup resumes and includes a banger in Boston.`\
 https://nytimes.com/athletic/5925629/2024/11/18/what-to-watch-nba-cavs-celtics-warriors/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/world/africa/mali-mining-detensions.html
 **What went wrong for Phil Longo at Wisconsin? Who could replace him?**\
 `On Sunday, Fickell fired Longo 23 games into his tenure as offensive coordinator at Wisconsin.`\
 https://nytimes.com/athletic/5930481/2024/11/18/phil-longo-fired-luke-fickell-wisconsin-football-offensive-coordinator/
-
-**Should the Giants trade Lamonte Wade, Jr.? The pros and cons**\
-`Wade has given the Giants good value when on the field but he could also be a top trade chip.`\
-https://nytimes.com/athletic/5930108/2024/11/18/sf-giants-lamonte-wade-jr-trade-possibilities/
-
-**Tuesday Briefing: Ukraine is Poised to Strike inside Russia**\
-`Plus, revelations from a kids’ soccer coach.`\
-https://nytimes.com/2024/11/18/briefing/ukraine-trump-deportation-gaza.html
 
