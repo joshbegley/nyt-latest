@@ -1,3 +1,15 @@
+**Associated Press to Cut Staff by 8%**\
+`The reductions come just two weeks after Election Day, when The A.P. played a key role in calling races across the United States.`\
+https://nytimes.com/2024/11/18/business/media/associated-press-staff-cuts.html
+
+**Elon Musk Asked People to Upload Their Health Data. X Users Obliged.**\
+`Privacy experts cringed when people started feeding their medical images to the A.I. tool Grok.`\
+https://nytimes.com/2024/11/18/well/x-grok-health-privacy.html
+
+**Arsenal fans' letter highlighting sexual violence concerns attracts 7,300 signatures**\
+`An Arsenal fan group has written an open letter to the club over what it describes as &#8220;deeply concerning&#8221; sexual violence allegations in the sport.`\
+https://nytimes.com/athletic/5929297/2024/11/18/arsenal-fan-group-sexual-offence-allegations/
+
 **Lowetide: How are the Oilers' 4 key new arrivals performing this season?**\
 `The Oilers' offseason transaction pace was furious compared to most teams who make the Stanley Cup Final.`\
 https://nytimes.com/athletic/5927438/2024/11/18/oilers-stats-skinner-arvidsson/
