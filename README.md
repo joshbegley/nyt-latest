@@ -1,3 +1,7 @@
+**How the Chiefs felt watching a different superstar QB beat them with a superstar play**\
+`Josh Allen's 26-yard TD run dealt the Chiefs their first loss since last Christmas. They allowed 30 points for the first time in 30 games.`\
+https://nytimes.com/athletic/5928663/2024/11/17/chiefs-loss-patrick-mahomes-bills/
+
 **How Geno Smith and the Seahawks saved their season: ‘He gets that look in his eyes’**\
 `In one fell swoop, Smith snapped the Seahawks' six-game skid against the 49ers and gave Seattle control of its playoff fate.`\
 https://nytimes.com/athletic/5928563/2024/11/17/seahawks-win-geno-smith-drive-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928164/2024/11/17/vikings-win-titans-sam-darnold/
 **After redemptive win, Colts QB Anthony Richardson lets emotion flow: This was a 'blessing'**\
 `The last few weeks have been a roller coaster for Richardson. "Lord knows, (it's been) challenging ... but I stuck with it."`\
 https://nytimes.com/athletic/5928325/2024/11/17/anthony-richardson-colts-redemption-jets-win/
-
-**James Harden passes Ray Allen for second on NBA's all-time made 3s list**\
-`In passing Allen, Harden only trails Steph Curry for the most made 3s in a career.`\
-https://nytimes.com/athletic/5925723/2024/11/17/james-harden-nba-threes-all-time-ray-allen/
 
