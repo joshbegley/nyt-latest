@@ -1,3 +1,7 @@
+**Beyoncé to perform halftime show at Ravens-Texans on Christmas**\
+`Beyoncé will perform songs from her Cowboy Carter album during the halftime show on Netflix.`\
+https://nytimes.com/athletic/5928797/2024/11/17/beyonce-nfl-christmas-day-netflix-ravens-texans/
+
 **Josh Allen emerges as MVP favorite following signature play in win over Chiefs**\
 `More than 100 games in, teammate Dawson Knox said Josh Allen highlights don't get old.`\
 https://nytimes.com/athletic/5928738/2024/11/17/bills-win-josh-allen-chiefs/
