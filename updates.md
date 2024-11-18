@@ -1,3 +1,7 @@
+**Tennis Briefing: Swiatek thrives with Poland, ATP Finals sets up Australian Open draw**\
+`The world No. 2 looks to end the season on a high at the Billie Jean King Cup in Malaga.`\
+https://nytimes.com/athletic/5927092/2024/11/18/iga-swiatek-finds-billie-jean-king-cup-joy-atp-tour-finals-sets-up-australian-open-draw/
+
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `As the international break draws to a close, post your Newcastle-related questions to Chris`\
 https://nytimes.com/athletic/5929125/2024/11/18/newcastle-united-howe-joelinton-botman/

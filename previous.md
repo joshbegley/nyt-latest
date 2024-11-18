@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5929125/2024/11/18/newcastle-united-howe-joelinton-
 https://nytimes.com/athletic/5929073/2024/11/18/ben-doak-liverpools-salah-successor-plus-premier-league-owners-who-invest-most/
 
 **Tennis Briefing: Swiatek thrives with Poland, ATP Finals sets up Australian Open draw**\
-`The world No. 2 looks to end the season on a high in Malaga.`\
+`The world No. 2 looks to end the season on a high at the Billie Jean King Cup in Malaga.`\
 https://nytimes.com/athletic/5927092/2024/11/18/iga-swiatek-finds-billie-jean-king-cup-joy-atp-tour-finals-sets-up-australian-open-draw/
 
 **Tanner Tessmann interview: Lyon, the Olympics - and three texts that changed everything**\
