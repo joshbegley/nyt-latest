@@ -1,3 +1,11 @@
+**Jerod Mayo, Patriots defense get schooled by Sean McVay, Rams in another loss**\
+`After a key early adjustment, the Rams offense dominated the Patriots on Sunday. And there was little the New England defense could do.`\
+https://nytimes.com/athletic/5928086/2024/11/17/jerod-mayo-patriots-defense-rams-sean-mcvay/
+
+**Can't blame Caleb Williams for this Bears loss to the Packers**\
+`Thomas Brown’s first game as Bears offensive coordinator can be considered a success, but that won't make fans feel better about this loss.`\
+https://nytimes.com/athletic/5928105/2024/11/17/bears-packers-caleb-williams-thomas-brown/
+
 **Raiders' baby steps with new offensive staff aren't enough in sixth straight loss**\
 `Brock Bowers set a rookie NFL single-game record with his 13 catches but the Raiders suffered another dispiriting loss. `\
 https://nytimes.com/athletic/5928167/2024/11/17/raiders-loss-dolphins-offense-scott-norv-turner/
