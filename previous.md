@@ -1,3 +1,7 @@
+**SpaceX Starship’s Sonic Boom Creates Risk of Structural Damage, Test Finds**\
+`An independent researcher found that noise recorded miles away from the site of a recent test flight was equal to standing 200 feet from a Boeing 747 during takeoff.`\
+https://nytimes.com/2024/11/18/us/politics/spacex-starship-sonic-boom-damage.html
+
 **How Elon Musk’s and Vivek Ramaswamy’s Government-Slashing Spree Could Backfire**\
 `If they’re not careful, they could make the government’s efficiency problems worse.`\
 https://nytimes.com/2024/11/18/opinion/elon-must-vivek-ramaswamy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930252/2024/11/18/michigan-wolverines-football-bas
 **Re-signing Necas, dealing with Andersen's latest injury and more: Catching up with Hurricanes GM Eric Tulsky**\
 `The first-year Carolina general manager had to deal with much drama in the offseason, but his club has come out of it still a contender.`\
 https://nytimes.com/athletic/5929974/2024/11/18/hurricanes-necas-andersen-tulsky/
-
-**Ex-Palace coach Millen appointed Croydon Athletic manager**\
-`Former Crystal Palace, Bristol City and MK Dons caretaker manager Keith Millen has been named as the new manager of non-league side AFC Croydon Athletic.`\
-https://nytimes.com/athletic/5929272/2024/11/18/croydon-athletic-keith-millen/
 
