@@ -1,3 +1,5 @@
+**Read The New York Times’s 1970 Review of ‘One Hundred Years of Solitude’**\
+
 **Submit your Hall of Fame questions for Jayson Stark's mailbag**\
 `I don’t know if Ichiro is about to get 100% of the vote. But I’m 100% certain you have lots of Hall of Fame questions. Submit them here! `\
 https://nytimes.com/athletic/5930003/2024/11/18/baseball-hall-of-fame-questions-2025/
