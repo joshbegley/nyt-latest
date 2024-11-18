@@ -1,3 +1,7 @@
+**Emergency Declared as Smog Chokes Parts of India and Pakistan**\
+`The authorities in New Delhi closed schools and urged residents to stay home. Similar measures have been implemented in Punjab, Pakistan’s largest province.`\
+https://nytimes.com/2024/11/18/world/asia/smog-india-new-delhi-pakistan.html
+
 **Word of the Day: gesticulate**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/18/learning/word-of-the-day-gesticulate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923137/2024/11/18/premier-league-investment-owner-
 **Tuchel's England inheritance: Bigger talent pool, No 10 dilemma - and a post-Kane future?**\
 `Lee Carsley has solved many - if not all - problems for his long-term successor when he begins in January`\
 https://nytimes.com/athletic/5923690/2024/11/18/thomas-tuchel-england-kane-decisions/
-
-**Why do football managers lie about player injuries - and does it matter?**\
-`From mind games to player protection, there are many reasons why coaches feel the need to hide the truth from the media`\
-https://nytimes.com/athletic/5925045/2024/11/18/football-managers-lie-injuries/
 
