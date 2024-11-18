@@ -1,7 +1,3 @@
-**Greenberg: Bears blow rare chance to beat Green Bay. How many more will Matt Eberflus get?**\
-`No one needed a win more than Eberflus. But after a stunning blocked kick at the end, he is 0-5 against Packers and 2-11 in the NFC North.`\
-https://nytimes.com/athletic/5928074/2024/11/17/bears-packers-wasted-chance-blocked-kick/
-
 **Broncos dominate Falcons 38-6 thanks to Bo Nix's performance: Ta**\
 `Nix's push for Offensive Rookie of the Year continued Sunday with a masterful game against Atlanta.`\
 https://nytimes.com/athletic/5927331/2024/11/17/falcons-broncos-score-result-takeaways/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/17/crosswords/daily-puzzle-2024-11-18.html
 **NFL Week 11 takeaways: Are Steelers kings of the AFC North? Packers in for another playoff run?**\
 `Plus, the AFC playoff race is wide-open.`\
 https://nytimes.com/athletic/5927963/2024/11/17/nfl-week-11-scores-takeaways-steelers-ravens-packers/
+
+**Israeli Airstrikes Hit Central Beirut and Its Southern Suburbs**\
+`Israel’s strikes killed Hezbollah’s de facto spokesman in central Beirut and flattened buildings south of Lebanon’s capital.`\
+https://nytimes.com/video/world/middleeast/100000009830498/beirut-lebanon-israel-strikes.html
 
