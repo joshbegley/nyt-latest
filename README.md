@@ -1,3 +1,7 @@
+**Bears add 'blocked field goal' to 2024 list of devastating losses**\
+`Matt Eberflus defended his decision to try the kick on third down, but with this team and this head coach, everything will be scrutinized.`\
+https://nytimes.com/athletic/5928187/2024/11/17/bears-packers-blocked-field-goal/
+
 **Steelers announce themselves as contenders with vintage defensive performance vs. Ravens**\
 `Newcomer Patrick Queen joined the Steelers' stars to stymie Lamar Jackson yet again and prove they are no fluke atop the AFC North.`\
 https://nytimes.com/athletic/5928273/2024/11/17/steelers-ravens-defense-afc-north/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927342/2024/11/17/chiefs-bills-score-results-takea
 **Trump Picks Brendan Carr to Lead F.C.C.**\
 `Mr. Carr, who currently sits on the commission and is a vocal critic of Big Tech, has said the agency should regulate the tech industry.`\
 https://nytimes.com/2024/11/17/technology/fcc-nominee-brendan-carr-trump.html
-
-**Jerod Mayo, Patriots defense get schooled by Sean McVay, Rams in another loss**\
-`After a key early adjustment, the Rams offense dominated the Patriots on Sunday. And there was little the New England defense could do.`\
-https://nytimes.com/athletic/5928086/2024/11/17/patriots-loss-defense-decisions-rams/
 
