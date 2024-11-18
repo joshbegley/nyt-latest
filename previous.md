@@ -1,3 +1,11 @@
+**Canadiens weekly notebook: Christian Dvorak is providing what's expected of him**\
+`Also in the notebook, Kirby Dach's murky path back to centre, a shift in power-play strategy, Cayden Primeau's state of mind and more.`\
+https://nytimes.com/athletic/5929000/2024/11/18/canadiens-christian-dvorak-kirby-dach/
+
+**With landmark 'Inside the NBA' trade, ESPN and boss Jimmy Pitaro win big**\
+`ESPN chairman Jimmy Pitaro's playbook has been to fortify from the outside. That hit a new level this weekend in his "Inside the NBA" trade.`\
+https://nytimes.com/athletic/5928432/2024/11/18/inside-the-nba-espn-jimmy-pitaro-trade/
+
 **Kane statue unveiled after years in storage**\
 `A statue of England captain Harry Kane has been officially unveiled five years after it was commissioned by a London council.`\
 https://nytimes.com/athletic/5929382/2024/11/18/harry-kane-statue-unveiled-england/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915357/2024/11/18/giants-bench-daniel-jones/
 **Rodrigo Bentancur's seven-game ban explained: What the Spurs player did and what he'll miss**\
 `Tottenham midfielder Rodrigo Bentancur has been given a seven-game ban for a comment made about Son Heung-min - here is the background`\
 https://nytimes.com/athletic/5906726/2024/11/18/bentancur-explainer-spurs-son/
-
-**What Do You Hope to Get Out of College?**\
-`College is a big commitment, in terms of time and money. What do you think is the purpose of continuing your education after high school?`\
-https://nytimes.com/2024/11/18/learning/what-do-you-hope-to-get-out-of-college.html
-
-**Trump signals a ‘seismic shift,’ shocking the Washington establishment.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/11/18/us/trump-news-live/trump-signals-a-seismic-shift-shocking-the-washington-establishment
 

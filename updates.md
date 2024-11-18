@@ -1,3 +1,11 @@
+**Canadiens weekly notebook: Christian Dvorak is providing what's expected of him**\
+`Also in the notebook, Kirby Dach's murky path back to centre, a shift in power-play strategy, Cayden Primeau's state of mind and more.`\
+https://nytimes.com/athletic/5929000/2024/11/18/canadiens-christian-dvorak-kirby-dach/
+
+**With landmark 'Inside the NBA' trade, ESPN and boss Jimmy Pitaro win big**\
+`ESPN chairman Jimmy Pitaro's playbook has been to fortify from the outside. That hit a new level this weekend in his "Inside the NBA" trade.`\
+https://nytimes.com/athletic/5928432/2024/11/18/inside-the-nba-espn-jimmy-pitaro-trade/
+
 **Kane statue unveiled after years in storage**\
 `A statue of England captain Harry Kane has been officially unveiled five years after it was commissioned by a London council.`\
 https://nytimes.com/athletic/5929382/2024/11/18/harry-kane-statue-unveiled-england/
