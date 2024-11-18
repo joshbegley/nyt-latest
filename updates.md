@@ -1,3 +1,7 @@
+**NFL Survivor: Submit your questions for our Week 12 survivor mailbag**\
+`Ask your NFL survivor pool questions here by Tuesday morning and we'll answer them in our weekly NFL Survivor column.`\
+https://nytimes.com/athletic/5929535/2024/11/18/nfl-survivor-pool-mailbag-submit-your-questions-for-nfl-week-12/
+
 **Notre Dame-Virginia final thoughts: How the Irish stayed on schedule for Playoff**\
 `The Irish remain on schedule for a one-loss season and a spot in the College Football Playoff after their win over Virginia.`\
 https://nytimes.com/athletic/5929309/2024/11/18/notre-dame-virginia-final-analysis-jack-kiser/

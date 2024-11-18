@@ -1,3 +1,7 @@
+**NFL Survivor: Submit your questions for our Week 12 survivor mailbag**\
+`Ask your NFL survivor pool questions here by Tuesday morning and we'll answer them in our weekly NFL Survivor column.`\
+https://nytimes.com/athletic/5929535/2024/11/18/nfl-survivor-pool-mailbag-submit-your-questions-for-nfl-week-12/
+
 **Notre Dame-Virginia final thoughts: How the Irish stayed on schedule for Playoff**\
 `The Irish remain on schedule for a one-loss season and a spot in the College Football Playoff after their win over Virginia.`\
 https://nytimes.com/athletic/5929309/2024/11/18/notre-dame-virginia-final-analysis-jack-kiser/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929359/2024/11/18/fantasy-football-week-11-recap-t
 **The Daniel Jones era is over. Giants bench QB after frustrating 6-year run**\
 `Jones’ time is up in New York. His failures weren't all his fault, but his inability to overcome his circumstances led to his demise. `\
 https://nytimes.com/athletic/5917454/2024/11/18/daniel-jones-giants-bench-tommy-devito/
-
-**NBA Rewind: De'Aaron Fox's historic weekend, the 15-0 Cavs and your NBA Cup-date**\
-`Stock is up for the Rockets and Magic, and who's got the inside track for a trip to Las Vegas? `\
-https://nytimes.com/athletic/5927563/2024/11/18/nba-rewind-deaaron-fox-cavaliers-nba-cup/
 
