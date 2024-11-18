@@ -1,9 +1,13 @@
+**Tuesday Briefing: Ukraine is Poised to Strike inside Russia**\
+`Plus, revelations from a kids’ soccer coach.`\
+https://nytimes.com/2024/11/18/briefing/ukraine-trump-deportation-gaza.html
+
 **How Tulsi Gabbard Became a Favorite of Russia’s State Media**\
 `President-elect Donald J. Trump’s pick to be the director of national intelligence has raised alarms among national security officials.`\
 https://nytimes.com/2024/11/18/us/politics/tulsi-gabbard-trump-russia.html
 
-**Veteran Who Killed Iraqi Civilian Gets 4 Years in Prison for Jan. 6 Attack**\
-`Edward Richmond Jr., 41, of Geismar, La., was sentenced to 51 months for assaulting police officers during the 2021 Capitol riot.`\
+**Veteran Who Was Court Martialed Gets 4 Years in Prison for Jan. 6 Attack**\
+`Edward Richmond Jr., 41, of Geismar, La., a former U.S. Army soldier who had served time in the killing of an Iraqi citizen, was sentenced to 51 months for assaulting police officers during the 2021 Capitol riot.`\
 https://nytimes.com/2024/11/18/us/army-veteran-jan-6-sentencing.html
 
 **Glitz, Glamour and Trash-Talk at the ‘Ultimate Fantasy Competition’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/us/politics/spacex-starship-sonic-boom-damage.htm
 **How Elon Musk’s and Vivek Ramaswamy’s Government-Slashing Spree Could Backfire**\
 `If they’re not careful, they could make the government’s efficiency problems worse.`\
 https://nytimes.com/2024/11/18/opinion/elon-must-vivek-ramaswamy.html
-
-**Bannon’s New York Trial on Fraud Charges Is Postponed Until February**\
-`The key adviser to Donald J. Trump is accused of cheating people who donated to build a border wall. Mr. Trump pardoned him when he faced similar federal charges in his first term.`\
-https://nytimes.com/2024/11/18/us/politics/bannon-fraud-trial-postponed-february.html
 
