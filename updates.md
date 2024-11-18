@@ -1,3 +1,7 @@
+**Van Dijk and De Jong out of Netherlands squad on "medical grounds"**\
+`Virgil van Dijk will return to Liverpool earlier than planned after leaving the Netherlands camp over the weekend.`\
+https://nytimes.com/athletic/5929183/2024/11/18/van-dijk-de-jong-netherlands-squad/
+
 **Tennis Briefing: Swiatek thrives with Poland, ATP Finals sets up Australian Open draw**\
 `The world No. 2 looks to end the season on a high at the Billie Jean King Cup in Malaga.`\
 https://nytimes.com/athletic/5927092/2024/11/18/iga-swiatek-finds-billie-jean-king-cup-joy-atp-tour-finals-sets-up-australian-open-draw/
