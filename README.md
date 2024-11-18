@@ -1,3 +1,11 @@
+**Jerod Mayo, Patriots defense get schooled by Sean McVay, Rams in another loss**\
+`After a key early adjustment, the Rams offense dominated the Patriots on Sunday. And there was little the New England defense could do.`\
+https://nytimes.com/athletic/5928086/2024/11/17/jerod-mayo-patriots-defense-rams-sean-mcvay/
+
+**Can't blame Caleb Williams for this Bears loss to the Packers**\
+`Thomas Brown’s first game as Bears offensive coordinator can be considered a success, but that won't make fans feel better about this loss.`\
+https://nytimes.com/athletic/5928105/2024/11/17/bears-packers-caleb-williams-thomas-brown/
+
 **Raiders' baby steps with new offensive staff aren't enough in sixth straight loss**\
 `Brock Bowers set a rookie NFL single-game record with his 13 catches but the Raiders suffered another dispiriting loss. `\
 https://nytimes.com/athletic/5928167/2024/11/17/raiders-loss-dolphins-offense-scott-norv-turner/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5928146/2024/11/17/packers-win-field-goal-block-bea
 **What Are ATACMS, the U.S. Missiles That May Be Used Against Russia?**\
 `In a major policy shift, the Biden administration has authorized Ukraine to use the ballistic missiles within Russia.`\
 https://nytimes.com/2024/11/17/world/europe/what-are-atacms-missiles-ukraine-russia.html
-
-**After poor communication leads Raiders to another loss, 'pride' is all that's left to play for**\
-`When the Raiders needed a defensive stop, they left Jonnu Smith wide open for a touchdown. Their sixth straight loss drops them to 2-8.`\
-https://nytimes.com/athletic/5928041/2024/11/17/raiders-loss-miscommunication-dolphins-pride/
-
-**After Flurry of Cabinet Picks, Trump Rethinks Candidates for Treasury Secretary**\
-`President-elect Donald J. Trump is expected to invite the contenders for the role, including Kevin Warsh and Marc Rowan, to Mar-a-Lago this week.`\
-https://nytimes.com/2024/11/17/us/politics/trump-treasury-candidates.html
 

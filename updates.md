@@ -1,3 +1,15 @@
+**Raiders' baby steps with new offensive staff aren't enough in sixth straight loss**\
+`Brock Bowers set a rookie NFL single-game record with his 13 catches but the Raiders suffered another dispiriting loss. `\
+https://nytimes.com/athletic/5928167/2024/11/17/raiders-loss-dolphins-offense-scott-norv-turner/
+
+**Review: In ‘Elf’ on Broadway, Buddy Lands on the Very, Very Nice List**\
+`The musical, starring Grey Henson, has gotten Buddy delightfully, entirely right. But he is trapped inside a creaky adaptation.`\
+https://nytimes.com/2024/11/17/theater/elf-review-broadway.html
+
+**Broncos dominate Falcons 38-6 thanks to Bo Nix's performance: Takeaways**\
+`Nix's push for Offensive Rookie of the Year continued Sunday with a masterful game against Atlanta.`\
+https://nytimes.com/athletic/5927331/2024/11/17/falcons-broncos-score-result-takeaways/
+
 **Last-minute Geno Smith TD seals Seahawks' 20-17 win over 49ers: Takeaways**\
 `Seattle pulled even with San Francisco at 5-5 after scoring both of their touchdowns following Nick Bosa's early exit in the second half.`\
 https://nytimes.com/athletic/5927338/2024/11/17/49ers-seahawks-score-results-takeaways/
