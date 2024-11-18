@@ -1,3 +1,7 @@
+**Arsenal Women vs Bayern Munich moved to Meadow Park after clash with men's team**\
+`Arsenal Women’s Champions League game against Bayern Munich has been moved to Meadow Park to avoid an Emirates Stadium scheduling clash with the men’s team.`\
+https://nytimes.com/athletic/5904313/2024/11/18/arsenal-bayern-munich-emirates-date-when/
+
 **Nearly 100 Aid Trucks in Gaza Convoy Are Lost to Looters, U.N. Agency Says**\
 `UNRWA, the agency that helps Palestinians, said its drivers were forced to unload supplies at gunpoint, in what it called one of the worst such incidents of the war.`\
 https://nytimes.com/2024/11/18/world/middleeast/gaza-aid-convoy-looted-unrwa-israel.html
