@@ -1,3 +1,7 @@
+**The Athletic 134: Judgment week is here for top-5 Indiana**\
+`What if Indiana beats Ohio State? What if it loses? The two biggest questions of Week 13 each bring their own brand of unpredictability.`\
+https://nytimes.com/athletic/5928572/2024/11/18/college-football-fbs-team-rankings-indiana/
+
 **Will a $9 Congestion-Pricing Toll Yield Enough Money to Fix the Subway?**\
 `Slashing the original $15 toll raises questions about whether a smaller revenue stream could delay projects or lead to higher costs for New York’s public transit agency.`\
 https://nytimes.com/2024/11/18/nyregion/congestion-pricing-toll.html
