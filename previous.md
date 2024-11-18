@@ -1,3 +1,7 @@
+**Texas Education Board to Vote on Bible-Infused Lessons in Public Schools**\
+`A new curriculum would focus on Christianity more than other religions. A kindergarten lesson on the Golden Rule, for example, would teach about Jesus and his Sermon on the Mount.`\
+https://nytimes.com/2024/11/18/us/texas-bible-school-curriculum.html
+
 **Julius Randle has his first Minnesota moment in buzzer-beating game winner**\
 `Randle's heroics helped hide what was another underwhelming performance for much of the game.`\
 https://nytimes.com/athletic/5927709/2024/11/18/julius-randle-timberwolves-buzzer-beater/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5929244/2024/11/18/inside-the-nba-charles-barkley-d
 **Canadiens weekly notebook: Christian Dvorak is providing what's expected of him**\
 `Also in the notebook, Kirby Dach's murky path back to centre, a shift in power-play strategy, Cayden Primeau's state of mind and more.`\
 https://nytimes.com/athletic/5929000/2024/11/18/canadiens-christian-dvorak-kirby-dach/
-
-**With landmark 'Inside the NBA' trade, ESPN and boss Jimmy Pitaro win big**\
-`ESPN chairman Jimmy Pitaro's playbook has been to fortify from the outside. That hit a new level this weekend in his "Inside the NBA" trade.`\
-https://nytimes.com/athletic/5928432/2024/11/18/inside-the-nba-espn-jimmy-pitaro-trade/
 

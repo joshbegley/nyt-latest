@@ -1,3 +1,7 @@
+**Texas Education Board to Vote on Bible-Infused Lessons in Public Schools**\
+`A new curriculum would focus on Christianity more than other religions. A kindergarten lesson on the Golden Rule, for example, would teach about Jesus and his Sermon on the Mount.`\
+https://nytimes.com/2024/11/18/us/texas-bible-school-curriculum.html
+
 **Julius Randle has his first Minnesota moment in buzzer-beating game winner**\
 `Randle's heroics helped hide what was another underwhelming performance for much of the game.`\
 https://nytimes.com/athletic/5927709/2024/11/18/julius-randle-timberwolves-buzzer-beater/
