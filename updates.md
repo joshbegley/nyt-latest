@@ -1,3 +1,15 @@
+**Notre Dame-Virginia final thoughts: How the Irish stayed on schedule for Playoff**\
+`The Irish remain on schedule for a one-loss season and a spot in the College Football Playoff after their win over Virginia.`\
+https://nytimes.com/athletic/5929309/2024/11/18/notre-dame-virginia-final-analysis-jack-kiser/
+
+**The Bounce: 'Inside the NBA' is officially saved!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5929244/2024/11/18/inside-the-nba-charles-barkley-deaaron-fox-kings-nba-the-bounce/
+
+**F1's second Las Vegas bet is paying off. The first, 43 years ago, was a 'lesson learned'**\
+`Las Vegas' original F1 race, the Caesars Palace Grand Prix, met a swift and probably inevitable end. `\
+https://nytimes.com/athletic/5047927/2024/11/18/f1-las-vegas-grand-prix-failure/
+
 **Canadiens weekly notebook: Christian Dvorak is providing what's expected of him**\
 `Also in the notebook, Kirby Dach's murky path back to centre, a shift in power-play strategy, Cayden Primeau's state of mind and more.`\
 https://nytimes.com/athletic/5929000/2024/11/18/canadiens-christian-dvorak-kirby-dach/
