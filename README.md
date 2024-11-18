@@ -30,7 +30,7 @@ https://nytimes.com/2024/11/17/theater/elf-review-broadway.html
 `Seattle pulled even with San Francisco at 5-5 after scoring both of their touchdowns following Nick Bosa's early exit in the second half.`\
 https://nytimes.com/athletic/5927338/2024/11/17/49ers-seahawks-score-results-takeaways/
 
-**Rodrigue: As Rams eye another playoff chase, the little things could make or break them**\
+**Rodrigue: As Rams eye another playoff chase, the little details could make or break them**\
 `A key block and a game-sealing interception helped the Rams win Sunday. Avoiding negative details will help them see how good they can be.`\
 https://nytimes.com/athletic/5927881/2024/11/17/rams-win-offense-run-game-stafford-patriots/
 
