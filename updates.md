@@ -1,3 +1,7 @@
+**After redemptive win, Colts QB Anthony Richardson lets emotion flow: This was a 'blessing'**\
+`The last few weeks have been a roller coaster for Richardson. "Lord knows, (it's been) challenging ... but I stuck with it."`\
+https://nytimes.com/athletic/5928325/2024/11/17/anthony-richardson-colts-redemption-jets-win/
+
 **Vikings top Titans, earn AFC South sweep, but they know they have bigger fish to fry**\
 `The Vikings beat the Titans on Sunday, but they know they'll have to play better to live up to their heightened expectations this season.`\
 https://nytimes.com/athletic/5928164/2024/11/17/vikings-win-titans-sam-darnold/
