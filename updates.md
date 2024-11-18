@@ -1,3 +1,7 @@
+**Can't blame Caleb Williams for the Bears' loss to the Packers**\
+`Thomas Brown's first game as Bears offensive coordinator can be considered a success, but that won't make fans feel better about this loss.`\
+https://nytimes.com/athletic/5928105/2024/11/17/bears-packers-caleb-williams-thomas-brown/
+
 **After a year-long wait, the Aaron Rodgers-led New York Jets are a hard watch**\
 `A slow start by the offense, a late collapse by the defense, and another befuddling loss in a season full of them.`\
 https://nytimes.com/athletic/5928103/2024/11/17/jets-colts-loss-defense-collapse-aaron-rodgers/
