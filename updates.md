@@ -1,3 +1,15 @@
+**Why Newcastle having three England starters really matters**\
+`An 37-year international first was worth celebrating on Sunday - it's proof of Newcastle's development`\
+https://nytimes.com/athletic/5929230/2024/11/18/newcaste-england-livramento-gordon-hall/
+
+**Without Nikola Jokić, the Nuggets have looked alarmingly helpless**\
+`The three-time MVP has missed the past two games for personal reasons. Denver can't get Jamal Murray or much else going without him.`\
+https://nytimes.com/athletic/5924064/2024/11/18/nuggets-nikola-jokic-losses-jamal-murray/
+
+**The Race to Lead Trump’s Treasury Dept. Is Becoming a Cliffhanger**\
+`Howard Lutnick? Scott Bessent? Marc Rowan? Kevin Warsh? The president-elect’s list of candidates has grown longer, clouding the future of the department.`\
+https://nytimes.com/2024/11/18/business/dealbook/trump-treasury-department-rowan-warsh.html
+
 **The Jonathan David interview: Dreams of Barcelona, scoring against Real Madrid, and his next move**\
 `The Canadian star on his career so far and what will happen when his contract runs out in summer`\
 https://nytimes.com/athletic/5927384/2024/11/18/jonathan-david-interview-lille-canada-barcelona-real-madrid/

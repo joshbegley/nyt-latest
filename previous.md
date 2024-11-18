@@ -1,3 +1,15 @@
+**Why Newcastle having three England starters really matters**\
+`An 37-year international first was worth celebrating on Sunday - it's proof of Newcastle's development`\
+https://nytimes.com/athletic/5929230/2024/11/18/newcaste-england-livramento-gordon-hall/
+
+**Without Nikola Jokić, the Nuggets have looked alarmingly helpless**\
+`The three-time MVP has missed the past two games for personal reasons. Denver can't get Jamal Murray or much else going without him.`\
+https://nytimes.com/athletic/5924064/2024/11/18/nuggets-nikola-jokic-losses-jamal-murray/
+
+**The Race to Lead Trump’s Treasury Dept. Is Becoming a Cliffhanger**\
+`Howard Lutnick? Scott Bessent? Marc Rowan? Kevin Warsh? The president-elect’s list of candidates has grown longer, clouding the future of the department.`\
+https://nytimes.com/2024/11/18/business/dealbook/trump-treasury-department-rowan-warsh.html
+
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `As the international break draws to a close, post your Newcastle-related questions to Chris`\
 https://nytimes.com/athletic/5929125/2024/11/18/newcastle-united-howe-joelinton-botman/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5927762/2024/11/18/cowboys-today-predictions-housto
 **The Jonathan David interview: Dreams of Barcelona, scoring against Real Madrid, and his next move**\
 `The Canadian star on his career so far and what will happen when his contract runs out in summer`\
 https://nytimes.com/athletic/5927384/2024/11/18/jonathan-david-interview-lille-canada-barcelona-real-madrid/
-
-**Weekend NHL rankings: Pondering the Avalanche, the Blues and where we all went so wrong**\
-`Over a month into the NHL season and with U.S. Thanksgiving approaching, Colorado will (likely) be fine but is the season over in St. Louis?`\
-https://nytimes.com/athletic/5927725/2024/11/18/nhl-rankings-predictions-blues-avalanche/
-
-**Elon Musk’s Political Influence**\
-`We explore Musk’s agenda and ideology.`\
-https://nytimes.com/2024/11/18/briefing/elon-musk-donald-trump.html
-
-**The Pulse: Let's eliminate some NFL teams**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5928457/2024/11/18/bengals-chargers-burrow-herbert-the-pulse/
 
