@@ -1,3 +1,7 @@
+**Emergency Declared as Smog Chokes Parts of India and Pakistan**\
+`The authorities in New Delhi closed schools and urged residents to stay home. Similar measures have been implemented in Punjab, Pakistan’s largest province.`\
+https://nytimes.com/2024/11/18/world/asia/smog-india-new-delhi-pakistan.html
+
 **Word of the Day: gesticulate**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/18/learning/word-of-the-day-gesticulate.html
