@@ -1,3 +1,15 @@
+**Monday Briefing**\
+`A major change in U.S. policy on Ukraine.`\
+https://nytimes.com/2024/11/18/briefing/ukraine-biden-trump-lebanon.html
+
+**On Migration, Europe Warms to Ideas Once Seen as Fringe**\
+`As in the United States, a decline in the numbers of migrants crossing borders has not stopped anti-migrant sentiments from gaining ground.`\
+https://nytimes.com/2024/11/18/world/europe/europe-migration-shift.html
+
+**Quote of the Day: How Harris’s Campaign Spent $1.5 Billion in Just 15 Weeks**\
+`Quotation of the Day for Monday, November 18, 2024.`\
+https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-how-harriss-campaign-spent-1-5-billion-in-just-15-weeks.html
+
 **Beyoncé to perform halftime show at Ravens-Texans on Christmas**\
 `Beyoncé will perform songs from her Cowboy Carter album during the halftime show on Netflix.`\
 https://nytimes.com/athletic/5928797/2024/11/17/beyonce-nfl-christmas-day-netflix-ravens-texans/

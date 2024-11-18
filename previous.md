@@ -1,3 +1,15 @@
+**Monday Briefing**\
+`A major change in U.S. policy on Ukraine.`\
+https://nytimes.com/2024/11/18/briefing/ukraine-biden-trump-lebanon.html
+
+**On Migration, Europe Warms to Ideas Once Seen as Fringe**\
+`As in the United States, a decline in the numbers of migrants crossing borders has not stopped anti-migrant sentiments from gaining ground.`\
+https://nytimes.com/2024/11/18/world/europe/europe-migration-shift.html
+
+**Quote of the Day: How Harris’s Campaign Spent $1.5 Billion in Just 15 Weeks**\
+`Quotation of the Day for Monday, November 18, 2024.`\
+https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-how-harriss-campaign-spent-1-5-billion-in-just-15-weeks.html
+
 **Beyoncé to perform halftime show at Ravens-Texans on Christmas**\
 `Beyoncé will perform songs from her Cowboy Carter album during the halftime show on Netflix.`\
 https://nytimes.com/athletic/5928797/2024/11/17/beyonce-nfl-christmas-day-netflix-ravens-texans/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/17/arts/television/dune-prophecy-recap-season-1-prem
 **Bo Nix’s latest career day illustrates Broncos' ceiling: ‘You’re trying to win MVP'**\
 `The rookie QB was nearly perfect in a blowout of the Falcons as Denver is showing lately that it's a legitimate playoff contender.`\
 https://nytimes.com/athletic/5928280/2024/11/17/broncos-win-bo-nix-peformance-falcons/
-
-**'I'm just glad I'm on this side, man': Lions dismantle Jaguars for yet another blowout win**\
-`The Lions bulldozed a Jaguars team that was without starting quarterback Trevor Lawrence.`\
-https://nytimes.com/athletic/5928015/2024/11/17/lions-win-blowout-jaguars/
-
-**Falcons' very bad day in Denver puts their playoff prospects in question**\
-`The Falcons have lost two in a row and must find some answers during their bye week, especially on defense.`\
-https://nytimes.com/athletic/5928461/2024/11/17/falcons-blowout-loss-broncos-playoff-picture/
-
-**49ers' lack of knockout punch haunts them again vs. Seahawks: 'It's not like us'**\
-`After 10 games it's clear the 2024 49ers are lacking something, something that goes beyond their missing personnel.`\
-https://nytimes.com/athletic/5928521/2024/11/17/49ers-loss-seahawks-knockout-punch-lacking/
 
