@@ -1,3 +1,27 @@
+**Submit your questions for Will Guillory's Pelicans mailbag**\
+`The New Orleans Pelicans are off to a rough start.`\
+https://nytimes.com/athletic/5930100/2024/11/18/pelicans-zion-williamson-mailbag-submission/
+
+**Martin O’Malley, Ex-Maryland Governor, Kicks Off Race to Lead D.N.C.**\
+`Mr. O’Malley, who ran for president in 2016, is the first candidate to announce a bid to lead the reeling Democratic Party as it faces two years of powerlessness in Washington.`\
+https://nytimes.com/2024/11/18/us/politics/martin-omalley-dnc-chair-race.html
+
+**How Did Fans Dress for Tyler, the Creator’s L.A. Carnival?**\
+`Crowds filled Dodger Stadium for Camp Flog Gnaw, showing off their street style best.`\
+https://nytimes.com/2024/11/18/style/how-did-fans-dress-for-tyler-the-creators-la-carnival.html
+
+**Normally 'automatic' kickers like Justin Tucker, Younghoe Koo are struggling in 2024**\
+`Here's a selection of names ranking Nos. 26-31: Jake Elliott, Younghoe Koo, Justin Tucker, Evan McPherson, Dustin Hopkins.`\
+https://nytimes.com/athletic/5929559/2024/11/18/nfl-kicker-struggles-justin-tucker-younghoe-koo/
+
+**Did School Battles Hurt Democrats in Liberal Strongholds?**\
+`Voters in the Virginia suburbs shifted toward Trump. Some said they were still frustrated by pandemic closures and fights over gender, race and testing in schools.`\
+https://nytimes.com/2024/11/18/us/schools-election-virginia-suburbs.html
+
+**Sons Tell of a ‘Devastated’ Family at Rape Trial in France**\
+`The men appeared in court, addressing their father, who admits to having drugged their mother over years and inviting scores of men to rape her while she was unconscious.`\
+https://nytimes.com/2024/11/18/world/europe/gisele-pelicot-rape-trial-france.html
+
 **Gold Watch, a Gift From Titanic Survivors, Sells for Nearly $2 Million**\
 `The gold watch was given to the captain of the Carpathia, the ship that responded to the Titanic’s distress call and rescued hundreds of people.`\
 https://nytimes.com/2024/11/18/business/titanic-watch-auction.html
