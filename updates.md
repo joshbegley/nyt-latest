@@ -1,3 +1,7 @@
+**Everton beat Liverpool in the derby again. But more importantly, they built a sense of potential**\
+`Brian Sorensen’s side have the defensive strength to survive in the WSL, but they need to start scoring if they want to avoid the mire`\
+https://nytimes.com/athletic/5927692/2024/11/18/everton-liverpool-derby-wsl/
+
 **Monday Briefing**\
 `A major change in U.S. policy on Ukraine.`\
 https://nytimes.com/2024/11/18/briefing/ukraine-biden-trump-lebanon.html

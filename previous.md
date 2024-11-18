@@ -1,3 +1,7 @@
+**Everton beat Liverpool in the derby again. But more importantly, they built a sense of potential**\
+`Brian Sorensen’s side have the defensive strength to survive in the WSL, but they need to start scoring if they want to avoid the mire`\
+https://nytimes.com/athletic/5927692/2024/11/18/everton-liverpool-derby-wsl/
+
 **Monday Briefing**\
 `A major change in U.S. policy on Ukraine.`\
 https://nytimes.com/2024/11/18/briefing/ukraine-biden-trump-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928322/2024/11/17/browns-blowout-loss-saints/
 **‘Dune: Prophecy’ Season 1 Premiere Recap: Sick Burn**\
 `The first installment of HBO’s “Dune” prequel series suggests there is a “burning truth” very few are capable of seeing. It may be too hot to handle.`\
 https://nytimes.com/2024/11/17/arts/television/dune-prophecy-recap-season-1-premiere.html
-
-**Bo Nix’s latest career day illustrates Broncos' ceiling: ‘You’re trying to win MVP'**\
-`The rookie QB was nearly perfect in a blowout of the Falcons as Denver is showing lately that it's a legitimate playoff contender.`\
-https://nytimes.com/athletic/5928280/2024/11/17/broncos-win-bo-nix-peformance-falcons/
 
