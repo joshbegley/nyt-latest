@@ -1,5 +1,5 @@
 **She Moved to New Delhi for a Fresh Start, but the Air Made Her Sick**\
-`Since coming to New Delhi, which had the world’s worst air quality on Monday, Ameesha Munjal hasn’t been able to exercise or see friends. She has been on several medications to battle sickness caused by the pollution.`\
+`Since moving to New Delhi, which had the world’s worst air quality on Monday, Ameesha Munjal hasn’t been able to exercise or see friends. She has been on several medications to battle sickness caused by the pollution.`\
 https://nytimes.com/video/world/asia/100000009830791/india-smog-new-delhi-air.html
 
 **Alan Jones, Former Australian Shock Jock, Charged With Sexual Abuse**\
