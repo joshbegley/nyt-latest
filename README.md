@@ -1,3 +1,7 @@
+**Chargers survive Bengals with J.K. Dobbins' late TD in 34-27 win: Takeaways**\
+`The Chargers survived a second-half comeback attempt by the Bengals to escape with a win on "Sunday Night Football."`\
+https://nytimes.com/athletic/5928144/2024/11/18/bengals-chargers-score-result-takeaways/
+
 **Martin Odegaard's return: Rehab, subterfuge and what it means for Arsenal's title challenge**\
 `How the Arsenal and Norway captain fought his way back to fitness after September's ankle injury`\
 https://nytimes.com/athletic/5924423/2024/11/18/martin-odegaard-arsenal-return-from-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/briefing/ukraine-biden-trump-lebanon.html
 **On Migration, Europe Warms to Ideas Once Seen as Fringe**\
 `As in the United States, a decline in the numbers of migrants crossing borders has not stopped anti-migrant sentiments from gaining ground.`\
 https://nytimes.com/2024/11/18/world/europe/europe-migration-shift.html
-
-**Quote of the Day: How Harris’s Campaign Spent $1.5 Billion in Just 15 Weeks**\
-`Quotation of the Day for Monday, November 18, 2024.`\
-https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-how-harriss-campaign-spent-1-5-billion-in-just-15-weeks.html
 
