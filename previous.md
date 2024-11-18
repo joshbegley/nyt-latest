@@ -1,3 +1,11 @@
+**Morgan Jenness, Whose Artistic Vision Influenced American Theater, Dies at 72**\
+`A beloved figure in the theatrical community, she redefined the role of dramaturg, influencing playwrights like David Adjmi and David Henry Hwang.`\
+https://nytimes.com/2024/11/18/theater/morgan-jenness-dead.html
+
+**Commanders coach: Rookie sensation Jayden Daniels 'is not injured'**\
+`In Washington's back-to-back losses, the first-year quarterback has just one touchdown pass and 23 rushing yards. `\
+https://nytimes.com/athletic/5930549/2024/11/18/commanders-jayden-daniels-dan-quinn-comments/
+
 **Trump Said He Plans to Use ‘Military Assets’ for Deportations**\
 `Also, Ukraine is poised to strike Russia with U.S. weapons. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/18/briefing/trump-deportation-plans-ukraine-russia-weapons.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5925629/2024/11/18/what-to-watch-nba-cavs-celtics-w
 **Pancreatic Cancer Surge May Be Less Worrisome Than It Seemed**\
 `A rise in the disease in younger people was not followed by an increase in deaths, a study found, and might be a sign of overdiagnosis.`\
 https://nytimes.com/2024/11/18/health/pancreatic-cancer-younger-people.html
-
-**‘Leonardo da Vinci’ Is a Humanizing Look Into a Great Mind**\
-`Beyond the appropriate awe, this two-part PBS documentary, co-directed by Ken Burns, adds human texture to the hagiography.`\
-https://nytimes.com/2024/11/18/arts/television/leonardo-da-vinci-pbs-ken-burns.html
-
-**Wild reunite Kaprizov, Eriksson Ek, Boldy and tweak power play ahead of road trip**\
-`The line also had the second-highest goals per 60 minutes in the league last season. But how much will it hurt the rest of the lineup?`\
-https://nytimes.com/athletic/5930447/2024/11/18/wild-top-line-reunited/
 

@@ -1,3 +1,11 @@
+**Morgan Jenness, Whose Artistic Vision Influenced American Theater, Dies at 72**\
+`A beloved figure in the theatrical community, she redefined the role of dramaturg, influencing playwrights like David Adjmi and David Henry Hwang.`\
+https://nytimes.com/2024/11/18/theater/morgan-jenness-dead.html
+
+**Commanders coach: Rookie sensation Jayden Daniels 'is not injured'**\
+`In Washington's back-to-back losses, the first-year quarterback has just one touchdown pass and 23 rushing yards. `\
+https://nytimes.com/athletic/5930549/2024/11/18/commanders-jayden-daniels-dan-quinn-comments/
+
 **Trump Said He Plans to Use ‘Military Assets’ for Deportations**\
 `Also, Ukraine is poised to strike Russia with U.S. weapons. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/11/18/briefing/trump-deportation-plans-ukraine-russia-weapons.html
