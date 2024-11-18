@@ -1,3 +1,15 @@
+**‘Dune: Prophecy’ Season 1 Premiere Recap: Sick Burn**\
+`The first installment of HBO’s “Dune” prequel series suggests there is a “burning truth” very few are capable of seeing. It may be too hot to handle.`\
+https://nytimes.com/2024/11/17/arts/television/dune-prophecy-recap-season-1-premiere.html
+
+**Bo Nix’s latest career day illustrates Broncos' ceiling: ‘You’re trying to win MVP'**\
+`The rookie QB was nearly perfect in a blowout of the Falcons as Denver is showing lately that it's a legitimate playoff contender.`\
+https://nytimes.com/athletic/5928280/2024/11/17/broncos-win-bo-nix-peformance-falcons/
+
+**Bears add 'blocked field goal' to 2024 list of devastating losses**\
+`Matt Eberflus defended his decision to try the kick on second down, but with this team and this head coach, everything will be scrutinized.`\
+https://nytimes.com/athletic/5928187/2024/11/17/bears-packers-blocked-field-goal/
+
 **'I'm just glad I'm on this side, man': Lions dismantle Jaguars for yet another blowout win**\
 `The Lions bulldozed a Jaguars team that was without starting quarterback Trevor Lawrence.`\
 https://nytimes.com/athletic/5928015/2024/11/17/lions-win-blowout-jaguars/
