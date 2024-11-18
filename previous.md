@@ -1,3 +1,11 @@
+**The Pulse: Let's eliminate some NFL teams**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5928457/2024/11/18/bengals-chargers-burrow-herbert-the-pulse/
+
+**Van Dijk and De Jong out of Netherlands squad on "medical grounds"**\
+`Virgil van Dijk will return to Liverpool earlier than planned after leaving the Netherlands camp over the weekend.`\
+https://nytimes.com/athletic/5929183/2024/11/18/van-dijk-de-jong-netherlands-squad/
+
 **I Tried to Teach My Son Soccer. Here’s What He Taught Me.**\
 `After decades reporting on soccer, three months helping to coach a team of children under age 7 came as a revelation.`\
 https://nytimes.com/2024/11/18/world/europe/rory-smith-soccer-coaching.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5928804/2024/11/18/packers-christian-watson-receive
 **Trump Taps a Fierce Ally for Attorney General**\
 `The choice of Matt Gaetz shocked Washington and raised questions about whether the Senate would approve him.`\
 https://nytimes.com/2024/11/18/podcasts/the-daily/gaetz-attorney-general.html
-
-**Biden’s Big Shift on Ukraine, and Neo-Nazi Marchers Shock Ohio**\
-`Plus, the 50-yard field goal phenomenon.`\
-https://nytimes.com/2024/11/18/podcasts/bidens-ukraine-trump.html
-
-**Record 146,000 N.Y.C. Public School Students Were Homeless Last Year**\
-`The figure topped 100,000 for a ninth straight year, state data shows, as the city dealt with a continuing housing crisis and an influx of migrants.`\
-https://nytimes.com/2024/11/18/nyregion/new-york-city-homeless-children.html
 
