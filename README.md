@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/17/technology/fcc-nominee-brendan-carr-trump.html
 `After a key early adjustment, the Rams offense dominated the Patriots on Sunday. And there was little the New England defense could do.`\
 https://nytimes.com/athletic/5928086/2024/11/17/patriots-loss-defense-decisions-rams/
 
-**Can't blame Caleb Williams for this Bears loss to the Packers**\
-`Thomas Brown’s first game as Bears offensive coordinator can be considered a success, but that won't make fans feel better about this loss.`\
+**Can't blame Caleb Williams for the Bears' loss to the Packers**\
+`Thomas Brown's first game as Bears offensive coordinator can be considered a success, but that won't make fans feel better about this loss.`\
 https://nytimes.com/athletic/5928105/2024/11/17/bears-packers-caleb-williams-thomas-brown/
 
