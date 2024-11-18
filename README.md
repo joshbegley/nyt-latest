@@ -1,15 +1,3 @@
-**Picking Up My Rifle Once More as I Cover Guns in America**\
-`A reporter and former infantryman in Afghanistan had let his AR-15, used for target shooting, collect dust. Then he began writing about gun culture.`\
-https://nytimes.com/2024/11/18/insider/guns-america-ar-15.html
-
-**England 'have all the tools' to win 2026 World Cup - Carsley**\
-`Lee Carsley says England &#8220;have all the tools&#8221; to win the World Cup in 2026, as he prepares to hand the team over to Thomas Tuchel.`\
-https://nytimes.com/athletic/5929906/2024/11/18/england-world-cup-2026-carsley/
-
-**Seahawks' defense shines after bye-week shake-up: 'We can be something special'**\
-`The new-look linebacker group of Ernest Jones IV and Tyrice Knight impressed against the 49ers, allowing others to thrive, too.`\
-https://nytimes.com/athletic/5929054/2024/11/18/seahawks-49ers-defense-mike-macdonald/
-
 **Trump Confirms Plans to Use the Military to Assist in Mass Deportations**\
 `Mr. Trump’s top immigration policy adviser has discussed using military assets to build detention centers and support civilian immigration agents.`\
 https://nytimes.com/2024/11/18/us/politics/trump-military-deportation.html
@@ -37,4 +25,16 @@ https://nytimes.com/2024/11/18/business/media/morning-joe-trump-mar-a-lago.html
 **Opponents Renew Attacks as Congestion Pricing Plan Returns**\
 `Gov. Kathy Hochul is letting the paused tolling program move forward in January. Her critics have jumped on the chance to object to the reversal.`\
 https://nytimes.com/2024/11/18/nyregion/congestion-pricing-vote-mta.html
+
+**Ichiro Suzuki, CC Sabathia headline the 2025 HOF ballot**\
+`The Athletic has a step-by-step guide to reaching Cooperstown.`\
+https://nytimes.com/athletic/5925060/2024/11/18/2025-baseball-hall-of-fame-ballot-election/
+
+**Sudan qualify for AFCON 2025 despite ongoing Civil War**\
+`Sudan have qualified for the 2025 Africa Cup of Nations (AFCON).`\
+https://nytimes.com/athletic/5929596/2024/11/18/sudan-afcon-qualification-civil-war/
+
+**Yo-Yo Ma and Kathryn Stott Wrap Up a Partnership With Thanks**\
+`After 40 years of musical collaborations, this cellist and pianist have recorded their final album together, “Merci.”`\
+https://nytimes.com/2024/11/18/arts/music/yo-yo-ma-kathryn-stott.html
 
