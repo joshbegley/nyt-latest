@@ -1,3 +1,11 @@
+**'I'm just glad I'm on this side, man': Lions dismantle Jaguars for yet another blowout win**\
+`The Lions bulldozed a Jaguars team that was without starting quarterback Trevor Lawrence.`\
+https://nytimes.com/athletic/5928015/2024/11/17/lions-win-blowout-jaguars/
+
+**Falcons' very bad day in Denver puts their playoff prospects in question**\
+`The Falcons have lost two in a row and must find some answers during their bye week, especially on defense.`\
+https://nytimes.com/athletic/5928461/2024/11/17/falcons-blowout-loss-broncos-playoff-picture/
+
 **49ers' lack of knockout punch haunts them again vs. Seahawks: 'It's not like us'**\
 `After 10 games it's clear the 2024 49ers are lacking something, something that goes beyond their missing personnel.`\
 https://nytimes.com/athletic/5928521/2024/11/17/49ers-loss-seahawks-knockout-punch-lacking/
