@@ -1,3 +1,11 @@
+**A Mummified Saber-Toothed Kitten Emerges in Siberia**\
+`The Homotherium cub was preserved in Siberian permafrost with its dark fur and flesh intact.`\
+https://nytimes.com/2024/11/18/science/saber-tooth-cat-mummy-siberia.html
+
+**Saudis Joined a Pledge to Quit Fossil Fuels. Then, They Worked to Kill It.**\
+`Despite endorsing the declaration at last year’s U.N. climate summit, officials have tried to eliminate the same language in at least five U.N. forums, diplomats said.`\
+https://nytimes.com/2024/11/18/climate/saudi-arabia-obstruction-fossil-fuels.html
+
 **PWHL will play 'Takeover Tour' games in Seattle, Vancouver, St. Louis and more**\
 `The PWHL will play nine games at neutral sites, with each team playing at least two, in the league's second season.`\
 https://nytimes.com/athletic/5928720/2024/11/18/pwhl-takeover-tour-seattle-st-louis-vancouver/
