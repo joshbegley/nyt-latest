@@ -1,3 +1,7 @@
+**How Elon Musk’s and Vivek Ramaswamy’s Government-Slashing Spree Could Backfire**\
+`If they’re not careful, they could make the government’s efficiency problems worse.`\
+https://nytimes.com/2024/11/18/opinion/elon-must-vivek-ramaswamy.html
+
 **Bannon’s New York Trial on Fraud Charges Is Postponed Until February**\
 `The key adviser to Donald J. Trump is accused of cheating people who donated to build a border wall. Mr. Trump pardoned him when he faced similar federal charges in his first term.`\
 https://nytimes.com/2024/11/18/us/politics/bannon-fraud-trial-postponed-february.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929974/2024/11/18/hurricanes-necas-andersen-tulsky
 **Ex-Palace coach Millen appointed Croydon Athletic manager**\
 `Former Crystal Palace, Bristol City and MK Dons caretaker manager Keith Millen has been named as the new manager of non-league side AFC Croydon Athletic.`\
 https://nytimes.com/athletic/5929272/2024/11/18/croydon-athletic-keith-millen/
-
-**Picking Up My Rifle Once More as I Cover Guns in America**\
-`A reporter and former infantryman in Afghanistan had let his AR-15, used for target shooting, collect dust. Then he began writing about gun culture.`\
-https://nytimes.com/2024/11/18/insider/guns-america-ar-15.html
 
