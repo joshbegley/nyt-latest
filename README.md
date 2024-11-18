@@ -1,3 +1,7 @@
+**Word of the Day: gesticulate**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/18/learning/word-of-the-day-gesticulate.html
+
 **Elias Pettersson coming alive, J.T. Miller benched: 3 Canucks takeaways**\
 `With five goals in his past seven games, Pettersson is rapidly heating up, but the Canucks fell to the Predators on Sunday night. `\
 https://nytimes.com/athletic/5928754/2024/11/18/canucks-elias-pettersson-jt-miller-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5923690/2024/11/18/thomas-tuchel-england-kane-decis
 **Why do football managers lie about player injuries - and does it matter?**\
 `From mind games to player protection, there are many reasons why coaches feel the need to hide the truth from the media`\
 https://nytimes.com/athletic/5925045/2024/11/18/football-managers-lie-injuries/
-
-**The Slot Machine: How Liverpool set up against elite teams - and beat them**\
-`Dutch coach has shown he has the flexibility and pragmatism to pass big tests at his new club`\
-https://nytimes.com/athletic/5921332/2024/11/18/arne-slot-liverpool-machine/
 
