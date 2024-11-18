@@ -1,3 +1,7 @@
+**Submit your Hall of Fame questions for Jayson Stark's mailbag**\
+`I don’t know if Ichiro is about to get 100% of the vote. But I’m 100% certain you have lots of Hall of Fame questions. Submit them here! `\
+https://nytimes.com/athletic/5930003/2024/11/18/baseball-hall-of-fame-questions-2025/
+
 **College football Week 13 odds, schedule: Ohio State's big spread against Indiana**\
 `Indiana at Ohio State is the featured game of college football's Week 13. There are several other CFP contenders hitting the road.`\
 https://nytimes.com/athletic/5929808/2024/11/18/college-football-week-13-odds-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929902/2024/11/18/don-brown-fired-umass/
 **How Ohio State's adjustments vs. Northwestern can help vs. Indiana: Film study**\
 `What did we see from Ohio State's win over Northwestern that the Buckeyes can use this week against Indiana?`\
 https://nytimes.com/athletic/5929561/2024/11/18/ohio-state-northwestern-film-analysis-indiana/
-
-**Emma Hayes names USWNT roster: Yohannes first camp after commitment**\
-`Hayes extended two more first-time call-ups to Phallon Tullis-Joyce and Ally Sentnor.`\
-https://nytimes.com/athletic/5929500/2024/11/18/emma-hayes-uswnt-roster-final-friendlies/
 
