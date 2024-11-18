@@ -1,3 +1,7 @@
+**The Athletic FC: Doak - Liverpool's Salah successor? Plus: Who invests most in PL clubs**\
+`Today in TAFC: Ben Doak shows he may just help replace Salah at Liverpool, Bentacur's seven-game ban, and which PL club owners invest most?`\
+https://nytimes.com/athletic/5929073/2024/11/18/ben-doak-liverpools-salah-successor-plus-premier-league-owners-who-invest-most/
+
 **Tennis Briefing: Swiatek thrives with Poland, ATP Finals sets up Australian Open draw**\
 `The world No. 2 looks to end the season on a high in Malaga.`\
 https://nytimes.com/athletic/5927092/2024/11/18/iga-swiatek-finds-billie-jean-king-cup-joy-atp-tour-finals-sets-up-australian-open-draw/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5928457/2024/11/18/bengals-chargers-burrow-herbert-
 **Van Dijk and De Jong out of Netherlands squad on "medical grounds"**\
 `Virgil van Dijk will return to Liverpool earlier than planned after leaving the Netherlands camp over the weekend.`\
 https://nytimes.com/athletic/5929183/2024/11/18/van-dijk-de-jong-netherlands-squad/
-
-**I Tried to Teach My Son Soccer. Here’s What He Taught Me.**\
-`After decades reporting on soccer, three months helping to coach a team of children under age 7 came as a revelation.`\
-https://nytimes.com/2024/11/18/world/europe/rory-smith-soccer-coaching.html
 
