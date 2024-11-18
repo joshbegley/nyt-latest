@@ -1,3 +1,7 @@
+**Veteran Who Killed Iraqi Civilian Gets 4 Years in Prison for Jan. 6 Attack**\
+`Edward Richmond Jr., 41, of Geismar, La., was sentenced to 51 months for assaulting police officers during the 2021 Capitol riot.`\
+https://nytimes.com/2024/11/18/us/army-veteran-jan-6-sentencing.html
+
 **Glitz, Glamour and Trash-Talk at the ‘Ultimate Fantasy Competition’**\
 `A fantasy football championship featured YouTubers, comedians and athletes, with ESPN’s Stephen A. Smith as its guest of honor.`\
 https://nytimes.com/2024/11/18/style/prize-picks-world-championships.html
