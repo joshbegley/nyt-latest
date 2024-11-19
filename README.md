@@ -18,7 +18,7 @@ https://nytimes.com/2024/11/19/weather/bomb-cyclone-atmospheric-river-storm-west
 `The Falcons are 6-5 at the bye, having lost two games in a row as their defense struggles to stop anyone. What's on your mind?`\
 https://nytimes.com/athletic/5933531/2024/11/19/falcons-mailbag-questions-9/
 
-**Rafael Nadal's tennis career is over after Spain doubles defeat to Netherlands**\
+**Rafael Nadal's tennis career is over**\
 `Nadal won 22 Grand Slam titles in his career and retires as one of the greatest men's tennis players of all time.`\
 https://nytimes.com/athletic/5933496/2024/11/19/rafael-nadal-retires-tennis-career/
 
