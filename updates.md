@@ -1,3 +1,15 @@
+**Wednesday Briefing: Ukraine hits Russia with U.S. Missiles**\
+`Plus, the Scandinavian band that’s big in Asia.`\
+https://nytimes.com/2024/11/19/briefing/russia-ukraine-trump-hong-kong.html
+
+**House Republicans Target McBride With Capitol Bathroom Bill**\
+`G.O.P. lawmakers whose leaders have pressed to roll back transgender rights around the country moved to bar Sarah McBride, the first transgender member of Congress, from women’s rooms on Capitol Hill.`\
+https://nytimes.com/2024/11/19/us/politics/sarah-mcbride-nancy-mace-capitol-bathroom-bill.html
+
+**Reds' Nick Martinez only player to accept Qualifying Offer**\
+`Of the 144 players who've received a qualifying offer since the system was implemented in 2012, Martinez is just the 14th to accept one.`\
+https://nytimes.com/athletic/5933101/2024/11/19/mlb-2024-qualifying-offer-decisions/
+
 **For Russia, Nuclear Weapons Are the Ultimate Bargaining Chip**\
 `The Ukraine war has not only shattered millions of lives and shaken Europe. It also has inured Washington to the use of nuclear threats as leverage.`\
 https://nytimes.com/2024/11/19/us/politics/russia-nuclear-weapons-ukraine.html

@@ -1,3 +1,15 @@
+**Wednesday Briefing: Ukraine hits Russia with U.S. Missiles**\
+`Plus, the Scandinavian band that’s big in Asia.`\
+https://nytimes.com/2024/11/19/briefing/russia-ukraine-trump-hong-kong.html
+
+**House Republicans Target McBride With Capitol Bathroom Bill**\
+`G.O.P. lawmakers whose leaders have pressed to roll back transgender rights around the country moved to bar Sarah McBride, the first transgender member of Congress, from women’s rooms on Capitol Hill.`\
+https://nytimes.com/2024/11/19/us/politics/sarah-mcbride-nancy-mace-capitol-bathroom-bill.html
+
+**Reds' Nick Martinez only player to accept Qualifying Offer**\
+`Of the 144 players who've received a qualifying offer since the system was implemented in 2012, Martinez is just the 14th to accept one.`\
+https://nytimes.com/athletic/5933101/2024/11/19/mlb-2024-qualifying-offer-decisions/
+
 **49ers mailbag: Is Kyle Shanahan losing the locker room? Is the window closing?**\
 `Among this week's questions: Which players have been pleasant surprises this year and which have been surprise disappointments?`\
 https://nytimes.com/athletic/5932819/2024/11/19/49ers-mailbag-kyle-shanahan-window-closing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5931613/2024/11/19/pep-guardiola-new-man-city-contr
 **Explaining USMNT star Christian Pulisic’s ‘Donald Trump dance' and its impact**\
 `Analysing Christian Pulisic's notable goal celebration in the game against Jamaica - and the fallout`\
 https://nytimes.com/athletic/5932416/2024/11/19/christian-pulisic-donald-trump-dance-usmnt-explained/
-
-**Orlando Pride's Seb Hines wins NWSL Coach of the Year**\
-`Hines coached the pride to an 18-2-6 season, which included a 23-game unbeaten streak that ended in October.`\
-https://nytimes.com/athletic/5933010/2024/11/19/seb-hines-pride-nwsl-coy/
-
-**Richard V. Allen, Reagan’s First National Security Adviser, Dies at 88**\
-`His tenure was short: He was forced to resign after $1,000 in cash was found in a safe in his former office, even though the Justice Department cleared him of wrongdoing.`\
-https://nytimes.com/2024/11/19/us/politics/richard-v-allen-dead.html
-
-**‘Tammy Faye’ Musical to Close After Failing to Find Broadway Audience**\
-`Well-reviewed in London but poorly received in New York, the musical with an Elton John score will end its run on Dec. 8.`\
-https://nytimes.com/2024/11/19/theater/tammy-faye-broadway-musical-closing.html
 
