@@ -1,3 +1,11 @@
+**'Every year he improved a little': The evolution of Rafael Nadal**\
+`23 years, 22 Grand Slam titles, and innumerable changes to his tennis: This is the story of Rafael Nadal's career.`\
+https://nytimes.com/athletic/5929205/2024/11/19/rafael-nadal-tennis-player-evolution/
+
+**House Race in California Is Separated by 102 Votes**\
+`The closest House race in the nation is in Southern California, where Representative Michelle Steel is trailing her challenger, Derek Tran, by a tiny margin after more than 307,000 votes have been counted.`\
+https://nytimes.com/2024/11/19/us/politics/california-house-election-steel-tran.html
+
 **Guardians’ Stephen Vogt wins AL Manager of the Year in first season **\
 `Vogt, who had never managed at any level, is the fastest former player to win the Manager of the Year award.`\
 https://nytimes.com/athletic/5930941/2024/11/19/guardians-stephen-vogt-al-manager-of-the-year/
