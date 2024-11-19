@@ -1,3 +1,7 @@
+**Late Night Is Appalled by Trump’s Mile-High McDonald’s Feast**\
+`The president-elect dined on his plane with some associates — including Robert F. Kennedy Jr., who hates fast food. Jimmy Kimmel called it a “subservience test.”`\
+https://nytimes.com/2024/11/19/arts/television/late-night-trump-mcdonalds.html
+
 **An Affordable Housing Project Faced a Huge Backlash. It Won Anyway.**\
 `A developer wanted to replace parking garages with affordable apartments in Manhattan, but some residents on the Upper West Side resisted. Here’s why the housing won.`\
 https://nytimes.com/2024/11/19/nyregion/housing-crunch-affordable-upper-west-side.html
