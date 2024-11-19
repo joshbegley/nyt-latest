@@ -1,3 +1,11 @@
+**As He Moved to the Right, Elon Musk Packed His Businesses Into Texas**\
+`The billionaire has rapidly transformed parts of the state, shocking even development-friendly officials: “It was like, ‘Voilà, Elon is here.’”`\
+https://nytimes.com/2024/11/19/us/texas-elon-musk.html
+
+**Rafael Nadal's tennis career is over**\
+`Nadal won 22 Grand Slam titles in his career and retires as one of the greatest men's tennis players of all time.`\
+https://nytimes.com/athletic/5933496/2024/11/19/rafael-nadal-retires-tennis-career/
+
 **'Every year he improved a little': The evolution of Rafael Nadal**\
 `23 years, 22 Grand Slam titles, and innumerable changes to his tennis: This is the story of Rafael Nadal's career.`\
 https://nytimes.com/athletic/5929205/2024/11/19/rafael-nadal-tennis-player-evolution/

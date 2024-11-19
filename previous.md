@@ -1,3 +1,7 @@
+**As He Moved to the Right, Elon Musk Packed His Businesses Into Texas**\
+`The billionaire has rapidly transformed parts of the state, shocking even development-friendly officials: “It was like, ‘Voilà, Elon is here.’”`\
+https://nytimes.com/2024/11/19/us/texas-elon-musk.html
+
 **'Every year he improved a little': The evolution of Rafael Nadal**\
 `23 years, 22 Grand Slam titles, and innumerable changes to his tennis: This is the story of Rafael Nadal's career.`\
 https://nytimes.com/athletic/5929205/2024/11/19/rafael-nadal-tennis-player-evolution/
@@ -14,7 +18,7 @@ https://nytimes.com/2024/11/19/weather/bomb-cyclone-atmospheric-river-storm-west
 `The Falcons are 6-5 at the bye, having lost two games in a row as their defense struggles to stop anyone. What's on your mind?`\
 https://nytimes.com/athletic/5933531/2024/11/19/falcons-mailbag-questions-9/
 
-**Rafael Nadal's tennis career is over after Spain doubles defeat to Netherlands**\
+**Rafael Nadal's tennis career is over**\
 `Nadal won 22 Grand Slam titles in his career and retires as one of the greatest men's tennis players of all time.`\
 https://nytimes.com/athletic/5933496/2024/11/19/rafael-nadal-retires-tennis-career/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/19/world/middleeast/israel-5-million-dollars-hostage
 **MLB plans new national TV packages for 2028; changes to revenue sharing, CBA crucial**\
 `MLB commissioner Rob Manfred explained his vision for the future of MLB's telecasts and local media rights in an exclusive interview.`\
 https://nytimes.com/athletic/5933299/2024/11/19/mlb-plans-new-national-tv-packages-for-2028-changes-to-revenue-sharing-cba-crucial/
-
-**House Race in California Is Separated by 102 Votes**\
-`The closest House race in the nation is in Southern California, where Representative Michelle Steel is trailing her challenger, Derek Tran, by a tiny margin after more than 307,000 votes have been counted.`\
-https://nytimes.com/2024/11/19/us/politics/california-house-election-steel-tran.html
 
