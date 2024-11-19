@@ -1,3 +1,11 @@
+**A Bizarre Love Triangle Playlist**\
+`Sabrina Carpenter, Loretta Lynn and SZA sing about all the points on a love triangle.`\
+https://nytimes.com/2024/11/19/arts/music/amplifier-newsletter-love-triangles-sabrina-carpenter.html
+
+**Texas Education Board Backs Curriculum With Lessons Drawn From Bible**\
+`School districts serving more than two million elementary-school children would be able to adopt a curriculum that draws on the Bible.`\
+https://nytimes.com/2024/11/19/us/texas-bible-curriculum-public-schools.html
+
 **Dexter Lawrence on Giants' QB change: Daniel Jones is still team's best QB**\
 `“It’s tough. That’s my best friend. It’s tough for that to happen. I can’t control it."`\
 https://nytimes.com/athletic/5932545/2024/11/19/dexter-lawrence-giants-daniel-jones-comments/
