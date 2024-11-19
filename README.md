@@ -1,3 +1,7 @@
+**For Russia, Nuclear Weapons Are the Ultimate Bargaining Chip**\
+`The Ukraine war has not only shattered millions of lives and shaken Europe. It also has inured Washington to the use of nuclear threats as leverage.`\
+https://nytimes.com/2024/11/19/us/politics/for-russia-nuclear-weapons-are-the-ultimate-bargaining-chip.html
+
 **How Trump Can Earn a Place in History That He Did Not Expect**\
 `The president-elect has a starting point: the plan for a two-state solution that he put out in January 2020.`\
 https://nytimes.com/2024/11/19/opinion/donald-trump-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/theater/tammy-faye-broadway-musical-closing.html
 **Why the Sixers are still struggling despite Joel Embiid's return to the lineup**\
 `The Sixers, now 2-11, are losing the benefit of time and patience. Can Joel Embiid get back in rhythm?`\
 https://nytimes.com/athletic/5932522/2024/11/19/sixers-joel-embiid-whats-wrong/
-
-**Unexpected Turns in Trump Election Cases Raise Questions About Their Durability**\
-`Canceled oral arguments in one case and a judge’s recusal in another have added to questions about the future of four state cases against Donald J. Trump and his allies.`\
-https://nytimes.com/2024/11/19/us/trump-election-interference-georgia-arizona.html
 
