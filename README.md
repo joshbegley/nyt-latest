@@ -1,3 +1,7 @@
+**Nordic Countries, Eyeing Russia, Dust Off Their Crisis Advice**\
+`Sweden, Finland and Norway have recently updated their advice for citizens preparing to survive war and other crises, wary of Ukraine’s grinding fight against Russia.`\
+https://nytimes.com/2024/11/19/world/europe/sweden-russia-ukraine-crisis-war-advice.html
+
 **Could Trump Hire Gaetz Without Senate Approval? A Recess Appointment Primer**\
 `The Constitution allows the president to circumvent the Senate and install appointees while the chamber is in recess, an arcane loophole created back when Capitol commutes involved long treks by horse.`\
 https://nytimes.com/2024/11/19/us/recess-appointment-trump-matt-gaetz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/nyregion/trump-bragg-manhattan-case.html
 **NFL best bets Week 12: Chargers against the spread in Harbaugh Bowl**\
 `Austin Mock's model has four bets to make on NFL Week 12. Check back through the week for more. `\
 https://nytimes.com/athletic/5932536/2024/11/19/nfl-best-bets-week-12-harbaugh-bowl/
-
-**College football best bets Week 13: BYU is in danger of another loss**\
-`Austin Mock's model has identified several bets for college football Week 13, including picking against a CFP contender.`\
-https://nytimes.com/athletic/5932455/2024/11/19/college-football-best-bets-week-13-texas-am-arizona-state/
 
