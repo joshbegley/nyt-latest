@@ -1,3 +1,11 @@
+**Market share report: Austin Ekeler is a cheat, Jauan Jennings is enviable and more**\
+`In his breakdown of the Week 11 market share, Michael Salfino says Austin Ekeler is a receiver masquerading as a running back.`\
+https://nytimes.com/athletic/5932761/2024/11/19/market-share-report-touches-targets-week-11-ekeler-jennings/
+
+**Mets add elite defensive outfielder Jose Siri in trade with Rays for reliever Eric Orze**\
+`The move gives the Mets a talented defensive replacement for Harrison Bader at a lower cost.`\
+https://nytimes.com/athletic/5933315/2024/11/19/mets-trade-jose-siri-rays-eric-orze/
+
 **The Onion’s Bid to Acquire Infowars Has Gotten Messy**\
 `A hearing is scheduled for Monday to review the auction process, which is being contested by a losing bidder associated with Alex Jones, the Infowars founder.`\
 https://nytimes.com/2024/11/19/business/media/the-onion-infowars-alex-jones.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5932395/2024/11/19/boston-bruins-contender-end-of-e
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/11/19/opinion/thepoint
-
-**Pitching prospects Tekoah Roby, Tink Hence added to Cardinals' 40-man roster**\
-`Both Hence and Roby are considered Top 10 prospects in the Cardinals' organization, though their path to the majors is not yet clear.`\
-https://nytimes.com/athletic/5932715/2024/11/19/st-louis-cardinals-rule-5-protections/
-
-**Nadal would not pick himself to play singles for Spain at the Davis Cup after defeat**\
-`The 22-time Grand Slam champion lost what could be his final tennis match in the first rubber of Spain's tie against the Netherlands.`\
-https://nytimes.com/athletic/5932976/2024/11/19/rafael-nadal-davis-cup-spain/
 

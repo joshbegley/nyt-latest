@@ -1,3 +1,11 @@
+**Market share report: Austin Ekeler is a cheat, Jauan Jennings is enviable and more**\
+`In his breakdown of the Week 11 market share, Michael Salfino says Austin Ekeler is a receiver masquerading as a running back.`\
+https://nytimes.com/athletic/5932761/2024/11/19/market-share-report-touches-targets-week-11-ekeler-jennings/
+
+**Mets add elite defensive outfielder Jose Siri in trade with Rays for reliever Eric Orze**\
+`The move gives the Mets a talented defensive replacement for Harrison Bader at a lower cost.`\
+https://nytimes.com/athletic/5933315/2024/11/19/mets-trade-jose-siri-rays-eric-orze/
+
 **The Onion’s Bid to Acquire Infowars Has Gotten Messy**\
 `A hearing is scheduled for Monday to review the auction process, which is being contested by a losing bidder associated with Alex Jones, the Infowars founder.`\
 https://nytimes.com/2024/11/19/business/media/the-onion-infowars-alex-jones.html
