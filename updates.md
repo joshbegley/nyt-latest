@@ -1,3 +1,7 @@
+**Inter Miami head coach Martino resigns after MLS Cup exit**\
+`Inter Miami head coach Gerardo ‘Tata’ Martino has resigned due to personal reasons, according to multiple sources.`\
+https://nytimes.com/athletic/5932943/2024/11/19/tata-martino-resigns-coach-inter-miami/
+
 **Oilers claim Kasperi Kapanen off waivers from Blues**\
 `The Oilers picked up Kapanen to help shore up their forward ranks and possibly give their offense a jolt.`\
 https://nytimes.com/athletic/5932915/2024/11/19/oilers-kasperi-kapanen-waiver-claim-st-louis-blues/
