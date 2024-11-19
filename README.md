@@ -1,3 +1,7 @@
+**Nadal would not pick himself to play singles for Spain at the Davis Cup after defeat**\
+`The 22-time Grand Slam champion lost what could be his final tennis match in the first rubber of Spain's tie against the Netherlands.`\
+https://nytimes.com/athletic/5932976/2024/11/19/rafael-nadal-davis-cup-spain/
+
 **Bruins fire coach Jim Montgomery after 8-9-3 start, name Joe Sacco interim replacement**\
 `Montgomery completes his Bruins run with a 120-41-23 record, but this season, the Bruins have had all kinds of issues.`\
 https://nytimes.com/athletic/5890537/2024/11/19/bruins-fire-jim-montgomery-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/us/politics/russia-nuclear-weapons-ukraine.html
 **How Trump Can Earn a Place in History That He Did Not Expect**\
 `The president-elect has a starting point: the plan for a two-state solution that he put out in January 2020.`\
 https://nytimes.com/2024/11/19/opinion/donald-trump-israel-gaza.html
-
-**Son of Norway’s Crown Princess Is Arrested on Suspicion of Rape**\
-`Marius Borg Hoiby, the stepson of Crown Prince Haakon of Norway, was arrested on Monday. His lawyer denied the accusation and said his client was cooperating with the authorities.`\
-https://nytimes.com/2024/11/19/world/europe/norway-crown-princess-son-rape-arrest.html
 
