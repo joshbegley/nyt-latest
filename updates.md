@@ -1,3 +1,11 @@
+**UMass job profile: With MAC move coming, it's not as bleak as you think**\
+`The Minutemen are rejoining a conference next season and believe their coaching opening is better than it has been in the past.`\
+https://nytimes.com/athletic/5931921/2024/11/19/umass-football-coaching-search-candidate/
+
+**Canucks notebook: Benching J.T. Miller and is there a fix for the second pair?**\
+`Also in the notebook, a look at how the Canucks are navigating an inconsistent stretch without Thatcher Demko in net.`\
+https://nytimes.com/athletic/5931439/2024/11/19/canucks-miller-benching-defense/
+
 **Spurs have 'remastered' their 'brand identity' - but what does that actually mean?**\
 `Tottenham announced they had “remastered” their brand identity. For anyone left confused by that phrase, don’t worry, you were not alone`\
 https://nytimes.com/athletic/5930058/2024/11/19/tottenham-new-badge-logo/
