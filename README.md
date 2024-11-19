@@ -1,3 +1,15 @@
+**Canucks' J.T. Miller takes indefinite leave of absence from team**\
+`Miller emerged as a fan favorite and emotional leader of a Canucks team that vastly exceeded expectations during the 2023-24 campaign.`\
+https://nytimes.com/athletic/5932735/2024/11/19/jt-miller-canucks-indefinite-leave/
+
+**Civil War Toll Much Worse in Confederate States, New Estimates Show**\
+`An analysis of newly released 19th-century census records offers more insight into the conflict’s costs.`\
+https://nytimes.com/2024/11/19/health/civil-war-death-toll.html
+
+**Auston Matthews receiving treatment for injury in Germany**\
+`“It’s not alarming,” Leafs GM Brad Treliving stressed but Auston Matthews will likely miss a couple more games.`\
+https://nytimes.com/athletic/5932680/2024/11/19/auston-matthews-injury-germany/
+
 **A Bizarre Love Triangle Playlist**\
 `Sabrina Carpenter, Loretta Lynn and SZA sing about all the points on a love triangle.`\
 https://nytimes.com/2024/11/19/arts/music/amplifier-newsletter-love-triangles-sabrina-carpenter.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5932338/2024/11/19/nfl-mvp-odds-josh-allen-lamar-ja
 **22 Patrons Stuck for 2 Hours on a Pinwheel Ride in California**\
 `Two of the riders at Knott’s Berry Farm in Orange County were taken to the hospital after the malfunction on Monday.`\
 https://nytimes.com/2024/11/19/us/knotts-berry-farm-ride-stuck.html
-
-**Texas Education Board Backs Curriculum With Lessons Drawn From Bible**\
-`School districts serving more than two million elementary-school children would be able to adopt a curriculum that draws on the Bible.`\
-https://nytimes.com/2024/11/19/us/texas-bible-curriculum-public-schools.html
-
-**Thanksgiving Lasagna Is the Best Lasagna**\
-`The Italian American tradition has been adapted by other immigrant families into delicious takes on the classic.`\
-https://nytimes.com/2024/11/19/dining/thanksgiving-lasagna.html
-
-**Game, Set, Match: Rafael Nadal loses to Botic van de Zandschulp in what could be his final match**\
-`The 22-time Grand Slam champion's physical limitations were laid bare in what could be his last appearance as a professional player.`\
-https://nytimes.com/athletic/5932319/2024/11/19/rafael-nadal-davis-cup-result-analysis-van-de-zandschulp/
 
