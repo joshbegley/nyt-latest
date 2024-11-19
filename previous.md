@@ -1,3 +1,27 @@
+**Tuesday Briefing**\
+`Ukraine’s new military powers.`\
+https://nytimes.com/2024/11/19/world/europe/ukraine-trump-gaza.html
+
+**Ansu Fati is injured again. Can he find a way back at Barcelona?**\
+`Fati is firmly a back-up forward and is out with a hamstring injury. It's the latest blow for a player once billed as the next Lionel Messi`\
+https://nytimes.com/athletic/5929962/2024/11/19/ansu-fati-injury-barcelona-flick/
+
+**The Scandinavian Soft Rock Band That’s Big in Asia**\
+`Michael Learns to Rock hoped for success west of their native Denmark. But for 30 years, they’ve had a devoted following on the other side of the world.`\
+https://nytimes.com/2024/11/19/world/asia/micheal-learns-to-rock-popularity.html
+
+**Russia Has Suffered Colossal Losses in Ukraine. Is Its Army Depleted?**\
+`Researchers and journalists have found innovative ways to measure Russia’s ability to keep fighting.`\
+https://nytimes.com/2024/11/19/world/europe/russia-troops-losses-ukraine.html
+
+**Cowboys' spiral continues with 34-10 loss to Texans: Key takeaways**\
+`Joe Mixon did most of the Texans' offensive damage, notching three scores and topping over 150 total yards.`\
+https://nytimes.com/athletic/5930442/2024/11/19/cowboys-texans-score-result-takeaways-mnf/
+
+**Fantasy football Week 12 waiver wire: Streamers, Jerry Jeudy, Christian Watson**\
+`Christian Watson's jump in routes run this past week has made him the top receiver target on Jake Ciely's Week 12 waiver wire list.`\
+https://nytimes.com/athletic/5930170/2024/11/19/fantasy-football-week-12-waiver-wire-streamers-jerry-jeudy-christian-watson/
+
 **Quote of the Day: Beguiling but Bedraggled, A Pink Sentinel by the Sea Gets a Reprieve, for Now**\
 `Quotation of the Day for Tuesday, November 19, 2024.`\
 https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-beguiling-but-bedraggled-a-pink-sentinel-by-the-sea-gets-a-reprieve-for-now.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/world/asia/100000009830656/hong-kong-democrats-sentenc
 **Elvis Merzlikins' stinginess, 2 short-handed goals key Blue Jackets' win in Boston**\
 `A fantastic first period by the Blue Jackets goalie spurred the team to its first regulation win at TD Garden since 2016.`\
 https://nytimes.com/athletic/5931284/2024/11/18/blue-jackets-merzlikins-penalty-kill-bruins/
-
-**Review: Everyone at the Party Sees Your Texts. A New Play Revels in the Chaos.**\
-`Neil Patrick Harris, Jane Krakowski, Debra Messing and Constance Wu star in the vulgar and entertaining new work from Robert O’Hara.`\
-https://nytimes.com/2024/11/18/theater/shit-meets-fan-review.html
-
-**Firing Montgomery is the only move the Bruins can make**\
-`A dismal 5-1 loss to the Blue Jackets needs to be the point of no return for Boston.`\
-https://nytimes.com/athletic/5931321/2024/11/18/bruins-montgomery-blue-jackets/
-
-**USMNT 4, Jamaica 2: Strong team performance sees U.S. through to Nations League semifinals**\
-`How the USMNT beat Jamaica in the 2024 CONCACAF Nations League.`\
-https://nytimes.com/athletic/5931285/2024/11/18/usmnt-christian-pulisic-jamaica-nations-league/
-
-**Head Over Heels**\
-`Erik Agard runs down the clock.`\
-https://nytimes.com/2024/11/18/crosswords/daily-puzzle-2024-11-19.html
-
-**Wyoming’s Abortion Bans Are Unconstitutional, Judge Rules**\
-`The ruling found that two state laws — one barring use of abortion pills, and one banning all forms of abortion — violated the state Constitution’s “fundamental right to make health care decisions.”`\
-https://nytimes.com/2024/11/18/health/wyoming-abortion-ban-overturned.html
-
-**Dozens of Hong Kong Pro-Democracy Leaders Sentenced in Mass Trial**\
-`The 45 defendants, including Joshua Wong, were at the forefront of the opposition movement crushed by Beijing. Many had already been in jail for years.`\
-https://nytimes.com/2024/11/18/world/asia/hong-kong-democrats-sentenced.html
 

@@ -1,3 +1,11 @@
+**Arsenal and Ethan Nwaneri: How quickly should clubs introduce academy talent to elite football?**\
+`There is always clamour for exciting youngsters to be fast-tracked into a club's first XI - but a patient approach is usually wisest`\
+https://nytimes.com/athletic/5924390/2024/11/19/arsenal-academy-pathway-nwaneri-arteta/
+
+**Data and video scouting – how important is it and how does it work?**\
+`Filtering players through data and video before scouting them live has become an integral part of the recruitment process across Europe`\
+https://nytimes.com/athletic/5921848/2024/11/19/data-and-video-scouting-how-important-is-it-and-how-does-it-work/
+
 **Tuesday Briefing**\
 `Ukraine’s new military powers.`\
 https://nytimes.com/2024/11/19/world/europe/ukraine-trump-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-beguiling-but-bedrag
 **New Zealand Veers Sharply Right, Leaving Jacinda Ardern’s Era Behind**\
 `Two small populist parties are responsible for accelerating the shift, which has been felt acutely by the Indigenous Māori.`\
 https://nytimes.com/2024/11/18/us/new-zealand-conservative-maori-protest.html
-
-**Uncertainty for Loved Ones of Hong Kong’s Pro-Democracy Activists**\
-`Ventus Lau is one of 45 activists and politicians who was sentenced in the city’s biggest national security trial. His girlfriend, Emilia Wong, a gender rights activist, talks about the impact his case has had on their relationship.`\
-https://nytimes.com/video/world/asia/100000009830656/hong-kong-democrats-sentenced.html
-
-**Elvis Merzlikins' stinginess, 2 short-handed goals key Blue Jackets' win in Boston**\
-`A fantastic first period by the Blue Jackets goalie spurred the team to its first regulation win at TD Garden since 2016.`\
-https://nytimes.com/athletic/5931284/2024/11/18/blue-jackets-merzlikins-penalty-kill-bruins/
 
