@@ -2,7 +2,7 @@
 `This word has appeared in 141 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/19/learning/word-of-the-day-mischievous.html
 
-**What Putin Really Sees in Trump**\
+**Putin Sees America Hurtling to Disaster, With Trump at the Wheel**\
 `To the Kremlin, the president-elect is a harbinger of American collapse.`\
 https://nytimes.com/2024/11/19/opinion/putin-trump-russia-america.html
 
