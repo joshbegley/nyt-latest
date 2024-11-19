@@ -1,3 +1,7 @@
+**A Fast, French-y Chicken Dinner**\
+`Chicken au poivre is a fancy-feeling take on a velvety French classic.`\
+https://nytimes.com/2024/11/19/dining/a-fast-french-y-chicken-dinner.html
+
 **Spirit's Croix Bethune named NWSL Rookie of the Year**\
 `Bethune won the Rookie of the Month award for every month she was eligible.`\
 https://nytimes.com/athletic/5932234/2024/11/19/croix-bethune-spirit-nwsl-roty/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/realestate/caleb-simpson-apartments-new-york.html
 **Hacker Is Said to Have Gained Access to File With Damaging Testimony About Gaetz**\
 `The computer file is said to contain testimony from the woman who said she had sex with Matt Gaetz, President-elect Donald Trump’s choice to be attorney general, when she was 17.`\
 https://nytimes.com/2024/11/19/us/politics/matt-gaetz-hack-testimony.html
-
-**The Bounce: The Malice at the Palace turns 20 today!**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5931882/2024/11/19/ron-artest-pacers-pistons-malice-at-the-palace-nba-the-bounce/
 
