@@ -1,3 +1,7 @@
+**A Bizarre Love Triangle Playlist**\
+`Sabrina Carpenter, Loretta Lynn and SZA sing about all the points on a love triangle.`\
+https://nytimes.com/2024/11/19/arts/music/amplifier-newsletter-love-triangles-sabrina-carpenter.html
+
 **Dexter Lawrence on Giants' QB change: Daniel Jones is still team's best QB**\
 `“It’s tough. That’s my best friend. It’s tough for that to happen. I can’t control it."`\
 https://nytimes.com/athletic/5932545/2024/11/19/dexter-lawrence-giants-daniel-jones-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/dining/thanksgiving-lasagna.html
 **Game, Set, Match: Rafael Nadal loses to Botic van de Zandschulp in what could be his final match**\
 `The 22-time Grand Slam champion's physical limitations were laid bare in what could be his last appearance as a professional player.`\
 https://nytimes.com/athletic/5932319/2024/11/19/rafael-nadal-davis-cup-result-analysis-van-de-zandschulp/
-
-**Manhattan D.A. Suggests Freezing Trump’s Case While He Is President**\
-`With his sentencing on hold, lawyers for President-elect Donald J. Trump are pushing to dismiss the case. The district attorney, Alvin Bragg, is opposing the effort.`\
-https://nytimes.com/2024/11/19/nyregion/trump-bragg-manhattan-case.html
 
