@@ -1,3 +1,11 @@
+**What’s Killing Kids?**\
+`We explore America’s childhood death rate.`\
+https://nytimes.com/2024/11/19/briefing/childhood-death-rate.html
+
+**Putin Lowers Russia’s Threshold for Using Nuclear Arms**\
+`A decree signed by the Russian leader, though long-planned, came days after President Biden authorized the use of U.S.-supplied long-range missiles by Ukraine for strikes inside Russia.`\
+https://nytimes.com/2024/11/19/world/europe/putin-lowers-russias-threshold-for-using-nuclear-arms.html
+
 **Missed free throws haunt Warriors in loss to Clippers. 'It's a glaring issue'**\
 `The league's worst foul-shooting team hadn't had to worry too much about the problem before Monday night.`\
 https://nytimes.com/athletic/5921491/2024/11/19/warriors-free-throws-loss-clippers/

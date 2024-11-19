@@ -1,3 +1,11 @@
+**What’s Killing Kids?**\
+`We explore America’s childhood death rate.`\
+https://nytimes.com/2024/11/19/briefing/childhood-death-rate.html
+
+**Putin Lowers Russia’s Threshold for Using Nuclear Arms**\
+`A decree signed by the Russian leader, though long-planned, came days after President Biden authorized the use of U.S.-supplied long-range missiles by Ukraine for strikes inside Russia.`\
+https://nytimes.com/2024/11/19/world/europe/putin-lowers-russias-threshold-for-using-nuclear-arms.html
+
 **Missed free throws haunt Warriors in loss to Clippers. 'It's a glaring issue'**\
 `The league's worst foul-shooting team hadn't had to worry too much about the problem before Monday night.`\
 https://nytimes.com/athletic/5921491/2024/11/19/warriors-free-throws-loss-clippers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5930686/2024/11/19/vikings-run-game-offensive-line/
 **'He was something to see': Pete Maravich dribbles his way to No. 81 in 'The Basketball 100'**\
 `For Pete Maravich, an empty gymnasium meant freedom. If you gave him a basketball, he could see the future.`\
 https://nytimes.com/athletic/5930471/2024/11/19/pete-maravich-the-basketball-100-book-excerpt/
-
-**How to block shots like Chris Tanev, the Maple Leafs' 'Biscuit Eater'**\
-`Chris Tanev is on pace right now to block the most shots by any player since the league began tracking almost 20 years ago.`\
-https://nytimes.com/athletic/5930222/2024/11/19/maple-leafs-chris-tanev-blocked-shots/
-
-**NFL QB stock report, Week 12: Patrick Mahomes drops; Caleb Williams deserves your patience**\
-`Now at No. 3, this is the lowest Mahomes has been ranked in our debut season of the QB stock report.`\
-https://nytimes.com/athletic/5930327/2024/11/19/nfl-qb-stock-report-rankings-patrick-mahomes-caleb-williams/
 
