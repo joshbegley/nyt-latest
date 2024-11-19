@@ -1,3 +1,7 @@
+**Loan watch: Are Bajcetic, Gordon and more impressing?**\
+`When Arne Slot decided he was comfortable working with a small squad, opportunities opened up for Liverpool’s fringe players.`\
+https://nytimes.com/athletic/5929085/2024/11/19/liverpool-loan-bajcetic-gordon-doak/
+
 **Christian Pulisic on copying Donald Trump's dance: 'I just thought it was funny'**\
 `Pulisic is just the latest athlete to use the president-elect's signature moves to celebrate on the field.`\
 https://nytimes.com/athletic/5931389/2024/11/19/christian-pulisic-celebrates-usmnt-trump-dance/

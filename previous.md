@@ -1,3 +1,7 @@
+**Loan watch: Are Bajcetic, Gordon and more impressing?**\
+`When Arne Slot decided he was comfortable working with a small squad, opportunities opened up for Liverpool’s fringe players.`\
+https://nytimes.com/athletic/5929085/2024/11/19/liverpool-loan-bajcetic-gordon-doak/
+
 **Christian Pulisic on copying Donald Trump's dance: 'I just thought it was funny'**\
 `Pulisic is just the latest athlete to use the president-elect's signature moves to celebrate on the field.`\
 https://nytimes.com/athletic/5931389/2024/11/19/christian-pulisic-celebrates-usmnt-trump-dance/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/sports/basketball/bob-love-dead.html
 **Arsenal and Ethan Nwaneri: How quickly should clubs introduce academy talent to elite football?**\
 `There is always clamour for exciting youngsters to be fast-tracked into a club's first XI - but a patient approach is usually wisest`\
 https://nytimes.com/athletic/5924390/2024/11/19/arsenal-academy-pathway-nwaneri-arteta/
-
-**Data and video scouting – how important is it and how does it work?**\
-`Filtering players through data and video before scouting them live has become an integral part of the recruitment process across Europe`\
-https://nytimes.com/athletic/5921848/2024/11/19/data-and-video-scouting-how-important-is-it-and-how-does-it-work/
 
