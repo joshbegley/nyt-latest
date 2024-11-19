@@ -1,3 +1,15 @@
+**Canucks' J.T. Miller takes indefinite leave of absence from team**\
+`Miller emerged as a fan favorite and emotional leader of a Canucks team that vastly exceeded expectations during the 2023-24 campaign.`\
+https://nytimes.com/athletic/5932735/2024/11/19/jt-miller-canucks-indefinite-leave/
+
+**Civil War Toll Much Worse in Confederate States, New Estimates Show**\
+`An analysis of newly released 19th-century census records offers more insight into the conflict’s costs.`\
+https://nytimes.com/2024/11/19/health/civil-war-death-toll.html
+
+**Auston Matthews receiving treatment for injury in Germany**\
+`“It’s not alarming,” Leafs GM Brad Treliving stressed but Auston Matthews will likely miss a couple more games.`\
+https://nytimes.com/athletic/5932680/2024/11/19/auston-matthews-injury-germany/
+
 **A Bizarre Love Triangle Playlist**\
 `Sabrina Carpenter, Loretta Lynn and SZA sing about all the points on a love triangle.`\
 https://nytimes.com/2024/11/19/arts/music/amplifier-newsletter-love-triangles-sabrina-carpenter.html
