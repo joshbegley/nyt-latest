@@ -1,3 +1,7 @@
+**Amick: Cavs' Kenny Atkinson effect, Jayson Tatum's MVP case, Sixers spiraling and more**\
+`Atkinson's journey to the Cavs has been unique, while Tatum has been amazing for the Celtics. Plus, the Nets appear open to trades.`\
+https://nytimes.com/athletic/5931434/2024/11/19/cavaliers-jayson-tatum-mvp-celtics/
+
 **Ivan Taylor, son of Super Bowl champion safety Ike, flips from Michigan to Bama**\
 `If Taylor comes to Tuscaloosa ready, he could carve out a role in the Crimson Tide defense as early as next fall.`\
 https://nytimes.com/athletic/5932038/2024/11/19/ivan-taylor-commitment-alabama-michigan/

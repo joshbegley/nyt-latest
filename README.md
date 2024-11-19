@@ -1,3 +1,11 @@
+**Spirit owner Kang pledges $30million into women's soccer programs**\
+`The donation is the largest donation ever made to the organization by a woman.`\
+https://nytimes.com/athletic/5932040/2024/11/19/michele-kang-investment-women-soccer/
+
+**What we learned about the Rockets in loss to the struggling Bucks**\
+`"They just try to attack mismatches so it's on us to know which one and adjust," Rockets' Tari Eason said after the 101-100 loss.`\
+https://nytimes.com/athletic/5931426/2024/11/19/rockets-struggling-bucks-win/
+
 **Amick: Cavs' Kenny Atkinson effect, Jayson Tatum's MVP case, Sixers spiraling and more**\
 `Atkinson's journey to the Cavs has been unique, while Tatum has been amazing for the Celtics. Plus, the Nets appear open to trades.`\
 https://nytimes.com/athletic/5931434/2024/11/19/cavaliers-jayson-tatum-mvp-celtics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5931439/2024/11/19/canucks-miller-benching-defense/
 **They Taught A.I. to Sing, and It Was Beautiful**\
 `Holly Herndon and Matt Dryhurst are presenting their first large-scale solo museum show. It sounds gorgeous, even if its visual elements are lacking.`\
 https://nytimes.com/2024/11/19/arts/design/holly-herndon-matt-dryhurst-serpentine-galleries.html
-
-**‘Barbenheimer’ Ruled the Box Office. Can ‘Glicked’ Recapture the Magic?**\
-`“Wicked” and “Gladiator II” both open Friday, and some fans hope to rekindle the excitement that greeted last year’s simultaneous openings of “Barbie” and “Oppenheimer.”`\
-https://nytimes.com/2024/11/19/movies/glicked-wicked-gladiator-ii.html
-
-**Access all areas with Canada in Suriname: Travelling with Marsch, team meetings and playing Mafia**\
-`The Athletic is granted access never previously allowed, travelling with Canada's players by plane and bus on their long trip to Suriname`\
-https://nytimes.com/athletic/5929141/2024/11/19/canada-suriname-access-all-areas/
 
