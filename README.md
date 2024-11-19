@@ -1,9 +1,21 @@
+**Could Trump Hire Gaetz Without Senate Approval? A Recess Appointment Primer**\
+`The Constitution allows the president to circumvent the Senate and install appointees while the chamber is in recess, an arcane loophole created back when Capitol commutes involved long treks by horse.`\
+https://nytimes.com/2024/11/19/us/recess-appointment-trump-matt-gaetz.html
+
+**How to Make Your Sofa Look Even More Inviting**\
+`Expert advice from interior designers on going beyond the standard two-pillows-and-a-throw treatment.`\
+https://nytimes.com/2024/11/19/t-magazine/sofa-couch-pillows-style.html
+
+**NFL MVP odds: Josh Allen takes over lead from Lamar Jackson**\
+`Josh Allen has emerged as the favorite to win NFL MVP after the Bills' big win against the Chiefs.`\
+https://nytimes.com/athletic/5932338/2024/11/19/nfl-mvp-odds-josh-allen-lamar-jackson/
+
 **22 Patrons Stuck for 2 Hours on a Pinwheel Ride in California**\
 `Two of the riders at Knott’s Berry Farm in Orange County were taken to the hospital after the malfunction on Monday.`\
 https://nytimes.com/2024/11/19/us/knotts-berry-farm-ride-stuck.html
 
-**Texas Education Board Backs Bible-Infused Lessons in Public Schools**\
-`School districts serving more than 2 million elementary-school children would be able to adopt a curriculum that draws on the Bible.`\
+**Texas Education Board Backs Curriculum With Lessons Drawn From Bible**\
+`School districts serving more than two million elementary school children would be able to adopt a curriculum that draws on the Bible.`\
 https://nytimes.com/2024/11/19/us/texas-bible-curriculum-public-schools.html
 
 **Thanksgiving Lasagna Is the Best Lasagna**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5932536/2024/11/19/nfl-best-bets-week-12-harbaugh-b
 **College football best bets Week 13: BYU is in danger of another loss**\
 `Austin Mock's model has identified several bets for college football Week 13, including picking against a CFP contender.`\
 https://nytimes.com/athletic/5932455/2024/11/19/college-football-best-bets-week-13-texas-am-arizona-state/
-
-**Commanders return to RFK Stadium alive after Senate committee vote**\
-`The U.S. Senate’s Energy and Natural Resources Committee passed a bill allowing the District of Columbia government to control federal land.`\
-https://nytimes.com/athletic/5932523/2024/11/19/washington-commanders-rfk-stadium-senate-committee-bill-passed/
-
-**Filip Chytil to rejoin Rangers after avoiding concussion: Source**\
-`Chytil missed all but 10 regular-season games and six playoff games last season after suffering a concussion in 2023.`\
-https://nytimes.com/athletic/5925546/2024/11/19/filip-chytil-rangers-return/
-
-**Capitals' Ovechkin week to week with injury, halting pursuit of goals record**\
-`The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
-https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/
 
