@@ -1,3 +1,7 @@
+**Quote of the Day: Beguiling but Bedraggled, A Pink Sentinel by the Sea Gets a Reprieve, for Now**\
+`Quotation of the Day for Tuesday, November 19, 2024.`\
+https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-beguiling-but-bedraggled-a-pink-sentinel-by-the-sea-gets-a-reprieve-for-now.html
+
 **New Zealand Veers Sharply Right, Leaving Jacinda Ardern’s Era Behind**\
 `Two small populist parties are responsible for accelerating the shift, which has been felt acutely by the Indigenous Māori.`\
 https://nytimes.com/2024/11/18/us/new-zealand-conservative-maori-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/health/wyoming-abortion-ban-overturned.html
 **Dozens of Hong Kong Pro-Democracy Leaders Sentenced in Mass Trial**\
 `The 45 defendants, including Joshua Wong, were at the forefront of the opposition movement crushed by Beijing. Many had already been in jail for years.`\
 https://nytimes.com/2024/11/18/world/asia/hong-kong-democrats-sentenced.html
-
-**Jackson Merrill's rookie accomplishments make case Padres should have been rewarded**\
-`Merrill finished second to Paul Skenes for the National League's Rookie of the Year, preventing the Padres from netting an extra draft pick.`\
-https://nytimes.com/athletic/5931153/2024/11/18/jackson-merrill-rookie-draft-pick-ppi/
 

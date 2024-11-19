@@ -1,3 +1,7 @@
+**Quote of the Day: Beguiling but Bedraggled, A Pink Sentinel by the Sea Gets a Reprieve, for Now**\
+`Quotation of the Day for Tuesday, November 19, 2024.`\
+https://nytimes.com/2024/11/18/pageoneplus/quote-of-the-day-beguiling-but-bedraggled-a-pink-sentinel-by-the-sea-gets-a-reprieve-for-now.html
+
 **New Zealand Veers Sharply Right, Leaving Jacinda Ardern’s Era Behind**\
 `Two small populist parties are responsible for accelerating the shift, which has been felt acutely by the Indigenous Māori.`\
 https://nytimes.com/2024/11/18/us/new-zealand-conservative-maori-protest.html
