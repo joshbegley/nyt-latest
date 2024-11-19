@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5932819/2024/11/19/49ers-mailbag-kyle-shanahan-wind
 
 **For Russia, Nuclear Weapons Are the Ultimate Bargaining Chip**\
 `The Ukraine war has not only shattered millions of lives and shaken Europe. It also has inured Washington to the use of nuclear threats as leverage.`\
-https://nytimes.com/2024/11/19/us/politics/for-russia-nuclear-weapons-are-the-ultimate-bargaining-chip.html
+https://nytimes.com/2024/11/19/us/politics/russia-nuclear-weapons-ukraine.html
 
 **How Trump Can Earn a Place in History That He Did Not Expect**\
 `The president-elect has a starting point: the plan for a two-state solution that he put out in January 2020.`\
