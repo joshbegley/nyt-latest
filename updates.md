@@ -1,3 +1,15 @@
+**Nadal would not pick himself to play singles for Spain at the Davis Cup after defeat**\
+`The 22-time Grand Slam champion lost what could be his final tennis match in the first rubber of Spain's tie against the Netherlands.`\
+https://nytimes.com/athletic/5932976/2024/11/19/rafael-nadal-davis-cup-spain/
+
+**Bruins fire coach Jim Montgomery after 8-9-3 start, name Joe Sacco interim replacement**\
+`Montgomery completes his Bruins run with a 120-41-23 record, but this season, the Bruins have had all kinds of issues.`\
+https://nytimes.com/athletic/5890537/2024/11/19/bruins-fire-jim-montgomery-coach/
+
+**At 17, She Just Passed the State Bar of California**\
+`Sophia Park is believed to be the youngest person to pass the California State Bar Exam, besting the previous record-holder: her older brother, Peter.`\
+https://nytimes.com/2024/11/19/us/california-bar-exam-sophia-park.html
+
 **Asheville Gets Drinkable Tap Water Back After Hurricane Helene**\
 `There was a sense of relief in the city, though some residents said they were still afraid to drink the water.`\
 https://nytimes.com/2024/11/19/us/asheville-water-hurricane-helene.html
