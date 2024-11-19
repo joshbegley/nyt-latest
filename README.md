@@ -1,3 +1,7 @@
+**Penguins Today: A Sidney Crosby vs. Paul Skenes showdown?**\
+`Would you want to stand in the batter's box against Paul Skenes? Sidney Crosby does.`\
+https://nytimes.com/athletic/5932066/2024/11/19/penguins-today-sidney-crosby-paul-skenes/
+
 **RFK Racing adding third NASCAR Cup team, signing Ryan Preece**\
 `RFK Racing is also inking a deal with marquee sponsor Kroger, one of the biggest supermarket chains in the United States.`\
 https://nytimes.com/athletic/5932028/2024/11/19/nascar-rfk-racing-expansion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5834883/2024/11/19/nhl-standings-playoffs-projectio
 **UMass job profile: With MAC move coming, it's not as bleak as you think**\
 `The Minutemen are rejoining a conference next season and believe their coaching opening is better than it has been in the past.`\
 https://nytimes.com/athletic/5931921/2024/11/19/umass-football-coaching-search-candidate/
-
-**Canucks notebook: Benching J.T. Miller and is there a fix for the second pair?**\
-`Also in the notebook, a look at how the Canucks are navigating an inconsistent stretch without Thatcher Demko in net.`\
-https://nytimes.com/athletic/5931439/2024/11/19/canucks-miller-benching-defense/
 
