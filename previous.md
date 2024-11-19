@@ -1,3 +1,11 @@
+**Giannis' block, Damian Lillard's bucket help Bucks escape with win over Rockets**\
+`In a gritty, physical contest, Antetokounmpo and Lillard came up big when the Bucks needed it most. `\
+https://nytimes.com/athletic/5931625/2024/11/19/giannis-antetokounmpo-damian-lillard-bucks-rockets/
+
+**Fan apathy setting in? Jerry Jones says 'better days ahead' for Cowboys**\
+`Jerry Jones explained the roof situation and Texans fans (and empty seats) left their mark Monday night.`\
+https://nytimes.com/athletic/5932288/2024/11/19/cowboys-today-stadium-roof-texans-fans/
+
 **FAU coaching job profile: What will Tom Herman's replacement inherit?**\
 `What the Owls lack in tradition, they make up for in possibility.`\
 https://nytimes.com/athletic/5932266/2024/11/19/fau-football-coaching-job-profile-candidates/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/19/world/europe/france-rape-trial-gisele-pelicot.htm
 **Trump Promised Sweeping Economic Changes. Can Republicans Turn Them Into Law?**\
 `Republicans are juggling complex political and tactical questions as they plan their congressional agenda next year.`\
 https://nytimes.com/2024/11/19/us/politics/trump-tax-cuts-congress.html
-
-**Fantasy football Week 12 drops: Part ways with DeAndre Hopkins, Kyle Pitts**\
-`Gary Davenport gives advice on who to drop ahead of Week 12, including a few RBs who aren't getting enough work to remain rostered.  `\
-https://nytimes.com/athletic/5931946/2024/11/19/nfl-fantasy-footall-week-12-drops/
-
-**Trump Defies the #MeToo Movement With Cabinet Picks Facing Accusations**\
-`Donald J. Trump, who was found liable for sexual abuse last year, appears determined to force a fight over the role of such allegations in society.`\
-https://nytimes.com/2024/11/19/us/politics/trump-women-metoo.html
 

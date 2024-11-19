@@ -1,3 +1,11 @@
+**Giannis' block, Damian Lillard's bucket help Bucks escape with win over Rockets**\
+`In a gritty, physical contest, Antetokounmpo and Lillard came up big when the Bucks needed it most. `\
+https://nytimes.com/athletic/5931625/2024/11/19/giannis-antetokounmpo-damian-lillard-bucks-rockets/
+
+**Fan apathy setting in? Jerry Jones says 'better days ahead' for Cowboys**\
+`Jerry Jones explained the roof situation and Texans fans (and empty seats) left their mark Monday night.`\
+https://nytimes.com/athletic/5932288/2024/11/19/cowboys-today-stadium-roof-texans-fans/
+
 **FAU coaching job profile: What will Tom Herman's replacement inherit?**\
 `What the Owls lack in tradition, they make up for in possibility.`\
 https://nytimes.com/athletic/5932266/2024/11/19/fau-football-coaching-job-profile-candidates/
