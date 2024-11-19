@@ -1,3 +1,7 @@
+**Inching Toward a Fusion Energy Future**\
+`A handful of startups are racing to usher in an era of near-limitless fusion energy, but big questions remain.`\
+https://nytimes.com/2024/11/19/climate/fusion-energy-startups.html
+
 **Canucks' J.T. Miller takes indefinite leave of absence from team**\
 `Miller emerged as a fan favorite and emotional leader of a Canucks team that vastly exceeded expectations during the 2023-24 campaign.`\
 https://nytimes.com/athletic/5932735/2024/11/19/jt-miller-canucks-indefinite-leave/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/t-magazine/sofa-couch-pillows-style.html
 **NFL MVP odds: Josh Allen takes over lead from Lamar Jackson**\
 `Josh Allen has emerged as the favorite to win NFL MVP after the Bills' big win against the Chiefs.`\
 https://nytimes.com/athletic/5932338/2024/11/19/nfl-mvp-odds-josh-allen-lamar-jackson/
-
-**22 Patrons Stuck for 2 Hours on a Pinwheel Ride in California**\
-`Two of the riders at Knott’s Berry Farm in Orange County were taken to the hospital after the malfunction on Monday.`\
-https://nytimes.com/2024/11/19/us/knotts-berry-farm-ride-stuck.html
 
