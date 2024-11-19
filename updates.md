@@ -1,3 +1,15 @@
+**UEFA Nations League: Who was promoted and who could win the trophy?**\
+`The group stage of the UEFA Nations League concluded on Tuesday, so who were promoted and relegated and who could win the competition?`\
+https://nytimes.com/athletic/5929897/2024/11/19/uefa-nations-league-promotion-relegation/
+
+**Physicist Who Made Superconductor Claims Exits University of Rochester**\
+`Journals had retracted papers on superconductors that worked at room temperature and materials science that involved Ranga Dias.`\
+https://nytimes.com/2024/11/19/science/ranga-dias-rochester-superconductor.html
+
+**Are we witnessing the end of the Bruins' era as a contender?**\
+`In breaking down the team's uncharacteristically bad start, it feels like the door on Boston’s era of contention could be closing. `\
+https://nytimes.com/athletic/5932395/2024/11/19/boston-bruins-contender-end-of-era/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/11/19/opinion/thepoint

@@ -1,3 +1,15 @@
+**UEFA Nations League: Who was promoted and who could win the trophy?**\
+`The group stage of the UEFA Nations League concluded on Tuesday, so who were promoted and relegated and who could win the competition?`\
+https://nytimes.com/athletic/5929897/2024/11/19/uefa-nations-league-promotion-relegation/
+
+**Physicist Who Made Superconductor Claims Exits University of Rochester**\
+`Journals had retracted papers on superconductors that worked at room temperature and materials science that involved Ranga Dias.`\
+https://nytimes.com/2024/11/19/science/ranga-dias-rochester-superconductor.html
+
+**Are we witnessing the end of the Bruins' era as a contender?**\
+`In breaking down the team's uncharacteristically bad start, it feels like the door on Boston’s era of contention could be closing. `\
+https://nytimes.com/athletic/5932395/2024/11/19/boston-bruins-contender-end-of-era/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/11/19/opinion/thepoint
@@ -21,20 +33,4 @@ https://nytimes.com/2024/11/19/us/california-bar-exam-sophia-park.html
 **Asheville Gets Drinkable Tap Water Back After Hurricane Helene**\
 `There was a sense of relief in the city, though some residents said they were still afraid to drink the water.`\
 https://nytimes.com/2024/11/19/us/asheville-water-hurricane-helene.html
-
-**Wednesday Briefing: Ukraine hits Russia with U.S. Missiles**\
-`Plus, the Scandinavian band that’s big in Asia.`\
-https://nytimes.com/2024/11/19/briefing/russia-ukraine-trump-hong-kong.html
-
-**House Republicans Target McBride With Capitol Bathroom Bill**\
-`G.O.P. lawmakers whose leaders have pressed to roll back transgender rights around the country moved to bar Sarah McBride, the first transgender member of Congress, from women’s rooms on Capitol Hill.`\
-https://nytimes.com/2024/11/19/us/politics/sarah-mcbride-nancy-mace-capitol-bathroom-bill.html
-
-**Reds' Nick Martinez only player to accept qualifying offer**\
-`Of the 144 players who've received a qualifying offer since the system was implemented in 2012, Martinez is just the 14th to accept one.`\
-https://nytimes.com/athletic/5933101/2024/11/19/mlb-2024-qualifying-offer-decisions/
-
-**49ers mailbag: Is Kyle Shanahan losing the locker room? Is the window closing?**\
-`Among this week's questions: Which players have been pleasant surprises this year and which have been surprise disappointments?`\
-https://nytimes.com/athletic/5932819/2024/11/19/49ers-mailbag-kyle-shanahan-window-closing/
 
