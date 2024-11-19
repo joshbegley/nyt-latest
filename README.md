@@ -1,3 +1,7 @@
+**Canucks notebook: Benching J.T. Miller and is there a fix for the second pair?**\
+`Also in the notebook, a look at how the Canucks are navigating an inconsistent stretch without Thatcher Demko in net.`\
+https://nytimes.com/athletic/5931439/2024/11/19/canucks-miller-benching-defense/
+
 **They Taught A.I. to Sing, and It Was Beautiful**\
 `Holly Herndon and Matt Dryhurst are presenting their first large-scale solo museum show. It sounds gorgeous, even if its visual elements are lacking.`\
 https://nytimes.com/2024/11/19/arts/design/holly-herndon-matt-dryhurst-serpentine-galleries.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/19/us/trump-news-live-updates
 **NFL Week 11 best and worst coaching decisions: Bills' Sean McDermott keeps Chiefs guessing**\
 `Buffalo made it hard on Patrick Mahomes and the KC offense, and the Seahawks foiled the 49ers with well-timed blitzes.`\
 https://nytimes.com/athletic/5927771/2024/11/19/nfl-week-11-worst-best-coaching-decisions-nguyen/
-
-**Spurs have 'remastered' their 'brand identity' - but what does that actually mean?**\
-`Tottenham announced they had “remastered” their brand identity. For anyone left confused by that phrase, don’t worry, you were not alone`\
-https://nytimes.com/athletic/5930058/2024/11/19/tottenham-new-badge-logo/
 
