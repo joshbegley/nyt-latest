@@ -1,3 +1,7 @@
+**USMNT 4, Jamaica 2: Strong team performance sees U.S. through to Nations League semifinals**\
+`How the USMNT beat Jamaica in the 2024 CONCACAF Nations League`\
+https://nytimes.com/athletic/5931285/2024/11/18/usmnt-christian-pulisic-jamaica-nations-league/
+
 **Head Over Heels**\
 `Erik Agard runs down the clock.`\
 https://nytimes.com/2024/11/18/crosswords/daily-puzzle-2024-11-19.html
@@ -33,10 +37,4 @@ https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
 **Arthur Frommer, 95, Dies; His Guidebooks Opened Travel to the Masses**\
 `After publishing “Europe on 5 Dollars a Day” in 1957, he went on to build an empire of guidebooks, package tours, hotels and other services.`\
 https://nytimes.com/2024/11/18/books/arthur-frommer-dead.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>It could just be me, but it feels like this was the week where people started preemptively freaking out about the College Football Playoff field. We don&#8217;t know what the controversy will be exactly, but surely it will be bad.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/5931143/2024/11/18/submit-a-question-for-stewart-mandels-college-football-mailbag-282/
 
