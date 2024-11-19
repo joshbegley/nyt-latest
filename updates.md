@@ -1,3 +1,11 @@
+**What Special Community Rituals and Traditions Does Your Hometown Have?**\
+`Every year, Santa Fe, N.M., incinerates a giant puppet of Zozobra in a ritual meant to purge anxiety and promote a reset.`\
+https://nytimes.com/2024/11/19/learning/what-special-community-rituals-and-traditions-does-your-hometown-have.html
+
+**Severing of Baltic Sea Cables Was ‘Sabotage,’ Germany Says**\
+`Germany’s defense minister said damage to two fiber-optic cables on the sea floor appeared deliberate, but a culprit was not known.`\
+https://nytimes.com/2024/11/19/business/finland-germany-cable-baltic-sea.html
+
 **Marvin Mims Jr.'s new role highlights Sean Payton's creativity with Broncos offense**\
 `The second-year receiver has carried the ball six times in the past two games, putting more on the plate of opposing defenses.`\
 https://nytimes.com/athletic/5928966/2024/11/19/marvin-mims-broncos-offense-sean-payton/

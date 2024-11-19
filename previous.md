@@ -1,3 +1,11 @@
+**What Special Community Rituals and Traditions Does Your Hometown Have?**\
+`Every year, Santa Fe, N.M., incinerates a giant puppet of Zozobra in a ritual meant to purge anxiety and promote a reset.`\
+https://nytimes.com/2024/11/19/learning/what-special-community-rituals-and-traditions-does-your-hometown-have.html
+
+**Severing of Baltic Sea Cables Was ‘Sabotage,’ Germany Says**\
+`Germany’s defense minister said damage to two fiber-optic cables on the sea floor appeared deliberate, but a culprit was not known.`\
+https://nytimes.com/2024/11/19/business/finland-germany-cable-baltic-sea.html
+
 **Marvin Mims Jr.'s new role highlights Sean Payton's creativity with Broncos offense**\
 `The second-year receiver has carried the ball six times in the past two games, putting more on the plate of opposing defenses.`\
 https://nytimes.com/athletic/5928966/2024/11/19/marvin-mims-broncos-offense-sean-payton/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/19/briefing/childhood-death-rate.html
 **Putin Lowers Russia’s Threshold for Using Nuclear Arms**\
 `A decree signed by the Russian leader, though long-planned, came days after President Biden authorized the use of U.S.-supplied long-range missiles by Ukraine for strikes inside Russia.`\
 https://nytimes.com/2024/11/19/world/europe/putin-russia-nuclear-weapons-missiles.html
-
-**Missed free throws haunt Warriors in loss to Clippers. 'It's a glaring issue'**\
-`The league's worst foul-shooting team hadn't had to worry too much about the problem before Monday night.`\
-https://nytimes.com/athletic/5921491/2024/11/19/warriors-free-throws-loss-clippers/
-
-**U.K. Farmers Protest in London Over Inheritance Tax Change**\
-`Farms worth more than about $1.3 million will face an estate tax from 2026, ending a previous exemption and prompting anger in some rural communities.`\
-https://nytimes.com/2024/11/19/world/europe/uk-farmers-protest-inheritance-tax.html
 
