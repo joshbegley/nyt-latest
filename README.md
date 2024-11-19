@@ -1,6 +1,14 @@
+**Delhi Trudges Through Another Air Pollution Nightmare With No Answers**\
+`The government seems powerless to protect its citizens from this annual crisis, let alone prevent it.`\
+https://nytimes.com/2024/11/19/world/asia/india-delhi-air-pollution.html
+
 **A Fast, French-y Chicken Dinner**\
 `Chicken au poivre is a fancy-feeling take on a velvety French classic.`\
 https://nytimes.com/2024/11/19/dining/a-fast-french-y-chicken-dinner.html
+
+**Nadal will play Davis Cup singles for Spain against Netherlands**\
+`MALAGA, Spain — Rafael Nadal will open Spain&#8217;s Davis Cup tie against the Netherlands today, Tuesday November 19 in his last tournament before retiring from tennis.`\
+https://nytimes.com/athletic/5932159/2024/11/19/nadal-davis-cup-singles-netherlands-match/
 
 **Spirit's Croix Bethune named NWSL Rookie of the Year**\
 `Bethune won the Rookie of the Month award for every month she was eligible.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/19/us/politics/trump-women-metoo.html
 **Scoop City: Critical stats for 9 contenders**\
 `A brief look at the critical stats where nine contenders (from Kansas City to Baltimore) are undefeated, plus Week 12 fantasy prep`\
 https://nytimes.com/athletic/5932228/2024/11/19/nfl-contenders-stats-2024-bills-chiefs-scoop-city/
-
-**‘Excuse Me! How Much Do You Pay for Rent in New York?’**\
-`When we asked the online celeb Caleb Simpson if he would give us a tour of his house, he said “Yes.” Here’s what we found.`\
-https://nytimes.com/2024/11/19/realestate/caleb-simpson-apartments-new-york.html
-
-**Hacker Is Said to Have Gained Access to File With Damaging Testimony About Gaetz**\
-`The computer file is said to contain testimony from the woman who said she had sex with Matt Gaetz, President-elect Donald Trump’s choice to be attorney general, when she was 17.`\
-https://nytimes.com/2024/11/19/us/politics/matt-gaetz-hack-testimony.html
 
