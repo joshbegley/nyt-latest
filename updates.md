@@ -1,3 +1,7 @@
+**Wiegman names England squad for USWNT and Switzerland friendlies**\
+`Sarina Wiegman has handed first senior call-ups to Manchester City&#8217;s Laura Blindkilde Brown and Leicester City&#8217;s Ruby Mace ahead of England&#8217;s final two international friendlies of the year.`\
+https://nytimes.com/athletic/5931601/2024/11/19/england-women-squad-uswnt-switzerland/
+
 **Unbeaten Cavaliers are just getting started as a threat in the East**\
 `The undefeated Cavs have the youth and financial flexibility to contend in the East for a while. `\
 https://nytimes.com/athletic/5931497/2024/11/19/cleveland-cavaliers-undefeated-donovan-mitchell-evan-mobley/
