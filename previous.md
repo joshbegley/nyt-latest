@@ -1,5 +1,9 @@
+**Heat Today: Miami happy to have Jimmy Butler leading the way again**\
+`Butler returned to Miami's lineup in a big way Monday. How does he change the Heat's makeup?`\
+https://nytimes.com/athletic/5931492/2024/11/19/jimmy-butler-tyler-herro-miami-heat/
+
 **Walmart Sees ‘Momentum’ Ahead of Holiday Shopping Season**\
-`The company, a bellwether for the retail industry, said its U.S. sales rose 5 percent in the third quarter, as cost-conscious consumers of all incomes sought bargains.`\
+`The bellwether retailer reported higher-than-expected sales in its latest quarter and upgraded its forecast for the rest of the year.`\
 https://nytimes.com/2024/11/19/business/walmart-sales-holiday-shopping.html
 
 **Weekly Student News Quiz: Republican Win, Obesity Report, Rhesus Monkeys**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931567/2024/11/19/cowboys-season-disappointment-lo
 **Five Lakers trends from 5-game win streak: Knecht's breakout, LeBron's passing and more**\
 ` A starting lineup switch has worked, and Max Christie has reemerged during this recent run of success.`\
 https://nytimes.com/athletic/5928034/2024/11/19/lakers-win-streak-dalton-knecht-lebron-james/
-
-**The Pulse: Cowboys' sky and roof both falling**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5930169/2024/11/19/cowboys-texans-usmnt-pulisic-trump-the-pulse/
 

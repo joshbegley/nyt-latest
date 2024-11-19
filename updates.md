@@ -1,3 +1,11 @@
+**Heat Today: Miami happy to have Jimmy Butler leading the way again**\
+`Butler returned to Miami's lineup in a big way Monday. How does he change the Heat's makeup?`\
+https://nytimes.com/athletic/5931492/2024/11/19/jimmy-butler-tyler-herro-miami-heat/
+
+**Walmart Sees ‘Momentum’ Ahead of Holiday Shopping Season**\
+`The bellwether retailer reported higher-than-expected sales in its latest quarter and upgraded its forecast for the rest of the year.`\
+https://nytimes.com/2024/11/19/business/walmart-sales-holiday-shopping.html
+
 **Walmart Sees ‘Momentum’ Ahead of Holiday Shopping Season**\
 `The company, a bellwether for the retail industry, said its U.S. sales rose 5 percent in the third quarter, as cost-conscious consumers of all incomes sought bargains.`\
 https://nytimes.com/2024/11/19/business/walmart-sales-holiday-shopping.html
