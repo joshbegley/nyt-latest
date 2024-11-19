@@ -1,3 +1,11 @@
+**NHL referee taken to hospital after on-ice collision with Avalanche player**\
+`PHILADELPHIA — Referee Mitch Dunning was taken off the ice on a stretcher after a collision with a player during the first period of the game between the Philadelphia Flyers and the Colorado Avalanche game at Wells Fargo Center on Monday night.`\
+https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-manson/
+
+**Newsom Will Delay His Decision on Clemency for the Menendez Brothers**\
+`Gov. Gavin Newsom of California said he would hold off deciding whether to grant clemency to Lyle and Erik Menendez until after the incoming Los Angeles County district attorney reviewed the case.`\
+https://nytimes.com/2024/11/18/us/menendez-brothers-newsom-clemency.html
+
 **49ers minutia: Brock Purdy's sore shoulder; Jauan Jennings was great, other WRs absent**\
 `Purdy — who had five carries and took two sacks — emerged with a sore shoulder. Meanwhile, George Kittle should return this week.`\
 https://nytimes.com/athletic/5930609/2024/11/18/49ers-brock-purdy-shoulder-snap-counts/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/nyregion/drought-warning-new-york.html
 **NFL Week 11 inactives and fantasy tips: CeeDee Lamb, Nico Collins active for MNF**\
 `Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5925238/2024/11/18/nfl-week-11-inactives-and-fantasy-tips/
-
-**Charlotte fires coach Biff Poggi after less than 2 seasons**\
-`Poggi went 6-16 in two years.`\
-https://nytimes.com/athletic/5930916/2024/11/18/biff-poggi-charlotte-college-football-coach-fired/
-
-**Gaetz May Not Be Confirmed, Trump Admits. He’s Pushing Him and Others Anyway.**\
-`The president-elect is taking a flood-the-zone approach to his cabinet nominations, betting that the Senate won’t dare to turn them all down.`\
-https://nytimes.com/2024/11/18/us/politics/trump-cabinet.html
 

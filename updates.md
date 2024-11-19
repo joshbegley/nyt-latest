@@ -1,3 +1,11 @@
+**NHL referee taken to hospital after on-ice collision with Avalanche player**\
+`PHILADELPHIA — Referee Mitch Dunning was taken off the ice on a stretcher after a collision with a player during the first period of the game between the Philadelphia Flyers and the Colorado Avalanche game at Wells Fargo Center on Monday night.`\
+https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-manson/
+
+**Newsom Will Delay His Decision on Clemency for the Menendez Brothers**\
+`Gov. Gavin Newsom of California said he would hold off deciding whether to grant clemency to Lyle and Erik Menendez until after the incoming Los Angeles County district attorney reviewed the case.`\
+https://nytimes.com/2024/11/18/us/menendez-brothers-newsom-clemency.html
+
 **49ers minutia: Brock Purdy's sore shoulder; Jauan Jennings was great, other WRs absent**\
 `Purdy — who had five carries and took two sacks — emerged with a sore shoulder. Meanwhile, George Kittle should return this week.`\
 https://nytimes.com/athletic/5930609/2024/11/18/49ers-brock-purdy-shoulder-snap-counts/
