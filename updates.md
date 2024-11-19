@@ -1,3 +1,7 @@
+**Deion: 'I've got a kickstand down' in Colorado amid carousel speculation**\
+`Sanders' resurgent second season with Colorado has restarted speculation on whether a deeper-pocketed college or NFL team would call him.`\
+https://nytimes.com/athletic/5932826/2024/11/19/deion-sanders-colorado-coaching-carousel-rumors/
+
 **TKTS to Open Booth in Philadelphia, Hoping to Boost Local Theaters**\
 `The first domestic TKTS outpost outside New York comes at a time of rising concern about ticket prices and theater economics.`\
 https://nytimes.com/2024/11/19/theater/tkts-booth-philadelphia-theater.html
