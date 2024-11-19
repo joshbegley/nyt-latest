@@ -1,3 +1,11 @@
+**Arsenal and Ethan Nwaneri: How quickly should clubs introduce academy talent to elite football?**\
+`There is always clamour for exciting youngsters to be fast-tracked into a club's first XI - but a patient approach is usually wisest`\
+https://nytimes.com/athletic/5924390/2024/11/19/arsenal-academy-pathway-nwaneri-arteta/
+
+**Data and video scouting – how important is it and how does it work?**\
+`Filtering players through data and video before scouting them live has become an integral part of the recruitment process across Europe`\
+https://nytimes.com/athletic/5921848/2024/11/19/data-and-video-scouting-how-important-is-it-and-how-does-it-work/
+
 **Tuesday Briefing**\
 `Ukraine’s new military powers.`\
 https://nytimes.com/2024/11/19/world/europe/ukraine-trump-gaza.html
