@@ -1,3 +1,7 @@
+**Jackson Merrill's rookie accomplishments make case Padres should have been rewarded**\
+`Merrill finished second to Paul Skenes for the National League's Rookie of the Year, preventing the Padres from netting an extra draft pick.`\
+https://nytimes.com/athletic/5931153/2024/11/18/jackson-merrill-rookie-draft-pick-ppi/
+
 **Lawyer Says His Client Testified That She Saw Gaetz Having Sex With Underage Girl**\
 `The lawyer told multiple news outlets about the testimony, before the House Ethics Committee, in which the client described witnessing Matt Gaetz having sex with the girl at a party in 2017.`\
 https://nytimes.com/2024/11/18/us/politics/matt-gaetz-sex-allegations-house-ethics.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/11/18/arts/music/bee-gees-drummers-dead.html
 `The Dodgers did not enter this winter as the frontrunner for Soto. But it should come as little surprise that they are in the mix. `\
 https://nytimes.com/athletic/5931160/2024/11/18/juan-soto-los-angeles-dodgers-meeting/
 
-**Witness Describes Why Suspect in Laken Riley’s Murder Came to Georgia**\
+**Witness Describes Why Suspect in Laken Riley’s Murder Moved to Georgia**\
 `In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
 https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
 
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/18/us/menendez-brothers-newsom-clemency.html
 **49ers minutia: Brock Purdy's sore shoulder; Jauan Jennings was great, other WRs absent**\
 `Purdy — who had five carries and took two sacks — emerged with a sore shoulder. Meanwhile, George Kittle should return this week.`\
 https://nytimes.com/athletic/5930609/2024/11/18/49ers-brock-purdy-shoulder-snap-counts/
-
-**Sean Duffy, Fox Stalwart, Gets Trump’s Nod for Transportation Secretary**\
-`President-elect Donald J. Trump nominated the former representative from Wisconsin, who is married to a Fox News host, to oversee a sprawling agency that includes aviation, rail and transit.`\
-https://nytimes.com/2024/11/18/us/politics/sean-duffy-trump-transportation-dot.html
 

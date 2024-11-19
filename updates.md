@@ -1,3 +1,11 @@
+**Jackson Merrill's rookie accomplishments make case Padres should have been rewarded**\
+`Merrill finished second to Paul Skenes for the National League's Rookie of the Year, preventing the Padres from netting an extra draft pick.`\
+https://nytimes.com/athletic/5931153/2024/11/18/jackson-merrill-rookie-draft-pick-ppi/
+
+**Witness Describes Why Suspect in Laken Riley’s Murder Moved to Georgia**\
+`In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
+https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
+
 **Lawyer Says His Client Testified That She Saw Gaetz Having Sex With Underage Girl**\
 `The lawyer told multiple news outlets about the testimony, before the House Ethics Committee, in which the client described witnessing Matt Gaetz having sex with the girl at a party in 2017.`\
 https://nytimes.com/2024/11/18/us/politics/matt-gaetz-sex-allegations-house-ethics.html
