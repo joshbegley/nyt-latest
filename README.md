@@ -1,3 +1,7 @@
+**Dodgers expected to meet with Juan Soto on Tuesday: Reports**\
+`The Dodgers did not enter this winter as the frontrunner for Soto. But it should come as little surprise that they are in the mix. `\
+https://nytimes.com/athletic/5931160/2024/11/18/juan-soto-los-angeles-dodgers-meeting/
+
 **Witness Describes Why Suspect in Laken Riley’s Murder Came to Georgia**\
 `In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
 https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/18/opinion/columnists/elon-musk-twitter-bluesky.html
 **What a School Performance Shows Us About Japanese Education**\
 `A look into the Japanese educational system’s delicate balance between teamwork, discipline and personal growth.`\
 https://nytimes.com/2024/11/18/opinion/japan-education-childhood.html
-
-**Instruments of a Beating Heart**\
-`A look into the Japanese educational system’s delicate balance between teamwork, discipline and personal growth.`\
-https://nytimes.com/video/opinion/100000009295681/instruments-of-a-beating-heart.html
 
