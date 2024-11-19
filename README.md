@@ -1,3 +1,11 @@
+**Missed free throws haunt Warriors in loss to Clippers. 'It's a glaring issue'**\
+`The league's worst foul-shooting team hadn't had to worry too much about the problem before Monday night.`\
+https://nytimes.com/athletic/5921491/2024/11/19/warriors-free-throws-loss-clippers/
+
+**U.K. Farmers Protest in London Over Inheritance Tax Change**\
+`Farms worth more than about $1.3 million will face an estate tax from 2026, ending a previous exemption and prompting anger in some rural communities.`\
+https://nytimes.com/2024/11/19/world/europe/uk-farmers-protest-inheritance-tax.html
+
 **Man Drives Car Into Crowd Outside Primary School in China**\
 `The incident followed an attack by a driver last week that left 35 people dead, and a mass stabbing several days later.`\
 https://nytimes.com/2024/11/19/world/asia/china-school-car-ramming.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5930222/2024/11/19/maple-leafs-chris-tanev-blocked-
 **NFL QB stock report, Week 12: Patrick Mahomes drops; Caleb Williams deserves your patience**\
 `Now at No. 3, this is the lowest Mahomes has been ranked in our debut season of the QB stock report.`\
 https://nytimes.com/athletic/5930327/2024/11/19/nfl-qb-stock-report-rankings-patrick-mahomes-caleb-williams/
-
-**College Football Playoff stock watch: Can BYU and Tennessee escape the bubble?**\
-`Who's rising and falling in the College Football Playoff race? Georgia has to love its chances again, but BYU and Tennessee face climbs.`\
-https://nytimes.com/athletic/5930574/2024/11/19/college-football-playoff-odds-georgia-tennessee-byu/
-
-**The Penguins have hit rock bottom. What is the path forward?**\
-`The roster is flawed. The contracts are flawed. Even the coaching staff has become flawed. It's time for the Penguins to embrace change.`\
-https://nytimes.com/athletic/5930090/2024/11/19/nhl-penuins-rock-bottom/
 
