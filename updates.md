@@ -1,3 +1,11 @@
+**49ers mailbag: Is Kyle Shanahan losing the locker room? Is the window closing?**\
+`Among this week's questions: Which players have been pleasant surprises this year and which have been surprise disappointments?`\
+https://nytimes.com/athletic/5932819/2024/11/19/49ers-mailbag-kyle-shanahan-window-closing/
+
+**For Russia, Nuclear Weapons Are the Ultimate Bargaining Chip**\
+`The Ukraine war has not only shattered millions of lives and shaken Europe. It also has inured Washington to the use of nuclear threats as leverage.`\
+https://nytimes.com/2024/11/19/us/politics/for-russia-nuclear-weapons-are-the-ultimate-bargaining-chip.html
+
 **How Trump Can Earn a Place in History That He Did Not Expect**\
 `The president-elect has a starting point: the plan for a two-state solution that he put out in January 2020.`\
 https://nytimes.com/2024/11/19/opinion/donald-trump-israel-gaza.html
