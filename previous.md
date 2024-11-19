@@ -1,3 +1,7 @@
+**Where the Red Sox roster stands: Nick Pivetta declines QO, two prospects added**\
+`The Red Sox added Jhostynxon Garcia and Hunter Dobbins to the 40-man roster, and designated two pitching prospects for assignment.`\
+https://nytimes.com/athletic/5933581/2024/11/19/red-sox-roster-update-nick-pivetta/
+
 **The Secret to the Best Turkey Came From a Reader**\
 `Eric Kim cooked dozens of roast turkeys and taste-tested eight different recipes before landing on this clever approach.`\
 https://nytimes.com/2024/11/19/dining/best-thanksgiving-turkey-recipe.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5929205/2024/11/19/rafael-nadal-tennis-player-evolu
 **Guardians’ Stephen Vogt wins AL Manager of the Year in first season **\
 `Vogt, who had never managed at any level, is the fastest former player to win the Manager of the Year award.`\
 https://nytimes.com/athletic/5930941/2024/11/19/guardians-stephen-vogt-al-manager-of-the-year/
-
-**Atmospheric River and Hurricane-Strength Storm Set to Drench the West**\
-`A “bomb cyclone” over the Pacific Ocean could bring damaging winds, rainfall and blizzards to Northern California, Oregon and Washington.`\
-https://nytimes.com/2024/11/19/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
 

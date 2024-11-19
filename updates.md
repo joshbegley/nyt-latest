@@ -1,3 +1,7 @@
+**Where the Red Sox roster stands: Nick Pivetta declines QO, two prospects added**\
+`The Red Sox added Jhostynxon Garcia and Hunter Dobbins to the 40-man roster, and designated two pitching prospects for assignment.`\
+https://nytimes.com/athletic/5933581/2024/11/19/red-sox-roster-update-nick-pivetta/
+
 **The Secret to the Best Turkey Came From a Reader**\
 `Eric Kim cooked dozens of roast turkeys and taste-tested eight different recipes before landing on this clever approach.`\
 https://nytimes.com/2024/11/19/dining/best-thanksgiving-turkey-recipe.html
