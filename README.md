@@ -1,3 +1,7 @@
+**Nick Nurse, Daryl Morey safe amid Sixers' locker room drama: Sources**\
+`The 76ers are 2-11 following a loss to Miami and a team meeting in which Tyrese Maxey challenged star Joel Embiid about his habits.`\
+https://nytimes.com/athletic/5932957/2024/11/19/76ers-meeting-embiid-maxey-nick-nurse-daryl-morey/
+
 **Inter Miami head coach Martino resigns after MLS Cup exit**\
 `Inter Miami head coach Gerardo ‘Tata’ Martino has resigned due to personal reasons, according to multiple sources.`\
 https://nytimes.com/athletic/5932943/2024/11/19/tata-martino-resigns-coach-inter-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/climate/fusion-energy-startups.html
 **Canucks' J.T. Miller takes indefinite leave of absence from team**\
 `Miller emerged as a fan favorite and emotional leader of a Canucks team that vastly exceeded expectations during the 2023-24 campaign.`\
 https://nytimes.com/athletic/5932735/2024/11/19/jt-miller-canucks-indefinite-leave/
-
-**Civil War Toll Much Worse in Confederate States, New Estimates Show**\
-`An analysis of newly released 19th-century census records offers more insight into the conflict’s costs.`\
-https://nytimes.com/2024/11/19/health/civil-war-death-toll.html
 
