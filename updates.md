@@ -1,3 +1,7 @@
+**The Bounce: The Malice at the Palace turns 20 today!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5931882/2024/11/19/ron-artest-pacers-pistons-malice-at-the-palace-nba-the-bounce/
+
 **Trump, the Military and Plans for Mass Deportation**\
 `Questions about the president-elect’s plan, and a call for protests. Also: Tears after the election; funds for education; a roofless stadium in Buffalo.`\
 https://nytimes.com/2024/11/19/opinion/trump-military-mass-deportation.html
