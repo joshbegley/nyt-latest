@@ -1,3 +1,15 @@
+**College football best bets Week 13: BYU is in danger of another loss**\
+`Austin Mock's model has identified several bets for college football Week 13, including picking against a CFP contender.`\
+https://nytimes.com/athletic/5932455/2024/11/19/college-football-best-bets-week-13-texas-am-arizona-state/
+
+**Commanders return to RFK Stadium alive after Senate committee vote**\
+`The U.S. Senate’s Energy and Natural Resources Committee passed a bill allowing the District of Columbia government to control federal land.`\
+https://nytimes.com/athletic/5932523/2024/11/19/washington-commanders-rfk-stadium-senate-committee-bill-passed/
+
+**Filip Chytil to rejoin Rangers after avoiding concussion: Source**\
+`Chytil missed all but 10 regular-season games and six playoff games last season after suffering a concussion in 2023.`\
+https://nytimes.com/athletic/5925546/2024/11/19/filip-chytil-rangers-return/
+
 **Capitals' Ovechkin week to week with injury, halting pursuit of goals record**\
 `The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
 https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/
@@ -10,7 +22,7 @@ https://nytimes.com/2024/11/19/well/black-women-harris-trump-election-rest.html
 `The Blues said Thomas would be out four to six weeks. He returns against the Wild just ahead of that timeframe.`\
 https://nytimes.com/athletic/5932580/2024/11/19/blues-robert-thomas-return/
 
-**Jets fire GM Joe Douglas amid 3-8 season**\
+**Jets fire GM Joe Douglas: Why New York moved on now**\
 `Douglas was in his sixth season as the Jets general manager and the team has a 30-64 record during his tenure.`\
 https://nytimes.com/athletic/5932562/2024/11/19/jets-joe-douglas-fired/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/19/world/americas/brazil-soldiers-president-lula-ass
 **Daniel Boulud Opens La Tête d’Or, His First Steakhouse**\
 `Melissa Rodriguez opens Crane Club in the Al Coro space, the Anton’s team take on all-day Italian at Leon’s and more.`\
 https://nytimes.com/2024/11/19/dining/daniel-boulud-steakhouse.html
-
-**'Simpsons'-themed broadcast means Bengals-Cowboys won't be flexed**\
-`'Simpsons'-themed animations and broadcast packages tied to the Bengals and Cowboys have already been created.`\
-https://nytimes.com/athletic/5932410/2024/11/19/bengals-vs-cowboys-mnf-not-flexed-simpsons-alt-cast/
-
-**The Perfect Novel for the Baku Climate Summit**\
-`The U.N. climate conference, held in a petrostate, is a surreal moment. This darkly funny novel about Baku, oil companies and climate change in the first Trump term helps make sense of it all.`\
-https://nytimes.com/2024/11/19/climate/mobility-kiesling-baku-climate-summit.html
-
-**SpaceX Prepares for Sixth Starship Test Launch: What to Know**\
-`The company will try to catch the giant booster of its moon and Mars rocket for a second time on Tuesday afternoon.`\
-https://nytimes.com/2024/11/19/science/spacex-launch-starship.html
 
