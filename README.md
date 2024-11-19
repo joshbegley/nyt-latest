@@ -1,4 +1,4 @@
-**Christian Pulisic on doing the Donald Trump dance: 'I just thought it was funny'**\
+**Christian Pulisic on copying Donald Trump's dance: 'I just thought it was funny'**\
 `Pulisic is just the latest athlete to use the president-elect's signature moves to celebrate on the field.`\
 https://nytimes.com/athletic/5931389/2024/11/19/christian-pulisic-celebrates-usmnt-trump-dance/
 
