@@ -1,3 +1,7 @@
+**The Pulse: Cowboys' sky and roof both falling**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5930169/2024/11/19/cowboys-texans-usmnt-pulisic-trump-the-pulse/
+
 **U.S. Envoy Visits Lebanon, Seeking Truce Between Israel and Hezbollah**\
 `Amos Hochstein met with the speaker of the Lebanese Parliament amid efforts to stop the fighting.`\
 https://nytimes.com/2024/11/19/world/middleeast/us-envoy-lebanon-israel-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930978/2024/11/19/chiefs-mistakes-loss-bills/
 **'You beat me - a lot': Federer pays tribute to Nadal**\
 `Nadal, 38, will retire from tennis at the Davis Cup this week.`\
 https://nytimes.com/athletic/5931632/2024/11/19/federer-nadal-retirement-tribute/
-
-**Vikings' middling run game makes it abundantly clear — they need help on the interior OL**\
-`For three years, Minnesota has tried to boost its running game to no avail. This offseason, it's time to upgrade the interior O-line.`\
-https://nytimes.com/athletic/5930686/2024/11/19/vikings-run-game-offensive-line/
 
