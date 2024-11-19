@@ -1,3 +1,7 @@
+**Upon further review, Big Ten says Oregon has clinched spot in title game**\
+`Initially, Big Ten officials described one situation containing a possibility that remained for a Penn State-Ohio State rematch in Indy.`\
+https://nytimes.com/athletic/5933147/2024/11/19/oregon-big-ten-championship-game-tiebreakers/
+
 **UEFA Nations League: Who was promoted and who could win the trophy?**\
 `The group stage of the UEFA Nations League concluded on Tuesday, so who were promoted and relegated and who could win the competition?`\
 https://nytimes.com/athletic/5929897/2024/11/19/uefa-nations-league-promotion-relegation/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5890537/2024/11/19/bruins-fire-jim-montgomery-coach
 **At 17, She Just Passed the State Bar of California**\
 `Sophia Park is believed to be the youngest person to pass the California State Bar Exam, besting the previous record-holder: her older brother, Peter.`\
 https://nytimes.com/2024/11/19/us/california-bar-exam-sophia-park.html
-
-**Asheville Gets Drinkable Tap Water Back After Hurricane Helene**\
-`There was a sense of relief in the city, though some residents said they were still afraid to drink the water.`\
-https://nytimes.com/2024/11/19/us/asheville-water-hurricane-helene.html
 
