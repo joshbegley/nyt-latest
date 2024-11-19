@@ -1,3 +1,7 @@
+**Firing Montgomery is the only move the Bruins can make**\
+`A dismal 5-1 loss to the Blue Jackets needs to be the point of no return for Boston.`\
+https://nytimes.com/athletic/5931321/2024/11/18/bruins-montgomery-blue-jackets/
+
 **USMNT 4, Jamaica 2: Strong team performance sees U.S. through to Nations League semifinals**\
 `How the USMNT beat Jamaica in the 2024 CONCACAF Nations League.`\
 https://nytimes.com/athletic/5931285/2024/11/18/usmnt-christian-pulisic-jamaica-nations-league/

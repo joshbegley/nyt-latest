@@ -1,3 +1,7 @@
+**Firing Montgomery is the only move the Bruins can make**\
+`A dismal 5-1 loss to the Blue Jackets needs to be the point of no return for Boston.`\
+https://nytimes.com/athletic/5931321/2024/11/18/bruins-montgomery-blue-jackets/
+
 **USMNT 4, Jamaica 2: Strong team performance sees U.S. through to Nations League semifinals**\
 `How the USMNT beat Jamaica in the 2024 CONCACAF Nations League.`\
 https://nytimes.com/athletic/5931285/2024/11/18/usmnt-christian-pulisic-jamaica-nations-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931160/2024/11/18/juan-soto-los-angeles-dodgers-me
 **N.Y.C. Helped Migrant Accused of Killing Laken Riley Move to Georgia, Witness Says**\
 `In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
 https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
-
-**Arthur Frommer, 95, Dies; His Guidebooks Opened Travel to the Masses**\
-`After publishing “Europe on 5 Dollars a Day” in 1957, he went on to build an empire of guidebooks, package tours, hotels and other services.`\
-https://nytimes.com/2024/11/18/books/arthur-frommer-dead.html
 
