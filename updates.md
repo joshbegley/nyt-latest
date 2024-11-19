@@ -1,3 +1,7 @@
+**A Nostalgic Biden Fades Out of the Picture in Talks With World Leaders**\
+`As he made his final appearance at global gatherings, including at the Group of 20 summit in Brazil, President Biden lobbied for his foreign policy goals even as leaders shifted attention away from him.`\
+https://nytimes.com/2024/11/19/world/americas/biden-g20-summit.html
+
 **Market share report: Austin Ekeler is a cheat, Jauan Jennings is enviable and more**\
 `In his breakdown of the Week 11 market share, Michael Salfino says Austin Ekeler is a receiver masquerading as a running back.`\
 https://nytimes.com/athletic/5932761/2024/11/19/market-share-report-touches-targets-week-11-ekeler-jennings/
