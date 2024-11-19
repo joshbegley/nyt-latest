@@ -1,3 +1,7 @@
+**FAU coaching job profile: What will Tom Herman's replacement inherit?**\
+`What the Owls lack in tradition, they make up for in possibility.`\
+https://nytimes.com/athletic/5932266/2024/11/19/fau-football-coaching-job-profile-candidates/
+
 **Delhi Trudges Through Another Air Pollution Nightmare With No Answers**\
 `The government seems powerless to protect its citizens from this annual crisis, let alone prevent it.`\
 https://nytimes.com/2024/11/19/world/asia/india-delhi-air-pollution.html

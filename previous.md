@@ -1,3 +1,7 @@
+**FAU coaching job profile: What will Tom Herman's replacement inherit?**\
+`What the Owls lack in tradition, they make up for in possibility.`\
+https://nytimes.com/athletic/5932266/2024/11/19/fau-football-coaching-job-profile-candidates/
+
 **Delhi Trudges Through Another Air Pollution Nightmare With No Answers**\
 `The government seems powerless to protect its citizens from this annual crisis, let alone prevent it.`\
 https://nytimes.com/2024/11/19/world/asia/india-delhi-air-pollution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931946/2024/11/19/nfl-fantasy-footall-week-12-drop
 **Trump Defies the #MeToo Movement With Cabinet Picks Facing Accusations**\
 `Donald J. Trump, who was found liable for sexual abuse last year, appears determined to force a fight over the role of such allegations in society.`\
 https://nytimes.com/2024/11/19/us/politics/trump-women-metoo.html
-
-**Scoop City: Critical stats for 9 contenders**\
-`A brief look at the critical stats where nine contenders (from Kansas City to Baltimore) are undefeated, plus Week 12 fantasy prep`\
-https://nytimes.com/athletic/5932228/2024/11/19/nfl-contenders-stats-2024-bills-chiefs-scoop-city/
 
