@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5932523/2024/11/19/washington-commanders-rfk-stadiu
 `Chytil missed all but 10 regular-season games and six playoff games last season after suffering a concussion in 2023.`\
 https://nytimes.com/athletic/5925546/2024/11/19/filip-chytil-rangers-return/
 
-**Capitals' Ovechkin week-to-week with injury, halting pursuit of goals record**\
+**Capitals' Ovechkin week to week with injury, halting pursuit of goals record**\
 `The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
 https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/
 
