@@ -1,3 +1,7 @@
+**What Putin Really Sees in Trump**\
+`To the Kremlin, the president-elect is a harbinger of American collapse.`\
+https://nytimes.com/2024/11/19/opinion/putin-trump-russia-america.html
+
 **Loan watch: Are Bajcetic, Gordon and more impressing?**\
 `When Arne Slot decided he was comfortable working with a small squad, opportunities opened up for Liverpool’s fringe players.`\
 https://nytimes.com/athletic/5929085/2024/11/19/liverpool-loan-bajcetic-gordon-doak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5882911/2024/11/19/academy-release-rejection-whats-
 **Bob Love, Rugged, High-Scoring All-Star for Chicago Bulls, Dies at 81**\
 `Love was a cornerstone of the franchise’s success in the early 1970s. He struggled with a stutter that he overcame only after his playing days were over.`\
 https://nytimes.com/2024/11/19/sports/basketball/bob-love-dead.html
-
-**Arsenal and Ethan Nwaneri: How quickly should clubs introduce academy talent to elite football?**\
-`There is always clamour for exciting youngsters to be fast-tracked into a club's first XI - but a patient approach is usually wisest`\
-https://nytimes.com/athletic/5924390/2024/11/19/arsenal-academy-pathway-nwaneri-arteta/
 

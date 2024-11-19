@@ -1,3 +1,7 @@
+**What Putin Really Sees in Trump**\
+`To the Kremlin, the president-elect is a harbinger of American collapse.`\
+https://nytimes.com/2024/11/19/opinion/putin-trump-russia-america.html
+
 **Loan watch: Are Bajcetic, Gordon and more impressing?**\
 `When Arne Slot decided he was comfortable working with a small squad, opportunities opened up for Liverpool’s fringe players.`\
 https://nytimes.com/athletic/5929085/2024/11/19/liverpool-loan-bajcetic-gordon-doak/
