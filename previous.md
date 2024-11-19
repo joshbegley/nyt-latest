@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It could just be me, but it feels like this was the week where people started preemptively freaking out about the College Football Playoff field. We don&#8217;t know what the controversy will be exactly, but surely it will be bad.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5931143/2024/11/18/submit-a-question-for-stewart-mandels-college-football-mailbag-282/
+
 **NHL referee taken to hospital after on-ice collision with Avalanche player**\
 `PHILADELPHIA — Referee Mitch Dunning was taken off the ice on a stretcher after a collision with a player during the first period of the game between the Philadelphia Flyers and the Colorado Avalanche game at Wells Fargo Center on Monday night.`\
 https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-manson/
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/5930691/2024/11/18/yankees-luis-gil-al-rookie-of-th
 **Drought Warning Declared in New York City and 10 Counties in State**\
 `City officials announced the designation for the first time in more than 20 years as wildfires burned and residents continued to await meaningful rainfall.`\
 https://nytimes.com/2024/11/18/nyregion/drought-warning-new-york.html
-
-**NFL Week 11 inactives and fantasy tips: CeeDee Lamb, Nico Collins active for MNF**\
-`Is your fantasy lineup healthy for Week 11? Learn who to grab if not. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
-https://nytimes.com/athletic/5925238/2024/11/18/nfl-week-11-inactives-and-fantasy-tips/
 
