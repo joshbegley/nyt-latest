@@ -1,3 +1,7 @@
+**Trump Promised Sweeping Economic Changes. Can Republicans Turn Them Into Law?**\
+`Republicans are juggling complex political and tactical questions as they plan their congressional agenda next year.`\
+https://nytimes.com/2024/11/19/us/politics/trump-tax-cuts-congress.html
+
 **Fantasy football Week 12 drops: Part ways with DeAndre Hopkins, Kyle Pitts**\
 `Gary Davenport gives advice on who to drop ahead of Week 12, including a few RBs who aren't getting enough work to remain rostered.  `\
 https://nytimes.com/athletic/5931946/2024/11/19/nfl-fantasy-footall-week-12-drops/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932066/2024/11/19/penguins-today-sidney-crosby-pau
 **RFK Racing adding third NASCAR Cup team, signing Ryan Preece**\
 `RFK Racing is also inking a deal with marquee sponsor Kroger, one of the biggest supermarket chains in the United States.`\
 https://nytimes.com/athletic/5932028/2024/11/19/nascar-rfk-racing-expansion/
-
-**Spirit owner Kang pledges $30million into women's soccer programs**\
-`The donation is the largest donation ever made to the organization by a woman.`\
-https://nytimes.com/athletic/5932040/2024/11/19/michele-kang-investment-women-soccer/
 
