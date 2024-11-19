@@ -1,3 +1,11 @@
+**Disillusioned by the Election, Some Black Women Are Deciding to Rest**\
+`Instead of charging to the front lines of the culture wars, many Black women have vowed to prioritize their own well-being first.`\
+https://nytimes.com/2024/11/19/well/black-women-election-rest-era-harris-trump.html
+
+**Robert Thomas to return to Blues' lineup Tuesday ahead of schedule**\
+`The Blues said Thomas would be out four to six weeks. He returns against the Wild just ahead of that timeframe.`\
+https://nytimes.com/athletic/5932580/2024/11/19/blues-robert-thomas-return/
+
 **Jets fire GM Joe Douglas amid 3-8 season**\
 `Douglas was in his sixth season as the Jets general manager and the team has a 30-64 record during his tenure.`\
 https://nytimes.com/athletic/5932562/2024/11/19/jets-joe-douglas-fired/
@@ -29,13 +37,4 @@ https://nytimes.com/2024/11/19/science/spacex-launch-starship.html
 **Super Bowl 2025 odds: Bye, Kansas City. Hello, Detroit.**\
 `The Lions have officially unseated the Chiefs for the top of the Super Bowl odds board, and the Eagles cracked the top five.`\
 https://nytimes.com/athletic/5929652/2024/11/19/super-bowl-2025-odds-lions-new-favorites/
-
-**Submit your questions for The Athletic’s ACC football mailbag**\
-`<p>Who is the best team in the ACC? Can the league get a second team into the College Football Playoff? Submit your questions below for Grace Raynor and Manny Navarro. We’ll post their answers on Friday.</p>
-`\
-https://nytimes.com/athletic/5932482/2024/11/19/submit-your-questions-for-the-athletics-acc-football-mailbag-12/
-
-**Trump’s Treasury Challenge: A Pick Who Loves Tariffs Yet Calms Markets**\
-`The president-elect is considering a conflicting mix of qualities as he decides who will steer his economic agenda.`\
-https://nytimes.com/2024/11/19/us/politics/trump-treasury-secretary-tariffs.html
 
