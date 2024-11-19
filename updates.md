@@ -1,3 +1,19 @@
+**College football best bets Week 13: BYU is in danger of another loss**\
+`Austin Mock's model has identified several bets for college football Week 13, including picking against a CFP contender.`\
+https://nytimes.com/athletic/5932455/2024/11/19/college-football-best-bets-week-13-texas-am-arizona-state/
+
+**Commanders return to RFK Stadium alive after Senate committee vote**\
+`The U.S. Senate’s Energy and Natural Resources Committee passed a bill allowing the District of Columbia government to control federal land.`\
+https://nytimes.com/athletic/5932523/2024/11/19/washington-commanders-rfk-stadium-senate-committee-bill-passed/
+
+**Filip Chytil to rejoin Rangers after avoiding concussion: Source**\
+`Chytil missed all but 10 regular-season games and six playoff games last season after suffering a concussion in 2023.`\
+https://nytimes.com/athletic/5925546/2024/11/19/filip-chytil-rangers-return/
+
+**Jets fire GM Joe Douglas: Why New York moved on now**\
+`Douglas was in his sixth season as the Jets general manager and the team has a 30-64 record during his tenure.`\
+https://nytimes.com/athletic/5932562/2024/11/19/jets-joe-douglas-fired/
+
 **Capitals' Ovechkin week to week with injury, halting pursuit of goals record**\
 `The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
 https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/
