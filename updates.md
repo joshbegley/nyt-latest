@@ -1,3 +1,7 @@
+**N.Y.C. Helped Migrant Accused of Killing Laken Riley Move to Georgia, Witness Says**\
+`In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
+https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
+
 **Jackson Merrill's rookie accomplishments make case Padres should have been rewarded**\
 `Merrill finished second to Paul Skenes for the National League's Rookie of the Year, preventing the Padres from netting an extra draft pick.`\
 https://nytimes.com/athletic/5931153/2024/11/18/jackson-merrill-rookie-draft-pick-ppi/
