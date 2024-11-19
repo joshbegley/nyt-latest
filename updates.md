@@ -1,3 +1,7 @@
+**Capitals' Ovechkin week to week with injury, halting pursuit of goals record**\
+`The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
+https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/
+
 **Disillusioned by the Election, Some Black Women Are Deciding to Rest**\
 `Instead of charging to the front lines of the culture wars, many Black women have vowed to prioritize their own well-being first.`\
 https://nytimes.com/2024/11/19/well/black-women-harris-trump-election-rest.html
