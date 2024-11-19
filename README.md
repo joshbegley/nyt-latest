@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5932338/2024/11/19/nfl-mvp-odds-josh-allen-lamar-ja
 https://nytimes.com/2024/11/19/us/knotts-berry-farm-ride-stuck.html
 
 **Texas Education Board Backs Curriculum With Lessons Drawn From Bible**\
-`School districts serving more than two million elementary school children would be able to adopt a curriculum that draws on the Bible.`\
+`School districts serving more than two million elementary-school children would be able to adopt a curriculum that draws on the Bible.`\
 https://nytimes.com/2024/11/19/us/texas-bible-curriculum-public-schools.html
 
 **Thanksgiving Lasagna Is the Best Lasagna**\
