@@ -1,3 +1,15 @@
+**Spirit's Croix Bethune named NWSL Rookie of the Year**\
+`Bethune won the Rookie of the Month award for every month she was eligible.`\
+https://nytimes.com/athletic/5932234/2024/11/19/croix-bethune-spirit-nwsl-roty/
+
+**Big League Chew files lawsuit against licenser Ford Gum over trademark, brand infringement**\
+`The bubble gum brand was created in 1977 by minor-league pitcher Rob Nelson and has been manufactured and distributed by Ford Gum since 2010`\
+https://nytimes.com/athletic/5932005/2024/11/19/big-league-chew-lawsuit-trademark/
+
+**As French Rape Trial Nears End, Wife Speaks of ‘Banality’ and ‘Cowardice’**\
+`Gisèle Pelicot made her final address to the court, calling the things her husband allegedly did to her ‘unforgivable.’`\
+https://nytimes.com/2024/11/19/world/europe/france-rape-trial-gisele-pelicot.html
+
 **Trump Promised Sweeping Economic Changes. Can Republicans Turn Them Into Law?**\
 `Republicans are juggling complex political and tactical questions as they plan their congressional agenda next year.`\
 https://nytimes.com/2024/11/19/us/politics/trump-tax-cuts-congress.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/19/us/politics/matt-gaetz-hack-testimony.html
 **The Bounce: The Malice at the Palace turns 20 today!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5931882/2024/11/19/ron-artest-pacers-pistons-malice-at-the-palace-nba-the-bounce/
-
-**Trump, the Military and Plans for Mass Deportation**\
-`Questions about the president-elect’s plan, and a call for protests. Also: Tears after the election; funds for education; a roofless stadium in Buffalo.`\
-https://nytimes.com/2024/11/19/opinion/trump-military-mass-deportation.html
-
-**Penguins Today: A Sidney Crosby vs. Paul Skenes showdown?**\
-`Would you want to stand in the batter's box against Paul Skenes? Sidney Crosby does.`\
-https://nytimes.com/athletic/5932066/2024/11/19/penguins-today-sidney-crosby-paul-skenes/
-
-**RFK Racing adding third NASCAR Cup team, signing Ryan Preece**\
-`RFK Racing is also inking a deal with marquee sponsor Kroger, one of the biggest supermarket chains in the United States.`\
-https://nytimes.com/athletic/5932028/2024/11/19/nascar-rfk-racing-expansion/
 

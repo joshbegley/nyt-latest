@@ -1,3 +1,15 @@
+**Spirit's Croix Bethune named NWSL Rookie of the Year**\
+`Bethune won the Rookie of the Month award for every month she was eligible.`\
+https://nytimes.com/athletic/5932234/2024/11/19/croix-bethune-spirit-nwsl-roty/
+
+**Big League Chew files lawsuit against licenser Ford Gum over trademark, brand infringement**\
+`The bubble gum brand was created in 1977 by minor-league pitcher Rob Nelson and has been manufactured and distributed by Ford Gum since 2010`\
+https://nytimes.com/athletic/5932005/2024/11/19/big-league-chew-lawsuit-trademark/
+
+**As French Rape Trial Nears End, Wife Speaks of ‘Banality’ and ‘Cowardice’**\
+`Gisèle Pelicot made her final address to the court, calling the things her husband allegedly did to her ‘unforgivable.’`\
+https://nytimes.com/2024/11/19/world/europe/france-rape-trial-gisele-pelicot.html
+
 **Trump Promised Sweeping Economic Changes. Can Republicans Turn Them Into Law?**\
 `Republicans are juggling complex political and tactical questions as they plan their congressional agenda next year.`\
 https://nytimes.com/2024/11/19/us/politics/trump-tax-cuts-congress.html
