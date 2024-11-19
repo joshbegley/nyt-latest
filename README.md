@@ -1,3 +1,7 @@
+**Late Night Is Appalled by Trump’s Mile-High McDonald’s Feast**\
+`The president-elect dined on his plane with some associates — including Robert F. Kennedy Jr., who hates fast food. Jimmy Kimmel called it a “subservience test.”`\
+https://nytimes.com/2024/11/19/arts/television/late-night-trump-mcdonalds.html
+
 **An Affordable Housing Project Faced a Huge Backlash. It Won Anyway.**\
 `A developer wanted to replace parking garages with affordable apartments in Manhattan, but some residents on the Upper West Side resisted. Here’s why the housing won.`\
 https://nytimes.com/2024/11/19/nyregion/housing-crunch-affordable-upper-west-side.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/learning/word-of-the-day-mischievous.html
 **Putin Sees America Hurtling to Disaster, With Trump at the Wheel**\
 `To the Kremlin, the president-elect is a harbinger of American collapse.`\
 https://nytimes.com/2024/11/19/opinion/putin-trump-russia-america.html
-
-**Loan watch: Are Bajcetic, Gordon and more impressing?**\
-`When Arne Slot decided he was comfortable working with a small squad, opportunities opened up for Liverpool’s fringe players.`\
-https://nytimes.com/athletic/5929085/2024/11/19/liverpool-loan-bajcetic-gordon-doak/
 
