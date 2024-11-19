@@ -1,3 +1,11 @@
+**NFL best bets Week 12: Chargers against the spread in Harbaugh Bowl**\
+`Austin Mock's model has four bets to make on NFL Week 12. Check back through the week for more. `\
+https://nytimes.com/athletic/5932536/2024/11/19/nfl-best-bets-week-12-harbaugh-bowl/
+
+**Capitals' Ovechkin week to week with injury, halting pursuit of goals record**\
+`The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
+https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/
+
 **Capitals' Ovechkin week-to-week with injury, halting pursuit of goals record**\
 `The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
 https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/

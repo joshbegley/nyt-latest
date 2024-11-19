@@ -1,3 +1,7 @@
+**NFL best bets Week 12: Chargers against the spread in Harbaugh Bowl**\
+`Austin Mock's model has four bets to make on NFL Week 12. Check back through the week for more. `\
+https://nytimes.com/athletic/5932536/2024/11/19/nfl-best-bets-week-12-harbaugh-bowl/
+
 **College football best bets Week 13: BYU is in danger of another loss**\
 `Austin Mock's model has identified several bets for college football Week 13, including picking against a CFP contender.`\
 https://nytimes.com/athletic/5932455/2024/11/19/college-football-best-bets-week-13-texas-am-arizona-state/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5932523/2024/11/19/washington-commanders-rfk-stadiu
 `Chytil missed all but 10 regular-season games and six playoff games last season after suffering a concussion in 2023.`\
 https://nytimes.com/athletic/5925546/2024/11/19/filip-chytil-rangers-return/
 
-**Capitals' Ovechkin week-to-week with injury, halting pursuit of goals record**\
+**Capitals' Ovechkin week to week with injury, halting pursuit of goals record**\
 `The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
 https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932253/2024/11/19/betting-for-by-dummies-college-f
 **Lula Was Target of Assassination Plot, Brazilian Police Say**\
 `Members of an elite army unit planned to kill Luiz Inácio Lula da Silva in 2022 as part of an effort to keep Jair Bolsonaro in power after he lost the presidential election.`\
 https://nytimes.com/2024/11/19/world/americas/brazil-soldiers-president-lula-assassination-plot.html
-
-**Daniel Boulud Opens La Tête d’Or, His First Steakhouse**\
-`Melissa Rodriguez opens Crane Club in the Al Coro space, the Anton’s team take on all-day Italian at Leon’s and more.`\
-https://nytimes.com/2024/11/19/dining/daniel-boulud-steakhouse.html
 
