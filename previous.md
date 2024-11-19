@@ -1,8 +1,12 @@
+**Texas Education Board Backs Bible-Infused Lessons in Public Schools**\
+`School districts serving more than 2 million elementary-school children would be able to adopt a curriculum that draws on the Bible.`\
+https://nytimes.com/2024/11/19/us/texas-bible-curriculum-public-schools.html
+
 **Thanksgiving Lasagna Is the Best Lasagna**\
 `The Italian American tradition has been adapted by other immigrant families into delicious takes on the classic.`\
 https://nytimes.com/2024/11/19/dining/thanksgiving-lasagna.html
 
-**Game, Set, Match: Rafael Nadal loses to Botic Van de Zandschulp in what could be his final match**\
+**Game, Set, Match: Rafael Nadal loses to Botic van de Zandschulp in what could be his final match**\
 `The 22-time Grand Slam champion's physical limitations were laid bare in what could be his last appearance as a professional player.`\
 https://nytimes.com/athletic/5932319/2024/11/19/rafael-nadal-davis-cup-result-analysis-van-de-zandschulp/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capital
 **Disillusioned by the Election, Some Black Women Are Deciding to Rest**\
 `Instead of charging to the front lines of the culture wars, many Black women have vowed to prioritize their own well-being first.`\
 https://nytimes.com/2024/11/19/well/black-women-harris-trump-election-rest.html
-
-**Robert Thomas to return to Blues' lineup Tuesday ahead of schedule**\
-`The Blues said Thomas would be out four to six weeks. He returns against the Wild just ahead of that timeframe.`\
-https://nytimes.com/athletic/5932580/2024/11/19/blues-robert-thomas-return/
 
