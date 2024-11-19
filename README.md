@@ -1,3 +1,7 @@
+**Wyoming’s Abortion Bans Are Unconstitutional, Judge Rules**\
+`The ruling found that two state laws — one barring use of abortion pills, and one banning all forms of abortion — violated the state’s “fundamental right to make health care decisions.”`\
+https://nytimes.com/2024/11/18/health/wyoming-abortion-ban-overturned.html
+
 **Dozens of Hong Kong Pro-Democracy Leaders Sentenced in Mass Trial**\
 `The 45 defendants, including Joshua Wong, were at the forefront of the opposition movement crushed by Beijing. Many have already been in jail for years.`\
 https://nytimes.com/2024/11/18/world/asia/hong-kong-democrats-sentenced.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5931143/2024/11/18/submit-a-question-for-stewart-ma
 **NHL referee taken to hospital after on-ice collision with Avalanche player**\
 `Dunning collided with Avalanche defenseman Josh Manson near Colorado’s offensive zone blue line`\
 https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-manson/
-
-**Newsom Will Delay His Decision on Clemency for the Menendez Brothers**\
-`Gov. Gavin Newsom of California said he would hold off deciding whether to grant clemency to Lyle and Erik Menendez until after the incoming Los Angeles County district attorney reviewed the case.`\
-https://nytimes.com/2024/11/18/us/menendez-brothers-newsom-clemency.html
 
