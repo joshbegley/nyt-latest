@@ -1,3 +1,7 @@
+**Arthur Frommer, 95, Dies; His Guidebooks Opened Travel to the Masses**\
+`After publishing “Europe on 5 Dollars a Day” in 1957, he went on to build an empire of guidebooks, package tours, hotels and other services.`\
+https://nytimes.com/2024/11/18/books/arthur-frommer-dead.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>It could just be me, but it feels like this was the week where people started preemptively freaking out about the College Football Playoff field. We don&#8217;t know what the controversy will be exactly, but surely it will be bad.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/video/opinion/100000009295681/instruments-of-a-beating-heart
 **Yankees' Luis Gil wins 2024 American League Rookie of the Year award**\
 `Gil is the first Yankee to win American League Rookie of the Year since Aaron Judge in 2017.`\
 https://nytimes.com/athletic/5930691/2024/11/18/yankees-luis-gil-al-rookie-of-the-year/
-
-**Drought Warning Declared in New York City and 10 Counties in State**\
-`City officials announced the designation for the first time in more than 20 years as wildfires burned and residents continued to await meaningful rainfall.`\
-https://nytimes.com/2024/11/18/nyregion/drought-warning-new-york.html
 
