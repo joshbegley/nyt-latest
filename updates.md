@@ -1,3 +1,11 @@
+**Jets fire GM Joe Douglas amid 3-8 season**\
+`Douglas was in his sixth season as the Jets general manager and the team has a 30-64 record during his tenure.`\
+https://nytimes.com/athletic/5932562/2024/11/19/jets-joe-douglas-fired/
+
+**Betting for (by) dummies: Big games in Ohio and the Harbaugh Bowl**\
+`Jon Greenerg and Zac Jackson are at it again making quips and picks for college football and NFL betting.`\
+https://nytimes.com/athletic/5932253/2024/11/19/betting-for-by-dummies-college-football-nfl-odds-ohio-ravens-chargers/
+
 **Lula Was Target of Assassination Plot, Brazilian Police Say**\
 `Members of an elite army unit planned to kill Luiz Inácio Lula da Silva in 2022 as part of an effort to keep Jair Bolsonaro in power after he lost the presidential election.`\
 https://nytimes.com/2024/11/19/world/americas/brazil-soldiers-president-lula-assassination-plot.html
