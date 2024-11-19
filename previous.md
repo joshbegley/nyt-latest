@@ -1,3 +1,7 @@
+**Lula Was Target of Assassination Plot, Brazilian Police Say**\
+`Members of an elite army unit planned to kill Luiz Inácio Lula da Silva in 2022 as part of an effort to keep Jair Bolsonaro in power after he lost the presidential election.`\
+https://nytimes.com/2024/11/19/world/americas/brazil-soldiers-president-lula-assassination-plot.html
+
 **Daniel Boulud Opens La Tête d’Or, His First Steakhouse**\
 `Melissa Rodriguez opens Crane Club in the Al Coro space, the Anton’s team take on all-day Italian at Leon’s and more.`\
 https://nytimes.com/2024/11/19/dining/daniel-boulud-steakhouse.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5932435/2024/11/19/james-mcclean-efl-tunnel-safety/
 **Matchmaking the top 10 MLB free agents with the team where they fit best**\
 `As we wait for signings, I selected my favorite matches for each of the top 10 free agents, pairing them with the team where they fit best.`\
 https://nytimes.com/athletic/5931599/2024/11/19/mlb-team-player-free-agent-fits/
-
-**Giannis' block, Damian Lillard's bucket help Bucks escape with win over Rockets**\
-`In a gritty, physical contest, Antetokounmpo and Lillard came up big when the Bucks needed it most. `\
-https://nytimes.com/athletic/5931625/2024/11/19/giannis-antetokounmpo-damian-lillard-bucks-rockets/
 

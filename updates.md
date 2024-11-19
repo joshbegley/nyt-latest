@@ -1,3 +1,7 @@
+**Lula Was Target of Assassination Plot, Brazilian Police Say**\
+`Members of an elite army unit planned to kill Luiz Inácio Lula da Silva in 2022 as part of an effort to keep Jair Bolsonaro in power after he lost the presidential election.`\
+https://nytimes.com/2024/11/19/world/americas/brazil-soldiers-president-lula-assassination-plot.html
+
 **Daniel Boulud Opens La Tête d’Or, His First Steakhouse**\
 `Melissa Rodriguez opens Crane Club in the Al Coro space, the Anton’s team take on all-day Italian at Leon’s and more.`\
 https://nytimes.com/2024/11/19/dining/daniel-boulud-steakhouse.html
