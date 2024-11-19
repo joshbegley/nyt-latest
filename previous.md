@@ -1,3 +1,7 @@
+**Ukraine Fired U.S.-Made Missiles into Russia**\
+`Also, prosecutors called for a four-year freeze on Trump’s Manhattan case. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/11/19/briefing/ukraine-russia-us-missiles-trump-new-york-case.html
+
 **Sean Combs’s Lawyers Argue That Seizure of Notes From Jail Was Unjust**\
 `Lawyers for the music mogul objected at a hearing to prosecutors viewing handwritten materials from their client’s cell after a sweep of the Brooklyn jail where he is being held.`\
 https://nytimes.com/2024/11/19/arts/music/sean-diddy-combs-jail-notes-raid.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/19/us/politics/trump-dr-oz-medicare-medicaid.html
 **Upon further review, Big Ten says Oregon has clinched spot in title game**\
 `Initially, Big Ten officials described one situation containing a possibility that remained for a Penn State-Ohio State rematch in Indy.`\
 https://nytimes.com/athletic/5933147/2024/11/19/oregon-big-ten-championship-game-tiebreakers/
-
-**UEFA Nations League: Who was promoted and who could win the trophy?**\
-`The group stage of the UEFA Nations League concluded on Tuesday, so who were promoted and relegated and who could win the competition?`\
-https://nytimes.com/athletic/5929897/2024/11/19/uefa-nations-league-promotion-relegation/
 

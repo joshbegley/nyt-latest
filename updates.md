@@ -1,3 +1,7 @@
+**Ukraine Fired U.S.-Made Missiles into Russia**\
+`Also, prosecutors called for a four-year freeze on Trump’s Manhattan case. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/11/19/briefing/ukraine-russia-us-missiles-trump-new-york-case.html
+
 **Sean Combs’s Lawyers Argue That Seizure of Notes From Jail Was Unjust**\
 `Lawyers for the music mogul objected at a hearing to prosecutors viewing handwritten materials from their client’s cell after a sweep of the Brooklyn jail where he is being held.`\
 https://nytimes.com/2024/11/19/arts/music/sean-diddy-combs-jail-notes-raid.html
