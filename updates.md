@@ -1,3 +1,11 @@
+**Delhi Trudges Through Another Air Pollution Nightmare With No Answers**\
+`The government seems powerless to protect its citizens from this annual crisis, let alone prevent it.`\
+https://nytimes.com/2024/11/19/world/asia/india-delhi-air-pollution.html
+
+**Nadal will play Davis Cup singles for Spain against Netherlands**\
+`MALAGA, Spain — Rafael Nadal will open Spain&#8217;s Davis Cup tie against the Netherlands today, Tuesday November 19 in his last tournament before retiring from tennis.`\
+https://nytimes.com/athletic/5932159/2024/11/19/nadal-davis-cup-singles-netherlands-match/
+
 **A Fast, French-y Chicken Dinner**\
 `Chicken au poivre is a fancy-feeling take on a velvety French classic.`\
 https://nytimes.com/2024/11/19/dining/a-fast-french-y-chicken-dinner.html
