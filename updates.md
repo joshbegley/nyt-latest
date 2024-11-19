@@ -1,3 +1,7 @@
+**Is the Biden Administration Coming for Chrome?**\
+`The Justice Department is reportedly targeting Google’s web browser as its antitrust enforcers seek to cement a major win before Donald Trump takes office.`\
+https://nytimes.com/2024/11/19/business/dealbook/biden-chrome-google-antitrust.html
+
 **Heat Today: Miami happy to have Jimmy Butler leading the way again**\
 `Butler returned to Miami's lineup in a big way Monday. How does he change the Heat's makeup?`\
 https://nytimes.com/athletic/5931492/2024/11/19/jimmy-butler-tyler-herro-miami-heat/
