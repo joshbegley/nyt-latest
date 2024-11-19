@@ -1,3 +1,7 @@
+**Uncertainty for Loved Ones of Hong Kong’s Pro-Democracy Activists**\
+`Ventus Lau is one of 45 activists and politicians who was sentenced in the city’s biggest national security trial. His girlfriend, Emilia Wong, a gender rights activist, talks about the impact his case has had on their relationship.`\
+https://nytimes.com/video/world/asia/100000009830656/hong-kong-democrats-sentenced.html
+
 **Merzlikins' stinginess, two shorthanded goals key Blue Jackets' win in Boston**\
 `A fantastic first period by the Blue Jackets goalie spurred the team to its first regulation win at TD Garden since 2016.`\
 https://nytimes.com/athletic/5931284/2024/11/18/blue-jackets-merzlikins-penalty-kill-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931153/2024/11/18/jackson-merrill-rookie-draft-pic
 **Lawyer Says His Client Testified That She Saw Gaetz Having Sex With Underage Girl**\
 `The lawyer told multiple news outlets about the testimony, before the House Ethics Committee, in which the client described witnessing Matt Gaetz having sex with the girl at a party in 2017.`\
 https://nytimes.com/2024/11/18/us/politics/matt-gaetz-sex-allegations-house-ethics.html
-
-**Two Bee Gees Drummers Die Within Days**\
-`Colin “Smiley” Petersen, the original drummer, and Dennis Bryon, who played during the band’s disco heyday, died within four days of each other.`\
-https://nytimes.com/2024/11/18/arts/music/bee-gees-drummers-dead.html
 
