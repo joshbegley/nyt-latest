@@ -1,3 +1,15 @@
+**Vehicle Hits Students Outside Elementary School in Central China**\
+`A man drove a car into a group of people near an elementary school in Changde, a city in Hunan Province, on Tuesday, injuring multiple students.`\
+https://nytimes.com/video/world/asia/100000009834156/china-car-attack.html
+
+**Trump Taps Wall St. Executive Howard Lutnick for Commerce Secretary**\
+`The billionaire executive and leader of President-elect Donald J. Trump’s transition team will be charged with promoting U.S. industry and overseeing technology controls on China.`\
+https://nytimes.com/2024/11/19/us/politics/howard-lutnick-trump-commerce-secretary.html
+
+**Spy agencies are again offering Trump intelligence briefings.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/spy-agencies-are-again-offering-trump-intelligence-briefings
+
 **Inching Toward a Fusion Energy Future**\
 `A handful of startups are racing to usher in an era of near-limitless fusion energy, but big questions remain.`\
 https://nytimes.com/2024/11/19/climate/fusion-energy-startups.html
