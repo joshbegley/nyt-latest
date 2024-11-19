@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/11/19/opinion/thepoint
+
+**Pitching prospects Tekoah Roby, Tink Hence added to Cardinals' 40-man roster**\
+`Both Hence and Roby are considered Top 10 prospects in the Cardinals' organization, though their path to the majors is not yet clear.`\
+https://nytimes.com/athletic/5932715/2024/11/19/st-louis-cardinals-rule-5-protections/
+
 **Nadal would not pick himself to play singles for Spain at the Davis Cup after defeat**\
 `The 22-time Grand Slam champion lost what could be his final tennis match in the first rubber of Spain's tie against the Netherlands.`\
 https://nytimes.com/athletic/5932976/2024/11/19/rafael-nadal-davis-cup-spain/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5933101/2024/11/19/mlb-2024-qualifying-offer-decisi
 **49ers mailbag: Is Kyle Shanahan losing the locker room? Is the window closing?**\
 `Among this week's questions: Which players have been pleasant surprises this year and which have been surprise disappointments?`\
 https://nytimes.com/athletic/5932819/2024/11/19/49ers-mailbag-kyle-shanahan-window-closing/
-
-**For Russia, Nuclear Weapons Are the Ultimate Bargaining Chip**\
-`The Ukraine war has not only shattered millions of lives and shaken Europe. It also has inured Washington to the use of nuclear threats as leverage.`\
-https://nytimes.com/2024/11/19/us/politics/russia-nuclear-weapons-ukraine.html
-
-**How Trump Can Earn a Place in History That He Did Not Expect**\
-`The president-elect has a starting point: the plan for a two-state solution that he put out in January 2020.`\
-https://nytimes.com/2024/11/19/opinion/donald-trump-israel-gaza.html
 
