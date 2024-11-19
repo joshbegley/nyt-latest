@@ -1,3 +1,7 @@
+**New Zealand Veers Sharply Right, Leaving Jacinda Ardern’s Era Behind**\
+`Two small populist parties are responsible for accelerating the shift, which has been felt acutely by the Indigenous Māori.`\
+https://nytimes.com/2024/11/18/us/new-zealand-conservative-maori-protest.html
+
 **Elvis Merzlikins' stinginess, 2 short-handed goals key Blue Jackets' win in Boston**\
 `A fantastic first period by the Blue Jackets goalie spurred the team to its first regulation win at TD Garden since 2016.`\
 https://nytimes.com/athletic/5931284/2024/11/18/blue-jackets-merzlikins-penalty-kill-bruins/
