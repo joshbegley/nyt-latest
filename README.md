@@ -1,3 +1,7 @@
+**The Perfect Novel for the Baku Climate Summit**\
+`The U.N. climate conference, held in a petrostate, is a surreal moment. This darkly funny novel about Baku, oil companies and climate change in the first Trump term helps make sense of it all.`\
+https://nytimes.com/2024/11/19/climate/mobility-kiesling-baku-climate-summit.html
+
 **SpaceX Prepares for Sixth Starship Test Launch: What to Know**\
 `The company will try to catch the giant booster of its moon and Mars rocket for a second time on Tuesday afternoon.`\
 https://nytimes.com/2024/11/19/science/spacex-launch-starship.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5929652/2024/11/19/super-bowl-2025-odds-lions-new-f
 `\
 https://nytimes.com/athletic/5932482/2024/11/19/submit-your-questions-for-the-athletics-acc-football-mailbag-12/
 
-**Trump’s Treasury Challenge: A Pick Who Loves Tariffs and Calms Markets**\
+**Trump’s Treasury Challenge: A Pick Who Loves Tariffs Yet Calms Markets**\
 `The president-elect is considering a conflicting mix of qualities as he decides who will steer his economic agenda.`\
 https://nytimes.com/2024/11/19/us/politics/trump-treasury-secretary-tariffs.html
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5932288/2024/11/19/cowboys-today-stadium-roof-texan
 **FAU coaching job profile: What will Tom Herman's replacement inherit?**\
 `What the Owls lack in tradition, they make up for in possibility.`\
 https://nytimes.com/athletic/5932266/2024/11/19/fau-football-coaching-job-profile-candidates/
-
-**Delhi Trudges Through Another Air Pollution Nightmare With No Answers**\
-`The government seems powerless to protect its citizens from this annual crisis, let alone prevent it.`\
-https://nytimes.com/2024/11/19/world/asia/india-delhi-air-pollution.html
 
