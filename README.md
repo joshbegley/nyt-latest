@@ -1,3 +1,7 @@
+**Hacker Is Said to Have Gained Access to File With Damaging Testimony About Gaetz**\
+`The computer file is said to contain testimony from the woman who said she had sex with Matt Gaetz, President-elect Donald Trump’s choice to be attorney general, when she was 17.`\
+https://nytimes.com/2024/11/19/us/politics/matt-gaetz-hack-testimony.html
+
 **The Bounce: The Malice at the Palace turns 20 today!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5931882/2024/11/19/ron-artest-pacers-pistons-malice-at-the-palace-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932038/2024/11/19/ivan-taylor-commitment-alabama-m
 **NBA Power Rankings: Everybody hurts in this league — some more than others**\
 `Precious few stars and teams (hello, Rockets) have avoided time lost to ailments. These latest rankings take stock of the walking wounded.`\
 https://nytimes.com/athletic/5931111/2024/11/19/nba-power-rankings-cavaliers-warriors-pelicans-injuries/
-
-**2024 Heisman Trophy odds: Travis Hunter is in firm control**\
-`Travis Hunter is pulling away from the field in Heisman Trophy odds. The two-way Colorado star is -400 to win the award.`\
-https://nytimes.com/athletic/5930379/2024/11/19/heisman-trophy-odds-travis-hunter-ashton-jeanty/
 
