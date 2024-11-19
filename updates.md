@@ -1,3 +1,7 @@
+**Nordic Countries, Eyeing Russia, Dust Off Their Crisis Advice**\
+`Sweden, Finland and Norway have recently updated their advice for citizens preparing to survive war and other crises, wary of Ukraine’s grinding fight against Russia.`\
+https://nytimes.com/2024/11/19/world/europe/sweden-russia-ukraine-crisis-war-advice.html
+
 **Could Trump Hire Gaetz Without Senate Approval? A Recess Appointment Primer**\
 `The Constitution allows the president to circumvent the Senate and install appointees while the chamber is in recess, an arcane loophole created back when Capitol commutes involved long treks by horse.`\
 https://nytimes.com/2024/11/19/us/recess-appointment-trump-matt-gaetz.html
