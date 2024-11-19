@@ -1,3 +1,11 @@
+**2024 Heisman Trophy odds: Travis Hunter is in firm control**\
+`Travis Hunter is pulling away from the field in Heisman Trophy odds. The two-way Colorado star is -400 to win the award.`\
+https://nytimes.com/athletic/5930379/2024/11/19/heisman-trophy-odds-travis-hunter-ashton-jeanty/
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/19/nhl-standings-playoffs-projections-odds/
+
 **UMass job profile: With MAC move coming, it's not as bleak as you think**\
 `The Minutemen are rejoining a conference next season and believe their coaching opening is better than it has been in the past.`\
 https://nytimes.com/athletic/5931921/2024/11/19/umass-football-coaching-search-candidate/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5931714/2024/11/19/pulisic-trump-dance-amorim-manch
 **What we learned from the Chargers' win over the Bengals: 'Tremendous feeling of victory'**\
 `The Chargers made the plays they needed to make to win the game. They did not ace the test. But they passed. The Ravens await.`\
 https://nytimes.com/athletic/5931090/2024/11/19/chargers-win-bengals-what-we-learned/
-
-**Here is the latest on the next administration.**\
-`By Daniel Victor`\
-https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/here-is-the-latest-on-the-next-administration
-
-**Trump Transition Live Updates: Trump Still Needs to Fill Several Top Roles**\
-`Though he moved quickly to stock his cabinet with loyal allies, President-elect Donald J. Trump has yet to announce his picks to lead the Treasury, Commerce and Labor Departments. On Monday he named a Fox Business host to be transportation secretary.`\
-https://nytimes.com/live/2024/11/19/us/trump-news-live-updates
 
