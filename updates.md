@@ -1,3 +1,7 @@
+**Canucks notebook: Benching J.T. Miller and is there a fix for the second pair?**\
+`Also in the notebook, a look at how the Canucks are navigating an inconsistent stretch without Thatcher Demko in net.`\
+https://nytimes.com/athletic/5931439/2024/11/19/canucks-miller-benching-defense/
+
 **They Taught A.I. to Sing, and It Was Beautiful**\
 `Holly Herndon and Matt Dryhurst are presenting their first large-scale solo museum show. It sounds gorgeous, even if its visual elements are lacking.`\
 https://nytimes.com/2024/11/19/arts/design/holly-herndon-matt-dryhurst-serpentine-galleries.html
