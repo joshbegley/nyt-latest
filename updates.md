@@ -1,3 +1,7 @@
+**The Onion’s Bid to Acquire Infowars Has Gotten Messy**\
+`A hearing is scheduled for Monday to review the auction process, which is being contested by a losing bidder associated with Alex Jones, the Infowars founder.`\
+https://nytimes.com/2024/11/19/business/media/the-onion-infowars-alex-jones.html
+
 **Trump Wants to Nominate Dr. Mehmet Oz to Oversee Medicare and Medicaid**\
 `The celebrity physician would oversee federal health insurance programs that cover more than 100 million Americans.`\
 https://nytimes.com/2024/11/19/us/politics/trump-dr-oz-medicare-medicaid.html
