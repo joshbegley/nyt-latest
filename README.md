@@ -1,4 +1,8 @@
-**Wrexham captain McClean granted safety measure to leave pitch after abuse**\
+**Trump’s Treasury Challenge: A Pick Who Loves Tariffs and Calms Markets**\
+`The president-elect is considering a conflicting mix of qualities as he decides who will steer his economic agenda.`\
+https://nytimes.com/2024/11/19/us/politics/trump-treasury-secretary-tariffs.html
+
+**Wrexham's McClean granted permission to bypass rules on how to leave a pitch**\
 `Wrexham captain James McClean will be allowed to leave the pitch using the shortest route to the tunnel in a bid to improve his safety due to the supporter abuse he receives.`\
 https://nytimes.com/athletic/5932435/2024/11/19/james-mcclean-efl-tunnel-safety/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932159/2024/11/19/nadal-davis-cup-singles-netherla
 **Spirit's Croix Bethune named NWSL Rookie of the Year**\
 `Bethune won the Rookie of the Month award for every month she was eligible.`\
 https://nytimes.com/athletic/5932234/2024/11/19/croix-bethune-spirit-nwsl-roty/
-
-**Big League Chew files lawsuit against licenser Ford Gum over trademark, brand infringement**\
-`The bubble gum brand was created in 1977 by minor-league pitcher Rob Nelson and has been manufactured and distributed by Ford Gum since 2010`\
-https://nytimes.com/athletic/5932005/2024/11/19/big-league-chew-lawsuit-trademark/
 
