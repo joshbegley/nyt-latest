@@ -1,3 +1,27 @@
+**Trump will watch the latest SpaceX launch with Elon Musk.**\
+`The president-elect’s appearance in Texas demonstrates the growing closeness between the two billionaires, and Mr. Musk’s increasing influence in Mr. Trump’s orbit.`\
+https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/trump-spacex-launch
+
+**Guardiola agrees new Man City contract**\
+`Manchester City manager Pep Guardiola has agreed a new one-year contract extension with the option of an additional year.`\
+https://nytimes.com/athletic/5931613/2024/11/19/pep-guardiola-new-man-city-contract/
+
+**Explaining USMNT star Christian Pulisic’s ‘Donald Trump dance' and its impact**\
+`Analysing Christian Pulisic's notable goal celebration in the game against Jamaica - and the fallout`\
+https://nytimes.com/athletic/5932416/2024/11/19/christian-pulisic-donald-trump-dance-usmnt-explained/
+
+**Orlando Pride's Seb Hines wins NWSL Coach of the Year**\
+`Hines coached the pride to an 18-2-6 season, which included a 23-game unbeaten streak that ended in October.`\
+https://nytimes.com/athletic/5933010/2024/11/19/seb-hines-pride-nwsl-coy/
+
+**Richard V. Allen, Reagan’s First National Security Adviser, Dies at 88**\
+`His tenure was short: He was forced to resign after $1,000 in cash was found in a safe in his former office, even though the Justice Department cleared him of wrongdoing.`\
+https://nytimes.com/2024/11/19/obituaries/richard-v-allen-dead.html
+
+**‘Tammy Faye’ Musical to Close After Failing to Find Broadway Audience**\
+`Well-reviewed in London but poorly received in New York, the musical with an Elton John score will end its run on Dec. 8.`\
+https://nytimes.com/2024/11/19/theater/tammy-faye-broadway-musical-closing.html
+
 **Why the Sixers are still struggling despite Joel Embiid's return to the lineup**\
 `The Sixers, now 2-11, are losing the benefit of time and patience. Can Joel Embiid get back in rhythm?`\
 https://nytimes.com/athletic/5932522/2024/11/19/sixers-joel-embiid-whats-wrong/
@@ -13,28 +37,4 @@ https://nytimes.com/live/2024/11/12/opinion/thepoint/trump-prosecutions-democrat
 **Live Q&A: Week 12 fantasy football add/drop chat with Jay Felicio, Tuesday 11/19 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5932399/2024/11/19/live-qa-week-12-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-11-19-at-5-p-m-et/
-
-**Nick Nurse, Daryl Morey safe amid Sixers' locker room drama: Sources**\
-`The 76ers are 2-11 following a loss to Miami and a team meeting in which Tyrese Maxey challenged star Joel Embiid about his habits.`\
-https://nytimes.com/athletic/5932957/2024/11/19/76ers-meeting-embiid-maxey-nick-nurse-daryl-morey/
-
-**Inter Miami head coach Martino resigns after MLS Cup exit**\
-`Inter Miami head coach Gerardo ‘Tata’ Martino has resigned due to personal reasons, according to multiple sources.`\
-https://nytimes.com/athletic/5932943/2024/11/19/tata-martino-resigns-coach-inter-miami/
-
-**Oilers claim Kasperi Kapanen off waivers from Blues**\
-`The Oilers picked up Kapanen to help shore up their forward ranks and possibly give their offense a jolt.`\
-https://nytimes.com/athletic/5932915/2024/11/19/oilers-kasperi-kapanen-waiver-claim-st-louis-blues/
-
-**Deion: 'I've got a kickstand down' in Colorado amid carousel speculation**\
-`Sanders' resurgent second season with Colorado has restarted speculation on whether a deeper-pocketed college or NFL team would call him.`\
-https://nytimes.com/athletic/5932826/2024/11/19/deion-sanders-colorado-coaching-carousel-rumors/
-
-**TKTS to Open Booth in Philadelphia, Hoping to Boost Local Theaters**\
-`The first domestic TKTS outpost outside New York comes at a time of rising concern about ticket prices and theater economics.`\
-https://nytimes.com/2024/11/19/theater/tkts-booth-philadelphia-theater.html
-
-**Vehicle Hits Students Outside Elementary School in Central China**\
-`A man drove a car into a group of people near an elementary school in Changde, a city in Hunan Province, on Tuesday, injuring multiple students.`\
-https://nytimes.com/video/world/asia/100000009834156/china-car-attack.html
 
