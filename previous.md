@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/18/crosswords/daily-puzzle-2024-11-19.html
 
 **Wyoming’s Abortion Bans Are Unconstitutional, Judge Rules**\
-`The ruling found that two state laws — one barring use of abortion pills, and one banning all forms of abortion — violated the state’s “fundamental right to make health care decisions.”`\
+`The ruling found that two state laws — one barring use of abortion pills, and one banning all forms of abortion — violated the state Constitution’s “fundamental right to make health care decisions.”`\
 https://nytimes.com/2024/11/18/health/wyoming-abortion-ban-overturned.html
 
 **Dozens of Hong Kong Pro-Democracy Leaders Sentenced in Mass Trial**\
