@@ -1,3 +1,23 @@
+**Unbeaten Cavaliers are just getting started as a threat in the East**\
+`The undefeated Cavs have the youth and financial flexibility to contend in the East for a while. `\
+https://nytimes.com/athletic/5931497/2024/11/19/cleveland-cavaliers-undefeated-donovan-mitchell-evan-mobley/
+
+**Bayern Munich's Palhinha sidelined with muscle injury**\
+`Bayern Munich midfielder Joao Palhinha is set to be sidelined for a number of weeks after suffering a torn muscle on international duty.`\
+https://nytimes.com/athletic/5931615/2024/11/19/joao-palhinha-bayern-injury-update/
+
+**Predicting College Football Playoff rankings after Week 12: How will SEC be sorted out?**\
+`Tennessee faces an uphill battle in the College Football Playoff rankings with a lot of SEC teams stacked up. Here's what to expect Tuesday.`\
+https://nytimes.com/athletic/5930248/2024/11/19/college-football-playoff-rankings-predictions-sec/
+
+**Jones' emergence, Kakko's 4 Nations chances, more: 15 Rangers observations**\
+`Jones, who scored his first goal of the season Sunday in Seattle, has played in each of the Rangers' past six games.`\
+https://nytimes.com/athletic/5930874/2024/11/19/rangers-jones-schneider-pairing-kakko/
+
+**City's Hemp undergoes surgery on knee injury**\
+`Manchester City and England winger Lauren Hemp has undergone surgery on a knee injury.`\
+https://nytimes.com/athletic/5931649/2024/11/19/lauren-hemp-knee-injury-surgery/
+
 **Cowboys took points away, never scored again: Key plays, decisions in fifth consecutive loss**\
 `At 3-7, the Cowboys continue to slide closer to a top-five draft pick than a playoff spot.`\
 https://nytimes.com/athletic/5931514/2024/11/19/cowboys-fifth-consecutive-loss-texans/
