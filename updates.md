@@ -1,3 +1,7 @@
+**Netanyahu Offers $5 Million for Each Hostage Freed in Gaza**\
+`As he resists pressure to reach a cease-fire that would release the captives, Israel’s prime minister is now offering a reward for their freedom, while still vowing to punish anyone who hurts a hostage.`\
+https://nytimes.com/2024/11/19/world/middleeast/israel-5-million-dollars-hostage.html
+
 **MLB plans new national TV packages for 2028; changes to revenue sharing, CBA crucial**\
 `MLB commissioner Rob Manfred explained his vision for the future of MLB's telecasts and local media rights in an exclusive interview.`\
 https://nytimes.com/athletic/5933299/2024/11/19/mlb-plans-new-national-tv-packages-for-2028-changes-to-revenue-sharing-cba-crucial/
