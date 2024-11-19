@@ -1,3 +1,11 @@
+**They Taught A.I. to Sing, and It Was Beautiful**\
+`Holly Herndon and Matt Dryhurst are presenting their first large-scale solo museum show. It sounds gorgeous, even if its visual elements are lacking.`\
+https://nytimes.com/2024/11/19/arts/design/holly-herndon-matt-dryhurst-serpentine-galleries.html
+
+**‘Barbenheimer’ Ruled the Box Office. Can ‘Glicked’ Recapture the Magic?**\
+`“Wicked” and “Gladiator II” both open Friday, and some fans hope to rekindle the excitement that greeted last year’s simultaneous openings of “Barbie” and “Oppenheimer.”`\
+https://nytimes.com/2024/11/19/movies/glicked-wicked-gladiator-ii.html
+
 **Access all areas with Canada in Suriname: Travelling with Marsch, team meetings and playing Mafia**\
 `The Athletic is granted access never previously allowed, travelling with Canada's players by plane and bus on their long trip to Suriname`\
 https://nytimes.com/athletic/5929141/2024/11/19/canada-suriname-access-all-areas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5927771/2024/11/19/nfl-week-11-worst-best-coaching-
 **Spurs have 'remastered' their 'brand identity' - but what does that actually mean?**\
 `Tottenham announced they had “remastered” their brand identity. For anyone left confused by that phrase, don’t worry, you were not alone`\
 https://nytimes.com/athletic/5930058/2024/11/19/tottenham-new-badge-logo/
-
-**Is the Biden Administration Coming for Chrome?**\
-`The Justice Department is reportedly targeting Google’s web browser as its antitrust enforcers seek to cement a major win before Donald Trump takes office.`\
-https://nytimes.com/2024/11/19/business/dealbook/biden-chrome-google-antitrust.html
-
-**Heat Today: Miami happy to have Jimmy Butler leading the way again**\
-`Butler returned to Miami's lineup in a big way Monday. How does he change the Heat's makeup?`\
-https://nytimes.com/athletic/5931492/2024/11/19/jimmy-butler-tyler-herro-miami-heat/
 

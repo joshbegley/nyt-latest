@@ -1,3 +1,11 @@
+**They Taught A.I. to Sing, and It Was Beautiful**\
+`Holly Herndon and Matt Dryhurst are presenting their first large-scale solo museum show. It sounds gorgeous, even if its visual elements are lacking.`\
+https://nytimes.com/2024/11/19/arts/design/holly-herndon-matt-dryhurst-serpentine-galleries.html
+
+**‘Barbenheimer’ Ruled the Box Office. Can ‘Glicked’ Recapture the Magic?**\
+`“Wicked” and “Gladiator II” both open Friday, and some fans hope to rekindle the excitement that greeted last year’s simultaneous openings of “Barbie” and “Oppenheimer.”`\
+https://nytimes.com/2024/11/19/movies/glicked-wicked-gladiator-ii.html
+
 **Ukraine Fired U.S.-Made Missiles Into Russia for First Time, Officials Say**\
 `The attack came just two days after President Biden gave Ukraine permission to use long-range U.S.-made weapons to strike targets inside Russia.`\
 https://nytimes.com/2024/11/19/world/europe/ukraine-russia-atacms-missiles.html
