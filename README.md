@@ -1,3 +1,15 @@
+**Why new coordinator Thomas Brown could be more than a spark for Bears offense**\
+`Brown received positive reviews in the Bears locker room, namely for playing to his players' strengths and getting play calls in quickly.`\
+https://nytimes.com/athletic/5930641/2024/11/19/bears-thomas-brown-offensive-spark/
+
+**How the Chiefs' little mistakes added up to their first loss of the season**\
+`Cornerbacks Nazeeh Johnson and Chamarri Conner struggled, and the Chiefs offense failed twice to take the lead in the third quarter.`\
+https://nytimes.com/athletic/5930978/2024/11/19/chiefs-mistakes-loss-bills/
+
+**'You beat me - a lot': Federer pays tribute to Nadal**\
+`Nadal, 38, will retire from tennis at the Davis Cup this week.`\
+https://nytimes.com/athletic/5931632/2024/11/19/federer-nadal-retirement-tribute/
+
 **Vikings' middling run game makes it abundantly clear — they need help on the interior OL**\
 `For three years, Minnesota has tried to boost its running game to no avail. This offseason, it's time to upgrade the interior O-line.`\
 https://nytimes.com/athletic/5930686/2024/11/19/vikings-run-game-offensive-line/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5930090/2024/11/19/nhl-penuins-rock-bottom/
 **From Resistance to Reflection**\
 `When Donald Trump won the presidency in 2016, it prompted an outpouring of protests. What will happen this time?`\
 https://nytimes.com/2024/11/19/podcasts/the-daily/from-resistance-to-reflection.html
-
-**Why the Jets' rematch with the Panthers matters so much**\
-`The teams finished with identical 52-24-6 records last season, but while the Jets face criticism the Panthers don't.`\
-https://nytimes.com/athletic/5930877/2024/11/19/jets-panthers-rematch-critics-playoffs/
-
-**They’re Open to Interpretation**\
-`Robert S. Gard brings us a little sunshine.`\
-https://nytimes.com/2024/11/19/crosswords/daily-puzzle-2024-11-20.html
-
-**Explosive Claims About Gaetz, and Dozens Jailed in Hong Kong Mass Trial**\
-`Plus, the man who opened travel to the masses.`\
-https://nytimes.com/2024/11/19/podcasts/gaetz-trial-hong-kong.html
 
