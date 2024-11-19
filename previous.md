@@ -1,3 +1,7 @@
+**China’s Soaring Emissions Are Upending Climate Politics**\
+`China has now passed Europe in its historical contribution to global warming. Rich nations say the country should contribute more climate aid.`\
+https://nytimes.com/interactive/2024/11/19/climate/china-emissions-fossil-fuels-climate.html
+
 **Late Night Is Appalled by Trump’s Mile-High McDonald’s Feast**\
 `The president-elect dined on his plane with some associates — including Robert F. Kennedy Jr., who hates fast food. Jimmy Kimmel called it a “subservience test.”`\
 https://nytimes.com/2024/11/19/arts/television/late-night-trump-mcdonalds.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931026/2024/11/19/spain-switzerland-gil-zaragoza/
 **Word of the Day: mischievous**\
 `This word has appeared in 141 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/19/learning/word-of-the-day-mischievous.html
-
-**Putin Sees America Hurtling to Disaster, With Trump at the Wheel**\
-`To the Kremlin, the president-elect is a harbinger of American collapse.`\
-https://nytimes.com/2024/11/19/opinion/putin-trump-russia-america.html
 

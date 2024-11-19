@@ -1,3 +1,7 @@
+**China’s Soaring Emissions Are Upending Climate Politics**\
+`China has now passed Europe in its historical contribution to global warming. Rich nations say the country should contribute more climate aid.`\
+https://nytimes.com/interactive/2024/11/19/climate/china-emissions-fossil-fuels-climate.html
+
 **Spain 3-2 Switzerland: Gil and Zaragoza make an impact as De la Fuente shuffles his pack**\
 `There were three more debutants as a much-changed Spain dug deep to beat Switzerland and reach the Nations League quarter-finals`\
 https://nytimes.com/athletic/5931026/2024/11/19/spain-switzerland-gil-zaragoza/
