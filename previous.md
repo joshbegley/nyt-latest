@@ -1,3 +1,7 @@
+**49ers minutia: Brock Purdy's sore shoulder; Jauan Jennings was great, other WRs absent**\
+`Purdy — who had five carries and took two sacks — emerged with a sore shoulder. Meanwhile, George Kittle should return this week.`\
+https://nytimes.com/athletic/5930609/2024/11/18/49ers-brock-purdy-shoulder-snap-counts/
+
 **Sean Duffy, Fox Stalwart, Gets Trump’s Nod for Transportation Secretary**\
 `President-elect Donald J. Trump nominated the former representative from Wisconsin, who is married to a Fox News host, to oversee a sprawling agency that includes aviation, rail and transit.`\
 https://nytimes.com/2024/11/18/us/politics/sean-duffy-trump-transportation-dot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930916/2024/11/18/biff-poggi-charlotte-college-foo
 **Gaetz May Not Be Confirmed, Trump Admits. He’s Pushing Him and Others Anyway.**\
 `The president-elect is taking a flood-the-zone approach to his cabinet nominations, betting that the Senate won’t dare to turn them all down.`\
 https://nytimes.com/2024/11/18/us/politics/trump-cabinet.html
-
-**Biden Asks Congress for Nearly $100 Billion in Disaster Aid**\
-`The president said the aid was “urgently needed” as emergency programs face funding shortfalls amid the devastation after Hurricanes Helene and Milton and a string of other natural disasters.`\
-https://nytimes.com/2024/11/18/us/politics/biden-disaster-aid.html
 

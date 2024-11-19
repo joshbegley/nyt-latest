@@ -1,3 +1,7 @@
+**49ers minutia: Brock Purdy's sore shoulder; Jauan Jennings was great, other WRs absent**\
+`Purdy — who had five carries and took two sacks — emerged with a sore shoulder. Meanwhile, George Kittle should return this week.`\
+https://nytimes.com/athletic/5930609/2024/11/18/49ers-brock-purdy-shoulder-snap-counts/
+
 **Sean Duffy, Fox Stalwart, Gets Trump’s Nod for Transportation Secretary**\
 `President-elect Donald J. Trump nominated the former representative from Wisconsin, who is married to a Fox News host, to oversee a sprawling agency that includes aviation, rail and transit.`\
 https://nytimes.com/2024/11/18/us/politics/sean-duffy-trump-transportation-dot.html
