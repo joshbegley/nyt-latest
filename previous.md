@@ -2,8 +2,8 @@
 `The Athletic is granted access never previously allowed, travelling with Canada's players by plane and bus on their long trip to Suriname`\
 https://nytimes.com/athletic/5929141/2024/11/19/canada-suriname-access-all-areas/
 
-**Russia Claims Ukraine Used U.S.-Made Missiles in Strike**\
-`If confirmed, the strike would be first time that Ukraine had used the weapons system, known as ATACMS, to strike inside Russia.`\
+**Ukraine Fired U.S.-Made Missiles Into Russia for First Time, Officials Say**\
+`The attack came just two days after President Biden gave Ukraine permission to use long-range U.S.-made weapons to strike targets inside Russia.`\
 https://nytimes.com/2024/11/19/world/europe/ukraine-russia-atacms-missiles.html
 
 **The Athletic FC: USMNT stars shine as Pulisic does 'Trump dance'; spooky season in Swindon**\
