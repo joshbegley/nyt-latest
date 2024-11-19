@@ -1,3 +1,7 @@
+**Bills-Chiefs draws largest TV audience of season**\
+`Buffalo's 30-21 win over the previously undefeated Chiefs game averaged a whopping 31.2 million viewers for CBS, per the NFL.`\
+https://nytimes.com/athletic/5933373/2024/11/19/bills-chiefs-josh-allen-viewership-broadcast/
+
 **Netanyahu Offers $5 Million for Each Hostage Freed in Gaza**\
 `As he resists pressure to reach a cease-fire that would release the captives, Israel’s prime minister is now offering a reward for their freedom, while still vowing to punish anyone who hurts a hostage.`\
 https://nytimes.com/2024/11/19/world/middleeast/israel-5-million-dollars-hostage.html
