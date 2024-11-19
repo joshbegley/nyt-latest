@@ -1,3 +1,15 @@
+**Trump Wants to Nominate Dr. Mehmet Oz to Oversee Medicare and Medicaid**\
+`The celebrity physician would oversee federal health insurance programs that cover more than 100 million Americans.`\
+https://nytimes.com/2024/11/19/us/politics/trump-dr-oz-medicare-medicaid.html
+
+**Upon further review, Big Ten says Oregon has clinched spot in title game**\
+`Initially, Big Ten officials described one situation containing a possibility that remained for a Penn State-Ohio State rematch in Indy.`\
+https://nytimes.com/athletic/5933147/2024/11/19/oregon-big-ten-championship-game-tiebreakers/
+
+**Bruins fire Jim Montgomery after 8-9-3 start, name Joe Sacco interim coach**\
+`Montgomery completes his Bruins run with a 120-41-23 record, but this season, the Bruins have had all kinds of issues.`\
+https://nytimes.com/athletic/5890537/2024/11/19/bruins-fire-jim-montgomery-coach/
+
 **UEFA Nations League: Who was promoted and who could win the trophy?**\
 `The group stage of the UEFA Nations League concluded on Tuesday, so who were promoted and relegated and who could win the competition?`\
 https://nytimes.com/athletic/5929897/2024/11/19/uefa-nations-league-promotion-relegation/
