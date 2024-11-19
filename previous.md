@@ -1,3 +1,19 @@
+**Marvin Mims Jr.'s new role highlights Sean Payton's creativity with Broncos offense**\
+`The second-year receiver has carried the ball six times in the past two games, putting more on the plate of opposing defenses.`\
+https://nytimes.com/athletic/5928966/2024/11/19/marvin-mims-broncos-offense-sean-payton/
+
+**Liut: Paying tribute to Jordan Binnington as he stands on the brink of Blues history**\
+`On Tuesday, Binnington could tie Mike Liut for the Blues record for wins by a goaltender (151), which Liut has held for 40 years.`\
+https://nytimes.com/athletic/5861023/2024/11/19/blues-jordan-binnington-mike-liut-wins/
+
+**At 3-7, Cowboys faced with being 'realistic' and coming to terms that 2024 season is over**\
+`"We can’t really take all of these steps back and expect to win,” CeeDee Lamb said after the Cowboys' fifth loss in a row.`\
+https://nytimes.com/athletic/5931567/2024/11/19/cowboys-season-disappointment-loss-texans/
+
+**Five Lakers trends from 5-game win streak: Knecht's breakout, LeBron's passing and more**\
+` A starting lineup switch has worked, and Max Christie has reemerged during this recent run of success.`\
+https://nytimes.com/athletic/5928034/2024/11/19/lakers-win-streak-dalton-knecht-lebron-james/
+
 **The Pulse: Cowboys' sky and roof both falling**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5930169/2024/11/19/cowboys-texans-usmnt-pulisic-trump-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5921491/2024/11/19/warriors-free-throws-loss-clippe
 **U.K. Farmers Protest in London Over Inheritance Tax Change**\
 `Farms worth more than about $1.3 million will face an estate tax from 2026, ending a previous exemption and prompting anger in some rural communities.`\
 https://nytimes.com/2024/11/19/world/europe/uk-farmers-protest-inheritance-tax.html
-
-**Man Drives Car Into Crowd Outside Primary School in China**\
-`The incident followed an attack by a driver last week that left 35 people dead, and a mass stabbing several days later.`\
-https://nytimes.com/2024/11/19/world/asia/china-school-car-ramming.html
-
-**Why new coordinator Thomas Brown could be more than a spark for Bears offense**\
-`Brown received positive reviews in the Bears locker room, namely for playing to his players' strengths and getting play calls in quickly.`\
-https://nytimes.com/athletic/5930641/2024/11/19/bears-thomas-brown-offensive-spark/
-
-**How the Chiefs' little mistakes added up to their first loss of the season**\
-`Cornerbacks Nazeeh Johnson and Chamarri Conner struggled, and the Chiefs offense failed twice to take the lead in the third quarter.`\
-https://nytimes.com/athletic/5930978/2024/11/19/chiefs-mistakes-loss-bills/
-
-**'You beat me - a lot': Federer pays tribute to Nadal**\
-`Nadal, 38, will retire from tennis at the Davis Cup this week.`\
-https://nytimes.com/athletic/5931632/2024/11/19/federer-nadal-retirement-tribute/
 
