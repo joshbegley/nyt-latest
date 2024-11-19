@@ -1,3 +1,7 @@
+**Man Drives Car Into Crowd Outside Primary School in China**\
+`The incident followed an attack by a driver last week that left 35 people dead, and a mass stabbing several days later.`\
+https://nytimes.com/2024/11/19/world/asia/china-school-car-ramming.html
+
 **Why new coordinator Thomas Brown could be more than a spark for Bears offense**\
 `Brown received positive reviews in the Bears locker room, namely for playing to his players' strengths and getting play calls in quickly.`\
 https://nytimes.com/athletic/5930641/2024/11/19/bears-thomas-brown-offensive-spark/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930574/2024/11/19/college-football-playoff-odds-ge
 **The Penguins have hit rock bottom. What is the path forward?**\
 `The roster is flawed. The contracts are flawed. Even the coaching staff has become flawed. It's time for the Penguins to embrace change.`\
 https://nytimes.com/athletic/5930090/2024/11/19/nhl-penuins-rock-bottom/
-
-**From Resistance to Reflection**\
-`When Donald Trump won the presidency in 2016, it prompted an outpouring of protests. What will happen this time?`\
-https://nytimes.com/2024/11/19/podcasts/the-daily/from-resistance-to-reflection.html
 

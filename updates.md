@@ -1,3 +1,7 @@
+**Man Drives Car Into Crowd Outside Primary School in China**\
+`The incident followed an attack by a driver last week that left 35 people dead, and a mass stabbing several days later.`\
+https://nytimes.com/2024/11/19/world/asia/china-school-car-ramming.html
+
 **Why new coordinator Thomas Brown could be more than a spark for Bears offense**\
 `Brown received positive reviews in the Bears locker room, namely for playing to his players' strengths and getting play calls in quickly.`\
 https://nytimes.com/athletic/5930641/2024/11/19/bears-thomas-brown-offensive-spark/
