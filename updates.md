@@ -1,3 +1,11 @@
+**The Perfect Novel for the Baku Climate Summit**\
+`The U.N. climate conference, held in a petrostate, is a surreal moment. This darkly funny novel about Baku, oil companies and climate change in the first Trump term helps make sense of it all.`\
+https://nytimes.com/2024/11/19/climate/mobility-kiesling-baku-climate-summit.html
+
+**Trump’s Treasury Challenge: A Pick Who Loves Tariffs Yet Calms Markets**\
+`The president-elect is considering a conflicting mix of qualities as he decides who will steer his economic agenda.`\
+https://nytimes.com/2024/11/19/us/politics/trump-treasury-secretary-tariffs.html
+
 **SpaceX Prepares for Sixth Starship Test Launch: What to Know**\
 `The company will try to catch the giant booster of its moon and Mars rocket for a second time on Tuesday afternoon.`\
 https://nytimes.com/2024/11/19/science/spacex-launch-starship.html
