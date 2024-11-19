@@ -27,7 +27,7 @@ https://nytimes.com/2024/11/19/business/robots-warehouses-amazon.html
 https://nytimes.com/2024/11/19/crosswords/spelling-bee-forum.html
 
 **Spain 3-2 Switzerland: Gil and Zaragoza make an impact as De la Fuente shuffles his pack**\
-`There were three more debutants as a much-changed Spain side dug deep to beat Switzerland in the final Nations League group game`\
+`There were three more debutants as a much-changed Spain dug deep to beat Switzerland and reach the Nations League quarter-finals`\
 https://nytimes.com/athletic/5931026/2024/11/19/spain-switzerland-gil-zaragoza/
 
 **Word of the Day: mischievous**\

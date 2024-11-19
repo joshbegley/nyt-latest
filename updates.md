@@ -1,3 +1,7 @@
+**Spain 3-2 Switzerland: Gil and Zaragoza make an impact as De la Fuente shuffles his pack**\
+`There were three more debutants as a much-changed Spain dug deep to beat Switzerland and reach the Nations League quarter-finals`\
+https://nytimes.com/athletic/5931026/2024/11/19/spain-switzerland-gil-zaragoza/
+
 **Late Night Is Appalled by Trump’s Mile-High McDonald’s Feast**\
 `The president-elect dined on his plane with some associates — including Robert F. Kennedy Jr., who hates fast food. Jimmy Kimmel called it a “subservience test.”`\
 https://nytimes.com/2024/11/19/arts/television/late-night-trump-mcdonalds.html
