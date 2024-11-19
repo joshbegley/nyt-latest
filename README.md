@@ -1,3 +1,7 @@
+**Live Q&A: Week 12 fantasy football add/drop chat with Jay Felicio, Tuesday 11/19 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5932399/2024/11/19/live-qa-week-12-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-11-19-at-5-p-m-et/
+
 **Nick Nurse, Daryl Morey safe amid Sixers' locker room drama: Sources**\
 `The 76ers are 2-11 following a loss to Miami and a team meeting in which Tyrese Maxey challenged star Joel Embiid about his habits.`\
 https://nytimes.com/athletic/5932957/2024/11/19/76ers-meeting-embiid-maxey-nick-nurse-daryl-morey/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/spy-agencies-are-
 **Inching Toward a Fusion Energy Future**\
 `A handful of startups are racing to usher in an era of near-limitless fusion energy, but big questions remain.`\
 https://nytimes.com/2024/11/19/climate/fusion-energy-startups.html
-
-**Canucks' J.T. Miller takes indefinite leave of absence from team**\
-`Miller emerged as a fan favorite and emotional leader of a Canucks team that vastly exceeded expectations during the 2023-24 campaign.`\
-https://nytimes.com/athletic/5932735/2024/11/19/jt-miller-canucks-indefinite-leave/
 
