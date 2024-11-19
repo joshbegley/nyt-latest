@@ -1,3 +1,7 @@
+**Phillies' quest for Andrew Painter placeholder takes shape as club makes 40-man roster adds**\
+`There are layers to this quest for back-of-the-rotation stability in 2025. `\
+https://nytimes.com/athletic/5933565/2024/11/19/phillies-40-man-roster-andrew-painter/
+
 **SpaceX Unable to Recover Booster Stage During Sixth Test Flight**\
 `President-elect Donald Trump joined Elon Musk in Texas and watched the launch from a nearby location on Tuesday. While the Starship’s giant booster stage was unable to repeat a “chopsticks” landing, the vehicle’s upper stage successfully splashed down in the Indian Ocean.`\
 https://nytimes.com/video/science/space/100000009834826/spacex-rocket-starship-elon-musk-trump.html
