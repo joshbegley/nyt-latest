@@ -1,3 +1,11 @@
+**The Pulse: Cowboys' sky and roof both falling**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5930169/2024/11/19/cowboys-texans-usmnt-pulisic-trump-the-pulse/
+
+**U.S. Envoy Visits Lebanon, Seeking Truce Between Israel and Hezbollah**\
+`Amos Hochstein met with the speaker of the Lebanese Parliament amid efforts to stop the fighting.`\
+https://nytimes.com/2024/11/19/world/middleeast/us-envoy-lebanon-israel-hezbollah.html
+
 **Putin Lowers Russia’s Threshold for Using Nuclear Arms**\
 `A decree signed by the Russian leader, though long-planned, came days after President Biden authorized the use of U.S.-supplied long-range missiles by Ukraine for strikes inside Russia.`\
 https://nytimes.com/2024/11/19/world/europe/putin-russia-nuclear-weapons-missiles.html
