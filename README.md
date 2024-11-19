@@ -1,40 +1,37 @@
-**Travel Pledged to Help Cut Carbon Emissions. How Has It Done?**\
-`The tourism industry will be officially recognized at COP29 on Wednesday. Industry leaders signed a climate accord in 2021 to make travel more sustainable, but the results so far are meager.`\
-https://nytimes.com/2024/11/19/travel/tourism-climate-cop29.html
+**Cowboys took points away, never scored again: Key plays, decisions in fifth consecutive loss**\
+`At 3-7, the Cowboys continue to slide closer to a top-five draft pick than a playoff spot.`\
+https://nytimes.com/athletic/5931514/2024/11/19/cowboys-fifth-consecutive-loss-texans/
 
-**Orders for Morning-After Pills and Abortion Pills Rise After Trump’s Election**\
-`Some women are stocking up on the medications, saying they are concerned that the new administration could take steps to restrict access.`\
-https://nytimes.com/2024/11/19/health/abortion-pills-planb-trump-election.html
+**How the Celtics are approaching their showdown against the undefeated Cavaliers**\
+`"We’re excited to try to put a loss in their loss column," says Sam Hauser as 15-0 Cavs head to Boston. `\
+https://nytimes.com/athletic/5931005/2024/11/19/celtics-cavaliers-undefeated-matchup-nba-eastern-conference/
 
-**The Hypebeasts Take Las Vegas**\
-`ComplexCon, held this year in Nevada and “curated” by Travis Scott, is a mutant hybrid of a sneaker mall, a fashion show and a music festival. And the kids just love it.`\
-https://nytimes.com/2024/11/19/style/complexcon-las-vegas.html
+**For season to be a success, Patriots need more than just Drake Maye to take step forward**\
+`Year 1 of the Patriots' rebuild can be termed a success if these things happen over their final six games.`\
+https://nytimes.com/athletic/5930045/2024/11/19/drake-maye-patriots-rookies-success/
 
-**‘Interior Chinatown’ Puts Stereotypes in the Spotlight**\
-`Adapted by Charles Yu from his own novel, this series about a man stuck inside a cop show satirizes Hollywood’s penchant for pigeonholing Asian actors.`\
-https://nytimes.com/2024/11/19/arts/television/interior-chinatown.html
+**Don’t Blame Polling**\
+`Why it can’t fix our messy politics.`\
+https://nytimes.com/2024/11/19/opinion/polling-election-trump-harris.html
 
-**Jon Batiste Can’t Stop Thinking About Beethoven**\
-`Batiste’s latest album is a return to his classical music roots — on his terms. Hear him improvise on some of Beethoven’s classics.`\
-https://nytimes.com/2024/11/19/arts/music/jon-batiste-beethoven-blues.html
+**How to Make Central Park Safer for Pedestrians**\
+`A report from the Central Park Conservancy recommends changes in the park’s roads to protect walkers from fast-moving cyclists.`\
+https://nytimes.com/2024/11/19/nyregion/central-park-drives-redesign.html
 
-**For Minority Working-Class Voters, Dismay in Democrats Led to Distrust**\
-`In scores of interviews throughout 2024, Latino, Black and Asian American voters, many of whom voted for Donald Trump, said they no longer trusted Democrats to improve the economy.`\
-https://nytimes.com/2024/11/19/us/politics/trump-working-class-voters.html
+**Wearing Your Personality on Your Handbag**\
+`Bag charms — or key chains by another name — have begun to rival holiday ornaments in their variety and as a form of self-expression.`\
+https://nytimes.com/2024/11/19/style/bag-charms-trend.html
 
-**Jesse Ed Davis Was Rock Heroes’ Secret Weapon. And a Mystery.**\
-`The Native American guitarist graced records by Bob Dylan and John Lennon, but fell to addiction in 1988. A new book and exhibit are telling his story.`\
-https://nytimes.com/2024/11/19/arts/music/jesse-ed-davis.html
+**Magicians Mount Search for Woman Behind Decades-Old Deception**\
+`A British society of magicians expelled a woman for tricking her way into the club in 1991. Now it wants to invite her back, but the woman seems to have pulled a disappearing act.`\
+https://nytimes.com/2024/11/19/world/europe/magic-circle-woman-london-lloyd.html
 
-**4 Colorful Thanksgiving Veggie Sides to Brighten Your Table**\
-`These abundant vegetarian dishes from Melissa Clark aren’t just gorgeous. They’re sure to make everyone at the table happy.`\
-https://nytimes.com/2024/11/19/dining/veggie-thanksgiving-side-dishes.html
+**Trump’s Win Terrifies Me. Why Don’t Boys My Age Care?**\
+`Naomi Beinart, 16, on the gender divide that the election revealed at her high school.`\
+https://nytimes.com/2024/11/19/opinion/trump-election-teenage-boys-girls.html
 
-**I Liked New York as a Tourist. I Fell In Love With It as a Tour Guide.**\
-`How did pigeons came to dominate our streets? Where did Katharine Hepburn live? The answers might be more interesting than you think.`\
-https://nytimes.com/2024/11/19/magazine/tour-guide-new-york.html
+**Five Ways R.F.K. Jr. Could Undermine Lifesaving Childhood Vaccines**\
+`If he is confirmed as H.H.S. secretary, the longtime vaccine critic would be in a position to change the government’s immunization recommendations and delay the development of new vaccines.`\
+https://nytimes.com/2024/11/19/health/rfk-jr-vaccines-hhs.html
 
-**Will Ozempic Crush the Junk-Food Business?**\
-`As revolutionary new weight-loss drugs turn consumers off ultraprocessed foods, the industry is on the hunt for new products.`\
-https://nytimes.com/2024/11/19/magazine/ozempic-junk-food.html
-
+**One Book That Made Gabriel García Márquez a Writer**\
