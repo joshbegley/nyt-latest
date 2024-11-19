@@ -1,3 +1,7 @@
+**Fantasy football Week 12 drops: Part ways with DeAndre Hopkins, Kyle Pitts**\
+`Gary Davenport gives advice on who to drop ahead of Week 12, including a few RBs who aren't getting enough work to remain rostered.  `\
+https://nytimes.com/athletic/5931946/2024/11/19/nfl-fantasy-footall-week-12-drops/
+
 **Trump Defies the #MeToo Movement With Cabinet Picks Facing Accusations**\
 `Donald J. Trump, who was found liable for sexual abuse last year, appears determined to force a fight over the role of such allegations in society.`\
 https://nytimes.com/2024/11/19/us/politics/trump-women-metoo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932028/2024/11/19/nascar-rfk-racing-expansion/
 **Spirit owner Kang pledges $30million into women's soccer programs**\
 `The donation is the largest donation ever made to the organization by a woman.`\
 https://nytimes.com/athletic/5932040/2024/11/19/michele-kang-investment-women-soccer/
-
-**What we learned about the Rockets in loss to the struggling Bucks**\
-`"They just try to attack mismatches so it's on us to know which one and adjust," Rockets' Tari Eason said after the 101-100 loss.`\
-https://nytimes.com/athletic/5931426/2024/11/19/rockets-struggling-bucks-win/
 
