@@ -1,3 +1,15 @@
+**Why the Sixers are still struggling despite Joel Embiid's return to the lineup**\
+`The Sixers, now 2-11, are losing the benefit of time and patience. Can Joel Embiid get back in rhythm?`\
+https://nytimes.com/athletic/5932522/2024/11/19/sixers-joel-embiid-whats-wrong/
+
+**Unexpected Turns in Trump Election Cases Raise Questions About Their Durability**\
+`Canceled oral arguments in one case and a judge’s recusal in another have added to questions about the future of four state cases against Donald J. Trump and his allies.`\
+https://nytimes.com/2024/11/19/us/trump-election-interference-georgia-arizona.html
+
+**Did the Trump Prosecutions Damage Democratic Credibility?**\
+`Many voters may have thought Democrats were the authoritarians.`\
+https://nytimes.com/live/2024/11/12/opinion/thepoint/trump-prosecutions-democratic-credibility
+
 **Live Q&A: Week 12 fantasy football add/drop chat with Jay Felicio, Tuesday 11/19 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5932399/2024/11/19/live-qa-week-12-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-11-19-at-5-p-m-et/
