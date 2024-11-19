@@ -1,3 +1,7 @@
+**After disastrous road trip, where do Red Wings go from here?**\
+`The Red Wings lost all three games in California, plunging them into an early-season crisis that points to challenging decisions ahead.`\
+https://nytimes.com/athletic/5931466/2024/11/19/red-wings-sharks-loss-nhl-season/
+
 **What Special Community Rituals and Traditions Does Your Hometown Have?**\
 `Every year, Santa Fe, N.M., incinerates a giant puppet of Zozobra in a ritual meant to purge anxiety and promote a reset.`\
 https://nytimes.com/2024/11/19/learning/what-special-community-rituals-and-traditions-does-your-hometown-have.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/world/middleeast/us-envoy-lebanon-israel-hezbolla
 **What’s Killing Kids?**\
 `We explore America’s childhood death rate.`\
 https://nytimes.com/2024/11/19/briefing/childhood-death-rate.html
-
-**Putin Lowers Russia’s Threshold for Using Nuclear Arms**\
-`A decree signed by the Russian leader, though long-planned, came days after President Biden authorized the use of U.S.-supplied long-range missiles by Ukraine for strikes inside Russia.`\
-https://nytimes.com/2024/11/19/world/europe/putin-russia-nuclear-weapons-missiles.html
 
