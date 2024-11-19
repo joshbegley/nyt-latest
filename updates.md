@@ -1,3 +1,7 @@
+**Manhattan D.A. Suggests Freezing Trump’s Case While He Is President**\
+`With his sentencing on hold, lawyers for President-elect Donald J. Trump are pushing to dismiss the case. The district attorney, Alvin Bragg, is opposing the effort.`\
+https://nytimes.com/2024/11/19/nyregion/trump-bragg-manhattan-case.html
+
 **NFL best bets Week 12: Chargers against the spread in Harbaugh Bowl**\
 `Austin Mock's model has four bets to make on NFL Week 12. Check back through the week for more. `\
 https://nytimes.com/athletic/5932536/2024/11/19/nfl-best-bets-week-12-harbaugh-bowl/
