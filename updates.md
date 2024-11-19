@@ -1,3 +1,15 @@
+**Christian Pulisic on copying Donald Trump's dance: 'I just thought it was funny'**\
+`Pulisic is just the latest athlete to use the president-elect's signature moves to celebrate on the field.`\
+https://nytimes.com/athletic/5931389/2024/11/19/christian-pulisic-celebrates-usmnt-trump-dance/
+
+**Yes, another Pochettino column. Five years since his sacking, there are still things to say**\
+`Five years since the Argentine manager left Spurs, is there a way back onto the path the club veered off back then?`\
+https://nytimes.com/athletic/5928008/2024/11/19/pochettino-fifth-anniversary/
+
+**Inside Newcastle Q&A: Next England cap, Mitchell & Howe in Riyadh and the January budget**\
+`Do Newcastle have money to spend? Are the Venkatesham rumours true? What's happening with the APT case? Chris Waugh gets into it all`\
+https://nytimes.com/athletic/5929063/2024/11/19/inside-newcastle-england-howe-january-budget/
+
 **The Premier League Owners: Why half of clubs will soon be in American hands**\
 `Relatively low investment and opportunity for growth is luring U.S. money to the Premier League - but what happens next?`\
 https://nytimes.com/athletic/5926165/2024/11/19/premier-league-owners-american-chelsea-manchester-united/

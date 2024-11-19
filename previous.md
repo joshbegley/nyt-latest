@@ -1,3 +1,15 @@
+**Christian Pulisic on copying Donald Trump's dance: 'I just thought it was funny'**\
+`Pulisic is just the latest athlete to use the president-elect's signature moves to celebrate on the field.`\
+https://nytimes.com/athletic/5931389/2024/11/19/christian-pulisic-celebrates-usmnt-trump-dance/
+
+**Yes, another Pochettino column. Five years since his sacking, there are still things to say**\
+`Five years since the Argentine manager left Spurs, is there a way back onto the path the club veered off back then?`\
+https://nytimes.com/athletic/5928008/2024/11/19/pochettino-fifth-anniversary/
+
+**Inside Newcastle Q&A: Next England cap, Mitchell & Howe in Riyadh and the January budget**\
+`Do Newcastle have money to spend? Are the Venkatesham rumours true? What's happening with the APT case? Chris Waugh gets into it all`\
+https://nytimes.com/athletic/5929063/2024/11/19/inside-newcastle-england-howe-january-budget/
+
 **The Premier League Owners: Why half of clubs will soon be in American hands**\
 `Relatively low investment and opportunity for growth is luring U.S. money to the Premier League - but what happens next?`\
 https://nytimes.com/athletic/5926165/2024/11/19/premier-league-owners-american-chelsea-manchester-united/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5924390/2024/11/19/arsenal-academy-pathway-nwaneri-
 **Data and video scouting – how important is it and how does it work?**\
 `Filtering players through data and video before scouting them live has become an integral part of the recruitment process across Europe`\
 https://nytimes.com/athletic/5921848/2024/11/19/data-and-video-scouting-how-important-is-it-and-how-does-it-work/
-
-**Tuesday Briefing**\
-`Ukraine’s new military powers.`\
-https://nytimes.com/2024/11/19/world/europe/ukraine-trump-gaza.html
-
-**Ansu Fati is injured again. Can he find a way back at Barcelona?**\
-`Fati is firmly a back-up forward and is out with a hamstring injury. It's the latest blow for a player once billed as the next Lionel Messi`\
-https://nytimes.com/athletic/5929962/2024/11/19/ansu-fati-injury-barcelona-flick/
-
-**The Scandinavian Soft Rock Band That’s Big in Asia**\
-`Michael Learns to Rock hoped for success west of their native Denmark. But for 30 years, they’ve had a devoted following on the other side of the world.`\
-https://nytimes.com/2024/11/19/world/asia/micheal-learns-to-rock-popularity.html
 
