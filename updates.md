@@ -1,3 +1,7 @@
+**Putin Lowers Russia’s Threshold for Using Nuclear Arms**\
+`A decree signed by the Russian leader, though long-planned, came days after President Biden authorized the use of U.S.-supplied long-range missiles by Ukraine for strikes inside Russia.`\
+https://nytimes.com/2024/11/19/world/europe/putin-russia-nuclear-weapons-missiles.html
+
 **What’s Killing Kids?**\
 `We explore America’s childhood death rate.`\
 https://nytimes.com/2024/11/19/briefing/childhood-death-rate.html
