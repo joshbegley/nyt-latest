@@ -1,3 +1,7 @@
+**22 Patrons Stuck for 2 Hours on a Pinwheel Ride in California**\
+`Two of the riders at Knott’s Berry Farm in Orange County were taken to the hospital after the malfunction on Monday.`\
+https://nytimes.com/2024/11/19/us/knotts-berry-farm-ride-stuck.html
+
 **Texas Education Board Backs Bible-Infused Lessons in Public Schools**\
 `School districts serving more than 2 million elementary-school children would be able to adopt a curriculum that draws on the Bible.`\
 https://nytimes.com/2024/11/19/us/texas-bible-curriculum-public-schools.html
