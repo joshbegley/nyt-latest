@@ -1,3 +1,7 @@
+**Spain 3-2 Switzerland: Gil and Zaragoza make an impact as De la Fuente shuffles his pack**\
+`There were three more debutants as a much-changed Spain side dug deep to beat Switzerland in the final Nations League group game`\
+https://nytimes.com/athletic/5931026/2024/11/19/spain-switzerland-gil-zaragoza/
+
 **Putin Sees America Hurtling to Disaster, With Trump at the Wheel**\
 `To the Kremlin, the president-elect is a harbinger of American collapse.`\
 https://nytimes.com/2024/11/19/opinion/putin-trump-russia-america.html

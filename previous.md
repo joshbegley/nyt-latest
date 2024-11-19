@@ -1,3 +1,7 @@
+**Spain 3-2 Switzerland: Gil and Zaragoza make an impact as De la Fuente shuffles his pack**\
+`There were three more debutants as a much-changed Spain side dug deep to beat Switzerland in the final Nations League group game`\
+https://nytimes.com/athletic/5931026/2024/11/19/spain-switzerland-gil-zaragoza/
+
 **Word of the Day: mischievous**\
 `This word has appeared in 141 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/19/learning/word-of-the-day-mischievous.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5914493/2024/11/19/ruben-amorim-man-united-sporting
 **Kristie Mewis and Sam Kerr pregnancy: What are WSL's rules on maternity and parental leave?**\
 `There's good news for the two WSL players, but what does it mean for their work and contracts?`\
 https://nytimes.com/athletic/5929380/2024/11/19/kristie-mewis-sam-kerr-pregnancy-explainer/
-
-**From academy footballers to rejection, reflection, the marines… and The Athletic**\
-`It's almost eight years since The Athletic's Jacob Tanswell left Bournemouth — he chats with former team-mates to discuss what happened next`\
-https://nytimes.com/athletic/5882911/2024/11/19/academy-release-rejection-whats-next/
 
