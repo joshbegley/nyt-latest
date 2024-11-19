@@ -1,3 +1,11 @@
+**Trump to Watch Latest SpaceX Launch With Elon Musk**\
+`The president-elect’s appearance in Texas demonstrates the growing closeness between the two billionaires, and Mr. Musk’s increasing influence in Mr. Trump’s orbit.`\
+https://nytimes.com/2024/11/19/us/politics/trump-spacex-launch.html
+
+**Did the Trump Prosecutions Damage Democratic Credibility?**\
+`Many voters may have thought Democrats were the authoritarians.`\
+https://nytimes.com/2024/11/19/opinion/trump-prosecutions-democratic-credibility.html
+
 **Trump will watch the latest SpaceX launch with Elon Musk.**\
 `The president-elect’s appearance in Texas demonstrates the growing closeness between the two billionaires, and Mr. Musk’s increasing influence in Mr. Trump’s orbit.`\
 https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/trump-spacex-launch
