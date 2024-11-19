@@ -1,3 +1,7 @@
+**Capitals' Ovechkin week-to-week with injury, halting pursuit of goals record**\
+`The injury comes with Ovechkin off to the best goal-scoring start of his career — 15 in 18 games — and 27 behind Wayne Gretzky's NHL record.`\
+https://nytimes.com/athletic/5932033/2024/11/19/alex-ovechkin-injury-leg-capitals/
+
 **College football best bets Week 13: BYU is in danger of another loss**\
 `Austin Mock's model has identified several bets for college football Week 13, including picking against a CFP contender.`\
 https://nytimes.com/athletic/5932455/2024/11/19/college-football-best-bets-week-13-texas-am-arizona-state/
