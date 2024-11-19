@@ -1,3 +1,7 @@
+**A Fast, French-y Chicken Dinner**\
+`Chicken au poivre is a fancy-feeling take on a velvety French classic.`\
+https://nytimes.com/2024/11/19/dining/a-fast-french-y-chicken-dinner.html
+
 **Spirit's Croix Bethune named NWSL Rookie of the Year**\
 `Bethune won the Rookie of the Month award for every month she was eligible.`\
 https://nytimes.com/athletic/5932234/2024/11/19/croix-bethune-spirit-nwsl-roty/
