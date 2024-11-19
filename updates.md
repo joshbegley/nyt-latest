@@ -1,3 +1,7 @@
+**Rogers signs new Villa contract**\
+`Morgan Rogers has signed a new contract at Aston Villa that runs until 2030.`\
+https://nytimes.com/athletic/5888492/2024/11/19/morgan-rogers-aston-villa-contract/
+
 **China’s Soaring Emissions Are Upending Climate Politics**\
 `China has now passed Europe in its historical contribution to global warming. Rich nations say the country should contribute more climate aid.`\
 https://nytimes.com/interactive/2024/11/19/climate/china-emissions-fossil-fuels-climate.html

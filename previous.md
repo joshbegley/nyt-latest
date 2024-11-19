@@ -1,3 +1,7 @@
+**Rogers signs new Villa contract**\
+`Morgan Rogers has signed a new contract at Aston Villa that runs until 2030.`\
+https://nytimes.com/athletic/5888492/2024/11/19/morgan-rogers-aston-villa-contract/
+
 **China’s Soaring Emissions Are Upending Climate Politics**\
 `China has now passed Europe in its historical contribution to global warming. Rich nations say the country should contribute more climate aid.`\
 https://nytimes.com/interactive/2024/11/19/climate/china-emissions-fossil-fuels-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/crosswords/spelling-bee-forum.html
 **Spain 3-2 Switzerland: Gil and Zaragoza make an impact as De la Fuente shuffles his pack**\
 `There were three more debutants as a much-changed Spain dug deep to beat Switzerland and reach the Nations League quarter-finals`\
 https://nytimes.com/athletic/5931026/2024/11/19/spain-switzerland-gil-zaragoza/
-
-**Word of the Day: mischievous**\
-`This word has appeared in 141 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/19/learning/word-of-the-day-mischievous.html
 
