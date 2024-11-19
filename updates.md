@@ -1,3 +1,7 @@
+**Witness Describes Why Suspect in Laken Riley’s Murder Came to Georgia**\
+`In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
+https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
+
 **NHL referee taken to hospital after on-ice collision with Avalanche player**\
 `Dunning collided with Avalanche defenseman Josh Manson near Colorado’s offensive zone blue line`\
 https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-manson/
