@@ -1,3 +1,7 @@
+**The Bounce: The Malice at the Palace turns 20 today!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5931882/2024/11/19/ron-artest-pacers-pistons-malice-at-the-palace-nba-the-bounce/
+
 **Trump, the Military and Plans for Mass Deportation**\
 `Questions about the president-elect’s plan, and a call for protests. Also: Tears after the election; funds for education; a roofless stadium in Buffalo.`\
 https://nytimes.com/2024/11/19/opinion/trump-military-mass-deportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931111/2024/11/19/nba-power-rankings-cavaliers-war
 **2024 Heisman Trophy odds: Travis Hunter is in firm control**\
 `Travis Hunter is pulling away from the field in Heisman Trophy odds. The two-way Colorado star is -400 to win the award.`\
 https://nytimes.com/athletic/5930379/2024/11/19/heisman-trophy-odds-travis-hunter-ashton-jeanty/
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/11/19/nhl-standings-playoffs-projections-odds/
 
