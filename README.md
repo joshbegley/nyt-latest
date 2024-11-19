@@ -1,3 +1,7 @@
+**Trump Wants to Nominate Dr. Mehmet Oz to Oversee Medicare and Medicaid**\
+`The celebrity physician would oversee federal health insurance programs that cover more than 100 million Americans.`\
+https://nytimes.com/2024/11/19/us/politics/trump-dr-oz-medicare-medicaid.html
+
 **Upon further review, Big Ten says Oregon has clinched spot in title game**\
 `Initially, Big Ten officials described one situation containing a possibility that remained for a Penn State-Ohio State rematch in Indy.`\
 https://nytimes.com/athletic/5933147/2024/11/19/oregon-big-ten-championship-game-tiebreakers/
@@ -26,11 +30,7 @@ https://nytimes.com/athletic/5932715/2024/11/19/st-louis-cardinals-rule-5-protec
 `The 22-time Grand Slam champion lost what could be his final tennis match in the first rubber of Spain's tie against the Netherlands.`\
 https://nytimes.com/athletic/5932976/2024/11/19/rafael-nadal-davis-cup-spain/
 
-**Bruins fire coach Jim Montgomery after 8-9-3 start, name Joe Sacco interim replacement**\
+**Bruins fire Jim Montgomery after 8-9-3 start, name Joe Sacco interim coach**\
 `Montgomery completes his Bruins run with a 120-41-23 record, but this season, the Bruins have had all kinds of issues.`\
 https://nytimes.com/athletic/5890537/2024/11/19/bruins-fire-jim-montgomery-coach/
-
-**At 17, She Just Passed the State Bar of California**\
-`Sophia Park is believed to be the youngest person to pass the California State Bar Exam, besting the previous record-holder: her older brother, Peter.`\
-https://nytimes.com/2024/11/19/us/california-bar-exam-sophia-park.html
 
