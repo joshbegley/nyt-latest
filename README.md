@@ -1,3 +1,7 @@
+**U.S. Envoy Visits Lebanon, Seeking Truce Between Israel and Hezbollah**\
+`Amos Hochstein met with the speaker of the Lebanese Parliament amid efforts to stop the fighting.`\
+https://nytimes.com/2024/11/19/world/middleeast/us-envoy-lebanon-israel-hezbollah.html
+
 **What’s Killing Kids?**\
 `We explore America’s childhood death rate.`\
 https://nytimes.com/2024/11/19/briefing/childhood-death-rate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931632/2024/11/19/federer-nadal-retirement-tribute
 **Vikings' middling run game makes it abundantly clear — they need help on the interior OL**\
 `For three years, Minnesota has tried to boost its running game to no avail. This offseason, it's time to upgrade the interior O-line.`\
 https://nytimes.com/athletic/5930686/2024/11/19/vikings-run-game-offensive-line/
-
-**'He was something to see': Pete Maravich dribbles his way to No. 81 in 'The Basketball 100'**\
-`For Pete Maravich, an empty gymnasium meant freedom. If you gave him a basketball, he could see the future.`\
-https://nytimes.com/athletic/5930471/2024/11/19/pete-maravich-the-basketball-100-book-excerpt/
 
