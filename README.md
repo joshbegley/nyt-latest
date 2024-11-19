@@ -1,4 +1,4 @@
-**Sean Duffy, a Fox News stalwart, gets Trump’s nod for transportation secretary.**\
+**Sean Duffy, Fox Stalwart, Gets Trump’s Nod for Transportation Secretary**\
 `President-elect Donald J. Trump nominated the former representative from Wisconsin, who is married to a Fox News host, to oversee a sprawling agency that includes aviation, rail and transit.`\
 https://nytimes.com/2024/11/18/us/politics/sean-duffy-trump-transportation-dot.html
 
