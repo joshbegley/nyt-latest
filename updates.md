@@ -1,3 +1,7 @@
+**TKTS to Open Booth in Philadelphia, Hoping to Boost Local Theaters**\
+`The first domestic TKTS outpost outside New York comes at a time of rising concern about ticket prices and theater economics.`\
+https://nytimes.com/2024/11/19/theater/tkts-booth-philadelphia-theater.html
+
 **Vehicle Hits Students Outside Elementary School in Central China**\
 `A man drove a car into a group of people near an elementary school in Changde, a city in Hunan Province, on Tuesday, injuring multiple students.`\
 https://nytimes.com/video/world/asia/100000009834156/china-car-attack.html
