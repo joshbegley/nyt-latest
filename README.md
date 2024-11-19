@@ -1,3 +1,7 @@
+**'Every year he improved a little': The evolution of Rafael Nadal**\
+`23 years, 22 Grand Slam titles, and innumerable changes to his tennis: This is the story of Rafael Nadal's career.`\
+https://nytimes.com/athletic/5929205/2024/11/19/rafael-nadal-tennis-player-evolution/
+
 **Guardians’ Stephen Vogt wins AL Manager of the Year in first season **\
 `Vogt, who had never managed at any level, is the fastest former player to win the Manager of the Year award.`\
 https://nytimes.com/athletic/5930941/2024/11/19/guardians-stephen-vogt-al-manager-of-the-year/
@@ -28,9 +32,5 @@ https://nytimes.com/athletic/5933299/2024/11/19/mlb-plans-new-national-tv-packag
 
 **A House race in California is separated by 102 votes.**\
 `The closest House race in the nation is in Southern California, where Representative Michelle Steel is trailing her challenger, Derek Tran, by a tiny margin after more than 307,000 votes have been counted.`\
-https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/a-house-race-in-california-is-separated-by-102-votes
-
-**Ukraine Fired U.S.-Made Missiles into Russia**\
-`Also, prosecutors called for a four-year freeze on Trump’s Manhattan case. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/11/19/briefing/ukraine-russia-us-missiles-trump-new-york-case.html
+https://nytimes.com/2024/11/19/us/politics/california-house-election-steel-tran.html
 

@@ -1,3 +1,7 @@
+**Guardians’ Stephen Vogt wins AL Manager of the Year in first season **\
+`Vogt, who had never managed at any level, is the fastest former player to win the Manager of the Year award.`\
+https://nytimes.com/athletic/5930941/2024/11/19/guardians-stephen-vogt-al-manager-of-the-year/
+
 **Atmospheric River and Hurricane-Strength Storm Set to Drench the West**\
 `A “bomb cyclone” over the Pacific Ocean could bring damaging winds, rainfall and blizzards to Northern California, Oregon and Washington.`\
 https://nytimes.com/2024/11/19/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
