@@ -1,3 +1,11 @@
+**Merzlikins' stinginess, two shorthanded goals key Blue Jackets' win in Boston**\
+`A fantastic first period by the Blue Jackets goalie spurred the team to its first regulation win at TD Garden since 2016.`\
+https://nytimes.com/athletic/5931284/2024/11/18/blue-jackets-merzlikins-penalty-kill-bruins/
+
+**Review: Everyone at the Party Sees Your Texts. A New Play Revels in the Chaos.**\
+`Neil Patrick Harris, Jane Krakowski, Debra Messing and Constance Wu star in the vulgar and entertaining new work from Robert O’Hara.`\
+https://nytimes.com/2024/11/18/theater/shit-meets-fan-review.html
+
 **Firing Montgomery is the only move the Bruins can make**\
 `A dismal 5-1 loss to the Blue Jackets needs to be the point of no return for Boston.`\
 https://nytimes.com/athletic/5931321/2024/11/18/bruins-montgomery-blue-jackets/

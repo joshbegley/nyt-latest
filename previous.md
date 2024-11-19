@@ -1,3 +1,11 @@
+**Merzlikins' stinginess, two shorthanded goals key Blue Jackets' win in Boston**\
+`A fantastic first period by the Blue Jackets goalie spurred the team to its first regulation win at TD Garden since 2016.`\
+https://nytimes.com/athletic/5931284/2024/11/18/blue-jackets-merzlikins-penalty-kill-bruins/
+
+**Review: Everyone at the Party Sees Your Texts. A New Play Revels in the Chaos.**\
+`Neil Patrick Harris, Jane Krakowski, Debra Messing and Constance Wu star in the vulgar and entertaining new work from Robert O’Hara.`\
+https://nytimes.com/2024/11/18/theater/shit-meets-fan-review.html
+
 **Firing Montgomery is the only move the Bruins can make**\
 `A dismal 5-1 loss to the Blue Jackets needs to be the point of no return for Boston.`\
 https://nytimes.com/athletic/5931321/2024/11/18/bruins-montgomery-blue-jackets/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/18/us/politics/matt-gaetz-sex-allegations-house-ethi
 **Two Bee Gees Drummers Die Within Days**\
 `Colin “Smiley” Petersen, the original drummer, and Dennis Bryon, who played during the band’s disco heyday, died within four days of each other.`\
 https://nytimes.com/2024/11/18/arts/music/bee-gees-drummers-dead.html
-
-**Dodgers expected to meet with Juan Soto on Tuesday: Reports**\
-`The Dodgers did not enter this winter as the frontrunner for Soto. But it should come as little surprise that they are in the mix. `\
-https://nytimes.com/athletic/5931160/2024/11/18/juan-soto-los-angeles-dodgers-meeting/
-
-**N.Y.C. Helped Migrant Accused of Killing Laken Riley Move to Georgia, Witness Says**\
-`In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
-https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
 
