@@ -1,3 +1,11 @@
+**2024 Heisman Trophy odds: Travis Hunter is in firm control**\
+`Travis Hunter is pulling away from the field in Heisman Trophy odds. The two-way Colorado star is -400 to win the award.`\
+https://nytimes.com/athletic/5930379/2024/11/19/heisman-trophy-odds-travis-hunter-ashton-jeanty/
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/19/nhl-standings-playoffs-projections-odds/
+
 **UMass job profile: With MAC move coming, it's not as bleak as you think**\
 `The Minutemen are rejoining a conference next season and believe their coaching opening is better than it has been in the past.`\
 https://nytimes.com/athletic/5931921/2024/11/19/umass-football-coaching-search-candidate/
