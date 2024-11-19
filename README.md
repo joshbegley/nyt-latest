@@ -1,3 +1,7 @@
+**Witness Describes Why Suspect in Laken Riley’s Murder Came to Georgia**\
+`In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
+https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
+
 **Arthur Frommer, 95, Dies; His Guidebooks Opened Travel to the Masses**\
 `After publishing “Europe on 5 Dollars a Day” in 1957, he went on to build an empire of guidebooks, package tours, hotels and other services.`\
 https://nytimes.com/2024/11/18/books/arthur-frommer-dead.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/18/opinion/japan-education-childhood.html
 **Instruments of a Beating Heart**\
 `A look into the Japanese educational system’s delicate balance between teamwork, discipline and personal growth.`\
 https://nytimes.com/video/opinion/100000009295681/instruments-of-a-beating-heart.html
-
-**Yankees' Luis Gil wins 2024 American League Rookie of the Year award**\
-`Gil is the first Yankee to win American League Rookie of the Year since Aaron Judge in 2017.`\
-https://nytimes.com/athletic/5930691/2024/11/18/yankees-luis-gil-al-rookie-of-the-year/
 

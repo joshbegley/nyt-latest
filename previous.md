@@ -9,7 +9,7 @@ https://nytimes.com/2024/11/18/books/arthur-frommer-dead.html
 https://nytimes.com/athletic/5931143/2024/11/18/submit-a-question-for-stewart-mandels-college-football-mailbag-282/
 
 **NHL referee taken to hospital after on-ice collision with Avalanche player**\
-`PHILADELPHIA — Referee Mitch Dunning was taken off the ice on a stretcher after a collision with a player during the first period of the game between the Philadelphia Flyers and the Colorado Avalanche game at Wells Fargo Center on Monday night.`\
+`Dunning collided with Avalanche defenseman Josh Manson near Colorado’s offensive zone blue line`\
 https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-manson/
 
 **Newsom Will Delay His Decision on Clemency for the Menendez Brothers**\

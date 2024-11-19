@@ -1,3 +1,7 @@
+**NHL referee taken to hospital after on-ice collision with Avalanche player**\
+`Dunning collided with Avalanche defenseman Josh Manson near Colorado’s offensive zone blue line`\
+https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-manson/
+
 **Arthur Frommer, 95, Dies; His Guidebooks Opened Travel to the Masses**\
 `After publishing “Europe on 5 Dollars a Day” in 1957, he went on to build an empire of guidebooks, package tours, hotels and other services.`\
 https://nytimes.com/2024/11/18/books/arthur-frommer-dead.html
