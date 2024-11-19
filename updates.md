@@ -1,3 +1,11 @@
+**Wrexham captain McClean granted safety measure to leave pitch after abuse**\
+`Wrexham captain James McClean will be allowed to leave the pitch using the shortest route to the tunnel in a bid to improve his safety due to the supporter abuse he receives.`\
+https://nytimes.com/athletic/5932435/2024/11/19/james-mcclean-efl-tunnel-safety/
+
+**Matchmaking the top 10 MLB free agents with the team where they fit best**\
+`As we wait for signings, I selected my favorite matches for each of the top 10 free agents, pairing them with the team where they fit best.`\
+https://nytimes.com/athletic/5931599/2024/11/19/mlb-team-player-free-agent-fits/
+
 **Giannis' block, Damian Lillard's bucket help Bucks escape with win over Rockets**\
 `In a gritty, physical contest, Antetokounmpo and Lillard came up big when the Bucks needed it most. `\
 https://nytimes.com/athletic/5931625/2024/11/19/giannis-antetokounmpo-damian-lillard-bucks-rockets/
