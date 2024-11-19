@@ -1,3 +1,7 @@
+**Sean Combs’s Lawyers Argue That Seizure of Notes From Jail Was Unjust**\
+`Lawyers for the music mogul objected at a hearing to prosecutors viewing handwritten materials from their client’s cell after a sweep of the Brooklyn jail where he is being held.`\
+https://nytimes.com/2024/11/19/arts/music/sean-diddy-combs-jail-notes-raid.html
+
 **Two Apartment Buildings Were Planned. Only One Went Up. What Happened?**\
 `New York City is dealing with its worst housing shortage in decades. The diverging fates of two developments offer a window into the crisis.`\
 https://nytimes.com/interactive/2024/11/19/nyregion/affordable-housing-nyc-rent.html

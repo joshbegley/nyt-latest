@@ -1,3 +1,7 @@
+**Sean Combs’s Lawyers Argue That Seizure of Notes From Jail Was Unjust**\
+`Lawyers for the music mogul objected at a hearing to prosecutors viewing handwritten materials from their client’s cell after a sweep of the Brooklyn jail where he is being held.`\
+https://nytimes.com/2024/11/19/arts/music/sean-diddy-combs-jail-notes-raid.html
+
 **Two Apartment Buildings Were Planned. Only One Went Up. What Happened?**\
 `New York City is dealing with its worst housing shortage in decades. The diverging fates of two developments offer a window into the crisis.`\
 https://nytimes.com/interactive/2024/11/19/nyregion/affordable-housing-nyc-rent.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933147/2024/11/19/oregon-big-ten-championship-game
 **UEFA Nations League: Who was promoted and who could win the trophy?**\
 `The group stage of the UEFA Nations League concluded on Tuesday, so who were promoted and relegated and who could win the competition?`\
 https://nytimes.com/athletic/5929897/2024/11/19/uefa-nations-league-promotion-relegation/
-
-**Physicist Who Made Superconductor Claims Exits University of Rochester**\
-`Journals had retracted papers on superconductors that worked at room temperature and materials science that involved Ranga Dias.`\
-https://nytimes.com/2024/11/19/science/ranga-dias-rochester-superconductor.html
 
