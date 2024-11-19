@@ -1,3 +1,7 @@
+**The Onion’s Bid to Acquire Infowars Has Gotten Messy**\
+`A hearing is scheduled for Monday to review the auction process, which is being contested by a losing bidder associated with Alex Jones, the Infowars founder.`\
+https://nytimes.com/2024/11/19/business/media/the-onion-infowars-alex-jones.html
+
 **Trump Wants to Nominate Dr. Mehmet Oz to Oversee Medicare and Medicaid**\
 `The celebrity physician would oversee federal health insurance programs that cover more than 100 million Americans.`\
 https://nytimes.com/2024/11/19/us/politics/trump-dr-oz-medicare-medicaid.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5932715/2024/11/19/st-louis-cardinals-rule-5-protec
 **Nadal would not pick himself to play singles for Spain at the Davis Cup after defeat**\
 `The 22-time Grand Slam champion lost what could be his final tennis match in the first rubber of Spain's tie against the Netherlands.`\
 https://nytimes.com/athletic/5932976/2024/11/19/rafael-nadal-davis-cup-spain/
-
-**Bruins fire Jim Montgomery after 8-9-3 start, name Joe Sacco interim coach**\
-`Montgomery completes his Bruins run with a 120-41-23 record, but this season, the Bruins have had all kinds of issues.`\
-https://nytimes.com/athletic/5890537/2024/11/19/bruins-fire-jim-montgomery-coach/
 
