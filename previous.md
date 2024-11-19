@@ -1,3 +1,11 @@
+**Thanksgiving Lasagna Is the Best Lasagna**\
+`The Italian American tradition has been adapted by other immigrant families into delicious takes on the classic.`\
+https://nytimes.com/2024/11/19/dining/thanksgiving-lasagna.html
+
+**Game, Set, Match: Rafael Nadal loses to Botic Van de Zandschulp in what could be his final match**\
+`The 22-time Grand Slam champion's physical limitations were laid bare in what could be his last appearance as a professional player.`\
+https://nytimes.com/athletic/5932319/2024/11/19/rafael-nadal-davis-cup-result-analysis-van-de-zandschulp/
+
 **Manhattan D.A. Suggests Freezing Trump’s Case While He Is President**\
 `With his sentencing on hold, lawyers for President-elect Donald J. Trump are pushing to dismiss the case. The district attorney, Alvin Bragg, is opposing the effort.`\
 https://nytimes.com/2024/11/19/nyregion/trump-bragg-manhattan-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/19/well/black-women-harris-trump-election-rest.html
 **Robert Thomas to return to Blues' lineup Tuesday ahead of schedule**\
 `The Blues said Thomas would be out four to six weeks. He returns against the Wild just ahead of that timeframe.`\
 https://nytimes.com/athletic/5932580/2024/11/19/blues-robert-thomas-return/
-
-**Jets fire GM Joe Douglas: Why New York moved on now**\
-`Douglas was in his sixth season as the Jets general manager and the team has a 30-64 record during his tenure.`\
-https://nytimes.com/athletic/5932562/2024/11/19/jets-joe-douglas-fired/
-
-**Betting for (by) dummies: Big games in Ohio and the Harbaugh Bowl**\
-`Jon Greenerg and Zac Jackson are at it again making quips and picks for college football and NFL betting.`\
-https://nytimes.com/athletic/5932253/2024/11/19/betting-for-by-dummies-college-football-nfl-odds-ohio-ravens-chargers/
 
