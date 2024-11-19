@@ -1,3 +1,16 @@
+**SpaceX Prepares for Sixth Starship Test Launch: What to Know**\
+`The company will try to catch the giant booster of its moon and Mars rocket for a second time on Tuesday afternoon.`\
+https://nytimes.com/2024/11/19/science/spacex-launch-starship.html
+
+**Super Bowl 2025 odds: Bye, Kansas City. Hello, Detroit.**\
+`The Lions have officially unseated the Chiefs for the top of the Super Bowl odds board, and the Eagles cracked the top five.`\
+https://nytimes.com/athletic/5929652/2024/11/19/super-bowl-2025-odds-lions-new-favorites/
+
+**Submit your questions for The Athletic’s ACC football mailbag**\
+`<p>Who is the best team in the ACC? Can the league get a second team into the College Football Playoff? Submit your questions below for Grace Raynor and Manny Navarro. We’ll post their answers on Friday.</p>
+`\
+https://nytimes.com/athletic/5932482/2024/11/19/submit-your-questions-for-the-athletics-acc-football-mailbag-12/
+
 **Trump’s Treasury Challenge: A Pick Who Loves Tariffs and Calms Markets**\
 `The president-elect is considering a conflicting mix of qualities as he decides who will steer his economic agenda.`\
 https://nytimes.com/2024/11/19/us/politics/trump-treasury-secretary-tariffs.html

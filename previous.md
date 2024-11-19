@@ -1,3 +1,16 @@
+**SpaceX Prepares for Sixth Starship Test Launch: What to Know**\
+`The company will try to catch the giant booster of its moon and Mars rocket for a second time on Tuesday afternoon.`\
+https://nytimes.com/2024/11/19/science/spacex-launch-starship.html
+
+**Super Bowl 2025 odds: Bye, Kansas City. Hello, Detroit.**\
+`The Lions have officially unseated the Chiefs for the top of the Super Bowl odds board, and the Eagles cracked the top five.`\
+https://nytimes.com/athletic/5929652/2024/11/19/super-bowl-2025-odds-lions-new-favorites/
+
+**Submit your questions for The Athletic’s ACC football mailbag**\
+`<p>Who is the best team in the ACC? Can the league get a second team into the College Football Playoff? Submit your questions below for Grace Raynor and Manny Navarro. We’ll post their answers on Friday.</p>
+`\
+https://nytimes.com/athletic/5932482/2024/11/19/submit-your-questions-for-the-athletics-acc-football-mailbag-12/
+
 **Trump’s Treasury Challenge: A Pick Who Loves Tariffs and Calms Markets**\
 `The president-elect is considering a conflicting mix of qualities as he decides who will steer his economic agenda.`\
 https://nytimes.com/2024/11/19/us/politics/trump-treasury-secretary-tariffs.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5932266/2024/11/19/fau-football-coaching-job-profil
 **Delhi Trudges Through Another Air Pollution Nightmare With No Answers**\
 `The government seems powerless to protect its citizens from this annual crisis, let alone prevent it.`\
 https://nytimes.com/2024/11/19/world/asia/india-delhi-air-pollution.html
-
-**A Fast, French-y Chicken Dinner**\
-`Chicken au poivre is a fancy-feeling take on a velvety French classic.`\
-https://nytimes.com/2024/11/19/dining/a-fast-french-y-chicken-dinner.html
-
-**Nadal will play Davis Cup singles for Spain against Netherlands**\
-`MALAGA, Spain — Rafael Nadal will open Spain&#8217;s Davis Cup tie against the Netherlands today, Tuesday November 19 in his last tournament before retiring from tennis.`\
-https://nytimes.com/athletic/5932159/2024/11/19/nadal-davis-cup-singles-netherlands-match/
-
-**Spirit's Croix Bethune named NWSL Rookie of the Year**\
-`Bethune won the Rookie of the Month award for every month she was eligible.`\
-https://nytimes.com/athletic/5932234/2024/11/19/croix-bethune-spirit-nwsl-roty/
 
