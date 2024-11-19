@@ -1,3 +1,7 @@
+**Bills-Chiefs draws largest TV audience of season**\
+`Buffalo's 30-21 win over the previously undefeated Chiefs game averaged a whopping 31.2 million viewers for CBS, per the NFL.`\
+https://nytimes.com/athletic/5933373/2024/11/19/bills-chiefs-josh-allen-viewership-broadcast/
+
 **Netanyahu Offers $5 Million for Each Hostage Freed in Gaza**\
 `As he resists pressure to reach a cease-fire that would release the captives, Israel’s prime minister is now offering a reward for their freedom, while still vowing to punish anyone who hurts a hostage.`\
 https://nytimes.com/2024/11/19/world/middleeast/israel-5-million-dollars-hostage.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/19/world/americas/biden-g20-summit.html
 **Market share report: Austin Ekeler is a cheat, Jauan Jennings is enviable and more**\
 `In his breakdown of the Week 11 market share, Michael Salfino says Austin Ekeler is a receiver masquerading as a running back.`\
 https://nytimes.com/athletic/5932761/2024/11/19/market-share-report-touches-targets-week-11-ekeler-jennings/
-
-**Mets add elite defensive outfielder Jose Siri in trade with Rays for reliever Eric Orze**\
-`The move gives the Mets a talented defensive replacement for Harrison Bader at a lower cost.`\
-https://nytimes.com/athletic/5933315/2024/11/19/mets-trade-jose-siri-rays-eric-orze/
 
