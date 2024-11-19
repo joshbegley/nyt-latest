@@ -1,3 +1,11 @@
+**Jets fire GM Joe Douglas amid 3-8 season**\
+`Douglas was in his sixth season as the Jets general manager and the team has a 30-64 record during his tenure.`\
+https://nytimes.com/athletic/5932562/2024/11/19/jets-joe-douglas-fired/
+
+**Betting for (by) dummies: Big games in Ohio and the Harbaugh Bowl**\
+`Jon Greenerg and Zac Jackson are at it again making quips and picks for college football and NFL betting.`\
+https://nytimes.com/athletic/5932253/2024/11/19/betting-for-by-dummies-college-football-nfl-odds-ohio-ravens-chargers/
+
 **Lula Was Target of Assassination Plot, Brazilian Police Say**\
 `Members of an elite army unit planned to kill Luiz Inácio Lula da Silva in 2022 as part of an effort to keep Jair Bolsonaro in power after he lost the presidential election.`\
 https://nytimes.com/2024/11/19/world/americas/brazil-soldiers-president-lula-assassination-plot.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5932482/2024/11/19/submit-your-questions-for-the-at
 **Trump’s Treasury Challenge: A Pick Who Loves Tariffs Yet Calms Markets**\
 `The president-elect is considering a conflicting mix of qualities as he decides who will steer his economic agenda.`\
 https://nytimes.com/2024/11/19/us/politics/trump-treasury-secretary-tariffs.html
-
-**Wrexham's McClean granted permission to bypass rules on how to leave a pitch**\
-`Wrexham captain James McClean will be allowed to leave the pitch using the shortest route to the tunnel in a bid to improve his safety due to the supporter abuse he receives.`\
-https://nytimes.com/athletic/5932435/2024/11/19/james-mcclean-efl-tunnel-safety/
-
-**Matchmaking the top 10 MLB free agents with the team where they fit best**\
-`As we wait for signings, I selected my favorite matches for each of the top 10 free agents, pairing them with the team where they fit best.`\
-https://nytimes.com/athletic/5931599/2024/11/19/mlb-team-player-free-agent-fits/
 
