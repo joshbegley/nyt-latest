@@ -1,3 +1,7 @@
+**Fantasy football Week 12 drops: Part ways with DeAndre Hopkins, Kyle Pitts**\
+`Gary Davenport gives advice on who to drop ahead of Week 12, including a few RBs who aren't getting enough work to remain rostered.  `\
+https://nytimes.com/athletic/5931946/2024/11/19/nfl-fantasy-footall-week-12-drops/
+
 **Trump Defies the #MeToo Movement With Cabinet Picks Facing Accusations**\
 `Donald J. Trump, who was found liable for sexual abuse last year, appears determined to force a fight over the role of such allegations in society.`\
 https://nytimes.com/2024/11/19/us/politics/trump-women-metoo.html
