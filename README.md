@@ -1,6 +1,6 @@
 **Disillusioned by the Election, Some Black Women Are Deciding to Rest**\
 `Instead of charging to the front lines of the culture wars, many Black women have vowed to prioritize their own well-being first.`\
-https://nytimes.com/2024/11/19/well/black-women-election-rest-era-harris-trump.html
+https://nytimes.com/2024/11/19/well/black-women-harris-trump-election-rest.html
 
 **Robert Thomas to return to Blues' lineup Tuesday ahead of schedule**\
 `The Blues said Thomas would be out four to six weeks. He returns against the Wild just ahead of that timeframe.`\
