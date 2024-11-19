@@ -1,3 +1,19 @@
+**Could Trump Hire Gaetz Without Senate Approval? A Recess Appointment Primer**\
+`The Constitution allows the president to circumvent the Senate and install appointees while the chamber is in recess, an arcane loophole created back when Capitol commutes involved long treks by horse.`\
+https://nytimes.com/2024/11/19/us/recess-appointment-trump-matt-gaetz.html
+
+**How to Make Your Sofa Look Even More Inviting**\
+`Expert advice from interior designers on going beyond the standard two-pillows-and-a-throw treatment.`\
+https://nytimes.com/2024/11/19/t-magazine/sofa-couch-pillows-style.html
+
+**NFL MVP odds: Josh Allen takes over lead from Lamar Jackson**\
+`Josh Allen has emerged as the favorite to win NFL MVP after the Bills' big win against the Chiefs.`\
+https://nytimes.com/athletic/5932338/2024/11/19/nfl-mvp-odds-josh-allen-lamar-jackson/
+
+**Texas Education Board Backs Curriculum With Lessons Drawn From Bible**\
+`School districts serving more than two million elementary school children would be able to adopt a curriculum that draws on the Bible.`\
+https://nytimes.com/2024/11/19/us/texas-bible-curriculum-public-schools.html
+
 **22 Patrons Stuck for 2 Hours on a Pinwheel Ride in California**\
 `Two of the riders at Knott’s Berry Farm in Orange County were taken to the hospital after the malfunction on Monday.`\
 https://nytimes.com/2024/11/19/us/knotts-berry-farm-ride-stuck.html
