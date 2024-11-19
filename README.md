@@ -6,7 +6,7 @@ https://nytimes.com/2024/11/19/us/texas-bible-curriculum-public-schools.html
 `The Italian American tradition has been adapted by other immigrant families into delicious takes on the classic.`\
 https://nytimes.com/2024/11/19/dining/thanksgiving-lasagna.html
 
-**Game, Set, Match: Rafael Nadal loses to Botic Van de Zandschulp in what could be his final match**\
+**Game, Set, Match: Rafael Nadal loses to Botic van de Zandschulp in what could be his final match**\
 `The 22-time Grand Slam champion's physical limitations were laid bare in what could be his last appearance as a professional player.`\
 https://nytimes.com/athletic/5932319/2024/11/19/rafael-nadal-davis-cup-result-analysis-van-de-zandschulp/
 
