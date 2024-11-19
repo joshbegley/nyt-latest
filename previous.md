@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/18/crosswords/daily-puzzle-2024-11-19.html
 https://nytimes.com/2024/11/18/health/wyoming-abortion-ban-overturned.html
 
 **Dozens of Hong Kong Pro-Democracy Leaders Sentenced in Mass Trial**\
-`The 45 defendants, including Joshua Wong, were at the forefront of the opposition movement crushed by Beijing. Many have already been in jail for years.`\
+`The 45 defendants, including Joshua Wong, were at the forefront of the opposition movement crushed by Beijing. Many had already been in jail for years.`\
 https://nytimes.com/2024/11/18/world/asia/hong-kong-democrats-sentenced.html
 
 **Jackson Merrill's rookie accomplishments make case Padres should have been rewarded**\
