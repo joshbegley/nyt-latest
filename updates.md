@@ -1,3 +1,11 @@
+**Asheville Gets Drinkable Tap Water Back After Hurricane Helene**\
+`There was a sense of relief in the city, though some residents said they were still afraid to drink the water.`\
+https://nytimes.com/2024/11/19/us/asheville-water-hurricane-helene.html
+
+**Reds' Nick Martinez only player to accept qualifying offer**\
+`Of the 144 players who've received a qualifying offer since the system was implemented in 2012, Martinez is just the 14th to accept one.`\
+https://nytimes.com/athletic/5933101/2024/11/19/mlb-2024-qualifying-offer-decisions/
+
 **Wednesday Briefing: Ukraine hits Russia with U.S. Missiles**\
 `Plus, the Scandinavian band that’s big in Asia.`\
 https://nytimes.com/2024/11/19/briefing/russia-ukraine-trump-hong-kong.html

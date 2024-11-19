@@ -1,3 +1,11 @@
+**Bruins fire coach Jim Montgomery after 8-9-3 start, name Joe Sacco interim replacement**\
+`Montgomery completes his Bruins run with a 120-41-23 record, but this season, the Bruins have had all kinds of issues.`\
+https://nytimes.com/athletic/5890537/2024/11/19/bruins-fire-jim-montgomery-coach/
+
+**At 17, She Just Passed the State Bar of California**\
+`Sophia Park is believed to be the youngest person to pass the California State Bar Exam, besting the previous record-holder: her older brother, Peter.`\
+https://nytimes.com/2024/11/19/us/california-bar-exam-sophia-park.html
+
 **Asheville Gets Drinkable Tap Water Back After Hurricane Helene**\
 `There was a sense of relief in the city, though some residents said they were still afraid to drink the water.`\
 https://nytimes.com/2024/11/19/us/asheville-water-hurricane-helene.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/19/opinion/donald-trump-israel-gaza.html
 **Son of Norway’s Crown Princess Is Arrested on Suspicion of Rape**\
 `Marius Borg Hoiby, the stepson of Crown Prince Haakon of Norway, was arrested on Monday. His lawyer denied the accusation and said his client was cooperating with the authorities.`\
 https://nytimes.com/2024/11/19/world/europe/norway-crown-princess-son-rape-arrest.html
-
-**Trump to Watch Latest SpaceX Launch With Elon Musk**\
-`The president-elect’s appearance in Texas demonstrates the growing closeness between the two billionaires, and Mr. Musk’s increasing influence in Mr. Trump’s orbit.`\
-https://nytimes.com/2024/11/19/us/politics/trump-spacex-launch.html
-
-**Guardiola agrees new Man City contract**\
-`Manchester City manager Pep Guardiola has agreed a new one-year contract extension with the option of an additional year.`\
-https://nytimes.com/athletic/5931613/2024/11/19/pep-guardiola-new-man-city-contract/
 
