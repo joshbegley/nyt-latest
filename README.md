@@ -1,3 +1,7 @@
+**Manhattan D.A. Suggests Freezing Trump’s Case While He Is President**\
+`With his sentencing on hold, lawyers for President-elect Donald J. Trump are pushing to dismiss the case. The district attorney, Alvin Bragg, is opposing the effort.`\
+https://nytimes.com/2024/11/19/nyregion/trump-bragg-manhattan-case.html
+
 **NFL best bets Week 12: Chargers against the spread in Harbaugh Bowl**\
 `Austin Mock's model has four bets to make on NFL Week 12. Check back through the week for more. `\
 https://nytimes.com/athletic/5932536/2024/11/19/nfl-best-bets-week-12-harbaugh-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932562/2024/11/19/jets-joe-douglas-fired/
 **Betting for (by) dummies: Big games in Ohio and the Harbaugh Bowl**\
 `Jon Greenerg and Zac Jackson are at it again making quips and picks for college football and NFL betting.`\
 https://nytimes.com/athletic/5932253/2024/11/19/betting-for-by-dummies-college-football-nfl-odds-ohio-ravens-chargers/
-
-**Lula Was Target of Assassination Plot, Brazilian Police Say**\
-`Members of an elite army unit planned to kill Luiz Inácio Lula da Silva in 2022 as part of an effort to keep Jair Bolsonaro in power after he lost the presidential election.`\
-https://nytimes.com/2024/11/19/world/americas/brazil-soldiers-president-lula-assassination-plot.html
 
