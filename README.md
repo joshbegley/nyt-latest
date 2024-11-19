@@ -1,3 +1,7 @@
+**New Zealand Veers Sharply Right, Leaving Jacinda Ardern’s Era Behind**\
+`Two small populist parties are responsible for accelerating the shift, which has been felt acutely by the Indigenous Māori.`\
+https://nytimes.com/2024/11/18/us/new-zealand-conservative-maori-protest.html
+
 **Uncertainty for Loved Ones of Hong Kong’s Pro-Democracy Activists**\
 `Ventus Lau is one of 45 activists and politicians who was sentenced in the city’s biggest national security trial. His girlfriend, Emilia Wong, a gender rights activist, talks about the impact his case has had on their relationship.`\
 https://nytimes.com/video/world/asia/100000009830656/hong-kong-democrats-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/18/world/asia/hong-kong-democrats-sentenced.html
 **Jackson Merrill's rookie accomplishments make case Padres should have been rewarded**\
 `Merrill finished second to Paul Skenes for the National League's Rookie of the Year, preventing the Padres from netting an extra draft pick.`\
 https://nytimes.com/athletic/5931153/2024/11/18/jackson-merrill-rookie-draft-pick-ppi/
-
-**Lawyer Says His Client Testified That She Saw Gaetz Having Sex With Underage Girl**\
-`The lawyer told multiple news outlets about the testimony, before the House Ethics Committee, in which the client described witnessing Matt Gaetz having sex with the girl at a party in 2017.`\
-https://nytimes.com/2024/11/18/us/politics/matt-gaetz-sex-allegations-house-ethics.html
 
