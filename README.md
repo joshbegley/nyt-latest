@@ -1,3 +1,7 @@
+**SpaceX Unable to Recover Booster Stage During Sixth Test Flight**\
+`President-elect Donald Trump joined Elon Musk in Texas and watched the launch from a nearby location on Tuesday. While the Starship’s giant booster stage was unable to repeat a “chopsticks” landing, the vehicle’s upper stage successfully splashed down in the Indian Ocean.`\
+https://nytimes.com/video/science/space/100000009834826/spacex-rocket-starship-elon-musk-trump.html
+
 **Where the Red Sox roster stands: Nick Pivetta declines QO, two prospects added**\
 `The Red Sox added Jhostynxon Garcia and Hunter Dobbins to the 40-man roster, and designated two pitching prospects for assignment.`\
 https://nytimes.com/athletic/5933581/2024/11/19/red-sox-roster-update-nick-pivetta/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/19/us/texas-elon-musk.html
 **'Every year he improved a little': The evolution of Rafael Nadal**\
 `23 years, 22 Grand Slam titles, and innumerable changes to his tennis: This is the story of Rafael Nadal's career.`\
 https://nytimes.com/athletic/5929205/2024/11/19/rafael-nadal-tennis-player-evolution/
-
-**Guardians’ Stephen Vogt wins AL Manager of the Year in first season **\
-`Vogt, who had never managed at any level, is the fastest former player to win the Manager of the Year award.`\
-https://nytimes.com/athletic/5930941/2024/11/19/guardians-stephen-vogt-al-manager-of-the-year/
 
