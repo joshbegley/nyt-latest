@@ -1,3 +1,7 @@
+**Dozens of Hong Kong Pro-Democracy Leaders Sentenced in Mass Trial**\
+`The 45 defendants, including Joshua Wong, were at the forefront of the opposition movement crushed by Beijing. Many have already been in jail for years.`\
+https://nytimes.com/2024/11/18/world/asia/hong-kong-democrats-sentenced.html
+
 **Jackson Merrill's rookie accomplishments make case Padres should have been rewarded**\
 `Merrill finished second to Paul Skenes for the National League's Rookie of the Year, preventing the Padres from netting an extra draft pick.`\
 https://nytimes.com/athletic/5931153/2024/11/18/jackson-merrill-rookie-draft-pick-ppi/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-
 **Newsom Will Delay His Decision on Clemency for the Menendez Brothers**\
 `Gov. Gavin Newsom of California said he would hold off deciding whether to grant clemency to Lyle and Erik Menendez until after the incoming Los Angeles County district attorney reviewed the case.`\
 https://nytimes.com/2024/11/18/us/menendez-brothers-newsom-clemency.html
-
-**49ers minutia: Brock Purdy's sore shoulder; Jauan Jennings was great, other WRs absent**\
-`Purdy — who had five carries and took two sacks — emerged with a sore shoulder. Meanwhile, George Kittle should return this week.`\
-https://nytimes.com/athletic/5930609/2024/11/18/49ers-brock-purdy-shoulder-snap-counts/
 

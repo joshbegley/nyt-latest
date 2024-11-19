@@ -1,3 +1,7 @@
+**Dozens of Hong Kong Pro-Democracy Leaders Sentenced in Mass Trial**\
+`The 45 defendants, including Joshua Wong, were at the forefront of the opposition movement crushed by Beijing. Many have already been in jail for years.`\
+https://nytimes.com/2024/11/18/world/asia/hong-kong-democrats-sentenced.html
+
 **N.Y.C. Helped Migrant Accused of Killing Laken Riley Move to Georgia, Witness Says**\
 `In other testimony, law enforcement witnesses placed the suspect, José Ibarra, at the scene of Ms. Riley’s killing, mainly through cellphone and GPS tracking data.`\
 https://nytimes.com/2024/11/18/us/laken-riley-murder-trial.html
