@@ -1,3 +1,7 @@
+**A Dissident’s Final Act of Protest Stuns Iran**\
+`Repeatedly imprisoned in his country, Kianoosh Sanjari refused to be silenced by the government. But in the end, despairing of change, he silenced himself.`\
+https://nytimes.com/2024/11/19/world/middleeast/iran-kianoosh-sanjari-suicide.html
+
 **Phillies' quest for Andrew Painter placeholder takes shape as club makes 40-man roster adds**\
 `There are layers to this quest for back-of-the-rotation stability in 2025. `\
 https://nytimes.com/athletic/5933565/2024/11/19/phillies-40-man-roster-andrew-painter/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/19/us/politics/israel-gaza-democrats.html
 **Brewers’ Pat Murphy wins NL Manager of the Year after remarkable first season at the helm**\
 `Long before the votes were cast, Murphy stood alone as a clear favorite to win an award he has worked toward his entire life.`\
 https://nytimes.com/athletic/5932569/2024/11/19/brewers-pat-murphy-nl-manager-of-the-year/
-
-**As He Moved to the Right, Elon Musk Packed His Businesses Into Texas**\
-`The billionaire has rapidly transformed parts of the state, shocking even development-friendly officials: “It was like, ‘Voilà, Elon is here.’”`\
-https://nytimes.com/2024/11/19/us/texas-elon-musk.html
 
