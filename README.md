@@ -1,3 +1,7 @@
+**Is the Biden Administration Coming for Chrome?**\
+`The Justice Department is reportedly targeting Google’s web browser as its antitrust enforcers seek to cement a major win before Donald Trump takes office.`\
+https://nytimes.com/2024/11/19/business/dealbook/biden-chrome-google-antitrust.html
+
 **Heat Today: Miami happy to have Jimmy Butler leading the way again**\
 `Butler returned to Miami's lineup in a big way Monday. How does he change the Heat's makeup?`\
 https://nytimes.com/athletic/5931492/2024/11/19/jimmy-butler-tyler-herro-miami-heat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5861023/2024/11/19/blues-jordan-binnington-mike-liu
 **At 3-7, Cowboys faced with being 'realistic' and coming to terms that 2024 season is over**\
 `"We can’t really take all of these steps back and expect to win,” CeeDee Lamb said after the Cowboys' fifth loss in a row.`\
 https://nytimes.com/athletic/5931567/2024/11/19/cowboys-season-disappointment-loss-texans/
-
-**Five Lakers trends from 5-game win streak: Knecht's breakout, LeBron's passing and more**\
-` A starting lineup switch has worked, and Max Christie has reemerged during this recent run of success.`\
-https://nytimes.com/athletic/5928034/2024/11/19/lakers-win-streak-dalton-knecht-lebron-james/
 
