@@ -1,3 +1,11 @@
+**Trump’s Treasury Challenge: A Pick Who Loves Tariffs and Calms Markets**\
+`The president-elect is considering a conflicting mix of qualities as he decides who will steer his economic agenda.`\
+https://nytimes.com/2024/11/19/us/politics/trump-treasury-secretary-tariffs.html
+
+**Wrexham's McClean granted permission to bypass rules on how to leave a pitch**\
+`Wrexham captain James McClean will be allowed to leave the pitch using the shortest route to the tunnel in a bid to improve his safety due to the supporter abuse he receives.`\
+https://nytimes.com/athletic/5932435/2024/11/19/james-mcclean-efl-tunnel-safety/
+
 **Wrexham captain McClean granted safety measure to leave pitch after abuse**\
 `Wrexham captain James McClean will be allowed to leave the pitch using the shortest route to the tunnel in a bid to improve his safety due to the supporter abuse he receives.`\
 https://nytimes.com/athletic/5932435/2024/11/19/james-mcclean-efl-tunnel-safety/
