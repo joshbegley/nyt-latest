@@ -1,3 +1,11 @@
+**Trump Taps Wall St. Executive Howard Lutnick for Commerce Secretary**\
+`The billionaire executive and leader of President-elect Donald J. Trump’s transition team will be charged with promoting U.S. industry and overseeing technology controls on China.`\
+https://nytimes.com/2024/11/19/us/politics/howard-lutnick-trump-commerce-secretary.html
+
+**Spy agencies are again offering Trump intelligence briefings.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/spy-agencies-are-again-offering-trump-intelligence-briefings
+
 **Inching Toward a Fusion Energy Future**\
 `A handful of startups are racing to usher in an era of near-limitless fusion energy, but big questions remain.`\
 https://nytimes.com/2024/11/19/climate/fusion-energy-startups.html
@@ -28,13 +36,5 @@ https://nytimes.com/2024/11/19/world/europe/sweden-russia-ukraine-crisis-war-adv
 
 **Could Trump Hire Gaetz Without Senate Approval? A Recess Appointment Primer**\
 `The Constitution allows the president to circumvent the Senate and install appointees while the chamber is in recess, an arcane loophole created back when Capitol commutes involved long treks by horse.`\
-https://nytimes.com/2024/11/19/us/recess-appointment-trump-matt-gaetz.html
-
-**How to Make Your Sofa Look Even More Inviting**\
-`Expert advice from interior designers on going beyond the standard two-pillows-and-a-throw treatment.`\
-https://nytimes.com/2024/11/19/t-magazine/sofa-couch-pillows-style.html
-
-**NFL MVP odds: Josh Allen takes over lead from Lamar Jackson**\
-`Josh Allen has emerged as the favorite to win NFL MVP after the Bills' big win against the Chiefs.`\
-https://nytimes.com/athletic/5932338/2024/11/19/nfl-mvp-odds-josh-allen-lamar-jackson/
+https://nytimes.com/2024/11/19/us/politics/recess-appointment-trump-matt-gaetz.html
 
