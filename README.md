@@ -1,3 +1,7 @@
+**Guardians’ Stephen Vogt wins AL Manager of the Year in first season **\
+`Vogt, who had never managed at any level, is the fastest former player to win the Manager of the Year award.`\
+https://nytimes.com/athletic/5930941/2024/11/19/guardians-stephen-vogt-al-manager-of-the-year/
+
 **Atmospheric River and Hurricane-Strength Storm Set to Drench the West**\
 `A “bomb cyclone” over the Pacific Ocean could bring damaging winds, rainfall and blizzards to Northern California, Oregon and Washington.`\
 https://nytimes.com/2024/11/19/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/a-house-race-in-c
 **Ukraine Fired U.S.-Made Missiles into Russia**\
 `Also, prosecutors called for a four-year freeze on Trump’s Manhattan case. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/11/19/briefing/ukraine-russia-us-missiles-trump-new-york-case.html
-
-**Sean Combs’s Lawyers Argue That Seizure of Notes From Jail Was Unjust**\
-`Lawyers for the music mogul objected at a hearing to prosecutors viewing handwritten materials from their client’s cell after a sweep of the Brooklyn jail where he is being held.`\
-https://nytimes.com/2024/11/19/arts/music/sean-diddy-combs-jail-notes-raid.html
 
