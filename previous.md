@@ -1,3 +1,11 @@
+**Russia Claims Ukraine Used U.S.-Made Missiles in Strike**\
+`If confirmed, the strike would be first time that Ukraine had used the weapons system, known as ATACMS, to strike inside Russia.`\
+https://nytimes.com/2024/11/19/world/europe/ukraine-russia-atacms-missiles.html
+
+**The Athletic FC: USMNT stars shine as Pulisic does 'Trump dance'; spooky season in Swindon**\
+`Today in TAFC: USMNT stars align, Pulisic mimics Trump in his celebration; ghostly goings-on in Swindon; what's it like to play for Amorim?`\
+https://nytimes.com/athletic/5931714/2024/11/19/pulisic-trump-dance-amorim-manchester-united/
+
 **What we learned from the Chargers' win over the Bengals: 'Tremendous feeling of victory'**\
 `The Chargers made the plays they needed to make to win the game. They did not ace the test. But they passed. The Ravens await.`\
 https://nytimes.com/athletic/5931090/2024/11/19/chargers-win-bengals-what-we-learned/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5931492/2024/11/19/jimmy-butler-tyler-herro-miami-h
 **Walmart Sees ‘Momentum’ Ahead of Holiday Shopping Season**\
 `The bellwether retailer reported higher-than-expected sales in its latest quarter and upgraded its forecast for the rest of the year.`\
 https://nytimes.com/2024/11/19/business/walmart-sales-holiday-shopping.html
-
-**Weekly Student News Quiz: Republican Win, Obesity Report, Rhesus Monkeys**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/11/19/learning/19StudentNewsQuiz.html
-
-**After disastrous road trip, where do Red Wings go from here?**\
-`The Red Wings lost all three games in California, plunging them into an early-season crisis that points to challenging decisions ahead.`\
-https://nytimes.com/athletic/5931466/2024/11/19/red-wings-sharks-loss-nhl-season/
 

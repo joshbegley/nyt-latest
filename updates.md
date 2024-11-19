@@ -1,3 +1,11 @@
+**Russia Claims Ukraine Used U.S.-Made Missiles in Strike**\
+`If confirmed, the strike would be first time that Ukraine had used the weapons system, known as ATACMS, to strike inside Russia.`\
+https://nytimes.com/2024/11/19/world/europe/ukraine-russia-atacms-missiles.html
+
+**The Athletic FC: USMNT stars shine as Pulisic does 'Trump dance'; spooky season in Swindon**\
+`Today in TAFC: USMNT stars align, Pulisic mimics Trump in his celebration; ghostly goings-on in Swindon; what's it like to play for Amorim?`\
+https://nytimes.com/athletic/5931714/2024/11/19/pulisic-trump-dance-amorim-manchester-united/
+
 **What we learned from the Chargers' win over the Bengals: 'Tremendous feeling of victory'**\
 `The Chargers made the plays they needed to make to win the game. They did not ace the test. But they passed. The Ravens await.`\
 https://nytimes.com/athletic/5931090/2024/11/19/chargers-win-bengals-what-we-learned/
