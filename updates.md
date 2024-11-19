@@ -1,3 +1,7 @@
+**Two Apartment Buildings Were Planned. Only One Went Up. What Happened?**\
+`New York City is dealing with its worst housing shortage in decades. The diverging fates of two developments offer a window into the crisis.`\
+https://nytimes.com/interactive/2024/11/19/nyregion/affordable-housing-nyc-rent.html
+
 **A Nostalgic Biden Fades Out of the Picture in Talks With World Leaders**\
 `As he made his final appearance at global gatherings, including at the Group of 20 summit in Brazil, President Biden lobbied for his foreign policy goals even as leaders shifted attention away from him.`\
 https://nytimes.com/2024/11/19/world/americas/biden-g20-summit.html

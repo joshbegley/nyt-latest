@@ -1,3 +1,7 @@
+**Two Apartment Buildings Were Planned. Only One Went Up. What Happened?**\
+`New York City is dealing with its worst housing shortage in decades. The diverging fates of two developments offer a window into the crisis.`\
+https://nytimes.com/interactive/2024/11/19/nyregion/affordable-housing-nyc-rent.html
+
 **A Nostalgic Biden Fades Out of the Picture in Talks With World Leaders**\
 `As he made his final appearance at global gatherings, including at the Group of 20 summit in Brazil, President Biden lobbied for his foreign policy goals even as leaders shifted attention away from him.`\
 https://nytimes.com/2024/11/19/world/americas/biden-g20-summit.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5929897/2024/11/19/uefa-nations-league-promotion-re
 **Physicist Who Made Superconductor Claims Exits University of Rochester**\
 `Journals had retracted papers on superconductors that worked at room temperature and materials science that involved Ranga Dias.`\
 https://nytimes.com/2024/11/19/science/ranga-dias-rochester-superconductor.html
-
-**Are we witnessing the end of the Bruins' era as a contender?**\
-`In breaking down the team's uncharacteristically bad start, it feels like the door on Boston’s era of contention could be closing. `\
-https://nytimes.com/athletic/5932395/2024/11/19/boston-bruins-contender-end-of-era/
 
