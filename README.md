@@ -1,3 +1,7 @@
+**Amick: Cavs' Kenny Atkinson effect, Jayson Tatum's MVP case, Sixers spiraling and more**\
+`Atkinson's journey to the Cavs has been unique, while Tatum has been amazing for the Celtics. Plus, the Nets appear open to trades.`\
+https://nytimes.com/athletic/5931434/2024/11/19/cavaliers-jayson-tatum-mvp-celtics/
+
 **Ivan Taylor, son of Super Bowl champion safety Ike, flips from Michigan to Bama**\
 `If Taylor comes to Tuscaloosa ready, he could carve out a role in the Crimson Tide defense as early as next fall.`\
 https://nytimes.com/athletic/5932038/2024/11/19/ivan-taylor-commitment-alabama-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/movies/glicked-wicked-gladiator-ii.html
 **Access all areas with Canada in Suriname: Travelling with Marsch, team meetings and playing Mafia**\
 `The Athletic is granted access never previously allowed, travelling with Canada's players by plane and bus on their long trip to Suriname`\
 https://nytimes.com/athletic/5929141/2024/11/19/canada-suriname-access-all-areas/
-
-**Ukraine Fired U.S.-Made Missiles Into Russia for First Time, Officials Say**\
-`The attack came just two days after President Biden gave Ukraine permission to use long-range U.S.-made weapons to strike targets inside Russia.`\
-https://nytimes.com/2024/11/19/world/europe/ukraine-russia-atacms-missiles.html
 

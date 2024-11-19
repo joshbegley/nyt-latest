@@ -1,3 +1,11 @@
+**Ivan Taylor, son of Super Bowl champion safety Ike, flips from Michigan to Bama**\
+`If Taylor comes to Tuscaloosa ready, he could carve out a role in the Crimson Tide defense as early as next fall.`\
+https://nytimes.com/athletic/5932038/2024/11/19/ivan-taylor-commitment-alabama-michigan/
+
+**NBA Power Rankings: Everybody hurts in this league — some more than others**\
+`Precious few stars and teams (hello, Rockets) have avoided time lost to ailments. These latest rankings take stock of the walking wounded.`\
+https://nytimes.com/athletic/5931111/2024/11/19/nba-power-rankings-cavaliers-warriors-pelicans-injuries/
+
 **2024 Heisman Trophy odds: Travis Hunter is in firm control**\
 `Travis Hunter is pulling away from the field in Heisman Trophy odds. The two-way Colorado star is -400 to win the award.`\
 https://nytimes.com/athletic/5930379/2024/11/19/heisman-trophy-odds-travis-hunter-ashton-jeanty/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5929141/2024/11/19/canada-suriname-access-all-areas
 **Ukraine Fired U.S.-Made Missiles Into Russia for First Time, Officials Say**\
 `The attack came just two days after President Biden gave Ukraine permission to use long-range U.S.-made weapons to strike targets inside Russia.`\
 https://nytimes.com/2024/11/19/world/europe/ukraine-russia-atacms-missiles.html
-
-**The Athletic FC: USMNT stars shine as Pulisic does 'Trump dance'; spooky season in Swindon**\
-`Today in TAFC: USMNT stars align, Pulisic mimics Trump in his celebration; ghostly goings-on in Swindon; what's it like to play for Amorim?`\
-https://nytimes.com/athletic/5931714/2024/11/19/pulisic-trump-dance-amorim-manchester-united/
-
-**What we learned from the Chargers' win over the Bengals: 'Tremendous feeling of victory'**\
-`The Chargers made the plays they needed to make to win the game. They did not ace the test. But they passed. The Ravens await.`\
-https://nytimes.com/athletic/5931090/2024/11/19/chargers-win-bengals-what-we-learned/
 
