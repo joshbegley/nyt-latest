@@ -1,3 +1,7 @@
+**Elvis Merzlikins' stinginess, 2 short-handed goals key Blue Jackets' win in Boston**\
+`A fantastic first period by the Blue Jackets goalie spurred the team to its first regulation win at TD Garden since 2016.`\
+https://nytimes.com/athletic/5931284/2024/11/18/blue-jackets-merzlikins-penalty-kill-bruins/
+
 **Uncertainty for Loved Ones of Hong Kong’s Pro-Democracy Activists**\
 `Ventus Lau is one of 45 activists and politicians who was sentenced in the city’s biggest national security trial. His girlfriend, Emilia Wong, a gender rights activist, talks about the impact his case has had on their relationship.`\
 https://nytimes.com/video/world/asia/100000009830656/hong-kong-democrats-sentenced.html
