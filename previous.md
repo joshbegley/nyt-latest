@@ -1,3 +1,7 @@
+**Word of the Day: mischievous**\
+`This word has appeared in 141 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/19/learning/word-of-the-day-mischievous.html
+
 **What Putin Really Sees in Trump**\
 `To the Kremlin, the president-elect is a harbinger of American collapse.`\
 https://nytimes.com/2024/11/19/opinion/putin-trump-russia-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929380/2024/11/19/kristie-mewis-sam-kerr-pregnancy
 **From academy footballers to rejection, reflection, the marines… and The Athletic**\
 `It's almost eight years since The Athletic's Jacob Tanswell left Bournemouth — he chats with former team-mates to discuss what happened next`\
 https://nytimes.com/athletic/5882911/2024/11/19/academy-release-rejection-whats-next/
-
-**Bob Love, Rugged, High-Scoring All-Star for Chicago Bulls, Dies at 81**\
-`Love was a cornerstone of the franchise’s success in the early 1970s. He struggled with a stutter that he overcame only after his playing days were over.`\
-https://nytimes.com/2024/11/19/sports/basketball/bob-love-dead.html
 
