@@ -1,3 +1,11 @@
+**Daniel Boulud Opens La Tête d’Or, His First Steakhouse**\
+`Melissa Rodriguez opens Crane Club in the Al Coro space, the Anton’s team take on all-day Italian at Leon’s and more.`\
+https://nytimes.com/2024/11/19/dining/daniel-boulud-steakhouse.html
+
+**'Simpsons'-themed broadcast means Bengals-Cowboys won't be flexed**\
+`'Simpsons'-themed animations and broadcast packages tied to the Bengals and Cowboys have already been created.`\
+https://nytimes.com/athletic/5932410/2024/11/19/bengals-vs-cowboys-mnf-not-flexed-simpsons-alt-cast/
+
 **The Perfect Novel for the Baku Climate Summit**\
 `The U.N. climate conference, held in a petrostate, is a surreal moment. This darkly funny novel about Baku, oil companies and climate change in the first Trump term helps make sense of it all.`\
 https://nytimes.com/2024/11/19/climate/mobility-kiesling-baku-climate-summit.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5931599/2024/11/19/mlb-team-player-free-agent-fits/
 **Giannis' block, Damian Lillard's bucket help Bucks escape with win over Rockets**\
 `In a gritty, physical contest, Antetokounmpo and Lillard came up big when the Bucks needed it most. `\
 https://nytimes.com/athletic/5931625/2024/11/19/giannis-antetokounmpo-damian-lillard-bucks-rockets/
-
-**Fan apathy setting in? Jerry Jones says 'better days ahead' for Cowboys**\
-`Jerry Jones explained the roof situation and Texans fans (and empty seats) left their mark Monday night.`\
-https://nytimes.com/athletic/5932288/2024/11/19/cowboys-today-stadium-roof-texans-fans/
-
-**FAU coaching job profile: What will Tom Herman's replacement inherit?**\
-`What the Owls lack in tradition, they make up for in possibility.`\
-https://nytimes.com/athletic/5932266/2024/11/19/fau-football-coaching-job-profile-candidates/
 

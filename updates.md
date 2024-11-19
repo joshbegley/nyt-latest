@@ -1,3 +1,11 @@
+**Daniel Boulud Opens La Tête d’Or, His First Steakhouse**\
+`Melissa Rodriguez opens Crane Club in the Al Coro space, the Anton’s team take on all-day Italian at Leon’s and more.`\
+https://nytimes.com/2024/11/19/dining/daniel-boulud-steakhouse.html
+
+**'Simpsons'-themed broadcast means Bengals-Cowboys won't be flexed**\
+`'Simpsons'-themed animations and broadcast packages tied to the Bengals and Cowboys have already been created.`\
+https://nytimes.com/athletic/5932410/2024/11/19/bengals-vs-cowboys-mnf-not-flexed-simpsons-alt-cast/
+
 **The Perfect Novel for the Baku Climate Summit**\
 `The U.N. climate conference, held in a petrostate, is a surreal moment. This darkly funny novel about Baku, oil companies and climate change in the first Trump term helps make sense of it all.`\
 https://nytimes.com/2024/11/19/climate/mobility-kiesling-baku-climate-summit.html
