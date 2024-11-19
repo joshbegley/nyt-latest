@@ -1,3 +1,7 @@
+**Trump, the Military and Plans for Mass Deportation**\
+`Questions about the president-elect’s plan, and a call for protests. Also: Tears after the election; funds for education; a roofless stadium in Buffalo.`\
+https://nytimes.com/2024/11/19/opinion/trump-military-mass-deportation.html
+
 **Penguins Today: A Sidney Crosby vs. Paul Skenes showdown?**\
 `Would you want to stand in the batter's box against Paul Skenes? Sidney Crosby does.`\
 https://nytimes.com/athletic/5932066/2024/11/19/penguins-today-sidney-crosby-paul-skenes/

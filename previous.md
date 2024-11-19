@@ -1,3 +1,7 @@
+**Trump, the Military and Plans for Mass Deportation**\
+`Questions about the president-elect’s plan, and a call for protests. Also: Tears after the election; funds for education; a roofless stadium in Buffalo.`\
+https://nytimes.com/2024/11/19/opinion/trump-military-mass-deportation.html
+
 **Penguins Today: A Sidney Crosby vs. Paul Skenes showdown?**\
 `Would you want to stand in the batter's box against Paul Skenes? Sidney Crosby does.`\
 https://nytimes.com/athletic/5932066/2024/11/19/penguins-today-sidney-crosby-paul-skenes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930379/2024/11/19/heisman-trophy-odds-travis-hunte
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/19/nhl-standings-playoffs-projections-odds/
-
-**UMass job profile: With MAC move coming, it's not as bleak as you think**\
-`The Minutemen are rejoining a conference next season and believe their coaching opening is better than it has been in the past.`\
-https://nytimes.com/athletic/5931921/2024/11/19/umass-football-coaching-search-candidate/
 
