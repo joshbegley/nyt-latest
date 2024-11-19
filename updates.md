@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/11/19/opinion/thepoint
+
+**Pitching prospects Tekoah Roby, Tink Hence added to Cardinals' 40-man roster**\
+`Both Hence and Roby are considered Top 10 prospects in the Cardinals' organization, though their path to the majors is not yet clear.`\
+https://nytimes.com/athletic/5932715/2024/11/19/st-louis-cardinals-rule-5-protections/
+
 **Nadal would not pick himself to play singles for Spain at the Davis Cup after defeat**\
 `The 22-time Grand Slam champion lost what could be his final tennis match in the first rubber of Spain's tie against the Netherlands.`\
 https://nytimes.com/athletic/5932976/2024/11/19/rafael-nadal-davis-cup-spain/
