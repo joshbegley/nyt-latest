@@ -1,3 +1,7 @@
+**Head Over Heels**\
+`Erik Agard runs down the clock.`\
+https://nytimes.com/2024/11/18/crosswords/daily-puzzle-2024-11-19.html
+
 **Wyoming’s Abortion Bans Are Unconstitutional, Judge Rules**\
 `The ruling found that two state laws — one barring use of abortion pills, and one banning all forms of abortion — violated the state’s “fundamental right to make health care decisions.”`\
 https://nytimes.com/2024/11/18/health/wyoming-abortion-ban-overturned.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/18/books/arthur-frommer-dead.html
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/5931143/2024/11/18/submit-a-question-for-stewart-mandels-college-football-mailbag-282/
-
-**NHL referee taken to hospital after on-ice collision with Avalanche player**\
-`Dunning collided with Avalanche defenseman Josh Manson near Colorado’s offensive zone blue line`\
-https://nytimes.com/athletic/5931067/2024/11/18/nhl-referee-stretcher-collision-manson/
 
