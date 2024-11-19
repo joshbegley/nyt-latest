@@ -1,3 +1,15 @@
+**Trump Defies the #MeToo Movement With Cabinet Picks Facing Accusations**\
+`Donald J. Trump, who was found liable for sexual abuse last year, appears determined to force a fight over the role of such allegations in society.`\
+https://nytimes.com/2024/11/19/us/politics/trump-women-metoo.html
+
+**Scoop City: Critical stats for 9 contenders**\
+`A brief look at the critical stats where nine contenders (from Kansas City to Baltimore) are undefeated, plus Week 12 fantasy prep`\
+https://nytimes.com/athletic/5932228/2024/11/19/nfl-contenders-stats-2024-bills-chiefs-scoop-city/
+
+**‘Excuse Me! How Much Do You Pay for Rent in New York?’**\
+`When we asked the online celeb Caleb Simpson if he would give us a tour of his house, he said “Yes.” Here’s what we found.`\
+https://nytimes.com/2024/11/19/realestate/caleb-simpson-apartments-new-york.html
+
 **Hacker Is Said to Have Gained Access to File With Damaging Testimony About Gaetz**\
 `The computer file is said to contain testimony from the woman who said she had sex with Matt Gaetz, President-elect Donald Trump’s choice to be attorney general, when she was 17.`\
 https://nytimes.com/2024/11/19/us/politics/matt-gaetz-hack-testimony.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5932040/2024/11/19/michele-kang-investment-women-so
 **What we learned about the Rockets in loss to the struggling Bucks**\
 `"They just try to attack mismatches so it's on us to know which one and adjust," Rockets' Tari Eason said after the 101-100 loss.`\
 https://nytimes.com/athletic/5931426/2024/11/19/rockets-struggling-bucks-win/
-
-**Amick: Cavs' Kenny Atkinson effect, Jayson Tatum's MVP case, Sixers spiraling and more**\
-`Atkinson's journey to the Cavs has been unique, while Tatum has been amazing for the Celtics. Plus, the Nets appear open to trades.`\
-https://nytimes.com/athletic/5931434/2024/11/19/cavaliers-jayson-tatum-mvp-celtics/
-
-**Ivan Taylor, son of Super Bowl champion safety Ike, flips from Michigan to Bama**\
-`If Taylor comes to Tuscaloosa ready, he could carve out a role in the Crimson Tide defense as early as next fall.`\
-https://nytimes.com/athletic/5932038/2024/11/19/ivan-taylor-commitment-alabama-michigan/
-
-**NBA Power Rankings: Everybody hurts in this league — some more than others**\
-`Precious few stars and teams (hello, Rockets) have avoided time lost to ailments. These latest rankings take stock of the walking wounded.`\
-https://nytimes.com/athletic/5931111/2024/11/19/nba-power-rankings-cavaliers-warriors-pelicans-injuries/
 
