@@ -1,3 +1,7 @@
+**Inter Miami head coach Martino resigns after MLS Cup exit**\
+`Inter Miami head coach Gerardo ‘Tata’ Martino has resigned due to personal reasons, according to multiple sources.`\
+https://nytimes.com/athletic/5932943/2024/11/19/tata-martino-resigns-coach-inter-miami/
+
 **Oilers claim Kasperi Kapanen off waivers from Blues**\
 `The Oilers picked up Kapanen to help shore up their forward ranks and possibly give their offense a jolt.`\
 https://nytimes.com/athletic/5932915/2024/11/19/oilers-kasperi-kapanen-waiver-claim-st-louis-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932735/2024/11/19/jt-miller-canucks-indefinite-lea
 **Civil War Toll Much Worse in Confederate States, New Estimates Show**\
 `An analysis of newly released 19th-century census records offers more insight into the conflict’s costs.`\
 https://nytimes.com/2024/11/19/health/civil-war-death-toll.html
-
-**Auston Matthews receiving treatment for injury in Germany**\
-`“It’s not alarming,” Leafs GM Brad Treliving stressed but Auston Matthews will likely miss a couple more games.`\
-https://nytimes.com/athletic/5932680/2024/11/19/auston-matthews-injury-germany/
 
