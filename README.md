@@ -1,3 +1,7 @@
+**City's Hemp undergoes surgery on knee injury**\
+`Manchester City and England winger Lauren Hemp has undergone surgery on a knee injury.`\
+https://nytimes.com/athletic/5931649/2024/11/19/lauren-hemp-knee-injury-surgery/
+
 **Cowboys took points away, never scored again: Key plays, decisions in fifth consecutive loss**\
 `At 3-7, the Cowboys continue to slide closer to a top-five draft pick than a playoff spot.`\
 https://nytimes.com/athletic/5931514/2024/11/19/cowboys-fifth-consecutive-loss-texans/
@@ -34,4 +38,3 @@ https://nytimes.com/2024/11/19/opinion/trump-election-teenage-boys-girls.html
 `If he is confirmed as H.H.S. secretary, the longtime vaccine critic would be in a position to change the government’s immunization recommendations and delay the development of new vaccines.`\
 https://nytimes.com/2024/11/19/health/rfk-jr-vaccines-hhs.html
 
-**One Book That Made Gabriel García Márquez a Writer**\
