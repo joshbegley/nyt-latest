@@ -1,3 +1,23 @@
+**The Secret to the Best Turkey Came From a Reader**\
+`Eric Kim cooked dozens of roast turkeys and taste-tested eight different recipes before landing on this clever approach.`\
+https://nytimes.com/2024/11/19/dining/best-thanksgiving-turkey-recipe.html
+
+**Defining Deviancy Down. And Down. And Down.**\
+`Trump’s cabinet picks are the latest instance of normalizing political abhorrence.`\
+https://nytimes.com/2024/11/19/opinion/trump-gaetz-investigation-report.html
+
+**Stephen Vogt's award-winning rookie year as Guardians manager didn't come as a surprise**\
+`Nothing came easy to Vogt as a player. The managing thing, though, seems like it has.`\
+https://nytimes.com/athletic/5933256/2024/11/19/guardians-stephen-vogt-first-year-managing/
+
+**Democrats Face a Series of Tests Over Support for Israel**\
+`First up is a resolution put forth by Senator Bernie Sanders, a Vermont independent who is Jewish, to deny Israel certain military weapons.`\
+https://nytimes.com/2024/11/19/us/politics/israel-gaza-democrats.html
+
+**Brewers’ Pat Murphy wins NL Manager of the Year after remarkable first season at the helm**\
+`Long before the votes were cast, Murphy stood alone as a clear favorite to win an award he has worked toward his entire life.`\
+https://nytimes.com/athletic/5932569/2024/11/19/brewers-pat-murphy-nl-manager-of-the-year/
+
 **As He Moved to the Right, Elon Musk Packed His Businesses Into Texas**\
 `The billionaire has rapidly transformed parts of the state, shocking even development-friendly officials: “It was like, ‘Voilà, Elon is here.’”`\
 https://nytimes.com/2024/11/19/us/texas-elon-musk.html
