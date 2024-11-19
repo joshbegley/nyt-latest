@@ -1,3 +1,7 @@
+**SpaceX Unable to Recover Booster Stage During Sixth Test Flight**\
+`President-elect Donald Trump joined Elon Musk in Texas and watched the launch from a nearby location on Tuesday. While the Starship’s giant booster stage was unable to repeat a “chopsticks” landing, the vehicle’s upper stage successfully splashed down in the Indian Ocean.`\
+https://nytimes.com/video/science/space/100000009834826/spacex-rocket-starship-elon-musk-trump.html
+
 **Where the Red Sox roster stands: Nick Pivetta declines QO, two prospects added**\
 `The Red Sox added Jhostynxon Garcia and Hunter Dobbins to the 40-man roster, and designated two pitching prospects for assignment.`\
 https://nytimes.com/athletic/5933581/2024/11/19/red-sox-roster-update-nick-pivetta/
