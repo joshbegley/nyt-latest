@@ -1,3 +1,11 @@
+**MLB plans new national TV packages for 2028; changes to revenue sharing, CBA crucial**\
+`MLB commissioner Rob Manfred explained his vision for the future of MLB's telecasts and local media rights in an exclusive interview.`\
+https://nytimes.com/athletic/5933299/2024/11/19/mlb-plans-new-national-tv-packages-for-2028-changes-to-revenue-sharing-cba-crucial/
+
+**A House race in California is separated by 102 votes.**\
+`The closest House race in the nation is in Southern California, where Representative Michelle Steel is trailing her challenger, Derek Tran, by a tiny margin after more than 307,000 votes have been counted.`\
+https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/a-house-race-in-california-is-separated-by-102-votes
+
 **Ukraine Fired U.S.-Made Missiles into Russia**\
 `Also, prosecutors called for a four-year freeze on Trump’s Manhattan case. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/11/19/briefing/ukraine-russia-us-missiles-trump-new-york-case.html

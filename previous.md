@@ -1,3 +1,11 @@
+**MLB plans new national TV packages for 2028; changes to revenue sharing, CBA crucial**\
+`MLB commissioner Rob Manfred explained his vision for the future of MLB's telecasts and local media rights in an exclusive interview.`\
+https://nytimes.com/athletic/5933299/2024/11/19/mlb-plans-new-national-tv-packages-for-2028-changes-to-revenue-sharing-cba-crucial/
+
+**A House race in California is separated by 102 votes.**\
+`The closest House race in the nation is in Southern California, where Representative Michelle Steel is trailing her challenger, Derek Tran, by a tiny margin after more than 307,000 votes have been counted.`\
+https://nytimes.com/live/2024/11/19/us/trump-news-live-updates/a-house-race-in-california-is-separated-by-102-votes
+
 **Ukraine Fired U.S.-Made Missiles into Russia**\
 `Also, prosecutors called for a four-year freeze on Trump’s Manhattan case. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/11/19/briefing/ukraine-russia-us-missiles-trump-new-york-case.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5933315/2024/11/19/mets-trade-jose-siri-rays-eric-o
 **The Onion’s Bid to Acquire Infowars Has Gotten Messy**\
 `A hearing is scheduled for Monday to review the auction process, which is being contested by a losing bidder associated with Alex Jones, the Infowars founder.`\
 https://nytimes.com/2024/11/19/business/media/the-onion-infowars-alex-jones.html
-
-**Trump Wants to Nominate Dr. Mehmet Oz to Oversee Medicare and Medicaid**\
-`The celebrity physician would oversee federal health insurance programs that cover more than 100 million Americans.`\
-https://nytimes.com/2024/11/19/us/politics/trump-dr-oz-medicare-medicaid.html
-
-**Upon further review, Big Ten says Oregon has clinched spot in title game**\
-`Initially, Big Ten officials described one situation containing a possibility that remained for a Penn State-Ohio State rematch in Indy.`\
-https://nytimes.com/athletic/5933147/2024/11/19/oregon-big-ten-championship-game-tiebreakers/
 
