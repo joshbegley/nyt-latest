@@ -1,3 +1,7 @@
+**Dexter Lawrence on Giants' QB change: Daniel Jones is still team's best QB**\
+`“It’s tough. That’s my best friend. It’s tough for that to happen. I can’t control it."`\
+https://nytimes.com/athletic/5932545/2024/11/19/dexter-lawrence-giants-daniel-jones-comments/
+
 **Nordic Countries, Eyeing Russia, Dust Off Their Crisis Advice**\
 `Sweden, Finland and Norway have recently updated their advice for citizens preparing to survive war and other crises, wary of Ukraine’s grinding fight against Russia.`\
 https://nytimes.com/2024/11/19/world/europe/sweden-russia-ukraine-crisis-war-advice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932319/2024/11/19/rafael-nadal-davis-cup-result-an
 **Manhattan D.A. Suggests Freezing Trump’s Case While He Is President**\
 `With his sentencing on hold, lawyers for President-elect Donald J. Trump are pushing to dismiss the case. The district attorney, Alvin Bragg, is opposing the effort.`\
 https://nytimes.com/2024/11/19/nyregion/trump-bragg-manhattan-case.html
-
-**NFL best bets Week 12: Chargers against the spread in Harbaugh Bowl**\
-`Austin Mock's model has four bets to make on NFL Week 12. Check back through the week for more. `\
-https://nytimes.com/athletic/5932536/2024/11/19/nfl-best-bets-week-12-harbaugh-bowl/
 
