@@ -1,3 +1,11 @@
+**Walmart Sees ‘Momentum’ Ahead of Holiday Shopping Season**\
+`The company, a bellwether for the retail industry, said its U.S. sales rose 5 percent in the third quarter, as cost-conscious consumers of all incomes sought bargains.`\
+https://nytimes.com/2024/11/19/business/walmart-sales-holiday-shopping.html
+
+**Weekly Student News Quiz: Republican Win, Obesity Report, Rhesus Monkeys**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/11/19/learning/19StudentNewsQuiz.html
+
 **After disastrous road trip, where do Red Wings go from here?**\
 `The Red Wings lost all three games in California, plunging them into an early-season crisis that points to challenging decisions ahead.`\
 https://nytimes.com/athletic/5931466/2024/11/19/red-wings-sharks-loss-nhl-season/
