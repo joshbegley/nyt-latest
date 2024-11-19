@@ -1,3 +1,15 @@
+**Atmospheric River and Hurricane-Strength Storm Set to Drench the West**\
+`A “bomb cyclone” over the Pacific Ocean could bring damaging winds, rainfall and blizzards to Northern California, Oregon and Washington.`\
+https://nytimes.com/2024/11/19/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
+
+**Submit your questions for Josh Kendall's Falcons mailbag**\
+`The Falcons are 6-5 at the bye, having lost two games in a row as their defense struggles to stop anyone. What's on your mind?`\
+https://nytimes.com/athletic/5933531/2024/11/19/falcons-mailbag-questions-9/
+
+**Rafael Nadal's tennis career is over after Spain doubles defeat to Netherlands**\
+`Nadal won 22 Grand Slam titles in his career and retires as one of the greatest men's tennis players of all time.`\
+https://nytimes.com/athletic/5933496/2024/11/19/rafael-nadal-retires-tennis-career/
+
 **Bills-Chiefs draws largest TV audience of season**\
 `Buffalo's 30-21 win over the previously undefeated Chiefs game averaged a whopping 31.2 million viewers for CBS, per the NFL.`\
 https://nytimes.com/athletic/5933373/2024/11/19/bills-chiefs-josh-allen-viewership-broadcast/

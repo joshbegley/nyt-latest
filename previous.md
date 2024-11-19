@@ -1,3 +1,15 @@
+**Atmospheric River and Hurricane-Strength Storm Set to Drench the West**\
+`A “bomb cyclone” over the Pacific Ocean could bring damaging winds, rainfall and blizzards to Northern California, Oregon and Washington.`\
+https://nytimes.com/2024/11/19/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
+
+**Submit your questions for Josh Kendall's Falcons mailbag**\
+`The Falcons are 6-5 at the bye, having lost two games in a row as their defense struggles to stop anyone. What's on your mind?`\
+https://nytimes.com/athletic/5933531/2024/11/19/falcons-mailbag-questions-9/
+
+**Rafael Nadal's tennis career is over after Spain doubles defeat to Netherlands**\
+`Nadal won 22 Grand Slam titles in his career and retires as one of the greatest men's tennis players of all time.`\
+https://nytimes.com/athletic/5933496/2024/11/19/rafael-nadal-retires-tennis-career/
+
 **Bills-Chiefs draws largest TV audience of season**\
 `Buffalo's 30-21 win over the previously undefeated Chiefs game averaged a whopping 31.2 million viewers for CBS, per the NFL.`\
 https://nytimes.com/athletic/5933373/2024/11/19/bills-chiefs-josh-allen-viewership-broadcast/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/11/19/briefing/ukraine-russia-us-missiles-trump-new-yor
 **Sean Combs’s Lawyers Argue That Seizure of Notes From Jail Was Unjust**\
 `Lawyers for the music mogul objected at a hearing to prosecutors viewing handwritten materials from their client’s cell after a sweep of the Brooklyn jail where he is being held.`\
 https://nytimes.com/2024/11/19/arts/music/sean-diddy-combs-jail-notes-raid.html
-
-**Two Apartment Buildings Were Planned. Only One Went Up. What Happened?**\
-`New York City is dealing with its worst housing shortage in decades. The diverging fates of two developments offer a window into the crisis.`\
-https://nytimes.com/interactive/2024/11/19/nyregion/affordable-housing-nyc-rent.html
-
-**A Nostalgic Biden Fades Out of the Picture in Talks With World Leaders**\
-`As he made his final appearance at global gatherings, including at the Group of 20 summit in Brazil, President Biden lobbied for his foreign policy goals even as leaders shifted attention away from him.`\
-https://nytimes.com/2024/11/19/world/americas/biden-g20-summit.html
-
-**Market share report: Austin Ekeler is a cheat, Jauan Jennings is enviable and more**\
-`In his breakdown of the Week 11 market share, Michael Salfino says Austin Ekeler is a receiver masquerading as a running back.`\
-https://nytimes.com/athletic/5932761/2024/11/19/market-share-report-touches-targets-week-11-ekeler-jennings/
 
