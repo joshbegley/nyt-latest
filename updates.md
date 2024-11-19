@@ -1,3 +1,7 @@
+**Access all areas with Canada in Suriname: Travelling with Marsch, team meetings and playing Mafia**\
+`The Athletic is granted access never previously allowed, travelling with Canada's players by plane and bus on their long trip to Suriname`\
+https://nytimes.com/athletic/5929141/2024/11/19/canada-suriname-access-all-areas/
+
 **Russia Claims Ukraine Used U.S.-Made Missiles in Strike**\
 `If confirmed, the strike would be first time that Ukraine had used the weapons system, known as ATACMS, to strike inside Russia.`\
 https://nytimes.com/2024/11/19/world/europe/ukraine-russia-atacms-missiles.html
