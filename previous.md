@@ -1,5 +1,5 @@
 **USMNT 4, Jamaica 2: Strong team performance sees U.S. through to Nations League semifinals**\
-`How the USMNT beat Jamaica in the 2024 CONCACAF Nations League`\
+`How the USMNT beat Jamaica in the 2024 CONCACAF Nations League.`\
 https://nytimes.com/athletic/5931285/2024/11/18/usmnt-christian-pulisic-jamaica-nations-league/
 
 **Head Over Heels**\
