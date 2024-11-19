@@ -1,3 +1,7 @@
+**Oilers claim Kasperi Kapanen off waivers from Blues**\
+`The Edmonton Oilers have claimed winger Kasperi Kapanen off waivers from the St.`\
+https://nytimes.com/athletic/5932915/2024/11/19/oilers-kasperi-kapanen-waiver-claim-st-louis-blues/
+
 **Deion: 'I've got a kickstand down' in Colorado amid carousel speculation**\
 `Sanders' resurgent second season with Colorado has restarted speculation on whether a deeper-pocketed college or NFL team would call him.`\
 https://nytimes.com/athletic/5932826/2024/11/19/deion-sanders-colorado-coaching-carousel-rumors/
