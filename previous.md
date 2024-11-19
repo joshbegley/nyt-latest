@@ -1,3 +1,11 @@
+**How Trump Can Earn a Place in History That He Did Not Expect**\
+`The president-elect has a starting point: the plan for a two-state solution that he put out in January 2020.`\
+https://nytimes.com/2024/11/19/opinion/donald-trump-israel-gaza.html
+
+**Son of Norway’s Crown Princess Is Arrested on Suspicion of Rape**\
+`Marius Borg Hoiby, the stepson of Crown Prince Haakon of Norway, was arrested on Monday. His lawyer denied the accusation and said his client was cooperating with the authorities.`\
+https://nytimes.com/2024/11/19/world/europe/norway-crown-princess-son-rape-arrest.html
+
 **Trump to Watch Latest SpaceX Launch With Elon Musk**\
 `The president-elect’s appearance in Texas demonstrates the growing closeness between the two billionaires, and Mr. Musk’s increasing influence in Mr. Trump’s orbit.`\
 https://nytimes.com/2024/11/19/us/politics/trump-spacex-launch.html
@@ -16,7 +24,7 @@ https://nytimes.com/athletic/5933010/2024/11/19/seb-hines-pride-nwsl-coy/
 
 **Richard V. Allen, Reagan’s First National Security Adviser, Dies at 88**\
 `His tenure was short: He was forced to resign after $1,000 in cash was found in a safe in his former office, even though the Justice Department cleared him of wrongdoing.`\
-https://nytimes.com/2024/11/19/obituaries/richard-v-allen-dead.html
+https://nytimes.com/2024/11/19/us/politics/richard-v-allen-dead.html
 
 **‘Tammy Faye’ Musical to Close After Failing to Find Broadway Audience**\
 `Well-reviewed in London but poorly received in New York, the musical with an Elton John score will end its run on Dec. 8.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5932522/2024/11/19/sixers-joel-embiid-whats-wrong/
 **Unexpected Turns in Trump Election Cases Raise Questions About Their Durability**\
 `Canceled oral arguments in one case and a judge’s recusal in another have added to questions about the future of four state cases against Donald J. Trump and his allies.`\
 https://nytimes.com/2024/11/19/us/trump-election-interference-georgia-arizona.html
-
-**Did the Trump Prosecutions Damage Democratic Credibility?**\
-`Many voters may have thought Democrats were the authoritarians.`\
-https://nytimes.com/2024/11/19/opinion/trump-prosecutions-democratic-credibility.html
-
-**Live Q&A: Week 12 fantasy football add/drop chat with Jay Felicio, Tuesday 11/19 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5932399/2024/11/19/live-qa-week-12-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-11-19-at-5-p-m-et/
 

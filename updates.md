@@ -1,3 +1,15 @@
+**How Trump Can Earn a Place in History That He Did Not Expect**\
+`The president-elect has a starting point: the plan for a two-state solution that he put out in January 2020.`\
+https://nytimes.com/2024/11/19/opinion/donald-trump-israel-gaza.html
+
+**Son of Norway’s Crown Princess Is Arrested on Suspicion of Rape**\
+`Marius Borg Hoiby, the stepson of Crown Prince Haakon of Norway, was arrested on Monday. His lawyer denied the accusation and said his client was cooperating with the authorities.`\
+https://nytimes.com/2024/11/19/world/europe/norway-crown-princess-son-rape-arrest.html
+
+**Richard V. Allen, Reagan’s First National Security Adviser, Dies at 88**\
+`His tenure was short: He was forced to resign after $1,000 in cash was found in a safe in his former office, even though the Justice Department cleared him of wrongdoing.`\
+https://nytimes.com/2024/11/19/us/politics/richard-v-allen-dead.html
+
 **Trump to Watch Latest SpaceX Launch With Elon Musk**\
 `The president-elect’s appearance in Texas demonstrates the growing closeness between the two billionaires, and Mr. Musk’s increasing influence in Mr. Trump’s orbit.`\
 https://nytimes.com/2024/11/19/us/politics/trump-spacex-launch.html
