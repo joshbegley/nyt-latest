@@ -1,3 +1,7 @@
+**Oilers claim Kasperi Kapanen off waivers from Blues**\
+`The Edmonton Oilers have claimed winger Kasperi Kapanen off waivers from the St.`\
+https://nytimes.com/athletic/5932915/2024/11/19/oilers-kasperi-kapanen-waiver-claim-st-louis-blues/
+
 **Deion: 'I've got a kickstand down' in Colorado amid carousel speculation**\
 `Sanders' resurgent second season with Colorado has restarted speculation on whether a deeper-pocketed college or NFL team would call him.`\
 https://nytimes.com/athletic/5932826/2024/11/19/deion-sanders-colorado-coaching-carousel-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/19/health/civil-war-death-toll.html
 **Auston Matthews receiving treatment for injury in Germany**\
 `“It’s not alarming,” Leafs GM Brad Treliving stressed but Auston Matthews will likely miss a couple more games.`\
 https://nytimes.com/athletic/5932680/2024/11/19/auston-matthews-injury-germany/
-
-**A Bizarre Love Triangle Playlist**\
-`Sabrina Carpenter, Loretta Lynn and SZA sing about all the points on a love triangle.`\
-https://nytimes.com/2024/11/19/arts/music/amplifier-newsletter-love-triangles-sabrina-carpenter.html
 
