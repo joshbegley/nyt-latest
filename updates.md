@@ -1,3 +1,7 @@
+**A Dissident’s Final Act of Protest Stuns Iran**\
+`Repeatedly imprisoned in his country, Kianoosh Sanjari refused to be silenced by the government. But in the end, despairing of change, he silenced himself.`\
+https://nytimes.com/2024/11/19/world/middleeast/iran-kianoosh-sanjari-suicide.html
+
 **Phillies' quest for Andrew Painter placeholder takes shape as club makes 40-man roster adds**\
 `There are layers to this quest for back-of-the-rotation stability in 2025. `\
 https://nytimes.com/athletic/5933565/2024/11/19/phillies-40-man-roster-andrew-painter/
