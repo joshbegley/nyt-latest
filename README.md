@@ -30,7 +30,7 @@ https://nytimes.com/2024/11/19/world/middleeast/israel-5-million-dollars-hostage
 `MLB commissioner Rob Manfred explained his vision for the future of MLB's telecasts and local media rights in an exclusive interview.`\
 https://nytimes.com/athletic/5933299/2024/11/19/mlb-plans-new-national-tv-packages-for-2028-changes-to-revenue-sharing-cba-crucial/
 
-**A House race in California is separated by 102 votes.**\
+**House Race in California Is Separated by 102 Votes**\
 `The closest House race in the nation is in Southern California, where Representative Michelle Steel is trailing her challenger, Derek Tran, by a tiny margin after more than 307,000 votes have been counted.`\
 https://nytimes.com/2024/11/19/us/politics/california-house-election-steel-tran.html
 
