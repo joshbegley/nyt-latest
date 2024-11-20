@@ -1,3 +1,7 @@
+**James Conner and the punishing style and leadership that fuel the Cardinals**\
+`Kyler Murray is playing well. The defense continues to improve, but James Conner has always buzzed as Arizona's primary power source.`\
+https://nytimes.com/athletic/5933197/2024/11/20/james-conner-arizona-cardinals-leadership/
+
 **2025 NFL Draft order projections: Cowboys, Bears tumbling toward top-10 picks**\
 `How did Week 11 shake up the potential 2025 NFL Draft order?`\
 https://nytimes.com/athletic/5932215/2024/11/20/nfl-draft-2025-order-projections-cowboys-bears/
