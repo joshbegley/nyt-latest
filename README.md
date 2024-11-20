@@ -1,3 +1,7 @@
+**Sparks hire Lynne Roberts as coach**\
+`Roberts joins the Sparks after nearly 20 years as a Division I coach and recently guided Utah to three consecutive NCAA Tournament trips.`\
+https://nytimes.com/athletic/5933916/2024/11/19/lynne-roberts-hired-sparks/
+
 **Indiana, Tennessee are on course for a CFP committee showdown, so let's get a head start**\
 `First, let's see if we can agree on this: What anyone thinks "would" happen means nothing right now.`\
 https://nytimes.com/athletic/5933797/2024/11/19/college-football-playoff-tennessee-indiana/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933752/2024/11/19/jim-montgomery-coaching-destinat
 **Melissa and Her Amazing Technicolor Dream Sides**\
 `Colorful and covetable: green beans with red onion and lime; maple roasted squash; red cabbage wedges with walnuts and feta.`\
 https://nytimes.com/2024/11/19/dining/melissa-clark-thanksgiving-side-dishes.html
-
-**Cubs add prospect Owen Caissie to 40-man roster, DFA ex-closer Adbert Alzolay**\
-`The Cubs reshaped their roster Tuesday.`\
-https://nytimes.com/athletic/5933749/2024/11/19/cubs-roster-owen-caissie-dfa-adbert-alzolay/
 
