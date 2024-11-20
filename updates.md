@@ -1,3 +1,7 @@
+**Bomb Cyclone Slams the Pacific Northwest**\
+`A deadly weather system left tens of thousands without power in Washington. The “atmospheric river” storm from the Pacific Ocean also battered Oregon and Northern California.`\
+https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington.html
+
 **Coca-Cola’s Holiday Ads Trade the ‘Real Thing’ for Generative A.I.**\
 `The company’s nostalgia-filled commercials are a holiday tradition, but this year’s ads are facing backlash for dipping into the uncanny valley.`\
 https://nytimes.com/2024/11/20/style/coca-cola-holiday-ads-ai.html
