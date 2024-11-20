@@ -1,3 +1,7 @@
+**How Howard Lutnick Could Shake Up Global Trade**\
+`President-elect Donald Trump’s pick to run the Commerce Department would have a big say on American industrial policy and tariffs.`\
+https://nytimes.com/2024/11/20/business/dealbook/howard-lutnick-commerce-secretary-trump.html
+
 **'I have to play better': Nuggets' Jamal Murray bounces back, then opens up on struggles**\
 `Murray hadn't looked like himself for months, including during the Olympics. But his aggressiveness on Tuesday night was a welcome sign.`\
 https://nytimes.com/athletic/5934460/2024/11/20/jamal-murray-denver-nuggets-interview/
