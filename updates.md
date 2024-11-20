@@ -1,3 +1,7 @@
+**Nvidia Doubles Profit as A.I. Chip Sales Soar**\
+`The company, which dominates the market for chips used to build artificial intelligence, expects another big jump in the current quarter.`\
+https://nytimes.com/2024/11/20/technology/nvidia-earnings-chips-ai.html
+
 **Freddie Freeman's walk-off grand slam ball to go to auction in December**\
 `SCP Auctions expect the ball to sell for seven figures.`\
 https://nytimes.com/athletic/5935876/2024/11/20/freddie-freemans-walk-off-grand-slam-ball-to-go-to-auction-in-december/
