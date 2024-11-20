@@ -1,3 +1,11 @@
+**Corrections: Nov. 20, 2024**\
+`Corrections that appeared in print on Wednesday, Nov. 20, 2024.`\
+https://nytimes.com/2024/11/19/pageoneplus/corrections-nov-20-2024.html
+
+**Jets owner Johnson suggested benching Aaron Rodgers in September: Sources**\
+`The idea of benching the future Hall of Famer sounded so absurd that one coach asked whether the owner was serious.`\
+https://nytimes.com/athletic/5933645/2024/11/19/aaron-rodgers-woody-johnson-benching-jets/
+
 **Jets owner Johnson suggested benching Aaron Rodgers in September: Sources**\
 `Johnson felt Rodgers' performance was holding the team back.`\
 https://nytimes.com/athletic/5933645/2024/11/19/aaron-rodgers-woody-johnson-benching-jets/
