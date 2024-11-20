@@ -1,3 +1,11 @@
+**Target’s Stock Sinks on Weak Sales Ahead of Holiday Shopping Season**\
+`The retailer’s downbeat earnings report, which included lower profit and larger inventory, fell far short of Wall Street’s expectations.`\
+https://nytimes.com/2024/11/20/business/target-sales-holiday-earnings.html
+
+**Giraffes, in Steep Decline, Now Need Protection, U.S. Officials Say**\
+`A new proposal would restrict the import of hunting trophies, pelts, bone carvings and other items.`\
+https://nytimes.com/2024/11/20/climate/giraffes-threatened-endangered.html
+
 **Should the Giants trade Camilo Doval? The pros and cons**\
 `Doval has the kind of skill-set teams with pennant aspirations covet. Are the Giants one of those teams? Or should they look to deal him?`\
 https://nytimes.com/athletic/5932476/2024/11/20/sf-giants-camilo-doval-trade-possibilities/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5933197/2024/11/20/james-conner-arizona-cardinals-l
 **2025 NFL Draft order projections: Cowboys, Bears tumbling toward top-10 picks**\
 `How did Week 11 shake up the potential 2025 NFL Draft order?`\
 https://nytimes.com/athletic/5932215/2024/11/20/nfl-draft-2025-order-projections-cowboys-bears/
-
-**The Business of Football: Would-be Reading owner speaks, sleepless in Swansea and a BBC boost**\
-`Matt Slater has news from around the EFL, as well as a development in the battle between the UK's two main broadcasters of radio sport`\
-https://nytimes.com/athletic/5927707/2024/11/20/business-of-football-reading-swansea-bbc/
-
-**Man City's latest documentary may tell us more about Guardiola than anything before**\
-`There are tears, tantrums and Guardiola on the edge in City's fifth documentary - it could well be the most riveting of them all `\
-https://nytimes.com/athletic/5932658/2024/11/20/man-citys-latest-documentary-may-tell-us-more-about-guardiola-than-anything-before/
 

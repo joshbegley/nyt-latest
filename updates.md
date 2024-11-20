@@ -1,3 +1,11 @@
+**Target’s Stock Sinks on Weak Sales Ahead of Holiday Shopping Season**\
+`The retailer’s downbeat earnings report, which included lower profit and larger inventory, fell far short of Wall Street’s expectations.`\
+https://nytimes.com/2024/11/20/business/target-sales-holiday-earnings.html
+
+**Giraffes, in Steep Decline, Now Need Protection, U.S. Officials Say**\
+`A new proposal would restrict the import of hunting trophies, pelts, bone carvings and other items.`\
+https://nytimes.com/2024/11/20/climate/giraffes-threatened-endangered.html
+
 **'I have to play better': Nuggets' Jamal Murray bounces back, then opens up about struggles**\
 `Murray hadn't looked like himself for months, including during the Olympics. But his aggressiveness on Tuesday night was a welcome sign.`\
 https://nytimes.com/athletic/5934460/2024/11/20/jamal-murray-denver-nuggets-interview/
