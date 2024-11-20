@@ -1,3 +1,11 @@
+**Bill Moyes, Australian ‘Birdman’ Who Popularized Hang Gliding, Dies at 92**\
+`A modern-day Icarus, he set a world record for the longest unassisted flight, was arrested after soaring into the Grand Canyon and nearly killed himself several times.`\
+https://nytimes.com/2024/11/20/sports/bill-moyes-dead.html
+
+**The Berlin Philharmonic Is the Best in the Business**\
+`In three concerts at Carnegie Hall led by Kirill Petrenko, this orchestra played with awe-inspiring force and finesse.`\
+https://nytimes.com/2024/11/20/arts/music/berlin-philharmonic-carnegie-hall.html
+
 **How to Win Latino Voters**\
 `A conversation with a Democrat who did.`\
 https://nytimes.com/2024/11/20/us/politics/latino-voters-gallego.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5934782/2024/11/20/islanders-nhl-standings-2024/
 **New Yorkers, How Will You Get to the Airport for Thanksgiving?**\
 `As the holiday approaches, we want to know how you plan on tackling one of the biggest travel days of the year.`\
 https://nytimes.com/2024/11/20/nyregion/nyc-airport-travel-thanksgiving.html
-
-**Scoop City: The decline of superstar cornerbacks**\
-`The decline of highly-paid cornerbacks, the latest from New York and an updated look at rookie QB EPA.`\
-https://nytimes.com/athletic/5935226/2024/11/20/jets-bench-aaron-rodgers-star-cornerbacks-scoop-city/
-
-**Does Anyone Trust the Government?**\
-`Cynicism is rampant across the political spectrum.`\
-https://nytimes.com/live/2024/11/19/opinion/thepoint/government-trust-cynicism
 

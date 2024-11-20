@@ -1,3 +1,11 @@
+**Bill Moyes, Australian ‘Birdman’ Who Popularized Hang Gliding, Dies at 92**\
+`A modern-day Icarus, he set a world record for the longest unassisted flight, was arrested after soaring into the Grand Canyon and nearly killed himself several times.`\
+https://nytimes.com/2024/11/20/sports/bill-moyes-dead.html
+
+**The Berlin Philharmonic Is the Best in the Business**\
+`In three concerts at Carnegie Hall led by Kirill Petrenko, this orchestra played with awe-inspiring force and finesse.`\
+https://nytimes.com/2024/11/20/arts/music/berlin-philharmonic-carnegie-hall.html
+
 **How to Win Latino Voters**\
 `A conversation with a Democrat who did.`\
 https://nytimes.com/2024/11/20/us/politics/latino-voters-gallego.html
