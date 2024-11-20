@@ -1,3 +1,11 @@
+**Reading Books in College: A Lost Art?**\
+`Readers respond to a guest essay about ... reading (in college). Also: What Ukraine needs; “profiles in cowardice”; who we are as Americans.`\
+https://nytimes.com/2024/11/20/opinion/reading-books-college.html
+
+**Ray Lewis wants FAU coaching job, but Charlie Weis Jr. the frontrunner**\
+`The Owls' new coaching search, though, might be the most interesting one of this year’s coaching carousel.`\
+https://nytimes.com/athletic/5935391/2024/11/20/fau-football-coach-search-charlie-weis-jr-ray-lewis/
+
 **2025 NFL Draft consensus Big Board: Ashton Jeanty joins Travis Hunter in top 5**\
 `Last week, The Athletic's Dane Brugler released his updated top 50. How does the consensus board compare?`\
 https://nytimes.com/athletic/5935073/2024/11/20/nfl-draft-2025-consensus-rankings-travis-hunter/

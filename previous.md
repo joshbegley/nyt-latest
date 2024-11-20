@@ -1,3 +1,11 @@
+**Reading Books in College: A Lost Art?**\
+`Readers respond to a guest essay about ... reading (in college). Also: What Ukraine needs; “profiles in cowardice”; who we are as Americans.`\
+https://nytimes.com/2024/11/20/opinion/reading-books-college.html
+
+**Ray Lewis wants FAU coaching job, but Charlie Weis Jr. the frontrunner**\
+`The Owls' new coaching search, though, might be the most interesting one of this year’s coaching carousel.`\
+https://nytimes.com/athletic/5935391/2024/11/20/fau-football-coach-search-charlie-weis-jr-ray-lewis/
+
 **2025 NFL Draft consensus Big Board: Ashton Jeanty joins Travis Hunter in top 5**\
 `Last week, The Athletic's Dane Brugler released his updated top 50. How does the consensus board compare?`\
 https://nytimes.com/athletic/5935073/2024/11/20/nfl-draft-2025-consensus-rankings-travis-hunter/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5934267/2024/11/20/lionel-messi-inter-miami-tata-ma
 **Which Candidate Did They Vote For? Read Their Shirts.**\
 `In the aftermath of the presidential election, voters are reaching for merchandise and political symbols either to celebrate the results or to make clear their opposition.`\
 https://nytimes.com/2024/11/20/style/blue-bracelets-maga-hats-trump-harris.html
-
-**Jessica Tisch, Sanitation Chief, Is Appointed N.Y.P.D. Commissioner**\
-`Ms. Tisch, a member of a prominent New York family who has held several positions in city government, will take over the nation’s largest police department.`\
-https://nytimes.com/2024/11/20/nyregion/jessica-tisch-nypd-commissioner.html
-
-**Barcelona's Camp Nou return delayed until February at the earliest**\
-`Barcelona will continue to play their home games at the Estadi Olimpic Lluis Companys until at least February, the club have confirmed.`\
-https://nytimes.com/athletic/5935348/2024/11/20/barcelona-camp-nou-delay/
 
