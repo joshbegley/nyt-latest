@@ -1,3 +1,7 @@
+**They’re Open to Interpretation**\
+`Robert S. Gard brings us a little sunshine.`\
+https://nytimes.com/2024/11/19/crosswords/daily-puzzle-2024-11-20.html
+
 **Key to Trump’s Win: Heavy Losses for Harris Across the Map**\
 `Trump found new voters across counties and demographics to win the election. But Harris’s failure to match Biden’s 2020 performance was just as consequential.`\
 https://nytimes.com/interactive/2024/11/19/us/politics/voter-turnout-election-trump-harris.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/19/us/politics/linda-mcmahon-education-secretary-tru
 **Sparks hire Lynne Roberts as coach**\
 `Roberts joins the Sparks after nearly 20 years as a Division I coach and recently guided Utah to three consecutive NCAA Tournament trips.`\
 https://nytimes.com/athletic/5933916/2024/11/19/lynne-roberts-hired-sparks/
-
-**Indiana, Tennessee are on course for a CFP committee showdown, so let's get a head start**\
-`First, let's see if we can agree on this: What anyone thinks "would" happen means nothing right now.`\
-https://nytimes.com/athletic/5933797/2024/11/19/college-football-playoff-tennessee-indiana/
 
