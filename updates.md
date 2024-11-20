@@ -1,3 +1,7 @@
+**What Are Anti-Personnel Mines?**\
+`The Biden administration has agreed to send the weapons to Ukraine, despite their reputation for killing and maiming civilians.`\
+https://nytimes.com/2024/11/20/world/europe/anti-personnel-land-mines-ukraine.html
+
 **Michigan flips in-state 4-star defensive back Elijah Dotson from Pitt**\
 `Dotson gives Michigan 19 commitments in a 2025 recruiting class that sits at No. 12 in the 247Sports Composite.`\
 https://nytimes.com/athletic/5935698/2024/11/20/michigan-recruiting-elijah-dotson/

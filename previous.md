@@ -1,3 +1,7 @@
+**What Are Anti-Personnel Mines?**\
+`The Biden administration has agreed to send the weapons to Ukraine, despite their reputation for killing and maiming civilians.`\
+https://nytimes.com/2024/11/20/world/europe/anti-personnel-land-mines-ukraine.html
+
 **Michigan flips in-state 4-star defensive back Elijah Dotson from Pitt**\
 `Dotson gives Michigan 19 commitments in a 2025 recruiting class that sits at No. 12 in the 247Sports Composite.`\
 https://nytimes.com/athletic/5935698/2024/11/20/michigan-recruiting-elijah-dotson/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/11/19/opinion/thepoint/republicans-transgender-bat
 **What’s in Our Queue? Abigail Rose and More**\
 `By Karen Weise`\
 https://nytimes.com/card/2024/11/20/arts/editors-recommendations-abigailrose
-
-**Bacteria Found in Tom’s of Maine Toothpaste, Inspectors Say**\
-`The U.S. Food and Drug Administration issued a warning letter, but not a recall, after microorganisms were found in water samples and finished toothpaste products.`\
-https://nytimes.com/2024/11/20/health/toms-of-maine-toothpaste-mold-bacteria.html
 
