@@ -1,3 +1,11 @@
+**Weed for PTSD? Eager for Better Cannabis Science, F.D.A. Clears Study.**\
+`The decision is the latest sign that federal health officials want more research on medical marijuana as its use grows.`\
+https://nytimes.com/2024/11/20/us/marijuana-ptsd-cannabis-science-fda-study.html
+
+**Australia, Colombia, Japan joining USWNT for 2025 SheBelieves Cup**\
+`Next year's edition of the tournament will see it return to a six-game, three-matchday format.`\
+https://nytimes.com/athletic/5935315/2024/11/20/shebelieves-cup-2025-teams-schedule-tickets/
+
 **How Lionel Messi and Inter Miami will be impacted by Tata Martino's exit**\
 `Tata Martino will leave Inter Miami after their playoff failure — this is what it means`\
 https://nytimes.com/athletic/5934267/2024/11/20/lionel-messi-inter-miami-tata-martino-exit/

@@ -1,3 +1,11 @@
+**Weed for PTSD? Eager for Better Cannabis Science, F.D.A. Clears Study.**\
+`The decision is the latest sign that federal health officials want more research on medical marijuana as its use grows.`\
+https://nytimes.com/2024/11/20/us/marijuana-ptsd-cannabis-science-fda-study.html
+
+**Australia, Colombia, Japan joining USWNT for 2025 SheBelieves Cup**\
+`Next year's edition of the tournament will see it return to a six-game, three-matchday format.`\
+https://nytimes.com/athletic/5935315/2024/11/20/shebelieves-cup-2025-teams-schedule-tickets/
+
 **How Lionel Messi and Inter Miami will be impacted by Tata Martino's exit**\
 `Tata Martino will leave Inter Miami after their playoff failure — this is what it means`\
 https://nytimes.com/athletic/5934267/2024/11/20/lionel-messi-inter-miami-tata-martino-exit/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/20/world/europe/iran-nuclear-iaea-censure.html
 **Trump’s Cabinet Wants to Contain China. What About Trump Himself?**\
 `President-elect Donald J. Trump is assembling a team of aides bent on confrontation with China. But he also has advisers who do business there, including Elon Musk.`\
 https://nytimes.com/2024/11/20/us/politics/trump-cabinet-china-policy.html
-
-**Villa to support City in voting against Premier League APT rule changes**\
-`Aston Villa co-owner Nassef Sawiris says his club will join Manchester City in voting against the Premier League&#8217;s amended associated party transaction (APT) rules.`\
-https://nytimes.com/athletic/5935343/2024/11/20/aston-villa-man-city-apt-rules-premier-league/
-
-**Rafael Nadal deserves more than a legacy of clay and grit**\
-`Nadal's fight and endurance are not in doubt, but a one-dimensional view of his tennis legacy serves nobody`\
-https://nytimes.com/athletic/5934648/2024/11/20/rafael-nadal-retires-tennis-career-legacy/
 
