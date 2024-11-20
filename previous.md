@@ -1,3 +1,11 @@
+**Blue Jays offseason has been quiet, but there's still time to make an impact**\
+`The Blue Jays haven't made much news so far this offseason. That will have to change soon if they are going to meet their stated goals.`\
+https://nytimes.com/athletic/5935794/2024/11/20/blue-jays-offseason-update/
+
+**Archegos Founder Bill Hwang Is Sentenced to 18 Years**\
+`Mr. Hwang was convicted in July for his role in the collapse of his investment firm that caused roughly $10 billion in losses for several Wall Street banks.`\
+https://nytimes.com/2024/11/20/business/bill-hwang-archegos-sentence.html
+
 **Future of 'The Michael Kay Show' in limbo: Sources**\
 `If Kay were to move to mid-days, then the leading candidates for the afternoon spot are Don La Greca and Alan Hahn, according to sources.`\
 https://nytimes.com/athletic/5935789/2024/11/20/michael-kay-show-espn-new-york-radio/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5935780/2024/11/20/yankees-juan-soto-hal-steinbrenn
 **West Coast Rattled by Hurricane-Strength Winds and Blizzard Warnings**\
 `The first “atmospheric river” storm of the season battered Northern California and the Pacific Northwest, disrupting travel and leaving many without power.`\
 https://nytimes.com/2024/11/20/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
-
-**Johnson Supports Republican Effort to Target McBride With Capitol Bathroom Bill**\
-`The G.O.P. speaker sided with hard-right members of his conference who called for blocking Representative-elect Sarah McBride, the first transgender member of Congress, from using Capitol women’s rooms.`\
-https://nytimes.com/2024/11/20/us/politics/mike-johnson-transgender-women-ban-capitol-bathrooms.html
-
-**Juan Mata joins ownership group of San Diego FC**\
-`Mata, 36, was a World Cup winner with Spain and plays for Australian side Western Sydney Wanderers.`\
-https://nytimes.com/athletic/5934862/2024/11/20/juan-mata-san-diego-fc-owner/
 

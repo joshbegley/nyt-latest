@@ -1,3 +1,11 @@
+**Blue Jays offseason has been quiet, but there's still time to make an impact**\
+`The Blue Jays haven't made much news so far this offseason. That will have to change soon if they are going to meet their stated goals.`\
+https://nytimes.com/athletic/5935794/2024/11/20/blue-jays-offseason-update/
+
+**Archegos Founder Bill Hwang Is Sentenced to 18 Years**\
+`Mr. Hwang was convicted in July for his role in the collapse of his investment firm that caused roughly $10 billion in losses for several Wall Street banks.`\
+https://nytimes.com/2024/11/20/business/bill-hwang-archegos-sentence.html
+
 **Future of 'The Michael Kay Show' in limbo: Sources**\
 `If Kay were to move to mid-days, then the leading candidates for the afternoon spot are Don La Greca and Alan Hahn, according to sources.`\
 https://nytimes.com/athletic/5935789/2024/11/20/michael-kay-show-espn-new-york-radio/
