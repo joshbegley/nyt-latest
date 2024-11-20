@@ -1,3 +1,7 @@
+**Start-Up Founder Who Sold A.I. Chatbot to Schools Is Charged With Fraud**\
+`Joanna Smith-Griffin was charged with lying to investors about revenue and her customer base, which she claimed included some of the nation’s largest school districts, including New York City’s.`\
+https://nytimes.com/2024/11/20/nyregion/allhere-education-ai-schools.html
+
 **Bomb Cyclone Slams the Pacific Northwest**\
 `A deadly weather system left tens of thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, was expected to batter Oregon and Northern California.`\
 https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington-.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/us/politics/north-carolina-bill-governor-election
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have lost four games in a row and are preparing to host the 8-2 Vikings on Sunday. Send your questions here. `\
 https://nytimes.com/athletic/5935990/2024/11/20/bears-mailbag-questions-40/
-
-**Dr. Oz, Tapped to Run Medicare, Has a Record of Promoting Health Misinformation**\
-`The heart surgeon turned TV star has championed healthy lifestyle habits. But he’s also promoted sham diet pills and ineffective Covid-19 treatments.`\
-https://nytimes.com/2024/11/20/well/dr-oz-health-medicare-record.html
 
