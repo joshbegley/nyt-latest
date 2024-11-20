@@ -1,3 +1,7 @@
+**'I have to play better': Nuggets' Jamal Murray bounces back, then opens up on struggles**\
+`Murray hadn't looked like himself for months, including during the Olympics. But his aggressiveness on Tuesday night was a welcome sign.`\
+https://nytimes.com/athletic/5934460/2024/11/20/jamal-murray-denver-nuggets-interview/
+
 **James Conner and the punishing style and leadership that fuel the Cardinals**\
 `Kyler Murray is playing well. The defense continues to improve, but James Conner has always buzzed as Arizona's primary power source.`\
 https://nytimes.com/athletic/5933197/2024/11/20/james-conner-arizona-cardinals-leadership/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/business/china-france-hennessy-lvmh-strike.html
 **The Final Push for Ukraine?**\
 `We explore recent events in the war — and what could come next.`\
 https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump.html
-
-**Pelicans coach Willie Green faces crossroads as injured stars near their return**\
-`Green can't be blamed for the team's poor start among a rash of injuries. But when New Orleans is healthier, there's no time to waste.`\
-https://nytimes.com/athletic/5931610/2024/11/20/pelicans-willie-green-injuries/
 
