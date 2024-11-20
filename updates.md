@@ -1,3 +1,11 @@
+**Ohio State starting center Seth McLaughlin sidelined with Achilles injury**\
+`McLaughlin has been a key cog on Ohio State's offensive line in his first season with the Buckeyes after transferring from Alabama. `\
+https://nytimes.com/athletic/5934264/2024/11/19/seth-mclaughlin-ohio-state-center-achilles/
+
+**‘Swept Away’ Review: Lost at Sea, How Far Would You Sink?**\
+`A dark musical about a shipwreck and its aftermath, with songs by the Avett Brothers, anchors on Broadway.`\
+https://nytimes.com/2024/11/19/arts/swept-away-review-avett-brothers.html
+
 **Lionel Messi matches Landon Donovan's international assist record**\
 `Messi’s assist in the 55th minute during Argentina’s 1-0 win over Peru marked his 58th assist on the international stage.`\
 https://nytimes.com/athletic/5934236/2024/11/19/lionel-messi-argentina-assist-international-record/

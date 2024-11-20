@@ -1,3 +1,11 @@
+**Ohio State starting center Seth McLaughlin sidelined with Achilles injury**\
+`McLaughlin has been a key cog on Ohio State's offensive line in his first season with the Buckeyes after transferring from Alabama. `\
+https://nytimes.com/athletic/5934264/2024/11/19/seth-mclaughlin-ohio-state-center-achilles/
+
+**‘Swept Away’ Review: Lost at Sea, How Far Would You Sink?**\
+`A dark musical about a shipwreck and its aftermath, with songs by the Avett Brothers, anchors on Broadway.`\
+https://nytimes.com/2024/11/19/arts/swept-away-review-avett-brothers.html
+
 **Lionel Messi matches Landon Donovan's international assist record**\
 `Messi’s assist in the 55th minute during Argentina’s 1-0 win over Peru marked his 58th assist on the international stage.`\
 https://nytimes.com/athletic/5934236/2024/11/19/lionel-messi-argentina-assist-international-record/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5933909/2024/11/19/cavaliers-celtics-score-result-t
 **Corrections: Nov. 20, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 20, 2024.`\
 https://nytimes.com/2024/11/19/pageoneplus/corrections-nov-20-2024.html
-
-**Jets owner Johnson suggested benching Aaron Rodgers in September: Sources**\
-`The idea of benching the future Hall of Famer sounded so absurd that one coach asked whether the owner was serious.`\
-https://nytimes.com/athletic/5933645/2024/11/19/aaron-rodgers-woody-johnson-benching-jets/
-
-**Why Joe Douglas never stood a chance as Jets GM**\
-`As owner Woody Johnson took on a bigger role running the Jets, the writing was on the wall.`\
-https://nytimes.com/athletic/5933929/2024/11/19/joe-douglas-new-york-jets-gm-fired/
 
