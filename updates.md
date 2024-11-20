@@ -1,3 +1,7 @@
+**How short-handed Canucks showed, in defeat, why they can stay afloat: 3 takeaways**\
+`Vancouver may have lost, but it demonstrated it has enough in the tank to get by without J.T. Miller, Brock Boeser and Thatcher Demko.`\
+https://nytimes.com/athletic/5934314/2024/11/20/canucks-rangers-takeaways/
+
 **Blackhawks express desperation but don't show it in another narrow defeat**\
 `Connor Bedard was back to his playmaking self with two assists, but Chicago struggled once again in the third period.`\
 https://nytimes.com/athletic/5934227/2024/11/20/blackhawks-bedard-richardson-ducks/
