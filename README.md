@@ -1,3 +1,11 @@
+**Vance Is Courting Senators With Two of Trump’s Most Controversial Cabinet Picks**\
+`Vice President-elect JD Vance was on Capitol Hill with Matt Gaetz, picked for attorney general, and Pete Hegseth, the Fox News host who is up for secretary of defense.`\
+https://nytimes.com/2024/11/20/us/politics/jd-vance-senators-gaetz-hegseth.html
+
+**It's not just Sid: Remembering 5 legends whose careers ended with playoff droughts**\
+`We’ve possibly seen the last of Crosby in NHL games that actually matter. Let's remember some other stars whose careers ended similarly.`\
+https://nytimes.com/athletic/5932811/2024/11/20/nhl-sidney-crosby-playoff-drought/
+
 **Misdemeanour charges against Marinakis are 'blackmail', say Olympiacos**\
 `Olympiacos have labelled charges against owner Evangelos Marinakis and other club executives as &#8220;blackmail&#8221; and &#8220;fuelled by political interests&#8221;.`\
 https://nytimes.com/athletic/5934743/2024/11/20/olympiacos-evangelos-marinakis-blackmail/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5935087/2024/11/20/arsenal-bayern-meadow-park-slege
 **The Clippers conundrum: Can LA remain competitive while also developing talent?**\
 `The Clippers have a winning record. But should they be prioritizing young players like Jordan Miller and Kobe Brown?`\
 https://nytimes.com/athletic/5934454/2024/11/20/clippers-jordan-miller-development-nba/
-
-**Behind the Scenes at a Secretive Gathering of Rising MAGA Donors**\
-`The Winklevoss twins, Rebekah Mercer, allies of Elon Musk, Donald Trump Jr. and top Trump campaign aides recently joined a conclave of right-wing donors who are suddenly flush with power.`\
-https://nytimes.com/2024/11/20/us/politics/rockbridge-trump-vance-wiles.html
-
-**Ex-England, Chelsea coach Holland set to take over at Yokohama F. Marinos**\
-`Former England and Chelsea assistant Steve Holland is set to be appointed head coach of Japanese top-flight side Yokohama F.`\
-https://nytimes.com/athletic/5934530/2024/11/20/steve-holland-yokohama-f-marinos/
 
