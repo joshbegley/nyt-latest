@@ -1,3 +1,11 @@
+**Reddit Says It Is Working to Resolve Outage**\
+`Tens of thousands of users reported that the website and app were inaccessible starting just before 3 p.m. Eastern on Wednesday.`\
+https://nytimes.com/2024/11/20/technology/reddit-down-outage.html
+
+**North Carolina Republicans Push to Seize Power From Top Democrats**\
+`The state’s Republican-controlled legislature passed a sweeping bill that would erode the power of the Democratic governor and attorney general and hand the G.O.P. more control over elections.`\
+https://nytimes.com/2024/11/20/us/politics/north-carolina-bill-governor-elections.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have lost four games in a row and are preparing to host the 8-2 Vikings on Sunday. Send your questions here. `\
 https://nytimes.com/athletic/5935990/2024/11/20/bears-mailbag-questions-40/
