@@ -1,3 +1,7 @@
+**Indiana, Tennessee are on course for a CFP committee showdown, so let's get a head start**\
+`First, let's see if we can agree on this: What anyone thinks "would" happen means nothing right now.`\
+https://nytimes.com/athletic/5933797/2024/11/19/college-football-playoff-tennessee-indiana/
+
 **Indiana, Tennessee are on course for a CFP committee showdown, so let’s get a head start**\
 `First, let’s see if we can agree this: What anyone thinks “would” happen means nothing right now.`\
 https://nytimes.com/athletic/5933797/2024/11/19/college-football-playoff-tennessee-indiana/
