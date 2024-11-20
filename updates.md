@@ -1,3 +1,7 @@
+**Indiana, Tennessee are on course for a CFP committee showdown, so let’s get a head start**\
+`First, let’s see if we can agree this: What anyone thinks “would” happen means nothing right now.`\
+https://nytimes.com/athletic/5933797/2024/11/19/college-football-playoff-tennessee-indiana/
+
 **DNA on Discarded Cigarette Helps Lead to Arrest in a 1981 Homicide**\
 `A detective in Indiana helped crack a cold case more than 40 years after his father started working on the original investigation.`\
 https://nytimes.com/2024/11/19/us/cigarette-dna-murder-case-indiana.html
