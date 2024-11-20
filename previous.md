@@ -1,3 +1,23 @@
+**Pulisic and the Trump dance - and why true leaders consider the impact of their actions**\
+`The furore over his Trump-inspired goal celebration may teach U.S. Soccer's leading light that leadership leaves little room for gray areas`\
+https://nytimes.com/athletic/5934687/2024/11/20/christian-pulisic-donald-trump-dance-usmnt/
+
+**Why the Blues broke longstanding tradition for their 2025 Winter Classic jersey**\
+`The design on the front of the jersey breaks a tradition that has been an integral part of the franchise's 57-year history.`\
+https://nytimes.com/athletic/5930176/2024/11/20/blues-2025-winter-classic-jersey/
+
+**How did the Raiders roster get so bad? A series of unfortunate events**\
+`Light on talent and short on depth, the cupboard is pretty bare for first-year GM Tom Telesco and rookie head coach Antonio Pierce.`\
+https://nytimes.com/athletic/5933671/2024/11/20/las-vegas-raiders-roster-bad-talent-depth/
+
+**Blackhawks, Blues Winter Classic jerseys unveiled, pay tribute to Chicago, St. Louis history**\
+`Both jerseys, which are now on sale, go for the usual vintage look while incorporating some newer, city-specific elements.`\
+https://nytimes.com/athletic/5934292/2024/11/20/blackhawks-blues-winter-classic-jerseys/
+
+**Penguins Today: A different mood, plus an NHL coaching shakeup**\
+`Things were already bad for the Penguins. Now they're just different bad.`\
+https://nytimes.com/athletic/5934961/2024/11/20/penguins-today-mike-sullivan/
+
 **Romania sanctioned over 'racist behaviour' of fans during Kosovo game**\
 `Romania have been ordered to play their next home match behind closed doors due to the “racist and/or discriminatory behaviour of its supporters” during their Nations League match against Kosovo.`\
 https://nytimes.com/athletic/5935005/2024/11/20/romania-kosovo-racism-uefa/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5934756/2024/11/20/hilario-chelsea-england-goalkeep
 **Hezbollah’s Rockets Remain a Threat Despite Israel’s Crushing Offensive**\
 `Israel’s failure to tamp down the short-range rocket threat has put pressure on its government to embrace a cease-fire.`\
 https://nytimes.com/2024/11/20/us/politics/israel-hezbollah-rockets.html
-
-**The Frugal Traveler Remembers Arthur Frommer, the Guy Who Inspired Travelers to ‘Just Do It’**\
-`The creator of the popular guidebook series, who recently died, not only democratized travel, but supported sustainable travel, before it got that name.`\
-https://nytimes.com/2024/11/20/travel/remembering-arthur-frommer.html
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/11/20/nhl-standings-playoffs-projections-odds/
-
-**How to watch Knicks vs. Suns: Devin Booker, Jalen Brunson duel in Phoenix**\
-`How to watch the Knicks' trip to Phoenix to take on the Suns, who are sliding without Kevin Durant.`\
-https://nytimes.com/athletic/5932777/2024/11/20/knicks-suns-how-to-watch-odds/
-
-**How to watch Illinois vs. Alabama: Top-25 college basketball showdown in Birmingham**\
-`Two ranked teams go at it Tuesday night, in a game honoring longtime college coach C.M. Newton.`\
-https://nytimes.com/athletic/5933063/2024/11/20/illinois-alabama-how-to-watch-college-basketball-odds/
-
-**Biden Administration Approves Ukraine’s Use of Anti-Personnel Mines**\
-`The decision is the latest in a series of moves by the U.S. and Russia that have escalated tensions between the two.`\
-https://nytimes.com/2024/11/20/world/us-ukraine-anti-personnel-mines.html
 
