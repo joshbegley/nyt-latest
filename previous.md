@@ -1,3 +1,11 @@
+**Yankees' Steinbrenner battles Mets' Cohen for Soto: 'I know what's expected of me'**\
+`The Yankees owner discussed the Soto sweepstakes and a number of other offseason topics during a break at the MLB owners' meetings. `\
+https://nytimes.com/athletic/5935780/2024/11/20/yankees-juan-soto-hal-steinbrenner-mets-free-agency/
+
+**West Coast Rattled by Hurricane-Strength Winds and Blizzard Warnings**\
+`The first “atmospheric river” storm of the season battered Northern California and the Pacific Northwest, disrupting travel and leaving many without power.`\
+https://nytimes.com/2024/11/20/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
+
 **Johnson Supports Republican Effort to Target McBride With Capitol Bathroom Bill**\
 `The G.O.P. speaker sided with hard-right members of his conference who called for blocking Representative-elect Sarah McBride, the first transgender member of Congress, from using Capitol women’s rooms.`\
 https://nytimes.com/2024/11/20/us/politics/mike-johnson-transgender-women-ban-capitol-bathrooms.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/20/t-magazine/gift-guide-holiday-shopping.html
 **Bruins' Don Sweeney on Jim Montgomery firing: 'Had to change course'**\
 `The Bruins GM said the team's failures this season are "confounding to me in looking at every little area of our group" — not just coaching.`\
 https://nytimes.com/athletic/5935705/2024/11/20/don-sweeney-jim-montgomery-firing/
-
-**Mike Evans returns to practice, will play vs. Giants after hamstring injury**\
-`After three weeks of a thin receiving roster and a bye, Baker Mayfield gets one of his favorite weapons back in time for a playoff push. `\
-https://nytimes.com/athletic/5935608/2024/11/20/mike-evans-practice-return-giants-hamstring/
-
-**FC Dallas appoints Eric Quill as head coach**\
-`The 46-year-old will take over for interim coach Peter Luccin, who was appointed in June after the team fired Nico Estevez.`\
-https://nytimes.com/athletic/5935700/2024/11/20/eric-quill-fc-dallas-coach-mls/
 

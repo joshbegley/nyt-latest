@@ -1,3 +1,11 @@
+**Yankees' Steinbrenner battles Mets' Cohen for Soto: 'I know what's expected of me'**\
+`The Yankees owner discussed the Soto sweepstakes and a number of other offseason topics during a break at the MLB owners' meetings. `\
+https://nytimes.com/athletic/5935780/2024/11/20/yankees-juan-soto-hal-steinbrenner-mets-free-agency/
+
+**West Coast Rattled by Hurricane-Strength Winds and Blizzard Warnings**\
+`The first “atmospheric river” storm of the season battered Northern California and the Pacific Northwest, disrupting travel and leaving many without power.`\
+https://nytimes.com/2024/11/20/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
+
 **Johnson Supports Republican Effort to Target McBride With Capitol Bathroom Bill**\
 `The G.O.P. speaker sided with hard-right members of his conference who called for blocking Representative-elect Sarah McBride, the first transgender member of Congress, from using Capitol women’s rooms.`\
 https://nytimes.com/2024/11/20/us/politics/mike-johnson-transgender-women-ban-capitol-bathrooms.html
