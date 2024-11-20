@@ -1,3 +1,7 @@
+**The Bathrooms of the Capitol Are Now Unsafe Spaces**\
+`Republicans are exploiting juvenile gossip and unfounded fears of sexual violence.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/republicans-transgender-bathroom-mace
+
 **What’s in Our Queue? Abigail Rose and More**\
 `By Karen Weise`\
 https://nytimes.com/card/2024/11/20/arts/editors-recommendations-abigailrose
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/us/politics/trump-cabinet-matt-gaetz-sexual-misco
 **Cavs' ownership group launches bid for WNBA team in Cleveland**\
 `If Cleveland’s bid is successful, its new women’s team would play at Rocket Mortgage Fieldhouse.`\
 https://nytimes.com/athletic/5935575/2024/11/20/cleveland-wnba-expansion-team/
-
-**Migrant Found Guilty of Killing Laken Riley**\
-`Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Laken Riley, a nursing student.`\
-https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
 
