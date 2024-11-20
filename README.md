@@ -1,3 +1,7 @@
+**What the CFP committee should do with the SEC logjam**\
+`Should the College Football Playoff rankings be about the eye test, the team's record or what?`\
+https://nytimes.com/athletic/5933952/2024/11/19/college-football-playoff-committee-sec/
+
 **Trump Chooses Longtime Ally Linda McMahon to Run Education Dept.**\
 `A friend and financial backer of Donald J. Trump’s, Ms. McMahon, who led the Small Business Administration during his first term, remained close to him during the campaign.`\
 https://nytimes.com/2024/11/19/us/politics/linda-mcmahon-education-secretary-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933829/2024/11/19/sf-giants-bobby-evans-jeff-berry
 **Magritte, Master of Surrealism, Joins the $100 Million Dollar Club**\
 `Move over, Picasso, Van Gogh and Warhol. With an inscrutable painting, the Belgian painter breaks the nine-figure threshold at the fall auctions.`\
 https://nytimes.com/2024/11/19/arts/design/magritte-surrealism-christies-auction.html
-
-**Where will Jim Montgomery end up? 4 possible destinations**\
-`It's just a matter of time until Montgomery secures his next coaching job. In fact, a team might go out of its way to make room for him.`\
-https://nytimes.com/athletic/5933752/2024/11/19/jim-montgomery-coaching-destinations/
 
