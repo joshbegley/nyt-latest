@@ -1,3 +1,7 @@
+**Cubs swing deal for Guardians reliever Eli Morgan: Sources**\
+`Over 42 innings in 2024, Morgan posted a 1.93 ERA (212 ERA+) as one of Cleveland's most trusted bullpen arms.`\
+https://nytimes.com/athletic/5935633/2024/11/20/eli-morgan-chicago-cubs-trade/
+
 **Tiny Love Stories: ‘Humor to Counter Despair’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/11/20/style/tiny-modern-love-stories-humor-to-counter-despair.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5935523/2024/11/20/eagles-bryce-huff-wrist-surgery/
 **Trump Picks Matthew Whitaker to Be His Ambassador to NATO**\
 `Mr. Whitaker briefly served as acting attorney general in Mr. Trump’s first term.`\
 https://nytimes.com/2024/11/20/us/politics/matthew-whitaker-nato-ambassador-trump.html
-
-**Is Martin Necas a Hart Trophy contender?**\
-`Here the pros and cons of Necas' potential MVP candidacy.`\
-https://nytimes.com/athletic/5935533/2024/11/20/martin-necas-hart-trophy-hurricanes/
 
