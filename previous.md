@@ -1,3 +1,11 @@
+**Jessica Tisch, Sanitation Chief, Is Appointed N.Y.P.D. Commissioner**\
+`Ms. Tisch, a member of a prominent New York family who has held several positions in city government, will take over the nation’s largest police department.`\
+https://nytimes.com/2024/11/20/nyregion/jessica-tisch-nypd-commissioner.html
+
+**Barcelona's Camp Nou return delayed until February at the earliest**\
+`Barcelona will continue to play their home games at the Estadi Olimpic Lluis Companys until at least February, the club have confirmed.`\
+https://nytimes.com/athletic/5935348/2024/11/20/barcelona-camp-nou-delay/
+
 **Less Pomp, Fewer Coffins. Francis Sets Out to Simplify Papal Funerals**\
 `Pope Francis’s down-to-earth style has become a trademark of his papacy. New rules for papal burials are another step to seal it into his legacy.`\
 https://nytimes.com/2024/11/20/world/europe/pope-vatican-funerals.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/20/us/texas-rio-grande-buoy-abbott.html
 **Bill Moyes, Australian ‘Birdman’ Who Popularized Hang Gliding, Dies at 92**\
 `A modern-day Icarus, he set a world record for the longest unassisted flight, was arrested after soaring into the Grand Canyon and nearly killed himself several times.`\
 https://nytimes.com/2024/11/20/sports/bill-moyes-dead.html
-
-**The Berlin Philharmonic Is the Best in the Business**\
-`In three concerts at Carnegie Hall led by Kirill Petrenko, this orchestra played with awe-inspiring force and finesse.`\
-https://nytimes.com/2024/11/20/arts/music/berlin-philharmonic-carnegie-hall.html
-
-**How to Win Latino Voters**\
-`A conversation with a Democrat who did.`\
-https://nytimes.com/2024/11/20/us/politics/latino-voters-gallego.html
 

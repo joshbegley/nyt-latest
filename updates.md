@@ -1,3 +1,11 @@
+**Jessica Tisch, Sanitation Chief, Is Appointed N.Y.P.D. Commissioner**\
+`Ms. Tisch, a member of a prominent New York family who has held several positions in city government, will take over the nation’s largest police department.`\
+https://nytimes.com/2024/11/20/nyregion/jessica-tisch-nypd-commissioner.html
+
+**Barcelona's Camp Nou return delayed until February at the earliest**\
+`Barcelona will continue to play their home games at the Estadi Olimpic Lluis Companys until at least February, the club have confirmed.`\
+https://nytimes.com/athletic/5935348/2024/11/20/barcelona-camp-nou-delay/
+
 **Less Pomp, Fewer Coffins. Francis Sets Out to Simplify Papal Funerals**\
 `Pope Francis’s down-to-earth style has become a trademark of his papacy. New rules for papal burials are another step to seal it into his legacy.`\
 https://nytimes.com/2024/11/20/world/europe/pope-vatican-funerals.html
