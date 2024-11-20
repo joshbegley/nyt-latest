@@ -1,3 +1,15 @@
+**Less Pomp, Fewer Coffins. Francis Sets Out to Simplify Papal Funerals**\
+`Pope Francis’s down-to-earth style has become a trademark of his papacy. New rules for papal burials are another step to seal it into his legacy.`\
+https://nytimes.com/2024/11/20/world/europe/pope-vatican-funerals.html
+
+**U.S. and Europeans Move to Censure Iran for Nuclear Secrecy**\
+`Before Donald J. Trump takes office, the West wants to call out Iran for failing to adhere to treaty obligations to be transparent about its nuclear past and present.`\
+https://nytimes.com/2024/11/20/world/europe/iran-nuclear-iaea-censure.html
+
+**Trump’s Cabinet Wants to Contain China. What About Trump Himself?**\
+`President-elect Donald J. Trump is assembling a team of aides bent on confrontation with China. But he also has advisers who do business there, including Elon Musk.`\
+https://nytimes.com/2024/11/20/us/politics/trump-cabinet-china-policy.html
+
 **Villa to support City in voting against Premier League APT rule changes**\
 `Aston Villa co-owner Nassef Sawiris says his club will join Manchester City in voting against the Premier League&#8217;s amended associated party transaction (APT) rules.`\
 https://nytimes.com/athletic/5935343/2024/11/20/aston-villa-man-city-apt-rules-premier-league/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/11/20/arts/music/berlin-philharmonic-carnegie-hall.html
 **How to Win Latino Voters**\
 `A conversation with a Democrat who did.`\
 https://nytimes.com/2024/11/20/us/politics/latino-voters-gallego.html
-
-**What to Know About Nvidia’s High-Stakes Earnings Report**\
-`Investors have high hopes for the chipmaker, the world’s most valuable company, which has enormous influence over the stock market.`\
-https://nytimes.com/2024/11/20/business/dealbook/nvidia-earnings-stock-market.html
-
-**Venezuelan Migrant Found Guilty of Killing Laken Riley in Georgia**\
-`The verdict followed a four-day bench trial in which prosecutors detailed a violent attack that became a flashpoint in the bitter national debate over immigration policy.`\
-https://nytimes.com/2024/11/20/us/venezuelan-migrant-guilty-killing-laken-riley-georgia.html
-
-**ICA Boston Names Its Next Director**\
-`Nora Burnett Abrams, the director of the Museum of Contemporary Art Denver, will take over from Jill Medvedow in the spring.`\
-https://nytimes.com/2024/11/20/arts/design/ica-boston.html
 
