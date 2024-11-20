@@ -1,3 +1,7 @@
+**Desi Lydic Digs Into the Sordid Claims Against Matt Gaetz**\
+`“Your future attorney general, everyone,” Desi Lydic said on “The Daily Show.” “It’s always the people you most expect.”`\
+https://nytimes.com/2024/11/20/arts/television/late-night-matt-gaetz.html
+
 **Mika Zibanejad's effective night, a Norris battle, more: 5 Rangers takeaways**\
 `The Rangers put together one of their most complete victories of the year, winning 4-3 against a solid Vancouver team.`\
 https://nytimes.com/athletic/5934462/2024/11/20/mika-zibanejad-rangers-canucks-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/world/asia/lahore-pakistan-smog.html
 **Nuno has banished Forest's two main problems: away form and set pieces**\
 `We are just 11 games into the campaign, but the numbers suggest Nuno is turning things around when it comes to Forest's most pressing issues`\
 https://nytimes.com/athletic/5931873/2024/11/20/nuno-nottingham-forest-milenkovic/
-
-**Unai Emery doubling down on his workload to reverse Aston Villa's drop in form**\
-`Even by his stands Emery, has been putting in extra hours. Villa's manager is desperate to end their run of four straight defeats`\
-https://nytimes.com/athletic/5929563/2024/11/20/aston-villa-unai-emery-international-break/
 
