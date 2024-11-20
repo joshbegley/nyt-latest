@@ -1,5 +1,5 @@
-**Blackhawks express desperation, don't show it in another narrow defeat**\
-`Connor Bedard looked back to his playmaking self with two assists, but the Blackhawks struggled once again in the third period.`\
+**Blackhawks express desperation, but don't show it in another narrow defeat**\
+`Connor Bedard was back to his playmaking self with two assists, but Chicago struggled once again in the third period.`\
 https://nytimes.com/athletic/5934227/2024/11/20/blackhawks-bedard-richardson-ducks/
 
 **Bad Air Chokes the Life Out of a Vibrant Pakistani City**\
