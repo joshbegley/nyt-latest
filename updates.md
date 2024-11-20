@@ -1,3 +1,7 @@
+**The Final Push for Ukraine?**\
+`We explore recent events in the war — and what could come next.`\
+https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump.html
+
 **Tottenham appeal Bentancur's seven-game ban for Son remark**\
 `Tottenham Hotspur have appealed against Rodrigo Bentancur’s seven-game ban for comments he made about team-mate Son Heung-min.`\
 https://nytimes.com/athletic/5934578/2024/11/20/rodrigo-bentancur-ban-appeal-tottenham/
