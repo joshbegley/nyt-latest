@@ -1,3 +1,7 @@
+**Nvidia Doubles Profit as A.I. Chip Sales Soar**\
+`The company, which dominates the market for chips used to build artificial intelligence, expects another big jump in the current quarter.`\
+https://nytimes.com/2024/11/20/technology/nvidia-earnings-chips-ai.html
+
 **Freddie Freeman's walk-off grand slam ball to go to auction in December**\
 `SCP Auctions expect the ball to sell for seven figures.`\
 https://nytimes.com/athletic/5935876/2024/11/20/freddie-freemans-walk-off-grand-slam-ball-to-go-to-auction-in-december/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/well/dr-oz-health-medicare-record.html
 **Thursday Briefing: U.S. Anti-Personnel Mines for Ukraine**\
 `Plus, Daniel Craig’s performance in “Queer.”`\
 https://nytimes.com/2024/11/20/briefing/ukraine-gaza-un-trump-china.html
-
-**U.S. Vetoes U.N. Resolution Calling for Gaza Cease-Fire**\
-`The United States said it vetoed the United Nations Security Council resolution calling for a cease-fire between Israel and Hamas, because it did not make the cease-fire contingent on the release of the hostages held in Gaza.`\
-https://nytimes.com/video/world/100000009836762/un-security-council-resolution-us-veto.html
 
