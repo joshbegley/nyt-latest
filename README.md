@@ -1,9 +1,13 @@
+**Iran Suggests Pausing Its High Levels of Uranium Enrichment to Avoid Censure, Monitor Says**\
+`Iran has raised the possibility it would stop expanding its stockpile of uranium enriched to a purity of 60 percent — very close to the level needed for a weapon, the U.N.’s nuclear watchdog says.`\
+https://nytimes.com/2024/11/19/world/middleeast/1iran-bomb-grade-nuclear-fuel.html
+
 **Giants notes: Advisory roles for Bobby Evans, Jeff Berry; two pitchers added to roster**\
 `The Giants added Carson Seymour and Carson Ragsdale to the roster ahead of the Rule 5 protection deadline. `\
 https://nytimes.com/athletic/5933829/2024/11/19/sf-giants-bobby-evans-jeff-berry-rule-5/
 
 **Magritte, Master of Surrealism, Joins the $100 Million Dollar Club**\
-`Move over, Picasso, Van Gogh and Warhol. With an inscrutable painting,the Belgian painter breaks the nine-figure threshold at the fall auctions.`\
+`Move over, Picasso, Van Gogh and Warhol. With an inscrutable painting, the Belgian painter breaks the nine-figure threshold at the fall auctions.`\
 https://nytimes.com/2024/11/19/arts/design/magritte-surrealism-christies-auction.html
 
 **Where will Jim Montgomery end up? 4 possible destinations**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933704/2024/11/19/college-football-playoff-ranking
 **Group Sues Justice Department for Gaetz Investigation Documents**\
 `The nonpartisan watchdog group American Oversight has been trying since last year to get the documents related to the sex-trafficking investigation into Matt Gaetz.`\
 https://nytimes.com/2024/11/19/us/politics/justice-dept-gaetz-investigation-lawsuit.html
-
-**Los Angeles City Council Passes ‘Sanctuary’ Ordinance in Response to Trump**\
-`The swift action, two weeks after Donald J. Trump’s presidential win, signaled a sense of urgency from city leaders.`\
-https://nytimes.com/2024/11/19/us/los-angeles-sanctuary-trump.html
 
