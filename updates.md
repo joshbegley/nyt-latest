@@ -1,3 +1,7 @@
+**Key to Trump’s Win: Heavy Losses for Harris Across the Map**\
+`Trump found new voters across counties and demographics to win the election. But Harris’s failure to match Biden’s 2020 performance was just as consequential.`\
+https://nytimes.com/interactive/2024/11/19/us/politics/voter-turnout-election-trump-harris.html
+
 **Celtics rain 3s to hand Cavaliers first loss of season**\
 `Jayson Tatum scored 33 points and the Celtics hit 22 3-pointers on 41 attempts to earn a 120-117 home victory over the Cavaliers.`\
 https://nytimes.com/athletic/5933909/2024/11/19/cavaliers-celtics-score-result-takeaways/
