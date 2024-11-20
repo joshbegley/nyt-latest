@@ -1,3 +1,7 @@
+**Thanksgiving Can Be Hectic. Feeding Guests All Week Doesn’t Have to Be.**\
+`With these three easy strategies and budget-friendly recipes, cooking meals other than the big feast can be stress-free.`\
+https://nytimes.com/2024/11/20/dining/feeding-crowd-before-thanksgiving.html
+
 **Yankees' Steinbrenner battles Mets' Cohen for Soto: 'I know what's expected of me'**\
 `The Yankees owner discussed the Soto sweepstakes and a number of other offseason topics during a break at the MLB owners' meetings. `\
 https://nytimes.com/athletic/5935780/2024/11/20/yankees-juan-soto-hal-steinbrenner-mets-free-agency/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5935698/2024/11/20/michigan-recruiting-elijah-dotso
 **What Do I Get the Person Who Needs Nothing?**\
 `For the holidays, T asked readers to write in about their hardest-to-shop-for loved ones. Here, our editors respond with their suggestions.`\
 https://nytimes.com/2024/11/20/t-magazine/gift-guide-holiday-shopping.html
-
-**Bruins' Don Sweeney on Jim Montgomery firing: 'Had to change course'**\
-`The Bruins GM said the team's failures this season are "confounding to me in looking at every little area of our group" — not just coaching.`\
-https://nytimes.com/athletic/5935705/2024/11/20/don-sweeney-jim-montgomery-firing/
 

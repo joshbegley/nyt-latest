@@ -1,3 +1,7 @@
+**Thanksgiving Can Be Hectic. Feeding Guests All Week Doesn’t Have to Be.**\
+`With these three easy strategies and budget-friendly recipes, cooking meals other than the big feast can be stress-free.`\
+https://nytimes.com/2024/11/20/dining/feeding-crowd-before-thanksgiving.html
+
 **Yankees' Steinbrenner battles Mets' Cohen for Soto: 'I know what's expected of me'**\
 `The Yankees owner discussed the Soto sweepstakes and a number of other offseason topics during a break at the MLB owners' meetings. `\
 https://nytimes.com/athletic/5935780/2024/11/20/yankees-juan-soto-hal-steinbrenner-mets-free-agency/
