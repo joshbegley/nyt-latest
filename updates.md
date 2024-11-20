@@ -1,3 +1,15 @@
+**Funeral Held for Liam Payne in England**\
+`The One Direction singer died at 31 last month after a fall from a balcony.`\
+https://nytimes.com/2024/11/20/arts/music/liam-payne-funeral.html
+
+**Twenty crucial Oilers questions after an uneven 20 games**\
+`To say the Oilers have underachieved 20 games into the season would be an understatement. How did they get here and what's next?`\
+https://nytimes.com/athletic/5933635/2024/11/20/edmonton-oilers-mcdavid-draisaitl-power-play-defence/
+
+**Target’s Stock Sinks on Weak Sales Ahead of Holiday Shopping Season**\
+`The retailer’s downbeat earnings report, which included lower profit and larger inventory, fell far short of Wall Street’s expectations.`\
+https://nytimes.com/2024/11/20/business/target-earnings-holiday-shopping.html
+
 **Target’s Stock Sinks on Weak Sales Ahead of Holiday Shopping Season**\
 `The retailer’s downbeat earnings report, which included lower profit and larger inventory, fell far short of Wall Street’s expectations.`\
 https://nytimes.com/2024/11/20/business/target-sales-holiday-earnings.html
