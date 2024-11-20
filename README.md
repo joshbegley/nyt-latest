@@ -1,3 +1,7 @@
+**Key to Trump’s Win: Heavy Losses for Harris Across the Map**\
+`Trump found new voters across counties and demographics to win the election. But Harris’s failure to match Biden’s 2020 performance was just as consequential.`\
+https://nytimes.com/interactive/2024/11/19/us/politics/voter-turnout-election-trump-harris.html
+
 **Celtics rain 3s to hand Cavaliers first loss of season**\
 `Jayson Tatum scored 33 points and the Celtics hit 22 3-pointers on 41 attempts to earn a 120-117 home victory over the Cavaliers.`\
 https://nytimes.com/athletic/5933909/2024/11/19/cavaliers-celtics-score-result-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933916/2024/11/19/lynne-roberts-hired-sparks/
 **Indiana, Tennessee are on course for a CFP committee showdown, so let's get a head start**\
 `First, let's see if we can agree on this: What anyone thinks "would" happen means nothing right now.`\
 https://nytimes.com/athletic/5933797/2024/11/19/college-football-playoff-tennessee-indiana/
-
-**DNA on Discarded Cigarette Helps Lead to Arrest in a 1981 Homicide**\
-`A detective in Indiana helped crack a cold case more than 40 years after his father started working on the original investigation.`\
-https://nytimes.com/2024/11/19/us/cigarette-dna-murder-case-indiana.html
 
