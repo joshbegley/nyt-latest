@@ -1,3 +1,7 @@
+**Julian Nagelsmann has created a Germany team its public like - and believe in**\
+`On and off pitch, Nagelsmann and his squad have re-engaged a disinterested public with their national team. 2024 has been quite the year`\
+https://nytimes.com/athletic/5933351/2024/11/20/julian-nagelsmann-germany-transformed-public/
+
 **How short-handed Canucks showed, in defeat, why they can stay afloat: 3 takeaways**\
 `Vancouver may have lost, but it demonstrated it has enough in the tank to get by without J.T. Miller, Brock Boeser and Thatcher Demko.`\
 https://nytimes.com/athletic/5934314/2024/11/20/canucks-rangers-takeaways/

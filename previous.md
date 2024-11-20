@@ -1,3 +1,7 @@
+**Julian Nagelsmann has created a Germany team its public like - and believe in**\
+`On and off pitch, Nagelsmann and his squad have re-engaged a disinterested public with their national team. 2024 has been quite the year`\
+https://nytimes.com/athletic/5933351/2024/11/20/julian-nagelsmann-germany-transformed-public/
+
 **How short-handed Canucks showed, in defeat, why they can stay afloat: 3 takeaways**\
 `Vancouver may have lost, but it demonstrated it has enough in the tank to get by without J.T. Miller, Brock Boeser and Thatcher Demko.`\
 https://nytimes.com/athletic/5934314/2024/11/20/canucks-rangers-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5934400/2024/11/20/wild-depth-scoring-rossi-brodin-
 **Explained: Arsenal's evolving hierarchy - and how Edu's exit might affect it**\
 `There has been stability at Arsenal in the five years since Mikel Arteta took charge but there have been changes to the setup above him`\
 https://nytimes.com/athletic/5916762/2024/11/20/arsenal-structure-arteta-garlick-edu/
-
-**West Ham's goalkeeper debate: Has Fabianski got an opportunity to steal Areola's spot?**\
-`Alphonse Areola has struggled with the demands of Julen Lopetegui's system — is this an opportunity for Lukasz Fabianski?`\
-https://nytimes.com/athletic/5931608/2024/11/20/west-ham-goalkeeper-fabianski-areola/
 
