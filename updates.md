@@ -1,3 +1,7 @@
+**Senators are at risk of having another November to forget: "It's frustrating"**\
+`The remaining schedule for November has the potential to doom the Senators again if they can't right their ship. `\
+https://nytimes.com/athletic/5934112/2024/11/19/senators-november-oilers-chabot-tkachuk/
+
 **After Years in a Hong Kong Jail, Jimmy Lai Has His Say in Court**\
 `The media tycoon, who is accused of masterminding pro-democracy protests, testified at his trial for the first time. He could be sent to prison for life.`\
 https://nytimes.com/2024/11/19/world/asia/jimmy-lai-hong-kong-trial.html
