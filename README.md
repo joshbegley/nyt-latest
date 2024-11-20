@@ -1,36 +1,36 @@
+**Nick Martinez's return solidifies Reds' rotation**\
+`Despite spending time in the bullpen, Martinez’s 142 1/3 innings were the second-most on the team.`\
+https://nytimes.com/athletic/5934007/2024/11/20/reds-nick-martinez-return-rotation-impact/
+
+**Portzline: Blue Jackets can't continue on current development path with David Jiricek**\
+`The situation with Jiricek has been percolating behind the scenes for a couple of seasons in Columbus and there are no easy answers now. `\
+https://nytimes.com/athletic/5933188/2024/11/20/blue-jackets-david-jiricek-future/
+
+**What's ailing the Packers in the red zone? It's more than just one thing**\
+`The Packers rank 27th in the NFL in red zone touchdown percentage, their worst such clip under Matt LaFleur.`\
+https://nytimes.com/athletic/5932587/2024/11/20/packers-red-zone-problems/
+
+**The Appeal of the Smaller Breast**\
+`Why are increasing numbers of younger women undergoing the cosmetic reduction surgery?`\
+https://nytimes.com/2024/11/20/podcasts/the-daily/the-appeal-of-the-smaller-breast.html
+
+**Maple Leafs need Fraser Minten now. What can they expect from him?**\
+`Injuries and a lack of bottom-six centre options have dictated that the Maple Leafs need their 2022 second-round pick right now.`\
+https://nytimes.com/athletic/5933699/2024/11/20/maple-leafs-fraser-minten-prospect/
+
+**Former W.W.E. Boss Tapped to Run Education, and Trans Rights on Capitol Hill**\
+`Plus, this musical wants France to love it back.`\
+https://nytimes.com/2024/11/20/podcasts/former-wwe-boss-tapped-to-run-education-and-trans-rights-on-capitol-hill.html
+
+**Bigger, bolder, smoother? Inside F1 Las Vegas' plans for a successful sequel**\
+`F1 returns for its second shot in Las Vegas balancing thrills, local impact and a heated late-season title fight.`\
+https://nytimes.com/athletic/5933143/2024/11/20/vegas-f1-grand-prix-preview/
+
+**The Connections Companion No. 529**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Nov. 21, 2024.`\
+https://nytimes.com/2024/11/20/crosswords/connections-companion-529.html
+
 **Stock watch: Bo Nix ripe for the fantasy football playoffs; Kareem Hunt's 'best by' date has passed**\
 `In his latest look at the fantasy football market, Dane Martinez says that it is time to move on from Kansas City running back Kareem Hunt.`\
 https://nytimes.com/athletic/5932290/2024/11/20/stock-watch-bo-nix-ripe-for-the-fantasy-football-playoffs-kareem-hunts-best-by-date-has-passed/
-
-**Vieira appointed Genoa head coach**\
-`Patrick Vieira has been appointed as Genoa head coach.`\
-https://nytimes.com/athletic/5931677/2024/11/20/patrick-vieira-genoa-manager/
-
-**Flying Above the Bombs, a Lebanese Airline Becomes an Unlikely National Hero**\
-`Middle East Airlines has managed to fly through regional and civil wars since the 1960s. And it is still in the skies today.`\
-https://nytimes.com/2024/11/20/world/middleeast/middle-east-airlines-lebanon.html
-
-**U.S. Envoy Set for 2nd Day of Talks on Cease-Fire in Lebanon**\
-`Amos Hochstein, a top Biden administration envoy to the Middle East, has seldom stayed overnight on trips to Beirut over the past year, so the extended visit may be a positive sign.`\
-https://nytimes.com/2024/11/20/world/middleeast/lebanon-cease-fire-amos-hochstein.html
-
-**Ravens say they aren't pondering a kicking change, but Justin Tucker is cause for concern**\
-`Tucker has missed six or more field goals for just the third time in his 13-year career in Baltimore. `\
-https://nytimes.com/athletic/5933377/2024/11/20/ravens-justin-tucker-kicker-concerns/
-
-**Browns' plan at LT uncertain entering Thursday night matchup with Steelers**\
-`Plus, could the inclement weather cause Cleveland to lean more on Nick Chubb vs. Pittsburgh's stingy run defense?`\
-https://nytimes.com/athletic/5933331/2024/11/20/browns-left-tackle-kevin-stefanski/
-
-**Bengals are 1-6 in one-score games. So who's on the hook for their inability to finish?**\
-`Whether it's missed kicks, defensive letdowns or late offensive failures, Cincinnati continues to come up short when it matters most.`\
-https://nytimes.com/athletic/5934042/2024/11/20/bengals-one-score-games-zac-taylor-evan-mcpherson/
-
-**'He wouldn’t crack': Willis Reed emerges at No. 45 in 'The Basketball 100'**\
-`Tenacity is what separated Reed from his contemporaries. It never mattered who stood in front of him. He gave every ounce he had.`\
-https://nytimes.com/athletic/5933502/2024/11/20/willis-reed-the-basketball-100-book-excerpt/
-
-**Cowboys' offensive roster questions for final 7 games: Trey Lance's value to be determined**\
-`Is Rico Dowdle part of Dallas' future? How does the O-line come together? Is the WR group what the Cowboys want it to be?`\
-https://nytimes.com/athletic/5933774/2024/11/20/cowboys-offense-future-questions-trey-lance/
 
