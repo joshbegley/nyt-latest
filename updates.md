@@ -1,3 +1,15 @@
+**Should the Giants trade Camilo Doval? The pros and cons**\
+`Doval has the kind of skill-set teams with pennant aspirations covet. Are the Giants one of those teams? Or should they look to deal him?`\
+https://nytimes.com/athletic/5932476/2024/11/20/sf-giants-camilo-doval-trade-possibilities/
+
+**Trump Transition Live Updates: House Committee to Meet Amid Demands for Gaetz Report**\
+``\
+https://nytimes.com/live/2024/11/20/us/trump-news-gaetz
+
+**Comcast to Spin Off Cable Networks, Including MSNBC and CNBC**\
+`The new publicly traded company is set to debut next year, with a bundle of channels that also includes Oxygen, E! and Syfy.`\
+https://nytimes.com/2024/11/20/business/comcast-msnbc-cnbc-spinoff.html
+
 **How Howard Lutnick Could Shake Up Global Trade**\
 `President-elect Donald Trump’s pick to run the Commerce Department would have a big say on American industrial policy and tariffs.`\
 https://nytimes.com/2024/11/20/business/dealbook/howard-lutnick-commerce-secretary-trump.html

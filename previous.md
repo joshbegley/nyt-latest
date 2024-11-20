@@ -1,3 +1,15 @@
+**Should the Giants trade Camilo Doval? The pros and cons**\
+`Doval has the kind of skill-set teams with pennant aspirations covet. Are the Giants one of those teams? Or should they look to deal him?`\
+https://nytimes.com/athletic/5932476/2024/11/20/sf-giants-camilo-doval-trade-possibilities/
+
+**Trump Transition Live Updates: House Committee to Meet Amid Demands for Gaetz Report**\
+``\
+https://nytimes.com/live/2024/11/20/us/trump-news-gaetz
+
+**Comcast to Spin Off Cable Networks, Including MSNBC and CNBC**\
+`The new publicly traded company is set to debut next year, with a bundle of channels that also includes Oxygen, E! and Syfy.`\
+https://nytimes.com/2024/11/20/business/comcast-msnbc-cnbc-spinoff.html
+
 **How Howard Lutnick Could Shake Up Global Trade**\
 `President-elect Donald Trump’s pick to run the Commerce Department would have a big say on American industrial policy and tariffs.`\
 https://nytimes.com/2024/11/20/business/dealbook/howard-lutnick-commerce-secretary-trump.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5927707/2024/11/20/business-of-football-reading-swa
 **Man City's latest documentary may tell us more about Guardiola than anything before**\
 `There are tears, tantrums and Guardiola on the edge in City's fifth documentary - it could well be the most riveting of them all `\
 https://nytimes.com/athletic/5932658/2024/11/20/man-citys-latest-documentary-may-tell-us-more-about-guardiola-than-anything-before/
-
-**Lowetide: Why have the Oilers been failing offensively?**\
-`Outscoring is the goal, and after 20 games, the Oilers have plenty of work to do in that area.`\
-https://nytimes.com/athletic/5932516/2024/11/20/edmonton-oilers-stats-scoring-2024/
-
-**Can the Raiders get the QB they need in the 2025 NFL Draft? If not, where should they turn?**\
-`If the Raiders can't get their quarterback of the future early in the draft, there are some intriguing options at other positions of need.`\
-https://nytimes.com/athletic/5933361/2024/11/20/raiders-quarterback-nfl-draft-2025/
-
-**Hennessy Workers Strike Over Plans to Bottle Cognac in China**\
-`The walkout in France is the latest development in a simmering trade war between Europe and China.`\
-https://nytimes.com/2024/11/20/business/china-france-hennessy-lvmh-strike.html
 
