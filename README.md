@@ -1,3 +1,7 @@
+**Vieira appointed Genoa head coach**\
+`Patrick Vieira has been appointed as Genoa head coach.`\
+https://nytimes.com/athletic/5931677/2024/11/20/patrick-vieira-genoa-manager/
+
 **Flying Above the Bombs, a Lebanese Airline Becomes an Unlikely National Hero**\
 `Middle East Airlines has managed to fly through regional and civil wars since the 1960s. And it is still in the skies today.`\
 https://nytimes.com/2024/11/20/world/middleeast/middle-east-airlines-lebanon.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933774/2024/11/20/cowboys-offense-future-questions
 **Panthers CB Jaycee Horn has been strapping in opposing receivers since South Carolina**\
 `Jaycee Horn and Israel Mukuamu came up with the seat belt gesture before a South Carolina game in 2020. Now, Horn sees it everywhere.`\
 https://nytimes.com/athletic/5928467/2024/11/20/panthers-jaycee-horn-cornerback-seat-belt-gesture/
-
-**Tarik Skubal is on the cusp of a Cy Young. His teammates know exactly how he got here**\
-`All season — and really, for the better part of six years in the Tigers system — Skubal has marveled fans and teammates alike.`\
-https://nytimes.com/athletic/5930498/2024/11/20/detroit-tigers-tarik-skubal-cy-young-ascension/
 
