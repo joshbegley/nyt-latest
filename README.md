@@ -1,3 +1,7 @@
+**The Final Push for Ukraine?**\
+`We explore recent events in the war — and what could come next.`\
+https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump.html
+
 **Pelicans coach Willie Green faces crossroads as injured stars near their return**\
 `Green can't be blamed for the team's poor start among a rash of injuries. But when New Orleans is healthier, there's no time to waste.`\
 https://nytimes.com/athletic/5931610/2024/11/20/pelicans-willie-green-injuries/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5932587/2024/11/20/packers-red-zone-problems/
 **The Appeal of the Smaller Breast**\
 `Why are increasing numbers of younger women undergoing the cosmetic reduction surgery?`\
 https://nytimes.com/2024/11/20/podcasts/the-daily/breast-reduction.html
-
-**Maple Leafs need Fraser Minten now. What can they expect from him?**\
-`Injuries and a lack of bottom-six centre options have dictated that the Maple Leafs need their 2022 second-round pick right now.`\
-https://nytimes.com/athletic/5933699/2024/11/20/maple-leafs-fraser-minten-prospect/
 
