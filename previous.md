@@ -1,36 +1,36 @@
-**Long Tied to Russia, Georgia’s Winemakers Tip a Glass to the West**\
-`Some vintners in the former Soviet republic are seeking to break a politically risky dependence on Russia and focus more on high-value European and American markets.`\
-https://nytimes.com/2024/11/20/world/europe/georgia-russia-wine-sanctions.html
+**How to Add Extra Security Layers to Your Phone or Tablet**\
+`New features in Apple’s iOS 18 and Google’s Android 15 can lock up apps with sensitive information and even hide them from view.`\
+https://nytimes.com/2024/11/20/technology/personaltech/security-iphone-android.html
 
-**Newcastle owners invest further £35m into club via share issue**\
-`Newcastle United&#8217;s owners have injected a further £35million ($44.`\
-https://nytimes.com/athletic/5934542/2024/11/20/newcastle-share-investment-owners/
+**How Two High-Profile New York Industries Might Fare Under Trump**\
+`The city’s art and fashion worlds are keeping an eye on President-elect Donald Trump’s economic agenda, especially tariffs and tax cuts.`\
+https://nytimes.com/2024/11/20/nyregion/how-two-high-profile-new-york-industries-might-fare-under-trump.html
 
-**Boston's Jaylen Brown, Jayson Tatum end Cleveland's win streak with leveled-up physicality**\
-`After allowing most of a 21-point lead to disappear, the Celtics saved the win when Brown and Tatum overcame the Cavs' defensive aggression.`\
-https://nytimes.com/athletic/5934501/2024/11/20/celtics-end-cavaliers-win-streak/
+**Democrats Can Become the Party of Insurgency Again**\
+`Are there ways to bring the left and the center together without sacrificing either?`\
+https://nytimes.com/2024/11/20/opinion/democrats-left-center-trump.html
 
-**The N.Y.C. Region Is Dry and on Fire. Here’s What You Can Do to Help**\
-`Mayor Eric Adams announced a drought warning on Monday. City officials are asking New Yorkers to save water and help prevent more wildfires.`\
-https://nytimes.com/2024/11/20/nyregion/nyc-drought-water-conservation-wildfires.html
+**Singing ‘Wicked’ Fans Are Anything but Popular**\
+`Some fans who have attended early screenings of the film adaptation of the hit Broadway musical have treated it as a singalong. Not everyone is thrilled.`\
+https://nytimes.com/2024/11/20/movies/wicked-movie-singalong-debate.html
 
-**Boxing Spectacle**\
-`YouTube-sensation-turned-boxer Jake Paul defeated 58-year-old former champ Mike Tyson before millions of Netflix viewers worldwide. Did you watch the much hyped event?`\
-https://nytimes.com/2024/11/20/learning/boxing-spectacle.html
+**Trump Promises Clean Water. Will He Clean Up ‘Forever Chemicals’?**\
+`Public health advocates worry that Donald Trump could unravel federal clean water efforts, including restrictions on lead pipes and chemicals known as PFAS.`\
+https://nytimes.com/2024/11/20/climate/trump-pfas-lead-clean-water.html
 
-**Alec Baldwin’s ‘Rust,’ Marked by Tragedy, Nears Premiere in Poland**\
-`The film, whose cinematographer, Halyna Hutchins, was killed in a shooting on the set, is being screened at a festival devoted to cinematography.`\
-https://nytimes.com/2024/11/20/movies/rust-premiere-alec-baldwin.html
+**Harris Loss Has Democrats Fighting Over How to Talk About Transgender Rights**\
+`Kamala Harris left Donald J. Trump’s anti-transgender attack ads largely unanswered. Some Democrats call it political malpractice.`\
+https://nytimes.com/2024/11/20/us/politics/presidential-campaign-transgender-rights.html
 
-**Is the Northeast Entering Its Wildfire Era?**\
-`The New York region is unlikely to ever have as many brush fires as out West. But residents need to be ready for more droughts.`\
-https://nytimes.com/2024/11/20/nyregion/new-york-wildfires-drought.html
+**I Never Panic. I’m Panicking Now.**\
+`With Trump’s return, we are all about to find out how vulnerable we really are.`\
+https://nytimes.com/2024/11/20/opinion/trump-deportation-immigration.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/20/crosswords/spelling-bee-forum.html
+**Is Your School’s Dress Code Biased?**\
+`Do students of certain genders, races, cultures or body types seem to be reprimanded more often than others?`\
+https://nytimes.com/2024/11/20/learning/is-your-schools-dress-code-biased.html
 
-**With undefeated start behind them, Cavs reminded the East still runs through Celtics**\
-`Boston ended Cleveland's undefeated start to the season, but the Cavs were ready to learn lessons to prepare them for the big goal.`\
-https://nytimes.com/athletic/5934467/2024/11/20/celtics-end-cavs-undefeated-start/
+**As Trump Pushes Peace, Russia Intensifies Assaults on Ukraine**\
+`Overextended and exhausted, Ukrainian forces lack manpower and artillery against Russian forces willing to absorb staggering casualties.`\
+https://nytimes.com/2024/11/20/world/europe/russia-ukraine-war-attacks-trump.html
 
