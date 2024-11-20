@@ -1,3 +1,15 @@
+**Moving Arsenal vs Bayern to Meadow Park 'a bump in the road', says Slegers**\
+`Arsenal interim head coach Renee Slegers has described the movement of their Champions League match with Bayern Munich from the Emirates Stadium to Meadow Park as a “bump in the road” in the club’s desire to push women’s football forward.`\
+https://nytimes.com/athletic/5935087/2024/11/20/arsenal-bayern-meadow-park-slegers/
+
+**The Clippers conundrum: Can LA remain competitive while also developing talent?**\
+`The Clippers have a winning record. But should they be prioritizing young players like Jordan Miller and Kobe Brown?`\
+https://nytimes.com/athletic/5934454/2024/11/20/clippers-jordan-miller-development-nba/
+
+**Behind the Scenes at a Secretive Gathering of Rising MAGA Donors**\
+`The Winklevoss twins, Rebekah Mercer, allies of Elon Musk, Donald Trump Jr. and top Trump campaign aides recently joined a conclave of right-wing donors who are suddenly flush with power.`\
+https://nytimes.com/2024/11/20/us/politics/rockbridge-trump-vance-wiles.html
+
 **Ex-England, Chelsea coach Holland set to take over at Yokohama F. Marinos**\
 `Former England and Chelsea assistant Steve Holland is set to be appointed head coach of Japanese top-flight side Yokohama F.`\
 https://nytimes.com/athletic/5934530/2024/11/20/steve-holland-yokohama-f-marinos/

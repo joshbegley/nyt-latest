@@ -1,3 +1,15 @@
+**Moving Arsenal vs Bayern to Meadow Park 'a bump in the road', says Slegers**\
+`Arsenal interim head coach Renee Slegers has described the movement of their Champions League match with Bayern Munich from the Emirates Stadium to Meadow Park as a “bump in the road” in the club’s desire to push women’s football forward.`\
+https://nytimes.com/athletic/5935087/2024/11/20/arsenal-bayern-meadow-park-slegers/
+
+**The Clippers conundrum: Can LA remain competitive while also developing talent?**\
+`The Clippers have a winning record. But should they be prioritizing young players like Jordan Miller and Kobe Brown?`\
+https://nytimes.com/athletic/5934454/2024/11/20/clippers-jordan-miller-development-nba/
+
+**Behind the Scenes at a Secretive Gathering of Rising MAGA Donors**\
+`The Winklevoss twins, Rebekah Mercer, allies of Elon Musk, Donald Trump Jr. and top Trump campaign aides recently joined a conclave of right-wing donors who are suddenly flush with power.`\
+https://nytimes.com/2024/11/20/us/politics/rockbridge-trump-vance-wiles.html
+
 **Ex-England, Chelsea coach Holland set to take over at Yokohama F. Marinos**\
 `Former England and Chelsea assistant Steve Holland is set to be appointed head coach of Japanese top-flight side Yokohama F.`\
 https://nytimes.com/athletic/5934530/2024/11/20/steve-holland-yokohama-f-marinos/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5930176/2024/11/20/blues-2025-winter-classic-jersey
 **How did the Raiders roster get so bad? A series of unfortunate events**\
 `Light on talent and short on depth, the cupboard is pretty bare for first-year GM Tom Telesco and rookie head coach Antonio Pierce.`\
 https://nytimes.com/athletic/5933671/2024/11/20/las-vegas-raiders-roster-bad-talent-depth/
-
-**Blackhawks, Blues Winter Classic jerseys unveiled, pay tribute to Chicago, St. Louis history**\
-`Both jerseys, which are now on sale, go for the usual vintage look while incorporating some newer, city-specific elements.`\
-https://nytimes.com/athletic/5934292/2024/11/20/blackhawks-blues-winter-classic-jerseys/
-
-**Penguins Today: A different mood, plus an NHL coaching shakeup**\
-`Things were already bad for the Penguins. Now they're just different bad.`\
-https://nytimes.com/athletic/5934961/2024/11/20/penguins-today-mike-sullivan/
-
-**Romania sanctioned over 'racist behaviour' of fans during Kosovo game**\
-`Romania have been ordered to play their next home match behind closed doors due to the “racist and/or discriminatory behaviour of its supporters” during their Nations League match against Kosovo.`\
-https://nytimes.com/athletic/5935005/2024/11/20/romania-kosovo-racism-uefa/
 
