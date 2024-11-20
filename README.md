@@ -1,3 +1,7 @@
+**Coca-Cola’s Holiday Ads Trade the ‘Real Thing’ for Generative A.I.**\
+`The company’s nostalgia-filled commercials are a holiday tradition, but this year’s ads are facing backlash for dipping into the uncanny valley.`\
+https://nytimes.com/2024/11/20/style/coca-cola-holiday-ads-ai.html
+
 **Republicans Block Release of Gaetz Report**\
 `Also, Biden agreed to give Ukraine anti-personnel mines. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/11/20/briefing/republicans-block-release-gaetz-report-ukraine-mines.html
@@ -20,17 +24,13 @@ https://nytimes.com/2024/11/20/us/politics/matt-gaetz-venmo-payments-sex.html
 
 **Ukraine Fires British Long-Range Missiles Into Russia**\
 `Britain allowed Ukrainians to use Storm Shadows a week after President Biden authorized the use of American-made missiles inside Russia, a shift from a more cautious military strategy.`\
-https://nytimes.com/2024/11/20/us/politics/ukraine-russia-british-long-range-missiles.html
+https://nytimes.com/2024/11/20/us/politics/ukraine-russia-uk-storm-shadow-missiles.html
 
 **Start-Up Founder Who Sold A.I. Chatbot to Schools Is Charged With Fraud**\
 `Joanna Smith-Griffin was charged with lying to investors about revenue and her customer base, which she claimed included some of the nation’s largest school districts, including New York City’s.`\
 https://nytimes.com/2024/11/20/nyregion/allhere-education-ai-schools.html
 
 **Bomb Cyclone Slams the Pacific Northwest**\
-`A deadly weather system left tens of thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, was expected to batter Oregon and Northern California.`\
+`A deadly weather system left tens of thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, brought heavy rain to Oregon and Northern California.`\
 https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington-.html
-
-**Nvidia Doubles Profit as A.I. Chip Sales Soar**\
-`The company, which dominates the market for chips used to build artificial intelligence, expects another big jump in the current quarter.`\
-https://nytimes.com/2024/11/20/technology/nvidia-earnings-chips-ai.html
 
