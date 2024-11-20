@@ -1,3 +1,11 @@
+**Diane Coleman, 71, Dies; Fiercely Opposed the Right-to-Die Movement**\
+`Her fight for disability rights included founding a group called Not Dead Yet, which protested the work of Dr. Jack Kevorkian and others.`\
+https://nytimes.com/2024/11/20/us/diane-coleman-dead.html
+
+**Thompson: Draymond Green, others pay the price for being the NBA's old men on D**\
+`The league's best defenders usually peak in their 30s. It takes grueling work to keep up with young offensive stars.`\
+https://nytimes.com/athletic/5934474/2024/11/20/nba-defense-old-draymond-green-alex-caruso/
+
 **Moving Arsenal vs Bayern to Meadow Park 'a bump in the road', says Slegers**\
 `Arsenal interim head coach Renee Slegers has described the movement of their Champions League match with Bayern Munich from the Emirates Stadium to Meadow Park as a “bump in the road” in the club’s desire to push women’s football forward.`\
 https://nytimes.com/athletic/5935087/2024/11/20/arsenal-bayern-meadow-park-slegers/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/20/business/trump-retirement-ira-401k-social-securit
 **Pulisic and the Trump dance - and why true leaders consider the impact of their actions**\
 `The furore over his Trump-inspired goal celebration may teach U.S. Soccer's leading light that leadership leaves little room for gray areas`\
 https://nytimes.com/athletic/5934687/2024/11/20/christian-pulisic-donald-trump-dance-usmnt/
-
-**Why the Blues broke longstanding tradition for their 2025 Winter Classic jersey**\
-`The design on the front of the jersey breaks a tradition that has been an integral part of the franchise's 57-year history.`\
-https://nytimes.com/athletic/5930176/2024/11/20/blues-2025-winter-classic-jersey/
-
-**How did the Raiders roster get so bad? A series of unfortunate events**\
-`Light on talent and short on depth, the cupboard is pretty bare for first-year GM Tom Telesco and rookie head coach Antonio Pierce.`\
-https://nytimes.com/athletic/5933671/2024/11/20/las-vegas-raiders-roster-bad-talent-depth/
 
