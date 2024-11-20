@@ -1,3 +1,7 @@
+**Thursday Briefing: U.S. Anti-Personnel Mines for Ukraine**\
+`Plus, Daniel Craig’s performance in “Queer.”`\
+https://nytimes.com/2024/11/20/briefing/ukraine-gaza-un-trump-china.html
+
 **U.S. Vetoes U.N. Resolution Calling for Gaza Cease-Fire**\
 `The United States said it vetoed the United Nations Security Council resolution calling for a cease-fire between Israel and Hamas, because it did not make the cease-fire contingent on the release of the hostages held in Gaza.`\
 https://nytimes.com/video/world/100000009836762/un-security-council-resolution-us-veto.html

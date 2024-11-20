@@ -1,3 +1,7 @@
+**Thursday Briefing: U.S. Anti-Personnel Mines for Ukraine**\
+`Plus, Daniel Craig’s performance in “Queer.”`\
+https://nytimes.com/2024/11/20/briefing/ukraine-gaza-un-trump-china.html
+
 **U.S. Vetoes U.N. Resolution Calling for Gaza Cease-Fire**\
 `The United States said it vetoed the United Nations Security Council resolution calling for a cease-fire between Israel and Hamas, because it did not make the cease-fire contingent on the release of the hostages held in Gaza.`\
 https://nytimes.com/video/world/100000009836762/un-security-council-resolution-us-veto.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/business/bill-hwang-archegos-sentence.html
 **Blue Jays offseason has been quiet, but there's still time to make an impact**\
 `The Blue Jays haven't made much news so far this offseason. That will have to change soon if they are going to meet their stated goals.`\
 https://nytimes.com/athletic/5935794/2024/11/20/blue-jays-offseason-update/
-
-**Future of 'The Michael Kay Show' in limbo: Sources**\
-`If Kay were to move to mid-days, then the leading candidates for the afternoon spot are Don La Greca and Alan Hahn, according to sources.`\
-https://nytimes.com/athletic/5935789/2024/11/20/michael-kay-show-espn-new-york-radio/
 
