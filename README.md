@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5933063/2024/11/20/illinois-alabama-how-to-watch-co
 
 **Biden Administration Approves Ukraine’s Use of Anti-Personnel Mines**\
 `The decision is the latest in a series of moves by the U.S. and Russia that have escalated tensions between the two.`\
-https://nytimes.com/2024/11/20/world/biden-administration-approves-ukraines-use-of-anti-personnel-mines.html
+https://nytimes.com/2024/11/20/world/us-ukraine-anti-personnel-mines.html
 
 **Mikal Bridges has had his ups and downs, but Knicks need him to be better**\
 `Bridges has been nearly allergic to drawing fouls, and his defense hasn't quite been as advertised. But his corner 3s have been money.`\
