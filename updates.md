@@ -1,3 +1,7 @@
+**They’re Open to Interpretation**\
+`Robert S. Gard brings us a little sunshine.`\
+https://nytimes.com/2024/11/19/crosswords/daily-puzzle-2024-11-20.html
+
 **Key to Trump’s Win: Heavy Losses for Harris Across the Map**\
 `Trump found new voters across counties and demographics to win the election. But Harris’s failure to match Biden’s 2020 performance was just as consequential.`\
 https://nytimes.com/interactive/2024/11/19/us/politics/voter-turnout-election-trump-harris.html
