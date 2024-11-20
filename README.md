@@ -1,3 +1,7 @@
+**U.S. Vetoes U.N. Resolution Calling for Gaza Cease-Fire**\
+`The United States said it vetoed the United Nations Security Council resolution calling for a cease-fire between Israel and Hamas, because it did not make the cease-fire contingent on the release of the hostages held in Gaza.`\
+https://nytimes.com/video/world/100000009836762/un-security-council-resolution-us-veto.html
+
 **Central Michigan coach Jim McElwain to retire after 2024 season**\
 `McElwain is 33-35 with two bowl appearances in six seasons at CMU and is 77-63 overall in 12 years as an FBS head coach.`\
 https://nytimes.com/athletic/5935837/2024/11/20/jim-mcelwain-retire-central-michigan-florida/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5935794/2024/11/20/blue-jays-offseason-update/
 **Future of 'The Michael Kay Show' in limbo: Sources**\
 `If Kay were to move to mid-days, then the leading candidates for the afternoon spot are Don La Greca and Alan Hahn, according to sources.`\
 https://nytimes.com/athletic/5935789/2024/11/20/michael-kay-show-espn-new-york-radio/
-
-**Who Stole 24,240 Bottles of Guy Fieri’s Tequila?**\
-`Two trucks of tequila from the company that Mr. Fieri founded with Sammy Hagar were stolen after being diverted from their planned route, the authorities said.`\
-https://nytimes.com/2024/11/20/us/tequila-trucks-stolen-sammy-hagar-guy-fieri.html
 
