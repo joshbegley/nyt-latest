@@ -1,3 +1,7 @@
+**Desi Lydic Digs Into the Sordid Claims Against Matt Gaetz**\
+`“Your future attorney general, everyone,” Desi Lydic said on “The Daily Show.” “It’s always the people you most expect.”`\
+https://nytimes.com/2024/11/20/arts/television/late-night-matt-gaetz.html
+
 **Mika Zibanejad's effective night, a Norris battle, more: 5 Rangers takeaways**\
 `The Rangers put together one of their most complete victories of the year, winning 4-3 against a solid Vancouver team.`\
 https://nytimes.com/athletic/5934462/2024/11/20/mika-zibanejad-rangers-canucks-takeaways/
