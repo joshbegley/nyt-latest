@@ -1,3 +1,23 @@
+**The N.Y.C. Region Is Dry and on Fire. Here’s What You Can Do to Help**\
+`Mayor Eric Adams announced a drought warning on Monday. City officials are asking New Yorkers to save water and help prevent more wildfires.`\
+https://nytimes.com/2024/11/20/nyregion/nyc-drought-water-conservation-wildfires.html
+
+**Boxing Spectacle**\
+`YouTube-sensation-turned-boxer Jake Paul defeated 58-year-old former champ Mike Tyson before millions of Netflix viewers worldwide. Did you watch the much hyped event?`\
+https://nytimes.com/2024/11/20/learning/boxing-spectacle.html
+
+**Alec Baldwin’s ‘Rust,’ Marked by Tragedy, Nears Premiere in Poland**\
+`The film, whose cinematographer, Halyna Hutchins, was killed in a shooting on the set, is being screened at a festival devoted to cinematography.`\
+https://nytimes.com/2024/11/20/movies/rust-premiere-alec-baldwin.html
+
+**Is the Northeast Entering Its Wildfire Era?**\
+`The New York region is unlikely to ever have as many brush fires as out West. But residents need to be ready for more droughts.`\
+https://nytimes.com/2024/11/20/nyregion/new-york-wildfires-drought.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/20/crosswords/spelling-bee-forum.html
+
 **With undefeated start behind them, Cavs reminded the East still runs through Celtics**\
 `Boston ended Cleveland's undefeated start to the season, but the Cavs were ready to learn lessons to prepare them for the big goal.`\
 https://nytimes.com/athletic/5934467/2024/11/20/celtics-end-cavs-undefeated-start/
@@ -13,24 +33,4 @@ https://nytimes.com/2024/11/20/world/europe/us-embassy-ukraine-warning.html
 **Desi Lydic Digs Into the Sordid Claims Against Matt Gaetz**\
 `“Your future attorney general, everyone,” Desi Lydic said on “The Daily Show.” “It’s always the people you most expect.”`\
 https://nytimes.com/2024/11/20/arts/television/late-night-matt-gaetz.html
-
-**Mika Zibanejad's effective night, a Norris battle, more: 5 Rangers takeaways**\
-`The Rangers put together one of their most complete victories of the year, winning 4-3 against a solid Vancouver team.`\
-https://nytimes.com/athletic/5934462/2024/11/20/mika-zibanejad-rangers-canucks-takeaways/
-
-**Word of the Day: boomerang**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/20/learning/word-of-the-day-boomerang.html
-
-**Real Madrid's selection dilemma: Valverde at right-back, Tchouameni in defence, 'untouchable' Bellingham**\
-`Madrid are experiencing an injury crisis. So who should Ancelotti select in a busy winter schedule?`\
-https://nytimes.com/athletic/5932800/2024/11/20/real-madrid-starting-xi-injuries/
-
-**Julian Nagelsmann has created a Germany team its public like - and believe in**\
-`On and off pitch, Nagelsmann and his squad have re-engaged a disinterested public with their national team. 2024 has been quite the year`\
-https://nytimes.com/athletic/5933351/2024/11/20/julian-nagelsmann-germany-transformed-public/
-
-**How short-handed Canucks showed, in defeat, why they can stay afloat: 3 takeaways**\
-`Vancouver may have lost, but it demonstrated it has enough in the tank to get by without J.T. Miller, Brock Boeser and Thatcher Demko.`\
-https://nytimes.com/athletic/5934314/2024/11/20/canucks-rangers-takeaways/
 
