@@ -1,3 +1,7 @@
+**Is Martin Necas a Hart Trophy contender?**\
+`Here the pros and cons of Necas' potential MVP candidacy.`\
+https://nytimes.com/athletic/5935533/2024/11/20/martin-necas-hart-trophy-hurricanes/
+
 **Reading Books in College: A Lost Art?**\
 `Readers respond to a guest essay about ... reading (in college). Also: What Ukraine needs; “profiles in cowardice”; who we are as Americans.`\
 https://nytimes.com/2024/11/20/opinion/reading-books-college.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5934908/2024/11/20/nwsl-championship-orlando-pride-
 **How Lionel Messi and Inter Miami will be impacted by Tata Martino's exit**\
 `Tata Martino will leave Inter Miami after their playoff failure — this is what it means`\
 https://nytimes.com/athletic/5934267/2024/11/20/lionel-messi-inter-miami-tata-martino-exit/
-
-**Which Candidate Did They Vote For? Read Their Shirts.**\
-`In the aftermath of the presidential election, voters are reaching for merchandise and political symbols either to celebrate the results or to make clear their opposition.`\
-https://nytimes.com/2024/11/20/style/blue-bracelets-maga-hats-trump-harris.html
 
