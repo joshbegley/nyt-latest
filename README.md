@@ -1,3 +1,11 @@
+**Federal Inquiry Traced Payments From Gaetz to Women**\
+`A document prepared by federal investigators bolsters claims by women who say they were hired for sex by Matt Gaetz, President-elect Donald J. Trump’s choice for attorney general, who denies wrongdoing.`\
+https://nytimes.com/2024/11/20/us/politics/matt-gaetz-venmo-payments-sex.html
+
+**Ukraine Fires British Long-Range Missiles Into Russia**\
+`Britain allowed Ukrainians to use Storm Shadows a week after President Biden authorized the use of American-made missiles inside Russia, a shift from a more cautious military strategy.`\
+https://nytimes.com/2024/11/20/us/politics/ukraine-russia-british-long-range-missiles.html
+
 **Start-Up Founder Who Sold A.I. Chatbot to Schools Is Charged With Fraud**\
 `Joanna Smith-Griffin was charged with lying to investors about revenue and her customer base, which she claimed included some of the nation’s largest school districts, including New York City’s.`\
 https://nytimes.com/2024/11/20/nyregion/allhere-education-ai-schools.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5935590/2024/11/20/senators-staios-ullmark-tkachuk-
 **Reddit Says It Is Working to Resolve Outage**\
 `Tens of thousands of users reported that the website and app were inaccessible starting just before 3 p.m. Eastern on Wednesday.`\
 https://nytimes.com/2024/11/20/technology/reddit-down-outage.html
-
-**North Carolina Republicans Push to Seize Power From Top Democrats**\
-`The state’s Republican-controlled legislature passed a sweeping bill that would erode the power of the Democratic governor and attorney general and hand the G.O.P. more control over elections.`\
-https://nytimes.com/2024/11/20/us/politics/north-carolina-bill-governor-elections.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears have lost four games in a row and are preparing to host the 8-2 Vikings on Sunday. Send your questions here. `\
-https://nytimes.com/athletic/5935990/2024/11/20/bears-mailbag-questions-40/
 
