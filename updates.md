@@ -1,3 +1,7 @@
+**Word of the Day: boomerang**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/20/learning/word-of-the-day-boomerang.html
+
 **Real Madrid's selection dilemma: Valverde at right-back, Tchouameni in defence, 'untouchable' Bellingham**\
 `Madrid are experiencing an injury crisis. So who should Ancelotti select in a busy winter schedule?`\
 https://nytimes.com/athletic/5932800/2024/11/20/real-madrid-starting-xi-injuries/
