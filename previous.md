@@ -1,3 +1,7 @@
+**Pamela Hayden, the Voice of Bart’s Friend Milhouse, Retires From ‘The Simpsons’**\
+`Ms. Hayden voiced many “Simpsons” characters since the show started in 1989. She’s most famously the voice of Bart’s awkward 10-year-old best friend.`\
+https://nytimes.com/2024/11/20/arts/television/pamela-hayden-retires-simpsons-milhouse-voice.html
+
 **Elon Musk and Vivek Ramaswamy Call for Five-Day In-Office Workweeks for Federal Employees**\
 `In an opinion column in The Wall Street Journal, the heads of the new Department of Government Efficiency said taxpayers shouldn’t pay federal employees “for the Covid-era privilege of staying home.”`\
 https://nytimes.com/2024/11/20/us/politics/elon-musk-vivek-ramaswamy-doge-rto.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5936263/2024/11/20/roki-sasaki-international-signin
 **Florida Man Accused of Plotting Attack on New York Stock Exchange**\
 `Harun Abdul-Malik Yener was charged after an undercover investigation by the F.B.I. into his alleged desire to join extremist groups and carry out violent attacks, according to a criminal complaint.`\
 https://nytimes.com/2024/11/20/us/politics/florida-man-bomb-stock-exchange.html
-
-**How Will Popular Culture Change in Trump’s Second Term?**\
-`His first term was marked by backlash and protest. But the president-elect has found new streams of embrace and approval.`\
-https://nytimes.com/2024/11/20/arts/music/popcast-trump-pop-culture.html
 

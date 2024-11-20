@@ -1,3 +1,7 @@
+**Pamela Hayden, the Voice of Bart’s Friend Milhouse, Retires From ‘The Simpsons’**\
+`Ms. Hayden voiced many “Simpsons” characters since the show started in 1989. She’s most famously the voice of Bart’s awkward 10-year-old best friend.`\
+https://nytimes.com/2024/11/20/arts/television/pamela-hayden-retires-simpsons-milhouse-voice.html
+
 **Elon Musk and Vivek Ramaswamy Call for Five-Day In-Office Workweeks for Federal Employees**\
 `In an opinion column in The Wall Street Journal, the heads of the new Department of Government Efficiency said taxpayers shouldn’t pay federal employees “for the Covid-era privilege of staying home.”`\
 https://nytimes.com/2024/11/20/us/politics/elon-musk-vivek-ramaswamy-doge-rto.html
