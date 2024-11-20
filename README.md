@@ -1,6 +1,14 @@
+**Funeral Held for Liam Payne in England**\
+`The One Direction singer died at 31 last month after a fall from a balcony.`\
+https://nytimes.com/2024/11/20/arts/music/liam-payne-funeral.html
+
+**Twenty crucial Oilers questions after an uneven 20 games**\
+`To say the Oilers have underachieved 20 games into the season would be an understatement. How did they get here and what's next?`\
+https://nytimes.com/athletic/5933635/2024/11/20/edmonton-oilers-mcdavid-draisaitl-power-play-defence/
+
 **Target’s Stock Sinks on Weak Sales Ahead of Holiday Shopping Season**\
 `The retailer’s downbeat earnings report, which included lower profit and larger inventory, fell far short of Wall Street’s expectations.`\
-https://nytimes.com/2024/11/20/business/target-sales-holiday-earnings.html
+https://nytimes.com/2024/11/20/business/target-earnings-holiday-shopping.html
 
 **Giraffes, in Steep Decline, Now Need Protection, U.S. Officials Say**\
 `A new proposal would restrict the import of hunting trophies, pelts, bone carvings and other items.`\
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/20/business/dealbook/howard-lutnick-commerce-secreta
 **'I have to play better': Nuggets' Jamal Murray bounces back, then opens up about struggles**\
 `Murray hadn't looked like himself for months, including during the Olympics. But his aggressiveness on Tuesday night was a welcome sign.`\
 https://nytimes.com/athletic/5934460/2024/11/20/jamal-murray-denver-nuggets-interview/
-
-**James Conner and the punishing style and leadership that fuel the Cardinals**\
-`Kyler Murray is playing well. The defense continues to improve, but James Conner has always buzzed as Arizona's primary power source.`\
-https://nytimes.com/athletic/5933197/2024/11/20/james-conner-arizona-cardinals-leadership/
-
-**2025 NFL Draft order projections: Cowboys, Bears tumbling toward top-10 picks**\
-`How did Week 11 shake up the potential 2025 NFL Draft order?`\
-https://nytimes.com/athletic/5932215/2024/11/20/nfl-draft-2025-order-projections-cowboys-bears/
 
