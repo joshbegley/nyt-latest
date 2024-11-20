@@ -1,3 +1,7 @@
+**Lionel Messi matches Landon Donovan's international assist record**\
+`Messi’s assist in the 55th minute during Argentina’s 1-0 win over Peru marked his 58th assist on the international stage.`\
+https://nytimes.com/athletic/5934236/2024/11/19/lionel-messi-argentina-assist-international-record/
+
 **Canada tops Suriname with ease to advance to Nations League Finals**\
 `The win sends Canada back to the Nations League Finals during the next international window in March 2025.`\
 https://nytimes.com/athletic/5934115/2024/11/19/canada-suriname-concacaf-results-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933645/2024/11/19/aaron-rodgers-woody-johnson-benc
 **Why Joe Douglas never stood a chance as Jets GM**\
 `As owner Woody Johnson took on a bigger role running the Jets, the writing was on the wall.`\
 https://nytimes.com/athletic/5933929/2024/11/19/joe-douglas-new-york-jets-gm-fired/
-
-**What the CFP committee should do with the SEC logjam**\
-`Should the College Football Playoff rankings be about the eye test, the team's record or what?`\
-https://nytimes.com/athletic/5933952/2024/11/19/college-football-playoff-committee-sec/
 

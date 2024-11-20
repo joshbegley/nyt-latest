@@ -1,3 +1,7 @@
+**Lionel Messi matches Landon Donovan's international assist record**\
+`Messi’s assist in the 55th minute during Argentina’s 1-0 win over Peru marked his 58th assist on the international stage.`\
+https://nytimes.com/athletic/5934236/2024/11/19/lionel-messi-argentina-assist-international-record/
+
 **Canada tops Suriname with ease to advance to Nations League Finals**\
 `The win sends Canada back to the Nations League Finals during the next international window in March 2025.`\
 https://nytimes.com/athletic/5934115/2024/11/19/canada-suriname-concacaf-results-analysis/
