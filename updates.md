@@ -1,3 +1,11 @@
+**Blackhawks express desperation, don't show it in another narrow defeat**\
+`Connor Bedard looked back to his playmaking self with two assists, but the Blackhawks struggled once again in the third period.`\
+https://nytimes.com/athletic/5934227/2024/11/20/blackhawks-bedard-richardson-ducks/
+
+**In search of depth scoring, Wild get big night from Johansson-Rossi-Hartman line**\
+`The Wild's new second line created two goals while the first line lived up to the hype against the Blues.`\
+https://nytimes.com/athletic/5934400/2024/11/20/wild-depth-scoring-rossi-brodin-blues/
+
 **Bad Air Chokes the Life Out of a Vibrant Pakistani City**\
 `Lahore comes alive at night. But this year’s record onslaught of cold-weather smog — residents call it the “fifth season” — has broken its rhythms.`\
 https://nytimes.com/2024/11/20/world/asia/lahore-pakistan-smog.html
