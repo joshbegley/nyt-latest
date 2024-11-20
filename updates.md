@@ -1,3 +1,15 @@
+**Vieira appointed Genoa head coach**\
+`Patrick Vieira has been appointed as Genoa head coach.`\
+https://nytimes.com/athletic/5931677/2024/11/20/patrick-vieira-genoa-manager/
+
+**Flying Above the Bombs, a Lebanese Airline Becomes an Unlikely National Hero**\
+`Middle East Airlines has managed to fly through regional and civil wars since the 1960s. And it is still in the skies today.`\
+https://nytimes.com/2024/11/20/world/middleeast/middle-east-airlines-lebanon.html
+
+**U.S. Envoy Set for 2nd Day of Talks on Cease-Fire in Lebanon**\
+`Amos Hochstein, a top Biden administration envoy to the Middle East, has seldom stayed overnight on trips to Beirut over the past year, so the extended visit may be a positive sign.`\
+https://nytimes.com/2024/11/20/world/middleeast/lebanon-cease-fire-amos-hochstein.html
+
 **Ravens say they aren't pondering a kicking change, but Justin Tucker is cause for concern**\
 `Tucker has missed six or more field goals for just the third time in his 13-year career in Baltimore. `\
 https://nytimes.com/athletic/5933377/2024/11/20/ravens-justin-tucker-kicker-concerns/
