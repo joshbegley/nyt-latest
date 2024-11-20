@@ -1,3 +1,7 @@
+**How to watch Illinois vs. Alabama: Top-25 college basketball showdown in Birmingham**\
+`Two ranked teams go at it Tuesday night, in a game honoring longtime college coach C.M. Newton.`\
+https://nytimes.com/athletic/5933063/2024/11/20/illinois-alabama-how-to-watch-college-basketball-odds/
+
 **Biden Administration Approves Ukraine’s Use of Anti-Personnel Mines**\
 `The decision is the latest in a series of moves by the U.S. and Russia that have escalated tensions between the two.`\
 https://nytimes.com/2024/11/20/world/biden-administration-approves-ukraines-use-of-anti-personnel-mines.html
@@ -30,4 +34,3 @@ https://nytimes.com/2024/11/20/opinion/trump-gender-women-sexism.html
 `The Doris Duke Theater, more than twice as large as the original and designed for modern technology, will open in July.`\
 https://nytimes.com/2024/11/20/arts/dance/jacobs-pillow-doris-duke-theater.html
 
-**Read the Book Review’s 1982 Nobel Interview with Gabriel García Márquez**\

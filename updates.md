@@ -1,3 +1,7 @@
+**How to watch Illinois vs. Alabama: Top-25 college basketball showdown in Birmingham**\
+`Two ranked teams go at it Tuesday night, in a game honoring longtime college coach C.M. Newton.`\
+https://nytimes.com/athletic/5933063/2024/11/20/illinois-alabama-how-to-watch-college-basketball-odds/
+
 **Biden Administration Approves Ukraine’s Use of Anti-Personnel Mines**\
 `The decision is the latest in a series of moves by the U.S. and Russia that have escalated tensions between the two.`\
 https://nytimes.com/2024/11/20/world/biden-administration-approves-ukraines-use-of-anti-personnel-mines.html
