@@ -1,3 +1,7 @@
+**Elon Musk and Vivek Ramaswamy Call for Five-Day In-Office Workweeks for Federal Employees**\
+`In an opinion column in The Wall Street Journal, the heads of the new Department of Government Efficiency said taxpayers shouldn’t pay federal employees “for the Covid-era privilege of staying home.”`\
+https://nytimes.com/2024/11/20/us/politics/elon-musk-vivek-ramaswamy-doge-rto.html
+
 **Ukraine Strikes Inside Russia With U.S. Missiles**\
 `The next two or three months in Ukraine are likely to be exceedingly violent, in a war that has already been the deadliest in Europe in the past 80 years. Marc Santora, who has been reporting from Ukraine since the beginning of the war with Russia, explains why.`\
 https://nytimes.com/video/world/europe/100000009833781/ukraine-atacms-russia.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/us/politics/florida-man-bomb-stock-exchange.html
 **How Will Popular Culture Change in Trump’s Second Term?**\
 `His first term was marked by backlash and protest. But the president-elect has found new streams of embrace and approval.`\
 https://nytimes.com/2024/11/20/arts/music/popcast-trump-pop-culture.html
-
-**Sen. Dick Durbin introduces bill to strengthen labor protections for minor league players**\
-`The Fair Ball Act is the latest push to improve working conditions for minor league baseball players. `\
-https://nytimes.com/athletic/5936090/2024/11/20/minor-league-player-labor-bill/
 
