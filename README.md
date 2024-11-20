@@ -1,3 +1,15 @@
+**Ravens say they aren't pondering a kicking change, but Justin Tucker is cause for concern**\
+`Tucker has missed six or more field goals for just the third time in his 13-year career in Baltimore. `\
+https://nytimes.com/athletic/5933377/2024/11/20/ravens-justin-tucker-kicker-concerns/
+
+**Browns' plan at LT uncertain entering Thursday night matchup with Steelers**\
+`Plus, could the inclement weather cause Cleveland to lean more on Nick Chubb vs. Pittsburgh's stingy run defense?`\
+https://nytimes.com/athletic/5933331/2024/11/20/browns-left-tackle-kevin-stefanski/
+
+**Bengals are 1-6 in one-score games. So who's on the hook for their inability to finish?**\
+`Whether it's missed kicks, defensive letdowns or late offensive failures, Cincinnati continues to come up short when it matters most.`\
+https://nytimes.com/athletic/5934042/2024/11/20/bengals-one-score-games-zac-taylor-evan-mcpherson/
+
 **'He wouldn’t crack': Willis Reed emerges at No. 45 in 'The Basketball 100'**\
 `Tenacity is what separated Reed from his contemporaries. It never mattered who stood in front of him. He gave every ounce he had.`\
 https://nytimes.com/athletic/5933502/2024/11/20/willis-reed-the-basketball-100-book-excerpt/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/11/20/technology/personaltech/security-iphone-android.h
 **How Two High-Profile New York Industries Might Fare Under Trump**\
 `The city’s art and fashion worlds are keeping an eye on President-elect Donald Trump’s economic agenda, especially tariffs and tax cuts.`\
 https://nytimes.com/2024/11/20/nyregion/how-two-high-profile-new-york-industries-might-fare-under-trump.html
-
-**Democrats Can Become the Party of Insurgency Again**\
-`Are there ways to bring the left and the center together without sacrificing either?`\
-https://nytimes.com/2024/11/20/opinion/democrats-left-center-trump.html
-
-**Singing ‘Wicked’ Fans Are Anything but Popular**\
-`Some fans who have attended early screenings of the film adaptation of the hit Broadway musical have treated it as a singalong. Not everyone is thrilled.`\
-https://nytimes.com/2024/11/20/movies/wicked-movie-singalong-debate.html
-
-**Trump Promises Clean Water. Will He Clean Up ‘Forever Chemicals’?**\
-`Public health advocates worry that Donald Trump could unravel federal clean water efforts, including restrictions on lead pipes and chemicals known as PFAS.`\
-https://nytimes.com/2024/11/20/climate/trump-pfas-lead-clean-water.html
 
