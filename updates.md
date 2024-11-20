@@ -1,3 +1,11 @@
+**How to Win Latino Voters**\
+`A conversation with a Democrat who did.`\
+https://nytimes.com/2024/11/20/us/politics/latino-voters-gallego.html
+
+**What to Know About Nvidia’s High-Stakes Earnings Report**\
+`Investors have high hopes for the chipmaker, the world’s most valuable company, which has enormous influence over the stock market.`\
+https://nytimes.com/2024/11/20/business/dealbook/nvidia-earnings-stock-market.html
+
 **Venezuelan Migrant Found Guilty of Killing Laken Riley in Georgia**\
 `The verdict followed a four-day bench trial in which prosecutors detailed a violent attack that became a flashpoint in the bitter national debate over immigration policy.`\
 https://nytimes.com/2024/11/20/us/venezuelan-migrant-guilty-killing-laken-riley-georgia.html
