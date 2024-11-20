@@ -1,3 +1,15 @@
+**Misdemeanour charges against Marinakis are 'blackmail', say Olympiacos**\
+`Olympiacos have labelled charges against owner Evangelos Marinakis and other club executives as &#8220;blackmail&#8221; and &#8220;fuelled by political interests&#8221;.`\
+https://nytimes.com/athletic/5934743/2024/11/20/olympiacos-evangelos-marinakis-blackmail/
+
+**Ugandan Opposition Leader Who Was ‘Kidnapped’ in Kenya Turns Up in Court**\
+`Kizza Besigye, a former presidential candidate, went missing over the weekend as he visited the Kenyan capital, reappearing days later in military custody back in Uganda.`\
+https://nytimes.com/2024/11/20/world/africa/uganda-opposition-leader-kidnapped-court.html
+
+**Gary Wang, a Top FTX Executive, Is Given No Prison Time**\
+`Mr. Wang is the last close colleague of the FTX founder Sam Bankman-Fried to be sentenced for the fraud that caused the crypto exchange to collapse in 2022.`\
+https://nytimes.com/2024/11/20/technology/gary-wang-ftx-sentence.html
+
 **Diane Coleman, 71, Dies; Fiercely Opposed the Right-to-Die Movement**\
 `Her fight for disability rights included founding a group called Not Dead Yet, which protested the work of Dr. Jack Kevorkian and others.`\
 https://nytimes.com/2024/11/20/us/diane-coleman-dead.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/11/20/us/politics/rockbridge-trump-vance-wiles.html
 **Ex-England, Chelsea coach Holland set to take over at Yokohama F. Marinos**\
 `Former England and Chelsea assistant Steve Holland is set to be appointed head coach of Japanese top-flight side Yokohama F.`\
 https://nytimes.com/athletic/5934530/2024/11/20/steve-holland-yokohama-f-marinos/
-
-**Wordle Review No. 1,251**\
-`Scroll down for hints and conversation about the puzzle for Nov. 21, 2024.`\
-https://nytimes.com/2024/11/20/crosswords/wordle-review-1251.html
-
-**How Retirement Rules Might (or Might Not) Change Under Trump**\
-`Readers had questions about individual retirement accounts, distributions and access to brokerage accounts if they moved away from the U.S. Here are some answers.`\
-https://nytimes.com/2024/11/20/business/trump-retirement-ira-401k-social-security.html
-
-**Pulisic and the Trump dance - and why true leaders consider the impact of their actions**\
-`The furore over his Trump-inspired goal celebration may teach U.S. Soccer's leading light that leadership leaves little room for gray areas`\
-https://nytimes.com/athletic/5934687/2024/11/20/christian-pulisic-donald-trump-dance-usmnt/
 
