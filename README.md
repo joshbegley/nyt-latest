@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5932743/2024/11/20/jets-aaron-rodgers-bench-owner-t
 https://nytimes.com/athletic/5933055/2024/11/20/bears-caleb-williams-thomas-brown-offense/
 
 **Tottenham appeal Bentancur's seven-game ban for Son remark**\
-`Tottenham Hotspur have appealed against Rodrigo Bentancur’s seven-game ban for comments he made about Son Heung-min.`\
+`Tottenham Hotspur have appealed against Rodrigo Bentancur’s seven-game ban for comments he made about team-mate Son Heung-min.`\
 https://nytimes.com/athletic/5934578/2024/11/20/rodrigo-bentancur-ban-appeal-tottenham/
 
 **Nick Martinez's return solidifies Reds' rotation**\
