@@ -1,3 +1,15 @@
+**‘Get Somebody Else to Do It’: Trump Resistance Encounters Fatigue**\
+`Donald J. Trump’s grass-roots opponents search for a new playbook as they reckon with how little they accomplished during his first term.`\
+https://nytimes.com/2024/11/20/us/trump-womens-march-protests-activism.html
+
+**Reg Murphy, Newspaper Editor Whose Kidnapping Riveted the U.S., Dies at 90**\
+`He made his mark on newspapers in Atlanta, San Francisco and Baltimore, but may be best known for having been abducted in Atlanta in 1974.`\
+https://nytimes.com/2024/11/20/business/media/reg-murphy-dead.html
+
+**U.S. Casts Sole Vote Against Gaza Cease-Fire Resolution**\
+`The U.S. veto at the U.N. came as the Biden administration’s envoy in Lebanon reported “additional progress” on cease-fire talks in the war between Israel and Hezbollah.`\
+https://nytimes.com/2024/11/20/world/middleeast/gaza-ceasefire-us-veto.html
+
 **Archegos Founder Bill Hwang Is Sentenced to 18 Years**\
 `Mr. Hwang was convicted in July for his role in the collapse of his investment firm that caused roughly $10 billion in losses for several Wall Street banks.`\
 https://nytimes.com/2024/11/20/business/bill-hwang-archegos-sentence.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5934940/2024/11/20/mickey-mouse-altcast-nba-christm
 **Vic Flick, Guitarist Who Plucked the James Bond Theme, Dies at 87**\
 `He also recorded music for the Beatles’ film “A Hard Day’s Night” and contributed to several hit songs as a session musician.`\
 https://nytimes.com/2024/11/20/arts/vic-flick-james-bond-dead.html
-
-**Thanksgiving Can Be Hectic. Feeding Guests All Week Doesn’t Have to Be.**\
-`With these three easy strategies and budget-friendly recipes, cooking meals other than the big feast can be stress-free.`\
-https://nytimes.com/2024/11/20/dining/feeding-crowd-before-thanksgiving.html
-
-**Yankees' Steinbrenner battles Mets' Cohen for Soto: 'I know what's expected of me'**\
-`The Yankees owner discussed the Soto sweepstakes and a number of other offseason topics during a break at the MLB owners' meetings. `\
-https://nytimes.com/athletic/5935780/2024/11/20/yankees-juan-soto-hal-steinbrenner-mets-free-agency/
-
-**West Coast Rattled by Hurricane-Strength Winds and Blizzard Warnings**\
-`The first “atmospheric river” storm of the season battered Northern California and the Pacific Northwest, disrupting travel and leaving many without power.`\
-https://nytimes.com/2024/11/20/weather/bomb-cyclone-atmospheric-river-storm-west-coast.html
 
