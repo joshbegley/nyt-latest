@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/19/pageoneplus/corrections-nov-20-2024.html
 
 **Jets owner Johnson suggested benching Aaron Rodgers in September: Sources**\
-`Johnson felt Rodgers' performance was holding the team back.`\
+`The idea of benching the future Hall of Famer sounded so absurd that one coach asked whether the owner was serious.`\
 https://nytimes.com/athletic/5933645/2024/11/19/aaron-rodgers-woody-johnson-benching-jets/
 
 **Why Joe Douglas never stood a chance as Jets GM**\
