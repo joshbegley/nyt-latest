@@ -1,3 +1,11 @@
+**Pelicans coach Willie Green faces crossroads as injured stars near their return**\
+`Green can't be blamed for the team's poor start among a rash of injuries. But when New Orleans is healthier, there's no time to waste.`\
+https://nytimes.com/athletic/5931610/2024/11/20/pelicans-willie-green-injuries/
+
+**The Pulse: More Jets bombshells**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5932743/2024/11/20/jets-aaron-rodgers-bench-owner-the-pulse/
+
 **Bigger, bolder, smoother? Inside F1 Las Vegas' plans for a successful sequel**\
 `F1 returns for its second shot in Las Vegas balancing thrills, local impact and a heated late-season title fight.`\
 https://nytimes.com/athletic/5933143/2024/11/20/vegas-f1-preview/
