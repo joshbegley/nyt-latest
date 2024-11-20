@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Humor to Counter Despair’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/11/20/style/tiny-modern-love-stories-humor-to-counter-despair.html
+
 **Man Who Bought a Gun to ‘Shoot Up a Synagogue’ Is Sentenced to 10 Years**\
 `Christopher Brown sought blessings before he tried to carry out his plan. When he was arrested in Penn Station, he had a gun, a knife and a swastika arm patch.`\
 https://nytimes.com/2024/11/20/nyregion/christopher-brown-synagogue-terror-sentence.html
