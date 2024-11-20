@@ -1,3 +1,7 @@
+**How Wild continued their dominance on the road in St. Louis: 3 takeaways**\
+`Jonas Brodin scored with 6:16 left to snap a third-period deadlock and lift the road-dominant Wild to a 4-2 victory over St. Louis.`\
+https://nytimes.com/athletic/5933789/2024/11/19/wild-blues-takeaways-analysis/
+
 **Ohio State starting center Seth McLaughlin sidelined with Achilles injury**\
 `McLaughlin has been a key cog on Ohio State's offensive line in his first season with the Buckeyes after transferring from Alabama. `\
 https://nytimes.com/athletic/5934264/2024/11/19/seth-mclaughlin-ohio-state-center-achilles/
