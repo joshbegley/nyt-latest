@@ -1,3 +1,7 @@
+**Scoop City: The decline of superstar cornerbacks**\
+`The decline of highly-paid cornerbacks, the latest from New York and an updated look at rookie QB EPA.`\
+https://nytimes.com/athletic/5935226/2024/11/20/jets-bench-aaron-rodgers-star-cornerbacks-scoop-city/
+
 **Does Anyone Trust the Government?**\
 `Cynicism is rampant across the political spectrum.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/government-trust-cynicism
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5934845/2024/11/20/duncan-robinson-jimmy-butler-tyl
 **Unrivaled rosters revealed: Full teams, coaches for upstart women’s league**\
 `Unrivaled’s first season begins on Jan. 17.`\
 https://nytimes.com/athletic/5933275/2024/11/20/unrivaled-rosters-revealed-full-teams-coaches-tv-information-for-upstart-womens-league/
-
-**U.S. Vetoes Gaza Cease-Fire Resolution at U.N. Security Council**\
-`The U.S., which has previously blocked four other resolutions, said it vetoed the most recent version because it did not make the release of hostages a precondition for a truce.`\
-https://nytimes.com/2024/11/20/world/middleeast/us-veto-gaza-ceasefire.html
 
