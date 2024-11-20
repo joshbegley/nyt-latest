@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5935789/2024/11/20/michael-kay-show-espn-new-york-radio/
 
 **Who Stole 24,240 Bottles of Guy Fieri’s Tequila?**\
-`Two trucks of tequila from the company that Mr. Fieri owns with Sammy Hagar were stolen after being diverted from their planned route, the authorities said.`\
+`Two trucks of tequila from the company that Mr. Fieri founded with Sammy Hagar were stolen after being diverted from their planned route, the authorities said.`\
 https://nytimes.com/2024/11/20/us/tequila-trucks-stolen-sammy-hagar-guy-fieri.html
 
 **Disney, ESPN to air Mickey Mouse alt-cast for Knicks-Spurs on Christmas**\
