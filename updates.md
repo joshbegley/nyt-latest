@@ -1,3 +1,15 @@
+**With undefeated start behind them, Cavs reminded the East still runs through Celtics**\
+`Boston ended Cleveland's undefeated start to the season, but the Cavs were ready to learn lessons to prepare them for the big goal.`\
+https://nytimes.com/athletic/5934467/2024/11/20/celtics-end-cavs-undefeated-start/
+
+**600,000 Without Power in Washington State as Powerful Winds Topple Trees**\
+`A storm system approaching the Northwest with hurricane-force winds was expected to drench the region with rain.`\
+https://nytimes.com/2024/11/20/us/washington-storm-power-outage.html
+
+**U.S. Closes Its Kyiv Embassy, Warning of ‘Significant Air Attack’**\
+`The unusual alert came a day after Ukraine used American-made ballistic missiles to strike Russian territory for the first time.`\
+https://nytimes.com/2024/11/20/world/europe/us-embassy-ukraine-warning.html
+
 **Desi Lydic Digs Into the Sordid Claims Against Matt Gaetz**\
 `“Your future attorney general, everyone,” Desi Lydic said on “The Daily Show.” “It’s always the people you most expect.”`\
 https://nytimes.com/2024/11/20/arts/television/late-night-matt-gaetz.html
