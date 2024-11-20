@@ -1,3 +1,15 @@
+**In search of depth scoring, Wild get a big night from the Johansson-Rossi-Hartman line**\
+`The Wild's new second line created two goals while the first line lived up to the hype against the Blues.`\
+https://nytimes.com/athletic/5934400/2024/11/20/wild-depth-scoring-rossi-brodin-blues/
+
+**Explained: Arsenal's evolving hierarchy - and how Edu's exit might affect it**\
+`There has been stability at Arsenal in the five years since Mikel Arteta took charge but there have been changes to the setup above him`\
+https://nytimes.com/athletic/5916762/2024/11/20/arsenal-structure-arteta-garlick-edu/
+
+**West Ham's goalkeeper debate: Has Fabianski got an opportunity to steal Areola's spot?**\
+`Alphonse Areola has struggled with the demands of Julen Lopetegui's system — is this an opportunity for Lukasz Fabianski?`\
+https://nytimes.com/athletic/5931608/2024/11/20/west-ham-goalkeeper-fabianski-areola/
+
 **The State of Punditry - part 1: How analysis has changed - and is it better?**\
 `In the first of a three-part series, we examine what fans demand of TV analysis and how broadcasters have responded`\
 https://nytimes.com/athletic/5932487/2024/11/20/football-punditry-lineker-neville-carragher/
