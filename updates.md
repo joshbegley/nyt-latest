@@ -1,3 +1,7 @@
+**College Football Playoff rankings: Boise State leaps to No. 4 seed**\
+`The Buckeyes (9-1) host the unbeaten Hoosiers on Saturday in their third top-five matchup of the season.`\
+https://nytimes.com/athletic/5933704/2024/11/19/college-football-playoff-rankings-georgia-tennessee-boise-state/
+
 **Group Sues Justice Department for Gaetz Investigation Documents**\
 `The nonpartisan watchdog group American Oversight has been trying since last year to get the documents related to the sex-trafficking investigation into Matt Gaetz.`\
 https://nytimes.com/2024/11/19/us/politics/justice-dept-gaetz-investigation-lawsuit.html
