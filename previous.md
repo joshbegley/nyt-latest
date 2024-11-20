@@ -1,3 +1,7 @@
+**Texas Puts More Buoy Barriers in the Rio Grande to Block Migrants**\
+`The move by Gov. Greg Abbott, flouting a federal challenge, signaled that Texas expects to have a freer hand on the border under President-elect Donald J. Trump.`\
+https://nytimes.com/2024/11/20/us/texas-rio-grande-buoy-abbott.html
+
 **Bill Moyes, Australian ‘Birdman’ Who Popularized Hang Gliding, Dies at 92**\
 `A modern-day Icarus, he set a world record for the longest unassisted flight, was arrested after soaring into the Grand Canyon and nearly killed himself several times.`\
 https://nytimes.com/2024/11/20/sports/bill-moyes-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/magazine/man-compliment-restaurant-ethics.html
 **Not yet 20 games in, the Islanders are stuck in the middle once more**\
 `Through 19 games, the Islanders are the definition of mediocre. No progress, no success.`\
 https://nytimes.com/athletic/5934782/2024/11/20/islanders-nhl-standings-2024/
-
-**New Yorkers, How Will You Get to the Airport for Thanksgiving?**\
-`As the holiday approaches, we want to know how you plan on tackling one of the biggest travel days of the year.`\
-https://nytimes.com/2024/11/20/nyregion/nyc-airport-travel-thanksgiving.html
 
