@@ -1,3 +1,7 @@
+**Man Who Bought a Gun to ‘Shoot Up a Synagogue’ Is Sentenced to 10 Years**\
+`Christopher Brown sought blessings before he tried to carry out his plan. When he was arrested in Penn Station, he had a gun, a knife and a swastika arm patch.`\
+https://nytimes.com/2024/11/20/nyregion/christopher-brown-synagogue-terror-sentence.html
+
 **Why Blue Jackets' Cayden Lindstrom needed back surgery, and how his recovery might go**\
 `Lindstrom's back has been an issue since before the Blue Jackets drafted him in June.`\
 https://nytimes.com/athletic/5935507/2024/11/20/cayden-lindstrom-blue-jackets-back-surgery/
