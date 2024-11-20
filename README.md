@@ -1,5 +1,5 @@
 **Bomb Cyclone Slams the Pacific Northwest**\
-`A deadly weather system left several hundred thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, was expected to batter Oregon and Northern California.`\
+`A deadly weather system left tens of thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, was expected to batter Oregon and Northern California.`\
 https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington-.html
 
 **Nvidia Doubles Profit as A.I. Chip Sales Soar**\
