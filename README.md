@@ -1,3 +1,7 @@
+**In search of depth scoring, Wild get a big night from the Johansson-Rossi-Hartman line**\
+`The Wild's new second line created two goals while the first line lived up to the hype against the Blues.`\
+https://nytimes.com/athletic/5934400/2024/11/20/wild-depth-scoring-rossi-brodin-blues/
+
 **Explained: Arsenal's evolving hierarchy - and how Edu's exit might affect it**\
 `There has been stability at Arsenal in the five years since Mikel Arteta took charge but there have been changes to the setup above him`\
 https://nytimes.com/athletic/5916762/2024/11/20/arsenal-structure-arteta-garlick-edu/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5919265/2024/11/20/saudi-aramco-players-protesting/
 **Stormzy, Wilfried Zaha and the Crystal Palace connection: Inside the rise of AFC Croydon Athletic**\
 `The club are on the up in step eight of the English football pyramid but, for their new owners, all this is about more than on-field success`\
 https://nytimes.com/athletic/5919275/2024/11/20/croydon-athletic-stormzy-zaha-crystal-palace/
-
-**Ruben Amorim's backroom staff: Who they are and what they do**\
-`Amorim has brought six members of backroom staff to United from Portugal. We spoke to previous colleagues to find out more about them`\
-https://nytimes.com/athletic/5932085/2024/11/20/ruben-amorim-man-united-coaching-staff/
 
