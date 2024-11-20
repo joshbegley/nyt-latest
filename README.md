@@ -1,3 +1,7 @@
+**Italy wins Billie Jean King Cup with victory over Slovakia in Malaga**\
+`Last year's runners-up went one better in Malaga to lift the 'world cup of tennis'`\
+https://nytimes.com/athletic/5935690/2024/11/20/italy-billie-jean-king-cup-jasmine-paolini/
+
 **What Are Anti-Personnel Mines?**\
 `The Biden administration has agreed to send the weapons to Ukraine, despite their reputation for killing and maiming civilians.`\
 https://nytimes.com/2024/11/20/world/europe/anti-personnel-land-mines-ukraine.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/us/linda-mcmahon-trump-education-secretary.html
 **The Bathrooms of the Capitol Are Now Unsafe Spaces**\
 `Republicans are exploiting juvenile gossip and unfounded fears of sexual violence.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/republicans-transgender-bathroom-mace
-
-**What’s in Our Queue? Abigail Rose and More**\
-`By Karen Weise`\
-https://nytimes.com/card/2024/11/20/arts/editors-recommendations-abigailrose
 
