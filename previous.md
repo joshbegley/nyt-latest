@@ -1,3 +1,19 @@
+**'He wouldn’t crack': Willis Reed emerges at No. 45 in 'The Basketball 100'**\
+`Tenacity is what separated Reed from his contemporaries. It never mattered who stood in front of him. He gave every ounce he had.`\
+https://nytimes.com/athletic/5933502/2024/11/20/willis-reed-the-basketball-100-book-excerpt/
+
+**Cowboys' offensive roster questions for final 7 games: Trey Lance's value to be determined**\
+`Is Rico Dowdle part of Dallas' future? How does the O-line come together? Is the WR group what the Cowboys want it to be?`\
+https://nytimes.com/athletic/5933774/2024/11/20/cowboys-offense-future-questions-trey-lance/
+
+**Panthers CB Jaycee Horn has been strapping in opposing receivers since South Carolina**\
+`Jaycee Horn and Israel Mukuamu came up with the seat belt gesture before a South Carolina game in 2020. Now, Horn sees it everywhere.`\
+https://nytimes.com/athletic/5928467/2024/11/20/panthers-jaycee-horn-cornerback-seat-belt-gesture/
+
+**Tarik Skubal is on the cusp of a Cy Young. His teammates know exactly how he got here**\
+`All season — and really, for the better part of six years in the Tigers system — Skubal has marveled fans and teammates alike.`\
+https://nytimes.com/athletic/5930498/2024/11/20/detroit-tigers-tarik-skubal-cy-young-ascension/
+
 **How to Add Extra Security Layers to Your Phone or Tablet**\
 `New features in Apple’s iOS 18 and Google’s Android 15 can lock up apps with sensitive information and even hide them from view.`\
 https://nytimes.com/2024/11/20/technology/personaltech/security-iphone-android.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/11/20/movies/wicked-movie-singalong-debate.html
 **Trump Promises Clean Water. Will He Clean Up ‘Forever Chemicals’?**\
 `Public health advocates worry that Donald Trump could unravel federal clean water efforts, including restrictions on lead pipes and chemicals known as PFAS.`\
 https://nytimes.com/2024/11/20/climate/trump-pfas-lead-clean-water.html
-
-**Harris Loss Has Democrats Fighting Over How to Talk About Transgender Rights**\
-`Kamala Harris left Donald J. Trump’s anti-transgender attack ads largely unanswered. Some Democrats call it political malpractice.`\
-https://nytimes.com/2024/11/20/us/politics/presidential-campaign-transgender-rights.html
-
-**I Never Panic. I’m Panicking Now.**\
-`With Trump’s return, we are all about to find out how vulnerable we really are.`\
-https://nytimes.com/2024/11/20/opinion/trump-deportation-immigration.html
-
-**Is Your School’s Dress Code Biased?**\
-`Do students of certain genders, races, cultures or body types seem to be reprimanded more often than others?`\
-https://nytimes.com/2024/11/20/learning/is-your-schools-dress-code-biased.html
-
-**As Trump Pushes Peace, Russia Intensifies Assaults on Ukraine**\
-`Overextended and exhausted, Ukrainian forces lack manpower and artillery against Russian forces willing to absorb staggering casualties.`\
-https://nytimes.com/2024/11/20/world/europe/russia-ukraine-war-attacks-trump.html
 
