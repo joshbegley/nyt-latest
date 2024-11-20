@@ -1,3 +1,15 @@
+**Migrant Found Guilty of Killing Laken Riley**\
+`Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Ms. Riley, a Georgia nursing student.`\
+https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
+
+**Eagles' Bryce Huff to have surgery on wrist, miss several weeks: Sources**\
+`Huff injured his wrist during warmups before a Week 9 win against the Jacksonville Jaguars.`\
+https://nytimes.com/athletic/5935523/2024/11/20/eagles-bryce-huff-wrist-surgery/
+
+**Trump picks Matthew Whitaker, ex-acting attorney general, as his ambassador to NATO.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2024/11/20/us/trump-news-gaetz/matthew-whitaker-nato-ambassador-trump
+
 **Is Martin Necas a Hart Trophy contender?**\
 `Here the pros and cons of Necas' potential MVP candidacy.`\
 https://nytimes.com/athletic/5935533/2024/11/20/martin-necas-hart-trophy-hurricanes/
