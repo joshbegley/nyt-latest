@@ -1,3 +1,7 @@
+**Word of the Day: boomerang**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/20/learning/word-of-the-day-boomerang.html
+
 **Real Madrid's selection dilemma: Valverde at right-back, Tchouameni in defence, 'untouchable' Bellingham**\
 `Madrid are experiencing an injury crisis. So who should Ancelotti select in a busy winter schedule?`\
 https://nytimes.com/athletic/5932800/2024/11/20/real-madrid-starting-xi-injuries/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5929563/2024/11/20/aston-villa-unai-emery-internati
 **Breaking down Evan Ferguson's struggles, and future, at Brighton**\
 `The prodigious young striker went nearly a year without scoring a goal - how did his career stutter and what lies ahead for him?`\
 https://nytimes.com/athletic/5863495/2024/11/20/evan-ferguson-brighton-hurzeler-goals/
-
-**In search of depth scoring, Wild get big night from Johansson-Rossi-Hartman line**\
-`The Wild's new second line created two goals while the first line lived up to the hype against the Blues.`\
-https://nytimes.com/athletic/5934400/2024/11/20/wild-depth-scoring-rossi-brodin-blues/
 
