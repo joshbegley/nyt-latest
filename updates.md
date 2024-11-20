@@ -1,3 +1,7 @@
+**'I have to play better': Nuggets' Jamal Murray bounces back, opens up about Olympics, struggles**\
+`Murray hadn't looked like himself for months, including during the Olympics. But his aggressiveness on Tuesday night was a welcome sign.`\
+https://nytimes.com/athletic/5934460/2024/11/20/jamal-murray-denver-nuggets-interview/
+
 **Should the Giants trade Camilo Doval? The pros and cons**\
 `Doval has the kind of skill-set teams with pennant aspirations covet. Are the Giants one of those teams? Or should they look to deal him?`\
 https://nytimes.com/athletic/5932476/2024/11/20/sf-giants-camilo-doval-trade-possibilities/
