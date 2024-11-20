@@ -1,3 +1,11 @@
+**The State of Punditry - part 1: How analysis has changed - and is it better?**\
+`In the first of a three-part series, we examine what fans demand of TV analysis and how broadcasters have responded`\
+https://nytimes.com/athletic/5932487/2024/11/20/football-punditry-lineker-neville-carragher/
+
+**The Premier League Owners: Five from UK remain - but for how much longer?**\
+`The days of lifelong fans and those who made money in toilet paper being in charge of their clubs is long gone - British owners are sparse`\
+https://nytimes.com/athletic/5917674/2024/11/20/premier-league-owners-british-uk/
+
 **Fantasy basketball roundup: Giving thanks to Dyson Daniels, Tari Eason and ... Cam Reddish?**\
 `With Thanksgiving just around the corner, Stan Son shares what he is most thankful for early on in this fantasy basketball campaign.`\
 https://nytimes.com/athletic/5932788/2024/11/20/fantasy-basketball-roundup-dyson-daniels-tari-eason/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump-g20.html
 **Yohe's 10 observations: Penguins' nightmare season keeps getting worse**\
 `The Penguins blew yet another two-goal lead and fell 3-2 to the Lightning in overtime on Tuesday. `\
 https://nytimes.com/athletic/5934269/2024/11/20/penguins-lightning-puljujarvi-rakell/
-
-**Fantasy football rankings Week 12: Sleepers, projections, starts, Bo Nix, Rome Odunze**\
-`In this bye-heavy week, Jake Ciely offers detailed game breakdowns, rankings, sleepers and more to help maximize your Week 12 lineup.`\
-https://nytimes.com/athletic/5933388/2024/11/20/fantasy-football-rankings-week-12-sleepers-projections-starts-bo-nix-rome-odunze/
-
-**World Leaders Seek Stability With China as Biden Exits the Stage**\
-`The return to power of President-elect Donald J. Trump, who has vowed to confront China on tariffs, has created deep uncertainty about the U.S. role in avoiding global conflicts.`\
-https://nytimes.com/2024/11/20/us/politics/trump-world-leaders-china-xi-stability.html
 

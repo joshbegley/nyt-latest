@@ -1,3 +1,11 @@
+**Explained: Arsenal's evolving hierarchy - and how Edu's exit might affect it**\
+`There has been stability at Arsenal in the five years since Mikel Arteta took charge but there have been changes to the setup above him`\
+https://nytimes.com/athletic/5916762/2024/11/20/arsenal-structure-arteta-garlick-edu/
+
+**West Ham's goalkeeper debate: Has Fabianski got an opportunity to steal Areola's spot?**\
+`Alphonse Areola has struggled with the demands of Julen Lopetegui's system — is this an opportunity for Lukasz Fabianski?`\
+https://nytimes.com/athletic/5931608/2024/11/20/west-ham-goalkeeper-fabianski-areola/
+
 **The State of Punditry - part 1: How analysis has changed - and is it better?**\
 `In the first of a three-part series, we examine what fans demand of TV analysis and how broadcasters have responded`\
 https://nytimes.com/athletic/5932487/2024/11/20/football-punditry-lineker-neville-carragher/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5919275/2024/11/20/croydon-athletic-stormzy-zaha-cr
 **Ruben Amorim's backroom staff: Who they are and what they do**\
 `Amorim has brought six members of backroom staff to United from Portugal. We spoke to previous colleagues to find out more about them`\
 https://nytimes.com/athletic/5932085/2024/11/20/ruben-amorim-man-united-coaching-staff/
-
-**Wednesday Briefing**\
-`The 1,000th day of war in Ukraine.`\
-https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump-g20.html
-
-**Yohe's 10 observations: Penguins' nightmare season keeps getting worse**\
-`The Penguins blew yet another two-goal lead and fell 3-2 to the Lightning in overtime on Tuesday. `\
-https://nytimes.com/athletic/5934269/2024/11/20/penguins-lightning-puljujarvi-rakell/
 
