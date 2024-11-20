@@ -1,3 +1,7 @@
+**Canada tops Suriname with ease to advance to Nations League Finals**\
+`The win sends Canada back to the Nations League Finals during the next international window in March 2025.`\
+https://nytimes.com/athletic/5934115/2024/11/19/canada-suriname-concacaf-results-analysis/
+
 **Roster protection deadline: Owen Caissie, Tink Hence, Zac Veen and other notable additions**\
 `A look at the most notable prospects protected from this year's Rule 5 draft.`\
 https://nytimes.com/athletic/5933951/2024/11/19/roster-protection-deadline-owen-caissie-tink-hence-zac-veen-and-other-notable-additions/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933929/2024/11/19/joe-douglas-new-york-jets-gm-fir
 **What the CFP committee should do with the SEC logjam**\
 `Should the College Football Playoff rankings be about the eye test, the team's record or what?`\
 https://nytimes.com/athletic/5933952/2024/11/19/college-football-playoff-committee-sec/
-
-**Trump Chooses Longtime Ally Linda McMahon to Run Education Dept.**\
-`A friend and financial backer of Donald J. Trump’s, Ms. McMahon, who led the Small Business Administration during his first term, remained close to him during the campaign.`\
-https://nytimes.com/2024/11/19/us/politics/linda-mcmahon-education-secretary-trump.html
 
