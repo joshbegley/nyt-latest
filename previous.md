@@ -1,3 +1,27 @@
+**Wilfried Nancy named MLS Coach of the Year**\
+`This is Nancy’s first COY award after finishing runner-up twice, first in 2022 while with CF Montreal and again last season.`\
+https://nytimes.com/athletic/5935079/2024/11/20/wilfried-nancy-mls-coy-columbus-crew/
+
+**Heat Today: Despite slow shooting start, Duncan Robinson remains invaluable to Heat offense**\
+`Duncan Robinson's shooting has been cold so far, but he remains uniquely valuable to Miami.`\
+https://nytimes.com/athletic/5934845/2024/11/20/duncan-robinson-jimmy-butler-tyler-herro-bam-adebayo-miami-heat/
+
+**Unrivaled rosters revealed: Full teams, coaches for upstart women’s league**\
+`Unrivaled’s first season begins on Jan. 17.`\
+https://nytimes.com/athletic/5933275/2024/11/20/unrivaled-rosters-revealed-full-teams-coaches-tv-information-for-upstart-womens-league/
+
+**U.S. Vetoes Gaza Cease-Fire Resolution at U.N. Security Council**\
+`The U.S., which has previously blocked four other resolutions, said it vetoed the most recent version because it did not make the release of hostages a precondition for a truce.`\
+https://nytimes.com/2024/11/20/world/middleeast/us-veto-gaza-ceasefire.html
+
+**Turkey, Stuffing and a Side of Politics**\
+`How to avoid a contentious family holiday after the big election.`\
+https://nytimes.com/2024/11/20/well/family/holiday-politics-talk-harris-trump.html
+
+**This Might Just Be the Easiest, Plushest Tomato Soup There Is**\
+`By Melissa Clark`\
+https://nytimes.com/2024/11/20/dining/easiest-tomato-soup.html
+
 **Vance Courts Senate With Trump’s Most Controversial Cabinet Picks**\
 `Vice President-elect JD Vance was on Capitol Hill with Matt Gaetz, picked for attorney general, and Pete Hegseth, the Fox News host who is up for secretary of defense.`\
 https://nytimes.com/2024/11/20/us/politics/jd-vance-senators-gaetz-hegseth.html
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/5932811/2024/11/20/nhl-sidney-crosby-playoff-drough
 **Misdemeanour charges against Marinakis are 'blackmail', say Olympiacos**\
 `Olympiacos have labelled charges against owner Evangelos Marinakis and other club executives as &#8220;blackmail&#8221; and &#8220;fuelled by political interests&#8221;.`\
 https://nytimes.com/athletic/5934743/2024/11/20/olympiacos-evangelos-marinakis-blackmail/
-
-**Ugandan Opposition Leader Who Was ‘Kidnapped’ in Kenya Turns Up in Court**\
-`Kizza Besigye, a former presidential candidate, went missing over the weekend as he visited the Kenyan capital, reappearing days later in military custody back in Uganda.`\
-https://nytimes.com/2024/11/20/world/africa/uganda-opposition-leader-kidnapped-court.html
-
-**Gary Wang, a Top FTX Executive, Is Given No Prison Time**\
-`Mr. Wang is the last close colleague of the FTX founder Sam Bankman-Fried to be sentenced for the fraud that caused the crypto exchange to collapse in 2022.`\
-https://nytimes.com/2024/11/20/technology/gary-wang-ftx-sentence.html
-
-**Diane Coleman, 71, Dies; Fiercely Opposed the Right-to-Die Movement**\
-`Her fight for disability rights included founding a group called Not Dead Yet, which protested the work of Dr. Jack Kevorkian and others.`\
-https://nytimes.com/2024/11/20/us/diane-coleman-dead.html
-
-**Thompson: Draymond Green, others pay the price for being the NBA's old men on D**\
-`The league's best defenders usually peak in their 30s. It takes grueling work to keep up with young offensive stars.`\
-https://nytimes.com/athletic/5934474/2024/11/20/nba-defense-old-draymond-green-alex-caruso/
-
-**Moving Arsenal vs Bayern to Meadow Park 'a bump in the road', says Slegers**\
-`Arsenal interim head coach Renee Slegers has described the movement of their Champions League match with Bayern Munich from the Emirates Stadium to Meadow Park as a “bump in the road” in the club’s desire to push women’s football forward.`\
-https://nytimes.com/athletic/5935087/2024/11/20/arsenal-bayern-meadow-park-slegers/
-
-**The Clippers conundrum: Can LA remain competitive while also developing talent?**\
-`The Clippers have a winning record. But should they be prioritizing young players like Jordan Miller and Kobe Brown?`\
-https://nytimes.com/athletic/5934454/2024/11/20/clippers-jordan-miller-development-nba/
 
