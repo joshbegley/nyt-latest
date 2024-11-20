@@ -1,3 +1,7 @@
+**How Howard Lutnick Could Shake Up Global Trade**\
+`President-elect Donald Trump’s pick to run the Commerce Department would have a big say on American industrial policy and tariffs.`\
+https://nytimes.com/2024/11/20/business/dealbook/howard-lutnick-commerce-secretary-trump.html
+
 **'I have to play better': Nuggets' Jamal Murray bounces back, then opens up on struggles**\
 `Murray hadn't looked like himself for months, including during the Olympics. But his aggressiveness on Tuesday night was a welcome sign.`\
 https://nytimes.com/athletic/5934460/2024/11/20/jamal-murray-denver-nuggets-interview/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933361/2024/11/20/raiders-quarterback-nfl-draft-20
 **Hennessy Workers Strike Over Plans to Bottle Cognac in China**\
 `The walkout in France is the latest development in a simmering trade war between Europe and China.`\
 https://nytimes.com/2024/11/20/business/china-france-hennessy-lvmh-strike.html
-
-**The Final Push for Ukraine?**\
-`We explore recent events in the war — and what could come next.`\
-https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump.html
 
