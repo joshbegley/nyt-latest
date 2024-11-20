@@ -1,3 +1,7 @@
+**FC Dallas appoints Eric Quill as head coach**\
+`The 46-year-old will take over for interim coach Peter Luccin, who was appointed in June after the team fired Nico Estevez.`\
+https://nytimes.com/athletic/5935700/2024/11/20/eric-quill-fc-dallas-coach-mls/
+
 **Trump’s Education Secretary Pick Has a Short Résumé Related to Schools**\
 `Linda McMahon is known for her many years in the wrestling world. Though her education experience is more limited than previous secretaries, she has embraced both conservative and bipartisan ideas.`\
 https://nytimes.com/2024/11/20/us/linda-mcmahon-trump-education-secretary.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/nyregion/christopher-brown-synagogue-terror-sente
 **Why Blue Jackets' Cayden Lindstrom needed back surgery, and how his recovery might go**\
 `Lindstrom's back has been an issue since before the Blue Jackets drafted him in June.`\
 https://nytimes.com/athletic/5935507/2024/11/20/cayden-lindstrom-blue-jackets-back-surgery/
-
-**Past Nominees Have Been Undone by Far Less Than What Surrounds Trump Picks**\
-`Back taxes, youthful pot smoking and undocumented nannies scuttled previous presidential choices. Some of President-elect Donald J. Trump’s candidates face bigger questions.`\
-https://nytimes.com/2024/11/20/us/politics/trump-cabinet-matt-gaetz-sexual-misconduct.html
 

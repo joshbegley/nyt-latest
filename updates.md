@@ -1,3 +1,7 @@
+**FC Dallas appoints Eric Quill as head coach**\
+`The 46-year-old will take over for interim coach Peter Luccin, who was appointed in June after the team fired Nico Estevez.`\
+https://nytimes.com/athletic/5935700/2024/11/20/eric-quill-fc-dallas-coach-mls/
+
 **Trump’s Education Secretary Pick Has a Short Résumé Related to Schools**\
 `Linda McMahon is known for her many years in the wrestling world. Though her education experience is more limited than previous secretaries, she has embraced both conservative and bipartisan ideas.`\
 https://nytimes.com/2024/11/20/us/linda-mcmahon-trump-education-secretary.html
