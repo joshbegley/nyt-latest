@@ -1,3 +1,15 @@
+**Ex-England, Chelsea coach Holland set to take over at Yokohama F. Marinos**\
+`Former England and Chelsea assistant Steve Holland is set to be appointed head coach of Japanese top-flight side Yokohama F.`\
+https://nytimes.com/athletic/5934530/2024/11/20/steve-holland-yokohama-f-marinos/
+
+**Wordle Review No. 1,251**\
+`Scroll down for hints and conversation about the puzzle for Nov. 21, 2024.`\
+https://nytimes.com/2024/11/20/crosswords/wordle-review-1251.html
+
+**How Retirement Rules Might (or Might Not) Change Under Trump**\
+`Readers had questions about individual retirement accounts, distributions and access to brokerage accounts if they moved away from the U.S. Here are some answers.`\
+https://nytimes.com/2024/11/20/business/trump-retirement-ira-401k-social-security.html
+
 **Pulisic and the Trump dance - and why true leaders consider the impact of their actions**\
 `The furore over his Trump-inspired goal celebration may teach U.S. Soccer's leading light that leadership leaves little room for gray areas`\
 https://nytimes.com/athletic/5934687/2024/11/20/christian-pulisic-donald-trump-dance-usmnt/
