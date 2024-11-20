@@ -22,8 +22,8 @@ https://nytimes.com/2024/11/20/crosswords/spelling-bee-forum.html
 `Boston ended Cleveland's undefeated start to the season, but the Cavs were ready to learn lessons to prepare them for the big goal.`\
 https://nytimes.com/athletic/5934467/2024/11/20/celtics-end-cavs-undefeated-start/
 
-**600,000 Without Power in Washington State as Powerful Winds Topple Trees**\
-`A storm system approaching the Northwest with hurricane-force winds was expected to drench the region with rain.`\
+**300,000 Without Power in Washington State as Storm Topples Trees**\
+`A storm system approaching the Northwest with hurricane-force winds was expected to drench the region with rain. At least one death was reported.`\
 https://nytimes.com/2024/11/20/us/washington-storm-power-outage.html
 
 **U.S. Closes Its Kyiv Embassy, Warning of ‘Significant Air Attack’**\
