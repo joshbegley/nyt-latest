@@ -1,3 +1,7 @@
+**Trump’s Education Secretary Pick Has a Short Résumé Related to Schools**\
+`Linda McMahon is known for her many years in the wrestling world. Though her education experience is more limited than previous secretaries, she has embraced both conservative and bipartisan ideas.`\
+https://nytimes.com/2024/11/20/us/linda-mcmahon-trump-education-secretary.html
+
 **The Bathrooms of the Capitol Are Now Unsafe Spaces**\
 `Republicans are exploiting juvenile gossip and unfounded fears of sexual violence.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/republicans-transgender-bathroom-mace
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5935507/2024/11/20/cayden-lindstrom-blue-jackets-ba
 **Past Nominees Have Been Undone by Far Less Than What Surrounds Trump Picks**\
 `Back taxes, youthful pot smoking and undocumented nannies scuttled previous presidential choices. Some of President-elect Donald J. Trump’s candidates face bigger questions.`\
 https://nytimes.com/2024/11/20/us/politics/trump-cabinet-matt-gaetz-sexual-misconduct.html
-
-**Cavs' ownership group launches bid for WNBA team in Cleveland**\
-`If Cleveland’s bid is successful, its new women’s team would play at Rocket Mortgage Fieldhouse.`\
-https://nytimes.com/athletic/5935575/2024/11/20/cleveland-wnba-expansion-team/
 
