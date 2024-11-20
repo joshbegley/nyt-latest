@@ -1,3 +1,7 @@
+**What’s in Our Queue? Abigail Rose and More**\
+`By Karen Weise`\
+https://nytimes.com/card/2024/11/20/arts/editors-recommendations-abigailrose
+
 **Bacteria Found in Tom’s of Maine Toothpaste, Inspectors Say**\
 `The U.S. Food and Drug Administration issued a warning letter, but not a recall, after microorganisms were found in water samples and finished toothpaste products.`\
 https://nytimes.com/2024/11/20/health/toms-of-maine-toothpaste-mold-bacteria.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5935575/2024/11/20/cleveland-wnba-expansion-team/
 **Migrant Found Guilty of Killing Laken Riley**\
 `Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Laken Riley, a nursing student.`\
 https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
-
-**Eagles' Bryce Huff to have surgery on wrist, miss several weeks: Sources**\
-`Huff injured his wrist during warmups before a Week 9 win against the Jacksonville Jaguars.`\
-https://nytimes.com/athletic/5935523/2024/11/20/eagles-bryce-huff-wrist-surgery/
 

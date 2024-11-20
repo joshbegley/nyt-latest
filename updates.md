@@ -1,3 +1,7 @@
+**What’s in Our Queue? Abigail Rose and More**\
+`By Karen Weise`\
+https://nytimes.com/card/2024/11/20/arts/editors-recommendations-abigailrose
+
 **Bacteria Found in Tom’s of Maine Toothpaste, Inspectors Say**\
 `The U.S. Food and Drug Administration issued a warning letter, but not a recall, after microorganisms were found in water samples and finished toothpaste products.`\
 https://nytimes.com/2024/11/20/health/toms-of-maine-toothpaste-mold-bacteria.html
