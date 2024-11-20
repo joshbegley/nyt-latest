@@ -1,3 +1,7 @@
+**Which Candidate Did They Vote For? Read Their Shirts.**\
+`In the aftermath of the presidential election, voters are reaching for merchandise and political symbols either to celebrate the results or to make clear their opposition.`\
+https://nytimes.com/2024/11/20/style/blue-bracelets-maga-hats-trump-harris.html
+
 **Jessica Tisch, Sanitation Chief, Is Appointed N.Y.P.D. Commissioner**\
 `Ms. Tisch, a member of a prominent New York family who has held several positions in city government, will take over the nation’s largest police department.`\
 https://nytimes.com/2024/11/20/nyregion/jessica-tisch-nypd-commissioner.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5934648/2024/11/20/rafael-nadal-retires-tennis-care
 **Texas Puts More Buoy Barriers in the Rio Grande to Block Migrants**\
 `The move by Gov. Greg Abbott, flouting a federal challenge, signaled that Texas expects to have a freer hand on the border under President-elect Donald J. Trump.`\
 https://nytimes.com/2024/11/20/us/texas-rio-grande-buoy-abbott.html
-
-**Bill Moyes, Australian ‘Birdman’ Who Popularized Hang Gliding, Dies at 92**\
-`A modern-day Icarus, he set a world record for the longest unassisted flight, was arrested after soaring into the Grand Canyon and nearly killed himself several times.`\
-https://nytimes.com/2024/11/20/sports/bill-moyes-dead.html
 

@@ -1,3 +1,7 @@
+**Which Candidate Did They Vote For? Read Their Shirts.**\
+`In the aftermath of the presidential election, voters are reaching for merchandise and political symbols either to celebrate the results or to make clear their opposition.`\
+https://nytimes.com/2024/11/20/style/blue-bracelets-maga-hats-trump-harris.html
+
 **Jessica Tisch, Sanitation Chief, Is Appointed N.Y.P.D. Commissioner**\
 `Ms. Tisch, a member of a prominent New York family who has held several positions in city government, will take over the nation’s largest police department.`\
 https://nytimes.com/2024/11/20/nyregion/jessica-tisch-nypd-commissioner.html
