@@ -1,3 +1,11 @@
+**Diane Coleman, 71, Dies; Fiercely Opposed the Right-to-Die Movement**\
+`Her fight for disability rights included founding a group called Not Dead Yet, which protested the work of Dr. Jack Kevorkian and others.`\
+https://nytimes.com/2024/11/20/us/diane-coleman-dead.html
+
+**Thompson: Draymond Green, others pay the price for being the NBA's old men on D**\
+`The league's best defenders usually peak in their 30s. It takes grueling work to keep up with young offensive stars.`\
+https://nytimes.com/athletic/5934474/2024/11/20/nba-defense-old-draymond-green-alex-caruso/
+
 **Moving Arsenal vs Bayern to Meadow Park 'a bump in the road', says Slegers**\
 `Arsenal interim head coach Renee Slegers has described the movement of their Champions League match with Bayern Munich from the Emirates Stadium to Meadow Park as a “bump in the road” in the club’s desire to push women’s football forward.`\
 https://nytimes.com/athletic/5935087/2024/11/20/arsenal-bayern-meadow-park-slegers/
