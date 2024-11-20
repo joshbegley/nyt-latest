@@ -1,3 +1,11 @@
+**How to Win Latino Voters**\
+`A conversation with a Democrat who did.`\
+https://nytimes.com/2024/11/20/us/politics/latino-voters-gallego.html
+
+**What to Know About Nvidia’s High-Stakes Earnings Report**\
+`Investors have high hopes for the chipmaker, the world’s most valuable company, which has enormous influence over the stock market.`\
+https://nytimes.com/2024/11/20/business/dealbook/nvidia-earnings-stock-market.html
+
 **Venezuelan Migrant Found Guilty of Killing Laken Riley in Georgia**\
 `The verdict followed a four-day bench trial in which prosecutors detailed a violent attack that became a flashpoint in the bitter national debate over immigration policy.`\
 https://nytimes.com/2024/11/20/us/venezuelan-migrant-guilty-killing-laken-riley-georgia.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5935226/2024/11/20/jets-bench-aaron-rodgers-star-co
 **Does Anyone Trust the Government?**\
 `Cynicism is rampant across the political spectrum.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/government-trust-cynicism
-
-**Wisconsin players react to Phil Longo's dismissal: 'A shock to all of us'**\
-`The Badgers have consistently said the right things despite the lack of results, though frustration clearly began to show of late.`\
-https://nytimes.com/athletic/5935190/2024/11/20/wisconsin-badgers-luke-fickell-offensive-coordinator/
-
-**Ford to Cut 4,000 Jobs in Europe as Electric Vehicle Sales Slow**\
-`The American automaker said the cost-cutting measure would help it compete with Chinese rivals in the face of slowing demand for electric vehicles.`\
-https://nytimes.com/2024/11/20/business/ford-layoffs-europe.html
 
