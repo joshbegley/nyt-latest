@@ -1,3 +1,7 @@
+**Bacteria Found in Tom’s of Maine Toothpaste, Inspectors Say**\
+`The U.S. Food and Drug Administration issued a warning letter, but not a recall, after microorganisms were found in water samples and finished toothpaste products.`\
+https://nytimes.com/2024/11/20/health/toms-of-maine-toothpaste-mold-bacteria.html
+
 **Cubs swing deal for Guardians reliever Eli Morgan: Sources**\
 `Over 42 innings in 2024, Morgan posted a 1.93 ERA (212 ERA+) as one of Cleveland's most trusted bullpen arms.`\
 https://nytimes.com/athletic/5935633/2024/11/20/eli-morgan-chicago-cubs-trade/
@@ -23,14 +27,10 @@ https://nytimes.com/2024/11/20/us/politics/trump-cabinet-matt-gaetz-sexual-misco
 https://nytimes.com/athletic/5935575/2024/11/20/cleveland-wnba-expansion-team/
 
 **Migrant Found Guilty of Killing Laken Riley**\
-`Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Ms. Riley, a nursing student.`\
+`Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Laken Riley, a nursing student.`\
 https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
 
 **Eagles' Bryce Huff to have surgery on wrist, miss several weeks: Sources**\
 `Huff injured his wrist during warmups before a Week 9 win against the Jacksonville Jaguars.`\
 https://nytimes.com/athletic/5935523/2024/11/20/eagles-bryce-huff-wrist-surgery/
-
-**Trump Picks Matthew Whitaker to Be His Ambassador to NATO**\
-`Mr. Whitaker briefly served as acting attorney general in Mr. Trump’s first term.`\
-https://nytimes.com/2024/11/20/us/politics/matthew-whitaker-nato-ambassador-trump.html
 
