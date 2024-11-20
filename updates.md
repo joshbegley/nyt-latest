@@ -1,3 +1,15 @@
+**2025 NFL Draft consensus Big Board: Ashton Jeanty joins Travis Hunter in top 5**\
+`Last week, The Athletic's Dane Brugler released his updated top 50. How does the consensus board compare?`\
+https://nytimes.com/athletic/5935073/2024/11/20/nfl-draft-2025-consensus-rankings-travis-hunter/
+
+**LPGA to offer record-breaking prize money in 2025**\
+`That figure marks an additional $62 million since 2021, totaling a 90 percent increase in the total prize pool.`\
+https://nytimes.com/athletic/5935454/2024/11/20/lpga-prize-money-2025/
+
+**NWSL Championship: How Orlando Pride and Washington Spirit match up**\
+`The Athletic breaks down how the top two teams in NWSL ended up in the final`\
+https://nytimes.com/athletic/5934908/2024/11/20/nwsl-championship-orlando-pride-washington-spirit-matchup/
+
 **Weed for PTSD? Eager for Better Cannabis Science, F.D.A. Clears Study.**\
 `The decision is the latest sign that federal health officials want more research on medical marijuana as its use grows.`\
 https://nytimes.com/2024/11/20/us/marijuana-ptsd-cannabis-science-fda-study.html
