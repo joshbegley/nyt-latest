@@ -1,3 +1,7 @@
+**Real Madrid's selection dilemma: Valverde at right-back, Tchouameni in defence, 'untouchable' Bellingham**\
+`Madrid are experiencing an injury crisis. So who should Ancelotti select in a busy winter schedule?`\
+https://nytimes.com/athletic/5932800/2024/11/20/real-madrid-starting-xi-injuries/
+
 **Julian Nagelsmann has created a Germany team its public like - and believe in**\
 `On and off pitch, Nagelsmann and his squad have re-engaged a disinterested public with their national team. 2024 has been quite the year`\
 https://nytimes.com/athletic/5933351/2024/11/20/julian-nagelsmann-germany-transformed-public/

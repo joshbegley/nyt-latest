@@ -1,3 +1,7 @@
+**Real Madrid's selection dilemma: Valverde at right-back, Tchouameni in defence, 'untouchable' Bellingham**\
+`Madrid are experiencing an injury crisis. So who should Ancelotti select in a busy winter schedule?`\
+https://nytimes.com/athletic/5932800/2024/11/20/real-madrid-starting-xi-injuries/
+
 **Julian Nagelsmann has created a Germany team its public like - and believe in**\
 `On and off pitch, Nagelsmann and his squad have re-engaged a disinterested public with their national team. 2024 has been quite the year`\
 https://nytimes.com/athletic/5933351/2024/11/20/julian-nagelsmann-germany-transformed-public/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5863495/2024/11/20/evan-ferguson-brighton-hurzeler-
 **In search of depth scoring, Wild get big night from Johansson-Rossi-Hartman line**\
 `The Wild's new second line created two goals while the first line lived up to the hype against the Blues.`\
 https://nytimes.com/athletic/5934400/2024/11/20/wild-depth-scoring-rossi-brodin-blues/
-
-**Explained: Arsenal's evolving hierarchy - and how Edu's exit might affect it**\
-`There has been stability at Arsenal in the five years since Mikel Arteta took charge but there have been changes to the setup above him`\
-https://nytimes.com/athletic/5916762/2024/11/20/arsenal-structure-arteta-garlick-edu/
 
