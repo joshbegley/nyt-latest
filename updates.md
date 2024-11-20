@@ -1,3 +1,7 @@
+**Long Tied to Russia, Georgia’s Winemakers Tip a Glass to the West**\
+`Some vintners in the former Soviet republic are seeking to break a politically risky dependence on Russia and focus more on high-value European and American markets.`\
+https://nytimes.com/2024/11/20/world/europe/georgia-russia-wine-sanctions.html
+
 **Newcastle owners invest further £35m into club via share issue**\
 `Newcastle United&#8217;s owners have injected a further £35million ($44.`\
 https://nytimes.com/athletic/5934542/2024/11/20/newcastle-share-investment-owners/
