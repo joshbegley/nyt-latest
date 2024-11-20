@@ -1,3 +1,27 @@
+**2025 NFL Draft order projections: Cowboys, Bears tumbling toward top-10 picks**\
+`How did Week 11 shake up the potential 2025 NFL Draft order?`\
+https://nytimes.com/athletic/5932215/2024/11/20/nfl-draft-2025-order-projections-cowboys-bears/
+
+**The Business of Football: Would-be Reading owner speaks, sleepless in Swansea and a BBC boost**\
+`Matt Slater has news from around the EFL, as well as a development in the battle between the UK's two main broadcasters of radio sport`\
+https://nytimes.com/athletic/5927707/2024/11/20/business-of-football-reading-swansea-bbc/
+
+**Man City's latest documentary may tell us more about Guardiola than anything before**\
+`There are tears, tantrums and Guardiola on the edge in City's fifth documentary - it could well be the most riveting of them all `\
+https://nytimes.com/athletic/5932658/2024/11/20/man-citys-latest-documentary-may-tell-us-more-about-guardiola-than-anything-before/
+
+**Lowetide: Why have the Oilers been failing offensively?**\
+`Outscoring is the goal, and after 20 games, the Oilers have plenty of work to do in that area.`\
+https://nytimes.com/athletic/5932516/2024/11/20/edmonton-oilers-stats-scoring-2024/
+
+**Can the Raiders get the QB they need in the 2025 NFL Draft? If not, where should they turn?**\
+`If the Raiders can't get their quarterback of the future early in the draft, there are some intriguing options at other positions of need.`\
+https://nytimes.com/athletic/5933361/2024/11/20/raiders-quarterback-nfl-draft-2025/
+
+**Hennessy Workers Strike Over Plans to Bottle Cognac in China**\
+`The walkout in France is the latest development in a simmering trade war between Europe and China.`\
+https://nytimes.com/2024/11/20/business/china-france-hennessy-lvmh-strike.html
+
 **The Final Push for Ukraine?**\
 `We explore recent events in the war — and what could come next.`\
 https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump.html
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/5931610/2024/11/20/pelicans-willie-green-injuries/
 **The Pulse: More Jets bombshells**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5932743/2024/11/20/jets-aaron-rodgers-bench-owner-the-pulse/
-
-**How Caleb Williams, Bears offense showed improvement under Thomas Brown**\
-`From quick screens to zone reads, Brown put Williams in a better position to succeed than we've seen. Our All-22 analysis.`\
-https://nytimes.com/athletic/5933055/2024/11/20/bears-caleb-williams-thomas-brown-offense/
-
-**Tottenham appeal Bentancur's seven-game ban for Son remark**\
-`Tottenham Hotspur have appealed against Rodrigo Bentancur’s seven-game ban for comments he made about team-mate Son Heung-min.`\
-https://nytimes.com/athletic/5934578/2024/11/20/rodrigo-bentancur-ban-appeal-tottenham/
-
-**Nick Martinez's return solidifies Reds' rotation**\
-`Despite spending time in the bullpen, Martinez’s 142 1/3 innings were the second-most on the team.`\
-https://nytimes.com/athletic/5934007/2024/11/20/reds-nick-martinez-return-rotation-impact/
-
-**Portzline: Blue Jackets can't continue on current development path with David Jiricek**\
-`The situation with Jiricek has been percolating behind the scenes for a couple of seasons in Columbus and there are no easy answers now. `\
-https://nytimes.com/athletic/5933188/2024/11/20/blue-jackets-david-jiricek-future/
-
-**What's ailing the Packers in the red zone? It's more than just one thing**\
-`The Packers rank 27th in the NFL in red zone touchdown percentage, their worst such clip under Matt LaFleur.`\
-https://nytimes.com/athletic/5932587/2024/11/20/packers-red-zone-problems/
-
-**The Appeal of the Smaller Breast**\
-`Why are increasing numbers of younger women undergoing the cosmetic reduction surgery?`\
-https://nytimes.com/2024/11/20/podcasts/the-daily/breast-reduction.html
 
