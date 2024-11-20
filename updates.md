@@ -1,3 +1,7 @@
+**Tottenham appeal Bentancur's seven-game ban for Son remark**\
+`Tottenham Hotspur have appealed against Rodrigo Bentancur’s seven-game ban for comments he made about team-mate Son Heung-min.`\
+https://nytimes.com/athletic/5934578/2024/11/20/rodrigo-bentancur-ban-appeal-tottenham/
+
 **Pelicans coach Willie Green faces crossroads as injured stars near their return**\
 `Green can't be blamed for the team's poor start among a rash of injuries. But when New Orleans is healthier, there's no time to waste.`\
 https://nytimes.com/athletic/5931610/2024/11/20/pelicans-willie-green-injuries/
