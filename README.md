@@ -1,3 +1,15 @@
+**Magritte, Master of Surrealism, Joins the $100 Million Dollar Club**\
+`Move over, Picasso, Van Gogh and Warhol. With an inscrutable painting,the Belgian painter breaks the nine-figure threshold at the fall auctions.`\
+https://nytimes.com/2024/11/19/arts/design/magritte-surrealism-christies-auction.html
+
+**Where will Jim Montgomery end up? 4 possible destinations**\
+`It's just a matter of time until Montgomery secures his next coaching job. In fact, a team might go out of its way to make room for him.`\
+https://nytimes.com/athletic/5933752/2024/11/19/jim-montgomery-coaching-destinations/
+
+**Melissa and Her Amazing Technicolor Dream Sides**\
+`Colorful and covetable: green beans with red onion and lime; maple roasted squash; red cabbage wedges with walnuts and feta.`\
+https://nytimes.com/2024/11/19/dining/melissa-clark-thanksgiving-side-dishes.html
+
 **Cubs add prospect Owen Caissie to 40-man roster, DFA ex-closer Adbert Alzolay**\
 `The Cubs reshaped their roster on Tuesday.`\
 https://nytimes.com/athletic/5933749/2024/11/19/cubs-roster-owen-caissie-dfa-adbert-alzolay/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/11/19/us/los-angeles-sanctuary-trump.html
 **A Dissident’s Final Act of Protest Stuns Iran**\
 `Repeatedly imprisoned in his country, Kianoosh Sanjari refused to be silenced by the government. But in the end, despairing of change, he silenced himself.`\
 https://nytimes.com/2024/11/19/world/middleeast/iran-kianoosh-sanjari-suicide.html
-
-**Phillies' quest for Andrew Painter placeholder takes shape as club makes 40-man roster adds**\
-`There are layers to this quest for back-of-the-rotation stability in 2025. `\
-https://nytimes.com/athletic/5933565/2024/11/19/phillies-40-man-roster-andrew-painter/
-
-**SpaceX Unable to Recover Booster Stage During Sixth Test Flight**\
-`President-elect Donald Trump joined Elon Musk in Texas and watched the launch from a nearby location on Tuesday. While the Starship’s giant booster stage was unable to repeat a “chopsticks” landing, the vehicle’s upper stage successfully splashed down in the Indian Ocean.`\
-https://nytimes.com/video/science/space/100000009834826/spacex-rocket-starship-elon-musk-trump.html
-
-**Where the Red Sox roster stands: Nick Pivetta declines QO, two prospects added**\
-`The Red Sox added Jhostynxon Garcia and Hunter Dobbins to the 40-man roster, and designated two pitching prospects for assignment.`\
-https://nytimes.com/athletic/5933581/2024/11/19/red-sox-roster-update-nick-pivetta/
 
