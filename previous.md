@@ -1,3 +1,7 @@
+**Jets owner Johnson suggested benching Aaron Rodgers in September: Sources**\
+`Johnson felt Rodgers' performance was holding the team back.`\
+https://nytimes.com/athletic/5933645/2024/11/19/aaron-rodgers-woody-johnson-benching-jets/
+
 **Why Joe Douglas never stood a chance as Jets GM**\
 `As owner Woody Johnson took on a bigger role running the Jets, the writing was on the wall.`\
 https://nytimes.com/athletic/5933929/2024/11/19/joe-douglas-new-york-jets-gm-fired/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933821/2024/11/19/rays-new-stadium-bonds-vote-dela
 **Iran Suggests Pausing Its High Levels of Uranium Enrichment to Avoid Censure, Monitor Says**\
 `Iran has raised the possibility it would stop expanding its stockpile of uranium enriched to a purity of 60 percent — very close to the level needed for a weapon, the U.N.’s nuclear watchdog says.`\
 https://nytimes.com/2024/11/19/world/middleeast/1iran-bomb-grade-nuclear-fuel.html
-
-**Giants notes: Advisory roles for Bobby Evans, Jeff Berry; two pitchers added to roster**\
-`The Giants added Carson Seymour and Carson Ragsdale to the roster ahead of the Rule 5 protection deadline. `\
-https://nytimes.com/athletic/5933829/2024/11/19/sf-giants-bobby-evans-jeff-berry-rule-5/
 

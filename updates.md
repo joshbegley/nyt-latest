@@ -1,3 +1,7 @@
+**Jets owner Johnson suggested benching Aaron Rodgers in September: Sources**\
+`Johnson felt Rodgers' performance was holding the team back.`\
+https://nytimes.com/athletic/5933645/2024/11/19/aaron-rodgers-woody-johnson-benching-jets/
+
 **Why Joe Douglas never stood a chance as Jets GM**\
 `As owner Woody Johnson took on a bigger role running the Jets, the writing was on the wall.`\
 https://nytimes.com/athletic/5933929/2024/11/19/joe-douglas-new-york-jets-gm-fired/
