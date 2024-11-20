@@ -1,3 +1,7 @@
+**‘We weren’t getting it done’: Bruins stars take the blame for Montgomery's firing**\
+`David Pastrnak: “Monty is a heck of a coach. He taught me and us a lot. It’s obviously a tough day. You feel a big part of guilt."`\
+https://nytimes.com/athletic/5936230/2024/11/20/bruins-players-react-jim-montgomery-firing/
+
 **Braves' Chris Sale wins NL Cy Young Award, his first in stellar comeback season**\
 `Sale's first season with the Braves was a masterpiece, as he finished with the NL's pitching triple crown and now its Cy Young Award.`\
 https://nytimes.com/athletic/5931255/2024/11/20/braves-chris-sale-nl-cy-young/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/style/coca-cola-holiday-ads-ai.html
 **Republicans Block Release of Gaetz Report**\
 `Also, Biden agreed to give Ukraine anti-personnel mines. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/11/20/briefing/republicans-block-release-gaetz-report-ukraine-mines.html
-
-**Newcastle 'seriously' considering new stadium as they consider St James' Park future**\
-`Newcastle United are &#8220;seriously&#8221; considering building a new stadium &#8220;that wouldn&#8217;t be far away&#8221;, alongside further exploring a potential renovation of St James&#8217; Park, according to the club&#8217;s chief operating officer (COO).`\
-https://nytimes.com/athletic/5936193/2024/11/20/newcastle-st-james-park-stadium-future/
 

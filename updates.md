@@ -1,3 +1,7 @@
+**‘We weren’t getting it done’: Bruins stars take the blame for Montgomery's firing**\
+`David Pastrnak: “Monty is a heck of a coach. He taught me and us a lot. It’s obviously a tough day. You feel a big part of guilt."`\
+https://nytimes.com/athletic/5936230/2024/11/20/bruins-players-react-jim-montgomery-firing/
+
 **Braves' Chris Sale wins NL Cy Young Award, his first in stellar comeback season**\
 `Sale's first season with the Braves was a masterpiece, as he finished with the NL's pitching triple crown and now its Cy Young Award.`\
 https://nytimes.com/athletic/5931255/2024/11/20/braves-chris-sale-nl-cy-young/
