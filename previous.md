@@ -1,3 +1,7 @@
+**The Athletic FC: Pep stays, Martino leaves; what's it like when you don't make it pro?**\
+`Today in TAFC: Guardiola set to stay but Martino resigns - what do these decisions mean for the future at Manchester City and Inter Miami?`\
+https://nytimes.com/athletic/5934667/2024/11/20/guardiola-martino-manchester-city-inter-miami/
+
 **Funeral Held for Liam Payne in England**\
 `The One Direction singer died at 31 last month after a fall from a balcony.`\
 https://nytimes.com/2024/11/20/arts/music/liam-payne-funeral.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/business/comcast-msnbc-cnbc-spinoff.html
 **How Howard Lutnick Could Shake Up Global Trade**\
 `President-elect Donald Trump’s pick to run the Commerce Department would have a big say on American industrial policy and tariffs.`\
 https://nytimes.com/2024/11/20/business/dealbook/howard-lutnick-commerce-secretary-trump.html
-
-**'I have to play better': Nuggets' Jamal Murray bounces back, then opens up about struggles**\
-`Murray hadn't looked like himself for months, including during the Olympics. But his aggressiveness on Tuesday night was a welcome sign.`\
-https://nytimes.com/athletic/5934460/2024/11/20/jamal-murray-denver-nuggets-interview/
 

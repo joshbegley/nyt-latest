@@ -1,3 +1,7 @@
+**The Athletic FC: Pep stays, Martino leaves; what's it like when you don't make it pro?**\
+`Today in TAFC: Guardiola set to stay but Martino resigns - what do these decisions mean for the future at Manchester City and Inter Miami?`\
+https://nytimes.com/athletic/5934667/2024/11/20/guardiola-martino-manchester-city-inter-miami/
+
 **Funeral Held for Liam Payne in England**\
 `The One Direction singer died at 31 last month after a fall from a balcony.`\
 https://nytimes.com/2024/11/20/arts/music/liam-payne-funeral.html
