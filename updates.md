@@ -1,3 +1,19 @@
+**Coca-Cola’s Holiday Ads Trade the ‘Real Thing’ for Generative A.I.**\
+`The company’s nostalgia-filled commercials are a holiday tradition, but this year’s ads are facing backlash for dipping into the uncanny valley.`\
+https://nytimes.com/2024/11/20/style/coca-cola-holiday-ads-ai.html
+
+**Republicans Block Release of Gaetz Report**\
+`Also, Biden agreed to give Ukraine anti-personnel mines. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/11/20/briefing/republicans-block-release-gaetz-report-ukraine-mines.html
+
+**Ukraine Fires British Long-Range Missiles Into Russia**\
+`Britain allowed Ukrainians to use Storm Shadows a week after President Biden authorized the use of American-made missiles inside Russia, a shift from a more cautious military strategy.`\
+https://nytimes.com/2024/11/20/us/politics/ukraine-russia-uk-storm-shadow-missiles.html
+
+**Bomb Cyclone Slams the Pacific Northwest**\
+`A deadly weather system left tens of thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, also battered Oregon and Northern California.`\
+https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington.html
+
 **Newcastle 'seriously' considering new stadium as they consider St James' Park future**\
 `Newcastle United are &#8220;seriously&#8221; considering building a new stadium &#8220;that wouldn&#8217;t be far away&#8221;, alongside further exploring a potential renovation of St James&#8217; Park, according to the club&#8217;s chief operating officer (COO).`\
 https://nytimes.com/athletic/5936193/2024/11/20/newcastle-st-james-park-stadium-future/
