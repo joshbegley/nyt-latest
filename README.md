@@ -1,3 +1,7 @@
+**Senators are at risk of having another November to forget: "It's frustrating"**\
+`The remaining schedule for November has the potential to doom the Senators again if they can't right their ship. `\
+https://nytimes.com/athletic/5934112/2024/11/19/senators-november-oilers-chabot-tkachuk/
+
 **After Years in a Hong Kong Jail, Jimmy Lai Has His Say in Court**\
 `The media tycoon, who is accused of masterminding pro-democracy protests, testified at his trial for the first time. He could be sent to prison for life.`\
 https://nytimes.com/2024/11/19/world/asia/jimmy-lai-hong-kong-trial.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5934115/2024/11/19/canada-suriname-concacaf-results
 **Roster protection deadline: Owen Caissie, Tink Hence, Zac Veen and other notable additions**\
 `A look at the most notable prospects protected from this year's Rule 5 draft.`\
 https://nytimes.com/athletic/5933951/2024/11/19/roster-protection-deadline-owen-caissie-tink-hence-zac-veen-and-other-notable-additions/
-
-**They’re Open to Interpretation**\
-`Robert S. Gard brings us a little sunshine.`\
-https://nytimes.com/2024/11/19/crosswords/daily-puzzle-2024-11-20.html
 
