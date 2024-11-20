@@ -1,3 +1,7 @@
+**300,000 Without Power in Washington State as Storm Topples Trees**\
+`A storm system approaching the Northwest with hurricane-force winds was expected to drench the region with rain. At least one death was reported.`\
+https://nytimes.com/2024/11/20/us/washington-storm-power-outage.html
+
 **The N.Y.C. Region Is Dry and on Fire. Here’s What You Can Do to Help**\
 `Mayor Eric Adams announced a drought warning on Monday. City officials are asking New Yorkers to save water and help prevent more wildfires.`\
 https://nytimes.com/2024/11/20/nyregion/nyc-drought-water-conservation-wildfires.html
