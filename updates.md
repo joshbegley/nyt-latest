@@ -1,3 +1,7 @@
+**Braves' Chris Sale wins NL Cy Young Award, his first in stellar comeback season**\
+`Sale's first season with the Braves was a masterpiece, as he finished with the NL's pitching triple crown and now its Cy Young Award.`\
+https://nytimes.com/athletic/5931255/2024/11/20/braves-chris-sale-nl-cy-young/
+
 **Rudy Giuliani’s New Lawyer Takes His Case to the Streets**\
 `Mr. Giuliani has not turned over his apartment and other items to two women he defamed. His new counsel, a Staten Island divorce lawyer, held a sidewalk news conference.`\
 https://nytimes.com/2024/11/20/nyregion/giuliani-defamation.html
