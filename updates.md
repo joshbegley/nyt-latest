@@ -1,3 +1,11 @@
+**Fantasy basketball roundup: Giving thanks to Dyson Daniels, Tari Eason and ... Cam Reddish?**\
+`With Thanksgiving just around the corner, Stan Son shares what he is most thankful for early on in this fantasy basketball campaign.`\
+https://nytimes.com/athletic/5932788/2024/11/20/fantasy-basketball-roundup-dyson-daniels-tari-eason/
+
+**Sheyi Ojo on Liverpool, Dide speculation, and fracturing his back: 'I felt heartbroken'**\
+`The former England youth winger reveals what went wrong on Merseyside and what his plan is now`\
+https://nytimes.com/athletic/5924274/2024/11/20/sheyi-ojo-interview-liverpool-masked-rapper-slovenia/
+
 **The players fighting against FIFA's Saudi Arabian oil deal: 'No money is worth it'**\
 `How a group of female footballers set about protesting against FIFA's controversial sponsorship deal with Saudi Arabia`\
 https://nytimes.com/athletic/5919265/2024/11/20/saudi-aramco-players-protesting/
