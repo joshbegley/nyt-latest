@@ -1,3 +1,7 @@
+**Sen. Dick Durbin introduces bill to strengthen labor protections for minor league players**\
+`The Fair Ball Act is the latest push to improve working conditions for minor league baseball players. `\
+https://nytimes.com/athletic/5936090/2024/11/20/minor-league-player-labor-bill/
+
 **Bomb Cyclone Slams the Pacific Northwest**\
 `A deadly weather system left tens of thousands without power in Washington. The “atmospheric river” storm from the Pacific Ocean also battered Oregon and Northern California.`\
 https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington.html
