@@ -1,3 +1,11 @@
+**Florida Man Accused of Plotting Attack on New York Stock Exchange**\
+`Harun Abdul-Malik Yener was charged after an undercover investigation by the F.B.I. into his alleged desire to join extremist groups and carry out violent attacks, according to a criminal complaint.`\
+https://nytimes.com/2024/11/20/us/politics/florida-man-bomb-stock-exchange.html
+
+**How Will Popular Culture Change in Trump’s Second Term?**\
+`His first term was marked by backlash and protest. But the president-elect has found new streams of embrace and approval.`\
+https://nytimes.com/2024/11/20/arts/music/popcast-trump-pop-culture.html
+
 **Sen. Dick Durbin introduces bill to strengthen labor protections for minor league players**\
 `The Fair Ball Act is the latest push to improve working conditions for minor league baseball players. `\
 https://nytimes.com/athletic/5936090/2024/11/20/minor-league-player-labor-bill/
