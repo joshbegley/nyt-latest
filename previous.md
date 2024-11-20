@@ -1,3 +1,11 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears have lost four games in a row and are preparing to host the 8-2 Vikings on Sunday. Send your questions here. `\
+https://nytimes.com/athletic/5935990/2024/11/20/bears-mailbag-questions-40/
+
+**Dr. Oz, Tapped to Run Medicare, Has a Record of Promoting Health Misinformation**\
+`The heart surgeon turned TV star has championed healthy lifestyle habits. But he’s also promoted sham diet pills and ineffective Covid-19 treatments.`\
+https://nytimes.com/2024/11/20/well/dr-oz-health-medicare-record.html
+
 **Thursday Briefing: U.S. Anti-Personnel Mines for Ukraine**\
 `Plus, Daniel Craig’s performance in “Queer.”`\
 https://nytimes.com/2024/11/20/briefing/ukraine-gaza-un-trump-china.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/20/business/media/reg-murphy-dead.html
 **U.S. Casts Sole Vote Against Gaza Cease-Fire Resolution**\
 `The U.S. veto at the U.N. came as the Biden administration’s envoy in Lebanon reported “additional progress” on cease-fire talks in the war between Israel and Hezbollah.`\
 https://nytimes.com/2024/11/20/world/middleeast/gaza-ceasefire-us-veto.html
-
-**Archegos Founder Bill Hwang Is Sentenced to 18 Years**\
-`Mr. Hwang was convicted in July for his role in the collapse of his investment firm that caused roughly $10 billion in losses for several Wall Street banks.`\
-https://nytimes.com/2024/11/20/business/bill-hwang-archegos-sentence.html
-
-**Blue Jays offseason has been quiet, but there's still time to make an impact**\
-`The Blue Jays haven't made much news so far this offseason. That will have to change soon if they are going to meet their stated goals.`\
-https://nytimes.com/athletic/5935794/2024/11/20/blue-jays-offseason-update/
 

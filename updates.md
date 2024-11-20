@@ -1,3 +1,11 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears have lost four games in a row and are preparing to host the 8-2 Vikings on Sunday. Send your questions here. `\
+https://nytimes.com/athletic/5935990/2024/11/20/bears-mailbag-questions-40/
+
+**Dr. Oz, Tapped to Run Medicare, Has a Record of Promoting Health Misinformation**\
+`The heart surgeon turned TV star has championed healthy lifestyle habits. But he’s also promoted sham diet pills and ineffective Covid-19 treatments.`\
+https://nytimes.com/2024/11/20/well/dr-oz-health-medicare-record.html
+
 **Thursday Briefing: U.S. Anti-Personnel Mines for Ukraine**\
 `Plus, Daniel Craig’s performance in “Queer.”`\
 https://nytimes.com/2024/11/20/briefing/ukraine-gaza-un-trump-china.html
