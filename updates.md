@@ -1,3 +1,11 @@
+**Federal Inquiry Traced Payments From Gaetz to Women**\
+`A document prepared by federal investigators bolsters claims by women who say they were hired for sex by Matt Gaetz, President-elect Donald J. Trump’s choice for attorney general, who denies wrongdoing.`\
+https://nytimes.com/2024/11/20/us/politics/matt-gaetz-venmo-payments-sex.html
+
+**Ukraine Fires British Long-Range Missiles Into Russia**\
+`Britain allowed Ukrainians to use Storm Shadows a week after President Biden authorized the use of American-made missiles inside Russia, a shift from a more cautious military strategy.`\
+https://nytimes.com/2024/11/20/us/politics/ukraine-russia-british-long-range-missiles.html
+
 **Start-Up Founder Who Sold A.I. Chatbot to Schools Is Charged With Fraud**\
 `Joanna Smith-Griffin was charged with lying to investors about revenue and her customer base, which she claimed included some of the nation’s largest school districts, including New York City’s.`\
 https://nytimes.com/2024/11/20/nyregion/allhere-education-ai-schools.html
