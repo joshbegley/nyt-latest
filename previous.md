@@ -1,3 +1,7 @@
+**Stock watch: Bo Nix ripe for the fantasy football playoffs; Kareem Hunt's 'best by' date has passed**\
+`In his latest look at the fantasy football market, Dane Martinez says that it is time to move on from Kansas City running back Kareem Hunt.`\
+https://nytimes.com/athletic/5932290/2024/11/20/stock-watch-bo-nix-ripe-for-the-fantasy-football-playoffs-kareem-hunts-best-by-date-has-passed/
+
 **Vieira appointed Genoa head coach**\
 `Patrick Vieira has been appointed as Genoa head coach.`\
 https://nytimes.com/athletic/5931677/2024/11/20/patrick-vieira-genoa-manager/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933502/2024/11/20/willis-reed-the-basketball-100-b
 **Cowboys' offensive roster questions for final 7 games: Trey Lance's value to be determined**\
 `Is Rico Dowdle part of Dallas' future? How does the O-line come together? Is the WR group what the Cowboys want it to be?`\
 https://nytimes.com/athletic/5933774/2024/11/20/cowboys-offense-future-questions-trey-lance/
-
-**Panthers CB Jaycee Horn has been strapping in opposing receivers since South Carolina**\
-`Jaycee Horn and Israel Mukuamu came up with the seat belt gesture before a South Carolina game in 2020. Now, Horn sees it everywhere.`\
-https://nytimes.com/athletic/5928467/2024/11/20/panthers-jaycee-horn-cornerback-seat-belt-gesture/
 
