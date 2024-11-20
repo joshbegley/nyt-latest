@@ -1,3 +1,11 @@
+**DNA on Discarded Cigarette Helps Lead to Arrest in a 1981 Homicide**\
+`A detective in Indiana helped crack a cold case more than 40 years after his father started working on the original investigation.`\
+https://nytimes.com/2024/11/19/us/cigarette-dna-murder-case-indiana.html
+
+**Rays may not get new stadium after vote to approve bonds postponed again**\
+`The significant uncertainty has led to questions about the Rays leaving St. Petersburg and the Tampa Bay region following the 2025 season.`\
+https://nytimes.com/athletic/5933821/2024/11/19/rays-new-stadium-bonds-vote-delayed/
+
 **Iran Suggests Pausing Its High Levels of Uranium Enrichment to Avoid Censure, Monitor Says**\
 `Iran has raised the possibility it would stop expanding its stockpile of uranium enriched to a purity of 60 percent — very close to the level needed for a weapon, the U.N.’s nuclear watchdog says.`\
 https://nytimes.com/2024/11/19/world/middleeast/1iran-bomb-grade-nuclear-fuel.html
