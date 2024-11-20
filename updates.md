@@ -1,3 +1,7 @@
+**Bomb Cyclone Slams the Pacific Northwest**\
+`A deadly weather system left several hundred thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, was expected to batter Oregon and Northern California.`\
+https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington-.html
+
 **Nvidia Doubles Profit as A.I. Chip Sales Soar**\
 `The company, which dominates the market for chips used to build artificial intelligence, expects another big jump in the current quarter.`\
 https://nytimes.com/2024/11/20/technology/nvidia-earnings-chips-ai.html
