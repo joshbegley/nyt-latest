@@ -1,3 +1,15 @@
+**The players fighting against FIFA's Saudi Arabian oil deal: 'No money is worth it'**\
+`How a group of female footballers set about protesting against FIFA's controversial sponsorship deal with Saudi Arabia`\
+https://nytimes.com/athletic/5919265/2024/11/20/saudi-aramco-players-protesting/
+
+**Stormzy, Wilfried Zaha and the Crystal Palace connection: Inside the rise of AFC Croydon Athletic**\
+`The club are on the up in step eight of the English football pyramid but, for their new owners, all this is about more than on-field success`\
+https://nytimes.com/athletic/5919275/2024/11/20/croydon-athletic-stormzy-zaha-crystal-palace/
+
+**Ruben Amorim's backroom staff: Who they are and what they do**\
+`Amorim has brought six members of backroom staff to United from Portugal. We spoke to previous colleagues to find out more about them`\
+https://nytimes.com/athletic/5932085/2024/11/20/ruben-amorim-man-united-coaching-staff/
+
 **Wednesday Briefing**\
 `The 1,000th day of war in Ukraine.`\
 https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump-g20.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/11/19/pageoneplus/quote-of-the-day-to-keep-south-caroli
 **N.Y.P.D. Fatally Shoots Man as Gunfire Also Wounds Officer**\
 `A bystander was also struck by a bullet in the Queens shooting. It was not clear who had fired the shot that hit her.`\
 https://nytimes.com/2024/11/19/nyregion/nypd-shooting-queens.html
-
-**'I wanted to speak up': Tyrese Maxey addresses 76ers' team meeting**\
-`Maxey addressed the team meeting after Tuesday's practice and said, "Everyone understands what's at stake. Everyone is feeling the hurt."`\
-https://nytimes.com/athletic/5933843/2024/11/19/tyrese-maxey-joel-embiid-76ers-meeting/
-
-**Senators are at risk of having another November to forget: "It's frustrating"**\
-`The remaining schedule for November has the potential to doom the Senators again if they can't right their ship. `\
-https://nytimes.com/athletic/5934112/2024/11/19/senators-november-oilers-chabot-tkachuk/
-
-**After Years in a Hong Kong Jail, Jimmy Lai Has His Say in Court**\
-`The media tycoon, who is accused of masterminding pro-democracy protests, testified at his trial for the first time. He could be sent to prison for life.`\
-https://nytimes.com/2024/11/19/world/asia/jimmy-lai-hong-kong-trial.html
 
