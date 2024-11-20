@@ -1,3 +1,7 @@
+**DNA on Discarded Cigarette Helps Lead to Arrest in a 1981 Homicide**\
+`A detective in Indiana helped crack a cold case more than 40 years after his father started working on the original investigation.`\
+https://nytimes.com/2024/11/19/us/cigarette-dna-murder-case-indiana.html
+
 **Rays may not get new stadium after vote to approve bonds postponed again**\
 `The significant uncertainty has led to questions about the Rays leaving St. Petersburg and the Tampa Bay region following the 2025 season.`\
 https://nytimes.com/athletic/5933821/2024/11/19/rays-new-stadium-bonds-vote-delayed/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933749/2024/11/19/cubs-roster-owen-caissie-dfa-adb
 **Bettman says league hasn't discussed salary cap going beyond $92.5 million**\
 `The NHL's salary cap is $88 million and the CBA runs until September 2026.`\
 https://nytimes.com/athletic/5931929/2024/11/19/bettman-salary-cap-ottawa-lebreton-flats/
-
-**College Football Playoff rankings: Boise State leaps to No. 4 seed**\
-`The Buckeyes (9-1) host the unbeaten Hoosiers on Saturday in their third top-five matchup of the season.`\
-https://nytimes.com/athletic/5933704/2024/11/19/college-football-playoff-rankings-georgia-tennessee-boise-state/
 
