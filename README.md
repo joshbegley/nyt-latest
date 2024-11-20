@@ -1,3 +1,7 @@
+**Colorado' Shedeur Sanders commits to East-West Shrine Bowl**\
+`Sanders ranks third among quarterbacks, at No. 23 overall, in The Athletic's latest mock draft.`\
+https://nytimes.com/athletic/5934865/2024/11/20/shedeur-sanders-shrine-bowl-colorado/
+
 **Making sense of the Big 12 title race, Playoff implications and potential chaos scenarios**\
 `The Big 12 championship race is simple — and one false step away from complete pandemonium. `\
 https://nytimes.com/athletic/5934824/2024/11/20/big-12-title-game-byu-colorado-arizona-state-standings/
