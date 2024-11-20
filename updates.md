@@ -1,3 +1,11 @@
+**Not yet 20 games in, the Islanders are stuck in the middle once more**\
+`Through 19 games, the Islanders are the definition of mediocre. No progress, no success.`\
+https://nytimes.com/athletic/5934782/2024/11/20/islanders-nhl-standings-2024/
+
+**New Yorkers, How Will You Get to the Airport for Thanksgiving?**\
+`As the holiday approaches, we want to know how you plan on tackling one of the biggest travel days of the year.`\
+https://nytimes.com/2024/11/20/nyregion/nyc-airport-travel-thanksgiving.html
+
 **Scoop City: The decline of superstar cornerbacks**\
 `The decline of highly-paid cornerbacks, the latest from New York and an updated look at rookie QB EPA.`\
 https://nytimes.com/athletic/5935226/2024/11/20/jets-bench-aaron-rodgers-star-cornerbacks-scoop-city/
