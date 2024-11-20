@@ -1,3 +1,7 @@
+**Juan Mata joins ownership group of San Diego FC**\
+`Mata, 36, was a World Cup winner with Spain and plays for Australian side Western Sydney Wanderers.`\
+https://nytimes.com/athletic/5934862/2024/11/20/juan-mata-san-diego-fc-owner/
+
 **Italy wins Billie Jean King Cup with victory over Slovakia in Malaga**\
 `Last year's runners-up went one better in Malaga to lift the 'world cup of tennis'`\
 https://nytimes.com/athletic/5935690/2024/11/20/italy-billie-jean-king-cup-jasmine-paolini/
