@@ -1,15 +1,3 @@
-**Why Blue Jackets' Cayden Lindstrom needed back surgery, and how his recovery might go**\
-`Lindstrom's back has been an issue since before the Blue Jackets drafted him in June.`\
-https://nytimes.com/athletic/5935507/2024/11/20/cayden-lindstrom-blue-jackets-back-surgery/
-
-**Past Nominees Have Been Undone by Far Less Than What Surrounds Trump Picks**\
-`Back taxes, youthful pot smoking and undocumented nannies scuttled previous presidential choices. Some of President-elect Donald J. Trump’s candidates face bigger questions.`\
-https://nytimes.com/2024/11/20/us/politics/trump-cabinet-matt-gaetz-sexual-misconduct.html
-
-**Cavs' ownership group launches bid for WNBA team in Cleveland**\
-`If Cleveland’s bid is successful, its new women’s team would play at Rocket Mortgage Fieldhouse.`\
-https://nytimes.com/athletic/5935575/2024/11/20/cleveland-wnba-expansion-team/
-
 **Migrant Found Guilty of Killing Laken Riley**\
 `Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Ms. Riley, a nursing student.`\
 https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
@@ -33,4 +21,16 @@ https://nytimes.com/2024/11/20/opinion/reading-books-college.html
 **Ray Lewis wants FAU coaching job, but Charlie Weis Jr. the frontrunner**\
 `The Owls' new coaching search, though, might be the most interesting one of this year’s coaching carousel.`\
 https://nytimes.com/athletic/5935391/2024/11/20/fau-football-coach-search-charlie-weis-jr-ray-lewis/
+
+**2025 NFL Draft consensus Big Board: Ashton Jeanty joins Travis Hunter in top 5**\
+`Last week, The Athletic's Dane Brugler released his updated top 50. How does the consensus board compare?`\
+https://nytimes.com/athletic/5935073/2024/11/20/nfl-draft-2025-consensus-rankings-travis-hunter/
+
+**LPGA to offer record-breaking prize money in 2025**\
+`That figure marks an additional $62 million since 2021, totaling a 90 percent increase in the total prize pool.`\
+https://nytimes.com/athletic/5935454/2024/11/20/lpga-prize-money-2025/
+
+**Weed for PTSD? Eager for Better Cannabis Science, F.D.A. Clears Study.**\
+`The decision is the latest sign that federal health officials want more research on medical marijuana as its use grows.`\
+https://nytimes.com/2024/11/20/us/marijuana-ptsd-cannabis-science-fda-study.html
 
