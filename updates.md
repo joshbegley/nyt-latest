@@ -1,3 +1,11 @@
+**Group Sues Justice Department for Gaetz Investigation Documents**\
+`The nonpartisan watchdog group American Oversight has been trying since last year to get the documents related to the sex-trafficking investigation into Matt Gaetz.`\
+https://nytimes.com/2024/11/19/us/politics/justice-dept-gaetz-investigation-lawsuit.html
+
+**Los Angeles City Council Passes ‘Sanctuary’ Ordinance in Response to Trump**\
+`The swift action, two weeks after Donald J. Trump’s presidential win, signaled a sense of urgency from city leaders.`\
+https://nytimes.com/2024/11/19/us/los-angeles-sanctuary-trump.html
+
 **A Dissident’s Final Act of Protest Stuns Iran**\
 `Repeatedly imprisoned in his country, Kianoosh Sanjari refused to be silenced by the government. But in the end, despairing of change, he silenced himself.`\
 https://nytimes.com/2024/11/19/world/middleeast/iran-kianoosh-sanjari-suicide.html
