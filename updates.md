@@ -1,3 +1,23 @@
+**Giants notes: Advisory roles for Bobby Evans, Jeff Berry; two pitchers added to roster**\
+`The Giants added Carson Seymour and Carson Ragsdale to the roster ahead of the Rule 5 protection deadline. `\
+https://nytimes.com/athletic/5933829/2024/11/19/sf-giants-bobby-evans-jeff-berry-rule-5/
+
+**Magritte, Master of Surrealism, Joins the $100 Million Dollar Club**\
+`Move over, Picasso, Van Gogh and Warhol. With an inscrutable painting,the Belgian painter breaks the nine-figure threshold at the fall auctions.`\
+https://nytimes.com/2024/11/19/arts/design/magritte-surrealism-christies-auction.html
+
+**Where will Jim Montgomery end up? 4 possible destinations**\
+`It's just a matter of time until Montgomery secures his next coaching job. In fact, a team might go out of its way to make room for him.`\
+https://nytimes.com/athletic/5933752/2024/11/19/jim-montgomery-coaching-destinations/
+
+**Melissa and Her Amazing Technicolor Dream Sides**\
+`Colorful and covetable: green beans with red onion and lime; maple roasted squash; red cabbage wedges with walnuts and feta.`\
+https://nytimes.com/2024/11/19/dining/melissa-clark-thanksgiving-side-dishes.html
+
+**Cubs add prospect Owen Caissie to 40-man roster, DFA ex-closer Adbert Alzolay**\
+`The Cubs reshaped their roster Tuesday.`\
+https://nytimes.com/athletic/5933749/2024/11/19/cubs-roster-owen-caissie-dfa-adbert-alzolay/
+
 **Cubs add prospect Owen Caissie to 40-man roster, DFA ex-closer Adbert Alzolay**\
 `The Cubs reshaped their roster on Tuesday.`\
 https://nytimes.com/athletic/5933749/2024/11/19/cubs-roster-owen-caissie-dfa-adbert-alzolay/
