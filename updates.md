@@ -1,3 +1,11 @@
+**Vance Courts Senate With Trump’s Most Controversial Cabinet Picks**\
+`Vice President-elect JD Vance was on Capitol Hill with Matt Gaetz, picked for attorney general, and Pete Hegseth, the Fox News host who is up for secretary of defense.`\
+https://nytimes.com/2024/11/20/us/politics/jd-vance-senators-gaetz-hegseth.html
+
+**It's not just Sid: Remembering 5 legends whose careers ended with playoff droughts**\
+`We’ve possibly seen the last of Crosby in NHL games that actually matter. Let's remember some other stars whose careers ended similarly.`\
+https://nytimes.com/athletic/5932811/2024/11/20/nhl-sidney-crosby-playoff-drought/
+
 **Misdemeanour charges against Marinakis are 'blackmail', say Olympiacos**\
 `Olympiacos have labelled charges against owner Evangelos Marinakis and other club executives as &#8220;blackmail&#8221; and &#8220;fuelled by political interests&#8221;.`\
 https://nytimes.com/athletic/5934743/2024/11/20/olympiacos-evangelos-marinakis-blackmail/
