@@ -1,3 +1,11 @@
+**Reddit Says It Is Working to Resolve Outage**\
+`Tens of thousands of users reported that the website and app were inaccessible starting just before 3 p.m. Eastern on Wednesday.`\
+https://nytimes.com/2024/11/20/technology/reddit-down-outage.html
+
+**North Carolina Republicans Push to Seize Power From Top Democrats**\
+`The state’s Republican-controlled legislature passed a sweeping bill that would erode the power of the Democratic governor and attorney general and hand the G.O.P. more control over elections.`\
+https://nytimes.com/2024/11/20/us/politics/north-carolina-bill-governor-elections.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have lost four games in a row and are preparing to host the 8-2 Vikings on Sunday. Send your questions here. `\
 https://nytimes.com/athletic/5935990/2024/11/20/bears-mailbag-questions-40/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/20/us/politics/matt-gaetz-house-ethics-report.html
 **‘Get Somebody Else to Do It’: Trump Resistance Encounters Fatigue**\
 `Donald J. Trump’s grass-roots opponents search for a new playbook as they reckon with how little they accomplished during his first term.`\
 https://nytimes.com/2024/11/20/us/trump-womens-march-protests-activism.html
-
-**Reg Murphy, Newspaper Editor Whose Kidnapping Riveted the U.S., Dies at 90**\
-`He made his mark on newspapers in Atlanta, San Francisco and Baltimore, but may be best known for having been abducted in Atlanta in 1974.`\
-https://nytimes.com/2024/11/20/business/media/reg-murphy-dead.html
-
-**U.S. Casts Sole Vote Against Gaza Cease-Fire Resolution**\
-`The U.S. veto at the U.N. came as the Biden administration’s envoy in Lebanon reported “additional progress” on cease-fire talks in the war between Israel and Hezbollah.`\
-https://nytimes.com/2024/11/20/world/middleeast/gaza-ceasefire-us-veto.html
 
