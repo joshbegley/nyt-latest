@@ -8,7 +8,7 @@ https://nytimes.com/2024/11/20/technology/nvidia-earnings-chips-ai.html
 
 **Freddie Freeman's walk-off grand slam ball to go to auction in December**\
 `SCP Auctions expect the ball to sell for seven figures.`\
-https://nytimes.com/athletic/5935876/2024/11/20/freddie-freemans-walk-off-grand-slam-ball-to-go-to-auction-in-december/
+https://nytimes.com/athletic/5935876/2024/11/20/freddie-freeman-walk-off-ball-auction-december/
 
 **Italian club Piacenza sack two head coaches on the same day**\
 `Italian club Piacenza sacked two head coaches on Tuesday, November 19, with Simone Bentivoglio hired and fired on the same day.`\
