@@ -1,3 +1,11 @@
+**N.Y.P.D. Fatally Shoots Man as Gunfire Also Wounds Officer**\
+`A bystander was also struck by a bullet in the Queens shooting. It was not clear who had fired the shot that hit her.`\
+https://nytimes.com/2024/11/19/nyregion/nypd-shooting-queens.html
+
+**'I wanted to speak up': Tyrese Maxey addresses 76ers' team meeting**\
+`Maxey addressed the team meeting after Tuesday's practice and said, "Everyone understands what's at stake. Everyone is feeling the hurt."`\
+https://nytimes.com/athletic/5933843/2024/11/19/tyrese-maxey-joel-embiid-76ers-meeting/
+
 **Senators are at risk of having another November to forget: "It's frustrating"**\
 `The remaining schedule for November has the potential to doom the Senators again if they can't right their ship. `\
 https://nytimes.com/athletic/5934112/2024/11/19/senators-november-oilers-chabot-tkachuk/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/19/arts/swept-away-review-avett-brothers.html
 **Lionel Messi matches Landon Donovan's international assist record**\
 `Messi’s assist in the 55th minute during Argentina’s 1-0 win over Peru marked his 58th assist on the international stage.`\
 https://nytimes.com/athletic/5934236/2024/11/19/lionel-messi-argentina-assist-international-record/
-
-**Canada tops Suriname with ease to advance to Nations League Finals**\
-`The win sends Canada back to the Nations League Finals during the next international window in March 2025.`\
-https://nytimes.com/athletic/5934115/2024/11/19/canada-suriname-concacaf-results-analysis/
-
-**Roster protection deadline: Owen Caissie, Tink Hence, Zac Veen and other notable additions**\
-`A look at the most notable prospects protected from this year's Rule 5 draft.`\
-https://nytimes.com/athletic/5933951/2024/11/19/roster-protection-deadline-owen-caissie-tink-hence-zac-veen-and-other-notable-additions/
 
