@@ -1,3 +1,7 @@
+**James Conner and the punishing style and leadership that fuel the Cardinals**\
+`Kyler Murray is playing well. The defense continues to improve, but James Conner has always buzzed as Arizona's primary power source.`\
+https://nytimes.com/athletic/5933197/2024/11/20/james-conner-arizona-cardinals-leadership/
+
 **2025 NFL Draft order projections: Cowboys, Bears tumbling toward top-10 picks**\
 `How did Week 11 shake up the potential 2025 NFL Draft order?`\
 https://nytimes.com/athletic/5932215/2024/11/20/nfl-draft-2025-order-projections-cowboys-bears/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/briefing/ukraine-russia-trump.html
 **Pelicans coach Willie Green faces crossroads as injured stars near their return**\
 `Green can't be blamed for the team's poor start among a rash of injuries. But when New Orleans is healthier, there's no time to waste.`\
 https://nytimes.com/athletic/5931610/2024/11/20/pelicans-willie-green-injuries/
-
-**The Pulse: More Jets bombshells**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5932743/2024/11/20/jets-aaron-rodgers-bench-owner-the-pulse/
 
