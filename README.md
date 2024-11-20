@@ -1,3 +1,11 @@
+**Group Sues Justice Department for Gaetz Investigation Documents**\
+`The nonpartisan watchdog group American Oversight has been trying since last year to get the documents related to the sex-trafficking investigation into Matt Gaetz.`\
+https://nytimes.com/2024/11/19/us/politics/justice-dept-gaetz-investigation-lawsuit.html
+
+**Los Angeles City Council Passes ‘Sanctuary’ Ordinance in Response to Trump**\
+`The swift action, two weeks after Donald J. Trump’s presidential win, signaled a sense of urgency from city leaders.`\
+https://nytimes.com/2024/11/19/us/los-angeles-sanctuary-trump.html
+
 **A Dissident’s Final Act of Protest Stuns Iran**\
 `Repeatedly imprisoned in his country, Kianoosh Sanjari refused to be silenced by the government. But in the end, despairing of change, he silenced himself.`\
 https://nytimes.com/2024/11/19/world/middleeast/iran-kianoosh-sanjari-suicide.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/11/19/opinion/trump-gaetz-investigation-report.html
 **Stephen Vogt's award-winning rookie year as Guardians manager didn't come as a surprise**\
 `Nothing came easy to Vogt as a player. The managing thing, though, seems like it has.`\
 https://nytimes.com/athletic/5933256/2024/11/19/guardians-stephen-vogt-first-year-managing/
-
-**Democrats Face a Series of Tests Over Support for Israel**\
-`First up is a resolution put forth by Senator Bernie Sanders, a Vermont independent who is Jewish, to deny Israel certain military weapons.`\
-https://nytimes.com/2024/11/19/us/politics/israel-gaza-democrats.html
-
-**Brewers’ Pat Murphy wins NL Manager of the Year after remarkable first season at the helm**\
-`Long before the votes were cast, Murphy stood alone as a clear favorite to win an award he has worked toward his entire life.`\
-https://nytimes.com/athletic/5932569/2024/11/19/brewers-pat-murphy-nl-manager-of-the-year/
 
