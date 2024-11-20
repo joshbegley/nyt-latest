@@ -32,5 +32,5 @@ https://nytimes.com/2024/11/20/podcasts/trump-education-trans-rights-capitol-hil
 
 **Bigger, bolder, smoother? Inside F1 Las Vegas' plans for a successful sequel**\
 `F1 returns for its second shot in Las Vegas balancing thrills, local impact and a heated late-season title fight.`\
-https://nytimes.com/athletic/5933143/2024/11/20/vegas-f1-grand-prix-preview/
+https://nytimes.com/athletic/5933143/2024/11/20/vegas-f1-preview/
 

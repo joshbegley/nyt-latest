@@ -1,3 +1,7 @@
+**Bigger, bolder, smoother? Inside F1 Las Vegas' plans for a successful sequel**\
+`F1 returns for its second shot in Las Vegas balancing thrills, local impact and a heated late-season title fight.`\
+https://nytimes.com/athletic/5933143/2024/11/20/vegas-f1-preview/
+
 **How Caleb Williams, Bears offense showed improvement under Thomas Brown**\
 `From quick screens to zone reads, Brown put Williams in a better position to succeed than we've seen. Our All-22 analysis.`\
 https://nytimes.com/athletic/5933055/2024/11/20/bears-caleb-williams-thomas-brown-offense/
