@@ -1,3 +1,7 @@
+**Elon Musk and Vivek Ramaswamy Call for Five-Day In-Office Workweeks for Federal Employees**\
+`In an opinion column in The Wall Street Journal, the heads of the new Department of Government Efficiency said taxpayers shouldn’t pay federal employees “for the Covid-era privilege of staying home.”`\
+https://nytimes.com/2024/11/20/us/politics/elon-musk-vivek-ramaswamy-doge-rto.html
+
 **Ukraine Strikes Inside Russia With U.S. Missiles**\
 `The next two or three months in Ukraine are likely to be exceedingly violent, in a war that has already been the deadliest in Europe in the past 80 years. Marc Santora, who has been reporting from Ukraine since the beginning of the war with Russia, explains why.`\
 https://nytimes.com/video/world/europe/100000009833781/ukraine-atacms-russia.html
