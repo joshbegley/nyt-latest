@@ -1,3 +1,7 @@
+**Bettman says league hasn't discussed salary cap going beyond $92.5 million**\
+`The NHL's salary cap is $88 million and the CBA runs until September 2026.`\
+https://nytimes.com/athletic/5931929/2024/11/19/bettman-salary-cap-ottawa-lebreton-flats/
+
 **College Football Playoff rankings: Boise State leaps to No. 4 seed**\
 `The Buckeyes (9-1) host the unbeaten Hoosiers on Saturday in their third top-five matchup of the season.`\
 https://nytimes.com/athletic/5933704/2024/11/19/college-football-playoff-rankings-georgia-tennessee-boise-state/
