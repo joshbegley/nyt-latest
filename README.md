@@ -1,3 +1,7 @@
+**Rays may not get new stadium after vote to approve bonds postponed again**\
+`The significant uncertainty has led to questions about the Rays leaving St. Petersburg and the Tampa Bay region following the 2025 season.`\
+https://nytimes.com/athletic/5933821/2024/11/19/rays-new-stadium-bonds-vote-delayed/
+
 **Iran Suggests Pausing Its High Levels of Uranium Enrichment to Avoid Censure, Monitor Says**\
 `Iran has raised the possibility it would stop expanding its stockpile of uranium enriched to a purity of 60 percent — very close to the level needed for a weapon, the U.N.’s nuclear watchdog says.`\
 https://nytimes.com/2024/11/19/world/middleeast/1iran-bomb-grade-nuclear-fuel.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5931929/2024/11/19/bettman-salary-cap-ottawa-lebret
 **College Football Playoff rankings: Boise State leaps to No. 4 seed**\
 `The Buckeyes (9-1) host the unbeaten Hoosiers on Saturday in their third top-five matchup of the season.`\
 https://nytimes.com/athletic/5933704/2024/11/19/college-football-playoff-rankings-georgia-tennessee-boise-state/
-
-**Group Sues Justice Department for Gaetz Investigation Documents**\
-`The nonpartisan watchdog group American Oversight has been trying since last year to get the documents related to the sex-trafficking investigation into Matt Gaetz.`\
-https://nytimes.com/2024/11/19/us/politics/justice-dept-gaetz-investigation-lawsuit.html
 
