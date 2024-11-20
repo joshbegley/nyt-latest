@@ -1,3 +1,11 @@
+**Canada tops Suriname with ease to advance to Nations League Finals**\
+`The win sends Canada back to the Nations League Finals during the next international window in March 2025.`\
+https://nytimes.com/athletic/5934115/2024/11/19/canada-suriname-concacaf-results-analysis/
+
+**Roster protection deadline: Owen Caissie, Tink Hence, Zac Veen and other notable additions**\
+`A look at the most notable prospects protected from this year's Rule 5 draft.`\
+https://nytimes.com/athletic/5933951/2024/11/19/roster-protection-deadline-owen-caissie-tink-hence-zac-veen-and-other-notable-additions/
+
 **They’re Open to Interpretation**\
 `Robert S. Gard brings us a little sunshine.`\
 https://nytimes.com/2024/11/19/crosswords/daily-puzzle-2024-11-20.html
