@@ -1,3 +1,19 @@
+**How Caleb Williams, Bears offense showed improvement under Thomas Brown**\
+`From quick screens to zone reads, Brown put Williams in a better position to succeed than we've seen. Our All-22 analysis.`\
+https://nytimes.com/athletic/5933055/2024/11/20/bears-caleb-williams-thomas-brown-offense/
+
+**Tottenham appeal Bentancur's seven-game ban for Son remark**\
+`Tottenham Hotspur have appealed against Rodrigo Bentancur’s seven-game ban for comments he made about Son Heung-min.`\
+https://nytimes.com/athletic/5934578/2024/11/20/rodrigo-bentancur-ban-appeal-tottenham/
+
+**The Appeal of the Smaller Breast**\
+`Why are increasing numbers of younger women undergoing the cosmetic reduction surgery?`\
+https://nytimes.com/2024/11/20/podcasts/the-daily/breast-reduction.html
+
+**Former W.W.E. Boss Tapped to Run Education, and Trans Rights on Capitol Hill**\
+`Plus, this musical wants France to love it back.`\
+https://nytimes.com/2024/11/20/podcasts/trump-education-trans-rights-capitol-hill.html
+
 **Nick Martinez's return solidifies Reds' rotation**\
 `Despite spending time in the bullpen, Martinez’s 142 1/3 innings were the second-most on the team.`\
 https://nytimes.com/athletic/5934007/2024/11/20/reds-nick-martinez-return-rotation-impact/
