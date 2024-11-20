@@ -1,3 +1,7 @@
+**Roki Sasaki to be part of MLB's 2025 international signing class**\
+`Sasaki, 23, is one of baseball's most hyped pitching prospects.`\
+https://nytimes.com/athletic/5936263/2024/11/20/roki-sasaki-international-signing-period/
+
 **Florida Man Accused of Plotting Attack on New York Stock Exchange**\
 `Harun Abdul-Malik Yener was charged after an undercover investigation by the F.B.I. into his alleged desire to join extremist groups and carry out violent attacks, according to a criminal complaint.`\
 https://nytimes.com/2024/11/20/us/politics/florida-man-bomb-stock-exchange.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/technology/gautam-adani-bribery-charges.html
 **Man Convicted of Plotting to Kill Agents Who Investigated His Role in Jan. 6**\
 `Edward Kelley was found guilty of conspiring to murder the agents two weeks after he was convicted at a separate trial of assault and other charges related to the Capitol attack.`\
 https://nytimes.com/2024/11/20/us/politics/edward-kelley-guilty-jan-6-plot.html
-
-**Federal Inquiry Traced Payments From Gaetz to Women**\
-`A document prepared by federal investigators bolsters claims by women who say they were hired for sex by Matt Gaetz, President-elect Donald J. Trump’s choice for attorney general, who denies wrongdoing.`\
-https://nytimes.com/2024/11/20/us/politics/matt-gaetz-venmo-payments-sex.html
 
