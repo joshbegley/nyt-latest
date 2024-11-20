@@ -1,3 +1,7 @@
+**Johnson Supports Republican Effort to Target McBride With Capitol Bathroom Bill**\
+`The G.O.P. speaker sided with hard-right members of his conference who called for blocking Representative-elect Sarah McBride, the first transgender member of Congress, from using Capitol women’s rooms.`\
+https://nytimes.com/2024/11/20/us/politics/mike-johnson-transgender-women-ban-capitol-bathrooms.html
+
 **Juan Mata joins ownership group of San Diego FC**\
 `Mata, 36, was a World Cup winner with Spain and plays for Australian side Western Sydney Wanderers.`\
 https://nytimes.com/athletic/5934862/2024/11/20/juan-mata-san-diego-fc-owner/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5935608/2024/11/20/mike-evans-practice-return-giant
 **FC Dallas appoints Eric Quill as head coach**\
 `The 46-year-old will take over for interim coach Peter Luccin, who was appointed in June after the team fired Nico Estevez.`\
 https://nytimes.com/athletic/5935700/2024/11/20/eric-quill-fc-dallas-coach-mls/
-
-**Trump’s Education Secretary Pick Has a Short Résumé Related to Schools**\
-`Linda McMahon is known for her many years in the wrestling world. Though her education experience is more limited than previous secretaries, she has embraced both conservative and bipartisan ideas.`\
-https://nytimes.com/2024/11/20/us/linda-mcmahon-trump-education-secretary.html
 
