@@ -1,3 +1,7 @@
+**Sparks hire Lynne Roberts as coach**\
+`Roberts joins the Sparks after nearly 20 years as a Division I coach and recently guided Utah to three consecutive NCAA Tournament trips.`\
+https://nytimes.com/athletic/5933916/2024/11/19/lynne-roberts-hired-sparks/
+
 **Indiana, Tennessee are on course for a CFP committee showdown, so let's get a head start**\
 `First, let's see if we can agree on this: What anyone thinks "would" happen means nothing right now.`\
 https://nytimes.com/athletic/5933797/2024/11/19/college-football-playoff-tennessee-indiana/
