@@ -1,3 +1,7 @@
+**Republicans Block Release of Gaetz Report**\
+`Also, Biden agreed to give Ukraine anti-personnel mines. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/11/20/briefing/republicans-block-release-gaetz-report-ukraine-mines.html
+
 **Newcastle 'seriously' considering new stadium as they consider St James' Park future**\
 `Newcastle United are &#8220;seriously&#8221; considering building a new stadium &#8220;that wouldn&#8217;t be far away&#8221;, alongside further exploring a potential renovation of St James&#8217; Park, according to the club&#8217;s chief operating officer (COO).`\
 https://nytimes.com/athletic/5936193/2024/11/20/newcastle-st-james-park-stadium-future/
@@ -29,8 +33,4 @@ https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington-.html
 **Nvidia Doubles Profit as A.I. Chip Sales Soar**\
 `The company, which dominates the market for chips used to build artificial intelligence, expects another big jump in the current quarter.`\
 https://nytimes.com/2024/11/20/technology/nvidia-earnings-chips-ai.html
-
-**Freddie Freeman's walk-off grand slam ball to go to auction in December**\
-`SCP Auctions expect the ball to sell for seven figures.`\
-https://nytimes.com/athletic/5935876/2024/11/20/freddie-freeman-walk-off-ball-auction-december/
 
