@@ -1,3 +1,7 @@
+**Long Tied to Russia, Georgia’s Winemakers Tip a Glass to the West**\
+`Some vintners in the former Soviet republic are seeking to break a politically risky dependence on Russia and focus more on high-value European and American markets.`\
+https://nytimes.com/2024/11/20/world/europe/georgia-russia-wine-sanctions.html
+
 **Newcastle owners invest further £35m into club via share issue**\
 `Newcastle United&#8217;s owners have injected a further £35million ($44.`\
 https://nytimes.com/athletic/5934542/2024/11/20/newcastle-share-investment-owners/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/crosswords/spelling-bee-forum.html
 **With undefeated start behind them, Cavs reminded the East still runs through Celtics**\
 `Boston ended Cleveland's undefeated start to the season, but the Cavs were ready to learn lessons to prepare them for the big goal.`\
 https://nytimes.com/athletic/5934467/2024/11/20/celtics-end-cavs-undefeated-start/
-
-**600,000 Without Power in Washington State as Storm Topples Trees**\
-`A storm system approaching the Northwest with hurricane-force winds was expected to drench the region with rain. At least one death was reported.`\
-https://nytimes.com/2024/11/20/us/washington-storm-power-outage.html
 
