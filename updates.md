@@ -1,3 +1,7 @@
+**Is Martin Necas a Hart Trophy contender?**\
+`Here the pros and cons of Necas' potential MVP candidacy.`\
+https://nytimes.com/athletic/5935533/2024/11/20/martin-necas-hart-trophy-hurricanes/
+
 **Reading Books in College: A Lost Art?**\
 `Readers respond to a guest essay about ... reading (in college). Also: What Ukraine needs; “profiles in cowardice”; who we are as Americans.`\
 https://nytimes.com/2024/11/20/opinion/reading-books-college.html
