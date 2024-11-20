@@ -1,3 +1,7 @@
+**Bomb Cyclone Slams the Pacific Northwest**\
+`A deadly weather system left tens of thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, was expected to batter Oregon and Northern California.`\
+https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington-.html
+
 **Freddie Freeman's walk-off grand slam ball to go to auction in December**\
 `SCP Auctions expect the ball to sell for seven figures.`\
 https://nytimes.com/athletic/5935876/2024/11/20/freddie-freeman-walk-off-ball-auction-december/
