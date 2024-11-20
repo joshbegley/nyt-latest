@@ -1,3 +1,7 @@
+**Mika Zibanejad's effective night, a Norris battle, more: 5 Rangers takeaways**\
+`The Rangers put together one of their most complete victories of the year, winning 4-3 against a solid Vancouver team.`\
+https://nytimes.com/athletic/5934462/2024/11/20/mika-zibanejad-rangers-canucks-takeaways/
+
 **Word of the Day: boomerang**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/20/learning/word-of-the-day-boomerang.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5931873/2024/11/20/nuno-nottingham-forest-milenkovi
 **Unai Emery doubling down on his workload to reverse Aston Villa's drop in form**\
 `Even by his stands Emery, has been putting in extra hours. Villa's manager is desperate to end their run of four straight defeats`\
 https://nytimes.com/athletic/5929563/2024/11/20/aston-villa-unai-emery-international-break/
-
-**Breaking down Evan Ferguson's struggles, and future, at Brighton**\
-`The prodigious young striker went nearly a year without scoring a goal - how did his career stutter and what lies ahead for him?`\
-https://nytimes.com/athletic/5863495/2024/11/20/evan-ferguson-brighton-hurzeler-goals/
 

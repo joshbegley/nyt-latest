@@ -1,3 +1,7 @@
+**Mika Zibanejad's effective night, a Norris battle, more: 5 Rangers takeaways**\
+`The Rangers put together one of their most complete victories of the year, winning 4-3 against a solid Vancouver team.`\
+https://nytimes.com/athletic/5934462/2024/11/20/mika-zibanejad-rangers-canucks-takeaways/
+
 **Word of the Day: boomerang**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/20/learning/word-of-the-day-boomerang.html
