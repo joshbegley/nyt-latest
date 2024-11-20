@@ -1,3 +1,15 @@
+**Bacteria Found in Tom’s of Maine Toothpaste, Inspectors Say**\
+`The U.S. Food and Drug Administration issued a warning letter, but not a recall, after microorganisms were found in water samples and finished toothpaste products.`\
+https://nytimes.com/2024/11/20/health/toms-of-maine-toothpaste-mold-bacteria.html
+
+**Cubs swing deal for Guardians reliever Eli Morgan: Sources**\
+`Over 42 innings in 2024, Morgan posted a 1.93 ERA (212 ERA+) as one of Cleveland's most trusted bullpen arms.`\
+https://nytimes.com/athletic/5935633/2024/11/20/eli-morgan-chicago-cubs-trade/
+
+**Migrant Found Guilty of Killing Laken Riley**\
+`Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Laken Riley, a nursing student.`\
+https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
+
 **Tiny Love Stories: ‘Humor to Counter Despair’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/11/20/style/tiny-modern-love-stories-humor-to-counter-despair.html
