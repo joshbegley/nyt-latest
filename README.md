@@ -1,19 +1,3 @@
-**FC Dallas appoints Eric Quill as head coach**\
-`The 46-year-old will take over for interim coach Peter Luccin, who was appointed in June after the team fired Nico Estevez.`\
-https://nytimes.com/athletic/5935700/2024/11/20/eric-quill-fc-dallas-coach-mls/
-
-**Trump’s Education Secretary Pick Has a Short Résumé Related to Schools**\
-`Linda McMahon is known for her many years in the wrestling world. Though her education experience is more limited than previous secretaries, she has embraced both conservative and bipartisan ideas.`\
-https://nytimes.com/2024/11/20/us/linda-mcmahon-trump-education-secretary.html
-
-**The Bathrooms of the Capitol Are Now Unsafe Spaces**\
-`Republicans are exploiting juvenile gossip and unfounded fears of sexual violence.`\
-https://nytimes.com/live/2024/11/19/opinion/thepoint/republicans-transgender-bathroom-mace
-
-**What’s in Our Queue? Abigail Rose and More**\
-`By Karen Weise`\
-https://nytimes.com/card/2024/11/20/arts/editors-recommendations-abigailrose
-
 **Bacteria Found in Tom’s of Maine Toothpaste, Inspectors Say**\
 `The U.S. Food and Drug Administration issued a warning letter, but not a recall, after microorganisms were found in water samples and finished toothpaste products.`\
 https://nytimes.com/2024/11/20/health/toms-of-maine-toothpaste-mold-bacteria.html
@@ -33,4 +17,20 @@ https://nytimes.com/2024/11/20/nyregion/christopher-brown-synagogue-terror-sente
 **Why Blue Jackets' Cayden Lindstrom needed back surgery, and how his recovery might go**\
 `Lindstrom's back has been an issue since before the Blue Jackets drafted him in June.`\
 https://nytimes.com/athletic/5935507/2024/11/20/cayden-lindstrom-blue-jackets-back-surgery/
+
+**Past Nominees Have Been Undone by Far Less Than What Surrounds Trump Picks**\
+`Back taxes, youthful pot smoking and undocumented nannies scuttled previous presidential choices. Some of President-elect Donald J. Trump’s candidates face bigger questions.`\
+https://nytimes.com/2024/11/20/us/politics/trump-cabinet-matt-gaetz-sexual-misconduct.html
+
+**Cavs' ownership group launches bid for WNBA team in Cleveland**\
+`If Cleveland’s bid is successful, its new women’s team would play at Rocket Mortgage Fieldhouse.`\
+https://nytimes.com/athletic/5935575/2024/11/20/cleveland-wnba-expansion-team/
+
+**Migrant Found Guilty of Killing Laken Riley**\
+`Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Laken Riley, a nursing student.`\
+https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
+
+**Eagles' Bryce Huff to have surgery on wrist, miss several weeks: Sources**\
+`Huff injured his wrist during warmups before a Week 9 win against the Jacksonville Jaguars.`\
+https://nytimes.com/athletic/5935523/2024/11/20/eagles-bryce-huff-wrist-surgery/
 
