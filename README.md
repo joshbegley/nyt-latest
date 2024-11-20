@@ -1,3 +1,7 @@
+**Michigan flips in-state 4-star defensive back Elijah Dotson from Pitt**\
+`Dotson gives Michigan 19 commitments in a 2025 recruiting class that sits at No. 12 in the 247Sports Composite.`\
+https://nytimes.com/athletic/5935698/2024/11/20/michigan-recruiting-elijah-dotson/
+
 **What Do I Get the Person Who Needs Nothing?**\
 `For the holidays, T asked readers to write in about their hardest-to-shop-for loved ones. Here, our editors respond with their suggestions.`\
 https://nytimes.com/2024/11/20/t-magazine/gift-guide-holiday-shopping.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2024/11/20/arts/editors-recommendations-abigailrose
 **Bacteria Found in Tom’s of Maine Toothpaste, Inspectors Say**\
 `The U.S. Food and Drug Administration issued a warning letter, but not a recall, after microorganisms were found in water samples and finished toothpaste products.`\
 https://nytimes.com/2024/11/20/health/toms-of-maine-toothpaste-mold-bacteria.html
-
-**Cubs swing deal for Guardians reliever Eli Morgan: Sources**\
-`Over 42 innings in 2024, Morgan posted a 1.93 ERA (212 ERA+) as one of Cleveland's most trusted bullpen arms.`\
-https://nytimes.com/athletic/5935633/2024/11/20/eli-morgan-chicago-cubs-trade/
 
