@@ -1,3 +1,11 @@
+**What the CFP committee should do with the SEC logjam**\
+`Should the College Football Playoff rankings be about the eye test, the team's record or what?`\
+https://nytimes.com/athletic/5933952/2024/11/19/college-football-playoff-committee-sec/
+
+**Trump Chooses Longtime Ally Linda McMahon to Run Education Dept.**\
+`A friend and financial backer of Donald J. Trump’s, Ms. McMahon, who led the Small Business Administration during his first term, remained close to him during the campaign.`\
+https://nytimes.com/2024/11/19/us/politics/linda-mcmahon-education-secretary-trump.html
+
 **Sparks hire Lynne Roberts as coach**\
 `Roberts joins the Sparks after nearly 20 years as a Division I coach and recently guided Utah to three consecutive NCAA Tournament trips.`\
 https://nytimes.com/athletic/5933916/2024/11/19/lynne-roberts-hired-sparks/
