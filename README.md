@@ -6,8 +6,8 @@ https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
 `Huff injured his wrist during warmups before a Week 9 win against the Jacksonville Jaguars.`\
 https://nytimes.com/athletic/5935523/2024/11/20/eagles-bryce-huff-wrist-surgery/
 
-**Trump picks Matthew Whitaker, ex-acting attorney general, as his ambassador to NATO.**\
-`By Devlin Barrett`\
+**Trump Picks Matthew Whitaker to Be His Ambassador to NATO**\
+`Mr. Whitaker briefly served as acting attorney general in Mr. Trump’s first term.`\
 https://nytimes.com/2024/11/20/us/politics/matthew-whitaker-nato-ambassador-trump.html
 
 **Is Martin Necas a Hart Trophy contender?**\
