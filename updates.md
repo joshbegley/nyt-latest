@@ -1,3 +1,11 @@
+**Newcastle owners invest further £35m into club via share issue**\
+`Newcastle United&#8217;s owners have injected a further £35million ($44.`\
+https://nytimes.com/athletic/5934542/2024/11/20/newcastle-share-investment-owners/
+
+**600,000 Without Power in Washington State as Storm Topples Trees**\
+`A storm system approaching the Northwest with hurricane-force winds was expected to drench the region with rain. At least one death was reported.`\
+https://nytimes.com/2024/11/20/us/washington-storm-power-outage.html
+
 **Boston's Jaylen Brown, Jayson Tatum end Cleveland's win streak with leveled-up physicality**\
 `After allowing most of a 21-point lead to disappear, the Celtics saved the win when Brown and Tatum overcame the Cavs' defensive aggression.`\
 https://nytimes.com/athletic/5934501/2024/11/20/celtics-end-cavaliers-win-streak/
