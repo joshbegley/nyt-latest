@@ -1,3 +1,15 @@
+**Venezuelan Migrant Found Guilty of Killing Laken Riley in Georgia**\
+`The verdict followed a four-day bench trial in which prosecutors detailed a violent attack that became a flashpoint in the bitter national debate over immigration policy.`\
+https://nytimes.com/2024/11/20/us/venezuelan-migrant-guilty-killing-laken-riley-georgia.html
+
+**ICA Boston Names Its Next Director**\
+`Nora Burnett Abrams, the director of the Museum of Contemporary Art Denver, will take over from Jill Medvedow in the spring.`\
+https://nytimes.com/2024/11/20/arts/design/ica-boston.html
+
+**Was I Right to Chide the Man Who Complimented My Daughter-in-Law?**\
+`The magazine’s Ethicist columnist on the kinds of remarks strangers sometimes make about women’s looks.`\
+https://nytimes.com/2024/11/20/magazine/man-compliment-restaurant-ethics.html
+
 **Not yet 20 games in, the Islanders are stuck in the middle once more**\
 `Through 19 games, the Islanders are the definition of mediocre. No progress, no success.`\
 https://nytimes.com/athletic/5934782/2024/11/20/islanders-nhl-standings-2024/
