@@ -1,3 +1,7 @@
+**Making sense of the Big 12 title race, Playoff implications and potential chaos scenarios**\
+`The Big 12 championship race is simple — and one false step away from complete pandemonium. `\
+https://nytimes.com/athletic/5934824/2024/11/20/big-12-title-game-byu-colorado-arizona-state-standings/
+
 **Charlotte job profile: How can the 49ers' job reach its potential?**\
 `The potential has always been there for the 49ers, in a prime and growing area with a basic program foundation.`\
 https://nytimes.com/athletic/5934059/2024/11/20/charlotte-football-coaching-search-candidates/

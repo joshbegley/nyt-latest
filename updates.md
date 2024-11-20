@@ -1,3 +1,7 @@
+**Making sense of the Big 12 title race, Playoff implications and potential chaos scenarios**\
+`The Big 12 championship race is simple — and one false step away from complete pandemonium. `\
+https://nytimes.com/athletic/5934824/2024/11/20/big-12-title-game-byu-colorado-arizona-state-standings/
+
 **Rebuilding After Fire, Jacob’s Pillow to Open a New Theater**\
 `The Doris Duke Theater, more than twice as large as the original and designed for modern technology, will open in July.`\
 https://nytimes.com/2024/11/20/arts/dance/jacobs-pillow-doris-duke-theater.html
