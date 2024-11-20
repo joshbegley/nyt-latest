@@ -1,3 +1,11 @@
+**Not yet 20 games in, the Islanders are stuck in the middle once more**\
+`Through 19 games, the Islanders are the definition of mediocre. No progress, no success.`\
+https://nytimes.com/athletic/5934782/2024/11/20/islanders-nhl-standings-2024/
+
+**New Yorkers, How Will You Get to the Airport for Thanksgiving?**\
+`As the holiday approaches, we want to know how you plan on tackling one of the biggest travel days of the year.`\
+https://nytimes.com/2024/11/20/nyregion/nyc-airport-travel-thanksgiving.html
+
 **Scoop City: The decline of superstar cornerbacks**\
 `The decline of highly-paid cornerbacks, the latest from New York and an updated look at rookie QB EPA.`\
 https://nytimes.com/athletic/5935226/2024/11/20/jets-bench-aaron-rodgers-star-cornerbacks-scoop-city/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5935242/2024/11/20/boise-state-college-football-pla
 **Wilfried Nancy named MLS Coach of the Year**\
 `This is Nancy’s first COY award after finishing runner-up twice, first in 2022 while with CF Montreal and again last season.`\
 https://nytimes.com/athletic/5935079/2024/11/20/wilfried-nancy-mls-coy-columbus-crew/
-
-**Heat Today: Despite slow shooting start, Duncan Robinson remains invaluable to Heat offense**\
-`Duncan Robinson's shooting has been cold so far, but he remains uniquely valuable to Miami.`\
-https://nytimes.com/athletic/5934845/2024/11/20/duncan-robinson-jimmy-butler-tyler-herro-bam-adebayo-miami-heat/
-
-**Unrivaled rosters revealed: Full teams, coaches for upstart women’s league**\
-`Unrivaled’s first season begins on Jan. 17.`\
-https://nytimes.com/athletic/5933275/2024/11/20/unrivaled-rosters-revealed-full-teams-coaches-tv-information-for-upstart-womens-league/
 
