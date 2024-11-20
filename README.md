@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5934479/2024/11/20/cowboys-today-micah-parsons-deio
 `I love that for them.`\
 https://nytimes.com/2024/11/20/opinion/trump-gender-women-sexism.html
 
-**Rebuilding After Fire, Jacob’s Pillow Sets to Open a New Theater**\
+**Rebuilding After Fire, Jacob’s Pillow to Open a New Theater**\
 `The Doris Duke Theater, more than twice as large as the original and designed for modern technology, will open in July.`\
 https://nytimes.com/2024/11/20/arts/dance/jacobs-pillow-doris-duke-theater.html
 
