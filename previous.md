@@ -1,3 +1,11 @@
+**After Years in a Hong Kong Jail, Jimmy Lai Has His Say in Court**\
+`The media tycoon, who is accused of masterminding pro-democracy protests, testified at his trial for the first time. He could be sent to prison for life.`\
+https://nytimes.com/2024/11/19/world/asia/jimmy-lai-hong-kong-trial.html
+
+**Russell Westbrook becomes first NBA player to reach 200 triple doubles**\
+`Westbrook reached the milestone with a 12-point, 14-assists, 10-rebound performance in the Nuggets' win over the Grizzlies.`\
+https://nytimes.com/athletic/5934270/2024/11/19/russell-westbrook-200-triple-doubles/
+
 **How Wild continued their dominance on the road in St. Louis: 3 takeaways**\
 `Jonas Brodin scored with 6:16 left to snap a third-period deadlock and lift the road-dominant Wild to a 4-2 victory over St. Louis.`\
 https://nytimes.com/athletic/5933789/2024/11/19/wild-blues-takeaways-analysis/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5933951/2024/11/19/roster-protection-deadline-owen-
 **They’re Open to Interpretation**\
 `Robert S. Gard brings us a little sunshine.`\
 https://nytimes.com/2024/11/19/crosswords/daily-puzzle-2024-11-20.html
-
-**Key to Trump’s Win: Heavy Losses for Harris Across the Map**\
-`Trump found new voters across counties and demographics to win the election. But Harris’s failure to match Biden’s 2020 performance was just as consequential.`\
-https://nytimes.com/interactive/2024/11/19/us/politics/voter-turnout-election-trump-harris.html
-
-**Celtics rain 3s to hand Cavaliers first loss of season**\
-`Jayson Tatum scored 33 points and the Celtics hit 22 3-pointers on 41 attempts to earn a 120-117 home victory over the Cavaliers.`\
-https://nytimes.com/athletic/5933909/2024/11/19/cavaliers-celtics-score-result-takeaways/
 

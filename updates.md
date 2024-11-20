@@ -1,3 +1,11 @@
+**After Years in a Hong Kong Jail, Jimmy Lai Has His Say in Court**\
+`The media tycoon, who is accused of masterminding pro-democracy protests, testified at his trial for the first time. He could be sent to prison for life.`\
+https://nytimes.com/2024/11/19/world/asia/jimmy-lai-hong-kong-trial.html
+
+**Russell Westbrook becomes first NBA player to reach 200 triple doubles**\
+`Westbrook reached the milestone with a 12-point, 14-assists, 10-rebound performance in the Nuggets' win over the Grizzlies.`\
+https://nytimes.com/athletic/5934270/2024/11/19/russell-westbrook-200-triple-doubles/
+
 **How Wild continued their dominance on the road in St. Louis: 3 takeaways**\
 `Jonas Brodin scored with 6:16 left to snap a third-period deadlock and lift the road-dominant Wild to a 4-2 victory over St. Louis.`\
 https://nytimes.com/athletic/5933789/2024/11/19/wild-blues-takeaways-analysis/
