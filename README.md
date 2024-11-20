@@ -1,3 +1,7 @@
+**Bomb Cyclone Slams the Pacific Northwest**\
+`A deadly weather system left several hundred thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, was expected to batter Oregon and Northern California.`\
+https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington-.html
+
 **Nvidia Doubles Profit as A.I. Chip Sales Soar**\
 `The company, which dominates the market for chips used to build artificial intelligence, expects another big jump in the current quarter.`\
 https://nytimes.com/2024/11/20/technology/nvidia-earnings-chips-ai.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5935990/2024/11/20/bears-mailbag-questions-40/
 **Dr. Oz, Tapped to Run Medicare, Has a Record of Promoting Health Misinformation**\
 `The heart surgeon turned TV star has championed healthy lifestyle habits. But he’s also promoted sham diet pills and ineffective Covid-19 treatments.`\
 https://nytimes.com/2024/11/20/well/dr-oz-health-medicare-record.html
-
-**Thursday Briefing: U.S. Anti-Personnel Mines for Ukraine**\
-`Plus, Daniel Craig’s performance in “Queer.”`\
-https://nytimes.com/2024/11/20/briefing/ukraine-gaza-un-trump-china.html
 
