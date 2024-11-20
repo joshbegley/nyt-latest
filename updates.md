@@ -1,3 +1,7 @@
+**Why Joe Douglas never stood a chance as Jets GM**\
+`As owner Woody Johnson took on a bigger role running the Jets, the writing was on the wall.`\
+https://nytimes.com/athletic/5933929/2024/11/19/joe-douglas-new-york-jets-gm-fired/
+
 **What the CFP committee should do with the SEC logjam**\
 `Should the College Football Playoff rankings be about the eye test, the team's record or what?`\
 https://nytimes.com/athletic/5933952/2024/11/19/college-football-playoff-committee-sec/
