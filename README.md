@@ -1,4 +1,4 @@
-**Vance Is Courting Senators With Two of Trump’s Most Controversial Cabinet Picks**\
+**Vance Courts Senate With Trump’s Most Controversial Cabinet Picks**\
 `Vice President-elect JD Vance was on Capitol Hill with Matt Gaetz, picked for attorney general, and Pete Hegseth, the Fox News host who is up for secretary of defense.`\
 https://nytimes.com/2024/11/20/us/politics/jd-vance-senators-gaetz-hegseth.html
 
