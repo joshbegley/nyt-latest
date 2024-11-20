@@ -31,6 +31,6 @@ https://nytimes.com/2024/11/20/us/politics/ukraine-russia-uk-storm-shadow-missil
 https://nytimes.com/2024/11/20/nyregion/allhere-education-ai-schools.html
 
 **Bomb Cyclone Slams the Pacific Northwest**\
-`A deadly weather system left tens of thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, brought heavy rain to Oregon and Northern California.`\
-https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington-.html
+`A deadly weather system left tens of thousands without power in Washington. The storm, combined with an atmospheric river from the Pacific Ocean, also battered Oregon and Northern California.`\
+https://nytimes.com/video/weather/100000009836737/bomb-cyclone-washington.html
 
