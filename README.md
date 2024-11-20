@@ -1,3 +1,7 @@
+**Blackhawks express desperation, don't show it in another narrow defeat**\
+`Connor Bedard looked back to his playmaking self with two assists, but the Blackhawks struggled once again in the third period.`\
+https://nytimes.com/athletic/5934227/2024/11/20/blackhawks-bedard-richardson-ducks/
+
 **Bad Air Chokes the Life Out of a Vibrant Pakistani City**\
 `Lahore comes alive at night. But this year’s record onslaught of cold-weather smog — residents call it the “fifth season” — has broken its rhythms.`\
 https://nytimes.com/2024/11/20/world/asia/lahore-pakistan-smog.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5931608/2024/11/20/west-ham-goalkeeper-fabianski-ar
 **The State of Punditry - part 1: How analysis has changed - and is it better?**\
 `In the first of a three-part series, we examine what fans demand of TV analysis and how broadcasters have responded`\
 https://nytimes.com/athletic/5932487/2024/11/20/football-punditry-lineker-neville-carragher/
-
-**The Premier League Owners: Five from UK remain - but for how much longer?**\
-`The days of lifelong fans and those who made money in toilet paper being in charge of their clubs is long gone - British owners are sparse`\
-https://nytimes.com/athletic/5917674/2024/11/20/premier-league-owners-british-uk/
 
