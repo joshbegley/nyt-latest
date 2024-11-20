@@ -1,3 +1,7 @@
+**Celtics rain 3s to hand Cavaliers first loss of season**\
+`Jayson Tatum scored 33 points and the Celtics hit 22 3-pointers on 41 attempts to earn a 120-117 home victory over the Cavaliers.`\
+https://nytimes.com/athletic/5933909/2024/11/19/cavaliers-celtics-score-result-takeaways/
+
 **Corrections: Nov. 20, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 20, 2024.`\
 https://nytimes.com/2024/11/19/pageoneplus/corrections-nov-20-2024.html

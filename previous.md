@@ -1,3 +1,7 @@
+**Celtics rain 3s to hand Cavaliers first loss of season**\
+`Jayson Tatum scored 33 points and the Celtics hit 22 3-pointers on 41 attempts to earn a 120-117 home victory over the Cavaliers.`\
+https://nytimes.com/athletic/5933909/2024/11/19/cavaliers-celtics-score-result-takeaways/
+
 **Corrections: Nov. 20, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 20, 2024.`\
 https://nytimes.com/2024/11/19/pageoneplus/corrections-nov-20-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5933797/2024/11/19/college-football-playoff-tenness
 **DNA on Discarded Cigarette Helps Lead to Arrest in a 1981 Homicide**\
 `A detective in Indiana helped crack a cold case more than 40 years after his father started working on the original investigation.`\
 https://nytimes.com/2024/11/19/us/cigarette-dna-murder-case-indiana.html
-
-**Rays may not get new stadium after vote to approve bonds postponed again**\
-`The significant uncertainty has led to questions about the Rays leaving St. Petersburg and the Tampa Bay region following the 2025 season.`\
-https://nytimes.com/athletic/5933821/2024/11/19/rays-new-stadium-bonds-vote-delayed/
 
