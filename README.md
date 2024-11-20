@@ -1,3 +1,15 @@
+**Nuno has banished Forest's two main problems: away form and set pieces**\
+`We are just 11 games into the campaign, but the numbers suggest Nuno is turning things around when it comes to Forest's most pressing issues`\
+https://nytimes.com/athletic/5931873/2024/11/20/nuno-nottingham-forest-milenkovic/
+
+**Unai Emery doubling down on his workload to reverse Aston Villa's drop in form**\
+`Even by his stands Emery, has been putting in extra hours. Villa's manager is desperate to end their run of four straight defeats`\
+https://nytimes.com/athletic/5929563/2024/11/20/aston-villa-unai-emery-international-break/
+
+**Breaking down Evan Ferguson's struggles, and future, at Brighton**\
+`The prodigious young striker went nearly a year without scoring a goal - how did his career stutter and what lies ahead for him?`\
+https://nytimes.com/athletic/5863495/2024/11/20/evan-ferguson-brighton-hurzeler-goals/
+
 **In search of depth scoring, Wild get a big night from the Johansson-Rossi-Hartman line**\
 `The Wild's new second line created two goals while the first line lived up to the hype against the Blues.`\
 https://nytimes.com/athletic/5934400/2024/11/20/wild-depth-scoring-rossi-brodin-blues/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5917674/2024/11/20/premier-league-owners-british-uk
 **Fantasy basketball roundup: Giving thanks to Dyson Daniels, Tari Eason and ... Cam Reddish?**\
 `With Thanksgiving just around the corner, Stan Son shares what he is most thankful for early on in this fantasy basketball campaign.`\
 https://nytimes.com/athletic/5932788/2024/11/20/fantasy-basketball-roundup-dyson-daniels-tari-eason/
-
-**Sheyi Ojo on Liverpool, Dide speculation, and fracturing his back: 'I felt heartbroken'**\
-`The former England youth winger reveals what went wrong on Merseyside and what his plan is now`\
-https://nytimes.com/athletic/5924274/2024/11/20/sheyi-ojo-interview-liverpool-masked-rapper-slovenia/
-
-**The players fighting against FIFA's Saudi Arabian oil deal: 'No money is worth it'**\
-`How a group of female footballers set about protesting against FIFA's controversial sponsorship deal with Saudi Arabia`\
-https://nytimes.com/athletic/5919265/2024/11/20/saudi-aramco-players-protesting/
-
-**Stormzy, Wilfried Zaha and the Crystal Palace connection: Inside the rise of AFC Croydon Athletic**\
-`The club are on the up in step eight of the English football pyramid but, for their new owners, all this is about more than on-field success`\
-https://nytimes.com/athletic/5919275/2024/11/20/croydon-athletic-stormzy-zaha-crystal-palace/
 
