@@ -1,3 +1,15 @@
+**With undefeated start behind them, Cavs reminded the East still runs through Celtics**\
+`Boston ended Cleveland's undefeated start to the season, but the Cavs were ready to learn lessons to prepare them for the big goal.`\
+https://nytimes.com/athletic/5934467/2024/11/20/celtics-end-cavs-undefeated-start/
+
+**600,000 Without Power in Washington State as Powerful Winds Topple Trees**\
+`A storm system approaching the Northwest with hurricane-force winds was expected to drench the region with rain.`\
+https://nytimes.com/2024/11/20/us/washington-storm-power-outage.html
+
+**U.S. Closes Its Kyiv Embassy, Warning of ‘Significant Air Attack’**\
+`The unusual alert came a day after Ukraine used American-made ballistic missiles to strike Russian territory for the first time.`\
+https://nytimes.com/2024/11/20/world/europe/us-embassy-ukraine-warning.html
+
 **Desi Lydic Digs Into the Sordid Claims Against Matt Gaetz**\
 `“Your future attorney general, everyone,” Desi Lydic said on “The Daily Show.” “It’s always the people you most expect.”`\
 https://nytimes.com/2024/11/20/arts/television/late-night-matt-gaetz.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5933351/2024/11/20/julian-nagelsmann-germany-transf
 **How short-handed Canucks showed, in defeat, why they can stay afloat: 3 takeaways**\
 `Vancouver may have lost, but it demonstrated it has enough in the tank to get by without J.T. Miller, Brock Boeser and Thatcher Demko.`\
 https://nytimes.com/athletic/5934314/2024/11/20/canucks-rangers-takeaways/
-
-**Blackhawks express desperation but don't show it in another narrow defeat**\
-`Connor Bedard was back to his playmaking self with two assists, but Chicago struggled once again in the third period.`\
-https://nytimes.com/athletic/5934227/2024/11/20/blackhawks-bedard-richardson-ducks/
-
-**Bad Air Chokes the Life Out of a Vibrant Pakistani City**\
-`Lahore comes alive at night. But this year’s record onslaught of cold-weather smog — residents call it the “fifth season” — has broken its rhythms.`\
-https://nytimes.com/2024/11/20/world/asia/lahore-pakistan-smog.html
-
-**Nuno has banished Forest's two main problems: away form and set pieces**\
-`We are just 11 games into the campaign, but the numbers suggest Nuno is turning things around when it comes to Forest's most pressing issues`\
-https://nytimes.com/athletic/5931873/2024/11/20/nuno-nottingham-forest-milenkovic/
 
