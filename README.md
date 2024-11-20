@@ -1,3 +1,7 @@
+**Trump Chooses Longtime Ally Linda McMahon to Run Education Dept.**\
+`A friend and financial backer of Donald J. Trump’s, Ms. McMahon, who led the Small Business Administration during his first term, remained close to him during the campaign.`\
+https://nytimes.com/2024/11/19/us/politics/linda-mcmahon-education-secretary-trump.html
+
 **Sparks hire Lynne Roberts as coach**\
 `Roberts joins the Sparks after nearly 20 years as a Division I coach and recently guided Utah to three consecutive NCAA Tournament trips.`\
 https://nytimes.com/athletic/5933916/2024/11/19/lynne-roberts-hired-sparks/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/19/arts/design/magritte-surrealism-christies-auction
 **Where will Jim Montgomery end up? 4 possible destinations**\
 `It's just a matter of time until Montgomery secures his next coaching job. In fact, a team might go out of its way to make room for him.`\
 https://nytimes.com/athletic/5933752/2024/11/19/jim-montgomery-coaching-destinations/
-
-**Melissa and Her Amazing Technicolor Dream Sides**\
-`Colorful and covetable: green beans with red onion and lime; maple roasted squash; red cabbage wedges with walnuts and feta.`\
-https://nytimes.com/2024/11/19/dining/melissa-clark-thanksgiving-side-dishes.html
 
