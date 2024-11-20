@@ -1,3 +1,15 @@
+**Freddie Freeman's walk-off grand slam ball to go to auction in December**\
+`SCP Auctions expect the ball to sell for seven figures.`\
+https://nytimes.com/athletic/5935876/2024/11/20/freddie-freemans-walk-off-grand-slam-ball-to-go-to-auction-in-december/
+
+**Italian club Piacenza sack two head coaches on the same day**\
+`Italian club Piacenza sacked two head coaches on Tuesday, November 19, with Simone Bentivoglio hired and fired on the same day.`\
+https://nytimes.com/athletic/5935940/2024/11/20/piacenza-italian-football-head-coaches/
+
+**Should GM Steve Staios remain patient with this Senators group?**\
+`Senators GM Steve Staios doesn't see any "glaring area" that needs to be fixed with the team at the moment.`\
+https://nytimes.com/athletic/5935590/2024/11/20/senators-staios-ullmark-tkachuk-jensen/
+
 **Reddit Says It Is Working to Resolve Outage**\
 `Tens of thousands of users reported that the website and app were inaccessible starting just before 3 p.m. Eastern on Wednesday.`\
 https://nytimes.com/2024/11/20/technology/reddit-down-outage.html
