@@ -1,4 +1,12 @@
 **Migrant Found Guilty of Killing Laken Riley**\
+`Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Ms. Riley, a nursing student.`\
+https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
+
+**Trump Picks Matthew Whitaker to Be His Ambassador to NATO**\
+`Mr. Whitaker briefly served as acting attorney general in Mr. Trump’s first term.`\
+https://nytimes.com/2024/11/20/us/politics/matthew-whitaker-nato-ambassador-trump.html
+
+**Migrant Found Guilty of Killing Laken Riley**\
 `Jose Antonio Ibarra, a 26-year-old migrant from Venezuela, was convicted of murdering Ms. Riley, a Georgia nursing student.`\
 https://nytimes.com/video/us/100000009836264/laken-riley-trial-verdict.html
 
