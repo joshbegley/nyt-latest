@@ -1,3 +1,7 @@
+**Romania sanctioned over 'racist behaviour' of fans during Kosovo game**\
+`Romania have been ordered to play their next home match behind closed doors due to the “racist and/or discriminatory behaviour of its supporters” during their Nations League match against Kosovo.`\
+https://nytimes.com/athletic/5935005/2024/11/20/romania-kosovo-racism-uefa/
+
 **The Bounce: What the Celtics ending the Cavaliers' streak means**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5934701/2024/11/20/cavaliers-celtics-76ers-joel-embiid-tyrese-maxey-nba-the-bounce/
