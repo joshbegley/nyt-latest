@@ -1,3 +1,11 @@
+**Iran Suggests Pausing Its High Levels of Uranium Enrichment to Avoid Censure, Monitor Says**\
+`Iran has raised the possibility it would stop expanding its stockpile of uranium enriched to a purity of 60 percent — very close to the level needed for a weapon, the U.N.’s nuclear watchdog says.`\
+https://nytimes.com/2024/11/19/world/middleeast/1iran-bomb-grade-nuclear-fuel.html
+
+**Magritte, Master of Surrealism, Joins the $100 Million Dollar Club**\
+`Move over, Picasso, Van Gogh and Warhol. With an inscrutable painting, the Belgian painter breaks the nine-figure threshold at the fall auctions.`\
+https://nytimes.com/2024/11/19/arts/design/magritte-surrealism-christies-auction.html
+
 **Giants notes: Advisory roles for Bobby Evans, Jeff Berry; two pitchers added to roster**\
 `The Giants added Carson Seymour and Carson Ragsdale to the roster ahead of the Rule 5 protection deadline. `\
 https://nytimes.com/athletic/5933829/2024/11/19/sf-giants-bobby-evans-jeff-berry-rule-5/
