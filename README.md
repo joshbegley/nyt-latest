@@ -1,3 +1,7 @@
+**Boston's Jaylen Brown, Jayson Tatum end Cleveland's win streak with leveled-up physicality**\
+`After allowing most of a 21-point lead to disappear, the Celtics saved the win when Brown and Tatum overcame the Cavs' defensive aggression.`\
+https://nytimes.com/athletic/5934501/2024/11/20/celtics-end-cavaliers-win-streak/
+
 **The N.Y.C. Region Is Dry and on Fire. Here’s What You Can Do to Help**\
 `Mayor Eric Adams announced a drought warning on Monday. City officials are asking New Yorkers to save water and help prevent more wildfires.`\
 https://nytimes.com/2024/11/20/nyregion/nyc-drought-water-conservation-wildfires.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/us/washington-storm-power-outage.html
 **U.S. Closes Its Kyiv Embassy, Warning of ‘Significant Air Attack’**\
 `The unusual alert came a day after Ukraine used American-made ballistic missiles to strike Russian territory for the first time.`\
 https://nytimes.com/2024/11/20/world/europe/us-embassy-ukraine-warning.html
-
-**Desi Lydic Digs Into the Sordid Claims Against Matt Gaetz**\
-`“Your future attorney general, everyone,” Desi Lydic said on “The Daily Show.” “It’s always the people you most expect.”`\
-https://nytimes.com/2024/11/20/arts/television/late-night-matt-gaetz.html
 
