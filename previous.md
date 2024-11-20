@@ -1,3 +1,7 @@
+**Rudy Giuliani’s New Lawyer Takes His Case to the Streets**\
+`Mr. Giuliani has not turned over his apartment and other items to two women he defamed. His new counsel, a Staten Island divorce lawyer, held a sidewalk news conference.`\
+https://nytimes.com/2024/11/20/nyregion/giuliani-defamation.html
+
 **Roki Sasaki to be part of MLB's 2025 international signing class**\
 `Sasaki, 23, is one of baseball's most hyped pitching prospects.`\
 https://nytimes.com/athletic/5936263/2024/11/20/roki-sasaki-international-signing-period/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5936193/2024/11/20/newcastle-st-james-park-stadium-
 **U.S. Charges Indian Billionaire Adani With Fraud Over Bribery Scheme**\
 `Gautam Adani was charged with wire and securities fraud by prosecutors in Brooklyn.`\
 https://nytimes.com/2024/11/20/technology/gautam-adani-bribery-charges.html
-
-**Man Convicted of Plotting to Kill Agents Who Investigated His Role in Jan. 6**\
-`Edward Kelley was found guilty of conspiring to murder the agents two weeks after he was convicted at a separate trial of assault and other charges related to the Capitol attack.`\
-https://nytimes.com/2024/11/20/us/politics/edward-kelley-guilty-jan-6-plot.html
 

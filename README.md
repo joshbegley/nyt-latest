@@ -1,3 +1,7 @@
+**Braves' Chris Sale wins NL Cy Young Award, his first in stellar comeback season**\
+`Sale's first season with the Braves was a masterpiece, as he finished with the NL's pitching triple crown and now its Cy Young Award.`\
+https://nytimes.com/athletic/5931255/2024/11/20/braves-chris-sale-nl-cy-young/
+
 **Rudy Giuliani’s New Lawyer Takes His Case to the Streets**\
 `Mr. Giuliani has not turned over his apartment and other items to two women he defamed. His new counsel, a Staten Island divorce lawyer, held a sidewalk news conference.`\
 https://nytimes.com/2024/11/20/nyregion/giuliani-defamation.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/briefing/republicans-block-release-gaetz-report-u
 **Newcastle 'seriously' considering new stadium as they consider St James' Park future**\
 `Newcastle United are &#8220;seriously&#8221; considering building a new stadium &#8220;that wouldn&#8217;t be far away&#8221;, alongside further exploring a potential renovation of St James&#8217; Park, according to the club&#8217;s chief operating officer (COO).`\
 https://nytimes.com/athletic/5936193/2024/11/20/newcastle-st-james-park-stadium-future/
-
-**U.S. Charges Indian Billionaire Adani With Fraud Over Bribery Scheme**\
-`Gautam Adani was charged with wire and securities fraud by prosecutors in Brooklyn.`\
-https://nytimes.com/2024/11/20/technology/gautam-adani-bribery-charges.html
 

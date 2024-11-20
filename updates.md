@@ -1,3 +1,7 @@
+**Rudy Giuliani’s New Lawyer Takes His Case to the Streets**\
+`Mr. Giuliani has not turned over his apartment and other items to two women he defamed. His new counsel, a Staten Island divorce lawyer, held a sidewalk news conference.`\
+https://nytimes.com/2024/11/20/nyregion/giuliani-defamation.html
+
 **Roki Sasaki to be part of MLB's 2025 international signing class**\
 `Sasaki, 23, is one of baseball's most hyped pitching prospects.`\
 https://nytimes.com/athletic/5936263/2024/11/20/roki-sasaki-international-signing-period/
