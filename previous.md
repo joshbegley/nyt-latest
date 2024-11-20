@@ -1,3 +1,7 @@
+**Bad Air Chokes the Life Out of a Vibrant Pakistani City**\
+`Lahore comes alive at night. But this year’s record onslaught of cold-weather smog — residents call it the “fifth season” — has broken its rhythms.`\
+https://nytimes.com/2024/11/20/world/asia/lahore-pakistan-smog.html
+
 **Nuno has banished Forest's two main problems: away form and set pieces**\
 `We are just 11 games into the campaign, but the numbers suggest Nuno is turning things around when it comes to Forest's most pressing issues`\
 https://nytimes.com/athletic/5931873/2024/11/20/nuno-nottingham-forest-milenkovic/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5932487/2024/11/20/football-punditry-lineker-nevill
 **The Premier League Owners: Five from UK remain - but for how much longer?**\
 `The days of lifelong fans and those who made money in toilet paper being in charge of their clubs is long gone - British owners are sparse`\
 https://nytimes.com/athletic/5917674/2024/11/20/premier-league-owners-british-uk/
-
-**Fantasy basketball roundup: Giving thanks to Dyson Daniels, Tari Eason and ... Cam Reddish?**\
-`With Thanksgiving just around the corner, Stan Son shares what he is most thankful for early on in this fantasy basketball campaign.`\
-https://nytimes.com/athletic/5932788/2024/11/20/fantasy-basketball-roundup-dyson-daniels-tari-eason/
 
