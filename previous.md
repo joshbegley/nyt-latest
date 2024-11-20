@@ -1,3 +1,7 @@
+**Cubs add prospect Owen Caissie to 40-man roster, DFA ex-closer Adbert Alzolay**\
+`The Cubs reshaped their roster on Tuesday.`\
+https://nytimes.com/athletic/5933749/2024/11/19/cubs-roster-owen-caissie-dfa-adbert-alzolay/
+
 **Bettman says league hasn't discussed salary cap going beyond $92.5 million**\
 `The NHL's salary cap is $88 million and the CBA runs until September 2026.`\
 https://nytimes.com/athletic/5931929/2024/11/19/bettman-salary-cap-ottawa-lebreton-flats/
@@ -29,8 +33,4 @@ https://nytimes.com/video/science/space/100000009834826/spacex-rocket-starship-e
 **Where the Red Sox roster stands: Nick Pivetta declines QO, two prospects added**\
 `The Red Sox added Jhostynxon Garcia and Hunter Dobbins to the 40-man roster, and designated two pitching prospects for assignment.`\
 https://nytimes.com/athletic/5933581/2024/11/19/red-sox-roster-update-nick-pivetta/
-
-**The Secret to the Best Turkey Came From a Reader**\
-`Eric Kim cooked dozens of roast turkeys and taste-tested eight different recipes before landing on this clever approach.`\
-https://nytimes.com/2024/11/19/dining/best-thanksgiving-turkey-recipe.html
 

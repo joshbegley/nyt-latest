@@ -1,3 +1,7 @@
+**Cubs add prospect Owen Caissie to 40-man roster, DFA ex-closer Adbert Alzolay**\
+`The Cubs reshaped their roster on Tuesday.`\
+https://nytimes.com/athletic/5933749/2024/11/19/cubs-roster-owen-caissie-dfa-adbert-alzolay/
+
 **Bettman says league hasn't discussed salary cap going beyond $92.5 million**\
 `The NHL's salary cap is $88 million and the CBA runs until September 2026.`\
 https://nytimes.com/athletic/5931929/2024/11/19/bettman-salary-cap-ottawa-lebreton-flats/
