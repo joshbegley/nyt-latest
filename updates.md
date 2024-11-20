@@ -1,3 +1,7 @@
+**'I have to play better': Nuggets' Jamal Murray bounces back, then opens up on struggles**\
+`Murray hadn't looked like himself for months, including during the Olympics. But his aggressiveness on Tuesday night was a welcome sign.`\
+https://nytimes.com/athletic/5934460/2024/11/20/jamal-murray-denver-nuggets-interview/
+
 **James Conner and the punishing style and leadership that fuel the Cardinals**\
 `Kyler Murray is playing well. The defense continues to improve, but James Conner has always buzzed as Arizona's primary power source.`\
 https://nytimes.com/athletic/5933197/2024/11/20/james-conner-arizona-cardinals-leadership/
