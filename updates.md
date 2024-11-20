@@ -1,3 +1,7 @@
+**How Lionel Messi and Inter Miami will be impacted by Tata Martino's exit**\
+`Tata Martino will leave Inter Miami after their playoff failure — this is what it means`\
+https://nytimes.com/athletic/5934267/2024/11/20/lionel-messi-inter-miami-tata-martino-exit/
+
 **Which Candidate Did They Vote For? Read Their Shirts.**\
 `In the aftermath of the presidential election, voters are reaching for merchandise and political symbols either to celebrate the results or to make clear their opposition.`\
 https://nytimes.com/2024/11/20/style/blue-bracelets-maga-hats-trump-harris.html

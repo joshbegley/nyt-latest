@@ -1,3 +1,7 @@
+**How Lionel Messi and Inter Miami will be impacted by Tata Martino's exit**\
+`Tata Martino will leave Inter Miami after their playoff failure — this is what it means`\
+https://nytimes.com/athletic/5934267/2024/11/20/lionel-messi-inter-miami-tata-martino-exit/
+
 **Which Candidate Did They Vote For? Read Their Shirts.**\
 `In the aftermath of the presidential election, voters are reaching for merchandise and political symbols either to celebrate the results or to make clear their opposition.`\
 https://nytimes.com/2024/11/20/style/blue-bracelets-maga-hats-trump-harris.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5935343/2024/11/20/aston-villa-man-city-apt-rules-p
 **Rafael Nadal deserves more than a legacy of clay and grit**\
 `Nadal's fight and endurance are not in doubt, but a one-dimensional view of his tennis legacy serves nobody`\
 https://nytimes.com/athletic/5934648/2024/11/20/rafael-nadal-retires-tennis-career-legacy/
-
-**Texas Puts More Buoy Barriers in the Rio Grande to Block Migrants**\
-`The move by Gov. Greg Abbott, flouting a federal challenge, signaled that Texas expects to have a freer hand on the border under President-elect Donald J. Trump.`\
-https://nytimes.com/2024/11/20/us/texas-rio-grande-buoy-abbott.html
 
