@@ -1,3 +1,7 @@
+**The Bounce: It's time buy or sell these NBA contenders**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5937225/2024/11/21/nba-cavaliers-celtics-lakers-bucks-76ers-joel-embiid-paul-george-nba-the-bounce/
+
 **Giannis Antetokounmpo's huge third quarter in win over Bulls leaves teammates speechless**\
 `Antetokounmpo's dominance on offense has the Bucks optimistic again after a 2-8 start. They have now won four of the last five games.`\
 https://nytimes.com/athletic/5936870/2024/11/21/giannis-antetokounmpo-dominance-bucks-bulls/
