@@ -1,3 +1,7 @@
+**Wisconsin Man Who Faked Death and Left Behind Family Says in Video He’s ‘Safe’**\
+`But the man, Ryan Borgwardt, who is believed to be in Eastern Europe and has been communicating with the authorities, has not committed to returning home, officials said.`\
+https://nytimes.com/2024/11/21/us/ryan-bogwardt-sheriff-update-faked-death.html
+
 **An I.C.C. arrest warrant limits Putin’s movements. This is how he handles it.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/an-icc-arrest-warrant-limited-putins-movements-this-is-how-he-handled-it
