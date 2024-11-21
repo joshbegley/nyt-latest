@@ -1,3 +1,15 @@
+**Michigan flips QB Bryce Underwood — No. 1 player in 2025 class — from LSU**\
+`Underwood will be the highest-rated quarterback to sign with Michigan in the modern recruiting era. `\
+https://nytimes.com/athletic/5939109/2024/11/21/bryce-underwood-michigan-lsu-recruiting/
+
+**Yankees' Aaron Judge wins 2nd American League MVP award**\
+`Judge, who led the major leagues in multiple hitting categories, became the seventh player in Yankees history to win multiple MVPs.`\
+https://nytimes.com/athletic/5936746/2024/11/21/yankees-aaron-judge-2nd-al-mvp-award/
+
+**N.Y.C. Housing Plan Moves Forward With an Unexpected $5 Billion Boost**\
+`A City Council committee passed a major proposal that would ease restrictions on housing growth in New York. The full Council is likely to approve it next month.`\
+https://nytimes.com/2024/11/21/nyregion/housing-city-yes-nyc.html
+
 **Senator Bob Casey Concedes to Dave McCormick in Pennsylvania**\
 `Mr. Casey, a three-term Democrat, bowed out of his race against David McCormick, a Republican who led narrowly amid a recount of votes in one of the nation’s top Senate races.`\
 https://nytimes.com/2024/11/21/us/politics/bob-casey-david-mccormick-pennsylvania-senate.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5938391/2024/11/21/elliot-anderson-forest-foot-inju
 **College football Week 13 model-projected point differentials, totals for every game**\
 `Austin Mock's projection model gives predicted point differentials and point totals for every FBS vs. FBS game in Week 13.`\
 https://nytimes.com/athletic/5938904/2024/11/21/college-football-week-13-model-projections/
-
-**What’s the Worst Date You’ve Ever Been On? We Want to Hear About It.**\
-`Tell us about your experience, and you may be featured on the Modern Love podcast.`\
-https://nytimes.com/2024/11/21/podcasts/modern-love-worst-date-stories.html
-
-**The Warrant for Netanyahu’s Arrest Also Implicates the United States**\
-`We should not operate as if there is some hierarchy in the value of children’s lives.`\
-https://nytimes.com/live/2024/11/19/opinion/thepoint/icc-netanyahu-warrant
-
-**Dinner and a Show and a Little Hustle Near the Theater District**\
-`Yes, you can play it safe for a meal around the corner from your theater. But a few extra blocks will serve you well.`\
-https://nytimes.com/2024/11/21/dining/dinner-and-a-show-and-a-little-hustle-near-the-theater-district.html
 

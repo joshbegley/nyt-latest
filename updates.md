@@ -1,3 +1,15 @@
+**Michigan flips QB Bryce Underwood — No. 1 player in 2025 class — from LSU**\
+`Underwood will be the highest-rated quarterback to sign with Michigan in the modern recruiting era. `\
+https://nytimes.com/athletic/5939109/2024/11/21/bryce-underwood-michigan-lsu-recruiting/
+
+**Yankees' Aaron Judge wins 2nd American League MVP award**\
+`Judge, who led the major leagues in multiple hitting categories, became the seventh player in Yankees history to win multiple MVPs.`\
+https://nytimes.com/athletic/5936746/2024/11/21/yankees-aaron-judge-2nd-al-mvp-award/
+
+**N.Y.C. Housing Plan Moves Forward With an Unexpected $5 Billion Boost**\
+`A City Council committee passed a major proposal that would ease restrictions on housing growth in New York. The full Council is likely to approve it next month.`\
+https://nytimes.com/2024/11/21/nyregion/housing-city-yes-nyc.html
+
 **Senator Bob Casey Concedes to Dave McCormick in Pennsylvania**\
 `Mr. Casey, a three-term Democrat, bowed out of his race against David McCormick, a Republican who led narrowly amid a recount of votes in one of the nation’s top Senate races.`\
 https://nytimes.com/2024/11/21/us/politics/bob-casey-david-mccormick-pennsylvania-senate.html
