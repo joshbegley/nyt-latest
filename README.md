@@ -1,11 +1,3 @@
-**Warriors' Melton to undergo season-ending left knee surgery**\
-`The 26-year-old guard signed a one-year deal with the Warriors last summer. His season ends after just six games in a Golden State jersey.`\
-https://nytimes.com/athletic/5936594/2024/11/20/deanthony-melton-injury-acl-warriors/
-
-**Democrats Split as Senate Rejects Bills to Block Weapons Transfers to Israel**\
-`The legislation failed resoundingly but highlighted the Democratic divide over whether the United States should withhold some weapons to register its disapproval of Israel’s war tactics.`\
-https://nytimes.com/2024/11/20/us/senate-israel-weapons.html
-
 **UConn's Auriemma becomes all-time winningest college basketball coach**\
 `Geno Auriemma earned his 1,217th win Wednesday night to pass Tara VanDerveer for the record.`\
 https://nytimes.com/athletic/5936477/2024/11/20/geno-auriemma-uconn-winningest-coach-college-basketball/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5936406/2024/11/20/saquon-barkley-spin-reverse-hurd
 **U.S. Plans to Propose Breakup of Google to Fix Search Monopoly**\
 `In a landmark antitrust case, the government will ask a judge to force the company to sell its popular Chrome browser, people with knowledge of the matter said.`\
 https://nytimes.com/2024/11/20/technology/google-search-remedies-doj.html
+
+**Kyle Shanahan on 49ers’ limited RB rotation: It’s hard to sit Christian McCaffrey**\
+`Brock Purdy was on hand for Wednesday's practice but didn't make any throws. Nick Bosa's game status, meanwhile, may come down to the wire.`\
+https://nytimes.com/athletic/5936418/2024/11/20/49ers-christian-mccaffrey-jordan-mason/
+
+**Pamela Hayden, the Voice of Bart’s Friend Milhouse, Retires From ‘The Simpsons’**\
+`Ms. Hayden voiced many “Simpsons” characters since the show started in 1989. She’s most famously the voice of Bart’s awkward 10-year-old best friend.`\
+https://nytimes.com/2024/11/20/arts/television/pamela-hayden-retires-simpsons-milhouse-voice.html
 
