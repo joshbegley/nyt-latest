@@ -1,3 +1,7 @@
+**Holiday Ornaments That Are Out of the Ordinary**\
+`A roundup of unusual Christmas baubles, from diamonds made of lichen to glass flowers and strawberry tarts.`\
+https://nytimes.com/2024/11/21/t-magazine/christmas-ornaments-unique.html
+
 **How many more games 'matter' in November thanks to the expanded CFP?**\
 `With a 12-team field containing five conference champions and seven at-large bids, the CFP race has altered the stakes of late November.`\
 https://nytimes.com/athletic/5937507/2024/11/21/college-football-playoff-expansion-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/world/middleeast/icc-war-crime-arrest-warrants-pu
 **Stuttgart's Deniz Undav ruled out of the rest of the year with injury**\
 `Stuttgart striker Deniz Undav has suffered a torn muscle fibre and will be out for the &#8220;coming weeks&#8221;, the Bundesliga club have said.`\
 https://nytimes.com/athletic/5937451/2024/11/21/deniz-undav-injury-stuttgart/
-
-**She Went for a Walk on the Beach and Found a Rare ‘Doomsday Fish’**\
-`In Japanese mythology, the deep-sea-dwelling oarfish is a harbinger of impending disaster. For scientists in California, where three oarfish have washed up in recent months, it’s an exciting find.`\
-https://nytimes.com/2024/11/21/us/doomsday-fish-california-oarfish.html
 
