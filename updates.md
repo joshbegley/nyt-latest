@@ -1,3 +1,7 @@
+**Trump’s Tariffs**\
+`We explore his promise to impose a charge on foreign products entering the U.S.`\
+https://nytimes.com/2024/11/21/briefing/trumps-tariffs.html
+
 **Why the Chiefs’ Patrick Mahomes-Xavier Worthy deep-ball game isn't clicking**\
 `Since Week 4, Mahomes has thrown eight passes with the ball traveling at least 30 yards past the line of scrimmage with no completions.`\
 https://nytimes.com/athletic/5936235/2024/11/21/chiefs-patrick-mahomes-xavier-worthy/
