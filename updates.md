@@ -1,3 +1,15 @@
+**Maple Leafs 20-game progress reports: Who's thriving?**\
+`Twenty games in, the Leafs' record sits at 12-6-2. How's everyone doing? Let's evaluate the roster from top to bottom.`\
+https://nytimes.com/athletic/5936091/2024/11/21/maple-leafs-progress-report-player-analysis/
+
+**Behind the Drop in Overdose Deaths: Changes in Street Drugs**\
+`Experts are puzzling over which interventions are saving lives. The evolving illicit supply itself may hold important clues.`\
+https://nytimes.com/2024/11/21/health/overdose-deaths-decline-drug-supply.html
+
+**Spain Looks to Grant Residency to Nearly 1 Million Undocumented Migrants**\
+`The government said new rules could give legal status — and work permits — to about 300,000 people a year over the next three years to address gaps in the labor market.`\
+https://nytimes.com/2024/11/21/world/europe/spain-migrants-residency-work-permits.html
+
 **Colorado lands 5-star QB Julian Lewis: What this means for Deion Sanders**\
 `Lewis, the No. 35 overall prospect in the Class of 2025 in the 247Sports Composite, had previously been committed to USC.`\
 https://nytimes.com/athletic/5915821/2024/11/21/colorado-recruiting-deion-sanders-julian-lewis-qb/

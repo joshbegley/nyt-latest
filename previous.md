@@ -1,3 +1,11 @@
+**Maple Leafs 20-game progress reports: Who's thriving?**\
+`Twenty games in, the Leafs' record sits at 12-6-2. How's everyone doing? Let's evaluate the roster from top to bottom.`\
+https://nytimes.com/athletic/5936091/2024/11/21/maple-leafs-progress-report-player-analysis/
+
+**Behind the Drop in Overdose Deaths: Changes in Street Drugs**\
+`Experts are puzzling over which interventions are saving lives. The evolving illicit supply itself may hold important clues.`\
+https://nytimes.com/2024/11/21/health/overdose-deaths-decline-drug-supply.html
+
 **Colorado lands 5-star QB Julian Lewis: What this means for Deion Sanders**\
 `Lewis, the No. 35 overall prospect in the Class of 2025 in the 247Sports Composite, had previously been committed to USC.`\
 https://nytimes.com/athletic/5915821/2024/11/21/colorado-recruiting-deion-sanders-julian-lewis-qb/
@@ -15,7 +23,7 @@ https://nytimes.com/2024/11/21/world/middleeast/netanyahu-arrest-warrant.html
 https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/hegseth-republicans-senate
 
 **Spain Looks to Grant Residency to Nearly 1 Million Undocumented Migrants**\
-`The government said a new rules could give legal status — and work permits — to about 300,000 people a year over the next three years to address gaps in the labor market.`\
+`The government said new rules could give legal status — and work permits — to about 300,000 people a year over the next three years to address gaps in the labor market.`\
 https://nytimes.com/2024/11/21/world/europe/spain-migrants-residency-work-permits.html
 
 **What the Powerful Storm on the West Coast Will Do Next**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/arts/television/interior-chinatown-review.html
 **How Josh Metellus became the key to Brian Flores' innovative Vikings defense**\
 `The versatile 26-year-old is listed as a safety, but he has also lined up at linebacker, slot corner and even on the defensive line. `\
 https://nytimes.com/athletic/5936476/2024/11/21/josh-metellus-vikings-defense-brian-flores/
-
-**Can the Senate Survive Donald Trump?**\
-`The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
-https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
-
-**First Close-Up of Star Outside Our Galaxy Shows a Giant About to Blow**\
-`Astronomers zoomed in on a stellar behemoth in the Larger Magellanic Cloud, a galaxy that orbits about 160,000 light-years from the Milky Way.`\
-https://nytimes.com/2024/11/21/science/behemoth-star-closeup-picture.html
 
