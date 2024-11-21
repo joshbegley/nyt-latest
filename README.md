@@ -1,3 +1,19 @@
+**What to watch in college basketball this weekend: Duke vs. Arizona, neutral site games**\
+`What to watch in college basketball this weekend, headlined by a Duke-Arizona meeting and a pair of intriguing tournaments.`\
+https://nytimes.com/athletic/5935589/2024/11/21/what-to-watch-college-basketball-duke-arizona-bahamas/
+
+**International Criminal Court Seeks Netanyahu’s Arrest Over Gaza War**\
+`The court accused Benjamin Netanyahu and his former defense minister of having “intentionally and knowingly deprived” Gaza’s population of food, water, fuel and medicine.`\
+https://nytimes.com/2024/11/21/world/middleeast/international-criminal-court-gaza-netanyahu.html
+
+**Friday Briefing: Gaetz Ends Bid for Attorney General**\
+`Plus, bathing in crude oil.`\
+https://nytimes.com/2024/11/21/briefing/gaetz-netanyahu-arrest-warrant-ukraine.html
+
+**U.N. Watchdog Censures Iran Over Nuclear Program Secrecy**\
+`The action could lead to sanctions against Tehran, which has barred international monitoring of its accelerated uranium enrichment efforts.`\
+https://nytimes.com/2024/11/21/world/europe/iaea-censure-iran-nuclear.html
+
 **Put Cranberries in Your Shrimp Cocktail**\
 `This Thanksgiving, Genevieve Ko wants you to think beyond those canned rounds and adds the fruit to a dipping sauce — and also a creamy ricotta cheesecake.`\
 https://nytimes.com/2024/11/21/dining/thanksgiving-cranberries-shrimp-cocktail.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5938627/2024/11/21/nba-all-star-game-tournament-coa
 **Mali’s Junta Replaces Civilian Prime Minister With One of Its Own**\
 `The prime minister had been fired for criticizing the country’s junta.`\
 https://nytimes.com/2024/11/21/world/africa/mali-military-replace-prime-minister.html
-
-**Oilers' Darnell Nurse responds to head hit from Leafs' Ryan Reaves**\
-`Nurse won’t play Thursday when the Oilers host the Minnesota Wild.`\
-https://nytimes.com/athletic/5938570/2024/11/21/oilers-darnell-nurse-rangers-ryan-reaves-head-hit/
-
-**A Rite of Passage for Congressional Newcomers: Picking an Office**\
-`Since 1906, new members of Congress have drawn lots to choose their new homes on Capitol Hill. Staff and lawmakers often scout and strategize far in advance to find the best spaces.`\
-https://nytimes.com/2024/11/21/us/politics/capitol-congress-office-draw.html
-
-**Russia Launches New Intermediate-Range Missile at Ukraine**\
-`President Vladimir Putin said the attack was in response to Ukraine’s recent use of American and British weapons to strike deeper into Russia.`\
-https://nytimes.com/video/world/europe/100000009838923/russia-launches-new-intermediate-range-missile-at-ukraine.html
-
-**Israel Indicts Netanyahu Aide Over Leaked Document on Hamas**\
-`One of Prime Minister Benjamin Netanyahu’s advisers is accused of leaking a top-secret document to a German tabloid in an attempt to influence public sentiment on hostage negotiations.`\
-https://nytimes.com/2024/11/21/world/middleeast/israel-netanyahu-aide-leak-indictment.html
 
