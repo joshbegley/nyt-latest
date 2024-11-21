@@ -1,3 +1,7 @@
+**Dallas Long, Record-Setting Shot-Putter, Dies at 84**\
+`In an era when America dominated the event, he was one of the best. He retired after winning gold at the 1964 Tokyo Summer Olympics, and then`\
+https://nytimes.com/2024/11/21/sports/dallas-long-dead.html
+
 **I.C.C. Issues Arrest Warrant for Netanyahu Over War in Gaza**\
 `The International Criminal Court’s arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and his former defense minister, Yoav Gallant, were issued for war crimes and crimes against humanity in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009837972/icc-issues-arrest-warrant-for-netanyahu-over-war-in-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938230/2024/11/21/guinea-tanzania-afcon-wrong-shir
 **Los Angeles Sparks begin plans to build practice facility**\
 `For the last two seasons, L.A. practiced out of El Camino College, a community college in Torrance, Calif.`\
 https://nytimes.com/athletic/5938033/2024/11/21/los-angeles-sparks-practice-facility/
-
-**NHL trade board 2024-25: The latest on all the top targets from Chris Johnston**\
-`From Brock Nelson to Brad Marchand to Taylor Hall, the NHL trade market is starting to take shape early this season.`\
-https://nytimes.com/athletic/5930174/2024/11/21/nhl-trade-board-marchand-hall-nelson/
 
