@@ -1,3 +1,7 @@
+**Behind the Drop in Overdose Deaths: Changes in Street Drugs**\
+`Experts are puzzling over which interventions are saving lives. The evolving illicit supply itself may hold important clues.`\
+https://nytimes.com/2024/11/21/health/overdose-deaths-decline-drug-supply.html
+
 **Colorado lands 5-star QB Julian Lewis: What this means for Deion Sanders**\
 `Lewis, the No. 35 overall prospect in the Class of 2025 in the 247Sports Composite, had previously been committed to USC.`\
 https://nytimes.com/athletic/5915821/2024/11/21/colorado-recruiting-deion-sanders-julian-lewis-qb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936476/2024/11/21/josh-metellus-vikings-defense-br
 **Can the Senate Survive Donald Trump?**\
 `The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
 https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
-
-**First Close-Up of Star Outside Our Galaxy Shows a Giant About to Blow**\
-`Astronomers zoomed in on a stellar behemoth in the Larger Magellanic Cloud, a galaxy that orbits about 160,000 light-years from the Milky Way.`\
-https://nytimes.com/2024/11/21/science/behemoth-star-closeup-picture.html
 
