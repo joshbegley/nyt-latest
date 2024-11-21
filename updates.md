@@ -1,3 +1,7 @@
+**Read the Verdict in the Civil Case Against Amber Guyger**\
+`The jury’s verdict and award of damages against Amber Guyger, who is serving a 10-year sentence for the killing of Botham Jean.`\
+https://nytimes.com/interactive/2024/11/21/us/21xp-texas-doc.html
+
 **Anthony Weiner’s Latest Redemption Tour Starts With a Haircut**\
 `The disgraced New York politician is considering a run for City Council. But even in an era of political comebacks, this might be pushing it.`\
 https://nytimes.com/2024/11/21/nyregion/anthony-weiner-astor-place.html

@@ -1,3 +1,7 @@
+**Read the Verdict in the Civil Case Against Amber Guyger**\
+`The jury’s verdict and award of damages against Amber Guyger, who is serving a 10-year sentence for the killing of Botham Jean.`\
+https://nytimes.com/interactive/2024/11/21/us/21xp-texas-doc.html
+
 **Anthony Weiner’s Latest Redemption Tour Starts With a Haircut**\
 `The disgraced New York politician is considering a run for City Council. But even in an era of political comebacks, this might be pushing it.`\
 https://nytimes.com/2024/11/21/nyregion/anthony-weiner-astor-place.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936481/2024/11/21/chelsea-champions-league-celtic-
 **Desi Lydic Says Trump is ‘Picking Mascots,’ Not Leaders**\
 `“The Daily Show” host said Trump could do worse than an “actual doctor” like Dr. Oz to lead the Centers for Medicare and Medicaid Services: “I’m impressed he didn’t pick Dr Pepper.”`\
 https://nytimes.com/2024/11/21/arts/television/desi-lydic-donald-trump-dr-oz.html
-
-**How High School Graduates Can Improve Their Earnings Potential**\
-`New research shows that 73 “launchpad jobs” can help those without a four-year college degree advance and achieve higher pay.`\
-https://nytimes.com/2024/11/21/business/high-school-graduates-earnings.html
 
