@@ -1,3 +1,15 @@
+**Live Updates: I.C.C. Issues Arrest Warrants for Netanyahu and Gallant**\
+`The International Criminal Court rejected Israel’s challenges to its jurisdiction, and also issued a warrant for a top Hamas official. Its chief prosecutor had sought the arrests for war crimes in Gaza.`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza
+
+**Watch: ‘Obon’**\
+`What can the story of a Hiroshima survivor teach us about the horrors of nuclear weapons — and love, family and the human spirit?`\
+https://nytimes.com/2024/11/21/learning/watch-obon.html
+
+**Here are the latest developments.**\
+`The court’s chief prosecutor had sought the arrests over war crimes in Gaza. The court also issued a warrant for Hamas’s military chief, Muhammad Deif, whom Israel has said it killed.`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/icc-arrest-warrants-netanyahu-hamas
+
 **MLB won't play games in San Juan or Mexico City in 2025**\
 `The league’s only international destination for the 2025 regular season will be Tokyo, for the opening series between the Cubs and Dodgers.`\
 https://nytimes.com/athletic/5937014/2024/11/21/mlb-games-2025-san-juan-mexico-city-cancelled/
