@@ -1,3 +1,7 @@
+**Trump picks Pam Bondi, Florida’s former top prosecutor, to be attorney general after Gaetz’s withdrawal.**\
+`Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-attorney-general-trump
+
 **Trump Picks Pam Bondi, Florida’s Former Top Prosecutor, to Be Attorney General After Gaetz Withdrawal**\
 `Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
 https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-attorney-general-trump
