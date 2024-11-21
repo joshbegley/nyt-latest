@@ -1,3 +1,7 @@
+**The 2026 Georgia Governor’s Race Kicks Off With a First Hat in the Ring**\
+`The state’s attorney general, Chris Carr, a Republican, is the first person in either major party to declare his candidacy for statewide office in Georgia.`\
+https://nytimes.com/2024/11/21/us/politics/georgia-governor-race-2026.html
+
 **Gaetz Withdrew From Attorney General Consideration**\
 `Also, Putin said Russia struck Ukraine with a new missile. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/11/21/briefing/gaetz-withdraws-attorney-general-russia-ukraine-weapon.html
