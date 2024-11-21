@@ -1,3 +1,15 @@
+**Climate Talks Teeter, With Rich and Poor Countries in a Tug of War**\
+`Western countries are confronting demands for trillions of dollars to fight climate change and to cope with its worsening effects.`\
+https://nytimes.com/2024/11/21/climate/cop20-climate-summit-negotiations.html
+
+**North Korea Sent Troops to Russia. Russia Is Sending It Bears.**\
+`Vladimir Putin also presented a lion to Pyongyang Zoo, one of the more than 70 animals he sent as an emblem of the deepening friendship between the two nations.`\
+https://nytimes.com/2024/11/21/world/asia/putin-russia-north-korea-animals.html
+
+**Russia Gifts Zoo Animals to North Korea**\
+`An airplane full of crates carrying the animals, including two bears and a lion, landed in Pyongyang for what Russian state media described as “Vladimir Putin’s gift to the Korean people.”`\
+https://nytimes.com/video/world/asia/100000009837725/putin-russia-north-korea-animals.html
+
 **What's next for the Warriors at shooting guard after De'Anthony Melton's injury?**\
 `Lindy Waters III could be a temporary replacement for Melton, or Brandin Podziemski might get the nod to jump-start his sophomore season. `\
 https://nytimes.com/athletic/5936919/2024/11/21/whats-next-warriors-deanthony-melton-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/21/crosswords/spelling-bee-forum.html
 **Lando Norris accepts his first F1 title challenge likely will end in defeat**\
 `Verstappen leads the driver standings with 393 points, 62 points ahead of Norris with three races and a sprint to go`\
 https://nytimes.com/athletic/5937041/2024/11/21/lando-norris-f1-championship-max-verstappen-vegas/
-
-**Why Nina Wilson quit playing football: 'What happened to Maddy can happen again'**\
-`Former Sheffield United goalkeeper says she and other women's players are being failed by the sport - with terrible consequences`\
-https://nytimes.com/athletic/5921900/2024/11/21/nina-wilson-maddy-cusack-sheffield-united/
-
-**F1 drivers push for better FIA ties after race director's sudden exit: 'Us against them'**\
-`There was concern from the drivers not only about the change itself but also about their lack of involvement in the move.`\
-https://nytimes.com/athletic/5936869/2024/11/21/f1-george-russell-fia-drivers-union/
-
-**Chelsea's squad rotation is proving effective - and Macario's return only adds to their depth**\
-`Sonia Bompastor has made large-scale changes for every Champions League match. It is likely to serve Chelsea well as the season continues`\
-https://nytimes.com/athletic/5936481/2024/11/21/chelsea-champions-league-celtic-rotation-macario/
 
