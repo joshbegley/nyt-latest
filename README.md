@@ -1,3 +1,11 @@
+**Who’s Laughing Now? Banana-as-Art Sells for $6.2 Million at Sotheby’s**\
+`A conceptual artwork by Maurizio Cattelan, “Comedian,” is just a fruit-stand banana taped on the wall. But plenty of bidders were biting.`\
+https://nytimes.com/2024/11/20/arts/design/cattelan-banana-sothebys-auction.html
+
+**Madden 25 adds Saquon Barkley viral reverse hurdle in latest game update**\
+`Madden has immortalized other signature plays in the past, like Odell Beckham Jr.'s signature one-handed catch from 2014.`\
+https://nytimes.com/athletic/5936406/2024/11/20/saquon-barkley-spin-reverse-hurdle-madden-25/
+
 **U.S. Plans to Propose Breakup of Google to Fix Search Monopoly**\
 `In a landmark antitrust case, the government will ask a judge to force the company to sell its popular Chrome browser, people with knowledge of the matter said.`\
 https://nytimes.com/2024/11/20/technology/google-search-remedies-doj.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5932578/2024/11/20/tigers-tarik-skubal-al-cy-young-
 **‘We weren’t getting it done’: Bruins stars take the blame for Montgomery's firing**\
 `David Pastrnak: “Monty is a heck of a coach. He taught me and us a lot. It’s obviously a tough day. You feel a big part of guilt."`\
 https://nytimes.com/athletic/5936230/2024/11/20/bruins-players-react-jim-montgomery-firing/
-
-**Braves' Chris Sale wins NL Cy Young Award, his first in stellar comeback season**\
-`Sale's first season with the Braves was a masterpiece, as he finished with the NL's pitching triple crown and now its Cy Young Award.`\
-https://nytimes.com/athletic/5931255/2024/11/20/braves-chris-sale-nl-cy-young/
-
-**Rudy Giuliani’s New Lawyer Takes His Case to the Streets**\
-`Mr. Giuliani has not turned over his apartment and other items to two women he defamed. His new counsel, a Staten Island divorce lawyer, held a sidewalk news conference.`\
-https://nytimes.com/2024/11/20/nyregion/giuliani-defamation.html
 
