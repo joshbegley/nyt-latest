@@ -1,3 +1,11 @@
+**Hall of Fame mailbag: Stark on Ichiro, CC Sabathia, Dustin Pedroia, Dick Allen and more**\
+`Let’s dive into another edition of our ever-popular Hall of Fame subscriber mailbag.`\
+https://nytimes.com/athletic/5937113/2024/11/21/hall-of-fame-ichiro-sabathia-pedroia/
+
+**Sara Errani's golden season - and the art of the underarm serve**\
+`The 37-year-old completed a career Golden Slam in 2024, and has built a remarkable career behind one major weakness.`\
+https://nytimes.com/athletic/5936031/2024/11/21/sara-errani-tennis-player-italy-serve/
+
 **Raiders' Brock Bowers having a historic rookie season despite team's struggles**\
 `The Raiders have lost six straight games amid major turmoil on offense, but their first-year tight end is putting up incredible numbers.`\
 https://nytimes.com/athletic/5936372/2024/11/21/brock-bowers-raiders-rookie-tight-end-oroy/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/movies/joy-review.html
 **‘Flow’ Review: A Cat’s Life**\
 `A cat, a dog and a capybara embark on an epic adventure in this earnest and refreshingly unconventional animated film.`\
 https://nytimes.com/2024/11/21/movies/flow-review.html
-
-**‘Ernest Cole: Lost and Found’ Review: Chronicling Apartheid and Beyond**\
-`Raoul Peck looks at the compelling South African photographer, who died in 1990, whose work gets a second life onscreen.`\
-https://nytimes.com/2024/11/21/movies/ernest-cole-lost-and-found-review.html
-
-**Anthony Richardson shined in his Colts return, but one great game isn't enough**\
-`Richardson has shown flashes of brilliance before. What he needs to show now is that he can become a consistent force leading the Colts. `\
-https://nytimes.com/athletic/5935963/2024/11/21/colts-anthony-richardson-consistent-lions/
 
