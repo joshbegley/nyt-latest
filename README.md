@@ -1,3 +1,7 @@
+**Russia Launches New Intermediate-Range Missile at Ukraine**\
+`President Vladimir Putin said the attack was in response to Ukraine’s recent use of American and British weapons to strike deeper into Russia.`\
+https://nytimes.com/video/world/europe/100000009838923/russia-launches-new-intermediate-range-missile-at-ukraine.html
+
 **Israel Indicts Netanyahu Aide Over Leaked Document on Hamas**\
 `One of Prime Minister Benjamin Netanyahu’s advisers is accused of leaking a top-secret document to a German tabloid in an attempt to influence public sentiment on hostage negotiations.`\
 https://nytimes.com/2024/11/21/world/middleeast/israel-netanyahu-aide-leak-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/us/trump-neo-nazi-anti-government-groups.html
 **Guardiola signs two-year Man City contract extension**\
 `Pep Guardiola will remain Manchester City manager until the summer of 2027 after signing a two-year contract extension.`\
 https://nytimes.com/athletic/5935211/2024/11/21/pep-guardiola-signs-man-city-extension/
-
-**In ‘Music City’ and ‘Babe,’ Existential Battles of the Heart and Soul**\
-`Bedlam’s country music show is a rollicking good time. But the New Group’s production of “Babe,” starring Marisa Tomei, is a frustrating one-act lacking cohesion.`\
-https://nytimes.com/2024/11/21/theater/music-city-babe-review-tomei.html
 
