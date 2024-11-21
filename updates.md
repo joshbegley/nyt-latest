@@ -1,3 +1,15 @@
+**How Hostility to Immigrants Will Hurt America’s Tech Sector**\
+`Don’t assume that highly educated foreigners will be spared by the new administration.`\
+https://nytimes.com/2024/11/21/opinion/trump-immigration-technology.html
+
+**Dodgers' Shohei Ohtani wins unanimous third MVP, first in the NL after 50-50 season**\
+`Ohtani and former Los Angeles Angels teammate, Mike Trout, are the only active players to have won the award at least three times.`\
+https://nytimes.com/athletic/5930024/2024/11/21/dodgers-shohei-ohtani-unanimous-mvp/
+
+**Alex Ovechkin out 4 to 6 weeks with fractured fibula**\
+`Ovechkin, who is in pursuit of the NHL's all-time goals record, has 15 goals and 10 assists in 18 games played so far this season`\
+https://nytimes.com/athletic/5938983/2024/11/21/alex-ovechkin-injury-update-washington-capitals/
+
 **Seattle Power Outages Could Linger as Strong Storms Pelt the West Coast**\
 `A series of atmospheric rivers is flooding the Pacific Northwest and parts of California, with more wind and rain forecast as utilities try to restore power to hundreds of thousands of people.`\
 https://nytimes.com/2024/11/21/weather/west-coast-storm-power-outages.html
