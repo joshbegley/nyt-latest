@@ -1,3 +1,7 @@
+**Trump Picks Pam Bondi, Florida’s Former Top Prosecutor, to Be Attorney General After Gaetz Withdrawal**\
+`Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
+https://nytimes.com/2024/11/21/us/politics/pam-bondi-attorney-general-trump.html
+
 **How Hostility to Immigrants Will Hurt America’s Tech Sector**\
 `Don’t assume that highly educated foreigners will be spared by the new administration.`\
 https://nytimes.com/2024/11/21/opinion/trump-immigration-technology.html
