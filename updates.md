@@ -1,3 +1,15 @@
+**Inside the Lobbying Career of Trump’s New Chief of Staff**\
+`Before managing the campaign of President-elect Donald J. Trump, Susie Wiles represented a tobacco company and a mining project, among others.`\
+https://nytimes.com/2024/11/21/us/politics/susie-wiles-trump-lobbying.html
+
+**Mavericks' Luka Dončić to miss time with wrist injury**\
+`Dončić scored a game-high 26 points in a 41-point win over Pelicans on Tuesday.`\
+https://nytimes.com/athletic/5937787/2024/11/21/luka-doncic-wrist-injury-mavericks/
+
+**House Passes Antiterror Financing Bill as Democrats Warn Trump Could Abuse It**\
+`A substantial number of Democrats reversed their previous positions and opposed the measure, warning that President-elect Donald J. Trump could use it to punish nonprofit groups he saw as political antagonists.`\
+https://nytimes.com/2024/11/21/us/politics/house-antiterror-financing-bill.html
+
 **The Windup: MLB awards are (basically) all in**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5937964/2024/11/21/mlb-awards-cy-young-the-windup/
