@@ -1,3 +1,11 @@
+**Giannis Antetokounmpo's huge third quarter in win over Bulls leaves teammates speechless**\
+`Antetokounmpo's dominance on offense has the Bucks optimistic again after a 2-8 start. They have now won four of the last five games.`\
+https://nytimes.com/athletic/5936870/2024/11/21/giannis-antetokounmpo-dominance-bucks-bulls/
+
+**How many more games 'matter' in late November thanks to the expanded CFP?**\
+`With a 12-team field containing five conference champions and seven at-large bids, the CFP race has altered the stakes of late November.`\
+https://nytimes.com/athletic/5937507/2024/11/21/college-football-playoff-expansion-scenarios/
+
 **Team USA exits Davis Cup after surprise doubles pick against Australia**\
 `Doubles selection controversy has again overshadowed Team USA's Davis Cup after a defeat to Australia`\
 https://nytimes.com/athletic/5937718/2024/11/21/usa-davis-cup-out-australia-doubles-pick/
