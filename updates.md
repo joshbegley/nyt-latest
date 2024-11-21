@@ -1,3 +1,11 @@
+**New N.Y.P.D. Boss Takes Over a Department With ‘Phenomenal Problems’**\
+`Jessica Tisch will oversee top officials who have behaved questionably in public and private. Her supporters say she does not put up with shenanigans.`\
+https://nytimes.com/2024/11/21/nyregion/jessica-tisch-nypd-commissioner.html
+
+**Giants QB Daniel Jones addresses benching, bids farewell to fans**\
+`Daniel Jones confirmed that his $23 million injury guarantee was a contributing factor to the Giants' decision.`\
+https://nytimes.com/athletic/5938588/2024/11/21/giants-daniel-jones-addresses-benching-bids-farewell/
+
 **Theft of ‘Nutcracker’ Set Pieces and Props Can’t Stop a Michigan Production**\
 `After a trailer containing major props was stolen, members of the Plymouth-Canton Ballet Company have come together to make sure the annual show still goes on.`\
 https://nytimes.com/2024/11/21/arts/theft-nutcracker-trailer-michigan.html
