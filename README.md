@@ -1,3 +1,19 @@
+**Sacco is the Bruins interim head coach. Who’s next if he comes up short?**\
+`Who could GM Don Sweeney be keeping an eye on while monitoring the team's progress under Sacco? Here's an early look at six candidates.`\
+https://nytimes.com/athletic/5938123/2024/11/21/bruins-coaching-candidates/
+
+**Serie A to introduce additional transfer window before Club World Cup**\
+`Serie A has become the first top-flight league to introduce an additional transfer window before the inaugural Club World Cup next summer.`\
+https://nytimes.com/athletic/5938062/2024/11/21/serie-a-transfer-window-club-world-cup/
+
+**Morgan Wallen Wins CMA’s Entertainer of the Year Award**\
+`The singer, who is among the most popular artists in music, won country’s top prize in absentia, three years after being rebuked by the genre’s gatekeepers.`\
+https://nytimes.com/2024/11/21/arts/music/morgan-wallen-cma-awards-winners.html
+
+**Maple Leafs 20-game progress reports: Who's thriving?**\
+`Twenty games in, the Leafs' record sits at 12-6-2. How's everyone doing? Let's evaluate the roster from top to bottom.`\
+https://nytimes.com/athletic/5936091/2024/11/21/maple-leafs-progress-report-player-analysis/
+
 **Behind the Drop in Overdose Deaths: Changes in Street Drugs**\
 `Experts are puzzling over which interventions are saving lives. The evolving illicit supply itself may hold important clues.`\
 https://nytimes.com/2024/11/21/health/overdose-deaths-decline-drug-supply.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/hegseth-republicans-sena
 **Spain Looks to Grant Residency to Nearly 1 Million Undocumented Migrants**\
 `The government said new rules could give legal status — and work permits — to about 300,000 people a year over the next three years to address gaps in the labor market.`\
 https://nytimes.com/2024/11/21/world/europe/spain-migrants-residency-work-permits.html
-
-**What the Powerful Storm on the West Coast Will Do Next**\
-`Another day of extreme rain will fall across the region on Thursday as forecasters warn of dangerous flooding.`\
-https://nytimes.com/2024/11/21/weather/atmospheric-river-california-forecast-updates.html
-
-**‘Interior Chinatown’ Review: Off the Shelf**\
-`Charles Yu adapts his award-winning novel into a series that is both starkly different from the original and frustratingly familiar.`\
-https://nytimes.com/2024/11/21/arts/television/interior-chinatown-review.html
-
-**How Josh Metellus became the key to Brian Flores' innovative Vikings defense**\
-`The versatile 26-year-old is listed as a safety, but he has also lined up at linebacker, slot corner and even on the defensive line. `\
-https://nytimes.com/athletic/5936476/2024/11/21/josh-metellus-vikings-defense-brian-flores/
-
-**Can the Senate Survive Donald Trump?**\
-`The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
-https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
 
