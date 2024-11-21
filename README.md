@@ -1,3 +1,11 @@
+**The Athletic FC: How much to trust managers' injury updates, Man Utd top 'homegrown' list**\
+`Today in TAFC: Why managers can often stretch the truth when it comes to player injuries. Plus: Homegrown player data and pundit ratings`\
+https://nytimes.com/athletic/5937193/2024/11/21/premier-league-manager-injury-news/
+
+**NBA Lookahead: How low can the Sixers go? Plus, more NBA Cup action on tap**\
+`Philadelphia somehow has the worst record in the league. And, hey, let's remember Jason Kapono and Antoine Walker.`\
+https://nytimes.com/athletic/5928995/2024/11/21/nba-lookahead-sixers-nba-cup-preview/
+
 **Live Updates: I.C.C. Issues Arrest Warrants for Netanyahu and Gallant**\
 `The International Criminal Court rejected Israel’s challenges to its jurisdiction, and also issued a warrant for a top Hamas official. Its chief prosecutor had sought the arrests for war crimes in Gaza.`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5936372/2024/11/21/brock-bowers-raiders-rookie-tigh
 **‘Witches’ Review: Redeeming the Wicked Witch**\
 `The director Elizabeth Sankey’s experience with postpartum depression anchors this documentary about the pop-cultural representation of witches.`\
 https://nytimes.com/2024/11/21/movies/witches-review.html
-
-**‘Sabbath Queen’ Review: Capturing the Act of Questioning**\
-`Sandi DuBowski’s documentary about Rabbi Amichai Lau-Levie observes the making of a Jewish identity.`\
-https://nytimes.com/2024/11/21/movies/sabbath-queen-review.html
-
-**‘A Traveler’s Needs’ Review: Language Lessons**\
-`Iris (Isabelle Huppert), a stranger who teaches French in Seoul, is at the center of an enigmatic film by Hong Sang-soo.`\
-https://nytimes.com/2024/11/21/movies/a-travelers-needs-review.html
 
