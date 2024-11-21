@@ -1,3 +1,7 @@
+**The win record sets UConn's Geno Auriemma apart. But his players' legacies prove his greatness**\
+`Diana Taurasi, Maya Moore, Sue Bird and more celebrated Auriemma's milestone in Storrs. `\
+https://nytimes.com/athletic/5936881/2024/11/21/geno-auriemma-uconn-college-basketball-win-record-players/
+
 **After an unusually difficult start, is this the moment Arsenal's season really begins?**\
 `Considering the points they have already dropped, Arsenal now have an opportunity to kickstart their campaign in this next block of games`\
 https://nytimes.com/athletic/5931594/2024/11/21/arsenal-difficult-start-season-begins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5919718/2024/11/21/liverpool-premier-league-title-o
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/11/21/briefing/gaetz-ethics-israel-ukraine.html
-
-**Premier League homegrown players: Which clubs have none and who uses the most?**\
-`All the numbers behind the players developed in the academies of England's top-flight clubs`\
-https://nytimes.com/athletic/5934724/2024/11/21/premier-league-homegrown-players/
 
