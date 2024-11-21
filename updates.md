@@ -1,3 +1,7 @@
+**U.S. Plans to Propose Breakup of Google to Fix Search Monopoly**\
+`In a landmark antitrust case, the government will ask a judge to force the company to sell its popular Chrome browser, people with knowledge of the matter said.`\
+https://nytimes.com/2024/11/20/technology/google-search-remedies-doj.html
+
 **Kyle Shanahan on 49ers’ limited RB rotation: It’s hard to sit Christian McCaffrey**\
 `Brock Purdy was on hand for Wednesday's practice but didn't make any throws. Nick Bosa's game status, meanwhile, may come down to the wire.`\
 https://nytimes.com/athletic/5936418/2024/11/20/49ers-christian-mccaffrey-jordan-mason/

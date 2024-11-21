@@ -1,3 +1,7 @@
+**U.S. Plans to Propose Breakup of Google to Fix Search Monopoly**\
+`In a landmark antitrust case, the government will ask a judge to force the company to sell its popular Chrome browser, people with knowledge of the matter said.`\
+https://nytimes.com/2024/11/20/technology/google-search-remedies-doj.html
+
 **Kyle Shanahan on 49ers’ limited RB rotation: It’s hard to sit Christian McCaffrey**\
 `Brock Purdy was on hand for Wednesday's practice but didn't make any throws. Nick Bosa's game status, meanwhile, may come down to the wire.`\
 https://nytimes.com/athletic/5936418/2024/11/20/49ers-christian-mccaffrey-jordan-mason/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5931255/2024/11/20/braves-chris-sale-nl-cy-young/
 **Rudy Giuliani’s New Lawyer Takes His Case to the Streets**\
 `Mr. Giuliani has not turned over his apartment and other items to two women he defamed. His new counsel, a Staten Island divorce lawyer, held a sidewalk news conference.`\
 https://nytimes.com/2024/11/20/nyregion/giuliani-defamation.html
-
-**Roki Sasaki to be part of MLB's 2025 international signing class**\
-`Sasaki, 23, is one of baseball's most hyped pitching prospects.`\
-https://nytimes.com/athletic/5936263/2024/11/20/roki-sasaki-international-signing-period/
 
