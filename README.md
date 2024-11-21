@@ -1,3 +1,15 @@
+**Sabres mailbag: Will Kevyn Adams make a significant trade? Does Trevor Zegras fit?**\
+`There are still a lot of big-picture questions with the Sabres, and we’re going to explore some of those here.`\
+https://nytimes.com/athletic/5937714/2024/11/21/sabres-trade-trevor-zegras-maiblag/
+
+**New Thanksgiving Recipes That Earned Raves From Our Testers**\
+`Including a caramelized onion tahchin that’s “wonderfully comforting and absolutely crucial.”`\
+https://nytimes.com/2024/11/21/dining/thanksgiving-recipes-testers-loved.html
+
+**Scoop City: Why Wilson and Darnold look better**\
+`This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/5937934/2024/11/21/russell-wilson-sam-darnold-caleb-williams-scoop-city/
+
 **The Nikita Grebenkin experience is underway for the Maple Leafs**\
 `With injuries ravaging the Leafs, the 2020 fifth-round pick made his NHL debut in Wednesday's 3-0 win over the Golden Knights.`\
 https://nytimes.com/athletic/5937200/2024/11/21/maple-leafs-nikita-grebenkin-nhl/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/21/world/asia/kurram-pakistan-attack.html
 **John Elway talks Bo Nix's rise, Broncos QB support, Mike Shanahan's Hall of Fame hopes**\
 `The Broncos legend also discussed his diagnosis with Dupuytren's contracture five years ago and is now sharing story of his treatment.`\
 https://nytimes.com/athletic/5935369/2024/11/21/john-elway-bronocs-bo-nix-mike-shanahan/
-
-**Holiday Ornaments That Are Out of the Ordinary**\
-`A roundup of unusual Christmas baubles, from diamonds made of lichen to glass flowers and strawberry tarts.`\
-https://nytimes.com/2024/11/21/t-magazine/christmas-ornaments-unique.html
-
-**How many more games 'matter' in late November thanks to the expanded CFP?**\
-`With a 12-team field containing five conference champions and seven at-large bids, the CFP race has altered the stakes of late November.`\
-https://nytimes.com/athletic/5937507/2024/11/21/college-football-playoff-expansion-scenarios/
-
-**New York City FC's new stadium to be called Etihad Park**\
-`New York City FC’s new stadium will be called Etihad Park.`\
-https://nytimes.com/athletic/5937685/2024/11/21/etihad-park-nycfc-stadium-name/
 
