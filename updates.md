@@ -1,3 +1,15 @@
+**John Prescott, Ex-Deputy Prime Minister of Britain, Dies at 86**\
+`Mr. Prescott was a waiter on cruise ships before rising through the trade union movement and entering politics. He became one of the country’s best-known politicians under Tony Blair.`\
+https://nytimes.com/2024/11/21/world/europe/john-prescott-uk-dead.html
+
+**Let’s Discuss: ‘Our Rodent Selfies, Ourselves’**\
+`What can two rats teach us about our addiction to social media? Read the article and post your comments and questions for Emily Anthes by Dec. 5.`\
+https://nytimes.com/2024/11/21/learning/lesson-plans/lets-discuss-our-rodent-selfies-ourselves.html
+
+**Bribery Charges Against Tycoon Strike at Heart of Modi’s India**\
+`The U.S. indictment names Gautam Adani, one of India’s richest businessmen, but it points to an even bigger target: how business is done there.`\
+https://nytimes.com/2024/11/21/business/gautam-adani-bribery-indictment.html
+
 **Ukraine Says Russia Struck It With New Missile; ICBM Claim Is Disputed**\
 `Russia struck the city of Dnipro with a volley that Ukraine said included an intercontinental ballistic missile. Western officials said an ICBM was not used.`\
 https://nytimes.com/2024/11/21/world/europe/russia-ballistic-missile-ukraine-war.html

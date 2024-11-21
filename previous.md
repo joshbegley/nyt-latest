@@ -1,3 +1,11 @@
+**John Prescott, Ex-Deputy Prime Minister of Britain, Dies at 86**\
+`Mr. Prescott was a waiter on cruise ships before rising through the trade union movement and entering politics. He became one of the country’s best-known politicians under Tony Blair.`\
+https://nytimes.com/2024/11/21/world/europe/john-prescott-uk-dead.html
+
+**Let’s Discuss: ‘Our Rodent Selfies, Ourselves’**\
+`What can two rats teach us about our addiction to social media? Read the article and post your comments and questions for Emily Anthes by Dec. 5.`\
+https://nytimes.com/2024/11/21/learning/lesson-plans/lets-discuss-our-rodent-selfies-ourselves.html
+
 **Ukraine Says Russia Struck It With New Missile; ICBM Claim Is Disputed**\
 `Russia struck the city of Dnipro with a volley that Ukraine said included an intercontinental ballistic missile. Western officials said an ICBM was not used.`\
 https://nytimes.com/2024/11/21/world/europe/russia-ballistic-missile-ukraine-war.html
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/5937301/2024/11/21/reece-james-hamstring-injury-che
 https://nytimes.com/athletic/5936953/2024/11/21/joel-embiid-sixers-team-meeting/
 
 **Bribery Charges Against Tycoon Strike at Heart of Modi’s India**\
-`The U.S. indictment names Gautam Adani, one of India’s richest businessmen, but it points to an even bigger target: how business is done in India.`\
+`The U.S. indictment names Gautam Adani, one of India’s richest businessmen, but it points to an even bigger target: how business is done there.`\
 https://nytimes.com/2024/11/21/business/gautam-adani-bribery-indictment.html
 
 **Stadium plans, Mitchell's role and Eales' health: An evening with Newcastle's executives**\
 `Chris Waugh analyses the key takeaways as a host of Newcastle's decision makers address supporters`\
 https://nytimes.com/athletic/5935146/2024/11/21/eales-mitchell-stadium-newcastle/
-
-**Dissecting the DOGE Playbook**\
-`Elon Musk and Vivek Ramaswamy have unveiled their first plans to trim government spending, a blueprint that mirrors how the tech mogul cut costs at Twitter.`\
-https://nytimes.com/2024/11/21/business/dealbook/musk-ramaswamy-doge-playbook.html
-
-**The Athletic FC: How much to trust managers' injury updates, Man Utd top 'homegrown' list**\
-`Today in TAFC: Why managers can often stretch the truth when it comes to player injuries. Plus: Homegrown player data and pundit ratings`\
-https://nytimes.com/athletic/5937193/2024/11/21/premier-league-manager-injury-news/
 
