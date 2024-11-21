@@ -1,3 +1,7 @@
+**Kirby Smart vs. the CFP committee and the stats that matter**\
+`Let’s update each SEC team's yards-per-play differential and explosive-play differential and go deeper on schedule strength.`\
+https://nytimes.com/athletic/5938257/2024/11/21/college-football-playoff-committee-kirby-smart/
+
 **NBA ASG likely tourney format would feature top coaches in East, West**\
 `If the new format is adopted, as expected, there would be more than one losing team.`\
 https://nytimes.com/athletic/5938627/2024/11/21/nba-all-star-game-tournament-coaches/
