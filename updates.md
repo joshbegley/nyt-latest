@@ -1,3 +1,11 @@
+**Who’s Laughing Now? Banana-as-Art Sells for $6.2 Million at Sotheby’s**\
+`A conceptual artwork by Maurizio Cattelan, “Comedian,” is just a fruit-stand banana taped on the wall. But plenty of bidders were biting.`\
+https://nytimes.com/2024/11/20/arts/design/cattelan-banana-sothebys-auction.html
+
+**Madden 25 adds Saquon Barkley viral reverse hurdle in latest game update**\
+`Madden has immortalized other signature plays in the past, like Odell Beckham Jr.'s signature one-handed catch from 2014.`\
+https://nytimes.com/athletic/5936406/2024/11/20/saquon-barkley-spin-reverse-hurdle-madden-25/
+
 **U.S. Plans to Propose Breakup of Google to Fix Search Monopoly**\
 `In a landmark antitrust case, the government will ask a judge to force the company to sell its popular Chrome browser, people with knowledge of the matter said.`\
 https://nytimes.com/2024/11/20/technology/google-search-remedies-doj.html
