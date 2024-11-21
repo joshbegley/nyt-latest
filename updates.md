@@ -1,3 +1,7 @@
+**Rob Manfred gives Rays 2026 deadline for stadium plan, says league expansion still proceeding**\
+`The Rays were planning to move to a new stadium in St. Petersburg for 2028, but in the wake of Hurricane Milton, things have muddied.`\
+https://nytimes.com/athletic/5936548/2024/11/20/rob-manfred-rays-stadium-mlb-expansion/
+
 **Map: 2.3-Magnitude Earthquake Strikes Connecticut**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/11/20/nyregion/connecticut-earthquake.html
