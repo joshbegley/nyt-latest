@@ -1,3 +1,7 @@
+**Michigan flips QB Bryce Underwood — No. 1 player in 2025 class — from LSU**\
+`Underwood will be the highest-rated quarterback to sign with Michigan in the modern recruiting era. `\
+https://nytimes.com/athletic/5939109/2024/11/21/bryce-underwood-michigan-lsu-recruiting/
+
 **Yankees' Aaron Judge wins 2nd American League MVP award**\
 `Judge, who led the major leagues in multiple hitting categories, became the seventh player in Yankees history to win multiple MVPs.`\
 https://nytimes.com/athletic/5936746/2024/11/21/yankees-aaron-judge-2nd-al-mvp-award/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938391/2024/11/21/elliot-anderson-forest-foot-inju
 **College football Week 13 model-projected point differentials, totals for every game**\
 `Austin Mock's projection model gives predicted point differentials and point totals for every FBS vs. FBS game in Week 13.`\
 https://nytimes.com/athletic/5938904/2024/11/21/college-football-week-13-model-projections/
-
-**What’s the Worst Date You’ve Ever Been On? We Want to Hear About It.**\
-`Tell us about your experience, and you may be featured on the Modern Love podcast.`\
-https://nytimes.com/2024/11/21/podcasts/modern-love-worst-date-stories.html
 
