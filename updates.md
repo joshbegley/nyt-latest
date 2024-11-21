@@ -1,3 +1,7 @@
+**Percival Everett, Author of ‘James,’ Wins National Book Award for Fiction**\
+`Jason De León received the nonfiction award for “Soldiers and Kings: Survival and Hope in the World of Human Smuggling.”`\
+https://nytimes.com/2024/11/20/books/booksupdate/national-book-award-2024.html
+
 **Hanging Out in the Cold**\
 `Katie Hoody’s theme just goes on and on. …`\
 https://nytimes.com/2024/11/20/crosswords/daily-puzzle-2024-11-21.html

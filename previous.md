@@ -1,3 +1,7 @@
+**Percival Everett, Author of ‘James,’ Wins National Book Award for Fiction**\
+`Jason De León received the nonfiction award for “Soldiers and Kings: Survival and Hope in the World of Human Smuggling.”`\
+https://nytimes.com/2024/11/20/books/booksupdate/national-book-award-2024.html
+
 **Hanging Out in the Cold**\
 `Katie Hoody’s theme just goes on and on. …`\
 https://nytimes.com/2024/11/20/crosswords/daily-puzzle-2024-11-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936548/2024/11/20/rob-manfred-rays-stadium-mlb-exp
 **Map: 2.3-Magnitude Earthquake Strikes Connecticut**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/11/20/nyregion/connecticut-earthquake.html
-
-**Trump Tells Republicans to ‘Kill’ Reporter Shield Bill Passed Unanimously by House**\
-`The bill, known as the PRESS Act, would codify protections against federal investigators seizing reporters’ records. It is now less likely the legislation would clear the Senate before the current session ends.`\
-https://nytimes.com/2024/11/20/us/politics/trump-press-act-freedom-reporters.html
 
