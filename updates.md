@@ -1,3 +1,11 @@
+**MLB to test automated ball-strike challenge system at spring training ballparks in 2025**\
+`The system won’t be installed in every spring ballpark, but all teams will have opportunities to play with it.`\
+https://nytimes.com/athletic/5938669/2024/11/21/mlb-robot-umpires-testing-spring-training/
+
+**Officer’s Fatal Shooting of 911 Caller in Las Vegas Prompts Push for His Arrest**\
+`Body camera footage shows an officer fatally shooting a Black man who was struggling with a woman over a knife. The man had called the police for help.`\
+https://nytimes.com/2024/11/21/us/las-vegas-police-shooting-911-brandon-durham.html
+
 **New N.Y.P.D. Boss Takes Over a Department With ‘Phenomenal Problems’**\
 `Jessica Tisch will oversee top officials who have behaved questionably in public and private. Her supporters say she does not put up with posturing or incompetence.`\
 https://nytimes.com/2024/11/21/nyregion/jessica-tisch-nypd-commissioner.html
