@@ -1,3 +1,7 @@
+**Corrections: Nov. 21, 2024**\
+`Corrections that appeared in print on Thursday, Nov. 21, 2024.`\
+https://nytimes.com/2024/11/20/pageoneplus/corrections-nov-21-2024.html
+
 **Canadian Cabinet Minister With Shifting Story of Indigenous Heritage Steps Down**\
 `Randy Boissonnault, who resigned as employment minister, had long described himself as the great-grandson of a Cree woman, but now acknowledges he was wrong about his family’s ancestry.`\
 https://nytimes.com/2024/11/20/world/canada/randy-boissonnault-employment-minister-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/20/nyregion/urologist-sexual-abuse-ny-hospitals.html
 **Who’s Laughing Now? Banana-as-Art Sells for $6.2 Million at Sotheby’s**\
 `A conceptual artwork by Maurizio Cattelan, “Comedian,” is just a fruit-stand banana taped on the wall. But 7 bidders were biting. It went to a crypto entrepreneur.`\
 https://nytimes.com/2024/11/20/arts/design/cattelan-banana-sothebys-auction.html
-
-**Madden 25 adds Saquon Barkley viral reverse hurdle in latest game update**\
-`Madden has immortalized other signature plays in the past, like Odell Beckham Jr.'s signature one-handed catch from 2014.`\
-https://nytimes.com/athletic/5936406/2024/11/20/saquon-barkley-spin-reverse-hurdle-madden-25/
 
