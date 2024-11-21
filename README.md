@@ -1,3 +1,7 @@
+**The I.C.C. prosecutor had sought warrants for 3 Hamas leaders. At least 2 were killed.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/2024/11/21/world/middleeast/hamas-leaders-icc-arrest-warrant.html
+
 **Rutherford: Are the Blues considering a Jim Montgomery reunion? It's not out of the question**\
 `Will the former Blues assistant and recently fired Boston Bruins head coach be returning to St. Louis? `\
 https://nytimes.com/athletic/5935331/2024/11/21/blues-jim-montgomery-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5937193/2024/11/21/premier-league-manager-injury-ne
 **NBA Lookahead: How low can the Sixers go? Plus, more NBA Cup action on tap**\
 `Philadelphia somehow has the worst record in the league. And, hey, let's remember Jason Kapono and Antoine Walker.`\
 https://nytimes.com/athletic/5928995/2024/11/21/nba-lookahead-sixers-nba-cup-preview/
-
-**Live Updates: I.C.C. Issues Arrest Warrants for Netanyahu and Gallant**\
-`The International Criminal Court rejected Israel’s challenges to its jurisdiction, and also issued a warrant for a top Hamas official. Its chief prosecutor had sought the arrests for war crimes in Gaza.`\
-https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza
 
