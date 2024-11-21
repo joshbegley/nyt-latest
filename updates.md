@@ -1,3 +1,7 @@
+**Chelsea's squad rotation is proving effective - and Macario's return only adds to their depth**\
+`Sonia Bompastor has made large-scale changes for every Champions League match. It is likely to serve Chelsea well as the season continues`\
+https://nytimes.com/athletic/5936481/2024/11/21/chelsea-champions-league-celtic-rotation-macario/
+
 **Read the Verdict in the Civil Case Against Amber Guyger**\
 `The jury’s verdict and award of damages against Amber Guyger, who is serving a 10-year sentence for the killing of Botham Jean.`\
 https://nytimes.com/interactive/2024/11/21/us/21xp-texas-doc.html

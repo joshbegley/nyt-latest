@@ -30,8 +30,8 @@ https://nytimes.com/athletic/5921900/2024/11/21/nina-wilson-maddy-cusack-sheffie
 `There was concern from the drivers not only about the change itself but also about their lack of involvement in the move.`\
 https://nytimes.com/athletic/5936869/2024/11/21/f1-george-russell-fia-drivers-union/
 
-**Chelsea's squad rotation is proving effective and Macario's return only adds to their depth**\
-`Sonia Bompastor has made large-scale changes for every Champions League match and it is likely to serve Chelsea well as the season continues`\
+**Chelsea's squad rotation is proving effective - and Macario's return only adds to their depth**\
+`Sonia Bompastor has made large-scale changes for every Champions League match. It is likely to serve Chelsea well as the season continues`\
 https://nytimes.com/athletic/5936481/2024/11/21/chelsea-champions-league-celtic-rotation-macario/
 
 **Desi Lydic Says Trump is ‘Picking Mascots,’ Not Leaders**\
