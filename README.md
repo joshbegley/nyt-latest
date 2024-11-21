@@ -1,3 +1,7 @@
+**Israel Strikes Near Beirut as U.S. Envoy Pushes Ahead on Cease-Fire Talks**\
+`The envoy, Amos Hochstein, was in Israel and planned to meet with Prime Minister Benjamin Netanyahu, seeking a truce in the country’s war with the militant group Hezbollah.`\
+https://nytimes.com/2024/11/21/world/middleeast/israel-hezbollah-strikes-talks.html
+
 **SEC should be thankful for a 12-team Playoff this year. It would be on the brink with 4**\
 `The Big Ten would be pondering multiple bids in a more exclusive Playoff format this season.`\
 https://nytimes.com/athletic/5936471/2024/11/21/college-football-playoff-sec-miss-playoff-4-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936496/2024/11/21/dallas-cowboys-ceedee-lamb-injur
 **How Trump Got in Americans’ Heads and Stayed There**\
 `Trump excelled at tapping into the information ecosystems where minority and young voters express their identity.`\
 https://nytimes.com/2024/11/21/opinion/trump-trad-wives-podcasters-wellness.html
-
-**The Greatest Cancel Culture Warrior in America Is Donald Trump**\
-`Sure, the left can be nuts, but have you looked at the right lately?`\
-https://nytimes.com/2024/11/21/opinion/trump-cancel-culture-maga.html
 
