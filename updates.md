@@ -1,3 +1,15 @@
+**Climate Talks Teeter, With Rich and Poor Countries in a Tug of War**\
+`Western countries are confronting demands for trillions of dollars to fight climate change and to cope with its worsening effects.`\
+https://nytimes.com/2024/11/21/climate/cop20-climate-summit-negotiations.html
+
+**North Korea Sent Troops to Russia. Russia Is Sending It Bears.**\
+`Vladimir Putin also presented a lion to Pyongyang Zoo, one of the more than 70 animals he sent as an emblem of the deepening friendship between the two nations.`\
+https://nytimes.com/2024/11/21/world/asia/putin-russia-north-korea-animals.html
+
+**Russia Gifts Zoo Animals to North Korea**\
+`An airplane full of crates carrying the animals, including two bears and a lion, landed in Pyongyang for what Russian state media described as “Vladimir Putin’s gift to the Korean people.”`\
+https://nytimes.com/video/world/asia/100000009837725/putin-russia-north-korea-animals.html
+
 **What's next for the Warriors at shooting guard after De'Anthony Melton's injury?**\
 `Lindy Waters III could be a temporary replacement for Melton, or Brandin Podziemski might get the nod to jump-start his sophomore season. `\
 https://nytimes.com/athletic/5936919/2024/11/21/whats-next-warriors-deanthony-melton-injury/
