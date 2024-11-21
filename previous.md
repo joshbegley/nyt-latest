@@ -1,3 +1,11 @@
+**The Windup: MLB awards are (basically) all in**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5937964/2024/11/21/mlb-awards-cy-young-the-windup/
+
+**Israelis condemn the decision to issue arrest warrants for Netanyahu and Gallant.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/israelis-condemn-the-decision-to-issue-arrest-warrants-for-netanyahu-and-gallant
+
 **Should Gay Couples Worry About Their Benefits Under Trump?**\
 `Readers had concerns about whether same-sex married couples and their protections would face new risks during a second Trump term.`\
 https://nytimes.com/2024/11/21/business/trump-same-sex-marriage-gay-rights.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5936870/2024/11/21/giannis-antetokounmpo-dominance-
 **Team USA exits Davis Cup after surprise doubles pick against Australia**\
 `Doubles selection controversy has again overshadowed Team USA's Davis Cup after a defeat to Australia`\
 https://nytimes.com/athletic/5937718/2024/11/21/usa-davis-cup-out-australia-doubles-pick/
-
-**At Least 38 Killed as Gunmen Ambush Shiite Convoys in Pakistan**\
-`The attack was one of the deadliest in months of violence between Sunnis and Shiites in the Kurram region.`\
-https://nytimes.com/2024/11/21/world/asia/kurram-pakistan-attack.html
-
-**John Elway talks Bo Nix's rise, Broncos QB support, Mike Shanahan's Hall of Fame hopes**\
-`The Broncos legend also discussed his diagnosis with Dupuytren's contracture five years ago and is now sharing story of his treatment.`\
-https://nytimes.com/athletic/5935369/2024/11/21/john-elway-bronocs-bo-nix-mike-shanahan/
 

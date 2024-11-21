@@ -1,3 +1,11 @@
+**The Windup: MLB awards are (basically) all in**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5937964/2024/11/21/mlb-awards-cy-young-the-windup/
+
+**Israelis condemn the decision to issue arrest warrants for Netanyahu and Gallant.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/israelis-condemn-the-decision-to-issue-arrest-warrants-for-netanyahu-and-gallant
+
 **Sabres mailbag: Will Kevyn Adams make a significant trade? Does Trevor Zegras fit?**\
 `There are still a lot of big-picture questions with the Sabres, and we’re going to explore some of those here.`\
 https://nytimes.com/athletic/5937714/2024/11/21/sabres-trade-trevor-zegras-maiblag/
