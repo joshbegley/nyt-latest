@@ -1,3 +1,11 @@
+**Stadium plans, Mitchell's role and Eales' health: An evening with Newcastle's executives**\
+`Chris Waugh analyses the key takeaways as a host of Newcastle's decision makers address supporters`\
+https://nytimes.com/athletic/5935146/2024/11/21/eales-mitchell-stadium-newcastle/
+
+**Dissecting the DOGE Playbook**\
+`Elon Musk and Vivek Ramaswamy have unveiled their first plans to trim government spending, a blueprint that mirrors how the tech mogul cut costs at Twitter.`\
+https://nytimes.com/2024/11/21/business/dealbook/musk-ramaswamy-doge-playbook.html
+
 **The Athletic FC: How much to trust managers' injury updates, Man Utd top 'homegrown' list**\
 `Today in TAFC: Why managers can often stretch the truth when it comes to player injuries. Plus: Homegrown player data and pundit ratings`\
 https://nytimes.com/athletic/5937193/2024/11/21/premier-league-manager-injury-news/
@@ -26,15 +34,7 @@ https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/icc-arrest
 `Let’s dive into another edition of our ever-popular Hall of Fame subscriber mailbag.`\
 https://nytimes.com/athletic/5937113/2024/11/21/hall-of-fame-ichiro-sabathia-pedroia/
 
-**Sara Errani's golden season - and the art of the underarm serve**\
+**Sara Errani's golden season – and the art of the underarm serve**\
 `The 37-year-old completed a career Golden Slam in 2024, and has built a remarkable career behind one major weakness.`\
 https://nytimes.com/athletic/5936031/2024/11/21/sara-errani-tennis-player-italy-serve/
-
-**Raiders' Brock Bowers having a historic rookie season despite team's struggles**\
-`The Raiders have lost six straight games amid major turmoil on offense, but their first-year tight end is putting up incredible numbers.`\
-https://nytimes.com/athletic/5936372/2024/11/21/brock-bowers-raiders-rookie-tight-end-oroy/
-
-**‘Witches’ Review: Redeeming the Wicked Witch**\
-`The director Elizabeth Sankey’s experience with postpartum depression anchors this documentary about the pop-cultural representation of witches.`\
-https://nytimes.com/2024/11/21/movies/witches-review.html
 
