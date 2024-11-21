@@ -1,3 +1,11 @@
+**An Immigrant Family’s Dreams, Shattered by a Random Stabbing Spree**\
+`On Sunday, Angel Lata Landi, a construction worker, called his mother in Ecuador, whom he helped support. The next day, he was one of three people stabbed to death on the street in Manhattan.`\
+https://nytimes.com/2024/11/21/nyregion/nyc-stabbing-manhattan-angel-lata-landi.html
+
+**Flyers stock watch: Who’s trending up, who’s trending down after 20 games?**\
+`It's as good a time as any to take a broader look at the Flyers, who hit the 20-game mark with a somewhat disappointing 8-10-2 record. `\
+https://nytimes.com/athletic/5938288/2024/11/21/flyers-stock-watch-players-analysis/
+
 **MLB to test automated ball-strike challenge system at spring training ballparks in 2025**\
 `The system won’t be installed in every spring ballpark, but all teams will have opportunities to play with it.`\
 https://nytimes.com/athletic/5938669/2024/11/21/mlb-robot-umpires-testing-spring-training/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5938588/2024/11/21/giants-daniel-jones-addresses-be
 **Theft of ‘Nutcracker’ Set Pieces and Props Can’t Stop a Michigan Production**\
 `After a trailer containing major props was stolen, members of the Plymouth-Canton Ballet Company have come together to make sure the annual show still goes on.`\
 https://nytimes.com/2024/11/21/arts/theft-nutcracker-trailer-michigan.html
-
-**What to watch in college basketball this weekend: Duke vs. Arizona, neutral site games**\
-`What to watch in college basketball this weekend, headlined by a Duke-Arizona meeting and a pair of intriguing tournaments.`\
-https://nytimes.com/athletic/5935589/2024/11/21/what-to-watch-college-basketball-duke-arizona-bahamas/
-
-**International Criminal Court Seeks Netanyahu’s Arrest Over Gaza War**\
-`The court accused Benjamin Netanyahu and his former defense minister of having “intentionally and knowingly deprived” Gaza’s population of food, water, fuel and medicine.`\
-https://nytimes.com/2024/11/21/world/middleeast/icc-netanyahu-israel-gaza-war.html
 

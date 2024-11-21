@@ -1,3 +1,11 @@
+**An Immigrant Family’s Dreams, Shattered by a Random Stabbing Spree**\
+`On Sunday, Angel Lata Landi, a construction worker, called his mother in Ecuador, whom he helped support. The next day, he was one of three people stabbed to death on the street in Manhattan.`\
+https://nytimes.com/2024/11/21/nyregion/nyc-stabbing-manhattan-angel-lata-landi.html
+
+**Flyers stock watch: Who’s trending up, who’s trending down after 20 games?**\
+`It's as good a time as any to take a broader look at the Flyers, who hit the 20-game mark with a somewhat disappointing 8-10-2 record. `\
+https://nytimes.com/athletic/5938288/2024/11/21/flyers-stock-watch-players-analysis/
+
 **MLB to test automated ball-strike challenge system at spring training ballparks in 2025**\
 `The system won’t be installed in every spring ballpark, but all teams will have opportunities to play with it.`\
 https://nytimes.com/athletic/5938669/2024/11/21/mlb-robot-umpires-testing-spring-training/
