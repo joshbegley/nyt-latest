@@ -1,3 +1,15 @@
+**Team USA exits Davis Cup after surprise doubles pick against Australia**\
+`Doubles selection controversy has again overshadowed Team USA's Davis Cup after a defeat to Australia`\
+https://nytimes.com/athletic/5937718/2024/11/21/usa-davis-cup-out-australia-doubles-pick/
+
+**At Least 38 Killed as Gunmen Ambush Shiite Convoys in Pakistan**\
+`The attack was one of the deadliest in months of violence between Sunnis and Shiites in the Kurram region.`\
+https://nytimes.com/2024/11/21/world/asia/kurram-pakistan-attack.html
+
+**John Elway talks Bo Nix's rise, Broncos QB support, Mike Shanahan's Hall of Fame hopes**\
+`The Broncos legend also discussed his diagnosis with Dupuytren's contracture five years ago and is now sharing story of his treatment.`\
+https://nytimes.com/athletic/5935369/2024/11/21/john-elway-bronocs-bo-nix-mike-shanahan/
+
 **Holiday Ornaments That Are Out of the Ordinary**\
 `A roundup of unusual Christmas baubles, from diamonds made of lichen to glass flowers and strawberry tarts.`\
 https://nytimes.com/2024/11/21/t-magazine/christmas-ornaments-unique.html

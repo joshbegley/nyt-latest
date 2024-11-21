@@ -1,3 +1,15 @@
+**Team USA exits Davis Cup after surprise doubles pick against Australia**\
+`Doubles selection controversy has again overshadowed Team USA's Davis Cup after a defeat to Australia`\
+https://nytimes.com/athletic/5937718/2024/11/21/usa-davis-cup-out-australia-doubles-pick/
+
+**At Least 38 Killed as Gunmen Ambush Shiite Convoys in Pakistan**\
+`The attack was one of the deadliest in months of violence between Sunnis and Shiites in the Kurram region.`\
+https://nytimes.com/2024/11/21/world/asia/kurram-pakistan-attack.html
+
+**John Elway talks Bo Nix's rise, Broncos QB support, Mike Shanahan's Hall of Fame hopes**\
+`The Broncos legend also discussed his diagnosis with Dupuytren's contracture five years ago and is now sharing story of his treatment.`\
+https://nytimes.com/athletic/5935369/2024/11/21/john-elway-bronocs-bo-nix-mike-shanahan/
+
 **Holiday Ornaments That Are Out of the Ordinary**\
 `A roundup of unusual Christmas baubles, from diamonds made of lichen to glass flowers and strawberry tarts.`\
 https://nytimes.com/2024/11/21/t-magazine/christmas-ornaments-unique.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5937640/2024/11/21/everton-branthwaite-mcneil-injur
 **The Bounce: It's time buy or sell these NBA contenders**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5937225/2024/11/21/nba-cavaliers-celtics-lakers-bucks-76ers-joel-embiid-paul-george-nba-the-bounce/
-
-**Cowboys Today: DaRon Bland's mysterious injury situation and Dante Fowler's impact**\
-`Bland was injured in training camp and is working his way back, but still hasn't played. Dallas will see a familiar face Sunday in D.C.`\
-https://nytimes.com/athletic/5936956/2024/11/21/cowboys-today-daron-bland-injury-update-dante-fowler-commanders/
-
-**Few Sitting Leaders Have Faced I.C.C. War Crimes Charges**\
-`The short list includes Omar Hassan al-Bashir, the deposed president of Sudan, and President Vladimir V. Putin of Russia.`\
-https://nytimes.com/2024/11/21/world/middleeast/icc-war-crime-arrest-warrants-putin.html
-
-**Stuttgart's Deniz Undav ruled out of the rest of the year with injury**\
-`Stuttgart striker Deniz Undav has suffered a torn muscle fibre and will be out for the &#8220;coming weeks&#8221;, the Bundesliga club have said.`\
-https://nytimes.com/athletic/5937451/2024/11/21/deniz-undav-injury-stuttgart/
 
