@@ -1,3 +1,15 @@
+**Israel and Iran Seemed on the Brink of a Bigger War. What’s Holding Them Back?**\
+`So far, direct attacks between the two adversaries have been precise and calculated. Whether that lasts is another question.`\
+https://nytimes.com/2024/11/21/world/middleeast/israel-iran-brink-bigger-war.html
+
+**Connections: Sports Edition hints for Nov. 21, 2024**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/5936824/2024/11/21/connections-sports-edition-coach-59/
+
+**Quote of the Day: Wildfire Risk Only Growing For Northeast**\
+`Quotation of the Day for Thursday, November 21, 2024`\
+https://nytimes.com/2024/11/20/pageoneplus/quote-of-the-day-wildfire-risk-only-growing-for-northeast.html
+
 **In New York, Reporting on Four Fires in Four Days**\
 `Anything is on the table for a general assignment reporter in New York. Still, a series of brush fires in the city and a big blaze upstate were far from expected.`\
 https://nytimes.com/2024/11/20/insider/new-york-city-fires.html

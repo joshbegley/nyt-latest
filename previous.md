@@ -1,3 +1,15 @@
+**Israel and Iran Seemed on the Brink of a Bigger War. What’s Holding Them Back?**\
+`So far, direct attacks between the two adversaries have been precise and calculated. Whether that lasts is another question.`\
+https://nytimes.com/2024/11/21/world/middleeast/israel-iran-brink-bigger-war.html
+
+**Connections: Sports Edition hints for Nov. 21, 2024**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/5936824/2024/11/21/connections-sports-edition-coach-59/
+
+**Quote of the Day: Wildfire Risk Only Growing For Northeast**\
+`Quotation of the Day for Thursday, November 21, 2024`\
+https://nytimes.com/2024/11/20/pageoneplus/quote-of-the-day-wildfire-risk-only-growing-for-northeast.html
+
 **In New York, Reporting on Four Fires in Four Days**\
 `Anything is on the table for a general assignment reporter in New York. Still, a series of brush fires in the city and a big blaze upstate were far from expected.`\
 https://nytimes.com/2024/11/20/insider/new-york-city-fires.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5936780/2024/11/20/paul-george-knee-injury-sixers-g
 **Percival Everett, Author of ‘James,’ Wins National Book Award for Fiction**\
 `Jason De León received the nonfiction award for “Soldiers and Kings: Survival and Hope in the World of Human Smuggling.”`\
 https://nytimes.com/2024/11/20/books/booksupdate/national-book-award-2024.html
-
-**Hanging Out in the Cold**\
-`Katie Hoody’s theme just goes on and on. …`\
-https://nytimes.com/2024/11/20/crosswords/daily-puzzle-2024-11-21.html
-
-**Begich Defeats Peltola in Alaska, Flipping House Seat for Republicans**\
-`The G.O.P. united behind Nick Begich III, the conservative son of a prominent liberal Alaska political family, to beat Representative Mary Peltola, a Democrat.`\
-https://nytimes.com/2024/11/20/us/elections/alaska-house-begich-peltola.html
-
-**Corrections: Nov. 21, 2024**\
-`Corrections that appeared in print on Thursday, Nov. 21, 2024.`\
-https://nytimes.com/2024/11/20/pageoneplus/corrections-nov-21-2024.html
 
