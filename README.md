@@ -1,3 +1,7 @@
+**Trump Picks Pam Bondi, Florida’s Former Top Prosecutor, to Be His Attorney General After Gaetz Withdrawal**\
+`Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
+https://nytimes.com/2024/11/21/us/politics/pam-bondi-attorney-general-trump.html
+
 **How Hostility to Immigrants Will Hurt America’s Tech Sector**\
 `Don’t assume that highly educated foreigners will be spared by the new administration.`\
 https://nytimes.com/2024/11/21/opinion/trump-immigration-technology.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936746/2024/11/21/yankees-aaron-judge-2nd-al-mvp-a
 **N.Y.C. Housing Plan Moves Forward With an Unexpected $5 Billion Boost**\
 `A City Council committee passed a major proposal that would ease restrictions on housing growth in New York. The full Council is likely to approve it next month.`\
 https://nytimes.com/2024/11/21/nyregion/housing-city-yes-nyc.html
-
-**Senator Bob Casey Concedes to Dave McCormick in Pennsylvania**\
-`Mr. Casey, a three-term Democrat, bowed out of his race against David McCormick, a Republican who led narrowly amid a recount of votes in one of the nation’s top Senate races.`\
-https://nytimes.com/2024/11/21/us/politics/bob-casey-david-mccormick-pennsylvania-senate.html
 
