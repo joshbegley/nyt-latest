@@ -1,3 +1,15 @@
+**Packers' Jaire Alexander says he tore his PCL, unsure of return timetable**\
+`Alexander suffered the initial knee injury against the Jaguars in Week 8 and reaggravated it last Sunday against the Bears.`\
+https://nytimes.com/athletic/5938752/2024/11/21/packers-jaire-alexander-pcl-injury/
+
+**Buttigieg Warns Trump-Panicked Democrats, ‘We Cannot Be Mesmerized’**\
+`The transportation secretary, one of several ambitious Democrats jockeying for prominence, gave advice in a speech but was coy about his own plans: “I know that I will make myself useful again later.”`\
+https://nytimes.com/2024/11/21/us/politics/pete-buttigieg-trump-democrats.html
+
+**Peeling the $6.2 Million Banana: An Auction Explainer**\
+`Answers to six immediate questions you might have about the art world after a crypto entrepreneur spent millions on a 35-cent fruit.`\
+https://nytimes.com/2024/11/21/arts/design/banana-auction-explainer-cattelan.html
+
 **New N.Y.P.D. Boss Takes Over a Department With ‘Phenomenal Problems’**\
 `Jessica Tisch will oversee top officials who have behaved questionably in public and private. Her supporters say she does not put up with shenanigans.`\
 https://nytimes.com/2024/11/21/nyregion/jessica-tisch-nypd-commissioner.html
