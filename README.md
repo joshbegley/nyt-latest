@@ -1,3 +1,11 @@
+**From Chimpan-A to Chimpanzee, These Apes May Have Humanlike Culture**\
+`Researchers describe a link between genetic relatedness and sophisticated tool use in primates in East and Central Africa, suggesting their culture is cumulative.`\
+https://nytimes.com/2024/11/21/science/chimpanzees-culture-dna-tools.html
+
+**Trump Media May Be Mulling a Crypto Payment Service**\
+`The parent company of Truth Social filed a trademark application for a crypto payment service it called TruthFi.`\
+https://nytimes.com/2024/11/21/business/trump-media-crypto-payment-service.html
+
 **‘Gladiator II’ Review: Thumb’s Up!**\
 `Denzel Washington’s performance shows skill, intensity and absolute confidence in Ridley Scott’s pleasurably immersive epic about ancient Roman fighters.`\
 https://nytimes.com/2024/11/21/movies/gladiator-ii-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/world/middleeast/us-icc-member-countries.html
 **Northvolt, Europe’s Hope for a Battery Champion, Files for Bankruptcy**\
 `The company’s woes are symptomatic of a wider malaise among companies that make batteries for electric vehicles.`\
 https://nytimes.com/2024/11/21/business/northvolt-battery-bankruptcy.html
-
-**The Metamorphosis of Pete Hegseth: From Critic of War Crimes to Defender of the Accused**\
-`President-elect Donald J. Trump’s pick to lead the Defense Department was described by peers as a skillful soldier who became embittered by military dysfunction.`\
-https://nytimes.com/2024/11/21/us/politics/pete-hegseth-defense-department.html
-
-**Guinea call for Tanzania's AFCON removal over shirt number error**\
-`The Guinea Football Federation (FGF) is claiming Tanzania should be prevented from qualifying for next year’s Africa Cup of Nations (AFCON) after an alleged administrative violation in Tuesday’s match between the two sides which saw a Tanzanian substitute wear an incorrect shirt number.`\
-https://nytimes.com/athletic/5938230/2024/11/21/guinea-tanzania-afcon-wrong-shirt-number/
 
