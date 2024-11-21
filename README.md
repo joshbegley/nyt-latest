@@ -1,3 +1,11 @@
+**Chelsea's squad rotation is proving effective and Macario's return only adds to their depth**\
+`Sonia Bompastor has made large-scale changes for every Champions League match and it is likely to serve Chelsea well as the season continues`\
+https://nytimes.com/athletic/5936481/2024/11/21/chelsea-champions-league-celtic-rotation-macario/
+
+**Desi Lydic Says Trump is ‘Picking Mascots,’ Not Leaders**\
+`“The Daily Show” host said Trump could do worse than an “actual doctor” like Dr. Oz to lead the Centers for Medicare and Medicaid Services: “I’m impressed he didn’t pick Dr Pepper.”`\
+https://nytimes.com/2024/11/21/arts/television/desi-lydic-donald-trump-dr-oz.html
+
 **How High School Graduates Can Improve Their Earnings Potential**\
 `New research shows that 73 “launchpad jobs” can help those without a four-year college degree advance and achieve higher pay.`\
 https://nytimes.com/2024/11/21/business/high-school-graduates-earnings.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5935761/2024/11/21/blake-snell-free-agency-dodgers-
 **Judge John Hodgman on Proper Pringle Consumption**\
 `Saddle edges up? Or down?`\
 https://nytimes.com/2024/11/21/magazine/judge-john-hodgman-on-proper-pringle-consumption.html
-
-**The Premier League Owners: Game-changing money from the Gulf - and what next?**\
-`In part four of our series about Premier League owners, we examine the impact of investment from the Middle East`\
-https://nytimes.com/athletic/5931950/2024/11/21/the-premier-league-owners-game-changing-money-from-the-gulf-and-what-next/
-
-**The State of Punditry - part 2: How the world analyses football - and the U.S. lead the way**\
-`In the second part of our series, Tim Spiers examines how the sport is dissected across the globe`\
-https://nytimes.com/athletic/5935127/2024/11/21/punditry-usa-germany-spain-world/
 
