@@ -1,3 +1,7 @@
+**Cowboys Today: DaRon Bland's mysterious injury situation and Dante Fowler's impact**\
+`Bland was injured in training camp and is working his way back, but still hasn't played. Dallas will see a familiar face Sunday in D.C.`\
+https://nytimes.com/athletic/5936956/2024/11/21/cowboys-today-daron-bland-injury-update-dante-fowler-commanders/
+
 **Few Sitting Leaders Have Faced I.C.C. War Crimes Charges**\
 `The short list includes Omar Hassan al-Bashir, the deposed president of Sudan, and President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2024/11/21/world/middleeast/icc-war-crime-arrest-warrants-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/world/middleeast/hamas-leaders-icc-arrest-warrant
 **Rutherford: Are the Blues considering a Jim Montgomery reunion? It's not out of the question**\
 `Will the former Blues assistant and recently fired Boston Bruins head coach be returning to St. Louis? `\
 https://nytimes.com/athletic/5935331/2024/11/21/blues-jim-montgomery-bruins/
-
-**How longtime catcher Sal Fasano will help restructure the Angels' 2025 pitching plans**\
-`Fasano — who won a World Series with the Angels for playing two games in 2002 — will be something of a jack-of-all-trades as a coach.`\
-https://nytimes.com/athletic/5935567/2024/11/21/angels-pitching-coach-sal-fasano/
 

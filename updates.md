@@ -1,3 +1,7 @@
+**Cowboys Today: DaRon Bland's mysterious injury situation and Dante Fowler's impact**\
+`Bland was injured in training camp and is working his way back, but still hasn't played. Dallas will see a familiar face Sunday in D.C.`\
+https://nytimes.com/athletic/5936956/2024/11/21/cowboys-today-daron-bland-injury-update-dante-fowler-commanders/
+
 **Few Sitting Leaders Have Faced I.C.C. War Crimes Charges**\
 `The short list includes Omar Hassan al-Bashir, the deposed president of Sudan, and President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2024/11/21/world/middleeast/icc-war-crime-arrest-warrants-putin.html
