@@ -1,3 +1,7 @@
+**What’s the Worst Date You’ve Ever Been On? We Want to Hear About It.**\
+`Tell us about your experience, and you may be featured on an episode of the Modern Love podcast.`\
+https://nytimes.com/2024/11/21/podcasts/modern-love-worst-date-stories.html
+
 **The Warrant for Netanyahu’s Arrest Also Implicates the United States**\
 `We should not operate as if there is some hierarchy in the value of children’s lives.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/icc-netanyahu-warrant
