@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/netanyahu-
 `Readers respond to the Matt Gaetz drama. Also: Dr. Mehmet Oz and Robert F. Kennedy Jr.; Russia’s nuclear pose; political spending; election lessons; homelessness.`\
 https://nytimes.com/2024/11/21/opinion/matt-gaetz-house-ethics-report.html
 
-**Matt Gaetz withdraws from consideration as attorney general.**\
-`By Noah Weiland`\
+**Matt Gaetz Withdraws From Consideration as Attorney General**\
+`The former Florida congressman said in a statement that his confirmation “was unfairly becoming a distraction to the critical work of the Trump/Vance Transition.”`\
 https://nytimes.com/2024/11/21/us/politics/matt-gaetz-withdraws-attorney-general.html
 
 **Jay Leno Says He Was Injured in a Fall**\
