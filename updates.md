@@ -1,3 +1,7 @@
+**Police Report Offers Graphic Details of Sexual Assault Claim Against Hegseth**\
+`President-elect Donald J. Trump’s choice for defense secretary was never charged with a crime and vehemently denied to the police that a sexual encounter was coerced.`\
+https://nytimes.com/2024/11/20/us/politics/police-report-sexual-assault-claim-hegseth.html
+
 **New York City Will Get Some Rain, but Not Enough to Ease Its Drought**\
 `About two inches were forecast to fall through Saturday. Officials say it won’t be enough to fully replenish the city’s reservoirs.`\
 https://nytimes.com/2024/11/20/nyregion/nyc-rain-forecast-drought.html
