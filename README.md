@@ -1,3 +1,7 @@
+**Gaetz Withdrew From Attorney General Consideration**\
+`Also, Putin said Russia struck Ukraine with a new missile. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/11/21/briefing/gaetz-withdraws-attorney-general-russia-ukraine-weapon.html
+
 **Forest's Anderson to be assessed before Arsenal trip**\
 `Nottingham Forest will assess Elliot Anderson on Friday before their trip to face Arsenal on Saturday.`\
 https://nytimes.com/athletic/5938391/2024/11/21/elliot-anderson-forest-foot-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/arts/dance/alvin-ailey-american-dance-theater-ali
 **Spencer Lawton Jr., D.A. in ‘Midnight in the Garden’ Case, Dies at 81**\
 `He devoted much of his 28 years in office in Savannah to victims’ rights, but he was best known for his role in a 1981 murder at the center of a best seller and its movie version.`\
 https://nytimes.com/2024/11/21/books/spencer-lawton-jr-dead.html
-
-**An Immigrant Family’s Dreams, Shattered by a Random Stabbing Spree**\
-`On Sunday, Angel Lata Landi, a construction worker, called his mother in Ecuador, whom he helped support. The next day, he was one of three people stabbed to death on the street in Manhattan.`\
-https://nytimes.com/2024/11/21/nyregion/nyc-stabbing-manhattan-angel-lata-landi.html
 
