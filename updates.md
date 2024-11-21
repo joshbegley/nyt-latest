@@ -1,3 +1,7 @@
+**Paul George reinjures knee as 76ers lose again to fall to 2-12**\
+`George's hyperextended knee is the same knee he injured in the preseason, which caused him to miss the first five games of the season. `\
+https://nytimes.com/athletic/5936780/2024/11/20/paul-george-knee-injury-sixers-grizzlies/
+
 **Percival Everett, Author of ‘James,’ Wins National Book Award for Fiction**\
 `Jason De León received the nonfiction award for “Soldiers and Kings: Survival and Hope in the World of Human Smuggling.”`\
 https://nytimes.com/2024/11/20/books/booksupdate/national-book-award-2024.html
