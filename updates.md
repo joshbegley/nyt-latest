@@ -1,3 +1,7 @@
+**Theft of ‘Nutcracker’ Set Pieces and Props Can’t Stop a Michigan Production**\
+`After a trailer containing major props was stolen, members of the Plymouth-Canton Ballet Company have come together to make sure the annual show still goes on.`\
+https://nytimes.com/2024/11/21/arts/theft-nutcracker-trailer-michigan.html
+
 **International Criminal Court Seeks Netanyahu’s Arrest Over Gaza War**\
 `The court accused Benjamin Netanyahu and his former defense minister of having “intentionally and knowingly deprived” Gaza’s population of food, water, fuel and medicine.`\
 https://nytimes.com/2024/11/21/world/middleeast/icc-netanyahu-israel-gaza-war.html
