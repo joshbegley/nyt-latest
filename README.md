@@ -1,7 +1,3 @@
-**Kirby Smart vs. the CFP committee and the stats that matter**\
-`Let’s update each SEC team's yards-per-play differential and explosive-play differential and go deeper on schedule strength.`\
-https://nytimes.com/athletic/5938257/2024/11/21/college-football-playoff-committee-kirby-smart/
-
 **NBA ASG likely tourney format would feature top coaches in East, West**\
 `If the new format is adopted, as expected, there would be more than one losing team.`\
 https://nytimes.com/athletic/5938627/2024/11/21/nba-all-star-game-tournament-coaches/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/21/us/politics/steven-j-rosen-dead.html
 **Landslides Are a Growing Climate Threat. What Do We Know About Them?**\
 `Deadly landslides are becoming more common and large amounts of rain are a known trigger. An atmospheric river is dumping rain out West. What you should know about your risk.`\
 https://nytimes.com/2024/11/21/climate/landslides-rain-climate-explainer.html
+
+**The Alluring Dream That Black America Needs to Wake Up From**\
+`Cleopatra is not our mother.`\
+https://nytimes.com/2024/11/21/opinion/ancient-egypt-met-museum-black-america.html
 
