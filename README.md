@@ -1,14 +1,10 @@
-**Phillips 66 Is Accused of Violating the Clean Water Act**\
-`The oil company was indicted on charges of dumping nearly 800,000 gallons of contaminated wastewater into the Los Angeles County sewer system.`\
-https://nytimes.com/2024/11/21/technology/phillips-66-wastewater-indictment.html
-
 **Peter Sinfield, Lyricist for King Crimson, Dies at 80**\
 `His swirls of poetic imagery helped define progressive rock in the 1970s. He later turned his focus to pop acts like Celine Dion.`\
 https://nytimes.com/2024/11/21/arts/music/peter-sinfield-dead.html
 
 **Trump Picks Pam Bondi, Florida’s Former Top Prosecutor, to Be Attorney General After Gaetz Withdrawal**\
 `Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
-https://nytimes.com/2024/11/21/us/politics/pam-bondi-attorney-general-trump.html
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-attorney-general-trump
 
 **How Hostility to Immigrants Will Hurt America’s Tech Sector**\
 `Don’t assume that highly educated foreigners will be spared by the new administration.`\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/21/us/linda-mcmahon-sexual-abuse-lawsuit-trump-educa
 **Michigan flips QB Bryce Underwood — No. 1 player in 2025 class — from LSU**\
 `Underwood will be the highest-rated quarterback to sign with Michigan in the modern recruiting era. `\
 https://nytimes.com/athletic/5939109/2024/11/21/bryce-underwood-michigan-lsu-recruiting/
+
+**Yankees' Aaron Judge wins 2nd American League MVP award**\
+`Judge, who led the major leagues in multiple hitting categories, became the seventh player in Yankees history to win multiple MVPs.`\
+https://nytimes.com/athletic/5936746/2024/11/21/yankees-aaron-judge-2nd-al-mvp-award/
 
