@@ -1,4 +1,4 @@
-**An I.C.C. arrest warrant limited Putin’s movements. This is how he handled it.**\
+**An I.C.C. arrest warrant limits Putin’s movements. This is how he handles it.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/an-icc-arrest-warrant-limited-putins-movements-this-is-how-he-handled-it
 
