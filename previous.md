@@ -1,3 +1,7 @@
+**College football Week 13 model-projected point differentials, totals for every game**\
+`Austin Mock's projection model gives predicted point differentials and point totals for every FBS vs. FBS game in Week 13.`\
+https://nytimes.com/athletic/5938904/2024/11/21/college-football-week-13-model-projections/
+
 **What’s the Worst Date You’ve Ever Been On? We Want to Hear About It.**\
 `Tell us about your experience, and you may be featured on an episode of the Modern Love podcast.`\
 https://nytimes.com/2024/11/21/podcasts/modern-love-worst-date-stories.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/nyregion/nyc-stabbing-manhattan-angel-lata-landi.
 **Flyers stock watch: Who’s trending up, who’s trending down after 20 games?**\
 `It's as good a time as any to take a broader look at the Flyers, who hit the 20-game mark with a somewhat disappointing 8-10-2 record. `\
 https://nytimes.com/athletic/5938288/2024/11/21/flyers-stock-watch-players-analysis/
-
-**MLB to test automated ball-strike challenge system at spring training ballparks in 2025**\
-`The system won’t be installed in every spring ballpark, but all teams will have opportunities to play with it.`\
-https://nytimes.com/athletic/5938669/2024/11/21/mlb-robot-umpires-testing-spring-training/
 
