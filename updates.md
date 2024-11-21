@@ -1,3 +1,7 @@
+**Russia Launches New Intermediate-Range Missile at Ukraine**\
+`President Vladimir Putin said the attack was in response to Ukraine’s recent use of American and British weapons to strike deeper into Russia.`\
+https://nytimes.com/video/world/europe/100000009838923/russia-launches-new-intermediate-range-missile-at-ukraine.html
+
 **Israel Indicts Netanyahu Aide Over Leaked Document on Hamas**\
 `One of Prime Minister Benjamin Netanyahu’s advisers is accused of leaking a top-secret document to a German tabloid in an attempt to influence public sentiment on hostage negotiations.`\
 https://nytimes.com/2024/11/21/world/middleeast/israel-netanyahu-aide-leak-indictment.html
