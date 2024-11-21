@@ -1,3 +1,11 @@
+**MLB won't play games in San Juan or Mexico City in 2025**\
+`The league’s only international destination for the 2025 regular season will be Tokyo, for the opening series between the Cubs and Dodgers.`\
+https://nytimes.com/athletic/5937014/2024/11/21/mlb-games-2025-san-juan-mexico-city-cancelled/
+
+**International Criminal Court Issues Arrest Warrants for Netanyahu and Gallant**\
+`The court’s chief prosecutor had sought the arrests over war crimes in Gaza. The court also issued a warrant for Hamas’s military chief, Muhammad Deif, whom Israel has said it killed.`\
+https://nytimes.com/2024/11/21/world/middleeast/icc-arrest-warrants-netanyahu-hamas.html
+
 **International Criminal Court Issues Arrest Warrants for Netanyahu and Gallant**\
 `The court rejected Israel’s challenges to its jurisdiction. Its chief prosecutor had sought the arrests over Israeli military actions in Gaza.`\
 https://nytimes.com/2024/11/21/world/middleeast/icc-arrest-warrants-netanyahu-hamas.html
