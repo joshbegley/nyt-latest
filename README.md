@@ -1,4 +1,4 @@
-**The win record sets UConn's Geno Auriemma apart. But his players' legacies prove his greatness**\
+**The win record sets UConn's Geno Auriemma apart. But his players' legacies tell his greatness**\
 `Diana Taurasi, Maya Moore, Sue Bird and more celebrated Auriemma's milestone in Storrs. `\
 https://nytimes.com/athletic/5936881/2024/11/21/geno-auriemma-uconn-college-basketball-win-record-players/
 
