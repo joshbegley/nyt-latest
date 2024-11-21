@@ -1,3 +1,11 @@
+**Trump Picks Pam Bondi, Florida’s Former Top Prosecutor, to Be Attorney General After Gaetz Withdrawal**\
+`Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-attorney-general-trump
+
+**Alex Ovechkin out 4 to 6 weeks with fractured fibula**\
+`Ovechkin, who is in pursuit of the NHL's all-time goals record, has 15 goals and 10 assists in 18 games played so far this season.`\
+https://nytimes.com/athletic/5938983/2024/11/21/alex-ovechkin-injury-update-washington-capitals/
+
 **Peter Sinfield, Lyricist for King Crimson, Dies at 80**\
 `His swirls of poetic imagery helped define progressive rock in the 1970s. He later turned his focus to pop acts like Celine Dion.`\
 https://nytimes.com/2024/11/21/arts/music/peter-sinfield-dead.html
