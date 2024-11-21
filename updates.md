@@ -1,3 +1,7 @@
+**Sara Errani's golden season – and the art of the underarm serve**\
+`The 37-year-old completed a career Golden Slam in 2024, and has built a remarkable career behind one major weakness.`\
+https://nytimes.com/athletic/5936031/2024/11/21/sara-errani-tennis-player-italy-serve/
+
 **Live Updates: I.C.C. Issues Arrest Warrants for Netanyahu and Gallant**\
 `The International Criminal Court rejected Israel’s challenges to its jurisdiction, and also issued a warrant for a top Hamas official. Its chief prosecutor had sought the arrests for war crimes in Gaza.`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza

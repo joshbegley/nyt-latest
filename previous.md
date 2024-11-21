@@ -18,7 +18,7 @@ https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/icc-arrest
 `Let’s dive into another edition of our ever-popular Hall of Fame subscriber mailbag.`\
 https://nytimes.com/athletic/5937113/2024/11/21/hall-of-fame-ichiro-sabathia-pedroia/
 
-**Sara Errani's golden season - and the art of the underarm serve**\
+**Sara Errani's golden season – and the art of the underarm serve**\
 `The 37-year-old completed a career Golden Slam in 2024, and has built a remarkable career behind one major weakness.`\
 https://nytimes.com/athletic/5936031/2024/11/21/sara-errani-tennis-player-italy-serve/
 
