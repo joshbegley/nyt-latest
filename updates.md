@@ -1,3 +1,7 @@
+**Corrections: Nov. 21, 2024**\
+`Corrections that appeared in print on Thursday, Nov. 21, 2024.`\
+https://nytimes.com/2024/11/20/pageoneplus/corrections-nov-21-2024.html
+
 **Canadian Cabinet Minister With Shifting Story of Indigenous Heritage Steps Down**\
 `Randy Boissonnault, who resigned as employment minister, had long described himself as the great-grandson of a Cree woman, but now acknowledges he was wrong about his family’s ancestry.`\
 https://nytimes.com/2024/11/20/world/canada/randy-boissonnault-employment-minister-resigns.html
