@@ -1,6 +1,6 @@
 **Gaetz’s Withdrawal Means the Senate Passed Its First Test**\
 `Trump failed to push Republicans past their red line.`\
-https://nytimes.com/live/2024/11/19/opinion/thepoint/gaetzs-withdrawal-means-the-senate-passed-its-first-test
+https://nytimes.com/live/2024/11/19/opinion/thepoint/matt-gaetz-withdraw-attorney-general
 
 **Man Who Faked Kayaking Death Says in Video He’s ‘Safe’**\
 `But the man, Ryan Borgwardt, who is believed to be in Eastern Europe and has been communicating with the authorities, has not committed to returning home, officials said.`\
