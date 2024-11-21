@@ -1,3 +1,11 @@
+**NFL Week 12 fantasy football, betting cheat sheet: Mike Evans, Isiah Pacheco near returns**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5932278/2024/11/21/nfl-week-12-fantasy-football-betting-cheat-sheet/
+
+**Dyche says Branthwaite and McNeil set to be available against Brentford**\
+`Everton manager Sean Dyche expects key duo Jarrad Branthwaite and Dwight McNeil to be available for Saturday’s game against Brentford.`\
+https://nytimes.com/athletic/5937640/2024/11/21/everton-branthwaite-mcneil-injury-update/
+
 **The Bounce: It's time buy or sell these NBA contenders**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5937225/2024/11/21/nba-cavaliers-celtics-lakers-bucks-76ers-joel-embiid-paul-george-nba-the-bounce/

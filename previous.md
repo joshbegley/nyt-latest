@@ -1,3 +1,11 @@
+**NFL Week 12 fantasy football, betting cheat sheet: Mike Evans, Isiah Pacheco near returns**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5932278/2024/11/21/nfl-week-12-fantasy-football-betting-cheat-sheet/
+
+**Dyche says Branthwaite and McNeil set to be available against Brentford**\
+`Everton manager Sean Dyche expects key duo Jarrad Branthwaite and Dwight McNeil to be available for Saturday’s game against Brentford.`\
+https://nytimes.com/athletic/5937640/2024/11/21/everton-branthwaite-mcneil-injury-update/
+
 **The Bounce: It's time buy or sell these NBA contenders**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5937225/2024/11/21/nba-cavaliers-celtics-lakers-bucks-76ers-joel-embiid-paul-george-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/world/europe/john-prescott-uk-dead.html
 **Let’s Discuss: ‘Our Rodent Selfies, Ourselves’**\
 `What can two rats teach us about our addiction to social media? Read the article and post your comments and questions for Emily Anthes by Dec. 5.`\
 https://nytimes.com/2024/11/21/learning/lesson-plans/lets-discuss-our-rodent-selfies-ourselves.html
-
-**Ukraine Says Russia Struck It With New Missile; ICBM Claim Is Disputed**\
-`Russia struck the city of Dnipro with a volley that Ukraine said included an intercontinental ballistic missile. Western officials said an ICBM was not used.`\
-https://nytimes.com/2024/11/21/world/europe/russia-ballistic-missile-ukraine-war.html
-
-**I.C.C. Prosecutor Sought Warrants for 3 Hamas Leaders. At Least 2 Are Now Dead.**\
-`Karim Khan had asked the court to issue warrants for Hamas’s top leader in Gaza, Yahya Sinwar; its political leader, Ismail Haniyeh; and its military chief, Muhammad Deif.`\
-https://nytimes.com/2024/11/21/world/middleeast/hamas-leaders-icc-arrest-warrant.html
 
