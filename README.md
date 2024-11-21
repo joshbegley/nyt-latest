@@ -1,3 +1,7 @@
+**Israel and Iran Seemed on the Brink of a Bigger War. What’s Holding Them Back?**\
+`So far, direct attacks between the two adversaries have been precise and calculated. Whether that lasts is another question.`\
+https://nytimes.com/2024/11/21/world/middleeast/israel-iran-brink-bigger-war.html
+
 **Connections: Sports Edition hints for Nov. 21, 2024**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/5936824/2024/11/21/connections-sports-edition-coach-59/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936780/2024/11/20/paul-george-knee-injury-sixers-g
 **Percival Everett, Author of ‘James,’ Wins National Book Award for Fiction**\
 `Jason De León received the nonfiction award for “Soldiers and Kings: Survival and Hope in the World of Human Smuggling.”`\
 https://nytimes.com/2024/11/20/books/booksupdate/national-book-award-2024.html
-
-**Hanging Out in the Cold**\
-`Katie Hoody’s theme just goes on and on. …`\
-https://nytimes.com/2024/11/20/crosswords/daily-puzzle-2024-11-21.html
 
