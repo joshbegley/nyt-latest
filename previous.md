@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5938904/2024/11/21/college-football-week-13-model-projections/
 
 **What’s the Worst Date You’ve Ever Been On? We Want to Hear About It.**\
-`Tell us about your experience, and you may be featured on an episode of the Modern Love podcast.`\
+`Tell us about your experience, and you may be featured on the Modern Love podcast.`\
 https://nytimes.com/2024/11/21/podcasts/modern-love-worst-date-stories.html
 
 **The Warrant for Netanyahu’s Arrest Also Implicates the United States**\
