@@ -1,3 +1,7 @@
+**11 stats that tell the story of Drake Maye's hot start**\
+`Maye is off to a strong start with the Patriots. But what is he doing well? And where does he still need to improve? We explain.`\
+https://nytimes.com/athletic/5935784/2024/11/21/drake-maye-patriots-qb-stats/
+
 **Baggarly: It's time for the BBWAA to add a Reliever of the Year Award**\
 `No reliever has won the Cy Young Award since Eric Gagne in 2003. It's time to give them a chance at a prestigious award.`\
 https://nytimes.com/athletic/5936757/2024/11/21/opinion-bbwaa-reliever-of-the-year-award/
