@@ -1,3 +1,11 @@
+**Warriors' Melton to undergo season-ending left knee surgery**\
+`The 26-year-old guard signed a one-year deal with the Warriors last summer. His season ends after just six games in a Golden State jersey.`\
+https://nytimes.com/athletic/5936594/2024/11/20/deanthony-melton-injury-acl-warriors/
+
+**Democrats Split as Senate Rejects Bills to Block Weapons Transfers to Israel**\
+`The legislation failed resoundingly but highlighted the Democratic divide over whether the United States should withhold some weapons to register its disapproval of Israel’s war tactics.`\
+https://nytimes.com/2024/11/20/us/senate-israel-weapons.html
+
 **UConn's Auriemma becomes all-time winningest college basketball coach**\
 `Geno Auriemma earned his 1,217th win Wednesday night to pass Tara VanDerveer for the record.`\
 https://nytimes.com/athletic/5936477/2024/11/20/geno-auriemma-uconn-winningest-coach-college-basketball/
