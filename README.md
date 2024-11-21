@@ -1,3 +1,7 @@
+**Paul George reinjures knee as 76ers lose again to fall to 2-12**\
+`George's hyperextended knee is the same knee he injured in the preseason, which caused him to miss the first five games of the season. `\
+https://nytimes.com/athletic/5936780/2024/11/20/paul-george-knee-injury-sixers-grizzlies/
+
 **Percival Everett, Author of ‘James,’ Wins National Book Award for Fiction**\
 `Jason De León received the nonfiction award for “Soldiers and Kings: Survival and Hope in the World of Human Smuggling.”`\
 https://nytimes.com/2024/11/20/books/booksupdate/national-book-award-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936477/2024/11/20/geno-auriemma-uconn-winningest-c
 **Rob Manfred gives Rays 2026 deadline for stadium plan, says league expansion still proceeding**\
 `The Rays were planning to move to a new stadium in St. Petersburg for 2028, but in the wake of Hurricane Milton, things have muddied.`\
 https://nytimes.com/athletic/5936548/2024/11/20/rob-manfred-rays-stadium-mlb-expansion/
-
-**Map: 2.3-Magnitude Earthquake Strikes Connecticut**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/11/20/nyregion/connecticut-earthquake.html
 
