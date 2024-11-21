@@ -1,3 +1,7 @@
+**Should Gay Couples Worry About Their Benefits Under Trump?**\
+`Readers had concerns about whether same-sex married couples and their protections would face new risks during a second Trump term.`\
+https://nytimes.com/2024/11/21/business/trump-same-sex-marriage-gay-rights.html
+
 **Sabres mailbag: Will Kevyn Adams make a significant trade? Does Trevor Zegras fit?**\
 `There are still a lot of big-picture questions with the Sabres, and we’re going to explore some of those here.`\
 https://nytimes.com/athletic/5937714/2024/11/21/sabres-trade-trevor-zegras-maiblag/
@@ -13,10 +17,6 @@ https://nytimes.com/athletic/5937934/2024/11/21/russell-wilson-sam-darnold-caleb
 **The Nikita Grebenkin experience is underway for the Maple Leafs**\
 `With injuries ravaging the Leafs, the 2020 fifth-round pick made his NHL debut in Wednesday's 3-0 win over the Golden Knights.`\
 https://nytimes.com/athletic/5937200/2024/11/21/maple-leafs-nikita-grebenkin-nhl/
-
-**Should Gay Couples Worry About Their Benefits Under Trump?**\
-`Readers had concerns about whether same-sex married couples and their protections would face new risks during a second Trump term.`\
-https://nytimes.com/2024/11/21/business/trump-same-sex-marriage-gay-rights.html
 
 **Here’s Why the I.C.C. Says It Issued the Arrest Warrants**\
 `The International Criminal Court said there were grounds to hold two Israeli leaders responsible for the crisis in Gaza, and a Hamas military leader for crimes against humanity.`\
