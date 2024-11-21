@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 12: Sleepers, projections, starts, Bo Nix, Rome Odunze**\
+`In this bye-heavy week, Jake Ciely offers detailed game breakdowns, rankings, sleepers and more to help maximize your Week 12 lineup.`\
+https://nytimes.com/athletic/5933388/2024/11/21/fantasy-football-rankings-week-12-sleepers-projections-starts-bo-nix-rome-odunze/
+
 **First Close-Up of Star Outside Our Galaxy Shows a Giant About to Blow**\
 `Astronomers zoomed in on a stellar behemoth in the Larger Magellanic Cloud, a galaxy that orbits about 160,000 light-years from the Milky Way.`\
 https://nytimes.com/2024/11/21/science/behemoth-star-closeup-picture.html
