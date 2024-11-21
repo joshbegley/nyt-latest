@@ -1,3 +1,7 @@
+**How Josh Metellus became the key to Brian Flores' innovative Vikings defense**\
+`The versatile 26-year-old is listed as a safety, but he has also lined up at linebacker, slot corner and even on the defensive line. `\
+https://nytimes.com/athletic/5936476/2024/11/21/josh-metellus-vikings-defense-brian-flores/
+
 **Can the Senate Survive Donald Trump?**\
 `The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
 https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
