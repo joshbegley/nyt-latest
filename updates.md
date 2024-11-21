@@ -1,3 +1,19 @@
+**Anthony Weiner’s Latest Redemption Tour Starts With a Haircut**\
+`The disgraced New York politician is considering a run for City Council. But even in an era of political comebacks, this might be pushing it.`\
+https://nytimes.com/2024/11/21/nyregion/anthony-weiner-astor-place.html
+
+**Brooklyn Needs Housing. She Has a Vacant Lot. Why Can’t She Build?**\
+`A property owner’s effort to develop an apartment building in a popular neighborhood has been stymied for years. She may just give up.`\
+https://nytimes.com/2024/11/21/nyregion/housing-crunch-affordable-housing-brooklyn.html
+
+**The Priest, the Power Broker and the Pop Star**\
+`Msgr. Jamie J. Gigantiello is in hot water with his diocese. Prosecutors are looking into his dealings with the New York City mayor’s top adviser. It all started with Sabrina Carpenter.`\
+https://nytimes.com/2024/11/21/nyregion/sabrina-carpenter-church-frank-carone.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/21/crosswords/spelling-bee-forum.html
+
 **Lando Norris accepts his first F1 title challenge likely will end in defeat**\
 `Verstappen leads the driver standings with 393 points, 62 points ahead of Norris with three races and a sprint to go`\
 https://nytimes.com/athletic/5937041/2024/11/21/lando-norris-f1-championship-max-verstappen-vegas/

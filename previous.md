@@ -1,3 +1,19 @@
+**Anthony Weiner’s Latest Redemption Tour Starts With a Haircut**\
+`The disgraced New York politician is considering a run for City Council. But even in an era of political comebacks, this might be pushing it.`\
+https://nytimes.com/2024/11/21/nyregion/anthony-weiner-astor-place.html
+
+**Brooklyn Needs Housing. She Has a Vacant Lot. Why Can’t She Build?**\
+`A property owner’s effort to develop an apartment building in a popular neighborhood has been stymied for years. She may just give up.`\
+https://nytimes.com/2024/11/21/nyregion/housing-crunch-affordable-housing-brooklyn.html
+
+**The Priest, the Power Broker and the Pop Star**\
+`Msgr. Jamie J. Gigantiello is in hot water with his diocese. Prosecutors are looking into his dealings with the New York City mayor’s top adviser. It all started with Sabrina Carpenter.`\
+https://nytimes.com/2024/11/21/nyregion/sabrina-carpenter-church-frank-carone.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/21/crosswords/spelling-bee-forum.html
+
 **Lando Norris accepts his first F1 title challenge likely will end in defeat**\
 `Verstappen leads the driver standings with 393 points, 62 points ahead of Norris with three races and a sprint to go`\
 https://nytimes.com/athletic/5937041/2024/11/21/lando-norris-f1-championship-max-verstappen-vegas/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/21/arts/television/desi-lydic-donald-trump-dr-oz.htm
 **How High School Graduates Can Improve Their Earnings Potential**\
 `New research shows that 73 “launchpad jobs” can help those without a four-year college degree advance and achieve higher pay.`\
 https://nytimes.com/2024/11/21/business/high-school-graduates-earnings.html
-
-**Word of the Day: spartan**\
-`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/21/learning/word-of-the-day-spartan.html
-
-**The win record sets UConn's Geno Auriemma apart. But his players' legacies tell his greatness**\
-`Diana Taurasi, Maya Moore, Sue Bird and more celebrated Auriemma's milestone in Storrs. `\
-https://nytimes.com/athletic/5936881/2024/11/21/geno-auriemma-uconn-college-basketball-win-record-players/
-
-**After an unusually difficult start, is this the moment Arsenal's season really begins?**\
-`Considering the points they have already dropped, Arsenal now have an opportunity to kickstart their campaign in this next block of games`\
-https://nytimes.com/athletic/5931594/2024/11/21/arsenal-difficult-start-season-begins/
-
-**How close are Chelsea to playing Marescaball?**\
-`Despite the inevitable disclaimer that this season is still young, Chelsea’s play has already evolved since Mauricio Pochettino’s tenure`\
-https://nytimes.com/athletic/5934556/2024/11/21/chelsea-enzo-maresca-analysis/
 
