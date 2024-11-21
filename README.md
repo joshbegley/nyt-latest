@@ -1,3 +1,7 @@
+**‘Gladiator II’ Review: Thumb’s Up!**\
+`Denzel Washington’s performance shows skill, intensity and absolute confidence in Ridley Scott’s pleasurably immersive epic about ancient Roman fighters.`\
+https://nytimes.com/2024/11/21/movies/gladiator-ii-review.html
+
 **Dallas Long, Record-Setting Shot-Putter, Dies at 84**\
 `In an era when America dominated the event, he was one of the best. He retired after winning gold at the 1964 Tokyo Summer Olympics, and then`\
 https://nytimes.com/2024/11/21/sports/dallas-long-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/us/politics/pete-hegseth-defense-department.html
 **Guinea call for Tanzania's AFCON removal over shirt number error**\
 `The Guinea Football Federation (FGF) is claiming Tanzania should be prevented from qualifying for next year’s Africa Cup of Nations (AFCON) after an alleged administrative violation in Tuesday’s match between the two sides which saw a Tanzanian substitute wear an incorrect shirt number.`\
 https://nytimes.com/athletic/5938230/2024/11/21/guinea-tanzania-afcon-wrong-shirt-number/
-
-**Los Angeles Sparks begin plans to build practice facility**\
-`For the last two seasons, L.A. practiced out of El Camino College, a community college in Torrance, Calif.`\
-https://nytimes.com/athletic/5938033/2024/11/21/los-angeles-sparks-practice-facility/
 
