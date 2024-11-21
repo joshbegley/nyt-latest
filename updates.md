@@ -1,3 +1,7 @@
+**'You’re going to go through storms': How Tyler Bass is getting ready for his next big kick**\
+`Tyler Bass is grateful for the encouragement he's gotten from the team and fans.`\
+https://nytimes.com/athletic/5934937/2024/11/21/tyler-bass-bills-kicker/
+
 **Israel Strikes Near Beirut as U.S. Envoy Pushes Ahead on Cease-Fire Talks**\
 `The envoy, Amos Hochstein, was in Israel and planned to meet with Prime Minister Benjamin Netanyahu, seeking a truce in the country’s war with the militant group Hezbollah.`\
 https://nytimes.com/2024/11/21/world/middleeast/israel-hezbollah-strikes-talks.html
