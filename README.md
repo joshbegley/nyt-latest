@@ -1,3 +1,11 @@
+**Dinner and a Show and a Little Hustle Near the Theater District**\
+`Yes, you can play it safe for a meal around the corner from your theater. But a few extra blocks will serve you well.`\
+https://nytimes.com/2024/11/21/dining/dinner-and-a-show-and-a-little-hustle-near-the-theater-district.html
+
+**Heat Today: 3 keys to Miami's recently improved defense**\
+`How has Miami's defense improved in recent games? Let's take a look at some film.`\
+https://nytimes.com/athletic/5937692/2024/11/21/heat-defense-video-bam-adebayo/
+
 **‘Midnight Family’ Is a Fresh and Energetic Medical Drama**\
 `Set among a family of private ambulance drivers in Mexico City, the Apple TV+ series is a thoughtful and cinematic adaptation of a 2019 documentary.`\
 https://nytimes.com/2024/11/21/arts/television/midnight-family-apple-tv-plus.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/us/las-vegas-police-shooting-911-brandon-durham.h
 **Packers' Jaire Alexander says he tore his PCL, unsure of return timetable**\
 `Alexander suffered the initial knee injury against the Jaguars in Week 8 and reaggravated it last Sunday against the Bears.`\
 https://nytimes.com/athletic/5938752/2024/11/21/packers-jaire-alexander-pcl-injury/
-
-**Buttigieg Warns Trump-Panicked Democrats, ‘We Cannot Be Mesmerized’**\
-`The transportation secretary, one of several ambitious Democrats jockeying for prominence, gave advice in a speech but was coy about his own plans: “I know that I will make myself useful again later.”`\
-https://nytimes.com/2024/11/21/us/politics/pete-buttigieg-trump-democrats.html
-
-**Peeling the $6.2 Million Banana: An Auction Explainer**\
-`Answers to six immediate questions you might have about the art world after a crypto entrepreneur spent millions on a 35-cent fruit.`\
-https://nytimes.com/2024/11/21/arts/design/banana-auction-explainer-cattelan.html
 
