@@ -1,3 +1,11 @@
+**Ukraine Says Russia Struck It With New Missile; ICBM Claim Is Disputed**\
+`Russia struck the city of Dnipro with a volley that Ukraine said included an intercontinental ballistic missile. Western officials said an ICBM was not used.`\
+https://nytimes.com/2024/11/21/world/europe/russia-ballistic-missile-ukraine-war.html
+
+**I.C.C. Prosecutor Sought Warrants for 3 Hamas Leaders. At Least 2 Were Killed.**\
+`Karim Khan had asked the court to issue warrants for Hamas’s top leader in Gaza, Yahya Sinwar; its political leader, Ismail Haniyeh; and its military chief, Muhammad Deif.`\
+https://nytimes.com/2024/11/21/world/middleeast/hamas-leaders-icc-arrest-warrant.html
+
 **Rutherford: Are the Blues considering a Jim Montgomery reunion? It's not out of the question**\
 `Will the former Blues assistant and recently fired Boston Bruins head coach be returning to St. Louis? `\
 https://nytimes.com/athletic/5935331/2024/11/21/blues-jim-montgomery-bruins/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/business/dealbook/musk-ramaswamy-doge-playbook.ht
 **The Athletic FC: How much to trust managers' injury updates, Man Utd top 'homegrown' list**\
 `Today in TAFC: Why managers can often stretch the truth when it comes to player injuries. Plus: Homegrown player data and pundit ratings`\
 https://nytimes.com/athletic/5937193/2024/11/21/premier-league-manager-injury-news/
-
-**NBA Lookahead: How low can the Sixers go? Plus, more NBA Cup action on tap**\
-`Philadelphia somehow has the worst record in the league. And, hey, let's remember Jason Kapono and Antoine Walker.`\
-https://nytimes.com/athletic/5928995/2024/11/21/nba-lookahead-sixers-nba-cup-preview/
-
-**Live Updates: I.C.C. Issues Arrest Warrants for Netanyahu and Gallant**\
-`The International Criminal Court rejected Israel’s challenges to its jurisdiction, and also issued a warrant for a top Hamas official. Its chief prosecutor had sought the arrests for war crimes in Gaza.`\
-https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza
 
