@@ -1,3 +1,11 @@
+**MLB to test automated ball-strike challenge system at spring training ballparks in 2025**\
+`The system won’t be installed in every spring ballpark, but all teams will have opportunities to play with it.`\
+https://nytimes.com/athletic/5938669/2024/11/21/mlb-robot-umpires-testing-spring-training/
+
+**Officer’s Fatal Shooting of 911 Caller in Las Vegas Prompts Push for His Arrest**\
+`Body camera footage shows an officer fatally shooting a Black man who was struggling with a woman over a knife. The man had called the police for help.`\
+https://nytimes.com/2024/11/21/us/las-vegas-police-shooting-911-brandon-durham.html
+
 **Packers' Jaire Alexander says he tore his PCL, unsure of return timetable**\
 `Alexander suffered the initial knee injury against the Jaguars in Week 8 and reaggravated it last Sunday against the Bears.`\
 https://nytimes.com/athletic/5938752/2024/11/21/packers-jaire-alexander-pcl-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5935589/2024/11/21/what-to-watch-college-basketball
 **International Criminal Court Seeks Netanyahu’s Arrest Over Gaza War**\
 `The court accused Benjamin Netanyahu and his former defense minister of having “intentionally and knowingly deprived” Gaza’s population of food, water, fuel and medicine.`\
 https://nytimes.com/2024/11/21/world/middleeast/icc-netanyahu-israel-gaza-war.html
-
-**Friday Briefing: Gaetz Ends Bid for Attorney General**\
-`Plus, bathing in crude oil.`\
-https://nytimes.com/2024/11/21/briefing/gaetz-netanyahu-arrest-warrant-ukraine.html
-
-**U.N. Watchdog Censures Iran Over Nuclear Program Secrecy**\
-`The action could lead to sanctions against Tehran, which has barred international monitoring of its accelerated uranium enrichment efforts.`\
-https://nytimes.com/2024/11/21/world/europe/iaea-censure-iran-nuclear.html
 
