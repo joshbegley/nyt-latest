@@ -1,3 +1,11 @@
+**How close are Chelsea to playing Marescaball?**\
+`Despite the inevitable disclaimer that this season is still young, Chelsea’s play has already evolved since Mauricio Pochettino’s tenure`\
+https://nytimes.com/athletic/5934556/2024/11/21/chelsea-enzo-maresca-analysis/
+
+**Has Steve Cooper found a formula for survival? His Leicester tweaks analysed**\
+`Their key weaknesses and how they're being addressed`\
+https://nytimes.com/athletic/5935008/2024/11/21/leicester-cooper-improvements-analysed/
+
 **Rosenthal: Blake Snell's early suitors, Dodgers' evolving plans and more MLB offseason notes**\
 `Plus the latest on the A's, Rays and Cody Bellinger's future in Chicago.`\
 https://nytimes.com/athletic/5935761/2024/11/21/blake-snell-free-agency-dodgers-mlb-offseason/

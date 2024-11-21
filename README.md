@@ -1,3 +1,7 @@
+**After an unusually difficult start, is this the moment Arsenal's season really begins?**\
+`Considering the points they have already dropped, Arsenal now have an opportunity to kickstart their campaign in this next block of games`\
+https://nytimes.com/athletic/5931594/2024/11/21/arsenal-difficult-start-season-begins/
+
 **How close are Chelsea to playing Marescaball?**\
 `Despite the inevitable disclaimer that this season is still young, Chelsea’s play has already evolved since Mauricio Pochettino’s tenure`\
 https://nytimes.com/athletic/5934556/2024/11/21/chelsea-enzo-maresca-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/briefing/gaetz-ethics-israel-ukraine.html
 **Premier League homegrown players: Which clubs have none and who uses the most?**\
 `All the numbers behind the players developed in the academies of England's top-flight clubs`\
 https://nytimes.com/athletic/5934724/2024/11/21/premier-league-homegrown-players/
-
-**Explained: The latest vote in Manchester City's APT legal battle with the Premier League**\
-`All 20 Premier League clubs will have representation at Friday’s shareholders’ meeting and are braced for a fiery and fractious debate`\
-https://nytimes.com/athletic/5935526/2024/11/21/manchester-city-villa-premier-league-apt-vote-explained/
 
