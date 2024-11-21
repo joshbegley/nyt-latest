@@ -1,40 +1,40 @@
-**Don’t Do Trump’s Work for Him on Mass Deportations**\
-`How big will the Trump administration will go, and how quickly?`\
-https://nytimes.com/2024/11/21/opinion/trump-mass-deportation-immigration.html
+**Baggarly: It's time for the BBWAA to add a Reliever of the Year Award**\
+`No reliever has won the Cy Young Award since Eric Gagne in 2003. It's time to give them a chance at a prestigious award.`\
+https://nytimes.com/athletic/5936757/2024/11/21/opinion-bbwaa-reliever-of-the-year-award/
 
-**Does Your Teen Recognize A.I.? Do You?**\
-`These five family conversation starters can get the discussion flowing about video content that kids encounter online.`\
-https://nytimes.com/2024/11/21/well/mind/teens-ai-influencer-videos.html
+**'He's a basketball genius': Nikola Jokić debuts at No. 28 on The Athletic's 'The Basketball 100'**\
+`Most of history’s great players have come to us with significant early hype. A few greats, such as Jokić, have taken a more circuitous path.`\
+https://nytimes.com/athletic/5935592/2024/11/21/nikola-jokic-the-basketball-100-book-excerpt/
 
-**What is Debt Bondage? And How Does It Lead to Coerced Hysterectomies in India?**\
-`Our correspondent explains how an exploitative labor system has produced a system of brutality in the country’s sugar fields.`\
-https://nytimes.com/2024/11/21/world/europe/india-sugar-debt-bondage-women-forced-labor.html
+**Rookie Stephon Castle is impressing the Spurs and LeBron James: 'He's going to be special'**\
+`Since becoming a starter, Castle's offensive efficiency has improved.`\
+https://nytimes.com/athletic/5935357/2024/11/21/stephon-castle-impressing-spurs-lebron-james/
 
-**Why Mexico Isn’t Panicking About Another Trump Presidency**\
-`Mexico is banking on its ability to negotiate with a deal maker like Donald J. Trump, and many officials say the country is better prepared and has more leverage than it did during his first term.`\
-https://nytimes.com/2024/11/21/world/americas/mexico-trump-tariffs-migration.html
+**Six reasons why this Cowboys season is a disaster**\
+`After years of success, the Cowboys are 3-7 and among the league's worst teams in 2024.`\
+https://nytimes.com/athletic/5936496/2024/11/21/dallas-cowboys-ceedee-lamb-injuries-season/
 
-**36 Hours in Tucson, Ariz.**\
-`Stargaze from desert observatories, try traditional Sonoran spirits and hit the local trails in Arizona’s mountain-ringed second city.`\
-https://nytimes.com/interactive/2024/11/21/travel/things-to-do-tucson-arizona.html
+**How Trump Got in Americans’ Heads and Stayed There**\
+`Trump excelled at tapping into the information ecosystems where minority and young voters express their identity.`\
+https://nytimes.com/2024/11/21/opinion/trump-trad-wives-podcasters-wellness.html
 
-**John Singer Sargent Painted Them. London Society Talked.**\
-`Jean Strouse’s brisk, wise “Family Romance” takes on the painter’s relationship to the Wertheimers, a vast Jewish clan he immortalized on canvas.`\
-https://nytimes.com/2024/11/21/books/review/family-romance-jean-strouse.html
+**The Greatest Cancel Culture Warrior in America Is Donald Trump**\
+`Sure, the left can be nuts, but have you looked at the right lately?`\
+https://nytimes.com/2024/11/21/opinion/trump-cancel-culture-maga.html
 
-**Francesca D’Uva Works It All Out Onstage**\
-`With a solo show about grief and life, the comedian and composer brings her experimental musical comedy to an Off Broadway audience.`\
-https://nytimes.com/2024/11/21/style/francesca-duva-playwrights-horizons.html
+**She Took Her $300,000 Budget to the Washington, D.C., Area. Could She Afford Something in the City?**\
+`Excited to start a new government job, a young first-time buyer considered starter apartments inside and outside the Beltway. Here’s what she found.`\
+https://nytimes.com/interactive/2024/11/21/realestate/washington-dc-condo-sale.html
 
-**‘Wicked’ Review: We’re Off to See the Witches**\
-`Cynthia Erivo is the strongest draw in this splashy, overly long movie, which is the first installment in a two-part adaptation of the Broadway show.`\
-https://nytimes.com/2024/11/21/movies/wicked-review.html
+**Should Olaf Scholz Step Aside in the New Race for German Chancellor?**\
+`Increasing numbers in his own center-left party say he should, arguing for a more charismatic leader who might better their electoral chances.`\
+https://nytimes.com/2024/11/21/world/europe/olaf-scholz-germany-election.html
 
-**‘The Piano Lesson’ Review: Ghosts in the Instrument**\
-`This film adaptation of August Wilson’s Pulitzer Prize-winning play falters in some specifics, but is still vital viewing.`\
-https://nytimes.com/2024/11/21/movies/the-piano-lesson-review.html
+**Trump Recruits His Season 2 Cast Straight From the Small Screen**\
+`The president-elect, who built his reputation on reality television, is rounding out his second administration with Dr. Oz, Fox News hosts and a former star of “The Real World.”`\
+https://nytimes.com/2024/11/21/business/media/trump-fox-news-dr-oz.html
 
-**‘A Photographic Memory’ Review: The Imperfect Past**\
-`A daughter hunts for the mother she never knew in an extraordinary, elegiac documentary.`\
-https://nytimes.com/2024/11/21/movies/a-photographic-memory-review.html
+**Is She Playing Games, or Simply Excelling in a Male Field?**\
+`In a series of tongue-in-cheek TikTok videos purporting to highlight #WomenInMaleFields, female users are sharing stories of negative experiences dating men.`\
+https://nytimes.com/2024/11/21/style/women-in-male-fields-tiktok.html
 
