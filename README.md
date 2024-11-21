@@ -1,3 +1,7 @@
+**Theft of ‘Nutcracker’ Set Pieces and Props Can’t Stop a Michigan Production**\
+`After a trailer containing major props was stolen, members of the Plymouth-Canton Ballet Company have come together to make sure the annual show still goes on.`\
+https://nytimes.com/2024/11/21/arts/theft-nutcracker-trailer-michigan.html
+
 **What to watch in college basketball this weekend: Duke vs. Arizona, neutral site games**\
 `What to watch in college basketball this weekend, headlined by a Duke-Arizona meeting and a pair of intriguing tournaments.`\
 https://nytimes.com/athletic/5935589/2024/11/21/what-to-watch-college-basketball-duke-arizona-bahamas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938257/2024/11/21/college-football-playoff-committ
 **NBA ASG likely tourney format would feature top coaches in East, West**\
 `If the new format is adopted, as expected, there would be more than one losing team.`\
 https://nytimes.com/athletic/5938627/2024/11/21/nba-all-star-game-tournament-coaches/
-
-**Mali’s Junta Replaces Civilian Prime Minister With One of Its Own**\
-`The prime minister had been fired for criticizing the country’s junta.`\
-https://nytimes.com/2024/11/21/world/africa/mali-military-replace-prime-minister.html
 
