@@ -1,3 +1,7 @@
+**Forest's Anderson to be assessed before Arsenal trip**\
+`Nottingham Forest will assess Elliot Anderson on Friday before their trip to face Arsenal on Saturday.`\
+https://nytimes.com/athletic/5938391/2024/11/21/elliot-anderson-forest-foot-injury/
+
 **College football Week 13 model-projected point differentials, totals for every game**\
 `Austin Mock's projection model gives predicted point differentials and point totals for every FBS vs. FBS game in Week 13.`\
 https://nytimes.com/athletic/5938904/2024/11/21/college-football-week-13-model-projections/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/books/spencer-lawton-jr-dead.html
 **An Immigrant Family’s Dreams, Shattered by a Random Stabbing Spree**\
 `On Sunday, Angel Lata Landi, a construction worker, called his mother in Ecuador, whom he helped support. The next day, he was one of three people stabbed to death on the street in Manhattan.`\
 https://nytimes.com/2024/11/21/nyregion/nyc-stabbing-manhattan-angel-lata-landi.html
-
-**Flyers stock watch: Who’s trending up, who’s trending down after 20 games?**\
-`It's as good a time as any to take a broader look at the Flyers, who hit the 20-game mark with a somewhat disappointing 8-10-2 record. `\
-https://nytimes.com/athletic/5938288/2024/11/21/flyers-stock-watch-players-analysis/
 
