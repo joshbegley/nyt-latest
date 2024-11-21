@@ -7,8 +7,8 @@ https://nytimes.com/2024/11/21/us/politics/steven-j-rosen-dead.html
 https://nytimes.com/2024/11/21/climate/landslides-rain-climate-explainer.html
 
 **The Alluring Dream That Black America Needs to Wake Up From**\
-`Cleopatra is not our mother`\
-https://nytimes.com/2024/11/21/opinion/the-alluring-dream-that-black-america-needs-to-wake-up-from.html
+`Cleopatra is not our mother.`\
+https://nytimes.com/2024/11/21/opinion/ancient-egypt-met-museum-black-america.html
 
 **What’s Going On in This Picture? | Dec. 2, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
