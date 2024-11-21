@@ -1,3 +1,7 @@
+**Willie Green's job security, the tanking question and more: Pelicans mailbag**\
+`What should the Pelicans make of under-the-radar success stories like Yves Missi and Brandon Boston Jr.?`\
+https://nytimes.com/athletic/5936507/2024/11/21/pelicans-mailbag-willie-green/
+
 **Trump’s Tariffs**\
 `We explore his promise to impose a charge on foreign products entering the U.S.`\
 https://nytimes.com/2024/11/21/briefing/trumps-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5922285/2024/11/21/blackhawks-projected-roster-sala
 **Celtics visiting White House on Thursday to celebrate NBA championship**\
 `The Celtics' trip to the White House coincides with their game Friday against the Wizards.`\
 https://nytimes.com/athletic/5936417/2024/11/21/celtics-white-house-visit/
-
-**Is Daniel Jones now QB4 on Giants depth chart? Drew Lock 'upset' he wasn't named starter**\
-`Jones was the fourth QB to take reps during Wednesday's practice behind Tommy DeVito, Lock and practice squad QB Tim Boyle.`\
-https://nytimes.com/athletic/5935846/2024/11/21/daniel-jones-giants-benched-tommy-devito-drew-lock/
 

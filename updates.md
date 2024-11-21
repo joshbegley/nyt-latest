@@ -1,3 +1,7 @@
+**Willie Green's job security, the tanking question and more: Pelicans mailbag**\
+`What should the Pelicans make of under-the-radar success stories like Yves Missi and Brandon Boston Jr.?`\
+https://nytimes.com/athletic/5936507/2024/11/21/pelicans-mailbag-willie-green/
+
 **Trump’s Tariffs**\
 `We explore his promise to impose a charge on foreign products entering the U.S.`\
 https://nytimes.com/2024/11/21/briefing/trumps-tariffs.html
