@@ -1,3 +1,11 @@
+**How High School Graduates Can Improve Their Earnings Potential**\
+`New research shows that 73 “launchpad jobs” can help those without a four-year college degree advance and achieve higher pay.`\
+https://nytimes.com/2024/11/21/business/high-school-graduates-earnings.html
+
+**Word of the Day: spartan**\
+`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/21/learning/word-of-the-day-spartan.html
+
 **The win record sets UConn's Geno Auriemma apart. But his players' legacies tell his greatness**\
 `Diana Taurasi, Maya Moore, Sue Bird and more celebrated Auriemma's milestone in Storrs. `\
 https://nytimes.com/athletic/5936881/2024/11/21/geno-auriemma-uconn-college-basketball-win-record-players/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5931950/2024/11/21/the-premier-league-owners-game-c
 **The State of Punditry - part 2: How the world analyses football - and the U.S. lead the way**\
 `In the second part of our series, Tim Spiers examines how the sport is dissected across the globe`\
 https://nytimes.com/athletic/5935127/2024/11/21/punditry-usa-germany-spain-world/
-
-**Liverpool should not be afraid of being title favourites**\
-`Arne Slot was not expected to win the league this season - and history suggests it will be hard. But the chance is there for the taking`\
-https://nytimes.com/athletic/5919718/2024/11/21/liverpool-premier-league-title-odds/
-
-**Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/11/21/briefing/gaetz-ethics-israel-ukraine.html
 

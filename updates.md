@@ -1,3 +1,11 @@
+**How High School Graduates Can Improve Their Earnings Potential**\
+`New research shows that 73 “launchpad jobs” can help those without a four-year college degree advance and achieve higher pay.`\
+https://nytimes.com/2024/11/21/business/high-school-graduates-earnings.html
+
+**Word of the Day: spartan**\
+`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/21/learning/word-of-the-day-spartan.html
+
 **The win record sets UConn's Geno Auriemma apart. But his players' legacies tell his greatness**\
 `Diana Taurasi, Maya Moore, Sue Bird and more celebrated Auriemma's milestone in Storrs. `\
 https://nytimes.com/athletic/5936881/2024/11/21/geno-auriemma-uconn-college-basketball-win-record-players/
