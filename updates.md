@@ -1,3 +1,7 @@
+**Gaetz Withdrew From Attorney General Consideration**\
+`Also, Putin said Russia struck Ukraine with a new missile. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/11/21/briefing/gaetz-withdraws-attorney-general-russia-ukraine-weapon.html
+
 **Forest's Anderson to be assessed before Arsenal trip**\
 `Nottingham Forest will assess Elliot Anderson on Friday before their trip to face Arsenal on Saturday.`\
 https://nytimes.com/athletic/5938391/2024/11/21/elliot-anderson-forest-foot-injury/
