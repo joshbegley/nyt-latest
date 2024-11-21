@@ -1,3 +1,19 @@
+**Trump’s Vow to End the War Could Leave Ukraine With Few Options**\
+`One question is whether the new administration and Europe will provide security guarantees to prevent Russia from taking more territory.`\
+https://nytimes.com/2024/11/21/us/politics/trump-russia-ukraine-war.html
+
+**Why Some Countries Won’t Join the I.C.C.**\
+`More than 120 countries are members of the court. The United States, China, India, Russia and Israel are not.`\
+https://nytimes.com/2024/11/21/world/middleeast/us-icc-member-countries.html
+
+**Northvolt, Europe’s Hope for a Battery Champion, Files for Bankruptcy**\
+`The company’s woes are symptomatic of a wider malaise among companies that make batteries for electric vehicles.`\
+https://nytimes.com/2024/11/21/business/northvolt-battery-bankruptcy.html
+
+**The Metamorphosis of Pete Hegseth: From Critic of War Crimes to Defender of the Accused**\
+`President-elect Donald J. Trump’s pick to lead the Defense Department was described by peers as a skillful soldier who became embittered by military dysfunction.`\
+https://nytimes.com/2024/11/21/us/politics/pete-hegseth-defense-department.html
+
 **Guinean call for Tanzania's AFCON removal over shirt number error**\
 `The Guinea Football Federation (FGF) is claiming Tanzania should be prevented from qualifying for next year’s Africa Cup of Nations (AFCON) after an alleged administrative violation in Tuesday’s match between the two sides which saw a Tanzanian substitute wear an incorrect shirt number.`\
 https://nytimes.com/athletic/5938230/2024/11/21/guinea-tanzania-afcon-wrong-shirt-number/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/netanyahu-
 **Release the House Ethics Report on Gaetz**\
 `Readers respond to the Matt Gaetz drama. Also: Dr. Mehmet Oz and Robert F. Kennedy Jr.; Russia’s nuclear pose; political spending; election lessons; homelessness.`\
 https://nytimes.com/2024/11/21/opinion/matt-gaetz-house-ethics-report.html
-
-**Matt Gaetz Withdraws From Consideration as Attorney General**\
-`The former Florida congressman said in a statement that his confirmation “was unfairly becoming a distraction to the critical work of the Trump/Vance Transition.”`\
-https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/matt-gaetz-withdraws-attorney-general
-
-**Jay Leno Says He Was Injured in a Fall**\
-`He told Inside Edition that he fell down a hill after taking an ill-advised shortcut, leaving him with a broken wrist and a black eye.`\
-https://nytimes.com/2024/11/21/arts/jay-leno-fall-hill-bruises.html
-
-**Sacco is the Bruins interim head coach. Who’s next if he comes up short?**\
-`Who could GM Don Sweeney be keeping an eye on while monitoring the team's progress under Sacco? Here's an early look at six candidates.`\
-https://nytimes.com/athletic/5938123/2024/11/21/bruins-coaching-candidates/
-
-**Serie A to introduce additional transfer window before Club World Cup**\
-`Serie A has become the first top-flight league to introduce an additional transfer window before the inaugural Club World Cup next summer.`\
-https://nytimes.com/athletic/5938062/2024/11/21/serie-a-transfer-window-club-world-cup/
 
