@@ -1,3 +1,7 @@
+**Alex Ovechkin out 4 to 6 weeks with fractured fibula**\
+`Ovechkin, who is in pursuit of the NHL's all-time goals record, has 15 goals and 10 assists in 18 games played so far this season`\
+https://nytimes.com/athletic/5938983/2024/11/21/alex-ovechkin-injury-update-washington-capitals/
+
 **Seattle Power Outages Could Linger as Strong Storms Pelt the West Coast**\
 `A series of atmospheric rivers is flooding the Pacific Northwest and parts of California, with more wind and rain forecast as utilities try to restore power to hundreds of thousands of people.`\
 https://nytimes.com/2024/11/21/weather/west-coast-storm-power-outages.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936811/2024/11/21/week-13-big-ten-big-12-until-sat
 **Pulisic's Trump dance celebration 'stupid', says Howard**\
 `Former U.`\
 https://nytimes.com/athletic/5938351/2024/11/21/pulisic-trump-dance-tim-howard/
-
-**The 2026 Georgia Governor’s Race Kicks Off With a First Hat in the Ring**\
-`The state’s attorney general, Chris Carr, a Republican, is the first person in either major party to declare his candidacy for statewide office in Georgia.`\
-https://nytimes.com/2024/11/21/us/politics/georgia-governor-race-2026.html
 
