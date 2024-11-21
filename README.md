@@ -1,3 +1,7 @@
+**Guardiola signs two-year Man City contract extension**\
+`Pep Guardiola will remain Manchester City manager until the summer of 2027 after signing a two-year contract extension.`\
+https://nytimes.com/athletic/5935211/2024/11/21/pep-guardiola-signs-man-city-extension/
+
 **In ‘Music City’ and ‘Babe,’ Existential Battles of the Heart and Soul**\
 `Bedlam’s country music show is a rollicking good time. But the New Group’s production of “Babe,” starring Marisa Tomei, is a frustrating one-act lacking cohesion.`\
 https://nytimes.com/2024/11/21/theater/music-city-babe-review-tomei.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/science/chimpanzees-culture-dna-tools.html
 **Trump Media May Be Mulling a Crypto Payment Service**\
 `The parent company of Truth Social filed a trademark application for a crypto payment service it called TruthFi.`\
 https://nytimes.com/2024/11/21/business/trump-media-crypto-payment-service.html
-
-**‘Gladiator II’ Review: Thumb’s Up!**\
-`Denzel Washington’s performance shows skill, intensity and absolute confidence in Ridley Scott’s pleasurably immersive epic about ancient Roman fighters.`\
-https://nytimes.com/2024/11/21/movies/gladiator-ii-review.html
 
