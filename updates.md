@@ -1,3 +1,7 @@
+**Map: 2.3-Magnitude Earthquake Strikes Connecticut**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/11/20/nyregion/connecticut-earthquake.html
+
 **Trump Tells Republicans to ‘Kill’ Reporter Shield Bill Passed Unanimously by House**\
 `The bill, known as the PRESS Act, would codify protections against federal investigators seizing reporters’ records. It is now less likely the legislation would clear the Senate before the current session ends.`\
 https://nytimes.com/2024/11/20/us/politics/trump-press-act-freedom-reporters.html
