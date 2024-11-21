@@ -1,3 +1,7 @@
+**Liverpool should not be afraid of being title favourites**\
+`Arne Slot was not expected to win the league this season - and history suggests it will be hard. But the chance is there for the taking`\
+https://nytimes.com/athletic/5919718/2024/11/21/liverpool-premier-league-title-odds/
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/11/21/briefing/gaetz-ethics-israel-ukraine.html
