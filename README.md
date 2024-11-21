@@ -1,5 +1,5 @@
 **Israel Indicts Netanyahu Aide Over Leaked Document on Hamas**\
-`One of Prime Minister Benjamin Netanyahu’s media advisers is accused of leaking a top-secret document to a German tabloid in an attempt to influence public sentiment on hostage negotiations.`\
+`One of Prime Minister Benjamin Netanyahu’s advisers is accused of leaking a top-secret document to a German tabloid in an attempt to influence public sentiment on hostage negotiations.`\
 https://nytimes.com/2024/11/21/world/middleeast/israel-netanyahu-aide-leak-indictment.html
 
 **Transfers, title, charges - what Guardiola's decision to stay means for Man City**\
