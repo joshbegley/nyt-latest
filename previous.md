@@ -1,3 +1,15 @@
+**An I.C.C. arrest warrant limits Putin’s movements. This is how he handles it.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/an-icc-arrest-warrant-limited-putins-movements-this-is-how-he-handled-it
+
+**The Clean Energy Boom in Republican Districts**\
+`Trump has said he’ll repeal President Biden’s climate law, but one North Carolina district shows how hard unwinding multibillion-dollar projects could be.`\
+https://nytimes.com/2024/11/21/climate/ira-republicans-clean-energy.html
+
+**Brazilian Police Accuse Bolsonaro of Plotting a Coup**\
+`Former President Jair Bolsonaro could face criminal charges over accusations that he was involved in plans to stage a coup after losing the 2022 elections.`\
+https://nytimes.com/2024/11/21/world/americas/bolsonaro-coup-brazil-election-charges.html
+
 **Colorado 2-way star Travis Hunter plans to enter next year's NFL Draft**\
 `The 6-foot-1, 185-pound junior WR and cornerback for the Buffaloes also said he intends to play on both sides of the ball at the next level.`\
 https://nytimes.com/athletic/5938396/2024/11/21/travis-hunter-nfl-draft-comments/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009837972/icc-issues-arrest-war
 **Injured in the war and evacuated to Qatar, some Gazans wonder how to go on.**\
 `By Samar Abu Elouf and Eric Nagourney`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/injured-in-the-war-and-evacuated-to-qatar-some-gazans-wonder-how-to-go-on
-
-**NFL warns teams of burglary groups targeting players' homes**\
-`The memo also included ways burglary groups survey players' whereabouts and explained methods of entry into homes.`\
-https://nytimes.com/athletic/5938166/2024/11/21/nfl-security-alert-home-burglaries/
-
-**Trump’s Vow to End the War Could Leave Ukraine With Few Options**\
-`One question is whether the new administration and Europe will provide security guarantees to prevent Russia from taking more territory.`\
-https://nytimes.com/2024/11/21/us/politics/trump-russia-ukraine-war.html
-
-**Why Some Countries Won’t Join the I.C.C.**\
-`More than 120 countries are members of the court. The United States, China, India, Russia and Israel are not.`\
-https://nytimes.com/2024/11/21/world/middleeast/us-icc-member-countries.html
 

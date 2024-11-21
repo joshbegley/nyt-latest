@@ -1,3 +1,15 @@
+**An I.C.C. arrest warrant limits Putin’s movements. This is how he handles it.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/an-icc-arrest-warrant-limited-putins-movements-this-is-how-he-handled-it
+
+**The Clean Energy Boom in Republican Districts**\
+`Trump has said he’ll repeal President Biden’s climate law, but one North Carolina district shows how hard unwinding multibillion-dollar projects could be.`\
+https://nytimes.com/2024/11/21/climate/ira-republicans-clean-energy.html
+
+**Brazilian Police Accuse Bolsonaro of Plotting a Coup**\
+`Former President Jair Bolsonaro could face criminal charges over accusations that he was involved in plans to stage a coup after losing the 2022 elections.`\
+https://nytimes.com/2024/11/21/world/americas/bolsonaro-coup-brazil-election-charges.html
+
 **Colorado 2-way star Travis Hunter plans to enter next year's NFL Draft**\
 `The 6-foot-1, 185-pound junior WR and cornerback for the Buffaloes also said he intends to play on both sides of the ball at the next level.`\
 https://nytimes.com/athletic/5938396/2024/11/21/travis-hunter-nfl-draft-comments/
