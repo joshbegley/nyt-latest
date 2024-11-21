@@ -1,3 +1,15 @@
+**Few Sitting Leaders Have Faced I.C.C. War Crimes Charges**\
+`The short list includes Omar Hassan al-Bashir, the deposed president of Sudan, and President Vladimir V. Putin of Russia.`\
+https://nytimes.com/2024/11/21/world/middleeast/icc-war-crime-arrest-warrants-putin.html
+
+**Stuttgart's Deniz Undav ruled out of the rest of the year with injury**\
+`Stuttgart striker Deniz Undav has suffered a torn muscle fibre and will be out for the &#8220;coming weeks&#8221;, the Bundesliga club have said.`\
+https://nytimes.com/athletic/5937451/2024/11/21/deniz-undav-injury-stuttgart/
+
+**I.C.C. Prosecutor Sought Warrants for 3 Hamas Leaders. At Least 2 Are Now Dead.**\
+`Karim Khan had asked the court to issue warrants for Hamas’s top leader in Gaza, Yahya Sinwar; its political leader, Ismail Haniyeh; and its military chief, Muhammad Deif.`\
+https://nytimes.com/2024/11/21/world/middleeast/hamas-leaders-icc-arrest-warrant.html
+
 **She Went for a Walk on the Beach and Found a Rare ‘Doomsday Fish’**\
 `In Japanese mythology, the deep-sea-dwelling oarfish is a harbinger of impending disaster. For scientists in California, where three oarfish have washed up in recent months, it’s an exciting find.`\
 https://nytimes.com/2024/11/21/us/doomsday-fish-california-oarfish.html

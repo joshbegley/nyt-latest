@@ -1,3 +1,11 @@
+**Few Sitting Leaders Have Faced I.C.C. War Crimes Charges**\
+`The short list includes Omar Hassan al-Bashir, the deposed president of Sudan, and President Vladimir V. Putin of Russia.`\
+https://nytimes.com/2024/11/21/world/middleeast/icc-war-crime-arrest-warrants-putin.html
+
+**Stuttgart's Deniz Undav ruled out of the rest of the year with injury**\
+`Stuttgart striker Deniz Undav has suffered a torn muscle fibre and will be out for the &#8220;coming weeks&#8221;, the Bundesliga club have said.`\
+https://nytimes.com/athletic/5937451/2024/11/21/deniz-undav-injury-stuttgart/
+
 **She Went for a Walk on the Beach and Found a Rare ‘Doomsday Fish’**\
 `In Japanese mythology, the deep-sea-dwelling oarfish is a harbinger of impending disaster. For scientists in California, where three oarfish have washed up in recent months, it’s an exciting find.`\
 https://nytimes.com/2024/11/21/us/doomsday-fish-california-oarfish.html
@@ -18,7 +26,7 @@ https://nytimes.com/2024/11/21/learning/lesson-plans/lets-discuss-our-rodent-sel
 `Russia struck the city of Dnipro with a volley that Ukraine said included an intercontinental ballistic missile. Western officials said an ICBM was not used.`\
 https://nytimes.com/2024/11/21/world/europe/russia-ballistic-missile-ukraine-war.html
 
-**I.C.C. Prosecutor Sought Warrants for 3 Hamas Leaders. At Least 2 Were Killed.**\
+**I.C.C. Prosecutor Sought Warrants for 3 Hamas Leaders. At Least 2 Are Now Dead.**\
 `Karim Khan had asked the court to issue warrants for Hamas’s top leader in Gaza, Yahya Sinwar; its political leader, Ismail Haniyeh; and its military chief, Muhammad Deif.`\
 https://nytimes.com/2024/11/21/world/middleeast/hamas-leaders-icc-arrest-warrant.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5935331/2024/11/21/blues-jim-montgomery-bruins/
 **How longtime catcher Sal Fasano will help restructure the Angels' 2025 pitching plans**\
 `Fasano — who won a World Series with the Angels for playing two games in 2002 — will be something of a jack-of-all-trades as a coach.`\
 https://nytimes.com/athletic/5935567/2024/11/21/angels-pitching-coach-sal-fasano/
-
-**Chelsea captain James out of Leicester trip with injury**\
-`Chelsea captain Reece James has suffered another injury setback after being ruled out of the Premier League match at Leicester City on Saturday.`\
-https://nytimes.com/athletic/5937301/2024/11/21/reece-james-hamstring-injury-chelsea/
-
-**Joel Embiid addresses Sixers' team meeting, criticisms. 'I need to be on point'**\
-`Embiid said reports of the meeting, during which his tardiness was questioned by Tyrese Maxey, were overblown. `\
-https://nytimes.com/athletic/5936953/2024/11/21/joel-embiid-sixers-team-meeting/
 
