@@ -1,3 +1,11 @@
+**In New York, Reporting on Four Fires in Four Days**\
+`Anything is on the table for a general assignment reporter in New York. Still, a series of brush fires in the city and a big blaze upstate were far from expected.`\
+https://nytimes.com/2024/11/20/insider/new-york-city-fires.html
+
+**Police Report Offers Graphic Details of Sexual Assault Claim Against Hegseth**\
+`President-elect Donald J. Trump’s choice for defense secretary was never charged with a crime and vehemently denied to the police that a sexual encounter was coerced.`\
+https://nytimes.com/2024/11/20/us/politics/police-report-sexual-assault-claim-hegseth.html
+
 **New York City Will Get Some Rain, but Not Enough to Ease Its Drought**\
 `About two inches were forecast to fall through Saturday. Officials say it won’t be enough to fully replenish the city’s reservoirs.`\
 https://nytimes.com/2024/11/20/nyregion/nyc-rain-forecast-drought.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/20/us/elections/alaska-house-begich-peltola.html
 **Corrections: Nov. 21, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 21, 2024.`\
 https://nytimes.com/2024/11/20/pageoneplus/corrections-nov-21-2024.html
-
-**Canadian Cabinet Minister With Shifting Story of Indigenous Heritage Steps Down**\
-`Randy Boissonnault, who resigned as employment minister, had long described himself as the great-grandson of a Cree woman, but now acknowledges he was wrong about his family’s ancestry.`\
-https://nytimes.com/2024/11/20/world/canada/randy-boissonnault-employment-minister-resigns.html
-
-**Warriors' Melton to undergo season-ending left knee surgery**\
-`The 26-year-old guard signed a one-year deal with the Warriors last summer. His season ends after just six games in a Golden State jersey.`\
-https://nytimes.com/athletic/5936594/2024/11/20/deanthony-melton-injury-acl-warriors/
 
