@@ -1,3 +1,11 @@
+**Dinner and a Show and a Little Hustle Near the Theater District**\
+`Yes, you can play it safe for a meal around the corner from your theater. But a few extra blocks will serve you well.`\
+https://nytimes.com/2024/11/21/dining/dinner-and-a-show-and-a-little-hustle-near-the-theater-district.html
+
+**Heat Today: 3 keys to Miami's recently improved defense**\
+`How has Miami's defense improved in recent games? Let's take a look at some film.`\
+https://nytimes.com/athletic/5937692/2024/11/21/heat-defense-video-bam-adebayo/
+
 **‘Midnight Family’ Is a Fresh and Energetic Medical Drama**\
 `Set among a family of private ambulance drivers in Mexico City, the Apple TV+ series is a thoughtful and cinematic adaptation of a 2019 documentary.`\
 https://nytimes.com/2024/11/21/arts/television/midnight-family-apple-tv-plus.html
