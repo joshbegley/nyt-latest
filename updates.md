@@ -1,3 +1,7 @@
+**Canadian Cabinet Minister With Shifting Story of Indigenous Heritage Steps Down**\
+`Randy Boissonnault, who resigned as employment minister, had long described himself as the great-grandson of a Cree woman, but now acknowledges he was wrong about his family’s ancestry.`\
+https://nytimes.com/2024/11/20/world/canada/randy-boissonnault-employment-minister-resigns.html
+
 **Warriors' Melton to undergo season-ending left knee surgery**\
 `The 26-year-old guard signed a one-year deal with the Warriors last summer. His season ends after just six games in a Golden State jersey.`\
 https://nytimes.com/athletic/5936594/2024/11/20/deanthony-melton-injury-acl-warriors/
