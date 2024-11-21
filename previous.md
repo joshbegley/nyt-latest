@@ -1,3 +1,11 @@
+**Guinean call for Tanzania's AFCON removal over shirt number error**\
+`The Guinea Football Federation (FGF) is claiming Tanzania should be prevented from qualifying for next year’s Africa Cup of Nations (AFCON) after an alleged administrative violation in Tuesday’s match between the two sides which saw a Tanzanian substitute wear an incorrect shirt number.`\
+https://nytimes.com/athletic/5938230/2024/11/21/guinea-tanzania-afcon-wrong-shirt-number/
+
+**Los Angeles Sparks begin plans to build practice facility**\
+`For the last two seasons, L.A. practiced out of El Camino College, a community college in Torrance, Calif.`\
+https://nytimes.com/athletic/5938033/2024/11/21/los-angeles-sparks-practice-facility/
+
 **A Very Veggie Thanksgiving**\
 `Gorgeous mains, vibrant sides and — most important — stuffing.`\
 https://nytimes.com/2024/11/21/dining/a-very-veggie-thanksgiving.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5938123/2024/11/21/bruins-coaching-candidates/
 **Serie A to introduce additional transfer window before Club World Cup**\
 `Serie A has become the first top-flight league to introduce an additional transfer window before the inaugural Club World Cup next summer.`\
 https://nytimes.com/athletic/5938062/2024/11/21/serie-a-transfer-window-club-world-cup/
-
-**Morgan Wallen Wins CMA’s Entertainer of the Year Award**\
-`The singer, who is among the most popular artists in music, won country’s top prize in absentia, three years after being rebuked by the genre’s gatekeepers.`\
-https://nytimes.com/2024/11/21/arts/music/morgan-wallen-cma-awards-winners.html
-
-**Maple Leafs 20-game progress reports: Who's thriving?**\
-`Twenty games in, the Leafs' record sits at 12-6-2. How's everyone doing? Let's evaluate the roster from top to bottom.`\
-https://nytimes.com/athletic/5936091/2024/11/21/maple-leafs-progress-report-player-analysis/
 
