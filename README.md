@@ -1,3 +1,7 @@
+**Liverpool should not be afraid of being title favourites**\
+`Arne Slot was not expected to win the league this season - and history suggests it will be hard. But the chance is there for the taking`\
+https://nytimes.com/athletic/5919718/2024/11/21/liverpool-premier-league-title-odds/
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/11/21/briefing/gaetz-ethics-israel-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936824/2024/11/21/connections-sports-edition-coach
 **Quote of the Day: Wildfire Risk Only Growing For Northeast**\
 `Quotation of the Day for Thursday, November 21, 2024`\
 https://nytimes.com/2024/11/20/pageoneplus/quote-of-the-day-wildfire-risk-only-growing-for-northeast.html
-
-**In New York, Reporting on Four Fires in Four Days**\
-`Anything is on the table for a general assignment reporter in New York. Still, a series of brush fires in the city and a big blaze upstate were far from expected.`\
-https://nytimes.com/2024/11/20/insider/new-york-city-fires.html
 
