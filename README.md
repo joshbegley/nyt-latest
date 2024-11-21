@@ -14,7 +14,7 @@ https://nytimes.com/2024/11/21/business/northvolt-battery-bankruptcy.html
 `President-elect Donald J. Trump’s pick to lead the Defense Department was described by peers as a skillful soldier who became embittered by military dysfunction.`\
 https://nytimes.com/2024/11/21/us/politics/pete-hegseth-defense-department.html
 
-**Guinean call for Tanzania's AFCON removal over shirt number error**\
+**Guinea call for Tanzania's AFCON removal over shirt number error**\
 `The Guinea Football Federation (FGF) is claiming Tanzania should be prevented from qualifying for next year’s Africa Cup of Nations (AFCON) after an alleged administrative violation in Tuesday’s match between the two sides which saw a Tanzanian substitute wear an incorrect shirt number.`\
 https://nytimes.com/athletic/5938230/2024/11/21/guinea-tanzania-afcon-wrong-shirt-number/
 
