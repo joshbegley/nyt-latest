@@ -1,7 +1,3 @@
-**UConn's Auriemma becomes all-time winningest college basketball coach**\
-`Geno Auriemma earned his 1,217th win Wednesday night to pass Tara VanDerveer for the record.`\
-https://nytimes.com/athletic/5936477/2024/11/20/geno-auriemma-uconn-winningest-coach-college-basketball/
-
 **Rob Manfred gives Rays 2026 deadline for stadium plan, says league expansion still proceeding**\
 `The Rays were planning to move to a new stadium in St. Petersburg for 2028, but in the wake of Hurricane Milton, things have muddied.`\
 https://nytimes.com/athletic/5936548/2024/11/20/rob-manfred-rays-stadium-mlb-expansion/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5936418/2024/11/20/49ers-christian-mccaffrey-jordan
 **Pamela Hayden, the Voice of Bart’s Friend Milhouse, Retires From ‘The Simpsons’**\
 `Ms. Hayden voiced many “Simpsons” characters since the show started in 1989. She’s most famously the voice of Bart’s awkward 10-year-old best friend.`\
 https://nytimes.com/2024/11/20/arts/television/pamela-hayden-retires-simpsons-milhouse-voice.html
+
+**Elon Musk and Vivek Ramaswamy Call for Five-Day In-Office Workweeks for Federal Employees**\
+`In an opinion column in The Wall Street Journal, the heads of the new Department of Government Efficiency said taxpayers shouldn’t pay federal employees “for the Covid-era privilege of staying home.”`\
+https://nytimes.com/2024/11/20/us/politics/elon-musk-vivek-ramaswamy-doge-rto.html
 
