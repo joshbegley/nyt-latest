@@ -1,3 +1,7 @@
+**Colorado 2-way star Travis Hunter plans to enter next year's NFL Draft**\
+`The 6-foot-1, 185-pound junior WR and cornerback for the Buffaloes also said he intends to play on both sides of the ball at the next level.`\
+https://nytimes.com/athletic/5938396/2024/11/21/travis-hunter-nfl-draft-comments/
+
 **From Chimpan-A to Chimpanzee, These Apes May Have Humanlike Culture**\
 `Researchers describe a link between genetic relatedness and sophisticated tool use in primates in East and Central Africa, suggesting their culture is cumulative.`\
 https://nytimes.com/2024/11/21/science/chimpanzees-culture-dna-tools.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/us/politics/trump-russia-ukraine-war.html
 **Why Some Countries Won’t Join the I.C.C.**\
 `More than 120 countries are members of the court. The United States, China, India, Russia and Israel are not.`\
 https://nytimes.com/2024/11/21/world/middleeast/us-icc-member-countries.html
-
-**Northvolt, Europe’s Hope for a Battery Champion, Files for Bankruptcy**\
-`The company’s woes are symptomatic of a wider malaise among companies that make batteries for electric vehicles.`\
-https://nytimes.com/2024/11/21/business/northvolt-battery-bankruptcy.html
 
