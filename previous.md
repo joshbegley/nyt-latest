@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/21/us/politics/pete-buttigieg-trump-democrats.html
 https://nytimes.com/2024/11/21/arts/design/banana-auction-explainer-cattelan.html
 
 **New N.Y.P.D. Boss Takes Over a Department With ‘Phenomenal Problems’**\
-`Jessica Tisch will oversee top officials who have behaved questionably in public and private. Her supporters say she does not put up with shenanigans.`\
+`Jessica Tisch will oversee top officials who have behaved questionably in public and private. Her supporters say she does not put up with posturing or incompetence.`\
 https://nytimes.com/2024/11/21/nyregion/jessica-tisch-nypd-commissioner.html
 
 **Giants QB Daniel Jones addresses benching, bids farewell to fans**\

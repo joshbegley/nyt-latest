@@ -1,3 +1,7 @@
+**New N.Y.P.D. Boss Takes Over a Department With ‘Phenomenal Problems’**\
+`Jessica Tisch will oversee top officials who have behaved questionably in public and private. Her supporters say she does not put up with posturing or incompetence.`\
+https://nytimes.com/2024/11/21/nyregion/jessica-tisch-nypd-commissioner.html
+
 **Packers' Jaire Alexander says he tore his PCL, unsure of return timetable**\
 `Alexander suffered the initial knee injury against the Jaguars in Week 8 and reaggravated it last Sunday against the Bears.`\
 https://nytimes.com/athletic/5938752/2024/11/21/packers-jaire-alexander-pcl-injury/
