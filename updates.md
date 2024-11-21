@@ -1,3 +1,7 @@
+**Matt Gaetz Withdraws From Consideration as Attorney General**\
+`The former Florida congressman said in a statement that his confirmation “was unfairly becoming a distraction to the critical work of the Trump/Vance Transition.”`\
+https://nytimes.com/2024/11/21/us/politics/matt-gaetz-withdraws-attorney-general.html
+
 **Netanyahu and Gallant are accused of using starvation as a weapon of war. Here’s a look at hunger in Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/netanyahu-and-gallant-are-accused-of-using-starvation-as-a-weapon-of-war-heres-a-look-at-hunger-in-gaza
