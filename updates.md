@@ -1,3 +1,7 @@
+**Guardiola signs two-year Man City contract extension**\
+`Pep Guardiola will remain Manchester City manager until the summer of 2027 after signing a two-year contract extension.`\
+https://nytimes.com/athletic/5935211/2024/11/21/pep-guardiola-signs-man-city-extension/
+
 **In ‘Music City’ and ‘Babe,’ Existential Battles of the Heart and Soul**\
 `Bedlam’s country music show is a rollicking good time. But the New Group’s production of “Babe,” starring Marisa Tomei, is a frustrating one-act lacking cohesion.`\
 https://nytimes.com/2024/11/21/theater/music-city-babe-review-tomei.html
