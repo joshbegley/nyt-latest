@@ -1,3 +1,7 @@
+**Urologist Who Sexually Abused Patients Is Sentenced to Life in Prison**\
+`Darius A. Paduch, a fertility specialist, assaulted men and boys for years at prominent New York hospitals, prosecutors said.`\
+https://nytimes.com/2024/11/20/nyregion/urologist-sexual-abuse-ny-hospitals.html
+
 **Who’s Laughing Now? Banana-as-Art Sells for $6.2 Million at Sotheby’s**\
 `A conceptual artwork by Maurizio Cattelan, “Comedian,” is just a fruit-stand banana taped on the wall. But 7 bidders were biting. It went to a crypto entrepreneur.`\
 https://nytimes.com/2024/11/20/arts/design/cattelan-banana-sothebys-auction.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/europe/100000009833781/ukraine-atacms-russia.htm
 **Tigers’ Tarik Skubal caps dominant season with unanimous AL Cy Young Award**\
 `Armed with a powerful fastball, a wipeout slider and a wicked changeup that became one of baseball's best pitches, Skubal dominated in 2024.`\
 https://nytimes.com/athletic/5932578/2024/11/20/tigers-tarik-skubal-al-cy-young-award/
-
-**‘We weren’t getting it done’: Bruins stars take the blame for Montgomery's firing**\
-`David Pastrnak: “Monty is a heck of a coach. He taught me and us a lot. It’s obviously a tough day. You feel a big part of guilt."`\
-https://nytimes.com/athletic/5936230/2024/11/20/bruins-players-react-jim-montgomery-firing/
 
