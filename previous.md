@@ -1,5 +1,9 @@
+**Raiders' Mark Davis agrees in principle to sell 15 percent of team: Source**\
+`The agreement comes just over a month after Mark Davis sold about 10.5 percent of the Raiders to a group that includes Tom Brady.`\
+https://nytimes.com/athletic/5936783/2024/11/20/raiders-sale-egon-durban-silver-lake/
+
 **Paul George reinjures knee as 76ers lose again to fall to 2-12**\
-`George's hyperextended knee is the same knee he injured in the preseason, which caused him to miss the first five games of the season. `\
+`George's hyperextended knee is the same one he injured in the preseason, which caused him to miss the first five games of the season. `\
 https://nytimes.com/athletic/5936780/2024/11/20/paul-george-knee-injury-sixers-grizzlies/
 
 **Percival Everett, Author of ‘James,’ Wins National Book Award for Fiction**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/20/us/senate-israel-weapons.html
 **UConn's Auriemma becomes all-time winningest college basketball coach**\
 `Geno Auriemma earned his 1,217th win Wednesday night to pass Tara VanDerveer for the record.`\
 https://nytimes.com/athletic/5936477/2024/11/20/geno-auriemma-uconn-winningest-coach-college-basketball/
-
-**Rob Manfred gives Rays 2026 deadline for stadium plan, says league expansion still proceeding**\
-`The Rays were planning to move to a new stadium in St. Petersburg for 2028, but in the wake of Hurricane Milton, things have muddied.`\
-https://nytimes.com/athletic/5936548/2024/11/20/rob-manfred-rays-stadium-mlb-expansion/
 

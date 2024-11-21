@@ -1,3 +1,11 @@
+**Raiders' Mark Davis agrees in principle to sell 15 percent of team: Source**\
+`The agreement comes just over a month after Mark Davis sold about 10.5 percent of the Raiders to a group that includes Tom Brady.`\
+https://nytimes.com/athletic/5936783/2024/11/20/raiders-sale-egon-durban-silver-lake/
+
+**Paul George reinjures knee as 76ers lose again to fall to 2-12**\
+`George's hyperextended knee is the same one he injured in the preseason, which caused him to miss the first five games of the season. `\
+https://nytimes.com/athletic/5936780/2024/11/20/paul-george-knee-injury-sixers-grizzlies/
+
 **Paul George reinjures knee as 76ers lose again to fall to 2-12**\
 `George's hyperextended knee is the same knee he injured in the preseason, which caused him to miss the first five games of the season. `\
 https://nytimes.com/athletic/5936780/2024/11/20/paul-george-knee-injury-sixers-grizzlies/
