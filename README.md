@@ -1,3 +1,7 @@
+**'You’re going to go through storms': How Tyler Bass is getting ready for his next big kick**\
+`Tyler Bass is grateful for the encouragement he's gotten from the team and fans.`\
+https://nytimes.com/athletic/5934937/2024/11/21/tyler-bass-bills-kicker/
+
 **Israel Strikes Near Beirut as U.S. Envoy Pushes Ahead on Cease-Fire Talks**\
 `The envoy, Amos Hochstein, was in Israel and planned to meet with Prime Minister Benjamin Netanyahu, seeking a truce in the country’s war with the militant group Hezbollah.`\
 https://nytimes.com/2024/11/21/world/middleeast/israel-hezbollah-strikes-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5935357/2024/11/21/stephon-castle-impressing-spurs-
 **Six reasons why this Cowboys season is a disaster**\
 `After years of success, the Cowboys are 3-7 and among the league's worst teams in 2024.`\
 https://nytimes.com/athletic/5936496/2024/11/21/dallas-cowboys-ceedee-lamb-injuries-season/
-
-**How Trump Got in Americans’ Heads and Stayed There**\
-`Trump excelled at tapping into the information ecosystems where minority and young voters express their identity.`\
-https://nytimes.com/2024/11/21/opinion/trump-trad-wives-podcasters-wellness.html
 
