@@ -1,3 +1,7 @@
+**The 2026 Georgia Governor’s Race Kicks Off With a First Hat in the Ring**\
+`The state’s attorney general, Chris Carr, a Republican, is the first person in either major party to declare his candidacy for statewide office in Georgia.`\
+https://nytimes.com/2024/11/21/us/politics/georgia-governor-race-2026.html
+
 **Gaetz Withdrew From Attorney General Consideration**\
 `Also, Putin said Russia struck Ukraine with a new missile. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/11/21/briefing/gaetz-withdraws-attorney-general-russia-ukraine-weapon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/arts/television/midnight-family-apple-tv-plus.htm
 **Alvin Ailey Dance Chooses Alicia Graf Mack to Be Next Leader**\
 `Mack, director of the dance division at Juilliard, will be the popular company’s fourth artistic director.`\
 https://nytimes.com/2024/11/21/arts/dance/alvin-ailey-american-dance-theater-alicia-graf-mack.html
-
-**Spencer Lawton Jr., D.A. in ‘Midnight in the Garden’ Case, Dies at 81**\
-`He devoted much of his 28 years in office in Savannah to victims’ rights, but he was best known for his role in a 1981 murder at the center of a best seller and its movie version.`\
-https://nytimes.com/2024/11/21/books/spencer-lawton-jr-dead.html
 
