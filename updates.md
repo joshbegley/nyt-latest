@@ -1,3 +1,7 @@
+**In ‘Music City’ and ‘Babe,’ Existential Battles of the Heart and Soul**\
+`Bedlam’s country music show is a rollicking good time. But the New Group’s production of “Babe,” starring Marisa Tomei, is a frustrating one-act lacking cohesion.`\
+https://nytimes.com/2024/11/21/theater/music-city-babe-review-tomei.html
+
 **Gaetz’s Withdrawal Means the Senate Passed Its First Test**\
 `Trump failed to push Republicans past their red line.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/matt-gaetz-withdraw-attorney-general
