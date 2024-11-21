@@ -1,3 +1,7 @@
+**A Rite of Passage for Congressional Newcomers: Picking an Office**\
+`Since 1906, new members of Congress have drawn lots to choose their new homes on Capitol Hill. Staff and lawmakers often scout and strategize far in advance to find the best spaces.`\
+https://nytimes.com/2024/11/21/us/politics/capitol-congress-office-draw.html
+
 **Russia Launches New Intermediate-Range Missile at Ukraine**\
 `President Vladimir Putin said the attack was in response to Ukraine’s recent use of American and British weapons to strike deeper into Russia.`\
 https://nytimes.com/video/world/europe/100000009838923/russia-launches-new-intermediate-range-missile-at-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/learning/whats-going-on-in-this-graph-dec-4-2024.
 **White Supremacist Incidents Are Rising Across the U.S.**\
 `Flash demonstrations intended to spread fear and anxiety are happening almost weekly, say experts who track the incidents.`\
 https://nytimes.com/2024/11/21/us/trump-neo-nazi-anti-government-groups.html
-
-**Guardiola signs two-year Man City contract extension**\
-`Pep Guardiola will remain Manchester City manager until the summer of 2027 after signing a two-year contract extension.`\
-https://nytimes.com/athletic/5935211/2024/11/21/pep-guardiola-signs-man-city-extension/
 
