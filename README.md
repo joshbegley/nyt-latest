@@ -1,3 +1,7 @@
+**Fantasy football brain games: The upside of Tommy DeVito and trust issues with Javonte Williams**\
+`Is it time to start Tommy Cutlets? And what are we to do with Javonte Williams? The answer to both: Trust the process.`\
+https://nytimes.com/athletic/5935832/2024/11/21/fantasy-football-brain-games-tommy-devito-javonte-williams/
+
 **Jury Awards Nearly $100 Million to Family of Texas Man Killed by Police Officer**\
 `A jury in federal court concluded that a white police officer used excessive force and violated the constitutional rights of Botham Shem Jean, a Black man, in 2018.`\
 https://nytimes.com/2024/11/21/us/botham-jean-guyger-texas-police-killing-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/nyregion/housing-crunch-affordable-housing-brookl
 **The Priest, the Power Broker and the Pop Star**\
 `Msgr. Jamie J. Gigantiello is in hot water with his diocese. Prosecutors are looking into his dealings with the New York City mayor’s top adviser. It all started with Sabrina Carpenter.`\
 https://nytimes.com/2024/11/21/nyregion/sabrina-carpenter-church-frank-carone.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/21/crosswords/spelling-bee-forum.html
 
