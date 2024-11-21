@@ -1,3 +1,7 @@
+**Kyle Shanahan on 49ers’ limited RB rotation: It’s hard to sit Christian McCaffrey**\
+`Brock Purdy was on hand for Wednesday's practice but didn't make any throws. Nick Bosa's game status, meanwhile, may come down to the wire.`\
+https://nytimes.com/athletic/5936418/2024/11/20/49ers-christian-mccaffrey-jordan-mason/
+
 **Pamela Hayden, the Voice of Bart’s Friend Milhouse, Retires From ‘The Simpsons’**\
 `Ms. Hayden voiced many “Simpsons” characters since the show started in 1989. She’s most famously the voice of Bart’s awkward 10-year-old best friend.`\
 https://nytimes.com/2024/11/20/arts/television/pamela-hayden-retires-simpsons-milhouse-voice.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/nyregion/giuliani-defamation.html
 **Roki Sasaki to be part of MLB's 2025 international signing class**\
 `Sasaki, 23, is one of baseball's most hyped pitching prospects.`\
 https://nytimes.com/athletic/5936263/2024/11/20/roki-sasaki-international-signing-period/
-
-**Florida Man Accused of Plotting Attack on New York Stock Exchange**\
-`Harun Abdul-Malik Yener was charged after an undercover investigation by the F.B.I. into his alleged desire to join extremist groups and carry out violent attacks, according to a criminal complaint.`\
-https://nytimes.com/2024/11/20/us/politics/florida-man-bomb-stock-exchange.html
 

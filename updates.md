@@ -1,3 +1,7 @@
+**Kyle Shanahan on 49ers’ limited RB rotation: It’s hard to sit Christian McCaffrey**\
+`Brock Purdy was on hand for Wednesday's practice but didn't make any throws. Nick Bosa's game status, meanwhile, may come down to the wire.`\
+https://nytimes.com/athletic/5936418/2024/11/20/49ers-christian-mccaffrey-jordan-mason/
+
 **Pamela Hayden, the Voice of Bart’s Friend Milhouse, Retires From ‘The Simpsons’**\
 `Ms. Hayden voiced many “Simpsons” characters since the show started in 1989. She’s most famously the voice of Bart’s awkward 10-year-old best friend.`\
 https://nytimes.com/2024/11/20/arts/television/pamela-hayden-retires-simpsons-milhouse-voice.html
