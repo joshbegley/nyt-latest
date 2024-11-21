@@ -1,3 +1,15 @@
+**I.C.C. Issues Arrest Warrant for Netanyahu Over War in Gaza**\
+`The International Criminal Court’s arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and his former defense minister, Yoav Gallant, were issued for war crimes and crimes against humanity in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009837972/icc-issues-arrest-warrant-for-netanyahu-over-war-in-gaza.html
+
+**Injured in the war and evacuated to Qatar, some Gazans wonder how to go on.**\
+`By Samar Abu Elouf and Eric Nagourney`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/injured-in-the-war-and-evacuated-to-qatar-some-gazans-wonder-how-to-go-on
+
+**NFL warns teams of burglary groups targeting players' homes**\
+`The memo also included ways burglary groups survey players' whereabouts and explained methods of entry into homes.`\
+https://nytimes.com/athletic/5938166/2024/11/21/nfl-security-alert-home-burglaries/
+
 **Trump’s Vow to End the War Could Leave Ukraine With Few Options**\
 `One question is whether the new administration and Europe will provide security guarantees to prevent Russia from taking more territory.`\
 https://nytimes.com/2024/11/21/us/politics/trump-russia-ukraine-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5938033/2024/11/21/los-angeles-sparks-practice-faci
 **NHL trade board 2024-25: The latest on all the top targets from Chris Johnston**\
 `From Brock Nelson to Brad Marchand to Taylor Hall, the NHL trade market is starting to take shape early this season.`\
 https://nytimes.com/athletic/5930174/2024/11/21/nhl-trade-board-marchand-hall-nelson/
-
-**A Very Veggie Thanksgiving**\
-`Gorgeous mains, vibrant sides and — most important — stuffing.`\
-https://nytimes.com/2024/11/21/dining/a-very-veggie-thanksgiving.html
-
-**He Was a National Hero in Britain. His Daughter Profited From His Name.**\
-`The family of Captain Tom Moore, who raised $50 million for Britain’s health service during the pandemic, has been criticized for ‘serious and repeated’ misconduct by an official inquiry.`\
-https://nytimes.com/2024/11/21/world/europe/captain-tom-daughter-charity-misconduct.html
-
-**Netanyahu and Gallant are accused of using starvation as a weapon of war. Here’s a look at hunger in Gaza.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/netanyahu-and-gallant-are-accused-of-using-starvation-as-a-weapon-of-war-heres-a-look-at-hunger-in-gaza
 
