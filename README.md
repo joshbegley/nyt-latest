@@ -1,3 +1,7 @@
+**Map: 2.3-Magnitude Earthquake Strikes Connecticut**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/11/20/nyregion/connecticut-earthquake.html
+
 **Trump Tells Republicans to ‘Kill’ Reporter Shield Bill Passed Unanimously by House**\
 `The bill, known as the PRESS Act, would codify protections against federal investigators seizing reporters’ records. It is now less likely the legislation would clear the Senate before the current session ends.`\
 https://nytimes.com/2024/11/20/us/politics/trump-press-act-freedom-reporters.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/arts/television/pamela-hayden-retires-simpsons-mi
 **Elon Musk and Vivek Ramaswamy Call for Five-Day In-Office Workweeks for Federal Employees**\
 `In an opinion column in The Wall Street Journal, the heads of the new Department of Government Efficiency said taxpayers shouldn’t pay federal employees “for the Covid-era privilege of staying home.”`\
 https://nytimes.com/2024/11/20/us/politics/elon-musk-vivek-ramaswamy-doge-rto.html
-
-**Ukraine Strikes Inside Russia With U.S. Missiles**\
-`The next two or three months in Ukraine are likely to be exceedingly violent, in a war that has already been the deadliest in Europe in the past 80 years. Marc Santora, who has been reporting from Ukraine since the beginning of the war with Russia, explains why.`\
-https://nytimes.com/video/world/europe/100000009833781/ukraine-atacms-russia.html
 
