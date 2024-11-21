@@ -1,3 +1,7 @@
+**Automakers to Trump: Please Require Us to Sell Electric Vehicles**\
+`Donald J. Trump promised to erase Biden tailpipe rules that are designed to get carmakers to produce EVs. But Detroit wants to keep them.`\
+https://nytimes.com/2024/11/21/climate/gm-ford-electric-vehicles-trump.html
+
 **Want to Get Married in Central Park? This Planner Can Help.**\
 `Claire Ady started her business helping international couples navigate the process of getting married in the iconic park after planning her own wedding there.`\
 https://nytimes.com/2024/11/21/fashion/weddings/central-park-wedding-planner.html

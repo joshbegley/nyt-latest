@@ -1,3 +1,7 @@
+**Automakers to Trump: Please Require Us to Sell Electric Vehicles**\
+`Donald J. Trump promised to erase Biden tailpipe rules that are designed to get carmakers to produce EVs. But Detroit wants to keep them.`\
+https://nytimes.com/2024/11/21/climate/gm-ford-electric-vehicles-trump.html
+
 **Want to Get Married in Central Park? This Planner Can Help.**\
 `Claire Ady started her business helping international couples navigate the process of getting married in the iconic park after planning her own wedding there.`\
 https://nytimes.com/2024/11/21/fashion/weddings/central-park-wedding-planner.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5937787/2024/11/21/luka-doncic-wrist-injury-maveric
 **House Passes Antiterror Financing Bill as Democrats Warn Trump Could Abuse It**\
 `A substantial number of Democrats reversed their previous positions and opposed the measure, warning that President-elect Donald J. Trump could use it to punish nonprofit groups he saw as political antagonists.`\
 https://nytimes.com/2024/11/21/us/politics/house-antiterror-financing-bill.html
-
-**The Windup: MLB awards are (basically) all in**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5937964/2024/11/21/mlb-awards-cy-young-the-windup/
 
