@@ -1,3 +1,19 @@
+**Rosenthal: Blake Snell's early suitors, Dodgers' evolving plans and more MLB offseason notes**\
+`Plus the latest on the A's, Rays and Cody Bellinger's future in Chicago.`\
+https://nytimes.com/athletic/5935761/2024/11/21/blake-snell-free-agency-dodgers-mlb-offseason/
+
+**Judge John Hodgman on Proper Pringle Consumption**\
+`Saddle edges up? Or down?`\
+https://nytimes.com/2024/11/21/magazine/judge-john-hodgman-on-proper-pringle-consumption.html
+
+**The Premier League Owners: Game-changing money from the Gulf - and what next?**\
+`In part four of our series about Premier League owners, we examine the impact of investment from the Middle East`\
+https://nytimes.com/athletic/5931950/2024/11/21/the-premier-league-owners-game-changing-money-from-the-gulf-and-what-next/
+
+**The State of Punditry - part 2: How the world analyses football - and the U.S. lead the way**\
+`In the second part of our series, Tim Spiers examines how the sport is dissected across the globe`\
+https://nytimes.com/athletic/5935127/2024/11/21/punditry-usa-germany-spain-world/
+
 **Liverpool should not be afraid of being title favourites**\
 `Arne Slot was not expected to win the league this season - and history suggests it will be hard. But the chance is there for the taking`\
 https://nytimes.com/athletic/5919718/2024/11/21/liverpool-premier-league-title-odds/

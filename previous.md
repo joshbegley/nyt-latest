@@ -1,3 +1,19 @@
+**Rosenthal: Blake Snell's early suitors, Dodgers' evolving plans and more MLB offseason notes**\
+`Plus the latest on the A's, Rays and Cody Bellinger's future in Chicago.`\
+https://nytimes.com/athletic/5935761/2024/11/21/blake-snell-free-agency-dodgers-mlb-offseason/
+
+**Judge John Hodgman on Proper Pringle Consumption**\
+`Saddle edges up? Or down?`\
+https://nytimes.com/2024/11/21/magazine/judge-john-hodgman-on-proper-pringle-consumption.html
+
+**The Premier League Owners: Game-changing money from the Gulf - and what next?**\
+`In part four of our series about Premier League owners, we examine the impact of investment from the Middle East`\
+https://nytimes.com/athletic/5931950/2024/11/21/the-premier-league-owners-game-changing-money-from-the-gulf-and-what-next/
+
+**The State of Punditry - part 2: How the world analyses football - and the U.S. lead the way**\
+`In the second part of our series, Tim Spiers examines how the sport is dissected across the globe`\
+https://nytimes.com/athletic/5935127/2024/11/21/punditry-usa-germany-spain-world/
+
 **Liverpool should not be afraid of being title favourites**\
 `Arne Slot was not expected to win the league this season - and history suggests it will be hard. But the chance is there for the taking`\
 https://nytimes.com/athletic/5919718/2024/11/21/liverpool-premier-league-title-odds/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5925128/2024/11/21/ruben-amorim-manchester-united-h
 **How have Premier League clubs been affected by injuries this season?**\
 `Injuries are rarely the solitary determiner of a team’s form and data shows some clubs have managed to cope despite long injury lists.`\
 https://nytimes.com/athletic/5919703/2024/11/21/premier-league-injuries/
-
-**FPL: Which managers can you trust to give accurate injury updates?**\
-`Press-conference injury updates can be crucial when it comes to FPL planning - but some Premier League managers aren't as open as others`\
-https://nytimes.com/athletic/5930706/2024/11/21/fantasy-premier-league-injuries-gw12-press-conferences/
-
-**Israel and Iran Seemed on the Brink of a Bigger War. What’s Holding Them Back?**\
-`So far, direct attacks between the two adversaries have been precise and calculated. Whether that lasts is another question.`\
-https://nytimes.com/2024/11/21/world/middleeast/israel-iran-brink-bigger-war.html
-
-**Connections: Sports Edition hints for Nov. 21, 2024**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/5936824/2024/11/21/connections-sports-edition-coach-59/
-
-**Quote of the Day: Wildfire Risk Only Growing For Northeast**\
-`Quotation of the Day for Thursday, November 21, 2024`\
-https://nytimes.com/2024/11/20/pageoneplus/quote-of-the-day-wildfire-risk-only-growing-for-northeast.html
 
