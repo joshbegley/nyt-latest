@@ -1,40 +1,40 @@
-**Gaetz Ethics Report Blocked, and the Trial That’s Horrified France**\
-`Plus, a $6.2 million piece of fruit.`\
-https://nytimes.com/2024/11/21/podcasts/gaetz-ethics-report-blocked-and-the-trial-thats-horrified-france.html
+**Why the Chiefs’ Patrick Mahomes-Xavier Worthy deep-ball game isn't clicking**\
+`Since Week 4, Mahomes has thrown eight passes with the ball traveling at least 30 yards past the line of scrimmage with no completions.`\
+https://nytimes.com/athletic/5936235/2024/11/21/chiefs-patrick-mahomes-xavier-worthy/
 
-**The Connections Companion No. 530**\
-`Scroll down for hints and conversation about the puzzle for Friday, Nov. 30, 2024.`\
-https://nytimes.com/2024/11/21/crosswords/connections-companion-530.html
+**The uneasy energy around the Bears is very familiar — and bad news for Matt Eberflus**\
+`The Bears have seven games remaining against playoff contenders and appear headed for major offseason changes.`\
+https://nytimes.com/athletic/5936081/2024/11/21/bears-matt-eberflus-familar-feeling/
 
-**Wordle Review No. 1,252**\
-`Scroll down for hints and conversation about the puzzle for Nov. 22, 2024.`\
-https://nytimes.com/2024/11/21/crosswords/wordle-review-1252.html
+**A healthy Jordan Love's improved mobility serves as a weapon for Packers offense**\
+`The Packers rank fourth in the NFL in explosive pass rate, according to TruMedia, and now Love can actually move.`\
+https://nytimes.com/athletic/5936226/2024/11/21/jordan-love-mobile-packers-offense/
 
-**'You’re going to go through storms': How Tyler Bass is getting ready for his next big kick**\
-`Tyler Bass is grateful for the encouragement he's gotten from the team and fans.`\
-https://nytimes.com/athletic/5934937/2024/11/21/tyler-bass-bills-kicker/
+**How the "ability to not care" fueled Arizona State's surprise season**\
+`Kenny Dillingham has talked often about “Activating the Valley,” filling Mountain America Stadium and fueling excitement. That day is here.`\
+https://nytimes.com/athletic/5936696/2024/11/21/arizona-state-sun-devils-kenny-dillingham-big-12/
 
-**Israel Strikes Near Beirut as U.S. Envoy Pushes Ahead on Cease-Fire Talks**\
-`The envoy, Amos Hochstein, was in Israel and planned to meet with Prime Minister Benjamin Netanyahu, seeking a truce in the country’s war with the militant group Hezbollah.`\
-https://nytimes.com/2024/11/21/world/middleeast/israel-hezbollah-strikes-talks.html
+**Will Arizona State keep alive hopes of crashing title game? Big 12 Chaos Meter**\
+`It’s officially chaotic. With two weeks to go, four teams have a realistic path to the title game, but five others are technically alive.`\
+https://nytimes.com/athletic/5936094/2024/11/21/big-12-chaos-meter-will-arizona-state-playoff/
 
-**SEC should be thankful for a 12-team Playoff this year. It would be on the brink with 4**\
-`The Big Ten would be pondering multiple bids in a more exclusive Playoff format this season.`\
-https://nytimes.com/athletic/5936471/2024/11/21/college-football-playoff-sec-miss-playoff-4-teams/
+**Five NFL Draft prospects rising into the top-100 mix, others to watch this weekend**\
+`Jared Ivey, Alfred Collins and a handful of other prospects have caught our draft expert's eye this season.`\
+https://nytimes.com/athletic/5930988/2024/11/21/nfl-draft-2025-risers-darien-porter-jared-ivey/
 
-**Why UNC star RJ Davis couldn't resist returning for his fifth season — and one more shot**\
-`Davis sprouted into a full-blown star last season. But he still wants a chance at a redo of UNC's 2022 run to the NCAA title game.`\
-https://nytimes.com/athletic/5935072/2024/11/21/north-carolina-basketball-rj-davis/
+**Blackhawks’ future roster and salary cap, Part 2: Projecting through 2030**\
+`When could the Blackhawks compete for the Stanley Cup again? These projections help visualize a best guess.`\
+https://nytimes.com/athletic/5922285/2024/11/21/blackhawks-projected-roster-salary-cap-2030/
 
-**How Tarik Skubal went from rehab to winning the Cy Young Award**\
-`It took hard work and mental preparation for Skubal to earn the American League's first full-season pitching triple crown since 2011. `\
-https://nytimes.com/athletic/5922636/2024/11/21/detroit-tigers-tarik-skubal-cy-young-rehab/
+**Celtics visiting White House on Thursday to celebrate NBA championship**\
+`The Celtics' trip to the White House coincides with their game Friday against the Wizards.`\
+https://nytimes.com/athletic/5936417/2024/11/21/celtics-white-house-visit/
 
-**11 stats that tell the story of Drake Maye's hot start**\
-`Maye is off to a strong start with the Patriots. But what is he doing well? And where does he still need to improve? We explain.`\
-https://nytimes.com/athletic/5935784/2024/11/21/drake-maye-patriots-qb-stats/
+**Is Daniel Jones now QB4 on Giants depth chart? Drew Lock 'upset' he wasn't named starter**\
+`Jones was the fourth QB to take reps during Wednesday's practice behind Tommy DeVito, Lock and practice squad QB Tim Boyle.`\
+https://nytimes.com/athletic/5935846/2024/11/21/daniel-jones-giants-benched-tommy-devito-drew-lock/
 
-**Baggarly: It's time for the BBWAA to add a Reliever of the Year Award**\
-`No reliever has won the Cy Young Award since Eric Gagne in 2003. It's time to give them a chance at a prestigious award.`\
-https://nytimes.com/athletic/5936757/2024/11/21/opinion-bbwaa-reliever-of-the-year-award/
+**What is the NHL goalie of the future? An elite skater and brainy thinker — with a strong butt**\
+`The next-generation goalie’s brain needs to be wired for more than hockey sense. It has to manage a goalie’s competitiveness.`\
+https://nytimes.com/athletic/5903221/2024/11/21/nhl-goalie-future-coaching/
 
