@@ -1,3 +1,11 @@
+**First Close-Up of Star Outside Our Galaxy Shows a Giant About to Blow**\
+`Astronomers zoomed in on a stellar behemoth in the Larger Magellanic Cloud, a galaxy that orbits about 160,000 light-years from the Milky Way.`\
+https://nytimes.com/2024/11/21/science/behemoth-star-closeup-picture.html
+
+**Hubie Brown to call final NBA game of career for ESPN this season**\
+`“We are going to give Hubie one last shot on a game,” said ESPN President Burke Magnus. "He deserves that. We think the world of him."`\
+https://nytimes.com/athletic/5937884/2024/11/21/hubie-brown-espn-nba-final-year/
+
 **Automakers to Trump: Please Require Us to Sell Electric Vehicles**\
 `Donald J. Trump promised to erase Biden tailpipe rules that are designed to get carmakers to produce EVs. But Detroit wants to keep them.`\
 https://nytimes.com/2024/11/21/climate/gm-ford-electric-vehicles-trump.html
