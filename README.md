@@ -1,3 +1,11 @@
+**Israel Resumes Strikes South of Beirut**\
+`Israel bombarded the Dahiya, a Hezbollah-controlled area south of Lebanon’s capital, with a wave of airstrikes on Thursday.`\
+https://nytimes.com/video/world/middleeast/100000009838135/lebanon-israeli-strikes.html
+
+**Hubie Brown to call final NBA game of career for ESPN this season**\
+`“We are going to give Hubie one last shot on a game,” said ESPN President Burke Magnus.`\
+https://nytimes.com/athletic/5937884/2024/11/21/hubie-brown-espn-nba-final-year/
+
 **Inside the Lobbying Career of Trump’s New Chief of Staff**\
 `Before managing the campaign of President-elect Donald J. Trump, Susie Wiles represented a tobacco company and a mining project, among others.`\
 https://nytimes.com/2024/11/21/us/politics/susie-wiles-trump-lobbying.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5937714/2024/11/21/sabres-trade-trevor-zegras-maibl
 **New Thanksgiving Recipes That Earned Raves From Our Testers**\
 `Including a caramelized onion tahchin that’s “wonderfully comforting and absolutely crucial.”`\
 https://nytimes.com/2024/11/21/dining/thanksgiving-recipes-testers-loved.html
-
-**Scoop City: Why Wilson and Darnold look better**\
-`This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
-https://nytimes.com/athletic/5937934/2024/11/21/russell-wilson-sam-darnold-caleb-williams-scoop-city/
-
-**The Nikita Grebenkin experience is underway for the Maple Leafs**\
-`With injuries ravaging the Leafs, the 2020 fifth-round pick made his NHL debut in Wednesday's 3-0 win over the Golden Knights.`\
-https://nytimes.com/athletic/5937200/2024/11/21/maple-leafs-nikita-grebenkin-nhl/
 
