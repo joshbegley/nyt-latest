@@ -1,3 +1,7 @@
+**The Warrant for Netanyahu’s Arrest Also Implicates the United States**\
+`We should not operate as if there is some hierarchy in the value of children’s lives.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/icc-netanyahu-warrant
+
 **Dinner and a Show and a Little Hustle Near the Theater District**\
 `Yes, you can play it safe for a meal around the corner from your theater. But a few extra blocks will serve you well.`\
 https://nytimes.com/2024/11/21/dining/dinner-and-a-show-and-a-little-hustle-near-the-theater-district.html
