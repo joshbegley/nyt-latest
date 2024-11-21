@@ -1,3 +1,7 @@
+**Forest's Anderson to be assessed before Arsenal trip**\
+`Nottingham Forest will assess Elliot Anderson on Friday before their trip to face Arsenal on Saturday.`\
+https://nytimes.com/athletic/5938391/2024/11/21/elliot-anderson-forest-foot-injury/
+
 **What’s the Worst Date You’ve Ever Been On? We Want to Hear About It.**\
 `Tell us about your experience, and you may be featured on the Modern Love podcast.`\
 https://nytimes.com/2024/11/21/podcasts/modern-love-worst-date-stories.html
