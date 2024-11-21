@@ -1,3 +1,7 @@
+**Trump’s Education Secretary Pick Named in Sexual Abuse Lawsuit**\
+`Linda McMahon, who ran World Wrestling Entertainment for decades, was accused in the lawsuit of not preventing one of the organization’s employees from victimizing children who helped set up wrestling rings.`\
+https://nytimes.com/2024/11/21/us/linda-mcmahon-sexual-abuse-lawsuit-trump-education-secretary.html
+
 **Michigan flips QB Bryce Underwood — No. 1 player in 2025 class — from LSU**\
 `Underwood will be the highest-rated quarterback to sign with Michigan in the modern recruiting era. `\
 https://nytimes.com/athletic/5939109/2024/11/21/bryce-underwood-michigan-lsu-recruiting/
