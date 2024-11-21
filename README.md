@@ -1,3 +1,19 @@
+**Netanyahu and Gallant are accused of using starvation as a weapon of war. Here’s a look at hunger in Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/netanyahu-and-gallant-are-accused-of-using-starvation-as-a-weapon-of-war-heres-a-look-at-hunger-in-gaza
+
+**Release the House Ethics Report on Gaetz**\
+`Readers respond to the Matt Gaetz drama. Also: Dr. Mehmet Oz and Robert F. Kennedy Jr.; Russia’s nuclear pose; political spending; election lessons; homelessness.`\
+https://nytimes.com/2024/11/21/opinion/matt-gaetz-house-ethics-report.html
+
+**Matt Gaetz withdraws from consideration as attorney general.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/matt-gaetz-withdraws-attorney-general
+
+**Jay Leno Says He Was Injured in a Fall**\
+`He told Inside Edition that he fell down a hill after taking an ill-advised shortcut, leaving him with a broken wrist and a black eye.`\
+https://nytimes.com/2024/11/21/arts/jay-leno-fall-hill-bruises.html
+
 **Sacco is the Bruins interim head coach. Who’s next if he comes up short?**\
 `Who could GM Don Sweeney be keeping an eye on while monitoring the team's progress under Sacco? Here's an early look at six candidates.`\
 https://nytimes.com/athletic/5938123/2024/11/21/bruins-coaching-candidates/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/21/health/overdose-deaths-decline-drug-supply.html
 **Colorado lands 5-star QB Julian Lewis: What this means for Deion Sanders**\
 `Lewis, the No. 35 overall prospect in the Class of 2025 in the 247Sports Composite, had previously been committed to USC.`\
 https://nytimes.com/athletic/5915821/2024/11/21/colorado-recruiting-deion-sanders-julian-lewis-qb/
-
-**Palestinians welcome the I.C.C. warrants against Netanyahu and Gallant.**\
-`By Raja Abdulrahim and Bilal Shbair`\
-https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/palestinians-welcome-the-icc-warrants-against-netanyahu-and-gallant
-
-**Netanyahu, Wanted by a Landmark Warrant, Now Faces a Smaller World**\
-`Prime Minister Benjamin Netanyahu has allies among the members of the International Criminal Court. But he will have to plan his travel more carefully than before.`\
-https://nytimes.com/2024/11/21/world/middleeast/netanyahu-arrest-warrant.html
-
-**After meeting with Hegseth, Republican senators rally behind Trump’s defense secretary pick.**\
-`By Michael C. Bender`\
-https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/hegseth-republicans-senate
-
-**Spain Looks to Grant Residency to Nearly 1 Million Undocumented Migrants**\
-`The government said new rules could give legal status — and work permits — to about 300,000 people a year over the next three years to address gaps in the labor market.`\
-https://nytimes.com/2024/11/21/world/europe/spain-migrants-residency-work-permits.html
 
