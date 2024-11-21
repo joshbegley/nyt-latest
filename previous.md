@@ -1,3 +1,11 @@
+**Israel Indicts Netanyahu Aide Over Leaked Document on Hamas**\
+`One of Prime Minister Benjamin Netanyahu’s advisers is accused of leaking a top-secret document to a German tabloid in an attempt to influence public sentiment on hostage negotiations.`\
+https://nytimes.com/2024/11/21/world/middleeast/israel-netanyahu-aide-leak-indictment.html
+
+**Transfers, title, charges - what Guardiola's decision to stay means for Man City**\
+`The manager's decision to sign a new contract is a huge boost for the club and may strengthen their hand in the January transfer window`\
+https://nytimes.com/athletic/5937112/2024/11/21/pep-guardiola-manchester-city-contract-what-it-means/
+
 **Steven J. Rosen, Hard-Charging Advocate for Israel, Dies at 82**\
 `A prominent behind-the-scenes figure in Washington, his career was derailed when he was charged with leaking government secrets. The case was later dropped.`\
 https://nytimes.com/2024/11/21/us/politics/steven-j-rosen-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5935211/2024/11/21/pep-guardiola-signs-man-city-ext
 **In ‘Music City’ and ‘Babe,’ Existential Battles of the Heart and Soul**\
 `Bedlam’s country music show is a rollicking good time. But the New Group’s production of “Babe,” starring Marisa Tomei, is a frustrating one-act lacking cohesion.`\
 https://nytimes.com/2024/11/21/theater/music-city-babe-review-tomei.html
-
-**Gaetz’s Withdrawal Means the Senate Passed Its First Test**\
-`Trump failed to push Republicans past their red line.`\
-https://nytimes.com/live/2024/11/19/opinion/thepoint/matt-gaetz-withdraw-attorney-general
-
-**Man Who Faked Kayaking Death Says in Video He’s ‘Safe’**\
-`But the man, Ryan Borgwardt, who is believed to be in Eastern Europe and has been communicating with the authorities, has not committed to returning home, officials said.`\
-https://nytimes.com/2024/11/21/us/ryan-bogwardt-sheriff-update-faked-death.html
 
