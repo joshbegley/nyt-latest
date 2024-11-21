@@ -1,3 +1,27 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/11/21/briefing/gaetz-ethics-israel-ukraine.html
+
+**Premier League homegrown players: Which clubs have none and who uses the most?**\
+`All the numbers behind the players developed in the academies of England's top-flight clubs`\
+https://nytimes.com/athletic/5934724/2024/11/21/premier-league-homegrown-players/
+
+**Explained: The latest vote in Manchester City's APT legal battle with the Premier League**\
+`All 20 Premier League clubs will have representation at Friday’s shareholders’ meeting and are braced for a fiery and fractious debate`\
+https://nytimes.com/athletic/5935526/2024/11/21/manchester-city-villa-premier-league-apt-vote-explained/
+
+**Manchester United fans, it's OK to be excited about Ruben Amorim**\
+`Supporting United is supposed to be an entertaining escape from the monotony of day-to-day life, rather than something that adds to it`\
+https://nytimes.com/athletic/5925128/2024/11/21/ruben-amorim-manchester-united-head-coach/
+
+**How have Premier League clubs been affected by injuries this season?**\
+`Injuries are rarely the solitary determiner of a team’s form and data shows some clubs have managed to cope despite long injury lists.`\
+https://nytimes.com/athletic/5919703/2024/11/21/premier-league-injuries/
+
+**FPL: Which managers can you trust to give accurate injury updates?**\
+`Press-conference injury updates can be crucial when it comes to FPL planning - but some Premier League managers aren't as open as others`\
+https://nytimes.com/athletic/5930706/2024/11/21/fantasy-premier-league-injuries-gw12-press-conferences/
+
 **Israel and Iran Seemed on the Brink of a Bigger War. What’s Holding Them Back?**\
 `So far, direct attacks between the two adversaries have been precise and calculated. Whether that lasts is another question.`\
 https://nytimes.com/2024/11/21/world/middleeast/israel-iran-brink-bigger-war.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/11/20/pageoneplus/quote-of-the-day-wildfire-risk-only-g
 **In New York, Reporting on Four Fires in Four Days**\
 `Anything is on the table for a general assignment reporter in New York. Still, a series of brush fires in the city and a big blaze upstate were far from expected.`\
 https://nytimes.com/2024/11/20/insider/new-york-city-fires.html
-
-**Police Report Offers Graphic Details of Sexual Assault Claim Against Hegseth**\
-`President-elect Donald J. Trump’s choice for defense secretary was never charged with a crime and vehemently denied to the police that a sexual encounter was coerced.`\
-https://nytimes.com/2024/11/20/us/politics/police-report-sexual-assault-claim-hegseth.html
-
-**New York City Will Get Some Rain, but Not Enough to Ease Its Drought**\
-`About two inches were forecast to fall through Saturday. Officials say it won’t be enough to fully replenish the city’s reservoirs.`\
-https://nytimes.com/2024/11/20/nyregion/nyc-rain-forecast-drought.html
-
-**Maple Leafs report cards: Gritty effort earns shutout win over Golden Knights**\
-`With a 3-0 victory over Vegas, the Maple Leafs picked up their sixth win in seven games without their captain this season.`\
-https://nytimes.com/athletic/5936790/2024/11/20/maple-leafs-golden-knights-woll-minten/
-
-**Raiders' Mark Davis agrees in principle to sell 15 percent of team: Source**\
-`The agreement comes just over a month after Mark Davis sold about 10.5 percent of the Raiders to a group that includes Tom Brady.`\
-https://nytimes.com/athletic/5936783/2024/11/20/raiders-sale-egon-durban-silver-lake/
-
-**Paul George reinjures knee as 76ers lose again to fall to 2-12**\
-`George's hyperextended knee is the same one he injured in the preseason, which caused him to miss the first five games of the season. `\
-https://nytimes.com/athletic/5936780/2024/11/20/paul-george-knee-injury-sixers-grizzlies/
-
-**Percival Everett, Author of ‘James,’ Wins National Book Award for Fiction**\
-`Jason De León received the nonfiction award for “Soldiers and Kings: Survival and Hope in the World of Human Smuggling.”`\
-https://nytimes.com/2024/11/20/books/booksupdate/national-book-award-2024.html
 
