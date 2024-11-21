@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Gritty effort earns shutout win over Golden Knights**\
+`With a 3-0 victory over Vegas, the Maple Leafs picked up their sixth win in seven games without their captain this season.`\
+https://nytimes.com/athletic/5936790/2024/11/20/maple-leafs-golden-knights-woll-minten/
+
 **Raiders' Mark Davis agrees in principle to sell 15 percent of team: Source**\
 `The agreement comes just over a month after Mark Davis sold about 10.5 percent of the Raiders to a group that includes Tom Brady.`\
 https://nytimes.com/athletic/5936783/2024/11/20/raiders-sale-egon-durban-silver-lake/
