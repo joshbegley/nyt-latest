@@ -1,3 +1,7 @@
+**Jury Awards Nearly $100 Million to Family of Texas Man Killed by Police Officer**\
+`A jury in federal court concluded that a white police officer used excessive force and violated the constitutional rights of Botham Shem Jean, a Black man, in 2018.`\
+https://nytimes.com/2024/11/21/us/botham-jean-guyger-texas-police-killing-trial.html
+
 **Climate Talks Teeter, With Rich and Poor Countries in a Tug of War**\
 `Western countries are confronting demands for trillions of dollars to fight climate change and to cope with its worsening effects.`\
 https://nytimes.com/2024/11/21/climate/cop20-climate-summit-negotiations.html

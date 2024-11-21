@@ -1,3 +1,7 @@
+**Jury Awards Nearly $100 Million to Family of Texas Man Killed by Police Officer**\
+`A jury in federal court concluded that a white police officer used excessive force and violated the constitutional rights of Botham Shem Jean, a Black man, in 2018.`\
+https://nytimes.com/2024/11/21/us/botham-jean-guyger-texas-police-killing-trial.html
+
 **Climate Talks Teeter, With Rich and Poor Countries in a Tug of War**\
 `Western countries are confronting demands for trillions of dollars to fight climate change and to cope with its worsening effects.`\
 https://nytimes.com/2024/11/21/climate/cop20-climate-summit-negotiations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/nyregion/sabrina-carpenter-church-frank-carone.ht
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/21/crosswords/spelling-bee-forum.html
-
-**Lando Norris accepts his first F1 title challenge likely will end in defeat**\
-`Verstappen leads the driver standings with 393 points, 62 points ahead of Norris with three races and a sprint to go`\
-https://nytimes.com/athletic/5937041/2024/11/21/lando-norris-f1-championship-max-verstappen-vegas/
 
