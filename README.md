@@ -1,3 +1,15 @@
+**Inside the Lobbying Career of Trump’s New Chief of Staff**\
+`Before managing the campaign of President-elect Donald J. Trump, Susie Wiles represented a tobacco company and a mining project, among others.`\
+https://nytimes.com/2024/11/21/us/politics/susie-wiles-trump-lobbying.html
+
+**Mavericks' Luka Dončić to miss time with wrist injury**\
+`Dončić scored a game-high 26 points in a 41-point win over Pelicans on Tuesday.`\
+https://nytimes.com/athletic/5937787/2024/11/21/luka-doncic-wrist-injury-mavericks/
+
+**House Passes Antiterror Financing Bill as Democrats Warn Trump Could Abuse It**\
+`A substantial number of Democrats reversed their previous positions and opposed the measure, warning that President-elect Donald J. Trump could use it to punish nonprofit groups he saw as political antagonists.`\
+https://nytimes.com/2024/11/21/us/politics/house-antiterror-financing-bill.html
+
 **The Windup: MLB awards are (basically) all in**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5937964/2024/11/21/mlb-awards-cy-young-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5937934/2024/11/21/russell-wilson-sam-darnold-caleb
 **The Nikita Grebenkin experience is underway for the Maple Leafs**\
 `With injuries ravaging the Leafs, the 2020 fifth-round pick made his NHL debut in Wednesday's 3-0 win over the Golden Knights.`\
 https://nytimes.com/athletic/5937200/2024/11/21/maple-leafs-nikita-grebenkin-nhl/
-
-**Here’s Why the I.C.C. Says It Issued the Arrest Warrants**\
-`The International Criminal Court said there were grounds to hold two Israeli leaders responsible for the crisis in Gaza, and a Hamas military leader for crimes against humanity.`\
-https://nytimes.com/2024/11/21/world/middleeast/icc-arrest-warrant-why-israel-hamas.html
-
-**Giannis Antetokounmpo's huge third quarter in win over Bulls leaves teammates speechless**\
-`Antetokounmpo's dominance on offense has the Bucks optimistic again after a 2-8 start. They have now won four of the last five games.`\
-https://nytimes.com/athletic/5936870/2024/11/21/giannis-antetokounmpo-dominance-bucks-bulls/
-
-**Team USA exits Davis Cup after surprise doubles pick against Australia**\
-`Doubles selection controversy has again overshadowed Team USA's Davis Cup after a defeat to Australia`\
-https://nytimes.com/athletic/5937718/2024/11/21/usa-davis-cup-out-australia-doubles-pick/
 
