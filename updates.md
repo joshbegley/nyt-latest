@@ -1,3 +1,7 @@
+**The Bounce: It's time buy or sell these NBA contenders**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5937225/2024/11/21/nba-cavaliers-celtics-lakers-bucks-76ers-joel-embiid-paul-george-nba-the-bounce/
+
 **Cowboys Today: DaRon Bland's mysterious injury situation and Dante Fowler's impact**\
 `Bland was injured in training camp and is working his way back, but still hasn't played. Dallas will see a familiar face Sunday in D.C.`\
 https://nytimes.com/athletic/5936956/2024/11/21/cowboys-today-daron-bland-injury-update-dante-fowler-commanders/
