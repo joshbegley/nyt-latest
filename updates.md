@@ -1,3 +1,7 @@
+**He Was a National Hero in Britain. His Daughter Profited From His Name.**\
+`The family of Captain Tom Moore, who raised $50 million for Britain’s health service during the pandemic, has been criticized for ‘serious and repeated’ misconduct by an official inquiry.`\
+https://nytimes.com/2024/11/21/world/europe/captain-tom-daughter-charity-misconduct.html
+
 **Matt Gaetz Withdraws From Consideration as Attorney General**\
 `The former Florida congressman said in a statement that his confirmation “was unfairly becoming a distraction to the critical work of the Trump/Vance Transition.”`\
 https://nytimes.com/2024/11/21/us/politics/matt-gaetz-withdraws-attorney-general.html
