@@ -1,3 +1,7 @@
+**6 Airports in Northern Haiti Are Reopened to U.S. Flights**\
+`The Federal Aviation Administration said on Thursday it was allowing air traffic to resume at half a dozen airports in Haiti, but the country’s main flight hub in the capital would remain off limits.`\
+https://nytimes.com/2024/11/21/world/americas/haiti-airports-six-reopened-faa.html
+
 **Trump’s Education Secretary Pick Named in Sexual Abuse Lawsuit**\
 `Linda McMahon, who ran World Wrestling Entertainment for decades, was accused in the lawsuit of not preventing one of the organization’s employees from victimizing children who helped set up wrestling rings.`\
 https://nytimes.com/2024/11/21/us/linda-mcmahon-sexual-abuse-lawsuit-trump-education-secretary.html

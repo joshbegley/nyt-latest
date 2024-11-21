@@ -1,3 +1,7 @@
+**6 Airports in Northern Haiti Are Reopened to U.S. Flights**\
+`The Federal Aviation Administration said on Thursday it was allowing air traffic to resume at half a dozen airports in Haiti, but the country’s main flight hub in the capital would remain off limits.`\
+https://nytimes.com/2024/11/21/world/americas/haiti-airports-six-reopened-faa.html
+
 **Trump’s Education Secretary Pick Named in Sexual Abuse Lawsuit**\
 `Linda McMahon, who ran World Wrestling Entertainment for decades, was accused in the lawsuit of not preventing one of the organization’s employees from victimizing children who helped set up wrestling rings.`\
 https://nytimes.com/2024/11/21/us/linda-mcmahon-sexual-abuse-lawsuit-trump-education-secretary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/us/politics/georgia-governor-race-2026.html
 **Gaetz Withdrew From Attorney General Consideration**\
 `Also, Putin said Russia struck Ukraine with a new missile. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/11/21/briefing/gaetz-withdraws-attorney-general-russia-ukraine-weapon.html
-
-**Forest's Anderson to be assessed before Arsenal trip**\
-`Nottingham Forest will assess Elliot Anderson on Friday before their trip to face Arsenal on Saturday.`\
-https://nytimes.com/athletic/5938391/2024/11/21/elliot-anderson-forest-foot-injury/
 
