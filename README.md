@@ -1,3 +1,7 @@
+**A Very Veggie Thanksgiving**\
+`Gorgeous mains, vibrant sides and — most important — stuffing.`\
+https://nytimes.com/2024/11/21/dining/a-very-veggie-thanksgiving.html
+
 **He Was a National Hero in Britain. His Daughter Profited From His Name.**\
 `The family of Captain Tom Moore, who raised $50 million for Britain’s health service during the pandemic, has been criticized for ‘serious and repeated’ misconduct by an official inquiry.`\
 https://nytimes.com/2024/11/21/world/europe/captain-tom-daughter-charity-misconduct.html
@@ -12,7 +16,7 @@ https://nytimes.com/2024/11/21/opinion/matt-gaetz-house-ethics-report.html
 
 **Matt Gaetz Withdraws From Consideration as Attorney General**\
 `The former Florida congressman said in a statement that his confirmation “was unfairly becoming a distraction to the critical work of the Trump/Vance Transition.”`\
-https://nytimes.com/2024/11/21/us/politics/matt-gaetz-withdraws-attorney-general.html
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/matt-gaetz-withdraws-attorney-general
 
 **Jay Leno Says He Was Injured in a Fall**\
 `He told Inside Edition that he fell down a hill after taking an ill-advised shortcut, leaving him with a broken wrist and a black eye.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/arts/music/morgan-wallen-cma-awards-winners.html
 **Maple Leafs 20-game progress reports: Who's thriving?**\
 `Twenty games in, the Leafs' record sits at 12-6-2. How's everyone doing? Let's evaluate the roster from top to bottom.`\
 https://nytimes.com/athletic/5936091/2024/11/21/maple-leafs-progress-report-player-analysis/
-
-**Behind the Drop in Overdose Deaths: Changes in Street Drugs**\
-`Experts are puzzling over which interventions are saving lives. The evolving illicit supply itself may hold important clues.`\
-https://nytimes.com/2024/11/21/health/overdose-deaths-decline-drug-supply.html
 
