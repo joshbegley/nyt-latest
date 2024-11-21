@@ -1,3 +1,7 @@
+**The Nikita Grebenkin experience is underway for the Maple Leafs**\
+`With injuries ravaging the Leafs, the 2020 fifth-round pick made his NHL debut in Wednesday's 3-0 win over the Golden Knights.`\
+https://nytimes.com/athletic/5937200/2024/11/21/maple-leafs-nikita-grebenkin-nhl/
+
 **Should Gay Couples Worry About Their Benefits Under Trump?**\
 `Readers had concerns about whether same-sex married couples and their protections would face new risks during a second Trump term.`\
 https://nytimes.com/2024/11/21/business/trump-same-sex-marriage-gay-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5937507/2024/11/21/college-football-playoff-expansi
 **New York City FC's new stadium to be called Etihad Park**\
 `New York City FC’s new stadium will be called Etihad Park.`\
 https://nytimes.com/athletic/5937685/2024/11/21/etihad-park-nycfc-stadium-name/
-
-**ESPN's 'Around the Horn' ending in 2025: Sources**\
-`ESPN is exploring other shows for the slot but doesn't have an exact plan yet, a source said.`\
-https://nytimes.com/athletic/5937412/2024/11/21/espns-around-the-horn-ending-in-2025-after-23-year-run-sources/
 
