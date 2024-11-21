@@ -1,3 +1,7 @@
+**What's next for the Warriors at shooting guard after De'Anthony Melton's injury?**\
+`Lindy Waters III could be a temporary replacement for Melton, or Brandin Podziemski might get the nod to jump-start his sophomore season. `\
+https://nytimes.com/athletic/5936919/2024/11/21/whats-next-warriors-deanthony-melton-injury/
+
 **Chelsea's squad rotation is proving effective - and Macario's return only adds to their depth**\
 `Sonia Bompastor has made large-scale changes for every Champions League match. It is likely to serve Chelsea well as the season continues`\
 https://nytimes.com/athletic/5936481/2024/11/21/chelsea-champions-league-celtic-rotation-macario/
