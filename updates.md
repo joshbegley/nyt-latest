@@ -1,3 +1,15 @@
+**Colorado lands 5-star QB Julian Lewis: What this means for Deion Sanders**\
+`Lewis, the No. 35 overall prospect in the Class of 2025 in the 247Sports Composite, had previously been committed to USC.`\
+https://nytimes.com/athletic/5915821/2024/11/21/colorado-recruiting-deion-sanders-julian-lewis-qb/
+
+**Palestinians welcome the I.C.C. warrants against Netanyahu and Gallant.**\
+`By Raja Abdulrahim and Bilal Shbair`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/palestinians-welcome-the-icc-warrants-against-netanyahu-and-gallant
+
+**Netanyahu, Wanted by a Landmark Warrant, Now Faces a Smaller World**\
+`Prime Minister Benjamin Netanyahu has allies among the members of the International Criminal Court. But he will have to plan his travel more carefully than before.`\
+https://nytimes.com/2024/11/21/world/middleeast/netanyahu-arrest-warrant.html
+
 **After meeting with Hegseth, Republican senators rally behind Trump’s defense secretary pick.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/hegseth-republicans-senate
