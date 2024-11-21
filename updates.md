@@ -1,3 +1,19 @@
+**After meeting with Hegseth, Republican senators rally behind Trump’s defense secretary pick.**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/hegseth-republicans-senate
+
+**Spain Looks to Grant Residency to Nearly 1 Million Undocumented Migrants**\
+`The government said a new rules could give legal status — and work permits — to about 300,000 people a year over the next three years to address gaps in the labor market.`\
+https://nytimes.com/2024/11/21/world/europe/spain-migrants-residency-work-permits.html
+
+**What the Powerful Storm on the West Coast Will Do Next**\
+`Another day of extreme rain will fall across the region on Thursday as forecasters warn of dangerous flooding.`\
+https://nytimes.com/2024/11/21/weather/atmospheric-river-california-forecast-updates.html
+
+**‘Interior Chinatown’ Review: Off the Shelf**\
+`Charles Yu adapts his award-winning novel into a series that is both starkly different from the original and frustratingly familiar.`\
+https://nytimes.com/2024/11/21/arts/television/interior-chinatown-review.html
+
 **How Josh Metellus became the key to Brian Flores' innovative Vikings defense**\
 `The versatile 26-year-old is listed as a safety, but he has also lined up at linebacker, slot corner and even on the defensive line. `\
 https://nytimes.com/athletic/5936476/2024/11/21/josh-metellus-vikings-defense-brian-flores/
