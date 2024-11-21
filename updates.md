@@ -1,3 +1,7 @@
+**Colorado 2-way star Travis Hunter plans to enter next year's NFL Draft**\
+`The 6-foot-1, 185-pound junior WR and cornerback for the Buffaloes also said he intends to play on both sides of the ball at the next level.`\
+https://nytimes.com/athletic/5938396/2024/11/21/travis-hunter-nfl-draft-comments/
+
 **From Chimpan-A to Chimpanzee, These Apes May Have Humanlike Culture**\
 `Researchers describe a link between genetic relatedness and sophisticated tool use in primates in East and Central Africa, suggesting their culture is cumulative.`\
 https://nytimes.com/2024/11/21/science/chimpanzees-culture-dna-tools.html
