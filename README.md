@@ -1,3 +1,7 @@
+**The Warrant for Netanyahu’s Arrest Also Implicates the United States**\
+`We should not operate as if there is some hierarchy in the value of children’s lives.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/icc-netanyahu-warrant
+
 **Dinner and a Show and a Little Hustle Near the Theater District**\
 `Yes, you can play it safe for a meal around the corner from your theater. But a few extra blocks will serve you well.`\
 https://nytimes.com/2024/11/21/dining/dinner-and-a-show-and-a-little-hustle-near-the-theater-district.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938669/2024/11/21/mlb-robot-umpires-testing-spring
 **Officer’s Fatal Shooting of 911 Caller in Las Vegas Prompts Push for His Arrest**\
 `Body camera footage shows an officer fatally shooting a Black man who was struggling with a woman over a knife. The man had called the police for help.`\
 https://nytimes.com/2024/11/21/us/las-vegas-police-shooting-911-brandon-durham.html
-
-**Packers' Jaire Alexander says he tore his PCL, unsure of return timetable**\
-`Alexander suffered the initial knee injury against the Jaguars in Week 8 and reaggravated it last Sunday against the Bears.`\
-https://nytimes.com/athletic/5938752/2024/11/21/packers-jaire-alexander-pcl-injury/
 
