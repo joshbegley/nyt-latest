@@ -1,3 +1,7 @@
+**Begich Defeats Peltola in Alaska, Flipping House Seat for Republicans**\
+`The G.O.P. united behind Nick Begich III, the conservative son of a prominent liberal Alaska political family, to beat Representative Mary Peltola, a Democrat.`\
+https://nytimes.com/2024/11/20/us/elections/alaska-house-begich-peltola.html
+
 **Corrections: Nov. 21, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 21, 2024.`\
 https://nytimes.com/2024/11/20/pageoneplus/corrections-nov-21-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/20/us/politics/trump-press-act-freedom-reporters.htm
 **Urologist Who Sexually Abused Patients Is Sentenced to Life in Prison**\
 `Darius A. Paduch, a fertility specialist, assaulted men and boys for years at prominent New York hospitals, prosecutors said.`\
 https://nytimes.com/2024/11/20/nyregion/urologist-sexual-abuse-ny-hospitals.html
-
-**Who’s Laughing Now? Banana-as-Art Sells for $6.2 Million at Sotheby’s**\
-`A conceptual artwork by Maurizio Cattelan, “Comedian,” is just a fruit-stand banana taped on the wall. But 7 bidders were biting. It went to a crypto entrepreneur.`\
-https://nytimes.com/2024/11/20/arts/design/cattelan-banana-sothebys-auction.html
 

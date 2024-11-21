@@ -1,3 +1,7 @@
+**Begich Defeats Peltola in Alaska, Flipping House Seat for Republicans**\
+`The G.O.P. united behind Nick Begich III, the conservative son of a prominent liberal Alaska political family, to beat Representative Mary Peltola, a Democrat.`\
+https://nytimes.com/2024/11/20/us/elections/alaska-house-begich-peltola.html
+
 **Corrections: Nov. 21, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 21, 2024.`\
 https://nytimes.com/2024/11/20/pageoneplus/corrections-nov-21-2024.html
