@@ -1,3 +1,7 @@
+**Hanging Out in the Cold**\
+`Katie Hoody’s theme just goes on and on. …`\
+https://nytimes.com/2024/11/20/crosswords/daily-puzzle-2024-11-21.html
+
 **Begich Defeats Peltola in Alaska, Flipping House Seat for Republicans**\
 `The G.O.P. united behind Nick Begich III, the conservative son of a prominent liberal Alaska political family, to beat Representative Mary Peltola, a Democrat.`\
 https://nytimes.com/2024/11/20/us/elections/alaska-house-begich-peltola.html

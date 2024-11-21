@@ -1,3 +1,7 @@
+**Hanging Out in the Cold**\
+`Katie Hoody’s theme just goes on and on. …`\
+https://nytimes.com/2024/11/20/crosswords/daily-puzzle-2024-11-21.html
+
 **Begich Defeats Peltola in Alaska, Flipping House Seat for Republicans**\
 `The G.O.P. united behind Nick Begich III, the conservative son of a prominent liberal Alaska political family, to beat Representative Mary Peltola, a Democrat.`\
 https://nytimes.com/2024/11/20/us/elections/alaska-house-begich-peltola.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/20/nyregion/connecticut-earthquake.html
 **Trump Tells Republicans to ‘Kill’ Reporter Shield Bill Passed Unanimously by House**\
 `The bill, known as the PRESS Act, would codify protections against federal investigators seizing reporters’ records. It is now less likely the legislation would clear the Senate before the current session ends.`\
 https://nytimes.com/2024/11/20/us/politics/trump-press-act-freedom-reporters.html
-
-**Urologist Who Sexually Abused Patients Is Sentenced to Life in Prison**\
-`Darius A. Paduch, a fertility specialist, assaulted men and boys for years at prominent New York hospitals, prosecutors said.`\
-https://nytimes.com/2024/11/20/nyregion/urologist-sexual-abuse-ny-hospitals.html
 
