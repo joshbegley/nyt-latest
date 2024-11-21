@@ -1,3 +1,11 @@
+**Until Saturday: Week 13's viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 13's viewer guide.`\
+https://nytimes.com/athletic/5936811/2024/11/21/week-13-big-ten-big-12-until-saturday/
+
+**Pulisic's Trump dance celebration 'stupid', says Howard**\
+`Former U.`\
+https://nytimes.com/athletic/5938351/2024/11/21/pulisic-trump-dance-tim-howard/
+
 **The 2026 Georgia Governor’s Race Kicks Off With a First Hat in the Ring**\
 `The state’s attorney general, Chris Carr, a Republican, is the first person in either major party to declare his candidacy for statewide office in Georgia.`\
 https://nytimes.com/2024/11/21/us/politics/georgia-governor-race-2026.html

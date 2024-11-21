@@ -1,3 +1,11 @@
+**Until Saturday: Week 13's viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 13's viewer guide.`\
+https://nytimes.com/athletic/5936811/2024/11/21/week-13-big-ten-big-12-until-saturday/
+
+**Pulisic's Trump dance celebration 'stupid', says Howard**\
+`Former U.`\
+https://nytimes.com/athletic/5938351/2024/11/21/pulisic-trump-dance-tim-howard/
+
 **The 2026 Georgia Governor’s Race Kicks Off With a First Hat in the Ring**\
 `The state’s attorney general, Chris Carr, a Republican, is the first person in either major party to declare his candidacy for statewide office in Georgia.`\
 https://nytimes.com/2024/11/21/us/politics/georgia-governor-race-2026.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/dining/dinner-and-a-show-and-a-little-hustle-near
 **Heat Today: 3 keys to Miami's recently improved defense**\
 `How has Miami's defense improved in recent games? Let's take a look at some film.`\
 https://nytimes.com/athletic/5937692/2024/11/21/heat-defense-video-bam-adebayo/
-
-**‘Midnight Family’ Is a Fresh and Energetic Medical Drama**\
-`Set among a family of private ambulance drivers in Mexico City, the Apple TV+ series is a thoughtful and cinematic adaptation of a 2019 documentary.`\
-https://nytimes.com/2024/11/21/arts/television/midnight-family-apple-tv-plus.html
-
-**Alvin Ailey Dance Chooses Alicia Graf Mack to Be Next Leader**\
-`Mack, director of the dance division at Juilliard, will be the popular company’s fourth artistic director.`\
-https://nytimes.com/2024/11/21/arts/dance/alvin-ailey-american-dance-theater-alicia-graf-mack.html
 
