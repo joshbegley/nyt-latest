@@ -1,3 +1,7 @@
+**New York City Will Get Some Rain, but Not Enough to Ease Its Drought**\
+`About two inches were forecast to fall through Saturday. Officials say it won’t be enough to fully replenish the city’s reservoirs.`\
+https://nytimes.com/2024/11/20/nyregion/nyc-rain-forecast-drought.html
+
 **Maple Leafs report cards: Gritty effort earns shutout win over Golden Knights**\
 `With a 3-0 victory over Vegas, the Maple Leafs picked up their sixth win in seven games without their captain this season.`\
 https://nytimes.com/athletic/5936790/2024/11/20/maple-leafs-golden-knights-woll-minten/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/20/world/canada/randy-boissonnault-employment-minist
 **Warriors' Melton to undergo season-ending left knee surgery**\
 `The 26-year-old guard signed a one-year deal with the Warriors last summer. His season ends after just six games in a Golden State jersey.`\
 https://nytimes.com/athletic/5936594/2024/11/20/deanthony-melton-injury-acl-warriors/
-
-**Democrats Split as Senate Rejects Bills to Block Weapons Transfers to Israel**\
-`The legislation failed resoundingly but highlighted the Democratic divide over whether the United States should withhold some weapons to register its disapproval of Israel’s war tactics.`\
-https://nytimes.com/2024/11/20/us/senate-israel-weapons.html
 

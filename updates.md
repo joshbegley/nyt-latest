@@ -1,3 +1,7 @@
+**New York City Will Get Some Rain, but Not Enough to Ease Its Drought**\
+`About two inches were forecast to fall through Saturday. Officials say it won’t be enough to fully replenish the city’s reservoirs.`\
+https://nytimes.com/2024/11/20/nyregion/nyc-rain-forecast-drought.html
+
 **Maple Leafs report cards: Gritty effort earns shutout win over Golden Knights**\
 `With a 3-0 victory over Vegas, the Maple Leafs picked up their sixth win in seven games without their captain this season.`\
 https://nytimes.com/athletic/5936790/2024/11/20/maple-leafs-golden-knights-woll-minten/
