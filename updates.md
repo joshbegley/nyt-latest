@@ -1,3 +1,15 @@
+**Gaetz Ethics Report Blocked, and the Trial That’s Horrified France**\
+`Plus, a $6.2 million piece of fruit.`\
+https://nytimes.com/2024/11/21/podcasts/gaetz-ethics-report-blocked-and-the-trial-thats-horrified-france.html
+
+**The Connections Companion No. 530**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 30, 2024.`\
+https://nytimes.com/2024/11/21/crosswords/connections-companion-530.html
+
+**Wordle Review No. 1,252**\
+`Scroll down for hints and conversation about the puzzle for Nov. 22, 2024.`\
+https://nytimes.com/2024/11/21/crosswords/wordle-review-1252.html
+
 **'You’re going to go through storms': How Tyler Bass is getting ready for his next big kick**\
 `Tyler Bass is grateful for the encouragement he's gotten from the team and fans.`\
 https://nytimes.com/athletic/5934937/2024/11/21/tyler-bass-bills-kicker/

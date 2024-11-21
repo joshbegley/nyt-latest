@@ -1,6 +1,6 @@
 **Gaetz Ethics Report Blocked, and the Trial That’s Horrified France**\
 `Plus, a $6.2 million piece of fruit.`\
-https://nytimes.com/2024/11/21/podcasts/gaetz-ethics-report-blocked-and-the-trial-thats-horrified-france.html
+https://nytimes.com/2024/11/21/podcasts/gaetz-ethics-france-trial.html
 
 **The Connections Companion No. 530**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 30, 2024.`\

@@ -1,3 +1,15 @@
+**Gaetz Ethics Report Blocked, and the Trial That’s Horrified France**\
+`Plus, a $6.2 million piece of fruit.`\
+https://nytimes.com/2024/11/21/podcasts/gaetz-ethics-report-blocked-and-the-trial-thats-horrified-france.html
+
+**The Connections Companion No. 530**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 30, 2024.`\
+https://nytimes.com/2024/11/21/crosswords/connections-companion-530.html
+
+**Wordle Review No. 1,252**\
+`Scroll down for hints and conversation about the puzzle for Nov. 22, 2024.`\
+https://nytimes.com/2024/11/21/crosswords/wordle-review-1252.html
+
 **'You’re going to go through storms': How Tyler Bass is getting ready for his next big kick**\
 `Tyler Bass is grateful for the encouragement he's gotten from the team and fans.`\
 https://nytimes.com/athletic/5934937/2024/11/21/tyler-bass-bills-kicker/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5935784/2024/11/21/drake-maye-patriots-qb-stats/
 **Baggarly: It's time for the BBWAA to add a Reliever of the Year Award**\
 `No reliever has won the Cy Young Award since Eric Gagne in 2003. It's time to give them a chance at a prestigious award.`\
 https://nytimes.com/athletic/5936757/2024/11/21/opinion-bbwaa-reliever-of-the-year-award/
-
-**'He's a basketball genius': Nikola Jokić debuts at No. 28 on The Athletic's 'The Basketball 100'**\
-`Most of history’s great players have come to us with significant early hype. A few greats, such as Jokić, have taken a more circuitous path.`\
-https://nytimes.com/athletic/5935592/2024/11/21/nikola-jokic-the-basketball-100-book-excerpt/
-
-**Rookie Stephon Castle is impressing the Spurs and LeBron James: 'He's going to be special'**\
-`Since becoming a starter, Castle's offensive efficiency has improved.`\
-https://nytimes.com/athletic/5935357/2024/11/21/stephon-castle-impressing-spurs-lebron-james/
-
-**Six reasons why this Cowboys season is a disaster**\
-`After years of success, the Cowboys are 3-7 and among the league's worst teams in 2024.`\
-https://nytimes.com/athletic/5936496/2024/11/21/dallas-cowboys-ceedee-lamb-injuries-season/
 
