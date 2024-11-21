@@ -1,3 +1,11 @@
+**She Went for a Walk on the Beach and Found a Rare ‘Doomsday Fish’**\
+`In Japanese mythology, the deep-sea-dwelling oarfish is a harbinger of impending disaster. For scientists in California, where three oarfish have washed up in recent months, it’s an exciting find.`\
+https://nytimes.com/2024/11/21/us/doomsday-fish-california-oarfish.html
+
+**Newsom Heads to California Counties That Voted for Trump**\
+`Gov. Gavin Newsom acknowledged that residents were frustrated by economic problems and said that Democrats needed to address their concerns.`\
+https://nytimes.com/2024/11/21/us/newsom-california-counties-trump.html
+
 **John Prescott, Ex-Deputy Prime Minister of Britain, Dies at 86**\
 `Mr. Prescott was a waiter on cruise ships before rising through the trade union movement and entering politics. He became one of the country’s best-known politicians under Tony Blair.`\
 https://nytimes.com/2024/11/21/world/europe/john-prescott-uk-dead.html
