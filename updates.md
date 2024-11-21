@@ -1,3 +1,7 @@
+**In New York, Reporting on Four Fires in Four Days**\
+`Anything is on the table for a general assignment reporter in New York. Still, a series of brush fires in the city and a big blaze upstate were far from expected.`\
+https://nytimes.com/2024/11/20/insider/new-york-city-fires.html
+
 **Police Report Offers Graphic Details of Sexual Assault Claim Against Hegseth**\
 `President-elect Donald J. Trump’s choice for defense secretary was never charged with a crime and vehemently denied to the police that a sexual encounter was coerced.`\
 https://nytimes.com/2024/11/20/us/politics/police-report-sexual-assault-claim-hegseth.html
