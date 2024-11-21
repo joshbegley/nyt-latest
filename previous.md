@@ -1,3 +1,11 @@
+**New York City FC's new stadium to be called Etihad Park**\
+`New York City FC’s new stadium will be called Etihad Park.`\
+https://nytimes.com/athletic/5937685/2024/11/21/etihad-park-nycfc-stadium-name/
+
+**ESPN's 'Around the Horn' ending in 2025: Sources**\
+`ESPN is exploring other shows for the slot but doesn't have an exact plan yet, a source said.`\
+https://nytimes.com/athletic/5937412/2024/11/21/espns-around-the-horn-ending-in-2025-after-23-year-run-sources/
+
 **NFL Week 12 fantasy football, betting cheat sheet: Mike Evans, Isiah Pacheco near returns**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5932278/2024/11/21/nfl-week-12-fantasy-football-betting-cheat-sheet/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/us/doomsday-fish-california-oarfish.html
 **Newsom Heads to California Counties That Voted for Trump**\
 `Gov. Gavin Newsom acknowledged that residents were frustrated by economic problems and said that Democrats needed to address their concerns.`\
 https://nytimes.com/2024/11/21/us/newsom-california-counties-trump.html
-
-**John Prescott, Ex-Deputy Prime Minister of Britain, Dies at 86**\
-`Mr. Prescott was a waiter on cruise ships before rising through the trade union movement and entering politics. He became one of the country’s best-known politicians under Tony Blair.`\
-https://nytimes.com/2024/11/21/world/europe/john-prescott-uk-dead.html
-
-**Let’s Discuss: ‘Our Rodent Selfies, Ourselves’**\
-`What can two rats teach us about our addiction to social media? Read the article and post your comments and questions for Emily Anthes by Dec. 5.`\
-https://nytimes.com/2024/11/21/learning/lesson-plans/lets-discuss-our-rodent-selfies-ourselves.html
 

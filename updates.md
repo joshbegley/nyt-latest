@@ -1,3 +1,11 @@
+**New York City FC's new stadium to be called Etihad Park**\
+`New York City FC’s new stadium will be called Etihad Park.`\
+https://nytimes.com/athletic/5937685/2024/11/21/etihad-park-nycfc-stadium-name/
+
+**ESPN's 'Around the Horn' ending in 2025: Sources**\
+`ESPN is exploring other shows for the slot but doesn't have an exact plan yet, a source said.`\
+https://nytimes.com/athletic/5937412/2024/11/21/espns-around-the-horn-ending-in-2025-after-23-year-run-sources/
+
 **NFL Week 12 fantasy football, betting cheat sheet: Mike Evans, Isiah Pacheco near returns**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5932278/2024/11/21/nfl-week-12-fantasy-football-betting-cheat-sheet/
