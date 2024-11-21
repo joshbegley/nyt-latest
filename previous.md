@@ -1,3 +1,15 @@
+**Put Cranberries in Your Shrimp Cocktail**\
+`This Thanksgiving, Genevieve Ko wants you to think beyond those canned rounds and adds the fruit to a dipping sauce — and also a creamy ricotta cheesecake.`\
+https://nytimes.com/2024/11/21/dining/thanksgiving-cranberries-shrimp-cocktail.html
+
+**Some Republicans welcomed Gaetz’s withdrawal: ‘Probably a good decision.’**\
+`By Tim Balk and Maya C. Miller`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/some-republicans-welcomed-gaetzs-withdrawal-probably-a-good-decision
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/11/21/books/review/new-books-recommendations.html
+
 **Kirby Smart vs. the CFP committee and the stats that matter**\
 `Let’s update each SEC team's yards-per-play differential and explosive-play differential and go deeper on schedule strength.`\
 https://nytimes.com/athletic/5938257/2024/11/21/college-football-playoff-committee-kirby-smart/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000009838923/russia-launches-new-inter
 **Israel Indicts Netanyahu Aide Over Leaked Document on Hamas**\
 `One of Prime Minister Benjamin Netanyahu’s advisers is accused of leaking a top-secret document to a German tabloid in an attempt to influence public sentiment on hostage negotiations.`\
 https://nytimes.com/2024/11/21/world/middleeast/israel-netanyahu-aide-leak-indictment.html
-
-**Transfers, title, charges - what Guardiola's decision to stay means for Man City**\
-`The manager's decision to sign a new contract is a huge boost for the club and may strengthen their hand in the January transfer window`\
-https://nytimes.com/athletic/5937112/2024/11/21/pep-guardiola-manchester-city-contract-what-it-means/
-
-**Steven J. Rosen, Hard-Charging Advocate for Israel, Dies at 82**\
-`He was a prominent behind-the-scenes figure in Washington whose  career was derailed when he was charged with leaking government secrets. The case was later dropped.`\
-https://nytimes.com/2024/11/21/us/politics/steven-j-rosen-dead.html
-
-**Landslides Are a Growing Climate Threat. What Do We Know About Them?**\
-`Deadly landslides are becoming more common and large amounts of rain are a known trigger. An atmospheric river is dumping rain out West. What you should know about your risk.`\
-https://nytimes.com/2024/11/21/climate/landslides-rain-climate-explainer.html
 

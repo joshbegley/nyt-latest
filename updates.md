@@ -1,3 +1,15 @@
+**Put Cranberries in Your Shrimp Cocktail**\
+`This Thanksgiving, Genevieve Ko wants you to think beyond those canned rounds and adds the fruit to a dipping sauce — and also a creamy ricotta cheesecake.`\
+https://nytimes.com/2024/11/21/dining/thanksgiving-cranberries-shrimp-cocktail.html
+
+**Some Republicans welcomed Gaetz’s withdrawal: ‘Probably a good decision.’**\
+`By Tim Balk and Maya C. Miller`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/some-republicans-welcomed-gaetzs-withdrawal-probably-a-good-decision
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/11/21/books/review/new-books-recommendations.html
+
 **Kirby Smart vs. the CFP committee and the stats that matter**\
 `Let’s update each SEC team's yards-per-play differential and explosive-play differential and go deeper on schedule strength.`\
 https://nytimes.com/athletic/5938257/2024/11/21/college-football-playoff-committee-kirby-smart/
