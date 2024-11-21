@@ -1,3 +1,7 @@
+**In ‘Music City’ and ‘Babe,’ Existential Battles of the Heart and Soul**\
+`Bedlam’s country music show is a rollicking good time. But the New Group’s production of “Babe,” starring Marisa Tomei, is a frustrating one-act lacking cohesion.`\
+https://nytimes.com/2024/11/21/theater/music-city-babe-review-tomei.html
+
 **Gaetz’s Withdrawal Means the Senate Passed Its First Test**\
 `Trump failed to push Republicans past their red line.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/matt-gaetz-withdraw-attorney-general
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/business/trump-media-crypto-payment-service.html
 **‘Gladiator II’ Review: Thumb’s Up!**\
 `Denzel Washington’s performance shows skill, intensity and absolute confidence in Ridley Scott’s pleasurably immersive epic about ancient Roman fighters.`\
 https://nytimes.com/2024/11/21/movies/gladiator-ii-review.html
-
-**Dallas Long, Record-Setting Shot-Putter, Dies at 84**\
-`In an era when America dominated the event, he was one of the best. He retired after winning gold at the 1964 Tokyo Summer Olympics, and then`\
-https://nytimes.com/2024/11/21/sports/dallas-long-dead.html
 
