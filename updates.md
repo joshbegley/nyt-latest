@@ -1,3 +1,7 @@
+**After an unusually difficult start, is this the moment Arsenal's season really begins?**\
+`Considering the points they have already dropped, Arsenal now have an opportunity to kickstart their campaign in this next block of games`\
+https://nytimes.com/athletic/5931594/2024/11/21/arsenal-difficult-start-season-begins/
+
 **How close are Chelsea to playing Marescaball?**\
 `Despite the inevitable disclaimer that this season is still young, Chelsea’s play has already evolved since Mauricio Pochettino’s tenure`\
 https://nytimes.com/athletic/5934556/2024/11/21/chelsea-enzo-maresca-analysis/
