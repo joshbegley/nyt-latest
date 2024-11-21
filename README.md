@@ -1,3 +1,7 @@
+**Peter Sinfield, Lyricist for King Crimson, Dies at 80**\
+`His swirls of poetic imagery helped define progressive rock in the 1970s. He later turned his focus to pop acts like Celine Dion.`\
+https://nytimes.com/2024/11/21/arts/music/peter-sinfield-dead.html
+
 **Trump Picks Pam Bondi, Florida’s Former Top Prosecutor, to Be Attorney General After Gaetz Withdrawal**\
 `Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
 https://nytimes.com/2024/11/21/us/politics/pam-bondi-attorney-general-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5939109/2024/11/21/bryce-underwood-michigan-lsu-rec
 **Yankees' Aaron Judge wins 2nd American League MVP award**\
 `Judge, who led the major leagues in multiple hitting categories, became the seventh player in Yankees history to win multiple MVPs.`\
 https://nytimes.com/athletic/5936746/2024/11/21/yankees-aaron-judge-2nd-al-mvp-award/
-
-**N.Y.C. Housing Plan Moves Forward With an Unexpected $5 Billion Boost**\
-`A City Council committee passed a major proposal that would ease restrictions on housing growth in New York. The full Council is likely to approve it next month.`\
-https://nytimes.com/2024/11/21/nyregion/housing-city-yes-nyc.html
 
