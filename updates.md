@@ -1,3 +1,7 @@
+**A Rite of Passage for Congressional Newcomers: Picking an Office**\
+`Since 1906, new members of Congress have drawn lots to choose their new homes on Capitol Hill. Staff and lawmakers often scout and strategize far in advance to find the best spaces.`\
+https://nytimes.com/2024/11/21/us/politics/capitol-congress-office-draw.html
+
 **Russia Launches New Intermediate-Range Missile at Ukraine**\
 `President Vladimir Putin said the attack was in response to Ukraine’s recent use of American and British weapons to strike deeper into Russia.`\
 https://nytimes.com/video/world/europe/100000009838923/russia-launches-new-intermediate-range-missile-at-ukraine.html
