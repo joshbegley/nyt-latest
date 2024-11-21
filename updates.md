@@ -1,3 +1,7 @@
+**Senator Bob Casey Concedes to Dave McCormick in Pennsylvania**\
+`Mr. Casey, a three-term Democrat, bowed out of his race against David McCormick, a Republican who led narrowly amid a recount of votes in one of the nation’s top Senate races.`\
+https://nytimes.com/2024/11/21/us/politics/bob-casey-david-mccormick-pennsylvania-senate.html
+
 **Until Saturday: Week 13's viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Week 13's viewer guide.`\
 https://nytimes.com/athletic/5936811/2024/11/21/week-13-big-ten-big-12-until-saturday/
