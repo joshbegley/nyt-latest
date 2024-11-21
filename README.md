@@ -1,3 +1,7 @@
+**How Josh Metellus became the key to Brian Flores' innovative Vikings defense**\
+`The versatile 26-year-old is listed as a safety, but he has also lined up at linebacker, slot corner and even on the defensive line. `\
+https://nytimes.com/athletic/5936476/2024/11/21/josh-metellus-vikings-defense-brian-flores/
+
 **Can the Senate Survive Donald Trump?**\
 `The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
 https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/technology/bluesky-social-media.html
 **Israel Resumes Strikes South of Beirut**\
 `Israel bombarded the Dahiya, a Hezbollah-controlled area south of Lebanon’s capital, with a wave of airstrikes on Thursday.`\
 https://nytimes.com/video/world/middleeast/100000009838135/lebanon-israeli-strikes.html
-
-**Hubie Brown to call final NBA game of career for ESPN this season**\
-`“We are going to give Hubie one last shot on a game,” said ESPN President Burke Magnus. "He deserves that. We think the world of him."`\
-https://nytimes.com/athletic/5937884/2024/11/21/hubie-brown-espn-nba-final-year/
 
