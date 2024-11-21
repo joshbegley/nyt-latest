@@ -8,7 +8,7 @@ https://nytimes.com/2024/11/21/opinion/matt-gaetz-house-ethics-report.html
 
 **Matt Gaetz withdraws from consideration as attorney general.**\
 `By Noah Weiland`\
-https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/matt-gaetz-withdraws-attorney-general
+https://nytimes.com/2024/11/21/us/politics/matt-gaetz-withdraws-attorney-general.html
 
 **Jay Leno Says He Was Injured in a Fall**\
 `He told Inside Edition that he fell down a hill after taking an ill-advised shortcut, leaving him with a broken wrist and a black eye.`\
