@@ -1,3 +1,19 @@
+**After meeting with Hegseth, Republican senators rally behind Trump’s defense secretary pick.**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/hegseth-republicans-senate
+
+**Spain Looks to Grant Residency to Nearly 1 Million Undocumented Migrants**\
+`The government said a new rules could give legal status — and work permits — to about 300,000 people a year over the next three years to address gaps in the labor market.`\
+https://nytimes.com/2024/11/21/world/europe/spain-migrants-residency-work-permits.html
+
+**What the Powerful Storm on the West Coast Will Do Next**\
+`Another day of extreme rain will fall across the region on Thursday as forecasters warn of dangerous flooding.`\
+https://nytimes.com/2024/11/21/weather/atmospheric-river-california-forecast-updates.html
+
+**‘Interior Chinatown’ Review: Off the Shelf**\
+`Charles Yu adapts his award-winning novel into a series that is both starkly different from the original and frustratingly familiar.`\
+https://nytimes.com/2024/11/21/arts/television/interior-chinatown-review.html
+
 **How Josh Metellus became the key to Brian Flores' innovative Vikings defense**\
 `The versatile 26-year-old is listed as a safety, but he has also lined up at linebacker, slot corner and even on the defensive line. `\
 https://nytimes.com/athletic/5936476/2024/11/21/josh-metellus-vikings-defense-brian-flores/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5933388/2024/11/21/fantasy-football-rankings-week-1
 **Want to Get Married in Central Park? This Planner Can Help.**\
 `Claire Ady started her business helping international couples navigate the process of getting married in the iconic park after planning her own wedding there.`\
 https://nytimes.com/2024/11/21/fashion/weddings/central-park-wedding-planner.html
-
-**U.S. Defense Firms Are Warned About Russia’s Sabotage Campaign**\
-`A new warning urges defense companies to increase security and to be on the lookout for surveillance and signs of trespassing.`\
-https://nytimes.com/2024/11/21/us/politics/defense-companies-russia-sabotage.html
-
-**Jussie Smollett’s Conviction for False Hate Crime Claim Is Overturned**\
-`The Illinois Supreme Court ruled that he should not have been prosecuted a second time after the charges against him had been dismissed with a negotiated agreement.`\
-https://nytimes.com/2024/11/21/arts/jussie-smollett-conviction-overturned.html
-
-**So You’re Thinking of Leaving X for Bluesky. How Does It Work?**\
-`The apps look and feel similar. Here is how to use Bluesky and what you might miss from X.`\
-https://nytimes.com/2024/11/21/technology/bluesky-social-media.html
-
-**Israel Resumes Strikes South of Beirut**\
-`Israel bombarded the Dahiya, a Hezbollah-controlled area south of Lebanon’s capital, with a wave of airstrikes on Thursday.`\
-https://nytimes.com/video/world/middleeast/100000009838135/lebanon-israeli-strikes.html
 
