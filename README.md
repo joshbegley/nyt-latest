@@ -1,40 +1,40 @@
-**Fantasy football brain games: The upside of Tommy DeVito and trust issues with Javonte Williams**\
-`Is it time to start Tommy Cutlets? And what are we to do with Javonte Williams? The answer to both: Trust the process.`\
-https://nytimes.com/athletic/5935832/2024/11/21/fantasy-football-brain-games-tommy-devito-javonte-williams/
+**Don’t Do Trump’s Work for Him on Mass Deportations**\
+`How big will the Trump administration will go, and how quickly?`\
+https://nytimes.com/2024/11/21/opinion/trump-mass-deportation-immigration.html
 
-**Jury Awards Nearly $100 Million to Family of Texas Man Killed by Police Officer**\
-`A jury in federal court concluded that a white police officer used excessive force and violated the constitutional rights of Botham Shem Jean, a Black man, in 2018.`\
-https://nytimes.com/2024/11/21/us/botham-jean-guyger-texas-police-killing-trial.html
+**Does Your Teen Recognize A.I.? Do You?**\
+`These five family conversation starters can get the discussion flowing about video content that kids encounter online.`\
+https://nytimes.com/2024/11/21/well/mind/teens-ai-influencer-videos.html
 
-**Climate Talks Teeter, With Rich and Poor Countries in a Tug of War**\
-`Western countries are confronting demands for trillions of dollars to fight climate change and to cope with its worsening effects.`\
-https://nytimes.com/2024/11/21/climate/cop20-climate-summit-negotiations.html
+**What is Debt Bondage? And How Does It Lead to Coerced Hysterectomies in India?**\
+`Our correspondent explains how an exploitative labor system has produced a system of brutality in the country’s sugar fields.`\
+https://nytimes.com/2024/11/21/world/europe/india-sugar-debt-bondage-women-forced-labor.html
 
-**North Korea Sent Troops to Russia. Russia Is Sending It Bears.**\
-`Vladimir Putin also presented a lion to Pyongyang Zoo, one of the more than 70 animals he sent as an emblem of the deepening friendship between the two nations.`\
-https://nytimes.com/2024/11/21/world/asia/putin-russia-north-korea-animals.html
+**Why Mexico Isn’t Panicking About Another Trump Presidency**\
+`Mexico is banking on its ability to negotiate with a deal maker like Donald J. Trump, and many officials say the country is better prepared and has more leverage than it did during his first term.`\
+https://nytimes.com/2024/11/21/world/americas/mexico-trump-tariffs-migration.html
 
-**Russia Gifts Zoo Animals to North Korea**\
-`An airplane full of crates carrying the animals, including two bears and a lion, landed in Pyongyang for what Russian state media described as “Vladimir Putin’s gift to the Korean people.”`\
-https://nytimes.com/video/world/asia/100000009837725/putin-russia-north-korea-animals.html
+**36 Hours in Tucson, Ariz.**\
+`Stargaze from desert observatories, try traditional Sonoran spirits and hit the local trails in Arizona’s mountain-ringed second city.`\
+https://nytimes.com/interactive/2024/11/21/travel/things-to-do-tucson-arizona.html
 
-**What's next for the Warriors at shooting guard after De'Anthony Melton's injury?**\
-`Lindy Waters III could be a temporary replacement for Melton, or Brandin Podziemski might get the nod to jump-start his sophomore season. `\
-https://nytimes.com/athletic/5936919/2024/11/21/whats-next-warriors-deanthony-melton-injury/
+**John Singer Sargent Painted Them. London Society Talked.**\
+`Jean Strouse’s brisk, wise “Family Romance” takes on the painter’s relationship to the Wertheimers, a vast Jewish clan he immortalized on canvas.`\
+https://nytimes.com/2024/11/21/books/review/family-romance-jean-strouse.html
 
-**Read the Verdict in the Civil Case Against Amber Guyger**\
-`The jury’s verdict and award of damages against Amber Guyger, who is serving a 10-year sentence for the killing of Botham Jean.`\
-https://nytimes.com/interactive/2024/11/21/us/21xp-texas-doc.html
+**Francesca D’Uva Works It All Out Onstage**\
+`With a solo show about grief and life, the comedian and composer brings her experimental musical comedy to an Off Broadway audience.`\
+https://nytimes.com/2024/11/21/style/francesca-duva-playwrights-horizons.html
 
-**Anthony Weiner’s Latest Redemption Tour Starts With a Haircut**\
-`The disgraced New York politician is considering a run for City Council. But even in an era of political comebacks, this might be pushing it.`\
-https://nytimes.com/2024/11/21/nyregion/anthony-weiner-astor-place.html
+**‘Wicked’ Review: We’re Off to See the Witches**\
+`Cynthia Erivo is the strongest draw in this splashy, overly long movie, which is the first installment in a two-part adaptation of the Broadway show.`\
+https://nytimes.com/2024/11/21/movies/wicked-review.html
 
-**Brooklyn Needs Housing. She Has a Vacant Lot. Why Can’t She Build?**\
-`A property owner’s effort to develop an apartment building in a popular neighborhood has been stymied for years. She may just give up.`\
-https://nytimes.com/2024/11/21/nyregion/housing-crunch-affordable-housing-brooklyn.html
+**‘The Piano Lesson’ Review: Ghosts in the Instrument**\
+`This film adaptation of August Wilson’s Pulitzer Prize-winning play falters in some specifics, but is still vital viewing.`\
+https://nytimes.com/2024/11/21/movies/the-piano-lesson-review.html
 
-**The Priest, the Power Broker and the Pop Star**\
-`Msgr. Jamie J. Gigantiello is in hot water with his diocese. Prosecutors are looking into his dealings with the New York City mayor’s top adviser. It all started with Sabrina Carpenter.`\
-https://nytimes.com/2024/11/21/nyregion/sabrina-carpenter-church-frank-carone.html
+**‘A Photographic Memory’ Review: The Imperfect Past**\
+`A daughter hunts for the mother she never knew in an extraordinary, elegiac documentary.`\
+https://nytimes.com/2024/11/21/movies/a-photographic-memory-review.html
 
