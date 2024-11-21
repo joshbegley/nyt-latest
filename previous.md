@@ -1,3 +1,7 @@
+**Trump Tells Republicans to ‘Kill’ Reporter Shield Bill Passed Unanimously by House**\
+`The bill, known as the PRESS Act, would codify protections against federal investigators seizing reporters’ records. It is now less likely the legislation would clear the Senate before the current session ends.`\
+https://nytimes.com/2024/11/20/us/politics/trump-press-act-freedom-reporters.html
+
 **Urologist Who Sexually Abused Patients Is Sentenced to Life in Prison**\
 `Darius A. Paduch, a fertility specialist, assaulted men and boys for years at prominent New York hospitals, prosecutors said.`\
 https://nytimes.com/2024/11/20/nyregion/urologist-sexual-abuse-ny-hospitals.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/11/20/us/politics/elon-musk-vivek-ramaswamy-doge-rto.ht
 **Ukraine Strikes Inside Russia With U.S. Missiles**\
 `The next two or three months in Ukraine are likely to be exceedingly violent, in a war that has already been the deadliest in Europe in the past 80 years. Marc Santora, who has been reporting from Ukraine since the beginning of the war with Russia, explains why.`\
 https://nytimes.com/video/world/europe/100000009833781/ukraine-atacms-russia.html
-
-**Tigers’ Tarik Skubal caps dominant season with unanimous AL Cy Young Award**\
-`Armed with a powerful fastball, a wipeout slider and a wicked changeup that became one of baseball's best pitches, Skubal dominated in 2024.`\
-https://nytimes.com/athletic/5932578/2024/11/20/tigers-tarik-skubal-al-cy-young-award/
 
