@@ -1,3 +1,15 @@
+**‘Midnight Family’ Is a Fresh and Energetic Medical Drama**\
+`Set among a family of private ambulance drivers in Mexico City, the Apple TV+ series is a thoughtful and cinematic adaptation of a 2019 documentary.`\
+https://nytimes.com/2024/11/21/arts/television/midnight-family-apple-tv-plus.html
+
+**Alvin Ailey Dance Chooses Alicia Graf Mack to Be Next Leader**\
+`Mack, director of the dance division at Juilliard, will be the popular company’s fourth artistic director.`\
+https://nytimes.com/2024/11/21/arts/dance/alvin-ailey-american-dance-theater-alicia-graf-mack.html
+
+**Spencer Lawton Jr., D.A. in ‘Midnight in the Garden’ Case, Dies at 81**\
+`He devoted much of his 28 years in office in Savannah to victims’ rights, but he was best known for his role in a 1981 murder at the center of a best seller and its movie version.`\
+https://nytimes.com/2024/11/21/books/spencer-lawton-jr-dead.html
+
 **An Immigrant Family’s Dreams, Shattered by a Random Stabbing Spree**\
 `On Sunday, Angel Lata Landi, a construction worker, called his mother in Ecuador, whom he helped support. The next day, he was one of three people stabbed to death on the street in Manhattan.`\
 https://nytimes.com/2024/11/21/nyregion/nyc-stabbing-manhattan-angel-lata-landi.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/21/us/politics/pete-buttigieg-trump-democrats.html
 **Peeling the $6.2 Million Banana: An Auction Explainer**\
 `Answers to six immediate questions you might have about the art world after a crypto entrepreneur spent millions on a 35-cent fruit.`\
 https://nytimes.com/2024/11/21/arts/design/banana-auction-explainer-cattelan.html
-
-**New N.Y.P.D. Boss Takes Over a Department With ‘Phenomenal Problems’**\
-`Jessica Tisch will oversee top officials who have behaved questionably in public and private. Her supporters say she does not put up with posturing or incompetence.`\
-https://nytimes.com/2024/11/21/nyregion/jessica-tisch-nypd-commissioner.html
-
-**Giants QB Daniel Jones addresses benching, bids farewell to fans**\
-`Daniel Jones confirmed that his $23 million injury guarantee was a contributing factor to the Giants' decision.`\
-https://nytimes.com/athletic/5938588/2024/11/21/giants-daniel-jones-addresses-benching-bids-farewell/
-
-**Theft of ‘Nutcracker’ Set Pieces and Props Can’t Stop a Michigan Production**\
-`After a trailer containing major props was stolen, members of the Plymouth-Canton Ballet Company have come together to make sure the annual show still goes on.`\
-https://nytimes.com/2024/11/21/arts/theft-nutcracker-trailer-michigan.html
 
