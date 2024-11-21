@@ -1,3 +1,11 @@
+**Jussie Smollett’s Conviction for False Hate Crime Claim Is Overturned**\
+`The Illinois Supreme Court ruled that he should not have been prosecuted a second time after the charges against him had been dismissed with a negotiated agreement.`\
+https://nytimes.com/2024/11/21/arts/jussie-smollett-conviction-overturned.html
+
+**So You’re Thinking of Leaving X for Bluesky. How Does It Work?**\
+`The apps look and feel similar. Here is how to use Bluesky and what you might miss from X.`\
+https://nytimes.com/2024/11/21/technology/bluesky-social-media.html
+
 **Israel Resumes Strikes South of Beirut**\
 `Israel bombarded the Dahiya, a Hezbollah-controlled area south of Lebanon’s capital, with a wave of airstrikes on Thursday.`\
 https://nytimes.com/video/world/middleeast/100000009838135/lebanon-israeli-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/israelis-c
 **Should Gay Couples Worry About Their Benefits Under Trump?**\
 `Readers had concerns about whether same-sex married couples and their protections would face new risks during a second Trump term.`\
 https://nytimes.com/2024/11/21/business/trump-same-sex-marriage-gay-rights.html
-
-**Sabres mailbag: Will Kevyn Adams make a significant trade? Does Trevor Zegras fit?**\
-`There are still a lot of big-picture questions with the Sabres, and we’re going to explore some of those here.`\
-https://nytimes.com/athletic/5937714/2024/11/21/sabres-trade-trevor-zegras-maiblag/
-
-**New Thanksgiving Recipes That Earned Raves From Our Testers**\
-`Including a caramelized onion tahchin that’s “wonderfully comforting and absolutely crucial.”`\
-https://nytimes.com/2024/11/21/dining/thanksgiving-recipes-testers-loved.html
 

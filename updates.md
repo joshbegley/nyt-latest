@@ -1,3 +1,11 @@
+**Jussie Smollett’s Conviction for False Hate Crime Claim Is Overturned**\
+`The Illinois Supreme Court ruled that he should not have been prosecuted a second time after the charges against him had been dismissed with a negotiated agreement.`\
+https://nytimes.com/2024/11/21/arts/jussie-smollett-conviction-overturned.html
+
+**So You’re Thinking of Leaving X for Bluesky. How Does It Work?**\
+`The apps look and feel similar. Here is how to use Bluesky and what you might miss from X.`\
+https://nytimes.com/2024/11/21/technology/bluesky-social-media.html
+
 **Israel Resumes Strikes South of Beirut**\
 `Israel bombarded the Dahiya, a Hezbollah-controlled area south of Lebanon’s capital, with a wave of airstrikes on Thursday.`\
 https://nytimes.com/video/world/middleeast/100000009838135/lebanon-israeli-strikes.html
