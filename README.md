@@ -1,3 +1,7 @@
+**Mali’s Junta Replaces Civilian Prime Minister With One of Its Own**\
+`The prime minister had been fired for criticizing the country’s junta.`\
+https://nytimes.com/2024/11/21/world/africa/mali-military-replace-prime-minister.html
+
 **Oilers' Darnell Nurse responds to head hit from Leafs' Ryan Reaves**\
 `Nurse won’t play Thursday when the Oilers host the Minnesota Wild.`\
 https://nytimes.com/athletic/5938570/2024/11/21/oilers-darnell-nurse-rangers-ryan-reaves-head-hit/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/opinion/ancient-egypt-met-museum-black-america.ht
 **What’s Going On in This Picture? | Dec. 2, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/11/21/learning/whats-going-on-in-this-picture-dec-2-2024.html
-
-**What’s Going On in This Graph? | Dec. 4, 2024**\
-`What do you notice and wonder about the severity of drought in the U.S.?`\
-https://nytimes.com/2024/11/21/learning/whats-going-on-in-this-graph-dec-4-2024.html
 
