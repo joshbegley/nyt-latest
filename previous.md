@@ -1,3 +1,7 @@
+**Can the Senate Survive Donald Trump?**\
+`The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
+https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
+
 **First Close-Up of Star Outside Our Galaxy Shows a Giant About to Blow**\
 `Astronomers zoomed in on a stellar behemoth in the Larger Magellanic Cloud, a galaxy that orbits about 160,000 light-years from the Milky Way.`\
 https://nytimes.com/2024/11/21/science/behemoth-star-closeup-picture.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009838135/lebanon-israeli-strik
 **Hubie Brown to call final NBA game of career for ESPN this season**\
 `“We are going to give Hubie one last shot on a game,” said ESPN President Burke Magnus. "He deserves that. We think the world of him."`\
 https://nytimes.com/athletic/5937884/2024/11/21/hubie-brown-espn-nba-final-year/
-
-**Inside the Lobbying Career of Trump’s New Chief of Staff**\
-`Before managing the campaign of President-elect Donald J. Trump, Susie Wiles represented a tobacco company and a mining project, among others.`\
-https://nytimes.com/2024/11/21/us/politics/susie-wiles-trump-lobbying.html
 

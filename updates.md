@@ -1,3 +1,7 @@
+**Can the Senate Survive Donald Trump?**\
+`The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
+https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
+
 **Automakers to Trump: Please Require Us to Sell Electric Vehicles**\
 `Donald J. Trump promised to erase Biden tailpipe rules that are designed to get carmakers to produce E.V.s. But Detroit wants to keep them.`\
 https://nytimes.com/2024/11/21/climate/gm-ford-electric-vehicles-trump.html
