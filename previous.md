@@ -1,3 +1,11 @@
+**Why Nina Wilson quit playing football: 'What happened to Maddy can happen again'**\
+`Former Sheffield United goalkeeper says she and other women's players are being failed by the sport - with terrible consequences`\
+https://nytimes.com/athletic/5921900/2024/11/21/nina-wilson-maddy-cusack-sheffield-united/
+
+**F1 drivers push for better FIA ties after race director's sudden exit: 'Us against them'**\
+`There was concern from the drivers not only about the change itself but also about their lack of involvement in the move.`\
+https://nytimes.com/athletic/5936869/2024/11/21/f1-george-russell-fia-drivers-union/
+
 **Chelsea's squad rotation is proving effective and Macario's return only adds to their depth**\
 `Sonia Bompastor has made large-scale changes for every Champions League match and it is likely to serve Chelsea well as the season continues`\
 https://nytimes.com/athletic/5936481/2024/11/21/chelsea-champions-league-celtic-rotation-macario/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5934556/2024/11/21/chelsea-enzo-maresca-analysis/
 **Has Steve Cooper found a formula for survival? His Leicester tweaks analysed**\
 `Their key weaknesses and how they're being addressed`\
 https://nytimes.com/athletic/5935008/2024/11/21/leicester-cooper-improvements-analysed/
-
-**Rosenthal: Blake Snell's early suitors, Dodgers' evolving plans and more MLB offseason notes**\
-`Plus the latest on the A's, Rays and Cody Bellinger's future in Chicago.`\
-https://nytimes.com/athletic/5935761/2024/11/21/blake-snell-free-agency-dodgers-mlb-offseason/
-
-**Judge John Hodgman on Proper Pringle Consumption**\
-`Saddle edges up? Or down?`\
-https://nytimes.com/2024/11/21/magazine/judge-john-hodgman-on-proper-pringle-consumption.html
 
