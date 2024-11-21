@@ -1,3 +1,11 @@
+**From Chimpan-A to Chimpanzee, These Apes May Have Humanlike Culture**\
+`Researchers describe a link between genetic relatedness and sophisticated tool use in primates in East and Central Africa, suggesting their culture is cumulative.`\
+https://nytimes.com/2024/11/21/science/chimpanzees-culture-dna-tools.html
+
+**Trump Media May Be Mulling a Crypto Payment Service**\
+`The parent company of Truth Social filed a trademark application for a crypto payment service it called TruthFi.`\
+https://nytimes.com/2024/11/21/business/trump-media-crypto-payment-service.html
+
 **‘Gladiator II’ Review: Thumb’s Up!**\
 `Denzel Washington’s performance shows skill, intensity and absolute confidence in Ridley Scott’s pleasurably immersive epic about ancient Roman fighters.`\
 https://nytimes.com/2024/11/21/movies/gladiator-ii-review.html
