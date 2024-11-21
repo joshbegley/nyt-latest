@@ -1,7 +1,3 @@
-**Wisconsin Man Who Faked Death and Left Behind Family Says in Video He’s ‘Safe’**\
-`But the man, Ryan Borgwardt, who is believed to be in Eastern Europe and has been communicating with the authorities, has not committed to returning home, officials said.`\
-https://nytimes.com/2024/11/21/us/ryan-bogwardt-sheriff-update-faked-death.html
-
 **An I.C.C. arrest warrant limits Putin’s movements. This is how he handles it.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/an-icc-arrest-warrant-limited-putins-movements-this-is-how-he-handled-it
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/21/sports/dallas-long-dead.html
 **I.C.C. Issues Arrest Warrant for Netanyahu Over War in Gaza**\
 `The International Criminal Court’s arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and his former defense minister, Yoav Gallant, were issued for war crimes and crimes against humanity in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009837972/icc-issues-arrest-warrant-for-netanyahu-over-war-in-gaza.html
+
+**Injured in the war and evacuated to Qatar, some Gazans wonder how to go on.**\
+`By Samar Abu Elouf and Eric Nagourney`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/injured-in-the-war-and-evacuated-to-qatar-some-gazans-wonder-how-to-go-on
 
