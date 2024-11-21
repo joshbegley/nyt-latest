@@ -26,7 +26,7 @@ https://nytimes.com/2024/11/21/learning/lesson-plans/lets-discuss-our-rodent-sel
 `Russia struck the city of Dnipro with a volley that Ukraine said included an intercontinental ballistic missile. Western officials said an ICBM was not used.`\
 https://nytimes.com/2024/11/21/world/europe/russia-ballistic-missile-ukraine-war.html
 
-**I.C.C. Prosecutor Sought Warrants for 3 Hamas Leaders. At Least 2 Were Killed.**\
+**I.C.C. Prosecutor Sought Warrants for 3 Hamas Leaders. At Least 2 Are Now Dead.**\
 `Karim Khan had asked the court to issue warrants for Hamas’s top leader in Gaza, Yahya Sinwar; its political leader, Ismail Haniyeh; and its military chief, Muhammad Deif.`\
 https://nytimes.com/2024/11/21/world/middleeast/hamas-leaders-icc-arrest-warrant.html
 
