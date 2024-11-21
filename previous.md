@@ -1,3 +1,19 @@
+**Stadium plans, Mitchell's role and Eales' health: An evening with Newcastle's executives**\
+`Chris Waugh analyses the key takeaways as a host of Newcastle's decision makers address supporters`\
+https://nytimes.com/athletic/5935146/2024/11/21/eales-mitchell-stadium-newcastle/
+
+**Dissecting the DOGE Playbook**\
+`Elon Musk and Vivek Ramaswamy have unveiled their first plans to trim government spending, a blueprint that mirrors how the tech mogul cut costs at Twitter.`\
+https://nytimes.com/2024/11/21/business/dealbook/musk-ramaswamy-doge-playbook.html
+
+**The Athletic FC: How much to trust managers' injury updates, Man Utd top 'homegrown' list**\
+`Today in TAFC: Why managers can often stretch the truth when it comes to player injuries. Plus: Homegrown player data and pundit ratings`\
+https://nytimes.com/athletic/5937193/2024/11/21/premier-league-manager-injury-news/
+
+**NBA Lookahead: How low can the Sixers go? Plus, more NBA Cup action on tap**\
+`Philadelphia somehow has the worst record in the league. And, hey, let's remember Jason Kapono and Antoine Walker.`\
+https://nytimes.com/athletic/5928995/2024/11/21/nba-lookahead-sixers-nba-cup-preview/
+
 **Live Updates: I.C.C. Issues Arrest Warrants for Netanyahu and Gallant**\
 `The International Criminal Court rejected Israel’s challenges to its jurisdiction, and also issued a warrant for a top Hamas official. Its chief prosecutor had sought the arrests for war crimes in Gaza.`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5937113/2024/11/21/hall-of-fame-ichiro-sabathia-ped
 **Sara Errani's golden season – and the art of the underarm serve**\
 `The 37-year-old completed a career Golden Slam in 2024, and has built a remarkable career behind one major weakness.`\
 https://nytimes.com/athletic/5936031/2024/11/21/sara-errani-tennis-player-italy-serve/
-
-**Raiders' Brock Bowers having a historic rookie season despite team's struggles**\
-`The Raiders have lost six straight games amid major turmoil on offense, but their first-year tight end is putting up incredible numbers.`\
-https://nytimes.com/athletic/5936372/2024/11/21/brock-bowers-raiders-rookie-tight-end-oroy/
-
-**‘Witches’ Review: Redeeming the Wicked Witch**\
-`The director Elizabeth Sankey’s experience with postpartum depression anchors this documentary about the pop-cultural representation of witches.`\
-https://nytimes.com/2024/11/21/movies/witches-review.html
-
-**‘Sabbath Queen’ Review: Capturing the Act of Questioning**\
-`Sandi DuBowski’s documentary about Rabbi Amichai Lau-Levie observes the making of a Jewish identity.`\
-https://nytimes.com/2024/11/21/movies/sabbath-queen-review.html
-
-**‘A Traveler’s Needs’ Review: Language Lessons**\
-`Iris (Isabelle Huppert), a stranger who teaches French in Seoul, is at the center of an enigmatic film by Hong Sang-soo.`\
-https://nytimes.com/2024/11/21/movies/a-travelers-needs-review.html
 
