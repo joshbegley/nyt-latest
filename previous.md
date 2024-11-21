@@ -1,3 +1,7 @@
+**Deaths of at Least 4 Tourists in Laos Raise Alarm About Tainted Drinks**\
+`Travelers from the United States, Australia and Denmark have died in the Southeast Asian nation in recent days. Officials warned of poisoning caused by alcoholic drinks containing methanol.`\
+https://nytimes.com/2024/11/21/world/asia/laos-alcohol-methanol-poisoning-dead.html
+
 **The Pulse: The greatest coach ever?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5935666/2024/11/21/geno-auriemma-uconn-record-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5936094/2024/11/21/big-12-chaos-meter-will-arizona-
 **Five NFL Draft prospects rising into the top-100 mix, others to watch this weekend**\
 `Jared Ivey, Alfred Collins and a handful of other prospects have caught our draft expert's eye this season.`\
 https://nytimes.com/athletic/5930988/2024/11/21/nfl-draft-2025-risers-darien-porter-jared-ivey/
-
-**Blackhawks’ future roster and salary cap, Part 2: Projecting through 2030**\
-`When could the Blackhawks compete for the Stanley Cup again? These projections help visualize a best guess.`\
-https://nytimes.com/athletic/5922285/2024/11/21/blackhawks-projected-roster-salary-cap-2030/
 

@@ -1,3 +1,7 @@
+**Deaths of at Least 4 Tourists in Laos Raise Alarm About Tainted Drinks**\
+`Travelers from the United States, Australia and Denmark have died in the Southeast Asian nation in recent days. Officials warned of poisoning caused by alcoholic drinks containing methanol.`\
+https://nytimes.com/2024/11/21/world/asia/laos-alcohol-methanol-poisoning-dead.html
+
 **The Pulse: The greatest coach ever?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5935666/2024/11/21/geno-auriemma-uconn-record-the-pulse/
