@@ -1,3 +1,7 @@
+**UConn's Auriemma becomes all-time winningest college basketball coach**\
+`Geno Auriemma earned his 1,217th win Wednesday night to pass Tara VanDerveer for the record.`\
+https://nytimes.com/athletic/5936477/2024/11/20/geno-auriemma-uconn-winningest-coach-college-basketball/
+
 **Rob Manfred gives Rays 2026 deadline for stadium plan, says league expansion still proceeding**\
 `The Rays were planning to move to a new stadium in St. Petersburg for 2028, but in the wake of Hurricane Milton, things have muddied.`\
 https://nytimes.com/athletic/5936548/2024/11/20/rob-manfred-rays-stadium-mlb-expansion/
