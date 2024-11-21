@@ -1,7 +1,3 @@
-**He Was a National Hero in Britain. His Daughter Profited From His Name.**\
-`The family of Captain Tom Moore, who raised $50 million for Britain’s health service during the pandemic, has been criticized for ‘serious and repeated’ misconduct by an official inquiry.`\
-https://nytimes.com/2024/11/21/world/europe/captain-tom-daughter-charity-misconduct.html
-
 **Netanyahu and Gallant are accused of using starvation as a weapon of war. Here’s a look at hunger in Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/netanyahu-and-gallant-are-accused-of-using-starvation-as-a-weapon-of-war-heres-a-look-at-hunger-in-gaza
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5936091/2024/11/21/maple-leafs-progress-report-play
 **Behind the Drop in Overdose Deaths: Changes in Street Drugs**\
 `Experts are puzzling over which interventions are saving lives. The evolving illicit supply itself may hold important clues.`\
 https://nytimes.com/2024/11/21/health/overdose-deaths-decline-drug-supply.html
+
+**Colorado lands 5-star QB Julian Lewis: What this means for Deion Sanders**\
+`Lewis, the No. 35 overall prospect in the Class of 2025 in the 247Sports Composite, had previously been committed to USC.`\
+https://nytimes.com/athletic/5915821/2024/11/21/colorado-recruiting-deion-sanders-julian-lewis-qb/
 
