@@ -1,3 +1,15 @@
+**SEC should be thankful for a 12-team Playoff this year. It would be on the brink with 4**\
+`The Big Ten would be pondering multiple bids in a more exclusive Playoff format this season.`\
+https://nytimes.com/athletic/5936471/2024/11/21/college-football-playoff-sec-miss-playoff-4-teams/
+
+**Why UNC star RJ Davis couldn't resist returning for his fifth season — and one more shot**\
+`Davis sprouted into a full-blown star last season. But he still wants a chance at a redo of UNC's 2022 run to the NCAA title game.`\
+https://nytimes.com/athletic/5935072/2024/11/21/north-carolina-basketball-rj-davis/
+
+**How Tarik Skubal went from rehab to winning the Cy Young Award**\
+`It took hard work and mental preparation for Skubal to earn the American League's first full-season pitching triple crown since 2011. `\
+https://nytimes.com/athletic/5922636/2024/11/21/detroit-tigers-tarik-skubal-cy-young-rehab/
+
 **11 stats that tell the story of Drake Maye's hot start**\
 `Maye is off to a strong start with the Patriots. But what is he doing well? And where does he still need to improve? We explain.`\
 https://nytimes.com/athletic/5935784/2024/11/21/drake-maye-patriots-qb-stats/
