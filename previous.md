@@ -1,3 +1,7 @@
+**The Pulse: The greatest coach ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5935666/2024/11/21/geno-auriemma-uconn-record-the-pulse/
+
 **Willie Green's job security, the tanking question and more: Pelicans mailbag**\
 `What should the Pelicans make of under-the-radar success stories like Yves Missi and Brandon Boston Jr.?`\
 https://nytimes.com/athletic/5936507/2024/11/21/pelicans-mailbag-willie-green/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5930988/2024/11/21/nfl-draft-2025-risers-darien-por
 **Blackhawks’ future roster and salary cap, Part 2: Projecting through 2030**\
 `When could the Blackhawks compete for the Stanley Cup again? These projections help visualize a best guess.`\
 https://nytimes.com/athletic/5922285/2024/11/21/blackhawks-projected-roster-salary-cap-2030/
-
-**Celtics visiting White House on Thursday to celebrate NBA championship**\
-`The Celtics' trip to the White House coincides with their game Friday against the Wizards.`\
-https://nytimes.com/athletic/5936417/2024/11/21/celtics-white-house-visit/
 

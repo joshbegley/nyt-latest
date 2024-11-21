@@ -1,3 +1,7 @@
+**The Pulse: The greatest coach ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5935666/2024/11/21/geno-auriemma-uconn-record-the-pulse/
+
 **Willie Green's job security, the tanking question and more: Pelicans mailbag**\
 `What should the Pelicans make of under-the-radar success stories like Yves Missi and Brandon Boston Jr.?`\
 https://nytimes.com/athletic/5936507/2024/11/21/pelicans-mailbag-willie-green/
