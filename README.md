@@ -1,3 +1,11 @@
+**Want to Get Married in Central Park? This Planner Can Help.**\
+`Claire Ady started her business helping international couples navigate the process of getting married in the iconic park after planning her own wedding there.`\
+https://nytimes.com/2024/11/21/fashion/weddings/central-park-wedding-planner.html
+
+**U.S. Defense Firms Are Warned About Russia’s Sabotage Campaign**\
+`A new warning urges defense companies to increase security and to be on the lookout for surveillance and signs of trespassing.`\
+https://nytimes.com/2024/11/21/us/politics/defense-companies-russia-sabotage.html
+
 **Jussie Smollett’s Conviction for False Hate Crime Claim Is Overturned**\
 `The Illinois Supreme Court ruled that he should not have been prosecuted a second time after the charges against him had been dismissed with a negotiated agreement.`\
 https://nytimes.com/2024/11/21/arts/jussie-smollett-conviction-overturned.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/us/politics/house-antiterror-financing-bill.html
 **The Windup: MLB awards are (basically) all in**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5937964/2024/11/21/mlb-awards-cy-young-the-windup/
-
-**Israelis condemn the decision to issue arrest warrants for Netanyahu and Gallant.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/israelis-condemn-the-decision-to-issue-arrest-warrants-for-netanyahu-and-gallant
-
-**Should Gay Couples Worry About Their Benefits Under Trump?**\
-`Readers had concerns about whether same-sex married couples and their protections would face new risks during a second Trump term.`\
-https://nytimes.com/2024/11/21/business/trump-same-sex-marriage-gay-rights.html
 
