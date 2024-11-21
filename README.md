@@ -1,7 +1,3 @@
-**Maple Leafs 20-game progress reports: Who's thriving?**\
-`Twenty games in, the Leafs' record sits at 12-6-2. How's everyone doing? Let's evaluate the roster from top to bottom.`\
-https://nytimes.com/athletic/5936091/2024/11/21/maple-leafs-progress-report-player-analysis/
-
 **Behind the Drop in Overdose Deaths: Changes in Street Drugs**\
 `Experts are puzzling over which interventions are saving lives. The evolving illicit supply itself may hold important clues.`\
 https://nytimes.com/2024/11/21/health/overdose-deaths-decline-drug-supply.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/21/arts/television/interior-chinatown-review.html
 **How Josh Metellus became the key to Brian Flores' innovative Vikings defense**\
 `The versatile 26-year-old is listed as a safety, but he has also lined up at linebacker, slot corner and even on the defensive line. `\
 https://nytimes.com/athletic/5936476/2024/11/21/josh-metellus-vikings-defense-brian-flores/
+
+**Can the Senate Survive Donald Trump?**\
+`The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
+https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
 
