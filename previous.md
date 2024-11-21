@@ -1,5 +1,5 @@
 **Who’s Laughing Now? Banana-as-Art Sells for $6.2 Million at Sotheby’s**\
-`A conceptual artwork by Maurizio Cattelan, “Comedian,” is just a fruit-stand banana taped on the wall. But plenty of bidders were biting.`\
+`A conceptual artwork by Maurizio Cattelan, “Comedian,” is just a fruit-stand banana taped on the wall. But 7 bidders were biting. It went to a crypto entrepreneur.`\
 https://nytimes.com/2024/11/20/arts/design/cattelan-banana-sothebys-auction.html
 
 **Madden 25 adds Saquon Barkley viral reverse hurdle in latest game update**\
