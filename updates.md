@@ -1,3 +1,11 @@
+**Gaetz’s Withdrawal Means the Senate Passed Its First Test**\
+`Trump failed to push Republicans past their red line.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/matt-gaetz-withdraw-attorney-general
+
+**Man Who Faked Kayaking Death Says in Video He’s ‘Safe’**\
+`But the man, Ryan Borgwardt, who is believed to be in Eastern Europe and has been communicating with the authorities, has not committed to returning home, officials said.`\
+https://nytimes.com/2024/11/21/us/ryan-bogwardt-sheriff-update-faked-death.html
+
 **Injured in the war and evacuated to Qatar, some Gazans wonder how to go on.**\
 `By Samar Abu Elouf and Eric Nagourney`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/injured-in-the-war-and-evacuated-to-qatar-some-gazans-wonder-how-to-go-on
