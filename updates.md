@@ -1,3 +1,7 @@
+**The win record sets UConn's Geno Auriemma apart. But his players' legacies tell his greatness**\
+`Diana Taurasi, Maya Moore, Sue Bird and more celebrated Auriemma's milestone in Storrs. `\
+https://nytimes.com/athletic/5936881/2024/11/21/geno-auriemma-uconn-college-basketball-win-record-players/
+
 **After an unusually difficult start, is this the moment Arsenal's season really begins?**\
 `Considering the points they have already dropped, Arsenal now have an opportunity to kickstart their campaign in this next block of games`\
 https://nytimes.com/athletic/5931594/2024/11/21/arsenal-difficult-start-season-begins/
