@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5938230/2024/11/21/guinea-tanzania-afcon-wrong-shir
 `For the last two seasons, L.A. practiced out of El Camino College, a community college in Torrance, Calif.`\
 https://nytimes.com/athletic/5938033/2024/11/21/los-angeles-sparks-practice-facility/
 
+**NHL trade board 2024-25: The latest on all the top targets from Chris Johnston**\
+`From Brock Nelson to Brad Marchand to Taylor Hall, the NHL trade market is starting to take shape early this season.`\
+https://nytimes.com/athletic/5930174/2024/11/21/nhl-trade-board-marchand-hall-nelson/
+
 **A Very Veggie Thanksgiving**\
 `Gorgeous mains, vibrant sides and — most important — stuffing.`\
 https://nytimes.com/2024/11/21/dining/a-very-veggie-thanksgiving.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/world/europe/captain-tom-daughter-charity-miscond
 **Netanyahu and Gallant are accused of using starvation as a weapon of war. Here’s a look at hunger in Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/netanyahu-and-gallant-are-accused-of-using-starvation-as-a-weapon-of-war-heres-a-look-at-hunger-in-gaza
-
-**Release the House Ethics Report on Gaetz**\
-`Readers respond to the Matt Gaetz drama. Also: Dr. Mehmet Oz and Robert F. Kennedy Jr.; Russia’s nuclear pose; political spending; election lessons; homelessness.`\
-https://nytimes.com/2024/11/21/opinion/matt-gaetz-house-ethics-report.html
 

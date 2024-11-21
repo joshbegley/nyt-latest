@@ -1,3 +1,7 @@
+**NHL trade board 2024-25: The latest on all the top targets from Chris Johnston**\
+`From Brock Nelson to Brad Marchand to Taylor Hall, the NHL trade market is starting to take shape early this season.`\
+https://nytimes.com/athletic/5930174/2024/11/21/nhl-trade-board-marchand-hall-nelson/
+
 **Trump’s Vow to End the War Could Leave Ukraine With Few Options**\
 `One question is whether the new administration and Europe will provide security guarantees to prevent Russia from taking more territory.`\
 https://nytimes.com/2024/11/21/us/politics/trump-russia-ukraine-war.html
