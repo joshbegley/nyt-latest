@@ -1,3 +1,7 @@
+**Holiday Ornaments That Are Out of the Ordinary**\
+`A roundup of unusual Christmas baubles, from diamonds made of lichen to glass flowers and strawberry tarts.`\
+https://nytimes.com/2024/11/21/t-magazine/christmas-ornaments-unique.html
+
 **How many more games 'matter' in November thanks to the expanded CFP?**\
 `With a 12-team field containing five conference champions and seven at-large bids, the CFP race has altered the stakes of late November.`\
 https://nytimes.com/athletic/5937507/2024/11/21/college-football-playoff-expansion-scenarios/
