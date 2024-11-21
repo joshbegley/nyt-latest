@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/21/science/behemoth-star-closeup-picture.html
 
 **Automakers to Trump: Please Require Us to Sell Electric Vehicles**\
-`Donald J. Trump promised to erase Biden tailpipe rules that are designed to get carmakers to produce EVs. But Detroit wants to keep them.`\
+`Donald J. Trump promised to erase Biden tailpipe rules that are designed to get carmakers to produce E.V.s. But Detroit wants to keep them.`\
 https://nytimes.com/2024/11/21/climate/gm-ford-electric-vehicles-trump.html
 
 **Fantasy football rankings Week 12: Sleepers, projections, starts, Bo Nix, Rome Odunze**\
