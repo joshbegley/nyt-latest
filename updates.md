@@ -1,3 +1,7 @@
+**Seattle Power Outages Could Linger as Strong Storms Pelt the West Coast**\
+`A series of atmospheric rivers is flooding the Pacific Northwest and parts of California, with more wind and rain forecast as utilities try to restore power to hundreds of thousands of people.`\
+https://nytimes.com/2024/11/21/weather/west-coast-storm-power-outages.html
+
 **6 Airports in Northern Haiti Are Reopened to U.S. Flights**\
 `The Federal Aviation Administration said on Thursday it was allowing air traffic to resume at half a dozen airports in Haiti, but the country’s main flight hub in the capital would remain off limits.`\
 https://nytimes.com/2024/11/21/world/americas/haiti-airports-six-reopened-faa.html
