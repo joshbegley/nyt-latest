@@ -1,3 +1,11 @@
+**NBA ASG likely tourney format would feature top coaches in East, West**\
+`If the new format is adopted, as expected, there would be more than one losing team.`\
+https://nytimes.com/athletic/5938627/2024/11/21/nba-all-star-game-tournament-coaches/
+
+**Steven J. Rosen, Hard-Charging Advocate for Israel, Dies at 82**\
+`He was a prominent behind-the-scenes figure in Washington whose  career was derailed when he was charged with leaking government secrets. The case was later dropped.`\
+https://nytimes.com/2024/11/21/us/politics/steven-j-rosen-dead.html
+
 **Mali’s Junta Replaces Civilian Prime Minister With One of Its Own**\
 `The prime minister had been fired for criticizing the country’s junta.`\
 https://nytimes.com/2024/11/21/world/africa/mali-military-replace-prime-minister.html

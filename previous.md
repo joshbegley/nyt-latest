@@ -1,3 +1,7 @@
+**NBA ASG likely tourney format would feature top coaches in East, West**\
+`If the new format is adopted, as expected, there would be more than one losing team.`\
+https://nytimes.com/athletic/5938627/2024/11/21/nba-all-star-game-tournament-coaches/
+
 **Mali’s Junta Replaces Civilian Prime Minister With One of Its Own**\
 `The prime minister had been fired for criticizing the country’s junta.`\
 https://nytimes.com/2024/11/21/world/africa/mali-military-replace-prime-minister.html
@@ -23,7 +27,7 @@ https://nytimes.com/2024/11/21/world/middleeast/israel-netanyahu-aide-leak-indic
 https://nytimes.com/athletic/5937112/2024/11/21/pep-guardiola-manchester-city-contract-what-it-means/
 
 **Steven J. Rosen, Hard-Charging Advocate for Israel, Dies at 82**\
-`A prominent behind-the-scenes figure in Washington, his career was derailed when he was charged with leaking government secrets. The case was later dropped.`\
+`He was a prominent behind-the-scenes figure in Washington whose  career was derailed when he was charged with leaking government secrets. The case was later dropped.`\
 https://nytimes.com/2024/11/21/us/politics/steven-j-rosen-dead.html
 
 **Landslides Are a Growing Climate Threat. What Do We Know About Them?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/climate/landslides-rain-climate-explainer.html
 **The Alluring Dream That Black America Needs to Wake Up From**\
 `Cleopatra is not our mother.`\
 https://nytimes.com/2024/11/21/opinion/ancient-egypt-met-museum-black-america.html
-
-**What’s Going On in This Picture? | Dec. 2, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/11/21/learning/whats-going-on-in-this-picture-dec-2-2024.html
 
