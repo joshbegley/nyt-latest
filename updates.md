@@ -1,3 +1,7 @@
+**Lando Norris accepts his first F1 title challenge likely will end in defeat**\
+`Verstappen leads the driver standings with 393 points, 62 points ahead of Norris with three races and a sprint to go`\
+https://nytimes.com/athletic/5937041/2024/11/21/lando-norris-f1-championship-max-verstappen-vegas/
+
 **Why Nina Wilson quit playing football: 'What happened to Maddy can happen again'**\
 `Former Sheffield United goalkeeper says she and other women's players are being failed by the sport - with terrible consequences`\
 https://nytimes.com/athletic/5921900/2024/11/21/nina-wilson-maddy-cusack-sheffield-united/

@@ -1,3 +1,7 @@
+**Lando Norris accepts his first F1 title challenge likely will end in defeat**\
+`Verstappen leads the driver standings with 393 points, 62 points ahead of Norris with three races and a sprint to go`\
+https://nytimes.com/athletic/5937041/2024/11/21/lando-norris-f1-championship-max-verstappen-vegas/
+
 **Why Nina Wilson quit playing football: 'What happened to Maddy can happen again'**\
 `Former Sheffield United goalkeeper says she and other women's players are being failed by the sport - with terrible consequences`\
 https://nytimes.com/athletic/5921900/2024/11/21/nina-wilson-maddy-cusack-sheffield-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931594/2024/11/21/arsenal-difficult-start-season-b
 **How close are Chelsea to playing Marescaball?**\
 `Despite the inevitable disclaimer that this season is still young, Chelsea’s play has already evolved since Mauricio Pochettino’s tenure`\
 https://nytimes.com/athletic/5934556/2024/11/21/chelsea-enzo-maresca-analysis/
-
-**Has Steve Cooper found a formula for survival? His Leicester tweaks analysed**\
-`Their key weaknesses and how they're being addressed`\
-https://nytimes.com/athletic/5935008/2024/11/21/leicester-cooper-improvements-analysed/
 
