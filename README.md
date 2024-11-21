@@ -1,3 +1,7 @@
+**MLB won't play games in San Juan or Mexico City in 2025**\
+`The league’s only international destination for the 2025 regular season will be Tokyo, for the opening series between the Cubs and Dodgers.`\
+https://nytimes.com/athletic/5937014/2024/11/21/mlb-games-2025-san-juan-mexico-city-cancelled/
+
 **International Criminal Court Issues Arrest Warrants for Netanyahu and Gallant**\
 `The court rejected Israel’s challenges to its jurisdiction. Its chief prosecutor had sought the arrests over Israeli military actions in Gaza.`\
 https://nytimes.com/2024/11/21/world/middleeast/icc-arrest-warrants-netanyahu-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/movies/porcelain-war-review.html
 **‘Out of My Mind’ Review: Schooling a Teacher**\
 `In this film adaptation of Sharon M. Draper’s novel, a nonverbal sixth-grader with cerebral palsy holds her own.`\
 https://nytimes.com/2024/11/21/movies/out-of-my-mind-review.html
-
-**‘Joy’ Review: The Humans Behind I.V.F.**\
-`Thomasin McKenzie plays an unheralded pioneer of in vitro fertilization in a new biography.`\
-https://nytimes.com/2024/11/21/movies/joy-review.html
 
