@@ -1,3 +1,7 @@
+**Phillips 66 Is Accused of Violating the Clean Water Act**\
+`The oil company was indicted on charges of dumping nearly 800,000 gallons of contaminated wastewater into the Los Angeles County sewer system.`\
+https://nytimes.com/2024/11/21/technology/phillips-66-wastewater-indictment.html
+
 **Peter Sinfield, Lyricist for King Crimson, Dies at 80**\
 `His swirls of poetic imagery helped define progressive rock in the 1970s. He later turned his focus to pop acts like Celine Dion.`\
 https://nytimes.com/2024/11/21/arts/music/peter-sinfield-dead.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/11/21/opinion/trump-immigration-technology.html
 https://nytimes.com/athletic/5930024/2024/11/21/dodgers-shohei-ohtani-unanimous-mvp/
 
 **Alex Ovechkin out 4 to 6 weeks with fractured fibula**\
-`Ovechkin, who is in pursuit of the NHL's all-time goals record, has 15 goals and 10 assists in 18 games played so far this season`\
+`Ovechkin, who is in pursuit of the NHL's all-time goals record, has 15 goals and 10 assists in 18 games played so far this season.`\
 https://nytimes.com/athletic/5938983/2024/11/21/alex-ovechkin-injury-update-washington-capitals/
 
 **Seattle Power Outages Could Linger as Strong Storms Pelt the West Coast**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/us/linda-mcmahon-sexual-abuse-lawsuit-trump-educa
 **Michigan flips QB Bryce Underwood — No. 1 player in 2025 class — from LSU**\
 `Underwood will be the highest-rated quarterback to sign with Michigan in the modern recruiting era. `\
 https://nytimes.com/athletic/5939109/2024/11/21/bryce-underwood-michigan-lsu-recruiting/
-
-**Yankees' Aaron Judge wins 2nd American League MVP award**\
-`Judge, who led the major leagues in multiple hitting categories, became the seventh player in Yankees history to win multiple MVPs.`\
-https://nytimes.com/athletic/5936746/2024/11/21/yankees-aaron-judge-2nd-al-mvp-award/
 
