@@ -1,3 +1,7 @@
+**International Criminal Court Issues Arrest Warrants for Netanyahu and Gallant**\
+`The court rejected Israel’s challenges to its jurisdiction. Its chief prosecutor had sought the arrests over Israeli military actions in Gaza.`\
+https://nytimes.com/2024/11/21/world/middleeast/icc-arrest-warrants-netanyahu-hamas.html
+
 **Hall of Fame mailbag: Stark on Ichiro, CC Sabathia, Dustin Pedroia, Dick Allen and more**\
 `Let’s dive into another edition of our ever-popular Hall of Fame subscriber mailbag.`\
 https://nytimes.com/athletic/5937113/2024/11/21/hall-of-fame-ichiro-sabathia-pedroia/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/movies/out-of-my-mind-review.html
 **‘Joy’ Review: The Humans Behind I.V.F.**\
 `Thomasin McKenzie plays an unheralded pioneer of in vitro fertilization in a new biography.`\
 https://nytimes.com/2024/11/21/movies/joy-review.html
-
-**‘Flow’ Review: A Cat’s Life**\
-`A cat, a dog and a capybara embark on an epic adventure in this earnest and refreshingly unconventional animated film.`\
-https://nytimes.com/2024/11/21/movies/flow-review.html
 
