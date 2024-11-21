@@ -1,3 +1,19 @@
+**Netanyahu and Gallant are accused of using starvation as a weapon of war. Here’s a look at hunger in Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/11/21/world/israel-netanyahu-hamas-gaza/netanyahu-and-gallant-are-accused-of-using-starvation-as-a-weapon-of-war-heres-a-look-at-hunger-in-gaza
+
+**Release the House Ethics Report on Gaetz**\
+`Readers respond to the Matt Gaetz drama. Also: Dr. Mehmet Oz and Robert F. Kennedy Jr.; Russia’s nuclear pose; political spending; election lessons; homelessness.`\
+https://nytimes.com/2024/11/21/opinion/matt-gaetz-house-ethics-report.html
+
+**Matt Gaetz withdraws from consideration as attorney general.**\
+`By Noah Weiland`\
+https://nytimes.com/2024/11/21/us/politics/matt-gaetz-withdraws-attorney-general.html
+
+**Jay Leno Says He Was Injured in a Fall**\
+`He told Inside Edition that he fell down a hill after taking an ill-advised shortcut, leaving him with a broken wrist and a black eye.`\
+https://nytimes.com/2024/11/21/arts/jay-leno-fall-hill-bruises.html
+
 **Sacco is the Bruins interim head coach. Who’s next if he comes up short?**\
 `Who could GM Don Sweeney be keeping an eye on while monitoring the team's progress under Sacco? Here's an early look at six candidates.`\
 https://nytimes.com/athletic/5938123/2024/11/21/bruins-coaching-candidates/
