@@ -1,3 +1,7 @@
+**Can the Senate Survive Donald Trump?**\
+`The vaunted chamber’s degradation preceded him. But he may trash it once and for all.`\
+https://nytimes.com/2024/11/21/opinion/senate-trump-house-congress.html
+
 **Maple Leafs 20-game progress reports: Who's thriving?**\
 `Twenty games in, the Leafs' record sits at 12-6-2. How's everyone doing? Let's evaluate the roster from top to bottom.`\
 https://nytimes.com/athletic/5936091/2024/11/21/maple-leafs-progress-report-player-analysis/
