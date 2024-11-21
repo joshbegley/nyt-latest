@@ -1,3 +1,7 @@
+**How many more games 'matter' in November thanks to the expanded CFP?**\
+`With a 12-team field containing five conference champions and seven at-large bids, the CFP race has altered the stakes of late November.`\
+https://nytimes.com/athletic/5937507/2024/11/21/college-football-playoff-expansion-scenarios/
+
 **New York City FC's new stadium to be called Etihad Park**\
 `New York City FC’s new stadium will be called Etihad Park.`\
 https://nytimes.com/athletic/5937685/2024/11/21/etihad-park-nycfc-stadium-name/

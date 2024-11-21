@@ -1,3 +1,7 @@
+**How many more games 'matter' in November thanks to the expanded CFP?**\
+`With a 12-team field containing five conference champions and seven at-large bids, the CFP race has altered the stakes of late November.`\
+https://nytimes.com/athletic/5937507/2024/11/21/college-football-playoff-expansion-scenarios/
+
 **New York City FC's new stadium to be called Etihad Park**\
 `New York City FC’s new stadium will be called Etihad Park.`\
 https://nytimes.com/athletic/5937685/2024/11/21/etihad-park-nycfc-stadium-name/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5937451/2024/11/21/deniz-undav-injury-stuttgart/
 **She Went for a Walk on the Beach and Found a Rare ‘Doomsday Fish’**\
 `In Japanese mythology, the deep-sea-dwelling oarfish is a harbinger of impending disaster. For scientists in California, where three oarfish have washed up in recent months, it’s an exciting find.`\
 https://nytimes.com/2024/11/21/us/doomsday-fish-california-oarfish.html
-
-**Newsom Heads to California Counties That Voted for Trump**\
-`Gov. Gavin Newsom acknowledged that residents were frustrated by economic problems and said that Democrats needed to address their concerns.`\
-https://nytimes.com/2024/11/21/us/newsom-california-counties-trump.html
 
