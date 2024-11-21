@@ -1,3 +1,15 @@
+**Should Gay Couples Worry About Their Benefits Under Trump?**\
+`Readers had concerns about whether same-sex married couples and their protections would face new risks during a second Trump term.`\
+https://nytimes.com/2024/11/21/business/trump-same-sex-marriage-gay-rights.html
+
+**Here’s Why the I.C.C. Says It Issued the Arrest Warrants**\
+`The International Criminal Court said there were grounds to hold two Israeli leaders responsible for the crisis in Gaza, and a Hamas military leader for crimes against humanity.`\
+https://nytimes.com/2024/11/21/world/middleeast/icc-arrest-warrant-why-israel-hamas.html
+
+**Giannis Antetokounmpo's huge third quarter in win over Bulls leaves teammates speechless**\
+`Antetokounmpo's dominance on offense has the Bucks optimistic again after a 2-8 start. They have now won four of the last five games.`\
+https://nytimes.com/athletic/5936870/2024/11/21/giannis-antetokounmpo-dominance-bucks-bulls/
+
 **The Bounce: It's time buy or sell these NBA contenders**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5937225/2024/11/21/nba-cavaliers-celtics-lakers-bucks-76ers-joel-embiid-paul-george-nba-the-bounce/

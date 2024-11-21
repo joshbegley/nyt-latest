@@ -1,3 +1,15 @@
+**Should Gay Couples Worry About Their Benefits Under Trump?**\
+`Readers had concerns about whether same-sex married couples and their protections would face new risks during a second Trump term.`\
+https://nytimes.com/2024/11/21/business/trump-same-sex-marriage-gay-rights.html
+
+**Here’s Why the I.C.C. Says It Issued the Arrest Warrants**\
+`The International Criminal Court said there were grounds to hold two Israeli leaders responsible for the crisis in Gaza, and a Hamas military leader for crimes against humanity.`\
+https://nytimes.com/2024/11/21/world/middleeast/icc-arrest-warrant-why-israel-hamas.html
+
+**Giannis Antetokounmpo's huge third quarter in win over Bulls leaves teammates speechless**\
+`Antetokounmpo's dominance on offense has the Bucks optimistic again after a 2-8 start. They have now won four of the last five games.`\
+https://nytimes.com/athletic/5936870/2024/11/21/giannis-antetokounmpo-dominance-bucks-bulls/
+
 **Team USA exits Davis Cup after surprise doubles pick against Australia**\
 `Doubles selection controversy has again overshadowed Team USA's Davis Cup after a defeat to Australia`\
 https://nytimes.com/athletic/5937718/2024/11/21/usa-davis-cup-out-australia-doubles-pick/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5937685/2024/11/21/etihad-park-nycfc-stadium-name/
 **ESPN's 'Around the Horn' ending in 2025: Sources**\
 `ESPN is exploring other shows for the slot but doesn't have an exact plan yet, a source said.`\
 https://nytimes.com/athletic/5937412/2024/11/21/espns-around-the-horn-ending-in-2025-after-23-year-run-sources/
-
-**NFL Week 12 fantasy football, betting cheat sheet: Mike Evans, Isiah Pacheco near returns**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5932278/2024/11/21/nfl-week-12-fantasy-football-betting-cheat-sheet/
-
-**Dyche says Branthwaite and McNeil set to be available against Brentford**\
-`Everton manager Sean Dyche expects key duo Jarrad Branthwaite and Dwight McNeil to be available for Saturday’s game against Brentford.`\
-https://nytimes.com/athletic/5937640/2024/11/21/everton-branthwaite-mcneil-injury-update/
-
-**The Bounce: It's time buy or sell these NBA contenders**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5937225/2024/11/21/nba-cavaliers-celtics-lakers-bucks-76ers-joel-embiid-paul-george-nba-the-bounce/
 
