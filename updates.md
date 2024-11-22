@@ -1,3 +1,11 @@
+**Rigg and Bellingham urged to continue development with Sunderland**\
+`The Championship leaders Sunderland return to action at Millwall on Saturday with an ever-increasing number of suitors eyeing the progress of the division’s youngest squad — and Chris Rigg, 17, and Jobe Bellingham, 19, in particular.`\
+https://nytimes.com/athletic/5938114/2024/11/22/sunderland-rigg-bellingham/
+
+**The Secret Behind America’s Moral Panic**\
+`Trans rights aren’t just trans rights. They’re reproductive rights. `\
+https://nytimes.com/2024/11/22/opinion/trans-rights-donald-trump.html
+
 **Blackhawks stave off Panthers, but does Connor Bedard belong in a shutdown role? Observations**\
 `The Blackhawks picked up just their third home win of the season against the reigning Stanley Cup champions.`\
 https://nytimes.com/athletic/5939754/2024/11/22/blackhawks-bedard-shutdown-role-panthers/
