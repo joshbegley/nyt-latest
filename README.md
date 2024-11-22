@@ -1,3 +1,27 @@
+**Remembering 10 times a season's Jack Adams finalists did not hold up well**\
+`All three of the 2022-23 Jack Adams finalists have now been fired, but that's not even the worst aftermath of the cap era.`\
+https://nytimes.com/athletic/5935251/2024/11/22/remembering-jack-adams-finalists-aftermath/
+
+**Did Ohio State need to lose at Oregon to reach its full potential?**\
+`Ohio State's defensive coordinator spoke to The Athletic about soul-searching after Oregon and how the Buckeyes changed.`\
+https://nytimes.com/athletic/5938927/2024/11/22/jim-knowles-ohio-state-oregon-indiana/
+
+**Five thoughts on Bryce Underwood's flip: This changes everything for Sherrone Moore**\
+`Underwood's commitment provides optimism for Michigan's future. But there's still work to do for Moore and the Wolverines.`\
+https://nytimes.com/athletic/5935504/2024/11/22/michigan-football-sherrone-moore-bryce-underwood/
+
+**How the Rams' young defensive line went from a poor start to league-leading production**\
+`"We’re just a group of hungry guys who are trying to do everything the right way," Rams second-year defensive lineman Kobie Turner said.`\
+https://nytimes.com/athletic/5939399/2024/11/22/rams-defensive-line-production-kobie-turner-verse-fiske/
+
+**Here's what Penn State needs to happen to make the Big Ten title game or the Playoff**\
+`Penn State's chances of making the Big Ten championship game are low, but the Nittany Lions are still firmly in the Playoff mix.`\
+https://nytimes.com/athletic/5939607/2024/11/22/penn-state-nittany-lions-big-ten-college-football-playoff/
+
+**Panthers exec Brandt Tilis won 3 rings in KC. He sees a Super Bowl path for Panthers**\
+`Tilis spent 14 seasons in Kansas City and learned a lot about team-building and winning. He wants to see that happen with Carolina.`\
+https://nytimes.com/athletic/5939095/2024/11/22/panthers-brandt-tilis-front-office-chiefs/
+
 **How to Avoid Awkward Holiday Conversations**\
 `All you need is 30 seconds to prep.`\
 https://nytimes.com/2024/11/22/well/awkward-conversations-thanksgiving-christmas-holiday.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/11/22/opinion/marie-gluesenkamp-perez-democrats-trump.h
 **Will Musk Be the Death of NASA?**\
 `SpaceX is on top right now, and, presumably, Musk wants to keep it that way.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/will-musk-be-the-death-of-nasa
-
-**The New York Times News Quiz, Nov. 22, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/11/22/briefing/trump-gaetz-netanyahu-ukraine-news-quiz.html
-
-**The ‘Landslide’ That Wasn’t: Trump and Allies Pump Up His Narrow Victory**\
-`The latest vote count shows that Donald J. Trump won the popular vote by one of the smallest margins since the 19th century. But Mr. Trump claims a “powerful mandate.”`\
-https://nytimes.com/2024/11/22/us/politics/trump-election-landslide.html
-
-**In This House, We’re Angry When Government Fails**\
-`The Democratic Party needs to rethink what it means to be the party of institutions.`\
-https://nytimes.com/2024/11/22/opinion/ezra-klein-podcast-jennifer-pahlka-steven-teles.html
-
-**What Green, Yellow and Red Flags Do You Look For When It Comes to Dating?**\
-`What behaviors or actions from a potential partner tell you to go ahead, slow down or hit the brakes?`\
-https://nytimes.com/2024/11/22/learning/what-green-yellow-and-red-flags-do-you-look-for-when-it-comes-to-dating.html
-
-**The Tallest Building in Queens Rises in Long Island City**\
-`The Orchard, a rental tower with a dizzying array of luxury amenities, caps a decade of rapid development in the neighborhood.`\
-https://nytimes.com/2024/11/22/realestate/queens-tallest-building-orchard.html
-
-**Will This Poem Find Life in Outer Space?**\
-`Together, NASA and the U.S. poet laureate Ada Limón bring a little bit of humanity to the second moon of Jupiter.`\
-https://nytimes.com/2024/11/22/podcasts/nasa-ada-limon.html
 
