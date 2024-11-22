@@ -1,3 +1,7 @@
+**Live Q&A: FPL Gameweek 12 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 12 Q&A from 4-5pm UK time `\
+https://nytimes.com/athletic/5937263/2024/11/22/fantasy-premier-league-advice-injury-news-gw12/
+
 **Merkel Memoir Recalls What It Was Like Dealing With Trump and Putin**\
 `The new book by former Chancellor Angela Merkel of Germany also aims to justify decisions she made that are still affecting her country and the rest of Europe.`\
 https://nytimes.com/2024/11/22/world/europe/merkel-memoir-trump-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/podcasts/trumps-next-online-speech-cop-doctors-vs
 **Russia Supplies Antiaircraft Missiles to North Korea, South Korea Says**\
 `Pyongyang has long coveted an advanced air-defense system to guard against missiles and war planes from the United States and South Korea.`\
 https://nytimes.com/2024/11/22/world/asia/russia-north-korea-missiles-troops.html
-
-**Israel Strikes Across Lebanon After Ordering Evacuations of Southern Towns**\
-`The wide-scale bombardment continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
-https://nytimes.com/2024/11/22/world/middleeast/israel-lebanon-strikes.html
 
