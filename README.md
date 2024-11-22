@@ -1,3 +1,7 @@
+**Hollinger: Orlando's Franz Wagner is writing his All-Star origin story**\
+`Wagner piled up 37 points and 11 assists along with the dagger in LA. And it didn't come as a surprise to his teammates or coaches.`\
+https://nytimes.com/athletic/5939985/2024/11/22/franz-wagner-orlando-magic-game-winner/
+
 **Leading lawyer calls on sport to introduce independent safeguarding regulator**\
 `One of the United Kingdom’s most experienced prosecutors has called on sport to introduce an independent safeguarding regulator in the wake of several high-profile allegations of abuse.`\
 https://nytimes.com/athletic/5940182/2024/11/22/safeguarding-regulator-sport-nazir-afzal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940013/2024/11/22/the-athletic-friday-football-qui
 **Lowetide: How the Oilers' prospect pipeline is growing stronger at centre**\
 `It's clear that centre is a position of strength for the Oilers in the NHL and at all levels of the system.`\
 https://nytimes.com/athletic/5938013/2024/11/22/edmonton-oilers-prospect-pipeline-centre/
-
-**Trump’s Next Online Speech Cop + Doctors vs. ChatGPT + Hard Fork Crimes Division**\
-`“I feel very strongly that the First Amendment is under the most direct threat that any of us will ever really experience.”`\
-https://nytimes.com/2024/11/22/podcasts/trumps-next-online-speech-cop-doctors-vs-chatgpt-hard-fork-crimes-division.html
 
