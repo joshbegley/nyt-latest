@@ -1,3 +1,11 @@
+**UEFA opens disciplinary proceedings after Man City's Shaw struck by object from stands**\
+`UEFA have opened disciplinary proceedings against Hammarby IF after Manchester City forward Khadija Shaw was struck by an object thrown from the stands during their Champions League game on Thursday night.`\
+https://nytimes.com/athletic/5938869/2024/11/22/khadija-shaw-man-city-hammarby/
+
+**Fantasy trends and hidden gems: Keep Jake DeBrusk, kick Brady Skjei and more**\
+`In addition to her usual waiver wire insights, Shayna Goldman brings back Keep or Kick, saying to retain Jake DeBrusk with his line cooking.`\
+https://nytimes.com/athletic/5939625/2024/11/22/fantasy-trends-and-hidden-gems-keep-jake-debrusk-kick-brady-skjei-and-more/
+
 **Alisson and Jota set to miss Real Madrid match, Alexander-Arnold a doubt**\
 `Liverpool head coach Arne Slot does not expect either Alisson or Diogo Jota to be available for next Wednesday&#8217;s Champions League clash with Real Madrid, but Trent Alexander-Arnold has a chance of being fit.`\
 https://nytimes.com/athletic/5940044/2024/11/22/liverpool-alisson-jota-alexander-arnold-injury-update/

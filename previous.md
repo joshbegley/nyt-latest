@@ -1,3 +1,11 @@
+**UEFA opens disciplinary proceedings after Man City's Shaw struck by object from stands**\
+`UEFA have opened disciplinary proceedings against Hammarby IF after Manchester City forward Khadija Shaw was struck by an object thrown from the stands during their Champions League game on Thursday night.`\
+https://nytimes.com/athletic/5938869/2024/11/22/khadija-shaw-man-city-hammarby/
+
+**Fantasy trends and hidden gems: Keep Jake DeBrusk, kick Brady Skjei and more**\
+`In addition to her usual waiver wire insights, Shayna Goldman brings back Keep or Kick, saying to retain Jake DeBrusk with his line cooking.`\
+https://nytimes.com/athletic/5939625/2024/11/22/fantasy-trends-and-hidden-gems-keep-jake-debrusk-kick-brady-skjei-and-more/
+
 **Alisson and Jota set to miss Real Madrid match, Alexander-Arnold a doubt**\
 `Liverpool head coach Arne Slot does not expect either Alisson or Diogo Jota to be available for next Wednesday&#8217;s Champions League clash with Real Madrid, but Trent Alexander-Arnold has a chance of being fit.`\
 https://nytimes.com/athletic/5940044/2024/11/22/liverpool-alisson-jota-alexander-arnold-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5940036/2024/11/22/joelinton-newcastle-break-in/
 **‘This Helps Netanyahu’: Israelis Rally Around Leader Over Warrant, for Now**\
 `An I.C.C. arrest warrant for Prime Minister Benjamin Netanyahu over the war in Gaza spurred outrage across Israel’s political spectrum. But in the long term, it’s not a good look for a prime minister.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-netanyahu-icc-warrant.html
-
-**Browns show resilience and poise in grinding out snowstorm win over Steelers**\
-`Cleveland's willingness to fight was obvious, and it was impressive given the game had much more meaning in the standings for Pittsburgh. `\
-https://nytimes.com/athletic/5939871/2024/11/22/browns-win-thursday-night-steelers/
-
-**Remembering 10 times a season's Jack Adams finalists did not hold up well**\
-`All three of the 2022-23 Jack Adams finalists have now been fired, but that's not even the worst aftermath of the cap era.`\
-https://nytimes.com/athletic/5935251/2024/11/22/remembering-jack-adams-finalists-aftermath/
 
