@@ -1,3 +1,11 @@
+**The Athletic’s Friday football quiz question #31**\
+`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5940013/2024/11/22/the-athletic-friday-football-quiz-question-31/
+
+**Lowetide: How the Oilers' prospect pipeline is growing stronger at centre**\
+`It's clear that centre is a position of strength for the Oilers in the NHL and at all levels of the system.`\
+https://nytimes.com/athletic/5938013/2024/11/22/edmonton-oilers-prospect-pipeline-centre/
+
 **Trump’s Next Online Speech Cop + Doctors vs. ChatGPT + Hard Fork Crimes Division**\
 `“I feel very strongly that the First Amendment is under the most direct threat that any of us will ever really experience.”`\
 https://nytimes.com/2024/11/22/podcasts/trumps-next-online-speech-cop-doctors-vs-chatgpt-hard-fork-crimes-division.html
