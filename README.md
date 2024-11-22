@@ -1,3 +1,7 @@
+**Rangers angry at officials, a Kaapo Kakko center experiment, more: 5 takeaways**\
+`The Rangers' poor play early was too much to overcome, and they lost to the Flames 3-2 in Calgary.`\
+https://nytimes.com/athletic/5939841/2024/11/22/rangers-loss-flames-kaapo-kakko-takeaways/
+
 **Rigg and Bellingham urged to continue development with Sunderland**\
 `The Championship leaders Sunderland return to action at Millwall on Saturday with an ever-increasing number of suitors eyeing the progress of the division’s youngest squad — and Chris Rigg, 17, and Jobe Bellingham, 19, in particular.`\
 https://nytimes.com/athletic/5938114/2024/11/22/sunderland-rigg-bellingham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5937206/2024/11/22/everton-homegrown-dyche-branthwa
 **The importance of Matty Cash**\
 `Despite Cash being less flashy and more functional, Villa’s coaching staff are confident the right-back can keep pace with Emery's demands`\
 https://nytimes.com/athletic/5937186/2024/11/22/matty-cash-role-aston-villa/
-
-**FPL Gameweek 12 mailbag: Budget defenders, wildcards and existential questions**\
-`Holly Shand answers your Fantasy Premier League questions ahead of Gameweek 12`\
-https://nytimes.com/athletic/5935525/2024/11/22/fantasy-premier-league-gameweek-12-mailbag/
 
