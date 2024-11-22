@@ -1,3 +1,11 @@
+**Sean Combs Will Remain Jailed Until Judge Rules on Third Bail Request**\
+`A federal judge is still weighing the music mogul's arguments that he should be freed while awaiting trial on sex trafficking and racketeering charges.`\
+https://nytimes.com/2024/11/22/arts/music/sean-combs-diddy-bail-hearing.html
+
+**Stabbing Suspect’s Descent Into Madness Went Undetected by Authorities**\
+`Ramon Rivera, who had a history of mental illness and minor crimes, missed a check-in with a case manager. Days later, he went on a killing spree in Manhattan, according to the police.`\
+https://nytimes.com/2024/11/22/nyregion/nyc-ramon-rivera-stabbing-mental-health.html
+
 **The Lady Jaguars**\
 `The New York Times first reported on a winless basketball team of troubled teens in Tennessee in 2012. Explore our years of coverage here.`\
 https://nytimes.com/interactive/2024/sports/the-lady-jaguars.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/dining/drinks/thanksgiving-whiskey-cocktails.html
 **Book Club: Let’s Talk About ‘One Hundred Years of Solitude’**\
 `Gabriel García Márquez’s classic novel about the rise and fall of a rural Colombian village as seen through generations of its founding family remains the leading exemplar of magical realism.`\
 https://nytimes.com/2024/11/22/books/review/podcast-gabriel-garcia-marquez-one-hundred-years-of-solitude.html
-
-**A Prominent Figure in Canada’s Trucker Protests Is Found Guilty**\
-`The verdict was in the high-profile case of Pat King, a man accused of helping provoke disruptions during the so-called trucker convoy, which paralyzed Canada’s capital during the pandemic.`\
-https://nytimes.com/2024/11/22/world/canada/pat-king-guilty-freedom-convoy-canada.html
-
-**Is It Possible the Democrats Were Hurt by a Strong Economy?**\
-`An interesting theory about the election that’s the opposite of what you’ve heard.`\
-https://nytimes.com/2024/11/22/opinion/democrats-economy-election.html
 

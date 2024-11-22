@@ -1,3 +1,11 @@
+**Sean Combs Will Remain Jailed Until Judge Rules on Third Bail Request**\
+`A federal judge is still weighing the music mogul's arguments that he should be freed while awaiting trial on sex trafficking and racketeering charges.`\
+https://nytimes.com/2024/11/22/arts/music/sean-combs-diddy-bail-hearing.html
+
+**Stabbing Suspect’s Descent Into Madness Went Undetected by Authorities**\
+`Ramon Rivera, who had a history of mental illness and minor crimes, missed a check-in with a case manager. Days later, he went on a killing spree in Manhattan, according to the police.`\
+https://nytimes.com/2024/11/22/nyregion/nyc-ramon-rivera-stabbing-mental-health.html
+
 **The Lady Jaguars**\
 `The New York Times first reported on a winless basketball team of troubled teens in Tennessee in 2012. Explore our years of coverage here.`\
 https://nytimes.com/interactive/2024/sports/the-lady-jaguars.html
