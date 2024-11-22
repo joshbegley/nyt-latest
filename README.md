@@ -1,3 +1,11 @@
+**The importance of Matty Cash**\
+`Despite Cash being less flashy and more functional, Villa’s coaching staff are confident the right-back can keep pace with Emery's demands`\
+https://nytimes.com/athletic/5937186/2024/11/22/matty-cash-role-aston-villa/
+
+**FPL Gameweek 12 mailbag: Budget defenders, wildcards and existential questions**\
+`Holly Shand answers your Fantasy Premier League questions ahead of Gameweek 12`\
+https://nytimes.com/athletic/5935525/2024/11/22/fantasy-premier-league-gameweek-12-mailbag/
+
 **Browns stun Steelers 24-19 in snow as Chubb scores late TD: Takeaways**\
 `Chubb's first two-touchdown game since 2022 helped fuel Cleveland to its third win of the season.`\
 https://nytimes.com/athletic/5939592/2024/11/22/steelers-browns-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5932436/2024/11/22/the-premier-league-owners-china-
 **The State of Punditry - part 3: Are YouTubers and 'football creators' the future?**\
 `In the final part of our series examining punditry, Tim Spiers looks at where trends are taking analysis now and in the years ahead`\
 https://nytimes.com/athletic/5937145/2024/11/22/football-pundit-youtube-influencer/
-
-**The Premier League returns: Guardiola's contract, Amorim's arrival and could Chelsea be title challengers?**\
-`Our writers analyse some of the big talking points as the Premier League returns from the final international break of 2024`\
-https://nytimes.com/athletic/5937032/2024/11/22/premier-league-returns-guardiola-amorim/
-
-**Next week’s waiver wire: Trey Benson, Devaughn Vele and more players to add now — before the Week 13 rush**\
-`John Laghezza shares his top expected future waiver wire plays, including Trey Benson, who is showing upside as a runner and receiver.`\
-https://nytimes.com/athletic/5937832/2024/11/22/next-weeks-waiver-wire-trey-benson-devaughn-vele-and-more-players-to-add-now-before-the-week-13-rush/
 
