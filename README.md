@@ -1,3 +1,7 @@
+**A Difficult Few Days for Bolsonaro’s Right-Wing Movement**\
+`Accusations that former far-right President Jair Bolsonaro plotted a coup arose after a former top aide of his was implicated in a plan to kill the current president.`\
+https://nytimes.com/2024/11/22/world/americas/bolsonaro-far-right-brazil.html
+
 **Berman says NWSL's organizational values will not change under Trump**\
 `Women’s soccer has been subject to President-elect Trump’s attention over the last two World Cup cycles.`\
 https://nytimes.com/athletic/5940820/2024/11/22/nwsl-trump-commissioner-berman/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/magazine/mom-trump-vote-ethics.html
 **Why You May Be Wrong About Harris’s Loss**\
 `We won’t have enough data to tell the full story of the election for some time. But there are a few things we can say for sure now.`\
 https://nytimes.com/2024/11/22/opinion/election-postmortems.html
-
-**Phillies non-tender Austin Hays; how they'll remake the outfield remains an unknown**\
-`The Phillies' next outfield transactions have become important. They have been active in pursuing trades and have shopped numerous players. `\
-https://nytimes.com/athletic/5941104/2024/11/22/phillies-austin-hays-outfield-2025/
 
