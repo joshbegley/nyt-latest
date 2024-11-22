@@ -1,3 +1,11 @@
+**NFL moves Broncos-Chargers in Week 16 for first 'TNF' flex**\
+`AFC West divisional tilt between two playoff hopefuls replaces Browns vs. Bengals as Prime Video's game of the week. `\
+https://nytimes.com/athletic/5940748/2024/11/22/broncos-vs-chargers-tnf-flex-week-16/
+
+**Slavery’s Ghost Haunts a Booker Prizewinner’s First TV Show**\
+`Marlon James’s new HBO detective series, “Get Millie Black,” draws on Jamaica’s colonial history as well as his family’s experiences.`\
+https://nytimes.com/2024/11/22/arts/television/marlon-james-get-millie-black.html
+
 **Former Building Superintendent Charged With Stealing From Older Tenant**\
 `The super has denied wrongdoing and pleaded not guilty to charges in New York Supreme Court.`\
 https://nytimes.com/2024/11/22/realestate/superintendent-elder-abuse.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/us/trump-states-democrat-legal-challenges.html
 **Scholars Thought White Women Were Passive Enslavers. They Were Wrong.**\
 `For generations, scholars argued that white women were rarely involved in the active buying and selling of Black people. A growing body of research says otherwise.`\
 https://nytimes.com/2024/11/22/us/white-women-american-slave-trade.html
-
-**‘Carl the Collector’ Puts an Autistic Child (Well, Raccoon) in the Lead**\
-`Several recent TV series for adults have featured autistic lead characters. A new PBS show looks to expand that trend into children’s programming.`\
-https://nytimes.com/2024/11/22/arts/television/carl-the-collector-autism-pbs-kids.html
-
-**What I'm hearing about the Canucks' roster crunch, trade options and call-ups**\
-`There are a few big-picture questions for Canucks management at this crucial moment of the season.`\
-https://nytimes.com/athletic/5939806/2024/11/22/canucks-roster-jt-miller-trades/
 
