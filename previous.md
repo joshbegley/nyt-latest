@@ -1,3 +1,11 @@
+**M.I.T. to Offer Free Tuition to Families Earning Less Than $200,000**\
+`For students whose families earn less than $100,000 per year, the school will also other costs, including housing, dining, fees and an allowance for books and personal expenses.`\
+https://nytimes.com/2024/11/21/us/mit-free-tuition.html
+
+**Phillips 66 Is Accused of Violating the Clean Water Act**\
+`The oil company was indicted on charges of dumping nearly 800,000 gallons of contaminated wastewater into the Los Angeles County sewer system.`\
+https://nytimes.com/2024/11/21/technology/phillips-66-wastewater-indictment.html
+
 **Peter Sinfield, Lyricist for King Crimson, Dies at 80**\
 `His swirls of poetic imagery helped define progressive rock in the 1970s. He later turned his focus to pop acts like Celine Dion.`\
 https://nytimes.com/2024/11/21/arts/music/peter-sinfield-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/world/americas/haiti-airports-six-reopened-faa.ht
 **Trump’s Education Secretary Pick Named in Sexual Abuse Lawsuit**\
 `Linda McMahon, who ran World Wrestling Entertainment for decades, was accused in the lawsuit of not preventing one of the organization’s employees from victimizing children who helped set up wrestling rings.`\
 https://nytimes.com/2024/11/21/us/linda-mcmahon-sexual-abuse-lawsuit-trump-education-secretary.html
-
-**Michigan flips QB Bryce Underwood — No. 1 player in 2025 class — from LSU**\
-`Underwood will be the highest-rated quarterback to sign with Michigan in the modern recruiting era. `\
-https://nytimes.com/athletic/5939109/2024/11/21/bryce-underwood-michigan-lsu-recruiting/
-
-**Yankees' Aaron Judge wins 2nd American League MVP award**\
-`Judge, who led the major leagues in multiple hitting categories, became the seventh player in Yankees history to win multiple MVPs.`\
-https://nytimes.com/athletic/5936746/2024/11/21/yankees-aaron-judge-2nd-al-mvp-award/
 

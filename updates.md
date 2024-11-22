@@ -1,3 +1,11 @@
+**M.I.T. to Offer Free Tuition to Families Earning Less Than $200,000**\
+`For students whose families earn less than $100,000 per year, the school will also other costs, including housing, dining, fees and an allowance for books and personal expenses.`\
+https://nytimes.com/2024/11/21/us/mit-free-tuition.html
+
+**Phillips 66 Is Accused of Violating the Clean Water Act**\
+`The oil company was indicted on charges of dumping nearly 800,000 gallons of contaminated wastewater into the Los Angeles County sewer system.`\
+https://nytimes.com/2024/11/21/technology/phillips-66-wastewater-indictment.html
+
 **Trump picks Pam Bondi, Florida’s former top prosecutor, to be attorney general after Gaetz’s withdrawal.**\
 `Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
 https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-attorney-general-trump
