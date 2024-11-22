@@ -1,3 +1,19 @@
+**Israel Strikes Across Lebanon After Ordering Evacuations of Southern Towns**\
+`The wide-scale bombardment of Lebanon continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
+https://nytimes.com/2024/11/22/world/middleeast/israel-lebanon-strikes.html
+
+**Changes in New York City**\
+`How city and state officials are trying to make the city more livable.`\
+https://nytimes.com/2024/11/22/briefing/changes-in-new-york-city.html
+
+**The Pulse: An incredible snow game**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5937414/2024/11/22/steelers-browns-snow-the-pulse/
+
+**Ukraine Cancels Parliament Session, Citing a Warning Over a Missile Attack**\
+`This is the first time Parliament has canceled a session since Russia invaded Ukraine.`\
+https://nytimes.com/2024/11/22/world/europe/ukraine-parliament-canceled-missile.html
+
 **As Ukraine Fires U.S. Missiles, Putin Sends a Chilling Message**\
 `The Russian leader ominously declares that America risks nuclear war as it expands its aid.`\
 https://nytimes.com/2024/11/22/world/europe/ukraine-russia-us-trump-putin.html
