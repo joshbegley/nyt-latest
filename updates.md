@@ -1,3 +1,7 @@
+**‘This Helps Netanyahu’: Israelis Rally Around Leader Over Warrant, for Now**\
+`An I.C.C. arrest warrant for Prime Minister Benjamin Netanyahu over the war in Gaza spurred outrage across Israel’s political spectrum. But in the long term, it’s not a good look for a prime minister.`\
+https://nytimes.com/2024/11/22/world/middleeast/israel-netanyahu-icc-warrant.html
+
 **What Drake Maye is doing to elevate the Patriots offense, exceed expectations**\
 `Film shows the rookie is handling pressure better than he did in college while his arm talent is making up for the Pats' limited weapons.`\
 https://nytimes.com/athletic/5936978/2024/11/22/drake-maye-patriots-offense/
