@@ -1,3 +1,11 @@
+**The importance of Matty Cash**\
+`Despite Cash being less flashy and more functional, Villa’s coaching staff are confident the right-back can keep pace with Emery's demands`\
+https://nytimes.com/athletic/5937186/2024/11/22/matty-cash-role-aston-villa/
+
+**FPL Gameweek 12 mailbag: Budget defenders, wildcards and existential questions**\
+`Holly Shand answers your Fantasy Premier League questions ahead of Gameweek 12`\
+https://nytimes.com/athletic/5935525/2024/11/22/fantasy-premier-league-gameweek-12-mailbag/
+
 **Browns stun Steelers 24-19 in snow as Chubb scores late TD: Takeaways**\
 `Chubb's first two-touchdown game since 2022 helped fuel Cleveland to its third win of the season.`\
 https://nytimes.com/athletic/5939592/2024/11/22/steelers-browns-score-result-takeaways/
