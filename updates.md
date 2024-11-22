@@ -1,3 +1,7 @@
+**Heat Today: Thanksgiving spirit off the court, while relying on '1A and 1B' off it**\
+`What happens when the Heat spread Thanksgiving cheer? "A lot of people are going to have a great holiday because of this," Pat Riley said.`\
+https://nytimes.com/athletic/5940353/2024/11/22/miami-heat-thanksgiving-erik-spoelstra-bam-adebayo-pat-riley-dallas-mavericks/
+
 **A Difficult Few Days for Bolsonaro’s Right-Wing Movement**\
 `Accusations that former far-right President Jair Bolsonaro plotted a coup arose after a former top aide of his was implicated in a plan to kill the current president.`\
 https://nytimes.com/2024/11/22/world/americas/bolsonaro-far-right-brazil.html

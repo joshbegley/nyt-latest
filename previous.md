@@ -1,3 +1,7 @@
+**Heat Today: Thanksgiving spirit off the court, while relying on '1A and 1B' off it**\
+`What happens when the Heat spread Thanksgiving cheer? "A lot of people are going to have a great holiday because of this," Pat Riley said.`\
+https://nytimes.com/athletic/5940353/2024/11/22/miami-heat-thanksgiving-erik-spoelstra-bam-adebayo-pat-riley-dallas-mavericks/
+
 **A Difficult Few Days for Bolsonaro’s Right-Wing Movement**\
 `Accusations that former far-right President Jair Bolsonaro plotted a coup arose after a former top aide of his was implicated in a plan to kill the current president.`\
 https://nytimes.com/2024/11/22/world/americas/bolsonaro-far-right-brazil.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009840644/west-coast-storms-seattle-northern-
 **My Mom Voted for Trump. Can We Let It Go?**\
 `The magazine’s Ethicist columnist on how a family might proceed in the wake of a momentous presidential election.`\
 https://nytimes.com/2024/11/22/magazine/mom-trump-vote-ethics.html
-
-**Why You May Be Wrong About Harris’s Loss**\
-`We won’t have enough data to tell the full story of the election for some time. But there are a few things we can say for sure now.`\
-https://nytimes.com/2024/11/22/opinion/election-postmortems.html
 
