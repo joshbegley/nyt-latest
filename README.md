@@ -6,7 +6,7 @@ https://nytimes.com/2024/11/22/t-magazine/home-gallery-exhibition.html
 `The Senate majority leader is staying out of Republican turmoil over the more contentious picks for strategic reasons.`\
 https://nytimes.com/2024/11/22/us/politics/schumer-trump-republicans.html
 
-**Ayto talked up by Mikel Arteta after US talks with Arsenal owners**\
+**Ayto praised by Mikel Arteta after US talks with Arsenal owners**\
 `Mikel Arteta has talked up the credentials of interim sporting director Jason Ayto as Arsenal continue their search for Edu&#8217;s successor.`\
 https://nytimes.com/athletic/5940585/2024/11/22/jason-ayto-arsenal-mikel-arteta/
 
