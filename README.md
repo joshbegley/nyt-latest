@@ -27,7 +27,7 @@ https://nytimes.com/2024/11/21/us/politics/marjorie-taylor-greene-doge-elon-musk
 https://nytimes.com/2024/11/21/us/botham-jean-settlement-compensation.html
 
 **M.I.T. to Offer Free Tuition to Families Earning Less Than $200,000**\
-`For students whose families earn less than $100,000 per year, the school will also other costs, including housing, dining, fees and an allowance for books and personal expenses.`\
+`For students whose families earn less than $100,000 per year, the school will also cover other costs, including housing, dining, fees and an allowance for books and personal expenses.`\
 https://nytimes.com/2024/11/21/us/mit-free-tuition.html
 
 **Phillips 66 Is Accused of Violating the Clean Water Act**\
