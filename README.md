@@ -27,7 +27,7 @@ https://nytimes.com/2024/11/22/podcasts/trumps-next-online-speech-cop-doctors-vs
 https://nytimes.com/2024/11/22/world/asia/russia-north-korea-missiles-troops.html
 
 **Israel Strikes Across Lebanon After Ordering Evacuations of Southern Towns**\
-`The wide-scale bombardment of Lebanon continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
+`The wide-scale bombardment continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-lebanon-strikes.html
 
 **Changes in New York City**\
