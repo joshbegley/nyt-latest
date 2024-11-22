@@ -1,3 +1,7 @@
+**Police in New Jersey’s Capital Violate Residents’ Rights, U.S. Finds**\
+`Officers in Trenton have caused the deaths of innocent people, a Justice Department report found, citing a fatality that occurred after officers pushed a man’s face into the ground.`\
+https://nytimes.com/2024/11/21/nyregion/nj-police-violence-misconduct-justice-department.html
+
 **Caitlin Clark joins group looking to bring NWSL team to Cincinnati**\
 `Cincinnati is considered a finalist in the race to land the NWSL’s 16th franchise.`\
 https://nytimes.com/athletic/5939553/2024/11/21/caitlin-clark-nwsl-cincinnati-team-ownership/
