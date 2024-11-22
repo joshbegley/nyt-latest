@@ -1,3 +1,7 @@
+**Police in New Jersey’s Capital Violate Residents’ Rights, U.S. Finds**\
+`Officers in Trenton have caused the deaths of innocent people, a Justice Department report found, citing a fatality that occurred after officers pushed a man’s face into the ground.`\
+https://nytimes.com/2024/11/21/nyregion/nj-police-violence-misconduct-justice-department.html
+
 **Caitlin Clark joins group looking to bring NWSL team to Cincinnati**\
 `Cincinnati is considered a finalist in the race to land the NWSL’s 16th franchise.`\
 https://nytimes.com/athletic/5939553/2024/11/21/caitlin-clark-nwsl-cincinnati-team-ownership/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5935070/2024/11/21/f1-vegas-mailbag-verstappen-cham
 **Review: In ‘Death Becomes Her,’ Spiking the Fountain of Youth**\
 `Hilarious star turns from Megan Hilty and Jennifer Simard make the mostly unfunny 1992 film into an intermittently memorable Broadway musical.`\
 https://nytimes.com/2024/11/21/theater/death-becomes-her-review-hilty-simard.html
-
-**Alyssa Nakken leaves Giants for role with Guardians: Source**\
-`Nakken, who served as an assistant coach from 2020-24, interviewed for the Giants' managerial vacancy in 2023. `\
-https://nytimes.com/athletic/5939389/2024/11/21/alyssa-nakken-guardians-giants/
 
