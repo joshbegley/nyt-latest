@@ -1,3 +1,15 @@
+**When Your Living Room Is Also a Gallery**\
+`Tired of the featureless white cube, curators and dealers are staging shows in the most personal spaces of all: their homes.`\
+https://nytimes.com/2024/11/22/t-magazine/home-gallery-exhibition.html
+
+**Behind Schumer’s Silence on Trump’s Picks, a Bid to Spotlight G.O.P. Divides**\
+`The Senate majority leader is staying out of Republican turmoil over the more contentious picks for strategic reasons.`\
+https://nytimes.com/2024/11/22/us/politics/schumer-trump-republicans.html
+
+**Ayto talked up by Mikel Arteta after US talks with Arsenal owners**\
+`Mikel Arteta has talked up the credentials of interim sporting director Jason Ayto as Arsenal continue their search for Edu&#8217;s successor.`\
+https://nytimes.com/athletic/5940585/2024/11/22/jason-ayto-arsenal-mikel-arteta/
+
 **Orban Invites Netanyahu to Hungary, Flouting I.C.C. Arrest Warrant**\
 `Hungary, unlike the United States, is a signatory to the court, which accused the Israeli leader of war crimes in Gaza.`\
 https://nytimes.com/2024/11/22/world/middleeast/netanyahu-orban-icc-hungary-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5940440/2024/11/22/eberechi-eze-injury-update-cryst
 **Hwang to return to Wolves squad after six-week injury absence**\
 `Wolverhampton Wanderers will welcome Hwang Hee-chan into the squad for Saturday&#8217;s trip to Fulham after six weeks out with an ankle injury.`\
 https://nytimes.com/athletic/5940462/2024/11/22/hwang-injury-wolves-team-news/
-
-**Konsa set to be sidelined for Crystal Palace fixture**\
-`Ezri Konsa has been ruled out of Aston Villa&#8217;s game against Crystal Palace on Saturday.`\
-https://nytimes.com/athletic/5940447/2024/11/22/ezri-konsa-aston-villa-injury-update/
-
-**High-Yield Savings Accounts Are Still a Good Deal**\
-`Interest rates have been falling, but deposits are earning more than inflation.`\
-https://nytimes.com/2024/11/22/your-money/savings-accounts-interest-rates.html
-
-**Sharks stock report: Who's up and who's down through 22 games?**\
-`The Sharks are through a quarter of the season. It’s a good time to take stock of individual performances.`\
-https://nytimes.com/athletic/5940005/2024/11/22/sharks-nhl-stock-up-stock-down/
 
