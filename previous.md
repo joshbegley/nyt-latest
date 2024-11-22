@@ -1,3 +1,11 @@
+**49ers QB Brock Purdy ruled out vs. Packers**\
+`San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
+https://nytimes.com/athletic/5941234/2024/11/22/49ers-qb-brock-purdy-out-packers/
+
+**Raiders RBs Mattison, White doubtful: How Abdullah stands to benefit**\
+`Throughout his career, Ameer Abdullah has served primarily as a pass-catching option and stands to see more snaps with top two backs out. `\
+https://nytimes.com/athletic/5941200/2024/11/22/raiders-rbs-alexander-mattison-zamir-white-ameer-abdullah/
+
 **Supreme Court Agrees to Hear Fresh Challenge to Agency Power**\
 `A conservative group argues that Congress gave the Federal Communications Commission too much discretion over an $8 billion fund.`\
 https://nytimes.com/2024/11/22/us/supreme-court-fcc-agency-power.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5941337/2024/11/22/harry-kane-bundesliga-record/
 **Clear Eyes. Foam Head. Can’t Lose.**\
 `The New York Times for Kids goes inside the sweaty, funny, heartfelt world of high school mascots.`\
 https://nytimes.com/2024/11/22/magazine/high-school-mascots.html
-
-**Yankees’ Aaron Judge on Juan Soto pursuit: ‘He knows how we feel about him’**\
-`Soto finished third in AL MVP ballots after a landmark season hitting in front of Judge.`\
-https://nytimes.com/athletic/5941279/2024/11/22/yankees-aaron-judge-juan-soto-free-agency/
-
-**Legacy: A Modern Renaissance **\
-`One hundred years ago in New York City, a burgeoning cultural movement sparked what would become the Harlem Renaissance.`\
-https://nytimes.com/paidpost/us-bank/legacy-a-modern-renaissance.html
 

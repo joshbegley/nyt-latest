@@ -1,3 +1,11 @@
+**49ers QB Brock Purdy ruled out vs. Packers**\
+`San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
+https://nytimes.com/athletic/5941234/2024/11/22/49ers-qb-brock-purdy-out-packers/
+
+**Raiders RBs Mattison, White doubtful: How Abdullah stands to benefit**\
+`Throughout his career, Ameer Abdullah has served primarily as a pass-catching option and stands to see more snaps with top two backs out. `\
+https://nytimes.com/athletic/5941200/2024/11/22/raiders-rbs-alexander-mattison-zamir-white-ameer-abdullah/
+
 **Supreme Court Agrees to Hear Fresh Challenge to Agency Power**\
 `A conservative group argues that Congress gave the Federal Communications Commission too much discretion over an $8 billion fund.`\
 https://nytimes.com/2024/11/22/us/supreme-court-fcc-agency-power.html
