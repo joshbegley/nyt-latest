@@ -1,3 +1,7 @@
+**A Prominent Figure in Canada’s Trucker Protests Is Found Guilty**\
+`The verdict was in the high-profile case of Pat King, a man accused of helping provoke disruptions during the so-called trucker convoy, which paralyzed Canada’s capital during the pandemic.`\
+https://nytimes.com/2024/11/22/world/canada/pat-king-guilty-freedom-convoy-canada.html
+
 **Is It Possible the Democrats Were Hurt by a Strong Economy?**\
 `An interesting theory about the election that’s the opposite of what you’ve heard.`\
 https://nytimes.com/2024/11/22/opinion/democrats-economy-election.html
