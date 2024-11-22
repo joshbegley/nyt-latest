@@ -1,3 +1,7 @@
+**Row Z: Tottenham's daring rebrand, $2.5m-a-minute Neymar and Infantino's (two!) trophy engravings**\
+`Tim Spiers' weekly look at football's strange and sillier side — including Venezuela's well-timed use of water sprinklers to stop Brazil`\
+https://nytimes.com/athletic/5938883/2024/11/22/tottenham-logo-neymar-infantino-club-world-cup/
+
 **The Athletic’s Friday football quiz question #31**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5940013/2024/11/22/the-athletic-friday-football-quiz-question-31/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/world/europe/ukraine-parliament-canceled-missile.
 **As Ukraine Fires U.S. Missiles, Putin Sends a Chilling Message**\
 `The Russian leader ominously declares that America risks nuclear war as it expands its aid.`\
 https://nytimes.com/2024/11/22/world/europe/ukraine-russia-us-trump-putin.html
-
-**Court Vision: An early contender for game of the season, triple-doubles appreciation**\
-`Baylor-St. John's went to double overtime and ended with a buzzer beater. Which teams are being underrated? Plus, the game of the weekend.`\
-https://nytimes.com/athletic/5939327/2024/11/22/court-vision-baylor-st-johns-marquette-triple-doubles/
 
