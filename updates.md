@@ -1,3 +1,7 @@
+**Leading lawyer calls on sport to introduce independent safeguarding regulator**\
+`One of the United Kingdom’s most experienced prosecutors has called on sport to introduce an independent safeguarding regulator in the wake of several high-profile allegations of abuse.`\
+https://nytimes.com/athletic/5940182/2024/11/22/safeguarding-regulator-sport-nazir-afzal/
+
 **Live Q&A: FPL Gameweek 12 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 12 Q&A from 4-5pm UK time `\
 https://nytimes.com/athletic/5937263/2024/11/22/fantasy-premier-league-advice-injury-news-gw12/
