@@ -1,3 +1,11 @@
+**Why Germany’s Economy, Once a Leader in Europe, Is Now in Crisis**\
+`The country is facing a second year of zero growth, with industry leaders gloomy and worried about potential tariffs from President-elect Donald Trump.`\
+https://nytimes.com/2024/11/22/business/germany-economy-budget-elections.html
+
+**M. Jodi Rell, Former Republican Governor of Connecticut, Dies at 78**\
+`She was lieutenant governor when her boss, John G. Rowland, resigned in a corruption scandal. The second woman to lead the state, she was later elected in her own right.`\
+https://nytimes.com/2024/11/22/nyregion/m-jodi-rell-dead.html
+
 **Bluesky, Smiling at Me**\
 `Bluesky has a hint of the old Twitter magic, but the feeling of freedom it offers might be even better.`\
 https://nytimes.com/2024/11/22/technology/bluesky-x-alternative.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5940454/2024/11/22/fantasy-football-flex-fliers-wee
 **Loathe Thy Neighbor, at Least in These 4 Crime Novels**\
 `Our critic on November’s best new books.`\
 https://nytimes.com/2024/11/22/books/review/new-crime-fiction.html
-
-**Covid Can Raise the Risk of Heart Problems for Years**\
-`People who had severe infections are especially vulnerable.`\
-https://nytimes.com/2024/11/22/well/covid-heart-health.html
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 12?**\
-`With the final international break of 2024 over and the Premier League returning, our writers have had a go at naming the starting XIs`\
-https://nytimes.com/athletic/5931636/2024/11/22/premier-league-predicted-line-ups-who-do-our-writers-think-will-start-in-gameweek-12/
 
