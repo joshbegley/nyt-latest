@@ -1,3 +1,11 @@
+**F1 Las Vegas GP mailbag: When will Max Verstappen clinch his fourth title?**\
+`We answered a few questions from our pre-race mailbag before F1's biggest American race of the year.`\
+https://nytimes.com/athletic/5935070/2024/11/21/f1-vegas-mailbag-verstappen-championship-tickets/
+
+**Bondi Worked as Lobbyist in Recent Years, With Clients Including Amazon, G.M., Uber and Qatar**\
+`President-elect Donald J. Trump’s new choice to be attorney general joined a powerhouse Republican firm after her second term as Florida’s attorney general.`\
+https://nytimes.com/2024/11/21/us/politics/pam-bondi-trump-ag-lobbyist.html
+
 **Bondi has been a lobbyist in recent years, with clients including Amazon, G.M., Uber and Qatar.**\
 `By Kenneth P. Vogel`\
 https://nytimes.com/2024/11/21/us/politics/pam-bondi-lobbyist.html
