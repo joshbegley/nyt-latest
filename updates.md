@@ -1,3 +1,7 @@
+**Penny Trial Defense Shifts Focus From Choke to Sickle Cell and Drug Use**\
+`Lawyers for Daniel Penny, who is accused of choking Jordan Neely to death, called an expert who argued that a combination of factors led to Mr. Neely’s death.`\
+https://nytimes.com/2024/11/22/nyregion/daniel-penny-defense-jordan-neely.html
+
 **Trump Picks Key Figure in Project 2025 for Powerful Budget Role**\
 `Russell Vought, who would lead the Office of Management and Budget, has spent years building plans to rework the American structure of government in ways that would enhance presidential power.`\
 https://nytimes.com/2024/11/22/us/politics/russell-vought-office-of-management-and-budget.html
