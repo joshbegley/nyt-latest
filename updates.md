@@ -1,3 +1,7 @@
+**Hollinger: Orlando's Franz Wagner is writing his All-Star origin story**\
+`Wagner piled up 37 points and 11 assists along with the dagger in LA. And it didn't come as a surprise to his teammates or coaches.`\
+https://nytimes.com/athletic/5939985/2024/11/22/franz-wagner-orlando-magic-game-winner/
+
 **Leading lawyer calls on sport to introduce independent safeguarding regulator**\
 `One of the United Kingdom’s most experienced prosecutors has called on sport to introduce an independent safeguarding regulator in the wake of several high-profile allegations of abuse.`\
 https://nytimes.com/athletic/5940182/2024/11/22/safeguarding-regulator-sport-nazir-afzal/
