@@ -1,3 +1,7 @@
+**Sharks stock report: Who's up and who's down through 22 games?**\
+`The Sharks are through a quarter of the season. It’s a good time to take stock of individual performances.`\
+https://nytimes.com/athletic/5940005/2024/11/22/sharks-nhl-stock-up-stock-down/
+
 **The New York Times Presents: ‘Weight of the World’**\
 `As GLP-1 medications like Ozempic soar in popularity, our new documentary follows three people on their weight-loss journeys — and explores how decades of diet culture paved the way for the drugs’ rise.`\
 https://nytimes.com/2024/11/22/NYT-Presents/ozempic-weight-of-the-world.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5932289/2024/11/22/aj-green-bucks-defense/
 **'He’s really hungry': Inside Poona Ford's resurgent season for Chargers defense**\
 `Ford signed a veteran minimum contract with the Chargers after barely playing for the Bills last season. He's been a revelation. `\
 https://nytimes.com/athletic/5938996/2024/11/22/poona-ford-chargers-defense-bills/
-
-**Trump Transition Live Updates: Picking Pam Bondi for Attorney General, Trump Moves Quickly Past Gaetz**\
-``\
-https://nytimes.com/live/2024/11/22/us/trump-cabinet-news
 
