@@ -1,3 +1,7 @@
+**Slegers could not have done much more - what will Arsenal do next in head coach search?**\
+`Arsenal's interim head coach has not overplayed her card in public - but results say everything about her impact since replacing Eidevall`\
+https://nytimes.com/athletic/5939269/2024/11/22/arsenal-women-renee-slegers-head-coach/
+
 **Wild back up Marc-Andre Fleury after he allows 'dumb' goal amid latest milestone**\
 `The Wild had Fleury’s back during a 5-3 win over the Oilers on Thursday night.`\
 https://nytimes.com/athletic/5939879/2024/11/22/wild-marc-andre-fleury-milestone/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5939754/2024/11/22/blackhawks-bedard-shutdown-role-
 **How Ao Tanaka is making himself undroppable for Leeds**\
 `The Japan international has surpassed expectations at Elland Road - and now Ethan Ampadu and Ilia Gruev no longer feel untouchable`\
 https://nytimes.com/athletic/5869607/2024/11/22/ao-tanaka-leeds-united-midfield-undroppable/
-
-**2026 World Cup: When can tickets be bought and how much will they cost?**\
-`FIFA has warned about buying from "unofficial ticketing websites" for the 2026 World Cup, so what are fans' best options? `\
-https://nytimes.com/athletic/5880201/2024/11/22/world-cup-2026-tickets-prices-release-date/
 

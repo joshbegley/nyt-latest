@@ -1,3 +1,7 @@
+**Slegers could not have done much more - what will Arsenal do next in head coach search?**\
+`Arsenal's interim head coach has not overplayed her card in public - but results say everything about her impact since replacing Eidevall`\
+https://nytimes.com/athletic/5939269/2024/11/22/arsenal-women-renee-slegers-head-coach/
+
 **Wild back up Marc-Andre Fleury after he allows 'dumb' goal amid latest milestone**\
 `The Wild had Fleury’s back during a 5-3 win over the Oilers on Thursday night.`\
 https://nytimes.com/athletic/5939879/2024/11/22/wild-marc-andre-fleury-milestone/
