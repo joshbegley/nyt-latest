@@ -1,3 +1,7 @@
+**Bondi has been a lobbyist in recent years, with clients including Amazon, G.M., Uber and Qatar.**\
+`By Kenneth P. Vogel`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-lobbyist
+
 **A Classic Holiday Dessert Reimagined**\
 `Quick, easy and glucose-friendly.`\
 https://nytimes.com/paidpost/abbott-lingo/a-classic-holiday-dessert-reimagined.html
