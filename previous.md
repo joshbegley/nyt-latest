@@ -1,3 +1,7 @@
+**Browns show resilience and poise in grinding out snowstorm win over Steelers**\
+`Cleveland's willingness to fight was obvious, and it was impressive given the game had much more meaning in the standings for Pittsburgh. `\
+https://nytimes.com/athletic/5939871/2024/11/22/browns-win-thursday-night-steelers/
+
 **Remembering 10 times a season's Jack Adams finalists did not hold up well**\
 `All three of the 2022-23 Jack Adams finalists have now been fired, but that's not even the worst aftermath of the cap era.`\
 https://nytimes.com/athletic/5935251/2024/11/22/remembering-jack-adams-finalists-aftermath/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/opinion/trump-appointments-senate-constitution.ht
 **Marie Gluesenkamp Perez: ‘I Don’t Think More Lawyers Running for Office Is the Solution’**\
 `Lessons from a Democratic winner in Trump country.`\
 https://nytimes.com/2024/11/22/opinion/marie-gluesenkamp-perez-democrats-trump.html
-
-**Will Musk Be the Death of NASA?**\
-`SpaceX is on top right now, and, presumably, Musk wants to keep it that way.`\
-https://nytimes.com/live/2024/11/19/opinion/thepoint/will-musk-be-the-death-of-nasa
 

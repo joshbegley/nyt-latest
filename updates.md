@@ -1,3 +1,7 @@
+**Browns show resilience and poise in grinding out snowstorm win over Steelers**\
+`Cleveland's willingness to fight was obvious, and it was impressive given the game had much more meaning in the standings for Pittsburgh. `\
+https://nytimes.com/athletic/5939871/2024/11/22/browns-win-thursday-night-steelers/
+
 **Remembering 10 times a season's Jack Adams finalists did not hold up well**\
 `All three of the 2022-23 Jack Adams finalists have now been fired, but that's not even the worst aftermath of the cap era.`\
 https://nytimes.com/athletic/5935251/2024/11/22/remembering-jack-adams-finalists-aftermath/
