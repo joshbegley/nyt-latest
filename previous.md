@@ -1,3 +1,19 @@
+**What Drake Maye is doing to elevate the Patriots offense, exceed expectations**\
+`Film shows the rookie is handling pressure better than he did in college while his arm talent is making up for the Pats' limited weapons.`\
+https://nytimes.com/athletic/5936978/2024/11/22/drake-maye-patriots-offense/
+
+**The secret to Canadiens finding their defensive game has little to do with defencemen**\
+`The Canadiens' defensive game has been much improved and it's largely because the forwards are making the defencemen's lives easier.`\
+https://nytimes.com/athletic/5939776/2024/11/22/canadiens-defensive-game-forward-pressure/
+
+**Dan Quinn has provided a taste of community that Commanders players appreciate**\
+`Quinn sincerely cares about his players, and that's something many on Washington's roster have known long before this season.`\
+https://nytimes.com/athletic/5938941/2024/11/22/dan-quinn-commanders-cowboys/
+
+**Newcastle's Joelinton 'shaken up' after house is broken into for second time**\
+`Joelinton was &#8220;shaken up&#8221; after his house was broken into for the second time this year and Eddie Howe has had &#8220;several conversations&#8221; with the Brazilian about his situation and the safety of his family.`\
+https://nytimes.com/athletic/5940036/2024/11/22/joelinton-newcastle-break-in/
+
 **‘This Helps Netanyahu’: Israelis Rally Around Netanyahu Over Warrant, for Now**\
 `An I.C.C. arrest warrant for Prime Minister Benjamin Netanyahu over the war in Gaza spurred outrage across Israel’s political spectrum. But in the long term, it’s not a good look for a prime minister.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-netanyahu-icc-warrant.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5935504/2024/11/22/michigan-football-sherrone-moore
 **How the Rams' young defensive line went from a poor start to league-leading production**\
 `"We’re just a group of hungry guys who are trying to do everything the right way," Rams second-year defensive lineman Kobie Turner said.`\
 https://nytimes.com/athletic/5939399/2024/11/22/rams-defensive-line-production-kobie-turner-verse-fiske/
-
-**Here's what Penn State needs to happen to make the Big Ten title game or the Playoff**\
-`Penn State's chances of making the Big Ten championship game are low, but the Nittany Lions are still firmly in the Playoff mix.`\
-https://nytimes.com/athletic/5939607/2024/11/22/penn-state-nittany-lions-big-ten-college-football-playoff/
-
-**Panthers exec Brandt Tilis won 3 rings in KC. He sees a Super Bowl path for Panthers**\
-`Tilis spent 14 seasons in Kansas City and learned a lot about team-building and winning. He wants to see that happen with Carolina.`\
-https://nytimes.com/athletic/5939095/2024/11/22/panthers-brandt-tilis-front-office-chiefs/
-
-**How to Avoid Awkward Holiday Conversations**\
-`All you need is 30 seconds to prep.`\
-https://nytimes.com/2024/11/22/well/awkward-conversations-thanksgiving-christmas-holiday.html
-
-**Trump Tries on His Crown**\
-`The Constitution is not a grant of power for a king.`\
-https://nytimes.com/2024/11/22/opinion/trump-appointments-senate-constitution.html
 

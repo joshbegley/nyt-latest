@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5938941/2024/11/22/dan-quinn-commanders-cowboys/
 `Joelinton was &#8220;shaken up&#8221; after his house was broken into for the second time this year and Eddie Howe has had &#8220;several conversations&#8221; with the Brazilian about his situation and the safety of his family.`\
 https://nytimes.com/athletic/5940036/2024/11/22/joelinton-newcastle-break-in/
 
-**‘This Helps Netanyahu’: Israelis Rally Around Netanyahu Over Warrant, for Now**\
+**‘This Helps Netanyahu’: Israelis Rally Around Leader Over Warrant, for Now**\
 `An I.C.C. arrest warrant for Prime Minister Benjamin Netanyahu over the war in Gaza spurred outrage across Israel’s political spectrum. But in the long term, it’s not a good look for a prime minister.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-netanyahu-icc-warrant.html
 
