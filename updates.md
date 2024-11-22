@@ -1,3 +1,11 @@
+**Chiefs signing D.J. Humphries to boost offensive line depth**\
+`Kansas City added Humphries with Wanya Morris battling a knee injury and the rookie Kingsley Suamataia's growing pains.`\
+https://nytimes.com/athletic/5941471/2024/11/22/chiefs-sign-d-j-humphries-offensive-line/
+
+**Pam Bondi, a $25,000 Donation and Trump University: Questions Remain**\
+`While Ms. Bondi, President-elect Donald J. Trump’s pick for attorney general, served as attorney general of Florida, her office declined to investigate allegations of fraud against his for-profit school.`\
+https://nytimes.com/2024/11/22/us/politics/pam-bondi-trump-university.html
+
 **Blue Jays non-tender former closer Jordan Romano, creating bigger hole in bullpen**\
 `Romano was a standout closer from 2021-23 but struggled with injuries in 2024.`\
 https://nytimes.com/athletic/5938435/2024/11/22/blue-jays-jordan-romano-non-tender/
