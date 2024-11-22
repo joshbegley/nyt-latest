@@ -1,3 +1,11 @@
+**General Motors close to approval for F1 grid spot in 2026**\
+`LAS VEGAS — General Motors is edging toward securing a place on the Formula One grid with its own team as early as 2026 when the field could expand to 11 teams.`\
+https://nytimes.com/athletic/5940015/2024/11/22/f1-general-motors-entry-approval-2026/
+
+**An Asteroid’s Destruction May Have Given Mars Rings, Then Moons**\
+`Scientists simulated a situation that may offer an improved explanation for how the Red Planet ended up with small Phobos and tiny Deimos.`\
+https://nytimes.com/2024/11/22/science/mars-moons-asteroids-rings.html
+
 **‘Spellbound’ Review: Borrowed Wonder**\
 `Any magic this animated musical has feels distinctly, almost insultingly poached.`\
 https://nytimes.com/2024/11/22/movies/spellbound-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5939892/2024/11/22/struggling-edmonton-oilers-stuar
 **Slegers could not have done much more - what will Arsenal do next in head coach search?**\
 `Arsenal's interim head coach has not overplayed her card in public - but results say everything about her impact since replacing Eidevall`\
 https://nytimes.com/athletic/5939269/2024/11/22/arsenal-women-renee-slegers-head-coach/
-
-**Wild back up Marc-Andre Fleury after he allows 'dumb' goal amid latest milestone**\
-`The Wild had Fleury’s back during a 5-3 win over the Oilers on Thursday night.`\
-https://nytimes.com/athletic/5939879/2024/11/22/wild-marc-andre-fleury-milestone/
-
-**Jason Kelce to host late-night show on ESPN beginning in January**\
-`The hour-long program will run on Friday nights/Saturday mornings beginning at 1 a.m for the fuse four episodes and 1:30 for the final one`\
-https://nytimes.com/athletic/5939463/2024/11/22/jason-kelce-espn-late-night-show/
 

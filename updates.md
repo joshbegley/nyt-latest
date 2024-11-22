@@ -1,3 +1,11 @@
+**General Motors close to approval for F1 grid spot in 2026**\
+`LAS VEGAS — General Motors is edging toward securing a place on the Formula One grid with its own team as early as 2026 when the field could expand to 11 teams.`\
+https://nytimes.com/athletic/5940015/2024/11/22/f1-general-motors-entry-approval-2026/
+
+**An Asteroid’s Destruction May Have Given Mars Rings, Then Moons**\
+`Scientists simulated a situation that may offer an improved explanation for how the Red Planet ended up with small Phobos and tiny Deimos.`\
+https://nytimes.com/2024/11/22/science/mars-moons-asteroids-rings.html
+
 **‘Spellbound’ Review: Borrowed Wonder**\
 `Any magic this animated musical has feels distinctly, almost insultingly poached.`\
 https://nytimes.com/2024/11/22/movies/spellbound-review.html
