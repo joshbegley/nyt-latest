@@ -1,3 +1,7 @@
+**Trump’s Next Online Speech Cop + Doctors vs. ChatGPT + Hard Fork Crimes Division**\
+`“I feel very strongly that the First Amendment is under the most direct threat that any of us will ever really experience.”`\
+https://nytimes.com/2024/11/22/podcasts/trumps-next-online-speech-cop-doctors-vs-chatgpt-hard-fork-crimes-division.html
+
 **Russia Supplies Antiaircraft Missiles to North Korea, South Korea Says**\
 `Pyongyang has long coveted an advanced air-defense system to guard against missiles and war planes from the United States and South Korea.`\
 https://nytimes.com/2024/11/22/world/asia/russia-north-korea-missiles-troops.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938065/2024/11/22/colorado-football-shedeur-sander
 **Can offense break free after firing OC? Wisconsin-Nebraska game keys and prediction**\
 `Could the Badgers introduce enough tweaks on short notice to again create meaningful change, even if just for a game?`\
 https://nytimes.com/athletic/5938552/2024/11/22/wisconsin-football-nebraska-prediction/
-
-**Chiefs defense lacking the same pass-rush production from last year's Super Bowl team**\
-`In the Chiefs' 10 games this season, their defense has produced just 19 sacks, ranking 27th in the league.`\
-https://nytimes.com/athletic/5939069/2024/11/22/chiefs-defense-pass-rush-chris-jones-steve-spagnuolo/
 

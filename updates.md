@@ -1,3 +1,7 @@
+**Trump’s Next Online Speech Cop + Doctors vs. ChatGPT + Hard Fork Crimes Division**\
+`“I feel very strongly that the First Amendment is under the most direct threat that any of us will ever really experience.”`\
+https://nytimes.com/2024/11/22/podcasts/trumps-next-online-speech-cop-doctors-vs-chatgpt-hard-fork-crimes-division.html
+
 **Russia Supplies Antiaircraft Missiles to North Korea, South Korea Says**\
 `Pyongyang has long coveted an advanced air-defense system to guard against missiles and war planes from the United States and South Korea.`\
 https://nytimes.com/2024/11/22/world/asia/russia-north-korea-missiles-troops.html
