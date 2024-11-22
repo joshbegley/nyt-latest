@@ -1,3 +1,27 @@
+**‘Spellbound’ Review: Borrowed Wonder**\
+`Any magic this animated musical has feels distinctly, almost insultingly poached.`\
+https://nytimes.com/2024/11/22/movies/spellbound-review.html
+
+**The Liberal New Yorkers Who Say They’re Tuning Out the News**\
+`In the wake of the election, some New York City news addicts are quitting cold turkey. Can they really keep it up?`\
+https://nytimes.com/2024/11/22/nyregion/nyc-news-fast-trump.html
+
+**A Surprise**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/11/22/learning/a-surprise.html
+
+**New York’s Soccer Clubs Meet in a Playoff, and the Loathing Is Mutual**\
+`The Red Bulls and the New York City Football Club face one another on Saturday. Much of the metro area is blasé, but the fan bases are frothing.`\
+https://nytimes.com/2024/11/22/nyregion/nyc-soccer-red-bulls-nycfc.html
+
+**After Banning Booze for 120 Years, a Town Prepares to Open the Tap**\
+`Haddon Heights, N.J., voted to issue liquor licenses for the first time in its history. Not everyone is happy.`\
+https://nytimes.com/2024/11/22/nyregion/after-banning-booze-for-120-years-a-town-prepares-to-open-the-tap.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/22/crosswords/spelling-bee-forum.html
+
 **'I wish we had answers': Oilers are a long way from the powerhouse they're supposed to be**\
 `This team can’t score. It doesn't defend. It isn't getting enough saves, proved again in Thursday's loss to Minnesota.`\
 https://nytimes.com/athletic/5939892/2024/11/22/struggling-edmonton-oilers-stuart-skinner/
