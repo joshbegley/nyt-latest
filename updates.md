@@ -1,3 +1,7 @@
+**Arsenal defender White out for 'months' after knee surgery - Arteta**\
+`Mikel Arteta has confirmed that Arsenal defender Ben White is going to be out for &#8220;months&#8221; after undergoing a knee procedure during the international break.`\
+https://nytimes.com/athletic/5919670/2024/11/22/ben-white-injury-surgery-arsenal/
+
 **The Bounce: Why the 76ers' season is already at a crossroads**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5940127/2024/11/22/paul-george-joel-embiid-tyrese-maxey-76ers-nba-the-bounce/
