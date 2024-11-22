@@ -1,3 +1,7 @@
+**Ayto praised by Mikel Arteta after US talks with Arsenal owners**\
+`Mikel Arteta has talked up the credentials of interim sporting director Jason Ayto as Arsenal continue their search for Edu&#8217;s successor.`\
+https://nytimes.com/athletic/5940585/2024/11/22/jason-ayto-arsenal-mikel-arteta/
+
 **When Your Living Room Is Also a Gallery**\
 `Tired of the featureless white cube, curators and dealers are staging shows in the most personal spaces of all: their homes.`\
 https://nytimes.com/2024/11/22/t-magazine/home-gallery-exhibition.html
