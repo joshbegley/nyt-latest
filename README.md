@@ -1,3 +1,11 @@
+**The Athletic’s Friday football quiz question #31**\
+`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5940013/2024/11/22/the-athletic-friday-football-quiz-question-31/
+
+**Lowetide: How the Oilers' prospect pipeline is growing stronger at centre**\
+`It's clear that centre is a position of strength for the Oilers in the NHL and at all levels of the system.`\
+https://nytimes.com/athletic/5938013/2024/11/22/edmonton-oilers-prospect-pipeline-centre/
+
 **Trump’s Next Online Speech Cop + Doctors vs. ChatGPT + Hard Fork Crimes Division**\
 `“I feel very strongly that the First Amendment is under the most direct threat that any of us will ever really experience.”`\
 https://nytimes.com/2024/11/22/podcasts/trumps-next-online-speech-cop-doctors-vs-chatgpt-hard-fork-crimes-division.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/world/europe/ukraine-russia-us-trump-putin.html
 **Court Vision: An early contender for game of the season, triple-doubles appreciation**\
 `Baylor-St. John's went to double overtime and ended with a buzzer beater. Which teams are being underrated? Plus, the game of the weekend.`\
 https://nytimes.com/athletic/5939327/2024/11/22/court-vision-baylor-st-johns-marquette-triple-doubles/
-
-**Shedeur Sanders the recruiter: How the QB helped build Colorado into a contender**\
-`To get to where they are now, the Buffs needed much more. The quarterback, teammates say, knew it, which is why he went to work.`\
-https://nytimes.com/athletic/5938065/2024/11/22/colorado-football-shedeur-sanders-deion/
-
-**Can offense break free after firing OC? Wisconsin-Nebraska game keys and prediction**\
-`Could the Badgers introduce enough tweaks on short notice to again create meaningful change, even if just for a game?`\
-https://nytimes.com/athletic/5938552/2024/11/22/wisconsin-football-nebraska-prediction/
 
