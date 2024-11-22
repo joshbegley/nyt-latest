@@ -1,3 +1,11 @@
+**Eze set to miss Aston Villa match: 'It’s a little bit too risky'**\
+`Crystal Palace manager Oliver Glasner says Eberechi Eze will miss Saturday’s game with Aston Villa through injury.`\
+https://nytimes.com/athletic/5940440/2024/11/22/eberechi-eze-injury-update-crystal-palace/
+
+**Hwang to return to Wolves squad after six-week injury absence**\
+`Wolverhampton Wanderers will welcome Hwang Hee-chan into the squad for Saturday&#8217;s trip to Fulham after six weeks out with an ankle injury.`\
+https://nytimes.com/athletic/5940462/2024/11/22/hwang-injury-wolves-team-news/
+
 **Konsa set to be sidelined for Crystal Palace fixture**\
 `Ezri Konsa has been ruled out of Aston Villa&#8217;s game against Crystal Palace on Saturday.`\
 https://nytimes.com/athletic/5940447/2024/11/22/ezri-konsa-aston-villa-injury-update/
