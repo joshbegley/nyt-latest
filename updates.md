@@ -1,3 +1,7 @@
+**Trump’s Sentencing in New York Is Officially on Hold**\
+`The judge in the case confirmed that the former and future president, who was convicted on 34 felony counts, would not receive his punishment next week.`\
+https://nytimes.com/2024/11/22/nyregion/trump-sentencing-postponed.html
+
 **NFL moves Broncos-Chargers in Week 16 for first 'TNF' flex**\
 `AFC West divisional tilt between two playoff hopefuls replaces Browns vs. Bengals as Prime Video's game of the week. `\
 https://nytimes.com/athletic/5940748/2024/11/22/broncos-vs-chargers-tnf-flex-week-16/

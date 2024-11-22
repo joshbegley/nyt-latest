@@ -1,3 +1,7 @@
+**Trump’s Sentencing in New York Is Officially on Hold**\
+`The judge in the case confirmed that the former and future president, who was convicted on 34 felony counts, would not receive his punishment next week.`\
+https://nytimes.com/2024/11/22/nyregion/trump-sentencing-postponed.html
+
 **NFL moves Broncos-Chargers in Week 16 for first 'TNF' flex**\
 `AFC West divisional tilt between two playoff hopefuls replaces Browns vs. Bengals as Prime Video's game of the week. `\
 https://nytimes.com/athletic/5940748/2024/11/22/broncos-vs-chargers-tnf-flex-week-16/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/technology/bluesky-x-alternative.html
 **Blue States Worry That Blocking Trump Will Be Tougher This Time**\
 `Democrat-led states successfully challenged policies during the first Trump administration. Now, they worry the new White House will be more prepared and less restrained.`\
 https://nytimes.com/2024/11/22/us/trump-states-democrat-legal-challenges.html
-
-**Scholars Thought White Women Were Passive Enslavers. They Were Wrong.**\
-`For generations, scholars argued that white women were rarely involved in the active buying and selling of Black people. A growing body of research says otherwise.`\
-https://nytimes.com/2024/11/22/us/white-women-american-slave-trade.html
 
