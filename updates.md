@@ -1,3 +1,7 @@
+**'I wish we had answers': Oilers are a long way from the powerhouse they're supposed to be**\
+`This team can’t score. It doesn't defend. It isn't getting enough saves, proved again in Thursday's loss to Minnesota.`\
+https://nytimes.com/athletic/5939892/2024/11/22/struggling-edmonton-oilers-stuart-skinner/
+
 **Slegers could not have done much more - what will Arsenal do next in head coach search?**\
 `Arsenal's interim head coach has not overplayed her card in public - but results say everything about her impact since replacing Eidevall`\
 https://nytimes.com/athletic/5939269/2024/11/22/arsenal-women-renee-slegers-head-coach/

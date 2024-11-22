@@ -1,3 +1,7 @@
+**'I wish we had answers': Oilers are a long way from the powerhouse they're supposed to be**\
+`This team can’t score. It doesn't defend. It isn't getting enough saves, proved again in Thursday's loss to Minnesota.`\
+https://nytimes.com/athletic/5939892/2024/11/22/struggling-edmonton-oilers-stuart-skinner/
+
 **Slegers could not have done much more - what will Arsenal do next in head coach search?**\
 `Arsenal's interim head coach has not overplayed her card in public - but results say everything about her impact since replacing Eidevall`\
 https://nytimes.com/athletic/5939269/2024/11/22/arsenal-women-renee-slegers-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/opinion/trans-rights-donald-trump.html
 **Blackhawks stave off Panthers, but does Connor Bedard belong in a shutdown role? Observations**\
 `The Blackhawks picked up just their third home win of the season against the reigning Stanley Cup champions.`\
 https://nytimes.com/athletic/5939754/2024/11/22/blackhawks-bedard-shutdown-role-panthers/
-
-**How Ao Tanaka is making himself undroppable for Leeds**\
-`The Japan international has surpassed expectations at Elland Road - and now Ethan Ampadu and Ilia Gruev no longer feel untouchable`\
-https://nytimes.com/athletic/5869607/2024/11/22/ao-tanaka-leeds-united-midfield-undroppable/
 
