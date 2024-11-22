@@ -1,3 +1,7 @@
+**Mike Shatzkin, Colorful Publishing Industry Guru, Dies at 77**\
+`His blog, The Shatzkin Files, was an essential read for industry insiders. His observations about the changes digital publishing would bring were prophetic.`\
+https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
+
 **49ers QB Brock Purdy ruled out vs. Packers**\
 `San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
 https://nytimes.com/athletic/5941234/2024/11/22/49ers-qb-brock-purdy-out-packers/
