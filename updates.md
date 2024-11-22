@@ -1,3 +1,7 @@
+**Four Fantasy Books to Get Lost In**\
+`There are few pleasures as delicious as losing yourself in a great fantasy book. Jennifer Harlan, an editor at The New York Times Book Review, lists a few of her favorite fantasy books.`\
+https://nytimes.com/video/books/100000009823413/four-fantasy-books-to-get-lost-in.html
+
 **NFL Week 12 fantasy football, betting cheat sheet: Mike Evans nears return, Pacheco out for Chiefs**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5932278/2024/11/22/nfl-week-12-fantasy-football-betting-cheat-sheet/

@@ -1,3 +1,7 @@
+**Four Fantasy Books to Get Lost In**\
+`There are few pleasures as delicious as losing yourself in a great fantasy book. Jennifer Harlan, an editor at The New York Times Book Review, lists a few of her favorite fantasy books.`\
+https://nytimes.com/video/books/100000009823413/four-fantasy-books-to-get-lost-in.html
+
 **NFL Week 12 fantasy football, betting cheat sheet: Mike Evans nears return, Pacheco out for Chiefs**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5932278/2024/11/22/nfl-week-12-fantasy-football-betting-cheat-sheet/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/health/alcohol-deaths-americans.html
 **Bible-Based Lessons for Public Schools Get Final Approval in Texas**\
 `The state’s board of education narrowly voted to allow schools to start using the reading and language arts curriculum next fall if they choose.`\
 https://nytimes.com/2024/11/22/us/bible-curriculum-public-schools-texas-approved.html
-
-**How much of a hurdle is Army for Notre Dame's Playoff aspirations? 3 keys and a prediction**\
-`Notre Dame will try to hand undefeated Army its first loss on Saturday night at Yankee Stadium. Here's what to expect.`\
-https://nytimes.com/athletic/5940903/2024/11/22/notre-dame-army-prediction-preview-time/
 
