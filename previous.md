@@ -1,3 +1,11 @@
+**Elon Musk Gets a Crash Course in How Trumpworld Works**\
+`The world’s richest person, not known for his humility, is still learning the cutthroat courtier politics of Donald Trump’s inner circle — and his ultimate influence remains an open question.`\
+https://nytimes.com/2024/11/22/us/politics/elon-musk-trump.html
+
+**New York City’s Congestion Pricing Plan Clears Final Bureaucratic Hurdle**\
+`The Federal Highway Administration has allowed the program to begin just after midnight on Jan. 5. It could still be stopped by lawsuits.`\
+https://nytimes.com/2024/11/22/nyregion/nyc-congestion-pricing-federal-approval.html
+
 **Why Germany’s Economy, Once a Leader in Europe, Is Now in Crisis**\
 `The country is facing a second year of zero growth, with industry leaders gloomy and worried about potential tariffs from President-elect Donald Trump.`\
 https://nytimes.com/2024/11/22/business/germany-economy-budget-elections.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5939806/2024/11/22/canucks-roster-jt-miller-trades/
 **A Range of Lessons From Trump’s Victory**\
 `Readers respond to an essay by Roxane Gay. Also: A Republican plan to bar a transgender member from the women’s bathroom; Matt Gaetz; Elon Musk’s cuts.`\
 https://nytimes.com/2024/11/22/opinion/donald-trump-victory-lessons.html
-
-**Fantasy football flex fliers: Wan’Dale Robinson, Alec Pierce can help in Week 12**\
-`Scott Engel tells you who to grab and play after waivers have passed for this Week 12 slate that has six teams on bye. `\
-https://nytimes.com/athletic/5940454/2024/11/22/fantasy-football-flex-fliers-week-12/
-
-**Loathe Thy Neighbor, at Least in These 4 Crime Novels**\
-`Our critic on November’s best new books.`\
-https://nytimes.com/2024/11/22/books/review/new-crime-fiction.html
 

@@ -1,3 +1,11 @@
+**Elon Musk Gets a Crash Course in How Trumpworld Works**\
+`The world’s richest person, not known for his humility, is still learning the cutthroat courtier politics of Donald Trump’s inner circle — and his ultimate influence remains an open question.`\
+https://nytimes.com/2024/11/22/us/politics/elon-musk-trump.html
+
+**New York City’s Congestion Pricing Plan Clears Final Bureaucratic Hurdle**\
+`The Federal Highway Administration has allowed the program to begin just after midnight on Jan. 5. It could still be stopped by lawsuits.`\
+https://nytimes.com/2024/11/22/nyregion/nyc-congestion-pricing-federal-approval.html
+
 **Why Germany’s Economy, Once a Leader in Europe, Is Now in Crisis**\
 `The country is facing a second year of zero growth, with industry leaders gloomy and worried about potential tariffs from President-elect Donald Trump.`\
 https://nytimes.com/2024/11/22/business/germany-economy-budget-elections.html
