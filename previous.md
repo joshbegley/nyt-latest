@@ -1,3 +1,19 @@
+**Fantasy football flex fliers: Wan’Dale Robinson, Alec Pierce can help in Week 12**\
+`Scott Engel tells you who to grab and play after waivers have passed for this Week 12 slate that has six teams on bye. `\
+https://nytimes.com/athletic/5940454/2024/11/22/fantasy-football-flex-fliers-week-12/
+
+**Loathe Thy Neighbor, at Least in These 4 Crime Novels**\
+`Our critic on November’s best new books.`\
+https://nytimes.com/2024/11/22/books/review/new-crime-fiction.html
+
+**Covid Can Raise the Risk of Heart Problems for Years**\
+`People who had severe infections are especially vulnerable.`\
+https://nytimes.com/2024/11/22/well/covid-heart-health.html
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 12?**\
+`As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
+https://nytimes.com/athletic/5931636/2024/11/22/premier-league-predicted-line-ups-who-do-our-writers-think-will-start-in-gameweek-12/
+
 **Five Science Fiction Movies to Stream Now**\
 `This month’s picks include a heart-wrenching animated Filipino film, a yeasty savior and the return of Carrie-Anne Moss.`\
 https://nytimes.com/2024/11/22/movies/five-science-fiction-movies-to-stream-now.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/22/climate/global-warming-disasters.html
 **Scoop City: Browns win, Odell's catch and a happy Bryce Young**\
 `A quick look at Odell's legendary catch, what's next for Bryce Young and how Ja'Marr Chase continues to improve in year four.`\
 https://nytimes.com/athletic/5935930/2024/11/22/odell-catch-bryce-young-improved-scoop-city-nfl/
-
-**Submit MLB trade scenarios, free agency questions for Bowden's offseason mailbag**\
-`Submit your questions about the MLB offseason for Jim Bowden’s upcoming mailbag. Fire away! `\
-https://nytimes.com/athletic/5940650/2024/11/22/mlb-trade-scenarios-free-agency-questions/
-
-**Amazon Invests $4 Billion in Anthropic, Deepening Its A.I. Ties**\
-`Since last September, the tech giant has pumped $8 billion into the artificial intelligence start-up, a sign of intense competition in developing tools that are reshaping the tech sector.`\
-https://nytimes.com/2024/11/22/technology/amazon-anthropic-ai.html
-
-**Premier League clubs have changed associated party transaction rules. Here’s what it means**\
-`Amendments to APT rules gained the necessary support to be signed off on Friday morning, with Premier League clubs voting 16-4 in favour`\
-https://nytimes.com/athletic/5940146/2024/11/22/premier-league-apt-changes-explained/
-
-**Ruben Amorim, the Right One? Man Utd head coach mixes warmth with steel in first press conference**\
-`The Portuguese referenced the club's past but made it clear he has a vision for what his Manchester United team will look like in the future`\
-https://nytimes.com/athletic/5940596/2024/11/22/ruben-amorim-manchester-united-press-conference/
 
