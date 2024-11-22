@@ -1,3 +1,15 @@
+**Browns stun Steelers 24-19 in snow as Chubb scores late TD: Takeaways**\
+`Chubb's first two-touchdown game since 2022 helped fuel Cleveland to its third win of the season.`\
+https://nytimes.com/athletic/5939592/2024/11/22/steelers-browns-score-result-takeaways/
+
+**What's different about Anthony Elanga - and how it's impacting Nottingham Forest**\
+`Understanding the winger's development from last season — the stats, the moments and what Nuno says`\
+https://nytimes.com/athletic/5937798/2024/11/22/anthony-elanga-forest/
+
+**West Ham have prospects with no first-team opportunities. How do they fix a blocked pathway?**\
+`West Ham have not given a single minute to a club-trained player so far this season`\
+https://nytimes.com/athletic/5937337/2024/11/22/west-ham-academy-minutes/
+
 **With Scottie Barnes back, let the experiments begin for the Toronto Raptors**\
 `Barnes' defensive versatility and mere presence offer the Raptors so many more options.`\
 https://nytimes.com/athletic/5939676/2024/11/22/scottie-barnes-raptors-uniform/

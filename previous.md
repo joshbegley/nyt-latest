@@ -1,3 +1,15 @@
+**Browns stun Steelers 24-19 in snow as Chubb scores late TD: Takeaways**\
+`Chubb's first two-touchdown game since 2022 helped fuel Cleveland to its third win of the season.`\
+https://nytimes.com/athletic/5939592/2024/11/22/steelers-browns-score-result-takeaways/
+
+**What's different about Anthony Elanga - and how it's impacting Nottingham Forest**\
+`Understanding the winger's development from last season — the stats, the moments and what Nuno says`\
+https://nytimes.com/athletic/5937798/2024/11/22/anthony-elanga-forest/
+
+**West Ham have prospects with no first-team opportunities. How do they fix a blocked pathway?**\
+`West Ham have not given a single minute to a club-trained player so far this season`\
+https://nytimes.com/athletic/5937337/2024/11/22/west-ham-academy-minutes/
+
 **With Scottie Barnes back, let the experiments begin for the Toronto Raptors**\
 `Barnes' defensive versatility and mere presence offer the Raptors so many more options.`\
 https://nytimes.com/athletic/5939676/2024/11/22/scottie-barnes-raptors-uniform/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5937032/2024/11/22/premier-league-returns-guardiola
 **Next week’s waiver wire: Trey Benson, Devaughn Vele and more players to add now — before the Week 13 rush**\
 `John Laghezza shares his top expected future waiver wire plays, including Trey Benson, who is showing upside as a runner and receiver.`\
 https://nytimes.com/athletic/5937832/2024/11/22/next-weeks-waiver-wire-trey-benson-devaughn-vele-and-more-players-to-add-now-before-the-week-13-rush/
-
-**Why the Premier League table (at this stage) is the most congested in 18 years**\
-`For the first time in a while, anything feels possible in the Premier League`\
-https://nytimes.com/athletic/5931597/2024/11/22/premier-league-table-tight-congested/
-
-**Friday Briefing**\
-`Donald Trump’s new choice for attorney general.`\
-https://nytimes.com/2024/11/22/briefing/trump-bondi-netanyahu.html
-
-**“Kulusevski? What a player!” - how he became Tottenham's best**\
-`By moving Kulusevski into the centre of midfield, Ange Postecoglou solved several of Spurs' issues - and gave his team a new star man`\
-https://nytimes.com/athletic/5929806/2024/11/22/dejan-kulusevski-tottenham-best-player/
 
