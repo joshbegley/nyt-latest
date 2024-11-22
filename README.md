@@ -1,3 +1,11 @@
+**The Bounce: Why the 76ers' season is already at a crossroads**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5940127/2024/11/22/paul-george-joel-embiid-tyrese-maxey-76ers-nba-the-bounce/
+
+**Arsenal defender White out for "months" after undergoing knee surgery - Arteta**\
+`Mikel Arteta has confirmed that Arsenal defender Ben White is going to be out for &#8220;months&#8221; after undergoing a knee procedure during the international break.`\
+https://nytimes.com/athletic/5919670/2024/11/22/ben-white-injury-surgery-arsenal/
+
 **Eze set to miss Aston Villa match: 'It’s a little bit too risky'**\
 `Crystal Palace manager Oliver Glasner says Eberechi Eze will miss Saturday’s game with Aston Villa through injury.`\
 https://nytimes.com/athletic/5940440/2024/11/22/eberechi-eze-injury-update-crystal-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5940321/2024/11/22/denny-hamlin-chris-gayle-nascar-
 **Lloyd: Jameis Winston is playing just well enough to complicate Browns' future plans at QB**\
 `Nothing about this season has been normal. Could Winston serve as a bridge quarterback until the Browns settle on a long-term solution?`\
 https://nytimes.com/athletic/5939954/2024/11/22/browns-steelers-jameis-winston/
-
-**Man City's Kovacic out for up to a month - Guardiola**\
-`Manchester City midfielder Mateo Kovacic is set to be out for up to a month with an injury, Pep Guardiola has confirmed.`\
-https://nytimes.com/athletic/5940279/2024/11/22/mateo-kovacic-injury-man-city/
-
-**Boniface set to be out until January with thigh injury**\
-`Bayer Leverkusen forward Victor Boniface will likely not play again until after the Bundesliga&#8217;s winter break, having suffered a thigh injury on international duty with Nigeria.`\
-https://nytimes.com/athletic/5940324/2024/11/22/victor-boniface-leverkusen-injury-update/
 
