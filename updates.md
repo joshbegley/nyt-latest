@@ -1,3 +1,7 @@
+**As Ukraine Fires U.S. Missiles, Putin Sends a Chilling Message**\
+`The Russian leader ominously declares that America risks nuclear war as it expands its aid.`\
+https://nytimes.com/2024/11/22/world/europe/ukraine-russia-us-trump-putin.html
+
 **Court Vision: An early contender for game of the season, triple-doubles appreciation**\
 `Baylor-St. John's went to double overtime and ended with a buzzer beater. Which teams are being underrated? Plus, the game of the weekend.`\
 https://nytimes.com/athletic/5939327/2024/11/22/court-vision-baylor-st-johns-marquette-triple-doubles/

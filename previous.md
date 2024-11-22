@@ -1,3 +1,7 @@
+**As Ukraine Fires U.S. Missiles, Putin Sends a Chilling Message**\
+`The Russian leader ominously declares that America risks nuclear war as it expands its aid.`\
+https://nytimes.com/2024/11/22/world/europe/ukraine-russia-us-trump-putin.html
+
 **Court Vision: An early contender for game of the season, triple-doubles appreciation**\
 `Baylor-St. John's went to double overtime and ended with a buzzer beater. Which teams are being underrated? Plus, the game of the weekend.`\
 https://nytimes.com/athletic/5939327/2024/11/22/court-vision-baylor-st-johns-marquette-triple-doubles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/podcasts/the-daily/matt-gaetz-withdraws.html
 **Can the Red Wings get off the mat? Five thoughts**\
 `The Red Wings got a much-needed win on Thursday, with some encouraging signs. But there's a lot of work left to do.`\
 https://nytimes.com/athletic/5939593/2024/11/22/red-wings-islanders-lucas-raymond/
-
-**Trump’s New Pick for Attorney General, and a Surprise Turn in U.S. Drug Deaths**\
-`Plus, a “Wicked” warning.`\
-https://nytimes.com/2024/11/22/podcasts/trump-attorney-general-wicked.html
 
