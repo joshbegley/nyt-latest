@@ -1,3 +1,7 @@
+**Review: In ‘Death Becomes Her,’ Spiking the Fountain of Youth**\
+`Hilarious star turns from Megan Hilty and Jennifer Simard make the mostly unfunny 1992 film into an intermittently memorable Broadway musical.`\
+https://nytimes.com/2024/11/21/theater/death-becomes-her-review-hilty-simard.html
+
 **Alyssa Nakken leaves Giants for role with Guardians: Source**\
 `Nakken, who served as an assistant coach from 2020-24, interviewed for the Giants' managerial vacancy in 2023. `\
 https://nytimes.com/athletic/5939389/2024/11/21/alyssa-nakken-guardians-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5939248/2024/11/21/brock-purdy-49ers-shoulder-injur
 **Three Short Posts Show a New Power Dynamic Between Musk and Bezos**\
 `The world’s two richest men are longtime business rivals, but now one of them has the ear of the next president of the United States.`\
 https://nytimes.com/2024/11/21/technology/musk-bezos-trump-x-posts.html
-
-**Marjorie Taylor Greene Will Lead New ‘DOGE’ Panel on Government Efficiency**\
-`The rise of the Republican representative from Georgia signals the ascendancy of the MAGA wing of the G.O.P. in Congress.`\
-https://nytimes.com/2024/11/21/us/politics/marjorie-taylor-greene-doge-elon-musk-vivek-ramaswamy.html
 
