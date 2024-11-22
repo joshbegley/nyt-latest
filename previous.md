@@ -1,3 +1,7 @@
+**Jason Kelce to host late-night show on ESPN beginning in January**\
+`The hour-long program will run on Friday nights/Saturday mornings beginning at 1 a.m for the fuse four episodes and 1:30 for the final one`\
+https://nytimes.com/athletic/5939463/2024/11/22/jason-kelce-espn-late-night-show/
+
 **Word of the Day: provost**\
 `This word has appeared in 87 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/22/learning/word-of-the-day-provost.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880201/2024/11/22/world-cup-2026-tickets-prices-re
 **Chuck Scarborough to Step Down as WNBC News Anchor After 50-Year Career**\
 `The celebrated broadcaster, who started at the New York station in 1974, announced that he would wrap up his anchoring career on Dec. 12.`\
 https://nytimes.com/2024/11/22/nyregion/chuck-scarborough-wnbc-anchor.html
-
-**Are Bradley and Quansah suffering 'second-season syndrome' at Liverpool?**\
-`The two youngsters were among Liverpool's stars of 2023-24 but opportunities have been more limited under new coach Arne Slot`\
-https://nytimes.com/athletic/5937948/2024/11/22/conor-bradley-jarell-quansah-liverpool/
 
