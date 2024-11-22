@@ -1,3 +1,11 @@
+**‘The Blood Quilt’ Review: An Elaborate Tapestry**\
+`Katori Hall’s new play about sisters gathering after their mother’s death features standout performances but an overabundance of themes.`\
+https://nytimes.com/2024/11/21/theater/the-blood-quilt-review.html
+
+**Field of Stars**\
+`Sarah Sinclair and Rafael Musa invite solvers to a tug of war.`\
+https://nytimes.com/2024/11/21/crosswords/daily-puzzle-2024-11-22.html
+
 **Pam Bondi Is Trump’s New Choice as Attorney General. Here’s What to Know About Her.**\
 `Florida’s first female state attorney general, she became a member of Donald Trump’s impeachment defense team and backed his false claims of election fraud in 2020.`\
 https://nytimes.com/2024/11/21/us/politics/pam-bondi-trump-attorney-general.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5939389/2024/11/21/alyssa-nakken-guardians-giants/
 **China’s Hacking Reached Deep Into U.S. Telecoms**\
 `The chairman of the Senate Intelligence Committee said hackers listened to phone calls and read texts by exploiting aging equipment and seams in the networks that connect systems.`\
 https://nytimes.com/2024/11/21/us/politics/china-hacking-telecommunications.html
-
-**A Classic Holiday Dessert Reimagined**\
-`Quick, easy and glucose-friendly.`\
-https://nytimes.com/paidpost/abbott-lingo/a-classic-holiday-dessert-reimagined.html
-
-**Bondi Worked as Lobbyist in Recent Years, With Clients Including Amazon, G.M., Uber and Qatar**\
-`President-elect Donald J. Trump’s new choice to be attorney general joined a powerhouse Republican firm after her second term as Florida’s attorney general.`\
-https://nytimes.com/2024/11/21/us/politics/pam-bondi-trump-ag-lobbyist.html
 

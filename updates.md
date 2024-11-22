@@ -1,3 +1,11 @@
+**‘The Blood Quilt’ Review: An Elaborate Tapestry**\
+`Katori Hall’s new play about sisters gathering after their mother’s death features standout performances but an overabundance of themes.`\
+https://nytimes.com/2024/11/21/theater/the-blood-quilt-review.html
+
+**Field of Stars**\
+`Sarah Sinclair and Rafael Musa invite solvers to a tug of war.`\
+https://nytimes.com/2024/11/21/crosswords/daily-puzzle-2024-11-22.html
+
 **Pam Bondi Is Trump’s New Choice as Attorney General. Here’s What to Know About Her.**\
 `Florida’s first female state attorney general, she became a member of Donald Trump’s impeachment defense team and backed his false claims of election fraud in 2020.`\
 https://nytimes.com/2024/11/21/us/politics/pam-bondi-trump-attorney-general.html
