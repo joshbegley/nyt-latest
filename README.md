@@ -1,3 +1,7 @@
+**Is It Possible the Democrats Were Hurt by a Strong Economy?**\
+`An interesting theory about the election that’s the opposite of what you’ve heard.`\
+https://nytimes.com/2024/11/22/opinion/democrats-economy-election.html
+
 **Is Kim Kardashian Trying to Tell Us Something?**\
 `She parties with Ivanka Trump and has turned Tesla products into fashion accessories on social media. Assuming these are political statements may be incorrect.`\
 https://nytimes.com/2024/11/22/style/kim-kardashian-tesla-musk-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940932/2024/11/22/acc-lawsuit-florida-state-clemso
 **Jack Harlow Expands His Romantic Options, and 7 More New Songs**\
 `Hear tracks by Horsegirl, Tyla, Amber Mark and others.`\
 https://nytimes.com/2024/11/22/arts/music/playlist-jack-harlow-tyla-omar-apollo.html
-
-**Alcohol Deaths Have More Than Doubled in Two Decades, Study Finds**\
-`Americans are dying of illnesses related to alcohol at roughly twice the rate seen in 1999.`\
-https://nytimes.com/2024/11/22/health/alcohol-deaths-americans.html
 
