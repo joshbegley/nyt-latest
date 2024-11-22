@@ -1,3 +1,7 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 12?**\
+`With the final international break of 2024 over and the Premier League returning, our writers have had a go at naming the starting XIs`\
+https://nytimes.com/athletic/5931636/2024/11/22/premier-league-predicted-line-ups-who-do-our-writers-think-will-start-in-gameweek-12/
+
 **What I'm hearing about the Canucks' roster crunch, trade options and call-ups**\
 `There are a few big-picture questions for Canucks management at this crucial moment of the season.`\
 https://nytimes.com/athletic/5939806/2024/11/22/canucks-roster-jt-miller-trades/
