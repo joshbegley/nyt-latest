@@ -1,3 +1,11 @@
+**Ex-Treasurer in Arizona Pleads Guilty to Embezzling $38 Million**\
+`A former elected official for a small county used public money to renovate her ranch and buy at least 20 vehicles, including Cadillacs and an Airstream travel trailer, the Justice Department said.`\
+https://nytimes.com/2024/11/22/us/elizabeth-gutfahr-guilty-embezzlement-arizona.html
+
+**Trump Taps Investor Scott Bessent as Treasury Secretary**\
+`The hedge fund manager will be responsible for steering President-elect Donald J. Trump’s unconventional economic agenda.`\
+https://nytimes.com/2024/11/22/business/trump-scott-bessent-treasury.html
+
 **49ers' Brock Purdy, Nick Bosa ruled out vs. Packers**\
 `Kyle Shanahan on Brandon Allen: "He’s done a really good job since he’s been here. Been here two years now and guys believe in him.”`\
 https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/

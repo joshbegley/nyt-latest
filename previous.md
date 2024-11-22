@@ -1,3 +1,11 @@
+**Ex-Treasurer in Arizona Pleads Guilty to Embezzling $38 Million**\
+`A former elected official for a small county used public money to renovate her ranch and buy at least 20 vehicles, including Cadillacs and an Airstream travel trailer, the Justice Department said.`\
+https://nytimes.com/2024/11/22/us/elizabeth-gutfahr-guilty-embezzlement-arizona.html
+
+**Trump Taps Investor Scott Bessent as Treasury Secretary**\
+`The hedge fund manager will be responsible for steering President-elect Donald J. Trump’s unconventional economic agenda.`\
+https://nytimes.com/2024/11/22/business/trump-scott-bessent-treasury.html
+
 **What to Know About the Methanol Poisonings in Laos**\
 `At least six tourists who traveled to Laos have died in recent days, prompting international alarm about the dangers of consuming alcoholic drinks that contain methanol.`\
 https://nytimes.com/article/laos-methanol-poisonings-tourists.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/us/harold-w-sims-jr-dead.html
 **NFL Week 12 fantasy football, betting cheat sheet: Brock Purdy, Isiah Pacheco ruled out**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5932278/2024/11/22/nfl-week-12-fantasy-football-betting-cheat-sheet/
-
-**E.P.A. Proposes Limits on Harmful Pollutant From Power Plants**\
-`Nitrogen oxides, a group of gases from the burning of fossil fuels, is linked to a range of health effects.`\
-https://nytimes.com/2024/11/22/climate/epa-nox-rule.html
-
-**Conor McGregor, U.F.C. Fighter, Is Held Liable for Sexual Assault in Ireland**\
-`The mixed martial arts fighter known as “Notorious” was ordered to pay the equivalent of $257,000 to a woman who said he raped her in 2018.`\
-https://nytimes.com/2024/11/22/world/europe/conor-mcgregor-sexual-assault.html
 
