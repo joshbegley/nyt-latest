@@ -1,3 +1,7 @@
+**Spirit, Pride talk strengths, excitements ahead of NWSL final**\
+`The Pride and the Spirit will face each other for the final trophy of the year on Saturday night in Kansas City.`\
+https://nytimes.com/athletic/5939387/2024/11/21/washington-spirit-orlando-pride-nwsl-final-media-day/
+
 **F1 Las Vegas GP mailbag: When will Max Verstappen clinch his fourth title?**\
 `We answered a few questions from our pre-race mailbag before F1's biggest American race of the year.`\
 https://nytimes.com/athletic/5935070/2024/11/21/f1-vegas-mailbag-verstappen-championship-tickets/
