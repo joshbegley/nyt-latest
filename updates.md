@@ -1,3 +1,7 @@
+**Word of the Day: provost**\
+`This word has appeared in 87 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/22/learning/word-of-the-day-provost.html
+
 **Late Night Can’t Believe Matt Gaetz Won’t Be Attorney General**\
 `Jimmy Kimmel said the scandal-ridden ex-congressman’s withdrawal was “exciting news for Judge Jeanine Pirro, who will be our next attorney general.”`\
 https://nytimes.com/2024/11/22/arts/television/late-night-matt-gaetz.html
