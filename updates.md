@@ -1,3 +1,15 @@
+**'He’s really hungry': Inside Poona Ford's resurgent season for Chargers defense**\
+`Ford signed a veteran minimum contract with the Chargers after barely playing for the Bills last season. He's been a revelation. `\
+https://nytimes.com/athletic/5938996/2024/11/22/poona-ford-chargers-defense-bills/
+
+**Trump Transition Live Updates: Picking Pam Bondi for Attorney General, Trump Moves Quickly Past Gaetz**\
+``\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news
+
+**Can Joe Philbin unlock potential in Raiders' O-line? 'We're not reinventing the wheel'**\
+`"I still love teaching," said Philbin, the Raiders interim offensive line coach and former Miami Dolphins head coach.`\
+https://nytimes.com/athletic/5938966/2024/11/22/joe-philbin-raiders-offensive-line/
+
 **Should the Giants trade Mike Yastrzemski? The pros and cons**\
 `Yastrzemski is one of the Giants’ most valuable players. Can they really get better by trading him?`\
 https://nytimes.com/athletic/5938233/2024/11/22/sf-giants-mike-yastrzemski-trade-options/
