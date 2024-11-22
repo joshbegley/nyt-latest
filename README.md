@@ -1,9 +1,13 @@
+**Chiefs signing D.J. Humphries to boost offensive line depth**\
+`Kansas City added Humphries with Wanya Morris battling a knee injury and the rookie Kingsley Suamataia's growing pains.`\
+https://nytimes.com/athletic/5941471/2024/11/22/chiefs-sign-d-j-humphries-offensive-line/
+
 **Blue Jays non-tender former closer Jordan Romano, creating bigger hole in bullpen**\
 `Romano was a standout closer from 2021-23 but struggled with injuries in 2024.`\
 https://nytimes.com/athletic/5938435/2024/11/22/blue-jays-jordan-romano-non-tender/
 
 **Pam Bondi, a $25,000 Donation and Trump University: Questions Remain**\
-`When Ms. Bondi was Florida’s attorney general, her office declined to investigate allegations of fraud against Donald J. Trump’s for-profit school.`\
+`While Ms. Bondi, President-elect Donald J. Trump’s pick for attorney general, served as attorney general of Florida, her office declined to investigate allegations of fraud against his for-profit school.`\
 https://nytimes.com/2024/11/22/us/politics/pam-bondi-trump-university.html
 
 **Iran Declares It Is Doing More Nuclear Enrichment After I.A.E.A. Rebuke**\
@@ -33,8 +37,4 @@ https://nytimes.com/article/laos-methanol-poisonings-tourists.html
 **The New Pick for Attorney General**\
 `Also, New York’s congestion tolls were approved. Here's the latest at the end of Friday.`\
 https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend.html
-
-**Mike Shatzkin, Colorful Publishing Industry Guru, Dies at 77**\
-`His blog, The Shatzkin Files, was an essential read for industry insiders. His observations about the changes digital publishing would bring were prophetic.`\
-https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
 
