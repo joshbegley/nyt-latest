@@ -16,7 +16,7 @@ https://nytimes.com/paidpost/abbott-lingo/a-classic-holiday-dessert-reimagined.h
 
 **Bondi has been a lobbyist in recent years, with clients including Amazon, G.M., Uber and Qatar.**\
 `By Kenneth P. Vogel`\
-https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-lobbyist
+https://nytimes.com/2024/11/21/us/politics/pam-bondi-lobbyist.html
 
 **Ex-Temple player under investigation for alleged point shaving: Report**\
 `Miller’s attorney, Jason P. Bologna, confirmed that he represented Miller but declined to comment.`\
