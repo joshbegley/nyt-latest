@@ -1,3 +1,7 @@
+**What I'm hearing about the Canucks' roster crunch, trade options and call-ups**\
+`There are a few big-picture questions for Canucks management at this crucial moment of the season.`\
+https://nytimes.com/athletic/5939806/2024/11/22/canucks-roster-jt-miller-trades/
+
 **A Range of Lessons From Trump’s Victory**\
 `Readers respond to an essay by Roxane Gay. Also: A Republican plan to bar a transgender member from the women’s bathroom; Matt Gaetz; Elon Musk’s cuts.`\
 https://nytimes.com/2024/11/22/opinion/donald-trump-victory-lessons.html
