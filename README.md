@@ -6,7 +6,7 @@ https://nytimes.com/2024/11/22/magazine/mom-trump-vote-ethics.html
 `We won’t have enough data to tell the full story of the election for some time. But there are a few things we can say for sure now.`\
 https://nytimes.com/2024/11/22/opinion/election-postmortems.html
 
-**Phillies non-tender Austin Hays; how they remake the outfield remains an unknown**\
+**Phillies non-tender Austin Hays; how they'll remake the outfield remains an unknown**\
 `The Phillies' next outfield transactions have become important. They have been active in pursuing trades and have shopped numerous players. `\
 https://nytimes.com/athletic/5941104/2024/11/22/phillies-austin-hays-outfield-2025/
 
