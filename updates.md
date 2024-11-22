@@ -1,3 +1,11 @@
+**NFL moves Broncos-Chargers in Week 16 for first 'TNF' flex**\
+`AFC West divisional tilt between two playoff hopefuls replaces Browns vs. Bengals as Prime Video's game of the week. `\
+https://nytimes.com/athletic/5940748/2024/11/22/broncos-vs-chargers-tnf-flex-week-16/
+
+**Slavery’s Ghost Haunts a Booker Prizewinner’s First TV Show**\
+`Marlon James’s new HBO detective series, “Get Millie Black,” draws on Jamaica’s colonial history as well as his family’s experiences.`\
+https://nytimes.com/2024/11/22/arts/television/marlon-james-get-millie-black.html
+
 **Former Building Superintendent Charged With Stealing From Older Tenant**\
 `The super has denied wrongdoing and pleaded not guilty to charges in New York Supreme Court.`\
 https://nytimes.com/2024/11/22/realestate/superintendent-elder-abuse.html
