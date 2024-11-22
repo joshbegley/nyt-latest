@@ -1,3 +1,11 @@
+**Alyssa Nakken leaves Giants for role with Guardians: Source**\
+`Nakken, who served as an assistant coach from 2020-24, interviewed for the Giants' managerial vacancy in 2023. `\
+https://nytimes.com/athletic/5939389/2024/11/21/alyssa-nakken-guardians-giants/
+
+**China’s Hacking Reached Deep Into U.S. Telecoms**\
+`The chairman of the Senate Intelligence Committee said hackers listened to phone calls and read texts by exploiting aging equipment and seams in the networks that connect systems.`\
+https://nytimes.com/2024/11/21/us/politics/china-hacking-telecommunications.html
+
 **A Classic Holiday Dessert Reimagined**\
 `Quick, easy and glucose-friendly.`\
 https://nytimes.com/paidpost/abbott-lingo/a-classic-holiday-dessert-reimagined.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/technology/musk-bezos-trump-x-posts.html
 **Marjorie Taylor Greene Will Lead New ‘DOGE’ Panel on Government Efficiency**\
 `The rise of the Republican representative from Georgia signals the ascendancy of the MAGA wing of the G.O.P. in Congress.`\
 https://nytimes.com/2024/11/21/us/politics/marjorie-taylor-greene-doge-elon-musk-vivek-ramaswamy.html
-
-**Why a Police Shooting Victim’s Family Won’t Get a $100 Million Payout**\
-`Cities have paid out billions of dollars in police misconduct cases, but depending on the case, families may not receive any money at all. A recent $100 million penalty for a police shooting case in Dallas may never lead to a payout.`\
-https://nytimes.com/2024/11/21/us/botham-jean-settlement-compensation.html
-
-**M.I.T. to Offer Free Tuition to Families Earning Less Than $200,000**\
-`For students whose families earn less than $100,000 per year, the school will also cover other costs, including housing, dining, fees and an allowance for books and personal expenses.`\
-https://nytimes.com/2024/11/21/us/mit-free-tuition.html
 
