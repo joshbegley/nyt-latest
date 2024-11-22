@@ -1,3 +1,7 @@
+**Rangers angry at officials, a Kaapo Kakko center experiment, more: 5 takeaways**\
+`The Rangers' poor play early was too much to overcome, and they lost to the Flames 3-2 in Calgary.`\
+https://nytimes.com/athletic/5939841/2024/11/22/rangers-loss-flames-kaapo-kakko-takeaways/
+
 **Rigg and Bellingham urged to continue development with Sunderland**\
 `The Championship leaders Sunderland return to action at Millwall on Saturday with an ever-increasing number of suitors eyeing the progress of the division’s youngest squad — and Chris Rigg, 17, and Jobe Bellingham, 19, in particular.`\
 https://nytimes.com/athletic/5938114/2024/11/22/sunderland-rigg-bellingham/
