@@ -1,3 +1,7 @@
+**What to Know About the Methanol Poisonings in Laos**\
+`At least six tourists who traveled to Laos have died in recent days, prompting international alarm about the dangers of consuming alcoholic drinks that contain methanol.`\
+https://nytimes.com/article/laos-methanol-poisonings-tourists.html
+
 **The New Pick for Attorney General**\
 `Also, New York’s congestion tolls were approved. Here's the latest at the end of Friday.`\
 https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend
 `His blog, The Shatzkin Files, was an essential read for industry insiders. His observations about the changes digital publishing would bring were prophetic.`\
 https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
 
-**49ers' Purdy, Bosa ruled out vs. Packers**\
+**49ers' Brock Purdy, Nick Bosa ruled out vs. Packers**\
 `San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
 https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/climate/epa-nox-rule.html
 **Conor McGregor, U.F.C. Fighter, Is Held Liable for Sexual Assault in Ireland**\
 `The mixed martial arts fighter known as “Notorious” was ordered to pay the equivalent of $257,000 to a woman who said he raped her in 2018.`\
 https://nytimes.com/2024/11/22/world/europe/conor-mcgregor-sexual-assault.html
-
-**Eagles WR Devonta Smith ruled out for SNF vs. Rams**\
-`DeVonta Smith will miss his second game of the 2024 season on Sunday.`\
-https://nytimes.com/athletic/5941278/2024/11/22/eagles-devonta-smith-out-rams/
 
