@@ -1,3 +1,11 @@
+**Powerful Storm Soaks the Bay Area After Flooding Wine Country**\
+`An atmospheric river that has brought damaging wind, rain and snow to the Pacific Northwest fed a storm spreading as far south as Los Angeles.`\
+https://nytimes.com/2024/11/22/weather/california-storm-floods.html
+
+**Lottery to Be Held for Coveted Seats at Menendez Brothers Hearing**\
+`The court is expecting high demand and has announced a public lottery for a limited number of seats at a status hearing in Los Angeles on Monday.`\
+https://nytimes.com/2024/11/22/us/menendez-brothers-trial-lottery.html
+
 **Heat Today: Thanksgiving spirit off the court, while relying on '1A and 1B' off it**\
 `What happens when the Heat spread Thanksgiving cheer? "A lot of people are going to have a great holiday because of this," Pat Riley said.`\
 https://nytimes.com/athletic/5940353/2024/11/22/miami-heat-thanksgiving-erik-spoelstra-bam-adebayo-pat-riley-dallas-mavericks/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/sports/the-lady-jaguars.html
 **Conor McGregor found liable for 2018 assault of woman in Dublin**\
 `McGregor denied the allegations, testifying that he never forced the woman to do anything against her will, per the AP.`\
 https://nytimes.com/athletic/5940927/2024/11/22/conor-mcgregor-civil-court-sexual-assault-lawsuit/
-
-**Heavy Rains and Wind Wreak Havoc on the West Coast**\
-`A series of atmospheric rivers has caused flooding and damage in the Pacific Northwest and Northern California, knocking out power for hundreds of thousands of people.`\
-https://nytimes.com/video/us/100000009840644/west-coast-storms-seattle-northern-california.html
-
-**My Mom Voted for Trump. Can We Let It Go?**\
-`The magazine’s Ethicist columnist on how a family might proceed in the wake of a momentous presidential election.`\
-https://nytimes.com/2024/11/22/magazine/mom-trump-vote-ethics.html
 
