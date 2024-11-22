@@ -1,3 +1,7 @@
+**High-Yield Savings Accounts Are Still a Good Deal**\
+`Interest rates have been falling, but deposits are earning more than inflation.`\
+https://nytimes.com/2024/11/22/your-money/savings-accounts-interest-rates.html
+
 **Sharks stock report: Who's up and who's down through 22 games?**\
 `The Sharks are through a quarter of the season. It’s a good time to take stock of individual performances.`\
 https://nytimes.com/athletic/5940005/2024/11/22/sharks-nhl-stock-up-stock-down/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938427/2024/11/22/micky-van-de-ven-injury-return/
 **'This guy can defend': How AJ Green is emerging as a defensive stalwart for the Bucks**\
 `Using techniques he's developed on offense, Green recently has been getting the Bucks' toughest defensive assignments — and succeeding.`\
 https://nytimes.com/athletic/5932289/2024/11/22/aj-green-bucks-defense/
-
-**'He’s really hungry': Inside Poona Ford's resurgent season for Chargers defense**\
-`Ford signed a veteran minimum contract with the Chargers after barely playing for the Bills last season. He's been a revelation. `\
-https://nytimes.com/athletic/5938996/2024/11/22/poona-ford-chargers-defense-bills/
 

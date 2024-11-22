@@ -1,3 +1,7 @@
+**High-Yield Savings Accounts Are Still a Good Deal**\
+`Interest rates have been falling, but deposits are earning more than inflation.`\
+https://nytimes.com/2024/11/22/your-money/savings-accounts-interest-rates.html
+
 **Sharks stock report: Who's up and who's down through 22 games?**\
 `The Sharks are through a quarter of the season. It’s a good time to take stock of individual performances.`\
 https://nytimes.com/athletic/5940005/2024/11/22/sharks-nhl-stock-up-stock-down/
