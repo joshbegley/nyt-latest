@@ -1,3 +1,15 @@
+**Alisson and Jota set to miss Real Madrid match, Alexander-Arnold a doubt**\
+`Liverpool head coach Arne Slot does not expect either Alisson or Diogo Jota to be available for next Wednesday&#8217;s Champions League clash with Real Madrid, but Trent Alexander-Arnold has a chance of being fit.`\
+https://nytimes.com/athletic/5940044/2024/11/22/liverpool-alisson-jota-alexander-arnold-injury-update/
+
+**These second-year pros (not named Wemby) have made big jumps this season**\
+`After somewhat forgettable first seasons, these guys have taken some notable steps forward so far in Year 2.`\
+https://nytimes.com/athletic/5938533/2024/11/22/nba-sophomore-class-amen-thompson-gradey-dick/
+
+**Fantasy football injury report: Josh Jacobs watch; DeVonta Smith trending toward rare DNP in Week 12**\
+`Greg Scholz of Inside Injuries has a watchful eye on Josh Jacobs, as he's growing concerned with the wear and tear to his lower body.`\
+https://nytimes.com/athletic/5939756/2024/11/22/fantasy-football-injury-report-week-12-jacobs-swift-devonta-smith/
+
 **‘This Helps Netanyahu’: Israelis Rally Around Leader Over Warrant, for Now**\
 `An I.C.C. arrest warrant for Prime Minister Benjamin Netanyahu over the war in Gaza spurred outrage across Israel’s political spectrum. But in the long term, it’s not a good look for a prime minister.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-netanyahu-icc-warrant.html

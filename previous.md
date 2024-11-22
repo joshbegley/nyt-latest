@@ -1,3 +1,15 @@
+**Alisson and Jota set to miss Real Madrid match, Alexander-Arnold a doubt**\
+`Liverpool head coach Arne Slot does not expect either Alisson or Diogo Jota to be available for next Wednesday&#8217;s Champions League clash with Real Madrid, but Trent Alexander-Arnold has a chance of being fit.`\
+https://nytimes.com/athletic/5940044/2024/11/22/liverpool-alisson-jota-alexander-arnold-injury-update/
+
+**These second-year pros (not named Wemby) have made big jumps this season**\
+`After somewhat forgettable first seasons, these guys have taken some notable steps forward so far in Year 2.`\
+https://nytimes.com/athletic/5938533/2024/11/22/nba-sophomore-class-amen-thompson-gradey-dick/
+
+**Fantasy football injury report: Josh Jacobs watch; DeVonta Smith trending toward rare DNP in Week 12**\
+`Greg Scholz of Inside Injuries has a watchful eye on Josh Jacobs, as he's growing concerned with the wear and tear to his lower body.`\
+https://nytimes.com/athletic/5939756/2024/11/22/fantasy-football-injury-report-week-12-jacobs-swift-devonta-smith/
+
 **What Drake Maye is doing to elevate the Patriots offense, exceed expectations**\
 `Film shows the rookie is handling pressure better than he did in college while his arm talent is making up for the Pats' limited weapons.`\
 https://nytimes.com/athletic/5936978/2024/11/22/drake-maye-patriots-offense/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5939871/2024/11/22/browns-win-thursday-night-steele
 **Remembering 10 times a season's Jack Adams finalists did not hold up well**\
 `All three of the 2022-23 Jack Adams finalists have now been fired, but that's not even the worst aftermath of the cap era.`\
 https://nytimes.com/athletic/5935251/2024/11/22/remembering-jack-adams-finalists-aftermath/
-
-**Did Ohio State need to lose at Oregon to reach its full potential?**\
-`Ohio State's defensive coordinator spoke to The Athletic about soul-searching after Oregon and how the Buckeyes changed.`\
-https://nytimes.com/athletic/5938927/2024/11/22/jim-knowles-ohio-state-oregon-indiana/
-
-**Five thoughts on Bryce Underwood's flip: This changes everything for Sherrone Moore**\
-`Underwood's commitment provides optimism for Michigan's future. But there's still work to do for Moore and the Wolverines.`\
-https://nytimes.com/athletic/5935504/2024/11/22/michigan-football-sherrone-moore-bryce-underwood/
-
-**How the Rams' young defensive line went from a poor start to league-leading production**\
-`"We’re just a group of hungry guys who are trying to do everything the right way," Rams second-year defensive lineman Kobie Turner said.`\
-https://nytimes.com/athletic/5939399/2024/11/22/rams-defensive-line-production-kobie-turner-verse-fiske/
 
