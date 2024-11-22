@@ -1,3 +1,15 @@
+**Ex-Temple player under investigation for alleged point shaving: Report**\
+`Miller’s attorney, Jason P. Bologna, confirmed that he represented Miller but declined to comment.`\
+https://nytimes.com/athletic/5938822/2024/11/21/temple-point-shaving-investigation-fbi/
+
+**West Bank Settlement Supporters Have Big Hopes for Trump’s Presidency**\
+`As Donald J. Trump nominates staunch supporters of Israel to key positions, advocacy groups are taking aim at the departing administration's policies.`\
+https://nytimes.com/2024/11/21/world/middleeast/west-bank-settlers-trump.html
+
+**The Road to Trump’s ‘Grand New Party’**\
+`Ross Douthat and Reihan Salam had a vision for how Republicans could reclaim the working class. They never expected Trump to fulfill it.`\
+https://nytimes.com/video/opinion/100000009839702/the-road-to-trumps-grand-new-party.html
+
 **Brock Purdy's status for 49ers' game vs. Packers in question**\
 `Purdy took a hit to the shoulder during Sunday’s loss to the Seattle Seahawks was limited in Wednesday and Thursday's practices. `\
 https://nytimes.com/athletic/5939248/2024/11/21/brock-purdy-49ers-shoulder-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/21/technology/phillips-66-wastewater-indictment.html
 **Peter Sinfield, Lyricist for King Crimson, Dies at 80**\
 `His swirls of poetic imagery helped define progressive rock in the 1970s. He later turned his focus to pop acts like Celine Dion.`\
 https://nytimes.com/2024/11/21/arts/music/peter-sinfield-dead.html
-
-**Trump picks Pam Bondi, Florida’s former top prosecutor, to be attorney general after Gaetz’s withdrawal.**\
-`Ms. Bondi has been a loyal ally to the president-elect, including serving on his legal team during his first impeachment.`\
-https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-attorney-general-trump
-
-**How Hostility to Immigrants Will Hurt America’s Tech Sector**\
-`Don’t assume that highly educated foreigners will be spared by the new administration.`\
-https://nytimes.com/2024/11/21/opinion/trump-immigration-technology.html
-
-**Dodgers' Shohei Ohtani wins unanimous third MVP, first in the NL after 50-50 season**\
-`Ohtani and former Los Angeles Angels teammate, Mike Trout, are the only active players to have won the award at least three times.`\
-https://nytimes.com/athletic/5930024/2024/11/21/dodgers-shohei-ohtani-unanimous-mvp/
 
