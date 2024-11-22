@@ -1,3 +1,15 @@
+**Israel and Hezbollah Trade Strikes as U.S. Pushes for a Cease-Fire**\
+`As U.S. diplomat Amos Hochstein visited the region to push for a ceasefire, Israel struck Beirut’s southern suburbs and the eastern Bekaa region, and a barrage of rockets fired from Lebanon killed a man in northern Israel.`\
+https://nytimes.com/video/world/middleeast/100000009840361/israel-lebanon-hezbollah-strikes-dahiya-nahariya.html
+
+**Jonathan Majors Settles Assault and Defamation Lawsuit by Ex-Girlfriend**\
+`Mr. Majors was criminally convicted last year of assaulting and harassing Grace Jabbari, who then sued him in March.`\
+https://nytimes.com/2024/11/22/movies/jonathan-majors-lawsuit-settlement.html
+
+**Kendrick Lamar Surprise Releases a New Album, ‘GNX’**\
+`The rapper’s sixth studio album follows the success of a pair of tracks this year that were sparked by a war of words with Drake.`\
+https://nytimes.com/2024/11/22/arts/music/kendrick-lamar-gnx-surprise-album.html
+
 **Caravaggio Painting, Unseen for Decades, Goes on Display**\
 `A portrait by the artist had a public debut in Rome on Friday, after decades hidden away in a private collection. Now Italy wants to buy it.`\
 https://nytimes.com/2024/11/22/arts/design/caravaggio-portrait-maffeo-barberini.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/22/world/middleeast/israel-hezbollah-ceasefire-leban
 **Some Clonazepam Pills Recalled Over Incorrect Doses on Label, F.D.A. Says**\
 `The drug, known by the brand name Klonopin, is used for panic disorder and seizures.`\
 https://nytimes.com/2024/11/22/well/clonazepam-klonopin-recall.html
-
-**'We hate the Lions': Why sportsbooks are scared of a Detroit Super Bowl win**\
-`As the Lions roar towards a playoff berth, betting money has followed, making a Detroit Super Bowl win a major liability for sportsbooks.`\
-https://nytimes.com/athletic/5940518/2024/11/22/detroit-lions-super-bowl-betting-2024/
-
-**Trump’s Sentencing in New York Is Officially on Hold**\
-`The judge in the case confirmed that the former and future president, who was convicted on 34 felony counts, would not receive his punishment next week.`\
-https://nytimes.com/2024/11/22/nyregion/trump-sentencing-postponed.html
-
-**NFL moves Broncos-Chargers in Week 16 for first 'TNF' flex**\
-`AFC West divisional tilt between two playoff hopefuls replaces Browns vs. Bengals as Prime Video's game of the week. `\
-https://nytimes.com/athletic/5940748/2024/11/22/broncos-vs-chargers-tnf-flex-week-16/
 

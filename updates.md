@@ -1,3 +1,15 @@
+**Israel and Hezbollah Trade Strikes as U.S. Pushes for a Cease-Fire**\
+`As U.S. diplomat Amos Hochstein visited the region to push for a ceasefire, Israel struck Beirut’s southern suburbs and the eastern Bekaa region, and a barrage of rockets fired from Lebanon killed a man in northern Israel.`\
+https://nytimes.com/video/world/middleeast/100000009840361/israel-lebanon-hezbollah-strikes-dahiya-nahariya.html
+
+**Jonathan Majors Settles Assault and Defamation Lawsuit by Ex-Girlfriend**\
+`Mr. Majors was criminally convicted last year of assaulting and harassing Grace Jabbari, who then sued him in March.`\
+https://nytimes.com/2024/11/22/movies/jonathan-majors-lawsuit-settlement.html
+
+**Kendrick Lamar Surprise Releases a New Album, ‘GNX’**\
+`The rapper’s sixth studio album follows the success of a pair of tracks this year that were sparked by a war of words with Drake.`\
+https://nytimes.com/2024/11/22/arts/music/kendrick-lamar-gnx-surprise-album.html
+
 **Caravaggio Painting, Unseen for Decades, Goes on Display**\
 `A portrait by the artist had a public debut in Rome on Friday, after decades hidden away in a private collection. Now Italy wants to buy it.`\
 https://nytimes.com/2024/11/22/arts/design/caravaggio-portrait-maffeo-barberini.html
