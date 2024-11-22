@@ -1,3 +1,7 @@
+**What I'm hearing about the Canucks' roster crunch, trade options and call-ups**\
+`There are a few big-picture questions for Canucks management at this crucial moment of the season.`\
+https://nytimes.com/athletic/5939806/2024/11/22/canucks-roster-jt-miller-trades/
+
 **A Range of Lessons From Trump’s Victory**\
 `Readers respond to an essay by Roxane Gay. Also: A Republican plan to bar a transgender member from the women’s bathroom; Matt Gaetz; Elon Musk’s cuts.`\
 https://nytimes.com/2024/11/22/opinion/donald-trump-victory-lessons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5937782/2024/11/22/don-waddell-blue-jackets-hurrica
 **What Elon Musk Needs From China**\
 `From electric cars to solar panels, Mr. Musk has built businesses in high-tech manufacturing sectors now targeted by Beijing for Chinese dominance.`\
 https://nytimes.com/2024/11/22/business/elon-musk-tesla-china.html
-
-**Far From the Climate Talks: The Human Cost of Global Warming in 2024**\
-`Every month so far has seen floods, fires, smashed heat records or some combination of extreme weather. Little time remains for leaders to agree on what to do about it.`\
-https://nytimes.com/2024/11/22/climate/global-warming-disasters.html
 
