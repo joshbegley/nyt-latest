@@ -1,3 +1,11 @@
+**Merkel Memoir Recalls What It Was Like Dealing With Trump and Putin**\
+`The new book by former Chancellor Angela Merkel of Germany also aims to justify decisions she made that are still affecting her country and the rest of Europe.`\
+https://nytimes.com/2024/11/22/world/europe/merkel-memoir-trump-putin.html
+
+**The Athletic FC: Lewandowski exclusive, fixing MLS Cup play-offs, defining 'injury crisis'**\
+`Plus: Why Tim Howard isn't happy with Christian Pulisic, FPL advice and a deep look at EPL club owners from around the world...`\
+https://nytimes.com/athletic/5940073/2024/11/22/lewandowski-exclusive-mls-play-off-format/
+
 **Nations League quarter-final draw: Spain play Netherlands, Germany face Italy**\
 `European champions Spain have been drawn against the Netherlands in the quarter-finals of the Nations League, while Germany will play Italy.`\
 https://nytimes.com/athletic/5940120/2024/11/22/nations-league-quarter-final-draw/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/world/asia/russia-north-korea-missiles-troops.htm
 **Israel Strikes Across Lebanon After Ordering Evacuations of Southern Towns**\
 `The wide-scale bombardment continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-lebanon-strikes.html
-
-**Changes in New York City**\
-`How city and state officials are trying to make the city more livable.`\
-https://nytimes.com/2024/11/22/briefing/changes-in-new-york-city.html
-
-**The Pulse: An incredible snow game**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5937414/2024/11/22/steelers-browns-snow-the-pulse/
 
