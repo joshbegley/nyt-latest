@@ -1,3 +1,19 @@
+**Brock Purdy's status for 49ers' game vs. Packers in question**\
+`Purdy took a hit to the shoulder during Sunday’s loss to the Seattle Seahawks was limited in Wednesday and Thursday's practices. `\
+https://nytimes.com/athletic/5939248/2024/11/21/brock-purdy-49ers-shoulder-injury/
+
+**Marjorie Taylor Greene Will Lead New ‘DOGE’ Panel on Government Efficiency**\
+`The rise of the Republican representative from Georgia signals the ascendancy of the MAGA wing of the G.O.P. in Congress.`\
+https://nytimes.com/2024/11/21/us/politics/marjorie-taylor-greene-doge-elon-musk-vivek-ramaswamy.html
+
+**Three Short Posts Show a New Power Dynamic Between Musk and Bezos**\
+`The world’s two richest men are longtime business rivals, but now one of them has the ear of the next president of the United States.`\
+https://nytimes.com/2024/11/21/technology/musk-bezos-trump-x-posts.html
+
+**Why a Police Shooting Victim’s Family Won’t Get a $100 Million Payout**\
+`Cities have paid out billions of dollars in police misconduct cases, but depending on the case, families may not receive any money at all. A recent $100 million penalty for a police shooting case in Dallas may never lead to a payout.`\
+https://nytimes.com/2024/11/21/us/botham-jean-settlement-compensation.html
+
 **M.I.T. to Offer Free Tuition to Families Earning Less Than $200,000**\
 `For students whose families earn less than $100,000 per year, the school will also other costs, including housing, dining, fees and an allowance for books and personal expenses.`\
 https://nytimes.com/2024/11/21/us/mit-free-tuition.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/21/opinion/trump-immigration-technology.html
 **Dodgers' Shohei Ohtani wins unanimous third MVP, first in the NL after 50-50 season**\
 `Ohtani and former Los Angeles Angels teammate, Mike Trout, are the only active players to have won the award at least three times.`\
 https://nytimes.com/athletic/5930024/2024/11/21/dodgers-shohei-ohtani-unanimous-mvp/
-
-**Alex Ovechkin out 4 to 6 weeks with fractured fibula**\
-`Ovechkin, who is in pursuit of the NHL's all-time goals record, has 15 goals and 10 assists in 18 games played so far this season.`\
-https://nytimes.com/athletic/5938983/2024/11/21/alex-ovechkin-injury-update-washington-capitals/
-
-**Seattle Power Outages Could Linger as Strong Storms Pelt the West Coast**\
-`A series of atmospheric rivers is flooding the Pacific Northwest and parts of California, with more wind and rain forecast as utilities try to restore power to hundreds of thousands of people.`\
-https://nytimes.com/2024/11/21/weather/west-coast-storm-power-outages.html
-
-**6 Airports in Northern Haiti Are Reopened to U.S. Flights**\
-`The Federal Aviation Administration said on Thursday it was allowing air traffic to resume at half a dozen airports in Haiti, but the country’s main flight hub in the capital would remain off limits.`\
-https://nytimes.com/2024/11/21/world/americas/haiti-airports-six-reopened-faa.html
-
-**Trump’s Education Secretary Pick Named in Sexual Abuse Lawsuit**\
-`Linda McMahon, who ran World Wrestling Entertainment for decades, was accused in the lawsuit of not preventing one of the organization’s employees from victimizing children who helped set up wrestling rings.`\
-https://nytimes.com/2024/11/21/us/linda-mcmahon-sexual-abuse-lawsuit-trump-education-secretary.html
 
