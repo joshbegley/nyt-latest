@@ -1,3 +1,11 @@
+**Alyssa Nakken leaves Giants for role with Guardians: Source**\
+`Nakken, who served as an assistant coach from 2020-24, interviewed for the Giants' managerial vacancy in 2023. `\
+https://nytimes.com/athletic/5939389/2024/11/21/alyssa-nakken-guardians-giants/
+
+**China’s Hacking Reached Deep Into U.S. Telecoms**\
+`The chairman of the Senate Intelligence Committee said hackers listened to phone calls and read texts by exploiting aging equipment and seams in the networks that connect systems.`\
+https://nytimes.com/2024/11/21/us/politics/china-hacking-telecommunications.html
+
 **Bondi has been a lobbyist in recent years, with clients including Amazon, G.M., Uber and Qatar.**\
 `By Kenneth P. Vogel`\
 https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-lobbyist
