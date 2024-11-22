@@ -1,3 +1,7 @@
+**The Lady Jaguars**\
+`The New York Times first reported on a winless basketball team of troubled teens in Tennessee in 2012. Explore our years of coverage here.`\
+https://nytimes.com/interactive/2024/sports/the-lady-jaguars.html
+
 **Conor McGregor found liable for 2018 assault of woman in Dublin**\
 `McGregor denied the allegations, testifying that he never forced the woman to do anything against her will, per the AP.`\
 https://nytimes.com/athletic/5940927/2024/11/22/conor-mcgregor-civil-court-sexual-assault-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/world/canada/pat-king-guilty-freedom-convoy-canad
 **Is It Possible the Democrats Were Hurt by a Strong Economy?**\
 `An interesting theory about the election that’s the opposite of what you’ve heard.`\
 https://nytimes.com/2024/11/22/opinion/democrats-economy-election.html
-
-**Is Kim Kardashian Trying to Tell Us Something?**\
-`She parties with Ivanka Trump and has turned Tesla products into fashion accessories on social media. Assuming these are political statements may be incorrect.`\
-https://nytimes.com/2024/11/22/style/kim-kardashian-tesla-musk-trump.html
 

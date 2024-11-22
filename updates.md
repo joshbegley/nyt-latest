@@ -1,3 +1,7 @@
+**The Lady Jaguars**\
+`The New York Times first reported on a winless basketball team of troubled teens in Tennessee in 2012. Explore our years of coverage here.`\
+https://nytimes.com/interactive/2024/sports/the-lady-jaguars.html
+
 **Conor McGregor found liable for 2018 assault of woman in Dublin**\
 `McGregor denied the allegations, testifying that he never forced the woman to do anything against her will, per the AP.`\
 https://nytimes.com/athletic/5940927/2024/11/22/conor-mcgregor-civil-court-sexual-assault-lawsuit/
