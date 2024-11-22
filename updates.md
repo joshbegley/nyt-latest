@@ -1,3 +1,7 @@
+**Pam Bondi, a $25,000 Donation and Trump University: Questions Remain**\
+`Ms. Bondi, President-elect Donald J. Trump’s pick for attorney general, declined to investigate allegations of fraud against his for-profit school when she was Florida’s attorney general.`\
+https://nytimes.com/2024/11/22/us/politics/pam-bondi-trump-university.html
+
 **Iran Declares It Is Doing More Nuclear Enrichment After I.A.E.A. Rebuke**\
 `With thousands of advanced centrifuges on standby, Tehran says it is now spinning more, which could increase its stockpile of near-bomb-grade atomic fuel.`\
 https://nytimes.com/2024/11/22/world/middleeast/iran-nuclear-iaea-uranium.html

@@ -1,3 +1,7 @@
+**Pam Bondi, a $25,000 Donation and Trump University: Questions Remain**\
+`Ms. Bondi, President-elect Donald J. Trump’s pick for attorney general, declined to investigate allegations of fraud against his for-profit school when she was Florida’s attorney general.`\
+https://nytimes.com/2024/11/22/us/politics/pam-bondi-trump-university.html
+
 **Iran Declares It Is Doing More Nuclear Enrichment After I.A.E.A. Rebuke**\
 `With thousands of advanced centrifuges on standby, Tehran says it is now spinning more, which could increase its stockpile of near-bomb-grade atomic fuel.`\
 https://nytimes.com/2024/11/22/world/middleeast/iran-nuclear-iaea-uranium.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
 **49ers' Brock Purdy, Nick Bosa ruled out vs. Packers**\
 `Kyle Shanahan on Brandon Allen: "He’s done a really good job since he’s been here. Been here two years now and guys believe in him.”`\
 https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/
-
-**Raiders RBs Mattison, White doubtful: How Abdullah stands to benefit**\
-`Throughout his career, Ameer Abdullah has served primarily as a pass-catching option and stands to see more snaps with top two backs out. `\
-https://nytimes.com/athletic/5941200/2024/11/22/raiders-rbs-alexander-mattison-zamir-white-ameer-abdullah/
 
