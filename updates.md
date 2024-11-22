@@ -1,3 +1,11 @@
+**Fixing Manchester City and Arsenal: The tactical tweaks that could keep their title hopes alive**\
+`Both clubs can point to injuries to key players - but there are changes that could help them chase down Liverpool too`\
+https://nytimes.com/athletic/5937491/2024/11/22/fixing-manchester-city-and-arsenal-flaws/
+
+**Kaprizov survives injury scare, Fleury survives early gaffe as Wild win again: 4 takeaways**\
+`Two less-than-ideal moments weren't enough to slow down the Wild as they beat the Oilers for their ninth road win.`\
+https://nytimes.com/athletic/5939475/2024/11/22/wild-kaprizov-fleury-gaffe-oilers/
+
 **Britain Faces a Dilemma: Cozy Up to Trump or Reconnect With Europe?**\
 `A Trump administration may force Prime Minister Keir Starmer to choose between his country’s most powerful ally and its biggest trading partner.`\
 https://nytimes.com/2024/11/22/world/europe/uk-eu-us-trade-starmer-trump.html

@@ -1,3 +1,11 @@
+**Fixing Manchester City and Arsenal: The tactical tweaks that could keep their title hopes alive**\
+`Both clubs can point to injuries to key players - but there are changes that could help them chase down Liverpool too`\
+https://nytimes.com/athletic/5937491/2024/11/22/fixing-manchester-city-and-arsenal-flaws/
+
+**Kaprizov survives injury scare, Fleury survives early gaffe as Wild win again: 4 takeaways**\
+`Two less-than-ideal moments weren't enough to slow down the Wild as they beat the Oilers for their ninth road win.`\
+https://nytimes.com/athletic/5939475/2024/11/22/wild-kaprizov-fleury-gaffe-oilers/
+
 **Britain Faces a Dilemma: Cozy Up to Trump or Reconnect With Europe?**\
 `A Trump administration may force Prime Minister Keir Starmer to choose between his country’s most powerful ally and its biggest trading partner.`\
 https://nytimes.com/2024/11/22/world/europe/uk-eu-us-trade-starmer-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/21/pageoneplus/quote-of-the-day-crypto-entrepreneur-
 **Jerseys worn by LeBron and Bronny James in first NBA game together go up for sale**\
 `The jerseys worn by the NBA's first father and son to play together are being sold as a pair`\
 https://nytimes.com/athletic/5939369/2024/11/21/lebron-bronny-james-lakers-jerseys-auction/
-
-**Are the Bruins back? Joe Sacco’s power-play change works in first win as interim head coach**\
-`Sacco's adjustment to the Bruins' league-worst power play in the second period vs. Utah helped earn him his first win.`\
-https://nytimes.com/athletic/5939620/2024/11/21/bruins-joe-sacco-head-coach/
-
-**Police in New Jersey’s Capital Violate Residents’ Rights, U.S. Finds**\
-`Officers in Trenton have caused the deaths of innocent people, a Justice Department report found, citing a fatality that occurred after officers pushed a man’s face into the ground.`\
-https://nytimes.com/2024/11/21/nyregion/nj-police-violence-misconduct-justice-department.html
 
