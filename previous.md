@@ -1,3 +1,7 @@
+**A Range of Lessons From Trump’s Victory**\
+`Readers respond to an essay by Roxane Gay. Also: A Republican plan to bar a transgender member from the women’s bathroom; Matt Gaetz; Elon Musk’s cuts.`\
+https://nytimes.com/2024/11/22/opinion/donald-trump-victory-lessons.html
+
 **Fantasy football flex fliers: Wan’Dale Robinson, Alec Pierce can help in Week 12**\
 `Scott Engel tells you who to grab and play after waivers have passed for this Week 12 slate that has six teams on bye. `\
 https://nytimes.com/athletic/5940454/2024/11/22/fantasy-football-flex-fliers-week-12/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5937782/2024/11/22/don-waddell-blue-jackets-hurrica
 `From electric cars to solar panels, Mr. Musk has built businesses in high-tech manufacturing sectors now targeted by Beijing for Chinese dominance.`\
 https://nytimes.com/2024/11/22/business/elon-musk-tesla-china.html
 
-**Far From the Climate Talks: The Human Cost of Global Warming in 2024.**\
+**Far From the Climate Talks: The Human Cost of Global Warming in 2024**\
 `Every month so far has seen floods, fires, smashed heat records or some combination of extreme weather. Little time remains for leaders to agree on what to do about it.`\
 https://nytimes.com/2024/11/22/climate/global-warming-disasters.html
-
-**Scoop City: Browns win, Odell's catch and a happy Bryce Young**\
-`A quick look at Odell's legendary catch, what's next for Bryce Young and how Ja'Marr Chase continues to improve in year four.`\
-https://nytimes.com/athletic/5935930/2024/11/22/odell-catch-bryce-young-improved-scoop-city-nfl/
 
