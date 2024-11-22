@@ -1,3 +1,7 @@
+**Former Building Superintendent Charged With Stealing From Older Tenant**\
+`The super has denied wrongdoing and pleaded not guilty to charges in New York Supreme Court.`\
+https://nytimes.com/2024/11/22/realestate/superintendent-elder-abuse.html
+
 **Elon Musk Gets a Crash Course in How Trumpworld Works**\
 `The world’s richest person, not known for his humility, is still learning the cutthroat courtier politics of Donald Trump’s inner circle — and his ultimate influence remains an open question.`\
 https://nytimes.com/2024/11/22/us/politics/elon-musk-trump.html

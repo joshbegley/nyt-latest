@@ -1,3 +1,7 @@
+**Former Building Superintendent Charged With Stealing From Older Tenant**\
+`The super has denied wrongdoing and pleaded not guilty to charges in New York Supreme Court.`\
+https://nytimes.com/2024/11/22/realestate/superintendent-elder-abuse.html
+
 **Elon Musk Gets a Crash Course in How Trumpworld Works**\
 `The world’s richest person, not known for his humility, is still learning the cutthroat courtier politics of Donald Trump’s inner circle — and his ultimate influence remains an open question.`\
 https://nytimes.com/2024/11/22/us/politics/elon-musk-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/arts/television/carl-the-collector-autism-pbs-kid
 **What I'm hearing about the Canucks' roster crunch, trade options and call-ups**\
 `There are a few big-picture questions for Canucks management at this crucial moment of the season.`\
 https://nytimes.com/athletic/5939806/2024/11/22/canucks-roster-jt-miller-trades/
-
-**A Range of Lessons From Trump’s Victory**\
-`Readers respond to an essay by Roxane Gay. Also: A Republican plan to bar a transgender member from the women’s bathroom; Matt Gaetz; Elon Musk’s cuts.`\
-https://nytimes.com/2024/11/22/opinion/donald-trump-victory-lessons.html
 
