@@ -1,3 +1,7 @@
+**Is Kim Kardashian Trying to Tell Us Something?**\
+`She parties with Ivanka Trump and has turned Tesla products into fashion accessories on social media. Assuming these are political statements may be incorrect.`\
+https://nytimes.com/2024/11/22/style/kim-kardashian-tesla-musk-trump.html
+
 **Four Fantasy Books to Get Lost In**\
 `There are few pleasures as delicious as losing yourself in a great fantasy book. Jennifer Harlan, an editor at The New York Times Book Review, lists a few of her favorite fantasy books.`\
 https://nytimes.com/video/books/100000009823413/four-fantasy-books-to-get-lost-in.html
