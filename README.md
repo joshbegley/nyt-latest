@@ -1,3 +1,7 @@
+**Spirit, Pride talk strengths, excitements ahead of NWSL final**\
+`The Pride and the Spirit will face each other for the final trophy of the year on Saturday night in Kansas City.`\
+https://nytimes.com/athletic/5939387/2024/11/21/washington-spirit-orlando-pride-nwsl-final-media-day/
+
 **F1 Las Vegas GP mailbag: When will Max Verstappen clinch his fourth title?**\
 `We answered a few questions from our pre-race mailbag before F1's biggest American race of the year.`\
 https://nytimes.com/athletic/5935070/2024/11/21/f1-vegas-mailbag-verstappen-championship-tickets/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/world/middleeast/west-bank-settlers-trump.html
 **The Road to Trump’s ‘Grand New Party’**\
 `Ross Douthat and Reihan Salam had a vision for how Republicans could reclaim the working class. They never expected Trump to fulfill it.`\
 https://nytimes.com/video/opinion/100000009839702/the-road-to-trumps-grand-new-party.html
-
-**Brock Purdy's status for 49ers' game vs. Packers in question**\
-`Purdy took a hit to the shoulder during Sunday’s loss to the Seattle Seahawks was limited in Wednesday and Thursday's practices. `\
-https://nytimes.com/athletic/5939248/2024/11/21/brock-purdy-49ers-shoulder-injury/
 
