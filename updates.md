@@ -1,3 +1,7 @@
+**Bondi joined a powerhouse lobbying firm after two terms as Florida’s attorney general.**\
+`By Kenneth P. Vogel`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-lobbyist
+
 **M.I.T. to Offer Free Tuition to Families Earning Less Than $200,000**\
 `For students whose families earn less than $100,000 per year, the school will also cover other costs, including housing, dining, fees and an allowance for books and personal expenses.`\
 https://nytimes.com/2024/11/21/us/mit-free-tuition.html

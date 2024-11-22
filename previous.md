@@ -1,3 +1,7 @@
+**Bondi joined a powerhouse lobbying firm after two terms as Florida’s attorney general.**\
+`By Kenneth P. Vogel`\
+https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-lobbyist
+
 **Ex-Temple player under investigation for alleged point shaving: Report**\
 `Miller’s attorney, Jason P. Bologna, confirmed that he represented Miller but declined to comment.`\
 https://nytimes.com/athletic/5938822/2024/11/21/temple-point-shaving-investigation-fbi/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/us/mit-free-tuition.html
 **Phillips 66 Is Accused of Violating the Clean Water Act**\
 `The oil company was indicted on charges of dumping nearly 800,000 gallons of contaminated wastewater into the Los Angeles County sewer system.`\
 https://nytimes.com/2024/11/21/technology/phillips-66-wastewater-indictment.html
-
-**Peter Sinfield, Lyricist for King Crimson, Dies at 80**\
-`His swirls of poetic imagery helped define progressive rock in the 1970s. He later turned his focus to pop acts like Celine Dion.`\
-https://nytimes.com/2024/11/21/arts/music/peter-sinfield-dead.html
 
