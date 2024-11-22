@@ -1,3 +1,7 @@
+**M.I.T. to Offer Free Tuition to Families Earning Less Than $200,000**\
+`For students whose families earn less than $100,000 per year, the school will also cover other costs, including housing, dining, fees and an allowance for books and personal expenses.`\
+https://nytimes.com/2024/11/21/us/mit-free-tuition.html
+
 **Ex-Temple player under investigation for alleged point shaving: Report**\
 `Miller’s attorney, Jason P. Bologna, confirmed that he represented Miller but declined to comment.`\
 https://nytimes.com/athletic/5938822/2024/11/21/temple-point-shaving-investigation-fbi/
