@@ -1,3 +1,7 @@
+**Tiny but Mighty: A Compact Computer Makes a Big Impact**\
+`For companies across multiple industries, MSI’s Cubi mini-PCs have proven to be a solid product, driving innovation forward. `\
+https://nytimes.com/paidpost/msi/tiny-but-mighty-a-compact-computer-makes-a-big-impact.html
+
 **Spirit, Pride talk strengths, excitements ahead of NWSL final**\
 `The Pride and the Spirit will face each other for the final trophy of the year on Saturday night in Kansas City.`\
 https://nytimes.com/athletic/5939387/2024/11/21/washington-spirit-orlando-pride-nwsl-final-media-day/

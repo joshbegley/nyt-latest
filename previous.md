@@ -1,3 +1,7 @@
+**Tiny but Mighty: A Compact Computer Makes a Big Impact**\
+`For companies across multiple industries, MSI’s Cubi mini-PCs have proven to be a solid product, driving innovation forward. `\
+https://nytimes.com/paidpost/msi/tiny-but-mighty-a-compact-computer-makes-a-big-impact.html
+
 **Spirit, Pride talk strengths, excitements ahead of NWSL final**\
 `The Pride and the Spirit will face each other for the final trophy of the year on Saturday night in Kansas City.`\
 https://nytimes.com/athletic/5939387/2024/11/21/washington-spirit-orlando-pride-nwsl-final-media-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938822/2024/11/21/temple-point-shaving-investigati
 **West Bank Settlement Supporters Have Big Hopes for Trump’s Presidency**\
 `As Donald J. Trump nominates staunch supporters of Israel to key positions, advocacy groups are taking aim at the departing administration's policies.`\
 https://nytimes.com/2024/11/21/world/middleeast/west-bank-settlers-trump.html
-
-**The Road to Trump’s ‘Grand New Party’**\
-`Ross Douthat and Reihan Salam had a vision for how Republicans could reclaim the working class. They never expected Trump to fulfill it.`\
-https://nytimes.com/video/opinion/100000009839702/the-road-to-trumps-grand-new-party.html
 
