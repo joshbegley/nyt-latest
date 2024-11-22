@@ -1,3 +1,15 @@
+**What Elon Musk Needs From China**\
+`From electric cars to solar panels, Mr. Musk has built businesses in high-tech manufacturing sectors now targeted by Beijing for Chinese dominance.`\
+https://nytimes.com/2024/11/22/business/elon-musk-tesla-china.html
+
+**Far From the Climate Talks: The Human Cost of Global Warming in 2024.**\
+`Every month so far has seen floods, fires, smashed heat records or some combination of extreme weather. Little time remains for leaders to agree on what to do about it.`\
+https://nytimes.com/2024/11/22/climate/global-warming-disasters.html
+
+**Scoop City: Browns win, Odell's catch and a happy Bryce Young**\
+`A quick look at Odell's legendary catch, what's next for Bryce Young and how Ja'Marr Chase continues to improve in year four.`\
+https://nytimes.com/athletic/5935930/2024/11/22/odell-catch-bryce-young-improved-scoop-city-nfl/
+
 **Submit MLB trade scenarios, free agency questions for Bowden's offseason mailbag**\
 `Submit your questions about the MLB offseason for Jim Bowden’s upcoming mailbag. Fire away! `\
 https://nytimes.com/athletic/5940650/2024/11/22/mlb-trade-scenarios-free-agency-questions/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/22/t-magazine/home-gallery-exhibition.html
 **Behind Schumer’s Silence on Trump’s Picks, a Bid to Spotlight G.O.P. Divides**\
 `The Senate majority leader is staying out of Republican turmoil over the more contentious picks for strategic reasons.`\
 https://nytimes.com/2024/11/22/us/politics/schumer-trump-republicans.html
-
-**Ayto praised by Mikel Arteta after US talks with Arsenal owners**\
-`Mikel Arteta has talked up the credentials of interim sporting director Jason Ayto as Arsenal continue their search for Edu&#8217;s successor.`\
-https://nytimes.com/athletic/5940585/2024/11/22/jason-ayto-arsenal-mikel-arteta/
-
-**Orban Invites Netanyahu to Hungary, Flouting I.C.C. Arrest Warrant**\
-`Hungary, unlike the United States, is a signatory to the court, which accused the Israeli leader of war crimes in Gaza.`\
-https://nytimes.com/2024/11/22/world/middleeast/netanyahu-orban-icc-hungary-israel.html
-
-**NHL Power Rankings: Maple Leafs enter top 10, plus first quarter grades for every team**\
-`Every team gets a first-quarter grade but here at Rankings HQ we grade on a curve — every grade is loosely based on expectations.`\
-https://nytimes.com/athletic/5939801/2024/11/22/nhl-power-rankings-maple-leafs-2/
 

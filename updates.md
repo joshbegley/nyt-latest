@@ -1,3 +1,15 @@
+**What Elon Musk Needs From China**\
+`From electric cars to solar panels, Mr. Musk has built businesses in high-tech manufacturing sectors now targeted by Beijing for Chinese dominance.`\
+https://nytimes.com/2024/11/22/business/elon-musk-tesla-china.html
+
+**Far From the Climate Talks: The Human Cost of Global Warming in 2024.**\
+`Every month so far has seen floods, fires, smashed heat records or some combination of extreme weather. Little time remains for leaders to agree on what to do about it.`\
+https://nytimes.com/2024/11/22/climate/global-warming-disasters.html
+
+**Scoop City: Browns win, Odell's catch and a happy Bryce Young**\
+`A quick look at Odell's legendary catch, what's next for Bryce Young and how Ja'Marr Chase continues to improve in year four.`\
+https://nytimes.com/athletic/5935930/2024/11/22/odell-catch-bryce-young-improved-scoop-city-nfl/
+
 **Submit MLB trade scenarios, free agency questions for Bowden's offseason mailbag**\
 `Submit your questions about the MLB offseason for Jim Bowden’s upcoming mailbag. Fire away! `\
 https://nytimes.com/athletic/5940650/2024/11/22/mlb-trade-scenarios-free-agency-questions/
