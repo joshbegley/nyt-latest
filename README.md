@@ -6,7 +6,7 @@ https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/the-mode
 `Premier League clubs have approved changes to the associated party transaction (APT) rules at a meeting in central London.`\
 https://nytimes.com/athletic/5940017/2024/11/22/premier-league-apt-rule-changes-manchester-city/
 
-**General Motors close to approval for F1 grid spot in 2026**\
+**General Motors nearing approval for F1 grid spot in 2026**\
 `LAS VEGAS — General Motors is edging toward securing a place on the Formula One grid with its own team as early as 2026 when the field could expand to 11 teams.`\
 https://nytimes.com/athletic/5940015/2024/11/22/f1-general-motors-entry-approval-2026/
 
