@@ -1,3 +1,7 @@
+**Russia Supplies Antiaircraft Missiles to North Korea, South Korea Says**\
+`Pyongyang has long coveted an advanced air-defense system to guard against missiles and war planes from the United States and South Korea.`\
+https://nytimes.com/2024/11/22/world/asia/russia-north-korea-missiles-troops.html
+
 **Israel Strikes Across Lebanon After Ordering Evacuations of Southern Towns**\
 `The wide-scale bombardment of Lebanon continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-lebanon-strikes.html
