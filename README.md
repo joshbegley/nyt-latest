@@ -1,4 +1,4 @@
-**Blackhawks stave off Panthers, but does Bedard belong in a shutdown role? Observations**\
+**Blackhawks stave off Panthers, but does Connor Bedard belong in a shutdown role? Observations**\
 `The Blackhawks picked up just their third home win of the season against the reigning Stanley Cup champions.`\
 https://nytimes.com/athletic/5939754/2024/11/22/blackhawks-bedard-shutdown-role-panthers/
 
