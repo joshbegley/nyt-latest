@@ -1,3 +1,15 @@
+**'He’s really hungry': Inside Poona Ford's resurgent season for Chargers defense**\
+`Ford signed a veteran minimum contract with the Chargers after barely playing for the Bills last season. He's been a revelation. `\
+https://nytimes.com/athletic/5938996/2024/11/22/poona-ford-chargers-defense-bills/
+
+**Trump Transition Live Updates: Picking Pam Bondi for Attorney General, Trump Moves Quickly Past Gaetz**\
+``\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news
+
+**Can Joe Philbin unlock potential in Raiders' O-line? 'We're not reinventing the wheel'**\
+`"I still love teaching," said Philbin, the Raiders interim offensive line coach and former Miami Dolphins head coach.`\
+https://nytimes.com/athletic/5938966/2024/11/22/joe-philbin-raiders-offensive-line/
+
 **Should the Giants trade Mike Yastrzemski? The pros and cons**\
 `Yastrzemski is one of the Giants’ most valuable players. Can they really get better by trading him?`\
 https://nytimes.com/athletic/5938233/2024/11/22/sf-giants-mike-yastrzemski-trade-options/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5940182/2024/11/22/safeguarding-regulator-sport-naz
 **Live Q&A: FPL Gameweek 12 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 12 Q&A from 4-5pm UK time `\
 https://nytimes.com/athletic/5937263/2024/11/22/fantasy-premier-league-advice-injury-news-gw12/
-
-**Merkel Memoir Recalls What It Was Like Dealing With Trump and Putin**\
-`The new book by former Chancellor Angela Merkel of Germany also aims to justify decisions she made that are still affecting her country and the rest of Europe.`\
-https://nytimes.com/2024/11/22/world/europe/merkel-memoir-trump-putin.html
-
-**The Athletic FC: Lewandowski exclusive, fixing MLS Cup play-offs, defining 'injury crisis'**\
-`Plus: Why Tim Howard isn't happy with Christian Pulisic, FPL advice and a deep look at EPL club owners from around the world...`\
-https://nytimes.com/athletic/5940073/2024/11/22/lewandowski-exclusive-mls-play-off-format/
-
-**Nations League quarter-final draw: Spain play Netherlands, Germany face Italy**\
-`European champions Spain have been drawn against the Netherlands in the quarter-finals of the Nations League, while Germany will play Italy.`\
-https://nytimes.com/athletic/5940120/2024/11/22/nations-league-quarter-final-draw/
 
