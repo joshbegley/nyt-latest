@@ -1,3 +1,11 @@
+**Who is Kang? The businesswoman investing millions in women's soccer**\
+`Kang sees this moment in women's sports as a "tipping point" for investment, something that can't be stopped`\
+https://nytimes.com/athletic/5940050/2024/11/22/michele-kang-womens-soccer-investment/
+
+**What Bondi Might Do as Attorney General**\
+`Donald Trump’s new pick to lead the Justice Department fought to overturn the Affordable Care Act, and has lobbied for Amazon, Uber and General Motors.`\
+https://nytimes.com/2024/11/22/business/dealbook/bondi-attorney-general-gaetz.html
+
 **Hollinger: Orlando's Franz Wagner is writing his All-Star origin story**\
 `Wagner piled up 37 points and 11 assists along with the dagger in LA. And it didn't come as a surprise to his teammates or coaches.`\
 https://nytimes.com/athletic/5939985/2024/11/22/franz-wagner-orlando-magic-game-winner/
