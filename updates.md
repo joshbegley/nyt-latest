@@ -1,3 +1,7 @@
+**Is It Possible the Democrats Were Hurt by a Strong Economy?**\
+`An interesting theory about the election that’s the opposite of what you’ve heard.`\
+https://nytimes.com/2024/11/22/opinion/democrats-economy-election.html
+
 **Is Kim Kardashian Trying to Tell Us Something?**\
 `She parties with Ivanka Trump and has turned Tesla products into fashion accessories on social media. Assuming these are political statements may be incorrect.`\
 https://nytimes.com/2024/11/22/style/kim-kardashian-tesla-musk-trump.html
