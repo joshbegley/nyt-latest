@@ -1,4 +1,12 @@
-**General Motors close to approval for F1 grid spot in 2026**\
+**This Is Not a Beauty Podcast: The Modern Warrior**\
+`How does today’s star athlete use warpaint to enter the battlefield? What goes through their mind right before the big game? In this episode, hear from top soccer players’ favorite barber, Sheldon Edwards, as well as from athletes around the world about how beauty rituals can act as psychological primers for performance.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/the-modern-warrior.html
+
+**Premier League clubs approve changes to APT rules**\
+`Premier League clubs have approved changes to the associated party transaction (APT) rules at a meeting in central London.`\
+https://nytimes.com/athletic/5940017/2024/11/22/premier-league-apt-rule-changes-manchester-city/
+
+**General Motors nearing approval for F1 grid spot in 2026**\
 `LAS VEGAS — General Motors is edging toward securing a place on the Formula One grid with its own team as early as 2026 when the field could expand to 11 teams.`\
 https://nytimes.com/athletic/5940015/2024/11/22/f1-general-motors-entry-approval-2026/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/nyregion/after-banning-booze-for-120-years-a-town
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/22/crosswords/spelling-bee-forum.html
-
-**'I wish we had answers': Oilers are a long way from the powerhouse they're supposed to be**\
-`This team can’t score. It doesn't defend. It isn't getting enough saves, proved again in Thursday's loss to Minnesota.`\
-https://nytimes.com/athletic/5939892/2024/11/22/struggling-edmonton-oilers-stuart-skinner/
-
-**Slegers could not have done much more - what will Arsenal do next in head coach search?**\
-`Arsenal's interim head coach has not overplayed her card in public - but results say everything about her impact since replacing Eidevall`\
-https://nytimes.com/athletic/5939269/2024/11/22/arsenal-women-renee-slegers-head-coach/
 
