@@ -1,3 +1,11 @@
+**The Bounce: Why the 76ers' season is already at a crossroads**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5940127/2024/11/22/paul-george-joel-embiid-tyrese-maxey-76ers-nba-the-bounce/
+
+**Arsenal defender White out for "months" after undergoing knee surgery - Arteta**\
+`Mikel Arteta has confirmed that Arsenal defender Ben White is going to be out for &#8220;months&#8221; after undergoing a knee procedure during the international break.`\
+https://nytimes.com/athletic/5919670/2024/11/22/ben-white-injury-surgery-arsenal/
+
 **Eze set to miss Aston Villa match: 'It’s a little bit too risky'**\
 `Crystal Palace manager Oliver Glasner says Eberechi Eze will miss Saturday’s game with Aston Villa through injury.`\
 https://nytimes.com/athletic/5940440/2024/11/22/eberechi-eze-injury-update-crystal-palace/
