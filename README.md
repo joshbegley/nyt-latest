@@ -1,3 +1,15 @@
+**Five Science Fiction Movies to Stream Now**\
+`This month’s picks include a heart-wrenching animated Filipino film, a yeasty savior and the return of Carrie-Anne Moss.`\
+https://nytimes.com/2024/11/22/movies/five-science-fiction-movies-to-stream-now.html
+
+**Turkey Stock and Pie Crusts and Cranberry Sauce and Shallot Gravy**\
+`And cornbread stuffing with esquites and roasted beets with hazelnuts and honey. Let’s go.`\
+https://nytimes.com/2024/11/22/dining/turkey-stock-and-pie-crusts-and-cranberry-sauce-and-shallot-gravy.html
+
+**'It's been a perfect fit': Don Waddell enjoys fresh start but holds good feelings about Hurricanes**\
+`As Carolina visits Columbus, Waddell reflects on why he made a necessary move last summer.`\
+https://nytimes.com/athletic/5937782/2024/11/22/don-waddell-blue-jackets-hurricanes/
+
 **What Elon Musk Needs From China**\
 `From electric cars to solar panels, Mr. Musk has built businesses in high-tech manufacturing sectors now targeted by Beijing for Chinese dominance.`\
 https://nytimes.com/2024/11/22/business/elon-musk-tesla-china.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5940146/2024/11/22/premier-league-apt-changes-expla
 **Ruben Amorim, the Right One? Man Utd head coach mixes warmth with steel in first press conference**\
 `The Portuguese referenced the club's past but made it clear he has a vision for what his Manchester United team will look like in the future`\
 https://nytimes.com/athletic/5940596/2024/11/22/ruben-amorim-manchester-united-press-conference/
-
-**How to Survive Thanksgiving Travel**\
-`The busiest travel period of the year can be daunting, but we’ve got tips to help minimize the stress, at the airport and on the road.`\
-https://nytimes.com/2024/11/22/travel/thanksgiving-travel-flights-rentals-tips.html
-
-**When Your Living Room Is Also a Gallery**\
-`Tired of the featureless white cube, curators and dealers are staging shows in the most personal spaces of all: their homes.`\
-https://nytimes.com/2024/11/22/t-magazine/home-gallery-exhibition.html
-
-**Behind Schumer’s Silence on Trump’s Picks, a Bid to Spotlight G.O.P. Divides**\
-`The Senate majority leader is staying out of Republican turmoil over the more contentious picks for strategic reasons.`\
-https://nytimes.com/2024/11/22/us/politics/schumer-trump-republicans.html
 
