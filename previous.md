@@ -1,5 +1,9 @@
+**Man City's Kovacic out for up to a month - Guardiola**\
+`Manchester City midfielder Mateo Kovacic is set to be out for up to a month with an injury, Pep Guardiola has confirmed.`\
+https://nytimes.com/athletic/5940279/2024/11/22/mateo-kovacic-injury-man-city/
+
 **Boniface set to be out until January with thigh injury**\
-`Bayer Leverkusen forward Victor Boniface will likely not play again until after December&#8217;s winter break, having suffered a thigh injury on international duty with Nigeria.`\
+`Bayer Leverkusen forward Victor Boniface will likely not play again until after the Bundesliga&#8217;s winter break, having suffered a thigh injury on international duty with Nigeria.`\
 https://nytimes.com/athletic/5940324/2024/11/22/victor-boniface-leverkusen-injury-update/
 
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938233/2024/11/22/sf-giants-mike-yastrzemski-trade
 **Frozen Out: Yelloh, Formerly Schwan’s Home Delivery, Closes**\
 `Yelloh has parked its fleet of refrigerated trucks. Its downfall, accelerated by a disastrous rebranding, was decades in the making and probably inevitable, experts say.`\
 https://nytimes.com/2024/11/22/business/yelloh-schwan-food-delivery-closes.html
-
-**Who is Kang? The businesswoman investing millions in women's soccer**\
-`Kang sees this moment in women's sports as a "tipping point" for investment, something that can't be stopped`\
-https://nytimes.com/athletic/5940050/2024/11/22/michele-kang-womens-soccer-investment/
 
