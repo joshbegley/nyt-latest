@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend
 https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
 
 **49ers' Brock Purdy, Nick Bosa ruled out vs. Packers**\
-`San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
+`Kyle Shanahan on Brandon Allen: "He’s done a really good job since he’s been here. Been here two years now and guys believe in him.”`\
 https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/
 
 **Raiders RBs Mattison, White doubtful: How Abdullah stands to benefit**\
