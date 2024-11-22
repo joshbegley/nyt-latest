@@ -1,3 +1,15 @@
+**Live Q&A: FPL Gameweek 12 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 12 Q&A from 4-5pm UK time `\
+https://nytimes.com/athletic/5937263/2024/11/22/fantasy-premier-league-advice-injury-news-gw12/
+
+**Merkel Memoir Recalls What It Was Like Dealing With Trump and Putin**\
+`The new book by former Chancellor Angela Merkel of Germany also aims to justify decisions she made that are still affecting her country and the rest of Europe.`\
+https://nytimes.com/2024/11/22/world/europe/merkel-memoir-trump-putin.html
+
+**The Athletic FC: Lewandowski exclusive, fixing MLS Cup play-offs, defining 'injury crisis'**\
+`Plus: Why Tim Howard isn't happy with Christian Pulisic, FPL advice and a deep look at EPL club owners from around the world...`\
+https://nytimes.com/athletic/5940073/2024/11/22/lewandowski-exclusive-mls-play-off-format/
+
 **Israel Strikes Across Lebanon After Ordering Evacuations of Southern Towns**\
 `The wide-scale bombardment continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-lebanon-strikes.html
