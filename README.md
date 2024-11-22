@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5937782/2024/11/22/don-waddell-blue-jackets-hurrica
 `From electric cars to solar panels, Mr. Musk has built businesses in high-tech manufacturing sectors now targeted by Beijing for Chinese dominance.`\
 https://nytimes.com/2024/11/22/business/elon-musk-tesla-china.html
 
-**Far From the Climate Talks: The Human Cost of Global Warming in 2024.**\
+**Far From the Climate Talks: The Human Cost of Global Warming in 2024**\
 `Every month so far has seen floods, fires, smashed heat records or some combination of extreme weather. Little time remains for leaders to agree on what to do about it.`\
 https://nytimes.com/2024/11/22/climate/global-warming-disasters.html
 
