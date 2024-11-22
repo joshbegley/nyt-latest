@@ -1,3 +1,7 @@
+**Konsa set to be sidelined for Crystal Palace fixture**\
+`Ezri Konsa has been ruled out of Aston Villa&#8217;s game against Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/5940447/2024/11/22/ezri-konsa-aston-villa-injury-update/
+
 **High-Yield Savings Accounts Are Still a Good Deal**\
 `Interest rates have been falling, but deposits are earning more than inflation.`\
 https://nytimes.com/2024/11/22/your-money/savings-accounts-interest-rates.html
