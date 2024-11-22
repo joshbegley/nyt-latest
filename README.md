@@ -1,3 +1,7 @@
+**Mike Shatzkin, Colorful Publishing Industry Guru, Dies at 77**\
+`His blog, The Shatzkin Files, was an essential read for industry insiders. His observations about the changes digital publishing would bring were prophetic.`\
+https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
+
 **49ers QB Brock Purdy ruled out vs. Packers**\
 `San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
 https://nytimes.com/athletic/5941234/2024/11/22/49ers-qb-brock-purdy-out-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941278/2024/11/22/eagles-devonta-smith-out-rams/
 **Kane becomes fastest player to 50 Bundesliga goals, beating Haaland's record**\
 `Harry Kane has become the fastest player to score fifty Bundesliga goals after his hat-trick for Bayern Munich on Friday night.`\
 https://nytimes.com/athletic/5941337/2024/11/22/harry-kane-bundesliga-record/
-
-**Clear Eyes. Foam Head. Can’t Lose.**\
-`The New York Times for Kids goes inside the sweaty, funny, heartfelt world of high school mascots.`\
-https://nytimes.com/2024/11/22/magazine/high-school-mascots.html
 
