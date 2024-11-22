@@ -1,3 +1,7 @@
+**Jerseys worn by LeBron and Bronny James in first NBA game together go up for sale**\
+`The jerseys worn by the NBA's first father and son to play together are being sold as a pair`\
+https://nytimes.com/athletic/5939369/2024/11/21/lebron-bronny-james-lakers-jerseys-auction/
+
 **Are the Bruins back? Joe Sacco’s power-play change works in first win as interim head coach**\
 `Sacco's adjustment to the Bruins' league-worst power play in the second period vs. Utah helped earn him his first win.`\
 https://nytimes.com/athletic/5939620/2024/11/21/bruins-joe-sacco-head-coach/
