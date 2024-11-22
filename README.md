@@ -1,3 +1,11 @@
+**Caravaggio Painting, Unseen for Decades, Goes on Display**\
+`A portrait by the artist had a public debut in Rome on Friday, after decades hidden away in a private collection. Now Italy wants to buy it.`\
+https://nytimes.com/2024/11/22/arts/design/caravaggio-portrait-maffeo-barberini.html
+
+**South Africa’s A.N.C. Rejects Jacob Zuma’s Appeal Against His Expulsion**\
+`The country’s governing party had severed ties with the former president in July after he campaigned for an opposition party in the last general election.`\
+https://nytimes.com/2024/11/22/world/africa/anc-jacob-zuma-appeal.html
+
 **In ‘A Man on the Inside,’ Ted Danson Finds Another Good Place**\
 `Created by Michael Schur and starring Danson, this Netflix sitcom synthesizes the most gutting realities of life and death into cozy, low-stakes comedy.`\
 https://nytimes.com/2024/11/22/arts/television/review-a-man-on-the-inside-netflix.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/nyregion/trump-sentencing-postponed.html
 **NFL moves Broncos-Chargers in Week 16 for first 'TNF' flex**\
 `AFC West divisional tilt between two playoff hopefuls replaces Browns vs. Bengals as Prime Video's game of the week. `\
 https://nytimes.com/athletic/5940748/2024/11/22/broncos-vs-chargers-tnf-flex-week-16/
-
-**Slavery’s Ghost Haunts a Booker Prizewinner’s First TV Show**\
-`Marlon James’s new HBO detective series, “Get Millie Black,” draws on Jamaica’s colonial history as well as his family’s experiences.`\
-https://nytimes.com/2024/11/22/arts/television/marlon-james-get-millie-black.html
-
-**Former Building Superintendent Charged With Stealing From Older Tenant**\
-`The super has denied wrongdoing and pleaded not guilty to charges in New York Supreme Court.`\
-https://nytimes.com/2024/11/22/realestate/superintendent-elder-abuse.html
 
