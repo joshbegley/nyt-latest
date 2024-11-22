@@ -1,3 +1,7 @@
+**New York Giants agree to release QB Daniel Jones**\
+`“Daniel came to see me this morning and asked if we would release him. We mutually agreed that would be best for him and for the team."`\
+https://nytimes.com/athletic/5940785/2024/11/22/ny-giants-daniel-jones-release-qb/
+
 **A Playlist That’s as Cool as Kim Deal**\
 `Hear tracks from her first solo album, the Breeders, Pixies and more.`\
 https://nytimes.com/2024/11/22/arts/music/amplifier-newsletter-kim-deal.html

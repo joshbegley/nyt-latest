@@ -1,3 +1,7 @@
+**New York Giants agree to release QB Daniel Jones**\
+`“Daniel came to see me this morning and asked if we would release him. We mutually agreed that would be best for him and for the team."`\
+https://nytimes.com/athletic/5940785/2024/11/22/ny-giants-daniel-jones-release-qb/
+
 **A Playlist That’s as Cool as Kim Deal**\
 `Hear tracks from her first solo album, the Breeders, Pixies and more.`\
 https://nytimes.com/2024/11/22/arts/music/amplifier-newsletter-kim-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940903/2024/11/22/notre-dame-army-prediction-previ
 **How Nick Robertson is trying to break the biggest slump of his career**\
 `Nick Robertson has one goal this season and is struggling to adjust to a new system. A new opportunity may help.`\
 https://nytimes.com/athletic/5938544/2024/11/22/maple-leafs-nick-robertson-2/
-
-**Inter Miami expecting Messi to play in 2026, has asked for his input on new coach**\
-`Miami's new stadium is also due to open ahead of the 2026 MLS season, when Messi will be 38.`\
-https://nytimes.com/athletic/5940811/2024/11/22/lionel-messi-inter-miami-future/
 
