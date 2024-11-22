@@ -1,3 +1,11 @@
+**DirecTV Calls Off Plans to Acquire Dish Network**\
+`The deal, which would have created one of the largest pay-TV providers in the United States, fell apart after strong objections from Dish’s lenders.`\
+https://nytimes.com/2024/11/22/business/dealbook/directv-dish-network-deal-collapse.html
+
+**AGs want ACC lawsuit vs. Florida State dismissed**\
+`In a brief, the attorneys general said the case should be thrown out because FSU never agreed to be sued outside of Florida. `\
+https://nytimes.com/athletic/5940932/2024/11/22/acc-lawsuit-florida-state-clemson-attorneys-general/
+
 **Jack Harlow Expands His Romantic Options, and 7 More New Songs**\
 `Hear tracks by Horsegirl, Tyla, Amber Mark and others.`\
 https://nytimes.com/2024/11/22/arts/music/playlist-jack-harlow-tyla-omar-apollo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5940599/2024/11/22/rex-ryan-potential-return-new-yo
 **Israel and Hezbollah Trade Strikes as U.S. Pushes for a Cease-Fire**\
 `As U.S. diplomat Amos Hochstein visited the region to push for a ceasefire, Israel struck Beirut’s southern suburbs and the eastern Bekaa region, and a barrage of rockets fired from Lebanon killed a man in northern Israel.`\
 https://nytimes.com/video/world/middleeast/100000009840361/israel-lebanon-hezbollah-strikes-dahiya-nahariya.html
-
-**Jonathan Majors Settles Assault and Defamation Lawsuit by Ex-Girlfriend**\
-`Mr. Majors was criminally convicted last year of assaulting and harassing Grace Jabbari, who then sued him in March.`\
-https://nytimes.com/2024/11/22/movies/jonathan-majors-lawsuit-settlement.html
-
-**Kendrick Lamar Surprise Releases a New Album, ‘GNX’**\
-`The rapper’s sixth studio album follows the success of a pair of tracks this year that were sparked by a war of words with Drake.`\
-https://nytimes.com/2024/11/22/arts/music/kendrick-lamar-gnx-surprise-album.html
 
