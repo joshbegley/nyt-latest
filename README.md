@@ -1,3 +1,27 @@
+**Court Vision: An early contender for game of the season, triple-doubles appreciation**\
+`Baylor-St. John's went to double overtime and ended with a buzzer beater. Which teams are being underrated? Plus, the game of the weekend.`\
+https://nytimes.com/athletic/5939327/2024/11/22/court-vision-baylor-st-johns-marquette-triple-doubles/
+
+**Shedeur Sanders the recruiter: How the QB helped build Colorado into a contender**\
+`To get to where they are now, the Buffs needed much more. The quarterback, teammates say, knew it, which is why he went to work.`\
+https://nytimes.com/athletic/5938065/2024/11/22/colorado-football-shedeur-sanders-deion/
+
+**Can offense break free after firing OC? Wisconsin-Nebraska game keys and prediction**\
+`Could the Badgers introduce enough tweaks on short notice to again create meaningful change, even if just for a game?`\
+https://nytimes.com/athletic/5938552/2024/11/22/wisconsin-football-nebraska-prediction/
+
+**Chiefs defense lacking the same pass-rush production from last year's Super Bowl team**\
+`In the Chiefs' 10 games this season, their defense has produced just 19 sacks, ranking 27th in the league.`\
+https://nytimes.com/athletic/5939069/2024/11/22/chiefs-defense-pass-rush-chris-jones-steve-spagnuolo/
+
+**As F1 thrives in Las Vegas, some local businesses feel the financial strain**\
+`Race organizers and Clark County have made efforts to lessen the burden on local businesses, but many still resent F1's presence.`\
+https://nytimes.com/athletic/5938951/2024/11/22/f1-vegas-local-business-lawsuit-disruption/
+
+**Mirtle: What we've learned about the Maple Leafs at the quarter mark of the season**\
+`It's a good time to take stock of where the Maple Leafs are at, through the highs and lows of their season so far. `\
+https://nytimes.com/athletic/5938576/2024/11/22/maple-leafs-season-quarter-mark-analysis/
+
 **Jets fan survey results, part 2: What to do with pending free agents, best chants and more**\
 `Breaking down the gaps between fan hopes and expectations for new contracts, plus a dream trade deadline for the NHL's top team.`\
 https://nytimes.com/athletic/5932940/2024/11/22/jets-fan-survey-free-agents-chants/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5939593/2024/11/22/red-wings-islanders-lucas-raymon
 **Trump’s New Pick for Attorney General, and a Surprise Turn in U.S. Drug Deaths**\
 `Plus, a “Wicked” warning.`\
 https://nytimes.com/2024/11/22/podcasts/trump-attorney-general-wicked.html
-
-**'You could never question his heart': Allen Iverson checks in at No. 49 in 'The Basketball 100'**\
-`Iverson's impact extended beyond his on-court feats. To understand the totality of his greatness requires a sense of what he represented.`\
-https://nytimes.com/athletic/5938101/2024/11/22/allen-iverson-the-basketball-100-book-excerpt/
-
-**The Connections Companion No. 531**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 23, 2024.`\
-https://nytimes.com/2024/11/22/crosswords/connections-companion-531.html
-
-**Wordle Review No. 1253**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 23, 2024.`\
-https://nytimes.com/2024/11/22/crosswords/wordle-review-1253.html
-
-**UEFA opens disciplinary proceedings after Man City's Shaw struck by object from stands**\
-`UEFA have opened disciplinary proceedings against Hammarby IF after Manchester City forward Khadija Shaw was struck by an object thrown from the stands during their Champions League game on Thursday night.`\
-https://nytimes.com/athletic/5938869/2024/11/22/khadija-shaw-man-city-hammarby/
-
-**Fantasy trends and hidden gems: Keep Jake DeBrusk, kick Brady Skjei and more**\
-`In addition to her usual waiver wire insights, Shayna Goldman brings back Keep or Kick, saying to retain Jake DeBrusk with his line cooking.`\
-https://nytimes.com/athletic/5939625/2024/11/22/fantasy-trends-and-hidden-gems-keep-jake-debrusk-kick-brady-skjei-and-more/
-
-**Alisson and Jota set to miss Real Madrid match, Alexander-Arnold a doubt**\
-`Liverpool head coach Arne Slot does not expect either Alisson or Diogo Jota to be available for next Wednesday&#8217;s Champions League clash with Real Madrid, but Trent Alexander-Arnold has a chance of being fit.`\
-https://nytimes.com/athletic/5940044/2024/11/22/liverpool-alisson-jota-alexander-arnold-injury-update/
 
