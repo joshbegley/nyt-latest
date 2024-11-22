@@ -1,5 +1,5 @@
 **Boniface set to be out until January with thigh injury**\
-`Bayer Leverkusen forward Victor Boniface will likely not play again until after December&#8217;s winter break, having suffered a thigh injury on international duty with Nigeria.`\
+`Bayer Leverkusen forward Victor Boniface will likely not play again until after the Bundesliga&#8217;s winter break, having suffered a thigh injury on international duty with Nigeria.`\
 https://nytimes.com/athletic/5940324/2024/11/22/victor-boniface-leverkusen-injury-update/
 
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\

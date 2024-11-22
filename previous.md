@@ -1,3 +1,11 @@
+**Boniface set to be out until January with thigh injury**\
+`Bayer Leverkusen forward Victor Boniface will likely not play again until after December&#8217;s winter break, having suffered a thigh injury on international duty with Nigeria.`\
+https://nytimes.com/athletic/5940324/2024/11/22/victor-boniface-leverkusen-injury-update/
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/22/nhl-standings-playoffs-projections-odds/
+
 **Van de Ven out until middle of December with hamstring injury**\
 `Tottenham Hotspur defender Micky van de Ven is not expected to return from a hamstring injury until the middle of December while Cristian Romero is also sidelined and will miss the game with Manchester City on Saturday.`\
 https://nytimes.com/athletic/5938427/2024/11/22/micky-van-de-ven-injury-return/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/business/yelloh-schwan-food-delivery-closes.html
 **Who is Kang? The businesswoman investing millions in women's soccer**\
 `Kang sees this moment in women's sports as a "tipping point" for investment, something that can't be stopped`\
 https://nytimes.com/athletic/5940050/2024/11/22/michele-kang-womens-soccer-investment/
-
-**What Bondi Might Do as Attorney General**\
-`Donald Trump’s new pick to lead the Justice Department fought to overturn the Affordable Care Act, and has lobbied for Amazon, Uber and General Motors.`\
-https://nytimes.com/2024/11/22/business/dealbook/bondi-attorney-general-gaetz.html
-
-**Hollinger: Orlando's Franz Wagner is writing his All-Star origin story**\
-`Wagner piled up 37 points and 11 assists along with the dagger in LA. And it didn't come as a surprise to his teammates or coaches.`\
-https://nytimes.com/athletic/5939985/2024/11/22/franz-wagner-orlando-magic-game-winner/
 

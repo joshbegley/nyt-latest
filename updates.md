@@ -1,3 +1,11 @@
+**Boniface set to be out until January with thigh injury**\
+`Bayer Leverkusen forward Victor Boniface will likely not play again until after December&#8217;s winter break, having suffered a thigh injury on international duty with Nigeria.`\
+https://nytimes.com/athletic/5940324/2024/11/22/victor-boniface-leverkusen-injury-update/
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/22/nhl-standings-playoffs-projections-odds/
+
 **Van de Ven out until middle of December with hamstring injury**\
 `Tottenham Hotspur defender Micky van de Ven is not expected to return from a hamstring injury until the middle of December while Cristian Romero is also sidelined and will miss the game with Manchester City on Saturday.`\
 https://nytimes.com/athletic/5938427/2024/11/22/micky-van-de-ven-injury-return/
