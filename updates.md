@@ -1,3 +1,15 @@
+**When Your Living Room Is Also a Gallery**\
+`Tired of the featureless white cube, curators and dealers are staging shows in the most personal spaces of all: their homes.`\
+https://nytimes.com/2024/11/22/t-magazine/home-gallery-exhibition.html
+
+**Behind Schumer’s Silence on Trump’s Picks, a Bid to Spotlight G.O.P. Divides**\
+`The Senate majority leader is staying out of Republican turmoil over the more contentious picks for strategic reasons.`\
+https://nytimes.com/2024/11/22/us/politics/schumer-trump-republicans.html
+
+**Ayto talked up by Mikel Arteta after US talks with Arsenal owners**\
+`Mikel Arteta has talked up the credentials of interim sporting director Jason Ayto as Arsenal continue their search for Edu&#8217;s successor.`\
+https://nytimes.com/athletic/5940585/2024/11/22/jason-ayto-arsenal-mikel-arteta/
+
 **Orban Invites Netanyahu to Hungary, Flouting I.C.C. Arrest Warrant**\
 `Hungary, unlike the United States, is a signatory to the court, which accused the Israeli leader of war crimes in Gaza.`\
 https://nytimes.com/2024/11/22/world/middleeast/netanyahu-orban-icc-hungary-israel.html
