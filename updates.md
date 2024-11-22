@@ -1,3 +1,7 @@
+**A Difficult Few Days for Bolsonaro’s Right-Wing Movement**\
+`Accusations that former far-right President Jair Bolsonaro plotted a coup arose after a former top aide of his was implicated in a plan to kill the current president.`\
+https://nytimes.com/2024/11/22/world/americas/bolsonaro-far-right-brazil.html
+
 **Berman says NWSL's organizational values will not change under Trump**\
 `Women’s soccer has been subject to President-elect Trump’s attention over the last two World Cup cycles.`\
 https://nytimes.com/athletic/5940820/2024/11/22/nwsl-trump-commissioner-berman/
