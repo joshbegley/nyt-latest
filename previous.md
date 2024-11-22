@@ -1,3 +1,7 @@
+**Conor McGregor found liable for 2018 assault of woman in Dublin**\
+`McGregor denied the allegations, testifying that he never forced the woman to do anything against her will, per the AP.`\
+https://nytimes.com/athletic/5940927/2024/11/22/conor-mcgregor-civil-court-sexual-assault-lawsuit/
+
 **Heavy Rains and Wind Wreak Havoc on the West Coast**\
 `A series of atmospheric rivers has caused flooding and damage in the Pacific Northwest and Northern California, knocking out power for hundreds of thousands of people.`\
 https://nytimes.com/video/us/100000009840644/west-coast-storms-seattle-northern-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/opinion/democrats-economy-election.html
 **Is Kim Kardashian Trying to Tell Us Something?**\
 `She parties with Ivanka Trump and has turned Tesla products into fashion accessories on social media. Assuming these are political statements may be incorrect.`\
 https://nytimes.com/2024/11/22/style/kim-kardashian-tesla-musk-trump.html
-
-**Four Fantasy Books to Get Lost In**\
-`There are few pleasures as delicious as losing yourself in a great fantasy book. Jennifer Harlan, an editor at The New York Times Book Review, lists a few of her favorite fantasy books.`\
-https://nytimes.com/video/books/100000009823413/four-fantasy-books-to-get-lost-in.html
 

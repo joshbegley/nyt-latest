@@ -1,3 +1,7 @@
+**Conor McGregor found liable for 2018 assault of woman in Dublin**\
+`McGregor denied the allegations, testifying that he never forced the woman to do anything against her will, per the AP.`\
+https://nytimes.com/athletic/5940927/2024/11/22/conor-mcgregor-civil-court-sexual-assault-lawsuit/
+
 **Heavy Rains and Wind Wreak Havoc on the West Coast**\
 `A series of atmospheric rivers has caused flooding and damage in the Pacific Northwest and Northern California, knocking out power for hundreds of thousands of people.`\
 https://nytimes.com/video/us/100000009840644/west-coast-storms-seattle-northern-california.html
