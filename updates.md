@@ -1,3 +1,7 @@
+**A Classic Holiday Dessert Reimagined**\
+`Quick, easy and glucose-friendly.`\
+https://nytimes.com/paidpost/abbott-lingo/a-classic-holiday-dessert-reimagined.html
+
 **Bondi joined a powerhouse lobbying firm after two terms as Florida’s attorney general.**\
 `By Kenneth P. Vogel`\
 https://nytimes.com/live/2024/11/21/us/trump-gaetz-news/pam-bondi-lobbyist
