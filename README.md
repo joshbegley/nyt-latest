@@ -1,3 +1,7 @@
+**Is Kim Kardashian Trying to Tell Us Something?**\
+`She parties with Ivanka Trump and has turned Tesla products into fashion accessories on social media. Assuming these are political statements may be incorrect.`\
+https://nytimes.com/2024/11/22/style/kim-kardashian-tesla-musk-trump.html
+
 **Four Fantasy Books to Get Lost In**\
 `There are few pleasures as delicious as losing yourself in a great fantasy book. Jennifer Harlan, an editor at The New York Times Book Review, lists a few of her favorite fantasy books.`\
 https://nytimes.com/video/books/100000009823413/four-fantasy-books-to-get-lost-in.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/arts/music/playlist-jack-harlow-tyla-omar-apollo.
 **Alcohol Deaths Have More Than Doubled in Two Decades, Study Finds**\
 `Americans are dying of illnesses related to alcohol at roughly twice the rate seen in 1999.`\
 https://nytimes.com/2024/11/22/health/alcohol-deaths-americans.html
-
-**Bible-Based Lessons for Public Schools Get Final Approval in Texas**\
-`The state’s board of education narrowly voted to allow schools to start using the reading and language arts curriculum next fall if they choose.`\
-https://nytimes.com/2024/11/22/us/bible-curriculum-public-schools-texas-approved.html
 
