@@ -1,3 +1,7 @@
+**The New York Times Presents: ‘Weight of the World’**\
+`As GLP-1 medications like Ozempic soar in popularity, our new documentary follows three people on their weight-loss journeys — and explores how decades of diet culture paved the way for the drugs’ rise.`\
+https://nytimes.com/2024/11/22/NYT-Presents/ozempic-weight-of-the-world.html
+
 **Chris Gayle named Denny Hamlin’s crew chief for 2025 NASCAR Cup season**\
 `The highly successful driver-crew chief tandem of Hamlin and Chris Gabehart is no more.`\
 https://nytimes.com/athletic/5940321/2024/11/22/denny-hamlin-chris-gayle-nascar-cup-series-2025/
