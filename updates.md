@@ -1,3 +1,7 @@
+**Israel Strikes Across Lebanon After Ordering Evacuations of Southern Towns**\
+`The wide-scale bombardment continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
+https://nytimes.com/2024/11/22/world/middleeast/israel-lebanon-strikes.html
+
 **Nations League quarter-final draw: Spain play Netherlands, Germany face Italy**\
 `European champions Spain have been drawn against the Netherlands in the quarter-finals of the Nations League, while Germany will play Italy.`\
 https://nytimes.com/athletic/5940120/2024/11/22/nations-league-quarter-final-draw/
