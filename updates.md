@@ -1,3 +1,7 @@
+**‘This Helps Netanyahu’: Israelis Rally Around Netanyahu Over Warrant, for Now**\
+`An I.C.C. arrest warrant for Prime Minister Benjamin Netanyahu over the war in Gaza spurred outrage across Israel’s political spectrum. But in the long term, it’s not a good look for a prime minister.`\
+https://nytimes.com/2024/11/22/world/middleeast/israel-netanyahu-icc-warrant.html
+
 **Browns show resilience and poise in grinding out snowstorm win over Steelers**\
 `Cleveland's willingness to fight was obvious, and it was impressive given the game had much more meaning in the standings for Pittsburgh. `\
 https://nytimes.com/athletic/5939871/2024/11/22/browns-win-thursday-night-steelers/
