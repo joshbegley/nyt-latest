@@ -1,3 +1,15 @@
+**Phillies non-tender Austin Hays; how they'll remake the outfield remains an unknown**\
+`The Phillies' next outfield transactions have become important. They have been active in pursuing trades and have shopped numerous players. `\
+https://nytimes.com/athletic/5941104/2024/11/22/phillies-austin-hays-outfield-2025/
+
+**Easy Whiskey Drinks for a Relaxed Thanksgiving**\
+`These simple cocktails call for a few simple ingredients — shaker optional.`\
+https://nytimes.com/2024/11/22/dining/drinks/thanksgiving-whiskey-cocktails.html
+
+**Book Club: Let’s Talk About ‘One Hundred Years of Solitude’**\
+`Gabriel García Márquez’s classic novel about the rise and fall of a rural Colombian village as seen through generations of its founding family remains the leading exemplar of magical realism.`\
+https://nytimes.com/2024/11/22/books/review/podcast-gabriel-garcia-marquez-one-hundred-years-of-solitude.html
+
 **A Prominent Figure in Canada’s Trucker Protests Is Found Guilty**\
 `The verdict was in the high-profile case of Pat King, a man accused of helping provoke disruptions during the so-called trucker convoy, which paralyzed Canada’s capital during the pandemic.`\
 https://nytimes.com/2024/11/22/world/canada/pat-king-guilty-freedom-convoy-canada.html

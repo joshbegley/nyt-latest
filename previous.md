@@ -1,3 +1,15 @@
+**Phillies non-tender Austin Hays; how they'll remake the outfield remains an unknown**\
+`The Phillies' next outfield transactions have become important. They have been active in pursuing trades and have shopped numerous players. `\
+https://nytimes.com/athletic/5941104/2024/11/22/phillies-austin-hays-outfield-2025/
+
+**Easy Whiskey Drinks for a Relaxed Thanksgiving**\
+`These simple cocktails call for a few simple ingredients — shaker optional.`\
+https://nytimes.com/2024/11/22/dining/drinks/thanksgiving-whiskey-cocktails.html
+
+**Book Club: Let’s Talk About ‘One Hundred Years of Solitude’**\
+`Gabriel García Márquez’s classic novel about the rise and fall of a rural Colombian village as seen through generations of its founding family remains the leading exemplar of magical realism.`\
+https://nytimes.com/2024/11/22/books/review/podcast-gabriel-garcia-marquez-one-hundred-years-of-solitude.html
+
 **A Prominent Figure in Canada’s Trucker Protests Is Found Guilty**\
 `The verdict was in the high-profile case of Pat King, a man accused of helping provoke disruptions during the so-called trucker convoy, which paralyzed Canada’s capital during the pandemic.`\
 https://nytimes.com/2024/11/22/world/canada/pat-king-guilty-freedom-convoy-canada.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5940785/2024/11/22/ny-giants-daniel-jones-release-q
 **A Playlist That’s as Cool as Kim Deal**\
 `Hear tracks from her first solo album, the Breeders, Pixies and more.`\
 https://nytimes.com/2024/11/22/arts/music/amplifier-newsletter-kim-deal.html
-
-**The Post-Cold War Era Is Finished. Liberalism and Democracy Will Go On.**\
-`A new world order doesn’t mean the old politics simply disappears.`\
-https://nytimes.com/2024/11/22/opinion/trump-liberalism-cold-war.html
-
-**DirecTV Calls Off Plans to Acquire Dish Network**\
-`The deal, which would have created one of the largest pay-TV providers in the United States, fell apart after strong objections from Dish’s lenders.`\
-https://nytimes.com/2024/11/22/business/dealbook/directv-dish-network-deal-collapse.html
-
-**AGs want ACC lawsuit vs. Florida State dismissed**\
-`In a brief, the attorneys general said the case should be thrown out because FSU never agreed to be sued outside of Florida. `\
-https://nytimes.com/athletic/5940932/2024/11/22/acc-lawsuit-florida-state-clemson-attorneys-general/
 
