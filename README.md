@@ -1,3 +1,7 @@
+**Iran Declares It Is Doing More Nuclear Enrichment After I.A.E.A. Rebuke**\
+`With thousands of advanced centrifuges on standby, Tehran says it is now spinning more, which could increase its stockpile of near-bomb-grade atomic fuel.`\
+https://nytimes.com/2024/11/22/world/middleeast/iran-nuclear-iaea-uranium.html
+
 **Matt Gaetz and the D-word**\
 `The former representative from Florida said he had become a “distraction.” Perhaps that was the point.`\
 https://nytimes.com/2024/11/22/us/politics/matt-gaetz-withdrawal-distraction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-
 **Raiders RBs Mattison, White doubtful: How Abdullah stands to benefit**\
 `Throughout his career, Ameer Abdullah has served primarily as a pass-catching option and stands to see more snaps with top two backs out. `\
 https://nytimes.com/athletic/5941200/2024/11/22/raiders-rbs-alexander-mattison-zamir-white-ameer-abdullah/
-
-**Supreme Court Agrees to Hear Fresh Challenge to Agency Power**\
-`A conservative group argues that Congress gave the Federal Communications Commission too much discretion over an $8 billion fund.`\
-https://nytimes.com/2024/11/22/us/supreme-court-fcc-agency-power.html
 
