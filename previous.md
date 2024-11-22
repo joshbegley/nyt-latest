@@ -1,3 +1,19 @@
+**Bluesky, Smiling at Me**\
+`Bluesky has a hint of the old Twitter magic, but the feeling of freedom it offers might be even better.`\
+https://nytimes.com/2024/11/22/technology/bluesky-x-alternative.html
+
+**Blue States Worry That Blocking Trump Will Be Tougher This Time**\
+`Democrat-led states successfully challenged policies during the first Trump administration. Now, they worry the new White House will be more prepared and less restrained.`\
+https://nytimes.com/2024/11/22/us/trump-states-democrat-legal-challenges.html
+
+**Scholars Thought White Women Were Passive Enslavers. They Were Wrong.**\
+`For generations, scholars argued that white women were rarely involved in the active buying and selling of Black people. A growing body of research says otherwise.`\
+https://nytimes.com/2024/11/22/us/white-women-american-slave-trade.html
+
+**‘Carl the Collector’ Puts an Autistic Child (Well, Raccoon) in the Lead**\
+`Several recent TV series for adults have featured autistic lead characters. A new PBS show looks to expand that trend into children’s programming.`\
+https://nytimes.com/2024/11/22/arts/television/carl-the-collector-autism-pbs-kids.html
+
 **What I'm hearing about the Canucks' roster crunch, trade options and call-ups**\
 `There are a few big-picture questions for Canucks management at this crucial moment of the season.`\
 https://nytimes.com/athletic/5939806/2024/11/22/canucks-roster-jt-miller-trades/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/22/well/covid-heart-health.html
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 12?**\
 `With the final international break of 2024 over and the Premier League returning, our writers have had a go at naming the starting XIs`\
 https://nytimes.com/athletic/5931636/2024/11/22/premier-league-predicted-line-ups-who-do-our-writers-think-will-start-in-gameweek-12/
-
-**Five Science Fiction Movies to Stream Now**\
-`This month’s picks include a heart-wrenching animated Filipino film, a yeasty savior and the return of Carrie-Anne Moss.`\
-https://nytimes.com/2024/11/22/movies/five-science-fiction-movies-to-stream-now.html
-
-**Turkey Stock and Pie Crusts and Cranberry Sauce and Shallot Gravy**\
-`And cornbread stuffing with esquites and roasted beets with hazelnuts and honey. Let’s go.`\
-https://nytimes.com/2024/11/22/dining/turkey-stock-and-pie-crusts-and-cranberry-sauce-and-shallot-gravy.html
-
-**'It's been a perfect fit': Don Waddell enjoys fresh start but holds good feelings about Hurricanes**\
-`As Carolina visits Columbus, Waddell reflects on why he made a necessary move last summer.`\
-https://nytimes.com/athletic/5937782/2024/11/22/don-waddell-blue-jackets-hurricanes/
-
-**What Elon Musk Needs From China**\
-`From electric cars to solar panels, Mr. Musk has built businesses in high-tech manufacturing sectors now targeted by Beijing for Chinese dominance.`\
-https://nytimes.com/2024/11/22/business/elon-musk-tesla-china.html
 
