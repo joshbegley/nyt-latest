@@ -1,3 +1,7 @@
+**A Difficult Few Days for Bolsonaro’s Right-Wing Movement**\
+`Accusations that former far-right President Jair Bolsonaro plotted a coup arose after a former top aide of his was implicated in a plan to kill the current president.`\
+https://nytimes.com/2024/11/22/world/americas/bolsonaro-far-right-brazil.html
+
 **Conor McGregor, U.F.C. Fighter, Is Held Liable for Sexual Assault in Ireland**\
 `The mixed martial arts fighter known as “Notorious” was ordered to pay the equivalent of $257,000 to a woman who said he raped her in 2018.`\
 https://nytimes.com/2024/11/22/world/europe/conor-mcgregor-sexual-assault.html
