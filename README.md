@@ -1,3 +1,11 @@
+**Should the Giants trade Mike Yastrzemski? The pros and cons**\
+`Yastrzemski is one of the Giants’ most valuable players. Can they really get better by trading him?`\
+https://nytimes.com/athletic/5938233/2024/11/22/sf-giants-mike-yastrzemski-trade-options/
+
+**Frozen Out: Yelloh, Formerly Schwan’s Home Delivery, Closes**\
+`Yelloh has parked its fleet of refrigerated trucks. Its downfall, accelerated by a disastrous rebranding, was decades in the making and probably inevitable, experts say.`\
+https://nytimes.com/2024/11/22/business/yelloh-schwan-food-delivery-closes.html
+
 **Who is Kang? The businesswoman investing millions in women's soccer**\
 `Kang sees this moment in women's sports as a "tipping point" for investment, something that can't be stopped`\
 https://nytimes.com/athletic/5940050/2024/11/22/michele-kang-womens-soccer-investment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5940073/2024/11/22/lewandowski-exclusive-mls-play-o
 **Nations League quarter-final draw: Spain play Netherlands, Germany face Italy**\
 `European champions Spain have been drawn against the Netherlands in the quarter-finals of the Nations League, while Germany will play Italy.`\
 https://nytimes.com/athletic/5940120/2024/11/22/nations-league-quarter-final-draw/
-
-**A 47-Foot-Long Whale Carcass Captivates an Alaskan City**\
-`Crowds in Anchorage have braved freezing temperatures and slippery ice to see the hulking carcass of a rare fin whale, which washed ashore a few miles from downtown.`\
-https://nytimes.com/2024/11/22/us/anchorage-alaska-fin-whale.html
-
-**Row Z: Tottenham's daring rebrand, $2.5m-a-minute Neymar and Infantino's (two!) trophy engravings**\
-`Tim Spiers' weekly look at football's strange and sillier side — including Venezuela's well-timed use of water sprinklers to stop Brazil`\
-https://nytimes.com/athletic/5938883/2024/11/22/tottenham-logo-neymar-infantino-club-world-cup/
 
