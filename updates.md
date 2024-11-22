@@ -1,3 +1,7 @@
+**Blackhawks stave off Panthers, but does Bedard belong in a shutdown role? Observations**\
+`The Blackhawks picked up just their third home win of the season against the reigning Stanley Cup champions.`\
+https://nytimes.com/athletic/5939754/2024/11/22/blackhawks-bedard-shutdown-role-panthers/
+
 **How Ao Tanaka is making himself undroppable for Leeds**\
 `The Japan international has surpassed expectations at Elland Road - and now Ethan Ampadu and Ilia Gruev no longer feel untouchable`\
 https://nytimes.com/athletic/5869607/2024/11/22/ao-tanaka-leeds-united-midfield-undroppable/
