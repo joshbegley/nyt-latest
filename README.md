@@ -1,3 +1,7 @@
+**Pam Bondi Is Trump’s New Choice as Attorney General. Here’s What to Know About Her.**\
+`Florida’s first female state attorney general, she became a member of Donald Trump’s impeachment defense team and backed his false claims of election fraud in 2020.`\
+https://nytimes.com/2024/11/21/us/politics/pam-bondi-trump-attorney-general.html
+
 **Pats owner Robert Kraft passed over again by Hall of Fame: Source**\
 `For the 13th straight year, Kraft was not chosen to be put forward by the Hall of Fame's contributor committee.`\
 https://nytimes.com/athletic/5939428/2024/11/21/robert-kraft-patriots-pro-football-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/abbott-lingo/a-classic-holiday-dessert-reimagined.h
 **Bondi Worked as Lobbyist in Recent Years, With Clients Including Amazon, G.M., Uber and Qatar**\
 `President-elect Donald J. Trump’s new choice to be attorney general joined a powerhouse Republican firm after her second term as Florida’s attorney general.`\
 https://nytimes.com/2024/11/21/us/politics/pam-bondi-trump-ag-lobbyist.html
-
-**Ex-Temple player under investigation for alleged point shaving: Report**\
-`Miller’s attorney, Jason P. Bologna, confirmed that he represented Miller but declined to comment.`\
-https://nytimes.com/athletic/5938822/2024/11/21/temple-point-shaving-investigation-fbi/
 
