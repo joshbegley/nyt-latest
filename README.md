@@ -1,3 +1,7 @@
+**F1 Las Vegas GP mailbag: When will Max Verstappen clinch his fourth title?**\
+`We answered a few questions from our pre-race mailbag before F1's biggest American race of the year.`\
+https://nytimes.com/athletic/5935070/2024/11/21/f1-vegas-mailbag-verstappen-championship-tickets/
+
 **Review: In ‘Death Becomes Her,’ Spiking the Fountain of Youth**\
 `Hilarious star turns from Megan Hilty and Jennifer Simard make the mostly unfunny 1992 film into an intermittently memorable Broadway musical.`\
 https://nytimes.com/2024/11/21/theater/death-becomes-her-review-hilty-simard.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000009839702/the-road-to-trumps-grand-new-p
 **Brock Purdy's status for 49ers' game vs. Packers in question**\
 `Purdy took a hit to the shoulder during Sunday’s loss to the Seattle Seahawks was limited in Wednesday and Thursday's practices. `\
 https://nytimes.com/athletic/5939248/2024/11/21/brock-purdy-49ers-shoulder-injury/
-
-**Three Short Posts Show a New Power Dynamic Between Musk and Bezos**\
-`The world’s two richest men are longtime business rivals, but now one of them has the ear of the next president of the United States.`\
-https://nytimes.com/2024/11/21/technology/musk-bezos-trump-x-posts.html
 
