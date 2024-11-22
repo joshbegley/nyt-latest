@@ -1,3 +1,11 @@
+**Some Clonazepam Pills Recalled Over Incorrect Doses on Label, F.D.A. Says**\
+`The drug, known by the brand name Klonopin, is used for panic disorder and seizures.`\
+https://nytimes.com/2024/11/22/well/clonazepam-klonopin-recall.html
+
+**'We hate the Lions': Why sportsbooks are scared of a Detroit Super Bowl win**\
+`As the Lions roar towards a playoff berth, betting money has followed, making a Detroit Super Bowl win a major liability for sportsbooks.`\
+https://nytimes.com/athletic/5940518/2024/11/22/detroit-lions-super-bowl-betting-2024/
+
 **Trump’s Sentencing in New York Is Officially on Hold**\
 `The judge in the case confirmed that the former and future president, who was convicted on 34 felony counts, would not receive his punishment next week.`\
 https://nytimes.com/2024/11/22/nyregion/trump-sentencing-postponed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/business/germany-economy-budget-elections.html
 **M. Jodi Rell, Former Republican Governor of Connecticut, Dies at 78**\
 `She was lieutenant governor when her boss, John G. Rowland, resigned in a corruption scandal. The second woman to lead the state, she was later elected in her own right.`\
 https://nytimes.com/2024/11/22/nyregion/m-jodi-rell-dead.html
-
-**Bluesky, Smiling at Me**\
-`Bluesky has a hint of the old Twitter magic, but the feeling of freedom it offers might be even better.`\
-https://nytimes.com/2024/11/22/technology/bluesky-x-alternative.html
-
-**Blue States Worry That Blocking Trump Will Be Tougher This Time**\
-`Democrat-led states successfully challenged policies during the first Trump administration. Now, they worry the new White House will be more prepared and less restrained.`\
-https://nytimes.com/2024/11/22/us/trump-states-democrat-legal-challenges.html
 
