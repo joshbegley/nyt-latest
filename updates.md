@@ -1,3 +1,11 @@
+**What to Know About the Methanol Poisonings in Laos**\
+`At least six tourists who traveled to Laos have died in recent days, prompting international alarm about the dangers of consuming alcoholic drinks that contain methanol.`\
+https://nytimes.com/article/laos-methanol-poisonings-tourists.html
+
+**49ers' Brock Purdy, Nick Bosa ruled out vs. Packers**\
+`San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
+https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/
+
 **49ers' Purdy, Bosa ruled out vs. Packers**\
 `San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
 https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/
