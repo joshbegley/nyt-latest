@@ -1,3 +1,7 @@
+**A Prominent Figure in Canada’s Trucker Protests Is Found Guilty**\
+`The verdict was in the high-profile case of Pat King, a man accused of helping provoke disruptions during the so-called trucker convoy, which paralyzed Canada’s capital during the pandemic.`\
+https://nytimes.com/2024/11/22/world/canada/pat-king-guilty-freedom-convoy-canada.html
+
 **Is It Possible the Democrats Were Hurt by a Strong Economy?**\
 `An interesting theory about the election that’s the opposite of what you’ve heard.`\
 https://nytimes.com/2024/11/22/opinion/democrats-economy-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/business/dealbook/directv-dish-network-deal-colla
 **AGs want ACC lawsuit vs. Florida State dismissed**\
 `In a brief, the attorneys general said the case should be thrown out because FSU never agreed to be sued outside of Florida. `\
 https://nytimes.com/athletic/5940932/2024/11/22/acc-lawsuit-florida-state-clemson-attorneys-general/
-
-**Jack Harlow Expands His Romantic Options, and 7 More New Songs**\
-`Hear tracks by Horsegirl, Tyla, Amber Mark and others.`\
-https://nytimes.com/2024/11/22/arts/music/playlist-jack-harlow-tyla-omar-apollo.html
 
