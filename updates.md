@@ -1,3 +1,15 @@
+**NHL Power Rankings: Maple Leafs enter top 10, plus first quarter grades for every team**\
+`Every team gets a first-quarter grade but here at Rankings HQ we grade on a curve — every grade is loosely based on expectations.`\
+https://nytimes.com/athletic/5939801/2024/11/22/nhl-power-rankings-maple-leafs-2/
+
+**Guard at U.S. Embassy in Norway Accused of Spying for Russia and Iran**\
+`The Norwegian man was arrested this week in Oslo and ordered jailed pending further investigation in what the authorities called a ‘very serious case.’`\
+https://nytimes.com/2024/11/22/world/europe/us-embassy-norway-russian-spy.html
+
+**Arsenal defender White out for 'months' after knee surgery**\
+`Mikel Arteta has confirmed that Arsenal defender Ben White is going to be out for &#8220;months&#8221; after undergoing a procedure on his knee during the international break.`\
+https://nytimes.com/athletic/5919670/2024/11/22/ben-white-injury-surgery-arsenal/
+
 **Arsenal defender White out for 'months' after knee surgery**\
 `Mikel Arteta has confirmed that Arsenal defender Ben White is going to be out for &#8220;months&#8221; after undergoing a knee procedure during the international break.`\
 https://nytimes.com/athletic/5919670/2024/11/22/ben-white-injury-surgery-arsenal/
