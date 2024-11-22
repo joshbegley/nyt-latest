@@ -1,3 +1,7 @@
+**Pats owner Robert Kraft passed over again by Hall of Fame: Source**\
+`For the 13th straight year, Kraft was not chosen to be put forward by the Hall of Fame's contributor committee.`\
+https://nytimes.com/athletic/5939428/2024/11/21/robert-kraft-patriots-pro-football-hall-of-fame/
+
 **Tiny but Mighty: A Compact Computer Makes a Big Impact**\
 `For companies across multiple industries, MSI’s Cubi mini-PCs have proven to be a solid product, driving innovation forward. `\
 https://nytimes.com/paidpost/msi/tiny-but-mighty-a-compact-computer-makes-a-big-impact.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/us/politics/pam-bondi-trump-ag-lobbyist.html
 **Ex-Temple player under investigation for alleged point shaving: Report**\
 `Miller’s attorney, Jason P. Bologna, confirmed that he represented Miller but declined to comment.`\
 https://nytimes.com/athletic/5938822/2024/11/21/temple-point-shaving-investigation-fbi/
-
-**West Bank Settlement Supporters Have Big Hopes for Trump’s Presidency**\
-`As Donald J. Trump nominates staunch supporters of Israel to key positions, advocacy groups are taking aim at the departing administration's policies.`\
-https://nytimes.com/2024/11/21/world/middleeast/west-bank-settlers-trump.html
 

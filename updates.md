@@ -1,3 +1,7 @@
+**Pats owner Robert Kraft passed over again by Hall of Fame: Source**\
+`For the 13th straight year, Kraft was not chosen to be put forward by the Hall of Fame's contributor committee.`\
+https://nytimes.com/athletic/5939428/2024/11/21/robert-kraft-patriots-pro-football-hall-of-fame/
+
 **Tiny but Mighty: A Compact Computer Makes a Big Impact**\
 `For companies across multiple industries, MSI’s Cubi mini-PCs have proven to be a solid product, driving innovation forward. `\
 https://nytimes.com/paidpost/msi/tiny-but-mighty-a-compact-computer-makes-a-big-impact.html
