@@ -1,3 +1,7 @@
+**49ers' Purdy, Bosa ruled out vs. Packers**\
+`San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
+https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/
+
 **The New Pick for Attorney General**\
 `Also, New York’s congestion tolls were approved. Here's the latest at the end of Friday.`\
 https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend.html

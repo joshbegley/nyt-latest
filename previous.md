@@ -6,9 +6,9 @@ https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend
 `His blog, The Shatzkin Files, was an essential read for industry insiders. His observations about the changes digital publishing would bring were prophetic.`\
 https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
 
-**49ers QB Brock Purdy ruled out vs. Packers**\
+**49ers' Purdy, Bosa ruled out vs. Packers**\
 `San Francisco 49ers quarterback Brock Purdy has been ruled out for Sunday's game against the Packers.`\
-https://nytimes.com/athletic/5941234/2024/11/22/49ers-qb-brock-purdy-out-packers/
+https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/
 
 **Raiders RBs Mattison, White doubtful: How Abdullah stands to benefit**\
 `Throughout his career, Ameer Abdullah has served primarily as a pass-catching option and stands to see more snaps with top two backs out. `\
