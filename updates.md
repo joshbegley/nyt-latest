@@ -1,3 +1,15 @@
+**Iran Declares It Is Doing More Nuclear Enrichment After I.A.E.A. Rebuke**\
+`With thousands of advanced centrifuges on standby, Tehran says it is now spinning more, which could increase its stockpile of near-bomb-grade atomic fuel.`\
+https://nytimes.com/2024/11/22/world/middleeast/iran-nuclear-iaea-uranium.html
+
+**Matt Gaetz and the D-word**\
+`The former representative from Florida said he had become a “distraction.” Perhaps that was the point.`\
+https://nytimes.com/2024/11/22/us/politics/matt-gaetz-withdrawal-distraction.html
+
+**Republicans Blocking Proposal to Narrow Part of a Surveillance Law**\
+`The second Trump administration appears likely to inherit broader powers to force American service providers to help a warrantless wiretapping program.`\
+https://nytimes.com/2024/11/22/us/politics/fisa-surveillance-bill-program.html
+
 **Ex-Treasurer in Arizona Pleads Guilty to Embezzling $38 Million**\
 `A former elected official for a small county used public money to renovate her ranch and buy at least 20 vehicles, including Cadillacs and an Airstream travel trailer, the Justice Department said.`\
 https://nytimes.com/2024/11/22/us/elizabeth-gutfahr-guilty-embezzlement-arizona.html
