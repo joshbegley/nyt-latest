@@ -1,3 +1,7 @@
+**Wild back up Marc-Andre Fleury after he allows 'dumb' goal amid latest milestone**\
+`The Wild had Fleury’s back during a 5-3 win over the Oilers on Thursday night.`\
+https://nytimes.com/athletic/5939879/2024/11/22/wild-marc-andre-fleury-milestone/
+
 **Jason Kelce to host late-night show on ESPN beginning in January**\
 `The hour-long program will run on Friday nights/Saturday mornings beginning at 1 a.m for the fuse four episodes and 1:30 for the final one`\
 https://nytimes.com/athletic/5939463/2024/11/22/jason-kelce-espn-late-night-show/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5869607/2024/11/22/ao-tanaka-leeds-united-midfield-
 **2026 World Cup: When can tickets be bought and how much will they cost?**\
 `FIFA has warned about buying from "unofficial ticketing websites" for the 2026 World Cup, so what are fans' best options? `\
 https://nytimes.com/athletic/5880201/2024/11/22/world-cup-2026-tickets-prices-release-date/
-
-**Chuck Scarborough to Step Down as WNBC News Anchor After 50-Year Career**\
-`The celebrated broadcaster, who started at the New York station in 1974, announced that he would wrap up his anchoring career on Dec. 12.`\
-https://nytimes.com/2024/11/22/nyregion/chuck-scarborough-wnbc-anchor.html
 

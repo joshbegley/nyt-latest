@@ -1,3 +1,7 @@
+**Wild back up Marc-Andre Fleury after he allows 'dumb' goal amid latest milestone**\
+`The Wild had Fleury’s back during a 5-3 win over the Oilers on Thursday night.`\
+https://nytimes.com/athletic/5939879/2024/11/22/wild-marc-andre-fleury-milestone/
+
 **Jason Kelce to host late-night show on ESPN beginning in January**\
 `The hour-long program will run on Friday nights/Saturday mornings beginning at 1 a.m for the fuse four episodes and 1:30 for the final one`\
 https://nytimes.com/athletic/5939463/2024/11/22/jason-kelce-espn-late-night-show/
