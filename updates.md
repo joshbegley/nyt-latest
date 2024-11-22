@@ -1,3 +1,7 @@
+**Bondi has been a lobbyist in recent years, with clients including Amazon, G.M., Uber and Qatar.**\
+`By Kenneth P. Vogel`\
+https://nytimes.com/2024/11/21/us/politics/pam-bondi-lobbyist.html
+
 **Review: In ‘Death Becomes Her,’ Spiking the Fountain of Youth**\
 `Hilarious star turns from Megan Hilty and Jennifer Simard make the mostly unfunny 1992 film into an intermittently memorable Broadway musical.`\
 https://nytimes.com/2024/11/21/theater/death-becomes-her-review-hilty-simard.html
