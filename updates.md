@@ -1,3 +1,11 @@
+**Blue Jays non-tender former closer Jordan Romano, creating bigger hole in bullpen**\
+`Romano was a standout closer from 2021-23 but struggled with injuries in 2024.`\
+https://nytimes.com/athletic/5938435/2024/11/22/blue-jays-jordan-romano-non-tender/
+
+**Pam Bondi, a $25,000 Donation and Trump University: Questions Remain**\
+`When Ms. Bondi was Florida’s attorney general, her office declined to investigate allegations of fraud against Donald J. Trump’s for-profit school.`\
+https://nytimes.com/2024/11/22/us/politics/pam-bondi-trump-university.html
+
 **Pam Bondi, a $25,000 Donation and Trump University: Questions Remain**\
 `Ms. Bondi, President-elect Donald J. Trump’s pick for attorney general, declined to investigate allegations of fraud against his for-profit school when she was Florida’s attorney general.`\
 https://nytimes.com/2024/11/22/us/politics/pam-bondi-trump-university.html
