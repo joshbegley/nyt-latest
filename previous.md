@@ -1,3 +1,7 @@
+**Conor McGregor, U.F.C. Fighter, Is Held Liable for Sexual Assault in Ireland**\
+`The mixed martial arts fighter known as “Notorious” was ordered to pay the equivalent of $257,000 to a woman who said he raped her in 2018.`\
+https://nytimes.com/2024/11/22/world/europe/conor-mcgregor-sexual-assault.html
+
 **Eagles WR Devonta Smith ruled out for SNF vs. Rams**\
 `DeVonta Smith will miss his second game of the 2024 season on Sunday.`\
 https://nytimes.com/athletic/5941278/2024/11/22/eagles-devonta-smith-out-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/us/menendez-brothers-trial-lottery.html
 **Heat Today: Thanksgiving spirit off the court, while relying on '1A and 1B' off it**\
 `What happens when the Heat spread Thanksgiving cheer? "A lot of people are going to have a great holiday because of this," Pat Riley said.`\
 https://nytimes.com/athletic/5940353/2024/11/22/miami-heat-thanksgiving-erik-spoelstra-bam-adebayo-pat-riley-dallas-mavericks/
-
-**A Difficult Few Days for Bolsonaro’s Right-Wing Movement**\
-`Accusations that former far-right President Jair Bolsonaro plotted a coup arose after a former top aide of his was implicated in a plan to kill the current president.`\
-https://nytimes.com/2024/11/22/world/americas/bolsonaro-far-right-brazil.html
 

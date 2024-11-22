@@ -1,3 +1,7 @@
+**Conor McGregor, U.F.C. Fighter, Is Held Liable for Sexual Assault in Ireland**\
+`The mixed martial arts fighter known as “Notorious” was ordered to pay the equivalent of $257,000 to a woman who said he raped her in 2018.`\
+https://nytimes.com/2024/11/22/world/europe/conor-mcgregor-sexual-assault.html
+
 **Eagles WR Devonta Smith ruled out for SNF vs. Rams**\
 `DeVonta Smith will miss his second game of the 2024 season on Sunday.`\
 https://nytimes.com/athletic/5941278/2024/11/22/eagles-devonta-smith-out-rams/
