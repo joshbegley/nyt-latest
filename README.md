@@ -1,3 +1,7 @@
+**Caitlin Clark joins group looking to bring NWSL team to Cincinnati**\
+`Cincinnati is considered a finalist in the race to land the NWSL’s 16th franchise.`\
+https://nytimes.com/athletic/5939553/2024/11/21/caitlin-clark-nwsl-cincinnati-team-ownership/
+
 **‘The Blood Quilt’ Review: An Elaborate Tapestry**\
 `Katori Hall’s new play about sisters gathering after their mother’s death features standout performances but an overabundance of themes.`\
 https://nytimes.com/2024/11/21/theater/the-blood-quilt-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/21/theater/death-becomes-her-review-hilty-simard.htm
 **Alyssa Nakken leaves Giants for role with Guardians: Source**\
 `Nakken, who served as an assistant coach from 2020-24, interviewed for the Giants' managerial vacancy in 2023. `\
 https://nytimes.com/athletic/5939389/2024/11/21/alyssa-nakken-guardians-giants/
-
-**China’s Hacking Reached Deep Into U.S. Telecoms**\
-`The chairman of the Senate Intelligence Committee said hackers listened to phone calls and read texts by exploiting aging equipment and seams in the networks that connect systems.`\
-https://nytimes.com/2024/11/21/us/politics/china-hacking-telecommunications.html
 
