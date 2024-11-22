@@ -1,3 +1,11 @@
+**Chris Gayle named Denny Hamlin’s crew chief for 2025 NASCAR Cup season**\
+`The highly successful driver-crew chief tandem of Hamlin and Chris Gabehart is no more.`\
+https://nytimes.com/athletic/5940321/2024/11/22/denny-hamlin-chris-gayle-nascar-cup-series-2025/
+
+**Lloyd: Jameis Winston is playing just well enough to complicate Browns' future plans at QB**\
+`Nothing about this season has been normal. Could Winston serve as a bridge quarterback until the Browns settle on a long-term solution?`\
+https://nytimes.com/athletic/5939954/2024/11/22/browns-steelers-jameis-winston/
+
 **Man City's Kovacic out for up to a month - Guardiola**\
 `Manchester City midfielder Mateo Kovacic is set to be out for up to a month with an injury, Pep Guardiola has confirmed.`\
 https://nytimes.com/athletic/5940279/2024/11/22/mateo-kovacic-injury-man-city/
