@@ -1,3 +1,11 @@
+**Van de Ven out until middle of December with hamstring injury**\
+`Tottenham Hotspur defender Micky van de Ven is not expected to return from a hamstring injury until the middle of December while Cristian Romero is also sidelined and will miss the game with Manchester City on Saturday.`\
+https://nytimes.com/athletic/5938427/2024/11/22/micky-van-de-ven-injury-return/
+
+**'This guy can defend': How AJ Green is emerging as a defensive stalwart for the Bucks**\
+`Using techniques he's developed on offense, Green recently has been getting the Bucks' toughest defensive assignments — and succeeding.`\
+https://nytimes.com/athletic/5932289/2024/11/22/aj-green-bucks-defense/
+
 **'He’s really hungry': Inside Poona Ford's resurgent season for Chargers defense**\
 `Ford signed a veteran minimum contract with the Chargers after barely playing for the Bills last season. He's been a revelation. `\
 https://nytimes.com/athletic/5938996/2024/11/22/poona-ford-chargers-defense-bills/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/business/dealbook/bondi-attorney-general-gaetz.ht
 **Hollinger: Orlando's Franz Wagner is writing his All-Star origin story**\
 `Wagner piled up 37 points and 11 assists along with the dagger in LA. And it didn't come as a surprise to his teammates or coaches.`\
 https://nytimes.com/athletic/5939985/2024/11/22/franz-wagner-orlando-magic-game-winner/
-
-**Leading lawyer calls on sport to introduce independent safeguarding regulator**\
-`One of the United Kingdom’s most experienced prosecutors has called on sport to introduce an independent safeguarding regulator in the wake of several high-profile allegations of abuse.`\
-https://nytimes.com/athletic/5940182/2024/11/22/safeguarding-regulator-sport-nazir-afzal/
-
-**Live Q&A: FPL Gameweek 12 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 12 Q&A from 4-5pm UK time `\
-https://nytimes.com/athletic/5937263/2024/11/22/fantasy-premier-league-advice-injury-news-gw12/
 
