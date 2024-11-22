@@ -1,3 +1,11 @@
+**Some Clonazepam Pills Recalled Over Incorrect Doses on Label, F.D.A. Says**\
+`The drug, known by the brand name Klonopin, is used for panic disorder and seizures.`\
+https://nytimes.com/2024/11/22/well/clonazepam-klonopin-recall.html
+
+**'We hate the Lions': Why sportsbooks are scared of a Detroit Super Bowl win**\
+`As the Lions roar towards a playoff berth, betting money has followed, making a Detroit Super Bowl win a major liability for sportsbooks.`\
+https://nytimes.com/athletic/5940518/2024/11/22/detroit-lions-super-bowl-betting-2024/
+
 **Trump’s Sentencing in New York Is Officially on Hold**\
 `The judge in the case confirmed that the former and future president, who was convicted on 34 felony counts, would not receive his punishment next week.`\
 https://nytimes.com/2024/11/22/nyregion/trump-sentencing-postponed.html
