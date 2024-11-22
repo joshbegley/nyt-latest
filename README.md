@@ -1,3 +1,7 @@
+**Russia Supplies Antiaircraft Missiles to North Korea, South Korea Says**\
+`Pyongyang has long coveted an advanced air-defense system to guard against missiles and war planes from the United States and South Korea.`\
+https://nytimes.com/2024/11/22/world/asia/russia-north-korea-missiles-troops.html
+
 **Israel Strikes Across Lebanon After Ordering Evacuations of Southern Towns**\
 `The wide-scale bombardment of Lebanon continued a day after a U.S. envoy held talks with Israeli officials on a possible cease-fire with Hezbollah militants.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-lebanon-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938552/2024/11/22/wisconsin-football-nebraska-pred
 **Chiefs defense lacking the same pass-rush production from last year's Super Bowl team**\
 `In the Chiefs' 10 games this season, their defense has produced just 19 sacks, ranking 27th in the league.`\
 https://nytimes.com/athletic/5939069/2024/11/22/chiefs-defense-pass-rush-chris-jones-steve-spagnuolo/
-
-**As F1 thrives in Las Vegas, some local businesses feel the financial strain**\
-`Race organizers and Clark County have made efforts to lessen the burden on local businesses, but many still resent F1's presence.`\
-https://nytimes.com/athletic/5938951/2024/11/22/f1-vegas-local-business-lawsuit-disruption/
 
