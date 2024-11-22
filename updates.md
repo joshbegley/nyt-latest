@@ -1,3 +1,11 @@
+**Caravaggio Painting, Unseen for Decades, Goes on Display**\
+`A portrait by the artist had a public debut in Rome on Friday, after decades hidden away in a private collection. Now Italy wants to buy it.`\
+https://nytimes.com/2024/11/22/arts/design/caravaggio-portrait-maffeo-barberini.html
+
+**South Africa’s A.N.C. Rejects Jacob Zuma’s Appeal Against His Expulsion**\
+`The country’s governing party had severed ties with the former president in July after he campaigned for an opposition party in the last general election.`\
+https://nytimes.com/2024/11/22/world/africa/anc-jacob-zuma-appeal.html
+
 **In ‘A Man on the Inside,’ Ted Danson Finds Another Good Place**\
 `Created by Michael Schur and starring Danson, this Netflix sitcom synthesizes the most gutting realities of life and death into cozy, low-stakes comedy.`\
 https://nytimes.com/2024/11/22/arts/television/review-a-man-on-the-inside-netflix.html
