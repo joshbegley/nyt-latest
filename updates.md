@@ -1,3 +1,7 @@
+**Heavy Rains and Wind Wreak Havoc on the West Coast**\
+`A series of atmospheric rivers has caused flooding and damage in the Pacific Northwest and Northern California, knocking out power for hundreds of thousands of people.`\
+https://nytimes.com/video/us/100000009840644/west-coast-storms-seattle-northern-california.html
+
 **My Mom Voted for Trump. Can We Let It Go?**\
 `The magazine’s Ethicist columnist on how a family might proceed in the wake of a momentous presidential election.`\
 https://nytimes.com/2024/11/22/magazine/mom-trump-vote-ethics.html

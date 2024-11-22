@@ -1,3 +1,7 @@
+**Heavy Rains and Wind Wreak Havoc on the West Coast**\
+`A series of atmospheric rivers has caused flooding and damage in the Pacific Northwest and Northern California, knocking out power for hundreds of thousands of people.`\
+https://nytimes.com/video/us/100000009840644/west-coast-storms-seattle-northern-california.html
+
 **My Mom Voted for Trump. Can We Let It Go?**\
 `The magazine’s Ethicist columnist on how a family might proceed in the wake of a momentous presidential election.`\
 https://nytimes.com/2024/11/22/magazine/mom-trump-vote-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/style/kim-kardashian-tesla-musk-trump.html
 **Four Fantasy Books to Get Lost In**\
 `There are few pleasures as delicious as losing yourself in a great fantasy book. Jennifer Harlan, an editor at The New York Times Book Review, lists a few of her favorite fantasy books.`\
 https://nytimes.com/video/books/100000009823413/four-fantasy-books-to-get-lost-in.html
-
-**NFL Week 12 fantasy football, betting cheat sheet: Mike Evans nears return, Pacheco out for Chiefs**\
-`The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5932278/2024/11/22/nfl-week-12-fantasy-football-betting-cheat-sheet/
 
