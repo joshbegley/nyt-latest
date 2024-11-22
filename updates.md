@@ -1,3 +1,15 @@
+**Ex-Temple player under investigation for alleged point shaving: Report**\
+`Miller’s attorney, Jason P. Bologna, confirmed that he represented Miller but declined to comment.`\
+https://nytimes.com/athletic/5938822/2024/11/21/temple-point-shaving-investigation-fbi/
+
+**West Bank Settlement Supporters Have Big Hopes for Trump’s Presidency**\
+`As Donald J. Trump nominates staunch supporters of Israel to key positions, advocacy groups are taking aim at the departing administration's policies.`\
+https://nytimes.com/2024/11/21/world/middleeast/west-bank-settlers-trump.html
+
+**The Road to Trump’s ‘Grand New Party’**\
+`Ross Douthat and Reihan Salam had a vision for how Republicans could reclaim the working class. They never expected Trump to fulfill it.`\
+https://nytimes.com/video/opinion/100000009839702/the-road-to-trumps-grand-new-party.html
+
 **Brock Purdy's status for 49ers' game vs. Packers in question**\
 `Purdy took a hit to the shoulder during Sunday’s loss to the Seattle Seahawks was limited in Wednesday and Thursday's practices. `\
 https://nytimes.com/athletic/5939248/2024/11/21/brock-purdy-49ers-shoulder-injury/
