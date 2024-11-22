@@ -18,9 +18,9 @@ https://nytimes.com/2024/11/21/us/politics/china-hacking-telecommunications.html
 `Quick, easy and glucose-friendly.`\
 https://nytimes.com/paidpost/abbott-lingo/a-classic-holiday-dessert-reimagined.html
 
-**Bondi has been a lobbyist in recent years, with clients including Amazon, G.M., Uber and Qatar.**\
-`By Kenneth P. Vogel`\
-https://nytimes.com/2024/11/21/us/politics/pam-bondi-lobbyist.html
+**Bondi Worked as Lobbyist in Recent Years, With Clients Including Amazon, G.M., Uber and Qatar**\
+`President-elect Donald J. Trump’s new choice to be attorney general joined a powerhouse Republican firm after her second term as Florida’s attorney general.`\
+https://nytimes.com/2024/11/21/us/politics/pam-bondi-trump-ag-lobbyist.html
 
 **Ex-Temple player under investigation for alleged point shaving: Report**\
 `Miller’s attorney, Jason P. Bologna, confirmed that he represented Miller but declined to comment.`\
