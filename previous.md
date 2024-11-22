@@ -1,3 +1,7 @@
+**The New Pick for Attorney General**\
+`Also, New York’s congestion tolls were approved. Here's the latest at the end of Friday.`\
+https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend.html
+
 **Mike Shatzkin, Colorful Publishing Industry Guru, Dies at 77**\
 `His blog, The Shatzkin Files, was an essential read for industry insiders. His observations about the changes digital publishing would bring were prophetic.`\
 https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/world/europe/conor-mcgregor-sexual-assault.html
 **Eagles WR Devonta Smith ruled out for SNF vs. Rams**\
 `DeVonta Smith will miss his second game of the 2024 season on Sunday.`\
 https://nytimes.com/athletic/5941278/2024/11/22/eagles-devonta-smith-out-rams/
-
-**Kane becomes fastest player to 50 Bundesliga goals, beating Haaland's record**\
-`Harry Kane has become the fastest player to score fifty Bundesliga goals after his hat-trick for Bayern Munich on Friday night.`\
-https://nytimes.com/athletic/5941337/2024/11/22/harry-kane-bundesliga-record/
 

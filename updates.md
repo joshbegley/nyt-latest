@@ -1,3 +1,7 @@
+**The New Pick for Attorney General**\
+`Also, New York’s congestion tolls were approved. Here's the latest at the end of Friday.`\
+https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend.html
+
 **Mike Shatzkin, Colorful Publishing Industry Guru, Dies at 77**\
 `His blog, The Shatzkin Files, was an essential read for industry insiders. His observations about the changes digital publishing would bring were prophetic.`\
 https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
