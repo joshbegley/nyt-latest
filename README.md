@@ -1,3 +1,11 @@
+**My Mom Voted for Trump. Can We Let It Go?**\
+`The magazine’s Ethicist columnist on how a family might proceed in the wake of a momentous presidential election.`\
+https://nytimes.com/2024/11/22/magazine/mom-trump-vote-ethics.html
+
+**Why You May Be Wrong About Harris’s Loss**\
+`We won’t have enough data to tell the full story of the election for some time. But there are a few things we can say for sure now.`\
+https://nytimes.com/2024/11/22/opinion/election-postmortems.html
+
 **Phillies non-tender Austin Hays; how they'll remake the outfield remains an unknown**\
 `The Phillies' next outfield transactions have become important. They have been active in pursuing trades and have shopped numerous players. `\
 https://nytimes.com/athletic/5941104/2024/11/22/phillies-austin-hays-outfield-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/video/books/100000009823413/four-fantasy-books-to-get-lost-i
 **NFL Week 12 fantasy football, betting cheat sheet: Mike Evans nears return, Pacheco out for Chiefs**\
 `The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5932278/2024/11/22/nfl-week-12-fantasy-football-betting-cheat-sheet/
-
-**New York Giants agree to release QB Daniel Jones**\
-`“Daniel came to see me this morning and asked if we would release him. We mutually agreed that would be best for him and for the team."`\
-https://nytimes.com/athletic/5940785/2024/11/22/ny-giants-daniel-jones-release-qb/
-
-**A Playlist That’s as Cool as Kim Deal**\
-`Hear tracks from her first solo album, the Breeders, Pixies and more.`\
-https://nytimes.com/2024/11/22/arts/music/amplifier-newsletter-kim-deal.html
 
