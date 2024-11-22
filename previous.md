@@ -1,3 +1,11 @@
+**Berman says NWSL's organizational values will not change under Trump**\
+`Women’s soccer has been subject to President-elect Trump’s attention over the last two World Cup cycles.`\
+https://nytimes.com/athletic/5940820/2024/11/22/nwsl-trump-commissioner-berman/
+
+**Kennedy Doesn’t Like Ozempic. Here’s What He Can Do About It.**\
+`President-elect Donald J. Trump is set to nominate Robert F. Kennedy Jr. to lead the Health and Human Services Department, where he would have limited power over drugs.`\
+https://nytimes.com/2024/11/22/health/rfk-jr-ozempic-drugs-fda.html
+
 **Sean Combs Will Remain Jailed Until Judge Rules on Third Bail Request**\
 `A federal judge is still weighing the music mogul's arguments that he should be freed while awaiting trial on sex trafficking and racketeering charges.`\
 https://nytimes.com/2024/11/22/arts/music/sean-combs-diddy-bail-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/opinion/election-postmortems.html
 **Phillies non-tender Austin Hays; how they'll remake the outfield remains an unknown**\
 `The Phillies' next outfield transactions have become important. They have been active in pursuing trades and have shopped numerous players. `\
 https://nytimes.com/athletic/5941104/2024/11/22/phillies-austin-hays-outfield-2025/
-
-**Easy Whiskey Drinks for a Relaxed Thanksgiving**\
-`These simple cocktails call for a few simple ingredients — shaker optional.`\
-https://nytimes.com/2024/11/22/dining/drinks/thanksgiving-whiskey-cocktails.html
-
-**Book Club: Let’s Talk About ‘One Hundred Years of Solitude’**\
-`Gabriel García Márquez’s classic novel about the rise and fall of a rural Colombian village as seen through generations of its founding family remains the leading exemplar of magical realism.`\
-https://nytimes.com/2024/11/22/books/review/podcast-gabriel-garcia-marquez-one-hundred-years-of-solitude.html
 
