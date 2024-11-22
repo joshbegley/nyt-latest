@@ -1,4 +1,4 @@
-**Blackhawks stave off Panthers, but does Bedard belong in a shutdown role? Observations**\
+**Blackhawks stave off Panthers, but does Connor Bedard belong in a shutdown role? Observations**\
 `The Blackhawks picked up just their third home win of the season against the reigning Stanley Cup champions.`\
 https://nytimes.com/athletic/5939754/2024/11/22/blackhawks-bedard-shutdown-role-panthers/
 
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5869607/2024/11/22/ao-tanaka-leeds-united-midfield-
 https://nytimes.com/athletic/5880201/2024/11/22/world-cup-2026-tickets-prices-release-date/
 
 **Chuck Scarborough to Step Down as WNBC News Anchor After 50-Year Career**\
-`The celebrated broadcaster, who started at the station in 1974, announced that he will wrap up his anchoring career on Dec. 12.`\
+`The celebrated broadcaster, who started at the New York station in 1974, announced that he would wrap up his anchoring career on Dec. 12.`\
 https://nytimes.com/2024/11/22/nyregion/chuck-scarborough-wnbc-anchor.html
 
 **Are Bradley and Quansah suffering 'second-season syndrome' at Liverpool?**\
