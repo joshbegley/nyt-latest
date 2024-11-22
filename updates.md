@@ -1,3 +1,11 @@
+**A Playlist That’s as Cool as Kim Deal**\
+`Hear tracks from her first solo album, the Breeders, Pixies and more.`\
+https://nytimes.com/2024/11/22/arts/music/amplifier-newsletter-kim-deal.html
+
+**The Post-Cold War Era Is Finished. Liberalism and Democracy Will Go On.**\
+`A new world order doesn’t mean the old politics simply disappears.`\
+https://nytimes.com/2024/11/22/opinion/trump-liberalism-cold-war.html
+
 **DirecTV Calls Off Plans to Acquire Dish Network**\
 `The deal, which would have created one of the largest pay-TV providers in the United States, fell apart after strong objections from Dish’s lenders.`\
 https://nytimes.com/2024/11/22/business/dealbook/directv-dish-network-deal-collapse.html

@@ -1,3 +1,11 @@
+**A Playlist That’s as Cool as Kim Deal**\
+`Hear tracks from her first solo album, the Breeders, Pixies and more.`\
+https://nytimes.com/2024/11/22/arts/music/amplifier-newsletter-kim-deal.html
+
+**The Post-Cold War Era Is Finished. Liberalism and Democracy Will Go On.**\
+`A new world order doesn’t mean the old politics simply disappears.`\
+https://nytimes.com/2024/11/22/opinion/trump-liberalism-cold-war.html
+
 **DirecTV Calls Off Plans to Acquire Dish Network**\
 `The deal, which would have created one of the largest pay-TV providers in the United States, fell apart after strong objections from Dish’s lenders.`\
 https://nytimes.com/2024/11/22/business/dealbook/directv-dish-network-deal-collapse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5938544/2024/11/22/maple-leafs-nick-robertson-2/
 **Inter Miami expecting Messi to play in 2026, has asked for his input on new coach**\
 `Miami's new stadium is also due to open ahead of the 2026 MLS season, when Messi will be 38.`\
 https://nytimes.com/athletic/5940811/2024/11/22/lionel-messi-inter-miami-future/
-
-**Rex Ryan wants to be the Jets coach again — don't forget how it ended last time**\
-`He's the last coach to take the Jets to the playoffs, but there are plenty of reasons he's the wrong pick to be their next coach.`\
-https://nytimes.com/athletic/5940599/2024/11/22/rex-ryan-potential-return-new-york-jets-coach/
-
-**Israel and Hezbollah Trade Strikes as U.S. Pushes for a Cease-Fire**\
-`As U.S. diplomat Amos Hochstein visited the region to push for a ceasefire, Israel struck Beirut’s southern suburbs and the eastern Bekaa region, and a barrage of rockets fired from Lebanon killed a man in northern Israel.`\
-https://nytimes.com/video/world/middleeast/100000009840361/israel-lebanon-hezbollah-strikes-dahiya-nahariya.html
 
