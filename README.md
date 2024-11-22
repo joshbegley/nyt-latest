@@ -1,3 +1,7 @@
+**Leading lawyer calls on sport to introduce independent safeguarding regulator**\
+`One of the United Kingdom’s most experienced prosecutors has called on sport to introduce an independent safeguarding regulator in the wake of several high-profile allegations of abuse.`\
+https://nytimes.com/athletic/5940182/2024/11/22/safeguarding-regulator-sport-nazir-afzal/
+
 **Live Q&A: FPL Gameweek 12 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 12 Q&A from 4-5pm UK time `\
 https://nytimes.com/athletic/5937263/2024/11/22/fantasy-premier-league-advice-injury-news-gw12/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938013/2024/11/22/edmonton-oilers-prospect-pipelin
 **Trump’s Next Online Speech Cop + Doctors vs. ChatGPT + Hard Fork Crimes Division**\
 `“I feel very strongly that the First Amendment is under the most direct threat that any of us will ever really experience.”`\
 https://nytimes.com/2024/11/22/podcasts/trumps-next-online-speech-cop-doctors-vs-chatgpt-hard-fork-crimes-division.html
-
-**Russia Supplies Antiaircraft Missiles to North Korea, South Korea Says**\
-`Pyongyang has long coveted an advanced air-defense system to guard against missiles and war planes from the United States and South Korea.`\
-https://nytimes.com/2024/11/22/world/asia/russia-north-korea-missiles-troops.html
 
