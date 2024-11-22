@@ -1,3 +1,7 @@
+**Blackhawks stave off Panthers, but does Bedard belong in a shutdown role? Observations**\
+`The Blackhawks picked up just their third home win of the season against the reigning Stanley Cup champions.`\
+https://nytimes.com/athletic/5939754/2024/11/22/blackhawks-bedard-shutdown-role-panthers/
+
 **How Ao Tanaka is making himself undroppable for Leeds**\
 `The Japan international has surpassed expectations at Elland Road - and now Ethan Ampadu and Ilia Gruev no longer feel untouchable`\
 https://nytimes.com/athletic/5869607/2024/11/22/ao-tanaka-leeds-united-midfield-undroppable/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5921927/2024/11/22/man-united-youth-academy-homegro
 **Browns stun Steelers 24-19 in snow as Chubb scores late TD: Takeaways**\
 `Chubb's first two-touchdown game since 2022 helped fuel Cleveland to its third win of the season.`\
 https://nytimes.com/athletic/5939592/2024/11/22/steelers-browns-score-result-takeaways/
-
-**What's different about Anthony Elanga - and how it's impacting Nottingham Forest**\
-`Understanding the winger's development from last season — the stats, the moments and what Nuno says`\
-https://nytimes.com/athletic/5937798/2024/11/22/anthony-elanga-forest/
 
