@@ -1,3 +1,7 @@
+**Late Night Can’t Believe Matt Gaetz Won’t Be Attorney General**\
+`Jimmy Kimmel said the scandal-ridden ex-congressman’s withdrawal was “exciting news for Judge Jeanine Pirro, who will be our next attorney general.”`\
+https://nytimes.com/2024/11/22/arts/television/late-night-matt-gaetz.html
+
 **Rangers angry at officials, a Kaapo Kakko center experiment, more: 5 takeaways**\
 `The Rangers' poor play early was too much to overcome, and they lost to the Flames 3-2 in Calgary.`\
 https://nytimes.com/athletic/5939841/2024/11/22/rangers-loss-flames-kaapo-kakko-takeaways/

@@ -1,3 +1,7 @@
+**Late Night Can’t Believe Matt Gaetz Won’t Be Attorney General**\
+`Jimmy Kimmel said the scandal-ridden ex-congressman’s withdrawal was “exciting news for Judge Jeanine Pirro, who will be our next attorney general.”`\
+https://nytimes.com/2024/11/22/arts/television/late-night-matt-gaetz.html
+
 **Rangers angry at officials, a Kaapo Kakko center experiment, more: 5 takeaways**\
 `The Rangers' poor play early was too much to overcome, and they lost to the Flames 3-2 in Calgary.`\
 https://nytimes.com/athletic/5939841/2024/11/22/rangers-loss-flames-kaapo-kakko-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5937948/2024/11/22/conor-bradley-jarell-quansah-liv
 **Everton and homegrown players: What the numbers tell us - and who can buck the trend**\
 `The club have leant less on homegrown talent in recent seasons with Premier League survival the priority, but that may change in the future`\
 https://nytimes.com/athletic/5937206/2024/11/22/everton-homegrown-dyche-branthwaite-armstrong/
-
-**The importance of Matty Cash**\
-`Despite Cash being less flashy and more functional, Villa’s coaching staff are confident the right-back can keep pace with Emery's demands`\
-https://nytimes.com/athletic/5937186/2024/11/22/matty-cash-role-aston-villa/
 
