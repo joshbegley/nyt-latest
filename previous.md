@@ -1,3 +1,7 @@
+**Are the Bruins back? Joe Sacco’s power-play change works in first win as interim head coach**\
+`Sacco's adjustment to the Bruins' league-worst power play in the second period vs. Utah helped earn him his first win.`\
+https://nytimes.com/athletic/5939620/2024/11/21/bruins-joe-sacco-head-coach/
+
 **Police in New Jersey’s Capital Violate Residents’ Rights, U.S. Finds**\
 `Officers in Trenton have caused the deaths of innocent people, a Justice Department report found, citing a fatality that occurred after officers pushed a man’s face into the ground.`\
 https://nytimes.com/2024/11/21/nyregion/nj-police-violence-misconduct-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5939387/2024/11/21/washington-spirit-orlando-pride-
 **F1 Las Vegas GP mailbag: When will Max Verstappen clinch his fourth title?**\
 `We answered a few questions from our pre-race mailbag before F1's biggest American race of the year.`\
 https://nytimes.com/athletic/5935070/2024/11/21/f1-vegas-mailbag-verstappen-championship-tickets/
-
-**Review: In ‘Death Becomes Her,’ Spiking the Fountain of Youth**\
-`Hilarious star turns from Megan Hilty and Jennifer Simard make the mostly unfunny 1992 film into an intermittently memorable Broadway musical.`\
-https://nytimes.com/2024/11/21/theater/death-becomes-her-review-hilty-simard.html
 

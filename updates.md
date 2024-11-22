@@ -1,3 +1,7 @@
+**Are the Bruins back? Joe Sacco’s power-play change works in first win as interim head coach**\
+`Sacco's adjustment to the Bruins' league-worst power play in the second period vs. Utah helped earn him his first win.`\
+https://nytimes.com/athletic/5939620/2024/11/21/bruins-joe-sacco-head-coach/
+
 **Police in New Jersey’s Capital Violate Residents’ Rights, U.S. Finds**\
 `Officers in Trenton have caused the deaths of innocent people, a Justice Department report found, citing a fatality that occurred after officers pushed a man’s face into the ground.`\
 https://nytimes.com/2024/11/21/nyregion/nj-police-violence-misconduct-justice-department.html
