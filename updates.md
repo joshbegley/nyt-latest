@@ -1,3 +1,11 @@
+**Yankees’ Aaron Judge on Juan Soto pursuit: ‘He knows how we feel about him’**\
+`Soto finished third in AL MVP ballots after a landmark season hitting in front of Judge.`\
+https://nytimes.com/athletic/5941279/2024/11/22/yankees-aaron-judge-juan-soto-free-agency/
+
+**Legacy: A Modern Renaissance **\
+`One hundred years ago in New York City, a burgeoning cultural movement sparked what would become the Harlem Renaissance.`\
+https://nytimes.com/paidpost/us-bank/legacy-a-modern-renaissance.html
+
 **Prime Tire: Las Vegas F1 sights and sounds**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
 https://nytimes.com/athletic/5941239/2024/11/22/las-vegas-grand-prix-f1-prime-tire/
