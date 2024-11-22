@@ -1,5 +1,9 @@
+**Blue Jays non-tender former closer Jordan Romano, creating bigger hole in bullpen**\
+`Romano was a standout closer from 2021-23 but struggled with injuries in 2024.`\
+https://nytimes.com/athletic/5938435/2024/11/22/blue-jays-jordan-romano-non-tender/
+
 **Pam Bondi, a $25,000 Donation and Trump University: Questions Remain**\
-`Ms. Bondi, President-elect Donald J. Trump’s pick for attorney general, declined to investigate allegations of fraud against his for-profit school when she was Florida’s attorney general.`\
+`When Ms. Bondi was Florida’s attorney general, her office declined to investigate allegations of fraud against Donald J. Trump’s for-profit school.`\
 https://nytimes.com/2024/11/22/us/politics/pam-bondi-trump-university.html
 
 **Iran Declares It Is Doing More Nuclear Enrichment After I.A.E.A. Rebuke**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend
 **Mike Shatzkin, Colorful Publishing Industry Guru, Dies at 77**\
 `His blog, The Shatzkin Files, was an essential read for industry insiders. His observations about the changes digital publishing would bring were prophetic.`\
 https://nytimes.com/2024/11/22/business/mike-shatzkin-dead.html
-
-**49ers' Brock Purdy, Nick Bosa ruled out vs. Packers**\
-`Kyle Shanahan on Brandon Allen: "He’s done a really good job since he’s been here. Been here two years now and guys believe in him.”`\
-https://nytimes.com/athletic/5941234/2024/11/22/49ers-brock-purdy-nick-bosa-out-packers/
 
