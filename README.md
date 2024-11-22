@@ -1,3 +1,7 @@
+**NFL Week 12 fantasy football, betting cheat sheet: Mike Evans nears return, Pacheco out for Chiefs**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5932278/2024/11/22/nfl-week-12-fantasy-football-betting-cheat-sheet/
+
 **New York Giants agree to release QB Daniel Jones**\
 `“Daniel came to see me this morning and asked if we would release him. We mutually agreed that would be best for him and for the team."`\
 https://nytimes.com/athletic/5940785/2024/11/22/ny-giants-daniel-jones-release-qb/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/us/bible-curriculum-public-schools-texas-approved
 **How much of a hurdle is Army for Notre Dame's Playoff aspirations? 3 keys and a prediction**\
 `Notre Dame will try to hand undefeated Army its first loss on Saturday night at Yankee Stadium. Here's what to expect.`\
 https://nytimes.com/athletic/5940903/2024/11/22/notre-dame-army-prediction-preview-time/
-
-**How Nick Robertson is trying to break the biggest slump of his career**\
-`Nick Robertson has one goal this season and is struggling to adjust to a new system. A new opportunity may help.`\
-https://nytimes.com/athletic/5938544/2024/11/22/maple-leafs-nick-robertson-2/
 
