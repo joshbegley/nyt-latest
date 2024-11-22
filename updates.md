@@ -1,3 +1,7 @@
+**Caitlin Clark joins group looking to bring NWSL team to Cincinnati**\
+`Cincinnati is considered a finalist in the race to land the NWSL’s 16th franchise.`\
+https://nytimes.com/athletic/5939553/2024/11/21/caitlin-clark-nwsl-cincinnati-team-ownership/
+
 **‘The Blood Quilt’ Review: An Elaborate Tapestry**\
 `Katori Hall’s new play about sisters gathering after their mother’s death features standout performances but an overabundance of themes.`\
 https://nytimes.com/2024/11/21/theater/the-blood-quilt-review.html
