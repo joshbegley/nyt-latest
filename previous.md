@@ -1,3 +1,27 @@
+**Next week’s waiver wire: Trey Benson, Devaughn Vele and more players to add now — before the Week 13 rush**\
+`John Laghezza shares his top expected future waiver wire plays, including Trey Benson, who is showing upside as a runner and receiver.`\
+https://nytimes.com/athletic/5937832/2024/11/22/next-weeks-waiver-wire-trey-benson-devaughn-vele-and-more-players-to-add-now-before-the-week-13-rush/
+
+**Why the Premier League table (at this stage) is the most congested in 18 years**\
+`For the first time in a while, anything feels possible in the Premier League`\
+https://nytimes.com/athletic/5931597/2024/11/22/premier-league-table-tight-congested/
+
+**Friday Briefing**\
+`Donald Trump’s new choice for attorney general.`\
+https://nytimes.com/2024/11/22/briefing/trump-bondi-netanyahu.html
+
+**“Kulusevski? What a player!” - how he became Tottenham's best**\
+`By moving Kulusevski into the centre of midfield, Ange Postecoglou solved several of Spurs' issues - and gave his team a new star man`\
+https://nytimes.com/athletic/5929806/2024/11/22/dejan-kulusevski-tottenham-best-player/
+
+**Guardiola is staying at Manchester City. Where else could he have gone, really?**\
+`His future had been uncertain but the reality is there is nowhere that can offer Guardiola the environment he enjoys at the Etihad`\
+https://nytimes.com/athletic/5936088/2024/11/22/pep-guardiola-manchester-city-staying/
+
+**Nkunku's state of play at Chelsea: Is a transfer a possibility?**\
+`Christopher Nkunku has struggled for minutes in the Premier League this season so what happens now?`\
+https://nytimes.com/athletic/5937103/2024/11/22/christopher-nkunku-chelsea-transfer-latest/
+
 **Fixing Manchester City and Arsenal: The tactical tweaks that could keep their title hopes alive**\
 `Both clubs can point to injuries to key players - but there are changes that could help them chase down Liverpool too`\
 https://nytimes.com/athletic/5937491/2024/11/22/fixing-manchester-city-and-arsenal-flaws/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/11/22/world/europe/uk-eu-us-trade-starmer-trump.html
 **When the Cost of Being Unmarried Is Too High**\
 `In an uncertain world, a marriage skeptic comes around.`\
 https://nytimes.com/2024/11/22/style/modern-love-taiwan-ukraine-cost-of-not-marrying.html
-
-**Six Weeks After Their First Date, They Moved to Paris**\
-`Soon after they met, Delanie Linden and Zack Burton took a leap of faith and flew to France. There, they fell in love.`\
-https://nytimes.com/2024/11/22/style/six-weeks-after-their-first-date-they-moved-to-paris.html
-
-**Sharing More Than a Last Name**\
-`Haley Cohen and Jason Cohen met briefly as children, then matched on an app as adults. “It just seemed like fate,” the groom said.`\
-https://nytimes.com/2024/11/22/style/haley-cohen-jason-cohen-wedding.html
-
-**Their Life as a Classic Movie (With a Modern Twist)**\
-`Sydney Reade and Samuel Zweighaft, both fans of the TCM channel, met four years ago. Their first conversation lasted four hours.`\
-https://nytimes.com/2024/11/22/style/sydney-reade-samuel-zweighaft-wedding.html
-
-**‘Star Wars’ Actress Finds the ‘Cool Nerd’ She Sought. A ‘Bridgerton’ Wedding Followed.**\
-`Philicia Saunders and Jordan Wilson discovered a mutual love of cosplay, anime, video games — and, eventually, each other.`\
-https://nytimes.com/2024/11/22/style/philicia-saunders-jordan-wilson-wedding-bridgerton.html
-
-**Quote of the Day: Crypto Entrepreneur Pays $6.2 Million for Banana-as-Art**\
-`Quotation of the Day for Friday, November 22, 2024`\
-https://nytimes.com/2024/11/21/pageoneplus/quote-of-the-day-crypto-entrepreneur-pays-6-2-million-for-banana-as-art.html
-
-**Jerseys worn by LeBron and Bronny James in first NBA game together go up for sale**\
-`The jerseys worn by the NBA's first father and son to play together are being sold as a pair`\
-https://nytimes.com/athletic/5939369/2024/11/21/lebron-bronny-james-lakers-jerseys-auction/
 
