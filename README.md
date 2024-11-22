@@ -1,3 +1,7 @@
+**Konsa set to be sidelined for Crystal Palace fixture**\
+`Ezri Konsa has been ruled out of Aston Villa&#8217;s game against Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/5940447/2024/11/22/ezri-konsa-aston-villa-injury-update/
+
 **High-Yield Savings Accounts Are Still a Good Deal**\
 `Interest rates have been falling, but deposits are earning more than inflation.`\
 https://nytimes.com/2024/11/22/your-money/savings-accounts-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5834883/2024/11/22/nhl-standings-playoffs-projectio
 **Van de Ven out until middle of December with hamstring injury**\
 `Tottenham Hotspur defender Micky van de Ven is not expected to return from a hamstring injury until the middle of December while Cristian Romero is also sidelined and will miss the game with Manchester City on Saturday.`\
 https://nytimes.com/athletic/5938427/2024/11/22/micky-van-de-ven-injury-return/
-
-**'This guy can defend': How AJ Green is emerging as a defensive stalwart for the Bucks**\
-`Using techniques he's developed on offense, Green recently has been getting the Bucks' toughest defensive assignments — and succeeding.`\
-https://nytimes.com/athletic/5932289/2024/11/22/aj-green-bucks-defense/
 
