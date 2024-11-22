@@ -1,3 +1,7 @@
+**Clear Eyes. Foam Head. Can’t Lose.**\
+`The New York Times for Kids goes inside the sweaty, funny, heartfelt world of high school mascots.`\
+https://nytimes.com/2024/11/22/magazine/high-school-mascots.html
+
 **Yankees’ Aaron Judge on Juan Soto pursuit: ‘He knows how we feel about him’**\
 `Soto finished third in AL MVP ballots after a landmark season hitting in front of Judge.`\
 https://nytimes.com/athletic/5941279/2024/11/22/yankees-aaron-judge-juan-soto-free-agency/

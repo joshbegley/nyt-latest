@@ -1,3 +1,7 @@
+**Clear Eyes. Foam Head. Can’t Lose.**\
+`The New York Times for Kids goes inside the sweaty, funny, heartfelt world of high school mascots.`\
+https://nytimes.com/2024/11/22/magazine/high-school-mascots.html
+
 **Yankees’ Aaron Judge on Juan Soto pursuit: ‘He knows how we feel about him’**\
 `Soto finished third in AL MVP ballots after a landmark season hitting in front of Judge.`\
 https://nytimes.com/athletic/5941279/2024/11/22/yankees-aaron-judge-juan-soto-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940820/2024/11/22/nwsl-trump-commissioner-berman/
 **Kennedy Doesn’t Like Ozempic. Here’s What He Can Do About It.**\
 `President-elect Donald J. Trump is set to nominate Robert F. Kennedy Jr. to lead the Health and Human Services Department, where he would have limited power over drugs.`\
 https://nytimes.com/2024/11/22/health/rfk-jr-ozempic-drugs-fda.html
-
-**Sean Combs Will Remain Jailed Until Judge Rules on Third Bail Request**\
-`A federal judge is still weighing the music mogul's arguments that he should be freed while awaiting trial on sex trafficking and racketeering charges.`\
-https://nytimes.com/2024/11/22/arts/music/sean-combs-diddy-bail-hearing.html
 
