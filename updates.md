@@ -1,3 +1,7 @@
+**Orban Invites Netanyahu to Hungary, Flouting I.C.C. Arrest Warrant**\
+`Hungary, unlike the United States, is a signatory to the court, which accused the Israeli leader of war crimes in Gaza.`\
+https://nytimes.com/2024/11/22/world/middleeast/netanyahu-orban-icc-hungary-israel.html
+
 **NHL Power Rankings: Maple Leafs enter top 10, plus first quarter grades for every team**\
 `Every team gets a first-quarter grade but here at Rankings HQ we grade on a curve — every grade is loosely based on expectations.`\
 https://nytimes.com/athletic/5939801/2024/11/22/nhl-power-rankings-maple-leafs-2/
