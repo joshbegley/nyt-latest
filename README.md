@@ -1,3 +1,11 @@
+**Nations League quarter-final draw: Spain play Netherlands, Germany face Italy**\
+`European champions Spain have been drawn against the Netherlands in the quarter-finals of the Nations League, while Germany will play Italy.`\
+https://nytimes.com/athletic/5940120/2024/11/22/nations-league-quarter-final-draw/
+
+**A 47-Foot-Long Whale Carcass Captivates an Alaskan City**\
+`Crowds in Anchorage have braved freezing temperatures and slippery ice to see the hulking carcass of a rare fin whale, which washed ashore a few miles from downtown.`\
+https://nytimes.com/2024/11/22/us/anchorage-alaska-fin-whale.html
+
 **Row Z: Tottenham's daring rebrand, $2.5m-a-minute Neymar and Infantino's (two!) trophy engravings**\
 `Tim Spiers' weekly look at football's strange and sillier side — including Venezuela's well-timed use of water sprinklers to stop Brazil`\
 https://nytimes.com/athletic/5938883/2024/11/22/tottenham-logo-neymar-infantino-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/briefing/changes-in-new-york-city.html
 **The Pulse: An incredible snow game**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5937414/2024/11/22/steelers-browns-snow-the-pulse/
-
-**Ukraine Cancels Parliament Session, Citing a Warning Over a Missile Attack**\
-`This is the first time Parliament has canceled a session since Russia invaded Ukraine.`\
-https://nytimes.com/2024/11/22/world/europe/ukraine-parliament-canceled-missile.html
-
-**As Ukraine Fires U.S. Missiles, Putin Sends a Chilling Message**\
-`The Russian leader ominously declares that America risks nuclear war as it expands its aid.`\
-https://nytimes.com/2024/11/22/world/europe/ukraine-russia-us-trump-putin.html
 
