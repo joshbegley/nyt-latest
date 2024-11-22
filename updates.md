@@ -1,3 +1,7 @@
+**NFL Week 12 fantasy football, betting cheat sheet: Mike Evans nears return, Pacheco out for Chiefs**\
+`The top injuries to monitor. Plus, player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5932278/2024/11/22/nfl-week-12-fantasy-football-betting-cheat-sheet/
+
 **New York Giants agree to release QB Daniel Jones**\
 `“Daniel came to see me this morning and asked if we would release him. We mutually agreed that would be best for him and for the team."`\
 https://nytimes.com/athletic/5940785/2024/11/22/ny-giants-daniel-jones-release-qb/
