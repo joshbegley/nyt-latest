@@ -1,3 +1,15 @@
+**Five Science Fiction Movies to Stream Now**\
+`This month’s picks include a heart-wrenching animated Filipino film, a yeasty savior and the return of Carrie-Anne Moss.`\
+https://nytimes.com/2024/11/22/movies/five-science-fiction-movies-to-stream-now.html
+
+**Turkey Stock and Pie Crusts and Cranberry Sauce and Shallot Gravy**\
+`And cornbread stuffing with esquites and roasted beets with hazelnuts and honey. Let’s go.`\
+https://nytimes.com/2024/11/22/dining/turkey-stock-and-pie-crusts-and-cranberry-sauce-and-shallot-gravy.html
+
+**'It's been a perfect fit': Don Waddell enjoys fresh start but holds good feelings about Hurricanes**\
+`As Carolina visits Columbus, Waddell reflects on why he made a necessary move last summer.`\
+https://nytimes.com/athletic/5937782/2024/11/22/don-waddell-blue-jackets-hurricanes/
+
 **What Elon Musk Needs From China**\
 `From electric cars to solar panels, Mr. Musk has built businesses in high-tech manufacturing sectors now targeted by Beijing for Chinese dominance.`\
 https://nytimes.com/2024/11/22/business/elon-musk-tesla-china.html
