@@ -1,3 +1,7 @@
+**Trump Picks Key Figure in Project 2025 for Powerful Budget Role**\
+`Russell Vought, who would lead the Office of Management and Budget, has spent years building plans to rework the American structure of government in ways that would enhance presidential power.`\
+https://nytimes.com/2024/11/22/us/politics/russell-vought-office-of-management-and-budget.html
+
 **Chiefs signing D.J. Humphries to boost offensive line depth**\
 `Kansas City added Humphries with Wanya Morris battling a knee injury and the rookie Kingsley Suamataia's growing pains.`\
 https://nytimes.com/athletic/5941471/2024/11/22/chiefs-sign-d-j-humphries-offensive-line/

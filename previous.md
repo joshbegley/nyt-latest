@@ -1,3 +1,7 @@
+**Trump Picks Key Figure in Project 2025 for Powerful Budget Role**\
+`Russell Vought, who would lead the Office of Management and Budget, has spent years building plans to rework the American structure of government in ways that would enhance presidential power.`\
+https://nytimes.com/2024/11/22/us/politics/russell-vought-office-of-management-and-budget.html
+
 **Chiefs signing D.J. Humphries to boost offensive line depth**\
 `Kansas City added Humphries with Wanya Morris battling a knee injury and the rookie Kingsley Suamataia's growing pains.`\
 https://nytimes.com/athletic/5941471/2024/11/22/chiefs-sign-d-j-humphries-offensive-line/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/business/trump-scott-bessent-treasury.html
 **What to Know About the Methanol Poisonings in Laos**\
 `At least six tourists who traveled to Laos have died in recent days, prompting international alarm about the dangers of consuming alcoholic drinks that contain methanol.`\
 https://nytimes.com/article/laos-methanol-poisonings-tourists.html
-
-**The New Pick for Attorney General**\
-`Also, New York’s congestion tolls were approved. Here's the latest at the end of Friday.`\
-https://nytimes.com/2024/11/22/briefing/new-pick-attorney-general-wicked-weekend.html
 
