@@ -1,9 +1,17 @@
+**NHL Power Rankings: Maple Leafs enter top 10, plus first quarter grades for every team**\
+`Every team gets a first-quarter grade but here at Rankings HQ we grade on a curve — every grade is loosely based on expectations.`\
+https://nytimes.com/athletic/5939801/2024/11/22/nhl-power-rankings-maple-leafs-2/
+
+**Guard at U.S. Embassy in Norway Accused of Spying for Russia and Iran**\
+`The Norwegian man was arrested this week in Oslo and ordered jailed pending further investigation in what the authorities called a ‘very serious case.’`\
+https://nytimes.com/2024/11/22/world/europe/us-embassy-norway-russian-spy.html
+
 **The Bounce: Why the 76ers' season is already at a crossroads**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5940127/2024/11/22/paul-george-joel-embiid-tyrese-maxey-76ers-nba-the-bounce/
 
 **Arsenal defender White out for 'months' after knee surgery**\
-`Mikel Arteta has confirmed that Arsenal defender Ben White is going to be out for &#8220;months&#8221; after undergoing a knee procedure during the international break.`\
+`Mikel Arteta has confirmed that Arsenal defender Ben White is going to be out for &#8220;months&#8221; after undergoing a procedure on his knee during the international break.`\
 https://nytimes.com/athletic/5919670/2024/11/22/ben-white-injury-surgery-arsenal/
 
 **Eze set to miss Aston Villa match: 'It’s a little bit too risky'**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5940005/2024/11/22/sharks-nhl-stock-up-stock-down/
 **The New York Times Presents: ‘Weight of the World’**\
 `As GLP-1 medications like Ozempic soar in popularity, our new documentary follows three people on their weight-loss journeys — and explores how decades of diet culture paved the way for the drugs’ rise.`\
 https://nytimes.com/2024/11/22/NYT-Presents/ozempic-weight-of-the-world.html
-
-**Chris Gayle named Denny Hamlin’s crew chief for 2025 NASCAR Cup season**\
-`The highly successful driver-crew chief tandem of Hamlin and Chris Gabehart is no more.`\
-https://nytimes.com/athletic/5940321/2024/11/22/denny-hamlin-chris-gayle-nascar-cup-series-2025/
-
-**Lloyd: Jameis Winston is playing just well enough to complicate Browns' future plans at QB**\
-`Nothing about this season has been normal. Could Winston serve as a bridge quarterback until the Browns settle on a long-term solution?`\
-https://nytimes.com/athletic/5939954/2024/11/22/browns-steelers-jameis-winston/
 
