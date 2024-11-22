@@ -1,3 +1,19 @@
+**In ‘A Man on the Inside,’ Ted Danson Finds Another Good Place**\
+`Created by Michael Schur and starring Danson, this Netflix sitcom synthesizes the most gutting realities of life and death into cozy, low-stakes comedy.`\
+https://nytimes.com/2024/11/22/arts/television/review-a-man-on-the-inside-netflix.html
+
+**A Moment of Genuine Warmth and Sadness on ‘The Great British Bake Off’**\
+`The current season has one of the most memorable characters of the series.`\
+https://nytimes.com/2024/11/22/opinion/british-bakeoff-nelly.html
+
+**Eric Ramsay interview: ‘At Minnesota United, we’ve found a version of ourselves which is exciting and dynamic’**\
+`The Minnesota head coach discusses his tactics and philosophy as he prepares his side for their meeting with LA Galaxy on Sunday`\
+https://nytimes.com/athletic/5938919/2024/11/22/eric-ramsay-interview-minnesota-mls/
+
+**Terms of Proposed Lebanon Cease-Fire Begin to Take Shape, Officials Say**\
+`Key details still needed to be worked out between Israel and Hezbollah, and disagreements could scuttle or delay any deal, the officials said. But some cited reasons for cautious optimism.`\
+https://nytimes.com/2024/11/22/world/middleeast/israel-hezbollah-ceasefire-lebanon.html
+
 **Some Clonazepam Pills Recalled Over Incorrect Doses on Label, F.D.A. Says**\
 `The drug, known by the brand name Klonopin, is used for panic disorder and seizures.`\
 https://nytimes.com/2024/11/22/well/clonazepam-klonopin-recall.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/22/arts/television/marlon-james-get-millie-black.htm
 **Former Building Superintendent Charged With Stealing From Older Tenant**\
 `The super has denied wrongdoing and pleaded not guilty to charges in New York Supreme Court.`\
 https://nytimes.com/2024/11/22/realestate/superintendent-elder-abuse.html
-
-**Elon Musk Gets a Crash Course in How Trumpworld Works**\
-`The world’s richest person, not known for his humility, is still learning the cutthroat courtier politics of Donald Trump’s inner circle — and his ultimate influence remains an open question.`\
-https://nytimes.com/2024/11/22/us/politics/elon-musk-trump.html
-
-**New York City’s Congestion Pricing Plan Clears Final Bureaucratic Hurdle**\
-`The Federal Highway Administration has allowed the program to begin just after midnight on Jan. 5. It could still be stopped by lawsuits.`\
-https://nytimes.com/2024/11/22/nyregion/nyc-congestion-pricing-federal-approval.html
-
-**Why Germany’s Economy, Once a Leader in Europe, Is Now in Crisis**\
-`The country is facing a second year of zero growth, with industry leaders gloomy and worried about potential tariffs from President-elect Donald Trump.`\
-https://nytimes.com/2024/11/22/business/germany-economy-budget-elections.html
-
-**M. Jodi Rell, Former Republican Governor of Connecticut, Dies at 78**\
-`She was lieutenant governor when her boss, John G. Rowland, resigned in a corruption scandal. The second woman to lead the state, she was later elected in her own right.`\
-https://nytimes.com/2024/11/22/nyregion/m-jodi-rell-dead.html
 
