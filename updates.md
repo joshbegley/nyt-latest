@@ -1,3 +1,7 @@
+**Army vs. Notre Dame: How to watch, picks, odds as Yankee Stadium hosts big clash**\
+`Army can throw the College Football Playoff race into total chaos with an upset win against two-touchdown favorites Notre Dame.`\
+https://nytimes.com/athletic/5938450/2024/11/23/army-notre-dame-how-to-watch-picks-odds/
+
 **K-Pop Trained Rosé to Be ‘a Perfect Girl.’ Now She’s Trying to Be Herself.**\
 `The Blackpink star strikes out on her own, away from the system that turned her into a global phenomenon.`\
 https://nytimes.com/2024/11/23/magazine/rose-blackpink-kpop.html
