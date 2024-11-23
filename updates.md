@@ -1,3 +1,11 @@
+**2-Year-Old Gorilla Dies After Being Struck by Hydraulic Door at Zoo**\
+`A Calgary Zoo staff member mistakenly activated a door that struck the western lowland gorilla named Eyare, a report found.`\
+https://nytimes.com/2024/11/23/world/canada/gorilla-death-calgary-zoo.html
+
+**Scenes From the Storm That Drenched the Pacific Northwest**\
+`The storm, driven by the season’s first major atmospheric river, inundated the region, killing at least two people and causing widespread power outages.`\
+https://nytimes.com/2024/11/23/us/storm-rain-atmospheric-river-california.html
+
 **SMU routs Virginia, clinches spot in ACC Championship Game**\
 `The Mustangs will take on either Miami or Clemson in the league title game in Charlotte, N.C., on Dec. 7.`\
 https://nytimes.com/athletic/5942407/2024/11/23/smu-acc-championship-game-virginia/
