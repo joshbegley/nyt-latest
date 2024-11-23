@@ -1,3 +1,11 @@
+**One Dead in U.S. Listeria Outbreak Tied to Ready-to-Eat Meat and Poultry**\
+`Officials have linked 11 listeria cases since October 2021 to items from Yu Shang Food, which is recalling more than 72,000 pounds of products.`\
+https://nytimes.com/2024/11/23/us/listeria-death-yushang-recall.html
+
+**Trump Chooses New York Doctor to Be Next U.S. Surgeon General**\
+`Dr. Janette Nesheiwat is a medical director for a chain of urgent care clinics. Her sister served as an adviser in the first Trump administration.`\
+https://nytimes.com/2024/11/23/us/politics/janette-nesheiwat-surgeon-general.html
+
 **Corrections: Nov. 23, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 23, 2024.`\
 https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-23-2024.html
