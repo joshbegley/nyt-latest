@@ -1,3 +1,7 @@
+**SMU routs Virginia, clinches spot in ACC Championship Game**\
+`The Mustangs will take on either Miami or Clemson in the league title game in Charlotte, N.C., on Dec. 7.`\
+https://nytimes.com/athletic/5942407/2024/11/23/smu-acc-championship-game-virginia/
+
 **Auston Matthews returns to ice, discusses mysterious injury for first time**\
 `Matthews skated on his own ahead of Leafs practice Saturday. It was his first time on the ice since Nov. 10.`\
 https://nytimes.com/athletic/5942404/2024/11/23/maple-leafs-auston-matthews-injury-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odd
 **Barcelona's Putellas out for three weeks with leg injury**\
 `Barcelona forward Alexia Putellas is set to be out for the next three weeks with an injury to the triceps suralis in her right leg.`\
 https://nytimes.com/athletic/5942206/2024/11/23/barcelona-alexia-putellas-injury/
-
-**Arsenal 3 Nottingham Forest 0 - Nwaneri's first league goal and the Odegaard effect**\
-`Analysis of Arsenal's Premier League victory over Nottingham Forest`\
-https://nytimes.com/athletic/5931799/2024/11/23/arsenal-nottingham-forest-nwaneri-highlights/
 
