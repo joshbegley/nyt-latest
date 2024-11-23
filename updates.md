@@ -1,3 +1,8 @@
+**'I want to have points': Yakov Trenin has been as advertised for Wild, except for scoring**\
+`Trenin, who has a single point in 19 games this season, is trying to "stay positive" as he tries to break his slump.
+`\
+https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
+
 **Emerging Details of Chinese Hack Leave U.S. Officials Increasingly Concerned**\
 `Leaders of the big telecommunications companies were summoned to the White House to discuss strategies for overhauling the security of the nation’s telecommunications networks amid growing alarm at the scope of a Chinese hack.`\
 https://nytimes.com/2024/11/22/us/politics/chinese-hack-telecom-white-house.html
