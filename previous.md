@@ -1,3 +1,7 @@
+**The Briefing: Man City 0 Tottenham 4 - Maddison's perfect birthday, what's going wrong for Guardiola's team?**\
+`Tottenham ran amok against champions Manchester City - The Athletic analyses the talking point from a fascinating match at the Etihad`\
+https://nytimes.com/athletic/5931849/2024/11/23/manchester-city-0-tottenham-4-guardiola-postecoglou-maddison/
+
 **Madeleine Riffaud, ‘the Girl Who Saved Paris,’ Dies at 100**\
 `Humiliated by a Nazi officer at age 15, she joined the French Resistance. By the time she was 20, she had killed a German soldier, survived torture and captured a supply train.`\
 https://nytimes.com/2024/11/23/world/europe/madeleine-riffaud-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931799/2024/11/23/arsenal-nottingham-forest-nwaner
 **Down About the Election? There Is a Speech I Want You to Read.**\
 `Frederick Douglass knew what to do when faced with Jim Crow.`\
 https://nytimes.com/2024/11/23/opinion/election-frederick-douglass.html
-
-**Blue Man Group to End New York Run After Three Decades Off Broadway**\
-`The troupe is also closing its Chicago company, but continues to perform in Berlin, Boston, Las Vegas and, soon, Orlando.`\
-https://nytimes.com/2024/11/23/theater/blue-man-group-closing.html
 
