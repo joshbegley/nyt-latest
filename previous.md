@@ -1,3 +1,11 @@
+**Tristan Jarry's small step forward, Sidney Crosby's frustration: 3 Penguins takeaways**\
+`Jarry was the Penguins’ best player in a 4-1 loss to the Jets on Friday.`\
+https://nytimes.com/athletic/5941704/2024/11/22/penguins-jets-tristan-jarry-sidney-crosby/
+
+**Former N.Y.P.D. Officer Convicted of Sex Offenses With 4 Underage Boys**\
+`Christopher Terranova, a former officer from Staten Island, was accused of preying on teenage boys on Snapchat, including one whom he met when the child reported a robbery.`\
+https://nytimes.com/2024/11/22/nyregion/nypd-sex-crime-christopher-terranova.html
+
 **Trump picks Scott Turner, a little-known official from his first term, to lead HUD.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/scott-turner-hud-trump
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
 **76ers' Joel Embiid out Sunday with swelling in knee**\
 `The team ruled Embiid out of Friday's game against the Brooklyn Nets and later announced that Embiid has swelling in his left knee.`\
 https://nytimes.com/athletic/5941635/2024/11/22/joel-embiid-injury-update-sixers/
-
-**Yankees non-tender 2 players; here's what it means for the club's 2025 payroll**\
-`As the Yankees look to re-sign Juan Soto, they made moves Friday to provide some financial flexibility.`\
-https://nytimes.com/athletic/5941391/2024/11/22/yankees-non-tender-jon-berti-tim-mayza-2025-payroll/
-
-**Labor Secretary Pick Is Rep. Lori Chavez-DeRemer of Oregon**\
-`A moderate from a swing district, she received endorsements from several unions but narrowly lost her bid for a second House term.`\
-https://nytimes.com/2024/11/22/business/economy/labor-secretary-lori-chavez-deremer-trump.html
 
