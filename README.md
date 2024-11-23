@@ -1,3 +1,7 @@
+**Trump Plays Self-Defense With His Treasury Choice**\
+`Unlike some of his other cabinet picks, Bessent is a fairly conventional billionaire who should play well on Wall Street.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/trump-treasury-bessent-wallstreet
+
 **The Briefing: Leicester 1 Chelsea 2 -  Fernandez makes his mark and a marvellous Madueke-Palmer mix-up**\
 `Simon Johnson breaks down the main talking points from Chelsea's 2-1 win at Leicester City`\
 https://nytimes.com/athletic/5931797/2024/11/23/leicester-1-chelsea-2-fernandez-madueke-palmer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941985/2024/11/23/real-madrid-barcelona-el-clasico
 **2 Books for Readers Who Don’t Care About Polite Company**\
 `A Japanese tale of “frustrated love and revenge,” and a visual history of bathrooms.`\
 https://nytimes.com/2024/11/23/books/read-like-wind-recommendations.html
-
-**Amorim praises Man United midfielder Mount: 'I love that kid'**\
-`New Manchester United head coach Ruben Amorim says that midfielder Mason Mount is “perfect” for his system.`\
-https://nytimes.com/athletic/5941957/2024/11/23/ruben-amorim-mason-mount-man-united/
 
