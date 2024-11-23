@@ -1,3 +1,11 @@
+**Barcelona's Putellas out for three weeks with leg injury**\
+`Barcelona forward Alexia Putellas is set to be out for the next three weeks with an injury to the triceps suralis in her right leg.`\
+https://nytimes.com/athletic/5942206/2024/11/23/barcelona-alexia-putellas-injury/
+
+**Arsenal 3 Nottingham Forest 0 - Nwaneri's first league goal and the Odegaard effect**\
+`Analysis of Arsenal's Premier League victory over Nottingham Forest`\
+https://nytimes.com/athletic/5931799/2024/11/23/arsenal-nottingham-forest-nwaneri-highlights/
+
 **Down About the Election? There Is a Speech I Want You to Read.**\
 `Frederick Douglass knew what to do when faced with Jim Crow.`\
 https://nytimes.com/2024/11/23/opinion/election-frederick-douglass.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/5942169/2024/11/23/steve-cooper-referee-frustration
 https://nytimes.com/2024/11/23/us/politics/scott-bessent-treasury-profile.html
 
 **Food Poisoning Kills at Least 23 Children as South Africa Declares Emergency**\
-`The South African government, saying that nearly 900 people, many children, had fallen sick since September, declared a state of emergency.`\
+`The South African government said that nearly 900 people, many children, had fallen sick since September.`\
 https://nytimes.com/2024/11/23/world/africa/south-africa-food-poisoning-kills-children.html
 
 **Murray named Djokovic's coach for Australian Open**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/23/dining/pumpkin-pie-thanksgiving-recipes.html
 **Antetokounmpo-Lillard combo finding its groove as 'vibes ... are high' after Bucks top Pacers**\
 `From the mundane to the spectacular, Antetokounmpo and Lillard find themselves to be in sync as the Bucks have won five of their last six.`\
 https://nytimes.com/athletic/5941919/2024/11/23/giannis-damian-lillard-bucks-pacers/
-
-**Bryce Underwood's meetings with Tom Brady helped flip QB to Michigan**\
-`Ton Brady became a great resource for the young QB, who grew up a Michigan fan and is from Belleville, Mich.`\
-https://nytimes.com/athletic/5942126/2024/11/23/bryce-underwood-tom-brady-michigan-commitment-flip/
-
-**With F1 Academy seat in 2025, Alba Hurup Larsen's swift motorsports ascent continues**\
-`The 15-year-old Danish prodigy went from lockdown go-karter to F1 Academy driver in just a few short years. `\
-https://nytimes.com/athletic/5941780/2024/11/23/f1-academy-alba-hurup-larsen-kevin-magnussen/
 
