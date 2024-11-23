@@ -1,3 +1,15 @@
+**Olof Mellberg to manage St. Louis City SC**\
+`The 47-year-old will replace Hackworth, the interim head coach, who will remain with the club in his previous role.`\
+https://nytimes.com/athletic/5942505/2024/11/23/olof-mellberg-st-louis-city-sc-mls/
+
+**Wild's Kirill Kaprizov out with lower-body injury, to be evaluated Sunday: Source**\
+`Kaprizov will be examined by the team's orthopedist on Sunday in Minnesota.`\
+https://nytimes.com/athletic/5942579/2024/11/23/kirill-kaprizov-wild-injury/
+
+**Ole Miss loses to Florida 24-17 as CFP chances slip away**\
+`Florida also clinched bowl eligibility with the win.`\
+https://nytimes.com/athletic/5942414/2024/11/23/florida-ole-miss-college-football-results-analysis/
+
 **Shape Up or Ship Out**\
 `Alex Eaton-Salners floats in with a precise Sunday construction.`\
 https://nytimes.com/2024/11/23/crosswords/daily-puzzle-2024-11-24.html
