@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Trump Names Agriculture Secretary, Rounding Out Main Cabinet Picks**\
+``\
+https://nytimes.com/live/2024/11/23/us/trump-news
+
 **Rutgers extends 15-year losing streak to ranked foes after Illinois comeback**\
 `Rutgers' loss streak to AP top-25 ranked opponents is now 41 games. In the first 40, Rutgers lost by an average of 29.8 points.`\
 https://nytimes.com/athletic/5942440/2024/11/23/rutgers-illinois-ranked-opponent-loss-streak-cfb/
