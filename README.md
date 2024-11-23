@@ -1,3 +1,7 @@
+**Zion Williamson, CAA parting ways: Sources**\
+`It is not immediately clear why Williamson and CAA are splitting.`\
+https://nytimes.com/athletic/5941622/2024/11/22/zion-williamson-caa-agency-part-ways/
+
 **Astros' Jake Meyers survived the tender deadline, but is he on borrowed time in Houston?**\
 `Based on GM Dana Brown's recent comments, the Astros' decision to tender a contract to Meyers doesn't mean he'll have a prominent role.`\
 https://nytimes.com/athletic/5941481/2024/11/22/astros-tender-contract-jake-meyers-plans/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/11/22/nyregion/daniel-penny-defense-jordan-neely.html
 **Trump Picks Key Figure in Project 2025 for Powerful Budget Role**\
 `Russell Vought, who would lead the Office of Management and Budget, has spent years building plans to rework the American structure of government in ways that would enhance presidential power.`\
 https://nytimes.com/2024/11/22/us/politics/russell-vought-office-of-management-and-budget.html
-
-**Chiefs signing D.J. Humphries to boost offensive line depth**\
-`Kansas City added Humphries with Wanya Morris battling a knee injury and the rookie Kingsley Suamataia's growing pains.`\
-https://nytimes.com/athletic/5941471/2024/11/22/chiefs-sign-d-j-humphries-offensive-line/
 
