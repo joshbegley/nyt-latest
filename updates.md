@@ -1,3 +1,7 @@
+**Did Ohio State burst Indiana's bubble? What Buckeyes' dominant win means in Playoff chase**\
+`No. 2 Ohio State stifled No. 5 Indiana, winning 38-15 to inch closer to a Big Ten title bid while handing the Hoosiers their first loss.`\
+https://nytimes.com/athletic/5942432/2024/11/23/ohio-state-indiana-football-score-playoff/
+
 **2-Year-Old Gorilla Dies After Being Struck by Hydraulic Door at Zoo**\
 `A Calgary Zoo staff member mistakenly activated a door that struck the western lowland gorilla named Eyare, a report found.`\
 https://nytimes.com/2024/11/23/world/canada/gorilla-death-calgary-zoo.html
