@@ -7,7 +7,7 @@ https://nytimes.com/2024/11/23/us/california-assistant-principal-sexual-miscondu
 https://nytimes.com/athletic/5942675/2024/11/23/flyers-blackhawks-matvei-michkov-connor-bedard/
 
 **Climate Talks Forge a Deal on Money After a Bitter Fight**\
-`The financing plan, which calls for $300 billion per year in support for developing nations, was assailed as inadequate by some delegates.`\
+`The financing plan, which calls for $300 billion per year in support for developing nations, was immediately assailed as inadequate by a string of delegates.`\
 https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
 
 **Rutgers extends 15-year losing streak to ranked foes after Illinois comeback**\

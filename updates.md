@@ -1,4 +1,8 @@
 **Climate Talks Forge a Deal on Money After a Bitter Fight**\
+`The financing plan, which calls for $300 billion per year in support for developing nations, was immediately assailed as inadequate by a string of delegates.`\
+https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
+
+**Climate Talks Forge a Deal on Money After a Bitter Fight**\
 `The financing plan, which calls for $300 billion per year in support for developing nations, was assailed as inadequate by some delegates.`\
 https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
 
