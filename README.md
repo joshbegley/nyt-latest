@@ -1,4 +1,4 @@
-**Owners of Colorado Funeral Homes Admit to Abusing Nearly 200 Corpses**\
+**Owners of Colorado Funeral Home Admit to Abusing Nearly 200 Corpses**\
 `Jon and Carie Hallford pleaded guilty to corpse abuse after dozens of decaying bodies were found at their funeral homes.`\
 https://nytimes.com/2024/11/23/us/colorado-funeral-home-guilty-corpse-abuse.html
 
