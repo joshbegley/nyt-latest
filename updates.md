@@ -1,3 +1,7 @@
+**Your Heart’s Desire**\
+`Understanding what’s “for you” or “not for you” is part of refining taste. But what if it’s also closing you off to pleasure and connection?`\
+https://nytimes.com/2024/11/23/briefing/wicked-gladiator-2-personal-taste.html
+
 **What I'm hearing about the Blackhawks at the quarter mark of the season**\
 `The latest on the Blackhawks prospects, plus injury updates, 4 Nations Face-Off and more. `\
 https://nytimes.com/athletic/5940651/2024/11/23/blackhawks-frank-nazar-quarter-season/
