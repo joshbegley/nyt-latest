@@ -1,3 +1,7 @@
+**Is Flyers' Matvei Michkov trending to be better than Blackhawks' Connor Bedard?**\
+`The first meeting between the young stars offered a glimpse of a potential budding rivalry for years to come.`\
+https://nytimes.com/athletic/5942675/2024/11/23/flyers-blackhawks-matvei-michkov-connor-bedard/
+
 **Climate Talks Forge a Deal on Money After a Bitter Fight**\
 `Some countries were outraged over what they saw as deep flaws in the plan, which calls for $300 billion per year in support for developing nations.`\
 https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942579/2024/11/23/kirill-kaprizov-wild-injury/
 **College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
-
-**Shape Up or Ship Out**\
-`Alex Eaton-Salners floats in with a precise Sunday construction.`\
-https://nytimes.com/2024/11/23/crosswords/daily-puzzle-2024-11-24.html
 

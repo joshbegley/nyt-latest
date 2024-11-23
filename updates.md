@@ -1,3 +1,7 @@
+**Is Flyers' Matvei Michkov trending to be better than Blackhawks' Connor Bedard?**\
+`The first meeting between the young stars offered a glimpse of a potential budding rivalry for years to come.`\
+https://nytimes.com/athletic/5942675/2024/11/23/flyers-blackhawks-matvei-michkov-connor-bedard/
+
 **Climate Talks Forge a Deal on Money After a Bitter Fight**\
 `Some countries were outraged over what they saw as deep flaws in the plan, which calls for $300 billion per year in support for developing nations.`\
 https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
