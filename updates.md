@@ -1,3 +1,11 @@
+**K-Pop Trained Rosé to Be ‘a Perfect Girl.’ Now She’s Trying to Be Herself.**\
+`The Blackpink star strikes out on her own, away from the system that turned her into a global phenomenon.`\
+https://nytimes.com/2024/11/23/magazine/rose-blackpink-kpop.html
+
+**Kayaker Trapped on Australian River Has Leg Amputated in 20-Hour Rescue**\
+`The police in the state of Tasmania said all other efforts to help the man, a foreign tourist in his 60s, failed before the decision was made to amputate.`\
+https://nytimes.com/2024/11/23/world/australia/tasmania-rescue-leg-amputated.html
+
 **NFL Week 12 roundtable: Giants' QB plan post-Jones, NFC West race, is Bo Nix legit OROY contender?**\
 `Week 12 is highlighted by Cardinals-Seahawks, 49ers-Packers and Lions-Colts among other games. Our writers discuss.`\
 https://nytimes.com/athletic/5940980/2024/11/23/nfl-week-12-roundtable-giants-qb-plan-bo-nix-nfc-west/

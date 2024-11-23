@@ -1,3 +1,11 @@
+**K-Pop Trained Rosé to Be ‘a Perfect Girl.’ Now She’s Trying to Be Herself.**\
+`The Blackpink star strikes out on her own, away from the system that turned her into a global phenomenon.`\
+https://nytimes.com/2024/11/23/magazine/rose-blackpink-kpop.html
+
+**Kayaker Trapped on Australian River Has Leg Amputated in 20-Hour Rescue**\
+`The police in the state of Tasmania said all other efforts to help the man, a foreign tourist in his 60s, failed before the decision was made to amputate.`\
+https://nytimes.com/2024/11/23/world/australia/tasmania-rescue-leg-amputated.html
+
 **NFL Week 12 roundtable: Giants' QB plan post-Jones, NFC West race, is Bo Nix legit OROY contender?**\
 `Week 12 is highlighted by Cardinals-Seahawks, 49ers-Packers and Lions-Colts among other games. Our writers discuss.`\
 https://nytimes.com/athletic/5940980/2024/11/23/nfl-week-12-roundtable-giants-qb-plan-bo-nix-nfc-west/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/23/us/gettysburg-address.html
 **I Tested the Latest FAFSA. It Works Fine. Don’t Celebrate Yet.**\
 `The rollout of the new student aid form last year was a debacle. This year’s beta testing has gone better. Next up: millions of users and a new administration.`\
 https://nytimes.com/2024/11/23/your-money/fafsa-financial-aid-college.html
-
-**Trump Promised to Halve Energy Costs in 18 Months. Experts Have Doubts.**\
-`A president has little control over global oil markets, economists say.`\
-https://nytimes.com/2024/11/23/climate/trump-climate-energy-costs.html
-
-**Republicans Ponder: What if the Trump Tax Cuts Cost Nothing?**\
-`Some in the party are considering alternative ways of assessing the federal budget as they prepare to extend temporary tax cuts passed in 2017.`\
-https://nytimes.com/2024/11/23/us/politics/trump-tax-cuts-republicans-deficit.html
 
