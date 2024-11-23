@@ -1,3 +1,11 @@
+**Amorim praises Man United midfielder Mount: 'I love that kid'**\
+`New Manchester United head coach Ruben Amorim says that midfielder Mason Mount is “perfect” for his system.`\
+https://nytimes.com/athletic/5941957/2024/11/23/ruben-amorim-mason-mount-man-united/
+
+**Mavericks appear to have answered brutal wake-up call, winning fourth straight**\
+`A defensive lapse sent the team spiraling last week, but Dallas has yet to lose since, including Friday's resilient win over Denver.`\
+https://nytimes.com/athletic/5941827/2024/11/23/mavericks-win-streak-denver-nuggets/
+
 **Sectarian Violence Kills Least 25 in Northwest Pakistan**\
 `The clashes overnight between Sunni and Shiite tribes in Khyber Pakhtunkhwa Province came a day after gunmen ambushed a convey of vehicles in the area.`\
 https://nytimes.com/2024/11/23/world/asia/pakistan-sectarian-violence.html
