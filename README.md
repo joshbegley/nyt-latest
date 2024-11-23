@@ -1,3 +1,7 @@
+**Ancelotti confident on Mbappe improvement: 'His quality is enormous'**\
+`Carlo Ancelotti is confident that Kylian Mbappe&#8217;s form will improve for Real Madrid.`\
+https://nytimes.com/athletic/5942034/2024/11/23/carlo-ancelotti-confident-on-kylian-mbappe-improvement-his-quality-is-enormous/
+
 **Why Broncos believe Bo Nix's recent surge is 'just the tip of the iceberg'**\
 `The rookie QB has been one of the NFL's best passers against the blitz the past month, evidence of his growth in identifying defenses.`\
 https://nytimes.com/athletic/5940567/2024/11/23/broncos-rookie-qb-bo-nix-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941827/2024/11/23/mavericks-win-streak-denver-nugg
 **Sectarian Violence Kills Least 25 in Northwest Pakistan**\
 `The clashes overnight between Sunni and Shiite tribes in Khyber Pakhtunkhwa Province came a day after gunmen ambushed a convey of vehicles in the area.`\
 https://nytimes.com/2024/11/23/world/asia/pakistan-sectarian-violence.html
-
-**‘Wicked’ Revels in the Glory of Female Frenemies**\
-`Who hasn’t wanted to destroy a best friend — at least a little?`\
-https://nytimes.com/2024/11/23/opinion/wicked-movie-female-friends-frenemies.html
 
