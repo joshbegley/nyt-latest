@@ -1,3 +1,7 @@
+**Food Poisoning Kills 23 Children as South Africa Declares Emergency**\
+`The South African government said that nearly 900 people, many children, had fallen sick since September.`\
+https://nytimes.com/2024/11/23/world/africa/south-africa-food-poisoning-kills-children.html
+
 **Barcelona's Putellas out for three weeks with leg injury**\
 `Barcelona forward Alexia Putellas is set to be out for the next three weeks with an injury to the triceps suralis in her right leg.`\
 https://nytimes.com/athletic/5942206/2024/11/23/barcelona-alexia-putellas-injury/
