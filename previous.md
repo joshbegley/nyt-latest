@@ -1,3 +1,15 @@
+**Ruben Amorim's first Man Utd press conference: What he said and what it means**\
+`Despite Amorim’s first encounter with assembled media being a pre-match press conference, no one asked about Sunday’s opponents Ipswich`\
+https://nytimes.com/athletic/5934564/2024/11/23/amorim-first-united-press-conference-analsyed/
+
+**13 insights fantasy football managers need to know ahead of Week 12**\
+`Among Theo Gremminger's latest fantasy football insights, he says Tee Higgins is sitting in the catbird seat of the 2025 free agency class.`\
+https://nytimes.com/athletic/5940997/2024/11/23/13-insights-fantasy-football-week-12/
+
+**Pep Guardiola speaks his mind: ‘I’m sorry guys, I won six Premier Leagues’**\
+`In a starkly unfiltered press conference on Friday, Guardiola got his point of view across like only he can - and he appeared re-energised`\
+https://nytimes.com/athletic/5941179/2024/11/23/pep-guardiola-press-conference-contract-klopp/
+
 **Football's chequered history of half-time entertainment: Punch-ups, cheerleaders and booing The Shamen**\
 `Bored at half-time? Wish there was some entertainment? Be careful what you wish for`\
 https://nytimes.com/athletic/5929213/2024/11/23/football-half-time-entertainment/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/23/pageoneplus/quote-of-the-day-nothing-short-of-per
 **55 Days Into Hunger Strike, Activist’s Mother Says She ‘Won’t Back Down’**\
 `Laila Soueif, the British-born mother of the Egyptian political prisoner Alaa Abd El Fattah, is demanding the U.K. do more to secure his release.`\
 https://nytimes.com/2024/11/23/world/europe/hunger-strike-laila-soueif-alaa-abd-el-fattah.html
-
-**Cash, Kidnappings and Luxury Resorts: A Formula for Power in Modi’s India**\
-`With a tactic known as “resort politics,” Prime Minister Narendra Modi’s party has been accused of using brute force to take over Indian state governments.`\
-https://nytimes.com/2024/11/23/world/asia/india-resort-politics-maharashtra-election.html
-
-**A Lesson From Poland: Reversing Populist Policies Is Tough**\
-`The country’s new leaders are trying to undo changes, like abortion restrictions and politicized courts, made by their hard-right predecessors. It “takes longer than you expect,” one minister said.`\
-https://nytimes.com/2024/11/23/world/europe/poland-law-justice-us-trump.html
-
-**Man City vs Spurs preview, odds, prediction as slumping City hope to get back on track**\
-`Manchester City have lost four in a row, a streak which is unheard of in the Pep Guardiola era. Can they end that skid against Spurs?`\
-https://nytimes.com/athletic/5940851/2024/11/23/manchester-city-tottenham-preview-odds-prediction/
 
