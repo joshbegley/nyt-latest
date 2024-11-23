@@ -1,3 +1,11 @@
+**Yankees non-tender 2 players; here's what it means for the club's 2025 payroll**\
+`As the Yankees look to re-sign Juan Soto, they made some moves on Friday to provide some financial flexibility.`\
+https://nytimes.com/athletic/5941391/2024/11/22/yankees-non-tender-jon-berti-tim-mayza-2025-payroll/
+
+**Labor Secretary Pick Is Rep. Lori Chavez-DeRemer of Oregon**\
+`A moderate from a swing district, she received endorsements from several unions but narrowly lost her bid for a second House term.`\
+https://nytimes.com/2024/11/22/business/economy/labor-secretary-lori-chavez-deremer-trump.html
+
 **Israel Is Not an I.C.C. Member. How Can the Court Prosecute Israeli Leaders?**\
 `The jurisdiction of the court in The Hague can extend beyond member states.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-icc-jurisdiction-explained.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
 **NWSL commissioner gives update on NWSL expansion, youth development and more**\
 `Jessica Berman answered questions about expansion, youth development and more.`\
 https://nytimes.com/athletic/5941460/2024/11/22/cincinnati-cleveland-denver-nwsl-expansion-finalists-jessica-berman/
-
-**Royals trade Brady Singer to Reds for Jonathan India, Joey Wiemer**\
-`The Royals landed the 2020 NL Rookie of the Year for Singer, a durable starter whom Kansas City drafted in the first round in 2018.`\
-https://nytimes.com/athletic/5941558/2024/11/22/royals-reds-trade-brady-singer-jonathan-india-joey-wiemer/
-
-**‘Glicked’ Fans Rejoice in Bloodshed and Broadway Songs**\
-`“Wicked” and “Gladiator II,” which opened on Friday, drew moviegoers who attended a double feature that emulated the rage over “Barbenheimer” last year.`\
-https://nytimes.com/2024/11/22/us/wicked-gladiator-release-glicked.html
 
