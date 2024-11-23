@@ -1,3 +1,7 @@
+**Owners of Colorado Funeral Homes Admit to Abusing Nearly 200 Corpses**\
+`Jon and Carie Hallford pleaded guilty to corpse abuse after dozens of decaying bodies were found at their funeral homes.`\
+https://nytimes.com/2024/11/23/us/colorado-funeral-home-guilty-corpse-abuse.html
+
 **The moral of the story from Ole Miss loss: This is about surviving the grind**\
 `Ole Miss wasn't built for CFP survival this year. But a good example of that is the team Ole Miss beat two weeks ago: Georgia.`\
 https://nytimes.com/athletic/5942763/2024/11/23/ole-miss-lane-kiffin-college-football-playoff/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5942440/2024/11/23/rutgers-illinois-ranked-opponent
 `In this bye-heavy week, Jake Ciely offers detailed game breakdowns, rankings, sleepers and more to help maximize your Week 12 lineup.`\
 https://nytimes.com/athletic/5933388/2024/11/23/fantasy-football-rankings-week-12-sleepers-projections-starts-bo-nix-rome-odunze/
 
-**Trump Transition Live Updates: Trump Names Agriculture Secretary, Rounding Out Main Cabinet Picks**\
+**Trump Transition: Trump Names Agriculture Secretary, Rounding Out Main Cabinet Picks**\
 ``\
 https://nytimes.com/live/2024/11/23/us/trump-news
-
-**Trump Picks Brooke Rollins, a Conservative Lawyer, to Lead Agriculture Dept.**\
-`Ms. Rollins is the chief executive of the America First Policy Institute, a think tank created to promote President-elect Donald J. Trump’s agenda.`\
-https://nytimes.com/2024/11/23/us/politics/trump-agriculture-secretary.html
 
