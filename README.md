@@ -1,3 +1,7 @@
+**So Many Days Lost at the Doctor’s Office**\
+`Medical care can be wearying and time-consuming, especially for seniors. Researchers are beginning to quantify the burdens.`\
+https://nytimes.com/2024/11/23/health/elderly-health-appointments-burdens.html
+
 **Inter Miami to appoint Mascherano as new head coach**\
 `Mascherano also played with Miami's Sergio Busquets and Jordi Alba during his days at Barcelona.`\
 https://nytimes.com/athletic/5940549/2024/11/23/javier-mascherano-inter-miami-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940567/2024/11/23/broncos-rookie-qb-bo-nix-offense
 **Where You Should Donate This Holiday Season**\
 `Announcing the return of Opinion’s annual giving guide.`\
 https://nytimes.com/2024/11/23/opinion/charity-holiday-gift-giving-guide.html
-
-**Stock for Sale by Cabinet Members**\
-`Trump’s picks for Treasury secretary and commerce secretary both lead Wall Street firms. Here’s what that could mean for their finances and businesses.`\
-https://nytimes.com/2024/11/23/business/dealbook/bessent-lutnick-divestments.html
 
