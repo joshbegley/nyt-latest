@@ -2,7 +2,7 @@
 `The hedge fund investor predicted last year that President-elect Donald J. Trump’s political fortunes were on the rise.`\
 https://nytimes.com/2024/11/23/us/politics/scott-bessent-treasury-profile.html
 
-**Food Poisoning Kills at Least 23 Children as South Africa Declares E**\
+**Food Poisoning Kills at Least 23 Children as South Africa Declares Emergency**\
 `The South African government, saying that nearly 900 people, many children, had fallen sick since September, declared a state of emergency.`\
 https://nytimes.com/2024/11/23/world/africa/south-africa-food-poisoning-kills-children.html
 
