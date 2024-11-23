@@ -1,3 +1,7 @@
+**SMU routs Virginia, clinches spot in ACC Championship Game**\
+`The Mustangs will take on either Miami or Clemson in the league title game in Charlotte, N.C., on Dec. 7.`\
+https://nytimes.com/athletic/5942407/2024/11/23/smu-acc-championship-game-virginia/
+
 **Auston Matthews returns to ice, discusses mysterious injury for first time**\
 `Matthews skated on his own ahead of Leafs practice Saturday. It was his first time on the ice since Nov. 10.`\
 https://nytimes.com/athletic/5942404/2024/11/23/maple-leafs-auston-matthews-injury-4/
