@@ -1,3 +1,16 @@
+**Florida’s Top Health Official Urges an End to Putting Fluoride in Water**\
+`The recommendation followed similar pushes from Robert F. Kennedy Jr., Donald J. Trump’s pick to lead the Department of Health and Human Services.`\
+https://nytimes.com/2024/11/22/us/politics/florida-fluoride-water-rfk-jr-ladapo.html
+
+**Dr. Martin Makary Chosen to Head the F.D.A.**\
+`A frequent Fox News commentator, Dr. Makary has a penchant for challenging the medical establishment, and stirred pandemic concerns with his views on Covid immunity and vaccine mandates.`\
+https://nytimes.com/2024/11/22/health/fda-commissioner-marty-makary-rfkjr.html
+
+**'I want to have points': Yakov Trenin has been as advertised for Wild, except for scoring**\
+`Trenin, who has a single point in 19 games this season, is trying to 'stay positive' as he tries to break his slump.
+`\
+https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
+
 **NWSL commissioner gives update on NWSL expansion, youth development and more**\
 `Jessica Berman answered questions about expansion, youth development and more`\
 https://nytimes.com/athletic/5941460/2024/11/22/cincinnati-cleveland-denver-nwsl-expansion-finalists-jessica-berman/
