@@ -1,3 +1,11 @@
+**Three fans arrested for alleged racist chanting during El Clasico**\
+`Three fans allegedly responsible for racist chanting towards Barcelona players during last month’s El Clasico have been arrested.`\
+https://nytimes.com/athletic/5941985/2024/11/23/real-madrid-barcelona-el-clasico-arrests-racist/
+
+**2 Books for Readers Who Don’t Care About Polite Company**\
+`A Japanese tale of “frustrated love and revenge,” and a visual history of bathrooms.`\
+https://nytimes.com/2024/11/23/books/read-like-wind-recommendations.html
+
 **Amorim praises Man United midfielder Mount: 'I love that kid'**\
 `New Manchester United head coach Ruben Amorim says that midfielder Mason Mount is “perfect” for his system.`\
 https://nytimes.com/athletic/5941957/2024/11/23/ruben-amorim-mason-mount-man-united/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/23/opinion/uruguay-elections-president.html
 **Trump: Protector of Women — or Predators?**\
 `If you want to see women flying high, go to the movies.`\
 https://nytimes.com/2024/11/23/opinion/trump-protector-women-allegations-cabinet.html
-
-**Three Theories of the Trump Cabinet**\
-`Where will this particular cast of characters take us?`\
-https://nytimes.com/2024/11/23/opinion/trump-cabinet-second-term.html
-
-**Flattery as Trump Management Strategy**\
-`A second Trump administration is one where nobody’s quite sure what anyone else is really thinking.`\
-https://nytimes.com/2024/11/23/opinion/trump-election-flattery-business-cabinet.html
 
