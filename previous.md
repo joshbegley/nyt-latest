@@ -1,3 +1,15 @@
+**A Lesson From Poland: Reversing Populist Policies Is Tough**\
+`The country’s new leaders are trying to undo changes, like abortion restrictions and politicized courts, made by their hard-right predecessors. It “takes longer than you expect,” one minister said.`\
+https://nytimes.com/2024/11/23/world/europe/poland-law-justice-us-trump.html
+
+**Man City vs Spurs preview, odds, prediction as slumping City hope to get back on track**\
+`Manchester City have lost four in a row, a streak which is unheard of in the Pep Guardiola era. Can they end that skid against Spurs?`\
+https://nytimes.com/athletic/5940851/2024/11/23/manchester-city-tottenham-preview-odds-prediction/
+
+**Indiana at Ohio State: How to watch, picks, odds for Big Ten, top-5 showdown**\
+`Ohio State takes on undefeated Indiana in a massive game in the CFP race. The Buckeyes are huge favorites at home.`\
+https://nytimes.com/athletic/5938386/2024/11/23/indiana-ohio-state-how-to-watch-picks-odds/
+
 **Bulls get win, but Patrick Williams out indefinitely with foot inflammation**\
 `Left foot issues caused Williams to miss his second straight contest Friday, a Bulls win against the Atlanta Hawks.`\
 https://nytimes.com/athletic/5941727/2024/11/22/patrick-williams-chicago-bulls-foot-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/22/us/politics/scott-turner-hud-trump.html
 **Former Rangers manager Chris Woodward returns to Dodgers' staff as first-base coach**\
 `Woodward returned to the Dodgers as a senior advisor last season after four seasons managing the Rangers.`\
 https://nytimes.com/athletic/5941709/2024/11/22/dodgers-chris-woodward-first-base-coach/
-
-**Seven intriguing new names on MLB's free-agent market after Friday's non-tender deadline**\
-`Among players who hit the open market after getting non-tendered were a few former All-Stars and players drafted in the first round.`\
-https://nytimes.com/athletic/5941671/2024/11/22/mlb-top-non-tender-free-agents/
-
-**Sebastian Gorka to Return to White House as Adviser**\
-`In a statement, Donald J. Trump lauded the firebrand conservative commentator as a “tireless advocate” for his agenda. There was no mention that Mr. Gorka had been forced out of the Trump administration in 2017.`\
-https://nytimes.com/2024/11/22/us/politics/sebastian-gorka-adviser.html
-
-**Alice Brock, Restaurant Owner Made Famous by a Song, Dies at 83**\
-`Arlo Guthrie’s antiwar staple “Alice’s Restaurant” was inspired by a Thanksgiving Day visit to her diner in western Massachusetts.`\
-https://nytimes.com/2024/11/22/arts/music/alice-brock-dead.html
 
