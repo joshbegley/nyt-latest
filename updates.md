@@ -1,3 +1,11 @@
+**Owners of Colorado Funeral Home Admit to Abusing Nearly 200 Corpses**\
+`Jon and Carie Hallford pleaded guilty to corpse abuse after dozens of decaying bodies were found at their funeral home.`\
+https://nytimes.com/2024/11/23/us/colorado-funeral-home-guilty-corpse-abuse.html
+
+**Trump Transition: Trump Names Agriculture Secretary, Rounding Out Main Cabinet Picks**\
+``\
+https://nytimes.com/live/2024/11/23/us/trump-news
+
 **The moral of the story from Ole Miss loss: This is about surviving the grind**\
 `Ole Miss wasn't built for CFP survival this year. But a good example of that is the team Ole Miss beat two weeks ago: Georgia.`\
 https://nytimes.com/athletic/5942763/2024/11/23/ole-miss-lane-kiffin-college-football-playoff/
