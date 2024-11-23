@@ -1,3 +1,7 @@
+**Travis Hunter tracker: Superstar's huge performance can't save Colorado from upset loss**\
+`Hunter scored twice and surpassed 1,000 yards receiving for the season during Saturday's game, but it wasn't enough for Colorado.`\
+https://nytimes.com/athletic/5942640/2024/11/23/travis-hunter-nfl-draft-2025-kansas/
+
 **How Wild fell in shootout despite late rally without Kirill Kaprizov: 3 takeaways**\
 `Playing without their superstar, the Wild scored two late goals before the Flames took a 4-3 win in a five-round shootout.`\
 https://nytimes.com/athletic/5942589/2024/11/23/wild-flames-kirill-kaprizov-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/us/california-assistant-principal-sexual-miscondu
 **Is Flyers' Matvei Michkov trending to be better than Blackhawks' Connor Bedard?**\
 `The first meeting between the young stars offered a glimpse of a potential budding rivalry for years to come.`\
 https://nytimes.com/athletic/5942675/2024/11/23/flyers-blackhawks-matvei-michkov-connor-bedard/
-
-**Climate Talks Forge a Deal on Money After a Bitter Fight**\
-`The financing plan, which calls for $300 billion per year in support for developing nations, was immediately assailed as inadequate by a string of delegates.`\
-https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
 
