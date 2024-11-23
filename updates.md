@@ -1,3 +1,7 @@
+**Cooper frustrated by Madley decisions in Chelsea loss**\
+`Leicester City manager Steve Cooper has criticised the standard of refereeing in the Premier League after his side fell to a controversial 2-1 home defeat to Chelsea.`\
+https://nytimes.com/athletic/5942169/2024/11/23/steve-cooper-referee-frustration/
+
 **How Scott Bessent Went From Democratic Donor to Trump Treasury Secretary Pick**\
 `The hedge fund investor predicted last year that President-elect Donald J. Trump’s political fortunes were on the rise.`\
 https://nytimes.com/2024/11/23/us/politics/scott-bessent-treasury-profile.html
