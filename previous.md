@@ -1,3 +1,7 @@
+**Powerful Israeli Airstrike Hits Central Beirut**\
+`The attack was the third strike in the Lebanese capital this week, part of a wave of amped-up Israeli military activity across the country.`\
+https://nytimes.com/2024/11/23/world/middleeast/israel-lebanon-beirut-airstrike.html
+
 **Franz Wagner and the Magic take pride in being 'physical' and it has them rolling**\
 `Without All-Star Paolo Banchero for the past month, Orlando won't go away in the East.`\
 https://nytimes.com/athletic/5940092/2024/11/23/franz-wagner-orlando-magic-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941819/2024/11/23/george-russell-f1-las-vegas-gp-p
 **Duke outlasts Arizona's physicality in top-25 matchup**\
 `If Duke hadn’t lost in the fashion it did against Kentucky, there’s no telling if it would’ve been able to match Arizona’s physicality.`\
 https://nytimes.com/athletic/5941726/2024/11/23/duke-arizona-score-result/
-
-**One Dead in U.S. Listeria Outbreak Tied to Ready-to-Eat Meat and Poultry**\
-`Officials have linked 11 listeria cases since October 2021 to items from Yu Shang Food, which is recalling more than 72,000 pounds of products.`\
-https://nytimes.com/2024/11/23/us/listeria-death-yushang-recall.html
 

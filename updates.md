@@ -1,3 +1,7 @@
+**Powerful Israeli Airstrike Hits Central Beirut**\
+`The attack was the third strike in the Lebanese capital this week, part of a wave of amped-up Israeli military activity across the country.`\
+https://nytimes.com/2024/11/23/world/middleeast/israel-lebanon-beirut-airstrike.html
+
 **Franz Wagner and the Magic take pride in being 'physical' and it has them rolling**\
 `Without All-Star Paolo Banchero for the past month, Orlando won't go away in the East.`\
 https://nytimes.com/athletic/5940092/2024/11/23/franz-wagner-orlando-magic-nba/
