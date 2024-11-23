@@ -1,3 +1,7 @@
+**Florida’s Top Health Official Urges an End to Putting Fluoride in Water**\
+`The recommendation followed similar pushes from Robert F. Kennedy Jr., Donald J. Trump’s pick to lead the Department of Health and Human Services.`\
+https://nytimes.com/2024/11/22/us/politics/florida-fluoride-water-rfk-jr-ladapo.html
+
 **Dr. Martin Makary Chosen to Head the F.D.A.**\
 `A frequent Fox News commentator, Dr. Makary has a penchant for challenging the medical establishment, and stirred pandemic concerns with his views on Covid immunity and vaccine mandates.`\
 https://nytimes.com/2024/11/22/health/fda-commissioner-marty-makary-rfkjr.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5941471/2024/11/22/chiefs-sign-d-j-humphries-offens
 **Blue Jays non-tender former closer Jordan Romano, creating bigger hole in bullpen**\
 `Romano was a standout closer from 2021-23 but struggled with injuries in 2024.`\
 https://nytimes.com/athletic/5938435/2024/11/22/blue-jays-jordan-romano-non-tender/
-
-**Pam Bondi, a $25,000 Donation and Trump University: Questions Remain**\
-`While Ms. Bondi, President-elect Donald J. Trump’s pick for attorney general, served as attorney general of Florida, her office declined to investigate allegations of fraud against his for-profit school.`\
-https://nytimes.com/2024/11/22/us/politics/pam-bondi-trump-university.html
 
