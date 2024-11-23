@@ -1,3 +1,7 @@
+**Blue Man Group to End New York Run After Three Decades Off Broadway**\
+`The troupe is also closing its Chicago company, but continues to perform in Berlin, Boston, Las Vegas and, soon, Orlando.`\
+https://nytimes.com/2024/11/23/theater/blue-man-group-closing.html
+
 **Cooper frustrated by Madley decisions in Chelsea loss**\
 `Leicester City manager Steve Cooper has criticised the standard of refereeing in the Premier League after his side fell to a controversial 2-1 home defeat to Chelsea.`\
 https://nytimes.com/athletic/5942169/2024/11/23/steve-cooper-referee-frustration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941780/2024/11/23/f1-academy-alba-hurup-larsen-kev
 **College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
-
-**So Many Days Lost at the Doctor’s Office**\
-`Medical care can be wearying and time-consuming, especially for seniors. Researchers are beginning to quantify the burdens.`\
-https://nytimes.com/2024/11/23/health/elderly-health-appointments-burdens.html
 
